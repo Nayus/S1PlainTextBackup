@@ -2852,3 +2852,15 @@ AMV 王牌情人 // Ace of Hearts//  ...</blockquote>
 
 太阳都升起两小时了，可惜
 
+
+*****
+
+####  oi99o  
+##### 869#       发表于 2024-9-8 07:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66142223&amp;ptid=2168085" target="_blank">戦場ヶ原ひたぎ 发表于 2024-9-8 06:26</a>
+不要移注意力，讲一些TV版的观众不知道的事情，他们的印象还停留在前面的物语系列十周年LIVE、阿良良木君 ...</blockquote>
+虽然但是，上大学之前不就已经开始叫历了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

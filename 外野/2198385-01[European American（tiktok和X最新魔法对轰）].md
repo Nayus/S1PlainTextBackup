@@ -1204,3 +1204,13 @@ European American 如果能推广开来
 墨西哥土著是印加人和阿兹特克人，被杀光了 ...</blockquote>
 屁都不懂就少咧咧
 
+
+*****
+
+####  苦瓜柠檬茶  
+##### 115#       发表于 2024-9-8 07:55
+
+<blockquote>nexus1 发表于 2024-9-8 07:34
+至少现在已经有 japanese Korean 了</blockquote>
+解构嘛，根据需要，以后也可以有  Osaka Japanese 和 Kyoto Japanese
+

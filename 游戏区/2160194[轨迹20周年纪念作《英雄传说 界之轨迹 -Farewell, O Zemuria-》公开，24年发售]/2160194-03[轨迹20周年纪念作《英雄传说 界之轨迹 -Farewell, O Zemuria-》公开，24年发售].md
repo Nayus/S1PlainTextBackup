@@ -11394,3 +11394,48 @@ van被锁的角色是剑女？
 
 就今年看FAMI数据统计，单PS平台在日本数据确实不好看，带个NS基本上PS平台也就四五万的样子
 
+
+*****
+
+####  maojiashu  
+##### 4095#       发表于 2024-9-9 09:29
+
+反正我还是边骂边玩
+
+虽然没莉丝让我差点就不想玩了 但想着玩了这么多年了 一年也就个400+港币的支出
+
+看看这作还能怎么烂
+
+*****
+
+####  lobsteru  
+##### 4096#       发表于 2024-9-9 09:30
+
+这次psn港服没有豪华版？
+
+*****
+
+####  宛若青空  
+##### 4097#       发表于 2024-9-9 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66151179&amp;ptid=2160194" target="_blank">lobsteru 发表于 2024-9-9 09:30</a>
+
+这次psn港服没有豪华版？</blockquote>
+
+估计和日服一样没了
+
+
+*****
+
+####  洛克萨斯  
+##### 4098#       发表于 2024-9-9 09:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">赔款把自己赔废的帝国...........几年前一国之力打西大陆全部，几年后对手靠赔款成了西大陆最强了
+
+*****
+
+####  ravend233  
+##### 4099#       发表于 2024-9-9 09:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就竹入这个谁主场吹谁的写法，政治真的图一乐，太弱智了
+

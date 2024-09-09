@@ -12772,3 +12772,35 @@ dg教主要没死，那只能怀疑老卡吃回扣了
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  alucardcz  
+##### 4243#       发表于 2024-9-9 18:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">能不能把曹搞死 不想再看到这帮人了
+
+*****
+
+####  ravend233  
+##### 4244#       发表于 2024-9-9 18:58
+
+曹：真主角怎么能死呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  Aeons  
+##### 4245#       发表于 2024-9-9 19:00
+
+本作还有大少呢，平川能两边大放光彩吗
+
+*****
+
+####  红魔馆的糖  
+##### 4246#       发表于 2024-9-9 19:03
+
+别急，曹和克洛你方唱罢我登场，包享受的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -11782,3 +11782,58 @@ van和学妹在太空双飞，剑女留在地面，算不算决定性场面</blo
 卖得好有可能，卖不好就出个SC完全复刻卖了拉倒</blockquote>
 空轨最好别卖得好，伊斯卡灭亡历史直接伊苏8，古代未来双视角两作填了完结得了，万一卖得好，你法觉得轨迹又行了，起码再水四座<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  keiyoku  
+##### 4136#       发表于 2024-9-9 11:18
+
+还真别说，封面那个剪影如果是学妹的话，没准她就往神系去了，丹娜剧本这下不手到擒来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kojimaru  
+##### 4137#       发表于 2024-9-9 11:18
+
+如果ns2没有向下兼容并且空轨是双版本就赚麻了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">复刻八方1奇迹
+
+*****
+
+####  Aeons  
+##### 4138#       发表于 2024-9-9 11:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">真的吗
+
+
+*****
+
+####  flyingover  
+##### 4139#       发表于 2024-9-9 11:25
+
+<img src="https://img.saraba1st.com/forum/202409/09/112456akc2kx5f5k2xnixk.png" referrerpolicy="no-referrer">
+
+<strong>采访.png</strong> (39.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-9 11:24 上传
+
+ 一个是青梅3人，一个是白学3人吧
+
+*****
+
+####  妮贝雅  
+##### 4140#       发表于 2024-9-9 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66152654&amp;ptid=2160194" target="_blank">flyingover 发表于 2024-9-9 11:25</a>
+
+一个是青梅3人，一个是白学3人吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">这2个问题的回答结合起来不就是剑女有事（
+
+*****
+
+####  Oshino  
+##### 4141#       发表于 2024-9-9 11:27
+
+法老控现在除了做游戏，就指望着卖版权收钱了。前几年蒸蒸日上看财报就是靠旧作游戏移植，卖海外手游版权和联动赚的。精神股东居然觉得轨迹会跟伊苏一个展开，股东看了都直呼商业天才<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

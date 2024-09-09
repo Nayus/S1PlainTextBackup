@@ -11902,3 +11902,79 @@ van和学妹在太空双飞，剑女留在地面，算不算决定性场面</blo
 
 —— 来自 Xiaomi 2210132C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  Aeons  
+##### 4150#       发表于 2024-9-9 11:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">贴吧神必人真多啊
+
+*****
+
+####  ravend233  
+##### 4151#       发表于 2024-9-9 11:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最多当个最终BOSS打一架最后嘴炮追回来包饺子
+
+*****
+
+####  出言不迅  
+##### 4152#       发表于 2024-9-9 11:38
+
+发重复了
+
+*****
+
+####  keiyoku  
+##### 4153#       发表于 2024-9-9 11:40
+
+没准回不回来是界2的事情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还不知道什么时候才有的界2，赢！
+坏了怎么感觉我比竹入还会想咚
+
+*****
+
+####  Aeons  
+##### 4154#       发表于 2024-9-9 11:41
+
+牺牲断就不会有那些画面和台词
+
+
+*****
+
+####  出言不迅  
+##### 4155#       发表于 2024-9-9 11:43
+
+还有为啥没有魔装鬼升级形态，应该多出几个形态可以切换，才有意思。闪轨黎恩就没换机，相克也就外形小改的样子？换机这种救场+燃的现成套路不用
+
+*****
+
+####  ravend233  
+##### 4156#       发表于 2024-9-9 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66152833&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-9 11:38</a>
+
+贴吧神必人真多啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到那帖子了，只能说味重
+
+*****
+
+####  一步成诗  
+##### 4157#       发表于 2024-9-9 11:45
+
+贴吧嘛，吵架才有回复不然都没人说话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 4158#       发表于 2024-9-9 11:47
+
+ 本帖最后由 Aeons 于 2024-9-9 11:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66152923&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-9 11:44</a>
+
+看到那帖子了，只能说味重</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">19年还在读高中的小登好吧，主要是最新一句太搞笑了。
+
+就这个事件，帖子一个个的，到底谁在破防，谁急的批爆我不好说。
+

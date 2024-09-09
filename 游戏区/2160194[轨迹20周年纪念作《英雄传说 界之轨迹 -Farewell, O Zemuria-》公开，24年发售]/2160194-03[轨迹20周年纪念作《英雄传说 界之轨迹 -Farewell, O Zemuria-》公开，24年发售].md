@@ -12535,3 +12535,18 @@ b站看到一个评论，克洛觉得自己正宫地位受到威胁了，开始�
 1st要是fc加sc我还真的会买来玩儿，单fc肯定水漫金山我是玩不下去的</blockquote>
 fc没玲还是希望连同sc一起加进1st里的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 4217#       发表于 2024-9-9 17:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">FC+SC二合一的话必须重写SC剧本精简流程吧，只能说可以实现但是我不信你法社会这么做（）
+
+*****
+
+####  新世界的派蒙  
+##### 4218#       发表于 2024-9-9 17:39
+
+看到师姐这个人气全因对宅人设想到，黎轨目前还是缺少美强惨的高人气反派，空是菜堆，零是丽霞，闪是...50米拉，要么界轨花大篇幅讲师姐身世，立绘都没新的显然不可能
+

@@ -12337,3 +12337,21 @@ b站看到一个评论，克洛觉得自己正宫地位受到威胁了，开始�
 
 师姐的人气是打出来的，她只要打打打就够了，男人只会影响她拔刀的速度，哦可能也影响不了，全砍了就行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dddyghr  
+##### 4195#       发表于 2024-9-9 16:20
+
+虽然楼友都说期待放低但是也在游戏发售之前水了4000多楼了，这就是轨迹凯子吗 我最后一次大期待轨迹已经是闪之轨迹3了
+
+*****
+
+####  洛克萨斯  
+##### 4196#       发表于 2024-9-9 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66155568&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-9 16:16</a>
+
+师姐的人气是打出来的，她只要打打打就够了，男人只会影响她拔刀的速度，哦可能也影响不了，全砍了就行 ...</blockquote>
+人设好看，剧情强，演出帅
+

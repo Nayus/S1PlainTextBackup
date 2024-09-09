@@ -8631,10 +8631,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 72164,
+    "totalreply": 72169,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1725900371,
+    "lastedit": 1725900973,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9513,10 +9513,10 @@
     "update": false
   },
   "2193382": {
-    "totalreply": 40551,
+    "totalreply": 40567,
     "title": "[【集中楼】百合&amp;泛百合讨论专楼8.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论专楼8.0]",
-    "lastedit": 1725900374,
+    "lastedit": 1725900971,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10202,7 +10202,7 @@
     "newtitle": "[《文明7》2025年发售预定]",
     "lastedit": 1725641424,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2195776": {
@@ -14868,10 +14868,10 @@
     "update": false
   },
   "2011532": {
-    "totalreply": 543,
+    "totalreply": 544,
     "title": "[3GA文库轻小说《败犬女主太多了！》]",
     "newtitle": "[3GA文库轻小说《败犬女主太多了！》]",
-    "lastedit": 1725899775,
+    "lastedit": 1725900973,
     "category": "漫区",
     "active": true,
     "update": false
@@ -17415,10 +17415,10 @@
     "update": false
   },
   "2198577": {
-    "totalreply": 92,
+    "totalreply": 93,
     "title": "[源氏物语有什么日式解读的阴谋论吗，直接写天皇的绿帽子也太直接了吧]",
     "newtitle": "[源氏物语有什么日式解读的阴谋论吗，直接写天皇的绿帽子也太直接了吧]",
-    "lastedit": 1725898092,
+    "lastedit": 1725901088,
     "category": "外野",
     "active": true,
     "update": false
@@ -17541,10 +17541,10 @@
     "update": false
   },
   "2198617": {
-    "totalreply": 69,
+    "totalreply": 70,
     "title": "[三部门：拟允许在北京等九地设立外商独资医院]",
     "newtitle": "[三部门：拟允许在北京等九地设立外商独资医院]",
-    "lastedit": 1725900490,
+    "lastedit": 1725900852,
     "category": "外野",
     "active": true,
     "update": false
@@ -17595,10 +17595,10 @@
     "update": false
   },
   "2198670": {
-    "totalreply": 67,
+    "totalreply": 70,
     "title": "[关于年轻人不肯进厂]",
     "newtitle": "[关于年轻人不肯进厂]",
-    "lastedit": 1725899300,
+    "lastedit": 1725901089,
     "category": "外野",
     "active": true,
     "update": false
@@ -17613,10 +17613,10 @@
     "update": false
   },
   "2198687": {
-    "totalreply": 119,
+    "totalreply": 120,
     "title": "[普陀是不是整个上海最文化荒漠的地方了]",
     "newtitle": "[普陀是不是整个上海最文化荒漠的地方了]",
-    "lastedit": 1725896058,
+    "lastedit": 1725900852,
     "category": "外野",
     "active": true,
     "update": false
@@ -17861,6 +17861,15 @@
     "newtitle": "[pdd官方介入还可以]",
     "lastedit": 1725900251,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2198737": {
+    "totalreply": 41,
+    "title": "[请问DND和万智牌这两个IP现在的现状是什么？]",
+    "newtitle": "[请问DND和万智牌这两个IP现在的现状是什么？]",
+    "lastedit": 1725900974,
+    "category": "游戏区",
     "active": true,
     "update": false
   }

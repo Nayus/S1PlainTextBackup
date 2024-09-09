@@ -12258,3 +12258,11 @@ van：……</blockquote>感觉是你法会写出来的对话<img src="https://s
 
 —— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  洛克萨斯  
+##### 4185#       发表于 2024-9-9 15:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么一看开后宫的好像就克州组安排比较合理？帝国组已经麻了，共和国组看界轨怎么整活
+

@@ -5970,3 +5970,33 @@ fire的立绘全员恶人啊，没一个正眼看人🙃
 
 25时的新单封面本来感觉也挺鬼的，和wsd这个一比瞬间眉清目秀了起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  六道明  
+##### 22729#       发表于 2024-9-9 17:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 22730#       发表于 2024-9-9 17:25
+
+现在就该看哪位成员的粉丝最破防了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 22731#       发表于 2024-9-9 17:26
+
+<img src="https://img.saraba1st.com/forum/202409/09/172550ldo9d993v3aoh5o9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-09-09-17-14-48-14_76eaced432273cd65da1ec13409568ff.jpg</strong> (282.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-9 17:25 上传
+
+实物问题好像比我想象的大……
+

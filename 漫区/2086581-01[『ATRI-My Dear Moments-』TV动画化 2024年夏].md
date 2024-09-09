@@ -58,3 +58,25 @@ ED Card7 by堀口悠紀子
 
 风怒？风怒
 
+
+*****
+
+####  Piano-Forest  
+##### 131#         楼主| 发表于 2024-9-9 22:22
+
+[https://x.com/loveharmonics/status/1832442066938610011](https://x.com/loveharmonics/status/1832442066938610011)
+
+ATRI9話作監と原画で参加させていただきました！ 
+
+ありがとうございました😌
+
+アトリ..........
+
+ ※画像はファンアートです
+<img src="https://p.sda1.dev/19/b6c02d6b34b1019f0639881946563cfa/20240909_221924.jpg" referrerpolicy="no-referrer">">
+
+[https://x.com/Miya_t1307/status/1832443395241078969](https://x.com/Miya_t1307/status/1832443395241078969)
+
+ATRI9話のLOを少しだけお手伝いさせていただきました。ご迷惑をお掛けしてしまいましたが、お仕事の機会をいただきありがとうございました。
+<img src="https://p.sda1.dev/19/73cdd5ccca7634c26df51792885c6d03/20240909_221932.jpg" referrerpolicy="no-referrer">
+

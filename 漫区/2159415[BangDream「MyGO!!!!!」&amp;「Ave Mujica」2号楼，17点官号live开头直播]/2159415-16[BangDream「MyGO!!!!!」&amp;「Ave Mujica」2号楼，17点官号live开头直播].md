@@ -6406,3 +6406,39 @@ P.S. 我比较好奇后篇的film live，说是卡在mygo动画和mujica动画�
 
 后篇6集动画120分钟，匀出live部分也是少20分钟，基本上就是少的mujica那一集的部分了
 
+
+*****
+
+####  Aendst  
+##### 22766#       发表于 2024-9-10 02:35
+
+硬要说的话，爱音和乐奈本来就是各种意义上都离crychic最远的完全无关人士
+
+要加这两个人的戏份，那crychic相关是一定有删减的
+
+故事线也不会因为删减了个别角色的个人剧情内容就变化
+
+如果想要聚焦于爱音和乐奈，那么就没必要去再现灯和爽世关于crychic的内容，也不需要再现她们的所思所想，因为这部分和爱音和乐奈都没有太大关系，是爽世和灯个人线路的内容
+
+*****
+
+####  Aendst  
+##### 22767#       发表于 2024-9-10 02:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66160602&amp;ptid=2159415" target="_blank">NODY 发表于 2024-9-10 02:32</a>
+
+后篇不是爱音和猫视角改回正常视角，所以飞鸟山应该还在，毕竟有素世
+
+但是初祥约会还有祥子去见睦和喵梦 ...</blockquote>
+新画面要花时间的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 22768#       发表于 2024-9-10 02:42
+
+前篇还是断在第七集的话，是不是结尾又会是爽世姐的名场面
+
+这下要喊春日影快两个月了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

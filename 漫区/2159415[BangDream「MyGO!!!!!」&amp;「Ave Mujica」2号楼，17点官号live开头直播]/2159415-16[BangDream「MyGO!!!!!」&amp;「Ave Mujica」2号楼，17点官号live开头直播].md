@@ -6104,3 +6104,13 @@ wsd这是体谅鸡粉免得你们苦等<img src="https://static.saraba1st.com/im
 
 [https://x.com/Kanon_Takao/status/1833158688686969340](https://x.com/Kanon_Takao/status/1833158688686969340)
 
+
+*****
+
+####  星天观测  
+##### 22742#       发表于 2024-9-9 23:19
+
+第一个赶到战场的是，冈田梦以小姐！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+弄生日快乐~
+

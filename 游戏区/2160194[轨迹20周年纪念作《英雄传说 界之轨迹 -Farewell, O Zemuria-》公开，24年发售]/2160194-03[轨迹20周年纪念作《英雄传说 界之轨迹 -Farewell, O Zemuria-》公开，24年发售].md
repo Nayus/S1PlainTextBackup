@@ -12965,3 +12965,22 @@ c博士留了八个表也不写个说明书
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我方越打越多，敌方干部越打越少，搞到次次都是一大群人围剿一个人
 
+
+*****
+
+####  smdzh2  
+##### 4262#       发表于 2024-9-9 23:10
+
+长连载作品正方一直不死人结果就这样了，另一个活例子是柯南<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 4263#       发表于 2024-9-9 23:10
+
+<blockquote>ravend233 发表于 2024-9-9 22:44
+大伙都在不慌不忙地打招呼吃饭游山玩水
+
+</blockquote>
+汉密尔顿可没有，卡特尔说她已经做了半个世纪的研究了。
+

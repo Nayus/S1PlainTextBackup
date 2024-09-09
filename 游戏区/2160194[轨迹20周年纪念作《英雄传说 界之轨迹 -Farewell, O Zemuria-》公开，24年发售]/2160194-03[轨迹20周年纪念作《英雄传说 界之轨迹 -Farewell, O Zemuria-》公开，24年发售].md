@@ -11439,3 +11439,26 @@ van被锁的角色是剑女？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就竹入这个谁主场吹谁的写法，政治真的图一乐，太弱智了
 
+
+*****
+
+####  diectt  
+##### 4100#       发表于 2024-9-9 09:40
+
+兄弟们先上，我在后面顶着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我就等个学妹和剑女到底谁赢谁输的剧透再下手
+
+
+*****
+
+####  ravend233  
+##### 4101#       发表于 2024-9-9 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66151313&amp;ptid=2160194" target="_blank">diectt 发表于 2024-9-9 09:40</a>
+
+兄弟们先上，我在后面顶着
+
+我就等个学妹和剑女到底谁赢谁输的剧透再下手</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怕不是还是继续吊着
+

@@ -473,3 +473,13 @@ boss rush本来就好玩啊，3A水准的本来就不多。这不比在迷宫里
 印象中似乎这些年的刺客信条就类似？
 但为啥就是玩不下去呢<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  anfangzhan  
+##### 50#       发表于 2024-9-10 07:29
+
+重boss轻关卡+单元剧叙事+强调技能循环构筑的动作RPG 
+
+我想到茶杯头，也是美术极具特色，也挺火的，
+

@@ -13052,3 +13052,13 @@ c博士留了八个表也不写个说明书
 大少原本也就贵族派的棋子，宰相的工具。最 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/272.png" referrerpolicy="no-referrer">我不造啊 我最好大少克洛曹3个都翘辫子
 
+
+*****
+
+####  ravend233  
+##### 4270#       发表于 2024-9-10 07:26
+
+大少纯纯有编剧喜欢这个人又给掏了出来重新洗白吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

@@ -12148,3 +12148,18 @@ van和学妹在太空双飞，剑女留在地面，算不算决定性场面</blo
 
 法老控可能确实没想到这么多人对垫脚石这么怜爱<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  andychen  
+##### 4174#       发表于 2024-9-9 14:07
+
+ 本帖最后由 andychen 于 2024-9-9 14:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66153796&amp;ptid=2160194" target="_blank">无动于衷 发表于 2024-9-9 13:06</a>
+黎轨1的结局还不够笑话吗
+
+你法可能只想顺顺当当写个学妹赢赢赢，没成想吃瓜群众对剑女反弹这么大，逼着 ...</blockquote>
+全都怪新人剧本把剑女剧情写太好啦，不过前女友三角热度起来法社肯定乐见的，就我个人来说至少比帝国篇的Galgamr要好多了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+黎一该给梵多留点悬念的。他作为主角在黎一结局后角色塑造太完整没啥大发展是共和国组整体疲软的一大原因
+

@@ -129,3 +129,24 @@
 最っ高の映画ですので、皆様もぜひ！！
 <img src="https://p.sda1.dev/19/8bc86f4196089e989183a02921891b9a/20240906_220641.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 7537#       发表于 2024-9-9 21:50
+
+[https://x.com/kei_watan/status/1832643318586445859](https://x.com/kei_watan/status/1832643318586445859)
+<img src="https://p.sda1.dev/19/f5200508a34383d0a5cf453e62df2bff/20240909_213426.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/kokko_an/status/1832785538878951584](https://x.com/kokko_an/status/1832785538878951584)
+
+「虹ヶ咲学園スクールアイドル同好会 完結編 第一章」アニメから引き続きたくさんお手伝いしてます！大好きな作品なのでいろんな人に見てほしいです！ぜひぜひぜひ！
+<img src="https://p.sda1.dev/19/c11f62aea262daf52e38d3291f0d047e/20240909_213409.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/matatabeat/status/1833115797306400875](https://x.com/matatabeat/status/1833115797306400875)
+
+「虹ヶ咲スクールアイドル同好会 完結編第1章」公開おめでとうござます
+
+ほんのちょろっとお手伝いさせて頂いたので観に行って頂けるとうれしです
+<img src="https://p.sda1.dev/19/9e050f89a67382a2a830747b855deabb/20240909_213323.jpg" referrerpolicy="no-referrer">
+

@@ -6185,3 +6185,17 @@ wsd这是体谅鸡粉免得你们苦等<img src="https://static.saraba1st.com/im
 
 2024-9-10 01:24 上传
 
+
+*****
+
+####  御幸一也  
+##### 22749#       发表于 2024-9-10 01:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66160184&amp;ptid=2159415" target="_blank">NODY 发表于 2024-9-10 01:10</a>
+
+总集篇会把mujica视角的部分去掉
+
+不过也没毛病，毕竟猫+爱音视角，总不能让她俩去围观睦祥私下见面那些剧情 ...</blockquote>
+好耶 go粉夢寐以求的純淨版mygo這不就來了 加大力度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不過立希真是臭底邊，說好的如果刪光avemujica就會有貓和希的戲份呢，貓戲份有著落了，立希：
+

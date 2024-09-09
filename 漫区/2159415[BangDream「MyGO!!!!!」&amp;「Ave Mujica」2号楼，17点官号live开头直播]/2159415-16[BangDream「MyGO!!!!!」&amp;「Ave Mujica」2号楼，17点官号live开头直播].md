@@ -5938,3 +5938,35 @@ fire的立绘全员恶人啊，没一个正眼看人🙃
 
 已確診是鬼圖特典了呢
 
+
+*****
+
+####  skives  
+##### 22725#       发表于 2024-9-9 17:06
+
+挺好的 省钱了 普通版走人
+
+*****
+
+####  Aendst  
+##### 22726#       发表于 2024-9-9 17:11
+
+武士道谷特别丑这件事本来就已经出圈了，用鬼图怎么不是一种广告和热度延续的方法呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还能帮mujica推省钱，实在是太体贴了
+
+*****
+
+####  星天观测  
+##### 22727#       发表于 2024-9-9 17:11
+
+麻了，你不如就用3rd呢？
+
+
+*****
+
+####  skives  
+##### 22728#       发表于 2024-9-9 17:15
+
+25时的新单封面本来感觉也挺鬼的，和wsd这个一比瞬间眉清目秀了起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -12477,3 +12477,26 @@ b站看到一个评论，克洛觉得自己正宫地位受到威胁了，开始�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">游戏里还好，看截图这建模感觉一个个双开门大肩宽一样
 
+
+*****
+
+####  Aeons  
+##### 4210#       发表于 2024-9-9 17:10
+
+草，贴吧那个技能组帖子回复翻倍了
+
+
+*****
+
+####  一步成诗  
+##### 4211#       发表于 2024-9-9 17:14
+
+我在想如果真的后期根据剧情解锁剩下技能，现在闹的这些人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  izayoi39  
+##### 4212#       发表于 2024-9-9 17:14
+
+1st要是fc加sc我还真的会买来玩儿，单fc肯定水漫金山我是玩不下去的
+

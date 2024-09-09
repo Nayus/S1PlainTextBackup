@@ -11742,3 +11742,43 @@ van和学妹在太空双飞，剑女留在地面，算不算决定性场面</blo
 
 蝈蝈还在追我
 
+
+*****
+
+####  ravend233  
+##### 4132#       发表于 2024-9-9 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66152269&amp;ptid=2160194" target="_blank">solasakiye 发表于 2024-9-9 10:57</a>
+
+有一说一，吃了黎2那坨大的，现在除了部分剑女凯子还关心三人问题外，还有多少人关心事务所这群人啊
+
+本来我 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那还是有一小撮黎入坑想看看事务所这帮人故事的，但是不多
+
+*****
+
+####  aimujie  
+##### 4133#       发表于 2024-9-9 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66152307&amp;ptid=2160194" target="_blank">哌啶 发表于 2024-9-9 11:01</a>
+
+太空双飞是吧</blockquote>
+你不要过来啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 4134#       发表于 2024-9-9 11:12
+
+下周是不是什么都没有
+
+*****
+
+####  卢迪克  
+##### 4135#       发表于 2024-9-9 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66152296&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-9 10:59</a>
+
+卖得好有可能，卖不好就出个SC完全复刻卖了拉倒</blockquote>
+空轨最好别卖得好，伊斯卡灭亡历史直接伊苏8，古代未来双视角两作填了完结得了，万一卖得好，你法觉得轨迹又行了，起码再水四座<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

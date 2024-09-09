@@ -2453,3 +2453,27 @@ W2打到一半手柄断电没绷住，赶紧从dock上抄起机器，原来掌�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  maomaoying  
+##### 5184#       发表于 2024-9-9 11:08
+
+<img src="https://img.saraba1st.com/forum/202409/09/110830gzkefqrt6emyywhw.jpg" referrerpolicy="no-referrer">
+
+<strong>1000031180.jpg</strong> (38.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-9 11:08 上传
+
+
+*****
+
+####  KBAC  
+##### 5185#       发表于 2024-9-9 11:15
+
+15金45银450铜<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

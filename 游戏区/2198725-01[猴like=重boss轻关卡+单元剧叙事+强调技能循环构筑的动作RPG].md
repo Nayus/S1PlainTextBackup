@@ -394,3 +394,29 @@
 
 boss rush本来就好玩啊，3A水准的本来就不多。这不比在迷宫里弯弯曲曲跑酷然后被制作人恶意摔死好玩？
 
+
+*****
+
+####  放大镜  
+##### 43#       发表于 2024-9-9 23:24
+
+我就佩服你们这种有福同享的精神，这下仁王终于也有望脱离魂like序列了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  usodakedo  
+##### 44#       发表于 2024-9-9 23:29
+
+太好了，总算有个词代替魂like这个sb词汇了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  usodakedo  
+##### 45#       发表于 2024-9-9 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66159457&amp;ptid=2198725" target="_blank">放大镜 发表于 2024-9-9 23:24</a>
+
+我就佩服你们这种有福同享的精神，这下仁王终于也有望脱离魂like序列了</blockquote>
+哼，想逃？忍者组下一部作品就准备被叫猴like吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

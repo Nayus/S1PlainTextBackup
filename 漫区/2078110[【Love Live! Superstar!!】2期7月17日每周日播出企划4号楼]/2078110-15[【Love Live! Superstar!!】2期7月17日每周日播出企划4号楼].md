@@ -737,3 +737,38 @@ sayu要出两首原创曲
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  llllife  
+##### 21021#       发表于 2024-9-8 22:06
+
+鱼所有歌里最喜欢的是龙约里那首crossing the world，声线也独特，为什么不多出一点这种类型的歌呢
+
+*****
+
+####  starring  
+##### 21022#       发表于 2024-9-8 23:42
+
+鲤鱼在龙约那三首歌甚至没发CD也没上架流媒体，龙约最后发的那张合集CD也没有收录。明明歌姬的三首歌都能单独发了一张CD
+
+*****
+
+####  csolfans  
+##### 21023#       发表于 2024-9-9 15:46
+
+<img src="https://p.sda1.dev/19/2eedf20b8f72b6eaf3deb1d87c91deb0/Image_1725808874550.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  starring  
+##### 21024#       发表于 2024-9-10 06:29
+
+【伊达小百合『1up!』【生日原创歌曲】-哔哩哔哩】 https://b23.tv/58iwfKp
+
+【伊达小百合『ラブソング』【生日原创歌曲】-哔哩哔哩】 https://b23.tv/KQdb7dO
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

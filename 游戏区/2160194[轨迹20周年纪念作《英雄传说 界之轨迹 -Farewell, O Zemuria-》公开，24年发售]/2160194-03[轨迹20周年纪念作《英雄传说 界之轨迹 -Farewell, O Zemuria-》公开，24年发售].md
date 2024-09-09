@@ -12648,3 +12648,44 @@ fc加sc必定要删，感觉难说，这种官网随便改的
 
 杰拉尔身上秘密还挺多的
 
+
+*****
+
+####  一步成诗  
+##### 4230#       发表于 2024-9-9 18:10
+
+本来阿尔玛塔也还行吧，就是死一次又复活再打一次感觉太没活了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 4231#       发表于 2024-9-9 18:13
+
+阿尔玛塔问题是这帮反派太一次性反派了，虽然知道很多事也搞了很多大活，但是动机就是纯纯的反社会颠佬（）撑不起大的剧情
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  洛克萨斯  
+##### 4232#       发表于 2024-9-9 18:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最失败不就是结社半洗白这个设计，搞得每次当沙包都打的不过瘾，明明你赢了反手就是做实验啊测试啊然后瞬移了，然后还搞得反派不够用了，那么多部下来被主角团物理意义干掉的反派少得可怜
+
+*****
+
+####  卢迪克  
+##### 4233#       发表于 2024-9-9 18:16
+
+dg教主什么时候出来
+
+*****
+
+####  ravend233  
+##### 4234#       发表于 2024-9-9 18:17
+
+确实没有可以撑得起剧情的反派了，加上越来越多的老角色占用资源导致重新设计一个反派集团也凑不出资源<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最后机械降神打个什么玩意包饺子拉倒
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

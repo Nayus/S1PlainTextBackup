@@ -12051,3 +12051,23 @@ van和学妹在太空双飞，剑女留在地面，算不算决定性场面</blo
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这周PV能出来吗
 
+
+*****
+
+####  andychen  
+##### 4167#       发表于 2024-9-9 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66152994&amp;ptid=2160194" target="_blank">无动于衷 发表于 2024-9-9 11:50</a>
+支持老范一个人跑路，俩女的千里寻“夫”</blockquote>
+这样写黎一结局就成小丑了
+
+这回主角队除了女主男主都没啥大不了的身世，男主身世可以说是半解决状态了。我感觉最后是女主从男主这毕业，男主继续当草根的结局
+
+*****
+
+####  Aeons  
+##### 4168#       发表于 2024-9-9 12:49
+
+说起来标题是竞拍会，官网那张图吧，竞拍的是老旧导力器？
+竞拍会这种做标题感觉有点太重要了，黑之竞拍会啊
+

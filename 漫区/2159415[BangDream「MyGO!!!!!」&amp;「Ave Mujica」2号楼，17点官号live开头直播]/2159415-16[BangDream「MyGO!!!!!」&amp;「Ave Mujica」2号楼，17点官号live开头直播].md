@@ -5918,3 +5918,23 @@ fire的立绘全员恶人啊，没一个正眼看人🙃
 
 你就当留个好笑的给大伙玩玩吧，指不定过两天就处理了
 
+
+*****
+
+####  adcdqre  
+##### 22723#       发表于 2024-9-9 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66148627&amp;ptid=2159415" target="_blank">鳥栖朝 发表于 2024-09-08 22:36:21</a>
+纯纯的不是蠢就是就是坏</blockquote>禁黑称真有用潜伏到10级妖魔鬼怪都钓出来了，一查一个在外面就是黑子还有套皮绿茶的
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  御幸一也  
+##### 22724#       发表于 2024-9-9 17:04
+
+[https://bushiroad-music.com/musics/brmm-10835/](https://bushiroad-music.com/musics/brmm-10835/)
+
+已確診是鬼圖特典了呢
+

@@ -12602,3 +12602,49 @@ fc加sc必定要删，感觉难说，这种官网随便改的
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  洛克萨斯  
+##### 4225#       发表于 2024-9-9 18:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说这种一大堆角色围剿一个boss到底怎么做才好看，每次看我方一堆人头上冒感叹号都蚌埠住
+
+*****
+
+####  一步成诗  
+##### 4226#       发表于 2024-9-9 18:01
+
+共和国的反派目前最高逼格居然就是恐惧哥，剩下都是什么自己人被控制，面具人，哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 4227#       发表于 2024-9-9 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66156661&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-9-9 18:00</a>
+话说这种一大堆角色围剿一个boss到底怎么做才好看，每次看我方一堆人头上冒感叹号都蚌埠住 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">几十个人群殴一个人怎么都很难做得好看
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  洛克萨斯  
+##### 4228#       发表于 2024-9-9 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66156690&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-9 18:04</a>
+
+几十个人群殴一个人怎么都很难做得好看
+
+—— 来自 鹅球 v3.0.0.82-alpha</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">特别是一大群人围着一个boss然后报菜名的时候，太变态了
+
+*****
+
+####  Aeons  
+##### 4229#       发表于 2024-9-9 18:07
+
+杰拉尔身上秘密还挺多的
+

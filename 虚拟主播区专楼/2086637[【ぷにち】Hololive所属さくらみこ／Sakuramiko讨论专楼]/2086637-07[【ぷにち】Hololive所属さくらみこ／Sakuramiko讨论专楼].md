@@ -8573,3 +8573,22 @@ miko
 
 2024-9-9 16:10 上传
 
+
+*****
+
+####  kaltistyin  
+##### 9596#       发表于 2024-9-9 18:00
+
+gta企划终于要来了吗
+
+—— 来自 vivo V2312A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  kaltistyin  
+##### 9597#       发表于 2024-9-9 21:03
+
+感觉耳膜要爆炸到逐渐适应。。
+
+—— 来自 vivo V2312A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

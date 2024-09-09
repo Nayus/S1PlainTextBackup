@@ -397,3 +397,14 @@ A part修得挺好看的
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  pokemon最爱  
+##### 2154#       发表于 2024-9-9 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66159435&amp;ptid=2162354" target="_blank">最强惠酱 发表于 2024-9-9 23:22</a>
+
+他们来干嘛，看着后辈被打都不帮忙揍动物</blockquote>
+法Q组天Q组出手那还轮得到汪Q组开大吗，怕不是反派干部当场就要被天Q组物理洗白顺便大象被哈酱一个盾净化了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

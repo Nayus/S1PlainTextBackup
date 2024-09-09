@@ -12992,3 +12992,11 @@ c博士留了八个表也不写个说明书
 
 其实是好人太多戏份不够分，随机选几个被心灵控制当反派
 
+
+*****
+
+####  alucardcz  
+##### 4265#       发表于 2024-9-9 23:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">还有坏人吗。 大少算不算闪轨里最终boss外唯一的“坏人” 结果还是洗白白了  破戒与其说是坏人不如说是跟搅x棍
+

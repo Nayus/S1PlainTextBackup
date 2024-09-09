@@ -12515,3 +12515,23 @@ b站看到一个评论，克洛觉得自己正宫地位受到威胁了，开始�
 
 好像哪条采访说暗示可能会有新招式吧，其他地方看到的。
 
+
+*****
+
+####  ravend233  
+##### 4215#       发表于 2024-9-9 17:34
+
+感觉是因为神气之后的有强化技能组所以要少一些
+
+说到底争这个有什么意义呢（）
+
+*****
+
+####  卢迪克  
+##### 4216#       发表于 2024-9-9 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66156183&amp;ptid=2160194" target="_blank">izayoi39 发表于 2024-9-9 17:14</a>
+
+1st要是fc加sc我还真的会买来玩儿，单fc肯定水漫金山我是玩不下去的</blockquote>
+fc没玲还是希望连同sc一起加进1st里的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

@@ -2134,3 +2134,16 @@ http://m.weibo.cn/status/5050982306418937?
 和卡拉OK铁人联动的预告
 <img src="https://p.sda1.dev/19/f5c736165a11baf5856c2505605ea2e2/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lzz  
+##### 209#       发表于 2024-9-9 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66151140&amp;ptid=2144105" target="_blank">ストック 发表于 2024-9-9 09:26</a>
+
+又浮上来了发点六内最近在推上贴的图
+
+给粉丝回信用印的明信片用图</blockquote>
+好看好看
+

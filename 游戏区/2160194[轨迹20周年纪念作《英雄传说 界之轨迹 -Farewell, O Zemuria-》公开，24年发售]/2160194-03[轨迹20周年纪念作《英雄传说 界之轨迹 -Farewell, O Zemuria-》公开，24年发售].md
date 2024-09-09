@@ -11367,3 +11367,30 @@ van被锁的角色是剑女？
 
 唉骂作品不如直接骂法老控，泥潭这点还是挺好的骂法老控没人冲出来无脑护<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ky怪  
+##### 4092#       发表于 2024-9-9 08:58
+
+我反正不会预购，等个剧透偷跑楼看看
+
+
+*****
+
+####  一步成诗  
+##### 4093#       发表于 2024-9-9 09:02
+
+按伊苏10标准算了一下撑死就三万多，虽然不知道算法有没有变就是了，你们先冲我殿后<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 4094#       发表于 2024-9-9 09:03
+
+ 本帖最后由 ravend233 于 2024-9-9 09:04 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">买还是买了，看看有多屎
+
+就今年看FAMI数据统计，单PS平台在日本数据确实不好看，带个NS基本上PS平台也就四五万的样子
+

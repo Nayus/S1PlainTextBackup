@@ -541,3 +541,20 @@ lccb良被削了，三破或能白嫖40狂气</blockquote>
 
 不过个人感觉刚需暴食的E.G.O.本来也不多，道中常用的貌似也就狐雨和金苹果（优先级远不如盲目液袋这些刚需忧郁的）
 
+
+*****
+
+####  Yuzutea  
+##### 871#       发表于 2024-9-10 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66139148&amp;ptid=2120922" target="_blank">salic428 发表于 2024-9-7 19:03</a>
+
+搬一个有意思的讨论，关于目前人格技能的色组
+
+特别奇怪，最多组合的是暴食怠惰忧郁，但我自己下牢的时候经 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在吃暴食的有实战价值的也就箱虫奥辛
+
+其中箱子所有镜牢配队基本都有浮aoe是和液袋竞争，奥现在aoe拘束黑檀二选一有啥用啥，虫大部分人格自己能满足苹果需求，辛镜牢实战几乎不用ego
+
+体感确实不缺吧，除了困牢有的队奥要打狐雨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

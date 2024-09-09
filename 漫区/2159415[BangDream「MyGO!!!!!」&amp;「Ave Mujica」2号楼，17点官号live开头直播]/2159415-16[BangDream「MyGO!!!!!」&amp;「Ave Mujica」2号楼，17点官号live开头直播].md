@@ -6302,3 +6302,74 @@ P.S. 我比较好奇后篇的film live，说是卡在mygo动画和mujica动画�
 
 估计产生交集的剧情也没法硬删吧 都删了soyo岂不是很呆
 
+
+*****
+
+####  PDQ4  
+##### 22757#       发表于 2024-9-10 02:19
+
+个人猜测大概是删了一些ccc相关？共通元素只能想到这个了
+
+毕竟删掉鸡相关还要加些新内容，纯鸡的镜头删完体感也不够30min吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 22758#       发表于 2024-9-10 02:22
+
+ 本帖最后由 NODY 于 2024-9-10 02:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66160556&amp;ptid=2159415" target="_blank">skives 发表于 2024-9-10 02:18</a>
+
+估计产生交集的剧情也没法硬删吧 都删了soyo岂不是很呆</blockquote>
+和c团有关的部分为了前后完整肯定保留了，而且预告有猫唱春日影，应该会有猫视角的c团
+
+删的应该是类似睦祥私下的几次单独见面（咖啡店和别墅），祥子打工找喵梦，最后的live这些
+
+访谈说后面有一小段film live，所以加起来动画的内容目测要删掉40分钟以上，前篇只有猫和爱音视角，大概是把立希素世私下的剧情也删了（7集动画是140分钟，剧场版120分钟，还有一点猫的新戏份）
+
+*****
+
+####  kivz  
+##### 22759#       发表于 2024-9-10 02:24
+
+那母鸡卡也会有总集篇吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+新作剧场版感觉是指望不上了
+
+*****
+
+####  御幸一也  
+##### 22760#       发表于 2024-9-10 02:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66160564&amp;ptid=2159415" target="_blank">NODY 发表于 2024-9-10 02:22</a>
+
+和c团有关的部分为了前后完整肯定保留了，而且预告有猫唱春日影，应该会有猫视角的c团
+
+删的应该是类似睦 ...</blockquote>
+可能也就留個最基本的故事開始和春日影，爽世可能都不用跪了呢<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  前方暴雨预警  
+##### 22761#       发表于 2024-9-10 02:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66160536&amp;ptid=2159415" target="_blank">NODY 发表于 2024-9-10 02:14</a>
+
+之前就讨论过了，至少隔了两个星期到一个月，有人拿日历推过mygo12集的live在六月底，mujica首演在7.24 ...</blockquote>
+所以灯那个笔记本的歌词本的歌词写了2个星期吗？
+
+结合她的单线程设定，感觉有点地狱笑话
+
+*****
+
+####  御幸一也  
+##### 22762#       发表于 2024-9-10 02:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66160574&amp;ptid=2159415" target="_blank">kivz 发表于 2024-9-10 02:24</a>
+
+那母鸡卡也会有总集篇吗
+
+新作剧场版感觉是指望不上了</blockquote>
+皇族有是因為那是皇族，洗腳的請不要幻想<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

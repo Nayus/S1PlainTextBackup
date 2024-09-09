@@ -8480,3 +8480,96 @@ miko
 
 最后一箭击杀末影龙
 
+
+*****
+
+####  holoan  
+##### 9594#         楼主| 发表于 2024-9-9 11:14
+
+ 本帖最后由 holoan 于 2024-9-9 15:50 编辑 
+
+<img src="https://img.saraba1st.com/forum/202409/09/111237yw8232y2ro8a2y23.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="760" zoomfile="https://img.saraba1st.com/forum/202409/09/111237yw8232y2ro8a2y23.png">
+
+<strong>image.png</strong> (44.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-9 11:12 上传
+
+<img src="https://img.saraba1st.com/forum/202409/09/154358uo4jllm1jkxkq4lq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (34.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-9 15:43 上传
+
+很有意思今天凌晨网上突然有人匿名丢了一张图说是某holomem的steam最近玩过游戏列表，首先这张图去掉7大豆其他两个一个是GTA，另一个是FiveM的模块
+
+<img src="https://img.saraba1st.com/forum/202409/09/111341yrnygkbffrr1ks69.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (73.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-9 11:13 上传
+
+突然想起来这不是哪个直播漏出来的图片，是这个发布者自己的steam上显示的其他帐户的游戏历史页面截图，所以现在也没办法直接验证真实性，只能说如果这张图是真的话那就再次坐实了
+
+而且按miko之前直播的说法是“多年以来一直想做的企划总算实现了”
+
+========================
+
+补充，下午又有另一个不同的人发了一个截图，不仅再次印证了之前那个人的图片真实性，这个完整的游戏列表截图直接确认了号主，最近玩过7大豆，新干线0和鬼灭的完全对得上的只有一个人 korone，同时自证了这张图片不是P的
+
+<img src="https://img.saraba1st.com/forum/202409/09/154628gp5fu74qfp55fsqh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (620.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-9 15:46 上传
+
+<img src="https://img.saraba1st.com/forum/202409/09/154713lfu9xuqjxccmz8zo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (49.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-9 15:47 上传
+
+宫姨的steam号怎么这么多人都有
+
+然后就是GTA的测试时间，2小时左右
+
+*****
+
+####  holoan  
+##### 9595#         楼主| 发表于 2024-9-9 16:10
+
+追加更新
+
+<img src="https://img.saraba1st.com/forum/202409/09/161053f9zfgj1uivyodyfj.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="800" zoomfile="https://img.saraba1st.com/forum/202409/09/161053f9zfgj1uivyodyfj.png">
+
+<strong>image.png</strong> (126.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-9 16:10 上传
+
+<img src="https://img.saraba1st.com/forum/202409/09/161056prfbxrg7ap2xg2pa.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (137.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-9 16:10 上传
+
+<img src="https://img.saraba1st.com/forum/202409/09/161033gdltkta55kytazcg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (82.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-9 16:10 上传
+

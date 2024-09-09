@@ -12314,3 +12314,26 @@ b站看到一个评论，克洛觉得自己正宫地位受到威胁了，开始�
 
 居然这么多漏油都支持师姐偷家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 4192#       发表于 2024-9-9 16:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最有节目效果的打法是吧
+
+*****
+
+####  solasakiye  
+##### 4193#       发表于 2024-9-9 16:12
+
+师姐就是黎2变成事务所“员工”才跟着崩坏的，强行拉成普通人水准了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一步成诗  
+##### 4194#       发表于 2024-9-9 16:16
+
+师姐的人气是打出来的，她只要打打打就够了，男人只会影响她拔刀的速度，哦可能也影响不了，全砍了就行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

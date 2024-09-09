@@ -12945,3 +12945,15 @@ dg教主要没死，那只能怀疑老卡吃回扣了
 至于共和国篇的解决末日危机，黎1 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">你这话说的，末日预言创轨时期所有老角色都知道了，哪个急了
 
+
+*****
+
+####  ravend233  
+##### 4260#       发表于 2024-9-9 22:44
+
+大伙都在不慌不忙地打招呼吃饭游山玩水<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+c博士留了八个表也不写个说明书
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

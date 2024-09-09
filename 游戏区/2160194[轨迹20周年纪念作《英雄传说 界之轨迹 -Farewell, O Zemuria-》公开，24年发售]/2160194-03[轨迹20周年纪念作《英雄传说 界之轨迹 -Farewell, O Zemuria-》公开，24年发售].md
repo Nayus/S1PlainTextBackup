@@ -12428,3 +12428,52 @@ b站看到一个评论，克洛觉得自己正宫地位受到威胁了，开始�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在你轨，角色进后宫塑造上限就被卡住了，你法社不给结果的结局就是这个角色很难摆脱男主进行塑造，对角色本身基本是纯纯的负面塑造
 
+
+*****
+
+####  Aeons  
+##### 4205#       发表于 2024-9-9 16:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一张图聊那么久，不过静名要入队大概率是范恩这边啊
+
+*****
+
+####  卢迪克  
+##### 4206#       发表于 2024-9-9 16:48
+
+关联作品晓轨都有居然没有sc
+
+，
+
+<img src="https://img.saraba1st.com/forum/202409/09/164825nntrd1hthv1hfmyy.png" referrerpolicy="no-referrer">
+
+<strong>889.png</strong> (122.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-9 16:48 上传
+
+*****
+
+####  Aeons  
+##### 4207#       发表于 2024-9-9 16:49
+
+克洛怎么新引擎越看越给，好害怕啊
+
+
+*****
+
+####  ravend233  
+##### 4208#       发表于 2024-9-9 16:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这张图确实特别的给
+
+*****
+
+####  Aeons  
+##### 4209#       发表于 2024-9-9 16:51
+
+ 本帖最后由 Aeons 于 2024-9-9 16:53 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">游戏里还好，看截图这建模感觉一个个双开门大肩宽一样
+

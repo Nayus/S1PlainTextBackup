@@ -6265,3 +6265,40 @@ P.S. 我比较好奇后篇的film live，说是卡在mygo动画和mujica动画�
 
 2024-9-10 02:06 上传
 
+
+*****
+
+####  御幸一也  
+##### 22753#       发表于 2024-9-10 02:10
+
+明說了總集篇上下合計240min，然後對比TV版刪了差不多30min有多，總之可以肯定是基本把ave的部分刪得差不多了
+
+那太好了呀，這樣應該就不會出現特典有ave的成員這種鬼故事了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 22754#       发表于 2024-9-10 02:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66160466&amp;ptid=2159415" target="_blank">前方暴雨预警 发表于 2024-9-10 02:05</a>
+
+海希的互动估计是没了，但海铃支援应该还在，毕竟那个场景有爱音。
+
+以及这次是不是能看到无台下镜头的春 ...</blockquote>
+之前就讨论过了，至少隔了两个星期到一个月，有人拿日历推过mygo12集的live在六月底，mujica首演在7.24
+
+*****
+
+####  御幸一也  
+##### 22755#       发表于 2024-9-10 02:16
+
+不過這加的戲份都給貓和愛音真的是非常有現實味，日本人氣最高的兩位<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 22756#       发表于 2024-9-10 02:18
+
+估计产生交集的剧情也没法硬删吧 都删了soyo岂不是很呆
+

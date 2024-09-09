@@ -11978,3 +11978,76 @@ van和学妹在太空双飞，剑女留在地面，算不算决定性场面</blo
 
 就这个事件，帖子一个个的，到底谁在破防，谁急的批爆我不好说。
 
+
+*****
+
+####  TheOccuria  
+##### 4159#       发表于 2024-9-9 11:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大概率是两个女的开放结局，van以后出差带师姐
+
+*****
+
+####  ravend233  
+##### 4160#       发表于 2024-9-9 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66152952&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-9 11:47</a>
+
+19年还在读高中的小登好吧，主要是最新一句太搞笑了。
+
+就这个事件，帖子一个个的，到底谁在破防，谁急的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是串子那确实是急了
+
+而且如果确实带上里爷也抢救不了销量，那就没啥可说的了，虽然目前看起来是大概率的（）
+
+
+*****
+
+####  Aeons  
+##### 4161#       发表于 2024-9-9 11:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png">开玩笑，难道不是玲？云老头官网就是范恩和玲在医院
+
+*****
+
+####  无动于衷  
+##### 4162#       发表于 2024-9-9 11:50
+
+支持老范一个人跑路，俩女的千里寻“夫” <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 4163#       发表于 2024-9-9 11:51
+
+说起来范恩那边不是锁了一个人吗，一般猜是双子妹。
+那已知艾蕾因肯定会加入的，那就是锁着只代表当前章对吧
+
+*****
+
+####  ravend233  
+##### 4164#       发表于 2024-9-9 11:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">答案是黎轨组返场只有师姐，其他人再也没有返场机会（
+
+
+*****
+
+####  ravend233  
+##### 4165#       发表于 2024-9-9 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66153009&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-9 11:51</a>
+
+说起来范恩那边不是锁了一个人吗，一般猜是双子妹。
+
+那已知艾蕾因肯定会加入的，那就是锁着只代表当前章对 ...</blockquote>
+不知道那个锁是什么意思，图也特别糊
+
+
+*****
+
+####  夜漫群星  
+##### 4166#       发表于 2024-9-9 11:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这周PV能出来吗
+

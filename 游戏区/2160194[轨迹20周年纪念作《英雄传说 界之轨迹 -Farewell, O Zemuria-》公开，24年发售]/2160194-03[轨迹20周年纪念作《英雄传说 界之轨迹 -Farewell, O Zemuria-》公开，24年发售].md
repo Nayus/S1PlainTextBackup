@@ -12804,3 +12804,33 @@ dg教主要没死，那只能怀疑老卡吃回扣了
 
 别急，曹和克洛你方唱罢我登场，包享受的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 4247#       发表于 2024-9-9 19:07
+
+ 本帖最后由 卢迪克 于 2024-9-9 19:09 编辑 
+<blockquote>alucardcz 发表于 2024-9-9 18:56
+能不能把曹搞死 不想再看到这帮人了</blockquote>
+
+希望亚洲玩家能好好享受《曹李之轨迹》
+
+不管是《黎之轨迹》还是今后发售的《界之轨迹》，其中很多地方都有亚洲地区的氛围，希望亚洲的玩家能享受我们的游戏。
+
+<img src="https://img.saraba1st.com/forum/202409/09/190940esz9dumtugtwnd3t.jpg" referrerpolicy="no-referrer">
+
+<strong>DB321A2B6C042188C9B2C654C8775C0A.jpg</strong> (116.4 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-9 19:09 上传
+
+*****
+
+####  liwangli1983  
+##### 4248#       发表于 2024-9-9 19:09
+
+这次没有豪华版？
+

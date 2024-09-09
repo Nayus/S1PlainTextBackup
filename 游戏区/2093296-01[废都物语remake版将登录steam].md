@@ -35,3 +35,13 @@
 
 看了一下我也没中，估计不是本地没方法了
 
+
+*****
+
+####  nianiania  
+##### 610#       发表于 2024-9-9 14:49
+
+啊？不会像ff7re那种吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu MEIZU 20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -12115,3 +12115,28 @@ van和学妹在太空双飞，剑女留在地面，算不算决定性场面</blo
 
 2024-9-9 13:04 上传
 
+
+*****
+
+####  无动于衷  
+##### 4171#       发表于 2024-9-9 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66153608&amp;ptid=2160194" target="_blank">andychen 发表于 2024-9-9 12:44</a>
+
+这样写黎一结局就成小丑了
+
+这回主角队除了女主男主都没啥大不了的身世，男主身世可以说是半解决状态了。 ...</blockquote>
+
+黎轨1的结局还不够笑话吗
+
+你法可能只想顺顺当当写个学妹赢赢赢，没成想吃瓜群众对剑女反弹这么大，逼着近藤访谈前后说法都对不上了
+
+同样是写前女友 哪怕学学隔壁虚构推理是怎么搞的也不至于弄成现在这样
+
+*****
+
+####  卢迪克  
+##### 4172#       发表于 2024-9-9 13:08
+
+说起来早雪不是要去法典国交震天雷剑吗，法社真的不让她来客串一下吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

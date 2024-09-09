@@ -420,3 +420,11 @@ boss rush本来就好玩啊，3A水准的本来就不多。这不比在迷宫里
 我就佩服你们这种有福同享的精神，这下仁王终于也有望脱离魂like序列了</blockquote>
 哼，想逃？忍者组下一部作品就准备被叫猴like吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jimclack  
+##### 46#       发表于 2024-9-9 23:43
+
+开创xxlike还挺难得，他需要的是就算我就是纯换皮也有人玩，因为玩的就是这套底层逻辑。猴子还是堆料大于形式，你只有黑猴的形式但是堆不起来料那还是没啥人玩
+

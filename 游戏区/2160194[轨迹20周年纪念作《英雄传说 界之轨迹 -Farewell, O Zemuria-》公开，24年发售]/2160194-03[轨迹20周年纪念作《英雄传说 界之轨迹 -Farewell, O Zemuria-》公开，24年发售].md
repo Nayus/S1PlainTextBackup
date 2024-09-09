@@ -11718,3 +11718,27 @@ VAN本人倒是一部黎轨已经完成了不错的塑造，但是阿龙这个�
 
 本来我为了小棉袄和黎教官还想入这作的，目前放出的消息来看，放弃幻想等出了看看再说吧，这也是轨迹上主机平台之后第一次不预购吧，想当初我为了YS7入了PSP，为了闪轨入了PS3，我是真法老控凯子，黎2是真的伤了我，如果黎教官和小棉袄也崩了，那就不买了。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 4129#       发表于 2024-9-9 10:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卖得好有可能，卖不好就出个SC完全复刻卖了拉倒
+
+*****
+
+####  哌啶  
+##### 4130#       发表于 2024-9-9 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66151797&amp;ptid=2160194" target="_blank">aimujie 发表于 2024-9-9 10:19</a>
+van和学妹在太空双飞，剑女留在地面，算不算决定性场面</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/carton2017/282.png" referrerpolicy="no-referrer">太空双飞是吧
+
+*****
+
+####  ravend233  
+##### 4131#       发表于 2024-9-9 11:02
+
+蝈蝈还在追我
+

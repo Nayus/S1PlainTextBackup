@@ -13013,3 +13013,42 @@ c博士留了八个表也不写个说明书
 
 应该只是破解玩玩而已，所以就是临时加入。
 
+
+*****
+
+####  里恩  
+##### 4267#       发表于 2024-9-10 01:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66159576&amp;ptid=2160194" target="_blank">alucardcz 发表于 2024-9-9 23:39</a>
+
+还有坏人吗。 大少算不算闪轨里最终boss外唯一的“坏人” 结果还是洗白白了  破戒与其说是坏人不如说是跟搅 ...</blockquote>
+大少的洗白最大问题是有什么必要性，对整个布局有什么意义？
+
+大少原本也就贵族派的棋子，宰相的工具。最大恶行灭了七姐，灭就灭了就后面一直如果做反派，那这次也有个强力反派能用。
+
+洗白他图啥呀，铁血之子灭亡后，他和各个势力都没任何羁绊了呀。帝国和他没关联，克州没有，佣兵团没有，游击士没有，结社没有，DG教团没有，共和国的势力也没有，女神教没有，甚至小王子都已经和他没啥关联了。
+
+整个一完全孤立的人，推进剧情需要硬给他安排人，例如39
+
+真搞不懂友军都那么多了，还缺个跟谁都扯不上关系的大少吗？
+
+*****
+
+####  洛克萨斯  
+##### 4268#       发表于 2024-9-10 01:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大少和克洛是真该死，大少算比较成功的洗白，克洛就是失败品了
+
+
+*****
+
+####  alucardcz  
+##### 4269#       发表于 2024-9-10 01:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66160209&amp;ptid=2160194" target="_blank">里恩 发表于 2024-9-10 01:14</a>
+
+大少的洗白最大问题是有什么必要性，对整个布局有什么意义？
+
+大少原本也就贵族派的棋子，宰相的工具。最 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/272.png" referrerpolicy="no-referrer">我不造啊 我最好大少克洛曹3个都翘辫子
+

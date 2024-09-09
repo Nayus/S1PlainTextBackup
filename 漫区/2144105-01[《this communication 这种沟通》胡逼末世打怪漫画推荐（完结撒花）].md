@@ -2106,3 +2106,16 @@ http://m.weibo.cn/status/5050982306418937?
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  redsouris  
+##### 207#       发表于 2024-9-9 08:26
+
+ 本帖最后由 redsouris 于 2024-9-9 08:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66150121&amp;ptid=2144105" target="_blank">TiiTiiLL 发表于 2024-9-9 01:18</a>
+后期男主战斗力确实有点成谜了，有点“只要让身体忽略限制就能变成超人”的感觉
+
+—— 来自 S1Fun ...</blockquote>
+德鲁哈点的PVP专精，对人经验比这群小鬼多多了，他是真下杀手，小鬼并不想杀他
+

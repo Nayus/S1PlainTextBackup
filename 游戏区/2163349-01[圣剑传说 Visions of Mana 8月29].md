@@ -502,3 +502,18 @@ vision就是v呗，五代没问题
 
 今年jrpg太饱和了
 
+
+*****
+
+####  武神吕布  
+##### 274#       发表于 2024-9-9 08:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66150282&amp;ptid=2163349" target="_blank">woodey 发表于 2024-9-9 03:25</a>
+
+其实挺奇怪的，按理说卖相也不差，最近也没什么好的jrpg竞品，怎么这个经典ip会卖成这样的？ ...</blockquote>
+SQUARE时期就是优点缺点特明显，毁誉参半的游戏。
+
+合并成SEX后几乎就只有缺点没啥优点，还有发售第二天就崩到原价几分之一都卖不出去的事情。这IP口碑明显是偏差的。前几年的复刻还算挽回一些口碑。
+
+不做成爆款游戏，这系列就这样了。
+

@@ -6044,3 +6044,11 @@ fire的立绘全员恶人啊，没一个正眼看人🙃
 
 大火还是一起骂wsd吧，别矮子里拔高个了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  穗波殊  
+##### 22737#       发表于 2024-9-9 19:21
+
+wsd我恨你。虽然我不买但看到睦画成这样我好崩溃
+

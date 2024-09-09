@@ -12834,3 +12834,13 @@ dg教主要没死，那只能怀疑老卡吃回扣了
 
 这次没有豪华版？
 
+
+*****
+
+####  夜漫群星  
+##### 4249#       发表于 2024-9-9 19:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">呱，不要过来呀
+
+—— 来自 OnePlus PJD110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

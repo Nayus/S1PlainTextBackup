@@ -12751,3 +12751,24 @@ dg教快点出来搞事吧，我想操作魔弓报仇啊<img src="https://static
 
 dg教主要没死，那只能怀疑老卡吃回扣了
 
+
+*****
+
+####  卢迪克  
+##### 4241#       发表于 2024-9-9 18:47
+
+ 本帖最后由 卢迪克 于 2024-9-9 18:50 编辑 
+
+帝国尚武，共和国有钞能力，接下来东方可能武术之邦吧，毕竟月华流，昆仑流，泰斗流，胧月流，黑神一刀流<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 4242#       发表于 2024-9-9 18:49
+
+共和国篇倒也不是没活，但是为了所谓的阶段性结束搞了一堆一次性反派，而主线一点都不推，而且为了不在黎1,2把几个关键角色的包袱抖了导致后续没东西写而一直在摁藏剧情展开
+
+结果藏到最后还是把剧情砍了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

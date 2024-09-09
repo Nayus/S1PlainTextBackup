@@ -12392,3 +12392,39 @@ b站看到一个评论，克洛觉得自己正宫地位受到威胁了，开始�
 
 跟老任表忠心<img src="https://static.saraba1st.com/image/smiley/face2017/266.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 4201#       发表于 2024-9-9 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66155764&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-9 16:35</a>
+
+所以加入党争是在拉低她的逼格，反效果</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png">不需要竞争，直接把人绑了更加符合她直来直往的性格
+
+*****
+
+####  ravend233  
+##### 4202#       发表于 2024-9-9 16:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">师姐这个角色单纯从角色塑造来说确实不适合凑和党争，拉低逼格了，当个纯纯的打架爱好者挺好的
+
+
+*****
+
+####  一步成诗  
+##### 4203#       发表于 2024-9-9 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66155831&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-9-9 16:41</a>
+
+不需要竞争，直接把人绑了更加符合她直来直往的性格</blockquote>
+绑来打架没问题，绑来谈恋爱就崩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 4204#       发表于 2024-9-9 16:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在你轨，角色进后宫塑造上限就被卡住了，你法社不给结果的结局就是这个角色很难摆脱男主进行塑造，对角色本身基本是纯纯的负面塑造
+

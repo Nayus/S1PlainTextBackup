@@ -6069,3 +6069,38 @@ wsd我恨你。虽然我不买但看到睦画成这样我好崩溃
 
 fire风格像是从美式恐怖游戏里逃出来的
 
+
+*****
+
+####  PDQ4  
+##### 22740#       发表于 2024-9-9 23:02
+
+黑生也是第一首
+不管鬼不鬼，以后迷你专特典可能都是第一首mv了
+wsd这是体谅鸡粉免得你们苦等<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 22741#       发表于 2024-9-9 23:03
+
+奏音生日快樂呀<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202409/09/230334gayc35rca8iaay7j.jpg" referrerpolicy="no-referrer">
+
+<strong>img.jpg</strong> (47.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-9 23:03 上传
+
+<img src="https://img.saraba1st.com/forum/202409/09/230309xzkf3v6sp1fp6e3j.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20240909-150104_1833158688686969340_photo.jpg</strong> (244.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-9 23:03 上传
+
+[https://x.com/Kanon_Takao/status/1833158688686969340](https://x.com/Kanon_Takao/status/1833158688686969340)
+

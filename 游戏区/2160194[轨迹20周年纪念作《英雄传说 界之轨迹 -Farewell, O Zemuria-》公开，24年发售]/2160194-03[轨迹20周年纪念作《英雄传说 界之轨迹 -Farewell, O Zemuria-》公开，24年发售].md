@@ -12214,3 +12214,47 @@ van：我不记得她成了我员工
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  洛克萨斯  
+##### 4180#       发表于 2024-9-9 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66152967&amp;ptid=2160194" target="_blank">TheOccuria 发表于 2024-9-9 11:48</a>
+
+大概率是两个女的开放结局，van以后出差带师姐</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">两个败犬最后被师姐截胡了那就是弹幕最多的玩法了
+
+*****
+
+####  smdzh2  
+##### 4181#       发表于 2024-9-9 15:05
+
+<blockquote>van：？就算你这么说，我也……
+克洛：呵呵，总之万事拜托了，「万事屋」。
+van：……</blockquote>感觉是你法会写出来的对话<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aimujie  
+##### 4182#       发表于 2024-9-9 15:07
+
+这不就是让van告诉师姐别欺负师弟了么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一步成诗  
+##### 4183#       发表于 2024-9-9 15:11
+
+好gay的发言啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  悠悠你心  
+##### 4184#       发表于 2024-9-9 15:15
+
+你法闪4已经在卖了，这么写也不奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

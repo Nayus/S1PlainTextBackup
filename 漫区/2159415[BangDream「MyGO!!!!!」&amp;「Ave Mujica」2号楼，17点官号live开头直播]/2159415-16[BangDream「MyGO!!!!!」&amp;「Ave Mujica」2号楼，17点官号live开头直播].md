@@ -6472,3 +6472,11 @@ P.S. 我比较好奇后篇的film live，说是卡在mygo动画和mujica动画�
 
 倒是说过后篇会给立希和灯加一点独白就是了，不过也不多，而且不能保证会不会是负面效应
 
+
+*****
+
+####  PDQ4  
+##### 22773#       发表于 2024-9-10 02:55
+
+看在鼓子那么努力的份上也不至于吧，我觉得绫奈对立希的恶趣味都可以删了，没一点正面作用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

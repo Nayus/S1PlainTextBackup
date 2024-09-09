@@ -1885,3 +1885,15 @@ steampy。</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  空集  
+##### 175#       发表于 2024-9-10 02:58
+
+ 本帖最后由 空集 于 2024-9-10 02:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62679350&amp;ptid=2153988" target="_blank">Bojenkins 发表于 2023-10-10 21:22</a>
+
+slice&amp;dice的解决方法是一个铸件会同时改掉骰子的好几个面，有增强有削弱，防止你凑出无敌骰子（但还是有 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 草 兄弟 这贴被挖了我才看到你去年回我这个 当然当时也看到了 但还没玩过slice dice就没回 。现在我得说slice dice确实才是最强的投骰子游戏 ，确实可能要说不算缺点的特点就是体验实际更偏向小队RPG要考虑一个综合构筑以及节奏较慢，和大部分爬塔加骰子肉鸽区别不小了
+

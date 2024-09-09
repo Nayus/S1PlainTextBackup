@@ -12355,3 +12355,40 @@ b站看到一个评论，克洛觉得自己正宫地位受到威胁了，开始�
 师姐的人气是打出来的，她只要打打打就够了，男人只会影响她拔刀的速度，哦可能也影响不了，全砍了就行 ...</blockquote>
 人设好看，剧情强，演出帅
 
+
+*****
+
+####  andychen  
+##### 4197#       发表于 2024-9-9 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66155609&amp;ptid=2160194" target="_blank">dddyghr 发表于 2024-9-9 16:20</a>
+虽然楼友都说期待放低但是也在游戏发售之前水了4000多楼了，这就是轨迹凯子吗 我最后一次大期待轨迹已经是 ...</blockquote>
+别人我不知道，这回我的期待是最低的一回
+
+要是这次再翻车以后我就准备云通关了
+
+*****
+
+####  卢迪克  
+##### 4198#       发表于 2024-9-9 16:30
+
+你法今年推特抽选怎么不送ps5了，8w一台太贵了不划算是吧
+
+
+*****
+
+####  一步成诗  
+##### 4199#       发表于 2024-9-9 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66155641&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-9-9 16:24</a>
+
+人设好看，剧情强，演出帅</blockquote>
+所以加入党争是在拉低她的逼格，反效果<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一步成诗  
+##### 4200#       发表于 2024-9-9 16:36
+
+跟老任表忠心<img src="https://static.saraba1st.com/image/smiley/face2017/266.gif" referrerpolicy="no-referrer">
+

@@ -6373,3 +6373,36 @@ P.S. 我比较好奇后篇的film live，说是卡在mygo动画和mujica动画�
 新作剧场版感觉是指望不上了</blockquote>
 皇族有是因為那是皇族，洗腳的請不要幻想<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  前方暴雨预警  
+##### 22763#       发表于 2024-9-10 02:30
+
+但参考1-12动画总集篇的剪辑思路，飞鸟山会不会保留感觉都两说。毕竟从爱音或猫的角度看，soyo破防之后发生了什么不重要，重要的是怎么拉回来。
+
+*****
+
+####  御幸一也  
+##### 22764#       发表于 2024-9-10 02:31
+
+那邊沒有留的必要吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 不如說如果你留那邊，你還能刪哪裡？CCC的雖然要刪一些但又不能全刪了
+
+*****
+
+####  NODY  
+##### 22765#       发表于 2024-9-10 02:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66160577&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-9-10 02:25</a>
+
+可能也就留個最基本的故事開始和春日影，爽世可能都不用跪了呢</blockquote>
+后篇不是爱音和猫视角改回正常视角，所以飞鸟山应该还在，毕竟有素世
+
+但是初祥约会还有祥子去见睦和喵梦这些完全没有go参与的肯定删了
+
+我算了一下
+
+前篇7集动画140分钟，剪成120分钟，少了20分钟应该是把爱音和猫视角以外的剧情删了，比如月之森素世睦对话，睦祥私下见面，还有立希和素世私下见面这些
+
+后篇6集动画120分钟，匀出live部分也是少20分钟，基本上就是少的mujica那一集的部分了
+

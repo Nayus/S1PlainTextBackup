@@ -14,3 +14,12 @@
 
 申请了20号的票希望可以中
 
+
+*****
+
+####  Piano-Forest  
+##### 1944#         楼主| 发表于 2024-9-9 21:37
+
+[https://x.com/camus27315/status/1832385812530634859](https://x.com/camus27315/status/1832385812530634859)
+<img src="https://p.sda1.dev/19/b71b68946df47355ce0e65f13e5c670d/20240909_213404.jpg" referrerpolicy="no-referrer">
+

@@ -6144,3 +6144,21 @@ wsd这是体谅鸡粉免得你们苦等<img src="https://static.saraba1st.com/im
 
 已经见到把迷踪波封面爱猫描改成睦祥的神人了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">都什么人在p这种玩意
 
+
+*****
+
+####  NODY  
+##### 22746#       发表于 2024-9-10 01:10
+
+总集篇会把mujica视角的部分去掉
+
+不过也没毛病，毕竟猫+爱音视角，总不能让她俩去围观睦祥私下见面那些剧情
+
+<img src="https://img.saraba1st.com/forum/202409/10/010853uw7xjw0jgw413i7z.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240910010827.png</strong> (53.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-10 01:08 上传
+

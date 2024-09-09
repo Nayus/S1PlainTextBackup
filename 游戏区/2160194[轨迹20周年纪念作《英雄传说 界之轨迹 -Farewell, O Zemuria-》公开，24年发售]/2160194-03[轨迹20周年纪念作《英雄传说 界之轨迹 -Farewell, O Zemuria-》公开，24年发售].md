@@ -13000,3 +13000,16 @@ c博士留了八个表也不写个说明书
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">还有坏人吗。 大少算不算闪轨里最终boss外唯一的“坏人” 结果还是洗白白了  破戒与其说是坏人不如说是跟搅x棍
 
+
+*****
+
+####  里恩  
+##### 4266#       发表于 2024-9-10 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66159235&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-9-9 22:55</a>
+
+我方越打越多，敌方干部越打越少，搞到次次都是一大群人围剿一个人</blockquote>
+我看到黄金蝶也加入的时候真是傻了，都想说给对面留点人吧！
+
+应该只是破解玩玩而已，所以就是临时加入。
+

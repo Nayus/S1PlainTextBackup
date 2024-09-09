@@ -12920,3 +12920,28 @@ dg教主要没死，那只能怀疑老卡吃回扣了
 
 现在就呵呵了，很难想象在写黎1的时候有没有考虑后续怎么发展，攸关世界命运的重要道具在剧情推动的同时整了无数个烂活<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  andychen  
+##### 4258#       发表于 2024-9-9 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66156929&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-9 18:32</a>
+场外的话就是帝国篇早期有安排。
+
+场内的话，帝国反派一看就是宰相，而共和国篇，早在闪四就定了，对抗的是 ...</blockquote>
+宰相阁下在游戏内的存在感是很强的，闪二闪三都是扮演的结局Boss角色
+
+至于共和国篇的解决末日危机，黎1提完以后就没人关心了。现在创世收齐了也没引发出什么大事件，120x年的预言都被拖到还剩最后几个月了，我看主角这帮人既没头绪也不着急<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 4259#       发表于 2024-9-9 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66158714&amp;ptid=2160194" target="_blank">andychen 发表于 2024-9-9 22:01</a>
+宰相阁下在游戏内的存在感是很强的，闪二闪三都是扮演的结局Boss角色
+
+至于共和国篇的解决末日危机，黎1 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">你这话说的，末日预言创轨时期所有老角色都知道了，哪个急了
+

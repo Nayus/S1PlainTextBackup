@@ -11462,3 +11462,51 @@ van被锁的角色是剑女？
 我就等个学妹和剑女到底谁赢谁输的剧透再下手</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怕不是还是继续吊着
 
+
+*****
+
+####  diectt  
+##### 4102#       发表于 2024-9-9 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66151377&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-9 09:46</a>
+
+怕不是还是继续吊着</blockquote>
+楼里不是有韩媒的采访说是这次会明确一个嘛，但我猜会不会是学妹原地飞升，只剩剑女，一个在心里一个在身边<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 4103#       发表于 2024-9-9 09:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么不能双手开花
+
+
+*****
+
+####  diectt  
+##### 4104#       发表于 2024-9-9 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66151429&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-9-9 09:50</a>
+
+为什么不能双手开花</blockquote><blockquote>Q:能否在本作中看到共和國三角戀最後的結局?
+
+A:這是我們收到最多的問題之一，至少有一個角色會有確定的結局
+
+至於會跟誰在一起，悲傷或是幸福，交給玩家發售後自行體會</blockquote>
+
+那就是社长又口胡了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hayate0079  
+##### 4105#       发表于 2024-9-9 09:56
+
+说实话前面的分支情报差点把我PTSD吓出来（疑似回溯那个），不过该买还是得买
+
+*****
+
+####  aimujie  
+##### 4106#       发表于 2024-9-9 09:57
+
+a9的采访里说三人关系不会有明确结果，但是会有决定性场面，不如跟着师姐跑了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

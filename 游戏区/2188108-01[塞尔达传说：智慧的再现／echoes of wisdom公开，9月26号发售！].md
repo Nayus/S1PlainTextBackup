@@ -1073,3 +1073,13 @@ PDD上的是香港直邮，预计5-7七天到手，等得有点久
 【智慧的再現】預告3分析 !在寂靜的世界，再現的回聲是真還是假?
 [https://www.bilibili.com/video/BV16cp8ePEdp/](https://www.bilibili.com/video/BV16cp8ePEdp/)
 
+
+*****
+
+####  kuarwbwe  
+##### 556#       发表于 2024-9-9 10:00
+
+【塞尔达传说 智慧的再现 gs试玩 Ten Minutes Of The Legend of Zelda Echoes of Wisdom Gameplay】 [https://www.bilibili.com/video/B ... 91965e0ae9b216eca99](https://www.bilibili.com/video/BV1zApTeeEt5/?share_source=copy_web&amp;vd_source=f840fa9c423b191965e0ae9b216eca99)
+
+gs的无解说试玩，我没看完，估计有不少内容剧透，在意游戏体验的慎看。
+

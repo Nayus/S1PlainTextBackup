@@ -462,3 +462,14 @@ boss rush本来就好玩啊，3A水准的本来就不多。这不比在迷宫里
 
 —— 来自 realme RMX3820, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  终将不惑  
+##### 49#       发表于 2024-9-10 07:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66160789&amp;ptid=2198725" target="_blank">jojohunter 发表于 2024-9-10 06:11</a>
+其实我个人是一早就觉得觉得大部分玩家其实不怎么喜欢复杂箱庭和掉魂设计，黑魂1可遇不可求。大部分人只想 ...</blockquote>
+印象中似乎这些年的刺客信条就类似？
+但为啥就是玩不下去呢<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+

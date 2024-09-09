@@ -6052,3 +6052,20 @@ fire的立绘全员恶人啊，没一个正眼看人🙃
 
 wsd我恨你。虽然我不买但看到睦画成这样我好崩溃
 
+
+*****
+
+####  星天观测  
+##### 22738#       发表于 2024-9-9 20:41
+
+这次是不是也可以反推出，如果以后还有类似的组曲，第一首歌的立绘（鬼图）就是最后的特典<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  前方暴雨预警  
+##### 22739#       发表于 2024-9-9 20:44
+
+初华好歹像个人……但感觉更像死人<img src="https://static.saraba1st.com/image/smiley/face/40.gif" referrerpolicy="no-referrer">
+
+fire风格像是从美式恐怖游戏里逃出来的
+

@@ -6199,3 +6199,69 @@ wsd这是体谅鸡粉免得你们苦等<img src="https://static.saraba1st.com/im
 好耶 go粉夢寐以求的純淨版mygo這不就來了 加大力度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 不過立希真是臭底邊，說好的如果刪光avemujica就會有貓和希的戲份呢，貓戲份有著落了，立希：
 
+
+*****
+
+####  PDQ4  
+##### 22750#       发表于 2024-9-10 02:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66160184&amp;ptid=2159415" target="_blank">NODY 发表于 2024-9-10 01:10</a>
+
+总集篇会把mujica视角的部分去掉
+
+不过也没毛病，毕竟猫+爱音视角，总不能让她俩去围观睦祥私下见面那些剧情 ...</blockquote>
+意料之内吧，总集篇毕竟都砍掉了
+
+剧场版应该就是一个精修拓展版总集篇
+
+不过还会专注于爱音视角我是没想到的，意思是爱音这边也会有新画面吗<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+*****
+
+####  前方暴雨预警  
+##### 22751#       发表于 2024-9-10 02:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66160184&amp;ptid=2159415" target="_blank">NODY 发表于 2024-9-10 01:10</a>
+
+总集篇会把mujica视角的部分去掉
+
+不过也没毛病，毕竟猫+爱音视角，总不能让她俩去围观睦祥私下见面那些剧情 ...</blockquote>
+海希的互动估计是没了，但海铃支援应该还在，毕竟那个场景有爱音。
+
+以及这次是不是能看到无台下镜头的春日影然后直接接soyo破防<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
+P.S. 我比较好奇后篇的film live，说是卡在mygo动画和mujica动画的时间线之间，而之前柿本说过mujica动画是接在13集之后，也就是说从mygo 12集的live到mujica首演，时间跨度比想象的长啊
+
+*****
+
+####  御幸一也  
+##### 22752#       发表于 2024-9-10 02:06
+
+原來是今天發售的animedia，最近沒有ave情報都沒蹲雜誌了<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer"> 
+
+光速購入
+
+<img src="https://img.saraba1st.com/forum/202409/10/020617ak1u6aia60aa61i2.jpg" referrerpolicy="no-referrer">
+
+<strong>13.jpg</strong> (745.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-10 02:06 上传
+
+<img src="https://img.saraba1st.com/forum/202409/10/020621rax8fg8ewa4al8al.jpg" referrerpolicy="no-referrer">
+
+<strong>66.jpg</strong> (980.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-10 02:06 上传
+
+<img src="https://img.saraba1st.com/forum/202409/10/020623vavyqq8jp9n8y955.jpg" referrerpolicy="no-referrer">
+
+<strong>67.jpg</strong> (813.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-10 02:06 上传
+

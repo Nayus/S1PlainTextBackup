@@ -12196,3 +12196,21 @@ van：我不记得她成了我员工
 
 为啥说得好像克洛认识她一样，又要马后炮其实克洛早就认识师姐了吗
 
+
+*****
+
+####  ravend233  
+##### 4178#       发表于 2024-9-9 15:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这说法克洛应该是不认识，让师姐别去找里爷麻烦吗
+
+*****
+
+####  古畑任三郎2015  
+##### 4179#       发表于 2024-9-9 15:03
+
+如果苦劳的下一句是“不要再欺负我家牢黎了”
+那就很符合我对窝法的想象了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

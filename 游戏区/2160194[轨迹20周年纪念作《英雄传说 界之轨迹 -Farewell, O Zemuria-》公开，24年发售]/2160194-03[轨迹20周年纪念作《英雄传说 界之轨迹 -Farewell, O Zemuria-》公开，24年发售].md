@@ -12844,3 +12844,20 @@ dg教主要没死，那只能怀疑老卡吃回扣了
 
 —— 来自 OnePlus PJD110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  ravend233  
+##### 4250#       发表于 2024-9-9 19:28
+
+爱曹，信曹，等曹<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  aimujie  
+##### 4251#       发表于 2024-9-9 19:32
+
+漏油真是太扭曲了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

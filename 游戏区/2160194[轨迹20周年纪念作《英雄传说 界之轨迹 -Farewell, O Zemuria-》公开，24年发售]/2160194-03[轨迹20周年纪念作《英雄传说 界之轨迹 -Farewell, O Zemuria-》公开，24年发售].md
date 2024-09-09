@@ -11639,3 +11639,82 @@ VAN本人倒是一部黎轨已经完成了不错的塑造，但是阿龙这个�
 
 8个常驻在黎1后期就已经有各种复读机和空气人了
 
+
+*****
+
+####  Kojimaru  
+##### 4120#       发表于 2024-9-9 10:48
+
+黎轨2的loop确实让我惊讶于我法的惊世智慧，be1甲出场，be2乙出场，ge甲乙丙一起出场干飞对手，结束大家一起包饺子去庭院报道<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">，这么点剧情能把这么多角色塞进来，秒杀闪轨没有那个必要。
+
+
+*****
+
+####  无动于衷  
+##### 4121#       发表于 2024-9-9 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66152180&amp;ptid=2160194" target="_blank">Kojimaru 发表于 2024-9-9 10:48</a>
+
+黎轨2的loop确实让我惊讶于我法的惊世智慧，be1甲出场，be2乙出场，ge甲乙丙一起出场干飞对手，结束大家一 ...</blockquote>
+无非就是告诉吃瓜群众，你法要写共和国内战要怎么写，要写黑月要怎么写，要写八点档肥皂剧要怎么写，最后一起给扬了，突出一个逗你玩
+
+*****
+
+####  smdzh2  
+##### 4122#       发表于 2024-9-9 10:52
+
+两个都发好人卡的可能性很大<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一步成诗  
+##### 4123#       发表于 2024-9-9 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66152158&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-9 10:47</a>
+
+你法文案基本上能保住队内角色互动的人数就是4个固定角色加1-2个章节临时角色，黎1体验最好的章节也是第二 ...</blockquote>
+可能就是单纯想一人一章入队主场，完全没想后续<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宛若青空  
+##### 4124#       发表于 2024-9-9 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66151776&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-9 10:18</a>
+
+说起来静名不知道入不入队，什么时候入队</blockquote>
+会入，至少在庭院里有
+
+
+*****
+
+####  Markorca  
+##### 4125#       发表于 2024-9-9 10:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">其实个人特别不喜欢零碧轨开始的据点式写法，可能PSP零碧轨的成功导致这个系列后面一直延续这个形式的故事结构，每章结束最后基本都能回老家，不仅失去了空轨时期公路旅行的乐趣，还限制了剧情展开的可能性，时间跨度基本在两天之内，还要用一天来交代下背景，剩下多大的事都能在一天内解决了，事件紧张感陡然下降，闪轨四作这个问题尤其严重，创轨换了个形式才算跨过了这个问题（指据点在庭院，结果黎轨又回到了原点。另外黎轨开头好不容易洗牌成员开局就两个人，结果还是路径依赖固定队友越加越多，某些角色个人剧情模板到看个开头就把底裤都看穿了还是得留在队伍里，又没啥新手法来处理这些过剩的队友，尴尬疯了。
+
+*****
+
+####  出言不迅  
+##### 4126#       发表于 2024-9-9 10:56
+
+空轨重置后面会不会学其他家来个重启，慢慢潜移默化改剧情，改设定
+
+*****
+
+####  Aeons  
+##### 4127#       发表于 2024-9-9 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66152219&amp;ptid=2160194" target="_blank">宛若青空 发表于 2024-9-9 10:53</a>
+会入，至少在庭院里有</blockquote>
+当然是说主线
+
+*****
+
+####  solasakiye  
+##### 4128#       发表于 2024-9-9 10:57
+
+有一说一，吃了黎2那坨大的，现在除了部分剑女凯子还关心三人问题外，还有多少人关心事务所这群人啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+本来我为了小棉袄和黎教官还想入这作的，目前放出的消息来看，放弃幻想等出了看看再说吧，这也是轨迹上主机平台之后第一次不预购吧，想当初我为了YS7入了PSP，为了闪轨入了PS3，我是真法老控凯子，黎2是真的伤了我，如果黎教官和小棉袄也崩了，那就不买了。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

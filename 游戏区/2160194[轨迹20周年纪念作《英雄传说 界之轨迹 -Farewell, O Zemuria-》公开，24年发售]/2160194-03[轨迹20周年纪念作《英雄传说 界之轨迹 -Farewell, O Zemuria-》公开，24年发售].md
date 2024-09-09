@@ -11837,3 +11837,68 @@ van和学妹在太空双飞，剑女留在地面，算不算决定性场面</blo
 
 法老控现在除了做游戏，就指望着卖版权收钱了。前几年蒸蒸日上看财报就是靠旧作游戏移植，卖海外手游版权和联动赚的。精神股东居然觉得轨迹会跟伊苏一个展开，股东看了都直呼商业天才<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 4142#       发表于 2024-9-9 11:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是，授权里面有相当一部分是海外代理版本，别每次说授权收入高都是垃圾周边和各种授权垃圾游戏，不算新作的海外代理版
+
+*****
+
+####  Aeons  
+##### 4143#       发表于 2024-9-9 11:29
+
+为什么不是卢尼有事
+
+*****
+
+####  keiyoku  
+##### 4144#       发表于 2024-9-9 11:29
+
+从近藤的采访+放出op来看，盲猜一手学妹事务所天台夜下表白被拒绝了，但从角色关系性上去了，要是再捏个牺牲剧本简直就是明输暗赢啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+要是那个新魔装鬼也是她我都不知道这白学烂活有什么看头了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一步成诗  
+##### 4145#       发表于 2024-9-9 11:30
+
+所以我们眼镜哥可以进入金色魔装鬼候选人列表了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ravend233  
+##### 4146#       发表于 2024-9-9 11:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">金凯德大概率跳反吧，不然我不知道这个角色有什么用
+
+*****
+
+####  Oshino  
+##### 4147#       发表于 2024-9-9 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66152707&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-9 11:29</a>
+
+不是，授权里面有相当一部分是海外代理版本，别每次说授权收入高都是垃圾周边和各种授权垃圾游戏，不算新作 ...</blockquote>
+哪个新作卖不出海外代理版，东京迷城吗
+
+
+*****
+
+####  一步成诗  
+##### 4148#       发表于 2024-9-9 11:34
+
+问题是牺牲剧本是真的牺牲吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一夜秋风袭锦城  
+##### 4149#       发表于 2024-9-9 11:37
+
+金凯德立场跟着总统走，共和国版稻草人罢了
+
+—— 来自 Xiaomi 2210132C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

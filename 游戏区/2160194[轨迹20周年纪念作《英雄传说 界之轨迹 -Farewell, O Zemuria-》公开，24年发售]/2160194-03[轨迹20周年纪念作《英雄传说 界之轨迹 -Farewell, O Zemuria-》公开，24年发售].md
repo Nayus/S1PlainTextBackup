@@ -12071,3 +12071,47 @@ van和学妹在太空双飞，剑女留在地面，算不算决定性场面</blo
 说起来标题是竞拍会，官网那张图吧，竞拍的是老旧导力器？
 竞拍会这种做标题感觉有点太重要了，黑之竞拍会啊
 
+
+*****
+
+####  卢迪克  
+##### 4169#       发表于 2024-9-9 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66153661&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-9 12:49</a>
+
+说起来标题是竞拍会，官网那张图吧，竞拍的是老旧导力器？
+
+竞拍会这种做标题感觉有点太重要了，黑之竞拍会 ...</blockquote>
+应该是这个观测器吧
+
+493d9186e950352ab9c06d2a1543fbf2b3118bbb.jpg
+(221.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-9 12:56 上传
+
+<img src="https://img.saraba1st.com/forum/202409/09/125622ffddkyhgfrh50fkf.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aeons  
+##### 4170#       发表于 2024-9-9 13:02
+
+ 本帖最后由 Aeons 于 2024-9-9 13:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66153720&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-9 12:56</a>
+
+应该是这个观测器吧</blockquote>
+观测器说的是创世
+
+我说是不是这个，因为这个要么是竞拍要么是看表演。
+
+<img src="https://img.saraba1st.com/forum/202409/09/130400odigu0nnbssberbs.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>risette_02.webp</strong> (103.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-9 13:04 上传
+

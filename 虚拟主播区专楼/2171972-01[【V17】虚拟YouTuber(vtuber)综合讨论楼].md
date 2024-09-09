@@ -3177,3 +3177,17 @@ dc的备注是老下面メモ这一栏，最上面的是群组内名字，只有
 
 今年还有歌谣祭啊，我还以为这企划黄了
 
+
+*****
+
+####  alcoholic1000  
+##### 723#       发表于 2024-9-9 20:13
+
+<img src="https://img.saraba1st.com/forum/202409/09/201206w5v54p193dqlqid5.png" referrerpolicy="no-referrer">
+
+<strong>視聴者にも凸してくれ.png</strong> (810.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-9 20:12 上传
+

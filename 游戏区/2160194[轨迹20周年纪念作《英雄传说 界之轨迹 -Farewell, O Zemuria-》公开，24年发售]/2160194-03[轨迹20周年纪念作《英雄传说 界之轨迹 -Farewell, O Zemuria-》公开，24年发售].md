@@ -11528,3 +11528,48 @@ a9的采访里说三人关系不会有明确结果，但是会有决定性场面
 
 众所周知只有告白了才能拒绝，那按目前的情报来看结果很明显了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 4109#       发表于 2024-9-9 10:18
+
+说起来静名不知道入不入队，什么时候入队
+
+*****
+
+####  aimujie  
+##### 4110#       发表于 2024-9-9 10:19
+
+van和学妹在太空双飞，剑女留在地面，算不算决定性场面<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Esoterica  
+##### 4111#       发表于 2024-9-9 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66151415&amp;ptid=2160194" target="_blank">diectt 发表于 2024-9-9 09:49</a>
+
+楼里不是有韩媒的采访说是这次会明确一个嘛，但我猜会不会是学妹原地飞升，只剩剑女，一个在心里一个在身 ...</blockquote>
+Bro，宁这学妹是飞升去哪儿啊，斯特拉斯堡吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  无动于衷  
+##### 4112#       发表于 2024-9-9 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66151228&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-9-9 09:34</a>
+
+赔款把自己赔废的帝国...........几年前一国之力打西大陆全部，几年后对手靠赔款成了西大陆最强了 ...</blockquote>
+这不是必然么，7班全员圣母，奥瓜忙着到处擦屁股，能干实事的大少在帝国社会性死亡
+
+没有天降猛人，帝国还能指望谁
+
+*****
+
+####  Aeons  
+##### 4113#       发表于 2024-9-9 10:26
+
+你觉得这个有决定性，说明你觉得这就已经能得出结果了，显然近藤说是没有得出结果的。
+

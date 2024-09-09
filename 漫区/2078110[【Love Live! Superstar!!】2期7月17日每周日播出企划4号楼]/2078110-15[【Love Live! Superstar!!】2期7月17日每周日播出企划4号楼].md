@@ -727,3 +727,13 @@ sayu要出两首原创曲
 
 鲤鱼在龙约那三首歌甚至没发CD也没上架流媒体，龙约最后发的那张合集CD也没有收录。明明歌姬的三首歌都能单独发了一张CD
 
+
+*****
+
+####  csolfans  
+##### 21020#       发表于 2024-9-9 15:46
+
+<img src="https://p.sda1.dev/19/2eedf20b8f72b6eaf3deb1d87c91deb0/Image_1725808874550.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

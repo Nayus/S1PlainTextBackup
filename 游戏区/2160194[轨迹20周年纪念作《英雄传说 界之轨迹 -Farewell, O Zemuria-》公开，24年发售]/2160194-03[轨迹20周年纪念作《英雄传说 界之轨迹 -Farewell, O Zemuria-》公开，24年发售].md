@@ -13322,3 +13322,15 @@ c博士留了八个表也不写个说明书
 
 菲莉不是说了嘛，他就是有名的灰之骑士
 
+
+*****
+
+####  卢迪克  
+##### 4298#       发表于 2024-9-10 10:40
+
+ 本帖最后由 卢迪克 于 2024-9-10 10:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66162164&amp;ptid=2160194" target="_blank">Archer长羽 发表于 2024-9-10 10:13</a>
+
+范还好，感觉应该给菲莉安排一个听完黎恩自我介绍后，“震惊！原来他就是那个xxx”的桥段才够味。这样的第 ...</blockquote>
+不如黎1菲莉的吹法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><blockquote>莫非是.........传说中那个东北的.........</blockquote>
+

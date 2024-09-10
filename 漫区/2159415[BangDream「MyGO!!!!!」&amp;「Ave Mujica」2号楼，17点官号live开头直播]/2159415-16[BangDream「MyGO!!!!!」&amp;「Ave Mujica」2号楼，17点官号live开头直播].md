@@ -6542,3 +6542,26 @@ IMG_5524(20240910-102846).PNG
 
 <img src="https://img.saraba1st.com/forum/202409/10/103437uuankm8rbbwcf8rm.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 22779#       发表于 2024-9-10 10:39
+
+<img src="https://img.saraba1st.com/forum/202409/10/103917l8hx4jmoaz8xn43n.png" referrerpolicy="no-referrer">
+
+<strong>无标题.png</strong> (86.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-10 10:39 上传
+
+*****
+
+####  星天观测  
+##### 22780#       发表于 2024-9-10 10:41
+
+青木也来了，最早备战合同live的人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+卖母鸡这个叫法有点难绷
+

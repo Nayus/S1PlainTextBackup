@@ -387,3 +387,23 @@ PS6至少都26-27年了，2Tflops是不是太低了。8gen3都4T了
 
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  clyde-wang  
+##### 43#       发表于 2024-9-10 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66168440&amp;ptid=2198842" target="_blank">oskneo 发表于 2024-9-10 21:35</a>
+可参考当初psv买psp数字版。
+在psp装下游戏umd下，可以优惠价格，500到1500日元买该游戏数字版</blockquote>
+那其实就是会出现我说的，买了游戏的人说我为什么低人一等？数字版的可以直接玩，实体版的要花钱才能玩？当初买的时候（首发）价格是一样的啊
+
+*****
+
+####  神道设教  
+##### 44#       发表于 2024-9-10 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66167559&amp;ptid=2198842" target="_blank">startraveller 发表于 2024-9-10 19:55</a>
+PS6至少都26-27年了，2Tflops是不是太低了。8gen3都4T了</blockquote>
+话说手机GPU单精度浮点性能你们都是哪里看的啊？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

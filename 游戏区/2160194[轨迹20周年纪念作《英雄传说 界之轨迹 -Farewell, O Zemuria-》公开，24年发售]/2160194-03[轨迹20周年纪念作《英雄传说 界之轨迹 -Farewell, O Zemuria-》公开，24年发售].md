@@ -13182,3 +13182,11 @@ c博士留了八个表也不写个说明书
 
 空0B的时候结社还是坏比都知道最后要打结社，闪轨知道要打宰相，到了黎轨结社洗白能打的反派都没了，只能把教团再拉起来轮，总不能最后总统夹克一扔：我是大陆八大拳雄之一。说真的把曹李当BOSS算了，虽然low穿地心但起码能让玩家爽爽，不然黎轨反派真的无人可用了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hayate0079  
+##### 4282#       发表于 2024-9-10 09:25
+
+期待法老控写好政治，不如期待下小故事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

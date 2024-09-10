@@ -6680,3 +6680,21 @@ IMG_5524(20240910-102846).PNG
 
 羊唱得有种随时要绷不住的感觉
 
+
+*****
+
+####  cherryjia12  
+##### 22793#       发表于 2024-9-10 13:38
+
+ 本帖最后由 cherryjia12 于 2024-9-10 13:40 编辑 
+
+说实话，我不看还以为是ai<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+又听了一遍，感觉大锅是编曲
+
+*****
+
+####  ytttsuuuba  
+##### 22794#       发表于 2024-9-10 13:40
+
+像哭着唱完的，开头就没上的来气。
+

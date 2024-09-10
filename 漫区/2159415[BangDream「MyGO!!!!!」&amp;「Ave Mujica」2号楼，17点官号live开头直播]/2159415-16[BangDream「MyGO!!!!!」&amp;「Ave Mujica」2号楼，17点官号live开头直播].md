@@ -7127,3 +7127,45 @@ GO批太多了，抢不到票<img src="https://static.saraba1st.com/image/smiley
 
 还好喊了个兄弟帮我抢抢到了，自己刚进去秒没<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  秋雨灰灰  
+##### 22844#       发表于 2024-9-10 18:27
+
+携程点了直接排队，等了几秒去猫眼也没了，要是直接猫眼可能有戏<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">考虑一下牛吧
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  rexzhanghao  
+##### 22845#       发表于 2024-9-10 18:28
+
+预售抢票人数63691+5694，这个就算开梅奔甚至上限人数更多的体育馆都抢不动吧，可以算二次元潮流单品了，不过这样看鸡要是下次来华单独开LIVE也是很难拿票了。
+
+*****
+
+####  六道明  
+##### 22846#       发表于 2024-9-10 18:30
+
+这翻唱🐏真的尽力了，乐队还是要有键盘啊
+
+*****
+
+####  CyDiablo  
+##### 22847#       发表于 2024-9-10 18:30
+
+抢到了抢到了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">可以见coco小羊青木李世林蜜柑了
+该买uo订车票订酒店了，只能说猫眼比票星球那个司马app强无数倍<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 22848#       发表于 2024-9-10 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66166943&amp;ptid=2159415" target="_blank">rexzhanghao 发表于 2024-9-10 18:28</a>
+
+预售抢票人数63691+5694，这个就算开梅奔甚至上限人数更多的体育馆都抢不动吧，可以算二次元潮流单品了，不 ...</blockquote>
+实际应该没有这么多，很多人是喊了五六个朋友或者代抢的
+

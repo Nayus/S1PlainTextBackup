@@ -630,3 +630,28 @@ boss rush本来就好玩啊，3A水准的本来就不多。这不比在迷宫里
 
 —— 来自 nubia NX729J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  TiiTiiLL  
+##### 64#       发表于 2024-9-10 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66161510&amp;ptid=2198725" target="_blank">Hidewhite 发表于 2024-9-10 09:15</a>
+
+概念就是概念，只是mmo里用的多罢了。单机又不是没有一排技能靠技能组合打的。叫技能循环是要技能组成一 ...</blockquote>
+问题是黑猴里确实可以有达成循环减少空窗期的bd啊
+
+而且你的问题不是为什么黑猴里的连击叫循环法环的不叫吗？我只能说肯定不是因为法环就一个战技而已，法环切武器也可以换战技啊，问题是可以一直放就构不成循环这个概念
+
+
+*****
+
+####  zxdrtyhn  
+##### 65#       发表于 2024-9-10 10:34
+
+其实我觉得最大的改进是流程节点化，大的方面总流程分为6章，小的方面每一章boss又塞的足够多，boss与boss之间所需要的时间不是太多，大可以一天一个boss推进流程，某种方面算是贴合现在快餐化的需求。
+
+除了浮屠界这种重关卡的地图<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

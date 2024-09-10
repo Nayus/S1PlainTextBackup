@@ -6523,3 +6523,22 @@ P.S. 我比较好奇后篇的film live，说是卡在mygo动画和mujica动画�
 
 2024-9-10 09:57 上传
 
+
+*****
+
+####  星天观测  
+##### 22778#       发表于 2024-9-10 10:34
+
+第二位前来的是……佐佐木李子小姐！
+
+你们除了祝福能不能发点照片啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+IMG_5524(20240910-102846).PNG
+(503.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-10 10:34 上传
+
+<img src="https://img.saraba1st.com/forum/202409/10/103437uuankm8rbbwcf8rm.png" referrerpolicy="no-referrer">
+

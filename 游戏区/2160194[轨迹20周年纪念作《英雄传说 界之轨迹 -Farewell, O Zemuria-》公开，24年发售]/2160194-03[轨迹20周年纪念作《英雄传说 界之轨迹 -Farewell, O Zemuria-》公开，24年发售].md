@@ -13754,3 +13754,24 @@ UCG的评测，又有新截图
 
 这里我要狠狠地嘲笑 monolith soft
 
+
+*****
+
+####  唧唧歪歪八卦阵  
+##### 4340#       发表于 2024-9-10 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66166564&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-10 17:43</a>
+
+云豹的伊苏9是不是就是直接套的NISA的版本来着（</blockquote>
+是的
+
+云豹steam上闪3、4
+
+还有伊苏9都是用的美版游戏本体
+
+能这么做对玩家来说还是好的，毕竟游戏本体质量过关了
+
+就是伊苏9后来人家nisa最终又更新了个双人模式和降低电脑能效的补丁
+
+这个云豹就没跟进了
+

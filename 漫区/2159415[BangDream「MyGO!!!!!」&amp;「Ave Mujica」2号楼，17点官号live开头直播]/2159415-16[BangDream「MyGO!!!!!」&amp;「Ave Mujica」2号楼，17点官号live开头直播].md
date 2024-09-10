@@ -6792,3 +6792,69 @@ bbbb翻的挺好的，chu²的rap。
 
 无所谓了，有点不用太理其他家主唱什么样的，不然你楼又要被说烤羊楼了。
 
+
+*****
+
+####  NODY  
+##### 22807#       发表于 2024-9-10 14:14
+
+ 本帖最后由 NODY 于 2024-9-10 14:16 编辑 
+
+放心吧，这次大部分地方都在烤，z8那种羊噶聚集地都忍不住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 22808#       发表于 2024-9-10 14:15
+
+音宝来了
+
+<img src="https://img.saraba1st.com/forum/202409/10/141502e2aam9zltmtyz9tu.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240910141413.png</strong> (15.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-10 14:15 上传
+
+*****
+
+####  skives  
+##### 22809#       发表于 2024-9-10 14:15
+
+无呼吸义务也没断气吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 22810#       发表于 2024-9-10 14:17
+
+视奸泥楼的可太多了，大乱战甚至都可能会提泥楼一嘴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过好不好的也不是只有泥楼在做判断
+
+ag萝ras蝶都挺喜欢
+
+*****
+
+####  cherryjia12  
+##### 22811#       发表于 2024-9-10 14:18
+
+我更不能理解的是为什么这么像半成品。。
+难道wsd觉得断气感才是他想要的效果？
+
+*****
+
+####  rikaren  
+##### 22812#       发表于 2024-9-10 14:18
+
+不知道，可能wsd脑子就是有问题。
+
+
+*****
+
+####  skives  
+##### 22813#       发表于 2024-9-10 14:23
+
+鸡狗不会被wsd玩成底边吧<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

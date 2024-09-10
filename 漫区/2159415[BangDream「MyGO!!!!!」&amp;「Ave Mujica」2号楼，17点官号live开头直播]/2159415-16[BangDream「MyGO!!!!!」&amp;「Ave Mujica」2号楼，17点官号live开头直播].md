@@ -7352,3 +7352,16 @@ lsl生日我记得弄有送祝福吧<img src="https://static.saraba1st.com/image
 
 也证明了go粉丝确实不团结，有些只关心动画不关心live的
 
+
+*****
+
+####  极速赛车手  
+##### 22868#       发表于 2024-9-11 02:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66167284&amp;ptid=2159415" target="_blank">roydimus 发表于 2024-9-10 19:16</a>
+
+不小心抢到了，抢完发现之前去上海坐的动车没了…
+
+—— 来自 nubia NX679S, Android 13上的 S1Next-鹅版 v ...</blockquote>
+坐到周边城市转线，或者换飞机试试
+

@@ -6610,3 +6610,12 @@ IMG_5524(20240910-102846).PNG
 感觉下一句就是
 “我说不定是为了和你相遇才来到这个世界的”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 22785#       发表于 2024-9-10 12:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">插播个消息，羊姐翻唱gbc的op已经出了
+主唱最拼命的一集
+

@@ -1083,3 +1083,19 @@ PDD上的是香港直邮，预计5-7七天到手，等得有点久
 
 gs的无解说试玩，我没看完，估计有不少内容剧透，在意游戏体验的慎看。
 
+
+*****
+
+####  heseran  
+##### 557#       发表于 2024-9-10 22:28
+
+<img src="https://img.saraba1st.com/forum/202409/10/222716fbr64ae3ybzwdwjz.jpg" referrerpolicy="no-referrer">
+
+<strong>截图.jpg</strong> (69.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-10 22:27 上传
+
+畅游海拉鲁只需一根萝卜~
+

@@ -23,3 +23,19 @@
 [https://x.com/camus27315/status/1832385812530634859](https://x.com/camus27315/status/1832385812530634859)
 <img src="https://p.sda1.dev/19/b71b68946df47355ce0e65f13e5c670d/20240909_213404.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  死难者23er  
+##### 1945#       发表于 2024-9-10 22:26
+
+<img src="https://img.saraba1st.com/forum/202409/10/222631lm21w2u1gmggujs6.png" referrerpolicy="no-referrer">
+
+<strong>IMG_2781.png</strong> (500.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-10 22:26 上传
+
+时间居然这么赶，只剩下10天了才刚刚完成
+

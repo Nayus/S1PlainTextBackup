@@ -13174,3 +13174,11 @@ c博士留了八个表也不写个说明书
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你法这个低能政治系也没必要辩了吧，反正确实结果就是整个帝国领导层就一帮废物圣母（）
 
+
+*****
+
+####  fireadol  
+##### 4281#       发表于 2024-9-10 09:15
+
+空0B的时候结社还是坏比都知道最后要打结社，闪轨知道要打宰相，到了黎轨结社洗白能打的反派都没了，只能把教团再拉起来轮，总不能最后总统夹克一扔：我是大陆八大拳雄之一。说真的把曹李当BOSS算了，虽然low穿地心但起码能让玩家爽爽，不然黎轨反派真的无人可用了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

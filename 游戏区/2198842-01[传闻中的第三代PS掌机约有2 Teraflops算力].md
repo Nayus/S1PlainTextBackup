@@ -485,3 +485,14 @@ PS6至少都26-27年了，2Tflops是不是太低了。8gen3都4T了</blockquote>
 
 就我今天看YouTube上PS5 pro无光驱 价格出来都在觉得难以置信的时候，我觉得索尼还是太低估实体用户了
 
+
+*****
+
+####  布拉德莱恩  
+##### 52#         楼主| 发表于 2024-9-11 05:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66165472&amp;ptid=2198842" target="_blank">clyde-wang 发表于 2024-9-10 15:54</a>
+
+我一直不明白很多人期望的可以玩库里的PS4/PS5游戏，如果只是为了玩老游戏，索尼为什么要推出一个盈利面这 ...</blockquote>
+和PS6共享游戏库啊，从PS5 Slim开始看得出来索尼都已经开始主推数字版了，更别提第七世代就搞过cross buy和cross save这服务。到时候买了PS6的人如果想便携玩的话可以再买个新掌机，如果家里没条件搞据置机的就去买掌机，反正游戏库是通用的，估计索尼打的就是这算盘。
+

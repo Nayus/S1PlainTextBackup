@@ -6713,3 +6713,60 @@ IMG_5524(20240910-102846).PNG
 
 漏油说得我都想去听一下到底什么样了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stygian  
+##### 22797#       发表于 2024-9-10 13:54
+
+ 本帖最后由 stygian 于 2024-9-10 13:55 编辑 
+
+倒不是说键盘部分硬要搞的跟原版一样复杂
+
+但是你鼓都用原来节奏型了进副歌李世林一小节一个刷弦我真的绷不住，疾走感全没了。本来做个吉他双推进的话也挺好的
+
+*****
+
+####  NODY  
+##### 22798#       发表于 2024-9-10 13:54
+
+还是去听听我们ras的翻唱吧，目前看是公认的本次最神
+
+*****
+
+####  rikaren  
+##### 22799#       发表于 2024-9-10 13:59
+
+bbbb翻的挺好的，chu²的rap。
+
+*****
+
+####  星天观测  
+##### 22800#       发表于 2024-9-10 14:00
+
+狗刺对邦不一定会唱这个吧，就算唱了应该是合唱？好像也没什么问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rikaren  
+##### 22801#       发表于 2024-9-10 14:02
+
+【【音频】Bling-Bang-Bang-Born - RAISE A SUILEN-哔哩哔哩】 https://b23.tv/94lMpXl
+
+*****
+
+####  MASKA-1  
+##### 22802#       发表于 2024-9-10 14:03
+
+应该不会live让羊唱这歌
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  御幸一也  
+##### 22803#       发表于 2024-9-10 14:04
+
+音寶的勇者好聽捏<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

@@ -827,3 +827,14 @@ sayu要出两首原创曲
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
 
+
+*****
+
+####  仟音一心  
+##### 21030#       发表于 2024-9-10 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66167651&amp;ptid=2078110" target="_blank">starring 发表于 2024-9-10 20:09</a>
+黄牛的不能退吗？
+看到现在这个价格低价票可能会秒没，内场票真的是不愁没有。</blockquote>
+黄牛现在退也会被要求一半手续费。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

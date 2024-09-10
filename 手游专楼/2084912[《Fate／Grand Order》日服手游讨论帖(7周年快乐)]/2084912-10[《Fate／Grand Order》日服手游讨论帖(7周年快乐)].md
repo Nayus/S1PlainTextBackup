@@ -13218,3 +13218,11 @@ bb2宝了两个四星都没影...
 
 我都是1.5隐村，只有2t刷的快
 
+
+*****
+
+####  blue321  
+##### 14549#       发表于 2024-9-10 18:54
+
+明天会解锁迪拜BB三破吗，会有新卡池吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

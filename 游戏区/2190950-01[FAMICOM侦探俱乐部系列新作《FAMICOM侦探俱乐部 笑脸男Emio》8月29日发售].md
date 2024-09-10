@@ -3492,3 +3492,16 @@ minoru通关，原来如此。</blockquote>
 
 之后领带被发现是因为突发意外状况
 
+
+*****
+
+####  林檎  
+##### 330#       发表于 2024-9-10 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66167208&amp;ptid=2190950" target="_blank">灰尘山 发表于 2024-9-10 19:05</a>
+
+通关后有几点不吐不快：
+
+1.质量奇好的纸袋。农村那虫子多湿气重的环境里还能存放18年，最后两年房子完全不 ...</blockquote>
+最后一条也是我玩完最想吐槽的，感觉就是为了让玩家参与这个案子，把jc全体降智
+

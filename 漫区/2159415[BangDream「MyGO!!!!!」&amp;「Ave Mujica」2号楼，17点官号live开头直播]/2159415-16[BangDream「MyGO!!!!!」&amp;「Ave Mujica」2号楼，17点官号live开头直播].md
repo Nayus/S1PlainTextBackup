@@ -7208,3 +7208,36 @@ go批闹麻了，票秒没
 
 以后还有说这楼的狗u全被鸡推排挤完了的就让他翻今天的记录<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  roydimus  
+##### 22853#       发表于 2024-9-10 19:16
+
+不小心抢到了，抢完发现之前去上海坐的动车没了…
+
+—— 来自 nubia NX679S, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  rollingusagi  
+##### 22854#       发表于 2024-9-10 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66166943&amp;ptid=2159415" target="_blank">rexzhanghao 发表于 2024-09-10 18:28:03</a>
+预售抢票人数63691+5694，这个就算开梅奔甚至上限人数更多的体育馆都抢不动吧，可以算二次元潮流单品了，不 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">上次萝的巡演平台上还显示有7w多人呢，肯定一堆代抢的还有找家人小伙伴帮忙的
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  rexzhanghao  
+##### 22855#       发表于 2024-9-10 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66167286&amp;ptid=2159415" target="_blank">rollingusagi 发表于 2024-9-10 19:16</a>
+
+上次萝的巡演平台上还显示有7w多人呢，肯定一堆代抢的还有找家人小伙伴帮忙的
+
+  -- 来自 能手机投票的 Sta ...</blockquote>
+去掉代抢真实人数也到现象级水平了，换做1年半前鬼才相信邦邦能在华开LIVE还能一票难求。。。。。
+

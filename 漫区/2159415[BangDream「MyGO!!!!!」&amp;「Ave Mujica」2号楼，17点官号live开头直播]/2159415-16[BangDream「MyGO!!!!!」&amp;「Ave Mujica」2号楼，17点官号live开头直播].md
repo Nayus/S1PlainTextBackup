@@ -7021,3 +7021,50 @@ wsd的脑子有屎 真的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stygian  
+##### 22832#       发表于 2024-9-10 18:00
+
+秒空，乐
+
+*****
+
+####  惠痴  
+##### 22833#       发表于 2024-9-10 18:01
+
+我操死你的妈，这票秒没
+
+GO批太多了，抢不到票<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  六道明  
+##### 22834#       发表于 2024-9-10 18:01
+
+我操死你的妈，这票秒没
+
+GO批太多了，抢不到票<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  llconforever  
+##### 22835#       发表于 2024-9-10 18:03
+
+亲爱的猫眼用户：您好。由于您在2024年9月10日辱骂了羊宫妃那，故取消您“MyGO!!!!! 6th LIVE '寻觅到的风景，携手同行'上海追加公演” 购票资格，请您能友善交流，避免辱骂他人，谢谢合作！
+
+*****
+
+####  akiomn  
+##### 22836#       发表于 2024-9-10 18:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">3秒没。算了没就没吧
+
+*****
+
+####  圆  
+##### 22837#       发表于 2024-9-10 18:05
+
+你们都在猫眼抢的吗，我去携程抢的，也没抢到就是了
+

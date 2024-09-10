@@ -13688,3 +13688,11 @@ UCG的评测，又有新截图
 还能有这么丢人的操作？</blockquote>
 云豹的伊苏9是不是就是直接套的NISA的版本来着（
 
+
+*****
+
+####  一步成诗  
+##### 4334#       发表于 2024-9-10 17:57
+
+你别说你还真别说，这个内置词典确实是史诗级强化<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

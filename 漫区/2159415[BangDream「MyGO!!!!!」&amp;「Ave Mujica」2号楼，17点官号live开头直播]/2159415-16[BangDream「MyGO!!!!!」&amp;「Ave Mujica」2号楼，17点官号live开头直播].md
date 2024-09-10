@@ -6770,3 +6770,25 @@ bbbb翻的挺好的，chu²的rap。
 
 音寶的勇者好聽捏<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 22804#       发表于 2024-9-10 14:09
+
+看到说“羊姐用声优唱法所以和歌手不一样”的，我寻思这次翻唱hhw、ag、ras哪个不是让主业声优的唱高速神言，没一个像羊姐这样断气的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 22805#       发表于 2024-9-10 14:13
+
+聽完ras的已變成tmtm的狗
+
+*****
+
+####  rikaren  
+##### 22806#       发表于 2024-9-10 14:13
+
+无所谓了，有点不用太理其他家主唱什么样的，不然你楼又要被说烤羊楼了。
+

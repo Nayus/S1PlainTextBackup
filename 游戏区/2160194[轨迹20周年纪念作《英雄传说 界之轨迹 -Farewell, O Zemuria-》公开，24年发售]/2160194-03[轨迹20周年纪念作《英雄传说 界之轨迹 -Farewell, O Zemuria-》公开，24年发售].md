@@ -13561,3 +13561,31 @@ cf440ad162d9f2d3a54c2adbefec8a136227ccd2.jpg
 
 你以为虾饺不想吗，人手不够/水平不行才没办法啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  红魔馆的糖  
+##### 4323#       发表于 2024-9-10 12:15
+
+你法要是早点狠下心搞点PC移植的员工跟下本钱长期合作个英语化团队，估计就不会这么半死不活了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 4324#       发表于 2024-9-10 12:17
+
+ 本帖最后由 卢迪克 于 2024-9-10 12:18 编辑 
+
+不过今年不好说了，因为去年韩国ps版没上榜，界轨又没ns
+
+本土可以反杀回来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+34ba19d8bc3eb1354**98fe01ea8d3fc1f44d2.jpg
+(191.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-10 12:15 上传
+
+<img src="https://img.saraba1st.com/forum/202409/10/121555siu0mrdokol0uku0.jpg" referrerpolicy="no-referrer">
+

@@ -6589,3 +6589,24 @@ IMG_5524(20240910-102846).PNG
 
 米泽这个小作文有点太重了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  鳥栖朝  
+##### 22783#       发表于 2024-9-10 12:17
+
+ 本帖最后由 鳥栖朝 于 2024-9-10 12:24 编辑 
+
+戒指和教堂都出来了，下一秒直接求婚都不奇怪
+
+
+*****
+
+####  skives  
+##### 22784#       发表于 2024-9-10 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66163331&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-9-10 11:49</a>
+你們姪女講話真的是</blockquote>
+感觉下一句就是
+“我说不定是为了和你相遇才来到这个世界的”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

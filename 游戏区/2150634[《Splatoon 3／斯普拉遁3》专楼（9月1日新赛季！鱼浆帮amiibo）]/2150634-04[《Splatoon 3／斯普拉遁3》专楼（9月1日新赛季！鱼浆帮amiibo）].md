@@ -2477,3 +2477,32 @@ W2打到一半手柄断电没绷住，赶紧从dock上抄起机器，原来掌�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  KBAC  
+##### 5186#       发表于 2024-9-10 12:34
+
+ 本帖最后由 KBAC 于 2024-9-10 12:37 编辑 
+
+DLC设定集和OST，12月11日发售。
+这次设定集和2代DLC一样，依然是杂志风格<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  KBAC  
+##### 5187#       发表于 2024-9-10 12:40
+
+<img src="https://img.saraba1st.com/forum/202409/10/123915ee9xaoyfenp9nyie.jpg" referrerpolicy="no-referrer">
+
+<strong>img_0255.jpg</strong> (880.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-10 12:39 上传
+
+两张没见过的专辑封面，难道还有新曲？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

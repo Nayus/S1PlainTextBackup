@@ -13723,3 +13723,13 @@ UCG的评测，又有新截图
 “但这类系统体贴归体贴，问题也很明显。例如有部分过往要素单靠简单的说明并不能完全说清楚关键的细节， ...</blockquote>
 我就是那种容易失忆的，xx年前xx事件我还在那算半天<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  古畑任三郎2015  
+##### 4337#       发表于 2024-9-10 19:50
+
+轨迹蛮适合搞个obsidian笔记库的，各种人物各种事件各种链<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

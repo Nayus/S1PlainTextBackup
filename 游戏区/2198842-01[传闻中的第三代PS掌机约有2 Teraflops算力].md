@@ -407,3 +407,14 @@ PS6至少都26-27年了，2Tflops是不是太低了。8gen3都4T了
 PS6至少都26-27年了，2Tflops是不是太低了。8gen3都4T了</blockquote>
 话说手机GPU单精度浮点性能你们都是哪里看的啊？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  npk7k_1  
+##### 45#       发表于 2024-9-10 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66168553&amp;ptid=2198842" target="_blank">神道设教 发表于 2024-9-10 21:51</a>
+
+话说手机GPU单精度浮点性能你们都是哪里看的啊？</blockquote>
+我是自己算的，jkw可能有时会提一嘴
+

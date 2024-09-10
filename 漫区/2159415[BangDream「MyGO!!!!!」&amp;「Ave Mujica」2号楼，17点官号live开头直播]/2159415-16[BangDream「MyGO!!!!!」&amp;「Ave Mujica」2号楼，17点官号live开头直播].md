@@ -7257,3 +7257,23 @@ go批闹麻了，票秒没
 
 粉丝粘性真强啊，老钟万人场可以随便开了。
 
+
+*****
+
+####  ykyin09  
+##### 22858#       发表于 2024-9-10 20:28
+
+<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">抢到了前区后排，但是据反应这个位置只能看人头
+
+
+*****
+
+####  秋雨灰灰  
+##### 22859#       发表于 2024-9-10 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66167861&amp;ptid=2159415" target="_blank">ykyin09 发表于 2024-9-10 20:28</a>
+抢到了前区后排，但是据反应这个位置只能看人头</blockquote>
+假的，7月看过perfume，遮挡不严重
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

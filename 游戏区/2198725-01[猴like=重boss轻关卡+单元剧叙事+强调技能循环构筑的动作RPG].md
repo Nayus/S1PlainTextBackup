@@ -596,3 +596,18 @@ boss rush本来就好玩啊，3A水准的本来就不多。这不比在迷宫里
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  busuji  
+##### 61#       发表于 2024-9-10 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66160862&amp;ptid=2198725" target="_blank">终将不惑 发表于 2024-9-10 07:25</a>
+
+印象中似乎这些年的刺客信条就类似？
+
+但为啥就是玩不下去呢</blockquote>
+因为重点是可以打BOSS——而且是设计得很好、有挑战性的BOSS。
+
+神话三部曲的BOSS设计等于没有，玩得下去才怪了。
+

@@ -6499,3 +6499,11 @@ P.S. 我比较好奇后篇的film live，说是卡在mygo动画和mujica动画�
 下篇不是有film live吗，应该是ep12的live扩展？终于能正常的听到碧天伴走了吗
 不过怎么想时长都不太够，对于新画面的时长持悲观态度，许愿一个无路矢的live吧，正好也和猫猫有关
 
+
+*****
+
+####  六道明  
+##### 22776#       发表于 2024-9-10 09:53
+
+减掉avemujica，那就是要做完整版的碧天伴走了吧<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+

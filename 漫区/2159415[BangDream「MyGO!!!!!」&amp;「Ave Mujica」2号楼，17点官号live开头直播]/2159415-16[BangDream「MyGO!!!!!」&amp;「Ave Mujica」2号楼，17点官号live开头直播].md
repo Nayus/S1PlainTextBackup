@@ -7169,3 +7169,11 @@ GO批太多了，抢不到票<img src="https://static.saraba1st.com/image/smiley
 预售抢票人数63691+5694，这个就算开梅奔甚至上限人数更多的体育馆都抢不动吧，可以算二次元潮流单品了，不 ...</blockquote>
 实际应该没有这么多，很多人是喊了五六个朋友或者代抢的
 
+
+*****
+
+####  zypyong  
+##### 22849#       发表于 2024-9-10 18:38
+
+这怎么抢的到的啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">  0s的时候点进去一下就没了
+

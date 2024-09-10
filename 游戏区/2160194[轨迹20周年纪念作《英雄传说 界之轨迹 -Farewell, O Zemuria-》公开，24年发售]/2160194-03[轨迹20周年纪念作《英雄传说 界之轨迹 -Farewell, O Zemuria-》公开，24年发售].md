@@ -13467,3 +13467,31 @@ c博士留了八个表也不写个说明书
 
 到时戏份比较多也就瓦利斯市国了吧
 
+
+*****
+
+####  一步成诗  
+##### 4313#       发表于 2024-9-10 11:47
+
+等等，9月每周都上杂志的意思是长pv没了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宛若青空  
+##### 4314#       发表于 2024-9-10 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66163307&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-10 11:47</a>
+
+等等，9月每周都上杂志的意思是长pv没了是吧</blockquote>
+难说，看这个放弃治疗的情况大概率没了
+
+
+*****
+
+####  ravend233  
+##### 4315#       发表于 2024-9-10 11:50
+
+这周没PV基本就没了，下周放不是没可能但是好像没啥意义了
+
+不如幽默点TGS大伙都快打完了才放PV吧
+

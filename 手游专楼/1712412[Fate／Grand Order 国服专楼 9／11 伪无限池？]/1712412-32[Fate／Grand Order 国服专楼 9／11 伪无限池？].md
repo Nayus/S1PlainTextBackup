@@ -83,3 +83,14 @@
 
 水B复刻想补个三宝等着以后开减CD被动，结果300石头下去无事发生<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lcn  
+##### 46737#       发表于 2024-9-11 07:26
+
+打完所长发现还有个红点，还要打一遍
+
+这游戏有病吧？
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

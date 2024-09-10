@@ -13733,3 +13733,14 @@ UCG的评测，又有新截图
 
 [论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  里恩  
+##### 4338#       发表于 2024-9-10 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66163512&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-10 12:06</a>
+
+不如首发上PC，放弃本土市场专攻海外市场了</blockquote>
+就法老控哪首脑层，就脑残，估计他们还觉得发PC就会和当年一点被盗版吃干抹净呢。所以才一直坚持第一时间上PS系主机
+

@@ -22,3 +22,11 @@
 
 啊？AN助手？不是新人？？
 
+
+*****
+
+####  不灭的旋律  
+##### 1203#       发表于 2024-9-10 22:50
+
+战斗视频里还出现了AN打工战士的图标<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 这是以后复刻都出AN骗钱了？MD，AIT和DTA这些相当于互为AN的怎么办？
+

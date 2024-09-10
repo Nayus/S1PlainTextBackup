@@ -7295,3 +7295,11 @@ go批闹麻了，票秒没
 
 —— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  星天观测  
+##### 22862#       发表于 2024-9-10 22:52
+
+有没有人记得鸡在megavegas是哪三首歌来着，写文想做个参考<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

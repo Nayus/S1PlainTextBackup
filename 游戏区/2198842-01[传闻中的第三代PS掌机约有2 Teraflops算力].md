@@ -428,3 +428,15 @@ PS6至少都26-27年了，2Tflops是不是太低了。8gen3都4T了</blockquote>
 你想表达什么，和被回复发言的联系在哪</blockquote>
 内存带宽限制GPU性能，容量相同也并没有可比性啊...
 
+
+*****
+
+####  oskneo  
+##### 47#       发表于 2024-9-10 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66168541&amp;ptid=2198842" target="_blank">clyde-wang 发表于 2024-9-10 21:49</a>
+那其实就是会出现我说的，买了游戏的人说我为什么低人一等？数字版的可以直接玩，实体版的要花钱才能玩？ ...</blockquote>
+那时反对意见也不大，毕竟买了数字版后，盘能卖出去
+
+—— 来自 HUAWEI TAH-AN00m, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

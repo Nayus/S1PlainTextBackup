@@ -814,3 +814,16 @@ sayu要出两首原创曲
 
 想到我广州场还是无意捡漏便宜票，瞬间觉得赚到
 
+
+*****
+
+####  starring  
+##### 21029#       发表于 2024-9-10 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66167564&amp;ptid=2078110" target="_blank">仟音一心 发表于 2024-9-10 19:56</a>
+那个，讲个比较丢人的事情，我因为抢票恐慌听了隔壁NGA坛友的建议找了两家不同的黄牛，因为想着反正最多只 ...</blockquote>
+黄牛的不能退吗？
+看到现在这个价格低价票可能会秒没，内场票真的是不愁没有。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

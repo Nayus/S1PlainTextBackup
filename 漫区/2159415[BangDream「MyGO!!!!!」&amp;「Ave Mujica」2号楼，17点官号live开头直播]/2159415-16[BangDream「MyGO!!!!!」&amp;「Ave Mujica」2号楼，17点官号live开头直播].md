@@ -6931,3 +6931,20 @@ wsd的脑子有屎 真的
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  461757753  
+##### 22822#       发表于 2024-9-10 15:24
+
+小羊是不是在录音室放不开啊，神明大人也是现场版比录音版要好听
+
+*****
+
+####  Milarvoz  
+##### 22823#       发表于 2024-9-10 15:27
+
+小羊唱歌不一直是这种听着上不来气的风格的，难不成还能有其他不切实际的期待吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

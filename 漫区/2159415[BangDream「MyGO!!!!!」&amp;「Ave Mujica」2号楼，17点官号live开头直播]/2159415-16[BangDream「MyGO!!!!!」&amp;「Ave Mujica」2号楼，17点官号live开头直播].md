@@ -6619,3 +6619,31 @@ IMG_5524(20240910-102846).PNG
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">插播个消息，羊姐翻唱gbc的op已经出了
 主唱最拼命的一集
 
+
+*****
+
+####  stygian  
+##### 22786#       发表于 2024-9-10 12:59
+
+ 本帖最后由 stygian 于 2024-9-10 13:03 编辑 
+
+从主唱到编曲都太难评了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+副歌编的真的是一坨
+
+听了两遍我竟然觉得🐏已经算不错的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 22787#       发表于 2024-9-10 13:02
+
+啊这 音色不合适吧
+
+*****
+
+####  skives  
+##### 22788#       发表于 2024-9-10 13:02
+
+感觉像刚哭了一顿还没缓过来的时候唱的，唱着唱着绷不住又哭出来了
+

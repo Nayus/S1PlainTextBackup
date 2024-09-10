@@ -13607,3 +13607,34 @@ cf440ad162d9f2d3a54c2adbefec8a136227ccd2.jpg
 
 —— 来自 Xiaomi 2210132C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  Archer长羽  
+##### 4327#       发表于 2024-9-10 17:26
+
+[https://weibo.com/ttarticle/p/show?id=2309405077094945128678](https://weibo.com/ttarticle/p/show?id=2309405077094945128678)
+
+UCG的评测，又有新截图
+
+*****
+
+####  Archer长羽  
+##### 4328#       发表于 2024-9-10 17:27
+
+<img src="https://img.saraba1st.com/forum/202409/10/172713qdfu6cugusgguscc.png" referrerpolicy="no-referrer">
+
+<strong>9031e329ly4htipc34pnmj211y0m74qp.png</strong> (149.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-10 17:27 上传
+
+<img src="https://img.saraba1st.com/forum/202409/10/172724ktdpytpbxlxxto7m.png" referrerpolicy="no-referrer">
+
+<strong>9031e329ly4htipc51gr2j211y0m7h70.png</strong> (77.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-10 17:27 上传
+

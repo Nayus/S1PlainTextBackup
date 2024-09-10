@@ -2506,3 +2506,24 @@ DLC设定集和OST，12月11日发售。
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  shirolin  
+##### 5188#       发表于 2024-9-10 17:28
+
+距离【大型祭典】正式开幕仅剩3天了。 
+回想那段俩人默默无闻的过去， 
+虽然怀揣的希望与不安， 
+却是无可替代的珍贵宝物。 
+
+<img src="https://img.saraba1st.com/forum/202409/10/172802bwwh1kziottf16od.jpg" referrerpolicy="no-referrer">
+
+<strong>20240910_172715.jpg</strong> (911.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-10 17:28 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

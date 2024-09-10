@@ -13334,3 +13334,28 @@ c博士留了八个表也不写个说明书
 范还好，感觉应该给菲莉安排一个听完黎恩自我介绍后，“震惊！原来他就是那个xxx”的桥段才够味。这样的第 ...</blockquote>
 不如黎1菲莉的吹法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><blockquote>莫非是.........传说中那个东北的.........</blockquote>
 
+
+*****
+
+####  smdzh2  
+##### 4299#       发表于 2024-9-10 11:20
+
+看好下一个故事舞台拿共和国当垫子，共和国裂成114514块天天内战<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一步成诗  
+##### 4300#       发表于 2024-9-10 11:22
+
+震撼这周居然还有杂志，全堆到9月空一整个8月的意义是？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Archer长羽  
+##### 4301#       发表于 2024-9-10 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66162449&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-10 10:35</a>
+
+菲莉不是说了嘛，他就是有名的灰之骑士</blockquote>
+黎恩自我介绍前她就在内心说了<img src="https://static.saraba1st.com/image/smiley/face/50.gif" referrerpolicy="no-referrer">
+

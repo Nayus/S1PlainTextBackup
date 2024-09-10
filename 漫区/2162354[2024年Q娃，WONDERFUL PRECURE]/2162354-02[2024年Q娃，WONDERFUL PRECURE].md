@@ -442,3 +442,16 @@ A part修得挺好看的
 
 和我们无关啊，和我们……
 
+
+*****
+
+####  Arson=desu  
+##### 2156#       发表于 2024-9-10 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66162861&amp;ptid=2162354" target="_blank">朝日奈みらい. 发表于 2024-9-10 11:10</a>
+
+阿悟消失杀人事件
+
+和我们无关啊，和我们……</blockquote>
+猫组狗组都是一人一宠，萨托鲁君肯定是回家陪大福了吧，兔子太寂寞可是会死掉的哦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -558,3 +558,31 @@ lccb良被削了，三破或能白嫖40狂气</blockquote>
 
 体感确实不缺吧，除了困牢有的队奥要打狐雨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 872#       发表于 2024-9-10 20:01
+
+<img src="https://img.saraba1st.com/forum/202409/10/200013s4fgo5azfnu7ezj7.jpg" referrerpolicy="no-referrer">
+
+<strong>63533295D48A9E3756A4072325AA4268.jpg</strong> (211.59 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-10 20:00 上传
+
+<img src="https://img.saraba1st.com/forum/202409/10/200013cbfl5dla42vbd55h.jpg" referrerpolicy="no-referrer">
+
+<strong>7AEA6102B5AFAFA54070BDE98775CD51.jpg</strong> (90.67 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-10 20:00 上传
+
+下周新卡，北部九协会的罗佳。
+
+之后再出个西部二协会的三星，就可以迎接新赛季了。
+

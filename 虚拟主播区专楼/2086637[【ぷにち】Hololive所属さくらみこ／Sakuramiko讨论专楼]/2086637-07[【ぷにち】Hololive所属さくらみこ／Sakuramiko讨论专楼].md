@@ -8613,3 +8613,33 @@ solo锁！！！！！！！
 
 这下要开大会了
 
+
+*****
+
+####  holoan  
+##### 9600#         楼主| 发表于 2024-9-10 20:20
+
+<img src="https://img.saraba1st.com/forum/202409/10/202011oz6ubcd0dzzigdk9.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="582" zoomfile="https://img.saraba1st.com/forum/202409/10/202011oz6ubcd0dzzigdk9.png">
+
+<strong>image.png</strong> (138.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-10 20:20 上传
+
+
+*****
+
+####  holoan  
+##### 9601#         楼主| 发表于 2024-9-10 21:18
+
+<img src="https://img.saraba1st.com/forum/202409/10/211839sylo07hzniz0ewi6.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="540" zoomfile="https://img.saraba1st.com/forum/202409/10/211839sylo07hzniz0ewi6.png">
+
+<strong>image.png</strong> (11.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-10 21:18 上传
+
+难不成私下练习的是……
+

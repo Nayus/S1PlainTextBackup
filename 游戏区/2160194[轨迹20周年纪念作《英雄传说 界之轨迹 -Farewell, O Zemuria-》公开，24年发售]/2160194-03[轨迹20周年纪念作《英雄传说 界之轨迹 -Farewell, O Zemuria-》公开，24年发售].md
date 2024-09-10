@@ -13638,3 +13638,53 @@ UCG的评测，又有新截图
 
 2024-9-10 17:27 上传
 
+
+*****
+
+####  Aeons  
+##### 4329#       发表于 2024-9-10 17:34
+
+真就一张张凑啊
+估计是讲盖乌斯
+
+*****
+
+####  alucardcz  
+##### 4330#       发表于 2024-9-10 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66163512&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-10 12:06</a>
+
+不如首发上PC，放弃本土市场专攻海外市场了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我ys10的pc（云豹版）什么时候能重新上架啊 都下架多久了 半年了？
+
+*****
+
+####  ravend233  
+##### 4331#       发表于 2024-9-10 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66166475&amp;ptid=2160194" target="_blank">alucardcz 发表于 2024-9-10 17:35</a>
+
+我ys10的pc（云豹版）什么时候能重新上架啊 都下架多久了 半年了？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怕不是在等NISA的版本然后直接套个汉化补丁当中文版发售
+
+
+*****
+
+####  alucardcz  
+##### 4332#       发表于 2024-9-10 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66166530&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-10 17:39</a>
+
+怕不是在等NISA的版本然后直接套个汉化补丁当中文版发售</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">还能有这么丢人的操作？
+
+*****
+
+####  ravend233  
+##### 4333#       发表于 2024-9-10 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66166532&amp;ptid=2160194" target="_blank">alucardcz 发表于 2024-9-10 17:40</a>
+
+还能有这么丢人的操作？</blockquote>
+云豹的伊苏9是不是就是直接套的NISA的版本来着（
+

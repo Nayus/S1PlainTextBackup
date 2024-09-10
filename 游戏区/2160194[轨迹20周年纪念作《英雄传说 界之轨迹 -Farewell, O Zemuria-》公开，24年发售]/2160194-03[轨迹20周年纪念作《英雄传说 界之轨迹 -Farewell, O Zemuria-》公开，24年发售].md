@@ -13304,3 +13304,13 @@ c博士留了八个表也不写个说明书
 
 就像闪四结束洛克史密斯还不是帮帝国压共和国民愤，洛伊没**关系就直接要钱咯。
 
+
+*****
+
+####  Aeons  
+##### 4296#       发表于 2024-9-10 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66162146&amp;ptid=2160194" target="_blank">byisme001 发表于 2024-9-10 10:12</a>
+又想起黎1结尾很meta的一点，换新引擎后城市了多了很多不能对话的纯背景板路人，结果黎1结尾时间暂停被定住 ...</blockquote>
+这个其实设计的挺有意思的
+

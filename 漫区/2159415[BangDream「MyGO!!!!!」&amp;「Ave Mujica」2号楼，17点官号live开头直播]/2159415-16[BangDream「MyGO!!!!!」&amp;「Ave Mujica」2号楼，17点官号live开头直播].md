@@ -7323,3 +7323,22 @@ go批闹麻了，票秒没
 
 谢谢~
 
+
+*****
+
+####  akiomn  
+##### 22865#       发表于 2024-9-10 23:57
+
+高尾生日推特祝福除了lsl和羊姐外都到齐了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">四舍五入就是熟人全齐了（青木鼓子是狗团来的最快的，甚至比部分鸡团成员还快，什么狗团叛徒）
+
+
+*****
+
+####  星天观测  
+##### 22866#       发表于 2024-9-11 00:02
+
+lsl生日我记得弄有送祝福吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+感觉有点不懂人情世故了呀
+

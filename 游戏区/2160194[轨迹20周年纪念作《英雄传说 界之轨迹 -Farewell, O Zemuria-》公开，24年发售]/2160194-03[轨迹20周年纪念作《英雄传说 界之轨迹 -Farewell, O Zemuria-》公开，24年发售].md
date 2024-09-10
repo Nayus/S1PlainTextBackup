@@ -13359,3 +13359,79 @@ c博士留了八个表也不写个说明书
 菲莉不是说了嘛，他就是有名的灰之骑士</blockquote>
 黎恩自我介绍前她就在内心说了<img src="https://static.saraba1st.com/image/smiley/face/50.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 4302#       发表于 2024-9-10 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66163025&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-10 11:22</a>
+
+震撼这周居然还有杂志，全堆到9月空一整个8月的意义是？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有点幽默了
+
+*****
+
+####  卢迪克  
+##### 4303#       发表于 2024-9-10 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66163025&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-10 11:22</a>
+
+震撼这周居然还有杂志，全堆到9月空一整个8月的意义是？</blockquote>
+给空轨让路啊。
+
+*****
+
+####  宛若青空  
+##### 4304#       发表于 2024-9-10 11:26
+
+采访说过每周都会更新官网，可能杂志这个月每周都会有
+
+*****
+
+####  一步成诗  
+##### 4305#       发表于 2024-9-10 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66163058&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-10 11:25</a>
+
+给空轨让路啊。</blockquote>
+空轨也是上期才和界轨一起上的杂志啊，让什么路了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hkguty  
+##### 4306#       发表于 2024-9-10 11:28
+
+这个战争赔偿这个事与其说是扯蛋不如说是异想天开，不知道是普遍的日本人都是真的这么单纯还是就法老控的编剧这么纯
+
+*****
+
+####  卢迪克  
+##### 4307#       发表于 2024-9-10 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66163085&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-10 11:28</a>
+
+空轨也是上期才和界轨一起上的杂志啊，让什么路了</blockquote>
+近藤知道8月开发布会，但不知道具体时间啊，就八月都不买呗
+
+*****
+
+####  悠悠你心  
+##### 4308#       发表于 2024-9-10 11:29
+
+发售前的宣发不就两周了，9月最后一周是发售特辑，社长太极和开局攻略啥的吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  ravend233  
+##### 4309#       发表于 2024-9-10 11:31
+
+发售前特辑我印象里一般没有新角色，这周介绍个结社拉倒了吧
+
+面具人甚至不配上杂志<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

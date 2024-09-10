@@ -13495,3 +13495,54 @@ c博士留了八个表也不写个说明书
 
 不如幽默点TGS大伙都快打完了才放PV吧
 
+
+*****
+
+####  一步成诗  
+##### 4316#       发表于 2024-9-10 11:56
+
+感觉像能剪视频的人手都没有，游戏内演出估计也危<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 4317#       发表于 2024-9-10 11:56
+
+说起来今年Gamer有序章试玩吗
+
+*****
+
+####  一步成诗  
+##### 4318#       发表于 2024-9-10 12:00
+
+日本那边媒体都没动静估计要等下周，日本人都抱怨怎么中韩有情报日本本土什么都没有，推上传的全是中文截图，乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aeons  
+##### 4319#       发表于 2024-9-10 12:02
+
+ 本帖最后由 Aeons 于 2024-9-10 12:03 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还真是，**，贴吧早上发张媒体截图，下午红迪4chan，推特啥的全看到了。  翻中韩翻日
+
+*****
+
+####  卢迪克  
+##### 4320#       发表于 2024-9-10 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66163440&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-10 12:00</a>
+
+日本那边媒体都没动静估计要等下周，日本人都抱怨怎么中韩有情报日本本土什么都没有，推上传的全是中文截图 ...</blockquote>
+毕竟伊苏的中韩销量高到让法社发了句谢谢你，本土玩家不给力啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+cf440ad162d9f2d3a54c2adbefec8a136227ccd2.jpg
+(95.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-10 12:05 上传
+
+<img src="https://img.saraba1st.com/forum/202409/10/120525ewxx5bxu95zbuubu.jpg" referrerpolicy="no-referrer">
+

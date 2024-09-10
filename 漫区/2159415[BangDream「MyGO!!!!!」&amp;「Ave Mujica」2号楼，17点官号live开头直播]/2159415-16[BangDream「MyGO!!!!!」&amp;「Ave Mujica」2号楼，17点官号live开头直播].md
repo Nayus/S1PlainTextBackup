@@ -6581,3 +6581,11 @@ IMG_5524(20240910-102846).PNG
 
 2024-9-10 11:48 上传
 
+
+*****
+
+####  星天观测  
+##### 22782#       发表于 2024-9-10 12:03
+
+米泽这个小作文有点太重了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

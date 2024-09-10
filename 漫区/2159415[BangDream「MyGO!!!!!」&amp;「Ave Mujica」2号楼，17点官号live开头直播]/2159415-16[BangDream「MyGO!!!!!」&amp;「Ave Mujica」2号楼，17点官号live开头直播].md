@@ -6921,3 +6921,13 @@ wsd的脑子有屎 真的
 
 三月份的时候和好友讨论电锯人ed该怎么分配给剩下九个团，看来ed7用夹子音唱是众望所归。
 
+
+*****
+
+####  6030sylar  
+##### 22821#       发表于 2024-9-10 15:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">羊这唱得命都快没了
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

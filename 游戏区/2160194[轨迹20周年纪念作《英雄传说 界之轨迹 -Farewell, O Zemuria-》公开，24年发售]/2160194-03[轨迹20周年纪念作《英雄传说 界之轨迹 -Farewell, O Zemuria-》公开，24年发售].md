@@ -13597,3 +13597,13 @@ cf440ad162d9f2d3a54c2adbefec8a136227ccd2.jpg
 
 界轨2应该能ns2首发<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一夜秋风袭锦城  
+##### 4326#       发表于 2024-9-10 14:47
+
+日式政治过家家不就这样，赔完款坏帝国就变好帝国了，大家就能没有任何包袱的过家家了。
+
+—— 来自 Xiaomi 2210132C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

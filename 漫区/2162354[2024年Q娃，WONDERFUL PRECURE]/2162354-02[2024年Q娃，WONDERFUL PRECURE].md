@@ -455,3 +455,18 @@ A part修得挺好看的
 和我们无关啊，和我们……</blockquote>
 猫组狗组都是一人一宠，萨托鲁君肯定是回家陪大福了吧，兔子太寂寞可是会死掉的哦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 2157#       发表于 2024-9-10 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66162861&amp;ptid=2162354" target="_blank">朝日奈みらい. 发表于 2024-9-10 11:10</a>
+
+阿悟消失杀人事件
+
+和我们无关啊，和我们……</blockquote>
+最重要的不是动物形态小麦小雪的杯垫颜色从黄色橙色变成了自己的粉色蓝色吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+估计这次剧场版大福真的有变身形态吧，不过我个人倾向于是变特殊战士不是变Q娃（
+

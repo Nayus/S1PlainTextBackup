@@ -13435,3 +13435,35 @@ c博士留了八个表也不写个说明书
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  洛克萨斯  
+##### 4310#       发表于 2024-9-10 11:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要主角团和敌方干部一堆亲友关系不能下死手，导致开打跟过家家一样，阿玛塔这么好用的反派团一作就写死了，果不其然黎2就没活了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结社那么多号人送几个人头怎么就那么难
+
+*****
+
+####  ravend233  
+##### 4311#       发表于 2024-9-10 11:37
+
+结社洗白了就这样咯，大家都不是坏人，过一下家家就收工各回各家了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  卢迪克  
+##### 4312#       发表于 2024-9-10 11:43
+
+<blockquote>smdzh2 发表于 2024-9-10 11:20
+看好下一个故事舞台拿共和国当垫子，共和国裂成114514块天天内战</blockquote>
+
+其实很难，下个舞台基本是东大陆。两边基本无交流。可能就用大陆西方指代一下，更别提垫子
+
+到时戏份比较多也就瓦利斯市国了吧
+

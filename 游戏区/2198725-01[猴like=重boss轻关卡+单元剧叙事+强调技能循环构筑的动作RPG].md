@@ -522,3 +522,24 @@ boss rush本来就好玩啊，3A水准的本来就不多。这不比在迷宫里
 
 我合理怀疑这套框架这是总制作人mmo做多了思维惯性导向的结果，打技能循环我们窝窝狒狒玩家可太熟了<img src="https://static.saraba1st.com/image/smiley/face/84.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeroblast  
+##### 54#       发表于 2024-9-10 08:48
+
+其实云下来感觉有点像王国之心……重boss，没啥复杂地图，单元剧叙事。
+
+
+*****
+
+####  Hidewhite  
+##### 55#       发表于 2024-9-10 08:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66161040&amp;ptid=2198725" target="_blank">女神アイギス 发表于 2024-9-10 08:14</a>
+
+魂1周目到8周目数值不断上升，主打一个自助式赤石
+
+吃到吃不动为止</blockquote>
+黑神话悟空多周目弃疗了吧，多周目数值升得太高，二周目这样低周目数值又太低， 数值一乱，这套框架打起来就没多大意思了
+

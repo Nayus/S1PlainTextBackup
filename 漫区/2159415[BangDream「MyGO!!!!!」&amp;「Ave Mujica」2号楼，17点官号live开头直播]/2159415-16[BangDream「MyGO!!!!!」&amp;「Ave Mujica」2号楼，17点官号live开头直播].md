@@ -7313,3 +7313,13 @@ go批闹麻了，票秒没
 
 这个吗，但是显示的信息是七首
 
+
+*****
+
+####  星天观测  
+##### 22864#       发表于 2024-9-10 23:42
+
+啊就是这个，坏了我怎么记的是三首<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+谢谢~
+

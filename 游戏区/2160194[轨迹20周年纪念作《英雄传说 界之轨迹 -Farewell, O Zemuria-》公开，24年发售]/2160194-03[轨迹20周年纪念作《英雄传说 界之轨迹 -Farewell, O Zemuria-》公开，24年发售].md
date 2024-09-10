@@ -13149,3 +13149,28 @@ c博士留了八个表也不写个说明书
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">我记得一般是发售那一周
 
+
+*****
+
+####  无动于衷  
+##### 4279#       发表于 2024-9-10 09:00
+
+ 本帖最后由 无动于衷 于 2024-9-10 09:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66161147&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-10 08:32</a>
+
+我提一下大少是赞成且率先提起赔款这个可能性的，所以替稻草人冰女去蹲局子了。
+
+什么时候才能理解所谓圣母 ...</blockquote>
+你想太多了，你帝国还有什么资格谁比谁好啊？当然是比烂啊，大少再怎么烂也烂不过上限锁死的7班
+
+顺便，你以为圣母的只有赔款？皇太子助纣为虐+半截跑路搁现实里高低得给安排一个叛国罪，你帝国连个屁都不敢放
+
+竟然还拿死去的宰相说事，简直笑死我了，死人有时候比活人有用是吧  <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 4280#       发表于 2024-9-10 09:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你法这个低能政治系也没必要辩了吧，反正确实结果就是整个帝国领导层就一帮废物圣母（）
+

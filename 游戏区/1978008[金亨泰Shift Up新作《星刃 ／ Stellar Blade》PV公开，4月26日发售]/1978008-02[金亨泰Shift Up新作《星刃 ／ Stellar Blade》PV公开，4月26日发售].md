@@ -77,3 +77,35 @@ The 「First EVE」 design, drawn in 2020.
 支 ...</blockquote>
 支线刷新都是根据剧情阶段整批出，并且没有时间限制。每次推进主线到一定阶段，把能接都接了，大地图扫一遍最后一个支线传送回去就行了，实际流程大约就4-5批支线而已。大地图基本不需要特地去探索，跟着支线逛一圈就差不多全收集了。真结局要求很低，不需要焦虑。
 
+
+*****
+
+####  nagitoY  
+##### 1704#       发表于 2024-9-10 09:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66161628&amp;ptid=1978008" target="_blank">jxzeroga0 发表于 2024-9-10 09:26</a>
+
+支线刷新都是根据剧情阶段整批出，并且没有时间限制。每次推进主线到一定阶段，把能接都接了，大地图扫一 ...</blockquote>
+现在我箱子也不怎么开了。
+
+发现箱子给的东西好垃圾，全是什么升级脊髓、制作衣服的材料。问题是制作衣服的材料可以直接去姐妹废品站买，简单又便宜
+
+*****
+
+####  jxzeroga0  
+##### 1705#       发表于 2024-9-10 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66161655&amp;ptid=1978008" target="_blank">nagitoY 发表于 2024-9-10 09:28</a>
+
+现在我箱子也不怎么开了。
+
+发现箱子给的东西好垃圾，全是什么升级脊髓、制作衣服的材料。问题是制作衣服 ...</blockquote>
+目标是全服装制作材料还是有点紧张。但总的来说一周目资源包括各种生命上限武器升级材料之类都是溢出的，主要是给二周目升级版插件和新衣服留的余地。一周目多开点二周目会舒服一些就是，以宝箱为目标也不容易错过一些地图探索。
+
+*****
+
+####  Schwarzess  
+##### 1706#       发表于 2024-9-10 09:34
+
+这都9月了，亨泰哟西吧说好的照片模式呢牙医shake it。<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+

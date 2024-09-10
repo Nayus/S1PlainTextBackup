@@ -7303,3 +7303,13 @@ go批闹麻了，票秒没
 
 有没有人记得鸡在megavegas是哪三首歌来着，写文想做个参考<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 22863#       发表于 2024-9-10 23:35
+
+[https://www.setlist.fm/setlist/a ... japan-2baaa016.html](https://www.setlist.fm/setlist/ave-mujica/2024/world-kinen-hall-kobe-japan-2baaa016.html)
+
+这个吗，但是显示的信息是七首
+

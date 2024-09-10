@@ -440,3 +440,48 @@ PS6至少都26-27年了，2Tflops是不是太低了。8gen3都4T了</blockquote>
 
 —— 来自 HUAWEI TAH-AN00m, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  看了十分感动  
+##### 48#       发表于 2024-9-10 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66168390&amp;ptid=2198842" target="_blank">clyde-wang 发表于 2024-9-10 21:30</a>
+
+这就是一个悖论了，很多人都是买的实体版的，如果这个掌机只能支持数字版，那不得被人冲爆？
+
+哪怕出一个 ...</blockquote>
+还没来得及回，索尼就发了700刀的纯数字ps5pro，看来索尼还是很自信的
+
+*****
+
+####  体质的错  
+##### 49#       发表于 2024-9-10 23:28
+
+快端上来吧，至少让任天堂努力点，不至于一代掌机坐吃8年
+
+*****
+
+####  clyde-wang  
+##### 50#       发表于 2024-9-10 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66169507&amp;ptid=2198842" target="_blank">体质的错 发表于 2024-9-10 23:28</a>
+快端上来吧，至少让任天堂努力点，不至于一代掌机坐吃8年</blockquote>
+按照爆料的要等PS6世代了，那起码还有2-3年
+
+但是不好说，PS5 pro这定价，说不定会加速后续产品迭代
+
+
+*****
+
+####  clyde-wang  
+##### 51#       发表于 2024-9-10 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66169111&amp;ptid=2198842" target="_blank">oskneo 发表于 2024-9-10 22:53</a>
+那时反对意见也不大，毕竟买了数字版后，盘能卖出去
+
+—— 来自 HUAWEI TAH-AN00m, Android 12上的 S1Nex ...</blockquote>
+主要是PSP的盘流动性不大吧，生涯都没多少百万销量游戏，现在PS4/PS5的实体盘销量可比PSP时候大多了…
+
+就我今天看YouTube上PS5 pro无光驱 价格出来都在觉得难以置信的时候，我觉得索尼还是太低估实体用户了
+

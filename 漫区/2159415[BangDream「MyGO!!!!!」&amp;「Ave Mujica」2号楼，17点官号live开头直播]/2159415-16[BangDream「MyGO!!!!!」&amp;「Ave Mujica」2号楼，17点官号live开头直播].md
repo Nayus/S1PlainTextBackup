@@ -7365,3 +7365,16 @@ lsl生日我记得弄有送祝福吧<img src="https://static.saraba1st.com/image
 —— 来自 nubia NX679S, Android 13上的 S1Next-鹅版 v ...</blockquote>
 坐到周边城市转线，或者换飞机试试
 
+
+*****
+
+####  550616  
+##### 22869#       发表于 2024-9-11 02:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66167286&amp;ptid=2159415" target="_blank">rollingusagi 发表于 2024-9-10 19:16</a>
+
+上次萝的巡演平台上还显示有7w多人呢，肯定一堆代抢的还有找家人小伙伴帮忙的
+
+  -- 来自 能手机投票的 Sta ...</blockquote>
+萝开票前4.8还是可信，后来嘛
+

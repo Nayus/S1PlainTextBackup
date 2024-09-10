@@ -496,3 +496,13 @@ PS6至少都26-27年了，2Tflops是不是太低了。8gen3都4T了</blockquote>
 我一直不明白很多人期望的可以玩库里的PS4/PS5游戏，如果只是为了玩老游戏，索尼为什么要推出一个盈利面这 ...</blockquote>
 和PS6共享游戏库啊，从PS5 Slim开始看得出来索尼都已经开始主推数字版了，更别提第七世代就搞过cross buy和cross save这服务。到时候买了PS6的人如果想便携玩的话可以再买个新掌机，如果家里没条件搞据置机的就去买掌机，反正游戏库是通用的，估计索尼打的就是这算盘。
 
+
+*****
+
+####  clyde-wang  
+##### 53#       发表于 2024-9-11 06:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66170994&amp;ptid=2198842" target="_blank">布拉德莱恩 发表于 2024-9-11 05:14</a>
+和PS6共享游戏库啊，从PS5 Slim开始看得出来索尼都已经开始主推数字版了，更别提第七世代就搞过cross buy ...</blockquote>
+按照爆料是玩PS4/PS5老游戏的，如果可以运行PS6游戏，那又要分流走本来买PS6的人中的一部分，优化地狱可以比XSS和XSX还夸张，2Tf和PS6至少20-25Tf的性能差距可比XSS和XSX现在的差距还要大
+

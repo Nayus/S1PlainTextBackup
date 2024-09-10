@@ -13226,3 +13226,11 @@ bb2宝了两个四星都没影...
 
 明天会解锁迪拜BB三破吗，会有新卡池吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 14550#       发表于 2024-9-10 19:04
+
+新卡池肯定有啊 都觉得要复刻公主偏给你端个帝王花卡池上来
+

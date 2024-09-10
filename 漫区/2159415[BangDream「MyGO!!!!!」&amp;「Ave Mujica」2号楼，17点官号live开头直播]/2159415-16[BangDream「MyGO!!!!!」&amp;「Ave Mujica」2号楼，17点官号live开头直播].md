@@ -7185,3 +7185,26 @@ GO批太多了，抢不到票<img src="https://static.saraba1st.com/image/smiley
 
 go批闹麻了，票秒没
 
+
+*****
+
+####  rikaren  
+##### 22851#       发表于 2024-9-10 19:08
+
+<img src="https://img.saraba1st.com/forum/202409/10/190805jthzvczbzpt9pp2o.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-09-10-19-07-50-91_76eaced432273cd65da1ec13409568ff.jpg</strong> (305.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-10 19:08 上传
+
+神秘嘉宾
+
+*****
+
+####  星天观测  
+##### 22852#       发表于 2024-9-10 19:11
+
+以后还有说这楼的狗u全被鸡推排挤完了的就让他翻今天的记录<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

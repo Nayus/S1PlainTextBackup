@@ -6698,3 +6698,18 @@ IMG_5524(20240910-102846).PNG
 
 像哭着唱完的，开头就没上的来气。
 
+
+*****
+
+####  星天观测  
+##### 22795#       发表于 2024-9-10 13:49
+
+大火都在听翻唱了，我还在被弄茜互动吓晕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 22796#       发表于 2024-9-10 13:53
+
+漏油说得我都想去听一下到底什么样了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

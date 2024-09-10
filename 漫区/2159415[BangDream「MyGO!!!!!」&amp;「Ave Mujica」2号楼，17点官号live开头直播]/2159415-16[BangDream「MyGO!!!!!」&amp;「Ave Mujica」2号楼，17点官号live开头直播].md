@@ -6898,3 +6898,26 @@ wsd的脑子有屎 真的
 
 顺带一提这首死命压嗓的断气唱法多半是继承了上次我心危op的，一样的晦气
 
+
+*****
+
+####  六道明  
+##### 22819#       发表于 2024-9-10 14:40
+
+底边好啊，底边了晚上别抢我票<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 22820#       发表于 2024-9-10 14:43
+
+<img src="https://img.saraba1st.com/forum/202409/10/144313qqe8of7j11bj1111.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1725950579334.jpg</strong> (99.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-10 14:43 上传
+
+三月份的时候和好友讨论电锯人ed该怎么分配给剩下九个团，看来ed7用夹子音唱是众望所归。
+

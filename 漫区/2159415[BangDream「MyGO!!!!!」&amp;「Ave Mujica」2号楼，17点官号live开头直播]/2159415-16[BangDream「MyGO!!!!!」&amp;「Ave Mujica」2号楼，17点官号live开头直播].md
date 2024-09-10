@@ -7068,3 +7068,44 @@ GO批太多了，抢不到票<img src="https://static.saraba1st.com/image/smiley
 
 你们都在猫眼抢的吗，我去携程抢的，也没抢到就是了
 
+
+*****
+
+####  超极巨鲨鲨  
+##### 22838#       发表于 2024-9-10 18:06
+
+试着抢了一下居然抢到了，但是广州跑去上海好麻烦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/87a5eedc0b2946d7b26e022ef01d187f/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  六道明  
+##### 22839#       发表于 2024-9-10 18:07
+
+报名受理:2024年9月10日-9月13日
+
+地点:上海国家会展中心虹馆EH
+
+工作时间:2024年9月21日(星期六)14:00-22:00
+
+工资待遇:200元/天，包餐
+
+工作内容:开演前整队协助;观众入座协助;观众需求处理;场内盗摄管理;影响其他观众观演的不文明行为制止;盗版商贩驱逐;其他突发情况处理
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ShikiM  
+##### 22840#       发表于 2024-9-10 18:07
+
+服了，秒没<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 22841#       发表于 2024-9-10 18:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png">想起之前还有人说泥漏没有狗友呢，这不是挺多吗
+

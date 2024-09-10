@@ -13696,3 +13696,30 @@ UCG的评测，又有新截图
 
 你别说你还真别说，这个内置词典确实是史诗级强化<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Archer长羽  
+##### 4335#       发表于 2024-9-10 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66166703&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-10 17:57</a>
+
+你别说你还真别说，这个内置词典确实是史诗级强化</blockquote>
+“但这类系统体贴归体贴，问题也很明显。例如有部分过往要素单靠简单的说明并不能完全说清楚关键的细节，存在看了说明后还是有点一头雾水的情况。
+
+另外一种问题则是容易碰到关键字套娃，一个关键字引申出了多个关键字，而引申出的关键字还有引申关键字，搞得像是在看百科写论文，带来了很大的阅读和记忆负担。
+
+所以总体来说，这个系统对于原本就有剧情理解缺失的玩家来说帮助可能相对有限，只适合给一直都有全程在玩的系列玩家用于唤回记忆。”
+
+搞给老登看的<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  一步成诗  
+##### 4336#       发表于 2024-9-10 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66166760&amp;ptid=2160194" target="_blank">Archer长羽 发表于 2024-9-10 18:05</a>
+
+“但这类系统体贴归体贴，问题也很明显。例如有部分过往要素单靠简单的说明并不能完全说清楚关键的细节， ...</blockquote>
+我就是那种容易失忆的，xx年前xx事件我还在那算半天<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

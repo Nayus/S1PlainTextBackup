@@ -13070,3 +13070,30 @@ c博士留了八个表也不写个说明书
 
 大少这人还有点乐子，曹李和克洛现在就是纯纯不可燃垃圾了。
 
+
+*****
+
+####  theti  
+##### 4272#       发表于 2024-9-10 08:09
+
+<img src="https://img.saraba1st.com/forum/202409/10/080938nx2zixr0ez33yerj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5201.jpeg</strong> (304.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-10 08:09 上传
+
+只有普通版吗
+
+*****
+
+####  ravend233  
+##### 4273#       发表于 2024-9-10 08:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66161013&amp;ptid=2160194" target="_blank">theti 发表于 2024-9-10 08:09</a>
+只有普通版吗</blockquote>
+是的，日版和中文版都没有豪华版
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

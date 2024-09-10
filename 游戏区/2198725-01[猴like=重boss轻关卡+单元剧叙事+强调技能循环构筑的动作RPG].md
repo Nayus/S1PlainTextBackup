@@ -483,3 +483,28 @@ boss rush本来就好玩啊，3A水准的本来就不多。这不比在迷宫里
 
 我想到茶杯头，也是美术极具特色，也挺火的，
 
+
+*****
+
+####  DARILBALDE  
+##### 51#       发表于 2024-9-10 08:10
+
+可别like了，这么伟大的后缀还是让魂自己享受吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+
+
+*****
+
+####  女神アイギス  
+##### 52#       发表于 2024-9-10 08:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66158518&amp;ptid=2198725" target="_blank">Hidewhite 发表于 2024-9-9 21:44</a>
+
+写这么麻烦干嘛，主要就是轻量化改造，你可以叫魂lite。不过魂like本身都不是什么严谨的词，ARPG在魂之前也 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">魂1周目到8周目数值不断上升，主打一个自助式赤石
+
+吃到吃不动为止
+
+猴感觉周目数值升得太厉害了，不够平滑
+

@@ -663,3 +663,11 @@ boss rush本来就好玩啊，3A水准的本来就不多。这不比在迷宫里
 
 但总感觉黑猴觉通关后几天就记得这几段2d动画的演出了，哦还记住了盘丝洞<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ylx0208  
+##### 67#       发表于 2024-9-10 10:52
+
+想起以前玩过一个叫“多罗罗”的游戏。
+

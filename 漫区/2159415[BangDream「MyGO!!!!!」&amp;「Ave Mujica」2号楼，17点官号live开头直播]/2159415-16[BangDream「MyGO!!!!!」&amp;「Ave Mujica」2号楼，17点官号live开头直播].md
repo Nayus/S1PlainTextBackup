@@ -6974,3 +6974,26 @@ wsd的脑子有屎 真的
 
 不爱请走开！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 22827#       发表于 2024-9-10 16:03
+
+<img src="https://img.saraba1st.com/forum/202409/10/160301yc2xnd4pn2ccpozn.png" referrerpolicy="no-referrer">
+
+<strong>图片 2024-9-10 1602.png</strong> (199.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-10 16:03 上传
+
+之前想的如果电锯人联动有二期剩下十首ed怎么分配，感觉在风格适配和难度上，邦有点难刚好一个团有一首合适的。
+
+*****
+
+####  rikaren  
+##### 22828#       发表于 2024-9-10 16:04
+
+等开完票发现全是黄牛就会展示攻击性了
+

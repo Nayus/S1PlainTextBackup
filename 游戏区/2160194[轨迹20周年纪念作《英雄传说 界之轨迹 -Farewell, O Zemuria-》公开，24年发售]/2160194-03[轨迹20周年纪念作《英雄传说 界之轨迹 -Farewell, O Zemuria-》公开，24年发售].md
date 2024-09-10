@@ -13546,3 +13546,18 @@ cf440ad162d9f2d3a54c2adbefec8a136227ccd2.jpg
 
 <img src="https://img.saraba1st.com/forum/202409/10/120525ewxx5bxu95zbuubu.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 4321#       发表于 2024-9-10 12:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png">不如首发上PC，放弃本土市场专攻海外市场了
+
+*****
+
+####  smdzh2  
+##### 4322#       发表于 2024-9-10 12:10
+
+你以为虾饺不想吗，人手不够/水平不行才没办法啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

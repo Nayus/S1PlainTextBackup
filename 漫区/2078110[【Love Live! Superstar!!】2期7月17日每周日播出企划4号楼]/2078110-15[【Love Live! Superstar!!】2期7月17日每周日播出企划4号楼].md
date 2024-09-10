@@ -838,3 +838,14 @@ sayu要出两首原创曲
 看到现在这个价格低价票可能会秒没，内场票真的是不愁没有。</blockquote>
 黄牛现在退也会被要求一半手续费。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csolfans  
+##### 21031#       发表于 2024-9-10 20:48
+
+<img src="https://p.sda1.dev/19/ce6e687d41da3dc4632f4df928d45f36/Image_1725972374543.jpg" referrerpolicy="no-referrer">
+What a wonderful radio完结还行……
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

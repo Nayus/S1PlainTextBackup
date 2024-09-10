@@ -6647,3 +6647,28 @@ IMG_5524(20240910-102846).PNG
 
 感觉像刚哭了一顿还没缓过来的时候唱的，唱着唱着绷不住又哭出来了
 
+
+*****
+
+####  NODY  
+##### 22789#       发表于 2024-9-10 13:14
+
+因为鸡狗翻唱的编曲换人了，不是老团的都丸椋太，老团的神编曲基本上出自他的手
+
+鸡狗的新人改编不太行
+
+*****
+
+####  akiomn  
+##### 22790#       发表于 2024-9-10 13:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">听完后去找原版洗洗耳朵，不敢想到时候对邦现场翻唱这首有多享受
+要不还是让青木来唱这首吧
+
+*****
+
+####  skives  
+##### 22791#       发表于 2024-9-10 13:17
+
+鸡狗担负起了邦多利未来的重任 然而wsd回报给鸡狗的是新人编曲和鬼图<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

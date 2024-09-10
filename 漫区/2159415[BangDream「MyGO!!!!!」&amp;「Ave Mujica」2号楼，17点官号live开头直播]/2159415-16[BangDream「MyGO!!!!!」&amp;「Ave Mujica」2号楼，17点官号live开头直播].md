@@ -6480,3 +6480,13 @@ P.S. 我比较好奇后篇的film live，说是卡在mygo动画和mujica动画�
 
 看在鼓子那么努力的份上也不至于吧，我觉得绫奈对立希的恶趣味都可以删了，没一点正面作用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 22774#       发表于 2024-9-10 08:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">总之把鸡相关的能删删了挺好的
+
+不然又要叠加欠狗时长咯
+

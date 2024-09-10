@@ -508,3 +508,17 @@ boss rush本来就好玩啊，3A水准的本来就不多。这不比在迷宫里
 
 猴感觉周目数值升得太厉害了，不够平滑
 
+
+*****
+
+####  soliz  
+##### 53#       发表于 2024-9-10 08:32
+
+ 本帖最后由 soliz 于 2024-9-10 08:37 编辑 
+
+怎么不说是石榴like呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+重演出轻关卡，单元剧（存疑）叙事，技能循环，吉rpg全部能对上是吧
+
+我合理怀疑这套框架这是总制作人mmo做多了思维惯性导向的结果，打技能循环我们窝窝狒狒玩家可太熟了<img src="https://static.saraba1st.com/image/smiley/face/84.gif" referrerpolicy="no-referrer">
+

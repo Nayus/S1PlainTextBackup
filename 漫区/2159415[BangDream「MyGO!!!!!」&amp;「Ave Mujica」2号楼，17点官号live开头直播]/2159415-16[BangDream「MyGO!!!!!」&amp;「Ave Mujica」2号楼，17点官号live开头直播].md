@@ -7285,3 +7285,13 @@ go批闹麻了，票秒没
 
 看了下咸鱼一堆黄牛票嘛<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Drawrain  
+##### 22861#       发表于 2024-9-10 21:09
+
+感觉这次携程好抢，我好几个朋友都是在携程抢到了
+
+—— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -109,3 +109,13 @@ The 「First EVE」 design, drawn in 2020.
 
 这都9月了，亨泰哟西吧说好的照片模式呢牙医shake it。<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nagitoY  
+##### 1707#       发表于 2024-9-11 10:38
+
+剑星开箱子给的奖励实在是太搞笑了。
+
+埃多斯7号有个箱子必须在后期升级了无人机技能才能开，要玩家专门回去一趟开箱子，发现里面给的只有钱。钱在这游戏里应该是最溢出的资源了。
+

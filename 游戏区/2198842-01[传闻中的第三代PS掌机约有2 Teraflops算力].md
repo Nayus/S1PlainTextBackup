@@ -603,3 +603,21 @@ MLID的爆料里就没说过新掌机只能玩PS4/5游戏，而是和PS6配套�
 
 用电子垃圾割韭菜是索尼的既定策略
 
+
+*****
+
+####  ybfelix  
+##### 64#       发表于 2024-9-11 10:38
+
+老游戏本地，新游戏像Portal那样串流呗。Portal不是卖得还行，床都懒得下的人比想象的多…
+
+*****
+
+####  布拉德莱恩  
+##### 65#         楼主| 发表于 2024-9-11 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66171453&amp;ptid=2198842" target="_blank">4869Bi 发表于 2024-9-11 08:42</a>
+
+性能差距越大，开发难度越小</blockquote>
+玩家对据置机的要求和对掌机的是一样的？峰值算力2.8 TFlops的Ryzen Z1或8.6 TFlops的Ryzen Z1 Extreme和4070ti的40.09 TFlops差距算不算大？Windows掌机都能跑那些开发时根本就没考虑过Windows掌机的游戏，总共就据置机和掌机两个SKU，传统游戏主机这种闭源系统的效率和优化难度难道比Windows还高？
+

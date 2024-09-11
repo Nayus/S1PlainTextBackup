@@ -159,3 +159,21 @@ Q. 您之前提到的测试又是怎么回事？
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  FLZB  
+##### 5331#       发表于 2024-9-11 22:09
+
+别急，挽回一波口碑之后慢慢整活，只要数值改动还是50%、30%、100%这么调我就不指望他这破游戏能平衡<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ravend233  
+##### 5332#       发表于 2024-9-11 22:11
+
+我觉得他们就别折腾平衡了，这波做完赶紧做新内容去，新玩具让老东西变成小丑也无所谓，网游就是玩的一个数值膨胀嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

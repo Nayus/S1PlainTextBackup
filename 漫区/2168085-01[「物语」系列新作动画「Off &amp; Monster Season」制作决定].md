@@ -140,3 +140,11 @@ undead的mv终于要发了，估计一直在等沙发套的工期吧
 
 还追加地上波了，早干嘛去了牢A
 
+
+*****
+
+####  集合酱  
+##### 883#       发表于 2024-9-11 19:47
+
+人家给yoasobi做mv都是早早做好恨不得当天就发物语愣是拖了两个多月 这就是我们沙发套的工期<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

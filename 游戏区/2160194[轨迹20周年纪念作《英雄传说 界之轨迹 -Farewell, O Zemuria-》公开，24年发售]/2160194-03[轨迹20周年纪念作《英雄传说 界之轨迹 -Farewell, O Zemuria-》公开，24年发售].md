@@ -14611,3 +14611,38 @@ e大师相比画男角色，画女角色立绘真的一坨，往好了想女仆�
 小商品的图还挺有设计感的，结果是展会赠品。怀疑你法是不是失去市设计场嗅觉了 ...</blockquote>
 想多了，你法往年TGS试玩至少能送个杯子，这次是缩水的
 
+
+*****
+
+####  卢迪克  
+##### 4419#       发表于 2024-9-11 15:11
+
+ 本帖最后由 卢迪克 于 2024-9-11 15:12 编辑 
+
+还没出就吃瘪了
+
+<img src="https://img.saraba1st.com/forum/202409/11/150008phikixv9mgegaoi5.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240911_145757.jpg</strong> (12.26 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-11 15:00 上传
+
+<img src="https://img.saraba1st.com/forum/202409/11/151045sjrjjryjfpjojjxm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240911_151037.jpg</strong> (136.21 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-11 15:10 上传
+
+*****
+
+####  Aeons  
+##### 4420#       发表于 2024-9-11 15:12
+
+古战场打昏了，帽男第二张糊图乍一看还以为光头
+

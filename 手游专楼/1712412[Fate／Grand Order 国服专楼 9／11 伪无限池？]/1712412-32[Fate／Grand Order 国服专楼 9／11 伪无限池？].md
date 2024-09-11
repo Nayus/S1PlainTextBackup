@@ -126,3 +126,11 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">长草期好无聊。。。。。。又没qp本ap减半
 
+
+*****
+
+####  苍蓝之枪  
+##### 46741#       发表于 2024-9-11 22:35
+
+而且还没什么想刷的素材，手上所有5星都410了，4星不想乱点技能
+

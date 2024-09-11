@@ -7578,3 +7578,13 @@ https://www.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2066984&amp;page=3
 
 第一次大闹鸡狗切割的本来就是狗厨，不满13集mujica的剧情份量急着要切割，还有各种贷款mujica剧情烂完而mygo是佳作的随时准备切割的。但是现在理中客们骂鸡狗切割一般都是在骂鸡毒唯极端<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 22891#       发表于 2024-9-11 22:41
+
+现在有些人不同意切割不就是因为还想在鸡里看到自推的戏份么，贷款自推拯救鸡的一大把
+
+老坛的嘴脸啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

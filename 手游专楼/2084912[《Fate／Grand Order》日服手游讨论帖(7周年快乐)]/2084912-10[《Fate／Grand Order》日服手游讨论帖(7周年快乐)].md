@@ -13648,3 +13648,13 @@ bb2宝了两个四星都没影...
 
 当然要是终章开头结果一大堆人都没救到那又是另一回事了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sin.yugi  
+##### 14589#       发表于 2024-9-12 05:58
+
+问题是fgo除了牢藏那样的data lost,英灵便当能有什么煽情部分，等会就回到伽勒底活蹦乱跳了
+
+— from nubia NX729J, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+

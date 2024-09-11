@@ -13444,3 +13444,32 @@ bb2宝了两个四星都没影...
 看到了吧，月之王都看不起绿卡
 <img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 14571#       发表于 2024-9-11 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66177657&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-9-11 19:11</a>
+
+打完的感想就是，给菌菌拼麻了
+
+感觉在看什么新概念尸块文学，怎么啥都给你拼一起了啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">啊 已经打完了？ 内容这么少？
+
+*****
+
+####  TheLoof  
+##### 14572#       发表于 2024-9-11 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66177730&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-9-11 19:20</a>
+
+啊 已经打完了？ 内容这么少？</blockquote>
+对啊，真的就这么少啊
+
+前篇还有不少铺垫内容得想一下，这个中篇他就非常的，泳装，你都懂的吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我觉得我前面说的，上中下加一起可能没2.6灌的水多很有可能要成真了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

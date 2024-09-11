@@ -13371,3 +13371,31 @@ bb2宝了两个四星都没影...
 消耗10np，出十颗星+洗牌，cd还是0。我现在知道为什么之前要给尺呆一个强化本了。 ...</blockquote>
 算上被动和三技能，开局能洗五次牌，这才是真正的荷官啊，狮子王学着点。
 
+
+*****
+
+####  Jamaisvu  
+##### 14564#       发表于 2024-9-11 17:48
+
+话说二技能这个三色魔放和对应攻击特效，是不是给杰罗尼莫的强化提供了一个思路...
+
+
+*****
+
+####  angelooo  
+##### 14565#       发表于 2024-9-11 17:53
+
+都忘了今天更新了……白野要落地了？
+
+*****
+
+####  v22325  
+##### 14566#       发表于 2024-9-11 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66176939&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-9-11 17:43</a>
+
+军装白野真帅啊，模组也很有FEX的情怀。
+
+目前的防御相克是“回避＜必中＜无敌＜无敌贯通＜对肃正防御＜对肃 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">CBA那宝具就全体一回合和术呆那全体OC多次数还是差远了。
+

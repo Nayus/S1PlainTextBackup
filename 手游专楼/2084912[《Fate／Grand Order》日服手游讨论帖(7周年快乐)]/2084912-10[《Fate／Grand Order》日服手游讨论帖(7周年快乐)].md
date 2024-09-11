@@ -13421,3 +13421,26 @@ bb2宝了两个四星都没影...
 扎比子不会做成5星月王下篇塞卡池吧</blockquote>
 给个女版灵衣不错了，搞不好都没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TheLoof  
+##### 14569#       发表于 2024-9-11 19:11
+
+打完的感想就是，给菌菌拼麻了
+
+感觉在看什么新概念尸块文学，怎么啥都给你拼一起了啊
+
+真就是把泳装和一个点子型短剧情嗯凑是吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TheLoof  
+##### 14570#       发表于 2024-9-11 19:13
+
+顺便比较搞的乐子是，白野第一战直接给你红蓝UP，然后对面给你上quick封印
+
+看到了吧，月之王都看不起绿卡
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

@@ -13969,3 +13969,19 @@ ff7rb指令战斗和即时战斗的战斗系统融合的就很不错。感觉是
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  aimujie  
+##### 4360#       发表于 2024-9-11 11:18
+
+虽然大鲸鱼数值脚填，但确实很快乐<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Kojimaru  
+##### 4361#       发表于 2024-9-11 11:21
+
+0ep大鲸鱼确实爽，支持继续
+

@@ -270,3 +270,28 @@
 
 我开个吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png">虽然估计还是这楼的大伙聊了
 
+
+*****
+
+####  无动于衷  
+##### 4473#       发表于 2024-9-11 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66176135&amp;ptid=2160194" target="_blank">wzz1331 发表于 2024-9-11 16:18</a>
+
+要是结尾是认认真真地和空FC重制衔接的话，我只能说法老控花20年时间创造了一个前无古人后无来者的神话。
+
+ ...</blockquote>
+类似的还是有的，比如隔壁京阿尼的无尽的八月刷了八次，当然人家那是动画，且只一周一话，且有原作依托
+
+你法要真敢一圈一圈20年20年的刷，那确实堪称人类历史上最伟大的行为艺术
+
+*****
+
+####  Falcomfans  
+##### 4474#       发表于 2024-9-11 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66176076&amp;ptid=2160194" target="_blank">卡拉德利姆 发表于 2024-9-11 16:10</a>
+
+我已经在一百个动画/电影/游戏里看到the end of the beginning，the beginning of the end的陈腔滥调了 ...</blockquote>
+这恰恰是英文轨迹一直以来的宣传口号，One trail ends, another begins。
+

@@ -585,3 +585,13 @@ psv不就这样吗？当然，最后psv死了，ps4成功了。
 MLID的爆料里就没说过新掌机只能玩PS4/5游戏，而是和PS6配套发售同属一个生态圈。而且Series S拖累Series  ...</blockquote>
 你这话我听xss发布会上大胡子说过。ps6肯定不会沿用16g融合内存，那ps掌机是选择最合理的16g还是对标ps6？一台性能更弱，内存更小，功耗更低（甚至非常低）的机器，这不就是xss究极劣化版吗？没有玩家基数值得优化或者性能可以力大砖飞，反正我不看好。
 
+
+*****
+
+####  4869Bi  
+##### 62#       发表于 2024-9-11 08:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66171164&amp;ptid=2198842" target="_blank">布拉德莱恩 发表于 2024-9-11 07:33</a>
+MLID的爆料里就没说过新掌机只能玩PS4/5游戏，而是和PS6配套发售同属一个生态圈。而且Series S拖累Series  ...</blockquote>
+性能差距越大，开发难度越小<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -466,3 +466,15 @@ Highleg，直接开舔！
 
 剑女建模比立绘更丑了
 
+
+*****
+
+####  古畑任三郎2015  
+##### 4492#       发表于 2024-9-11 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66176118&amp;ptid=2160194" target="_blank">林有德kanjo 发表于 2024-9-11 16:15</a>
+难绷机翻</blockquote>
+利好北美市场<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

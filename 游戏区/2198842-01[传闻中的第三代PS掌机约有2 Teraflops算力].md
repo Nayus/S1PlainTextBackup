@@ -621,3 +621,16 @@ MLID的爆料里就没说过新掌机只能玩PS4/5游戏，而是和PS6配套�
 性能差距越大，开发难度越小</blockquote>
 玩家对据置机的要求和对掌机的是一样的？峰值算力2.8 TFlops的Ryzen Z1或8.6 TFlops的Ryzen Z1 Extreme和4070ti的40.09 TFlops差距算不算大？Windows掌机都能跑那些开发时根本就没考虑过Windows掌机的游戏，总共就据置机和掌机两个SKU，传统游戏主机这种闭源系统的效率和优化难度难道比Windows还高？
 
+
+*****
+
+####  Citriski  
+##### 66#       发表于 2024-9-11 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66168390&amp;ptid=2198842" target="_blank">clyde-wang 发表于 2024-9-10 21:30</a>
+
+这就是一个悖论了，很多人都是买的实体版的，如果这个掌机只能支持数字版，那不得被人冲爆？
+
+哪怕出一个 ...</blockquote>
+是不是忘记了当年PSP Go就是没有umd读取，只能玩下载游戏的
+

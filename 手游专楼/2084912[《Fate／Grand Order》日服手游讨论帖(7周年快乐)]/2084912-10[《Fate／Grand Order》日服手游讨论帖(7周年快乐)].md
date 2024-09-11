@@ -13622,3 +13622,29 @@ bb2宝了两个四星都没影...
 
 打完了,气氛感情到位了还是蛮爽了……就是感觉有点太套路了……
 
+
+*****
+
+####  khxooo  
+##### 14587#       发表于 2024-9-12 03:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66180071&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-9-12 02:54</a>
+无双我记得也只有1个扎比吧....EXTELLA里出现的红蓝绿扎比都是同一个扎比分裂出来的
+
+是不是和动画搞混了 ...</blockquote>
+无双也是两个扎比
+
+*****
+
+####  森兰丸  
+##### 14588#       发表于 2024-9-12 04:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66180078&amp;ptid=2084912" target="_blank">v22325 发表于 2024-9-12 03:00</a>
+
+打完了,气氛感情到位了还是蛮爽了……就是感觉有点太套路了……</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">套路没关系....经典之所以是经典就是因为大多数人都喜欢...主要还是看具体写作水平如何
+
+只不过这次开打前BB都提前打预防针了一半从者会死掉....每个人行动前也都做好了牺牲的觉悟....结果打完爱迪狮还能派出救援队去救人...没一个人有事......这还是废狗的主线剧情吗
+
+当然要是终章开头结果一大堆人都没救到那又是另一回事了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

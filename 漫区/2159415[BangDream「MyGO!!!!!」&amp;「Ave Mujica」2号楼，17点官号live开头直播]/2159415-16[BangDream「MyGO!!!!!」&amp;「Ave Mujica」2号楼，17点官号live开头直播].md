@@ -7528,3 +7528,21 @@ eupd说有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" 
 
 天惹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  极速赛车手  
+##### 22886#       发表于 2024-9-11 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66178385&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-9-11 20:56</a>
+
+https://www.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2066984&amp;page=331#pid62413947       闲来无 ...</blockquote>
+看了一眼，续篇复活c团还有真奈+c团复仇都来了，这些人是不是都不把企划当回事的<img src="https://static.saraba1st.com/image/smiley/face2017/168.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 22887#       发表于 2024-9-11 21:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当时mujica推完全没有呼吸权是这样的，甚至往前翻翻还能看见最早要求mygo和mujica切割的是mygo推
+

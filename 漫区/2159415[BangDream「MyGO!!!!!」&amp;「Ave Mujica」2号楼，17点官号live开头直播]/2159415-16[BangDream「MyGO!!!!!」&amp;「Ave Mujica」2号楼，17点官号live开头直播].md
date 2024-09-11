@@ -7723,3 +7723,14 @@ Mujica 动画烂的猜测很难说是贷款吧，独角兽提前切割，柿本�
 
 另外四个人合写生日歌，睦临时转键盘然后吉他贝斯鼓键盘给祥子唱歌刚刚好，还能把钢琴课和访谈说的有可能换乐器的伏笔回收了
 
+
+*****
+
+####  adcdqre  
+##### 22906#       发表于 2024-9-12 01:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66179231&amp;ptid=2159415" target="_blank">yuyin589 发表于 2024-09-11 22:33:42</a>
+第一次大闹鸡狗切割的本来就是狗厨，不满13集mujica的剧情份量急着要切割，还有各种贷款mujica剧情烂完而my ...</blockquote>不是一队也能叫毒唯啊？那如果我只带go岂不是对老团不够一视同仁又何尝不是毒唯
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

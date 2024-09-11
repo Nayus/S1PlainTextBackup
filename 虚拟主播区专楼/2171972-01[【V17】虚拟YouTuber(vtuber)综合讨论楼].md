@@ -3247,3 +3247,13 @@ o榜一直是砍商法和复数的，我不觉得rofmao这么初动型的后劲�
 
 虹新财报出了啊，下降的真多<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  吃咸菜的  
+##### 729#       发表于 2024-9-12 07:04
+
+全在跌都没法找补了
+
+—— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

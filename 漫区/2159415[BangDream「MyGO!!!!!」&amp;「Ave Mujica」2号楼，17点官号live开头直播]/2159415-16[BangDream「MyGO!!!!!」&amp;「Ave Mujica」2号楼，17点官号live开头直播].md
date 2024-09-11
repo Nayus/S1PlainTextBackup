@@ -7654,3 +7654,21 @@ https://www.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2066984&amp;page=3
 
 只能说二偶企划的特性没能满足他们真是遗憾呀<img src="https://static.saraba1st.com/image/smiley/face/145.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives10  
+##### 22899#       发表于 2024-9-12 00:46
+
+按他们的逻辑
+那明年要赢的岂不是主角队mujica<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+哪来那么多比赛啊 赢不赢的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 22900#       发表于 2024-9-12 00:54
+
+错误的，鸡是反派敌团恶役，主角什么的明明是……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

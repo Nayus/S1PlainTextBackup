@@ -7554,3 +7554,19 @@ https://www.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2066984&amp;page=3
 
 因为那时候不少人觉得鸡抢了mygo戏份，要求切割吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 22889#       发表于 2024-9-11 22:23
+
+ 本帖最后由 PDQ4 于 2024-9-11 22:26 编辑 
+
+去年大环境是这个样的，鸡厨祥厨都没有呼吸权
+
+最后悔自己有好奇心的一集，没忍住去听了杨洁的翻唱<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+音宝越来越棒了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+这楚萍方的rap是真的爽啊，上头了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+

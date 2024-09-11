@@ -148,3 +148,52 @@ undead的mv终于要发了，估计一直在等沙发套的工期吧
 
 人家给yoasobi做mv都是早早做好恨不得当天就发物语愣是拖了两个多月 这就是我们沙发套的工期<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 884#         楼主| 发表于 2024-9-11 20:01
+
+忍物语 三卷共六话
+
+━━━━━━━━
+
+   Blu-ray&amp;DVD
+
+　　発売決定
+
+━━━━━━━━
+
+#物語シリーズ オフ&amp;モンスターシーズン
+
+『愚物語』/ つきひアンドゥ
+
+Blu-ray&amp;DVD
+
+ジャケットイラスト解禁
+
+▸発売日：2024年12月11日(水)
+[https://www.monogatari-series.com/oms/bddvd/index.html](https://www.monogatari-series.com/oms/bddvd/index.html)
+<img src="https://p.sda1.dev/19/e0aa8d16f05400301e910a9d9f0b0513/jk_01.jpg" referrerpolicy="no-referrer">">
+
+*****
+
+####  Piano-Forest  
+##### 885#         楼主| 发表于 2024-9-11 20:02
+
+#08 業物語 あせろらボナペティ 其ノ貮
+
+依然として繰り返し死んでいるスーサイドマスターは、食べる側だけでなく食べられる側にも意識改革が必要だと思いついた。アセロラ姫が懸命に変わろうとする姿を微笑ましく見ているスーサイドマスター。しかしトロピカレスクは、そんなあるじに対し思うところがあって……。
+
+脚本：大嶋実句
+
+絵コンテ：青柳隆平
+
+演出：志村 亮
+
+作画監督：伊藤良明・高野晃久・許有真・高橋みき・宮嶋仁志・清水勝祐・浅井昭人
+<img src="https://p.sda1.dev/19/cc4c973dffd11401c1c3017502f05f86/story_3658_photo_1724910010494624687.jpg" referrerpolicy="no-referrer">">
+<img src="https://p.sda1.dev/19/7f0f54ccb7438059c5dd8399b9f6c139/story_3658_photo_1724910010810626746.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/0f090a544c47ff7d08a81c95ad35cdf0/story_3658_photo_1724910010997412737.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/4b62895b622b4e015540c17b0bce2c43/story_3658_photo_172491001126793673.jpg" referrerpolicy="no-referrer">
+

@@ -7394,3 +7394,11 @@ lsl生日我记得弄有送祝福吧<img src="https://static.saraba1st.com/image
 
 只能说幸好是xdx，ldx要点多少下都不敢想象，何况3d衣服是真的耗资源。
 
+
+*****
+
+####  星天观测  
+##### 22871#       发表于 2024-9-11 08:33
+
+这个好像出公告会优化的，我昨天光是把萝和ppp点完就花了好久<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

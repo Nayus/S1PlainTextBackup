@@ -7570,3 +7570,11 @@ https://www.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2066984&amp;page=3
 
 这楚萍方的rap是真的爽啊，上头了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yuyin589  
+##### 22890#       发表于 2024-9-11 22:33
+
+第一次大闹鸡狗切割的本来就是狗厨，不满13集mujica的剧情份量急着要切割，还有各种贷款mujica剧情烂完而mygo是佳作的随时准备切割的。但是现在理中客们骂鸡狗切割一般都是在骂鸡毒唯极端<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

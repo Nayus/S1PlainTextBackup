@@ -595,3 +595,11 @@ MLID的爆料里就没说过新掌机只能玩PS4/5游戏，而是和PS6配套�
 MLID的爆料里就没说过新掌机只能玩PS4/5游戏，而是和PS6配套发售同属一个生态圈。而且Series S拖累Series  ...</blockquote>
 性能差距越大，开发难度越小<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cm_kahn  
+##### 63#       发表于 2024-9-11 10:28
+
+用电子垃圾割韭菜是索尼的既定策略
+

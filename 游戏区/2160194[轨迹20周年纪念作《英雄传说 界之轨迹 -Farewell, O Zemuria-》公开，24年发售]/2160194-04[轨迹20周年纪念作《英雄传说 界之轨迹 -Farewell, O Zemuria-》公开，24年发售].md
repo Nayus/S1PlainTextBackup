@@ -411,3 +411,24 @@ Highleg，直接开舔！
 黎1范爷模型拿来重新用（</blockquote>
 那个叫魔王，黎轨里魔神是杰拉尔
 
+
+*****
+
+####  妮贝雅  
+##### 4486#       发表于 2024-9-11 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66176410&amp;ptid=2160194" target="_blank">Archer长羽 发表于 2024-9-11 16:46</a>
+
+这张试玩图里的16个人，加上3、9、菲、玲、金、金凯德、冰星杯、火星杯，正好24个人 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">看来伊克斯危啊（
+
+*****
+
+####  Archer长羽  
+##### 4487#       发表于 2024-9-11 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66176627&amp;ptid=2160194" target="_blank">妮贝雅 发表于 2024-9-11 17:07</a>
+
+看来伊克斯危啊（</blockquote>
+他肯定危啊。之前cm还是pv里，他只出现在妹妹的瞳孔倒影里<img src="https://static.saraba1st.com/image/smiley/face/126.gif" referrerpolicy="no-referrer">
+

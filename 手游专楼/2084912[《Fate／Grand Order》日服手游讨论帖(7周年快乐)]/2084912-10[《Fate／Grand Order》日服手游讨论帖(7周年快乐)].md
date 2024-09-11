@@ -13281,3 +13281,34 @@ bb2宝了两个四星都没影...
 
 暗狐都退场了开个池子
 
+
+*****
+
+####  岸浪白野  
+##### 14555#       发表于 2024-9-11 17:06
+
+4星MC岸波白野实装
+
+<img src="https://img.saraba1st.com/forum/202409/11/170630zye0b1qtnnytgiqd.jpg" referrerpolicy="no-referrer">
+
+<strong>CBRQIH@VMKJ9@IW][J4BA%E.jpg</strong> (258.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-11 17:06 上传
+
+*****
+
+####  v22325  
+##### 14556#       发表于 2024-9-11 17:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对肃正防御贯通……终于出了这玩意了
+
+
+*****
+
+####  hououmon  
+##### 14557#       发表于 2024-9-11 17:13
+
+不会只有扎比夫吧？应该能2选1吧？
+

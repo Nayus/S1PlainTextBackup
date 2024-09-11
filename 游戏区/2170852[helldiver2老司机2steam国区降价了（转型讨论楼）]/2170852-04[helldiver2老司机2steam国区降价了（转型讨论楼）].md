@@ -141,3 +141,21 @@ Q. 您之前提到的测试又是怎么回事？
 
 不过我还有一种猜测，就是护甲机制重做，让低穿甲武器打高甲单位不是完全无伤，还是受到高额减伤，比如4打5只能造成30%伤害这种，然后把喷火器穿甲等级提到4级，可以给5甲单位造成伤害，反正无论怎么说这把武器对于泰坦这种敌人都只是"可以造成伤害"
 
+
+*****
+
+####  xinfengj  
+##### 5329#       发表于 2024-9-11 21:59
+
+<img src="https://p.sda1.dev/19/8a8f5dbc26be8c5ea54f3f3aa0530307/CMP_20240911213513338.jpg" referrerpolicy="no-referrer">
+225×250%=562.5<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">牛和泰坦2枪过充打死
+
+*****
+
+####  ravend233  
+##### 5330#       发表于 2024-9-11 22:00
+
+恐怖磁轨人是吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

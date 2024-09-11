@@ -129,3 +129,13 @@ The 「First EVE」 design, drawn in 2020.
 
 这游戏还是适合做成线性关卡，保证玩家的游戏体验。
 
+
+*****
+
+####  隔壁老黄  
+##### 1709#       发表于 2024-9-12 01:19
+
+说起来剑星我觉得最搞笑的是孽奇拔这个名字，一眼看出是native原住民的意思，核心世界观设定一开始就透得体无完肤，好歹用个小语种吧，居然直接用英文<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

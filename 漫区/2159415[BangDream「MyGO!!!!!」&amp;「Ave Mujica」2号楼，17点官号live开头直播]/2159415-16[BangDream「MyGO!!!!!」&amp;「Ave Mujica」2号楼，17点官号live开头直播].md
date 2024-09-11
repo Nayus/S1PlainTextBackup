@@ -7683,3 +7683,11 @@ https://www.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2066984&amp;page=3
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  kojima34  
+##### 22902#       发表于 2024-9-12 01:16
+
+Mujica 动画烂的猜测很难说是贷款吧，独角兽提前切割，柿本系构表现不佳等。当然mujica 动画真烂了就无所谓切不切割了，毕竟靠中华炮的话，剧情完蛋俩企划都只有末路了，这边可不像太君那么宽容😆
+

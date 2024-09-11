@@ -516,3 +516,13 @@ PS6至少都26-27年了，2Tflops是不是太低了。8gen3都4T了</blockquote>
 按照爆料是玩PS4/PS5老游戏的，如果可以运行PS6游戏，那又要分流走本来买PS6的人中的一部分，优化地狱可 ...</blockquote>
 MLID的爆料里就没说过新掌机只能玩PS4/5游戏，而是和PS6配套发售同属一个生态圈
 
+
+*****
+
+####  clyde-wang  
+##### 55#       发表于 2024-9-11 08:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66171164&amp;ptid=2198842" target="_blank">布拉德莱恩 发表于 2024-9-11 07:33</a>
+MLID的爆料里就没说过新掌机只能玩PS4/5游戏，而是和PS6配套发售同属一个生态圈。而且Series S拖累Series  ...</blockquote>
+那就等实物吧，现在大家讨论也没法想象真正的模样，我个人不看好这种共享游戏库的做法
+

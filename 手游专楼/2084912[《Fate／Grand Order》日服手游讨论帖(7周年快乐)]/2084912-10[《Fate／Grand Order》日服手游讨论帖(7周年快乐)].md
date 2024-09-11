@@ -13510,3 +13510,11 @@ bb2宝了两个四星都没影...
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要求不高，剧情给钻就行
 
+
+*****
+
+####  v22325  
+##### 14577#       发表于 2024-9-11 21:07
+
+看到白夜野这攻击模组,想起来fgo这好久都没看到阿提拉的戏份了……ex最后还就一道光,人都不出来的……
+

@@ -13805,3 +13805,44 @@ UCG的评测，又有新截图
 
 黎界一直往里面加东西，玩烂了到空轨re就要丢掉了，从头再来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  迷雾塔  
+##### 4344#       发表于 2024-9-11 09:47
+
+ff7rb指令战斗和即时战斗的战斗系统融合的就很不错。感觉是jrpg战斗系统一个很好的方向。
+
+*****
+
+####  迷雾塔  
+##### 4345#       发表于 2024-9-11 09:50
+
+轨迹系列还是太长了。我只玩过空轨。看着这么长的系列，除了让人肃然起敬，其他就无法继续了。加上jrpg现在本来就势微，还是早开新ip吧
+
+
+*****
+
+####  ravend233  
+##### 4346#       发表于 2024-9-11 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66172036&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-11 09:40</a>
+
+说起来近藤说空轨系统是最新作战斗系统的改良版，会进行调整使其更容易上手。
+
+黎界一直往里面加东西，玩烂 ...</blockquote>
+不就是黎轨的系统小改
+
+*****
+
+####  Kojimaru  
+##### 4347#       发表于 2024-9-11 09:57
+
+<img src="https://img.saraba1st.com/forum/202409/11/095716xx455bxru9urxutb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (125.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-11 09:57 上传
+

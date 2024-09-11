@@ -111,3 +111,15 @@ Q. 您之前提到的测试又是怎么回事？
 <img src="https://p.sda1.dev/19/667db11200fa4595dc54f6eb9cea7920/CMP_20240911093950574.jpg" referrerpolicy="no-referrer">
 这下防火甲必备了，不然要被队友秒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赤井稻妻  
+##### 5326#       发表于 2024-9-11 09:56
+
+喷火器6穿太疯了，不过作为一款近距离战斗的高风险武器，我觉得这种改动也可以
+
+之前我猜会把喷火器的伤害翻倍，至少能蒸发脸上的中甲怪，看来还是保守了
+
+而且他说的如果是全部火焰武器的话，包括新的喷火器和打火机？
+

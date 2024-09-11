@@ -13253,3 +13253,23 @@ bb2宝了两个四星都没影...
 突然发现今天是个特别的日子，中篇选在9.11更新，该不会迪拜BB的哈利法塔将被什么飞行道具撞塌吧 ...</blockquote>
 你游姑且还是有美服的，政治正确这种姑且不论，在人家坟头蹦迪这种行为还是做不出来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 14553#       发表于 2024-9-11 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66175247&amp;ptid=2084912" target="_blank">xiongxingyu 发表于 2024-9-11 14:52</a>
+
+你游姑且还是有美服的，政治正确这种姑且不论，在人家坟头蹦迪这种行为还是做不出来的 ...</blockquote>
+
+虽然飞机笑话挺地狱的，不过美服运营好像确实有点抽象，之前开学季签到活动，看板放了个军火商杀狐<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202409/11/161339vez6ofwaz71r7fx0.png" referrerpolicy="no-referrer">
+
+<strong>1726042386733.png</strong> (508.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-11 16:13 上传
+

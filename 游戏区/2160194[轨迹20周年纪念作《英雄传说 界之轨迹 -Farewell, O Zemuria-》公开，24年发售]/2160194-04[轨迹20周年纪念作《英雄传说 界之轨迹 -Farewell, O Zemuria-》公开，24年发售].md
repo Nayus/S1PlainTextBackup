@@ -78,3 +78,60 @@
 
 魔神的超越者，这个奖杯感觉要打马克邦啊
 
+
+*****
+
+####  Archer长羽  
+##### 4451#       发表于 2024-9-11 16:06
+
+我靠，今年剧透这么早，得溜了兄弟们
+
+*****
+
+####  一步成诗  
+##### 4452#       发表于 2024-9-11 16:06
+
+这下还有人觉得可以一部完结吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hkguty  
+##### 4453#       发表于 2024-9-11 16:07
+
+挑战关卡确实有可能是打他
+
+*****
+
+####  洛克萨斯  
+##### 4454#       发表于 2024-9-11 16:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是不是东迷2才能看出你法现在全力形态的实力，感觉界轨和空轨re都挺敷衍的
+
+*****
+
+####  SuNR1sE364  
+##### 4455#       发表于 2024-9-11 16:08
+
+空轨re应该不是敷衍的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过东轨2倒肯定是认真在做
+
+*****
+
+####  卢迪克  
+##### 4456#       发表于 2024-9-11 16:08
+
+杰拉尔好像也是魔神，金闪闪诈尸啦，黎2记得打他是没有语音的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kojimaru  
+##### 4457#       发表于 2024-9-11 16:09
+
+有生之年能见到全力法老控吗<img src="https://static.saraba1st.com/image/smiley/carton2017/356.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卡拉德利姆  
+##### 4458#       发表于 2024-9-11 16:10
+
+我已经在一百个动画/电影/游戏里看到the end of the beginning，the beginning of the end的陈腔滥调了
+

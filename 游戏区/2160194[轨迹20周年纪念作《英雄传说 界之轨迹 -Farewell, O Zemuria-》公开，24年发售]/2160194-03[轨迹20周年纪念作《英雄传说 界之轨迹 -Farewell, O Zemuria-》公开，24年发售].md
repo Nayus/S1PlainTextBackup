@@ -14348,3 +14348,28 @@ No. XX-b
 
 爱国同盟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道为什么看着怪幽默的
 
+
+*****
+
+####  ravend233  
+##### 4393#       发表于 2024-9-11 14:06
+
+大总统的政党就叫这个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  Kojimaru  
+##### 4394#       发表于 2024-9-11 14:09
+
+<img src="https://img.saraba1st.com/forum/202409/11/140805u5x5tbqaj29q33b3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.69 MB, 下载次数: 0)
+
+下载附件
+
+2024-9-11 14:08 上传
+
+还有这种分法
+

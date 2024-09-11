@@ -7734,3 +7734,118 @@ Mujica 动画烂的猜测很难说是贷款吧，独角兽提前切割，柿本�
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  前方暴雨预警  
+##### 22907#       发表于 2024-9-12 00:32
+
+纯动画粉当然不会管你企划里哪个是真人团啦
+
+以纯动画的视角看，你邦的乐队约于运动漫里的社团，那默认主角队最后会赢岂不是很正常？对配角队最大的尊重就是让他们赛出风采、赛出逼格、输得好看、能吸点粉，但最终还是要被主角队狠狠修正的。
+
+只能说二偶企划的特性没能满足他们真是遗憾呀<img src="https://static.saraba1st.com/image/smiley/face/145.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 22908#       发表于 2024-9-12 00:46
+
+按他们的逻辑
+那明年要赢的岂不是主角队mujica<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+哪来那么多比赛啊 赢不赢的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 22909#       发表于 2024-9-12 00:54
+
+错误的，鸡是反派敌团恶役，主角什么的明明是……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adcdqre  
+##### 22910#       发表于 2024-9-12 00:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66179494&amp;ptid=2159415" target="_blank">极速赛车手 发表于 2024-09-11 23:22:26</a>
+我都不想认这些是mygo推，天天c团c团的叫c团推还差不多</blockquote>因为c团的绝对正是里面某些部分行为的基础，c团出现瑕疵那就全完了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  kojima34  
+##### 22911#       发表于 2024-9-12 01:16
+
+Mujica 动画烂的猜测很难说是贷款吧，独角兽提前切割，柿本系构表现不佳等。当然mujica 动画真烂了就无所谓切不切割了，毕竟靠中华炮的话，剧情完蛋俩企划都只有末路了，这边可不像太君那么宽容😆
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| skives|-1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  NODY  
+##### 22912#       发表于 2024-9-12 01:27
+
+邦多利这个大部分角色都不是坏人的饺子世界观前提下，动画很难烂到哪去的
+
+目前最差评的花道领域大神那也是因为把之前五六年的人设吃书了才有这么大反应，mujica又没有什么书可以吃
+
+*****
+
+####  PDQ4  
+##### 22913#       发表于 2024-9-12 01:32
+
+想吃书还是很容易的，访谈全吃把mujica垫了又不难，给你复刻个邦三季超级加强版
+
+不过这么写也不叫动画烂了，只是鸡团烂了而已，爱看的人可能更多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 22914#       发表于 2024-9-12 01:43
+
+ 本帖最后由 NODY 于 2024-9-12 01:46 编辑 
+
+其实我觉得邦三季不是很差，楚平方主要的争议行为还是第二季抢人，而且如果真的学邦三季另外四个人给祥子写生日歌的话我还挺期待的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+另外四个人合写生日歌，睦临时转键盘然后吉他贝斯鼓键盘给祥子唱歌刚刚好，还能把钢琴课和访谈说的有可能换乐器的伏笔回收了
+
+*****
+
+####  adcdqre  
+##### 22915#       发表于 2024-9-12 01:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66179231&amp;ptid=2159415" target="_blank">yuyin589 发表于 2024-09-11 22:33:42</a>
+第一次大闹鸡狗切割的本来就是狗厨，不满13集mujica的剧情份量急着要切割，还有各种贷款mujica剧情烂完而my ...</blockquote>不是一队也能叫毒唯啊？那如果我只带go岂不是对老团不够一视同仁又何尝不是毒唯
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  yuyin589  
+##### 22916#       发表于 2024-9-12 06:34
+
+贷款说烂的又不是这几天才有的声音，mujica动画一宣就有人在那贷款翻车，聊两句就唱衰，滑坡到兽娘2的都有<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  yuyin589  
+##### 22917#       发表于 2024-9-12 06:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66180009&amp;ptid=2159415" target="_blank">adcdqre 发表于 2024-9-12 01:48</a>
+
+不是一队也能叫毒唯啊？那如果我只带go岂不是对老团不够一视同仁又何尝不是毒唯
+
+  -- 来自 能看大图的 Sta ...</blockquote>
+你觉得你是你就是呗<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+

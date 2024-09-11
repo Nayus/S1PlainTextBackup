@@ -107,3 +107,14 @@
 这游戏有病吧？</blockquote>
 打第二次纯消耗AP，不给奖励哦
 
+
+*****
+
+####  lcn  
+##### 46739#       发表于 2024-9-11 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66171266&amp;ptid=1712412" target="_blank">马桶3 发表于 2024-9-11 08:08</a>
+打第二次纯消耗AP，不给奖励哦</blockquote>
+但是要消红点就只能打啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

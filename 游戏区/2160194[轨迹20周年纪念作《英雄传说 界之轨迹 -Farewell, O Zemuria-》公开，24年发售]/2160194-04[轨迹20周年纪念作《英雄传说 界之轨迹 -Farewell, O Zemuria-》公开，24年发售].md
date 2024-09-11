@@ -350,3 +350,44 @@ Highleg，直接开舔！
 
 <img src="https://img.saraba1st.com/forum/202409/11/164529jaq4uahww0h7b7a4.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  keiyoku  
+##### 4479#       发表于 2024-9-11 16:46
+
+黑铁有可能是sub位，玲和丽霞吧
+
+*****
+
+####  Aeons  
+##### 4480#       发表于 2024-9-11 16:47
+
+金在庭院有出场的。
+丽霞可能性最小，剧情上也没什么立场
+
+
+*****
+
+####  izayoi39  
+##### 4481#       发表于 2024-9-11 16:47
+
+已经确定的是事务所8人，葱头大少39这4分，黎恩克洛黑兔菲这4个，冰火娃2个，师姐和妹妹两个，剑女和卢内2个，最后两个大概率是玲和丽霞
+
+*****
+
+####  flyingover  
+##### 4482#       发表于 2024-9-11 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66176398&amp;ptid=2160194" target="_blank">Archer长羽 发表于 2024-9-11 16:44</a>
+
+不会有黑铁的。你漏了金和玲。</blockquote>
+对着官看网的，确实可能是这样（不过官网角色一栏居然还没有玲和金吗）
+
+*****
+
+####  Archer长羽  
+##### 4483#       发表于 2024-9-11 16:50
+
+丽霞的衣服来就差不多了，人还来干嘛啊<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+

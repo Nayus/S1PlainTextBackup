@@ -13881,3 +13881,27 @@ ff7rb指令战斗和即时战斗的战斗系统融合的就很不错。感觉是
 论坛助手,iPad</blockquote>
 再整个词条库收集奖杯（
 
+
+*****
+
+####  一步成诗  
+##### 4351#       发表于 2024-9-11 10:15
+
+我记得轨的wiki字数是不是多到破纪录了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Squall25  
+##### 4352#       发表于 2024-9-11 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66172111&amp;ptid=2160194" target="_blank">迷雾塔 发表于 2024-9-11 09:47</a>
+ff7rb指令战斗和即时战斗的战斗系统融合的就很不错。感觉是jrpg战斗系统一个很好的方向。 ...</blockquote>
+黎轨原野战斗和无缝切回合制的灵感本来就是来自FF7RE的，其实轨迹这样切割成两部分是很不错的，主要已经解决了撞怪问题和无缝进出战斗，也不是非得像7re那样融合甚至7rb很多人抱怨玩不来了。当然轨迹现在这样原野战斗加东西有点走火入魔了，指望法老控精心打磨回合制部分又越来越难了，可以说家家有难念的经
+
+*****
+
+####  aimujie  
+##### 4353#       发表于 2024-9-11 10:15
+
+那不是笔记系统又回来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

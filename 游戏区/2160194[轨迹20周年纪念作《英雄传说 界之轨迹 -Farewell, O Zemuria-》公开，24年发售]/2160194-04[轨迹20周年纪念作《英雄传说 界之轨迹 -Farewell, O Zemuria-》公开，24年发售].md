@@ -295,3 +295,58 @@
 我已经在一百个动画/电影/游戏里看到the end of the beginning，the beginning of the end的陈腔滥调了 ...</blockquote>
 这恰恰是英文轨迹一直以来的宣传口号，One trail ends, another begins。
 
+
+*****
+
+####  flyingover  
+##### 4475#       发表于 2024-9-11 16:36
+
+ 本帖最后由 flyingover 于 2024-9-11 16:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66176007&amp;ptid=2160194" target="_blank">小猫鼬 发表于 2024-9-11 16:03</a>
+
+那么哪24个人呢？</blockquote>
+事务所7个+师傅+葱头+剑女卢宁+野餐队3个+黎恩克洛黑兔+菲+冰火娃+师姐黑铁，这里一共22个
+
+算是妹妹是23个
+
+剩下一个怕不是猎兵王
+
+*****
+
+####  Falcomfans  
+##### 4476#       发表于 2024-9-11 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66175560&amp;ptid=2160194" target="_blank">Dai-Dai-Dai-Dai 发表于 2024-9-11 15:20</a>
+
+辣妹上半身还行，下半身又蓝又紫的难泵，还好平时只会在屏幕背后展现gachi恋距离视角。</blockquote>
+Highleg，直接开舔！
+
+
+*****
+
+####  Archer长羽  
+##### 4477#       发表于 2024-9-11 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66176310&amp;ptid=2160194" target="_blank">flyingover 发表于 2024-9-11 16:36</a>
+
+事务所7个+师傅+葱头+剑女卢宁+野餐队3个+黎恩克洛黑兔+菲+冰火娃+师姐黑铁，这里一共22个
+
+算是妹妹是23个 ...</blockquote>
+不会有黑铁的。你漏了金和玲。
+
+*****
+
+####  Archer长羽  
+##### 4478#       发表于 2024-9-11 16:46
+
+这张试玩图里的16个人，加上3、9、菲、玲、金、金凯德、冰星杯、火星杯，正好24个人
+
+008voJJhgy1htjsi4i2n1j30zk0k0gpi.jpg
+(160.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-11 16:45 上传
+
+<img src="https://img.saraba1st.com/forum/202409/11/164529jaq4uahww0h7b7a4.jpg" referrerpolicy="no-referrer">
+

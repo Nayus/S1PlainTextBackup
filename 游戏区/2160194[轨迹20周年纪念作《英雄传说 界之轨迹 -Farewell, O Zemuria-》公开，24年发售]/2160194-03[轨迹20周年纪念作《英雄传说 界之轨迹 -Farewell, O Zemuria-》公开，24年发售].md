@@ -13905,3 +13905,16 @@ ff7rb指令战斗和即时战斗的战斗系统融合的就很不错。感觉是
 
 那不是笔记系统又回来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 4354#       发表于 2024-9-11 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66172377&amp;ptid=2160194" target="_blank">Squall25 发表于 2024-9-11 10:15</a>
+
+黎轨原野战斗和无缝切回合制的灵感本来就是来自FF7RE的，其实轨迹这样切割成两部分是很不错的，主要已经 ...</blockquote>
+不如直接伊苏X系统得了（）
+
+怪物设计就伊苏轨迹迷城三家各种套换皮怪（
+

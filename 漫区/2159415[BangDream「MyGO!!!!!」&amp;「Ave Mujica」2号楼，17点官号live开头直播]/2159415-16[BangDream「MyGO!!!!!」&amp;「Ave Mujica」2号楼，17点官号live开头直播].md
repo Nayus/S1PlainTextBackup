@@ -7711,3 +7711,15 @@ Mujica 动画烂的猜测很难说是贷款吧，独角兽提前切割，柿本�
 
 不过这么写也不叫动画烂了，只是鸡团烂了而已，爱看的人可能更多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 22905#       发表于 2024-9-12 01:43
+
+ 本帖最后由 NODY 于 2024-9-12 01:46 编辑 
+
+其实我觉得邦三季不是很差，楚平方主要的争议行为还是第二季抢人，而且如果真的学邦三季另外四个人给祥子写生日歌的话我还挺期待的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+另外四个人合写生日歌，睦临时转键盘然后吉他贝斯鼓键盘给祥子唱歌刚刚好，还能把钢琴课和访谈说的有可能换乐器的伏笔回收了
+

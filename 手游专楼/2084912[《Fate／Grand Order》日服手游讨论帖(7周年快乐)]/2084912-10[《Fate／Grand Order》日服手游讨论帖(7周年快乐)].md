@@ -13473,3 +13473,16 @@ bb2宝了两个四星都没影...
 我觉得我前面说的，上中下加一起可能没2.6灌的水多很有可能要成真了
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 14573#       发表于 2024-9-11 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66177753&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-9-11 19:22</a>
+
+对啊，真的就这么少啊
+
+前篇还有不少铺垫内容得想一下，这个中篇他就非常的，泳装，你都懂的吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">灯会上去把他扫了 剧情等下部出了一起看
+

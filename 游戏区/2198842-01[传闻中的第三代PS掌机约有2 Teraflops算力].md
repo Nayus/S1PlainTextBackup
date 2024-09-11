@@ -534,3 +534,24 @@ MLID的爆料里就没说过新掌机只能玩PS4/5游戏，而是和PS6配套�
 
 這麼快就準備好新話術了
 
+
+*****
+
+####  夜幕降临之前  
+##### 57#       发表于 2024-9-11 08:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66171164&amp;ptid=2198842" target="_blank">布拉德莱恩 发表于 2024-9-11 07:33</a>
+MLID的爆料里就没说过新掌机只能玩PS4/5游戏，而是和PS6配套发售同属一个生态圈。而且Series S拖累Series  ...</blockquote>
+掌机主机模式下必定会对其中一方有牺牲，你能想象ff7的720p蒂法在对应掌机上会是什么表现吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  布拉德莱恩  
+##### 58#         楼主| 发表于 2024-9-11 08:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66171243&amp;ptid=2198842" target="_blank">clyde-wang 发表于 2024-9-11 08:00</a>
+那就等实物吧，现在大家讨论也没法想象真正的模样，我个人不看好这种共享游戏库的做法 ...</blockquote>
+不共享游戏库才是作死吧，PS这边哪有任天堂那样的第一方独占能带动掌机销量，PS5生命周期都快过半了能打的第一方独占屈指可数
+

@@ -857,3 +857,13 @@ What a wonderful radio完结还行……
 
 可能只是换挡吧？这类型的广播总会有续下去的时候。
 
+
+*****
+
+####  奥柏伦亲王  
+##### 21033#       发表于 2024-9-11 14:59
+
+双N不录之后就对这节目兴致缺缺...
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

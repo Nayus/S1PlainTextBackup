@@ -30,3 +30,13 @@
 
 战斗视频里还出现了AN打工战士的图标<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 这是以后复刻都出AN骗钱了？MD，AIT和DTA这些相当于互为AN的怎么办？
 
+
+*****
+
+####  regular  
+##### 1204#       发表于 2024-9-11 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66169099&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2024-9-10 22:50</a>
+战斗视频里还出现了AN打工战士的图标 这是以后复刻都出AN骗钱了？MD，AIT和DTA这些相当于互为AN的怎么办？ ...</blockquote>
+明白了，直接出FA,ST<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+

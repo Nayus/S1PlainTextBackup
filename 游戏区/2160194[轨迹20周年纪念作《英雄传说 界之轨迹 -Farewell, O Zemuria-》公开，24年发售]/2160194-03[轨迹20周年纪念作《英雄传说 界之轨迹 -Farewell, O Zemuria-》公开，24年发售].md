@@ -14600,3 +14600,14 @@ e大师相比画男角色，画女角色立绘真的一坨，往好了想女仆�
 
 小商品的图还挺有设计感的，结果是展会赠品。怀疑你法是不是失去市设计场嗅觉了
 
+
+*****
+
+####  无动于衷  
+##### 4418#       发表于 2024-9-11 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66175241&amp;ptid=2160194" target="_blank">whzfjk 发表于 2024-9-11 14:52</a>
+
+小商品的图还挺有设计感的，结果是展会赠品。怀疑你法是不是失去市设计场嗅觉了 ...</blockquote>
+想多了，你法往年TGS试玩至少能送个杯子，这次是缩水的
+

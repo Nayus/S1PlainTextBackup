@@ -13234,3 +13234,11 @@ bb2宝了两个四星都没影...
 
 新卡池肯定有啊 都觉得要复刻公主偏给你端个帝王花卡池上来
 
+
+*****
+
+####  Jamaisvu  
+##### 14551#       发表于 2024-9-11 14:01
+
+突然发现今天是个特别的日子，中篇选在9.11更新，该不会迪拜BB的哈利法塔将被什么飞行道具撞塌吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

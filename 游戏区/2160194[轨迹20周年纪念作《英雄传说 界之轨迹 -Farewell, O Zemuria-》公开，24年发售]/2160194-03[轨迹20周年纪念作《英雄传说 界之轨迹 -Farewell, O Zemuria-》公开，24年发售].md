@@ -14809,3 +14809,39 @@ e大师相比画男角色，画女角色立绘真的一坨，往好了想女仆�
 
 爱国同盟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  悠悠你心  
+##### 4438#       发表于 2024-9-11 15:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">既然奖杯出了，是不是该开剧透楼了
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  一步成诗  
+##### 4439#       发表于 2024-9-11 15:57
+
+今年怎么提前半个月出啊，有偷跑了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仲可怀  
+##### 4440#       发表于 2024-9-11 15:58
+
+【序章】邂逅 ～互相交错的意志～
+
+【第一部】里解决屋，活动再开
+
+【间章】黑之庭城～被打开的圣域
+
+【第二部】A∵Ｄ～白色残影～
+
+【第三部】朝向命运的倒计时
+
+【最终幕】终焉即是创始，创始亦是终焉
+
+明年界轨2预定
+

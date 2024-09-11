@@ -13599,3 +13599,26 @@ bb2宝了两个四星都没影...
 
 所以這裡應該也是用回同樣設定，男版是正常狀態，女版只是一個BUG
 
+
+*****
+
+####  森兰丸  
+##### 14585#       发表于 2024-9-12 02:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66180037&amp;ptid=2084912" target="_blank">eilot 发表于 2024-9-12 02:11</a>
+
+記得之前FATE無雙中，也是以男版為主，女版只是XXX
+
+所以這裡應該也是用回同樣設定，男版是正常狀態，女版 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">无双我记得也只有1个扎比吧....EXTELLA里出现的红蓝绿扎比都是同一个扎比分裂出来的
+
+是不是和动画搞混了....动画里倒是有2个扎比...不过动画的剧情都魔改了和游戏是两回事
+
+
+*****
+
+####  v22325  
+##### 14586#       发表于 2024-9-12 03:00
+
+打完了,气氛感情到位了还是蛮爽了……就是感觉有点太套路了……
+

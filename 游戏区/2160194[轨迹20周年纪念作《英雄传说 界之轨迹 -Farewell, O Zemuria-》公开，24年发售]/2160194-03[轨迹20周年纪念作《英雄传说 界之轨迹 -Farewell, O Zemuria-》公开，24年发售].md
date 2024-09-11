@@ -14785,3 +14785,27 @@ e大师相比画男角色，画女角色立绘真的一坨，往好了想女仆�
 
 奖杯出了？？？
 
+
+*****
+
+####  一步成诗  
+##### 4435#       发表于 2024-9-11 15:48
+
+三部+最终幕，这个部真是原汁原味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kojimaru  
+##### 4436#       发表于 2024-9-11 15:51
+
+[https://www.exophase.com/game/yi ... ui-ji-psn/trophies/](https://www.exophase.com/game/ying-xiong-yun-shuo-jieno-gui-ji-psn/trophies/)
+
+还真出了
+
+*****
+
+####  keiyoku  
+##### 4437#       发表于 2024-9-11 15:52
+
+爱国同盟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

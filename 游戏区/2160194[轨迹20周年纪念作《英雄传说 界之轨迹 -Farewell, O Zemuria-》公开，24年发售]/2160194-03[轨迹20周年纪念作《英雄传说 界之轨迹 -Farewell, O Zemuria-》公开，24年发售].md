@@ -13846,3 +13846,38 @@ ff7rb指令战斗和即时战斗的战斗系统融合的就很不错。感觉是
 
 2024-9-11 09:57 上传
 
+
+*****
+
+####  卢迪克  
+##### 4348#       发表于 2024-9-11 09:59
+
+ 本帖最后由 卢迪克 于 2024-9-11 10:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66172172&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-11 09:54</a>
+
+不就是黎轨的系统小改</blockquote>
+最新作说面临对于老玩家太容易，而新玩家不好上手的问题，希望通过空re找到答案<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ravend233  
+##### 4349#       发表于 2024-9-11 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66172207&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-11 09:59</a>
+
+最新作说面临对于老玩家太容易，而新玩家不好上手的问题，希望通过空re找到答案 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">那把导力器改成闪轨吧
+
+*****
+
+####  妮贝雅  
+##### 4350#       发表于 2024-9-11 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66167520&amp;ptid=2160194" target="_blank">古畑任三郎2015 发表于 2024-9-10 19:50</a>
+
+轨迹蛮适合搞个obsidian笔记库的，各种人物各种事件各种链
+
+论坛助手,iPad</blockquote>
+再整个词条库收集奖杯（
+

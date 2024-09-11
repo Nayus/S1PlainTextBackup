@@ -524,3 +524,11 @@ Highleg，直接开舔！
 
 她官网有几张战斗图和在首都穿的就是黎二的衣服，黎二衣服是休闲服，黎一衣服是战斗服，入队穿休闲服吧大概。
 
+
+*****
+
+####  ravend233  
+##### 4499#       发表于 2024-9-11 19:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能入队就是黎2的衣服，敌役就是黎1的衣服
+

@@ -100,3 +100,19 @@ bd上架了，12月开始发售
 　・ノンクレジットOP</blockquote>
 忍物语依旧是theme曲做op<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oi99o  
+##### 880#       发表于 2024-9-11 19:01
+
+tv放送决定
+
+<img src="https://img.saraba1st.com/forum/202409/11/190123x3t13qkvzmn3hkhk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (146.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-11 19:01 上传
+

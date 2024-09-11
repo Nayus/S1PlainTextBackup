@@ -13408,3 +13408,16 @@ bb2宝了两个四星都没影...
 只有扎比夫？<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 扎比子不会做成5星月王下篇塞卡池吧
 
+
+*****
+
+####  保罗赫伯特  
+##### 14568#       发表于 2024-9-11 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66177098&amp;ptid=2084912" target="_blank">zechins 发表于 2024-9-11 18:03</a>
+
+只有扎比夫？
+
+扎比子不会做成5星月王下篇塞卡池吧</blockquote>
+给个女版灵衣不错了，搞不好都没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

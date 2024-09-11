@@ -13584,3 +13584,18 @@ bb2宝了两个四星都没影...
 
 之前好像有说就是观测到了灵魂才确定第三世代是人类ai化啥的？记不清了反正在解释ai世代那段应该有一句和灵魂相关的来着。
 
+
+*****
+
+####  eilot  
+##### 14584#       发表于 2024-9-12 02:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66179408&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-9-11 23:02</a>
+
+扎比还真的英灵化落地了啊......一开始我还以为只是个披着扎比皮的AI现在看来就是EXTRA的本人？
+
+这样看来 ...</blockquote>
+記得之前FATE無雙中，也是以男版為主，女版只是XXX
+
+所以這裡應該也是用回同樣設定，男版是正常狀態，女版只是一個BUG
+

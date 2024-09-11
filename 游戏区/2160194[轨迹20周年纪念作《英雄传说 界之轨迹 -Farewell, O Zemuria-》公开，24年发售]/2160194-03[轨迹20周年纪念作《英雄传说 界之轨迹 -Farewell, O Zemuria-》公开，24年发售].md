@@ -14179,3 +14179,55 @@ XX−b
 
 —— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  byisme001  
+##### 4379#       发表于 2024-9-11 13:27
+
+双子是20，20之前的执行者，还有哪些是没出现过的吗
+
+*****
+
+####  byisme001  
+##### 4380#       发表于 2024-9-11 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66174465&amp;ptid=2160194" target="_blank">Archer长羽 发表于 2024-9-11 13:24</a>
+危险人物？那能干点坏事给大家看看吗</blockquote>
+把路灯破坏 把猫偷走算不算
+
+
+*****
+
+####  ravend233  
+##### 4381#       发表于 2024-9-11 13:32
+
+能有多危险<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  Squall25  
+##### 4382#       发表于 2024-9-11 13:34
+
+帽子男的cv还真是鸟海浩辅<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+妹妹看来要洗白入队了，菲莉这下连萝莉地位都可以被优化了。
+
+*****
+
+####  Aeons  
+##### 4383#       发表于 2024-9-11 13:35
+
+幻想和言灵说是
+
+*****
+
+####  Archer长羽  
+##### 4384#       发表于 2024-9-11 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66174498&amp;ptid=2160194" target="_blank">byisme001 发表于 2024-9-11 13:28</a>
+
+把路灯破坏 把猫偷走算不算</blockquote>
+不太行，至少偷一下范恩他们的表吧，算个盗窃罪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

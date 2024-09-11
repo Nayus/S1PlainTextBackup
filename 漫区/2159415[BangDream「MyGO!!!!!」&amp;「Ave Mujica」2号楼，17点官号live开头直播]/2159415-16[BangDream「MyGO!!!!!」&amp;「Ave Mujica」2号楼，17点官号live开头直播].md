@@ -7642,3 +7642,15 @@ https://www.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2066984&amp;page=3
 
 她们估计不知道，可是有些老坛知道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  前方暴雨预警  
+##### 22898#       发表于 2024-9-12 00:32
+
+纯动画粉当然不会管你企划里哪个是真人团啦
+
+以纯动画的视角看，你邦的乐队约于运动漫里的社团，那默认主角队最后会赢岂不是很正常？对配角队最大的尊重就是让他们赛出风采、赛出逼格、输得好看、能吸点粉，但最终还是要被主角队狠狠修正的。
+
+只能说二偶企划的特性没能满足他们真是遗憾呀<img src="https://static.saraba1st.com/image/smiley/face/145.gif" referrerpolicy="no-referrer">
+

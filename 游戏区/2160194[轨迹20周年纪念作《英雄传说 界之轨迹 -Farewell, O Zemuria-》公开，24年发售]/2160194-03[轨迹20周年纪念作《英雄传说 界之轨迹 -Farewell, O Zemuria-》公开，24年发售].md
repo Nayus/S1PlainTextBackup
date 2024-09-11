@@ -14381,3 +14381,68 @@ No. XX-b
 
 看这个分法，拉碧丝果然就是个只能开阵的npc了
 
+
+*****
+
+####  aimujie  
+##### 4396#       发表于 2024-9-11 14:25
+
+看着像不同的新手教程？
+
+*****
+
+####  ravend233  
+##### 4397#       发表于 2024-9-11 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66174998&amp;ptid=2160194" target="_blank">aimujie 发表于 2024-9-11 14:25</a>
+看着像不同的新手教程？</blockquote>
+tgs试玩
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  hkguty  
+##### 4398#       发表于 2024-9-11 14:26
+
+是执行者不是新柱啊，大阪女仆也要战斗了啊
+
+*****
+
+####  ravend233  
+##### 4399#       发表于 2024-9-11 14:28
+
+<img src="https://img.saraba1st.com/forum/202409/11/142755tfmoos71qarcujsr.jpg" referrerpolicy="no-referrer">
+
+<strong>1000005512.jpg</strong> (49.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-11 14:27 上传
+
+试玩送的立牌
+
+*****
+
+####  一步成诗  
+##### 4400#       发表于 2024-9-11 14:29
+
+没事之后肯定还拿出来卖，有2d就行不至于那么寒酸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ravend233  
+##### 4401#       发表于 2024-9-11 14:31
+
+那肯定都是会拿来卖的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  Aeons  
+##### 4402#       发表于 2024-9-11 14:31
+
+这是专门试玩的吧，游戏内会写你玩没玩过黎轨？
+

@@ -7588,3 +7588,23 @@ https://www.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2066984&amp;page=3
 
 老坛的嘴脸啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 22892#       发表于 2024-9-11 22:47
+
+看了一下，喷了。
+
+*****
+
+####  御幸一也  
+##### 22893#       发表于 2024-9-11 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66179286&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-9-11 22:41</a>
+
+现在有些人不同意切割不就是因为还想在鸡里看到自推的戏份么，贷款自推拯救鸡的一大把
+
+老坛的嘴脸啊 ...</blockquote>
+拉你洗腳的去墊怎麼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

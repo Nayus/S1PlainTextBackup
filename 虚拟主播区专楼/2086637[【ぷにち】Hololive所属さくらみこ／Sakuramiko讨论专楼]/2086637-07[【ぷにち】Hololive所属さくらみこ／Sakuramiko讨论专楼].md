@@ -8674,3 +8674,44 @@ solo锁！！！！！！！
 
 2024-9-11 11:39 上传
 
+
+*****
+
+####  holoan  
+##### 9604#         楼主| 发表于 2024-9-11 13:34
+
+说到一个事，有人发现Reine之前的日程表
+
+<img src="https://img.saraba1st.com/forum/202409/11/133150zulqaanu5zn7ij2u.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="760" zoomfile="https://img.saraba1st.com/forum/202409/11/133150zulqaanu5zn7ij2u.png">
+
+<strong>image.png</strong> (110.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-11 13:31 上传
+
+17号开始连续一周的跟holomem联动的企划日程，到底是什么呢
+
+*****
+
+####  holoan  
+##### 9605#         楼主| 发表于 2024-9-11 20:52
+
+不认识的有名人
+
+<img src="https://img.saraba1st.com/forum/202409/11/205217v0klkt7dlelwk4o7.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="800" zoomfile="https://img.saraba1st.com/forum/202409/11/205217v0klkt7dlelwk4o7.png">
+
+<strong>image.png</strong> (258.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-11 20:52 上传
+
+<img src="https://img.saraba1st.com/forum/202409/11/205244hpa48wxw4zfzwa4t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (96.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-11 20:52 上传
+

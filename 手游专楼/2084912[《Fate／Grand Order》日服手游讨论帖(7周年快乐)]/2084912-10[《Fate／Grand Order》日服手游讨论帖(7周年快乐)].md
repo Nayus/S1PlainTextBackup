@@ -13534,3 +13534,15 @@ bb2宝了两个四星都没影...
 
 真够短的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 14580#       发表于 2024-9-11 23:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">扎比还真的英灵化落地了啊......一开始我还以为只是个披着扎比皮的AI现在看来就是EXTRA的本人？
+
+这样看来要是哪天FGO关服未来又出新的FATE手游了的话咕嗒也肯定会落地了
+
+不过现在有2个扎比不知道该怎么解释.....游戏里虽然能选性别但始终只有一个扎比啊
+

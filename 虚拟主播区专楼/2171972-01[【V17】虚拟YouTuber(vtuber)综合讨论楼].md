@@ -3239,3 +3239,11 @@ dc的备注是老下面メモ这一栏，最上面的是群组内名字，只有
 
 o榜一直是砍商法和复数的，我不觉得rofmao这么初动型的后劲能比king强
 
+
+*****
+
+####  渡鸦骑士  
+##### 728#       发表于 2024-9-12 00:15
+
+虹新财报出了啊，下降的真多<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

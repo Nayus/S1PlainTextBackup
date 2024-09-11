@@ -7608,3 +7608,37 @@ https://www.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2066984&amp;page=3
 老坛的嘴脸啊 ...</blockquote>
 拉你洗腳的去墊怎麼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 22894#       发表于 2024-9-11 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66179335&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-9-11 22:49</a>
+
+拉你洗腳的去墊怎麼了</blockquote>
+那坏了呀，大火好像都想拯救你鸡啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+该挑选一个作为救世主啦
+
+*****
+
+####  rikaren  
+##### 22895#       发表于 2024-9-11 23:07
+
+所以被救世的知道她们需要一个救世主吗？
+
+*****
+
+####  极速赛车手  
+##### 22896#       发表于 2024-9-11 23:22
+
+我都不想认这些是mygo推，天天c团c团的叫c团推还差不多<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 22897#       发表于 2024-9-11 23:22
+
+她们估计不知道，可是有些老坛知道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

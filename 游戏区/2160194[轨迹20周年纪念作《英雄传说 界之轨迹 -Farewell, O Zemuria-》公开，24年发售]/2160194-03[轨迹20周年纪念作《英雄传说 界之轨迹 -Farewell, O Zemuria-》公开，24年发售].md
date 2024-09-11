@@ -14714,3 +14714,58 @@ e大师相比画男角色，画女角色立绘真的一坨，往好了想女仆�
 
 怎么还有埃尔赛尤号 界轨和这船有啥关系
 
+
+*****
+
+####  Aeons  
+##### 4428#       发表于 2024-9-11 15:28
+
+空轨重置相关吧
+
+*****
+
+####  卢迪克  
+##### 4429#       发表于 2024-9-11 15:29
+
+<img src="https://img.saraba1st.com/forum/202409/11/152946evn1wni4b5bbwz1z.jpg" referrerpolicy="no-referrer">
+
+<strong>cdc7c062f6246b60354a2b56adf81a4c500fa298.jpg</strong> (57.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-11 15:29 上传
+
+9a9e9e2bc65c1038c87498e0f4119313b17e89de.jpg
+(65.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-11 15:29 上传
+
+<img src="https://img.saraba1st.com/forum/202409/11/152951ys308xy4yxo9j339.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  无动于衷  
+##### 4430#       发表于 2024-9-11 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66175649&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-9-11 15:27</a>
+
+怎么还有埃尔赛尤号 界轨和这船有啥关系</blockquote>
+元宇宙展区，估计能给你玩个沉浸式体验啥的
+
+*****
+
+####  卢迪克  
+##### 4431#       发表于 2024-9-11 15:31
+
+看来建模做好了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aeons  
+##### 4432#       发表于 2024-9-11 15:33
+
+面具人那个怪兽真丑
+

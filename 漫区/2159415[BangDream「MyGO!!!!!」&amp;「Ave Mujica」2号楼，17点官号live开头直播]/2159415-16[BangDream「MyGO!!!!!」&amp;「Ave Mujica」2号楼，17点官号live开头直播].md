@@ -7438,3 +7438,16 @@ lsl生日我记得弄有送祝福吧<img src="https://static.saraba1st.com/image
 
 想着随便抢然后抢到了，真的体感比萝好抢，这逸兴是被骂好了吗？
 
+
+*****
+
+####  rollingusagi  
+##### 22876#       发表于 2024-9-11 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66171537&amp;ptid=2159415" target="_blank">adcdqre 发表于 2024-09-11 08:51:21</a>
+看网上热度开票前我还以为怎么也要比萝难抢两倍，现在说更好抢那我有点要质疑扩圈了。
+
+ ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">也有可能go批小年轻比例大喜欢发声，抢到了都要发帖彰显存在感，萝批老登多抢到了也不喜欢发声，造成了抢到票的人没几个的错觉
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

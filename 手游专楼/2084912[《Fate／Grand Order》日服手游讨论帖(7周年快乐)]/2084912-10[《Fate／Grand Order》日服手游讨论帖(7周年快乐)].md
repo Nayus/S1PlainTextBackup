@@ -13546,3 +13546,28 @@ bb2宝了两个四星都没影...
 
 不过现在有2个扎比不知道该怎么解释.....游戏里虽然能选性别但始终只有一个扎比啊
 
+
+*****
+
+####  森兰丸  
+##### 14581#       发表于 2024-9-12 01:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">还有这兽蕾的动机我还是理解不了啊
+
+我没理解错的话第三世代AI只是把人类的思考回路做成了数据上传到了服务器上....挫劣一点的话现在现实里就有模仿死者的AI....但这和本人根本是两回事啊
+
+就好像阿福的那个AI御主虽然是用了引发人类与AI战争的那个人类的模板....但毕竟还是2个不同的存在
+
+活生生的人类是有灵魂的....人死掉了后也是灵魂进入了冥界
+
+迪拜的AI再怎么先进像人类也只是一堆数据...是没有灵魂的
+
+旧人类都灭亡了兽蕾就算把迪拜的AI都图光冥界还是不会有新的灵魂进来啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 14582#       发表于 2024-9-12 01:07
+
+为什么对面兽凛语音都没有。不会来不及做吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

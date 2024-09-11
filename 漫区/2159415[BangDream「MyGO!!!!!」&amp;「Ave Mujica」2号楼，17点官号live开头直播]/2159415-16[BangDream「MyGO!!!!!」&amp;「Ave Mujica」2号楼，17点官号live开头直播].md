@@ -7672,3 +7672,14 @@ https://www.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2066984&amp;page=3
 
 错误的，鸡是反派敌团恶役，主角什么的明明是……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adcdqre  
+##### 22901#       发表于 2024-9-12 00:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66179494&amp;ptid=2159415" target="_blank">极速赛车手 发表于 2024-09-11 23:22:26</a>
+我都不想认这些是mygo推，天天c团c团的叫c团推还差不多</blockquote>因为c团的绝对正是里面某些部分行为的基础，c团出现瑕疵那就全完了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

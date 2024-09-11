@@ -7378,3 +7378,19 @@ lsl生日我记得弄有送祝福吧<img src="https://static.saraba1st.com/image
   -- 来自 能手机投票的 Sta ...</blockquote>
 萝开票前4.8还是可信，后来嘛
 
+
+*****
+
+####  rikaren  
+##### 22870#       发表于 2024-9-11 08:13
+
+<img src="https://img.saraba1st.com/forum/202409/11/081231jn7rpmm9csfxpmsx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-09-11-08-10-18-85_080202d21636839aa811fe0eaddff67c.jpg</strong> (384.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-11 08:12 上传
+
+只能说幸好是xdx，ldx要点多少下都不敢想象，何况3d衣服是真的耗资源。
+

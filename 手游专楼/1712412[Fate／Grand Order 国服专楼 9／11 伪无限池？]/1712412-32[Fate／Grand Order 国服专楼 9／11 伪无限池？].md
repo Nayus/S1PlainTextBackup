@@ -94,3 +94,16 @@
 这游戏有病吧？
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  马桶3  
+##### 46738#       发表于 2024-9-11 08:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66171152&amp;ptid=1712412" target="_blank">lcn 发表于 2024-9-11 07:26</a>
+
+打完所长发现还有个红点，还要打一遍
+
+这游戏有病吧？</blockquote>
+打第二次纯消耗AP，不给奖励哦
+

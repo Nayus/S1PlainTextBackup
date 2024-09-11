@@ -13399,3 +13399,12 @@ bb2宝了两个四星都没影...
 目前的防御相克是“回避＜必中＜无敌＜无敌贯通＜对肃正防御＜对肃 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">CBA那宝具就全体一回合和术呆那全体OC多次数还是差远了。
 
+
+*****
+
+####  zechins  
+##### 14567#       发表于 2024-9-11 18:03
+
+只有扎比夫？<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+扎比子不会做成5星月王下篇塞卡池吧
+

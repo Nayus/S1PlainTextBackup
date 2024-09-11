@@ -40,3 +40,11 @@
 战斗视频里还出现了AN打工战士的图标 这是以后复刻都出AN骗钱了？MD，AIT和DTA这些相当于互为AN的怎么办？ ...</blockquote>
 明白了，直接出FA,ST<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alialex  
+##### 1205#       发表于 2024-9-11 17:57
+
+an打工战士公告也出来了，不知道an是混池还是两个独立池子，不得不说两套an服都挺丑的
+

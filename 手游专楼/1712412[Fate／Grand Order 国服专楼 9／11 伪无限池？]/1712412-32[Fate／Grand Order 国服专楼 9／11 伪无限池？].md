@@ -118,3 +118,11 @@
 但是要消红点就只能打啊
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  johnkamsar  
+##### 46740#       发表于 2024-9-11 14:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">长草期好无聊。。。。。。又没qp本ap减半
+

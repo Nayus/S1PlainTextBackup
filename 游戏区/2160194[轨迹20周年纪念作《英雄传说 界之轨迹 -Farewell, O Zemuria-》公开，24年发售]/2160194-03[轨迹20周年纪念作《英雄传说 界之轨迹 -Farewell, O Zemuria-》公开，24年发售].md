@@ -14103,3 +14103,11 @@ ff7rb指令战斗和即时战斗的战斗系统融合的就很不错。感觉是
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只要法师的逆天减施法后行动延迟的珠子不削，法师强度就不会低
 
+
+*****
+
+####  aimujie  
+##### 4375#       发表于 2024-9-11 12:53
+
+菜刀队即便能打延迟，cp恢复和c技硬直过大的问题不解决还是转不起来
+

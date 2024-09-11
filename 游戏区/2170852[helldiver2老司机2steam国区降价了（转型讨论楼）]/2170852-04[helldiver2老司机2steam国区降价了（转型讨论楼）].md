@@ -101,3 +101,13 @@ Q. 您之前提到的测试又是怎么回事？
 论坛助手,iPhon ...</blockquote>
 需要人带飞猫最快速度解决掉这些高威胁单位
 
+
+*****
+
+####  xinfengj  
+##### 5325#       发表于 2024-9-11 09:41
+
+火焰机制回滚+6穿+再加三成伤害
+<img src="https://p.sda1.dev/19/667db11200fa4595dc54f6eb9cea7920/CMP_20240911093950574.jpg" referrerpolicy="no-referrer">
+这下防火甲必备了，不然要被队友秒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -630,3 +630,65 @@ Precure这词没有任何意思可以翻译出光之美少女这个翻译出来�
 
 2024-9-12 22:59 上传
 
+
+*****
+
+####  Arson=desu  
+##### 2173#       发表于 2024-9-12 23:07
+
+ 本帖最后由 Arson=desu 于 2024-9-12 23:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66188427&amp;ptid=2162354" target="_blank">新HGCG 发表于 2024-9-12 22:59</a></blockquote>
+左边这个是兔子吧，比去年的鸟人仔细看能一眼看出来是个正太，这兔子第一眼完全就是个软妹<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这变身看着素的完全不像个正编，果然还是单纯的剧场版限定吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  黑白金兽  
+##### 2174#       发表于 2024-9-12 23:09
+
+母的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  深渊魔魂  
+##### 2175#       发表于 2024-9-12 23:09
+
+太喜欢看男人变身了
+
+*****
+
+####  jaewoongh_  
+##### 2176#       发表于 2024-9-12 23:10
+
+连续两年塞男人，这总不能是成田塞的吧？高桥（）树你干得好啊
+
+*****
+
+####  Arson=desu  
+##### 2177#       发表于 2024-9-12 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66188513&amp;ptid=2162354" target="_blank">黑白金兽 发表于 2024-9-12 23:09</a>
+
+母的？</blockquote>
+单纯的伪娘男q吧，有种掩耳盗铃的美感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T@L  
+##### 2178#       发表于 2024-9-12 23:12
+
+倆個都變的話那應該是劇場版限定變身吧，合起來算個毛芙倫？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 來自 [鵝球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+
+*****
+
+####  lactone  
+##### 2179#       发表于 2024-9-12 23:13
+
+去年🪽比较中性，大家都接受了，今年这变身服已经完全看不出来魔法少女味了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -359,3 +359,11 @@ STEAM，我不少朋友STEAM很长时间只有3个游戏，PUBG、CS:GO、GTAV�
 
 抖音<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我遇见的都是看过没玩过
 
+
+*****
+
+####  zxtree  
+##### 44#       发表于 2024-9-13 05:25
+
+没玩过高帧数的肯定不觉得卡呀
+

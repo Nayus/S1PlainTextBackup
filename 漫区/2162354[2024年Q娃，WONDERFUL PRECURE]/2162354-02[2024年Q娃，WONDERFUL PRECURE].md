@@ -762,3 +762,11 @@ Precure这词没有任何意思可以翻译出光之美少女这个翻译出来�
 
 兔组跟前辈互动感觉恐怕也是跟鸟（以及可能有Mofurun）互动，更别说根据PV的台词看这次卖的是犬组CP，兔山哥被迫害的可能性还更高些<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HANDAIYV  
+##### 2188#       发表于 2024-9-13 00:14
+
+连着几年了，一直塞，干脆正式转正得了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

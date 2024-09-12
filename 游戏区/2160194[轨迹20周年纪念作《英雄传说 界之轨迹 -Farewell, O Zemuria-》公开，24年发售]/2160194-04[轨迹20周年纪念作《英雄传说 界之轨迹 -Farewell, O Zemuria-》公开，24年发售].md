@@ -627,3 +627,97 @@ pv这么放而已
 已经没了，如补</blockquote>
 明天才开始补<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 4508#       发表于 2024-9-12 13:43
+
+本来偶尔也补，但只补个位数，
+
+*****
+
+####  卢迪克  
+##### 4509#       发表于 2024-9-12 13:46
+
+ファミ通
+
+DQ3:1位 Switch:663,4位 PS5:318
+
+MHWz:2位 641
+
+ゼ知:3位 413
+
+DQ1&amp;2:7位 Switch:201,15位 PS5:106
+
+ロマサガ2RotS:9位 Switch:164,14位 PS5:117,31位 PS4
+
+PokeLEGEZA:12位 133
+
+幻水1&amp;2R:19位 Switch:74
+
+魔導F:20位 Switch:72
+
+界の軌跡:21位 PS4:71,25位 PS5:64
+
+*****
+
+####  卢迪克  
+##### 4510#       发表于 2024-9-12 13:47
+
+还是20名<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 4511#       发表于 2024-9-12 13:49
+
+空の軌跡1st(仮):40位 Switch
+
+
+*****
+
+####  卢迪克  
+##### 4508#       发表于 2024-9-12 13:43
+
+本来偶尔也补，但只补个位数，
+
+*****
+
+####  卢迪克  
+##### 4509#       发表于 2024-9-12 13:46
+
+ファミ通
+
+DQ3:1位 Switch:663,4位 PS5:318
+
+MHWz:2位 641
+
+ゼ知:3位 413
+
+DQ1&amp;2:7位 Switch:201,15位 PS5:106
+
+ロマサガ2RotS:9位 Switch:164,14位 PS5:117,31位 PS4
+
+PokeLEGEZA:12位 133
+
+幻水1&amp;2R:19位 Switch:74
+
+魔導F:20位 Switch:72
+
+界の軌跡:21位 PS4:71,25位 PS5:64
+
+*****
+
+####  卢迪克  
+##### 4510#       发表于 2024-9-12 13:47
+
+还是20名<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 4511#       发表于 2024-9-12 13:49
+
+空の軌跡1st(仮):40位 Switch
+

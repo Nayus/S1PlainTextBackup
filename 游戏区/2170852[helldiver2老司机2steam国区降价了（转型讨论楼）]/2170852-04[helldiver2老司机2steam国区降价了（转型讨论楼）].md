@@ -405,3 +405,11 @@ An unsafe railgun shot will deal 1500/562.5 (damage/durable). For reference a co
 <img src="https://p.sda1.dev/19/41270cd7380218cc174e4921ae71ac3f/CMP_20240912220440097.jpg" referrerpolicy="no-referrer">
 为什么不配人狼甲<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 5356#       发表于 2024-9-12 22:09
+
+能不能不要给皮肤了
+

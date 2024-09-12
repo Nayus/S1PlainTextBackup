@@ -13717,3 +13717,13 @@ bb2宝了两个四星都没影...
 
 最后一战为了保险放了个仇凛在后面，谁知道人头是仇凛收的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大十字紅朔  
+##### 14596#       发表于 2024-9-12 13:11
+
+打完的感想就是太短了
+
+感觉就打了3个小时不到……
+

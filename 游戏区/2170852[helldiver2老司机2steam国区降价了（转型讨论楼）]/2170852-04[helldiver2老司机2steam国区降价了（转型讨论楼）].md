@@ -326,3 +326,41 @@ An unsafe railgun shot will deal 1500/562.5 (damage/durable). For reference a co
 
 这CEO之前还说磁轨一开始太强了不可能回调到一开始的强度， 这群B看人都不玩了开始慌了。
 
+
+*****
+
+####  dfbbymice  
+##### 5347#       发表于 2024-9-12 11:22
+
+这波是老天都在给箭头抢救的机会，星际战士2游戏底子不行PVE拉了，其他玩家想爽射虫子的又没有合适的替代品，就看后续更新箭头能不能运营好了
+
+*****
+
+####  Launce  
+##### 5348#       发表于 2024-9-12 11:28
+
+ 本帖最后由 Launce 于 2024-9-12 11:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66181725&amp;ptid=2170852" target="_blank">DawnGuardian 发表于 2024-9-12 10:59</a>
+
+我看有人说它这个威力提高250%可能只是坚固伤害提高，90-225正好是2.5倍，这个强化程度看着还算合理，希 ...</blockquote>
+过充就是安全的150%，数值基本是回归初版了，只能说十分幽默
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 不对，粗算下比原版还强
+
+*****
+
+####  Launce  
+##### 5349#       发表于 2024-9-12 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66181765&amp;ptid=2170852" target="_blank">Jabeck 发表于 2024-9-12 11:04</a>
+
+这CEO之前还说磁轨一开始太强了不可能回调到一开始的强度， 这群B看人都不玩了开始慌了。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大概算了下，确实没有回调到一开始的强度，比一开始强多了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以前过充打腿是2枪左右，大概200vD，现在过充系数从50%到150%，一枪顶两
+
+*****
+
+####  九十九忍  
+##### 5350#       发表于 2024-9-12 13:13
+
+然后我上线扔个游走炮幕，还是三发
+

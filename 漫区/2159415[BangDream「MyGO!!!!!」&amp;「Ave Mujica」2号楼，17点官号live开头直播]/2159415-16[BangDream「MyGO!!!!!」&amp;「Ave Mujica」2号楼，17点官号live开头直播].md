@@ -7945,3 +7945,52 @@ Mujica 动画烂的猜测很难说是贷款吧，独角兽提前切割，柿本�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Aendst  
+##### 22928#       发表于 2024-9-12 12:27
+
+动画内搞对邦必有至少一方要做垫子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">垫谁都是迷惑行为
+
+客串彩蛋程度的登场应该还是有的吧，总不能和hhw一起被ban了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 22929#       发表于 2024-9-12 12:27
+
+剧情容量上我是不认为可以支撑“对邦”这个无由头的事情的，祥本身的事，初华为何来东京，睦的家庭与负罪感，海铃为什么急着自立，喵梦疑似的家庭背景，立希劣等感的补完，灯和soyo的后续反应，这还是单纯角色个人的事情，没算角色与角色之间的关系，live画面也是会占用剧情篇幅的，在这么个基础上老团成员客串下恐怕都不见得有多少空间，何况发生关联度更高的剧情。
+
+*****
+
+####  ddy2811  
+##### 22930#       发表于 2024-9-12 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66181819&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-9-12 11:10</a>
+
+然而祥子还要证明什么呢，会写曲？会带队？
+
+经典证明自己</blockquote>
+证明能靠自己有收益玩得转、音乐不是摆在大豪斯娱乐室玩玩而已的东西吧
+
+*****
+
+####  星天观测  
+##### 22931#       发表于 2024-9-12 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66182621&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-9-12 12:28</a>
+证明能靠自己有收益玩得转、音乐不是摆在大豪斯娱乐室玩玩而已的东西吧 ...</blockquote>
+证明给谁看呢？鸡队员？狗？这两方有人在乎这个么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不会是证明给屏幕前的观众老爷吧
+
+
+*****
+
+####  Aendst  
+##### 22932#       发表于 2024-9-12 12:32
+
+一起在商业拼盘fes上演出，在广告里出现，在事务所里撞见，前辈围观一下新人live这种我觉得可能性高点
+
+mygotv里的老团客串也是场地npc役和拼盘
+

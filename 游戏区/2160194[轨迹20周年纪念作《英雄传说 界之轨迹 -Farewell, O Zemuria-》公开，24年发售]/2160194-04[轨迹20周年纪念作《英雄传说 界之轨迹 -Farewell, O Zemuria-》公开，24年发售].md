@@ -1053,3 +1053,70 @@ ppt能算实机游玩吗
 
 管人执行者都来了，这法老控真是越来越没活了
 
+
+*****
+
+####  ravend233  
+##### 4552#       发表于 2024-9-12 18:07
+
+闪/创轨也没出亚莉莎，零碧也没出艾莉，狗屋这个没有规律的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  Aeons  
+##### 4553#       发表于 2024-9-12 18:08
+
+ 本帖最后由 Aeons 于 2024-9-12 18:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66185907&amp;ptid=2160194" target="_blank">Oshino 发表于 2024-9-12 18:02</a>
+
+是说跟自己作品的内部顺位比，我原来是觉得学妹和师姐都排她前面的</blockquote>
+
+不太懂，如果说是人气，那黎一前学妹等于查无此人，学妹不可能比创轨就有形象的剑女强。
+
+如果说是剧情地位，静名在共和国剧情没啥地位啊。
+
+*****
+
+####  Oshino  
+##### 4554#       发表于 2024-9-12 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66185972&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-12 18:07</a>
+
+闪/创轨也没出亚莉莎，零碧也没出艾莉，狗屋这个没有规律的
+
+—— 来自 鹅球 v3.0.0.82-alpha ...</blockquote>
+亚莉莎很早期的时候就有一个泳装手办了，我记得那时候闪第一个
+
+*****
+
+####  ravend233  
+##### 4555#       发表于 2024-9-12 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66185997&amp;ptid=2160194" target="_blank">Oshino 发表于 2024-9-12 18:10</a>
+亚莉莎很早期的时候就有一个泳装手办了，我记得那时候闪第一个</blockquote>
+当然只算狗屋出的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  hkguty  
+##### 4556#       发表于 2024-9-12 18:14
+
+大概是看人气出的，剑大妈是第一个PVC，不过师姐和剑大妈其实WF已经有人做过GK了
+
+*****
+
+####  BRRM  
+##### 4557#       发表于 2024-9-12 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66184137&amp;ptid=2160194" target="_blank">we89623 发表于 2024-9-12 15:03</a>
+
+麻痹因为黑猴原因ps5租赁涨一倍，为了一个游戏也不可能买个ps5回家。打算租个ps4pro，想问下ps4比ps5版有啥 ...</blockquote>
+开始以为你要租个ps4pro打黑猴，想了半天想起来这里是轨迹的帖子。
+
+ps4pro打轨迹够了的，ps5的性能溢出太多了。
+

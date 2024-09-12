@@ -2878,3 +2878,16 @@ https://github.com/stevenyomi/copymanga
 我这可以
 试试非日本的节点？
 
+
+*****
+
+####  社美胡  
+##### 271#       发表于 2024-9-12 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66182760&amp;ptid=2167901" target="_blank">3三稻 发表于 2024-9-12 12:42</a>
+
+没啊
+
+https://github.com/stevenyomi/copymanga</blockquote>
+就留了个readme
+

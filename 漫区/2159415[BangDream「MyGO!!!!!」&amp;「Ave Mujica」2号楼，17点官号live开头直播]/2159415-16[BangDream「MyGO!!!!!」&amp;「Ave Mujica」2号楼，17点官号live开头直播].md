@@ -8659,3 +8659,11 @@ lsl估计是去宣传上海live的
 
 最后一张有点刻晴了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  前方暴雨预警  
+##### 22985#       发表于 2024-9-13 00:55
+
+武士道的全部审美都用在信封挂件和场T上了
+

@@ -787,3 +787,72 @@ PokeLEGEZA:12位 133
 
 越看越感觉总统连个中boss都混不上了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 4518#       发表于 2024-9-12 14:26
+
+总统把他知道的事交代完了就可以下线了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  Aeons  
+##### 4519#       发表于 2024-9-12 14:27
+
+斑鸠mk结社都不用说难道你们是
+
+*****
+
+####  卢迪克  
+##### 4520#       发表于 2024-9-12 14:28
+
+下线是肯定，艾莉老爹还等着接班呢
+
+
+*****
+
+####  Aeons  
+##### 4521#       发表于 2024-9-12 14:31
+
+没有pv是为什么呢
+
+*****
+
+####  ravend233  
+##### 4522#       发表于 2024-9-12 14:33
+
+没人剪pv了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  卢迪克  
+##### 4523#       发表于 2024-9-12 14:34
+
+说不定学se和任天堂这些最后一周放个售前pv啥的
+
+*****
+
+####  一步成诗  
+##### 4524#       发表于 2024-9-12 14:34
+
+没人剪呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 4525#       发表于 2024-9-12 14:35
+
+也不像忙的没人剪啊
+
+*****
+
+####  卢迪克  
+##### 4526#       发表于 2024-9-12 14:35
+
+以后伊苏没op 轨迹没pv
+

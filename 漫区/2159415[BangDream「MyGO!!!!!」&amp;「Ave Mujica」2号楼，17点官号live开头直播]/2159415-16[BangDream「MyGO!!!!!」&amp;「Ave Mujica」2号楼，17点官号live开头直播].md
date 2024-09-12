@@ -8106,3 +8106,62 @@ go今年刚和破琵琶交接，被大家诟病掐角色声线严重的退化的
 
 高祖再怎么夹也是真职业歌手出身，完爆一个羊还是很正常的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  MASKA-1  
+##### 22943#       发表于 2024-9-12 16:11
+
+这两天看紫吧，羊gachi还是猛的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  御幸一也  
+##### 22944#       发表于 2024-9-12 16:14
+
+更新了3rd的通販
+
+[https://bushiroad-store.com/pages/avemujica_3rd](https://bushiroad-store.com/pages/avemujica_3rd)
+
+<img src="https://img.saraba1st.com/forum/202409/12/161404pt0btjfmns8zstws.jpg" referrerpolicy="no-referrer">
+
+<strong>vt_kinen_keyholder_ari_600x.jpg</strong> (45.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-12 16:14 上传
+
+<img src="https://img.saraba1st.com/forum/202409/12/161401tawbserczpv1swas.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_3048.jpg</strong> (469.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-12 16:14 上传
+
+<img src="https://img.saraba1st.com/forum/202409/12/161402hmiacsusc6kjkank.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_3073.jpg</strong> (648.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-12 16:14 上传
+
+<img src="https://img.saraba1st.com/forum/202409/12/161403mz88pfasfpfxz2z5.jpg" referrerpolicy="no-referrer">
+
+<strong>Ave-Mujica-3rd-LIVE_Veritas__6_ari.jpg</strong> (181.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-12 16:14 上传
+
+<img src="https://img.saraba1st.com/forum/202409/12/161404m88lyszer8r2s2r2.jpg" referrerpolicy="no-referrer">
+
+<strong>Ave3rd_cst_ari_600x.jpg</strong> (69.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-12 16:14 上传
+

@@ -2921,3 +2921,29 @@ https://github.com/stevenyomi/copymanga</blockquote>
 就留了个readme</blockquote>
 就算是移动版也有releases入口，你不会只会看GitHub项目首页吧……
 
+
+*****
+
+####  社美胡  
+##### 275#       发表于 2024-9-12 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66184590&amp;ptid=2167901" target="_blank">pgain2004 发表于 2024-9-12 15:50</a>
+
+就算是移动版也有releases入口，你不会只会看GitHub项目首页吧……</blockquote>
+只是留了releases，以后估计就没有维护了
+
+*****
+
+####  社美胡  
+##### 276#       发表于 2024-9-12 16:12
+
+<img src="https://img.saraba1st.com/forum/202409/12/161202hhfynabwbzxhy1lb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240912_160947_app_mihon_MainActivity.jpg</strong> (17.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-12 16:12 上传
+
+mihon已经显示废弃了
+

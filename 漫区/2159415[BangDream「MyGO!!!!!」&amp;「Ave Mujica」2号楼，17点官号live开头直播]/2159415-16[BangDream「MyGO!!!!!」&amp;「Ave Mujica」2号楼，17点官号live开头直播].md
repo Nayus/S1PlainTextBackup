@@ -8322,3 +8322,14 @@ wsd：回旋了吗<img src="https://static.saraba1st.com/image/smiley/face2017/0
 而且12月份肯定会出有内容的PV的，所以等2.5个月就有动画的新东西了。不知道1月几号发送。 ...</blockquote>
 我之前猜测是12.15宣布1.16动画开始放送
 
+
+*****
+
+####  MASKA-1  
+##### 22957#       发表于 2024-9-12 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66185049&amp;ptid=2159415" target="_blank">日野下花帆 发表于 2024-09-12 16:34:51</a>
+被路人踩头之后的无能狂怒样子确实有点搞笑了，好像说的烤羊不是他们发明的一样，也不愿骂骂他们亲爹武士 ...</blockquote>我觉得最搞笑的是一遍转火gbc，一边绝不认输。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

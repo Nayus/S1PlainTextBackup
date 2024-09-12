@@ -48,3 +48,11 @@
 
 an打工战士公告也出来了，不知道an是混池还是两个独立池子，不得不说两套an服都挺丑的
 
+
+*****
+
+####  冰风血羽  
+##### 1206#       发表于 2024-9-12 14:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑了这么久就是为了今天，俩AN全拿下
+

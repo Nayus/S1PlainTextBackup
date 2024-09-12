@@ -618,7 +618,7 @@
     "lastedit": 1726143420,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1985647": {
     "totalreply": 2250,
@@ -8631,10 +8631,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 74061,
+    "totalreply": 74062,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1726174688,
+    "lastedit": 1726175889,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false

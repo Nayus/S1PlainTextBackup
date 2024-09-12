@@ -8059,3 +8059,14 @@ tgw物产只是个没有根据的假药，还是别太信了比较好
 动画和二创还是分开点，以后观感比较舒适 ...</blockquote>
 那我就要信呢<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">反正猜又没什么成本嘛
 
+
+*****
+
+####  星天观测  
+##### 22938#       发表于 2024-9-12 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66184383&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-9-12 15:28</a>
+
+那我就要信呢反正猜又没什么成本嘛，我去年就这么猜了，不需要别人的假药 ...</blockquote>
+那你爱信信呗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

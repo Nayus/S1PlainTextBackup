@@ -2891,3 +2891,13 @@ https://github.com/stevenyomi/copymanga
 https://github.com/stevenyomi/copymanga</blockquote>
 就留了个readme
 
+
+*****
+
+####  3三稻  
+##### 272#       发表于 2024-9-12 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66182802&amp;ptid=2167901" target="_blank">社美胡 发表于 2024-9-12 12:47</a>
+就留了个readme</blockquote>
+有发布界面啊
+

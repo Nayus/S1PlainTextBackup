@@ -8098,3 +8098,11 @@ RAS是萝手把手带的，加上自身技术实力过硬
 
 go今年刚和破琵琶交接，被大家诟病掐角色声线严重的退化的邦高祖完爆。。没法比呀
 
+
+*****
+
+####  NODY  
+##### 22942#       发表于 2024-9-12 15:56
+
+高祖再怎么夹也是真职业歌手出身，完爆一个羊还是很正常的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

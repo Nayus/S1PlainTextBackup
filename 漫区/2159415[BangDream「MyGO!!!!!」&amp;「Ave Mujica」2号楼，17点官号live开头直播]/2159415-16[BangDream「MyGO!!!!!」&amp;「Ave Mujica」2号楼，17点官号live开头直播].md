@@ -8165,3 +8165,43 @@ go今年刚和破琵琶交接，被大家诟病掐角色声线严重的退化的
 
 2024-9-12 16:14 上传
 
+
+*****
+
+####  ytttsuuuba  
+##### 22945#       发表于 2024-9-12 16:16
+
+而且12月份肯定会出有内容的PV的，所以等2.5个月就有动画的新东西了。不知道1月几号发送。
+
+*****
+
+####  御幸一也  
+##### 22946#       发表于 2024-9-12 16:18
+
+3rd的場T好看捏
+
+<img src="https://img.saraba1st.com/forum/202409/12/161829s4w46766n457w6r6.jpg" referrerpolicy="no-referrer">
+
+<strong>Ave_silk_T_ari_3dae9aa8-0ba1-48d4-82f9.jpg</strong> (96.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-12 16:18 上传
+
+<img src="https://img.saraba1st.com/forum/202409/12/161832fs6uj5jsgw5jzjji.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_3196.jpg</strong> (280.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-12 16:18 上传
+
+*****
+
+####  星天观测  
+##### 22947#       发表于 2024-9-12 16:20
+
+这个杯垫和初华的彩窗挂件可以买一下
+
+祥子吧唧把头上的圆消掉的话好像可以变成米老鼠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

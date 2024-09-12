@@ -586,3 +586,13 @@ lccb良被削了，三破或能白嫖40狂气</blockquote>
 
 之后再出个西部二协会的三星，就可以迎接新赛季了。
 
+
+*****
+
+####  菟原手兒奈  
+##### 873#       发表于 2024-9-12 12:58
+
+搞了个石头号，没练度，现在就是先推主线到推不动，然后刷资源本和活动吗？
+
+顺便主楼的群加不进去…搜索不到<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

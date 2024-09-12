@@ -8004,3 +8004,21 @@ mygotv里的老团客串也是场地npc役和拼盘
 
 反正邦邦公司搞事也不是一次两次了，推给公司大家都理解的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 22934#       发表于 2024-9-12 13:02
+
+睦祥的神再次降臨<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202409/12/130135ucm8mpn66hxjxkx8.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_白／백🍧(@baiyuBYY)_20240911-151118_1833886039762669766_photo.jpg</strong> (187.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-12 13:01 上传
+
+[https://x.com/baiyuBYY/status/1833886039762669766](https://x.com/baiyuBYY/status/1833886039762669766)
+

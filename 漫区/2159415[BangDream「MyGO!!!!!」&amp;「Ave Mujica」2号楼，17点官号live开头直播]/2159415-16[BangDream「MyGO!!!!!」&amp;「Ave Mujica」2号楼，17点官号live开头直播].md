@@ -7849,3 +7849,99 @@ Mujica 动画烂的猜测很难说是贷款吧，独角兽提前切割，柿本�
   -- 来自 能看大图的 Sta ...</blockquote>
 你觉得你是你就是呗<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adcdqre  
+##### 22918#       发表于 2024-9-12 07:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66180220&amp;ptid=2159415" target="_blank">yuyin589 发表于 2024-09-12 06:37:25</a>
+你觉得你是你就是呗</blockquote>什么时候我看到只带狗的被叫🐶毒唯我就承认你不是🍵
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  adcdqre  
+##### 22919#       发表于 2024-9-12 07:42
+
+有的人是不是双标<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">不自知啊
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  yuyin589  
+##### 22920#       发表于 2024-9-12 08:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66180302&amp;ptid=2159415" target="_blank">adcdqre 发表于 2024-9-12 07:38</a>
+
+什么时候我看到只带狗的被叫🐶毒唯我就承认你不是🍵
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+说实话我完全没看懂你想表达什么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ytttsuuuba  
+##### 22921#       发表于 2024-9-12 08:20
+
+邦第三季真挺烂的，chu²也是真的很招人厌，千万别在mujica整这个。
+
+*****
+
+####  adcdqre  
+##### 22922#       发表于 2024-9-12 08:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66180431&amp;ptid=2159415" target="_blank">ytttsuuuba 发表于 2024-09-12 08:20:34</a>
+邦第三季真挺烂的，chu²也是真的很招人厌，千万别在mujica整这个。</blockquote>只要围着音乐番音乐转很难烂
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  星天观测  
+##### 22923#       发表于 2024-9-12 08:37
+
+邦三讲的不是招募lock+找萝和ppp对邦+ras团内么
+
+鸡人已经齐了，团内戏份必有，难道真有人想看鸡主动找狗对邦？
+好像有点幽默<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 22924#       发表于 2024-9-12 09:32
+
+我甚至都不明白找go对邦的逻辑在哪，蹭流量爆米也该是找pp，r她们啊。
+
+*****
+
+####  PDQ4  
+##### 22925#       发表于 2024-9-12 09:55
+
+邦第三季真不烂吗，如果是好活RAS怎么会天糊开局，全靠三次拉人气
+
+鸡要是学第三季老路，搞祥子因为狗组鸡，对邦要证明自己，那可真是闹麻了，虽然部分人确实是这么贷款的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六道明  
+##### 22926#       发表于 2024-9-12 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66180431&amp;ptid=2159415" target="_blank">ytttsuuuba 发表于 2024-9-12 08:20</a>
+
+邦第三季真挺烂的，chu²也是真的很招人厌，千万别在mujica整这个。</blockquote>
+甜甜圈温柔地注视着你,不再言语<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adcdqre  
+##### 22927#       发表于 2024-9-12 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66180377&amp;ptid=2159415" target="_blank">yuyin589 发表于 2024-09-12 08:07:30</a>
+说实话我完全没看懂你想表达什么</blockquote>你觉得你没看懂你就没看懂呗<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

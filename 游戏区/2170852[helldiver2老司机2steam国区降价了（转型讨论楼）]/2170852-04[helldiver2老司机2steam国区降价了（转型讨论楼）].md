@@ -265,3 +265,64 @@ Q. 您之前提到的测试又是怎么回事？
 
 —— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  赤井稻妻  
+##### 5343#       发表于 2024-9-12 09:15
+
+箭头这些断断续续的补丁最大的意义其实是就是让很多以前没办法用的武器装备可以玩，比如飞矛无法锁定，火焰毒气没伤害，包括之前版本让实弹护卫犬可以拣路边的子弹箱回复弹药，炮台系几次加强现在不是只有一个哨戒机炮可以用了，牛屁股免疫爆炸伤害的bug修好后集束炸弹和榴弹枪也能用了，还有轨道打击自己啥都没改，但是出了几个针对轨道武器的舰船模组之后现在已经是轨道版的500公斤炸弹了
+
+还有一些通过修改敌人让有些武器能用的，比如牛的头血量降低让筒子系武器能用，东线的各种酸液喷射不能秒人了，可以不用带蛋盾解放了背部背包的位置，减少小虫子数量，增加中甲虫子数量，以及新加的飞龙塔让机枪塔的实用度提升，不过有些武器确实也因为新敌人的出现变得不能用了， 像本来在西线表现还算稳定的磁轨枪，在炮艇出现之后立刻就用不了了
+
+感觉箭头就是出内容太急了，没有经过测试就丢上来，这帮人就是不懂”如果一个东西能用，就不要动他”的道理
+
+*****
+
+####  Launce  
+##### 5344#       发表于 2024-9-12 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66180691&amp;ptid=2170852" target="_blank">jy000129 发表于 2024-9-12 09:00</a>
+
+耐久伤害，也就是破甲威力
+
+甚至可能不是破甲而是击退/打断效果</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这尼玛就是雌鬼初始数值，给幽默完了 <blockquote>So this change is kind of insane. With current enemy HP numbers the new railgun will:
+
+2 shot charger heads in safe
+
+1 shot charger heads in unsafe
+
+4 shot behemoth heads in safe
+
+2 shot behemoth heads in unsafe
+
+4 shot bile titan heads in safe
+
+2 shot bile titan heads in unsafe
+
+4 shot hulk bodies in safe
+
+2 shot hulk bodies in unsafe
+
+4 shot tank turrets in safe
+
+2 shot tank turrets in unsafe
+
+An unsafe railgun shot will deal 1500/562.5 (damage/durable). For reference a commando currently deals 450/450 and a recoilless rifle currently deals 650/650.</blockquote>
+
+*****
+
+####  DawnGuardian  
+##### 5345#       发表于 2024-9-12 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66181583&amp;ptid=2170852" target="_blank"> Launce 发表于 2024-9-12 10:44</a> jy000129 发表于 2024-9-12 09:00 耐久伤害，也就是破甲威力 甚至可能不是破甲而是击退/打断效果 这尼玛就是雌鬼初始数值，给幽默完了 So this change is kind of insane. With current enemy HP numbers the new railgun will:  2 shot charger heads in safe 1 shot </blockquote>
+我看有人说它这个威力提高250%可能只是坚固伤害提高，90-225正好是2.5倍，这个强化程度看着还算合理，希望箭头有足够的脑子别把数值填成前者了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  Jabeck  
+##### 5346#       发表于 2024-9-12 11:04
+
+这CEO之前还说磁轨一开始太强了不可能回调到一开始的强度， 这群B看人都不玩了开始慌了。
+

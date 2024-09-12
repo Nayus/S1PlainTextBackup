@@ -13690,3 +13690,14 @@ bb2宝了两个四星都没影...
 — from nubia ...</blockquote>
 你在说什么，武藏亲大笨蛋被玩家复读到现在都多少年了，图鉴撕卡没多久之后照样开池子复刻，根本没有人被感动好吗，完全是个无效煽情23333
 
+
+*****
+
+####  sin.yugi  
+##### 14593#       发表于 2024-9-12 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66181406&amp;ptid=2084912" target="_blank">angelooo 发表于 2024-9-11 21:20</a>
+
+你在说什么，武藏亲大笨蛋被玩家复读到现在都多少年了，图鉴撕卡没多久之后照样开池子复刻，根本没有人被 ...</blockquote>
+所以啊，连牢藏都没效煽情，其他的更没用了，因为便当=员工下班回迦勒底
+

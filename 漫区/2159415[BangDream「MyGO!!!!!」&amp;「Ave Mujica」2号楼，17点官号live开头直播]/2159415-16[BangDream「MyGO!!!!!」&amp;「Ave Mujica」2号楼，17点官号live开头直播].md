@@ -8304,3 +8304,21 @@ wsd：回旋了吗<img src="https://static.saraba1st.com/image/smiley/face2017/0
   -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
 外战有buff<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  六道明  
+##### 22955#       发表于 2024-9-12 16:48
+
+祥子你为什么不笑啊，不会和某人一样在包饺子现场丢脸了吧<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rikaren  
+##### 22956#       发表于 2024-9-12 16:55
+
+<blockquote>ytttsuuuba 发表于 2024-9-12 16:16
+而且12月份肯定会出有内容的PV的，所以等2.5个月就有动画的新东西了。不知道1月几号发送。 ...</blockquote>
+我之前猜测是12.15宣布1.16动画开始放送
+

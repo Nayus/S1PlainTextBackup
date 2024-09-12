@@ -1242,3 +1242,33 @@ ps4pro打轨迹够了的，ps5的性能溢出太多了。
 创轨单独后日谈明明是剑女好吧....</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">不，主要我是搞不懂创轨给剑女涨多少人气。按照你的说法，给剧情就应该有人气了，剑女黎轨里就这点剧情量，第二部特地上封面骗人，说句改命也不为过吧。说地位，剑女的故事用这点剧情在基本上已经说完，她就剩一个前女友（自称没分手）了。界轨要讲创世讲上太空讲上魔神讲八叶一刀流之类的，我都不知道她能进哪条线里边
 
+
+*****
+
+####  隔壁老黄  
+##### 4568#       发表于 2024-9-12 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66186185&amp;ptid=2160194" target="_blank">Oshino 发表于 2024-9-12 18:34</a>
+不，主要我是搞不懂创轨给剑女涨多少人气。按照你的说法，给剧情就应该有人气了，剑女黎轨里就这点剧情量 ...</blockquote>
+剑女的家事处理太敷衍，本身可以大做文章的，结果就那样匆匆结束，然而就像苦劳那样，人气高死了也能复活，瞎掰剧情有啥难度，顶多就跟学妹绑定呗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  Aeons  
+##### 4569#       发表于 2024-9-12 18:38
+
+剑女创轨是最高规格没问题吧，大多数都以为她女主了。
+但最后她不是女主只是女配是因为人气啥的吗，那也不是，只能说就这样设定，然后黎一剧情真不少了，一定要跟女主比没道理的。
+
+
+*****
+
+####  Aeons  
+##### 4570#       发表于 2024-9-12 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66186047&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-12 18:17</a>
+大舅哥可控</blockquote>
+黎二也是一时协力，别人在这可控十拿九稳，mk系在这说不好的
+

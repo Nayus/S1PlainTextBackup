@@ -8370,3 +8370,11 @@ wsd：回旋了吗<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 T恤好像还可以
 
+
+*****
+
+####  一壹  
+##### 22961#       发表于 2024-9-12 18:45
+
+RAS的二次人设做的太普通也是影响人气的问题吧，好在最近的卡面好起来点了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

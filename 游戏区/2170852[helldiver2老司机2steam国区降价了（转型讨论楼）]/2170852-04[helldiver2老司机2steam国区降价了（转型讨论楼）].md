@@ -431,3 +431,11 @@ An unsafe railgun shot will deal 1500/562.5 (damage/durable). For reference a co
 
 这不再一次实锤不玩自己做的游戏，一把下能见上队友几面啊还治疗枪<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xinfengj  
+##### 5359#       发表于 2024-9-12 23:31
+
+实验针扎牛身上会变疯牛吗
+

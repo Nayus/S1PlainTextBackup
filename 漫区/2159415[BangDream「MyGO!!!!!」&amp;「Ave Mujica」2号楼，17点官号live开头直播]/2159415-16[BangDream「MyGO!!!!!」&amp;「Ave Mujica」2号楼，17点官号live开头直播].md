@@ -8268,3 +8268,39 @@ go今年刚和破琵琶交接，被大家诟病掐角色声线严重的退化的
 
 2024-9-12 16:35 上传
 
+
+*****
+
+####  星天观测  
+##### 22952#       发表于 2024-9-12 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66185060&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-9-12 16:35</a>
+
+有一說一初華也可以
+
+ 到底為什麼要搞這一坨月相圍著真的被醜暈了</blockquote>
+没事，p成耳朵就可爱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 22953#       发表于 2024-9-12 16:41
+
+说起来3rd立绘刚出的时候还有挺多人觉得不好看
+
+wsd反手给你上一套元素特典
+
+wsd：回旋了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 22954#       发表于 2024-9-12 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66184805&amp;ptid=2159415" target="_blank">MASKA-1 发表于 2024-9-12 16:11</a>
+
+这两天看紫吧，羊gachi还是猛的
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+外战有buff<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

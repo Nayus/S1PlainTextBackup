@@ -470,3 +470,43 @@ A part修得挺好看的
 
 估计这次剧场版大福真的有变身形态吧，不过我个人倾向于是变特殊战士不是变Q娃（
 
+
+*****
+
+####  pokemon最爱  
+##### 2158#       发表于 2024-9-10 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66162861&amp;ptid=2162354" target="_blank">朝日奈みらい. 发表于 2024-9-10 11:10</a>
+
+阿悟消失杀人事件
+
+和我们无关啊，和我们……</blockquote>
+最重要的不是动物形态小麦小雪的杯垫颜色从黄色橙色变成了自己的粉色蓝色吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+估计这次剧场版大福真的有变身形态吧，不过我个人倾向于是变特殊战士不是变Q娃（
+
+*****
+
+####  Arson=desu  
+##### 2159#       发表于 2024-9-12 08:40
+
+大福确认有人型，这下基本实锤兔子要变身了吧，颜色也和之前对得上
+
+<img src="https://img.saraba1st.com/forum/202409/12/083644p3dw3ynapd3wyayw.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>064541srrgr0tkqn5q9z9y.webp</strong> (21.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-12 08:36 上传
+
+<img src="https://img.saraba1st.com/forum/202409/12/083643tf5a4feof4d22l16.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>064453sf61l1m6q1dq9n62.webp</strong> (53.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-12 08:36 上传
+
+不过怎么又是橘色，这是什么男q固定配色吗，跟你和悟君的印象完全对不上呀<img src="https://static.saraba1st.com/image/smiley/carton2017/007.png" referrerpolicy="no-referrer">
+

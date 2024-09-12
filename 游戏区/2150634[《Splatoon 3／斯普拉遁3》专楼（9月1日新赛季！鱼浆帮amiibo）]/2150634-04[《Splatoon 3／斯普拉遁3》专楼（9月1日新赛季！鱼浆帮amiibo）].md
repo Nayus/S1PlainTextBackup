@@ -2527,3 +2527,19 @@ DLC设定集和OST，12月11日发售。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  shirolin  
+##### 5189#       发表于 2024-9-12 08:41
+
+9点更新Ver.9.1.0
+
+加了大型祭典数据，修了1个对战bug、2个打工bug、1个拍照bug没了。
+预告的下一次更新只有武器平衡性调整。
+以上。
+
+https://support.nintendo.com/jp/switch/software_support/av5ja/910.html
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

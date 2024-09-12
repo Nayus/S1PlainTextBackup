@@ -8022,3 +8022,40 @@ mygotv里的老团客串也是场地npc役和拼盘
 
 [https://x.com/baiyuBYY/status/1833886039762669766](https://x.com/baiyuBYY/status/1833886039762669766)
 
+
+*****
+
+####  ddy2811  
+##### 22935#       发表于 2024-9-12 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66182650&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-9-12 12:31</a>
+
+证明给谁看呢？鸡队员？狗？这两方有人在乎这个么
+
+不会是证明给屏幕前的观众老爷吧 ...</blockquote>
+证明给家族之类幕后势力啊，这也是比较主要的猜测之一吧
+
+*****
+
+####  星天观测  
+##### 22936#       发表于 2024-9-12 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66184334&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-9-12 15:23</a>
+
+证明给家族之类幕后势力啊，这也是比较主要的猜测之一吧</blockquote>
+tgw物产只是个没有根据的假药，还是别太信了比较好
+
+动画和二创还是分开点，以后观感比较舒适<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 22937#       发表于 2024-9-12 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66184368&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-9-12 15:26</a>
+
+tgw物产只是个没有根据的假药，还是别太信了比较好
+
+动画和二创还是分开点，以后观感比较舒适 ...</blockquote>
+那我就要信呢<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">反正猜又没什么成本嘛
+

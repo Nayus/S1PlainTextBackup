@@ -8462,3 +8462,11 @@ Z8现在是把对🐏不满的打成哭，再抨击哭，同时给🐏分锅。
 
 【【混音修复】《人マニア/人狂热者》 - Roselia】 [https://www.bilibili.com/video/B ... dfcd9b78924c5908c6a](https://www.bilibili.com/video/BV1JH4HepE8d/?share_source=copy_web&amp;vd_source=fa7d512922707dfcd9b78924c5908c6a)
 
+
+*****
+
+####  星天观测  
+##### 22970#       发表于 2024-9-12 20:36
+
+问题不大，太烦了就单推萝或者退坑邦了，车个没完什么的太麻烦了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

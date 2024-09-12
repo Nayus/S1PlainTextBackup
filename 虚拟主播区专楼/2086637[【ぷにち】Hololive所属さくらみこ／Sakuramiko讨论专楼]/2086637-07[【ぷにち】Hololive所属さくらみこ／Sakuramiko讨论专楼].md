@@ -8757,3 +8757,38 @@ fbk说今天可能有线下联动，不好说
 
 狐狐的话，我放心
 
+
+*****
+
+####  holoan  
+##### 9610#         楼主| 发表于 2024-9-12 20:13
+
+<img src="https://img.saraba1st.com/forum/202409/12/201300h1s6x81bv6st81tm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-12 20:13 上传
+
+太放心了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| rs5621| + 1|笑晕|
+
+查看全部评分
+
+*****
+
+####  rs5621  
+##### 9611#       发表于 2024-9-12 20:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">35：狐狐，你在扮我么,怒了
+

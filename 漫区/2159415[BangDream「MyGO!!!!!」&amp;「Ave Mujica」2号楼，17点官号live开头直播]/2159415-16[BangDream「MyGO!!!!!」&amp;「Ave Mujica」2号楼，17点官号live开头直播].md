@@ -7994,3 +7994,13 @@ Mujica 动画烂的猜测很难说是贷款吧，独角兽提前切割，柿本�
 
 mygotv里的老团客串也是场地npc役和拼盘
 
+
+*****
+
+####  NODY  
+##### 22933#       发表于 2024-9-12 12:45
+
+设定成公司抽风，在和萝拼盘的时候搞了什么蹭热度的骚操作引起炎上就行了，然后像第三季ras那样团魂挨个救回来再挽回名声
+
+反正邦邦公司搞事也不是一次两次了，推给公司大家都理解的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

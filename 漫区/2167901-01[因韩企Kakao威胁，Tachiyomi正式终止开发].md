@@ -2857,3 +2857,24 @@ jmtt用不了了？
 
 拷贝的仓库好像删了
 
+
+*****
+
+####  3三稻  
+##### 269#       发表于 2024-9-12 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66182676&amp;ptid=2167901" target="_blank">社美胡 发表于 2024-9-12 12:33</a>
+拷贝的仓库好像删了</blockquote>
+没啊
+https://github.com/stevenyomi/copymanga
+
+*****
+
+####  3三稻  
+##### 270#       发表于 2024-9-12 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66182612&amp;ptid=2167901" target="_blank">Artanis 发表于 2024-9-12 12:28</a>
+漫画柜刷不出图是代理问题吗</blockquote>
+我这可以
+试试非日本的节点？
+

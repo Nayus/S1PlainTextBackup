@@ -789,3 +789,20 @@ Q娃系列现在的毛病不是像以前那时谁走了(系列发展)就万事�
 
 看了一下animan的剧透兔子声优是中村悠一<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这真是没想到
 
+
+*****
+
+####  Cloudslin  
+##### 2191#       发表于 2024-9-13 01:12
+
+感觉有男偷看的豚友可以研究一下“蝴蝶/彩羽是高桥P皮套”理论了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  帝下室の年糕  
+##### 2192#       发表于 2024-9-13 01:14
+
+把蝴蝶姐当皮套还设置一个婴儿情敌也太变态了
+

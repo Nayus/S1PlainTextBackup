@@ -8667,3 +8667,11 @@ lsl估计是去宣传上海live的
 
 武士道的全部审美都用在信封挂件和场T上了
 
+
+*****
+
+####  NODY  
+##### 22986#       发表于 2024-9-13 01:34
+
+突然发现梦以这个裙子的花纹不就是海铃手机头像背景（也就是之前考据说的nana的裙子）<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

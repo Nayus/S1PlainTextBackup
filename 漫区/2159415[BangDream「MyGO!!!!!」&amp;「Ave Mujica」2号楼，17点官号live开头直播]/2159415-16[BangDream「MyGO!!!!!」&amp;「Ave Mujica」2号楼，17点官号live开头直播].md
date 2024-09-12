@@ -8416,3 +8416,13 @@ Z8现在是把对🐏不满的打成哭，再抨击哭，同时给🐏分锅。
 
 什么时候mujica有新东西啊，没盼头了
 
+
+*****
+
+####  日野下花帆  
+##### 22965#       发表于 2024-9-12 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66185786&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-9-12 17:49</a>
+7月到8月就全面战争了，火一直都在的</blockquote>
+没事，明年就可以鸡狗大战了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -8070,3 +8070,31 @@ tgw物产只是个没有根据的假药，还是别太信了比较好
 那我就要信呢反正猜又没什么成本嘛，我去年就这么猜了，不需要别人的假药 ...</blockquote>
 那你爱信信呗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 22939#       发表于 2024-9-12 15:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不知不覺這個月也快過去一半了，特大好消息 距離開播只有3.5個月了
+
+啥情報都沒有恭喜樓友們快熬完2024年了，只剩最後30%！
+
+*****
+
+####  星天观测  
+##### 22940#       发表于 2024-9-12 15:47
+
+wsd：这些鸡推真是赶都赶不走饿也饿不死啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+下次还搞鬼图
+
+*****
+
+####  550616  
+##### 22941#       发表于 2024-9-12 15:49
+
+RAS是萝手把手带的，加上自身技术实力过硬
+
+go今年刚和破琵琶交接，被大家诟病掐角色声线严重的退化的邦高祖完爆。。没法比呀
+

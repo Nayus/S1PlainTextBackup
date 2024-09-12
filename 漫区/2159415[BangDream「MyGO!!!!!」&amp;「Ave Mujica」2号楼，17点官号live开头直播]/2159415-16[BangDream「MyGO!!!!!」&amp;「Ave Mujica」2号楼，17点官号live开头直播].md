@@ -8644,3 +8644,18 @@ lsl估计是去宣传上海live的
 
 2024-9-12 23:41 上传
 
+
+*****
+
+####  akiomn  
+##### 22983#       发表于 2024-9-13 00:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是熟悉的外星人啊，这下看懂了
+
+*****
+
+####  星天观测  
+##### 22984#       发表于 2024-9-13 00:09
+
+最后一张有点刻晴了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -752,3 +752,13 @@ Precure这词没有任何意思可以翻译出光之美少女这个翻译出来�
 我希望高桥麻树可以滚了就这样吧</blockquote>
 高桥麻树滚了也不见得能有好转<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 2187#       发表于 2024-9-13 00:12
+
+我觉得吧兔组这身一看就是特殊战士定位，不用太担心（
+
+兔组跟前辈互动感觉恐怕也是跟鸟（以及可能有Mofurun）互动，更别说根据PV的台词看这次卖的是犬组CP，兔山哥被迫害的可能性还更高些<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

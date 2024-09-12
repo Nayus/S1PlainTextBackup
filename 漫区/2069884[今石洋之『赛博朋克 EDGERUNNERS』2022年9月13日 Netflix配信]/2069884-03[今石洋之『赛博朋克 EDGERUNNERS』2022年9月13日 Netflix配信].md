@@ -32,3 +32,14 @@
 
 感觉就是赛博朋克+黑社会题材片<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，夜之城这样的地方还是不要存在才能让人幸福吧
 
+
+*****
+
+####  aptx8285144  
+##### 3211#       发表于 2024-9-12 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57490738&amp;ptid=2069884" target="_blank">uponutopia 发表于 2022-9-15 03:17</a>
+
+这片我最喜欢也是最失望的是第六集，首先品质上直接崩了，很多卡脸崩的没法看，有些意义不明的多余演出比如 ...</blockquote>
+原来如此，怪不得我觉得男主这里被田中蛊惑特别奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，大哥你有没有意识到自己在混黑社会呀jpg
+

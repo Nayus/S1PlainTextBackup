@@ -2600,3 +2600,27 @@ https://support.nintendo.com/jp/switch/software_support/av5ja/910.html
 
 ...有也不会在大型祭典开始前一天说啊，想啥呢
 
+
+*****
+
+####  liekong  
+##### 5196#       发表于 2024-9-12 14:38
+
+<img src="https://img.saraba1st.com/forum/202409/12/143824dzrrr3s1l5r3ssbj.jpg" referrerpolicy="no-referrer">
+
+<strong>)LBJKF4RY_7O}R%9`6Q{)TI.jpg</strong> (219.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-12 14:38 上传
+
+<img src="https://img.saraba1st.com/forum/202409/12/143825alsc44en6wqc6nvw.jpg" referrerpolicy="no-referrer">
+
+<strong>977F7%BWGRB6H]%UBIZ)$IQ.jpg</strong> (229.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-12 14:38 上传
+
+朋友给我发来这两张图，遭不住<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+

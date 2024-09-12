@@ -1014,3 +1014,42 @@ ppt能算实机游玩吗
 
 只想要学妹的手办啊啊啊啊
 
+
+*****
+
+####  Oshino  
+##### 4547#       发表于 2024-9-12 17:56
+
+本来以为师姐会是第一个出的……剑女靠着那段月下告白逆天改命了啊<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 4548#       发表于 2024-9-12 17:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黎一是登场首作，黎一内容不能叫改命吧
+
+*****
+
+####  卢迪克  
+##### 4549#       发表于 2024-9-12 18:02
+
+创始彼方我还以为是女主，结果就是女配
+
+*****
+
+####  Oshino  
+##### 4550#       发表于 2024-9-12 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66185870&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-12 17:59</a>
+黎一是登场首作，黎一内容不能叫改命吧</blockquote>
+是说跟自己作品的内部顺位比，我原来是觉得学妹和师姐都排她前面的
+
+
+*****
+
+####  andychen  
+##### 4551#       发表于 2024-9-12 18:04
+
+管人执行者都来了，这法老控真是越来越没活了
+

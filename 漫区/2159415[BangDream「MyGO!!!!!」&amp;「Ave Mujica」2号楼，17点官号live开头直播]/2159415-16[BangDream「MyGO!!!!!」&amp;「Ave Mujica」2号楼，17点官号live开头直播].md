@@ -8436,3 +8436,21 @@ Z8现在是把对🐏不满的打成哭，再抨击哭，同时给🐏分锅。
 要是一起骂wsd 
 那就完蛋了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 22967#       发表于 2024-9-12 20:15
+
+真好吗，不可思议<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+今年已经闹了一年了，还闹一年真的烦都烦死
+
+
+*****
+
+####  rikaren  
+##### 22968#       发表于 2024-9-12 20:22
+
+难道不是至少还要闹好几年？手游待遇不同就该车到天翻地覆了。
+

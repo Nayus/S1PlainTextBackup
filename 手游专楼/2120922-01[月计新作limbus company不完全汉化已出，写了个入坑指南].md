@@ -610,3 +610,16 @@ lccb良被削了，三破或能白嫖40狂气</blockquote>
 
 另外up的蝶箱和蜘蛛良分别是沉沦和流血的体系主C，最好能抽出来。第六章基本把沉沦拼图补齐了，下一章因为血魔的原因有可能会推流血队...
 
+
+*****
+
+####  菟原手兒奈  
+##### 875#       发表于 2024-9-12 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66186308&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2024-9-12 18:50</a>
+
+资源本完成每日任务即可，每周镜牢三次加成和限时活动不要错过，慢慢积攒提升战力过主线就行了。
+
+另外up ...</blockquote>
+感谢，正在慢慢推图，这游戏系统太复杂了好难学啊
+

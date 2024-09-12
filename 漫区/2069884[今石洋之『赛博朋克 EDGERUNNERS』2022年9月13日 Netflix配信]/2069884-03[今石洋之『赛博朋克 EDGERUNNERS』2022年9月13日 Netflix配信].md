@@ -24,3 +24,11 @@
 说实话，loli的确太废萌了，和赛博朋克格格不入</blockquote>
 外表明显也不是美型的存在呀<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 3210#       发表于 2024-9-12 20:06
+
+感觉就是赛博朋克+黑社会题材片<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，夜之城这样的地方还是不要存在才能让人幸福吧
+

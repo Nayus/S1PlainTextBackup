@@ -1124,3 +1124,28 @@ gs的无解说试玩，我没看完，估计有不少内容剧透，在意游戏
 
 任天堂《塞尔达传说 智慧的再现》发布「塞尔达公主是主角篇」和「复制篇」两则CM，本作将于9月26日发售。#塞尔达传说##塞尔达传说智慧的再现# http://t.cn/A6R3muof ​​​
 
+
+*****
+
+####  佛罗伦萨  
+##### 561#       发表于 2024-9-12 11:47
+
+很棒棒，还特意做了这种不是实机的cg来宣传
+
+
+*****
+
+####  kooor555  
+##### 562#       发表于 2024-9-12 11:52
+
+会不会有隐藏主角的可能，最后让大家爽一把林克<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kuarwbwe  
+##### 563#       发表于 2024-9-12 11:53
+
+今天收到提醒我19号扣券的邮件，我急了。<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+怎么还有14年！这九月怎么这么难熬。<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+

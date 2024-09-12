@@ -8675,3 +8675,12 @@ lsl估计是去宣传上海live的
 
 突然发现梦以这个裙子的花纹不就是海铃手机头像背景（也就是之前考据说的nana的裙子）<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 22987#       发表于 2024-9-13 01:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">byd不是我想烤羊，是b站推荐给我整笑了。刷个羊姐翻唱的，下面要么是理名原唱mygo伴奏，要么是羊姐不变，换成gbc版伴奏
+控制变量法给玩明白了
+

@@ -8426,3 +8426,13 @@ Z8现在是把对🐏不满的打成哭，再抨击哭，同时给🐏分锅。
 7月到8月就全面战争了，火一直都在的</blockquote>
 没事，明年就可以鸡狗大战了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives  
+##### 22966#       发表于 2024-9-12 19:46
+
+鸡狗大战其实是好事
+要是一起骂wsd 
+那就完蛋了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -692,3 +692,20 @@ Precure这词没有任何意思可以翻译出光之美少女这个翻译出来�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Mr.Giraffe  
+##### 2180#       发表于 2024-9-12 23:15
+
+兔子变就算了，悟哥哥旁观大半季了也要下场掺一脚，期待一下男人之间热血沸腾的组合技<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Arson=desu  
+##### 2181#       发表于 2024-9-12 23:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
+

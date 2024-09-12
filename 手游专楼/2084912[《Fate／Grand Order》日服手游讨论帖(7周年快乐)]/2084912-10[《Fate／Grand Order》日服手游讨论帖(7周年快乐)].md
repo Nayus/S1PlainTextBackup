@@ -13727,3 +13727,28 @@ bb2宝了两个四星都没影...
 
 感觉就打了3个小时不到……
 
+
+*****
+
+####  gxliv  
+##### 14597#       发表于 2024-9-12 13:58
+
+红迪的网友似乎找到了爱尔奎特的原型，当年只有15岁的加拿大模特
+[https://www.reddit.com/r/grandor ... eid_after_23_years/](https://www.reddit.com/r/grandorder/comments/1fed3cf/we_found_the_model_for_arcueid_after_23_years/)
+
+
+*****
+
+####  大十字紅朔  
+##### 14598#       发表于 2024-9-12 14:02
+
+你的立绘很帅，但是你的帧数很低又弥补了这一点
+
+<img src="https://img.saraba1st.com/forum/202409/12/140216dtczgyoapcgyzgpz.gif" referrerpolicy="no-referrer">
+
+<strong>003.gif</strong> (2.88 MB, 下载次数: 0)
+
+下载附件
+
+2024-9-12 14:02 上传
+

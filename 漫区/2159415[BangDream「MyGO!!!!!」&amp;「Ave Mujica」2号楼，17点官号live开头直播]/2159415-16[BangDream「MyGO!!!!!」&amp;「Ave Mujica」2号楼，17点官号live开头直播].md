@@ -8205,3 +8205,66 @@ go今年刚和破琵琶交接，被大家诟病掐角色声线严重的退化的
 
 祥子吧唧把头上的圆消掉的话好像可以变成米老鼠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 22948#       发表于 2024-9-12 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66184891&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-9-12 16:20</a>
+
+这个杯垫和初华的彩窗挂件可以买一下
+
+祥子吧唧把头上的圆消掉的话好像可以变成米老鼠 ...</blockquote>
+
+猜你想要：
+
+<img src="https://img.saraba1st.com/forum/202409/12/163239d7hothbl1vlx4tjh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (468.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-12 16:32 上传
+
+*****
+
+####  星天观测  
+##### 22949#       发表于 2024-9-12 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66185029&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-9-12 16:32</a>
+
+猜你想要：</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是这个哈哈哈哈
+
+*****
+
+####  日野下花帆  
+##### 22950#       发表于 2024-9-12 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66184805&amp;ptid=2159415" target="_blank">MASKA-1 发表于 2024-9-12 16:11</a>
+这两天看紫吧，羊gachi还是猛的
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被路人踩头之后的无能狂怒样子确实有点搞笑了，好像说的烤羊不是他们发明的一样，也不愿骂骂他们亲爹武士道
+
+*****
+
+####  御幸一也  
+##### 22951#       发表于 2024-9-12 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66185044&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-9-12 16:34</a>
+
+就是这个哈哈哈哈</blockquote>
+
+有一說一初華也可以
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 到底為什麼要搞這一坨月相圍著真的被醜暈了
+
+<img src="https://img.saraba1st.com/forum/202409/12/163517zh8ze75mhw5m45xh.png" referrerpolicy="no-referrer">
+
+<strong>image (1).png</strong> (504.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-12 16:35 上传
+

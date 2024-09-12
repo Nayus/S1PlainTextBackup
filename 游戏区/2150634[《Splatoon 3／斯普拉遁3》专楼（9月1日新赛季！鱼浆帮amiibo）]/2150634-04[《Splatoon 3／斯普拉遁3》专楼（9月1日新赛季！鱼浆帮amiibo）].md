@@ -2576,3 +2576,11 @@ https://support.nintendo.com/jp/switch/software_support/av5ja/910.html
 
 现在都没第二贴牌，感觉不会有了
 
+
+*****
+
+####  yanglian72  
+##### 5193#       发表于 2024-9-12 09:09
+
+下次更新描述里说了，要进行长期分析，所以——完结喽
+

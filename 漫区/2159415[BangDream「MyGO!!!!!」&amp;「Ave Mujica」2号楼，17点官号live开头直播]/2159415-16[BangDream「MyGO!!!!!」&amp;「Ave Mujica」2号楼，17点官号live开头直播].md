@@ -8333,3 +8333,16 @@ wsd：回旋了吗<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  ddy2811  
+##### 22958#       发表于 2024-9-12 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66185341&amp;ptid=2159415" target="_blank">MASKA-1 发表于 2024-9-12 17:01</a>
+
+我觉得最搞笑的是一遍转火gbc，一边绝不认输。
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+7月到8月就全面战争了，火一直都在的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

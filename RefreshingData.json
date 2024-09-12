@@ -618,7 +618,7 @@
     "lastedit": 1726143420,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1985647": {
     "totalreply": 2250,
@@ -8631,10 +8631,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 74064,
+    "totalreply": 74067,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1726178051,
+    "lastedit": 1726180089,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -8820,10 +8820,10 @@
     "update": false
   },
   "2186894": {
-    "totalreply": 36038,
+    "totalreply": 36106,
     "title": "[【集中讨论】二游圈吃瓜／搬运／黑泥讨论楼，欢迎点燃大海]",
     "newtitle": "[【集中讨论】二游圈吃瓜／搬运／黑泥讨论楼，欢迎点燃大海]",
-    "lastedit": 1726172530,
+    "lastedit": 1726179972,
     "category": "手游战斗",
     "active": true,
     "update": false
@@ -10080,10 +10080,10 @@
     "update": false
   },
   "2195819": {
-    "totalreply": 248,
+    "totalreply": 249,
     "title": "[既然都玩上了，可以给前几天的KOL节奏事件做个了结了——游戏素质能不能清算媒体分？]",
     "newtitle": "[既然都玩上了，可以给前几天的KOL节奏事件做个了结了——游戏素质能不能清算媒体分？]",
-    "lastedit": 1726099950,
+    "lastedit": 1726179855,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17226,10 +17226,10 @@
     "update": false
   },
   "2198984": {
-    "totalreply": 58,
+    "totalreply": 60,
     "title": "[体感，周围有PS3的都买PS4了，但有PS4的没几个买PS5]",
     "newtitle": "[体感，周围有PS3的都买PS4了，但有PS4的没几个买PS5]",
-    "lastedit": 1726164251,
+    "lastedit": 1726179855,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17775,10 +17775,10 @@
     "update": false
   },
   "2199151": {
-    "totalreply": 127,
+    "totalreply": 128,
     "title": "[月饼就是根子上不好吃]",
     "newtitle": "[月饼就是根子上不好吃]",
-    "lastedit": 1726163773,
+    "lastedit": 1726179608,
     "category": "外野",
     "active": true,
     "update": false
@@ -17924,6 +17924,15 @@
     "newtitle": "[为什么我国游戏社区平台没有防剧透功能]",
     "lastedit": 1726176489,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2199177": {
+    "totalreply": 41,
+    "title": "[佛教的善恶观到底是怎么来的？]",
+    "newtitle": "[佛教的善恶观到底是怎么来的？]",
+    "lastedit": 1726179856,
+    "category": "外野",
     "active": true,
     "update": false
   }

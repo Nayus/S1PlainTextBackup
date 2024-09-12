@@ -227,3 +227,41 @@ Q. 您之前提到的测试又是怎么回事？
 难度我个人无所谓主要是没东西，要是早期解包的各种东西一个个放出来那还可以。
 现在发个破比战备还要抠抠索索那还是好走。
 
+
+*****
+
+####  北条早苗  
+##### 5339#       发表于 2024-9-11 22:55
+
+幽默箭头，人都跑光了搁着强化披风虫呢
+
+*****
+
+####  风萧飒  
+##### 5340#       发表于 2024-9-12 00:52
+
+筒子估计会减cd吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Aeons  
+##### 5341#       发表于 2024-9-12 01:03
+
+难度我个人无所谓主要是没东西，要是早期解包的各种东西一个个放出来那还可以。
+现在发个破比战备还要抠抠索索那还是好走。
+
+*****
+
+####  jy000129  
+##### 5342#       发表于 2024-9-12 09:00
+
+ 本帖最后由 jy000129 于 2024-9-12 09:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66178943&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-9-11 21:59</a>
+225×250%=562.5牛和泰坦2枪过充打死</blockquote>
+耐久伤害，也就是破甲威力<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+甚至可能不是破甲而是击退/打断效果
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

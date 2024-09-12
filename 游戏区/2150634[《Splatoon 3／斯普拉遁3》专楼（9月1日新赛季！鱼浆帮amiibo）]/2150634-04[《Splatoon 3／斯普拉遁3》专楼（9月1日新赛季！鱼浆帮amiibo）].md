@@ -2561,3 +2561,18 @@ https://support.nintendo.com/jp/switch/software_support/av5ja/910.html
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  罗克萨斯  
+##### 5191#       发表于 2024-9-12 08:56
+
+第二贴牌啥时候发放？武器兑换券一直攒着没抽奖，就是为了打包第二贴牌
+
+*****
+
+####  墨染白泉  
+##### 5192#       发表于 2024-9-12 08:58
+
+现在都没第二贴牌，感觉不会有了
+

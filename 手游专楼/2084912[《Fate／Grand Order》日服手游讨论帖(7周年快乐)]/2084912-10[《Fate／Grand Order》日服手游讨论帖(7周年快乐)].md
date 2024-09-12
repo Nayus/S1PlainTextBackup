@@ -13709,3 +13709,11 @@ bb2宝了两个四星都没影...
 
 白野这衣服还挺帅的，就是过了剧情后忍不住想把夹克上的球换成宝可梦的红白球
 
+
+*****
+
+####  khxooo  
+##### 14595#       发表于 2024-9-12 12:02
+
+最后一战为了保险放了个仇凛在后面，谁知道人头是仇凛收的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

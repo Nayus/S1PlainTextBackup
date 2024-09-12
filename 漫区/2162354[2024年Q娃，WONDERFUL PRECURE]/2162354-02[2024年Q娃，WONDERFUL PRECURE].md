@@ -559,3 +559,23 @@ A part修得挺好看的
 
 总觉得会搞个女兔子玩三角恋的感觉……
 
+
+*****
+
+####  pokemon最爱  
+##### 2166#       发表于 2024-9-12 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66181463&amp;ptid=2162354" target="_blank">maoyou 发表于 2024-9-12 10:27</a>
+
+光之美少女，标题就是纯女空间了，塞男的不是欺诈吗。这种事怎么能和来打对标
+
+—— 来自 鹅球 v3.1.88.3-a ...</blockquote>
+Precure这词没有任何意思可以翻译出光之美少女这个翻译出来，纯粹是根据初代设定生编的翻译<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pokemon最爱  
+##### 2167#       发表于 2024-9-12 12:03
+
+大福变身这事之前剧场版OST歌单泄露倒是就泄露出来了，不过基本没可能是追加战士了，定位应该是番外战士（拥抱安理那种非正编Q娃或者干脆是派对黑胡椒那种特殊战士）
+

@@ -8528,3 +8528,41 @@ mika老师感慨音宝成年，引得众人妈声一片<img src="https://static.
 
 谁能想到wsd还能整出蛋白祭啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 22977#       发表于 2024-9-12 21:54
+
+蛋白棒已经是老登每场live都宣传的常驻嘉宾了，鉴定为邦邦台柱周边<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 22978#       发表于 2024-9-12 21:56
+
+<img src="https://img.saraba1st.com/forum/202409/12/215555d035ndia4qbkr5iq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-09-12-21-49-27-97_149003a2d400f6adb210d7e357a3a646.jpg</strong> (386.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-12 21:55 上传
+
+补个图
+
+*****
+
+####  rikaren  
+##### 22979#       发表于 2024-9-12 21:57
+
+<img src="https://img.saraba1st.com/forum/202409/12/215649kyco9mcu9supcsyc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-09-12-21-56-19-88_149003a2d400f6adb210d7e357a3a646.jpg</strong> (239.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-12 21:56 上传
+
+好像可以贷款万圣活动成员了（x）
+

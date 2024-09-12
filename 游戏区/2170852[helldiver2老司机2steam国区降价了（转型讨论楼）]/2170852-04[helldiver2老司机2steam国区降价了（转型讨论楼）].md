@@ -387,3 +387,21 @@ An unsafe railgun shot will deal 1500/562.5 (damage/durable). For reference a co
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">所以 折腾半年的结论是从第一个补丁开始撤回吗？
 
+
+*****
+
+####  BadYanL  
+##### 5354#       发表于 2024-9-12 22:03
+
+毒气系列西线完全没用啊
+
+补血枪算是第一款辅助武器？
+
+*****
+
+####  xinfengj  
+##### 5355#       发表于 2024-9-12 22:05
+
+<img src="https://p.sda1.dev/19/41270cd7380218cc174e4921ae71ac3f/CMP_20240912220440097.jpg" referrerpolicy="no-referrer">
+为什么不配人狼甲<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

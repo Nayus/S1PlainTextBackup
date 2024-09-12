@@ -379,3 +379,11 @@ An unsafe railgun shot will deal 1500/562.5 (damage/durable). For reference a co
 
 这是在干嘛？求饶吗
 
+
+*****
+
+####  屑屑代沟尼亚  
+##### 5353#       发表于 2024-9-12 21:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">所以 折腾半年的结论是从第一个补丁开始撤回吗？
+

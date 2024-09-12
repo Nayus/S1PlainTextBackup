@@ -1272,3 +1272,25 @@ ps4pro打轨迹够了的，ps5的性能溢出太多了。
 大舅哥可控</blockquote>
 黎二也是一时协力，别人在这可控十拿九稳，mk系在这说不好的
 
+
+*****
+
+####  Oshino  
+##### 4571#       发表于 2024-9-12 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66186217&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-12 18:38</a>
+剑女创轨是最高规格没问题吧，大多数都以为她女主了。
+
+但最后她不是女主只是女配是因为人气啥的吗，那也不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那你可能误会了什么，我说她逆天改命是靠月下告白那段剧情人气暴涨成为黎第一个出手办的人而已。如果她人气不高，我觉得出手办还真轮不到她
+
+
+*****
+
+####  Aeons  
+##### 4572#       发表于 2024-9-12 18:52
+
+ 本帖最后由 Aeons 于 2024-9-12 18:53 编辑 
+
+说起来卡西姆这图是不是终于有S了，米拉贝尔支援橙色是敌方支援吧，练手吗。
+

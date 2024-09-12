@@ -2958,3 +2958,15 @@ mihon已经显示废弃了
 试试非日本的节点？</blockquote>
 开WebView能看，但是app里打不开
 
+
+*****
+
+####  pgain2004  
+##### 278#         楼主| 发表于 2024-9-12 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66184808&amp;ptid=2167901" target="_blank">社美胡 发表于 2024-9-12 16:12</a>
+mihon已经显示废弃了</blockquote>
+我把仓库删了，刷新后显示了废弃字样
+再把仓库添加回去，重启应用，刷新插件列表，废弃字样去掉了
+不是很懂你那边的情况，偶尔访问出问题后在插件里换个域名就能继续用，目前为止都还能用啊
+

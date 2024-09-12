@@ -867,3 +867,14 @@ What a wonderful radio完结还行……
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  starring  
+##### 21034#       发表于 2024-9-12 11:39
+
+开通staff账号了，接下来会多一些新工作了吧
+<img src="https://p.sda1.dev/19/be44c745abd7f47553487e72d969fa26/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

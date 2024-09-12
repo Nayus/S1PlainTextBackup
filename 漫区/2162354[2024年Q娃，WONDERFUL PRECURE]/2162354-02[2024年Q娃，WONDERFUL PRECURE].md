@@ -770,3 +770,22 @@ Precure这词没有任何意思可以翻译出光之美少女这个翻译出来�
 
 连着几年了，一直塞，干脆正式转正得了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Blackson  
+##### 2189#       发表于 2024-9-13 00:33
+
+Q娃系列现在的毛病不是像以前那时谁走了(系列发展)就万事大吉
+
+这次兔子和悟估计是像电影毛熊那种特殊战士
+
+*****
+
+####  natmk  
+##### 2190#       发表于 2024-9-13 00:33
+
+ 本帖最后由 natmk 于 2024-9-13 00:35 编辑 
+
+看了一下animan的剧透兔子声优是中村悠一<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这真是没想到
+

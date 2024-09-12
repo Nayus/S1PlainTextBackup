@@ -8378,3 +8378,19 @@ T恤好像还可以
 
 RAS的二次人设做的太普通也是影响人气的问题吧，好在最近的卡面好起来点了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 22962#       发表于 2024-9-12 18:57
+
+<img src="https://img.saraba1st.com/forum/202409/12/185707uoccjnkuohu8fbju.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_なごむ(@nagomu_7_56)_20240911-124422_1833849061059006968_photo.jpg</strong> (285.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-12 18:57 上传
+
+[https://x.com/nagomu_7_56/status/1833849061059006968](https://x.com/nagomu_7_56/status/1833849061059006968)
+

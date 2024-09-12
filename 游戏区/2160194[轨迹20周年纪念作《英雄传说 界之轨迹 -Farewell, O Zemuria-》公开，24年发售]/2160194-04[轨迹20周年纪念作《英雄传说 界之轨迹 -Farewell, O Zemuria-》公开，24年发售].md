@@ -1201,3 +1201,44 @@ ps4pro打轨迹够了的，ps5的性能溢出太多了。
 论人气创后黎前 静名&gt;剑女&gt;学妹 论地位 学妹&gt;剑女&gt;静名。
 之后怎么样不知道，但黎一怎么也谈不上逆转两位。
 
+
+*****
+
+####  隔壁老黄  
+##### 4564#       发表于 2024-9-12 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66186087&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-12 18:22</a>
+创轨单独后日谈明明是剑女好吧....</blockquote>
+对，学妹只是出现在玲的后日谈里，还以为就是个NPC
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+
+*****
+
+####  悠悠你心  
+##### 4565#       发表于 2024-9-12 18:33
+
+明天的电击有实机演示初公开，看来pv没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  ravend233  
+##### 4566#       发表于 2024-9-12 18:34
+
+都快发售了，没必要剪pv惹<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  Oshino  
+##### 4567#       发表于 2024-9-12 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66186087&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-12 18:22</a>
+
+创轨单独后日谈明明是剑女好吧....</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">不，主要我是搞不懂创轨给剑女涨多少人气。按照你的说法，给剧情就应该有人气了，剑女黎轨里就这点剧情量，第二部特地上封面骗人，说句改命也不为过吧。说地位，剑女的故事用这点剧情在基本上已经说完，她就剩一个前女友（自称没分手）了。界轨要讲创世讲上太空讲上魔神讲八叶一刀流之类的，我都不知道她能进哪条线里边
+

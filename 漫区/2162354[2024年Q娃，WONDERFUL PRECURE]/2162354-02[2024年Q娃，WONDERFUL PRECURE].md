@@ -822,3 +822,20 @@ q娃人设没有主角几个精致，果然还是剧场版限定吧
 
 贴吧已经有剧透了，看评价这次还行
 
+
+*****
+
+####  没有爱就看不见  
+##### 2195#       发表于 2024-9-13 02:39
+
+贴吧已经有剧透了，看评价这次还行
+
+*****
+
+####  maoyou  
+##### 2196#       发表于 2024-9-13 07:35
+
+看见这成双的衣服，悟和兔哥该不会是双人bank吧，，，<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

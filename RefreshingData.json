@@ -618,7 +618,7 @@
     "lastedit": 1726143420,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1985647": {
     "totalreply": 2250,
@@ -7565,7 +7565,7 @@
     "newtitle": "[鵺の阴阳师 这部意外的有人气？]",
     "lastedit": 1725914886,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2064223": {
@@ -8631,10 +8631,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 74060,
+    "totalreply": 74061,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1726172648,
+    "lastedit": 1726174688,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9495,10 +9495,10 @@
     "update": false
   },
   "2193382": {
-    "totalreply": 43516,
+    "totalreply": 43517,
     "title": "[【集中楼】百合&amp;泛百合讨论专楼8.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论专楼8.0]",
-    "lastedit": 1726171811,
+    "lastedit": 1726174329,
     "category": "漫区",
     "active": true,
     "update": false
@@ -17915,6 +17915,24 @@
     "newtitle": "[未官宣 我们不可能成为恋人！绝对不行 动画化]",
     "lastedit": 1726165572,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2199051": {
+    "totalreply": 41,
+    "title": "[奇异恩典这歌能成为黑人福音首选也挺地狱的]",
+    "newtitle": "[奇异恩典这歌能成为黑人福音首选也挺地狱的]",
+    "lastedit": 1726174449,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2199091": {
+    "totalreply": 41,
+    "title": "[为什么我国游戏社区平台没有防剧透功能]",
+    "newtitle": "[为什么我国游戏社区平台没有防剧透功能]",
+    "lastedit": 1726174569,
+    "category": "游戏区",
     "active": true,
     "update": false
   }

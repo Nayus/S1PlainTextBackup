@@ -413,3 +413,13 @@ An unsafe railgun shot will deal 1500/562.5 (damage/durable). For reference a co
 
 能不能不要给皮肤了
 
+
+*****
+
+####  风萧飒  
+##### 5357#       发表于 2024-9-12 22:17
+
+二代针这么好用的情况下，治疗枪有啥用
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

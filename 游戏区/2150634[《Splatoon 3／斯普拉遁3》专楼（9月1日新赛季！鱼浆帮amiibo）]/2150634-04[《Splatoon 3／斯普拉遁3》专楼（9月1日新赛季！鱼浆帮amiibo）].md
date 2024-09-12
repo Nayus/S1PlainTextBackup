@@ -2592,3 +2592,11 @@ https://support.nintendo.com/jp/switch/software_support/av5ja/910.html
 
 已经结束啦！
 
+
+*****
+
+####  绿冰  
+##### 5195#         楼主| 发表于 2024-9-12 09:27
+
+...有也不会在大型祭典开始前一天说啊，想啥呢
+

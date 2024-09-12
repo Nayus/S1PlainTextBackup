@@ -364,3 +364,18 @@ An unsafe railgun shot will deal 1500/562.5 (damage/durable). For reference a co
 
 然后我上线扔个游走炮幕，还是三发
 
+
+*****
+
+####  FLZB  
+##### 5351#       发表于 2024-9-12 20:24
+
+这逼箭头无敌了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  九十九忍  
+##### 5352#       发表于 2024-9-12 20:29
+
+这是在干嘛？求饶吗
+

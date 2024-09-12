@@ -1120,3 +1120,84 @@ ppt能算实机游玩吗
 
 ps4pro打轨迹够了的，ps5的性能溢出太多了。
 
+
+*****
+
+####  Oshino  
+##### 4558#       发表于 2024-9-12 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66185987&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-12 18:08</a>
+
+不太懂，如果说是人气，那黎一前学妹等于查无此人，学妹不可能比创轨就有形象的剑女强。
+
+如果说是剧情地 ...</blockquote>
+额，这种说法有点装傻啊，那你换着看呢。学妹是钦定女主位，稳到不行。至于师姐，创轨就特地给了她一段后日谈，没出场之前就期待值拉满了，对比起来剑女就是个最年轻的a级游击士之外啥都没了
+
+*****
+
+####  卢迪克  
+##### 4559#       发表于 2024-9-12 18:17
+
+ 本帖最后由 卢迪克 于 2024-9-12 18:19 编辑 
+
+大舅哥可控
+
+<img src="https://img.saraba1st.com/forum/202409/12/181724npoclgibuguypcpm.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240912_181700.jpg</strong> (260.43 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-12 18:17 上传
+
+<img src="https://img.saraba1st.com/forum/202409/12/181731f9rn6n5f2sd9u2ks.jpg" referrerpolicy="no-referrer">
+
+<strong>1726136207407.jpg</strong> (97.39 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-12 18:17 上传
+
+
+*****
+
+####  隔壁老黄  
+##### 4560#       发表于 2024-9-12 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66186043&amp;ptid=2160194" target="_blank">Oshino 发表于 2024-9-12 18:17</a>
+额，这种说法有点装傻啊，那你换着看呢。学妹是钦定女主位，稳到不行。至于师姐，创轨就特地给了她一段后 ...</blockquote>
+剑女也有专门的后日谈啊，当时都说这是女主，学妹只是玲的附庸
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+
+*****
+
+####  Aeons  
+##### 4561#       发表于 2024-9-12 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66186043&amp;ptid=2160194" target="_blank">Oshino 发表于 2024-9-12 18:17</a>
+额，这种说法有点装傻啊，那你换着看呢。学妹是钦定女主位，稳到不行。至于师姐，创轨就特地给了她一段后 ...</blockquote>
+创轨单独后日谈明明是剑女好吧....
+
+*****
+
+####  ravend233  
+##### 4562#       发表于 2024-9-12 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66186047&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-12 18:17</a>
+大舅哥可控</blockquote>
+那么到底是哪些幸运儿没进24可控呢
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  Aeons  
+##### 4563#       发表于 2024-9-12 18:24
+
+论人气创后黎前 静名&gt;剑女&gt;学妹 论地位 学妹&gt;剑女&gt;静名。
+之后怎么样不知道，但黎一怎么也谈不上逆转两位。
+

@@ -735,3 +735,20 @@ Precure这词没有任何意思可以翻译出光之美少女这个翻译出来�
 
 兔子果然是正太啊
 
+
+*****
+
+####  Parahure  
+##### 2185#       发表于 2024-9-12 23:55
+
+这样的话和前代q娃的互动肯定少不了了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Parahure  
+##### 2186#       发表于 2024-9-12 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66188648&amp;ptid=2162354" target="_blank">谁的无聊中 发表于 2024-9-12 23:24</a>
+我希望高桥麻树可以滚了就这样吧</blockquote>
+高桥麻树滚了也不见得能有好转<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

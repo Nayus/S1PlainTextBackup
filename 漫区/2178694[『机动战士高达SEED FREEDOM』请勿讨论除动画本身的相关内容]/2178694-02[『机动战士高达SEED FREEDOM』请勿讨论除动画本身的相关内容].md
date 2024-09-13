@@ -39,3 +39,19 @@
 
 时间居然这么赶，只剩下10天了才刚刚完成
 
+
+*****
+
+####  死难者23er  
+##### 1946#       发表于 2024-9-13 17:08
+
+高达seed的剧场版特别版首映我中了去见保志总一郎和桑岛法子了 
+
+<img src="https://img.saraba1st.com/forum/202409/13/170842t6j5wy8cca560g51.png" referrerpolicy="no-referrer">
+
+<strong>IMG_2801.png</strong> (330.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-13 17:08 上传
+

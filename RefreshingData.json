@@ -1013,7 +1013,7 @@
     "newtitle": "[传奇团CRPG《开拓者：正义之怒》专楼]",
     "lastedit": 1725957512,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2037739": {
@@ -4410,10 +4410,10 @@
     "update": false
   },
   "1955542": {
-    "totalreply": 23617,
+    "totalreply": 23619,
     "title": "[《黑神话 悟空》专楼，6分钟新剧情mv加8分钟实机演示公布]",
     "newtitle": "[【剧透请反白】黑神话 悟空，pc、ps5版24.8.20上午十点发售｜8.23销量破千万！]",
-    "lastedit": 1726216587,
+    "lastedit": 1726217179,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -7398,10 +7398,10 @@
     "update": false
   },
   "2170738": {
-    "totalreply": 4391,
+    "totalreply": 4392,
     "title": "[《碧蓝航线》五号楼｜新年啦]",
     "newtitle": "[《碧蓝航线》五号楼｜7周年了]",
-    "lastedit": 1726189820,
+    "lastedit": 1726216934,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -7902,10 +7902,10 @@
     "update": false
   },
   "2050404": {
-    "totalreply": 63837,
+    "totalreply": 63838,
     "title": "[东映完全新作原创动画『GIRLS BAND CRY』2024年4月]",
     "newtitle": "[东映完全新作原创动画『GIRLS BAND CRY』2024年4月]",
-    "lastedit": 1726216699,
+    "lastedit": 1726217073,
     "category": "漫区",
     "active": true,
     "update": false
@@ -8631,10 +8631,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 74575,
+    "totalreply": 74599,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1726216699,
+    "lastedit": 1726217288,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9441,10 +9441,10 @@
     "update": false
   },
   "2192892": {
-    "totalreply": 3338,
+    "totalreply": 3340,
     "title": "[《尘白禁区》麻辣火锅营地，喜欢聊天的请进]",
     "newtitle": "[《尘白禁区》麻辣火锅营地，喜欢聊天的请进]",
-    "lastedit": 1726215971,
+    "lastedit": 1726217179,
     "category": "手游战斗",
     "active": true,
     "update": false
@@ -9693,10 +9693,10 @@
     "update": false
   },
   "2194561": {
-    "totalreply": 2476,
+    "totalreply": 2478,
     "title": "[【#11】hololive综合讨论楼]",
     "newtitle": "[【#11】hololive综合讨论楼]",
-    "lastedit": 1726215268,
+    "lastedit": 1726217062,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10256,7 +10256,7 @@
     "newtitle": "[剧透慎入 ｜ 影神图讨论帖]",
     "lastedit": 1725957512,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2162832": {
@@ -10516,15 +10516,6 @@
     "title": "[一报还一报啊，小日子领空被侵犯了]",
     "newtitle": "[一报还一报啊，小日子领空被侵犯了]",
     "lastedit": 1725235330,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2196656": {
-    "totalreply": 81,
-    "title": "[感觉克系大行其道的今天，真正有克味的作品却不怎么多]",
-    "newtitle": "[感觉克系大行其道的今天，真正有克味的作品却不怎么多]",
-    "lastedit": 1725007574,
     "category": "外野",
     "active": false,
     "update": false
@@ -11462,15 +11453,6 @@
     "newtitle": "[玩过黑猴之后，想起来一个关于亚洲脸模的说法]",
     "lastedit": 1725016949,
     "category": "游戏区",
-    "active": false,
-    "update": false
-  },
-  "2192304": {
-    "totalreply": 100,
-    "title": "[突然对“炒糖色shai”是否是标准用法发出一个质疑]",
-    "newtitle": "[突然对“炒糖色shai”是否是标准用法发出一个质疑]",
-    "lastedit": 1725007579,
-    "category": "外野",
     "active": false,
     "update": false
   },
@@ -14796,21 +14778,21 @@
     "update": false
   },
   "2198409": {
-    "totalreply": 274,
+    "totalreply": 275,
     "title": "[越南完了]",
     "newtitle": "[越南完了（更新：摩羯已于13点加强为17级）]",
-    "lastedit": 1726215499,
+    "lastedit": 1726217073,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2096747": {
-    "totalreply": 253,
+    "totalreply": 255,
     "title": "[《寂静岭2 重制版》正式公布！主机PS5独占，同步登录PC]",
     "newtitle": "[《寂静岭2 重制版》正式公布！主机PS5独占，同步登录PC]",
-    "lastedit": 1725686432,
+    "lastedit": 1726217180,
     "category": "游戏区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2198398": {
@@ -16205,7 +16187,7 @@
     "newtitle": "[这个属于电脑问题还是外野问题？刚听说国内不会有WiFi7]",
     "lastedit": 1725957866,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2198809": {
@@ -17001,10 +16983,10 @@
     "update": false
   },
   "2198984": {
-    "totalreply": 106,
+    "totalreply": 107,
     "title": "[体感，周围有PS3的都买PS4了，但有PS4的没几个买PS5]",
     "newtitle": "[体感，周围有PS3的都买PS4了，但有PS4的没几个买PS5]",
-    "lastedit": 1726213829,
+    "lastedit": 1726217180,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17325,10 +17307,10 @@
     "update": false
   },
   "2199075": {
-    "totalreply": 79,
+    "totalreply": 80,
     "title": "[小泉进次郎：65岁算高龄是胡扯，应该从80岁领年金]",
     "newtitle": "[小泉进次郎：65岁算高龄是胡扯，应该从80岁领年金]",
-    "lastedit": 1726214425,
+    "lastedit": 1726217073,
     "category": "外野",
     "active": true,
     "update": false
@@ -17343,19 +17325,19 @@
     "update": false
   },
   "2199082": {
-    "totalreply": 182,
+    "totalreply": 183,
     "title": "[8月销量腰斩，宝马傻眼…涨价之后，老百姓是真不买]",
     "newtitle": "[8月销量腰斩，宝马傻眼…涨价之后，老百姓是真不买]",
-    "lastedit": 1726215031,
+    "lastedit": 1726217074,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2199095": {
-    "totalreply": 228,
+    "totalreply": 229,
     "title": "[刘建宏：不支持国足犹如无家可归的孤儿]",
     "newtitle": "[刘建宏：不支持国足犹如无家可归的孤儿]",
-    "lastedit": 1726216331,
+    "lastedit": 1726217073,
     "category": "外野",
     "active": true,
     "update": false
@@ -17379,10 +17361,10 @@
     "update": false
   },
   "2199074": {
-    "totalreply": 59,
+    "totalreply": 60,
     "title": "[S1码农多，我有个问题想求助下]",
     "newtitle": "[S1码农多，我有个问题想求助下]",
-    "lastedit": 1726210223,
+    "lastedit": 1726217073,
     "category": "外野",
     "active": true,
     "update": false
@@ -17397,10 +17379,10 @@
     "update": false
   },
   "2199116": {
-    "totalreply": 230,
+    "totalreply": 231,
     "title": "[期待的终于出现了，六小龄童锐评黑神话]",
     "newtitle": "[期待的终于出现了，六小龄童锐评黑神话]",
-    "lastedit": 1726213108,
+    "lastedit": 1726217073,
     "category": "外野",
     "active": true,
     "update": false
@@ -17793,10 +17775,10 @@
     "update": false
   },
   "2199164": {
-    "totalreply": 64,
+    "totalreply": 65,
     "title": "[流放之路2试玩感受]",
     "newtitle": "[流放之路2试玩感受]",
-    "lastedit": 1726213472,
+    "lastedit": 1726217180,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17820,10 +17802,10 @@
     "update": false
   },
   "2199213": {
-    "totalreply": 99,
+    "totalreply": 100,
     "title": "[通过一个概念来评价游戏的好坏，结果往往是污名化]",
     "newtitle": "[通过一个概念来评价游戏的好坏，结果往往是污名化]",
-    "lastedit": 1726216587,
+    "lastedit": 1726217180,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17847,10 +17829,10 @@
     "update": false
   },
   "2199184": {
-    "totalreply": 53,
+    "totalreply": 55,
     "title": "[现在看来轩辕剑做的最错的一步棋还是搁置三和三外]",
     "newtitle": "[现在看来轩辕剑做的最错的一步棋还是搁置三和三外]",
-    "lastedit": 1726216331,
+    "lastedit": 1726216934,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17874,10 +17856,10 @@
     "update": false
   },
   "2199221": {
-    "totalreply": 56,
+    "totalreply": 57,
     "title": "[拉了一裤子之后，打算把屎抹满全身了……]",
     "newtitle": "[拉了一裤子之后，打算把屎抹满全身了……]",
-    "lastedit": 1726216096,
+    "lastedit": 1726217073,
     "category": "外野",
     "active": true,
     "update": false
@@ -17901,19 +17883,19 @@
     "update": false
   },
   "2199249": {
-    "totalreply": 252,
+    "totalreply": 256,
     "title": "[关于实施渐进式法定退休的决定]",
     "newtitle": "[关于实施渐进式法定退休的决定（理性讨论）]",
-    "lastedit": 1726216694,
+    "lastedit": 1726217073,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2199237": {
-    "totalreply": 57,
+    "totalreply": 58,
     "title": "[国产剧里霸道总裁的好日子到头了]",
     "newtitle": "[国产剧里霸道总裁的好日子到头了]",
-    "lastedit": 1726215031,
+    "lastedit": 1726217073,
     "category": "外野",
     "active": true,
     "update": false
@@ -17928,19 +17910,19 @@
     "update": false
   },
   "2199255": {
-    "totalreply": 70,
+    "totalreply": 73,
     "title": "[女的都期望男的有什么爱好]",
     "newtitle": "[女的都期望男的有什么爱好]",
-    "lastedit": 1726216699,
+    "lastedit": 1726217075,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2199217": {
-    "totalreply": 42,
+    "totalreply": 46,
     "title": "[怀旧有感，宝可梦系列至今为止环境强度膨胀最大的是哪一世代？]",
     "newtitle": "[怀旧有感，宝可梦系列至今为止环境强度膨胀最大的是哪一世代？]",
-    "lastedit": 1726216332,
+    "lastedit": 1726217175,
     "category": "游戏区",
     "active": true,
     "update": false

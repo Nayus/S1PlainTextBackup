@@ -1528,3 +1528,18 @@ s1投票也是断层第一<img src="https://static.saraba1st.com/image/smiley/fa
 界反正是肯定保不住5w了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">赶紧大卖3W
 
+
+*****
+
+####  hkguty  
+##### 4594#       发表于 2024-9-13 09:37
+
+黎2把剑女拿来当噱头实则依旧小丑戏份，对剑女党来说不是起了反效果么
+
+*****
+
+####  天王寺凯伊姆  
+##### 4595#       发表于 2024-9-13 09:40
+
+全员小丑不就一视同仁了吗，那就矮子里拔高啊，剑女有婚纱不是很多人在喊赢吗
+

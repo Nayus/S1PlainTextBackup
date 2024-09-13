@@ -2652,3 +2652,27 @@ live开始了，演出动作连staff都好细节，至少架子鼓的动作都�
 
 进游戏先拍一小时照
 
+
+*****
+
+####  东方定助  
+##### 5200#       发表于 2024-9-13 09:40
+
+好基友一辈子
+
+<img src="https://img.saraba1st.com/forum/202409/13/094024zsrw11rnz9rg7w7r.png" referrerpolicy="no-referrer">
+
+<strong>微信图片_20240913094019.png</strong> (41.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-13 09:40 上传
+
+<img src="https://img.saraba1st.com/forum/202409/13/094024z000qles02lkmxmx.png" referrerpolicy="no-referrer">
+
+<strong>微信图片_20240913094015.png</strong> (69.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-13 09:40 上传
+

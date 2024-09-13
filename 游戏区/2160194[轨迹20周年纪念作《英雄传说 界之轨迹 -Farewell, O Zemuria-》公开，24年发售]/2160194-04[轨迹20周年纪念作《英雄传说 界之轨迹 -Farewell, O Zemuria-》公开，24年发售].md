@@ -1912,3 +1912,65 @@ mk2那个经理感觉和曹是一个定位的，结果一直被挤压的没什�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  悠悠你心  
+##### 4632#       发表于 2024-9-13 21:34
+
+黎组好几个人是没改演出吗？算了还是看看隔壁闪组吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  Aeons  
+##### 4633#       发表于 2024-9-13 21:37
+
+打庭院，只能说有一点点活
+
+*****
+
+####  ravend233  
+##### 4634#       发表于 2024-9-13 21:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那就是没活
+
+*****
+
+####  ravend233  
+##### 4635#       发表于 2024-9-13 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66198498&amp;ptid=2160194" target="_blank">悠悠你心 发表于 2024-9-13 21:34</a>
+
+黎组好几个人是没改演出吗？算了还是看看隔壁闪组吧
+
+—— 来自 HONOR PGT-AN20, Android 14上的 S1Next-鹅 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小技能之前演示大体上都改了吧，S技没改吗，说不定是还有第二个
+
+*****
+
+####  Oshino  
+##### 4636#       发表于 2024-9-13 21:40
+
+还有凯文那组要演示啊，快把我看睡着了，电击的人打游戏都这么菜的吗
+
+
+*****
+
+####  悠悠你心  
+##### 4637#       发表于 2024-9-13 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66198524&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-13 21:39</a>
+小技能之前演示大体上都改了吧，S技没改吗，说不定是还有第二个</blockquote>
+不是所有的都改了的样子，s技我看菲莉阿龙是没怎么动，其他人可能有小改动。范恩和剑女有明显改动。
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  ravend233  
+##### 4638#       发表于 2024-9-13 21:43
+
+阿龙之前CM应该是有一个类似新S技的演出的，估计是事务所人均有新S所以老S就不改演出了
+

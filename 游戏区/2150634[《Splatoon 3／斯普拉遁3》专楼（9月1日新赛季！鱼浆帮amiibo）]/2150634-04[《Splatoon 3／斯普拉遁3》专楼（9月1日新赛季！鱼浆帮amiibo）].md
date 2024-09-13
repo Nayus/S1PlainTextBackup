@@ -3109,3 +3109,24 @@ live开始了，演出动作连staff都好细节，至少架子鼓的动作都�
 矫正手柄范围就可以正常用了</blockquote>
 现在pdd百亿补贴说什么香港直邮的那些比如异度2的pro，卖三百多，是真的吗？我记得很早以前这玩意炒到好高价的，一度搞的好多假货，要是不行还是京东搞个普通黑色的拉倒了
 
+
+*****
+
+####  KBAC  
+##### 5240#       发表于 2024-9-14 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66199719&amp;ptid=2150634" target="_blank">hujingjing 发表于 2024-9-14 00:27</a>
+三个舞台轮流看了一圈，跟着群众们打了一阵call，然后去打了一把，感觉变成菜鸡了，被吊打，陪我征战多年的 ...</blockquote>
+国行pro没有任何问题，我一个日版一个国行，没有任何区别。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  carroy  
+##### 5241#       发表于 2024-9-14 01:04
+
+跟着节奏跳好耶
+怎么不发根荧光棒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

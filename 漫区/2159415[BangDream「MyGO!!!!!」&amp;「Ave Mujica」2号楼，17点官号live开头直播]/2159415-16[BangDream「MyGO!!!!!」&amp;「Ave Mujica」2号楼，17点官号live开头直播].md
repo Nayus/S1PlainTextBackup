@@ -8770,3 +8770,14 @@ https://skeb.jp/@miyabi_fujieda/works/31
 由手机上传
 2024-9-13 16:27 上传
 
+
+*****
+
+####  rollingusagi  
+##### 22994#       发表于 2024-9-13 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66193900&amp;ptid=2159415" target="_blank">想喝一点点 发表于 2024-9-13 14:22</a>
+
+感觉你邦逆输入越多的角色越没真人好看……点名批评rui，看着比ayasa老十岁 ...</blockquote>
+那就不得不提逆输入唯一神lisa内了，无论外貌性格都完全照着有利息模子画的角色，唉，说到这儿又开始伤感了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

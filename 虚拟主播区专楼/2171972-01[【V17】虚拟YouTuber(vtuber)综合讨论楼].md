@@ -3326,3 +3326,29 @@ met可能也是hinano推荐的？说起来ema是不是喜欢原神来着
 
 无知了啊，看起来好像不太行
 
+
+*****
+
+####  alcoholic1000  
+##### 738#       发表于 2024-9-13 19:07
+
+楼友疑似有点信息茧房，人家PLAVE都火一年了，属于营收风评双丰收的团体
+
+韩国V受众实际上很多，但twitch退出韩国市场以后分散转移到了afreeca、Chzzk这些本土流媒体平台
+
+具体社团可以大致参照：[버츄얼 유튜버/목록/한국/버츄얼 그룹](https://namu.wiki/w/%EB%B2%84%EC%B8%84%EC%96%BC%20%EC%9C%A0%ED%8A%9C%EB%B2%84/%EB%AA%A9%EB%A1%9D/%ED%95%9C%EA%B5%AD/%EB%B2%84%EC%B8%84%EC%96%BC%20%EA%B7%B8%EB%A3%B9)
+
+其中人气比较高的团体有：
+
+WAKTAVERSE的이세계아이돌/異世界アイドル 
+[https://www.youtube.com/@waktaverse](https://www.youtube.com/@waktaverse)
+[练习室](https://www.youtube.com/watch?v=QLabzK9TKF8)
+
+PLAVE/플레이브
+[https://www.youtube.com/@plave_official](https://www.youtube.com/@plave_official)
+练习室
+
+스텔라이브 StelLive Official
+[https://www.youtube.com/@stellive_official](https://www.youtube.com/@stellive_official)
+[3D披露](https://www.youtube.com/watch?v=6H1StTUMbl8)
+

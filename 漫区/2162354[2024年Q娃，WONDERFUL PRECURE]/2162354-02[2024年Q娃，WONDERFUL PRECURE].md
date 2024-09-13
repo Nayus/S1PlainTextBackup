@@ -963,3 +963,16 @@ q娃人设没有主角几个精致，果然还是剧场版限定吧
 
 结论是并不好看。
 
+
+*****
+
+####  雨宮優子  
+##### 2209#       发表于 2024-9-13 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66194456&amp;ptid=2162354" target="_blank">necoconeco 发表于 2024-9-13 15:17</a>
+
+一大早起来之后就彻底断了手机，直奔电影院，连goods柜台都没有靠近，所以没有被剧透。
+
+结论是并不好看。 ...</blockquote>
+打戏怎么样，就关心这一个问题
+

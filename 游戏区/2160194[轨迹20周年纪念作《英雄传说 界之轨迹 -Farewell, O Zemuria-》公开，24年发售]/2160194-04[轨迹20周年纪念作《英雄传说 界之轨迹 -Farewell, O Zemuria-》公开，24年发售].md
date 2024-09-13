@@ -1493,3 +1493,38 @@ s1投票也是断层第一<img src="https://static.saraba1st.com/image/smiley/fa
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要是界轨暴死确定老人气角色返场也救不了销量，下一部直接没有几个老角色返场可能性还挺高的
 
+
+*****
+
+####  红魔馆的糖  
+##### 4591#       发表于 2024-9-13 09:06
+
+有一说一黎1质量和那点宣发挺有用的，不然降个百分之30都不意外<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一步成诗  
+##### 4592#       发表于 2024-9-13 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66190478&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-13 09:01</a>
+
+只高了几百份来着，几乎等于没高
+
+考虑到黎2还是拉高了宣发投入的，还是挺幽默的</blockquote>
+不过黎2宣传期也明明白白说了我们要开始水了， 结果端了盘比水还难评的东西上来
+
+界反正是肯定保不住5w了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ravend233  
+##### 4593#       发表于 2024-9-13 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66190543&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-13 09:08</a>
+
+不过黎2宣传期也明明白白说了我们要开始水了， 结果端了盘比水还难评的东西上来
+
+界反正是肯定保不住5w了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">赶紧大卖3W
+

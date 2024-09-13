@@ -1628,3 +1628,29 @@ PS5涨价后，FAMI上统计两个版本加起来只卖了一万台出头，确�
 黎2把剑女拿来当噱头实则依旧小丑戏份，对剑女党来说不是起了反效果么</blockquote>
 黎2但凡剧情多一点的人全都烂了，剑剑反倒因为剧情少逃过一劫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 4605#       发表于 2024-9-13 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66191480&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-13 10:28</a>
+
+今晚和特辑是不是最后的内容了</blockquote>
+下下周就发售了，是了吧
+
+*****
+
+####  aimujie  
+##### 4606#       发表于 2024-9-13 10:57
+
+李鬼2没有戏份是好事，戏份越多智商和逼格掉的越多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ravend233  
+##### 4607#       发表于 2024-9-13 11:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下注界轨双子会不会再演一出低配39苦情戏了
+

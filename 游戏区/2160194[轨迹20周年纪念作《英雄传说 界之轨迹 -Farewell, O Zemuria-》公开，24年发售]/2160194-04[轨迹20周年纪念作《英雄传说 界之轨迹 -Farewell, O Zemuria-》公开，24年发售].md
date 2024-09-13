@@ -1751,3 +1751,17 @@ mk2那个经理感觉和曹是一个定位的，结果一直被挤压的没什�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  andychen  
+##### 4617#       发表于 2024-9-13 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66196259&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-13 17:47</a>
+有没有可能，砍的是列曼，法典国这些，保留的是东大陆（）
+
+—— 来自 鹅球 v3.0.0.82-alpha ...</blockquote>
+就算法老控强行挤剧情把列曼自治州的剧情全挤进界轨好了，法典国还是没法砍吧
+
+至于大陆东部，我记得官方设定书吃书把大陆东部全涂黑以后粉丝圈子的共识都是法老控不准备讲这部分了
+

@@ -1543,3 +1543,29 @@ s1投票也是断层第一<img src="https://static.saraba1st.com/image/smiley/fa
 
 全员小丑不就一视同仁了吗，那就矮子里拔高啊，剑女有婚纱不是很多人在喊赢吗
 
+
+*****
+
+####  ravend233  
+##### 4596#       发表于 2024-9-13 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66190893&amp;ptid=2160194" target="_blank">hkguty 发表于 2024-9-13 09:37</a>
+
+黎2把剑女拿来当噱头实则依旧小丑戏份，对剑女党来说不是起了反效果么</blockquote>
+一般来说首周销量不会受到游戏本身质量影响，主要是前作口碑，热度，宣发规模这些影响比较大，游戏本身的质量要在后续才能体现
+
+
+*****
+
+####  Aeons  
+##### 4597#       发表于 2024-9-13 09:52
+
+没多少戏份而已算不上小丑
+
+*****
+
+####  一步成诗  
+##### 4598#       发表于 2024-9-13 09:56
+
+没戏份反而逃过一劫<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

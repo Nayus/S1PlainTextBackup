@@ -8809,3 +8809,14 @@ https://skeb.jp/@miyabi_fujieda/works/21
 由手机上传
 2024-9-13 20:10 上传
 
+
+*****
+
+####  想喝一点点  
+##### 22996#       发表于 2024-9-13 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66196535&amp;ptid=2159415" target="_blank">rollingusagi 发表于 2024-9-13 18:14</a>
+
+那就不得不提逆输入唯一神lisa内了，无论外貌性格都完全照着有利息模子画的角色，唉，说到这儿又开始伤感 ...</blockquote>
+忘记lisa内了，满脑子想着新团，滑轨一个。早期几个团的逆输入都整挺好的，主要是ras和蝶让我不太满意
+

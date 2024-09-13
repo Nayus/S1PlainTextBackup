@@ -1582,3 +1582,22 @@ PS5涨价后，FAMI上统计两个版本加起来只卖了一万台出头，确�
 对比NS是6W台</blockquote>
 日元汇率嘛，索尼按1：160卖的，亏本卖是不可能的
 
+
+*****
+
+####  yongze  
+##### 4600#       发表于 2024-9-13 10:05
+
+安排学妹和剑女在剧情中的定位我希望是学妹负责主线故事里的关键核心，剑女负责梵的情感寄托，满足情绪需求，最后把学妹对老梵的单恋塑造成是年少时的遗憾（剑女党的私心）。
+
+
+*****
+
+####  ravend233  
+##### 4601#       发表于 2024-9-13 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66191173&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-13 10:02</a>
+
+日元汇率嘛，亏本卖是不可能的，不过你们可以买我sie授权的翻新机</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">真是蒸蒸日上啊，索索
+

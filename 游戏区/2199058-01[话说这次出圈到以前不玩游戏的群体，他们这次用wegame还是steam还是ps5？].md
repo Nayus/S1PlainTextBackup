@@ -367,3 +367,13 @@ STEAM，我不少朋友STEAM很长时间只有3个游戏，PUBG、CS:GO、GTAV�
 
 没玩过高帧数的肯定不觉得卡呀
 
+
+*****
+
+####  nozomitech  
+##### 45#       发表于 2024-9-13 08:43
+
+我高中几乎不玩游戏都注册了个steam账号，不过那时候还没被墙。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

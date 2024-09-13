@@ -1401,3 +1401,20 @@ ps4pro打轨迹够了的，ps5的性能溢出太多了。
 
 s1投票也是断层第一<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 4583#       发表于 2024-9-13 08:40
+
+人气肯定高啊，毕竟立轨2这种宣传欺诈都做出来了。虽然也未能拯救首周
+
+<img src="https://img.saraba1st.com/forum/202409/13/084027kdk03z719hk9ho8d.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240913_083916.jpg</strong> (96.04 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-13 08:40 上传
+

@@ -13832,3 +13832,21 @@ OC3暂时的难度都是来自锁人<img src="https://static.saraba1st.com/image
 
 帝王花根据剧情来说真不会有pv那种怪兽大乱斗，只靠面板碾压的人碰到同样面板但会玩的被秒才是正确，可惜断肢挖心没画出来<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 14608#       发表于 2024-9-13 21:06
+
+再存到30石
+
+學姊再來多1隻(寶2)，和一隻4星的惑星ASS(NEW)
+
+又可以清種火
+
+活動刷足分後就收手，
+
+中章也有時間打完，那麼短?
+
+回去清這幾個月新加的強化任務來挖石
+

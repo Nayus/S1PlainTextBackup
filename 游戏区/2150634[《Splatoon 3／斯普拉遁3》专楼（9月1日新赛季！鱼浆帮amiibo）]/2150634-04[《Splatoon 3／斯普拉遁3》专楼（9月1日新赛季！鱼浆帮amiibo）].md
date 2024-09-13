@@ -3003,3 +3003,26 @@ live开始了，演出动作连staff都好细节，至少架子鼓的动作都�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  shirolin  
+##### 5230#       发表于 2024-9-13 23:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66199369&amp;ptid=2150634" target="_blank">hujingjing 发表于 2024-9-13 23:26</a>
+一年多没上了，一进来给我吓一跳，原来这次还是双舞台，后面还有望远镜可以舒服挂机看了，不用以前那样要按 ...</blockquote>
+三个舞台，节目表错开的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  绿冰  
+##### 5231#         楼主| 发表于 2024-9-13 23:39
+
+<blockquote>hujingjing 发表于 2024-9-13 23:26
+一年多没上了，一进来给我吓一跳，原来这次还是双舞台，后面还有望远镜可以舒服挂机看了，不用以前那样要按 ...</blockquote>
+3个舞台，两个小舞台和一个大舞台
+
+海胆舞台观众席的灯光特效是正在演唱的偶像组合的标识
+

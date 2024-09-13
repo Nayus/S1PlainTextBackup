@@ -3352,3 +3352,11 @@ PLAVE/플레이브
 [https://www.youtube.com/@stellive_official](https://www.youtube.com/@stellive_official)
 [3D披露](https://www.youtube.com/watch?v=6H1StTUMbl8)
 
+
+*****
+
+####  aritaatsu222  
+##### 739#       发表于 2024-9-13 23:56
+
+plave也没打算跟这些破打游戏的男管人比，定位就是跟真人kpop男团一样，音源成绩还是六代男团第一呢，倒是希望某些养噶的男管人能学学这些棒子开个泡泡
+

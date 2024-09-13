@@ -943,3 +943,13 @@ q娃人设没有主角几个精致，果然还是剧场版限定吧
 听说是借前辈力量的剧场版限定形态？</blockquote>
 看别人说只有剧场版必杀 而且只有音效是新的 bank沿用tv
 
+
+*****
+
+####  猫屋敷ゆき  
+##### 2207#       发表于 2024-9-13 14:27
+
+前辈的队伍里不仅有老鼠还有鸟？
+
+我觉得我一定可以和这些人做好朋友<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+

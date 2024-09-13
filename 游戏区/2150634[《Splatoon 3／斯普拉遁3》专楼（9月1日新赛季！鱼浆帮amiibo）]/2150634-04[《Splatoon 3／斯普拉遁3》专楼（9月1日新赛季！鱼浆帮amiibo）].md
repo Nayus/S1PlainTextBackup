@@ -2734,3 +2734,33 @@ live开始了，演出动作连staff都好细节，至少架子鼓的动作都�
 
 <img src="https://p.sda1.dev/19/f72db00e96c1c5facaf00b32d95d7e3c/CMP_20240913134058878.jpg" referrerpolicy="no-referrer">赢了100倍也算圆满了
 
+
+*****
+
+####  墨染白泉  
+##### 5207#       发表于 2024-9-13 14:18
+
+百倍概率确实高，打一会就赢了百倍。希望这三天能赢个333倍
+
+*****
+
+####  doraemonmilmil  
+##### 5208#       发表于 2024-9-13 14:19
+
+第一天，打了两盘去看演唱会了，打call后，感觉现场看一样……连续听了一小时已经不想涂地了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Ryuuseigun  
+##### 5209#       发表于 2024-9-13 14:23
+
+单排了一下
+希望下一代祭典能把只有涂地的限制解开<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">涂地打的真没意思
+
+*****
+
+####  墨染白泉  
+##### 5210#       发表于 2024-9-13 14:24
+
+今天是限定黄昏版演唱会吧，明天后天是黑夜版。确实可以今天多拍点照
+

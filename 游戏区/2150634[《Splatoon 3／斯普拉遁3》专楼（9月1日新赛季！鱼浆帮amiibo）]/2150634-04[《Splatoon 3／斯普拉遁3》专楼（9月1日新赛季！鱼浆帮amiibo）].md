@@ -3077,3 +3077,35 @@ live开始了，演出动作连staff都好细节，至少架子鼓的动作都�
 
 到永远了怎么上舞台啊<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Thunderfire  
+##### 5237#       发表于 2024-9-14 00:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66199753&amp;ptid=2150634" target="_blank">洛颜倾墨 发表于 2024-9-14 00:33</a>
+
+到永远了怎么上舞台啊</blockquote>
+在投票机器那里互动，按A后按十字键左右就会出现选项
+
+*****
+
+####  洛颜倾墨  
+##### 5238#       发表于 2024-9-14 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66199814&amp;ptid=2150634" target="_blank">Thunderfire 发表于 2024-9-14 00:45</a>
+
+在投票机器那里互动，按A后按十字键左右就会出现选项</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">没有啊
+
+
+*****
+
+####  hujingjing  
+##### 5239#       发表于 2024-9-14 00:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66199728&amp;ptid=2150634" target="_blank">绿冰 发表于 2024-9-14 00:29</a>
+
+矫正手柄范围就可以正常用了</blockquote>
+现在pdd百亿补贴说什么香港直邮的那些比如异度2的pro，卖三百多，是真的吗？我记得很早以前这玩意炒到好高价的，一度搞的好多假货，要是不行还是京东搞个普通黑色的拉倒了
+

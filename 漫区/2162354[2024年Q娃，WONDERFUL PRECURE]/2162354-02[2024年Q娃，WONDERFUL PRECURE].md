@@ -925,3 +925,11 @@ q娃人设没有主角几个精致，果然还是剧场版限定吧
 感觉有男偷看的豚友可以研究一下“蝴蝶/彩羽是高桥P皮套”理论了好吧不开玩笑，你Q的TV和剧场版制作人体系 ...</blockquote>
 泥潭豚豚不都是有男狂看的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 2205#       发表于 2024-9-13 12:55
+
+听说是借前辈力量的剧场版限定形态？
+

@@ -2632,3 +2632,15 @@ https://support.nintendo.com/jp/switch/software_support/av5ja/910.html
 
 live开始了，演出动作连staff都好细节，至少架子鼓的动作都是能对应上音乐的
 
+
+*****
+
+####  raii  
+##### 5198#       发表于 2024-9-13 08:54
+
+所有演出动作都是当时演唱会里的，歌曲也是live版的编曲，可以说是把演唱会搬进游戏了，
+
+当年参加过2代的线下演唱会，腕儿姐妹的那几首动作我都熟悉，这一看太亲切了。
+
+3代的无观客live这下也没有浪费的复用了，这个回收，你做得好，你做得好啊！<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

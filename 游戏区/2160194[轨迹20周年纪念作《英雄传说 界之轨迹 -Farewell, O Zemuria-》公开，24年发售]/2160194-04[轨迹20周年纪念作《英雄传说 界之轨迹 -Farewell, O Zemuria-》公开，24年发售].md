@@ -1418,3 +1418,39 @@ s1投票也是断层第一<img src="https://static.saraba1st.com/image/smiley/fa
 由手机上传
 2024-9-13 08:40 上传
 
+
+*****
+
+####  悠悠你心  
+##### 4584#       发表于 2024-9-13 08:45
+
+人气投票有啥用，笔在你法大写手手上<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  ravend233  
+##### 4585#       发表于 2024-9-13 08:52
+
+ 本帖最后由 ravend233 于 2024-9-13 08:54 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">PS5涨价后，FAMI上统计两个版本加起来只卖了一万台出头，确实似辣
+
+对比NS是6W台<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  andychen  
+##### 4586#       发表于 2024-9-13 08:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66190169&amp;ptid=2160194" target="_blank">空气先生 发表于 2024-9-13 08:20</a>
+
+剑女强不强另说，美和惨是拉满了
+
+只希望界轨不要做成大亚老师传就好了</blockquote>
+至少里剧情是拉满了
+
+女主身世多半有内容，当初C博士收养女主祖母的时候应该就冲着这去的。外世界来的人之类的
+

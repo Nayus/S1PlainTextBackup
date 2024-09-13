@@ -1706,3 +1706,48 @@ mk2那个经理感觉和曹是一个定位的，结果一直被挤压的没什�
 
 今晚8点
 
+
+*****
+
+####  byisme001  
+##### 4613#       发表于 2024-9-13 17:43
+
+销量能超过goty候补选手就算成功
+
+*****
+
+####  andychen  
+##### 4614#       发表于 2024-9-13 17:43
+
+ 本帖最后由 andychen 于 2024-9-13 17:45 编辑 
+
+话说近藤说界轨结束轨迹剧情进度到9成，可感觉还有不少重要的地方没讲到啊
+
+大陆东部就算他全砍了，列曼自治州和法典国总是绕不过去的，雷米菲利亚公国从零轨就开始刷存在感到现在感觉也得讲讲。光这三个地方至少就得做四五部游戏
+
+黎轨把导力之父扯进来，应该界轨结束就是列曼自治州讲游击士协会和埃普施坦因基金会的故事了
+
+*****
+
+####  ravend233  
+##### 4615#       发表于 2024-9-13 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66196211&amp;ptid=2160194" target="_blank">byisme001 发表于 2024-9-13 17:43</a>
+销量能超过goty候补选手就算成功</blockquote>
+1.2w难度还是太低了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  ravend233  
+##### 4616#       发表于 2024-9-13 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66196220&amp;ptid=2160194" target="_blank">andychen 发表于 2024-9-13 17:43</a>
+话说近藤说界轨结束轨迹剧情进度到9成，可感觉还有不少重要的地方没讲到啊
+
+大陆东部就算他全砍了，列曼自 ...</blockquote>
+有没有可能，砍的是列曼，法典国这些，保留的是东大陆（）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

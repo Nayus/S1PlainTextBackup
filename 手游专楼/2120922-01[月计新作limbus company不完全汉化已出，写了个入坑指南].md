@@ -623,3 +623,82 @@ lccb良被削了，三破或能白嫖40狂气</blockquote>
 另外up ...</blockquote>
 感谢，正在慢慢推图，这游戏系统太复杂了好难学啊
 
+
+*****
+
+####  Jamaisvu  
+##### 876#       发表于 2024-9-13 17:38
+
+ 本帖最后由 Jamaisvu 于 2024-9-13 17:41 编辑 
+
+新卡池，北部九协会三科的三星罗佳，以实玛利的teth等级无头肖像ego：
+
+<img src="https://img.saraba1st.com/forum/202409/13/173132ts78hqu3qqah3k73.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240913_172657.jpg</strong> (276.67 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-13 17:31 上传
+
+玛玛的沉沦ego感觉还是给水玛准备的，女仆玛我至今没用过呢：
+
+<img src="https://img.saraba1st.com/forum/202409/13/173223jn8vckqev7wcz8wa.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240913_172732.jpg</strong> (142.29 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-13 17:32 上传
+
+<img src="https://img.saraba1st.com/forum/202409/13/173223vyff90f0p90xpyne.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240913_172715.jpg</strong> (150.51 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-13 17:32 上传
+
+<img src="https://img.saraba1st.com/forum/202409/13/173224x7z07cc670ncx8iz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240913_172743.jpg</strong> (210.61 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-13 17:32 上传
+
+<img src="https://img.saraba1st.com/forum/202409/13/173846jru3bbotueg3nwer.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240913_172804.jpg</strong> (202.19 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-13 17:38 上传
+
+<img src="https://img.saraba1st.com/forum/202409/13/173846o8tcgyy1t0t2wtgt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240913_172857.jpg</strong> (201.91 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-13 17:38 上传
+
+<img src="https://img.saraba1st.com/forum/202409/13/173847uhue56rqrsryrrr6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240913_172829.jpg</strong> (184.17 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-13 17:38 上传
+
+九罗貌似是斩刺斩的技能，大概是破裂充能体系，三技能在满足条件下好像多一个币。
+
+她有个奇怪的机制，貌似是我方单位受到濒死伤害时立刻入场当替补，但是过一段时间或满足什么条件时会死亡...感觉九协会人员损耗也挺快的...
+

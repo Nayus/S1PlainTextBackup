@@ -886,3 +886,13 @@ What a wonderful radio完结还行……
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉还算好抢，猫眼这个抢票挺流畅的
 
+
+*****
+
+####  不能踢的屁屁  
+##### 21036#       发表于 2024-9-13 13:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">我只想买400的山顶，进去却只有1400和1100档了，好痛啊
+
+算了，至少国庆可以去看菜宝了
+

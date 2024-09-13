@@ -13809,3 +13809,18 @@ OC3暂时的难度都是来自锁人<img src="https://static.saraba1st.com/image
 
 回想起来帝王花战完全不行……明明pv上还有飞踢,写个几节怪兽大战又不费什么事……
 
+
+*****
+
+####  大十字紅朔  
+##### 14606#       发表于 2024-9-13 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66192333&amp;ptid=2084912" target="_blank">v22325 发表于 2024-9-13 11:37</a>
+
+回想起来帝王花战完全不行……明明pv上还有飞踢,写个几节怪兽大战又不费什么事…… ...</blockquote>
+因为帝王花不是真的<img src="https://static.saraba1st.com/image/smiley/carton2017/042.png" referrerpolicy="no-referrer">
+
+话说这游戏只有东出还在坚持写战斗细节（因为他认为他擅长这个），其他人都交给游戏系统了
+
+真正最能写的老虚是真的一点没写战斗，全交给游戏系统了，摆了摆了<img src="https://static.saraba1st.com/image/smiley/carton2017/041.png" referrerpolicy="no-referrer">
+

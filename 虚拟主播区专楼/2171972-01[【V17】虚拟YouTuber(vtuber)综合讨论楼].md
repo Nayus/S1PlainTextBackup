@@ -3302,3 +3302,11 @@ met可能也是hinano推荐的？说起来ema是不是喜欢原神来着
 <img src="https://p.sda1.dev/19/007e9473f3a7aabc3a603f085b02b21b/CMP_20240913132016809.jpg" referrerpolicy="no-referrer">
 呜啊<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  karastar  
+##### 735#       发表于 2024-9-13 13:41
+
+虚拟偶像男团，看来虚拟韩团还挺有搞头的，女团有没有搞头<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

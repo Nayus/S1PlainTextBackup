@@ -2726,3 +2726,11 @@ live开始了，演出动作连staff都好细节，至少架子鼓的动作都�
 
 这么久没打了匹配还是屎
 
+
+*****
+
+####  幽香  
+##### 5206#       发表于 2024-9-13 13:41
+
+<img src="https://p.sda1.dev/19/f72db00e96c1c5facaf00b32d95d7e3c/CMP_20240913134058878.jpg" referrerpolicy="no-referrer">赢了100倍也算圆满了
+

@@ -1569,3 +1569,16 @@ s1投票也是断层第一<img src="https://static.saraba1st.com/image/smiley/fa
 
 没戏份反而逃过一劫<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 4599#       发表于 2024-9-13 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66190396&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-13 08:52</a>
+
+PS5涨价后，FAMI上统计两个版本加起来只卖了一万台出头，确实似辣
+
+对比NS是6W台</blockquote>
+日元汇率嘛，索尼按1：160卖的，亏本卖是不可能的
+

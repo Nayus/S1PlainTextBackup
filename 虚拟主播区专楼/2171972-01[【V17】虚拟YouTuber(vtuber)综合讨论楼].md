@@ -3293,3 +3293,12 @@ met可能也是hinano推荐的？说起来ema是不是喜欢原神来着
 
 （毕竟剩下那个的十万比其他人晚了大半年，最后出也不意外
 
+
+*****
+
+####  渡鸦骑士  
+##### 734#       发表于 2024-9-13 13:20
+
+<img src="https://p.sda1.dev/19/007e9473f3a7aabc3a603f085b02b21b/CMP_20240913132016809.jpg" referrerpolicy="no-referrer">
+呜啊<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+

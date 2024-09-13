@@ -8716,3 +8716,15 @@ lsl估计是去宣传上海live的
 
 T恤真的很好看啊，坛友们知道怎么入手吗？那边的尺寸对应过来各是多少？<img src="https://static.saraba1st.com/image/smiley/face/57.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 22990#       发表于 2024-9-13 13:20
+
+<blockquote>结衣小比取 发表于 2024-9-13 12:54
+T恤真的很好看啊，坛友们知道怎么入手吗？那边的尺寸对应过来各是多少？</blockquote>
+https://enrich-design.co/explore/material-introduction/size-chart/
+
+尺码对照
+

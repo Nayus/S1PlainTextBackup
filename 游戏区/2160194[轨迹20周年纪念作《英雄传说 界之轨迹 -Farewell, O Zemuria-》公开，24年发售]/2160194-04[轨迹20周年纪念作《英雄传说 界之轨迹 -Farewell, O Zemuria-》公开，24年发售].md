@@ -1454,3 +1454,42 @@ s1投票也是断层第一<img src="https://static.saraba1st.com/image/smiley/fa
 
 女主身世多半有内容，当初C博士收养女主祖母的时候应该就冲着这去的。外世界来的人之类的
 
+
+*****
+
+####  一步成诗  
+##### 4587#       发表于 2024-9-13 08:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不我记得黎2首周比黎1高一点点吧，至少也算保住5w了
+
+后续拉胯就和宣传没什么关系了纯粹游戏质量不行
+
+*****
+
+####  ravend233  
+##### 4588#       发表于 2024-9-13 09:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66190462&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-13 08:59</a>
+
+不我记得黎2首周比黎1高一点点吧，至少也算保住5w了
+
+后续拉胯就和宣传没什么关系了纯粹游戏质量不行 ...</blockquote>
+只高了几百份来着，几乎等于没高
+
+考虑到黎2还是拉高了宣发投入的，还是挺幽默的
+
+
+*****
+
+####  天王寺凯伊姆  
+##### 4589#       发表于 2024-9-13 09:03
+
+人气这个东西最大的用途在续作啊，典型例子就是现在的菲啊，然后闪2的丽霞，非第一主角的人气角色法老控可太喜欢了水剧情都有模版做
+
+*****
+
+####  ravend233  
+##### 4590#       发表于 2024-9-13 09:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要是界轨暴死确定老人气角色返场也救不了销量，下一部直接没有几个老角色返场可能性还挺高的
+

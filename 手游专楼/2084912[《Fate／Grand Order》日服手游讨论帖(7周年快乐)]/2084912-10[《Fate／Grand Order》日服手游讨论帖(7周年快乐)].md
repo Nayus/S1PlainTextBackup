@@ -13777,3 +13777,11 @@ OC3暂时的难度都是来自锁人<img src="https://static.saraba1st.com/image
 
 现在玩剧情看到马修强制出战就啪的上一个陈宫上去，很快啊
 
+
+*****
+
+####  cenhr  
+##### 14602#       发表于 2024-9-13 08:56
+
+来晒一下，这次两个限定卡池咖喱妹和中东BB都二宝了，但4星一个都没有<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

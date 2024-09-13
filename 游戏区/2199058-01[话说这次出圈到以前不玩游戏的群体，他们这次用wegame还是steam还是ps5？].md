@@ -377,3 +377,11 @@ STEAM，我不少朋友STEAM很长时间只有3个游戏，PUBG、CS:GO、GTAV�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  绞首浪漫派丶  
+##### 46#       发表于 2024-9-13 09:04
+
+身边统计学刚出那周好几个同事说要买PS5，然后过两天没声音了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -876,3 +876,23 @@ q娃人设没有主角几个精致，果然还是剧场版限定吧
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
 
+
+*****
+
+####  Arson=desu  
+##### 2200#       发表于 2024-9-13 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66190333&amp;ptid=2162354" target="_blank">starring 发表于 2024-9-13 08:44</a>
+直接本名，没有变身名字？
+
+—— 来自 鹅球 v3.1.90</blockquote>
+可能连抱q那种编外都不算，单纯就是游戏世界的皮套吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  1096beam  
+##### 2201#       发表于 2024-9-13 09:01
+
+有一说一，这不比某个戴巨大沿帽的人时髦多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

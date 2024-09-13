@@ -1671,3 +1671,27 @@ PS5涨价后，FAMI上统计两个版本加起来只卖了一万台出头，确�
 
 这就是我们轨迹，生生不息，永远传承<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  byisme001  
+##### 4610#       发表于 2024-9-13 11:17
+
+mk2那个经理感觉和曹是一个定位的，结果一直被挤压的没什么戏份
+
+
+*****
+
+####  卢迪克  
+##### 4611#       发表于 2024-9-13 11:25
+
+ 本帖最后由 卢迪克 于 2024-9-13 11:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66192117&amp;ptid=2160194" target="_blank">byisme001 发表于 2024-9-13 11:17</a>
+
+mk2那个经理感觉和曹是一个定位的，结果一直被挤压的没什么戏份</blockquote>
+近藤说Mk是给大陆中西部和大陆东部提供装备的，他最大股东瓦利斯是连接中西部和东部的南海贸易港口。
+
+应该还有一个SC在东方任职
+
+没那么早把剧情抖出来。
+

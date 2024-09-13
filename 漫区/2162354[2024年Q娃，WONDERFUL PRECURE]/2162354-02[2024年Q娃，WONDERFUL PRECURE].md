@@ -914,3 +914,14 @@ q娃人设没有主角几个精致，果然还是剧场版限定吧
 
 悟变身还挺帅……一点看不出原样了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HazukiShion  
+##### 2204#       发表于 2024-9-13 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66189414&amp;ptid=2162354" target="_blank">Cloudslin 发表于 2024-9-13 01:12</a>
+
+感觉有男偷看的豚友可以研究一下“蝴蝶/彩羽是高桥P皮套”理论了好吧不开玩笑，你Q的TV和剧场版制作人体系 ...</blockquote>
+泥潭豚豚不都是有男狂看的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

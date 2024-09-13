@@ -3052,3 +3052,28 @@ live开始了，演出动作连staff都好细节，至少架子鼓的动作都�
 
 麻辣鱿物的logo和鱼浆帮的logo都有好好地投影出来，到了腕儿姐妹投的却是姬饭两人的个人logo，强推CP之心昭然若揭<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hujingjing  
+##### 5234#       发表于 2024-9-14 00:27
+
+三个舞台轮流看了一圈，跟着群众们打了一阵call，然后去打了一把，感觉变成菜鸡了，被吊打，陪我征战多年的喷喷2pro手柄还是彻底不行了，可以压箱底放着了，想问下国行的pro连我这个日版机没有啥兼容问题吧？现在下单狗东明天下午晚点点就送到，还来得及<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  绿冰  
+##### 5235#         楼主| 发表于 2024-9-14 00:29
+
+<blockquote>hujingjing 发表于 2024-9-14 00:27
+三个舞台轮流看了一圈，跟着群众们打了一阵call，然后去打了一把，感觉变成菜鸡了，被吊打，陪我征战多年的 ...</blockquote>
+矫正手柄范围就可以正常用了
+
+
+*****
+
+####  洛颜倾墨  
+##### 5236#       发表于 2024-9-14 00:33
+
+到永远了怎么上舞台啊<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+

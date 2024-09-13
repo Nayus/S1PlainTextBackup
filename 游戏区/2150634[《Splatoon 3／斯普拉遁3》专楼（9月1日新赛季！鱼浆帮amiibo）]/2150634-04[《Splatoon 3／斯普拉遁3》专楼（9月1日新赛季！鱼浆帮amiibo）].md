@@ -2993,3 +2993,13 @@ live开始了，演出动作连staff都好细节，至少架子鼓的动作都�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  hujingjing  
+##### 5229#       发表于 2024-9-13 23:26
+
+一年多没上了，一进来给我吓一跳，原来这次还是双舞台，后面还有望远镜可以舒服挂机看了，不用以前那样要按着瞄准还要防手抖...真好啊，进武器店一看，武器子话痨让我点够了，好几个没看过的但是没有武器票...不过不重要，一把都没去打，笑死，已经挂机半个多小时看演唱会了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

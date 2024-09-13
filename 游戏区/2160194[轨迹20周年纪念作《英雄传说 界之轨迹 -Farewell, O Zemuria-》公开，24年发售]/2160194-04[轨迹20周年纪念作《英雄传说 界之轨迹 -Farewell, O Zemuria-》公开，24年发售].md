@@ -1609,3 +1609,22 @@ PS5涨价后，FAMI上统计两个版本加起来只卖了一万台出头，确�
 
 今晚和特辑是不是最后的内容了
 
+
+*****
+
+####  maojiashu  
+##### 4603#       发表于 2024-9-13 10:51
+
+突然发现界轨26号 ff14 7.0 27号 
+
+有点尴尬了<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+*****
+
+####  红魔馆的糖  
+##### 4604#       发表于 2024-9-13 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66190893&amp;ptid=2160194" target="_blank">hkguty 发表于 2024-9-13 09:37</a>
+黎2把剑女拿来当噱头实则依旧小丑戏份，对剑女党来说不是起了反效果么</blockquote>
+黎2但凡剧情多一点的人全都烂了，剑剑反倒因为剧情少逃过一劫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

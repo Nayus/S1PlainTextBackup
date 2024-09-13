@@ -1695,3 +1695,14 @@ mk2那个经理感觉和曹是一个定位的，结果一直被挤压的没什�
 
 没那么早把剧情抖出来。
 
+
+*****
+
+####  Piano-Forest  
+##### 4612#       发表于 2024-9-13 17:34
+
+『界の軌跡』最新情報まとめ／実機プレイ実況世界初公開！
+[https://www.youtube.com/live/aSiP8kXFGL4](https://www.youtube.com/live/aSiP8kXFGL4)
+
+今晚8点
+

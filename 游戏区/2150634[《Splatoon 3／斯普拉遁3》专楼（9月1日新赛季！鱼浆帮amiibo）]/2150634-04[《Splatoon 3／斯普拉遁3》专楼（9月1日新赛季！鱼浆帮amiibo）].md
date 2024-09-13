@@ -2624,3 +2624,11 @@ https://support.nintendo.com/jp/switch/software_support/av5ja/910.html
 
 朋友给我发来这两张图，遭不住<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Variks  
+##### 5197#       发表于 2024-9-13 08:28
+
+live开始了，演出动作连staff都好细节，至少架子鼓的动作都是能对应上音乐的
+

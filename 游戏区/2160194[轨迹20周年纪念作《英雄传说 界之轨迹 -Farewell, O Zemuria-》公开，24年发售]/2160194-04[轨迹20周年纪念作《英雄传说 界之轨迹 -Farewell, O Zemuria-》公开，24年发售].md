@@ -1601,3 +1601,11 @@ PS5涨价后，FAMI上统计两个版本加起来只卖了一万台出头，确�
 日元汇率嘛，亏本卖是不可能的，不过你们可以买我sie授权的翻新机</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">真是蒸蒸日上啊，索索
 
+
+*****
+
+####  Aeons  
+##### 4602#       发表于 2024-9-13 10:28
+
+今晚和特辑是不是最后的内容了
+

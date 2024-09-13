@@ -13801,3 +13801,11 @@ OC3暂时的难度都是来自锁人<img src="https://static.saraba1st.com/image
 
 感谢上铺兄弟的30石头，BB到手<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  v22325  
+##### 14605#       发表于 2024-9-13 11:37
+
+回想起来帝王花战完全不行……明明pv上还有飞踢,写个几节怪兽大战又不费什么事……
+

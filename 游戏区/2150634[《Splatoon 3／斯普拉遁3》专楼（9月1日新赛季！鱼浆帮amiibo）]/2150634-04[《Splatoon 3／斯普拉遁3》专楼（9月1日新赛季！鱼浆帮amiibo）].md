@@ -2818,3 +2818,21 @@ live开始了，演出动作连staff都好细节，至少架子鼓的动作都�
 
 每首歌台下水母的应援和动作都是专门调过的，保证踩点，这比一般二偶游戏的舞台效果还好了
 
+
+*****
+
+####  藏獒·烨  
+##### 5217#       发表于 2024-9-13 20:15
+
+这演唱会也太炫酷了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+逛了半天打了个首胜继续逛
+
+
+*****
+
+####  heseran  
+##### 5218#       发表于 2024-9-13 20:20
+
+从发售高强度打到第一次大型跑之后就没再玩了，这么久过去了没想到这个游戏还是那么容易升血压，匹配的队友依旧不是人<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

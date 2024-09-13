@@ -8781,3 +8781,31 @@ https://skeb.jp/@miyabi_fujieda/works/31
 感觉你邦逆输入越多的角色越没真人好看……点名批评rui，看着比ayasa老十岁 ...</blockquote>
 那就不得不提逆输入唯一神lisa内了，无论外貌性格都完全照着有利息模子画的角色，唉，说到这儿又开始伤感了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  鳥栖朝  
+##### 22995#       发表于 2024-9-13 20:11
+
+居然还有一张睦祥，不知道是不是一个人点的
+
+https://skeb.jp/@miyabi_fujieda/works/21
+
+<img src="https://img.saraba1st.com/forum/202409/13/201043v6jcawvzwee8vhcm.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>c52877b7-47d6-43b1-8301-1173b7d7c6b3.webp</strong> (105.39 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-13 20:10 上传
+
+<img src="https://img.saraba1st.com/forum/202409/13/201054rcts7splss9emlp0.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>4246fb40-4a09-42cf-9970-19c34a0a9a48.webp</strong> (116.63 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-13 20:10 上传
+

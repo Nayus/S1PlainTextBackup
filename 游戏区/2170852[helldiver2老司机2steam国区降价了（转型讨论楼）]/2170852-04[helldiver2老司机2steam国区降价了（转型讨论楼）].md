@@ -481,3 +481,19 @@ An unsafe railgun shot will deal 1500/562.5 (damage/durable). For reference a co
 <img src="https://p.sda1.dev/19/c34a2704a23ede3aa97e68a4fc3d7f47/CMP_20240913210351915.jpg" referrerpolicy="no-referrer">
 再见了，无限火力的火箭毁灭者
 
+
+*****
+
+####  xinfengj  
+##### 5364#       发表于 2024-9-13 22:45
+
+<img src="https://img.saraba1st.com/forum/202409/13/224230kggkdyxmcndg559n.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240913224142.png</strong> (953 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-13 22:42 上传
+
+又一次的双线MO，主任务是杀黄绿胖和武斗虫，副任务是三天时间解放两个机器人星球可以获得轨道凝固汽油弹
+

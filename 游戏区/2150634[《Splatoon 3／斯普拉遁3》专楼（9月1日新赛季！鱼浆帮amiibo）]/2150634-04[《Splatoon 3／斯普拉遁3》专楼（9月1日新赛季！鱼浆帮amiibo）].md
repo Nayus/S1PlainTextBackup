@@ -2799,3 +2799,14 @@ live开始了，演出动作连staff都好细节，至少架子鼓的动作都�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  绿冰  
+##### 5215#         楼主| 发表于 2024-9-13 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66197473&amp;ptid=2150634" target="_blank">yanglian72 发表于 2024-9-13 19:48</a>
+
+有wave goodbye吗，这首也没有现场</blockquote>
+看了下歌单应该没有
+

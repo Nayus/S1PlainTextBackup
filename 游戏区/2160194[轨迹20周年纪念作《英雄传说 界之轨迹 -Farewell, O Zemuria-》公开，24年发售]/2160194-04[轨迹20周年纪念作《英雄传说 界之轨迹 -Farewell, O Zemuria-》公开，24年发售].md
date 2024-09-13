@@ -1654,3 +1654,20 @@ PS5涨价后，FAMI上统计两个版本加起来只卖了一万台出头，确�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下注界轨双子会不会再演一出低配39苦情戏了
 
+
+*****
+
+####  aimujie  
+##### 4608#       发表于 2024-9-13 11:10
+
+不如直接刀了哥哥吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  minus13  
+##### 4609#       发表于 2024-9-13 11:10
+
+39致敬艾约，双子致敬39
+
+这就是我们轨迹，生生不息，永远传承<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

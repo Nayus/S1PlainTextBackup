@@ -8862,3 +8862,28 @@ fbk说今天可能有线下联动，不好说
 
 大概是新曲MV
 
+
+*****
+
+####  karastar  
+##### 9619#       发表于 2024-9-13 20:28
+
+EN开的MC角色扮演服效果很好，希望GTA这次能带一波热潮
+
+*****
+
+####  holoan  
+##### 9620#         楼主| 发表于 2024-9-13 20:32
+
+船长说明天miko家线下联动
+
+*****
+
+####  holoan  
+##### 9621#         楼主| 发表于 2024-9-13 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66197867&amp;ptid=2086637" target="_blank">karastar 发表于 2024-9-13 20:28</a>
+
+EN开的MC角色扮演服效果很好，希望GTA这次能带一波热潮</blockquote>
+那不是ENmember的功劳，是外包的MC地图和设定整个企划花了大功夫下去做的才有的效果，GTA并不是这种模式不要混淆
+

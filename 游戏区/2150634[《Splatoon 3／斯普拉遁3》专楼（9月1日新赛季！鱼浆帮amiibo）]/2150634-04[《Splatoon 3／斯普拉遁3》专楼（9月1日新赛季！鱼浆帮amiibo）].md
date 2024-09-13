@@ -2951,3 +2951,45 @@ live开始了，演出动作连staff都好细节，至少架子鼓的动作都�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  苍蓝之枪  
+##### 5225#       发表于 2024-9-13 23:16
+
+再度感受到硬是把你胜率往50%拉的神奇匹配机制
+
+*****
+
+####  KBAC  
+##### 5226#       发表于 2024-9-13 23:17
+
+广场上丹尼和刺冠哥俩似乎是进一次大厅or商店就会切换一次。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  墨染白泉  
+##### 5227#       发表于 2024-9-13 23:19
+
+<img src="https://img.saraba1st.com/forum/202409/13/231942jm4bvzxbv66im76d.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1726240722926.jpg</strong> (100.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-13 23:19 上传
+
+好中二的前缀，明天我也试试
+
+
+*****
+
+####  KBAC  
+##### 5228#       发表于 2024-9-13 23:22
+
+百倍匹配到完全不会玩的纯萌新，非常惊心动魄地以0.4%的优势赢了，然后遇到了最难绷的一次扭蛋十连，六张餐券<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

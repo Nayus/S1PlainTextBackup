@@ -3044,3 +3044,11 @@ live开始了，演出动作连staff都好细节，至少架子鼓的动作都�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  raii  
+##### 5233#       发表于 2024-9-14 00:24
+
+麻辣鱿物的logo和鱼浆帮的logo都有好好地投影出来，到了腕儿姐妹投的却是姬饭两人的个人logo，强推CP之心昭然若揭<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

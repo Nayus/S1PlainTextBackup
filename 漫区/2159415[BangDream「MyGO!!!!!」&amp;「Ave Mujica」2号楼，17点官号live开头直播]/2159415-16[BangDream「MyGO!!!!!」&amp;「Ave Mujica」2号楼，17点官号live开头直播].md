@@ -8820,3 +8820,11 @@ https://skeb.jp/@miyabi_fujieda/works/21
 那就不得不提逆输入唯一神lisa内了，无论外貌性格都完全照着有利息模子画的角色，唉，说到这儿又开始伤感 ...</blockquote>
 忘记lisa内了，满脑子想着新团，滑轨一个。早期几个团的逆输入都整挺好的，主要是ras和蝶让我不太满意
 
+
+*****
+
+####  星天观测  
+##### 22997#       发表于 2024-9-13 22:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">lisa，哎，不能忘记的人
+

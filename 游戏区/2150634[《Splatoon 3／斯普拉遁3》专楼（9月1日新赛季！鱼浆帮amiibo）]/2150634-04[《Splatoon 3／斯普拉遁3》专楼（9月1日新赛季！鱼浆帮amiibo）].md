@@ -3159,3 +3159,23 @@ live开始了，演出动作连staff都好细节，至少架子鼓的动作都�
 
 在副舞台看到了个wota艺的鱿XD
 
+
+*****
+
+####  KBAC  
+##### 5245#       发表于 2024-9-14 01:38
+
+草，大祭典的主题原来也是复用的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，喷1美服原来开过“过去vs未来”祭典，当年赢的是“过去”。
+
+<img src="https://img.saraba1st.com/forum/202409/14/013640y14dysy99avbllqi.jpg" referrerpolicy="no-referrer">
+
+<strong>img_0332.jpg</strong> (123.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 01:36 上传
+
+当时的阵营图，这个过去是不是有点太过去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

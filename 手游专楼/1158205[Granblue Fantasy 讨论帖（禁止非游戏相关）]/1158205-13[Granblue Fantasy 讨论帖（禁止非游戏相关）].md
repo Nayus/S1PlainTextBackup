@@ -16,3 +16,13 @@
 
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  洛克萨斯  
+##### 18094#       发表于 2024-9-13 17:59
+
+灶，8，神盾<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+真保值啊
+

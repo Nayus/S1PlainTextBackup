@@ -8736,3 +8736,11 @@ https://enrich-design.co/explore/material-introduction/size-chart/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">感觉你邦逆输入越多的角色越没真人好看……点名批评rui，看着比ayasa老十岁
 
+
+*****
+
+####  星天观测  
+##### 22992#       发表于 2024-9-13 14:45
+
+出道一周年，立绘全变成鬼图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -13824,3 +13824,11 @@ OC3暂时的难度都是来自锁人<img src="https://static.saraba1st.com/image
 
 真正最能写的老虚是真的一点没写战斗，全交给游戏系统了，摆了摆了<img src="https://static.saraba1st.com/image/smiley/carton2017/041.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yangun22  
+##### 14607#       发表于 2024-9-13 14:36
+
+帝王花根据剧情来说真不会有pv那种怪兽大乱斗，只靠面板碾压的人碰到同样面板但会玩的被秒才是正确，可惜断肢挖心没画出来<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

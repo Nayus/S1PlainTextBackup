@@ -2694,3 +2694,16 @@ live开始了，演出动作连staff都好细节，至少架子鼓的动作都�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  绿冰  
+##### 5203#         楼主| 发表于 2024-9-13 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66192536&amp;ptid=2150634" target="_blank">KBAC 发表于 2024-9-13 11:57</a>
+
+芥末章鱼这次没有打碟。只是在单纯的搓芥末
+
+论坛助手,iPhone</blockquote>
+他老人家能和和气气呆着是真不习惯了233
+

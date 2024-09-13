@@ -2684,3 +2684,13 @@ live开始了，演出动作连staff都好细节，至少架子鼓的动作都�
 
 怎么也不弄个amiibo盒子
 
+
+*****
+
+####  KBAC  
+##### 5202#       发表于 2024-9-13 11:57
+
+芥末章鱼这次没有打碟。只是在单纯的搓芥末<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -953,3 +953,13 @@ q娃人设没有主角几个精致，果然还是剧场版限定吧
 
 我觉得我一定可以和这些人做好朋友<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  necoconeco  
+##### 2208#       发表于 2024-9-13 15:17
+
+一大早起来之后就彻底断了手机，直奔电影院，连goods柜台都没有靠近，所以没有被剧透。
+
+结论是并不好看。
+

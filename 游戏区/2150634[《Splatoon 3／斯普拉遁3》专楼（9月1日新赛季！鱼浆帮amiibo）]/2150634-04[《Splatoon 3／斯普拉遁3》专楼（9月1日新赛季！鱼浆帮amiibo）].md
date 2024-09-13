@@ -2941,3 +2941,13 @@ live开始了，演出动作连staff都好细节，至少架子鼓的动作都�
 
 随时补充~
 
+
+*****
+
+####  KBAC  
+##### 5224#       发表于 2024-9-13 23:08
+
+这次不管输赢都只会播对应队伍的胜利BGM，只有输了内战才会听到各自队伍的失败BGM。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

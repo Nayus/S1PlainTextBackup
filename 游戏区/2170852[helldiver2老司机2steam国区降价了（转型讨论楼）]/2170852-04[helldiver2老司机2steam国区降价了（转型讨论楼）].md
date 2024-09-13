@@ -497,3 +497,11 @@ An unsafe railgun shot will deal 1500/562.5 (damage/durable). For reference a co
 
 又一次的双线MO，主任务是杀黄绿胖和武斗虫，副任务是三天时间解放两个机器人星球可以获得轨道凝固汽油弹
 
+
+*****
+
+####  白昼梦DD  
+##### 5365#       发表于 2024-9-13 23:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">现在这一堆债券 新入坑就算有钱任性全买了也没章去解锁，更别说战舰科技最后两级素材的夸张量了，但凡再多更新一级战舰科技都不知道得几年才能点满了
+

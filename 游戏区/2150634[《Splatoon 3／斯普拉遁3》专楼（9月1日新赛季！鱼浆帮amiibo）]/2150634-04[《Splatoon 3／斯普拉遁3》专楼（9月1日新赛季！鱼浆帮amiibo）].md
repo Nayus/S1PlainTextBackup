@@ -3179,3 +3179,14 @@ live开始了，演出动作连staff都好细节，至少架子鼓的动作都�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  KBAC  
+##### 5246#       发表于 2024-9-14 01:59
+
+原来没通关英雄模式的广场和通关后的广场是有区别的，没通英雄模式的话进门左手边的摊位看摊的不是芥末章鱼和鱿鱼干，而是一只水母。
+没通的秩序篇不知道是不是也看不到水田。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

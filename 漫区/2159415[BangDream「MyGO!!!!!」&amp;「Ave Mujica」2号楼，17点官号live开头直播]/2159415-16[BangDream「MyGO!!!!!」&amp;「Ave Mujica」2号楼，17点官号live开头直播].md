@@ -8684,3 +8684,27 @@ lsl估计是去宣传上海live的
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">byd不是我想烤羊，是b站推荐给我整笑了。刷个羊姐翻唱的，下面要么是理名原唱mygo伴奏，要么是羊姐不变，换成gbc版伴奏
 控制变量法给玩明白了
 
+
+*****
+
+####  御幸一也  
+##### 22988#       发表于 2024-9-13 12:15
+
+今天是ave mujica的CD出道一周年惹
+
+<img src="https://img.saraba1st.com/forum/202409/13/121510znkk5jszk8jy060l.jpg" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 1899 - Xユーザーのブシロードミュージック公式さん_ 「【祝☆発売1.jpg</strong> (35.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-13 12:15 上传
+
+<img src="https://img.saraba1st.com/forum/202409/13/121509ap5w5qrcc2a8p2xs.jpg" referrerpolicy="no-referrer">
+
+<strong>GXKOxSiaIAAzmNP.jpg</strong> (141.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-13 12:15 上传
+

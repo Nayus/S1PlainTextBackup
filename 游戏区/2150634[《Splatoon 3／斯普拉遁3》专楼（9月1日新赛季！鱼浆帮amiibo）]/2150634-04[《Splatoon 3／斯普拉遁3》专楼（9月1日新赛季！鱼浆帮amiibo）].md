@@ -2644,3 +2644,11 @@ live开始了，演出动作连staff都好细节，至少架子鼓的动作都�
 
 3代的无观客live这下也没有浪费的复用了，这个回收，你做得好，你做得好啊！<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  墨染白泉  
+##### 5199#       发表于 2024-9-13 09:27
+
+进游戏先拍一小时照
+

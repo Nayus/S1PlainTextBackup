@@ -1802,3 +1802,21 @@ mk2那个经理感觉和曹是一个定位的，结果一直被挤压的没什�
 
 黎2的时候还说之后还有2到3个地区呢<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  andychen  
+##### 4622#       发表于 2024-9-13 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66196450&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-13 18:03</a>
+中东部全黑的大陆地图是创那段时间放出来的，那次直播我还看了，当时包括之后讨论的反应绝对是“轨迹完结有 ...</blockquote>
+如果我没记错，早期的设定书上东部大陆是阴影或者省略，文字设定写的是东部逐渐被未知污染侵蚀，后来改成了全涂黑标注侵蚀地域
+
+*****
+
+####  Aeons  
+##### 4623#       发表于 2024-9-13 19:04
+
+东大陆一直是说荒漠化，不毛化，污染侵蚀这几个词我印象是没有用过的。
+如果你确定记得是哪段时间的设定本我可以找下
+

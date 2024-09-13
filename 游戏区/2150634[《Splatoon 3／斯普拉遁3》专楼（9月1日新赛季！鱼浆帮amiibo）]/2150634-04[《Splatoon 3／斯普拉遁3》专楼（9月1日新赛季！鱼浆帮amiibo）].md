@@ -3130,3 +3130,24 @@ live开始了，演出动作连staff都好细节，至少架子鼓的动作都�
 跟着节奏跳好耶
 怎么不发根荧光棒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  heseran  
+##### 5242#       发表于 2024-9-14 01:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66199835&amp;ptid=2150634" target="_blank">hujingjing 发表于 2024-9-14 00:51</a>
+现在pdd百亿补贴说什么香港直邮的那些比如异度2的pro，卖三百多，是真的吗？我记得很早以前这玩意炒到好 ...</blockquote>
+18年买的花了500多才买到<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，去年年底应该是又出了一批货，包括喷喷版的也有，然后花了300多又买了一个xb2的。不过我不是在拼多多买的。
+
+*****
+
+####  绿冰  
+##### 5243#         楼主| 发表于 2024-9-14 01:07
+
+<blockquote>hujingjing 发表于 2024-9-14 00:51
+现在pdd百亿补贴说什么香港直邮的那些比如异度2的pro，卖三百多，是真的吗？我记得很早以前这玩意炒到好 ...</blockquote>
+只能说，有可能是真的，但假的产业链已经够成熟了……基本就是赌
+
+这时间点要不就joycon插狗头支架凑活用吧，明年都新机子了
+

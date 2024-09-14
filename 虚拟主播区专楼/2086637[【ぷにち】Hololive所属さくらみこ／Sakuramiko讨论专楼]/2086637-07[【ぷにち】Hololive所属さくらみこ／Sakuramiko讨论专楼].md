@@ -9076,3 +9076,35 @@ micomet联名企划确定
 
 2024-9-14 21:43 上传
 
+
+*****
+
+####  holoan  
+##### 9640#         楼主| 发表于 2024-9-14 22:03
+
+说到holo内的GTA作品有关的事，去掉miko自己单独悠长的GTA直播史之外，联动相关的简单概括如下
+
+<img src="https://img.saraba1st.com/forum/202409/14/220025efdlusbjuflzed33.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (44.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 22:00 上传
+
+holo内第一个GTA内正式联动直播就是七字母，再来就是阿火的加入，然后再有跟其他人的联动
+
+
+*****
+
+####  holoan  
+##### 9641#         楼主| 发表于 2024-9-14 22:20
+
+[https://www.bilibili.com/video/BV1EAtKeVE1E](https://www.bilibili.com/video/BV1EAtKeVE1E)
+
+我没有事先存刚才bug的直播窗的档，miko事后把这个档隐藏了，所以这时候首先感谢B站生肉上传者，帮大忙了
+
+说到为什么要翻这个档出来看本来就是个单纯的事故窗，4chan有人突然发了一张图说miko刚才这个直播把GTA参加者名单漏出来了，我赶紧找出来看看是不是真的
+
+逐帧看完了，那张图确实是假的，4chan吃饱了撑着发一张造假图有什么意义？反正是猫是狗明天发表就全部知道了何必呢
+

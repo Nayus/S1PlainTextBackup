@@ -403,3 +403,33 @@ COD和战地都上线搜打撤模式，不过这俩游戏的搜打撤其实没�
 
 而类塔科夫更强调搜，快感来自压着战备线以小博大的刺激感、摸出金的爽感、摸出来之后换钱买装备滚雪球的玩法。这个模式确实很有意思，感觉是大逃杀的进化版，把人类爱赌的天性融入玩法了
 
+
+*****
+
+####  ybfelix  
+##### 43#       发表于 2024-9-14 20:56
+
+所以主机版还上吗
+
+编辑: 哦哦明年
+
+*****
+
+####  ybfelix  
+##### 44#       发表于 2024-9-14 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66207370&amp;ptid=2148997" target="_blank">ryanghj 发表于 2024-9-14 20:54</a>
+COD和战地都上线搜打撤模式，不过这俩游戏的搜打撤其实没抓住搜打撤的核心其实是搜而不是打，搞得像翻版pv ...</blockquote>
+COD的战区作为BR也是往强调战战战的方向改，恨不得从头打到尾，武器也是很快就给你空投玩家自己选配装。感觉他们认为自己的受众玩家耐不住太久平淡期…
+
+
+*****
+
+####  zzy516232108  
+##### 45#       发表于 2024-9-14 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66207370&amp;ptid=2148997" target="_blank">ryanghj 发表于 2024-9-14 20:54</a>
+
+COD和战地都上线搜打撤模式，不过这俩游戏的搜打撤其实没抓住搜打撤的核心其实是搜而不是打，搞得像翻版pv ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是啊，dmz都不能赚钱，局内的钱没用，又带不出去
+

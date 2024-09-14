@@ -3387,3 +3387,15 @@ live开始了，演出动作连staff都好细节，至少架子鼓的动作都�
 
 了
 
+
+*****
+
+####  KBAC  
+##### 5265#       发表于 2024-9-15 00:08
+
+フルスロットル・テンタクル居然不在这次的对战曲歌单里吗……<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+那我对这次祭典的评价要-80分<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+顿时不想玩了，cnm，鱿鱼研究所。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

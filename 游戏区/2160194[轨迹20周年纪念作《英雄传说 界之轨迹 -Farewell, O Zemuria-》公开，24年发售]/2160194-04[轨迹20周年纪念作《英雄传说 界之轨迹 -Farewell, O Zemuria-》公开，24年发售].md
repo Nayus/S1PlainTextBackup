@@ -2365,3 +2365,18 @@ edit
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  洛克萨斯  
+##### 4681#       发表于 2024-9-15 00:06
+
+黑兔的中规中矩，菲s不行，克洛战技和s都不行，桃花剑大招我觉得反而倒退了，战技还可以
+
+*****
+
+####  SuNR1sE364  
+##### 4682#       发表于 2024-9-15 00:11
+
+你轨的技能主打一个地味溢出，属于那种看一眼全身起鸡皮疙瘩的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

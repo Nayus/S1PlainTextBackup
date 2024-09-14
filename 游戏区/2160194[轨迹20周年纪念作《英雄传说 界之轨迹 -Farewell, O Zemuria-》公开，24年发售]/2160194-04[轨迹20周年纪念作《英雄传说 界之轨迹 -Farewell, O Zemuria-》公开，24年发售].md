@@ -2175,3 +2175,54 @@ mk2那个经理感觉和曹是一个定位的，结果一直被挤压的没什�
 
 问题是美术和剧本（音乐就不说了）确实没有能挑大梁的
 
+
+*****
+
+####  alucardcz  
+##### 4660#       发表于 2024-9-14 15:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黎2进步也很大 多来点你们要吗（
+
+*****
+
+####  一步成诗  
+##### 4661#       发表于 2024-9-14 15:12
+
+蒸蒸日上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ycy8332589  
+##### 4662#       发表于 2024-9-14 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66204341&amp;ptid=2160194" target="_blank">alucardcz 发表于 2024-9-14 15:12</a>
+
+黎2进步也很大 多来点你们要吗（</blockquote>
+诈骗技术么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 4663#       发表于 2024-9-14 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66204365&amp;ptid=2160194" target="_blank">ycy8332589 发表于 2024-9-14 15:14</a>
+
+诈骗技术么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抛开剧情不谈 你就说最终boss战算不算是一种大进步！
+
+*****
+
+####  悠悠你心  
+##### 4664#       发表于 2024-9-14 15:15
+
+我现在态度很明确，先质疑！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  ravend233  
+##### 4665#       发表于 2024-9-14 15:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剧本烂是正常的，竹入只会用它的惊世智慧创飞玩家口牙
+

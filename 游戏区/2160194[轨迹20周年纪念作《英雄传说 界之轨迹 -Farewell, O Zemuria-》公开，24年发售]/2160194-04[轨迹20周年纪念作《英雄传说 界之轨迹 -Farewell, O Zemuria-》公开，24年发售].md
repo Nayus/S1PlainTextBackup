@@ -2226,3 +2226,39 @@ mk2那个经理感觉和曹是一个定位的，结果一直被挤压的没什�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剧本烂是正常的，竹入只会用它的惊世智慧创飞玩家口牙
 
+
+*****
+
+####  alucardcz  
+##### 4666#       发表于 2024-9-14 15:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">漏油还有2星期就能开品了 我还要等蒸汽发售
+
+*****
+
+####  ravend233  
+##### 4667#       发表于 2024-9-14 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66204431&amp;ptid=2160194" target="_blank">alucardcz 发表于 2024-9-14 15:19</a>
+
+漏油还有2星期就能开品了 我还要等蒸汽发售</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">十月25先品伊苏10吧
+
+*****
+
+####  卢迪克  
+##### 4668#       发表于 2024-9-14 15:24
+
+剧本都是些老登了，从空轨写到界轨，灵感枯竭了。
+
+
+*****
+
+####  alucardcz  
+##### 4669#       发表于 2024-9-14 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66204472&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-14 15:22</a>
+
+十月25先品伊苏10吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ys10摸太久已经没感觉了 不急！
+

@@ -537,3 +537,23 @@ An unsafe railgun shot will deal 1500/562.5 (damage/durable). For reference a co
 
 一肚子怨气跟玩家土下座呢，以后保准还要加倍贱回来
 
+
+*****
+
+####  Launce  
+##### 5369#       发表于 2024-9-14 22:27
+
+据外媒Dexerto报道，《地狱潜者2》的开发者Arrowhead近日在Discord上承认了他们误解了玩家的需求，并承诺将进行重大改变。
+
+社区经理托马斯·彼得森表示，团队与玩家之间存在脱节，没有及时听取反馈，导致游戏未能满足玩家期望。
+
+为此，他们将进行调整和改进，预计9月17日发布迄今为止最大的更新，以修复平衡问题。彼得森强调，最重要的是让玩家享受游戏乐趣，与朋友一起玩游戏才是游戏的真谛。
+
+<img src="https://img.saraba1st.com/forum/202409/14/222629uee8zz3cdegynimy.jpg" referrerpolicy="no-referrer">
+
+<strong>[}I1M$B0Q_YFFY4}8D}C9D0_tmb.jpg</strong> (271.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 22:26 上传
+

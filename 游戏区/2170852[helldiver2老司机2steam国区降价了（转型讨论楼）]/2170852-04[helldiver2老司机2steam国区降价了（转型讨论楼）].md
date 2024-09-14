@@ -505,3 +505,13 @@ An unsafe railgun shot will deal 1500/562.5 (damage/durable). For reference a co
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">现在这一堆债券 新入坑就算有钱任性全买了也没章去解锁，更别说战舰科技最后两级素材的夸张量了，但凡再多更新一级战舰科技都不知道得几年才能点满了
 
+
+*****
+
+####  扑克脸军曹  
+##### 5366#       发表于 2024-9-14 21:25
+
+爆裂铳弹片也回来了，真就全是回调
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

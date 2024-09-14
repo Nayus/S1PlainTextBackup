@@ -56,3 +56,13 @@ an打工战士公告也出来了，不知道an是混池还是两个独立池子�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑了这么久就是为了今天，俩AN全拿下
 
+
+*****
+
+####  冰风血羽  
+##### 1207#       发表于 2024-9-14 15:04
+
+离谱，这扭蛋机居然还能扭出重复的<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

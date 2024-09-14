@@ -442,3 +442,13 @@ dw和rfi中文才是纯粹的反吧，还老喜欢在x上投广告。试了下�
 
 dockerhub时不时就不能用真的很难绷
 
+
+*****
+
+####  瓦米里奥  
+##### 42#       发表于 2024-9-14 13:30
+
+4厕这种游戏版玩星际战士都能代入突突c***k高潮的鬼地方真看懂了只会加反感度吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+然后还主动把这边发言给封了
+

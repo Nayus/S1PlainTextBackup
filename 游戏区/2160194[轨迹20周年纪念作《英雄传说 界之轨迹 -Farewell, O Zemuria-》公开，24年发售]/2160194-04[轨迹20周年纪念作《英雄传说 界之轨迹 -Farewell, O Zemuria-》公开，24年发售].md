@@ -2141,3 +2141,13 @@ mk2那个经理感觉和曹是一个定位的，结果一直被挤压的没什�
 说起来，我觉得轨迹系列在国内人气非常不错的样子，我在哪个论坛，像是贴吧nga谈起jrpg，还是轨迹内容，都 ...</blockquote>
 我20多年老玩家了，目前ps5、ns、pc都有，每天都有玩游戏，家里也有轨迹系列多套正版。说实话，我是真觉得轨迹好玩的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  迷雾塔  
+##### 4657#       发表于 2024-9-14 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66203174&amp;ptid=2160194" target="_blank">c0x9z8 发表于 2024-9-14 13:07</a>
+我20多年老玩家了，目前ps5、ns、pc都有，每天都有玩游戏，家里也有轨迹系列多套正版。说实话，我是真觉 ...</blockquote>
+肯定是好玩的。不然不会有多么忠实的玩家等着它。
+

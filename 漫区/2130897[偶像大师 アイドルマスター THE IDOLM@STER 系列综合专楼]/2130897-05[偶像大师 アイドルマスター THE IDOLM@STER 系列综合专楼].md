@@ -52,3 +52,67 @@
 
 考试不及格的结果是去初星当进修生
 
+
+*****
+
+####  wfhtony  
+##### 6376#       发表于 2024-9-14 16:46
+
+今天的役割：
+
+<img src="https://img.saraba1st.com/forum/202409/14/164604qc0vc0cccz22tj2z.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-14-16h35m56s802.jpg</strong> (291.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 16:46 上传
+
+<img src="https://img.saraba1st.com/forum/202409/14/164604bffke2sv5zzhqgjm.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-14-16h36m01s813.jpg</strong> (271.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 16:46 上传
+
+<img src="https://img.saraba1st.com/forum/202409/14/164605fvockt3vpy7l4yol.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-14-16h36m07s646.jpg</strong> (270.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 16:46 上传
+
+<img src="https://img.saraba1st.com/forum/202409/14/164605jkoc3cc435ozok4b.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-14-16h36m13s118.jpg</strong> (274.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 16:46 上传
+
+<img src="https://img.saraba1st.com/forum/202409/14/164606kcyw3le6i0zijjvh.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-14-16h36m19s192.jpg</strong> (275.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 16:46 上传
+
+<img src="https://img.saraba1st.com/forum/202409/14/164607giptp61pxto6wlt9.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-14-16h36m24s731.jpg</strong> (270.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 16:46 上传
+
+<img src="https://img.saraba1st.com/forum/202409/14/164607krfzlcr0n5r5sstz.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-14-16h36m30s637.jpg</strong> (276.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 16:46 上传
+

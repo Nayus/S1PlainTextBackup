@@ -914,3 +914,14 @@ What a wonderful radio完结还行……
 
 看你们决定，要开的话就正好广州场那个时间点
 
+
+*****
+
+####  csolfans  
+##### 21039#       发表于 2024-9-14 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66197021&amp;ptid=2078110" target="_blank">平安名すみれ 发表于 2024-9-13 19:00</a>
+
+看你们决定，要开的话就正好广州场那个时间点</blockquote>
+是时候新的开始了
+

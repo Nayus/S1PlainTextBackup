@@ -388,3 +388,18 @@ THQ
 
 —— 來自 Google Pixel 2, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  ryanghj  
+##### 42#       发表于 2024-9-14 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66200387&amp;ptid=2148997" target="_blank">zzy516232108 发表于 2024-9-14 07:49</a>
+
+撤离模式有啥好玩的，cod19的dmz还没玩够吗
+
+不知道国服有没有手柄支持，还是手柄打枪方便，我躺沙发上能打 ...</blockquote>
+COD和战地都上线搜打撤模式，不过这俩游戏的搜打撤其实没抓住搜打撤的核心其实是搜而不是打，太强调战斗了，搞得像pvpve版的大逃杀
+
+而类塔科夫更强调搜，快感来自压着战备线以小博大的刺激感、摸出金的爽感、摸出来之后换钱买装备滚雪球的玩法。这个模式确实很有意思，感觉是大逃杀的进化版，把人类爱赌的天性融入玩法了
+

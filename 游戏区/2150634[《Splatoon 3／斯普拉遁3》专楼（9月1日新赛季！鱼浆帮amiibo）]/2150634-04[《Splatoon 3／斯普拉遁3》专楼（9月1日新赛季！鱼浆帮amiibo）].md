@@ -3328,3 +3328,18 @@ live开始了，演出动作连staff都好细节，至少架子鼓的动作都�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  raii  
+##### 5260#       发表于 2024-9-14 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66206893&amp;ptid=2150634" target="_blank">KBAC 发表于 2024-9-14 20:11</a>
+
+第二天每组偶像都追加了一首对战曲啊。
+
+姬饭和鱼浆帮追加的是Octo和三代英雄模式的歌。
+
+而潮色的歌真的是惊 ...</blockquote>
+是DLC的但不是Fly Octo Fly，是Midnight Voltage / Shark Bytes，二代最后脱出上顶楼那段时的曲子
+

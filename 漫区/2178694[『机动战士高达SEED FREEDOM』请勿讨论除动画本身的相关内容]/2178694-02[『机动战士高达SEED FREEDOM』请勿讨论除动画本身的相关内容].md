@@ -55,3 +55,13 @@
 
 2024-9-13 17:08 上传
 
+
+*****
+
+####  pandaman7777  
+##### 1947#       发表于 2024-9-15 00:57
+
+才刚补完下载版，这是有新版又要再上映圈一波？
+
+—— 来自 OnePlus PHB110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

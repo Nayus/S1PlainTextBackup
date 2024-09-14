@@ -3413,3 +3413,19 @@ live开始了，演出动作连staff都好细节，至少架子鼓的动作都�
 顿时不想玩了 ...</blockquote>
 铁定明天的啊，这歌已经是腕儿姐妹的代表曲了，怎么可能混在普通曲子里
 
+
+*****
+
+####  yuzu崎  
+##### 5267#       发表于 2024-9-15 01:00
+
+<img src="https://img.saraba1st.com/forum/202409/15/005549sypd4rpzgmgk4o7n.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5068.jpeg</strong> (1.27 MB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 00:55 上传
+
+第二把就出了333倍，逆风赢了0.1%，整整给了33个海螺，抽了2个金名牌，紧接着就是6连败
+

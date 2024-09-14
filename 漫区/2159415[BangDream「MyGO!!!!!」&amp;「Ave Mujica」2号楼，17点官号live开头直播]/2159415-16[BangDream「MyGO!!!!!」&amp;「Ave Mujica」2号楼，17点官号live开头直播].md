@@ -9079,3 +9079,23 @@ b站白鹭哥的新想法
 
 熟悉的三集连播<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">大的要来了
 
+
+*****
+
+####  Aendst  
+##### 23024#       发表于 2024-9-14 14:06
+
+mujica动画三集联播可能性不高，mygo三集联播是一种宣传策略
+
+故事上是和前三季没关联的，这剧本只看一话会摸不到头脑，也不能吸引人往下看
+
+mujica不太有这个问题，毕竟mygo动画在这个档期已经重播至少三次了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 23025#       发表于 2024-9-14 14:14
+
+我已经做好后年才能在封面看到初华的准备了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

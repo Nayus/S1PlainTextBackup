@@ -319,3 +319,39 @@ vlcsnap-2024-09-14-19h00m33s509.jpg
 
 <img src="https://img.saraba1st.com/forum/202409/14/190202epaqzeqo62e8mxaa.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wfhtony  
+##### 6381#       发表于 2024-9-14 19:23
+
+<img src="https://img.saraba1st.com/forum/202409/14/192245pzyeo081g110pf1h.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-14-19h21m10s804.jpg</strong> (216.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 19:22 上传
+
+<img src="https://img.saraba1st.com/forum/202409/14/192246nqrhjqh79bbfj7ih.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-14-19h21m13s669.jpg</strong> (202.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 19:22 上传
+
+<img src="https://img.saraba1st.com/forum/202409/14/192246hzddvhn3njnh2diz.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-14-19h21m19s707.jpg</strong> (133.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 19:22 上传
+
+「「「大好きだ！！！」」」
+
+「「「ME TOO です！！！」」」
+
+→ Day1結束。
+

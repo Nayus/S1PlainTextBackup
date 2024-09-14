@@ -9028,3 +9028,19 @@ https://skeb.jp/@miyabi_fujieda/works/21
 
 這根本是2024年的結束倒計時吧w
 
+
+*****
+
+####  星天观测  
+##### 23019#       发表于 2024-9-14 13:54
+
+b站白鹭哥的新想法
+
+<img src="https://img.saraba1st.com/forum/202409/14/135448u4zg22kqq8o25v2z.png" referrerpolicy="no-referrer">
+
+<strong>QQ20240914-135208.png</strong> (111.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 13:54 上传
+

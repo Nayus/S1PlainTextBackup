@@ -433,3 +433,13 @@ COD的战区作为BR也是往强调战战战的方向改，恨不得从头打到
 COD和战地都上线搜打撤模式，不过这俩游戏的搜打撤其实没抓住搜打撤的核心其实是搜而不是打，搞得像翻版pv ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是啊，dmz都不能赚钱，局内的钱没用，又带不出去
 
+
+*****
+
+####  laputah  
+##### 46#       发表于 2024-9-14 21:11
+
+<blockquote>ryanghj 发表于 2024-9-14 20:54
+COD和战地都上线搜打撤模式，不过这俩游戏的搜打撤其实没抓住搜打撤的核心其实是搜而不是打，搞得像翻版pv ...</blockquote>
+搜也就图一乐 还是打完舔别人东西最爽 
+

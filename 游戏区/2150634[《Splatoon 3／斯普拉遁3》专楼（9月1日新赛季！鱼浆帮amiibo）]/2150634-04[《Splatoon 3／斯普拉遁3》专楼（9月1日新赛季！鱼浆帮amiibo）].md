@@ -3252,3 +3252,17 @@ live开始了，演出动作连staff都好细节，至少架子鼓的动作都�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  KBAC  
+##### 5253#       发表于 2024-9-14 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66201053&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-9-14 09:33</a>
+厚底的鞋子到底会不会增加受击判定？因为有过不止一次被狙头皮的经历，对鞋底比较厚的装备有所顾忌
+
+这赛季 ...</blockquote>
+会，同时也会提高你自己准星的高度。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

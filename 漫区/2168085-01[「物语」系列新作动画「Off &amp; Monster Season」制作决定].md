@@ -242,3 +242,32 @@ Blu-ray&amp;DVD
 不是吧，巴哈，这么拉的吗</blockquote>
 这不是因为沙发套不能按时提早做完吗
 
+
+*****
+
+####  oi99o  
+##### 889#       发表于 2024-9-14 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66202188&amp;ptid=2168085" target="_blank">Junglemgs 发表于 2024-9-14 11:24</a>
+这不是因为沙发套不能按时提早做完吗</blockquote>
+插了一周特番了还是万策尽吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后既然abema能按时配信那版权字幕也不至于要晚六天吧，这里开始就是巴哈和代理商的问题了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  oi99o  
+##### 890#       发表于 2024-9-14 11:29
+
+笑了，mv甚至也不是沙发套自己做的
+
+<img src="https://img.saraba1st.com/forum/202409/14/112857ycmucqlz4448usl3.png" referrerpolicy="no-referrer">
+
+<strong>img_3743.png</strong> (217.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 11:28 上传
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

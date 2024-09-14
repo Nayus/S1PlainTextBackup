@@ -2109,3 +2109,14 @@ mk2那个经理感觉和曹是一个定位的，结果一直被挤压的没什�
 看了下现在dl版是没限定版预购？</blockquote>
 数字版没豪华版，我前两个月就发邮件问过了
 
+
+*****
+
+####  AKKII  
+##### 4654#       发表于 2024-9-14 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66202055&amp;ptid=2160194" target="_blank">宛若青空 发表于 2024-9-14 11:13</a>
+
+数字版没豪华版，我前两个月就发邮件问过了</blockquote>
+好，大的良心法老控这次给省钱了<img src="https://static.saraba1st.com/image/smiley/face/16.gif" referrerpolicy="no-referrer">
+

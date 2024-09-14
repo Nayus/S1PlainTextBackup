@@ -9190,3 +9190,11 @@ mujica不太有这个问题，毕竟mygo动画在这个档期已经重播至少�
 
 [https://x.com/pcxwise/status/1834906697175085287](https://x.com/pcxwise/status/1834906697175085287)
 
+
+*****
+
+####  PDQ4  
+##### 23035#       发表于 2024-9-14 22:54
+
+原来已经鸡动画披露一周年了，怎么真靠鬼图硬控一年啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

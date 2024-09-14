@@ -3386,3 +3386,11 @@ plave也没打算跟这些破打游戏的男管人比，定位就是跟真人kpo
 
 白雪巴暂休了，果然受害还是比较大啊
 
+
+*****
+
+####  高等黑暗  
+##### 742#       发表于 2024-9-14 15:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">鬼子还是有够阴湿 这声明我都能闻到那些传言有多臭了，被迫跑出来澄清
+

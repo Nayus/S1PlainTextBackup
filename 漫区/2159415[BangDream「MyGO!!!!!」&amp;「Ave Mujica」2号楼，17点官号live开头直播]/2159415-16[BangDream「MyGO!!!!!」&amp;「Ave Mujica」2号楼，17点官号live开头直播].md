@@ -8889,3 +8889,23 @@ https://skeb.jp/@miyabi_fujieda/works/21
 
 唱的多不如唱的稳，质量上不起，还费主唱
 
+
+*****
+
+####  akiomn  
+##### 23005#       发表于 2024-9-14 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66201411&amp;ptid=2159415" target="_blank">むつさき 发表于 2024-9-14 10:12</a>
+开局op确实不行 
+不过唱到后面没体力了才是真正的灾难
+没有滤镜的人</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确实没啥滤镜，狗和gbc在我这都没滤镜，前者开局东京zepp把我干碎，后者真没啥看情，看看动画得了
+能带滤镜的也就鸡和萝，两个都是现场让我先拉滤镜的
+
+*****
+
+####  rikaren  
+##### 23006#       发表于 2024-9-14 11:14
+
+别扯其他企划了，虽然好像你楼几乎没提那啥都上了鲜血追猎名单就是了。
+

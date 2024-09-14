@@ -8928,3 +8928,39 @@ EN开的MC角色扮演服效果很好，希望GTA这次能带一波热潮</block
 
 明天micometmarin~
 
+
+*****
+
+####  holoan  
+##### 9627#         楼主| 发表于 2024-9-13 23:08
+
+<img src="https://img.saraba1st.com/forum/202409/13/230918oro4hhr0fqrgfrax.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (470.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-13 23:09 上传
+
+[https://www.youtube.com/watch?v=gOgdK5Nk0-M](https://www.youtube.com/watch?v=gOgdK5Nk0-M)
+
+🍒『 さくらんぼメッセージ』🍒
+
+Lyrics・Arrangement：ナナホシ管弦楽団
+
+Music：岩見 陸 <blockquote>"「声が好き」と言われてはじめて自分の声が好きになれた"
+
+ナナホシ管弦楽団氏に書き下ろしていただいた青春が詰まった1曲です</blockquote>
+
+*****
+
+####  holoan  
+##### 9628#         楼主| 发表于 2024-9-14 11:15
+
+今天联动的契机：船长“miko也要发表重大告知（？）的那就刚好我们两个重大发表同士来做个联动吧”
+
+miko“可以再叫个星街一起吗”
+[https://x.com/tomo_momoda/status/1834626944534712728](https://x.com/tomo_momoda/status/1834626944534712728)
+
+槽点太多
+

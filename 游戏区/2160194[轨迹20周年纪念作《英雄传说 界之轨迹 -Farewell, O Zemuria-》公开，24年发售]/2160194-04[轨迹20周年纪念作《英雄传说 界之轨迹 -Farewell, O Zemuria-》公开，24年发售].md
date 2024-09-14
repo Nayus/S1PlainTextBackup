@@ -2083,3 +2083,29 @@ mk2那个经理感觉和曹是一个定位的，结果一直被挤压的没什�
 
 看了下现在dl版是没限定版预购？
 
+
+*****
+
+####  hkguty  
+##### 4651#       发表于 2024-9-14 11:05
+
+常驻五香神气了啊，不知大招有没有变化
+
+*****
+
+####  宛若青空  
+##### 4652#       发表于 2024-9-14 11:11
+
+<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">日亚店特通常版居然也补货了
+
+
+*****
+
+####  宛若青空  
+##### 4653#       发表于 2024-9-14 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66201656&amp;ptid=2160194" target="_blank">AKKII 发表于 2024-9-14 10:38</a>
+
+看了下现在dl版是没限定版预购？</blockquote>
+数字版没豪华版，我前两个月就发邮件问过了
+

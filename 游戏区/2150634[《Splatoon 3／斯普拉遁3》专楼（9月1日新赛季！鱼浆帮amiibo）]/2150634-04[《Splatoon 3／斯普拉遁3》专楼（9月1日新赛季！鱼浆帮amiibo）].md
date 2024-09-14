@@ -3266,3 +3266,17 @@ live开始了，演出动作连staff都好细节，至少架子鼓的动作都�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  罗克萨斯  
+##### 5254#       发表于 2024-9-14 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66201689&amp;ptid=2150634" target="_blank">KBAC 发表于 2024-9-14 10:41</a>
+会，同时也会提高你自己准星的高度。
+
+论坛助手,iPhone</blockquote>
+好，这就抛弃所有厚底鞋，只用平底鞋做装备
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

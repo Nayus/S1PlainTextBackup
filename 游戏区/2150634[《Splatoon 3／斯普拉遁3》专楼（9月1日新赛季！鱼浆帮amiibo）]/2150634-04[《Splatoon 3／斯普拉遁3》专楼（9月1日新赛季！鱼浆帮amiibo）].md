@@ -3288,3 +3288,11 @@ live开始了，演出动作连staff都好细节，至少架子鼓的动作都�
 
 怎么感觉这次祭典这么容易掉线<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  105gun  
+##### 5256#       发表于 2024-9-14 14:54
+
+涂地涂不明白一点，挂机看live了
+

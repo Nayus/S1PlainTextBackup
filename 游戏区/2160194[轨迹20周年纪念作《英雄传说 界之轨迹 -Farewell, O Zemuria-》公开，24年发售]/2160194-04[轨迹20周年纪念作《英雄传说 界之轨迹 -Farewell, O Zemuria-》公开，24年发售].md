@@ -2027,3 +2027,13 @@ mk2那个经理感觉和曹是一个定位的，结果一直被挤压的没什�
 说起来，我觉得轨迹系列在国内人气非常不错的样子，我在哪个论坛，像是贴吧nga谈起jrpg，还是轨迹内容，都 ...</blockquote>
 最早的一批有PC端中文代理+盗版传播的jrpg是这样的
 
+
+*****
+
+####  迷雾塔  
+##### 4645#       发表于 2024-9-14 08:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66200352&amp;ptid=2160194" target="_blank">红魔馆的糖 发表于 2024-9-14 07:35</a>
+最早的一批有PC端中文代理+盗版传播的jrpg是这样的</blockquote>
+感觉最管用的是pc中文代理这一点。要说盗版传播，其实影响没那么大<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">其他游戏也有千奇百怪的盗版。有坚实的老玩家基础就是好啊
+

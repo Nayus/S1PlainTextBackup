@@ -3229,3 +3229,16 @@ live开始了，演出动作连staff都好细节，至少架子鼓的动作都�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  罗克萨斯  
+##### 5251#       发表于 2024-9-14 09:33
+
+厚底的鞋子到底会不会增加受击判定？因为有过不止一次被狙头皮的经历，对鞋底比较厚的装备有所顾忌<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+这赛季想稍稍尝试下消防栓打塔楼，这两套装备哪个更实用？都说DPS越高对物收益越高，但我看带隐跳的栓不少啊，是目前趋势么？或者说这两套都有用武之地，可以根据地图来选择？
+
+<img src="https://p.sda1.dev/19/eae800a9e6333edd1dd6703f35bd06fe/QQ20240914-093022.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/da6f829f026e72f68966b14f8328488f/QQ20240914-093100.png" referrerpolicy="no-referrer">
+

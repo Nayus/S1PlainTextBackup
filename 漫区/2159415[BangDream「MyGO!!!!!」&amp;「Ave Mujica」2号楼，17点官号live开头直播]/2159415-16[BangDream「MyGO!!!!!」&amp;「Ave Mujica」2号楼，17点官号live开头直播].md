@@ -9044,3 +9044,38 @@ b站白鹭哥的新想法
 
 2024-9-14 13:54 上传
 
+
+*****
+
+####  星天观测  
+##### 23020#       发表于 2024-9-14 13:56
+
+<img src="https://img.saraba1st.com/forum/202409/14/135628c3zjgy2422j44c7d.png" referrerpolicy="no-referrer">
+
+<strong>QQ20240914-135604.png</strong> (58.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 13:56 上传
+
+*****
+
+####  NODY  
+##### 23021#       发表于 2024-9-14 13:58
+
+乐观一点就是4th现场宣布1月2号三集连播，这样还算是勉强能赶上周年
+
+*****
+
+####  星天观测  
+##### 23022#       发表于 2024-9-14 13:58
+
+这么一看好像主唱是星星也能适用于初华了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 23023#       发表于 2024-9-14 14:01
+
+熟悉的三集连播<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">大的要来了
+

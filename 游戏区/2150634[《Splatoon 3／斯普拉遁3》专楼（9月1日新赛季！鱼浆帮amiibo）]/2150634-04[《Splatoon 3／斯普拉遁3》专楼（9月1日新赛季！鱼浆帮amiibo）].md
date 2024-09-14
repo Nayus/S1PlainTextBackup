@@ -3280,3 +3280,11 @@ live开始了，演出动作连staff都好细节，至少架子鼓的动作都�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Humpy  
+##### 5255#       发表于 2024-9-14 12:29
+
+怎么感觉这次祭典这么容易掉线<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

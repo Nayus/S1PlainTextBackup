@@ -3316,3 +3316,15 @@ live开始了，演出动作连staff都好细节，至少架子鼓的动作都�
 
 人越多 网越差<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KBAC  
+##### 5259#       发表于 2024-9-14 20:11
+
+第二天每组偶像都追加了一首对战曲啊。
+姬饭和鱼浆帮追加的是Octo和三代英雄模式的歌。
+而潮色的歌真的是惊喜，是重编版的炸弹Rush之夜（二代芥末章鱼Boss战第二首）。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

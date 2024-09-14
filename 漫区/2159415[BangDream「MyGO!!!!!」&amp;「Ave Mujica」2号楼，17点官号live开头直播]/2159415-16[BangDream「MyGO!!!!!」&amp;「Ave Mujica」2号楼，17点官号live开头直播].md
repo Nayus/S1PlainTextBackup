@@ -9172,3 +9172,21 @@ mujica不太有这个问题，毕竟mygo动画在这个档期已经重播至少�
 
 怎么说呢，涉及到这个很容易陷入到“有东西总比饿死好”和“全是鬼图我的天呐”的狭缝里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 23034#       发表于 2024-9-14 20:14
+
+泰國人<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202409/14/201436qt36oh1jgr2tztdh.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_ท่านหยิงน้องซากิโกดโกะกิเกงโย๊ะ(@pcxwise).jpg</strong> (852.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 20:14 上传
+
+[https://x.com/pcxwise/status/1834906697175085287](https://x.com/pcxwise/status/1834906697175085287)
+

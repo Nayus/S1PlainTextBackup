@@ -2262,3 +2262,15 @@ mk2那个经理感觉和曹是一个定位的，结果一直被挤压的没什�
 十月25先品伊苏10吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ys10摸太久已经没感觉了 不急！
 
+
+*****
+
+####  orangee  
+##### 4670#       发表于 2024-9-14 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66204431&amp;ptid=2160194" target="_blank">alucardcz 发表于 2024-9-14 15:19</a>
+漏油还有2星期就能开品了 我还要等蒸汽发售</blockquote>
+我得等到第一次蒸汽打折，等着云坛友的
+
+—— 来自 OnePlus PGP110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

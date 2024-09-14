@@ -9118,3 +9118,16 @@ mujica不太有这个问题，毕竟mygo动画在这个档期已经重播至少�
 
 火立绘怎么看都是个销量debuff，wsd不也还是用了
 
+
+*****
+
+####  ddy2811  
+##### 23028#       发表于 2024-9-14 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66203923&amp;ptid=2159415" target="_blank">skives10 发表于 2024-9-14 14:25</a>
+
+相信wsd 
+
+为了钱也会让mujica按时进游戏的</blockquote>
+日厂和钱过不去的骚操作数都数不清啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

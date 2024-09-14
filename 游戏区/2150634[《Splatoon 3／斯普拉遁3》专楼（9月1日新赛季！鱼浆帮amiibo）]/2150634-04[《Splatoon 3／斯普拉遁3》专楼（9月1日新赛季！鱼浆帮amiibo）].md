@@ -3242,3 +3242,13 @@ live开始了，演出动作连staff都好细节，至少架子鼓的动作都�
 <img src="https://p.sda1.dev/19/eae800a9e6333edd1dd6703f35bd06fe/QQ20240914-093022.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/19/da6f829f026e72f68966b14f8328488f/QQ20240914-093100.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leonlink  
+##### 5252#       发表于 2024-9-14 10:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">打真格比较多，说实话玩涂地还真有点摸不着头脑
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

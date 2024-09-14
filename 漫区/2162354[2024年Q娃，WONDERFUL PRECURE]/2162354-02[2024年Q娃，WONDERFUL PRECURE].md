@@ -1019,3 +1019,15 @@ q娃人设没有主角几个精致，果然还是剧场版限定吧
 <img src="https://files.catbox.moe/ftdkyq.jpg" referrerpolicy="no-referrer">
 <img src="https://files.catbox.moe/zg4qo3.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Parahure  
+##### 2213#       发表于 2024-9-14 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66197578&amp;ptid=2162354" target="_blank">DARK_HGCG 发表于 2024-9-13 19:59</a>
+打戏都是前辈贡献的就算了
+
+汪组连一场对得起剧场版的追逐戏都没有</blockquote>
+是不是有前辈在打汪组阻止这种情节<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

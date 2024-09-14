@@ -2120,3 +2120,24 @@ mk2那个经理感觉和曹是一个定位的，结果一直被挤压的没什�
 数字版没豪华版，我前两个月就发邮件问过了</blockquote>
 好，大的良心法老控这次给省钱了<img src="https://static.saraba1st.com/image/smiley/face/16.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一夜秋风袭锦城  
+##### 4655#       发表于 2024-9-14 13:01
+
+没豪华版不代表没dlc
+
+—— 来自 Xiaomi 2210132C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+
+*****
+
+####  c0x9z8  
+##### 4656#       发表于 2024-9-14 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66200298&amp;ptid=2160194" target="_blank">迷雾塔 发表于 2024-9-14 06:58</a>
+
+说起来，我觉得轨迹系列在国内人气非常不错的样子，我在哪个论坛，像是贴吧nga谈起jrpg，还是轨迹内容，都 ...</blockquote>
+我20多年老玩家了，目前ps5、ns、pc都有，每天都有玩游戏，家里也有轨迹系列多套正版。说实话，我是真觉得轨迹好玩的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

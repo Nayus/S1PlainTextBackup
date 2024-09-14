@@ -9108,3 +9108,13 @@ mujica不太有这个问题，毕竟mygo动画在这个档期已经重播至少�
 相信wsd 
 为了钱也会让mujica按时进游戏的
 
+
+*****
+
+####  星天观测  
+##### 23027#       发表于 2024-9-14 14:27
+
+真相信吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+火立绘怎么看都是个销量debuff，wsd不也还是用了
+

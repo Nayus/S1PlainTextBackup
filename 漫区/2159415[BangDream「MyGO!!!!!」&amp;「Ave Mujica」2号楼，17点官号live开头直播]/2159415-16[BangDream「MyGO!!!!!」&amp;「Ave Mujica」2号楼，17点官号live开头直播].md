@@ -8836,3 +8836,22 @@ https://skeb.jp/@miyabi_fujieda/works/21
 
 刚通知21号要师门聚会，看来不能和漏油一起抢沪go第二批了
 
+
+*****
+
+####  akiomn  
+##### 22999#       发表于 2024-9-14 10:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了下隔壁昨天的live，有一说一，其实小孩姐开场就唱op，说实话也不行，也许是没进状态，不过起码还能听出来是在唱op的，不过还是比羊姐翻唱要强，羊姐那翻唱真的是一坨，开头笑到结束，风格不合＋编曲一坨，到时候现场版怎样我不敢想（别人是现场翻，你录音室都翻车了，现场估计更惨烈）
+
+
+*****
+
+####  むつさき  
+##### 23000#       发表于 2024-9-14 10:12
+
+开局op确实不行 
+不过唱到后面没体力了才是真正的灾难<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+没有滤镜的人
+还是去看mujica roselia ras的现场吧
+

@@ -2282,3 +2282,16 @@ mk2那个经理感觉和曹是一个定位的，结果一直被挤压的没什�
 
 轨迹系列qol的进步也很明显，各种快捷键，地图，剧情记事本，高速模式，玩起来还是舒服的
 
+
+*****
+
+####  无动于衷  
+##### 4672#       发表于 2024-9-14 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66204341&amp;ptid=2160194" target="_blank">alucardcz 发表于 2024-9-14 15:12</a>
+
+黎2进步也很大 多来点你们要吗（</blockquote>
+还真别说，普世欢腾你法只要稍微改改不做成直给而是做成真选项型AVG脚本搞不好评价是可以逆转的
+
+结论就是抄版本答案都抄串行了
+

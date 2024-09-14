@@ -9131,3 +9131,11 @@ mujica不太有这个问题，毕竟mygo动画在这个档期已经重播至少�
 为了钱也会让mujica按时进游戏的</blockquote>
 日厂和钱过不去的骚操作数都数不清啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星空冻结  
+##### 23029#       发表于 2024-9-14 17:39
+
+日本人，特别是老登日本人脑回路就不属于正常人的范畴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

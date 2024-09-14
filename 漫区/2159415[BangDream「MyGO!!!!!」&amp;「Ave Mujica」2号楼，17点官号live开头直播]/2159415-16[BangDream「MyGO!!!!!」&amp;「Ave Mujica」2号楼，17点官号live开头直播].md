@@ -8948,3 +8948,15 @@ https://skeb.jp/@miyabi_fujieda/works/21
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">车什么乐器？编曲都是一坨了
 还有轻点车青木，我是青木gachi看不得这个
 
+
+*****
+
+####  NODY  
+##### 23012#       发表于 2024-9-14 12:04
+
+ 本帖最后由 NODY 于 2024-9-14 12:06 编辑 
+
+青木翻唱op比羊姐稳多了不是，还是弹唱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+乐器之前就说过了，除非有非常明显的翻车不然大部分人都听不出太多问题的
+

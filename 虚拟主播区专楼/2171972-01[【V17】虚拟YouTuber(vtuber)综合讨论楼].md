@@ -3368,3 +3368,21 @@ plave也没打算跟这些破打游戏的男管人比，定位就是跟真人kpo
 
 这些韩团的受众就不是VTB观众这块的吧。。。
 
+
+*****
+
+####  格林卡罗尔  
+##### 741#       发表于 2024-9-14 11:56
+
+[https://x.com/Tomoe_Shirayuki/status/1834789173259387229](https://x.com/Tomoe_Shirayuki/status/1834789173259387229)
+
+<img src="https://img.saraba1st.com/forum/202409/14/115542h2ogx1xk1okoho96.png" referrerpolicy="no-referrer">
+
+<strong>D30CAEF41BF8E0C66779A246A8726778.png</strong> (209.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 11:55 上传
+
+白雪巴暂休了，果然受害还是比较大啊
+

@@ -8970,3 +8970,37 @@ https://skeb.jp/@miyabi_fujieda/works/21
 
 还不是因为大部分邦邦受众除了人声旋律外听不出来器乐组的区别，除非哪位的solo呲大了
 
+
+*****
+
+####  御幸一也  
+##### 23014#       发表于 2024-9-14 13:20
+
+睦祥的神又降臨<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202409/14/132006llpp6opl77al6ulo.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_白／백🍧(@baiyuBYY)_20240913-153733_1834617421547852142_photo.jpg</strong> (251.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 13:20 上传
+
+[https://x.com/baiyuBYY/status/1834617421547852142](https://x.com/baiyuBYY/status/1834617421547852142)
+
+*****
+
+####  御幸一也  
+##### 23015#       发表于 2024-9-14 13:20
+
+ 本帖最后由 御幸一也 于 2024-9-14 13:22 编辑 
+
+今天也是ave在動畫裡的亮相一周年捏 沒想到這就熬一年了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adcdqre  
+##### 23016#       发表于 2024-9-14 13:23
+
+毕竟羊姐录音师修都修不了跟别人live比已经输了
+

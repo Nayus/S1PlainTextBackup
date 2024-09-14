@@ -9139,3 +9139,13 @@ mujica不太有这个问题，毕竟mygo动画在这个档期已经重播至少�
 
 日本人，特别是老登日本人脑回路就不属于正常人的范畴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  MASKA-1  
+##### 23030#       发表于 2024-9-14 18:28
+
+只要动画播了好看的绘就多了罢（
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -3217,3 +3217,15 @@ live开始了，演出动作连staff都好细节，至少架子鼓的动作都�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  KBAC  
+##### 5250#       发表于 2024-9-14 08:56
+
+根据一些解包佬的说法刷新出的偶像amiibo以后可以回忆大祭典广场。
+如果这个回忆功能参照初代，那估计还能点歌。
+但是初代的回忆祭典广场是没有任何互动和广场功能的，不知道三代会不会改成有实际功能的广场。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

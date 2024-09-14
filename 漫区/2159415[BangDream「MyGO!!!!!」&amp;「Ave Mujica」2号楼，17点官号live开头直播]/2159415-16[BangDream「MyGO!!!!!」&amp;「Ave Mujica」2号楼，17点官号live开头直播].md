@@ -8960,3 +8960,13 @@ https://skeb.jp/@miyabi_fujieda/works/21
 
 乐器之前就说过了，除非有非常明显的翻车不然大部分人都听不出太多问题的
 
+
+*****
+
+####  前方暴雨预警  
+##### 23013#       发表于 2024-9-14 13:08
+
+要不然说主唱是星星呢<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
+还不是因为大部分邦邦受众除了人声旋律外听不出来器乐组的区别，除非哪位的solo呲大了
+

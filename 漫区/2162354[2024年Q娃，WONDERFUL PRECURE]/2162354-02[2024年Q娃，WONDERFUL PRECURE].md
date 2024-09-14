@@ -997,3 +997,25 @@ q娃人设没有主角几个精致，果然还是剧场版限定吧
 新的周边已经开始卖大福人形了 正片登场不可避免呗<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 只能说东大妈太吃相难看
 
+
+*****
+
+####  犬飼いろは  
+##### 2212#       发表于 2024-9-14 12:18
+
+第33話　マルっとアニマルスマイル
+
+脚本：赤尾でこ
+
+演出：鬼頭和矢
+
+作画監督：北島勇樹
+
+美術：徐柱星
+
+いろは（CV.種﨑敦美）の家では、ドッグトレーナーの犬束が連れてきたウィットが剛にトリミングしてもらっていた。外のドッグランではたくさんの犬たちが遊びまわっており、その中にはトリミングを待つシーズーのモカもいた。高くて優しい「スマイルボイス」でモカを呼ぶ剛だったが、モカはおもちゃや他の犬に夢中でドッグランから出ようとしない。やがて剛はこむぎ（CV.長縄まりあ）といっしょにモカと遊び始める。そんな中、大福を連れた悟もいろはの家を訪れ、先に来ていたユキ（CV.松田颯水）、まゆ（CV.上田麗奈）といっしょに、いろはの部屋に上がり込む。そこでいろはは、剛がトリマーになったきっかけを母の陽子に聞く。剛は出会ったときからトリマーを目指していた、と話す陽子。しかし太くて低い声のため、あまり動物たちがなついてくれないという剛に、陽子がアドバイスをする。
+<img src="https://files.catbox.moe/2bj8ts.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/zd08qn.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/ftdkyq.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/zg4qo3.jpg" referrerpolicy="no-referrer">
+

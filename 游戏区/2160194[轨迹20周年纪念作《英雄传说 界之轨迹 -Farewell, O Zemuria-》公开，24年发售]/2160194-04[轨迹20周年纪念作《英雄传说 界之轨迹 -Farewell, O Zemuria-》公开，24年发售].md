@@ -2047,3 +2047,21 @@ mk2那个经理感觉和曹是一个定位的，结果一直被挤压的没什�
 
 没活了，挤牙膏
 
+
+*****
+
+####  一步成诗  
+##### 4647#       发表于 2024-9-14 08:36
+
+死去的pv可以盖棺了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ravend233  
+##### 4648#       发表于 2024-9-14 08:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然也不是不可能下周发PV，但是只剩一周确实不知道有啥用了
+
+快进到TGS发PV
+

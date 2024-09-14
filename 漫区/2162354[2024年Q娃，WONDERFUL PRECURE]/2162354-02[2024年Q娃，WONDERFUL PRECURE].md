@@ -988,3 +988,12 @@ q娃人设没有主角几个精致，果然还是剧场版限定吧
 
 个人评价是完全没有买蓝光的价值
 
+
+*****
+
+####  粉儿alice  
+##### 2211#       发表于 2024-9-14 11:55
+
+新的周边已经开始卖大福人形了 正片登场不可避免呗<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+只能说东大妈太吃相难看
+

@@ -523,3 +523,17 @@ An unsafe railgun shot will deal 1500/562.5 (damage/durable). For reference a co
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当初多桀骜不驯，现在全面滑跪就多小丑，真的会有人原谅这滑稽小丑吗
 
+
+*****
+
+####  九十九忍  
+##### 5368#       发表于 2024-9-14 21:48
+
+游戏盘不缺空间但这我看得真想卸载了，
+
+骂没用，劝没用，在线触底立刻像条蛆一样把自己喷的屎舔回去了，
+
+然后一看发个战备还是要跟你们讨价还价一样下指标，
+
+一肚子怨气跟玩家土下座呢，以后保准还要加倍贱回来
+

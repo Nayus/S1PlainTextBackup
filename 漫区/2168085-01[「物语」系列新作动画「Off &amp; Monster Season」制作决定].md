@@ -333,3 +333,88 @@ Blu-ray&amp;DVD
 
 2024-9-14 21:36 上传
 
+
+*****
+
+####  Piano-Forest  
+##### 896#         楼主| 发表于 2024-9-14 21:51
+
+YOASOBI「UNDEAD」 Official Music Video／『〈物語〉シリーズ オフ&amp;モンスターシーズン』主題歌：
+[https://youtu.be/Jj1_mfUzjOs](https://youtu.be/Jj1_mfUzjOs)
+
+[https://x.com/dshino/status/1834949492015349968](https://x.com/dshino/status/1834949492015349968)
+
+【〈物語〉シリーズ オフ＆モンスターシーズン】
+
+YOASOBI「UNDEAD」MVを監督いたしました。
+
+大好きな #物語シリーズ    と今まで2本MVを作ってきたYOASOBIさんの取り組みに
+
+自分も参加できて嬉しさしかありません！
+
+大好きを全開で作らさせていただきました！！！
+
+物語シリーズ、madogatari展から関わってきて業物語のプロモ、西尾維新大辞展、そしてこんな未来あるとは・・・！！！
+
+今回も堀内さん@CEOmadoka率いる .MP さん@_dotMPに全面参加でデザイン沢山作ってもらいました！
+
+もはや、異次元TOKYO×.MPという感じで制作いたしました！！！
+
+モーショングラフィック / オフラインは立松さん@ttmXXXXXゴリゴリやってくれました。
+
+3DCGシーンはyonayona graphicsさん@traftratra、
+
+大きな方向性はお願いしつつ
+
+ヨナさんのシーンはヨナグラスペシャルと
+
+ざっくり指示出すくらいな感じでヨナさんに好き勝手やってもらいました！！！
+
+是非見てください！！！✌️✌️
+
+「UNDEAD」MV staff 
+
+ディレクター
+
+篠田 利隆(異次元TOKYO)
+
+プロデューサー
+
+大久保“ゆーきっす”優樹(異次元TOKYO)@youkiss_zmen
+
+プロダクションマネージャー
+
+胡桃沢 まひる(異次元TOKYO)@lunch_mahiru
+
+モーショングラフィック / オフライン
+
+立松 夏奈(異次元TOKYO)@ttmXXXXX
+
+アートディレクター/デザイン
+
+堀内 秀(.MP)@CEOmadoka
+
+デザイン
+
+MUNIKU(.MP)@muniku_M9
+
+PM
+
+金山 未季(.MP)@micchan_mikkiki
+
+CGArtist
+
+yonayona graphics @traftratra
+
+オンライン / コンポジット
+
+尾熊 貴之 @OGUMAX1/ 藤木 智次郎(DTJ)
+
+オンラインアシスタント
+
+ウォンプアク・マタヴィー(DTJ)
+
+MV制作
+
+異次元TOKYO @ijigentokyo
+

@@ -8909,3 +8909,42 @@ https://skeb.jp/@miyabi_fujieda/works/21
 
 别扯其他企划了，虽然好像你楼几乎没提那啥都上了鲜血追猎名单就是了。
 
+
+*****
+
+####  星天观测  
+##### 23007#       发表于 2024-9-14 11:16
+
+别在专楼塔塔开咯，屎黄论坛都呼吁要打去走廊或者z8打呢<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Toki_Ai  
+##### 23008#       发表于 2024-9-14 11:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问题不大，血雨腥风还得是到时候对邦，那才是TTK，YZMTTK
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+
+*****
+
+####  stygian  
+##### 23009#       发表于 2024-9-14 11:19
+
+你看我就知道没人车乐器<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 23010#       发表于 2024-9-14 11:20
+
+对邦会专门开贴的，去对邦贴腥风血雨吧<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 23011#       发表于 2024-9-14 11:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">车什么乐器？编曲都是一坨了
+还有轻点车青木，我是青木gachi看不得这个
+

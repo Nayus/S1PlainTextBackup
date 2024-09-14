@@ -213,3 +213,32 @@ Blu-ray&amp;DVD
 
 2024-9-14 10:28 上传
 
+
+*****
+
+####  八雲みたま  
+##### 887#       发表于 2024-9-14 11:17
+
+连休期间做不完(物语)被迫加班的伊藤良明(60+)
+
+<img src="https://img.saraba1st.com/forum/202409/14/111601gff0fcm9fic1cncq.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240914_111349_com.twitter.android.png</strong> (93.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 11:16 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Junglemgs  
+##### 888#       发表于 2024-9-14 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66201577&amp;ptid=2168085" target="_blank">oi99o 发表于 2024-9-14 10:28</a>
+
+不是吧，巴哈，这么拉的吗</blockquote>
+这不是因为沙发套不能按时提早做完吗
+

@@ -9294,3 +9294,11 @@ mujica不太有这个问题，毕竟mygo动画在这个档期已经重播至少�
 
 重视纪念日这一点能不能逆输入进动画<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 23044#       发表于 2024-9-15 19:36
+
+李茜能不能逆输入进初喵<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+

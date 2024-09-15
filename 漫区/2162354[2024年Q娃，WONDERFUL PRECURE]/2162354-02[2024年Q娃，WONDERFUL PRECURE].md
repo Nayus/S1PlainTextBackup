@@ -1044,3 +1044,23 @@ q娃人设没有主角几个精致，果然还是剧场版限定吧
 只能说东大妈太吃相难看 ...</blockquote>
 虽然但是，兔组的周边真的卖的比犬组好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 2215#       发表于 2024-9-14 13:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66202505&amp;ptid=2162354" target="_blank">粉儿alice 发表于 2024-9-14 11:55</a>
+
+新的周边已经开始卖大福人形了 正片登场不可避免呗
+
+只能说东大妈太吃相难看 ...</blockquote>
+虽然但是，兔组的周边真的卖的比犬组好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  himfsz  
+##### 2216#       发表于 2024-9-15 07:55
+
+看到小雪不由得想起シオぽよ
+

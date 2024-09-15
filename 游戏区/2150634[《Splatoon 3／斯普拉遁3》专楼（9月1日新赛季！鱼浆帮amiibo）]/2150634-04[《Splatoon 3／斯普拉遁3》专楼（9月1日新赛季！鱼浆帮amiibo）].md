@@ -4133,3 +4133,20 @@ https://www.youtube.com/watch?v=0meUrcUszJw 三色的未来版最后一分钟是
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Ryuuseigun  
+##### 5326#       发表于 2024-9-16 00:49
+
+未来派的三色应该是领先的，选了未来三色打了十万多贡献没一把内战
+
+*****
+
+####  罗克萨斯  
+##### 5327#       发表于 2024-9-16 00:50
+
+是不是最终祭典不好说，装备肯定是不会上新了，可以安心做毕业套了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

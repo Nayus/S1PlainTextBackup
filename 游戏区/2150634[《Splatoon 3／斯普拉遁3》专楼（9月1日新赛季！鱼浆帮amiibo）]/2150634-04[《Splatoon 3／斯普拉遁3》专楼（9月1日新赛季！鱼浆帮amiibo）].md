@@ -4314,3 +4314,18 @@ NS运动是EPD4做的，喷是EPD5，跨组都算数的话，咋不直接说隔�
 
 跟昨天还在楼里”cnm研究所“操得飞起，今天说”现在咄咄逼人个什么劲“，而且比起做功课更喜欢扣鹅的确实没有太多共同话题可聊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KBAC  
+##### 5341#       发表于 2024-9-16 02:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66217367&amp;ptid=2150634" target="_blank">raii 发表于 2024-9-16 02:45</a>
+
+跟昨天还在楼里”cnm研究所“操得飞起，今天说”现在咄咄逼人个什么劲“，而且比起做功课更喜欢扣鹅的确实 ...</blockquote>
+你是任天堂EPD5员工？还是这楼里真有？
+
+那我可得和正在看这栋楼的EPD5员工道歉，我是针对把我想听的歌删了的人的，不是针对你，非常对不起（鞠躬）。
+
+而扣你鹅，是因为你明显是想大半夜找人吵架，而没有人会大半夜找人吵架。
+

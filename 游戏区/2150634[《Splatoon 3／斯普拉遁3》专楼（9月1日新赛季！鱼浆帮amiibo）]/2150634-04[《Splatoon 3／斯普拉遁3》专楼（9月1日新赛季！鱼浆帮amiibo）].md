@@ -3779,3 +3779,13 @@ https://www.nintendo.com/jp/in ...</blockquote>
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  KBAC  
+##### 5296#       发表于 2024-9-15 18:42
+
+过去派看样子人还挺多，三色基本上一半是内战。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

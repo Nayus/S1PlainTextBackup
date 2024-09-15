@@ -3439,3 +3439,28 @@ live开始了，演出动作连staff都好细节，至少架子鼓的动作都�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  KBAC  
+##### 5269#       发表于 2024-9-15 08:18
+
+<img src="https://img.saraba1st.com/forum/202409/15/081800xfiylofof4pfuzyo.jpg" referrerpolicy="no-referrer">
+
+<strong>img_0338.jpg</strong> (137.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 08:18 上传
+
+今天在VIP席
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  liliguo1  
+##### 5270#       发表于 2024-9-15 08:19
+
+这夜场联合live，爽到了
+

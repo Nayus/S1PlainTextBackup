@@ -4177,3 +4177,15 @@ https://www.youtube.com/watch?v=0meUrcUszJw 三色的未来版最后一分钟是
 没必要扣最终的字眼，这场祭典摆明了就是决定4代主题，那叫什么根本不重要，实质上就是和1代2代的最终祭典 ...</blockquote>
 几乎铁定有第二贴牌武器的，地图、机制什么的应该就没新的了
 
+
+*****
+
+####  KBAC  
+##### 5331#       发表于 2024-9-16 01:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66216874&amp;ptid=2150634" target="_blank">yanglian72 发表于 2024-9-16 00:57</a>
+没必要扣最终的字眼，这场祭典摆明了就是决定4代主题，那叫什么根本不重要，实质上就是和1代2代的最终祭典 ...</blockquote>
+老任的宣发字眼里大部分情况是真能扣出东西的。按以前的经验真到最终了老任会明确说的，偏偏这次不说。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

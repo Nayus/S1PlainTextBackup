@@ -3544,3 +3544,29 @@ live开始了，演出动作连staff都好细节，至少架子鼓的动作都�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  KBAC  
+##### 5277#       发表于 2024-9-15 10:46
+
+刚刚连赢两次100倍<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  墨染白泉  
+##### 5278#       发表于 2024-9-15 10:53
+
+<img src="https://img.saraba1st.com/forum/202409/15/105259mu4fuz31nnf8n4s3.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1726368772809.jpg</strong> (169.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 10:52 上传
+
+要见证+99了
+

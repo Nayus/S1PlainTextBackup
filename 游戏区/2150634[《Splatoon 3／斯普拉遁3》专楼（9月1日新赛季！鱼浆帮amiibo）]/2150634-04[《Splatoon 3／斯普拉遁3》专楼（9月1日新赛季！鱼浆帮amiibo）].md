@@ -3902,3 +3902,14 @@ https://www.nintendo.com/jp/in ...</blockquote>
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  raii  
+##### 5307#       发表于 2024-9-15 22:01
+
+[https://www.youtube.com/watch?v=0meUrcUszJw](https://www.youtube.com/watch?v=0meUrcUszJw) 三色的未来版最后一分钟是鱼浆帮的完全新曲，其乐曲动机和之前的任何一首都不同，埋伏笔了？
+
+[https://www.youtube.com/watch?v=pXhGlGjtXvA](https://www.youtube.com/watch?v=pXhGlGjtXvA) 顺便一说这是过去版，用的是1代的祭典战斗曲
+[https://www.youtube.com/watch?v=Xv62LIn7288](https://www.youtube.com/watch?v=Xv62LIn7288)这是现在版，2代的
+

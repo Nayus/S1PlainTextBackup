@@ -4044,3 +4044,38 @@ https://www.youtube.com/watch?v=0meUrcUszJw 三色的未来版最后一分钟是
 
 要是听玩家做游戏那就不是任天堂了（好坏意义上都是）
 
+
+*****
+
+####  Junchoon  
+##### 5319#       发表于 2024-9-16 00:12
+
+最近工作太忙，就今天玩了2小时，好亏......
+
+这就是最后的祭奠了？
+
+
+*****
+
+####  Pumpkin_ccc  
+##### 5320#       发表于 2024-9-16 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66216397&amp;ptid=2150634" target="_blank">Junchoon 发表于 2024-9-16 00:12</a>
+
+最近工作太忙，就今天玩了2小时，好亏......
+
+这就是最后的祭奠了？</blockquote>
+最后一次更新期的祭典吧，顺便有可能决定未来作品的走向，之后还开不开祭典复刻就不知道了
+
+
+*****
+
+####  shirolin  
+##### 5321#       发表于 2024-9-16 00:17
+
+其实吧，到现在这个时刻，
+官方依然一个字都没提到这是最终祭典。
+但是种种迹象让绝大部分玩家都认为这就是最终祭典。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

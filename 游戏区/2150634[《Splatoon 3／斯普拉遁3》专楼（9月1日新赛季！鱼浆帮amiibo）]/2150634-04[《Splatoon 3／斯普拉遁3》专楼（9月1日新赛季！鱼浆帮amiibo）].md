@@ -4329,3 +4329,17 @@ NS运动是EPD4做的，喷是EPD5，跨组都算数的话，咋不直接说隔�
 
 而扣你鹅，是因为你明显是想大半夜找人吵架，而没有人会大半夜找人吵架。
 
+
+*****
+
+####  KBAC  
+##### 5342#       发表于 2024-9-16 03:02
+
+ 本帖最后由 KBAC 于 2024-9-16 03:06 编辑 
+
+上舞台拍正面合照好难...离远了模糊，离近了把偶像挡了。
+
+抬高视点4个人还都是带鸭舌帽的，全员无脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+感觉加个拍照时移除偶像（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）的功能就好了，想拍纯4个人的正脸太难了。
+

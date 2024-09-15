@@ -2423,3 +2423,20 @@ edit
 
 就是美术没人了啊不仅2d岌岌可危连3d都受到影响，分镜设计这些也没什么人做的样子
 
+
+*****
+
+####  椎名mahuyo  
+##### 4687#       发表于 2024-9-15 11:12
+
+这些东西就得人力堆，要黑字舍不得花钱是这样的
+
+—— 来自 realme RMX3708, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  空气先生  
+##### 4688#       发表于 2024-9-15 11:12
+
+希望这一部真的能小成本发挥出让轨迹粉丝满意的结果吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">肉眼可见的摆
+

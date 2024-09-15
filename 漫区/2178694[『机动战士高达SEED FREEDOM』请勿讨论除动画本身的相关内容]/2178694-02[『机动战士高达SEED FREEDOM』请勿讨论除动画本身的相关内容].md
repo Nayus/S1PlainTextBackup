@@ -65,3 +65,15 @@
 
 —— 来自 OnePlus PHB110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  死难者23er  
+##### 1948#       发表于 2024-9-15 14:49
+
+<blockquote>pandaman7777 发表于 2024-9-15 00:57
+才刚补完下载版，这是有新版又要再上映圈一波？
+
+—— 来自 OnePlus PHB110, Android 14上的 S1Next-鹅版 v ...</blockquote>
+是的，而且明确告诉你，这次新的剧情是不会放在BD里，一定要去电影院看
+

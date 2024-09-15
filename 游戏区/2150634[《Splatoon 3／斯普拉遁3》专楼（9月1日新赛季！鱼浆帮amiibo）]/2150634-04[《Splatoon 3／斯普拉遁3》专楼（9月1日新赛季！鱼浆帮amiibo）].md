@@ -3942,3 +3942,11 @@ https://www.youtube.com/watch?v=0meUrcUszJw 三色的未来版最后一分钟是
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  绿冰  
+##### 5311#         楼主| 发表于 2024-9-15 22:44
+
+对了，明天各位记得8到10点进游戏听散场曲的舞台演出，这算是这次大型祭典时间最短的了233
+

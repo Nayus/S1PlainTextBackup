@@ -3582,3 +3582,36 @@ live开始了，演出动作连staff都好细节，至少架子鼓的动作都�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Ollie  
+##### 5280#       发表于 2024-9-15 12:03
+
+今天总算没有昨天那么战犯了，还赢了百倍。上神轿看三代偶像live挺感动的，明明有大半年没碰了。
+
+
+*****
+
+####  Dedalus  
+##### 5281#       发表于 2024-9-15 12:07
+
+居然是过去赢中场...也还好？
+作为二代秩序派一直对三代混乱风格的美术很失望，直到出了DLC才和解，原来秩序的世界研究所做的更丑<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">一想到如果未来派赢了四代又是这种廉价未来风就头皮发麻
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  KBAC  
+##### 5282#       发表于 2024-9-15 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66209171&amp;ptid=2150634" target="_blank">绿冰 发表于 2024-9-15 00:39</a>
+铁定明天的啊，这歌已经是腕儿姐妹的代表曲了，怎么可能混在普通曲子里 ...</blockquote>
+解包的时候就发现没有了。
+这一点让我非常生气，三色最后一分钟
+会播也治不好的生气，因为我只想听原曲。
+潮色还比其他偶像少一首祭典战斗曲，明明还有一首盐辛节也在初代的祭典对战里放过。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

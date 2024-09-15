@@ -2486,3 +2486,25 @@ edit
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  whzfjk  
+##### 4694#       发表于 2024-9-15 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66211001&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-15 11:47</a>
+
+这年头做单机游戏，你选择和手游卷卖角色的时候你就已经死了你能比手游提供更多更多样化的老婆老公情绪价值 ...</blockquote>
+手游现在为了每 42 天就卖一匹角色，剧本写作已经到了不可名状的地步了。单机的优势就是有限的角色阵容搭配完整的人物弧光。
+
+*****
+
+####  ravend233  
+##### 4695#       发表于 2024-9-15 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66211097&amp;ptid=2160194" target="_blank">whzfjk 发表于 2024-9-15 12:01</a>
+手游现在为了每 42 天就卖一匹角色，剧本写作已经到了不可名状的地步了。单机的优势就是有限的角色阵容搭 ...</blockquote>
+手游一个半月一更需要的剧本团队是好几十号人，四五个人一个小组连轴转，就这样还要高强度加班把文案当消耗品用，你单机和这玩意比纯纯脑子有史<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">属于放弃自己优势去和别人最有优势的地方比
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

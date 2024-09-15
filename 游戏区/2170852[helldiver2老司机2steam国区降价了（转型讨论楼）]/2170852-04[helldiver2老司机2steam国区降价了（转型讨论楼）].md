@@ -566,3 +566,13 @@ An unsafe railgun shot will deal 1500/562.5 (damage/durable). For reference a co
 <img src="https://p.sda1.dev/19/40f1ccaef46b49b294caeab94e6be6c3/CMP_20240915214922474.jpg" referrerpolicy="no-referrer">
 电弧增加到55米并增加跳跃次数，更容易杀死队友<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风萧飒  
+##### 5371#       发表于 2024-9-15 22:32
+
+防电甲更好卖了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

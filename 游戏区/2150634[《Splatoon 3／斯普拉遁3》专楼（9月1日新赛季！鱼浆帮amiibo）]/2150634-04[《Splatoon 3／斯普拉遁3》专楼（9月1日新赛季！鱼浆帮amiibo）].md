@@ -3876,3 +3876,19 @@ https://www.nintendo.com/jp/in ...</blockquote>
 输了333，顿时感觉前两天白打</blockquote>
 打了八次百倍，赢了五把，队友拔线一把，但因为输了333相当于没打😭
 
+
+*****
+
+####  墨染白泉  
+##### 5305#       发表于 2024-9-15 21:40
+
+<img src="https://img.saraba1st.com/forum/202409/15/213948wp8q5qhf6iii5wqw.jpg" referrerpolicy="no-referrer">
+
+<strong>2024091521275700-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (205.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 21:39 上传
+
+给这两年画上一个句号
+

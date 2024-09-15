@@ -3713,3 +3713,11 @@ live开始了，演出动作连staff都好细节，至少架子鼓的动作都�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  墨染白泉  
+##### 5291#       发表于 2024-9-15 16:36
+
+输了333，顿时感觉前两天白打<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

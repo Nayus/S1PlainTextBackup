@@ -77,3 +77,13 @@
 —— 来自 OnePlus PHB110, Android 14上的 S1Next-鹅版 v ...</blockquote>
 是的，而且明确告诉你，这次新的剧情是不会放在BD里，一定要去电影院看
 
+
+*****
+
+####  软软人  
+##### 1949#       发表于 2024-9-15 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66195801&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-9-13 17:08</a>
+高达seed的剧场版特别版首映我中了去见保志总一郎和桑岛法子了</blockquote>
+啊啊啊羡慕，我很喜欢他俩！沉默的未知里他俩配一脸！
+

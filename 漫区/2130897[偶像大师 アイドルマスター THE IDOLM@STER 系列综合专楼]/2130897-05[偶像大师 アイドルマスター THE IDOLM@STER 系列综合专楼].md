@@ -369,3 +369,67 @@ vlcsnap-2024-09-14-19h00m33s509.jpg
 
 2024-9-15 01:51 上传
 
+
+*****
+
+####  wfhtony  
+##### 6383#       发表于 2024-9-15 16:37
+
+今天的役割：
+
+<img src="https://img.saraba1st.com/forum/202409/15/163719m0ob20w43251b5rb.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-16h35m25s001.jpg</strong> (300.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 16:37 上传
+
+<img src="https://img.saraba1st.com/forum/202409/15/163719qwl73wvsos07ww66.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-16h35m29s872.jpg</strong> (270.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 16:37 上传
+
+<img src="https://img.saraba1st.com/forum/202409/15/163720pm8cnzcqsonho544.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-16h35m35s844.jpg</strong> (275.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 16:37 上传
+
+<img src="https://img.saraba1st.com/forum/202409/15/163721dbb3cbbbme34g4bt.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-16h35m41s515.jpg</strong> (285.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 16:37 上传
+
+<img src="https://img.saraba1st.com/forum/202409/15/163721r3chh98u5dvmfofi.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-16h35m47s455.jpg</strong> (291.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 16:37 上传
+
+<img src="https://img.saraba1st.com/forum/202409/15/163722vde7bbydlowpsyok.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-16h35m53s093.jpg</strong> (275.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 16:37 上传
+
+<img src="https://img.saraba1st.com/forum/202409/15/163723sj34bvg5vls2e2ko.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-16h35m59s102.jpg</strong> (311.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 16:37 上传
+

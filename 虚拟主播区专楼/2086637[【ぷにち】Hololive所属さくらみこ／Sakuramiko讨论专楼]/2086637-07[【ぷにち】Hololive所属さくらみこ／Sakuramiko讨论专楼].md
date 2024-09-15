@@ -9403,3 +9403,45 @@ hololive的牌子在山上
 
 18号（二日目）开始准备news
 
+
+*****
+
+####  holoan  
+##### 9670#         楼主| 发表于 2024-9-15 20:43
+
+ 本帖最后由 holoan 于 2024-9-15 20:54 编辑 
+
+<img src="https://img.saraba1st.com/forum/202409/15/204344ct71711lb89qvsse.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (59.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 20:43 上传
+
+<img src="https://img.saraba1st.com/forum/202409/15/205355dnogjohjcs7dodgo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (403.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 20:53 上传
+
+*****
+
+####  holoan  
+##### 9671#         楼主| 发表于 2024-9-15 21:01
+
+ID也几乎全员宣布参战了
+
+看来语言不是大问题了
+
+*****
+
+####  holoan  
+##### 9672#         楼主| 发表于 2024-9-15 21:03
+
+目前为止宣布确定职种的人看起来好象是警察侧比较多
+
+但考虑到实际上参加人数还有很多还有警察内部也还有不确定性
+

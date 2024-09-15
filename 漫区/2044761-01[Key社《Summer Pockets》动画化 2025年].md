@@ -714,3 +714,11 @@ PV1：[https://youtu.be/x3_Pcru8SS8](https://youtu.be/x3_Pcru8SS8)
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">还行，比能动还好上一些
 
+
+*****
+
+####  wolf1997  
+##### 58#       发表于 2024-9-15 20:22
+
+还是熟悉的大塚舞脸，总体来说还是能看出feel下了资源的，做半年番是基本的，就看篇幅分配。以后可能有机会将RB部分动画化
+

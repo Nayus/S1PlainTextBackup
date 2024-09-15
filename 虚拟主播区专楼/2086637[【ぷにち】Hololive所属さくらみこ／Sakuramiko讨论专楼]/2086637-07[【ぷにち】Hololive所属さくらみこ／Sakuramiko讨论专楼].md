@@ -9355,3 +9355,51 @@ hololive的牌子在山上
 
 你别做警察了
 
+
+*****
+
+####  holoan  
+##### 9667#         楼主| 发表于 2024-9-15 20:08
+
+难怪需要半个月以上的企划测试时间，不仅JP还有ENID的成员需要熟悉游戏界面操作磨合，而且按fbk刚才的推来看她们在内测阶段基本把自己要做的职种的操作都体验过一遍了
+
+*****
+
+####  holoan  
+##### 9668#         楼主| 发表于 2024-9-15 20:14
+
+<img src="https://img.saraba1st.com/forum/202409/15/201350w13y6gwzazwptpzw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (65.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 20:13 上传
+
+感谢STGR运营，真的
+
+*****
+
+####  holoan  
+##### 9669#         楼主| 发表于 2024-9-15 20:19
+
+<img src="https://img.saraba1st.com/forum/202409/15/201729jqr74zsv4yyzhptv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (28.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 20:17 上传
+
+直接以企划的名义获得R星官方直接授权许可以及最重要的收益化（在这之前虽然可以直播GTA但是一定要关收益化）
+
+<img src="https://img.saraba1st.com/forum/202409/15/201857rilarr9fai0tynny.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (22.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 20:18 上传
+
+18号（二日目）开始准备news
+

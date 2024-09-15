@@ -3797,3 +3797,15 @@ https://www.nintendo.com/jp/in ...</blockquote>
 
 祭典可以不穿祭典衣服打吗？ 我被隐形墨鱼阴死多次 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KBAC  
+##### 5298#       发表于 2024-9-15 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66213802&amp;ptid=2150634" target="_blank">mono 发表于 2024-9-15 19:42</a>
+祭典可以不穿祭典衣服打吗？ 我被隐形墨鱼阴死多次</blockquote>
+祭典T恤的大技能和普通衣服一样可以换啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

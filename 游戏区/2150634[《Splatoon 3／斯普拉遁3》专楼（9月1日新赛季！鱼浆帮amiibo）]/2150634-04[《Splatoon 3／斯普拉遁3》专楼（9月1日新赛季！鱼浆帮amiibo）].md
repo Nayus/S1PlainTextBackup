@@ -3510,3 +3510,37 @@ live开始了，演出动作连staff都好细节，至少架子鼓的动作都�
 
 过去居然断层中期领先，感觉现在不稳了，靠三色扳得回来？
 
+
+*****
+
+####  罗克萨斯  
+##### 5276#       发表于 2024-9-15 10:28
+
+可算是让我遇到一次百倍了，血C拿下<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202409/15/102822cx3ms2xl3fbfx6fm.jpg" referrerpolicy="no-referrer">
+
+<strong>2024091510192500-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (422.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 10:28 上传
+
+<img src="https://img.saraba1st.com/forum/202409/15/102822k83vv4z3jh3aamii.jpg" referrerpolicy="no-referrer">
+
+<strong>2024091510195600-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (246.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 10:28 上传
+
+<img src="https://img.saraba1st.com/forum/202409/15/102822gzr895j0t0jggdgo.jpg" referrerpolicy="no-referrer">
+
+<strong>2024091510261100-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (353.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 10:28 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

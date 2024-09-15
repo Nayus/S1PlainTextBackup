@@ -2415,3 +2415,11 @@ edit
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">黎牢师这个新S光堆书法也没什么新意
 
+
+*****
+
+####  一步成诗  
+##### 4686#       发表于 2024-9-15 10:56
+
+就是美术没人了啊不仅2d岌岌可危连3d都受到影响，分镜设计这些也没什么人做的样子
+

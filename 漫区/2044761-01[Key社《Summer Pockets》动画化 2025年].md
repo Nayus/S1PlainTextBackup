@@ -758,3 +758,11 @@ feel下资源只能到这水平吗<img src="https://static.saraba1st.com/image/s
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  没取名啊  
+##### 63#       发表于 2024-9-15 22:20
+
+鸥的声音还不错，没润屋剧场版里大桥彩香那么差异明显
+

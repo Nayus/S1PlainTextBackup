@@ -3921,3 +3921,24 @@ https://www.nintendo.com/jp/in ...</blockquote>
 
 <img src="https://p.sda1.dev/19/20c67cdfaa23da1b5539ed1e1d5674dc/CMP_20240915220759919.jpg" referrerpolicy="no-referrer">肝神出现了
 
+
+*****
+
+####  绿冰  
+##### 5309#         楼主| 发表于 2024-9-15 22:16
+
+<blockquote>raii 发表于 2024-9-15 22:01
+https://www.youtube.com/watch?v=0meUrcUszJw 三色的未来版最后一分钟是鱼浆帮的完全新曲，其乐曲动机和之 ...</blockquote>
+我还以为是我乐感太差了，原来真的不是现有的歌吗
+
+
+*****
+
+####  KBAC  
+##### 5310#       发表于 2024-9-15 22:21
+
+我仍然觉得新机会首先上一个更新画面并追加大量前作内容的喷3DX，而不是喷4。
+不过不管他新机推出什么作品，广场这次总该是60帧的了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

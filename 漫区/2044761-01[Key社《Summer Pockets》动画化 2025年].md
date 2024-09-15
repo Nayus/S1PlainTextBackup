@@ -775,3 +775,13 @@ feel下资源只能到这水平吗<img src="https://static.saraba1st.com/image/s
 总感觉这白羽声音有点藤原千花味
 只能说也过了六七年了，没办法的事情<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  电棍  
+##### 65#       发表于 2024-9-16 01:37
+
+画风整体偏幼，嗨梨人设不错，紬看起来比较廉价且有点唐（瞳距是不是有点问题），其他的都算差强人意吧。听说动画op做得很不错，希望正片演出别太拉胯了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

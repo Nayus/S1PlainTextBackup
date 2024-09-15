@@ -4189,3 +4189,25 @@ https://www.youtube.com/watch?v=0meUrcUszJw 三色的未来版最后一分钟是
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  raii  
+##### 5332#       发表于 2024-9-16 01:40
+
+不说是因为还会有复刻就像目录一样
+
+别想当然以为还会有内容型更新啊，一次性买断制6578元，就这点钱玩两年了还想再来一年啊？
+
+再说了这车站写的什么忘了？
+
+<img src="https://img.saraba1st.com/forum/202409/16/013926t16xy1lethuelh06.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (49.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-16 01:39 上传
+
+ありがとう you いつかまた どこかで
+

@@ -3698,3 +3698,18 @@ live开始了，演出动作连staff都好细节，至少架子鼓的动作都�
 会播也治不好的生气，因为我只想听原曲。 ...</blockquote>
 在三色的最后一分钟里，非常明显，这条究极混沌的音乐里藏了很多
 
+
+*****
+
+####  KBAC  
+##### 5290#       发表于 2024-9-15 14:03
+
+ 本帖最后由 KBAC 于 2024-9-15 14:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66211713&amp;ptid=2150634" target="_blank">绿冰 发表于 2024-9-15 13:46</a>
+在三色的最后一分钟里，非常明显，这条究极混沌的音乐里藏了很多</blockquote>
+三色的我早就听到了。
+可以直接在常规对战放的常规祭典曲非要藏，还是唯一一首没放的，我非常不满意，因为我就是为了这盘醋来的。
+借X上某个网友的话，播放列表里没有这首歌简直是犯罪。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

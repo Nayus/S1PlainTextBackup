@@ -706,3 +706,11 @@ PV1：[https://youtu.be/x3_Pcru8SS8](https://youtu.be/x3_Pcru8SS8)
 浜田洋平：加納天善
 <img src="https://p.sda1.dev/19/c4260bed60a596c7ca2512d1df2ad87e/kv01 _1_.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Earendil_C  
+##### 57#       发表于 2024-9-15 19:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">还行，比能动还好上一些
+

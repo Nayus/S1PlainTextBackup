@@ -3817,3 +3817,52 @@ https://www.nintendo.com/jp/in ...</blockquote>
 
 感觉过去这次应该赢了，虽然算1代开服玩家，但是这次叛变到未来，主要还是希望喷喷下一代做更好，不过过去赢了也不会后悔就是了。还有就是官方那个"過"字真的很像某些书法里的“禍”字.
 
+
+*****
+
+####  raii  
+##### 5300#       发表于 2024-9-15 20:49
+
+<img src="https://img.saraba1st.com/forum/202409/15/204846i2rcikuxrie556us.jpg" referrerpolicy="no-referrer">
+
+<strong>2024091518563900-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (290.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 20:48 上传
+
+<img src="https://img.saraba1st.com/forum/202409/15/204930hpr6ide77w76krud.jpg" referrerpolicy="no-referrer">
+
+<strong>2024091510345300-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (291.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 20:49 上传
+
+拍到了神奇的时刻
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 5301#       发表于 2024-9-15 20:49
+
+上神轿拍了点照片，真感慨啊2年就这么过去了，对这个游戏再不满也突然烟消云散了，选的现在希望过去赢
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  实津二三  
+##### 5302#       发表于 2024-9-15 20:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">虽然只玩过2和3但是选了过去，在两部游戏的剧情模式里对初代偶像的印象还是很深刻的……
+
+*****
+
+####  墨染白泉  
+##### 5303#       发表于 2024-9-15 20:54
+
+<blockquote>mono 发表于 2024-9-15 19:42
+祭典可以不穿祭典衣服打吗？ 我被隐形墨鱼阴死多次</blockquote>
+可以自己改大技能，而且要的碎片很少
+

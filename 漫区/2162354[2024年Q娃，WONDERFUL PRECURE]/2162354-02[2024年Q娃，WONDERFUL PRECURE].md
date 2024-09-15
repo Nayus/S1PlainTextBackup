@@ -1113,3 +1113,11 @@ q娃人设没有主角几个精致，果然还是剧场版限定吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">尼克出来以后就天天niconico，除了彰显尼克天然黑，实在感受不到作为己方大佬的可靠啊
 
+
+*****
+
+####  66367749  
+##### 2223#       发表于 2024-9-15 20:47
+
+大福声音这么粗的吗<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+

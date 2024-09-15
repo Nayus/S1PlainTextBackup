@@ -3623,3 +3623,27 @@ live开始了，演出动作连staff都好细节，至少架子鼓的动作都�
 
 原来最后一天的舞台是这样，真的是太酷炫了
 
+
+*****
+
+####  罗克萨斯  
+##### 5284#       发表于 2024-9-15 12:30
+
+看到有人利用BUG跑到舞台中央拍照了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  KBAC  
+##### 5285#       发表于 2024-9-15 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66211303&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-9-15 12:30</a>
+看到有人利用BUG跑到舞台中央拍照了
+
+—— 来自 S1Fun</blockquote>
+有卡Bug教程，BV13utweXEbG
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -9228,3 +9228,37 @@ mujica不太有这个问题，毕竟mygo动画在这个档期已经重播至少�
 
 再熬熬日子就到了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 23039#       发表于 2024-9-15 11:42
+
+她們真的超愛，1週年紀念還團建了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202409/15/114157zxcc29cdzxwac25a.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20240915-034000_1835161621532229994_photo-0.jpg</strong> (478.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 11:41 上传
+
+<img src="https://img.saraba1st.com/forum/202409/15/114237k81l0i0ccjb0zi0j.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20240915-034000_1835161621532229994_photo-1.jpg</strong> (743.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 11:42 上传
+
+<img src="https://img.saraba1st.com/forum/202409/15/114245zt9tpppoildz99b7.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20240915-034000_1835161621532229994_photo-2.jpg</strong> (671.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 11:42 上传
+
+[https://x.com/Kanon_Takao/status/1835161621532229994](https://x.com/Kanon_Takao/status/1835161621532229994)
+

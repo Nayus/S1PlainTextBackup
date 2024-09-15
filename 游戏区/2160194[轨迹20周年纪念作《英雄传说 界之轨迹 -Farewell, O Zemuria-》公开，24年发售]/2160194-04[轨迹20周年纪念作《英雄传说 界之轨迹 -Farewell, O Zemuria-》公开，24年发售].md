@@ -2468,3 +2468,21 @@ edit
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  卢迪克  
+##### 4692#       发表于 2024-9-15 11:44
+
+你法社不都承认做轨迹就像做一款手游，不就一直往里面加角色。要不是做手游卷不过早就去搞了
+
+
+*****
+
+####  ravend233  
+##### 4693#       发表于 2024-9-15 11:47
+
+这年头做单机游戏，你选择和手游卷卖角色的时候你就已经死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你能比手游提供更多的老婆老公情绪价值吗，做不到的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

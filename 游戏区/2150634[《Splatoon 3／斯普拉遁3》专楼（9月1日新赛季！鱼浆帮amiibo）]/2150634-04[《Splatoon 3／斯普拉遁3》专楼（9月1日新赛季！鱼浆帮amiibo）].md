@@ -4009,3 +4009,38 @@ https://www.youtube.com/watch?v=0meUrcUszJw 三色的未来版最后一分钟是
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Pumpkin_ccc  
+##### 5317#       发表于 2024-9-16 00:03
+
+居然三个人打赢了挑战的100倍，最后阶段发了疯的涂<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+捕获.PNG
+(605.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-16 00:02 上传
+
+<img src="https://img.saraba1st.com/forum/202409/16/000225vlclkcl8j5835j45.png" referrerpolicy="no-referrer">
+
+捕获01.PNG
+(943.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-16 00:02 上传
+
+<img src="https://img.saraba1st.com/forum/202409/16/000225uv1wrquu3jr1ra3h.png" referrerpolicy="no-referrer">
+
+*****
+
+####  raii  
+##### 5318#       发表于 2024-9-16 00:04
+
+投票只是个由头，研究所实际上是想做啥就做啥的，核心玩法（比如3代啥都想凑3但是武器偏偏不出第3套配装）还是他们自己决定。祭典更多是关于主题和世界观的指导，比如想先看到什么样的故事，对美术音乐和剧情之类的影响才大一些
+
+要是听玩家做游戏那就不是任天堂了（好坏意义上都是）
+

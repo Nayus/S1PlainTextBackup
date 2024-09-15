@@ -39,3 +39,19 @@
 こちら原画描かせていただきました！何卒宜しくお願い致します🎀
 <img src="https://p.sda1.dev/19/78356026a87890cfa4faf9d0245f47cd/20240914_212808.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  半年  
+##### 1989#       发表于 2024-9-15 10:27
+
+<img src="https://img.saraba1st.com/forum/202409/15/102703m4ka94hphdpf9vcw.jpg" referrerpolicy="no-referrer">
+
+<strong>GXcgDeCbwAA60nC.jpg</strong> (177.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 10:27 上传
+
+[https://x.com/teruya13/status/1834970621781901646/photo/1](https://x.com/teruya13/status/1834970621781901646/photo/1)
+

@@ -2407,3 +2407,11 @@ edit
 
 不过正因为是外包制作的才导致托娃和拉碧斯这作都不能操作，预算有限。伊苏x也承认只能操作两人是因为预算不足
 
+
+*****
+
+####  铁火辉夜  
+##### 4685#       发表于 2024-9-15 10:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">黎牢师这个新S光堆书法也没什么新意
+

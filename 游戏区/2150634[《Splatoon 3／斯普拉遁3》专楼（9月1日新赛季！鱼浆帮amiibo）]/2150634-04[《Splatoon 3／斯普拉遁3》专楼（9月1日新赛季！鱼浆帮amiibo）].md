@@ -4223,3 +4223,17 @@ https://www.youtube.com/watch?v=0meUrcUszJw 三色的未来版最后一分钟是
 别想当然以为还会有内容型更新啊，一次性买断制6578元，就这点钱玩两年 ...</blockquote>
 1代和2代都这么说的，都延长了，都有武器子精选武器
 
+
+*****
+
+####  KBAC  
+##### 5334#       发表于 2024-9-16 02:20
+
+ 本帖最后由 KBAC 于 2024-9-16 02:21 编辑 
+
+NS运动2022.4.29发售，4300円，篮球项目2024.7.10免费更新。
+
+2年，6578円<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+说到底都只是一些乐观的猜测，何必呢。
+

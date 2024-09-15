@@ -3746,3 +3746,36 @@ https://www.nintendo.com/jp/in ...</blockquote>
 
 有没有选未来的组个队233，选现在的真是压倒性的多，找不到人
 
+
+*****
+
+####  shirolin  
+##### 5294#       发表于 2024-9-15 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66208679&amp;ptid=2150634" target="_blank">墨染白泉 发表于 2024-9-14 23:07</a>
+入口处喷墨水的地方，对着夕阳拍照太美了。建议有时间的都去拍一张留作纪念，明天应该就变成夜晚版祭典
+
+ ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202409/15/171025quuodxrfekopcq2x.jpg" referrerpolicy="no-referrer">
+
+<strong>20240915_125410.jpg</strong> (862.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 17:10 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  KBAC  
+##### 5295#       发表于 2024-9-15 17:14
+
+如果祭典曲播放列表每组都有缺失的常规祭典曲那反倒正常，只少这一首就只是单纯的区别对待罢了。
+我甚至可以相信这种区别对待的动机是好的。是为了体现フルスロットル・テンタクル的特殊地位。
+但是手法很拙劣，没有惊喜只有遗憾和别扭（Octo最终Boss战就把惊喜额度用掉了，再玩就没意思了），我是不会买账的。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

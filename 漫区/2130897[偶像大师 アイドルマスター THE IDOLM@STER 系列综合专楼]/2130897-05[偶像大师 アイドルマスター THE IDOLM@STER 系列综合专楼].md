@@ -441,3 +441,187 @@ vlcsnap-2024-09-14-19h00m33s509.jpg
 
 06. オレンジタイム // 井上ほの花、長江里加、藤本彩花、高田憂希、深川芹亜（＊142s+9週年=151cm）
 
+
+*****
+
+####  wfhtony  
+##### 6385#       发表于 2024-9-15 19:13
+
+<img src="https://img.saraba1st.com/forum/202409/15/191149iwezebwlewexx5xf.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-19h04m10s836.jpg</strong> (158.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 19:11 上传
+
+=====
+
+快閃店和週邊：
+
+<img src="https://img.saraba1st.com/forum/202409/15/191149kztvg00bqyvha0he.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-19h07m20s311.jpg</strong> (356.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 19:11 上传
+
+<img src="https://img.saraba1st.com/forum/202409/15/191150yq1zq1qduu5qaeqa.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-19h07m29s218.jpg</strong> (370.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 19:11 上传
+
+昨天的recap：
+
+<img src="https://img.saraba1st.com/forum/202409/15/191151qegm1x5bq5a5xcp5.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-19h07m48s308.jpg</strong> (408.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 19:11 上传
+
+<img src="https://img.saraba1st.com/forum/202409/15/191151seieg186ieg6tsw9.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-19h07m55s241.jpg</strong> (314.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 19:11 上传
+
+幾個聯動：
+
+<img src="https://img.saraba1st.com/forum/202409/15/191152mdoyxozmp08o0dom.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-19h08m16s099.jpg</strong> (323.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 19:11 上传
+
+<img src="https://img.saraba1st.com/forum/202409/15/191153ri3a4498v4s4svy3.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-19h08m22s770.jpg</strong> (322.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 19:11 上传
+
+<img src="https://img.saraba1st.com/forum/202409/15/191153iv7ffvekebervefp.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-19h08m30s145.jpg</strong> (270.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 19:11 上传
+
+<img src="https://img.saraba1st.com/forum/202409/15/191154zetfax6vdi0y3bfb.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-19h08m36s616.jpg</strong> (273.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 19:11 上传
+
+デレステ慣例：
+
+<img src="https://img.saraba1st.com/forum/202409/15/191154djj0mb0jidxqpxjv.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-19h08m44s058.jpg</strong> (338.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 19:11 上传
+
+<img src="https://img.saraba1st.com/forum/202409/15/191155ejrrn5t803wx3znr.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-19h08m50s593.jpg</strong> (306.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 19:11 上传
+
+<img src="https://img.saraba1st.com/forum/202409/15/191155zu4p0u846p0zbb44.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-19h08m57s668.jpg</strong> (284.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 19:11 上传
+
+<img src="https://img.saraba1st.com/forum/202409/15/191156zhe4qzgb4qgyzc48.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-19h09m04s408.jpg</strong> (264.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 19:11 上传
+
+<img src="https://img.saraba1st.com/forum/202409/15/191156qzz5cvzc5cbxzctv.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-19h09m11s382.jpg</strong> (234.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 19:11 上传
+
+新SOLO曲確定製作：
+
+<img src="https://img.saraba1st.com/forum/202409/15/191157xnvnaap79y9lfznr.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-19h09m18s593.jpg</strong> (327.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 19:11 上传
+
+接下來的LIVE：
+
+<img src="https://img.saraba1st.com/forum/202409/15/191157nz4eti52aiatdx53.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-19h10m01s963.jpg</strong> (187.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 19:11 上传
+
+<img src="https://img.saraba1st.com/forum/202409/15/191158jlo8odntmqn8gtq8.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-19h10m06s566.jpg</strong> (216.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 19:11 上传
+
+<img src="https://img.saraba1st.com/forum/202409/15/191159rfbzzbm5eaniambm.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-19h10m17s145.jpg</strong> (253.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 19:11 上传
+
+<img src="https://img.saraba1st.com/forum/202409/15/191159thchdycy118o3mz2.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-19h10m22s883.jpg</strong> (208.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 19:11 上传
+
+是紀念デレステ运營十週年的巡演。
+
+<img src="https://img.saraba1st.com/forum/202409/15/191200rpuawuwlail0hhfh.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-19h10m31s294.jpg</strong> (226.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 19:12 上传
+
+Day2情報環節結束。
+

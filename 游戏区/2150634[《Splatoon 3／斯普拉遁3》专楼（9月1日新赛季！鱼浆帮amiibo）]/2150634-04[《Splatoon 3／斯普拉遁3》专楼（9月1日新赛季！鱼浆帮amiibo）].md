@@ -4108,3 +4108,28 @@ https://www.youtube.com/watch?v=0meUrcUszJw 三色的未来版最后一分钟是
 
 遇到333倍并赢了！
 
+
+*****
+
+####  KBAC  
+##### 5324#       发表于 2024-9-16 00:27
+
+祭典结束后必然还会有一些纪念性质的宣发，也有可能宣布些新东西。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  KBAC  
+##### 5325#       发表于 2024-9-16 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66216455&amp;ptid=2150634" target="_blank">shirolin 发表于 2024-9-16 00:17</a>
+其实吧，到现在这个时刻，
+官方依然一个字都没提到这是最终祭典。
+但是种种迹象让绝大部分玩家都认为这就是 ...</blockquote>
+官方一直在回避最终有关的字眼，这次说的是“最大”。
+如果真的不是最终，那还会有一次规格参照2代的Final Fest也说不定。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

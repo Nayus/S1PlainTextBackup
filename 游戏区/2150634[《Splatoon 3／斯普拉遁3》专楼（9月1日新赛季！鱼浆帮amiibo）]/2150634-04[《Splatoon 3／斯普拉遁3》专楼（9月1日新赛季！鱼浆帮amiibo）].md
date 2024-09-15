@@ -3655,3 +3655,32 @@ live开始了，演出动作连staff都好细节，至少架子鼓的动作都�
 
 今天的战斗曲就真的究极混沌了，3组偶像的代表曲混音233
 
+
+*****
+
+####  raii  
+##### 5287#       发表于 2024-9-15 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66211146&amp;ptid=2150634" target="_blank">KBAC 发表于 2024-9-15 12:07</a>
+
+解包的时候就发现没有了。
+
+这一点让我非常生气，三色最后一分钟
+
+会播也治不好的生气，因为我只想听原曲。 ...</blockquote>
+但是fly octo fly有，这首歌是由两部分组成的，最后一部分就是原曲
+
+*****
+
+####  raii  
+##### 5288#       发表于 2024-9-15 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66210034&amp;ptid=2150634" target="_blank">KBAC 发表于 2024-9-15 08:40</a>
+
+三色这什么B游戏规则，第二个信标不管是谁拿的出的都是大炮。
+
+最不需要两个进攻方之间博弈的一集。</blockquote>
+因为只要不是两个信标被双方拿下，防守方都可以笑纳胜利
+
+这图设计成防守有利，而进攻的唯一破局之道就是双方各拿一个信标
+

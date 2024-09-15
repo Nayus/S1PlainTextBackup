@@ -468,3 +468,11 @@ mv看笑了家人们<img src="https://static.saraba1st.com/image/smiley/face2017
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  moras2694  
+##### 903#       发表于 2024-9-15 18:31
+
+开头的历独白可能音效有点不一样，后面正常说话的声音还是一点都没变啊
+

@@ -3950,3 +3950,22 @@ https://www.youtube.com/watch?v=0meUrcUszJw 三色的未来版最后一分钟是
 
 对了，明天各位记得8到10点进游戏听散场曲的舞台演出，这算是这次大型祭典时间最短的了233
 
+
+*****
+
+####  KBAC  
+##### 5312#       发表于 2024-9-15 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66215529&amp;ptid=2150634" target="_blank">绿冰 发表于 2024-9-15 22:44</a>
+对了，明天各位记得8到10点进游戏听散场曲的舞台演出，这算是这次大型祭典时间最短的了233 ...</blockquote>
+这次最难得的是恰好赶上中秋假期，不然没得看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  raii  
+##### 5313#       发表于 2024-9-15 22:55
+
+日本人也是三连休<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

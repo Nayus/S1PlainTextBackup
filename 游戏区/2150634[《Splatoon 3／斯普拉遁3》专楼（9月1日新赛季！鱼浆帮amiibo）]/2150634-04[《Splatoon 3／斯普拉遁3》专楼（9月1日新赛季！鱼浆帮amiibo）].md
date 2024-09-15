@@ -3985,3 +3985,15 @@ https://www.youtube.com/watch?v=0meUrcUszJw 三色的未来版最后一分钟是
 
 明早的live感觉一下子就变伤感了
 
+
+*****
+
+####  Pumpkin_ccc  
+##### 5315#       发表于 2024-9-15 23:40
+
+这最后的祭典最大的感受居然是前两天的随机三色，太好玩了，很多地图改得真的绝配，各种小细节，相反演出现场的三色就不咋的，防守压力巨大，这高台就不该改成升降的
+
+要结束了，不想结束啊啊啊啊啊啊啊啊啊啊啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+不知过去赢的话，是不是会讲大战时期刚结束到复兴的对战和偶像的兴起
+

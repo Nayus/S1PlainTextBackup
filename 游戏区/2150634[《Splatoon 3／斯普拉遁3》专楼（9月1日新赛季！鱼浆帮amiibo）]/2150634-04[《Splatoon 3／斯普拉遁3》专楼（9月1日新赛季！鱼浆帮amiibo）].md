@@ -3570,3 +3570,15 @@ live开始了，演出动作连staff都好细节，至少架子鼓的动作都�
 
 要见证+99了
 
+
+*****
+
+####  原来如此  
+##### 5279#       发表于 2024-9-15 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66210503&amp;ptid=2150634" target="_blank">raii 发表于 2024-9-15 10:20</a>
+过去居然断层中期领先，感觉现在不稳了，靠三色扳得回来？</blockquote>
+感觉三色也有优势。选过去的从一代留存下来的多，经验上会好一些。另外两系在三色防守时都出现过被完全压制的情况，过去系还没体会过。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

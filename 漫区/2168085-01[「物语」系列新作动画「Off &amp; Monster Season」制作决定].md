@@ -476,3 +476,11 @@ mv看笑了家人们<img src="https://static.saraba1st.com/image/smiley/face2017
 
 开头的历独白可能音效有点不一样，后面正常说话的声音还是一点都没变啊
 
+
+*****
+
+####  terminator1990  
+##### 904#       发表于 2024-9-16 01:11
+
+虽然有几个龙套，但这集一口气出来的有脸新妹子数量之多简直不像物语动画的风格<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -766,3 +766,12 @@ feel下资源只能到这水平吗<img src="https://static.saraba1st.com/image/s
 
 鸥的声音还不错，没润屋剧场版里大桥彩香那么差异明显
 
+
+*****
+
+####  rainknine  
+##### 64#       发表于 2024-9-16 01:13
+
+总感觉这白羽声音有点藤原千花味
+只能说也过了六七年了，没办法的事情<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

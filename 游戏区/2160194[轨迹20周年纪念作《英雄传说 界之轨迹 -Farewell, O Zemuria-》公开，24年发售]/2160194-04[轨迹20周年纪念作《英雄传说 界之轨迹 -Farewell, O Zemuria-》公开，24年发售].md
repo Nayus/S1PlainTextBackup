@@ -2656,3 +2656,14 @@ edit
 
 界轨已经确定是像创轨那样下迷宫解剧情模式了吗？
 
+
+*****
+
+####  ravend233  
+##### 4711#       发表于 2024-9-15 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66215617&amp;ptid=2160194" target="_blank">里恩 发表于 2024-9-15 22:54</a>
+
+人太多的麻烦都不只是美术制作有问题，更麻烦的是导致人物根本无法深入刻画，特别是个人篇章结束后，一旦进 ...</blockquote>
+现在这样堆角色你法社的解决方案就是一人一个个人章节，写完也不离队，就丢进背景板当拉拉队，主线剧情报菜名提一下，主线角色间的互动都因为人太多了而没法写，推进剧情也很难刻画人物<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

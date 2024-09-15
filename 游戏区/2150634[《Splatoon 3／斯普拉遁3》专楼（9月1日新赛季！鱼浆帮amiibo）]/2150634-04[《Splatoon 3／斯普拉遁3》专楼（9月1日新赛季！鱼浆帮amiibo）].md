@@ -4290,3 +4290,27 @@ NS运动2022.4.29发售，4300円，篮球项目2024.7.10免费更新。
 
 NS运动是EPD4做的，喷是EPD5，跨组都算数的话，咋不直接说隔壁EPD9的马车8DX从发售开始摸鱼5年，还能再出个DLC，直到前几天还推送了版本3.0.3更新呢，那个更有说服力是不是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KBAC  
+##### 5339#       发表于 2024-9-16 02:39
+
+ 本帖最后由 KBAC 于 2024-9-16 02:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66217333&amp;ptid=2150634" target="_blank">raii 发表于 2024-9-16 02:34</a>
+
+NS运动是EPD4做的，喷是EPD5，跨组都算数的话，咋不直接说隔壁EPD9的马车8DX从发售开始摸鱼5年，还能再出个 ...</blockquote>
+你可能没意识到我只是想乐观一点而已，想必在座的也有想乐观一点的。
+
+而保持乐观是不需要什么理由和证据的。
+
+真的坐实什么都没有的时候也是打咱们这帮乐观者的脸，现在咄咄逼人地急个什么劲<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  raii  
+##### 5340#       发表于 2024-9-16 02:45
+
+跟昨天还在楼里”cnm研究所“操得飞起，今天说”现在咄咄逼人个什么劲“，而且比起做功课更喜欢扣鹅的确实没有太多共同话题可聊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

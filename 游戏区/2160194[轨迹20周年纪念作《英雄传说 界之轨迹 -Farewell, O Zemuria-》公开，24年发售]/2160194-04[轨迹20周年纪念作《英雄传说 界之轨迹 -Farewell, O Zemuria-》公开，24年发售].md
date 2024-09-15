@@ -2380,3 +2380,30 @@ edit
 
 你轨的技能主打一个地味溢出，属于那种看一眼全身起鸡皮疙瘩的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 4683#       发表于 2024-9-15 10:04
+
+ 本帖最后由 卢迪克 于 2024-9-15 10:07 编辑 
+
+不如多找点外包
+
+<img src="https://img.saraba1st.com/forum/202409/15/100439uqdwqn0gin3b3nqm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240915_100419.jpg</strong> (228.43 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-15 10:04 上传
+
+
+*****
+
+####  卢迪克  
+##### 4684#       发表于 2024-9-15 10:13
+
+不过正因为是外包制作的才导致托娃和拉碧斯这作都不能操作，预算有限。伊苏x也承认只能操作两人是因为预算不足
+

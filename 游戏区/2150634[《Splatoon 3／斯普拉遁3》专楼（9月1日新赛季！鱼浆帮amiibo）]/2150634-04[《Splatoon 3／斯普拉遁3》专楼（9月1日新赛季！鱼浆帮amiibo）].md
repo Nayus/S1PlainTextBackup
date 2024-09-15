@@ -3892,3 +3892,13 @@ https://www.nintendo.com/jp/in ...</blockquote>
 
 给这两年画上一个句号
 
+
+*****
+
+####  原来如此  
+##### 5306#       发表于 2024-9-15 21:52
+
+玩到现在就一次十倍，三色几乎不输，开放几乎不赢，体验极差
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

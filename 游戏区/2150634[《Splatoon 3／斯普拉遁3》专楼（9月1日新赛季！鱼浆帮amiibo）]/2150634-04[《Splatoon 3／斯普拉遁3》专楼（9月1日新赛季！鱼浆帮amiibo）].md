@@ -3913,3 +3913,11 @@ https://www.nintendo.com/jp/in ...</blockquote>
 [https://www.youtube.com/watch?v=pXhGlGjtXvA](https://www.youtube.com/watch?v=pXhGlGjtXvA) 顺便一说这是过去版，用的是1代的祭典战斗曲
 [https://www.youtube.com/watch?v=Xv62LIn7288](https://www.youtube.com/watch?v=Xv62LIn7288)这是现在版，2代的
 
+
+*****
+
+####  幽香  
+##### 5308#       发表于 2024-9-15 22:09
+
+<img src="https://p.sda1.dev/19/20c67cdfaa23da1b5539ed1e1d5674dc/CMP_20240915220759919.jpg" referrerpolicy="no-referrer">肝神出现了
+

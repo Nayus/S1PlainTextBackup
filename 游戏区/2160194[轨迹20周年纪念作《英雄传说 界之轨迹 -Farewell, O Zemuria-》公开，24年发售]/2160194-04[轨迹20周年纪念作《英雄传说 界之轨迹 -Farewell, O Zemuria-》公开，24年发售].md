@@ -2551,3 +2551,25 @@ edit
 
 至于手游和单机就不一样，说白了单机就算全方面比手游好，手游这个载体注定了有独特的优势，做单机也不可能是为了和手游竞争。
 
+
+*****
+
+####  无动于衷  
+##### 4700#       发表于 2024-9-15 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66210516&amp;ptid=2160194" target="_blank">铁火辉夜 发表于 2024-9-15 10:22</a>
+
+克洛战技拉也就罢了反正没喜欢过他为啥菲也垮了黎牢师这个新S光堆书法也没什么新意 ...</blockquote>
+写字不是不可以，那个字随着剑一起颤抖是怎么个意思
+
+远的不说，69岁老同志的字也没做成这样啊
+
+*****
+
+####  ravend233  
+##### 4701#       发表于 2024-9-15 12:42
+
+反正里爷这个新s我看着是挺土的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">感觉不如闪轨时期的设计了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

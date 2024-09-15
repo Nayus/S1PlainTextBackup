@@ -4079,3 +4079,32 @@ https://www.youtube.com/watch?v=0meUrcUszJw 三色的未来版最后一分钟是
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  绿冰  
+##### 5322#         楼主| 发表于 2024-9-16 00:20
+
+<blockquote>Junchoon 发表于 2024-9-16 00:12
+最近工作太忙，就今天玩了2小时，好亏......
+
+这就是最后的祭奠了？</blockquote>
+不是，一直是说大型祭典，按系列传统，这场祭典的结果直接影响下一作的主题
+
+后续应该常规祭典继续开
+
+*****
+
+####  绿冰  
+##### 5323#         楼主| 发表于 2024-9-16 00:20
+
+<img src="https://img.saraba1st.com/forum/202409/16/002059xut9h2czmah1t7og.jpg" referrerpolicy="no-referrer">
+
+<strong>2024091600013400-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (204.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-16 00:20 上传
+
+遇到333倍并赢了！
+

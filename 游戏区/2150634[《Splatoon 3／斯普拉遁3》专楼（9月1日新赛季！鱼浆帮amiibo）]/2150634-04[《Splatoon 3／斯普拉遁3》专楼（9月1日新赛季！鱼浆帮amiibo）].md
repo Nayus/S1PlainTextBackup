@@ -3721,3 +3721,12 @@ live开始了，演出动作连staff都好细节，至少架子鼓的动作都�
 
 输了333，顿时感觉前两天白打<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  raii  
+##### 5292#       发表于 2024-9-15 16:50
+
+开发者访谈就说过，3代是2代的反文化，那么在美术上减少2代的痕迹也不奇怪
+[https://www.nintendo.com/jp/interview/av5ja/index.html](https://www.nintendo.com/jp/interview/av5ja/index.html)
+

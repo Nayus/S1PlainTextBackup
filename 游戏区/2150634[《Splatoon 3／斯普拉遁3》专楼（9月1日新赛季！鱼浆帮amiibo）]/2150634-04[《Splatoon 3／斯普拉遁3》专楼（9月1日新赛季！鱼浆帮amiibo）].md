@@ -3997,3 +3997,15 @@ https://www.youtube.com/watch?v=0meUrcUszJw 三色的未来版最后一分钟是
 
 不知过去赢的话，是不是会讲大战时期刚结束到复兴的对战和偶像的兴起
 
+
+*****
+
+####  罗克萨斯  
+##### 5316#       发表于 2024-9-15 23:48
+
+我打到永远，就没啥动力了，涂地太容易腻了，打到99的都是什么神仙<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+体感过去党很难打，半程就是过去领先，真赢了研究所会怎么办，顺应老玩家的意愿吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -9302,3 +9302,11 @@ mujica不太有这个问题，毕竟mygo动画在这个档期已经重播至少�
 
 李茜能不能逆输入进初喵<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  滑稽Captain  
+##### 23045#       发表于 2024-9-15 20:32
+
+二开感觉完全没有微博说的1000多张那么多啊（身边统计学
+

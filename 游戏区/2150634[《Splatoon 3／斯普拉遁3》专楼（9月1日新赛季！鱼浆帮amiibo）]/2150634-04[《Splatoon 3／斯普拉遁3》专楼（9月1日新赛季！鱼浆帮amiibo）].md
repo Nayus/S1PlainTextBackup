@@ -3809,3 +3809,11 @@ https://www.nintendo.com/jp/in ...</blockquote>
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  幽香  
+##### 5299#       发表于 2024-9-15 20:31
+
+感觉过去这次应该赢了，虽然算1代开服玩家，但是这次叛变到未来，主要还是希望喷喷下一代做更好，不过过去赢了也不会后悔就是了。还有就是官方那个"過"字真的很像某些书法里的“禍”字.
+

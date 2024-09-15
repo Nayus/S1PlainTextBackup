@@ -90,3 +90,11 @@ ATRI9話のLOを少しだけお手伝いさせていただきました。ご迷�
 
 反日常直觉地讲人心和玩情感，这就是科幻设定提供的专属空间吧
 
+
+*****
+
+####  66367749  
+##### 133#       发表于 2024-9-15 08:42
+
+不太能理解日本人的一些脑回路<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

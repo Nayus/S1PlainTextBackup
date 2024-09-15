@@ -2440,3 +2440,31 @@ edit
 
 希望这一部真的能小成本发挥出让轨迹粉丝满意的结果吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">肉眼可见的摆
 
+
+*****
+
+####  卢迪克  
+##### 4689#       发表于 2024-9-15 11:28
+
+今年明明说成本上升来着
+
+*****
+
+####  ravend233  
+##### 4690#       发表于 2024-9-15 11:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就你法社现在能掏出的这么点资源，以及脚本能力，可控控制在常驻4-5人，加上临时可控10+人真就到头了，几十号可控属于折磨自己折磨玩家
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  ravend233  
+##### 4691#       发表于 2024-9-15 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66210902&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-15 11:28</a>
+今年明明说成本上升来着</blockquote>
+大概是因为日本通胀加上同时开了空re和迷城的原因吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

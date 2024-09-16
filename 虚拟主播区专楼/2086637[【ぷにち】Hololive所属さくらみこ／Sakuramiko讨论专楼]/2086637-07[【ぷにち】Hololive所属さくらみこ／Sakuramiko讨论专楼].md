@@ -9502,3 +9502,36 @@ ID也几乎全员宣布参战了
 
 都是女的
 
+
+*****
+
+####  holoan  
+##### 9678#         楼主| 发表于 2024-9-16 20:21
+
+很有意思，这个月的直播外深夜GTA服测试练习活动几乎所有人都参加了，但最终企划发表之后并不是所有参加过事前练习的人都参加本番
+
+里练习很有意思吗
+
+*****
+
+####  holoan  
+##### 9679#         楼主| 发表于 2024-9-16 20:41
+
+<img src="https://img.saraba1st.com/forum/202409/16/204017lrbgf5ttjgc9rqon.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (78.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-16 20:40 上传
+
+虽然每次开live推上都会有这种明摆着就是钓鱼骗钱的号，但是真的有人被骗了，SB太多了骗子不够用
+
+<img src="https://img.saraba1st.com/forum/202409/16/204121r1cei2qcid4ci4fe.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (24.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-16 20:41 上传
+

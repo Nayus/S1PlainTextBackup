@@ -9535,3 +9535,25 @@ ID也几乎全员宣布参战了
 
 2024-9-16 20:41 上传
 
+
+*****
+
+####  holoan  
+##### 9680#         楼主| 发表于 2024-9-16 21:02
+
+<img src="https://img.saraba1st.com/forum/202409/16/210226c475fsl5vgf5ehaw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (275.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-16 21:02 上传
+
+
+*****
+
+####  rs5621  
+##### 9681#       发表于 2024-9-16 21:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">今晚有最爱的歌杂环节
+

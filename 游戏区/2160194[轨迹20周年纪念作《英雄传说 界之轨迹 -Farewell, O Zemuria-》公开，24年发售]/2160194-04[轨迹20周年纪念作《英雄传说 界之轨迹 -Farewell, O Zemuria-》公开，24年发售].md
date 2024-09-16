@@ -3062,3 +3062,16 @@ edit
 最后这个と很灵性，如果黑兔cv是高丽菜就能玩魔禁梗了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 “阿尔缇娜阿尔缇娜以炫耀的口气说道”
 
+
+*****
+
+####  言嘉  
+##### 4752#       发表于 2024-9-16 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66220768&amp;ptid=2160194" target="_blank">andychen 发表于 2024-9-16 17:05</a>
+
+感谢分享，界轨这个我以前没看过
+
+我觉得大陆东部之前的铺垫少，直到黎轨才有点正面描写。考虑到近藤说的 ...</blockquote>
+共和国99%风水双至宝，剩下一个时至宝用来机械降神解决系列所有问题或者直接敷衍掉
+

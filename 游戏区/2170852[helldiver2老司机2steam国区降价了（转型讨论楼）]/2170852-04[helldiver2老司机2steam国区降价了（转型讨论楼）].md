@@ -576,3 +576,13 @@ An unsafe railgun shot will deal 1500/562.5 (damage/durable). For reference a co
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  风萧飒  
+##### 5372#       发表于 2024-9-16 21:21
+
+500kg范围增大
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

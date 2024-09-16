@@ -4863,3 +4863,13 @@ Splatoon（スプラトゥーン）
 
 喷3DX或者4最大的期待就是对不对打工优化，打鲑鱼搬金蛋是真的没有任何替代，只要之后的新作还有打工玩法我还能买<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  秋月孝三  
+##### 5393#       发表于 2024-9-16 11:47
+
+真格该改改了，塔鱼蛤都删掉，改成常驻真格涂地和真格三色<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

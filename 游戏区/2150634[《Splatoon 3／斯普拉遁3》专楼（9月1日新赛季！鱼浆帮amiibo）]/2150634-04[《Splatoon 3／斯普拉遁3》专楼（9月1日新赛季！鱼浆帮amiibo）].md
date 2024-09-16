@@ -4456,3 +4456,43 @@ NS运动是EPD4做的，喷是EPD5，跨组都算数的话，咋不直接说隔�
 论坛助手,iPhone</blockquote>
 曼曼其实比莎莎高不少的233
 
+
+*****
+
+####  KBAC  
+##### 5354#       发表于 2024-9-16 10:04
+
+过去赢了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  实津二三  
+##### 5355#       发表于 2024-9-16 10:04
+
+ 本帖最后由 实津二三 于 2024-9-16 10:05 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">爆杀啊。
+三代0pt也太惨了。
+
+*****
+
+####  raii  
+##### 5356#       发表于 2024-9-16 10:05
+
+历史被刷新了
+
+1代、2代以来的最终祭典人多必倍杀的纪录被终结，老登的力量真可怕
+
+研究所专门搞的扩大新人口的机制，到最后还是输给了经验丰富的老玩家
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 5357#       发表于 2024-9-16 10:06
+
+过去爆杀，未来0p<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

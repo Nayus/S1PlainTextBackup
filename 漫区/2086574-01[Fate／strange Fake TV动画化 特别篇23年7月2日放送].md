@@ -3596,3 +3596,14 @@ fz也是完结了几年才做动画，
 
 最先公开的怎么是闪恩，不知道的以为你俩才是主角呢
 
+
+*****
+
+####  ナルバレック  
+##### 359#       发表于 2024-9-16 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66219896&amp;ptid=2086574" target="_blank">zechins 发表于 2024-9-16 14:24</a>
+
+最先公开的怎么是闪恩，不知道的以为你俩才是主角呢</blockquote>
+最终卷AE闪估计确实戏份不少（和A闪还不是同一个人），但是中间几乎掉线了半本书的二人组<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+

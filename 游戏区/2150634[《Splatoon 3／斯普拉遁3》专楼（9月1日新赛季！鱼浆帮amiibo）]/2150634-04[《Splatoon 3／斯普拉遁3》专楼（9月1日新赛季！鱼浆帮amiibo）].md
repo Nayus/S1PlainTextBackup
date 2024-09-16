@@ -5145,3 +5145,14 @@ Fami对比过喷3和动森的制作人员重合是很少的，但是更多的原
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  KBAC  
+##### 5421#       发表于 2024-9-16 20:48
+
+话说秩序篇的8号爆鱿鱼灵魂还真不是bug啊...不然也不会到现在都没修正。
+新3号和秩序篇登场的NPC打牌的对话也很奇怪，全在暗示新3号和8号有关系。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

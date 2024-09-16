@@ -9379,3 +9379,27 @@ lsl入住B站了
 
 在B做游戏播主吗
 
+
+*****
+
+####  NODY  
+##### 23054#       发表于 2024-9-16 22:35
+
+看后面的招牌是汉字，估计是上海的照片
+
+<img src="https://img.saraba1st.com/forum/202409/16/223530ohhmzhivk1pzjfce.png" referrerpolicy="no-referrer">
+
+<strong>无标题.png</strong> (66.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-16 22:35 上传
+
+<img src="https://img.saraba1st.com/forum/202409/16/223530v0ue5cnmp2njek0r.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20231008012333.png</strong> (306 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-16 22:35 上传
+

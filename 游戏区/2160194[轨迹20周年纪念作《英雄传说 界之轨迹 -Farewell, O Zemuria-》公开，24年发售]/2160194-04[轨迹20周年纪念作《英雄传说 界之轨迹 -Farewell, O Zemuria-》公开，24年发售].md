@@ -3117,3 +3117,22 @@ edit
 —— 来自 鹅球 v3.0.0.82-alpha</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">想想闪2和黎2的pv 看的激动不！ 觉都睡不着啦！  然后（
 
+
+*****
+
+####  ravend233  
+##### 4757#       发表于 2024-9-16 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66223136&amp;ptid=2160194" target="_blank">alucardcz 发表于 2024-9-16 22:32</a>
+想想闪2和黎2的pv 看的激动不！ 觉都睡不着啦！  然后（</blockquote>
+这可是轨的灵魂<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">轨不能没有pv，就像。。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  红魔馆的糖  
+##### 4758#       发表于 2024-9-16 22:37
+
+相信窝法，黎1的PV做的多好，都实现了！
+

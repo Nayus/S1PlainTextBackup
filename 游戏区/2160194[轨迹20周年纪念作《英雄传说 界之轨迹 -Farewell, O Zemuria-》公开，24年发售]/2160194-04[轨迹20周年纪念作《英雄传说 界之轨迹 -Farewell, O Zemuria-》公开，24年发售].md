@@ -2903,3 +2903,32 @@ edit
 
 那也不能总是让总统帮忙请假吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 4738#       发表于 2024-9-16 13:47
+
+不慌不忙不是一个可指责的点，每个人都不慌不忙，学妹打工不影响念书是黎一二一直在强调的一点。
+黎二不就是在搞学园祭开始不在。
+
+*****
+
+####  winggg  
+##### 4739#       发表于 2024-9-16 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66219560&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-16 13:26</a>
+
+不是我看不起学妹，学妹知道了什么偷偷摸摸单干这话说出来有人信吗</blockquote>
+虽然我也不信；
+
+但不得不说，如果艾莉、亚莉沙搞这样的个人线的可能性是1-2%，学妹是会有10-15%
+
+
+*****
+
+####  Aeons  
+##### 4740#       发表于 2024-9-16 13:53
+
+如果是小说可以，作为游戏基本没有可能。
+

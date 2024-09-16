@@ -549,3 +549,13 @@ kite liberator第二话什么时候出？<img src="https://static.saraba1st.com/
 
 辩魔士MKII
 
+
+*****
+
+####  寇马可  
+##### 61#       发表于 2024-9-17 03:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66222730&amp;ptid=2199597" target="_blank">イシュハラ 发表于 2024-9-16 21:43</a>
+读或死又不打枪</blockquote>
+南希打枪啊
+

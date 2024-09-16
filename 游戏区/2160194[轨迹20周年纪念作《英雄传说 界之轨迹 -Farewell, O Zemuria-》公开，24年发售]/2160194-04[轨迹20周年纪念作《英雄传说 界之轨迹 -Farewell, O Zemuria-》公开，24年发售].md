@@ -2789,3 +2789,37 @@ edit
 
 说明知道玩家对黎2都ptsd了，更了没人买
 
+
+*****
+
+####  一步成诗  
+##### 4724#       发表于 2024-9-16 11:16
+
+是哦画了倒数图pv埋得更死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 4725#       发表于 2024-9-16 11:19
+
+一款没有正式pv的游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  一步成诗  
+##### 4726#       发表于 2024-9-16 11:21
+
+严格来说你也不能说他没有pv，前面瞎剪了一堆战技的pv也是pv对吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ravend233  
+##### 4727#       发表于 2024-9-16 11:23
+
+那几个我记得是webcm，不是pv<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

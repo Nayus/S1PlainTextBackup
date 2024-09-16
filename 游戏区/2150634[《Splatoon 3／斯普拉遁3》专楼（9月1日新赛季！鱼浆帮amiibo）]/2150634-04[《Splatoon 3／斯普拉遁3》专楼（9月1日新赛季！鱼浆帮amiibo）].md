@@ -4815,3 +4815,36 @@ Splatoon（スプラトゥーン）
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Junakr  
+##### 5388#       发表于 2024-9-16 11:19
+
+<img src="https://img.saraba1st.com/forum/202409/16/111802d7k48kzaa3uidr8a.jpg" referrerpolicy="no-referrer">
+
+<strong>the-best-game.jpg</strong> (150.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-16 11:18 上传
+
+*****
+
+####  KBAC  
+##### 5389#       发表于 2024-9-16 11:20
+
+现有的三作都是在机能没差太多的平台上，而且各种画面效果都差点意思。
+而下一作就是在机能有大提升的机器上了，游戏开发能办到的事也更多。
+肯定是期待并且买的。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  raii  
+##### 5390#       发表于 2024-9-16 11:22
+
+4他最好是晚几年出，就EPD5这产能和祭典三色这种烂泥扶不上墙、不做验证就拍板上架，第一天发售就被迫改匹配机制的玩意儿，出得越早笑话越大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

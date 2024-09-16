@@ -5053,3 +5053,25 @@ epd5肯定是动森啊，然后动森出了咋也再等两年吧
 用amibo回去感受下最后一天的演出氛围吧</blockquote>
 刷amiibo能看最后一天祭典？所有amiibo都可以吗
 
+
+*****
+
+####  liekong  
+##### 5412#       发表于 2024-9-16 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66220165&amp;ptid=2150634" target="_blank">Pumpkin_ccc 发表于 2024-9-16 15:10</a>
+
+用amibo回去感受下最后一天的演出氛围吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">看录播感受一下好了
+
+
+*****
+
+####  raii  
+##### 5413#       发表于 2024-9-16 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66220281&amp;ptid=2150634" target="_blank">hisousihou 发表于 2024-9-16 15:30</a>
+
+刷amiibo能看最后一天祭典？所有amiibo都可以吗</blockquote>
+偶像7子的可以
+

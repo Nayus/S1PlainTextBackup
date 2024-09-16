@@ -4873,3 +4873,46 @@ Splatoon（スプラトゥーン）
 
 —— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  KBAC  
+##### 5394#       发表于 2024-9-16 11:59
+
+ 本帖最后由 KBAC 于 2024-9-16 12:01 编辑 
+
+三代太纠结于作品的数字编号了，二代就有这个苗头，三代尤甚。
+三代的运营事故很大程度上也是过于纠结数字3导致的。
+只要研究所脑子正常以后的作品就应该不会再纠结数字了。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Humpy  
+##### 5395#       发表于 2024-9-16 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66219003&amp;ptid=2150634" target="_blank">KBAC 发表于 2024-9-16 11:59</a>
+三代太纠结于作品的数字编号了，二代就有这个苗头，三代尤甚。
+三代的运营事故很大程度上也是过于纠结数字3 ...</blockquote>
+真的纠结就不会武器只有一种贴牌了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KBAC  
+##### 5396#       发表于 2024-9-16 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66219015&amp;ptid=2150634" target="_blank">Humpy 发表于 2024-9-16 12:00</a>
+真的纠结就不会武器只有一种贴牌了</blockquote>
+第二贴牌本来就是只有一部分武器有，真想在这个地方搞3那得全武器都出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  莉可厨  
+##### 5397#       发表于 2024-9-16 12:05
+
+最终还是活成了宝可梦的样子（指把创一当爹供着）
+

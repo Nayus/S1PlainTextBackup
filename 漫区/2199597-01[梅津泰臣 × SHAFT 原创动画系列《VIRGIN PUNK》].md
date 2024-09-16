@@ -450,3 +450,23 @@ SHAFT居然能做这种正常风格的动画？配色没问题，一眼也看不
 
 人设太像风筝了 梅津能画一段有h的镜头吗
 
+
+*****
+
+####  LeonsCat  
+##### 50#       发表于 2024-9-16 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66221586&amp;ptid=2199597" target="_blank">黑猫桑 发表于 2024-9-16 19:13</a>
+
+蒜祖宗不是noir吗</blockquote>
+美少女打手枪确实要上溯的，另外虽然.hack是后做的动画，真下耕一的三部曲还真是因为先有.hack的原因。
+
+当然了，蒜那个搞法确实是新时代搞法。
+
+*****
+
+####  Junglemgs  
+##### 51#       发表于 2024-9-16 20:31
+
+这类已经有模板展开的剧情设定应该不会太烂吧。。。应该吧
+

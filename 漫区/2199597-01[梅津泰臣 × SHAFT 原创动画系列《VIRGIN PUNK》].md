@@ -401,3 +401,18 @@ SHAFT居然能做这种正常风格的动画？配色没问题，一眼也看不
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">高桥啊，该让动画观众们感受下这些年特摄骑士粉丝们的痛苦了
 
+
+*****
+
+####  黑猫桑  
+##### 44#       发表于 2024-9-16 19:13
+
+蒜祖宗不是noir吗
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 45#       发表于 2024-9-16 19:14
+
+又会是破鞋女主吗？
+

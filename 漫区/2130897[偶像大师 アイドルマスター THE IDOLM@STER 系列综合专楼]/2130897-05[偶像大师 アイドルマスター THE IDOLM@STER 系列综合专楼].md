@@ -682,3 +682,39 @@ Day2情報環節結束。
 
 新的對邦
 
+
+*****
+
+####  陆久舟  
+##### 6393#       发表于 2024-9-16 19:08
+
+唉，唉<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  magicc  
+##### 6394#       发表于 2024-9-16 19:10
+
+一开始看到奈落还以为是ジムシャニ动画化，期待还是太高了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lunaticfool  
+##### 6395#       发表于 2024-9-16 19:12
+
+米组的曲够吗<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhwpjy  
+##### 6396#       发表于 2024-9-16 19:15
+
+<img src="https://img.saraba1st.com/forum/202409/16/191508fbsod7fdpii9p89o.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6220.jpeg</strong> (142.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-16 19:15 上传
+

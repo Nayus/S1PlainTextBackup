@@ -559,3 +559,13 @@ kite liberator第二话什么时候出？<img src="https://static.saraba1st.com/
 读或死又不打枪</blockquote>
 南希打枪啊
 
+
+*****
+
+####  イシュハラ  
+##### 62#       发表于 2024-9-17 04:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66224296&amp;ptid=2199597" target="_blank">寇马可 发表于 2024-9-17 03:25</a>
+南希打枪啊</blockquote>
+南希主要也是靠穿墙，老实打枪的不就一个金毛男，其他人都是超能力乱斗
+

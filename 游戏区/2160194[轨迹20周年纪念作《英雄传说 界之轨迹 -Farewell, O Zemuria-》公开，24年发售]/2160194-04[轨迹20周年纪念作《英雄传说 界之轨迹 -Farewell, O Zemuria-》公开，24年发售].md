@@ -2693,3 +2693,44 @@ edit
 
 看起来大概率低配39了
 
+
+*****
+
+####  Aeons  
+##### 4714#       发表于 2024-9-16 09:45
+
+奥古斯特借ace皮复活，不说自己是奥古斯特的理由是怕死人复活引起混乱。
+
+这种弱智东西这辈子也是少见了，39的剧情我没什么太大意见，但是促进这剧情的假ace属于是狗屎中的狗屎。
+
+再能写出这种安排还是倒闭吧
+
+*****
+
+####  一步成诗  
+##### 4715#       发表于 2024-9-16 09:46
+
+这么快就10天了，电影插图和庭院小故事cg都是这个画风，看来要轮到压榨这位画师了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 4716#       发表于 2024-9-16 09:48
+
+之前伊苏10的插画应该也是这位，估计下一部人设就让这位来了，不离职的话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  ravend233  
+##### 4717#       发表于 2024-9-16 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66218140&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-16 09:45</a>
+奥古斯特借ace皮复活，不说自己是奥古斯特的理由是怕死人复活引起混乱。
+
+这种弱智东西这辈子也是少见了，39 ...</blockquote>
+这种弱智安排完全是为了写39弱智苦情戏搞的，找个一次性反派和死人缝合在一起，然后端出来一大坨
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

@@ -2871,3 +2871,35 @@ edit
 
 不是我看不起学妹，学妹知道了什么偷偷摸摸单干这话说出来有人信吗
 
+
+*****
+
+####  ravend233  
+##### 4734#       发表于 2024-9-16 13:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那就写出一直在上学吧
+
+
+*****
+
+####  Aeons  
+##### 4735#       发表于 2024-9-16 13:43
+
+故事7月，在期末考试不是没可能。
+
+杂志图分线不就还在吗
+
+*****
+
+####  ravend233  
+##### 4736#       发表于 2024-9-16 13:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那也是另一种程度的幽默剧情了，当事人还在不慌不忙上学
+
+*****
+
+####  一步成诗  
+##### 4737#       发表于 2024-9-16 13:45
+
+那也不能总是让总统帮忙请假吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

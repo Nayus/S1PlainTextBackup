@@ -2675,3 +2675,21 @@ edit
 
 还是某些手游大手笔啊，主线讲不了，就给每个人发一个星之门。
 
+
+*****
+
+####  ravend233  
+##### 4713#       发表于 2024-9-16 09:34
+
+<img src="https://img.saraba1st.com/forum/202409/16/093405rnfv3q3bknrcl8rr.jpg" referrerpolicy="no-referrer">
+
+<strong>1000005637.jpg</strong> (362.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-16 09:34 上传
+
+你法也开始倒计时了
+
+看起来大概率低配39了
+

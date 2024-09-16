@@ -2966,3 +2966,11 @@ edit
 
 是不是黎1被人说只翘课不上学竹入玻璃心犯了不许任何人诋毁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一步成诗  
+##### 4745#       发表于 2024-9-16 15:08
+
+可能就是单纯地避免在队时间过长变成背景板和复读机<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

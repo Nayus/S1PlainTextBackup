@@ -5012,3 +5012,33 @@ epd5肯定是动森啊，然后动森出了咋也再等两年吧
 
 这下4代主城保底也是和风复古风了吧
 
+
+*****
+
+####  liekong  
+##### 5408#       发表于 2024-9-16 15:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">记错时间以为祭典4天，结果昨天一天有事没打，错过了很多阿啊啊啊啊
+
+*****
+
+####  Pumpkin_ccc  
+##### 5409#       发表于 2024-9-16 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66220145&amp;ptid=2150634" target="_blank">liekong 发表于 2024-9-16 15:07</a>
+
+记错时间以为祭典4天，结果昨天一天有事没打，错过了很多阿啊啊啊啊</blockquote>
+用amibo回去感受下最后一天的演出氛围吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  leonlink  
+##### 5410#       发表于 2024-9-16 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66219925&amp;ptid=2150634" target="_blank">东方定助 发表于 2024-9-16 14:29</a>
+这下4代主城保底也是和风复古风了吧</blockquote>
+斯普拉遁：起源<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

@@ -4789,3 +4789,29 @@ Splatoon（スプラトゥーン）
 
 2024-9-16 11:05 上传
 
+
+*****
+
+####  实津二三  
+##### 5385#       发表于 2024-9-16 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66218594&amp;ptid=2150634" target="_blank">墨染白泉 发表于 2024-9-16 10:58</a>
+小裁判猫十几亿鱼蛋，时光机随便造穿越回涂地大战争时期，新模式32人战场pvp堂堂登场 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/265.gif" referrerpolicy="no-referrer">开放世界斯普拉遁，巨大无缝地图上动态争夺地盘。
+
+*****
+
+####  Ryuuseigun  
+##### 5386#       发表于 2024-9-16 11:07
+
+4的话出来会不会预购<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我应该还会虽然运营💩但是确实玩法无可替代
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 5387#       发表于 2024-9-16 11:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">真有4也不预购了，2代入的坑三代就把滤镜全打碎了，想起来2022年两张券换的两个最期待的游戏都挺难绷的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

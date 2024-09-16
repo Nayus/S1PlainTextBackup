@@ -761,3 +761,14 @@ Day2情報環節結束。
 
 感觉其他几家接下来也会有xRlive了
 
+
+*****
+
+####  wfhtony  
+##### 6401#       发表于 2024-9-16 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66221834&amp;ptid=2130897" target="_blank">magicc 发表于 2024-9-16 19:41</a>
+
+感觉其他几家接下来也会有xRlive了</blockquote>
+灰的话疫情前搞过一次（[虽然不是xRlive名义，是与VR ZONE合作的](https://prtimes.jp/main/html/rd/p/000000031.000033062.html)），不知道之后万南会不会自己专门再搞一次。
+

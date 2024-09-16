@@ -4960,3 +4960,13 @@ Splatoon（スプラトゥーン）
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  KBAC  
+##### 5403#       发表于 2024-9-16 12:39
+
+啊对了，之后按理说还有私房祭典功能和祭典T恤复制，是不是不打算实装了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

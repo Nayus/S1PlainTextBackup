@@ -4676,3 +4676,42 @@ Splatoon（スプラトゥーン）
 
 四代题材估计会很有趣，说不定会和前三代有大的差异
 
+
+*****
+
+####  KBAC  
+##### 5374#       发表于 2024-9-16 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66218432&amp;ptid=2150634" target="_blank">yanglian72 发表于 2024-9-16 10:34</a>
+三代按最早的开发者访谈的说法就是三部曲的终结，集大成之作（好熟悉的说法）
+
+当初应该是为了被取消的加强 ...</blockquote>
+集大成把前两作都有的武器collection集没了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  苍蓝之枪  
+##### 5375#       发表于 2024-9-16 10:37
+
+还得是大润，我算了下工作日基本每天能打两只岗，休息日可能多点，这速度把名牌换出来还是得按年计
+
+*****
+
+####  罗克萨斯  
+##### 5376#       发表于 2024-9-16 10:39
+
+到最后内容丰富度还是比不上二代啊，没第二贴牌，武器花样还是差点意思（我想要跳点+饮料的消防栓啊啊）
+
+
+*****
+
+####  KBAC  
+##### 5377#       发表于 2024-9-16 10:43
+
+三代的主武器总数量最后只比二代多4把<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+研究所是觉得多4把也是多所以摆了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

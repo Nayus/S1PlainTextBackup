@@ -785,3 +785,19 @@ feel下资源只能到这水平吗<img src="https://static.saraba1st.com/image/s
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Skyline_R  
+##### 66#       发表于 2024-9-16 10:37
+
+已经做好远远不及格的心理准备了，主视觉图这么重要的东西LO都乱画。且不说什么角度看上去都很不统一啥的，这比石头缝还小的鞋子是不是有点太过分了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202409/16/103642yaghhcgkpy4hn6fs.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (99.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-16 10:36 上传
+

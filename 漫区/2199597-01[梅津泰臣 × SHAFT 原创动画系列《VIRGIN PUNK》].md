@@ -521,3 +521,13 @@ SHAFT居然能做这种正常风格的动画？配色没问题，一眼也看不
 
  泥潭新血液只认识蒜不认识梅津了？  应该是又能看到梅津的猥琐大叔猥亵女主了
 
+
+*****
+
+####  oskneo  
+##### 58#       发表于 2024-9-17 00:08
+
+kite liberator第二话什么时候出？<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

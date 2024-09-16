@@ -3050,3 +3050,15 @@ edit
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  smdzh2  
+##### 4751#       发表于 2024-9-16 18:38
+
+ 本帖最后由 smdzh2 于 2024-9-16 19:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66220906&amp;ptid=2160194" target="_blank">nozomitech 发表于 2024-9-16 18:30</a>
+这老哥太巨魔了，笑死我了，哈哈哈哈哈</blockquote>
+最后这个と很灵性，如果黑兔cv是高丽菜就能玩魔禁梗了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+“阿尔缇娜阿尔缇娜以炫耀的口气说道”
+

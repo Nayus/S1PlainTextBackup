@@ -5083,3 +5083,16 @@ epd5肯定是动森啊，然后动森出了咋也再等两年吧
 
 过去获胜，时代命题的一个侧漏<img src="https://static.saraba1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星野航  
+##### 5415#       发表于 2024-9-16 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66219894&amp;ptid=2150634" target="_blank">JOJOROY 发表于 2024-9-16 15:24</a>
+
+喷和动森的制作人员重合度不高</blockquote>
+也就制作人跟director重合度不高，实际干活的人肯定不少都是混着来的
+
+不然也不会出现野上多次跑出来说什么人手有限之类的话了
+

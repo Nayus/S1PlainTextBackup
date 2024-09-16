@@ -1121,3 +1121,27 @@ q娃人设没有主角几个精致，果然还是剧场版限定吧
 
 大福声音这么粗的吗<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bilibilius  
+##### 2224#       发表于 2024-9-16 16:17
+
+<img src="https://img.saraba1st.com/forum/202409/16/161637zceq6704oq0050q4.jpg" referrerpolicy="no-referrer">
+
+<strong>GXkO0IIaIAAjF1T.jpg</strong> (353.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-16 16:16 上传
+
+<img src="https://img.saraba1st.com/forum/202409/16/161648gkogypk47lxxn2ik.jpg" referrerpolicy="no-referrer">
+
+<strong>GXkO0INbQAAn5iT.jpg</strong> (315.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-16 16:16 上传
+
+现在大偶秀也和电影联动了啊
+

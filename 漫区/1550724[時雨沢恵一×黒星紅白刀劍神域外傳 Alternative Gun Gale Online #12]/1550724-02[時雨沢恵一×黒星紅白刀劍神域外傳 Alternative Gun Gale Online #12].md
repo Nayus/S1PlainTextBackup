@@ -24,3 +24,13 @@
 ♫OP「GG」#ReoNa
 [https://www.youtube.com/watch?v=y0v2lH6IRrc](https://www.youtube.com/watch?v=y0v2lH6IRrc)
 
+
+*****
+
+####  未向heart  
+##### 1879#       发表于 2024-9-16 15:54
+
+主角是agi型角色吧
+
+我记得sao本篇里说str型角色才是未来，主角是agi型，怎么克服弱势变强的啊
+

@@ -3607,3 +3607,24 @@ fz也是完结了几年才做动画，
 最先公开的怎么是闪恩，不知道的以为你俩才是主角呢</blockquote>
 最终卷AE闪估计确实戏份不少（和A闪还不是同一个人），但是中间几乎掉线了半本书的二人组<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 360#         楼主| 发表于 2024-9-16 15:59
+
+◤　　　　　　　　◥ 
+
+　　アニメ最新話
+
+　　放送決定！  
+
+◣　　　　　　　　◢
+
+2024年年末の放送に向けて鋭意制作中！
+
+続報をお楽しみに！
+
+<img src="https://p.sda1.dev/19/9a017c1143c5b3fd66ce3e409a33f53e/20240916_154726.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/d9fdf14a3c4ec8ebd4628167515b46b3/20240916_154728.jpg" referrerpolicy="no-referrer">
+

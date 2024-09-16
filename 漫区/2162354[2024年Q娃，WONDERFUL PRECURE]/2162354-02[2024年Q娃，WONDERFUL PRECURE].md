@@ -1145,3 +1145,19 @@ q娃人设没有主角几个精致，果然还是剧场版限定吧
 
 现在大偶秀也和电影联动了啊
 
+
+*****
+
+####  Piano-Forest  
+##### 2225#       发表于 2024-9-16 23:05
+
+[https://x.com/HiKARU_pontan/status/1835106821012701319](https://x.com/HiKARU_pontan/status/1835106821012701319)
+
+本日放送のわんだふるぷりきゅあ！第33話にて作画監督を担当させていただきました！担当箇所はOP前とEN前です。
+
+初作監の仕事をプリキュアシリーズで携われて幸せです︎💕︎
+<img src="https://p.sda1.dev/19/1d2f0c536eb78ba3b47871778bba9deb/20240916_230414.jpg" referrerpolicy="no-referrer">
+
+それから変身後のアクションLoも半分弱くらい担当させていただきました！
+<img src="https://p.sda1.dev/19/0cb47cf0d779b9e63cf19bdc28b1893c/20240916_230421.jpg" referrerpolicy="no-referrer">
+

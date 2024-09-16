@@ -4361,3 +4361,22 @@ NS运动是EPD4做的，喷是EPD5，跨组都算数的话，咋不直接说隔�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  幽香  
+##### 5345#       发表于 2024-9-16 08:06
+
+进入安可时间了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  hagiwara  
+##### 5346#       发表于 2024-9-16 08:09
+
+这次选了现在队，久违打了祭典到永远的，还赢了一场100倍（虽然我是被带着赢的丢人气球使）
+
+这次祭典氛围是真不错，有心了
+
+不过三色图还是没什么意思吧，现在队内战太多了
+

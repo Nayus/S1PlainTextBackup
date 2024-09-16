@@ -4496,3 +4496,79 @@ NS运动是EPD4做的，喷是EPD5，跨组都算数的话，咋不直接说隔�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Nez  
+##### 5358#       发表于 2024-9-16 10:09
+
+再见了，所有的洗衣机x4，导弹弓，螃蟹针管，电锯人，飞机圆珠笔，饮料僵尸，双雷新叶，鱼雷枫叶，rpg小绿，腱鞘炎香槟，雨帘52，塔上大王乌贼，延迟长热泡，发生连接错误
+
+制作组花了整个英雄模式+dlc剧情捧未来，结果被老登们打脸薄纱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KBAC  
+##### 5359#       发表于 2024-9-16 10:10
+
+这下斯普拉遁没有未来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  Kuebiko  
+##### 5360#       发表于 2024-9-16 10:13
+
+没有未来了😇
+
+
+*****
+
+####  KBAC  
+##### 5361#       发表于 2024-9-16 10:14
+
+刷偶像amiibo可以回祭典会场！现在就可以！
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  raii  
+##### 5362#       发表于 2024-9-16 10:14
+
+Splatoon（スプラトゥーン）
+
+@SplatoonJP
+
+1分钟
+
+発売から2年間と予告していた『スプラトゥーン3』への定期的なコンテンツ追加は終了となるが、「Splatoween」「Frosty Fest」「Spring Fest」「Summer Nights」については、一部のお題を復刻しながら今後も開催するぞ。
+
+また、ブキの性能変更などを含んだ更新データは、不定期に配信予定だ。(1/2)
+
+Splatoon（スプラトゥーン）
+
+@SplatoonJP
+
+1分钟
+
+ビッグランについても、過去に開催したものを順次復刻開催する予定だ。
+
+また、当面の間、バイトチームコンテストは新規の内容で開催するぞ。
+
+なお、ツキイチ・イベントマッチやバイトチームコンテストは、予告なく終了する場合があるので、ご了承いただきたい。(2/2)
+
+更新正式结束！赛季顺次复刻，平衡性调整不定期继续。大润复刻确定，团工会有新规，月一和团工终止时间未定。
+
+解散！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  carroy  
+##### 5363#       发表于 2024-9-16 10:15
+
+真的没有未来了
+复刻复刻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

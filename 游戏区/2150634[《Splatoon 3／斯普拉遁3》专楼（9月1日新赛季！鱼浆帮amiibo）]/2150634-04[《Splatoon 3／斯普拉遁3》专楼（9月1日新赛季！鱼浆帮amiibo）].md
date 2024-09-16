@@ -4738,3 +4738,54 @@ Splatoon（スプラトゥーン）
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  KBAC  
+##### 5380#       发表于 2024-9-16 10:57
+
+谁还记得针管的预告片配置是蜘蛛侠<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+可惜到最后都没有实装
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  墨染白泉  
+##### 5381#       发表于 2024-9-16 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66218412&amp;ptid=2150634" target="_blank">KBAC 发表于 2024-9-16 10:31</a>
+现在官宣的内容和我最坏的设想一模一样
+故意不出武器collection，赌五毛下一作是喷3dx。</blockquote>
+小裁判猫十几亿鱼蛋，时光机随便造<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KBAC  
+##### 5382#       发表于 2024-9-16 11:03
+
+仔细想了想这两年斯普拉遁3最难绷的还得是直面会就宣了个普通祭典。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  幽香  
+##### 5383#       发表于 2024-9-16 11:04
+
+未来0p实在有点惨<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蓮華  
+##### 5384#       发表于 2024-9-16 11:05
+
+<img src="https://img.saraba1st.com/forum/202409/16/110551dgqlwdx0agdbzwdl.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240916110535.png</strong> (5 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-16 11:05 上传
+

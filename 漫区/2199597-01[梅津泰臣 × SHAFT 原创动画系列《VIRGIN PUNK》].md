@@ -531,3 +531,13 @@ kite liberator第二话什么时候出？<img src="https://static.saraba1st.com/
 
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  東野圭吾  
+##### 59#       发表于 2024-9-17 00:20
+
+梅津泰臣加上高桥悠也，剧情这块是不用期望了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

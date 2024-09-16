@@ -5042,3 +5042,14 @@ epd5肯定是动森啊，然后动森出了咋也再等两年吧
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  hisousihou  
+##### 5411#       发表于 2024-9-16 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66220165&amp;ptid=2150634" target="_blank">Pumpkin_ccc 发表于 2024-9-16 15:10</a>
+
+用amibo回去感受下最后一天的演出氛围吧</blockquote>
+刷amiibo能看最后一天祭典？所有amiibo都可以吗
+

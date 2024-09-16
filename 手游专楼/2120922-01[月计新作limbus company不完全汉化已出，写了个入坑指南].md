@@ -710,3 +710,40 @@ lccb良被削了，三破或能白嫖40狂气</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">正好别的游戏长草，这几天事情也安排完了，尝试死亡冲刺把玛玛的EGO换出来
 
+
+*****
+
+####  Jamaisvu  
+##### 878#       发表于 2024-9-16 17:48
+
+新卡技能前瞻：
+
+<img src="https://img.saraba1st.com/forum/202409/16/174821sw02u75z53wpt138.jpg" referrerpolicy="no-referrer">
+
+<strong>468C90135E118DBD2597E3DB6232EBF1.jpg</strong> (383.98 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-16 17:48 上传
+
+<img src="https://img.saraba1st.com/forum/202409/16/174613n3op1p1e13q31qpk.jpg" referrerpolicy="no-referrer">
+
+<strong>44A3DFED345060FC82FD2D6E9107FFB4.jpg</strong> (339.72 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-16 17:46 上传
+
+<img src="https://img.saraba1st.com/forum/202409/16/174614rngntmirermnqrij.jpg" referrerpolicy="no-referrer">
+
+<strong>E3D0075B1D5A854FE5EEEDD77A1B8CC1.jpg</strong> (381.88 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-16 17:46 上传
+
+现在三星人均小作文，干脆多开俩罪孽属性然后引入新体系得了...
+

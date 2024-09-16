@@ -4572,3 +4572,72 @@ Splatoon（スプラトゥーン）
 真的没有未来了
 复刻复刻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天堂大法  
+##### 5364#       发表于 2024-9-16 10:16
+
+官方正式宣布，《斯普拉遁3》定期追加内容将结束，但部分祭典「Splatoween」「Frosty Fest」「Spring Fest」「Summer Nights」未来还将复刻举办。
+
+此外，包括武器性能调整等内容的更新将在未来不定期发布。
+
+大型跑活动未来也将复刻举办，团队打工竞赛将有新内容。「月一·活动比赛」和「团队打工竞赛」可能会在没有通知的情况下结束。
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">正式宣告结束
+
+*****
+
+####  幽灵部长助理  
+##### 5365#       发表于 2024-9-16 10:16
+
+研究所根本不会把未来0分当成什么信号的，继续在3的道路上一条道走到黑<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+说起来3代的路线又是什么呢，到最后都没明白，感觉只是瞎搞<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KBAC  
+##### 5366#       发表于 2024-9-16 10:16
+
+真就不出武器collection了，这下不如喷1了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  raii  
+##### 5367#       发表于 2024-9-16 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66218320&amp;ptid=2150634" target="_blank">幽灵部长助理 发表于 2024-9-16 10:16</a>
+
+研究所根本不会把未来0分当成什么信号的，继续在3的道路上一条道走到黑
+
+说起来3代的路线又是什么呢，到最后 ...</blockquote>
+3代核心只在于提高QOL并吸引更多新玩家
+
+不过从任天堂财报来看3代的销量半年前就停止公布了，目前还是没超过2代的状态<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KBAC  
+##### 5368#       发表于 2024-9-16 10:19
+
+刷偶像amiibo可以回祭典会场！现在就可以！
+祭典前半、后半、结束后的广场都可选！
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  美式咖啡  
+##### 5369#       发表于 2024-9-16 10:19
+
+上周的超级大润还会不会有
+
+*****
+
+####  Variks  
+##### 5370#       发表于 2024-9-16 10:20
+
+选的现在队，打了3天三色图，全在内斗，到昨天晚上想起来还没上神轿，去打了一把普通图，才终于见到其他队伍
+

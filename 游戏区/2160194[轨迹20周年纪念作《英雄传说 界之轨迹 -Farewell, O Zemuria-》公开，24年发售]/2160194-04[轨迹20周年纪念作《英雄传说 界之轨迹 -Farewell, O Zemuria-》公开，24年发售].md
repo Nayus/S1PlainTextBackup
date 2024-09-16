@@ -2742,3 +2742,14 @@ edit
 
 看了看前几年，16页特辑的话，应该只有纯粹人物介绍了，访谈不会有，系统篇幅就一页
 
+
+*****
+
+####  卢迪克  
+##### 4719#       发表于 2024-9-16 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66218279&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-16 10:11</a>
+
+看了看前几年，16页特辑的话，应该只有纯粹人物介绍了，访谈不会有，系统篇幅就一页 ...</blockquote>
+采访在26号和初期攻略一起
+

@@ -9464,3 +9464,41 @@ ID也几乎全员宣布参战了
 
 需要に応える姿勢はさすがやね</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">瞧你们搞得，熟米都直接煮成稀饭了
 
+
+*****
+
+####  holoan  
+##### 9675#         楼主| 发表于 2024-9-16 02:45
+
+<img src="https://img.saraba1st.com/forum/202409/16/024525u53as0emjrmg7sj6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (384.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-16 02:45 上传
+
+*****
+
+####  holoan  
+##### 9676#         楼主| 发表于 2024-9-16 18:49
+
+<img src="https://img.saraba1st.com/forum/202409/16/184917v8f174r4iat6y8f8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (67.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-16 18:49 上传
+
+*****
+
+####  holoan  
+##### 9677#         楼主| 发表于 2024-9-16 18:51
+
+提一下，
+
+现在探明的宣布对holoGTA分部门提供全程运营支援协助的这几位
+
+都是女的
+

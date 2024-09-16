@@ -384,3 +384,20 @@ SHAFT居然能做这种正常风格的动画？配色没问题，一眼也看不
 
 难怪高桥没去素晴3，原来跑这里来了
 
+
+*****
+
+####  Toby_dak  
+##### 42#       发表于 2024-9-16 18:54
+
+视觉图我有种辩魔士的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  洛克萨斯  
+##### 43#       发表于 2024-9-16 18:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">高桥啊，该让动画观众们感受下这些年特摄骑士粉丝们的痛苦了
+

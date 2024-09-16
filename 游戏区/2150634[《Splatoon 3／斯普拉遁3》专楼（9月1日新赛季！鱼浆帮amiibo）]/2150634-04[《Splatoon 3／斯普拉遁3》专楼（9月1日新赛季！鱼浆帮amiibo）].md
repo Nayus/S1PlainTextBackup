@@ -5133,3 +5133,15 @@ Fami对比过喷3和动森的制作人员重合是很少的，但是更多的原
 
 那么这个内容更新基本完了，是不是可以买一张来玩玩单机，联网估计不会玩
 
+
+*****
+
+####  罗克萨斯  
+##### 5420#       发表于 2024-9-16 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66221371&amp;ptid=2150634" target="_blank">哈尼马甲 发表于 2024-9-16 18:43</a>
+那么这个内容更新基本完了，是不是可以买一张来玩玩单机，联网估计不会玩 ...</blockquote>
+内容更新都是针对PVP和PVE的，单机其实没啥变化，除了多了个DLC可以刷刷
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

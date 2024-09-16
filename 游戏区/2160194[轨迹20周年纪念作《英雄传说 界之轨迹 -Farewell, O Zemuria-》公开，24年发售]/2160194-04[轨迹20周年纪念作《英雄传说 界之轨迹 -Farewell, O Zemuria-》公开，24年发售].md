@@ -3014,3 +3014,29 @@ edit
 
 不过还有个问题，除非共和国直接塞三个不然七至宝现在还没出场完，如果要让至宝全部出场那需要在系列最终篇前再加至少一个系列作
 
+
+*****
+
+####  nozomitech  
+##### 4749#       发表于 2024-9-16 17:30
+
+这老哥太巨魔了，笑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，哈哈哈哈哈
+
+<img src="https://img.saraba1st.com/forum/202409/16/103027qj3hyhjmcmqot1ch.jpg" referrerpolicy="no-referrer">
+
+<strong>F4D58AE2-E5ED-498B-90C3-B8B08CB06B9B.jpg</strong> (656.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-16 17:30 上传
+
+<img src="https://img.saraba1st.com/forum/202409/16/103026ig626hwg9gtz6t2c.jpg" referrerpolicy="no-referrer">
+
+<strong>25BAEF6C-8256-450B-AFB4-84690F6D0C2A.jpg</strong> (986.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-16 17:30 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -4848,3 +4848,18 @@ Splatoon（スプラトゥーン）
 
 4他最好是晚几年出，就EPD5这产能和祭典三色这种烂泥扶不上墙、不做验证就拍板上架，第一天发售就被迫改匹配机制的玩意儿，出得越早笑话越大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  墨染白泉  
+##### 5391#       发表于 2024-9-16 11:42
+
+之后应该会先出动森新作吧，喷4还早
+
+*****
+
+####  Ryuuseigun  
+##### 5392#       发表于 2024-9-16 11:45
+
+喷3DX或者4最大的期待就是对不对打工优化，打鲑鱼搬金蛋是真的没有任何替代，只要之后的新作还有打工玩法我还能买<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

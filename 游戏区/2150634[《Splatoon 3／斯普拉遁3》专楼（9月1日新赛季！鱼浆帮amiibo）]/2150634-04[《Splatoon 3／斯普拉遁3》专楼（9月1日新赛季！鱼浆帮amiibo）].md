@@ -4390,3 +4390,20 @@ NS运动是EPD4做的，喷是EPD5，跨组都算数的话，咋不直接说隔�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  KBAC  
+##### 5348#       发表于 2024-9-16 08:39
+
+今天的细节是主舞台的顶棚被烧没了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  yanglian72  
+##### 5349#       发表于 2024-9-16 08:43
+
+你们鱿鱼真是心大，这种重大消防事故居然还能开一晚上live
+

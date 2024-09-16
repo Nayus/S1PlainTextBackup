@@ -4990,3 +4990,17 @@ epd5肯定是动森啊，然后动森出了咋也再等两年吧
 
 到时候野上恒就不能再拿不出好玩的来了
 
+
+*****
+
+####  JOJOROY  
+##### 5406#       发表于 2024-9-16 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66219773&amp;ptid=2150634" target="_blank">星野航 发表于 2024-9-16 14:00</a>
+下一作至少也是3-4年起了
+
+epd5肯定是动森啊，然后动森出了咋也再等两年吧
+
+到时候野上恒就不能再拿不出好玩 ...</blockquote>
+喷和动森的制作人员重合度不高
+

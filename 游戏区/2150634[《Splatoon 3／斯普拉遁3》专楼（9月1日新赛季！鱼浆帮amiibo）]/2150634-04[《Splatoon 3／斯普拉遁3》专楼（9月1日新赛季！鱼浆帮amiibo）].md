@@ -5156,3 +5156,13 @@ Fami对比过喷3和动森的制作人员重合是很少的，但是更多的原
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  KBAC  
+##### 5422#       发表于 2024-9-17 02:11
+
+才发现个事，潮色和姬饭说话唱歌的口型和前作一样，是在几个固定的预设口型里来回切换（就像动森的小动物那样），而鱼浆帮的口型则是流畅的动作。七个人一起唱歌的时候就明显能看出来鱼浆帮能做出更丰富的表情。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

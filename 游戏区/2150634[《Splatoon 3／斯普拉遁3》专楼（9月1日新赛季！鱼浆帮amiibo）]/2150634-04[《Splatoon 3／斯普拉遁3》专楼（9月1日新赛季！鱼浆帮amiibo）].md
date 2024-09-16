@@ -4407,3 +4407,40 @@ NS运动是EPD4做的，喷是EPD5，跨组都算数的话，咋不直接说隔�
 
 你们鱿鱼真是心大，这种重大消防事故居然还能开一晚上live
 
+
+*****
+
+####  KBAC  
+##### 5350#       发表于 2024-9-16 08:47
+
+卡了一下bug想看水田的眼睛，发现根本没建模，眼镜都是只建了半边的模<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  shirolin  
+##### 5351#       发表于 2024-9-16 08:50
+
+被束缚在过去的四天王
+
+<img src="https://img.saraba1st.com/forum/202409/16/084958v5i5b5sgzsggdggq.jpg" referrerpolicy="no-referrer">
+
+<strong>20240916_081950.jpg</strong> (63.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-16 08:49 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  墨染白泉  
+##### 5352#       发表于 2024-9-16 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66217834&amp;ptid=2150634" target="_blank">shirolin 发表于 2024-9-16 08:50</a>
+被束缚在过去的四天王</blockquote>
+一代老登真哈人
+

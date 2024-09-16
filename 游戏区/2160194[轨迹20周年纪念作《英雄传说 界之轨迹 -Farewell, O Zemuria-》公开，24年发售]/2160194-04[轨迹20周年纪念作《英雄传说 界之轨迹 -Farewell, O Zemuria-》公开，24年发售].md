@@ -2753,3 +2753,13 @@ edit
 看了看前几年，16页特辑的话，应该只有纯粹人物介绍了，访谈不会有，系统篇幅就一页 ...</blockquote>
 采访在26号和初期攻略一起
 
+
+*****
+
+####  Aeons  
+##### 4720#       发表于 2024-9-16 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66218337&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-16 10:20</a>
+太极在26号和初期攻略一起，黎2和ysx的都是在售前特辑里，界轨跑发售特辑里了，晚了一周 ...</blockquote>
+即便没有访谈，这篇幅除了人物介绍也没什么了
+

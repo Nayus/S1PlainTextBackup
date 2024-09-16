@@ -4641,3 +4641,38 @@ Splatoon（スプラトゥーン）
 
 选的现在队，打了3天三色图，全在内斗，到昨天晚上想起来还没上神轿，去打了一把普通图，才终于见到其他队伍
 
+
+*****
+
+####  Junchoon  
+##### 5371#       发表于 2024-9-16 10:27
+
+终于还是结束了啊，昨天晚上听到大家说可能是最后的了就又爬起来打了1小时，还赢了把百倍。
+
+想来喷3我有好多遗憾啊......
+
+*****
+
+####  KBAC  
+##### 5372#       发表于 2024-9-16 10:31
+
+现在官宣的内容和我最坏的设想一模一样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+故意不出武器collection，赌五毛下一作是喷3dx。
+
+话说其实以过去为主题很好办，英雄模式就坐时光机回去打大涂地战争。鱿鱼章鱼那绿皮科技搞个时光机应该不难...吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+大涂地战争的时间点差不多是现实世界的一战，也是正好是大正年代，大正风喷喷可太有意思了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  yanglian72  
+##### 5373#       发表于 2024-9-16 10:34
+
+三代按最早的开发者访谈的说法就是三部曲的终结，集大成之作（好熟悉的说法）
+
+当初应该是为了被取消的加强版机子准备的，加强版取消了三代只能硬着头皮上了
+
+四代题材估计会很有趣，说不定会和前三代有大的差异
+

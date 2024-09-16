@@ -569,3 +569,13 @@ kite liberator第二话什么时候出？<img src="https://static.saraba1st.com/
 南希打枪啊</blockquote>
 南希主要也是靠穿墙，老实打枪的不就一个金毛男，其他人都是超能力乱斗
 
+
+*****
+
+####  cmyk1234  
+##### 63#       发表于 2024-9-17 07:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66220691&amp;ptid=2199597" target="_blank">Sliurus 发表于 2024-9-16 16:48</a>
+又看了遍pv，女主穿着病号服在医院，不清楚自己的身体发生了什么，后续各种动作戏，不会是杀死比尔吧 ...</blockquote>
+有高桥悠也当编剧不好说，女主也有可能是灭亡迅雷类型的人设。
+

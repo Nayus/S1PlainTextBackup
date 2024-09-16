@@ -503,3 +503,13 @@ SHAFT居然能做这种正常风格的动画？配色没问题，一眼也看不
 
 又是这个相似的人设...梅津泰臣也是一个女演员用到死是吧？
 
+
+*****
+
+####  イシュハラ  
+##### 56#       发表于 2024-9-16 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66222512&amp;ptid=2199597" target="_blank">没取名啊 发表于 2024-9-16 21:17</a>
+秘密组织，女人贴贴，打枪，然后突然冒出个男人和女主角暧昧，蒜祖宗其实是读或死吧 ...</blockquote>
+读或死又不打枪
+

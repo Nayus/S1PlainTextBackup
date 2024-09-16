@@ -737,3 +737,27 @@ Day2情報環節結束。
 
 有日花拿走儿力口红吗？
 
+
+*****
+
+####  wfhtony  
+##### 6399#       发表于 2024-9-16 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66221782&amp;ptid=2130897" target="_blank">冰寒之月 发表于 2024-9-16 19:35</a>
+
+给人感觉不是单纯唱歌的live活动
+
+而是用3d模型复刻SC嘘组米组活动剧情啥的？
+
+有日花拿走儿力口红吗？ ...</blockquote>
+看到[官博發的通告](https://idolmaster-official.jp/news/01_12666)了，確認本場公演爲xRlive。
+
+具體可參考本家今年的兩場xRlive（三月的「半月」和八月的「961 ReFLAME」）。
+
+*****
+
+####  magicc  
+##### 6400#       发表于 2024-9-16 19:41
+
+感觉其他几家接下来也会有xRlive了
+

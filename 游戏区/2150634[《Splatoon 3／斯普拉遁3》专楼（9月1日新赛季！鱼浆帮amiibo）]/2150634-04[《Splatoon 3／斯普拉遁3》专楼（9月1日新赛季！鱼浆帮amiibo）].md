@@ -4380,3 +4380,13 @@ NS运动是EPD4做的，喷是EPD5，跨组都算数的话，咋不直接说隔�
 
 不过三色图还是没什么意思吧，现在队内战太多了
 
+
+*****
+
+####  KBAC  
+##### 5347#       发表于 2024-9-16 08:32
+
+才发现莎莎和曼曼的小板凳高度是不一样的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

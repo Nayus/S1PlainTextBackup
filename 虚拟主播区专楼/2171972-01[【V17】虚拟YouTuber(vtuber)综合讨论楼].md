@@ -3432,3 +3432,11 @@ plave也没打算跟这些破打游戏的男管人比，定位就是跟真人kpo
 
 不过这样满打满算也就50来人，再加上还有约1/3是EN，作为GTA这种RP游戏交流困难，实际上可能是30几+10几……感觉真的很崩
 
+
+*****
+
+####  渡鸦骑士  
+##### 747#       发表于 2024-9-16 08:29
+
+kanaira居然还进了VCRMC服<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

@@ -2974,3 +2974,43 @@ edit
 
 可能就是单纯地避免在队时间过长变成背景板和复读机<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 4746#       发表于 2024-9-16 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66218718&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-16 11:16</a>
+
+是哦画了倒数图pv埋得更死了</blockquote>
+伊苏没op，轨迹没正式pv ，一碗水端平
+
+
+*****
+
+####  一步成诗  
+##### 4747#       发表于 2024-9-16 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66220735&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-16 16:56</a>
+
+伊苏没op，轨迹没正式pv ，一碗水端平</blockquote>
+新的头牌即将诞生，伊苏轨迹都靠边<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  andychen  
+##### 4748#       发表于 2024-9-16 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66197726&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-13 20:13</a>
+
+界轨版本
+
+荒芜化，详情不明
+
+未公开大陆东部以及结社等未解之谜值得关注</blockquote>
+感谢分享，界轨这个我以前没看过
+
+我觉得大陆东部之前的铺垫少，直到黎轨才有点正面描写。考虑到近藤说的进度要从头再讲新故事篇幅可能要出问题，要是剩下10%的系列戏份的话应该直接转入跟核心谜题相关的地区
+
+不过还有个问题，除非共和国直接塞三个不然七至宝现在还没出场完，如果要让至宝全部出场那需要在系列最终篇前再加至少一个系列作
+

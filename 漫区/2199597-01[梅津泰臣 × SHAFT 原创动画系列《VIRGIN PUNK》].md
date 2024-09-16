@@ -416,3 +416,14 @@ SHAFT居然能做这种正常风格的动画？配色没问题，一眼也看不
 
 又会是破鞋女主吗？
 
+
+*****
+
+####  wizardry  
+##### 46#       发表于 2024-9-16 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66221601&amp;ptid=2199597" target="_blank">Dai-Dai-Dai-Dai 发表于 2024-9-16 19:14</a>
+
+又会是破鞋女主吗？</blockquote>
+朋克题材，怕不会又玩次强音那套脑残操作……
+

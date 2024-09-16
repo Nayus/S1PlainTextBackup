@@ -4941,3 +4941,22 @@ Splatoon（スプラトゥーン）
 
 我看国内还是国外统计，大部分都是腕儿姐妹能占到总得票数的几乎一半啊，本来以为现在稳赢的
 
+
+*****
+
+####  实津二三  
+##### 5401#       发表于 2024-9-16 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66219114&amp;ptid=2150634" target="_blank">Beleth 发表于 2024-9-16 12:15</a>
+我看国内还是国外统计，大部分都是腕儿姐妹能占到总得票数的几乎一半啊，本来以为现在稳赢的 ...</blockquote>
+事实上现在派得票率是57.36%啊，比一半还多。大概过去派强者太多了吧。
+
+*****
+
+####  KBAC  
+##### 5402#       发表于 2024-9-16 12:24
+
+大厅点歌并没有收录三色最后一分钟夺取信标后的版本，可惜。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

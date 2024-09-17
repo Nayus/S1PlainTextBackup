@@ -9649,3 +9649,32 @@ GTA参加总人数
 
 sololive，和这次的holoGTA
 
+
+*****
+
+####  holoan  
+##### 9688#         楼主| 发表于 2024-9-17 00:30
+
+<img src="https://img.saraba1st.com/forum/202409/17/003024c07mbvabaofnd0vw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (34.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-17 00:30 上传
+
+*****
+
+####  holoan  
+##### 9689#         楼主| 发表于 2024-9-17 10:49
+
+<img src="https://img.saraba1st.com/forum/202409/17/104739py0m4b5ebheq4q0f.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (70.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-17 10:47 上传
+
+对于一些顽固分子有没有用不知道，总之还是感谢一下，虽然miko运营侧也无数次给参加企划的holomem打预防针并且给他们用来置顶在评论区的观众注意事项用模板
+

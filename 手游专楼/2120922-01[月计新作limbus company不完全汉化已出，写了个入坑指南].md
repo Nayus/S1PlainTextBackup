@@ -765,3 +765,13 @@ lccb良被削了，三破或能白嫖40狂气</blockquote>
 
 贴吧有人转了金总监的采访录，感兴趣可以看看月计的成长史，都挺不容易啊<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Yuzutea  
+##### 881#       发表于 2024-9-18 00:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下沾上破裂了
+
+希望是后面准备补吧，现在k宝这种也够原始人的了
+

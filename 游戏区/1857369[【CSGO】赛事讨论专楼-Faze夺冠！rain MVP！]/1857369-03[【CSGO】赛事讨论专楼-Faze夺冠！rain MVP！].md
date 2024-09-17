@@ -64,3 +64,12 @@ what can i say？bro out！
 
 捏妈个逼怎么把批点弄来了啊，我人晕了，看见device去NIP都没有这次这么晕<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ispep  
+##### 4438#       发表于 2024-9-18 00:23
+
+黑了两年p点，家被偷了
+无语了
+

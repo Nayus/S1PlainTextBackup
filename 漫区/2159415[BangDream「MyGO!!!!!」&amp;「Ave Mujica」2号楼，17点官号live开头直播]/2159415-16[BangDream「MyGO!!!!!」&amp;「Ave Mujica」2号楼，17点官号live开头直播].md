@@ -9448,3 +9448,12 @@ lsl入住B站了
 身在狗团心在鸡，还有线下庆生的</blockquote>
 看zb提醒后面窗子里人好像某人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 23059#       发表于 2024-9-17 19:21
+
+永山もも MyGO!!!!! 翻唱『Girls Band Cry』OP主题歌『雑踏、僕らの街』纪念绘
+<img src="https://p.sda1.dev/19/fecc316689e4180925f74aa6031d152a/image.jpg" referrerpolicy="no-referrer">
+

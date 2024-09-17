@@ -1413,3 +1413,41 @@ An unsafe railgun shot will deal 1500/562.5 (damage/durable). For reference a co
 
 - 有些敌人流血致死将无法推进个人指令和清除任务的进度。</blockquote>
 
+
+*****
+
+####  风萧飒  
+##### 5379#       发表于 2024-9-17 17:15
+
+最关键的一点：很多重甲单位变4甲了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  DawnGuardian  
+##### 5380#       发表于 2024-9-17 17:24
+
+感觉对ar的加强还是治标不治本，这类实弹武器应该增加一定的单位穿透才行
+
+*****
+
+####  赤井稻妻  
+##### 5381#       发表于 2024-9-17 17:31
+
+重机枪：现在知道谁是老大了厚
+
+*****
+
+####  FLZB  
+##### 5382#       发表于 2024-9-17 17:35
+
+激光大炮能破甲，要上天了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rainknine  
+##### 5383#       发表于 2024-9-17 17:36
+
+我一直都是重机枪支架信徒啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

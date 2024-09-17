@@ -1587,3 +1587,15 @@ An unsafe railgun shot will deal 1500/562.5 (damage/durable). For reference a co
 
 虽然武器增强了但还是顶不住战斗强度陡升，打到关底漫山遍野的怪不间断刷新在玩家周围，拉了警报一旦清理速度跟不上就会被滚雪球越打越多直接打崩再起不能，战备冷却速度都跟不上刷怪速度，这刷新机制不改再加强游戏体验都是一坨。
 
+
+*****
+
+####  艾诺琳  
+##### 5398#       发表于 2024-9-18 07:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66231479&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-9-18 05:16</a>
+虽然武器增强了但还是顶不住战斗强度陡升，打到关底漫山遍野的怪不间断刷新在玩家周围，拉了警报一旦清理速 ...</blockquote>
+现在用轨道燃烧弹压黄烟很爽，能活着出来的都是重甲，用桶子等着就是
+
+2个人带交替使用就行了
+

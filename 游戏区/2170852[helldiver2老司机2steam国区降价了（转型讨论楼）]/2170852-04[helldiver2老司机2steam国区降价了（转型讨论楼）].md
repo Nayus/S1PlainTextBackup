@@ -1579,3 +1579,11 @@ An unsafe railgun shot will deal 1500/562.5 (damage/durable). For reference a co
 
 震荡解放者也很好用了，硬控追踪虫，追猎的出生飞扑能半空拦截，伤害也够看。另外我看不懂为什么低射速的震荡解放者有60发弹匣而高射速泼水的普通解放者只有45发<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FLZB  
+##### 5397#       发表于 2024-9-18 05:16
+
+虽然武器增强了但还是顶不住战斗强度陡升，打到关底漫山遍野的怪不间断刷新在玩家周围，拉了警报一旦清理速度跟不上就会被滚雪球越打越多直接打崩再起不能，战备冷却速度都跟不上刷怪速度，这刷新机制不改再加强游戏体验都是一坨。
+

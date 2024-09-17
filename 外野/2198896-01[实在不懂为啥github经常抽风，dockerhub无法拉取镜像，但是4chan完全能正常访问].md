@@ -615,3 +615,11 @@ dockerhub只是官网封了，命令行拉取还是正常的吧。国内镜像�
 本地安好导出传上去？</blockquote>
 是的 现在是纯docker load image的，全都本地挂科学做好环境，云端映射一下volume， 编译完的项目直接外部替换上去，就是改镜像都要每次ssh推一个超大号的压缩包过去，没有以前compose + dockerfile管理方便
 
+
+*****
+
+####  bestwood  
+##### 57#       发表于 2024-9-17 20:43
+
+说起来4chan那边游戏分类的子版块怎么越来越多，之前没注意，刚发现连RPG和策略都专门有版，是这些年玩游戏的越来越多了还是讨论环境越来越差必须额外开设化粪池<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

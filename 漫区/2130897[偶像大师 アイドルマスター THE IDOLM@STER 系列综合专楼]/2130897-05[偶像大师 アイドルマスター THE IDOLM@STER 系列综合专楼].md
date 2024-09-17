@@ -772,3 +772,44 @@ Day2情報環節結束。
 感觉其他几家接下来也会有xRlive了</blockquote>
 灰的话疫情前搞过一次（[虽然不是xRlive名义，是与VR ZONE合作的](https://prtimes.jp/main/html/rd/p/000000031.000033062.html)），不知道之后万南会不会自己专门再搞一次。
 
+
+*****
+
+####  Ask_10A  
+##### 6402#       发表于 2024-9-17 20:37
+
+<img src="https://img.saraba1st.com/forum/202409/17/203705xz4nojpc4dd1on1a.png" referrerpolicy="no-referrer">
+
+<strong>L9OBE($(`5L67W31Q@5%F_tmb.png</strong> (254.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-17 20:37 上传
+
+BL_DI3VR9L1PN(K(MQJY$6V.jpg
+(217.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-17 20:37 上传
+
+<img src="https://img.saraba1st.com/forum/202409/17/203709ydy7gltu7zo66gr6.jpg" referrerpolicy="no-referrer">
+
+L13_`}9ERGU@{MX]VGED)(1_tmb.jpg
+(229.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-17 20:37 上传
+
+<img src="https://img.saraba1st.com/forum/202409/17/203711ot39xlcxaaooe9xe.jpg" referrerpolicy="no-referrer">
+
+K6C03%]E)9(VOF]G}ZKYDJ0_tmb.jpg
+(179.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-17 20:37 上传
+
+<img src="https://img.saraba1st.com/forum/202409/17/203713wksk8nzxh1b009n7.jpg" referrerpolicy="no-referrer">
+

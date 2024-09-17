@@ -1451,3 +1451,40 @@ An unsafe railgun shot will deal 1500/562.5 (damage/durable). For reference a co
 
 我一直都是重机枪支架信徒啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xinfengj  
+##### 5384#       发表于 2024-9-17 17:58
+
+ 本帖最后由 xinfengj 于 2024-9-17 18:01 编辑 
+
+爆裂铳改完打出去基本就是手雷效果了，正好进了一个绿胖模版，一队绿食腐虫一枪全炸，绿胖打肚子一枪还能连带炸到旁边的，现在还是会有破片飞出来打到自己，但是是黄色的了，重甲掉三分之一血左右。
+
+磁轨崩蘑菇和飞龙塔快多了，反重甲感觉N10蓄力时间窗口不太够，第一枪打完第二枪蓄着就有小虫子上身边了
+
+*****
+
+####  艾诺琳  
+##### 5385#       发表于 2024-9-17 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66227865&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-9-17 17:58</a>
+爆裂铳改完打出去基本就是手雷效果了，正好进了一个绿胖模版，一队绿食腐虫一枪全炸，绿胖打肚子一枪还能连 ...</blockquote>
+这么爽？
+
+*****
+
+####  风萧飒  
+##### 5386#       发表于 2024-9-17 19:49
+
+打了把n10挺爽的，除了敌人输出变高了，现在有点脆很考验走位
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Jabeck  
+##### 5387#       发表于 2024-9-17 20:17
+
+重机**还是太少，用得不爽。
+

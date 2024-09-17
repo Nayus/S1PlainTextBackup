@@ -9412,3 +9412,20 @@ lsl入住B站了
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66221951&amp;ptid=2159415" target="_blank">MASKA-1 发表于 2024-9-16 19:54</a></blockquote>
 吉他溢出了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 23056#       发表于 2024-9-17 13:40
+
+身在狗团心在鸡，还有线下庆生的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+1475BDEB-5CFE-42B3-91B8-BE5F59DDE973.jpeg
+(150.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-17 13:40 上传
+
+<img src="https://img.saraba1st.com/forum/202409/17/134050qmyyqjzjjk84y6fq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

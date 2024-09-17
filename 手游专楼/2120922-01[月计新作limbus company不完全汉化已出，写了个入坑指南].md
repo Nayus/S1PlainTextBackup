@@ -755,3 +755,13 @@ lccb良被削了，三破或能白嫖40狂气</blockquote>
 
 想回坑，想问问楼友有什么好的交流群吗
 
+
+*****
+
+####  Jamaisvu  
+##### 880#       发表于 2024-9-17 21:33
+
+金志勋专访：唯有在游戏中、我们才能“原谅”：[https://tieba.baidu.com/p/9178500605](https://tieba.baidu.com/p/9178500605)
+
+贴吧有人转了金总监的采访录，感兴趣可以看看月计的成长史，都挺不容易啊<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

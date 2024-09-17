@@ -544,3 +544,13 @@ dockerhub只是官网封了，命令行拉取还是正常的吧。国内镜像�
 命令行也不正常
 我都想放弃docker了，现在在云端部署容器麻烦的要死
 
+
+*****
+
+####  hugosol  
+##### 51#       发表于 2024-9-17 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66226716&amp;ptid=2198896" target="_blank"> すぴぱら 发表于 2024-9-17 14:56</a> OVTVO 发表于 2024-9-17 11:49 dockerhub只是官网封了，命令行拉取还是正常的吧。国内镜像是封了。  —— 来自 鹅球 v3.1.88.2-alpha ... 命令行也不正常 我都想放弃docker了，现在在云端部署容器麻烦的要死 </blockquote>
+可以自己指定仓库吧？
+话又说回来每次在国内想体验这类服务又发现需要改一堆配置才能正常执行，总感觉自己是技术世界的二等公民<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">来自: iPhone客户端
+

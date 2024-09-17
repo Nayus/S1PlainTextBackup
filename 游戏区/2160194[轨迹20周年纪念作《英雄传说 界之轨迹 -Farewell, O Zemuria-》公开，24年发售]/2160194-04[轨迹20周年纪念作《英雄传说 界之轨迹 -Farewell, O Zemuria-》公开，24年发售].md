@@ -3261,3 +3261,29 @@ edit
 
 今天是师姐
 
+
+*****
+
+####  隔壁老黄  
+##### 4772#       发表于 2024-9-17 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66225057&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-17 10:28</a>
+考虑到直接砍了可能1-2个篇章，为什么不是风水时三合一呢（）</blockquote>
+因为东边的都市圈很明显界轨不会涉及到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+
+*****
+
+####  隔壁老黄  
+##### 4773#       发表于 2024-9-17 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66225059&amp;ptid=2160194" target="_blank">言嘉 发表于 2024-9-17 10:29</a>
+空零闪的至宝曝光前有任何一丁点相关剧情透过吗？拿零碧举例，零的回溯和幻至宝的认知有一丁点关联吗？
+
+f ...</blockquote>
+幻还行吧，因为是心想事成的能力，读档也算是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

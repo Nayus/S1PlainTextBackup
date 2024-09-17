@@ -3440,3 +3440,13 @@ plave也没打算跟这些破打游戏的男管人比，定位就是跟真人kpo
 
 kanaira居然还进了VCRMC服<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  poipanchao  
+##### 748#       发表于 2024-9-17 10:36
+
+最近ramu跟透一起玩的时候偶尔会有透的anti定型文飘过，这么执着的吗
+
+话说透是不是Idios内部不仲了，好像没怎么见过组合联动
+

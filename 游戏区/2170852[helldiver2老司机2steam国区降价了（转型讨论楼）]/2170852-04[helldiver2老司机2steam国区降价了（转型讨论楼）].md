@@ -1488,3 +1488,47 @@ An unsafe railgun shot will deal 1500/562.5 (damage/durable). For reference a co
 
 重机**还是太少，用得不爽。
 
+
+*****
+
+####  YY骑士  
+##### 5388#       发表于 2024-9-17 20:35
+
+无后座力炮是什么情况？刚刚上去试了一盘难度8，打泰坦头1发秒，身体2发<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+1号位用的破裂者，感觉舒服不少，爆炸狙还没来得及用就被无后座力炮给惊呆了。
+
+*****
+
+####  风萧飒  
+##### 5389#       发表于 2024-9-17 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66229104&amp;ptid=2170852" target="_blank">YY骑士 发表于 2024-9-17 20:35</a>
+无后座力炮是什么情况？刚刚上去试了一盘难度8，打泰坦头1发秒，身体2发
+
+1号位用的破裂者，感觉舒服不少， ...</blockquote>
+无后座现在伤害好像是3200
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  rainknine  
+##### 5390#       发表于 2024-9-17 21:58
+
+西线感觉
+不对劲
+
+巨型者的火箭换成了小炮台的同款炮
+打轻甲直接秒杀
+
+箭头失去了坦克虫这个爹之后
+把全部的孝心给了机器人<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xinfengj  
+##### 5391#       发表于 2024-9-17 22:11
+
+蛋盾免疫近战攻击可还行，东线潜兵强如鬼神了
+

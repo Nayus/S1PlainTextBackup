@@ -478,3 +478,19 @@ dockerhub时不时就不能用真的很难绷
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  alacab  
+##### 45#       发表于 2024-9-17 09:21
+
+大概默认能看英文的都有点辨别能力。
+
+以前也是综艺-电视剧-电影-杂志-小说-严肃文学
+
+一个比一个审核标准低，纯文学搞点颜色，直球辱骂塔的内容都完全没问题。
+
+综艺被管的像小朋友一样，头发颜色都管。
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

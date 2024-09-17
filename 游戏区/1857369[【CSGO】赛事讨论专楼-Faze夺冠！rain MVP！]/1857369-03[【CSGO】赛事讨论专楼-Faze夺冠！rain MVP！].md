@@ -81,3 +81,11 @@ what can i say？bro out！
 
 睡前看了一眼新闻给我眼睛都看瞎了
 
+
+*****
+
+####  heseran  
+##### 4440#       发表于 2024-9-18 00:47
+
+br0五月份赢了液体接受采访还在说很高兴为了蛇鼠战胜了点，结果9月就被踢了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，太搞笑了🤡
+

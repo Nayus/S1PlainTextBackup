@@ -554,3 +554,17 @@ dockerhub只是官网封了，命令行拉取还是正常的吧。国内镜像�
 可以自己指定仓库吧？
 话又说回来每次在国内想体验这类服务又发现需要改一堆配置才能正常执行，总感觉自己是技术世界的二等公民<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">来自: iPhone客户端
 
+
+*****
+
+####  すぴぱら  
+##### 52#       发表于 2024-9-17 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66226749&amp;ptid=2198896" target="_blank">hugosol 发表于 2024-9-17 15:01</a>
+可以自己指定仓库吧？
+话又说回来每次在国内想体验这类服务又发现需要改一堆配置才能正常执行，总感觉自 ...</blockquote>
+举个例子 我们的容器需要基于一个aspnet core 8.0的debian base来构建并往里面加入nodejs和python的运行时把这些环境都打进一个里面，首先这.net core的基础镜像就基本下不下来 只能几kb的拖，因为太冷了一般的镜像源没这东西， 现在免费的源基本都关了
+下载也是看运气，写dockerfile换源突出一个难写
+
+而且因为某些限制 不能在云端安装那种科学工具来下依赖
+

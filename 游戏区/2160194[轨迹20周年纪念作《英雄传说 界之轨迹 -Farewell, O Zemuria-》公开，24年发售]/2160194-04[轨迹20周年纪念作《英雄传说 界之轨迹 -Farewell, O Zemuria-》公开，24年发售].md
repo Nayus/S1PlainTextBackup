@@ -3389,3 +3389,40 @@ f ...</blockquote>
 
 在发售前加的补丁也不算没做完吧，除非发售日还有追加新演出<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 4780#       发表于 2024-9-17 14:47
+
+TVゲーム新作予約ランキング（2024/9/15 閉店時点）
+
+1NSw・PS5　ドラゴンクエストIII　そして伝説へ…
+
+2NSw　ゼルダの伝説 知恵のかりもの
+
+3PS5・PS4　メタファー：リファンタジオ(通常版)
+
+4PS5・PS4　英雄伝説 界の軌跡 -Farewell， O Zemuria- Limited Edition
+
+5NSw・PS5・PS4　ロマンシング サガ2リベンジオブザセブン
+
+6PS5　プロ野球スピリッツ2024-2025
+
+7PS5　ドラゴンボール Sparking! ZERO
+
+8NSw・PS5・PS4　EA SPORTS FC25
+
+9NSw　かまいたちの夜×3
+
+10NSw　スーパーマリオパーティジャンボリー
+
+*****
+
+####  alucardcz  
+##### 4781#       发表于 2024-9-17 14:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">蒸汽玩家表示一点都不慌 每次都是改完后的最终版（
+
+另外真没pv了？
+

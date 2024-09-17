@@ -523,3 +523,24 @@ dockerhub只是官网封了，命令行拉取还是正常的吧。国内镜像�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.2-alpha
 
+
+*****
+
+####  乌啦啦乌啦啦乌  
+##### 49#       发表于 2024-9-17 14:47
+
+粪坑有自己的能量场吧
+
+
+*****
+
+####  すぴぱら  
+##### 50#       发表于 2024-9-17 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66225537&amp;ptid=2198896" target="_blank">OVTVO 发表于 2024-9-17 11:49</a>
+dockerhub只是官网封了，命令行拉取还是正常的吧。国内镜像是封了。
+
+—— 来自 鹅球 v3.1.88.2-alpha ...</blockquote>
+命令行也不正常
+我都想放弃docker了，现在在云端部署容器麻烦的要死
+

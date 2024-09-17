@@ -81,3 +81,22 @@ PS2
 
 居然提前开下篇了，之前那么拖是个人都看不下去了吧笑死
 
+
+*****
+
+####  alucardcz  
+##### 14616#       发表于 2024-9-17 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66227722&amp;ptid=2084912" target="_blank">angelooo 发表于 2024-9-17 17:39</a>
+
+居然提前开下篇了，之前那么拖是个人都看不下去了吧笑死</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不如猜猜下篇有多少 不会来个6节不到直接没了吧
+
+
+*****
+
+####  alucardcz  
+##### 14617#       发表于 2024-9-17 17:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">报告 ios18能运行
+

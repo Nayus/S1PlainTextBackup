@@ -9697,3 +9697,41 @@ sololive，和这次的holoGTA
 
 另一个就是国际化语言交流的问题，看上去事前运营有提前教一些简单的英语词汇但是实际运用的时候是怎么样的呢
 
+
+*****
+
+####  holoan  
+##### 9692#         楼主| 发表于 2024-9-17 16:48
+
+突然想起来为什么之前7大豆的时候并不是每天晚上的练习所有人都要参加
+
+有时候是这几个有时候是另外几个，原来是按职业分不同日子单独教学练习
+
+*****
+
+####  holoan  
+##### 9693#         楼主| 发表于 2024-9-17 17:51
+
+<img src="https://img.saraba1st.com/forum/202409/17/175139h3736kzkmyvk7bsk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (62.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-17 17:51 上传
+
+散步一小时
+
+*****
+
+####  holoan  
+##### 9694#         楼主| 发表于 2024-9-17 17:53
+
+<img src="https://img.saraba1st.com/forum/202409/17/175300g5s17e0sz9s8y7uw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (77.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-17 17:53 上传
+

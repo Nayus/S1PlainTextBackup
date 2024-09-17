@@ -1161,3 +1161,15 @@ q娃人设没有主角几个精致，果然还是剧场版限定吧
 それから変身後のアクションLoも半分弱くらい担当させていただきました！
 <img src="https://p.sda1.dev/19/0cb47cf0d779b9e63cf19bdc28b1893c/20240916_230421.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 2226#       发表于 2024-9-17 16:50
+
+贴吧有人搞了糸麦くん的猫组小漫画，推荐大家看一看
+
+#1: [https://tieba.baidu.com/p/9138620051](https://tieba.baidu.com/p/9138620051)
+
+译者页：[https://tieba.baidu.com/home/mai ... 725382239&amp;fr=pb](https://tieba.baidu.com/home/main?id=tb.1.46831f51.AhxRBShpVXMcPnHStMpMnQ?t=1725382239&amp;fr=pb)
+

@@ -605,3 +605,13 @@ dockerhub只是官网封了，命令行拉取还是正常的吧。国内镜像�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  すぴぱら  
+##### 56#       发表于 2024-9-17 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66227207&amp;ptid=2198896" target="_blank">天冬氨酸 发表于 2024-9-17 16:27</a>
+本地安好导出传上去？</blockquote>
+是的 现在是纯docker load image的，全都本地挂科学做好环境，云端映射一下volume， 编译完的项目直接外部替换上去，就是改镜像都要每次ssh推一个超大号的压缩包过去，没有以前compose + dockerfile管理方便
+

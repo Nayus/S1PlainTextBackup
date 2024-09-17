@@ -3295,3 +3295,33 @@ f ...</blockquote>
 
 共和国不是东方背景，而且明说过黎轨的核心字是时刻，作用到剧情是时间回溯。这你还要说风水也没办法了
 
+
+*****
+
+####  Aeons  
+##### 4775#       发表于 2024-9-17 11:18
+
+ 本帖最后由 Aeons 于 2024-9-17 11:24 编辑 
+
+<img src="https://img.saraba1st.com/forum/202409/17/111756ijilj29lvk8ekvlk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>FF03013E-2B85-4608-BA1B-3CA3231D525F.jpeg</strong> (522.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-17 11:17 上传
+
+<img src="https://img.saraba1st.com/forum/202409/17/112033ka0maqd506za6x3q.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>CB124B26-5B9C-443D-B919-112BC2E6A4DE.jpeg</strong> (458 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-17 11:20 上传
+
+顺带一说这种理解能力就不要太张扬怒斥别人理解能力了。
+
+上次问你是不是拿的云豹错误翻译在这给人批发没看剧情帽子你还没回呢。
+
+2024了我想再问问，黎轨C是不是大少啊？
+

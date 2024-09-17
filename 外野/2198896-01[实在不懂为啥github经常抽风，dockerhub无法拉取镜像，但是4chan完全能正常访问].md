@@ -494,3 +494,13 @@ dockerhub时不时就不能用真的很难绷
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  citrus  
+##### 46#       发表于 2024-9-17 11:17
+
+昨天还以为这楼飞火星了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+要不谭友也解释下pytorch的情况呗，另外最近老黄的英文版驱动网站访问也得挂加速器了
+

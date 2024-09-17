@@ -3381,3 +3381,11 @@ f ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">赶工是吧
 
+
+*****
+
+####  宛若青空  
+##### 4779#       发表于 2024-9-17 14:43
+
+在发售前加的补丁也不算没做完吧，除非发售日还有追加新演出<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

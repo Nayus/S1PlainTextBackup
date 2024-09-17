@@ -9437,3 +9437,14 @@ lsl入住B站了
 
 大鼓和青木跟李子关系不错，现在蜜柑也被弄拿下，哎我们鸡的大手啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  好想看Mujica啊  
+##### 23058#       发表于 2024-9-17 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66226272&amp;ptid=2159415" target="_blank">akiomn 发表于 2024-9-17 13:40</a>
+
+身在狗团心在鸡，还有线下庆生的</blockquote>
+看zb提醒后面窗子里人好像某人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

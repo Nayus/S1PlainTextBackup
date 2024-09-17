@@ -3152,3 +3152,112 @@ edit
 
 黎轨的关键字是时刻的【刻】，在定下这个词以后就决定会做时间回溯了。
 
+
+*****
+
+####  smdzh2  
+##### 4761#       发表于 2024-9-16 18:38
+
+ 本帖最后由 smdzh2 于 2024-9-16 19:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66220906&amp;ptid=2160194" target="_blank">nozomitech 发表于 2024-9-16 18:30</a>
+这老哥太巨魔了，笑死我了，哈哈哈哈哈</blockquote>
+最后这个と很灵性，如果黑兔cv是高丽菜就能玩魔禁梗了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+“阿尔缇娜阿尔缇娜以炫耀的口气说道”
+
+*****
+
+####  言嘉  
+##### 4762#       发表于 2024-9-16 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66220768&amp;ptid=2160194" target="_blank">andychen 发表于 2024-9-16 17:05</a>
+
+感谢分享，界轨这个我以前没看过
+
+我觉得大陆东部之前的铺垫少，直到黎轨才有点正面描写。考虑到近藤说的 ...</blockquote>
+共和国99%风水双至宝，剩下一个时至宝用来机械降神解决系列所有问题或者直接敷衍掉
+
+*****
+
+####  alucardcz  
+##### 4763#       发表于 2024-9-16 21:38
+
+不可能 ！ 绝对不可能！ 轨迹游戏可以不玩 pv不能不看 那可是精华中的精华啊（不是
+
+*****
+
+####  ravend233  
+##### 4764#       发表于 2024-9-16 21:50
+
+没有pv诈骗的轨，不是完整的轨
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  巴基  
+##### 4765#       发表于 2024-9-16 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66222528&amp;ptid=2160194" target="_blank">言嘉 发表于 2024-9-16 21:20</a>
+
+共和国99%风水双至宝，剩下一个时至宝用来机械降神解决系列所有问题或者直接敷衍掉 ...</blockquote>
+共和国不是已经明牌时了吗。。就黎2那德行还不够明嘛。。
+
+*****
+
+####  alucardcz  
+##### 4766#       发表于 2024-9-16 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66222796&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-16 21:50</a>
+
+没有pv诈骗的轨，不是完整的轨
+
+—— 来自 鹅球 v3.0.0.82-alpha</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">想想闪2和黎2的pv 看的激动不！ 觉都睡不着啦！  然后（
+
+*****
+
+####  ravend233  
+##### 4767#       发表于 2024-9-16 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66223136&amp;ptid=2160194" target="_blank">alucardcz 发表于 2024-9-16 22:32</a>
+想想闪2和黎2的pv 看的激动不！ 觉都睡不着啦！  然后（</blockquote>
+这可是轨的灵魂<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">轨不能没有pv，就像。。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  红魔馆的糖  
+##### 4768#       发表于 2024-9-16 22:37
+
+相信窝法，黎1的PV做的多好，都实现了！
+
+*****
+
+####  医生狼多  
+##### 4769#         楼主| 发表于 2024-9-17 02:17
+
+你法封面又被抢了（刚好省钱不用画了）<img src="https://p.sda1.dev/19/eaca8591f05e7d78ab61155e879b717f/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 4770#       发表于 2024-9-17 03:19
+
+黎轨的关键字是时刻的【刻】，在定下这个词以后就决定会做时间回溯了。
+
+*****
+
+####  ravend233  
+##### 4771#       发表于 2024-9-17 08:10
+
+<img src="https://img.saraba1st.com/forum/202409/17/081004bannbqknh3yb99i3.jpg" referrerpolicy="no-referrer">
+
+<strong>1000005763.jpg</strong> (380.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-17 08:10 上传
+
+今天是师姐
+

@@ -9429,3 +9429,11 @@ lsl入住B站了
 
 <img src="https://img.saraba1st.com/forum/202409/17/134050qmyyqjzjjk84y6fq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 23057#       发表于 2024-9-17 13:48
+
+大鼓和青木跟李子关系不错，现在蜜柑也被弄拿下，哎我们鸡的大手啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -66,3 +66,11 @@ an打工战士公告也出来了，不知道an是混池还是两个独立池子�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  江戸前ルナ  
+##### 1208#         楼主| 发表于 2024-9-17 11:49
+
+这次剧情好长啊，不过最后做出来的竟然是萝卜动画换新机的热血感，配合船新gear性能的提升，这感觉还真是太对头了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

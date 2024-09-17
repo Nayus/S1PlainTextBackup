@@ -568,3 +568,16 @@ dockerhub只是官网封了，命令行拉取还是正常的吧。国内镜像�
 
 而且因为某些限制 不能在云端安装那种科学工具来下依赖
 
+
+*****
+
+####  hugosol  
+##### 53#       发表于 2024-9-17 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66226809&amp;ptid=2198896" target="_blank">すぴぱら 发表于 2024-9-17 15:14</a>
+
+举个例子 我们的容器需要基于一个aspnet core 8.0的debian base来构建并往里面加入nodejs和python的运行 ...</blockquote>
+听起来需要自己在debian镜像上把依赖都装好做个母镜像给每次应用发布时使用，nodejs和python还好，.net的东西如果有离线安装包的话还有可能搞得定……
+
+但是你不用docker其实也会碰到这些问题的，只能说在国内就是低人一等的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

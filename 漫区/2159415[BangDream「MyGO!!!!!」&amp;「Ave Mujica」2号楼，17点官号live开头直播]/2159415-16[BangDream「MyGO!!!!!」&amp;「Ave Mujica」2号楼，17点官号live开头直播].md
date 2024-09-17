@@ -9474,3 +9474,11 @@ lsl入住B站了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">不知道这个面具能不能摘下来……
 
+
+*****
+
+####  星天观测  
+##### 23062#       发表于 2024-9-17 22:22
+
+初华趴趴头发的颜色好像有点淡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

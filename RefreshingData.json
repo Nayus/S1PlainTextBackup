@@ -3438,12 +3438,12 @@
     "update": false
   },
   "1983526": {
-    "totalreply": 1707,
+    "totalreply": 1709,
     "title": "[战地2042专楼，将于22年11月底加入xgp／ea play]",
     "newtitle": "[战地2042专楼，3.19第7赛季上线]",
-    "lastedit": 1725988215,
+    "lastedit": 1726539493,
     "category": "游戏区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "1847608": {
@@ -5814,10 +5814,10 @@
     "update": false
   },
   "1989188": {
-    "totalreply": 9512,
+    "totalreply": 9518,
     "title": "[新机病栋，谁是大的？]",
     "newtitle": "[新机病栋，谁是大的？]",
-    "lastedit": 1726538895,
+    "lastedit": 1726539493,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -7902,10 +7902,10 @@
     "update": false
   },
   "2050404": {
-    "totalreply": 64650,
+    "totalreply": 64651,
     "title": "[东映完全新作原创动画『GIRLS BAND CRY』2024年4月]",
     "newtitle": "[东映完全新作原创动画『GIRLS BAND CRY』2024年4月]",
-    "lastedit": 1726535295,
+    "lastedit": 1726539251,
     "category": "漫区",
     "active": true,
     "update": false
@@ -8631,10 +8631,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 76246,
+    "totalreply": 76249,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1726538767,
+    "lastedit": 1726539366,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -8802,10 +8802,10 @@
     "update": false
   },
   "2159922": {
-    "totalreply": 3795,
+    "totalreply": 3796,
     "title": "[败犬女主太多了！动画化 2024年7月]",
     "newtitle": "[败犬女主太多了！动画化 2024年7月]",
-    "lastedit": 1726536851,
+    "lastedit": 1726539021,
     "category": "漫区",
     "active": true,
     "update": false
@@ -9333,10 +9333,10 @@
     "update": false
   },
   "2192349": {
-    "totalreply": 3776,
+    "totalreply": 3777,
     "title": "[俄乌专楼-7月版]",
     "newtitle": "[俄乌专楼-7月版]",
-    "lastedit": 1726535056,
+    "lastedit": 1726539021,
     "category": "外野",
     "active": true,
     "update": false
@@ -9351,10 +9351,10 @@
     "update": false
   },
   "2192350": {
-    "totalreply": 1354,
+    "totalreply": 1355,
     "title": "[巴以中东专楼-7月版]",
     "newtitle": "[巴以中东专楼-7月版]",
-    "lastedit": 1726534453,
+    "lastedit": 1726539252,
     "category": "外野",
     "active": true,
     "update": false
@@ -9486,10 +9486,10 @@
     "update": false
   },
   "2193382": {
-    "totalreply": 48739,
+    "totalreply": 48747,
     "title": "[【集中楼】百合&amp;泛百合讨论专楼8.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论专楼8.0]",
-    "lastedit": 1726538651,
+    "lastedit": 1726539251,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11033,20 +11033,11 @@
     "active": false,
     "update": false
   },
-  "2197620": {
-    "totalreply": 125,
-    "title": "[仪式感真是这几年最傻逼的词]",
-    "newtitle": "[仪式感真是这几年最傻逼的词]",
-    "lastedit": 1725329551,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
   "2197509": {
-    "totalreply": 342,
+    "totalreply": 344,
     "title": "[2024年9月网文推荐交流互助楼]",
     "newtitle": "[2024年9月网文推荐交流互助楼]",
-    "lastedit": 1726537810,
+    "lastedit": 1726539253,
     "category": "外野",
     "active": true,
     "update": false
@@ -11246,15 +11237,6 @@
     "newtitle": "[台湾BBS看到“如果汉堂没倒，拿到投资做黑猴会做成什么样”]",
     "lastedit": 1725443072,
     "category": "游戏区",
-    "active": false,
-    "update": false
-  },
-  "2197594": {
-    "totalreply": 51,
-    "title": "[看金广发这么多年，今天才突然发现……]",
-    "newtitle": "[看金广发这么多年，今天才突然发现……]",
-    "lastedit": 1725329547,
-    "category": "外野",
     "active": false,
     "update": false
   },
@@ -16371,10 +16353,10 @@
     "update": false
   },
   "2199255": {
-    "totalreply": 159,
+    "totalreply": 160,
     "title": "[女的都期望男的有什么爱好]",
     "newtitle": "[女的都期望男的有什么爱好]",
-    "lastedit": 1726538655,
+    "lastedit": 1726539021,
     "category": "外野",
     "active": true,
     "update": false
@@ -16511,7 +16493,7 @@
     "newtitle": "[杭州国庆美食及冷门景点求推荐]",
     "lastedit": 1726279944,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2199230": {
@@ -17073,10 +17055,10 @@
     "update": false
   },
   "2199496": {
-    "totalreply": 120,
+    "totalreply": 121,
     "title": "[索尼扔掉的最可惜的ip]",
     "newtitle": "[索尼扔掉的最可惜的ip]",
-    "lastedit": 1726538532,
+    "lastedit": 1726539128,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17100,10 +17082,10 @@
     "update": false
   },
   "2199526": {
-    "totalreply": 201,
+    "totalreply": 202,
     "title": "[日本好奇怪，买央视的三国演义那么积极居然没买央视的西游记]",
     "newtitle": "[日本好奇怪，买央视的三国演义那么积极居然没买央视的西游记]",
-    "lastedit": 1726538062,
+    "lastedit": 1726539021,
     "category": "外野",
     "active": true,
     "update": false
@@ -17127,10 +17109,10 @@
     "update": false
   },
   "2199522": {
-    "totalreply": 98,
+    "totalreply": 99,
     "title": "[国产游戏是否能发展出自己独特的热门品类？]",
     "newtitle": "[国产游戏是否能发展出自己独特的热门品类？]",
-    "lastedit": 1726534702,
+    "lastedit": 1726539493,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17397,10 +17379,10 @@
     "update": false
   },
   "1993618": {
-    "totalreply": 318,
+    "totalreply": 320,
     "title": "[《チ。- 关于地球的运动 - 》简中5~8卷9月2日发售]",
     "newtitle": "[《チ。- 关于地球的运动 - 》简中5~8卷9月2日发售]",
-    "lastedit": 1726522218,
+    "lastedit": 1726539021,
     "category": "漫区",
     "active": true,
     "update": false
@@ -17478,19 +17460,19 @@
     "update": false
   },
   "2199641": {
-    "totalreply": 46,
+    "totalreply": 47,
     "title": "[石榴是不是意外的在轻度玩家or云玩家群体里评价还不错？]",
     "newtitle": "[石榴是不是意外的在轻度玩家or云玩家群体里评价还不错？]",
-    "lastedit": 1726538530,
+    "lastedit": 1726539490,
     "category": "游戏区",
     "active": true,
     "update": false
   },
   "2199590": {
-    "totalreply": 43,
+    "totalreply": 44,
     "title": "[突发！以色列中部遭也门导弹袭击]",
     "newtitle": "[突发！以色列中部遭也门导弹袭击]",
-    "lastedit": 1726538409,
+    "lastedit": 1726539021,
     "category": "外野",
     "active": true,
     "update": false

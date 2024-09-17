@@ -1571,3 +1571,11 @@ An unsafe railgun shot will deal 1500/562.5 (damage/durable). For reference a co
 
 我现在配装爆炸弩+沙鹰+晕雷+轨道燃烧弹+500kg+激光无人机+次抛筒子，和队友配合杀爽了，一把下来人均300击杀
 
+
+*****
+
+####  FLZB  
+##### 5396#       发表于 2024-9-18 01:32
+
+震荡解放者也很好用了，硬控追踪虫，追猎的出生飞扑能半空拦截，伤害也够看。另外我看不懂为什么低射速的震荡解放者有60发弹匣而高射速泼水的普通解放者只有45发<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+

@@ -581,3 +581,13 @@ dockerhub只是官网封了，命令行拉取还是正常的吧。国内镜像�
 
 但是你不用docker其实也会碰到这些问题的，只能说在国内就是低人一等的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天冬氨酸  
+##### 54#       发表于 2024-9-17 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66226809&amp;ptid=2198896" target="_blank">すぴぱら 发表于 2024-9-17 15:14</a>
+举个例子 我们的容器需要基于一个aspnet core 8.0的debian base来构建并往里面加入nodejs和python的运行 ...</blockquote>
+本地安好导出传上去？
+

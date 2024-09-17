@@ -34,3 +34,22 @@
 钓鱼全收集，解锁海的女仆和斜体比基尼了。
 不得不承认金亨泰太会服装设计了。这两件都是极品中的极品。斜体比基尼甚至还看得见比基尼的晒痕<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
+
+*****
+
+####  nagitoY  
+##### 1714#       发表于 2024-9-17 23:36
+
+另外这游戏太需要一个cg回放功能了
+
+*****
+
+####  至高点  
+##### 1715#       发表于 2024-9-17 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66230577&amp;ptid=1978008" target="_blank">nagitoY 发表于 2024-9-17 23:27</a>
+钓鱼全收集，解锁海的女仆和斜体比基尼了。
+不得不承认金亨泰太会服装设计了。这两件都是极品中的极品。斜 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真的假的
+nikke里面的各种衣品可是天天被人嘲笑直男审美
+

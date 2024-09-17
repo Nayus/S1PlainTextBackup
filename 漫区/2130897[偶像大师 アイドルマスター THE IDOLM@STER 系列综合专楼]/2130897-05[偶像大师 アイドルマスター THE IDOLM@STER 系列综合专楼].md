@@ -829,3 +829,29 @@ K6C03%]E)9(VOF]G}ZKYDJ0_tmb.jpg
 
 回来吧876<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wfhtony  
+##### 6404#       发表于 2024-9-17 23:43
+
+作爲DS（876）15週年紀念，原作的人物設計 田宮清高 重新繪製了876三位偶像的新立繪。
+
+<img src="https://img.saraba1st.com/forum/202409/17/234302t1kw7h8qwbt2k1ni.png" referrerpolicy="no-referrer">
+
+<strong>GXr-2GKaMAA3900.png</strong> (372.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-17 23:43 上传
+
+這是2009年的原版宣傳立繪（by 田宮清高）：
+
+<img src="https://img.saraba1st.com/forum/202409/17/234301ycv1ylceljdxklkr.jpg" referrerpolicy="no-referrer">
+
+<strong>GXmzd8DbEAAbxNK.jpg</strong> (155.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-17 23:43 上传
+

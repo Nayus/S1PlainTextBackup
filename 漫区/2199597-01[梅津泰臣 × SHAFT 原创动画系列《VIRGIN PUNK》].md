@@ -579,3 +579,11 @@ kite liberator第二话什么时候出？<img src="https://static.saraba1st.com/
 又看了遍pv，女主穿着病号服在医院，不清楚自己的身体发生了什么，后续各种动作戏，不会是杀死比尔吧 ...</blockquote>
 有高桥悠也当编剧不好说，女主也有可能是灭亡迅雷类型的人设。
 
+
+*****
+
+####  最强惠酱  
+##### 64#       发表于 2024-9-17 08:44
+
+梅津人设风格不带一点变化，复古又很潮<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

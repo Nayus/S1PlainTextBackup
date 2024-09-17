@@ -9457,3 +9457,12 @@ lsl入住B站了
 永山もも MyGO!!!!! 翻唱『Girls Band Cry』OP主题歌『雑踏、僕らの街』纪念绘
 <img src="https://p.sda1.dev/19/fecc316689e4180925f74aa6031d152a/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KirigawaMaki  
+##### 23060#       发表于 2024-9-17 19:58
+
+鸡的趴趴也有了
+<img src="https://p.sda1.dev/19/478efddb559e401a033a7ee7d9cdc48a/image.jpg" referrerpolicy="no-referrer">
+

@@ -5190,3 +5190,14 @@ Fami对比过喷3和动森的制作人员重合是很少的，但是更多的原
 [【舞台剪辑&amp;字幕版】我们将火种传递 献给点亮夏天的偶像们 ｜Splatoon3-哔哩哔哩](https://b23.tv/ZMhZWBi )
 <img src="https://p.sda1.dev/19/67d2e9c9994d00e9872b5eac20a90826/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sloorz  
+##### 5425#       发表于 2024-9-18 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66221371&amp;ptid=2150634" target="_blank">哈尼马甲 发表于 2024-9-16 18:43</a>
+
+那么这个内容更新基本完了，是不是可以买一张来玩玩单机，联网估计不会玩 ...</blockquote>
+本作关卡设计不如2的DLC，没啥特别的点。只玩单机的话确实可以跳过。
+

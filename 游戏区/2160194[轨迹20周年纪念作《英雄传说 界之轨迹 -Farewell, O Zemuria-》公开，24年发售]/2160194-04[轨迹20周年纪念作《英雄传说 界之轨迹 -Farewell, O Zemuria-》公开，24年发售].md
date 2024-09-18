@@ -4214,3 +4214,78 @@ PS4《英雄传说 创之轨迹》FAMI通评分：8/8/8/9(33/40分)，点评要�
 
 说起来给轨迹估算通关时间是吧每一句语音都听完的时间吧，一直虚高。FAMI通也是直接拿官方数据吧。
 
+
+*****
+
+####  alucardcz  
+##### 4851#       发表于 2024-9-18 14:06
+
+FAMI通的时间一般都是对半砍才是真实数据 不缩水的情况也有 但很少
+
+*****
+
+####  洛克萨斯  
+##### 4852#       发表于 2024-9-18 14:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次还能3w么
+
+*****
+
+####  古畑任三郎2015  
+##### 4853#       发表于 2024-9-18 14:08
+
+牢黎牢葱不行的话
+
+界2再把艾约罗招过来包饺子，你们买啊，你们为什么不买？<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ky怪  
+##### 4854#       发表于 2024-9-18 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66235621&amp;ptid=2160194" target="_blank">alucardcz 发表于 2024-9-18 14:06</a>
+FAMI通的时间一般都是对半砍才是真实数据 不缩水的情况也有 但很少</blockquote>
+你肯定跳对话了，fami这个时间基本就是不跳对话正常通关的时间
+
+*****
+
+####  alucardcz  
+##### 4855#       发表于 2024-9-18 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66235656&amp;ptid=2160194" target="_blank">ky怪 发表于 2024-9-18 14:09</a>
+
+你肯定跳对话了，fami这个时间基本就是不跳对话正常通关的时间</blockquote>
+从不跳对话 我都开自动看戏的
+
+*****
+
+####  卢迪克  
+##### 4856#       发表于 2024-9-18 14:10
+
+看了一下去年达伊大冒险31分，界轨32其实还行
+
+*****
+
+####  Aeons  
+##### 4857#       发表于 2024-9-18 14:11
+
+夸也只能夸前作回归，说明没东西可夸
+
+*****
+
+####  alucardcz  
+##### 4858#       发表于 2024-9-18 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66235679&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-18 14:10</a>
+
+看了一下去年达伊大冒险31分，界轨32其实还行</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">别啊  达伊大冒险别说31分了。。13分还差不多
+
+
+*****
+
+####  绫崎飒  
+##### 4859#       发表于 2024-9-18 14:13
+
+介于闪2与黎2之间的旷世大作，这下越来越期待（大褒姒）了。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

@@ -3840,3 +3840,104 @@ Excalibur
 
 界   32
 
+
+*****
+
+####  ravend233  
+##### 4818#       发表于 2024-9-18 13:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">32，似辣
+
+*****
+
+####  古畑任三郎2015  
+##### 4819#       发表于 2024-9-18 13:38
+
+性格开朗且带点调皮
+
+---
+
+我黎12基本失忆了，无头骑士是这个性格？？？<img src="https://static.saraba1st.com/image/smiley/face/11.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 4820#       发表于 2024-9-18 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66235310&amp;ptid=2160194" target="_blank">古畑任三郎2015 发表于 2024-9-18 13:38</a>
+
+性格开朗且带点调皮
+
+---
+
+我黎12基本失忆了，无头骑士是这个性格？？？</blockquote>
+一种把另一个人设缝进去的美（
+
+
+*****
+
+####  一步成诗  
+##### 4821#       发表于 2024-9-18 13:40
+
+评语也就只夸了历代角色登场然后说了点系统，这下是真的丸辣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  扎比子  
+##### 4822#       发表于 2024-9-18 13:40
+
+评分出了，正好32
+
+《界之轨迹》Fami通评分8/8/8/8，32分
+
+・システムが非常に多彩で初見だと若干煩雑に感じるかもしれないがケアやヘルプ機能が充実で超便利
+
+・思い入れあるキャラが再び活躍するのは嬉しくなる
+
+・フィールドバトルが覚醒やZOCなどでより爽快になった
+
+・過去の主要キャラが登場するシナリオが熱い
+
+・歴代主人公が共闘するお祭り的タイトル、ファン向け要素がたくさん詰まっているが各作品を網羅していないと置いてけぼりになるかも
+
+・戦闘システムは要素を盛り込み過ぎに思える
+
+・遊びやすい各種システムや使いやすいUI、操作感が快適
+
+・ただ序盤から覚えることが多い
+
+・クリアーに65時間、やり込み含むと100時間
+
+*****
+
+####  ravend233  
+##### 4823#       发表于 2024-9-18 13:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该开始滑坡了
+
+*****
+
+####  古畑任三郎2015  
+##### 4824#       发表于 2024-9-18 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66235321&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-18 13:39</a>
+
+一种把另一个人设缝进去的美（</blockquote>
+pv里开口papa就哪里怪怪的，搞了半天来了个这种人设<img src="https://static.saraba1st.com/image/smiley/face/77.gif" referrerpolicy="no-referrer">
+
+头盔是本体吗
+
+*****
+
+####  ravend233  
+##### 4825#       发表于 2024-9-18 13:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">65小时怕不是全是垃圾剧情和重复刷本水时长
+
+*****
+
+####  alucardcz  
+##### 4826#       发表于 2024-9-18 13:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">丸辣  水王fami通居然才写65小时  那主线怕不是30小时都不到
+

@@ -1657,3 +1657,11 @@ An unsafe railgun shot will deal 1500/562.5 (damage/durable). For reference a co
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  屑屑代沟尼亚  
+##### 5404#       发表于 2024-9-18 13:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">初版就磁轨一个靠谱反重啊 同样是两发破腿不用能走装的磁轨难道拿幽默筒子吗
+

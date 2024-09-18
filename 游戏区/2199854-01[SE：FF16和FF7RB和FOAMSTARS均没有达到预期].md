@@ -379,3 +379,16 @@ HD ゲームは、売上高 992 億円（前期比 207 億円増）、営業損�
 
 石榴就更不用说了，7rb再怎么样起码也能让我对第三部产生一些以观后效的期待，石榴只能让我决定离吉田这伙人出品的游戏越远越好——并且羞愧于上了他那个demo的当<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ku2154513  
+##### 43#       发表于 2024-9-18 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66240387&amp;ptid=2199854" target="_blank">毛利提督 发表于 2024-09-18 22:27:14</a>
+7re写着remake结果一个米德加疯狂灌水+谜语人，玩家被骗第一次
+
+16宣传欺诈+rpg要素砍光，把老玩家得罪了 ...</blockquote>没玩过原版和7re，买了7rb玩下来还不错啊，就是小游戏太多了加上后期剧情莫名其妙，也不知道原版剧情是什么样的
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

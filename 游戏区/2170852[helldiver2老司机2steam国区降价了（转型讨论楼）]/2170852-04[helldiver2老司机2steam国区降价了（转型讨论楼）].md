@@ -1874,3 +1874,11 @@ We are looking at resolving this asap.
 西线打了一局，除了骂娘无 ...</blockquote>
 四个人走一起，带两套无后坐力炮点杀泰坦和牛，人手一个轨道凝固汽油弹轮流放，再带点飞鹰炮台，cd能转得过来，也基本不会死人。
 
+
+*****
+
+####  FLZB  
+##### 5421#       发表于 2024-9-18 23:15
+
+现在无后座力可以射击船体一发击坠运输船，并且船体被毁会瞬间爆炸把挂载的机器人全部带走<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

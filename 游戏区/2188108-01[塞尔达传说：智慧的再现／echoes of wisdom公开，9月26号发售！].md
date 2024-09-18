@@ -131,3 +131,21 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  星花  
+##### 578#       发表于 2024-9-18 14:28
+
+梦见岛哪有16小时？但梦见岛是偏短的。你这数据不对。
+
+
+*****
+
+####  heseran  
+##### 579#       发表于 2024-9-18 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66235879&amp;ptid=2188108" target="_blank">星花 发表于 2024-9-18 14:28</a>
+梦见岛哪有16小时？但梦见岛是偏短的。你这数据不对。</blockquote>
+不看攻略正常玩的话差不多就是16小时左右，我做完全收集大概在20小时多点。
+

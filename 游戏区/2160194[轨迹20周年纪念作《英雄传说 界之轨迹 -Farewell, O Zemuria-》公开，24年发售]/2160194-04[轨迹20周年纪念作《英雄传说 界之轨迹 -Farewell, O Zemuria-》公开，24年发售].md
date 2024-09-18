@@ -4392,3 +4392,99 @@ fami的分数剧本的权重确实不高，不过目前来说不是屎就是平�
 —— 来自 鹅球 v3.0.0.82-alpha ...</blockquote>
 系统上来说也没有和黎2差很多甚至还做了优化，那比黎2低分问题出在哪就很明显了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 4871#       发表于 2024-9-18 14:27
+
+ 本帖最后由 ravend233 于 2024-9-18 14:29 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正有界2的话剧本比黎2还屎是完全有可能的
+
+掏出一堆意义不明主线无关的支线剧情当主线填充内容就行了
+
+至少宣传期放出来的双子剧情看起来就很水
+
+竹入：我还有篇幅，我还能水
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  Aeons  
+##### 4872#       发表于 2024-9-18 14:29
+
+关于剧情只能说什么老角色令人激动，令人高兴，属于是比亚撒西还敷衍，比起黎二还吹了手深度，说明界轨确实吹都吹不了。
+
+*****
+
+####  古畑任三郎2015  
+##### 4873#       发表于 2024-9-18 14:30
+
+闪3当年是模仿闪1样板戏，把老七踢飞重做的，否则的话估计真还不如闪2
+
+界1这个如果不踢飞老人物的话，不如黎2是极有可能的<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  qianoooo  
+##### 4874#       发表于 2024-9-18 14:30
+
+黎轨上来咋拉新 节奏慢的要死 前几章入队人数少 第二个进队的还是个不会吹逼的角色太闷了 一直到中期人数多起来才节奏舒服了
+
+*****
+
+####  ravend233  
+##### 4875#       发表于 2024-9-18 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66235902&amp;ptid=2160194" target="_blank">qianoooo 发表于 2024-9-18 14:30</a>
+黎轨上来咋拉新 节奏慢的要死 前几章入队人数少 第二个进队的还是个不会吹逼的角色太闷了 一直到中期人数多 ...</blockquote>
+你法社觉得这样可以拉新<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  aimujie  
+##### 4876#       发表于 2024-9-18 14:33
+
+不如李鬼2，完啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dddyghr  
+##### 4877#       发表于 2024-9-18 14:34
+
+《黑神话 悟空》，8/9/8/8，合计33分，点评要点如下：
+
+-超高品质的图形画面让人惊叹
+
+-重新挑战时可能需要重跑很长时间，但无论重试都少次都没有风险，重新分配技能点也是免费的，很是贴心
+
+-尽管是有挑战性的诛死游戏，但能体验到带来紧张刺激感的高品质动作
+
+-没有迷你地图容易迷路
+
+-游戏设计让玩家不会轻易感到厌倦
+
+-翻译很出色
+
+仅次于黑猴！稳了
+
+*****
+
+####  ravend233  
+##### 4878#       发表于 2024-9-18 14:36
+
+甚至没有立绘<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202409/18/143603l5nzwz1q6bnhha3h.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (67.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-18 14:36 上传
+

@@ -4674,3 +4674,66 @@ fami的32 33能有多大差别 我感觉最差也就是个黎2水准
 甚至没有立绘</blockquote>
 京迷pv给了闪过了主角团立绘，空轨pv给了艾约立绘，不能说没干活，只能说你法觉得界轨不配
 
+
+*****
+
+####  菟原手兒奈  
+##### 4901#       发表于 2024-9-18 15:06
+
+看来献祭严重啊，那么空RE应该质量尚可吧，不过也实在不想再打一次了
+
+*****
+
+####  空气先生  
+##### 4902#       发表于 2024-9-18 15:08
+
+嗨呀，可以享受了啊
+
+*****
+
+####  ravend233  
+##### 4903#       发表于 2024-9-18 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66236295&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-18 15:05</a>
+
+京迷pv闪过了主角团立绘，空轨pv给了艾约立绘，不能说今年开摆没干活，只能说你法觉得界轨不配。
+
+甚至不愿 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">宣发资源和美术资源都不给，其他能给多少呢，看到全公司都这态度估计剧本也没动力写这玩意
+
+
+*****
+
+####  minus13  
+##### 4904#       发表于 2024-9-18 15:10
+
+评分低销量低也是好事吧，界之后轨迹再出个3部，凑到25周年差不多也该完结了，近藤不是说过轨迹还剩五六年吗
+
+卖的少点正好斩断他的迷恋<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  华发夜眼[CN]  
+##### 4905#       发表于 2024-9-18 15:10
+
+力压闪2的大作，无敌了啊法老空
+
+—— 来自 samsung SM-S9180, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  alucardcz  
+##### 4906#       发表于 2024-9-18 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66236301&amp;ptid=2160194" target="_blank">菟原手兒奈 发表于 2024-9-18 15:06</a>
+
+看来献祭严重啊，那么空RE应该质量尚可吧，不过也实在不想再打一次了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">擅自期待！万一空re也是被献祭的呢！
+
+*****
+
+####  Aeons  
+##### 4907#       发表于 2024-9-18 15:14
+
+献祭给加藤吗
+

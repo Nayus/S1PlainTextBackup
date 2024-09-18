@@ -5367,3 +5367,24 @@ mc都是英文版出了才有
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Sylpheed  
+##### 4979#       发表于 2024-9-18 18:28
+
+FC不就是First Chapter吗，这还用猜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ravend233  
+##### 4980#       发表于 2024-9-18 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66238320&amp;ptid=2160194" target="_blank">古畑任三郎2015 发表于 2024-9-18 18:18</a>
+双子啥的好歹给你整点半新不新的人物
+否则看某无人在意的男一试玩里都在复读甜食甜食，某女n复读炎炎炎，某 ...</blockquote>
+标签化日常剧情是这样的，而且你觉得写双子就不会写这种剧情了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

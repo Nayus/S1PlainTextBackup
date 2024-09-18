@@ -5412,3 +5412,15 @@ pve开放以后就很少进pvp了
 输百倍这种负面体验只要把机制改成赢的时候才告诉你恭喜本局触发百倍积分就能避免，研究所还是太耿直了，应 ...</blockquote>
 然后跳舞局出来告诉你输了百倍吗，有些问题无解的，有些人没倍率的局就是随便打
 
+
+*****
+
+####  Dedalus  
+##### 5439#       发表于 2024-9-18 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66238427&amp;ptid=2150634" target="_blank">绿冰 发表于 2024-9-18 18:30</a>
+然后跳舞局出来告诉你输了百倍吗，有些问题无解的，有些人没倍率的局就是随便打 ...</blockquote>
+赢的时候才告诉你，意思是输了的局不告诉你是百倍
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -5356,3 +5356,14 @@ mc都是英文版出了才有
 扯一大堆双子兄妹苦情戏，你们怎么不哭</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">大少克洛挂了我必哭！
 
+
+*****
+
+####  古畑任三郎2015  
+##### 4978#       发表于 2024-9-18 18:18
+
+双子啥的好歹给你整点半新不新的人物
+否则看某无人在意的男一试玩里都在复读甜食甜食，某女n复读炎炎炎，某8部金牌配角复读黑月，也挺难绷的
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

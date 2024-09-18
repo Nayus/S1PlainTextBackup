@@ -984,3 +984,21 @@ What a wonderful radio完结还行……
 
 <img src="https://p.sda1.dev/19/62e6f9361ddc22ee187f3bcf79d344f3/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csolfans  
+##### 21047#       发表于 2024-9-18 18:20
+
+上海场还有线上配信啊
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+
+*****
+
+####  仟音一心  
+##### 21048#       发表于 2024-9-18 18:25
+
+票都抢好了，行呗。
+

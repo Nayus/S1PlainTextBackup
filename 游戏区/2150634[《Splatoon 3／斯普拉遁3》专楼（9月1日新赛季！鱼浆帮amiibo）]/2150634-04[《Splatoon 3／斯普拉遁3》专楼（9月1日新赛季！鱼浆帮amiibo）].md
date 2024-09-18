@@ -5390,3 +5390,15 @@ pve开放以后就很少进pvp了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  秋月孝三  
+##### 5437#       发表于 2024-9-18 18:19
+
+ 本帖最后由 秋月孝三 于 2024-9-18 18:22 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">涂地就是这样的，要么全程压家不失误，要么算好时间最后打一波/顶一波爆发。最后会被翻未必就是对手弱/队友强，有可能只是对面在逗你玩
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

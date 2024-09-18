@@ -9558,3 +9558,16 @@ mujica之前的gsc娃娃什么时候再贩，原价200淘宝都涨价到365一�
 
 免费100抽，别说五星，四星都只有一个，这合理吗
 
+
+*****
+
+####  neosphere  
+##### 23072#       发表于 2024-9-19 01:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66241201&amp;ptid=2159415" target="_blank">极速赛车手 发表于 2024-9-19 00:20</a>
+
+看到有人说带望远镜的，不知道效果如何</blockquote>
+看需求呗，肉体厨想多看看人就带，喜欢听歌应援玩的就不用带了。
+
+要带望远镜最好买个好点的，那种几十块钱的不太实用。
+

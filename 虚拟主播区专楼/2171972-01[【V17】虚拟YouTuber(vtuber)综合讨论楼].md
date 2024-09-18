@@ -3490,3 +3490,16 @@ kanaira居然还进了VCRMC服<img src="https://static.saraba1st.com/image/smile
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">初配信唐突摇滚感觉还不错，但对萝莉没兴趣后面一次都没看，后面没梗了吗
 
+
+*****
+
+####  艾特娜  
+##### 754#       发表于 2024-9-18 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66225089&amp;ptid=2171972" target="_blank">poipanchao 发表于 2024-9-17 10:36</a>
+
+最近ramu跟透一起玩的时候偶尔会有透的anti定型文飘过，这么执着的吗
+
+话说透是不是Idios内部不仲了，好像没 ...</blockquote>
+两周前跟梨花65联动过啊
+

@@ -3655,3 +3655,14 @@ comg 预约现在不是累计点数吗，怎么暗喻幻想突然上来了
 
 ed肯定3d
 
+
+*****
+
+####  卢迪克  
+##### 4806#       发表于 2024-9-18 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66233797&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-18 11:16</a>
+
+不至于吧，伊苏10的倒数图拿来当ed图了吗</blockquote>
+伊苏10的主视图都一大堆，界轨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

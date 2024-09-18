@@ -5308,3 +5308,51 @@ mc都是英文版出了才有
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  ravend233  
+##### 4973#       发表于 2024-9-18 17:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">快进到双子妹找哥哥做黎轨组主线
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  迷雾塔  
+##### 4974#       发表于 2024-9-18 17:56
+
+空轨重制，别学se整什么要弄12年的重置计划，一作磨个四五年，从小学到大学是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一步成诗  
+##### 4975#       发表于 2024-9-18 17:58
+
+双子哥都跳到面具人那边去了，这不就是正经主线吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 4976#       发表于 2024-9-18 17:59
+
+还真是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+扯一大堆双子兄妹苦情戏，你们怎么不哭
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  alucardcz  
+##### 4977#       发表于 2024-9-18 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66238156&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-18 17:59</a>
+
+还真是
+
+扯一大堆双子兄妹苦情戏，你们怎么不哭</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">大少克洛挂了我必哭！
+

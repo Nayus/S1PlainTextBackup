@@ -3570,3 +3570,21 @@ comg 预约现在不是累计点数吗，怎么暗喻幻想突然上来了
 这次ps5预购有提前加载吗 有今晚就该预购了</blockquote>
 有，预载要23还是24号来着
 
+
+*****
+
+####  卢迪克  
+##### 4797#       发表于 2024-9-18 09:53
+
+你法最高分是不是伊苏9的35分
+
+*****
+
+####  maojiashu  
+##### 4798#       发表于 2024-9-18 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66232428&amp;ptid=2160194" target="_blank">宛若青空 发表于 2024-9-18 09:23</a>
+
+有，预载要23还是24号来着</blockquote>
+可以 该购入了
+

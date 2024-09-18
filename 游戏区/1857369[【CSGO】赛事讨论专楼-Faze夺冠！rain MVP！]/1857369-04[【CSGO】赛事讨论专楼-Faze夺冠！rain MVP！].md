@@ -53,3 +53,13 @@
 
 之前一直黑延神，现在只能说希望玩父能够好好发挥了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  那由  
+##### 4447#       发表于 2024-9-18 09:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">居然是把哥们换了？我觉得他比野榜哥要强啊
+
+龙叔虎伯和延神弄出来这种事还能在别的队玩x队第二季，令人感叹
+

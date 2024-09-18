@@ -53,3 +53,13 @@
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真的假的
 nikke里面的各种衣品可是天天被人嘲笑直男审美
 
+
+*****
+
+####  nagitoY  
+##### 1716#       发表于 2024-9-18 11:19
+
+当初就是因为奶排抽卡沉船下单的剑星，现在看来太正确了。
+
+模型精度不是一个级别的，奶排还在用doa5的引擎。
+

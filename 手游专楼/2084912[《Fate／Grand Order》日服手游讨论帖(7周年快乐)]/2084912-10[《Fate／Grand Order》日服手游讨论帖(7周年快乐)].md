@@ -188,3 +188,32 @@ PS2
 
 这次要就送一白野，那里外里算是少送个泳装从者
 
+
+*****
+
+####  Jamaisvu  
+##### 14626#       发表于 2024-9-18 11:16
+
+ 本帖最后由 Jamaisvu 于 2024-9-18 11:17 编辑 
+<blockquote>本次泳装2024分为两组活动，「BB Presents☆名流夏日体验！」与「奏章Ⅲ 新灵长后继战 Archetype・Inception」皆为泳装2024活动，参加条件各不相同。
+
+期间限定活动「BB Presents☆名流夏日体验！～逆袭的迪拜～」预定于数月后加入「主线物语」。在「主线物语」中通关也可达成奏章Ⅲ开放条件。
+
+奏章Ⅲ开催期间预定将有其他期间限定活动。
+
+随着奏章Ⅲ主线剧情推进，将会有赠送从者加入。</blockquote>
+根据公告，泳装活动和奏章3算是一体的，那赠送的白野可能就算在泳装活动四星里了吧...
+
+如果BB迪拜三破变成糖果，就真是一张卡串联整个故事，极致的省经费，也变相给玩家省钱了。
+
+其实我一开始看到奏3分前中后时，还以为会像2.6那样开三个五星卡池，钱包大出血，结果现在光复刻老角色了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 14627#       发表于 2024-9-18 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66233257&amp;ptid=2084912" target="_blank">quanlix 发表于 2024-9-18 10:34</a>
+这次要就送一白野，那里外里算是少送个泳装从者</blockquote>
+当白野出来后，都在猜测会不会是送白野。现在不过是实锤而已，有什么少的。
+

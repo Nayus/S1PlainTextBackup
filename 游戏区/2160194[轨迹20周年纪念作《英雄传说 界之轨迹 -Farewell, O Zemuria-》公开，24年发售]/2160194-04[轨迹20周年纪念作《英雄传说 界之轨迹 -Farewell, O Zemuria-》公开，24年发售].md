@@ -4289,3 +4289,106 @@ FAMI通的时间一般都是对半砍才是真实数据 不缩水的情况也有
 
 介于闪2与黎2之间的旷世大作，这下越来越期待（大褒姒）了。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  出言不迅  
+##### 4860#       发表于 2024-9-18 14:17
+
+以前过几部才出一部联欢会性质的，现在每部都联欢了。中间别注水了，玩了那么多打败X天王/找齐X元素/修复X龙脉的中盘，都没有你游模板化
+
+*****
+
+####  ravend233  
+##### 4861#       发表于 2024-9-18 14:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不卖不掉了嘛，试试老角色能不能骗老粉了，骗不回来那就没招了，埋了吧
+
+*****
+
+####  alucardcz  
+##### 4862#       发表于 2024-9-18 14:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">还有人记得当初黎轨里有一条说是为了拉新吗 （
+
+*****
+
+####  卢迪克  
+##### 4863#       发表于 2024-9-18 14:20
+
+让我们来看看闪之轨迹2
+
+<img src="https://img.saraba1st.com/forum/202409/18/142011aa911qh1hi75y699.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240918_141955.jpg</strong> (170.41 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-18 14:20 上传
+
+*****
+
+####  Aeons  
+##### 4864#       发表于 2024-9-18 14:20
+
+最无聊的是拐黑猴
+
+*****
+
+####  ravend233  
+##### 4865#       发表于 2024-9-18 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66235771&amp;ptid=2160194" target="_blank">alucardcz 发表于 2024-9-18 14:20</a>
+还有人记得当初黎轨里有一条说是为了拉新吗 （</blockquote>
+拉新失败了呗
+
+只能让老粉救救了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  一步成诗  
+##### 4866#       发表于 2024-9-18 14:23
+
+虽说评语没有提到剧情，但如果剧情真的好不会加分吗，也不至于沦落到不如黎2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kojimaru  
+##### 4867#       发表于 2024-9-18 14:24
+
+什么，还有人没做<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">的准备吗
+
+*****
+
+####  Aeons  
+##### 4868#       发表于 2024-9-18 14:24
+
+要比黎二屎那我确实没做好
+
+*****
+
+####  ravend233  
+##### 4869#       发表于 2024-9-18 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66235814&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-18 14:23</a>
+虽说评语没有提到剧情，但如果剧情真的好不会加分吗，也不至于沦落到不如黎2 ...</blockquote>
+fami的分数剧本的权重确实不高，不过目前来说不是屎就是平庸吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  一步成诗  
+##### 4870#       发表于 2024-9-18 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66235829&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-18 14:24</a>
+
+fami的分数剧本的权重确实不高，不过目前来说不是屎就是平庸吧
+
+—— 来自 鹅球 v3.0.0.82-alpha ...</blockquote>
+系统上来说也没有和黎2差很多甚至还做了优化，那比黎2低分问题出在哪就很明显了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -132,3 +132,15 @@ nikke里面的各种衣品可是天天被人嘲笑直男审美
 
 应该是只有战斗死亡的时候才会提示？
 
+
+*****
+
+####  宛若青空  
+##### 1723#       发表于 2024-9-19 01:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66241288&amp;ptid=1978008" target="_blank">nagitoY 发表于 2024-9-19 00:32</a>
+看了眼药品这一栏的道具，没有白血泵这一项。但是购物的时候会显示身上带了两个。
+
+应该是只有战斗死亡的 ...</blockquote>
+是的，只有死了才会有是否复活的提示
+

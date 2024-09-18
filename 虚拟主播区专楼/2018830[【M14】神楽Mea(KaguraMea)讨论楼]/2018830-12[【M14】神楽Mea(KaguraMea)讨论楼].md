@@ -8673,3 +8673,12 @@ ftp.shmilyhua.com/download/audio/
 
 连跪3把，红温退役了。
 
+
+*****
+
+####  sino__unnko3  
+##### 17419#       发表于 2024-9-19 01:18
+
+这人17号的录播又被大法gank了，会限也救不了<img src="https://p.sda1.dev/19/d8e6e8d0a77fabb914f31d6a777c594b/image.jpg" referrerpolicy="no-referrer">
+还好当时直播的时候有字幕记录而且没啥重要内容
+

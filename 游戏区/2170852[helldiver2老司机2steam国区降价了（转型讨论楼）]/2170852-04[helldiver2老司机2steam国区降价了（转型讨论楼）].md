@@ -1790,3 +1790,35 @@ Projectile 2000/2000 (ap 7/7/7/0) (k 50/20/15) 弹体直击2000/2000伤害，7�
 
 血量提升的单位都有谁啊，机器人的坦克，移动工厂，加农炮？虫子的牛，泰坦，触手虫？
 
+
+*****
+
+####  Benighted  
+##### 5415#       发表于 2024-9-18 17:01
+
+Hey everyone. We are aware of the (rather embarrassing) bug with the personal shield generator, where it does not take damage from melee attacks.
+
+We are looking at resolving this asap.
+
+由
+
+翻译自 英语
+
+大家好。我们注意到个人护盾生成器有一个（相当尴尬的）漏洞，它不会受到近战攻击的伤害。
+
+我们正在考虑尽快解决此问题。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  FLZB  
+##### 5416#       发表于 2024-9-18 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66231582&amp;ptid=2170852" target="_blank">艾诺琳 发表于 2024-9-18 07:13</a>
+
+现在用轨道燃烧弹压黄烟很爽，能活着出来的都是重甲，用桶子等着就是
+
+2个人带交替使用就行了 ...</blockquote>
+我solo比较多，一般带飞鹰燃烧弹+500KG，正常刷都能轻松压制，但接近关底开始集中刷新就很难顶了。撤离点附近事故高发，经常出现清黄烟时周围不断有大批巡逻队加入战斗的情况，一波没压住就会陷入持久战甚至直接崩盘<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

@@ -3588,3 +3588,14 @@ comg 预约现在不是累计点数吗，怎么暗喻幻想突然上来了
 有，预载要23还是24号来着</blockquote>
 可以 该购入了
 
+
+*****
+
+####  ravend233  
+##### 4799#       发表于 2024-9-18 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66232150&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-18 08:52</a>
+
+评价还是比评分有意义一点，黎二我记得评价一看就有问题</blockquote>
+评分低于32基本可以直接死刑，高于32看看评价<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

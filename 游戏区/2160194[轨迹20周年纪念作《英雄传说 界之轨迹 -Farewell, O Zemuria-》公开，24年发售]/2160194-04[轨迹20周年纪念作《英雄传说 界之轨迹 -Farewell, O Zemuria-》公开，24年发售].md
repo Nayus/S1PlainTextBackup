@@ -5057,3 +5057,43 @@ fami的32 33能有多大差别 我感觉最差也就是个黎2水准
 看了一圈大部分评价都是发霉通评分不可信，怎么说呢难怪你轨越做越烂法老控也活得好好的吧，佩服这份乐观 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">上一次社区都这样说的时候是闪2
 
+
+*****
+
+####  迷雾塔  
+##### 4945#       发表于 2024-9-18 16:39
+
+mc评分过几天也要开了吧，那个参考价值应该比法米通高一点
+
+
+*****
+
+####  一步成诗  
+##### 4946#       发表于 2024-9-18 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66237393&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-18 16:36</a>
+
+上一次社区都这样说的时候是闪2</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">闪2大家第一次没经验嘛，都经历了闪2黎2看着32分还能相信你法的我确实佩服
+
+*****
+
+####  仲可怀  
+##### 4947#       发表于 2024-9-18 16:41
+
+<blockquote>引用第4944楼迷雾塔于2024-09-18 16:39发表的  :
+
+mc评分过几天也要开了吧，那个参考价值应该比法米通高一点</blockquote>
+mc都是英文版出了才有
+实际上因为滞后性 法老控的英文版评分都不错 
+黎轨1伊苏10都有85分
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  minus13  
+##### 4948#       发表于 2024-9-18 16:42
+
+轨迹首发没有美版哪来的mc评分啊，现在mc评分就到黎1
+

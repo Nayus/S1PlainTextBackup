@@ -4805,3 +4805,21 @@ fami的32 33能有多大差别 我感觉最差也就是个黎2水准
 
 但是我的出演的闪2销量多少？<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RAMDA  
+##### 4915#       发表于 2024-9-18 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66235603&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-18 14:05</a>
+
+主线这么短还有人信一部完结吗</blockquote>
+我以为从上次访谈的内容来看，明眼人都能看出来还有界2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 4916#       发表于 2024-9-18 15:26
+
+再这样扣你鹅了
+

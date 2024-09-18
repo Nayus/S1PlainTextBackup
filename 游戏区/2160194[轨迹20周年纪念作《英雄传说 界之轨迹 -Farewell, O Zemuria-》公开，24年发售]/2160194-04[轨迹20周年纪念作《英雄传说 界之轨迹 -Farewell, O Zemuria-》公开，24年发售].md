@@ -4488,3 +4488,59 @@ fami的分数剧本的权重确实不高，不过目前来说不是屎就是平�
 
 2024-9-18 14:36 上传
 
+
+*****
+
+####  check  
+##### 4879#       发表于 2024-9-18 14:38
+
+32感觉拉了。大杂烩真的玩腻了
+
+*****
+
+####  alucardcz  
+##### 4880#       发表于 2024-9-18 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66235814&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-18 14:23</a>
+
+虽说评语没有提到剧情，但如果剧情真的好不会加分吗，也不至于沦落到不如黎2 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">可黎2评论了不是有提到剧情。。。说明比黎2更拉！
+
+
+*****
+
+####  Aeons  
+##### 4881#       发表于 2024-9-18 14:41
+
+轨迹的历史就是复用的历史
+
+*****
+
+####  zhuhh  
+##### 4882#       发表于 2024-9-18 14:44
+
+盟主妮娜没立绘，也太没牌面了。难道封面图侧脸也算立绘了？
+
+*****
+
+####  ravend233  
+##### 4883#       发表于 2024-9-18 14:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说黎1卖不好黎2又乱来后这个屎山在需要兼顾销量的情况下怎么都很难处理
+
+而竹入的能力并不能处理这样一个摊子
+
+*****
+
+####  a2042312  
+##### 4884#       发表于 2024-9-18 14:45
+
+这三人立绘都不配有么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  maojiashu  
+##### 4885#       发表于 2024-9-18 14:45
+
+fami的32 33能有多大差别 我感觉最差也就是个黎2水准
+

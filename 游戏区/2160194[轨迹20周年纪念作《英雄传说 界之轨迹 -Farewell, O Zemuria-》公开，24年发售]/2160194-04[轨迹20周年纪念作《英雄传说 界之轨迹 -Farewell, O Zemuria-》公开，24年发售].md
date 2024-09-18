@@ -5225,3 +5225,26 @@ mc都是英文版出了才有
 
 刚才也有人提到现在轨迹越来越复杂，《空之轨迹》作为系列的第一作，相比黎、界更容易上手，十分适合作为入坑作来玩。另外提到《空之轨迹》那就是艾斯蒂尔和约修亚的故事，所以从画面风格上我们也做了与以往不同的设计
 
+
+*****
+
+####  alucardcz  
+##### 4964#       发表于 2024-9-18 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66237971&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-18 17:34</a>
+
+近藤已经展望空轨了，黎界已经放弃了。
+
+刚才也有人提到现在轨迹越来越复杂，《空之轨迹》作为系列的第一 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">新人一查 什么才第1部还没后面剧情 掉头就走了
+
+*****
+
+####  卢迪克  
+##### 4965#       发表于 2024-9-18 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66238026&amp;ptid=2160194" target="_blank">alucardcz 发表于 2024-9-18 17:40</a>
+
+新人一查 什么才第1部还没后面剧情 掉头就走了</blockquote>
+在我們的觀察中，任天堂的玩家很多沒有玩 JRPG 作品，我們希望空之軌跡能成為他們的第一款 JRPG 作品。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

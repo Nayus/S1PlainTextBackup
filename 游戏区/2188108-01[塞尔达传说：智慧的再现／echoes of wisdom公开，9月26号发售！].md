@@ -51,3 +51,13 @@
 
 手痒想买限定机了，虽然玩了OLED后根本没法接受lite，但是考虑到3DS最后的几个限定机都升值得很厉害，还是想买一台收藏
 
+
+*****
+
+####  kuarwbwe  
+##### 570#       发表于 2024-9-18 10:17
+
+一周前新机**就有人说偷跑了，毫不意外好吧。不如说不偷跑才是新闻。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

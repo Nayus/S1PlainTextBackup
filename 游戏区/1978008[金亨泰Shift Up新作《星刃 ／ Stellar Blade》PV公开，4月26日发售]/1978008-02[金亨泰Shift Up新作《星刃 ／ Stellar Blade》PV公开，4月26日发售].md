@@ -63,3 +63,13 @@ nikke里面的各种衣品可是天天被人嘲笑直男审美
 
 模型精度不是一个级别的，奶排还在用doa5的引擎。
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 1717#       发表于 2024-9-18 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66179945&amp;ptid=1978008" target="_blank">隔壁老黄 发表于 2024-9-12 01:19</a>
+说起来剑星我觉得最搞笑的是孽奇拔这个名字，一眼看出是native原住民的意思，核心世界观设定一开始就透得体 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">其实英文版改成naytiba了
+

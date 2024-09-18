@@ -5220,3 +5220,17 @@ Fami对比过喷3和动森的制作人员重合是很少的，但是更多的原
 这算49年入国军吗，特别是卡带入手时机是不是不当，不再大更了是不是很可能价格被背刺
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  晴岚  
+##### 5427#       发表于 2024-9-18 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66233444&amp;ptid=2150634" target="_blank">chdhdhd 发表于 2024-9-18 10:48</a>
+没关注社区，月初因为下定决心头次开通nso会员，买了一份同捆dlc的slatoon二手卡
+
+到手才发现，最近竟然最近 ...</blockquote>
+不会，没什么不敢的，对抗类游戏还是得踏出第一步开始pvp，然后接受失败是常态。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

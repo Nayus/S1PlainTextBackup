@@ -217,3 +217,11 @@ PS2
 这次要就送一白野，那里外里算是少送个泳装从者</blockquote>
 当白野出来后，都在猜测会不会是送白野。现在不过是实锤而已，有什么少的。
 
+
+*****
+
+####  克苏鲁系青骑士  
+##### 14628#       发表于 2024-9-18 11:27
+
+街机联动时扎比子出来过，怀疑奏三的扎比子会被牺牲掉<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">迪拜bb的宇宙bb阶段真的怀疑是糖果下口了
+

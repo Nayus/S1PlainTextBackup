@@ -73,3 +73,15 @@ nikke里面的各种衣品可是天天被人嘲笑直男审美
 说起来剑星我觉得最搞笑的是孽奇拔这个名字，一眼看出是native原住民的意思，核心世界观设定一开始就透得体 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">其实英文版改成naytiba了
 
+
+*****
+
+####  隔壁老黄  
+##### 1718#       发表于 2024-9-18 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66233930&amp;ptid=1978008" target="_blank">袄_偶滴小乔 发表于 2024-9-18 11:27</a>
+其实英文版改成naytiba了</blockquote>
+日版就是native，偏偏这个词日文发音还比较准<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

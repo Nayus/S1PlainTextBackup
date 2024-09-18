@@ -117,3 +117,18 @@ nikke里面的各种衣品可是天天被人嘲笑直男审美
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  nagitoY  
+##### 1722#       发表于 2024-9-19 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66237864&amp;ptid=1978008" target="_blank">十六夜pad长 发表于 2024-9-18 17:16</a>
+
+理论上是三角，你看看死的时候给不给你三角的选项
+
+—— 来自 OnePlus PHB110, Android 14上的 S1Next-鹅 ...</blockquote>
+看了眼药品这一栏的道具，没有白血泵这一项。但是购物的时候会显示身上带了两个。
+
+应该是只有战斗死亡的时候才会提示？
+

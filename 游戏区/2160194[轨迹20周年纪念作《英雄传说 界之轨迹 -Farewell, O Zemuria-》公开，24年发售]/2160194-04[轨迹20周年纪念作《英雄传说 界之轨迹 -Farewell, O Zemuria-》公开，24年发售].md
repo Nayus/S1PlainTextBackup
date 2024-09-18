@@ -5388,3 +5388,95 @@ FC不就是First Chapter吗，这还用猜<img src="https://static.saraba1st.com
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  aimujie  
+##### 4981#       发表于 2024-9-18 18:38
+
+再狠一点，全国大停电双子妹徒步寻兄<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 4982#       发表于 2024-9-18 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66238499&amp;ptid=2160194" target="_blank">aimujie 发表于 2024-9-18 18:38</a>
+再狠一点，全国大停电双子妹徒步寻兄</blockquote>
+一个人还不行，得整个事务所陪着<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  卢迪克  
+##### 4983#       发表于 2024-9-18 18:40
+
+双子写他家是至宝眷属不就得了
+
+*****
+
+####  ravend233  
+##### 4984#       发表于 2024-9-18 18:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要问题是，这个身份随便找个主角团的角色安上也没问题不是，非得给一个外围角色加戏
+
+当然加，都可以加
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  diectt  
+##### 4985#       发表于 2024-9-18 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66238517&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-18 18:40</a>
+
+一个人还不行，得整个事务所陪着
+
+—— 来自 鹅球 v3.0.0.82-alpha</blockquote>
+再细化点，走到一个城市，加入一个事务所队友<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aeons  
+##### 4986#       发表于 2024-9-18 18:45
+
+外围角色？好歹是本作角色！
+
+*****
+
+####  ssobsb  
+##### 4987#       发表于 2024-9-18 18:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古畑任三郎2015  
+##### 4988#       发表于 2024-9-18 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66238468&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-18 18:35</a>
+标签化日常剧情是这样的，而且你觉得写双子就不会写这种剧情了吗
+
+—— 来自 鹅球 v3.0.0.82-alpha ...</blockquote>
+可能阿法觉得双子可以复刻黑兔吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  ravend233  
+##### 4989#       发表于 2024-9-18 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66238559&amp;ptid=2160194" target="_blank">古畑任三郎2015 发表于 2024-9-18 18:45</a>
+可能阿法觉得双子可以复刻黑兔吧
+
+论坛助手,iPhone</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真能吗（
+
+不过戏份够多至少打死黎轨组还是有机会
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

@@ -657,3 +657,13 @@ kite liberator第二话什么时候出？<img src="https://static.saraba1st.com/
 
 说句实在的，梅津做的表番全都剧情难看的要死。如果还要在表番里展露些老害的xp，那就是晚节不保了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推荐别写剧本
 
+
+*****
+
+####  runningch  
+##### 73#       发表于 2024-9-19 05:01
+
+希望梅津这次不要玩脱<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

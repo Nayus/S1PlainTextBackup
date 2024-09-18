@@ -3513,3 +3513,14 @@ kanaira居然还进了VCRMC服<img src="https://static.saraba1st.com/image/smile
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  poipanchao  
+##### 756#       发表于 2024-9-18 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66234615&amp;ptid=2171972" target="_blank">艾特娜 发表于 2024-9-18 12:25</a>
+
+两周前跟梨花65联动过啊</blockquote>
+对Idios了解基本靠切片，印象中基本没看过透的
+

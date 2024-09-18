@@ -4605,3 +4605,72 @@ fami的32 33能有多大差别 我感觉最差也就是个黎2水准
 什么时候能看到首周销量</blockquote>
 国庆节吧
 
+
+*****
+
+####  ravend233  
+##### 4893#       发表于 2024-9-18 14:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个分数不能证明这玩意有保底也不能正面这玩意一定烂完了
+
+只是你竹入现在没有一个能够证明自己的赎罪券了
+
+*****
+
+####  natmk  
+##### 4894#       发表于 2024-9-18 14:58
+
+首周能有4w吧 
+
+*****
+
+####  里恩  
+##### 4895#       发表于 2024-9-18 14:59
+
+但凡评论里面来一句“揭示了许多系列一直以来未解的真相”都能安心，因为写这句话是能让老玩家去支持的，这句都没有，只是各种旧角色来暖场……
+
+不妙，真的药丸。我全力跟50米拉牺牲自己卖腐人设都救不了了。首周接近5W看来差不多了，原本3W不到，我得让闪粉养法老控。
+
+
+*****
+
+####  SuNR1sE364  
+##### 4896#       发表于 2024-9-18 15:01
+
+真能首周4w吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉要奔着3w去了
+
+*****
+
+####  古畑任三郎2015  
+##### 4897#       发表于 2024-9-18 15:01
+
+还是看看远方的ns2首发护航大作空re吧，10后的第一款jrpg
+
+新世代的xb2！<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 4898#       发表于 2024-9-18 15:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果要比黎2还烂那就，灌水灌到终章然后开始展开剧情，但是最后快要揭秘核心设定的时候一个咚
+
+而且玩家依旧不知道创世是什么，至宝圣兽也不知道
+
+*****
+
+####  Aeons  
+##### 4899#       发表于 2024-9-18 15:01
+
+系统介绍就两页吗我想问问了
+
+*****
+
+####  卢迪克  
+##### 4900#       发表于 2024-9-18 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66235956&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-18 14:36</a>
+
+甚至没有立绘</blockquote>
+京迷pv给了闪过了主角团立绘，空轨pv给了艾约立绘，不能说没干活，只能说你法觉得界轨不配
+

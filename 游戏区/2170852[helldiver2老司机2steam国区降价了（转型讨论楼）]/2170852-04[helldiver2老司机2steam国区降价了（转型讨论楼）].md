@@ -1927,3 +1927,38 @@ We are looking at resolving this asap.
 
 说起来防守战更新了新的地图模板，纵深感觉深了很多
 
+
+*****
+
+####  rainknine  
+##### 5426#       发表于 2024-9-18 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66240548&amp;ptid=2170852" target="_blank">WGTCorp 发表于 2024-9-18 22:50</a>
+四个人走一起，带两套无后坐力炮点杀泰坦和牛，人手一个轨道凝固汽油弹轮流放，再带点飞鹰炮台，cd能转得 ...</blockquote>
+西线当然指的是箭头亲爹机器人啦
+更新之前我日常就在用无后座打运输船，更新后我也在用无后坐打运输船，我印象里并没有觉得更新后打下来的运输船里的机器人会全灭…虽然运输船残骸会成为掩体地形好打一些。
+明天再试试
+
+*****
+
+####  风萧飒  
+##### 5427#       发表于 2024-9-18 23:48
+
+轨道空爆其实用着也挺舒服的，n10刷烟比较多，往烟里丢随便二三十杀
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  rainknine  
+##### 5428#       发表于 2024-9-19 01:26
+
+说起来防守战更新了新的地图模板，纵深感觉深了很多
+
+*****
+
+####  FLZB  
+##### 5429#       发表于 2024-9-19 07:14
+
+爆燃弩+无后坐力炮+铝热杀爽了，三红辅助压潮清巢，啥都能打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

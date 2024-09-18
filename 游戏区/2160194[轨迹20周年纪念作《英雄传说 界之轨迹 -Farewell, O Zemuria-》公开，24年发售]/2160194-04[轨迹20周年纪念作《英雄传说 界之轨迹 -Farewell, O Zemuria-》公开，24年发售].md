@@ -5574,3 +5574,35 @@ FC不就是First Chapter吗，这还用猜<img src="https://static.saraba1st.com
 黎2在剧本之外最让我破防的，是逆天手感的开车和纯运气的打牌，那股子随便应付、差不多得了的味太冲了
 界的宣发看着也是满满的敷衍感
 
+
+*****
+
+####  SuNR1sE364  
+##### 4999#       发表于 2024-9-18 23:46
+
+黎2在主线剧情以外的东西还是没问题的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  卢迪克  
+##### 5000#       发表于 2024-9-18 23:51
+
+？15周年设定集说奥菲斯计划是三个阶段组成的。
+
+这特集怎么改回复数阶段了。
+
+等20th设定本看看
+
+
+*****
+
+####  隔壁老黄  
+##### 5001#       发表于 2024-9-18 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66240543&amp;ptid=2160194" target="_blank">alucardcz 发表于 2024-9-18 22:49</a>
+我只记得鲸鱼秒了。。物理队完全成型的时候我已经全通了。。。</blockquote>
+你拿到鲸鱼都啥时候了，不过黎鬼的魔法确实是太霸道
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

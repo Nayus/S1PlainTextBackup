@@ -1854,3 +1854,11 @@ We are looking at resolving this asap.
 西线打了一局，除了骂娘无话可说<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 每一次升旗都需要四个人把所有资源都交掉实在是…
 
+
+*****
+
+####  WGTCorp  
+##### 5419#       发表于 2024-9-18 22:38
+
+好像热修出新bug了，刚刚连着好几把打完第一个支线就直接有黄绿样本各33个了
+

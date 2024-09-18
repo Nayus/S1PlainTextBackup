@@ -4961,3 +4961,13 @@ fami的32 33能有多大差别 我感觉最差也就是个黎2水准
 
 竹入上一个完完整整写完的剧本还是东迷1<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">赎罪券早用完了，证明不了自己那自然大伙会无限看低（
 
+
+*****
+
+####  古畑任三郎2015  
+##### 4933#       发表于 2024-9-18 16:03
+
+虽然9.26后界轨不如林克传说一根毛
+
+不过9.26前界轨可比林克传说好玩多了，专楼的米娜桑说话超好听的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

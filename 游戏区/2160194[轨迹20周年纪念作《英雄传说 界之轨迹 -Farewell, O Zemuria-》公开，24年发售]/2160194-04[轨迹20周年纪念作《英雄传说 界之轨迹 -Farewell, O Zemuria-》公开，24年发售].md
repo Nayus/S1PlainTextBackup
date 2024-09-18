@@ -4889,3 +4889,75 @@ fami的32 33能有多大差别 我感觉最差也就是个黎2水准
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不如猜猜他有没有胆子再来一次最后黑屏 咚-----   待续
 
+
+*****
+
+####  Falcomfans  
+##### 4925#       发表于 2024-9-18 15:47
+
+ 本帖最后由 Falcomfans 于 2024-9-18 15:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66236756&amp;ptid=2160194" target="_blank">dc5281 发表于 2024-9-18 15:43</a>
+
+我还想着十一专心通关，感觉已经可以滑坡到等其他人通关评价再说了
+
+比黎2还低很难不怀疑端出来的到底是什么 ...</blockquote>
+居然还有人在乎塞钱通评分，怎么不说黎2和黑猴同分呢？怎么不去看MC评分呢？
+
+*****
+
+####  天王寺凯伊姆  
+##### 4926#       发表于 2024-9-18 15:48
+
+断剧情是必然的吧，赌5毛学妹和老范在外太空失联了，不管是dong还是接了个模凌两可的结束语，然后尽情期待界2
+
+*****
+
+####  maojiashu  
+##### 4927#       发表于 2024-9-18 15:50
+
+黎1 黎2都这销量 社长怎么想的不是赶紧完结出下一作 还整个界1 界2的
+
+没法理解啊
+
+*****
+
+####  ravend233  
+##### 4928#       发表于 2024-9-18 15:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在我觉得你法社什么胆子都有，突出一个死猪不怕开水烫（）
+
+
+*****
+
+####  stonego  
+##### 4929#       发表于 2024-9-18 15:52
+
+能做到中文同步，开发时间还这么短，就说明实际上剧情量不会很大，或者都是灌水废话了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 4930#       发表于 2024-9-18 15:52
+
+黑猴是证明自己了，你法呢。
+
+当然多差不至于，要说多好基本没可能。
+
+*****
+
+####  maojiashu  
+##### 4931#       发表于 2024-9-18 15:55
+
+剧情量多少都不是关键 关键是剧情进度能不能往前推推 
+
+像黎2看着那么多 完全的原地踏步
+
+*****
+
+####  ravend233  
+##### 4932#       发表于 2024-9-18 15:56
+
+近藤多少还有个伊苏8这个赎罪券，伊苏10也没烂
+
+竹入上一个完完整整写完的剧本还是东迷1<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">赎罪券早用完了，证明不了自己那自然大伙会无限看低（
+

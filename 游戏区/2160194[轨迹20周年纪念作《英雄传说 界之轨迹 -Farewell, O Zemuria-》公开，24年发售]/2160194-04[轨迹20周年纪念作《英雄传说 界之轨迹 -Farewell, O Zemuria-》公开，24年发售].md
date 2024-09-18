@@ -3500,3 +3500,34 @@ comg 预约现在不是累计点数吗，怎么暗喻幻想突然上来了
 
 换装啥的都没看到有
 
+
+*****
+
+####  一步成诗  
+##### 4789#       发表于 2024-9-18 08:47
+
+今晚的杂志是不是要出评分了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 4790#       发表于 2024-9-18 08:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">快进到FAMI 31 致敬传奇游戏闪之轨迹2
+
+
+*****
+
+####  一步成诗  
+##### 4791#       发表于 2024-9-18 08:50
+
+黎1 34，黎2 33，创 33
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看着办吧
+
+*****
+
+####  Aeons  
+##### 4792#       发表于 2024-9-18 08:52
+
+评价还是比评分有意义一点，黎二我记得评价一看就有问题
+

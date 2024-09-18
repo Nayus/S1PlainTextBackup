@@ -18,3 +18,11 @@
 
 还有10天，估计拿完黑猴全成就正好可以无缝衔接，九月真美好<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  佛罗伦萨  
+##### 566#       发表于 2024-9-18 08:48
+
+目前ROM已经还没偷跑吧，能坚持到明天预载就能算胜利了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

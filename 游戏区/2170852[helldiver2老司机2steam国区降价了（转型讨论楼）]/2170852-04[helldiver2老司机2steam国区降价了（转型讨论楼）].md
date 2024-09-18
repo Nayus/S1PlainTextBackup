@@ -1599,3 +1599,13 @@ An unsafe railgun shot will deal 1500/562.5 (damage/durable). For reference a co
 
 2个人带交替使用就行了
 
+
+*****
+
+####  dfbbymice  
+##### 5399#       发表于 2024-9-18 08:36
+
+其实挺好了，之前难10是完全压不住最后撤离的虫潮的，现在用轨道燃烧轰炸配合500清理重甲单位能直接压的虫潮完全过不来。我昨晚上好几把撤离队友配合轰炸直接把虫子清干净了。
+
+磁轨炮也能用了，就是打坦克虫还是差了点，生存也差了点，我直接侦查轻甲再背个蛋盾满地图乱跑，一整局也没怎么死过，就是结算数据看着很像在摸鱼。<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+

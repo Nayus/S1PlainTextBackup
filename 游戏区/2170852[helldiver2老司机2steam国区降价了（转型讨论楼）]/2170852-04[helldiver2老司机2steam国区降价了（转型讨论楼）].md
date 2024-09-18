@@ -1647,3 +1647,13 @@ An unsafe railgun shot will deal 1500/562.5 (damage/durable). For reference a co
 
 —— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  风萧飒  
+##### 5403#       发表于 2024-9-18 13:09
+
+初版磁轨主要是泛用性，能同时清理中甲和重甲单位
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

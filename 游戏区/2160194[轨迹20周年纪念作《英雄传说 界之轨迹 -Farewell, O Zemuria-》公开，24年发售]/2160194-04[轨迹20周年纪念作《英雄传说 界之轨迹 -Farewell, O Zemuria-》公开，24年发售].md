@@ -4986,3 +4986,49 @@ fami的32 33能有多大差别 我感觉最差也就是个黎2水准
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直接看直播了，不想亲自吃不知道有多屎的屎
 
+
+*****
+
+####  Bruce33  
+##### 4936#       发表于 2024-9-18 16:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">十一品💩，九月二十六号正好在日本让我看看店里买轨迹的太君有多少
+
+*****
+
+####  一步成诗  
+##### 4937#       发表于 2024-9-18 16:19
+
+在日应该25号白天可以拿到游戏了吧，蹲各位肝帝直播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  maojiashu  
+##### 4938#       发表于 2024-9-18 16:20
+
+晚上回去预购 到点直接开吃<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  迷雾塔  
+##### 4939#       发表于 2024-9-18 16:21
+
+均分8分也算低吗？对这个评分没概念。不过我也打算和主播们云一云。
+
+*****
+
+####  雨虫  
+##### 4940#       发表于 2024-9-18 16:21
+
+法米通的评分没有任何参考价值，另外竹入啥水平大伙玩了这十几年下来早都看明白了吧，主线不报啥大期待说不定玩起来能舒服点
+
+*****
+
+####  ravend233  
+##### 4941#       发表于 2024-9-18 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66237204&amp;ptid=2160194" target="_blank">迷雾塔 发表于 2024-9-18 16:21</a>
+
+均分8分也算低吗？对这个评分没概念。不过我也打算和主播们云一云。</blockquote>
+全8就是及格分
+

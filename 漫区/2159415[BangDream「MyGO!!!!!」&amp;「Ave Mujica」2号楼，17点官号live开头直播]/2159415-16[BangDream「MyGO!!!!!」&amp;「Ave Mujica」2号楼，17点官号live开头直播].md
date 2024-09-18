@@ -9522,3 +9522,13 @@ mujica之前的gsc娃娃什么时候再贩，原价200淘宝都涨价到365一�
 
 沪狗出座位表了，虽然在后区前排但是座位比较偏，希望视野不会太差
 
+
+*****
+
+####  ykyin09  
+##### 23068#       发表于 2024-9-18 19:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">内场后区6排，大概不怎么看人头吧
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

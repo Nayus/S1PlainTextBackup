@@ -3503,3 +3503,13 @@ kanaira居然还进了VCRMC服<img src="https://static.saraba1st.com/image/smile
 话说透是不是Idios内部不仲了，好像没 ...</blockquote>
 两周前跟梨花65联动过啊
 
+
+*****
+
+####  格林卡罗尔  
+##### 755#       发表于 2024-9-18 12:58
+
+我现在是觉得虹有些老登越播越明白，已经很少看新人了
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -3674,3 +3674,23 @@ ed肯定3d
 
 3的爷们度已经吊打约修亚了啊，发育的有点快<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SuNR1sE364  
+##### 4808#       发表于 2024-9-18 12:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66234755&amp;ptid=2160194" target="_blank">古畑任三郎2015 发表于 2024-9-18 12:39</a>
+3的爷们度已经吊打约修亚了啊，发育的有点快</blockquote>
+不禁让人想问约书亚真的有爷们度吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古畑任三郎2015  
+##### 4809#       发表于 2024-9-18 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66234877&amp;ptid=2160194" target="_blank">SuNR1sE364 发表于 2024-9-18 12:54</a>
+
+不禁让人想问约书亚真的有爷们度吗</blockquote>
+开启静音/付不起声优费的时候还是有一点的
+

@@ -5524,3 +5524,13 @@ FC不就是First Chapter吗，这还用猜<img src="https://static.saraba1st.com
 —— 来自 OPPO PDEM30, Android 13上的 S1Next- ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">8888和三个8一个9基本上就和IG8差不多一个意思，可能粪也可能神
 
+
+*****
+
+####  隔壁老黄  
+##### 4994#       发表于 2024-9-18 19:54
+
+黎鬼2排除那个吃了智障药的剧本，游戏本身是好玩的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

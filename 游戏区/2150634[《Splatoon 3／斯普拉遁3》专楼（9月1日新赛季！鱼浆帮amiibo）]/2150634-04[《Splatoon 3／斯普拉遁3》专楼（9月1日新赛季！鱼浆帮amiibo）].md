@@ -5443,3 +5443,14 @@ pve开放以后就很少进pvp了
 <img src="https://p.sda1.dev/19/4baf2978a553dd71d9f77ee496655f41/CMP_20240919005933451.jpg" referrerpolicy="no-referrer">
 今天打的最离谱的一局，猜猜为什么输<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  laosai13  
+##### 5442#       发表于 2024-9-19 05:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66241152&amp;ptid=2150634" target="_blank">screeper 发表于 2024-9-19 00:11</a>
+
+实际上是4级就可以开始打工，因为我玩了600多小时还是5级（本来是4级，借给别人打了几局涂地之后升到5级 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">惊了，都已经忘了。这样感觉还合理点打工前需要打的内容不是很多
+

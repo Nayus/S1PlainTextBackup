@@ -5355,3 +5355,24 @@ pve开放以后就很少进pvp了
 
 有人搬运三色等几条特殊曲子了，我之前都没发觉大厅音乐有两条……
 
+
+*****
+
+####  Dedalus  
+##### 5435#       发表于 2024-9-18 17:53
+
+ 本帖最后由 Dedalus 于 2024-9-18 17:54 编辑 
+
+输百倍这种负面体验只要把机制改成赢的时候才告诉你恭喜本局触发百倍积分就能避免，研究所还是太耿直了，应该想办法减轻玩家的挫败感
+不过这代估计是没机会了
+
+<img src="https://img.saraba1st.com/forum/202409/18/174227bdzwvsh9hbb369hh.jpg" referrerpolicy="no-referrer">
+
+<strong>C2FF33E0-6CF8-4969-8C5D-77D943DF2BB4.jpg</strong> (876.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-18 17:42 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -5248,3 +5248,63 @@ mc都是英文版出了才有
 新人一查 什么才第1部还没后面剧情 掉头就走了</blockquote>
 在我們的觀察中，任天堂的玩家很多沒有玩 JRPG 作品，我們希望空之軌跡能成為他們的第一款 JRPG 作品。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 4966#       发表于 2024-9-18 17:49
+
+除非re真给你fc+sc二合一，只有fc的话只能看宣发能不能炒起热度和关注度了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  alucardcz  
+##### 4967#       发表于 2024-9-18 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66238075&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-18 17:49</a>
+
+除非re真给你fc+sc二合一，只有fc的话只能看宣发能不能炒起热度和关注度了
+
+—— 来自 鹅球 v3.0.0.82-alph ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">“英雄传说 空之轨迹 the 1st”  细读这标题
+
+*****
+
+####  keiyoku  
+##### 4968#       发表于 2024-9-18 17:51
+
+我觉得黎2就应该比闪2低撑死30分，感觉界轨还能比黎2低1分是个什么情况感觉好乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一步成诗  
+##### 4969#       发表于 2024-9-18 17:51
+
+能二合一我愿意多买几份送人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  卢迪克  
+##### 4970#       发表于 2024-9-18 17:53
+
+近藤也就想趁NS2首班车看能不能卖一波而已。
+
+*****
+
+####  memo2  
+##### 4971#       发表于 2024-9-18 17:54
+
+这分乐了，到时普世欢腾超级加倍是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 4972#       发表于 2024-9-18 17:54
+
+实在做不完sc不如顺便推出fc+sc的ns移植版吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

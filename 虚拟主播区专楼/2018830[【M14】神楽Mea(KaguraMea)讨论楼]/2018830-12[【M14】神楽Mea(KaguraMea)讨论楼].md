@@ -8682,3 +8682,22 @@ ftp.shmilyhua.com/download/audio/
 这人17号的录播又被大法gank了，会限也救不了<img src="https://p.sda1.dev/19/d8e6e8d0a77fabb914f31d6a777c594b/image.jpg" referrerpolicy="no-referrer">
 还好当时直播的时候有字幕记录而且没啥重要内容
 
+
+*****
+
+####  shmilyhua  
+##### 17420#       发表于 2024-9-19 01:26
+
+ 本帖最后由 shmilyhua 于 2024-9-19 01:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66241490&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2024-9-19 01:18</a>
+这人17号的录播又被大法gank了，会限也救不了
+还好当时直播的时候有字幕记录而且没啥重要内容 ...</blockquote>
+BV1ez421b76t
+自录已上传。
+等白天再处理个纯音频。
+索尼罪大恶极
+
+翻到一个别人录的: 15POgsbPbh3Sv8wvPEvykCQ?pwd=tju7
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

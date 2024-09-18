@@ -1919,3 +1919,11 @@ We are looking at resolving this asap.
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  rainknine  
+##### 5425#       发表于 2024-9-19 01:26
+
+说起来防守战更新了新的地图模板，纵深感觉深了很多
+

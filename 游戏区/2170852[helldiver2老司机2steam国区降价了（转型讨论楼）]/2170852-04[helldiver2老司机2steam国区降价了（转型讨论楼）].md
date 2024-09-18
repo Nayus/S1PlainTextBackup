@@ -1897,3 +1897,15 @@ We are looking at resolving this asap.
 
 刚才和队友4人一起在n10宰了2000多虫子，酣畅淋漓，4个人主武器和战备都不一样，这多样性不就来了吗？
 
+
+*****
+
+####  rainknine  
+##### 5423#       发表于 2024-9-18 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66240548&amp;ptid=2170852" target="_blank">WGTCorp 发表于 2024-9-18 22:50</a>
+四个人走一起，带两套无后坐力炮点杀泰坦和牛，人手一个轨道凝固汽油弹轮流放，再带点飞鹰炮台，cd能转得 ...</blockquote>
+西线当然指的是箭头亲爹机器人啦
+更新之前我日常就在用无后座打运输船，更新后我也在用无后坐打运输船，我印象里并没有觉得更新后打下来的运输船里的机器人会全灭…虽然运输船残骸会成为掩体地形好打一些。
+明天再试试
+

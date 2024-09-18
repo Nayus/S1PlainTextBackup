@@ -5178,3 +5178,15 @@ Fami对比过喷3和动森的制作人员重合是很少的，但是更多的原
 
 要不把蛤蜊模式删了吧，有时候真是神仙难救的局啊......
 
+
+*****
+
+####  -LYRE-  
+##### 5424#       发表于 2024-9-18 08:57
+
+ 本帖最后由 -LYRE- 于 2024-9-18 08:59 编辑 
+
+推荐一个舞台混剪<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+[【舞台剪辑&amp;字幕版】我们将火种传递 献给点亮夏天的偶像们 ｜Splatoon3-哔哩哔哩](https://b23.tv/ZMhZWBi )
+<img src="https://p.sda1.dev/19/67d2e9c9994d00e9872b5eac20a90826/image.jpg" referrerpolicy="no-referrer">
+

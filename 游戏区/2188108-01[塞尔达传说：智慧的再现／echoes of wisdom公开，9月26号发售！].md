@@ -26,3 +26,28 @@
 
 目前ROM已经还没偷跑吧，能坚持到明天预载就能算胜利了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冷泉夜月  
+##### 567#       发表于 2024-9-18 08:56
+
+总算在发售前打通了黑猴，可以安心林克传说了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 568#       发表于 2024-9-18 09:00
+
+怎么偷跑这么早
+
+
+*****
+
+####  luffy0085  
+##### 569#       发表于 2024-9-18 09:02
+
+手痒想买限定机了，虽然玩了OLED后根本没法接受lite，但是考虑到3DS最后的几个限定机都升值得很厉害，还是想买一台收藏
+

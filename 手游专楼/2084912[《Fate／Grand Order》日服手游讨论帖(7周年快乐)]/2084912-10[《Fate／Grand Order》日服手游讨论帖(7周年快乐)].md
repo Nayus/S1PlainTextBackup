@@ -275,3 +275,16 @@ XR，剛升到ios 18，選擇自動開啟的遊戲模式
 
 反而是敵人死亡消失時...、結算時不停轉換窗田、及回到主介面時略為卡了些少
 
+
+*****
+
+####  alucardcz  
+##### 14634#       发表于 2024-9-18 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66234682&amp;ptid=2084912" target="_blank">eilot 发表于 2024-9-18 12:32</a>
+
+XR，剛升到ios 18，選擇自動開啟的遊戲模式
+
+暫時在使用主動技、選卡、使用寶具前的白畫面時間到使用寶具時 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/226.png" referrerpolicy="no-referrer">这游戏模式完全没感觉到有什么区别  还不如我无敌的真游戏模式 低电量模式
+

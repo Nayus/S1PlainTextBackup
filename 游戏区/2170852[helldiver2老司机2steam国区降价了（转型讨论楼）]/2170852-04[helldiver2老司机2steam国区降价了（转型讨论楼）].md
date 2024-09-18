@@ -1665,3 +1665,13 @@ An unsafe railgun shot will deal 1500/562.5 (damage/durable). For reference a co
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">初版就磁轨一个靠谱反重啊 同样是两发破腿不用能走装的磁轨难道拿幽默筒子吗
 
+
+*****
+
+####  范坚强  
+##### 5405#       发表于 2024-9-18 13:51
+
+<blockquote>dfbbymice 发表于 2024-9-18 08:36
+其实挺好了，之前难10是完全压不住最后撤离的虫潮的，现在用轨道燃烧轰炸配合500清理重甲单位能直接压的虫 ...</blockquote>
+蛋盾目前似乎有bug免疫近战伤害简直东线之神了
+

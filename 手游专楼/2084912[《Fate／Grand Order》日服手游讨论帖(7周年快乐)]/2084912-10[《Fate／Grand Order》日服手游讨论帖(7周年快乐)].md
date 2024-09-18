@@ -243,3 +243,13 @@ PS2
 之前奏响宣传图上的那位，好像和现阶段哪一个都对不上？不会宇宙bb三破变过去吧？ ...</blockquote>
 估计要到奏章4才出来，不过看到怖军和伯爵的戏份，你不要对这位的戏份有期待<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  保罗嚇伯特  
+##### 14631#       发表于 2024-9-18 12:12
+
+棒棒糖龙娘铁奏四啊，现在的奏三明显是临时加的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+要是只有男白野，没有扎比子，那是有点恶心人了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

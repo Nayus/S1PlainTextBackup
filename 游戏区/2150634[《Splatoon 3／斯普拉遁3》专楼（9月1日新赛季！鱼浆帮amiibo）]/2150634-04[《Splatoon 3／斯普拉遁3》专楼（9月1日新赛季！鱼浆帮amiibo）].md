@@ -5252,3 +5252,17 @@ Fami对比过喷3和动森的制作人员重合是很少的，但是更多的原
 
 事到如今，不管是不是已经入场晚了，也只有接受现实慢慢学了
 
+
+*****
+
+####  晴岚  
+##### 5429#       发表于 2024-9-18 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66234168&amp;ptid=2150634" target="_blank">chdhdhd 发表于 2024-9-18 11:49</a>
+我已经接受自己菜了，只是拖队友后腿实在不太好
+
+现在能匹配到的对手和队友应该也不是上位，但还是能感觉 ...</blockquote>
+换个思路其实更多情况下如果打挑战跟x的话你的队友能匹到你说明大家水平都差不多。不要有太多心理负担。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

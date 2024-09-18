@@ -623,3 +623,13 @@ dockerhub只是官网封了，命令行拉取还是正常的吧。国内镜像�
 
 说起来4chan那边游戏分类的子版块怎么越来越多，之前没注意，刚发现连RPG和策略都专门有版，是这些年玩游戏的越来越多了还是讨论环境越来越差必须额外开设化粪池<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天冬氨酸  
+##### 58#       发表于 2024-9-18 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66227410&amp;ptid=2198896" target="_blank">すぴぱら 发表于 2024-9-17 16:55</a>
+是的 现在是纯docker load image的，全都本地挂科学做好环境，云端映射一下volume， 编译完的项目直接外 ...</blockquote>
+我现在服务器流量受限，也是这么弄的，倒是习惯了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 重新安一遍可能会有意想不到的依赖问题，非常恶心，再也不想搞了
+

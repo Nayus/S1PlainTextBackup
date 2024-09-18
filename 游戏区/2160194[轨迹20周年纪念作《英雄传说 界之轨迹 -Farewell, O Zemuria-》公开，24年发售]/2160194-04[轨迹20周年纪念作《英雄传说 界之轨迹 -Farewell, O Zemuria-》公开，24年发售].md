@@ -5032,3 +5032,28 @@ fami的32 33能有多大差别 我感觉最差也就是个黎2水准
 均分8分也算低吗？对这个评分没概念。不过我也打算和主播们云一云。</blockquote>
 全8就是及格分
 
+
+*****
+
+####  alucardcz  
+##### 4942#       发表于 2024-9-18 16:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">我就不一样了  下星期开始不看一切轨迹情报  直到蒸汽发售（
+
+*****
+
+####  一步成诗  
+##### 4943#       发表于 2024-9-18 16:34
+
+看了一圈大部分评价都是发霉通评分不可信，怎么说呢难怪你轨越做越烂法老控也活得好好的吧，佩服这份乐观<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 4944#       发表于 2024-9-18 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66237374&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-18 16:34</a>
+
+看了一圈大部分评价都是发霉通评分不可信，怎么说呢难怪你轨越做越烂法老控也活得好好的吧，佩服这份乐观 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">上一次社区都这样说的时候是闪2
+

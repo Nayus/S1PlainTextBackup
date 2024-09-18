@@ -629,3 +629,15 @@ kite liberator第二话什么时候出？<img src="https://static.saraba1st.com/
 
 でもあります(一部例外も含む)。一先ず、作品を解禁できて安堵の気持ちと、改めて気を引き締め完成まで邁進する責任感を自覚しています。持てる力をスタッフ一同繋いでいきますので応援、宜しくお願いします！。また近々、ブログを更新しますね。 ちなみに写メは一部ＮＧバージョンのティザー画です。どこが違うのか、わかりますか？</blockquote>
 
+
+*****
+
+####  zoomegg  
+##### 70#       发表于 2024-9-18 18:08
+
+自带精 液味的人设就是好！
+
+开头病房那段ROTO没描好吧，后面的看着就好多了
+
+希望杀必死多点<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

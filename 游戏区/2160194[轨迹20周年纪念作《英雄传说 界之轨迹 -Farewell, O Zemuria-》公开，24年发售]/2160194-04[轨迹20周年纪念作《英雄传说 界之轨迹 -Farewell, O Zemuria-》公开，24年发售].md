@@ -3541,3 +3541,32 @@ comg 预约现在不是累计点数吗，怎么暗喻幻想突然上来了
 
 —— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  一步成诗  
+##### 4794#       发表于 2024-9-18 09:16
+
+确实，分差不多或者分高没什么参考价值，但要是低于平均水平那就能说明一些事了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  maojiashu  
+##### 4795#       发表于 2024-9-18 09:16
+
+问下预购了的哥们
+
+这次ps5预购有提前加载吗 有今晚就该预购了
+
+
+*****
+
+####  宛若青空  
+##### 4796#       发表于 2024-9-18 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66232359&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-9-18 09:16</a>
+问下预购了的哥们
+
+这次ps5预购有提前加载吗 有今晚就该预购了</blockquote>
+有，预载要23还是24号来着
+

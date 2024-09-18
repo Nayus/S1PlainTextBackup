@@ -93,3 +93,15 @@ nikke里面的各种衣品可是天天被人嘲笑直男审美
 
 白血泵如何在战斗中使用？我身上应该是带了的，但是在战斗是阵亡从来没问我过是否使用白血泵
 
+
+*****
+
+####  十六夜pad长  
+##### 1720#       发表于 2024-9-18 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66235615&amp;ptid=1978008" target="_blank">nagitoY 发表于 2024-9-18 14:06</a>
+白血泵如何在战斗中使用？我身上应该是带了的，但是在战斗是阵亡从来没问我过是否使用白血泵 ...</blockquote>
+理论上是三角，你看看死的时候给不给你三角的选项
+
+—— 来自 OnePlus PHB110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

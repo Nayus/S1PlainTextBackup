@@ -5194,3 +5194,13 @@ mc都是英文版出了才有
 
 别吧，我可不想再吃一次闪2的屎了，黎2好歹PC上打的有风大，闪234可都是痛苦折磨啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  悠悠你心  
+##### 4961#       发表于 2024-9-18 17:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉不如ign给黎1 8分 有意思
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

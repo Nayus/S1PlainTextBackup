@@ -4737,3 +4737,71 @@ fami的32 33能有多大差别 我感觉最差也就是个黎2水准
 
 献祭给加藤吗
 
+
+*****
+
+####  maojiashu  
+##### 4908#       发表于 2024-9-18 15:16
+
+献祭流出游戏是吧
+
+空轨re献祭给东迷吧 东迷献祭给谁？界2？ 闭环了这下
+
+*****
+
+####  洛克萨斯  
+##### 4909#       发表于 2024-9-18 15:16
+
+自闪轨以来轨迹评分
+
+闪1 34 闪2 31 闪3 33 闪4 33 创 33
+
+黎 34 黎2 33 界 32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难以想象比黎2还低
+
+*****
+
+####  byisme001  
+##### 4910#       发表于 2024-9-18 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66236434&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-9-18 15:16</a>
+自闪轨以来轨迹评分
+
+闪1 34 闪2 31 闪3 33 闪4 33 创 33</blockquote>
+那你觉得黎2比闪2高2分吗
+
+*****
+
+####  ravend233  
+##### 4911#       发表于 2024-9-18 15:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说到底就是加藤不断压缩开发资源呗，你法社就这点出息了。剧本本身是不怎么花钱的，但是剧本看着全公司都在摆烂那不得跟着一起摆烂，剧本摆烂不就完求了
+
+*****
+
+####  ravend233  
+##### 4912#       发表于 2024-9-18 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66236452&amp;ptid=2160194" target="_blank">byisme001 发表于 2024-9-18 15:17</a>
+
+那你觉得黎2比闪2高2分吗</blockquote>
+从演出，系统设计，流程设计优化上确实可以把分加上去<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  maojiashu  
+##### 4913#       发表于 2024-9-18 15:20
+
+空轨sc 28分 这样对比闪2我只能给20分
+
+*****
+
+####  里恩  
+##### 4914#       发表于 2024-9-18 15:24
+
+闪2分数偏低是因为当时某些客观情况导致的，比如3D制作还不熟练等诸多问题，当时FAMI控编辑也还不熟悉这个打分套路，细节扣分很多。
+
+但是我的出演的闪2销量多少？<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

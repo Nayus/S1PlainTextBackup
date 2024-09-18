@@ -5204,3 +5204,24 @@ mc都是英文版出了才有
 
 —— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  ravend233  
+##### 4962#       发表于 2024-9-18 17:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黎1不就是很符合IG8定义的游戏嘛，没啥好说的也没啥烂的（）
+
+
+*****
+
+####  卢迪克  
+##### 4963#       发表于 2024-9-18 17:34
+
+<blockquote>alucardcz 发表于 2024-9-18 14:20
+还有人记得当初黎轨里有一条说是为了拉新吗 （</blockquote>
+
+近藤已经展望空轨了，黎界已经放弃了。
+
+刚才也有人提到现在轨迹越来越复杂，《空之轨迹》作为系列的第一作，相比黎、界更容易上手，十分适合作为入坑作来玩。另外提到《空之轨迹》那就是艾斯蒂尔和约修亚的故事，所以从画面风格上我们也做了与以往不同的设计
+

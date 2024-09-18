@@ -1712,3 +1712,14 @@ An unsafe railgun shot will deal 1500/562.5 (damage/durable). For reference a co
 
 重机枪塔也算比较好用的战备，主要打小兵如切菜，也能顺便打打牛和泰坦，触手虫，就是比较看地形，宽阔地图非常猛，狭窄地形就一般了
 
+
+*****
+
+####  Dementia  
+##### 5410#       发表于 2024-9-18 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66232462&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-9-18 09:25</a>
+
+昨天试了各种奇怪武器，包括重机枪，站桩换弹太致命了，一个弹夹能打死一头牛，效率一般，但清怪速度比较快 ...</blockquote>
+我也想过用小激光清飞龙和跳脸，但真的太多了，N10一波内能到近战距离的小虫子至少3只，根本来不及清，还是得激光狗或者喷子
+

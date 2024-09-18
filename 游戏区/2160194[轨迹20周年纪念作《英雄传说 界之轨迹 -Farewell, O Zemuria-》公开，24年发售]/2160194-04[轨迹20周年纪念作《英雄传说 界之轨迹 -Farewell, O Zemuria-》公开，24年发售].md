@@ -4544,3 +4544,64 @@ fami的分数剧本的权重确实不高，不过目前来说不是屎就是平�
 
 fami的32 33能有多大差别 我感觉最差也就是个黎2水准
 
+
+*****
+
+####  kanata  
+##### 4886#       发表于 2024-9-18 14:49
+
+比闪2高不是赢麻了吗，等游戏出来就清算你们这群不如黎2的遗老
+
+*****
+
+####  一步成诗  
+##### 4887#       发表于 2024-9-18 14:50
+
+黎2两连发还不够震撼吗，那大家容忍度太高了点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 4888#       发表于 2024-9-18 14:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">漏油认真的吗 黎2水平那不完蛋了
+
+*****
+
+####  smdzh2  
+##### 4889#       发表于 2024-9-18 14:53
+
+什么时候能看到首周销量<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 4890#       发表于 2024-9-18 14:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黎2证明了竹入的剧本下限超出大伙想象
+
+在主线剧情没写完的前提下引入大量老角色是个非常容易让剧本失去重心的选项，加上竹入向来喜欢水人物支线和样板戏日常剧情
+
+在这种情况下他觉得自己还有一个界2来水，那（）
+
+*****
+
+####  maojiashu  
+##### 4891#       发表于 2024-9-18 14:55
+
+这种评分又不能评定剧情好坏
+
+黎2烂了不就是因为剧情烂了 gameplay和演出不是比黎1进步了
+
+光看个评分啥都看不出来 等发售再看呗
+
+*****
+
+####  ravend233  
+##### 4892#       发表于 2024-9-18 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66236165&amp;ptid=2160194" target="_blank">smdzh2 发表于 2024-9-18 14:53</a>
+
+什么时候能看到首周销量</blockquote>
+国庆节吧
+

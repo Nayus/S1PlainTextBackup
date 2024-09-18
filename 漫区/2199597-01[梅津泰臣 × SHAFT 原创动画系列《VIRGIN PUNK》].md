@@ -649,3 +649,11 @@ kite liberator第二话什么时候出？<img src="https://static.saraba1st.com/
 
 梅津XP挺对我电波的<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yevvet  
+##### 72#       发表于 2024-9-18 23:59
+
+说句实在的，梅津做的表番全都剧情难看的要死。如果还要在表番里展露些老害的xp，那就是晚节不保了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推荐别写剧本
+

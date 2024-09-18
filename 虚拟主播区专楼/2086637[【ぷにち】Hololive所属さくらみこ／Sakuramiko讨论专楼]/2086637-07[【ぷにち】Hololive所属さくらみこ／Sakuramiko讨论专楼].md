@@ -9849,3 +9849,18 @@ sololive，和这次的holoGTA
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你也bug了？
 
+
+*****
+
+####  holoan  
+##### 9703#         楼主| 发表于 2024-9-18 23:34
+
+miko的holoGTA人生在第二天就结束了，各种意义上
+
+*****
+
+####  渡鸦骑士  
+##### 9704#       发表于 2024-9-19 00:06
+
+也就嗓子结束了吧
+

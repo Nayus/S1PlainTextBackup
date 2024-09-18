@@ -4823,3 +4823,69 @@ fami的32 33能有多大差别 我感觉最差也就是个黎2水准
 
 再这样扣你鹅了
 
+
+*****
+
+####  hkguty  
+##### 4917#       发表于 2024-9-18 15:37
+
+头盔姐都没立绘，妮娜和盟主就把封面的图截出来，笑死
+
+*****
+
+####  Aeons  
+##### 4918#       发表于 2024-9-18 15:38
+
+混总辑篇是这样的，有介绍都谢天谢地了
+
+*****
+
+####  天王寺凯伊姆  
+##### 4919#       发表于 2024-9-18 15:40
+
+轨迹的销量除了前一作死忠效应完全不懂和宣发有没关系了，已经失去意义了除非真的能因为这个理由把这系列砍了
+
+
+*****
+
+####  alucardcz  
+##### 4920#       发表于 2024-9-18 15:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">什么时候能想通 首发直接全平台 销量必翻倍！
+
+
+*****
+
+####  ravend233  
+##### 4921#       发表于 2024-9-18 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66236733&amp;ptid=2160194" target="_blank">alucardcz 发表于 2024-9-18 15:41</a>
+
+什么时候能想通 首发直接全平台 销量必翻倍！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上个NS都是近藤找加藤求来的，再加个PC近藤怕是得给加藤卖钩子
+
+*****
+
+####  dc5281  
+##### 4922#       发表于 2024-9-18 15:43
+
+我还想着十一专心通关，感觉已经可以滑坡到等其他人通关评价再说了
+
+比黎2还低很难不怀疑端出来的到底是什么
+
+目前心理预期是序章还行中间注水终章扔设定
+
+*****
+
+####  ravend233  
+##### 4923#       发表于 2024-9-18 15:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看试玩序章也是纯纯灌水
+
+*****
+
+####  alucardcz  
+##### 4924#       发表于 2024-9-18 15:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不如猜猜他有没有胆子再来一次最后黑屏 咚-----   待续
+

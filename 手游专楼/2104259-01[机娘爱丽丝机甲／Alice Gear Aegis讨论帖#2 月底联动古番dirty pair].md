@@ -74,3 +74,11 @@ an打工战士公告也出来了，不知道an是混池还是两个独立池子�
 
 这次剧情好长啊，不过最后做出来的竟然是萝卜动画换新机的热血感，配合船新gear性能的提升，这感觉还真是太对头了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alialex  
+##### 1209#       发表于 2024-9-18 10:58
+
+周末清任务的时候是真的长，这次复刻从哪里开始的剧情是新的啊
+

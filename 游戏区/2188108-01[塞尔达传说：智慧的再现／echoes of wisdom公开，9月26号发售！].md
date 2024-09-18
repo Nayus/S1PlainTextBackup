@@ -110,3 +110,14 @@
 手痒想买限定机了，虽然玩了OLED后根本没法接受lite，但是考虑到3DS最后的几个限定机都升值得很厉害，还是 ...</blockquote>
 时代不同了，如果是为了理财还是先弄清楚这机器到底是“数量限定”机，还是“外观限定”机吧，如果是后者就没必要了
 
+
+*****
+
+####  lilod  
+##### 576#       发表于 2024-9-18 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66233390&amp;ptid=2188108" target="_blank">subject07 发表于 2024-9-18 10:44</a>
+
+上howlongtobeat上看了一眼，2D赛的普通流程都是十几小时，最新的织梦岛重制16.5小时，其实旷野之息做开 ...</blockquote>
+不会，如果全程看攻略的话可能吧，不过正常人玩至少 20 小时起
+

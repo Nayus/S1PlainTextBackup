@@ -304,3 +304,11 @@ XR，剛升到ios 18，選擇自動開啟的遊戲模式
 
 2024-9-18 22:22 上传
 
+
+*****
+
+####  藤田琴音  
+##### 14636#       发表于 2024-9-18 22:45
+
+就那么点东西，值得垫进去一个泳装？真就成了大型fe联动了是吧？看来以后不能双厨狂喜的玩家已经被你月放弃了<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
+

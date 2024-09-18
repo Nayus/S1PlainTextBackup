@@ -5544,3 +5544,16 @@ FC不就是First Chapter吗，这还用猜<img src="https://static.saraba1st.com
 
 这作和黎12一个水准的话以后连专楼都不进了
 
+
+*****
+
+####  alucardcz  
+##### 4996#       发表于 2024-9-18 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66239091&amp;ptid=2160194" target="_blank">隔壁老黄 发表于 2024-9-18 19:54</a>
+
+黎鬼2排除那个吃了智障药的剧本，游戏本身是好玩的
+
+—— 来自 鹅球 v3.1.91-alpha ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">我只记得鲸鱼秒了。。物理队完全成型的时候我已经全通了。。。
+

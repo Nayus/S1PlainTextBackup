@@ -1862,3 +1862,15 @@ We are looking at resolving this asap.
 
 好像热修出新bug了，刚刚连着好几把打完第一个支线就直接有黄绿样本各33个了
 
+
+*****
+
+####  WGTCorp  
+##### 5420#       发表于 2024-9-18 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66240413&amp;ptid=2170852" target="_blank">rainknine 发表于 2024-9-18 22:32</a>
+民主升旗任务现在会在大概三分之一、三分之二和接近完成的时候各自出来一波增援
+
+西线打了一局，除了骂娘无 ...</blockquote>
+四个人走一起，带两套无后坐力炮点杀泰坦和牛，人手一个轨道凝固汽油弹轮流放，再带点飞鹰炮台，cd能转得过来，也基本不会死人。
+

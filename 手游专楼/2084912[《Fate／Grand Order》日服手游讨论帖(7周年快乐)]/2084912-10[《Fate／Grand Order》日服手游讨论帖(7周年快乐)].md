@@ -288,3 +288,19 @@ XR，剛升到ios 18，選擇自動開啟的遊戲模式
 暫時在使用主動技、選卡、使用寶具前的白畫面時間到使用寶具時 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/226.png" referrerpolicy="no-referrer">这游戏模式完全没感觉到有什么区别  还不如我无敌的真游戏模式 低电量模式
 
+
+*****
+
+####  岸浪白野  
+##### 14635#       发表于 2024-9-18 22:23
+
+今晚在日记里说了后篇长度的量和前篇差不多
+
+<img src="https://img.saraba1st.com/forum/202409/18/222238nynpsebrppuszvur.png" referrerpolicy="no-referrer">
+
+<strong>HXNN1ZT{D2]Q3ZKX]0[}F)7.png</strong> (89.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-18 22:22 上传
+

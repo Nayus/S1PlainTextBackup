@@ -5534,3 +5534,13 @@ FC不就是First Chapter吗，这还用猜<img src="https://static.saraba1st.com
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  Layvaten  
+##### 4995#       发表于 2024-9-18 22:26
+
+速速出点设定集把这故事完善下得了，还在灌水吊谁胃口呢<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+这作和黎12一个水准的话以后连专楼都不进了
+

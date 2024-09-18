@@ -1173,3 +1173,16 @@ q娃人设没有主角几个精致，果然还是剧场版限定吧
 
 译者页：[https://tieba.baidu.com/home/mai ... 725382239&amp;fr=pb](https://tieba.baidu.com/home/main?id=tb.1.46831f51.AhxRBShpVXMcPnHStMpMnQ?t=1725382239&amp;fr=pb)
 
+
+*****
+
+####  猫屋敷ゆき  
+##### 2227#       发表于 2024-9-18 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66227377&amp;ptid=2162354" target="_blank">jaewoongh_ 发表于 2024-9-17 16:50</a>
+
+贴吧有人搞了糸麦くん的猫组小漫画，推荐大家看一看
+
+#1: https://tieba.baidu.com/p/9138620051</blockquote>
+看看，我就是这么可爱<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+

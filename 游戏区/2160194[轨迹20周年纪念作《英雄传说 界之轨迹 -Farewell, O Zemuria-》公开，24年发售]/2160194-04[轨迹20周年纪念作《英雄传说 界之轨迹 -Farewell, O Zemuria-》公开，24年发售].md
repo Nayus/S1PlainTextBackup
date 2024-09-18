@@ -5511,3 +5511,16 @@ FC不就是First Chapter吗，这还用猜<img src="https://static.saraba1st.com
 —— 来自 鹅球 v3.0.0.82-alpha</blockquote>
 会一个个加入的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 4993#       发表于 2024-9-18 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66238698&amp;ptid=2160194" target="_blank">盘古开天我递斧 发表于 2024-9-18 19:06</a>
+
+发霉8分是不是可以和IG8放一桌了，突出一个量化自由心证
+
+—— 来自 OPPO PDEM30, Android 13上的 S1Next- ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">8888和三个8一个9基本上就和IG8差不多一个意思，可能粪也可能神
+

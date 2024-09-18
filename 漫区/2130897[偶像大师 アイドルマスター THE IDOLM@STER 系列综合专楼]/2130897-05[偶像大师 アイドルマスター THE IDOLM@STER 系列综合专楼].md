@@ -885,3 +885,13 @@ K6C03%]E)9(VOF]G}ZKYDJ0_tmb.jpg
 
 2024-9-18 19:12 上传
 
+
+*****
+
+####  kykawaiii  
+##### 6406#       发表于 2024-9-18 19:20
+
+雌小鬼+病娇<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -5606,3 +5606,51 @@ FC不就是First Chapter吗，这还用猜<img src="https://static.saraba1st.com
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  卢迪克  
+##### 5002#       发表于 2024-9-19 00:15
+
+本来以为是说漂泊魔王，原来它是无限狭间
+
+<img src="https://img.saraba1st.com/forum/202409/19/001549vdzed0070lcc2xuz.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240918_233242.jpg</strong> (36.92 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-19 00:15 上传
+
+<img src="https://img.saraba1st.com/forum/202409/19/001554q01doblty4xxe4zy.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240919_001446.jpg</strong> (155.93 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-19 00:15 上传
+
+
+*****
+
+####  hkguty  
+##### 5003#       发表于 2024-9-19 00:22
+
+可能这部盟主至少话会比创轨多
+
+*****
+
+####  ravend233  
+##### 5004#       发表于 2024-9-19 00:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是下注明天能不能有个PV吧，一点料都没有
+
+*****
+
+####  医生狼多  
+##### 5005#         楼主| 发表于 2024-9-19 00:25
+
+反正下周就发售了，感觉pv发不发布已经无所谓了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

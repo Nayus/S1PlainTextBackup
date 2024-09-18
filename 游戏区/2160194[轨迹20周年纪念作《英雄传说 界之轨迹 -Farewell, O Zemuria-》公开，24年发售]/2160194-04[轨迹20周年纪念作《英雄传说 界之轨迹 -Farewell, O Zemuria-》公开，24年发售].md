@@ -5480,3 +5480,11 @@ FC不就是First Chapter吗，这还用猜<img src="https://static.saraba1st.com
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  古畑任三郎2015  
+##### 4990#       发表于 2024-9-18 18:50
+
+模板都想好了，界1咚的时候把兄献祭了，界2结局给你复活一下<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这个剧本很成熟了，必能活用于下一次
+

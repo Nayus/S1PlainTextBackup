@@ -4057,3 +4057,160 @@ Fami通《界之轨迹》评分：8/8/8/8，共32分
 
 总共9点里有3点在提前作人物，我看fami小编也是被法老控给驯成功了<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  悠悠你心  
+##### 4838#       发表于 2024-9-18 13:57
+
+丸辣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  椎名mahuyo  
+##### 4839#       发表于 2024-9-18 13:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到黑神话一堆优点然后33分，这界轨32分突然觉得也没那么不堪
+
+*****
+
+####  仲可怀  
+##### 4840#       发表于 2024-9-18 13:58
+
+-左右命运的剧情安排非常具有冲击性
+
+-从开头部分起就可以享受高速爽快的战斗，系统得到了进一步地洗练与打磨
+
+-剧情场面过于冗长但故事很有深度
+
+-推荐先玩前作，不过游戏内也备有前作回顾影片方便玩或未玩过的玩家了解剧情
+
+-融入多种多样元素内容丰富趣味性提升
+
+-通关需要70小时，全要素收集需120小时
+
+
+*****
+
+####  theti  
+##### 4841#       发表于 2024-9-18 13:59
+
+<blockquote>卢迪克 发表于 2024-9-18 13:35
+闪1 34
+
+闪2 31
+
+闪3 33
+</blockquote>
+仅次于闪2的神作吗？大伙真是有福了
+
+*****
+
+####  古畑任三郎2015  
+##### 4842#       发表于 2024-9-18 14:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66235542&amp;ptid=2160194" target="_blank">theti 发表于 2024-9-18 13:59</a>
+
+仅次于闪2的神作吗？大伙真是有福了</blockquote>
+介于闪2和黎2之间的大作
+
+*****
+
+####  alucardcz  
+##### 4843#       发表于 2024-9-18 14:01
+
+<img src="https://img.saraba1st.com/forum/202409/18/140101cdm0a4x0stabx0xs.png" referrerpolicy="no-referrer">
+
+<strong>4444444444.png</strong> (570.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-18 14:01 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">看了下黎2的存档 才67  这还是全要素打完的
+
+*****
+
+####  alucardcz  
+##### 4844#       发表于 2024-9-18 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66235534&amp;ptid=2160194" target="_blank">仲可怀 发表于 2024-9-18 13:58</a>
+
+-左右命运的剧情安排非常具有冲击性
+
+-从开头部分起就可以享受高速爽快的战斗，系统得到了进一步地洗练与打 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">剧情场面过于冗长但故事很有深度？  这真是黎2吗 不是空2？
+
+
+*****
+
+####  卢迪克  
+##### 4845#       发表于 2024-9-18 14:02
+
+PS4《英雄传说 创之轨迹》FAMI通评分：8/8/8/9(33/40分)，点评要点如下：
+
+　　-通关需要60小时，全要素收集80小时
+
+　　-以交错叙事为轴心的剧情内容量、可玩要素与迷你游戏都很充实，且无论哪一项都能舒适顺畅地进行游玩
+
+　　-高速快进模式下战斗与剧情都可以高速化
+
+　　-交错叙事令故事的趣味性得到了进一步提升
+
+　　-登场角色关系复杂如果是首次接触这个系列的玩家很难进行游戏
+
+　　-执着于战术与技能构成的一面与完全轻松过关的一面，两者均有升级维持了一种独特的
+
+*****
+
+####  卢迪克  
+##### 4846#       发表于 2024-9-18 14:02
+
+65还可以，就是主线短吧
+
+*****
+
+####  里恩  
+##### 4847#       发表于 2024-9-18 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66235491&amp;ptid=2160194" target="_blank">古畑任三郎2015 发表于 2024-9-18 13:54</a>
+
+・喜爱的角色能够再次活跃登场，令人感到高兴。
+
+・过去的主要角色登场的剧情令人激动。
+
+・作为一个历代主人 ...</blockquote>
+我刚看到也想总结这三条
+
+界真的药丸，就比黎2好点。
+
+没有我登场绝对褒姒，现在可以预见销量50%是我的粉丝共享的
+
+*****
+
+####  一步成诗  
+##### 4848#       发表于 2024-9-18 14:05
+
+主线这么短还有人信一部完结吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 4849#       发表于 2024-9-18 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66235591&amp;ptid=2160194" target="_blank">里恩 发表于 2024-9-18 14:04</a>
+
+我刚看到也想总结这三条
+
+界真的药丸，就比黎2好点。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要是大卖3W份怎么说（
+
+*****
+
+####  里恩  
+##### 4850#       发表于 2024-9-18 14:05
+
+说起来给轨迹估算通关时间是吧每一句语音都听完的时间吧，一直虚高。FAMI通也是直接拿官方数据吧。
+

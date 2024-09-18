@@ -476,3 +476,16 @@ ff都不能拯救se了，那么拯救se的会是谁呢？
 
 两作都是经营商法上的问题更优先于游戏制作的问题。
 
+
+*****
+
+####  体质的错  
+##### 53#       发表于 2024-9-19 03:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66241590&amp;ptid=2199854" target="_blank">线程召唤使 发表于 2024-9-18 13:51</a>
+7不用分析那么多，分三部就是原罪。
+
+16其实在吉田直树自身之上还有更主要的问题，东西出来看一眼谁都明白 ...</blockquote>
+有没有可能，吉➗不是糊弄的
+吉➗只是因为暴雪没做过JRPG，抄鬼泣缝FF14翻车罢了
+

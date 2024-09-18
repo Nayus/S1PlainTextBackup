@@ -5424,3 +5424,13 @@ pve开放以后就很少进pvp了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  screeper  
+##### 5440#       发表于 2024-9-19 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66235192&amp;ptid=2150634" target="_blank">laosai13 发表于 2024-9-18 13:26</a>
+现在入手其实挺好的，一上来就有全部内容。打通英雄模式就可以开始涂地了，人物等级升到好像6级可以开始 ...</blockquote>
+实际上是4级就可以开始打工，因为我玩了600多小时还是5级<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">（本来是4级，借给别人打了几局涂地之后升到5级）
+

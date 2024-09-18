@@ -1882,3 +1882,18 @@ We are looking at resolving this asap.
 
 现在无后座力可以射击船体一发击坠运输船，并且船体被毁会瞬间爆炸把挂载的机器人全部带走<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  艾诺琳  
+##### 5422#       发表于 2024-9-18 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66240548&amp;ptid=2170852" target="_blank">WGTCorp 发表于 2024-9-18 22:50</a>
+
+四个人走一起，带两套无后坐力炮点杀泰坦和牛，人手一个轨道凝固汽油弹轮流放，再带点飞鹰炮台，cd能转得 ...</blockquote>
+无后座不如次抛
+
+后者不占背包位子可以带激光狗
+
+刚才和队友4人一起在n10宰了2000多虫子，酣畅淋漓，4个人主武器和战备都不一样，这多样性不就来了吗？
+

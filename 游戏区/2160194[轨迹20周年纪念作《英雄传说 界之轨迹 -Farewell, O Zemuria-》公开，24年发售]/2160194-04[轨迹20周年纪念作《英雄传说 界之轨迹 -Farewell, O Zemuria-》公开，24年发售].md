@@ -5171,3 +5171,26 @@ mc都是英文版出了才有
 
 不止是文本的问题，欧美还得重新配音，高贵的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天王寺凯伊姆  
+##### 4958#       发表于 2024-9-18 17:05
+
+大家都对你法和竹入的水平心知肚明相信黎2的表现玩之前都在意料之中吧（
+
+*****
+
+####  grox133  
+##### 4959#       发表于 2024-9-18 17:09
+
+脑子不好使了信fami通
+
+
+*****
+
+####  上坂莲华  
+##### 4960#       发表于 2024-9-18 17:10
+
+别吧，我可不想再吃一次闪2的屎了，黎2好歹PC上打的有风大，闪234可都是痛苦折磨啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

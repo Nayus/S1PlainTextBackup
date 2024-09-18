@@ -89,3 +89,24 @@
 2D赛的通关时常应该不超过20小时吧？</blockquote>
 一般至少 20 小时
 
+
+*****
+
+####  subject07  
+##### 574#       发表于 2024-9-18 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66233245&amp;ptid=2188108" target="_blank">lilod 发表于 2024-9-18 10:33</a>
+
+一般至少 20 小时</blockquote>
+上howlongtobeat上看了一眼，2D赛的普通流程都是十几小时，最新的织梦岛重制16.5小时，其实旷野之息做开放世界前3D赛也只有三、四十小时流程不算长
+
+*****
+
+####  恋妖壶  
+##### 575#       发表于 2024-9-18 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66232255&amp;ptid=2188108" target="_blank">luffy0085 发表于 2024-9-18 09:02</a>
+
+手痒想买限定机了，虽然玩了OLED后根本没法接受lite，但是考虑到3DS最后的几个限定机都升值得很厉害，还是 ...</blockquote>
+时代不同了，如果是为了理财还是先弄清楚这机器到底是“数量限定”机，还是“外观限定”机吧，如果是后者就没必要了
+

@@ -5488,3 +5488,13 @@ FC不就是First Chapter吗，这还用猜<img src="https://static.saraba1st.com
 
 模板都想好了，界1咚的时候把兄献祭了，界2结局给你复活一下<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这个剧本很成熟了，必能活用于下一次
 
+
+*****
+
+####  盘古开天我递斧  
+##### 4991#       发表于 2024-9-18 19:06
+
+发霉8分是不是可以和IG8放一桌了，突出一个量化自由心证
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -5097,3 +5097,60 @@ mc都是英文版出了才有
 
 轨迹首发没有美版哪来的mc评分啊，现在mc评分就到黎1
 
+
+*****
+
+####  aimujie  
+##### 4949#       发表于 2024-9-18 16:46
+
+拿评分说事不也是图一乐么，玩了这么多年，大家应该已经对法老控的水平有充分的认知了，熟悉的配方熟悉的味道，就是说不准哪种配料新鲜哪种过期了
+
+*****
+
+####  diectt  
+##### 4950#       发表于 2024-9-18 16:46
+
+法米通评分不可信？法米通评分当然不可信，黎2这一坨都能打33分，明显是高了，32分还不知道是什么玩意呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hayate0079  
+##### 4951#       发表于 2024-9-18 16:47
+
+说起来港区解锁也是26号0点？
+
+*****
+
+####  ravend233  
+##### 4952#       发表于 2024-9-18 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66237450&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-18 16:41</a>
+
+闪2大家第一次没经验嘛，都经历了闪2黎2看着32分还能相信你法的我确实佩服 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说对你法做轨迹还心存幻想的还是太多了，你法做别的我还能信一下，做你轨太爱摊大饼摁造屎山了
+
+*****
+
+####  chris1987  
+##### 4953#       发表于 2024-9-18 16:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">虽然我心理预期已经放的很低了，但看到比黎2还低，我心里还是咯噔一下
+
+
+*****
+
+####  迷雾塔  
+##### 4954#       发表于 2024-9-18 16:54
+
+竟然没有美版首发发行，欧美人的钱不想赚了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 4955#       发表于 2024-9-18 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66237626&amp;ptid=2160194" target="_blank">迷雾塔 发表于 2024-9-18 16:54</a>
+
+竟然没有美版首发发行，欧美人的钱不想赚了吗</blockquote>
+想赚啊，但是NISA翻译太慢了
+

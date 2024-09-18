@@ -5434,3 +5434,12 @@ pve开放以后就很少进pvp了
 现在入手其实挺好的，一上来就有全部内容。打通英雄模式就可以开始涂地了，人物等级升到好像6级可以开始 ...</blockquote>
 实际上是4级就可以开始打工，因为我玩了600多小时还是5级<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">（本来是4级，借给别人打了几局涂地之后升到5级）
 
+
+*****
+
+####  幽香  
+##### 5441#       发表于 2024-9-19 01:00
+
+<img src="https://p.sda1.dev/19/4baf2978a553dd71d9f77ee496655f41/CMP_20240919005933451.jpg" referrerpolicy="no-referrer">
+今天打的最离谱的一局，猜猜为什么输<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

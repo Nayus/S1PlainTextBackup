@@ -1637,3 +1637,13 @@ An unsafe railgun shot will deal 1500/562.5 (damage/durable). For reference a co
 
 还用了一下主手的那把喷火器，阿尔法指挥官这种级别的敌人可以瞬间蒸发，因为伤害提升了50%并且提升到了4级穿甲，只是考虑到牛腿血量提升，烧牛效率很低，两个弹夹才能烧死一只白牛，中间甚至要续一发震撼弹，不过对于主手武器不能要求太多
 
+
+*****
+
+####  jy000129  
+##### 5402#       发表于 2024-9-18 10:38
+
+磁轨初版就是难6水平的虐菜武器，高难这点弹量还要蓄力和补刀我一直觉得很不好用<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

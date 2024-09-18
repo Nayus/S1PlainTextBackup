@@ -78,3 +78,14 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  lilod  
+##### 573#       发表于 2024-9-18 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66233142&amp;ptid=2188108" target="_blank">subject07 发表于 2024-9-18 10:25</a>
+
+2D赛的通关时常应该不超过20小时吧？</blockquote>
+一般至少 20 小时
+

@@ -3599,3 +3599,19 @@ comg 预约现在不是累计点数吗，怎么暗喻幻想突然上来了
 评价还是比评分有意义一点，黎二我记得评价一看就有问题</blockquote>
 评分低于32基本可以直接死刑，高于32看看评价<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  小猫鼬  
+##### 4800#       发表于 2024-9-18 10:42
+
+<img src="https://img.saraba1st.com/forum/202409/18/104327pejem4cenbqnee1m.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_9555(20240918-104021).JPG</strong> (277.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-18 10:43 上传
+
+倒计时第八天
+

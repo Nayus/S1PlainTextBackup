@@ -225,3 +225,21 @@ PS2
 
 街机联动时扎比子出来过，怀疑奏三的扎比子会被牺牲掉<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">迪拜bb的宇宙bb阶段真的怀疑是糖果下口了
 
+
+*****
+
+####  blue321  
+##### 14629#       发表于 2024-9-18 11:36
+
+之前奏响宣传图上的那位，好像和现阶段哪一个都对不上？不会宇宙bb三破变过去吧？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 14630#       发表于 2024-9-18 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66234015&amp;ptid=2084912" target="_blank">blue321 发表于 2024-9-18 11:36</a>
+之前奏响宣传图上的那位，好像和现阶段哪一个都对不上？不会宇宙bb三破变过去吧？ ...</blockquote>
+估计要到奏章4才出来，不过看到怖军和伯爵的戏份，你不要对这位的戏份有期待<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

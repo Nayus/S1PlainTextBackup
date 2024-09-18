@@ -9826,3 +9826,26 @@ sololive，和这次的holoGTA
 
 今天主调整点
 
+
+*****
+
+####  holoan  
+##### 9701#         楼主| 发表于 2024-9-18 21:19
+
+446怎么如此执著于团建，不过说起来之前介绍的那些小活动好像没有计划做的样子
+
+*****
+
+####  rs5621  
+##### 9702#       发表于 2024-9-18 23:06
+
+<img src="https://img.saraba1st.com/forum/202409/18/230603pjnom1angvv0fmxf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (16.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-18 23:06 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你也bug了？
+

@@ -9532,3 +9532,13 @@ mujica之前的gsc娃娃什么时候再贩，原价200淘宝都涨价到365一�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  rossokun  
+##### 23069#       发表于 2024-9-18 23:00
+
+笑死，开出来看台的最后一排
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

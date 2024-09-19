@@ -7741,3 +7741,22 @@ e圣水平下降得厉害还是falcom钱没给够，画的还不如x上的摸鱼
 音乐也能请黄油界的吗？感觉电子乐都打不过黄油三线作曲了，例如绊恋那位。 ...</blockquote>
 我还是那句话 岩垂德行最合适你法现在的游戏音乐 也花不了多少钱
 
+
+*****
+
+####  crosz1985  
+##### 5231#       发表于 2024-9-19 20:15
+
+B站那里云黎轨2剧情比较好
+
+
+*****
+
+####  一步成诗  
+##### 5232#       发表于 2024-9-19 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66248757&amp;ptid=2160194" target="_blank">Squall25 发表于 2024-9-19 18:44</a>
+
+没有偷跑吧。你问过店家吗？没明写有现货的不是的</blockquote>
+那可能只是摆拍图吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

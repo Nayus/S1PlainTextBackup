@@ -9761,3 +9761,43 @@ otae不用追兔子了，自己就是兔子先生
 
 草，橙ag刚好差摩卡和茨菇的五星。
 
+
+*****
+
+####  6030sylar  
+##### 23085#       发表于 2024-9-19 18:11
+
+这红皇后ksm是照着社长画的吧
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+
+*****
+
+####  SakuraのOrigami  
+##### 23086#       发表于 2024-9-19 18:14
+
+我勒个扫刚（）
+
+<img src="https://img.saraba1st.com/forum/202409/19/181417ognxydzd0y9y7ck9.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240919181409.png</strong> (96.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-19 18:14 上传
+
+*****
+
+####  椎名mahuyo  
+##### 23087#       发表于 2024-9-19 18:15
+
+去看了下还真是啊
+
+*****
+
+####  幻想菩薩  
+##### 23088#       发表于 2024-9-19 18:16
+
+昏古七了
+

@@ -7492,3 +7492,20 @@ enami认真画确实还行啊，这边就是硬摆烂，经过黎1后法老控�
 
 玩家的审美是自由的，但是成品端上来这样应该骂的是法老控的审美<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一步成诗  
+##### 5206#       发表于 2024-9-19 18:05
+
+明天直播还是实机，pv你就安心的走吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 5207#       发表于 2024-9-19 18:07
+
+今天没有就不用再出了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然还有个可能是tgs出，但是那个时间已经没人关心pv了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

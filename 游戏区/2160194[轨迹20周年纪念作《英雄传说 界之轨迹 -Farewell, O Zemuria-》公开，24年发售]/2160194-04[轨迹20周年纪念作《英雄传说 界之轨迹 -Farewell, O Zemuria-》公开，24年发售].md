@@ -6975,3 +6975,11 @@ mk越来越牛逼，能破译外之理代码。不过奥古斯特也可以破解
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直接在群里被炸到了，能画的比saitom和仓花还烂可不多见
 
+
+*****
+
+####  usoda  
+##### 5148#       发表于 2024-9-19 15:27
+
+E大师？E处！
+

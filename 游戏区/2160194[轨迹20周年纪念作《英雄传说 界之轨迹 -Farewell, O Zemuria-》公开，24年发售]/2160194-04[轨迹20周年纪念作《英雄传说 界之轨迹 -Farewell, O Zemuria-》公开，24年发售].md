@@ -7223,3 +7223,100 @@ enami认真画确实还行啊，这边就是硬摆烂，经过黎1后法老控�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  Squall25  
+##### 5177#       发表于 2024-9-19 17:16
+
+请enami单纯就是没人用了，就像伊苏10请toi8也是给臭脸。你法不可能不知道村上好，京迷和空r都叫村上
+
+*****
+
+####  卡拉德利姆  
+##### 5178#       发表于 2024-9-19 17:16
+
+只能说e大师信徒的每一句话都变成了回旋镖打到了他们自己身上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天王寺凯伊姆  
+##### 5179#       发表于 2024-9-19 17:17
+
+光靠立绘那黎恩凭啥人气第一，他的立绘比妹子好看吗，50米拉听了都笑了，一坨分四次拉，那你拉完之后不可否认还是爽了一下的
+
+*****
+
+####  卢迪克  
+##### 5180#       发表于 2024-9-19 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66247861&amp;ptid=2160194" target="_blank">隔壁老黄 发表于 2024-9-19 17:14</a>
+
+从0鬼开始就觉得enami巨丑无比，闪轨的人气那么高难不成近藤觉得是靠那狗屎剧本，跟立绘没有一丝一毫的关系 ...</blockquote>
+法社抠，大部分画师不想接你法的单，伊苏x的toi8也明显看不上，近藤直接采访说他总是截稿日才交稿。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  隔壁老黄  
+##### 5181#       发表于 2024-9-19 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66247906&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-19 17:18</a>
+法社抠，大部分画师不想接你法的单，伊苏x的toi8也明显看不上，近藤直接采访说他总是截稿日才交稿。 ...</blockquote>
+那就找不出名的啊，村上画闪轨前出名吗，反正画师是谁玩家绝大部分都不怎么在乎，只要画得好看就行了啊
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  Squall25  
+##### 5182#       发表于 2024-9-19 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66247924&amp;ptid=2160194" target="_blank">隔壁老黄 发表于 2024-9-19 17:20</a>
+那就找不出名的啊，村上画闪轨前出名吗，反正画师是谁玩家绝大部分都不怎么在乎，只要画得好看就行了啊
+
+ ...</blockquote>
+村上是社内画师，不是外包的。非外包随意压榨了。
+
+*****
+
+####  卢迪克  
+##### 5183#       发表于 2024-9-19 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66247924&amp;ptid=2160194" target="_blank">隔壁老黄 发表于 2024-9-19 17:20</a>
+
+那就找不出名的啊，村上画闪轨前出名吗，反正画师是谁玩家绝大部分都不怎么在乎，只要画得好看就行了啊
+
+ ...</blockquote>
+不出名的他看不上
+
+*****
+
+####  天王寺凯伊姆  
+##### 5184#       发表于 2024-9-19 17:22
+
+我至今不懂闪4那个op是你法太抠了不多给点还是3hz太贱了给了钱却敷衍了事
+
+
+*****
+
+####  隔壁老黄  
+##### 5185#       发表于 2024-9-19 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66247899&amp;ptid=2160194" target="_blank">天王寺凯伊姆 发表于 2024-9-19 17:17</a>
+光靠立绘那黎恩凭啥人气第一，他的立绘比妹子好看吗，50米拉听了都笑了，一坨分四次拉，那你拉完之后不可否 ...</blockquote>
+黎恩靠女玩家刷人气，男的也喜欢扮演帅哥，这不一拍即合了，就类似有人说我现实里是个胖子，但我不想在游戏里也扮演个胖子之类的，画得帅气时髦，女的疯狂男的不反感，人气自然就高了。你看梵那精神小伙的立绘，看着就想拳头修正，第一印象就不好了，想要人气高也不容易啊
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  隔壁老黄  
+##### 5186#       发表于 2024-9-19 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66247938&amp;ptid=2160194" target="_blank">Squall25 发表于 2024-9-19 17:21</a>
+村上是社内画师，不是外包的。非外包随意压榨了。</blockquote>
+既然如此黎鬼咋不压榨村上？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

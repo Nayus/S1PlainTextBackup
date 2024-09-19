@@ -9883,3 +9883,67 @@ ame要参加GTA了据说是polka邀请的
 
 第二个记者来了
 
+
+*****
+
+####  holoan  
+##### 9707#         楼主| 发表于 2024-9-19 15:46
+
+<img src="https://img.saraba1st.com/forum/202409/19/154559tqjp7ppd7c7plr00.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (11.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-19 15:45 上传
+
+*****
+
+####  holoan  
+##### 9708#         楼主| 发表于 2024-9-19 17:17
+
+<img src="https://img.saraba1st.com/forum/202409/19/170602wh2cbd7lp2ll4p2p.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (36.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-19 17:06 上传
+
+、
+
+三日目游戏平衡调整：警用直升机追加热成像追踪功能
+
+抢劫任务成功的奖励增加
+
+da麻追加
+
+<img src="https://img.saraba1st.com/forum/202409/19/171306fk1pkyvk4tghunki.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (58.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-19 17:13 上传
+
+kanata的狗咖啡厅今天开业，同时可以购入宠物狗（其实昨天就开放了）
+
+<img src="https://img.saraba1st.com/forum/202409/19/171533jbkdmcst5mbxxfdm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (88.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-19 17:15 上传
+
+EN3名新开的甜品饮料店
+
+*****
+
+####  holoan  
+##### 9709#         楼主| 发表于 2024-9-19 17:19
+
+青要开披萨店了
+
+这下饮食店多得要开始相互竞争了
+

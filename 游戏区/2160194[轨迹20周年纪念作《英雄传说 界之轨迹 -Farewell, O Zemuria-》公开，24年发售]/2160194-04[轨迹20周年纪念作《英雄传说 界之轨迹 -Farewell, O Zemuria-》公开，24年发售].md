@@ -7794,3 +7794,32 @@ B站那里云黎轨2剧情比较好
 
 其实我很久前提过了，新画师现在水平是越来越好的，很快就能在法老控里担当主美的位置吧，只不过比较难顶的是，法老控这几年的新作真没有合适给新画师尝试的作品。
 
+
+*****
+
+####  仲可怀  
+##### 5236#       发表于 2024-9-19 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66249727&amp;ptid=2160194" target="_blank">Squall25 发表于 2024-9-19 20:53</a>
+
+其实我很久前提过了，新画师现在水平是越来越好的，很快就能在法老控里担当主美的位置吧，只不过比较难顶的 ...</blockquote>
+别压榨了 伊苏8那个韩国画师 做了伊苏9后就跑路了 
+
+
+*****
+
+####  椎名mahuyo  
+##### 5237#       发表于 2024-9-19 21:11
+
+还是工资给少了 锅还是加藤背吧
+
+*****
+
+####  alucardcz  
+##### 5238#       发表于 2024-9-19 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66248351&amp;ptid=2160194" target="_blank">grox133 发表于 2024-9-19 17:57</a>
+
+这还正常，审美是有问题吧，丑到逆天了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">法老控内部没有审核这东西  法老控觉得这画的很ok  选一个（
+

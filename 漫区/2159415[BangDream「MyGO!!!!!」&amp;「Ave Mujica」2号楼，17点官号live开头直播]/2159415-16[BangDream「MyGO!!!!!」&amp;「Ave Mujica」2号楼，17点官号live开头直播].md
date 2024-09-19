@@ -9990,3 +9990,23 @@ wsd赚了钱能多投入在美术资源上吗
 
 啊这<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 23110#       发表于 2024-9-19 20:44
+
+<img src="https://p.sda1.dev/19/d3007462fe7618d2c2ba651f7b95c004/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 23111#       发表于 2024-9-19 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66249570&amp;ptid=2159415" target="_blank">鳥栖朝 发表于 2024-9-19 20:28</a>
+
+啊这
+
+看样子联动的是mygo动画而不是单独的狗团，除了狗全员，动画里路过脸的怕是跑不掉了 ...</blockquote>
+？什麼恐怖故事<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+

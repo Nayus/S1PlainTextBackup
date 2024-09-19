@@ -1962,3 +1962,43 @@ We are looking at resolving this asap.
 
 爆燃弩+无后坐力炮+铝热杀爽了，三红辅助压潮清巢，啥都能打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赤井稻妻  
+##### 5430#       发表于 2024-9-19 08:58
+
+磁轨枪现在好像有bug，过载也没办法从正面击穿加农炮和坦克的装甲，按说应该是7级穿甲啥都能打穿的
+
+以及西线的盾牌现在很厉害，主要是爆炸弩非常强力，可以直接顶着盾牌和机枪哥站撸
+
+*****
+
+####  Dementia  
+##### 5431#       发表于 2024-9-19 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66242651&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-9-19 08:58</a>
+
+磁轨枪现在好像有bug，过载也没办法从正面击穿加农炮和坦克的装甲，按说应该是7级穿甲啥都能打穿的
+
+以及西 ...</blockquote>
+非安全模式满充能打无畏的散热口还经常丢伤害，明明上版本的安全模式都能秒掉无畏的散热口
+
+*****
+
+####  DawnGuardian  
+##### 5432#       发表于 2024-9-19 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66242651&amp;ptid=2170852" target="_blank"> 赤井稻妻 发表于 2024-9-19 08:58</a> 磁轨枪现在好像有bug，过载也没办法从正面击穿加农炮和坦克的装甲，按说应该是7级穿甲啥都能打穿的  以及西线的盾牌现在很厉害，主要是爆炸弩非常强力，可以直接顶着盾牌和机枪哥站撸 </blockquote>
+改了，现在磁轨不安全模式不加穿甲等级了，只加伤害来自: iPhone客户端
+
+*****
+
+####  赤井稻妻  
+##### 5433#       发表于 2024-9-19 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66243903&amp;ptid=2170852" target="_blank">Dementia 发表于 2024-9-19 10:49</a>
+
+非安全模式满充能打无畏的散热口还经常丢伤害，明明上版本的安全模式都能秒掉无畏的散热口 ...</blockquote>
+是无畏整体血量有提升吧
+

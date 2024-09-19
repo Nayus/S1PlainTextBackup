@@ -7957,3 +7957,24 @@ B站那里云黎轨2剧情比较好
 
 仔细一想近两作轨迹一直属于被牺牲的对象，22年为了给伊苏腾档期搞个狗屎一样的李鬼2，去年伊苏x销量好像也就那样，24年又出个赶工合家欢界轨，明年又搞空轨重制爆大家米。轨迹玩家就真tm不是人啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 5252#       发表于 2024-9-19 22:43
+
+空轨也是轨
+
+*****
+
+####  ravend233  
+##### 5253#       发表于 2024-9-19 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66250623&amp;ptid=2160194" target="_blank">Mchaos 发表于 2024-9-19 22:37</a>
+仔细一想近两作轨迹一直属于被牺牲的对象，22年为了给伊苏腾档期搞个狗屎一样的李鬼2，去年伊苏x销量好像也 ...</blockquote>
+不是人的只有想看到一个合格的共和国篇剧情的玩家，谁叫爆不出米呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">爆不出米在你法社眼里就不是玩家口牙
+
+我只想看界轨和空re都暴死就是了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

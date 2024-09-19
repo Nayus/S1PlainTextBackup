@@ -6920,3 +6920,42 @@ i1584176341.jpg
 
 小人还要买dlc，不买只有van，黑兔，拉碧斯三人<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 5141#       发表于 2024-9-19 14:41
+
+我上周就问黎恩线黎恩第一位怎么用的黑兔小人
+
+*****
+
+####  ravend233  
+##### 5142#       发表于 2024-9-19 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66246088&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-19 14:33</a>
+
+这作有西装吗</blockquote>
+估计丢庭院抽卡池吧
+
+*****
+
+####  卢迪克  
+##### 5143#       发表于 2024-9-19 14:45
+
+mk越来越牛逼，能破译外之理代码。不过奥古斯特也可以破解夺取他的童话庭院。主打一个随意<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 5144#       发表于 2024-9-19 14:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">瞎逼乱写的剧本是这样的
+
+*****
+
+####  Aeons  
+##### 5145#       发表于 2024-9-19 14:49
+
+黎二dlc开头说了奥古斯特靠的第八创世的影响骇入的，后续的破坏是外典复制魔王
+

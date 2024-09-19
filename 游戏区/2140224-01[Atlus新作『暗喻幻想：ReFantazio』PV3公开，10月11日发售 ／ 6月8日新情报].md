@@ -82,3 +82,45 @@ atlus你们是忘本了啊<img src="https://static.saraba1st.com/image/smiley/fa
 
 2024-9-19 22:10 上传
 
+
+*****
+
+####  heseran  
+##### 715#       发表于 2024-9-19 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66250241&amp;ptid=2140224" target="_blank">双刀少女 发表于 2024-9-19 21:52</a>
+这算不算atlus热度最低的新作？我感觉真女V刚出的时候都比他讨论多多了</blockquote>
+对我来说这游戏宣发期感觉好长，尤其是各种“前多少小时试玩”的那种，实在是有点多，又得忍住不看，导致感觉没什么能聊的了。<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+
+*****
+
+####  罗克萨斯  
+##### 716#       发表于 2024-9-19 22:20
+
+虽然热度很低，但是宣发成本感觉不低啊，虽然很喜欢粉毛兽耳娘，但是让我首发，还是下不去手<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  抽烟的猴  
+##### 717#       发表于 2024-9-19 22:24
+
+ 本帖最后由 抽烟的猴 于 2024-9-19 22:26 编辑 
+<blockquote>罗克萨斯 发表于 2024-9-19 22:20
+虽然热度很低，但是宣发成本感觉不低啊，担心会不会暴雷
+
+虽然很喜欢粉毛兽耳娘，但是让我首发，还是下不去 ...</blockquote>
+快进到桥野桂被扣奖金，整个旧p组被发配给新p组做p6吼不吼呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当年为了做这个导致p5没做完，现在看起来太地狱笑话了
+
+*****
+
+####  取名真是难  
+##### 718#       发表于 2024-9-19 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66250396&amp;ptid=2140224" target="_blank">heseran 发表于 2024-9-19 22:10</a>
+
+看到三眼女我第一个想到的是她</blockquote>
+想起来这人还没收呢，先开个二周目度过这个月
+

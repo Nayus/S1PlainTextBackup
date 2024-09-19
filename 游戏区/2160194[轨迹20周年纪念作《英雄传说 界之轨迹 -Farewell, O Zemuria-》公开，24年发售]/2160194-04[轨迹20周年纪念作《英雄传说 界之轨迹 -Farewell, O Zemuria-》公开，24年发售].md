@@ -7593,3 +7593,20 @@ enami认真画确实还行啊，这边就是硬摆烂，经过黎1后法老控�
 
 法：好好好听你们的，听说有个叫桐叶的画师很受欢迎nia
 
+
+*****
+
+####  check  
+##### 5217#       发表于 2024-9-19 18:42
+
+e圣水平下降得厉害还是falcom钱没给够，画的还不如x上的摸鱼图
+
+*****
+
+####  Squall25  
+##### 5218#       发表于 2024-9-19 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66248145&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-19 17:38</a>
+咸鱼好像已经有偷跑了，中文同步就是快啊</blockquote>
+没有偷跑吧。你问过店家吗？没明写有现货的不是的
+

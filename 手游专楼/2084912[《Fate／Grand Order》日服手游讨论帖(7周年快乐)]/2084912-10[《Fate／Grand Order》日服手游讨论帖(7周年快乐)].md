@@ -336,3 +336,13 @@ XR，剛升到ios 18，選擇自動開啟的遊戲模式
 
 明天维护又要更客户端，2.99版，3.0版能整出点啥来
 
+
+*****
+
+####  サイトヒメア  
+##### 14640#       发表于 2024-9-19 18:42
+
+byd喜欢FE能不能滚去填FEX的坑啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -5710,3 +5710,38 @@ FC不就是First Chapter吗，这还用猜<img src="https://static.saraba1st.com
 
 2024-9-19 09:23 上传
 
+
+*****
+
+####  ravend233  
+##### 5011#       发表于 2024-9-19 09:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是不忘他的列祖列宗
+
+
+*****
+
+####  SuNR1sE364  
+##### 5012#       发表于 2024-9-19 09:32
+
+一定要在宣传的时候把所有前作摆出来吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无动于衷  
+##### 5013#       发表于 2024-9-19 09:33
+
+<blockquote>ravend233 发表于 2024-9-19 08:44
+今日倒计时</blockquote>
+凯文有出圣痕的时候眼睛变色的设定？
+
+*****
+
+####  ravend233  
+##### 5014#       发表于 2024-9-19 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66243046&amp;ptid=2160194" target="_blank">无动于衷 发表于 2024-9-19 09:33</a>
+
+凯文有出圣痕的时候眼睛变色的设定？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没印象（）快进到又把3RD旧账翻出来炒
+

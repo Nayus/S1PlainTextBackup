@@ -6417,3 +6417,49 @@ van上月球
 
 共和国故事还是早点结束换画师吧
 
+
+*****
+
+####  卢迪克  
+##### 5087#       发表于 2024-9-19 12:36
+
+都不买不就结束了
+
+
+*****
+
+####  smdzh2  
+##### 5088#       发表于 2024-9-19 12:42
+
+妮娜因为立绘过于池沼化身铁拳妮娜去找E圣算账
+
+*****
+
+####  Squall25  
+##### 5089#       发表于 2024-9-19 12:45
+
+人气真有用，艾蕾因就不会被画的那么唐了
+
+*****
+
+####  洛克萨斯  
+##### 5090#       发表于 2024-9-19 12:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">从未如此想念村上，这质量还不如不画呢！
+
+*****
+
+####  ravend233  
+##### 5091#       发表于 2024-9-19 12:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么说呢，人气有用，但不一定绝对有用
+
+你说是吧亚莉莎（
+
+*****
+
+####  卢迪克  
+##### 5092#       发表于 2024-9-19 12:47
+
+按照人气的怎么不把金兔复活，她不是投票11名吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

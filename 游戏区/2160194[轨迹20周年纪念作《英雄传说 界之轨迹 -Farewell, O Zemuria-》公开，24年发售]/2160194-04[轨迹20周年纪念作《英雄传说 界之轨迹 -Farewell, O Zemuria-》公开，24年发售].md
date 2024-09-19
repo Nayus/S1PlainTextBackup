@@ -7190,3 +7190,11 @@ enami❤️mx2j
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  diectt  
+##### 5173#       发表于 2024-9-19 16:53
+
+enami认真画确实还行啊，这边就是硬摆烂，经过黎1后法老控还请他，属于法老控全责了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

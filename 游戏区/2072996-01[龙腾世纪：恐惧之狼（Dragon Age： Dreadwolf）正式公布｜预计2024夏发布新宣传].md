@@ -60,3 +60,21 @@ steam预购榜都飞榜了，销量估计会一塌糊涂。
 
 这系列反正每代都换主角，而从二代到三代的延续看，本代天大的事到后代总被更大的问题盖过去。目前看预告信息好像四代跟三代延续性比之前几代间的强，但具体不知道如何。故事背景这个反正去看看解说也好了解，不同代讲的方面不一样，应该是不太影响入新作的。
 
+
+*****
+
+####  医生狼多  
+##### 524#         楼主| 发表于 2024-9-20 00:34
+
+发preview开吹了
+
+Dragon Age: The Veilguard | Hands-on previews:
+
+• ''Feels like the series' Mass Effect 2 moment" -Eurogamer
+
+• "A definite GOTY contender" -GameRant
+
+• "The Character Creator I’ve Always Wanted" -IGN
+
+• "BioWare At Its Most Confident" -Gamespot
+

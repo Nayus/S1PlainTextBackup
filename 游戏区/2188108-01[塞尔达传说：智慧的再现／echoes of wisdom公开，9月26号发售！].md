@@ -284,3 +284,11 @@
 按塞尔达传统，估计又是某些没来得及实现的想法和机制拿出来单独做了个游戏 ...</blockquote>
 做旷野之息时先做了一个初代画风的2d塞尔达来测试各种新的想法，本作应该就是源自那个2d塞尔达
 
+
+*****
+
+####  heseran  
+##### 595#       发表于 2024-9-20 00:37
+
+国庆假期玩到就算成功<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

@@ -5866,3 +5866,75 @@ FC不就是First Chapter吗，这还用猜<img src="https://static.saraba1st.com
 
 感觉主线剧情就是这些啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fireadol  
+##### 5027#       发表于 2024-9-19 10:14
+
+回来吧千智荟我最骄傲的信仰<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 5028#       发表于 2024-9-19 10:14
+
+ 本帖最后由 卢迪克 于 2024-9-19 10:15 编辑 
+
+说起来，盟主建模怎么那么像库尔特的母亲
+
+
+*****
+
+####  ravend233  
+##### 5029#       发表于 2024-9-19 10:20
+
+<img src="https://img.saraba1st.com/forum/202409/19/102010vjco6545ijzcrrci.png" referrerpolicy="no-referrer">
+
+<strong>L@7OLZK$HU(6I2DO$UJNRSU_tmb.png</strong> (142.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-19 10:20 上传
+
+<img src="https://img.saraba1st.com/forum/202409/19/102013h583r8klpe050z0r.png" referrerpolicy="no-referrer">
+
+<strong>)RWS~31%FO(5P8ACL1URU%1_tmb.png</strong> (87.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-19 10:20 上传
+
+<img src="https://img.saraba1st.com/forum/202409/19/102017yjtbq5rhujgyul9p.png" referrerpolicy="no-referrer">
+
+<strong>}CTXYB_1J8X1~QYSB]46)MJ_tmb.png</strong> (83.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-19 10:20 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新的大作
+
+*****
+
+####  theti  
+##### 5030#       发表于 2024-9-19 10:22
+
+e大师收手吧
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 5031#       发表于 2024-9-19 10:23
+
+都挺正常的......什么时候开始正常都能夸一下了？
+
+*****
+
+####  悠悠你心  
+##### 5032#       发表于 2024-9-19 10:24
+
+牢葱这官方倒计时贺图让我感觉你法又想搞心魔烂活了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

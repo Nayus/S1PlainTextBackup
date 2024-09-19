@@ -589,3 +589,19 @@ ff都不能拯救se了，那么拯救se的会是谁呢？
 
 7RB赶紧上PC我还能贡献一份销量
 
+
+*****
+
+####  FACS  
+##### 65#       发表于 2024-9-19 10:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">制作组还说大伙对小游戏反响很好，第三部加大力度呢
+
+
+*****
+
+####  尼曼兔  
+##### 66#       发表于 2024-9-19 10:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">怀疑SE没有正经玩游戏的人了，或者说他们有什么企业文化可以让制作人不干人事。
+

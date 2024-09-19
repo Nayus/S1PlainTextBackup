@@ -7387,3 +7387,49 @@ enami认真画确实还行啊，这边就是硬摆烂，经过黎1后法老控�
 
 东迷因为质量好就给你每一章都放一遍生怕亏了一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一步成诗  
+##### 5194#       发表于 2024-9-19 17:38
+
+咸鱼好像已经有偷跑了，中文同步就是快啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 5195#       发表于 2024-9-19 17:38
+
+东迷那时候 3hz才成立一年多吧，价格便宜点，闪34那时候身价不同了
+
+*****
+
+####  ravend233  
+##### 5196#       发表于 2024-9-19 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66248145&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-19 17:38</a>
+咸鱼好像已经有偷跑了，中文同步就是快啊</blockquote>
+一周了，店铺确实差不多拿到货了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  一步成诗  
+##### 5197#       发表于 2024-9-19 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66248175&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-19 17:41</a>
+
+一周了，店铺确实差不多拿到货了
+
+—— 来自 鹅球 v3.0.0.82-alpha</blockquote>
+有没有人天价赤石让大家伙看看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  八佾舞于潭  
+##### 5198#       发表于 2024-9-19 17:45
+
+不少比法老空小得多赚得少的厂商至少知道保住人设立绘这个底牌，比如 inti creates，比如 qureate，为什么一个全价单作剑指50W份的厂商能不堪成这样？
+

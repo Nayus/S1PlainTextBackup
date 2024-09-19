@@ -527,3 +527,23 @@ ff都不能拯救se了，那么拯救se的会是谁呢？
 
 7rb玩起来突出一个笨重，从demo搬风机就能感觉得到，哪知道本体更加繁琐。配上狒狒粉丝“这就是我理想中的jrpg，你怎么敢毁掉理想的”说辞，恶心程度直线上升一百倍左右
 
+
+*****
+
+####  五更伪境  
+##### 58#       发表于 2024-9-19 09:10
+
+事实证明jrpg已经被时代抛弃了😤
+
+*****
+
+####  fireadol  
+##### 59#       发表于 2024-9-19 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66239421&amp;ptid=2199854" target="_blank">qiyu1234 发表于 2024-9-18 20:26</a>
+
+如果说16是因为转型扯到蛋，那7RB呢？因为分章节？
+
+感觉7RB上了多平台以后情况会好一些吧 ...</blockquote>
+分章节，很多人在等最后出完看评价再决定买不买。而且塞的小游戏太多已经是到了新地区玩新的小游戏就想吐的地步，说真的第二部量大到后面我已经有点撑到了，如果后面真有人三部一起玩感觉会比育碧罐头更加痛苦<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">拆三部不考虑定价每部跟第一部体量差不多玩起来还舒服点
+

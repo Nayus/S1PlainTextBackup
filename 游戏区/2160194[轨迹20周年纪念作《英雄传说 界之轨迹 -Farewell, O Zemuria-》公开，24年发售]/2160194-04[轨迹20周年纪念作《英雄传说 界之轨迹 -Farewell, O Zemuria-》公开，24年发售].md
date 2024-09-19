@@ -7082,3 +7082,69 @@ falcom真的能容忍enami这么折腾？</blockquote>
 
 —— 来自 OPPO PGEM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  天王寺凯伊姆  
+##### 5160#       发表于 2024-9-19 16:28
+
+已经没有牢莎粉啦，有的话看到这操作也已经去世了
+
+
+*****
+
+####  迷雾塔  
+##### 5161#       发表于 2024-9-19 16:28
+
+这也太丑了，也能放出来？但我记得e大师水平还是不错的啊。上次在界吧看到的。
+<img src="https://p.sda1.dev/19/3cab480480ba66de57ae5ba197c600dc/image.jpg" referrerpolicy="no-referrer">">
+<img src="https://p.sda1.dev/19/f57ff4fcae66e2c1506c2b978dc9b1c5/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  八佾舞于潭  
+##### 5162#       发表于 2024-9-19 16:29
+
+可能是近藤磕头请吃饭求来的稿子
+
+*****
+
+####  Aeons  
+##### 5163#       发表于 2024-9-19 16:29
+
+都是老图了吧，不过之前轻小说插画那个看着也还行。
+感觉是不是画不了立绘
+
+
+*****
+
+####  Squall25  
+##### 5164#       发表于 2024-9-19 16:32
+
+联系enami推特和之前他和法老控不和的传闻，我合理怀疑enami界轨能这么烂是他故意的。黎1都没那么差<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 5165#       发表于 2024-9-19 16:33
+
+enami❤️mx2j
+
+*****
+
+####  nozomitech  
+##### 5166#       发表于 2024-9-19 16:34
+
+我的天呐，黎12那个立绘我觉得可以勉强忍了，这盟主的看得我快昏过去了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  悠悠你心  
+##### 5167#       发表于 2024-9-19 16:35
+
+幽默牢莎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么界轨片场没看到你人啊
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

@@ -7198,3 +7198,28 @@ enami❤️mx2j
 
 enami认真画确实还行啊，这边就是硬摆烂，经过黎1后法老控还请他，属于法老控全责了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  88is88  
+##### 5174#       发表于 2024-9-19 17:05
+
+你们骂ENAMI的懂个屁，前面忘了......村上......人体......后面忘了
+
+*****
+
+####  红魔馆的糖  
+##### 5175#       发表于 2024-9-19 17:06
+
+爱纳米画的那个轻小说立绘也挺垃圾的，不过肯定没有轨这么变态，这个已经是污染眼球的丑了
+
+
+*****
+
+####  隔壁老黄  
+##### 5176#       发表于 2024-9-19 17:14
+
+从0鬼开始就觉得enami巨丑无比，闪轨的人气那么高难不成近藤觉得是靠那狗屎剧本，跟立绘没有一丝一毫的关系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

@@ -35,3 +35,11 @@ S1第一后裔刷刷刷</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来这个群至今还只有九个人，两位数都不到
 可见这个游戏是真的不行
 
+
+*****
+
+####  魂淡融  
+##### 225#       发表于 2024-9-19 11:32
+
+长草期了，福马卡住了，想刷都没的刷
+

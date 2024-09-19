@@ -6177,3 +6177,77 @@ Enami和法老控之前应该闹崩了的，界轨还能再找他，我本来也
 
 已经预定做了轨迹凯子了退都没得退
 
+
+*****
+
+####  ravend233  
+##### 5059#       发表于 2024-9-19 11:25
+
+ 本帖最后由 ravend233 于 2024-9-19 11:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66244340&amp;ptid=2160194" target="_blank">kangkangsama 发表于 2024-9-19 11:23</a>
+
+纯为了黎轨来的剑女党是不是可以喊gg了
+
+已经预定做了轨迹凯子了退都没得退 ...</blockquote>
+戏份上不好说，感情戏会端水的（）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还是剑指明年的空RE和东迷2吧（
+
+*****
+
+####  红魔馆的糖  
+##### 5060#       发表于 2024-9-19 11:25
+
+不是，tmlgb的这种鬼图为什么能捏着鼻子过？？？
+
+*****
+
+####  kangkangsama  
+##### 5061#       发表于 2024-9-19 11:27
+
+<blockquote>ravend233 发表于 2024-9-19 11:25
+戏份上不好说，感情戏会端水的（）</blockquote>
+肉眼可见没多少戏份不说，就那点戏份还要和黑月扯上关系
+
+*****
+
+####  ravend233  
+##### 5062#       发表于 2024-9-19 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66244391&amp;ptid=2160194" target="_blank">kangkangsama 发表于 2024-9-19 11:27</a>
+
+肉眼可见没多少戏份不说，就那点戏份还要和黑月扯上关系</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">宣发看到的反移民和黎2的双子，黎轨组剧情感觉已经看完一大半了
+
+
+*****
+
+####  洛克萨斯  
+##### 5063#       发表于 2024-9-19 11:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以后是不是看画师判断项目在你法内部的权重等级，村上在的就是最重要的！
+
+*****
+
+####  ravend233  
+##### 5064#       发表于 2024-9-19 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66244432&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-9-19 11:31</a>
+
+以后是不是看画师判断项目在你法内部的权重等级，村上在的就是最重要的！ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果招不到新的顶梁柱大概是这样的
+
+*****
+
+####  aimbot  
+##### 5065#       发表于 2024-9-19 11:33
+
+你法什么时候能用ai，我看e大师画的还不如ai直出
+
+*****
+
+####  洛克萨斯  
+##### 5066#       发表于 2024-9-19 11:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你轨对你法没功劳也有苦劳，怎么就不能安排一个风光大葬体面完结，本来买的就都是老粉丝，还要狠狠攻击老粉丝们的眼睛，造孽啊
+

@@ -26,3 +26,16 @@ atlus你们是忘本了啊<img src="https://static.saraba1st.com/image/smiley/fa
 
 三眼女，海贼王也有一个
 
+
+*****
+
+####  Khellendros  
+##### 710#       发表于 2024-9-19 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66100234&amp;ptid=2140224" target="_blank">voldovenom 发表于 2024-9-3 15:38</a>
+
+我先来句难听的话，有没有人觉得这游戏的ui过渡和切换太乱太闪了？
+
+昨天看了巴哈的25分钟试玩，人物对话和 ...</blockquote>
+是的，苟史建模和贴图都能忍，这个ui真的太瞎眼了，看了几段媒体试玩都快给我整出光敏癫痫了<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+

@@ -6378,3 +6378,42 @@ van上月球
 
 反正黎轨结束剑女粉就没有任何利用价值了，可以一脚踢开了，不过反过来想想，不敢明确可能是还有利用价值，下部可能还是共和国
 
+
+*****
+
+####  卢迪克  
+##### 5082#       发表于 2024-9-19 12:20
+
+贴吧说妮娜吃了人气低的亏，哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  空气先生  
+##### 5083#       发表于 2024-9-19 12:23
+
+真羡慕轨迹粉啊，能享受到这种立绘
+
+*****
+
+####  椎名mahuyo  
+##### 5084#       发表于 2024-9-19 12:25
+
+真被写死了好歹也退场了，现在我是觉得这剑女怕不是后面出来就尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卡拉德利姆  
+##### 5085#       发表于 2024-9-19 12:26
+
+想到界2还要再吃一次e大师的粪我就
+
+*****
+
+####  TheOccuria  
+##### 5086#       发表于 2024-9-19 12:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">卧槽这盟主..
+
+共和国故事还是早点结束换画师吧
+

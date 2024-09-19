@@ -225,3 +225,22 @@
 
 还没偷跑
 
+
+*****
+
+####  kuarwbwe  
+##### 589#       发表于 2024-9-19 12:18
+
+开始预载，期待9.26。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/19/eb9a119ec9b3d614bf510b0628fceb45/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  星花  
+##### 590#       发表于 2024-9-19 12:19
+
+ 本帖最后由 星花 于 2024-9-19 12:20 编辑 
+
+买好了。。。。希望体量能有梦见岛，4倍。
+

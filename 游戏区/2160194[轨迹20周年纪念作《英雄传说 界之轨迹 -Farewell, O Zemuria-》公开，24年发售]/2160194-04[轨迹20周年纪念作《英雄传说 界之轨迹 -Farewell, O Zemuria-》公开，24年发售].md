@@ -7978,3 +7978,21 @@ B站那里云黎轨2剧情比较好
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  红魔馆的糖  
+##### 5254#       发表于 2024-9-19 22:52
+
+黎1的时候还歌舞升平觉得轨又焕发了光彩，妹想到只过了一作就这样了，真是法法又老老啊<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ravend233  
+##### 5255#       发表于 2024-9-19 22:55
+
+不过看起来黎1在欧美卖得不错，然而你法社注定要在接下来一年给鬼佬端出两坨大便，原因只是因为这玩意当年在本土卖得不好，也是幽默
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

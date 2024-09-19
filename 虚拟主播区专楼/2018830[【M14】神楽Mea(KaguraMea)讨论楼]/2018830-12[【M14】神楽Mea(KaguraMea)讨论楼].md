@@ -8761,3 +8761,34 @@ BV1ez421b76t
 
 队友我草泥马
 
+
+*****
+
+####  古战场亡魂  
+##### 17427#       发表于 2024-9-19 20:56
+
+ 本帖最后由 古战场亡魂 于 2024-9-19 21:26 编辑 
+
+她推特放的那场我刚好看了，队友纯畜生。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+打野拼惩戒拼不过，被抢了1条大龙两条小龙，辅助梦游，adc梦游，中单抽象出装。
+
+*****
+
+####  sino__unnko3  
+##### 17428#       发表于 2024-9-20 00:51
+
+你咩之前删档直播说的话还真身体力行了( 
+那次说b限没互动，像坐牢想停，那干脆把其他平台一个一个停了，就做喜欢的事情罢 
+只不过没人想到一转头youtub也开摆，其他平台都摆了最后成了老鼠台超长限定主播()
+
+*****
+
+####  lightsuger  
+##### 17429#       发表于 2024-9-20 07:40
+
+上yaraon了，但没说名字<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+【動画】人気Vtuberさん、対戦ゲームで負けて発狂ｗｗｗ　お前らの想像の3倍発狂
+[http://yaraon-blog.com/archives/264840](http://yaraon-blog.com/archives/264840)
+

@@ -675,3 +675,13 @@ kite liberator第二话什么时候出？<img src="https://static.saraba1st.com/
 
 所以梅津能画一段h镜头吗
 
+
+*****
+
+####  strider_oy  
+##### 75#       发表于 2024-9-20 07:39
+
+kite味挺足的，感觉应该比弁魔士好看点吧
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+

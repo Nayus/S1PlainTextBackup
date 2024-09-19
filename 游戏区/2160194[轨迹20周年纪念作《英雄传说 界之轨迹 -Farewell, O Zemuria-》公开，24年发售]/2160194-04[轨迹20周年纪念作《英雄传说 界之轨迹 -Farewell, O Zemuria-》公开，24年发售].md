@@ -6983,3 +6983,25 @@ mk越来越牛逼，能破译外之理代码。不过奥古斯特也可以破解
 
 E大师？E处！
 
+
+*****
+
+####  KevinGraham  
+##### 5149#       发表于 2024-9-19 15:37
+
+哇这个三合一立绘宣传图，没有人类了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 5150#       发表于 2024-9-19 15:41
+
+还不是结晶们没买爆黎2，没经费啦<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Archer长羽  
+##### 5151#       发表于 2024-9-19 15:41
+
+港服上架DLC了吗
+

@@ -6,3 +6,11 @@
 
 <img src="https://p.sda1.dev/19/82f5bd54b7bcf6a4854d7d2fe1c4a0b1/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 7539#       发表于 2024-9-19 15:43
+
+听了剧场版的曲子，比想象中抓耳多了，除了艾玛的，艾玛的曲子和过去的日风曲子比好像多了点什么奇怪的风格。。。
+

@@ -6805,3 +6805,36 @@ i1584176341.jpg
 我师傅呢</blockquote>
 没有新立绘的老登把位置让让
 
+
+*****
+
+####  Bruce33  
+##### 5126#       发表于 2024-9-19 14:19
+
+太几把变态了，这是地球人画的吗
+
+*****
+
+####  stonego  
+##### 5127#       发表于 2024-9-19 14:21
+
+ 本帖最后由 stonego 于 2024-9-19 14:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66245907&amp;ptid=2160194" target="_blank">windtrack_qh 发表于 2024-9-19 14:15</a>
+
+你法下次直接上AI行不行</blockquote>
+这就是E大师的人体结构吗，3个人3种头身比<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">，讲真把建模扔进去图生图确实会更好一些
+
+*****
+
+####  swordofsoul1  
+##### 5128#       发表于 2024-9-19 14:22
+
+兔女郎还行，想入
+
+*****
+
+####  椎名mahuyo  
+##### 5129#       发表于 2024-9-19 14:25
+
+法老控：前作衣服都进回廊让你抽了，新衣服就凑合下吧
+

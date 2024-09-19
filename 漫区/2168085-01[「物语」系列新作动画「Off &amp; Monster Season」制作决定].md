@@ -522,3 +522,13 @@ mv看笑了家人们<img src="https://static.saraba1st.com/image/smiley/face2017
 
 为什么97写两遍啊？
 
+
+*****
+
+####  猫兔同笼  
+##### 908#       发表于 2024-9-19 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66250523&amp;ptid=2168085" target="_blank">tiro_finale 发表于 2024-9-19 22:25</a>
+为什么97写两遍啊？</blockquote>
+第26位质数是101，是三位数而且含有0吧
+

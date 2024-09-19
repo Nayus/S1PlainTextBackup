@@ -7433,3 +7433,38 @@ enami认真画确实还行啊，这边就是硬摆烂，经过黎1后法老控�
 
 不少比法老空小得多赚得少的厂商至少知道保住人设立绘这个底牌，比如 inti creates，比如 qureate，为什么一个全价单作剑指50W份的厂商能不堪成这样？
 
+
+*****
+
+####  Aeons  
+##### 5199#       发表于 2024-9-19 17:47
+
+怎么也得拆开看看内容吧
+
+*****
+
+####  Aeons  
+##### 5200#       发表于 2024-9-19 17:48
+
+因为招牌是剧本
+
+
+*****
+
+####  ravend233  
+##### 5201#       发表于 2024-9-19 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66248223&amp;ptid=2160194" target="_blank">八佾舞于潭 发表于 2024-9-19 17:45</a>
+不少比法老空小得多赚得少的厂商至少知道保住人设立绘这个底牌，比如 inti creates，比如 qureate，为什么 ...</blockquote>
+没有长期规划呗，等到问题爆发的时候发现人都离职了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  医生狼多  
+##### 5202#         楼主| 发表于 2024-9-19 17:54
+
+剑指50w，吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -6891,3 +6891,32 @@ i1584176341.jpg
 
 这作有西装吗
 
+
+*****
+
+####  Aeons  
+##### 5137#       发表于 2024-9-19 14:34
+
+突然觉得立绘配得上界轨的敷衍，安心了
+
+*****
+
+####  古畑任三郎2015  
+##### 5138#       发表于 2024-9-19 14:38
+
+无头骑士直接正中c位啊<img src="https://static.saraba1st.com/image/smiley/face/145.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 5139#       发表于 2024-9-19 14:39
+
+艾米莉亚一小步，人类一大步好吧
+
+*****
+
+####  卢迪克  
+##### 5140#       发表于 2024-9-19 14:39
+
+小人还要买dlc，不买只有van，黑兔，拉碧斯三人<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+

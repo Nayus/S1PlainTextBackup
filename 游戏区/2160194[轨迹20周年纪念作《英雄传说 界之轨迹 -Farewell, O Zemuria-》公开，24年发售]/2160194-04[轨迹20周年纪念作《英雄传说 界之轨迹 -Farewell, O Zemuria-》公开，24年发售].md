@@ -6149,3 +6149,31 @@ Enami和法老控之前应该闹崩了的，界轨还能再找他，我本来也
 
 太伟大了爱纳米<img src="https://p.sda1.dev/19/1ed4104f435c80b36b66c768a6d4f761/IMG_6BA7378E4FBAD61D459A0F004A2F85E8.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 5057#       发表于 2024-9-19 11:22
+
+目前最好看还是电影人物。
+
+可能是新画师自己设计的角色所以用心了些
+
+<img src="https://img.saraba1st.com/forum/202409/19/112216r866ldvnbbw3cjv3.jpg" referrerpolicy="no-referrer">
+
+<strong>4E46BBE1B5DC9198D72289AC9566ACA3.jpg</strong> (78.44 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-19 11:22 上传
+
+*****
+
+####  kangkangsama  
+##### 5058#       发表于 2024-9-19 11:23
+
+纯为了黎轨来的剑女党是不是可以喊gg了
+
+已经预定做了轨迹凯子了退都没得退
+

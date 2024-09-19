@@ -9571,3 +9571,19 @@ mujica之前的gsc娃娃什么时候再贩，原价200淘宝都涨价到365一�
 
 要带望远镜最好买个好点的，那种几十块钱的不太实用。
 
+
+*****
+
+####  rikaren  
+##### 23073#       发表于 2024-9-19 11:18
+
+<img src="https://img.saraba1st.com/forum/202409/19/111803k8gbgjf8vkax91ev.jpg" referrerpolicy="no-referrer">
+
+<strong>1726715139615.jpg</strong> (122.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-19 11:18 上传
+
+草，这都第九张五星了吧
+

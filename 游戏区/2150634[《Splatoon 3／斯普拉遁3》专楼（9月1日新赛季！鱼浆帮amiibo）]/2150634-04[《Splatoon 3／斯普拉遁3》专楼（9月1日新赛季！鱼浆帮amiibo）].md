@@ -5465,3 +5465,17 @@ pve开放以后就很少进pvp了
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  晴岚  
+##### 5444#       发表于 2024-9-19 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66239031&amp;ptid=2150634" target="_blank">Dedalus 发表于 2024-9-18 19:48</a>
+赢的时候才告诉你，意思是输了的局不告诉你是百倍
+
+—— 来自 S1Fun</blockquote>
+赢了会广播赢家名字的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

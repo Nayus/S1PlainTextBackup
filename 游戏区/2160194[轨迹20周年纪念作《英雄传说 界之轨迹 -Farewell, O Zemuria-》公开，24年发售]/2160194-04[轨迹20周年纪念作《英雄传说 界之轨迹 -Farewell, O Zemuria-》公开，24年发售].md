@@ -5696,3 +5696,17 @@ FC不就是First Chapter吗，这还用猜<img src="https://static.saraba1st.com
 发售特辑也没有社长太极啊，好没意思16页就2页新的</blockquote>
 太极在26号，这次不敢多说
 
+
+*****
+
+####  卢迪克  
+##### 5010#       发表于 2024-9-19 09:23
+
+<img src="https://img.saraba1st.com/forum/202409/19/092310p0ob0yflrkybjork.png" referrerpolicy="no-referrer">
+
+<strong>GXwkPvAakAEFGf4(1).png</strong> (134.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-19 09:23 上传
+

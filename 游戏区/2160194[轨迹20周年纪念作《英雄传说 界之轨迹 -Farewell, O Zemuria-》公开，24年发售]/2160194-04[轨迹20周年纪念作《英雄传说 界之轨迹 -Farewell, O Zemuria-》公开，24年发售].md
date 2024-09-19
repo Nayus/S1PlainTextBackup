@@ -7870,3 +7870,14 @@ B站那里云黎轨2剧情比较好
 
 欧美粉丝发力了吧，闪轨好像也是鬼佬玩家爆买，难怪黑字株式会社一点也不急
 
+
+*****
+
+####  仲可怀  
+##### 5244#       发表于 2024-9-19 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66250009&amp;ptid=2160194" target="_blank">woaimiyabi 发表于 2024-9-19 21:22</a>
+
+一个月涨五十万销量？</blockquote>
+黎轨1英文版发售了
+

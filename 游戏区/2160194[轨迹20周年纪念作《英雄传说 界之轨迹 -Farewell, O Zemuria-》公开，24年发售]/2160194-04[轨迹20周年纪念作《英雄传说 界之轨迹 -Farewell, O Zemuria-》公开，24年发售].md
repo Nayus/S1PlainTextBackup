@@ -8104,3 +8104,20 @@ B站那里云黎轨2剧情比较好</blockquote>
 
 序章
 
+
+*****
+
+####  zhuhh  
+##### 5267#       发表于 2024-9-20 02:40
+
+刚看到有人跑到enami推上评论区直接炎上了，不知道这账号是不是国内玩家的🤔。看看到时enami会不会回应这条评论
+
+<img src="https://img.saraba1st.com/forum/202409/20/023904yqij55kknkt55kqu.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-09-20-02-31-59-469_com.twitter.android.jpg</strong> (184.97 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-20 02:39 上传
+

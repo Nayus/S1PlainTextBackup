@@ -2265,7 +2265,7 @@
     "lastedit": 1726769220,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1804478": {
     "totalreply": 1242,
@@ -4878,10 +4878,10 @@
     "update": false
   },
   "1860285": {
-    "totalreply": 1325,
+    "totalreply": 1326,
     "title": "[十字军之王3发售日期2020年9月2日，有官中]",
     "newtitle": "[十字军之王3发售日期2020年9月2日，有官中]",
-    "lastedit": 1726758491,
+    "lastedit": 1726771330,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -8901,10 +8901,10 @@
     "update": false
   },
   "2160194": {
-    "totalreply": 5266,
+    "totalreply": 5267,
     "title": "[轨迹20周年纪念作《英雄传说 界之轨迹 -Farewell, O Zemuria-》公开，24年发售]",
     "newtitle": "[《英雄传说 界之轨迹》公开，ps版9月26日，中文同步发售]",
-    "lastedit": 1726769168,
+    "lastedit": 1726771331,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -9351,10 +9351,10 @@
     "update": false
   },
   "2192350": {
-    "totalreply": 2079,
+    "totalreply": 2080,
     "title": "[巴以中东专楼-7月版]",
     "newtitle": "[巴以中东专楼-7月版]",
-    "lastedit": 1726770613,
+    "lastedit": 1726771451,
     "category": "外野",
     "active": true,
     "update": false
@@ -16704,10 +16704,10 @@
     "update": false
   },
   "2199806": {
-    "totalreply": 382,
+    "totalreply": 386,
     "title": "[这下特斯拉苹果什么的在国内不好卖了吧]",
     "newtitle": "[这下特斯拉苹果什么的在国内不好卖了吧]",
-    "lastedit": 1726770848,
+    "lastedit": 1726771690,
     "category": "外野",
     "active": true,
     "update": false
@@ -16830,10 +16830,10 @@
     "update": false
   },
   "2199796": {
-    "totalreply": 55,
+    "totalreply": 56,
     "title": "[星际战士2制作人：厌倦了强加道德 只想回归游戏本质]",
     "newtitle": "[星际战士2制作人：厌倦了强加道德 只想回归游戏本质]",
-    "lastedit": 1726770969,
+    "lastedit": 1726771331,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17505,10 +17505,10 @@
     "update": false
   },
   "2199951": {
-    "totalreply": 52,
+    "totalreply": 53,
     "title": "[高达w看了十集，我觉得大脑好像被飞翼拉一起自爆了]",
     "newtitle": "[高达w看了十集，我觉得大脑好像被飞翼拉一起自爆了]",
-    "lastedit": 1726770611,
+    "lastedit": 1726771210,
     "category": "漫区",
     "active": true,
     "update": false
@@ -17527,6 +17527,15 @@
     "title": "[中国正在迅速成为先进工业的领先创新者（特别长）]",
     "newtitle": "[中国正在迅速成为先进工业的领先创新者（特别长）]",
     "lastedit": 1726769650,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2199992": {
+    "totalreply": 41,
+    "title": "[Russia！！！]",
+    "newtitle": "[Russia！！！]",
+    "lastedit": 1726771691,
     "category": "外野",
     "active": true,
     "update": false

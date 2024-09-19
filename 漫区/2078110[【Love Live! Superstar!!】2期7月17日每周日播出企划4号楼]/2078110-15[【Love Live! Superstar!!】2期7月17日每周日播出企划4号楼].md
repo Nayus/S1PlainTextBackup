@@ -1052,3 +1052,16 @@ What a wonderful radio完结还行……
 转发了一条虹anti的推，点赞了一条要杀光推し自己的阿宅的推
 因为那条虹anti的推是用emoji指代anti的声优，不特地搜索过类似的内容应该不会出现在自己主页的timeline，所以如果不是盗号真的非常严重，说明平时她エゴサ都在搜些类似紫吧蛆才喜欢的东西<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 21054#       发表于 2024-9-20 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66250462&amp;ptid=2078110" target="_blank">renkan119 发表于 2024-9-19 22:18</a>
+声优官推转发黑屁虹的推 目前出来道歉说是误触</blockquote>
+说误触真不是一个好解释
+能误触到这种推，只会被质疑平时搜索得多被X推送这类推
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

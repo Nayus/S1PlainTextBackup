@@ -5479,3 +5479,14 @@ pve开放以后就很少进pvp了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  绿冰  
+##### 5445#         楼主| 发表于 2024-9-19 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66242449&amp;ptid=2150634" target="_blank">星野航 发表于 2024-9-19 08:32</a>
+
+百倍这种事儿本来就是给打祭典一个调剂，我跟朋友打祭典从来都是挂个电话聊天聊地，要是真不在开头提示，这 ...</blockquote>
+要是2代输了百倍其实更折磨，我直到最终祭典才遇到过一次百倍，出现率和3代的333倍差不多
+

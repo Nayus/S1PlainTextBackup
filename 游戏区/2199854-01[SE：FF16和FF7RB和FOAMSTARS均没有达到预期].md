@@ -634,3 +634,13 @@ ff都不能拯救se了，那么拯救se的会是谁呢？
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  FACS  
+##### 70#       发表于 2024-9-19 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66243686&amp;ptid=2199854" target="_blank">feizong 发表于 2024-9-19 10:31</a>
+早点把完整的FF9重制搬到全平台，可能我会支持一下steam版。要还是PS5限时独占，SE可以早点死了算了。甚至F ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">索尼第一孝子必首发独占的
+

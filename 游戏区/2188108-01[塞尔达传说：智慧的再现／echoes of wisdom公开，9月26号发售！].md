@@ -191,3 +191,14 @@
 
 能坚持到今天预下载已经不容易了
 
+
+*****
+
+####  kuarwbwe  
+##### 585#       发表于 2024-9-19 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66242937&amp;ptid=2188108" target="_blank">tachikoma27 发表于 2024-9-19 09:22</a>
+
+熟悉一点塞尔达套路的，2d就是十多个小时的流程啊。不要抱太多幻想</blockquote>
+主要是我确实希望2D塞能在内容上有点质的飞跃，包括体量和机制。要就是十多个小时的流程实在少了点。<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+

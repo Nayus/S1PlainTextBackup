@@ -6001,3 +6001,33 @@ e大师这几张还过得去吧<img src="https://static.saraba1st.com/image/smil
 
 盟主在跳之前抖音挺火的那个蝴蝶步吗
 
+
+*****
+
+####  maojiashu  
+##### 5041#       发表于 2024-9-19 10:34
+
+不会给凯文又搞个心结吧 ？
+
+不会不让莉丝来就是为了这个心结更合理&amp;没人倾诉吧？
+
+真是这样要吐了
+
+我本来看到凯文登场就像看两口子来共和国旅个游差不多得了
+
+要是又整花活还不如不登场<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aimujie  
+##### 5042#       发表于 2024-9-19 10:37
+
+比e大师之前画的正常许多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 5043#       发表于 2024-9-19 10:38
+
+学妹上学的原因找到了，确实都是支线，没必要来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

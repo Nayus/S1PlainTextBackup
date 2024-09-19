@@ -5938,3 +5938,66 @@ e大师收手吧
 
 —— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  ravend233  
+##### 5033#       发表于 2024-9-19 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66243595&amp;ptid=2160194" target="_blank">悠悠你心 发表于 2024-9-19 10:24</a>
+
+牢葱这官方倒计时贺图让我感觉你法又想搞心魔/控制烂活了
+
+—— 来自 HONOR PGT-AN20, Android 14上的 S1Ne ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说竹入离了这套什么都不会写，理念冲突是不会写的，靠角色的性格和选择推进剧情是不会写的，只会这套
+
+*****
+
+####  Kojimaru  
+##### 5034#       发表于 2024-9-19 10:26
+
+谁家小孩
+
+*****
+
+####  a2042312  
+##### 5035#       发表于 2024-9-19 10:26
+
+立绘咋不放杂志上<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SuNR1sE364  
+##### 5036#       发表于 2024-9-19 10:27
+
+e大师这几张还过得去吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是还是太老成了
+
+*****
+
+####  红魔馆的糖  
+##### 5037#       发表于 2024-9-19 10:28
+
+正常？？？？？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卡拉德利姆  
+##### 5038#       发表于 2024-9-19 10:29
+
+盟主的腿咋看咋不正常
+
+
+*****
+
+####  SuNR1sE364  
+##### 5039#       发表于 2024-9-19 10:31
+
+草，细看一下盟主这腿有2个上半身长了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  byisme001  
+##### 5040#       发表于 2024-9-19 10:32
+
+盟主在跳之前抖音挺火的那个蝴蝶步吗
+

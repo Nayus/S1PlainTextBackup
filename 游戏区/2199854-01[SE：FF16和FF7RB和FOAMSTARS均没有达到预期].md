@@ -605,3 +605,32 @@ ff都不能拯救se了，那么拯救se的会是谁呢？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">怀疑SE没有正经玩游戏的人了，或者说他们有什么企业文化可以让制作人不干人事。
 
+
+*****
+
+####  feizong  
+##### 67#       发表于 2024-9-19 10:31
+
+早点把完整的FF9重制搬到全平台，可能我会支持一下steam版。要还是PS5限时独占，SE可以早点死了算了。甚至FF16要是一开始全平台，估计能骗到更多人第一时间入手，现在口碑都渣了，steam谁去当冤大头
+
+*****
+
+####  youharugen  
+##### 68#       发表于 2024-9-19 10:32
+
+吉田做游戏的时候对自己员工第一个要求是玩玩别的公司的游戏去
+这都是要求，而不是每个人的基本业务能力
+想象中就是一堆平时只爱刷视频的员工
+占领了游戏制作的每一个岗位
+甚至是领导决策的岗位
+
+*****
+
+####  司马千晶  
+##### 69#       发表于 2024-9-19 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66242802&amp;ptid=2199854" target="_blank">五更伪境 发表于 2024-09-19 09:10:40</a>
+事实证明jrpg已经被时代抛弃了😤</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看看隔壁一鱼三吃，活跃了两个世代的p5，单纯是se菜。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

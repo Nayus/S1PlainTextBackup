@@ -5845,3 +5845,24 @@ FC不就是First Chapter吗，这还用猜<img src="https://static.saraba1st.com
 
 完了，不会和玲一样又给凯文安上一个莫名其妙还没解决的心结吧
 
+
+*****
+
+####  ravend233  
+##### 5025#       发表于 2024-9-19 10:06
+
+ 本帖最后由 ravend233 于 2024-9-19 10:09 编辑 
+
+事务所线写双子，凯文线复读心结，干脆里爷线再复读迷茫吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+最后终章才给你随随便便抖出几个设定然后咚
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  卡拉德利姆  
+##### 5026#       发表于 2024-9-19 10:08
+
+感觉主线剧情就是这些啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -5662,3 +5662,11 @@ FC不就是First Chapter吗，这还用猜<img src="https://static.saraba1st.com
 
 感觉全世界轨批都在问pv
 
+
+*****
+
+####  一步成诗  
+##### 5007#       发表于 2024-9-19 08:12
+
+发售特辑也没有社长太极啊，好没意思<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">16页就2页新的
+

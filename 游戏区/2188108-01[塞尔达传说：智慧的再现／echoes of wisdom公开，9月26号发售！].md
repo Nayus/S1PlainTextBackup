@@ -202,3 +202,18 @@
 熟悉一点塞尔达套路的，2d就是十多个小时的流程啊。不要抱太多幻想</blockquote>
 主要是我确实希望2D塞能在内容上有点质的飞跃，包括体量和机制。要就是十多个小时的流程实在少了点。<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holomoon  
+##### 586#       发表于 2024-9-19 11:47
+
+开始下载了
+
+*****
+
+####  heseran  
+##### 587#       发表于 2024-9-19 11:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">订的卡带估计国庆才能玩到了
+

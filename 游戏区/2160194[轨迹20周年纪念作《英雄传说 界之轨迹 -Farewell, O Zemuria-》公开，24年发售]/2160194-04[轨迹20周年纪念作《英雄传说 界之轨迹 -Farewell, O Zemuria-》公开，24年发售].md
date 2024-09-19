@@ -6278,3 +6278,46 @@ Enami和法老控之前应该闹崩了的，界轨还能再找他，我本来也
 
 —— 来自 realme RMX3708, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Aeons  
+##### 5070#       发表于 2024-9-19 11:47
+
+至少界轨不是说党争要出结果了，也算了了一桩事
+
+*****
+
+####  一步成诗  
+##### 5071#       发表于 2024-9-19 11:49
+
+他最好是真能出结果，别是那种告白拒绝了但不放弃继续拉扯<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  悠悠你心  
+##### 5072#       发表于 2024-9-19 11:51
+
+解决不了党争情感，解决党争的人就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  ravend233  
+##### 5073#       发表于 2024-9-19 11:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">写死一个解决所有问题
+
+*****
+
+####  卢迪克  
+##### 5074#       发表于 2024-9-19 11:54
+
+<blockquote>洛克萨斯 发表于 2024-9-19 11:33
+你轨对你法没功劳也有苦劳，怎么就不能安排一个风光大葬体面完结，本来买的就都是老粉丝，还要狠狠攻击老粉 ...</blockquote>
+法社：没新人入坑没动力，随便敷衍。
+
+近藤现阶段的销量我们十分满意。有很多玩家是 10 代才入坑的，新玩家甚至比《伊苏 8》还要多一些。这毕竟是一个长线系列，还能有新玩家对我们来说也是很大的鼓舞。
+

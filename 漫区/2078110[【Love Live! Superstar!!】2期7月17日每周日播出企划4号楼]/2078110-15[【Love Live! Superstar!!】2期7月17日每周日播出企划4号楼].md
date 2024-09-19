@@ -1020,3 +1020,14 @@ What a wonderful radio完结还行……
 
 隔壁推特出大事了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cat1230  
+##### 21051#       发表于 2024-9-19 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66250195&amp;ptid=2078110" target="_blank">後藤正文 发表于 2024-9-19 21:46</a>
+
+隔壁推特出大事了</blockquote>
+啥事啊，没推特看不了。
+

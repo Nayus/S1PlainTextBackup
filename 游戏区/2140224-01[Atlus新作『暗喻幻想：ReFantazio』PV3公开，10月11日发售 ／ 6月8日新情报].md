@@ -58,3 +58,27 @@ atlus你们是忘本了啊<img src="https://static.saraba1st.com/image/smiley/fa
 
 这算不算atlus热度最低的新作？我感觉真女V刚出的时候都比他讨论多多了
 
+
+*****
+
+####  hkguty  
+##### 713#       发表于 2024-9-19 22:06
+
+等一个MC90分炒炒热度不然今年桥野桂可能要扣工资了
+
+
+*****
+
+####  heseran  
+##### 714#       发表于 2024-9-19 22:10
+
+看到三眼女我第一个想到的是她
+
+<img src="https://img.saraba1st.com/forum/202409/19/221015gsnq3lgcc22npgcp.jpg" referrerpolicy="no-referrer">
+
+<strong>151520_crt_eKfWD.jpg</strong> (37.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-19 22:10 上传
+

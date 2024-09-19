@@ -39,3 +39,22 @@ atlus你们是忘本了啊<img src="https://static.saraba1st.com/image/smiley/fa
 昨天看了巴哈的25分钟试玩，人物对话和 ...</blockquote>
 是的，苟史建模和贴图都能忍，这个ui真的太瞎眼了，看了几段媒体试玩都快给我整出光敏癫痫了<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 711#         楼主| 发表于 2024-9-19 21:48
+
+『メタファー：リファンタジオ』完成披露会 9月25日中午1点40分开始：
+[https://youtube.com/live/gbX-BM8ujNA](https://youtube.com/live/gbX-BM8ujNA)
+
+<img src="https://p.sda1.dev/19/4d92d0c0233379f9243d6a365afe76c8/20240919_191429.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  双刀少女  
+##### 712#       发表于 2024-9-19 21:52
+
+这算不算atlus热度最低的新作？我感觉真女V刚出的时候都比他讨论多多了
+

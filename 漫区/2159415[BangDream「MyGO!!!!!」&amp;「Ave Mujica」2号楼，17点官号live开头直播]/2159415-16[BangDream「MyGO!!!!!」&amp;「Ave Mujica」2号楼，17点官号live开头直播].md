@@ -10042,3 +10042,19 @@ wsd赚了钱能多投入在美术资源上吗
 
 hgm中之人简直就跟hgm一样活泼
 
+
+*****
+
+####  rikaren  
+##### 23115#       发表于 2024-9-19 22:04
+
+<img src="https://img.saraba1st.com/forum/202409/19/220310sf18vr80qfppalma.jpg" referrerpolicy="no-referrer">
+
+<strong>1726754553461.jpg</strong> (319.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-19 22:03 上传
+
+下期有手游情报，wsd终于记得给猫希补五星了？记得把立希大分补上，40个人里唯一一个没130及以上的。
+

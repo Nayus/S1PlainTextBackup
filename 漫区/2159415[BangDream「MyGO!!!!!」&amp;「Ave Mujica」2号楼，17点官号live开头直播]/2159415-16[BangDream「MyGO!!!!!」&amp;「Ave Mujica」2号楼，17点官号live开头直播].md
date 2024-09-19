@@ -9729,3 +9729,19 @@ Alice in Wonderland／mashiro in wonderland
 
 otae不用追兔子了，自己就是兔子先生
 
+
+*****
+
+####  星天观测  
+##### 23082#       发表于 2024-9-19 13:36
+
+说起来狗好像很久没更新卡了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">混活都没有
+
+
+*****
+
+####  NODY  
+##### 23083#       发表于 2024-9-19 13:42
+
+这混活端水是真不平衡啊，摩卡msr茨菇tae上个月混活才出卡，这就又出了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

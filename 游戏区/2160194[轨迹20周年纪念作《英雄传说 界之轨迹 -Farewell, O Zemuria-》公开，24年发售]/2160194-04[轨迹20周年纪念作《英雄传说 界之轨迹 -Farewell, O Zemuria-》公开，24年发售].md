@@ -6548,3 +6548,55 @@ e大师收了神通吧
 
 E大师一个商业画师能摆成这样子，再参照以往F社抠门的样子，是不是真的没给钱啊（
 
+
+*****
+
+####  卢迪克  
+##### 5103#       发表于 2024-9-19 13:35
+
+ 本帖最后由 卢迪克 于 2024-9-19 13:38 编辑 
+
+界2请t大师画吧
+
+<img src="https://img.saraba1st.com/forum/202409/19/133524ol6g37qgglr2gr8l.jpg" referrerpolicy="no-referrer">
+
+<strong>FB2D36397B2B62C8BBC0E9AF99FE3184.jpg</strong> (93.96 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-19 13:35 上传
+
+<img src="https://img.saraba1st.com/forum/202409/19/133703v468zbmf5mzpi4zj.jpg" referrerpolicy="no-referrer">
+
+<strong>9E0BDB2F542A1539CDE0D4612662330C.jpg</strong> (257.21 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-19 13:37 上传
+
+*****
+
+####  一步成诗  
+##### 5104#       发表于 2024-9-19 13:39
+
+想什么呢，还换画师，要是暴死了界2说不定直接不出新立绘继续延用界1这套<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  洛克萨斯  
+##### 5105#       发表于 2024-9-19 13:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">再也不说村上设计千篇一律，人体有问题了，真就全靠同行衬托
+
+*****
+
+####  ravend233  
+##### 5106#       发表于 2024-9-19 13:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">YS10除了豆子真的至少是业界及格线水平
+
+界2当然是能复用界轨立绘就复用啊，还想要新的，没门
+

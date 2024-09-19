@@ -3544,3 +3544,18 @@ kanaira居然还进了VCRMC服<img src="https://static.saraba1st.com/image/smile
 
 只看了初配信不得不说第一次听到这么难听的夹子，口水快喷我脸上了
 
+
+*****
+
+####  80proof  
+##### 759#       发表于 2024-9-19 19:29
+
+萝莉声线陷阱还在害人<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">夜乃坠机，雲母也坠机
+
+*****
+
+####  Harunoharu  
+##### 760#       发表于 2024-9-19 19:31
+
+めありー那种萌音听上去不挺舒服的也没有特别尖，再往前还有roa呢，也不是所有的都不行吧，kuromu也是硬夹夹出来的口齿不清太难受了
+

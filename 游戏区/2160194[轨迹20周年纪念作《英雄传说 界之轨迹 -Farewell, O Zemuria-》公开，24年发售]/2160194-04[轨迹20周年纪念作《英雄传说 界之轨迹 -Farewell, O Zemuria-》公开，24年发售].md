@@ -8129,3 +8129,112 @@ B站那里云黎轨2剧情比较好</blockquote>
 
 翻了下感觉不像太君
 
+
+*****
+
+####  无动于衷  
+##### 5269#       发表于 2024-9-19 23:04
+
+<blockquote>一夜秋风袭锦城 发表于 2024-9-19 21:31
+岩垂德行不是做逆转裁判那个吗
+
+—— 来自 Xiaomi 2210132C, Android 13上的 S1Next-鹅版 v3.0.0-alpha ...</blockquote>
+梦幻模拟战 格兰蒂亚 
+
+*****
+
+####  迷雾塔  
+##### 5270#       发表于 2024-9-19 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66250596&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-19 22:33</a>
+你法社这种渣画质游戏体积当然小，3a加上大地图现在动不动就上百g，线性流程也要五六十g
+
+—— 来自 鹅球 ...</blockquote>
+轨迹剧情多，演出cg可能会多，体积不会小<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 5271#       发表于 2024-9-19 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66250963&amp;ptid=2160194" target="_blank">迷雾塔 发表于 2024-9-19 23:15</a>
+
+轨迹剧情多，演出cg可能会多，体积不会小现在纯纯是我想多了。现在突然想起来，轨迹还不是全语音游戏，这 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">虽然黎才10几g 但我记得闪后面都是30 40g
+
+*****
+
+####  smdzh2  
+##### 5272#       发表于 2024-9-20 00:51
+
+加藤：笑话，你轨迹烂完关我RE轨迹什么事。从空轨开始重制到创轨，年年黑字超安定大丈夫！
+
+*****
+
+####  ravend233  
+##### 5273#       发表于 2024-9-20 00:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66251574&amp;ptid=2160194" target="_blank">smdzh2 发表于 2024-9-20 00:51</a>
+
+加藤：笑话，你轨迹烂完关我RE轨迹什么事。从空轨开始重制到创轨，年年黑字超安定大丈夫！ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正你法社的逻辑里作品烂了臭掉的只是作品的LOGO而不是FALCOM
+
+*****
+
+####  nocode  
+##### 5274#       发表于 2024-9-20 01:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66249476&amp;ptid=2160194" target="_blank">crosz1985 发表于 2024-9-19 20:15</a>
+
+B站那里云黎轨2剧情比较好</blockquote>
+直接看浓缩版得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+[https://www.bilibili.com/video/BV1Mx42127Zh/](https://www.bilibili.com/video/BV1Mx42127Zh/)
+
+*****
+
+####  黒鈴ミヲ  
+##### 5275#       发表于 2024-9-20 01:40
+
+刚下飞机看到群里发e大师的图我直接昏古七了，这真是人画的啊
+
+*****
+
+####  Aeons  
+##### 5276#       发表于 2024-9-20 02:00
+
+ 本帖最后由 Aeons 于 2024-9-20 02:01 编辑 
+
+[https://www.youtube.com/watch?v=u-HhLpAJ7YU](https://www.youtube.com/watch?v=u-HhLpAJ7YU)
+
+序章
+
+*****
+
+####  zhuhh  
+##### 5277#       发表于 2024-9-20 02:40
+
+刚看到有人跑到enami推上评论区直接炎上了，不知道这账号是不是国内玩家的🤔。看看到时enami会不会回应这条评论
+
+<img src="https://img.saraba1st.com/forum/202409/20/023904yqij55kknkt55kqu.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-09-20-02-31-59-469_com.twitter.android.jpg</strong> (184.97 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-20 02:39 上传
+
+*****
+
+####  Aeons  
+##### 5278#       发表于 2024-9-20 03:41
+
+翻了下感觉不像太君
+
+*****
+
+####  无动于衷  
+##### 5279#       发表于 2024-9-20 07:12
+
+感觉是机翻，立本人不这么说话
+

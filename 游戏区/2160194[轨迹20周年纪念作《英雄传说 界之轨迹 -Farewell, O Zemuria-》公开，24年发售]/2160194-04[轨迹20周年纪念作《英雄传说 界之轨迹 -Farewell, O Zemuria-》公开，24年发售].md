@@ -5745,3 +5745,46 @@ FC不就是First Chapter吗，这还用猜<img src="https://static.saraba1st.com
 凯文有出圣痕的时候眼睛变色的设定？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没印象（）快进到又把3RD旧账翻出来炒
 
+
+*****
+
+####  宛若青空  
+##### 5015#       发表于 2024-9-19 09:38
+
+我以为发售倒数日的贺图会请各种画师画一张，结果看起来你法是打算压榨新画师画这么多张啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卡拉德利姆  
+##### 5016#       发表于 2024-9-19 09:39
+
+压榨？锻炼！
+肉眼可见的进步速度！
+
+*****
+
+####  ravend233  
+##### 5017#       发表于 2024-9-19 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66243088&amp;ptid=2160194" target="_blank">宛若青空 发表于 2024-9-19 09:38</a>
+
+我以为发售倒数日的贺图会请各种画师画一张，结果看起来你法是打算压榨新画师画这么多张啊 ...</blockquote>
+伊苏10就是这样了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  卢迪克  
+##### 5018#       发表于 2024-9-19 09:42
+
+ 本帖最后由 卢迪克 于 2024-9-19 09:44 编辑 
+
+伊苏x都是单人绘，轨迹人太多了，斯温画太壮，剑仙没画八叶logo，尼娜吊坠没画星杯logo
+
+*****
+
+####  ravend233  
+##### 5019#       发表于 2024-9-19 09:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">加大力度压榨是这样的，看看新人能不能撑到下一部伊苏或者轨（
+

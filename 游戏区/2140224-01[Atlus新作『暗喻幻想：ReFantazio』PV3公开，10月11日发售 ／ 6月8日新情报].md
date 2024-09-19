@@ -124,3 +124,11 @@ atlus你们是忘本了啊<img src="https://static.saraba1st.com/image/smiley/fa
 看到三眼女我第一个想到的是她</blockquote>
 想起来这人还没收呢，先开个二周目度过这个月
 
+
+*****
+
+####  nma  
+##### 719#       发表于 2024-9-19 23:00
+
+人设只是风格而已，但这个ui真的是潮出地沟油来了，喜欢红撞绿莫非是要反映主题的激烈性和严肃性？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -6463,3 +6463,32 @@ van上月球
 
 按照人气的怎么不把金兔复活，她不是投票11名吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kangkangsama  
+##### 5093#       发表于 2024-9-19 12:50
+
+剑女活生生唐了三部
+
+一部比一部显老
+
+微博都看到开玩笑吐槽e大师讨厌剑女的
+
+
+*****
+
+####  ravend233  
+##### 5094#       发表于 2024-9-19 12:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在画丑这方面E大师整体还是非常平等的
+
+E大师画得最好的都是男人和老登
+
+*****
+
+####  星空冻结  
+##### 5095#       发表于 2024-9-19 12:56
+
+我只能说在讨论人体或者画工之前，第一个要讨论的是好不好看，之前喷村上的现在知道错了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

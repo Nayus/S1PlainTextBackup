@@ -7719,3 +7719,25 @@ realme 大师这种有着独特审美的便宜作曲家对你法社来说明显�
 
 2024-9-19 19:41 上传
 
+
+*****
+
+####  zhuhh  
+##### 5229#       发表于 2024-9-19 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66248744&amp;ptid=2160194" target="_blank">check 发表于 2024-9-19 18:42</a>
+
+e圣水平下降得厉害还是falcom钱没给够，画的还不如x上的摸鱼图</blockquote>
+可能是工期赶的原因，界轨画的立绘用心程度没有黎轨1这么高了。虽然黎1不喜欢立绘的人也很多，但至少enami在黎1画立绘还是很细致，作画细节都很到位。界轨立绘作画细节简略了不少，尤其是上色这块变简单
+
+
+*****
+
+####  无动于衷  
+##### 5230#       发表于 2024-9-19 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66248773&amp;ptid=2160194" target="_blank">Dai-Dai-Dai-Dai 发表于 2024-9-19 18:46</a>
+
+音乐也能请黄油界的吗？感觉电子乐都打不过黄油三线作曲了，例如绊恋那位。 ...</blockquote>
+我还是那句话 岩垂德行最合适你法现在的游戏音乐 也花不了多少钱
+

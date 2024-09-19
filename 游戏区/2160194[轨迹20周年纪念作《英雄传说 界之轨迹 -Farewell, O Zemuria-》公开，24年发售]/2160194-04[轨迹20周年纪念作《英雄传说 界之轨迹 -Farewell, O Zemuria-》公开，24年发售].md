@@ -7509,3 +7509,70 @@ enami认真画确实还行啊，这边就是硬摆烂，经过黎1后法老控�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  正田崇  
+##### 5208#       发表于 2024-9-19 18:16
+
+日本小画师那么多，真找不到便宜好用的吗？那群黄油画师虽然质量也是参差不齐不会摆pose，但好歹人家画的角色萌啊，你轨请个黄油画师行不行啊，非要用大牌？
+
+*****
+
+####  ravend233  
+##### 5209#       发表于 2024-9-19 18:19
+
+ 本帖最后由 ravend233 于 2024-9-19 18:20 编辑 
+
+你法工期短工程量巨大，要求还多，可能还对名气有要求，还真不一定找得到人接活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+界轨应该是直到今年年初才开始约稿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+管理一塌糊涂
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  plok201  
+##### 5210#       发表于 2024-9-19 18:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">要不找点画小黄油漂亮的上吧，现在这个你队伍里女角越多越难绷，每次点进菜单都得被吓一跳
+
+晚上睡觉都怕做梦看到E牲的立绘追你
+
+*****
+
+####  ravend233  
+##### 5211#       发表于 2024-9-19 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66248563&amp;ptid=2160194" target="_blank">plok201 发表于 2024-9-19 18:19</a>
+要不找点画小黄油漂亮的上吧，现在这个你队伍里女角越多越难绷，每次点进菜单都得被吓一跳
+
+晚上睡觉都怕做 ...</blockquote>
+界轨好像还改成一级菜单就要看立绘了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  ssobsb  
+##### 5212#       发表于 2024-9-19 18:22
+
+<img src="https://p.sda1.dev/19/0344588c2b5dd5f845a9397bcf31c7b3/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 5213#       发表于 2024-9-19 18:24
+
+明天tgs版实机啊，还是有不少技能可看
+
+*****
+
+####  Mchaos  
+##### 5214#       发表于 2024-9-19 18:24
+
+你法赶紧趁村上还能画弄个什么ai大模型炼一下子吧...
+

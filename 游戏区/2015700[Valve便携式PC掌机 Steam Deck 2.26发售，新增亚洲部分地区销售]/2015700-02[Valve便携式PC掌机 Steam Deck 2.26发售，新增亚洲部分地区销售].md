@@ -20,3 +20,43 @@ IT之家注意到，许多其他游戏也使用了 BattlEye 反作弊软件，�
 
 虽然《GTA 5》的在线模式在 Steam Deck 上不再可用，但玩家仍然可以继续游玩单人模式，Rockstar 在常见问题解答中表示：“玩家可以玩《GTA 5》的故事模式，但无法玩《GTA 5》在线模式。”</blockquote>太变态了R星，现在还更新反作弊有用吗
 
+
+*****
+
+####  karastar  
+##### 2204#       发表于 2024-9-19 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66248466&amp;ptid=2015700" target="_blank">Midnight.Coup 发表于 2024-9-19 18:10</a>
+
+之前的专楼搜不到了，在这里更新新闻吧
+
+太变态了R星，现在还更新反作弊有用吗
+
+ ...</blockquote>
+可以给GTA6试试水
+
+*****
+
+####  泰坦失足  
+##### 2205#       发表于 2024-9-19 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66248466&amp;ptid=2015700" target="_blank">Midnight.Coup 发表于 2024-9-19 18:10</a>
+
+之前的专楼搜不到了，在这里更新新闻吧
+
+太变态了R星，现在还更新反作弊有用吗
+
+ ...</blockquote>
+之前的战地5，马上的战地1也要更新反作弊不能用SD玩了
+
+
+*****
+
+####  Midnight.Coup  
+##### 2206#       发表于 2024-9-19 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66248554&amp;ptid=2015700" target="_blank">泰坦失足 发表于 2024-9-19 18:18</a>
+
+之前的战地5，马上的战地1也要更新反作弊不能用SD玩了</blockquote>
+毕竟战地1比2042在线人数多<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -9841,3 +9841,31 @@ otae不用追兔子了，自己就是兔子先生
 
 —— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  rikaren  
+##### 23094#       发表于 2024-9-19 18:50
+
+<blockquote>skives10 发表于 2024-9-19 18:26
+崩2也和少歌联动过</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202409/19/185046pq43lz0cbh2053ll.jpg" referrerpolicy="no-referrer">
+
+<strong>-4835870291726742624785.jpg</strong> (65.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-19 18:50 上传
+
+说的是这个吗？soyo推大概率有福了
+
+*****
+
+####  skives10  
+##### 23095#       发表于 2024-9-19 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66248794&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-9-19 18:50</a>
+说的是这个吗？soyo推大概率有福了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

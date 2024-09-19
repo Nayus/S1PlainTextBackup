@@ -7627,3 +7627,13 @@ e圣水平下降得厉害还是falcom钱没给够，画的还不如x上的摸鱼
 
 —— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  ravend233  
+##### 5221#       发表于 2024-9-19 19:00
+
+realme 大师这种有着独特审美的便宜作曲家对你法社来说明显比量产商业配乐的罐头作曲家更有吸引力，大伙一听这噪音就知道是你法社的游戏<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

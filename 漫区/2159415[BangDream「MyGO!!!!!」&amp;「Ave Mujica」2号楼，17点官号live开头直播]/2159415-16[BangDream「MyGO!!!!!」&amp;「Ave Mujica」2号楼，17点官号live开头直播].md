@@ -9869,3 +9869,44 @@ otae不用追兔子了，自己就是兔子先生
 说的是这个吗？soyo推大概率有福了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 23096#       发表于 2024-9-19 18:57
+
+话先搁这，就算米学长切割崩二看不起你邦的热度，米逆子也不会放过你邦，何况邦本来就是百合向企划，那帮米逆子巴不得能进来圈地。
+
+*****
+
+####  星天观测  
+##### 23097#       发表于 2024-9-19 19:00
+
+还好我推的是mujica，不然便样衰了
+
+*****
+
+####  极速赛车手  
+##### 23098#       发表于 2024-9-19 19:03
+
+来了赶走就是，崩2本身就卖百的，玩家也不待见二游节奏<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Toki_Ai  
+##### 23099#       发表于 2024-9-19 19:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">随便吧，反正玩脱了邦邦就回到mygo之前的日子，最多环境炸了走的人多
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+
+*****
+
+####  skives10  
+##### 23100#       发表于 2024-9-19 19:06
+
+只能说武士道还是那个武士道
+做出卖狗还以为他们开窍了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+继续作呗 
+

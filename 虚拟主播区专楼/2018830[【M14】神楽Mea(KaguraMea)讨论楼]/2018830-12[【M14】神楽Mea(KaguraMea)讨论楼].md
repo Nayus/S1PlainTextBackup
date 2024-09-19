@@ -8735,3 +8735,29 @@ BV1ez421b76t
 
 新男人是わしだい吗 rmt昨天也说わしだい像主播的哥哥一样
 
+
+*****
+
+####  秋游刃  
+##### 17424#       发表于 2024-9-19 16:09
+
+什么时候主播直播频率降下来，推特营业不积极，时不时请假放鸽子，间歇性情绪不稳定，私号每天甜蜜双排的时候再说吧，现在还言之过早。
+
+*****
+
+####  Cushaw  
+##### 17425#       发表于 2024-9-19 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66247102&amp;ptid=2018830" target="_blank">秋游刃 发表于 2024-9-19 16:09</a>
+什么时候主播直播频率降下来，推特营业不积极，时不时请假放鸽子，间歇性情绪不稳定，私号每天甜蜜双排的时 ...</blockquote>
+亚达哟<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  十九号大侠  
+##### 17426#       发表于 2024-9-19 18:56
+
+队友我草泥马
+

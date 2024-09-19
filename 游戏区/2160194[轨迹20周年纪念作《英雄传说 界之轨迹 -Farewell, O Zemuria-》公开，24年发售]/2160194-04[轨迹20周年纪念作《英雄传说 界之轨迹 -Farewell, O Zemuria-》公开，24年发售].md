@@ -6251,3 +6251,30 @@ Enami和法老控之前应该闹崩了的，界轨还能再找他，我本来也
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你轨对你法没功劳也有苦劳，怎么就不能安排一个风光大葬体面完结，本来买的就都是老粉丝，还要狠狠攻击老粉丝们的眼睛，造孽啊
 
+
+*****
+
+####  Aeons  
+##### 5067#       发表于 2024-9-19 11:35
+
+我还以为pv这么热闹
+
+*****
+
+####  ravend233  
+##### 5068#       发表于 2024-9-19 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66244454&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-9-19 11:33</a>
+
+你轨对你法没功劳也有苦劳，怎么就不能安排一个风光大葬体面完结，本来买的就都是老粉丝，还要狠狠攻击老粉 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">你法只要还惦记堆角色卖老角色，你轨就只能以一个笑话死去
+
+*****
+
+####  椎名mahuyo  
+##### 5069#       发表于 2024-9-19 11:40
+
+我靠e大师这盟主，还好游戏里基本看不到那图）
+
+—— 来自 realme RMX3708, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

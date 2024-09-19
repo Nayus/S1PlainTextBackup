@@ -5502,3 +5502,30 @@ pve开放以后就很少进pvp了
 
 一旦社交化了，打游戏就不再是单纯的打游戏了，小红书化不可避
 
+
+*****
+
+####  星野航  
+##### 5447#       发表于 2024-9-19 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66243801&amp;ptid=2150634" target="_blank">绿冰 发表于 2024-9-19 11:40</a>
+
+要是2代输了百倍其实更折磨，我直到最终祭典才遇到过一次百倍，出现率和3代的333倍差不多 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我早都忘了当时啥样了，反正我是记得完全没有被游戏逼着这么上头过
+
+3代感觉随处都能看到玩家抱怨任天堂不做人，真的是很有意思的一个变化
+
+*****
+
+####  绿冰  
+##### 5448#         楼主| 发表于 2024-9-19 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66244456&amp;ptid=2150634" target="_blank">星野航 发表于 2024-9-19 11:33</a>
+
+我早都忘了当时啥样了，反正我是记得完全没有被游戏逼着这么上头过
+
+3代感觉随处都能看到玩家抱怨任天堂不 ...</blockquote>
+是这样，以我个人的看法来说，2代做得差的地方是比3代更差的，只是后面都改得不错
+
+3代做得差的地方没那么差，但改起来是真的慢，要拖很久才改到大多数人不再抱怨
+

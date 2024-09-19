@@ -9604,3 +9604,30 @@ mujica之前的gsc娃娃什么时候再贩，原价200淘宝都涨价到365一�
 
 什么颜色的
 
+
+*****
+
+####  rikaren  
+##### 23076#       发表于 2024-9-19 11:38
+
+<blockquote>星天观测 发表于 2024-9-19 11:35
+什么颜色的</blockquote>
+橙色，msr，otae五星，摩卡四星，ksm三星，茨菇两星
+
+
+*****
+
+####  MASKA-1  
+##### 23077#       发表于 2024-9-19 11:41
+
+<img src="https://p.sda1.dev/19/086d1f7a0ad7e128a88a677d5e88e409/IMG_CMP_23779836.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 23078#       发表于 2024-9-19 11:44
+
+坏，我橙小白只有二星卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+也不打算抽了，拿满配橙lisa顶一下好了
+

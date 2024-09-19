@@ -710,3 +710,32 @@ re比较水，rb倒是还不错，对得起那个评分，玩起来还是比较�
 
 于是SE吸收了尼尔2的成功经验，本世代广撒网，做了一大堆垃圾游戏出来233
 
+
+*****
+
+####  终将不惑  
+##### 78#       发表于 2024-9-19 11:33
+
+跟黑猴比较一下。
+虽然黑猴的剧情有争议，也有些认为没有说完，但基本还是能理解制作组想传达的是什么。
+ff7重制就真的不太能理解了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a317216007  
+##### 79#       发表于 2024-9-19 11:37
+
+ff7重制的剧情就是在原版基础上切三段然后加料罢了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">没啥理解门槛吧
+当然日系剧情经常是说了一圈没明白在说啥也正常，有头有尾但是就是因为太直白了反而没啥可解析内容
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  woshenc  
+##### 80#       发表于 2024-9-19 11:40
+
+让你ps独占<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+pc同步发售还能骗到一个算一个不是
+

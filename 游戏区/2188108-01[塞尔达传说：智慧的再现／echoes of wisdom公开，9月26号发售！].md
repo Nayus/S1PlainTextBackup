@@ -263,3 +263,14 @@
 
 其实最关键的是本作的总监是谁，发售后可以关注一下。藤林肯定没空，到底是epd3的其他人，还是grezzo的社长。是给老人还愿的，还是培养接班人的
 
+
+*****
+
+####  莫夜戎  
+##### 593#       发表于 2024-9-19 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66250576&amp;ptid=2188108" target="_blank">佛罗伦萨 发表于 2024-9-19 22:31</a>
+
+其实最关键的是本作的总监是谁，发售后可以关注一下。藤林肯定没空，到底是epd3的其他人，还是grezzo的社长 ...</blockquote>
+按塞尔达传统，估计又是某些没来得及实现的想法和机制拿出来单独做了个游戏
+

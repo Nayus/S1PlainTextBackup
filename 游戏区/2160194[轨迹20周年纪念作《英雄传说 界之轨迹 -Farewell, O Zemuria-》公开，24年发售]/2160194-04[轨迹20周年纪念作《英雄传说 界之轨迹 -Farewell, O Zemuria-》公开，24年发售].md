@@ -8042,3 +8042,14 @@ B站那里云黎轨2剧情比较好
 —— 来自 鹅球 ...</blockquote>
 轨迹剧情多，演出cg可能会多，体积不会小<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 5261#       发表于 2024-9-19 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66250963&amp;ptid=2160194" target="_blank">迷雾塔 发表于 2024-9-19 23:15</a>
+
+轨迹剧情多，演出cg可能会多，体积不会小现在纯纯是我想多了。现在突然想起来，轨迹还不是全语音游戏，这 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">虽然黎才10几g 但我记得闪后面都是30 40g
+

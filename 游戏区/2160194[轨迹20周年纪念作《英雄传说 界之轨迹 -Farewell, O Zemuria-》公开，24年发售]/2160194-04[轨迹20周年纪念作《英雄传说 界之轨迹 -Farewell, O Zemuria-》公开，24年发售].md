@@ -6709,3 +6709,99 @@ i1584176341.jpg
 
 哈哈2d3d一起死完<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  椎名mahuyo  
+##### 5116#       发表于 2024-9-19 14:07
+
+兔女郎还可以（其他呃呃
+
+*****
+
+####  一步成诗  
+##### 5117#       发表于 2024-9-19 14:09
+
+设计性为0比黎2赛车服还烂真的可以吗，想看露出度那不如泳装<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  八佾舞于潭  
+##### 5118#       发表于 2024-9-19 14:10
+
+有兔女郎，赢
+
+
+*****
+
+####  Aeons  
+##### 5119#       发表于 2024-9-19 14:11
+
+赛车服第一版，除了同质化，真还可以吧，这个dlc能叫服装吗
+
+*****
+
+####  ravend233  
+##### 5120#       发表于 2024-9-19 14:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黎1混到了专门设计的泳装和DLC衣服的角色赢麻了
+
+
+*****
+
+####  一步成诗  
+##### 5121#       发表于 2024-9-19 14:12
+
+ 本帖最后由 一步成诗 于 2024-9-19 14:15 编辑 
+
+换色不是一般塞到回廊抽的吗，这下送都不舍得送了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看了一下还有庭院跑图小人也要买，这不是本来包含在游戏里的东西抠出来让你再花一份钱吗
+
+*****
+
+####  ravend233  
+##### 5122#       发表于 2024-9-19 14:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你法社深怕多赚玩家一块钱了，起码没先出个豪华版先把钱骗了
+
+*****
+
+####  Aeons  
+##### 5123#       发表于 2024-9-19 14:15
+
+<img src="https://img.saraba1st.com/forum/202409/19/141504r3k4hurrg4wu4hw4.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>skin_xipha_cover_vol1.webp</strong> (127.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-19 14:15 上传
+
+我师傅呢
+
+*****
+
+####  windtrack_qh  
+##### 5124#       发表于 2024-9-19 14:15
+
+<img src="https://img.saraba1st.com/forum/202409/19/141529chlucdhhecuchock.png" referrerpolicy="no-referrer">
+
+<strong>a56ef18c331672d74fd7d73df0bb93c9.png</strong> (176.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-19 14:15 上传
+
+你法下次直接上AI行不行
+
+*****
+
+####  ravend233  
+##### 5125#       发表于 2024-9-19 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66245900&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-19 14:15</a>
+
+我师傅呢</blockquote>
+没有新立绘的老登把位置让让
+

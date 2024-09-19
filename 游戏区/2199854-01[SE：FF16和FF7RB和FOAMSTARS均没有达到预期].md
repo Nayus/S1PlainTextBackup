@@ -784,3 +784,13 @@ ff7活活把自己玩死的。减少注水内容按原版剧情做，完全可�
 ff7活活把自己玩死的。减少注水内容按原版剧情做，完全可以两部做完的。现在销量不行 还要硬着头皮做完 ...</blockquote>
 不要把SE想得太好，真不一定会做完<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Minolta  
+##### 85#       发表于 2024-9-19 13:12
+
+喷了。7rb和狒狒16不如预期还能理解，吐泡泡那个游戏要多蠢才会对它有预期啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9280, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

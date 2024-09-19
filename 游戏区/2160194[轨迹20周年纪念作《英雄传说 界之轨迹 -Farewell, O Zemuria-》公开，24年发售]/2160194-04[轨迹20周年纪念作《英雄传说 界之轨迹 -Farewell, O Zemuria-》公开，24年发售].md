@@ -6838,3 +6838,56 @@ i1584176341.jpg
 
 法老控：前作衣服都进回廊让你抽了，新衣服就凑合下吧
 
+
+*****
+
+####  alucardcz  
+##### 5130#       发表于 2024-9-19 14:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">我艹 这3个人放一起太地狱了。这tm是人能画出来的东西？
+
+
+*****
+
+####  洛克萨斯  
+##### 5131#       发表于 2024-9-19 14:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真不如ai吃村上的素材然后让村上或者美术组修一下
+
+*****
+
+####  Aeons  
+##### 5132#       发表于 2024-9-19 14:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">说实话我之前是没啥反应，但是这三个人放一张图上一起来确实还是震撼了一下
+
+*****
+
+####  卢迪克  
+##### 5133#       发表于 2024-9-19 14:31
+
+星辰代码是盟主带来的，记录外之理系统语言
+
+*****
+
+####  smdzh2  
+##### 5134#       发表于 2024-9-19 14:31
+
+海报上三幻神立绘，游戏预售柜台摆一桌的前作，新人看到直接吓跑了好吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  maojiashu  
+##### 5135#       发表于 2024-9-19 14:33
+
+别慌 大伙都知道e大师已经没救了 这都做好了心理准备的
+
+咱们还有建模 建模救救
+
+*****
+
+####  Aeons  
+##### 5136#       发表于 2024-9-19 14:33
+
+这作有西装吗
+

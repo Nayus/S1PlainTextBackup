@@ -5788,3 +5788,38 @@ FC不就是First Chapter吗，这还用猜<img src="https://static.saraba1st.com
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">加大力度压榨是这样的，看看新人能不能撑到下一部伊苏或者轨（
 
+
+*****
+
+####  a2042312  
+##### 5020#       发表于 2024-9-19 09:48
+
+还有7张要画，头都要秃了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 5021#       发表于 2024-9-19 09:50
+
+ 本帖最后由 卢迪克 于 2024-9-19 09:51 编辑 
+
+顶不住了，去年有画背景，今年没有
+
+<img src="https://img.saraba1st.com/forum/202409/19/095047qzyhysghh2dlq671.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240919_095037.jpg</strong> (208.5 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-19 09:50 上传
+
+<img src="https://img.saraba1st.com/forum/202409/19/095051efy6u9o93ofu8fxw.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240919_095030.jpg</strong> (200.2 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-19 09:50 上传
+

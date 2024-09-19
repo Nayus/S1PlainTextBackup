@@ -8072,3 +8072,15 @@ B站那里云黎轨2剧情比较好
 加藤：笑话，你轨迹烂完关我RE轨迹什么事。从空轨开始重制到创轨，年年黑字超安定大丈夫！ ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正你法社的逻辑里作品烂了臭掉的只是作品的LOGO而不是FALCOM
 
+
+*****
+
+####  nocode  
+##### 5264#       发表于 2024-9-20 01:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66249476&amp;ptid=2160194" target="_blank">crosz1985 发表于 2024-9-19 20:15</a>
+
+B站那里云黎轨2剧情比较好</blockquote>
+直接看浓缩版得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+[https://www.bilibili.com/video/BV1Mx42127Zh/](https://www.bilibili.com/video/BV1Mx42127Zh/)
+

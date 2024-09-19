@@ -633,3 +633,19 @@ dockerhub只是官网封了，命令行拉取还是正常的吧。国内镜像�
 是的 现在是纯docker load image的，全都本地挂科学做好环境，云端映射一下volume， 编译完的项目直接外 ...</blockquote>
 我现在服务器流量受限，也是这么弄的，倒是习惯了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 重新安一遍可能会有意想不到的依赖问题，非常恶心，再也不想搞了
 
+
+*****
+
+####  Reznik  
+##### 59#       发表于 2024-9-19 16:36
+
+xdm别转发网上那些dockerhub被封的原因，我转这个到同事的8人小群都被查到了，被带去喝茶，差点进桔子<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Nanachi  
+##### 60#       发表于 2024-9-19 16:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">Github某几个仓库的SEO做得确实不错，搜什么都能翻几下看见这些REPO
+

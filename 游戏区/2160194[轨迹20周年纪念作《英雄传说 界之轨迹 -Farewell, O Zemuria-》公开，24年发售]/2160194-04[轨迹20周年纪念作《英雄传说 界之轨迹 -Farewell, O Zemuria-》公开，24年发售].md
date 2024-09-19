@@ -7148,3 +7148,45 @@ enami❤️mx2j
 
 —— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  小猫鼬  
+##### 5168#       发表于 2024-9-19 16:39
+
+没来也好，免得被法老控和E大师糟蹋
+
+*****
+
+####  chris1987  
+##### 5169#       发表于 2024-9-19 16:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这真不是故意画得这么糙的嘛
+
+*****
+
+####  ravend233  
+##### 5170#       发表于 2024-9-19 16:41
+
+卖谷赚钱是要带的，剧情是不想写的，牢莎是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过往好处想，不会被祸害
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  洛克萨斯  
+##### 5171#       发表于 2024-9-19 16:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艾丽莎出场赏一张e大师的立绘么，算了吧，还不如不出，这下庆幸艾约罗没出场了
+
+*****
+
+####  ravend233  
+##### 5172#       发表于 2024-9-19 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66247508&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-9-19 16:41</a>
+艾丽莎出场赏一张e大师的立绘么，算了吧，还不如不出，这下庆幸艾约罗没出场了 ...</blockquote>
+别急，界2全给你补上<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

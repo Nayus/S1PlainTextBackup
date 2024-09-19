@@ -7023,3 +7023,62 @@ oh，shit。
 
 falcom真的能容忍enami这么折腾？
 
+
+*****
+
+####  医生狼多  
+##### 5154#         楼主| 发表于 2024-9-19 16:16
+
+这图能放出来falcom该跟爱纳米一桌沉了
+
+*****
+
+####  ravend233  
+##### 5155#       发表于 2024-9-19 16:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">闪轨新谷
+
+<img src="https://img.saraba1st.com/forum/202409/19/161855jug56j9s4nyns6su.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.28 MB, 下载次数: 0)
+
+下载附件
+
+2024-9-19 16:18 上传
+
+
+*****
+
+####  alucardcz  
+##### 5156#       发表于 2024-9-19 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66247123&amp;ptid=2160194" target="_blank">sd4442312 发表于 2024-9-19 16:10</a>
+
+oh，shit。
+
+falcom真的能容忍enami这么折腾？</blockquote>
+这图都放出来了 说明法老控很满意<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 5157#       发表于 2024-9-19 16:23
+
+五个人竟有一位续作没有登场
+
+*****
+
+####  卢迪克  
+##### 5158#       发表于 2024-9-19 16:24
+
+电击不是说有直播吗，怎么还没发
+
+*****
+
+####  提挈天地  
+##### 5159#       发表于 2024-9-19 16:25
+
+在他人口中登场也是登场<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGEM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

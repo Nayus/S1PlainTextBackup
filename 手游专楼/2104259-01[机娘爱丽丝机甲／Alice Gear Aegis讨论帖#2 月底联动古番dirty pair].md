@@ -82,3 +82,14 @@ an打工战士公告也出来了，不知道an是混池还是两个独立池子�
 
 周末清任务的时候是真的长，这次复刻从哪里开始的剧情是新的啊
 
+
+*****
+
+####  Picavian  
+##### 1210#       发表于 2024-9-19 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66233572&amp;ptid=2104259" target="_blank">alialex 发表于 2024-9-18 10:58</a>
+
+周末清任务的时候是真的长，这次复刻从哪里开始的剧情是新的啊</blockquote>
+D-vice穿越到石头门世界的情节是新的。
+

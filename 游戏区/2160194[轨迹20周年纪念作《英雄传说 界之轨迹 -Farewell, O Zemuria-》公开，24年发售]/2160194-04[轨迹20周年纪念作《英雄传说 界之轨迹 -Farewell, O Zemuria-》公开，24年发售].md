@@ -7915,3 +7915,45 @@ B站那里云黎轨2剧情比较好
 
 我tm用ai跑的都比盟主这个立绘好
 
+
+*****
+
+####  Mchaos  
+##### 5248#       发表于 2024-9-19 22:30
+
+这个立绘确实太敷衍，不想首发了，明天就去把ps5卖了去<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  ravend233  
+##### 5249#       发表于 2024-9-19 22:32
+
+剑指销量下3w<img src="https://static.saraba1st.com/image/smiley/face2017/265.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  ravend233  
+##### 5250#       发表于 2024-9-19 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66250400&amp;ptid=2160194" target="_blank">迷雾塔 发表于 2024-9-19 22:10</a>
+黎1 PS4 15G；PS5 11G
+
+黎2 PS4 25G ；PS5 16G
+
+界   PS4 33G，PS5 25G</blockquote>
+你法社这种渣画质游戏体积当然小，3a加上大地图现在动不动就上百g，线性流程也要五六十g
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  Mchaos  
+##### 5251#       发表于 2024-9-19 22:37
+
+仔细一想近两作轨迹一直属于被牺牲的对象，22年为了给伊苏腾档期搞个狗屎一样的李鬼2，去年伊苏x销量好像也就那样，24年又出个赶工合家欢界轨，明年又搞空轨重制爆大家米。轨迹玩家就真tm不是人啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

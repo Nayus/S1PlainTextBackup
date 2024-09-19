@@ -504,3 +504,21 @@ mv看笑了家人们<img src="https://static.saraba1st.com/image/smiley/face2017
 
 被狠狠拿捏了，哪怕预感前方是玻璃渣，我也先嗑为敬
 
+
+*****
+
+####  tiro_finale  
+##### 907#       发表于 2024-9-19 22:25
+
+ 本帖最后由 tiro_finale 于 2024-9-19 22:26 编辑 
+
+<img src="https://img.saraba1st.com/forum/202409/19/222635ti6f9139ic5inl8f.jpg" referrerpolicy="no-referrer">
+
+<strong>monogatari.jpg</strong> (160.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-19 22:26 上传
+
+为什么97写两遍啊？
+

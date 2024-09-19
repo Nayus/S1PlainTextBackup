@@ -8061,3 +8061,14 @@ B站那里云黎轨2剧情比较好
 
 加藤：笑话，你轨迹烂完关我RE轨迹什么事。从空轨开始重制到创轨，年年黑字超安定大丈夫！
 
+
+*****
+
+####  ravend233  
+##### 5263#       发表于 2024-9-20 00:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66251574&amp;ptid=2160194" target="_blank">smdzh2 发表于 2024-9-20 00:51</a>
+
+加藤：笑话，你轨迹烂完关我RE轨迹什么事。从空轨开始重制到创轨，年年黑字超安定大丈夫！ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正你法社的逻辑里作品烂了臭掉的只是作品的LOGO而不是FALCOM
+

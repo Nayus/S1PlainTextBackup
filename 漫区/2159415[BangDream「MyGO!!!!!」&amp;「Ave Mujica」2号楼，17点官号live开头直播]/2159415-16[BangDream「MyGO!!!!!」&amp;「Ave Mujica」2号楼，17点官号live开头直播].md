@@ -9745,3 +9745,19 @@ otae不用追兔子了，自己就是兔子先生
 
 这混活端水是真不平衡啊，摩卡msr茨菇tae上个月混活才出卡，这就又出了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 23084#       发表于 2024-9-19 17:34
+
+<img src="https://img.saraba1st.com/forum/202409/19/173444z1m4h7kx4nh61hss.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-09-19-17-33-36-94_080202d21636839aa811fe0eaddff67c.jpg</strong> (360.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-19 17:34 上传
+
+草，橙ag刚好差摩卡和茨菇的五星。
+

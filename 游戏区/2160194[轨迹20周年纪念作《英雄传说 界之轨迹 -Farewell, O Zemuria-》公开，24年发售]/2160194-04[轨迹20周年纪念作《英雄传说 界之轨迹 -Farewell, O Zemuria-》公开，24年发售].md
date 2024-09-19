@@ -7320,3 +7320,70 @@ enami认真画确实还行啊，这边就是硬摆烂，经过黎1后法老控�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  宛若青空  
+##### 5187#       发表于 2024-9-19 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66247982&amp;ptid=2160194" target="_blank">隔壁老黄 发表于 2024-9-19 17:25</a>
+
+既然如此黎鬼咋不压榨村上？
+
+—— 来自 鹅球 v3.1.91-alpha</blockquote>
+因为他不干了，以后除了空RE大概率也不会再画轨迹人设
+
+*****
+
+####  ravend233  
+##### 5188#       发表于 2024-9-19 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66247982&amp;ptid=2160194" target="_blank">隔壁老黄 发表于 2024-9-19 17:25</a>
+
+既然如此黎鬼咋不压榨村上？
+
+—— 来自 鹅球 v3.1.91-alpha</blockquote>
+画完闪轨累个半死，请估计都请不动了，硬要压人可以直接离职<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本来画伊苏的千智荟就已经离职了
+
+*****
+
+####  ravend233  
+##### 5189#       发表于 2024-9-19 17:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你社除了个还不能挑大梁的新人外就村上一个还能用的美术了，招人也招不到新的怨种，外包要求又多愿意接活的估计也没多少人，就只能这样咯
+
+
+*****
+
+####  Squall25  
+##### 5190#       发表于 2024-9-19 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66247953&amp;ptid=2160194" target="_blank">天王寺凯伊姆 发表于 2024-9-19 17:22</a>
+我至今不懂闪4那个op是你法太抠了不多给点还是3hz太贱了给了钱却敷衍了事</blockquote>
+你看东迷的op不就知道了……答案不是很简单。
+
+*****
+
+####  Squall25  
+##### 5191#       发表于 2024-9-19 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66247982&amp;ptid=2160194" target="_blank">隔壁老黄 发表于 2024-9-19 17:25</a>
+既然如此黎鬼咋不压榨村上？
+
+—— 来自 鹅球 v3.1.91-alpha</blockquote>
+黎轨这个事情可能真的是法老控单纯想换画风，但是找不到人最后找enami。也可能是给村上休息，虽然黎1村上一样画了一大堆插图在里面，但是很反常的店铺特典是没有他的。我认为确实是考虑村上画不过来了，尤其当时他还去搞了一下那由多改。到后来村上直接去负责京迷了，界轨索性店特都不搞了，插图则从黎2开始让新画师来了
+
+*****
+
+####  卢迪克  
+##### 5192#       发表于 2024-9-19 17:35
+
+你轨太多人，外包不好找的
+
+*****
+
+####  洛克萨斯  
+##### 5193#       发表于 2024-9-19 17:35
+
+东迷因为质量好就给你每一章都放一遍生怕亏了一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

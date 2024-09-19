@@ -6055,3 +6055,44 @@ e大师别这样<img src="https://static.saraba1st.com/image/smiley/face2017/067
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说明是今年才开始约稿，工期不足；界轨是临时顶档期游戏的又一佐证（不是
 
+
+*****
+
+####  一步成诗  
+##### 5047#       发表于 2024-9-19 10:58
+
+去年股东大会已经宣了我还以为有准备了，结果还愣是拖到今年才约稿，怎么的试图逼宫村上硬画不成才转头又找了enami？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Squall25  
+##### 5048#       发表于 2024-9-19 11:00
+
+Enami和法老控之前应该闹崩了的，界轨还能再找他，我本来也感觉挺奇怪的。
+
+*****
+
+####  ravend233  
+##### 5049#       发表于 2024-9-19 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66244017&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-19 10:58</a>
+
+去年股东大会已经宣了我还以为有准备了，结果还愣是拖到今年才约稿，怎么的试图逼宫村上硬画不成才转头又找 ...</blockquote>
+村上：有空RE和迷城了，你轨给我爬
+
+*****
+
+####  KevinGraham  
+##### 5050#       发表于 2024-9-19 11:02
+
+盟主这什么配色
+
+*****
+
+####  一步成诗  
+##### 5051#       发表于 2024-9-19 11:04
+
+你法的名声在业界已经臭到除了enami没人敢接了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+想你e当年也是轨迹粉丝，偶尔还摸摸支援科的鱼，闪也画过菲，到黎顶着大名主担摸鱼一张也没画过，所以爱会消失是吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -328,3 +328,11 @@ XR，剛升到ios 18，選擇自動開啟的遊戲模式
 
 这次更完要考虑跑路一段时间，本来预计明年初左右就能完结，时间一延长热情也不够烧的了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  quanlix  
+##### 14639#       发表于 2024-9-19 18:27
+
+明天维护又要更客户端，2.99版，3.0版能整出点啥来
+

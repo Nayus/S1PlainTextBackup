@@ -9831,3 +9831,13 @@ otae不用追兔子了，自己就是兔子先生
 
 崩2也和少歌联动过
 
+
+*****
+
+####  爱莉希雅  
+##### 23093#       发表于 2024-9-19 18:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该有米不看了
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

@@ -9946,3 +9946,11 @@ wsd赚了钱能多投入在美术资源上吗
 
 希望米看不上鸡这个底边糊逼
 
+
+*****
+
+####  星天观测  
+##### 23105#       发表于 2024-9-19 19:42
+
+鸡还是想办法靠自己赚点钱吧，不然到时候还要被说吃软饭的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

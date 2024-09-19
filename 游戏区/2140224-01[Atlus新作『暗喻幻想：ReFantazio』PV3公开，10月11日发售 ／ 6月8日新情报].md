@@ -132,3 +132,13 @@ atlus你们是忘本了啊<img src="https://static.saraba1st.com/image/smiley/fa
 
 人设只是风格而已，但这个ui真的是潮出地沟油来了，喜欢红撞绿莫非是要反映主题的激烈性和严肃性？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  封面杀手  
+##### 720#       发表于 2024-9-19 23:11
+
+ 本帖最后由 封面杀手 于 2024-9-19 23:12 编辑 
+
+横尾太郎试玩？ 横尾曾经还暴言说只要ATLUS做个中世纪RPG游戏，FF和DQ都得完蛋，这下恐怕真被奶死了
+

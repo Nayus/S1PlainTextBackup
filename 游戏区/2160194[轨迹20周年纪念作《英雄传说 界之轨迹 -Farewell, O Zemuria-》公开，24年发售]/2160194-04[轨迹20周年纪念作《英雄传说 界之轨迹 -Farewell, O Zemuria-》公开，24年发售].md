@@ -8030,3 +8030,15 @@ B站那里云黎轨2剧情比较好
 —— 来自 Xiaomi 2210132C, Android 13上的 S1Next-鹅版 v3.0.0-alpha ...</blockquote>
 梦幻模拟战 格兰蒂亚 
 
+
+*****
+
+####  迷雾塔  
+##### 5260#       发表于 2024-9-19 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66250596&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-19 22:33</a>
+你法社这种渣画质游戏体积当然小，3a加上大地图现在动不动就上百g，线性流程也要五六十g
+
+—— 来自 鹅球 ...</blockquote>
+轨迹剧情多，演出cg可能会多，体积不会小<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

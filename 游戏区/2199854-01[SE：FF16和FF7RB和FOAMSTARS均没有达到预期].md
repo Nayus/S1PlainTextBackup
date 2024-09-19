@@ -773,3 +773,14 @@ RE给我整恶心了，后面绝不会再买了。
 
 ff7活活把自己玩死的。减少注水内容按原版剧情做，完全可以两部做完的。现在销量不行 还要硬着头皮做完
 
+
+*****
+
+####  绿冰  
+##### 84#       发表于 2024-9-19 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66245296&amp;ptid=2199854" target="_blank">check 发表于 2024-9-19 12:56</a>
+
+ff7活活把自己玩死的。减少注水内容按原版剧情做，完全可以两部做完的。现在销量不行 还要硬着头皮做完 ...</blockquote>
+不要把SE想得太好，真不一定会做完<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+

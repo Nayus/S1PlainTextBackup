@@ -6492,3 +6492,11 @@ E大师画得最好的都是男人和老登
 
 我只能说在讨论人体或者画工之前，第一个要讨论的是好不好看，之前喷村上的现在知道错了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  smdzh2  
+##### 5096#       发表于 2024-9-19 13:04
+
+李鬼吧：无路赛无路赛，总之不许你们说E圣的坏话！<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

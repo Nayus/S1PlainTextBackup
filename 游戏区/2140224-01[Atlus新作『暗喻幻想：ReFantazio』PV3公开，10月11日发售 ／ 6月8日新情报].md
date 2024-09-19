@@ -142,3 +142,11 @@ atlus你们是忘本了啊<img src="https://static.saraba1st.com/image/smiley/fa
 
 横尾太郎试玩？ 横尾曾经还暴言说只要ATLUS做个中世纪RPG游戏，FF和DQ都得完蛋，这下恐怕真被奶死了
 
+
+*****
+
+####  SuNR1sE364  
+##### 721#       发表于 2024-9-19 23:55
+
+横尾访谈乐子拉满了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

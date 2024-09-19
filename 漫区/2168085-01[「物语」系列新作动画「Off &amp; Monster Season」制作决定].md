@@ -532,3 +532,25 @@ mv看笑了家人们<img src="https://static.saraba1st.com/image/smiley/face2017
 为什么97写两遍啊？</blockquote>
 第26位质数是101，是三位数而且含有0吧
 
+
+*****
+
+####  Piano-Forest  
+##### 909#         楼主| 发表于 2024-9-19 23:55
+
+#10 忍物語 しのぶマスタード 其ノ貮
+
+五名が行方不明になっている直江津高校女子バスケットボール部。神原駿河と日傘星雨いわく、問題はそれだけではなかった。彼女たちの問題を引き受けた暦は、伊豆湖とともに残りの行方不明者の捜索にあたる。
+
+脚本：大嶋実句
+
+絵コンテ：大石美絵
+
+演出：角谷 理
+
+作画監督：伊藤良明・宮嶋仁志・高野晃久・浅井昭人・高橋みき・清水勝祐・上野あさみ・和田賢人・鮫島寿志
+<img src="https://p.sda1.dev/19/947bea1d8dc482216bf1bee090aadae1/story_3686_photo_1726740349928409260.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/c6e57fc81e73e7c6d107543a4ecc2669/story_3686_photo_1726740350171955762.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/d716319afeefefb0fe60cae7a7973671/story_3686_photo_1726740350330834680.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/7bee9c75212bf740d3d5d95218349539/story_3686_photo_1726740350547636562.jpg" referrerpolicy="no-referrer">
+

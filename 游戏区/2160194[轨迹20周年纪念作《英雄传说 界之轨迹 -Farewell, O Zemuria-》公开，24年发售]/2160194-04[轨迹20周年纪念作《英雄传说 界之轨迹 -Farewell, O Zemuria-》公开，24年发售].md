@@ -7468,3 +7468,27 @@ enami认真画确实还行啊，这边就是硬摆烂，经过黎1后法老控�
 
 剑指50w，吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 5203#       发表于 2024-9-19 17:56
+
+你法社想剑指50w靠日本是不可能了，试试英文同步和pc同步说不定有救<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  grox133  
+##### 5204#       发表于 2024-9-19 17:57
+
+这还正常，审美是有问题吧，丑到逆天了
+
+*****
+
+####  一步成诗  
+##### 5205#       发表于 2024-9-19 18:01
+
+玩家的审美是自由的，但是成品端上来这样应该骂的是法老控的审美<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -335,3 +335,11 @@ yuzu搞王泪那事在前 估计也没什么人赶着触霉头？
 中村悠一的官方试玩节目前篇
 [https://www.bilibili.com/video/BV1c5bFevEkq](https://www.bilibili.com/video/BV1c5bFevEkq)
 
+
+*****
+
+####  SergeGlenn  
+##### 601#       发表于 2024-9-20 17:39
+
+我看ROM已经流出来了，还1.01
+

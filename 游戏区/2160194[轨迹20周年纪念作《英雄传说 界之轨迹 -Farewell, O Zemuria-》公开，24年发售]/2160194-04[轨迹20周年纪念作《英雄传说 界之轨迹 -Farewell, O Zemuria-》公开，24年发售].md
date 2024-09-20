@@ -10327,3 +10327,14 @@ ps还是香的。能和索尼搞合作还是搞合作吧。销量不行多反思
 就是选平台的问题，YSX说明你法可能有能力做到NS+PS双平台首发，只是不知道后续作品还能不能做到，如果做 ...</blockquote>
 主机量身定制的游戏开发效率和技术支持会非常快速和便利。PS5的架构使得为PS5开发游戏更加顺利。乃至搞独占会**提高游戏开发效率。兼顾多个平台，又要搞ps又要搞主机，只会拉长制作战线。你看f社能不能接受这样带来的成本增加<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  法拉  
+##### 5481#       发表于 2024-9-20 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66257315&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-20 16:03</a></blockquote>
+这是3d？感觉还不错
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

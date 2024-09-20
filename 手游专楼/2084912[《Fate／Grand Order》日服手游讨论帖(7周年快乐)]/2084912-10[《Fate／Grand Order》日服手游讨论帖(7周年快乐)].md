@@ -559,3 +559,21 @@ byd喜欢FE能不能滚去填FEX的坑啊<img src="https://static.saraba1st.com/
 
 一个10连 开图鉴了
 
+
+*****
+
+####  藤田琴音  
+##### 14662#       发表于 2024-9-20 17:38
+
+两个新卡都好难看，，wada实在不行咱们休息一年明年再画吧<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 14663#       发表于 2024-9-20 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66258300&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-9-20 17:33</a>
+
+是不是可以盖棺了  今年等于没有泳装活动！</blockquote>
+没有正经夏活，只是一个穿着泳装在月球玩沙子的意义不明奏章罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

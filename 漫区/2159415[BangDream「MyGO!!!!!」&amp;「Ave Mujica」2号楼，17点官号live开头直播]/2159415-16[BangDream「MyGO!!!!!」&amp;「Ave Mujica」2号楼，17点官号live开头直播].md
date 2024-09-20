@@ -10267,3 +10267,12 @@ hgm中之人简直就跟hgm一样活泼
 
 当初ras也是这么让萝爹带孩子的，甚至在自家live把关系者席的大姐头喊上来一起唱歌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 23136#       发表于 2024-9-20 13:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">万一在wsd眼里动画就是宣发，再不济还有对邦
+这样子实锤是垫脚的了
+

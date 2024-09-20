@@ -35,3 +35,11 @@
 
 —— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  kiralzb  
+##### 1953#       发表于 2024-9-20 13:51
+
+看反馈拉克丝已经读心说鸡H了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -8312,3 +8312,38 @@ B站那里云黎轨2剧情比较好</blockquote>
 在我观察的经验来说，立本人基本只在各种匿名论坛骂，推特是广场，要体面，除非真的忍无可忍，否则最多也 ...</blockquote>
 起码比骂完记得买要有用多了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 5287#       发表于 2024-9-20 08:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新来的这个问题就是看起来比较便宜，不过便宜也比丑靠谱，目前负责的应该就是YSFrm的工作，YS10的插画，ED插画和倒计时图，界轨的插画和倒计时
+
+*****
+
+####  ravend233  
+##### 5288#       发表于 2024-9-20 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66252455&amp;ptid=2160194" target="_blank">出言不迅 发表于 2024-9-20 08:45</a>
+
+小公司搞年货多开导致的吧，黎二水了一代绝对是败笔。赶紧收尾重开才是对的，当然收尾不是烂尾。
+
+不过还没 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">强行一年一部导致能挑大梁的美术怕是直接跑了一批，音乐抠门找realme大师，剧本是竹入大师的惊世智慧和疯狂堆角色水剧情，没什么办法，就这逼样了
+
+某种意义上就是闪轨那几年过的太好了，躺得太舒服了，现在问题炸了能解决的人都没了
+
+
+*****
+
+####  ravend233  
+##### 5289#       发表于 2024-9-20 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66252462&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-20 08:46</a>
+
+起码比骂完记得买要有用多了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">骂是真的在乎才回去骂
+
+你轨在立本真的是nbcs
+

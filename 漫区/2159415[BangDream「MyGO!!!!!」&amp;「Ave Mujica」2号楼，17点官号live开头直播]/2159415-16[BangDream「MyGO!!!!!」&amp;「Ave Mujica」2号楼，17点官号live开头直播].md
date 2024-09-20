@@ -10074,3 +10074,113 @@ hgm中之人简直就跟hgm一样活泼
 
 完蛋，蹦蹦吸过血的没剩几个活着
 
+
+*****
+
+####  鳥栖朝  
+##### 23118#       发表于 2024-9-19 20:28
+
+ 本帖最后由 鳥栖朝 于 2024-9-19 20:35 编辑 
+
+啊这<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+看样子联动的是mygo动画而不是单独的狗团，除了狗全员，动画里路过脸的怕是跑不掉了
+
+*****
+
+####  仟音一心  
+##### 23119#       发表于 2024-9-19 20:44
+
+<img src="https://p.sda1.dev/19/d3007462fe7618d2c2ba651f7b95c004/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 23120#       发表于 2024-9-19 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66249570&amp;ptid=2159415" target="_blank">鳥栖朝 发表于 2024-9-19 20:28</a>
+
+啊这
+
+看样子联动的是mygo动画而不是单独的狗团，除了狗全员，动画里路过脸的怕是跑不掉了 ...</blockquote>
+？什麼恐怖故事<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  6030sylar  
+##### 23121#       发表于 2024-9-19 21:04
+
+ 本帖最后由 6030sylar 于 2024-9-19 21:37 编辑 
+
+<img src="https://img.saraba1st.com/forum/202409/19/210407pr8ig2jgjprd9i27.png" referrerpolicy="no-referrer">
+
+<strong>6Y~%]~K[(0AK{X8QT320CRT.png</strong> (59.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-19 21:04 上传
+
+小黄人sae
+
+<img src="https://img.saraba1st.com/forum/202409/19/213734jdtq89nisin88nid.png" referrerpolicy="no-referrer">
+
+<strong>_Z)IGSIYGRLWA8_`K}@8]@R.png</strong> (415.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-19 21:37 上传
+
+*****
+
+####  哈曼的YY  
+##### 23122#       发表于 2024-9-19 21:30
+
+灯觉得爽女士代表动物是袋鼠🦘 把其他四个人装在袋子里关心吗
+
+*****
+
+####  rikaren  
+##### 23123#       发表于 2024-9-19 21:50
+
+hgm中之人简直就跟hgm一样活泼
+
+*****
+
+####  rikaren  
+##### 23124#       发表于 2024-9-19 22:04
+
+<img src="https://img.saraba1st.com/forum/202409/19/220310sf18vr80qfppalma.jpg" referrerpolicy="no-referrer">
+
+<strong>1726754553461.jpg</strong> (319.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-19 22:03 上传
+
+下期有手游情报，wsd终于记得给猫希补五星了？记得把立希大分补上，40个人里唯一一个没130及以上的。
+
+*****
+
+####  akiomn  
+##### 23125#       发表于 2024-9-19 22:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">下周又有猪咪看了
+
+*****
+
+####  六道明  
+##### 23126#       发表于 2024-9-19 23:15
+
+完蛋，蹦蹦吸过血的没剩几个活着
+
+*****
+
+####  rikaren  
+##### 23127#       发表于 2024-9-20 08:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66249695&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-9-19 20:49</a>
+
+？什麼恐怖故事</blockquote>
+看了下logo，是动画的
+

@@ -137,3 +137,23 @@ GOTY！GOTY！
 这很常规了</blockquote>
 宣发词这么弱智，难怪会有对比rdr2被锤得体无完肤的视频。
 
+
+*****
+
+####  woaimiyabi  
+##### 531#       发表于 2024-9-20 08:51
+
+看了一眼这代演示，这战斗系统和装备系统，太和我胃口了，想首发了。
+
+*****
+
+####  PROCAINUM  
+##### 532#       发表于 2024-9-20 08:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66252290&amp;ptid=2072996" target="_blank">ultraseven 发表于 2024-9-20 08:25</a>
+
+这很常规了</blockquote>
+就那么标题党<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+摸鱼半小时逛了一圈，感觉至少是个合格作品，但是卡通画风真的很难适应<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

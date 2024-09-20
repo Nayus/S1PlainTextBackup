@@ -3576,3 +3576,15 @@ kanaira居然还进了VCRMC服<img src="https://static.saraba1st.com/image/smile
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不撕皮的萝莉的上限目前是口了？
 
+
+*****
+
+####  Harunoharu  
+##### 763#       发表于 2024-9-20 16:39
+
+如果按皮套和声音算的话ars和rrm也是萝莉，只不过她们俩不卖这个人设罢了，ars甚至今年周年搞了个大人皮套<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+口了也不是走萝莉路线的，有点像街角魔族那样的芳文社萌萌美少女随便干点啥，萝莉这个范畴还是太大了，我能当个普通的萌音美少女为什么一定要rp成小孩子这种有局限的人设，要是之前时髦的雌小鬼可能还更有卖点一点
+
+话说你虹以前真·卖幼女皮套人设的其实是森中花咲吧，那确实是大debuff了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

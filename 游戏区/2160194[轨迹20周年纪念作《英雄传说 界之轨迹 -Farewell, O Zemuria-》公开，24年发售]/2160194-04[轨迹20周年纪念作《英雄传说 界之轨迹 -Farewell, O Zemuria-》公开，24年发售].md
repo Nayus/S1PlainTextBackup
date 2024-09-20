@@ -10113,3 +10113,39 @@ fc也是竹入一番，重置算共事吗
 是不是一个ps独占一个ns独占，端水</blockquote>
 这可能性太低了，京迷和空r都是想拉新人的，京迷别首发也不带ps就不错了
 
+
+*****
+
+####  Archer长羽  
+##### 5459#       发表于 2024-9-20 16:39
+
+好想再玩一次闪2的滑雪，那个小游戏还是不错<img src="https://static.saraba1st.com/image/smiley/face2017/188.png" referrerpolicy="no-referrer">
+
+*****
+
+####  keiyoku  
+##### 5460#       发表于 2024-9-20 16:40
+
+主美和非主美工作量是一个等级吗我的妈<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">撇开村上是不是跟竹入闹掰了不谈，自己去翻黎1设定集，几个人设主力草案人设不太是村上出的，看笔触和眼部画法更贴近跑路的韩国画师画法
+勾兑美术需求你以为就画个图就完事了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Oshino  
+##### 5461#       发表于 2024-9-20 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66257635&amp;ptid=2160194" target="_blank">仲可怀 发表于 2024-9-20 16:33</a>
+村上黎轨2没有参与  伊苏X也没有 这次界轨也没有 今年发的迷城的主人设和空轨re的主人设都是她，显然作为 ...</blockquote>
+村上参与黎轨2的东西在[https://www.falcom.co.jp/kuro2/product/store.html](https://www.falcom.co.jp/kuro2/product/store.html)。她无非就是没出人设图而已，人物原设也是法老空给enami提供的，但是是不是村上设计的这个我不清楚。近藤也好竹入也好村上也好，本质就是一打工的，游戏没出楼友闲下来的时间开始自己写剧本了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 5462#       发表于 2024-9-20 16:40
+
+迷城估计就是PS+NS，给索索留点饭，但是NS更要紧
+
+但是谁知道呢，毕竟界轨所有人都以为是PS+NS的时候首发只有PS（）
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至少PS5这个在日本本土一周快卖不出1W台的玩意你法社还给他开发独占是挺幽默的
+

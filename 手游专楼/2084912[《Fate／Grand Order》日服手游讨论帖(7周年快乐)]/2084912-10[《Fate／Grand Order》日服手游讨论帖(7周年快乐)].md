@@ -602,3 +602,11 @@ byd喜欢FE能不能滚去填FEX的坑啊<img src="https://static.saraba1st.com/
 
 2024-9-20 18:16 上传
 
+
+*****
+
+####  克苏鲁系青骑士  
+##### 14666#       发表于 2024-9-20 18:22
+
+暗狐复刻把石头抽完了，只好继续望公主兴叹<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

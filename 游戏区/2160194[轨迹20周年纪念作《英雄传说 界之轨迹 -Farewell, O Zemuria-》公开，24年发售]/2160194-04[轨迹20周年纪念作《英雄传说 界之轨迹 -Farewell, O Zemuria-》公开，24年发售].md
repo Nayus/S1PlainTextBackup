@@ -10670,3 +10670,45 @@ dlc好丑。
 历史人物本身就有一定逼格，和主线不强相关，出场也 ...</blockquote>
 所以魂系给我一种剧情层面的所见即所得的高级感，开头播片PPT英雄走秀造历史，打到后期一个个都可以切磋
 
+
+*****
+
+####  windtrack_qh  
+##### 5512#       发表于 2024-9-20 20:57
+
+<img src="https://img.saraba1st.com/forum/202409/20/205730npo8ws54bw15ouwy.png" referrerpolicy="no-referrer">
+
+<strong>a66d52be4a0864857a04ad521353c2fd.png</strong> (229.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-20 20:57 上传
+
+*****
+
+####  ssobsb  
+##### 5513#       发表于 2024-9-20 20:58
+
+阿龙新s不错啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 5514#       发表于 2024-9-20 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66259859&amp;ptid=2160194" target="_blank">Dai-Dai-Dai-Dai 发表于 2024-9-20 20:45</a>
+把历史人物当一次性boss还挺好的，特别好用的工具人。
+
+历史人物本身就有一定逼格，和主线不强相关，出场也 ...</blockquote>
+这种东西就是适合当拦路精英怪，真拿来当幕后主使或者最终boss就很闹麻了（
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 5515#       发表于 2024-9-20 21:07
+
+穿兔女郎后，发现技能时髦与否已经不重要了，只要技能分镜像舔舐一样在女角色身上游走就够了。
+

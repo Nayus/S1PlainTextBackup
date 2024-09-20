@@ -357,3 +357,14 @@ lgbt银趴游戏
 战斗和对话没问题就行，反正pc能打mod（</blockquote>
 DAI的引擎mod支持很差，至今队友也没有美化mod，最多主角捏人加点发型眉毛。
 
+
+*****
+
+####  roydimus  
+##### 551#       发表于 2024-9-21 01:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66261897&amp;ptid=2072996" target="_blank">zhenlune 发表于 2024-9-21 01:35</a>
+
+DAI的引擎mod支持很差，至今队友也没有美化mod，最多主角捏人加点发型眉毛。 ...</blockquote>
+忘了这茬了，换寒霜真的是生软作死路上的重要一步（
+

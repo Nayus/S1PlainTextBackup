@@ -9561,3 +9561,16 @@ e大师是能画好女人的。我只觉得f社钱没给到位<img src="https://
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  菟原手兒奈  
+##### 5403#       发表于 2024-9-20 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66255494&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-20 13:14</a>
+
+因为这次好像进入菜单首页就有立绘看了，所以超过了1%
+
+—— 来自 鹅球 v3.0.0.82-alpha ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face/35.gif" referrerpolicy="no-referrer">主角团的立绘确实该弄好点
+

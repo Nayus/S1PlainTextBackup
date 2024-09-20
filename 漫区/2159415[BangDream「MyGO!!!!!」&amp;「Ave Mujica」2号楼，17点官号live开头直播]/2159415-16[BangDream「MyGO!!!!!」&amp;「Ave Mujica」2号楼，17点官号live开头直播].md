@@ -10319,3 +10319,14 @@ hgm中之人简直就跟hgm一样活泼
 我忽然想起，最开始mijica动画延期的时候，就有人说鸡在让狗剧场版，那时候可多人反驳了，不认为是鸡让狗 ...</blockquote>
 皇族是這樣的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adcdqre  
+##### 23141#       发表于 2024-9-20 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66254568&amp;ptid=2159415" target="_blank">twi 发表于 2024-09-20 11:42:59</a>
+mujica真的有所谓宣发期一说吗</blockquote>从没听说过有
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -10043,3 +10043,73 @@ fc也是竹入一番，重置算共事吗
 
 感觉主要还是回溯这东西不仅影响剧情，还影响游戏里的战斗体验，不像闪2一路里疾风起码战斗是爽的，不过黎2的动捕，羁绊剧情还是不错的
 
+
+*****
+
+####  ggyy0088  
+##### 5452#       发表于 2024-9-20 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66257406&amp;ptid=2160194" target="_blank">Oshino 发表于 2024-9-20 16:12</a>
+不做轨迹也要做伊苏，本来就是双线做的，今年新加的是空轨重制。每天跟上班打卡一样在楼里嗯滑坡共振也是 ...</blockquote>
+认识三个姓竹入近藤村上，想有格调一点再加个宇仁菅孝宏，另外熟记四个中国员工，你也能成为轨迹大佬。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  keiyoku  
+##### 5453#       发表于 2024-9-20 16:30
+
+？我就翻个当年听着图一乐的八卦怎么还有人审题看人名都能看偏啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仲可怀  
+##### 5454#       发表于 2024-9-20 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66257406&amp;ptid=2160194" target="_blank">Oshino 发表于 2024-9-20 16:12</a>
+
+不做轨迹也要做伊苏，本来就是双线做的，今年新加的是空轨重制。每天跟上班打卡一样在楼里嗯滑坡共振也是 ...</blockquote>
+村上黎轨2没有参与  伊苏X也没有 这次界轨也没有 今年发的迷城的主人设和空轨re的主人设都是她，显然作为社内主力的2D画师，重点在迷城和空轨RE这边 界轨这2D部分已经摆烂到一定程度了
+
+*****
+
+####  Squall25  
+##### 5455#       发表于 2024-9-20 16:34
+
+ 本帖最后由 Squall25 于 2024-9-20 16:37 编辑 
+
+法老控现在确实重视京迷＞界轨了，就是公布空轨re以后有点看不懂了<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">有点感觉他们怕京迷不够拉新，上空re更有效。
+
+*****
+
+####  无动于衷  
+##### 5456#       发表于 2024-9-20 16:36
+
+ 本帖最后由 无动于衷 于 2024-9-20 16:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66256829&amp;ptid=2160194" target="_blank">BRRM 发表于 2024-9-20 15:26</a>
+
+闪轨要烂也是闪3，闪2只有日后谈的部分烂（当狗腿子给人的观感确实不好，同学提前毕业主角自己留级的孤独感 ...</blockquote>
+剧本跟跑图有什么关系？你是分不清跑图是叫剧本还是叫玩法吗
+
+闪3就凭他给闪2擦了屁股并且把幻焰计划到底怎么回事这个坑填了就不叫烂  
+
+*****
+
+####  卢迪克  
+##### 5457#       发表于 2024-9-20 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66257647&amp;ptid=2160194" target="_blank">Squall25 发表于 2024-9-20 16:34</a>
+
+法老控现在确实重视京迷＞界轨了，就是公布空轨re以后有点看不懂了有点感觉他们怕京迷不够拉新，上空re更有 ...</blockquote>
+是不是一个ps独占一个ns独占，端水<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Squall25  
+##### 5458#       发表于 2024-9-20 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66257675&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-20 16:37</a>
+是不是一个ps独占一个ns独占，端水</blockquote>
+这可能性太低了，京迷和空r都是想拉新人的，京迷别首发也不带ps就不错了
+

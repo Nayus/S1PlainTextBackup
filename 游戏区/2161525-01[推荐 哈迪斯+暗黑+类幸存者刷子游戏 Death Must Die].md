@@ -46,3 +46,11 @@
 
 法师天赋有个冲刺触发法术，一路狂闪怪就死光了还挺乐
 
+
+*****
+
+####  thest  
+##### 47#       发表于 2024-9-20 12:46
+
+还有个问题，不管是商店里还是捡的东西，我从来没遇到过弓箭手的武器，这个是第一章不解锁吗还是遇到bug了？不能真就是脸黑吧……<img src="https://static.saraba1st.com/image/smiley/face2017/121.png" referrerpolicy="no-referrer">
+

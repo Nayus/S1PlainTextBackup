@@ -287,3 +287,13 @@ atlus你们是忘本了啊<img src="https://static.saraba1st.com/image/smiley/fa
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  迷路的石头  
+##### 734#       发表于 2024-9-20 12:53
+
+<blockquote>AWILL 发表于 2024-9-20 11:30
+准备把主角命名成马格努森了</blockquote>
+和nico和少爷都做过队友，应该是佩雷兹
+

@@ -990,3 +990,13 @@ TMD boss战不是问题，还要锁锁锁锁NM</blockquote>
 
 体力没了慢慢打，反正没有泳装从者
 
+
+*****
+
+####  保罗嚇伯特  
+##### 14704#       发表于 2024-9-21 00:44
+
+难得能用几次上杉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+白纸本怎么是仇阶石头人，还以为会是月癌大怪呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

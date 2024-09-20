@@ -459,3 +459,15 @@ yuzu搞王泪那事在前 估计也没什么人赶着触霉头？
 看这作体量了，要就楼上说的十几个小时的内容，那有个80多就不错了。体量大点又确实好玩，那最后能有惊奇的 ...</blockquote>
 可以分析一下为什么8小时没啥创意的机器人能拿94分吗？
 
+
+*****
+
+####  kuarwbwe  
+##### 614#       发表于 2024-9-21 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66261666&amp;ptid=2188108" target="_blank">hu794 发表于 2024-9-21 00:43</a>
+可以分析一下为什么8小时没啥创意的机器人能拿94分吗？</blockquote>
+我又不玩机器人，不知道。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

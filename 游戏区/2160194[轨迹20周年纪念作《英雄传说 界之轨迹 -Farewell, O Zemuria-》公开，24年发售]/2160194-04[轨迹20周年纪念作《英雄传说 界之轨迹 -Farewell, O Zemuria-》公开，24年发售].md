@@ -8361,3 +8361,148 @@ B站那里云黎轨2剧情比较好</blockquote>
 
 剧本是最不需要堆人力，财力的吧，但要有人才。比如如龙的编剧也经常被吐槽，都混成制作人了，唉，这不好说咯
 
+
+*****
+
+####  ravend233  
+##### 5291#       发表于 2024-9-20 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66252614&amp;ptid=2160194" target="_blank">出言不迅 发表于 2024-9-20 09:01</a>
+
+美术集中在2d吧，实际就菜单和s技有人物立绘？
+
+音乐是有明显下滑
+
+剧本是最不需要堆人力，财力的吧，但要 ...</blockquote>
+美术现在看没的不仅是画2D立绘的，大概率搞概念设计这种2D美术的都润了不少，整体美术的设计水平下滑严重，产能也低，DLC换装也摆了，伊苏10明显概念设计整个烂完了，界轨反倒是还有黎1那会人还没跑完时期的遗产可以用。
+
+剧本确实不需要钱，几个稳定的文案发工资就行，但竹入大师实在难以信任<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 5292#       发表于 2024-9-20 09:08
+
+没人聊新的序章演示吗
+
+*****
+
+####  flyingover  
+##### 5293#       发表于 2024-9-20 09:08
+
+去法老控x下面骂了，反正能让这种立绘过的法老控难辞其咎
+
+*****
+
+####  法拉  
+##### 5294#       发表于 2024-9-20 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66252614&amp;ptid=2160194" target="_blank">出言不迅 发表于 2024-9-20 09:01</a>
+美术集中在2d吧，实际就菜单和s技有人物立绘？
+
+音乐是有明显下滑
+
+剧本是最不需要堆人力，财力的吧，但要 ...</blockquote>
+实际上像大总统和菲莉他哥之类的立绘根本用不上结果还是画了，最多也就拿来当谷柄用，但是这种角色谁会买
+历年都有各种浪费美术的情况出现，很难想象你法现在项目管理有多遭，社内画师撂挑子不干了还是这么浪
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Archer长羽  
+##### 5295#       发表于 2024-9-20 09:11
+
+到哪骂感觉都没用，倒是看下年底股东大会，有没有巨魔股东直接提问一个大的，让社长当场冒冒冷汗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 5296#       发表于 2024-9-20 09:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一年一作，人又少，预算又抠，工期又赶，哎
+
+*****
+
+####  法拉  
+##### 5297#       发表于 2024-9-20 09:11
+
+就算讨厌e圣画风也不得不说，黎1时候他至少完成度是有的，现在画的全是肮脏大色块
+而且我不觉得这几个角色的立绘真的有什么用，还是要画，能不能不画
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  ravend233  
+##### 5298#       发表于 2024-9-20 09:12
+
+空RE可以用之前设计好的概念设计和人设，美术上让村上画点立绘和特典图就行，就看迷城这块能不能顶住了
+
+*****
+
+####  迷雾塔  
+##### 5299#       发表于 2024-9-20 09:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66252614&amp;ptid=2160194" target="_blank">出言不迅 发表于 2024-9-20 09:01</a>
+美术集中在2d吧，实际就菜单和s技有人物立绘？
+
+音乐是有明显下滑
+
+剧本是最不需要堆人力，财力的吧，但要 ...</blockquote>
+听到这样的实情，不得不这样想。与其放任品质下滑，为什么不赶快趁着还有余力，集中一次全社之力，做到最好，一口气终结系列呢？游戏终究还是商业行为，要保证它的艺术性，果然还是可遇不可求的事啊。
+
+*****
+
+####  法拉  
+##### 5300#       发表于 2024-9-20 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66252714&amp;ptid=2160194" target="_blank">Archer长羽 发表于 2024-9-20 09:11</a>
+到哪骂感觉都没用，倒是看下年底股东大会，有没有巨魔股东直接提问一个大的，让社长当场冒冒冷汗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">近藤会冒冷汗？他自己说的喜欢e圣“成熟”的画风，前提是他没在口嗨啦
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ravend233  
+##### 5301#       发表于 2024-9-20 09:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你法现在就是死猪不怕开水烫的状态，说啥都没用，空RE暴死最好迷城也暴死才会大破防吧
+
+*****
+
+####  法拉  
+##### 5302#       发表于 2024-9-20 09:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66252730&amp;ptid=2160194" target="_blank">迷雾塔 发表于 2024-9-20 09:12</a>
+听到这样的实情，不得不这样想。与其放任品质下滑，为什么不赶快趁着还有余力，集中一次全社之力，做到最 ...</blockquote>
+真有这种魄力的话就不会有黎2和界了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ravend233  
+##### 5303#       发表于 2024-9-20 09:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66252730&amp;ptid=2160194" target="_blank">迷雾塔 发表于 2024-9-20 09:12</a>
+
+听到这样的实情，不得不这样想。与其放任品质下滑，为什么不赶快趁着还有余力，集中一次全社之力，做到最 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">因为你法社还有退路，几十亿日元的现金怎么都还能发得起工资，日企又不开除占着茅坑不拉屎的老登给新人发挥空间，那不就一起开摆咯
+
+真暴死到赤字再说，这不还没火烧眉毛吗
+
+*****
+
+####  Archer长羽  
+##### 5304#       发表于 2024-9-20 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66252732&amp;ptid=2160194" target="_blank">法拉 发表于 2024-9-20 09:13</a>
+
+近藤会冒冷汗？他自己说的喜欢e圣“成熟”的画风，前提是他没在口嗨啦
+
+—— 来自 S1Fun ...</blockquote>
+我觉得他就是死鸭子嘴硬，反正不能承认是他们选错人了，都是那些不知好歹的臭玩家不懂欣赏大师的精品之作<img src="https://static.saraba1st.com/image/smiley/face2017/164.png" referrerpolicy="no-referrer">
+

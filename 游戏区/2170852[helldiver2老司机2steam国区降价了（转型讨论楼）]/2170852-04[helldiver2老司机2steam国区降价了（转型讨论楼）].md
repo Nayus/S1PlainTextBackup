@@ -2022,3 +2022,11 @@ We are looking at resolving this asap.
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Aeons  
+##### 5436#       发表于 2024-9-20 09:09
+
+虫减甲机器人加甲是吧，血和伤害也都加了，机器人这张图本身也算烂图，打起来享福的
+

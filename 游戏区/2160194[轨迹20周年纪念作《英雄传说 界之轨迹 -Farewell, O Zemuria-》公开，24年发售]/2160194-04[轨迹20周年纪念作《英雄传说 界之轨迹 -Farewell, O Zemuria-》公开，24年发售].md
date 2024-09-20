@@ -9402,3 +9402,26 @@ e大师是能画好女人的。我只觉得f社钱没给到位<img src="https://
 
 但是这点销量怎么也和出成绩沾不了边
 
+
+*****
+
+####  ravend233  
+##### 5390#       发表于 2024-9-20 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66254835&amp;ptid=2160194" target="_blank">Mchaos 发表于 2024-9-20 12:02</a>
+
+傻逼轨迹自家人都看不上，赶紧褒姒得了
+
+—— 来自 鹅球 v3.1.88.3</blockquote>
+自家人在摩拳擦掌做空RE和迷城呢，界轨NBCS
+
+
+*****
+
+####  Squall25  
+##### 5391#       发表于 2024-9-20 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66254803&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-20 12:00</a>
+但连特典图都不画我觉得很明显就是他不想给界轨画</blockquote>
+村上一个打工人，画不画啥又不是他决定的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">而且人家连着画空re和京迷真的得被累死吧，放过人家吧。
+

@@ -10184,3 +10184,46 @@ hgm中之人简直就跟hgm一样活泼
 ？什麼恐怖故事</blockquote>
 看了下logo，是动画的
 
+
+*****
+
+####  skives  
+##### 23128#       发表于 2024-9-20 12:09
+
+不是说不定没有宣传期 是确实没有
+翻唱mv不可能出了 因为翻唱专辑都已经发完
+声优广播大概率不出 因为世界观作为借口 可以省了这部分经费
+后篇剧场版是十一月末上映 放映期也是宣传期 最后无缝接动画开播 
+
+*****
+
+####  rinku  
+##### 23129#       发表于 2024-9-20 12:12
+
+现在的最新说法不是鸡的原创曲太多占尽资源吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MASKA-1  
+##### 23130#       发表于 2024-9-20 12:15
+
+至少第四季度要开始宣传吧
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  御幸一也  
+##### 23131#       发表于 2024-9-20 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66254913&amp;ptid=2159415" target="_blank">skives 发表于 2024-9-20 12:09</a>
+
+不是说不定没有宣传期 是确实没有
+
+翻唱mv不可能出了 因为翻唱专辑都已经发完
+
+声优广播大概率不出 因为世界 ...</blockquote>
+現在這都快10月了樓友們肯定心裡有數了，說的是之前嘛<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+2nd後那鬼樣子多少都知道了，皇族是皇族惹，洗腳的別想有同樣的資源<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+

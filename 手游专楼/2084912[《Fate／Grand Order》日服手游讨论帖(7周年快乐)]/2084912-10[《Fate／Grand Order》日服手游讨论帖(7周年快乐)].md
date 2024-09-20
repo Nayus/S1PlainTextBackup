@@ -825,3 +825,38 @@ fex和extella终究是硬续，铁鱼让我看见fe就脑壳痛
 我这种当年玩CCC只觉得这傻逼矫情AI我只想给他一拳的，就完全不会有感动
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ネロ  
+##### 14687#       发表于 2024-9-20 22:25
+
+刚开始打两章，这尼玛越发狗屎的强制配置<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TheLoof  
+##### 14688#       发表于 2024-9-20 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66259779&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-9-20 20:34</a>
+
+打完了 才22节  剧情没看 有没有人说说写的如何 写的好我从头开始看起</blockquote>
+答案是可以不看
+
+FE玩家和非FE玩家的区别真的不大，无非就是怎么看白野的自述和BB相关
+
+看一下梗概然后直接冲打BBD的那节就行
+
+提到了一小部分还不错的FGO角色塑造故事（立香、队长、达芬奇
+
+算是端水大师，谁的塑造也没落下
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  reidel  
+##### 14689#       发表于 2024-9-20 22:33
+
+奏3写的像轨迹，大家都是熟人见到白野必须聊两句再感叹一下白野真棒
+

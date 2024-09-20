@@ -339,3 +339,21 @@ lgbt银趴游戏
 
 战斗和对话没问题就行，反正pc能打mod（
 
+
+*****
+
+####  请问有猪扒饭吗  
+##### 549#       发表于 2024-9-21 01:26
+
+像楼上这样的就是活该被DEI骑脸的
+
+
+*****
+
+####  zhenlune  
+##### 550#       发表于 2024-9-21 01:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66261851&amp;ptid=2072996" target="_blank">roydimus 发表于 2024-9-21 01:23</a>
+战斗和对话没问题就行，反正pc能打mod（</blockquote>
+DAI的引擎mod支持很差，至今队友也没有美化mod，最多主角捏人加点发型眉毛。
+

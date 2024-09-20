@@ -1048,3 +1048,24 @@ TMD boss战不是问题，还要锁锁锁锁NM</blockquote>
 
 话说有说过从者硬币怎么搞吗 不会因为友情池能出就默认大家硬币无限所以不管了。。吧？
 
+
+*****
+
+####  DARKGRAY  
+##### 14710#       发表于 2024-9-21 02:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66261885&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-9-21 01:31</a>
+
+话说有说过从者硬币怎么搞吗 不会因为友情池能出就默认大家硬币无限所以不管了。。吧？ ...</blockquote>
+当然是抽啊，莉莉和哈贝不都是抽么，何况还会开卡池<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 14711#       发表于 2024-9-21 02:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66259779&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-9-20 20:34</a>
+打完了 才22节  剧情没看 有没有人说说写的如何 写的好我从头开始看起</blockquote>
+FEX联动（确信）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

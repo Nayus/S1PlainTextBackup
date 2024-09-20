@@ -60,3 +60,16 @@ B12再次推出，即将前往发射台A继续测试。
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  瓦格雷  
+##### 57#       发表于 2024-9-20 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66254595&amp;ptid=2190881" target="_blank">鲜血秋叶 发表于 2024-9-20 11:45</a>
+
+只贴这点加强筋是加大了回来的姿态难度吧，不过以后也可能会贴一圈
+
+—— 来自 鹅球 v3.1.88.3-alpha ...</blockquote>
+承力是加强筋附近2个挂耳  不论有没有加强筋 都只有这一个角度能筷子回收  图2顶上中间那个就是挂耳 
+

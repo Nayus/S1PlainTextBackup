@@ -10227,3 +10227,25 @@ hgm中之人简直就跟hgm一样活泼
 
 2nd後那鬼樣子多少都知道了，皇族是皇族惹，洗腳的別想有同樣的資源<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 23132#       发表于 2024-9-20 12:18
+
+一周年只有声优自行庆祝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+平时只能靠声优偶尔发点私下约玩的照片活着
+说不定这就是你鸡的宣传咯
+
+*****
+
+####  skives  
+##### 23133#       发表于 2024-9-20 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66254975&amp;ptid=2159415" target="_blank">MASKA-1 发表于 2024-9-20 12:15</a>
+至少第四季度要开始宣传吧
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端</blockquote>
+放心 池袋 秋叶原的大广告牌肯定少不了
+别的东西就想多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -9425,3 +9425,24 @@ e大师是能画好女人的。我只觉得f社钱没给到位<img src="https://
 但连特典图都不画我觉得很明显就是他不想给界轨画</blockquote>
 村上一个打工人，画不画啥又不是他决定的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">而且人家连着画空re和京迷真的得被累死吧，放过人家吧。
 
+
+*****
+
+####  卢迪克  
+##### 5392#       发表于 2024-9-20 12:17
+
+<blockquote>Mchaos 发表于 2024-9-20 12:02
+傻逼轨迹自家人都看不上，赶紧褒姒得了
+
+—— 来自 鹅球 v3.1.88.3</blockquote>
+备战空re,美版同步，首周大卖二十万。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202409/20/121738kl40zv0kloq0vsok.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1726805779481.jpg</strong> (83.53 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-20 12:17 上传
+

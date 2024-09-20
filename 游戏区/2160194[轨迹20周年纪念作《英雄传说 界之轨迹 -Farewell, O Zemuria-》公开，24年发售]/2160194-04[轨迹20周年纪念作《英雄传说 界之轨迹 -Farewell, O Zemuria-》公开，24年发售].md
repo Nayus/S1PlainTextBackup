@@ -9307,3 +9307,98 @@ e大师是能画好女人的。我只觉得f社钱没给到位<img src="https://
 竹入：伊苏不归我管，迷城看起来被近藤那小子丢给可恶的小登了，轨写完了那我上哪发号施令呢，这可不得行 ...</blockquote>
 所以现在社内都没人想做轨竹入全责吧，是不是哪里得罪村上了导致人一张都不给你界轨画<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 5381#       发表于 2024-9-20 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66254678&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-20 11:50</a>
+
+所以现在社内都没人想做轨竹入全责吧，是不是哪里得罪村上了导致人一张都不给你界轨画 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">闪4创轨要画那么多立绘，村上能没意见？迷城空RE的美术需求量不少多了
+
+*****
+
+####  zhuhh  
+##### 5382#       发表于 2024-9-20 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66254678&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-20 11:50</a>
+
+所以现在社内都没人想做轨竹入全责吧，是不是哪里得罪村上了导致人一张都不给你界轨画 ...</blockquote>
+村上明显是去画京迷新作还有空轨重制版了吧，界轨不值得去画图。
+
+*****
+
+####  maojiashu  
+##### 5383#       发表于 2024-9-20 12:00
+
+空轨重制+东迷立绘也不少了吧 如果不算3rd至少还有个sc 感觉不比黎界少了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一步成诗  
+##### 5384#       发表于 2024-9-20 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66254754&amp;ptid=2160194" target="_blank">zhuhh 发表于 2024-9-20 11:57</a>
+
+村上明显是去画京迷新作还有空轨重制版了吧，界轨不值得去画图。</blockquote>
+但连特典图都不画我觉得很明显就是他不想给界轨画
+
+*****
+
+####  卢迪克  
+##### 5385#       发表于 2024-9-20 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66254754&amp;ptid=2160194" target="_blank">zhuhh 发表于 2024-9-20 11:57</a>
+
+村上明显是去画京迷新作还有空轨重制版了吧，界轨不值得去画图。</blockquote>
+马上界ns就端出来一堆村上特典<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 5386#       发表于 2024-9-20 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66254826&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-20 12:02</a>
+
+马上界ns就端出来一堆村上特典</blockquote>
+真的会有吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+黎1PS5能有新图感觉是因为本来也要给黎2准备，顺便一起画了，现在我不好说
+
+*****
+
+####  Mchaos  
+##### 5387#       发表于 2024-9-20 12:02
+
+傻逼轨迹自家人都看不上，赶紧褒姒得了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  一步成诗  
+##### 5388#       发表于 2024-9-20 12:02
+
+或许竹入退休之时就是你轨有救那日，但很遗憾我觉得他有本事熬死你轨<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ccuui  
+##### 5389#       发表于 2024-9-20 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66254560&amp;ptid=2160194" target="_blank">Dai-Dai-Dai-Dai 发表于 2024-9-20 11:42</a>
+
+同样是年货的炼金出成绩后，感觉falcom也没什么藉口可以说了。
+
+要说有什么不同就是gust被收购了，falcom没 ...</blockquote>
+炼金出了啥成绩啊。唯一意外出圈的莱莎1小爆了一下
+
+后面莱莎2销量直接腰斩。莱莎3更是不如2。
+
+已经掉到和a17销量一个水平了。(虽然a17在旧作里算是销量天花板)
+
+但是这点销量怎么也和出成绩沾不了边
+

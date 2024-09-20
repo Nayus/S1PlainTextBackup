@@ -783,3 +783,20 @@ lccb良被削了，三破或能白嫖40狂气</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">看了下最新的节奏榜，开服人人唾弃的剑箱现在居然这么厉害
 
+
+*****
+
+####  Yuzutea  
+##### 883#       发表于 2024-9-20 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66253214&amp;ptid=2120922" target="_blank">法拉 发表于 2024-9-20 09:58</a>
+
+看了下最新的节奏榜，开服人人唾弃的剑箱现在居然这么厉害</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">四破加强之后就能用了
+
+不过关键还是大笠王强
+
+就像现在充能牢外强是裂纹浮和w奥强
+
+T表没啥用，这游戏现在都是玩体系了
+

@@ -9602,3 +9602,24 @@ e大师是能画好女人的。我只觉得f社钱没给到位<img src="https://
 
 现在我就等着黎3（界）把这些回归的老角色一起崩掉，断了最后一点念想，彻底告别轨迹系列了。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 5407#       发表于 2024-9-20 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66255600&amp;ptid=2160194" target="_blank">古畑任三郎2015 发表于 2024-9-20 13:28</a>
+
+我见识少，闪2应该是我玩过的第二款品出打击感的回合制jrpg所以心中份量还是有的
+
+至于黎2嘛…</blockquote>
+论打击感还是八方强点，闪的话疾风走路还是挺爽的。
+
+
+*****
+
+####  绫崎飒  
+##### 5408#       发表于 2024-9-20 14:43
+
+又是两坨屎争哪坨臭是吧，抛开剧情因素，我觉得纯游戏性闪2还是比黎2强
+

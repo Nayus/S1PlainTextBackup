@@ -173,3 +173,37 @@ lgbt银趴游戏
 
 能捏扶她吗？能捏我就先预购上
 
+
+*****
+
+####  popchong  
+##### 535#       发表于 2024-9-20 10:42
+
+ 本帖最后由 popchong 于 2024-9-20 10:43 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">推特已经开骂了
+
+<img src="https://img.saraba1st.com/forum/202409/20/104242w63vdu6c7331dh77.png" referrerpolicy="no-referrer">
+
+<strong>微信图片_20240920104226.png</strong> (71.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-20 10:42 上传
+
+<img src="https://img.saraba1st.com/forum/202409/20/104242wlyd7kttwcfl7clc.png" referrerpolicy="no-referrer">
+
+<strong>微信图片_20240920104222.png</strong> (64.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-20 10:42 上传
+
+<img src="https://img.saraba1st.com/forum/202409/20/104351el11j9xh660xu8zj.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20240920104342.png</strong> (251.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-20 10:43 上传
+

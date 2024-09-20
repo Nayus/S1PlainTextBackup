@@ -10579,3 +10579,16 @@ mygo活动始动不到一周就有角色翻唱，四个月就有小动画，八�
 
 就没那个爆火的气度和命 总是在赌博
 
+
+*****
+
+####  PDQ4  
+##### 23166#       发表于 2024-9-21 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66261173&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-9-20 23:26</a>
+
+不如说现在最好笑的不是贷款宣传期这个事，而是真有人信了并且开始拿世界观和客服之类的自己安慰自己 ...</blockquote>
+感觉B号语C功不可没，毕竟作为国内宣发窗口，被无数人赞誉接地气
+
+世界观又不耽误宣发，现在看唯一正经的大宣发还要追溯到0th那个线下解谜，世界观根本不影响宣传，单纯你鸡不配罢了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -88,3 +88,35 @@ Dragon Age: The Veilguard | Hands-on previews:
 
 真有这技术3代小胡子家不早给他变女的了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PROCAINUM  
+##### 526#       发表于 2024-9-20 08:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66251499&amp;ptid=2072996" target="_blank">医生狼多 发表于 2024-9-20 00:34</a>
+
+发preview开吹了
+
+Dragon Age: The Veilguard | Hands-on previews:</blockquote>
+这标题真不是塞钱了？<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ultraseven  
+##### 527#       发表于 2024-9-20 08:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66252265&amp;ptid=2072996" target="_blank">PROCAINUM 发表于 2024-9-20 08:20</a>
+
+这标题真不是塞钱了？</blockquote>
+这很常规了
+ <blockquote>Star Wars Outlaws feels like Ubisoft’s own Red Dead Redemption</blockquote>
+
+*****
+
+####  卡拉德利姆  
+##### 528#       发表于 2024-9-20 08:25
+
+GOTY！GOTY！
+

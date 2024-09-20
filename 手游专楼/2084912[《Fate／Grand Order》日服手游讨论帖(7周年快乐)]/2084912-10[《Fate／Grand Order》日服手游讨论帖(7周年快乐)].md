@@ -1008,3 +1008,35 @@ TMD boss战不是问题，还要锁锁锁锁NM</blockquote>
 
 治疗了我的低血压<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希望之花  
+##### 14706#       发表于 2024-9-21 01:17
+
+这种每点一次剧情关就要你重新配队是螺旋社新开发的折磨玩家的方案吗
+
+*****
+
+####  cenhr  
+##### 14707#       发表于 2024-9-21 01:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66261825&amp;ptid=2084912" target="_blank">希望之花 发表于 2024-9-21 01:17</a>
+
+这种每点一次剧情关就要你重新配队是螺旋社新开发的折磨玩家的方案吗</blockquote>
+还要配合高难度锁人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eilot  
+##### 14708#       发表于 2024-9-21 01:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66261825&amp;ptid=2084912" target="_blank">希望之花 发表于 2024-9-21 01:17</a>
+
+这种每点一次剧情关就要你重新配队是螺旋社新开发的折磨玩家的方案吗</blockquote>
+能重新配置隊伍已經非常好了
+
+深海那章，大多關卡都是綁定3~4人更沒空額，連角色都不用抽
+
+現在就是綁死岸波，和出擊人數愈來愈少，和不少BOSS狀態都要靠岸波來破
+

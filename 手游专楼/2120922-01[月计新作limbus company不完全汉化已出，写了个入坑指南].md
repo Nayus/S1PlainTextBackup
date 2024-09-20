@@ -775,3 +775,11 @@ lccb良被削了，三破或能白嫖40狂气</blockquote>
 
 希望是后面准备补吧，现在k宝这种也够原始人的了
 
+
+*****
+
+####  法拉  
+##### 882#       发表于 2024-9-20 09:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">看了下最新的节奏榜，开服人人唾弃的剑箱现在居然这么厉害
+

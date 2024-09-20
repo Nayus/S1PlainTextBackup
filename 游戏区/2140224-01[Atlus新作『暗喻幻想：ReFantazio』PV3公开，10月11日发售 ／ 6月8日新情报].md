@@ -217,3 +217,23 @@ atlus你们是忘本了啊<img src="https://static.saraba1st.com/image/smiley/fa
 
 —— 来自 OnePlus PHK110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  walfeds  
+##### 727#       发表于 2024-9-20 09:57
+
+呱，我不要看这个呀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  猫沢  
+##### 728#       发表于 2024-9-20 10:02
+
+阿特拉斯你是会宣发的<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">不如把体验版端上来
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

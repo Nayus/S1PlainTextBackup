@@ -8706,3 +8706,35 @@ B站那里云黎轨2剧情比较好</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  一步成诗  
+##### 5325#       发表于 2024-9-20 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66253150&amp;ptid=2160194" target="_blank">法拉 发表于 2024-9-20 09:52</a>
+
+我看你法真用了，之前就有张图有一些像是ai的逻辑性错误
+
+—— 来自 S1Fun</blockquote>
+是说六指莉斯吗，那个我倾向于压榨过头画懵了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+但实际上之前他们自己也承认过用ai做了一些概念图，但不会放进游戏里
+
+*****
+
+####  Squall25  
+##### 5326#       发表于 2024-9-20 09:59
+
+ 本帖最后由 Squall25 于 2024-9-20 10:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66252730&amp;ptid=2160194" target="_blank">迷雾塔 发表于 2024-9-20 09:12</a>
+听到这样的实情，不得不这样想。与其放任品质下滑，为什么不赶快趁着还有余力，集中一次全社之力，做到最 ...</blockquote>
+还集中全社之力呢，贴吧有个提兰斯的还被你轨迹粉丝嗤之以鼻觉得一个黄油也配和轨迹比<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">殊不知人家一个黄油都能早就铺好大纲（鬼兰），做一个兰斯10把系列完结了。前阵子好几个人发帖说就是希望轨迹一直做下去，别完结，现在这样界轨也不能完结共和国篇就是轨迹粉丝求仁得仁的结果
+
+*****
+
+####  Squall25  
+##### 5327#       发表于 2024-9-20 10:03
+
+新画师其实之前讨论的时候感觉最早，创轨ed就是他画的。没人扒是谁挺正常的，之前扒画师的某轨黑现在都不说话了，怀疑退坑了。
+

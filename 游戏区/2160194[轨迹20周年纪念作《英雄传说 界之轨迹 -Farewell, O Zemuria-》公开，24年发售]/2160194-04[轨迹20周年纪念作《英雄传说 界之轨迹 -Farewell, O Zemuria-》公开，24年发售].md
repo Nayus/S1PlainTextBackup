@@ -10829,3 +10829,73 @@ dlc好丑。
 —— 来自 鹅球 v3.0.0.82-alpha</blockquote>
 看op跪地上还以为要升级了，结果还是一样。
 
+
+*****
+
+####  八佾舞于潭  
+##### 5527#       发表于 2024-9-20 21:39
+
+小孩子兔女郎都有胸部装甲
+
+学妹兔女郎也有胸部装甲
+
+学妹是小孩
+
+学妹输
+
+Q.E.D
+
+MD学妹胸部黑丝都要爆出来了，给我去掉胸部装甲啊
+
+
+*****
+
+####  新世界的派蒙  
+##### 5528#       发表于 2024-9-20 21:43
+
+女仆和正太第二S藏了，说明主线解锁，也就是主线戏份靠前<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aimbot  
+##### 5529#       发表于 2024-9-20 21:44
+
+数字版是什么时候解锁？26号0点吗？
+
+*****
+
+####  无动于衷  
+##### 5530#       发表于 2024-9-20 21:44
+
+0点 日版因为时差能提前1小时
+
+*****
+
+####  八佾舞于潭  
+##### 5531#       发表于 2024-9-20 21:44
+
+<img src="https://img.saraba1st.com/forum/202409/20/214441tjbap0i6irhjfpzw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (18.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-20 21:44 上传
+
+<img src="https://img.saraba1st.com/forum/202409/20/214444v5osjz6jja66qse5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (17.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-20 21:44 上传
+
+*****
+
+####  悠悠你心  
+##### 5532#       发表于 2024-9-20 21:46
+
+凯文好像也藏了个s<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

@@ -751,3 +751,14 @@ byd喜欢FE能不能滚去填FEX的坑啊<img src="https://static.saraba1st.com/
 毫无兴趣  所以等个总结</blockquote>
 隔壁看了一段白野和BB告别的翻译，楼下一群人说好感动，但我一点感觉都没有……难道是因为我没玩过FE的缘故吗OTZ
 
+
+*****
+
+####  cenhr  
+##### 14682#       发表于 2024-9-20 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66260200&amp;ptid=2084912" target="_blank">angelooo 发表于 2024-9-20 21:27</a>
+
+隔壁看了一段白野和BB告别的翻译，楼下一群人说好感动，但我一点感觉都没有……难道是因为我没玩过FE的缘 ...</blockquote>
+要看你认不认同一个人是透过记忆定身分。如果同意，那么该别还挺感人。如果不同意，那么这个告别就是代餐，哪儿来的感动？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

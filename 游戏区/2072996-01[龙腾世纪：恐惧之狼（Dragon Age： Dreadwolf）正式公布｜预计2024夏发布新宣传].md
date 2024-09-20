@@ -281,3 +281,13 @@ lgbt银趴游戏
 
 感觉褒姒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ak123  
+##### 543#       发表于 2024-9-20 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66254329&amp;ptid=2072996" target="_blank">变老的大二 发表于 2024-9-20 11:23</a>
+感觉褒姒了</blockquote>
+还有一个半月开卖，预售进不了steam前五十<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

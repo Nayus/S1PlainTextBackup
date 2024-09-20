@@ -9590,3 +9590,15 @@ e大师是能画好女人的。我只觉得f社钱没给到位<img src="https://
 
 闪2现在风评差有个重要原因就是没把50米拉彻底整死
 
+
+*****
+
+####  solasakiye  
+##### 5406#       发表于 2024-9-20 14:28
+
+抛开技术的进步讨论没意义好吗，不然一堆远古神作大部分人现在也都玩不下去，总不能说不如黎2吧。
+
+虽然我个人对闪2没那么大意见，但是闪2再烂也不过是剧情水，战争儿戏云云，黎2可是喂了一坨大的，全员崩坏，直接把共和国众从备受期待的全新系列人物，拉到无人关心的地步了。（甚至把前作的39一起献祭了）<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+现在我就等着黎3（界）把这些回归的老角色一起崩掉，断了最后一点念想，彻底告别轨迹系列了。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

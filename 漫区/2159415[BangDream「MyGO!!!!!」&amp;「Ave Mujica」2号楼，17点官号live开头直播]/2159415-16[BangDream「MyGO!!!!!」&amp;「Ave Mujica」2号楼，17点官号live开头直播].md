@@ -10330,3 +10330,22 @@ mujica真的有所谓宣发期一说吗</blockquote>从没听说过有
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  星天观测  
+##### 23142#       发表于 2024-9-20 16:51
+
+现在来看鸡的一切都只能看动画了，动画烂了短期内就寄了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adcdqre  
+##### 23143#       发表于 2024-9-20 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66256936&amp;ptid=2159415" target="_blank">skives 发表于 2024-09-20 15:34:12</a>
+现在就看动画质量了
+动画质量不行 靠wsd运营提高人气的概率为零</blockquote>到时候散伙也没什么损失
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -3588,3 +3588,17 @@ kanaira居然还进了VCRMC服<img src="https://static.saraba1st.com/image/smile
 
 话说你虹以前真·卖幼女皮套人设的其实是森中花咲吧，那确实是大debuff了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  艾特娜  
+##### 764#       发表于 2024-9-20 16:53
+
+ 本帖最后由 艾特娜 于 2024-9-20 16:54 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">ARS原皮再怎么说都是少女路线吧
+
+小千刚出道也卖过啊
+
+还有出道真的不满14岁的现实萝莉海牛
+

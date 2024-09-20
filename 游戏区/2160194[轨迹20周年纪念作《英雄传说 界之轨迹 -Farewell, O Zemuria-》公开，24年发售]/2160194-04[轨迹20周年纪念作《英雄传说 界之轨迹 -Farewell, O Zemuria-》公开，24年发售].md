@@ -10149,3 +10149,78 @@ fc也是竹入一番，重置算共事吗
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至少PS5这个在日本本土一周快卖不出1W台的玩意你法社还给他开发独占是挺幽默的
 
+
+*****
+
+####  Mchaos  
+##### 5463#       发表于 2024-9-20 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66257725&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-20 16:40</a>
+
+迷城估计就是PS+NS，给索索留点饭，但是NS更要紧
+
+但是谁知道呢，毕竟界轨所有人都以为是PS+NS的时候首发只 ...</blockquote>
+不是开发独占而是没能力同时推出多平台只好选择一个自家受众最多的、自家渠道最熟的先上，法社倒是想独占ps5你看索尼肯付他独占费吗，李鬼2也是先上的ps5过了三个月上pc。
+
+*****
+
+####  オルガピピック  
+##### 5464#       发表于 2024-9-20 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66257725&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-20 16:40</a>
+
+迷城估计就是PS+NS，给索索留点饭，但是NS更要紧
+
+但是谁知道呢，毕竟界轨所有人都以为是PS+NS的时候首发只 ...</blockquote>
+都2024年了怎麼還有人看不清法老控平台戰略的 開發永遠是單平台然後靠代理移植 從ys10開始轉向ns開發了所以能全平台發售了
+
+*****
+
+####  卢迪克  
+##### 5465#       发表于 2024-9-20 16:48
+
+不止一万，只是官方翻新机不计入销量<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  迷雾塔  
+##### 5466#       发表于 2024-9-20 16:49
+
+看起来轨迹系列新作都没出过，要给主角整zzzq的流言……其他地方这种流言蜚语隔一段时间就飞翔一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Mchaos  
+##### 5467#       发表于 2024-9-20 16:50
+
+法社那几个IP的销量，你dei组织找上门，他就敢躺地上死给你看<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仲可怀  
+##### 5468#       发表于 2024-9-20 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66257799&amp;ptid=2160194" target="_blank">迷雾塔 发表于 2024-9-20 16:49</a>
+
+看起来轨迹系列新作都没出过，要给主角整zzzq的流言……其他地方这种流言蜚语隔一段时间就飞翔一下 ...</blockquote>
+黎轨1明确就有三角同性恋情
+
+菲莉……勉强算黑皮？
+
+*****
+
+####  BRRM  
+##### 5469#       发表于 2024-9-20 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66257658&amp;ptid=2160194" target="_blank">无动于衷 发表于 2024-9-20 16:36</a>
+
+剧本跟跑图有什么关系？你是分不清跑图是叫剧本还是叫玩法吗
+
+闪3就凭他给闪2擦了屁股并且把幻焰计划到底 ...</blockquote>
+RPG游戏剧本还能跟跑图分开？你剧本的故事里必定发生在某个场景，你的事件发生在哪个场景，那事件涉及到的人、物就大概率跟那个场景有关。
+
+闪2最主要的故事到煌魔城结束就完了，还有啥屁股是需要闪3擦的？
+
+幻焰计划这种大主线在具体到一部作品里只能作为暗线存在，根本不是影响一部作品好坏的主要要素，爱什么时候填就什么时候填，填了也不会让作品加分。
+

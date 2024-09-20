@@ -305,3 +305,11 @@ atlus你们是忘本了啊<img src="https://static.saraba1st.com/image/smiley/fa
 
 atlus为什么不敢放个体验版出来？
 
+
+*****
+
+####  巨馍蘸酱  
+##### 736#       发表于 2024-9-20 15:15
+
+以ATLUS现在的样子我都不敢期待P6了，新P组给P5R端出一坨东西，P3R做得也很没诚意。老P组做的暗喻幻想初公开感觉很惊艳，随着爆料多起来越看越雷。不如外包给KT做P5S的那组做P6算了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

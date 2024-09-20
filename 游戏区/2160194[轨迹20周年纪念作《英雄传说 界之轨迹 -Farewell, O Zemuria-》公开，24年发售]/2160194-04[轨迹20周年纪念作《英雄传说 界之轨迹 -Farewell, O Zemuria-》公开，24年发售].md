@@ -9705,3 +9705,59 @@ e大师是能画好女人的。我只觉得f社钱没给到位<img src="https://
 
 克洛这种，连退场遗言都说的明明白白了。但还能仰卧起坐狗屎一样地复活，说白了，像是从街头收集来的垃圾一样，庸俗的，迎合低级趣味的，无敌垃圾剧情，真是给我当头一棒<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  keiyoku  
+##### 5418#       发表于 2024-9-20 15:18
+
+嗯？漏油都没听过闪4前还是创之前的你法幽默社内八卦吗？村上和竹入掰了，所以负责完帝国后打死不愿意和竹入共事，好像是竹入抽象美术需求把村上搞麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+当然年代太久远了可能记错了一部分，反正黎界村上跑路估计是和竹入掰了
+
+
+*****
+
+####  一步成诗  
+##### 5419#       发表于 2024-9-20 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66256734&amp;ptid=2160194" target="_blank">keiyoku 发表于 2024-9-20 15:18</a>
+
+嗯？漏油都没听过闪4前还是创之前的你法幽默社内八卦吗？村上和竹入掰了，所以负责完帝国后打死不愿意和竹 ...</blockquote>
+这么乐吗，那我说一句竹入罪大恶极没问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ravend233  
+##### 5420#       发表于 2024-9-20 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66256734&amp;ptid=2160194" target="_blank">keiyoku 发表于 2024-9-20 15:18</a>
+
+嗯？漏油都没听过闪4前还是创之前的你法幽默社内八卦吗？村上和竹入掰了，所以负责完帝国后打死不愿意和竹 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这还真没听说过，所以堆人头都是竹入干的是吧
+
+*****
+
+####  仲可怀  
+##### 5421#       发表于 2024-9-20 15:23
+
+<blockquote>引用第5417楼keiyoku于2024-09-20 15:18发表的  :
+
+嗯？漏油都没听过闪4前还是创之前的你法幽默社内八卦吗？村上和竹入掰了，所以负责完帝国后打死不愿意和竹......</blockquote>
+这 八卦倒是没听过
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  BRRM  
+##### 5422#       发表于 2024-9-20 15:26
+
+闪轨要烂也是闪3，闪2只有日后谈的部分烂（当狗腿子给人的观感确实不好，同学提前毕业主角自己留级的孤独感也很不好），前面剧情并没有问题。
+
+闪2的剧情是典型的空轨SC的架构——跑过的图让你再跑一遍。空2是找约修亚，闪2是找同学，空2最后上辉之环决战，闪2最后进煌魔城。
+
+如果闪2算烂，那SC也叫烂，实际上空轨我最讨厌的作品也是SC，跑过的图又让我重新跑一遍，而且还没有传送。FC最有新鲜感，而3RD最好玩。
+
+闪2的内战也没有问题，因为根本就没怎么描写（没描写的东西怎么能说有问题），黎恩参与的都是些边角料的地方，战争基本跟主角没关系。
+

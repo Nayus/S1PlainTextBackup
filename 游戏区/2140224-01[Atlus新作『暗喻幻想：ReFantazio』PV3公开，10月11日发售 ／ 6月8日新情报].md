@@ -199,3 +199,21 @@ atlus你们是忘本了啊<img src="https://static.saraba1st.com/image/smiley/fa
 
 下这么多宣传经费出来之后褒姒了会咋样呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Redimercia  
+##### 725#       发表于 2024-9-20 07:59
+
+真是越来越想看这游戏褒姒了
+
+
+*****
+
+####  Linsdy  
+##### 726#       发表于 2024-9-20 08:02
+
+我预购了，能不能别褒姒，今年下半年就期待这一个游戏了
+
+—— 来自 OnePlus PHK110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

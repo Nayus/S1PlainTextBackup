@@ -1065,3 +1065,46 @@ What a wonderful radio完结还行……
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
 
+
+*****
+
+####  renkan119  
+##### 21055#       发表于 2024-9-19 22:18
+
+<blockquote>cat1230 发表于 2024-9-19 22:08
+啥事啊，没推特看不了。</blockquote>
+声优官推转发黑屁虹的推 目前出来道歉说是误触
+
+*****
+
+####  後藤正文  
+##### 21056#       发表于 2024-9-19 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66250382&amp;ptid=2078110" target="_blank">cat1230 发表于 2024-9-19 22:08</a>
+啥事啊，没推特看不了。</blockquote>
+转发了一条虹anti的推，点赞了一条要杀光推し自己的阿宅的推
+因为那条虹anti的推是用emoji指代anti的声优，不特地搜索过类似的内容应该不会出现在自己主页的timeline，所以如果不是盗号真的非常严重，说明平时她エゴサ都在搜些类似紫吧蛆才喜欢的东西<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 21057#       发表于 2024-9-20 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66250462&amp;ptid=2078110" target="_blank">renkan119 发表于 2024-9-19 22:18</a>
+声优官推转发黑屁虹的推 目前出来道歉说是误触</blockquote>
+说误触真不是一个好解释
+能误触到这种推，只会被质疑平时搜索得多被X推送这类推
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+
+*****
+
+####  ads147147  
+##### 21058#       发表于 2024-9-20 08:02
+
+咋说呢，比水姐严重，但是比水姐严重又不太可能。两边其实都是糊所以这点屁事一点波澜都没有，还不如官漫那句莲之空的攻击。。。
+
+反倒是误触大概是真的，毕竟老马把点赞隐藏了。。。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

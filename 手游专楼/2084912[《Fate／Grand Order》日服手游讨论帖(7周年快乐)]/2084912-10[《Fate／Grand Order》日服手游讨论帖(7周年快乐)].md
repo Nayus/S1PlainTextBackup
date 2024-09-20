@@ -586,3 +586,19 @@ byd喜欢FE能不能滚去填FEX的坑啊<img src="https://static.saraba1st.com/
 竟然没新人物卡池？那可以试下抽学姐了，虽然兴趣不大…
 还是留着奏四更好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 14665#       发表于 2024-9-20 18:16
+
+补个图
+
+<img src="https://img.saraba1st.com/forum/202409/20/181607v2eecnlyllzph8al.jpg" referrerpolicy="no-referrer">
+
+<strong>C2ZD7DTXNI$UP`(@@X3}EHM_tmb.jpg</strong> (159.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-20 18:16 上传
+

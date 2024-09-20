@@ -10377,3 +10377,13 @@ ps还是香的。能和索尼搞合作还是搞合作吧。销量不行多反思
 
 法老控不一直这样，平台选择上永远比别人慢至少三拍
 
+
+*****
+
+####  smdzh2  
+##### 5486#       发表于 2024-9-20 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66256734&amp;ptid=2160194" target="_blank">keiyoku 发表于 2024-9-20 16:18</a>
+嗯？漏油都没听过闪4前还是创之前的你法幽默社内八卦吗？村上和竹入掰了，所以负责完帝国后打死不愿意和竹 ...</blockquote>
+保不保真另说，闪34一大堆立绘+特典全压美工一个人身上，是个人都会尖叫抓挠的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

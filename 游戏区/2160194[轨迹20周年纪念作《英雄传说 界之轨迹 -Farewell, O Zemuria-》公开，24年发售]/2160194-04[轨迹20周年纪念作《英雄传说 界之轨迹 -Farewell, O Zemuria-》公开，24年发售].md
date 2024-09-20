@@ -9834,3 +9834,63 @@ fc也是竹入一番，重置算共事吗
 
 说八卦搞笑我没意见，你法现在重视东迷2不是有个眼睛的都能看出来？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Oshino  
+##### 5432#       发表于 2024-9-20 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66257093&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-20 15:45</a>
+说八卦搞笑我没意见，你法现在重视东迷2不是有个眼睛的都能看出来？</blockquote>
+确实没看出来，除了扔了一个官网和几张图出来之后什么后续动作吗？别说轨迹了，这个重视程度甚至比伊苏都差几条街
+
+*****
+
+####  一步成诗  
+##### 5433#       发表于 2024-9-20 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66257136&amp;ptid=2160194" target="_blank">Oshino 发表于 2024-9-20 15:48</a>
+
+确实没看出来，除了扔了一个官网和几张图出来之后什么后续动作吗？别说轨迹了，这个重视程度甚至比伊苏都 ...</blockquote>
+明年的游戏为什么要今年宣发，空轨今年宣都有人觉得抢了界轨风头<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Oshino  
+##### 5434#       发表于 2024-9-20 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66257154&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-20 15:50</a>
+明年的游戏为什么要今年宣发，空轨今年宣都有人觉得抢了界轨风头</blockquote>
+所以重视在哪里，游戏名字未定，玩法不知道，一个官网和一个pv，挂上去后一点后续都没有，有眼睛都能看出来的重视
+
+*****
+
+####  悠悠你心  
+##### 5435#       发表于 2024-9-20 15:53
+
+你法明年是打算东迷2和空re双开？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">有点担心了。
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  reidel  
+##### 5436#       发表于 2024-9-20 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66256677&amp;ptid=2160194" target="_blank">BRRM 发表于 2024-9-20 15:13</a>
+讲道理，这是闪3的锅，从闪2的角度来看怎么看都是整死了。</blockquote>
+就是因为有闪3大变活人才导致闪2整个主线剧情变成了小丑所以风评继续下滑，闪2光从游玩体验来说还是挺好的仿ff搞骑空艇让你满世界飞还多了很多刷刷刷要素
+
+*****
+
+####  一步成诗  
+##### 5437#       发表于 2024-9-20 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66257180&amp;ptid=2160194" target="_blank">Oshino 发表于 2024-9-20 15:52</a>
+
+所以重视在哪里，游戏名字未定，玩法不知道，一个官网和一个pv，挂上去后一点后续都没有，有眼睛都能看出 ...</blockquote>
+凭人家明年的游戏比你今年的界轨更早开官网，凭你社2d美术唯一顶梁柱村上在负责
+
+不然也很难解释啊，界轨看起来这么烂，既然东迷2也没人在做，那你法员工都去干嘛了，带薪休假吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

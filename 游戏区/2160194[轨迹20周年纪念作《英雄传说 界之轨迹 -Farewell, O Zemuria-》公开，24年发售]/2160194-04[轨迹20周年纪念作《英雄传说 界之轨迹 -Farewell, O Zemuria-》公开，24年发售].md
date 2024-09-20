@@ -9664,3 +9664,44 @@ e大师是能画好女人的。我只觉得f社钱没给到位<img src="https://
 
 闪2我已经没印象讲了啥了<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  迷雾塔  
+##### 5414#       发表于 2024-9-20 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66256060&amp;ptid=2160194" target="_blank">reidel 发表于 2024-9-20 14:21</a>
+闪2现在风评差有个重要原因就是没把50米拉彻底整死</blockquote>
+他没死真是让我一口盐汽水喷出来。看了这个剧透，完全杜绝了我打闪轨的心<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 5415#       发表于 2024-9-20 15:10
+
+闪2简单来说：
+
+过家家内战
+
+50米拉白忙活两作，美强惨，当然也可以说是小丑。
+
+里爷继当工具人后，又当了狗腿子，火火火。
+
+*****
+
+####  BRRM  
+##### 5416#       发表于 2024-9-20 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66256060&amp;ptid=2160194" target="_blank">reidel 发表于 2024-9-20 14:21</a>
+
+闪2现在风评差有个重要原因就是没把50米拉彻底整死</blockquote>
+讲道理，这是闪3的锅，从闪2的角度来看怎么看都是整死了。
+
+*****
+
+####  迷雾塔  
+##### 5417#       发表于 2024-9-20 15:13
+
+克洛这种，连退场遗言都说的明明白白了。但还能仰卧起坐狗屎一样地复活，说白了，像是从街头收集来的垃圾一样，庸俗的，迎合低级趣味的，无敌垃圾剧情，真是给我当头一棒<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

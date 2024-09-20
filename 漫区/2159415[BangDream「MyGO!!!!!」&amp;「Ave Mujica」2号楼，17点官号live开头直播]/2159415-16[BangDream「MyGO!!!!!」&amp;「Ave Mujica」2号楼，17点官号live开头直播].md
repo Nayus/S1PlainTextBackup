@@ -10394,3 +10394,19 @@ mujica真的有所谓宣发期一说吗</blockquote>从没听说过有
 
 好消息，大家都鬼，鸡不是一个人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ytttsuuuba  
+##### 23149#       发表于 2024-9-20 18:40
+
+还好我就看个动画<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">wsd要捂着就让他捂着吧，凉了第一个急的也不是观众。剧情好好写就行。
+
+
+*****
+
+####  twi  
+##### 23150#       发表于 2024-9-20 18:44
+
+火立绘都能出，风立绘有什么不能出的
+

@@ -10249,3 +10249,11 @@ hgm中之人简直就跟hgm一样活泼
 放心 池袋 秋叶原的大广告牌肯定少不了
 别的东西就想多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  twi  
+##### 23134#       发表于 2024-9-20 12:30
+
+猜一下3rd结束会不会进宣发期，没有就继续猜4th结束会不会进宣发期，还没有那过段时间正好直接开播，也不需要宣发了
+

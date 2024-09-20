@@ -427,3 +427,17 @@ yuzu搞王泪那事在前 估计也没什么人赶着触霉头？
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  leonlink  
+##### 611#       发表于 2024-9-21 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66261321&amp;ptid=2188108" target="_blank">kuarwbwe 发表于 2024-9-20 23:43</a>
+没具体说哪天一般默认前一天晚上8点。
+
+—— 来自 鹅球 v3.1.91-alpha</blockquote>
+明白了，谢谢
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

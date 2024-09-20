@@ -972,3 +972,13 @@ TMD boss战不是问题，还要锁锁锁锁NM</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">反正我打公主直接复活了  后面几个大boss用艾蕾乱杀
 
+
+*****
+
+####  yzj134100  
+##### 14702#       发表于 2024-9-20 23:59
+
+用上杉打了几关还行
+
+—— 来自 samsung SM-F9460, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

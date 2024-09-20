@@ -329,3 +329,11 @@ atlus为什么不敢放个体验版出来？
 
 没事，加速做p4gr可破
 
+
+*****
+
+####  罗克萨斯  
+##### 739#       发表于 2024-9-20 21:56
+
+随便逛了下美国贴吧，没想到真有觉得人设好顶赞的呢，而且不乏支持没恋爱系统的，莫非这作很对欧美人口味<img src="https://static.saraba1st.com/image/smiley/face/113.gif" referrerpolicy="no-referrer">
+

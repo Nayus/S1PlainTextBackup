@@ -10712,3 +10712,52 @@ dlc好丑。
 
 穿兔女郎后，发现技能时髦与否已经不重要了，只要技能分镜像舔舐一样在女角色身上游走就够了。
 
+
+*****
+
+####  alucardcz  
+##### 5516#       发表于 2024-9-20 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66259661&amp;ptid=2160194" target="_blank">冰寒之月 发表于 2024-9-20 20:18</a>
+
+盟主这建模比立绘好看多了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">这游戏但凡是个人建模都吊打立绘
+
+*****
+
+####  宛若青空  
+##### 5517#       发表于 2024-9-20 21:12
+
+怎么托娃也有兔女郎，这下我想象不出黑兔和拉碧丝的兔女郎了….<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aeons  
+##### 5518#       发表于 2024-9-20 21:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">这是否
+
+*****
+
+####  windtrack_qh  
+##### 5519#       发表于 2024-9-20 21:16
+
+<img src="https://img.saraba1st.com/forum/202409/20/211550hilp0dg87la827i7.png" referrerpolicy="no-referrer">
+
+<strong>69989cf5281136067077d57f42520b41.png</strong> (337.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-20 21:15 上传
+
+<img src="https://img.saraba1st.com/forum/202409/20/211600httjgtgttn8b2wtb.png" referrerpolicy="no-referrer">
+
+<strong>33829d4cb632b3c57cb1373baf7449e0.png</strong> (421.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-20 21:16 上传
+
+都有都有
+

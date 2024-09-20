@@ -710,3 +710,13 @@ byd喜欢FE能不能滚去填FEX的坑啊<img src="https://static.saraba1st.com/
 这么些出场角色不就是看萌新对FEX的兴趣如何了么....期间还穿插了一小段月姬的 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">毫无兴趣  所以等个总结
 
+
+*****
+
+####  blue321  
+##### 14678#       发表于 2024-9-20 21:12
+
+抽了100抽学姐池，只出了双4星
+
+剩下还是留着吧怕后面其他更想要的了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

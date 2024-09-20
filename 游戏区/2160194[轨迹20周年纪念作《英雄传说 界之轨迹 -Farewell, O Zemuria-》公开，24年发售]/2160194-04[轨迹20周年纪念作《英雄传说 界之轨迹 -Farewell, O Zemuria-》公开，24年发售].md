@@ -9574,3 +9574,19 @@ e大师是能画好女人的。我只觉得f社钱没给到位<img src="https://
 —— 来自 鹅球 v3.0.0.82-alpha ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/35.gif" referrerpolicy="no-referrer">主角团的立绘确实该弄好点
 
+
+*****
+
+####  Mchaos  
+##### 5404#       发表于 2024-9-20 14:15
+
+在我心中必然是黎2臭于闪2，抛开时代谈产品没必要，回溯整烂活的观感比做飞艇找同学更差
+
+
+*****
+
+####  reidel  
+##### 5405#       发表于 2024-9-20 14:21
+
+闪2现在风评差有个重要原因就是没把50米拉彻底整死
+

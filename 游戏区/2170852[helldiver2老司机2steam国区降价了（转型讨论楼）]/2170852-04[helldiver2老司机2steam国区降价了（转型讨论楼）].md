@@ -2057,3 +2057,12 @@ We are looking at resolving this asap.
 机器人那个加强版双足机甲到底用什么打，机炮都要四发才死，比持盾机枪兵还硬 ...</blockquote>
 打腿，腿3甲壳子4甲
 
+
+*****
+
+####  xinfengj  
+##### 5440#       发表于 2024-9-20 14:14
+
+<img src="https://p.sda1.dev/19/7755c9e0fbe1f17ae68dff426e224aaa/CMP_20240920141346367.jpg" referrerpolicy="no-referrer">
+喜获年度游戏奖（瑞典）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

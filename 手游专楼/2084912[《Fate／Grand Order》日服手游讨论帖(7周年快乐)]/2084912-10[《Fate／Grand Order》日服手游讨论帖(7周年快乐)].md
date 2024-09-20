@@ -354,3 +354,27 @@ byd喜欢FE能不能滚去填FEX的坑啊<img src="https://static.saraba1st.com/
 
 明天会开新卡池么<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  サイトヒメア  
+##### 14642#       发表于 2024-9-19 18:42
+
+byd喜欢FE能不能滚去填FEX的坑啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  zechins  
+##### 14643#       发表于 2024-9-19 23:30
+
+明天会开新卡池么<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+*****
+
+####  reidel  
+##### 14644#       发表于 2024-9-20 14:20
+
+下篇不至于还不开公主池吧，想补5宝好久了
+

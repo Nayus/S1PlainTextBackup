@@ -685,3 +685,11 @@ kite味挺足的，感觉应该比弁魔士好看点吧
 
 — from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
 
+
+*****
+
+####  藤田有静  
+##### 76#       发表于 2024-9-20 10:57
+
+有哪次期待过剧情的呢，不都是冲着人设作画cut味去的吗
+

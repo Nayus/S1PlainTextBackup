@@ -9063,3 +9063,79 @@ cp和继承系统更是抽象 抽卡玩法也没啥意思 说句不好听的这�
 现在不比当年了 完结掉一个赚钱的ip选择去开一个新ip不单要有魄力还 ...</blockquote>
 轨迹现在绝对是没大纲的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">我认为闪3以前轨迹是有大纲的，之后就一言难尽了。当然这个东西争起来就没意思了。甚至说共和国篇我认为都是现编居多。法老控所谓的大纲可能就是想了下这个世界是啥，女神是啥，至于中间的过程在哪里，要干嘛，绝对是没有的。至少我认为采访这种按道理不会露怯，任由近藤胡说的地方，近藤都能口嗨出一堆问题，足见大纲大概率是没有的。
 
+
+*****
+
+####  ravend233  
+##### 5359#       发表于 2024-9-20 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66253934&amp;ptid=2160194" target="_blank">Squall25 发表于 2024-9-20 10:53</a>
+
+轨迹现在绝对是没大纲的我认为闪3以前轨迹是有大纲的，之后就一言难尽了。当然这个东西争起来就没意思了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">大纲和计划是肯定没有的，从闪3开始就改到全乱套了，而且每一个篇章的实际具体大纲也会在开发时间中经历数次大规模修改
+
+
+*****
+
+####  卢迪克  
+##### 5360#       发表于 2024-9-20 11:00
+
+<blockquote>minus13 发表于 2024-9-20 10:19
+好像看截图真把东大陆地图放出来了，这跟我说是90%，还有五六年才完结？
+
+为了玩家这不得再水个七八部 ...</blockquote>
+虽然大，但却是复数都市组成的联盟国家，一部就能把地图点亮了。90%没问题
+
+<img src="https://img.saraba1st.com/forum/202409/20/105746gbfwfnvatnb5nt6v.jpg" referrerpolicy="no-referrer">
+
+<strong>100621dpczltvudg5zgwwr.jpg</strong> (279.57 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-20 10:57 上传
+
+<img src="https://img.saraba1st.com/forum/202409/20/105759x6odxr1zc544g21d.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240920_083506.jpg</strong> (42.84 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-20 10:57 上传
+
+
+*****
+
+####  卡拉德利姆  
+##### 5361#       发表于 2024-9-20 11:00
+
+谁在轨迹专楼里先提兰斯的啊，黄油玩家还是先摆脱百度网盘，多买几个游戏给业界续命吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Squall25  
+##### 5362#       发表于 2024-9-20 11:01
+
+不要说每个篇章怎么写了，有几个篇章都无法确定。顺带一提虽然是热知识了，某些人觉得法典国是最终篇也是不可能的，因为近藤亲口否认了有法典国篇，起码黎2那会他们的意思就是没设想过。
+
+*****
+
+####  ravend233  
+##### 5363#       发表于 2024-9-20 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66253843&amp;ptid=2160194" target="_blank">迷雾塔 发表于 2024-9-20 10:46</a>
+
+如何卖女人没有前途我安利ff的时候，总是要先来一句，对男玩家是“里面妹子很好看。不信你看看这个，再看 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">E带师的立绘就不方便卖女人不是
+
+*****
+
+####  ravend233  
+##### 5364#       发表于 2024-9-20 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66254046&amp;ptid=2160194" target="_blank">Squall25 发表于 2024-9-20 11:01</a>
+
+不要说每个篇章怎么写了，有几个篇章都无法确定。顺带一提虽然是热知识了，某些人觉得法典国是最终篇也是不 ...</blockquote>
+现在就是走一步看一步的状态，没啥可说的，要不是因为黎轨销量暴死了现在还在说可以一直续下去呢
+

@@ -8586,3 +8586,94 @@ B站那里云黎轨2剧情比较好</blockquote>
 
 但是现在你法社就是要堆角色，拉一大堆老角色，再整一大堆自己觉得很潮的设定和元素，做一个规模和体量远超自己能力的游戏，然后有事没事拖出来垫一年档期，那就只能以一个笑话入土了
 
+
+*****
+
+####  迷雾塔  
+##### 5312#       发表于 2024-9-20 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66252831&amp;ptid=2160194" target="_blank">出言不迅 发表于 2024-9-20 09:22</a>
+不要什么艺术性这种高度，一个精良的完结篇就行了，音画体验上一上台阶，在可以结束的地方结束，不再挖坑 ...</blockquote>
+一定能实现你心愿！我觉得完结篇，讨到社里更多的资源是能做到的，不可能不精良，宣发可能也会上来。只是夹在完结之前的作品，是讨不到了。记得界轨的op我第一次听，就觉得实在是有失水准。现在很多厂家衰落归衰落，但音乐这块没有旁落过，真不知道f社在省什么钱……
+
+*****
+
+####  Kojimaru  
+##### 5313#       发表于 2024-9-20 09:38
+
+不要慌还有对王炸，回归原点的空轨re和开辟未来的东轨2
+
+*****
+
+####  法拉  
+##### 5314#       发表于 2024-9-20 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66252972&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-20 09:36</a>
+你法社只要不疯狂堆角色数量堆奇奇怪怪的设定和元素，下定决心踏踏实实做一个第一部铺垫和刻画舞台，第二 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不也挺好吗，近藤一拍大腿想到的探索宇宙元素正好是e圣的得意分野啊，画了那么多星之海洋，这下画风终于要match起来了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  maojiashu  
+##### 5315#       发表于 2024-9-20 09:40
+
+这不就是闪轨的成功经验吗
+
+法老控想重复一次 结果发现不好使了
+
+*****
+
+####  一步成诗  
+##### 5316#       发表于 2024-9-20 09:41
+
+别了，户部淑老师现在画风偏幼，来了也得被喷，加上你法debuff我不敢想<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  theti  
+##### 5317#       发表于 2024-9-20 09:41
+
+别说钱啊工期了，请e圣还不如花钱买个ai会员来画图
+
+
+*****
+
+####  ravend233  
+##### 5318#       发表于 2024-9-20 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66253020&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-9-20 09:40</a>
+
+这不就是闪轨的成功经验吗
+
+法老控想重复一次 结果发现不好使了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">是这样的，你法很明显还是觉得闪轨那套是最靠谱的才规划的黎轨
+
+*****
+
+####  ravend233  
+##### 5319#       发表于 2024-9-20 09:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66253001&amp;ptid=2160194" target="_blank">迷雾塔 发表于 2024-9-20 09:38</a>
+
+一定能实现你心愿！我觉得完结篇，讨到社里更多的资源是能做到的，不可能不精良，宣发可能也会上来。只是 ...</blockquote>
+完结篇大概要看空RE会不会暴死，不暴死加资源的可能性比较大，空RE也暴死了的话直接端出来个只有老角色，直接沿用黎轨系统和引擎的玩意随随便便就完结也不是不可能
+
+*****
+
+####  一步成诗  
+##### 5320#       发表于 2024-9-20 09:45
+
+说ai的都是认真的吗，我以为你们就是表达一下对e的不满呢，业界有哪个正经公司真的明面上用ai了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  迷雾塔  
+##### 5321#       发表于 2024-9-20 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66252972&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-20 09:36</a>
+你法社只要不疯狂堆角色数量堆奇奇怪怪的设定和元素，下定决心踏踏实实做一个第一部铺垫和刻画舞台，第二 ...</blockquote>
+堆出一大群老角色出来，本身也在增加入坑难度。只能被吓跑。人物背景故事全靠新玩家猜和看简介，剧情里一副大家都很熟的样子，然而像报菜谱一样，整的很劝退<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

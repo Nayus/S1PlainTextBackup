@@ -8779,3 +8779,115 @@ cp和继承系统更是抽象 抽卡玩法也没啥意思 说句不好听的这�
 迷宫节奏一塌糊涂 15 ...</blockquote>
 那么你轨一定能轻而易举做出来一部完结作品有兰斯10这个水平吧<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">肯定不是像这样卑微到楼里一堆人希望别像黎2那样就谢天谢地了吧，出一部完结作结束轨迹一定轻而易举吧，还是说我们轨迹剧情和世界观太庞大了以至于要连着出灌水作品酝酿一下。
 
+
+*****
+
+####  maojiashu  
+##### 5332#       发表于 2024-9-20 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66253403&amp;ptid=2160194" target="_blank">Squall25 发表于 2024-9-20 10:13</a>
+
+那么你轨一定能轻而易举做出来一部完结作品有兰斯10这个水平吧肯定不是像这样卑微到楼里一堆人希望别像黎 ...</blockquote>
+轨迹烂不代表兰斯10就好呢<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Squall25  
+##### 5333#       发表于 2024-9-20 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66253417&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-9-20 10:15</a>
+轨迹烂不代表兰斯10就好呢</blockquote>
+也没说兰斯10就好呢，我说的就是黄油能有始有终，轨迹怎么就不能呢，一定是因为轨迹的剧情和世界观太庞大了吧<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  maojiashu  
+##### 5334#       发表于 2024-9-20 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66253424&amp;ptid=2160194" target="_blank">Squall25 发表于 2024-9-20 10:15</a>
+
+也没说兰斯10就好呢，我说的就是黄油能有始有终，轨迹怎么就不能呢，一定是因为轨迹的剧情和世界观太庞大 ...</blockquote>
+怎么 战兰吧就没惋惜兰斯完结的玩家了？ 每个人都巴不得兰斯完结？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  minus13  
+##### 5335#       发表于 2024-9-20 10:19
+
+好像看截图真把东大陆地图放出来了，这跟我说是90%，还有五六年才完结？
+
+为了玩家这不得再水个七八部<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Squall25  
+##### 5336#       发表于 2024-9-20 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66253447&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-9-20 10:17</a>
+怎么 战兰吧就没惋惜兰斯完结的玩家了？ 每个人都巴不得兰斯完结？</blockquote>
+所以说法老控没气魄完结轨迹有问题？
+
+*****
+
+####  迷雾塔  
+##### 5337#       发表于 2024-9-20 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66253226&amp;ptid=2160194" target="_blank">Squall25 发表于 2024-9-20 09:59</a>
+还集中全社之力呢，贴吧有个提兰斯的还被你轨迹粉丝嗤之以鼻觉得一个黄油也配和轨迹比殊不知人家一个黄油 ...</blockquote>
+“重要的是要有明确的意图，而不是一味迎合玩家的意见”
+而f社现在一个明确意图是赚钱，有些玩家意见是一直续下去<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所以很难评。
+我宁可轨迹它早完结了，然后出一些外传游戏。能同时兼顾故事完整性和拓展性。这样你玩不玩外传游戏对理解正片一点儿影响都没有。通过外传你只能了解本传的一点点信息，完全不会剧透到正传的大动脉。而外传也能很好玩，美术音乐游戏性再拉上去，粉丝就爽快了。
+
+*****
+
+####  ravend233  
+##### 5338#       发表于 2024-9-20 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66253466&amp;ptid=2160194" target="_blank">minus13 发表于 2024-9-20 10:19</a>
+
+好像看截图真把东大陆地图放出来了，这跟我说是90%，还有五六年才完结？
+
+为了玩家这不得再水个七八部 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是水七八部还是直接完结当然是看销量而定
+
+*****
+
+####  Aeons  
+##### 5339#       发表于 2024-9-20 10:22
+
+看到兰斯不免想到e社，战女神什么时候出后续啊。不过新作一坨狗屎想想还是算了。
+
+*****
+
+####  Squall25  
+##### 5340#       发表于 2024-9-20 10:22
+
+ 本帖最后由 Squall25 于 2024-9-20 10:23 编辑 
+
+其实说这个也不重要了，不考虑空re的事情的话，轨迹确实要完结了，运气好的话界轨褒姒，京迷卖的又还行的话，26年界轨2就该完结了。
+现在从地图，和剧情去考虑轨迹还要几部已经没意义了，近藤自己都说不准，每次都能改口。但是场外角度会让轨迹加速完结的。
+
+*****
+
+####  minus13  
+##### 5341#       发表于 2024-9-20 10:23
+
+怎么还有希望轨迹一直做下去的，把轨迹当名侦探柯南了是吧
+
+*****
+
+####  maojiashu  
+##### 5342#       发表于 2024-9-20 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66253491&amp;ptid=2160194" target="_blank">Squall25 发表于 2024-9-20 10:20</a>
+
+所以说法老控没气魄完结轨迹有问题？</blockquote>
+当然有问题
+
+有钱赚为什么不出？你想要怪谁？怪玩家去买？
+
+兰斯完结还不是黄油市场不景气 你兰斯要是每作能卖个10w你看爱丽丝出不出
+
+法老控就没压力了？ 等没人买了自然就不出了 还需要你来喊？
+

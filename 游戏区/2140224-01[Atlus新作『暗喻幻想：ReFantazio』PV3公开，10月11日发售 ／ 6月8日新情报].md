@@ -237,3 +237,12 @@ atlus你们是忘本了啊<img src="https://static.saraba1st.com/image/smiley/fa
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Schwarzess  
+##### 729#       发表于 2024-9-20 10:21
+
+为什么不让谈恋爱，不谈恋爱也好意思说集大成？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+我要和脖子以下都是腿的红毛女骑士谈恋爱啊kora！<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

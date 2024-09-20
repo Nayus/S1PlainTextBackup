@@ -93,3 +93,13 @@ an打工战士公告也出来了，不知道an是混池还是两个独立池子�
 周末清任务的时候是真的长，这次复刻从哪里开始的剧情是新的啊</blockquote>
 D-vice穿越到石头门世界的情节是新的。
 
+
+*****
+
+####  灰色蔓延  
+##### 1211#       发表于 2024-9-20 10:26
+
+自从鸡鸭死联动之后就再也没出货，全是歪。真的感到阿金不做人的疲乏了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

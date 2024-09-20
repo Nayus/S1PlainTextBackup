@@ -577,3 +577,12 @@ byd喜欢FE能不能滚去填FEX的坑啊<img src="https://static.saraba1st.com/
 是不是可以盖棺了  今年等于没有泳装活动！</blockquote>
 没有正经夏活，只是一个穿着泳装在月球玩沙子的意义不明奏章罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blue321  
+##### 14664#       发表于 2024-9-20 18:05
+
+竟然没新人物卡池？那可以试下抽学姐了，虽然兴趣不大…
+还是留着奏四更好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

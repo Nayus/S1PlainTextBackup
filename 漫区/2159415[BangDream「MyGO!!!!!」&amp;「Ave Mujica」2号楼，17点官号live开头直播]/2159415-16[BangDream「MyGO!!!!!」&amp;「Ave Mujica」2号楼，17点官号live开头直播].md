@@ -10361,3 +10361,26 @@ mujica真的有所谓宣发期一说吗</blockquote>从没听说过有
   -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
 提前做好心理准备 起码不会成为地缚灵<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 23145#       发表于 2024-9-20 17:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">真的不想說武士道了，挑一個鬼圖特典想幹嘛呢
+
+*****
+
+####  仟音一心  
+##### 23146#       发表于 2024-9-20 18:01
+
+<img src="https://p.sda1.dev/19/bcd57ab6ebd927aed152f9ee096917a5/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rikaren  
+##### 23147#       发表于 2024-9-20 18:04
+
+那个ksm是真的赫人
+

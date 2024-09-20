@@ -9139,3 +9139,61 @@ cp和继承系统更是抽象 抽卡玩法也没啥意思 说句不好听的这�
 不要说每个篇章怎么写了，有几个篇章都无法确定。顺带一提虽然是热知识了，某些人觉得法典国是最终篇也是不 ...</blockquote>
 现在就是走一步看一步的状态，没啥可说的，要不是因为黎轨销量暴死了现在还在说可以一直续下去呢
 
+
+*****
+
+####  minus13  
+##### 5365#       发表于 2024-9-20 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66254030&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-20 11:00</a>
+
+虽然大，但却是复数都市组成的联盟国家，一部就能把地图点亮了。90%没问题</blockquote>
+但愿如此吧，我预期是轨迹差不多25周年完结那种
+
+轨迹现在都这样了，再水10年也太难看了吧
+
+*****
+
+####  ravend233  
+##### 5366#       发表于 2024-9-20 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66254109&amp;ptid=2160194" target="_blank">minus13 发表于 2024-9-20 11:06</a>
+
+但愿如此吧，我预期是轨迹差不多25周年完结那种
+
+轨迹现在都这样了，再水10年也太难看了吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">新篇大卖了那给你拖四五部也不是不可能
+
+*****
+
+####  迷雾塔  
+##### 5367#       发表于 2024-9-20 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66254050&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-20 11:02</a>
+E带师的立绘就不方便卖女人不是</blockquote>
+e大师是能画好女人的。我只觉得f社钱没给到位<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  maojiashu  
+##### 5368#       发表于 2024-9-20 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66253934&amp;ptid=2160194" target="_blank">Squall25 发表于 2024-9-20 10:53</a>
+
+轨迹现在绝对是没大纲的我认为闪3以前轨迹是有大纲的，之后就一言难尽了。当然这个东西争起来就没意思了 ...</blockquote>
+你要我说 那就是空轨之后才开始编的大纲 而且只是个大背景 连具体事件都是每作直接现编+前作的事件组合
+
+而且我都说了 现在是为了不给完结一直在塞东西 塞的东西游离在主线外也就不奇怪了
+
+另外百分比这个事我从一开始就没信过 口嗨罢了
+
+
+*****
+
+####  sz19860225  
+##### 5369#       发表于 2024-9-20 11:12
+
+就是明天日本人的美爹铁拳下来一拳把DL打爆也改变不了兰斯系列地位，人家都完结去卖页游了业界死活只影响a社又不影响兰斯。你轨无视jrpg和日本游戏业界从ps3到ps4 ns由衰转盛的行情，销量稳定走低的毅力够a社学一辈子了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

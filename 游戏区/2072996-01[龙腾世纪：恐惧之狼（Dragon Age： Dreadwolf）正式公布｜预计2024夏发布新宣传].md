@@ -238,3 +238,38 @@ lgbt银趴游戏
 
 憋吹了 我孩怕<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  抠鼻屎男  
+##### 539#       发表于 2024-9-20 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66253796&amp;ptid=2072996" target="_blank">popchong 发表于 2024-9-20 10:42</a>
+
+推特已经开骂了
+
+• "The Character Creator I’ve Always Wanted" -IGN</blockquote>
+最下面那个是蓝色妖姬？
+
+*****
+
+####  pygrads  
+##### 540#       发表于 2024-9-20 11:07
+
+一眼褒姒
+
+
+*****
+
+####  狗头人  
+##### 541#       发表于 2024-9-20 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66253860&amp;ptid=2072996" target="_blank">傲娇的章鱼鱼 发表于 2024-9-20 10:47</a>
+
+《龙腾世纪：影障守护者》-媒体预览评语：
+
+“终于有 BioWare 曾经的感觉了。”
+
+“感觉就像该系列的《质量效 ...</blockquote>
+怎么像是串子<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

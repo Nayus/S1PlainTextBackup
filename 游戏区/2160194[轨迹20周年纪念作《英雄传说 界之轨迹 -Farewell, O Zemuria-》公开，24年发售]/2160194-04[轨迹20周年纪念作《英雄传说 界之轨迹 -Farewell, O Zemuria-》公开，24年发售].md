@@ -8677,3 +8677,32 @@ B站那里云黎轨2剧情比较好</blockquote>
 你法社只要不疯狂堆角色数量堆奇奇怪怪的设定和元素，下定决心踏踏实实做一个第一部铺垫和刻画舞台，第二 ...</blockquote>
 堆出一大群老角色出来，本身也在增加入坑难度。只能被吓跑。人物背景故事全靠新玩家猜和看简介，剧情里一副大家都很熟的样子，然而像报菜谱一样，整的很劝退<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aimujie  
+##### 5322#       发表于 2024-9-20 09:50
+
+把以前的群口相声再唱一遍就好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 5323#       发表于 2024-9-20 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66253092&amp;ptid=2160194" target="_blank">迷雾塔 发表于 2024-9-20 09:46</a>
+
+堆出一大群老角色出来，本身也在增加入坑难度。只能被吓跑。人物背景故事全靠新玩家猜和看简介，剧情里一 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这套老玩家都蚌埠住了，新人只会觉得什么垃圾玩意，现在就看你法连里爷这个现阶段能用上的情怀王炸打出来是继续暴死还是卖得比黎12都好了；结果是后者我无话可说，建议继续里爷传，是前者那就只能说明你法搞的这些歪门邪道都没有价值了
+
+*****
+
+####  法拉  
+##### 5324#       发表于 2024-9-20 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66253074&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-20 09:45</a>
+说ai的都是认真的吗，我以为你们就是表达一下对e的不满呢，业界有哪个正经公司真的明面上用ai了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">我看你法真用了，之前就有张图有一些像是ai的逻辑性错误
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

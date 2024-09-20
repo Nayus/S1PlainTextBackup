@@ -10338,3 +10338,34 @@ ps还是香的。能和索尼搞合作还是搞合作吧。销量不行多反思
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  卢迪克  
+##### 5482#       发表于 2024-9-20 17:51
+
+ 本帖最后由 卢迪克 于 2024-9-20 17:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66257194&amp;ptid=2160194" target="_blank">悠悠你心 发表于 2024-9-20 15:53</a>
+
+你法明年是打算东迷2和空re双开？有点担心了。
+
+—— 来自 HONOR PGT-AN20, Android 14上的 S1Next-鹅版 v2 ...</blockquote>
+如果都是ns的就要明年都出咯，谁知道26年宝可梦十代还会不会带ns玩。25年还有宝可梦ZA在ns出。之后就不好说了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Esoterica  
+##### 5483#       发表于 2024-9-20 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66257315&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-20 16:03</a></blockquote>
+左边的看了下是可以学习措辞习惯的AI翻译软件，不知道是不是会被尼法用于全球化（完了这次云豹不会直接用的AI翻译版本吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+右边是个啥？
+
+*****
+
+####  Aeons  
+##### 5484#       发表于 2024-9-20 17:55
+
+就是展会展示下ai翻译水平，用界轨一部分内容做测试，好像有四种，最后投哪个更好。
+

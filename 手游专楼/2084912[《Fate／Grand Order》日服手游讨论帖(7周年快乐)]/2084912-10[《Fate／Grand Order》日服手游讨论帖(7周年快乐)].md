@@ -1079,3 +1079,11 @@ FEX联动（确信）<img src="https://static.saraba1st.com/image/smiley/face201
 贞德只是会到处认弟弟和妹妹....脑子没坏到会参与什么最终BOSS人类灭亡战或者和杀生院合作吧....大概 ...</blockquote>
 就是泳装贞德，至于退场的原因很简单，就是她自己自愿退场的，因为接受不了自己的主张的人气比阿福还低<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希望之花  
+##### 14713#       发表于 2024-9-21 04:54
+
+五十万友情点两个lily两个哈贝一个小安一个白野<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

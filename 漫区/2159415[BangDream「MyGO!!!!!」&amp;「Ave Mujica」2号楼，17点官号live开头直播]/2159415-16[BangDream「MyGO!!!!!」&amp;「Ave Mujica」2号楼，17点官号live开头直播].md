@@ -10592,3 +10592,11 @@ mygo活动始动不到一周就有角色翻唱，四个月就有小动画，八�
 
 世界观又不耽误宣发，现在看唯一正经的大宣发还要追溯到0th那个线下解谜，世界观根本不影响宣传，单纯你鸡不配罢了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  twi  
+##### 23167#       发表于 2024-9-21 00:57
+
+这个还可以衔接到资源论：wsd并不是不想宣传mujica，而是没有能力宣传mujica，因为资源有限所以mujica再等等吧
+

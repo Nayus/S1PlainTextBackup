@@ -401,3 +401,17 @@ yuzu搞王泪那事在前 估计也没什么人赶着触霉头？
 
 分低不奇怪，公主能力强得变态还是个解密游戏很容易出现通解，大量道具也不知道掉帧情况怎么样，还是个大头小人游戏
 
+
+*****
+
+####  kuarwbwe  
+##### 609#       发表于 2024-9-20 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66258423&amp;ptid=2188108" target="_blank">leonlink 发表于 2024-9-20 17:46</a>
+有说媒体评分是哪天吗？
+
+—— 来自 鹅球 v3.1.88.3-alpha</blockquote>
+没具体说哪天一般默认前一天晚上8点。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

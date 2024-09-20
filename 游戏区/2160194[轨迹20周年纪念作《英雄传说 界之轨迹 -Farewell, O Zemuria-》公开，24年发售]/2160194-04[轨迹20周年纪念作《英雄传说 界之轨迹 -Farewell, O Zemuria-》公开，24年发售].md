@@ -10951,3 +10951,11 @@ MD学妹胸部黑丝都要爆出来了，给我去掉胸部装甲啊
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">你法数值有不崩的时候吗
 
+
+*****
+
+####  无动于衷  
+##### 5539#       发表于 2024-9-20 23:37
+
+要啥崩坏不崩坏的，爽就完事了，反正不管你法怎么捣鼓玩家一定会搞出最优解
+

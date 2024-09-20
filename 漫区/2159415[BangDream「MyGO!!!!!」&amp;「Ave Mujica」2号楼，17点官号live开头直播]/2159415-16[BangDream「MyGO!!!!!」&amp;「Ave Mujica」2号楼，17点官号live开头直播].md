@@ -10505,3 +10505,14 @@ mygo活动始动不到一周就有角色翻唱，四个月就有小动画，八�
 
 不如说现在最好笑的不是贷款宣传期这个事，而是真有人信了并且开始拿世界观和客服之类的自己安慰自己<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御景  
+##### 23160#       发表于 2024-9-20 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66261173&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-9-20 23:26</a>
+
+不如说现在最好笑的不是贷款宣传期这个事，而是真有人信了并且开始拿世界观和客服之类的自己安慰自己 ...</blockquote>
+我不想说世界观可有可无，但事实上已经打破很多次了
+

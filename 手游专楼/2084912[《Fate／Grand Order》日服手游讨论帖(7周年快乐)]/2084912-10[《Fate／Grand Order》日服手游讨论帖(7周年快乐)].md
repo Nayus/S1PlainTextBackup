@@ -914,3 +914,53 @@ TMD boss战不是问题，还要锁锁锁锁NM</blockquote>
 有几关能让你借好友还不感恩戴德！</blockquote>
 垃圾限制+垃圾难度+垃圾故事，感觉血压都要爆了<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 14696#       发表于 2024-9-20 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66261260&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-9-20 23:37</a>
+
+垃圾限制+垃圾难度+垃圾故事，感觉血压都要爆了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我直接令咒复活石拉满
+
+*****
+
+####  reidel  
+##### 14697#       发表于 2024-9-20 23:42
+
+这次难度不高吧，对面全是月癌掏出大钻头对她们使用抱摔
+
+
+*****
+
+####  cenhr  
+##### 14698#       发表于 2024-9-20 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66261308&amp;ptid=2084912" target="_blank">reidel 发表于 2024-9-20 23:42</a>
+
+这次难度不高吧，对面全是月癌掏出大钻头对她们使用抱摔</blockquote>
+全部都是麻烦+锁NM的boss战<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ネロ  
+##### 14699#       发表于 2024-9-20 23:44
+
+这关卡策划是真的司马玩意儿<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+难怪除了背靠大树的废狗全是暴死货
+
+*****
+
+####  eilot  
+##### 14700#       发表于 2024-9-20 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66261308&amp;ptid=2084912" target="_blank">reidel 发表于 2024-9-20 23:42</a>
+
+这次难度不高吧，对面全是月癌掏出大钻头对她们使用抱摔</blockquote>
+是麻煩啊，主線的難度一直都是鎖角色再加鎖其他
+
+和BOSS的BUFF都是不能阻止和不能消
+

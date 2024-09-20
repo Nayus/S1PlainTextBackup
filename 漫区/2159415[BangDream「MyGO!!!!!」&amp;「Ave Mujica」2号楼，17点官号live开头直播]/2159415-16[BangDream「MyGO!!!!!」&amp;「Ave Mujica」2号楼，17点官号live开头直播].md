@@ -10349,3 +10349,15 @@ mujica真的有所谓宣发期一说吗</blockquote>从没听说过有
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  skives  
+##### 23144#       发表于 2024-9-20 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66257835&amp;ptid=2159415" target="_blank">adcdqre 发表于 2024-9-20 16:52</a>
+到时候散伙也没什么损失
+
+  -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+提前做好心理准备 起码不会成为地缚灵<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

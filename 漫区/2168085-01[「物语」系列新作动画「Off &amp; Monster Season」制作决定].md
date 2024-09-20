@@ -554,3 +554,13 @@ mv看笑了家人们<img src="https://static.saraba1st.com/image/smiley/face2017
 <img src="https://p.sda1.dev/19/d716319afeefefb0fe60cae7a7973671/story_3686_photo_1726740350330834680.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/19/7bee9c75212bf740d3d5d95218349539/story_3686_photo_1726740350547636562.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  JackTitor  
+##### 910#       发表于 2024-9-20 17:00
+
+原来还没更完，没关注消息一口气看完了，要等更新了<img src="https://static.saraba1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

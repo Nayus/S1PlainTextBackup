@@ -10224,3 +10224,53 @@ RPG游戏剧本还能跟跑图分开？你剧本的故事里必定发生在某�
 
 幻焰计划这种大主线在具体到一部作品里只能作为暗线存在，根本不是影响一部作品好坏的主要要素，爱什么时候填就什么时候填，填了也不会让作品加分。
 
+
+*****
+
+####  ravend233  
+##### 5470#       发表于 2024-9-20 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66257829&amp;ptid=2160194" target="_blank">仲可怀 发表于 2024-9-20 16:51</a>
+
+黎轨1明确就有三角同性恋情
+
+菲莉……勉强算黑皮？</blockquote>
+黎轨这套属于你法社惯例搞点新潮的东西（）
+
+*****
+
+####  ravend233  
+##### 5471#       发表于 2024-9-20 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66257784&amp;ptid=2160194" target="_blank">Mchaos 发表于 2024-9-20 16:47</a>
+
+不是开发独占而是没能力同时推出多平台只好选择一个自家受众最多的、自家渠道最熟的先上，法社倒是想独占 ...</blockquote>
+就是选平台的问题，YSX说明你法可能有能力做到NS+PS双平台首发，只是不知道后续作品还能不能做到，如果做不到那你法社面向新用户的游戏大概率都会以NS为准了，就像空RE
+
+
+*****
+
+####  卢迪克  
+##### 5472#       发表于 2024-9-20 17:01
+
+他应该考虑pc
+
+*****
+
+####  ravend233  
+##### 5473#       发表于 2024-9-20 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66257954&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-20 17:01</a>
+
+他应该考虑pc</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能你法对PC有心理阴影吧（）真要是最适合的确实是PC+NS双平台，PS丢了得了
+
+*****
+
+####  maojiashu  
+##### 5474#       发表于 2024-9-20 17:05
+
+此一时彼一时
+
+现在的pc市场和当年已经不同了 可惜法老控还没看明白
+

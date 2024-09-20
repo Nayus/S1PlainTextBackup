@@ -564,3 +564,15 @@ mv看笑了家人们<img src="https://static.saraba1st.com/image/smiley/face2017
 
 —— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  double8  
+##### 911#       发表于 2024-9-20 22:39
+
+<blockquote>上杉打老虎 发表于 2024-9-18 14:28
+喷了，以“西老师，忍野忍到底有几个前男友呀？”的心态一路看下来，结果第8话结尾唐突”いい女同士“
+
+被狠 ...</blockquote>
+阿，居然还真的有被动画骗到的吗……主要这个被剧透起来太方便了
+

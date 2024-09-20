@@ -860,3 +860,11 @@ FE玩家和非FE玩家的区别真的不大，无非就是怎么看白野的自�
 
 奏3写的像轨迹，大家都是熟人见到白野必须聊两句再感叹一下白野真棒
 
+
+*****
+
+####  cenhr  
+##### 14690#       发表于 2024-9-20 22:54
+
+NMD最后还是要搞失忆<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+

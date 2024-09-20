@@ -10918,3 +10918,20 @@ MD学妹胸部黑丝都要爆出来了，给我去掉胸部装甲啊
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  flyingover  
+##### 5535#       发表于 2024-9-20 22:51
+
+盟主不放cv是因为跟妮娜同一个吗？
+
+*****
+
+####  Squall25  
+##### 5536#       发表于 2024-9-20 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66260871&amp;ptid=2160194" target="_blank">flyingover 发表于 2024-9-20 22:51</a>
+盟主不放cv是因为跟妮娜同一个吗？</blockquote>
+盟主是不固定cv
+

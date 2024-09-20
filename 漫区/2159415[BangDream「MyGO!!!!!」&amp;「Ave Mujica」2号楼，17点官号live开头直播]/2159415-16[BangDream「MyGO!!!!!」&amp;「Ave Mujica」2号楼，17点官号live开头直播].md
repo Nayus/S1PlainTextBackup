@@ -10458,3 +10458,32 @@ wsd这是什么行为艺术吗<img src="https://static.saraba1st.com/image/smile
 
 鸡腿还是买的太多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 23156#       发表于 2024-9-20 22:54
+
+<img src="https://p.sda1.dev/19/ee71abbd2439281f589d821d7feb5d8b/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 23157#       发表于 2024-9-20 22:57
+
+宣传期是皇族推的谎言
+
+mygo活动始动不到一周就有角色翻唱，四个月就有小动画，八个月有广播，一年左右官宣动画化，一年零两个月就播tv动画了
+
+也没见人说过什么宣传期，mygo的宣传期从出生起就开始了而且一直没停所以不好拿来说事是吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+反观mujica迟迟不动就有人出来贷款宣传期了，从23年11月开始贷款说要趁热打铁推mygo你们mujica等之后的宣传期吧，贷款到1月的1st，还信誓旦旦说什么没东西就跟你们一起骂武士道，然后1st一过人就人间蒸发了
+
+更好笑的是贷款mujica宣传期贷出来的是mygo的剧场版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+在这之后贷款也没停过，总之就是不许骂武士道我就是要帮你们mujica推贷款
+
+当然也不能说根本没宣传期这种东西，新作动画确实需要集中宣传也确实会有大量放出情报的时候，但我寻思皇族强迫洗脚贷款自己会有资源的那就是另一码事了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+怎么想都觉得很多人口中的所谓宣传期就是用来捂嘴的话术
+

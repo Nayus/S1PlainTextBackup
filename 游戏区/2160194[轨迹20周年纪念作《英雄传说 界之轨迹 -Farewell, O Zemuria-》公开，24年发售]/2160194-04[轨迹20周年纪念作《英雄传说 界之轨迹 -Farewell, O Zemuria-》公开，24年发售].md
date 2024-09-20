@@ -10563,3 +10563,81 @@ ns这装机量也见不到什么首周实体过10w的第三方新ip了，还是p
 
 跳舞来了，舞动菲莉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 5501#       发表于 2024-9-20 20:37
+
+dlc好丑。
+
+*****
+
+####  椎名mahuyo  
+##### 5502#       发表于 2024-9-20 20:37
+
+还好最丑那几个立绘不会加入 你让我每次打开菜单就看一次我受不了
+
+*****
+
+####  冰寒之月  
+##### 5503#       发表于 2024-9-20 20:38
+
+感觉兔女郎装不如上一作赛车女郎装好看
+
+*****
+
+####  ravend233  
+##### 5504#       发表于 2024-9-20 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66259738&amp;ptid=2160194" target="_blank">Esoterica 发表于 2024-9-20 20:29</a>
+所以说妮娜演的角色手上拿的剑和白衣服面具人是同款？</blockquote>
+看起来是，尼娜演的应该是希娜，加上用双刀的疑似大君，所以面具人是什么历史英灵是吧（）
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  windtrack_qh  
+##### 5505#       发表于 2024-9-20 20:38
+
+<img src="https://img.saraba1st.com/forum/202409/20/203844rv4p4gxv2m7n6xkn.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1726835917301.png</strong> (289.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-20 20:38 上传
+
+还不买DLC<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 5506#       发表于 2024-9-20 20:39
+
+ 本帖最后由 ravend233 于 2024-9-20 20:40 编辑 
+
+兔女郎真没意思吧，还不如去回廊抽黎2的赛车女郎<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">兔女郎太多了是真看腻了，也没啥很特别的设计
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  卢迪克  
+##### 5507#       发表于 2024-9-20 20:41
+
+有pv吗。
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 5508#       发表于 2024-9-20 20:45
+
+把历史人物当一次性boss还挺好的，特别好用的工具人。
+
+历史人物本身就有一定逼格，和主线不强相关，出场也不用铺垫，弄死了对后续剧情也没太大影响。
+
+不过像李鬼2当作主线最终boss，因为和主线不相关的特征，就有一种“就这”的感觉。
+

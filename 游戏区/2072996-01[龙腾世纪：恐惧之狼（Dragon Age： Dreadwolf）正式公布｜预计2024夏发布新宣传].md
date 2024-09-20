@@ -438,3 +438,17 @@ PC党也不要指望mod了，当初玩DAI两百个小时算重度mod患者，但
 
 <img src="https://img.saraba1st.com/forum/202409/21/020242cpxciptjdmh33za4.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ak123  
+##### 556#       发表于 2024-9-21 06:55
+
+ 本帖最后由 ak123 于 2024-9-21 06:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66261990&amp;ptid=2072996" target="_blank">风烛尘香 发表于 2024-9-21 02:04</a>
+
+PC党也不要指望mod了，当初玩DAI两百个小时+重度mod患者，DAI哪怕是mod社区已经相对稳定的大后期，队友mod ...</blockquote>
+而且da4的队友你不想和他们搞也没用，系统会指定他们自己内部搞起来逼你看lgbt小剧场<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+比如已经确定牛头和前代的哈丁就是系统内定的
+

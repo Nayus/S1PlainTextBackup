@@ -640,3 +640,14 @@ byd喜欢FE能不能滚去填FEX的坑啊<img src="https://static.saraba1st.com/
 
 不是，ssy这个宝具改的什么东西，lxg有病吧
 
+
+*****
+
+####  alucardcz  
+##### 14670#       发表于 2024-9-20 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66259030&amp;ptid=2084912" target="_blank">angelooo 发表于 2024-9-20 18:56</a>
+
+不是，ssy这个宝具改的什么东西，lxg有病吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">最意义不明的改模
+

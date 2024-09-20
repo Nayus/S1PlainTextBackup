@@ -10410,3 +10410,12 @@ mujica真的有所谓宣发期一说吗</blockquote>从没听说过有
 
 火立绘都能出，风立绘有什么不能出的
 
+
+*****
+
+####  cherryjia12  
+##### 23151#       发表于 2024-9-20 19:14
+
+go总集篇居然有新歌
+[pv3](https://youtu.be/XSt7J-t-kk8?si=X7l0f54yAG9oCYBQ)
+

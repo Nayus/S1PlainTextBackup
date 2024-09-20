@@ -10308,3 +10308,14 @@ hgm中之人简直就跟hgm一样活泼
 现在就看动画质量了
 动画质量不行 靠wsd运营提高人气的概率为零
 
+
+*****
+
+####  御幸一也  
+##### 23140#       发表于 2024-9-20 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66256852&amp;ptid=2159415" target="_blank">相坂君 发表于 2024-9-20 15:28</a>
+
+我忽然想起，最开始mijica动画延期的时候，就有人说鸡在让狗剧场版，那时候可多人反驳了，不认为是鸡让狗 ...</blockquote>
+皇族是這樣的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

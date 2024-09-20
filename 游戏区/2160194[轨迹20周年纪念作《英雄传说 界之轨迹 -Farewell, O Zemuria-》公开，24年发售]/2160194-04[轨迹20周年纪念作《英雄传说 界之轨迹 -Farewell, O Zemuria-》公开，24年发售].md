@@ -9980,3 +9980,58 @@ fc也是竹入一番，重置算共事吗
 
 至于轨，不会现在还有人觉得你法社是在全力做界轨吧（）
 
+
+*****
+
+####  卢迪克  
+##### 5445#       发表于 2024-9-20 16:06
+
+没活了，挤不出一张新图，用黎1的老图。
+
+*****
+
+####  ravend233  
+##### 5446#       发表于 2024-9-20 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66257347&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-20 16:06</a>
+
+没活了，挤不出一张新图，用黎1的老图。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这张图至少比界轨封面好看得多不是
+
+*****
+
+####  ggyy0088  
+##### 5447#       发表于 2024-9-20 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66257322&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-20 16:03</a>
+今年年内提前公开了空轨RE和迷城就已经很离谱了，至少确认了两个在研项目，而且都有一定完成度（迷城在公开 ...</blockquote>
+内斗是趴办公桌底下听来的当一乐就完了，但是社内有不怎么想做新轨的情绪确实是近藤说的。
+
+
+*****
+
+####  一步成诗  
+##### 5448#       发表于 2024-9-20 16:10
+
+还说过东迷2才是更应该期待的呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 5449#       发表于 2024-9-20 16:11
+
+ 本帖最后由 卢迪克 于 2024-9-20 16:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66257322&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-20 16:03</a>
+
+今年年内提前公开了空轨RE和迷城就已经很离谱了，至少确认了两个在研项目，而且都有一定完成度（迷城在公开 ...</blockquote>
+明明为了蹭p,ax吹桥野桂，印象最深刻的游戏作品是p3，尤其是迷宫，结局van真挂月球就真致敬了<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Oshino  
+##### 5450#       发表于 2024-9-20 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66257322&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-20 16:03</a>
+今年年内提前公开了空轨RE和迷城就已经很离谱了，至少确认了两个在研项目，而且都有一定完成度（迷城在公开 ...</blockquote>
+不做轨迹也要做伊苏，本来就是双线做的，今年新加的是空轨重制。每天跟上班打卡一样在楼里嗯滑坡共振也是把我看傻了，到底什么样的人才能说出村上不负责轨迹了，活在哪个世界里？
+

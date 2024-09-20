@@ -8506,3 +8506,59 @@ B站那里云黎轨2剧情比较好</blockquote>
 —— 来自 S1Fun ...</blockquote>
 我觉得他就是死鸭子嘴硬，反正不能承认是他们选错人了，都是那些不知好歹的臭玩家不懂欣赏大师的精品之作<img src="https://static.saraba1st.com/image/smiley/face2017/164.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一步成诗  
+##### 5305#       发表于 2024-9-20 09:20
+
+单e一个人就算了，多少知名画师到你法这就滑铁卢，你说法老控锅不大我是不信的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  法拉  
+##### 5306#       发表于 2024-9-20 09:20
+
+ 本帖最后由 法拉 于 2024-9-20 09:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66252764&amp;ptid=2160194" target="_blank">Archer长羽 发表于 2024-9-20 09:16</a>
+我觉得他就是死鸭子嘴硬，反正不能承认是他们选错人了，都是那些不知好歹的臭玩家不懂欣赏大师的精品之作 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">haccan和toi8也干了，换掉e圣下一个还是会选错的
+不管近藤什么高级审美，你法的制作体制注定只能培养社内画师，所以我说近藤说不定在口嗨，这点他只会比谁都懂
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  卢迪克  
+##### 5307#       发表于 2024-9-20 09:21
+
+<blockquote>Aeons 发表于 2024-9-20 09:08
+没人聊新的序章演示吗</blockquote>
+有够水的，没什么料。
+
+
+*****
+
+####  出言不迅  
+##### 5308#       发表于 2024-9-20 09:22
+
+<blockquote>迷雾塔 发表于 2024-9-20 09:12
+听到这样的实情，不得不这样想。与其放任品质下滑，为什么不赶快趁着还有余力，集中一次全社之力，做到最 ...</blockquote>
+不要什么艺术性这种高度，一个精良的完结篇就行了，音画体验上一上台阶，在可以结束的地方结束，不再挖坑，以前的大坑填一填，给老玩家有个交代。
+
+上面都是我做梦的
+
+*****
+
+####  ravend233  
+##### 5309#       发表于 2024-9-20 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66252810&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-20 09:20</a>
+
+单e一个人就算了，多少知名画师到你法这就滑铁卢，你说法老控锅不大我是不信的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">工期紧工作量大，谁来都一样，E大师只是画风不适合导致这个问题被进一步放大了
+
+你法社想靠外包那起码得提前一年做好决定开始约稿，不然时间怎么都不够，界轨看起来是今年年初才开始约稿的，伊苏10估计也是很晚才准备好找外包
+
+这种没活了就临时拖你轨出来顶一年的做法除了压榨社内画师还真没哈办法
+

@@ -10428,3 +10428,13 @@ ns这装机量也见不到什么首周实体过10w的第三方新ip了，还是p
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  椎名mahuyo  
+##### 5491#       发表于 2024-9-20 19:45
+
+法老控想上pc真不难，招几个移植pc的人就行。他招嘛？不招，不然没黑字了，pc移植当然是白嫖代理商的
+
+—— 来自 realme RMX3708, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -14,3 +14,12 @@
 
 没有想到可以得到福田的点赞，不过我多次回复，我想福田应该是知道我喜欢的是哪一个角色？希望今天的活动还有特别版，哪怕只有一点点都是好的
 
+
+*****
+
+####  gundammarkⅡ  
+##### 1951#       发表于 2024-9-20 11:49
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/338.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/d461f11bb693e6c5d32cc5e16ad2a492/image.jpg" referrerpolicy="no-referrer">
+

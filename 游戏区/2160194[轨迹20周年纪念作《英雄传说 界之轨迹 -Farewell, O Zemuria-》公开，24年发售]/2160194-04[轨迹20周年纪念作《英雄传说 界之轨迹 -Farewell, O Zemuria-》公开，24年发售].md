@@ -9288,3 +9288,22 @@ e大师是能画好女人的。我只觉得f社钱没给到位<img src="https://
 
 刚开始我还以为是黎界两部完结共和国篇 黎2是给伊苏10让位置硬整的 现在看上去还有个界2 这黎2都不能拿伊苏洗了<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Squall25  
+##### 5379#       发表于 2024-9-20 11:47
+
+黎2确实是给伊苏10延期垫上来的，界轨今年也是给其他游戏垫档期的。没有毛病的，轨迹现在就是这个待遇。
+
+
+*****
+
+####  一步成诗  
+##### 5380#       发表于 2024-9-20 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66254558&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-20 11:42</a>
+
+竹入：伊苏不归我管，迷城看起来被近藤那小子丢给可恶的小登了，轨写完了那我上哪发号施令呢，这可不得行 ...</blockquote>
+所以现在社内都没人想做轨竹入全责吧，是不是哪里得罪村上了导致人一张都不给你界轨画<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

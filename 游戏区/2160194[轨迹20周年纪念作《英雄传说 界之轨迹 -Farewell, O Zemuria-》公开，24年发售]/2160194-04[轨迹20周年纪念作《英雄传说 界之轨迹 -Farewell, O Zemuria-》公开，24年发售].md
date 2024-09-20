@@ -10416,3 +10416,15 @@ ns这装机量也见不到什么首周实体过10w的第三方新ip了，还是p
 
 他自己又不发行海外版，销量多高他又不在乎。要本土pc销量起来才行。就跟18年说伊苏8ns版海外版销量超出预期，但本土销量低于预期，继续首发出ps版一样
 
+
+*****
+
+####  Mchaos  
+##### 5490#       发表于 2024-9-20 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66259249&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-20 19:24</a>
+他自己又不发行海外版，销量多高他又不在乎。要本土pc销量起来才行。就跟18年说伊苏8ns版海外版销量超出预 ...</blockquote>
+在日本有ps5的包有ns啊，不能这么算<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

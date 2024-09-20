@@ -876,3 +876,41 @@ NMD最后还是要搞失忆<img src="https://static.saraba1st.com/image/smiley/f
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">这霸王花既然是藤蔓假扮的那怎么还会被黑霸王花的嘴炮攻击给说破防啊....骂的又不是她自己
 
+
+*****
+
+####  eilot  
+##### 14692#       发表于 2024-9-20 23:28
+
+BOSS連戰...
+
+由笨公主開始都是BOSS戰
+
+*****
+
+####  cenhr  
+##### 14693#       发表于 2024-9-20 23:30
+
+TMD boss战不是问题，还要锁锁锁锁NM<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 14694#       发表于 2024-9-20 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66261198&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-9-20 23:30</a>
+
+TMD boss战不是问题，还要锁锁锁锁NM</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有几关能让你借好友还不感恩戴德！
+
+*****
+
+####  cenhr  
+##### 14695#       发表于 2024-9-20 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66261234&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-9-20 23:34</a>
+
+有几关能让你借好友还不感恩戴德！</blockquote>
+垃圾限制+垃圾难度+垃圾故事，感觉血压都要爆了<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+

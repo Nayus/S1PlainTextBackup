@@ -2012,3 +2012,13 @@ We are looking at resolving this asap.
 有一种古代树 雨夜 钢龙的美
 机器人这锁敌和刷怪真的太生草了
 
+
+*****
+
+####  风萧飒  
+##### 5435#       发表于 2024-9-20 08:27
+
+看到解包现在核弹的范围是350m，有点离谱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

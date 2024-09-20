@@ -120,3 +120,20 @@ Dragon Age: The Veilguard | Hands-on previews:</blockquote>
 
 GOTY！GOTY！
 
+
+*****
+
+####  tybtxt  
+##### 529#       发表于 2024-9-20 08:31
+
+之前看视频生软接受采访的员工是个金色长发的变性胖大姐，BUFF叠满，我对这游戏已经完全没期待了。
+
+*****
+
+####  qumkml423  
+##### 530#       发表于 2024-9-20 08:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66252290&amp;ptid=2072996" target="_blank">ultraseven 发表于 2024-9-20 08:25</a>
+这很常规了</blockquote>
+宣发词这么弱智，难怪会有对比rdr2被锤得体无完肤的视频。
+

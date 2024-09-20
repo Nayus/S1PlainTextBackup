@@ -10613,3 +10613,31 @@ mygo活动始动不到一周就有角色翻唱，四个月就有小动画，八�
 
 只能说鸡的运营 脑回路不太正常
 
+
+*****
+
+####  sadakawa  
+##### 23169#       发表于 2024-9-21 03:42
+
+因为明天要去看演唱会所以这两天突击补习了这部动画，之前从来没有接触过邦邦
+
+看到最后好想吐槽这个衣品好差劲
+
+话说这个乐队算是主角团的竞品吗（）
+
+<img src="https://img.saraba1st.com/forum/202409/21/034207vqk4ii5mi40iqe3h.jpg" referrerpolicy="no-referrer">
+
+<strong>[Nekomoe kissaten][BanG Dream! It’s MyGO!!!!!][13][1080p][JPSC][00-15-40][20240.jpg</strong> (204.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-21 03:42 上传
+
+<img src="https://img.saraba1st.com/forum/202409/21/034207g91oojyr5ce3yjko.jpg" referrerpolicy="no-referrer">
+
+<strong>[Nekomoe kissaten][BanG Dream! It’s MyGO!!!!!][13][1080p][JPSC][00-15-55][20240.jpg</strong> (178.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-21 03:42 上传
+

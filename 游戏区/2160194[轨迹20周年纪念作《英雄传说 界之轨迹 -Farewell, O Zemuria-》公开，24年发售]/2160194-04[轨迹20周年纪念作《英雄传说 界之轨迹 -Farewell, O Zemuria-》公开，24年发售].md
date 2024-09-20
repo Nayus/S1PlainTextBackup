@@ -10641,3 +10641,32 @@ dlc好丑。
 
 不过像李鬼2当作主线最终boss，因为和主线不相关的特征，就有一种“就这”的感觉。
 
+
+*****
+
+####  Aeons  
+##### 5509#       发表于 2024-9-20 20:51
+
+大招有点挫
+
+*****
+
+####  悠悠你心  
+##### 5510#       发表于 2024-9-20 20:52
+
+菲莉这dlc我实在憋不住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有点少儿不宜了
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  八佾舞于潭  
+##### 5511#       发表于 2024-9-20 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66259859&amp;ptid=2160194" target="_blank">Dai-Dai-Dai-Dai 发表于 2024-9-20 20:45</a>
+
+把历史人物当一次性boss还挺好的，特别好用的工具人。
+
+历史人物本身就有一定逼格，和主线不强相关，出场也 ...</blockquote>
+所以魂系给我一种剧情层面的所见即所得的高级感，开头播片PPT英雄走秀造历史，打到后期一个个都可以切磋
+

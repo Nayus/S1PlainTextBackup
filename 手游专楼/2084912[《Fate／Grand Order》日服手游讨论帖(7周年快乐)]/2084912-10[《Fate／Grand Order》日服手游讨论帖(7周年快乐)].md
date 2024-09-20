@@ -682,3 +682,31 @@ byd喜欢FE能不能滚去填FEX的坑啊<img src="https://static.saraba1st.com/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">打完了 才22节  剧情没看 有没有人说说写的如何 写的好我从头开始看起
 
+
+*****
+
+####  森兰丸  
+##### 14675#       发表于 2024-9-20 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66259779&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-9-20 20:34</a>
+
+打完了 才22节  剧情没看 有没有人说说写的如何 写的好我从头开始看起</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么些出场角色不就是看萌新对FEX的兴趣如何了么....期间还穿插了一小段月姬的
+
+*****
+
+####  森兰丸  
+##### 14676#       发表于 2024-9-20 20:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">所以A区域一开始的海之大天使是谁啊
+
+*****
+
+####  alucardcz  
+##### 14677#       发表于 2024-9-20 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66259892&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-9-20 20:50</a>
+
+这么些出场角色不就是看萌新对FEX的兴趣如何了么....期间还穿插了一小段月姬的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">毫无兴趣  所以等个总结
+

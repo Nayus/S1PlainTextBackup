@@ -9230,3 +9230,61 @@ e大师是能画好女人的。我只觉得f社钱没给到位<img src="https://
 新篇最怕就是黑月，黎1汉密尔顿说关于大陆东部的诸多事情就万事拜托了，吉恩。 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">轨批的最终结局就是成为曹粉，加入曹粉吧
 
+
+*****
+
+####  RAMDA  
+##### 5373#       发表于 2024-9-20 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66253001&amp;ptid=2160194" target="_blank">迷雾塔 发表于 2024-9-20 09:38</a>
+
+一定能实现你心愿！我觉得完结篇，讨到社里更多的资源是能做到的，不可能不精良，宣发可能也会上来。只是 ...</blockquote>
+只要不死透了，近藤就会觉得还能接着拖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但是如果死透了，也不会出现你想象中的能“讨到社里更多的资源”的“精良”的完结篇
+
+两难抉择了属于是
+
+
+*****
+
+####  一步成诗  
+##### 5374#       发表于 2024-9-20 11:41
+
+你轨现在就是推一下主线进度要了竹入的命一样，你说黎2没时间太赶做不完不能讲主线ok，结果换了名字还要继续水还能给你水个2部，服气<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 5375#       发表于 2024-9-20 11:42
+
+ 本帖最后由 ravend233 于 2024-9-20 11:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66254546&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-20 11:41</a>
+你轨现在就是推一下主线进度要了竹入的命一样，你说黎2没时间太赶做不完不能讲主线ok，结果换了名字还要继 ...</blockquote>
+竹入：伊苏不归我管，迷城看起来被近藤那小子丢给可恶的小登了，轨写完了那我上哪发号施令呢，这可不得行<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 5376#       发表于 2024-9-20 11:42
+
+同样是年货的炼金出成绩后，感觉falcom也没什么藉口可以说了。
+
+要说有什么不同就是gust被收购了，falcom没有。
+
+*****
+
+####  Squall25  
+##### 5377#       发表于 2024-9-20 11:45
+
+其实我挺欣赏炼金现在的态度的，虽然也就那样。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">然而话又说回来，炼金销量主要背靠光荣能全平台多语言同步而已，要是空r能多语言同步，我认为超过炼金通常的20w总销量是轻而易举的。
+
+*****
+
+####  maojiashu  
+##### 5378#       发表于 2024-9-20 11:45
+
+刚开始我还以为是黎界两部完结共和国篇 黎2是给伊苏10让位置硬整的 现在看上去还有个界2 这黎2都不能拿伊苏洗了<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+

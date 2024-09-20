@@ -277,3 +277,13 @@ atlus你们是忘本了啊<img src="https://static.saraba1st.com/image/smiley/fa
 </blockquote>
 准备把主角命名成马格努森了
 
+
+*****
+
+####  Rainwedell  
+##### 733#       发表于 2024-9-20 11:40
+
+我决定当次凯子，好烂都有乐子，好久都没当阿特斯拉凯子了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

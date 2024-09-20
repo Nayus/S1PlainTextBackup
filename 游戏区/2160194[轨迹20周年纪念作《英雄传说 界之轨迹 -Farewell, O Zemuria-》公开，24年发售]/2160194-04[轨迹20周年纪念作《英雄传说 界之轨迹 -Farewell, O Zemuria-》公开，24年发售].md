@@ -9894,3 +9894,89 @@ fc也是竹入一番，重置算共事吗
 
 不然也很难解释啊，界轨看起来这么烂，既然东迷2也没人在做，那你法员工都去干嘛了，带薪休假吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Oshino  
+##### 5438#       发表于 2024-9-20 15:59
+
+ 本帖最后由 Oshino 于 2024-9-20 16:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66257224&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-20 15:56</a>
+凭人家明年的游戏比你今年的界轨更早开官网，凭你社2d美术唯一顶梁柱村上在负责
+
+不然也很难解释啊，界轨 ...</blockquote>
+所以啊，这么重视，游戏名字知道是什么了？怎么玩，首发哪个平台知道吗？我说进度像新建文件夹一样没说错吧。全社员工在做界轨、空轨重制，东轨2啊，60人公司不是全社在做难道家养小精灵帮做的？
+
+*****
+
+####  一步成诗  
+##### 5439#       发表于 2024-9-20 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66257264&amp;ptid=2160194" target="_blank">Oshino 发表于 2024-9-20 15:59</a>
+
+所以啊，这么重视，游戏名字知道是什么了？怎么玩，首发哪个平台知道吗？我说进度像新建文件夹一样没说错 ...</blockquote>
+行吧那60人做的界轨和没人做的东迷2成品都怎么样大家拭目以待咯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kirbykelin  
+##### 5440#       发表于 2024-9-20 16:02
+
+闪绝对最烂，直接把最后一个有点b格的敌对人物宰相整成了好人，导致从空轨开始的所有铺垫都成了搞笑，气得我后面云都懒得云了。其他脑残剧情更是罄竹难书
+
+黎2从游戏上可能更烂，但闪已经把整个轨迹都废了，后面再出什么奇葩都是合理的<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  卢迪克  
+##### 5441#       发表于 2024-9-20 16:03
+
+<img src="https://img.saraba1st.com/forum/202409/20/160300gs0edq1k72u1qqm5.png" referrerpolicy="no-referrer">
+
+<strong>tgs2024_10(1).png</strong> (95.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-20 16:03 上传
+
+<img src="https://img.saraba1st.com/forum/202409/20/160304b61qbskgkcp0ucek.png" referrerpolicy="no-referrer">
+
+<strong>tgs2024_11(1).png</strong> (159.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-20 16:03 上传
+
+*****
+
+####  Oshino  
+##### 5442#       发表于 2024-9-20 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66257293&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-20 16:01</a>
+行吧那60人做的界轨和没人做的东迷2成品都怎么样大家拭目以待咯</blockquote>
+东轨在法老空眼里就不是什么有价值的ip，不然不会一直无后续，十周年才给点东西的。你看，是村上在画啊，所以一定是顶梁柱这个理由也有够搞笑的
+
+*****
+
+####  aimujie  
+##### 5443#       发表于 2024-9-20 16:03
+
+楼友真能聊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 5444#       发表于 2024-9-20 16:03
+
+ 本帖最后由 ravend233 于 2024-9-20 16:05 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今年年内提前公开了空轨RE和迷城就已经很离谱了，至少确认了两个在研项目，而且都有一定完成度（迷城在公开的时候就完成了主要角色的立绘，那可以相信还有很多前期工作也都已经有一定完成度了）
+
+暂且不说什么办公室政治小道消息，开发资源被分给这两个项目没啥可质疑的吧
+
+在你法社眼里他要的不是当年东京迷城这个IP，是借用世界观想立起一个新的IP
+
+至于轨，不会现在还有人觉得你法社是在全力做界轨吧（）
+

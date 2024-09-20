@@ -392,3 +392,14 @@ atlus为什么不敢放个体验版出来？
 粉毛高清立绘，十分香甜</blockquote>
 这么好看的角色不能处对象可惜了。
 
+
+*****
+
+####  ping117  
+##### 745#       发表于 2024-9-20 23:11
+
+没恋爱系统
+这么自信的吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+这是真做了一个塞尔达出来啊
+

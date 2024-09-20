@@ -868,3 +868,11 @@ FE玩家和非FE玩家的区别真的不大，无非就是怎么看白野的自�
 
 NMD最后还是要搞失忆<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 14691#       发表于 2024-9-20 23:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">这霸王花既然是藤蔓假扮的那怎么还会被黑霸王花的嘴炮攻击给说破防啊....骂的又不是她自己
+

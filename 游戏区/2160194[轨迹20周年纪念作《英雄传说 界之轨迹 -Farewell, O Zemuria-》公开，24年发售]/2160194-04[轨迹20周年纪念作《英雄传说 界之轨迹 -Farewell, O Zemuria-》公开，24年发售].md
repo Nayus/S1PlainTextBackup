@@ -8738,3 +8738,44 @@ B站那里云黎轨2剧情比较好</blockquote>
 
 新画师其实之前讨论的时候感觉最早，创轨ed就是他画的。没人扒是谁挺正常的，之前扒画师的某轨黑现在都不说话了，怀疑退坑了。
 
+
+*****
+
+####  byisme001  
+##### 5328#       发表于 2024-9-20 10:06
+
+一直说用ai的，有人实际拿村上的画炼炼丹看看什么效果吗
+
+*****
+
+####  夜漫群星  
+##### 5329#       发表于 2024-9-20 10:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">作为粉丝没有不想看到越来越好的，但是你法不思进取又能咋办呢，骂又骂不得，很难的啦
+
+
+*****
+
+####  maojiashu  
+##### 5330#       发表于 2024-9-20 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66253226&amp;ptid=2160194" target="_blank">Squall25 发表于 2024-9-20 09:59</a>
+
+还集中全社之力呢，贴吧有个提兰斯的还被你轨迹粉丝嗤之以鼻觉得一个黄油也配和轨迹比殊不知人家一个黄油 ...</blockquote>
+尬吹了 兰斯10不也是个赶工作 91cg 第二部基本没cg 作为完结作这cg量还给了一堆新人
+
+迷宫节奏一塌糊涂 15t那么短的时间事件搞那么紧张 刚开始玩还不能回避一些恶心人的剧情
+
+cp和继承系统更是抽象 抽卡玩法也没啥意思 说句不好听的这就是手/页游的试水作
+
+*****
+
+####  Squall25  
+##### 5331#       发表于 2024-9-20 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66253362&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-9-20 10:10</a>
+尬吹了 兰斯10不也是个赶工作 91cg 第二部基本没cg 作为完结作这cg量还给了一堆新人
+
+迷宫节奏一塌糊涂 15 ...</blockquote>
+那么你轨一定能轻而易举做出来一部完结作品有兰斯10这个水平吧<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">肯定不是像这样卑微到楼里一堆人希望别像黎2那样就谢天谢地了吧，出一部完结作结束轨迹一定轻而易举吧，还是说我们轨迹剧情和世界观太庞大了以至于要连着出灌水作品酝酿一下。
+

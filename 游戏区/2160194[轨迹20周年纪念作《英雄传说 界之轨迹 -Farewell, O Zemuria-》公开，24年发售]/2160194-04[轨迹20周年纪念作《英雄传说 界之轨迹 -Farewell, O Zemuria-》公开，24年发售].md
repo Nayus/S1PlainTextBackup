@@ -9802,3 +9802,35 @@ fc也是竹入一番，重置算共事吗
 
 其实想想确实是这样，闪是村上负责立绘，就是说从原案设计到立绘成图都需要直接和竹入沟通，至于空轨重制照着老立绘重画就行了哪需要和竹入说话<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Oshino  
+##### 5428#       发表于 2024-9-20 15:40
+
+现在村上都成法老空山大王了，村上自己知道这个事吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">黎1里她画了ed图，黎2的特典图，轨迹20周年十几号人出纪念图每个人至少两套动作，各种周边图也一直在出。脑补法老空办公室斗争比吹法老空重视东京迷城2那新建文件夹进度一样的游戏还搞笑
+
+*****
+
+####  Aeons  
+##### 5429#       发表于 2024-9-20 15:40
+
+村上也不是没参与黎轨啊，cg和人物设计
+
+
+*****
+
+####  ggyy0088  
+##### 5430#       发表于 2024-9-20 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66257020&amp;ptid=2160194" target="_blank">Oshino 发表于 2024-9-20 15:40</a>
+现在村上都成法老空山大王了，村上自己知道这个事吗黎1里她画了ed图，黎2的特典图，轨迹20周年十几号人出纪 ...</blockquote>
+近年真正的斗还是出在sound team jdk和jdk band上，结局就是冈岛小寺和法社一拍两散，水谷后期也退出jdk，小红专心网管，大家都只能欣赏realme大师的鸡叫。
+
+*****
+
+####  一步成诗  
+##### 5431#       发表于 2024-9-20 15:45
+
+说八卦搞笑我没意见，你法现在重视东迷2不是有个眼睛的都能看出来？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

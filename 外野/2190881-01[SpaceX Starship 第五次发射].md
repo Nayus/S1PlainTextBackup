@@ -73,3 +73,27 @@ B12再次推出，即将前往发射台A继续测试。
 —— 来自 鹅球 v3.1.88.3-alpha ...</blockquote>
 承力是加强筋附近2个挂耳  不论有没有加强筋 都只有这一个角度能筷子回收  图2顶上中间那个就是挂耳 
 
+
+*****
+
+####  commcody  
+##### 58#         楼主| 发表于 2024-9-20 13:09
+
+B12和它的热分离环一同启程前往发射台A。
+
+<img src="https://img.saraba1st.com/forum/202409/20/130837z28ki3i3w8aeed26.png" referrerpolicy="no-referrer">
+
+<strong>watermarked.png</strong> (1.4 MB, 下载次数: 0)
+
+下载附件
+
+2024-9-20 13:08 上传
+
+<img src="https://img.saraba1st.com/forum/202409/20/130901tr8a128tmmm8rcb0.jpg" referrerpolicy="no-referrer">
+
+<strong>imag.jpg</strong> (280.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-20 13:09 上传
+

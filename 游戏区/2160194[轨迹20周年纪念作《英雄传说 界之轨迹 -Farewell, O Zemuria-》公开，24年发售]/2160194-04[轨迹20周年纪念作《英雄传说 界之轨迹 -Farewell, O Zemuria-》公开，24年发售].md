@@ -9484,3 +9484,69 @@ e大师是能画好女人的。我只觉得f社钱没给到位<img src="https://
 
 —— 来自 HUAWEI ALT-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  未熟串烧  
+##### 5396#       发表于 2024-9-20 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66255305&amp;ptid=2160194" target="_blank">菟原手兒奈 发表于 2024-9-20 12:51</a>
+虽然这立绘丑完了
+
+不过我是一直不理解很纠结立绘的人，现在完全3D化，对话也是用3D建模的头像了，整个游戏 ...</blockquote>
+除开个人体验，就是操心卖相呗。
+至少有破晓莱莎两个例子证明卖相好是有机会破圈的，继续用enami至少在卖相方面机会是零（
+
+*****
+
+####  sz19860225  
+##### 5397#       发表于 2024-9-20 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66255305&amp;ptid=2160194" target="_blank">菟原手兒奈 发表于 2024-9-20 12:51</a>
+虽然这立绘丑完了
+
+不过我是一直不理解很纠结立绘的人，现在完全3D化，对话也是用3D建模的头像了，整个游戏 ...</blockquote>
+因为发售前除了2d人设没东西可骂，等游戏出了能骂的东西就多了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  欧金金  
+##### 5398#       发表于 2024-9-20 13:13
+
+话说你轨下限是闪2还是黎2？
+
+*****
+
+####  ravend233  
+##### 5399#       发表于 2024-9-20 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66255305&amp;ptid=2160194" target="_blank">菟原手兒奈 发表于 2024-9-20 12:51</a>
+虽然这立绘丑完了
+
+不过我是一直不理解很纠结立绘的人，现在完全3D化，对话也是用3D建模的头像了，整个游戏 ...</blockquote>
+因为这次好像进入菜单首页就有立绘看了，所以超过了1%<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  ravend233  
+##### 5400#       发表于 2024-9-20 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66255490&amp;ptid=2160194" target="_blank">欧金金 发表于 2024-9-20 13:13</a>
+话说你轨下限是闪2还是黎2？</blockquote>
+也可能是下周的界轨<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  倪哥干你  
+##### 5401#       发表于 2024-9-20 13:15
+
+必然是闪 黎2动捕和过场+结局舞没法黑
+

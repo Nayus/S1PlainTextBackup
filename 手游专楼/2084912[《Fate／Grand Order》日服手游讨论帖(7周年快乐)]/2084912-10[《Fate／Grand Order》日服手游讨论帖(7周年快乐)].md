@@ -784,3 +784,44 @@ byd喜欢FE能不能滚去填FEX的坑啊<img src="https://static.saraba1st.com/
 我也没玩过所以完全无感 考虑直接跳了算了</blockquote>
 我比较喜欢白樱，所以BB无感<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TheLoof  
+##### 14685#       发表于 2024-9-20 22:06
+
+ 本帖最后由 TheLoof 于 2024-9-20 22:10 编辑 
+
+虽然你分了四期还水了整整三期
+
+虽然一提到FE相关设定还是那熟悉的意义不明的民科味
+
+但是还是要给好评
+
+这个FE联动收官收得太好了，已经是我当年在被子里抱着PSP啃FE、CCC生肉到现在，难得的又快乐又欣慰的FE后续内容了
+
+fex和extella终究是硬续，铁鱼让我看见fe就脑壳痛
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+所以为什么明明可以写大家都快乐的联动，但是魔夜写的跟发癫一样
+
+哦不对，这次还是有受害者的，对吧，某知名工具搞笑役咖喱学姐
+
+月姬角色全部等着下次联动吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TheLoof  
+##### 14686#       发表于 2024-9-20 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66260200&amp;ptid=2084912" target="_blank">angelooo 发表于 2024-9-20 21:27</a>
+
+隔壁看了一段白野和BB告别的翻译，楼下一群人说好感动，但我一点感觉都没有……难道是因为我没玩过FE的缘 ...</blockquote>
+不，你玩过也不一定会有感觉
+
+这是CCC爱好者，还得是樱type爱好者才能get到的东西
+
+我这种当年玩CCC只觉得这傻逼矫情AI我只想给他一拳的，就完全不会有感动
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

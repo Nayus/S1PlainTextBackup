@@ -359,3 +359,25 @@ atlus为什么不敢放个体验版出来？
 
 <img src="https://p.sda1.dev/19/3e659d1c9eccc8dde18860ed959f010d/GWINiQsWgAEed6q.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ナルバレック  
+##### 742#       发表于 2024-9-20 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66258432&amp;ptid=2140224" target="_blank">抽烟的猴 发表于 2024-9-20 17:47</a>
+
+没事，加速做p4gr可破</blockquote>
+顺位在1代和2代后面呢，今年内还看不到
+
+*****
+
+####  抽烟的猴  
+##### 743#       发表于 2024-9-20 22:24
+
+<blockquote>哎哟卧槽了 发表于 2024-9-20 22:01
+當然是做P4R，G版請再給一次錢
+
+—— 來自 Google Pixel 2, Android 11上的 S1Next-鵝版 v2.1.2 ...</blockquote>
+不要说这么直白
+

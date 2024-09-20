@@ -254,3 +254,16 @@ atlus你们是忘本了啊<img src="https://static.saraba1st.com/image/smiley/fa
 
 今天日记那个修女粉毛妹子还挺好看的，感觉藏得npc还挺多的
 
+
+*****
+
+####  哎哟卧槽了  
+##### 731#       发表于 2024-9-20 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66252202&amp;ptid=2140224" target="_blank">Linsdy 发表于 2024-9-20 08:02</a>
+
+我预购了，能不能别褒姒，今年下半年就期待这一个游戏了
+
+—— 来自 OnePlus PHK110, Android 13上的 S1Nex ...</blockquote>
+一个大家都觉得肯定有皇家版的游戏，不褒姒有难度<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

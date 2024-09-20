@@ -9008,3 +9008,58 @@ cp和继承系统更是抽象 抽卡玩法也没啥意思 说句不好听的这�
 就兰斯这个世界观 大纲之外 ...</blockquote>
 我如果没记错的话，兰斯10完结这个事情是兰斯6就确定好的。兰斯10最大的影响明显是砍了天界篇和恶魔篇。有大纲和确定完结篇这个事情都是轨迹没有的，而不是说兰斯本身干嘛干嘛
 
+
+*****
+
+####  smdzh2  
+##### 5354#       发表于 2024-9-20 10:43
+
+你法一年一作保证黑字的体制不改说什么都没用，唯一出路是干掉加藤然后投靠跨国大企业<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/d30c93c3bf9455e9679e7c0739fbffe5/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  maojiashu  
+##### 5355#       发表于 2024-9-20 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66253723&amp;ptid=2160194" target="_blank">Squall25 发表于 2024-9-20 10:37</a>
+
+我如果没记错的话，兰斯10完结这个事情是兰斯6就确定好的。兰斯10最大的影响明显是砍了天界篇和恶魔篇。 ...</blockquote>
+这个兰斯6就确定兰斯10完结我没听过
+
+现在不比当年了 完结掉一个赚钱的ip选择去开一个新ip不单要有魄力还要非常自信
+
+轨迹明显是有大纲的 只是法老控舍不得完结掉 只能不停的往中间塞东西
+
+反正公司这东西就看财报 如果不赚钱了砍的比谁都快 玩家说啥都没用。 反之有人买他就出也没毛病吧
+
+*****
+
+####  迷雾塔  
+##### 5356#       发表于 2024-9-20 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66253612&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-20 10:29</a>
+那就出里恩传和新的南通游戏吧，卖女人是没有前途的，还得卖男人赚女人钱口牙 ...</blockquote>
+如何卖女人没有前途<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sz19860225  
+##### 5357#       发表于 2024-9-20 10:47
+
+你轨还碰瓷上兰斯了，人家是日本黄油goat，你轨作为jrpg都被能炼金工坊超车踩头，再不拿空轨出来当速效救心丸连销量都要被兰斯X爆了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Squall25  
+##### 5358#       发表于 2024-9-20 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66253840&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-9-20 10:46</a>
+这个兰斯6就确定兰斯10完结我没听过
+
+现在不比当年了 完结掉一个赚钱的ip选择去开一个新ip不单要有魄力还 ...</blockquote>
+轨迹现在绝对是没大纲的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">我认为闪3以前轨迹是有大纲的，之后就一言难尽了。当然这个东西争起来就没意思了。甚至说共和国篇我认为都是现编居多。法老控所谓的大纲可能就是想了下这个世界是啥，女神是啥，至于中间的过程在哪里，要干嘛，绝对是没有的。至少我认为采访这种按道理不会露怯，任由近藤胡说的地方，近藤都能口嗨出一堆问题，足见大纲大概率是没有的。
+

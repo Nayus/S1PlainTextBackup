@@ -9550,3 +9550,14 @@ e大师是能画好女人的。我只觉得f社钱没给到位<img src="https://
 
 必然是闪 黎2动捕和过场+结局舞没法黑
 
+
+*****
+
+####  古畑任三郎2015  
+##### 5402#       发表于 2024-9-20 13:28
+
+我见识少，闪2应该是我玩过的第二款品出打击感的回合制jrpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以心中份量还是有的
+至于黎2嘛…
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

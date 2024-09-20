@@ -9197,3 +9197,25 @@ e大师是能画好女人的。我只觉得f社钱没给到位<img src="https://
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Squall25  
+##### 5370#       发表于 2024-9-20 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66254157&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-9-20 11:10</a>
+你要我说 那就是空轨之后才开始编的大纲 而且只是个大背景 连具体事件都是每作直接现编+前作的事件组合
+
+ ...</blockquote>
+所以结果就没说错啊<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">轨迹就是无大纲和不确定完结篇的情况，被我说不是应该的，就算不拿什么路边的黄油举例也一样。不过没关系，结果上只会如你所说的那样，销量低自然给法老控上压力了，相信界轨不会让我们失望。静待26年的界2咯。
+
+*****
+
+####  卢迪克  
+##### 5371#       发表于 2024-9-20 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66254140&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-20 11:08</a>
+
+新篇大卖了那给你拖四五部也不是不可能</blockquote>
+新篇最怕就是黑月，黎1汉密尔顿说关于大陆东部的诸多事情就完事拜托了，吉恩。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

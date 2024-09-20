@@ -693,3 +693,11 @@ kite味挺足的，感觉应该比弁魔士好看点吧
 
 有哪次期待过剧情的呢，不都是冲着人设作画cut味去的吗
 
+
+*****
+
+####  失落之翼  
+##### 77#       发表于 2024-9-20 11:21
+
+梅津对胃口+1，三部曲一直存着<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

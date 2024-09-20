@@ -2066,3 +2066,11 @@ We are looking at resolving this asap.
 <img src="https://p.sda1.dev/19/7755c9e0fbe1f17ae68dff426e224aaa/CMP_20240920141346367.jpg" referrerpolicy="no-referrer">
 喜获年度游戏奖（瑞典）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 5441#       发表于 2024-9-21 03:11
+
+机器人这伤害是真享福
+

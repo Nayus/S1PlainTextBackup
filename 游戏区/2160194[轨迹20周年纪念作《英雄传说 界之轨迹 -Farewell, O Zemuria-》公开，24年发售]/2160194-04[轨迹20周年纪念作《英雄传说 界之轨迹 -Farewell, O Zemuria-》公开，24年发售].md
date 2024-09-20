@@ -10943,3 +10943,11 @@ MD学妹胸部黑丝都要爆出来了，给我去掉胸部装甲啊
 
 这技能又是拉条又是涨必杀点数的，BUFF还多了一堆能叠加的框，难度不崩坏我吃
 
+
+*****
+
+####  ravend233  
+##### 5538#       发表于 2024-9-20 23:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">你法数值有不崩的时候吗
+

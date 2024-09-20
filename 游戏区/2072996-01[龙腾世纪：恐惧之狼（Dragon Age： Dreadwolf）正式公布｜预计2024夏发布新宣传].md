@@ -368,3 +368,22 @@ DAI的引擎mod支持很差，至今队友也没有美化mod，最多主角捏�
 DAI的引擎mod支持很差，至今队友也没有美化mod，最多主角捏人加点发型眉毛。 ...</blockquote>
 忘了这茬了，换寒霜真的是生软作死路上的重要一步（
 
+
+*****
+
+####  roydimus  
+##### 552#       发表于 2024-9-21 01:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66261856&amp;ptid=2072996" target="_blank">请问有猪扒饭吗 发表于 2024-9-21 01:26</a>
+
+像楼上这样的就是活该被DEI骑脸的</blockquote>
+看管人导致的
+
+
+*****
+
+####  UnknownRei  
+##### 553#       发表于 2024-9-21 01:55
+
+我要bioware死<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+

@@ -10384,3 +10384,13 @@ mujica真的有所谓宣发期一说吗</blockquote>从没听说过有
 
 那个ksm是真的赫人
 
+
+*****
+
+####  星天观测  
+##### 23148#       发表于 2024-9-20 18:26
+
+坏消息，风立绘也敢拿出来做周边
+
+好消息，大家都鬼，鸡不是一个人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -10124,3 +10124,56 @@ STGR的任务确实对holomem的游戏力是个巨大的挑战，之前miko说�
 
 这不就是单单你们自己挑自己想看的东西给大家看吗
 
+
+*****
+
+####  holoan  
+##### 9724#         楼主| 发表于 2024-9-20 17:44
+
+啊
+
+koyolami的新闻是前天的……
+
+*****
+
+####  holoan  
+##### 9725#         楼主| 发表于 2024-9-20 18:30
+
+[https://prtimes.jp/main/html/rd/p/000000179.000066407.html](https://prtimes.jp/main/html/rd/p/000000179.000066407.html)
+
+这发表时机。。。。。。。。。。。miko沉迷GTA中 <blockquote>オリジナル楽曲への「さくらみこ」本人の思いなどを詰め込んだ展示スペース、35P※ のメッセージで桜を咲かせるメッセージボード企画、オリジナルコラボグッズの販売、巨大ガラポンゲーム、コラボフード・ドリンクの販売、「さくらみこ」と一緒にShibuya Sakura Stageを探検出来るクイズラリーと盛りだくさんの内容となっておりますのでぜひ余すことなくお楽しみください。
+
+またイベントスペース内の高さ4.5m・横幅8mの大画面モニター2枚ではオリジナル楽曲のミュージックビデオを視聴することが出来ます。</blockquote>
+
+オリジナルグッズ販売
+
+<img src="https://img.saraba1st.com/forum/202409/20/182915bumrwull8ssnwhsw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (267.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-20 18:29 上传
+
+巨大ガラポン
+
+<img src="https://img.saraba1st.com/forum/202409/20/182932gf2dned9ene1ajl0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (259.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-20 18:29 上传
+
+コラボメニューの販売
+
+<img src="https://img.saraba1st.com/forum/202409/20/183004g394tnn39taet597.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (360.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-20 18:30 上传
+
+[https://x.com/SakuraMikoStage](https://x.com/SakuraMikoStage)
+

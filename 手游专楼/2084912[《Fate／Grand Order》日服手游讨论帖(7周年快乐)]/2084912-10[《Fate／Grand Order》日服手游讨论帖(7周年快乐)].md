@@ -666,3 +666,11 @@ byd喜欢FE能不能滚去填FEX的坑啊<img src="https://static.saraba1st.com/
 
 怎么全是boss战<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  保罗嚇伯特  
+##### 14673#       发表于 2024-9-20 20:17
+
+越发庆幸之前把大部分石头投入兽艾蕾池了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

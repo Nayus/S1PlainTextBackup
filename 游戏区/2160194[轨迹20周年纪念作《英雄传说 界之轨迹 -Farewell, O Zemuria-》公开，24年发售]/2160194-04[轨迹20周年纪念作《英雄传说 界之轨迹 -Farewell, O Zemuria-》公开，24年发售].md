@@ -10468,3 +10468,83 @@ ns这装机量也见不到什么首周实体过10w的第三方新ip了，还是p
 
 这你说啥范恩换了个发型我都信
 
+
+*****
+
+####  卢迪克  
+##### 5494#       发表于 2024-9-20 20:17
+
+ 本帖最后由 卢迪克 于 2024-9-20 20:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66259334&amp;ptid=2160194" target="_blank">Mchaos 发表于 2024-9-20 19:35</a>
+
+在日本有ps5的包有ns啊，不能这么算
+
+—— 来自 鹅球 v3.1.88.3</blockquote>
+其实主要不想招人。负责NS移植的只有一个程序员，pc的硬件比较多样大概不能只派一个人吧，多招人加藤老头肯定不答应。
+
+*****
+
+####  冰寒之月  
+##### 5495#       发表于 2024-9-20 20:18
+
+盟主这建模比立绘好看多了
+
+*****
+
+####  卢迪克  
+##### 5496#       发表于 2024-9-20 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66259661&amp;ptid=2160194" target="_blank">冰寒之月 发表于 2024-9-20 20:18</a>
+
+盟主这建模比立绘好看多了</blockquote>
+劳拉          
+
+*****
+
+####  windtrack_qh  
+##### 5497#       发表于 2024-9-20 20:19
+
+<img src="https://img.saraba1st.com/forum/202409/20/201905p6ril6g1l9v4jh6v.png" referrerpolicy="no-referrer">
+
+<strong>096ca1411e3923cc804a2d7593c54a59.png</strong> (225.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-20 20:19 上传
+
+<img src="https://img.saraba1st.com/forum/202409/20/201910bgodokacoquqfihu.png" referrerpolicy="no-referrer">
+
+<strong>4b14b12ee923d18f2a1bcf37ffbecaf2.png</strong> (327.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-20 20:19 上传
+
+<img src="https://img.saraba1st.com/forum/202409/20/201919tuoajhv8bumauzgo.png" referrerpolicy="no-referrer">
+
+<strong>41484bb6626c74e9e05caa51d690465b.png</strong> (139.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-20 20:19 上传
+
+<img src="https://img.saraba1st.com/forum/202409/20/201925e4ykplogppgk1old.png" referrerpolicy="no-referrer">
+
+<strong>79501aea4233744726565555078ab81f.png</strong> (255.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-20 20:19 上传
+
+
+*****
+
+####  冰寒之月  
+##### 5498#       发表于 2024-9-20 20:25
+
+ 本帖最后由 冰寒之月 于 2024-9-20 20:27 编辑 
+
+有两个模式 一个新手模式 一个完整 而且两种模式能用的人物不一样？
+
+哦 原来是限定的试玩版
+

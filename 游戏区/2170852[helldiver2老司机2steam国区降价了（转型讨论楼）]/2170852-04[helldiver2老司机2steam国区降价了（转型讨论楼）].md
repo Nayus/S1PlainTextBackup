@@ -2030,3 +2030,30 @@ We are looking at resolving this asap.
 
 虫减甲机器人加甲是吧，血和伤害也都加了，机器人这张图本身也算烂图，打起来享福的
 
+
+*****
+
+####  timegazer  
+##### 5437#       发表于 2024-9-20 14:05
+
+机器人那个加强版双足机甲到底用什么打，机炮都要四发才死，比持盾机枪兵还硬
+
+*****
+
+####  Aeons  
+##### 5438#       发表于 2024-9-20 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66255901&amp;ptid=2170852" target="_blank">timegazer 发表于 2024-9-20 14:05</a>
+机器人那个加强版双足机甲到底用什么打，机炮都要四发才死，比持盾机枪兵还硬 ...</blockquote>
+大勤勉反器材打腿，磁轨任意部位
+
+
+*****
+
+####  xinfengj  
+##### 5439#       发表于 2024-9-20 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66255901&amp;ptid=2170852" target="_blank">timegazer 发表于 2024-9-20 14:05</a>
+机器人那个加强版双足机甲到底用什么打，机炮都要四发才死，比持盾机枪兵还硬 ...</blockquote>
+打腿，腿3甲壳子4甲
+

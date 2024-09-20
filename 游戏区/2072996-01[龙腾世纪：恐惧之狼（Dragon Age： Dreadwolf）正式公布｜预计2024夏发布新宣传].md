@@ -387,3 +387,54 @@ DAI的引擎mod支持很差，至今队友也没有美化mod，最多主角捏�
 
 我要bioware死<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风烛尘香  
+##### 554#       发表于 2024-9-21 02:00
+
+ 本帖最后由 风烛尘香 于 2024-9-21 02:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66261897&amp;ptid=2072996" target="_blank">zhenlune 发表于 2024-9-21 01:35</a>
+
+DAI的引擎mod支持很差，至今队友也没有美化mod，最多主角捏人加点发型眉毛。 ...</blockquote>
+DAI队友的美化mod只停留在换个皮肤材质、发型或衣服颜色，对于库伦和莉莉安娜这种底子不错的还能锦上添花，但没办法大刀阔斧地改……起源的美化mod能修改的幅度明显更大
+
+daorigins 2017-06-29 19-23-17-49.jpg
+(232.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-21 01:58 上传
+
+<img src="https://img.saraba1st.com/forum/202409/21/015848lipnlr4ar41u1h37.jpg" referrerpolicy="no-referrer">
+
+daorigins 2017-06-29 21-54-18-89.jpg
+(196.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-21 01:58 上传
+
+<img src="https://img.saraba1st.com/forum/202409/21/015850s2f8zc6z086wzn6t.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  风烛尘香  
+##### 555#       发表于 2024-9-21 02:04
+
+ 本帖最后由 风烛尘香 于 2024-9-21 02:05 编辑 
+
+PC党也不要指望mod了，当初玩DAI两百个小时算重度mod患者，但DAI队友用mod美化的程度极其有限，只能换个妆造改改发型，治标不治本。
+
+这一张的卡珊德拉已经是安装了修容mod以后的结果了，不能说丑，但距离泥潭老哥们想要的mod美少女远矣<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">而卡珊德拉作为DAI里唯一的顺直女，起码还算五官端正，而DA4里那群长得奇形怪状的队友emmmmm……
+
+20200610213601_1.jpg
+(134.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-21 02:02 上传
+
+<img src="https://img.saraba1st.com/forum/202409/21/020242cpxciptjdmh33za4.jpg" referrerpolicy="no-referrer">
+

@@ -415,3 +415,15 @@ yuzu搞王泪那事在前 估计也没什么人赶着触霉头？
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  kuarwbwe  
+##### 610#       发表于 2024-9-20 23:48
+
+ 本帖最后由 kuarwbwe 于 2024-9-20 23:50 编辑 
+
+看这作体量了。最后能有惊奇的分就能开香槟，拿个80多也很正常。2d游戏天生吃了表现力和玩法开发成熟度高的亏。而且ign在前瞻还说了这作不是那种变革作。（虽然ign说的话可以当放屁，但是我也找不出来其它评价了。）<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

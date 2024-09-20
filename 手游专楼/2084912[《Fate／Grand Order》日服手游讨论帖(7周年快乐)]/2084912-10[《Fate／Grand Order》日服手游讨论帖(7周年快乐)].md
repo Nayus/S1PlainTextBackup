@@ -964,3 +964,11 @@ TMD boss战不是问题，还要锁锁锁锁NM</blockquote>
 
 和BOSS的BUFF都是不能阻止和不能消
 
+
+*****
+
+####  alucardcz  
+##### 14701#       发表于 2024-9-20 23:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">反正我打公主直接复活了  后面几个大boss用艾蕾乱杀
+

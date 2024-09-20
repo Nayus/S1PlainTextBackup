@@ -5553,3 +5553,11 @@ pve开放以后就很少进pvp了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真格王中王
 
+
+*****
+
+####  laosai13  
+##### 5452#       发表于 2024-9-20 13:39
+
+真格大会还是刺激，全世界都能参加吗？不知道决赛是不是线下的
+

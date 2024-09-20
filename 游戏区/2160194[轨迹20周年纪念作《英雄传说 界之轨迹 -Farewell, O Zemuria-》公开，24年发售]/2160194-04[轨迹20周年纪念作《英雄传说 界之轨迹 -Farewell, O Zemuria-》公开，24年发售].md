@@ -8891,3 +8891,106 @@ cp和继承系统更是抽象 抽卡玩法也没啥意思 说句不好听的这�
 
 法老控就没压力了？ 等没人买了自然就不出了 还需要你来喊？
 
+
+*****
+
+####  迷雾塔  
+##### 5343#       发表于 2024-9-20 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66253510&amp;ptid=2160194" target="_blank">Squall25 发表于 2024-9-20 10:22</a>
+其实说这个也不重要了，不考虑空re的事情的话，轨迹确实要完结了，运气好的话界轨褒姒，京迷卖的又还行的话 ...</blockquote>
+万一界轨大卖，京迷褒死，那就<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Squall25  
+##### 5344#       发表于 2024-9-20 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66253522&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-9-20 10:23</a>
+当然有问题
+
+有钱赚为什么不出？你想要怪谁？怪玩家去买？
+
+兰斯完结还不是黄油市场不景气 你兰斯要是每作 ...</blockquote>
+我寻思因果关系难道不要了是吧？兰斯是现编的路上编着编着然后卖得不好强行结束的吗？起码按着大纲走，tada退休和黄油市场不景气也是原因，但它10代完结就是确定好的，最多45鬼没重制这些是受到卖不出去和没人影响做不到了。你告诉我轨迹有这个大纲吗？要不要我搬近藤几次吃书给你看？
+
+*****
+
+####  ravend233  
+##### 5345#       发表于 2024-9-20 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66253493&amp;ptid=2160194" target="_blank">迷雾塔 发表于 2024-9-20 10:20</a>
+
+“重要的是要有明确的意图，而不是一味迎合玩家的意见”
+
+而f社现在一个明确意图是赚钱，有些玩家意见是一 ...</blockquote>
+赚钱是所有商业公司最明确的意图，但是这个不是一个明确的做游戏的意图，而是一个公司的底层逻辑，你法社根本没有一个具体的做游戏层面的规划和目的
+
+*****
+
+####  Mchaos  
+##### 5346#       发表于 2024-9-20 10:28
+
+本来大家黎一出来开香槟就是觉得你法终于重新回到认认真真讲好一个故事的本业上来了。结果后面光速端上来两坨大家最喜欢的大集结答辩<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  ravend233  
+##### 5347#       发表于 2024-9-20 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66253547&amp;ptid=2160194" target="_blank">迷雾塔 发表于 2024-9-20 10:25</a>
+
+万一界轨大卖，京迷褒死，那就</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">那就出里恩传和新的南通游戏吧，卖女人是没有前途的，还得卖男人赚女人钱口牙
+
+
+*****
+
+####  Squall25  
+##### 5348#       发表于 2024-9-20 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66253547&amp;ptid=2160194" target="_blank">迷雾塔 发表于 2024-9-20 10:25</a>
+万一界轨大卖，京迷褒死，那就</blockquote>
+界轨大卖的概率低的可怕，黎12看日本实体，后续销量基本没有。界轨也就看首周能保住几开头。
+京迷如果蹭ns的话其实应该不至于卖的很差，但是我觉得现在可能空re影响更大，毕竟空re我认为大卖概率挺高的
+
+*****
+
+####  新世界的派蒙  
+##### 5349#       发表于 2024-9-20 10:31
+
+几天前奖杯泄露不敢开专楼，忍不住回来瞄一眼，这不是好好地在聊场外嘛，安心<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  minus13  
+##### 5350#       发表于 2024-9-20 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66253504&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-20 10:21</a>
+
+是水七八部还是直接完结当然是看销量而定</blockquote>
+当然还是希望他卖不出去然后两三部就完结了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  maojiashu  
+##### 5351#       发表于 2024-9-20 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66253587&amp;ptid=2160194" target="_blank">Squall25 发表于 2024-9-20 10:28</a>
+
+我寻思因果关系难道不要了是吧？兰斯是现编的路上编着编着然后卖得不好强行结束的吗？起码按着大纲走，ta ...</blockquote>
+你还没get到我的意思？
+
+如果黄油市场景气 兰斯根本就不会10部完结 因为能赚钱
+
+*****
+
+####  无动于衷  
+##### 5352#       发表于 2024-9-20 10:33
+
+<blockquote>迷雾塔 发表于 2024-9-20 10:25
+万一界轨大卖，京迷褒死，那就</blockquote>
+万一俩都褒姒呢
+

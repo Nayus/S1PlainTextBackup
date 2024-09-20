@@ -103,3 +103,14 @@ D-vice穿越到石头门世界的情节是新的。
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  Rincewind  
+##### 1212#       发表于 2024-9-20 16:20
+
+ 本帖最后由 Rincewind 于 2024-9-20 16:25 编辑 
+
+高难打完了
+每关一两多分钟的长度根本撑不起TAMAYO写的这些又长转折又多的BGM<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还得专门暂停来听
+

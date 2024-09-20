@@ -337,3 +337,15 @@ atlus为什么不敢放个体验版出来？
 
 随便逛了下美国贴吧，没想到真有觉得人设好顶赞的呢，而且不乏支持没恋爱系统的，莫非这作很对欧美人口味<img src="https://static.saraba1st.com/image/smiley/face/113.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哎哟卧槽了  
+##### 740#       发表于 2024-9-20 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66258432&amp;ptid=2140224" target="_blank">抽烟的猴 发表于 2024-9-20 17:47</a>
+没事，加速做p4gr可破</blockquote>
+當然是做P4R，G版請再給一次錢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 來自 Google Pixel 2, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

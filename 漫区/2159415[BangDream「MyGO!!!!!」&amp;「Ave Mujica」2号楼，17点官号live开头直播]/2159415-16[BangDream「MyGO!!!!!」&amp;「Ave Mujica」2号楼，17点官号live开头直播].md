@@ -10284,3 +10284,27 @@ hgm中之人简直就跟hgm一样活泼
 
 垫脚还要石锤吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  相坂君  
+##### 23138#       发表于 2024-9-20 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66254849&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-9-20 12:04</a>
+
+最新的话术是，现在是狗剧场版宣传期，你鸡先让让
+
+别不懂事了嗷，先让让</blockquote>
+我忽然想起，最开始mijica动画延期的时候，就有人说鸡在让狗剧场版，那时候可多人反驳了，不认为是鸡让狗
+
+现在怎么变成这个术话了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  skives  
+##### 23139#       发表于 2024-9-20 15:34
+
+现在就看动画质量了
+动画质量不行 靠wsd运营提高人气的概率为零
+

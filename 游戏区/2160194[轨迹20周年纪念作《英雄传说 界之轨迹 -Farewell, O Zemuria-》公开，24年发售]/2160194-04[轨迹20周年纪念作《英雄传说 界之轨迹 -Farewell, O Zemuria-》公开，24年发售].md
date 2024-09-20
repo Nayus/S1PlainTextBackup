@@ -9761,3 +9761,44 @@ e大师是能画好女人的。我只觉得f社钱没给到位<img src="https://
 
 闪2的内战也没有问题，因为根本就没怎么描写（没描写的东西怎么能说有问题），黎恩参与的都是些边角料的地方，战争基本跟主角没关系。
 
+
+*****
+
+####  Aeons  
+##### 5423#       发表于 2024-9-20 15:28
+
+fc也是竹入一番，重置算共事吗
+
+*****
+
+####  一步成诗  
+##### 5424#       发表于 2024-9-20 15:31
+
+这要是真的竹入就是凭一己之力把剧本和美术同时搞烂，看来社长真的尽力了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  keiyoku  
+##### 5425#       发表于 2024-9-20 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66256785&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-20 15:22</a>
+这还真没听说过，所以堆人头都是竹入干的是吧</blockquote>
+这就不清楚了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ggyy0088  
+##### 5426#       发表于 2024-9-20 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66253270&amp;ptid=2160194" target="_blank">Squall25 发表于 2024-9-20 10:03</a>
+新画师其实之前讨论的时候感觉最早，创轨ed就是他画的。没人扒是谁挺正常的，之前扒画师的某轨黑现在都不说 ...</blockquote>
+寅吉大佬是身体不好隐退了，毕竟世纪初就开法老控fan blog的人，现在应该也奔五了吧。估计他掌握和考据出来的人事情报比一般员工知道的还要详尽。
+
+*****
+
+####  一步成诗  
+##### 5427#       发表于 2024-9-20 15:38
+
+其实想想确实是这样，闪是村上负责立绘，就是说从原案设计到立绘成图都需要直接和竹入沟通，至于空轨重制照着老立绘重画就行了哪需要和竹入说话<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

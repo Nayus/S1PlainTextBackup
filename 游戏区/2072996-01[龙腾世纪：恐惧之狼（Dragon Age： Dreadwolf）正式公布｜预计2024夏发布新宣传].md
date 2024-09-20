@@ -291,3 +291,16 @@ lgbt银趴游戏
 感觉褒姒了</blockquote>
 还有一个半月开卖，预售进不了steam前五十<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zzy516232108  
+##### 544#       发表于 2024-9-20 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66253796&amp;ptid=2072996" target="_blank">popchong 发表于 2024-9-20 10:42</a>
+
+推特已经开骂了
+
+• "The Character Creator I’ve Always Wanted" -IGN</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">隔夜饭要吐出来了……
+

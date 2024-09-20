@@ -9623,3 +9623,28 @@ e大师是能画好女人的。我只觉得f社钱没给到位<img src="https://
 
 又是两坨屎争哪坨臭是吧，抛开剧情因素，我觉得纯游戏性闪2还是比黎2强
 
+
+*****
+
+####  minus13  
+##### 5409#       发表于 2024-9-20 14:46
+
+其他游戏玩家：我们系列哪部最好
+
+轨迹玩家：闪2和黎2哪部最烂
+
+*****
+
+####  ravend233  
+##### 5410#       发表于 2024-9-20 14:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还是让界轨烂穿结束这个没有意义的争论吧
+
+
+*****
+
+####  一步成诗  
+##### 5411#       发表于 2024-9-20 14:54
+
+万一界2更烂怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

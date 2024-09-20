@@ -297,3 +297,11 @@ atlus你们是忘本了啊<img src="https://static.saraba1st.com/image/smiley/fa
 准备把主角命名成马格努森了</blockquote>
 和nico和少爷都做过队友，应该是佩雷兹
 
+
+*****
+
+####  石中剑二  
+##### 735#       发表于 2024-9-20 14:52
+
+atlus为什么不敢放个体验版出来？
+

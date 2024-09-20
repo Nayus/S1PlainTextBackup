@@ -8562,3 +8562,27 @@ B站那里云黎轨2剧情比较好</blockquote>
 
 这种没活了就临时拖你轨出来顶一年的做法除了压榨社内画师还真没哈办法
 
+
+*****
+
+####  法拉  
+##### 5310#       发表于 2024-9-20 09:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">嘴上说着外包都一样，还是挺希望户部淑来画画轨迹的
+看了魔导物语新作的画风，是真的适合你轨
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ravend233  
+##### 5311#       发表于 2024-9-20 09:36
+
+ 本帖最后由 ravend233 于 2024-9-20 09:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66252831&amp;ptid=2160194" target="_blank">出言不迅 发表于 2024-9-20 09:22</a>
+
+不要什么艺术性这种高度，一个精良的完结篇就行了，音画体验上一上台阶，在可以结束的地方结束，不再挖坑 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">你法社只要不疯狂堆角色数量堆奇奇怪怪的设定和元素，下定决心踏踏实实做一个第一部铺垫和刻画舞台，第二部推主线，两部完结主线的轨，兜底是能兜住的（美术音乐暂且不说）
+
+但是现在你法社就是要堆角色，拉一大堆老角色，再整一大堆自己觉得很潮的设定和元素，做一个规模和体量远超自己能力的游戏，然后有事没事拖出来垫一年档期，那就只能以一个笑话入土了
+

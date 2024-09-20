@@ -730,3 +730,24 @@ byd喜欢FE能不能滚去填FEX的坑啊<img src="https://static.saraba1st.com/
 所以A区域一开始的海之大天使是谁啊</blockquote>
 泳装贞德吧,三破的估计【
 
+
+*****
+
+####  森兰丸  
+##### 14680#       发表于 2024-9-20 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66260143&amp;ptid=2084912" target="_blank">v22325 发表于 2024-9-20 21:21</a>
+
+泳装贞德吧,三破的估计【</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">贞德只是会到处认弟弟和妹妹....脑子没坏到会参与什么最终BOSS人类灭亡战或者和杀生院合作吧....大概
+
+
+*****
+
+####  angelooo  
+##### 14681#       发表于 2024-9-20 21:27
+
+<blockquote>alucardcz 发表于 2024-9-20 20:52
+毫无兴趣  所以等个总结</blockquote>
+隔壁看了一段白野和BB告别的翻译，楼下一群人说好感动，但我一点感觉都没有……难道是因为我没玩过FE的缘故吗OTZ
+

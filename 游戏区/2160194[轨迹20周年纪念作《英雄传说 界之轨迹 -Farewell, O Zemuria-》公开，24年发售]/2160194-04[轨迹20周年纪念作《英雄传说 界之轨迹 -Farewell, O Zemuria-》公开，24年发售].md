@@ -10791,3 +10791,41 @@ dlc好丑。
 现在的pc市场和当年已经不同了 可惜法老控还没看明白</blockquote>
 法老控要是能看明白还会这么久才转向NS吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 5523#       发表于 2024-9-20 21:25
+
+静奈这部不升级吗，还是一个s
+
+*****
+
+####  ravend233  
+##### 5524#       发表于 2024-9-20 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66260181&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-20 21:25</a>
+静奈这部不升级吗，还是一个s</blockquote>
+发了神气，意思意思得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  Aeons  
+##### 5525#       发表于 2024-9-20 21:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打么打不过，展示敌方技能也没展示
+
+
+*****
+
+####  卢迪克  
+##### 5526#       发表于 2024-9-20 21:32
+
+<blockquote>ravend233 发表于 2024-9-20 21:26
+发了神气，意思意思得了
+
+—— 来自 鹅球 v3.0.0.82-alpha</blockquote>
+看op跪地上还以为要升级了，结果还是一样。
+

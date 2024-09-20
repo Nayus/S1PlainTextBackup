@@ -8238,3 +8238,77 @@ B站那里云黎轨2剧情比较好</blockquote>
 
 感觉是机翻，立本人不这么说话
 
+
+*****
+
+####  ravend233  
+##### 5280#       发表于 2024-9-20 08:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66252363&amp;ptid=2160194" target="_blank">Archer长羽 发表于 2024-9-20 08:35</a>
+
+真的假的，一个群在组织就发动了一个人啊...？难道只有群主自己上，群员呢 ...</blockquote>
+有一批是在官推下面骂的
+
+
+*****
+
+####  Archer长羽  
+##### 5281#       发表于 2024-9-20 08:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66252392&amp;ptid=2160194" target="_blank">法拉 发表于 2024-9-20 08:39</a>
+
+黎1加入的新画师，游戏里画了一些cg，这位看全身人体也还是灾难
+
+发挥最好的应该是画了菲莉跳舞图的那个， ...</blockquote>
+就是楼上说的新来的美术吗，也没挖出来叫什么哦？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a2042312  
+##### 5282#       发表于 2024-9-20 08:43
+
+新画师这个黑兔看起来比E大师的年龄小多了
+
+*****
+
+####  ravend233  
+##### 5283#       发表于 2024-9-20 08:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66252371&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-20 08:36</a>
+
+有一说一日本人这种才是正确加速死亡的做法，学习了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">在我观察的经验来说，立本人基本只在各种匿名论坛骂，推特是广场，要体面，除非真的忍无可忍，否则最多也就是TAG和关键词都不打，像谜语一样在自己推的主页上隔空YYGQ，你不去他主页看都看不到他在骂娘
+
+但是夸归夸，买是不买的
+
+上升到开始在官推和TAG下面直球辱骂属于准备炎了
+
+*****
+
+####  出言不迅  
+##### 5284#       发表于 2024-9-20 08:45
+
+小公司搞年货多开导致的吧，黎二水了一代绝对是败笔。赶紧收尾重开才是对的，当然收尾不是烂尾。
+
+不过没发生的事就不要担心了，也没几天了，万一这作剧情有好的表现呢
+
+*****
+
+####  Archer长羽  
+##### 5285#       发表于 2024-9-20 08:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66252411&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-20 08:42</a>
+
+有一批是在官推下面骂的</blockquote>
+是这样，那还行，刚才差点绷不住了都<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一步成诗  
+##### 5286#       发表于 2024-9-20 08:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66252441&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-20 08:44</a>
+
+在我观察的经验来说，立本人基本只在各种匿名论坛骂，推特是广场，要体面，除非真的忍无可忍，否则最多也 ...</blockquote>
+起码比骂完记得买要有用多了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -1371,3 +1371,25 @@ FE说白了就是菌鸽鸽啥时候不惦记他那破民科设定，这故事才
 
 期望能变成万圣节时的羊恶魔上战场折磨玩家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仰望神的括约肌  
+##### 14741#       发表于 2024-9-21 18:16
+
+ 本帖最后由 仰望神的括约肌 于 2024-9-21 18:17 编辑 
+
+后篇金钻头从头杀到尾 算是本人这次mvp 剧情感觉中规中矩 没整烂活 但总有一种“关我鸟事”的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+顺便 新的白纸本更新后减半了
+
+*****
+
+####  森兰丸  
+##### 14742#       发表于 2024-9-21 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66265705&amp;ptid=2084912" target="_blank">angelooo 发表于 2024-9-21 17:53</a>
+
+说等“数月”之后会有free本233</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">还在等运营发杯子和英灵币
+

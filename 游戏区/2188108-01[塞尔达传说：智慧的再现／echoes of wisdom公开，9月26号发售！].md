@@ -597,3 +597,21 @@ pdd百亿补贴有香港发货的，相对便宜些
 看商家吧，快点的话基本能发售当天发</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我之前墨策订过几次首发游戏，都是发售前就发货了，算上运输时间的话 发售后第二天就拿到了。要是广东的玩家估计发售日就能玩上了
 
+
+*****
+
+####  医生狼多  
+##### 627#         楼主| 发表于 2024-9-21 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66265597&amp;ptid=2188108" target="_blank">雾时 发表于 2024-9-21 17:36</a>
+我之前墨策订过几次首发游戏，都是发售前就发货了，算上运输时间的话 发售后第二天就拿到了。要是广东的 ...</blockquote>
+诶那就还好，我是刚好之前订纸马的时候到的慢就没再那边订了
+那pdd主要优势就是便宜了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a317216007  
+##### 628#       发表于 2024-9-21 18:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">如果是计划玩完出二手肯定还是等卡带吧，否则任亏券的价格跟首发的价格比起来差不多
+

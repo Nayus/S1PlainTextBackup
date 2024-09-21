@@ -1343,3 +1343,21 @@ FE说白了就是菌鸽鸽啥时候不惦记他那破民科设定，这故事才
 打完了...这奏3连FREE本都没的么</blockquote>
 说等“数月”之后会有free本233
 
+
+*****
+
+####  cenhr  
+##### 14738#       发表于 2024-9-21 17:57
+
+为啥我感觉OC3是蘑菇的任性所以和夏天活动合成一体<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 14739#       发表于 2024-9-21 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66265705&amp;ptid=2084912" target="_blank">angelooo 发表于 2024-9-21 17:53</a>
+
+说等“数月”之后会有free本233</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">被动一键切换什么时候出！
+

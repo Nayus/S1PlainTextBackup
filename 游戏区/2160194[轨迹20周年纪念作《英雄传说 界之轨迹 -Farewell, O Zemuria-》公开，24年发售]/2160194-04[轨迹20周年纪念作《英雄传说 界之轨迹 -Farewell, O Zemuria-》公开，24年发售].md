@@ -11241,3 +11241,27 @@ pv亡啦
 
 没有op的游戏很多，没有pv的倒是罕见<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 5570#       发表于 2024-9-21 14:37
+
+建议发售后发布发售pv，大伙一起来嘲笑
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  迷雾塔  
+##### 5571#       发表于 2024-9-21 14:39
+
+不过很多游戏pv也就是乱剪一坨，不明所以的画面配上不明所以的台词，放一段不明所以的音乐。所以没有也挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  diectt  
+##### 5572#       发表于 2024-9-21 14:39
+
+最有节目效果肯定是26号tgs发pv啦，那会儿24,25号玩偷跑的人已经通关了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

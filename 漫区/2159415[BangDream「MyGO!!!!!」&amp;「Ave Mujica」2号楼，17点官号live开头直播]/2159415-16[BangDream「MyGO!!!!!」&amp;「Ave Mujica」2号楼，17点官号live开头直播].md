@@ -11272,3 +11272,26 @@ https://b23.tv/vGc7Dib</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  skives  
+##### 23230#       发表于 2024-9-21 23:34
+
+泥漏风评被害 明明爱撕衣烤羊力度远远不如恩基爱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 23231#       发表于 2024-9-21 23:37
+
+跟泥漏又没啥关系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Skyline_R  
+##### 23232#       发表于 2024-9-21 23:40
+
+在看台中间，感觉羊一首歌里能有半首的声音被盖掉（其他人都还好）。总之听感还没比过去年楼下BW的天音妹妹。在四叶草待了几个小时，主要就看个氛围吧<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

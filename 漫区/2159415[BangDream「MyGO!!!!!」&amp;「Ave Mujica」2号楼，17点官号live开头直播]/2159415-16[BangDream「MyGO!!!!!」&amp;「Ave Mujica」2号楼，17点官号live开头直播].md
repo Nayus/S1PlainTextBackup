@@ -11156,3 +11156,20 @@ live才见真水平，杨姐确实不得行
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  RPG-7  
+##### 23218#       发表于 2024-9-21 22:28
+
+群里看到的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+BA[CC)BT`~DQ%N65@_X[~)1.jpg
+(445.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-21 22:28 上传
+
+<img src="https://img.saraba1st.com/forum/202409/21/222845wxc5lskb6gmcg3k1.jpg" referrerpolicy="no-referrer">
+

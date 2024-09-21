@@ -11035,3 +11035,19 @@ live才见真水平，杨姐确实不得行
 
 顺便一提在四个队友都会说两嘴中文的前提下，羊看提词板读假名中文，两个假名两个假名的蹦，感觉不如青木说中文的“有趣的女人”
 
+
+*****
+
+####  cherryjia12  
+##### 23205#       发表于 2024-9-21 21:18
+
+音响背锅吧，声音又大又刺念诗根本听不清，后面给羊姐弄急眼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  akiomn  
+##### 23206#       发表于 2024-9-21 21:27
+
+虹馆音响垃圾是人尽皆知的事了<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer"> 
+

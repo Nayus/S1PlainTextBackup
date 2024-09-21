@@ -11071,3 +11071,15 @@ MD学妹胸部黑丝都要爆出来了，给我去掉胸部装甲啊
 
 你轨设计越来越敷衍，dlc也没什么人买的感觉
 
+
+*****
+
+####  隔壁老黄  
+##### 5552#       发表于 2024-9-21 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66260993&amp;ptid=2160194" target="_blank">新世界的派蒙 发表于 2024-9-20 23:06</a>
+这技能又是拉条又是涨必杀点数的，BUFF还多了一堆能叠加的框，难度不崩坏我吃 ...</blockquote>
+你法我笑，0B开场合体技秒杀，闪轨霸道无双，黎轨大魔法瞬击。可以说轨迹系列就是研究怎么秒杀的游戏，平衡性只存在于前期<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

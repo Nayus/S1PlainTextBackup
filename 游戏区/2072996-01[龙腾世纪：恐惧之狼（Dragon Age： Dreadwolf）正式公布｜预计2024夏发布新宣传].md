@@ -507,3 +507,17 @@ PC党也不要指望mod了，当初玩DAI两百个小时+重度mod患者，DAI�
 
 媒体对测试评价很好，不过舆论因为正确要素太突出，骂的很凶，不知道后面又会是个啥情况，是评分还行被骂翻，还是评分也不行
 
+
+*****
+
+####  YG111  
+##### 563#       发表于 2024-9-22 06:15
+
+ign压根就不会玩游戏  也不是一天两天了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+感觉任何一个发了码的博主自己录的打的都正常许多了  
+
+半卡通化的人物实在没得救，唯一未来的雷点可能是剧情  
+
+估计不炸到人厌狗嫌就是不给黑猴goty 的最好替身了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

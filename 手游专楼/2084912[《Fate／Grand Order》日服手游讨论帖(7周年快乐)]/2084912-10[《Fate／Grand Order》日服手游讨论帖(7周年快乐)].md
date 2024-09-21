@@ -1438,3 +1438,11 @@ FE说白了就是菌鸽鸽啥时候不惦记他那破民科设定，这故事才
 
 5宝抽完了，才知道会有UP<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  v22325  
+##### 14747#       发表于 2024-9-21 21:58
+
+千利休又10连抽到了……最近太欧有点害怕……
+

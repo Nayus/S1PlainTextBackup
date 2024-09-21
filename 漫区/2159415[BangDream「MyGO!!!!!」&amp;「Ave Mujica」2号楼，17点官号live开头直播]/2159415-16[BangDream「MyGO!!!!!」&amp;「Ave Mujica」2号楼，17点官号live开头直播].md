@@ -11076,3 +11076,56 @@ live才见真水平，杨姐确实不得行
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  泥潭办证先锋  
+##### 23210#       发表于 2024-9-21 21:58
+
+唉，沪 国邦友。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202409/21/215745vsj7gzr6gs6e6zuj.png" referrerpolicy="no-referrer">
+
+<strong>f9f74c5599fae70fcf22760019ad7cc8.png</strong> (448.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-21 21:57 上传
+
+*****
+
+####  PPB3008  
+##### 23211#       发表于 2024-9-21 21:58
+
+虹馆这个狗屎音响的问题上次bml mujica的时候就吐槽过了，又糊又重，鼓点都能给你糊没了实属搞笑
+
+
+*****
+
+####  傘木希美  
+##### 23212#       发表于 2024-9-21 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66267533&amp;ptid=2159415" target="_blank">Mc凉月奏酱 发表于 2024-9-21 21:50</a>
+原来是有趣的女人吗 窝根本没听懂她说了两遍说的啥</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">我第二遍才反应过来
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  akiomn  
+##### 23213#       发表于 2024-9-21 22:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">烤羊？烤猪！
+刷了一会发现除了音响外最大战犯是青木。猪咪又在犯罪了，昨回事啊猪咪，再不努力到时候对邦真要被李子一穿二了
+
+*****
+
+####  firedrop  
+##### 23214#       发表于 2024-9-21 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66267601&amp;ptid=2159415" target="_blank">泥潭办证先锋 发表于 2024-9-21 21:58</a>
+
+唉，沪 国邦友。</blockquote>
+听闻店里直接放春日影？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

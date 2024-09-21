@@ -11432,3 +11432,101 @@ s1 羊宫妃那真爱楼
 我看repo说内场还是有空座？</blockquote>
 前区11排有4个连坐空位，位子上也无特典，都在调侃是不是关系者席
 
+
+*****
+
+####  skives  
+##### 23247#       发表于 2024-9-22 01:18
+
+把所有给mujica画过曲绘的画师都关注了
+有时间分析一下（有个人居然只有80多个粉丝 真的惊了）
+另外长谷川供的曲也太多了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">supa love其他人都是一人一首 长谷川现在都5首了
+
+*****
+
+####  adcdqre  
+##### 23248#       发表于 2024-9-22 01:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66262153&amp;ptid=2159415" target="_blank">sadakawa 发表于 2024-09-21 03:42:10</a>
+因为明天要去看演唱会所以这两天突击补习了这部动画，之前从来没有接触过邦邦
+
+看到最后好想吐槽这个衣品好 ...</blockquote>本作要说有主角团也只能是PoppinParty
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  stygian  
+##### 23249#       发表于 2024-9-22 01:42
+
+我看repo说内场还是有空座？
+
+*****
+
+####  akiomn  
+##### 23250#       发表于 2024-9-22 01:50
+
+按照mygo看，在动画前只有一首迷星叫进了动画。mujica现在只有一首同名团歌，估计还有一堆曲子都藏到动画里了，而且也不确定有没有另外的类似迷星叫这样的团歌藏着
+
+*****
+
+####  Toki_Ai  
+##### 23251#       发表于 2024-9-22 01:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  御幸一也  
+##### 23252#       发表于 2024-9-22 02:08
+
+ 本帖最后由 御幸一也 于 2024-9-22 02:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66268289&amp;ptid=2159415" target="_blank">亚瑟邓特 发表于 2024-9-21 23:29</a>
+
+群里刷到图立刻点进楼里
+
+—— 来自 鹅球 v3.2.91</blockquote>
+泥樓根本不太聊羊宮，你應該去的是：
+
+s1 羊宫妃那真爱楼
+[https://bbs.saraba1st.com/2b/thread-2170136-1-1.html](https://bbs.saraba1st.com/2b/thread-2170136-1-1.html)
+
+*****
+
+####  adcdqre  
+##### 23253#       发表于 2024-9-22 02:40
+
+轮不到泥楼烤等过几天gop觉得羊挡路了又会羊变成路边
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  zackAlove  
+##### 23254#       发表于 2024-9-22 02:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66269261&amp;ptid=2159415" target="_blank">stygian 发表于 2024-9-22 01:42</a>
+
+我看repo说内场还是有空座？</blockquote>
+有的，我后面那排有2个空座位，大概是18排还是19排。
+
+*****
+
+####  後藤正文  
+##### 23255#       发表于 2024-9-22 04:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66269261&amp;ptid=2159415" target="_blank">stygian 发表于 2024-9-22 01:42</a>
+我看repo说内场还是有空座？</blockquote>
+前区11排有4个连坐空位，位子上也无特典，都在调侃是不是关系者席
+
+*****
+
+####  gospeler  
+##### 23256#       发表于 2024-9-22 05:53
+
+草，你b站live完之后就开始给我推盗摄的片段。
+
+盗摄已经成老中live不得不品的一环了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

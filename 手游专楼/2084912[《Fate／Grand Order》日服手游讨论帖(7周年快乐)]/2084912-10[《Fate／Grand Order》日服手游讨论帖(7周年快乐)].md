@@ -1267,3 +1267,52 @@ FE我全都玩了的人感觉这次剧情……一般
 不说我都忘记了，现在都是BBBB的，白樱完全没了啊</blockquote>
 所以有人说白樱才是真正的胜利者，CCC结局和白野回到现实世界，之后没有再被折腾<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TheLoof  
+##### 14732#       发表于 2024-9-21 17:17
+
+ 本帖最后由 TheLoof 于 2024-9-21 17:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66264901&amp;ptid=2084912" target="_blank">大十字紅朔 发表于 2024-9-21 15:49</a>
+
+FE我全都玩了的人感觉这次剧情……一般
+
+跳过1000年，然后直接给了FE主角一个“他老死了”的结局</blockquote>
+FE说白了就是菌鸽鸽啥时候不惦记他那破民科设定，这个分支系列才好得起来
+
+从无印到extella，每次都是科幻又不够水准，魔幻又一堆乱七八糟的电子化设计
+
+他一个物理一坨的人哪儿来的本事想像一个又魔法又科学的未来
+
+结果自然是每次都高高举起吹得震天响然后村头械斗结束，然后白野自然就每次都要仰卧起坐
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 14733#       发表于 2024-9-21 17:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">打完了...这奏3连FREE本都没的么
+
+
+*****
+
+####  TheLoof  
+##### 14734#       发表于 2024-9-21 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66265491&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-9-21 17:19</a>
+
+打完了...这奏3连FREE本都没的么</blockquote>
+新材料给了俩白纸本刷，算是抠到极致了
+
+*****
+
+####  alucardcz  
+##### 14735#       发表于 2024-9-21 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66265499&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-9-21 17:21</a>
+
+新材料给了俩白纸本刷，算是抠到极致了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">这2个新白纸本还是40体力的 单独做了不减半！ 用心良苦！
+

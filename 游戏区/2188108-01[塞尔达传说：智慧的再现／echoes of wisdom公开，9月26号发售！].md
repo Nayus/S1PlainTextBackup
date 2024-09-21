@@ -508,3 +508,16 @@ yuzu搞王泪那事在前 估计也没什么人赶着触霉头？
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  hu794  
+##### 618#       发表于 2024-9-21 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66264042&amp;ptid=2188108" target="_blank">kuarwbwe 发表于 2024-9-21 13:16</a>
+2d塞上90的就俩。都算得上是革新作，一个众神2 91，一个沙漏90。去年被盛赞为2d马革新作的惊奇92均分。
+
+ ...</blockquote>
+你这么讲确实有道理。
+看来媒体要么是双标要么是索尼收买的，从机器人和蜘蛛侠没有中评就可以看出来。
+

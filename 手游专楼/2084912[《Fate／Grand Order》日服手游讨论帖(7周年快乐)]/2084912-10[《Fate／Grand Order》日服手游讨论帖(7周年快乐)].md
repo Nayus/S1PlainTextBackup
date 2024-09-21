@@ -1202,3 +1202,24 @@ FEX联动（确信）<img src="https://static.saraba1st.com/image/smiley/face201
 我还挺喜欢CCC的BB的，但是我讨厌杀生院</blockquote>
 一直都是讨厌妖婆
 
+
+*****
+
+####  大十字紅朔  
+##### 14726#       发表于 2024-9-21 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66260681&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-9-20 22:26</a>
+
+答案是可以不看
+
+FE玩家和非FE玩家的区别真的不大，无非就是怎么看白野的自述和BB相关</blockquote>
+FE我全都玩了的人感觉这次剧情……一般
+
+跳过1000年，然后直接给了FE主角一个“他老死了”的结局
+
+奈须有点入魔了啊，正常写故事就是“王子和公主幸福的在一起”就完了，他非得要纠结后面是怎样，结婚了生了几个，王国延续了多少代，什么时候灭亡的
+
+这些不是故事要考虑的，也不是读者要考虑的，不然奈须怎么自称悲观主义者呢，就是想太多
+
+话说杀生院改模了啊，田中阿姨什么时候直播一下
+

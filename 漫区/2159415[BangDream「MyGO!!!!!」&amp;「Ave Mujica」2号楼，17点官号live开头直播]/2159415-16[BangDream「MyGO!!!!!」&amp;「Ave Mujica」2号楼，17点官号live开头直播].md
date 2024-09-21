@@ -10873,3 +10873,28 @@ go箱gbc联动上哪找个键盘手（
 
 昨天就是立希啊<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">隔壁病休的两个成员回来了吗
 
+
+*****
+
+####  PDQ4  
+##### 23190#       发表于 2024-9-21 13:01
+
+原来是昨天开始的，完全没关注<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">还以为是4-0天的倒计时呢
+
+*****
+
+####  御幸一也  
+##### 23191#       发表于 2024-9-21 13:02
+
+日本的睦祥推好有實力，又約了水月畫睦祥，全是同一個人在約的話已經花了差不多50萬羊了<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202409/21/130126dxplglgs6cl8nig6.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_水月とーこ(@mizukitoko)_20240920-125622_1837113573690200238_photo.jpg</strong> (631.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-21 13:01 上传
+
+[https://x.com/mizukitoko/status/1837113573690200238](https://x.com/mizukitoko/status/1837113573690200238)
+

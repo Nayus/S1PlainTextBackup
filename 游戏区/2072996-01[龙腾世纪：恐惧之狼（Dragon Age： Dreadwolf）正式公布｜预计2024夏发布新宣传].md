@@ -467,3 +467,13 @@ PC党也不要指望mod了，当初玩DAI两百个小时+重度mod患者，DAI�
 
 二十年前的bioware有多是我的白月光 现在就有多希望炸个大的
 
+
+*****
+
+####  qianoooo  
+##### 559#       发表于 2024-9-21 13:01
+
+看了前瞻 原来是圣歌2.0！
+
+—— 来自 samsung SM-S9180, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

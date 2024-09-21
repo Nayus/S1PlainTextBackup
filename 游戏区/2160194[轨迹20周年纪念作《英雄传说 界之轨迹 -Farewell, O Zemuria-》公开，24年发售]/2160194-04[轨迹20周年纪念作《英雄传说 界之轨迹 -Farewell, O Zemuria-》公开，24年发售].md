@@ -11134,3 +11134,14 @@ MD学妹胸部黑丝都要爆出来了，给我去掉胸部装甲啊
 这可能性太低了，京迷和空r都是想拉新人的，京迷别首发也不带ps就不错了 ...</blockquote>
 有点担心空r和京轨如果拉到新人，轨迹新作是不是也要回归少年少女的故事，不过到时看着一群二三十岁的前作老登旁边站着一群十几岁的小登也挺有趣的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 5559#       发表于 2024-9-21 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66263833&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-21 12:39</a>
+
+双子妹是共和国黑兔吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看起来是想路径复刻了，能不能成就鬼知道了，目前看起来人气是相当一般的
+

@@ -97,3 +97,69 @@ B12和它的热分离环一同启程前往发射台A。
 
 2024-9-20 13:09 上传
 
+
+*****
+
+####  commcody  
+##### 59#         楼主| 发表于 2024-9-21 18:16
+
+SpaceX官照。B12推出至发射台A，并被筷子举升至塔顶高度——返厂着陆时计划着陆的高度，随后被安置在发射台A上。
+
+S30随后也推出至发射台A。
+
+<img src="https://img.saraba1st.com/forum/202409/21/181400ebvx42sib4x6l1iv.jpg" referrerpolicy="no-referrer">
+
+<strong>GX7tsLbXEAY_tL6.jpg</strong> (478.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-21 18:14 上传
+
+<img src="https://img.saraba1st.com/forum/202409/21/181400xtitycbtiky80ktb.jpg" referrerpolicy="no-referrer">
+
+<strong>GX7tsLXXEAIyukp.jpg</strong> (509.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-21 18:14 上传
+
+<img src="https://img.saraba1st.com/forum/202409/21/181400d8nwuzynbwjb2dnz.jpg" referrerpolicy="no-referrer">
+
+<strong>GX7tsLRXEAAJqW-.jpg</strong> (676.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-21 18:14 上传
+
+<img src="https://img.saraba1st.com/forum/202409/21/181359ykskl0tvm4yfv4f4.jpg" referrerpolicy="no-referrer">
+
+<strong>GX7tsLCWUAA0g2Y.jpg</strong> (791.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-21 18:13 上传
+
+<img src="https://img.saraba1st.com/forum/202409/21/181359n5btx0feftgdcxgb.jpg" referrerpolicy="no-referrer">
+
+<strong>GX8aCM2WEAAwncC.jpg</strong> (455.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-21 18:13 上传
+
+<img src="https://img.saraba1st.com/forum/202409/21/181359efa6ay5ofcu4hgfh.jpg" referrerpolicy="no-referrer">
+
+<strong>GX8aDltW8AASVXn.jpg</strong> (476.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-21 18:13 上传
+
+<img src="https://img.saraba1st.com/forum/202409/21/181359vys4a1nt485jufjp.jpg" referrerpolicy="no-referrer">
+
+<strong>GX8aFesXQAAteeO.jpg</strong> (746.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-21 18:13 上传
+

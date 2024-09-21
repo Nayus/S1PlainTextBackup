@@ -1361,3 +1361,13 @@ FE说白了就是菌鸽鸽啥时候不惦记他那破民科设定，这故事才
 说等“数月”之后会有free本233</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">被动一键切换什么时候出！
 
+
+*****
+
+####  cenhr  
+##### 14740#       发表于 2024-9-21 18:08
+
+所以OC1成为了AE，OC2体验了复仇者阶卡，OC3当了月癌，那么OC4将会当裁，OC5当外星人？
+
+期望能变成万圣节时的羊恶魔上战场折磨玩家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

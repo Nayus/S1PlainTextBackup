@@ -1640,3 +1640,14 @@ FE说白了就是菌鸽鸽啥时候不惦记他那破民科设定，这故事才
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奏3打月癌我高宝金钻头和景虎从头打到尾，好用
 
+
+*****
+
+####  cenhr  
+##### 14763#       发表于 2024-9-22 02:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66269347&amp;ptid=2084912" target="_blank">v22325 发表于 2024-9-22 02:00</a>
+
+奏3打月癌我高宝金钻头和景虎从头打到尾，好用</blockquote>
+没谦信，但金钻头真的太好用了。另外助战的兽艾丽也不错<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

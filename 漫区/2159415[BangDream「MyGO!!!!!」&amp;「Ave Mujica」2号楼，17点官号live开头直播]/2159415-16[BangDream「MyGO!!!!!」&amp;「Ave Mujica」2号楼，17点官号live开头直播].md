@@ -11385,3 +11385,20 @@ i83的声线真的很适合ether的前半段，这旋律太平了就需要这么
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  御幸一也  
+##### 23243#       发表于 2024-9-22 02:08
+
+ 本帖最后由 御幸一也 于 2024-9-22 02:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66268289&amp;ptid=2159415" target="_blank">亚瑟邓特 发表于 2024-9-21 23:29</a>
+
+群里刷到图立刻点进楼里
+
+—— 来自 鹅球 v3.2.91</blockquote>
+泥樓根本不太聊羊宮，你應該去的是：
+
+s1 羊宫妃那真爱楼
+[https://bbs.saraba1st.com/2b/thread-2170136-1-1.html](https://bbs.saraba1st.com/2b/thread-2170136-1-1.html)
+

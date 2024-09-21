@@ -11295,3 +11295,20 @@ https://b23.tv/vGc7Dib</blockquote>
 
 在看台中间，感觉羊一首歌里能有半首的声音被盖掉（其他人都还好）。总之听感还没比过去年楼下BW的天音妹妹。在四叶草待了几个小时，主要就看个氛围吧<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 23233#       发表于 2024-9-21 23:50
+
+之前你鸡不是翻唱过ds么
+
+希望武藏野萝客场也唱一次ds，好久没听现场版了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 23234#       发表于 2024-9-21 23:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实我更想看r会翻唱鸡的什么歌，这俩团互相翻唱太合适了
+

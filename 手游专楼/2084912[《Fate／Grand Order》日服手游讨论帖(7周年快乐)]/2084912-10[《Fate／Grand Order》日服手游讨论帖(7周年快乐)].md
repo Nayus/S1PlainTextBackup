@@ -1446,3 +1446,48 @@ FE说白了就是菌鸽鸽啥时候不惦记他那破民科设定，这故事才
 
 千利休又10连抽到了……最近太欧有点害怕……
 
+
+*****
+
+####  TheLoof  
+##### 14748#       发表于 2024-9-21 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66265583&amp;ptid=2084912" target="_blank">大十字紅朔 发表于 2024-9-21 17:34</a>
+
+要说这个的话社会学上也是
+
+造AI的技术和原材料又不是无限的，本来绕不开资源垄断，分配，阶级，‌‌剥削 ...</blockquote>
+阿菌对社会架构的概念大概就是
+
+有个英明的领导人社会就会变得更好
+
+那有了一个愿意加班的领导人后如何创造新的危机呢，机械降神/降天灾/降傻逼
+
+从goa到fex到2.6到奏章3一脉相承，原汁原味
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+这也是大家都搞不明白，为什么阿菌笔下的队长三观会如此的正常
+
+仿佛中二病醒了以后创作出来的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  eilot  
+##### 14749#       发表于 2024-9-21 23:56
+
+先不問殺生院是否洗白
+
+但先是首3回合完全無傷，10回合無敵+無敵貫通和每回合全員NP-20%，而且這關只是要用5點體力還以為是劇情關來...
+
+岸野是能破無敵但本身傷害是低得可憐
+
+第一次打還要BREAK兩次?
+
+就已經非常噁心
+
+最後都是吃靈脈石懶得再想...
+
+一直都是鎖角色來打，大鑽頭何時才能再出場啊...
+

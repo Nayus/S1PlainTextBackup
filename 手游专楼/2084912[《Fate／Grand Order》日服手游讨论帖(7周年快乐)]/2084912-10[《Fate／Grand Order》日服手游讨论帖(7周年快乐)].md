@@ -1248,3 +1248,11 @@ FE我全都玩了的人感觉这次剧情……一般
 这牢白丢进友情池是真变态吧，抽的都要冒烟了全是小安莉莉跟哈贝</blockquote>
 下个月要pick up的
 
+
+*****
+
+####  森兰丸  
+##### 14730#       发表于 2024-9-21 16:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">卧槽这双扎比还有合体宝具啊.....不知道等以后玩家让双扎比上场后也能不能用
+

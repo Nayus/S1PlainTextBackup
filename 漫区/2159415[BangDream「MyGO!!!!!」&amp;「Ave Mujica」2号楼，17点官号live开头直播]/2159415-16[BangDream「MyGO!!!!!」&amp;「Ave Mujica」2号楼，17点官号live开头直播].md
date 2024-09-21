@@ -11402,3 +11402,23 @@ i83的声线真的很适合ether的前半段，这旋律太平了就需要这么
 s1 羊宫妃那真爱楼
 [https://bbs.saraba1st.com/2b/thread-2170136-1-1.html](https://bbs.saraba1st.com/2b/thread-2170136-1-1.html)
 
+
+*****
+
+####  adcdqre  
+##### 23244#       发表于 2024-9-22 02:40
+
+轮不到泥楼烤等过几天gop觉得羊挡路了又会羊变成路边
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  zackAlove  
+##### 23245#       发表于 2024-9-22 02:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66269261&amp;ptid=2159415" target="_blank">stygian 发表于 2024-9-22 01:42</a>
+
+我看repo说内场还是有空座？</blockquote>
+有的，我后面那排有2个空座位，大概是18排还是19排。
+

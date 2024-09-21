@@ -1651,3 +1651,16 @@ FE说白了就是菌鸽鸽啥时候不惦记他那破民科设定，这故事才
 奏3打月癌我高宝金钻头和景虎从头打到尾，好用</blockquote>
 没谦信，但金钻头真的太好用了。另外助战的兽艾丽也不错<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TheLoof  
+##### 14764#       发表于 2024-9-22 02:40
+
+其实全程都可以贞德+琼安+虎小姐一路碾过去，无非是大部分人凑不齐
+
+三个人一路就是出星暴击宝具，单体群体辅助宝具全齐，虎小姐高回转蓝卡难得有用一次
+
+根本问题还是强锁助战白野和玛修严重拖慢了过本速度，导致扔灵脉石都得等换人CD
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

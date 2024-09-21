@@ -1430,3 +1430,11 @@ FE说白了就是菌鸽鸽啥时候不惦记他那破民科设定，这故事才
 还是比2.6参与感强一点</blockquote>
 多了不止一倍<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 14746#       发表于 2024-9-21 21:57
+
+5宝抽完了，才知道会有UP<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -11051,3 +11051,28 @@ live才见真水平，杨姐确实不得行
 
 虹馆音响垃圾是人尽皆知的事了<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  仟音一心  
+##### 23207#       发表于 2024-9-21 21:46
+
+<img src="https://p.sda1.dev/19/625d514f4129729eaeca343a59becf25/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 23208#       发表于 2024-9-21 21:50
+
+原来是有趣的女人吗 窝根本没听懂她说了两遍说的啥
+
+*****
+
+####  rossokun  
+##### 23209#       发表于 2024-9-21 21:52
+
+羊姐最后那段mc真是神秘www
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

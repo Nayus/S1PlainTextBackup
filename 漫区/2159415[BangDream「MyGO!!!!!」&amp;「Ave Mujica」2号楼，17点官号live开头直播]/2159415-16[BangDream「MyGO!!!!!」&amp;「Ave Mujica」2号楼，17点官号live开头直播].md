@@ -10925,3 +10925,21 @@ go箱gbc联动上哪找个键盘手（
 live才见真水平，杨姐确实不得行
 乐器一响就听不见人声了，唱没唱确实分不出来
 
+
+*****
+
+####  akiomn  
+##### 23195#       发表于 2024-9-21 20:58
+
+ 本帖最后由 akiomn 于 2024-9-21 20:59 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以到底行不行，隔壁泥潭专楼我看都吹起来了，不过考虑到现地只要不是烂成东京zepp那样，好像很难说差，氛围能解决太多问题
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">不过还是等等下个月13的莱芜吧，不知道有没有新的情报，最好有新的动画pv
+
+*****
+
+####  skives  
+##### 23196#       发表于 2024-9-21 21:03
+
+听场地外直播唱的倒是挺有穿透力的
+

@@ -10837,3 +10837,39 @@ mygo活动始动不到一周就有角色翻唱，四个月就有小动画，八�
 
 go箱gbc联动上哪找个键盘手（
 
+
+*****
+
+####  PDQ4  
+##### 23186#       发表于 2024-9-21 12:51
+
+还是东映咖位大，倒计时竟然不是鼓手开始<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+估计后天是立希对486吧
+
+
+*****
+
+####  星天观测  
+##### 23187#       发表于 2024-9-21 12:55
+
+昨天不就是利息么<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+*****
+
+####  asion617  
+##### 23188#       发表于 2024-9-21 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66263892&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-9-21 12:51</a>
+
+还是东映咖位大，倒计时竟然不是鼓手开始
+
+估计后天是立希对486吧</blockquote>
+有没有一种可能, 倒计时昨天就开始了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  光MIKAN  
+##### 23189#       发表于 2024-9-21 12:57
+
+昨天就是立希啊<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">隔壁病休的两个成员回来了吗
+

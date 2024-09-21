@@ -10790,3 +10790,28 @@ mygo活动始动不到一周就有角色翻唱，四个月就有小动画，八�
 
 【梦以锐评母鸡卡一月动画-哔哩哔哩】 [https://b23.tv/XMfy253](https://b23.tv/XMfy253)
 
+
+*****
+
+####  rikaren  
+##### 23181#       发表于 2024-9-21 11:47
+
+<img src="https://img.saraba1st.com/forum/202409/21/114723qe8kaa15cbdkakht.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-09-21-11-47-10-05_0b2fce7a16bf2b728d6ffa28c8d60efb.jpg</strong> (311.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-21 11:47 上传
+
+联动人选公布了有千圣
+
+*****
+
+####  肛之练筋士  
+##### 23182#       发表于 2024-9-21 11:50
+
+<img src="https://p.sda1.dev/19/3870b3ffab377534e4005ceecd8d6826/CMP_20240921115032019.png" referrerpolicy="no-referrer">
+
+还是群友会缺德（x
+

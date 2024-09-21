@@ -5569,3 +5569,39 @@ pve开放以后就很少进pvp了
 
 刚刚，灭龙被奶啤暴揍，笑死
 
+
+*****
+
+####  shirolin  
+##### 5454#       发表于 2024-9-21 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66255685&amp;ptid=2150634" target="_blank">laosai13 发表于 2024-9-20 13:39</a>
+真格大会还是刺激，全世界都能参加吗？不知道决赛是不是线下的</blockquote>
+限日本地区。
+不过预选赛都能报名，进决赛就要提交身份材料和视频验证了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  shirolin  
+##### 5455#       发表于 2024-9-21 11:31
+
+<img src="https://img.saraba1st.com/forum/202409/21/113109dl4lya0ruxjhbz81.jpg" referrerpolicy="no-referrer">
+
+<strong>54bd9972-e581-4e05-84d5-e1a01b4a3042.jpg</strong> (743.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-21 11:31 上传
+
+<img src="https://img.saraba1st.com/forum/202409/21/113109ea5gz6ict0q5ctc0.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20240920_113140_549.png</strong> (551.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-21 11:31 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

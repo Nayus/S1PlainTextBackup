@@ -11198,3 +11198,23 @@ S1被黑得最慘的一次
 
 我是s1散装用户，不懂啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 23222#       发表于 2024-9-21 22:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">等十二月，很遗憾不是对邦，想看银河战舰的碰撞
+[https://b23.tv/vGc7Dib](https://b23.tv/vGc7Dib)
+
+*****
+
+####  skives  
+##### 23223#       发表于 2024-9-21 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66268080&amp;ptid=2159415" target="_blank">akiomn 发表于 2024-9-21 22:56</a>
+等十二月，很遗憾不是对邦，想看银河战舰的碰撞
+https://b23.tv/vGc7Dib</blockquote>
+这首真的很好
+关键是全员都有唱段 太难得了
+

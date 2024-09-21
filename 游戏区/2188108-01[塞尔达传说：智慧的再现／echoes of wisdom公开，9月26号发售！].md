@@ -713,3 +713,13 @@ Sound Director/音效总监: Yoshitak ...</blockquote>
 
 坚持到了发售前六天，在ns末期不错了
 
+
+*****
+
+####  牛肉粉小煎包  
+##### 637#       发表于 2024-9-21 23:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">作为一个不喜欢2D塞只喜欢老3D塞的玩家（哪怕三角力量2和织梦岛我也觉没意思），这一作真是太好了，虽然我的NS已经坏了，但还是准备买一份实体版收藏了。没有下手的可以无脑入了，真正的集大成之作，我爱你任天堂！
+
+—— 来自 HUAWEI CET-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

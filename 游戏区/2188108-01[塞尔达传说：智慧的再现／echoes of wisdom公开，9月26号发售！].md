@@ -705,3 +705,11 @@ Sound Director/音效总监: Yoshitak ...</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  墨染白泉  
+##### 636#       发表于 2024-9-21 20:16
+
+坚持到了发售前六天，在ns末期不错了
+

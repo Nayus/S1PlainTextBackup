@@ -691,3 +691,17 @@ Producer/制作人: Eiji Aonuma/青沼英二
 
 起码音乐方面全是EPD负责的
 
+
+*****
+
+####  kuarwbwe  
+##### 635#       发表于 2024-9-21 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66266072&amp;ptid=2188108" target="_blank">JOJOROY 发表于 2024-9-21 18:44</a>
+Directors/总监: Satoshi Terada (Grezzo), Tomomi Sano/佐野友美(EPD)
+
+Sound Director/音效总监: Yoshitak ...</blockquote>
+制作人青沼是吧。他怕不是又是王泪、智杖俩工作室两头跑。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

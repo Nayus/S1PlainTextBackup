@@ -529,3 +529,24 @@ yuzu搞王泪那事在前 估计也没什么人赶着触霉头？
 
 楼里有没有预购卡带的，在哪里买坑比较少
 
+
+*****
+
+####  医生狼多  
+##### 620#         楼主| 发表于 2024-9-21 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66265055&amp;ptid=2188108" target="_blank">両津勘吉 发表于 2024-9-21 16:13</a>
+楼里有没有预购卡带的，在哪里买坑比较少</blockquote>
+pdd百亿补贴有香港发货的，相对便宜些
+求问就墨策 2000fun那里买，缺点是价格高点加慢
+
+*****
+
+####  heseran  
+##### 621#       发表于 2024-9-21 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66265101&amp;ptid=2188108" target="_blank">医生狼多 发表于 2024-9-21 16:20</a>
+pdd百亿补贴有香港发货的，相对便宜些
+求问就墨策 2000fun那里买，缺点是价格高点加慢 ...</blockquote>
+听这意思是pdd的香港发货比墨策2000fun快吗？没在pdd买过
+

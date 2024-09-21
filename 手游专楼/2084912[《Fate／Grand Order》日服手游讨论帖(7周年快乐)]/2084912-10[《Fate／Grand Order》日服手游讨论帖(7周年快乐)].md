@@ -1231,3 +1231,20 @@ FE我全都玩了的人感觉这次剧情……一般
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">嚯，因为不是咕哒召唤没法自行退去的安徒生在废墟里捡到了藤蔓糖果，下一个活动能不能见一见大人安徒生
 
+
+*****
+
+####  大十字紅朔  
+##### 14728#       发表于 2024-9-21 16:17
+
+不说我都忘记了，现在都是BBBB的，白樱完全没了啊
+
+*****
+
+####  ggyy0088  
+##### 14729#       发表于 2024-9-21 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66264374&amp;ptid=2084912" target="_blank">reidel 发表于 2024-9-21 14:15</a>
+这牢白丢进友情池是真变态吧，抽的都要冒烟了全是小安莉莉跟哈贝</blockquote>
+下个月要pick up的
+

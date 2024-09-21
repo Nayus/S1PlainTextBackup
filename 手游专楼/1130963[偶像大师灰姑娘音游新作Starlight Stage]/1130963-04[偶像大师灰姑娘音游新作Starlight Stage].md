@@ -19,3 +19,11 @@
 更新出bug是为了刷K ...</blockquote>
 原来的运营项是很多天的换一轮，现在全改成一天，我觉得是故意的
 
+
+*****
+
+####  a1370303  
+##### 5455#       发表于 2024-9-21 12:02
+
+营业这个改版属实是没活硬整，可能是为了凑周年的更新吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

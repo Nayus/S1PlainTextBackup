@@ -10338,3 +10338,40 @@ Q})W`9]XT0ZOM]BRMSL7Y@I.jpg
 
 据说最后3天开始每天延长到27点结束不知道是不是真的反正miko今天没说这回事，估计晚上要商量吧
 
+
+*****
+
+####  holoan  
+##### 9741#         楼主| 发表于 2024-9-21 11:19
+
+今天凌晨的leader会议甚至开了快3小时，而且市民侧有多人参加
+
+<img src="https://img.saraba1st.com/forum/202409/21/111628p0ooc8si4up3fino.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (18.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-21 11:16 上传
+
+看看今天有什么调整吧
+
+syl今晚live是全程收录的（kananta直接来了一个21点的窗），那看来今晚直播应该问题不大
+
+*****
+
+####  holoan  
+##### 9742#         楼主| 发表于 2024-9-21 12:01
+
+<img src="https://img.saraba1st.com/forum/202409/21/120047f1gac11xgrxsc1al.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (9.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-21 12:00 上传
+
+剩下3天还有新人加入了我也是震惊了
+
+不过看起来应该也是市民吧，看看能干什么
+

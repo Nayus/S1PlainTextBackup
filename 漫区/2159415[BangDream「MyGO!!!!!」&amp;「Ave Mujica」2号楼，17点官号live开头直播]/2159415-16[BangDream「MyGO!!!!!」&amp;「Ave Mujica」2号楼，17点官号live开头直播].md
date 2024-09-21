@@ -11422,3 +11422,13 @@ s1 羊宫妃那真爱楼
 我看repo说内场还是有空座？</blockquote>
 有的，我后面那排有2个空座位，大概是18排还是19排。
 
+
+*****
+
+####  後藤正文  
+##### 23246#       发表于 2024-9-22 04:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66269261&amp;ptid=2159415" target="_blank">stygian 发表于 2024-9-22 01:42</a>
+我看repo说内场还是有空座？</blockquote>
+前区11排有4个连坐空位，位子上也无特典，都在调侃是不是关系者席
+

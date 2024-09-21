@@ -1419,3 +1419,14 @@ FE说白了就是菌鸽鸽啥时候不惦记他那破民科设定，这故事才
 顺便 新 ...</blockquote>
 还是比2.6参与感强一点
 
+
+*****
+
+####  cenhr  
+##### 14745#       发表于 2024-9-21 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66265986&amp;ptid=2084912" target="_blank">大十字紅朔 发表于 2024-9-21 18:30</a>
+
+还是比2.6参与感强一点</blockquote>
+多了不止一倍<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

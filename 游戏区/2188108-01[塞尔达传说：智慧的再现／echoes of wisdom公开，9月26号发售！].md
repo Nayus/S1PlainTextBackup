@@ -660,3 +660,34 @@ pdd百亿补贴有香港发货的，相对便宜些
 —— 来自 鹅球 v3.1.91-alpha</blockquote>
 没有本体只有补丁
 
+
+*****
+
+####  mamamiya  
+##### 633#       发表于 2024-9-21 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66265987&amp;ptid=2188108" target="_blank">位面农场 发表于 2024-9-21 18:30</a>
+没有本体只有补丁</blockquote>
+本体5.41g
+
+*****
+
+####  JOJOROY  
+##### 634#       发表于 2024-9-21 18:44
+
+Directors/总监: Satoshi Terada (Grezzo), Tomomi Sano/佐野友美(EPD)
+
+Sound Director/音效总监: Yoshitaka Fujita
+
+Music Director/音乐总监: Hajime Wakai/若井淑
+
+Music/音乐: Masato Ohashi/大橋 征人,  Manaka Kataoka/片岡 真央, Chisaki Hosaka, Reika Nakai/中井 伶香
+
+Project Coordination/项目协调: Tomohiro Yamamura/山村知弘, Mitsuo Iwamoto
+
+Assistant Producer/助理制作人: Daiki Iwamoto/岩本大贵
+
+Producer/制作人: Eiji Aonuma/青沼英二
+
+起码音乐方面全是EPD负责的
+

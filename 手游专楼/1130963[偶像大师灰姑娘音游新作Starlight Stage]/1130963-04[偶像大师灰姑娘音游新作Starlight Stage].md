@@ -27,3 +27,13 @@
 
 营业这个改版属实是没活硬整，可能是为了凑周年的更新吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  klushyo  
+##### 5456#       发表于 2024-9-21 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66260645&amp;ptid=1130963" target="_blank">darkangel0224 发表于 2024-9-20 22:21</a>
+这兰子好难出啊。大号近200多抽不出，开小号30抽出了，淦</blockquote>
+吐血，290出了…再井个芙芙芙吧…
+

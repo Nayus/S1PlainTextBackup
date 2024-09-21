@@ -1137,3 +1137,11 @@ FEX联动（确信）<img src="https://static.saraba1st.com/image/smiley/face201
 
 冷静下来看，这次就是把切断原因打到没有切断，好淳朴的方法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  reidel  
+##### 14720#       发表于 2024-9-21 14:15
+
+这牢白丢进友情池是真变态吧，抽的都要冒烟了全是小安莉莉跟哈贝
+

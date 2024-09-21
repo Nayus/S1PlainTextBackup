@@ -11368,3 +11368,20 @@ i83的声线真的很适合ether的前半段，这旋律太平了就需要这么
 
 我看repo说内场还是有空座？
 
+
+*****
+
+####  akiomn  
+##### 23241#       发表于 2024-9-22 01:50
+
+按照mygo看，在动画前只有一首迷星叫进了动画。mujica现在只有一首同名团歌，估计还有一堆曲子都藏到动画里了，而且也不确定有没有另外的类似迷星叫这样的团歌藏着
+
+*****
+
+####  Toki_Ai  
+##### 23242#       发表于 2024-9-22 01:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

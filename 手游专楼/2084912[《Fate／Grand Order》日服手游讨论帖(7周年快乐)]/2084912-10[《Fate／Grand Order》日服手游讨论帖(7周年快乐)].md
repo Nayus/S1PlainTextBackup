@@ -1606,3 +1606,29 @@ FE说白了就是菌鸽鸽啥时候不惦记他那破民科设定，这故事才
 你游运营是不是难得高情商一次放着不管了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">不是早就修了？
 
+
+*****
+
+####  jackyhuang  
+##### 14760#       发表于 2024-9-22 01:49
+
+月癌打烦了扔石头过了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+绑两个前排，关键伤害还刮痧是不是过分了点
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+
+
+*****
+
+####  jackyhuang  
+##### 14761#       发表于 2024-9-22 01:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66268523&amp;ptid=2084912" target="_blank">eilot 发表于 2024-9-21 23:56</a>
+先不問殺生院是否洗白
+
+但先是首3回合完全無傷，10回合無敵+無敵貫通和每回合全員NP-20%，而且這關只是要用5 ...</blockquote>
+等三个回合她变完身丢个强化解除不就好了，没有高星的幼帝总有吧
+第二次用强制前排的BB的就行了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

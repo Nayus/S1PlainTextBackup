@@ -1191,3 +1191,14 @@ FEX联动（确信）<img src="https://static.saraba1st.com/image/smiley/face201
 
 我还挺喜欢CCC的BB的，但是我讨厌杀生院
 
+
+*****
+
+####  cenhr  
+##### 14725#       发表于 2024-9-21 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66264629&amp;ptid=2084912" target="_blank">高木なつめ 发表于 2024-9-21 15:01</a>
+
+我还挺喜欢CCC的BB的，但是我讨厌杀生院</blockquote>
+一直都是讨厌妖婆
+

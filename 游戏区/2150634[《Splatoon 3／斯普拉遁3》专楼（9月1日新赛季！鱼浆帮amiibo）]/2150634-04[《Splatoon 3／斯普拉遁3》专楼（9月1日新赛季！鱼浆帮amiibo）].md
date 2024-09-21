@@ -5605,3 +5605,16 @@ pve开放以后就很少进pvp了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  laosai13  
+##### 5456#       发表于 2024-9-21 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66263407&amp;ptid=2150634" target="_blank">shirolin 发表于 2024-9-21 11:30</a>
+
+限日本地区。
+
+不过预选赛都能报名，进决赛就要提交身份材料和视频验证了。</blockquote>
+哦哦那看起来欧美队没办法报名了，看不到日本大战欧美，国内估计也没办法
+

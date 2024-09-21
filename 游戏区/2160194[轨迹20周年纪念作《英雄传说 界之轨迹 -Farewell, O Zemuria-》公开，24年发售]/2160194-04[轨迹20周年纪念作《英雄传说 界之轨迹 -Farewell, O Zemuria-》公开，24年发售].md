@@ -11083,3 +11083,11 @@ MD学妹胸部黑丝都要爆出来了，给我去掉胸部装甲啊
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  Squall25  
+##### 5553#       发表于 2024-9-21 10:09
+
+我记得我黎2还抨击共和国篇战技一坨，辅助技能都没几个，要么就是抠门的要死（比如艾蕾因几个战技的buff），结果界轨一下子各种buff，debuff一下子上好几个还全是大<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">确实有种脚填数值的感觉。反正我没意见好吧。也不太可能做的比黎2还更臭了。回头游戏发售看看被动是不是还那老三样
+

@@ -1145,3 +1145,26 @@ FEX联动（确信）<img src="https://static.saraba1st.com/image/smiley/face201
 
 这牢白丢进友情池是真变态吧，抽的都要冒烟了全是小安莉莉跟哈贝
 
+
+*****
+
+####  reidel  
+##### 14721#       发表于 2024-9-21 14:24
+
+<img src="https://img.saraba1st.com/forum/202409/21/142418empx5pm8kxmg5oax.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240921142404.png</strong> (164.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-21 14:24 上传
+
+真冒烟了
+
+*****
+
+####  cenhr  
+##### 14722#       发表于 2024-9-21 14:26
+
+为什么不等10月 pick up？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

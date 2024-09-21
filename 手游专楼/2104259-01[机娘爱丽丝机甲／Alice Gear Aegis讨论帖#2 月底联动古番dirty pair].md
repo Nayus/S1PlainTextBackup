@@ -125,3 +125,17 @@ FY07 8UAN GNAC 6NA2
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  冰风血羽  
+##### 1214#       发表于 2024-9-21 19:09
+
+ 本帖最后由 冰风血羽 于 2024-9-21 19:13 编辑 
+
+为啥扭蛋会出重复啊（打滚
+綾香的妹抖装<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+之前活动不是有抽到就剔除出池子的机制吗这次怎么没了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

@@ -586,3 +586,14 @@ pdd百亿补贴有香港发货的，相对便宜些
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  雾时  
+##### 626#       发表于 2024-9-21 17:36
+
+ 本帖最后由 雾时 于 2024-9-21 17:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66265244&amp;ptid=2188108" target="_blank">医生狼多 发表于 2024-9-21 16:45</a>
+看商家吧，快点的话基本能发售当天发</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我之前墨策订过几次首发游戏，都是发售前就发货了，算上运输时间的话 发售后第二天就拿到了。要是广东的玩家估计发售日就能玩上了
+

@@ -1393,3 +1393,29 @@ FE说白了就是菌鸽鸽啥时候不惦记他那破民科设定，这故事才
 说等“数月”之后会有free本233</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">还在等运营发杯子和英灵币
 
+
+*****
+
+####  森兰丸  
+##### 14743#       发表于 2024-9-21 18:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">趁刚看完还没忘记继续吐槽下剧情几个点
+
+咕嗒说了プタ和霸王花是不同的存在....可是プタ都已经成了霸王花的灵衣了啊....宝具的语音也没改
+
+结局最后藤蔓也几乎是肯定要来你伽了....不过奏3里也都没洗白过不知道会不会配合落地再出一小段剧情
+
+可是想到当初杀生院也是直接没有任何洗白直接就落地了也不好说....藤蔓干的那些破事怎么也比不上杀生院吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大十字紅朔  
+##### 14744#       发表于 2024-9-21 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66265876&amp;ptid=2084912" target="_blank">仰望神的括约肌 发表于 2024-9-21 18:16</a>
+
+后篇金钻头从头杀到尾 算是本人这次mvp 剧情感觉中规中矩 没整烂活 但总有一种“关我鸟事”的感觉
+
+顺便 新 ...</blockquote>
+还是比2.6参与感强一点
+

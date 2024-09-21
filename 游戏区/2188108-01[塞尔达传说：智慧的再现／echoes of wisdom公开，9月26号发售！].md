@@ -626,3 +626,37 @@ pdd百亿补贴有香港发货的，相对便宜些
 我之前墨策订过几次首发游戏，都是发售前就发货了，算上运输时间的话 发售后第二天就拿到了。要是广东的 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">怎么我每次买清关都要好久
 
+
+*****
+
+####  leonlink  
+##### 630#       发表于 2024-9-21 18:26
+
+听说ROM已经正式泄露了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  SergeGlenn  
+##### 631#       发表于 2024-9-21 18:29
+
+<blockquote>leonlink 发表于 2024-9-21 18:26
+听说ROM已经正式泄露了
+
+—— 来自 鹅球 v3.1.91-alpha</blockquote>
+4chan上有个人拿到卡带把本体上传了，之前只有1.01补丁
+
+
+*****
+
+####  位面农场  
+##### 632#       发表于 2024-9-21 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66265961&amp;ptid=2188108" target="_blank">leonlink 发表于 2024-9-21 18:26</a>
+
+听说ROM已经正式泄露了
+
+—— 来自 鹅球 v3.1.91-alpha</blockquote>
+没有本体只有补丁
+

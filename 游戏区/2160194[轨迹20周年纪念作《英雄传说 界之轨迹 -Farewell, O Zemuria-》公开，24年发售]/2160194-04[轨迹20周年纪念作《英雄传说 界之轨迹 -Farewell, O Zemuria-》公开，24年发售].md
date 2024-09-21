@@ -11422,3 +11422,27 @@ pv亡啦
 
 2024-9-22 01:04 上传
 
+
+*****
+
+####  ravend233  
+##### 5589#       发表于 2024-9-22 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66269020&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-9-22 01:00</a>
+桃花剑那个我觉得不行，葱头那个可以，希望师姐新s和师傅的s别拉了</blockquote>
+师姐真的会有第二个s吗））感觉有第二个s的就事务所前四人（
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  洛克萨斯  
+##### 5590#       发表于 2024-9-22 01:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66269074&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-22 01:08</a>
+
+师姐真的会有第二个s吗））感觉有第二个s的就事务所前四人（
+
+—— 来自 鹅球 v3.0.0.82-alpha ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得她应该有点内部爱的，大概率有两个s
+

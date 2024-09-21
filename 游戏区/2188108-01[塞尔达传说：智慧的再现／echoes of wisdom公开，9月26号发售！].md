@@ -806,3 +806,28 @@ b站有开始偷跑直播的了。在意游戏体验的注意避让。<img src="
 作为一个不喜欢2D塞只喜欢老3D塞的玩家（哪怕三角力量2和织梦岛我也觉没意思），这一作真是太好了，虽然我 ...</blockquote>
 迷宫怎么样，我最关心这个
 
+
+*****
+
+####  usodakedo  
+##### 647#       发表于 2024-9-22 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66268136&amp;ptid=2188108" target="_blank">牛肉粉小煎包 发表于 2024-9-21 23:06</a>
+玩了一晚上了，多的就不透露了，反正我觉得非常好。
+
+—— 来自 HUAWEI CET-AL00, Android 12上的 S1Next ...</blockquote>
+直接问一句，你觉得在2d赛里能排第几，迷宫设计咋样（这应该不涉及剧透吧）
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  牛肉粉小煎包  
+##### 648#       发表于 2024-9-22 01:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66268911&amp;ptid=2188108" target="_blank">nma 发表于 2024-9-22 00:42</a>
+你这来一句集大成有点惊悚而不是惊喜了啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">绝对是惊喜，你玩过的塞尔达越多惊喜就越多
+
+—— 来自 HUAWEI CET-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

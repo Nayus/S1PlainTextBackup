@@ -10976,3 +10976,16 @@ MD学妹胸部黑丝都要爆出来了，给我去掉胸部装甲啊
 围观了e大师粉丝舌战群儒狂吹盟主立绘比创强 也是神人了</blockquote>
 有古战场遗迹吗
 
+
+*****
+
+####  凉良  
+##### 5542#       发表于 2024-9-21 08:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66262411&amp;ptid=2160194" target="_blank">卡拉德利姆 发表于 2024-9-21 07:54</a>
+
+有古战场遗迹吗</blockquote>
+[https://www.bilibili.com/video/BV1Bd4y1U7yN/](https://www.bilibili.com/video/BV1Bd4y1U7yN/)
+
+评论区那个36D像素 昨天还在吵架呢。
+

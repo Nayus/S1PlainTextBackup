@@ -5618,3 +5618,13 @@ pve开放以后就很少进pvp了
 不过预选赛都能报名，进决赛就要提交身份材料和视频验证了。</blockquote>
 哦哦那看起来欧美队没办法报名了，看不到日本大战欧美，国内估计也没办法
 
+
+*****
+
+####  Dedalus  
+##### 5457#       发表于 2024-9-21 22:19
+
+原来祭典会场发生了火灾啊，演出时台下几百几千鱿就只是看着？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -11324,3 +11324,17 @@ pv亡啦
 
 剪不剪PV有区别么？你不会有人会看了这PV以后会激动得去买吧？
 
+
+*****
+
+####  ravend233  
+##### 5580#       发表于 2024-9-21 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66267319&amp;ptid=2160194" target="_blank">椎名mahuyo 发表于 2024-9-21 21:27</a>
+剪不剪PV有区别么？你不会有人会看了这PV以后会激动得去买吧？</blockquote>
+这就属于一个正常来说该有的东西没有了，真要说有没有用，那以目前轨的情况大概率是没用
+
+差不多就是面子工程都不想做了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

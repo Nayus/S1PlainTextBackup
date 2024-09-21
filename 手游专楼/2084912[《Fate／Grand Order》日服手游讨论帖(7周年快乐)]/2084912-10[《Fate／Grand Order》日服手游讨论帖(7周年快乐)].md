@@ -1491,3 +1491,11 @@ FE说白了就是菌鸽鸽啥时候不惦记他那破民科设定，这故事才
 
 一直都是鎖角色來打，大鑽頭何時才能再出場啊...
 
+
+*****
+
+####  alucardcz  
+##### 14750#       发表于 2024-9-21 23:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">殺生院宝具能回退吗？ 只有我觉得这新宝具很 sha bi吗？  cutin人物比例都怪怪的
+

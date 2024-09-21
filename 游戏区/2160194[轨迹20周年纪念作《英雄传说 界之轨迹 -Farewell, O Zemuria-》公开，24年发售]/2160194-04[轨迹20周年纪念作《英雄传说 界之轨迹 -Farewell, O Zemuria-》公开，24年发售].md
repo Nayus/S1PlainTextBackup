@@ -11145,3 +11145,22 @@ MD学妹胸部黑丝都要爆出来了，给我去掉胸部装甲啊
 双子妹是共和国黑兔吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看起来是想路径复刻了，能不能成就鬼知道了，目前看起来人气是相当一般的
 
+
+*****
+
+####  卢迪克  
+##### 5560#       发表于 2024-9-21 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66263921&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-21 12:56</a>
+
+看起来是想路径复刻了，能不能成就鬼知道了，目前看起来人气是相当一般的 ...</blockquote>
+不是白毛，应该让金兔上
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 5561#       发表于 2024-9-21 13:08
+
+难咯，首先直接把杀人场面给玩家看，手上就脏了，而且和雄小鬼哥哥绑定风评被害。
+

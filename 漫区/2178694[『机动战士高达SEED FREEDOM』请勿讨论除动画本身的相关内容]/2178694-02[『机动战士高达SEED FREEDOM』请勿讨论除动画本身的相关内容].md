@@ -74,3 +74,11 @@
 マイティーストライクフリーダム
 <img src="https://p.sda1.dev/19/f4667460dfed1f71b689ee79e0b2ad0b/20240920_214556.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shinnluna  
+##### 1957#       发表于 2024-9-21 13:14
+
+听说新剧情里，K问L你那个驾驶服怎么回事，L说是鲁鲁修准备的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

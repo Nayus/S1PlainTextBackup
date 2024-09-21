@@ -1664,3 +1664,18 @@ FE说白了就是菌鸽鸽啥时候不惦记他那破民科设定，这故事才
 根本问题还是强锁助战白野和玛修严重拖慢了过本速度，导致扔灵脉石都得等换人CD
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DARKGRAY  
+##### 14765#       发表于 2024-9-22 03:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66268609&amp;ptid=2084912" target="_blank">Niu 发表于 2024-9-22 00:06</a>
+
+單純想說忌妒是罪惡吧。
+
+這些月球人類是因為不想看見比自己優秀的新種所以開始自閉導致人類慢慢壞死。
+
+然 ...</blockquote>
+直接全体不当人和甚至想出灵魂数据化也要当人当到底还是有差距的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

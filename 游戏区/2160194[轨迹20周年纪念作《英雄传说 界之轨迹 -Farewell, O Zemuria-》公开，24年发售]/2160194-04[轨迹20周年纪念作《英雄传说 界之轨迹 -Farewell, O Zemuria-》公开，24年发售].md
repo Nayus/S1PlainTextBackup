@@ -11338,3 +11338,21 @@ pv亡啦
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  新世界的派蒙  
+##### 5581#       发表于 2024-9-21 22:46
+
+我猜会做一个售前PV放在发售日前发吧，说实话内心不太想要PV，每次看完PV会想肯定不止就这，但是打完游戏发现好像真的就这<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Falcomfans  
+##### 5582#       发表于 2024-9-21 22:54
+
+阿龙这个新S技真不是在捏他阿克塞尔吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[https://b23.tv/farVHiY](https://b23.tv/farVHiY)
+

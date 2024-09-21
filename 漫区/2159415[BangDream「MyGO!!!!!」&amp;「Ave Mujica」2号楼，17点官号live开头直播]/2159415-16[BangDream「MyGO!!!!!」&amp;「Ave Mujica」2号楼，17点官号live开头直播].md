@@ -11173,3 +11173,28 @@ BA[CC)BT`~DQ%N65@_X[~)1.jpg
 
 <img src="https://img.saraba1st.com/forum/202409/21/222845wxc5lskb6gmcg3k1.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  128  
+##### 23219#       发表于 2024-9-21 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66267889&amp;ptid=2159415" target="_blank">RPG-7 发表于 2024-9-21 22:28</a>
+
+群里看到的</blockquote>
+甚至后面还有邦邦龙虾和羊什么什么东西的，太紧扣主题了吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 23220#       发表于 2024-9-21 22:52
+
+S1被黑得最慘的一次
+
+*****
+
+####  星天观测  
+##### 23221#       发表于 2024-9-21 22:53
+
+我是s1散装用户，不懂啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

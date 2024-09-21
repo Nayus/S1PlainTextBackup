@@ -452,3 +452,18 @@ PC党也不要指望mod了，当初玩DAI两百个小时+重度mod患者，DAI�
 
 比如已经确定牛头和前代的哈丁就是系统内定的
 
+
+*****
+
+####  herryk159  
+##### 557#       发表于 2024-9-21 08:18
+
+不敢想发售后到底有多少乐子<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">，狠狠地期待了
+
+*****
+
+####  卡拉德利姆  
+##### 558#       发表于 2024-9-21 08:21
+
+二十年前的bioware有多是我的白月光 现在就有多希望炸个大的
+

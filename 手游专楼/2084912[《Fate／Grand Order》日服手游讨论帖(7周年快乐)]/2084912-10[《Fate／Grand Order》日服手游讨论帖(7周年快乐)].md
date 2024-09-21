@@ -1582,3 +1582,27 @@ FE说白了就是菌鸽鸽啥时候不惦记他那破民科设定，这故事才
 
 你游运营是不是难得高情商一次放着不管了
 
+
+*****
+
+####  angelooo  
+##### 14758#       发表于 2024-9-22 01:22
+
+<blockquote>RiesbyfeAtlasia 发表于 2024-9-22 01:14
+突然想起来 北斋强化本是不是有个良性bug来着
+
+你游运营是不是难得高情商一次放着不管了 ...</blockquote>
+你在说什么东西，这个bug早就已经修复了23333
+
+*****
+
+####  alucardcz  
+##### 14759#       发表于 2024-9-22 01:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66269115&amp;ptid=2084912" target="_blank">RiesbyfeAtlasia 发表于 2024-9-22 01:14</a>
+
+突然想起来 北斋强化本是不是有个良性bug来着
+
+你游运营是不是难得高情商一次放着不管了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">不是早就修了？
+

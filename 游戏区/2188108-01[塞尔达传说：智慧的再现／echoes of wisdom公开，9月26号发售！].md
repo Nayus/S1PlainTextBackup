@@ -831,3 +831,17 @@ b站有开始偷跑直播的了。在意游戏体验的注意避让。<img src="
 
 —— 来自 HUAWEI CET-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  牛肉粉小煎包  
+##### 649#       发表于 2024-9-22 01:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66269066&amp;ptid=2188108" target="_blank">usodakedo 发表于 2024-9-22 01:07</a>
+直接问一句，你觉得在2d赛里能排第几，迷宫设计咋样（这应该不涉及剧透吧）
+
+—— 来自 S1Fun ...</blockquote>
+不用思考，第一。迷宫内容方面的东西还是自己体验吧，不要做任何预设期待。有一点可以说的是如果喜欢微观模型一类的东西，这游戏看屋子里的小碗小勺都能开心看半天。
+
+—— 来自 HUAWEI CET-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

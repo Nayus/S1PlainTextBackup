@@ -11331,3 +11331,32 @@ i83的声线真的很适合ether的前半段，这旋律太平了就需要这么
 
 个人私心希望是以太
 
+
+*****
+
+####  PDQ4  
+##### 23237#       发表于 2024-9-22 01:14
+
+说不定动画会有一手嗨到爆的曲子呢<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 23238#       发表于 2024-9-22 01:18
+
+把所有给mujica画过曲绘的画师都关注了
+有时间分析一下（有个人居然只有80多个粉丝 真的惊了）
+另外长谷川供的曲也太多了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">supa love其他人都是一人一首 长谷川现在都5首了
+
+*****
+
+####  adcdqre  
+##### 23239#       发表于 2024-9-22 01:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66262153&amp;ptid=2159415" target="_blank">sadakawa 发表于 2024-09-21 03:42:10</a>
+因为明天要去看演唱会所以这两天突击补习了这部动画，之前从来没有接触过邦邦
+
+看到最后好想吐槽这个衣品好 ...</blockquote>本作要说有主角团也只能是PoppinParty
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

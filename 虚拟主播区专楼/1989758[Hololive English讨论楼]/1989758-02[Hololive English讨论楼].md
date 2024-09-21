@@ -22,3 +22,14 @@ It's ameover
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">连续两个月，我承受不住啊
 
+
+*****
+
+####  PureIllusion  
+##### 1984#       发表于 2024-9-21 22:39
+
+yet another gurame /u/schizo
+
+Gurame Soundpost Archive
+[https://rentry.org/Gurame-Soundpost-Archive](https://rentry.org/Gurame-Soundpost-Archive)
+

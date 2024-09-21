@@ -139,3 +139,16 @@ FY07 8UAN GNAC 6NA2
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  Rincewind  
+##### 1215#       发表于 2024-9-21 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66266222&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2024-9-21 19:09</a>
+为啥扭蛋会出重复啊（打滚
+綾香的妹抖装
+之前活动不是有抽到就剔除出池子的机制吗这次怎么没了</blockquote>
+有
+但是池子重置了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

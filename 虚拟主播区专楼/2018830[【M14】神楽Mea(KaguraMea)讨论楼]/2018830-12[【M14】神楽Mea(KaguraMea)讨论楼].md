@@ -8792,3 +8792,33 @@ BV1ez421b76t
 【動画】人気Vtuberさん、対戦ゲームで負けて発狂ｗｗｗ　お前らの想像の3倍発狂
 [http://yaraon-blog.com/archives/264840](http://yaraon-blog.com/archives/264840)
 
+
+*****
+
+####  TiHaru  
+##### 17430#       发表于 2024-9-20 15:41
+
+最近苔找かなえ先生的几次联动都还挺有信息量的，建议看一下
+
+*****
+
+####  TiHaru  
+##### 17431#       发表于 2024-9-21 13:40
+
+评论区出现了个叫rre的 8月27号关注的
+
+*****
+
+####  Leutnant某囧  
+##### 17432#       发表于 2024-9-22 05:26
+
+终于上钻石了，不容易
+
+<img src="https://img.saraba1st.com/forum/202409/22/052336qzke0dxuqll1dklz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240922_052148.jpg</strong> (40.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-22 05:23 上传
+

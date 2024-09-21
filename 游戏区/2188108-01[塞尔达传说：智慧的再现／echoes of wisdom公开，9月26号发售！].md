@@ -479,3 +479,15 @@ yuzu搞王泪那事在前 估计也没什么人赶着触霉头？
 
 这不是连nga都混不下去的知名不玩任天堂的任天堂迷hu/吗，缩卵到这边来了
 
+
+*****
+
+####  hu794  
+##### 616#       发表于 2024-9-21 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66261696&amp;ptid=2188108" target="_blank">kuarwbwe 发表于 2024-9-21 00:49</a>
+我又不玩机器人，不知道。
+
+—— 来自 鹅球 v3.1.91-alpha</blockquote>
+那你玩到塞尔达了？
+

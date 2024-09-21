@@ -745,3 +745,19 @@ Sound Director/音效总监: Yoshitak ...</blockquote>
 
 —— 来自 HUAWEI CET-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  ColAMK  
+##### 640#       发表于 2024-9-21 23:14
+
+我就担心掉帧别太严重，织梦岛那个换场景掉帧我姑且可以接受<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  heseran  
+##### 641#       发表于 2024-9-21 23:17
+
+不要这样，再这样我只能任亏券启动了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+

@@ -1548,3 +1548,11 @@ FE说白了就是菌鸽鸽啥时候不惦记他那破民科设定，这故事才
 现在这个宝具动作就充满了微妙的睿智气息，感觉直接扔去搞笑片场也没啥问题，完 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">前面还好 这2d特写出来的时候我直接吐了
 
+
+*****
+
+####  cenhr  
+##### 14754#       发表于 2024-9-22 00:27
+
+说起来白野又死了，每次出场都要死是传统了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

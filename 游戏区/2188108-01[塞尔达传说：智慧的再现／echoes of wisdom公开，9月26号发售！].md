@@ -769,3 +769,22 @@ Sound Director/音效总监: Yoshitak ...</blockquote>
 
 偷跑的内容要开偷跑楼吧，这楼还是别聊太多
 
+
+*****
+
+####  kuarwbwe  
+##### 643#       发表于 2024-9-22 00:31
+
+为了第一时间玩上我就没考虑过任亏券以外的手段。要还是日本时间周四零点解锁，那我要准备熬夜了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  kuarwbwe  
+##### 644#       发表于 2024-9-22 00:33
+
+b站有开始偷跑直播的了。在意游戏体验的注意避让。<img src="https://p.sda1.dev/19/3f9638a11c7007d49e53691bfbedf882/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

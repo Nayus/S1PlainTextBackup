@@ -456,3 +456,17 @@ atlus最近商法很让人反感，而且p3r的dlc最为突出，
 
 —— 来自 Xiaomi 22127RK46C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  哎哟卧槽了  
+##### 750#       发表于 2024-9-21 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66261943&amp;ptid=2140224" target="_blank">八佾舞于潭 发表于 2024-9-21 01:47</a>
+我琢磨了一个宣发遇冷的理论：
+
+P5 经过二次元提炼的日式城市生活呈现是极其稀缺的体验（没有调研，胡说的 ...</blockquote>
+能不能理解為 潮得不破格還不如不潮<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 來自 Google Pixel 2, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

@@ -1168,3 +1168,18 @@ FEX联动（确信）<img src="https://static.saraba1st.com/image/smiley/face201
 
 为什么不等10月 pick up？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 14723#       发表于 2024-9-21 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66264169&amp;ptid=2084912" target="_blank">大十字紅朔 发表于 2024-9-21 13:40</a>
+
+这次杀生院是好人啊，其实这次的BOSS做这些事情都是为了回避剪定</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">好人不好人都是相对的...对咕嗒来最重要的目的就是回到迦勒底
+
+迪拜BB要回避剪定的世界终究还是他人的世界...之前异闻带都已经灭了7个世界了...多1个少1个又如何
+
+这次的杀生院和杀狐如果是野生的也就算了....如果就是从迦勒底被召唤过来的那从利害关系上来说和咕嗒敌对怎么也算不上是好人啊
+

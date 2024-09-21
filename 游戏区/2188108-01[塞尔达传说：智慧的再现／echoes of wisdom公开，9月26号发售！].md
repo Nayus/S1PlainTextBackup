@@ -491,3 +491,20 @@ yuzu搞王泪那事在前 估计也没什么人赶着触霉头？
 —— 来自 鹅球 v3.1.91-alpha</blockquote>
 那你玩到塞尔达了？
 
+
+*****
+
+####  kuarwbwe  
+##### 617#       发表于 2024-9-21 13:16
+
+ 本帖最后由 kuarwbwe 于 2024-9-21 13:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66263342&amp;ptid=2188108" target="_blank">hu794 发表于 2024-9-21 11:19</a>
+那你玩到塞尔达了？</blockquote>
+2d塞上90的就俩。都算得上是革新作，一个众神2 91，一个沙漏90。去年被盛赞为2d马革新作的惊奇92均分。
+
+我的理由就是2d塞是你任这种大厂的作品，没独游buff，因为品类不好拿高分。
+
+当然，这作要真做成了2d野炊，mc 95+均分，媒体玩家全部交口称赞，能打我脸那更好。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

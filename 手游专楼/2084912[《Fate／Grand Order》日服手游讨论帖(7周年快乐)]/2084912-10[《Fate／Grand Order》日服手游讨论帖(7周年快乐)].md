@@ -1316,3 +1316,20 @@ FE说白了就是菌鸽鸽啥时候不惦记他那破民科设定，这个分支
 新材料给了俩白纸本刷，算是抠到极致了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">这2个新白纸本还是40体力的 单独做了不减半！ 用心良苦！
 
+
+*****
+
+####  大十字紅朔  
+##### 14736#       发表于 2024-9-21 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66265479&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-9-21 17:17</a>
+
+FE说白了就是菌鸽鸽啥时候不惦记他那破民科设定，这故事才好得起来
+
+从无印到extella，每次都是科幻又不够 ...</blockquote>
+要说这个的话社会学上也是
+
+造AI的技术和原材料又不是无限的，本来绕不开资源垄断，分配，阶级，‌‌剥削这些话题
+
+奈须直接跳过这些，说明因为AI技术进步了，所有人类历史上的问题都解决了，然后再自己虚空索敌造个没有任何现实背景的种族问题，就……很假大空
+

@@ -521,3 +521,16 @@ ign压根就不会玩游戏  也不是一天两天了<img src="https://static.
 
 估计不炸到人厌狗嫌就是不给黑猴goty 的最好替身了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刻路希  
+##### 564#       发表于 2024-9-22 06:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66263955&amp;ptid=2072996" target="_blank">qianoooo 发表于 2024-9-21 13:01</a>
+
+看了前瞻 原来是圣歌2.0！
+
+—— 来自 samsung SM-S9180, Android 14上的 S1Next-鹅版 v3.0.0-alpha ...</blockquote>
+这画面甚至不如19年已经缩水后的圣歌有卖相，更别提缩水前的了
+

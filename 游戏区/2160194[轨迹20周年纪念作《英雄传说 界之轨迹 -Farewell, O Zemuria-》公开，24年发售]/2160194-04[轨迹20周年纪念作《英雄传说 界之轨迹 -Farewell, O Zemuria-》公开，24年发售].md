@@ -11382,3 +11382,43 @@ pv亡啦
 
 菲丽和阿龙还有学妹新s还行吧，没啥亮点但过得去，大少还不如把以前的s做出来算了
 
+
+*****
+
+####  ravend233  
+##### 5586#       发表于 2024-9-22 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66268865&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-9-22 00:36</a>
+大少的新s和克洛一样属于拉了........好敷衍
+
+菲丽和阿龙还有学妹新s还行吧，没啥亮点但过得去，大少还不如 ...</blockquote>
+这次新返场也就里爷凯文还行吧，而且里爷的s演出我觉得设计也比较不行，其他属于摆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">倒是事务所的演出还过得去
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  洛克萨斯  
+##### 5587#       发表于 2024-9-22 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66269013&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-22 00:59</a>
+
+这次新返场也就里爷凯文还行吧，而且里爷的s演出我觉得设计也比较不行，其他属于摆了倒是事务所的演出还 ...</blockquote>
+桃花剑那个我觉得不行，葱头那个可以，希望师姐新s和师傅的s别拉了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  八佾舞于潭  
+##### 5588#       发表于 2024-9-22 01:04
+
+记得是前员工
+
+<img src="https://img.saraba1st.com/forum/202409/22/010449y8lknj48jk80bssn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-09-22-01-04-08-820_com.android.chrome.jpg</strong> (253.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-22 01:04 上传
+

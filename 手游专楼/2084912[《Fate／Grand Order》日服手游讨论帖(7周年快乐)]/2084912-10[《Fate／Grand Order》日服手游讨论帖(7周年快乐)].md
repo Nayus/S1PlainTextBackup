@@ -1087,3 +1087,31 @@ FEX联动（确信）<img src="https://static.saraba1st.com/image/smiley/face201
 
 五十万友情点两个lily两个哈贝一个小安一个白野<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 14714#       发表于 2024-9-21 02:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66260185&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-9-20 21:26</a>
+贞德只是会到处认弟弟和妹妹....脑子没坏到会参与什么最终BOSS人类灭亡战或者和杀生院合作吧....大概 ...</blockquote>
+就是泳装贞德，至于退场的原因很简单，就是她自己自愿退场的，因为接受不了自己的主张的人气比阿福还低<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之花  
+##### 14715#       发表于 2024-9-21 04:54
+
+五十万友情点两个lily两个哈贝一个小安一个白野<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  v22325  
+##### 14716#       发表于 2024-9-21 10:28
+
+ 本帖最后由 v22325 于 2024-9-21 10:30 编辑 
+
+打完了,蘑菇心里人类的到达点完结点是怎么个过程？只要达成不老不死就该衰退爆金币给下一个物种了？
+
+不想让就要被剪,也太怪了……
+

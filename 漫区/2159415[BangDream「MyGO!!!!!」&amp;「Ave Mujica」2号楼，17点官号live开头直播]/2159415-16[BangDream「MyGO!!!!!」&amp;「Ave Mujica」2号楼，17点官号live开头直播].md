@@ -11312,3 +11312,22 @@ https://b23.tv/vGc7Dib</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实我更想看r会翻唱鸡的什么歌，这俩团互相翻唱太合适了
 
+
+*****
+
+####  前方暴雨预警  
+##### 23235#       发表于 2024-9-22 00:19
+
+i83的声线真的很适合ether的前半段，这旋律太平了就需要这么透亮的人声来提升色彩。后半的吟唱段倒是很适合李子，想听合唱
+
+*****
+
+####  星天观测  
+##### 23236#       发表于 2024-9-22 00:21
+
+萝翻鸡肯定要等到对邦了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+按道理的话以目前的曲目应该素晴mas之类的可能性高一点吧
+
+个人私心希望是以太
+

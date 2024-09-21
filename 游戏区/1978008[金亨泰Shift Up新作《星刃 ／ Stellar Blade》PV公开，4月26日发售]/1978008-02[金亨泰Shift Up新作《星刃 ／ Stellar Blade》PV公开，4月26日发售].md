@@ -144,3 +144,33 @@ nikke里面的各种衣品可是天天被人嘲笑直男审美
 应该是只有战斗死亡的 ...</blockquote>
 是的，只有死了才会有是否复活的提示
 
+
+*****
+
+####  nagitoY  
+##### 1724#       发表于 2024-9-22 00:17
+
+打完了燃烧的希雍，还剩一个贝塔核心才能到上限。但是我不知道自己哪一个没找到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+贝塔核心这个奖杯能不能二周目再拿？
+
+来自: iPhone客户端
+
+*****
+
+####  爱护动物抓根宝  
+##### 1725#       发表于 2024-9-22 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66268710&amp;ptid=1978008" target="_blank">nagitoY 发表于 2024-9-22 00:17</a>
+打完了燃烧的希雍，还剩一个贝塔核心才能到上限。但是我不知道自己哪一个没找到
+
+贝塔核心这个奖杯能不能二 ...</blockquote>
+可以的，二周目所有核心都会重置，拿完杯还能再升几次
+
+*****
+
+####  nagitoY  
+##### 1726#       发表于 2024-9-22 00:18
+
+另外渡鸦的怪物形态，有一招是即死判定，应该如何打断？只能靠远程把伤害灌到一定的数值才能判定打断吗？来自: iPhone客户端
+

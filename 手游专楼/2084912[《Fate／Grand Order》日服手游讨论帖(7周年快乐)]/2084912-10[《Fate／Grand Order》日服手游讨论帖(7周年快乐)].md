@@ -1519,3 +1519,32 @@ FE说白了就是菌鸽鸽啥时候不惦记他那破民科设定，这故事才
 
 真心覺得是被剪活該。
 
+
+*****
+
+####  TheLoof  
+##### 14752#       发表于 2024-9-22 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66268538&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-9-21 23:59</a>
+
+殺生院宝具能回退吗？ 只有我觉得这新宝具很 sha bi吗？  cutin人物比例都怪怪的 ...</blockquote>
+以前好歹还有点正经的样子
+
+现在这个宝具动作就充满了微妙的睿智气息，感觉直接扔去搞笑片场也没啥问题，完全搞不懂做这个动作的人在想啥
+
+田中理惠自己都比杀生院像杀生院
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 14753#       发表于 2024-9-22 00:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66268707&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-9-22 00:17</a>
+
+以前好歹还有点正经的样子
+
+现在这个宝具动作就充满了微妙的睿智气息，感觉直接扔去搞笑片场也没啥问题，完 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">前面还好 这2d特写出来的时候我直接吐了
+

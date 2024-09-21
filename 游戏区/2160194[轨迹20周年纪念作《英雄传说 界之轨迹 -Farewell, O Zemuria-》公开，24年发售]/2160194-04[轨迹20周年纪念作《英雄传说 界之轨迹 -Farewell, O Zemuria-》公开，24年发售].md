@@ -11213,3 +11213,31 @@ pv亡啦
 
 别惦记你那pv了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  悠悠你心  
+##### 5567#       发表于 2024-9-21 14:02
+
+一周前就有大佬根据庭院试玩感觉出界轨的数值会爆炸了，看看几天后正式版的成色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  悠悠你心  
+##### 5568#       发表于 2024-9-21 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66264223&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-21 13:49</a>
+界之轨迹是一款没有正式pv的游戏</blockquote>
+（）是一款没有正式op的游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这5年不也这么过来了。
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  卢迪克  
+##### 5569#       发表于 2024-9-21 14:05
+
+没有op的游戏很多，没有pv的倒是罕见<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

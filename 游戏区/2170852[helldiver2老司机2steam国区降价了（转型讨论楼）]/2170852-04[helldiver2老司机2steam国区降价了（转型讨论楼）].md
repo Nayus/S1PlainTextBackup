@@ -2074,3 +2074,19 @@ We are looking at resolving this asap.
 
 机器人这伤害是真享福
 
+
+*****
+
+####  Launce  
+##### 5442#       发表于 2024-9-21 14:04
+
+<img src="https://img.saraba1st.com/forum/202409/21/140432ryek3ajp0oxu43h3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (53.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-21 14:04 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来是真的被索尼挥鞭子了
+

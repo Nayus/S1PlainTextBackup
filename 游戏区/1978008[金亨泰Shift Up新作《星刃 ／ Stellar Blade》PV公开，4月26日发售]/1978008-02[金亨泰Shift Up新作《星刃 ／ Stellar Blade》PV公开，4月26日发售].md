@@ -174,3 +174,13 @@ nikke里面的各种衣品可是天天被人嘲笑直男审美
 
 另外渡鸦的怪物形态，有一招是即死判定，应该如何打断？只能靠远程把伤害灌到一定的数值才能判定打断吗？来自: iPhone客户端
 
+
+*****
+
+####  爱护动物抓根宝  
+##### 1727#       发表于 2024-9-22 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66268723&amp;ptid=1978008" target="_blank">nagitoY 发表于 2024-9-22 00:18</a>
+另外渡鸦的怪物形态，有一招是即死判定，应该如何打断？只能靠远程把伤害灌到一定的数值才能判定打断吗？ ...</blockquote>
+用远程把那三个带感叹号标志的浮游炮射下来就行了，最终boss也有这个设定
+

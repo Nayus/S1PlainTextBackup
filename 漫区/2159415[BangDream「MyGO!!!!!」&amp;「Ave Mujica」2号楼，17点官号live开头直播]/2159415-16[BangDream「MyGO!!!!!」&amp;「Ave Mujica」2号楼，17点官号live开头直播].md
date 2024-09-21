@@ -10943,3 +10943,95 @@ live才见真水平，杨姐确实不得行
 
 听场地外直播唱的倒是挺有穿透力的
 
+
+*****
+
+####  Milarvoz  
+##### 23197#       发表于 2024-9-21 21:08
+
+虹馆这音响也太烂了，人声又偏低，乐器一炸起来小羊声音都快淹没了。唱功好不好真没法评价，只能说台风很好。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  Alicest  
+##### 23198#       发表于 2024-9-21 21:11
+
+吹不至于，就那水平吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不说李子雷丘，只能说不如天音，天音肺活量够
+
+*****
+
+####  穗波殊  
+##### 23199#       发表于 2024-9-21 21:12
+
+ 本帖最后由 穗波殊 于 2024-9-21 21:13 编辑 
+
+以编辑走错楼了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| -LYRE-|-1|？和这楼关系是？|
+
+查看全部评分
+
+*****
+
+####  asion617  
+##### 23200#       发表于 2024-9-21 21:12
+
+<img src="https://img.saraba1st.com/forum/202409/21/211206j0cywxbtc0axcccn.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ2u-kpd0T3cSlc-sg.jpg</strong> (89.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-21 21:12 上传
+
+
+*****
+
+####  rollingusagi  
+##### 23201#       发表于 2024-9-21 21:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看好多评价是虹馆音响司马了，前排有说轰的听不清人声，坐后面的有说吞音，反正坐的位置不同感受也不同。羊姐总的来说发挥的不错，诗超绊超神发挥有爽到，另外羊姐比你们想像中更会扭
+
+总的来说是成功的一次live，也希望以后更多邦邦乐队来大陆演出<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  超极巨鲨鲨  
+##### 23202#       发表于 2024-9-21 21:14
+
+影色舞蹦的太爽了，除了虹馆音响太烂之外这现场真无敌吧
+
+
+*****
+
+####  skives  
+##### 23203#       发表于 2024-9-21 21:14
+
+可爱
+
+<img src="https://img.saraba1st.com/forum/202409/21/211413sleaqdb3mmezsei2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3545.jpeg</strong> (650.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-21 21:14 上传
+
+*****
+
+####  Alicest  
+##### 23204#       发表于 2024-9-21 21:16
+
+顺便一提在四个队友都会说两嘴中文的前提下，羊看提词板读假名中文，两个假名两个假名的蹦，感觉不如青木说中文的“有趣的女人”
+

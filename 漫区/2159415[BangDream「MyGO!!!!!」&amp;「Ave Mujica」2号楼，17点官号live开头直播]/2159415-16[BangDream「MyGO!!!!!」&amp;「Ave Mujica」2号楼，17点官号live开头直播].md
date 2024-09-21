@@ -11218,3 +11218,31 @@ https://b23.tv/vGc7Dib</blockquote>
 这首真的很好
 关键是全员都有唱段 太难得了
 
+
+*****
+
+####  Aendst  
+##### 23224#       发表于 2024-9-21 23:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">这首是mujica目前所有翻唱里个人最喜欢的一首了
+
+不知道什么时候能再在现场来一次<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+会有那样的对邦吗
+
+*****
+
+####  星天观测  
+##### 23225#       发表于 2024-9-21 23:06
+
+武藏野鸡萝能有互动就算赢吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  akiomn  
+##### 23226#       发表于 2024-9-21 23:12
+
+鸡萝肯定会对邦的，0th翻唱2首r的歌，4th有鸡萝互当嘉宾，已经是明示了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过最早也得是明年下半年，上半年是和go的对邦，不太可能半年里就对邦2次
+

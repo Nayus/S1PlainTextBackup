@@ -723,3 +723,25 @@ Sound Director/音效总监: Yoshitak ...</blockquote>
 
 —— 来自 HUAWEI CET-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  位面农场  
+##### 638#       发表于 2024-9-21 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66268120&amp;ptid=2188108" target="_blank">牛肉粉小煎包 发表于 2024-9-21 23:03</a>
+
+作为一个不喜欢2D塞只喜欢老3D塞的玩家（哪怕三角力量2和织梦岛我也觉没意思），这一作真是太好了，虽然我 ...</blockquote>
+怎么你玩完啦？
+
+*****
+
+####  牛肉粉小煎包  
+##### 639#       发表于 2024-9-21 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66268128&amp;ptid=2188108" target="_blank">位面农场 发表于 2024-9-21 23:04</a>
+怎么你玩完啦？</blockquote>
+玩了一晚上了，多的就不透露了，反正我觉得非常好。
+
+—— 来自 HUAWEI CET-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

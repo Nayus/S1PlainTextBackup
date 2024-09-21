@@ -3628,3 +3628,16 @@ MRT3D确定，这下idios终于全员3D了（瞑目
 
 あかり呆毛真可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alcoholic1000  
+##### 768#       发表于 2024-9-21 20:46
+
+情弱了，成瀬鳴毕业原来是当声优去了
+
+高山 俊太朗Shuntaro Takayama
+[https://clare-voice.co.jp/subtalent/takayama_shuntaro](https://clare-voice.co.jp/subtalent/takayama_shuntaro)
+
+<img src="https://clare-voice.co.jp/wp-content/uploads/2024/09/%E9%AB%98%E5%B1%B1%E4%BF%8A%E5%A4%AA%E6%9C%97-1-scaled.jpg" referrerpolicy="no-referrer">
+

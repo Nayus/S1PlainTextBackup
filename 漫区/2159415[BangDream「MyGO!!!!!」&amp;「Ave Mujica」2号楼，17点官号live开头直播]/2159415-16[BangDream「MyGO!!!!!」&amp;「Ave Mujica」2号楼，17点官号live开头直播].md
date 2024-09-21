@@ -11246,3 +11246,29 @@ https://b23.tv/vGc7Dib</blockquote>
 鸡萝肯定会对邦的，0th翻唱2首r的歌，4th有鸡萝互当嘉宾，已经是明示了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过最早也得是明年下半年，上半年是和go的对邦，不太可能半年里就对邦2次
 
+
+*****
+
+####  フォニイ  
+##### 23227#       发表于 2024-9-21 23:25
+
+要去ll上海 想问下现场棒子查的严吗
+
+ 看现场视频有不少非官棒
+
+*****
+
+####  Alicest  
+##### 23228#       发表于 2024-9-21 23:28
+
+我的被查了也没事
+
+*****
+
+####  亚瑟邓特  
+##### 23229#       发表于 2024-9-21 23:29
+
+群里刷到图立刻点进楼里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

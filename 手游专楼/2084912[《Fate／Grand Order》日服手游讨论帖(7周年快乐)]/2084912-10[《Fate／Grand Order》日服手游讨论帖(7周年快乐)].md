@@ -1256,3 +1256,14 @@ FE我全都玩了的人感觉这次剧情……一般
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">卧槽这双扎比还有合体宝具啊.....不知道等以后玩家让双扎比上场后也能不能用
 
+
+*****
+
+####  cenhr  
+##### 14731#       发表于 2024-9-21 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66265076&amp;ptid=2084912" target="_blank">大十字紅朔 发表于 2024-9-21 16:17</a>
+
+不说我都忘记了，现在都是BBBB的，白樱完全没了啊</blockquote>
+所以有人说白樱才是真正的胜利者，CCC结局和白野回到现实世界，之后没有再被折腾<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

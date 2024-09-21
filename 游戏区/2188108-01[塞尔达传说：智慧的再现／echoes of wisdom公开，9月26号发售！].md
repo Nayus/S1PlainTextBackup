@@ -560,3 +560,29 @@ pdd百亿补贴有香港发货的，相对便宜些
 听这意思是pdd的香港发货比墨策2000fun快吗？没在pdd买过</blockquote>
 看商家吧，快点的话基本能发售当天发
 
+
+*****
+
+####  Slyvan  
+##### 623#       发表于 2024-9-21 17:14
+
+我希望有一些非流程内的难度高一点的谜题,  流程内的就不奢望了 
+
+*****
+
+####  laoccai47  
+##### 624#       发表于 2024-9-21 17:14
+
+提问： 值不值任亏券？
+
+*****
+
+####  罗克萨斯  
+##### 625#       发表于 2024-9-21 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66265459&amp;ptid=2188108" target="_blank">laoccai47 发表于 2024-9-21 17:14</a>
+提问： 值不值任亏券？</blockquote>
+觉得马惊奇值的话，它也值，我是这么认为的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -1116,3 +1116,41 @@ What a wonderful radio完结还行……
 
 <img src="https://p.sda1.dev/19/337b9e7dbf5bfb009bc2695e5d0ad378/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黒烨  
+##### 21060#       发表于 2024-9-20 19:38
+
+是不是误触还真难说，推那个转发步骤又不是点一下就转的，推荐机制也是跟着你常浏览的帖子来推的……
+不过这事算是处理了就不多说什么了，声优以后用社媒还是都小心吧。
+
+*****
+
+####  仟音一心  
+##### 21061#       发表于 2024-9-20 20:34
+
+鱼唱了nako一单。
+<img src="https://p.sda1.dev/19/dc87dbf8e2bd8ad816c4608ae11227e6/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 21062#       发表于 2024-9-20 22:21
+
+ 本帖最后由 仟音一心 于 2024-9-20 22:29 编辑 
+
+<img src="https://p.sda1.dev/19/337b9e7dbf5bfb009bc2695e5d0ad378/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/f575f1e89d70eee38a16cbd40799165b/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/ce2c1e00f1c3da0c1ec5ff1235760050/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/5b9d4be68e1f7e459243f68d475d5ba4/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 21063#       发表于 2024-9-21 09:07
+
+唱了可曾记得爱，🐟好喜欢马可螺丝
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

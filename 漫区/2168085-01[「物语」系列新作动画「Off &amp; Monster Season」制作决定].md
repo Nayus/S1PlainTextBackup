@@ -576,3 +576,26 @@ mv看笑了家人们<img src="https://static.saraba1st.com/image/smiley/face2017
 被狠 ...</blockquote>
 阿，居然还真的有被动画骗到的吗……主要这个被剧透起来太方便了
 
+
+*****
+
+####  oi99o  
+##### 912#       发表于 2024-9-21 21:29
+
+感觉bgm不够带劲，羽冈佳不行啊
+
+*****
+
+####  oi99o  
+##### 913#       发表于 2024-9-21 21:33
+
+官方还贴心提醒这里的甜甜圈是原作执笔当时的限定商品，已不在贩售<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202409/21/213144l1mu861vji1xjmyi.png" referrerpolicy="no-referrer">
+
+<strong>{0EE2EA04-B202-48DA-BE58-4597803654C5}.png</strong> (84.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-21 21:31 上传
+

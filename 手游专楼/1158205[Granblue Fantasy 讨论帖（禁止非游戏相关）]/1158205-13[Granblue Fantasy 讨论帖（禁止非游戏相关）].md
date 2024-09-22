@@ -16,3 +16,11 @@
 
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  初雪绫  
+##### 18098#       发表于 2024-9-22 10:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">刷小精灵确实是太闲了  没提升啊我寻思
+

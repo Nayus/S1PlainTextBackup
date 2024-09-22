@@ -712,3 +712,22 @@ DAI也是这个样子，如果你不跟Dorian和铁牛任何一个人搞，他�
 
 看了战斗演示，感觉战斗系统总体设计思路有点像大菠萝，或许这个才更接近于吉田心目中理想FF16的样子
 
+
+*****
+
+####  Edvinno  
+##### 580#       发表于 2024-9-22 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66270242&amp;ptid=2072996" target="_blank">风烛尘香 发表于 2024-9-22 10:01</a>
+2代芬里斯一脸的痘坑都不想说啥了，明明人设打扮和剧情背景很二次元，非要弄一张坑坑洼洼的脸来，3代塞拉 ...</blockquote>
+还是有点不一样，以前是丑，但首先那角色是个精灵，最多也是就是好不好看，大不了我自适应。
+现在这几个像带着宣传任务来的一样，负责完成队友里的亚裔/黑人配额<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，这角色亚裔标签比精灵还优先。
+
+
+*****
+
+####  woaimiyabi  
+##### 581#       发表于 2024-9-22 10:55
+
+预购了，生软再带我冲一次吧！，要是发售后真不行的话就当做吃屎了。
+

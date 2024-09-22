@@ -11899,3 +11899,23 @@ syl，关键是自家的伊苏都意识到人太多了，ysx里主控人数缩�
 
 黎轨强化地图战斗也有好处，我可以进入战斗就狂扔S技秒怪舒服，可惜不如大鲸鱼
 
+
+*****
+
+####  无动于衷  
+##### 5632#       发表于 2024-9-22 19:28
+
+<blockquote>卢迪克 发表于 2024-9-22 17:43
+近藤不是说关于战斗系统这方面希望通过空轨重制版找到答案吗，不过界轨2也就这样了。找到答案也是应用在新 ...</blockquote>
+千万别走到光明系列（tony）那个路子上去我就谢天谢地
+
+*****
+
+####  ravend233  
+##### 5633#       发表于 2024-9-22 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66274255&amp;ptid=2160194" target="_blank">无动于衷 发表于 2024-9-22 19:28</a>
+
+千万别走到光明系列（tony）那个路子上去我就谢天谢地</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">目前看起来基本就是黎轨的系统，但是有改动ACT部分，回合制看不出来
+

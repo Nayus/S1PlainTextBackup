@@ -41,3 +41,20 @@
 
 第 34 集的 TVer 源（含日字）：magnet:?xt=urn:btih:a50cfd8ea1c707a75c16d020aaf20977ea34c08b
 
+
+*****
+
+####  jaewoongh_  
+##### 2231#       发表于 2024-9-22 10:06
+
+被献祭的一集，既崩坏又便宜，一想到下集是看起来似乎很精细的BG回就更难绷了
+
+*****
+
+####  未熟串烧  
+##### 2232#       发表于 2024-9-22 10:31
+
+虽然是恶搞回，但立意不错。
+
+一直在一起的两个人（或者说一人一猫）偶尔分开行动扩充了见闻后反而有更多的话题可以聊了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

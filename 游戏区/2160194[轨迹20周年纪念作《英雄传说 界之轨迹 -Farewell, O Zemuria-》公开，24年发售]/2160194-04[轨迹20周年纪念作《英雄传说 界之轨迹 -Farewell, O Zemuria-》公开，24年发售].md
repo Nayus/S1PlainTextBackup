@@ -11974,3 +11974,55 @@ syl，关键是自家的伊苏都意识到人太多了，ysx里主控人数缩�
 但对后来的轨迹了解太少，玩过空轨系列和零轨，碧轨没玩，闪轨只玩了一，</blockquote>
 想入坑的新人建议断了念想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 5639#       发表于 2024-9-22 21:16
+
+<img src="https://img.saraba1st.com/forum/202409/22/211640g9h66uz2u3srr65d.png" referrerpolicy="no-referrer">
+
+<strong>novelty(1).png</strong> (52.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-22 21:16 上传
+
+
+*****
+
+####  隔壁老黄  
+##### 5640#       发表于 2024-9-22 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66275086&amp;ptid=2160194" target="_blank">八佾舞于潭 发表于 2024-9-22 21:09</a>
+
+突然意识到界不界2不重要，下一标题让法老控有理由把enami换掉很重要，希望不要有enami=共和国的紧箍咒，反 ...</blockquote>
+没有界2的，肯定换个名字，内容是界2，但标题不是，你就说是不是界2吧<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  隔壁老黄  
+##### 5641#       发表于 2024-9-22 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66275151&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-22 21:16</a></blockquote>
+梵跟黎恩是失散多年的双胞胎吗
+
+
+*****
+
+####  隔壁老黄  
+##### 5642#       发表于 2024-9-22 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66271330&amp;ptid=2160194" target="_blank">andychen 发表于 2024-9-22 12:29</a>
+
+黎1发售后就有人问过近藤，答案是要和伊苏做出区分不会完全ARPG化</blockquote>
+人会变的，ARPG是大趋势
+
+*****
+
+####  卢迪克  
+##### 5643#       发表于 2024-9-22 21:27
+
+想多了，不沿用e大师，现有角色都得重新画立绘，法老控打死不会干，要换也是新篇才换。
+

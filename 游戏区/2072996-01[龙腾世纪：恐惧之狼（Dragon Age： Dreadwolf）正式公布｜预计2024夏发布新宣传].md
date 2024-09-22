@@ -575,3 +575,17 @@ DAI也是这个样子，如果你不跟Dorian和铁牛任何一个人搞，他�
 
 你是真心喜欢那么丑的变性人聚众银趴吗…
 
+
+*****
+
+####  PROCAINUM  
+##### 568#       发表于 2024-9-22 08:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66269814&amp;ptid=2072996" target="_blank">白影 发表于 2024-9-22 08:13</a>
+看你从一开始就为龙腾新作品操碎了心辩护
+
+你是真心喜欢那么丑的变性人聚众银趴吗… ...</blockquote>
+哪个队友是变性人了？就知道拿着一个玩家自定义的捏人选项说事。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -2086,3 +2086,11 @@ FSN20周年音乐会</blockquote>
 
 有人提出疑问：现在的FGO宇宙中，主角他们算不算是妨碍人类发展的月癌？毕竟老所长和队长是想让新人类诞生<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xiongxingyu  
+##### 14800#       发表于 2024-9-22 20:38
+
+话说安日天一天到晚放院院鸽子终于遭报应了啊，结局被院院阴了一把留在月之迪拜回不去了（还有打不死的小强糖果藤曼），这算是给下一期FE联动留伏笔了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

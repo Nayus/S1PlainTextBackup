@@ -763,3 +763,35 @@ DAI也是这个样子，如果你不跟Dorian和铁牛任何一个人搞，他�
 临近发售不过40天，steam全球销量版已经快跌出前100了，这东西已经死的不能再透了 ...</blockquote>
 好死！.JPEG
 
+
+*****
+
+####  ak123  
+##### 585#       发表于 2024-9-22 11:41
+
+<img src="https://img.saraba1st.com/forum/202409/22/114047h0qh6vvrvpqq00r2.png" referrerpolicy="no-referrer">
+
+<strong>QQ20240922-114017.png</strong> (42.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-22 11:40 上传
+
+<img src="https://img.saraba1st.com/forum/202409/22/114047e1sa7d6eears2d7r.png" referrerpolicy="no-referrer">
+
+<strong>QQ20240922-113934.png</strong> (14.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-22 11:40 上传
+
+<img src="https://img.saraba1st.com/forum/202409/22/114137m5hggu4tnngl4rgh.png" referrerpolicy="no-referrer">
+
+<strong>1CC3C31EC1E086FFA0BD65097617D823.png</strong> (13.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-22 11:41 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

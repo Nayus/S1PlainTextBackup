@@ -558,3 +558,11 @@ HKD 170
 
 这个视频的评论推测了初始牌组规则。
 
+
+*****
+
+####  blue321  
+##### 45#       发表于 2024-9-23 07:02
+
+怎么有苍蓝雷霆的卡？同一家公司的吗还是联动过来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -960,3 +960,16 @@ DAI的捏人就挺一言难尽的，捏人自由度给得并不低，但是怎�
 
 2024-9-22 21:22 上传
 
+
+*****
+
+####  Flechette  
+##### 600#       发表于 2024-9-22 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66275193&amp;ptid=2072996" target="_blank">woaimiyabi 发表于 2024-9-22 21:22</a>
+
+可以去龙腾世纪贴吧看看，捏人是可以捏出高个子好看人物的，现在很多捏人都是故意捏成巨魔，但yt上很多试 ...</blockquote>
+看了一圈感觉还是和DAI的问题差不多，能捏出帅男人帅女人，但是想捏个特别刻板的女精灵之类的就会在五官上碰壁
+
+倒是让我第一次产生了捏个矮人帅大叔主角的冲动
+

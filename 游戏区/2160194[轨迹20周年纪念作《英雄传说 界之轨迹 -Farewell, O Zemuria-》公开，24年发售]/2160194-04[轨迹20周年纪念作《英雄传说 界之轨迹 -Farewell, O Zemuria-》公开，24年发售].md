@@ -12064,3 +12064,16 @@ syl，关键是自家的伊苏都意识到人太多了，ysx里主控人数缩�
 
 界轨去争取一下年度提名吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 5648#       发表于 2024-9-22 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66275250&amp;ptid=2160194" target="_blank">隔壁老黄 发表于 2024-9-22 21:28</a>
+
+这灾难性的立绘还不如直接3D建模然后AI画2D
+
+怪不得黎轨开始就没S战技特写了，看来法老控还是有点逼数的 ...</blockquote>
+近藤说ai有各种问题,不考虑。
+

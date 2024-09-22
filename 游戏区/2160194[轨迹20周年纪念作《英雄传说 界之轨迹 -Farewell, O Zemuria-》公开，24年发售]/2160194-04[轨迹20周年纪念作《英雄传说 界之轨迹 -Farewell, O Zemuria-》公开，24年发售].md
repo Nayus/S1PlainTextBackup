@@ -11847,3 +11847,40 @@ syl，关键是自家的伊苏都意识到人太多了，ysx里主控人数缩�
 
 真假的偷跑
 
+
+*****
+
+####  卢迪克  
+##### 5628#       发表于 2024-9-22 19:05
+
+ 本帖最后由 卢迪克 于 2024-9-22 19:06 编辑 
+
+概念图挺美好，现实是残酷的
+
+<img src="https://img.saraba1st.com/forum/202409/22/190509zduqosdwqoz0220q.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240922_190419.jpg</strong> (326.9 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-22 19:05 上传
+
+<img src="https://img.saraba1st.com/forum/202409/22/190647dihzpezpb7mha00p.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240922_190633.jpg</strong> (182.13 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-22 19:06 上传
+
+*****
+
+####  红魔馆的糖  
+##### 5629#       发表于 2024-9-22 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66273455&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-9-22 17:42</a>
+历代最崩坏是哪个？我印象中比较夸张的是闪2的一刀流？闪3的无限凌迟？闪4的灰苍大法师？黎1的滚筒洗衣机？ ...</blockquote>
+闪3的无限崩吧，其他作都可以自己不用变态套路，但是闪3随便打打就崩了，用啥都一样
+

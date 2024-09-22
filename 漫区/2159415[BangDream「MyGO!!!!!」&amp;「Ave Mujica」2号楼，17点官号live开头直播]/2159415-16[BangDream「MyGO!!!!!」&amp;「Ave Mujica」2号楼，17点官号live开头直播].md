@@ -11692,3 +11692,11 @@ go还会出场 出场就有消解关系性/反复横跳的风险
 
 2.5真有人管嘛，为什么星团动画能放花田写成那样<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 23274#       发表于 2024-9-23 02:41
+
+拉拉那是（自认为）家大业大不在乎二次元乱搞，剧情全靠抽制作组盲盒，才会出现星动画和llas这种东西，wsd应该还不至于<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

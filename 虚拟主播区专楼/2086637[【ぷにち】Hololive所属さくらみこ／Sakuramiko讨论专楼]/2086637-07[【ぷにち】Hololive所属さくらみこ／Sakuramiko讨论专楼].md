@@ -10643,3 +10643,39 @@ fbk，486等人——〉micomet过激派
 今日も開かねえなみこめっと毎回6時にうんこしてるのか？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 9760#         楼主| 发表于 2024-9-22 17:17
+
+<img src="https://img.saraba1st.com/forum/202409/22/171525yo99j2vb3qjjf25j.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (34.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-22 17:15 上传
+
+这个调整太迟了。
+
+不过再调整也没用，我还是那句话，警察太弱了一个人都抓不到，不是治疗费负担的问题
+
+<img src="https://img.saraba1st.com/forum/202409/22/171618d1yazg000381qcdb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (37.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-22 17:16 上传
+
+明天晚上有大会
+
+
+*****
+
+####  holoan  
+##### 9761#         楼主| 发表于 2024-9-22 17:25
+
+明天晚上23点就开始关服前特别活动了，大型犯罪最少需要准备2小时以上所以可以说是要做大型只有今天晚上了时间最充足，所以看看今天晚上延长不延长了，到目前为止一次都没延长过
+

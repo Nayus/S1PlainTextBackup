@@ -11773,3 +11773,23 @@ FF16改了我看也没少被喷
 合成大创世是吧</blockquote>
 和黎2的创世拼夕夕相映成趣<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星空冻结  
+##### 5620#       发表于 2024-9-22 17:26
+
+ 本帖最后由 星空冻结 于 2024-9-22 17:27 编辑 
+
+轨迹这套回合制已经到顶了，要想再丰富要么就像黎轨那样加act要么就是加qte<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">纯回合制这个年代确实没什么新花样
+syl，关键是自家的伊苏都意识到人太多了，ysx里主控人数缩到2人，结果轨迹还在加人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 5621#       发表于 2024-9-22 17:28
+
+黎的系统设计底层还行，上层的数值还是太烂了，导致玩起来没啥深度，现在改也是改数值而不是继续加机制<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

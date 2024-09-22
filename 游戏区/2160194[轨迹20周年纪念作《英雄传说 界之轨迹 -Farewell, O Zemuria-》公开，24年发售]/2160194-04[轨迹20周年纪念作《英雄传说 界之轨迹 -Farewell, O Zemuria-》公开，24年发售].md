@@ -11679,3 +11679,14 @@ jrpg已经日落西山了。连最终幻想和勇者斗恶龙都被人诟病，�
 
 A9拍的更清楚，就是短裙长袜
 
+
+*****
+
+####  无动于衷  
+##### 5611#       发表于 2024-9-22 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66272130&amp;ptid=2160194" target="_blank">迷雾塔 发表于 2024-9-22 14:08</a>
+
+jrpg已经日落西山了。连最终幻想和勇者斗恶龙都被人诟病，虎落平阳。轨迹还是投诚了arpg吧，不要再纠结夕阳 ...</blockquote>
+FF16改了我看也没少被喷
+

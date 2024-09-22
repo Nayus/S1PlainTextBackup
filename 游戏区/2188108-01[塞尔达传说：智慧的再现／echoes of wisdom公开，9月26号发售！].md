@@ -1014,3 +1014,15 @@ b站有开始偷跑直播的了。在意游戏体验的注意避让。<img src="
 
 ign前瞻不是已经说了掉帧比织梦岛重置少
 
+
+*****
+
+####  牛肉粉小煎包  
+##### 670#       发表于 2024-9-22 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66269204&amp;ptid=2188108" target="_blank">tachikoma27 发表于 2024-9-22 01:28</a>
+都说了不喜欢2D塞尔达的还追着问第几也太逗了，完全没有参考意义啊说实话最好别被玩偷跑的往任何方面牵动情 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">抱歉，只是太兴奋没控制住表达欲，对耍猴并不感兴趣
+
+—— 来自 HUAWEI CET-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

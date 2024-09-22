@@ -1878,3 +1878,31 @@ AI化之前也渐渐生不下去了，没差<img src="https://static.saraba1st.c
 这次打月癌就是镇压人民的意志啊</blockquote>
 人民的意志不是分成两半，一半是不想让位，另一半是看开了？所以主角才说月癌其实没错，但赢得是自己，所以走自己那套<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TheLoof  
+##### 14782#       发表于 2024-9-22 14:41
+
+ 本帖最后由 TheLoof 于 2024-9-22 14:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66271693&amp;ptid=2084912" target="_blank">シャル 发表于 2024-9-22 13:12</a>
+
+其实这次第三代AI新人类这种放弃肉体，精神复制程序化不老不死最大的问题是无法繁衍后代啊
+
+不能诞生新一代 ...</blockquote>
+有句港剧，你这个要求对阿菌来说过分了，他想不到那一步
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+举个例子就是，他能想到要搓一个超NB的MC来统筹一切
+
+但是他想象不到这种东西要多大的能源，供电问题怎么解决，维护问题谁来干
+
+所以你套现实逻辑怎么想都觉得FE这个系列傻逼疯了
+
+但是对阿菌来说大概是无所谓的，反正酷炫就完事儿了
+
+在这种意义上MC和辐射4的学院是一个毛病，直接设一个空中楼阁来解决一切问题
+
+社会学和物理学就别在意了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

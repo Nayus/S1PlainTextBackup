@@ -874,3 +874,14 @@ PS5 卖450 甚至比直接买60美元的版本还贵了
 在dai正篇结局打败考爷后两年，审判庭的势力急剧扩张，这让和擎天堡临近的两大国家（奥莱和费雷登）寝食 ...</blockquote>
 谢谢你好心人<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ナルバレック  
+##### 593#       发表于 2024-9-22 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66271690&amp;ptid=2072996" target="_blank">zhenlune 发表于 2024-9-22 13:12</a>
+
+对于西幻入坑作是魔戒的人来说，黑人精灵这个设定真的绷不住</blockquote>
+魔戒现在网剧也有黑人精灵
+

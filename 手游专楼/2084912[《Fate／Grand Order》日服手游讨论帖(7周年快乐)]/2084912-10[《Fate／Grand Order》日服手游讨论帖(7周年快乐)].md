@@ -1918,3 +1918,19 @@ AI化之前也渐渐生不下去了，没差<img src="https://static.saraba1st.c
 
 6加成对于平(贫)民玩家太遥远了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 14784#       发表于 2024-9-22 17:08
+
+ssy强化本<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 14785#       发表于 2024-9-22 17:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">特攻群充还加oc  等一个具体数值
+

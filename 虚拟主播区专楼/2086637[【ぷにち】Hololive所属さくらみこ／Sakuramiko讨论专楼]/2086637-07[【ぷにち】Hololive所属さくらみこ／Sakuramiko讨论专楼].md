@@ -10615,3 +10615,31 @@ sora，企划开始前发推说就一两天接触一下结果开个猫咖啡厅�
 
 反而miko的GTA直播还是安排在19点也就是说并不大像是日程原因调整计划的问题
 
+
+*****
+
+####  holoan  
+##### 9758#         楼主| 发表于 2024-9-22 15:22
+
+<img src="https://img.saraba1st.com/forum/202409/22/152144jli3pq3kdcdpkkak.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (66.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-22 15:21 上传
+
+fbk，486等人——〉micomet过激派
+
+星街——〉pekomiko过激派
+
+*****
+
+####  holoan  
+##### 9759#         楼主| 发表于 2024-9-22 17:08
+
+<blockquote>388 名無しさん@転載禁止 (ﾜｯﾁｮｲ dd8e-HAqf)  2024/09/22(日) 18:05:36.17 ID:Utfr4AFe
+
+今日も開かねえなみこめっと毎回6時にうんこしてるのか？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

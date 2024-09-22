@@ -10717,3 +10717,34 @@ miko今天最大的成果
 
 不过我也不太能同时听，明天听回放
 
+
+*****
+
+####  渡鸦骑士  
+##### 9766#       发表于 2024-9-22 22:03
+
+悲，商谈过的一首edm原创曲忘了提案推进了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 9767#         楼主| 发表于 2024-9-22 22:06
+
+第一次大型 miko唯一一个成功击杀帮派的
+
+第二次大型 单人击杀2人
+
+余被miko连续击杀
+
+miko MVP啊今天
+
+*****
+
+####  holoan  
+##### 9768#         楼主| 发表于 2024-9-22 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66275565&amp;ptid=2086637" target="_blank">渡鸦骑士 发表于 2024-9-22 22:03</a>
+
+悲，商谈过的一首edm原创曲忘了提案推进了</blockquote>
+不需要EDM了，够了
+

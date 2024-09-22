@@ -2099,3 +2099,41 @@ We are looking at resolving this asap.
 <img src="https://p.sda1.dev/19/5c6deaa37293f2e2424f1dbbc9524abc/CMP_20240923011929508.jpg" referrerpolicy="no-referrer">
 皮帅透露净化在下个补丁会成为焦土plus
 
+
+*****
+
+####  Aeons  
+##### 5444#       发表于 2024-9-21 03:11
+
+机器人这伤害是真享福
+
+*****
+
+####  Launce  
+##### 5445#       发表于 2024-9-21 14:04
+
+<img src="https://img.saraba1st.com/forum/202409/21/140432ryek3ajp0oxu43h3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (53.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-21 14:04 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来是真的被索尼挥鞭子了
+
+*****
+
+####  xinfengj  
+##### 5446#       发表于 2024-9-23 01:20
+
+<img src="https://p.sda1.dev/19/5c6deaa37293f2e2424f1dbbc9524abc/CMP_20240923011929508.jpg" referrerpolicy="no-referrer">
+皮帅透露净化在下个补丁会成为焦土plus
+
+*****
+
+####  FLZB  
+##### 5447#       发表于 2024-9-23 06:07
+
+现在难9以上单刷真打得了？狂暴武斗虫黏上来两刀我直接蒸发，而且为什么开东线几乎必出吐酸模板，拉一波烟虫子全家老小都到齐了，我超了箭头的马<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

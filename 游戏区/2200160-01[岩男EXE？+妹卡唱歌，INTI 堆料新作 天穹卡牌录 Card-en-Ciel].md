@@ -548,3 +548,13 @@ HKD 170
 
 还有个联机功能不知道干啥的，这肉鸽打牌怎么联机啊，找个哥们打开麦克风给你在线唱小曲是吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cmyk1234  
+##### 44#       发表于 2024-9-23 06:52
+
+【【Card-en-Ciel 天穹卡牌录】6w+结算 喜欢比屋顶更高的你困难3 14回合-哔哩哔哩】 https://b23.tv/UikbDnt
+
+这个视频的评论推测了初始牌组规则。
+

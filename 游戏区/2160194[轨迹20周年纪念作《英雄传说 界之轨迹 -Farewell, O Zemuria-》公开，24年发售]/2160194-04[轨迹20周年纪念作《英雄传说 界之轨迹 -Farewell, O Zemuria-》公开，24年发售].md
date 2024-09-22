@@ -11929,3 +11929,48 @@ syl，关键是自家的伊苏都意识到人太多了，ysx里主控人数缩�
 千万别走到光明系列（tony）那个路子上去我就谢天谢地</blockquote>
 刃和舟的系统做得挺好啊，和空轨一样是战棋变种，就是难度太低了，而且世嘉有专利。
 
+
+*****
+
+####  bwsusaga  
+##### 5635#       发表于 2024-9-22 21:08
+
+想玩JRPG了，有点想入手这个。
+
+但对后来的轨迹了解太少，玩过空轨系列和零轨，碧轨没玩，闪轨只玩了一，
+
+看名字以为是新系列但好像又是上个黎轨的续作。
+
+看介绍说是大集结，那一大半的人都不认识，还能玩么……
+
+*****
+
+####  八佾舞于潭  
+##### 5636#       发表于 2024-9-22 21:09
+
+突然意识到界不界2不重要，下一标题让法老控有理由把enami换掉很重要，希望不要有enami=共和国的紧箍咒，反响都这样了，我觉得割肉也得换了
+
+
+*****
+
+####  红魔馆的糖  
+##### 5637#       发表于 2024-9-22 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66275078&amp;ptid=2160194" target="_blank">bwsusaga 发表于 2024-9-22 21:08</a>
+想玩JRPG了，有点想入手这个。
+
+但对后来的轨迹了解太少，玩过空轨系列和零轨，碧轨没玩，闪轨只玩了一，</blockquote>
+完全不能，想玩可以玩黎1<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RAMDA  
+##### 5638#       发表于 2024-9-22 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66275078&amp;ptid=2160194" target="_blank">bwsusaga 发表于 2024-9-22 21:08</a>
+
+想玩JRPG了，有点想入手这个。
+
+但对后来的轨迹了解太少，玩过空轨系列和零轨，碧轨没玩，闪轨只玩了一，</blockquote>
+想入坑的新人建议断了念想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

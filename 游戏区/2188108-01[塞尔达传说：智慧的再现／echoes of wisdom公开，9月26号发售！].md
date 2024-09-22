@@ -1026,3 +1026,15 @@ ign前瞻不是已经说了掉帧比织梦岛重置少
 
 —— 来自 HUAWEI CET-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  kuarwbwe  
+##### 671#       发表于 2024-9-22 16:16
+
+ 本帖最后由 kuarwbwe 于 2024-9-22 16:18 编辑 
+
+b站有一个偷跑up说他玩了十几个小时只开了三分之一的地图。据外网说这次全收集有超过40小时的内容。量应该少不了。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

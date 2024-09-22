@@ -2078,3 +2078,11 @@ FSN20周年音乐会</blockquote>
 
 多核时代得有群体ABC类+NP里边占两三个才能打吧
 
+
+*****
+
+####  cenhr  
+##### 14799#       发表于 2024-9-22 20:18
+
+有人提出疑问：现在的FGO宇宙中，主角他们算不算是妨碍人类发展的月癌？毕竟老所长和队长是想让新人类诞生<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -1992,3 +1992,27 @@ lip本来应该两个灵衣，一个泳装，一个新lip，新的lip直接复�
 新加的善特攻、20NP、OC+1都是对我方全体的，多核队拐队友还挺有用的。</blockquote>
 这游戏的多核队就是骗局啊骗局，游戏系统决定了这游戏只能在3T之内把所有资源堆到一个人身上去打，除非系统大改<img src="https://static.saraba1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kyonkoism  
+##### 14792#       发表于 2024-9-22 18:20
+
+<img src="https://img.saraba1st.com/forum/202409/22/182016qku081zskuajdpyh.jpg" referrerpolicy="no-referrer">
+
+<strong>~WDX@RF%9_IHQ4RA}E4PSS0.jpg</strong> (50.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-22 18:20 上传
+
+<img src="https://img.saraba1st.com/forum/202409/22/182030t5t7isegvnzjvv2i.gif" referrerpolicy="no-referrer">
+
+<strong>93`N0)SO81}CU(J4EWV7K91.gif</strong> (1.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-22 18:20 上传
+
+我了个米月不分家啊
+

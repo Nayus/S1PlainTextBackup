@@ -1054,3 +1054,14 @@ b站有一个偷跑up说他玩了十几个小时只开了三分之一的地图�
 
 玩到现在，大概85分左右吧，比小机器人是差不少。
 
+
+*****
+
+####  chizuru  
+##### 674#       发表于 2024-9-22 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66273037&amp;ptid=2188108" target="_blank">阳ノ下光 发表于 2024-9-22 16:35</a>
+
+玩到现在，大概85分左右吧，比小机器人是差不少。</blockquote>
+怎么能跟锁定年度的小机器人比
+

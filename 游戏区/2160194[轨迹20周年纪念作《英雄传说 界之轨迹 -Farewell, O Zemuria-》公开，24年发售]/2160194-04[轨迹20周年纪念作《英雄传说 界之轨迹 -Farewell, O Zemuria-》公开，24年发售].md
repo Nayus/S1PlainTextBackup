@@ -11808,3 +11808,34 @@ syl，关键是自家的伊苏都意识到人太多了，ysx里主控人数缩�
 
 近藤不是说关于战斗系统这方面希望通过空轨重制版找到答案吗，不过界轨2也就这样了。找到答案也是应用在新轨迹身上了
 
+
+*****
+
+####  ravend233  
+##### 5624#       发表于 2024-9-22 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66273455&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-9-22 17:42</a>
+历代最崩坏是哪个？我印象中比较夸张的是闪2的一刀流？闪3的无限凌迟？闪4的灰苍大法师？黎1的滚筒洗衣机？ ...</blockquote>
+感觉都差不多崩坏，主打一个无脑一招鲜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  kanata  
+##### 5625#       发表于 2024-9-22 17:51
+
+这些加起来都不如我枪哥的一个S
+
+
+*****
+
+####  sz19860225  
+##### 5626#       发表于 2024-9-22 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66270842&amp;ptid=2160194" target="_blank">隔壁老黄 发表于 2024-9-22 11:29</a>
+看了下视频，这打击感好强啊，干脆续作抛弃回合制直接就ARPG算了吧，S战技固定演出加上必中就是了 ...</blockquote>
+什么如龙
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -679,3 +679,18 @@ DAI也是这个样子，如果你不跟Dorian和铁牛任何一个人搞，他�
 不怕，有女玩家撑着呢，销量一定没问题的
 毕竟她们说博得3销量都是女玩家贡献的
 
+
+*****
+
+####  sosgame67  
+##### 576#       发表于 2024-9-22 10:23
+
+记得国外线下统计da4的预售和刺客信条影一个水平..没口碑逆转大概率是暴死了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  kevinausting  
+##### 577#       发表于 2024-9-22 10:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有人能简短地概括一下DAI的入侵者dlc讲了什么，我已经完全忘记了
+

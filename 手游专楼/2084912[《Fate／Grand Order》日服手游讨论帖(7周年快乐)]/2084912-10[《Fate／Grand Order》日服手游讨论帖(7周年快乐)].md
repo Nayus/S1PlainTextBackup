@@ -1867,3 +1867,14 @@ WADA其实不会画那种涩涩的图，画出来效果老是憨憨的，不过�
 不能诞生新一代 ...</blockquote>
 AI化之前也渐渐生不下去了，没差<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cenhr  
+##### 14781#       发表于 2024-9-22 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66271670&amp;ptid=2084912" target="_blank">シャル 发表于 2024-9-22 13:08</a>
+
+这次打月癌就是镇压人民的意志啊</blockquote>
+人民的意志不是分成两半，一半是不想让位，另一半是看开了？所以主角才说月癌其实没错，但赢得是自己，所以走自己那套<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

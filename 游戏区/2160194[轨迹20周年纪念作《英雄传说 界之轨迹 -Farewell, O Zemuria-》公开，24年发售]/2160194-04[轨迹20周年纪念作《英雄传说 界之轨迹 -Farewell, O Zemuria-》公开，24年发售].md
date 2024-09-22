@@ -11581,3 +11581,34 @@ s演出不变的话有第二个可能性比较大吧
 看了下视频，这打击感好强啊，干脆续作抛弃回合制直接就ARPG算了吧，S战技固定演出加上必中就是了 ...</blockquote>
 黎1发售后就有人问过近藤，答案是要和伊苏做出区分不会完全ARPG化
 
+
+*****
+
+####  迷雾塔  
+##### 5603#       发表于 2024-9-22 14:08
+
+jrpg已经日落西山了。连最终幻想和勇者斗恶龙都被人诟病，虎落平阳。轨迹还是投诚了arpg吧，不要再纠结夕阳产业了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aeons  
+##### 5604#       发表于 2024-9-22 14:12
+
+<img src="https://img.saraba1st.com/forum/202409/22/141135phx280cjc2zuzj8q.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240922141020.png</strong> (22.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-22 14:11 上传
+
+看了看这真是短裙长袜？ 穿这样那感觉学妹概率up了
+
+*****
+
+####  一步成诗  
+##### 5605#       发表于 2024-9-22 14:14
+
+毕竟盟主和妮娜都不像会穿短裙的，排除法那就是了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

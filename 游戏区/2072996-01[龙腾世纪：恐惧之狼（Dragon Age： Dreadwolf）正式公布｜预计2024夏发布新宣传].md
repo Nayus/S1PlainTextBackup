@@ -895,3 +895,16 @@ PS5 卖450 甚至比直接买60美元的版本还贵了
 魔戒现在网剧也有黑人精灵</blockquote>
 我知道，猎魔人也有，都绷不住
 
+
+*****
+
+####  mimighost  
+##### 595#       发表于 2024-9-22 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66271690&amp;ptid=2072996" target="_blank">zhenlune 发表于 2024-9-22 13:12</a>
+
+对于西幻入坑作是魔戒的人来说，黑人精灵这个设定真的绷不住</blockquote>
+还有黑白亚洲人印度人长相的各种霍比特人
+
+中土世界的生物多样性令人诧异<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

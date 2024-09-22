@@ -3665,3 +3665,11 @@ neo-porte能开昼夜两场kt zepp，粉丝群也不小了，个人箱能带起�
 
 铁鼠那边闹得很大啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  karastar  
+##### 772#       发表于 2024-9-22 18:06
+
+频道被封不是什么大事吧，公司处理一下就好了吧
+

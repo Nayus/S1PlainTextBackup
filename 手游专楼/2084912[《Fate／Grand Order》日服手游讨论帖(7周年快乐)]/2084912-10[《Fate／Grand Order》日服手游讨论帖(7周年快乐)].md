@@ -1974,3 +1974,21 @@ ssy强化本<img src="https://static.saraba1st.com/image/smiley/face2017/049.png
 主要是现在这个环境你就1宝吧，给特攻也不好使 ...</blockquote>
 新加的善特攻、20NP、OC+1都是对我方全体的，多核队拐队友还挺有用的。
 
+
+*****
+
+####  天王寺凯伊姆  
+##### 14790#       发表于 2024-9-22 18:13
+
+lip本来应该两个灵衣，一个泳装，一个新lip，新的lip直接复用老模组就好了多方便（lxs如是说到）
+
+*****
+
+####  大十字紅朔  
+##### 14791#       发表于 2024-9-22 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66273643&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-9-22 18:08</a>
+
+新加的善特攻、20NP、OC+1都是对我方全体的，多核队拐队友还挺有用的。</blockquote>
+这游戏的多核队就是骗局啊骗局，游戏系统决定了这游戏只能在3T之内把所有资源堆到一个人身上去打，除非系统大改<img src="https://static.saraba1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer">
+

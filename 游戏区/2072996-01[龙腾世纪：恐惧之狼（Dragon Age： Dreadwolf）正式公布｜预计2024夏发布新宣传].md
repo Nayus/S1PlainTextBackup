@@ -908,3 +908,19 @@ PS5 卖450 甚至比直接买60美元的版本还贵了
 
 中土世界的生物多样性令人诧异<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  woaimiyabi  
+##### 596#       发表于 2024-9-22 18:30
+
+<img src="https://img.saraba1st.com/forum/202409/22/183000h99vpr3z9386d4ns.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240922182950.png</strong> (34.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-22 18:30 上传
+
+我多么希望左边这个紫发妹子是我队友，真是没有对比就没有伤害。
+

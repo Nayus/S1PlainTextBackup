@@ -3682,3 +3682,11 @@ neo-porte能开昼夜两场kt zepp，粉丝群也不小了，个人箱能带起�
 哦，是我搞错了，原来froot遭受家暴是一件独立事件。
 那这么说来感觉vshojo最近多灾多难啊
 
+
+*****
+
+####  karastar  
+##### 774#       发表于 2024-9-22 18:28
+
+froot说自己被家暴，另一边说她出轨，反正真实生活和网络工作混起来真不好<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

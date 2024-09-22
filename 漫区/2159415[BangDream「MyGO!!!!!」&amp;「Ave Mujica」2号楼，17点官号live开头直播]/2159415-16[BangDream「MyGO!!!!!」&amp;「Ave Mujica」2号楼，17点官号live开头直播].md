@@ -11586,3 +11586,27 @@ s1 羊宫妃那真爱楼
 
 萝的太难抢实在没抢到，其他三个都去了，只能说虹馆确实不行
 
+
+*****
+
+####  NODY  
+##### 23264#       发表于 2024-9-22 15:13
+
+音乐节发生持刀伤人事件导致中止，ras本来下午要出场的
+
+<img src="https://img.saraba1st.com/forum/202409/22/151305gmfctyflcmwcpfmt.png" referrerpolicy="no-referrer">
+
+<strong>无标题.png</strong> (93.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-22 15:13 上传
+
+<img src="https://img.saraba1st.com/forum/202409/22/151305lq1zqh5fbfum185u.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20231008012333.png</strong> (283.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-22 15:13 上传
+

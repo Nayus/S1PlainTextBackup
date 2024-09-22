@@ -241,3 +241,14 @@ SpaceX官图，S30与B12完成合体
 
 在等发射许可了，不过因为老马刚怼过FAA，可能会等的比较久
 
+
+*****
+
+####  commcody  
+##### 64#         楼主| 发表于 2024-9-22 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66271561&amp;ptid=2190881" target="_blank">madbird023 发表于 2024-9-22 12:55</a>
+
+在等发射许可了，不过因为老马刚怼过FAA，可能会等的比较久</blockquote>
+FAA之前说要拖到11月底。个人觉得这次这么早就合体测试算是种示威。加上最近老马和SpaceX找议院狂怼FAA不知道会起正效果还是反效果。
+

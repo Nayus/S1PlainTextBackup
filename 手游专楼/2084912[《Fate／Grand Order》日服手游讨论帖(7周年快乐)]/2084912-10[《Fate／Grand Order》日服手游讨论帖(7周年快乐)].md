@@ -1783,3 +1783,36 @@ P2无貌这种拱火自我毁灭的集体无意识才麻烦
 P2无貌这种拱火自我毁灭的集体无意识才麻烦 ...</blockquote>
 最后的解决方式是第三代AI思想刷新觉醒+迦勒底一行把月癌这种集体无意识揍平+你们没错，但是老子赢了的心态就是淳朴<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大十字紅朔  
+##### 14775#       发表于 2024-9-22 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66268434&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-9-21 23:47</a>
+
+阿菌对社会架构的概念大概就是
+
+有个英明的领导人社会就会变得更好
+
+那有了一个愿意加班的领导人后如何创造 ...</blockquote>
+也行吧……如果铁托还活着的话南斯拉夫也不会解体
+
+那么如果铁托是不老不死是不是就解决问题了呢，不好说
+
+其实就是英雄史观
+
+*****
+
+####  大十字紅朔  
+##### 14776#       发表于 2024-9-22 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66268538&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-9-21 23:59</a>
+
+殺生院宝具能回退吗？ 只有我觉得这新宝具很 sha bi吗？  cutin人物比例都怪怪的 ...</blockquote>
+以前的宝具直接是战斗小人放大
+
+这次画了张新图
+
+WADA其实不会画那种涩涩的图，画出来效果老是憨憨的，不过杀生院这几年的人设就是这样了
+

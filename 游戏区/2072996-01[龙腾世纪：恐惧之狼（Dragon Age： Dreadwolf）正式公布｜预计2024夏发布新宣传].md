@@ -825,3 +825,33 @@ steam上国区预购298其实还好。不过预购奖励就三套铠甲，就真
 现在这几个 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">第一次见到这种亚裔大妈精灵的设计，开了眼了
 
+
+*****
+
+####  ak123  
+##### 589#       发表于 2024-9-22 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66271342&amp;ptid=2072996" target="_blank">Ronu 发表于 2024-9-22 12:29</a>
+
+steam上国区预购298其实还好。不过预购奖励就三套铠甲，就真的不是很有驱动力
+
+这波要是“风评”崩了搞不好 ...</blockquote>
+光开发混乱比肩圣哥破事儿，主创各种离职，制作方向几次回炉，甚至连标题都是发售前半年才想好的
+
+就是没有lgbt我也不敢预购的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jf8350143  
+##### 590#       发表于 2024-9-22 13:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66271090&amp;ptid=2072996" target="_blank">lbb3313725 发表于 2024-9-22 11:59</a>
+
+我去，PS5版卖450多。。</blockquote>
+那应该是索尼的问题
+
+这作只卖60美元而不是目前3a大作标准的70美元
+
+PS5 卖450 甚至比直接买60美元的版本还贵了
+

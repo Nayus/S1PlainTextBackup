@@ -651,3 +651,11 @@ mv看笑了家人们<img src="https://static.saraba1st.com/image/smiley/face2017
 
 —— 来自 Xiaomi 2211133C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  人畜无害沃特碧  
+##### 919#       发表于 2024-9-22 12:11
+
+感觉这集崩了的画面和静止画面是不是有点多，万策尽了吗
+

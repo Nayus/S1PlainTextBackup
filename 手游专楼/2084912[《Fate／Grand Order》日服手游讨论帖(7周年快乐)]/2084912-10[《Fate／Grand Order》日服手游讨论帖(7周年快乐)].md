@@ -1770,3 +1770,16 @@ FE说白了就是菌鸽鸽啥时候不惦记他那破民科设定，这故事才
 
 P2无貌这种拱火自我毁灭的集体无意识才麻烦
 
+
+*****
+
+####  cenhr  
+##### 14774#       发表于 2024-9-22 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66271098&amp;ptid=2084912" target="_blank">シャル 发表于 2024-9-22 12:00</a>
+
+月癌这种集体无意识还算好的了，也就是停滞拖后腿
+
+P2无貌这种拱火自我毁灭的集体无意识才麻烦 ...</blockquote>
+最后的解决方式是第三代AI思想刷新觉醒+迦勒底一行把月癌这种集体无意识揍平+你们没错，但是老子赢了的心态就是淳朴<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

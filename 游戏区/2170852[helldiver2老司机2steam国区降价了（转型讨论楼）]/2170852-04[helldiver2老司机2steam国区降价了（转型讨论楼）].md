@@ -2090,3 +2090,12 @@ We are looking at resolving this asap.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来是真的被索尼挥鞭子了
 
+
+*****
+
+####  xinfengj  
+##### 5443#       发表于 2024-9-23 01:20
+
+<img src="https://p.sda1.dev/19/5c6deaa37293f2e2424f1dbbc9524abc/CMP_20240923011929508.jpg" referrerpolicy="no-referrer">
+皮帅透露净化在下个补丁会成为焦土plus
+

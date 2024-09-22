@@ -171,3 +171,15 @@ JL：EZEZEZEZEZ
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  yvev  
+##### 4454#       发表于 2024-9-22 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66272777&amp;ptid=1857369" target="_blank">haruhiismer 发表于 2024-9-22 15:52</a>
+要是g2也有小李子这么强的指挥就好了
+
+—— 来自 鹅球 v3.0.86-alpha</blockquote>
+小李子以前不就待过g2吗？进攻便秘的一b
+

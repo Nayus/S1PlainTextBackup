@@ -11919,3 +11919,13 @@ syl，关键是自家的伊苏都意识到人太多了，ysx里主控人数缩�
 千万别走到光明系列（tony）那个路子上去我就谢天谢地</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">目前看起来基本就是黎轨的系统，但是有改动ACT部分，回合制看不出来
 
+
+*****
+
+####  Falcomfans  
+##### 5634#       发表于 2024-9-22 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66274255&amp;ptid=2160194" target="_blank">无动于衷 发表于 2024-9-22 19:28</a>
+千万别走到光明系列（tony）那个路子上去我就谢天谢地</blockquote>
+刃和舟的系统做得挺好啊，和空轨一样是战棋变种，就是难度太低了，而且世嘉有专利。
+

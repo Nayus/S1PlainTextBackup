@@ -11644,3 +11644,38 @@ jrpg已经日落西山了。连最终幻想和勇者斗恶龙都被人诟病，�
 师姐有没有可能过完斑鸠剧情会有新的大招，没新大招超级失望</blockquote>
 都神技xxxx了，还有新的？莫非接下来是仙技xxxx<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 5609#       发表于 2024-9-22 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66254558&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-20 11:42</a>
+
+竹入：伊苏不归我管，迷城看起来被近藤那小子丢给可恶的小登了，轨写完了那我上哪发号施令呢，这可不得行 ...</blockquote>
+伊苏7是竹入写的，黎轨的终末圣女(巫女)九成就是从里面拿的
+
+
+*****
+
+####  ravend233  
+##### 5610#       发表于 2024-9-22 15:44
+
+<img src="https://img.saraba1st.com/forum/202409/22/154236dp55xxxno5x5rn06.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (696.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-22 15:42 上传
+
+<img src="https://img.saraba1st.com/forum/202409/22/154338u44qr6nplrrgtd57.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (154.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-22 15:43 上传
+
+A9拍的更清楚，就是短裙长袜
+

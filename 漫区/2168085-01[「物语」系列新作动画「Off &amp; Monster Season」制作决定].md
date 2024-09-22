@@ -641,3 +641,13 @@ mv看笑了家人们<img src="https://static.saraba1st.com/image/smiley/face2017
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  ziyer  
+##### 918#       发表于 2024-9-22 10:13
+
+小忍，你还是虚刀流啊
+
+—— 来自 Xiaomi 2211133C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -76,3 +76,21 @@
 
 其實真是按故事主線的話，那連角色也不能換，像以前潛水艇全綁死指定人物出擊，空額都沒有
 
+
+*****
+
+####  TheLoof  
+##### 14808#       发表于 2024-9-23 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66276280&amp;ptid=2084912" target="_blank">洛克萨斯 发表于 2024-9-22 23:33</a>
+
+他配合故事能不能buff给大方点，推个主线看看剧情不至于这么为难玩家吧，我现在一看到强制玛修出场就血压 ...</blockquote>
+这个真是你菌鸽鸽全责
+
+都不说经验值那一票，最近的一次奏章2，俩剧情给的伯爵直接按着对面的卡伯爵揍
+
+宝红红轻松300w往上
+
+然后阿菌转头就给你上高血压
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

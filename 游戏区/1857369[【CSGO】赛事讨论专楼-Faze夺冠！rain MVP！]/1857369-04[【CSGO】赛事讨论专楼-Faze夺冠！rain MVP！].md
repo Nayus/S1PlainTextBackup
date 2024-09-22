@@ -183,3 +183,15 @@ JL：EZEZEZEZEZ
 —— 来自 鹅球 v3.0.86-alpha</blockquote>
 小李子以前不就待过g2吗？进攻便秘的一b
 
+
+*****
+
+####  haruhiismer  
+##### 4455#       发表于 2024-9-22 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66273891&amp;ptid=1857369" target="_blank">yvev 发表于 2024-9-22 18:37</a>
+小李子以前不就待过g2吗？进攻便秘的一b</blockquote>
+我串的，巅峰navi也便秘，还是人不同
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

@@ -1180,3 +1180,34 @@ b站有一个偷跑up说他玩了十几个小时只开了三分之一的地图�
 
 之前看pdd还是320，降价这么多吗
 
+
+*****
+
+####  a2276382  
+##### 685#       发表于 2024-9-22 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66275439&amp;ptid=2188108" target="_blank">chaucerling 发表于 2024-9-22 21:48</a>
+之前看pdd还是320，降价这么多吗</blockquote>
+均价还是 290 -300多左右 上面是百亿补贴 需要抢的
+
+*****
+
+####  一个陆仁贾  
+##### 686#       发表于 2024-9-22 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66274973&amp;ptid=2188108" target="_blank">墨染白泉 发表于 2024-9-22 20:55</a>
+想买卡带的可以开始蹲pdd百亿补贴了，现在有259的</blockquote>
+那么便宜的价格，有说发货时间吗？别是慢货
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+
+*****
+
+####  crosz1985  
+##### 687#       发表于 2024-9-22 22:05
+
+直邮到货时间一般5天起步
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

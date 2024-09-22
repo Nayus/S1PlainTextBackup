@@ -12077,3 +12077,25 @@ syl，关键是自家的伊苏都意识到人太多了，ysx里主控人数缩�
 怪不得黎轨开始就没S战技特写了，看来法老控还是有点逼数的 ...</blockquote>
 近藤说ai有各种问题,不考虑。
 
+
+*****
+
+####  隔壁老黄  
+##### 5649#       发表于 2024-9-22 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66275454&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-22 21:50</a>
+
+近藤说ai有各种问题,不考虑。</blockquote>
+能有啥问题，AI画出来再找人微调就是了，也就几十个角色，一个人都能搞定
+
+
+*****
+
+####  卢迪克  
+##### 5650#       发表于 2024-9-22 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66275536&amp;ptid=2160194" target="_blank">隔壁老黄 发表于 2024-9-22 22:00</a>
+
+能有啥问题，AI画出来再找人微调就是了，也就几十个角色，一个人都能搞定 ...</blockquote>
+万一被查出来，以后画的图就会都被认为是ai画的，不利于他卖周边。
+

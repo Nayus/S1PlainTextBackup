@@ -161,3 +161,13 @@ cadiaN善于即时决策的风格与Twistzz对战术手册的重视发生了冲�
 
 JL：EZEZEZEZEZ
 
+
+*****
+
+####  haruhiismer  
+##### 4453#       发表于 2024-9-22 15:52
+
+要是g2也有小李子这么强的指挥就好了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

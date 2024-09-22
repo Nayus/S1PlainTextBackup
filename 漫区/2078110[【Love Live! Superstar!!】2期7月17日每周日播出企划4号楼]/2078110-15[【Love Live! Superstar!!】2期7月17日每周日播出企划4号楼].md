@@ -1180,3 +1180,15 @@ What a wonderful radio完结还行……
 
 地铁到海傍站，然后走不到一公里就到了
 
+
+*****
+
+####  csolfans  
+##### 21067#       发表于 2024-9-22 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66268177&amp;ptid=2078110" target="_blank">优妮可 发表于 2024-9-21 23:13</a>
+地铁到海傍站，然后走不到一公里就到了</blockquote>
+如果开3个小时感觉回市区都成问题
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

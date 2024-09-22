@@ -11623,3 +11623,24 @@ jrpg已经日落西山了。连最终幻想和勇者斗恶龙都被人诟病，�
 毕竟盟主和妮娜都不像会穿短裙的，排除法那就是了</blockquote>
 旁边有八个槽位，界轨中是某八个东西主人的角色是（）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一步成诗  
+##### 5607#       发表于 2024-9-22 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66272236&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-22 14:26</a>
+
+旁边有八个槽位，界轨中是某八个东西主人的角色是（）</blockquote>
+合成大创世是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 5608#       发表于 2024-9-22 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66268665&amp;ptid=2160194" target="_blank">hkguty 发表于 2024-9-22 00:13</a>
+
+师姐有没有可能过完斑鸠剧情会有新的大招，没新大招超级失望</blockquote>
+都神技xxxx了，还有新的？莫非接下来是仙技xxxx<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

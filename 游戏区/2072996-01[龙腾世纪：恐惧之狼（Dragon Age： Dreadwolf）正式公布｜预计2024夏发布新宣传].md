@@ -1007,3 +1007,16 @@ DAI的捏人就挺一言难尽的，捏人自由度给得并不低，但是怎�
 2代芬里斯一脸的痘坑都不想说啥了，明明人设打扮和剧情背景很二次元，非要弄一张坑坑洼洼的脸来，3代塞拉 ...</blockquote>
 印象里芬里斯当年的评价还是瑟达斯中的最终幻想人物来着XDD
 
+
+*****
+
+####  YG111  
+##### 604#       发表于 2024-9-23 04:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66270242&amp;ptid=2072996" target="_blank">风烛尘香 发表于 2024-9-22 10:01</a>
+
+2代芬里斯一脸的痘坑都不想说啥了，明明人设打扮和剧情背景很二次元，非要弄一张坑坑洼洼的脸来，3代塞拉 ...</blockquote>
+所以ME才是永远的神，其实都很懂玩家只是单纯的想当宇宙炮王罢了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+非得让人都下不去手 那只好死给你看了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

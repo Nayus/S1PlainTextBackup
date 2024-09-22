@@ -11571,3 +11571,13 @@ s演出不变的话有第二个可能性比较大吧
 
 看了下视频，这打击感好强啊，干脆续作抛弃回合制直接就ARPG算了吧，S战技固定演出加上必中就是了
 
+
+*****
+
+####  andychen  
+##### 5602#       发表于 2024-9-22 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66270842&amp;ptid=2160194" target="_blank">隔壁老黄 发表于 2024-9-22 11:29</a>
+看了下视频，这打击感好强啊，干脆续作抛弃回合制直接就ARPG算了吧，S战技固定演出加上必中就是了 ...</blockquote>
+黎1发售后就有人问过近藤，答案是要和伊苏做出区分不会完全ARPG化
+

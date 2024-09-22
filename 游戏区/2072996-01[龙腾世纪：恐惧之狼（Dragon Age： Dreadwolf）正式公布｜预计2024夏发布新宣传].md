@@ -804,3 +804,24 @@ DAI也是这个样子，如果你不跟Dorian和铁牛任何一个人搞，他�
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66270944&amp;ptid=2072996" target="_blank">ak123 发表于 2024-9-22 11:41</a></blockquote>
 我去，PS5版卖450多。。
 
+
+*****
+
+####  Ronu  
+##### 587#       发表于 2024-9-22 12:29
+
+steam上国区预购298其实还好。不过预购奖励就三套铠甲，就真的不是很有驱动力<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+这波要是“风评”崩了搞不好还能等一波很快的打折，加上具体剧情人物刻画水准怎么样也需要观望一段时间，感觉等等也蛮好的
+
+
+*****
+
+####  寂长无星夜  
+##### 588#       发表于 2024-9-22 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66270535&amp;ptid=2072996" target="_blank">Edvinno 发表于 2024-9-22 10:48</a>
+还是有点不一样，以前是丑，但首先那角色是个精灵，最多也是就是好不好看，大不了我自适应。
+现在这几个 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">第一次见到这种亚裔大妈精灵的设计，开了眼了
+

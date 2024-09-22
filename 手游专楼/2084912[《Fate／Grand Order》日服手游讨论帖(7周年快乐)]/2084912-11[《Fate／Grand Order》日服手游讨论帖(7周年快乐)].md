@@ -50,3 +50,14 @@
 因为要配合故事</blockquote>
 他配合故事能不能buff给大方点，推个主线看看剧情不至于这么为难玩家吧，我现在一看到强制玛修出场就血压高，特别是锁一些被克制的角色简直心态爆炸
 
+
+*****
+
+####  cenhr  
+##### 14806#       发表于 2024-9-22 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66276280&amp;ptid=2084912" target="_blank">洛克萨斯 发表于 2024-9-22 23:33</a>
+
+他配合故事能不能buff给大方点，推个主线看看剧情不至于这么为难玩家吧，我现在一看到强制玛修出场就血压 ...</blockquote>
+不能，就是要让玩家难受，这才符合老害玩家蘑菇的想法。自己把敌人写的逼格这么高但游戏上被秒怎么甘心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1065,3 +1065,36 @@ b站有一个偷跑up说他玩了十几个小时只开了三分之一的地图�
 玩到现在，大概85分左右吧，比小机器人是差不少。</blockquote>
 怎么能跟锁定年度的小机器人比
 
+
+*****
+
+####  孔方兄  
+##### 675#       发表于 2024-9-22 16:55
+
+85分？那任天堂得被喷死吧
+
+*****
+
+####  黄泉川此方  
+##### 676#       发表于 2024-9-22 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66273104&amp;ptid=2188108" target="_blank">chizuru 发表于 2024-9-22 16:46</a>
+
+怎么能跟锁定年度的小机器人比</blockquote>
+小机器人是这位的衡量标准
+
+<img src="https://img.saraba1st.com/forum/202409/22/165514h28mmk2jcnaccg2c.png" referrerpolicy="no-referrer">
+
+<strong>8a161d6b4b41c9e6159ac1f4f8e13c34.png</strong> (235.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-22 16:55 上传
+
+*****
+
+####  Wondering  
+##### 677#       发表于 2024-9-22 16:56
+
+可以这样说，我到现在第一个正式大迷宫都还没进，库里就有接近四十个不同种类的道具和怪物了，拥有独特能力能用于花式解密的道具都有十几种
+

@@ -11537,3 +11537,29 @@ s演出不变的话有第二个可能性比较大吧
 记得是前员工</blockquote>
 制服女友也是他剧本
 
+
+*****
+
+####  卢迪克  
+##### 5600#       发表于 2024-9-22 11:01
+
+ 本帖最后由 卢迪克 于 2024-9-22 11:02 编辑 
+
+元宇宙展中界轨角色是立绘，空轨re角色是游戏内建模
+
+<img src="https://img.saraba1st.com/forum/202409/22/110114a0fa1vuefjnzfeaj.png" referrerpolicy="no-referrer">
+
+<strong>GYA23Xfb0AIXdsw(1).png</strong> (47.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-22 11:01 上传
+
+<img src="https://img.saraba1st.com/forum/202409/22/110117joovnno0uwaoaouv.png" referrerpolicy="no-referrer">
+
+<strong>GYA3ElQb0AYrVEy(1).png</strong> (68.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-22 11:01 上传
+

@@ -731,3 +731,14 @@ DAI也是这个样子，如果你不跟Dorian和铁牛任何一个人搞，他�
 
 预购了，生软再带我冲一次吧！，要是发售后真不行的话就当做吃屎了。
 
+
+*****
+
+####  ak123  
+##### 582#       发表于 2024-9-22 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66270367&amp;ptid=2072996" target="_blank">sosgame67 发表于 2024-9-22 10:23</a>
+
+记得国外线下统计da4的预售和刺客信条影一个水平..没口碑逆转大概率是暴死了 ...</blockquote>
+临近发售不过40天，steam全球销量版已经快跌出前100了，这东西已经死的不能再透了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

@@ -12026,3 +12026,33 @@ syl，关键是自家的伊苏都意识到人太多了，ysx里主控人数缩�
 
 想多了，不沿用e大师，现有角色都得重新画立绘，法老控打死不会干，要换也是新篇才换。
 
+
+*****
+
+####  隔壁老黄  
+##### 5644#       发表于 2024-9-22 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66275237&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-22 21:27</a>
+
+想多了，不沿用e大师，现有角色都得重新画立绘，法老控打死不会干，要换也是新篇才换。 ...</blockquote>
+这灾难性的立绘还不如直接3D建模然后AI画2D
+
+怪不得黎轨开始就没S战技特写了，看来法老控还是有点逼数的
+
+*****
+
+####  ravend233  
+##### 5645#       发表于 2024-9-22 21:28
+
+只要还是共和国篇肯定还是e大师<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">它不完结大伙就要继续吃
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  smdzh2  
+##### 5646#       发表于 2024-9-22 21:33
+
+即使开启新篇，你在剧情回顾里依然可以欣赏E圣的美图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

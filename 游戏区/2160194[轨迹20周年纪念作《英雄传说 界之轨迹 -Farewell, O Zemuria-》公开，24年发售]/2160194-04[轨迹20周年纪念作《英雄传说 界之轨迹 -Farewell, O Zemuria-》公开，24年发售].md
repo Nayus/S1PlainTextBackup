@@ -12128,3 +12128,24 @@ syl，关键是自家的伊苏都意识到人太多了，ysx里主控人数缩�
 
 ai也就是调侃罢了，用在其他地方还好，不可能用在作画上的。不是成品水平高低的问题，是立本业界和舆论对ai作图这个东西的抵制问题。独立游戏个人作品可以搞搞，法老控这种多少算个厂商，不好搞的
 
+
+*****
+
+####  无动于衷  
+##### 5654#       发表于 2024-9-22 23:05
+
+<blockquote>隔壁老黄 发表于 2024-9-22 22:00
+能有啥问题，AI画出来再找人微调就是了，也就几十个角色，一个人都能搞定 ...</blockquote>
+用ai就意味着会有无数个被用来训练的原主能过来找你麻烦，这个可不是你说没用哪个就没用的
+
+*****
+
+####  悠悠你心  
+##### 5655#       发表于 2024-9-22 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66275396&amp;ptid=2160194" target="_blank">迷雾塔 发表于 2024-9-22 21:44</a>
+界轨去争取一下年度提名吧今年可是游戏小年</blockquote>
+没英文，抬走<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

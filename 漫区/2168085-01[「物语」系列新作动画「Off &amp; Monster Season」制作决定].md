@@ -737,3 +737,11 @@ mv看笑了家人们<img src="https://static.saraba1st.com/image/smiley/face2017
 
 小忍是见过后面旅游的七花吗
 
+
+*****
+
+####  Sliurus  
+##### 926#       发表于 2024-9-22 23:01
+
+打破第四面墙的彩蛋而已，终物语还有好几段副音轨梗
+

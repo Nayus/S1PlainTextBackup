@@ -29,3 +29,24 @@
 
 ....................其实我不是很懂他们为啥老喜欢锁人，真的好恶心，锁人又不给buff打起来体验极差
 
+
+*****
+
+####  cenhr  
+##### 14804#       发表于 2024-9-22 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66275964&amp;ptid=2084912" target="_blank">洛克萨斯 发表于 2024-9-22 23:08</a>
+
+....................其实我不是很懂他们为啥老喜欢锁人，真的好恶心，锁人又不给buff打起来体验极差 ...</blockquote>
+因为要配合故事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 14805#       发表于 2024-9-22 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66276250&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-9-22 23:31</a>
+
+因为要配合故事</blockquote>
+他配合故事能不能buff给大方点，推个主线看看剧情不至于这么为难玩家吧，我现在一看到强制玛修出场就血压高，特别是锁一些被克制的角色简直心态爆炸
+

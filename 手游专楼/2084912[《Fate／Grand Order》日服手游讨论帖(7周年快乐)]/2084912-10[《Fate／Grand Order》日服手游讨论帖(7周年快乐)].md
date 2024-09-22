@@ -1943,3 +1943,13 @@ ssy强化本<img src="https://static.saraba1st.com/image/smiley/face2017/049.png
 不是，怎么还在强化AE田中阿姨
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 14787#       发表于 2024-9-22 17:42
+
+蘑菇真是对FE爱得深沉，用了这么大篇幅、这么大阵仗讲后日谈，还接二连三给优质强化。
+
+也许lip不出灵衣是因为螺旋社产能拉了后腿，否则俩五星喜提强化，lip光换背景，有种霸凌的感觉...
+

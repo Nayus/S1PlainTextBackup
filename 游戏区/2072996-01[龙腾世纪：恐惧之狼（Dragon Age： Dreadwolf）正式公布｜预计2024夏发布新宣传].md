@@ -795,3 +795,12 @@ DAI也是这个样子，如果你不跟Dorian和铁牛任何一个人搞，他�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lbb3313725  
+##### 586#       发表于 2024-9-22 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66270944&amp;ptid=2072996" target="_blank">ak123 发表于 2024-9-22 11:41</a></blockquote>
+我去，PS5版卖450多。。
+

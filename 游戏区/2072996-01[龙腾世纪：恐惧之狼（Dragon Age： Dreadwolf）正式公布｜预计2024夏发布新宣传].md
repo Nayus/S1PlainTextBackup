@@ -885,3 +885,13 @@ PS5 卖450 甚至比直接买60美元的版本还贵了
 对于西幻入坑作是魔戒的人来说，黑人精灵这个设定真的绷不住</blockquote>
 魔戒现在网剧也有黑人精灵
 
+
+*****
+
+####  zhenlune  
+##### 594#       发表于 2024-9-22 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66272337&amp;ptid=2072996" target="_blank">ナルバレック 发表于 2024-9-22 14:42</a>
+魔戒现在网剧也有黑人精灵</blockquote>
+我知道，猎魔人也有，都绷不住
+

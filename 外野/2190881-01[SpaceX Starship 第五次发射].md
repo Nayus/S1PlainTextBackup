@@ -193,3 +193,43 @@ B12的热分离环已装好。S30可能在白天与B12合体。目前下周开�
 
 2024-9-22 10:09 上传
 
+
+*****
+
+####  commcody  
+##### 62#         楼主| 发表于 2024-9-22 11:31
+
+SpaceX官图，S30与B12完成合体
+
+<img src="https://img.saraba1st.com/forum/202409/22/113115uyeye5e87bgzg5bz.jpg" referrerpolicy="no-referrer">
+
+<strong>GYCD05Mb0AIyNDw.jpg</strong> (505.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-22 11:31 上传
+
+<img src="https://img.saraba1st.com/forum/202409/22/113116mgwpxcecpxpeclgo.jpg" referrerpolicy="no-referrer">
+
+<strong>GYCD3LOb0AQHPe-.jpg</strong> (670.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-22 11:31 上传
+
+<img src="https://img.saraba1st.com/forum/202409/22/113116bo6lsxxfl3jb894z.jpg" referrerpolicy="no-referrer">
+
+<strong>GYCD602b0AMckmR.jpg</strong> (569.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-22 11:31 上传
+
+<img src="https://img.saraba1st.com/forum/202409/22/113116qvtiut4bgbi7l6ml.jpg" referrerpolicy="no-referrer">
+
+<strong>GYCD-npb0AEFEsT.jpg</strong> (651.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-22 11:31 上传
+

@@ -5637,3 +5637,16 @@ pve开放以后就很少进pvp了
 灭龙巧克蘑菇ろぶすた
 4个4000+
 
+
+*****
+
+####  秋月孝三  
+##### 5459#       发表于 2024-9-22 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66273612&amp;ptid=2150634" target="_blank">carroy 发表于 2024-9-22 18:05</a>
+灭龙巧克蘑菇ろぶすた
+4个4000+</blockquote>
+5000+4900+4900+4400，均分大于绝大多数上位玩家最高分<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

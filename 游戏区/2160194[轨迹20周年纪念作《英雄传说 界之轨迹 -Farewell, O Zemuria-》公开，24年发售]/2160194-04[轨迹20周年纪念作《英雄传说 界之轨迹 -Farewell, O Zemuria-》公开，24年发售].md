@@ -11612,3 +11612,14 @@ jrpg已经日落西山了。连最终幻想和勇者斗恶龙都被人诟病，�
 
 毕竟盟主和妮娜都不像会穿短裙的，排除法那就是了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 5606#       发表于 2024-9-22 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66272169&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-22 14:14</a>
+
+毕竟盟主和妮娜都不像会穿短裙的，排除法那就是了</blockquote>
+旁边有八个槽位，界轨中是某八个东西主人的角色是（）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

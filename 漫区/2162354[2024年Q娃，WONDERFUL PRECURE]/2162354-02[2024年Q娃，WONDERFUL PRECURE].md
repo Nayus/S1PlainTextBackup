@@ -58,3 +58,23 @@
 
 一直在一起的两个人（或者说一人一猫）偶尔分开行动扩充了见闻后反而有更多的话题可以聊了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  上坂莲华  
+##### 2233#       发表于 2024-9-22 17:26
+
+立意挺好的但是便宜动画味儿太重了，还好识趣的没再插个三人变身，不然Bpart整个一兼用卡和静止帧大作了
+
+还有猫舔毛是上对下的，但是之前茶会猫就已经进圈子了，后面小麦也说是认猫当老大，你这一舔有点不合规矩啊
+
+以及世界名画之大妈满脑子都是两头恰啊.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202409/22/172612annnm8xsxpq812sn.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240922170033.png</strong> (85.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-22 17:26 上传
+

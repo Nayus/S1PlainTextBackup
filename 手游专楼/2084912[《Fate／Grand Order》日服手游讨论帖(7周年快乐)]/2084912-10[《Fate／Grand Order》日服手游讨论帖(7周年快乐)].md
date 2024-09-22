@@ -1906,3 +1906,15 @@ AI化之前也渐渐生不下去了，没差<img src="https://static.saraba1st.c
 社会学和物理学就别在意了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sesuna  
+##### 14783#       发表于 2024-9-22 16:15
+
+[https://www.bilibili.com/video/B ... b013758bf6006a15b56](https://www.bilibili.com/video/BV1PdtDe1Enr/?spm_id_from=333.1007.0.0&amp;vd_source=ca77a9e5f515cb013758bf6006a15b56)
+
+我就说策划哪会这么好心给你稳定刷到新素材<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+6加成对于平(贫)民玩家太遥远了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+

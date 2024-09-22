@@ -94,3 +94,18 @@
 然后阿菌转头就给你上高血压
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 14809#       发表于 2024-9-23 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66276637&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-9-23 00:01</a>
+
+这个真是你菌鸽鸽全责
+
+都不说经验值那一票，最近的一次奏章2，俩剧情给的伯爵直接按着对面的卡伯爵揍
+
+宝 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对啊，我觉得锁卡配合剧情没问题，问题是你要buff给够啊
+

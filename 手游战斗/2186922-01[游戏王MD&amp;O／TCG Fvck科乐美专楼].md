@@ -67,3 +67,13 @@
 
 —— 来自 OPPO PHY110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  战术核辣条  
+##### 138#         楼主| 发表于 2024-9-24 03:30
+
+6的这样下去g一定会越来越少的
+
+—— 来自 nubia NX729J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

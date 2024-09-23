@@ -1043,3 +1043,23 @@ DAI当年堪称最大的捏脸欺诈，捏人画面还算清秀的角色，进�
 
 如果在RPG方面有什么技术革新是迫在眉睫的话，就是尽快解决“自建角色过场动画表情崩坏”问题，霍格沃茨之遗和BG3也有这毛病，但都没有DAI那么严重，2077直接做成第一人称倒是省事儿了。DAI当初是主角截图都找不到几张顺眼的，而霍遗和BG3的打光和角度都比DAI强很多，主角如果不做大表情就不怎么崩坏。
 
+
+*****
+
+####  woaimiyabi  
+##### 607#       发表于 2024-9-23 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66275445&amp;ptid=2072996" target="_blank">Flechette 发表于 2024-9-22 21:49</a>
+
+看了一圈感觉还是和DAI的问题差不多，能捏出帅男人帅女人，但是想捏个特别刻板的女精灵之类的就会在五官 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202409/23/194023zob0ohpkph0b7ipw.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240923102740.png</strong> (102.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-23 19:40 上传
+
+现在确实没有什么好看的精灵捏人，看了不少只有这个捏的还能看，但应该是完全照搬了游戏里面npc的脸捏的。
+

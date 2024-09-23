@@ -494,3 +494,18 @@ P5 经过二次元提炼的日式城市生活呈现是极其稀缺的体验（�
 
 ----发送自 [Xiaomi 2304FPN6DC,Android 14](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  取名真是难  
+##### 753#       发表于 2024-9-23 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66264681&amp;ptid=2140224" target="_blank">雲夢淵澤 发表于 2024-9-21 15:12</a>
+
+反正后面会出完全版
+
+那我为什么不等完全版呢
+
+就当无印不存在不就好了</blockquote>
+也可以先爽了后面再靠xgp补一下完全版，如果这个完全版也就P5到P5R的程度也没什么补的必要
+

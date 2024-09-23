@@ -12078,3 +12078,19 @@ Maybe 1.16鸡开播的新情报，然后上来live一个op<img src="https://stat
 小心给你风的人体+神蠢的五官</blockquote>
 你是懂怎么出鬼图的，那干脆把火的氛围也加上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 23318#       发表于 2024-9-23 17:24
+
+ 本帖最后由 Aendst 于 2024-9-23 17:26 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么鬼图大师
+
+大发表会的部分，以往两年都是企划新情报+一个乐队mini live
+
+已经有管人的情况下mujica可能不会上live，但是确实可能追加出演（不开live但是上台发表的概率比较高？）
+
+确定有mujica动画相关的情报
+

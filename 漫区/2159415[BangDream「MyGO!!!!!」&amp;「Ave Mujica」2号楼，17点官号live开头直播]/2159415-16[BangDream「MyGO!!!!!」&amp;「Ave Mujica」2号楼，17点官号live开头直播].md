@@ -12470,3 +12470,11 @@ wsd的惊世智慧
 
 要做新游戏出狗鸡团的时候就该做了，两年前没搞出gbp2来基本就是要继续建屎山了
 
+
+*****
+
+####  akiomn  
+##### 23359#       发表于 2024-9-24 01:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日本那个做手游的技术力，哈哈，反正绝大部分是真的不行
+

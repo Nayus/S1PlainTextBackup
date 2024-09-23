@@ -509,3 +509,24 @@ P5 经过二次元提炼的日式城市生活呈现是极其稀缺的体验（�
 就当无印不存在不就好了</blockquote>
 也可以先爽了后面再靠xgp补一下完全版，如果这个完全版也就P5到P5R的程度也没什么补的必要
 
+
+*****
+
+####  葵  
+##### 754#       发表于 2024-9-23 20:08
+
+看了几个实机演示感觉都是30帧的样子，想问下这游戏PS5版是锁30帧吗？是的话我懒得买了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  雲夢淵澤  
+##### 755#       发表于 2024-9-23 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66284263&amp;ptid=2140224" target="_blank">取名真是难 发表于 2024-9-23 19:33</a>
+
+也可以先爽了后面再靠xgp补一下完全版，如果这个完全版也就P5到P5R的程度也没什么补的必要 ...</blockquote>
+也是。
+
+不过自己总感觉上赶着玩了无印就输了。
+

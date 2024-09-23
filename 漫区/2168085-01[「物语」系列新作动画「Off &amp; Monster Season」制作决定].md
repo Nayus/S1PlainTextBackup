@@ -745,3 +745,19 @@ mv看笑了家人们<img src="https://static.saraba1st.com/image/smiley/face2017
 
 打破第四面墙的彩蛋而已，终物语还有好几段副音轨梗
 
+
+*****
+
+####  oi99o  
+##### 927#       发表于 2024-9-23 20:11
+
+牢忍，别肘<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202409/23/201059ujlan8gv1lb99j6b.png" referrerpolicy="no-referrer">
+
+<strong>[Nekomoe kissaten][Monogatari Series - Off &amp; Monster Season][10][1080p][JPSC].mp.png</strong> (241.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-23 20:10 上传
+

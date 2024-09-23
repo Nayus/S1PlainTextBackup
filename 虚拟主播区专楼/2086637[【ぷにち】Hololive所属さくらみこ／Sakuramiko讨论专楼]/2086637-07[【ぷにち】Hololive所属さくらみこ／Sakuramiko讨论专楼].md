@@ -10924,3 +10924,23 @@ mio虾：果然hololive作为女性idol集团，还是很多成员不太愿意�
 
 miko：就这人数完全没计划到能进行到做ユニオン
 
+
+*****
+
+####  sekai2014  
+##### 9783#       发表于 2024-9-23 23:01
+
+最终日 374929
+
+*****
+
+####  holoan  
+##### 9784#         楼主| 发表于 2024-9-24 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66286074&amp;ptid=2086637" target="_blank">sekai2014 发表于 2024-9-23 23:01</a>
+
+最终日 374929</blockquote>
+你发错楼了
+
+不过客观的说这点人数能超过对面100人也是奇迹
+

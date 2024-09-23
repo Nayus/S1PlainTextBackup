@@ -12247,3 +12247,24 @@ ai也就是调侃罢了，用在其他地方还好，不可能用在作画上的
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  洛克萨斯  
+##### 5665#       发表于 2024-9-23 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66277755&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-23 08:12</a>
+
+一说光明系列就来气，刃和舟照搬挖个雷系统挺好玩的还能听美少女唱歌，响一转手感稀烂动作类 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">傻逼sega！tony还在画光明的时候人设比现在强多了
+
+
+*****
+
+####  Squall25  
+##### 5666#       发表于 2024-9-23 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66277840&amp;ptid=2160194" target="_blank">twilightlu 发表于 2024-9-23 08:33</a>
+我就好奇一件事 中文版多长时间能价格蹦到300rmb 以下?如果3个月能到这水平 我就等一等。 ...</blockquote>
+这个说不准吧，价格一般取决于出货量，我感觉这次出货量不多，可能性不大吧。
+

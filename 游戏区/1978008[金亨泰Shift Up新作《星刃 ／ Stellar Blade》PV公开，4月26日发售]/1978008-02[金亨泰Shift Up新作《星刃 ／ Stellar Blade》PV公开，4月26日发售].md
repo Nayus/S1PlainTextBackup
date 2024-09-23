@@ -247,3 +247,17 @@ nikke里面的各种衣品可是天天被人嘲笑直男审美
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  隔壁老黄  
+##### 1734#       发表于 2024-9-23 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66271282&amp;ptid=1978008" target="_blank">nagitoY 发表于 2024-9-22 12:22</a>
+关于剧情有几个问题。涉及剧透反白
+
+一开始收集到的文档里提到人类为了适应逐渐恶劣的地球环境，主动把心脏 ...</blockquote>
+那没法说明母主领域强制启动天罚攻击融合后的伊芙，还派出人造人大军过来歼灭她，只不过伊芙实在太强单人无双罢了，而且母主领域说这只是个开始，全面战争无法避免，这大概就是2代的主要剧情了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

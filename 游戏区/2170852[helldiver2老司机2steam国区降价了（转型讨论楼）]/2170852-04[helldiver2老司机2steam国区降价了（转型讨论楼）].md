@@ -2178,3 +2178,61 @@ We are looking at resolving this asap.
 
 强袭硬锁撞人太难顶了，冲锋过程中不断修正方向保持始终把玩家锁定在中心，1v1斗牛都很难躲开更别说是在跟其他小怪拉扯的时候，体感起码八成概率被创。
 
+
+*****
+
+####  冰箱研会长  
+##### 5452#       发表于 2024-9-23 13:32
+
+崩溃 奇游UU轮番上阵均无法正常匹配
+
+加速别的游戏倒是好好的
+
+太难绷了
+
+*****
+
+####  xinfengj  
+##### 5453#       发表于 2024-9-23 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66280863&amp;ptid=2170852" target="_blank">冰箱研会长 发表于 2024-9-23 13:32</a>
+
+崩溃 奇游UU轮番上阵均无法正常匹配
+
+加速别的游戏倒是好好的
+
+太难绷了</blockquote>
+加速也就过反作弊打的更新，真联机不太用得上，匹配不到可能是网络环境和P2P联机方式有冲突
+
+裸连试过么，路由器开UPNP呢
+
+*****
+
+####  冰箱研会长  
+##### 5454#       发表于 2024-9-23 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66284330&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-9-23 19:43</a>
+
+加速也就过反作弊打的更新，真联机不太用得上，匹配不到可能是网络环境和P2P联机方式有冲突
+
+裸连试过么， ...</blockquote>
+网络环境确实
+
+我是软路由全局代理，但是理论上规则没问题啊（
+
+而且最搞笑的是，同网络下steamdeck用的好好的，一点问题没有，就是pc怎么都不行
+
+*****
+
+####  xinfengj  
+##### 5455#       发表于 2024-9-23 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66284536&amp;ptid=2170852" target="_blank">冰箱研会长 发表于 2024-9-23 20:12</a>
+
+网络环境确实
+
+我是软路由全局代理，但是理论上规则没问题啊（
+
+而且最搞笑的是，同网络下steamdeck用的好 ...</blockquote>
+PC网络设置关ipv6试试
+

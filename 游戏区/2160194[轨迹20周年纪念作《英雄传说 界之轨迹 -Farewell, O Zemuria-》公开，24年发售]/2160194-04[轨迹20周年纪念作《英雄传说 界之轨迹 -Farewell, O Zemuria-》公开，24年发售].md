@@ -12840,3 +12840,107 @@ O轨死了主教，B轨死了银行行长，闪轨死了猎兵王、七姐、宰
 
 官网这一排角色不做个无双可惜了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  约翰里德  
+##### 5723#       发表于 2024-9-23 21:37
+
+老外胡诌的东西你们也信啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  野山野林檎  
+##### 5724#       发表于 2024-9-23 22:11
+
+这系列的剧情我已经忘得差不多了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  迷雾塔  
+##### 5725#       发表于 2024-9-23 22:17
+
+ 本帖最后由 迷雾塔 于 2024-9-23 22:21 编辑 
+
+好像轨迹系列都没死过主人公，也不死女主角，只死配角
+
+*****
+
+####  we89623  
+##### 5726#       发表于 2024-9-23 22:44
+
+ 本帖最后由 we89623 于 2024-9-23 22:48 编辑 
+
+PS4PRO租了15天费用93，界轨PS4数字版租了，7天39，每超一天多6块。
+
+反正轨迹我一向玩简单模式看剧情，7天差不多应该能通。
+
+不用买PC版了，也不怕坛友剧透啦，我也不用花大价钱买个机器玩完吃灰了。
+
+现在日厂还不能首发PC真有意思，首发PC带中文你游首周销量何止五万，不知道脑子怎么想的。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Chw6951  
+##### 5727#       发表于 2024-9-23 23:39
+
+我印象中除了空轨死过两个反派（？）以外全系列都没死过人，无论主角配角还是反派，轨迹好就好在不会死人的安心感
+
+*****
+
+####  Oshino  
+##### 5728#       发表于 2024-9-23 23:42
+
+ 本帖最后由 Oshino 于 2024-9-23 23:45 编辑 
+
+宰相不是嘎了吗，法老控估计最后悔的莫过于在空轨整死了剑帝，不然现在什么克洛什么大少都要靠边站
+
+*****
+
+####  隔壁老黄  
+##### 5729#       发表于 2024-9-23 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66286367&amp;ptid=2160194" target="_blank">Chw6951 发表于 2024-9-23 23:39</a>
+
+我印象中除了空轨死过两个反派（？）以外全系列都没死过人，无论主角配角还是反派，轨迹好就好在不会死人的 ...</blockquote>
+O轨死了主教，B轨死了银行行长，闪轨死了猎兵王、七姐、宰相、艾丽莎她爹，好像还有几个不太记得了。黎轨的庭院全灭，丁格也是挂了
+
+*****
+
+####  古畑任三郎2015  
+##### 5730#       发表于 2024-9-23 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66286454&amp;ptid=2160194" target="_blank">隔壁老黄 发表于 2024-9-23 23:53</a>
+O轨死了主教，B轨死了银行行长，闪轨死了猎兵王、七姐、宰相、艾丽莎她爹，好像还有几个不太记得了。黎轨 ...</blockquote>
+大统领活的好好的，不信谣不传谣<img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">
+**同志G倒是被大统领卫队星座歼灭了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  ravend233  
+##### 5731#       发表于 2024-9-24 00:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以预载了
+
+*****
+
+####  crosz1985  
+##### 5732#       发表于 2024-9-24 00:18
+
+[https://www.cloudedleopardent.co ... racter/bergard.html](https://www.cloudedleopardent.com/game/kai/zh/character/bergard.html)
+
+官网这一排角色不做个无双可惜了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  迷雾塔  
+##### 5733#       发表于 2024-9-24 07:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66285926&amp;ptid=2160194" target="_blank">we89623 发表于 2024-9-23 22:44</a>
+PS4PRO租了15天费用93，界轨PS4数字版租了，7天39，每超一天多6块。
+
+反正轨迹我一向玩简单模式看剧情，7天 ...</blockquote>
+首发pc？你觉得f社这个营收压力能冲一波pc吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">万一赶不上死线发售，这年财报怎么办
+

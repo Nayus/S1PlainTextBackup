@@ -1402,3 +1402,15 @@ b站有一个偷跑up说他玩了十几个小时只开了三分之一的地图�
 时光游戏好像不搞预售新品了，看了下他家都是些老游戏，挺可惜的</blockquote>
 搞的，智慧再现就有预售
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 708#       发表于 2024-9-23 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66283258&amp;ptid=2188108" target="_blank">thez 发表于 2024-9-23 17:42</a>
+搞的，智慧再现就有预售</blockquote>
+啊，前两天去tb店里看了都没找到智杖，还以为他家以后都专注老游戏了，看来只是单纯没赶上
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

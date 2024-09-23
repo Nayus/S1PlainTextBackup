@@ -273,3 +273,20 @@ FAA之前说要拖到11月底。个人觉得这次这么早就合体测试算是
 FAA之前说要拖到11月底。个人觉得这次这么早就合体测试算是种示威。加上最近老马和SpaceX找议院狂怼FAA不 ...</blockquote>
 谁叫马一龙挺ykw的？得罪了方丈还想有好果子吃？
 
+
+*****
+
+####  机吉斯卡  
+##### 67#       发表于 2024-9-23 10:09
+
+SpaceX打捞了第四次试飞的Booster 11残骸，图片中为Booster 11的外圈发动机。 ​​​
+
+<img src="https://img.saraba1st.com/forum/202409/23/100911dgb4ok6njmn9z2gt.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4099.jpeg</strong> (523.02 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-23 10:09 上传
+

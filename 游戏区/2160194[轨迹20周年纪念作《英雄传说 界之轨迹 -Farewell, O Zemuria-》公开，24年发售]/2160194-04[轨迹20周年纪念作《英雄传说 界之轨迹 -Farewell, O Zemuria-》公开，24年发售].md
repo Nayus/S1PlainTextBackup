@@ -12364,3 +12364,14 @@ ai也就是调侃罢了，用在其他地方还好，不可能用在作画上的
 
 本作会揭晓教会的秘密，教会篇亡了<img src="https://static.saraba1st.com/image/smiley/face2017/268.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 5676#       发表于 2024-9-23 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66278650&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-23 10:06</a>
+
+没出价格呢还是受注卖的，黄金亚克力谁敢买，买得起也怕运输路上腰斩了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么大块很容易折吧，你日还是祖传单层亚克力
+

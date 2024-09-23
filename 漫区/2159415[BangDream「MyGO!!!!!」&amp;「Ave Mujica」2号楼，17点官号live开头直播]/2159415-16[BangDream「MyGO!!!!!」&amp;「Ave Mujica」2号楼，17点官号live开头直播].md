@@ -11776,3 +11776,89 @@ go还会出场 出场就有消解关系性/反复横跳的风险
 
 看眼rad和蝶抽象的动画剧情，二次元风评都被害，wsd真有把关吗（
 
+
+*****
+
+####  好想看Mujica啊  
+##### 23285#       发表于 2024-9-23 08:46
+
+只是把手游里的一些抽象剧情搬到动画里，这种东西在手游里要多少有多少，怎么就接受不了了呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 23286#       发表于 2024-9-23 08:48
+
+和真正变态的片相比 ras和蝶的剧情都显得挺正常了 起码最后圆回来了
+
+*****
+
+####  星天观测  
+##### 23287#       发表于 2024-9-23 08:50
+
+流汗了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">同样的话题真的要同时在泥楼和屎黄论坛一起滑坡么
+
+又到了鸡动画烂完的时间线了？
+
+*****
+
+####  skives  
+##### 23288#       发表于 2024-9-23 08:52
+
+wsd疑似是想倒闭了
+
+*****
+
+####  PDQ4  
+##### 23289#       发表于 2024-9-23 09:00
+
+怎么唐突滑坡，这是菜花烂了？
+白开水剧情也能烂吗<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 23290#       发表于 2024-9-23 09:02
+
+菜花烂了=鸡烂完了
+
+有点搞笑吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还是总算找到新理由贷款鸡烂完了
+
+*****
+
+####  adcdqre  
+##### 23291#       发表于 2024-9-23 09:21
+
+ 本帖最后由 adcdqre 于 2024-9-23 09:23 编辑 
+
+感觉信Mygo造神的那套才会去看菜花，mujica粉应该三级就跑了<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">粉丝如果过于依赖刻板印象那无论手游还是动画只要有后续在他们眼里怎么都烂
+
+*****
+
+####  御景  
+##### 23292#       发表于 2024-9-23 09:28
+
+有一点不好的苗头，又开始切割mujica了，能不能干脆点
+
+*****
+
+####  鳥栖朝  
+##### 23293#       发表于 2024-9-23 09:49
+
+所以又要演一出，鸡好就是狗的功劳，鸡坏就是拖累狗/和狗没关系的戏吗？<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 23294#       发表于 2024-9-23 10:14
+
+干嘛这么累呢，直接黑到底不好么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+无事计算戏份，有事贷款烂完
+
+直接一开始就当一坨垃圾看得了，跳来跳去的烦不烦
+
+闹麻了
+

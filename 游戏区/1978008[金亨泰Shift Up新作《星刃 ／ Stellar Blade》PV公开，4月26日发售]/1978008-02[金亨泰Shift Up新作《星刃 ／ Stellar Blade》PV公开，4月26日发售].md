@@ -261,3 +261,14 @@ nikke里面的各种衣品可是天天被人嘲笑直男审美
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  nagitoY  
+##### 1735#       发表于 2024-9-23 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66278219&amp;ptid=1978008" target="_blank">隔壁老黄 发表于 2024-9-23 09:21</a>
+
+那没法说明母主领域强制启动天罚攻击融合后的伊芙，还派出人造人大军过来歼灭她，只不过伊芙实在太强单人 ...</blockquote>
+那母主单纯是个失控ai？目的就是消灭人类，原因不知道？
+

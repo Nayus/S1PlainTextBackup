@@ -12280,3 +12280,28 @@ ai也就是调侃罢了，用在其他地方还好，不可能用在作画上的
 
 —— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  一步成诗  
+##### 5668#       发表于 2024-9-23 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66278194&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-9-23 09:19</a>
+
+傻逼sega！tony还在画光明的时候人设比现在强多了</blockquote>
+反正光明系列在光响之后就死了，紧接着挖个雷也死了，sbga<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  卢迪克  
+##### 5669#       发表于 2024-9-23 09:44
+
+<img src="https://img.saraba1st.com/forum/202409/23/094423aju07jrlyy9uhsxb.png" referrerpolicy="no-referrer">
+
+<strong>GYEe4Fzb0AI4gvj(1).png</strong> (65.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-23 09:44 上传
+

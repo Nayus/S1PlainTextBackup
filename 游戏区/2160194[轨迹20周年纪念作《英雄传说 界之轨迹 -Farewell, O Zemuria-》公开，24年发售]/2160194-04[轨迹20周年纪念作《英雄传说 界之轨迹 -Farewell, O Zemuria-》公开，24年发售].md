@@ -12211,3 +12211,39 @@ ai也就是调侃罢了，用在其他地方还好，不可能用在作画上的
 
 我就好奇一件事 中文版多长时间能价格蹦到300rmb 以下?如果3个月能到这水平 我就等一等。
 
+
+*****
+
+####  隔壁老黄  
+##### 5662#       发表于 2024-9-23 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66277805&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-23 08:25</a>
+今天的</blockquote>
+每天都在鞭打E大师<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  隔壁老黄  
+##### 5663#       发表于 2024-9-23 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66277840&amp;ptid=2160194" target="_blank">twilightlu 发表于 2024-9-23 08:33</a>
+我就好奇一件事 中文版多长时间能价格蹦到300rmb 以下?如果3个月能到这水平 我就等一等。 ...</blockquote>
+你还不如首发买回来国庆通关然后卖掉<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  隔壁老黄  
+##### 5664#       发表于 2024-9-23 09:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66277792&amp;ptid=2160194" target="_blank">法拉 发表于 2024-9-23 08:22</a>
+你口中没人买的e大师周边，一个亚克力立牌能炒到几百块，轨迹凯子到底什么时候能用脚投票？
+
+—— 来自 S ...</blockquote>
+那是轨迹的周边吗？不是的话有个毛用
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

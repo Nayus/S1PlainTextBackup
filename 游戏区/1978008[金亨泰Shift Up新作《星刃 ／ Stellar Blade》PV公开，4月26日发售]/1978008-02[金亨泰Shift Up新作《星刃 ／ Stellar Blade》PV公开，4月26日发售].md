@@ -296,3 +296,18 @@ AI觉醒成主母，觉得爹(阿达姆/生物人)太菜了，只有我的人造
 
 —— 来自 OnePlus PHB110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  nagitoY  
+##### 1737#       发表于 2024-9-23 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66279076&amp;ptid=1978008" target="_blank">十六夜pad长 发表于 2024-9-23 10:46</a>
+
+有个解释比较简单我也认可：
+
+人类创造出AI，AI创造出人造人；</blockquote>
+孽奇拔还有个强项是可以寄生机器人。奥尔科、渡鸦都是被寄生的人造人，也不知道这种到底算不算有人类DNA的新人类。也可能寄生是埃达姆在研究融合实验的中间产物。
+
+总的来说主线剧情感觉还行，天堂降下的天使、地狱爬出来的恶魔的对比，真相和表象的反差挺有意思的。就是支线太过无聊，和核心剧情几乎没有关系。挖掘这、废品店、歌姬的支线剧情完全和真相脱节，其余支线是最无聊的通马桶。
+

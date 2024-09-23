@@ -1259,3 +1259,35 @@ b站有一个偷跑up说他玩了十几个小时只开了三分之一的地图�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  黛冬優子  
+##### 693#       发表于 2024-9-23 15:20
+
+直邮要五天多？
+
+
+*****
+
+####  leonlink  
+##### 694#       发表于 2024-9-23 15:23
+
+很久没有买实体游戏了，原来墨策发货这么快的吗<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  heseran  
+##### 695#       发表于 2024-9-23 15:25
+
+发是发了，但是以往的经验到清关完成就得五天，算上快递的时间。3号能玩到就是胜利<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  heseran  
+##### 696#       发表于 2024-9-23 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66281880&amp;ptid=2188108" target="_blank">leonlink 发表于 2024-9-23 15:23</a>
+很久没有买实体游戏了，原来墨策发货这么快的吗</blockquote>
+没记错的话以前买都是提前一天，这次稍微早了两天。
+

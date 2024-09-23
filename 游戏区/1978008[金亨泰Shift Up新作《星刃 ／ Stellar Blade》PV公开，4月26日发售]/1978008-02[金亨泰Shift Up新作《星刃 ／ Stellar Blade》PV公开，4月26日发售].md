@@ -331,3 +331,18 @@ AI觉醒成主母，觉得爹(阿达姆/生物人)太菜了，只有我的人造
 
 歌剧院剧情更直接吧，直接把歌姬在过去是机器人，给其他人类表演唱歌这件事糊脸上了
 
+
+*****
+
+####  nagitoY  
+##### 1740#       发表于 2024-9-23 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66281930&amp;ptid=1978008" target="_blank">袄_偶滴小乔 发表于 2024-9-23 15:28</a>
+
+废品店没啥关系我同意，挖掘者和歌剧院支线同主线真相是有点关系的吧，挖掘者主要涉及一个他的意识产生的 ...</blockquote>
+歌姬的身份这点是我遗漏了。我对这条支线的印象主要还是停留在她的爱情故事上，感觉写的有点太老套了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+挖掘者的支线还提到了它的意识和希雍里的人造人一样吗？我完全没印象了。
+
+另外这游戏里不少细节都藏在记忆棒里，我都没怎么细看。通关后我去b站找了下剧情解析才知道原来埃达姆就是马斯克<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -12418,3 +12418,11 @@ wsd的惊世智慧
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  肛之练筋士  
+##### 23354#       发表于 2024-9-23 21:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">估计鸡的新情报就是给vg的dz新动画唱op/ed吧（前2季的ed刚好是蝶和go，第三季是鸡也正常）
+

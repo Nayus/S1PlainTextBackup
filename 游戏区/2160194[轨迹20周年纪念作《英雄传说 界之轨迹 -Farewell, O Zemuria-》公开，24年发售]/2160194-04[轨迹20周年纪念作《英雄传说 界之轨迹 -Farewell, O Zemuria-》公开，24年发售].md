@@ -12401,3 +12401,11 @@ ai也就是调侃罢了，用在其他地方还好，不可能用在作画上的
 4的评价不也是很烂吗打骨折我都没敢买</blockquote>
 剧情和人物塑造稀烂，玩法还好吧原汁原味，要不是医务室抽箱子伪随机恶心人，我愿意称之为白金神作<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ky怪  
+##### 5679#       发表于 2024-9-23 11:44
+
+已经有人通关了啊
+

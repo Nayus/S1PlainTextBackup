@@ -12102,3 +12102,19 @@ Maybe 1.16鸡开播的新情报，然后上来live一个op<img src="https://stat
 
 go之前大发表会的迷你live只有不插电，全套装备上不去，估计就是因为这个才让管人团上的
 
+
+*****
+
+####  ytttsuuuba  
+##### 23320#       发表于 2024-9-23 18:08
+
+1.13都还有动画新情报？？1月底才播吗这是？<img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rikaren  
+##### 23321#       发表于 2024-9-23 18:11
+
+难道不是早就可以推断出动画开始放送时间大概率1.16及以后了吗（
+

@@ -1422,3 +1422,11 @@ b站有一个偷跑up说他玩了十几个小时只开了三分之一的地图�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">搜了下pdd怎么织梦岛还要250，新作出了带着老作品涨了一波么
 
+
+*****
+
+####  bird-lay  
+##### 710#       发表于 2024-9-23 18:14
+
+为什么这游戏不像织梦岛一样出个带设定集之类的版本
+

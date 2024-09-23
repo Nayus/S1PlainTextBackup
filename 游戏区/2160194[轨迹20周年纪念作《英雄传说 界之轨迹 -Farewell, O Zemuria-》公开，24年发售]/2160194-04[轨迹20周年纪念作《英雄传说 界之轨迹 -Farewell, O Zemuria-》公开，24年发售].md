@@ -12375,3 +12375,19 @@ ai也就是调侃罢了，用在其他地方还好，不可能用在作画上的
 没出价格呢还是受注卖的，黄金亚克力谁敢买，买得起也怕运输路上腰斩了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么大块很容易折吧，你日还是祖传单层亚克力
 
+
+*****
+
+####  法拉  
+##### 5677#       发表于 2024-9-23 10:21
+
+ 本帖最后由 法拉 于 2024-9-23 10:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66278137&amp;ptid=2160194" target="_blank">隔壁老黄 发表于 2024-9-23 09:12</a>
+
+那是轨迹的周边吗？不是的话有个毛用
+
+—— 来自 鹅球 v3.1.91-alpha</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不仅是轨迹的周边，还是纯纯原版立绘
+
+法老控的谷子就没几个新柄，80%都是立绘、cg或者游戏截图，我过去也是吃得下这些垃圾的神人之一
+

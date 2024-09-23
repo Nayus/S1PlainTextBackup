@@ -1020,3 +1020,13 @@ DAI的捏人就挺一言难尽的，捏人自由度给得并不低，但是怎�
 
 非得让人都下不去手 那只好死给你看了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洁西卡  
+##### 605#       发表于 2024-9-23 10:18
+
+其实bg3也是。有一堆做的很丑的东南亚人脸精灵<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2304A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

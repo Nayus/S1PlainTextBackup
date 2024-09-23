@@ -11862,3 +11862,103 @@ wsd疑似是想倒闭了
 
 闹麻了
 
+
+*****
+
+####  cherryjia12  
+##### 23295#       发表于 2024-9-23 10:33
+
+差不多得了，菜花烂了只能证明柿本干不了系构，要滑也是滑神椿和母鸡卡有毛关系
+
+*****
+
+####  MASKA-1  
+##### 23296#       发表于 2024-9-23 11:01
+
+看独角兽发力了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  PDQ4  
+##### 23297#       发表于 2024-9-23 11:04
+
+不如说菜花烂了对鸡来讲反而是好事吧
+烂了反而更说明绫奈和柿本的矛盾可能是因为菜花
+
+鸡动画早做完了，真烂了硬拖一年炸个大烟花可以列入二偶行为艺术榜单<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 23298#       发表于 2024-9-23 11:06
+
+yysy菜花真粪反而有点兴趣去看了，之前确实看了3集无聊到弃掉<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 23299#       发表于 2024-9-23 11:07
+
+确实 独角兽在推特上还是敢提mujica的
+而菜花在语音直播里都是用“某部动画”来指代 
+切割得才叫干净<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+估计是真被剧情恶心到了
+
+*****
+
+####  星天观测  
+##### 23300#       发表于 2024-9-23 11:15
+
+西八又要为lisa充钱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202409/23/111445ibbxzzw2j2t7kbcx.png" referrerpolicy="no-referrer">
+
+<strong>A0838BAB4C9FA084AF960BCA6243D6F2.png</strong> (112.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-23 11:14 上传
+
+*****
+
+####  Aendst  
+##### 23301#       发表于 2024-9-23 12:11
+
+ 本帖最后由 Aendst 于 2024-9-23 12:15 编辑 
+
+隔行如隔山，监督和系构本来就俩职业，柿本还是第一次做系构
+
+菜花烂了完全是意料之中的事
+
+但mujica的系构和原案又不是柿本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这联动三个角色的声优怎么也都在爱马仕有角色
+
+之后会有kkr和ksm吗
+
+*****
+
+####  NODY  
+##### 23302#       发表于 2024-9-23 12:19
+
+立希厨吐槽剧情的时候就帮人贷款动画是两季一起写明年会补完不要多嘴，贷款动画烂又变成切割不影响go了吗，统一一下口径啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 23303#       发表于 2024-9-23 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66279322&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-9-23 11:06</a>
+
+yysy菜花真粪反而有点兴趣去看了，之前确实看了3集无聊到弃掉</blockquote>
+看过水母星团gbc吗，没看过话菜花就是单纯的无聊，要看过才能get到各种既视感产生的笑点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星空冻结  
+##### 23304#       发表于 2024-9-23 12:22
+
+按照柿本菜花的搞法，真觉得go可以站干岸上的肯定没看过菜花<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

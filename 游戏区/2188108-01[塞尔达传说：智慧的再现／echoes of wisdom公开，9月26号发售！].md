@@ -1308,3 +1308,26 @@ b站有一个偷跑up说他玩了十几个小时只开了三分之一的地图�
 
 问一下坛友买实体游戏除了墨策哪家好点？我这边想买pm1re和月姬。结果他家都没有。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  heseran  
+##### 699#       发表于 2024-9-23 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66281990&amp;ptid=2188108" target="_blank">kuarwbwe 发表于 2024-9-23 15:34</a>
+
+问一下坛友买实体游戏除了墨策哪家好点？我这边想买pm1re和月姬。结果他家都没有。 ...</blockquote>
+去2000fun看看？但是我没在这家买过。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| kuarwbwe| + 1|我看看，谢谢。|
+
+查看全部评分
+

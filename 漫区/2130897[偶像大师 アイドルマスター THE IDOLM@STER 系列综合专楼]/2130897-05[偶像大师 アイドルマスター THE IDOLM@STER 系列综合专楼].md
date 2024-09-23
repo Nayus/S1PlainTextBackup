@@ -1078,3 +1078,13 @@ SSR_シアワセなイタズラ_ver.SH_箱崎星梨花.png
 
 白线真的好多了，用心练和连唱三次还那个样还是有很大区别的
 
+
+*****
+
+####  Seeley  
+##### 6419#       发表于 2024-9-23 15:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">冠菊这收音是不是有点问题
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -1232,3 +1232,11 @@ b站有一个偷跑up说他玩了十几个小时只开了三分之一的地图�
 参考我去年买的港版直邮惊奇，是发售前一天发的货。过了四天到货，速度还能接受吧 ...</blockquote>
 我买的首发惊奇还是249拿下的，比这次259还便宜
 
+
+*****
+
+####  雾时  
+##### 690#       发表于 2024-9-23 14:07
+
+墨策发货了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+

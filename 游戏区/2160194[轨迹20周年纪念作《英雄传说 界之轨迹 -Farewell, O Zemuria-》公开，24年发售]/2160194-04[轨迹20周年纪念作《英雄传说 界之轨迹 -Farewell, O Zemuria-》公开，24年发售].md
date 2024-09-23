@@ -12757,3 +12757,11 @@ van挂月球吗</blockquote>
 
 这系列的剧情我已经忘得差不多了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  迷雾塔  
+##### 5715#       发表于 2024-9-23 22:17
+
+好像轨迹系列都没死过主人公，只死配角
+

@@ -454,3 +454,22 @@ PS3的cell确实很麻烦，索尼自己现在搞PS3游戏进psn游戏库都是�
 
 啥阿猫阿狗都重置就是不重置血源是吧
 
+
+*****
+
+####  洪水熊猫大势去  
+##### 45#       发表于 2024-9-23 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66282328&amp;ptid=2200503" target="_blank">含恨未了切莫死 发表于 2024-9-23 16:13</a>
+
+有adv么，我看封面骑的是辆巡航摩托</blockquote>
+就那一辆车改装的
+
+
+*****
+
+####  膛线  
+##### 46#       发表于 2024-9-23 22:20
+
+这游戏除了魔改成液化气罐子扔清朝僵尸还有啥看头吗
+

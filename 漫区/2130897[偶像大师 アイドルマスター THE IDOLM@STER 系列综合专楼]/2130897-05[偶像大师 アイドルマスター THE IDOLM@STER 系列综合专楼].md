@@ -1061,3 +1061,20 @@ SSR_シアワセなイタズラ_ver.SH_箱崎星梨花.png
 
 — from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  天羽木子  
+##### 6417#       发表于 2024-9-23 15:02
+
+真好想听L.U.V.的录音棚版<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">莉波啊啊啊啊啊啊
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  麻巳巳  
+##### 6418#       发表于 2024-9-23 15:04
+
+白线真的好多了，用心练和连唱三次还那个样还是有很大区别的
+

@@ -1519,3 +1519,43 @@ b站有一个偷跑up说他玩了十几个小时只开了三分之一的地图�
 你们是怎么找到259的，我8:00进去搜来搜去也没有啊</blockquote>
 百亿补贴的百亿加倍补活动
 
+
+*****
+
+####  沧兰殇  
+##### 721#       发表于 2024-9-23 22:00
+
+昨晚群里有说百亿补贴里百亿加倍补有，不过没看手机没抢到，但是预告里今天八点又有一波，特地蹲时间抢了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  恋妖壶  
+##### 722#       发表于 2024-9-23 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66285325&amp;ptid=2188108" target="_blank">墨染白泉 发表于 2024-9-23 21:50</a>
+
+百亿补贴的百亿加倍补活动</blockquote>
+我知道啊，但是怎么找到的啊，我搜游戏名，搜百亿加倍补，都没看到活动页面，出来的搜索结果最低的29x
+
+*****
+
+####  天堂大法  
+##### 723#       发表于 2024-9-23 22:02
+
+[https://www.nintendo.com/us/what ... s-of-wisdom-part-1/](https://www.nintendo.com/us/whatsnew/ask-the-developer-vol-13-the-legend-of-zelda-echoes-of-wisdom-part-1/)
+
+美任放出来了第一二章的采访，这作GREZZO参与程度太高了，感觉完全被任天堂注入dna了，两个总监一个GREZZO的Satoshi Terada 一个任天堂从时之笛3d开始就参与对接GREZZO的佐野友美，也是系列第一位女性总监，该作的核心创意也是GREZZO提出来的，一个是编辑迷宫一个就是复制，但是可以编辑迷宫那个原型在做了一年多之后被青沼掀 桌 了！复制品能力倒是保留了下来<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沧兰殇  
+##### 724#       发表于 2024-9-23 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66285460&amp;ptid=2188108" target="_blank">恋妖壶 发表于 2024-9-23 22:02</a>
+我知道啊，但是怎么找到的啊，我搜游戏名，搜百亿加倍补，都没看到活动页面，出来的搜索结果最低的29x ...</blockquote>
+不是搜，拼多多首页百亿补贴点进去，之后里面有百亿加倍补，点进去，就能看到今天和明天的限时补贴内容
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

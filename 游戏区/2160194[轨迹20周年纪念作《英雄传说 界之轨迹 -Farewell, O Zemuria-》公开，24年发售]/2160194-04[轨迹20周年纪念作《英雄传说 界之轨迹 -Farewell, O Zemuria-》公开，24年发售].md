@@ -12474,3 +12474,36 @@ van挂月球吗
 
 低难全支线50多小时吧好像
 
+
+*****
+
+####  卢迪克  
+##### 5687#       发表于 2024-9-23 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66280597&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-23 12:53</a>
+
+低难全支线50多小时吧好像</blockquote>
+咚吗           
+
+*****
+
+####  Aeons  
+##### 5688#       发表于 2024-9-23 13:09
+
+我不知道啊，你可以问贴吧微信群或者贴吧群，那边有人十多号就在玩
+
+
+*****
+
+####  alucardcz  
+##### 5689#       发表于 2024-9-23 13:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">那么简单评价下? 剧情是好还是寄
+
+*****
+
+####  ravend233  
+##### 5690#       发表于 2024-9-23 13:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">咚了吗，剧本烂吗，水吗
+

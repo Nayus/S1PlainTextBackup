@@ -12305,3 +12305,62 @@ ai也就是调侃罢了，用在其他地方还好，不可能用在作画上的
 
 2024-9-23 09:44 上传
 
+
+*****
+
+####  smdzh2  
+##### 5670#       发表于 2024-9-23 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66278397&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-23 10:39</a>
+反正光明系列在光响之后就死了，紧接着挖个雷也死了，sbga</blockquote>
+女乳神最伤的是苍蓝革命，大家都觉得这个系列乙烷的时候4代堂堂登场
+等到4销量磨过百万，续作又遥遥无期了，看不懂世gay这脑回路<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 5671#       发表于 2024-9-23 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66278435&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-23 09:44</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个1：1立牌好像还会卖
+
+*****
+
+####  Falcomfans  
+##### 5672#       发表于 2024-9-23 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66278541&amp;ptid=2160194" target="_blank">smdzh2 发表于 2024-9-23 09:56</a>
+女乳神最伤的是苍蓝革命，大家都觉得这个系列乙烷的时候4代堂堂登场
+等到4销量磨过百万，续作又遥遥无期 ...</blockquote>
+四代销量不行的，一代还没上Steam时就过百万了，而且一代还有PS3平台销量最高SRPG这个吉尼斯世界纪录。
+
+
+*****
+
+####  一步成诗  
+##### 5673#       发表于 2024-9-23 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66278541&amp;ptid=2160194" target="_blank">smdzh2 发表于 2024-9-23 09:56</a>
+
+女乳神最伤的是苍蓝革命，大家都觉得这个系列乙烷的时候4代堂堂登场
+
+等到4销量磨过百万，续作又遥遥无期 ...</blockquote>
+4的评价不也是很烂吗打骨折我都没敢买<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一步成诗  
+##### 5674#       发表于 2024-9-23 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66278560&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-23 09:58</a>
+
+这个1：1立牌好像还会卖</blockquote>
+没出价格呢还是受注卖的，黄金亚克力谁敢买，买得起也怕运输路上腰斩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 5675#       发表于 2024-9-23 10:07
+
+本作会揭晓教会的秘密，教会篇亡了<img src="https://static.saraba1st.com/image/smiley/face2017/268.gif" referrerpolicy="no-referrer">
+

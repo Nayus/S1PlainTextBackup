@@ -10890,3 +10890,18 @@ mio虾：果然hololive作为女性idol集团，还是很多成员不太愿意�
 
 今天结婚式都成event了草
 
+
+*****
+
+####  holoan  
+##### 9779#         楼主| 发表于 2024-9-23 17:35
+
+切片时间给了fbk的单人剧情补足整整10分钟，所以今天市民侧最大的聚焦点不是面包店的婚礼，而是fbk的行动
+
+*****
+
+####  karastar  
+##### 9780#       发表于 2024-9-23 17:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">纯洁的女性百合天堂
+

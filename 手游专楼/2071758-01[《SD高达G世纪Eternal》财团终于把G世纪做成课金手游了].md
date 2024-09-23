@@ -513,3 +513,15 @@ G世纪全收集才是买点啊，刷图折磨自己是闹哪样啊
 
 这游戏死透了吧
 
+
+*****
+
+####  HEERO.W  
+##### 50#       发表于 2024-9-23 19:20
+
+ 本帖最后由 HEERO.W 于 2024-9-23 19:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66282262&amp;ptid=2071758" target="_blank">shinjiwy 发表于 2024-9-23 16:04</a>
+
+这游戏死透了吧</blockquote>
+死透了，财报说有5个游戏停止开发，这次TGS都没参加肯定是其中之一
+

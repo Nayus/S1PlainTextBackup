@@ -319,3 +319,15 @@ AI觉醒成主母，觉得爹(阿达姆/生物人)太菜了，只有我的人造
 
 彼列这个boss是真的帅，被寄生的战甲，造型和动作我都很喜欢
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 1739#       发表于 2024-9-23 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66279608&amp;ptid=1978008" target="_blank">nagitoY 发表于 2024-9-23 11:30</a>
+孽奇拔还有个强项是可以寄生机器人。奥尔科、渡鸦都是被寄生的人造人，也不知道这种到底算不算有人类DNA ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">废品店没啥关系我同意，挖掘者和歌剧院支线同主线真相是有点关系的吧，挖掘者主要涉及一个他的意识产生的过程，他本来是一个ai，是低于"人类"一等的，结果这种环境下他自己偶然产生了意识，经过调查发现他的意识和希雍城里的"人类"的意识没什么不同，甚至天使来了发现天使的意识也没什么特别的。
+
+歌剧院剧情更直接吧，直接把歌姬在过去是机器人，给其他人类表演唱歌这件事糊脸上了
+

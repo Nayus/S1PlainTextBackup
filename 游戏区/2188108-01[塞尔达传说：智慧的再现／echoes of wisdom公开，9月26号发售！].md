@@ -1291,3 +1291,20 @@ b站有一个偷跑up说他玩了十几个小时只开了三分之一的地图�
 很久没有买实体游戏了，原来墨策发货这么快的吗</blockquote>
 没记错的话以前买都是提前一天，这次稍微早了两天。
 
+
+*****
+
+####  heseran  
+##### 697#       发表于 2024-9-23 15:32
+
+以前最常买的速度超快的两家店一家老板被抓换老板了（偶尔能在游戏发售前一天或者当天就收到），另外一家基本上也处于不做的状态了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kuarwbwe  
+##### 698#       发表于 2024-9-23 15:34
+
+ 本帖最后由 kuarwbwe 于 2024-9-23 15:37 编辑 
+
+问一下坛友买实体游戏除了墨策哪家好点？我这边想买pm1re和月姬。结果他家都没有。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

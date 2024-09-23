@@ -12625,3 +12625,13 @@ van挂月球吗
 
 插个楼问下黎之轨迹1为啥卖的这么贵。。。
 
+
+*****
+
+####  隔壁老黄  
+##### 5704#       发表于 2024-9-23 15:12
+
+刚看了一下黎轨2的通关时间，居然100多小时<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

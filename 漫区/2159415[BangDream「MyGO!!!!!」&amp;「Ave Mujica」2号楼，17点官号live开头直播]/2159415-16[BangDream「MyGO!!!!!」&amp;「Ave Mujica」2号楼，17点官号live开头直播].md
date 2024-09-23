@@ -11700,3 +11700,79 @@ go还会出场 出场就有消解关系性/反复横跳的风险
 
 拉拉那是（自认为）家大业大不在乎二次元乱搞，剧情全靠抽制作组盲盒，才会出现星动画和llas这种东西，wsd应该还不至于<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 23275#       发表于 2024-9-22 17:41
+
+<img src="https://p.sda1.dev/19/dd1ccd71d0b83113678ddf2d4de66c7f/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 23276#       发表于 2024-9-22 23:05
+
+睦祥的神降臨<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+[https://x.com/sigangsan/status/1837867804466598317](https://x.com/sigangsan/status/1837867804466598317)
+
+*****
+
+####  Toki_Ai  
+##### 23277#       发表于 2024-9-23 01:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  akiomn  
+##### 23278#       发表于 2024-9-23 01:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">菜花那样不是应该先担心mujica怎么办吗？和go有啥关系，go都已经结束了
+
+*****
+
+####  skives  
+##### 23279#       发表于 2024-9-23 01:52
+
+go还会出场 出场就有消解关系性/反复横跳的风险
+
+*****
+
+####  ShikiM  
+##### 23280#       发表于 2024-9-23 01:59
+
+要mujica蜇样，go不被波及是不可能的
+
+
+*****
+
+####  skives  
+##### 23281#       发表于 2024-9-23 02:00
+
+做邦都熟练工了 2.5企划也有人管 应该不至于这么变态 当然 前提是系构还是独角兽
+
+*****
+
+####  ShikiM  
+##### 23282#       发表于 2024-9-23 02:02
+
+2.5真有人管嘛，为什么星团动画能放花田写成那样<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 23283#       发表于 2024-9-23 02:41
+
+拉拉那是（自认为）家大业大不在乎二次元乱搞，剧情全靠抽制作组盲盒，才会出现星动画和llas这种东西，wsd应该还不至于<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 23284#       发表于 2024-9-23 08:09
+
+看眼rad和蝶抽象的动画剧情，二次元风评都被害，wsd真有把关吗（
+

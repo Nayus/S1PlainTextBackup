@@ -566,3 +566,14 @@ HKD 170
 
 怎么有苍蓝雷霆的卡？同一家公司的吗还是联动过来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  荆棘花冠  
+##### 46#       发表于 2024-9-23 08:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66277590&amp;ptid=2200160" target="_blank">blue321 发表于 2024-9-23 07:02</a>
+
+怎么有苍蓝雷霆的卡？同一家公司的吗还是联动过来的</blockquote>
+苍蓝雷霆本来就inti的
+

@@ -12450,3 +12450,15 @@ wsd的惊世智慧
 长谷川也是他要求多达五次作曲的
 那他也算战犯之一吧
 
+
+*****
+
+####  saverok  
+##### 23357#       发表于 2024-9-23 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66284978&amp;ptid=2159415" target="_blank">Gwyn 发表于 2024-9-23 21:18</a>
+手島nari
+
+—— 来自 S1Fun</blockquote>
+伟大的手岛降临忠实的mygo<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

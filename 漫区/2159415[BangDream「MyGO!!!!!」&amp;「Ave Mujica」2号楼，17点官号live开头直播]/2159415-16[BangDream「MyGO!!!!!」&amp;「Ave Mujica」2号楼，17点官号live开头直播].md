@@ -11962,3 +11962,33 @@ yysy菜花真粪反而有点兴趣去看了，之前确实看了3集无聊到弃
 
 按照柿本菜花的搞法，真觉得go可以站干岸上的肯定没看过菜花<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 23305#       发表于 2024-9-23 16:40
+
+Maybe 1.16鸡开播的新情报，然后上来live一个op<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 23306#       发表于 2024-9-23 16:46
+
+看看你鸡今年的运营
+
+再看看这个标题上big big的面具
+
+一股幽默感油然而生<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  圆  
+##### 23307#       发表于 2024-9-23 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66282468&amp;ptid=2159415" target="_blank">NODY 发表于 2024-9-23 16:31</a>
+
+没看过就是白开水，看过就是“水母怎么还在追我”</blockquote>
+还是那句话，菜花凭啥碰瓷水母，水母是5和7把期待值拉得太高倒是最后的烂尾太令人失望，菜花可能都比不过去掉蛰5蛰7的水母。
+

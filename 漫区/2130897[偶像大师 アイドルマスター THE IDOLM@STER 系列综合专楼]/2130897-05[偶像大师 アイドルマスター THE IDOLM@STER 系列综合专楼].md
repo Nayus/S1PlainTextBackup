@@ -1044,3 +1044,20 @@ SSR_シアワセなイタズラ_ver.SH_箱崎星梨花.png
 
 <img src="https://img.saraba1st.com/forum/202409/22/144316dqvq4qqq4qnq4u0q.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  BQlin  
+##### 6415#       发表于 2024-9-23 14:42
+
+看来是有去特训过了，这次表情好很多，偶尔还是有一些太用劲，不过导播有打配合切镜头
+
+*****
+
+####  天羽木子  
+##### 6416#       发表于 2024-9-23 14:44
+
+这次的白线对味道了，现场感觉很好
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

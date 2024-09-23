@@ -148,3 +148,32 @@
 
 这次这个因缘召唤真给他玩明白了，咕哒拉了大奸商，爱迪狮拉了特总，剧情里就算了，搞的是学姐在打月癌时助战拉了个公主，我还以为当时那个流向是给黄金bb呢，我金钻头和c呆都准备好了，结果硬是拿扎比夫和公主硬磨了好几回合
 
+
+*****
+
+####  v22325  
+##### 14813#       发表于 2024-9-23 09:39
+
+<blockquote>天王寺凯伊姆 发表于 2024-9-23 09:28
+这次这个因缘召唤真给他玩明白了，咕哒拉了大奸商，爱迪狮拉了特总，剧情里就算了，搞的是学姐在打月癌时助 ...</blockquote>
+那里助战搞个???我还想是谁,一看公主。你这不都走了么剧情里也没有。
+
+*****
+
+####  xiongxingyu  
+##### 14814#       发表于 2024-9-23 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66278401&amp;ptid=2084912" target="_blank">v22325 发表于 2024-9-23 09:39</a>
+
+那里助战搞个???我还想是谁,一看公主。你这不都走了么剧情里也没有。</blockquote>
+这里还有彩蛋。学姐：你怎么会在这里？公主：那你当触媒的，有问题吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jackyhuang  
+##### 14815#       发表于 2024-9-23 14:37
+
+说起来整出这么个BOSS来，蘑菇应该玩过XB3了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

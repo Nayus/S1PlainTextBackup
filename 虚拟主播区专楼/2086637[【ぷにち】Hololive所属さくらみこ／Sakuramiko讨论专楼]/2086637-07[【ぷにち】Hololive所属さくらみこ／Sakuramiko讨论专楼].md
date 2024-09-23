@@ -10905,3 +10905,22 @@ mio虾：果然hololive作为女性idol集团，还是很多成员不太愿意�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">纯洁的女性百合天堂
 
+
+*****
+
+####  holoan  
+##### 9781#         楼主| 发表于 2024-9-23 19:19
+
+最后大型是ユニオン
+
+可以的，警察侧准备了最大火力
+
+看烟火了
+
+*****
+
+####  holoan  
+##### 9782#         楼主| 发表于 2024-9-23 22:47
+
+miko：就这人数完全没计划到能进行到做ユニオン
+

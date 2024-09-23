@@ -12426,3 +12426,27 @@ wsd的惊世智慧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">估计鸡的新情报就是给vg的dz新动画唱op/ed吧（前2季的ed刚好是蝶和go，第三季是鸡也正常）
 
+
+*****
+
+####  adcdqre  
+##### 23355#       发表于 2024-9-23 22:30
+
+ 本帖最后由 adcdqre 于 2024-9-23 22:34 编辑 
+
+讲道理我要是鸡团p现在肯定坐不住
+
+别的企划我见过也有这个样的半年被飞了
+
+这个水平可以的话要不是上学真让高尾上说不定都玩的转
+
+*****
+
+####  skives  
+##### 23356#       发表于 2024-9-23 22:35
+
+不知道鬼图是不是鸡团制作人约的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+如果是他约的
+长谷川也是他要求多达五次作曲的
+那他也算战犯之一吧
+

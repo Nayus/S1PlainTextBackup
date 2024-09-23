@@ -12136,3 +12136,20 @@ go之前大发表会的迷你live只有不插电，全套装备上不去，估�
 
 播的晚可能是为了完结无缝对接对邦？
 
+
+*****
+
+####  6030sylar  
+##### 23324#       发表于 2024-9-23 18:44
+
+播得晚当然是没钱做周年作，硬拖一年凑数啊<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  星天观测  
+##### 23325#       发表于 2024-9-23 18:45
+
+算了无所谓了，动画先播了再说吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

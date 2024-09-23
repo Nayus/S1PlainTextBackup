@@ -12822,3 +12822,11 @@ O轨死了主教，B轨死了银行行长，闪轨死了猎兵王、七姐、宰
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  ravend233  
+##### 5721#       发表于 2024-9-24 00:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以预载了
+

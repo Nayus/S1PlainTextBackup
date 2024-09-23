@@ -1365,3 +1365,13 @@ b站有一个偷跑up说他玩了十几个小时只开了三分之一的地图�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">我是哪里便宜买哪里，迟发货几天无所谓
 
+
+*****
+
+####  我在干什么啊  
+##### 704#       发表于 2024-9-23 17:35
+
+<blockquote>clyde-wang 发表于 2024-9-23 17:04
+应该来说是只比大乱斗，王泪便宜，这作是老任NS上日服第三贵的游戏</blockquote>
+火纹和xb系列记得也都不便宜吧
+

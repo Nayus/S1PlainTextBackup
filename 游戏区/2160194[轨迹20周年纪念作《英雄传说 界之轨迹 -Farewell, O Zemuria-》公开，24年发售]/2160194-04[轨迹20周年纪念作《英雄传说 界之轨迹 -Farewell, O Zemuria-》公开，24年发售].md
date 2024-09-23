@@ -12799,3 +12799,26 @@ PS4PRO租了15天费用93，界轨PS4数字版租了，7天39，每超一天多6
 
 宰相不是嘎了吗，法老控估计最后悔的莫过于在空轨整死了剑帝，不然现在什么克洛什么大少都要靠边站
 
+
+*****
+
+####  隔壁老黄  
+##### 5719#       发表于 2024-9-23 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66286367&amp;ptid=2160194" target="_blank">Chw6951 发表于 2024-9-23 23:39</a>
+
+我印象中除了空轨死过两个反派（？）以外全系列都没死过人，无论主角配角还是反派，轨迹好就好在不会死人的 ...</blockquote>
+O轨死了主教，B轨死了银行行长，闪轨死了猎兵王、七姐、宰相、艾丽莎她爹，好像还有几个不太记得了。黎轨的庭院全灭，丁格也是挂了
+
+*****
+
+####  古畑任三郎2015  
+##### 5720#       发表于 2024-9-23 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66286454&amp;ptid=2160194" target="_blank">隔壁老黄 发表于 2024-9-23 23:53</a>
+O轨死了主教，B轨死了银行行长，闪轨死了猎兵王、七姐、宰相、艾丽莎她爹，好像还有几个不太记得了。黎轨 ...</blockquote>
+大统领活的好好的，不信谣不传谣<img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">
+**同志G倒是被大统领卫队星座歼灭了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

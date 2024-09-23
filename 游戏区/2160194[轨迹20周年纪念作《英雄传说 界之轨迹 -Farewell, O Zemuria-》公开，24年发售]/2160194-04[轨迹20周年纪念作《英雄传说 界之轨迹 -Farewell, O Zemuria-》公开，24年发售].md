@@ -12453,3 +12453,16 @@ van挂月球吗
 
 剧透出了?
 
+
+*****
+
+####  冰寒之月  
+##### 5685#       发表于 2024-9-23 12:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66275396&amp;ptid=2160194" target="_blank">迷雾塔 发表于 2024-9-22 21:44</a>
+
+界轨去争取一下年度提名吧今年可是游戏小年</blockquote>
+得出了英文版的才能上TGA吧
+
+那就是黎轨1了
+

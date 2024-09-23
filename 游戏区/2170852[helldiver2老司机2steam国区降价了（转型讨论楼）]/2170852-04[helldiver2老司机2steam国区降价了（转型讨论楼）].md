@@ -2137,3 +2137,44 @@ We are looking at resolving this asap.
 
 现在难9以上单刷真打得了？狂暴武斗虫黏上来两刀我直接蒸发，而且为什么开东线几乎必出吐酸模板，拉一波烟虫子全家老小都到齐了，我超了箭头的马<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  looptube  
+##### 5448#       发表于 2024-9-23 10:15
+
+现在主线剧情啥情况啊，虫子那边星区怎么一半有迷雾，还有我记得以前能看到星球之间的补给线的，现在怎么又没了
+
+—— 来自 Xiaomi 23049PCD8G, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  dfbbymice  
+##### 5449#       发表于 2024-9-23 10:55
+
+目前潜兵中甲医疗甲扛不住大跳脸虫两刀，然后中甲以上的移动速度必然逃不开追击，所以一旦被围很容易死。
+
+现目前打虫子高难还只有轻甲侦查甲+蛋盾最简单，然后1号位火弩，3号位电弧。昨天有局孢子浓雾N10，我全程单人把超级巢穴给端掉了，一整局都没死，只要跑的够快，步伐够妖娆，从虫子堆里冲锋到另一虫子堆里，从一个出口拉扯到另一个出口，生存压力就会**降低<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rainknine  
+##### 5450#       发表于 2024-9-23 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66240964&amp;ptid=2170852" target="_blank">rainknine 发表于 2024-9-18 23:43</a>
+西线当然指的是箭头亲爹机器人啦
+更新之前我日常就在用无后座打运输船，更新后我也在用无后坐打运输船， ...</blockquote>
+原来是用加强后的无后坐力炮的强大数值直接轰下运输船的船身，然后船身会直接爆炸炸掉上面的杂兵<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+炸引擎反倒没这个效果
+
+最近发现飞鹰烟雾在西线意外地好用，偷做任务、紧急脱战，增援运输船下丢一个能很大程度磨平机器人的火力曲线，再也不用担心撤离的时候被十万八千里外的机器人火力压制。
+
+有开黑的基友的话，医疗枪挺好玩的，虽然生命回的慢，但是体力直接补满健步如飞马拉松实在有趣。而且那些只有一小截的小伤可以不耗针了，续航其实拉起来了很多
+
+*****
+
+####  FLZB  
+##### 5451#       发表于 2024-9-23 12:51
+
+强袭硬锁撞人太难顶了，冲锋过程中不断修正方向保持始终把玩家锁定在中心，1v1斗牛都很难躲开更别说是在跟其他小怪拉扯的时候，体感起码八成概率被创。
+

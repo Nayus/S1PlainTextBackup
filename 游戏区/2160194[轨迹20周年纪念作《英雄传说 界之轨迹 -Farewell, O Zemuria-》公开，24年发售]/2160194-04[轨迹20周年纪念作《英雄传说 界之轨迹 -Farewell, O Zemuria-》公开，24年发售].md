@@ -12699,3 +12699,26 @@ van挂月球吗
 
 再见了楼友+1，等我国庆通关再来看剧透
 
+
+*****
+
+####  twilightlu  
+##### 5709#       发表于 2024-9-23 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66278118&amp;ptid=2160194" target="_blank">隔壁老黄 发表于 2024-9-23 09:10</a>
+
+你还不如首发买回来国庆通关然后卖掉
+
+—— 来自 鹅球 v3.1.91-alpha</blockquote>
+主要是不急。十一要通如龙8，真女神转生5。SEGA好歹知道调价。SB云豹现在还搞这么高的定价，能宰一个是一个。<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  twilightlu  
+##### 5710#       发表于 2024-9-23 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66278361&amp;ptid=2160194" target="_blank">悠悠你心 发表于 2024-9-23 09:34</a>
+
+你问的是ps4版还是ps5版？ps4版现在出货量很少的，我前几个月补买伊苏10还花了400+大洋，价格反而比原来 ...</blockquote>
+PS5版。没想到PS4版还能涨价的。<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+

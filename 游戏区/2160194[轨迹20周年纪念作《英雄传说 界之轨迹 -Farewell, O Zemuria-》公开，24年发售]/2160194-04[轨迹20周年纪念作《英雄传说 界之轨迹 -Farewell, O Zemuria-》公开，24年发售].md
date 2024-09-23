@@ -12651,3 +12651,43 @@ van挂月球吗
 
 每年的躁动时刻来了，先消失两周避避风头<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Falcomfans  
+##### 5707#       发表于 2024-9-23 16:51
+
+原来联动轨迹系列的那个「エトランジュ オーヴァーロード」的原作者喜多川浪漫和虾饺是老交情了，经常一起出去野钓，还为了买椅子跑到Falcom去坐社长的椅子，应该是个地方俱乐部：
+
+<img src="https://img.saraba1st.com/forum/202409/23/165114ytds5jf2hsfu4p4j.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8023.jpeg</strong> (518.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-23 16:51 上传
+
+<img src="https://img.saraba1st.com/forum/202409/23/165115wk5eeabkrk3rr1aq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8021.jpeg</strong> (752.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-23 16:51 上传
+
+<img src="https://img.saraba1st.com/forum/202409/23/165115kggo9c6ai6p91pgm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8022.jpeg</strong> (290.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-23 16:51 上传
+
+<img src="https://img.saraba1st.com/forum/202409/23/165117pbcrulzlhpc2ilqq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8024.jpeg</strong> (1.6 MB, 下载次数: 0)
+
+下载附件
+
+2024-9-23 16:51 上传
+

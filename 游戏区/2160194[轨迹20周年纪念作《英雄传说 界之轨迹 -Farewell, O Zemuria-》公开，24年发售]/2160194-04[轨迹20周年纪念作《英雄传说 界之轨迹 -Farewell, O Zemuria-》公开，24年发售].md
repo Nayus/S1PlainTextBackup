@@ -12391,3 +12391,13 @@ ai也就是调侃罢了，用在其他地方还好，不可能用在作画上的
 
 法老控的谷子就没几个新柄，80%都是立绘、cg或者游戏截图，我过去也是吃得下这些垃圾的神人之一
 
+
+*****
+
+####  smdzh2  
+##### 5678#       发表于 2024-9-23 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66278632&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-23 11:04</a>
+4的评价不也是很烂吗打骨折我都没敢买</blockquote>
+剧情和人物塑造稀烂，玩法还好吧原汁原味，要不是医务室抽箱子伪随机恶心人，我愿意称之为白金神作<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

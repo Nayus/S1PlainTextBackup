@@ -12000,3 +12000,30 @@ Maybe 1.16鸡开播的新情报，然后上来live一个op<img src="https://stat
 
 2925年改名母鸡卡年
 
+
+*****
+
+####  PDQ4  
+##### 23309#       发表于 2024-9-23 17:00
+
+看了下那个开催概要，邦部分出场的管人团
+鸡是在藏还是真没有
+最后说了出演者会还会更新
+
+应该是在藏吧，不至于这个logo动画开播月了还没鸡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 23310#       发表于 2024-9-23 17:02
+
+他还在藏 通关三周目就能解锁mujica路线了
+
+*****
+
+####  PDQ4  
+##### 23311#       发表于 2024-9-23 17:03
+
+我总有种wsd会玩尬的，比如管人团演出完鸡突入登场演小剧场<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+希望是正经放情报有大活没鬼图吧
+

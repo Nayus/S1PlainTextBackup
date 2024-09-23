@@ -12176,3 +12176,30 @@ ai也就是调侃罢了，用在其他地方还好，不可能用在作画上的
 
 一说光明系列就来气，刃和舟照搬挖个雷系统挺好玩的还能听美少女唱歌，响一转手感稀烂动作类<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  法拉  
+##### 5659#       发表于 2024-9-23 08:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66275617&amp;ptid=2160194" target="_blank">隔壁老黄 发表于 2024-9-22 22:10</a>
+现在E大师的作品会有人买周边？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你口中没人买的e大师周边，一个亚克力立牌能炒到几百块，轨迹凯子到底什么时候能用脚投票？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ravend233  
+##### 5660#       发表于 2024-9-23 08:25
+
+<img src="https://img.saraba1st.com/forum/202409/23/082505qtn95xm84f58egt4.jpg" referrerpolicy="no-referrer">
+
+<strong>1000006404.jpg</strong> (219.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-23 08:25 上传
+
+今天的
+

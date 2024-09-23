@@ -10839,3 +10839,54 @@ mio虾（今天的asamio）：GTARP服里面发生的任何事产生的任何关
 
 2024-9-23 11:53 上传
 
+
+*****
+
+####  holoan  
+##### 9777#         楼主| 发表于 2024-9-23 11:57
+
+ 本帖最后由 holoan 于 2024-9-23 12:59 编辑 
+
+<img src="https://img.saraba1st.com/forum/202409/23/115703wyaz8gts2l0g3ynt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (24.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-23 11:57 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+第几个泄露机密的了，都已经不是机密的事了
+
+以及！
+
+<img src="https://img.saraba1st.com/forum/202409/23/123926krxv5oscvvx7zzyc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (75.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-23 12:39 上传
+
+运营阵果然考虑了很多，下次的话可能全员调整阵营
+
+mio虾：果然hololive作为女性idol集团，还是很多成员不太愿意跟外部的其他男性接触，mio自己也是，mio其实自己也最希望看到的是单纯的女生之间的交流，所以有些事情想由holo自己来做，这是mio第一次正式表态
+
+所以配合之前miko说的跟holomem相谈之后决定即便holo自己人数不足也不愿意引进外部人员来参加GTA的说法，其实很多holomem自己也是独角兽派
+
+*****
+
+####  holoan  
+##### 9778#         楼主| 发表于 2024-9-23 17:07
+
+<img src="https://img.saraba1st.com/forum/202409/23/170732zjddx9zxxv6yd77x.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (43.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-23 17:07 上传
+
+今天结婚式都成event了草
+

@@ -12027,3 +12027,54 @@ Maybe 1.16鸡开播的新情报，然后上来live一个op<img src="https://stat
 我总有种wsd会玩尬的，比如管人团演出完鸡突入登场演小剧场<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 希望是正经放情报有大活没鬼图吧
 
+
+*****
+
+####  星天观测  
+##### 23312#       发表于 2024-9-23 17:06
+
+鬼图什么的无所谓了，再鬼能比风还鬼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 23313#       发表于 2024-9-23 17:07
+
+小心给你风的人体+神蠢的五官<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adcdqre  
+##### 23314#       发表于 2024-9-23 17:08
+
+开播新情报不一定在开播前<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  PDQ4  
+##### 23315#       发表于 2024-9-23 17:10
+
+想赶周年庆
+只能宣布第一集是1h特别篇了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+不然铁赶不上
+
+*****
+
+####  akiomn  
+##### 23316#       发表于 2024-9-23 17:10
+
+应该是赶不上周年实装了
+
+*****
+
+####  星天观测  
+##### 23317#       发表于 2024-9-23 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66282849&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-9-23 17:07</a>
+
+小心给你风的人体+神蠢的五官</blockquote>
+你是懂怎么出鬼图的，那干脆把火的氛围也加上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

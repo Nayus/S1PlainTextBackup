@@ -346,3 +346,14 @@ AI觉醒成主母，觉得爹(阿达姆/生物人)太菜了，只有我的人造
 
 另外这游戏里不少细节都藏在记忆棒里，我都没怎么细看。通关后我去b站找了下剧情解析才知道原来埃达姆就是马斯克<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  宛若青空  
+##### 1741#       发表于 2024-9-23 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66279608&amp;ptid=1978008" target="_blank">nagitoY 发表于 2024-9-23 11:30</a>
+
+孽奇拔还有个强项是可以寄生机器人。奥尔科、渡鸦都是被寄生的人造人，也不知道这种到底算不算有人类DNA ...</blockquote>
+阿尔法孽奇拔确实是研究融合过程中的实验产物吧，游戏里有提到，只是看起来亚当不认为那是成功的
+

@@ -12722,3 +12722,14 @@ van挂月球吗
 你问的是ps4版还是ps5版？ps4版现在出货量很少的，我前几个月补买伊苏10还花了400+大洋，价格反而比原来 ...</blockquote>
 PS5版。没想到PS4版还能涨价的。<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  言嘉  
+##### 5711#       发表于 2024-9-23 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66280356&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-23 12:29</a>
+
+van挂月球吗</blockquote>
+大概率是学妹挂月球
+

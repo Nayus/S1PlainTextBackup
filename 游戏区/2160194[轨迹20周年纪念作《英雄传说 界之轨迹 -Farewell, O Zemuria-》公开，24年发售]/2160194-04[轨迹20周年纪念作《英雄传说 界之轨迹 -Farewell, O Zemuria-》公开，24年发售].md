@@ -12437,3 +12437,19 @@ ai也就是调侃罢了，用在其他地方还好，不可能用在作画上的
 这么短的吗，这有65小时吗</blockquote>
 fami评测时长砍半不是惯例吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 5683#       发表于 2024-9-23 12:29
+
+van挂月球吗
+
+
+*****
+
+####  natmk  
+##### 5684#       发表于 2024-9-23 12:32
+
+剧透出了?
+

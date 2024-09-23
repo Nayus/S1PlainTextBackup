@@ -12462,3 +12462,11 @@ wsd的惊世智慧
 —— 来自 S1Fun</blockquote>
 伟大的手岛降临忠实的mygo<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  滑稽Captain  
+##### 23358#       发表于 2024-9-24 01:20
+
+要做新游戏出狗鸡团的时候就该做了，两年前没搞出gbp2来基本就是要继续建屎山了
+

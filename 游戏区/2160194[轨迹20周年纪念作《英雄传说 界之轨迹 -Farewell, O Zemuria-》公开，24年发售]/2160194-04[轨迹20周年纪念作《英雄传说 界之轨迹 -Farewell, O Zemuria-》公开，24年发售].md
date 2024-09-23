@@ -12830,3 +12830,13 @@ O轨死了主教，B轨死了银行行长，闪轨死了猎兵王、七姐、宰
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以预载了
 
+
+*****
+
+####  crosz1985  
+##### 5722#       发表于 2024-9-24 00:18
+
+[https://www.cloudedleopardent.co ... racter/bergard.html](https://www.cloudedleopardent.com/game/kai/zh/character/bergard.html)
+
+官网这一排角色不做个无双可惜了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

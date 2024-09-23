@@ -12161,3 +12161,21 @@ go之前大发表会的迷你live只有不插电，全套装备上不去，估�
 
 今年的大发表会怎么还要门票钱
 
+
+*****
+
+####  rikaren  
+##### 23327#       发表于 2024-9-23 19:03
+
+<img src="https://img.saraba1st.com/forum/202409/23/190224zqhl0xxrlq9ma5in.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-09-23-19-02-08-56_76eaced432273cd65da1ec13409568ff.jpg</strong> (208.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-23 19:02 上传
+
+之前就在怀疑正式宣布放送时间会在12.15的4th，放送时间会在1.16及以后，4.10才放送完结（
+
+只能说领略到了wsd的惊世智慧
+

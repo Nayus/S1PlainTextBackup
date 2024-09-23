@@ -12179,3 +12179,31 @@ go之前大发表会的迷你live只有不插电，全套装备上不去，估�
 
 只能说领略到了wsd的惊世智慧
 
+
+*****
+
+####  skives  
+##### 23328#       发表于 2024-9-23 19:08
+
+27年这个游戏还在吗
+
+
+*****
+
+####  NODY  
+##### 23329#       发表于 2024-9-23 19:14
+
+明年周年轮到贝斯位出卡，海铃人气不够高，干脆就跳过周年实装省一张五星了吧
+
+要换个人气高的wsd肯定强行想办法赶上周年了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 23330#       发表于 2024-9-23 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66284080&amp;ptid=2159415" target="_blank">skives 发表于 2024-9-23 19:08</a>
+
+27年这个游戏还在吗</blockquote>
+WSD的脑子是这样子的，国服如果不同步更是要28年才能抽到睦祥的生日卡。
+

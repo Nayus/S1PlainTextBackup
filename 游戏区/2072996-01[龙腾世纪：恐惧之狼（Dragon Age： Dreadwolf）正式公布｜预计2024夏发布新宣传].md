@@ -1030,3 +1030,16 @@ DAI的捏人就挺一言难尽的，捏人自由度给得并不低，但是怎�
 
 —— 来自 vivo V2304A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  风烛尘香  
+##### 606#       发表于 2024-9-23 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66275144&amp;ptid=2072996" target="_blank">Flechette 发表于 2024-9-22 21:15</a>
+
+DAI的捏人就挺一言难尽的，捏人自由度给得并不低，但是怎么捏都捏不好看，可以说是毫无必要地朝着贴近现实 ...</blockquote>
+DAI当年堪称最大的捏脸欺诈，捏人画面还算清秀的角色，进游戏开场就给最丑的打光+最狰狞的表情+最刁钻的角度，活活把人给丑哭。
+
+如果在RPG方面有什么技术革新是迫在眉睫的话，就是尽快解决“自建角色过场动画表情崩坏”问题，霍格沃茨之遗和BG3也有这毛病，但都没有DAI那么严重，2077直接做成第一人称倒是省事儿了。DAI当初是主角截图都找不到几张顺眼的，而霍遗和BG3的打光和角度都比DAI强很多，主角如果不做大表情就不怎么崩坏。
+

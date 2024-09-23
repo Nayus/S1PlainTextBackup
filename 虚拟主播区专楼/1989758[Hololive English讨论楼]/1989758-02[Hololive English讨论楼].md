@@ -33,3 +33,13 @@ yet another gurame /u/schizo
 Gurame Soundpost Archive
 [https://rentry.org/Gurame-Soundpost-Archive](https://rentry.org/Gurame-Soundpost-Archive)
 
+
+*****
+
+####  M1NG  
+##### 1985#       发表于 2024-9-23 13:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

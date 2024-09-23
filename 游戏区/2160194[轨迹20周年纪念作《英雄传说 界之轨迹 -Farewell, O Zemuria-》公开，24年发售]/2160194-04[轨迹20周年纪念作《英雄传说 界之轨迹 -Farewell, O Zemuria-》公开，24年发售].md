@@ -12507,3 +12507,39 @@ van挂月球吗
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">咚了吗，剧本烂吗，水吗
 
+
+*****
+
+####  卢迪克  
+##### 5691#       发表于 2024-9-23 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66280733&amp;ptid=2160194" target="_blank">alucardcz 发表于 2024-9-23 13:11</a>
+
+那么简单评价下? 剧情是好还是寄</blockquote>
+目前只看到通关存档的图<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Squall25  
+##### 5692#       发表于 2024-9-23 13:25
+
+咚不咚有区别吗？反正都是TBC，安心等界轨2吧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Emmerich  
+##### 5693#       发表于 2024-9-23 13:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到朋友嫖了媒体的游戏在玩 还给人同步上去了 笑麻
+
+*****
+
+####  ravend233  
+##### 5694#       发表于 2024-9-23 13:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">咚和阶段性完结感觉上还是不一样的
+
+界2也是肯定会有的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

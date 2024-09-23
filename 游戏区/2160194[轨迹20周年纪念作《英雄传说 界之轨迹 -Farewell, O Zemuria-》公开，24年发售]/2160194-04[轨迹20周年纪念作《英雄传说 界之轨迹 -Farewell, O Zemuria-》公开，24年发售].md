@@ -12268,3 +12268,15 @@ ai也就是调侃罢了，用在其他地方还好，不可能用在作画上的
 我就好奇一件事 中文版多长时间能价格蹦到300rmb 以下?如果3个月能到这水平 我就等一等。 ...</blockquote>
 这个说不准吧，价格一般取决于出货量，我感觉这次出货量不多，可能性不大吧。
 
+
+*****
+
+####  悠悠你心  
+##### 5667#       发表于 2024-9-23 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66277840&amp;ptid=2160194" target="_blank">twilightlu 发表于 2024-9-23 08:33</a>
+我就好奇一件事 中文版多长时间能价格蹦到300rmb 以下?如果3个月能到这水平 我就等一等。 ...</blockquote>
+你问的是ps4版还是ps5版？ps4版现在出货量很少的，我前几个月补买伊苏10还花了400+大洋，价格反而比原来贵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

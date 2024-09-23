@@ -109,3 +109,42 @@
 宝 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对啊，我觉得锁卡配合剧情没问题，问题是你要buff给够啊
 
+
+*****
+
+####  TheLoof  
+##### 14810#       发表于 2024-9-23 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66276280&amp;ptid=2084912" target="_blank">洛克萨斯 发表于 2024-9-22 23:33</a>
+
+他配合故事能不能buff给大方点，推个主线看看剧情不至于这么为难玩家吧，我现在一看到强制玛修出场就血压 ...</blockquote>
+这个真是你菌鸽鸽全责
+
+都不说经验值那一票，最近的一次奏章2，俩剧情给的伯爵直接按着对面的卡伯爵揍
+
+宝红红轻松300w往上
+
+然后阿菌转头就给你上高血压
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 14811#       发表于 2024-9-23 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66276637&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-9-23 00:01</a>
+
+这个真是你菌鸽鸽全责
+
+都不说经验值那一票，最近的一次奏章2，俩剧情给的伯爵直接按着对面的卡伯爵揍
+
+宝 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对啊，我觉得锁卡配合剧情没问题，问题是你要buff给够啊
+
+*****
+
+####  天王寺凯伊姆  
+##### 14812#       发表于 2024-9-23 09:28
+
+这次这个因缘召唤真给他玩明白了，咕哒拉了大奸商，爱迪狮拉了特总，剧情里就算了，搞的是学姐在打月癌时助战拉了个公主，我还以为当时那个流向是给黄金bb呢，我金钻头和c呆都准备好了，结果硬是拿扎比夫和公主硬磨了好几回合
+

@@ -12409,3 +12409,31 @@ ai也就是调侃罢了，用在其他地方还好，不可能用在作画上的
 
 已经有人通关了啊
 
+
+*****
+
+####  医生狼多  
+##### 5680#         楼主| 发表于 2024-9-23 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66279774&amp;ptid=2160194" target="_blank">ky怪 发表于 2024-9-23 11:44</a>
+已经有人通关了啊</blockquote>
+媒体送测的吧
+
+
+*****
+
+####  一步成诗  
+##### 5681#       发表于 2024-9-23 11:56
+
+这么短的吗，这有65小时吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 5682#       发表于 2024-9-23 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66279955&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-23 11:56</a>
+
+这么短的吗，这有65小时吗</blockquote>
+fami评测时长砍半不是惯例吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

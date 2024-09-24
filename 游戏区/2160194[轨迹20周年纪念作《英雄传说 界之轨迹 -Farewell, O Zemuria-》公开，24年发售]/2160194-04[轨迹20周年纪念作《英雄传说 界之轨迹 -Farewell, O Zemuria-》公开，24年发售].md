@@ -14257,3 +14257,25 @@ caf630514fc2d5626ea7ddcea11190ef77c66cb2.jpg
 
 怎么没有提前评测
 
+
+*****
+
+####  diectt  
+##### 5863#       发表于 2024-9-24 23:51
+
+游戏太糊了，媒体懒得评了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  benhawk  
+##### 5864#       发表于 2024-9-24 23:56
+
+哪里看剧透啊？
+
+是闪3的咚！
+
+还是创轨
+
+还是零轨
+

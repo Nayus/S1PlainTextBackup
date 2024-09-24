@@ -11239,3 +11239,24 @@ MV可爱捏。你们有没有这么可爱的彼女啊<img src="https://static.sa
 
 每首歌都是讲自己的，很真实
 
+
+*****
+
+####  holoan  
+##### 9807#         楼主| 发表于 2024-9-24 23:31
+
+<img src="https://img.saraba1st.com/forum/202409/24/233125kpjs5ssjpjy33iir.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (74.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-24 23:31 上传
+
+*****
+
+####  holoan  
+##### 9808#         楼主| 发表于 2024-9-24 23:53
+
+4888日元，实体CD才3850……
+

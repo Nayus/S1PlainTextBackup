@@ -259,3 +259,11 @@ YLS:再嘈下次除了強制前場外，再加不能換人(限制使用劇情衣
 
 白野pick up而已，十月份要是开泳装二周目，把蔓藤实装了，泳装lip送了，那叶狗和螺旋社的妈可以落地
 
+
+*****
+
+####  DARKGRAY  
+##### 14822#       发表于 2024-9-24 23:57
+
+后篇开的时候就说了的，所以压根没抽，甚至没喂，看看到时会不会再给个双倍经验<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

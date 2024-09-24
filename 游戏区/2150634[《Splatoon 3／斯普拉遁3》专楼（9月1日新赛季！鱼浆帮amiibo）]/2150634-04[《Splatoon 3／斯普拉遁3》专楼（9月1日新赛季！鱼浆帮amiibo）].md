@@ -5658,3 +5658,11 @@ pve开放以后就很少进pvp了
 
 艹了，现在带熊工会金章都水的不行max局全程搬11个蛋，还没我搬1半多，果然游戏末期什么奇葩都会现出原形。
 
+
+*****
+
+####  Ryuuseigun  
+##### 5461#       发表于 2024-9-24 23:57
+
+那个全球限3333的祭典抽选徽章今天光小红书一个APP一晚上就刷到了5个人中<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">3代吸引的国内玩家基数可以一窥，可以下注NS2上的下一代能不能正经引进了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

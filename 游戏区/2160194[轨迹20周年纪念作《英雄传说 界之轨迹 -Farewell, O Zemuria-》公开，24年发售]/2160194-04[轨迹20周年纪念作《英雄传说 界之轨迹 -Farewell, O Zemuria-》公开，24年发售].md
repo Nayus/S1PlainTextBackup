@@ -13755,3 +13755,29 @@ gamer放了发售前试玩的感受一些新图而已
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小心狗屋的便宜漆面（）不过确实灰模挺不错的，比之前几个灰模都觉得脸崩了的好
 
+
+*****
+
+####  diectt  
+##### 5812#       发表于 2024-9-24 18:02
+
+ 本帖最后由 diectt 于 2024-9-24 18:03 编辑 
+
+好家伙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+caf630514fc2d5626ea7ddcea11190ef77c66cb2.jpg
+(134.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-24 18:02 上传
+
+<img src="https://img.saraba1st.com/forum/202409/24/180230s8w292ny007y9g73.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  natmk  
+##### 5813#       发表于 2024-9-24 18:04
+
+灰模脸做的不错上色别搞崩了
+

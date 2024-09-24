@@ -13860,3 +13860,30 @@ caf630514fc2d5626ea7ddcea11190ef77c66cb2.jpg
 由手机上传
 2024-9-24 18:33 上传
 
+
+*****
+
+####  牧月萌  
+##### 5821#       发表于 2024-9-24 18:38
+
+剑女这个不错，准备入了<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  hkguty  
+##### 5822#       发表于 2024-9-24 18:38
+
+灰模不咋地，希望做师姐和剑女GK的原型师再做个造型更好的GK········
+
+
+*****
+
+####  悠悠你心  
+##### 5823#       发表于 2024-9-24 18:41
+
+我也觉得这快递员的人设变了，有种火娃的味道（<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

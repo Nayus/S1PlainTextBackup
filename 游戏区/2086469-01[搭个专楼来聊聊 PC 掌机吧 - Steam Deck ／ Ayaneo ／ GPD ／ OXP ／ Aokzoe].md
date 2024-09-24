@@ -81,3 +81,16 @@ ps3是主要目的的话哪个可行性高一些？
 
 玩HIFI的有用过插卡改变便携播放器的声音取向，玩掌机也来这一招？
 
+
+*****
+
+####  lurenjia  
+##### 1304#       发表于 2024-9-24 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66270547&amp;ptid=2086469" target="_blank">stevenzero 发表于 2024-9-22 10:50</a>
+
+求助，想去咸鱼淘个便宜垃圾跑跑ps3模拟器和独立游戏。
+
+现在有两个选择</blockquote>
+这两个能找到这么便宜的价格吗，我在本地（广州）闲鱼找不到
+

@@ -35,3 +35,13 @@ ps3是主要目的的话哪个可行性高一些？
 
 — from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  weare17k  
+##### 1299#       发表于 2024-9-24 11:34
+
+外接显卡有资格成为决定掌机生死线的东西呢？难以想象
+
+—— 来自 HUAWEI ALN-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+

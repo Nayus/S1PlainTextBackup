@@ -12520,3 +12520,29 @@ wsd的惊世智慧
 
 今日公开联动人选：pareo
 
+
+*****
+
+####  御幸一也  
+##### 23364#       发表于 2024-9-24 11:57
+
+趴趴
+
+[https://x.com/seganewsnavi/status/1838418094672482418](https://x.com/seganewsnavi/status/1838418094672482418)
+
+<img src="https://img.saraba1st.com/forum/202409/24/115724e79pew3zk7dptdru.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_セガプラザ公式(@seganewsnavi)_20240924-032004_1838418094672482418_photo-0.jpg</strong> (102.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-24 11:57 上传
+
+<img src="https://img.saraba1st.com/forum/202409/24/115725cdozv8yb6xj3yjyv.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_セガプラザ公式(@seganewsnavi)_20240924-032004_1838418094672482418_photo-1.jpg</strong> (88.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-24 11:57 上传
+

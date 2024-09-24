@@ -1624,3 +1624,22 @@ b站有一个偷跑up说他玩了十几个小时只开了三分之一的地图�
 今晚就解锁了吧</blockquote>
 今天24号
 
+
+*****
+
+####  cy6959  
+##### 732#       发表于 2024-9-24 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66287754&amp;ptid=2188108" target="_blank">heseran 发表于 2024-9-24 09:18</a>
+
+今天24号</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">哦明晚，看错了
+
+
+*****
+
+####  墨染白泉  
+##### 733#       发表于 2024-9-24 09:44
+
+评分应该也是明晚吧
+

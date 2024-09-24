@@ -12944,3 +12944,15 @@ PS4PRO租了15天费用93，界轨PS4数字版租了，7天39，每超一天多6
 反正轨迹我一向玩简单模式看剧情，7天 ...</blockquote>
 首发pc？你觉得f社这个营收压力能冲一波pc吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">万一赶不上死线发售，这年财报怎么办
 
+
+*****
+
+####  悠悠你心  
+##### 5734#       发表于 2024-9-24 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66287937&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-24 09:37</a>
+也可以是两个单人图各一天，因为还有个day0(</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去年伊苏10有发售日当天贺图吗？
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

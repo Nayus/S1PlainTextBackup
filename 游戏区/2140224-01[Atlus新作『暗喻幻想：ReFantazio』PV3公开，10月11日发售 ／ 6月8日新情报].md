@@ -596,3 +596,46 @@ tb
 
 5r只是新剧情不如5吧，战斗体验强多了，而且第三学期剧情完全可以不走
 
+
+*****
+
+####  oahcihs  
+##### 763#       发表于 2024-9-24 13:44
+
+<img src="https://p.sda1.dev/19/5887f2d8c9d067b687da2f43e0f163b0/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2303A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  罗克萨斯  
+##### 764#       发表于 2024-9-24 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66290294&amp;ptid=2140224" target="_blank">oahcihs 发表于 2024-9-24 13:44</a>
+—— 来自 vivo V2303A, Android 14上的 S1Next-鹅版 v3.0.0.81-alpha</blockquote>
+被价格震惊，昨天看还是330多<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  lllyaaa  
+##### 765#       发表于 2024-9-24 13:50
+
+越宣传热度越低的游戏，也算是独一份奇特了。
+
+*****
+
+####  抽烟的猴  
+##### 766#       发表于 2024-9-24 13:51
+
+ps5记得定价478？接近50%off？？
+
+*****
+
+####  smdzh2  
+##### 767#       发表于 2024-9-24 13:53
+
+泥潭反买，别墅靠海。优势在我，全军突击！<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
+

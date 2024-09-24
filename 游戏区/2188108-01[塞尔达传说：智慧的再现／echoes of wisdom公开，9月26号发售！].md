@@ -1682,3 +1682,15 @@ b站有一个偷跑up说他玩了十几个小时只开了三分之一的地图�
 评分应该是今晚吧~</blockquote>
 不是明晚吗？
 
+
+*****
+
+####  kuarwbwe  
+##### 738#       发表于 2024-9-24 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66290132&amp;ptid=2188108" target="_blank">thez 发表于 2024-9-24 13:24</a>
+评分应该是今晚吧~</blockquote>
+王泪是5.11出的分。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

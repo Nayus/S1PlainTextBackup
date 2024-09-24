@@ -13484,3 +13484,11 @@ a9刚刚发了个工作餐评测，怎么还不发界轨的
 那共和国篇完结后后作多半是van和静奈组 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是算人气剑女和学妹都比师姐高
 
+
+*****
+
+####  一步成诗  
+##### 5786#       发表于 2024-9-24 13:47
+
+要说零碧人气最高的女角色那其实是缇欧，所以也不是完全看人气<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

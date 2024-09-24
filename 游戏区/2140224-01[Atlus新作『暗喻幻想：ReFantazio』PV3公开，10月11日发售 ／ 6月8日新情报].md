@@ -538,3 +538,29 @@ P5 经过二次元提炼的日式城市生活呈现是极其稀缺的体验（�
 
 就算真要出R，那我觉得p5无印还是比p5R强的,首发也是种体验<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">吃翔和爽玩都不亏不是吗
 
+
+*****
+
+####  抽烟的猴  
+##### 757#       发表于 2024-9-24 09:20
+
+现在215就可以买到cdk了，没发售就打七折
+
+*****
+
+####  heseran  
+##### 758#       发表于 2024-9-24 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66287767&amp;ptid=2140224" target="_blank">抽烟的猴 发表于 2024-9-24 09:20</a>
+现在215就可以买到cdk了，没发售就打七折</blockquote>
+哪里能买到呀？
+
+*****
+
+####  抽烟的猴  
+##### 759#       发表于 2024-9-24 09:24
+
+<blockquote>heseran 发表于 2024-9-24 09:22
+哪里能买到呀？</blockquote>
+tb
+

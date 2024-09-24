@@ -14182,3 +14182,14 @@ caf630514fc2d5626ea7ddcea11190ef77c66cb2.jpg
 
 吓我一跳还以为游戏里角色出事了还要给黑月加戏<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  医生狼多  
+##### 5855#         楼主| 发表于 2024-9-24 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66293906&amp;ptid=2160194" target="_blank">benhawk 发表于 2024-9-24 20:15</a>
+你们花了多少钱啊？我九折买的。妈了个巴子。现在港服还能怎么搞更便宜</blockquote>
+闲鱼买点卡
+理论有风险，买别怂怂别买就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -45,3 +45,15 @@ ps3是主要目的的话哪个可行性高一些？
 
 —— 来自 HUAWEI ALN-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
 
+
+*****
+
+####  医生狼多  
+##### 1300#       发表于 2024-9-24 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66289095&amp;ptid=2086469" target="_blank">NameLess2501 发表于 2024-9-24 11:26</a>
+了解了一下OCulink 接口显卡扩展坞，我宣布新掌机谁带OCulink 接口谁就是赢家。
+
+— from S1 Next Goose v3 ...</blockquote>
+你在说啥，gpd甚至新版直接去掉这个接口换回usb4了……
+

@@ -13461,3 +13461,26 @@ a9刚刚发了个工作餐评测，怎么还不发界轨的
 —— 来自 HONOR PGT-AN20, Android 14上的 S1Next-鹅版 v2. ...</blockquote>
 怎么一年比一年难吃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰寒之月  
+##### 5784#       发表于 2024-9-24 13:37
+
+就像罗伊德首次客串是和丽霞出场一样 下作多半是挑人气高的就完事
+
+那共和国篇完结后后作多半是van和静奈组队了
+
+
+*****
+
+####  ravend233  
+##### 5785#       发表于 2024-9-24 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66290232&amp;ptid=2160194" target="_blank">冰寒之月 发表于 2024-9-24 13:37</a>
+
+就像罗伊德首次客串是和丽霞出场一样 下作多半是挑人气高的就完事
+
+那共和国篇完结后后作多半是van和静奈组 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是算人气剑女和学妹都比师姐高
+

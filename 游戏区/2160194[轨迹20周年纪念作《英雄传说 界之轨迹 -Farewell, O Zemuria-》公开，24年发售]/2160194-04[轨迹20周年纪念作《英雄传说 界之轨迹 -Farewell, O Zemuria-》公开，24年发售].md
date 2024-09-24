@@ -14008,3 +14008,20 @@ caf630514fc2d5626ea7ddcea11190ef77c66cb2.jpg
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  迷雾塔  
+##### 5837#       发表于 2024-9-24 19:42
+
+几十年前一堆作品，无论电影、动画还是游戏，人类就上太空八百遍了。不知道轨迹这次能整出什么活
+
+*****
+
+####  ravend233  
+##### 5838#       发表于 2024-9-24 19:45
+
+大概率是没活<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">干脆天上全是恶魔吧,空之女神坐黄金马桶维持塞姆利亚大陆的屏障（（
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

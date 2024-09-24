@@ -13394,3 +13394,33 @@ van桑就葱头化吧</blockquote>
 
 快端上来吧，躲了这么多年剧透了，终于可以体验一把正面开云了
 
+
+*****
+
+####  卢迪克  
+##### 5779#       发表于 2024-9-24 12:15
+
+TVゲーム新作予約ランキング（2024/9/22 閉店時点）          
+
+NSw・PS5 ドラゴンクエストIII　そして伝説へ…
+
+NSw ゼルダの伝説 知恵のかりもの
+
+PS5・PS4 メタファー：リファンタジオ
+
+PS5・PS4 英雄伝説 界の軌跡 -Farewell， O Zemuria-
+
+ファミ通 top30
+
+界の軌跡 15 ps5  25 ps4
+
+*****
+
+####  一步成诗  
+##### 5780#       发表于 2024-9-24 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66289467&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-24 12:07</a>
+
+不是后天0点吗，吓得我看了下时间</blockquote>
+明晚过了0点就能玩<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

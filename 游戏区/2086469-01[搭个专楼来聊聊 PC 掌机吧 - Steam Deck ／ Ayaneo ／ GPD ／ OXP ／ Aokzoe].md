@@ -65,3 +65,11 @@ ps3是主要目的的话哪个可行性高一些？
 
 说白了对于九五成掌机玩家而言，都没外接显卡的需求，剩下的零五成里，九成都不在乎usb外接显卡相对比oculink口损失的那点性能，你凭啥觉得0.5%的玩家会影响一个掌机的销量？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  clyde-wang  
+##### 1302#       发表于 2024-9-24 12:17
+
+都外接显卡了为什么还要用个PC掌机？你随身携带一块显卡吗？
+

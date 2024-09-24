@@ -1643,3 +1643,24 @@ b站有一个偷跑up说他玩了十几个小时只开了三分之一的地图�
 
 评分应该也是明晚吧
 
+
+*****
+
+####  luffy0085  
+##### 734#       发表于 2024-9-24 11:15
+
+说实话，看现在外面破解和偷跑讨论的这么热闹，本来犹犹豫豫买不买限定机的也下定决心收了一台，有一种"别的便宜占不上，也要想方设法给自己找平衡"的小孩子思想……<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  披头破落户  
+##### 735#       发表于 2024-9-24 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66288979&amp;ptid=2188108" target="_blank">luffy0085 发表于 2024-9-24 11:15</a>
+说实话，看现在外面破解和偷跑讨论的这么热闹，本来犹犹豫豫买不买限定机的也下定决心收了一台，有一种"别 ...</blockquote>
+想体验一下的话手机模拟器玩就行了，反正也要玩正版，何必给破解送钱
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+

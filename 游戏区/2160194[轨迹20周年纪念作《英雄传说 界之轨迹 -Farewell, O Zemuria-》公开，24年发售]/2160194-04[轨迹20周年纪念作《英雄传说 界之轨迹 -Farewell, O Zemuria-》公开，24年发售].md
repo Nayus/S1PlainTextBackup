@@ -13273,3 +13273,16 @@ van桑就葱头化吧</blockquote>
 
 没有mc评分的坏处，就是不能电子斗蛐蛐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  we89623  
+##### 5765#       发表于 2024-9-24 11:09
+
+ 本帖最后由 we89623 于 2024-9-24 11:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66288690&amp;ptid=2160194" target="_blank">古畑任三郎2015 发表于 2024-9-24 10:48</a>
+也不是凑cp，感觉就是没活的空气人抱团取暖，类似菲劳拉/眼镜二少
+
+靠水点车轱辘定番对话刷刷稀薄的存在感 ...</blockquote>
+黎2没活硬整的空气人多了去，为啥是阿龙和菲？而不是阿龙和女演员？ 阿龙和女仆？ 哦女仆是跳反整活役
+

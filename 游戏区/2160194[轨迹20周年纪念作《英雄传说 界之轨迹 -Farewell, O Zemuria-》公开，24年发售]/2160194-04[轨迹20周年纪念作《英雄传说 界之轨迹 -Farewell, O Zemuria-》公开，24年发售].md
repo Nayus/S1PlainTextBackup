@@ -13575,3 +13575,32 @@ a9刚刚发了个工作餐评测，怎么还不发界轨的
 
 不是850万吗
 
+
+*****
+
+####  无动于衷  
+##### 5794#       发表于 2024-9-24 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66290645&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-24 14:20</a>
+
+不是850万吗</blockquote>
+850万是后来更新的
+
+P.S.所以才会有人奇怪多出来那50万卖的是什么
+
+*****
+
+####  卢迪克  
+##### 5795#       发表于 2024-9-24 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66290715&amp;ptid=2160194" target="_blank">无动于衷 发表于 2024-9-24 14:28</a>
+
+850万是后来更新的
+
+P.S.所以才会有人奇怪多出来那50万卖的是什么</blockquote>
+今天更的阿<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+2024年9月24日
+
+「軌跡シリーズ800万本突破」記念配当及び「軌跡シリーズ20周年」記念配当による配当予想の修正に関するお知らせ
+

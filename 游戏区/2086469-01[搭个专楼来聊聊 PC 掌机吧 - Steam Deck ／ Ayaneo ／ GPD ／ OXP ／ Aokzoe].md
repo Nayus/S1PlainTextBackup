@@ -57,3 +57,11 @@ ps3是主要目的的话哪个可行性高一些？
 — from S1 Next Goose v3 ...</blockquote>
 你在说啥，gpd甚至新版直接去掉这个接口换回usb4了……
 
+
+*****
+
+####  Wondering  
+##### 1301#       发表于 2024-9-24 12:06
+
+说白了对于九五成掌机玩家而言，都没外接显卡的需求，剩下的零五成里，九成都不在乎usb外接显卡相对比oculink口损失的那点性能，你凭啥觉得0.5%的玩家会影响一个掌机的销量？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

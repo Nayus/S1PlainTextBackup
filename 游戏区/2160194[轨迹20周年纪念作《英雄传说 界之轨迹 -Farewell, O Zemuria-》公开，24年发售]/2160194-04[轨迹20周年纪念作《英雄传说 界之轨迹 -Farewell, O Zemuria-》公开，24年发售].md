@@ -13365,3 +13365,32 @@ van桑就葱头化吧</blockquote>
 
 就等A9开分看看咸淡了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 5775#       发表于 2024-9-24 12:06
+
+这还开分的？几点
+
+*****
+
+####  一步成诗  
+##### 5776#       发表于 2024-9-24 12:06
+
+明天0点就能玩了所以测评打算什么时候发，记得哪个媒体黎2还顺便评了下你法在tgs的工作餐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 5777#       发表于 2024-9-24 12:07
+
+不是后天0点吗，吓得我看了下时间
+
+*****
+
+####  tiro_finale  
+##### 5778#       发表于 2024-9-24 12:08
+
+快端上来吧，躲了这么多年剧透了，终于可以体验一把正面开云了
+

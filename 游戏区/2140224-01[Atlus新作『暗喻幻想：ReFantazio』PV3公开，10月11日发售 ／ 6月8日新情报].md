@@ -530,3 +530,11 @@ P5 经过二次元提炼的日式城市生活呈现是极其稀缺的体验（�
 
 不过自己总感觉上赶着玩了无印就输了。
 
+
+*****
+
+####  圆环之爱  
+##### 756#       发表于 2024-9-24 08:45
+
+就算真要出R，那我觉得p5无印还是比p5R强的,首发也是种体验<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">吃翔和爽玩都不亏不是吗
+

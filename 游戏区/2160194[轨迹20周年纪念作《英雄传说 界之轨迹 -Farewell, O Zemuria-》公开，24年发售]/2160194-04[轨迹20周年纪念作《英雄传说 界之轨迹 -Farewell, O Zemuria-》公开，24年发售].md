@@ -14193,3 +14193,11 @@ caf630514fc2d5626ea7ddcea11190ef77c66cb2.jpg
 闲鱼买点卡
 理论有风险，买别怂怂别买就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Oshino  
+##### 5856#       发表于 2024-9-24 22:07
+
+闲鱼跟淘宝一个渠道吧，我淘宝买港服点卡没出过事啊<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+

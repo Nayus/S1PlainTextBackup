@@ -1190,3 +1190,16 @@ SSR_シアワセなイタズラ_ver.SH_箱崎星梨花.png
 
 2024-9-24 17:07 上传
 
+
+*****
+
+####  wfhtony  
+##### 6431#       发表于 2024-9-24 18:56
+
+萬南的前社長 石川祝男（南夢宮出身）[於本月9日去世，享年69歲](https://www.sankei.com/article/20240924-JL3REKMQ6JOE3OMPSAZFAPYU3E/)。
+<img src="https://p.sda1.dev/19/fec2616d94e3f5ed4e19a30eb761e949/image.jpg" referrerpolicy="no-referrer">
+
+履歷（節選自日文維基）：<img src="https://p.sda1.dev/19/40ce5d380948db3f1cb95cfa52f27117/image.jpg" referrerpolicy="no-referrer">
+
+—— 來自 [鵝球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

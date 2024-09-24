@@ -13887,3 +13887,11 @@ caf630514fc2d5626ea7ddcea11190ef77c66cb2.jpg
 
 —— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  ravend233  
+##### 5824#       发表于 2024-9-24 18:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是重新做了人设吧，强行说是同一个人
+

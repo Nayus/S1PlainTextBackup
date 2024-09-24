@@ -12956,3 +12956,87 @@ PS4PRO租了15天费用93，界轨PS4数字版租了，7天39，每超一天多6
 
 —— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  ravend233  
+##### 5735#       发表于 2024-9-24 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66288014&amp;ptid=2160194" target="_blank">古畑任三郎2015 发表于 2024-9-24 09:45</a>
+
+话说黎界这群后娘养的主角团，后续作会派谁登场客串呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">师姐本身就是东方角色，九成
+
+VAN主人公，怎么也得来吧
+
+两个人了，不能再多了
+
+*****
+
+####  ravend233  
+##### 5736#       发表于 2024-9-24 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66288021&amp;ptid=2160194" target="_blank">悠悠你心 发表于 2024-9-24 09:46</a>
+
+去年伊苏10有发售日当天贺图吗？
+
+—— 来自 HONOR PGT-AN20, Android 14上的 S1Next-鹅版 v2.1.2 ...</blockquote>
+有，前面单人图，发售日兄弟和豆子的二人图
+
+*****
+
+####  一步成诗  
+##### 5737#       发表于 2024-9-24 09:49
+
+都要写地图东边了那当然是师姐啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 5738#       发表于 2024-9-24 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66287978&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-24 09:41</a>
+
+有一说一，阿龙20岁，菲莉14岁，这年龄差还没范恩和学妹大
+
+认真的说就是黎2阿龙和菲莉的羁绊我觉得可以排到 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">肯定不会深入写就是了，最多日常互动多一点，剩下自行理解
+
+*****
+
+####  洛克萨斯  
+##### 5739#       发表于 2024-9-24 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66288014&amp;ptid=2160194" target="_blank">古畑任三郎2015 发表于 2024-9-24 09:45</a>
+
+话说黎界这群后娘养的主角团，后续作会派谁登场客串呢</blockquote>
+所长出差带贴身秘书学妹吧，如果这作这俩都没死的话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aimujie  
+##### 5740#       发表于 2024-9-24 09:52
+
+去东方当然是师姐啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  迷雾塔  
+##### 5741#       发表于 2024-9-24 09:52
+
+ 本帖最后由 迷雾塔 于 2024-9-24 09:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66288052&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-24 09:49</a>
+肯定不会深入写就是了，最多日常互动多一点，剩下自行理解</blockquote>
+74岁的老登还能求婚19岁的女孩呢，这才哪跟哪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">尽情写吧
+
+
+*****
+
+####  古畑任三郎2015  
+##### 5742#       发表于 2024-9-24 09:56
+
+排除师姐这种编外，我是觉得黎界这坨主角，客串任何一个都是对续作人气的伤害<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+要么就是女演员这种边脚料角色出来调剂调剂
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

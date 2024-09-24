@@ -13612,3 +13612,16 @@ P.S.所以才会有人奇怪多出来那50万卖的是什么</blockquote>
 
 850万这个只有速报哥在说
 
+
+*****
+
+####  ravend233  
+##### 5797#       发表于 2024-9-24 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66290556&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-24 14:11</a>
+
+如果要打学妹，是不是说事务所除了老头，另外七个都打过了，黎一大君猫女魔王，黎二菲莉女仆天使 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你怎么假定老头不会界轨当一次BOSS（）
+
+目前只能说学妹BOSS概率确实越来越高了，但是实际还是看游戏吧（
+

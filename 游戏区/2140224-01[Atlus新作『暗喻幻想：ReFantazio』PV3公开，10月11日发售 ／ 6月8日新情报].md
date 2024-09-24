@@ -564,3 +564,14 @@ P5 经过二次元提炼的日式城市生活呈现是极其稀缺的体验（�
 哪里能买到呀？</blockquote>
 tb
 
+
+*****
+
+####  忘却旋律  
+##### 760#       发表于 2024-9-24 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66256698&amp;ptid=2140224" target="_blank">巨馍蘸酱 发表于 2024-9-20 15:15</a>
+
+以ATLUS现在的样子我都不敢期待P6了，新P组给P5R端出一坨东西，P3R做得也很没诚意。老P组做的暗喻幻想初公 ...</blockquote>
+只要P4G 重置发起进攻 一切都会好起来的，但是不代表我看好 P6和 暗喻幻想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

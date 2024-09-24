@@ -13040,3 +13040,47 @@ VAN主人公，怎么也得来吧
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  洛克萨斯  
+##### 5743#       发表于 2024-9-24 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66288109&amp;ptid=2160194" target="_blank">古畑任三郎2015 发表于 2024-9-24 09:56</a>
+
+排除师姐这种编外，我是觉得黎界这坨主角，客串任何一个都是对续作人气的伤害
+
+要么就是女演员这种边脚料角 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直接剑女学妹一起带不就行了，要么就和师姐组队，所长和拐圣这种是好处理的，桃花剑那种才别扭
+
+*****
+
+####  一步成诗  
+##### 5744#       发表于 2024-9-24 10:02
+
+客串来这么多人，好不容易换新主角团又要重蹈覆辙吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  古畑任三郎2015  
+##### 5745#       发表于 2024-9-24 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66288140&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-9-24 09:59</a>
+直接剑女学妹一起带不就行了，要么就和师姐组队，所长和拐圣这种是好处理的，桃花剑那种才别扭 ...</blockquote>
+很少前作主角带后宫团过来的吧，你让续作主角面子往哪搁<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">除了桃花剑的加强连谁扛得住啊
+主要黎界这些人，要逼格没逼格，要战斗力没战斗力，要情怀也没情怀，城管好歹也只在克州喊没那个必要，共和国这群人出了国界连救场都不够格<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  ravend233  
+##### 5746#       发表于 2024-9-24 10:07
+
+当然谁都别来是最好的，特别是第一部<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+真要来什么黎界老角色，一个van当个npc就够了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

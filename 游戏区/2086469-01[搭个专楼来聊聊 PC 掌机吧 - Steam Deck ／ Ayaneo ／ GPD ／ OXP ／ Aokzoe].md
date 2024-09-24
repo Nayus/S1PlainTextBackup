@@ -25,3 +25,13 @@ ps3是主要目的的话哪个可行性高一些？
 现在有两个选择</blockquote>
 用过4500u的ayaneo创始人，PS3上的机战720p应该没啥问题，其他游戏不好说
 
+
+*****
+
+####  NameLess2501  
+##### 1298#       发表于 2024-9-24 11:26
+
+了解了一下OCulink 接口显卡扩展坞，我宣布新掌机谁带OCulink 接口谁就是赢家。
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

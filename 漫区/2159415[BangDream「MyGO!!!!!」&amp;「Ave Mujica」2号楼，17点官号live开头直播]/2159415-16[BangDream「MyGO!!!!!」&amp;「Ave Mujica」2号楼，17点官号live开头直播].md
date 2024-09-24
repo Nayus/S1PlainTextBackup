@@ -12504,3 +12504,19 @@ wsd的惊世智慧
 
 不搞邦2挺好的，音游没啥新玩法没必要另起山头，数据继承亏钱数据不继承亏一堆老玩家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 23363#       发表于 2024-9-24 11:20
+
+<img src="https://img.saraba1st.com/forum/202409/24/112010u020ff1999pbh10j.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-09-24-11-19-32-25_0b2fce7a16bf2b728d6ffa28c8d60efb.jpg</strong> (331.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-24 11:20 上传
+
+今日公开联动人选：pareo
+

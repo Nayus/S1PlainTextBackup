@@ -11169,3 +11169,22 @@ MV
 
 专辑第一首
 
+
+*****
+
+####  渡鸦骑士  
+##### 9800#       发表于 2024-9-24 19:44
+
+注：soware同MV团队
+
+
+*****
+
+####  holoan  
+##### 9801#         楼主| 发表于 2024-9-24 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66293676&amp;ptid=2086637" target="_blank">渡鸦骑士 发表于 2024-9-24 19:44</a>
+
+注：soware同MV团队</blockquote>
+而且封面的风格都是一样配对的
+

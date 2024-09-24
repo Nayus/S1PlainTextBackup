@@ -14069,3 +14069,58 @@ caf630514fc2d5626ea7ddcea11190ef77c66cb2.jpg
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  卢迪克  
+##### 5844#       发表于 2024-9-24 20:06
+
+<blockquote>迷雾塔 发表于 2024-9-24 19:58
+找女神？那轨迹算是科幻还是魔幻呢？</blockquote>
+不找女神怎么知道教会的圣典是不是在扯淡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  迷雾塔  
+##### 5845#       发表于 2024-9-24 20:10
+
+记得玩后续，让我最难绷的是，后者把前者给我带来的误会纠正了，可以的话就让我一直误会下去吧<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+*****
+
+####  迷雾塔  
+##### 5846#       发表于 2024-9-24 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66293851&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-24 20:06</a>
+不找女神怎么知道教会的圣典是不是在扯淡</blockquote>
+扯蛋又如何，日心说影响有人信教了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">改信信
+
+*****
+
+####  benhawk  
+##### 5847#       发表于 2024-9-24 20:15
+
+你们花了多少钱啊？我九折买的。妈了个巴子。现在港服还能怎么搞更便宜
+
+*****
+
+####  隔壁老黄  
+##### 5848#       发表于 2024-9-24 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66293906&amp;ptid=2160194" target="_blank">benhawk 发表于 2024-9-24 20:15</a>
+你们花了多少钱啊？我九折买的。妈了个巴子。现在港服还能怎么搞更便宜</blockquote>
+408实体盘
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  卢迪克  
+##### 5849#       发表于 2024-9-24 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66293903&amp;ptid=2160194" target="_blank">迷雾塔 发表于 2024-9-24 20:14</a>
+
+扯蛋又如何，日心说影响有人信教了吗改信信</blockquote>
+不用出教会篇了呗
+

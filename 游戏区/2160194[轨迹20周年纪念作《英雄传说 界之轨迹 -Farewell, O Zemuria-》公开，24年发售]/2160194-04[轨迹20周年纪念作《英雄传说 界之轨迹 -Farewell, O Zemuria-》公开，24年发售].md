@@ -14201,3 +14201,22 @@ caf630514fc2d5626ea7ddcea11190ef77c66cb2.jpg
 
 闲鱼跟淘宝一个渠道吧，我淘宝买港服点卡没出过事啊<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  benhawk  
+##### 5857#       发表于 2024-9-24 22:25
+
+<blockquote>医生狼多 发表于 2024-9-24 21:46
+闲鱼买点卡
+
+理论有风险，买别怂怂别买就是了</blockquote>
+我就是买点卡9折啊。算了算了，反正2年也就一次
+
+*****
+
+####  星空冻结  
+##### 5858#       发表于 2024-9-24 22:29
+
+黑月以后的代表就是曹李了，什么老头不认识的角色<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

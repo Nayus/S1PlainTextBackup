@@ -94,3 +94,15 @@ ps3是主要目的的话哪个可行性高一些？
 现在有两个选择</blockquote>
 这两个能找到这么便宜的价格吗，我在本地（广州）闲鱼找不到
 
+
+*****
+
+####  stevenzero  
+##### 1305#       发表于 2024-9-24 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66293156&amp;ptid=2086469" target="_blank">lurenjia 发表于 2024-9-24 18:42</a>
+这两个能找到这么便宜的价格吗，我在本地（广州）闲鱼找不到</blockquote>
+1195G7那个又涨回去1600了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+1200的还可以搜到
+<img src="https://p.sda1.dev/19/99d5c948443a51cc842cb8be24539282/image.jpg" referrerpolicy="no-referrer">
+

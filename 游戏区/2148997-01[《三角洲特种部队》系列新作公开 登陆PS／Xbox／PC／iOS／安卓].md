@@ -37,3 +37,17 @@ COD的战区作为BR也是往强调战战战的方向改，恨不得从头打到
 
 改成湄公河三角洲应该就合适了。
 
+
+*****
+
+####  weems  
+##### 51#       发表于 2024-9-24 17:38
+
+ 本帖最后由 weems 于 2024-9-24 17:39 编辑 
+
+我到时候看心情，想找刺激玩塔科夫like模式，想摸鱼爽打枪玩战地like模式<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+塔科夫like我今年玩多了，塔科夫本尊，暗区，萤火，再加个三角洲倒是也无妨，反正后三者F2P，而且相比本尊，游玩带来的心智压力小。
+
+这个26日直播我猜是录播的。我最近入坑塔科夫，知道了LVNDMARK和Pestily。他们前几天说是来了中国。看了他们同队队友的X，也是差不多的活动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

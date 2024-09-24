@@ -13724,3 +13724,34 @@ gamer放了发售前试玩的感受一些新图而已
 
 这个腿真的很不错<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星空冻结  
+##### 5808#       发表于 2024-9-24 17:42
+
+剑女还是好看的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  悠悠你心  
+##### 5809#       发表于 2024-9-24 17:43
+
+灰模好看，但是要等上色后再看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  KevinGraham  
+##### 5810#       发表于 2024-9-24 17:43
+
+这不挺好看的
+
+*****
+
+####  ravend233  
+##### 5811#       发表于 2024-9-24 17:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小心狗屋的便宜漆面（）不过确实灰模挺不错的，比之前几个灰模都觉得脸崩了的好
+

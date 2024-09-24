@@ -13523,3 +13523,28 @@ a9刚刚发了个工作餐评测，怎么还不发界轨的
 
 国庆漫展<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  reidel  
+##### 5789#       发表于 2024-9-24 14:05
+
+别败犬了，这次肯定继续端水，学妹的天台告白也是大概率被打太极拒绝
+
+
+*****
+
+####  Aeons  
+##### 5790#       发表于 2024-9-24 14:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">如果要打学妹，是不是说事务所除了老头，另外七个都打过了，黎一大君猫女魔王，黎二菲莉女仆天使
+
+*****
+
+####  抽烟的猴  
+##### 5791#       发表于 2024-9-24 14:14
+
+<blockquote>ravend233 发表于 2024-9-24 13:41
+但是算人气剑女和学妹都比师姐高</blockquote>
+师姐的人设还是太空洞了，没多少咀嚼空间
+

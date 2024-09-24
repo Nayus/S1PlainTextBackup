@@ -12612,3 +12612,14 @@ wsd的惊世智慧
 没去过现地想去看对邦, 请问抽选有个大概的概率吗, 还是说每次都不一样</blockquote>
 如果说的是鸡狗对邦的话，2w人场开两天就算不用抽选也能买到票吧
 
+
+*****
+
+####  asion617  
+##### 23372#       发表于 2024-9-24 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66293802&amp;ptid=2159415" target="_blank">cherryjia12 发表于 2024-9-24 19:59</a>
+
+如果说的是鸡狗对邦的话，2w人场开两天就算不用抽选也能买到票吧</blockquote>
+指的是和トゲトゲ的,  想靠前一点, 听说直接买的位置都不会很好
+

@@ -14124,3 +14124,26 @@ caf630514fc2d5626ea7ddcea11190ef77c66cb2.jpg
 扯蛋又如何，日心说影响有人信教了吗改信信</blockquote>
 不用出教会篇了呗
 
+
+*****
+
+####  隔壁老黄  
+##### 5850#       发表于 2024-9-24 20:16
+
+说起来黎2为何最后要跟丁哥打一场，完全不记得了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  ravend233  
+##### 5851#       发表于 2024-9-24 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66293922&amp;ptid=2160194" target="_blank">隔壁老黄 发表于 2024-9-24 20:16</a>
+说起来黎2为何最后要跟丁哥打一场，完全不记得了
+
+—— 来自 鹅球 v3.1.91-alpha ...</blockquote>
+没有理由，就是因为我必须要在这打，所以要在这打（编剧逼得）
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

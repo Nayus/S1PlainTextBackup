@@ -13669,3 +13669,35 @@ P.S.所以才会有人奇怪多出来那50万卖的是什么</blockquote>
 
 唉寿屋模型的脸也是正常的，到底是谁在装傻呢法老控
 
+
+*****
+
+####  一步成诗  
+##### 5802#       发表于 2024-9-24 17:17
+
+图透那个是不是发错楼了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一步成诗  
+##### 5803#       发表于 2024-9-24 17:20
+
+剑女灰模挺好看的，但是说实话前面出的那些哪个的脸像立绘了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仲可怀  
+##### 5804#       发表于 2024-9-24 17:23
+
+[https://www.gamer.ne.jp/news/202409240005/](https://www.gamer.ne.jp/news/202409240005/)
+
+gamer放了发售前试玩的感受一些新图而已
+
+*****
+
+####  Squall25  
+##### 5805#       发表于 2024-9-24 17:24
+
+以前法老控对黎轨立绘的态度一直不太确定吧，只有表面近藤说觉得还好，这个手办我觉得态度很明显了吧
+

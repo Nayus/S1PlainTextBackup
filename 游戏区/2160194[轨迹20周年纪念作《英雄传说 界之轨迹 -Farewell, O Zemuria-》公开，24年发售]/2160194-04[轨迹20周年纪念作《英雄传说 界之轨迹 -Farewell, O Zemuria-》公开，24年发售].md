@@ -13424,3 +13424,15 @@ PS5・PS4 英雄伝説 界の軌跡 -Farewell， O Zemuria-
 不是后天0点吗，吓得我看了下时间</blockquote>
 明晚过了0点就能玩<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  隔壁老黄  
+##### 5781#       发表于 2024-9-24 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66288791&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-9-24 10:59</a>
+阿龙喜欢年上，还有没cp合适的年上给他么，没有啊，青梅竹马是个究极逆天，和曹绑死，别祸害人了，不如和小 ...</blockquote>
+提示一下，黎轨2结局跟阿龙一起跳舞的是师姐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

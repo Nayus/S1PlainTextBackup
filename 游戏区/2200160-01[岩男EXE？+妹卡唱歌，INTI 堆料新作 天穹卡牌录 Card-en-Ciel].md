@@ -645,3 +645,15 @@ HKD 170
 
 其实实战里要打高分的话第三个歌姬可能都未必会拿
 
+
+*****
+
+####  cmyk1234  
+##### 52#       发表于 2024-9-24 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66284336&amp;ptid=2200160" target="_blank">101207777 发表于 2024-9-23 19:44</a>
+后续2层的歌姬是看预定好的种子还是看你过关时的卡组构成。
+
+目前最大歌姬是4个吧，我看有人说是最大5歌姬， ...</blockquote>
+按暂停可以检查触发的歌姬个数，UI宽度最多放置五个歌姬头像。
+

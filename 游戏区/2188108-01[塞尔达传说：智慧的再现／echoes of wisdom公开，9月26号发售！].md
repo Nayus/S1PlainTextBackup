@@ -1708,3 +1708,17 @@ b站有一个偷跑up说他玩了十几个小时只开了三分之一的地图�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  披头破落户  
+##### 740#       发表于 2024-9-24 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66291678&amp;ptid=2188108" target="_blank">胶布 发表于 2024-9-24 16:11</a>
+你看错了，他只是想买限定机满足一下自己。
+
+—— 来自 S1Fun</blockquote>
+哦，好吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+

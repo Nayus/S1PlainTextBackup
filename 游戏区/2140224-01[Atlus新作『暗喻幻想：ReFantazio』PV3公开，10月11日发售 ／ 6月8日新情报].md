@@ -575,3 +575,24 @@ tb
 以ATLUS现在的样子我都不敢期待P6了，新P组给P5R端出一坨东西，P3R做得也很没诚意。老P组做的暗喻幻想初公 ...</blockquote>
 只要P4G 重置发起进攻 一切都会好起来的，但是不代表我看好 P6和 暗喻幻想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星野航  
+##### 761#       发表于 2024-9-24 10:48
+
+有一说一，加强版真不一定代表更好
+
+5r就是先例
+
+这游戏最大的问题就是，偷懒跟不思进取，其他倒是其次
+
+反正都预购了，先品一品是真屎还是假屎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  正田崇  
+##### 762#       发表于 2024-9-24 10:50
+
+5r只是新剧情不如5吧，战斗体验强多了，而且第三学期剧情完全可以不走
+

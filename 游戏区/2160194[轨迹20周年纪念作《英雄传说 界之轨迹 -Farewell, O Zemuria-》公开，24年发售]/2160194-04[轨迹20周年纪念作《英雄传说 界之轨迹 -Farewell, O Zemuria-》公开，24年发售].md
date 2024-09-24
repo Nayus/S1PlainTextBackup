@@ -13226,3 +13226,35 @@ van桑就葱头化吧</blockquote>
 不是 把菲莉和阿龙往一块凑真不觉得别扭吗（无关年龄，俩火爆猴脾气的人） ...</blockquote>
 我打黎2就总感觉你法有意让这俩凑cp
 
+
+*****
+
+####  古畑任三郎2015  
+##### 5760#       发表于 2024-9-24 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66288652&amp;ptid=2160194" target="_blank">we89623 发表于 2024-9-24 10:45</a>
+
+我大黎2就总感觉你法有意让这俩凑cp</blockquote>
+也不是凑cp，感觉就是没活的空气人抱团取暖，类似菲劳拉/眼镜二少
+
+靠水点车轱辘定番对话刷刷稀薄的存在感
+
+
+*****
+
+####  悠悠你心  
+##### 5761#       发表于 2024-9-24 10:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天有没有国内媒体评测救一下啊
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  ravend233  
+##### 5762#       发表于 2024-9-24 10:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">媒体大概就今明两天发吧
+
+来个A9:7分
+

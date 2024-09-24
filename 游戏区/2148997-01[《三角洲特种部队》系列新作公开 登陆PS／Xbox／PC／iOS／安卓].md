@@ -21,3 +21,19 @@ COD的战区作为BR也是往强调战战战的方向改，恨不得从头打到
 
 从头打到尾倒是值得发扬  不然多人玩  老挂机也不是个事儿
 
+
+*****
+
+####  cjayseed  
+##### 49#       发表于 2024-9-24 17:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">枪法好的更倾向塔科夫like，像我这种枪法一般的估计就是战地like摸鱼
+
+
+*****
+
+####  vidomina  
+##### 50#       发表于 2024-9-24 17:13
+
+改成湄公河三角洲应该就合适了。
+

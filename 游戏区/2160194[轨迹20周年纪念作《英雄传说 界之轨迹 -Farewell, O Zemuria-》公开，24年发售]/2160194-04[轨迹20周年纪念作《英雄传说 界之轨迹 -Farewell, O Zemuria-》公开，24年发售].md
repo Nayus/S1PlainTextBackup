@@ -13176,3 +13176,42 @@ van桑就葱头化吧</blockquote>
 论坛助手,iPhone</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全明星给你两个差不多得了，还要给空，零碧，闪分呢，本身新作还有新作自己的角色，之前怕是一个都来不了
 
+
+*****
+
+####  古畑任三郎2015  
+##### 5755#       发表于 2024-9-24 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66288427&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-24 10:25</a>
+全明星给你两个差不多得了，还要给空，零碧，闪分呢，本身新作还有新作自己的角色，之前怕是一个都来不了 ...</blockquote>
+次世代全明星作没80人可选阵容，那不玩了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  ravend233  
+##### 5756#       发表于 2024-9-24 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66288465&amp;ptid=2160194" target="_blank">古畑任三郎2015 发表于 2024-9-24 10:28</a>
+
+次世代全明星作没80人可选阵容，那不玩了
+
+论坛助手,iPhone</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你法要堆80号人得一个篇章出七八部去了，一年就只能做六七个新可控
+
+*****
+
+####  ravend233  
+##### 5757#       发表于 2024-9-24 10:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么吧里都在因为那一张图打谜语的（）
+
+
+*****
+
+####  一步成诗  
+##### 5758#       发表于 2024-9-24 10:36
+
+瞎猜看腻了，还是等明天白天有没有人直播吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

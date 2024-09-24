@@ -13987,3 +13987,24 @@ caf630514fc2d5626ea7ddcea11190ef77c66cb2.jpg
 
 还有为了出续作，隔一段时间就把主角状态重置，搞自闭的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  迷雾塔  
+##### 5835#       发表于 2024-9-24 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66293494&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-24 19:20</a>
+快递姐的空军背景和上太空应该都是一开始就有的设定，但是人设应该是进行了重新设计
+
+妮娜从黎一就看得出和 ...</blockquote>
+突然触发dna。1963年，捷列什科娃是第一名飞入太空的女性。也是第一名飞入太空的平民<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快递姐大前辈
+
+*****
+
+####  ravend233  
+##### 5836#       发表于 2024-9-24 19:36
+
+共和国这个火箭都是仿的苏式设计（）
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

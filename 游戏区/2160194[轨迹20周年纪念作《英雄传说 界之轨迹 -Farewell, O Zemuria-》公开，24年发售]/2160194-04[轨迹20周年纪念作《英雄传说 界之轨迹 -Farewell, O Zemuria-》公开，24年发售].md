@@ -13215,3 +13215,14 @@ van桑就葱头化吧</blockquote>
 
 瞎猜看腻了，还是等明天白天有没有人直播吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  we89623  
+##### 5759#       发表于 2024-9-24 10:45
+
+ 本帖最后由 we89623 于 2024-9-24 10:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66287549&amp;ptid=2160194" target="_blank">无动于衷 发表于 2024-9-24 08:50</a>
+不是 把菲莉和阿龙往一块凑真不觉得别扭吗（无关年龄，俩火爆猴脾气的人） ...</blockquote>
+我打黎2就总感觉你法有意让这俩凑cp
+

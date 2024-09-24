@@ -13701,3 +13701,26 @@ gamer放了发售前试玩的感受一些新图而已
 
 以前法老控对黎轨立绘的态度一直不太确定吧，只有表面近藤说觉得还好，这个手办我觉得态度很明显了吧
 
+
+*****
+
+####  ky怪  
+##### 5806#       发表于 2024-9-24 17:30
+
+无敌了
+
+<img src="https://img.saraba1st.com/forum/202409/24/172952rmvf7ssj2x2c7xjf.png" referrerpolicy="no-referrer">
+
+<strong>IMG_5653.png</strong> (405.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-24 17:29 上传
+
+*****
+
+####  一步成诗  
+##### 5807#       发表于 2024-9-24 17:31
+
+这个腿真的很不错<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+

@@ -13918,3 +13918,39 @@ caf630514fc2d5626ea7ddcea11190ef77c66cb2.jpg
 
 果然，人设改动了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仲可怀  
+##### 5828#       发表于 2024-9-24 19:06
+
+硬要圆 也可以说是戴上头盔就是另一个性格了……
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  Aeons  
+##### 5829#       发表于 2024-9-24 19:12
+
+单系列这样也算不上是来长导致的了。
+
+说起来雪拉其实变化也不小来着。
+
+*****
+
+####  ravend233  
+##### 5830#       发表于 2024-9-24 19:13
+
+快递姐这个单纯就是你法社想了个新人设找不到地方塞就直接进行换头了吧，反正原本也就是个小npc,<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  迷雾塔  
+##### 5831#       发表于 2024-9-24 19:14
+
+只是改改人设已经很好了。有的作品直接融合了三个时间段的状态，拼接了三个版本的人设，搞到一起，弄得乱七八糟，粉丝人都麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1746,3 +1746,13 @@ b站有一个偷跑up说他玩了十几个小时只开了三分之一的地图�
 
 终于熬到25号了，明天几点能玩？
 
+
+*****
+
+####  heseran  
+##### 744#       发表于 2024-9-25 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66295999&amp;ptid=2188108" target="_blank">whfnet 发表于 2024-9-25 00:44</a>
+终于熬到25号了，明天几点能玩？</blockquote>
+日服晚上11点。
+

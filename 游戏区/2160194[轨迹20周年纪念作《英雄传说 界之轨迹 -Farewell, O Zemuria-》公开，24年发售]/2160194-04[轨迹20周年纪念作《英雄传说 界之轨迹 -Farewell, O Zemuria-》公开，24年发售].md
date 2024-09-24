@@ -14025,3 +14025,28 @@ caf630514fc2d5626ea7ddcea11190ef77c66cb2.jpg
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  迷雾塔  
+##### 5839#       发表于 2024-9-24 19:50
+
+不如直接让魔神召唤陨石吧，不仅致敬经典，还简单粗暴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 5840#       发表于 2024-9-24 19:53
+
+<blockquote>迷雾塔 发表于 2024-9-24 19:42
+几十年前一堆作品，无论电影、动画还是游戏，人类就上太空八百遍了。不知道轨迹这次能整出什么活 ...</blockquote>
+上天找女神，pv不是有台词吗
+
+
+*****
+
+####  迷雾塔  
+##### 5841#       发表于 2024-9-24 19:54
+
+罗马时代，就有些太空科幻小说的。写人类跑到月球上探险，遇到宇宙生物展开的故事。这故事梗概不知道，还以为是20世纪写得<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

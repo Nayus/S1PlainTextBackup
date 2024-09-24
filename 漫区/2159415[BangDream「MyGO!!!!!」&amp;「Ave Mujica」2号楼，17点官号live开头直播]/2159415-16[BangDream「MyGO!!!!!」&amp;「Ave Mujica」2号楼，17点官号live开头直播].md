@@ -12594,3 +12594,11 @@ wsd的惊世智慧
 
 初华这个趴趴头发跟灰色一样<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  asion617  
+##### 23370#       发表于 2024-9-24 19:47
+
+没去过现地想去看对邦, 请问抽选有个大概的概率吗, 还是说每次都不一样
+

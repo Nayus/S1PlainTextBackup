@@ -639,3 +639,25 @@ ps5记得定价478？接近50%off？？
 
 泥潭反买，别墅靠海。优势在我，全军突击！<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Cylap  
+##### 768#       发表于 2024-9-24 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66290294&amp;ptid=2140224" target="_blank">oahcihs 发表于 2024-9-24 13:44</a>
+—— 来自 vivo V2303A, Android 14上的 S1Next-鹅版 v3.0.0.81-alpha</blockquote>
+怎么买的
+
+*****
+
+####  oahcihs  
+##### 769#       发表于 2024-9-24 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66290829&amp;ptid=2140224" target="_blank">Cylap 发表于 2024-9-24 14:43</a>
+怎么买的</blockquote>
+估计是韩版 
+刚上架 标错价了 已经没了
+
+—— 来自 vivo V2303A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

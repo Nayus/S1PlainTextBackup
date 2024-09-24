@@ -13797,3 +13797,66 @@ caf630514fc2d5626ea7ddcea11190ef77c66cb2.jpg
 
 快递员性格是不是变了
 
+
+*****
+
+####  一步成诗  
+##### 5816#       发表于 2024-9-24 18:26
+
+我真的怀疑快递员本来不是这种性格，只不过你法想做一个新角色但是懒得重新设计建模，就直接拿来安头了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ravend233  
+##### 5817#       发表于 2024-9-24 18:30
+
+完全不是一个人设了，很像是有谁拍脑袋想了个点子就给安上了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  古畑任三郎2015  
+##### 5818#       发表于 2024-9-24 18:30
+
+知性大姐姐头盔被挑染辣妹头夺舍了<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+把本体还给我啊
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  一步成诗  
+##### 5819#       发表于 2024-9-24 18:33
+
+想象中的快递员：黄金蝶同款
+
+实际上：师姐同款
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 5820#       发表于 2024-9-24 18:33
+
+亲爹
+
+<img src="https://img.saraba1st.com/forum/202409/24/183330fyw6yqtkq2mjjc2h.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240924_183250.jpg</strong> (16.4 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-24 18:33 上传
+
+<img src="https://img.saraba1st.com/forum/202409/24/183333v9nltl3jp7mulp7n.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240924_183259.jpg</strong> (20.16 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-24 18:33 上传
+

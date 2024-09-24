@@ -14050,3 +14050,22 @@ caf630514fc2d5626ea7ddcea11190ef77c66cb2.jpg
 
 罗马时代，就有些太空科幻小说的。写人类跑到月球上探险，遇到宇宙生物展开的故事。这故事梗概不知道，还以为是20世纪写得<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  迷雾塔  
+##### 5842#       发表于 2024-9-24 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66293758&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-24 19:53</a>
+上天找女神，pv不是有台词吗</blockquote>
+找女神？那轨迹算是科幻还是魔幻呢？<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 5843#       发表于 2024-9-24 19:59
+
+是战锤
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

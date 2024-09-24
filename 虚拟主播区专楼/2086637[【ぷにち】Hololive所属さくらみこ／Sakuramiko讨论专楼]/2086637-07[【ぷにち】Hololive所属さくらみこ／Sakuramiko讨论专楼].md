@@ -11216,3 +11216,26 @@ MV
 
 GTA里面miko周边的值得拿出来讲的事情太多了，实际上一页都讲不完
 
+
+*****
+
+####  渡鸦骑士  
+##### 9805#       发表于 2024-9-24 21:07
+
+MV可爱捏。你们有没有这么可爱的彼女啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 9806#         楼主| 发表于 2024-9-24 23:22
+
+<img src="https://img.saraba1st.com/forum/202409/24/232203mf0ytxzgzrzvx0de.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (87.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-24 23:22 上传
+
+每首歌都是讲自己的，很真实
+

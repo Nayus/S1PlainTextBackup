@@ -1694,3 +1694,17 @@ b站有一个偷跑up说他玩了十几个小时只开了三分之一的地图�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  胶布  
+##### 739#       发表于 2024-9-24 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66288992&amp;ptid=2188108" target="_blank">披头破落户 发表于 2024-9-24 11:17</a>
+想体验一下的话手机模拟器玩就行了，反正也要玩正版，何必给破解送钱
+
+—— 来自 鹅球 v3.0.87-alpha ...</blockquote>
+你看错了，他只是想买限定机满足一下自己。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

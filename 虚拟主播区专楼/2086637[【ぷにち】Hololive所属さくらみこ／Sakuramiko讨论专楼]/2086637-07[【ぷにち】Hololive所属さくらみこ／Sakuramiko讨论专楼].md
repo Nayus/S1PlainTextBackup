@@ -11296,3 +11296,20 @@ towa和aki经历过VCRGTA认为如果事前教了太多抢劫任务大型任务�
 
 掏钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 9813#         楼主| 发表于 2024-9-25 00:41
+
+老家新添了一只折耳猫
+
+这下又吸猫又吸狗了
+
+*****
+
+####  holoan  
+##### 9814#         楼主| 发表于 2024-9-25 00:45
+
+明天amongus联动参加
+

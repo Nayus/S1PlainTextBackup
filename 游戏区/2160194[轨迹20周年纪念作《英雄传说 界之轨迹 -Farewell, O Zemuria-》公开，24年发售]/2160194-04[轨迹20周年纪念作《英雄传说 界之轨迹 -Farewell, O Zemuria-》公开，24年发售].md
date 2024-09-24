@@ -14279,3 +14279,15 @@ caf630514fc2d5626ea7ddcea11190ef77c66cb2.jpg
 
 还是零轨
 
+
+*****
+
+####  Aeons  
+##### 5865#       发表于 2024-9-25 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66295546&amp;ptid=2160194" target="_blank">古畑任三郎2015 发表于 2024-9-24 23:27</a>
+结婚这种事还是放着空轨组来吧，雾香大妈和金的事情差不多可以安排一下了，后面系列大结局可以放艾约
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">空轨的时候我一直搞不清雾香喜欢金还是瘦狼
+

@@ -12635,3 +12635,16 @@ wsd的惊世智慧
 
 和刺的就是小场子只能看运气了，不过带这场抽选的bd都比较贵，相对来说还好抽一点
 
+
+*****
+
+####  asion617  
+##### 23374#       发表于 2024-9-24 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66294227&amp;ptid=2159415" target="_blank">NODY 发表于 2024-9-24 20:51</a>
+
+看虹咲那边的说法，横滨那个场子视野好像不错的，买到中排也能看清楚
+
+和刺的就是小场子只能看运气了，不过 ...</blockquote>
+搜了一下那个会场说才两三千个位置, 买个bd当气氛组重在参与吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

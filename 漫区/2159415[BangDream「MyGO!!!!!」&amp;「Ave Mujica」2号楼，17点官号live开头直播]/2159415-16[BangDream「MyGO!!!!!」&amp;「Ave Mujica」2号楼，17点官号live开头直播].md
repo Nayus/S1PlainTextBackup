@@ -12496,3 +12496,11 @@ wsd的惊世智慧
 
 拉拉关了两个老游戏以后做的新游都没活过一年，你邦估计也是被吓得不敢搞邦2了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 23362#       发表于 2024-9-24 10:20
+
+不搞邦2挺好的，音游没啥新玩法没必要另起山头，数据继承亏钱数据不继承亏一堆老玩家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

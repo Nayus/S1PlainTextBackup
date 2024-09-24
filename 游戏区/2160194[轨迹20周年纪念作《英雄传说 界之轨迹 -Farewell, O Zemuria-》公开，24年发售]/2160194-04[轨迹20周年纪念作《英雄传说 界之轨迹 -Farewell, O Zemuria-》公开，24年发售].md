@@ -13099,3 +13099,80 @@ VAN主人公，怎么也得来吧
 
 入坑这块明明零和闪1都做的不错，为什么现在变成这样了
 
+
+*****
+
+####  ravend233  
+##### 5749#       发表于 2024-9-24 10:18
+
+ 本帖最后由 ravend233 于 2024-9-24 10:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66288311&amp;ptid=2160194" target="_blank">法拉 发表于 2024-9-24 10:14</a>
+入坑这块明明零和闪1都做的不错，为什么现在变成这样了</blockquote>
+太惦记情怀了呗，天天想拖老角色出来撑销量，从闪3开始就这逼样了，结果销量也撑不起来，还导致角色过多剧本过于臃肿
+
+黎1这抽象玩意宣传就是适合新人，结果第一章开始就疯狂塞只有前作玩家看得懂的情报，突出一个智障
+
+宣发期也不断塞老角色，创轨预热结果讨论社区全是老登在聊老玩意，什么新人看到这玩意还有兴趣的
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  古畑任三郎2015  
+##### 5750#       发表于 2024-9-24 10:18
+
+符合法老控思路的客串角色，我觉得师姐，女演员，再加一个开高达的大姐姐差不多了
+van桑就葱头化吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  ravend233  
+##### 5751#       发表于 2024-9-24 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66288352&amp;ptid=2160194" target="_blank">古畑任三郎2015 发表于 2024-9-24 10:18</a>
+符合法老控思路的客串角色，我觉得师姐，女演员，再加一个开高达的大姐姐差不多了
+van桑就葱头化吧</blockquote>
+你黎界暴死玩意还想分三个名额，给你一个算给面子了，一个都没有都正常<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  卢迪克  
+##### 5752#       发表于 2024-9-24 10:20
+
+ 本帖最后由 卢迪克 于 2024-9-24 10:22 编辑 
+
+东方和西方无外交关系，西方也不清楚东方的情况，东方也同理。
+
+感觉有意软重启的，老角色估计第三作才出现，历史事件大地之龙，宇宙军之类都不会提及了
+
+新人入坑会强于黎轨。
+
+*****
+
+####  古畑任三郎2015  
+##### 5753#       发表于 2024-9-24 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66288364&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-24 10:19</a>
+你黎界暴死玩意还想分三个名额，给你一个算给面子了，一个都没有都正常
+
+—— 来自 鹅球 v3.0.0.82-alpha ...</blockquote>
+三个是全明星作的登场人数，fc sc 顶多出一两个
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  ravend233  
+##### 5754#       发表于 2024-9-24 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66288395&amp;ptid=2160194" target="_blank">古畑任三郎2015 发表于 2024-9-24 10:22</a>
+
+三个是全明星作的登场人数，fc sc 顶多出一两个
+
+论坛助手,iPhone</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全明星给你两个差不多得了，还要给空，零碧，闪分呢，本身新作还有新作自己的角色，之前怕是一个都来不了
+

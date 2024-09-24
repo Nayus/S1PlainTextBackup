@@ -13436,3 +13436,15 @@ PS5・PS4 英雄伝説 界の軌跡 -Farewell， O Zemuria-
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  悠悠你心  
+##### 5782#       发表于 2024-9-24 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66289451&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-24 12:06</a>
+明天0点就能玩了所以测评打算什么时候发，记得哪个媒体黎2还顺便评了下你法在tgs的工作餐 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">a9刚刚发了个工作餐评测，怎么还不发界轨的
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

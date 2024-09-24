@@ -13448,3 +13448,16 @@ PS5・PS4 英雄伝説 界の軌跡 -Farewell， O Zemuria-
 
 —— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  一步成诗  
+##### 5783#       发表于 2024-9-24 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66290050&amp;ptid=2160194" target="_blank">悠悠你心 发表于 2024-9-24 13:14</a>
+
+a9刚刚发了个工作餐评测，怎么还不发界轨的
+
+—— 来自 HONOR PGT-AN20, Android 14上的 S1Next-鹅版 v2. ...</blockquote>
+怎么一年比一年难吃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -11039,3 +11039,39 @@ biboo
 
 我啥时候能拿到
 
+
+*****
+
+####  holoan  
+##### 9793#         楼主| 发表于 2024-9-24 13:22
+
+这几天一直说帮派侧很不公平这些强盗任务很难警察侧优势很大云云的
+
+实际上holo服的强盗任务规则是所有STGR服里面最轻松的，甚至不需要洗钱的过程，开任务进去拿钱直接进入自己钱包余额，然后再被抓的话自己一点损失都没有（其他服如果在洗钱完成之前被抓黑钱会直接被警察没收，收益为负）这真的是只针对holo环境才给的单独调整
+
+<img src="https://img.saraba1st.com/forum/202409/24/132147olhc00330p30opz6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (32 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-24 13:21 上传
+
+我觉得规则都调整成这样了没有什么好抱怨的了
+
+*****
+
+####  holoan  
+##### 9794#         楼主| 发表于 2024-9-24 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66268606&amp;ptid=2086637" target="_blank">holoan 发表于 2024-9-22 00:06</a>
+
+今日七字母
+
+miko对星街的新称呼（私下的特别称呼？）「ちゃんちゃん」
+
+https://x.com/tomo_momoda/status/1 ...</blockquote>
+补充说一下前几天486突发奇想问七字母关系的问题，实际上当时是要帮风真撮合星街，而风真顾虑到miko的关系一直不敢行动
+
+[https://x.com/tomo_momoda/status/1837977562745917951](https://x.com/tomo_momoda/status/1837977562745917951)
+

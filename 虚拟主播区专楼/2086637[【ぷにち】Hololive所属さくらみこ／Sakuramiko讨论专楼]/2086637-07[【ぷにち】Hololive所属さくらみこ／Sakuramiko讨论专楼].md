@@ -11144,3 +11144,28 @@ https://x.com/tomo_momoda/status/1 ...</blockquote>
 
 2024-9-24 17:13 上传
 
+
+*****
+
+####  holoan  
+##### 9798#         楼主| 发表于 2024-9-24 18:45
+
+今天的回顾直播，星街嗓子休息不来，其他leader来不来不清楚
+
+*****
+
+####  holoan  
+##### 9799#         楼主| 发表于 2024-9-24 18:58
+
+<img src="https://img.saraba1st.com/forum/202409/24/185758dz9c5f6yco6c9ks5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (160.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-24 18:57 上传
+
+MV
+
+专辑第一首
+

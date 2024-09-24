@@ -13895,3 +13895,26 @@ caf630514fc2d5626ea7ddcea11190ef77c66cb2.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是重新做了人设吧，强行说是同一个人
 
+
+*****
+
+####  Aeons  
+##### 5825#       发表于 2024-9-24 18:57
+
+之前是沉稳大姐姐人设吧，现在说实话，也就cv能听出来一点年龄了，台词和表情都是属于十分张扬的
+
+*****
+
+####  ravend233  
+##### 5826#       发表于 2024-9-24 18:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">变成豪爽小姐姐了
+
+
+*****
+
+####  迷雾塔  
+##### 5827#       发表于 2024-9-24 19:03
+
+果然，人设改动了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

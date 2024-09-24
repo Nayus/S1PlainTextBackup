@@ -830,3 +830,22 @@ T表没啥用，这游戏现在都是玩体系了
 
 现在问题就是好像我一个体系队都组不起来，只能继续闷头刷了，争取赛季结束前搞一队沉沦吧，正好角色构成我也比较喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 886#       发表于 2024-9-24 19:01
+
+<img src="https://img.saraba1st.com/forum/202409/24/185649u9x89mhl8mvjll4h.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240924_185612.jpg</strong> (156.21 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-24 18:56 上传
+
+西部二协会的护卫骑士以实玛利，可能是本赛季最后一个人格了。
+
+目前二虫和二浮是防御提升和斩击，二罗是呼吸和打击，二辛是振动和打击，不知道二玛会进入七大体系当拼图还是开启新玩法...
+

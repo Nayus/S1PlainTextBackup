@@ -1075,3 +1075,11 @@ PC微软商店可以下试玩版了，59G</blockquote>
 
 ns2护航大作，估计不会上ns
 
+
+*****
+
+####  Khellendros  
+##### 810#       发表于 2024-9-25 19:37
+
+国葬那段剧情演出太唐了，给我整笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然有预感政治戏会写的很儿戏没想到这么随便
+

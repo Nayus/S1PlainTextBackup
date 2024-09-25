@@ -1974,3 +1974,13 @@ With the first 100 predictions lodged (from our X/FB users), the average Metasco
 为什么床要单独拿出来写</blockquote>
 毕竟PV里打BOSS直接掏出床来睡，本身就给观众很深印象
 
+
+*****
+
+####  king520kyo  
+##### 762#       发表于 2024-9-25 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66303639&amp;ptid=2188108" target="_blank">woui003woui 发表于 2024-9-25 19:13</a>
+应该是八点左右出吧，正好加班到那个点</blockquote>
+北京时间晚上11点。 
+

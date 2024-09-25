@@ -1691,3 +1691,26 @@ ui太花了看着眼睛疼，我觉得这东西不是越花里胡哨越好<img s
 
 画面里有莫名的噪点，知道你是有意这么设计的，但真的很莫名。ui确实太乱太闪，目前还能忍。顺便问问矿坑里那个鸟人boss怎么打，他一放招200多攻击力就把我全灭了
 
+
+*****
+
+####  yukileaf  
+##### 872#       发表于 2024-9-26 02:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66306776&amp;ptid=2140224" target="_blank">石中剑二 发表于 2024-9-26 02:03</a>
+
+画面里有莫名的噪点，知道你是有意这么设计的，但真的很莫名。ui确实太乱太闪，目前还能忍。顺便问问矿坑里 ...</blockquote>
+提示盯上前排的那个？直接人都站后排去，他会miss的
+
+后面的龙才难打，hard难度也是基本吃光身上的药才打过去，最高难度不敢想了。
+
+
+*****
+
+####  roxassix  
+##### 873#       发表于 2024-9-26 02:21
+
+ 本帖最后由 roxassix 于 2024-9-26 02:22 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">sd根本扛不住，720p50%渲染大地图稳不了40，太瞎眼
+

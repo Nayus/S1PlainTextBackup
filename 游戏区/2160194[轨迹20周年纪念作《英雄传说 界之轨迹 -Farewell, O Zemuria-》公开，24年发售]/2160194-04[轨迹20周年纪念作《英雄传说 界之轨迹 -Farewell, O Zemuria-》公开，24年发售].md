@@ -14853,3 +14853,15 @@ how much ZSBD</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  kangkangsama  
+##### 5917#       发表于 2024-9-26 02:21
+
+上来这boss战噩梦居然灭了
+
+看来这代抢ex地图buff挺关键的
+
+就是平川大辅声音出来吓死了还以为曹李
+

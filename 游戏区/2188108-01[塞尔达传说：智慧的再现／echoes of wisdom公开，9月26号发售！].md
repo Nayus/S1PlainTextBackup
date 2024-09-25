@@ -3067,3 +3067,13 @@ Boss 战很有趣，比传统2D的boss战有趣的多
 
 过了第一个迷宫睡觉了，echo蛮好用的
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 881#       发表于 2024-9-26 02:15
+
+掉帧掉麻了……除此之外都很开心！
+
+确实不能直接战斗一开始不太适应，但习惯丢能力后乐趣满满<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

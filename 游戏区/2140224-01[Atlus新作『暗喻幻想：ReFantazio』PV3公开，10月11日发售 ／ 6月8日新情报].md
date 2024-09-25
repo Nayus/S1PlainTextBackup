@@ -1842,3 +1842,11 @@ sd根本扛不住，720p50%渲染大地图稳不了40，太瞎眼</blockquote>
 
 战斗方面节奏什么的加快了感觉还行，但是ACT部分真的意思不大，回合制的技能演出基本没什么的感觉
 
+
+*****
+
+####  bwsusaga  
+##### 884#       发表于 2024-9-26 07:30
+
+hard有人过火龙了么，前面打鸟人把碎冰用完了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

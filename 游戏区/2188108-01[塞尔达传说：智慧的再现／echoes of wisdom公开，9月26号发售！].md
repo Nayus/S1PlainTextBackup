@@ -3077,3 +3077,11 @@ Boss 战很有趣，比传统2D的boss战有趣的多
 
 确实不能直接战斗一开始不太适应，但习惯丢能力后乐趣满满<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 882#       发表于 2024-9-26 02:41
+
+另外试了下amiibo，随机出素材，一天只能用三次，比较鸡肋
+

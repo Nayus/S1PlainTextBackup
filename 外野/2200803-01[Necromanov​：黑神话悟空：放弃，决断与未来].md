@@ -2134,3 +2134,18 @@ https://bbs.saraba1st.com/2b/thread-2198959-0-1.html
 
 —— 来自 realme RMX3820, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  fn_herstal  
+##### 175#       发表于 2024-9-26 02:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66297613&amp;ptid=2200803" target="_blank">土狼菌 发表于 2024-9-25 09:39</a>
+
+入关了自有大儒汴京</blockquote>
+啊擦，别说内裤门的文章看多了确实是这个感觉
+
+他老想拿着一个成功大作论证游戏行业有五德终始天理循环，结果就是调起得太高论证不够扎实
+
+虽然具体观点有可取之处，但这个宏大叙事为主导的调调则大可不必，搞得跟游戏国国师似的
+

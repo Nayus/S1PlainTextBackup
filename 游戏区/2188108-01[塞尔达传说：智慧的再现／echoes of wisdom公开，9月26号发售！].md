@@ -2668,3 +2668,73 @@ OC分还涨了一分<img src="https://static.saraba1st.com/image/smiley/face2017
 
 这代没有翻滚？
 
+
+*****
+
+####  我在干什么啊  
+##### 838#       发表于 2024-9-25 23:18
+
+进城镇后感觉掉帧挺明显的
+
+*****
+
+####  karastar  
+##### 839#       发表于 2024-9-25 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66304873&amp;ptid=2188108" target="_blank">北条早苗 发表于 2024-9-25 21:25</a>
+
+差不多是系列正作里最低的了吧，grezzo看来还不太行</blockquote>
+grezzo只是外包打工的，主要问题肯定是监督负责阿
+
+
+*****
+
+####  墨染白泉  
+##### 840#       发表于 2024-9-25 23:20
+
+主机模式好像是动态720p?
+
+
+*****
+
+####  我在干什么啊  
+##### 841#       发表于 2024-9-25 23:20
+
+怎么镇子里的人只关心塞尔达没人关心林克？我要是林克还救个屁的海拉鲁啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Dorohedoro  
+##### 842#       发表于 2024-9-25 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66305073&amp;ptid=2188108" target="_blank">墨染白泉 发表于 2024-9-25 21:47</a>
+
+我看的泥潭偷跑楼，不是b站</blockquote>
+泥潭现在这水平和b站还有啥区别吗，说不定就是一拨人了，另外就算是那个没多少人的偷跑楼，我也看到了好几个提到迷宫设计不行的，这些你就无视了？
+
+*****
+
+####  我在干什么啊  
+##### 843#       发表于 2024-9-25 23:24
+
+公主买东西还要钱的？海拉鲁的人完全不懂人情世故啊
+
+*****
+
+####  Dorohedoro  
+##### 844#       发表于 2024-9-25 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66305157&amp;ptid=2188108" target="_blank">woui003woui 发表于 2024-9-25 21:58</a>
+
+这哥们玩龙信2四个小时给“欧美大罐头”判死刑的
+
+哦，刚还在隔壁楼表示NTT这世代把家底败光 ...</blockquote>
+龙信2的开放世界地图箱庭设计确实是判了欧美罐头死刑啊，这话现在看难道还有啥问题？欧美罐头现在还不够烂吗
+
+*****
+
+####  lilod  
+##### 845#       发表于 2024-9-25 23:26
+
+旋转。。。好爽，甚至比翻滚还爽，传奇耐晕王塞尔达
+

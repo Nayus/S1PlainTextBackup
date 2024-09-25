@@ -1762,3 +1762,18 @@ sd根本扛不住，720p50%渲染大地图稳不了40，太瞎眼</blockquote>
 
 —— 来自 OPPO PGBM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  孤狼arcueid  
+##### 878#       发表于 2024-9-26 04:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66306913&amp;ptid=2140224" target="_blank">纯粹理性人 发表于 2024-9-26 03:26</a>
+
+男主对话立绘是不是有点太女性化了？你说他是女角色，我觉得一点问题没有。
+
+—— 来自 OPPO PGBM10, Andro ...</blockquote>
+男主嬷 王子小时候更嬷
+
+太难绷了
+

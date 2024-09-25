@@ -1171,3 +1171,25 @@ UI特效看整体而不是特意去盯着某一部分看的话还是可以的。
 
 ……有一种轨迹大胜利的感觉。
 
+
+*****
+
+####  RStocking  
+##### 821#       发表于 2024-9-25 21:31
+
+别的就不说了，比之p3r和smtvv如何
+
+*****
+
+####  冯恩在写小说  
+##### 822#       发表于 2024-9-25 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66304922&amp;ptid=2140224" target="_blank">RStocking 发表于 2024-9-25 21:31</a>
+
+别的就不说了，比之p3r和smtvv如何</blockquote>
+战斗体验强于p3r弱于smtvv
+
+画面建模则是p5r水平甚至还低点
+
+剧情还不好评价
+

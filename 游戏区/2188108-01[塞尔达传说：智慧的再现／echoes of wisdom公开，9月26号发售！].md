@@ -2473,3 +2473,52 @@ OC分还涨了一分<img src="https://static.saraba1st.com/image/smiley/face2017
 但玩了一部分知道什么意思了，主要是迷宫和迷题探索太简单 ...</blockquote>
 虽然老手会觉得简单，但我玩的时候就在想新手玩说不定会觉得难，即使是最开头会不会有打不过去的人。
 
+
+*****
+
+####  北条早苗  
+##### 817#       发表于 2024-9-25 21:25
+
+差不多是系列正作里最低的了吧，grezzo看来还不太行
+
+*****
+
+####  苍蓝之枪  
+##### 818#       发表于 2024-9-25 21:27
+
+回到这作来讲，战斗是明显没办法往难了做，主控召唤师型要求做出战斗爽也太强人所难了
+
+那么解密的话，我推测大概是这么个情况
+
+既然说是要往野炊王泪看齐，但是野炊王泪这种正是因为强大性能和自由度，造就了很多万用解
+
+然后按野炊王泪思路你机关又不太适合做成必须要用特定解处理，一来一回解密也没难度了
+
+这也是之前很多人就担心的，可以复制的东西那么多，那会不会最后用来用去就这几种，导致大部分都没啥意义
+
+*****
+
+####  kuarwbwe  
+##### 819#       发表于 2024-9-25 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66304873&amp;ptid=2188108" target="_blank">北条早苗 发表于 2024-9-25 21:25</a>
+差不多是系列正作里最低的了吧，grezzo看来还不太行</blockquote>
+不是，还有个70多的。<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+
+*****
+
+####  ColAMK  
+##### 820#       发表于 2024-9-25 21:32
+
+也无所谓了 反正今年这些个媒体和评分爆的厉害<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">往后怕是信用度越来越低
+
+*****
+
+####  北条早苗  
+##### 821#       发表于 2024-9-25 21:33
+
+三剑客我都不把它当正作的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

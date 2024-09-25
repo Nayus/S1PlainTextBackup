@@ -2522,3 +2522,22 @@ OC分还涨了一分<img src="https://static.saraba1st.com/image/smiley/face2017
 
 三剑客我都不把它当正作的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无辄辄  
+##### 822#       发表于 2024-9-25 21:36
+
+再过两年，这群媒体就可以当笑话看了，其实已经当笑话看了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Dorohedoro  
+##### 823#       发表于 2024-9-25 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66304626&amp;ptid=2188108" target="_blank">墨染白泉 发表于 2024-9-25 20:59</a>
+
+85已经是最低的2d塞了吧，看偷跑不都说比织梦岛重置好吗</blockquote>
+你自己去看看b站上梦见岛的视频下面的玩家评论，纷纷表示这游戏机制古早，指引稀烂，迷宫阴间，压根不是现代游戏，智慧的再现到底什么水平现在还不知道，但这样一群人觉得智慧的再现好这已经够让人担心了
+

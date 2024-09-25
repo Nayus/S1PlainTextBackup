@@ -1193,3 +1193,58 @@ UI特效看整体而不是特意去盯着某一部分看的话还是可以的。
 
 剧情还不好评价
 
+
+*****
+
+####  无辄辄  
+##### 823#       发表于 2024-9-25 21:37
+
+目前看来的P5和真女5之下作品
+
+*****
+
+####  八佾舞于潭  
+##### 824#       发表于 2024-9-25 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66304828&amp;ptid=2140224" target="_blank">benhawk 发表于 2024-9-25 21:20</a>
+
+……有一种轨迹大胜利的感觉。</blockquote>
+距离产生美，正在看界轨直播，直接下水道吧<img src="https://static.saraba1st.com/image/smiley/face/31.gif" referrerpolicy="no-referrer">
+
+当然战斗爽快度和少女角色阵容确实有优势（
+
+*****
+
+####  check  
+##### 825#       发表于 2024-9-25 21:41
+
+这建模纹理是不是有摩尔条纹，好刺眼好难受啊。
+
+*****
+
+####  RStocking  
+##### 826#       发表于 2024-9-25 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66304955&amp;ptid=2140224" target="_blank">冯恩在写小说 发表于 2024-9-25 21:36</a>
+战斗体验强于p3r弱于smtvv
+
+画面建模则是p5r水平甚至还低点
+
+剧情还不好评价 ...</blockquote>
+那我还是先玩smtvv吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+反正估计也会有阿特拉斯商法
+
+*****
+
+####  八佾舞于潭  
+##### 827#       发表于 2024-9-25 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66304955&amp;ptid=2140224" target="_blank">冯恩在写小说 发表于 2024-9-25 21:36</a>
+
+战斗体验强于p3r弱于smtvv
+
+画面建模则是p5r水平甚至还低点
+
+剧情还不好评价 ...</blockquote>
+我一直因为 UI 太像 #FE 没 get 到 SMTV 战斗的特别之处，而且 A 家这几作系统整体思路感觉大差不差
+

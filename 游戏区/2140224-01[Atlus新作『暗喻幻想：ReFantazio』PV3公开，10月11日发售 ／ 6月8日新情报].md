@@ -1537,3 +1537,23 @@ smtvv还是有点意思
 
 暗喻幻想嘛基本就a社战斗设计缝大成之作
 
+
+*****
+
+####  Linsdy  
+##### 855#       发表于 2024-9-25 22:59
+
+我去没一个觉得好的吗？
+我真的觉得挺好玩的，战斗比p有趣多了，推进节奏也很好。
+
+—— 来自 OnePlus PHK110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  猫沢  
+##### 856#       发表于 2024-9-25 23:02
+
+玩不上还在等0点<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

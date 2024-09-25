@@ -2600,3 +2600,41 @@ OC分还涨了一分<img src="https://static.saraba1st.com/image/smiley/face2017
 
 体量大抵是看时间而不是面积吧。但高自由度多方案解谜这个体制是野炊成功后的巨大惯性，也是现在制作团队引以为傲的立身之本，说要改回去什么的可以洗洗睡了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kuarwbwe  
+##### 829#       发表于 2024-9-25 23:01
+
+准备开玩。<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  lilod  
+##### 830#       发表于 2024-9-25 23:04
+
+2D 塞能这么顺畅的跳感觉真是不一样（
+
+*****
+
+####  真马甲传说  
+##### 831#       发表于 2024-9-25 23:04
+
+怎么还没解锁啊
+
+*****
+
+####  holomoon  
+##### 832#       发表于 2024-9-25 23:05
+
+解锁了！开玩
+
+*****
+
+####  woui003woui  
+##### 833#       发表于 2024-9-25 23:05
+
+解锁没成功<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+

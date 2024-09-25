@@ -203,3 +203,47 @@ mea啊确实强，我白衣秀士都是嗑药打了十几次才过的</blockquot
 
 你麻打这种游戏就是自然而然的有节目效果
 
+
+*****
+
+####  古战场亡魂  
+##### 17456#       发表于 2024-9-25 17:28
+
+太勤勉了，晚上怕不是还有lol团建。
+
+<img src="https://img.saraba1st.com/forum/202409/25/172831yl7m0m7mxxxemlmw.png" referrerpolicy="no-referrer">
+
+<strong>1727256506225.png</strong> (180.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-25 17:28 上传
+
+*****
+
+####  古战场亡魂  
+##### 17457#       发表于 2024-9-25 17:34
+
+<img src="https://img.saraba1st.com/forum/202409/25/173321lfllfzkdz91a3ddf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (152.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-25 17:33 上传
+
+<img src="https://img.saraba1st.com/forum/202409/25/173359scqyiykamrkced7j.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (78.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-25 17:33 上传
+
+*****
+
+####  sino__unnko3  
+##### 17458#       发表于 2024-9-25 22:38
+
+预告2627可能连播，30号继续撸撸？到月底的外出次数快赶上上个月整月的了
+

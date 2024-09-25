@@ -1714,3 +1714,33 @@ ui太花了看着眼睛疼，我觉得这东西不是越花里胡哨越好<img s
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">sd根本扛不住，720p50%渲染大地图稳不了40，太瞎眼
 
+
+*****
+
+####  猫沢  
+##### 874#       发表于 2024-9-26 02:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66306817&amp;ptid=2140224" target="_blank">roxassix 发表于 2024-9-26 02:21</a>
+sd根本扛不住，720p50%渲染大地图稳不了40，太瞎眼</blockquote>
+优化有问题，搞得我下机了。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  bwsusaga  
+##### 875#       发表于 2024-9-26 02:50
+
+眼快瞎了，设计者真没觉的有问题么，
+
+虽说这次主题色调是白吧，但真太乱了，开空箱切回合都花的一批。加速跑的白色速度线也很难受。
+
+投入也不少吧，但战斗演出可以说是完全没有，
+
+会心一击切镜头莫名其妙，变身放魔法和系列仲魔演出一个鸟样，
+
+这么一比感觉创毘招式演出华丽爆了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+演出全靠UI特效的想法真是神金。
+

@@ -2996,3 +2996,38 @@ Boss 战很有趣，比传统2D的boss战有趣的多
 </blockquote>
 没，我说的是迷宫地图，以前迷宫地图和指南针的功能我记得是分开的
 
+
+*****
+
+####  Ravio  
+##### 875#       发表于 2024-9-26 00:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66306164&amp;ptid=2188108" target="_blank">我在干什么啊 发表于 2024-9-26 00:04</a>
+
+这作心之碎片给这么大方的吗</blockquote>
+主线迷宫少，20心总额又祖宗之法
+
+多给点血也是照顾困难难度前期
+
+*****
+
+####  mjzs07  
+##### 876#       发表于 2024-9-26 00:57
+
+行云流水，而且画面还贼好，哪个出生给60分的！
+
+
+*****
+
+####  Ravio  
+##### 877#       发表于 2024-9-26 01:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66304821&amp;ptid=2188108" target="_blank">chizuru 发表于 2024-9-25 21:19</a>
+
+虽然老手会觉得简单，但我玩的时候就在想新手玩说不定会觉得难，即使是最开头会不会有打不过去的人。 ...</blockquote>
+卫报给了60分，简评是
+
+当塞尔达很棒，但是在无法战斗的情况下体现自己的能动性十分难以上手
+
+个别砍习惯的老手大概也会觉得不舒服
+

@@ -1060,3 +1060,18 @@ PC微软商店可以下试玩版了，59G</blockquote>
 打到自由时间了，demo只能继续打三天
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我不知道是什么品味才搞这么多钻洞，还有进场和结算动画看多了真的又臭又长，战斗也一般，省钱
 
+
+*****
+
+####  shudushimo  
+##### 808#       发表于 2024-9-25 19:28
+
+这黑屏加载也太多了吧<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">怕是ns版暴力移植上来的
+
+*****
+
+####  抽烟的猴  
+##### 809#       发表于 2024-9-25 19:33
+
+ns2护航大作，估计不会上ns
+

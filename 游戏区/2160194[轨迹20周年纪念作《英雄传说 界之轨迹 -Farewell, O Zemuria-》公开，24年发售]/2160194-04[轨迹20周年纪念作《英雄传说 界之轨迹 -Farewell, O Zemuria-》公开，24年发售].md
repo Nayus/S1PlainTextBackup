@@ -14873,3 +14873,13 @@ how much ZSBD</blockquote>
 
 沟槽的这代开始DLC服装不单卖，一套打包100港<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Licheus  
+##### 5919#       发表于 2024-9-26 06:48
+
+黑兔这全新的武器设计+跳跃攻击的动作，有限的创意全灌她身上了，不愧是亲女儿。别的角色根本没这么高浓度，你说是吧小仓唯<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

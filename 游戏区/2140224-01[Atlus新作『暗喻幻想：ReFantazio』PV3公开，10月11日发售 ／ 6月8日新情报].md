@@ -1091,3 +1091,39 @@ ns2护航大作，估计不会上ns
 
 剧情真的太p系列了，尤其是觉醒变身那些，我都能提前喊偏铝酸钠了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sdh45e6  
+##### 812#       发表于 2024-9-25 20:04
+
+demo玩了1小时多
+
+战斗战斗不小心睡着了<img src="https://static.saraba1st.com/image/smiley/animal2017/004.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无辄辄  
+##### 813#       发表于 2024-9-25 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66304086&amp;ptid=2140224" target="_blank">sdh45e6 发表于 2024-9-25 20:04</a>
+demo玩了1小时多
+
+战斗战斗不小心睡着了</blockquote>
+这么闪的UI你居然能睡着，我都快玩眼瞎了。
+
+
+*****
+
+####  makar0601  
+##### 814#       发表于 2024-9-25 20:12
+
+这是不是被动画公司骗钱了，动画做的真的一言难尽
+
+*****
+
+####  sad6504  
+##### 815#       发表于 2024-9-25 20:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/230.gif" referrerpolicy="no-referrer">要被战斗UI闪瞎眼了，有病啊
+

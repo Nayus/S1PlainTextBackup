@@ -2045,3 +2045,140 @@ With the first 100 predictions lodged (from our X/FB users), the average Metasco
 
 IGN和GameSpot官网上都是9分<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  孔方兄  
+##### 770#       发表于 2024-9-25 20:06
+
+和织梦岛一样
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 771#       发表于 2024-9-25 20:07
+
+预想中的分数，可以放心玩了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  星花  
+##### 772#       发表于 2024-9-25 20:07
+
+今年TGA太吓人，还是躲躲吧。
+
+*****
+
+####  clyde-wang  
+##### 773#       发表于 2024-9-25 20:08
+
+非常安全的分数，不会被拐年度，但是又没有什么特别的硬伤的好玩的游戏
+
+*****
+
+####  ColAMK  
+##### 774#       发表于 2024-9-25 20:10
+
+IGN GS双9 不过VGC6分看笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wondor1111  
+##### 775#       发表于 2024-9-25 20:10
+
+跟惊奇一样拿92，goty跟任桑也没叼毛关系，也就国内会贷款带节奏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 776#       发表于 2024-9-25 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66304119&amp;ptid=2188108" target="_blank">星花 发表于 2024-9-25 20:07</a>
+今年TGA太吓人，还是躲躲吧。</blockquote>
+其实本来也轮不到2d塞就是了，任任年底看戏<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  无辄辄  
+##### 777#       发表于 2024-9-25 20:10
+
+这个分数既能体现这个游戏的可玩性，又不至于在今年被各路要拿年度的妖魔鬼怪惦记，非常不错<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  库德里尔  
+##### 778#       发表于 2024-9-25 20:11
+
+IGN9，开分87 和预想几乎完全一致了
+
+祝大家游玩愉快 部分坛友在剧透楼整理了一些资料和攻略，正式解锁后确有需要的坛友可以翻看一下。
+
+
+*****
+
+####  sz19860225  
+##### 779#       发表于 2024-9-25 20:12
+
+任任别开香槟，ps5吧马上制图
+塞尔达（87）：还敢炒作吗吗喽（83）.jpg
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  巴尔干炮  
+##### 780#       发表于 2024-9-25 20:12
+
+gs给了9分，佳作无疑。
+
+*****
+
+####  我在干什么啊  
+##### 781#       发表于 2024-9-25 20:14
+
+2d塞最高的mc评分是哪个？三角还是三角2
+
+*****
+
+####  墨染白泉  
+##### 782#       发表于 2024-9-25 20:15
+
+还以为能开分90的，不过也不差。等卡带了
+
+*****
+
+####  撒撒  
+##### 783#       发表于 2024-9-25 20:15
+
+vgc6分过分了。
+
+*****
+
+####  wondor1111  
+##### 784#       发表于 2024-9-25 20:17
+
+叼毛外国人因为塞尔达萌豚然后给差评太正常了，风棍就是这么干的，之前就提了
+
+*****
+
+####  clyde-wang  
+##### 785#       发表于 2024-9-25 20:17
+
+老任的游戏肯定有中评的，王泪和野炊也都有
+
+*****
+
+####  kuarwbwe  
+##### 786#       发表于 2024-9-25 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66304190&amp;ptid=2188108" target="_blank">我在干什么啊 发表于 2024-9-25 20:14</a>
+2d塞最高的mc评分是哪个？三角还是三角2</blockquote>
+三角2，三角那会还没有mc吧。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

@@ -740,3 +740,50 @@ cy之前的成功是因为爆款，现在的颓势是无 ...</blockquote><blockq
 
 至于cy的成功，难听一点可能还是换皮而不是爆款（母猪链接和刀塔传奇，马娘是简化版的实况棒球）
 
+
+*****
+
+####  liekong  
+##### 57#       发表于 2024-9-26 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66306220&amp;ptid=2200874" target="_blank">穿越护城河 发表于 2024-9-26 00:11</a>
+
+马车已经被他打入单机买断了
+
+至于cy的成功，难听一点可能还是换皮而不是爆款（母猪链接和刀塔传奇，马 ...</blockquote>
+马车8本身就是IP系列第8作了。
+
+而且我觉得马车8的主要收益还是靠卖出游戏拷贝而不是线上联机游戏服务。
+
+CY第一个大获成功的游戏应该是GBF吧，而PCR也不是纯换皮，在媚宅方面还是做了不少工作的
+
+
+*****
+
+####  穿越护城河  
+##### 58#       发表于 2024-9-26 00:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66306295&amp;ptid=2200874" target="_blank">liekong 发表于 2024-9-26 00:19</a>
+
+马车8本身就是IP系列第8作了。
+
+而且我觉得马车8的主要收益还是靠卖出游戏拷贝而不是线上联机游戏服务 ...</blockquote>
+马车8的季票一共6弹DLC去年刚出完
+
+差不多48个赛道外加一些有的没的，容量也算多一个游戏了
+
+*****
+
+####  liekong  
+##### 59#       发表于 2024-9-26 00:21
+
+ 本帖最后由 liekong 于 2024-9-26 00:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66306305&amp;ptid=2200874" target="_blank">穿越护城河 发表于 2024-9-26 00:20</a>
+
+马车8的季票一共6弹DLC去年刚出完
+
+差不多48个赛道外加一些有的没的，容量也算多一个游戏了</blockquote>
+DLC你觉得是应该归类于持续服务型里么，我个人觉得还是买断制的一部分。
+
+我觉得老任最持续服务型的游戏应该是splatoon，虽然也是买断制的。
+

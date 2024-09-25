@@ -14736,3 +14736,18 @@ how much ZSBD</blockquote>
 -《空之轨迹》重制版选择在Switch平台发布是为了让更多玩家可以轻松接触到该作品
 -正在全力投入重制工作之中
 
+
+*****
+
+####  语神武余  
+##### 5904#       发表于 2024-9-25 18:29
+
+最喜爱的角色毫无疑问是亚妮艾丝，这是不是暗示了什么结局？<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RAMDA  
+##### 5905#       发表于 2024-9-25 18:31
+
+你就说给没给结局吧
+

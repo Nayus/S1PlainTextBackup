@@ -1994,3 +1994,54 @@ With the first 100 predictions lodged (from our X/FB users), the average Metasco
 北京时间晚上11点。</blockquote>
 他说的意思应该是8点出评分
 
+
+*****
+
+####  woui003woui  
+##### 764#       发表于 2024-9-25 20:00
+
+ 本帖最后由 woui003woui 于 2024-9-25 20:02 编辑 
+
+开分87
+
+快速扫了一眼没看见IGN和GS
+
+*****
+
+####  零之追击者  
+##### 765#       发表于 2024-9-25 20:02
+
+<blockquote>woui003woui 发表于 2024-9-25 20:00
+开分87
+
+快速扫了一眼没看见IGN和GS</blockquote>
+多少家出评分了？
+
+*****
+
+####  ColAMK  
+##### 766#       发表于 2024-9-25 20:03
+
+34家87 俩中评 大媒体分还没出
+
+*****
+
+####  库德里尔  
+##### 767#       发表于 2024-9-25 20:04
+
+开分87 大媒体更新之后能上90吧
+
+*****
+
+####  wondor1111  
+##### 768#       发表于 2024-9-25 20:05
+
+跟预期差不多，这么设计游戏很难出彩
+
+*****
+
+####  chaos7  
+##### 769#       发表于 2024-9-25 20:05
+
+IGN和GameSpot官网上都是9分<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

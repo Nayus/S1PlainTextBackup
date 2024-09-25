@@ -290,3 +290,35 @@ SpaceX打捞了第四次试飞的Booster 11残骸，图片中为Booster 11的外
 由手机上传
 2024-9-23 10:09 上传
 
+
+*****
+
+####  commcody  
+##### 68#         楼主| 发表于 2024-9-25 19:57
+
+9月23日，B12+S30组合体完成了部分加注测试。
+
+<img src="https://img.saraba1st.com/forum/202409/25/195550jo997o5790icafac.jpg" referrerpolicy="no-referrer">
+
+<strong>GYMXy8nbIAA-P20.jpg</strong> (494.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-25 19:55 上传
+
+<img src="https://img.saraba1st.com/forum/202409/25/195550falj7a3wj2s8miw8.jpg" referrerpolicy="no-referrer">
+
+<strong>GYMXyAKakAA4NH-.jpg</strong> (589.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-25 19:55 上传
+
+<img src="https://img.saraba1st.com/forum/202409/25/195550jgxfyhxlnuzaztot.jpg" referrerpolicy="no-referrer">
+
+<strong>GYMXtKdakAM4RyU.jpg</strong> (764.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-25 19:55 上传
+

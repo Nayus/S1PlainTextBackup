@@ -1789,3 +1789,36 @@ sd根本扛不住，720p50%渲染大地图稳不了40，太瞎眼</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  alviaze  
+##### 880#       发表于 2024-9-26 05:05
+
+4个小时打到地下墓地入口，感觉就是挺扎实的JRPG
+
+4k150%渲染画质还过得去，没什么锯齿，美术和音乐拉满了
+
+两个剑士+男主魔法师，打完掏出seeker补血，感觉就是一路平推<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+男主seeker弱火，路上带了就是加难度，打不过先手的精英怪大抵如此
+
+打火龙前买好碎冰，老师傅变seeker和男主魔法师站后排，前排只留白毛剑士，也挺好打的，药都没吃
+
+只能说hard难度压力不大，比smt5温柔多了
+
+后面学了组合技+职业继承技能，肉眼可见战斗比p系列好玩很多。比不比得上同样是press turn的smt5，那还要看后面解锁的职业
+
+剧情上没啥可说，选王就截止到4个月后，按atlus不反转不拔高就不会写剧本的尿性来看，开头几个小时演的东西都不太重要
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">目前展示到的东西来说，就是这股日式西幻味
+
+
+*****
+
+####  alviaze  
+##### 881#       发表于 2024-9-26 05:15
+
+可能会有觉得尬的，但是我是特别喜欢白毛和红毛两个掏麦克风演说的演出<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+美中不足的是前面铺垫的剧情都有点短了，比p系列前期入队感觉节奏快了一倍。开篇几个小时大部分时间都用来铺垫这个世界背景了，留给队友的就少了，这也是异世界的劣势
+

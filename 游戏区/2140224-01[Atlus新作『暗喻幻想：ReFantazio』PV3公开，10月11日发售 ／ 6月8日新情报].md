@@ -1362,3 +1362,59 @@ metaphor是哪个</blockquote>制作人员名单开不了
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  抽烟的猴  
+##### 838#       发表于 2024-9-25 22:17
+
+和p5一样的时长=和p5耗费在迷宫同样时长，现在有这种预感
+
+*****
+
+####  猫沢  
+##### 839#       发表于 2024-9-25 22:20
+
+我猜这作会动画化
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  UnrealApartheid  
+##### 840#       发表于 2024-9-25 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66305352&amp;ptid=2140224" target="_blank">猫沢 发表于 2024-09-25 22:20:58</a>
+我猜这作会动画化</blockquote>如果还是Aniplex发行的话，希望别做得太敷衍了事
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  freedom12  
+##### 841#       发表于 2024-9-25 22:22
+
+看了下demo视频，感觉现在还用这种工业动画片播剧情很影响带入
+
+不过对我来说地图质量决定一切
+
+要是能有smtv大地图+p5迷宫地图的水准，就无脑入
+
+*****
+
+####  卡拉德利姆  
+##### 842#       发表于 2024-9-25 22:23
+
+打的我哈欠连天…
+
+*****
+
+####  AeonsTorn  
+##### 843#       发表于 2024-9-25 22:24
+
+steam有无demo啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.89
+

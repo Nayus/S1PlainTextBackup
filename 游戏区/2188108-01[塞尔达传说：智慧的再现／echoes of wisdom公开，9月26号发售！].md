@@ -1984,3 +1984,13 @@ With the first 100 predictions lodged (from our X/FB users), the average Metasco
 应该是八点左右出吧，正好加班到那个点</blockquote>
 北京时间晚上11点。 
 
+
+*****
+
+####  小姜不辣  
+##### 763#       发表于 2024-9-25 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66303843&amp;ptid=2188108" target="_blank">king520kyo 发表于 2024-9-25 19:38</a>
+北京时间晚上11点。</blockquote>
+他说的意思应该是8点出评分
+

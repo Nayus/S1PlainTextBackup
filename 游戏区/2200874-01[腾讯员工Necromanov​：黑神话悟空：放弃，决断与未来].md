@@ -694,3 +694,18 @@ BOSS战中的互动叙事是《黑神话悟空》中效果最好的设计之一�
 
 黑神话下次如果没办法复现现在的成功呢？流浪地球的例子，投入增大，规模没怎么扩张。我倾向是吃了官媒带货+新鲜题材，堆视听奇观的玩法都是一次鲜二次腻。
 
+
+*****
+
+####  穿越护城河  
+##### 54#       发表于 2024-9-25 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66305624&amp;ptid=2200874" target="_blank">liekong 发表于 2024-9-25 22:59</a>
+
+我觉得最有用的一段话还是论证了服务型游戏那么赚钱的情况下，为什么还要做看起来风险大的3A买断制游戏 ...</blockquote>
+关键那几个例子也不是很合适阿，cornord还得是因为不好玩，而任天堂有个现成的GAAS的例子，就是带季票的马车8，以及联机模式本身就要买他的网络服务。
+
+至于后面提到的米哈游，Epic，Cyberagent，Gerena，Krafton，Scopely
+
+米咱们暂且不提，塞博艾坚特已经在2023年9月后成为反面教员（今年全靠学园爱马仕拯救），Gerena自研项目勉强能看，Scopely反而是换皮山寨成事的好例子（Stumble Guys和糖豆人，大富翁go和coin master）
+

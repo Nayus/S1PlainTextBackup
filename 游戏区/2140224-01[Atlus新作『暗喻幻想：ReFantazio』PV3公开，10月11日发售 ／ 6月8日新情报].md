@@ -1248,3 +1248,56 @@ UI特效看整体而不是特意去盯着某一部分看的话还是可以的。
 剧情还不好评价 ...</blockquote>
 我一直因为 UI 太像 #FE 没 get 到 SMTV 战斗的特别之处，而且 A 家这几作系统整体思路感觉大差不差
 
+
+*****
+
+####  whfnet  
+##### 828#       发表于 2024-9-25 21:48
+
+大地图击晕，平级怪多了相当恶心，尤其是你转职了手短或者出手慢的职业
+
+结算慢，无伤慢上加慢
+
+钱不够，mag也不够
+
+垫肩
+
+女性角色无亮点
+
+迷宫怪多，mp不足
+
+*****
+
+####  Ashice  
+##### 829#       发表于 2024-9-25 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66304166&amp;ptid=2140224" target="_blank">makar0601 发表于 2024-9-25 20:12</a>
+
+这是不是被动画公司骗钱了，动画做的真的一言难尽</blockquote>
+p系列游戏内的动画一直都这个样子吧，一副接近崩坏边缘的感觉
+
+*****
+
+####  猫将军  
+##### 830#       发表于 2024-9-25 21:49
+
+ps4pro 1080p，60不稳定的样子…感觉很一般<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">打骨折再说了，首发不可能
+
+*****
+
+####  无辄辄  
+##### 831#       发表于 2024-9-25 21:52
+
+我说一个很倒退的点，这次的迷宫太倒退了，就跟以前阿特拉斯做的游戏迷宫一样，场景变化太小了，感觉哪里都差不多，明明P5时候迷宫已经改了不少这点，真女5的迷宫设计也进步了，这个游戏反而越做越回去了，就跟骇客2的迷宫一样没有一点新意。
+
+
+*****
+
+####  Redimercia  
+##### 832#       发表于 2024-9-25 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66305089&amp;ptid=2140224" target="_blank">Ashice 发表于 2024-9-25 21:49</a>
+
+p系列游戏内的动画一直都这个样子吧，一副接近崩坏边缘的感觉</blockquote>
+5无印由IG负责的动画质量都不错，原版3的动画部分虽然便宜不过审美在线，其他的只能说确实没眼看
+

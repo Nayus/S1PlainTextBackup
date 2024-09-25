@@ -2541,3 +2541,13 @@ OC分还涨了一分<img src="https://static.saraba1st.com/image/smiley/face2017
 85已经是最低的2d塞了吧，看偷跑不都说比织梦岛重置好吗</blockquote>
 你自己去看看b站上梦见岛的视频下面的玩家评论，纷纷表示这游戏机制古早，指引稀烂，迷宫阴间，压根不是现代游戏，智慧的再现到底什么水平现在还不知道，但这样一群人觉得智慧的再现好这已经够让人担心了
 
+
+*****
+
+####  墨染白泉  
+##### 824#       发表于 2024-9-25 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66305039&amp;ptid=2188108" target="_blank">Dorohedoro 发表于 2024-9-25 21:44</a>
+你自己去看看b站上梦见岛的视频下面的玩家评论，纷纷表示这游戏机制古早，指引稀烂，迷宫阴间，压根不是 ...</blockquote>
+我看的泥潭偷跑楼，不是b站<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

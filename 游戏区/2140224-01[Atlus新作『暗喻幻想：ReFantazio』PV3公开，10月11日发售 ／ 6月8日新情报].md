@@ -1777,3 +1777,15 @@ sd根本扛不住，720p50%渲染大地图稳不了40，太瞎眼</blockquote>
 
 太难绷了
 
+
+*****
+
+####  如月尤菲  
+##### 879#       发表于 2024-9-26 04:53
+
+ 本帖最后由 如月尤菲 于 2024-9-26 04:55 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">同时试了xsx版和pc版，主机优化居然比pc好，我pc是才换的4060ti加12400f啊，特么pc开头大地图会掉帧，主机丝滑的一逼，pc把渲染调低了才好了，但是画面一下比主机糊了，什么鬼
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

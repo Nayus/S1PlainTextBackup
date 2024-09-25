@@ -642,3 +642,13 @@ BOSS战中的互动叙事是《黑神话悟空》中效果最好的设计之一�
 
 这两种不同的决策会导致地图规模方面出现多少差异，只能是都试过的资深开发者能得出来的，不是说你看到用第二种的公司成功了，就觉得第二种设计方法真的天才，因为真正决定其商业成功的关键，很可能跟这个关卡设计的决策关系不大
 
+
+*****
+
+####  jojohunter  
+##### 48#       发表于 2024-9-25 22:35
+
+你说得对，但这不是不给小地图的理由<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3820, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -1418,3 +1418,41 @@ steam有无demo啊
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.89
 
+
+*****
+
+####  smdzh2  
+##### 844#       发表于 2024-9-25 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66305375&amp;ptid=2140224" target="_blank">AeonsTorn 发表于 2024-9-25 23:24</a>
+steam有无demo啊
+
+—— 来自 鹅球 v3.1.89</blockquote>
+steam版0点
+
+*****
+
+####  Kojimaru  
+##### 845#       发表于 2024-9-25 22:29
+
+实操后才发现系统的脑残之处，这原野战斗简直是个为醋包饺子的设计。
+
+这黄色警戒条在同等级的情况下，正面对打队友只要少摸几下基本抢不过敌人，h难度下被打入战斗直接宣布死亡，最稳妥的方法变成在黄条满前偷个位数伤害直接进战斗。
+
+说实话不如继续按祖宗之法，反正也是偷袭收益最大这个思路<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这次前戏上革新的让人玩起来太别扭了
+
+
+*****
+
+####  Khellendros  
+##### 846#       发表于 2024-9-25 22:33
+
+<blockquote>Kojimaru 发表于 2024-9-25 22:29
+实操后才发现系统的脑残之处，这原野战斗简直是个为醋包饺子的设计。
+
+这黄色警戒条在同等级的情况下，正面 ...</blockquote>
+
+怪物攻击有白光提示按b可以躲开（但我感觉闪避手感不太行）
+
+另外很智障的一点是act部分一点容错都没有，被摸到直接进战斗，但是有的精英怪不在开战前打进break（h难度）回合制里面就必死无疑，导致回合制部分直接变成垃圾时间……
+

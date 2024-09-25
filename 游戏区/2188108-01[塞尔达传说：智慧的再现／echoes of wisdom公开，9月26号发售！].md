@@ -1936,3 +1936,14 @@ With the first 100 predictions lodged (from our X/FB users), the average Metasco
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  林檎  
+##### 758#       发表于 2024-9-25 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66303048&amp;ptid=2188108" target="_blank">chizuru 发表于 2024-9-25 18:04</a>
+
+8分缺点没提啊，是故事太悠闲吗</blockquote>
+可能就是单纯不合口味吧，媒体不经常有那种说了游戏一堆优点最后给了个低分的
+

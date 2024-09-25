@@ -11373,3 +11373,26 @@ GTA5直升机的操作按键由STGR的经验者辅导调整按键变得非常好
 
 2024-9-25 14:48 上传
 
+
+*****
+
+####  holoan  
+##### 9819#         楼主| 发表于 2024-9-25 16:00
+
+<img src="https://img.saraba1st.com/forum/202409/25/160058ezaq3l7a3qq3tyzs.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (241.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-25 16:00 上传
+
+*****
+
+####  holoan  
+##### 9820#         楼主| 发表于 2024-9-25 18:38
+
+okayo里话
+
+事前职业调查的时候汽修职业的第一志愿填写人0人，miko就找了填第二志愿是汽修的okayo和青
+

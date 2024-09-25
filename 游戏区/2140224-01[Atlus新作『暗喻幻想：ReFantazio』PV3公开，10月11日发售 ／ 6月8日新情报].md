@@ -1752,3 +1752,13 @@ sd根本扛不住，720p50%渲染大地图稳不了40，太瞎眼</blockquote>
 
 古谷彻换成子安武人，原来感觉那个角色说话很有逼格，现在语气变温柔了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  纯粹理性人  
+##### 877#       发表于 2024-9-26 03:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">男主对话立绘是不是有点太女性化了？你说他是女角色，我觉得一点问题没有。
+
+—— 来自 OPPO PGBM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

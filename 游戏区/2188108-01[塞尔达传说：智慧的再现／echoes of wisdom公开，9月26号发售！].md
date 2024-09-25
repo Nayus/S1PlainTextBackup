@@ -2796,3 +2796,30 @@ grezzo只是外包打工的，主要问题肯定是监督负责阿
 
 你们掉帧吗…是我初始机型太老了吗…
 
+
+*****
+
+####  lilod  
+##### 853#       发表于 2024-9-25 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66305945&amp;ptid=2188108" target="_blank">ParadiseMartyr 发表于 2024-9-25 23:35</a>
+
+你们掉帧吗…是我初始机型太老了吗…</blockquote>
+掉，而且是非常粗暴的 60 直接切到 30 （ 
+
+*****
+
+####  我在干什么啊  
+##### 854#       发表于 2024-9-25 23:36
+
+<blockquote>ParadiseMartyr 发表于 2024-9-25 23:35
+你们掉帧吗…是我初始机型太老了吗…</blockquote>
+掉，城镇里掉帧挺严重的
+
+*****
+
+####  新HGCG  
+##### 855#       发表于 2024-9-25 23:38
+
+还没发货…………
+

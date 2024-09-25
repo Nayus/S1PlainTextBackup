@@ -14785,3 +14785,15 @@ how much ZSBD</blockquote>
 
 这对话加入关键字辅助感觉很便利
 
+
+*****
+
+####  隔壁老黄  
+##### 5910#       发表于 2024-9-25 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66303909&amp;ptid=2160194" target="_blank">八佾舞于潭 发表于 2024-9-25 19:45</a>
+但学妹前两部的塑造感觉不如闪12的黎恩吧，除了身世关联这个保命牌外很缺啥 jrpg 主角必须的 charisma（领 ...</blockquote>
+胸部很大啊，结合黎1那套泳装，确实无敌啊<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

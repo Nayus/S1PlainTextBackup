@@ -2327,3 +2327,72 @@ vgc过分了吧，ign gs双9现在总分才85<img src="https://static.saraba1st.
 
 某海外店铺发货了，竟然发的中通国际，这得多久才能到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  墨染白泉  
+##### 803#       发表于 2024-9-25 20:59
+
+85已经是最低的2d塞了吧，看偷跑不都说比织梦岛重置好吗
+
+*****
+
+####  zy15085  
+##### 804#       发表于 2024-9-25 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66304626&amp;ptid=2188108" target="_blank">墨染白泉 发表于 2024-9-25 20:59</a>
+
+85已经是最低的2d塞了吧，看偷跑不都说比织梦岛重置好吗</blockquote>
+好不好玩家玩了就知道了
+
+*****
+
+####  crosz1985  
+##### 805#       发表于 2024-9-25 21:01
+
+<blockquote>kooor555 发表于 2024-9-25 20:52
+某海外店铺发货了，竟然发的中通国际，这得多久才能到</blockquote>
+正常五天左右
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  ubiquity  
+##### 806#       发表于 2024-9-25 21:02
+
+<blockquote>墨染白泉 发表于 2024-9-25 20:59
+85已经是最低的2d塞了吧，看偷跑不都说比织梦岛重置好吗</blockquote>
+幽默媒体评分体系早崩了
+
+*****
+
+####  ColAMK  
+##### 807#       发表于 2024-9-25 21:03
+
+<img src="https://img.saraba1st.com/forum/202409/25/210333n0t9z4ad676z76e2.png" referrerpolicy="no-referrer">
+
+<strong>7G@`TK(IOJILF{J7L0U)K)4.png</strong> (416.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-25 21:03 上传
+
+OC分还涨了一分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  伪宅ACer  
+##### 808#       发表于 2024-9-25 21:05
+
+<img src="https://img.saraba1st.com/forum/202409/25/210520mkvwt33tzp2zpup3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1099.jpeg</strong> (54.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-25 21:05 上传
+
+官方认证确实有织梦岛地图8倍大
+

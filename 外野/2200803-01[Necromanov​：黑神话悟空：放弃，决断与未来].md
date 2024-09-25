@@ -1983,3 +1983,19 @@ https://bbs.saraba1st.com/2b/thread-2198959-0-1.html
 
 以后的游戏要为适合直播设计这不算新知识吧，我觉得最迟只狼时候就该认识到了
 
+
+*****
+
+####  nukacolamania  
+##### 164#       发表于 2024-9-25 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66297922&amp;ptid=2200803" target="_blank">五块 发表于 2024-9-25 10:02</a>
+这就是文里说的战斗手段多样性。
+
+让你能花里胡哨打过去就行，平衡就另说了，反正卡普空都被天天骂平衡性 ...</blockquote>
+单机游戏里找“平衡性”本来就是暴雪的傻儿子们搞出来的陋习
+
+能吸引玩家的花样多才是硬道理
+
+—— 来自 motorola moto g stylus 5G (2022), Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

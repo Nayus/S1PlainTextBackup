@@ -14751,3 +14751,13 @@ how much ZSBD</blockquote>
 
 你就说给没给结局吧
 
+
+*****
+
+####  一夜秋风袭锦城  
+##### 5906#       发表于 2024-9-25 19:20
+
+问下教官服是不是只有数字版预购才有？实体不送？
+
+—— 来自 Xiaomi 2210132C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

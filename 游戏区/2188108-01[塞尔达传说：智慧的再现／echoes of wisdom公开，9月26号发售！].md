@@ -1955,3 +1955,22 @@ With the first 100 predictions lodged (from our X/FB users), the average Metasco
 
 刚把老任上传的肉村和课长他们玩林克传说的视频看了，确实自由。拿了蜘蛛就能满地图乱跑了。就等晚上数字版解锁了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  woui003woui  
+##### 760#       发表于 2024-9-25 19:13
+
+应该是八点左右出吧，正好加班到那个点<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  holomoon  
+##### 761#       发表于 2024-9-25 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66302985&amp;ptid=2188108" target="_blank">GuDaZi 发表于 2024-9-25 17:58</a>
+
+为什么床要单独拿出来写</blockquote>
+毕竟PV里打BOSS直接掏出床来睡，本身就给观众很深印象
+

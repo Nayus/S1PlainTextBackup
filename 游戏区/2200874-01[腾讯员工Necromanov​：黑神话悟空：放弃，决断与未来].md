@@ -893,3 +893,14 @@ DLC你觉得是应该归类于持续服务型里么，我个人觉得还是买�
  ...</blockquote>
 其实真按持续引导购买会员的话，很多东西用起来都是不经意的。比如动森的联机，宝可梦中心这些其实都是。
 
+
+*****
+
+####  karastar  
+##### 69#       发表于 2024-9-26 01:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66306490&amp;ptid=2200874" target="_blank">穿越护城河 发表于 2024-9-26 00:47</a>
+
+我觉得他们很有可能是在进行了具体的古建扫描之后，按照合理的结构修改了很多东西，他2022年和《长安三万 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不就说明是现有美术资源，美术资源没有办法分割只能一大堆都放进去然后用空气墙隔开吗
+

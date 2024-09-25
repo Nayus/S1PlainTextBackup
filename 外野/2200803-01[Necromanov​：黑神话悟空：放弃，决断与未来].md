@@ -2104,3 +2104,17 @@ https://bbs.saraba1st.com/2b/thread-2198959-0-1.html
 
 有空写这种东西，还不如去写几章《暴风雨中的蝴蝶》<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jojohunter  
+##### 173#       发表于 2024-9-26 01:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66304102&amp;ptid=2200803" target="_blank">玖羽 发表于 2024-9-25 20:05</a>
+文章在这，什么神作？
+
+最后生还者2比起1代，到底做错了哪些地方？</blockquote>
+其实内裤门最烂的是拿rdr2尬吹涌现式设计
+
+—— 来自 realme RMX3820, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

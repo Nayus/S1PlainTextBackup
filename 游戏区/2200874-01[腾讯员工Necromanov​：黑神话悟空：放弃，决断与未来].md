@@ -847,3 +847,25 @@ DLC你觉得是应该归类于持续服务型里么，我个人觉得还是买�
 
 按新华社8月20日的这则报道，他应该两条路都走了：先尝试完成斗战神的最后细节，在实践过程中发现还不如用现成的扫描美术资源。
 
+
+*****
+
+####  karastar  
+##### 65#       发表于 2024-9-26 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66306414&amp;ptid=2200874" target="_blank">穿越护城河 发表于 2024-9-26 00:36</a>
+[http://www3.xinhuanet.com/politics/20240820/583b0f3d1574490bb89f22662afd16c2/c.html](http://www3.xinhuanet.com/politics/20240820/583b0f3d1574490bb89f22662afd16c2/c.html)</blockquote>
+扫描只是获得美术资源的手段，不影响先设计后填充的模式
+
+*****
+
+####  liekong  
+##### 66#       发表于 2024-9-26 00:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66306377&amp;ptid=2200874" target="_blank">穿越护城河 发表于 2024-9-26 00:30</a>
+
+我总觉得任天堂网络服务本身就是一个被忽视的持续服务，只不过很多玩家忽视了附加值（FC、SFC、N64各种ar ...</blockquote>
+马车8DX我觉得更接近买断制的原因是，他在推出DLC之前就已经大卖接近5年了，而游戏本身并没有什么更新。
+
+而以持续更新引导玩家购买联机服务的会员的话，我认为splatoon才是更合适的例子。
+

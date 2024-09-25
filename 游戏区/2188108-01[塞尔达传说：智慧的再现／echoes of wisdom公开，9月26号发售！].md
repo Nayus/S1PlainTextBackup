@@ -2948,3 +2948,11 @@ grezzo只是外包打工的，主要问题肯定是监督负责阿
 
 塞尔达抓宝可梦怪这套怎么感觉更像nec<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不能细想
 
+
+*****
+
+####  lilod  
+##### 870#       发表于 2024-9-26 00:44
+
+Boss 战很有趣，比传统2D的boss战有趣的多
+

@@ -2096,3 +2096,11 @@ https://bbs.saraba1st.com/2b/thread-2198959-0-1.html
 怪猎都不能一看就懂怎么玩么，不可思议，这稿子写的良心不会痛么，有点让人质疑他作为所谓的游戏设计师的业 ...</blockquote>
 盾斧玩家很长一段时间里，真的看不懂太刀，我是被人忽悠的盾斧开荒萌新
 
+
+*****
+
+####  红色福音  
+##### 172#       发表于 2024-9-26 00:37
+
+有空写这种东西，还不如去写几章《暴风雨中的蝴蝶》<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+

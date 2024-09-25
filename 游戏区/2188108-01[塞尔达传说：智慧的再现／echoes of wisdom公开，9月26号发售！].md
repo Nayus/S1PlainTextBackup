@@ -1756,3 +1756,183 @@ b站有一个偷跑up说他玩了十几个小时只开了三分之一的地图�
 终于熬到25号了，明天几点能玩？</blockquote>
 日服晚上11点。
 
+
+*****
+
+####  woui003woui  
+##### 745#       发表于 2024-9-25 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66296018&amp;ptid=2188108" target="_blank">heseran 发表于 2024-9-25 00:47</a>
+
+日服晚上11点。</blockquote>
+请教一下，是今晚25号23点解锁吗，还是要到26号的23点？
+
+*****
+
+####  heseran  
+##### 746#       发表于 2024-9-25 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66297474&amp;ptid=2188108" target="_blank">woui003woui 发表于 2024-9-25 09:27</a>
+请教一下，是今晚25号23点解锁吗，还是要到26号的23点？</blockquote>
+北京时间25号晚上11点
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| woui003woui| + 1||
+
+查看全部评分
+
+
+*****
+
+####  woui003woui  
+##### 747#       发表于 2024-9-25 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66297487&amp;ptid=2188108" target="_blank">heseran 发表于 2024-9-25 09:29</a>
+
+北京时间25号晚上11点</blockquote>
+感谢解答，明天上班路上可以玩了<img src="https://static.saraba1st.com/image/smiley/face2017/265.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  罗克萨斯  
+##### 748#       发表于 2024-9-25 15:47
+
+好消息，多多百亿补贴林克传说已发货！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  JOJOROY  
+##### 749#       发表于 2024-9-25 16:45
+
+法米通36
+
+ゼルダの伝説知恵　10/9/9/8
+
+・姫が主人公でもプレイ感はスピンオフではなく紛れもなくゼルダの伝説
+
+謎解きや戦闘にブレワイ以降の特徴の高い自由度を本作ならではの形で実現
+
+・自由度が高く工夫のしがいがある
+
+・近年の作品を含めシリーズを貫くゼルダらしさに溢れている
+
+・一つのパズルに対して何通りものアプローチが通用するのはやる気が掻き立てられる
+
+・物語のテンポ感はゆったりめの間の演出に準拠
+
+・いつでもベッドが取り出せすごい場所やタイミングで寝て休める自由度がいい
+
+
+*****
+
+####  天堂大法  
+##### 750#       发表于 2024-9-25 16:50
+
+《Fami通》给《塞尔达传说 智慧的再现》打出36分（10/9/9/8）。
+
+- 尽管是以塞尔达公主为主角，但游戏的感觉也并不是衍生作，而是毫无疑问的塞尔达传说
+- 在解密和战斗上拥有高自由度，这也是自从《旷野之息》以来的特色
+- 高自由度带来了很大的创意空间
+- 游戏充满了近年来系列作品一贯的风格
+- 对于同一个问题拥有多种不同的解法，激发了游玩动力
+- 故事的节奏很悠闲
+- 可以随时拿出床，在任何奇妙的地方和时间都可以睡觉
+
+本作将于9月26日发售，港服/日服数字版今晚就将解锁。
+#塞尔达传说智慧的再现#
+
+
+*****
+
+####  kuarwbwe  
+##### 751#       发表于 2024-9-25 17:04
+
+和惊奇一个分。而且分布都一样，10/9/9/8。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+
+*****
+
+####  一个陆仁贾  
+##### 752#       发表于 2024-9-25 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66301676&amp;ptid=2188108" target="_blank">罗克萨斯 发表于 2024-9-25 15:47</a>
+好消息，多多百亿补贴林克传说已发货！
+
+—— 来自 S1Fun</blockquote>
+绝了，这么快
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+
+*****
+
+####  GuDaZi  
+##### 753#       发表于 2024-9-25 17:58
+
+为什么床要单独拿出来写<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chizuru  
+##### 754#       发表于 2024-9-25 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66302324&amp;ptid=2188108" target="_blank">天堂大法 发表于 2024-9-25 16:50</a>
+
+《Fami通》给《塞尔达传说 智慧的再现》打出36分（10/9/9/8）。
+
+- 尽管是以塞尔达公主为主角，但游戏的感 ...</blockquote>
+8分缺点没提啊，是故事太悠闲吗
+
+
+*****
+
+####  库德里尔  
+##### 755#       发表于 2024-9-25 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66302985&amp;ptid=2188108" target="_blank">GuDaZi 发表于 2024-9-25 17:58</a>
+为什么床要单独拿出来写</blockquote>
+大概是在任何奇妙的时间 任何奇妙的地点 掏出一张床开始睡
+一边跑图一边睡，一边过剧情一边睡，一边打boss（？？？）一边睡……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  库德里尔  
+##### 756#       发表于 2024-9-25 18:18
+
+mc预测90.8。
+
+With the first 100 predictions lodged (from our X/FB users), the average Metascore prediction for The Legend of Zelda: Echoes of Wisdom is [90.8] metacritic.com/game/the-legen…
+Check back in a couple hours to see how close we are....
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+
+*****
+
+####  kuarwbwe  
+##### 757#       发表于 2024-9-25 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66303194&amp;ptid=2188108" target="_blank">库德里尔 发表于 2024-9-25 18:18</a>
+mc预测90.8。
+
+With the first 100 predictions lodged (from our X/FB users), the average Metascore pre ...</blockquote>
+还行，比想象的高。差不多就是沙漏和众神2那种整了一定机制创新的作品了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

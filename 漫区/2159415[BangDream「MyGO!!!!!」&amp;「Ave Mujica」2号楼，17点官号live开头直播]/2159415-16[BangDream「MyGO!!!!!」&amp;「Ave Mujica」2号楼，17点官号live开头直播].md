@@ -12648,3 +12648,109 @@ wsd的惊世智慧
 和刺的就是小场子只能看运气了，不过 ...</blockquote>
 搜了一下那个会场说才两三千个位置, 买个bd当气氛组重在参与吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 23375#       发表于 2024-9-25 11:05
+
+<img src="https://img.saraba1st.com/forum/202409/25/110446le5sdaats92ddcda.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-09-25-11-04-13-52_0b2fce7a16bf2b728d6ffa28c8d60efb.jpg</strong> (333.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-25 11:04 上传
+
+今日公开联动人选：彩彩
+
+
+*****
+
+####  NODY  
+##### 23376#       发表于 2024-9-25 11:09
+
+彩彩出来感觉基本上能确定是推子了，奶一个萝翻梅菲斯特吧
+
+*****
+
+####  前方暴雨预警  
+##### 23377#       发表于 2024-9-25 11:10
+
+这组合，花音真的不来参加impart吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 23378#       发表于 2024-9-25 11:25
+
+现在把lisa换成花音可以吗wsd，我不想抽这种联动啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 23379#       发表于 2024-9-25 11:50
+
+又賣了！代了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+怎麼又情侶裝
+
+<img src="https://img.saraba1st.com/forum/202409/25/114938phvfjcj6p7gfzv4q.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20240925-034823_1838787608232747385_photo.jpg</strong> (459.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-25 11:49 上传
+
+[https://x.com/Kanon_Takao/status/1838787608232747385](https://x.com/Kanon_Takao/status/1838787608232747385)
+
+
+*****
+
+####  ytttsuuuba  
+##### 23380#       发表于 2024-9-25 11:58
+
+代睦祥<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">体感最近这两供给很多
+
+*****
+
+####  桜庭千景  
+##### 23381#       发表于 2024-9-25 12:00
+
+弄弄和节约已经是第四次穿双子装了，基本算明示吧
+
+
+*****
+
+####  PDQ4  
+##### 23382#       发表于 2024-9-25 13:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">具体什么关系不好说，我只知道可能有大量的睦祥童年供给
+
+*****
+
+####  PDQ4  
+##### 23383#       发表于 2024-9-25 13:50
+
+薰千圣和彩千圣又要打得火热了吗，花音表示不想参与战争<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  好想看Mujica啊  
+##### 23384#       发表于 2024-9-25 14:26
+
+花音已经稳坐**了，估计活动剧情卖一下薰千圣和彩千圣，然后卡面剧情再卖花千圣，外面再怎么浪总是要回家的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 23385#       发表于 2024-9-25 14:30
+
+花音之前当过re0联动的主角，几年内应该是不会再出的
+
+而且真是推子联动的话花音确实不好凑角色，目前这几个都是有偶像演员粉丝音乐人这些要素的
+

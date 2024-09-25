@@ -357,3 +357,189 @@ AI觉醒成主母，觉得爹(阿达姆/生物人)太菜了，只有我的人造
 孽奇拔还有个强项是可以寄生机器人。奥尔科、渡鸦都是被寄生的人造人，也不知道这种到底算不算有人类DNA ...</blockquote>
 阿尔法孽奇拔确实是研究融合过程中的实验产物吧，游戏里有提到，只是看起来亚当不认为那是成功的
 
+
+*****
+
+####  医生狼多  
+##### 1742#       发表于 2024-9-25 06:56
+
+《剑星》将于《尼尔：机械纪元》展开联动，拍照模式将于年内推出。 http://t.cn/A6EbvwBq ​​​
+
+
+*****
+
+####  Andariel  
+##### 1743#       发表于 2024-9-25 07:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">金亨泰又一次抵达了他忠实的2b屁股
+
+
+*****
+
+####  mimighost  
+##### 1744#       发表于 2024-9-25 07:35
+
+不可避免，可以说stellar blade基本就是nier2的精神韩系重制版吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hkguty  
+##### 1745#       发表于 2024-9-25 07:55
+
+只能说不出所料，服装建模看起来还算比较贴合
+
+
+*****
+
+####  nagitoY  
+##### 1746#       发表于 2024-9-25 09:19
+
+是付费dlc吗？
+
+
+*****
+
+####  nagitoY  
+##### 1747#       发表于 2024-9-25 09:26
+
+完整ost好像还没上国区apple music
+
+
+*****
+
+####  rainsheep  
+##### 1748#       发表于 2024-9-25 09:32
+
+这下包饺子的醋来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  洛克萨斯  
+##### 1749#       发表于 2024-9-25 09:40
+
+<img src="https://img.saraba1st.com/forum/202409/25/093924adrdqfhadpjjfclj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (62.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-25 09:39 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这公司第二次联动尼尔2了，感觉新作也会联动的，这就是追星的最高境界么
+
+
+*****
+
+####  jacket  
+##### 1750#       发表于 2024-9-25 09:51
+
+nier2对剑星说，徒儿你学有所成，但看看为师的联动清单，你的路还远呢
+
+
+*****
+
+####  洛克萨斯  
+##### 1751#       发表于 2024-9-25 10:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这算不算2b以ps5规格上主机游戏啊，之前是ps4时代的
+
+
+*****
+
+####  naclken.  
+##### 1752#       发表于 2024-9-25 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66297774&amp;ptid=1978008" target="_blank">jacket 发表于 2024-9-25 09:51</a>
+
+nier2对剑星说，徒儿你学有所成，但看看为师的联动清单，你的路还远呢</blockquote>
+再看看MOD列表，游戏史上出现在最多游戏里的女人，可不是吹的。<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  宛若青空  
+##### 1753#       发表于 2024-9-25 10:31
+
+拍照模式看来做了大量动作和相关的功能算是值得等那么久时间了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+这次尼尔2联动也终于公开了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">EVA用2B皮肤最大的一个点是马尾完全没了，不知道星刃这个武器要放哪里了？还是改成和2B一样幻化武器出现
+
+*****
+
+####  哎哟卧槽了  
+##### 1754#       发表于 2024-9-25 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66298309&amp;ptid=1978008" target="_blank">宛若青空 发表于 2024-9-25 10:31</a>
+
+拍照模式看来做了大量动作和相关的功能算是值得等那么久时间了
+
+这次尼尔2联动也终于公开了EVA用2B皮肤最大 ...</blockquote>
+金HENTAI的奇怪细节我觉得是完全不用担心的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  UT99  
+##### 1755#       发表于 2024-9-25 10:40
+
+这联动dlc带新剧情吗
+
+
+*****
+
+####  宛若青空  
+##### 1756#       发表于 2024-9-25 11:34
+
+<blockquote>The full version of the STELLAR BLADE official OST has been released. You can listen to it on all music streaming platforms NOW ! 🎵
+
+#StellarBlade #OST #PS5</blockquote>
+完整版OST已上线各大音乐流媒体平台
+
+<img src="https://img.saraba1st.com/forum/202409/25/113359zezdvum1m4vudbzu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1517.jpeg</strong> (1.77 MB, 下载次数: 0)
+
+下载附件
+
+2024-9-25 11:33 上传
+
+
+*****
+
+####  Schwarzess  
+##### 1757#       发表于 2024-9-25 11:38
+
+这封面直接用建模好糙啊，用牢金的原画不好吗。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  爱撕衣魔刃  
+##### 1758#       发表于 2024-9-25 11:54
+
+联动尼尔也得保留标志性长发和头饰吧，
+
+不然收剑都没得……
+
+
+*****
+
+####  宛若青空  
+##### 1759#       发表于 2024-9-25 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66299300&amp;ptid=1978008" target="_blank">爱撕衣魔刃 发表于 2024-9-25 11:54</a>
+联动尼尔也得保留标志性长发和头饰吧，
+
+不然收剑都没得……</blockquote>
+看PV是没了，所以好奇会怎么改<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  医生狼多  
+##### 1760#       发表于 2024-9-25 11:58
+
+收剑学2b吧
+

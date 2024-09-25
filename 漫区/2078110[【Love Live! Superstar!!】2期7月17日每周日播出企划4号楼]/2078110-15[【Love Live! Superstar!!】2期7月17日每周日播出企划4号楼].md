@@ -1208,3 +1208,30 @@ What a wonderful radio完结还行……
 
 阿B新番宣完了么，贵企划的伟大叠buff愿景又被挫败了吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">这三期怕不是白送代理们代理都不想收。
 
+
+*****
+
+####  ads147147  
+##### 21070#       发表于 2024-9-25 11:31
+
+肉体厨，唉，兔子肉体厨，什么我也是呀。
+
+一想nhk教育台还要捏着鼻子放这个，没有来的觉得很开心。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  cat1230  
+##### 21071#       发表于 2024-9-25 13:01
+
+<blockquote>引用第21068楼ViyViy于2024-09-25 01:31发表的  :
+
+阿B新番宣完了么，贵企划的伟大叠buff愿景又被挫败了吗这三期怕不是白送代理们代理都不想收。</blockquote>
+@ViyViy
+
+星2这么烂，不买3可以理解
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+

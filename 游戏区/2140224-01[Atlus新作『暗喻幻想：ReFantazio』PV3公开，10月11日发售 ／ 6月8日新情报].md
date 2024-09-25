@@ -661,3 +661,393 @@ ps5记得定价478？接近50%off？？
 
 —— 来自 vivo V2303A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  Piano-Forest  
+##### 770#         楼主| 发表于 2024-9-25 11:54
+
+Demo上线时间
+
+Xbox：9月25日下午2点
+
+PS：9月25日下午3点
+
+Steam：9月26日0点
+<img src="https://p.sda1.dev/19/a0ea4994ddc98ad6c29f11530caa28ec/20240925_115352.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/b26d456e2a7852b34faaf16e15e0c6df/20240925_115353.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Vladimeow  
+##### 771#       发表于 2024-9-25 11:59
+
+烂是估计烂不到哪，P5那套模板可以一直套用，不思进取基本是肯定的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  医生狼多  
+##### 772#       发表于 2024-9-25 12:00
+
+晚上品鉴下
+
+*****
+
+####  罗克萨斯  
+##### 773#       发表于 2024-9-25 12:04
+
+终于肯上试玩了，这不比挥霍资金宣发有用
+
+
+*****
+
+####  c0x9z8  
+##### 774#       发表于 2024-9-25 12:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">终于有试玩了吗
+
+
+*****
+
+####  kuarwbwe  
+##### 775#       发表于 2024-9-25 13:41
+
+我肯定要开荒2d塞，回头看看楼友评价决定要不要也试玩一下了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+
+*****
+
+####  Khellendros  
+##### 776#       发表于 2024-9-25 14:59
+
+怎么序章demo都50个g
+
+
+*****
+
+####  ouyang菌  
+##### 777#       发表于 2024-9-25 15:05
+
+ps版demo倒是只要24g
+
+
+*****
+
+####  Piano-Forest  
+##### 778#         楼主| 发表于 2024-9-25 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66299299&amp;ptid=2140224" target="_blank">Piano-Forest 发表于 2024-9-25 11:54</a>
+
+Demo上线时间
+
+Xbox：9月25日下午2点</blockquote>
+存档可继承至正式版
+
+Xbox：[https://www.xbox.com/zh-hk/games ... o/9NWNDDXTZH6D/0010](https://www.xbox.com/zh-hk/games/store/refantazio/9NWNDDXTZH6D/0010)
+
+PS：[https://store.playstation.com/zh ... 00-METAPHORNATRIAL1](https://store.playstation.com/zh-hans-hk/product/UP0177-PPSA25425_00-METAPHORNATRIAL1)
+
+*****
+
+####  宛若青空  
+##### 779#       发表于 2024-9-25 15:12
+
+PSN日服的DEMO居然有中文，不知道是不是DEMO限定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  陈词与芍药  
+##### 780#       发表于 2024-9-25 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66301250&amp;ptid=2140224" target="_blank">宛若青空 发表于 2024-9-25 03:12</a>
+PSN日服的DEMO居然有中文，不知道是不是DEMO限定</blockquote>
+这次是全区，美服港服的网址后面的sku一样的
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  猫沢  
+##### 781#       发表于 2024-9-25 15:20
+
+这demo能玩5小时这么爽吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  roxassix  
+##### 782#       发表于 2024-9-25 15:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">语言不锁区？色给你怎么想开了？
+
+*****
+
+####  sekaizz  
+##### 783#       发表于 2024-9-25 15:25
+
+没有恋爱要素， 根据ATLUS惯例， 大家记得买有恋爱要素的完全版.
+
+反正我是没耐心等不了。。。。
+
+*****
+
+####  heseran  
+##### 784#       发表于 2024-9-25 15:25
+
+限制还挺多。 <blockquote>关于《暗喻幻想：ReFantazio》～序章试玩版～的视频与直播等内容的发布守则告知
+
+对于ATLUS（以下称“敝司”）在Xbox Series X|S／Windows／PlayStation®5 ／PlayStation®4／Steam®平台上的游戏《暗喻幻想：ReFantazio》～序章试玩版～，以个人使用且非营利目的为前提下，发布有关游戏视频（包括游戏内图像以及背景音乐，以下称“游戏视频”）、直播、图像以及音频时，需遵守以下准则。
+
+【可发布区段】
+
+所有区段内容皆可发布
+
+为了让更多玩家能享受本作的乐趣，当您发布含有剧透的内容时，请标注“内有剧透”等提示。真诚感谢您的理解和支持。
+
+【关于发布方式】
+
+１）游戏视频可发布在下列场所。
+
+·个人使用且非营利目的的博客、主页、社交媒体
+
+·视频网站
+
+２）发布含有剧透的内容时，为照顾到其他玩家，请标注“内有剧透”等提示。
+
+３)严禁在发售日前发布本作的视频或进行直播等。
+
+【关于版权标记】
+
+公开或发布本作内容时，须清楚标明下列信息。
+
+©ATLUS ©SEGA
+
+※若无法使用符号“©”，可使用(C)作为代替。
+
+【注意事项】
+
+1）发布游戏视频时，请勿发布包含您自身的游戏直播画面或评论等附加要素的内容。请勿单独上传本作背景音乐等音频数据，或以收听音乐为主要目的的内容。
+
+在不违反本守则的前提下，可对游戏视频进行二次使用（例如发布经过剪辑的视频等）。
+
+2）请勿在需付费浏览的网站或服务上发布内容，此类行为将被视为商业行为。但利用在线服务提供的发布视频和直播功能（例如YouTube的合作伙伴计划等）所产生附加收益，将不被视为以营利为目的。
+
+3）请勿诽谤或中伤特定玩家或任何第三方。
+
+4）请勿发表违反法规、不恰当或违反公序良俗的内容。
+
+违反法规、不恰当或违反公序良俗的内容”包含以下内容。
+
+·阻碍敝司商品及服务正常运作，或有损其安全性的行为
+
+·作弊、破解、非法访问、规避技术性限制手段、非法改造或为实现上述行为的物品、工具以及服务
+
+5）无论出于何种理由，在您收到敝司的要求后，请即刻停止公开游戏视频。此外，对于敝司认为不恰当的视频以及直播内容，敝司保留删除、停止其发布的权利。针对相关措施的咨询，敝司可能视情况不予回应，敬请谅解。
+
+6）对于游戏视频的发布行为，敝司不对其不侵害第三方的权利等作任何保证。此外，对于一切因使用有关游戏视频而造成的损失及与第三方之间的纠纷，敝司也概不负责。</blockquote>
+
+*****
+
+####  walfeds  
+##### 785#       发表于 2024-9-25 15:27
+
+这不是你a防剧透惯例吗……
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  宛若青空  
+##### 786#       发表于 2024-9-25 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66301337&amp;ptid=2140224" target="_blank">陈词与芍药 发表于 2024-9-25 15:19</a>
+
+这次是全区，美服港服的网址后面的sku一样的
+
+论坛助手,iPad</blockquote>
+那太好了，日服预购的有中文就用中文玩了
+
+难得阿特拉斯也开始跟着世嘉开窍了，上一作真女VV还是固执的分区
+
+
+*****
+
+####  卡拉德利姆  
+##### 787#       发表于 2024-9-25 15:29
+
+那要看sega能在国内平台打版权炮不 不然只是一纸空文
+
+*****
+
+####  出轨的三头龙  
+##### 788#       发表于 2024-9-25 15:29
+
+<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">等出了下个3dm版玩玩，多出来的钱我已经在一份p5两份p5r还有真女vv跟p3r的降价差价里付过了。
+
+*****
+
+####  石中剑二  
+##### 789#       发表于 2024-9-25 15:29
+
+下个demo看看战斗ui我能不能接受，看片子里觉得战斗ui实在太闪太晃眼，直接影响购买
+
+
+*****
+
+####  Dreammask  
+##### 790#       发表于 2024-9-25 15:32
+
+感觉SMTVV的港版独占中文是NS的实体发行策略惹的祸
+
+上次P系列全家桶就是只有P5R这样，P3P P4G都是全区中文
+
+
+*****
+
+####  johnnycz  
+##### 791#       发表于 2024-9-25 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66301472&amp;ptid=2140224" target="_blank">出轨的三头龙 发表于 2024-9-25 15:29</a>
+
+等出了下个3dm版玩玩，多出来的钱我已经在一份p5两份p5r还有真女vv跟p3r的降价差价里付过了。 ...</blockquote>
+看到steam标注有D加密的
+
+*****
+
+####  Khellendros  
+##### 792#       发表于 2024-9-25 16:14
+
+这画面真是满屏游戏性啊，锯齿多的我以为我在ns上玩呢……
+
+
+*****
+
+####  heseran  
+##### 793#       发表于 2024-9-25 16:58
+
+Fantasy is dead<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹
+
+
+*****
+
+####  heseran  
+##### 794#       发表于 2024-9-25 17:02
+
+男主女主的立绘和动画形象比游戏里的建模顺眼多了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  抽烟的猴  
+##### 795#       发表于 2024-9-25 17:03
+
+认真的吗，男主立绘那个嘴看一次难受一次
+
+
+*****
+
+####  黑修士  
+##### 796#       发表于 2024-9-25 17:09
+
+感觉UI色块过于活跃了，画面闪烁不太适应
+
+
+*****
+
+####  heseran  
+##### 797#       发表于 2024-9-25 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66302478&amp;ptid=2140224" target="_blank">抽烟的猴 发表于 2024-9-25 17:03</a>
+认真的吗，男主立绘那个嘴看一次难受一次</blockquote>
+这有什么认真不认真的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">建模的脸看一次难受一次。
+
+
+*****
+
+####  空气先生  
+##### 798#       发表于 2024-9-25 17:43
+
+PC微软商店可以下试玩版了，59G
+
+
+*****
+
+####  忘却旋律  
+##### 799#       发表于 2024-9-25 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66301976&amp;ptid=2140224" target="_blank">Khellendros 发表于 2024-9-25 16:14</a>
+
+这画面真是满屏游戏性啊，锯齿多的我以为我在ns上玩呢……</blockquote>
+上次放出画面的时候 看到角色建模  让我感受到了 NS 火纹风花雪月的 美 这建模太感人了
+
+*****
+
+####  windtrack_qh  
+##### 800#       发表于 2024-9-25 17:50
+
+地图上砍杂鱼的手感比轨迹差远了
+
+
+*****
+
+####  取名真是难  
+##### 801#       发表于 2024-9-25 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66302866&amp;ptid=2140224" target="_blank">空气先生 发表于 2024-9-25 17:43</a>
+
+PC微软商店可以下试玩版了，59G</blockquote>
+这游戏微软存档可以换到steam吗
+
+
+*****
+
+####  空气先生  
+##### 802#       发表于 2024-9-25 17:56
+
+<blockquote>取名真是难 发表于 2024-9-25 17:51
+这游戏微软存档可以换到steam吗</blockquote>
+不能保证（）
+
+
+*****
+
+####  黑修士  
+##### 803#       发表于 2024-9-25 18:08
+
+目前来看立绘质量不错的，挺生动
+
+
+*****
+
+####  杨千fa单推人  
+##### 804#       发表于 2024-9-25 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66302931&amp;ptid=2140224" target="_blank">取名真是难 发表于 2024-9-25 17:51</a>
+
+这游戏微软存档可以换到steam吗</blockquote>
+大部分游戏不行吧应该，但是会有些游戏会有存档转换工具，把xgp存档转换出来
+
+比如说[https://github.com/Z1ni/XGP-save-extractor](https://github.com/Z1ni/XGP-save-extractor)
+
+
+*****
+
+####  无辄辄  
+##### 805#       发表于 2024-9-25 18:16
+
+阿特拉斯是怎么做到画面又乱又糊的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Khellendros  
+##### 806#       发表于 2024-9-25 18:22
+
+困难难度玩了会儿调回普通了，这战斗系统太便秘了，有的精英怪要是没打出昏厥进回合制必死无疑，还要被垃圾时间折磨
+

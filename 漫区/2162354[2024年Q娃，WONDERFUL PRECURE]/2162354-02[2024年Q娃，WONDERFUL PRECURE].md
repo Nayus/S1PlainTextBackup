@@ -78,3 +78,61 @@
 
 2024-9-22 17:26 上传
 
+
+*****
+
+####  pokemon最爱  
+##### 2234#       发表于 2024-9-25 16:57
+
+速报，下集不是搞笑回，兔山哥他勇敢的A了上去！
+
+悲报，彩羽小姐直接被一发干懵，告白的结果要等到下下集了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  それは奇跡です  
+##### 2235#       发表于 2024-9-25 17:10
+
+啊这，居然下下集才有结果嘛，这样得等的难受了
+
+
+*****
+
+####  1096beam  
+##### 2236#       发表于 2024-9-25 17:30
+
+阿悟你来真的啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  深渊魔魂  
+##### 2237#       发表于 2024-9-25 17:50
+
+<img src="https://img.saraba1st.com/forum/202409/25/175000nirh8k0zw4exicbb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1691.jpeg</strong> (304.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-25 17:50 上传
+
+
+*****
+
+####  wly  
+##### 2238#       发表于 2024-9-25 18:05
+
+以为是一话搞笑回，结果你是认真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  maoyou  
+##### 2239#       发表于 2024-9-25 18:10
+
+哎呦我去
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

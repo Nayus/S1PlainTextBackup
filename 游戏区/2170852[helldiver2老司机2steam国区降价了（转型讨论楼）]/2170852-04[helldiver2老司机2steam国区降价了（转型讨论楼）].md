@@ -2236,3 +2236,44 @@ We are looking at resolving this asap.
 而且最搞笑的是，同网络下steamdeck用的好 ...</blockquote>
 PC网络设置关ipv6试试
 
+
+*****
+
+####  风萧飒  
+##### 5456#       发表于 2024-9-25 00:50
+
+公会好像快出了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  FLZB  
+##### 5457#       发表于 2024-9-25 01:51
+
+箭头偷偷暗改不敢写日志里只敢发discord，砍了重机枪耐久伤害、磁轨蓄力穿甲等级、AT地雷伤害，加强了火焰dot耐久伤害和空降仓冲击伤害<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jy000129  
+##### 5458#       发表于 2024-9-25 08:34
+
+真是畜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">装不了几天就现原形了
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  Launce  
+##### 5459#       发表于 2024-9-25 09:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">把我看乐了
+
+<img src="https://img.saraba1st.com/forum/202409/25/090811aqj99ihl3vdvdnva.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (53.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-25 09:08 上传
+

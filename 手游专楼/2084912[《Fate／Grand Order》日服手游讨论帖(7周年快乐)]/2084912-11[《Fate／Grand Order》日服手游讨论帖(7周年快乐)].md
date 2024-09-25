@@ -275,3 +275,40 @@ YLS:再嘈下次除了強制前場外，再加不能換人(限制使用劇情衣
 
 我没注意,抽了10万出了3宝,等up补满。
 
+
+*****
+
+####  DARKGRAY  
+##### 14824#       发表于 2024-9-24 23:57
+
+后篇开的时候就说了的，所以压根没抽，甚至没喂，看看到时会不会再给个双倍经验<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  v22325  
+##### 14825#       发表于 2024-9-25 02:02
+
+ 本帖最后由 v22325 于 2024-9-25 02:08 编辑 
+
+我没注意,抽了10万出了3宝,等up补满。
+
+fe系列我就玩到阿提拉那作,就觉得这无双世界怪怪的没前两作的风格了,出夏露露那作就没玩。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我还是喜欢ccc樱结局回到地球……无印许愿和ccc从者结局和后面总感觉接不上怪怪的……大王虽然蛮好的但总觉得有点画蛇添足。
+
+都这么多年了,剧情还真记不住多少了。
+
+*****
+
+####  森兰丸  
+##### 14826#       发表于 2024-9-25 05:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66296207&amp;ptid=2084912" target="_blank">v22325 发表于 2024-9-25 02:02</a>
+
+我没注意,抽了10万出了3宝,等up补满。
+
+fe系列我就玩到阿提拉那作,就觉得这无双世界怪怪的没前两作的风格了, ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">FE每作都是独立的世界线....前后根本接不上
+
+所以我还挺好奇废狗这个所有世界线都经历了的白野到底是个什么样的存在
+

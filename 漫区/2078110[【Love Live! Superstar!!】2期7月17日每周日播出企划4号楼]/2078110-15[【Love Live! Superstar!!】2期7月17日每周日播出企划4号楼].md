@@ -1251,3 +1251,11 @@ What a wonderful radio完结还行……
 
 b买星二也都隔几个月了，可能星三也这个模式吧<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 21074#       发表于 2024-9-25 22:03
+
+上海场可能会翻唱前辈的歌，广州站是专场应该就没这个待遇了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

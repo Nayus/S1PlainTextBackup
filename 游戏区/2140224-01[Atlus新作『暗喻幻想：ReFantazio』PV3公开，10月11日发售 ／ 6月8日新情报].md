@@ -1301,3 +1301,16 @@ ps4pro 1080p，60不稳定的样子…感觉很一般<img src="https://static.sa
 p系列游戏内的动画一直都这个样子吧，一副接近崩坏边缘的感觉</blockquote>
 5无印由IG负责的动画质量都不错，原版3的动画部分虽然便宜不过审美在线，其他的只能说确实没眼看
 
+
+*****
+
+####  Asukalangley33  
+##### 833#       发表于 2024-9-25 22:01
+
+公式化中世纪奇幻风真的看着让人昏迷<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+副岛成记都拯救不了这个题材
+
+这个枯草色的滤镜也很让人疑惑
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+

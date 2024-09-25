@@ -2551,3 +2551,44 @@ OC分还涨了一分<img src="https://static.saraba1st.com/image/smiley/face2017
 你自己去看看b站上梦见岛的视频下面的玩家评论，纷纷表示这游戏机制古早，指引稀烂，迷宫阴间，压根不是 ...</blockquote>
 我看的泥潭偷跑楼，不是b站<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  s32244153  
+##### 825#       发表于 2024-9-25 21:57
+
+要难度的话后续搞个大师模式DLC或条件限定模式就行了吧
+
+比如限定记录数量或使用次数、禁用召唤怪物、某些迷宫禁用特定道具之类的
+
+然后官方自己出几个鬼畜极限迷宫...
+
+*****
+
+####  woui003woui  
+##### 826#       发表于 2024-9-25 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66305073&amp;ptid=2188108" target="_blank">墨染白泉 发表于 2024-9-25 21:47</a>
+
+我看的泥潭偷跑楼，不是b站</blockquote>
+这哥们玩龙信2四个小时给“欧美大罐头”判死刑的
+
+哦，刚还在隔壁楼表示NTT这世代把家底败光<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  苍蓝之枪  
+##### 827#       发表于 2024-9-25 22:00
+
+谈迷宫设计的话，对我来说还是得看隔了足够久之后还能有多少印象，首先帽子由于通关次数过多必须禁赛
+
+其他的2D赛应该都没有2遍以上的
+
+沙漏的海神祠，汽笛的中央塔，但是这俩是负面印象
+
+梦见岛的大鹫塔，众神1的暗神殿，众神2的冰塔，都是还印象深刻的
+
+初代时空大地是一个都不记得了，一是画面实在不太行二是玩得也比较粗糙
+
+看看这作有没有能多年后还能记起来的迷宫
+

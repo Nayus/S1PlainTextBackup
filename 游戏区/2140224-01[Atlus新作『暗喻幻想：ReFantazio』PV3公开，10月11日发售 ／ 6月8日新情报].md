@@ -1630,3 +1630,27 @@ steam也有58g<img src="https://static.saraba1st.com/image/smiley/face2017/029.p
 
 想了想该不会是Princess Principal同款诡计吧<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  潘多拉  
+##### 865#       发表于 2024-9-26 00:30
+
+本来卖相就不咋滴,demo一出,看反馈是差评如潮了
+
+*****
+
+####  suzakushi  
+##### 866#       发表于 2024-9-26 00:31
+
+目前来看所有人都可以换任意阿基态，那角色特色体现在哪，玩到后面就固定阿基态选几个顺眼角色上场？哦对，好像也没有顺眼的角色来的。
+
+—— 来自 Sony XQ-AT52, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  新世界的派蒙  
+##### 867#       发表于 2024-9-26 00:34
+
+战斗太墨迹了，换到隔壁界轨，如沐春风
+

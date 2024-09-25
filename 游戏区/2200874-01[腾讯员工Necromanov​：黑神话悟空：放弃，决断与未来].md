@@ -787,3 +787,63 @@ DLC你觉得是应该归类于持续服务型里么，我个人觉得还是买�
 
 我觉得老任最持续服务型的游戏应该是splatoon，虽然也是买断制的。
 
+
+*****
+
+####  穿越护城河  
+##### 60#       发表于 2024-9-26 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66306320&amp;ptid=2200874" target="_blank">liekong 发表于 2024-9-26 00:21</a>
+
+DLC你觉得是应该归类于持续服务型里么，我个人觉得还是买断制的一部分。
+
+我觉得老任最持续服务型的游戏应 ...</blockquote>
+按更新内容让玩家持续消费的特征看的话，季票是温柔一点的，总比战令那种强
+
+*****
+
+####  含恨未了切莫死  
+##### 61#       发表于 2024-9-26 00:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66304503&amp;ptid=2200874" target="_blank">moeblack 发表于 2024-9-25 20:47</a>
+
+我看到外也那么多+鹅的，真的没有搞懂为什么这个批文章能吸引到这么多人。</blockquote>
+可能是提供了足够的情绪价值<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  穿越护城河  
+##### 62#       发表于 2024-9-26 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66306320&amp;ptid=2200874" target="_blank">liekong 发表于 2024-9-26 00:21</a>
+
+DLC你觉得是应该归类于持续服务型里么，我个人觉得还是买断制的一部分。
+
+我觉得老任最持续服务型的游戏应 ...</blockquote>
+我总觉得任天堂网络服务本身就是一个被忽视的持续服务，只不过很多玩家忽视了附加值（FC、SFC、N64各种archive），只是习惯联网对战或者上eshop，无论如何，他所有的东西都是在这个基础上展开的。
+
+*****
+
+####  sikeino  
+##### 63#       发表于 2024-9-26 00:32
+
+内裤门不更新《暴风雨中的蝴蝶》了吗？
+
+*****
+
+####  穿越护城河  
+##### 64#       发表于 2024-9-26 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66305304&amp;ptid=2200874" target="_blank">汪达 发表于 2024-9-25 22:15</a>
+
+一种常见的设计流程是关卡设计师先用简单的多边形搭建关卡，各种测试敲定后，再由美术根据背景对关卡进行 ...</blockquote>
+[http://www3.xinhuanet.com/politi ... 22662afd16c2/c.html](http://www3.xinhuanet.com/politics/20240820/583b0f3d1574490bb89f22662afd16c2/c.html)
+ <blockquote>而对之前参与过《西游记》题材游戏创作的美术总监杨奇来说，此次“重走西游路”，更像是对心中那个不完美前作的一次救赎。在项目之初，他打算手绘游戏内所有重要场景。
+
+  “后来发现这样不行，成本太高。”杨奇坦诚道，游戏中最终呈现出各地的历史建筑和雕塑——这些当下最被玩家们津津乐道的内容，其实是考虑到成本之后的折衷尝试。
+
+  到全国各地扫描历史建筑，再经过建模等处理并上传到游戏中，节省了不少时间。这种呈现方式的效果也出奇的好，更吸引不少网友专门科普背后的文化背景。</blockquote>
+
+按新华社8月20日的这则报道，他应该两条路都走了：先尝试完成斗战神的最后细节，在实践过程中发现还不如用现成的扫描美术资源。
+

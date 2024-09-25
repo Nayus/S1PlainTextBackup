@@ -1947,3 +1947,11 @@ With the first 100 predictions lodged (from our X/FB users), the average Metasco
 8分缺点没提啊，是故事太悠闲吗</blockquote>
 可能就是单纯不合口味吧，媒体不经常有那种说了游戏一堆优点最后给了个低分的
 
+
+*****
+
+####  king520kyo  
+##### 759#       发表于 2024-9-25 19:01
+
+刚把老任上传的肉村和课长他们玩林克传说的视频看了，确实自由。拿了蜘蛛就能满地图乱跑了。就等晚上数字版解锁了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

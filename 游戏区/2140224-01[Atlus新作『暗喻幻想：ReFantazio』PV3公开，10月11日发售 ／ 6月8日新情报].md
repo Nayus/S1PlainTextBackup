@@ -1314,3 +1314,51 @@ p系列游戏内的动画一直都这个样子吧，一副接近崩坏边缘的�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
 
+
+*****
+
+####  ChengChung  
+##### 834#       发表于 2024-9-25 22:11
+
+没人吐槽ps版试玩20+G，xbox 50+G么
+
+*****
+
+####  UnrealApartheid  
+##### 835#       发表于 2024-9-25 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66305143&amp;ptid=2140224" target="_blank">Redimercia 发表于 2024-09-25 21:56:01</a>
+5无印由IG负责的动画质量都不错，原版3的动画部分虽然便宜不过审美在线，其他的只能说确实没眼看 ...</blockquote>先说一下负责过场动画制作的公司分别是：
+
+P3：Point Pictures（无印、Fes、Portable）、Wit Studio（Reload 本体）、100studio（Reload Episode Aegis）
+
+P4：A-1 Pictures（无印）、Madhouse（Golden OP动画）、云雀工作室（Golden 过场动画）、Bones（Dancing All Night）
+
+P5：Production I.G（无印）、MAPPA（Royal OP动画）、Domerica（Royal 过场动画、Strikers）、Lerche（Tactica）
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  猫沢  
+##### 836#       发表于 2024-9-25 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66305271&amp;ptid=2140224" target="_blank">UnrealApartheid 发表于 2024-9-25 22:12</a>
+先说一下负责过场动画制作的公司分别是：
+
+P3：Point Pictures（无印、Fes、Portable）、Wit Studio（Reloa ...</blockquote>
+metaphor是哪个
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  UnrealApartheid  
+##### 837#       发表于 2024-9-25 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66305309&amp;ptid=2140224" target="_blank">猫沢 发表于 2024-09-25 22:15:49</a>
+metaphor是哪个</blockquote>制作人员名单开不了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -606,3 +606,39 @@ BOSS战中的互动叙事是《黑神话悟空》中效果最好的设计之一�
 这玩意儿有点像投资忽悠人的说辞了，倒果为因</blockquote>
 他这不是忽悠投资人了，是投资人在说自己看重的趋势<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FanKiE  
+##### 45#       发表于 2024-9-25 22:06
+
+ 本帖最后由 FanKiE 于 2024-9-25 22:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66305183&amp;ptid=2200874" target="_blank">陛下欲反邪 发表于 2024-9-25 22:01</a>
+商业成功说明决策正确这事和NBA的数据党是一样的，数据肯定能说明什么，但如果你不能保证你的数据足够完备 ...</blockquote>
+从阿龟打爆高阶数据的那一刻起，这几个破数字就实实在在地只剩下参考价值了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过基础数据总还是有用的，也都实实在在地进到冯老师的口袋哩
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  冰风血羽  
+##### 46#       发表于 2024-9-25 22:11
+
+稿费按字算钱的嘛
+
+
+*****
+
+####  汪达  
+##### 47#       发表于 2024-9-25 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66305129&amp;ptid=2200874" target="_blank">玖羽 发表于 2024-9-25 21:53</a>
+
+问题是现在的地图规模已经是缩减过的了，空气墙后面还有那么多场景，还要怎么缩减 ...</blockquote>
+一种常见的设计流程是关卡设计师先用简单的多边形搭建关卡，各种测试敲定后，再由美术根据背景对关卡进行修饰，自然不会出现无法通行的地方是空气墙的状况
+
+美术优先的话，先把场景先做出来了，然后发现太大了，没有那么多奖励和战斗支撑这么大关卡，所以回头用空气墙把一些做好了的可以探索的场景草草地封上了
+
+这两种不同的决策会导致地图规模方面出现多少差异，只能是都试过的资深开发者能得出来的，不是说你看到用第二种的公司成功了，就觉得第二种设计方法真的天才，因为真正决定其商业成功的关键，很可能跟这个关卡设计的决策关系不大
+

@@ -1135,3 +1135,21 @@ demo玩了1小时多
 
 玩得眼疼<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑修士  
+##### 817#       发表于 2024-9-25 20:50
+
+国王、路易都是双角族，双角和长耳是主流民族，其他民族外形上也各有特异之处
+
+到是王子看起来和主角一样，没啥人外特征，感觉会有什么伏笔
+
+
+*****
+
+####  星野航  
+##### 818#       发表于 2024-9-25 20:52
+
+换成普通，还能当异世界p打，这演出什么的一点进步都没有啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

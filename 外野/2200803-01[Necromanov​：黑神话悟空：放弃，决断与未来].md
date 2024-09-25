@@ -2149,3 +2149,14 @@ https://bbs.saraba1st.com/2b/thread-2198959-0-1.html
 
 虽然具体观点有可取之处，但这个宏大叙事为主导的调调则大可不必，搞得跟游戏国国师似的
 
+
+*****
+
+####  椎名观月  
+##### 176#       发表于 2024-9-26 03:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66298829&amp;ptid=2200803" target="_blank">洛克萨斯 发表于 2024-9-25 11:14</a>
+
+至少抄家伙砍/射怪这个玩法不难理解啊，按键也不复杂，拿入门来说，村任务那些不至于说你要精通武器全技 ...</blockquote>
+我平均300小时才敢说自己勉强会玩某个武器，还不敢说精通了，因为一看视频全是我不会用的套路还都贼强<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -2273,3 +2273,40 @@ vgc给跟猩冥特攻一个分，明显没塞钱使脸色的<img src="https://st
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  糖然君  
+##### 797#       发表于 2024-9-25 20:36
+
+vgc过分了吧，ign gs双9现在总分才85<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  恋妖壶  
+##### 798#       发表于 2024-9-25 20:36
+
+同为两大媒体双9的俩游戏，MC分差了快10分，233
+
+*****
+
+####  heseran  
+##### 799#       发表于 2024-9-25 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66304384&amp;ptid=2188108" target="_blank">库德里尔 发表于 2024-9-25 20:35</a>
+如果有掉帧问题，那应该集中出现在海拉鲁大地图上。
+跑神庙、室内小场景的时候渲染的少，大概不会很掉帧。
+ ...</blockquote>
+可能跟织梦岛一样在大地图切图的时候会掉吧
+
+*****
+
+####  大煜治水  
+##### 800#       发表于 2024-9-25 20:38
+
+ 本帖最后由 大煜治水 于 2024-9-25 20:39 编辑 
+
+楼里某几个人深恶痛绝的石榴也是双9，可没人说稳
+
+还有玩盗版模拟器的也好意思来这楼里跳，幽默
+

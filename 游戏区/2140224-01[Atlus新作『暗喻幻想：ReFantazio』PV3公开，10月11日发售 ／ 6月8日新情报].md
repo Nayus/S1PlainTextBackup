@@ -1654,3 +1654,15 @@ steam也有58g<img src="https://static.saraba1st.com/image/smiley/face2017/029.p
 
 战斗太墨迹了，换到隔壁界轨，如沐春风
 
+
+*****
+
+####  猫沢  
+##### 868#       发表于 2024-9-26 00:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66305001&amp;ptid=2140224" target="_blank">check 发表于 2024-9-25 21:41</a>
+这建模纹理是不是有摩尔条纹，好刺眼好难受啊。</blockquote>
+steam把渲染比例拉到200%少了好多，看起来顺眼多了<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

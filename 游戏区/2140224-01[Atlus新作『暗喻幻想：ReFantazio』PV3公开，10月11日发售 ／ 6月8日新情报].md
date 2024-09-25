@@ -1744,3 +1744,11 @@ sd根本扛不住，720p50%渲染大地图稳不了40，太瞎眼</blockquote>
 
 演出全靠UI特效的想法真是神金。
 
+
+*****
+
+####  八汰乌  
+##### 876#       发表于 2024-9-26 03:00
+
+古谷彻换成子安武人，原来感觉那个角色说话很有逼格，现在语气变温柔了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

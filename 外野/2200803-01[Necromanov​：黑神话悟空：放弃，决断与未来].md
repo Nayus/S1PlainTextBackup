@@ -2014,3 +2014,16 @@ https://bbs.saraba1st.com/2b/thread-2198959-0-1.html
 [https://zhuanlan.zhihu.com/p/158394137](https://zhuanlan.zhihu.com/p/158394137)
  <blockquote>然而，当你将2代和1代放在一起比较时，除了画面和制作水平的进步之外，剩下一切一代的优点似乎都被遗忘，甚至被刻意破坏了。疲惫的团队、屡次修改的大方向、大规模的人事变动和肆意妄为的核心团队带来了悲剧，这一切让TLOU2变成了一部虽然投入巨大、细节完成度极高，却充满了矛盾和背离的作品。</blockquote><blockquote>不。我必须说，TLOU2整体是糟糕的，是顽皮狗设计、管理乃至用人上出了大问题才导致的结果。这种用政治正确掩盖项目错误的做法是错的，尼尔·德鲁克曼在人品上很可能是可疑的。游戏工作室来之不易的高度自治权，不应该用来给这样的人玩弄权术和狡诈。</blockquote>
 
+
+*****
+
+####  zxdrtyhn  
+##### 166#       发表于 2024-9-25 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66302460&amp;ptid=2200803" target="_blank">我就再氪一单 发表于 2024-9-25 17:02</a>
+
+内裤门现在评测还有权威性吗我记得欢乐高尔夫2他也是觉得这是一神作吧</blockquote>
+你不如说除了高尔夫2，还有啥导致他塌房
+
+喜欢混知乎算之一么
+

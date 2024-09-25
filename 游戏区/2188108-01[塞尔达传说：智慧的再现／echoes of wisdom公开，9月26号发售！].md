@@ -2221,3 +2221,55 @@ vgc6分过分了。
 
 vgc作为大媒体，五星给三星有失公正吧。eurogamer五星给四星这样比较合适。现在还五星给分的媒体都该改一改。
 
+
+*****
+
+####  医生狼多  
+##### 792#         楼主| 发表于 2024-9-25 20:28
+
+vgc好像是老害不满的意思，五分制变化太大了这两权重又高
+
+*****
+
+####  我在干什么啊  
+##### 793#       发表于 2024-9-25 20:29
+
+<blockquote>kuarwbwe 发表于 2024-9-25 20:18
+三角2，三角那会还没有mc吧。
+
+—— 来自 鹅球 v3.1.91-alpha</blockquote>
+gba版有，不过gba版是和四支剑合计算一个游戏的，mc有95
+
+*****
+
+####  wondor1111  
+##### 794#       发表于 2024-9-25 20:30
+
+vgc给跟猩冥特攻一个分，明显没塞钱使脸色的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  伪宅ACer  
+##### 795#       发表于 2024-9-25 20:32
+
+<img src="https://img.saraba1st.com/forum/202409/25/203221jcppmjpenczabopb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1098.jpeg</strong> (31.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-25 20:32 上传
+
+不是 怎么说智慧再现也不至于跟这玩意一个分吧
+
+*****
+
+####  库德里尔  
+##### 796#       发表于 2024-9-25 20:35
+
+如果有掉帧问题，那应该集中出现在海拉鲁大地图上。
+跑神庙、室内小场景的时候渲染的少，大概不会很掉帧。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

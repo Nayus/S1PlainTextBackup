@@ -709,3 +709,34 @@ BOSS战中的互动叙事是《黑神话悟空》中效果最好的设计之一�
 
 米咱们暂且不提，塞博艾坚特已经在2023年9月后成为反面教员（今年全靠学园爱马仕拯救），Gerena自研项目勉强能看，Scopely反而是换皮山寨成事的好例子（Stumble Guys和糖豆人，大富翁go和coin master）
 
+
+*****
+
+####  liekong  
+##### 55#       发表于 2024-9-26 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66305925&amp;ptid=2200874" target="_blank">穿越护城河 发表于 2024-9-25 23:32</a>
+
+关键那几个例子也不是很合适阿，cornord还得是因为不好玩，而任天堂有个现成的GAAS的例子，就是带季票的 ...</blockquote>
+马车8就是他说的一个巨大成功带来后续的IP系列作品收益的例子阿
+
+cy之前的成功是因为爆款，现在的颓势是无法持续创新，
+
+至于Scopely我就不太了解了
+
+
+*****
+
+####  穿越护城河  
+##### 56#       发表于 2024-9-26 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66306184&amp;ptid=2200874" target="_blank">liekong 发表于 2024-9-26 00:07</a>
+
+马车8就是他说的一个巨大成功带来后续的IP系列作品收益的例子阿
+
+cy之前的成功是因为爆款，现在的颓势是无 ...</blockquote><blockquote>只有排名第五的任天堂一家的收入主要来自买断制单机游戏：马里奥赛车、宝可梦、王国之泪、动物之森等游戏构成了任天堂接近一半的收入（另外一半来自硬件销售和商店分成）。</blockquote>
+
+马车已经被他打入单机买断了
+
+至于cy的成功，难听一点可能还是换皮而不是爆款（母猪链接和刀塔传奇，马娘是简化版的实况棒球）
+

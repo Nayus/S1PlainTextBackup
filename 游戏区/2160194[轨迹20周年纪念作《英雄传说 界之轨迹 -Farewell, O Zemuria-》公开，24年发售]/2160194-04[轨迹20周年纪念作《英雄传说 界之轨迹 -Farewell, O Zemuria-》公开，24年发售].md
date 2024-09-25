@@ -14797,3 +14797,41 @@ how much ZSBD</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  neosphere  
+##### 5911#       发表于 2024-9-26 00:09
+
+ 本帖最后由 neosphere 于 2024-9-26 00:10 编辑 
+
+这里没剧透吧，偷偷进来发自内心的问一句，季票670？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+没有豪华版的意思就是更好地割韭菜吗？
+
+
+*****
+
+####  jacket  
+##### 5912#       发表于 2024-9-26 00:10
+
+黑兔这身材，仔细看有点意思<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一夜秋风袭锦城  
+##### 5913#       发表于 2024-9-26 00:14
+
+季票670，谁爱尽孝谁尽孝吧，不伺候了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2210132C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  kangkangsama  
+##### 5914#       发表于 2024-9-26 00:15
+
+开玩
+
+奖杯看着就好肝啊
+

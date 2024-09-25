@@ -1622,3 +1622,11 @@ steam也有58g<img src="https://static.saraba1st.com/image/smiley/face2017/029.p
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  jajajzz  
+##### 864#       发表于 2024-9-26 00:10
+
+想了想该不会是Princess Principal同款诡计吧<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+

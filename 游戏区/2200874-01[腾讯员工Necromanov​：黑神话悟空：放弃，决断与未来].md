@@ -904,3 +904,16 @@ DLC你觉得是应该归类于持续服务型里么，我个人觉得还是买�
 我觉得他们很有可能是在进行了具体的古建扫描之后，按照合理的结构修改了很多东西，他2022年和《长安三万 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不就说明是现有美术资源，美术资源没有办法分割只能一大堆都放进去然后用空气墙隔开吗
 
+
+*****
+
+####  穿越护城河  
+##### 70#       发表于 2024-9-26 01:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66306632&amp;ptid=2200874" target="_blank">karastar 发表于 2024-9-26 01:13</a>
+
+这不就说明是现有美术资源，美术资源没有办法分割只能一大堆都放进去然后用空气墙隔开吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只能说多亏老祖宗底子好
+
+有这个核心内容真就解决了不少问题
+

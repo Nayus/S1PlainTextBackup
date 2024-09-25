@@ -1666,3 +1666,20 @@ steam把渲染比例拉到200%少了好多，看起来顺眼多了<img src="http
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  寇马可  
+##### 869#       发表于 2024-9-26 01:34
+
+ui太花了看着眼睛疼，我觉得这东西不是越花里胡哨越好<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AeonsTorn  
+##### 870#       发表于 2024-9-26 01:37
+
+黑屏和播片太多了点，其他我倒没有太大意见
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.89
+

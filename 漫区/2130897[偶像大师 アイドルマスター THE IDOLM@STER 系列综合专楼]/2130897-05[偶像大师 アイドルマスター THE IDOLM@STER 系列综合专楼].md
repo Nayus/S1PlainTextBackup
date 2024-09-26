@@ -1219,3 +1219,11 @@ SSR_シアワセなイタズラ_ver.SH_箱崎星梨花.png
 
 wiki资料加的真快  
 
+
+*****
+
+####  magicc  
+##### 6433#       发表于 2024-9-26 20:11
+
+sfp以后好像不用培育就能直接打歌了,这不就变成普通的音游了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

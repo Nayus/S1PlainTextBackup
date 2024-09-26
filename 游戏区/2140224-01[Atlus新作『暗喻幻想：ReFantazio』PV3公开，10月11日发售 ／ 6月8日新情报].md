@@ -2574,3 +2574,19 @@ ui感觉有点用力过猛了，尤其是为了突出“动”，加了一层不
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  土路生優里  
+##### 959#       发表于 2024-9-27 03:40
+
+ 本帖最后由 土路生優里 于 2024-9-27 03:43 编辑 
+
+demo打到刚进矿洞，目前体验还行就是妖精之眼和奔跑的特效太瞎眼了
+
+还有这刚组队就是仨男的，男主和王子看着也像男娘，有点过于gay了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+虽然最后可能变成战斗不如smt日常不如p系列，但反过来说可以做到日常比smt好战斗比p系列好嘛<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

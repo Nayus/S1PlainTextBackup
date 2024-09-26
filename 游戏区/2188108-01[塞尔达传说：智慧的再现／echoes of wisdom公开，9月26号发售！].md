@@ -4301,3 +4301,14 @@ Made in CHINA
 
 错误的，既定的道路如果做的好节奏紧凑不比松散的开放世界好多了吗，自由度太高也未必是好事。
 
+
+*****
+
+####  ミズタ  
+##### 997#       发表于 2024-9-27 03:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66315883&amp;ptid=2188108" target="_blank">杨千fa单推人 发表于 2024-9-26 21:28</a>
+
+阿？哪里选难度我都没看到</blockquote>
+这作难度可以在设置里随便切换，和前作织梦岛开头选难度不同
+

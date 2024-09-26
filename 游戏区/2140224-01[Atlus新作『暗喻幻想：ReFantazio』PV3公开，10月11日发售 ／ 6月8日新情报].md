@@ -2377,3 +2377,20 @@ https://nga.178.com/read.php?tid=41812443         nga的链接，疑似全
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  Khellendros  
+##### 937#       发表于 2024-9-26 23:08
+
+只要别写大段蹩脚的政治戏就行，序章看得我真的有点怕了
+
+*****
+
+####  bwsusaga  
+##### 938#       发表于 2024-9-26 23:14
+
+建议再开个剧透楼，
+
+反白有时候被引用也容易晃到<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

@@ -105,3 +105,11 @@
 这次TGS有消息吗</blockquote>
 这次TGS没有参加，参加了今年CP
 
+
+*****
+
+####  寇马可  
+##### 621#       发表于 2024-9-26 11:50
+
+要不开个盘看这游戏和丝之鸽哪个先出吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

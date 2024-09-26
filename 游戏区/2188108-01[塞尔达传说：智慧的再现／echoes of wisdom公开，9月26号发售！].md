@@ -3516,3 +3516,31 @@ amiibo刷三次后不用存档读取，直接切出去系统改时间，回来�
 
 北方机械化林克大战南方奴隶主塞尔达，我们海拉鲁也有自己的南北战争<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  位面农场  
+##### 929#       发表于 2024-9-26 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66307125&amp;ptid=2188108" target="_blank">墨染白泉 发表于 2024-9-26 07:16</a>
+
+记得amiibo有送衣服，有人知道哪些amiibo送吗</blockquote>
+林克 塞尔达 加农
+
+*****
+
+####  位面农场  
+##### 930#       发表于 2024-9-26 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66309194&amp;ptid=2188108" target="_blank">我在干什么啊 发表于 2024-9-26 11:09</a>
+
+这作有暖暖吗，我目前得到的两个饰品戴上后外观好像没变，pv里看到有格鲁德的衣服可以穿，这作可换的衣服多 ...</blockquote>
+8 + amibo3
+
+*****
+
+####  Slyvan  
+##### 931#       发表于 2024-9-26 15:24
+
+中午又玩了一下,  遇到敌人直接控着不动让小弟打 , 跟打团似的  , 加上渡鸦会爆米, 好爽
+

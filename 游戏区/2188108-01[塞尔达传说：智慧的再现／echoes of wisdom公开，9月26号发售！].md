@@ -3622,3 +3622,37 @@ amiibo刷三次后不用存档读取，直接切出去系统改时间，回来�
 感觉上来先把沙漠打了是最好的，直接提供两大掀桌工具，下砸砖和飞天砖</blockquote>
 下砸砖是什么名字的？格鲁德我应该舔干净了没印象啊
 
+
+*****
+
+####  icebeek  
+##### 940#       发表于 2024-9-26 18:49
+
+<blockquote>离魂仙 发表于 2024-9-26 18:41
+下砸砖是什么名字的？格鲁德我应该舔干净了没印象啊</blockquote>
+是个怪物，可以从侧面攻击，名字叫坠眼怪，格鲁德小镇房顶上去有个梯子下去洞穴可以找到
+
+*****
+
+####  Waldeinsamkeit  
+##### 941#       发表于 2024-9-26 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66314018&amp;ptid=2188108" target="_blank">杨千fa单推人 发表于 2024-9-26 18:11</a>
+
+这游戏amiibo什么意思？一天只能刷一个不管不同种类？</blockquote>
+一天能刷3个，楼上说林克塞尔达加农的才能出衣服，但我昨天刷出来的全是素材……
+
+一会儿我用SL大法试试
+
+*****
+
+####  king520kyo  
+##### 942#       发表于 2024-9-26 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66312651&amp;ptid=2188108" target="_blank">stera 发表于 2024-9-26 16:16</a>
+
+我觉得似乎比起一直在躺着，回血之后立即起来再躺下去  似乎会回的更快，是我的错觉么
+
+看到有站在床上用刮 ...</blockquote>
+不是错觉 大概是为了平衡随时随地能掏床出来回血 
+

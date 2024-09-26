@@ -5666,3 +5666,22 @@ pve开放以后就很少进pvp了
 
 那个全球限3333的祭典抽选徽章今天光小红书一个APP一晚上就刷到了5个人中<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">3代吸引的国内玩家基数可以一窥，可以下注NS2上的下一代能不能正经引进了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  幽香  
+##### 5462#       发表于 2024-9-26 18:43
+
+ 本帖最后由 幽香 于 2024-9-26 18:46 编辑 
+
+MAGIACE原来就是紫电那个队长啊，为啥当初上甲子园还要带马甲？看留言果然女粉好多，好吧又是个型月厨
+
+*****
+
+####  绿冰  
+##### 5463#         楼主| 发表于 2024-9-26 18:48
+
+<blockquote>Ryuuseigun 发表于 2024-9-24 23:57
+那个全球限3333的祭典抽选徽章今天光小红书一个APP一晚上就刷到了5个人中3代吸引的国内玩家基数可以一窥， ...</blockquote>
+真是羡慕，有没有链接去看看
+

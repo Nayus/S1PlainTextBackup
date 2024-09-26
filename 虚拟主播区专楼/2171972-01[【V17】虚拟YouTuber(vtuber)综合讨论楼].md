@@ -127,3 +127,16 @@ rfm又偶像又商法的，首周甚至首日比能有80%
 
 虹粉丝挂二手的速度真不是盖的<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fshzx  
+##### 789#       发表于 2024-9-27 03:29
+
+ 本帖最后由 fshzx 于 2024-9-27 03:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66315888&amp;ptid=2171972" target="_blank">80proof 发表于 2024-9-26 21:28</a>
+
+虹女真是虹男的养分啊，ラトナ跟三个男同事玩恐游玩成三位数同接给我看笑了 ...</blockquote>
+
+别光盯着油官啊，她在T台开ow 还有2千同接
+

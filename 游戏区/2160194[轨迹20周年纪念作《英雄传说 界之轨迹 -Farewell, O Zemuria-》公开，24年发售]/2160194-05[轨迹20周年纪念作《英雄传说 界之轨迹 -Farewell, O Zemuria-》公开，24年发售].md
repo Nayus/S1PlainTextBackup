@@ -183,3 +183,11 @@ ps5要从新下载
 
 就玩了个序章，这开局大家吃自助餐的场景也太像闪3了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jacket  
+##### 5940#       发表于 2024-9-26 19:45
+
+小地图上的移动痕迹更容易看清了，以前好像不是这种细线
+

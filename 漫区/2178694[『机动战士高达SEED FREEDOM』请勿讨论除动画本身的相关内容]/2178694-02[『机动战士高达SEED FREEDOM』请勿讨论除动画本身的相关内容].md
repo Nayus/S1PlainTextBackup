@@ -32,3 +32,11 @@
 本当にありがとうございます🤝！
 <img src="https://p.sda1.dev/19/1de20673f84158796ea2107d8c85a900/20240926_112344.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RE㐅ia  
+##### 1961#       发表于 2024-9-26 14:11
+
+ 命运呢<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+

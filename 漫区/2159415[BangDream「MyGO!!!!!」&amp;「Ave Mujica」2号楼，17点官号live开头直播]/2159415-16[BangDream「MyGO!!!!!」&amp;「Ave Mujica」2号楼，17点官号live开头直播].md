@@ -13264,3 +13264,23 @@ wsd要有产能少歌手游就不会似了<img src="https://static.saraba1st.com
 
 晕过去了
 
+
+*****
+
+####  藤田琴音  
+##### 23424#       发表于 2024-9-26 22:37
+
+ 本帖最后由 藤田琴音 于 2024-9-26 22:39 编辑 
+
+我说实话，我非常怀疑你邦内部同时拥有熏哥哥内部恨和tks内部爱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">熏的卡就没好过，反观土笔那么多卡不管三星四星五星，没丑过。
+
+
+*****
+
+####  NODY  
+##### 23425#       发表于 2024-9-26 22:41
+
+薰在四星时代好看的卡不少吧，尤其是和千圣的双人
+
+不过推子联动这个完全看不出是薰的确实有点难以言喻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

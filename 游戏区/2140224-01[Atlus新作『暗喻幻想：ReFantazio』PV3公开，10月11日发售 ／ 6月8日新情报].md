@@ -1906,3 +1906,22 @@ hard打完，除了鸟人送了一血，其它基本平推，套皮仲魔这套�
 
 拿异色眼来举例，这种特征可以是不同瞳色的种族通婚的结果，这样背景设定会使得这个角色更加可信。
 
+
+*****
+
+####  walfeds  
+##### 890#       发表于 2024-9-26 12:05
+
+知道为什么有人会觉得糊了，在家直接拉满不觉得，到办公室一开默认画质确实没法看<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉渲染质量标准就该是200%
+
+2k分辨率下选默认贴图连光标都自带锯齿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">超过1080P请开高贴图
+
+4060开1080p 200% 高贴图 关环境光遮蔽跑起来感觉没什么问题
+
+*****
+
+####  windtrack_qh  
+##### 891#       发表于 2024-9-26 12:06
+
+所以试玩最后还是不让进大地图么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

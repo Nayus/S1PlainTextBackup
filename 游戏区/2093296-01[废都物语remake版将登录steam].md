@@ -84,3 +84,24 @@
 
 这次TGS有消息吗
 
+
+*****
+
+####  宛若青空  
+##### 619#       发表于 2024-9-26 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66281111&amp;ptid=2093296" target="_blank">阿斯蓝 发表于 2024-9-23 14:02</a>
+
+贴吧说三分之二是女性员工，这么多女生开发。。有点慌</blockquote>
+我也有点慌，希望别暗搓搓搞什么小动作吧，原作者监修能严格些就好了...
+
+*****
+
+####  宛若青空  
+##### 620#       发表于 2024-9-26 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66309510&amp;ptid=2093296" target="_blank">脚本水平 发表于 2024-9-26 11:32</a>
+
+这次TGS有消息吗</blockquote>
+这次TGS没有参加，参加了今年CP
+

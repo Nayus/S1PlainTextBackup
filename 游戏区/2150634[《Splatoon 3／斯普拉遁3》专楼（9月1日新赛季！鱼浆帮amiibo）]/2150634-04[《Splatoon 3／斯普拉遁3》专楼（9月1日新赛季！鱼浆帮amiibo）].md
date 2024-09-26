@@ -5685,3 +5685,17 @@ MAGIACE原来就是紫电那个队长啊，为啥当初上甲子园还要带马�
 那个全球限3333的祭典抽选徽章今天光小红书一个APP一晚上就刷到了5个人中3代吸引的国内玩家基数可以一窥， ...</blockquote>
 真是羡慕，有没有链接去看看
 
+
+*****
+
+####  shirolin  
+##### 5464#       发表于 2024-9-26 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66314325&amp;ptid=2150634" target="_blank">绿冰 发表于 2024-9-26 18:48</a>
+真是羡慕，有没有链接去看看</blockquote>
+45 恼火奥特曼发布了一篇小红书笔记，快来看吧！ 😆 E0wkXKAlyZ2fNKX 😆 http://xhslink.com/a/3cJQvnkvD3yW，复制本条信息，打开【小红书】App查看精彩内容！
+
+42 灾弦咸咸咸发布了一篇小红书笔记，快来看吧！ 😆 J8OTky2IRmdrkO0 😆 http://xhslink.com/a/TPKTPvSAM3yW，复制本条信息，打开【小红书】App查看精彩内容！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

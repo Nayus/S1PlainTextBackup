@@ -19,3 +19,13 @@
 
 有一说一，这作音乐感觉有些恢复到闪轨水平，比黎2是舒服很多
 
+
+*****
+
+####  不中用  
+##### 5923#       发表于 2024-9-26 11:27
+
+https://www.falcom.co.jp/kai/special/web_raffle/这个答案是啥啊
+
+— from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

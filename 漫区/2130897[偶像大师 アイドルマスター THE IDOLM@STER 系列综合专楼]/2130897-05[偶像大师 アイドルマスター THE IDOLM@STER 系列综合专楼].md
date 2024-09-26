@@ -1238,3 +1238,14 @@ sfp以后好像不用培育就能直接打歌了,这不就变成普通的音游�
 sfp以后好像不用培育就能直接打歌了,这不就变成普通的音游了吗</blockquote>
 有一种小高终于意识到了自己在做垃圾游戏的滑稽感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  magicc  
+##### 6435#       发表于 2024-9-26 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66316971&amp;ptid=2130897" target="_blank">Alleyht 发表于 2024-9-26 23:21</a>
+
+有一种小高终于意识到了自己在做垃圾游戏的滑稽感</blockquote>
+那之前培育的不就变废纸了吗
+

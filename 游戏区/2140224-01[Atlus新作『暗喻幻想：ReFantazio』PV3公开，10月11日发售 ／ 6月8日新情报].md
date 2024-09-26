@@ -2415,3 +2415,31 @@ https://nga.178.com/read.php?tid=41812443         nga的链接，疑似全
 —— 来自 鹅球 v3.1.88.3</blockquote>
 比鸟人简单<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 941#       发表于 2024-9-26 23:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">通关前这楼看来是不能进了
+
+*****
+
+####  kuarwbwe  
+##### 942#       发表于 2024-9-26 23:24
+
+王道挺好的啊，总比强写政治喂屎强。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我看到隔壁说这游戏剧情是王道剧情，反而松了口气的。<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+
+*****
+
+####  PigMourne  
+##### 943#       发表于 2024-9-26 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66312519&amp;ptid=2140224" target="_blank">heseran 发表于 2024-9-26 16:06</a>
+范达姆运蛋回都市的路上因为蛋的以太能量太显眼被黑白两边发现并打下来，结果见到的正好是拿着他认识的武 ...</blockquote>
+问题就在于戏份太少+巧合太多啊，站在主角和玩家视点，牢凡的来历不明、装置是什么也不明，单纯就是因为自己某种前世缘分被他看中托付了任务，这份任务还和自己十年当兵生涯的世界观完全冲突。
+实际剧情上几个人也确实没有听他引导，上一秒牢凡死了托付大事，下一秒就照常各回各家了。真正把主角推上正路的反而是家里人的追杀。
+

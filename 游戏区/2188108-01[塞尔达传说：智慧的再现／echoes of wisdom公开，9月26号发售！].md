@@ -3286,3 +3286,39 @@ amiibo刷三次后不用存档读取，直接切出去系统改时间，回来�
 
 这作根本就不是2d塞尔达，无论是战斗还是探索都充分用到了z轴，光这点和众神2、织梦岛就完全不是一个级别了。另外野炊开始多少人念叨的水下环节也都给你做出来了，可以说既延续了王泪自由解密的玩法，又保留了传统的获得新道具的乐趣（都什么时代了还要开菜单选道具真的梦回初代和众神），真的很牛逼。而且塞尔达的各种叫声很涩
 
+
+*****
+
+####  xlent  
+##### 904#       发表于 2024-9-26 10:39
+
+ 本帖最后由 xlent 于 2024-9-26 10:45 编辑 
+
+昨天只通过了新手迷宫，截止到目前感觉在2d塞中应该是移动性能最好的了，转圈割草太上头了
+
+觉得这代的乐趣就是完全不主动攻击，就靠各种复制怪物组合打就特有意思
+
+*****
+
+####  nancygreenlife  
+##### 905#       发表于 2024-9-26 10:41
+
+通宵玩High了，这地图探索感觉有点野炊王泪的味道，停不下来。难度确实有些简单了，但我偏要放着明摆着的解题思路不管，自己瞎琢磨<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  clyde-wang  
+##### 906#       发表于 2024-9-26 10:43
+
+其实按L来选比按右来选要舒服不少，但是操作说明里没写
+
+*****
+
+####  ColAMK  
+##### 907#       发表于 2024-9-26 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66308855&amp;ptid=2188108" target="_blank">clyde-wang 发表于 2024-9-26 10:43</a>
+
+其实按L来选比按右来选要舒服不少，但是操作说明里没写</blockquote>
+同意，L键+左摇杆我感觉比用右键舒服不知道为啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

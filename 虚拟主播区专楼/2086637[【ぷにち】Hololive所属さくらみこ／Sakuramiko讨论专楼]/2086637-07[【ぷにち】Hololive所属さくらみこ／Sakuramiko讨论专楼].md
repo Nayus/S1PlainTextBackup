@@ -11469,3 +11469,32 @@ itunes2位
 
 里面附赠的OCG卡现在光二手卡牌店收购价就6000日元了，这不就是买一份白赚一份吗，当时应该多囤几份
 
+
+*****
+
+####  holoan  
+##### 9827#         楼主| 发表于 2024-9-26 19:42
+
+<img src="https://img.saraba1st.com/forum/202409/26/194123tsbxzjbxua9j4ccl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (60.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-26 19:41 上传
+
+刚才也提到了内封签名卡的事，具体数字没说按照推特今天报告的概率推算最少签了几百到上千张
+
+*****
+
+####  holoan  
+##### 9828#         楼主| 发表于 2024-9-26 23:00
+
+<img src="https://img.saraba1st.com/forum/202409/26/225932cnipy39pphh9h9h7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (34.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-26 22:59 上传
+

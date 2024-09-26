@@ -12852,3 +12852,13 @@ wsd的惊世智慧
 
 已经在谷底了 怎么走都是向上.jpg
 
+
+*****
+
+####  御幸一也  
+##### 23396#       发表于 2024-9-26 20:39
+
+ 本帖最后由 御幸一也 于 2024-9-26 20:41 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">驚覺都9/26了，呃 這個月好像還有ether的鬼圖MV武士道要吐出來吧
+

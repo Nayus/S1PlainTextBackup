@@ -39,3 +39,15 @@ https://www.falcom.co.jp/kai/special/web_raffle/这个答案是啥啊
 
 —— 来自 Xiaomi 2210132C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  kangkangsama  
+##### 5925#       发表于 2024-9-26 13:14
+
+喜多一出来就感觉对味了
+
+这才是那个永远晚时代三年的法老空
+
+2024才开始女主播
+

@@ -1882,3 +1882,15 @@ hard打完，除了鸟人送了一血，其它基本平推，套皮仲魔这套�
 
 还在上班没玩，这个阿基态是不是变成旧约P那种人均换面具了？还是更像dds的曼陀罗
 
+
+*****
+
+####  walfeds  
+##### 888#       发表于 2024-9-26 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66308488&amp;ptid=2140224" target="_blank">Redimercia 发表于 2024-9-26 10:16</a>
+还在上班没玩，这个阿基态是不是变成旧约P那种人均换面具了？还是更像dds的曼陀罗 ...</blockquote>
+更像曼斗罗
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

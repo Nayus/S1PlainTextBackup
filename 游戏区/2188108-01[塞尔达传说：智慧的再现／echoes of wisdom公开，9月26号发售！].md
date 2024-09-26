@@ -3254,3 +3254,35 @@ amiibo刷三次后不用存档读取，直接切出去系统改时间，回来�
 
 （剧透）高清地图 [https://pan.baidu.com/s/1NaUFexeBNZUplEioPBrtNA?pwd=f7aj](https://pan.baidu.com/s/1NaUFexeBNZUplEioPBrtNA?pwd=f7aj)
 
+
+*****
+
+####  xlent  
+##### 902#       发表于 2024-9-26 10:27
+
+<img src="https://img.saraba1st.com/forum/202409/26/102653rh9x9aam9tu9htp9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (60.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-26 10:26 上传
+
+<img src="https://img.saraba1st.com/forum/202409/26/102705l303p872mznzun9z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (17.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-26 10:27 上传
+
+笑死
+
+
+*****
+
+####  wang752541922  
+##### 903#       发表于 2024-9-26 10:33
+
+这作根本就不是2d塞尔达，无论是战斗还是探索都充分用到了z轴，光这点和众神2、织梦岛就完全不是一个级别了。另外野炊开始多少人念叨的水下环节也都给你做出来了，可以说既延续了王泪自由解密的玩法，又保留了传统的获得新道具的乐趣（都什么时代了还要开菜单选道具真的梦回初代和众神），真的很牛逼。而且塞尔达的各种叫声很涩
+

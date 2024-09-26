@@ -3189,3 +3189,33 @@ amiibo是随机出东西还是像王泪野炊那种部分amiibo有特殊道具�
 amiibo是随机出东西还是像王泪野炊那种部分amiibo有特殊道具？</blockquote>
 据说是有衣服的。但是详情未知。
 
+
+*****
+
+####  墨鱿鱼  
+##### 894#       发表于 2024-9-26 10:06
+
+昨晚玩了两小时，感觉蛇和蝙蝠就是最强的，低费还带制导<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yohyoh4966  
+##### 895#       发表于 2024-9-26 10:10
+
+amiibo刷三次后不用存档读取，直接切出去系统改时间，回来继续刷三次，手头正好有一套盗版的amiibo卡，今晚下班试试
+
+
+*****
+
+####  mggr  
+##### 896#       发表于 2024-9-26 10:12
+
+有没有人总结那些怪物比较impact，比较轮椅？
+
+*****
+
+####  沉墨1st  
+##### 897#       发表于 2024-9-26 10:13
+
+城里没人认识林克，这林克不会刚出村子就直接去救公主了吧，居然是个玩速通的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

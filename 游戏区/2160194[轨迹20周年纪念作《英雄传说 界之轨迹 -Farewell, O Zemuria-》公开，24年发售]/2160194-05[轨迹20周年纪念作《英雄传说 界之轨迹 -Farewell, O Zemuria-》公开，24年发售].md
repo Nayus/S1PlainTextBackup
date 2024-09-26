@@ -63,3 +63,11 @@ https://www.falcom.co.jp/kai/special/web_raffle/这个答案是啥啊
 —— 来自 Xiaomi 2210132C, Android 13上的 S1Next-鹅版 v3.0.0-alpha</blockquote>
 ps5要从新下载
 
+
+*****
+
+####  哆哆鸡  
+##### 5927#       发表于 2024-9-26 13:33
+
+季票670 还不包含其他消耗性道具 这下真是抢钱了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

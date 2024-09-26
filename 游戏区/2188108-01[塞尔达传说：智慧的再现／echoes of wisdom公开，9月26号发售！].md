@@ -3434,3 +3434,21 @@ amiibo刷三次后不用存档读取，直接切出去系统改时间，回来�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  chizuru  
+##### 920#       发表于 2024-9-26 13:26
+
+海里有块石头上有明显裂缝，用独眼下砸砖没有用，是能砸碎的吗
+
+
+*****
+
+####  funkyfrog  
+##### 921#       发表于 2024-9-26 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66310745&amp;ptid=2188108" target="_blank">chizuru 发表于 2024-9-26 13:26</a>
+海里有块石头上有明显裂缝，用独眼下砸砖没有用，是能砸碎的吗</blockquote>
+炸弹炸的
+

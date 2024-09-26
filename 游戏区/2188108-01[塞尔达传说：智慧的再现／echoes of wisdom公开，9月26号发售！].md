@@ -3935,3 +3935,11 @@ Made in CHINA
 
 这个有点离谱啊，完全就是智杖版风弹和mk2。还不耗材料和电池这些
 
+
+*****
+
+####  医生狼多  
+##### 968#         楼主| 发表于 2024-9-26 20:47
+
+智现访谈https://www.nintendo.com.hk/interview/bdgea/index.html
+

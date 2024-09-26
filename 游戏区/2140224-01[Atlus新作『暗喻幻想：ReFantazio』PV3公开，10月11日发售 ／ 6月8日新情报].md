@@ -2490,3 +2490,18 @@ https://nga.178.com/read.php?tid=41812443         nga的链接，疑似全
 
 —— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  SuNR1sE364  
+##### 949#       发表于 2024-9-26 23:59
+
+这个速度线能不能删掉<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">或者哪怕做成p3r那样呢
+
+*****
+
+####  无证madam  
+##### 950#       发表于 2024-9-27 00:03
+
+武僧好强 初期羁绊技能直接给了个小八艘跳 
+

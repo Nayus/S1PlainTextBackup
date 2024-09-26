@@ -1249,3 +1249,17 @@ sfp以后好像不用培育就能直接打歌了,这不就变成普通的音游�
 有一种小高终于意识到了自己在做垃圾游戏的滑稽感</blockquote>
 那之前培育的不就变废纸了吗
 
+
+*****
+
+####  Alleyht  
+##### 6436#       发表于 2024-9-26 23:58
+
+ 本帖最后由 Alleyht 于 2024-9-27 00:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66317022&amp;ptid=2130897" target="_blank">magicc 发表于 2024-9-26 23:27</a>
+
+那之前培育的不就变废纸了吗</blockquote>
+换个思路，不这么改你SCSP留不住新人估计很快就要被万南强制サ終了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+都是变成废纸现在不还起码留了点念想，虽然日推的部分闪P们也都在边骂边槽你早在开服的时候这么干不就好了
+

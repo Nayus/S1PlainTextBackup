@@ -2536,3 +2536,13 @@ https://nga.178.com/read.php?tid=41812443         nga的链接，疑似全
 
 这游戏职业确实有点死板，唯一可以自定义的就是几个继承技能，而按照a社数值的尿性，继承位肯定是留给增伤复活根性这些万精油被动的；前后排本来指望能像树一样重要，实际效果只能说一言难尽。从demo来看能稍微配配的只有不同职业组合的合体技能了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猫沢  
+##### 955#       发表于 2024-9-27 02:09
+
+牛头人怎么打啊，还有我先去推教堂是不是提前结束试玩？但是我hard刷了一小时多的哥布林也没升几级（全员11）牛头一个aoe差不多就没了，抠门药没买装备没更新就出发了，感觉要重开<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

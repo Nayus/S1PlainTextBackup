@@ -4278,3 +4278,26 @@ Made in CHINA
   -- 来自 有消息提醒的 Stage1官方 Android客户端</blockquote>
 和王泪一脉相承啊
 
+
+*****
+
+####  位面农场  
+##### 996#       发表于 2024-9-27 02:11
+
+<blockquote>基於打造歷代「薩爾達」系列作的經驗，
+
+我認為不該讓玩家走在既定的道路上。
+
+如果不能讓玩家擁有自由思考及行動的能力，
+
+玩家很有可能就不會持續玩下去了。
+
+即便是「解謎」，讓玩家享受「自行解開謎題」的喜悅
+
+是薩爾達的一貫作風，
+
+因此有必要提升遊玩的自由度。</blockquote>
+[https://www.nintendo.com.hk/interview/bdgea/index.html](https://www.nintendo.com.hk/interview/bdgea/index.html)
+
+错误的，既定的道路如果做的好节奏紧凑不比松散的开放世界好多了吗，自由度太高也未必是好事。
+

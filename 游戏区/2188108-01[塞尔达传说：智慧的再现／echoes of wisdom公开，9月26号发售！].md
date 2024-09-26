@@ -3134,3 +3134,25 @@ Boss 战很有趣，比传统2D的boss战有趣的多
 
 召唤怪物真的太宝可梦了 欲罢不能 这游戏就应该想各种歪点子解谜，而不是用最强的那几个，会得到意外的乐子 太好玩啦林克传说
 
+
+*****
+
+####  mggr  
+##### 889#       发表于 2024-9-26 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66307576&amp;ptid=2188108" target="_blank">woui003woui 发表于 2024-9-26 08:51</a>
+
+迷上r旋转了，如此丝滑根本停不下来
+
+另外就是初期已经感觉到左右切换的鸡肋了，远不如+号直切 ...</blockquote>
++号直切是啥？
+
+*****
+
+####  woui003woui  
+##### 890#       发表于 2024-9-26 09:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66307912&amp;ptid=2188108" target="_blank">mggr 发表于 2024-9-26 09:24</a>
++号直切是啥？</blockquote>
+按+号打开复制品图鉴总览以后，直接在这个界面选要用的复制品
+

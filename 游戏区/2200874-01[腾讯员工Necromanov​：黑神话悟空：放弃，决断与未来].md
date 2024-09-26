@@ -983,3 +983,29 @@ DLC你觉得是应该归类于持续服务型里么，我个人觉得还是买�
 
 —— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  phoenixxj  
+##### 76#       发表于 2024-9-26 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66307435&amp;ptid=2200874" target="_blank">zhouaa 发表于 2024-9-26 08:32</a>
+
+如果是AI总结的这样  那说的没什么问题吧</blockquote>
+因为本来就是这样
+
+当然了，ai不懂人心。
+
+大家都知道 无利不起早，文章肯定要表达作者的价值观的
+
+很显然，作者写这文章就是在鼓吹短视频和新媒体在新时代游戏中的重要性。
+
+当然 我觉得很多人认为他只认为这个很重要否定其他因素，大可不必，至少文中没有这么写。
+
+*****
+
+####  su37mkk  
+##### 77#       发表于 2024-9-26 09:35
+
+这是那个内裤门?
+

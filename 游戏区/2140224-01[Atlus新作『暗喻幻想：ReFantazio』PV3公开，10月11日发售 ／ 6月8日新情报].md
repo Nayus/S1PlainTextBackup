@@ -1858,3 +1858,19 @@ hard有人过火龙了么，前面打鸟人把碎冰用完了<img src="https://s
 
 hard火龙挺简单的，固定一回合物理一回合喷火
 
+
+*****
+
+####  bwsusaga  
+##### 886#       发表于 2024-9-26 09:32
+
+hard打完，除了鸟人送了一血，其它基本平推，套皮仲魔这套系统始终对我还是有吸引力的，单纯就是想看看后续解锁的P<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+有了战前系统，迷宫战斗节奏快了很多，这点比P系列要强。
+
+剧情悬念有，虽然不多。
+
+开场的荒野跑图时有一瞬间以为这作会采用真V的大地图探索路子，还兴奋了一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还是会买的。
+

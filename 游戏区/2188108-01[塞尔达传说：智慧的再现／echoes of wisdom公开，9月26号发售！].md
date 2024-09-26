@@ -3369,3 +3369,50 @@ amiibo刷三次后不用存档读取，直接切出去系统改时间，回来�
 
 为什么周日还要调休
 
+
+*****
+
+####  我在干什么啊  
+##### 913#       发表于 2024-9-26 11:09
+
+这作有暖暖吗，我目前得到的两个饰品戴上后外观好像没变，pv里看到有格鲁德的衣服可以穿，这作可换的衣服多吗
+
+*****
+
+####  KOL2022  
+##### 914#       发表于 2024-9-26 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66308390&amp;ptid=2188108" target="_blank">墨鱿鱼 发表于 2024-9-26 10:06</a>
+
+昨晚玩了两小时，感觉蛇和蝙蝠就是最强的，低费还带制导</blockquote>
+被渡鸦抢过一次钱，然后就离不开渡鸦了
+
+打任何敌人第一击都会掉至少5卢比，有的会5＋1X4=9卢比
+
+缺点就是渡鸦太贪财，爆出卢比后会一直追着卢比就不打怪了
+
+*****
+
+####  Piano-Forest  
+##### 915#       发表于 2024-9-26 11:12
+
+<img src="https://p.sda1.dev/19/0b95978386c2f608da63ae441bbcfeae/20240926_111207.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  stygianlunar  
+##### 916#       发表于 2024-9-26 11:14
+
+现在我是只要看到有个差不多高的地方可以翻过去就无视下个目的地开始想办法翻过去<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  stygianlunar  
+##### 917#       发表于 2024-9-26 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66308942&amp;ptid=2188108" target="_blank">wondor1111 发表于 2024-9-26 10:51</a>
+
+王泪刚解锁的时候，靠五一调班加补假凑了五天，爽玩50小时，很多人说王泪没好的迷宫，但是我一口气不咋被迷 ...</blockquote>
+主要是高度开放化的解谜本身就是给了玩家不设上限的工具，这种情况下玩家动脑子掀桌子是必然的，那么难度反而没有意义了，因为有限的手段+指定的解法范围才能提升难度。
+

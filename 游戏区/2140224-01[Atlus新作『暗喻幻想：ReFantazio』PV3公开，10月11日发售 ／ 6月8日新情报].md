@@ -2177,3 +2177,23 @@ UI设计的话和P5一个级别吧，很有设计感但或多或少有些为风�
 
 感觉还不如SMT5...倒不是说玩不下去，就是有点太没新意了
 
+
+*****
+
+####  猪突猛进  
+##### 916#       发表于 2024-9-26 21:06
+
+看你们讨论，大概是JPRG的一般水准，也不用擅自失望。
+
+再结合P5加成，卖个百万份大概没什么问题。
+
+*****
+
+####  roxassix  
+##### 917#       发表于 2024-9-26 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66313050&amp;ptid=2140224" target="_blank">Schwarzess 发表于 2024-9-26 16:45</a>
+看到有漏油用deck玩，能麻烦展开说说demo效果如何么？
+发售的时候用不到ps5和pc，目测只能deck玩。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">跟p3r这种完全没法比，场景太大了720p50%渲染都稳不了30帧。。。真的劝退
+

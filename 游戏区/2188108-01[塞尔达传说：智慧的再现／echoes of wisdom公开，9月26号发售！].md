@@ -3953,3 +3953,20 @@ Made in CHINA
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  nma  
+##### 970#       发表于 2024-9-26 21:06
+
+初代机进城堡真是绷不住，走几步顿一下，跟老头环刚出来旋转视角一样的感觉，应该是在频繁切换后台载入的地区，进地牢好一点，再出来到平原又是几步一卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 其他方面体验倒是良好
+
+*****
+
+####  woui003woui  
+##### 971#       发表于 2024-9-26 21:09
+
+卓拉那边有个放在木头上的宝箱怎么也想不出来是怎么解的= =
+
+火地刺爆炸都试过了
+

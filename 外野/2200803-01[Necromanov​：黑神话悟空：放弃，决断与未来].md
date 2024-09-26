@@ -2231,3 +2231,13 @@ https://bbs.saraba1st.com/2b/thread-2198959-0-1.html
 
 内裤门死太监，就这几年出了钢火法这个替代品
 
+
+*****
+
+####  الطائر  
+##### 183#       发表于 2024-9-26 21:15
+
+怎么都第5页了还没有人贴原文链接啊？（[https://necromanov.wordpress.com/2024/09/24/wukong/](https://necromanov.wordpress.com/2024/09/24/wukong/)）
+
+原文那么多图表都没有贴，不知道你们是怎么只看文字就能看下去的，全靠脑补？
+

@@ -12862,3 +12862,11 @@ wsd的惊世智慧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">驚覺都9/26了，呃 這個月好像還有ether的鬼圖MV武士道要吐出來吧
 
+
+*****
+
+####  星天观测  
+##### 23397#       发表于 2024-9-26 21:05
+
+说不定就是3rd立绘进行平移<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉没什么期待的
+

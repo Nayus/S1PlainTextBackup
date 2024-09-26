@@ -4119,3 +4119,57 @@ Made in CHINA
 
    桌盆
 
+
+*****
+
+####  杨千fa单推人  
+##### 981#       发表于 2024-9-26 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66314547&amp;ptid=2188108" target="_blank">ミズタ 发表于 2024-9-26 19:09</a>
+
+昨天23点解锁，玩到现在，通关了，解锁前看了访谈比前作地图大8倍，实际玩下来来体感真的不觉得有那么大
+
+这 ...</blockquote>
+阿？哪里选难度我都没看到
+
+*****
+
+####  大煜治水  
+##### 982#       发表于 2024-9-26 21:30
+
+谁说的四十小时主线流程的？除非藏了个里世界不然十几二十小时肯定能打完了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  杨千fa单推人  
+##### 983#       发表于 2024-9-26 21:31
+
+说起来这个掉沟里没做game over界面，我一开始出生房间还以为进沟里是直接进里世界，所以流程是里世界打一遍表世界打一遍
+
+我还在那里连续跳沟几次看有没有什么不同，结果几次下来才发现是没有给你game over画面直接给你重置位置了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  就是剑鞘  
+##### 984#       发表于 2024-9-26 21:33
+
+最手忙脚乱的一集，要操作的东西也太多了，还时不时被小马卡位
+
+回来吧剑士林克<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+我最骄傲的信仰<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
+
+*****
+
+####  墨染白泉  
+##### 985#       发表于 2024-9-26 21:35
+
+<blockquote>大煜治水 发表于 2024-9-26 21:30
+谁说的四十小时主线流程的？除非藏了个里世界不然十几二十小时肯定能打完了
+
+—— 来自 鹅球 v3.0.86-alpha ...</blockquote>
+偷跑楼说的是主线20小时，全收集40小时吧
+

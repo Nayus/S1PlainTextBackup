@@ -12870,3 +12870,58 @@ wsd的惊世智慧
 
 说不定就是3rd立绘进行平移<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉没什么期待的
 
+
+*****
+
+####  滑稽Captain  
+##### 23398#       发表于 2024-9-26 21:32
+
+这个ai翻译不太理想呀，比如这个原意应该是正面的影响，反而翻成了负面意思
+
+<img src="https://img.saraba1st.com/forum/202409/26/213212szvx9bggqqbgq3qc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (82.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-26 21:32 上传
+
+<img src="https://img.saraba1st.com/forum/202409/26/213237jsfsmsmdz7kama4s.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (129.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-26 21:32 上传
+
+*****
+
+####  rikaren  
+##### 23399#       发表于 2024-9-26 21:33
+
+<img src="https://img.saraba1st.com/forum/202409/26/213233o9ddgj7ntttwiyme.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-09-26-21-31-15-50_149003a2d400f6adb210d7e357a3a646.jpg</strong> (241.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-26 21:32 上传
+
+<img src="https://img.saraba1st.com/forum/202409/26/213241utwd2p08peskssk0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-09-26-21-31-47-09_149003a2d400f6adb210d7e357a3a646.jpg</strong> (283.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-26 21:32 上传
+
+<img src="https://img.saraba1st.com/forum/202409/26/213247ck4zprzoq9to1811.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-09-26-21-32-12-54_149003a2d400f6adb210d7e357a3a646.jpg</strong> (425.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-26 21:32 上传
+
+msk这个花后质量真的算dfes吗……
+

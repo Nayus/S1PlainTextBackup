@@ -112,3 +112,18 @@ rfm又偶像又商法的，首周甚至首日比能有80%
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">虹这种商法来看粉丝数真的有爆米水平重要吗
 
+
+*****
+
+####  80proof  
+##### 787#       发表于 2024-9-26 21:28
+
+虹女真是虹男的养分啊，ラトナ跟三个男同事玩恐游玩成三位数同接给我看笑了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  渡鸦骑士  
+##### 788#       发表于 2024-9-26 21:28
+
+虹粉丝挂二手的速度真不是盖的<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+

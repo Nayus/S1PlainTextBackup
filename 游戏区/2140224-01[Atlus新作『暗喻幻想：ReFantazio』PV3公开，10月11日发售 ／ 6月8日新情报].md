@@ -2207,3 +2207,53 @@ UI设计的话和P5一个级别吧，很有设计感但或多或少有些为风�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  cxl6191467  
+##### 919#       发表于 2024-9-26 21:26
+
+是我打开方法不对吗
+
+怎么用手柄 游戏内提示还是键盘的键位。。
+
+*****
+
+####  nightomorrow  
+##### 920#       发表于 2024-9-26 21:27
+
+疑似全剧透了……大家上网小心
+
+—— 来自 HUAWEI BRA-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  被击坠王  
+##### 921#       发表于 2024-9-26 21:28
+
+这游戏在还只有几张图那时还请了不少业内拍影片造势，现在估计看了都直挠头，就算卖出一二百万份，算不算成功得看它的成本
+
+
+*****
+
+####  迷雾塔  
+##### 922#       发表于 2024-9-26 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66315869&amp;ptid=2140224" target="_blank">nightomorrow 发表于 2024-9-26 21:27</a>
+
+疑似全剧透了……大家上网小心
+
+—— 来自 HUAWEI BRA-AL00, Android 12上的 S1Next-鹅版 v3.0.0.81-alpha ...</blockquote>
+哪里有剧透，我想看
+
+*****
+
+####  supersssbc  
+##### 923#       发表于 2024-9-26 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66315935&amp;ptid=2140224" target="_blank">迷雾塔 发表于 2024-9-26 21:32</a>
+
+哪里有剧透，我想看</blockquote>
+       [https://nga.178.com/read.php?tid=41812443](https://nga.178.com/read.php?tid=41812443)         nga的剧情梗概，疑似全透了不是真的想看不要点
+

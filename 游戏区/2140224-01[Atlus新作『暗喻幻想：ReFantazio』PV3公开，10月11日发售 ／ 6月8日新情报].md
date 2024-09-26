@@ -2101,3 +2101,11 @@ UI设计的话和P5一个级别吧，很有设计感但或多或少有些为风�
 
 音乐好评，美术也不错，UI用力过猛，太花了。
 
+
+*****
+
+####  walfeds  
+##### 909#       发表于 2024-9-26 17:30
+
+在近一点（也没多近）葛叶雷道也算arpg吧，但是我没自己打过不清楚手感怎么样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

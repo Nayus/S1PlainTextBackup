@@ -1925,3 +1925,32 @@ hard打完，除了鸟人送了一血，其它基本平推，套皮仲魔这套�
 
 所以试玩最后还是不让进大地图么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  战术核辣条  
+##### 892#       发表于 2024-9-26 14:38
+
+试玩两个迷宫都跑到底了
+gameplay的QoL体验挺通人性，可以战斗内restart好评，可以一口气把等级太低的小怪全扫了只打平级战斗好评，花在保姆骑身上的mag甚至会退款<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+就是正式版这个跑步速度线+模糊能不能给个选项关了，跑起来真是毛都看不清
+
+—— 来自 nubia NX729J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  windtrack_qh  
+##### 893#       发表于 2024-9-26 14:43
+
+重开了一遍HARD难度把矿坑的龙打了
+
+感觉还是侧重职业P配置，矿坑把主角和保姆都换成术士就是平推，连冰块都不用扔，而且术士地图清怪还回MP，在矿坑反复刷小怪都可以十里坡了
+
+*****
+
+####  xbhuang  
+##### 894#       发表于 2024-9-26 14:46
+
+想问下这游戏有女主角吗？人物介绍里看了半天没看出女主
+

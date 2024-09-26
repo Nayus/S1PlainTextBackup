@@ -127,3 +127,11 @@ COD的战区作为BR也是往强调战战战的方向改，恨不得从头打到
 
 今天玩了下，除了有些东西比如脚架的触发有点鬼畜，交互点有点莫名其妙。重武器的发射逻辑在默认的情况下实在蛋疼。除此之外倒是甚好。我觉得作为手机上的战地代餐是量大管饱的。至少比首发的2042好<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cjayseed  
+##### 59#       发表于 2024-9-26 20:32
+
+打了几盘战地模式，除了各种爆炸特效比较一般（毕竟支持手机端），其他都还可以。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

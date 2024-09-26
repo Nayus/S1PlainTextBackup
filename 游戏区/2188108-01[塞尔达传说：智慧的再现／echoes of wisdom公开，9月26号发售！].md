@@ -3896,3 +3896,25 @@ Made in CHINA
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  KBAC  
+##### 964#       发表于 2024-9-26 20:31
+
+塞尔达传说官网更新了背景图和角色页面，把本作的主要角色加进去了，好奇时间线页面会把这作放在哪个位置。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  ColAMK  
+##### 965#       发表于 2024-9-26 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66315252&amp;ptid=2188108" target="_blank">大煜治水 发表于 2024-9-26 20:20</a>
+
+这可是暌违多年的2d塞新作，真有觉得卖不过梦见岛的？
+
+—— 来自 鹅球 v3.0.86-alpha ...</blockquote>
+主要搞不懂国外市场 也不知道他们想要的2D塞到底是什么类型 也可能只是姨姥声音大
+

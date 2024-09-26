@@ -1370,3 +1370,24 @@ ll要日剧化？这算半个新团不？
 
 一排一个区就有32个座位
 
+
+*****
+
+####  csolfans  
+##### 21087#       发表于 2024-9-26 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66315259&amp;ptid=2078110" target="_blank">starring 发表于 2024-9-26 20:21</a>
+你在哪排？
+
+一区6排19，感觉要去到边角了</blockquote>
+12排，位数小数字(目前还不知道是小数字靠中还是大数字靠中
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  lj205  
+##### 21088#       发表于 2024-9-26 20:59
+
+20区前排，不过应该靠是转角那边位置咯
+

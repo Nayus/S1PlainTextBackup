@@ -5709,3 +5709,13 @@ MAGIACE的直播看过一阵子了，感觉他的消防栓比Abyss和Naegora差�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  幽香  
+##### 5466#       发表于 2024-9-26 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66315197&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-9-26 20:15</a>
+MAGIACE的直播看过一阵子了，感觉他的消防栓比Abyss和Naegora差很多啊，操作看起来很唬人（APM高、身法娴熟 ...</blockquote>
+abyss最近操作也下降不少，可能没了冲劲
+

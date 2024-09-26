@@ -3473,3 +3473,28 @@ amiibo刷三次后不用存档读取，直接切出去系统改时间，回来�
 要炸弹鱼炸</blockquote>
 谢谢，还没获得
 
+
+*****
+
+####  二丁目拓也  
+##### 924#       发表于 2024-9-26 14:46
+
+还没发货...
+
+*****
+
+####  carroy  
+##### 925#       发表于 2024-9-26 14:48
+
+还没发货……
+
+*****
+
+####  Waldeinsamkeit  
+##### 926#       发表于 2024-9-26 14:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">amiibo会出衣服吗？那我再刷下测试好了，昨天用的织梦岛林克、风棍塞尔达和大乱斗农叔，突出一个三角力量混搭
+今天就测测全塞尔达的amiibo吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -140,3 +140,26 @@
 
 是好是坏先端上来让我尝尝
 
+
+*****
+
+####  夏玻利利的嘶吼  
+##### 625#       发表于 2024-9-26 14:46
+
+这也能打宅男文娱保卫战？<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  宛若青空  
+##### 626#       发表于 2024-9-26 14:54
+
+ 本帖最后由 宛若青空 于 2024-9-26 14:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66311353&amp;ptid=2093296" target="_blank">直钩 发表于 2024-9-26 14:31</a>
+
+那不用期待了，剧情怕不是一股子小红书的rz味</blockquote>
+
+这是重制版，剧情文本几乎是不变的，而且拿了以前原版翻译的优秀文本授权，我是不信他们敢冒大风险去改动以前备受好评的原版翻译的；
+
+大不了玩日文原文。
+

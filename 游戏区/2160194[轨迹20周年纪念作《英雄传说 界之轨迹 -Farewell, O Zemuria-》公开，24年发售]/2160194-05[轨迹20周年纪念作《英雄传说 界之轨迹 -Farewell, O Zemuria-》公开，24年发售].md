@@ -81,3 +81,11 @@ ps5要从新下载
 
 技能攻击倒是写的很清楚，里爷的技能都有魔法属性的。
 
+
+*****
+
+####  绫崎飒  
+##### 5929#       发表于 2024-9-26 14:57
+
+实体还没发货，有没有盖棺定论，咚了没，和黎2比如何。<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

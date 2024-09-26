@@ -4203,3 +4203,24 @@ Made in CHINA
 
 —— 来自 nubia NX729J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  火星妇三田  
+##### 989#       发表于 2024-9-27 00:14
+
+意外的好玩
+
+*****
+
+####  就是剑鞘  
+##### 990#       发表于 2024-9-27 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66317320&amp;ptid=2188108" target="_blank">cy6959 发表于 2024-9-27 00:12</a>
+
+沙漠神殿boss门左边的宝箱怎么拿？
+
+—— 来自 nubia NX729J, Android 14上的 S1Next-鹅版 v3.0.0.81-alpha ...</blockquote>
+那个全封闭房间是吧
+去无之世界的楼顶，差不多的位置可以看到有个沙坑，地块颜色明显不一样，用鼹鼠挖进去
+

@@ -1269,3 +1269,36 @@ b买星二也都隔几个月了，可能星三也这个模式吧<img src="https:
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  黒烨  
+##### 21076#       发表于 2024-9-25 21:48
+
+b买星二也都隔几个月了，可能星三也这个模式吧<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 21077#       发表于 2024-9-25 22:03
+
+上海场可能会翻唱前辈的歌，广州站是专场应该就没这个待遇了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  csolfans  
+##### 21078#       发表于 2024-9-25 22:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">携程出票了……好多第一排我去
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  cat1230  
+##### 21079#       发表于 2024-9-26 08:23
+
+ll要日剧化？这算半个新团不？
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+

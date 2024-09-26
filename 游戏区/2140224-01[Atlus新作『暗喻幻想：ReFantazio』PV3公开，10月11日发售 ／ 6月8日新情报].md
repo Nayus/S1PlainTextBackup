@@ -2309,3 +2309,11 @@ https://nga.178.com/read.php?tid=41812443         nga的链接，疑似全
 
 那我觉得稍微提一嘴提醒下有解包，内容还是不要在这里讨论，毕竟是专楼而且离发售还两周
 
+
+*****
+
+####  adretyu67.  
+##### 929#       发表于 2024-9-26 22:01
+
+什么理想的自己，真就异世界P<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

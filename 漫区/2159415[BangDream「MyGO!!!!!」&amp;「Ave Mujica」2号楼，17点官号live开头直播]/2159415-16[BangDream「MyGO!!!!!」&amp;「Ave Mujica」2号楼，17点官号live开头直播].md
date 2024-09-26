@@ -13067,3 +13067,66 @@ msk这个花后质量真的算dfes吗……
 
 万圣m团箱活卡面
 
+
+*****
+
+####  rikaren  
+##### 23406#       发表于 2024-9-26 21:57
+
+<img src="https://img.saraba1st.com/forum/202409/26/215717qo73o0xgm4x3g3g6.jpg" referrerpolicy="no-referrer">
+
+<strong>1727359015768.jpg</strong> (279.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-26 21:57 上传
+
+<img src="https://img.saraba1st.com/forum/202409/26/215724bigg5f4rqgxzixl7.jpg" referrerpolicy="no-referrer">
+
+<strong>1727359018184.jpg</strong> (437.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-26 21:57 上传
+
+<img src="https://img.saraba1st.com/forum/202409/26/215735lff4umbqmbilkafm.jpg" referrerpolicy="no-referrer">
+
+<strong>1727359020866.jpg</strong> (266.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-26 21:57 上传
+
+<img src="https://img.saraba1st.com/forum/202409/26/215743bqeqqe66ita865nq.jpg" referrerpolicy="no-referrer">
+
+<strong>1727359023141.jpg</strong> (334.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-26 21:57 上传
+
+*****
+
+####  rikaren  
+##### 23407#       发表于 2024-9-26 21:59
+
+<img src="https://img.saraba1st.com/forum/202409/26/215859f220cpffppv41cpr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-09-26-21-58-44-13_149003a2d400f6adb210d7e357a3a646.jpg</strong> (243.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-26 21:58 上传
+
+啊，这个组合？lsl和m团两人认识吗
+
+
+*****
+
+####  NODY  
+##### 23408#       发表于 2024-9-26 22:03
+
+推子联动连剧情都没有，纯抽卡，你邦也是堕落了
+
+我信了那个go明年才有剧情是因为工艺蛋炸了以后压根没来得及做的说法了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

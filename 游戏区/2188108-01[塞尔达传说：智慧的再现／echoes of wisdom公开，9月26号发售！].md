@@ -3612,3 +3612,13 @@ amiibo刷三次后不用存档读取，直接切出去系统改时间，回来�
 林克 塞尔达 加农</blockquote>
 只有王泪这三amiibo能刷出衣服吗
 
+
+*****
+
+####  离魂仙  
+##### 939#       发表于 2024-9-26 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66309365&amp;ptid=2188108" target="_blank">liliguo1 发表于 2024-9-26 11:21</a>
+感觉上来先把沙漠打了是最好的，直接提供两大掀桌工具，下砸砖和飞天砖</blockquote>
+下砸砖是什么名字的？格鲁德我应该舔干净了没印象啊
+

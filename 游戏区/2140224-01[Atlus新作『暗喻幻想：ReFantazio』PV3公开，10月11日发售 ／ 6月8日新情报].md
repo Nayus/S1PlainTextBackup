@@ -2661,3 +2661,11 @@ The hero 英雄
 嗯... 原来这才是原版的，荣格心理原型呀！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/goose2017/046.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  抹茶瓜  
+##### 962#       发表于 2024-9-27 07:09
+
+没有狠活也没新意 有的只有吃不完的老本和似曾相识的内容，符合我的期望 剧透看了至少没什么劲爆地雷 看来中规中矩撑死
+

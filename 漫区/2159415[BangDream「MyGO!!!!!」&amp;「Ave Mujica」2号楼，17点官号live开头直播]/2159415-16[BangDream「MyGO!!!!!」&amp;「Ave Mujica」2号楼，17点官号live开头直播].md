@@ -12814,3 +12814,18 @@ wsd的惊世智慧
 是不是买了武士道的股票
 就可以去现场建议他们不要约那么多鬼图了
 
+
+*****
+
+####  御幸一也  
+##### 23392#       发表于 2024-9-26 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66313273&amp;ptid=2159415" target="_blank">skives10 发表于 2024-9-26 17:04</a>
+
+是不是买了武士道的股票
+
+就可以去现场建议他们不要约那么多鬼图了</blockquote>
+是 而且很便宜
+
+最少買100股，現在1股353羊，只要花35,300就能收到參加股東大會的邀請<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -2520,3 +2520,11 @@ https://nga.178.com/read.php?tid=41812443         nga的链接，疑似全
 
 过不了牛头人，一击全灭，等级太低了么<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仓鼠吃火锅  
+##### 953#       发表于 2024-9-27 01:24
+
+除了战斗系统像真女其他原汁原味p，原野攻击手感比类似的黎轨差不少，跑图模糊很伤眼
+

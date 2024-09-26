@@ -2109,3 +2109,29 @@ UI设计的话和P5一个级别吧，很有设计感但或多或少有些为风�
 
 在近一点（也没多近）葛叶雷道也算arpg吧，但是我没自己打过不清楚手感怎么样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adretyu67.  
+##### 910#       发表于 2024-9-26 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66313581&amp;ptid=2140224" target="_blank">walfeds 发表于 2024-9-26 17:30</a>
+
+在近一点（也没多近）葛叶雷道也算arpg吧，但是我没自己打过不清楚手感怎么样 ...</blockquote>
+1代很差，2代好了点但仍然还是不太行。
+
+你A还是琢磨弱点攻击比较好，别整些花架子
+
+
+*****
+
+####  Dreammask  
+##### 911#       发表于 2024-9-26 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66313581&amp;ptid=2140224" target="_blank">walfeds 发表于 2024-9-26 17:30</a>
+
+在近一点（也没多近）葛叶雷道也算arpg吧，但是我没自己打过不清楚手感怎么样 ...</blockquote>
+主要魔剑爻也是桥野导演的，有一点点对比性
+
+不过雷道确实能算ARPG，但手感方面除了挥剑音效找不到什么能算及格的部分，挺差劲的
+

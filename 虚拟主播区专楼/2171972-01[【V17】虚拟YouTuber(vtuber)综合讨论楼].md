@@ -29,3 +29,11 @@ solo记录又要被刷了，这样看rfm没上10w是不是打得有问题
 rfm又偶像又商法的，首周甚至首日比能有80%
 <img src="https://p.sda1.dev/19/eed5306d3c42fe8400cafc54b117044b/IMG_20240926_090019.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  渡鸦骑士  
+##### 778#       发表于 2024-9-26 12:45
+
+感觉rofmao迟早要散<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

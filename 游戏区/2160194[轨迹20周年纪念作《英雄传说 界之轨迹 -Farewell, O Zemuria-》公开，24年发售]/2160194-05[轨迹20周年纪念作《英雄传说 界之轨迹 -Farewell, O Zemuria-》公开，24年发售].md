@@ -71,3 +71,13 @@ ps5要从新下载
 
 季票670 还不包含其他消耗性道具 这下真是抢钱了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jacket  
+##### 5928#       发表于 2024-9-26 14:31
+
+现在平砍的属性是怎么算的，普通攻击还分物理和魔法吗？
+
+技能攻击倒是写的很清楚，里爷的技能都有魔法属性的。
+

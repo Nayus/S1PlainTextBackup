@@ -121,3 +121,14 @@
 
 看试玩反响都说挺好的，应该不会有什么问题吧
 
+
+*****
+
+####  直钩  
+##### 623#       发表于 2024-9-26 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66281111&amp;ptid=2093296" target="_blank">阿斯蓝 发表于 2024-9-23 14:02</a>
+
+贴吧说三分之二是女性员工，这么多女生开发。。有点慌</blockquote>
+那不用期待了，剧情怕不是一股子小红书的rz味<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+

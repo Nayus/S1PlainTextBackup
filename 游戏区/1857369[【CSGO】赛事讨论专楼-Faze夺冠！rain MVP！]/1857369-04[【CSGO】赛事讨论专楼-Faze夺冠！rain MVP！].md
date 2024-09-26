@@ -73,3 +73,11 @@ A队历史上好像没被零封过吧<img src="https://static.saraba1st.com/imag
 
 给李神做个一键扫荡功能吧别浪费大家时间了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  heseran  
+##### 4465#       发表于 2024-9-26 22:34
+
+我还以为G2图一要拿下了，原来是虚惊一场，装模做样的，赶快输了回家吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

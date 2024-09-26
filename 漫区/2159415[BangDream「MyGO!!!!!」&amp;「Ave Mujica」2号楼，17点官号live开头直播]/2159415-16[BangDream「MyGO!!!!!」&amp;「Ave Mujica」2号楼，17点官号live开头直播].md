@@ -13230,3 +13230,37 @@ WSD的产能都去哪了</blockquote>
 可能都拿去給你雞找鬼圖畫師了吧</blockquote>
 感觉不如向鸡粉众筹<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ShikiM  
+##### 23420#       发表于 2024-9-26 22:26
+
+说不定是单纯懒得搞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 23421#       发表于 2024-9-26 22:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">懒得搞的概率其实……确实不低
+
+
+*****
+
+####  NODY  
+##### 23422#       发表于 2024-9-26 22:30
+
+wsd要有产能少歌手游就不会似了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+现在wsd直营的ip手游不是卖了就是似了，就剩个邦苟延残喘，还会偶尔鸽活动剧情
+
+*****
+
+####  星天观测  
+##### 23423#       发表于 2024-9-26 22:34
+
+西八，就这我还得抽lisa
+
+晕过去了
+

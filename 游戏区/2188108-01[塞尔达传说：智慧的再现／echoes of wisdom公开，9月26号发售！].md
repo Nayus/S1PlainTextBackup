@@ -3219,3 +3219,38 @@ amiibo刷三次后不用存档读取，直接切出去系统改时间，回来�
 
 城里没人认识林克，这林克不会刚出村子就直接去救公主了吧，居然是个玩速通的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  小姜不辣  
+##### 898#       发表于 2024-9-26 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66308467&amp;ptid=2188108" target="_blank">沉墨1st 发表于 2024-9-26 10:13</a>
+城里没人认识林克，这林克不会刚出村子就直接去救公主了吧，居然是个玩速通的 ...</blockquote>
+这林克一开始就是满血，可能是其他世界线的林克穿越过来的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  墨染白泉  
+##### 899#       发表于 2024-9-26 10:19
+
+林克7天就满级神装去救公主了，效率爆炸
+
+*****
+
+####  Slyvan  
+##### 900#       发表于 2024-9-26 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66308467&amp;ptid=2188108" target="_blank">沉墨1st 发表于 2024-9-26 10:13</a>
+
+城里没人认识林克，这林克不会刚出村子就直接去救公主了吧，居然是个玩速通的 ...</blockquote>
+像是二周目的, 满血 ,  武器道具都是顶级的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  医生狼多  
+##### 901#         楼主| 发表于 2024-9-26 10:25
+
+（剧透）高清地图 [https://pan.baidu.com/s/1NaUFexeBNZUplEioPBrtNA?pwd=f7aj](https://pan.baidu.com/s/1NaUFexeBNZUplEioPBrtNA?pwd=f7aj)
+

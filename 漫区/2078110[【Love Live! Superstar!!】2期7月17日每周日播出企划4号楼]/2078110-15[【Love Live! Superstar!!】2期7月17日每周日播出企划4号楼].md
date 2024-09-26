@@ -1302,3 +1302,41 @@ ll要日剧化？这算半个新团不？
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  雨井绫  
+##### 21080#       发表于 2024-9-26 08:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66307376&amp;ptid=2078110" target="_blank">cat1230 发表于 2024-9-26 08:23</a>
+
+ll要日剧化？这算半个新团不？
+
+----发送自 Xiaomi Redmi K20 Pro,Android 9</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">算旧团，音乐剧企划都是2022年开始的了，这个日剧是音乐剧企划改编的。
+
+但是这个真人剧没有用音乐剧的演员，而是请了一批不同女团的成员来演。从这群人的身份上来看她们就不可能长期以这个企划的身份活动，估计也就播的时候炒作炒作。
+
+
+*****
+
+####  starring  
+##### 21081#       发表于 2024-9-26 09:21
+
+看了演员表，有两个角色还是沿用音乐剧的演员
+
+*****
+
+####  蜜梨柑  
+##### 21082#       发表于 2024-9-26 10:00
+
+万代还在挣扎着从圈外引流吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 21083#       发表于 2024-9-26 10:23
+
+虽然情况完全不一样，但是隔壁当年换声音都吃不透，这直接换人可行么。
+不会是明年新团的试行吧，新团是完全真人的偶像剧团什么的
+

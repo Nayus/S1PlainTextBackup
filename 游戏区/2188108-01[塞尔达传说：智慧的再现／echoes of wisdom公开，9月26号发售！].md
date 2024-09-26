@@ -3544,3 +3544,13 @@ amiibo刷三次后不用存档读取，直接切出去系统改时间，回来�
 
 中午又玩了一下,  遇到敌人直接控着不动让小弟打 , 跟打团似的  , 加上渡鸦会爆米, 好爽
 
+
+*****
+
+####  king520kyo  
+##### 932#       发表于 2024-9-26 15:53
+
+昨天打了一晚上主线没怎么走都在跑图。进度到能进左拉大迷宫，世界地图已经开了大半了。
+因为塞尔达转转用着比林克回旋斩方便一路上割草割的不亦乐乎<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+不过马就比野炊还没用了。初期开图不需要，后面传送点那么多直接传送了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

@@ -1964,3 +1964,11 @@ gameplay的QoL体验挺通人性，可以战斗内restart好评，可以一口�
 
 尬演程度也不算太严重，老头从入队到刺杀都是有逻辑的，已经比潭游3唐突出现的谜语人大叔强太多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哎哟卧槽了  
+##### 896#       发表于 2024-9-26 15:47
+
+demo可以了，等完全版就买<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

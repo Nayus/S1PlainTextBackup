@@ -2317,3 +2317,20 @@ https://nga.178.com/read.php?tid=41812443         nga的链接，疑似全
 
 什么理想的自己，真就异世界P<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  抽烟的猴  
+##### 930#       发表于 2024-9-26 22:07
+
+如果剧透是真的，感觉挺平庸的，没屎更没亮点
+
+*****
+
+####  猫沢  
+##### 931#       发表于 2024-9-26 22:08
+
+这下子得断网了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

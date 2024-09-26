@@ -13130,3 +13130,39 @@ msk这个花后质量真的算dfes吗……
 
 我信了那个go明年才有剧情是因为工艺蛋炸了以后压根没来得及做的说法了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 23409#       发表于 2024-9-26 22:07
+
+推子联动剧情真不如不写，漫画都抽象成什么样了（
+
+
+*****
+
+####  御幸一也  
+##### 23410#       发表于 2024-9-26 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66316279&amp;ptid=2159415" target="_blank">NODY 发表于 2024-9-26 22:03</a>
+
+推子联动连剧情都没有，纯抽卡，你邦也是堕落了
+
+我信了那个go明年才有剧情是因为工艺蛋炸了以后压根没来得 ...</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“都是avemujica不播的錯”
+
+*****
+
+####  skives  
+##### 23411#       发表于 2024-9-26 22:14
+
+推子这剧情也没法写吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 23412#       发表于 2024-9-26 22:15
+
+从目前种种迹象来看，go拖剧情到明年的问题出在手游方的可能性非常大，什么配合动画应该是借口，甚至包括mujica拖到明年也有一部分原因可能是因为手游那边炸了没赶上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

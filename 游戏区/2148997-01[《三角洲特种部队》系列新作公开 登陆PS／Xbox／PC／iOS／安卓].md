@@ -135,3 +135,11 @@ COD的战区作为BR也是往强调战战战的方向改，恨不得从头打到
 
 打了几盘战地模式，除了各种爆炸特效比较一般（毕竟支持手机端），其他都还可以。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ryanghj  
+##### 60#       发表于 2024-9-26 22:08
+
+玩了一晚上，没人会开直升机，一堆起飞就坠毁的<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">开小鸟疯狂捞薯条
+

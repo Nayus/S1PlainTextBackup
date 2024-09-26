@@ -32,3 +32,13 @@
 
 不是阿金，我new呢<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江戸前ルナ  
+##### 1219#         楼主| 发表于 2024-9-26 19:05
+
+这背影之前完全没看出是小结<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+还有这水滴效果……总之就是为了卖衣服不择手段对吧，其他的内容直接摆烂（比如进入10月就是24年秋了，说好的24年夏主线更新呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -12829,3 +12829,11 @@ wsd的惊世智慧
 
 最少買100股，現在1股353羊，只要花35,300就能收到參加股東大會的邀請<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 23393#       发表于 2024-9-26 18:04
+
+这下买谷子不如买股票了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

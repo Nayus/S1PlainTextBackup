@@ -2002,3 +2002,38 @@ demo可以了，等完全版就买<img src="https://static.saraba1st.com/image/s
 
 怎么没大力水手啊
 
+
+*****
+
+####  宅🍐eriri  
+##### 900#       发表于 2024-9-26 16:42
+
+<img src="https://img.saraba1st.com/forum/202409/26/163940r2mn2iie2zedyi2w.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (41.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-26 16:39 上传
+
+这优化有点太烂了，帧数是能跑上去但一转视角直接掉到三四十帧，显卡也经常降频稳不住
+
+*****
+
+####  Schwarzess  
+##### 901#       发表于 2024-9-26 16:45
+
+看到有漏油用deck玩，能麻烦展开说说demo效果如何么？<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+发售的时候用不到ps5和pc，目测只能deck玩。<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猫沢  
+##### 902#       发表于 2024-9-26 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66306385&amp;ptid=2140224" target="_blank">suzakushi 发表于 2024-9-26 00:31</a>
+目前来看所有人都可以换任意阿基态，那角色特色体现在哪，玩到后面就固定阿基态选几个顺眼角色上场？哦对， ...</blockquote>
+我也有这个问题，还不如直接转职非要套个阿基态脱裤子放屁。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

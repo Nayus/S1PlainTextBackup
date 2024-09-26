@@ -2505,3 +2505,18 @@ https://nga.178.com/read.php?tid=41812443         nga的链接，疑似全
 
 武僧好强 初期羁绊技能直接给了个小八艘跳 
 
+
+*****
+
+####  check  
+##### 951#       发表于 2024-9-27 00:41
+
+打完了，游戏玩法还是没走出p系列的框架，感觉创新了个寂寞。
+
+*****
+
+####  bwsusaga  
+##### 952#       发表于 2024-9-27 00:42
+
+过不了牛头人，一击全灭，等级太低了么<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

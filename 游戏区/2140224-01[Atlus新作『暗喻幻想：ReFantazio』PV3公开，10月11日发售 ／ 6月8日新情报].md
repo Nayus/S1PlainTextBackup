@@ -2050,3 +2050,21 @@ demo可以了，等完全版就买<img src="https://static.saraba1st.com/image/s
 论坛助手,iPhone ...</blockquote>
 是这样的，主角好歹还能自己加个点，其他角色目前看不出区别在哪。
 
+
+*****
+
+####  我是谁无名氏  
+##### 904#       发表于 2024-9-26 17:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">看坛友说PC优化不行，PS5表现咋样，还没空两边都试试
+
+
+*****
+
+####  walfeds  
+##### 905#       发表于 2024-9-26 17:17
+
+我突然有点好奇你们是怎么评价别的游戏的职业系统的，比如勇气默示录<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+说脱裤子放屁有点汗流浃背了，你不许搞设定做包装（
+

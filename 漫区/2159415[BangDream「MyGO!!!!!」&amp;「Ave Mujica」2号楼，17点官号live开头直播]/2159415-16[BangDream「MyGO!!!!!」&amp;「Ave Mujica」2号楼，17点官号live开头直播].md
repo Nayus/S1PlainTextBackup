@@ -12925,3 +12925,42 @@ wsd的惊世智慧
 
 msk这个花后质量真的算dfes吗……
 
+
+*****
+
+####  rikaren  
+##### 23400#       发表于 2024-9-26 21:42
+
+我超，真是推子，而且怎么感觉会是五张五星。
+
+
+*****
+
+####  skives10  
+##### 23401#       发表于 2024-9-26 21:42
+
+大赤老师还在追我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 23402#       发表于 2024-9-26 21:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202409/26/214228s2d2eecp1jju2iie.png" referrerpolicy="no-referrer">
+
+<strong>バンドリ！TV LIVE 2024 #233 50-25 screenshot.png</strong> (3.59 MB, 下载次数: 0)
+
+下载附件
+
+2024-9-26 21:42 上传
+
+<img src="https://img.saraba1st.com/forum/202409/26/214310s6pap6m0zm699f59.png" referrerpolicy="no-referrer">
+
+<strong>バンドリ！TV LIVE 2024 #233 51-5 screenshot.png</strong> (3.61 MB, 下载次数: 0)
+
+下载附件
+
+2024-9-26 21:43 上传
+

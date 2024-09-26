@@ -2257,3 +2257,47 @@ UI设计的话和P5一个级别吧，很有设计感但或多或少有些为风�
 哪里有剧透，我想看</blockquote>
        [https://nga.178.com/read.php?tid=41812443](https://nga.178.com/read.php?tid=41812443)         nga的剧情梗概，疑似全透了不是真的想看不要点
 
+
+*****
+
+####  otaku21126  
+##### 924#       发表于 2024-9-26 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66315935&amp;ptid=2140224" target="_blank">迷雾塔 发表于 2024-9-26 21:32</a>
+哪里有剧透，我想看</blockquote>
+来源是睿站用户romfun520，玩破解的
+看起来是由于这游戏给每个章节写了纯文本提要概述，所以试玩版虽然游戏资源不全，但是文本却包含在试玩版里了，所以一解包就全出来了
+
+*****
+
+####  迷雾塔  
+##### 925#       发表于 2024-9-26 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66315969&amp;ptid=2140224" target="_blank">supersssbc 发表于 2024-9-26 21:35</a>
+
+https://nga.178.com/read.php?tid=41812443         nga的链接，疑似全透了不是真的想看不要点 ...</blockquote>
+谢谢<img src="https://static.saraba1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  otaku21126  
+##### 926#       发表于 2024-9-26 21:41
+
+根据解包来看，其实意外的王道路线啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+当然对于贴吧和S1来说，游戏里其实没有什么meta元素倒是绝对意想不到的点
+有点太幽默了
+
+
+*****
+
+####  迷雾塔  
+##### 927#       发表于 2024-9-26 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66315988&amp;ptid=2140224" target="_blank">otaku21126 发表于 2024-9-26 21:37</a>
+
+来源是睿站用户romfun520，玩破解的
+
+看起来是由于这游戏给每个章节写了纯文本提要概述，所以试玩版虽然游 ...</blockquote>
+什么草台班子做得试玩版（）<img src="https://static.saraba1st.com/image/smiley/face/187.gif" referrerpolicy="no-referrer">
+

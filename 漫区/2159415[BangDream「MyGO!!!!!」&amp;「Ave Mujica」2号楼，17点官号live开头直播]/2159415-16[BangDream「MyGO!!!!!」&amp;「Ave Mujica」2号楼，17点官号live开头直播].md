@@ -12786,3 +12786,31 @@ wsd的惊世智慧
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  御幸一也  
+##### 23389#       发表于 2024-9-26 16:58
+
+下午就刷到了，有兩個人寫了武士道股東大會的repo
+[https://x.com/kenny_desu/status/1839187400322593260](https://x.com/kenny_desu/status/1839187400322593260)
+[https://x.com/matcha_popipa/status/1839152739835863387](https://x.com/matcha_popipa/status/1839152739835863387)
+
+無聊可以看看<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  六道明  
+##### 23390#       发表于 2024-9-26 17:03
+
+鬼子也觉得蛋白棒难吃，亚力克版死贵啊<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 23391#       发表于 2024-9-26 17:04
+
+是不是买了武士道的股票
+就可以去现场建议他们不要约那么多鬼图了
+

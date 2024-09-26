@@ -2037,3 +2037,16 @@ demo可以了，等完全版就买<img src="https://static.saraba1st.com/image/s
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  suzakushi  
+##### 903#       发表于 2024-9-26 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66313054&amp;ptid=2140224" target="_blank">猫沢 发表于 2024-9-26 16:45</a>
+
+我也有这个问题，还不如直接转职非要套个阿基态脱裤子放屁。
+
+论坛助手,iPhone ...</blockquote>
+是这样的，主角好歹还能自己加个点，其他角色目前看不出区别在哪。
+

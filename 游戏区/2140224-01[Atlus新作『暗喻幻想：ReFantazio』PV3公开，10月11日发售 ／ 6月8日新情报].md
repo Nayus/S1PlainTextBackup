@@ -2480,3 +2480,13 @@ https://nga.178.com/read.php?tid=41812443         nga的链接，疑似全
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  zmny  
+##### 948#       发表于 2024-9-26 23:45
+
+有这么不堪吗，让我觉得体验最差的还是跑起来啥都看不见，全是白的
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

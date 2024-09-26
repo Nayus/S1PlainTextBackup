@@ -37,3 +37,11 @@ rfm又偶像又商法的，首周甚至首日比能有80%
 
 感觉rofmao迟早要散<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aritaatsu222  
+##### 779#       发表于 2024-9-26 12:58
+
+散个卵，不破从21年刚结成节目随便撞到后面撞了转会限到现在隔几周就要被抓去生放，明显越来越倚重，能卖到ankr倒闭前一天
+

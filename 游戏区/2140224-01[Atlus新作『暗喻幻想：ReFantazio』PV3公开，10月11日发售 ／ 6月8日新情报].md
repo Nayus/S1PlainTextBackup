@@ -2598,3 +2598,66 @@ demo打到刚进矿洞，目前体验还行就是妖精之眼和奔跑的特效�
 
 打完 demo 感觉没啥新意，UI 设计如果不是后面有活的话现在就是看着很脏，感觉这作评价很大程度要靠剧情方面去定了
 
+
+*****
+
+####  الطائر  
+##### 961#       发表于 2024-9-27 06:53
+
+<blockquote>大家做的这个心理测试背后的12个原型，其实来自 皮尔森-马-心理原型指数 (PMAI Archetype) ，是皮尔森和另外一位学者合著的一套心理测评体系，为此还开了公司，并还注册了商标哦
+
+[https://www.capt.org/pmai-assessment/archetype-assessment-personality.htm?bhcp=1](https://www.douban.com/link2/?url=https%3A%2F%2Fwww.capt.org%2Fpmai-assessment%2Farchetype-assessment-personality.htm%3Fbhcp%3D1&amp;link2key=569ee4410d)
+
+打开上面的连接，就可以看到我们熟悉的十二个原型了，分别叫做
+
+Innocent (天真者）
+
+Orphan （孤儿）
+
+Warrior （战士）
+
+Caregiver （照顾者）
+
+Seeker （追寻者）
+
+Lover (爱人）
+
+Destroyer （毁灭者）
+
+Creator （创造者）
+
+Ruler （统治者）
+
+Magician （魔术师）
+
+Sage （圣人）
+
+Jester (使人快乐者）</blockquote><blockquote>荣格把心理原型先分成 事件 （events），具象（figures）和 主题（motifs）三个大类
+
+Jung describedarchetypal events: birth, death, separation from parents, initiation, marriage, the union of opposites;archetypal figures: great mother, father,child,devil,god,wise old man,wise old woman, thetrickster, thehero; andarchetypal motifs: the apocalypse, the deluge, the creation.
+
+里面的具象（figures）分类，和我们看到的12个人格原型最类似
+
+按照荣格的定义，这里主要的9个原型的名字分别是
+
+Great Mother 伟大的母亲
+
+Father 父亲
+
+Child 孩子
+
+Devil 魔鬼
+
+God 神
+
+Wise old man 睿智的老夫
+
+Wise old woman 睿智的老妇
+
+The trickster 骗子
+
+The hero 英雄
+
+嗯... 原来这才是原版的，荣格心理原型呀！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/goose2017/046.png" referrerpolicy="no-referrer"> 
+

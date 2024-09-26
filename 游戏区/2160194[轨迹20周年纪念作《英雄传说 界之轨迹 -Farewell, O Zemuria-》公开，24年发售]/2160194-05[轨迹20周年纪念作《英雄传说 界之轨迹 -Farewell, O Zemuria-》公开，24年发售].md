@@ -89,3 +89,52 @@ ps5要从新下载
 
 实体还没发货，有没有盖棺定论，咚了没，和黎2比如何。<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 5930#       发表于 2024-9-26 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66311629&amp;ptid=2160194" target="_blank">绫崎飒 发表于 2024-9-26 14:57</a>
+
+实体还没发货，有没有盖棺定论，咚了没，和黎2比如何。</blockquote>
+咚了，通马桶轨迹，但是比黎2多少有点活
+
+*****
+
+####  绫崎飒  
+##### 5931#       发表于 2024-9-26 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66311680&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-26 15:00</a>
+
+咚了，通马桶轨迹，但是比黎2多少有点活</blockquote>
+服了，又是闪12345完美复刻是吧。
+
+*****
+
+####  绫崎飒  
+##### 5932#       发表于 2024-9-26 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66311680&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-26 15:00</a>
+
+咚了，通马桶轨迹，但是比黎2多少有点活</blockquote>
+服了，又是闪12345完美复刻是吧。
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 5933#       发表于 2024-9-26 15:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66311629&amp;ptid=2160194" target="_blank">绫崎飒 发表于 2024-9-26 14:57</a>
+
+实体还没发货，有没有盖棺定论，咚了没，和黎2比如何。</blockquote>
+我玩到第二部通了两条线，其实整体剧情观感确实还挺像闪3的，我个人对闪3评价相当高，是闪轨四部曲里我个人最喜欢的一部，所以界轨目前体感也还行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。反正这个剧情肯定是咚了，要求轨迹这种连续剧不许咚我觉得本来就是一个很奇怪的要求，又不是不填坑了，后面还有至少四五部呢
+
+
+*****
+
+####  古畑任三郎2015  
+##### 5934#       发表于 2024-9-26 15:06
+
+等一下，按照这剧情，眼镜这个角色是不是有点像xg的卡雷鲁莲啊
+

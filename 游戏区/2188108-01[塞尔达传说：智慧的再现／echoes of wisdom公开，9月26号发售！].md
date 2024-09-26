@@ -3498,3 +3498,13 @@ amiibo刷三次后不用存档读取，直接切出去系统改时间，回来�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  沧兰殇  
+##### 927#       发表于 2024-9-26 15:04
+
+智慧的食肉动物-塞尔达！<img src="https://p.sda1.dev/19/aae5447fc93a48fa35731c135d8a3bdc/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

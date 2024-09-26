@@ -175,3 +175,11 @@ ps5要从新下载
 
 就怕全收集了，界轨还没发货
 
+
+*****
+
+####  哆哆鸡  
+##### 5939#       发表于 2024-9-26 19:11
+
+就玩了个序章，这开局大家吃自助餐的场景也太像闪3了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -12837,3 +12837,18 @@ wsd的惊世智慧
 
 这下买谷子不如买股票了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 23394#       发表于 2024-9-26 19:10
+
+买谷子至少没那么容易消失（，wsd的股票能保证不突然股价蒸发吗（
+
+*****
+
+####  skives10  
+##### 23395#       发表于 2024-9-26 19:12
+
+已经在谷底了 怎么走都是向上.jpg
+

@@ -3764,3 +3764,11 @@ amiibo刷三次后不用存档读取，直接切出去系统改时间，回来�
 
 其他的大多就是针对环境功能性直接按-键选，整体下来还是挺流畅的
 
+
+*****
+
+####  ColAMK  
+##### 950#       发表于 2024-9-26 19:44
+
+人气低吗，总不能卖不过织梦岛吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

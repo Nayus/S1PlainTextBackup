@@ -2301,3 +2301,11 @@ https://nga.178.com/read.php?tid=41812443         nga的链接，疑似全
 看起来是由于这游戏给每个章节写了纯文本提要概述，所以试玩版虽然游 ...</blockquote>
 什么草台班子做得试玩版（）<img src="https://static.saraba1st.com/image/smiley/face/187.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  supersssbc  
+##### 928#       发表于 2024-9-26 21:53
+
+那我觉得稍微提一嘴提醒下有解包，内容还是不要在这里讨论，毕竟是专楼而且离发售还两周
+

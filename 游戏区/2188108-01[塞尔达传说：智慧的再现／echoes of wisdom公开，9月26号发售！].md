@@ -3178,3 +3178,14 @@ amiibo是随机出东西还是像王泪野炊那种部分amiibo有特殊道具�
 
 真好玩啊, 昨晚失眠, 早知道玩多两小时了 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  库德里尔  
+##### 893#       发表于 2024-9-26 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66308226&amp;ptid=2188108" target="_blank">yohyoh4966 发表于 2024-9-26 09:52</a>
+
+amiibo是随机出东西还是像王泪野炊那种部分amiibo有特殊道具？</blockquote>
+据说是有衣服的。但是详情未知。
+

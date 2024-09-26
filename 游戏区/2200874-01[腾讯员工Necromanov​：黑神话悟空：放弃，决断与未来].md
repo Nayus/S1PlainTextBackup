@@ -969,3 +969,17 @@ DLC你觉得是应该归类于持续服务型里么，我个人觉得还是买�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">如果是AI总结的这样  那说的没什么问题吧
 
+
+*****
+
+####  yuandi0120  
+##### 75#       发表于 2024-9-26 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66307435&amp;ptid=2200874" target="_blank">zhouaa 发表于 2024-9-26 08:32</a>
+如果是AI总结的这样  那说的没什么问题吧</blockquote>
+主要还是因为他列的这些原因是必要条件而不是充分条件就让人觉着是在事后诸葛亮了。
+
+就是说不搞取舍的游戏固然确实会死，但是善于取舍的游戏也不是一定会赢，现在你单独把赢的例子拿出来说就有一点正确的废话意思了。
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

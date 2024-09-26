@@ -2135,3 +2135,15 @@ UI设计的话和P5一个级别吧，很有设计感但或多或少有些为风�
 
 不过雷道确实能算ARPG，但手感方面除了挥剑音效找不到什么能算及格的部分，挺差劲的
 
+
+*****
+
+####  ping117  
+##### 912#       发表于 2024-9-26 18:17
+
+中世纪设定各种土，吐槽不能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还不如继续做P6算了
+
+搞个换皮P5，除了土半点新鲜玩意都没有，快玩睡了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

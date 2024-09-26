@@ -471,3 +471,27 @@ PS4同期也有GTS和瑞奇与叮当啊，绝地潜兵一代也在这一时期�
 
 官方定价7500rmb差不多<img src="https://p.sda1.dev/19/11106e1c8e3d6b6cbc2771c6d7fc9cef/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  灼热的小市民  
+##### 42#       发表于 2024-9-26 18:19
+
+今天开预订秒没，抢不到真抢不到，普通pro太贵也没兴趣不如等ps6<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王苍幻  
+##### 43#       发表于 2024-9-26 18:21
+
+手柄能用在pc上么？
+
+*****
+
+####  医生狼多  
+##### 44#         楼主| 发表于 2024-9-26 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66314103&amp;ptid=2199998" target="_blank">王苍幻 发表于 2024-9-26 18:21</a>
+手柄能用在pc上么？</blockquote>
+可以，不过特性适配要看游戏支持情况
+

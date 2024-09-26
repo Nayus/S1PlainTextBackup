@@ -4193,3 +4193,13 @@ Made in CHINA
 
 打完第一个迷宫，真舒服呀这种没什么压力的冒险感，美术也赏心悦目，按键确实容易手忙脚乱<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cy6959  
+##### 988#       发表于 2024-9-27 00:12
+
+沙漠神殿boss门左边的宝箱怎么拿？
+
+—— 来自 nubia NX729J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

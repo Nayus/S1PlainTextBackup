@@ -1399,3 +1399,11 @@ ll要日剧化？这算半个新团不？
 
 18区5排3座……反正也只能听个响了
 
+
+*****
+
+####  蜜梨柑  
+##### 21090#       发表于 2024-9-26 21:18
+
+看台一区13排10座，是不是山顶最高处了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

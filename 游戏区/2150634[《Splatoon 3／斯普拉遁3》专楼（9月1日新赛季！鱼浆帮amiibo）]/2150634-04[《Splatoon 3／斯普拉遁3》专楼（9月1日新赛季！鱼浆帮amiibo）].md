@@ -5719,3 +5719,15 @@ MAGIACE的直播看过一阵子了，感觉他的消防栓比Abyss和Naegora差�
 MAGIACE的直播看过一阵子了，感觉他的消防栓比Abyss和Naegora差很多啊，操作看起来很唬人（APM高、身法娴熟 ...</blockquote>
 abyss最近操作也下降不少，可能没了冲劲
 
+
+*****
+
+####  罗克萨斯  
+##### 5467#       发表于 2024-9-26 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66315569&amp;ptid=2150634" target="_blank">幽香 发表于 2024-9-26 20:57</a>
+abyss最近操作也下降不少，可能没了冲劲</blockquote>
+他三个（也可能四个）模式赛季末都进入前十过，已经燃尽了，估计确实没啥动力了。而且他年龄在上位势里应该算很大的了，已经走在下坡路上了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

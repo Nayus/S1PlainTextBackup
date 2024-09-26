@@ -2197,3 +2197,13 @@ UI设计的话和P5一个级别吧，很有设计感但或多或少有些为风�
 发售的时候用不到ps5和pc，目测只能deck玩。 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">跟p3r这种完全没法比，场景太大了720p50%渲染都稳不了30帧。。。真的劝退
 
+
+*****
+
+####  罗克萨斯  
+##### 918#       发表于 2024-9-26 21:23
+
+多多目前百亿特卖301，有8折优惠的能300以下
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

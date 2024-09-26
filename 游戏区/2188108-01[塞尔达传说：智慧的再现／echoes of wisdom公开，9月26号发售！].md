@@ -3970,3 +3970,152 @@ Made in CHINA
 
 火地刺爆炸都试过了
 
+
+*****
+
+####  shinnfin  
+##### 972#       发表于 2024-9-26 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66315678&amp;ptid=2188108" target="_blank">woui003woui 发表于 2024-9-26 21:09</a>
+卓拉那边有个放在木头上的宝箱怎么也想不出来是怎么解的= =
+
+火地刺爆炸都试过了 ...</blockquote>
+截个图呢  刚过水迷宫  没啥难的点啊
+
+*****
+
+####  库德里尔  
+##### 973#       发表于 2024-9-26 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66315678&amp;ptid=2188108" target="_blank">woui003woui 发表于 2024-9-26 21:09</a>
+卓拉那边有个放在木头上的宝箱怎么也想不出来是怎么解的= =
+
+火地刺爆炸都试过了 ...</blockquote>
+卓拉已经没印象了 但是好像没有很难拿的宝箱
+得截图看看
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  aaronluray  
+##### 974#       发表于 2024-9-26 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66315678&amp;ptid=2188108" target="_blank">woui003woui 发表于 2024-9-26 21:09</a>
+
+卓拉那边有个放在木头上的宝箱怎么也想不出来是怎么解的= =
+
+火地刺爆炸都试过了 ...</blockquote>
+如果是我猜的那个，用炸弹鱼，同步带上去
+
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 975#       发表于 2024-9-26 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66307602&amp;ptid=2188108" target="_blank">小姜不辣 发表于 2024-9-26 08:54</a>
+能放怪物后确实很爽，宝可梦也可以借鉴一下这种战斗方式</blockquote>
+朱紫就有Let'sGo模式对战，巴布土拨还必须这样进化。
+就是过程不展示只给道具收集结果<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  woui003woui  
+##### 976#       发表于 2024-9-26 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66315746&amp;ptid=2188108" target="_blank">shinnfin 发表于 2024-9-26 21:16</a>
+
+截个图呢  刚过水迷宫  没啥难的点啊</blockquote>
+地图上在这个位置
+
+<img src="https://img.saraba1st.com/forum/202409/26/212147pihoyho9flf3iohh.jpg" referrerpolicy="no-referrer">
+
+<strong>2024092621171300-CD8DDEDFE332FE055C049150B035121B.jpg</strong> (168.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-26 21:21 上传
+
+<img src="https://img.saraba1st.com/forum/202409/26/212158jx36s4qs63au3xub.jpg" referrerpolicy="no-referrer">
+
+<strong>2024092621181100-CD8DDEDFE332FE055C049150B035121B.jpg</strong> (171.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-26 21:21 上传
+
+<img src="https://img.saraba1st.com/forum/202409/26/212207a1898oivyely8m7m.jpg" referrerpolicy="no-referrer">
+
+<strong>2024092621182200-CD8DDEDFE332FE055C049150B035121B.jpg</strong> (140.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-26 21:22 上传
+
+<img src="https://img.saraba1st.com/forum/202409/26/212216o02ffgzdeecjy2dj.jpg" referrerpolicy="no-referrer">
+
+<strong>2024092621182800-CD8DDEDFE332FE055C049150B035121B.jpg</strong> (177 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-26 21:22 上传
+
+*****
+
+####  库德里尔  
+##### 977#       发表于 2024-9-26 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66315810&amp;ptid=2188108" target="_blank">woui003woui 发表于 2024-9-26 21:22</a>
+
+地图上在这个位置</blockquote>
+有数种解法
+
+第一种能想到的是，绿叶植物+矮桌能刚好塞满这个高度差，以及它们都会着火
+
+第二种是举炸弹，楼上说到了
+
+*****
+
+####  woui003woui  
+##### 978#       发表于 2024-9-26 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66315786&amp;ptid=2188108" target="_blank">aaronluray 发表于 2024-9-26 21:19</a>
+
+如果是我猜的那个，用炸弹鱼，同步带上去</blockquote>
+感觉应该是这个思路<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">我试下
+
+*****
+
+####  woui003woui  
+##### 979#       发表于 2024-9-26 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66315825&amp;ptid=2188108" target="_blank">库德里尔 发表于 2024-9-26 21:23</a>
+
+有数种解法
+
+第一种能想到的是，绿叶植物+矮桌能刚好塞满这个高度差，以及它们都会着火
+
+第二种是举炸弹， ...</blockquote>
+着火思路试了不行，应该是强制用炸弹，之前没同步带上去过尝试只在底下垫了两下
+
+*****
+
+####  hisousihou  
+##### 980#       发表于 2024-9-26 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66315678&amp;ptid=2188108" target="_blank">woui003woui 发表于 2024-9-26 21:09</a>
+
+卓拉那边有个放在木头上的宝箱怎么也想不出来是怎么解的= =
+
+火地刺爆炸都试过了 ...</blockquote>
+就是火烧，堆高点就能烧到了
+
+木木木
+
+   盆
+
+   栽火
+
+   桌盆
+

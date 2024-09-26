@@ -1972,3 +1972,11 @@ gameplay的QoL体验挺通人性，可以战斗内restart好评，可以一口�
 
 demo可以了，等完全版就买<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑修士  
+##### 897#       发表于 2024-9-26 16:02
+
+不知道"王中王"难度所谓高风险高收益具体会是啥样，二周目职业成型后玩套路打法好像也没什么意思
+

@@ -3508,3 +3508,11 @@ amiibo刷三次后不用存档读取，直接切出去系统改时间，回来�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  Khellendros  
+##### 928#       发表于 2024-9-26 15:09
+
+北方机械化林克大战南方奴隶主塞尔达，我们海拉鲁也有自己的南北战争<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+

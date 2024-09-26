@@ -2443,3 +2443,40 @@ https://nga.178.com/read.php?tid=41812443         nga的链接，疑似全
 问题就在于戏份太少+巧合太多啊，站在主角和玩家视点，牢凡的来历不明、装置是什么也不明，单纯就是因为自己某种前世缘分被他看中托付了任务，这份任务还和自己十年当兵生涯的世界观完全冲突。
 实际剧情上几个人也确实没有听他引导，上一秒牢凡死了托付大事，下一秒就照常各回各家了。真正把主角推上正路的反而是家里人的追杀。
 
+
+*****
+
+####  NEIN  
+##### 944#       发表于 2024-9-26 23:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66316980&amp;ptid=2140224" target="_blank">bwsusaga 发表于 2024-9-26 23:22</a>
+比鸟人简单</blockquote>
+草，亏了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  bwsusaga  
+##### 945#       发表于 2024-9-26 23:39
+
+哥布林弱点是啥，某个宝箱房间里一只，偷袭都能反杀全灭<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  jajajzz  
+##### 946#       发表于 2024-9-26 23:39
+
+所以很多试玩不带PC是有原因的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  windtrack_qh  
+##### 947#       发表于 2024-9-26 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66317107&amp;ptid=2140224" target="_blank">bwsusaga 发表于 2024-9-26 23:39</a>
+哥布林弱点是啥，某个宝箱房间里一只，偷袭都能反杀全灭</blockquote>
+没弱点 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

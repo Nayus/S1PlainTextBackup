@@ -3156,3 +3156,25 @@ Boss 战很有趣，比传统2D的boss战有趣的多
 +号直切是啥？</blockquote>
 按+号打开复制品图鉴总览以后，直接在这个界面选要用的复制品
 
+
+*****
+
+####  yohyoh4966  
+##### 891#       发表于 2024-9-26 09:52
+
+amiibo是随机出东西还是像王泪野炊那种部分amiibo有特殊道具？
+
+
+*****
+
+####  Slyvan  
+##### 892#       发表于 2024-9-26 09:56
+
+昨晚解禁后开始玩,  刚进海拉鲁城, 那个掉帧感人 , 还是织梦岛那个味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过一玩起头就停不下来 , 真棒 , 可惜要上班就玩了2小时 , 刚玩到变林克
+
+这怪物直线思维移动转不了一点弯 , 弄三条蛇 ,以为攻速爆炸 , 谁知道卡位卡麻了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+真好玩啊, 昨晚失眠, 早知道玩多两小时了 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

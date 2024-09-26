@@ -163,3 +163,15 @@
 
 大不了玩日文原文。
 
+
+*****
+
+####  你知道我的  
+##### 627#       发表于 2024-9-26 15:32
+
+ 本帖最后由 你知道我的 于 2024-9-26 15:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66311598&amp;ptid=2093296" target="_blank">宛若青空 发表于 2024-9-26 14:54</a>
+
+这是重制版，剧情文本几乎是不变的，而且拿了以前原版翻译的优秀文本授权，我是不信他们敢冒大风险去改动 ...</blockquote>
+不改动招文案干嘛，玩么？
+

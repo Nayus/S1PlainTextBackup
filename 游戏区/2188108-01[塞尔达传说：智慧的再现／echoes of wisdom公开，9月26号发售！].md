@@ -4254,3 +4254,14 @@ Made in CHINA
 
 有老哥知道丹培的第二个机关爆炸庆典是啥不
 
+
+*****
+
+####  aaronluray  
+##### 994#       发表于 2024-9-27 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66317603&amp;ptid=2188108" target="_blank">mikan100 发表于 2024-9-27 01:03</a>
+
+有老哥知道丹培的第二个机关爆炸庆典是啥不</blockquote>
+如果你的意思是没有他要的道具的话，去鼓隆族找烟火工匠做任务拿烟火的复制
+

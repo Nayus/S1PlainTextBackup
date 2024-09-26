@@ -81,3 +81,21 @@ A队历史上好像没被零封过吧<img src="https://static.saraba1st.com/imag
 
 我还以为G2图一要拿下了，原来是虚惊一场，装模做样的，赶快输了回家吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ispep  
+##### 4466#       发表于 2024-9-27 02:01
+
+汤现在这么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+双狙对比太明显了
+
+*****
+
+####  haruhiismer  
+##### 4467#       发表于 2024-9-27 02:07
+
+宫了汤x队秽土转生在A队
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

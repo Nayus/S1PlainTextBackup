@@ -4265,3 +4265,16 @@ Made in CHINA
 有老哥知道丹培的第二个机关爆炸庆典是啥不</blockquote>
 如果你的意思是没有他要的道具的话，去鼓隆族找烟火工匠做任务拿烟火的复制
 
+
+*****
+
+####  位面农场  
+##### 995#       发表于 2024-9-27 02:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66315597&amp;ptid=2188108" target="_blank">ku2154513 发表于 2024-9-26 21:01</a>
+
+水迷宫也太水了
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端</blockquote>
+和王泪一脉相承啊
+

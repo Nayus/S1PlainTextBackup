@@ -1340,3 +1340,25 @@ ll要日剧化？这算半个新团不？
 虽然情况完全不一样，但是隔壁当年换声音都吃不透，这直接换人可行么。
 不会是明年新团的试行吧，新团是完全真人的偶像剧团什么的
 
+
+*****
+
+####  starring  
+##### 21084#       发表于 2024-9-26 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66315185&amp;ptid=2078110" target="_blank">csolfans 发表于 2024-9-26 20:14</a>
+
+羡慕……这么前
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 v3.0.0-alpha ...</blockquote>
+你在哪排？
+
+一区6排19，感觉要去到边角了<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+*****
+
+####  1096beam  
+##### 21085#       发表于 2024-9-26 20:29
+
+一排几个人啊？29是什么概念？
+

@@ -97,3 +97,18 @@ rfm又偶像又商法的，首周甚至首日比能有80%
 
 虹男这种靠死忠粉消费的要流媒有啥用，又不是真准备靠唱歌吃饭
 
+
+*****
+
+####  aritaatsu222  
+##### 785#       发表于 2024-9-26 20:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">虹这种商法来看粉丝数真的有爆米水平重要吗
+
+*****
+
+####  aritaatsu222  
+##### 786#       发表于 2024-9-26 20:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">虹这种商法来看粉丝数真的有爆米水平重要吗
+

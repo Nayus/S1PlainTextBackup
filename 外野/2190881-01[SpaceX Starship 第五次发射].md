@@ -322,3 +322,19 @@ SpaceX打捞了第四次试飞的Booster 11残骸，图片中为Booster 11的外
 
 2024-9-25 19:55 上传
 
+
+*****
+
+####  commcody  
+##### 69#         楼主| 发表于 2024-9-26 12:33
+
+发射台的助推器对准销已被拆除。这意味着B12只能靠自身动力离开发射台。
+
+<img src="https://img.saraba1st.com/forum/202409/26/123004quvawvvawntwdwb2.jpg" referrerpolicy="no-referrer">
+
+<strong>rover2-1727298234.jpg</strong> (180.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-26 12:30 上传
+

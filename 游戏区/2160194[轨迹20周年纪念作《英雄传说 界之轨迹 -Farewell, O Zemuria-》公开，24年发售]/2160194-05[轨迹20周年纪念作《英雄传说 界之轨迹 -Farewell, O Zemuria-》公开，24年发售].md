@@ -29,3 +29,13 @@ https://www.falcom.co.jp/kai/special/web_raffle/这个答案是啥啊
 
 — from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  一夜秋风袭锦城  
+##### 5924#       发表于 2024-9-26 12:33
+
+教官服哪里领啊
+
+—— 来自 Xiaomi 2210132C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

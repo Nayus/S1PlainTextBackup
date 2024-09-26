@@ -2394,3 +2394,24 @@ https://nga.178.com/read.php?tid=41812443         nga的链接，疑似全
 
 反白有时候被引用也容易晃到<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  heseran  
+##### 939#       发表于 2024-9-26 23:17
+
+聊剧透和感想之类的请去剧透楼吧，剧透楼开了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  bwsusaga  
+##### 940#       发表于 2024-9-26 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66316755&amp;ptid=2140224" target="_blank">NEIN 发表于 2024-9-26 22:56</a>
+
+打龙的坛友讲讲难打吗，我直接懦夫了
+
+—— 来自 鹅球 v3.1.88.3</blockquote>
+比鸟人简单<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -42,3 +42,13 @@
 
 还有这水滴效果……总之就是为了卖衣服不择手段对吧，其他的内容直接摆烂（比如进入10月就是24年秋了，说好的24年夏主线更新呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 1220#       发表于 2024-9-26 23:20
+
+y1s1这个泳池背景我是真喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

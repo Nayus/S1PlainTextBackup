@@ -13166,3 +13166,67 @@ msk这个花后质量真的算dfes吗……
 
 从目前种种迹象来看，go拖剧情到明年的问题出在手游方的可能性非常大，什么配合动画应该是借口，甚至包括mujica拖到明年也有一部分原因可能是因为手游那边炸了没赶上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ShikiM  
+##### 23413#       发表于 2024-9-26 22:19
+
+这是项目管理问题还是产能不足
+
+*****
+
+####  御幸一也  
+##### 23414#       发表于 2024-9-26 22:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你這就搞笑了，ave實裝遊戲又不用寫新劇本，live2d也都有現成的
+
+ave拖到2025年1月除了武士道弱智找不了任何補
+
+但他go拖劇情確實可能因為手遊炸了，畢竟連P說的會有混活目前也是0，P那次說的話確實感覺在放屁<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 23415#       发表于 2024-9-26 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66316404&amp;ptid=2159415" target="_blank">skives 发表于 2024-9-26 22:14</a>
+
+推子这剧情也没法写吧</blockquote>
+电锯人联动的剧情其实也和电锯人原作没什么关系，这个不是借口的，wsd就是懒得写还要出卡赚钱，不过总比又联动管人要强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 23416#       发表于 2024-9-26 22:20
+
+WSD的产能都去哪了
+
+*****
+
+####  Aendst  
+##### 23417#       发表于 2024-9-26 22:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mujica基本上是项目管理问题
+
+手游是手游组的问题，至于是人手不够还是管理有问题不好说
+
+*****
+
+####  御幸一也  
+##### 23418#       发表于 2024-9-26 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66316463&amp;ptid=2159415" target="_blank">skives 发表于 2024-9-26 22:20</a>
+
+WSD的产能都去哪了</blockquote>
+可能都拿去給你雞找鬼圖畫師了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 23419#       发表于 2024-9-26 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66316485&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-9-26 22:23</a>
+可能都拿去給你雞找鬼圖畫師了吧</blockquote>
+感觉不如向鸡粉众筹<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+

@@ -1850,3 +1850,11 @@ sd根本扛不住，720p50%渲染大地图稳不了40，太瞎眼</blockquote>
 
 hard有人过火龙了么，前面打鸟人把碎冰用完了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  战术核辣条  
+##### 885#       发表于 2024-9-26 09:19
+
+hard火龙挺简单的，固定一回合物理一回合喷火
+

@@ -2735,3 +2735,14 @@ The hero 英雄
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  Jigsaw1999  
+##### 968#       发表于 2024-9-27 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66317518&amp;ptid=2140224" target="_blank">bwsusaga 发表于 2024-9-27 00:42</a>
+
+过不了牛头人，一击全灭，等级太低了么</blockquote>
+三人都转职剑士，合题的3ap技能可破<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

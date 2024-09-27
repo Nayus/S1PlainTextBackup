@@ -14460,3 +14460,18 @@ c团估计放下篇了，但考虑到还有爱音猫猫立希新剧情以及新l
 
 补个图
 
+
+*****
+
+####  akiomn  
+##### 23536#       发表于 2024-9-27 17:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下半算上新live的话，剧情也太紧了
+
+*****
+
+####  skives10  
+##### 23537#       发表于 2024-9-27 17:40
+
+11和13都可以删吧
+

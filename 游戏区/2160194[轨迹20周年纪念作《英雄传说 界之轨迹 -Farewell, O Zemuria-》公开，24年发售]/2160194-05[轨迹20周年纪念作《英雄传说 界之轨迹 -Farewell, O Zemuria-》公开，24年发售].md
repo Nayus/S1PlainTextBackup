@@ -456,3 +456,24 @@ ps5要从新下载
 
 老子特意换上兔女郎去投篮，竟然不让我看正面
 
+
+*****
+
+####  王俊凯  
+##### 5969#       发表于 2024-9-27 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66320905&amp;ptid=2160194" target="_blank">kangkangsama 发表于 2024-9-27 11:47</a>
+
+战斗评价4.0
+
+这个只需要刷出来就可以了不需要场次/杀敌数/使用次数</blockquote>
+感谢情报，打了下的确容易了，不知道是不是切换这只算一个，或者多roll一次bltz就直接5.0
+
+<img src="https://img.saraba1st.com/forum/202409/27/142237gho52oqz622o7hqh.jpg" referrerpolicy="no-referrer">
+
+<strong>X7E_4M68L$Q@[O)5$B{OQ_tmb.jpg</strong> (137.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-27 14:22 上传
+

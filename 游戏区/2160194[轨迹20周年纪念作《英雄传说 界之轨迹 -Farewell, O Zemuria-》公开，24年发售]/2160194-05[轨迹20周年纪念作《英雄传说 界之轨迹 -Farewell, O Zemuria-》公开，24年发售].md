@@ -603,3 +603,16 @@ ps5要从新下载
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">苍圣女没死真的是开了个坏头
 
+
+*****
+
+####  仲可怀  
+##### 5982#       发表于 2024-9-27 23:31
+
+<blockquote>引用第5979楼qzfjnv于2024-09-27 23:20发表的  :
+
+是我没配明白还是游戏难度变高了，感觉现在好刮啊，刚打完第一部郊外那个大猩猩我了个去刮了半个小时，我这......</blockquote>
+应该不是 我也普通 砍瓜切菜过去 10极吧 菲力上个buff 阿龙一个暴击s小怪全清 猩猩就随便打
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+

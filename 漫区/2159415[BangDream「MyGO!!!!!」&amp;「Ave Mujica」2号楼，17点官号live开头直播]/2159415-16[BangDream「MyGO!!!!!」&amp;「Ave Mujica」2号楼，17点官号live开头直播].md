@@ -14809,3 +14809,19 @@ msk新卡花后还是熊<img src="https://static.saraba1st.com/image/smiley/face
 
 mv没说过是一个月一次好吧，没准3rd之后才发呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 23568#       发表于 2024-9-27 22:01
+
+这么一说怕不就是3rd当天发mv了。
+
+
+*****
+
+####  skives  
+##### 23569#       发表于 2024-9-27 22:06
+
+没什么可期待的 都是平移平移平移
+

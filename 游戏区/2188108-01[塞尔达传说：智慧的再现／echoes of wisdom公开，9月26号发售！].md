@@ -4486,3 +4486,37 @@ Made in CHINA
 
 但是这游戏可以实现往高处走的方式太多了，没必要用这个操作还麻烦一点的方法。
 
+
+*****
+
+####  nunotenn  
+##### 1017#       发表于 2024-9-27 13:47
+
+好缺钱，一个装备就四五百，大妖精也要钱，穷疯了<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+除了当芒果苦力以外还有没有来钱快的<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  woui003woui  
+##### 1018#       发表于 2024-9-27 13:53
+
+芒果苦力是固定出的位置么，刷了一次普通难度满分有点提不起劲刷hard
+
+*****
+
+####  库德里尔  
+##### 1019#       发表于 2024-9-27 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66322159&amp;ptid=2188108" target="_blank">woui003woui 发表于 2024-9-27 13:53</a>
+
+芒果苦力是固定出的位置么，刷了一次普通难度满分有点提不起劲刷hard</blockquote>
+固定的。以及其他小游戏基本上也是固定的。
+
+*****
+
+####  hisousihou  
+##### 1020#       发表于 2024-9-27 13:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这游戏比王泪还简单啊
+

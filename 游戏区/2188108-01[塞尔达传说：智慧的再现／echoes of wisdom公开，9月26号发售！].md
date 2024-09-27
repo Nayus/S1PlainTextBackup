@@ -4428,3 +4428,31 @@ Made in CHINA
 
 不能直接跳起来往身下放东西是不是一种谜题设计上的偷懒
 
+
+*****
+
+####  煙空  
+##### 1011#       发表于 2024-9-27 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66319318&amp;ptid=2188108" target="_blank">yohyoh4966 发表于 2024-9-27 09:47</a>
+
+解锁衣服的林塞家是要特定的几个还是只要是就行，昨天扫了40+种各种塞的都没出衣服 ...</blockquote>
+我看到攻略說和劇情進度有關，劇情進展到塞爾達不必戴兜帽之後刷才能解鎖衣服，之前刷都只會刷出素材
+
+*****
+
+####  我在干什么啊  
+##### 1012#       发表于 2024-9-27 12:59
+
+有召唤马的道具吗？
+
+*****
+
+####  aaronluray  
+##### 1013#       发表于 2024-9-27 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66321702&amp;ptid=2188108" target="_blank">我在干什么啊 发表于 2024-9-27 12:59</a>
+
+有召唤马的道具吗？</blockquote>
+复制胡罗卜，只要你生成了胡罗卜马就会出现在旁边
+

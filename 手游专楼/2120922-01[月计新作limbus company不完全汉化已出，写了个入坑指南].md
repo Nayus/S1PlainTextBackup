@@ -965,3 +965,16 @@ T表没啥用，这游戏现在都是玩体系了
 
 平时是个小矮子，变身后是金色长发血瞳吸血御姐...我懂了，唐吉诃德的真名是姬丝秀忒·雅赛劳拉莉昂·刃下心<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  erratic璃月  
+##### 892#       发表于 2024-9-27 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66324663&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2024-9-27 18:25</a>
+
+月计美术组是招新人了吧，这华丽得不像主美的手笔
+
+封面应该是新的异想体ego，我刚看到时还猜是不是诺斯 ...</blockquote>
+说下赛季没有渗透天堂我都不信（乐
+

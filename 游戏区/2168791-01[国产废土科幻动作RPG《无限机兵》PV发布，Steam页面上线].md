@@ -759,3 +759,13 @@ demo 10.14
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  kyonkoism  
+##### 84#         楼主| 发表于 2024-9-27 18:55
+
+挺好，拉出来看看手感会不会比噬血代码还僵硬
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

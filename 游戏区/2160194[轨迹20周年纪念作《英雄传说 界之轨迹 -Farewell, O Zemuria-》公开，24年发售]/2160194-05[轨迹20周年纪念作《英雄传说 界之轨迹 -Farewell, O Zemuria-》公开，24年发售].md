@@ -301,3 +301,13 @@ ps5要从新下载
 
 已经剑指界2了吗
 
+
+*****
+
+####  qianoooo  
+##### 5953#       发表于 2024-9-27 08:35
+
+有三倍速又回到了闪轨4舒适区
+
+—— 来自 samsung SM-S9180, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

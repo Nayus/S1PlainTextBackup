@@ -543,3 +543,13 @@ nier2对剑星说，徒儿你学有所成，但看看为师的联动清单，你
 
 收剑学2b吧
 
+
+*****
+
+####  nagitoY  
+##### 1761#       发表于 2024-9-27 10:48
+
+更新了。
+
+新增大地图标记功能，在大地图上太需要了，怎么打完了才出<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

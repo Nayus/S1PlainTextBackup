@@ -13416,3 +13416,69 @@ GYahdGVa0AA4onH.jpg
 
 就是不知道睦祥在C团和月之森三角的戏份能删多少
 
+
+*****
+
+####  skives  
+##### 23436#       发表于 2024-9-27 10:49
+
+关键你把箱子的台词都弄没了
+那这剧情不可能不怪吧
+
+*****
+
+####  羽毛水  
+##### 23437#       发表于 2024-9-27 10:51
+
+剧场版后篇应该是film live？我对武士道film live的理解是MV串烧，不是吗？<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 23438#       发表于 2024-9-27 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66320035&amp;ptid=2159415" target="_blank">前方暴雨预警 发表于 2024-9-27 10:47</a>
+
+预告已经出现除大喵以外的A团全员了，纯净版是没法期待了，初海睦还得给狗的诗超绊打助攻。
+
+就是不知道睦 ...</blockquote>
+沒事，這前篇已經足夠純淨了，超乎想像了都<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+鼓掌
+
+*****
+
+####  滑稽Captain  
+##### 23439#       发表于 2024-9-27 10:53
+
+ 本帖最后由 滑稽Captain 于 2024-9-27 10:54 编辑 
+
+前篇本来就说是猫视角啊，在猫的认知中根本就不存在crychic这个东西吧
+
+弹春日影的时候不知道也不认识台下的蓝毛女路人和绿毛女路人
+
+
+*****
+
+####  御幸一也  
+##### 23440#       发表于 2024-9-27 10:56
+
+我怎麼記得訪談說總集篇另一個大加戲份的角色是愛音，難道你覺得對愛音來說CCC是什麼重要東西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+建議就隨便給幾個回憶閃現就好，go的劇場版ave就不打擾了<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  akiomn  
+##### 23441#       发表于 2024-9-27 10:56
+
+鸡团剧情不可能删完，睦祥的剧情特别是祥子，如果删了直接整个故事推进不下去了，但是不删完也没有全部保留，观感就会很怪
+
+*****
+
+####  skives  
+##### 23442#       发表于 2024-9-27 10:57
+
+柿本是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

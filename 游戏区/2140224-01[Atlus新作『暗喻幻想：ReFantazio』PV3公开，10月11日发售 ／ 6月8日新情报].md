@@ -2982,3 +2982,11 @@ HARD难度牛头人迷宫也不难，主要得拿了之前矿坑那把大剑然�
 
 可能要凹个几次牛头人的攻击对象和暴击<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ntr8  
+##### 991#       发表于 2024-9-28 02:41
+
+牛头人吃麻痹/遗忘异常的 想逃课L3狂凹开局道具就完事了
+

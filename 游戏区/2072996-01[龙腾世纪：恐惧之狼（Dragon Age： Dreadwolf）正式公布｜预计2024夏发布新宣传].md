@@ -25,3 +25,11 @@
 
 本来还想观望一下评分的，结果收到了steam礼物，这下我的心态从看笑话变成了希望别雷<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Flechette  
+##### 611#       发表于 2024-9-27 12:39
+
+本来也就系列粉会多看两眼DAV，这下一巴掌打在系列粉脸上，生软还是死吧
+

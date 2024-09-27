@@ -13974,3 +13974,46 @@ mujica戏份全删那不就是立希在学校的剧情都删了，这形象是�
 
 看repo说猫补了整整一集量的回忆剧情，立希没加戏还删了不少，诶不是你都给猫加了二十分钟戏，就不能补点第六集找到猫之后和立希的剧情吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 23490#       发表于 2024-9-27 12:38
+
+海希还是会留着吧，第九集立希抓海铃代打还挺重要的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 23491#       发表于 2024-9-27 12:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">立希还删了戏份？？
+
+这个话题来说，猫确定增加了，其他人的呢
+
+
+*****
+
+####  PDQ4  
+##### 23492#       发表于 2024-9-27 12:42
+
+还是要等资源流出才能见分晓了
+
+也可能后篇卖灯希？
+
+*****
+
+####  Milarvoz  
+##### 23493#       发表于 2024-9-27 12:43
+
+这次给rikki的最后一句词总不能是哈？了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  PDQ4  
+##### 23494#       发表于 2024-9-27 12:45
+
+有film live，总不能立希全程光打鼓一句话没有吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -14475,3 +14475,30 @@ c团估计放下篇了，但考虑到还有爱音猫猫立希新剧情以及新l
 
 11和13都可以删吧
 
+
+*****
+
+####  前方暴雨预警  
+##### 23538#       发表于 2024-9-27 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66324262&amp;ptid=2159415" target="_blank">skives10 发表于 2024-9-27 17:40</a>
+
+11和13都可以删吧</blockquote>
+狗仅有的团建剧情再删掉，就真“关系不好的乐队”了
+
+*****
+
+####  白笛之音  
+##### 23539#       发表于 2024-9-27 17:46
+
+所以wsd世界观的伦敦到底是个什么魔幻的地方，为什么人人都要去伦敦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 23540#       发表于 2024-9-27 17:49
+
+对了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+乐奈在家里哼唱春日影
+乐奈的奶奶给予祥子的作曲水平高度肯定
+

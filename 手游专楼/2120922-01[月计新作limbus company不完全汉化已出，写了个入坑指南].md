@@ -849,3 +849,64 @@ T表没啥用，这游戏现在都是玩体系了
 
 目前二虫和二浮是防御提升和斩击，二罗是呼吸和打击，二辛是振动和打击，不知道二玛会进入七大体系当拼图还是开启新玩法...
 
+
+*****
+
+####  Jamaisvu  
+##### 887#       发表于 2024-9-27 17:53
+
+西部二协以实玛利，10.3实装：
+
+<img src="https://img.saraba1st.com/forum/202409/27/175346vc5sz258swsneds2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240927_174743.jpg</strong> (321.2 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-27 17:53 上传
+
+姬骑士玛玛真好看，貌似是三个斩击技能，硬币数2、3、3。
+
+<img src="https://img.saraba1st.com/forum/202409/27/175128g7hv5k8kqahkj7c5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240927_174803.jpg</strong> (197.12 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-27 17:51 上传
+
+<img src="https://img.saraba1st.com/forum/202409/27/175128fg5hzlgtlqy4g56o.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240927_174841.jpg</strong> (212.47 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-27 17:51 上传
+
+守备技能应该是魔王夫那种能拼点的特殊守备，两个币，都拼赢的话有个震颤爆发的特效，也许能进震颤队？
+
+<img src="https://img.saraba1st.com/forum/202409/27/175248wfgobsisoflfvlpw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240927_174956.jpg</strong> (158.01 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-27 17:52 上传
+
+感觉震颤队现在挺完善的，不知道换谁了...
+
+*****
+
+####  菟原手兒奈  
+##### 888#       发表于 2024-9-27 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66324398&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2024-9-27 17:53</a>
+西部二协以实玛利，10.3实装：</blockquote>
+新赛季好像 10.10 开始，玛玛卡池到 10.17，那她算哪个赛季的，10.10 后还能换吗？
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

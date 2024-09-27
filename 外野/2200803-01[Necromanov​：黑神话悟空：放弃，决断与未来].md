@@ -2269,3 +2269,13 @@ https://bbs.saraba1st.com/2b/thread-2198959-0-1.html
 https://bbs.saraba1st.com/2b/thread-2198959-0-1.html</blockquote><blockquote>类似于宝可梦，沙奈朵一段物攻上升是肱二头肌明显点，腹股六段武功直接变成施瓦辛格</blockquote>
 虽然懂了你意思，但是沙奈朵是打特攻的啊，强化自己也是特攻
 
+
+*****
+
+####  陛下欲反邪  
+##### 187#       发表于 2024-9-27 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66319478&amp;ptid=2200803" target="_blank">无事忙 发表于 2024-9-27 10:03</a>
+虽然懂了你意思，但是沙奈朵是打特攻的啊，强化自己也是特攻</blockquote>
+特攻不知道怎么描述能形象起来，还是达令你浑身上下都是结实的muscle有画面感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

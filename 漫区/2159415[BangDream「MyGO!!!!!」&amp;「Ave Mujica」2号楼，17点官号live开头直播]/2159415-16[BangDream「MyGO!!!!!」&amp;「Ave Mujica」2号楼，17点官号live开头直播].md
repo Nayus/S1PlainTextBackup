@@ -13349,3 +13349,70 @@ GYahdGVa0AA4onH.jpg
 
 悲报：后篇预告有第3集的镜头
 
+
+*****
+
+####  御幸一也  
+##### 23430#       发表于 2024-9-27 10:40
+
+笑死了，開香檳了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202409/27/104025jrpiin56ocl56lhr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (75.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-27 10:40 上传
+
+*****
+
+####  御幸一也  
+##### 23431#       发表于 2024-9-27 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66319859&amp;ptid=2159415" target="_blank">前方暴雨预警 发表于 2024-9-27 10:35</a>
+
+喜报：狗剧场版前篇基本把鸡团成员包括C团往事全删干净了
+
+悲报：后篇预告有第3集的镜头 ...</blockquote>
+前篇都刪這麼乾淨了，就算有也是一點點點點吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 太樂了 真的出純淨版go我瘋狂鼓掌
+
+
+*****
+
+####  twi  
+##### 23432#       发表于 2024-9-27 10:44
+
+这真不能说什么go剧场版给mujica作宣传了吧，不过俩乐队能相对独立开来也挺好的
+
+*****
+
+####  御幸一也  
+##### 23433#       发表于 2024-9-27 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66319986&amp;ptid=2159415" target="_blank">twi 发表于 2024-9-27 10:44</a>
+
+这真不能说什么go剧场版给mujica作宣传了吧，不过俩乐队能相对独立开来也挺好的 ...</blockquote>
+對ave來說這本來就不可能是宣傳，堵嘴話術之一罷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 23434#       发表于 2024-9-27 10:46
+
+意料之中好吧，怎么想都是ccc相关最好砍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+有第三集闪回那可能是加一点到第十集部分吧，不是说还要表现灯的决心
+
+*****
+
+####  前方暴雨预警  
+##### 23435#       发表于 2024-9-27 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66319951&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-9-27 10:41</a>
+
+前篇都刪這麼乾淨了，就算有也是一點點點點吧 太樂了 真的出純淨版go我瘋狂鼓掌 ...</blockquote>
+预告已经出现除大喵以外的A团全员了，纯净版是没法期待了，初海睦还得给狗的诗超绊打助攻。
+
+就是不知道睦祥在C团和月之森三角的戏份能删多少
+

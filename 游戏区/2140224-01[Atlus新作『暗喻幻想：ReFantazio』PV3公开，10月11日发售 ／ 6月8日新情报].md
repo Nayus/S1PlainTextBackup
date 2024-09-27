@@ -2792,3 +2792,11 @@ ps5没什么问题，但是游戏太无聊
 
 你们说的牛头人在哪呢？我怎么玩完都没碰到？
 
+
+*****
+
+####  哎哟卧槽了  
+##### 974#       发表于 2024-9-27 15:12
+
+不管了，已买<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

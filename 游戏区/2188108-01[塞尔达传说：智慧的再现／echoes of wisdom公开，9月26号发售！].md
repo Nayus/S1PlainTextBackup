@@ -4759,3 +4759,22 @@ Made in CHINA
 
 三级黑甲骑士好无赖啊，还有流星锤战士也是，近战可以直接旋风先刮不少伤害
 
+
+*****
+
+####  ColAMK  
+##### 1044#       发表于 2024-9-27 23:00
+
+这有个支线boss完全照搬时空之章第五关的关底boss，打法都复刻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+唉，也不知道能不能看到果实二部曲的重制啊
+
+*****
+
+####  woui003woui  
+##### 1045#       发表于 2024-9-27 23:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">喷气机（？）飞行一挂上，滑翔伞的感觉就来了
+
+在2D里这么玩也还是超级快乐
+

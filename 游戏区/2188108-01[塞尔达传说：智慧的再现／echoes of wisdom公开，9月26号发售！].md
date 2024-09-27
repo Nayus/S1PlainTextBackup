@@ -4390,3 +4390,13 @@ Made in CHINA
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Nez  
+##### 1007#       发表于 2024-9-27 12:03
+
+发现反复上下床可以取消回血后摇，反复复制宝可梦可以取消攻击后摇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+啊，原来你一直与我同在<img src="https://static.saraba1st.com/image/smiley/carton2017/292.png" referrerpolicy="no-referrer">
+

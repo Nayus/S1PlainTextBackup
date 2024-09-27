@@ -13922,3 +13922,12 @@ syl，追加现地哥的repo，素祥飞鸟山、初 ...</blockquote>
 
 听说甚至开幕就是なん春<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 23484#       发表于 2024-9-27 12:07
+
+感觉有点越传越离谱的趋势了，还是等资源出来了再说吧
+反正鸡删干净了是好事
+

@@ -4872,3 +4872,18 @@ Made in CHINA
 本来以为战斗会从头到尾只靠召唤，结果还是要变成 ...</blockquote>
 目前战斗我确实只靠召唤，只要它不要把boss设计成非林克剑砍无法受到伤害我一律召唤，需要在某个时间窗口发出攻击的我一律瞬招挥剑猪猪
 
+
+*****
+
+####  ミズタ  
+##### 1055#       发表于 2024-9-28 05:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66322100&amp;ptid=2188108" target="_blank">nunotenn 发表于 2024-9-27 13:47</a>
+
+好缺钱，一个装备就四五百，大妖精也要钱，穷疯了
+
+除了当芒果苦力以外还有没有来钱快的 ...</blockquote>
+这游戏鼓励你多玩小游戏和迷你挑战（支线任务）
+
+等小游戏和挑战都做完了，钱就差不多都够了，并不用特意去刷钱
+

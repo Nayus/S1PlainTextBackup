@@ -2776,3 +2776,11 @@ The hero 英雄
 
 ps5没什么问题，但是游戏太无聊
 
+
+*****
+
+####  jajajzz  
+##### 972#       发表于 2024-9-27 13:35
+
+鬼佬那几个论坛基本是UI差评居多，ATLUS你的文艺复兴美术好像鬼佬也觉得太乱了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

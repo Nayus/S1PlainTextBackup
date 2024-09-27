@@ -14050,3 +14050,20 @@ mujica戏份全删那不就是立希在学校的剧情都删了，这形象是�
 
 [https://x.com/Yurippii_/status/1 ... cpfQE_u4xQ&amp;s=19](https://x.com/Yurippii_/status/1839509018060206190?t=Rudja4UnDrKUcpfQE_u4xQ&amp;s=19)
 
+
+*****
+
+####  461757753  
+##### 23498#       发表于 2024-9-27 13:32
+
+剧场版感觉补了剧情感觉也没补
+
+*****
+
+####  羽毛水  
+##### 23499#       发表于 2024-9-27 13:35
+
+大量猫猫新画面+幼猫已知足
+
+总集篇剧场版难道还指望写个完整新故事吗<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

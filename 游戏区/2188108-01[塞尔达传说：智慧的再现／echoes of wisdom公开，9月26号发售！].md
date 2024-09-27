@@ -4551,3 +4551,11 @@ Made in CHINA
 
 但是打完我还是得说一句，“我的魔物无穷无尽，而你的血量每分每秒都在伤亡” <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  我在干什么啊  
+##### 1024#       发表于 2024-9-27 16:42
+
+卡卡利特村的修行挑战打了几关后给了一个传家宝刀，这个有啥用啊？
+

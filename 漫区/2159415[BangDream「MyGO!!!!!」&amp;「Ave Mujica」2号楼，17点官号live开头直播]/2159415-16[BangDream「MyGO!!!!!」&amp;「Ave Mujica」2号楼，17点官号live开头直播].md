@@ -14440,3 +14440,23 @@ c团估计放下篇了，但考虑到还有爱音猫猫立希新剧情以及新l
 
 这个剧场版猫喜欢gliter green，猫妈伦敦海归，三森女士要素拉满了，不愧是wsd皇太后<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  须贺兰  
+##### 23535#       发表于 2024-9-27 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66320728&amp;ptid=2159415" target="_blank">那什么阿法 发表于 2024-9-27 11:33</a>
+
+小册子上倒是有个不知道能不能算彩蛋的事，该乐队就是go动画第四集十四十五分钟左右 立希问海铃“今天是哪 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202409/27/164349vronbbglobosbszl.png" referrerpolicy="no-referrer">
+
+<strong>PixPin_2024-09-27_16-32-03.png</strong> (1.38 MB, 下载次数: 0)
+
+下载附件
+
+2024-9-27 16:43 上传
+
+补个图
+

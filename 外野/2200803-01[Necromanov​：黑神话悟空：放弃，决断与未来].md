@@ -2256,3 +2256,16 @@ https://bbs.saraba1st.com/2b/thread-2198959-0-1.html
 
 我觉得总体说的挺好，看了有收获，虽然未必每句都是对的，但是主要观点让我这个云玩家对黑猴有了新的认识
 
+
+*****
+
+####  无事忙  
+##### 186#       发表于 2024-9-27 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66303130&amp;ptid=2200803" target="_blank">陛下欲反邪 发表于 2024-9-25 18:12</a>
+
+感觉更类似于泥潭坛友写的这个
+
+https://bbs.saraba1st.com/2b/thread-2198959-0-1.html</blockquote><blockquote>类似于宝可梦，沙奈朵一段物攻上升是肱二头肌明显点，腹股六段武功直接变成施瓦辛格</blockquote>
+虽然懂了你意思，但是沙奈朵是打特攻的啊，强化自己也是特攻
+

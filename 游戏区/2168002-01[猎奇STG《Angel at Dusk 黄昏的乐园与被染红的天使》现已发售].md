@@ -1994,3 +1994,11 @@ L会影响左手控制方向的手感所以就不用了
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Firvox  
+##### 168#       发表于 2024-9-27 12:52
+
+有NS版了？再买一份支持下<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

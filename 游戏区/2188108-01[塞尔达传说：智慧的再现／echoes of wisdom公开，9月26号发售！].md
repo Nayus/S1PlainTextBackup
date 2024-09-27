@@ -4420,3 +4420,11 @@ Made in CHINA
 
 其他迷宫纯纯一 本 道冒险，是冒险解谜都算不上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  就是剑鞘  
+##### 1010#       发表于 2024-9-27 12:46
+
+不能直接跳起来往身下放东西是不是一种谜题设计上的偷懒
+

@@ -14517,3 +14517,23 @@ c团估计放下篇了，但考虑到还有爱音猫猫立希新剧情以及新l
 
 是高尾想偷偷订然后给大家一个惊喜，结果打电话的内容全被成员听到的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 23543#       发表于 2024-9-27 18:28
+
+看到列表立希推破防，去云了下总集篇剧情。不是，“我做不到祥子那样”有什么好保留的吗？
+
+
+*****
+
+####  skives10  
+##### 23544#       发表于 2024-9-27 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66324698&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-9-27 18:28</a>
+看到列表立希推破防，去云了下总集篇剧情。不是，“我做不到祥子那样”有什么好保留的吗？ ...</blockquote>
+mygo成员的剧情基本上都保留了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+包括她们call祥子的台词
+第六集那段剧情立希回忆了两次祥子 回忆里的祥子台词也一句没删
+

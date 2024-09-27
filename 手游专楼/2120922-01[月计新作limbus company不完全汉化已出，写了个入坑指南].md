@@ -910,3 +910,38 @@ T表没啥用，这游戏现在都是玩体系了
 
 —— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  Jamaisvu  
+##### 889#       发表于 2024-9-27 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66324427&amp;ptid=2120922" target="_blank">菟原手兒奈 发表于 2024-9-27 17:56</a>
+
+新赛季好像 10.10 开始，玛玛卡池到 10.17，那她算哪个赛季的，10.10 后还能换吗？
+
+—— 来自 Xiaomi 23 ...</blockquote>
+这种剧情里没出现过的组织都算是常驻角色吧，像W公司、十协会还有环指那种，随时可以换的。
+
+
+*****
+
+####  Jamaisvu  
+##### 889#       发表于 2024-9-27 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66324427&amp;ptid=2120922" target="_blank">菟原手兒奈 发表于 2024-9-27 17:56</a>
+
+新赛季好像 10.10 开始，玛玛卡池到 10.17，那她算哪个赛季的，10.10 后还能换吗？
+
+—— 来自 Xiaomi 23 ...</blockquote>
+这种剧情里没出现过的组织都算是常驻角色吧，像W公司、十协会还有环指那种，随时可以换的。
+
+
+*****
+
+####  ヒトニナル  
+##### 890#       发表于 2024-9-27 18:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这个小唐太美了
+但是会幻视黒埼ちとせ（
+

@@ -311,3 +311,13 @@ ps5要从新下载
 
 —— 来自 samsung SM-S9180, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  华发夜眼[CN]  
+##### 5954#       发表于 2024-9-27 08:47
+
+我还没发货呢，就判死刑了？
+
+— from samsung SM-S9180, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

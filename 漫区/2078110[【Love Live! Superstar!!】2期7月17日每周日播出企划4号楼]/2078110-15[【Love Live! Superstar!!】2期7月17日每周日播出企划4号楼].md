@@ -1427,3 +1427,36 @@ ll要日剧化？这算半个新团不？
 
 嚯一区四排
 
+
+*****
+
+####  蜜梨柑  
+##### 21093#       发表于 2024-9-26 21:18
+
+看台一区13排10座，是不是山顶最高处了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 21094#       发表于 2024-9-26 21:34
+
+参考
+还是很靠边角，要全程侧着头
+<img src="https://p.sda1.dev/19/35a3f4c66de9f8a9cc41e1496251e7ce/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+
+*****
+
+####  黒烨  
+##### 21095#       发表于 2024-9-26 21:41
+
+嚯一区四排
+
+*****
+
+####  1096beam  
+##### 21096#       发表于 2024-9-27 08:52
+
+按照上面的图一排有两个32人？那这样排数是不是还要除个2？
+

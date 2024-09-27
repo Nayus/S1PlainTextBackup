@@ -2721,3 +2721,17 @@ The hero 英雄
 
 在想豪华版里的纪念画册和迷你原声带会不会又是做个只能让你进去听的程序，如果是的话不如不买
 
+
+*****
+
+####  kuarwbwe  
+##### 967#       发表于 2024-9-27 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66318590&amp;ptid=2140224" target="_blank">FanKiE 发表于 2024-9-27 08:45</a>
+先不说好不好啊，毕竟缺细节
+
+我就想问这个剧情和Metaphor有几毛钱的关系？</blockquote>
+如果这游戏被推倒过的消息属实，那我严重怀疑这游戏原来的键政剧本被毙了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

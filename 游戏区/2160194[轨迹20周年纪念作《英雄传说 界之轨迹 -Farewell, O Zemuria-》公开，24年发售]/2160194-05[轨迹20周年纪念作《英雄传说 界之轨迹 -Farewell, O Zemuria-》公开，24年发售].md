@@ -412,3 +412,15 @@ ps5要从新下载
 
 这代第一章上来事务所全员，还多了原野战斗的突击和指令战斗的多重blitz+晶片指挥官，比梨1-2还要简单
 
+
+*****
+
+####  剑起苍斓  
+##### 5964#       发表于 2024-9-27 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66319191&amp;ptid=2160194" target="_blank">kevinausting 发表于 2024-9-27 09:37</a>
+你们玩轨迹会有阅读障碍吗，我经常一段对话反复看半天也没看懂想表达什么，但玩别的游戏没这个问题。不过轨 ...</blockquote>
+我觉得和云豹的翻译也有关系，相互叠buff了属于是
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+

@@ -4400,3 +4400,23 @@ Made in CHINA
 
 啊，原来你一直与我同在<img src="https://static.saraba1st.com/image/smiley/carton2017/292.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hagiwara  
+##### 1008#       发表于 2024-9-27 12:29
+
+什么，回血不是本来就应该在床上仰卧起坐的吗<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ミズタ  
+##### 1009#       发表于 2024-9-27 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66320930&amp;ptid=2188108" target="_blank">我在干什么啊 发表于 2024-9-27 11:50</a>
+
+这代水迷宫算不算历代之耻？比王国之泪的那个还要简单吧</blockquote>
+也就冰迷宫有点老塞尔达的味道了，不过还是一 本 道。
+
+其他迷宫纯纯一 本 道冒险，是冒险解谜都算不上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -14425,3 +14425,18 @@ c团估计放下篇了，但考虑到还有爱音猫猫立希新剧情以及新l
 什么幕后黑手<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 下集预告有飞鸟山、ep3、第十集初灯、第十集天台睦、第九集海铃
 
+
+*****
+
+####  Aendst  
+##### 23533#       发表于 2024-9-27 16:20
+
+看起来像是想删但是删了之后故事就讲不下去的部分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 23534#       发表于 2024-9-27 16:22
+
+这个剧场版猫喜欢gliter green，猫妈伦敦海归，三森女士要素拉满了，不愧是wsd皇太后<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -4582,3 +4582,29 @@ Made in CHINA
 
 查看全部评分
 
+
+*****
+
+####  库德里尔  
+##### 1026#       发表于 2024-9-27 17:03
+
+既然提到了，谁还记得小精灵升10次级的加成分别是啥
+
+主要是解锁新功能、增加能量槽、为部分召唤减费三种吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  库德里尔  
+##### 1027#       发表于 2024-9-27 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66323562&amp;ptid=2188108" target="_blank">就是剑鞘 发表于 2024-9-27 16:28</a>
+草啊，经典乒乓球环节被疯狂羞辱，要不是冰沙带得够多真翻车了
+
+但是打完我还是得说一句，“我的魔物无穷无 ...</blockquote>
+草，我打到那里的时候蓝槽空了，用枪莫力布林硬过的
+发球的位置好就绕墙勾引让它们输出，位置不好就让球撞墙或者直接召一个出来同归于尽<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

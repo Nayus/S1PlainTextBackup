@@ -4456,3 +4456,21 @@ Made in CHINA
 有召唤马的道具吗？</blockquote>
 复制胡罗卜，只要你生成了胡罗卜马就会出现在旁边
 
+
+*****
+
+####  就是剑鞘  
+##### 1014#       发表于 2024-9-27 13:06
+
+小偷鸟打怪比我打怪至少能多爆五块，是不是女神赚了差价
+
+*****
+
+####  anfangzhan  
+##### 1015#       发表于 2024-9-27 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66321566&amp;ptid=2188108" target="_blank">就是剑鞘 发表于 2024-9-27 12:46</a>
+
+不能直接跳起来往身下放东西是不是一种谜题设计上的偷懒</blockquote>
+跳起来是能放东西的，只是不能往正下方放
+

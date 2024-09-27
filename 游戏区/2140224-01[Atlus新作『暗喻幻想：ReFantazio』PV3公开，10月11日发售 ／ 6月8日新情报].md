@@ -2768,3 +2768,11 @@ The hero 英雄
 
 我steam版的demo进去没声音，有朋友遇到过这种问题吗，怎么解决<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gbjbb  
+##### 971#       发表于 2024-9-27 13:13
+
+ps5没什么问题，但是游戏太无聊
+

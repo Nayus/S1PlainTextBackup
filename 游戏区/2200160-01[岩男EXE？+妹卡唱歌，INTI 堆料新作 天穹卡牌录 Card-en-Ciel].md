@@ -689,3 +689,13 @@ HKD 170
 
 试了一把demo，惊了好好玩。正好Switch上洛克人EXE在打折，想问下比这部差很远吗？值不值得补？
 
+
+*****
+
+####  cmyk1234  
+##### 57#       发表于 2024-9-27 08:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66316265&amp;ptid=2200160" target="_blank">谢枫华 发表于 2024-9-26 22:02</a>
+试了一把demo，惊了好好玩。正好Switch上洛克人EXE在打折，想问下比这部差很远吗？值不值得补？ ...</blockquote>
+EXE是回合内即时格斗，回合外抽牌，单人剧情和多人对战牌组构筑差异太大，6作游戏迭代了四次规则改动。天穹卡牌录是纯回合制附带弃牌移动，强调多抽多得。两款游戏没有可比性。
+

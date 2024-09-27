@@ -13883,3 +13883,42 @@ syl，追加现地哥的repo，素祥飞鸟山、初 ...</blockquote>
 
 制作组真缺德啊，听说好像断章还真是卡在爽世姐名台词了？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  那什么阿法  
+##### 23480#       发表于 2024-9-27 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66320854&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-9-27 11:43</a>
+
+我看官网上系构写得还是独角兽啊，柿本排脚本第一了是可能拉胯原因之一
+
+柿本系构这个有出处吗，可能我火 ...</blockquote>
+没看到这个说法
+
+倒是有现地哥看职员表说“职员表写剧场版脚本是柿本一个，Tv系列系构是独角兽，脚本是几个”
+
+
+*****
+
+####  Aendst  
+##### 23481#       发表于 2024-9-27 11:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爽姐名台词不是喜闻乐见吗，连不喜欢迫害一般角色的日本人都喜欢玩
+
+必然要有它的一席之地<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 23482#       发表于 2024-9-27 11:58
+
+都猫的视角了，为什么不全删了得了，猫认识am任意一个人吗
+
+*****
+
+####  cherryjia12  
+##### 23483#       发表于 2024-9-27 11:58
+
+听说甚至开幕就是なん春<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

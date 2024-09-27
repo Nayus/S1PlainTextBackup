@@ -4380,3 +4380,13 @@ Made in CHINA
 
 这代水迷宫算不算历代之耻？比王国之泪的那个还要简单吧
 
+
+*****
+
+####  KBAC  
+##### 1006#       发表于 2024-9-27 11:56
+
+话说这次河卓拉是不是第一次作为友善种族出现？
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -13812,3 +13812,74 @@ syl，追加现地哥的repo，素祥飞鸟山、初 ...</blockquote>
 
 系构是谁就让谁背锅呗，比如菜花。
 
+
+*****
+
+####  skives10  
+##### 23473#       发表于 2024-9-27 11:46
+
+蜇下真的要散了
+
+*****
+
+####  Aendst  
+##### 23474#       发表于 2024-9-27 11:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后篇要卖mygo团爱的吧
+
+追加一些爱音猫相关新画面，然后再多补点队长立希的内容
+
+某五位路人当彩蛋客串露脸一下就可以了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+前篇已经删成这样了，后篇没理由在访谈明言要专注mygo的基础上加这么多mujica
+
+*****
+
+####  星天观测  
+##### 23475#       发表于 2024-9-27 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66320836&amp;ptid=2159415" target="_blank">前方暴雨预警 发表于 2024-9-27 11:42</a>
+
+剧场版系构是柿本，独角兽只是脚本之一。这个在前期情报里有。
+
+syl，追加现地哥的repo，素祥飞鸟山、初 ...</blockquote>
+群内现地哥指出没有睦祥入队谈话，应该记错了
+
+
+*****
+
+####  御幸一也  
+##### 23476#       发表于 2024-9-27 11:52
+
+想不到在直言了<strong>只</strong>聚焦在go的劇場版裡塞睦祥對話的理由，應該是沒有的吧
+
+*****
+
+####  前方暴雨预警  
+##### 23477#       发表于 2024-9-27 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66320854&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-9-27 11:43</a>
+
+我看官网上系构写得还是独角兽啊，柿本排脚本第一了是可能拉胯原因之一
+
+柿本系构这个有出处吗，可能我火 ...</blockquote>
+啊？那大概是我记错了。
+
+因为之前一直滑坡狗剧场版烂了等于柿本系构能力不行，所以我一直记得系构是柿本。
+
+我再翻翻那张海报，没找到的话就是我记错了
+
+*****
+
+####  akiomn  
+##### 23478#       发表于 2024-9-27 11:55
+
+下篇明确新内容的只有爱音和猫和立希有新内容，还有新的live，鸡团只有像素食祥子飞鸟山，海玲支援mygo，初华点灯这种剧情有留着的必要，睦祥谈话是可以删掉的
+
+*****
+
+####  PDQ4  
+##### 23479#       发表于 2024-9-27 11:55
+
+制作组真缺德啊，听说好像断章还真是卡在爽世姐名台词了？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

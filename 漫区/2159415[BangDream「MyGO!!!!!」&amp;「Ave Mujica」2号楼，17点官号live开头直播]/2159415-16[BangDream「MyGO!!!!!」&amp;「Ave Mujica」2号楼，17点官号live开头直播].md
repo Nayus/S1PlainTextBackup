@@ -14502,3 +14502,18 @@ c团估计放下篇了，但考虑到还有爱音猫猫立希新剧情以及新l
 乐奈在家里哼唱春日影
 乐奈的奶奶给予祥子的作曲水平高度肯定
 
+
+*****
+
+####  akiomn  
+##### 23541#       发表于 2024-9-27 18:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鸡团之前聚餐的酒店是高尾自己订的
+
+*****
+
+####  星天观测  
+##### 23542#       发表于 2024-9-27 18:22
+
+是高尾想偷偷订然后给大家一个惊喜，结果打电话的内容全被成员听到的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

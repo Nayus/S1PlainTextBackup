@@ -945,3 +945,23 @@ T表没啥用，这游戏现在都是玩体系了
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这个小唐太美了
 但是会幻视黒埼ちとせ（
 
+
+*****
+
+####  Jamaisvu  
+##### 891#       发表于 2024-9-27 18:25
+
+<img src="https://img.saraba1st.com/forum/202409/27/182034yzr2gwo9zxxh5sa6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240927_181943.jpg</strong> (290.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-27 18:20 上传
+
+月计美术组是招新人了吧，这华丽得不像主美的手笔...
+
+封面应该是新的异想体ego，我刚看到时还猜是不是诺斯费拉图或者渗透天堂来着<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+平时是个小矮子，变身后是金色长发血瞳吸血御姐...我懂了，唐吉诃德的真名是姬丝秀忒·雅赛劳拉莉昂·刃下心<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+

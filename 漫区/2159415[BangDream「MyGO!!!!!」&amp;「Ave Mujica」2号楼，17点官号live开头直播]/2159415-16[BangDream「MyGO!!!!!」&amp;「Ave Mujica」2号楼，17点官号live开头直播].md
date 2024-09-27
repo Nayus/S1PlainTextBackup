@@ -14395,3 +14395,33 @@ c团估计放下篇了，但考虑到还有爱音猫猫立希新剧情以及新l
 但后来又回来了 时间点是mygo第一次上台前 
 不确定是长期还是短期
 
+
+*****
+
+####  羽毛水  
+##### 23530#       发表于 2024-9-27 16:11
+
+怎么又是英国顿顿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cherryjia12  
+##### 23531#       发表于 2024-9-27 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66323120&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-9-27 15:34</a>
+加起来露五分钟左右的脸就够了路人npc罢了
+
+3移给后篇有一个很大问题是，后篇同样是120分钟，还有约20分钟 ...</blockquote>
+下篇没有ep3的话那ep8下跪也要删了，看repo上篇连解散那段都没给，不然路人视角就是soyo唐突给不认识的蓝毛下跪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 23532#       发表于 2024-9-27 16:15
+
+祥子虽然被删了不少戏份 
+但一直存在于台词中
+镜头也不少
+什么幕后黑手<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+下集预告有飞鸟山、ep3、第十集初灯、第十集天台睦、第九集海铃
+

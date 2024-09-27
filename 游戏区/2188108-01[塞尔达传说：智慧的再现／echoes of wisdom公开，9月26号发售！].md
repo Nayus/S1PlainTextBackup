@@ -4533,3 +4533,11 @@ Made in CHINA
 除了当芒果苦力以外还有没有来钱快的 ...</blockquote>
 平时打怪用魔鸦，然后你的钱就在不知不觉的情况下变多了！
 
+
+*****
+
+####  stera  
+##### 1022#       发表于 2024-9-27 16:11
+
+升到几级才能召唤人马啊..这升一级给加一格还以为挺快就能召了，结果再升一级能远距离复制，再升一级给一部分道具减了1点消耗我人都傻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

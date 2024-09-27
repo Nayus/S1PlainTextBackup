@@ -2889,3 +2889,31 @@ steam社区有帧数优化补丁了
 
 有点无聊，幸好有试玩版<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猫沢  
+##### 983#       发表于 2024-9-27 23:09
+
+<img src="https://img.saraba1st.com/forum/202409/27/230949c002zirzbdi4ziof.png" referrerpolicy="no-referrer">
+
+<strong>img_2443.png</strong> (1.06 MB, 下载次数: 0)
+
+下载附件
+
+2024-9-27 23:09 上传
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  蒼銀  
+##### 984#       发表于 2024-9-27 23:16
+
+剧情好坏先不说
+
+但是这个演出实在难崩啊，序章充斥着劣质2D动画，远不如3D演出，而且这个运镜是咋回事，衔接的也太暴力了吧，上一秒3D下一秒就硬切到2D动画
+
+观感太差了吧
+

@@ -2844,3 +2844,19 @@ ui其实还好，虽然花哨实际玩起来盯着小字说明玩没想象中实
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  八汰乌  
+##### 979#       发表于 2024-9-27 20:55
+
+分享一个demo掉帧的解决方法，N卡控制面板把FXAA打开，可以去开场沙漠响BGM那里测试，那里是demo掉帧最厉害的地方
+
+<img src="https://img.saraba1st.com/forum/202409/27/205354h0xxe6p490oep0ej.jpg" referrerpolicy="no-referrer">
+
+<strong>9f26cb58252dd42a948a6a88453b5bb5c9eab824.jpg</strong> (101 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-27 20:53 上传
+

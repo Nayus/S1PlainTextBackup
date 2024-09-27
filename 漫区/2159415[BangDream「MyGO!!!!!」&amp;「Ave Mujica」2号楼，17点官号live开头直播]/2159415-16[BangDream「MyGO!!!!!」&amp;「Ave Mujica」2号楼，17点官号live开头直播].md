@@ -14699,3 +14699,40 @@ QQ图片20240927201735.jpg
 
 剧场版还多了一段anon第一次看春日影的反应，不到3秒
 
+
+*****
+
+####  461757753  
+##### 23558#       发表于 2024-9-27 20:52
+
+今天的mygo舞台挨拶，一次过道位，一次超前排，看木柜子看得我尸斑都变淡了
+
+<img src="https://img.saraba1st.com/forum/202409/27/205047ryqtqe5gq1v5yqkq.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240927_214323.jpg</strong> (722.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-27 20:50 上传
+
+*****
+
+####  Aendst  
+##### 23559#       发表于 2024-9-27 20:54
+
+ 本帖最后由 Aendst 于 2024-9-27 20:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66325288&amp;ptid=2159415" target="_blank">良臣没有重谢 发表于 2024-9-27 19:44</a>
+
+第一次看大名鼎鼎的买狗，最后唱歌的时候突然莫名其妙跑出去那个蓝毛是谁啊？她旁边那个绿毛更是莫名其妙， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真不是定型文吗
+
+简单来说两个女路人是明年一月新作动画的主角队（简称A）的人，把这部剧场版的主角队简称为B
+
+A和B的部分人员以前认识
+
+具体的TV动画里讲得比较多
+
+剧场版因为是B的剧场版，专注讲B，把和B关系不大的戏份都删差不多了，所以确实就是俩女路人
+
+当彩蛋无视就行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

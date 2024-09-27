@@ -329,3 +329,37 @@ ps5要从新下载
 
 你们玩轨迹会有阅读障碍吗，我经常一段对话反复看半天也没看懂想表达什么，但玩别的游戏没这个问题。不过轨迹的对话就算只是大概瞟一眼应该也不影响理解整体剧情就是了。
 
+
+*****
+
+####  fireadol  
+##### 5956#       发表于 2024-9-27 10:32
+
+第一章开头路人NPC都开始那个人那件事，太享受了。主角团讨论穿搭讨论几分钟，然后重量级的她是某某的女儿，也就是说她是某某的千金，我还以为是小泉写的，竹入是老年痴呆了吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  fireadol  
+##### 5957#       发表于 2024-9-27 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66319191&amp;ptid=2160194" target="_blank">kevinausting 发表于 2024-09-27 09:37:50</a>
+你们玩轨迹会有阅读障碍吗，我经常一段对话反复看半天也没看懂想表达什么，但玩别的游戏没这个问题。不过轨 ...</blockquote>可能编剧写的时候也不懂自己在写什么
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  kangkangsama  
+##### 5958#       发表于 2024-9-27 10:36
+
+“期待那个人的加入”“那个人也要加入游击士”“他现在在二楼”
+
+结果一看不就是核爆村的小孩嘛
+
+就这样一个黎轨角色还要用不说人话的方式介绍
+
+怀疑是不是真对这种话术魔怔了
+

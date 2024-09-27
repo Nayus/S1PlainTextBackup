@@ -13339,3 +13339,13 @@ GYahdGVa0AA4onH.jpg
 
 <img src="https://img.saraba1st.com/forum/202409/27/003558a7xw37hrtzqwt7g9.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  前方暴雨预警  
+##### 23429#       发表于 2024-9-27 10:35
+
+喜报：狗剧场版前篇基本把鸡团成员包括C团往事全删干净了
+
+悲报：后篇预告有第3集的镜头
+

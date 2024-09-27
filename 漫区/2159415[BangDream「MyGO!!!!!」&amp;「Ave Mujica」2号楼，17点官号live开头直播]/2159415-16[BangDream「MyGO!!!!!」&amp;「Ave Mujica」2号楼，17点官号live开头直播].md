@@ -14165,3 +14165,70 @@ ykn:键帽欠爱了
 
 海希剧情全删，猫希没加戏还补刀，这制作组是不是真的对立希有点意见
 
+
+*****
+
+####  PDQ4  
+##### 23508#       发表于 2024-9-27 14:43
+
+柿本独角兽吵得不可开交，唯独在迫害立希上达成了高度一致
+
+是不是太地狱了点
+
+我还想看立希骨呢，真不给我看吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CyDiablo  
+##### 23509#       发表于 2024-9-27 14:44
+
+那前七集就是这样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">猫希关系本来就是后期转进到饲主关系的啊
+
+*****
+
+####  NODY  
+##### 23510#       发表于 2024-9-27 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66322651&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2024-9-27 14:44</a>
+
+那前七集就是这样猫希关系本来就是后期转进到饲主关系的啊</blockquote>
+理论上可以在第六集后加一点猫归队后和立希的剧情，补上猫那句没头没尾的“新的委托”的坑
+
+没想到啊，底边就是底边，猫补了二十分钟都不给立希半分钟眼神<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  CyDiablo  
+##### 23511#       发表于 2024-9-27 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66322679&amp;ptid=2159415" target="_blank">NODY 发表于 2024-9-27 14:47</a>
+理论上可以在第六集后加一点猫归队后和立希的剧情，补上猫那句没头没尾的“新的委托”的坑
+
+没想到啊，底 ...</blockquote>
+少点擅自期待<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+剑指柿本说的后篇会有的“立希的心情”好吧，剑指<img src="https://static.saraba1st.com/image/smiley/face2017/179.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 23512#       发表于 2024-9-27 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66322724&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2024-9-27 14:52</a>
+
+少点擅自期待
+
+剑指柿本说的后篇会有的“立希的心情”好吧，剑指</blockquote>
+看repo都说crychic回忆要补在后篇，加上film live，能匀出几分钟啊
+
+甚至还有可能和上面那个猫在后台故意不去练习一样越抹越黑，我不好说了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cherryjia12  
+##### 23513#       发表于 2024-9-27 14:57
+
+新歌算是mygo一专之后听感最好的一首，有点栞的感觉，羊姐还是适合抒情歌
+就是这汉字，对国人来说最拗口的一次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

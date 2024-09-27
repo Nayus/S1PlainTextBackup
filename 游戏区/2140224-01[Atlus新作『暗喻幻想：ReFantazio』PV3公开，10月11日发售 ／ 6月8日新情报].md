@@ -2760,3 +2760,11 @@ The hero 英雄
 按照961楼在隔壁贴说的日本对metaphor的理解，metaphor在日语里其实和“metagame——特指玩打破第四面墙这一种手法的狭义元游戏”没什么关联，它指的其实是“比喻修辞”或者“寓言、童话”
 或许从一开始，《Metaphor reFantazio》就是掉书袋起了个时髦名字，atlus真正想起的游戏名字其实是《Tale of Isekai:Reload》<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ColAMK  
+##### 970#       发表于 2024-9-27 11:36
+
+我steam版的demo进去没声音，有朋友遇到过这种问题吗，怎么解决<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

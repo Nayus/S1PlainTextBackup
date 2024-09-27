@@ -13730,3 +13730,85 @@ wsd能别让鸡出现么毕竟是猫视角，鸡成员帮了狗什么猫真的�
 
 前篇加了那麼多貓的戲份，我覺得是可以合理推測後篇會多塞一些愛音戲份的<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives  
+##### 23466#       发表于 2024-9-27 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66320729&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-9-27 11:33</a>
+好鬼畜的剧情
+
+不过系构不还是独角兽吗，这大纲没经她手？</blockquote>
+独角兽不是已经被连人带椅子抬走了吗
+
+*****
+
+####  PDQ4  
+##### 23467#       发表于 2024-9-27 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66320775&amp;ptid=2159415" target="_blank">skives 发表于 2024-9-27 11:37</a>
+
+独角兽不是已经被连人带椅子抬走了吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么可能真抬走了，她还在那个职位上就说明活还是她干的
+
+之前泥漏滑坡也是担心明年鸡一出来，系构不是独角兽或者加别人
+
+不过狗剧场版还是她
+
+
+*****
+
+####  前方暴雨预警  
+##### 23468#       发表于 2024-9-27 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66320729&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-9-27 11:33</a>
+
+好鬼畜的剧情
+
+不过系构不还是独角兽吗，这大纲没经她手？</blockquote>
+剧场版系构是柿本，独角兽只是脚本之一。这个在前期情报里有。
+
+syl，追加现地哥的repo，素祥飞鸟山、初灯天文馆、海铃支援mygo和睦祥入队谈话，全都在后篇预告里出现了。
+
+后篇本来就只有6集内容，加上20分钟的film live，要湊到总时长120分钟，看来只删掉了mujica其他几个人的入队和1st live？
+
+*****
+
+####  skives  
+##### 23469#       发表于 2024-9-27 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66320836&amp;ptid=2159415" target="_blank">前方暴雨预警 发表于 2024-9-27 11:42</a>
+剧场版系构是柿本，独角兽只是脚本之一。这个在前期情报里有。
+
+syl，追加现地哥的repo，素祥飞鸟山、初 ...</blockquote>
+剧场版官网系构是独角兽啊<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 23470#       发表于 2024-9-27 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66320836&amp;ptid=2159415" target="_blank">前方暴雨预警 发表于 2024-9-27 11:42</a>
+
+剧场版系构是柿本，独角兽只是脚本之一。这个在前期情报里有。
+
+syl，追加现地哥的repo，素祥飞鸟山、初 ...</blockquote>
+我看官网上系构写得还是独角兽啊，柿本排脚本第一了是可能拉胯原因之一
+
+柿本系构这个有出处吗，可能我火星人了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cherryjia12  
+##### 23471#       发表于 2024-9-27 11:44
+
+泥漏别太爱让柿本背锅了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ytttsuuuba  
+##### 23472#       发表于 2024-9-27 11:45
+
+系构是谁就让谁背锅呗，比如菜花。
+

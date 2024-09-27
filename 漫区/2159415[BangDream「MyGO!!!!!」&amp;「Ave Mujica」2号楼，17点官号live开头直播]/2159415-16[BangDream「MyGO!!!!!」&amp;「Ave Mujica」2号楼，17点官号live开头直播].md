@@ -14537,3 +14537,13 @@ mygo成员的剧情基本上都保留了<img src="https://static.saraba1st.com/i
 包括她们call祥子的台词
 第六集那段剧情立希回忆了两次祥子 回忆里的祥子台词也一句没删
 
+
+*****
+
+####  Gandalf  
+##### 23545#       发表于 2024-9-27 19:00
+
+关space的理由也太搞了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

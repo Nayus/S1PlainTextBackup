@@ -13482,3 +13482,31 @@ GYahdGVa0AA4onH.jpg
 
 柿本是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 23443#       发表于 2024-9-27 10:59
+
+沒給你做成CCC總集篇就偷笑吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 23444#       发表于 2024-9-27 11:01
+
+鸡的东西肯定能删完，用ccc相关矛盾推剧情的地方大概删不掉
+
+后篇应该还有film live，加上要闪回，也可能还有新画面？
+
+怎么想ccc都拿不到什么重要戏份了，后篇是真的要卖狗团魂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过虽然知道第三集会砍，砍这么多还是震惊
+
+*****
+
+####  星天观测  
+##### 23445#       发表于 2024-9-27 11:03
+
+害，所以鸡在后篇还是会出现么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

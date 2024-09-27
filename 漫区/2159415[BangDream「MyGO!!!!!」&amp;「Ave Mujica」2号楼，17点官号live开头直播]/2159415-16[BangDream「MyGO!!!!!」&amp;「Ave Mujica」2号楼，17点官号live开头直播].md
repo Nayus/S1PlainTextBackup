@@ -14776,3 +14776,36 @@ A和B的部分人员以前认识
 第一次看大名鼎鼎的买狗，最后唱歌的时候突然莫名其妙跑出去那个蓝毛是谁啊？她旁边那个绿毛更是莫名其妙， ...</blockquote>
 剧场版是TV剪辑版+新画面，虽然我没看过剧场版，不过从似乎是把TV里几个感情爆发点给剪没了，当然本质上这个剧场版是给TV查漏补缺的，剧场版的主视角猫猫算是主角队里在TV里刻画最少的角色也是和TV里矛盾核心交集最少的角色（之一）。简单来说就是猫猫就不认识那两人，但是队里其他人认识。
 
+
+*****
+
+####  rikaren  
+##### 23564#       发表于 2024-9-27 21:49
+
+还剩28，29，30三天，wsd看起来是真的要拖30号才发mv了
+
+*****
+
+####  藤田琴音  
+##### 23565#       发表于 2024-9-27 21:51
+
+msk新卡花后还是熊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 23566#       发表于 2024-9-27 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66326439&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-9-27 21:49</a>
+
+还剩28，29，30三天，wsd看起来是真的要拖30号才发mv了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">真他媽無語，突出一個沒活硬拖。
+
+
+*****
+
+####  NODY  
+##### 23567#       发表于 2024-9-27 21:56
+
+mv没说过是一个月一次好吧，没准3rd之后才发呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

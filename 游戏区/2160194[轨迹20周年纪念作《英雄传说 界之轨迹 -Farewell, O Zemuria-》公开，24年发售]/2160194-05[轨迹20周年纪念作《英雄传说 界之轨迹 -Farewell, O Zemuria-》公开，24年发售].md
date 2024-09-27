@@ -560,3 +560,11 @@ ps5要从新下载
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  we89623  
+##### 5977#       发表于 2024-9-27 21:48
+
+打的途中吐槽下，NM这第一章太长了吧，我打了快20小时还没结束，大哥我是超级简单难度模式耶，打黑色庭院基本都是开加速啊。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

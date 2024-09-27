@@ -500,3 +500,17 @@ ps5要从新下载
 
 不过5.0就奖励炼成石还是ex不算在奖杯要求成就里就无所谓一点
 
+
+*****
+
+####  樱桐  
+##### 5972#       发表于 2024-9-27 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66320413&amp;ptid=2160194" target="_blank">mrm4B 发表于 2024-9-27 11:14</a>
+
+伸手蹲个攻略站</blockquote>
+[https://kamikouryaku.net/kainokiseki/](https://kamikouryaku.net/kainokiseki/)
+[https://appmedia.jp/loh_kai](https://appmedia.jp/loh_kai)
+
+两个互补着看吧， 攻略核心就看个支线sp和奖杯尽可能少周目吧
+

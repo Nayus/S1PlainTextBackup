@@ -532,3 +532,21 @@ ps5要从新下载
 
 这回路奖励打完一个又刷新一个，继续做下水道战神<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  theti  
+##### 5975#       发表于 2024-9-27 19:42
+
+ 本帖最后由 theti 于 2024-9-27 19:44 编辑 
+
+<img src="https://img.saraba1st.com/forum/202409/27/194233fabn5aau7d13zr5x.jpg" referrerpolicy="no-referrer">
+
+<strong>image.jpg</strong> (1.25 MB, 下载次数: 0)
+
+下载附件
+
+2024-9-27 19:42 上传
+
+克罗都从xx分子变成帝国幕后英雄了？七班真是无恶不作啊，帝国毁在这个破学校上了
+

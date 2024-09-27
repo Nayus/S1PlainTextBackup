@@ -14569,3 +14569,13 @@ mygo成员的剧情基本上都保留了<img src="https://static.saraba1st.com/i
 
 看了一眼哪都有立希推在因为各种原因破防，怎么回事，这不是mygo的剧场版吗（笑）
 
+
+*****
+
+####  良臣没有重谢  
+##### 23548#       发表于 2024-9-27 19:44
+
+第一次看大名鼎鼎的买狗，最后唱歌的时候突然莫名其妙跑出去那个蓝毛是谁啊？她旁边那个绿毛更是莫名其妙，从没见过像是突然刷新出来的路人。唱得好好的突然狂给俩路人戏份真的好影响观感。<img src="https://static.saraba1st.com/image/smiley/face2017/246.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CET-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+

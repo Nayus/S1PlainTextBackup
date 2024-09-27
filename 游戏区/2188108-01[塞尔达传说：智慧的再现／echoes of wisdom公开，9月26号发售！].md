@@ -4858,3 +4858,17 @@ Made in CHINA
 
 还有召唤这个系统的实用性，感觉不如变身系，所以奥德赛能97分，这作就…………<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  anfangzhan  
+##### 1054#       发表于 2024-9-28 03:30
+
+ 本帖最后由 anfangzhan 于 2024-9-28 03:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66327904&amp;ptid=2188108" target="_blank">黑夜守望者 发表于 2024-9-28 02:52</a>
+
+我觉得这作解谜都在打怪上了，地图和迷宫的谜题简直弱智
+
+本来以为战斗会从头到尾只靠召唤，结果还是要变成 ...</blockquote>
+目前战斗我确实只靠召唤，只要它不要把boss设计成非林克剑砍无法受到伤害我一律召唤，需要在某个时间窗口发出攻击的我一律瞬招挥剑猪猪
+

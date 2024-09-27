@@ -14579,3 +14579,64 @@ mygo成员的剧情基本上都保留了<img src="https://static.saraba1st.com/i
 
 —— 来自 HUAWEI CET-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
+
+*****
+
+####  ykyin09  
+##### 23549#       发表于 2024-9-27 19:50
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/029.png" referrerpolicy="no-referrer">下周放假去日本旅游，顺带希望能看剧场版，有坛友指点一下怎样查酒店周边电影院的排表以及线上买票吗？
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  [皆神孝介]  
+##### 23550#       发表于 2024-9-27 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66325288&amp;ptid=2159415" target="_blank">良臣没有重谢 发表于 2024-9-27 19:44</a>
+
+第一次看大名鼎鼎的买狗，最后唱歌的时候突然莫名其妙跑出去那个蓝毛是谁啊？她旁边那个绿毛更是莫名其妙， ...</blockquote>
+如果坛友是无意中误入，这个剧场动画是刚出的，大致可以理解成重新编辑过的总集篇动画，分为两部分，现在这个是上半部分
+
+有兴趣的话，建议从TV动画开始看
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 良臣没有重谢| + 2|喜欢你。|
+
+查看全部评分
+
+*****
+
+####  良臣没有重谢  
+##### 23551#       发表于 2024-9-27 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66325325&amp;ptid=2159415" target="_blank">ykyin09 发表于 2024-9-27 19:50</a>
+下周放假去日本旅游，顺带希望能看剧场版，有坛友指点一下怎样查酒店周边电影院的排表以及线上买票吗？
+
+论 ...</blockquote>
+https://www.tohotheater.jp/
+
+toho的在这可以看，能直接把票买了。
+别的影院不清楚。
+
+—— 来自 HUAWEI CET-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  抽搐一下  
+##### 23552#       发表于 2024-9-27 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66325288&amp;ptid=2159415" target="_blank">良臣没有重谢 发表于 2024-9-27 19:44</a>
+
+第一次看大名鼎鼎的买狗，最后唱歌的时候突然莫名其妙跑出去那个蓝毛是谁啊？她旁边那个绿毛更是莫名其妙， ...</blockquote>
+因为剧场版把她们戏份删没了
+

@@ -14674,3 +14674,20 @@ toho的在这可以看，能直接把票买了。
 论 ...</blockquote>
 有些电影院有实体终端可以刷西瓜卡买
 
+
+*****
+
+####  星天观测  
+##### 23556#       发表于 2024-9-27 20:21
+
+现地群友的详细repo<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+QQ图片20240927201735.jpg
+(239.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-27 20:21 上传
+
+<img src="https://img.saraba1st.com/forum/202409/27/202131atha9hea0s8ryvs0.jpg" referrerpolicy="no-referrer">
+

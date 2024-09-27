@@ -14561,3 +14561,11 @@ mygo成员的剧情基本上都保留了<img src="https://static.saraba1st.com/i
 
 —— 来自 vivo V2183A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  NODY  
+##### 23547#       发表于 2024-9-27 19:34
+
+看了一眼哪都有立希推在因为各种原因破防，怎么回事，这不是mygo的剧场版吗（笑）
+

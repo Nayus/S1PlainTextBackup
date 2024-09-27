@@ -14127,3 +14127,41 @@ ykn:键帽欠爱了
 
 2024-9-27 14:12 上传
 
+
+*****
+
+####  PDQ4  
+##### 23504#       发表于 2024-9-27 14:28
+
+妈160，爹190，猫这高中是不是至少要长10cm<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+总不能因为天天吃抹茶巴菲导致营养跟不上吧<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白笛之音  
+##### 23505#       发表于 2024-9-27 14:33
+
+为什么演奏春日影开幕雷击闭幕雷击放两遍。预告放台词我是来结束乐队的，全网最尊重soyo的剧场版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+
+*****
+
+####  CyDiablo  
+##### 23506#       发表于 2024-9-27 14:36
+
+总集篇新歌直接进游戏了
+<img src="https://p.sda1.dev/19/d865f2e12af5a7e3c2506210c72d8f36/Image_1727418889815.jpg" referrerpolicy="no-referrer">
+【MyGO!!!!! - 過惰幻 (game size)-哔哩哔哩】[https://b23.tv/zFUomsz](https://bbs.saraba1st.com/2b/ https://b23.tv/zFUomsz)
+
+*****
+
+####  NODY  
+##### 23507#       发表于 2024-9-27 14:36
+
+突然发现不对劲，猫就在后台故意不去练习，那不是反向坑了立希吗，本来立希就是因为猫不来才改来改去的，真的和设定集一样猫希不熟了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+海希剧情全删，猫希没加戏还补刀，这制作组是不是真的对立希有点意见
+

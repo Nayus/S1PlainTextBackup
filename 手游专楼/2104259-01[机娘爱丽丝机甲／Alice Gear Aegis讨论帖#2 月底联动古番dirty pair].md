@@ -52,3 +52,13 @@ y1s1这个泳池背景我是真喜欢<img src="https://static.saraba1st.com/imag
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  不灭的旋律  
+##### 1221#       发表于 2024-9-27 20:08
+
+歪了六次FA绫香又没抽到，今年WPU除了C.C.就没抽到过想要的。现在阿金就是塞你一堆不要的四星逼你氪金抽本命。
+
+今后主线的战场在中东，真的值得期待吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

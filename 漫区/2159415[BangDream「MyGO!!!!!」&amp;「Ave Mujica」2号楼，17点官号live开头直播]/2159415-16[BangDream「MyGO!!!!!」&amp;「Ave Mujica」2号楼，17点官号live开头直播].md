@@ -14232,3 +14232,37 @@ ykn:键帽欠爱了
 新歌算是mygo一专之后听感最好的一首，有点栞的感觉，羊姐还是适合抒情歌
 就是这汉字，对国人来说最拗口的一次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CyDiablo  
+##### 23514#       发表于 2024-9-27 15:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66322769&amp;ptid=2159415" target="_blank">NODY 发表于 2024-9-27 14:57</a>
+看repo都说crychic回忆要补在后篇，加上film live，能匀出几分钟啊
+
+甚至还有可能和上面那个猫在后台故意不 ...</blockquote>
+越抹越黑也太滑坡了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟猫说的无名乐队当时人心不齐还真没错，ep7前包括ep7猫本身也不信赖无名乐队，我觉得这段写得还挺有趣的
+
+*****
+
+####  skives10  
+##### 23515#       发表于 2024-9-27 15:06
+
+卧槽
+好长啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+可以说是分为两个部分
+开始就是猫的个人回 氛围和第三集差不多
+猫也是和这个世界有点偏离的孩子
+情感渲染很不错
+这部分完全柿本脚本
+
+然后进入mygo1～7的总集篇
+睦无台词 祥子有十句左右台词
+soyo给爱音看crychic视频+立希回忆 这两个部分
+
+结束在soyo名场景
+
+下篇预告mujica除了喵梦全员登场
+mygo新live 
+

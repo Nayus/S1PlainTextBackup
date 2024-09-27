@@ -2784,3 +2784,11 @@ ps5没什么问题，但是游戏太无聊
 
 鬼佬那几个论坛基本是UI差评居多，ATLUS你的文艺复兴美术好像鬼佬也觉得太乱了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  石中剑二  
+##### 973#       发表于 2024-9-27 15:01
+
+你们说的牛头人在哪呢？我怎么玩完都没碰到？
+

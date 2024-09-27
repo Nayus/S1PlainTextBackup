@@ -2872,3 +2872,20 @@ steam社区有帧数优化补丁了
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  superlink  
+##### 981#       发表于 2024-9-27 21:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">md资源太奢侈了，各种小动画，过场动不动放片。人设实际玩起来感觉还行，毕竟有点宗教味的世界观。
+
+—— 来自 vivo V2304A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  herryk159  
+##### 982#       发表于 2024-9-27 21:41
+
+有点无聊，幸好有试玩版<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

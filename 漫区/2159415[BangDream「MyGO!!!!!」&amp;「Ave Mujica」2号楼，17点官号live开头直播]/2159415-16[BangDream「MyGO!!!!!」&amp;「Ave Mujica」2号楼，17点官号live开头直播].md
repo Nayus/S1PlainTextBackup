@@ -14547,3 +14547,17 @@ mygo成员的剧情基本上都保留了<img src="https://static.saraba1st.com/i
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  rushsong  
+##### 23546#       发表于 2024-9-27 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66324354&amp;ptid=2159415" target="_blank">skives10 发表于 2024-9-27 17:49</a>
+对了
+乐奈在家里哼唱春日影
+乐奈的奶奶给予祥子的作曲水平高度肯定</blockquote>
+这么算的话祥子的作曲水平在你邦怎么排？
+
+—— 来自 vivo V2183A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

@@ -13557,3 +13557,88 @@ wsd能别让鸡出现么毕竟是猫视角，鸡成员帮了狗什么猫真的�
 那就要再悲报一次了，后篇不是猫视角了，好遗憾啊</blockquote>
 沒事反正愛音視角也不會塞很多CCC，應該只有一個角色的視角會導致……而看訪談的感覺不會是她main<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 23451#       发表于 2024-9-27 11:17
+
+上篇猫新剧情有三十多分钟，睦祥露脸但没台词。下篇预告里睦祥初华海玲有登场露脸，喵梦不知道有没有。
+这剧情编排只看文字剧透的话一言难尽，柿本这把是不是你打的有问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 23452#       发表于 2024-9-27 11:17
+
+猫干啥把space弄倒闭了<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 23453#       发表于 2024-9-27 11:19
+
+下午去鉴定柿本的脚本<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 23454#       发表于 2024-9-27 11:21
+
+睦祥没台词？那元和二年也是默剧吗还是直接删了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  羽毛水  
+##### 23455#       发表于 2024-9-27 11:22
+
+下篇视角主爱音出自哪里的情报有漏油可以发下吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  前方暴雨预警  
+##### 23456#       发表于 2024-9-27 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66320500&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-9-27 11:17</a>
+
+猫干啥把space弄倒闭了</blockquote>
+猫从小不好好讲话上学就泡space里 奶奶训她 她就非常轻描淡写的说要在space谈一辈子吉他
+
+然后奶奶思考了一晚之后把space关了 猫直接摆烂了两年不弹吉他
+
+——总结了一下repo，大概是这样的抽象剧情
+
+*****
+
+####  CyDiablo  
+##### 23457#       发表于 2024-9-27 11:24
+
+ 本帖最后由 CyDiablo 于 2024-9-27 11:26 编辑 
+
+新剧情剧透
+[https://p.sda1.dev/19/69efc58b6db1900df22b1e8750dcbc43/Image_1727407524682.jpg](https://p.sda1.dev/19/69efc58b6db1900df22b1e8750dcbc43/Image_1727407524682.jpg)
+猫猫这剧情重力拉满了啊，好想看剧场版<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+ syl 刚发错了
+
+*****
+
+####  御幸一也  
+##### 23458#       发表于 2024-9-27 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66320573&amp;ptid=2159415" target="_blank">羽毛水 发表于 2024-9-27 11:22</a>
+
+下篇视角主爱音出自哪里的情报有漏油可以发下吗</blockquote>
+
+是animedia 10月號的劇場版訪談第二問
+
+原話其實不是說的後篇主視角愛音
+
+<img src="https://img.saraba1st.com/forum/202409/27/112402xrmgqmcfrpu77dud.jpg" referrerpolicy="no-referrer">
+
+<strong>animedia_202410_67.jpg</strong> (813.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-27 11:24 上传
+

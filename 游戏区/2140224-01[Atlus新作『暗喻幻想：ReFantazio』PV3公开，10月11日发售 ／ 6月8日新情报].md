@@ -2746,3 +2746,17 @@ The hero 英雄
 过不了牛头人，一击全灭，等级太低了么</blockquote>
 三人都转职剑士，合题的3ap技能可破<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  otaku21126  
+##### 969#       发表于 2024-9-27 11:18
+
+ 本帖最后由 otaku21126 于 2024-9-27 11:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66318899&amp;ptid=2140224" target="_blank">kuarwbwe 发表于 2024-9-27 09:13</a>
+如果这游戏被推倒过的消息属实，那我严重怀疑这游戏原来的键政剧本被毙了。
+
+—— 来自 鹅球 v3.1.91-alp ...</blockquote>
+按照961楼在隔壁贴说的日本对metaphor的理解，metaphor在日语里其实和“metagame——特指玩打破第四面墙这一种手法的狭义元游戏”没什么关联，它指的其实是“比喻修辞”或者“寓言、童话”
+或许从一开始，《Metaphor reFantazio》就是掉书袋起了个时髦名字，atlus真正想起的游戏名字其实是《Tale of Isekai:Reload》<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

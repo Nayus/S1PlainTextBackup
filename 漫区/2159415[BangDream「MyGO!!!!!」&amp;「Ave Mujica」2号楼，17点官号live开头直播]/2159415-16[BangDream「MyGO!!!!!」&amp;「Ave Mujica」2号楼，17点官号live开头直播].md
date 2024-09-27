@@ -14691,3 +14691,11 @@ QQ图片20240927201735.jpg
 
 <img src="https://img.saraba1st.com/forum/202409/27/202131atha9hea0s8ryvs0.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  461757753  
+##### 23557#       发表于 2024-9-27 20:42
+
+剧场版还多了一段anon第一次看春日影的反应，不到3秒
+

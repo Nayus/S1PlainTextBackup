@@ -14067,3 +14067,27 @@ mujica戏份全删那不就是立希在学校的剧情都删了，这形象是�
 
 总集篇剧场版难道还指望写个完整新故事吗<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 23500#       发表于 2024-9-27 13:43
+
+猫和美帝都有新画面，立希不仅关系图上没有猫的箭头，也没补任何和猫相关的互动，明明第六集后可以补的，这下真是底边别蹭了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202409/27/134236p6pdot6dpv7d6ttq.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240927134147.png</strong> (50.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-27 13:42 上传
+
+<img src="https://img.saraba1st.com/forum/202409/27/134239erpnrn2kdkrrsddf.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240927134220.png</strong> (102.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-27 13:42 上传
+

@@ -14359,3 +14359,11 @@ c团估计放下篇了，但考虑到还有爱音猫猫立希新剧情以及新l
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下关爱空巢老喵了，其他四个因为和剧情强推动相关删不了，老喵是真的可以删
 
+
+*****
+
+####  Aendst  
+##### 23527#       发表于 2024-9-27 15:34
+
+加起来露五分钟左右的脸就够了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">路人npc罢了
+

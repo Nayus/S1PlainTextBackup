@@ -4678,3 +4678,58 @@ Made in CHINA
 
 哦已经知道了
 
+
+*****
+
+####  Yidam  
+##### 1036#       发表于 2024-9-27 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66326043&amp;ptid=2188108" target="_blank">杨千fa单推人 发表于 2024-9-27 21:01</a>
+
+沙漠神殿这个怎么拿阿
+
+顺便问下那个吼叫硬控怪有什么对策打法嘛</blockquote>
+外面楼顶打洞下去，传送点左边一点，不知道有什么对策，但是可以先去大地图右下摸个带电液形虫，先手控他<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aaronluray  
+##### 1037#       发表于 2024-9-27 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66326043&amp;ptid=2188108" target="_blank">杨千fa单推人 发表于 2024-9-27 21:01</a>
+
+沙漠神殿这个怎么拿阿
+
+顺便问下那个吼叫硬控怪有什么对策打法嘛</blockquote>
+建筑外面有个很明显的沙地，打洞进去。反正先想着能不能在外面打洞就对了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  林檎  
+##### 1038#       发表于 2024-9-27 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66326043&amp;ptid=2188108" target="_blank">杨千fa单推人 发表于 2024-9-27 21:01</a>
+
+沙漠神殿这个怎么拿阿
+
+顺便问下那个吼叫硬控怪有什么对策打法嘛</blockquote>
+我用那个费三点的木乃伊打的，不怕吼
+
+*****
+
+####  TriSPD  
+##### 1039#       发表于 2024-9-27 21:13
+
+湿地捉迷藏第三关，石像四兄弟在哪儿？
+
+
+*****
+
+####  Yidam  
+##### 1040#       发表于 2024-9-27 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66326162&amp;ptid=2188108" target="_blank">TriSPD 发表于 2024-9-27 21:13</a>
+
+湿地捉迷藏第三关，石像四兄弟在哪儿？</blockquote>
+美食区西边
+

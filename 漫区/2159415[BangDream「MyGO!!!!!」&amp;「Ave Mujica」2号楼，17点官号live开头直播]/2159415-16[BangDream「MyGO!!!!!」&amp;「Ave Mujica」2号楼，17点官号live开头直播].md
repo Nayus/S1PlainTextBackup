@@ -13642,3 +13642,91 @@ wsd能别让鸡出现么毕竟是猫视角，鸡成员帮了狗什么猫真的�
 
 2024-9-27 11:24 上传
 
+
+*****
+
+####  skives  
+##### 23459#       发表于 2024-9-27 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66320593&amp;ptid=2159415" target="_blank">前方暴雨预警 发表于 2024-9-27 11:23</a>
+猫从小不好好讲话上学就泡space里 奶奶训她 她就非常轻描淡写的说要在space谈一辈子吉他
+
+然后奶奶思考了 ...</blockquote>
+柿本广大太变态了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 23460#       发表于 2024-9-27 11:28
+
+算了，这种关space的原因，我们萝符号又能说什么呢<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+无语罢了
+
+*****
+
+####  那什么阿法  
+##### 23461#       发表于 2024-9-27 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66320573&amp;ptid=2159415" target="_blank">羽毛水 发表于 2024-9-27 11:22</a>
+
+下篇视角主爱音出自哪里的情报有漏油可以发下吗</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202409/27/112618s1rl2415lb65u3ru.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (68.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-27 11:26 上传
+
+之前看到一个说法是这么聊的，上面那个聊的是“重点关注和mujica没有关系的爱音以及rana身上”，没有提到主视角的问题
+
+
+*****
+
+####  羽毛水  
+##### 23462#       发表于 2024-9-27 11:33
+
+后篇要是也能多来点猫就好了<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+虽然总感觉film live会占时间然后开始金曲mv串烧
+
+*****
+
+####  那什么阿法  
+##### 23463#       发表于 2024-9-27 11:33
+
+<img src="https://img.saraba1st.com/forum/202409/27/113137qchggvg5zee74qo5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (8.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-27 11:31 上传
+
+小册子上倒是有个不知道能不能算彩蛋的事，该乐队就是go动画第四集十四十五分钟左右 立希问海铃“今天是哪个乐队”时海铃提到的“Disruption”
+
+*****
+
+####  PDQ4  
+##### 23464#       发表于 2024-9-27 11:33
+
+好鬼畜的剧情<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+不过系构不还是独角兽吗，这大纲没经她手？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 23465#       发表于 2024-9-27 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66320696&amp;ptid=2159415" target="_blank">那什么阿法 发表于 2024-9-27 11:31</a>
+
+之前看到一个说法是这么聊的，上面那个聊的是“重点关注和mujica没有关系的爱音以及rana身上”，没有提 ...</blockquote>
+原話本就沒說這個，從那段能知道的是，
+
+劇場版<strong>只</strong>聚焦在go，會刪掉雞狗共通的要素，加大和ave沒有什麼聯繫的愛音和貓戲份
+
+前篇加了那麼多貓的戲份，我覺得是可以合理推測後篇會多塞一些愛音戲份的<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+

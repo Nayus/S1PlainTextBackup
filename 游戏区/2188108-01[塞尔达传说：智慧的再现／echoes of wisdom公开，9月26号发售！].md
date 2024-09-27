@@ -4520,3 +4520,16 @@ Made in CHINA
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这游戏比王泪还简单啊
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 1021#       发表于 2024-9-27 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66322100&amp;ptid=2188108" target="_blank">nunotenn 发表于 2024-9-27 13:47</a>
+
+好缺钱，一个装备就四五百，大妖精也要钱，穷疯了
+
+除了当芒果苦力以外还有没有来钱快的 ...</blockquote>
+平时打怪用魔鸦，然后你的钱就在不知不觉的情况下变多了！
+

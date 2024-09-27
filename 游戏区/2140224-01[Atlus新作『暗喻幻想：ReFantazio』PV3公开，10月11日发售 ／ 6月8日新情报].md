@@ -2800,3 +2800,13 @@ ps5没什么问题，但是游戏太无聊
 
 不管了，已买<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猫沢  
+##### 975#       发表于 2024-9-27 15:48
+
+老头都能入队，coop那么多大车不给我入队<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

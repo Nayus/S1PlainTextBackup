@@ -4320,3 +4320,11 @@ Made in CHINA
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">玩了一个小时多开第二个传送点，上来就扣分，演出怎么这么拖沓。按键也难受，塞尔达没法直接攻击必须用召唤，这召唤吧还得自己锁定，且不说锁定了也不会立马攻击，召唤怪还经常被障碍物挡住，麻了
 
+
+*****
+
+####  clyde-wang  
+##### 999#       发表于 2024-9-27 08:10
+
+看了下昨天在日本买的Lite还真的是柬埔寨版本，买来收藏的，外观是没什么瑕疵
+

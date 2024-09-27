@@ -14749,3 +14749,12 @@ A和B的部分人员以前认识
 
 —— 来自 HUAWEI CET-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
+
+*****
+
+####  CyDiablo  
+##### 23561#       发表于 2024-9-27 21:28
+
+新歌全曲，想在7th上听这首的不插电了，抒情曲真好啊真好啊
+【MyGO!!!!! - 過惰幻 (完整版)-哔哩哔哩】 [https://b23.tv/3nwdmso](https://b23.tv/3nwdmso)
+

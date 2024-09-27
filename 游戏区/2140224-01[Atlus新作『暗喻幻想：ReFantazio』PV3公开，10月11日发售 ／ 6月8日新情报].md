@@ -2966,3 +2966,19 @@ HARD难度牛头人迷宫也不难，主要得拿了之前矿坑那把大剑然�
 
 我是真的服了的这游戏改名叫黑屏或者切屏幻想吧，打完第一场boss战每个敌我回合都要闪一下切屏我真的眼都要瞎了
 
+
+*****
+
+####  bwsusaga  
+##### 990#       发表于 2024-9-28 01:57
+
+ 本帖最后由 bwsusaga 于 2024-9-28 01:59 编辑 
+
+强过了HARD难度牛头人<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">，打完全员12级。
+
+结论就是三人全转剑士，进迷宫杂鱼尽量不打保留MP，或是带足MP药，
+
+进牛头人战斗，攻低的人用冰块，攻高的凹三人大剑合击技断空无双烈斩，大概三到四次就能砍死。
+
+可能要凹个几次牛头人的攻击对象和暴击<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

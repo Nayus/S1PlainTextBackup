@@ -568,3 +568,11 @@ ps5要从新下载
 
 打的途中吐槽下，NM这第一章太长了吧，我打了快20小时还没结束，大哥我是超级简单难度模式耶，打黑色庭院基本都是开加速啊。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jacket  
+##### 5978#       发表于 2024-9-27 22:33
+
+刷成就的时候发现，EX chain比B.L.T.Z. chain先发生，经常是EX chain直接把怪打死就没下文了，想同时刷两种chain不行，难怪所有累计数之中B.L.T.Z. chain的很低。
+

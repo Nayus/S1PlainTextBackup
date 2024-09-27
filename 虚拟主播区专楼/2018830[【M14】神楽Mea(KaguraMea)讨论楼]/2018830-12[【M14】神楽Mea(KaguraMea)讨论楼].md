@@ -295,3 +295,27 @@ mea啊确实强，我白衣秀士都是嗑药打了十几次才过的</blockquot
 
 结束时已经说了要播
 
+
+*****
+
+####  Dualist彩  
+##### 17465#       发表于 2024-9-27 00:19
+
+感谢主播在百忙之中抽出一小时唱歌应付歌迷天狗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 17466#       发表于 2024-9-27 08:14
+
+撸瘾最近也太大了
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  古战场亡魂  
+##### 17467#       发表于 2024-9-27 11:07
+
+又不是单人lol，约好的多少人lol总不能不去吧，大家有点太敏感了。
+

@@ -13510,3 +13510,50 @@ GYahdGVa0AA4onH.jpg
 
 害，所以鸡在后篇还是会出现么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 23446#       发表于 2024-9-27 11:05
+
+別打擾人家go的團魂了吧，大家互不干涉這不是挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 23447#       发表于 2024-9-27 11:08
+
+wsd能别让鸡出现么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟是猫视角，鸡成员帮了狗什么猫真的知道么
+
+*****
+
+####  前方暴雨预警  
+##### 23448#       发表于 2024-9-27 11:09
+
+顺便在群里看repo，现地老哥说这次第7集春日影的部分给了睦的正脸，表情是设定集里的“喜”
+
+——什么C团最强入殓师睦子米啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+syl，目前对剧场版最不满是似乎是企划老团推，因为space关店的原因全挂在了猫一句话上，让之前ppp和萝对space的沉重感情显得有点喜剧了
+
+*****
+
+####  前方暴雨预警  
+##### 23449#       发表于 2024-9-27 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66320328&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-9-27 11:08</a>
+
+wsd能别让鸡出现么毕竟是猫视角，鸡成员帮了狗什么猫真的知道么</blockquote>
+那就要再悲报一次了，后篇不是猫视角了，好遗憾啊
+
+
+*****
+
+####  御幸一也  
+##### 23450#       发表于 2024-9-27 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66320364&amp;ptid=2159415" target="_blank">前方暴雨预警 发表于 2024-9-27 11:11</a>
+
+那就要再悲报一次了，后篇不是猫视角了，好遗憾啊</blockquote>
+沒事反正愛音視角也不會塞很多CCC，應該只有一個角色的視角會導致……而看訪談的感覺不會是她main<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

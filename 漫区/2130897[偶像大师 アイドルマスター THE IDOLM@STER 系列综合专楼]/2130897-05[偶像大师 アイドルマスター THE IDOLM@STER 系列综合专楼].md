@@ -1297,3 +1297,21 @@ sfp以后好像不用培育就能直接打歌了,这不就变成普通的音游�
 
 难道说<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">是万众期待（并没有）的土豆2吗？
 
+
+*****
+
+####  王九的哥哥  
+##### 6440#       发表于 2024-9-28 00:00
+
+最大胆的猜想是难道不是剧场版片尾的这颗卫星么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202409/27/235831iexzo6o8t64tt4ge.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (100.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-27 23:58 上传
+
+当然了，现实一点的话我觉得80%的可能性也就是765 All Stars天体公演最后一弹，还剩春香雪歩伊織貴音……
+

@@ -14860,3 +14860,13 @@ mv没说过是一个月一次好吧，没准3rd之后才发呢<img src="https://
 サメ食べる是mujica制作人吗？
 能不能私信他让他约图时慎重一点<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 23574#       发表于 2024-9-28 00:04
+
+サメ食べる是pv师，不是P<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+P目前只知道有个叫松本拓輝的，但好像只负责音乐和live方面
+

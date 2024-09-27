@@ -2946,3 +2946,15 @@ HARD难度牛头人迷宫也不难，主要得拿了之前矿坑那把大剑然�
 
 我是真没想明白为什么和路人npc对话结束都要刷一下黑屏，atlus技术力再低也不至于到这种程度吧
 
+
+*****
+
+####  猫沢  
+##### 988#       发表于 2024-9-28 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66327244&amp;ptid=2140224" target="_blank">windtrack_qh 发表于 2024-9-27 23:56</a>
+HARD难度牛头人迷宫也不难，主要得拿了之前矿坑那把大剑然后净化一下，哥布林我方平均12-13级左右偷袭进场 ...</blockquote>
+忘记净化就出发了<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -2832,3 +2832,15 @@ ui其实还好，虽然花哨实际玩起来盯着小字说明玩没想象中实
 
 —— 来自 OPPO PGEM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  猫沢  
+##### 978#       发表于 2024-9-27 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66324609&amp;ptid=2140224" target="_blank">石中剑二 发表于 2024-9-27 18:19</a>
+你们都在哪找到的牛头人，听说可以靠升五围解锁支线任务的迷宫？</blockquote>
+做支线加见识还有中央大街凳子也加见识，牛头人是见识2后接白毛大姐姐的任务解锁迷宫里的怪，试玩有3天自由活动最极限是第二天见识2后做牛头人支线，第三天打主线。牛头人支线比主线高很多等级我hard打不过爬了<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

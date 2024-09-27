@@ -14640,3 +14640,25 @@ toho的在这可以看，能直接把票买了。
 第一次看大名鼎鼎的买狗，最后唱歌的时候突然莫名其妙跑出去那个蓝毛是谁啊？她旁边那个绿毛更是莫名其妙， ...</blockquote>
 因为剧场版把她们戏份删没了
 
+
+*****
+
+####  skives  
+##### 23553#       发表于 2024-9-27 19:58
+
+我还以为是定型文<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 23554#       发表于 2024-9-27 20:06
+
+<img src="https://img.saraba1st.com/forum/202409/27/200558iggyhp0u0ixxpifu.jpg" referrerpolicy="no-referrer">
+
+<strong>GYeN**bAAA3RZU_format=jpg&amp;name=large.jpg</strong> (394.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-27 20:05 上传
+

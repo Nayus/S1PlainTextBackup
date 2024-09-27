@@ -4541,3 +4541,13 @@ Made in CHINA
 
 升到几级才能召唤人马啊..这升一级给加一格还以为挺快就能召了，结果再升一级能远距离复制，再升一级给一部分道具减了1点消耗我人都傻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  就是剑鞘  
+##### 1023#       发表于 2024-9-27 16:28
+
+草啊，经典乒乓球环节被疯狂羞辱，要不是冰沙带得够多真翻车了
+
+但是打完我还是得说一句，“我的魔物无穷无尽，而你的血量每分每秒都在伤亡” <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

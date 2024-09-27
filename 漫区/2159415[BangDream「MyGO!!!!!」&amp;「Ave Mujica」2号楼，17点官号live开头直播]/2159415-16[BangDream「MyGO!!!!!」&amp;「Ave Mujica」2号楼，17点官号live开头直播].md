@@ -14736,3 +14736,16 @@ A和B的部分人员以前认识
 
 当彩蛋无视就行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  良臣没有重谢  
+##### 23560#       发表于 2024-9-27 21:23
+
+ 本帖最后由 良臣没有重谢 于 2024-9-27 21:24 编辑 
+
+<img src="https://p.sda1.dev/19/72f4ebaca2f4fcee32b83639fdf5ee0d/IMG_CMP_30124567.jpeg" referrerpolicy="no-referrer">
+看风景的人在桥上看你说是
+
+—— 来自 HUAWEI CET-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+

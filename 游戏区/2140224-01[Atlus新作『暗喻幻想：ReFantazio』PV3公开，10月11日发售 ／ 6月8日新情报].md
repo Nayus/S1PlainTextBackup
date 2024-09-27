@@ -2860,3 +2860,15 @@ ui其实还好，虽然花哨实际玩起来盯着小字说明玩没想象中实
 
 2024-9-27 20:53 上传
 
+
+*****
+
+####  猫沢  
+##### 980#       发表于 2024-9-27 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66325982&amp;ptid=2140224" target="_blank">八汰乌 发表于 2024-9-27 20:55</a>
+分享一个demo掉帧的解决方法，N卡控制面板把FXAA打开，可以去开场沙漠响BGM那里测试，那里是demo掉帧最厉害 ...</blockquote>
+steam社区有帧数优化补丁了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

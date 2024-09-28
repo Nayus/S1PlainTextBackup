@@ -15938,3 +15938,22 @@ go团魂约等于灯辣导致的<img src="https://static.saraba1st.com/image/smi
 wsd这面具是不是太省钱了点，淘宝随便搜都能找到比这个好看的吧</blockquote>
 淘宝那些不一定能保证三四个小时l高强度ive不掉不坏不大幅度位移，尤其是初华那个还要唱歌，面部一直在动。
 
+
+*****
+
+####  御幸一也  
+##### 23672#       发表于 2024-9-28 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66333064&amp;ptid=2159415" target="_blank">光MIKAN 发表于 2024-9-28 19:54</a>
+
+说到猫希今天看到一个破防立希推说剧场版关系图里猫猫对立希没箭头但立希有，合着猫只把立希当会说话的钱包 ...</blockquote>
+會說話的錢包太難繃了
+
+
+*****
+
+####  akiomn  
+##### 23673#       发表于 2024-9-28 20:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果论刻板印象，立希对猫猫好像真是移动钱包，还有要练习时候负责找猫的老妈子
+

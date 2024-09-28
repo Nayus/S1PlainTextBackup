@@ -3381,3 +3381,21 @@ demo刷了十几小时，第二天牛头人第三天主线完美存档备战11�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  抹茶瓜  
+##### 1029#       发表于 2024-9-28 23:56
+
+ 本帖最后由 抹茶瓜 于 2024-9-28 23:57 编辑 
+
+demo打完了 在牛头人那里把自己练级练高了 结果砍瓜切菜了<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+优点：祖传战斗系统这次看出来还挺有可玩性的 看到了社内很多其他游戏的影子 世界树 DDS 想你了 ,目黑BGM还是赞 虽然战斗曲有点三房既视感（  期待下后续其他曲子， 异世界皮可西还蛮可爱的<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+缺点：菜单UI不行 一点不直观，美术没什么吸引人的地方，即时战斗做的很好 下次别做了 什么垃圾手感 为了贪点输出还增加了被打风险，桥野桂三板斧看的我就头大。阿基态说老实话没什么让人印象深刻的地方
+
+剧情方面看了剧透 如果是真的 没整什么大活反而想加分了，初期两队友看的出来是想让你早点组成小队 入队很急导致觉醒剧情看的我毫无波动。
+
+总体来说大概还是中规中矩吧，当初公布企划时的雄心壮志 发现根本做不出来什么新东西 最后无奈吃老本，暗喻幻想=桥野桂入职30周年纪念作<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

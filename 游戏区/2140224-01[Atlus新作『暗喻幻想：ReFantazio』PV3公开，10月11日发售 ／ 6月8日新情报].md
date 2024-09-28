@@ -3343,3 +3343,16 @@ TGS上公开的新试玩模式
 
 今天更新了个啥这么吊大
 
+
+*****
+
+####  莉可厨  
+##### 1025#       发表于 2024-9-28 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66333963&amp;ptid=2140224" target="_blank">ネコカイザー 发表于 2024-9-28 21:43</a>
+
+卡翼人了，这玩意怎么打？有没有hard难度过了的老哥指导一下。
+
+前排就放了一个人，冰块买完了，还是没啥希 ...</blockquote>
+其实那是个弱智招，队伍全部切到后排就稳躲
+

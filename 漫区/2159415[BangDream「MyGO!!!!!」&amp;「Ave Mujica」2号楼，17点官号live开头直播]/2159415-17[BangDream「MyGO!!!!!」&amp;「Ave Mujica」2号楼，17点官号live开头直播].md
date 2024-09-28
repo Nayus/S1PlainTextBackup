@@ -106,3 +106,26 @@
 
 海铃可能是高中以后才去那边支援的，所以那个乐队的贝斯手后来可能跑了？然后主唱作为前辈开导海铃之类的
 
+
+*****
+
+####  圆  
+##### 23688#       发表于 2024-9-28 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66334114&amp;ptid=2159415" target="_blank">NODY 发表于 2024-9-28 22:01</a>
+
+海铃的前乐队队友专门做了人设，不出意外明年动画和甜甜圈一样有戏份了，而且穿衣风格和海铃一样，没准关系 ...</blockquote>
+能看出来是3D还是2D吗，邦邦动画3D建模就是高戏份的入场券
+
+*****
+
+####  NODY  
+##### 23689#       发表于 2024-9-28 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66334660&amp;ptid=2159415" target="_blank">圆 发表于 2024-9-28 22:50</a>
+
+能看出来是3D还是2D吗，邦邦动画3D建模就是高戏份的入场券</blockquote>
+2D，但是这种ppt闪回大可直接拿老七团或者gg和chispa的图应付，没必要画个新的
+
+专门做了新人设画出来那就有很大可能性出场了
+

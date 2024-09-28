@@ -16010,3 +16010,19 @@ wsd这面具是不是太省钱了点，淘宝随便搜都能找到比这个好�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">记得没错的话动画里猫变得比较粘立希好像是诗超绊之后？好像也没有表现诸如关系变好的契机之类的，后篇若不追加难道要指望刻板印象堆叠的手游……
 
+
+*****
+
+####  星空冻结  
+##### 23680#       发表于 2024-9-28 22:00
+
+主要是立希一个打工的天天给猫猫这个有钱人家大小姐付钱真的很难绷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星空冻结  
+##### 23680#       发表于 2024-9-28 22:00
+
+主要是立希一个打工的天天给猫猫这个有钱人家大小姐付钱真的很难绷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

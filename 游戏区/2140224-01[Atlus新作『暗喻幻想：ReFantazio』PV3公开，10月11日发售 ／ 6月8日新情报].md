@@ -3296,3 +3296,21 @@ TGS上公开的新试玩模式
 前排就放了一个人，冰块买完了，还是没啥希 ...</blockquote>
 站前排的人防御就能吃下
 
+
+*****
+
+####  八汰乌  
+##### 1020#       发表于 2024-9-28 21:57
+
+阿特拉斯对这游戏很上心啊，试玩版也出优化补丁<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ネコカイザー  
+##### 1021#       发表于 2024-9-28 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66334027&amp;ptid=2140224" target="_blank">Khellendros 发表于 2024-9-28 21:51</a>
+
+站前排的人防御就能吃下</blockquote>
+还是得看运气。我主角转了法师，吃两连攻击必死。而且那个贵族小哥也得转剑士不然扛不住。
+

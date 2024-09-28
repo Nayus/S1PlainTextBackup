@@ -5350,3 +5350,86 @@ LV2的飞镖猪在哪里？打到王城了还没抓到过</blockquote>
 —— 来自 nubia NX729J, Android  ...</blockquote>
 活用同步
 
+
+*****
+
+####  aaronluray  
+##### 1103#       发表于 2024-9-28 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66334043&amp;ptid=2188108" target="_blank">cy6959 发表于 2024-9-28 21:52</a>
+
+德库监狱里有一个向下冲水的，上面有个能量石，要怎么顶着水压冲上去？
+
+—— 来自 nubia NX729J, Android  ...</blockquote>
+也可以使用坠眼怪
+
+
+*****
+
+####  位面农场  
+##### 1104#       发表于 2024-9-28 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66334043&amp;ptid=2188108" target="_blank">cy6959 发表于 2024-9-28 21:52</a>
+
+德库监狱里有一个向下冲水的，上面有个能量石，要怎么顶着水压冲上去？
+
+—— 来自 nubia NX729J, Android  ...</blockquote>
+看到几种解法
+
+1坠眼怪 
+
+2木箱子放普通水域，同步木箱子带着塞上去
+
+3同步向上冲的鱼
+
+*****
+
+####  cy6959  
+##### 1105#       发表于 2024-9-28 22:03
+
+惯性思维了，没想到反着来<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX729J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  新HGCG  
+##### 1106#       发表于 2024-9-28 22:08
+
+只能和松鼠大战那样攻击吗？
+
+
+*****
+
+####  位面农场  
+##### 1104#       发表于 2024-9-28 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66334043&amp;ptid=2188108" target="_blank">cy6959 发表于 2024-9-28 21:52</a>
+
+德库监狱里有一个向下冲水的，上面有个能量石，要怎么顶着水压冲上去？
+
+—— 来自 nubia NX729J, Android  ...</blockquote>
+看到几种解法
+
+1坠眼怪 
+
+2木箱子放普通水域，同步木箱子带着塞上去
+
+3同步向上冲的鱼
+
+*****
+
+####  cy6959  
+##### 1105#       发表于 2024-9-28 22:03
+
+惯性思维了，没想到反着来<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX729J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  新HGCG  
+##### 1106#       发表于 2024-9-28 22:08
+
+只能和松鼠大战那样攻击吗？
+

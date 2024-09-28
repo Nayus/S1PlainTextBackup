@@ -15179,3 +15179,18 @@ mygo动画访谈很多次强调要展现的是队内成员的化学反应（含�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">罔顾事实心虚无理还撒泼打滚，小心孽力回馈
 
+
+*****
+
+####  NODY  
+##### 23607#       发表于 2024-9-28 13:33
+
+鉴于b站评论区已经开始有go厨不满姨姥玩键盘换人梗了，没准明年还是姨姥那边先打起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 23608#       发表于 2024-9-28 13:35
+
+说到这个不会还有人岁是鸡推在那嚷嚷要键盘吧。
+

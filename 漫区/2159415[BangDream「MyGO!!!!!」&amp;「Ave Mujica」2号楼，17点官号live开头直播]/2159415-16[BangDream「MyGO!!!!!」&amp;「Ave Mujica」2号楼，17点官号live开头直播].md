@@ -15908,3 +15908,33 @@ wsd这面具是不是太省钱了点<img src="https://static.saraba1st.com/image
 
 说到猫希<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">今天看到一个破防立希推说剧场版关系图里猫猫对立希没箭头但立希有，合着猫只把立希当会说话的钱包啊，我要收回之前说猫希关系性强的话
 
+
+*****
+
+####  羽毛水  
+##### 23669#       发表于 2024-9-28 19:57
+
+go团魂约等于灯辣导致的<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+只是技术性调整，猫希会赢的<img src="https://static.saraba1st.com/image/smiley/face/31.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 23670#       发表于 2024-9-28 20:04
+
+所以才说不要随便帮立希贷款cp，灯希被独角兽背刺，猫希被柿本背刺，下一个背刺的还不知道是什么呢
+
+*****
+
+####  圆  
+##### 23671#       发表于 2024-9-28 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66332959&amp;ptid=2159415" target="_blank">articer 发表于 2024-9-28 19:44</a>
+
+第一次看了母鸡卡的三次元Live
+
+wsd这面具是不是太省钱了点，淘宝随便搜都能找到比这个好看的吧</blockquote>
+淘宝那些不一定能保证三四个小时l高强度ive不掉不坏不大幅度位移，尤其是初华那个还要唱歌，面部一直在动。
+

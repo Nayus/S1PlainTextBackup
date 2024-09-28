@@ -15769,3 +15769,21 @@ woc！这是官图？
 
 塞了一张明年的萝单独<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  桜庭千景  
+##### 23658#       发表于 2024-9-28 18:07
+
+该说不说，柿本脚本对猫的塑造和space关店处理问题不大，难道就因为不给立希高光就要跟着喷么
+
+*****
+
+####  御幸一也  
+##### 23659#       发表于 2024-9-28 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66331527&amp;ptid=2159415" target="_blank">NODY 发表于 2024-9-28 16:32</a>
+
+本来就是贷款堵嘴，别抱怨剧场版前篇会补立希剧情的，前篇没有那就后篇会补的，再没有就明年动画，再没有就 ...</blockquote>
+這個堵嘴套路，雞粉熟悉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

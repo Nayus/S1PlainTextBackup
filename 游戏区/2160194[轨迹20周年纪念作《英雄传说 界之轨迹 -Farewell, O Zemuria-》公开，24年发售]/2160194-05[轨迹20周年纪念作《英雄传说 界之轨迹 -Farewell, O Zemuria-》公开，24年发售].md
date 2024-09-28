@@ -856,3 +856,13 @@ L3开速度强化，一直防御
 坐了一个小时电车跑到立川想抽个色纸带回去，结果到了BicCamera告诉我5点就结束了，还得坐一个小时回去。。 ...</blockquote>
 今天似乎是开场一个小时试玩就没了
 
+
+*****
+
+####  qooweds  
+##### 6005#       发表于 2024-9-28 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66330074&amp;ptid=2160194" target="_blank">王俊凯 发表于 2024-9-28 13:00</a>
+现在zoc直接二动很简单的，不够就阿尼开一次花</blockquote>
+确实，我忘记这出了，加上之后就打了个4.7，还不错<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

@@ -5145,3 +5145,13 @@ LV2的飞镖猪在哪里？打到王城了还没抓到过</blockquote>
 
 拿到飞天砖之前同步控蜘蛛不断在房顶上拉线贼有乐趣
 
+
+*****
+
+####  zyupha  
+##### 1083#       发表于 2024-9-28 18:11
+
+不是，请问开局林克打猪猪要怎么打<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX712J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

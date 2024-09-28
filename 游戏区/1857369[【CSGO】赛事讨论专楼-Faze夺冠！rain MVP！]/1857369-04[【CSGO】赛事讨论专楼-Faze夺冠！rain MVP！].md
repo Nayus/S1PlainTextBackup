@@ -99,3 +99,11 @@ A队历史上好像没被零封过吧<img src="https://static.saraba1st.com/imag
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  ork  
+##### 4468#       发表于 2024-9-29 00:59
+
+niko这参加1v5达成1v1但是没换蛋侧身没打过简直是职业生涯的缩影
+

@@ -15848,3 +15848,18 @@ woc！这是官图？
 
 啊——為什麼ave mujica以下略
 
+
+*****
+
+####  圆  
+##### 23665#       发表于 2024-9-28 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66332389&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-9-28 18:35</a>
+
+我要拉踩一下了
+
+看看萝的花冠封面，再看看鸡的元素封面
+
+哎</blockquote>
+这是结婚请帖当然要用心，mujica的封面等到初祥结婚再看看<img src="https://static.saraba1st.com/image/smiley/face/84.gif" referrerpolicy="no-referrer">
+

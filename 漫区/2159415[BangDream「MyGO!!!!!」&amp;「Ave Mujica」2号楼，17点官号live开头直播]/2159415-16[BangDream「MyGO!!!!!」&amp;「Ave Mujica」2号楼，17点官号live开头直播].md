@@ -15124,3 +15124,20 @@ c团姨姥别急着骂，这不是还有后篇吗，你看预告都这样了肯�
 
 但是实事求是车武士道却是罪恶滔天的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 23601#       发表于 2024-9-28 13:10
+
+发脾气真的有展现团魂吗，如现，人刚找回来第二天又因为春日影炸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+林小姐喜欢倒是能理解，动画里面为数不多立希自己的个人烦恼了，虽然喊了这一句以后编剧完全没有给任何后续补完，一路被放置到手游都没有解决的迹象
+
+*****
+
+####  rikaren  
+##### 23602#       发表于 2024-9-28 13:15
+
+就一天都能岁月史书，我估计等到明年社区各种纷争恐怕都会被岁成鸡粉干的，你楼更是别想逃脱
+

@@ -15660,3 +15660,28 @@ wsd很喜欢在人擅自期待的时候狠狠让人破防
 
 这踏马的比llx的r1和r2隔的还远 谁教wsd这么隔的
 
+
+*****
+
+####  海晟天锻  
+##### 23650#       发表于 2024-9-28 17:29
+
+独角兽不讨厌海希的说法不是指望海希补全立希人设，而是说这俩人再怎么说都是一个班且有一定交情，母鸡卡动画肯定不会一点不给把两人切割的，但看了你go总集篇海希戏份全删我是不敢打包票了，到时候别当团内cp垫子就谢天谢地了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  rikaren  
+##### 23651#       发表于 2024-9-28 17:33
+
+<img src="https://img.saraba1st.com/forum/202409/28/173258zxu7ux074xl6343x.jpg" referrerpolicy="no-referrer">
+
+<strong>DDD796D095908184ED557657D68128D3.jpg</strong> (126.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 17:32 上传
+
+这分明就是结婚现场.jpg
+

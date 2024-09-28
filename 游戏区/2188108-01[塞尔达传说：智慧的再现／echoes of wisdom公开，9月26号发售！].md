@@ -5276,3 +5276,19 @@ LV2的飞镖猪在哪里？打到王城了还没抓到过</blockquote>
 
 总有人第一次玩的，毕竟是老的机制了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  就是剑鞘  
+##### 1096#       发表于 2024-9-28 20:52
+
+纪念一下，火焰巨人前面这个U型弯应该是本作卡我最久的谜题了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/b2ac15341bdbedb7f4501fa4ef379c9f/4530.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  我在干什么啊  
+##### 1097#       发表于 2024-9-28 20:53
+
+雪人族是不是只有这作和黄昏公主里有？
+

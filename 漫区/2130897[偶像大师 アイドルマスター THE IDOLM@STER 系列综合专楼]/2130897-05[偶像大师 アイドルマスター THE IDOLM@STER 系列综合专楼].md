@@ -1409,3 +1409,97 @@ va现地归来，一本满足<img src="https://static.saraba1st.com/image/smiley
 
 是龙宫小町
 
+
+*****
+
+####  wfhtony  
+##### 6445#       发表于 2024-9-28 19:20
+
+ 本帖最后由 wfhtony 于 2024-9-28 19:26 编辑 
+
+<img src="https://img.saraba1st.com/forum/202409/28/192001tnbsbanzeidqqav7.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-28-19h19m41s677.png</strong> (2.7 MB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 19:20 上传
+
+<img src="https://img.saraba1st.com/forum/202409/28/192003am9pe11qqop3ph1u.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-28-19h19m46s670.png</strong> (1.54 MB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 19:20 上传
+
+管馬仕接下來會和愛活學院那邊聯動。
+
+<img src="https://img.saraba1st.com/forum/202409/28/192033a68szxxnv66av87s.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-28-19h20m01s397.png</strong> (87.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 19:20 上传
+
+<img src="https://img.saraba1st.com/forum/202409/28/192034zy0z0z555vg6v05z.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-28-19h20m04s171.png</strong> (142.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 19:20 上传
+
+<img src="https://img.saraba1st.com/forum/202409/28/192035nqjpp3mykp330ffu.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-28-19h20m07s975.png</strong> (109.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 19:20 上传
+
+<img src="https://img.saraba1st.com/forum/202409/28/192036gicyvlifvzv4zr9t.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-28-19h20m12s007.png</strong> (140.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 19:20 上传
+
+<img src="https://img.saraba1st.com/forum/202409/28/192036ko2wyyw33keogyks.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-28-19h20m17s322.png</strong> (313.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 19:20 上传
+
+<img src="https://img.saraba1st.com/forum/202409/28/192037m60pd6fs01kd3b1n.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-28-19h20m22s997.png</strong> (392.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 19:20 上传
+
+<img src="https://img.saraba1st.com/forum/202409/28/192038bi0iia6wei07axj7.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-28-19h20m27s097.png</strong> (116.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 19:20 上传
+
+明年會有ONE-MAN LIVE，且有多首新曲製作中。
+
+<img src="https://img.saraba1st.com/forum/202409/28/192053vnvuuzxjusiijilg.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-28-19h20m31s098.png</strong> (146.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 19:20 上传
+
+「最終目標是上Arena，但現在的目標是粉絲數十萬人。」
+

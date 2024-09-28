@@ -5220,3 +5220,15 @@ LV2的飞镖猪在哪里？打到王城了还没抓到过</blockquote>
 
 —— 来自 nubia NX712J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  医生狼多  
+##### 1091#         楼主| 发表于 2024-9-28 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66332674&amp;ptid=2188108" target="_blank">zyupha 发表于 2024-9-28 19:14</a>
+光球可以用盾挡，但是那个突刺举盾还是会掉血...？
+原来是要靠走位吗</blockquote>
+光球拿剑打乒乓呀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+突刺走位躲
+

@@ -3371,3 +3371,13 @@ TGS上公开的新试玩模式
 
 今天想起来把主线打了，原来后面还有个pv，不过这画质……阿特拉斯拿门锁拍的吗？
 
+
+*****
+
+####  猫沢  
+##### 1028#       发表于 2024-9-28 23:51
+
+demo刷了十几小时，第二天牛头人第三天主线完美存档备战11号，感觉可以开香槟了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -3018,3 +3018,13 @@ HARD难度牛头人迷宫也不难，主要得拿了之前矿坑那把大剑然�
 
 感觉要雷
 
+
+*****
+
+####  ping117  
+##### 995#       发表于 2024-9-28 12:05
+
+atlus最有良心的一集，都让试玩了
+
+锐评的话还是开篇太无聊和小问题太多，期待祖先版把问题都改掉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

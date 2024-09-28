@@ -14942,3 +14942,27 @@ P目前只知道有个叫松本拓輝的，但好像只负责音乐和live方面
 
 —— 来自 vivo V2183A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  -LYRE-  
+##### 23582#       发表于 2024-9-28 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66328761&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-9-28 10:00</a>
+笑死了，剧场版没上前一群人嫌你鸡抢戏份，早早算好时间精确到秒等着鸡动画补偿
+
+剧场版把鸡戏份删的差不多 ...</blockquote>
+别到时候又岁月史书把狗粉不满剧情不连贯的锅都扣给鸡粉，说成都是鸡粉在专注mygo的剧场版里还想抢戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  -LYRE-  
+##### 23583#       发表于 2024-9-28 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66329463&amp;ptid=2159415" target="_blank">御景 发表于 2024-9-28 11:42</a>
+现在TV有了，纯净剧场版有了，live也补上了，还请go友放过mujica，再提补偿的就不礼貌了。 ...</blockquote>
+那必不可能消停的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+预言一个“tv动画欠的是tv动画的事，剧场版是剧场版，专注mygo的剧场版补充mygo live是应该的”
+以及还有大把的“本来就是mygo第二季”呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

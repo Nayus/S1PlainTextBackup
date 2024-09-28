@@ -15787,3 +15787,23 @@ woc！这是官图？
 本来就是贷款堵嘴，别抱怨剧场版前篇会补立希剧情的，前篇没有那就后篇会补的，再没有就明年动画，再没有就 ...</blockquote>
 這個堵嘴套路，雞粉熟悉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Goldbach  
+##### 23660#       发表于 2024-9-28 18:21
+
+明年动画，立希很难不刷几次脸，毕竟跟初华海铃同班，但也很难有什么所谓的补完，因为根本没那么多篇幅，鸡还要解决自己的事情。
+
+柿本访谈可以存一下，如果明年烂了，可不是想切割就能切割了的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 23661#       发表于 2024-9-28 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66332213&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-9-28 18:09</a>
+
+這個堵嘴套路，雞粉熟悉</blockquote>
+不还得扣个内部爱帽子说祥推得寸进尺？
+

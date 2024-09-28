@@ -2331,3 +2331,51 @@ PC网络设置关ipv6试试
 不是，昨天打机器人，到撤退点之后，队友不知道被什么东西崩死在撤退点外圈一点的地方。我过去准备回收样 ...</blockquote>
 那个是有的地图自带的，专坑走路不长眼睛的
 
+
+*****
+
+####  赤井稻妻  
+##### 5466#       发表于 2024-9-27 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66318176&amp;ptid=2170852" target="_blank">半分宅 发表于 2024-9-27 07:19</a>
+
+最近遇到几次很难绷的bug：不知道什么武器在地上炸出十米深坑，队友掉下去死掉之后武器和样本都没法捡起来 ...</blockquote>
+说的不会是核弹炸虫子任务吧，那个任务开完核弹就会在地上炸个大坑
+
+*****
+
+####  半分宅  
+##### 5467#       发表于 2024-9-27 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66319218&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-9-26 21:39</a>
+
+说的不会是核弹炸虫子任务吧，那个任务开完核弹就会在地上炸个大坑</blockquote>
+不是，昨天打机器人，到撤退点之后，队友不知道被什么东西崩死在撤退点外圈一点的地方。我过去准备回收样本时，发现样本和队友的武器一起掉在一个十米深坑底部。坑口很小，大概刚够一个潜兵掉进去。
+
+*****
+
+####  Benighted  
+##### 5468#       发表于 2024-9-27 13:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66319409&amp;ptid=2170852" target="_blank">半分宅 发表于 2024-9-27 09:54</a>
+
+不是，昨天打机器人，到撤退点之后，队友不知道被什么东西崩死在撤退点外圈一点的地方。我过去准备回收样 ...</blockquote>
+那个是有的地图自带的，专坑走路不长眼睛的
+
+*****
+
+####  风萧飒  
+##### 5469#       发表于 2024-9-28 13:37
+
+建造中的空间站
+
+<img src="https://img.saraba1st.com/forum/202409/28/133742lajanjajynypa9ly.jpg" referrerpolicy="no-referrer">
+
+<strong>0fdb744d-6202-403b-8d8b-b02555b3933e.jpg</strong> (121.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 13:37 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

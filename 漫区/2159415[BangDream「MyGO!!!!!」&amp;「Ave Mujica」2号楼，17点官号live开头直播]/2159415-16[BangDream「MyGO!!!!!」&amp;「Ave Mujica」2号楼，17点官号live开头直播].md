@@ -15247,3 +15247,137 @@ mygo动画访谈很多次强调要展现的是队内成员的化学反应（含�
 
 go粉現在才罵這些有點晚了但還不算太晚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 23614#       发表于 2024-9-28 14:53
+
+要我说鸡推对姨姥一句我们银河战舰制作人为什么要回糊逼乐队当键盘就能骂回去了，go那是实力还不够才被姨姥按着打，最近羊姐发挥好以后反姨姥的声音也多起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 23615#       发表于 2024-9-28 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66330687&amp;ptid=2159415" target="_blank">NODY 发表于 2024-9-28 14:39</a>
+
+原剧情没补完，剧场版删前因后果，才显得立希为了女路人发脾气更奇怪，确实是原剧本就不行
+
+不过我看厨子破 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">立希廚破防再正常不過了
+
+沒這劇場版之前估計還能夢一下，刪了ave說不定就有餘力補一下貓和立希的戲份，
+
+結果真刪了ave，貓給補了，立希那是一點都不給。
+
+這下夢都沒得夢了
+
+*****
+
+####  akiomn  
+##### 23616#       发表于 2024-9-28 14:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁都说泥楼是鸡团怨妇聚集地了
+鸡团粉难道没有不怨wsd的吗？
+
+*****
+
+####  哈曼的YY  
+##### 23617#       发表于 2024-9-28 14:56
+
+有个爱音失忆的二创把立希这个问题续写了 连着她知道了碧天伴走其实写的不简直是我一起引爆的
+
+最后也是灯说没有你作曲不行
+
+希望母鸡卡动画会补这一块吧
+
+*****
+
+####  御幸一也  
+##### 23618#       发表于 2024-9-28 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66330817&amp;ptid=2159415" target="_blank">akiomn 发表于 2024-9-28 14:55</a>
+
+隔壁都说泥楼是鸡团怨妇聚集地了
+
+鸡团粉难道没有不怨wsd的吗？</blockquote>
+2025年1月.jpg
+
+這就算了還幾乎啥都不給，只有鬼圖。本不怨婦的都給熬成怨婦了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 23619#       发表于 2024-9-28 14:57
+
+隔壁楼还是先自己统一下口径吧，车角色车声优的时候吵的那叫一个热火朝天
+
+视奸就视奸，有事没事还要拿泥楼说话
+
+说实话，有点搞笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 23620#       发表于 2024-9-28 14:59
+
+mujica已经有键盘了为什么还要键盘
+
+要说是要键盘别再摸了能不能让EG回来多写几首军训键盘的我还能理解<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+mujica是祥子拼尽全力利用一切能利用的组起来的，并且还有担负队员人生的觉悟呢
+
+但凡是个正常祥推都不会扔下mujica去惦记已逝的crychic，姨姥什么时候尊重过武士道真正推出企划的乐队和角色本身
+
+爽世这个角色也类似，至少现阶段爽世已经接受mygo了，无视角色的人物弧光非得抓着那个官方都在暗讽拘泥crychic的角色形象不放究竟是角色厨还是角色黑
+
+
+*****
+
+####  星天观测  
+##### 23621#       发表于 2024-9-28 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66330826&amp;ptid=2159415" target="_blank">哈曼的YY 发表于 2024-9-28 14:56</a>
+
+有个爱音失忆的二创把立希这个问题续写了 连着她知道了碧天伴走其实写的不简直是我一起引爆的
+
+最后也是灯说 ...</blockquote>
+个人意见，建议立希推对鸡动画中立希的戏份谨慎看好
+
+毕竟二连主场+手游都没能塑造好
+
+客场作战真的会成功吗
+
+wsd很喜欢在人擅自期待的时候狠狠让人破防
+
+谨慎谨慎再谨慎<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 23622#       发表于 2024-9-28 15:01
+
+懇請武士道看在弄弄和鼓子關係那麼好的份上……()<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 23623#       发表于 2024-9-28 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66330817&amp;ptid=2159415" target="_blank">akiomn 发表于 2024-9-28 14:55</a>
+
+隔壁都说泥楼是鸡团怨妇聚集地了
+
+鸡团粉难道没有不怨wsd的吗？</blockquote>
+论怨妇crychic姨姥第二可没人敢第一，成天抱着解散掉的乐队哭丧招魂
+
+教科书级别的怨妇其他人能做到吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  极速赛车手  
+##### 23624#       发表于 2024-9-28 15:03
+
+键盘是老话术了，姨姥现在学聪明了不会直接拖鸡团成员下水，会说爽姐在go过的不开心踩一脚再一转c团<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

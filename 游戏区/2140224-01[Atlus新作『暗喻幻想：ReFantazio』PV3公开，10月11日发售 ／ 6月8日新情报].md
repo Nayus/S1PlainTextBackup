@@ -3229,3 +3229,17 @@ demo打完了，目前主要感想：
 
 这还能倒退回去？
 
+
+*****
+
+####  walfeds  
+##### 1014#       发表于 2024-9-28 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66332146&amp;ptid=2140224" target="_blank">adretyu67. 发表于 2024-9-28 17:59</a>
+4代那个地图攻击动作不是超屎的吗。
+
+4F优化了点。</blockquote>
+判定应该没有smt4这么变态，但是每次转完职攻击范围肯定要提前熟悉一下
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

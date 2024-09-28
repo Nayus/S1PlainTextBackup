@@ -5163,3 +5163,21 @@ LV2的飞镖猪在哪里？打到王城了还没抓到过</blockquote>
 
 口袋迷AG这里死了我已经觉得很夸张了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冷泉夜月  
+##### 1085#       发表于 2024-9-28 18:29
+
+啊？开场打加侬不是无伤过的嘛？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  星花  
+##### 1086#       发表于 2024-9-28 18:35
+
+突刺有前摇 拉开距离。光球速度慢 躲开 不要近身 用弓箭一直 哔哩哔哩地射<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

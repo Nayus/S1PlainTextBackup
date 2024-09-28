@@ -15531,3 +15531,56 @@ wsd很喜欢在人擅自期待的时候狠狠让人破防
 喵祥人少恐 ...</blockquote>
 论截图存档防止岁月史书的重要性<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  相坂君  
+##### 23638#       发表于 2024-9-28 16:27
+
+也不知道哪来这么多频繁贷款的人，从鸡动画推迟到25年播开始，一直都在有人贷款：鸡live会放新料，马上就到鸡宣传期，很快有广播的，翻唱会有的，小动画也会有的
+
+结果呢……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+动画里猫的戏份只能通过剧场版来补充，mygo篇都没能做到，却把立希的戏份寄托在mujica篇上
+
+鸡动画会补立希戏份，真的是这么觉得的吗？还是只把那当做mygo二期<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+先不说海铃会有多少戏份，即便将所有海铃的戏份都强绑上立希，那这样海铃的塑造又将一塌糊涂
+
+说这些话的人会想不到？有些人说得再好听骨子里也不会把其他角色塑造当回事儿，既不在乎立希的戏份也不在乎海铃的塑造
+
+鸡篇会补充立希戏份这种言论，难说是堵嘴还是祝福。如果说祝福，那还挺恶毒的，这跟祝人没戏份有什么区别
+
+*****
+
+####  PDQ4  
+##### 23639#       发表于 2024-9-28 16:29
+
+在狗不开心，在c才开心是不是对爽世来讲太后妈了
+在狗能真性情太不开心了，只有戴着夹子假面小心做人才叫塔诺西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 23640#       发表于 2024-9-28 16:29
+
+你别说，截图这事之前那边吵架的时候干过，有个灯祥推无缘无故出来aoe拉踩对家什么的都是初祥推干的，灯祥推冰清玉洁，有个人发了一堆灯祥推到处ky的截图
+
+结果蹦出个理中客把所有人都骂了一遍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  skives10  
+##### 23641#       发表于 2024-9-28 16:30
+
+其实这种人也可能不是遗老粉
+而是泛式粉 “扭曲爱好者”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 23642#       发表于 2024-9-28 16:32
+
+本来就是贷款堵嘴，别抱怨剧场版前篇会补立希剧情的，前篇没有那就后篇会补的，再没有就明年动画，再没有就手游，未来可期<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

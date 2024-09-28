@@ -73,3 +73,26 @@
 
 摇滚版sumimi？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 23685#       发表于 2024-9-28 22:29
+
+<img src="https://img.saraba1st.com/forum/202409/28/222848kjxsbx60j9lf0blq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>00011.jpeg</strong> (93.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 22:28 上传
+
+补一张清晰点的
+
+*****
+
+####  星天观测  
+##### 23686#       发表于 2024-9-28 22:31
+
+这个角色的穿衣风格跟海铃确实比较像，或许这个乐队以前是和海铃合作比较多的一个<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

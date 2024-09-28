@@ -5433,3 +5433,16 @@ LV2的飞镖猪在哪里？打到王城了还没抓到过</blockquote>
 
 只能和松鼠大战那样攻击吗？
 
+
+*****
+
+####  我在干什么啊  
+##### 1107#       发表于 2024-9-28 22:25
+
+ 本帖最后由 我在干什么啊 于 2024-9-28 22:27 编辑 
+<blockquote>Waldeinsamkeit 发表于 2024-9-28 21:44
+小火车里也有
+
+—— 来自 S1Fun</blockquote>
+小火车的雪人更接近现实生活中自己堆的那种snowman吧，我是想说yeti这种雪人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，或者叫雪猿？
+

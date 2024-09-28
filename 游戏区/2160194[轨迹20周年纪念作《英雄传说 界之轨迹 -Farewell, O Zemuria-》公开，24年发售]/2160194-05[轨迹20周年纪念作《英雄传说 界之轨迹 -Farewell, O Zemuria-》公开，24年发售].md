@@ -897,3 +897,13 @@ L3开速度强化，一直防御
 
 惊了，中文版居然能继承日版黎1黎2的存档
 
+
+*****
+
+####  酥桃_AkiO  
+##### 6010#       发表于 2024-9-28 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66333343&amp;ptid=2160194" target="_blank">妄想中毒 发表于 2024-9-28 20:24</a>
+惊了，中文版居然能继承日版黎1黎2的存档</blockquote>
+ps4的轨迹中文日文存档都是互通的（只要不打dlc，dlc一致的话应该也能，在日文版存档后退出进中文版能接着打），闪三开始就是了。
+

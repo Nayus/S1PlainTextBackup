@@ -3261,3 +3261,16 @@ demo打完了，目前主要感想：
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Piano-Forest  
+##### 1017#         楼主| 发表于 2024-9-28 20:54
+
+TGS上公开的新试玩模式
+
+巴哈
+
+實機遊玩新模式「Journey Mode 海洋都市的遠征」：
+[https://youtu.be/SELtcM6Bhwo](https://youtu.be/SELtcM6Bhwo)
+

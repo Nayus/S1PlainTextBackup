@@ -15973,3 +15973,11 @@ wsd这面具是不是太省钱了点，淘宝随便搜都能找到比这个好�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">是时候在孕吧来一篇ALL希同人了！
 
+
+*****
+
+####  NODY  
+##### 23676#       发表于 2024-9-28 21:06
+
+猫希部分本来就破防，关系图立希对猫是照顾，猫对立希无箭头，还有猫喜欢的是春日影而不是立希写的歌，杀伤力仅次于动画的灯希了，看到立希厨自嘲说是不是以后会有猫奶奶听到立希的歌以后说感觉不如春日影的剧情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

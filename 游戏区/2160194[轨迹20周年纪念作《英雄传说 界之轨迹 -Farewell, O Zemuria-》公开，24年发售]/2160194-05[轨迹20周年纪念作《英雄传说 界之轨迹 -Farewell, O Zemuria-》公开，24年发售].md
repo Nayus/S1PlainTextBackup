@@ -673,3 +673,29 @@ BOSS人均回血怪，黎恩线一只通缉怪回了4次将近20多万血给打�
 感谢情报，打了下的确容易了，不知道是不是切换这只算一个，或者多roll一次bltz就直接5.0</blockquote>
 话说现在连续动七次要怎么实现？貌似van的練气吼不能连续使用了？
 
+
+*****
+
+####  卢迪克  
+##### 5989#       发表于 2024-9-28 12:50
+
+明年东轨是39亲爹李岚峰担任主创吗
+
+31697232c895d1438977b50035f082025baf07db.jpg
+(22.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 12:50 上传
+
+<img src="https://img.saraba1st.com/forum/202409/28/125013l88fn8l8njv0qmle.jpg" referrerpolicy="no-referrer">
+
+08f790529822720e8eeea0d83dcb0a46f21fabf4.jpg
+(37.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 12:50 上传
+
+<img src="https://img.saraba1st.com/forum/202409/28/125017n6yraca6fp688arp.jpg" referrerpolicy="no-referrer">
+

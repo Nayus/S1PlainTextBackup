@@ -15037,3 +15037,56 @@ P目前只知道有个叫松本拓輝的，但好像只负责音乐和live方面
 
 不过我看立希厨那边不满的是要删为什么不把立希因为不如祥子所以自爆的剧情删了，搞得立希为了一个女路人发脾气看起来更神经了
 
+
+*****
+
+####  羽毛水  
+##### 23591#       发表于 2024-9-28 12:44
+
+立希留了祥子剧情不是为了团魂吗？包括下篇爽世下跪那里也没剪，这是go磨合的一部分，经历了这些不怎么愉快的事情go成团才可贵啊
+
+不过可惜没有更多猫希能捡的样子……
+
+*****
+
+####  PDQ4  
+##### 23592#       发表于 2024-9-28 12:47
+
+感觉好熟悉的场景
+c团姨姥别急着骂，这不是还有后篇吗，你看预告都这样了肯定大量ccc
+虽然没有ccc我并不会跟着骂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 23593#       发表于 2024-9-28 12:48
+
+剧场版小册子有访谈的，林在访谈里提到剧场版前篇最喜欢的台词就是那句
+
+声优自己都这么讲了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">漏油说得没错，这个地方跟立希自己的关系并不小，而且是mygo磨合的一部分
+
+猫希就不知道后篇会不会加新东西了，按理来说可能会有一点，但武士道不按套路出牌的案例太多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rikaren  
+##### 23594#       发表于 2024-9-28 12:52
+
+说起来鸡推被贷款和被代表发言好像次数真的也不算少了，上次还有车角色拉你楼下水的，你楼上次有人车角色是什么时候？
+
+*****
+
+####  御幸一也  
+##### 23595#       发表于 2024-9-28 12:55
+
+分鍋大會最愛車的祥子和立希你樓都不車，那還能車誰<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 23596#       发表于 2024-9-28 12:56
+
+泥楼只车wsd
+蒜是最纯良的社区了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

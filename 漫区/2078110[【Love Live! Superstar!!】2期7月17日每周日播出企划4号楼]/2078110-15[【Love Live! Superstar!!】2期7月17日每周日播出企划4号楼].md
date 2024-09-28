@@ -1460,3 +1460,14 @@ ll要日剧化？这算半个新团不？
 
 按照上面的图一排有两个32人？那这样排数是不是还要除个2？
 
+
+*****
+
+####  csolfans  
+##### 21097#       发表于 2024-9-28 12:45
+
+<img src="https://p.sda1.dev/19/a1b7631bf6a606a54db91b8aa873b479/CMP_20240928124511245.png" referrerpolicy="no-referrer">
+还有转播啊
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

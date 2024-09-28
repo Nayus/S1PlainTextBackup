@@ -1266,3 +1266,24 @@ DLC你觉得是应该归类于持续服务型里么，我个人觉得还是买�
 
 卧槽，是内裤门
 
+
+*****
+
+####  jojohunter  
+##### 97#       发表于 2024-9-28 23:26
+
+ 本帖最后由 jojohunter 于 2024-9-28 23:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66333329&amp;ptid=2200874" target="_blank">玖羽 发表于 2024-9-28 20:21</a>
+黑神话教给我们，要辩证地看待木桶效应，当木桶的长板长到产生质变，就可以覆盖短板的负面性，反之亦然
+
+ ...</blockquote>
+游戏其实是一个高度反木桶效应的地方……同为八分作，黑猴和前些年质量还算在线的育碧罐头大家显然更喜欢黑猴……
+
+游戏不是必需品，从来不是，作为一个工业品要的从来不是稳定可靠而是“有新意”
+
+无论是吃鸡还是黑猴甚至是初代刺客信条都证明了这一点。
+
+顺便跑个题，我不认为星鸣特工的极致惨败核心问题在于lgbt，而在于类ow游戏没有做出任何值得一提的新意。
+
+—— 来自 realme RMX3820, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

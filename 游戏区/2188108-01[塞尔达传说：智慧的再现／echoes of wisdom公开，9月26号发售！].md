@@ -5073,3 +5073,25 @@ Made in CHINA
 狂吹的神庙比王泪强的多，没有那种特别敷衍的，而且宝箱的解法也都是用心设计的 ...</blockquote>
 我是嫌神庙太多了，拿野炊的120个神庙举例，其实留60个左右就差不多了，剩下六十个神庙的内容分成15到20个小迷宫，把这些小迷宫分给一些比较重要的支线或比较隐蔽的地方，再把小迷宫的主题与美术做丰富一些，对我来说这比什么120个，152个神庙好的多
 
+
+*****
+
+####  位面农场  
+##### 1076#       发表于 2024-9-28 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66330772&amp;ptid=2188108" target="_blank">Dorohedoro 发表于 2024-9-28 14:49</a>
+
+狂吹的神庙比王泪强的多，没有那种特别敷衍的，而且宝箱的解法也都是用心设计的 ...</blockquote>
+野炊战斗神庙有点太多了
+
+
+*****
+
+####  Slyvan  
+##### 1077#       发表于 2024-9-28 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66330121&amp;ptid=2188108" target="_blank">医生狼多 发表于 2024-9-28 13:08</a>
+
+炸弹鱼的炸弹触发条件是什么？第一次遇到在水里狂按了好久他才触发爆炸</blockquote>
+你控鱼, 移动过程中碰到东西就倒计时, 包括墙和地面都行
+

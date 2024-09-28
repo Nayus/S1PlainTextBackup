@@ -15875,3 +15875,36 @@ wsd这面具是不是太省钱了点<img src="https://static.saraba1st.com/image
 
 尤其是初华的
 
+
+*****
+
+####  御幸一也  
+##### 23667#       发表于 2024-9-28 19:53
+
+初睦！<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202409/28/195305c05zckdakdchdaho.jpg" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 1916 - (1) Xユーザーの佐々木李子さん_ 「#バンドリ！河口湖ステラ.jpg</strong> (30.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 19:53 上传
+
+<img src="https://img.saraba1st.com/forum/202409/28/195336uczajbj4zkljcfct.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_佐々木李子(@sasakirico)_20240928-115129_1839996348768366751_photo.jpg</strong> (1.02 MB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 19:53 上传
+
+[https://x.com/sasakirico/status/1839996348768366751](https://x.com/sasakirico/status/1839996348768366751)
+
+*****
+
+####  光MIKAN  
+##### 23668#       发表于 2024-9-28 19:54
+
+说到猫希<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">今天看到一个破防立希推说剧场版关系图里猫猫对立希没箭头但立希有，合着猫只把立希当会说话的钱包啊，我要收回之前说猫希关系性强的话
+

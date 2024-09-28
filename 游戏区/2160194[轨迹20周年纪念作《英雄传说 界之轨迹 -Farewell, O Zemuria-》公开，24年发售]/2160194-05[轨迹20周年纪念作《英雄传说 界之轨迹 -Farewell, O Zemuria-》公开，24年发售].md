@@ -787,3 +787,14 @@ L3开速度强化，一直防御
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  Squall25  
+##### 5998#       发表于 2024-9-28 14:36
+
+ 本帖最后由 Squall25 于 2024-9-28 14:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66330492&amp;ptid=2160194" target="_blank">kangkangsama 发表于 2024-9-28 14:01</a>
+这次诗和省ep应该都不能叠了（都改成了僵直变成0.5倍/消耗变成0.x倍）算是魔法削弱了，至少做不到黎2三个省 ...</blockquote>
+你玩到后期就知道魔法压根没削弱<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">有个堪称辅助版的【大鲸鱼】——黄道印记，增幅恢复+全能力上升，彻底**敌我双方的游戏体验。根本不需要叠减ep和诗，因为本身阵法就有0.2僵直，随便都能几乎无限乱动，叠满盾，血，buff。阵法乱放，s技乱丢。
+

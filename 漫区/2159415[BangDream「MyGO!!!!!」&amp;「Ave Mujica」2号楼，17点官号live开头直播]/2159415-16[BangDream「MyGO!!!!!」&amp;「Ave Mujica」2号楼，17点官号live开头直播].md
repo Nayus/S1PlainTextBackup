@@ -15206,3 +15206,23 @@ mygo动画访谈很多次强调要展现的是队内成员的化学反应（含�
 
 剧场版要是真能补上这个倒是好事
 
+
+*****
+
+####  NODY  
+##### 23610#       发表于 2024-9-28 14:39
+
+原剧情没补完，剧场版删前因后果，才显得立希为了女路人发脾气更奇怪，确实是原剧本就不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过我看厨子破防点不在这里，人在破防猫给了二十五分钟新剧情和设定集补完设定，立希一点没捞到，还有吐槽说要删鸡剧情为什么不把立希的回忆改成真希算了，删得更干净还补了家人人设
+
+*****
+
+####  极速赛车手  
+##### 23611#       发表于 2024-9-28 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66330346&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-9-28 13:35</a>
+
+说到这个不会还有人岁是鸡推在那嚷嚷要键盘吧。</blockquote>
+想看这种拆团组c的一眼姨姥好吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

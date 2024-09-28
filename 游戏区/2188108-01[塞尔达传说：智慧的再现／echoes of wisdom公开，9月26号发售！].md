@@ -5232,3 +5232,39 @@ LV2的飞镖猪在哪里？打到王城了还没抓到过</blockquote>
 光球拿剑打乒乓呀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 突刺走位躲
 
+
+*****
+
+####  zyupha  
+##### 1092#       发表于 2024-9-28 19:30
+
+ 本帖最后由 zyupha 于 2024-9-28 19:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66332742&amp;ptid=2188108" target="_blank">医生狼多 发表于 2024-9-28 19:20</a>
+光球拿剑打乒乓呀
+突刺走位躲</blockquote>
+原来光球要用剑砍的吗<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+我终于过了教程，但是是靠远处盾挡光球，近身走位躲突刺这样子...
+
+—— 来自 nubia NX712J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  星花  
+##### 1093#       发表于 2024-9-28 19:31
+
+我刚才重玩困难，小怪伤血太多，被一个突刺送走了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kuarwbwe  
+##### 1094#       发表于 2024-9-28 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66332812&amp;ptid=2188108" target="_blank">zyupha 发表于 2024-9-28 19:30</a>
+原来光球要用剑砍的吗
+
+我终于过了教程，但是是靠远处盾挡光球，近身走位躲突刺这样子...</blockquote>
+砍光球打乒乓球算这系列经典设计了，还挺容易想到的了。而且这游戏在直面会发布就有林克砍光球和盖侬打兵乓球的画面了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

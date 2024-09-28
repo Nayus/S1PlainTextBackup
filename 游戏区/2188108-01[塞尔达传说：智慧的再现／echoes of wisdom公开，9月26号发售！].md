@@ -4903,3 +4903,19 @@ Made in CHINA
 
 没有正常炸弹属于纯尬黑了吧，这作又没有友伤，你嫌炸弹鱼蹦跶碍事直接举手里不就完了
 
+
+*****
+
+####  海帕可乐  
+##### 1058#       发表于 2024-9-28 12:38
+
+完成度真高啊
+
+<img src="https://img.saraba1st.com/forum/202409/28/123846ux2xqzs2vrnl8ldx.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20240928_050237.png</strong> (106.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 12:38 上传
+

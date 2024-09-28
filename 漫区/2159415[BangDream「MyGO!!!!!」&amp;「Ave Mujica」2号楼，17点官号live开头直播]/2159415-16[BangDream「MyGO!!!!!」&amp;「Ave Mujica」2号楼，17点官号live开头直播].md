@@ -15009,3 +15009,31 @@ P目前只知道有个叫松本拓輝的，但好像只负责音乐和live方面
 怎麼了 看到武士道真的開始推g ...</blockquote>
 还真是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 23588#       发表于 2024-9-28 12:35
+
+ 本帖最后由 Aendst 于 2024-9-28 12:39 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按照现有情报来看删最狠的不就是灯箱和大主播风向限定拉郎的爽睦吗
+
+司马昭之心
+
+*****
+
+####  skives10  
+##### 23589#       发表于 2024-9-28 12:39
+
+草 破案了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 23590#       发表于 2024-9-28 12:40
+
+海希也被删光了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过我看立希厨那边不满的是要删为什么不把立希因为不如祥子所以自爆的剧情删了，搞得立希为了一个女路人发脾气看起来更神经了
+

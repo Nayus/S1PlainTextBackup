@@ -663,3 +663,13 @@ BOSS人均回血怪，黎恩线一只通缉怪回了4次将近20多万血给打�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  qooweds  
+##### 5988#       发表于 2024-9-28 12:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66322405&amp;ptid=2160194" target="_blank">王俊凯 发表于 2024-9-27 14:22</a>
+感谢情报，打了下的确容易了，不知道是不是切换这只算一个，或者多roll一次bltz就直接5.0</blockquote>
+话说现在连续动七次要怎么实现？貌似van的練气吼不能连续使用了？
+

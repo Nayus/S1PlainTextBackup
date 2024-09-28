@@ -15090,3 +15090,37 @@ c团姨姥别急着骂，这不是还有后篇吗，你看预告都这样了肯�
 泥楼只车wsd
 蒜是最纯良的社区了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 23597#       发表于 2024-9-28 12:56
+
+那句话挺直指立希劣等感问题核心的，而且是在队友面前暴露出来，可惜的是后续剧情就好像忘了这回事一样给立希放养了
+剧场版后篇也说要写立希心情，要卖灯希或者猫希的话完全可以借此发挥说喜欢立希作的曲，必须是立希的曲子之类
+单纯看看要不要安排上<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 23598#       发表于 2024-9-28 12:57
+
+泥漏还是会车wsd孝子的，可能对某些人来讲还不如攻击纸片人吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 23599#       发表于 2024-9-28 12:59
+
+该安排某人说出“不是立希的曲子就不行”这种经典台词了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 23600#       发表于 2024-9-28 13:03
+
+完全不看制作组思路和角色塑造盲目瞎车纸片人角色是正确的
+
+但是实事求是车武士道却是罪恶滔天的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

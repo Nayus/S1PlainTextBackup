@@ -699,3 +699,33 @@ BOSS人均回血怪，黎恩线一只通缉怪回了4次将近20多万血给打�
 
 <img src="https://img.saraba1st.com/forum/202409/28/125017n6yraca6fp688arp.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ggyy0088  
+##### 5990#       发表于 2024-9-28 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66329982&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-28 12:50</a>
+明年东轨是39亲爹李岚峰担任主创吗</blockquote>
+四个中国员工有三个都没参与界轨，看来都去空re圆梦了
+
+*****
+
+####  王俊凯  
+##### 5991#       发表于 2024-9-28 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66329903&amp;ptid=2160194" target="_blank">qooweds 发表于 2024-9-28 12:40</a>
+
+话说现在连续动七次要怎么实现？貌似van的練气吼不能连续使用了？</blockquote>
+现在zoc直接二动很简单的，不够就阿尼开一次花
+
+*****
+
+####  卢迪克  
+##### 5992#       发表于 2024-9-28 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66330063&amp;ptid=2160194" target="_blank">ggyy0088 发表于 2024-9-28 12:59</a>
+
+四个中国员工有三个都没参与界轨，看来都去空re圆梦了</blockquote>
+其他两个程序组的还好说，除非魔改剧本，不然李岚峰一个剧本组的能干嘛
+

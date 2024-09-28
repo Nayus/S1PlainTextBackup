@@ -161,3 +161,11 @@
 
 或许她会解释为什么海铃想有一个可以当做归宿的乐队吧
 
+
+*****
+
+####  NODY  
+##### 23693#       发表于 2024-9-29 00:11
+
+没准和猫的情况类似，海铃本来想和这个乐队一起，但是这个乐队主唱说你的归宿不在这里，应该去找属于你的乐队<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

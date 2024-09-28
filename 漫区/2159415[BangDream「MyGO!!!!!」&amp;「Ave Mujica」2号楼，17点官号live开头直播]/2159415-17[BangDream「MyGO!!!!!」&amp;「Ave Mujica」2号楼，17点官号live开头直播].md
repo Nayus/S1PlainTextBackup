@@ -129,3 +129,19 @@
 
 专门做了新人设画出来那就有很大可能性出场了
 
+
+*****
+
+####  Aendst  
+##### 23690#       发表于 2024-9-28 23:28
+
+<img src="https://img.saraba1st.com/forum/202409/28/232838vlvvcvk3w5be7mzk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>00018.jpeg</strong> (17.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 23:28 上传
+
+确实还挺像的
+

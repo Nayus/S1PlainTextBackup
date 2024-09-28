@@ -1287,3 +1287,16 @@ DLC你觉得是应该归类于持续服务型里么，我个人觉得还是买�
 
 —— 来自 realme RMX3820, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  汪达  
+##### 98#       发表于 2024-9-28 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66334494&amp;ptid=2200874" target="_blank">玖羽 发表于 2024-9-28 22:33</a>
+
+你说得都对，但是，还是那句话，如果没有这些问题，销量能多五百万吗？
+
+如果黑神话首月三百万，哪怕五百 ...</blockquote>
+你跟内裤门爱怎么发帖子是你们的事情，你自己喜欢那自己遵守就行了啊，怎么还划起重点指导起别人一起学内裤门的？服了
+

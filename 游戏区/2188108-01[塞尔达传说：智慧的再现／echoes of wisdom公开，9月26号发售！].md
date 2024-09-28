@@ -5024,3 +5024,21 @@ Made in CHINA
 
 草，大精灵开口就是要钱（
 
+
+*****
+
+####  anfangzhan  
+##### 1071#       发表于 2024-9-28 14:46
+
+谁说迷宫容易啊，我看这沙神殿也有点难度啊
+
+*****
+
+####  Dorohedoro  
+##### 1072#       发表于 2024-9-28 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66329087&amp;ptid=2188108" target="_blank">我在干什么啊 发表于 2024-9-28 10:55</a>
+
+这作某些支线还有专门设计的小迷宫，里面还有独有的boss，这点要比野炊王泪好很多，后者塞了太多蠢得要死的 ...</blockquote>
+狂吹的神庙比王泪强的多，没有那种特别敷衍的，而且宝箱的解法也都是用心设计的
+

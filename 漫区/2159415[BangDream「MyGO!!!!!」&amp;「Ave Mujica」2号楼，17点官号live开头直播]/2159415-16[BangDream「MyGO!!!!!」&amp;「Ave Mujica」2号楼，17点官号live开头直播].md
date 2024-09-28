@@ -15226,3 +15226,24 @@ mygo动画访谈很多次强调要展现的是队内成员的化学反应（含�
 说到这个不会还有人岁是鸡推在那嚷嚷要键盘吧。</blockquote>
 想看这种拆团组c的一眼姨姥好吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 23612#       发表于 2024-9-28 14:47
+
+真有鸡腿嚷嚷要键盘么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+祥子自己组了鸡，就算邦邦这个企划倒闭了祥子也一直会是鸡的成员，鸡腿有什么理由把自家kb让给别的乐队
+
+要我说狗u早该骂骂那些发着soyo喊要键盘的姨姥和梗小鬼了
+
+最不尊重狗成员的就是这些人啊
+
+*****
+
+####  御幸一也  
+##### 23613#       发表于 2024-9-28 14:49
+
+go粉現在才罵這些有點晚了但還不算太晚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

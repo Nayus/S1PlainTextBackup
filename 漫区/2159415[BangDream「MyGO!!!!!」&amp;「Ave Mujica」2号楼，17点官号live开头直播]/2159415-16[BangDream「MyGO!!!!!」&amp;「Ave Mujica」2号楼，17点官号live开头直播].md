@@ -14920,3 +14920,11 @@ P目前只知道有个叫松本拓輝的，但好像只负责音乐和live方面
 
 可能是可惜删得不够干净吧，不过我也挺可惜这个的，希望下篇不要出现超过5min<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御景  
+##### 23580#       发表于 2024-9-28 11:42
+
+现在TV有了，纯净剧场版有了，live也补上了，还请go友放过mujica，再提补偿的就不礼貌了。
+

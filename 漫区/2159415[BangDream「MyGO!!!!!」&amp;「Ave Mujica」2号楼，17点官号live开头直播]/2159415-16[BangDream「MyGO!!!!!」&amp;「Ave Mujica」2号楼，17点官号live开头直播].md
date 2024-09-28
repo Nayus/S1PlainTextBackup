@@ -14966,3 +14966,14 @@ P目前只知道有个叫松本拓輝的，但好像只负责音乐和live方面
 预言一个“tv动画欠的是tv动画的事，剧场版是剧场版，专注mygo的剧场版补充mygo live是应该的”
 以及还有大把的“本来就是mygo第二季”呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 23584#       发表于 2024-9-28 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66329560&amp;ptid=2159415" target="_blank">-LYRE- 发表于 2024-9-28 11:57</a>
+
+别到时候又岁月史书把狗粉不满剧情不连贯的锅都扣给鸡粉，说成都是鸡粉在专注mygo的剧场版里还想抢戏 ...</blockquote>
+不是现在就有人这么干了吗
+

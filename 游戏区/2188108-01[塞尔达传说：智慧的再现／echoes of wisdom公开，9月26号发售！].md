@@ -5191,3 +5191,11 @@ LV2的飞镖猪在哪里？打到王城了还没抓到过</blockquote>
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  sunnyjee  
+##### 1088#       发表于 2024-9-28 18:58
+
+光球直接扔炸弹可以引爆  炸两次<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+

@@ -20,3 +20,15 @@
 
 PS：最后女警搭档这合影莫非是他俩有戏甚至在一起了？
 
+
+*****
+
+####  hu794  
+##### 336#       发表于 2024-9-29 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66334061&amp;ptid=2190950" target="_blank">清浦刹那 发表于 2024-9-28 21:54</a>
+悲剧家庭悲剧人生的扭曲妹控，放漫威/DC里估计就是个反派，在冷漠的日本社会里感觉挺无解的？
+
+压根就 ...</blockquote>
+就是在一起了啊，后面不是姓都改了吗
+

@@ -93,3 +93,13 @@
 
 shaft这种开头巅峰然后画面越做越崩坏最后逐渐万策尽甚至还要延期放送已经是基操了，这些年都这幅鬼样子，只能说物语的饭碗比较重要所以情况稍好。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  八雲みたま  
+##### 938#       发表于 2024-9-29 00:46
+
+梅组明夏定档，都自身难保了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

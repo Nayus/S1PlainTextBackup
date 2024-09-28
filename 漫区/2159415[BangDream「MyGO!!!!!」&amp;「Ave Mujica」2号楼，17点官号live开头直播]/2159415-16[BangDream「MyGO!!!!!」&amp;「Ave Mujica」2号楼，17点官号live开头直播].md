@@ -15441,3 +15441,18 @@ wsd很喜欢在人擅自期待的时候狠狠让人破防
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 23630#       发表于 2024-9-28 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66330928&amp;ptid=2159415" target="_blank">NODY 发表于 2024-9-28 15:09</a>
+
+立希推本来就希望鸡动画少出场，出场越多越危险，不知道又要造出几个那我呢或者哈之类的烂梗 ...</blockquote>
+真的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我看最近冒出了很多贷款鸡动画会（靠海希）补完立希人设的人啊
+
+虽然不知道是不是真的都是立希推吧
+

@@ -3093,3 +3093,17 @@ atlus最有良心的一集，都让试玩了
 
 —— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  nightomorrow  
+##### 1002#       发表于 2024-9-28 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66330946&amp;ptid=2140224" target="_blank">莉可厨 发表于 2024-9-28 15:10</a>
+你多少帧啊，我满血3060默认设置进去一看25帧人直接麻了</blockquote>
+目前优化有问题，自己手动打个补丁会好很多
+【【暗喻幻想】帧数优化补丁(已更新24.9.28版）-哔哩哔哩】 https://www.bilibili.com/video/av113207133937448
+官方也在修了
+
+—— 来自 HUAWEI BRA-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

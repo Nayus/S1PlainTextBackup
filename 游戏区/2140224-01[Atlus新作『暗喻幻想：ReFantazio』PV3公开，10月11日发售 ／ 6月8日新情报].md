@@ -3314,3 +3314,24 @@ TGS上公开的新试玩模式
 站前排的人防御就能吃下</blockquote>
 还是得看运气。我主角转了法师，吃两连攻击必死。而且那个贵族小哥也得转剑士不然扛不住。
 
+
+*****
+
+####  取名真是难  
+##### 1022#       发表于 2024-9-28 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66333963&amp;ptid=2140224" target="_blank">ネコカイザー 发表于 2024-9-28 21:43</a>
+
+卡翼人了，这玩意怎么打？有没有hard难度过了的老哥指导一下。
+
+前排就放了一个人，冰块买完了，还是没啥希 ...</blockquote>
+放前排招的时候全跳到后排就行了，鸟人还是挺菜的
+
+
+*****
+
+####  艹艹牛逼  
+##### 1023#       发表于 2024-9-28 22:15
+
+这也太草台了，4090大地图掉到40帧，优化还要靠民间补丁<img src="https://static.saraba1st.com/image/smiley/face/113.gif" referrerpolicy="no-referrer">
+

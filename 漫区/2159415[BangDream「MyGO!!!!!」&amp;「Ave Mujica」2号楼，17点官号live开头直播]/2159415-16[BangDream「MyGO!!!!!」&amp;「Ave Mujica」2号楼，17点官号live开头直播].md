@@ -15989,3 +15989,24 @@ wsd这面具是不是太省钱了点，淘宝随便搜都能找到比这个好�
 
 在这种前提下看动画里猫没事找立希要芭菲，立希帮猫提重物还随便猫靠就更难绷了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  海晟天锻  
+##### 23678#       发表于 2024-9-28 21:27
+
+没法细想啊，偏偏立希是你go最穷的，之前那个猫希限定语音猫想吃鳗鱼饭立希还说现在没钱吃要是玩乐队以后一定会请。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当然说不定这关系图只是前七集的，不死心可以继续剑指后篇场刊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  笋狐  
+##### 23679#       发表于 2024-9-28 21:31
+
+ 本帖最后由 笋狐 于 2024-9-28 21:32 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">记得没错的话动画里猫变得比较粘立希好像是诗超绊之后？好像也没有表现诸如关系变好的契机之类的，后篇若不追加难道要指望刻板印象堆叠的手游……
+

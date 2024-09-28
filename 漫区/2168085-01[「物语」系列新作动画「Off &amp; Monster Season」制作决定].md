@@ -77,3 +77,11 @@
 
 有op了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Tachikoma88  
+##### 936#       发表于 2024-9-28 21:34
+
+说书那段挺乐的，就是罐头笑声有点难绷，另外梅组的人能不能过来帮帮忙啊，感觉作画快绷不住了
+

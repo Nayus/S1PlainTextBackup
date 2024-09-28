@@ -3028,3 +3028,35 @@ atlus最有良心的一集，都让试玩了
 
 锐评的话还是开篇太无聊和小问题太多，期待祖先版把问题都改掉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罗克萨斯  
+##### 996#       发表于 2024-9-28 12:15
+
+序章里最棒的大车！强烈要求粉毛兽娘做女主，要不来个配种DLC也行<img src="https://static.saraba1st.com/image/smiley/face/164.gif" referrerpolicy="no-referrer">
+
+<img src="https://s1.locimg.com/2024/09/28/2b23422de0dd2.png" referrerpolicy="no-referrer">
+<img src="https://s1.locimg.com/2024/09/28/8ebd5b30ed551.png" referrerpolicy="no-referrer">
+<img src="https://s1.locimg.com/2024/09/28/f61704ee9ce96.png" referrerpolicy="no-referrer">
+<img src="https://s1.locimg.com/2024/09/28/8c57616cf1791.png" referrerpolicy="no-referrer">
+<img src="https://s1.locimg.com/2024/09/28/8357671c8bfdf.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  罗克萨斯  
+##### 997#       发表于 2024-9-28 12:20
+
+看到有说读盘慢的，我怎么都是秒加载，对黑屏没啥印象
+
+继承这序章存档，会不会错过几个奖杯啊，要不发售后从头再打一遍？
+
+
+*****
+
+####  樽——見  
+##### 998#       发表于 2024-9-28 12:22
+
+试玩版58G啊 
+

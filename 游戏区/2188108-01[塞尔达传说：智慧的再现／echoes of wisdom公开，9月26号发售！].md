@@ -5199,3 +5199,24 @@ LV2的飞镖猪在哪里？打到王城了还没抓到过</blockquote>
 
 光球直接扔炸弹可以引爆  炸两次<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  s32244153  
+##### 1089#       发表于 2024-9-28 19:11
+
+那球不是慢到可以直接绕过去砍吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zyupha  
+##### 1090#       发表于 2024-9-28 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66332647&amp;ptid=2188108" target="_blank">s32244153 发表于 2024-9-28 19:11</a>
+那球不是慢到可以直接绕过去砍吗</blockquote>
+光球可以用盾挡，但是那个突刺举盾还是会掉血...？
+原来是要靠走位吗<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX712J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

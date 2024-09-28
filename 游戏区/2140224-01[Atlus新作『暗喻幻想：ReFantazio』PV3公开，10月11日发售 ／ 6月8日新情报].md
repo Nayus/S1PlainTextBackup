@@ -3243,3 +3243,11 @@ demo打完了，目前主要感想：
 
 —— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  石中剑二  
+##### 1015#       发表于 2024-9-28 19:10
+
+这地图攻击超屎的，每回死其实都死在这上
+

@@ -1334,3 +1334,18 @@ DLC你觉得是应该归类于持续服务型里么，我个人觉得还是买�
 
 直观性？真的在说黑猴吗，一是各种效果描述都少量些许一段时间，当然数值写太清楚有点跳戏，很多效果啥的都是测出来的。二是各种换套装喝酒等触发的效果看不出来加没加上，持续多久，可能下面一堆小图标也难看
 
+
+*****
+
+####  玖羽  
+##### 102#       发表于 2024-9-29 06:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66334983&amp;ptid=2200874" target="_blank">汪达 发表于 2024-9-28 23:30</a>
+
+你跟内裤门爱怎么发帖子是你们的事情，你自己喜欢那自己遵守就行了啊，怎么还划起重点指导起别人一起学内 ...</blockquote>
+没问题，他说得都错，你说得都对，那我反倒要问问你，这游戏为什么火？
+
+他说得都错，至少能说出123来，你也说个456，我洗耳恭听<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
+否则按你的说法，只能得出这个结论：黑神话关卡设计啥都不是，然后它火了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

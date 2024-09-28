@@ -15584,3 +15584,27 @@ wsd很喜欢在人擅自期待的时候狠狠让人破防
 
 本来就是贷款堵嘴，别抱怨剧场版前篇会补立希剧情的，前篇没有那就后篇会补的，再没有就明年动画，再没有就手游，未来可期<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  圆  
+##### 23643#       发表于 2024-9-28 16:36
+
+<img src="https://img.saraba1st.com/forum/202409/28/163408r0tgn86r61n6tg14.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240928_163216.jpg</strong> (215.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 16:34 上传
+
+<img src="https://img.saraba1st.com/forum/202409/28/163416m27i8i7jyi2ogbnw.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240928_163249.jpg</strong> (245.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 16:34 上传
+
+柿本这访谈一是明确了26集才是完整动画，二是通过春日影对猫猫的重要性给唯一不认识祥子的猫猫补上了猫祥关系性。
+

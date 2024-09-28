@@ -996,3 +996,27 @@ ps4的轨迹中文日文存档都是互通的（只要不打dlc，dlc一致的�
 
 第一次见波波羊漏了一种被它跑了，后面还会出现重复的吗？
 
+
+*****
+
+####  windtrack_qh  
+##### 6021#       发表于 2024-9-29 00:40
+
+<blockquote>jacket 发表于 2024-9-29 00:28
+第一次见波波羊漏了一种被它跑了，后面还会出现重复的吗？</blockquote>
+有重复的  波波羊用r3开zoc时间停止打就好
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  jacket  
+##### 6022#       发表于 2024-9-29 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66335361&amp;ptid=2160194" target="_blank">windtrack_qh 发表于 2024-9-29 00:40</a>
+
+有重复的  波波羊用r3开zoc时间停止打就好
+
+论坛助手,iPhone</blockquote>
+我是进回合战以为不会跑结果跑了
+

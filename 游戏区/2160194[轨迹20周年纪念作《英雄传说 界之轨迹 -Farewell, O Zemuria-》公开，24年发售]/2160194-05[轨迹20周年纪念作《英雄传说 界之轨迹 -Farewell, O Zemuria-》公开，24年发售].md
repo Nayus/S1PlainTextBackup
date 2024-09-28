@@ -907,3 +907,22 @@ L3开速度强化，一直防御
 惊了，中文版居然能继承日版黎1黎2的存档</blockquote>
 ps4的轨迹中文日文存档都是互通的（只要不打dlc，dlc一致的话应该也能，在日文版存档后退出进中文版能接着打），闪三开始就是了。
 
+
+*****
+
+####  大暗月  
+##### 6011#       发表于 2024-9-28 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66333066&amp;ptid=2160194" target="_blank">benhawk 发表于 2024-9-28 19:54</a>
+换了20个筹码，打了半小时获得1w.后面有更好的物品兑换吗</blockquote>
+每章会有一些新增
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+*****
+
+####  卡拉德利姆  
+##### 6012#       发表于 2024-9-28 21:15
+
+讨厌读博 读博有独占的饰品吗
+

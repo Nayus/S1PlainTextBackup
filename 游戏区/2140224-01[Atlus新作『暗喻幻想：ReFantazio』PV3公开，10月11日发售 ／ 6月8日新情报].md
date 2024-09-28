@@ -3178,3 +3178,16 @@ demo打完了，目前主要感想：
 
                                                                        什么真女神转生4<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  莉可厨  
+##### 1010#       发表于 2024-9-28 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66331057&amp;ptid=2140224" target="_blank">nightomorrow 发表于 2024-9-28 15:26</a>
+
+目前优化有问题，自己手动打个补丁会好很多
+
+【【暗喻幻想】帧数优化补丁(已更新24.9.28版）-哔哩哔哩】 h ...</blockquote>
+直接全高120了，哈哈，我还以为没检测到独显呢
+

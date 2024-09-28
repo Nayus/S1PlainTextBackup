@@ -15423,3 +15423,21 @@ wsd很喜欢在人擅自期待的时候狠狠让人破防
 
 立希推本来就希望鸡动画少出场，出场越多越危险，不知道又要造出几个那我呢或者哈之类的烂梗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  极速赛车手  
+##### 23628#       发表于 2024-9-28 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66330920&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-9-28 15:08</a>
+
+怎麼感覺你意有所指，是在說某個天天踩go團魂其實只是因為他是愛音黑的人嗎 ...</blockquote>
+你说的是wb那个拿访谈造谣的吗，那还真是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 23629#       发表于 2024-9-28 15:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

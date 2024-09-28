@@ -3078,3 +3078,18 @@ atlus最有良心的一集，都让试玩了
 3060笔记本玩demo感觉优化没啥问题 当然我是默认设置 估计开的不高 反正没掉帧。这作感觉就完全在传统JRPG ...</blockquote>
 你多少帧啊，我满血3060默认设置进去一看25帧人直接麻了
 
+
+*****
+
+####  walfeds  
+##### 1001#       发表于 2024-9-28 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66329749&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-9-28 12:20</a>
+看到有说读盘慢的，我怎么都是秒加载，对黑屏没啥印象
+
+继承这序章存档，会不会错过几个奖杯啊，要不发售后 ...</blockquote>
+打过的确实可以重打一遍，这作跳过性能确实是历代最快了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+而且我估计不少人漏掉了第一次野营过夜的黄金虫，能不能找回去还不好说
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

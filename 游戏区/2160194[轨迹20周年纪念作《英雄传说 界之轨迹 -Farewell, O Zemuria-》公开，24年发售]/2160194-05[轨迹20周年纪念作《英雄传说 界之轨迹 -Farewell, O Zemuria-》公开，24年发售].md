@@ -836,3 +836,23 @@ L3开速度强化，一直防御
 
 这作菜单里怎么没系统教学了，有个评论甜品的跳掉了不知道该怎么操作了
 
+
+*****
+
+####  王俊凯  
+##### 6003#       发表于 2024-9-28 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66332042&amp;ptid=2160194" target="_blank">nerugigannte 发表于 2024-9-28 17:45</a>
+
+这作菜单里怎么没系统教学了，有个评论甜品的跳掉了不知道该怎么操作了</blockquote>
+在美食菜单选限定甜点直接按就是
+
+*****
+
+####  ggyy0088  
+##### 6004#       发表于 2024-9-28 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66331845&amp;ptid=2160194" target="_blank">暗影吉他手 发表于 2024-9-28 17:21</a>
+坐了一个小时电车跑到立川想抽个色纸带回去，结果到了BicCamera告诉我5点就结束了，还得坐一个小时回去。。 ...</blockquote>
+今天似乎是开场一个小时试玩就没了
+

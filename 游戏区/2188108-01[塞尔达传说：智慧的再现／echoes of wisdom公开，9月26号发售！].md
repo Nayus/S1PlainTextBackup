@@ -5108,3 +5108,11 @@ Made in CHINA
 还是升两次去就能接</blockquote>
 还真不好说，我刚好是分两次升满，再去就触发任务了
 
+
+*****
+
+####  ColAMK  
+##### 1079#       发表于 2024-9-28 17:53
+
+LV2的飞镖猪在哪里？打到王城了还没抓到过<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

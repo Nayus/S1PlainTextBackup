@@ -15693,3 +15693,28 @@ wsd很喜欢在人擅自期待的时候狠狠让人破防
 
 还是别帮立希贷款cp补完了，前篇已经奶死猫希了，刚看到破防设定集猫只对灯有箭头对立希无箭头的（。
 
+
+*****
+
+####  hitori酱  
+##### 23653#       发表于 2024-9-28 17:48
+
+看了一堆mygo总集篇的repo之后只有一个感想：请务必按住柿本写脚本的大手<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 23654#       发表于 2024-9-28 17:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">独角兽和柿本别的地方可能会吵的不可开交，但是迫害立希这方面出奇的一致
+
+*****
+
+####  星天观测  
+##### 23655#       发表于 2024-9-28 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66331934&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-9-28 17:33</a>
+这分明就是结婚现场.jpg</blockquote>
+woc！这是官图？
+你永远可以相信ykls<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+

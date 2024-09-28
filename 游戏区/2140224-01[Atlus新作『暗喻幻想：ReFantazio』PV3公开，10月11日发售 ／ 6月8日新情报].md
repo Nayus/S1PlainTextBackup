@@ -3131,3 +3131,11 @@ demo打完了，目前主要感想：
 
 觉醒宣言都太尬了，小妖精倒是很香
 
+
+*****
+
+####  KATE  
+##### 1005#       发表于 2024-9-28 15:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">男主初始p的灵感来源是五星物语吗
+

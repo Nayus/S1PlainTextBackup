@@ -15480,3 +15480,26 @@ wsd很喜欢在人擅自期待的时候狠狠让人破防
 
 但是我有种鸡动画会推海喵或者海睦的悲伤预感啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 23633#       发表于 2024-9-28 15:46
+
+鸡动画会补立希戏份本来也是贷款堵嘴的说法之一罢了，有没有都不奇怪，还不如等手游，毕竟剧场版二十五分钟都没给立希分一秒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 23634#       发表于 2024-9-28 15:47
+
+ 本帖最后由 Aendst 于 2024-9-28 15:49 编辑 
+
+从企划层面来说，真人乐队的队内关系基本会是优于队外的
+
+海希关系性是确定两人同一班级之后才有的，在这之前当然有大概率是队内的其他CP要推了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当然会乱炖，但是着力点还是会有的，个人目前觉得海喵可能性最高吧
+
+按照剧场特典和柿本最早的发言来看，后篇应该会卖灯希的
+

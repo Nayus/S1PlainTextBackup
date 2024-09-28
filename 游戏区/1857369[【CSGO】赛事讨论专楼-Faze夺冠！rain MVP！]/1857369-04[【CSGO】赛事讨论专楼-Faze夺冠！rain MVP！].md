@@ -107,3 +107,13 @@ A队历史上好像没被零封过吧<img src="https://static.saraba1st.com/imag
 
 niko这参加1v5达成1v1但是没换蛋侧身没打过简直是职业生涯的缩影
 
+
+*****
+
+####  那由  
+##### 4469#       发表于 2024-9-29 01:05
+
+这么不舍得做默认，拒绝十擒是吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

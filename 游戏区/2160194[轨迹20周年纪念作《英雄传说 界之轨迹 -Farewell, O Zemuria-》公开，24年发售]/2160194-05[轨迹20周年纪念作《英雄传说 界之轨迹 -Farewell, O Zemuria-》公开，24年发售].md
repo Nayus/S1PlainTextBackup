@@ -651,3 +651,15 @@ BOSS人均回血怪，黎恩线一只通缉怪回了4次将近20多万血给打�
 总结界轨第一章10小时的流程
 走亲访友，复读大的要来了大的要来了
 
+
+*****
+
+####  大暗月  
+##### 5987#       发表于 2024-9-28 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66329591&amp;ptid=2160194" target="_blank">haru橙子 发表于 2024-9-28 12:00</a>
+这作庭院有改进吗，黎 2 的庭院感觉宝箱和单层奖励都好鸡肋刷着远没有创轨爽。界轨这次不求比得上创轨吧， ...</blockquote>
+没玩黎2但是我估计跟你说的差不多，单层奖励就一些战技强化素材和小垃圾回路
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

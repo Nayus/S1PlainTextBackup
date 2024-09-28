@@ -14988,3 +14988,24 @@ P目前只知道有个叫松本拓輝的，但好像只负责音乐和live方面
 怎么我加的所有鸡腿群都没急就这人认识的鸡腿急了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 谁急了我不好说
 
+
+*****
+
+####  御幸一也  
+##### 23586#       发表于 2024-9-28 12:27
+
+我想，對刪戲份不滿意的可能不是雞粉，而是C團遺老。如果上升到嗑CP更是如此<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+怎麼了 看到武士道真的開始推go團魂遺老急了嗎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 23587#       发表于 2024-9-28 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66329798&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-9-28 12:27</a>
+我想，對刪戲份不滿意的可能不是雞粉，而是C團遺老。如果上升到嗑CP更是如此
+
+怎麼了 看到武士道真的開始推g ...</blockquote>
+还真是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

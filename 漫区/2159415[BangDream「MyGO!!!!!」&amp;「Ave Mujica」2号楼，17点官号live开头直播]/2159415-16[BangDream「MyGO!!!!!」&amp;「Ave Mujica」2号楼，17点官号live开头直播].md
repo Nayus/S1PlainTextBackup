@@ -15807,3 +15807,44 @@ woc！这是官图？
 這個堵嘴套路，雞粉熟悉</blockquote>
 不还得扣个内部爱帽子说祥推得寸进尺？
 
+
+*****
+
+####  星天观测  
+##### 23662#       发表于 2024-9-28 18:35
+
+我要拉踩一下了
+
+看看萝的花冠封面，再看看鸡的元素封面
+
+哎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 23663#       发表于 2024-9-28 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66332204&amp;ptid=2159415" target="_blank">桜庭千景 发表于 2024-9-28 18:07</a>
+
+该说不说，柿本脚本对猫的塑造和space关店处理问题不大，难道就因为不给立希高光就要跟着喷么 ...</blockquote>
+讲道理这个怪不到立希头上，立希厨一般是骂独角兽或者手游编剧的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+柿本最近风口浪尖是因为菜花大翻车而已
+
+
+*****
+
+####  御幸一也  
+##### 23664#       发表于 2024-9-28 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66332389&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-9-28 18:35</a>
+
+我要拉踩一下了
+
+看看萝的花冠封面，再看看鸡的元素封面
+
+哎</blockquote>
+別提了吧，我看到蘿封面已經直接開始酸了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+啊——為什麼ave mujica以下略
+

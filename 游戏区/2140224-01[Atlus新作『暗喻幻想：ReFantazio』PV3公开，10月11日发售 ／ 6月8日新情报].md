@@ -3191,3 +3191,13 @@ demo打完了，目前主要感想：
 【【暗喻幻想】帧数优化补丁(已更新24.9.28版）-哔哩哔哩】 h ...</blockquote>
 直接全高120了，哈哈，我还以为没检测到独显呢
 
+
+*****
+
+####  walfeds  
+##### 1011#       发表于 2024-9-28 17:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">手感问题。。。除了p5摘面具感觉p3p4乃至smt4都被折磨过，smt5的超远判定倒是还好
+
+这作还是跟smt4一样的按武器类型换攻击动作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">把握不住
+

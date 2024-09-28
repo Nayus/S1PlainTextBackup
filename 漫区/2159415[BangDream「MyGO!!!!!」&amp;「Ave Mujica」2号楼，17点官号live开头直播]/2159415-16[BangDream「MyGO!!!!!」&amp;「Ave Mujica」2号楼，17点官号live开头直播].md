@@ -15644,3 +15644,19 @@ wsd很喜欢在人擅自期待的时候狠狠让人破防
 
 武士道真是迷惑决策的天才
 
+
+*****
+
+####  PDQ4  
+##### 23648#       发表于 2024-9-28 17:19
+
+隔了一年半的完整故事，wsd是不是偷学了EA策略<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  skives10  
+##### 23649#       发表于 2024-9-28 17:26
+
+这踏马的比llx的r1和r2隔的还远 谁教wsd这么隔的
+

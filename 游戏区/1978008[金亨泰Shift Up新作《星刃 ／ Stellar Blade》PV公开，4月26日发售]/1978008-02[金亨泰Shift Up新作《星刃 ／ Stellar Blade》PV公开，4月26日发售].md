@@ -561,3 +561,39 @@ nier2对剑星说，徒儿你学有所成，但看看为师的联动清单，你
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个物理表现方面更新我愿称为年度最佳，懂得都懂
 
+
+*****
+
+####  宛若青空  
+##### 1763#       发表于 2024-9-29 02:01
+
+<blockquote>🔶New update details!
+
+🔸 You can still enjoy the "Summer Event" at the Oasis by turning on/off the summer event content toggle.
+
+🔸 The summer event BGM (Don't Forget Me) is now available at the camp.
+
+🔸 You can mark pins on the map by pressing □ button on the map.
+
+🔸 You can use favorites feature on EVE's equipment.
+
+🔸 New item "Ammo Package" is now available for purchase, which allows you to stock up on all ammunitions to max at once.
+
+🔸 Purchase confirmation pop-up will be shown when spending over 15,000 golds to prevent any unintentional spend.
+
+🔸 Visual improvements of conflicts between EVE's body.
+
+🔸 Various other bug fixes.
+
+#StellarBlade #PS5 #Update</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202409/29/015946hz484856841d02l8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1581.jpeg</strong> (188.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-29 01:59 上传
+
+金亨泰干得好啊，都做到这种地步的史诗级更新了，真的想不明白为何要首发更新补丁和谐掉几件衣服
+

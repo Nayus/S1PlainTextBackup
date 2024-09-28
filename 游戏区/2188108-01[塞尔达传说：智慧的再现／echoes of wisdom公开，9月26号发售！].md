@@ -5095,3 +5095,16 @@ Made in CHINA
 炸弹鱼的炸弹触发条件是什么？第一次遇到在水里狂按了好久他才触发爆炸</blockquote>
 你控鱼, 移动过程中碰到东西就倒计时, 包括墙和地面都行
 
+
+*****
+
+####  就是剑鞘  
+##### 1078#       发表于 2024-9-28 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66331127&amp;ptid=2188108" target="_blank">库德里尔 发表于 2024-9-28 15:36</a>
+
+那个支线是必须升满再拜访才解锁吗
+
+还是升两次去就能接</blockquote>
+还真不好说，我刚好是分两次升满，再去就触发任务了
+

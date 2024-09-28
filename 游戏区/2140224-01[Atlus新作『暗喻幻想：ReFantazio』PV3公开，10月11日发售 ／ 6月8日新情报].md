@@ -3139,3 +3139,11 @@ demo打完了，目前主要感想：
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">男主初始p的灵感来源是五星物语吗
 
+
+*****
+
+####  石中剑二  
+##### 1006#       发表于 2024-9-28 16:06
+
+本以为hard难度会死在rpg上，谁知道一般都死在这手感恶劣的act上
+

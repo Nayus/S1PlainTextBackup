@@ -3002,3 +3002,11 @@ HARD难度牛头人迷宫也不难，主要得拿了之前矿坑那把大剑然�
 
 这掉落还不一样么？
 
+
+*****
+
+####  SuNR1sE364  
+##### 993#       发表于 2024-9-28 10:41
+
+这店里竟然卖阿里亚德涅之线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">atlus什么时候再胎动一次啊
+

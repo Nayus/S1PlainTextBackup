@@ -56,3 +56,16 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  oi99o  
+##### 934#       发表于 2024-9-28 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66328735&amp;ptid=2168085" target="_blank">reekilynn 发表于 2024-9-28 09:56</a>
+问个资源问题，伪物语往后到现在除了一个歌物语之外还有那种主题歌或者原声带的合集cd吗？
+如果没有的话我 ...</blockquote>
+歌物语出了两套了，16年和19年各一套，涵盖了续终为止的主题歌。ost的话还是得去翻bd特典或者找别人整理过的合集。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

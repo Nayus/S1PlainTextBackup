@@ -15519,3 +15519,15 @@ wsd很喜欢在人擅自期待的时候狠狠让人破防
 什么都可以删 但是希祥不能删 
 看好母鸡卡希祥互动+
 
+
+*****
+
+####  -LYRE-  
+##### 23637#       发表于 2024-9-28 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66330185&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-9-28 13:15</a>
+就一天都能岁月史书，我估计等到明年社区各种纷争恐怕都会被岁成鸡粉干的，你楼更是别想逃脱，
+
+喵祥人少恐 ...</blockquote>
+论截图存档防止岁月史书的重要性<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -5511,3 +5511,44 @@ LV2的飞镖猪在哪里？打到王城了还没抓到过</blockquote>
 
 小火车我没通关就是因为后面火车追逐战太难过不了，是不是我太菜了
 
+
+*****
+
+####  海帕可乐  
+##### 1114#       发表于 2024-9-28 23:38
+
+<blockquote>crosz1985 发表于 2024-9-28 23:09
+格鲁德王宫二楼那个有卫兵站岗的房间怎么进去
+
+论坛助手,iPhone</blockquote>
+楼上打洞能掉到进度中间，之后搭床就能过去
+
+*****
+
+####  sunny_am  
+##### 1115#       发表于 2024-9-28 23:42
+
+要死哦 换个道具每次都要从几十个挑 大半时间都在选道具 能不能整个快捷列表
+
+
+*****
+
+####  Waldeinsamkeit  
+##### 1116#       发表于 2024-9-28 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66334795&amp;ptid=2188108" target="_blank">我在干什么啊 发表于 2024-9-28 23:06</a>
+是孔德，黄昏公主里也有对雪人夫妇，小火车我是真的不太记得了</blockquote>
+我本来想3DS上给你现拍一张，结果存档在最终BOSS那，开了两次火车都因为太久没玩不熟练直接车毁人亡<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+直接看图和链接吧：
+https://zelda.fandom.com/wiki/Anouki
+
+<img src="https://img.saraba1st.com/forum/202409/28/234610y2am2ooijgij0q2l.png" referrerpolicy="no-referrer">
+
+<strong>IMG_0819.PNG</strong> (255.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 23:46 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -3068,3 +3068,13 @@ atlus最有良心的一集，都让试玩了
 
 3060笔记本玩demo感觉优化没啥问题 当然我是默认设置 估计开的不高 反正没掉帧。这作感觉就完全在传统JRPG舒适区里面我就直接预购了，比起来smt和P系列才是口味比较奇特的类型。
 
+
+*****
+
+####  莉可厨  
+##### 1000#       发表于 2024-9-28 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66330273&amp;ptid=2140224" target="_blank">空集 发表于 2024-9-28 13:23</a>
+3060笔记本玩demo感觉优化没啥问题 当然我是默认设置 估计开的不高 反正没掉帧。这作感觉就完全在传统JRPG ...</blockquote>
+你多少帧啊，我满血3060默认设置进去一看25帧人直接麻了
+

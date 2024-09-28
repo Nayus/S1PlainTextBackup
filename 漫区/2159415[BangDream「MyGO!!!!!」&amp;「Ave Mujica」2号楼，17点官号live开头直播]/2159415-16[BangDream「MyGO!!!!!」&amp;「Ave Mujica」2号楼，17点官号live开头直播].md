@@ -15381,3 +15381,45 @@ wsd很喜欢在人擅自期待的时候狠狠让人破防
 
 键盘是老话术了，姨姥现在学聪明了不会直接拖鸡团成员下水，会说爽姐在go过的不开心踩一脚再一转c团<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  滑稽Captain  
+##### 23625#       发表于 2024-9-28 15:08
+
+二专 迹暖空
+
+感觉shuzuku这次稍微没有那么鬼图了（
+
+<img src="https://img.saraba1st.com/forum/202409/28/150317xgjv9j4vxh4lwvhx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (111.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 15:03 上传
+
+<img src="https://img.saraba1st.com/forum/202409/28/150354uy7i6m8977j7ivbb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (411.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 15:03 上传
+
+顺便迹暖空读作みちのく，写成汉字居然是陸奥
+
+*****
+
+####  御幸一也  
+##### 23626#       发表于 2024-9-28 15:08
+
+怎麼感覺你意有所指，是在說某個天天踩go團魂其實只是因為他是愛音黑的人嗎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 23627#       发表于 2024-9-28 15:09
+
+立希推本来就希望鸡动画少出场，出场越多越危险，不知道又要造出几个那我呢或者哈之类的烂梗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

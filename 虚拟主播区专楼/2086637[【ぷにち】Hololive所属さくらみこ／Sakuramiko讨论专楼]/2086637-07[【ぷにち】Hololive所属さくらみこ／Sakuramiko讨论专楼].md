@@ -11633,3 +11633,34 @@ SS席都出来了，那我是不是考虑换zaiko
 
 一专的封面照是怎么拍的
 
+
+*****
+
+####  holoan  
+##### 9839#         楼主| 发表于 2024-9-28 19:31
+
+<img src="https://img.saraba1st.com/forum/202409/28/193104uhxzc566cx5oacmc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (664.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 19:31 上传
+
+[https://x.com/aya02ka/status/1839950891509592465](https://x.com/aya02ka/status/1839950891509592465)
+
+*****
+
+####  holoan  
+##### 9840#         楼主| 发表于 2024-9-28 22:44
+
+<img src="https://img.saraba1st.com/forum/202409/28/224350sbzb19q9q9siw181.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (153.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 22:43 上传
+
+一家人齐齐整整了
+

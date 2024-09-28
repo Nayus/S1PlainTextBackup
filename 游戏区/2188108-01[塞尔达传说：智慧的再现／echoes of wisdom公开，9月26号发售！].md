@@ -5446,3 +5446,16 @@ LV2的飞镖猪在哪里？打到王城了还没抓到过</blockquote>
 —— 来自 S1Fun</blockquote>
 小火车的雪人更接近现实生活中自己堆的那种snowman吧，我是想说yeti这种雪人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，或者叫雪猿？
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 1108#       发表于 2024-9-28 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66334378&amp;ptid=2188108" target="_blank">我在干什么啊 发表于 2024-9-28 22:25</a>
+小火车的雪人更接近现实生活中自己堆的那种snowman吧，我是想说yeti这种雪人，或者叫雪猿？ ...</blockquote>
+等一下，你说的是不是孔德<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+是的话小火车里的确有，我记得那个村子里还有个巡逻支线来着
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

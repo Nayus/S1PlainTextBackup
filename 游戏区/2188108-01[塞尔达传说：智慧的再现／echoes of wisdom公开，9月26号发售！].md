@@ -5116,3 +5116,32 @@ Made in CHINA
 
 LV2的飞镖猪在哪里？打到王城了还没抓到过<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  位面农场  
+##### 1080#       发表于 2024-9-28 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66332108&amp;ptid=2188108" target="_blank">ColAMK 发表于 2024-9-28 17:53</a>
+
+LV2的飞镖猪在哪里？打到王城了还没抓到过</blockquote>
+沙漠尽头有营地
+
+
+*****
+
+####  cy6959  
+##### 1081#       发表于 2024-9-28 17:58
+
+这加侬是真糊弄，直接把织梦岛的最终boss技能拿来用
+
+—— 来自 nubia NX729J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  woui003woui  
+##### 1082#       发表于 2024-9-28 18:05
+
+拿到飞天砖之前同步控蜘蛛不断在房顶上拉线贼有乐趣
+

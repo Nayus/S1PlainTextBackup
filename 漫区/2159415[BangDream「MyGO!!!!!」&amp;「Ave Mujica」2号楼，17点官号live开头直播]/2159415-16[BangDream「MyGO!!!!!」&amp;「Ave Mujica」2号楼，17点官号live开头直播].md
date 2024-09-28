@@ -15718,3 +15718,54 @@ wsd很喜欢在人擅自期待的时候狠狠让人破防
 woc！这是官图？
 你永远可以相信ykls<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  圆  
+##### 23656#       发表于 2024-9-28 17:54
+
+ 本帖最后由 圆 于 2024-9-28 17:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66331934&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-9-28 17:33</a>
+
+这分明就是结婚现场.jpg</blockquote>
+来张稍微清晰一点的，三种封面，不变的是结婚照内封<img src="https://static.saraba1st.com/image/smiley/face/98.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202409/28/175927zhrhmql1hwr3zcl4.jpg" referrerpolicy="no-referrer">
+
+<strong>【WEB用】Roselia-15th-Single表.jpg</strong> (128.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 17:59 上传
+
+<img src="https://img.saraba1st.com/forum/202409/28/175231w79txgbox7etne9x.jpg" referrerpolicy="no-referrer">
+
+<strong>【WEB用】Roselia-15th-Single通常盤.jpg</strong> (231.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 17:52 上传
+
+<img src="https://img.saraba1st.com/forum/202409/28/175234dd9ulnc5fnduu5dz.jpg" referrerpolicy="no-referrer">
+
+<strong>【WEB用】Roselia-15th-Single限定盤A.jpg</strong> (202.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 17:52 上传
+
+<img src="https://img.saraba1st.com/forum/202409/28/175237an48y534346817yk.jpg" referrerpolicy="no-referrer">
+
+<strong>【WEB用】Roselia-15th-Single限定盤B.jpg</strong> (191.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 17:52 上传
+
+*****
+
+####  Aendst  
+##### 23657#       发表于 2024-9-28 17:56
+
+塞了一张明年的萝单独<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

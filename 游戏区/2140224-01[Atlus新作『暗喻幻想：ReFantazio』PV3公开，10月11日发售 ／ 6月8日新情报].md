@@ -3212,3 +3212,20 @@ demo打完了，目前主要感想：
 草，什么是黄金虫</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">大概是跟dq小奖章一个性质的收集品，估计后面能找人换东西
 
+
+*****
+
+####  adretyu67.  
+##### 1013#       发表于 2024-9-28 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66331879&amp;ptid=2140224" target="_blank">walfeds 发表于 2024-9-28 17:25</a>
+
+手感问题。。。除了p5摘面具感觉p3p4乃至smt4都被折磨过，smt5的超远判定倒是还好
+
+这作还是跟smt4一样的按 ...</blockquote>
+4代那个地图攻击动作不是超屎的吗。
+
+4F优化了点。
+
+这还能倒退回去？
+

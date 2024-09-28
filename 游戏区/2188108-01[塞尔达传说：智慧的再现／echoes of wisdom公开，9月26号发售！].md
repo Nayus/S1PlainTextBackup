@@ -5302,3 +5302,18 @@ LV2的飞镖猪在哪里？打到王城了还没抓到过</blockquote>
 
 这拿烟花卡进度太过分了，拿到乌鸦的时候已经不怎么需要钱了
 
+
+*****
+
+####  KOL2022  
+##### 1099#       发表于 2024-9-28 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66333713&amp;ptid=2188108" target="_blank">TriSPD 发表于 2024-9-28 21:10</a>
+
+法条乌鸦太厉害了，一个俯冲就是几十卢比。
+
+这拿烟花卡进度太过分了，拿到乌鸦的时候已经不怎么需要钱了 ...</blockquote>
+我在第一个主线让去格鲁德和卓拉时，就已经搞定烟花了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+倒是工匠解锁的比较晚，解锁时已经有烟花，金扇子，祖传宝刀，八音盒了
+

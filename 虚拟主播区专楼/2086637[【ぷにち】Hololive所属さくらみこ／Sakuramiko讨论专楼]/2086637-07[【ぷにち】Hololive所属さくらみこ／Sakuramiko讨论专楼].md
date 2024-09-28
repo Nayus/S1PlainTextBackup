@@ -11598,3 +11598,38 @@ fbk当时游戏里同时进行的事：跟rui恋爱相谈，手机上跟polka做
 
 12点的一般发售地狱抢票要开始了
 
+
+*****
+
+####  holoan  
+##### 9837#         楼主| 发表于 2024-9-28 12:52
+
+<img src="https://img.saraba1st.com/forum/202409/28/125138oaburq34vljbgpqo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (27.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 12:51 上传
+
+促贩上手啊你<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+SS席都出来了，那我是不是考虑换zaiko
+
+*****
+
+####  holoan  
+##### 9838#         楼主| 发表于 2024-9-28 14:35
+
+<img src="https://img.saraba1st.com/forum/202409/28/143516j7mfuniiwtou9cao.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (46.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 14:35 上传
+
+二创妄想图
+
+一专的封面照是怎么拍的
+

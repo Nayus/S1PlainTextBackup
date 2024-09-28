@@ -775,3 +775,15 @@ L3开速度强化，一直防御
 
 搞定
 
+
+*****
+
+####  ravend233  
+##### 5997#       发表于 2024-9-28 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66329982&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-28 12:50</a>
+明年东轨是39亲爹李岚峰担任主创吗</blockquote>
+估计就是去主笔迷城了，空re不需要他，界2竹入写，伊苏是近藤，又没离职，就只能去迷城了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

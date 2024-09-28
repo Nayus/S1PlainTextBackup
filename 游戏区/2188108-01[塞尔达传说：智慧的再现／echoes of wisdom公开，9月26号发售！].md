@@ -4999,3 +4999,20 @@ Made in CHINA
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  就是剑鞘  
+##### 1068#       发表于 2024-9-28 14:28
+
+嘎嘎，大妖精把饰品栏升满果然还有后续
+
+*****
+
+####  king520kyo  
+##### 1069#       发表于 2024-9-28 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66330081&amp;ptid=2188108" target="_blank">zyxsqw 发表于 2024-9-28 13:01</a>
+嫌炸弹鱼乱游直接同步控制就行了</blockquote>
+有些人的脑子估计想不到<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

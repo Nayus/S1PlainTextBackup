@@ -5317,3 +5317,36 @@ LV2的飞镖猪在哪里？打到王城了还没抓到过</blockquote>
 
 倒是工匠解锁的比较晚，解锁时已经有烟花，金扇子，祖传宝刀，八音盒了
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 1100#       发表于 2024-9-28 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66333562&amp;ptid=2188108" target="_blank">我在干什么啊 发表于 2024-9-28 20:53</a>
+雪人族是不是只有这作和黄昏公主里有？</blockquote>
+小火车里也有
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  cy6959  
+##### 1101#       发表于 2024-9-28 21:52
+
+德库监狱里有一个向下冲水的，上面有个能量石，要怎么顶着水压冲上去？
+
+—— 来自 nubia NX729J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  nancygreenlife  
+##### 1102#       发表于 2024-9-28 21:55
+
+<blockquote>cy6959 发表于 2024-9-28 21:52
+德库监狱里有一个向下冲水的，上面有个能量石，要怎么顶着水压冲上去？
+
+—— 来自 nubia NX729J, Android  ...</blockquote>
+活用同步
+

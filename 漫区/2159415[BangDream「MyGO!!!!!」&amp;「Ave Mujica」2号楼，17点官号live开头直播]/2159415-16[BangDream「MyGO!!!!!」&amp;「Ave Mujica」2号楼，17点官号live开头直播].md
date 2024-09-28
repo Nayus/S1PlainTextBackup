@@ -14892,3 +14892,13 @@ P目前只知道有个叫松本拓輝的，但好像只负责音乐和live方面
 
 有些人真的不容易啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives  
+##### 23577#       发表于 2024-9-28 10:08
+
+因为把母鸡卡的剧情删了之后
+就是观感差啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+看得累死了
+

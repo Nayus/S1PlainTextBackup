@@ -14902,3 +14902,13 @@ P目前只知道有个叫松本拓輝的，但好像只负责音乐和live方面
 就是观感差啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 看得累死了
 
+
+*****
+
+####  御幸一也  
+##### 23578#       发表于 2024-9-28 10:56
+
+ 本帖最后由 御幸一也 于 2024-9-28 10:57 编辑 
+
+天天有go粉吵要刪了你雞戲份，真刪了怎麼又開始不滿意了，純淨版go這不挺好的，我ave粉都大力鼓掌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

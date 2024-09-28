@@ -3168,3 +3168,13 @@ demo打完了，目前主要感想：
 
 加载感觉也有点问题，切个过场竟然要看到精灵翻书的 loading 画面，陶德都能打复活赛了
 
+
+*****
+
+####  量产失败型  
+##### 1009#       发表于 2024-9-28 16:50
+
+新手之壁 牛头人 冰弱点
+
+                                                                       什么真女神转生4<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

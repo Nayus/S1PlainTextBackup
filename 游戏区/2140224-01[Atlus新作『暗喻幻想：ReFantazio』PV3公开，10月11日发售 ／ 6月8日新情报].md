@@ -3107,3 +3107,27 @@ atlus最有良心的一集，都让试玩了
 
 —— 来自 HUAWEI BRA-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  nightomorrow  
+##### 1003#       发表于 2024-9-28 15:36
+
+demo打完了，目前主要感想：
+即时战斗手感太烂<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">攻击和翻滚都很难受。
+养成部分分人物等级和阿基态等级，刷阿基态等级才能解锁对应的高阶阿基态，感觉正式版会有不少刷的内容。
+剧情方面……demo里都是比较王道的正论，不知道后续会不会有爆论\雷点。
+也不知道桥野桂当初说要革新RPG，八年时间到底革新在哪儿了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+另外最早的原设女骑士更戳我<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/f01dff704b9f41dec490375b59ea0a3a/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BRA-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  八佾舞于潭  
+##### 1004#       发表于 2024-9-28 15:39
+
+觉醒宣言都太尬了，小妖精倒是很香
+

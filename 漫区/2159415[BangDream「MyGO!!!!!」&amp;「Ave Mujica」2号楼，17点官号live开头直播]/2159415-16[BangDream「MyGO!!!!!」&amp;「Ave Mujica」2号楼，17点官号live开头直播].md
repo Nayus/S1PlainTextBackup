@@ -15456,3 +15456,27 @@ wsd很喜欢在人擅自期待的时候狠狠让人破防
 
 虽然不知道是不是真的都是立希推吧
 
+
+*****
+
+####  NODY  
+##### 23631#       发表于 2024-9-28 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66331084&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-9-28 15:29</a>
+
+真的吗
+
+我看最近冒出了很多贷款鸡动画会（靠海希）补完立希人设的人啊
+
+虽然不知道是不是真的都是立希推吧 ...</blockquote>
+海希确实是唯一有可能正常补完立希的地方了，看到贴吧有个吐槽是“独角兽讨厌立希，但不讨厌海希”
+
+但海铃戏份自身难保，不好说啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 23632#       发表于 2024-9-28 15:42
+
+但是我有种鸡动画会推海喵或者海睦的悲伤预感啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

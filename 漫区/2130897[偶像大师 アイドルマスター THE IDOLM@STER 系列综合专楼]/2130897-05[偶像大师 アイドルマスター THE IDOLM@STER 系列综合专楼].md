@@ -1315,3 +1315,57 @@ sfp以后好像不用培育就能直接打歌了,这不就变成普通的音游�
 
 当然了，现实一点的话我觉得80%的可能性也就是765 All Stars天体公演最后一弹，还剩春香雪歩伊織貴音……
 
+
+*****
+
+####  wfhtony  
+##### 6441#       发表于 2024-9-28 15:41
+
+ 本帖最后由 wfhtony 于 2024-9-28 15:42 编辑 
+
+<img src="https://img.saraba1st.com/forum/202409/28/154053c7z59jhotntomgyg.jpg" referrerpolicy="no-referrer">
+
+<strong>PROJECT IM@S vα-liv PRODUCER MEETING 2024 -FROM NOW ON!!!- 昼公演（生放送）.mk.jpg</strong> (227.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 15:40 上传
+
+Setlist（PROJECT IM@S vα-liv PRODUCER MEETING 2024 -FROM NOW ON!!!- 晝場）：
+
+・Overture + Opening<blockquote>[開演前注意事項 // 全員]
+
+[Overture]
+
+01. リローディング // 全員
+
+→ 開場MC（MC①）</blockquote>
+・Interactive (1st) block<blockquote>[互動環節①（MC：勝股春樹）：みんなでヴイアラミーティング!!!]
+
+--互動環節中途，免費冒頭部分結束--
+
+[互動環節②（MC：勝股春樹）：アイドル対抗、ヴイア“ラウド”バトル！]</blockquote>
+・Single Live (Cover, 2nd) block<blockquote>02. 焼ケ鮭（《電音部》） // レトラ（＊原唱：りむる (真新宿GR学園，CV.をとは)）
+
+03. スペードのQ（《アイドルマスター Million Live!》） // 灯里愛夏（＊原唱：永吉 昴 (CV.斉藤佑圭)、双海亜美 (CV.下田麻美)、エミリー スチュアート (CV.郁原ゆう)、北沢志保 (CV.雨宮 天)）
+
+04. Next Live（《アイドルマスター》） // 上水流宇宙（＊原唱：我那覇響 (CV.沼倉愛美)）
+
+→ MC②</blockquote>
+・Single Live (Original, 3rd) + End block<blockquote>05. ともすれば、(中略)アイドル // 灯里愛夏
+
+--曲目結束後遭遇設備故障（可能是演出需要？），製作人 勝股春樹 上臺救場--
+
+06. 公転周期 // 上水流宇宙
+
+07. 群青イニシエーション // レトラ
+
+→ MC③
+
+08. ハッピース（《アイドルマスター Dearly Stars》） // 全員（＊原唱：日高愛 (CV.戸松遥), 水谷絵理 (CV.花澤香菜), 秋月涼 (CV.三瓶由布子)）
+
+[終演後留言 // 全員]</blockquote>
+以下内容需要积分高于 500 才可浏览
+
+Resilio: B6WZP4BLAVQNZOV4L5EBSOTS4G47HZRLV
+

@@ -5050,3 +5050,16 @@ Made in CHINA
 
 通关路上唯一卡住的是踩踏机关，没有说同时踩踏的引导，去看视频流程才知道
 
+
+*****
+
+####  库德里尔  
+##### 1074#       发表于 2024-9-28 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66330627&amp;ptid=2188108" target="_blank">就是剑鞘 发表于 2024-9-28 14:28</a>
+嘎嘎，大妖精把饰品栏升满果然还有后续</blockquote>
+那个支线是必须升满再拜访才解锁吗
+还是升两次去就能接
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

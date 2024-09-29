@@ -151,3 +151,14 @@ COD的战区作为BR也是往强调战战战的方向改，恨不得从头打到
 
 大意了，Wegame飚的是是绿血啊
 
+
+*****
+
+####  泰坦失足  
+##### 62#       发表于 2024-9-29 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66339354&amp;ptid=2148997" target="_blank">zip7770 发表于 2024-9-29 14:02</a>
+
+大意了，Wegame飚的是是绿血啊</blockquote>
+可以调成红色的，我手机版能调，PC版也看到了个教程。准确的说不是绿血，是绿色（或者可调为红色）的闪光粒子特效。
+

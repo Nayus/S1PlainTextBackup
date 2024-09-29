@@ -2344,3 +2344,49 @@ https://bbs.saraba1st.com/2b/thread-2198959-0-1.html</blockquote><blockquote>类
 
 但是一个游戏卖得好不好最核心的不是~~~好不好玩吗?
 
+
+*****
+
+####  Lacsiess  
+##### 193#       发表于 2024-9-29 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66299385&amp;ptid=2200803" target="_blank">修罗王 发表于 2024-9-25 12:01</a>
+
+崛起的键鼠默认是需要用鼠标侧键的，光这一点就能筛掉买黑猴的两千万玩家中的几百万了 ...</blockquote>
+您也许没关注国货鼠标最近两年卷到了什么程度
+
+*****
+
+####  革萌  
+##### 194#       发表于 2024-9-29 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66339652&amp;ptid=2200803" target="_blank">Lacsiess 发表于 2024-9-29 14:38</a>
+
+您也许没关注国货鼠标最近两年卷到了什么程度</blockquote>
+推荐一个噻
+
+
+*****
+
+####  Lacsiess  
+##### 195#       发表于 2024-9-29 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66339667&amp;ptid=2200803" target="_blank">革萌 发表于 2024-9-29 14:40</a>
+
+推荐一个噻</blockquote>
+3395以上传感器的鼠标随便买一个试手不满七天无理由就行了,模具全是高仿GPW或者雷蛇,几十块钱一个,黑猴子的零头就够了
+
+玩PC游戏的早就普及了这个档次的鼠标,搁这儿还有人念叨呢
+
+*****
+
+####  Lacsiess  
+##### 196#       发表于 2024-9-29 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66306663&amp;ptid=2200803" target="_blank">jojohunter 发表于 2024-9-26 01:19</a>
+
+另外补充一下我个人觉得其实还有另外一点就是单机/买断制游戏长期的上位者傲慢导致的对f2p游戏带来的正面 ...</blockquote>
+吃药吃药,带够破雷的药和小黄龙耗就行了
+
+另外AI给你放海了,前半条血保持距离戳棍就能白嫖完
+

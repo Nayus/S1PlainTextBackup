@@ -986,3 +986,11 @@ T表没啥用，这游戏现在都是玩体系了
 
 看b站第5赛季pv下面的b站评论说振翅ego就不是主美画的了，我反正是没看出来
 
+
+*****
+
+####  Yuzutea  
+##### 894#       发表于 2024-9-29 14:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">La Mancha引申到这个实在是有趣
+

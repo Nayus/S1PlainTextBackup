@@ -1574,3 +1574,13 @@ DLC你觉得是应该归类于持续服务型里么，我个人觉得还是买�
 
 客观来讲你再掏出来一个黑猴这个水平的ARPG，就算没有国籍和IP的加成，千万确实是可期的
 
+
+*****
+
+####  syndrome2032  
+##### 117#       发表于 2024-9-29 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66338086&amp;ptid=2200874" target="_blank">chaucerling 发表于 2024-9-29 11:39</a>
+重演出的魂3在泥潭投票和魂2倒数</blockquote>
+可是魂3卖的多，魂2只有mc评分。
+

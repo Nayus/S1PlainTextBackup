@@ -5655,3 +5655,11 @@ https://zelda.fandom.com/wiki/Anouki
 
 问题是±键按起来很不舒服<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">偶尔按一下还行，频繁用不太想
 
+
+*****
+
+####  anfangzhan  
+##### 1127#       发表于 2024-9-29 12:32
+
+水迷宫也没非常简单吧，前置任务长迷宫简单点可以接受
+

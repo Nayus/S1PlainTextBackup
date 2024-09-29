@@ -5673,3 +5673,11 @@ https://zelda.fandom.com/wiki/Anouki
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
 
+
+*****
+
+####  woui003woui  
+##### 1129#       发表于 2024-9-29 13:05
+
+卡在冰迷宫第一个boss战了，半小时没研究出来这玩意吃啥伤害，加上德库树那边食人花打了10分钟才想起来让它吃（），整个游戏里最摸不着头脑的部分都在这了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下班回去再试试
+

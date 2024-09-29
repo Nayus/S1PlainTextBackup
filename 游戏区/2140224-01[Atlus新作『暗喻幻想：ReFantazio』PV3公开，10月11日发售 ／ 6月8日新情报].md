@@ -3450,3 +3450,30 @@ demo打完了 在牛头人那里把自己练级练高了 结果砍瓜切菜了<i
 
 但那个满屏碎屑的效果能不能关掉呀，太费眼睛了。
 
+
+*****
+
+####  nancygreenlife  
+##### 1036#       发表于 2024-9-29 09:16
+
+我看有的地方已经把剧情大纲之类的东西解包出来了，试玩版都不清理干净的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  godless2020  
+##### 1037#       发表于 2024-9-29 09:19
+
+PS5主机，大家玩的时候碰到过风扇狂响吗，还在空调房内。。。
+
+
+*****
+
+####  罗克萨斯  
+##### 1038#       发表于 2024-9-29 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66336592&amp;ptid=2140224" target="_blank">godless2020 发表于 2024-9-29 09:19</a>
+PS5主机，大家玩的时候碰到过风扇狂响吗，还在空调房内。。。</blockquote>
+初版PS5，安静如鸡
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

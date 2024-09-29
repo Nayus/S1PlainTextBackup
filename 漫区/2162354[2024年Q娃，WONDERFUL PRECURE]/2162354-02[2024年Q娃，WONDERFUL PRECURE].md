@@ -341,3 +341,14 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">彩羽的角色塑造约等于没有，太平面了。这告白回能挽回多少呢
 
+
+*****
+
+####  himfsz  
+##### 2259#       发表于 2024-9-29 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66336397&amp;ptid=2162354" target="_blank">renkan119 发表于 2024-9-29 08:54</a>
+
+人气榜彩羽都跌出20了 也太惨了</blockquote>
+不是排在第二位吗<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
+

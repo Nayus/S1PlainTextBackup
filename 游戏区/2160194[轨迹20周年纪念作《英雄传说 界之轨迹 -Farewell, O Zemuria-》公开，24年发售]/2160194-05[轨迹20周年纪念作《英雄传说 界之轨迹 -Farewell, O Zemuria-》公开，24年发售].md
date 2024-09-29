@@ -1507,3 +1507,20 @@ jdk live  tgs day2
 资料库的设计太蠢了，正常做法是在剧情对话里高亮关键词然后直接点击关键词进入资料库，而不是像现在这样必 ...</blockquote>
 能在对话中直接点击高亮关键词看说明的我也就在 Ar nosurge 里见过
 
+
+*****
+
+####  windtrack_qh  
+##### 6065#       发表于 2024-9-29 21:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">第一章范路线黑庭院打完之后可以无脑刷波波也太离谱了吧
+
+*****
+
+####  椎名mahuyo  
+##### 6066#       发表于 2024-9-29 21:53
+
+想半天为啥这作玩着烦躁的理由，果然还是厌烦了主角出个门七八个人跟着，我又有点平均练级强迫症，每次配回路都配好久才开始逛街
+
+—— 来自 realme RMX3708, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

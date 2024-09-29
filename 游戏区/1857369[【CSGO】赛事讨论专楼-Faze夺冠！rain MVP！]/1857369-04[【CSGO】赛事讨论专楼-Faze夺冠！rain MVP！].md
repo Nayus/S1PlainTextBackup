@@ -207,3 +207,11 @@ BO5的话，如果大厦放出来就幽默了<img src="https://static.saraba1st.
 
 G2下半场好不容易拿一分snax直接call个长枪飞b2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，再配合hunter的幽默带包冲，幽默完了啊G2，看好navi让二追三。
 
+
+*****
+
+####  朔方原的星  
+##### 4481#         楼主| 发表于 2024-9-30 01:33
+
+pdf属实是有点尿裤，作为顶级强队的狙击手稳定性太差了
+

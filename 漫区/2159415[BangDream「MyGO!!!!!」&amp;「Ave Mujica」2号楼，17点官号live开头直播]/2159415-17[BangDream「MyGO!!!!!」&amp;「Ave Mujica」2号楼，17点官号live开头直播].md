@@ -282,3 +282,11 @@ shuzuku我求求你别画了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">明天會有MV了吧
 
+
+*****
+
+####  星天观测  
+##### 23704#       发表于 2024-9-29 19:54
+
+别抱期待<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只说连续五个月有新歌，没说连续五个月有mv
+

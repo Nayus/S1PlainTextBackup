@@ -6000,3 +6000,14 @@ syl，应该不会只有我在玩了几十个小时后才知道按+跳过冰沙�
 
 大地图左边有个洞，里面两块石头挡着个心碎片怎么拿啊，炸弹没用<img src="https://static.saraba1st.com/image/smiley/face/145.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aaronluray  
+##### 1159#       发表于 2024-9-29 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66342366&amp;ptid=2188108" target="_blank">莉可厨 发表于 2024-9-29 19:40</a>
+
+大地图左边有个洞，里面两块石头挡着个心碎片怎么拿啊，炸弹没用</blockquote>
+如果是我猜的那个的话。先锁定离你远的那个石头，丢到地势稍低的坑里
+

@@ -3599,3 +3599,11 @@ hard都咋打的，山洞里那个火龙喷火球克探索者，都切剑士有�
 
 草，回头看pv里面攻击前有个冲刺动作才发觉自己打完demo都没试过锁定<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这不是完全不会打空吗，傻逼了卧槽
 
+
+*****
+
+####  Cloudslin  
+##### 1051#       发表于 2024-9-29 23:25
+
+UI真「潦草」啊，然后就是明显能感觉到因为开发时间拉太长，很多东西变得有些过时了。
+

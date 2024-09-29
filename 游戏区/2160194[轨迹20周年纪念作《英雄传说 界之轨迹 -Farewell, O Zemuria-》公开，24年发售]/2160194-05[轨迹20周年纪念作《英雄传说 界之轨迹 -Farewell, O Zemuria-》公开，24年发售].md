@@ -1350,3 +1350,11 @@ jdk live  tgs day2
 
 那个公交站万年迷路的小哥开始骑电瓶车送外卖了
 
+
+*****
+
+####  ouyang菌  
+##### 6050#       发表于 2024-9-29 16:33
+
+我觉得还是不至于闪2黎2水平的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这作大概闪3水准吧，而且比闪3断章的还合理一点
+

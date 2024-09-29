@@ -5789,3 +5789,30 @@ https://zelda.fandom.com/wiki/Anouki
 syl
 冰沙后面有道具可以随身制作吗
 
+
+*****
+
+####  aaronluray  
+##### 1140#       发表于 2024-9-29 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66340653&amp;ptid=2188108" target="_blank">医生狼多 发表于 2024-9-29 16:22</a>
+
+对的，冰沙就是磕药
+
+还有就是boss部分招式或者小怪环境会掉心心，可以戴出现概率增加的那个饰品</blockquote>
+应该是没有的，乖乖去冰沙店吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  就是剑鞘  
+##### 1141#       发表于 2024-9-29 16:31
+
+ 本帖最后由 就是剑鞘 于 2024-9-29 16:32 编辑 
+
+冰沙搭配会显示结果太可恶了
+
+为了填空，明知会出怪冰沙也不得不做
+
+syl，应该不会只有我在玩了几十个小时后才知道按+跳过冰沙制作过程吧<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+

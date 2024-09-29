@@ -2486,3 +2486,13 @@ https://bbs.saraba1st.com/2b/thread-2198959-0-1.html</blockquote><blockquote>类
 不在研发部门吧，大概在什么分析部门，主楼内容其实都是他工作内容的边角料了 ...</blockquote>
 不会是腾讯的ibd部门吧？除了这个我想不出腾讯有别的部门要进行这样的商业和技术分析了
 
+
+*****
+
+####  借月照华庭  
+##### 206#       发表于 2024-9-29 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66315514&amp;ptid=2200803" target="_blank">su37mkk 发表于 2024-9-26 20:50</a>
+内裤门死太监，就这几年出了钢火法这个替代品</blockquote>
+然后替代品自己也断更了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

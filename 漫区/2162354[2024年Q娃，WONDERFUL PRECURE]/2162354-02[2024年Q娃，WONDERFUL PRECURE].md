@@ -432,3 +432,16 @@
 
 广末悠奈这22年升演出，23年剧场版副监督，24年一人负责单集，速度看齐松本理惠了，希望跑路别那么快<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  粉儿alice  
+##### 2267#       发表于 2024-9-29 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66343309&amp;ptid=2162354" target="_blank">雨宮優子 发表于 2024-9-29 22:07</a>
+剧场版纯喷
+
+你可以杀了我但是不能让我看四十分钟劣质sd人物玩游戏和跳ed舞</blockquote>
+查了一下现在累计票房8.05
+现在的票房就可以算是q娃单独作品剧场版里数一数二的了<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+

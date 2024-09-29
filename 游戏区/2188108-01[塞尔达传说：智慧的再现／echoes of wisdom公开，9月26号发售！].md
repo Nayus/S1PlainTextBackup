@@ -6237,3 +6237,22 @@ syl，应该不会只有我在玩了几十个小时后才知道按+跳过冰沙�
 
 这代bgm都没啥印象，是不是塞尔达里音乐最拉的一作？
 
+
+*****
+
+####  TriSPD  
+##### 1183#       发表于 2024-9-29 22:40
+
+<blockquote>莉可厨 发表于 2024-9-29 19:40
+大地图左边有个洞，里面两块石头挡着个心碎片怎么拿啊，炸弹没用</blockquote>
+貌似是山洞外面，头顶上沙地挖洞跳进去
+
+*****
+
+####  东京打工妹  
+##### 1184#       发表于 2024-9-29 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66343125&amp;ptid=2188108" target="_blank">KOS-MOS_Refrain 发表于 2024-9-29 21:34</a>
+暖暖综合特调，辣椒+牛奶或者葡萄+辣椒</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+

@@ -1497,3 +1497,14 @@ ll要日剧化？这算半个新团不？
 
 恍如隔世
 
+
+*****
+
+####  csolfans  
+##### 21100#       发表于 2024-9-29 22:41
+
+<img src="https://p.sda1.dev/19/82aa2b3dc7850745cb98286721b322a8/CMP_20240929224101233.jpg" referrerpolicy="no-referrer">
+结哥的大长腿！
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

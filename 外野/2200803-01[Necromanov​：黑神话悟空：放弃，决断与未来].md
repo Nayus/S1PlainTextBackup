@@ -2329,3 +2329,18 @@ https://bbs.saraba1st.com/2b/thread-2198959-0-1.html</blockquote><blockquote>类
 真看不懂。我玩gu是手抄了一个阿婆的单手剑连招表打了几关，然后无脑入了rise，因为是解锁第一时间进去并 ...</blockquote>
 翔虫该怎么瞄准？？游戏里不是很直观的给了个瞄准圈吗
 
+
+*****
+
+####  Lacsiess  
+##### 192#       发表于 2024-9-29 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66298440&amp;ptid=2200803" target="_blank">mandown 发表于 2024-9-25 10:41</a>
+
+内裤门的游戏评论有时候也不是很准，上次他说未来的游戏行业标准是逃离塔科夫，后来塔科夫也没有这么火 ...</blockquote>
+业内都有立场,要在自己立场说话,难道他敢说毒企鹅的套路几乎不可能做出好3A吗?还想不想领工资了?
+
+所以他一直论证美工+关卡或者说场景+短视频或者说社交才是黑神话大卖的核心
+
+但是一个游戏卖得好不好最核心的不是~~~好不好玩吗?
+

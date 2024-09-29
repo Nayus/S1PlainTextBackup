@@ -1601,3 +1601,47 @@ DLC你觉得是应该归类于持续服务型里么，我个人觉得还是买�
 
 是要人间观察吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Lacsiess  
+##### 120#       发表于 2024-9-29 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66338136&amp;ptid=2200874" target="_blank">devilwing 发表于 2024-9-29 11:44</a>
+
+整篇文章的核心，说游科为了迎合视频直播的潮流，故意在游戏关卡和美术上进行了相应的设计，可以说是最明显 ...</blockquote>
+毒企鹅的人当然要论证毒企鹅能做到的事情就能大卖啊,要不怎么拿预算,难道论证凡是有心Gacha必然做不好吗?你还想不想领毒企鹅游戏部门的工资了?
+
+
+*****
+
+####  Lacsiess  
+##### 121#       发表于 2024-9-29 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66338390&amp;ptid=2200874" target="_blank">dazzle 发表于 2024-9-29 12:13</a>
+
+发售前低估主要是没人知道全篇水平什么样，实际上就斗战神，百将行，赤潮那个水平，你说这个组随后5年能 ...</blockquote>
+斗战神A1到A4水准并不差啊,目前这个战斗系统就有不少当年猴子的影子,只是以毒企鹅的标准不行,这文章就是在论证怎么让毒企鹅能行,那当然是我的优势美工和关卡/场景设计+短视频/社交推送天下无敌啊,还不赶快拨款?
+
+
+*****
+
+####  Lacsiess  
+##### 120#       发表于 2024-9-29 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66338136&amp;ptid=2200874" target="_blank">devilwing 发表于 2024-9-29 11:44</a>
+
+整篇文章的核心，说游科为了迎合视频直播的潮流，故意在游戏关卡和美术上进行了相应的设计，可以说是最明显 ...</blockquote>
+毒企鹅的人当然要论证毒企鹅能做到的事情就能大卖啊,要不怎么拿预算,难道论证凡是有心Gacha必然做不好吗?你还想不想领毒企鹅游戏部门的工资了?
+
+
+*****
+
+####  Lacsiess  
+##### 121#       发表于 2024-9-29 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66338390&amp;ptid=2200874" target="_blank">dazzle 发表于 2024-9-29 12:13</a>
+
+发售前低估主要是没人知道全篇水平什么样，实际上就斗战神，百将行，赤潮那个水平，你说这个组随后5年能 ...</blockquote>
+斗战神A1到A4水准并不差啊,目前这个战斗系统就有不少当年猴子的影子,只是以毒企鹅的标准不行,这文章就是在论证怎么让毒企鹅能行,那当然是我的优势美工和关卡/场景设计+短视频/社交推送天下无敌啊,还不赶快拨款?
+

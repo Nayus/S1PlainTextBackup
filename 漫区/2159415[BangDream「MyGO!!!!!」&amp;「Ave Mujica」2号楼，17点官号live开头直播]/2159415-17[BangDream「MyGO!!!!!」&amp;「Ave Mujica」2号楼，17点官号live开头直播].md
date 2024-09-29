@@ -257,3 +257,12 @@ shuzuku我求求你别画了
 完整动画完整故事中间播了一半然 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不得不冒出一句 纯度，有用吗.jpg
 
+
+*****
+
+####  skives  
+##### 23701#       发表于 2024-9-29 13:23
+
+【BanG Dream! It's MyGO!!!!! 祥子视角-哔哩哔哩】 [https://b23.tv/sjKKshd](https://b23.tv/sjKKshd)
+百看不厌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

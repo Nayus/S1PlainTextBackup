@@ -1111,3 +1111,21 @@ jdk live  tgs day2
 
 塞尔达快玩完了，在考虑要不要直接玩界轨了。所以整体剧情音乐玩法来说比黎2如何，如果没有黎2那种烂活我就直接入了。
 
+
+*****
+
+####  卢迪克  
+##### 6032#       发表于 2024-9-29 13:22
+
+<blockquote>haru橙子 发表于 2024-9-29 13:04
+塞尔达快玩完了，在考虑要不要直接玩界轨了。所以整体剧情音乐玩法来说比黎2如何，如果没有黎2那种烂活我就 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202409/29/132248kzocrtgf2fc6mfrz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240929_132212.jpg</strong> (202.7 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-29 13:22 上传
+

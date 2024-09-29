@@ -1188,3 +1188,74 @@ jdk live  tgs day2
 比黎轨2各方面都要好很多 剧情本身没啥问题 人物也都在线 坑填了不少 主要问题还是注水严重 而且挺明显的 ...</blockquote>
 马桶确实太多了，我和我的同学都已经开始放弃一些npc和支线了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仲可怀  
+##### 6039#       发表于 2024-9-29 13:46
+
+<blockquote>引用第6037楼KevinGraham于2024-09-29 13:39发表的  :
+
+仲可怀 发表于 2024-9-29 13:34比黎轨2各方面都要好很多 剧情本身没啥问题 人物也都在......</blockquote>
+第一章这个绿色支线 我感觉还有点意思的也就是2-3个 其他都鸡肋。羁绊剧情倒是都做的不错，npc故事做的挺好 但是这个真的消耗时间 还是限定区域的情况下
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  haru橙子  
+##### 6040#       发表于 2024-9-29 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66339112&amp;ptid=2160194" target="_blank">仲可怀 发表于 2024-9-29 13:34</a>
+
+比黎轨2各方面都要好很多 剧情本身没啥问题 人物也都在线 坑填了不少 主要问题还是注水严重 而且挺明显的 ...</blockquote>
+那感觉还好，马桶这个黎2我就感觉到了，后期支线也都直接跳过剧情了，感觉看不看没啥区别。
+
+
+*****
+
+####  仲可怀  
+##### 6041#       发表于 2024-9-29 13:50
+
+<blockquote>引用第6034楼haru橙子于2024-09-29 13:34发表的  :
+
+卢迪克 发表于 2024-9-29 13:22这是哪方面不行了</blockquote>
+我建议你要玩的话 优先主线 绿色支线看任务描述 觉得能吸引你的可以做下 看着就无趣的放弃 npc愿意对话可以聊下  不愿意也放弃掉 
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| haru橙子| + 2|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  haru橙子  
+##### 6042#       发表于 2024-9-29 13:51
+
+ 本帖最后由 haru橙子 于 2024-9-29 13:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66339158&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-29 13:38</a>
+
+首先确定这部是断章了，然后就是流程太长，而且充满了通马桶支线，从流程设计上不如黎2
+
+但是料和活是比 ...</blockquote>
+那战斗玩起来爽吗，我也不知道是不是剧情太烂导致我玩得没心情，黎2的战斗就让我觉得挺罗嗦的，晶片刷得慢，槽开不齐，回路也不好刷，技能配起来也麻烦。
+
+*****
+
+####  ravend233  
+##### 6043#       发表于 2024-9-29 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66339265&amp;ptid=2160194" target="_blank">haru橙子 发表于 2024-9-29 13:51</a>
+
+那战斗玩起来爽吗，我也不知道是不是剧情太烂导致我玩得没心情，黎2的战斗就让我觉得挺罗嗦的，晶片刷得慢 ...</blockquote>
+玩法上底子还是黎1黎2那套，想不动脑爽只能开VE吧
+

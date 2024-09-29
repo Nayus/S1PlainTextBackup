@@ -2508,3 +2508,14 @@ https://bbs.saraba1st.com/2b/thread-2198959-0-1.html</blockquote><blockquote>类
 
 —— 来自 vivo V2337A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  一色いろは  
+##### 208#       发表于 2024-9-29 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66340558&amp;ptid=2200803" target="_blank">mandown 发表于 2024-9-29 16:10</a>
+
+不会是腾讯的ibd部门吧？除了这个我想不出腾讯有别的部门要进行这样的商业和技术分析了 ...</blockquote>
+确实不知道叫啥，反正他自己的公司关门后不做研发很多年了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

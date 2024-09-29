@@ -274,3 +274,11 @@ shuzuku我求求你别画了
 
 【佐佐木李子 翻唱「One Last Kiss」】 [https://www.bilibili.com/video/BV12HsfeFE7b](https://www.bilibili.com/video/BV12HsfeFE7b)
 
+
+*****
+
+####  御幸一也  
+##### 23703#       发表于 2024-9-29 19:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">明天會有MV了吧
+

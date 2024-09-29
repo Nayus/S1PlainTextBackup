@@ -6256,3 +6256,22 @@ syl，应该不会只有我在玩了几十个小时后才知道按+跳过冰沙�
 暖暖综合特调，辣椒+牛奶或者葡萄+辣椒</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  woui003woui  
+##### 1185#       发表于 2024-9-29 23:03
+
+同步机关除了做个巡逻的石像等它快踩上去的时候跳另一块以外，有没有别的解法啊
+我觉得这个解法有点傻但想不到别的思路<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Stephen9755  
+##### 1186#       发表于 2024-9-29 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66343660&amp;ptid=2188108" target="_blank">woui003woui 发表于 2024-9-29 23:03</a>
+同步机关除了做个巡逻的石像等它快踩上去的时候跳另一块以外，有没有别的解法啊
+我觉得这个解法有点傻但想 ...</blockquote>
+放个石像然后同步不就好了
+

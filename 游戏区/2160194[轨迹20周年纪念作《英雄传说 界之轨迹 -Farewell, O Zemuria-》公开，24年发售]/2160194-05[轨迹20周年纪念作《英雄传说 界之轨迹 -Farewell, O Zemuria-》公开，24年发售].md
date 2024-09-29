@@ -1552,3 +1552,25 @@ jdk live  tgs day2
 
 嫌不平衡不刷不就得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Esoterica  
+##### 6070#       发表于 2024-9-29 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66342790&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-9-29 20:42</a>
+
+负面梗最多不就是闪3
+
+1.没有这个必要
+
+2.剑戟怒涛</blockquote>
+没有这个必要和剑戟怒涛不是一个东西咩<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  亦饮阑珊  
+##### 6071#       发表于 2024-9-29 23:03
+
+54个小时通关了 还有大家ps5有没有碰到过热关机的问题 今天过热关机好多次 我把壳拆了开空调勉强好一点
+

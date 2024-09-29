@@ -2475,3 +2475,14 @@ https://bbs.saraba1st.com/2b/thread-2198959-0-1.html</blockquote><blockquote>类
 内裤门在腾讯哪个部门？天美吗？</blockquote>
 不在研发部门吧，大概在什么分析部门，主楼内容其实都是他工作内容的边角料了
 
+
+*****
+
+####  mandown  
+##### 205#       发表于 2024-9-29 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66340416&amp;ptid=2200803" target="_blank">一色いろは 发表于 2024-9-29 15:54</a>
+
+不在研发部门吧，大概在什么分析部门，主楼内容其实都是他工作内容的边角料了 ...</blockquote>
+不会是腾讯的ibd部门吧？除了这个我想不出腾讯有别的部门要进行这样的商业和技术分析了
+

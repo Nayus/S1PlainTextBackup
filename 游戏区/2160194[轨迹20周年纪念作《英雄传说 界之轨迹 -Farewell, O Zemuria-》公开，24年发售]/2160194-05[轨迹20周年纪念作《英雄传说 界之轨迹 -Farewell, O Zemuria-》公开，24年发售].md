@@ -1463,3 +1463,18 @@ jdk live  tgs day2
 
 资料库的设计太蠢了，正常做法是在剧情对话里高亮关键词然后直接点击关键词进入资料库，而不是像现在这样必须频繁打开菜单来确认关键词更新
 
+
+*****
+
+####  ouyang菌  
+##### 6061#       发表于 2024-9-29 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66342790&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-9-29 20:42</a>
+
+负面梗最多不就是闪3
+
+1.没有这个必要
+
+2.剑戟怒涛</blockquote>
+还有“把我们的克洛斯贝尔还回来！”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

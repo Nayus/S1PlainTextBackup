@@ -3477,3 +3477,16 @@ PS5主机，大家玩的时候碰到过风扇狂响吗，还在空调房内。�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  godless2020  
+##### 1039#       发表于 2024-9-29 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66336604&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-9-29 09:20</a>
+
+初版PS5，安静如鸡
+
+—— 来自 S1Fun</blockquote>
+我机子还清了灰，机子背部发热好高<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+

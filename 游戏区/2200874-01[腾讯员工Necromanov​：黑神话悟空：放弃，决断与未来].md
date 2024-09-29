@@ -1484,3 +1484,18 @@ DLC你觉得是应该归类于持续服务型里么，我个人觉得还是买�
 
 只是它刚好选择了这样的开发方向。
 
+
+*****
+
+####  redsouris  
+##### 110#       发表于 2024-9-29 09:37
+
+ 本帖最后由 redsouris 于 2024-9-29 09:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66307099&amp;ptid=2200874" target="_blank">dazzle 发表于 2024-9-26 07:02</a>
+他这个结论本来就是先射箭再画靶子，有稍微关注手游业界是不可能不知道A级制作手游的风险有多大的
+
+以小博 ...</blockquote>
+“但你如果用黑猴级别的投入做个黑猴水平的买断，能卖千万的概率是非常大的”
+
+黑猴爆卖之前谁敢说这投入卖千万的概率很大，泥潭销量预测都只敢做梦五百万<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

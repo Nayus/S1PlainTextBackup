@@ -154,3 +154,21 @@ shaft这种开头巅峰然后画面越做越崩坏最后逐渐万策尽甚至还
 
 说到女子落语 上季度的列车有些单回有点女子落语的既视感 还是经典的水岛努+横手 这组合太会做相声了
 
+
+*****
+
+####  wer4f  
+##### 945#       发表于 2024-9-29 20:11
+
+凶手是前几集出现过的角色吗
+
+*****
+
+####  0aleph37  
+##### 946#       发表于 2024-9-29 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66342574&amp;ptid=2168085" target="_blank">wer4f 发表于 2024-9-29 20:11</a>
+
+凶手是前几集出现过的角色吗</blockquote>
+是的zsbd
+

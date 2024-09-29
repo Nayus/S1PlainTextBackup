@@ -287,3 +287,28 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  HANDAIYV  
+##### 2254#       发表于 2024-9-29 08:22
+
+倒是想看看彩羽真喜欢上了其他人，真由会选择助攻谁，怎么助攻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jaewoongh_  
+##### 2255#       发表于 2024-9-29 08:48
+
+36话
+
+面对悟的表白，彩羽在惊讶之中跑掉了，就这么想着悟的“特别的感情”，迎来了第二天早上
+
+【脚本】成田良美
+
+【絵コンテ】上田華子
+
+【演出】飛田剛 ​​​
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">神回配置？
+

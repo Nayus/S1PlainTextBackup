@@ -1420,3 +1420,38 @@ jdk live  tgs day2
 
 问一下庭院抽奖的晶石更新吗，到了第一章工坊都出3了，庭院还是只能抽1，要不要攒着等以后抽？
 
+
+*****
+
+####  里恩  
+##### 6058#       发表于 2024-9-29 20:37
+
+ 本帖最后由 里恩 于 2024-9-29 20:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66340882&amp;ptid=2160194" target="_blank">Squall25 发表于 2024-9-29 16:46</a>
+
+作为半个闪黑，我不想给闪3翻盘，毕竟闪3问题不少，但是闪3放现在拿出来对比偶尔真有点冤了。相比之下，黎2 ...</blockquote>
+必须为闪3说几句话，闪3是系列佳作了好不好，咚也是咚得比较合理的
+
+界把这么冗长的前戏放在黎2，黎3开始拯救世界作为共和国终结这个结构比较合理，都怪他们居然敢水一部出来
+
+黎2的基友部分剧情完全可以删了，主线交给界2的后半
+
+
+*****
+
+####  洛克萨斯  
+##### 6059#       发表于 2024-9-29 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66342751&amp;ptid=2160194" target="_blank">里恩 发表于 2024-9-29 20:37</a>
+
+必须为闪3说几句话，闪3是系列佳作了好不好，咚也是咚得比较合理的
+
+界把这么冗长的前戏放在黎2，黎3开始 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">负面梗最多不就是闪3
+
+1.没有这个必要
+
+2.剑戟怒涛
+
+3.咚
+

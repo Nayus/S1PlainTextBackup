@@ -5755,3 +5755,37 @@ https://zelda.fandom.com/wiki/Anouki
 
 回血除了躺床外，打boss过程中，用什么回血好？就是做那个冰沙吗？
 
+
+*****
+
+####  就是剑鞘  
+##### 1137#       发表于 2024-9-29 16:19
+
+终于全神速了，水流竞技实在折磨
+
+话说全神速居然没奖励，太令我失望了
+
+*****
+
+####  anfangzhan  
+##### 1138#       发表于 2024-9-29 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66339251&amp;ptid=2188108" target="_blank">我在干什么啊 发表于 2024-9-29 13:49</a>
+
+这作有加快跑步速度的饰品吗？</blockquote>
+有胡萝卜时可以骑马
+
+
+*****
+
+####  医生狼多  
+##### 1139#         楼主| 发表于 2024-9-29 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66340547&amp;ptid=2188108" target="_blank">mggr 发表于 2024-9-29 16:08</a>
+回血除了躺床外，打boss过程中，用什么回血好？就是做那个冰沙吗？</blockquote>
+对的，冰沙就是磕药
+还有就是boss部分招式或者小怪环境会掉心心，可以戴出现概率增加的那个饰品
+
+syl
+冰沙后面有道具可以随身制作吗
+

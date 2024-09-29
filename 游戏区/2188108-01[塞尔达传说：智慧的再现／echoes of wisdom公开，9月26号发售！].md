@@ -6411,3 +6411,25 @@ syl，应该不会只有我在玩了几十个小时后才知道按+跳过冰沙�
 
 这代end game好像也没啥内容了，塞尔达那些能力通关后感觉也没啥好摆弄的……
 
+
+*****
+
+####  黛冬優子  
+##### 1199#       发表于 2024-9-30 02:28
+
+<img src="https://img.saraba1st.com/forum/202409/30/022806s446iu6pu4uam6b9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2970.jpeg</strong> (399.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-30 02:28 上传
+
+<img src="https://img.saraba1st.com/forum/202409/30/022806dwe1nzcwmc0dipne.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2971.jpeg</strong> (581.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-30 02:28 上传
+

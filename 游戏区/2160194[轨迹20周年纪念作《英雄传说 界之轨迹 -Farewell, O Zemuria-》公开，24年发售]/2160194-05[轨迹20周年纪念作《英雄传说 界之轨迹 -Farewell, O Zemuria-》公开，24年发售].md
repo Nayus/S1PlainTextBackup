@@ -1404,3 +1404,11 @@ jdk live  tgs day2
 
 3作了法老控还没整利索PS5版，放技能还是掉帧，对比下PS4版明显流畅多了，还装模作样弄了个30帧的画质模式，就问你这游戏有画质吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  memo2  
+##### 6056#       发表于 2024-9-29 19:07
+
+比烂和闪3五五开，论性价比？那肯定闪3高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

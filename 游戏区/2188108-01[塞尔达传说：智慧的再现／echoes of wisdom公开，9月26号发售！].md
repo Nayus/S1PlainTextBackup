@@ -6433,3 +6433,16 @@ syl，应该不会只有我在玩了几十个小时后才知道按+跳过冰沙�
 
 2024-9-30 02:28 上传
 
+
+*****
+
+####  acalephs  
+##### 1200#       发表于 2024-9-30 05:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66323562&amp;ptid=2188108" target="_blank">就是剑鞘 发表于 2024-9-27 00:28</a>
+
+草啊，经典乒乓球环节被疯狂羞辱，要不是冰沙带得够多真翻车了
+
+但是打完我还是得说一句，“我的魔物无穷无 ...</blockquote>
+乒乓球可以逃课啊，加农射出来第一下球速很慢，不要打回去一直跑，边跑边看小弟干加农<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

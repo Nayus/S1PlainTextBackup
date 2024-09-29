@@ -424,3 +424,11 @@
 
 整体都是和春之嘉年华做朋友的一作剧场版
 
+
+*****
+
+####  Cloudslin  
+##### 2266#       发表于 2024-9-29 22:32
+
+广末悠奈这22年升演出，23年剧场版副监督，24年一人负责单集，速度看齐松本理惠了，希望跑路别那么快<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

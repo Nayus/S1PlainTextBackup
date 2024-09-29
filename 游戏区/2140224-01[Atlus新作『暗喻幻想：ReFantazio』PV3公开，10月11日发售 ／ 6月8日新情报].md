@@ -3431,3 +3431,22 @@ demo打完了 在牛头人那里把自己练级练高了 结果砍瓜切菜了<i
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">PS5韩中比steam都低，心动想预购了，日版demo也有中文，日版正式版也会带中文吗，闲鱼上已经有260的日版实体了
 
+
+*****
+
+####  罗克萨斯  
+##### 1034#       发表于 2024-9-29 09:13
+
+这试玩还真挺耐玩的，又想再开个档打了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Pipcat  
+##### 1035#       发表于 2024-9-29 09:13
+
+玩这个职业系统时不知道为啥想到FF13，可以设定同一职业太好了，都不敢想象后期打弱点有多爽。而且节省了合P的工作量，这点也很戳我。
+
+但那个满屏碎屑的效果能不能关掉呀，太费眼睛了。
+

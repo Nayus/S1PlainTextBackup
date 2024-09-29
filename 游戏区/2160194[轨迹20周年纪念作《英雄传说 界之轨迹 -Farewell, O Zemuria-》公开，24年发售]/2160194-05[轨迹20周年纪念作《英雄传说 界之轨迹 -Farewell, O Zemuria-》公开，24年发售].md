@@ -1048,3 +1048,13 @@ ps4的轨迹中文日文存档都是互通的（只要不打dlc，dlc一致的�
 
 特别是剑女，60消耗回全队30cp，配合自动充能防御那就是白给全队30cp（还可以zoc回两次）（但是自动充能防御好像不是必触发？）
 
+
+*****
+
+####  kenqqex  
+##### 6026#       发表于 2024-9-29 09:08
+
+[https://live.bilibili.com/3418758?live_from=85001](https://live.bilibili.com/3418758?live_from=85001)
+
+jdk live  tgs day2
+

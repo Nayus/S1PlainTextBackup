@@ -1431,3 +1431,11 @@ DLC你觉得是应该归类于持续服务型里么，我个人觉得还是买�
 
 你能以黑神话的美术水准在游戏里塞80个Boss，关卡的作用真的就剩展示风景了
 
+
+*****
+
+####  eva02eva02  
+##### 107#       发表于 2024-9-29 09:11
+
+真是又丑又长，怪物猎人多玩玩重弩，就不会有我怎么攻击不了的想法了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

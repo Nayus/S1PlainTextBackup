@@ -165,3 +165,11 @@ niko配赢
 
 没办法载物这个性格成也如此败也如此，只能说小蜜蜂今年沦落成这样，最主要原因还是管理层夺冠后降薪气走zonic，这种在队伍上升期自取灭亡的蠢招也只有去年x队的蛇鼠宫点能比了。
 
+
+*****
+
+####  heseran  
+##### 4476#       发表于 2024-9-29 09:09
+
+这1打5气死了niko<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">太可惜了。
+

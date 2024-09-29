@@ -1478,3 +1478,14 @@ jdk live  tgs day2
 2.剑戟怒涛</blockquote>
 还有“把我们的克洛斯贝尔还回来！”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 6062#       发表于 2024-9-29 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66342986&amp;ptid=2160194" target="_blank">ouyang菌 发表于 2024-9-29 21:09</a>
+
+还有“把我们的克洛斯贝尔还回来！”</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这个知名度一般所以我没列举，上面三个太出名了
+

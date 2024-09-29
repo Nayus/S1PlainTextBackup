@@ -5710,3 +5710,14 @@ https://zelda.fandom.com/wiki/Anouki
 
 —— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  星花  
+##### 1133#       发表于 2024-9-29 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66338890&amp;ptid=2188108" target="_blank">woui003woui 发表于 2024-9-29 13:05</a>
+
+卡在冰迷宫第一个boss战了，半小时没研究出来这玩意吃啥伤害，加上德库树那边食人花打了10分钟才想起来让它 ...</blockquote>
+那个喷冰的雕像。
+

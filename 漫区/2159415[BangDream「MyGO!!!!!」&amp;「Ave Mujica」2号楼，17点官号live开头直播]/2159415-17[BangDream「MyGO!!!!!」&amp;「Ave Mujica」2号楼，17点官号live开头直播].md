@@ -266,3 +266,11 @@ shuzuku我求求你别画了
 【BanG Dream! It's MyGO!!!!! 祥子视角-哔哩哔哩】 [https://b23.tv/sjKKshd](https://b23.tv/sjKKshd)
 百看不厌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 23702#       发表于 2024-9-29 14:12
+
+【佐佐木李子 翻唱「One Last Kiss」】 [https://www.bilibili.com/video/BV12HsfeFE7b](https://www.bilibili.com/video/BV12HsfeFE7b)
+

@@ -326,3 +326,18 @@
 
 虽然每次Q娃男主要意识到自己的感情都必须找个路人妹当炮灰这点很不喜欢，太老套了，不过这次的炮灰好歹没有露脸也没有多余的戏份，和之前两次的处理比起来算是好很多了。派Q什么鬼还专门画大篇幅去描写那个一次性角色（而且人设可爱到作为一次性角色浪费的程度），茶几更甚，竟然把她算在同班的常驻之一。
 
+
+*****
+
+####  pokemon最爱  
+##### 2257#       发表于 2024-9-29 10:25
+
+本集超展开：悟哥关键时候怂了，然后被咩咩卖了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hisousihou  
+##### 2258#       发表于 2024-9-29 10:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">彩羽的角色塑造约等于没有，太平面了。这告白回能挽回多少呢
+

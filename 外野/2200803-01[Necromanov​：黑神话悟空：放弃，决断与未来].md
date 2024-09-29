@@ -2279,3 +2279,34 @@ https://bbs.saraba1st.com/2b/thread-2198959-0-1.html</blockquote><blockquote>类
 虽然懂了你意思，但是沙奈朵是打特攻的啊，强化自己也是特攻</blockquote>
 特攻不知道怎么描述能形象起来，还是达令你浑身上下都是结实的muscle有画面感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卡普空  
+##### 188#       发表于 2024-9-29 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66298574&amp;ptid=2200803" target="_blank">五块 发表于 2024-9-25 10:53</a>
+
+怪猎这种真不能，你如果身边有平时不怎么玩单机的朋友就知道了。
+
+我一个lol钻石水平的同事，玩仁王怪猎 ...</blockquote>
+黑猴轮椅太多了，每个人都能摸索出适合自己的轮椅
+
+什么毛毛流，隐身流，冰冻流
+
+*****
+
+####  卡普空  
+##### 189#       发表于 2024-9-29 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66298913&amp;ptid=2200803" target="_blank">咸鱼无双 发表于 2024-9-25 11:20</a>
+
+我看不懂这个论证
+
+先说买断制三a难度高，盘子小，跟服务性游戏做对比
+
+然后说新游戏一旦成功可以带来巨大收 ...</blockquote>
+服务性游戏有排他性的，同一时间火了一个其他游戏就要吃瘪，因为活跃玩家总量是不变的
+
+买断型单机游戏刚好相反，它吃的是总玩家存量，其实是可以长卖的，受竞品影响也不会有服务型游戏那么大
+

@@ -5918,3 +5918,16 @@ syl，应该不会只有我在玩了几十个小时后才知道按+跳过冰沙�
 
 芒果+各种（除了自己和岩盐）都是稳定回15血+对应buff
 
+
+*****
+
+####  mggr  
+##### 1151#       发表于 2024-9-29 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66341101&amp;ptid=2188108" target="_blank">库德里尔 发表于 2024-9-29 17:10</a>
+
+如果你的血量上限还在10以下：
+
+葡萄+花蜜=回10血</blockquote>
+谢谢~zsbd
+

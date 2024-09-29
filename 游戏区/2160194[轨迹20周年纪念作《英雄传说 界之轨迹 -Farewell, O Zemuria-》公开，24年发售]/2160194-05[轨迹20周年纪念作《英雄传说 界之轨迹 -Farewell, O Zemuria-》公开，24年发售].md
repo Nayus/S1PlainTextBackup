@@ -1166,3 +1166,25 @@ jdk live  tgs day2
 塞尔达快玩完了，在考虑要不要直接玩界轨了。所以整体剧情音乐玩法来说比黎2如何，如果没有黎2那种烂活我就 ...</blockquote>
 界轨最大问题是他不是黎2
 
+
+*****
+
+####  ravend233  
+##### 6037#       发表于 2024-9-29 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66339117&amp;ptid=2160194" target="_blank">haru橙子 发表于 2024-9-29 13:34</a>
+
+这是哪方面不行了</blockquote>
+首先确定这部是断章了，然后就是流程太长，而且充满了通马桶支线，从流程设计上不如黎2
+
+但是料和活是比黎2要多的
+
+*****
+
+####  KevinGraham  
+##### 6038#       发表于 2024-9-29 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66339112&amp;ptid=2160194" target="_blank">仲可怀 发表于 2024-9-29 13:34</a>
+比黎轨2各方面都要好很多 剧情本身没啥问题 人物也都在线 坑填了不少 主要问题还是注水严重 而且挺明显的 ...</blockquote>
+马桶确实太多了，我和我的同学都已经开始放弃一些npc和支线了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

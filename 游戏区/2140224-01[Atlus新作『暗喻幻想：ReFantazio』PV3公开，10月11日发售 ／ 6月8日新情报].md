@@ -3628,3 +3628,16 @@ hard都咋打的，山洞里那个火龙喷火球克探索者，都切剑士有�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">话说，这”act“上限能不能磨死高难度的敌人？就嗯砍+翻滚这么搞
 
+
+*****
+
+####  nightomorrow  
+##### 1054#       发表于 2024-9-30 01:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66344552&amp;ptid=2140224" target="_blank">纯粹理性人 发表于 2024-9-30 01:51</a>
+话说，这”act“上限能不能磨死高难度的敌人？就嗯砍+翻滚这么搞</blockquote>
+理论上可以<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+【【暗喻幻想】开局砍死沙魔虫会怎么样-哔哩哔哩】 https://www.bilibili.com/video/av113197671584363
+
+—— 来自 HUAWEI BRA-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

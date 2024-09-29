@@ -5663,3 +5663,13 @@ https://zelda.fandom.com/wiki/Anouki
 
 水迷宫也没非常简单吧，前置任务长迷宫简单点可以接受
 
+
+*****
+
+####  macos  
+##### 1128#       发表于 2024-9-29 12:36
+
+乐高塞尔达
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

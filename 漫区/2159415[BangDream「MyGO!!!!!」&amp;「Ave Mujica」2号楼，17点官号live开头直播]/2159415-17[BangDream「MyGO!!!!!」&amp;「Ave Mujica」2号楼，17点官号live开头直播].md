@@ -244,3 +244,16 @@ shuzuku我求求你别画了
 这水平负责一个12万粉乐队的美术
 他有这个能力吗<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  斑驳的阴影  
+##### 23700#       发表于 2024-9-29 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66331663&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-9-28 16:56</a>
+
+这哪里关系性了……虽然不那么直白，但无非是再说邦多利最重要的音乐追求
+
+完整动画完整故事中间播了一半然 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不得不冒出一句 纯度，有用吗.jpg
+

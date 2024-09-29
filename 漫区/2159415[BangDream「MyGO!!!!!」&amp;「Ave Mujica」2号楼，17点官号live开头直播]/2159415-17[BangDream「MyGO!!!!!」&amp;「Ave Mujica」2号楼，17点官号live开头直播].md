@@ -314,3 +314,15 @@ shuzuku我求求你别画了
 
 <img src="https://p.sda1.dev/19/edbd18e56d3e4a62ab4899a75030d05d/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nebulanoby  
+##### 23708#       发表于 2024-9-30 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66338466&amp;ptid=2159415" target="_blank">滑稽Captain 发表于 2024-9-29 12:21</a>
+shuzuku我求求你别画了</blockquote>
+信泽：让你们对我不满<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

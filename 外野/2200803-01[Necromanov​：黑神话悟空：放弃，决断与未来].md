@@ -2519,3 +2519,36 @@ https://bbs.saraba1st.com/2b/thread-2198959-0-1.html</blockquote><blockquote>类
 不会是腾讯的ibd部门吧？除了这个我想不出腾讯有别的部门要进行这样的商业和技术分析了 ...</blockquote>
 确实不知道叫啥，反正他自己的公司关门后不做研发很多年了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Lacsiess  
+##### 209#       发表于 2024-9-29 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66340195&amp;ptid=2200803" target="_blank">百损道人 发表于 2024-9-29 15:31</a>
+
+你这个论点是典型的“会者不难难者不会”陷阱，浸淫PC游戏的老屁股当然熟悉这点硬件知识，但是这里讨论的 ...</blockquote>
+不对啊,几十块钱的电竞鼠标都是这个水准......而这类鼠标广告在游戏视频里满地都是,人人都能看见,根本不用知道是啥传感器
+
+*****
+
+####  Lacsiess  
+##### 210#       发表于 2024-9-29 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66340278&amp;ptid=2200803" target="_blank">FROST1997 发表于 2024-9-29 15:39</a>
+
+那有没有啥相对好用的鼠标？</blockquote>
+所有国产89的电竞鼠标,统一都是3395传感器+GPW外形,手感应该基本一致~~~我自己是手柄党
+
+*****
+
+####  Lacsiess  
+##### 211#       发表于 2024-9-29 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66340811&amp;ptid=2200803" target="_blank">谢云流 发表于 2024-9-29 16:39</a>
+
+作为左撇子还是要说国产同模再怎么卷还是不如原版gpw可以换侧键位置来得实际
+
+—— 来自 vivo V2337A, An ...</blockquote>
+╮(￣▽￣")╭你这需求真的有点少.......我也在抱怨国货没有3395以上的六侧键MMO鼠标呢
+

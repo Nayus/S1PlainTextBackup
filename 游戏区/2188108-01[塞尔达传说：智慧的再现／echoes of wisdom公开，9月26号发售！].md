@@ -5943,3 +5943,13 @@ syl，应该不会只有我在玩了几十个小时后才知道按+跳过冰沙�
 
 可是怎么随随便便就被骑士大哥用旋风斩带走了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 1153#       发表于 2024-9-29 18:36
+
+冰迷宫真棒啊，有老塞尔达那个味了，可惜确实能看出简化了不少，如果按照老塞尔达的设计思路，这个迷宫上限应该可以堪比假面海神殿，是做进3Ｄ塞里也很优秀的迷宫
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -1386,3 +1386,21 @@ jdk live  tgs day2
 作为NPC爱好者，比黎2闪2还是强多了。黎2闪2的最大问题还是大部分NPC的故事线在前作就已经完结了，到了第二 ...</blockquote>
 同意，这次各种角色互动还是挺乐的
 
+
+*****
+
+####  jacket  
+##### 6054#       发表于 2024-9-29 18:10
+
+有个波浪头的妹子叫メリナ
+
+
+*****
+
+####  saberserker  
+##### 6055#       发表于 2024-9-29 18:12
+
+ 本帖最后由 saberserker 于 2024-9-29 18:14 编辑 
+
+3作了法老控还没整利索PS5版，放技能还是掉帧，对比下PS4版明显流畅多了，还装模作样弄了个30帧的画质模式，就问你这游戏有画质吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -3686,3 +3686,22 @@ hard都咋打的，山洞里那个火龙喷火球克探索者，都切剑士有�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  战术核辣条  
+##### 1059#       发表于 2024-9-30 07:43
+
+不用guard大家都挺脆的，基本是一刀大半两刀死，不知道耐上来之后会不会能抗一点
+
+后排物理减伤也有一种不是很多的感觉
+
+*****
+
+####  superlink  
+##### 1060#       发表于 2024-9-30 07:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">我倒希望正式版时间别限制的太死
+
+—— 来自 vivo V2304A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -6478,3 +6478,34 @@ syl，应该不会只有我在玩了几十个小时后才知道按+跳过冰沙�
 
 <img src="https://p.sda1.dev/19/4c6de6f1cbc8dea55b6bcfb6613cd729/image.jpg" referrerpolicy="no-referrer">不想打那些小游戏  奖励都啥啊
 
+
+*****
+
+####  xiedua  
+##### 1204#       发表于 2024-9-30 07:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66340739&amp;ptid=2188108" target="_blank">就是剑鞘 发表于 2024-9-29 16:31</a>
+冰沙搭配会显示结果太可恶了
+
+为了填空，明知会出怪冰沙也不得不做
+
+syl，应该不会只有我在玩了几十个小时后 ...</blockquote>
+谢谢学到了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  库德里尔  
+##### 1205#       发表于 2024-9-30 07:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66344872&amp;ptid=2188108" target="_blank">shinnfin 发表于 2024-9-30 07:29</a>
+不想打那些小游戏  奖励都啥啊</blockquote>
+摘芒果小游戏：一个黄金扇子 一个舞娘服
+捡橡子小游戏：在山地上的游戏有一个大夹子
+骑马小游戏：一个八音盒
+睡眠道场：一把武士刀，一些饰品和衣服
+其他小游戏不记得了 支线任务不算
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

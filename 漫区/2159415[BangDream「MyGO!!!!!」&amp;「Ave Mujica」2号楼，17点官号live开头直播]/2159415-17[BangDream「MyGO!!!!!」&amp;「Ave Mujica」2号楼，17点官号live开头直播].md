@@ -298,3 +298,11 @@ shuzuku我求求你别画了
 
 如果等久一點立繪有土的質量的話，那我可以再等等<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 23706#       发表于 2024-9-29 22:02
+
+先把期待降低到3rd的新东西就是ether的mv（
+

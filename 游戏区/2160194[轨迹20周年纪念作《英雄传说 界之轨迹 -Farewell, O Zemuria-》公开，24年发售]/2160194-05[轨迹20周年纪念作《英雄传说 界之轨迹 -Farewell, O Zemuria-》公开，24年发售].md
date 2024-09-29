@@ -1524,3 +1524,21 @@ jdk live  tgs day2
 
 —— 来自 realme RMX3708, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Squall25  
+##### 6067#       发表于 2024-9-29 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66342637&amp;ptid=2160194" target="_blank">windtrack_qh 发表于 2024-9-29 20:20</a>
+问一下庭院抽奖的晶石更新吗，到了第一章工坊都出3了，庭院还是只能抽1，要不要攒着等以后抽？ ...</blockquote>
+最好最后抽，性价比最高。高级回路数目限定，但好过没有。
+
+
+*****
+
+####  jacket  
+##### 6068#       发表于 2024-9-29 22:05
+
+这大统领桌上三张照片就离谱，从右到左我以为全是一家三口，仔细看才反应过来是老牛吃嫩草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

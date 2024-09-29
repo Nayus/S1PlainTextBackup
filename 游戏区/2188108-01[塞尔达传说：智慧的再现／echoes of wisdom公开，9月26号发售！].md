@@ -6197,3 +6197,35 @@ syl，应该不会只有我在玩了几十个小时后才知道按+跳过冰沙�
 这作是跟织梦岛一样帧数会30,60变动么？</blockquote>
 掉帧变本加厉了
 
+
+*****
+
+####  就是剑鞘  
+##### 1179#       发表于 2024-9-29 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66343201&amp;ptid=2188108" target="_blank">ColAMK 发表于 2024-9-29 21:47</a>
+
+远古森林的剧情要怎么解锁 是主线还是支线？</blockquote>
+主线最后
+
+*****
+
+####  lilod  
+##### 1180#       发表于 2024-9-29 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66343215&amp;ptid=2188108" target="_blank">Asukalangley33 发表于 2024-9-29 21:49</a>
+
+卡带还没到
+
+这作是跟织梦岛一样帧数会30,60变动么？</blockquote>
+会掉~，不过这几乎是这个游戏唯一的缺点
+
+*****
+
+####  就是剑鞘  
+##### 1181#       发表于 2024-9-29 22:01
+
+全收集咯
+
+就是不知道图鉴还差多少
+

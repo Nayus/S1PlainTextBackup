@@ -6096,3 +6096,32 @@ syl，应该不会只有我在玩了几十个小时后才知道按+跳过冰沙�
 
 震动能关掉吗
 
+
+*****
+
+####  就是剑鞘  
+##### 1169#       发表于 2024-9-29 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66343066&amp;ptid=2188108" target="_blank">东京打工妹 发表于 2024-9-29 21:22</a>
+
+渔村的猫想给主人喝的那个冰沙是什么啊，怎么调</blockquote>
+去问绿洲的冰沙小贩
+
+
+*****
+
+####  KOS-MOS_Refrain  
+##### 1170#       发表于 2024-9-29 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66343066&amp;ptid=2188108" target="_blank">东京打工妹 发表于 2024-9-29 21:22</a>
+
+渔村的猫想给主人喝的那个冰沙是什么啊，怎么调</blockquote>
+暖暖综合特调，辣椒+牛奶或者葡萄+辣椒
+
+*****
+
+####  lilod  
+##### 1171#       发表于 2024-9-29 21:35
+
+这次赛马小游戏还挺难，需要活用能力
+

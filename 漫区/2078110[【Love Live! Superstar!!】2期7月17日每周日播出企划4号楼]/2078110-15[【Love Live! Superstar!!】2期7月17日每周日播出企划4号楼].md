@@ -1526,3 +1526,14 @@ ll要日剧化？这算半个新团不？
 
 <img src="https://p.sda1.dev/19/c0213e8068ea86a6f7ac0ed1d7e9114f/QQ截图20240929230207.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csolfans  
+##### 21103#       发表于 2024-9-29 23:22
+
+<img src="https://p.sda1.dev/19/99f910a8bbad5198af04492139bdd313/CMP_20240929232154825.jpg" referrerpolicy="no-referrer">
+哇 yabu你
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

@@ -6275,3 +6275,41 @@ syl，应该不会只有我在玩了几十个小时后才知道按+跳过冰沙�
 我觉得这个解法有点傻但想 ...</blockquote>
 放个石像然后同步不就好了
 
+
+*****
+
+####  woui003woui  
+##### 1187#       发表于 2024-9-29 23:18
+
+ 本帖最后由 woui003woui 于 2024-9-29 23:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66343680&amp;ptid=2188108" target="_blank">Stephen9755 发表于 2024-9-29 23:06</a>
+放个石像然后同步（
+
+放两个石像然后让他们同步（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一开始我是做两个调整同步的
+解到第三次的时候：我为什么要在一边看着来着
+为什么只是看着
+
+*****
+
+####  就是剑鞘  
+##### 1188#       发表于 2024-9-29 23:20
+
+再见了，所有的智慧
+
+100%收工封盘，等朋友的盘到了再去狠狠指导
+
+真是一次愉快的游玩，不禁让人想鼓起勇气把王泪通关
+
+*****
+
+####  aaronluray  
+##### 1189#       发表于 2024-9-29 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66343660&amp;ptid=2188108" target="_blank">woui003woui 发表于 2024-9-29 23:03</a>
+
+同步机关除了做个巡逻的石像等它快踩上去的时候跳另一块以外，有没有别的解法啊
+
+我觉得这个解法有点傻但想 ...</blockquote>
+我觉得我大部分时候的解法也挺傻的，先生成两个桌子丢上面，然后再把场景给的石头摆上面，再同时取消复制<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

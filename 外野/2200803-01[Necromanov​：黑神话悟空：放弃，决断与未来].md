@@ -2452,3 +2452,26 @@ https://bbs.saraba1st.com/2b/thread-2198959-0-1.html</blockquote><blockquote>类
 3395以上传感器的鼠标随便买一个试手不满七天无理由就行了,模具全是高仿GPW或者雷蛇,几十块钱一个,黑猴子 ...</blockquote>
 那有没有啥相对好用的鼠标？
 
+
+*****
+
+####  osborn  
+##### 203#       发表于 2024-9-29 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66306854&amp;ptid=2200803" target="_blank">fn_herstal 发表于 2024-9-26 02:45</a>
+
+啊擦，别说内裤门的文章看多了确实是这个感觉
+
+他老想拿着一个成功大作论证游戏行业有五德终始天理循环，结 ...</blockquote>
+哈哈哈是这样的。其他评测人的确都会从各个角度论证也好，带情绪也好，唯独他内裤门还拉一大堆数据搞得好像巨客观，其实依然是标准的倒果为因，辉格史观<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但作为电子榨菜看的还是爽的
+
+*****
+
+####  一色いろは  
+##### 204#       发表于 2024-9-29 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66339970&amp;ptid=2200803" target="_blank">mandown 发表于 2024-9-29 15:12</a>
+
+内裤门在腾讯哪个部门？天美吗？</blockquote>
+不在研发部门吧，大概在什么分析部门，主楼内容其实都是他工作内容的边角料了
+

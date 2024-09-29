@@ -5562,3 +5562,16 @@ https://zelda.fandom.com/wiki/Anouki
 
 远方的FF10：
 
+
+*****
+
+####  TriSPD  
+##### 1118#       发表于 2024-9-29 08:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66335588&amp;ptid=2188108" target="_blank">Waldeinsamkeit 发表于 2024-9-29 01:34</a>
+
+跑马跑了快半小时，终于跑进16.99
+
+远方的FF10：</blockquote>
+骑马的时候可以究极手偷鸡，直接把障碍物挪走
+

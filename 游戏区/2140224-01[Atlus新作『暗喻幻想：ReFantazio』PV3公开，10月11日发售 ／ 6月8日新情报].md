@@ -3620,3 +3620,11 @@ hard都咋打的，山洞里那个火龙喷火球克探索者，都切剑士有�
 
 还有就是注意队友的位置要前后错位，不然吃不住火龙的扫尾AOE。
 
+
+*****
+
+####  纯粹理性人  
+##### 1053#       发表于 2024-9-30 01:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">话说，这”act“上限能不能磨死高难度的敌人？就嗯砍+翻滚这么搞
+

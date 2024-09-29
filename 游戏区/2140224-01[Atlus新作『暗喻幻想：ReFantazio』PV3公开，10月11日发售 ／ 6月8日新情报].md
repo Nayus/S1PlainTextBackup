@@ -3516,3 +3516,25 @@ hard都咋打的，山洞里那个火龙喷火球克探索者，都切剑士有�
 
 这作有感情线吗
 
+
+*****
+
+####  bwsusaga  
+##### 1043#       发表于 2024-9-29 11:50
+
+试玩版有5个黄金虫呃，牛头人还会概率掉一个不错的+力饰品。
+
+重开了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+发现生锈物鉴定是随机的……
+
+*****
+
+####  bwsusaga  
+##### 1044#       发表于 2024-9-29 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66336895&amp;ptid=2140224" target="_blank">全装甲夏亚 发表于 2024-9-29 09:50</a>
+
+hard都咋打的，山洞里那个火龙喷火球克探索者，都切剑士有火抗但是回血跟不上，切easy才打过。话说这游戏技 ...</blockquote>
+火龙就让剑士抗，主角和老头转法师后排扔冰就好了。很简单
+

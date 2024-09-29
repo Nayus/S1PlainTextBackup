@@ -143,3 +143,11 @@ COD的战区作为BR也是往强调战战战的方向改，恨不得从头打到
 
 玩了一晚上，没人会开直升机，一堆起飞就坠毁的<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">开小鸟疯狂捞薯条
 
+
+*****
+
+####  zip7770  
+##### 61#       发表于 2024-9-29 14:02
+
+大意了，Wegame飚的是是绿血啊
+

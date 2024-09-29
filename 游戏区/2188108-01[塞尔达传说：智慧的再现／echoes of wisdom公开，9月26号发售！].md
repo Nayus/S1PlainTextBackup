@@ -5700,3 +5700,13 @@ https://zelda.fandom.com/wiki/Anouki
 
 这作有加快跑步速度的饰品吗？
 
+
+*****
+
+####  秋月孝三  
+##### 1132#       发表于 2024-9-29 14:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">公主床硬抗暴风雪，不愧是床之勇者
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

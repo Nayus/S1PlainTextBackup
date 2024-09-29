@@ -5721,3 +5721,18 @@ https://zelda.fandom.com/wiki/Anouki
 卡在冰迷宫第一个boss战了，半小时没研究出来这玩意吃啥伤害，加上德库树那边食人花打了10分钟才想起来让它 ...</blockquote>
 那个喷冰的雕像。
 
+
+*****
+
+####  Yidam  
+##### 1134#       发表于 2024-9-29 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66336889&amp;ptid=2188108" target="_blank">新HGCG 发表于 2024-9-29 09:50</a>
+
+打到了
+
+也就是说不用剑的话就只有宝可梦和松鼠大战两用攻击方式对吧
+
+不过宝可梦的螃蟹感觉挺好用啊，主要 ...</blockquote>
+也可以究极手直接地形杀，后面解锁水块，怪拉进去直接秒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

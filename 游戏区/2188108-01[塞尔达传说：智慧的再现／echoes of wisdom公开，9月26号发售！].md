@@ -5601,3 +5601,18 @@ https://zelda.fandom.com/wiki/Anouki
 
 塞尔达站在温泉里回血会闭眼轻哼
 
+
+*****
+
+####  新HGCG  
+##### 1122#       发表于 2024-9-29 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66334834&amp;ptid=2188108" target="_blank">黑夜守望者 发表于 2024-9-28 23:10</a>
+
+后面会解锁变成林克，能用林克的武器直接攻击</blockquote>
+打到了
+
+也就是说不用剑的话就只有宝可梦和松鼠大战两用攻击方式对吧
+
+不过宝可梦的螃蟹感觉挺好用啊，主要是移动速度快
+

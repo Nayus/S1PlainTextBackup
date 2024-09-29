@@ -5953,3 +5953,23 @@ syl，应该不会只有我在玩了几十个小时后才知道按+跳过冰沙�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  祆天发育不良  
+##### 1154#       发表于 2024-9-29 18:52
+
+才开始玩，各种系统感觉吃了好多王泪的遗产
+2d塞一开始就能跳的是不是第一次来着
+
+*****
+
+####  一个陆仁贾  
+##### 1155#       发表于 2024-9-29 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66340868&amp;ptid=2188108" target="_blank">我在干什么啊 发表于 2024-9-29 16:44</a>
+马有些地方胡萝卜叫不到吧</blockquote>
+单一方向的话，吹风筒，地上能旋转那个刀
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

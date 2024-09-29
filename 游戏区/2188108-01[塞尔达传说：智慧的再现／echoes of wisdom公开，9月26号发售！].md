@@ -6393,3 +6393,13 @@ syl，应该不会只有我在玩了几十个小时后才知道按+跳过冰沙�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  一个陆仁贾  
+##### 1197#       发表于 2024-9-30 00:48
+
+能选择的召唤物太多真的很容易忘，拿到爬墙蜘蛛结果忘了它的用途，在某个拿前的山洞里左脚踩右脚叠上去拿钱。关游戏后洗澡是才突然想起这东西<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

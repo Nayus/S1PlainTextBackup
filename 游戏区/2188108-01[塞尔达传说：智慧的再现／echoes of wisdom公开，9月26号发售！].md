@@ -5626,3 +5626,14 @@ https://zelda.fandom.com/wiki/Anouki
 到还剑的选项了，直觉告诉我后面就是最终战了，回去重新舔图补收集了，掉帧习惯后虽然还是挺难绷但是能忍受 ...</blockquote>
 后期直接按L再按+进图鉴选了，反正都是时停的，左右划还不如直接进图鉴找
 
+
+*****
+
+####  anfangzhan  
+##### 1124#       发表于 2024-9-29 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66336628&amp;ptid=2188108" target="_blank">苍蓝之枪 发表于 2024-9-29 09:22</a>
+
+到还剑的选项了，直觉告诉我后面就是最终战了，回去重新舔图补收集了，掉帧习惯后虽然还是挺难绷但是能忍受 ...</blockquote>
+按选择顺序排序和直接从图鉴里选定结合感觉可以缓解一点
+

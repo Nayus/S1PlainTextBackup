@@ -3546,3 +3546,14 @@ hard都咋打的，山洞里那个火龙喷火球克探索者，都切剑士有�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">试玩打了个开局，只能说质量跟不上宣发带来的预期，拉低预期玩起来反而还行。另外altus这ui元素已经堆砌到杂乱无章让人不适的地步了，搞得整个屏幕又脏又乱
 
+
+*****
+
+####  kalavinka  
+##### 1046#       发表于 2024-9-29 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66336895&amp;ptid=2140224" target="_blank">全装甲夏亚 发表于 2024-9-29 09:50</a>
+
+hard都咋打的，山洞里那个火龙喷火球克探索者，都切剑士有火抗但是回血跟不上，切easy才打过。话说这游戏技 ...</blockquote>
+切一个法师在后排打冰weak，2剑士狂砍就行了，没血就吃药，不是2发攻击连续点法师基本不会翻车<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

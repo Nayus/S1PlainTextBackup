@@ -3557,3 +3557,14 @@ hard都咋打的，山洞里那个火龙喷火球克探索者，都切剑士有�
 hard都咋打的，山洞里那个火龙喷火球克探索者，都切剑士有火抗但是回血跟不上，切easy才打过。话说这游戏技 ...</blockquote>
 切一个法师在后排打冰weak，2剑士狂砍就行了，没血就吃药，不是2发攻击连续点法师基本不会翻车<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  otaku21126  
+##### 1047#       发表于 2024-9-29 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66338059&amp;ptid=2140224" target="_blank">拎壶冲_ 发表于 2024-9-29 11:36</a>
+这作有感情线吗</blockquote>
+我猜atlus充分吸取了P5R的经验，为防止增强版的追加女角色在无印内容里融入度不够导致炎上，干脆把恋爱剧情直接全部移入增强版的新增流程中
+干完了本篇的正事再谈恋爱，这下玩家们不能再骂增强版女角是女路人了吧<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
+

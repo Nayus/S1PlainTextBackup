@@ -6313,3 +6313,11 @@ syl，应该不会只有我在玩了几十个小时后才知道按+跳过冰沙�
 我觉得这个解法有点傻但想 ...</blockquote>
 我觉得我大部分时候的解法也挺傻的，先生成两个桌子丢上面，然后再把场景给的石头摆上面，再同时取消复制<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lilod  
+##### 1190#       发表于 2024-9-29 23:38
+
+这代的 OST 相当的好，也许可能是 2D 塞里最好的
+

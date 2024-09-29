@@ -1375,3 +1375,14 @@ jdk live  tgs day2
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
 
+
+*****
+
+####  pf67  
+##### 6053#       发表于 2024-9-29 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66340240&amp;ptid=2160194" target="_blank">nekomimimisuzu 发表于 2024-9-29 15:35</a>
+
+作为NPC爱好者，比黎2闪2还是强多了。黎2闪2的最大问题还是大部分NPC的故事线在前作就已经完结了，到了第二 ...</blockquote>
+同意，这次各种角色互动还是挺乐的
+

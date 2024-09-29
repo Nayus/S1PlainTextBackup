@@ -243,3 +243,30 @@
 
 还有咩咩好惨
 
+
+*****
+
+####  himfsz  
+##### 2249#       发表于 2024-9-29 07:57
+
+不对，原来咩咩是得不到就毁掉吗？
+
+*****
+
+####  jaewoongh_  
+##### 2250#       发表于 2024-9-29 08:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66336056&amp;ptid=2162354" target="_blank">himfsz 发表于 2024-9-29 07:48</a>
+
+真由你好烦啊，是我的话就要向你告白把你尴尬死
+
+还有四眼仔要告白的话我没意见，你留到结局吧，剩下的集数 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">还是你的思路更变态一些
+
+*****
+
+####  jaewoongh_  
+##### 2251#       发表于 2024-9-29 08:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">笔记回未免做得也太精细了，而且下集预告看起来质量也不低
+

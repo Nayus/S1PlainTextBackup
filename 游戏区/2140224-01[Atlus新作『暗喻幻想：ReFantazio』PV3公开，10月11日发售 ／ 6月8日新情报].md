@@ -3423,3 +3423,11 @@ demo打完了 在牛头人那里把自己练级练高了 结果砍瓜切菜了<i
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">发售日期完美错过国庆假期啊，国庆先摸摸demo试试水
 
+
+*****
+
+####  我是谁无名氏  
+##### 1033#       发表于 2024-9-29 08:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">PS5韩中比steam都低，心动想预购了，日版demo也有中文，日版正式版也会带中文吗，闲鱼上已经有260的日版实体了
+

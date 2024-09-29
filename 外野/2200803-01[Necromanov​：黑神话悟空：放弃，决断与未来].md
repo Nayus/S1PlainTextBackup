@@ -2431,3 +2431,24 @@ https://bbs.saraba1st.com/2b/thread-2198959-0-1.html</blockquote><blockquote>类
 3395以上传感器的鼠标随便买一个试手不满七天无理由就行了,模具全是高仿GPW或者雷蛇,几十块钱一个,黑猴子 ...</blockquote>
 你这个论点是典型的“会者不难难者不会”陷阱，浸淫PC游戏的老屁股当然熟悉这点硬件知识，但是这里讨论的要点不是那些被黑神话破圈吸引来的很少甚至首次接触PC游戏的人吗？
 
+
+*****
+
+####  修罗王  
+##### 201#       发表于 2024-9-29 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66339652&amp;ptid=2200803" target="_blank">Lacsiess 发表于 2024-9-29 14:38</a>
+
+您也许没关注国货鼠标最近两年卷到了什么程度</blockquote>
+拿960玩黑神话的都一堆，很多人连鼠标可以有侧键这种概念都没有，看到新手教程翔虫需要用侧键第一反应不是淘宝上买个鼠标，而是“什么sb游戏我回去玩lol了”
+
+*****
+
+####  FROST1997  
+##### 202#       发表于 2024-9-29 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66339695&amp;ptid=2200803" target="_blank">Lacsiess 发表于 2024-9-29 14:43</a>
+
+3395以上传感器的鼠标随便买一个试手不满七天无理由就行了,模具全是高仿GPW或者雷蛇,几十块钱一个,黑猴子 ...</blockquote>
+那有没有啥相对好用的鼠标？
+

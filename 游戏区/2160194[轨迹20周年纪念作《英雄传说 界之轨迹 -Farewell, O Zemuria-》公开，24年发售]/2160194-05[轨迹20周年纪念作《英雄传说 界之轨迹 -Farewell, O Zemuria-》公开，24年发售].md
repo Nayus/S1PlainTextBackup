@@ -1489,3 +1489,21 @@ jdk live  tgs day2
 还有“把我们的克洛斯贝尔还回来！”</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这个知名度一般所以我没列举，上面三个太出名了
 
+
+*****
+
+####  八佾舞于潭  
+##### 6063#       发表于 2024-9-29 21:38
+
+闪3当年是被 lex 开团了吧
+
+*****
+
+####  八佾舞于潭  
+##### 6064#       发表于 2024-9-29 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66342931&amp;ptid=2160194" target="_blank">妄想中毒 发表于 2024-9-29 21:02</a>
+
+资料库的设计太蠢了，正常做法是在剧情对话里高亮关键词然后直接点击关键词进入资料库，而不是像现在这样必 ...</blockquote>
+能在对话中直接点击高亮关键词看说明的我也就在 Ar nosurge 里见过
+

@@ -6125,3 +6125,45 @@ syl，应该不会只有我在玩了几十个小时后才知道按+跳过冰沙�
 
 这次赛马小游戏还挺难，需要活用能力
 
+
+*****
+
+####  bird-lay  
+##### 1172#       发表于 2024-9-29 21:39
+
+急着看结局就先通关了，全收集慢慢来
+
+这次林塞的故事线我还挺喜欢的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Waldeinsamkeit  
+##### 1173#       发表于 2024-9-29 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66343131&amp;ptid=2188108" target="_blank">lilod 发表于 2024-9-29 21:35</a>
+这次赛马小游戏还挺难，需要活用能力</blockquote>
+不用能力硬跑也是可以过的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+硬跑短圈最难，中长圈我基本一次就能拿赛道大师
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lilod  
+##### 1174#       发表于 2024-9-29 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66343190&amp;ptid=2188108" target="_blank">Waldeinsamkeit 发表于 2024-9-29 21:46</a>
+
+不用能力硬跑也是可以过的
+
+硬跑短圈最难，中长圈我基本一次就能拿赛道大师</blockquote>
+意识到需要用能力就很快就过了（短圈我硬跑了很久。。。
+
+*****
+
+####  ColAMK  
+##### 1175#       发表于 2024-9-29 21:47
+
+远古森林的剧情要怎么解锁 是主线还是支线？
+

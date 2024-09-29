@@ -199,3 +199,11 @@ BO5的话，如果大厦放出来就幽默了<img src="https://static.saraba1st.
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  heseran  
+##### 4480#       发表于 2024-9-30 01:08
+
+G2下半场好不容易拿一分snax直接call个长枪飞b2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，再配合hunter的幽默带包冲，幽默完了啊G2，看好navi让二追三。
+

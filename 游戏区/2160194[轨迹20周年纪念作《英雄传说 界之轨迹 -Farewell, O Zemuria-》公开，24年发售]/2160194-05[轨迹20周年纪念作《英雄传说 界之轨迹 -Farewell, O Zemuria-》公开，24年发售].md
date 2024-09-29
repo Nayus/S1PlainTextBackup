@@ -1058,3 +1058,21 @@ ps4的轨迹中文日文存档都是互通的（只要不打dlc，dlc一致的�
 
 jdk live  tgs day2
 
+
+*****
+
+####  暗影吉他手  
+##### 6027#       发表于 2024-9-29 09:30
+
+一发入魂前女友
+
+<img src="https://img.saraba1st.com/forum/202409/29/092903vpwjmjf4w0wm64mf.jpg" referrerpolicy="no-referrer">
+
+<strong>1000000999.jpg</strong> (424.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-29 09:29 上传
+
+话说你法就不能把满大街发巨大手提袋的预算拨出来点给画师么orz
+

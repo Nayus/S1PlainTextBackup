@@ -2420,3 +2420,14 @@ https://bbs.saraba1st.com/2b/thread-2198959-0-1.html</blockquote><blockquote>类
 早倒了，他在鹅厂打工很多年了</blockquote>
 内裤门在腾讯哪个部门？天美吗？
 
+
+*****
+
+####  百损道人  
+##### 200#       发表于 2024-9-29 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66339695&amp;ptid=2200803" target="_blank">Lacsiess 发表于 2024-9-29 14:43</a>
+
+3395以上传感器的鼠标随便买一个试手不满七天无理由就行了,模具全是高仿GPW或者雷蛇,几十块钱一个,黑猴子 ...</blockquote>
+你这个论点是典型的“会者不难难者不会”陷阱，浸淫PC游戏的老屁股当然熟悉这点硬件知识，但是这里讨论的要点不是那些被黑神话破圈吸引来的很少甚至首次接触PC游戏的人吗？
+

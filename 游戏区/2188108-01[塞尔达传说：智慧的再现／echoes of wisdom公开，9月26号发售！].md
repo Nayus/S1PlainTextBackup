@@ -5736,3 +5736,14 @@ https://zelda.fandom.com/wiki/Anouki
 不过宝可梦的螃蟹感觉挺好用啊，主要 ...</blockquote>
 也可以究极手直接地形杀，后面解锁水块，怪拉进去直接秒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  woui003woui  
+##### 1135#       发表于 2024-9-29 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66339430&amp;ptid=2188108" target="_blank">星花 发表于 2024-9-29 14:10</a>
+
+那个喷冰的雕像。</blockquote>
+好的好的，一会儿招个冰法揍它
+

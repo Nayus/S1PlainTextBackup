@@ -5647,3 +5647,11 @@ https://zelda.fandom.com/wiki/Anouki
 
 图鉴里的位置是固定的，虽然多，但反而好找
 
+
+*****
+
+####  医生狼多  
+##### 1126#         楼主| 发表于 2024-9-29 11:21
+
+问题是±键按起来很不舒服<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">偶尔按一下还行，频繁用不太想
+

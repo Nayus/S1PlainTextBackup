@@ -6035,3 +6035,21 @@ syl，应该不会只有我在玩了几十个小时后才知道按+跳过冰沙�
 如果是我猜的那个的话。先锁定离你远的那个石头，丢到地势稍低的坑里</blockquote>
 究极手还能直接穿过前一个石头的吗，也太反直觉了
 
+
+*****
+
+####  八宫めぐる  
+##### 1162#       发表于 2024-9-29 20:25
+
+打到卓拉领地，最大的感触就是我看这左利坦大臣和卓夏也是风韵犹存
+
+*****
+
+####  aaronluray  
+##### 1163#       发表于 2024-9-29 20:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66342552&amp;ptid=2188108" target="_blank">莉可厨 发表于 2024-9-29 20:08</a>
+
+究极手还能直接穿过前一个石头的吗，也太反直觉了</blockquote>
+啊习惯了先锁定再同步的话，应该不会觉得反直觉吧？<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">这难道不是轻易就能接受的设定吗
+

@@ -1412,3 +1412,11 @@ jdk live  tgs day2
 
 比烂和闪3五五开，论性价比？那肯定闪3高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  windtrack_qh  
+##### 6057#       发表于 2024-9-29 20:20
+
+问一下庭院抽奖的晶石更新吗，到了第一章工坊都出3了，庭院还是只能抽1，要不要攒着等以后抽？
+

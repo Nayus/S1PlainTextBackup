@@ -6071,3 +6071,13 @@ syl，应该不会只有我在玩了几十个小时后才知道按+跳过冰沙�
 
 卡带终于到国内了，应该还有两天就能收到
 
+
+*****
+
+####  莉可厨  
+##### 1166#       发表于 2024-9-29 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66342693&amp;ptid=2188108" target="_blank">aaronluray 发表于 2024-9-29 20:27</a>
+啊习惯了先锁定再同步的话，应该不会觉得反直觉吧？这难道不是轻易就能接受的设定吗 ...</blockquote>
+横版情况下很难想到这一点吧，如果是俯视角3d我会直接换一个角度而不是改锁定目标
+

@@ -1499,3 +1499,20 @@ DLC你觉得是应该归类于持续服务型里么，我个人觉得还是买�
 
 黑猴爆卖之前谁敢说这投入卖千万的概率很大，泥潭销量预测都只敢做梦五百万<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  穿越护城河  
+##### 111#       发表于 2024-9-29 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66336012&amp;ptid=2200874" target="_blank">VictorWJ 发表于 2024-9-29 07:31</a>
+
+不管怎么质变也好，都是靠点子硬生生堆出来的。黑猴在这方面其实很像大刘，都是在一部作品里不计成本地挥洒 ...</blockquote>
+黑猴本质上就是一个破球甚至破球2式的游戏
+
+任何分析黑猴成功甚至大成功要素的玩意如果没把这个放到显著位置上，那也就是一篇不打逆风仗的东西罢了
+
+也顶多能糊弄一下那种不打游戏的投资人或者资本家
+
+但中国最恶劣的那种人偏偏真的是真的会打游戏的（比如许〇然那种）
+

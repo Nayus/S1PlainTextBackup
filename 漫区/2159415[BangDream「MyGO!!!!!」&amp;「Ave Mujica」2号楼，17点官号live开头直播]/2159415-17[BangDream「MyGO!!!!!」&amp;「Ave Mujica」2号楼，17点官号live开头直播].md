@@ -209,3 +209,29 @@
 
 这么一想还有点好磕了，丰川祥子某天刷视频看到美妆主播就觉得眼熟，后来想起是这个女人在盗摄！
 
+
+*****
+
+####  akiomn  
+##### 23697#       发表于 2024-9-29 12:16
+
+[https://www.bilibili.com/read/cv39202658](https://www.bilibili.com/read/cv39202658)
+
+柿本的剧场版访谈
+
+
+*****
+
+####  滑稽Captain  
+##### 23698#       发表于 2024-9-29 12:21
+
+shuzuku我求求你别画了
+
+<img src="https://img.saraba1st.com/forum/202409/29/121940iz7wmfhm139osws3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (113.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-29 12:19 上传
+

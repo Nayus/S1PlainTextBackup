@@ -6350,3 +6350,36 @@ syl，应该不会只有我在玩了几十个小时后才知道按+跳过冰沙�
 
 有人知道人马在哪里吗？
 
+
+*****
+
+####  aaronluray  
+##### 1194#       发表于 2024-9-30 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66344027&amp;ptid=2188108" target="_blank">我在干什么啊 发表于 2024-9-29 23:57</a>
+
+有人知道人马在哪里吗？</blockquote>
+远古森林，跟着地上的脚印走
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 我在干什么啊| + 1|好评加鹅|
+
+查看全部评分
+
+
+*****
+
+####  ParadiseMartyr  
+##### 1195#       发表于 2024-9-30 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66344027&amp;ptid=2188108" target="_blank">我在干什么啊 发表于 2024-9-29 23:57</a>
+有人知道人马在哪里吗？</blockquote>
+必须远古森林里跟着走完所有脚印，直接去最终地点人马刷不出来
+

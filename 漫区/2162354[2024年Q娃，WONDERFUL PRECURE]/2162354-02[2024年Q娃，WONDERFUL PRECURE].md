@@ -370,3 +370,17 @@
 
 当然按照东大妈的尿性，大概率下集俩人又因为什么事情哈哈过去了，但我还是希望看到这俩人在正片剧情里你侬我侬一下
 
+
+*****
+
+####  maoyou  
+##### 2262#       发表于 2024-9-29 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66339867&amp;ptid=2162354" target="_blank">天风绯炎 发表于 2024-9-29 15:02</a>
+终于有个不是木头的主了，我要看下集两人吃红豆饭（
+
+当然按照东大妈的尿性，大概率下集俩人又因为什么事情 ...</blockquote>
+其实还是不太行，除了狗组全在悟背后出力，，，
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

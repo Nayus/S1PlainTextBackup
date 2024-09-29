@@ -2398,3 +2398,25 @@ https://bbs.saraba1st.com/2b/thread-2198959-0-1.html</blockquote><blockquote>类
 
 话说，内裤门是不是自己就是手游公司老板？怎么好像从来看不到他宣传自己出品的手游
 
+
+*****
+
+####  一色いろは  
+##### 198#       发表于 2024-9-29 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66339884&amp;ptid=2200803" target="_blank">mandown 发表于 2024-9-29 15:04</a>
+
+话说，内裤门是不是自己就是手游公司老板？怎么好像从来看不到他宣传自己出品的手游 ...</blockquote>
+早倒了，他在鹅厂打工很多年了
+
+
+*****
+
+####  mandown  
+##### 199#       发表于 2024-9-29 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66339924&amp;ptid=2200803" target="_blank">一色いろは 发表于 2024-9-29 15:08</a>
+
+早倒了，他在鹅厂打工很多年了</blockquote>
+内裤门在腾讯哪个部门？天美吗？
+

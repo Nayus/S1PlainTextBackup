@@ -5816,3 +5816,49 @@ syl
 
 syl，应该不会只有我在玩了几十个小时后才知道按+跳过冰沙制作过程吧<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  beer  
+##### 1142#       发表于 2024-9-29 16:37
+
+是只能做料理，没有任何御寒衣服的吗？
+
+*****
+
+####  kuarwbwe  
+##### 1143#       发表于 2024-9-29 16:39
+
+冰沙能批量做吗？现在这样只能和野炊王泪一样一个个做好麻烦。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  莉可厨  
+##### 1144#       发表于 2024-9-29 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66340795&amp;ptid=2188108" target="_blank">beer 发表于 2024-9-29 16:37</a>
+是只能做料理，没有任何御寒衣服的吗？</blockquote>
+反正这作有床，血量有没有也差不多了。我五颗心直接把雪山开完了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  king520kyo  
+##### 1145#       发表于 2024-9-29 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66340795&amp;ptid=2188108" target="_blank">beer 发表于 2024-9-29 16:37</a>
+是只能做料理，没有任何御寒衣服的吗？</blockquote>
+我是直接举着蜡烛怪过的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这作衣服有特殊效果的就舞女 睡衣和猫猫服 感觉还是少了点
+
+*****
+
+####  我在干什么啊  
+##### 1146#       发表于 2024-9-29 16:44
+
+<blockquote>anfangzhan 发表于 2024-9-29 16:19
+有胡萝卜时可以骑马</blockquote>
+马有些地方胡萝卜叫不到吧
+

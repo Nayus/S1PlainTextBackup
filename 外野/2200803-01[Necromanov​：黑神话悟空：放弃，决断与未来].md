@@ -2496,3 +2496,15 @@ https://bbs.saraba1st.com/2b/thread-2198959-0-1.html</blockquote><blockquote>类
 内裤门死太监，就这几年出了钢火法这个替代品</blockquote>
 然后替代品自己也断更了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  谢云流  
+##### 207#       发表于 2024-9-29 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66339652&amp;ptid=2200803" target="_blank">Lacsiess 发表于 2024-9-29 14:38</a>
+您也许没关注国货鼠标最近两年卷到了什么程度</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">作为左撇子还是要说国产同模再怎么卷还是不如原版gpw可以换侧键位置来得实际
+
+—— 来自 vivo V2337A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -1575,3 +1575,11 @@ ll要日剧化？这算半个新团不？
 
 op3这衣服真丑啊。准备那么久设计出这种玩意<img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 21108#       发表于 2024-9-30 20:07
+
+这套衣服设计真不好看，单元三次元里做出来她们穿上身的效果会好看一些
+

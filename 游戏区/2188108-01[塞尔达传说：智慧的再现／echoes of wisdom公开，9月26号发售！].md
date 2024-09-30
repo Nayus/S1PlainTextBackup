@@ -6973,3 +6973,50 @@ LV.3蜥蜴：扔炸弹鱼，无限扔总能炸死
 
 火山的外围事件倒是还行
 
+
+*****
+
+####  库德里尔  
+##### 1246#       发表于 2024-9-30 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66350411&amp;ptid=2188108" target="_blank">DARK_HGCG 发表于 2024-9-30 20:02</a>
+篝火哪里学</blockquote>
+雪山上 随处可见
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  DARK_HGCG  
+##### 1247#       发表于 2024-9-30 20:16
+
+湿地的蜘蛛网是要用火烧的吧？但是下雨怎么办？貌似不是蛙的问题，附近应该没蛙
+
+*****
+
+####  莉可厨  
+##### 1248#       发表于 2024-9-30 20:16
+
+这游戏讲难听点只有冰迷宫算是有点设计的，其他的都是些什么玩意儿
+
+*****
+
+####  秋月孝三  
+##### 1249#       发表于 2024-9-30 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66350497&amp;ptid=2188108" target="_blank">DARK_HGCG 发表于 2024-9-30 20:16</a>
+湿地的蜘蛛网是要用火烧的吧？但是下雨怎么办？貌似不是蛙的问题，附近应该没蛙 ...</blockquote>
+下雨就是🐸的问题，不用怀疑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  莉可厨  
+##### 1250#       发表于 2024-9-30 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66350497&amp;ptid=2188108" target="_blank">DARK_HGCG 发表于 2024-9-30 20:16</a>
+
+湿地的蜘蛛网是要用火烧的吧？但是下雨怎么办？貌似不是蛙的问题，附近应该没蛙 ...</blockquote>
+林克的炸弹拿出来也会熄火，好像只有唯一解炸弹鱼，不知道还有没别的解法
+

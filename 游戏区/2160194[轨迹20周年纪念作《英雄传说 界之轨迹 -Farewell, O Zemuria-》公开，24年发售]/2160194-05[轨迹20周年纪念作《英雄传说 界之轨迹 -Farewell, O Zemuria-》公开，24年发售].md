@@ -1688,3 +1688,13 @@ jdk live  tgs day2
 
 噩梦难度目前的感觉就是物理伤害起不来，打那种回血的boss各种难受，比如第一章暗渠里的那个透明boss<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  椎名mahuyo  
+##### 6084#       发表于 2024-9-30 20:15
+
+跑到赌场区看到熟悉的东西，法老控你还记你双星2啊
+
+—— 来自 realme RMX3708, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

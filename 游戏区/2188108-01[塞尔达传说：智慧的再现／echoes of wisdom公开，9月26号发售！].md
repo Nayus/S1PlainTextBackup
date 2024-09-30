@@ -7224,3 +7224,14 @@ LV.3蜥蜴：扔炸弹鱼，无限扔总能炸死
 我怀疑还是附近有青蛙 ...</blockquote>
 不是晴天蛙就是普通的青蛙 只有个发声的作用
 
+
+*****
+
+####  king520kyo  
+##### 1270#       发表于 2024-10-1 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66351763&amp;ptid=2188108" target="_blank">RiesbyfeAtlasia 发表于 2024-9-30 23:50</a>
+
+不是晴天蛙就是普通的青蛙 只有个发声的作用</blockquote>
+草 原来那个不能晴天的啊 我只有刚复制的时候用了一次刚好晴天了 我以为就是晴天蛙了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

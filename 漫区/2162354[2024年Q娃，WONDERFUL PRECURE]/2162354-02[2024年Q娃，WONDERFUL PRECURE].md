@@ -476,3 +476,11 @@
 
 悟作为我方知情主要角色而且还有恋爱线掺在里面分走一定戏份是很正常的。
 
+
+*****
+
+####  久井路路  
+##### 2271#       发表于 2024-9-30 15:11
+
+主角是指谁啊，不会是小麦吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

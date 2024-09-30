@@ -7115,3 +7115,14 @@ LV.3蜥蜴：扔炸弹鱼，无限扔总能炸死
 从河卓拉领地传送点往南走，下了瀑布朝东拐。找不到的就推主线，主线迷宫大多数都有 ...</blockquote>
 谢谢
 
+
+*****
+
+####  林檎  
+##### 1260#       发表于 2024-9-30 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66350497&amp;ptid=2188108" target="_blank">DARK_HGCG 发表于 2024-9-30 20:16</a>
+
+湿地的蜘蛛网是要用火烧的吧？但是下雨怎么办？貌似不是蛙的问题，附近应该没蛙 ...</blockquote>
+这个蜘蛛网烧了有什么用么，今天到湿地区域烧了一个大蜘蛛网，好像什么也没有啊
+

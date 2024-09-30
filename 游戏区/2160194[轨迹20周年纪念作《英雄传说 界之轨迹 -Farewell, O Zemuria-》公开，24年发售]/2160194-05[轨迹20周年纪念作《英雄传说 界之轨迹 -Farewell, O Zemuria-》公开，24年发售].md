@@ -1724,3 +1724,13 @@ jdk live  tgs day2
 
 奖池目录要是有个别项目的所持数量就好了，全收集不太好判断奖池清空没有
 
+
+*****
+
+####  Squall25  
+##### 6088#       发表于 2024-9-30 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66350834&amp;ptid=2160194" target="_blank">妄想中毒 发表于 2024-9-30 21:14</a>
+大总统房间的3张照片看起来好像是村上画的？</blockquote>
+那个明显是也画了黎2和伊苏10的新画师
+

@@ -473,3 +473,19 @@ https://bbs.yamibo.com/thread-495408-1-3.html</blockquote>
 
 好像在讨论恰昆虫，去的哪没听到，伊势？
 
+
+*****
+
+####  shmilyhua  
+##### 17479#       发表于 2024-9-30 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66351308&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2024-9-30 22:31</a>
+会限
+这几天去乡下旅行了(什么治鼻炎)
+(这人lol没上线就可以怀疑旅游去了)</blockquote>
+搜了一下，大概是这个。
+www.amazon.co.jp/-/en/Wallhack-Professional-Special-Improved-Precision/dp/B0DCNSCNH2
+<img src="https://m.media-amazon.com/images/I/81MPGMDrLKL._AC_SL1500_.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

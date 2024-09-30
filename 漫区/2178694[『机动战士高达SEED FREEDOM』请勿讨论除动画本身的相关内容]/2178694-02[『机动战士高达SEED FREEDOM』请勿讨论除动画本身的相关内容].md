@@ -36,3 +36,27 @@
 <img src="https://p.sda1.dev/19/05c43f3deca942fe0e067f8455036deb/20240930_215801.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/19/f521d8a7ad86b4e7d02168d4b3ea7724/20240930_215645.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  死难者23er  
+##### 1964#       发表于 2024-10-1 00:42
+
+<img src="https://img.saraba1st.com/forum/202410/01/004125t7czcr9t3dm3mjtr.png" referrerpolicy="no-referrer">
+
+<strong>IMG_2909.png</strong> (490.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-1 00:41 上传
+
+<img src="https://img.saraba1st.com/forum/202410/01/004131wagqo5rhtsiarbz9.png" referrerpolicy="no-referrer">
+
+<strong>IMG_2910.png</strong> (669.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-1 00:41 上传
+
+这个超合金的非凡强袭自由也太惨了吧，已经跌得比原价还要低了，完全没炒起来，估计那群导爷后悔死了
+

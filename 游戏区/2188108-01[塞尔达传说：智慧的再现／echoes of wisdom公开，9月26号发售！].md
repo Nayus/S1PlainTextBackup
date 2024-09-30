@@ -6612,3 +6612,14 @@ syl，应该不会只有我在玩了几十个小时后 ...</blockquote>
 溜了溜了。 ...</blockquote>
 你不可能没有水系怪，那个初始就能获得针刺海胆就是水系怪，用一个针刺海胆吸引对方注意力然后游到他头顶放其他针刺海胆
 
+
+*****
+
+####  sherryrei  
+##### 1213#       发表于 2024-9-30 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66345435&amp;ptid=2188108" target="_blank">anfangzhan 发表于 2024-9-30 09:21</a>
+
+你不可能没有水系怪，那个初始就能获得针刺海胆就是水系怪，用一个针刺海胆吸引对方注意力然后游到他头顶 ...</blockquote>
+对哦！我咋就把海胆忘了，我还想着找个鲨鱼来咬他呢。回去就试！
+

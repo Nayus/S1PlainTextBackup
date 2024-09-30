@@ -445,3 +445,13 @@
 查了一下现在累计票房8.05
 现在的票房就可以算是q娃单独作品剧场版里数一数二的了<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wly  
+##### 2268#       发表于 2024-9-30 09:27
+
+ 本帖最后由 wly 于 2024-9-30 09:29 编辑 
+
+数一数二？就是第一！超派对基本板上钉钉的事了。是不是说明实际根本没人在意肉搏，而且都很喜欢男人，泥潭最黑暗的一天！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

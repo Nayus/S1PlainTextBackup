@@ -6523,3 +6523,56 @@ syl，应该不会只有我在玩了几十个小时后 ...</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  shinnfin  
+##### 1207#       发表于 2024-9-30 08:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66344904&amp;ptid=2188108" target="_blank">库德里尔 发表于 2024-9-30 07:40</a>
+摘芒果小游戏：一个黄金扇子 一个舞娘服
+捡橡子小游戏：在山地上的游戏有一个大夹子
+骑马小游戏：一个八 ...</blockquote>
+都没心之碎片  感觉没啥打头
+
+*****
+
+####  shinnfin  
+##### 1208#       发表于 2024-9-30 08:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66344904&amp;ptid=2188108" target="_blank">库德里尔 发表于 2024-9-30 07:40</a>
+摘芒果小游戏：一个黄金扇子 一个舞娘服
+捡橡子小游戏：在山地上的游戏有一个大夹子
+骑马小游戏：一个八 ...</blockquote>
+都没心之碎片  感觉没啥打头
+
+
+*****
+
+####  shinnfin  
+##### 1207#       发表于 2024-9-30 08:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66344904&amp;ptid=2188108" target="_blank">库德里尔 发表于 2024-9-30 07:40</a>
+摘芒果小游戏：一个黄金扇子 一个舞娘服
+捡橡子小游戏：在山地上的游戏有一个大夹子
+骑马小游戏：一个八 ...</blockquote>
+都没心之碎片  感觉没啥打头
+
+*****
+
+####  shinnfin  
+##### 1208#       发表于 2024-9-30 08:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66344904&amp;ptid=2188108" target="_blank">库德里尔 发表于 2024-9-30 07:40</a>
+摘芒果小游戏：一个黄金扇子 一个舞娘服
+捡橡子小游戏：在山地上的游戏有一个大夹子
+骑马小游戏：一个八 ...</blockquote>
+都没心之碎片  感觉没啥打头
+
+*****
+
+####  苍蓝之枪  
+##### 1209#       发表于 2024-9-30 08:14
+
+有心之碎片的，芒果就是顶级的全收集给，一开始顶级难度没解锁还拿不到，我后来再来看才注意到
+

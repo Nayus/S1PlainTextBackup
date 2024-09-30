@@ -6860,3 +6860,37 @@ LV.3蜥蜴：扔炸弹鱼，无限扔总能炸死
 今天刷到别人有  惊了  怎么才能收 ...</blockquote>
 答案是用炸弹炸死
 
+
+*****
+
+####  shinnfin  
+##### 1236#       发表于 2024-9-30 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66350178&amp;ptid=2188108" target="_blank">就是剑鞘 发表于 2024-9-30 19:18</a>
+答案是用炸弹炸死</blockquote>
+我一开始就是炸弹炸的啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+试过好几种杀法都变石头了
+
+*****
+
+####  kuarwbwe  
+##### 1237#       发表于 2024-9-30 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66350141&amp;ptid=2188108" target="_blank">就是剑鞘 发表于 2024-9-30 19:10</a>
+先去的沙漠，因为这是我第一次可以正大光明进格鲁德小镇，迫不及待了</blockquote>
+就这点来说，很难不同意。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  aaronluray  
+##### 1238#       发表于 2024-9-30 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66350200&amp;ptid=2188108" target="_blank">shinnfin 发表于 2024-9-30 19:22</a>
+
+我一开始就是炸弹炸的啊
+
+试过好几种杀法都变石头了</blockquote>
+啊，那先变成石头再拿炸弹炸
+

@@ -3762,3 +3762,11 @@ hard都咋打的，山洞里那个火龙喷火球克探索者，都切剑士有�
 <img src="https://s1.locimg.com/2024/09/30/b8a53e2753fb2.png" referrerpolicy="no-referrer">
 <img src="https://s1.locimg.com/2024/09/30/25fdb4341303d.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  樽——見  
+##### 1066#       发表于 2024-10-1 00:32
+
+这开头真的是土的掉渣...甚至还完全继承了p5的劣质动画
+

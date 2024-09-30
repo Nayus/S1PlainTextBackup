@@ -1698,3 +1698,11 @@ jdk live  tgs day2
 
 —— 来自 realme RMX3708, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  妄想中毒  
+##### 6085#       发表于 2024-9-30 21:14
+
+大总统房间的3张照片看起来好像是村上画的？
+

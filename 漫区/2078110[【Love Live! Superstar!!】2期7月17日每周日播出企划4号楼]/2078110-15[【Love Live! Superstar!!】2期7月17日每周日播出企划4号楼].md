@@ -1558,3 +1558,12 @@ ll要日剧化？这算半个新团不？
 
 以及，歌名好别扭，感觉不如be the one
 
+
+*****
+
+####  仟音一心  
+##### 21106#       发表于 2024-9-30 15:35
+
+【今天sayu生日！-哔哩哔哩】 [https://b23.tv/b97qYKH](https://b23.tv/b97qYKH)
+<img src="https://p.sda1.dev/19/0d252a076b061a2ab4b1cba401c6c202/image.jpg" referrerpolicy="no-referrer">
+

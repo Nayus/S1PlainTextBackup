@@ -1680,3 +1680,11 @@ jdk live  tgs day2
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  qooweds  
+##### 6083#       发表于 2024-9-30 17:39
+
+噩梦难度目前的感觉就是物理伤害起不来，打那种回血的boss各种难受，比如第一章暗渠里的那个透明boss<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

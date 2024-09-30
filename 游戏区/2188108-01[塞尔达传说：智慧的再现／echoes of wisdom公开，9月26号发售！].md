@@ -7235,3 +7235,45 @@ LV.3蜥蜴：扔炸弹鱼，无限扔总能炸死
 不是晴天蛙就是普通的青蛙 只有个发声的作用</blockquote>
 草 原来那个不能晴天的啊 我只有刚复制的时候用了一次刚好晴天了 我以为就是晴天蛙了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bird-lay  
+##### 1271#       发表于 2024-10-1 00:09
+
+终于拿到绿帽装了
+
+最后的修行打完六个boss没想到还有别的，压着时间打完的…
+
+这样应该就全收集了，传到林克家封盘
+
+<img src="https://img.saraba1st.com/forum/202410/01/000858v1uss4scf21a3jyg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>8D367731-D09A-47BF-88DE-36733B4E462A.jpeg</strong> (238.48 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-10-1 00:08 上传
+
+
+*****
+
+####  bird-lay  
+##### 1271#       发表于 2024-10-1 00:09
+
+终于拿到绿帽装了
+
+最后的修行打完六个boss没想到还有别的，压着时间打完的…
+
+这样应该就全收集了，传到林克家封盘
+
+<img src="https://img.saraba1st.com/forum/202410/01/000858v1uss4scf21a3jyg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>8D367731-D09A-47BF-88DE-36733B4E462A.jpeg</strong> (238.48 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-10-1 00:08 上传
+

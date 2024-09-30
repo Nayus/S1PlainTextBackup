@@ -442,3 +442,19 @@ mujica的mv还用看
 
 op动画前唱不太可能，我猜和之前一样，两首新歌凑二单然后4th唱
 
+
+*****
+
+####  skives10  
+##### 23723#       发表于 2024-10-1 00:04
+
+op还会是长谷川写吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  skives10  
+##### 23723#       发表于 2024-10-1 00:04
+
+op还会是长谷川写吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

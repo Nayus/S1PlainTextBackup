@@ -334,3 +334,11 @@ shuzuku我求求你别画了</blockquote>
 
 好像用不了几个小时就能验证到底是不是10.13放ether的mv，12.15放动画正式pv了。
 
+
+*****
+
+####  星天观测  
+##### 23710#       发表于 2024-9-30 19:12
+
+爱放不放吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正鸡推一路饿过来到现在，想跑的早跑了没跑的也就这样了
+

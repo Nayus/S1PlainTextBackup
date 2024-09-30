@@ -6828,3 +6828,35 @@ LV.3蜥蜴：扔炸弹鱼，无限扔总能炸死
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  就是剑鞘  
+##### 1233#       发表于 2024-9-30 19:10
+
+先去的沙漠，因为这是我第一次可以正大光明进格鲁德小镇，迫不及待了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  shinnfin  
+##### 1234#       发表于 2024-9-30 19:16
+
+有个射激光的眼睛
+我打死后就变成石头了  以为不能收集呢
+今天刷到别人有  惊了  怎么才能收
+
+*****
+
+####  就是剑鞘  
+##### 1235#       发表于 2024-9-30 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66350172&amp;ptid=2188108" target="_blank">shinnfin 发表于 2024-9-30 19:16</a>
+
+有个射激光的眼睛
+
+我打死后就变成石头了  以为不能收集呢
+
+今天刷到别人有  惊了  怎么才能收 ...</blockquote>
+答案是用炸弹炸死
+

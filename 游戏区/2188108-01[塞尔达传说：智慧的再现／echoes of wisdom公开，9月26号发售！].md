@@ -6703,3 +6703,18 @@ BOSS连战最重要的是带够回能元的冰沙，只要能变林克一切都�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  库德里尔  
+##### 1222#       发表于 2024-9-30 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66347092&amp;ptid=2188108" target="_blank">胶布 发表于 2024-9-30 12:14</a>
+我这次基本是按部就班地打没有破序，好奇一下如果提前到火山/雪山/湿地会发生是什么
+
+—— 来自 S1Fun ...</blockquote>
+可以跑图，收集复制品，点传送点
+有的支线（好像）可以接取，有的随主线进度解锁的路进不去，当然迷宫没法提前打。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

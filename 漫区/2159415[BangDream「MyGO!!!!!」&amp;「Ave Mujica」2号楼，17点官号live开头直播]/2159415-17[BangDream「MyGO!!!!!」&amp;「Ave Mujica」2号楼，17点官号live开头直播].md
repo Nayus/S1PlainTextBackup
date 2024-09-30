@@ -376,3 +376,13 @@ mujica的mv还用看
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">已经，啊，无所谓了，爱拖就拖着吧，现在留下的都是纯度极高的结晶了，想跑路的早全跑完了
 
+
+*****
+
+####  鳥栖朝  
+##### 23715#       发表于 2024-9-30 21:47
+
+ 本帖最后由 鳥栖朝 于 2024-9-30 21:50 编辑 
+
+从1st 7千快到8千人直播看live（b站），到2nd 1千2百人直播看live （b站），我们wsd啊真是太有操作了
+

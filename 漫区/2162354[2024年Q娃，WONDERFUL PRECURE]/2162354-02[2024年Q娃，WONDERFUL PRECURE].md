@@ -604,3 +604,13 @@ yysy，悟君确实在某种意义上分走了一些小麦的戏份，因为对�
 
 票房上9.45亿了<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 2285#       发表于 2024-9-30 22:54
+
+去年和今年都搞了不少短视频宣发，可能也有点关系？
+
+从一年两部转为一年一部后，8亿以上的票房可能就是常态了吧
+

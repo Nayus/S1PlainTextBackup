@@ -3748,3 +3748,17 @@ hard都咋打的，山洞里那个火龙喷火球克探索者，都切剑士有�
 
 说起来职业里有灵魂黑客，结合上两个有”灵魂黑客“的游戏是SH2和XB3，如果rpg.jp这次褒姒了是不是可以炮制一个“灵魂黑客这个名字受到了初代的诅咒”之类的都市传说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罗克萨斯  
+##### 1065#       发表于 2024-9-30 22:45
+
+有没有可能，凯瑟琳娜在废案里是女主？才发现去当兵前，也能碰到她，总计在demo里出现过3次，比双开门红毛出现的还早，绝非普通的coop啊！
+
+<img src="https://s1.locimg.com/2024/09/30/33435ee102865.png" referrerpolicy="no-referrer">
+<img src="https://s1.locimg.com/2024/09/30/a2321c5769012.png" referrerpolicy="no-referrer">
+<img src="https://s1.locimg.com/2024/09/30/f53b7fa80f89b.png" referrerpolicy="no-referrer">
+<img src="https://s1.locimg.com/2024/09/30/b8a53e2753fb2.png" referrerpolicy="no-referrer">
+<img src="https://s1.locimg.com/2024/09/30/25fdb4341303d.png" referrerpolicy="no-referrer">
+

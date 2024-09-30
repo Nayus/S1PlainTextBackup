@@ -1616,3 +1616,16 @@ op3这衣服真丑啊。准备那么久设计出这种玩意</blockquote>
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  ViyViy  
+##### 21112#       发表于 2024-9-30 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66350758&amp;ptid=2078110" target="_blank">ads147147 发表于 2024-9-30 21:00</a>
+
+室田雄平真的有在干活吗？感觉他对毛妹那边更上心。。。
+
+—— 来自 OPPO PHN110, Android 14上的 S1Next ...</blockquote>
+室田把关这个的吗？服装本标的design是中村实树和田代舞<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -7064,3 +7064,32 @@ LV.3蜥蜴：扔炸弹鱼，无限扔总能炸死
 —— 来自 nubia NX712J, Android 14 ...</blockquote>
 逼角落里用剑士形态几刀就没了
 
+
+*****
+
+####  lilod  
+##### 1255#       发表于 2024-9-30 21:32
+
+草，船这个支线的地牢还挺大。。。
+
+*****
+
+####  dforce  
+##### 1256#       发表于 2024-9-30 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66350786&amp;ptid=2188108" target="_blank">zyupha 发表于 2024-9-30 21:05</a>
+
+求助，格鲁德沙漠神殿里打一个林克和三个林克怎么打呀，宝宝完全刮痧
+
+—— 来自 nubia NX712J, Android 14 ...</blockquote>
+用死亡僵尸或者带盾的猪猪
+
+*****
+
+####  DARK_HGCG  
+##### 1257#       发表于 2024-9-30 21:33
+
+<blockquote>莉可厨 发表于 2024-9-30 20:18
+后面的无世界里林克的炸弹拿出来也会熄火，好像只有唯一解炸弹鱼，不知道还有没别的解法 ...</blockquote>
+炸弹鱼哪里啊。。。。。。
+

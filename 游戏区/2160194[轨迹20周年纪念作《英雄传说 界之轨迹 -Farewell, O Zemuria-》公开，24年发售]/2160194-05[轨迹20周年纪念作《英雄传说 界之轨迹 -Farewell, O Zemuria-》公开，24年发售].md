@@ -1644,3 +1644,11 @@ jdk live  tgs day2
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">推完第一章三条线，剧情灌水先不说，我觉得最难受一点是由于对话里提到的前作NPC太多，而且还有一堆都是次要NPC，每次出现人名我都得回忆一下是哪作的哪个人和这里的人都有啥关系，看对话好累...
 
+
+*****
+
+####  倪哥干你  
+##### 6079#       发表于 2024-9-30 16:39
+
+轨言轨语是这样 这还不学机战搞个快捷名词查询
+

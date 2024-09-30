@@ -172,3 +172,13 @@ B4859
 
 请楼主董惠明女士速速搬运因国服开启，导致的微博厕妹集体爆炸的新鲜屎<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  虚无缥缈的分身  
+##### 1365#       发表于 2024-9-30 11:19
+
+参与《初音未来:缤纷舞台》预约活动,必得多重好礼!一起加入「世界」吧![https://act.nvsgames.cn/gms/84d553df73?invt=_QQQ6N4PR_](https://act.nvsgames.cn/gms/84d553df73?invt=_QQQ6N4PR_)
+
+谁来帮我点点完成邀请任务<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

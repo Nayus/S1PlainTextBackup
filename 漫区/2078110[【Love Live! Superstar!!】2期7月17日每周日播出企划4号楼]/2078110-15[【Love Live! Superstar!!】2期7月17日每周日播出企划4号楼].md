@@ -1537,3 +1537,14 @@ ll要日剧化？这算半个新团不？
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  csolfans  
+##### 21104#       发表于 2024-9-30 13:36
+
+<img src="https://p.sda1.dev/19/9bf84aabc4442c09d38331b359319add/CMP_20240930133626987.png" referrerpolicy="no-referrer">
+我……不好评价……
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

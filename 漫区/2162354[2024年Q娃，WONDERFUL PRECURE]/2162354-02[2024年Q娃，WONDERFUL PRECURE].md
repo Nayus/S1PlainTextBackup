@@ -568,3 +568,13 @@ yysy，悟君确实在某种意义上分走了一些小麦的戏份，因为对�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大福在本篇不一定能变人吧，等一个大卖特卖狗狼cp……
 
+
+*****
+
+####  maoyou  
+##### 2281#       发表于 2024-9-30 19:58
+
+喜欢bg是小女孩的生物本能罢了，一般来讲至少得初中开始才会喜欢什么乱七八糟的东西吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

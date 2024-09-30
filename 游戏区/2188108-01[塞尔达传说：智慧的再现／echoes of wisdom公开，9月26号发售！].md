@@ -6672,3 +6672,24 @@ BOSS连战最重要的是带够回能元的冰沙，只要能变林克一切都�
 
 虽然塞尔达的能力基本都是托力给的，但主线里好像也没怎么描写塞尔达和托力之间的友情啊，结果结尾给这么多台词有点没活硬整了，历代导航角里排倒数吧，可能比纳薇强点
 
+
+*****
+
+####  beer  
+##### 1219#       发表于 2024-9-30 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66340832&amp;ptid=2188108" target="_blank">莉可厨 发表于 2024-9-29 16:41</a>
+
+反正这作有床，血量有没有也差不多了。我五颗心直接把雪山开完了</blockquote>
+我也是顶着温度把雪山开了，反正就是人站篝火旁边，招怪出去打，但是没有无损耗的御寒就不太想上山逛
+
+*****
+
+####  beer  
+##### 1220#       发表于 2024-9-30 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66342366&amp;ptid=2188108" target="_blank">莉可厨 发表于 2024-9-29 19:40</a>
+
+大地图左边有个洞，里面两块石头挡着个心碎片怎么拿啊，炸弹没用</blockquote>
+什么石头，可以同步拉掉吗
+

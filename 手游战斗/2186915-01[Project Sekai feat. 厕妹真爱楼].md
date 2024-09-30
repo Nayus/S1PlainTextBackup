@@ -182,3 +182,13 @@ B4859
 
 谁来帮我点点完成邀请任务<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  GAdoru  
+##### 1366#       发表于 2024-9-30 11:51
+
+可恶，抽干了库存也没出airi
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

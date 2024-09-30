@@ -6894,3 +6894,43 @@ LV.3蜥蜴：扔炸弹鱼，无限扔总能炸死
 试过好几种杀法都变石头了</blockquote>
 啊，那先变成石头再拿炸弹炸
 
+
+*****
+
+####  shinnfin  
+##### 1239#       发表于 2024-9-30 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66350242&amp;ptid=2188108" target="_blank">aaronluray 发表于 2024-9-30 19:27</a>
+啊，那先变成石头再拿炸弹炸</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">回头找找试试  都不记得在哪里了
+
+
+*****
+
+####  苍蓝之枪  
+##### 1240#       发表于 2024-9-30 19:32
+
+众神的大体量还是双世界带来的，这次无之世界其实只算是神庙的定位
+
+体量撑不到很大的，说是梦见岛8倍的时候我就觉得只是说说而已
+
+
+*****
+
+####  库德里尔  
+##### 1241#       发表于 2024-9-30 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66349808&amp;ptid=2188108" target="_blank">ColAMK 发表于 2024-9-30 18:04</a>
+支线做了七七八八，还差雪山没探索其他地图都舔差不多了，是不是打完雪山就快结束了？有点舍不得打了，本来 ...</blockquote>
+1（初始）
+2（河流沙漠）
+1（皇宫）
+3（火山雪山湿地）
+1（森林）
+然后是结局
+
+如果说除了雪山之外，能理解为主线只剩下雪山的话
+那是快结束了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

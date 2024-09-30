@@ -3705,3 +3705,14 @@ hard都咋打的，山洞里那个火龙喷火球克探索者，都切剑士有�
 
 —— 来自 vivo V2304A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  泥潭办证先锋  
+##### 1061#       发表于 2024-9-30 14:10
+
+玩了下ps5 demo，感受就是各种意义“土”。
+剧情老土，画面脏兮兮抹了一层土，战斗系统老旧土气，走几步就黑屏loading 5秒钟的老土技术力……
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

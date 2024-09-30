@@ -6806,3 +6806,13 @@ LV.3蜥蜴：扔炸弹鱼，无限扔总能炸死
 
 顺便吐槽一下，我先打的森林神殿再打的火山神殿，前者迷宫设计的还行也挺大，结果后者感觉比起来缩水了一半，官方顺序难道是先打火再打森林<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  clyde-wang  
+##### 1231#       发表于 2024-9-30 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66349808&amp;ptid=2188108" target="_blank">ColAMK 发表于 2024-9-30 18:04</a>
+支线做了七七八八，还差雪山没探索其他地图都舔差不多了，是不是打完雪山就快结束了？有点舍不得打了，本来 ...</blockquote>
+水和沙也有这个问题，沙那边比水复杂很多，先打得沙，水觉得太简单了，不过我是觉得玩起来节奏还不错的
+

@@ -7309,3 +7309,13 @@ LV.3蜥蜴：扔炸弹鱼，无限扔总能炸死
 林克太强显得塞尔达只是在旁边刮沙,通关后睡眠道场也不见有最终Boss ...</blockquote>
 林克就一宝可梦，没有究极手拉爪子露出肌肉，剑都要砍豁口了
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 1275#       发表于 2024-10-1 02:24
+
+打完了，开心，这作林塞真让我欢喜<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+上一次这样双人打怪还得追溯到小火车，希望3D塞也能出一次林克传说<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

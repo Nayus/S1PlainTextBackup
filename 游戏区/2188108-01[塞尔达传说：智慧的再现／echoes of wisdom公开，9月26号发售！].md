@@ -6767,3 +6767,42 @@ LV.3蜥蜴：扔炸弹鱼，无限扔总能炸死
 
 冰法师：摸到冰法师背后，先用坠眼怪压趴他。趁机跳到湖中间，放一个 守护者 彼姆。绕着彼姆跑圈躲法师攻击。很快就能打死冰法师。
 
+
+*****
+
+####  达达葱2  
+##### 1227#       发表于 2024-9-30 17:53
+
+萝卜哪里弄
+
+*****
+
+####  我在干什么啊  
+##### 1228#       发表于 2024-9-30 17:58
+
+<blockquote>达达葱2 发表于 2024-9-30 17:53
+萝卜哪里弄</blockquote>
+你救了国王后去找英帕领任务，任务做完了就有了
+
+
+*****
+
+####  冷泉夜月  
+##### 1229#       发表于 2024-9-30 18:00
+
+玩到中期感觉比织梦岛还是好玩多了，支线就一大堆，不少还挺有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  ColAMK  
+##### 1230#       发表于 2024-9-30 18:04
+
+支线做了七七八八，还差雪山没探索其他地图都舔差不多了，是不是打完雪山就快结束了？有点舍不得打了，本来说是八倍织梦岛地图结果体量没想象中那么大还是挺可惜的<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+不过还是很好玩的，除了那种障碍物必须拿剑砍掉我其他时候就没变过林克，全程召唤流很爽啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+顺便吐槽一下，我先打的森林神殿再打的火山神殿，前者迷宫设计的还行也挺大，结果后者感觉比起来缩水了一半，官方顺序难道是先打火再打森林<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1628,3 +1628,11 @@ jdk live  tgs day2
 
 咚做第一次还效果挺好的。重复做就审美疲劳了，学妹下次肯定也是中盘回归。
 
+
+*****
+
+####  Kusabi  
+##### 6077#       发表于 2024-9-30 12:39
+
+看到剑星更新后双臂夹紧时胸部会聚拢，毫无波动，因为我们大轨迹先干了<img src="https://static.saraba1st.com/image/smiley/face2017/265.gif" referrerpolicy="no-referrer">
+

@@ -7052,3 +7052,15 @@ LV.3蜥蜴：扔炸弹鱼，无限扔总能炸死
 
 —— 来自 nubia NX712J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  黛冬優子  
+##### 1254#       发表于 2024-9-30 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66350786&amp;ptid=2188108" target="_blank">zyupha 发表于 2024-9-30 21:05</a>
+求助，格鲁德沙漠神殿里打一个林克和三个林克怎么打呀，宝宝完全刮痧
+
+—— 来自 nubia NX712J, Android 14 ...</blockquote>
+逼角落里用剑士形态几刀就没了
+

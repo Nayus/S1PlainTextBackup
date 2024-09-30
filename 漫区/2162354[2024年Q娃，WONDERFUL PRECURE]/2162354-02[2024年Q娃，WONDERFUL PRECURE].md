@@ -463,3 +463,16 @@
 
 男人跟派对一样，抢戏太严重了，搞得主角一点自主性都没有，也就感情线可以拿出来聊聊了
 
+
+*****
+
+####  pokemon最爱  
+##### 2270#       发表于 2024-9-30 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66347071&amp;ptid=2162354" target="_blank">jaewoongh_ 发表于 2024-9-30 12:11</a>
+
+男人跟派对一样，抢戏太严重了，搞得主角一点自主性都没有，也就感情线可以拿出来聊聊了 ...</blockquote>
+目前还不至于跟派对一桌吧，派对那是主线完全不需要Q娃全是男人们的恩怨情仇、作品主题和主线剧情完全脱节了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+悟作为我方知情主要角色而且还有恋爱线掺在里面分走一定戏份是很正常的。
+

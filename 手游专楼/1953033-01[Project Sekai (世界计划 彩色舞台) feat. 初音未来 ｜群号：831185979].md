@@ -22,3 +22,11 @@
 
 放一下互助链接：参与《初音未来:缤纷舞台》预约活动,必得多重好礼!一起加入「世界」吧![https://act.nvsgames.cn/gms/84d553df73?invt=_QQQ6NV32_](https://act.nvsgames.cn/gms/84d553df73?invt=_QQQ6NV32_)
 
+
+*****
+
+####  何でやねん  
+##### 788#       发表于 2024-9-30 10:58
+
+虽然我不玩国服，不过既然开了能不能让他们把剧场版引进一下<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

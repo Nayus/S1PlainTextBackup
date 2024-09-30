@@ -458,3 +458,11 @@ op还会是长谷川写吗<img src="https://static.saraba1st.com/image/smiley/fa
 
 op还会是长谷川写吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  桜庭千景  
+##### 23724#       发表于 2024-10-1 00:51
+
+如果足够重视的话是应该让eg写。到时候就知道了。
+

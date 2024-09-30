@@ -3787,3 +3787,15 @@ hard都咋打的，山洞里那个火龙喷火球克探索者，都切剑士有�
 有没有可能，凯瑟琳娜在废案里是女主？才发现去当兵前，也能碰到她，总计在demo里出现过3次，比双开门红毛 ...</blockquote>
 红毛不是开局马车上就看到了，除了妖精算是第一个露面的队友吧
 
+
+*****
+
+####  罗克萨斯  
+##### 1069#       发表于 2024-10-1 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66351997&amp;ptid=2140224" target="_blank">取名真是难 发表于 2024-10-1 00:43</a>
+红毛不是开局马车上就看到了，除了妖精算是第一个露面的队友吧</blockquote>
+除了第一次开档，都把过场动画跳了，怪不得对红毛初次登场没印象了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

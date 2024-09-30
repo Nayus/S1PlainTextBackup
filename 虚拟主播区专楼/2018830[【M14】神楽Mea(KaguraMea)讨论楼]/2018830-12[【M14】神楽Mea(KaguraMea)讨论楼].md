@@ -448,3 +448,15 @@ https://bbs.yamibo.com/thread-495408-1-3.html</blockquote>
 好像是安利楼19年4月的帖子，把麻凛相关的的大多数tc档都总结了一下，我有截图但是切换成电脑版s1之后就 ...</blockquote>
 试试奶牛快传之类的三方上传站打个包上传，然后发链接，或者手机版s1试试？
 
+
+*****
+
+####  Sanco  
+##### 17477#       发表于 2024-9-30 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66347680&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2024-9-30 13:43</a>
+试试奶牛快传之类的三方上传站打个包上传，然后发链接，或者手机版s1试试？ ...</blockquote>
+传了个夸克
+[https://pan.quark.cn/s/767b9d35fa11](https://pan.quark.cn/s/767b9d35fa11)
+提取码：kXYP
+

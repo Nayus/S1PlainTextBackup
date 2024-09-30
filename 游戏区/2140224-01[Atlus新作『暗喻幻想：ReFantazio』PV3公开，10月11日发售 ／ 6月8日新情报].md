@@ -3716,3 +3716,17 @@ hard都咋打的，山洞里那个火龙喷火球克探索者，都切剑士有�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  karastar  
+##### 1062#       发表于 2024-9-30 19:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">画面太花哨，哪里都要塞一点特效看得很累
+
+打完牛头和教堂感觉是合成面具系统弱化，弱点系统有些改进
+
+一些简化系统和跳过按键好评，小怪不用再打
+
+总结：感觉系统进化属于优化，没有特别亮眼的部分，目前中规中矩
+

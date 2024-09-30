@@ -6816,3 +6816,15 @@ LV.3蜥蜴：扔炸弹鱼，无限扔总能炸死
 支线做了七七八八，还差雪山没探索其他地图都舔差不多了，是不是打完雪山就快结束了？有点舍不得打了，本来 ...</blockquote>
 水和沙也有这个问题，沙那边比水复杂很多，先打得沙，水觉得太简单了，不过我是觉得玩起来节奏还不错的
 
+
+*****
+
+####  冷泉夜月  
+##### 1232#       发表于 2024-9-30 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66349808&amp;ptid=2188108" target="_blank">ColAMK 发表于 2024-09-30 18:04:19</a>
+支线做了七七八八，还差雪山没探索其他地图都舔差不多了，是不是打完雪山就快结束了？有点舍不得打了，本来 ...</blockquote>可以参考丹培的机关解锁，第二件机关就需要奥尔汀的高空焰火，等于说是引导你优先去火山的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+我也是先打沙漠再打的水，体感也还好不至于说落差很大，而且卓拉们的前置任务也比较抓人<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

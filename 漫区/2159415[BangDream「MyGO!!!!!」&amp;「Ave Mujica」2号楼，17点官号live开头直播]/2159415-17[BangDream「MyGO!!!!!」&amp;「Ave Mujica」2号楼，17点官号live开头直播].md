@@ -326,3 +326,11 @@ shuzuku我求求你别画了</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  rikaren  
+##### 23709#       发表于 2024-9-30 19:04
+
+好像用不了几个小时就能验证到底是不是10.13放ether的mv，12.15放动画正式pv了。
+

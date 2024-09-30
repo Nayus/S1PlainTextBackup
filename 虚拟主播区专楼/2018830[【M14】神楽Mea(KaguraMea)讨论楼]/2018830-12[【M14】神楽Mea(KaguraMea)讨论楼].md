@@ -426,3 +426,15 @@ mea啊确实强，我白衣秀士都是嗑药打了十几次才过的</blockquot
 
 甜甜甜
 
+
+*****
+
+####  Sanco  
+##### 17475#       发表于 2024-9-30 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66345410&amp;ptid=2018830" target="_blank">aisakahammer 发表于 2024-9-30 09:17</a>
+只知道2个帖子都是老的，估计是在别的地方的回帖？
+
+https://bbs.yamibo.com/thread-495408-1-3.html</blockquote>
+好像是安利楼19年4月的帖子，把麻凛相关的的大多数tc档都总结了一下，我有截图但是切换成电脑版s1之后就会显示没权限，所以发不了图<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

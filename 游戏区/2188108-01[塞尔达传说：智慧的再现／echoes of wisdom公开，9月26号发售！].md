@@ -6576,3 +6576,16 @@ syl，应该不会只有我在玩了几十个小时后 ...</blockquote>
 
 有心之碎片的，芒果就是顶级的全收集给，一开始顶级难度没解锁还拿不到，我后来再来看才注意到
 
+
+*****
+
+####  库德里尔  
+##### 1210#       发表于 2024-9-30 09:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66344979&amp;ptid=2188108" target="_blank">shinnfin 发表于 2024-9-30 08:08</a>
+都没心之碎片  感觉没啥打头</blockquote>
+心之碎片我没有记，但至少摘芒果顶级70就是一个。
+我通关的时候算上主线和显然可以接取的支线，是15心
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

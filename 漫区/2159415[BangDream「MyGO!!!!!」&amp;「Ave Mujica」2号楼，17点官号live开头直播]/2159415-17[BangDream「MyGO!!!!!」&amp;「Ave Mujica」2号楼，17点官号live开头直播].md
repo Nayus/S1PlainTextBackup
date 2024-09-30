@@ -401,3 +401,28 @@ mujica的mv还用看
 
 10.13前能把ether mv吐出来就不错了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 23718#       发表于 2024-9-30 22:18
+
+10.2要卖元素专，9.30mv还没出完
+
+不如默认以太就是没mv的算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rikaren  
+##### 23719#       发表于 2024-9-30 22:21
+
+10.13的新东西大概率就是ether的mv（wsd指不定还觉得自己大发慈悲把同名曲实装当做补偿
+
+*****
+
+####  星天观测  
+##### 23720#       发表于 2024-9-30 22:25
+
+团名曲实装我感觉要等武藏野啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

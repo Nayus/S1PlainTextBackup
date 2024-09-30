@@ -596,3 +596,11 @@ yysy，悟君确实在某种意义上分走了一些小麦的戏份，因为对�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">彩羽三年变化这么大当然是为了服务于悟的塑造啊，这一部我和高桥女士的共识就是一切为了塑造悟而服务
 
+
+*****
+
+####  粉儿alice  
+##### 2284#       发表于 2024-9-30 22:21
+
+票房上9.45亿了<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+

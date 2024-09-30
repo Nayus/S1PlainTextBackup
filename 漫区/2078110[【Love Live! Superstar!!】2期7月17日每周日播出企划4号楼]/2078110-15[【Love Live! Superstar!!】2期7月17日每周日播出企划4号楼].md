@@ -1629,3 +1629,11 @@ op3这衣服真丑啊。准备那么久设计出这种玩意</blockquote>
 —— 来自 OPPO PHN110, Android 14上的 S1Next ...</blockquote>
 室田把关这个的吗？服装本标的design是中村实树和田代舞<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黒烨  
+##### 21113#       发表于 2024-9-30 22:21
+
+斎藤哥都不画op碟了，ed疑似也不是。虽然还没开播，但是这一开头就给人一种又摆了的美感
+

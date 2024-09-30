@@ -6645,3 +6645,14 @@ syl，应该不会只有我在玩了几十个小时后 ...</blockquote>
 
 从推箱子变成叠箱子
 
+
+*****
+
+####  就是剑鞘  
+##### 1216#       发表于 2024-9-30 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66345642&amp;ptid=2188108" target="_blank">苍蓝之枪 发表于 2024-9-30 09:47</a>
+
+我也就差瞌睡道场最后一个boss连战了，主线的时候没搞懂机制的boss到连战冲时间的话就必须搞懂机制了，不过 ...</blockquote>
+BOSS连战最重要的是带够回能元的冰沙，只要能变林克一切都好说
+

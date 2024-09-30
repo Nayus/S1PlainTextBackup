@@ -395,3 +395,18 @@ mea啊确实强，我白衣秀士都是嗑药打了十几次才过的</blockquot
 —— 来自 鹅球 v3.2.91</blockquote>
 也祝愿各位找到自己的另一半。<img src="https://static.saraba1st.com/image/smiley/face2017/205.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aisakahammer  
+##### 17473#       发表于 2024-9-30 09:17
+
+ 本帖最后由 aisakahammer 于 2024-9-30 09:18 编辑 
+
+只知道2个帖子都是老的，估计是在别的地方的回帖？
+[https://bbs.yamibo.com/thread-495408-1-3.html](https://bbs.yamibo.com/thread-495408-1-3.html)
+
+[https://bbs.yamibo.com/thread-501070-1-1.html](https://bbs.yamibo.com/thread-501070-1-1.html)
+
+手头活忙完再去找找看
+

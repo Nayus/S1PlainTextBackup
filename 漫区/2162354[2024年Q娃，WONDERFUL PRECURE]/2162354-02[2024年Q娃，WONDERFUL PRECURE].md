@@ -533,3 +533,14 @@ yysy，悟君确实在某种意义上分走了一些小麦的戏份，因为对�
 不是早说过了吗 东大妈有本事把q娃搞成《小魔男XX》或者是把舞台剧五男人给转正<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 肉搏不用画 也可以卖ai画的谷子给都很喜欢男人的粉丝呗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  粉儿alice  
+##### 2277#       发表于 2024-9-30 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66347071&amp;ptid=2162354" target="_blank">jaewoongh_ 发表于 2024-9-30 12:11</a>
+男人跟派对一样，抢戏太严重了，搞得主角一点自主性都没有，也就感情线可以拿出来聊聊了 ...</blockquote>
+论地位剧情悟同学可远远不及拓海同学 
+好歹拓海和主线相关 悟同学就是彩羽搞bg的挂件
+

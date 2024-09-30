@@ -6509,3 +6509,17 @@ syl，应该不会只有我在玩了几十个小时后 ...</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  kuarwbwe  
+##### 1206#       发表于 2024-9-30 08:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66344904&amp;ptid=2188108" target="_blank">库德里尔 发表于 2024-9-30 07:40</a>
+摘芒果小游戏：一个黄金扇子 一个舞娘服
+捡橡子小游戏：在山地上的游戏有一个大夹子
+骑马小游戏：一个八 ...</blockquote>
+舞娘服怎么拿？我这边拿了扇子，再玩小游戏全拿芒果就没有了。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

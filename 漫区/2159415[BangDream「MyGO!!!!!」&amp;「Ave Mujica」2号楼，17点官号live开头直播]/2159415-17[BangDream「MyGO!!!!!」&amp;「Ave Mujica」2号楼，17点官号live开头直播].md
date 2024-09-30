@@ -474,3 +474,11 @@ op还会是长谷川写吗<img src="https://static.saraba1st.com/image/smiley/fa
 
 go的op是supalove写的，ed才是eg
 
+
+*****
+
+####  akiomn  
+##### 23726#       发表于 2024-10-1 02:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">得看啥风格，抒情曲让长谷川写下还行，其他免了
+

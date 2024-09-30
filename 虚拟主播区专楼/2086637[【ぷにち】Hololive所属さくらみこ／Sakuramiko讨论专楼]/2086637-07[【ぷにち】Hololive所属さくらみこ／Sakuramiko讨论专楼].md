@@ -11704,3 +11704,34 @@ mio真的本来要开占卜店的甚至连卡牌的贴图全部加急加入到�
 
 说回来刚才kanade的社内关系图直播写miko的时候说到最近有听miko的专辑曲，昨天nodoka也说最近沉迷DAIDAIDAI
 
+
+*****
+
+####  rs5621  
+##### 9845#       发表于 2024-9-30 20:22
+
+<img src="https://img.saraba1st.com/forum/202409/30/202207fqrm4qrmmz1yhhmh.png" referrerpolicy="no-referrer">
+
+<strong>4HBMK$N0Z_F9}~XNI[8TFC5.png</strong> (45.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-30 20:22 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这游戏是黑打牌的吧，喜欢打牌的35p两眼一黑
+
+*****
+
+####  holoan  
+##### 9846#         楼主| 发表于 2024-10-1 01:10
+
+所谓的CD发售当天销量就超过了事前staff预设的CD总销量目标
+
+第一个是这个目标设得也太低了吧？第一天如果不是oricon一位的那天的话那顶多也几千吧
+
+第二个 holo官店的通常盘和限定盘销量不算进去的吗？
+
+还有这个事在miko这已经不是第一次发生了，上次说这个事是去年卖什么周边的时候
+
+反正不管怎么样卖得好而且远超设想是事实就是了，看来明年顺利能办上2ndlive
+

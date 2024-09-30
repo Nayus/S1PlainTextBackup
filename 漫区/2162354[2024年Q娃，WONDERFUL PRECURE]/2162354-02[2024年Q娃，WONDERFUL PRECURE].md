@@ -512,3 +512,13 @@ yysy，悟君确实在某种意义上分走了一些小麦的戏份，因为对�
 小麦可以和噶嗷组个CP啊</blockquote>
 致敬抱q是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  谁的无聊中  
+##### 2275#       发表于 2024-9-30 15:54
+
+<blockquote>1096beam 发表于 2024-9-30 15:32
+小麦可以和噶嗷组个CP啊</blockquote>
+虽然但是樱花妹已经把小麦给大福组CP。。。
+

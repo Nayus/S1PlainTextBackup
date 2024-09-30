@@ -202,3 +202,35 @@ B4859
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  kyonko15  
+##### 1368#       发表于 2024-9-30 13:57
+
+<img src="https://img.saraba1st.com/forum/202409/30/135609ivptwwfwz42y2v2v.jpg" referrerpolicy="no-referrer">
+
+<strong>1000015858.jpg</strong> (94.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-30 13:56 上传
+
+国服运营对社区的乱象还是挺清楚的。就是官方居然这么清楚不友善的言论，多少有点不友善了
+
+
+*****
+
+####  kyonko15  
+##### 1369#       发表于 2024-9-30 14:01
+
+<img src="https://img.saraba1st.com/forum/202409/30/140108apjpdjkaf3q3fnka.jpg" referrerpolicy="no-referrer">
+
+<strong>1000015859.jpg</strong> (18.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-30 14:01 上传
+
+脑内一下子想到的图片有点多了
+

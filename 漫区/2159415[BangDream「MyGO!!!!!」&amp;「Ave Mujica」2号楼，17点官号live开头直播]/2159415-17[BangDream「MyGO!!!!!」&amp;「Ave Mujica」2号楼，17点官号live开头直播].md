@@ -466,3 +466,11 @@ op还会是长谷川写吗<img src="https://static.saraba1st.com/image/smiley/fa
 
 如果足够重视的话是应该让eg写。到时候就知道了。
 
+
+*****
+
+####  NODY  
+##### 23725#       发表于 2024-10-1 00:54
+
+go的op是supalove写的，ed才是eg
+

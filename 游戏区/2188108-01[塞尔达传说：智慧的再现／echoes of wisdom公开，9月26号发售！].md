@@ -6718,3 +6718,28 @@ BOSS连战最重要的是带够回能元的冰沙，只要能变林克一切都�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  莉可厨  
+##### 1223#       发表于 2024-9-30 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66347092&amp;ptid=2188108" target="_blank">胶布 发表于 2024-9-30 12:14</a>
+
+我这次基本是按部就班地打没有破序，好奇一下如果提前到火山/雪山/湿地会发生是什么
+
+—— 来自 S1Fun ...</blockquote>
+基本没什么用，这作的战斗力提升全放主线了，不跑主线会卡托力等级
+
+*****
+
+####  库德里尔  
+##### 1224#       发表于 2024-9-30 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66347200&amp;ptid=2188108" target="_blank">莉可厨 发表于 2024-9-30 12:28</a>
+基本没什么用，这作的战斗力提升全放主线了，不跑主线会卡托力等级</blockquote>
+差不多。
+我5心左右开始跑图的，由于召唤强度不够，没有收集到特别适合开荒用的复制品。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

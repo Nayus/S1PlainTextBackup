@@ -522,3 +522,14 @@ yysy，悟君确实在某种意义上分走了一些小麦的戏份，因为对�
 小麦可以和噶嗷组个CP啊</blockquote>
 虽然但是樱花妹已经把小麦给大福组CP。。。
 
+
+*****
+
+####  粉儿alice  
+##### 2276#       发表于 2024-9-30 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66345477&amp;ptid=2162354" target="_blank">wly 发表于 2024-9-30 09:27</a>
+数一数二？就是第一！超派对基本板上钉钉的事了。是不是说明实际根本没人在意肉搏，而且都很喜欢男人，泥潭 ...</blockquote>
+不是早说过了吗 东大妈有本事把q娃搞成《小魔男XX》或者是把舞台剧五男人给转正<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+肉搏不用画 也可以卖ai画的谷子给都很喜欢男人的粉丝呗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

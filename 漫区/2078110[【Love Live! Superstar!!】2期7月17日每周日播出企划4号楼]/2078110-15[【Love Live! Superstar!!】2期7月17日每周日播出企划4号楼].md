@@ -1548,3 +1548,13 @@ ll要日剧化？这算半个新团不？
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  ViyViy  
+##### 21105#       发表于 2024-9-30 15:22
+
+比OP1还服务生的衣服出现了
+
+以及，歌名好别扭，感觉不如be the one
+

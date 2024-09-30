@@ -7209,3 +7209,18 @@ LV.3蜥蜴：扔炸弹鱼，无限扔总能炸死
 
 搜了下还有三件amiibo服装，这个没办法了
 
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 1269#       发表于 2024-9-30 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66351740&amp;ptid=2188108" target="_blank">king520kyo 发表于 2024-9-30 23:46</a>
+
+其实有晴天蛙的
+
+不过我全收集了也没碰到下雨不能烧蛛网的地方
+
+我怀疑还是附近有青蛙 ...</blockquote>
+不是晴天蛙就是普通的青蛙 只有个发声的作用
+

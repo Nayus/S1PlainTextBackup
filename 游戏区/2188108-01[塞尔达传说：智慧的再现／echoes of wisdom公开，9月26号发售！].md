@@ -7093,3 +7093,25 @@ LV.3蜥蜴：扔炸弹鱼，无限扔总能炸死
 后面的无世界里林克的炸弹拿出来也会熄火，好像只有唯一解炸弹鱼，不知道还有没别的解法 ...</blockquote>
 炸弹鱼哪里啊。。。。。。
 
+
+*****
+
+####  Yidam  
+##### 1258#       发表于 2024-9-30 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66350954&amp;ptid=2188108" target="_blank">DARK_HGCG 发表于 2024-9-30 21:33</a>
+
+炸弹鱼哪里啊。。。。。。</blockquote>
+从河卓拉领地传送点往南走，下了瀑布朝东拐。找不到的就推主线，主线迷宫大多数都有
+
+
+*****
+
+####  新HGCG  
+##### 1259#       发表于 2024-9-30 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66350992&amp;ptid=2188108" target="_blank">Yidam 发表于 2024-9-30 21:38</a>
+
+从河卓拉领地传送点往南走，下了瀑布朝东拐。找不到的就推主线，主线迷宫大多数都有 ...</blockquote>
+谢谢
+

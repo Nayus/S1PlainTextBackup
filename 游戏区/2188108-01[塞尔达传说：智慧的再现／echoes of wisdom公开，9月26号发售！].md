@@ -7032,3 +7032,13 @@ LV.3蜥蜴：扔炸弹鱼，无限扔总能炸死
 —— 来自 鹅球 v3.2.91</blockquote>
 谢谢
 
+
+*****
+
+####  kirenyama  
+##### 1252#       发表于 2024-9-30 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66350270&amp;ptid=2188108" target="_blank">苍蓝之枪 发表于 2024-9-30 19:32</a>
+ 众神的大体量还是双世界带来的，这次无之世界其实只算是神庙的定位 体量撑不到很大的，说是梦见岛8倍的时候 ...</blockquote>
+其实是织梦岛太小了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

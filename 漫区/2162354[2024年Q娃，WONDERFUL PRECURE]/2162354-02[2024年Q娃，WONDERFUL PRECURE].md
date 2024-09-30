@@ -578,3 +578,13 @@ yysy，悟君确实在某种意义上分走了一些小麦的戏份，因为对�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  帝下室の年糕  
+##### 2282#       发表于 2024-9-30 20:52
+
+这剧场版也没BG啊，最“高光”的也是小麦和狗组羁绊
+
+不如说是300多馆大规模上映+去年全明星F扩大Q娃剧场版市场+天Q法Q两个大热前辈带来的热度三方面的综合原因<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

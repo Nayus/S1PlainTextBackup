@@ -495,3 +495,20 @@
 目前还不至于跟派对一桌吧，派对那是主线完全不需要Q娃全是男人们的恩怨情仇、作品主题和主线剧情完全脱 ...</blockquote>
 yysy，悟君确实在某种意义上分走了一些小麦的戏份，因为对所有人都好等于对所有人都不在乎，塑造很容易平面化，这种王道向粉主很需要一个能让角色立起来的抓手，而小麦本身行为逻辑就很粗线条，而且她是一条狗，难以在理想和过去之类的方面展开，那么最正常的思路就是在角色关系性上下功夫，结果她关系性最强的彩叶小姐明显已经和本作的恋爱线绑定了，那小麦可不就只剩卖卖萌了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  1096beam  
+##### 2273#       发表于 2024-9-30 15:32
+
+小麦可以和噶嗷组个CP啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  modedd  
+##### 2274#       发表于 2024-9-30 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66348630&amp;ptid=2162354" target="_blank">1096beam 发表于 2024-9-30 15:32</a>
+小麦可以和噶嗷组个CP啊</blockquote>
+致敬抱q是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

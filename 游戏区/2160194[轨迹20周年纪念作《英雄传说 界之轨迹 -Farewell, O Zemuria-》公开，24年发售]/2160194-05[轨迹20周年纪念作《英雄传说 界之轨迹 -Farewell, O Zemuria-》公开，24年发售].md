@@ -1797,3 +1797,12 @@ NSw　スプラトゥーン3
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  啪嗒啪嗒嗒  
+##### 6093#       发表于 2024-10-1 02:31
+
+第二章人形boss有点折磨了，磕糖回血，另一个疯狂上debuff，速度还快
+黎恩线打师姐四个人跟疯狗一样，有时候敌人动起来真的要等全死了才能轮到我的回合<img src="https://static.saraba1st.com/image/smiley/face2017/088.png" referrerpolicy="no-referrer">
+

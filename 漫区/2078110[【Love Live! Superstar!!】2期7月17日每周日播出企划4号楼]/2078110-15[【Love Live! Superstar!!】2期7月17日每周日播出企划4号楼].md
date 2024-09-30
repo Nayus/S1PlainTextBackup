@@ -1604,3 +1604,15 @@ op3这衣服真丑啊。准备那么久设计出这种玩意<img src="https://st
 op3这衣服真丑啊。准备那么久设计出这种玩意</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反过来说就是，压稿硬拖间隔实锤
 
+
+*****
+
+####  ads147147  
+##### 21111#       发表于 2024-9-30 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66350554&amp;ptid=2078110" target="_blank">ViyViy 发表于 2024-9-30 20:24</a>
+反过来说就是，压稿硬拖间隔实锤</blockquote>
+室田雄平真的有在干活吗？感觉他对毛妹那边更上心。。。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

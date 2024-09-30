@@ -7042,3 +7042,13 @@ LV.3蜥蜴：扔炸弹鱼，无限扔总能炸死
  众神的大体量还是双世界带来的，这次无之世界其实只算是神庙的定位 体量撑不到很大的，说是梦见岛8倍的时候 ...</blockquote>
 其实是织梦岛太小了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zyupha  
+##### 1253#       发表于 2024-9-30 21:05
+
+求助，格鲁德沙漠神殿里打一个林克和三个林克怎么打呀，宝宝完全刮痧<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX712J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

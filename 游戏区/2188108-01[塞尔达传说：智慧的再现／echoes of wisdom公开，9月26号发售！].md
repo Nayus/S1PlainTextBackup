@@ -6934,3 +6934,14 @@ LV.3蜥蜴：扔炸弹鱼，无限扔总能炸死
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 1242#       发表于 2024-9-30 19:46
+
+水迷宫我觉得是刻度线给了我错觉，一下子心里的预期度就调整到同样给了刻度的3DS时之笛，结果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过后续三个大迷宫火山雪山湿地，我第一个去的火山感觉也是挺敷衍的，雪山算最出彩的，湿地设计其实有点王国之泪的味道，也不错
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -426,3 +426,11 @@ mujica的mv还用看
 
 团名曲实装我感觉要等武藏野啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 23721#       发表于 2024-9-30 22:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png">4th估计会有op，12月正好差一个月，op可能会公布然后唱一下，团名曲实装应该要等鸡团进游戏吧
+

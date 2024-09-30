@@ -386,3 +386,18 @@ mujica的mv还用看
 
 从1st 7千快到8千人直播看live（b站），到2nd 1千2百人直播看live （b站），我们wsd啊真是太有操作了
 
+
+*****
+
+####  rikaren  
+##### 23716#       发表于 2024-9-30 22:11
+
+如果说对wsd有什么期望那大概是10.13能不能游戏实装同名曲了
+
+*****
+
+####  PDQ4  
+##### 23717#       发表于 2024-9-30 22:12
+
+10.13前能把ether mv吐出来就不错了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

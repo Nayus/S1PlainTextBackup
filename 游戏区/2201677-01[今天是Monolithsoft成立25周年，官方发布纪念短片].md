@@ -584,3 +584,19 @@ og外传又被遗忘了</blockquote>
 有舅舅说ns2护航x重置，超级期待</blockquote>
 根据那位舅舅的说法， Switch 2上个月已经发预告了
 
+
+*****
+
+####  八佾舞于潭  
+##### 62#       发表于 2024-10-1 18:47
+
+其实我觉得 OG 传说那两女主就挺有光焰的感觉的，高桥是不是偷瞄物森项目组了呀
+
+
+*****
+
+####  HATENA  
+##### 63#       发表于 2024-10-1 18:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer"> 我想玩交叉领域计划口牙
+

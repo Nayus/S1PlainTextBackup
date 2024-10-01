@@ -8001,3 +8001,15 @@ PV时，公主能举石头游泳潜水，比林**
 最终战，林克是我爹，不接受反驳
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oldttt  
+##### 1341#       发表于 2024-10-1 21:07
+
+肝了一天通了 真的好玩
+
+打boss基本一直在一边跳一边丢冰八爪鱼 没血了就在墙角躺床睡觉 我要是林克可能会气懵逼吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

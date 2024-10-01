@@ -8280,3 +8280,23 @@ PV时，公主能举石头游泳潜水，比林**
   -- 来自 能看大图 ...</blockquote>
 这作自由度这么高，应该有很多逆天玩法，速通那边肯定也要被玩坏的
 
+
+*****
+
+####  wantong  
+##### 1362#       发表于 2024-10-2 02:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66354980&amp;ptid=2188108" target="_blank">苍蓝之枪 发表于 2024-10-1 14:38</a>
+
+吓得我又去海盗船溜了一圈，并没有发现漏宝箱，大概是忘记了</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202410/02/023830ipb19pcbdd0z1bcl.png" referrerpolicy="no-referrer">
+
+<strong>搜狗截图20241002023754.png</strong> (1.06 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-2 02:38 上传
+
+遇难船，这个有水史莱姆和火幽灵的房间，上面的裂缝拿炸弹炸开，里面有金卢比
+

@@ -7351,3 +7351,12 @@ LV.3蜥蜴：扔炸弹鱼，无限扔总能炸死
 
 还是想要更“传统”一点的塞尔达啊，把果实系列再打一遍好了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  晦涩回忆  
+##### 1279#       发表于 2024-10-1 10:22
+
+pdd百亿加倍补我刷出来了269的林克传说，不知道值不值<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+有点想买，有点犹豫…
+

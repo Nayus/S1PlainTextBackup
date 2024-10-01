@@ -3954,3 +3954,11 @@ hard12级就过了牛头人，扔个麻痹中了就随便打了
 那样就直接进战斗了，他那视频里是就冲过去，然后继续地图攻击</blockquote>
 锁定之后轻攻击不会进战斗啊，按y才会
 
+
+*****
+
+####  祆天发育不良  
+##### 1087#       发表于 2024-10-1 21:18
+
+刚打了个开头，画面ui太刺眼了，smtv也只是色调阴间，这个闪烁得我要3d龙了<img src="https://static.saraba1st.com/image/smiley/face2017/157.png" referrerpolicy="no-referrer">
+

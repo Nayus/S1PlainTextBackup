@@ -8182,3 +8182,16 @@ PV时，公主能举石头游泳潜水，比林**
 舞者服装加大旋转范围就是芒果游戏中级拿全60个奖励 ...</blockquote>
 今天解锁了，青蛙跳真好用啊……
 
+
+*****
+
+####  holomoon  
+##### 1357#       发表于 2024-10-2 01:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66358518&amp;ptid=2188108" target="_blank">新HGCG 发表于 2024-10-2 00:36</a>
+
+谢谢
+
+对了，冒牌弓林克大家是怎么打的啊</blockquote>
+直接变身上前三四刀就能砍死
+

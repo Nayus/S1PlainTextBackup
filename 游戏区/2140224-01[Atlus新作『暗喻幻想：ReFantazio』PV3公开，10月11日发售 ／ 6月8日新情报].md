@@ -3862,3 +3862,11 @@ hard12级就过了牛头人，扔个麻痹中了就随便打了
 
 — from samsung SM-S926U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  RinC  
+##### 1077#       发表于 2024-10-1 13:58
+
+这代mp是不是有点吃紧啊  按以前打法乱逛打过去到门口基本就没mp了
+

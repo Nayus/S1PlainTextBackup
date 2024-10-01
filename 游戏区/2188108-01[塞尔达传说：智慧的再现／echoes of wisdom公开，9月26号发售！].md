@@ -7407,3 +7407,13 @@ pdd百亿加倍补我刷出来了269的林克传说，不知道值不值<img src
 
 问下开头的潜入玩法在后面有重现吗，感觉搭箱子潜入还有点好玩的
 
+
+*****
+
+####  mamamiya  
+##### 1284#       发表于 2024-10-1 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66353726&amp;ptid=2188108" target="_blank">马猴肥宅 发表于 2024-10-1 11:22</a>
+问下开头的潜入玩法在后面有重现吗，感觉搭箱子潜入还有点好玩的</blockquote>
+还有2次
+

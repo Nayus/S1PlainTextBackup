@@ -7498,3 +7498,21 @@ pdd百亿加倍补我刷出来了269的林克传说，不知道值不值<img src
 
 锁定功能确实太逆天了，而且居然不能切换锁定目标的？
 
+
+*****
+
+####  lilod  
+##### 1292#       发表于 2024-10-1 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66354298&amp;ptid=2188108" target="_blank">渡辺梨加 发表于 2024-10-1 12:53</a>
+
+锁定功能确实太逆天了，而且居然不能切换锁定目标的？</blockquote>
+可以切换，连点zr就是切换
+
+*****
+
+####  lilod  
+##### 1293#       发表于 2024-10-1 13:24
+
+卧槽，蜥蜴战士 lv3 好大
+

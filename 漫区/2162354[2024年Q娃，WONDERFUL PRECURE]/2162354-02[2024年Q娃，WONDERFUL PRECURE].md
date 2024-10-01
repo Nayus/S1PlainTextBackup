@@ -697,3 +697,14 @@ yysy，悟君确实在某种意义上分走了一些小麦的戏份，因为对�
 [https://x.com/hanamaru_hnkc/status/1840190749780127888](https://x.com/hanamaru_hnkc/status/1840190749780127888)
 <img src="https://p.sda1.dev/19/774e0590f2b59c7a2833d85f7aa53977/20241002_003955.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  maoyou  
+##### 2289#       发表于 2024-10-2 04:56
+
+<img src="https://p.sda1.dev/19/89d0435a57fc7c1e8007baeec7e345ad/image.jpg" referrerpolicy="no-referrer">
+真是闺闺又蜜蜜啊
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

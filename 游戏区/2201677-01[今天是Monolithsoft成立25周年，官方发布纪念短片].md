@@ -629,3 +629,27 @@ ff7好赖已经有复刻，我的怨念就差XG了
 
 — from Google Pixel 6, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  richardkisser  
+##### 67#       发表于 2024-10-1 20:32
+
+壁纸居然带了 天灾：危机之日 的，好评
+
+<img src="https://img.saraba1st.com/forum/202410/01/203036b5tm51f1l5f6jp8p.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (23.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-1 20:30 上传
+
+
+*****
+
+####  石中剑二  
+##### 68#       发表于 2024-10-1 20:34
+
+异度传说不是南梦宫的吗?
+

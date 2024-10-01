@@ -7964,3 +7964,18 @@ pdd百亿加倍补我刷出来了269的林克传说，不知道值不值<img src
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  holomoon  
+##### 1338#       发表于 2024-10-1 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66356458&amp;ptid=2188108" target="_blank">Waldeinsamkeit 发表于 2024-10-1 18:57</a>
+
+顶级芒果我用的是坠眼怪（话说这么多代了，我第一次知道这居然是个可以被打死的怪）
+
+开局先左右各放一个， ...</blockquote>
+坠眼怪在部分作品是无敌的吧
+
+电球以前作品就能打的，而且很典型的用回旋镖打会固定掉妖精回血
+

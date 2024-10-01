@@ -3927,3 +3927,13 @@ hard12级就过了牛头人，扔个麻痹中了就随便打了
 锁定后按攻击</blockquote>
 那样就直接进战斗了，他那视频里是就冲过去，然后继续地图攻击
 
+
+*****
+
+####  valpunk  
+##### 1084#       发表于 2024-10-1 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66355514&amp;ptid=2140224" target="_blank">石中剑二 发表于 2024-10-1 16:15</a>
+那样就直接进战斗了，他那视频里是就冲过去，然后继续地图攻击</blockquote>
+等级高怪物三级就不会进战斗而是直接在地图上清掉了
+

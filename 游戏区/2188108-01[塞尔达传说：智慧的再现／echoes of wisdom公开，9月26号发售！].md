@@ -8243,3 +8243,13 @@ PV时，公主能举石头游泳潜水，比林**
 
 全复制、全发条、全武器升级搞定，可以暂时封盘了，偶尔再拿出来一点点打全收集吧。
 
+
+*****
+
+####  冷泉夜月  
+##### 1359#       发表于 2024-10-2 01:57
+
+草，看到一个最无脑过赛马的视频，根本不用究极手——用旋风小怪把挡路的东西都卷上天<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

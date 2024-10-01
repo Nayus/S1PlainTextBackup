@@ -7854,3 +7854,30 @@ pdd百亿加倍补我刷出来了269的林克传说，不知道值不值<img src
 
 看到有人在研究极限低通了
 
+
+*****
+
+####  秋月孝三  
+##### 1328#       发表于 2024-10-1 18:28
+
+芒果除了高台上的需要公主屈尊去转一下之外其他的都可以滚木解决，就和用收割机一样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  INDIASH  
+##### 1329#       发表于 2024-10-1 18:31
+
+逛街逛到雪山卡住了，雪山左边传送点边上的洞窟要怎么过？用攀墙蛛上的雪山，难道没法反走<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+这个洞窟楼梯下去左边的路被大石头和三个碎岩挡住了，炸弹鱼可以解决电梯上的两个，但是最左边的我没想到方法解决
+
+
+*****
+
+####  JOJOROY  
+##### 1330#       发表于 2024-10-1 18:34
+
+希望饰品系统能保留到下一作3D作让收集要素花样多点
+

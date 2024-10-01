@@ -624,3 +624,53 @@ yysy，悟君确实在某种意义上分走了一些小麦的戏份，因为对�
 
 我一定要让你们和我体验同样的痛苦
 
+
+*****
+
+####  jaewoongh_  
+##### 2287#       发表于 2024-10-1 21:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">日推上诸位画手的创作热情颇高啊，这周播完怕是又要井喷
+
+我觉得观众只是单纯喜欢看俊男美女谈恋爱，汪Q作为子供向在这一点上写得还算不错吧
+
+<img src="https://img.saraba1st.com/forum/202410/01/215208t0go0r08z8kds00r.jpg" referrerpolicy="no-referrer">
+
+<strong>18DCB720940F8283EAF521F848D11351.jpg</strong> (193.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-1 21:52 上传
+
+<img src="https://img.saraba1st.com/forum/202410/01/215209rqpb1zhtkbhhnkf9.jpg" referrerpolicy="no-referrer">
+
+<strong>GYzqkukbQAE47UG.jpg</strong> (290.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-1 21:52 上传
+
+<img src="https://img.saraba1st.com/forum/202410/01/215210no05cmwdb9a09gwm.png" referrerpolicy="no-referrer">
+
+<strong>F093B1280E192D6C57B491A945C5ABA0.png</strong> (1.7 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-1 21:52 上传
+
+<img src="https://img.saraba1st.com/forum/202410/01/215211qvwjjbw6j8vssy6m.jpg" referrerpolicy="no-referrer">
+
+<strong>3E0E4BDAD4B9C37CB2550C9E01B6807E.jpg</strong> (981.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-1 21:52 上传
+
+<img src="https://img.saraba1st.com/forum/202410/01/215306ufv55ehklggdsm7i.png" referrerpolicy="no-referrer">
+
+<strong>F6B6F0932EF70F89E46643B2660527B4.png</strong> (1.76 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-1 21:53 上传
+

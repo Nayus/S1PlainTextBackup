@@ -3840,3 +3840,25 @@ hard都咋打的，山洞里那个火龙喷火球克探索者，都切剑士有�
 
 太换皮了感觉，没一点新IP的感觉，就是换皮P5
 
+
+*****
+
+####  supergamer2  
+##### 1075#       发表于 2024-10-1 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66330975&amp;ptid=2140224" target="_blank">walfeds 发表于 2024-9-28 15:14</a>
+打过的确实可以重打一遍，这作跳过性能确实是历代最快了
+而且我估计不少人漏掉了第一次野营过夜的黄金虫 ...</blockquote>
+要是少一个会影响白金就太粪了
+
+— from samsung SM-S926U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  supergamer2  
+##### 1076#       发表于 2024-10-1 11:04
+
+hard12级就过了牛头人，扔个麻痹中了就随便打了
+
+— from samsung SM-S926U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

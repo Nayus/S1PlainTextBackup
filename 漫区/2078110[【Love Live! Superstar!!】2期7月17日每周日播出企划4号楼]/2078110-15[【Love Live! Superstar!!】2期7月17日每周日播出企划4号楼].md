@@ -1771,3 +1771,13 @@ op3这衣服真丑啊。准备那么久设计出这种玩意</blockquote>
 
 这简介哪里写了香音觉得大家太依赖她了草……我倒觉得有点像照应この街でいまキミと了
 
+
+*****
+
+####  csolfans  
+##### 21127#       发表于 2024-10-2 00:02
+
+青山姐到北京了
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

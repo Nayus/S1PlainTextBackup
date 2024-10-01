@@ -541,3 +541,11 @@ mujica一个团队需要这么好嘛？不如说有点感觉是不是她们没�
 
 想看关系不那么好的乐队可以看隔壁团
 
+
+*****
+
+####  NODY  
+##### 23733#       发表于 2024-10-2 00:01
+
+二偶企划关系好挺常见，就不说版本T0的mh九九组虹咲，单说你邦ppp萝ras蝶也没有一个感情是不好的，隔壁才是例外<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

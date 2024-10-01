@@ -7516,3 +7516,11 @@ pdd百亿加倍补我刷出来了269的林克传说，不知道值不值<img src
 
 卧槽，蜥蜴战士 lv3 好大
 
+
+*****
+
+####  医生狼多  
+##### 1294#         楼主| 发表于 2024-10-1 13:35
+
+感觉r3完全可以设置成按一下切视角而不是一直按，有时视角差连着跳崖好几次<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

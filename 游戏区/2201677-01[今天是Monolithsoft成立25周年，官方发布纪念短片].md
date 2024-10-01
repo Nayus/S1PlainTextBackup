@@ -453,3 +453,36 @@ ns2也没消息，玩的游戏也没消息，气死我了，
 
 别急，等高桥gg推出新作，成为吉阿皮贼之王，邪恶的任地狱终将抛弃lgbt臣服于高桥gg脚下，大扔子就是TM世界的主宰！
 
+
+*****
+
+####  莉佳厨  
+##### 49#       发表于 2024-10-1 16:50
+
+来了来了，开打！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  shirolin  
+##### 50#       发表于 2024-10-1 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66355038&amp;ptid=2201677" target="_blank">pandaman7777 发表于 2024-10-1 14:49</a>
+突然想起来XB3的DLC我一直都还没打……甚至这首future awaits都是在这个视频里第一次听到
+
+副歌满满的kokoro ...</blockquote>
+值得补，推荐补
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  沧兰殇  
+##### 51#       发表于 2024-10-1 16:56
+
+呜呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/19/8160dd7445db2e2ca9a145a59345ffbd/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

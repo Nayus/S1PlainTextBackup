@@ -482,3 +482,11 @@ go的op是supalove写的，ed才是eg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">得看啥风格，抒情曲让长谷川写下还行，其他免了
 
+
+*****
+
+####  articer  
+##### 23727#       发表于 2024-10-1 16:51
+
+<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">sumimi的歌比pp更有偶像的感觉啊
+

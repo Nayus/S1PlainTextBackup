@@ -1637,3 +1637,45 @@ op3这衣服真丑啊。准备那么久设计出这种玩意</blockquote>
 
 斎藤哥都不画op碟了，ed疑似也不是。虽然还没开播，但是这一开头就给人一种又摆了的美感
 
+
+*****
+
+####  ads147147  
+##### 21114#       发表于 2024-9-30 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66350554&amp;ptid=2078110" target="_blank">ViyViy 发表于 2024-9-30 20:24</a>
+反过来说就是，压稿硬拖间隔实锤</blockquote>
+室田雄平真的有在干活吗？感觉他对毛妹那边更上心。。。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  ViyViy  
+##### 21115#       发表于 2024-9-30 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66350758&amp;ptid=2078110" target="_blank">ads147147 发表于 2024-9-30 21:00</a>
+
+室田雄平真的有在干活吗？感觉他对毛妹那边更上心。。。
+
+—— 来自 OPPO PHN110, Android 14上的 S1Next ...</blockquote>
+室田把关这个的吗？服装本标的design是中村实树和田代舞<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黒烨  
+##### 21116#       发表于 2024-9-30 22:21
+
+斎藤哥都不画op碟了，ed疑似也不是。虽然还没开播，但是这一开头就给人一种又摆了的美感
+
+*****
+
+####  ads147147  
+##### 21117#       发表于 2024-10-1 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66350919&amp;ptid=2078110" target="_blank">ViyViy 发表于 2024-9-30 21:27</a>
+室田把关这个的吗？服装本标的design是中村实树和田代舞</blockquote>
+主角色设计就算不是自己设计舞蹈服也得审稿吧，只能说你星现在越来越逆天审美了，怀疑有高层就喜欢这个。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

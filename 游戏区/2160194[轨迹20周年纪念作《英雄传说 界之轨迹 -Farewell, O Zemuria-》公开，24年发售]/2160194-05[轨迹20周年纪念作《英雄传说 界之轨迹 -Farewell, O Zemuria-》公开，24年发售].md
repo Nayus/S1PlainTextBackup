@@ -2034,3 +2034,25 @@ NSw　スプラトゥーン3
 
 吐了，最终战给我卡死了
 
+
+*****
+
+####  windtrack_qh  
+##### 6114#       发表于 2024-10-1 22:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这个老狮子怎么也骑摩托露营啊，还是大冢配音，怕不是你有个孙女叫芝麻凛吧艹
+
+
+*****
+
+####  Falcomfans  
+##### 6115#       发表于 2024-10-1 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66356837&amp;ptid=2160194" target="_blank">最终兵器狂战 发表于 2024-10-1 20:02</a>
+有个事情突然想不起来了。
+
+碧轨第二章通商会议在兰花塔里带头像的托娃会长，是从psp版本就有的么？还是后来 ...</blockquote>
+碧轨后补的内容都在这里：
+
+[https://b23.tv/osb6WaE](https://b23.tv/osb6WaE)
+

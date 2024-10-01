@@ -2000,3 +2000,29 @@ NSw　スプラトゥーン3
 
 就感觉怎么想都想不起来，越寻思越纠结。。。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 6111#       发表于 2024-10-1 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66356837&amp;ptid=2160194" target="_blank">最终兵器狂战 发表于 2024-10-1 20:02</a>
+
+有个事情突然想不起来了。
+
+碧轨第二章通商会议在兰花塔里带头像的托娃会长，是从psp版本就有的么？还是后来 ...</blockquote>
+后面补的，还有悠娜
+
+*****
+
+####  ravend233  
+##### 6112#       发表于 2024-10-1 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66356837&amp;ptid=2160194" target="_blank">最终兵器狂战 发表于 2024-10-1 20:02</a>
+有个事情突然想不起来了。
+
+碧轨第二章通商会议在兰花塔里带头像的托娃会长，是从psp版本就有的么？还是后来 ...</blockquote>
+后面有个重置版本新加的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

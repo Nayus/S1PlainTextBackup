@@ -1732,3 +1732,14 @@ op3这衣服真丑啊。准备那么久设计出这种玩意</blockquote>
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  csolfans  
+##### 21123#       发表于 2024-10-1 20:15
+
+<img src="https://p.sda1.dev/19/7fedd358293126c0ce34774a87db14e4/CMP_20241001201459781.jpg" referrerpolicy="no-referrer">
+三期简介
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

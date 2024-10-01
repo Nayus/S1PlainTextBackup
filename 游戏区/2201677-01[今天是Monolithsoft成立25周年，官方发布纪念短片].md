@@ -619,3 +619,13 @@ ff7好赖已经有复刻，我的怨念就差XG了
 
 不管是新作还是复刻，赶紧端点东西出来吧，算算周期也该差不多了
 
+
+*****
+
+####  是这样  
+##### 66#       发表于 2024-10-1 20:08
+
+好想玩og传说新作<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+— from Google Pixel 6, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

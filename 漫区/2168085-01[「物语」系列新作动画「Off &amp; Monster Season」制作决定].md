@@ -208,3 +208,11 @@ shaft这种开头巅峰然后画面越做越崩坏最后逐渐万策尽甚至还
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  oi99o  
+##### 950#       发表于 2024-10-2 01:12
+
+tv版愚物语好像真的给剪成了25分钟的版本（包括ed）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

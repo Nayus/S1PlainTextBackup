@@ -8139,3 +8139,46 @@ PV时，公主能举石头游泳潜水，比林**
 
 用尖叫怪定住然后扔石头或者直接冲上去砍
 
+
+*****
+
+####  jtwing  
+##### 1354#       发表于 2024-10-2 01:11
+
+<img src="https://img.saraba1st.com/forum/202410/02/011054w5abomilhvjfzah5.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_1484.JPG</strong> (1.12 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-2 01:10 上传
+
+这个洞要怎么下去啊？<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer"> 用了罐子声东击西也不行
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lilod  
+##### 1355#       发表于 2024-10-2 01:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66358728&amp;ptid=2188108" target="_blank">jtwing 发表于 2024-10-2 01:11</a>
+这个洞要怎么下去啊？ 用了罐子声东击西也不行
+
+—— 来自 S1Fun</blockquote>
+有支线 逛一下
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  马猴肥宅  
+##### 1356#       发表于 2024-10-2 01:15
+
+<blockquote>anfangzhan 发表于 2024-10-1 15:35
+青蛙戒指加强跳跃是主线海拉鲁城堡迷宫拿
+
+舞者服装加大旋转范围就是芒果游戏中级拿全60个奖励 ...</blockquote>
+今天解锁了，青蛙跳真好用啊……
+

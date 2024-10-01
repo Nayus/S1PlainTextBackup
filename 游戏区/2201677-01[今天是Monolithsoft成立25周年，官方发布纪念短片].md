@@ -415,3 +415,22 @@ ns2 上至少两作，活着真好
 非常喜欢3代，感觉是蜕变。</blockquote>
 dlc历代最强，主线结局后劲也十足，不晓得为啥口碑不如二。
 
+
+*****
+
+####  ppa11  
+##### 45#       发表于 2024-10-1 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66355275&amp;ptid=2201677" target="_blank">fallanger 发表于 2024-10-1 15:33</a>
+3代劝退的大多是路人粉和2代粉</blockquote>
+3里的1代内容做好了吗就扣给2代
+
+—— 來自 [鵝球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  SorroFrost  
+##### 46#       发表于 2024-10-1 16:09
+
+可惜没有xg
+

@@ -600,3 +600,14 @@ og外传又被遗忘了</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer"> 我想玩交叉领域计划口牙
 
+
+*****
+
+####  pandaman7777  
+##### 64#       发表于 2024-10-1 19:52
+
+se再这么作下去不知道有没机会remake XG了
+ff7好赖已经有复刻，我的怨念就差XG了
+
+—— 来自 OnePlus PHB110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

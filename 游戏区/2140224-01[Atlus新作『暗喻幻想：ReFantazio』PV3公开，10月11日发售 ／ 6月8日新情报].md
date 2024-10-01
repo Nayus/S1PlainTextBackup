@@ -3870,3 +3870,13 @@ hard12级就过了牛头人，扔个麻痹中了就随便打了
 
 这代mp是不是有点吃紧啊  按以前打法乱逛打过去到门口基本就没mp了
 
+
+*****
+
+####  战术核辣条  
+##### 1078#       发表于 2024-10-1 14:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">吃紧吗...我一路全杀流也就打龙磕了两个mp饮料
+
+—— 来自 nubia NX729J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

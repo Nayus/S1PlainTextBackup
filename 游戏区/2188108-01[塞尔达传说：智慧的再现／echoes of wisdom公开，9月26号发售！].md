@@ -8039,3 +8039,21 @@ PV时，公主能举石头游泳潜水，比林**
 
 下一作正作能不能把宝可梦系统做进去
 
+
+*****
+
+####  leina0602  
+##### 1345#       发表于 2024-10-1 22:10
+
+游戏体验秒杀王国之泪，这就是我想要的塞尔达传说<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  我在干什么啊  
+##### 1346#       发表于 2024-10-1 22:14
+
+这作林克只要不归隐山林感觉基本上就是右基将军的接班人了吧
+

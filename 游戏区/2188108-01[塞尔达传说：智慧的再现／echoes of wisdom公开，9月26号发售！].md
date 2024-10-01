@@ -7668,3 +7668,16 @@ pdd百亿加倍补我刷出来了269的林克传说，不知道值不值<img src
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  bird-lay  
+##### 1310#       发表于 2024-10-1 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66354775&amp;ptid=2188108" target="_blank">苍蓝之枪 发表于 2024-10-1 14:05</a>
+
+大型主体机关和小房间分步去摆弄这个大型主机关是3D系的特点，
+
+2D系感觉其实不是特别注重这个 ...</blockquote>
+2d系也有，还会有一些不同层的房间上下联动的设计，通关了会对迷宫的整体结构有个大概的印象
+

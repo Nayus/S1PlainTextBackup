@@ -248,3 +248,81 @@ ws的歌也太一言难尽了
 
 沈大雷的粉丝惹不起，最好和她们保持距离
 
+
+*****
+
+####  GAdoru  
+##### 1371#       发表于 2024-9-30 11:51
+
+可恶，抽干了库存也没出airi
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  虚无缥缈的光阴  
+##### 1372#       发表于 2024-9-30 13:31
+
+草了，国服还真有中文歌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  kyonko15  
+##### 1373#       发表于 2024-9-30 13:57
+
+<img src="https://img.saraba1st.com/forum/202409/30/135609ivptwwfwz42y2v2v.jpg" referrerpolicy="no-referrer">
+
+<strong>1000015858.jpg</strong> (94.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-30 13:56 上传
+
+国服运营对社区的乱象还是挺清楚的。就是官方居然这么清楚不友善的言论，多少有点不友善了
+
+*****
+
+####  kyonko15  
+##### 1374#       发表于 2024-9-30 14:01
+
+<img src="https://img.saraba1st.com/forum/202409/30/140108apjpdjkaf3q3fnka.jpg" referrerpolicy="no-referrer">
+
+<strong>1000015859.jpg</strong> (18.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-30 14:01 上传
+
+脑内一下子想到的图片有点多了
+
+*****
+
+####  kangkangsama  
+##### 1375#       发表于 2024-9-30 14:47
+
+ 本帖最后由 kangkangsama 于 2024-9-30 14:50 编辑 
+<blockquote>kyonko15 发表于 2024-9-30 13:57
+国服运营对社区的乱象还是挺清楚的。就是官方居然这么清楚不友善的言论，多少有点不友善了 ...</blockquote>
+
+坏狗的歌也太一言难尽了
+
+看到走走和马马一起就烦
+
+沈大雷的粉丝惹不起，最好和她们保持距离
+
+*****
+
+####  skives  
+##### 1376#       发表于 2024-10-1 11:55
+
+<img src="https://img.saraba1st.com/forum/202410/01/115505npzrnk5mrr0zzv5l.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9884.jpeg</strong> (190.74 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-10-1 11:55 上传
+

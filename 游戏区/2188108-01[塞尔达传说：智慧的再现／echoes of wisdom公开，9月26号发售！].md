@@ -8013,3 +8013,13 @@ PV时，公主能举石头游泳潜水，比林**
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  KBAC  
+##### 1342#       发表于 2024-10-1 21:44
+
+（这作的boss怎么像是星之卡比片场来的）
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

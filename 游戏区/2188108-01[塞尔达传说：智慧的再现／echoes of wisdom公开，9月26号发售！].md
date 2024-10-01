@@ -7894,3 +7894,29 @@ pdd百亿加倍补我刷出来了269的林克传说，不知道值不值<img src
 —— 来自 OPPO PDEM3 ...</blockquote>
 高台跳一下就能直接丢上去了，反而地上有刺的地方没法滚木
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 1332#       发表于 2024-10-1 18:57
+
+ 本帖最后由 Waldeinsamkeit 于 2024-10-1 18:58 编辑 
+
+顶级芒果我用的是坠眼怪（话说这么多代了，我第一次知道这居然是个可以被打死的怪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+
+开局先左右各放一个，然后公主满场转，俩高台上芒果刷新了就靠近高台让台子自己坠下来，试了两次就过了
+
+林克传说确实给我刷新了对一些系列老怪的印象，我躲了那么多代的电球、坠眼怪还有那个直线跑来跑去的带刃转盘，原来这些都是可以打掉的吗<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yidam  
+##### 1333#       发表于 2024-10-1 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66356323&amp;ptid=2188108" target="_blank">INDIASH 发表于 2024-10-1 18:31</a>
+
+逛街逛到雪山卡住了，雪山左边传送点边上的洞窟要怎么过？用攀墙蛛上的雪山，难道没法反走
+
+这个洞窟楼梯下 ...</blockquote>
+这条是上山道，入口就在山下，远古森林右边<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">是主线的正路
+

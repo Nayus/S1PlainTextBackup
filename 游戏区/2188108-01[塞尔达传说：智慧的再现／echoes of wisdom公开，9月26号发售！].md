@@ -8253,3 +8253,30 @@ PV时，公主能举石头游泳潜水，比林**
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  jtwing  
+##### 1360#       发表于 2024-10-2 02:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66358737&amp;ptid=2188108" target="_blank">lilod 发表于 2024-10-2 01:12</a>
+有支线 逛一下
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">好的，我去找找
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  liekong  
+##### 1361#       发表于 2024-10-2 02:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66358983&amp;ptid=2188108" target="_blank">冷泉夜月 发表于 2024-10-2 01:57</a>
+
+草，看到一个最无脑过赛马的视频，根本不用究极手——用旋风小怪把挡路的东西都卷上天
+
+  -- 来自 能看大图 ...</blockquote>
+这作自由度这么高，应该有很多逆天玩法，速通那边肯定也要被玩坏的
+

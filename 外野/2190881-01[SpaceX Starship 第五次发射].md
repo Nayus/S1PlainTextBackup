@@ -77,3 +77,19 @@ SpaceX又发布了更多B12+S30组合体照片
 
 2024-9-29 21:31 上传
 
+
+*****
+
+####  commcody  
+##### 73#         楼主| 发表于 2024-10-2 01:04
+
+9月30日，S30被从B12拆下，同时热分离环也被吊车拆下。
+
+<img src="https://img.saraba1st.com/forum/202410/02/010332z33vx3n2n93zxrmz.jpg" referrerpolicy="no-referrer">
+
+<strong>GYwRw2RWsAAlwtQ.jpg</strong> (540.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-2 01:03 上传
+

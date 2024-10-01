@@ -71,3 +71,15 @@
 这个超合金的非凡强袭自由也太惨了吧，已经跌得比原价还要低了，完全没炒起来，估计那群导爷后悔死了 ...</blockquote>
 在超合金系列里这个战绩已经算不错的了
 
+
+*****
+
+####  Promeus  
+##### 1966#       发表于 2024-10-2 00:38
+
+<img src="https://p.sda1.dev/19/2d76b2faa991622fcdb6a02a7301837c/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/0a01e5adad193c710a75ea0d35f176be/image.jpg" referrerpolicy="no-referrer">
+万代24年白皮书对种自的总结
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

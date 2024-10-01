@@ -8124,3 +8124,18 @@ PV时，公主能举石头游泳潜水，比林**
 
 就召唤吹风机出来头顶着冲过去，距离近了就扔吹风机砸
 
+
+*****
+
+####  就是剑鞘  
+##### 1353#       发表于 2024-10-2 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66358518&amp;ptid=2188108" target="_blank">新HGCG 发表于 2024-10-2 00:36</a>
+
+谢谢
+
+对了，冒牌弓林克大家是怎么打的啊</blockquote>
+就是你上面问的那个啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+用尖叫怪定住然后扔石头或者直接冲上去砍
+

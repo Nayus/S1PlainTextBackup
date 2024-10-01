@@ -8096,3 +8096,14 @@ PV时，公主能举石头游泳潜水，比林**
 
 沙漠里那个尖叫怪怎么破尖叫？
 
+
+*****
+
+####  Yidam  
+##### 1351#       发表于 2024-10-2 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66358210&amp;ptid=2188108" target="_blank">新HGCG 发表于 2024-10-1 23:44</a>
+
+沙漠里那个尖叫怪怎么破尖叫？</blockquote>
+躲罐子里，但是这个设计应该是让你召不吃尖叫的宝可梦对战<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">我是直接放水块秒了
+

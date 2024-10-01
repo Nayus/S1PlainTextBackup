@@ -8023,3 +8023,19 @@ PV时，公主能举石头游泳潜水，比林**
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  星花  
+##### 1343#       发表于 2024-10-1 21:58
+
+卡比的最终ＢＯＳＳ要比这厉害多了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jabeck  
+##### 1344#       发表于 2024-10-1 22:05
+
+下一作正作能不能把宝可梦系统做进去
+

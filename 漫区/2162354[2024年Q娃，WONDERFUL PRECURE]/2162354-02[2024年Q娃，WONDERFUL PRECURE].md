@@ -708,3 +708,14 @@ yysy，悟君确实在某种意义上分走了一些小麦的戏份，因为对�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  starring  
+##### 2290#       发表于 2024-10-2 07:17
+
+悟哥哥才是魅魔吧，三年来把彩羽迷得丢了大脑<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+悟哥哥奔跑内心呐喊那一段，要是换个性别就是标准的变身入队情节，可惜你是个男人
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

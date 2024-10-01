@@ -7524,3 +7524,76 @@ pdd百亿加倍补我刷出来了269的林克传说，不知道值不值<img src
 
 感觉r3完全可以设置成按一下切视角而不是一直按，有时视角差连着跳崖好几次<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  秋月孝三  
+##### 1295#       发表于 2024-10-1 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66353726&amp;ptid=2188108" target="_blank">马猴肥宅 发表于 2024-10-1 11:22</a>
+问下开头的潜入玩法在后面有重现吗，感觉搭箱子潜入还有点好玩的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后面就没有朴素的搭箱子潜入了，都是花式戏耍守卫
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  Linkwjj  
+##### 1296#       发表于 2024-10-1 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66353890&amp;ptid=2188108" target="_blank">lilod 发表于 2024-10-1 11:52</a>
+
+摘芒果小游戏苦手的一定要试试版本答案，尖刺圆木（</blockquote>
+高难度初见都能过，这个很难吗<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lilod  
+##### 1297#       发表于 2024-10-1 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66354597&amp;ptid=2188108" target="_blank">Linkwjj 发表于 2024-10-1 13:39</a>
+高难度初见都能过，这个很难吗</blockquote>
+我试了好几次才拿完70个。。。。你操作比我好
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  就是剑鞘  
+##### 1298#       发表于 2024-10-1 13:40
+
+感觉大迷宫最大的问题是没有形成一个整体，单纯是很多小解谜的集合
+往好处想还有很大的进步余地，宝可梦这么好玩的机制总不能用了一作就不用了吧，那种事情不要啊<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一个陆仁贾  
+##### 1299#       发表于 2024-10-1 13:40
+
+夺旗游戏那个短距离赛道就应该放最高难度<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+
+*****
+
+####  Waldeinsamkeit  
+##### 1300#       发表于 2024-10-1 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66353970&amp;ptid=2188108" target="_blank">lilod 发表于 2024-10-1 12:07</a>
+不奇怪，老3D塞的销量上限就是黄昏公主wii了
+
+2025 年的玩家已经接受不了 3 到 4 小时一个迷宫的解谜+战 ...</blockquote>
+老3D塞销量上限是时之笛，N64+3DS卖了千万(760万+644万），这也是野炊之前唯一磨过千万的3D塞
+当然如果你说单平台上限，那确实是黄昏公主的885万没问题<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+天剑重制（415万）也算是给老3D塞在当今时代探了个底……可能也有操作原因影响？但比起野炊的3000万王泪的2000万，几百万销量的3D塞确实时代眼泪了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  苍蓝之枪  
+##### 1301#       发表于 2024-10-1 13:45
+
+短距离赛道确实是尝试最久的，时间卡得非常紧
+

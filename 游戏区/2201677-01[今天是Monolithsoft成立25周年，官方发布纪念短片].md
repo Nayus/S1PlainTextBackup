@@ -699,3 +699,22 @@ NXC PXZ 无限边境的制作人+导演兼编剧17年就离开mono了
 
 明年能不能有新作啊等不及了
 
+
+*****
+
+####  liekong  
+##### 74#       发表于 2024-10-2 04:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66357178&amp;ptid=2201677" target="_blank">飛鳥了 发表于 2024-10-1 20:57</a>
+
+估计kosmos的形象是归mono的？
+
+从nds版异度传说1+2开始，kosmos登场客串游戏都是老任独占的 ...</blockquote>
+完全归mono肯定不可能，万南怎么会随便放掉能赚钱的东西，
+
+有kosmos出场的游戏版权信息也会标上万南。
+
+我猜测是mono是跟万南共享了kosmos的版权，
+
+而只有XB2造型的kosmos是能不用跟万南打招呼随便用的。
+

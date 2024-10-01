@@ -1679,3 +1679,33 @@ op3这衣服真丑啊。准备那么久设计出这种玩意</blockquote>
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  csolfans  
+##### 21118#       发表于 2024-10-1 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66355752&amp;ptid=2078110" target="_blank">黒烨 发表于 2024-10-1 16:54</a>
+说半天这啥风格，也就懂这方面的少数粉丝能理解。但大多数粉丝就知道个好看不好看，再说你对比前代最终动画 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">话说我一直以为4巡之后服装设计换人了，查了查资料才知道设计其实来来去去就那帮人。只能说……不好说
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  csolfans  
+##### 21119#       发表于 2024-10-1 17:04
+
+随便隔壁说内区后场700就能买到了……绷
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  csolfans  
+##### 21120#       发表于 2024-10-1 17:05
+
+<img src="https://p.sda1.dev/19/0ad47701563080a25888798ba8672c57/CMP_20241001170527483.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

@@ -1098,3 +1098,17 @@ PS：除了每日一折付费单抽外，不建议在瓦尔吉普斯之夜外的
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
 
+
+*****
+
+####  菟原手兒奈  
+##### 900#       发表于 2024-10-1 15:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">一夜又一上午终于推完第六章了，最后的连战强度太高，还好最后不用下地牢
+
+手上只有个半残沉沦队，只能说这条命都是狼夫给的，没有狼夫不知道这几场要怎么打
+
+目前主线卡比较久的就是大笠王，还是临时拉了一队充能才过的，第六章还好机制没有特别克制我的沉沦队
+
+接下来得4号线坐牢了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

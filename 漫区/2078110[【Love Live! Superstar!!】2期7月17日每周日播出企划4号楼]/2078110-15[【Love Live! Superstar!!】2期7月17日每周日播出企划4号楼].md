@@ -1804,3 +1804,47 @@ op3这衣服真丑啊。准备那么久设计出这种玩意</blockquote>
 
 说到摆，动画这周都要播了，就只有一个pv，还50%都是素材复用……打个毛，投了吧
 
+
+*****
+
+####  csolfans  
+##### 21130#       发表于 2024-10-2 00:02
+
+青山姐到北京了
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  ViyViy  
+##### 21131#       发表于 2024-10-2 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66358159&amp;ptid=2078110" target="_blank">黒烨 发表于 2024-10-1 23:35</a>
+
+这简介哪里写了香音觉得大家太依赖她了草……我倒觉得有点像照应この街でいまキミと了 ...</blockquote>
+结合上下文的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+二期的时候就很喜欢借二期生的口捧香音，强调没了香音楼就摇摇欲坠的印象，最逆天的就是小千还想自作主张让香音走然后解散liella，最后欺师灭祖的“实现我的故事”；
+
+三期又把老祖宗本捡回来说哎呀我们这是大家实现的故事，PV可是当着所有人的面说自己不归队了，总要有个理由辩解自己为什么不归队。
+
+*****
+
+####  离心  
+##### 21132#       发表于 2024-10-2 00:47
+
+ 本帖最后由 离心 于 2024-10-2 00:59 编辑 
+
+说到摆，动画这周都要播了，就只有一个pv，还50%都是素材复用……打个毛，投了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 21133#       发表于 2024-10-2 07:30
+
+花田剧本的大病不就是喊口号，只要他重复重复再重复的喊，总有人会信的。
+
+哪怕一二三期主题都在变。这样看不太可能会有始空的登场空间了，或许会夺冠后安可？
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

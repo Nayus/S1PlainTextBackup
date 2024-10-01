@@ -7954,3 +7954,13 @@ pdd百亿加倍补我刷出来了269的林克传说，不知道值不值<img src
 地图体量好小，5个小时打到沙漠开了四分一的图
 好玩是好玩，不过道具怪物重复度有点高
 
+
+*****
+
+####  罗克萨斯  
+##### 1337#       发表于 2024-10-1 20:06
+
+当大家都差不多完美的时候，我香港直邮的卡带终于到手了，这几天都没敢看专楼<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

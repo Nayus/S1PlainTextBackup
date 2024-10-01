@@ -611,3 +611,11 @@ ff7好赖已经有复刻，我的怨念就差XG了
 
 —— 来自 OnePlus PHB110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  沙发果冻  
+##### 65#       发表于 2024-10-1 20:04
+
+不管是新作还是复刻，赶紧端点东西出来吧，算算周期也该差不多了
+

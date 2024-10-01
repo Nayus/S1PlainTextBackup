@@ -7881,3 +7881,16 @@ pdd百亿加倍补我刷出来了269的林克传说，不知道值不值<img src
 
 希望饰品系统能保留到下一作3D作让收集要素花样多点
 
+
+*****
+
+####  onlv星骸  
+##### 1331#       发表于 2024-10-1 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66356306&amp;ptid=2188108" target="_blank">秋月孝三 发表于 2024-10-1 18:28</a>
+
+芒果除了高台上的需要公主屈尊去转一下之外其他的都可以滚木解决，就和用收割机一样
+
+—— 来自 OPPO PDEM3 ...</blockquote>
+高台跳一下就能直接丢上去了，反而地上有刺的地方没法滚木
+

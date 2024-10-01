@@ -573,3 +573,14 @@ kosmos用的还是叉刀2的模型<img src="https://static.saraba1st.com/image/s
 og外传又被遗忘了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">og都死了，外传就别想了
 
+
+*****
+
+####  JOJOROY  
+##### 61#       发表于 2024-10-1 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66356254&amp;ptid=2201677" target="_blank">benhawk 发表于 2024-10-1 18:19</a>
+
+有舅舅说ns2护航x重置，超级期待</blockquote>
+根据那位舅舅的说法， Switch 2上个月已经发预告了
+

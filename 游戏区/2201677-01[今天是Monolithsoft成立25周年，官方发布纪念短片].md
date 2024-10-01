@@ -514,3 +514,44 @@ ns2也没消息，玩的游戏也没消息，气死我了，
 
 新作赶紧端上来吧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lion_or_judas  
+##### 55#       发表于 2024-10-1 18:10
+
+mono社玩通关的游戏有xs3 xbde xb2 xb3
+
+然后nxc 因为又臭又长打了好几次都没通关
+
+xs1和2是云通关
+
+因为是mono社所以也不能算xg
+
+*****
+
+####  秋月孝三  
+##### 56#       发表于 2024-10-1 18:13
+
+kosmos用的还是叉刀2的模型<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  P-link  
+##### 57#       发表于 2024-10-1 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66355843&amp;ptid=2201677" target="_blank">酱油毛玉 发表于 2024-10-01 17:08:29</a>
+所以交叉领域和灵光守护者还有机会出新作吗？</blockquote>交叉领域这种几个厂的IP的人物拿来做游戏，得有个人缘很好说的上事的大佬牵头。难。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  pf67  
+##### 58#       发表于 2024-10-1 18:15
+
+笑死，一个周年纪念视频，回帖都什么玩意
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

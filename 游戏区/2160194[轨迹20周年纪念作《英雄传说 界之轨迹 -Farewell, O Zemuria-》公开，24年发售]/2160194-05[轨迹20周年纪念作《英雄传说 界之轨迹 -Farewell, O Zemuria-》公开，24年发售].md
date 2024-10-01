@@ -2080,3 +2080,11 @@ NSw　スプラトゥーン3
 
 哪怕是性能再差的角色，在配上双诗+ep驱动套之后，都会变成骄傲的回条魔法发射器<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jacket  
+##### 6119#       发表于 2024-10-1 23:44
+
+路边卖能量饮料的妹子都有赛车女王穿，我还没的穿
+

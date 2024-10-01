@@ -3880,3 +3880,16 @@ hard12级就过了牛头人，扔个麻痹中了就随便打了
 
 —— 来自 nubia NX729J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  GameTheory  
+##### 1079#       发表于 2024-10-1 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66350212&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-9-30 19:24</a>
+
+牛头人最稳妥的打法，还是 掷冰三连+三剑士合体攻击，一轮下来伤害1100+，牛头人根本撑不了几轮。尝试过 旅 ...</blockquote>
+骑士就是个防御向的职业 20级也没攻击性技能 试玩版3个物理职业就剑士输出还行
+
+另外这游戏人物mp上限高，技能耗费少，打惯了真系列开始还不太习惯
+

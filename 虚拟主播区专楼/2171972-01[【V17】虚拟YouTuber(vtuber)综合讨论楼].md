@@ -184,3 +184,11 @@ idios3D全播完了，后续倒是没啥了，等两周年看看会不会3D全�
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Harunoharu  
+##### 795#       发表于 2024-10-1 19:18
+
+莉泽不管是立绘还是3d都吃了太早出生的亏，藤原这两年画画很明显比19年那会又进化了
+

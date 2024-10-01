@@ -8057,3 +8057,11 @@ PV时，公主能举石头游泳潜水，比林**
 
 这作林克只要不归隐山林感觉基本上就是右基将军的接班人了吧
 
+
+*****
+
+####  heseran  
+##### 1347#       发表于 2024-10-1 22:55
+
+繁中翻译怎么“他她它”不分啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全用“他”
+

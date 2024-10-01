@@ -2056,3 +2056,11 @@ NSw　スプラトゥーン3
 
 [https://b23.tv/osb6WaE](https://b23.tv/osb6WaE)
 
+
+*****
+
+####  卡拉德利姆  
+##### 6116#       发表于 2024-10-1 22:48
+
+老狮子全面致敬mgs啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

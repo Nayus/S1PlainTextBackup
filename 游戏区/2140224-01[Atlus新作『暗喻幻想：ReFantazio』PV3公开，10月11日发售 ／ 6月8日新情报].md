@@ -3815,3 +3815,11 @@ hard都咋打的，山洞里那个火龙喷火球克探索者，都切剑士有�
 
 看不懂这牛头人伤害。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卡拉德利姆  
+##### 1072#       发表于 2024-10-1 09:31
+
+回旋镖不是动画一开场就有吗
+

@@ -653,3 +653,27 @@ ff7好赖已经有复刻，我的怨念就差XG了
 
 异度传说不是南梦宫的吗?
 
+
+*****
+
+####  飛鳥了  
+##### 69#       发表于 2024-10-1 20:55
+
+NXC PXZ 无限边境的制作人+导演兼编剧17年就离开mono了
+
+这两人原本都是眼镜社的老员工，走了基本上说明以后除了kosmos客串这种，mono很难和万代有合作了吧
+
+拔天海拓史hd都是万代自己弄的
+
+*****
+
+####  飛鳥了  
+##### 70#       发表于 2024-10-1 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66357018&amp;ptid=2201677" target="_blank">石中剑二 发表于 2024-10-1 20:34</a>
+
+异度传说不是南梦宫的吗?</blockquote>
+估计kosmos的形象是归mono的？
+
+从nds版异度传说1+2开始，kosmos登场客串游戏都是老任独占的
+

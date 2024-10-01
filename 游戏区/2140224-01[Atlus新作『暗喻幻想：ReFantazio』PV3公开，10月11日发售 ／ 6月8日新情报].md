@@ -3807,3 +3807,11 @@ hard都咋打的，山洞里那个火龙喷火球克探索者，都切剑士有�
 
 目前女角感觉最好看的是大爷留下的姘头遗孀狐娘嫂子…
 
+
+*****
+
+####  Schwarzess  
+##### 1071#       发表于 2024-10-1 09:18
+
+看不懂这牛头人伤害。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

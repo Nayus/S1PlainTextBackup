@@ -1743,3 +1743,11 @@ op3这衣服真丑啊。准备那么久设计出这种玩意</blockquote>
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  starring  
+##### 21124#       发表于 2024-10-1 20:45
+
+看到ApolloBay一下子跑了两个女CV
+

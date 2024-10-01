@@ -7920,3 +7920,25 @@ pdd百亿加倍补我刷出来了269的林克传说，不知道值不值<img src
 这个洞窟楼梯下 ...</blockquote>
 这条是上山道，入口就在山下，远古森林右边<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">是主线的正路
 
+
+*****
+
+####  kuarwbwe  
+##### 1334#       发表于 2024-10-1 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66356334&amp;ptid=2188108" target="_blank">JOJOROY 发表于 2024-10-1 18:34</a>
+希望饰品系统能保留到下一作3D作让收集要素花样多点</blockquote>
+饰品就是对表野炊王泪的衣服吧。<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  INDIASH  
+##### 1335#       发表于 2024-10-1 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66356468&amp;ptid=2188108" target="_blank">Yidam 发表于 2024-10-1 18:59</a>
+
+这条是上山道，入口就在山下，远古森林右边是主线的正路</blockquote>
+逆时针逛街从河卓拉村翻上来的，上来就是三级猪的洞窟<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

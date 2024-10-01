@@ -3979,3 +3979,19 @@ hard12级就过了牛头人，扔个麻痹中了就随便打了
 
 异世界版本的女神异闻录
 
+
+*****
+
+####  sarasaramx6  
+##### 1090#       发表于 2024-10-2 00:31
+
+<img src="https://img.saraba1st.com/forum/202410/02/003117wcqninwgiuuwz9nu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4634.jpeg</strong> (825.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-2 00:31 上传
+
+路过上海百联，突然发现楼顶有一只杰克霜精，阿特拉斯竟然还在国内做了线下宣发，惊了
+

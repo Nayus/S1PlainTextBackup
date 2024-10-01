@@ -8107,3 +8107,20 @@ PV时，公主能举石头游泳潜水，比林**
 沙漠里那个尖叫怪怎么破尖叫？</blockquote>
 躲罐子里，但是这个设计应该是让你召不吃尖叫的宝可梦对战<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">我是直接放水块秒了
 
+
+*****
+
+####  新HGCG  
+##### 1352#       发表于 2024-10-2 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66358366&amp;ptid=2188108" target="_blank">Yidam 发表于 2024-10-2 00:08</a>
+
+躲罐子里，但是这个设计应该是让你召不吃尖叫的宝可梦对战我是直接放水块秒了 ...</blockquote>
+谢谢
+
+对了，冒牌弓林克大家是怎么打的啊
+
+我发现吹风机可以让普通箭无效（蓄力弓还是吹不掉）
+
+就召唤吹风机出来头顶着冲过去，距离近了就扔吹风机砸
+

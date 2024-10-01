@@ -1709,3 +1709,16 @@ op3这衣服真丑啊。准备那么久设计出这种玩意</blockquote>
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  eee2109298  
+##### 21121#       发表于 2024-10-1 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66347640&amp;ptid=2078110" target="_blank">csolfans 发表于 2024-9-30 13:36</a>
+
+我……不好评价……
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 v3.0.0-alpha ...</blockquote>
+好拥挤啊
+

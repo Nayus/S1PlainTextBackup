@@ -1964,3 +1964,19 @@ NSw　スプラトゥーン3
 
 居然还是要测试（诗挺难测的）
 
+
+*****
+
+####  windtrack_qh  
+##### 6108#       发表于 2024-10-1 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66355250&amp;ptid=2160194" target="_blank">skullgreymon 发表于 2024-10-1 15:29</a>
+交换用的饰品错过了后面能补吗？前期没钱第一章全忘了买….
+
+另想请教这一作钓鱼是不是不用刻意去钓了，看日 ...</blockquote>
+可以 第二章之前的都行 剑圣队打完第二章换地图就补不了了
+
+鱼后面庭院全能补
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

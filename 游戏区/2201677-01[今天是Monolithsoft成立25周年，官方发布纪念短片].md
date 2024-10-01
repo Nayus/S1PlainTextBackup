@@ -555,3 +555,21 @@ kosmos用的还是叉刀2的模型<img src="https://static.saraba1st.com/image/s
 
 —— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  benhawk  
+##### 59#       发表于 2024-10-1 18:19
+
+有舅舅说ns2护航x重置，超级期待
+
+
+*****
+
+####  Andariel  
+##### 60#       发表于 2024-10-1 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66355018&amp;ptid=2201677" target="_blank">彬噜 发表于 2024-10-1 14:44</a>
+og外传又被遗忘了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">og都死了，外传就别想了
+

@@ -7942,3 +7942,15 @@ pdd百亿加倍补我刷出来了269的林克传说，不知道值不值<img src
 这条是上山道，入口就在山下，远古森林右边是主线的正路</blockquote>
 逆时针逛街从河卓拉村翻上来的，上来就是三级猪的洞窟<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ping117  
+##### 1336#       发表于 2024-10-1 19:46
+
+整体画质很好，就是野炊2.5d版
+体感比织梦岛性能还好，织梦岛现在还记得当初有多卡<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+地图体量好小，5个小时打到沙漠开了四分一的图
+好玩是好玩，不过道具怪物重复度有点高
+

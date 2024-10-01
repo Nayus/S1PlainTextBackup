@@ -7360,3 +7360,26 @@ LV.3蜥蜴：扔炸弹鱼，无限扔总能炸死
 pdd百亿加倍补我刷出来了269的林克传说，不知道值不值<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 有点想买，有点犹豫…
 
+
+*****
+
+####  就是剑鞘  
+##### 1280#       发表于 2024-10-1 10:43
+
+【智慧的再现】钓鱼？钓鱼！钓鱼？钓鱼！钓鱼？钓鱼！嘿嘿嘿嘿嘿嘿！😍😍😍😍😍😍！
+[https://www.bilibili.com/video/BV16xsoeUE9P/](https://www.bilibili.com/video/BV16xsoeUE9P/)
+
+鲨鱼在岸上居然能继续攻击，好凶
+
+
+*****
+
+####  Nez  
+##### 1281#       发表于 2024-10-1 10:45
+
+通关了，差6个心之碎片和11个能元块，暂时收工了。最终战前没多安排几个林塞双人谜题有点可惜
+
+这作的战斗意外地有趣，每个阶段都有不同的乐子。前期是捉虫少女的宝可梦战斗，中期是pvz五个寒冰射手章鱼哥社保一切，后期直接变成替身使者遇事不决就召唤无敌的蜥蜴之星开始欧拉突刺<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">困难模式下最终boss战打得很过瘾。不过锁定是真的逆天，还有人物朝向的控制手感也有点怪，搭桥搭台阶总是对不准。
+
+对我来说这作才是在开放式谜题的路上走对了方向，复制能力比究极手更简单直观，也能通过进一步压缩规划和操作量来鼓励玩家整活。用自己的创意攻关时那种“灵光一闪”的体验也更鲜明。总结就是王泪的桃子都被智慧再现给摘了，意难平啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">顺便再一次给传统迷宫上柱香
+

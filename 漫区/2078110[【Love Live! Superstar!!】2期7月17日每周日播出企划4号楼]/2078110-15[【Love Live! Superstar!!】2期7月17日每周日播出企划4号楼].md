@@ -1722,3 +1722,13 @@ op3这衣服真丑啊。准备那么久设计出这种玩意</blockquote>
 —— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 v3.0.0-alpha ...</blockquote>
 好拥挤啊
 
+
+*****
+
+####  cat1230  
+##### 21122#       发表于 2024-10-1 17:34
+
+太有学生气息了，美<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+

@@ -46,3 +46,14 @@ S1群第一次暴食讨伐，稳过，吴迪
 
 2024-10-1 21:58 上传
 
+
+*****
+
+####  ナルバレック  
+##### 228#       发表于 2024-10-1 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66352045&amp;ptid=2153578" target="_blank">soulogic 发表于 2024-10-1 00:56</a>
+
+咦，这就已经死透了么，去加群发现只有 10 个人……</blockquote>
+看官方的态度，应该还是有赚到钱的，但是不是很火
+

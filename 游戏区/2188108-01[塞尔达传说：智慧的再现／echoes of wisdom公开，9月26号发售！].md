@@ -8073,3 +8073,18 @@ PV时，公主能举石头游泳潜水，比林**
 
 过了第一个教程迷宫就开地图瞎逛，大妖精开了，雷云boss都打掉了。打了一晚上才到沙漠裂缝前置任务，现在6颗心和3级能元，感觉迷宫随便过
 
+
+*****
+
+####  Linkwjj  
+##### 1349#       发表于 2024-10-1 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66354604&amp;ptid=2188108" target="_blank">lilod 发表于 2024-10-1 13:40</a>
+
+我试了好几次才拿完70个。。。。你操作比我好
+
+—— 来自 S1Fun</blockquote>
+什么？还有更高难度？
+
+是我井蛙了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

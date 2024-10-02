@@ -4507,3 +4507,14 @@ sd现在能800p45了？要打社区补丁吗</blockquote>
 实际上还可以打，一样有提升从补丁作者的观点来看修歪了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好家伙，还能这样的吗
 
+
+*****
+
+####  陈词与芍药  
+##### 1142#       发表于 2024-10-2 20:07
+
+Metaphor: ReFantazio (PS5, Xbox Series, PS4) – 9/9/10/9 [37/40]
+It takes about 80 hours to clear the story, or 100 hours with side activities
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

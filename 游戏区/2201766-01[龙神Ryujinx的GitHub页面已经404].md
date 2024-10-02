@@ -704,3 +704,31 @@ xbox one至今没被破解，是不是微软自绝于人民
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  hisousihou  
+##### 67#       发表于 2024-10-2 20:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">确实，怎么没人提索软的dump和停服后游戏保存问题，兼容再好那也不是永远的，总得有人做啊。他们的游戏不是游戏吗，他们的技术不是技术吗
+
+
+*****
+
+####  zeta945  
+##### 68#       发表于 2024-10-2 20:13
+
+那ns2性能可以拉满吗，价格无所谓
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  zeta945  
+##### 68#       发表于 2024-10-2 20:13
+
+那ns2性能可以拉满吗，价格无所谓
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

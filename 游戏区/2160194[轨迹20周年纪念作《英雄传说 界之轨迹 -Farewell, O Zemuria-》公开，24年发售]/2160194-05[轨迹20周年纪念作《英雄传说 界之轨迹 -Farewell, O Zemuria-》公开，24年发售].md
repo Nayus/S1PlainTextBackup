@@ -2175,3 +2175,11 @@ NSw　スプラトゥーン3
 
 —— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  卡拉德利姆  
+##### 6129#       发表于 2024-10-2 17:10
+
+还有艾蕾因2 看完不是剑女党我只能说是神人了
+

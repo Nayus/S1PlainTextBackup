@@ -8597,3 +8597,18 @@ credits里NoA和NoE的本地化人员有名字，但亚洲本地化就只有神�
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  holomoon  
+##### 1387#       发表于 2024-10-2 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66362072&amp;ptid=2188108" target="_blank">库德里尔 发表于 2024-10-2 16:58</a>
+
+差不多，不过我做表的意义也就是前期提供一些参考，有几款冰沙的性能确实过于突出非常好用，比如咸味牛奶 ...</blockquote>
+你那表我在B站看过啊
+
+没鄙视的意思
+
+就单纯的本作的床太强，饮品基本没啥用必要，也许就防冰冻在解谜时有点用吧
+

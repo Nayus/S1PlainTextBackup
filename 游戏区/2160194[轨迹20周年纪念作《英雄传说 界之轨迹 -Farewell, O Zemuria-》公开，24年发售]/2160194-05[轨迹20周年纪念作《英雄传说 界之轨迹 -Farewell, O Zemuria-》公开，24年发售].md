@@ -2138,3 +2138,15 @@ NSw　スプラトゥーン3
 
 通了通了 我TM要给主线9分 扣一分是前期太平淡 吊打黎2 T_T
 
+
+*****
+
+####  红魔馆的糖  
+##### 6125#       发表于 2024-10-2 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66360478&amp;ptid=2160194" target="_blank">skullgreymon 发表于 2024-10-2 11:35</a>
+打到庭院第一个关底，然后40回合打不死，退也退不出来，只能读史前档了？
+
+网上一堆14级往上的build，我全是 ...</blockquote>
+艾雷因补cp+卡特尔循环，然后老头和van装个自动强音一直爆s可以过，实在不行换两个攻击饰品，存量的u物质应该够
+

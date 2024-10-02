@@ -737,3 +737,14 @@ NXC PXZ 无限边境的制作人+导演兼编剧17年就离开mono了
 都吹笛子了 都送走了</blockquote>
 送送高桥 也送送我把
 
+
+*****
+
+####  bonnwang  
+##### 77#       发表于 2024-10-2 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66356776&amp;ptid=2201677" target="_blank">pandaman7777 发表于 2024-10-1 19:52</a>
+se再这么作下去不知道有没机会remake XG了
+ff7好赖已经有复刻，我的怨念就差XG了</blockquote>
+不如等暴毙 让地狱收购se<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

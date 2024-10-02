@@ -936,3 +936,30 @@ M$确实有技术也有能力做向后兼容，而且诸如画面强化等效果
 
 对游戏公司来说，唯一值得谈的就是钱。
 
+
+*****
+
+####  NameLess2501  
+##### 85#       发表于 2024-10-2 23:55
+
+说到游戏的兼容和保存，就想再安利一波《GOG》平台，现在不只是老游戏，也有新游戏在售，国区人民币结算比国外美元结算还要便宜不少。
+
+虽然CDPR做2077时太能吹牛逼有点败好感，但是GOG平台是真的好。
+
+
+*****
+
+####  NameLess2501  
+##### 86#       发表于 2024-10-3 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66363688&amp;ptid=2201766" target="_blank">库德里尔 发表于 2024-10-2 21:21</a>
+
+目前街机游戏的保存状况如何呢？
+
+我知道有很多制作了移植版或者复刻版 但我对街机游戏整体没什么了解
+
+因为 ...</blockquote>
+街机有个非常庞大的《MAME》项目，能模拟各种街机。
+
+「MAME’s purpose is to preserve decades of software history.」
+

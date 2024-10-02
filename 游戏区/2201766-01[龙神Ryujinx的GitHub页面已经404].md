@@ -601,3 +601,36 @@ dump 靠破解机</blockquote>
 
 等主机退市破解卖不出去后，就没有人会来整理redump之类的项目了。
 
+
+*****
+
+####  NameLess2501  
+##### 58#       发表于 2024-10-2 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66362082&amp;ptid=2201766" target="_blank">Tring 发表于 2024-10-2 17:00</a>
+没人弄模拟器就没人redump，没有redump在十年二十年数字版停服后就啥都没了。
+
+忍天堂差不多也算是把这代模 ...</blockquote>
+停服后当然是在新主机上面出官方模拟器，或者出固定若干游戏的mini版主机了。
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+
+*****
+
+####  Tring  
+##### 59#       发表于 2024-10-2 17:32
+
+ 本帖最后由 Tring 于 2024-10-2 17:37 编辑 
+<blockquote>NameLess2501 发表于 2024-10-2 17:26
+停服后当然是在新主机上面出官方模拟器，或者出固定若干游戏的mini版主机了。
+
+— from S1 Next Goose v3 ...</blockquote>
+你看现在的官方模拟器和mini版把以前的冷门游戏上齐了没？都还不说有些版权复杂的玩意没法处理，光是够冷门的都不想上。
+
+所谓的开源精神，撇开唯心的部分来说，
+
+实际上就是很多问题一旦谈钱就会变得复杂。
+
+只有不谈钱的时候，才能用最简单最高效的方法来处理。
+

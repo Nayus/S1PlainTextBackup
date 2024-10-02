@@ -4407,3 +4407,23 @@ sega这几年还掏不出几个这个区间的。
 
 sh2应该还不至于<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等落地了再骂也不迟
 
+
+*****
+
+####  valpunk  
+##### 1132#       发表于 2024-10-2 18:25
+
+还是等通关了再评价吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  哎哟卧槽了  
+##### 1133#       发表于 2024-10-2 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66362442&amp;ptid=2140224" target="_blank">walfeds 发表于 2024-10-2 18:08</a>
+就算一般水平的地图设计也要拿来跟sh2比过分了，sh2那个玩过的都绷不住吧 ...</blockquote>
+原價不能忍，現在50不到其實還行。跑不了的問題也更新了，至少迷宮不用龜著走。
+當然心靈迷宮的設計是一泡屎這個沒得救<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 來自 Google Pixel 2, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

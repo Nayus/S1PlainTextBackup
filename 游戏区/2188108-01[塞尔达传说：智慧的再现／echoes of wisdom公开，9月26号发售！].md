@@ -8459,3 +8459,23 @@ PV时，公主能举石头游泳潜水，比林**
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  shinnfin  
+##### 1378#       发表于 2024-10-2 13:55
+
+<img src="https://img.saraba1st.com/forum/202410/02/135433echca18dsya2p222.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20241002135421.jpg</strong> (362.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-2 13:54 上传
+
+打个92分左右吧   总体体验还是很不错的
+
+全收集就懒得做了
+
+希望还能有这种画风的新塞尔达出来  必买
+

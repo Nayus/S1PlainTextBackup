@@ -741,3 +741,13 @@ yysy，悟君确实在某种意义上分走了一些小麦的戏份，因为对�
 
 39 nico evolution
 
+
+*****
+
+####  maoyou  
+##### 2292#       发表于 2024-10-2 13:25
+
+小麦察觉自己是电灯泡了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

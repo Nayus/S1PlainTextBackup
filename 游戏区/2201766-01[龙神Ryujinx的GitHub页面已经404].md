@@ -761,3 +761,11 @@ xbox one至今没被破解，是不是微软自绝于人民
 
 哲学家可以脱离现世道德法律进行头脑风暴，但第二天还是要付钱才有馒头吃，差不多得了。
 
+
+*****
+
+####  1096beam  
+##### 72#       发表于 2024-10-2 20:59
+
+讨论GVG基板破解的时候是多么的太平啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

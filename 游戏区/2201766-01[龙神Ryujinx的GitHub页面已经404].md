@@ -658,3 +658,19 @@ DOMO，龙神=san，忍·Tendo DESU。
 
 还是那句话又当又立最可恨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  鹅大人  
+##### 63#       发表于 2024-10-2 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66362101&amp;ptid=2201766" target="_blank">Tring 发表于 2024-10-2 17:03</a>
+这是个生态问题。
+
+现在破解还能卖钱的时候有人dump热门玩意，
+
+等主机退市破解卖不出去后，就没有人会来整 ...</blockquote>
+xbox one至今没被破解，是不是微软自绝于人民
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

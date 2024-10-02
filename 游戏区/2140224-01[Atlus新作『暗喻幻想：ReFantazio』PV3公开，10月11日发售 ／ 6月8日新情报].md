@@ -4444,3 +4444,26 @@ sh2应该还不至于<img src="https://static.saraba1st.com/image/smiley/face201
 这游戏掌机玩还挺性感的，老引擎性能要求不高在sd能跑800p@45也变成加分点了，然后屏幕小那些画面污染没大 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">sd现在能800p45了？要打社区补丁吗
 
+
+*****
+
+####  Rushtime33  
+##### 1136#       发表于 2024-10-2 19:02
+
+ 本帖最后由 Rushtime33 于 2024-10-2 19:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66362705&amp;ptid=2140224" target="_blank">roxassix 发表于 2024-10-2 18:57</a>
+
+sd现在能800p45了？要打社区补丁吗</blockquote>
+不用，我玩demo正常设置就能跑这个帧数，过场会低一点但是也有30以上不影响。同样老引擎的p5r能跑1080p@45，所以暗喻幻想表现比较好也不太奇怪吧。
+
+设置是游戏内800p、独占全屏、关垂直同步、不锁帧、渲染100%、关环境光遮蔽、纹理高，游戏外刷新率90、帧数锁45（如果是老款sd刷新率60、帧数锁40应该也差不多）。
+
+*****
+
+####  roxassix  
+##### 1137#       发表于 2024-10-2 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66362742&amp;ptid=2140224" target="_blank">Rushtime33 发表于 2024-10-2 19:02</a>
+不用，我玩demo正常设置就能跑这个帧数，过场会低一点但是也有30以上不影响。同样老引擎的p5r能跑1080p@45 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不是，一上来沙漠大地图根本稳不了30啊。。你渲染100吗
+

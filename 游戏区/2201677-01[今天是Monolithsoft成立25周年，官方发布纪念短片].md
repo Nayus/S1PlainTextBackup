@@ -787,3 +787,11 @@ PV：“送走送走~统统给你们送走~~”
 
 看到的乐子图<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Nez  
+##### 80#       发表于 2024-10-2 11:25
+
+我摊牌了，系列最喜欢的果然还是xbx，所以高桥gg能不能在新作再满足一次我开萝卜的欲望，衔尾蛇什么的完全不够劲呀<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+

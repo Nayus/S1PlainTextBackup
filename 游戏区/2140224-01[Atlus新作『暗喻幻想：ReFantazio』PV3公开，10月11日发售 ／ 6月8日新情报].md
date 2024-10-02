@@ -4381,3 +4381,29 @@ sega这几年还掏不出几个这个区间的。
 
 只能说还是想念sj，别天天在那捣鼓东京了
 
+
+*****
+
+####  walfeds  
+##### 1129#       发表于 2024-10-2 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66362325&amp;ptid=2140224" target="_blank">无辄辄 发表于 2024-10-2 17:49</a>
+
+反观暗喻幻想这个地图设计真的就比骇客2好那么一丢丢，完全开倒车了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就算一般水平的地图设计也要拿来跟sh2比过分了，sh2那个玩过的都绷不住吧
+
+
+*****
+
+####  星野航  
+##### 1130#       发表于 2024-10-2 18:13
+
+蛮共暗喻才几个地图就开始跟sh2比上了，这么着急骂桥野桂也不用现在吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  祆天发育不良  
+##### 1131#       发表于 2024-10-2 18:16
+
+sh2应该还不至于<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等落地了再骂也不迟
+

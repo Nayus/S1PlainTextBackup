@@ -2339,3 +2339,99 @@ NSw　スプラトゥーン3
 
 打到某一章忍不住来喷一句，法老控也太他妈会断了艹，情绪都渲染到这地步了你能不能把片播完啊...
 
+
+*****
+
+####  windtrack_qh  
+##### 6147#       发表于 2024-10-2 23:18
+
+通关了，这次主线不错，单论主线全系列最高不为过
+
+*****
+
+####  红魔馆的糖  
+##### 6148#       发表于 2024-10-2 23:21
+
+其实第二章开始刷完羊配好诗就已经无敌，啥都是魔法连动，随便按按就死了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  红魔馆的糖  
+##### 6149#       发表于 2024-10-2 23:22
+
+这里生怕别人不知道捏他，还故意说了个master·ninja<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/19/3f7f0b3e22f3ae58152bd88cf9dee8c1/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  仲可怀  
+##### 6150#       发表于 2024-10-2 23:23
+
+40+小时到第三章凡恩 主线剧情本身和剧情演出台词设计都不错  但是主线之前这些流程是真的是水 刷回廊加npc几个小时就过去了 
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  windtrack_qh  
+##### 6151#       发表于 2024-10-2 23:32
+
+基本全程开高速，通关大概63小时
+
+我只能说大概55+小时内容都是屎，庭院更是屎中屎，但是剩下5小时左右的主线剧是真的好
+
+*****
+
+####  jacket  
+##### 6152#       发表于 2024-10-3 00:01
+
+夜晚带超短裙未成年逛街，通報不可避
+
+*****
+
+####  华发夜眼[CN]  
+##### 6153#       发表于 2024-10-3 00:33
+
+打到葱头去沙漠和小丑和幻术师交手了，大概多少进度多少，快昏迷了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  windtrack_qh  
+##### 6154#       发表于 2024-10-3 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66364734&amp;ptid=2160194" target="_blank">华发夜眼[CN] 发表于 2024-10-3 00:33</a>
+
+打到葱头去沙漠和小丑和幻术师交手了，大概多少进度多少，快昏迷了</blockquote>
+大概2/3左右
+
+这次单章剧情都很短，基本都是逛街打杂+1个大迷宫
+
+如果你是按顺序打的话，后面3个人还各有一个章节就最终章了，而且神父最后一章特别短
+
+通关时间应该在60-70小时左右
+
+*****
+
+####  华发夜眼[CN]  
+##### 6155#       发表于 2024-10-3 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66364745&amp;ptid=2160194" target="_blank">windtrack_qh 发表于 2024-10-3 00:36</a>
+
+大概2/3左右
+
+这次单章剧情都很短，基本都是逛街打杂+1个大迷宫</blockquote>
+我VE模式，只做感兴趣的支线，现在20h+吧，感觉再来一天就够了
+
+*****
+
+####  lxshhh  
+##### 6156#       发表于 2024-10-3 02:10
+
+打到某一章忍不住来喷一句，法老控也太他妈会断了艹，情绪都渲染到这地步了你能不能把片播完啊...
+
+*****
+
+####  jacket  
+##### 6157#       发表于 2024-10-3 06:13
+
+庭院第二关先把150连击做了，场上最多10个怪，法术最多一只12连击，想找能扛住两波攻击的怪好难
+

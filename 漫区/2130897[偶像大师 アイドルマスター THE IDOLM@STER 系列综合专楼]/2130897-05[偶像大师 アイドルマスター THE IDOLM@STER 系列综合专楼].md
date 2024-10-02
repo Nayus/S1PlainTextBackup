@@ -1939,3 +1939,62 @@ We got the party night night night!</blockquote>
 
 因为是这张图
 
+
+*****
+
+####  acacaclove  
+##### 6461#       发表于 2024-10-3 01:23
+
+<img src="https://img.saraba1st.com/forum/202410/03/012322qkz030tq6gqqz803.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (193.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-3 01:23 上传
+
+<img src="https://img.saraba1st.com/forum/202410/03/012335kgrp7rkknol1vjtl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (29.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-3 01:23 上传
+
+我操你的作者夹带私货
+
+*****
+
+####  微尘众  
+##### 6462#       发表于 2024-10-3 01:43
+
+ 本帖最后由 微尘众 于 2024-10-3 01:47 编辑 
+
+夫妻夹私货怎么了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">而且没看懂哪里像了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+
+*****
+
+####  acacaclove  
+##### 6463#       发表于 2024-10-3 02:01
+
+<img src="https://img.saraba1st.com/forum/202410/03/020110uuvo6ugvpuxq79vq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (397.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-3 02:01 上传
+
+因为是这张图
+
+*****
+
+####  阿卡拉兰斯  
+##### 6464#       发表于 2024-10-3 06:09
+
+难道这不是我缺的真苍系终于给补上了（
+
+—— 来自 OPPO PHZ110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

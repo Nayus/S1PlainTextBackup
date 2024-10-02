@@ -4528,3 +4528,11 @@ It takes about 80 hours to clear the story, or 100 hours with side activities
 
 —— 来自 samsung SM-S9180, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  纯粹理性人  
+##### 1144#       发表于 2024-10-2 22:21
+
+这60小时流程是怎么算的？我序章的试玩就打了7-8个小时了。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">减去牛头人迷宫刷的1个小时，这就玩了1/10了？
+

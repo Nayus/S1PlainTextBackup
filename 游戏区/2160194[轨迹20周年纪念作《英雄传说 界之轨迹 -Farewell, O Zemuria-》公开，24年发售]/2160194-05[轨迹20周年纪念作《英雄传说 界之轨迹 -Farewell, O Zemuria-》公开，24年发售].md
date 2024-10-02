@@ -2302,3 +2302,32 @@ NSw　スプラトゥーン3
 
 打到葱头去沙漠和小丑和幻术师交手了，大概多少进度多少，快昏迷了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  windtrack_qh  
+##### 6144#       发表于 2024-10-3 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66364734&amp;ptid=2160194" target="_blank">华发夜眼[CN] 发表于 2024-10-3 00:33</a>
+
+打到葱头去沙漠和小丑和幻术师交手了，大概多少进度多少，快昏迷了</blockquote>
+大概2/3左右
+
+这次单章剧情都很短，基本都是逛街打杂+1个大迷宫
+
+如果你是按顺序打的话，后面3个人还各有一个章节就最终章了，而且神父最后一章特别短
+
+通关时间应该在60-70小时左右
+
+*****
+
+####  华发夜眼[CN]  
+##### 6145#       发表于 2024-10-3 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66364745&amp;ptid=2160194" target="_blank">windtrack_qh 发表于 2024-10-3 00:36</a>
+
+大概2/3左右
+
+这次单章剧情都很短，基本都是逛街打杂+1个大迷宫</blockquote>
+我VE模式，只做感兴趣的支线，现在20h+吧，感觉再来一天就够了
+

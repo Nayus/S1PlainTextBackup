@@ -87,3 +87,29 @@ QWERTY键盘的数字键绑定在游戏重启后无法正确保存</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  风萧飒  
+##### 5472#       发表于 2024-10-2 17:54
+
+官方整的活
+
+<img src="https://img.saraba1st.com/forum/202410/02/175410wndzgf3feagraamp.png" referrerpolicy="no-referrer">
+
+<strong>Image_1727862819702.png</strong> (744.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-2 17:54 上传
+
+<img src="https://img.saraba1st.com/forum/202410/02/175410qbst55gqeb0pj5jo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241002_175255_com_tencent_mm_AppBrandUI00.jpg</strong> (667.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-2 17:54 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

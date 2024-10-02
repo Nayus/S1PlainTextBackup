@@ -4312,3 +4312,32 @@ smt5的剧情好就好在你很难骂一个几乎不存在的东西烂，按高�
 
 勾rpg这年头想吃口好剧本确实越来越难了
 
+
+*****
+
+####  无辄辄  
+##### 1123#       发表于 2024-10-2 17:48
+
+真女5的剧情可以忽略不计，它的箱庭大地图设计是这几年JRPG里面一流的，主要是这个地图和系统太好玩，剧情没有就没有了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无辄辄  
+##### 1124#       发表于 2024-10-2 17:49
+
+反观暗喻幻想这个地图设计真的就比骇客2好那么一丢丢，完全开倒车了。
+
+*****
+
+####  syndrome2032  
+##### 1125#       发表于 2024-10-2 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66362287&amp;ptid=2140224" target="_blank">walfeds 发表于 2024-10-2 17:43</a>
+smt5的剧情好就好在你很难骂一个几乎不存在的东西烂，按高情商的说法可以让人专注在游戏的部分
+
+勾rpg这年头 ...</blockquote>
+口号式剧情分线还是能着重批一下的。
+
+这一点上甚至不如厕纸之4f。
+4f皆杀是真动手，绊也是真包饺子
+

@@ -4341,3 +4341,43 @@ smt5的剧情好就好在你很难骂一个几乎不存在的东西烂，按高�
 这一点上甚至不如厕纸之4f。
 4f皆杀是真动手，绊也是真包饺子
 
+
+*****
+
+####  抽烟的猴  
+##### 1126#       发表于 2024-10-2 18:02
+
+<blockquote>罗克萨斯 发表于 2024-10-2 17:41
+看访谈里提到暗喻幻想虽然从立项到发售经历了8年时间，但是这8年里并非只在做暗喻幻想，看似时间拉得长但是 ...</blockquote>
+问就是什么才算内部眼中的失败
+
+世嘉老总发话说过暗喻幻想要成为smt和p之后的第三大系列招牌，一个新作达到smt和p的水准而且还能开续作需要多少销量和评分
+
+*****
+
+####  syndrome2032  
+##### 1127#       发表于 2024-10-2 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66362404&amp;ptid=2140224" target="_blank">抽烟的猴 发表于 2024-10-2 18:02</a>
+问就是什么才算内部眼中的失败
+
+世嘉老总发话说过暗喻幻想要成为smt和p之后的第三大系列招牌，一个新作达 ...</blockquote>
+100w–150w应该够了。
+我觉得metafor上一百万应该是没问题的。
+
+sega这几年还掏不出几个这个区间的。
+
+*****
+
+####  walfeds  
+##### 1128#       发表于 2024-10-2 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66362333&amp;ptid=2140224" target="_blank">syndrome2032 发表于 2024-10-2 17:50</a>
+
+口号式剧情分线还是能着重批一下的。
+
+这一点上甚至不如厕纸之4f。</blockquote>
+想了想确实，对4f剧情评价上升的一集
+
+只能说还是想念sj，别天天在那捣鼓东京了
+

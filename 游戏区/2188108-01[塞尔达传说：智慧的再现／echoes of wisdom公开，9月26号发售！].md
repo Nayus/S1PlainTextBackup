@@ -8682,3 +8682,60 @@ credits里NoA和NoE的本地化人员有名字，但亚洲本地化就只有神�
 
 要是卢比修复或者按时间修复还差不多
 
+
+*****
+
+####  freedom12  
+##### 1395#       发表于 2024-10-2 18:01
+
+通关了 很满意 很舒服
+
+这次的雪人族有点融合黄昏公主和沙漏汽笛的意思
+
+也希望之后能够把雪人族常驻，作为哥隆族的对立面
+
+*****
+
+####  TriSPD  
+##### 1396#       发表于 2024-10-2 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66362314&amp;ptid=2188108" target="_blank">D麦林 发表于 2024-10-2 17:47</a>
+
+所以机关有哪个特别好用的吗
+
+我看到的比较让人印象深刻的用法有武者布林在打那个火龙boss的时候可以趁boss ...</blockquote>
+章鱼和跳跳都可以快速破冰块
+
+剩下也就武者一刀流了
+
+
+*****
+
+####  苍蓝之枪  
+##### 1397#       发表于 2024-10-2 18:02
+
+机关我也没用过，一看到说会坏兴趣立马没了
+
+*****
+
+####  Waldeinsamkeit  
+##### 1398#       发表于 2024-10-2 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66362305&amp;ptid=2188108" target="_blank">冷泉夜月 发表于 2024-10-2 17:45</a>
+
+看来都被这个卡了下后面倒是都很简单了，虽然我打到冰迷宫了还没用过机关
+
+  -- 来自 能看大图的 Stage1官 ...</blockquote>
+我通关了都没用过机关<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+最终战想起来说用一下吧，结果根本没那个时间给我拧发条<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我在干什么啊  
+##### 1399#       发表于 2024-10-2 18:07
+
+<blockquote>chizuru 发表于 2024-10-2 17:44
+智慧的再现和动物井就是解密游戏的两端，动物井就像老的塞尔达或银河战士，有些机关想不出就是想不出，那你 ...</blockquote>
+大多数人就是没耐心也没时间罢了，老塞尔达解密哪有那么难
+

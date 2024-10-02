@@ -507,3 +507,13 @@ ryujinx的技术路线可太有趣了，一开始是把a ...</blockquote>
 微软：发布vscode和typescript
 开源互联网程序员：真香.jpg
 
+
+*****
+
+####  Sherlock08  
+##### 50#       发表于 2024-10-2 16:44
+
+ 本帖最后由 Sherlock08 于 2024-10-2 16:45 编辑 
+
+每次模拟器被弄的帖子下都有人不知道是装傻还是真傻“都怪你任不发新机/4399画质别人才去玩模拟器”，当真对模拟器(尤其是本世代机子模拟器)用户画像没点b数了？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">电子海盗也要立自己的赛博牌坊？
+

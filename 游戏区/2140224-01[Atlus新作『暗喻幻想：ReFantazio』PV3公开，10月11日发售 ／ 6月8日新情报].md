@@ -4235,3 +4235,11 @@ pdd现在ps5韩版百亿补贴290，好价速抢
 
 黑客1粉看了处女pv基本都跑没了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  封面杀手  
+##### 1114#       发表于 2024-10-2 16:39
+
+笑抽了，评语模板修改一下就搬过来用，都怪大家，世嘉和ATLUS要付出比P5更高的宣发费，坐等老外媒体表演（希望还有足够的钱
+

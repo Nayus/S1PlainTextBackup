@@ -769,3 +769,16 @@ xbox one至今没被破解，是不是微软自绝于人民
 
 讨论GVG基板破解的时候是多么的太平啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RTLordCaptain  
+##### 73#       发表于 2024-10-2 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66362713&amp;ptid=2201766" target="_blank">鹅大人 发表于 2024-10-2 18:57</a>
+
+xbox one至今没被破解，是不是微软自绝于人民
+
+论坛助手,iPhone</blockquote>
+刚看到新闻有模拟器了，XWine1
+

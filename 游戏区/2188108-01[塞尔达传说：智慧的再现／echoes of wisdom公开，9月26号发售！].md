@@ -8950,3 +8950,13 @@ ps.同样是传统套路塞尔达林克双打boss，我觉得还是汽笛里的�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  suzakushi  
+##### 1419#       发表于 2024-10-3 00:09
+
+打完了，最终战不是很喜欢，除了召怪和放机关我就只能全程ob，满场转圈圈和躺床上睡觉，实在没什么意思。整体游戏的迷宫设计只能说不过不失吧，还算是有趣的一作。<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">最主要的还是操作塞尔达太可爱了。
+
+—— 来自 Sony XQ-AT52, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

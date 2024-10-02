@@ -408,3 +408,11 @@ dlc好玩吗，终于有外星人敌人了不用打换皮星际土匪了？
 
 答案是派特工渗透进其他两家政府把星图改了。
 
+
+*****
+
+####  nancygreenlife  
+##### 44#       发表于 2024-10-2 21:49
+
+星空这热度也是完了，DLC出了连个水花都没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

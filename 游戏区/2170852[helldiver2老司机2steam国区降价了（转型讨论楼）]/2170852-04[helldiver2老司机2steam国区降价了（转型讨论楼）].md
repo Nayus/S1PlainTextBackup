@@ -113,3 +113,11 @@ QWERTY键盘的数字键绑定在游戏重启后无法正确保存</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  xinfengj  
+##### 5473#       发表于 2024-10-2 21:49
+
+discord投票，讨论布娃娃问题<img src="https://p.sda1.dev/19/51f8a8dae1e7d1feb2ed7d3b910541b3/CMP_20241002214834917.jpg" referrerpolicy="no-referrer">
+

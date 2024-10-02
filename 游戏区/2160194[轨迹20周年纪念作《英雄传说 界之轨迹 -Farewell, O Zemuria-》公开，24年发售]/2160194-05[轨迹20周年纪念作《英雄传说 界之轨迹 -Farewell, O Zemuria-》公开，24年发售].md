@@ -2193,3 +2193,11 @@ NSw　スプラトゥーン3
 
 —— 来自 realme RMX3708, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  liuguokobe  
+##### 6131#       发表于 2024-10-2 19:53
+
+一直忍着剧透没看，现在实体版终于要发货了。问一下各位黎2的通关继承奖励如何啊，我在考虑要不要捏着鼻子吧二周目给打完弄个完美通关存档<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

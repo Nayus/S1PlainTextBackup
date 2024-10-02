@@ -8789,3 +8789,18 @@ credits里NoA和NoE的本地化人员有名字，但亚洲本地化就只有神�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  库德里尔  
+##### 1405#       发表于 2024-10-2 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66362360&amp;ptid=2188108" target="_blank">holomoon 发表于 2024-10-2 17:55</a>
+机关我看到说明说是损坏了需要怪物材料修复，就直接没兴趣造出来把玩了
+
+要是卢比修复或者按时间修复还差不 ...</blockquote>
+可以花卢比的 按发条机关不同价格也不同
+大概一百二百？虽然打到后面很少有时间拧五下发条，得配合召小兵拉仇恨
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

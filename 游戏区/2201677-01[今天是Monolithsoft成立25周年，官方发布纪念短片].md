@@ -795,3 +795,20 @@ PV：“送走送走~统统给你们送走~~”
 
 我摊牌了，系列最喜欢的果然还是xbx，所以高桥gg能不能在新作再满足一次我开萝卜的欲望，衔尾蛇什么的完全不够劲呀<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leonlink  
+##### 81#       发表于 2024-10-2 12:29
+
+希望下个作品是ARPG<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  西多士  
+##### 82#       发表于 2024-10-2 12:33
+
+思来想去最喜欢还是1，可能就是因为剧情没硬伤，战斗没有那些花里胡哨的东西吧
+

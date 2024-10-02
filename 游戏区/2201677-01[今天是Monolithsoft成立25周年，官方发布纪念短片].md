@@ -820,3 +820,14 @@ PV：“送走送走~统统给你们送走~~”
 
 交叉领域计划什么时候出3啊
 
+
+*****
+
+####  八佾舞于潭  
+##### 84#       发表于 2024-10-2 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66361036&amp;ptid=2201677" target="_blank">嘉术2015 发表于 2024-10-2 13:16</a>
+
+交叉领域计划什么时候出3啊</blockquote>
+森住惣一郎退社了，万南 IP 相关的都是他牵线的
+

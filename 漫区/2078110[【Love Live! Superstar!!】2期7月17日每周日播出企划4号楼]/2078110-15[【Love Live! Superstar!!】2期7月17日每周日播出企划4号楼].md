@@ -1873,3 +1873,17 @@ op3这衣服真丑啊。准备那么久设计出这种玩意</blockquote>
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  奥柏伦亲王  
+##### 21136#       发表于 2024-10-2 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66363215&amp;ptid=2078110" target="_blank">csolfans 发表于 2024-10-2 20:23</a>
+这不带着娃去看青山姐从小育成！
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 v3.0.0-alp ...</blockquote>
+太小了，如果大一点真的想带着娃看点小偶像演出，可惜大概是赶不上这波了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

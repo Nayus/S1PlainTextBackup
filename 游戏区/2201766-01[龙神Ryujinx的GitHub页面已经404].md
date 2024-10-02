@@ -732,3 +732,24 @@ xbox one至今没被破解，是不是微软自绝于人民
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  ppa11  
+##### 69#       发表于 2024-10-2 20:28
+
+所以索尼微软的rom是怎么保存的呢，在哪能完整找到？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 來自 [鵝球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+
+*****
+
+####  karastar  
+##### 70#       发表于 2024-10-2 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66362784&amp;ptid=2201766" target="_blank">Xerxes_2 发表于 2024-10-2 19:10</a>
+
+是，但是微软向下兼容做的还行，比另外两家都要好得多</blockquote>
+能保证永远向下兼容吗，不应该未雨绸缪吗。NS一个还没退市的的过亿销量主机有这么高的优先度吗。
+

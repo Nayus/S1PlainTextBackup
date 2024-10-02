@@ -4518,3 +4518,13 @@ It takes about 80 hours to clear the story, or 100 hours with side activities
 
 [论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  李喜睡  
+##### 1143#       发表于 2024-10-2 20:33
+
+之前在隔壁看别人吵架都能被误伤剧透，也不知道是真是假，真晦气啊
+
+—— 来自 samsung SM-S9180, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

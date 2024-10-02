@@ -4293,3 +4293,22 @@ fami 评分的风格应该是挑粉丝兴奋点、大众化感受和天雷提示
 
 A社的饭桶评分都奇妙的高。<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罗克萨斯  
+##### 1121#       发表于 2024-10-2 17:41
+
+看访谈里提到暗喻幻想虽然从立项到发售经历了8年时间，但是这8年里并非只在做暗喻幻想，看似时间拉得长但是制作过程还蛮顺利的。不敢想象宣发规格如此高的这作要是失败了，Studio Zero的命运回如何，P6的制作也会受很大影响吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  walfeds  
+##### 1122#       发表于 2024-10-2 17:43
+
+smt5的剧情好就好在你很难骂一个几乎不存在的东西烂，按高情商的说法可以让人专注在游戏的部分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+勾rpg这年头想吃口好剧本确实越来越难了
+

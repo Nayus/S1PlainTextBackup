@@ -4259,3 +4259,37 @@ pdd现在ps5韩版百亿补贴290，好价速抢
 
 很难想象他们是怎么做出来真女5的，除了真女5这几年的作品一直一般般。
 
+
+*****
+
+####  八佾舞于潭  
+##### 1117#       发表于 2024-10-2 17:21
+
+fami 评分的风格应该是挑粉丝兴奋点、大众化感受和天雷提示，很容易错过核心圈评价体系里的优缺点。
+
+
+*****
+
+####  syndrome2032  
+##### 1118#       发表于 2024-10-2 17:22
+
+真女v前后也做了很久 还抓了胎动的人过来救火导致胎动至今胎不动了。
+
+但是这样真女5的剧情前后仍然一言难尽。
+
+*****
+
+####  nightomorrow  
+##### 1119#       发表于 2024-10-2 17:22
+
+80小时起步，无论怎么说量大管饱了<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BRA-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  星花  
+##### 1120#       发表于 2024-10-2 17:27
+
+A社的饭桶评分都奇妙的高。<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+

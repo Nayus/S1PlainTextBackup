@@ -741,3 +741,30 @@ ave mujica加了官翻，utopia加了蓝火特效，angles好多不一样
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
 
+
+*****
+
+####  akiomn  
+##### 23755#       发表于 2024-10-3 01:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">访谈完整翻译有了，感兴趣的可以去avemujica吧看看
+
+值得一提的是确认了初华有不为人知的另一面，表面光鲜亮丽的阳光偶像的另一面，难以想象啊，另外就是这一段，也确认了鸡团五人是“一丘之貉的共犯”
+
+0B9525A9-19DC-449D-A298-A6FC28DA2F7A.jpeg
+(204.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-3 01:17 上传
+
+<img src="https://img.saraba1st.com/forum/202410/03/011718hllajupulpmjdfj2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 23756#       发表于 2024-10-3 01:24
+
+其实基本也就是之前说过的东西了，先等3rd吧
+

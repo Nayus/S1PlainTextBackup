@@ -8978,3 +8978,13 @@ ps.同样是传统套路塞尔达林克双打boss，我觉得还是汽笛里的�
 
 云泥之别都来了，每次看到疯狂吹老迷宫的我都有玩的是一个游戏吗的错觉，三角力量2的迷宫不也是平推吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  位面农场  
+##### 1422#       发表于 2024-10-3 01:02
+
+智慧的迷宫太普通太短了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

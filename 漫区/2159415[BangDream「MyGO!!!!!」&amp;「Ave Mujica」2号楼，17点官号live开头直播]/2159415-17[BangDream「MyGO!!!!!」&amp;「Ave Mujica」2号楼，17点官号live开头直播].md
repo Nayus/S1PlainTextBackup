@@ -768,3 +768,31 @@ ave mujica加了官翻，utopia加了蓝火特效，angles好多不一样
 
 其实基本也就是之前说过的东西了，先等3rd吧
 
+
+*****
+
+####  鳥栖朝  
+##### 23757#       发表于 2024-10-3 02:01
+
+ 本帖最后由 鳥栖朝 于 2024-10-3 02:03 编辑 
+
+<img src="https://img.saraba1st.com/forum/202410/03/020102szieg0ifzkc78sqd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-10-03-02-00-13-901_tv.danmaku.bili.jpg</strong> (214.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-3 02:01 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yifan8848  
+##### 23758#       发表于 2024-10-3 02:07
+
+Diggy-MO的訪談可以看一下，寫了很多歌曲創作的概念
+
+還透漏了有一些未發表的歌
+

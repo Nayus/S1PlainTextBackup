@@ -687,3 +687,20 @@ xbox one至今没被破解，是不是微软自绝于人民
 论坛助手,iPhone</blockquote>
 是，但是微软向下兼容做的还行
 
+
+*****
+
+####  Edward0901  
+##### 65#       发表于 2024-10-2 19:30
+
+任子的大手，唉，米娜桑还是逃离任球吧
+
+*****
+
+####  Awanano  
+##### 66#       发表于 2024-10-2 19:32
+
+软虽然很多搞笑的地方，虚拟化的水平又不差。自己向下兼容的多+技术还行+没啥值得专门为此破解的游戏。破解优先度很低了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

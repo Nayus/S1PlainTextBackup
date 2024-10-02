@@ -1848,3 +1848,28 @@ op3这衣服真丑啊。准备那么久设计出这种玩意</blockquote>
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  奥柏伦亲王  
+##### 21134#       发表于 2024-10-2 20:21
+
+前两年相对还比较自由的时候没机会现地看星，这两年我推都开始往中国跑了，我开始带娃了，真是悲剧<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+一想到下午我追着娃在公园跑的时候青山姐人在离我家不远的地方坐着，就只剩下感叹一句还是年轻好了...
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  csolfans  
+##### 21135#       发表于 2024-10-2 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66363203&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2024-10-2 20:21</a>
+前两年相对还比较自由的时候没机会现地看星，这两年我推都开始往中国跑了，我开始带娃了，真是悲剧
+
+一想到 ...</blockquote>
+这不带着娃去看青山姐<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">从小育成！
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

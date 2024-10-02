@@ -2106,3 +2106,27 @@ NSw　スプラトゥーン3
 
 网上一堆14级往上的build，我全是11级孔都没开，抄作业都抄不来
 
+
+*****
+
+####  saberserker  
+##### 6122#       发表于 2024-10-2 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66360478&amp;ptid=2160194" target="_blank">skullgreymon 发表于 2024-10-2 11:35</a>
+
+打到庭院第一个关底，然后40回合打不死，退也退不出来，只能读史前档了？
+
+网上一堆14级往上的build，我全是 ...</blockquote>
+会有个自动存档
+
+*****
+
+####  renkan119  
+##### 6123#       发表于 2024-10-2 13:13
+
+<blockquote>skullgreymon 发表于 2024-10-2 11:35
+打到庭院第一个关底，然后40回合打不死，退也退不出来，只能读史前档了？
+
+网上一堆14级往上的build，我全是 ...</blockquote>
+这个无所谓 只是提升这层的评价等级 而你想把评价等级升到满的话必须要刷好几次  所以boss这个后面再达成就可以了
+

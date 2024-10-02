@@ -121,3 +121,11 @@ QWERTY键盘的数字键绑定在游戏重启后无法正确保存</blockquote>
 
 discord投票，讨论布娃娃问题<img src="https://p.sda1.dev/19/51f8a8dae1e7d1feb2ed7d3b910541b3/CMP_20241002214834917.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rgauss  
+##### 5474#       发表于 2024-10-3 01:35
+
+怎么感觉自己变脆了
+

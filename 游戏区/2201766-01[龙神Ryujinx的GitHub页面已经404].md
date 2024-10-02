@@ -802,3 +802,41 @@ xbox one至今没被破解，是不是微软自绝于人民
 
 因为我只懂一点街机音游……
 
+
+*****
+
+####  Sakaiyuki  
+##### 76#       发表于 2024-10-2 21:27
+
+别的我不知道，但是极限竞速地平线2资料片和FM6APEX已经是玩不到的东西了<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">（地平线2本体尚且有盘也有X360版dump，资料片好像没盘）
+
+
+*****
+
+####  ultraseven  
+##### 77#       发表于 2024-10-2 21:31
+
+楼里还停留在Xbox One没破解所以游戏保护该怎么办的印象也该更新了。现在已经有人在PC上通过translation layer来运行Xbox One版本的游戏了。
+
+首先这是手把手教你如何dump Xbox One 游戏的教程 [https://www.xbox-scene.info/forums/topic/523-how-to-dump-games-on-xbox-one-one-x/](https://www.xbox-scene.info/forums/topic/523-how-to-dump-games-on-xbox-one-one-x/)
+
+然后是通过XWine1运行部分游戏的截图，目前只有6个游戏完美运行。
+
+<img src="https://pbs.twimg.com/media/GW8mWnTXwAAAJQM?format=jpg&amp;name=large" height="450" id="aimg_YPjc5" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+
+<img src="https://pbs.twimg.com/media/GW8mY6DWoAEOB_w?format=jpg&amp;name=large" height="433" id="aimg_v4b6a" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+
+<img src="https://pbs.twimg.com/media/GW8meT5W8AAZCod?format=jpg&amp;name=large" height="434" id="aimg_LjxrE" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+
+<img src="https://pbs.twimg.com/media/GW8mkZIWoAEy53u?format=jpg&amp;name=large" height="450" id="aimg_nviGd" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+
+比较重要的大作，比如FH2和FH3，目前只能到打开标题画面和目录的地步
+
+<img src="https://pbs.twimg.com/media/GXDAzurWkAAu0x4?format=jpg&amp;name=large" height="503" id="aimg_aQopz" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+
+<img src="https://pbs.twimg.com/media/GXDKBihXIAAU_oF?format=jpg&amp;name=large" height="499" id="aimg_P7EjJ" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+
+但这已经算得上是相当大的进步了。就拿隔壁PS4来说，到今年血源模拟才有了重大突破，这边才刚起步。
+
+所以并不是技术达人们只喜欢盯着特定主机平台，只是针对不同平台的技术路线和难度都不一样。我个人倒是挺乐见这些成果的。
+

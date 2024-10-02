@@ -2221,3 +2221,11 @@ NSw　スプラトゥーン3
 
 <img src="https://s2.loli.net/2024/10/02/bov2dqDthZ5O1Q3.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jacket  
+##### 6134#       发表于 2024-10-2 21:26
+
+打牌半小时，最后一口气连胜10把连清两个台拿EX成就
+

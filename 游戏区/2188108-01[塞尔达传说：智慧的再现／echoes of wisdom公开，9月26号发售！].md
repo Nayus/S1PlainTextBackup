@@ -8366,3 +8366,19 @@ PV时，公主能举石头游泳潜水，比林**
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  woui003woui  
+##### 1369#       发表于 2024-10-2 08:09
+
+塞变的林克会游泳，林克本体怎么不会！
+
+
+*****
+
+####  秋月孝三  
+##### 1370#       发表于 2024-10-2 08:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看板bug也过于无敌了，既能用来速通也能把林克卡出来
+

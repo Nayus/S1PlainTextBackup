@@ -536,3 +536,68 @@ ryujinx的技术路线可太有趣了，一开始是把a ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">论迹不论心，你爱不爱好技术有啥关系吗。群体形象可不就是玩盗版游戏的，拽什么呢
 
+
+*****
+
+####  八宫めぐる  
+##### 53#       发表于 2024-10-2 16:58
+
+任天堂不让玩盗版，任天堂坏
+
+*****
+
+####  新田義史  
+##### 54#       发表于 2024-10-2 17:00
+
+个臭玩盗版的还觉醒进步上了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Tring  
+##### 55#       发表于 2024-10-2 17:00
+
+没人弄模拟器就没人redump，没有redump在十年二十年数字版停服后就啥都没了。
+
+忍天堂差不多也算是把这代模拟器生态快整断代了。
+
+不过好在现在NS游戏大半都有PC手机加强版。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 直钩| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  八佾舞于潭  
+##### 56#       发表于 2024-10-2 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66362082&amp;ptid=2201766" target="_blank">Tring 发表于 2024-10-2 17:00</a>
+
+没人弄模拟器就没人redump，没有redump在十年二十年数字版停服后就啥都没了。
+
+忍天堂差不多也算是把这代模 ...</blockquote>
+dump 靠破解机
+
+
+*****
+
+####  Tring  
+##### 57#       发表于 2024-10-2 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66362090&amp;ptid=2201766" target="_blank">八佾舞于潭 发表于 2024-10-2 17:01</a>
+
+dump 靠破解机</blockquote>
+这是个生态问题。
+
+现在破解还能卖钱的时候有人dump热门玩意，
+
+等主机退市破解卖不出去后，就没有人会来整理redump之类的项目了。
+

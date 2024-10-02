@@ -2158,3 +2158,20 @@ NSw　スプラトゥーン3
 
 羁绊剧情的笔力真是吊打主线，亚尔缇娜这段拍照不是听了百八十遍年轻人成为世界基石bgm的轨迹侠真搞不出来<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">啥时候新人能把竹入这老鬼换了
 
+
+*****
+
+####  jacket  
+##### 6127#       发表于 2024-10-2 17:02
+
+花臂大哥第一次看到这么大的胸
+
+*****
+
+####  悠悠你心  
+##### 6128#       发表于 2024-10-2 17:05
+
+有一说一，从黎2看到闪4魔女迷宫的怪开始，我就知道你法黎界还是要重复利用闪轨这些怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

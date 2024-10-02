@@ -8569,3 +8569,31 @@ credits里NoA和NoE的本地化人员有名字，但亚洲本地化就只有神�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  库德里尔  
+##### 1385#       发表于 2024-10-2 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66361485&amp;ptid=2188108" target="_blank">holomoon 发表于 2024-10-2 14:47</a>
+食谱，所有食材全组合一遍不就行了
+
+至少对我来说这是必须的，不然即使全食谱了，看到组合里有灰色没合成过 ...</blockquote>
+差不多，不过我做表的意义也就是前期提供一些参考，有几款冰沙的性能确实过于突出非常好用，比如咸味牛奶，各类芒果。
+而性能最强的其实是能随地回血的（尤其是塞尔达的）床，2心一口太可怕了（
+
+顺带一提上面那个表是我做了发b站的。视频版一共3700的播放量，专栏收藏一百出头。说明确实没有很多人需要冰沙表的帮助，但还是有一些。挺欣慰的。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  冷泉夜月  
+##### 1386#       发表于 2024-10-2 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66362021&amp;ptid=2188108" target="_blank">tachikoma27 发表于 2024-10-02 16:48:14</a>
+我也是通关都没开机关，这个描述明显误导人吧，我一直以为是个火箭怪物什么的，在火山上上下下跑了两圈 ...</blockquote>我也以为是火山上的怪，找了几圈没有对得上的感觉不对劲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+主要一般打那个怪根本等不到它屁股喷火，引导确实有点歪<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

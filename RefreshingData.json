@@ -6516,10 +6516,10 @@
     "update": false
   },
   "2156895": {
-    "totalreply": 11876,
+    "totalreply": 11877,
     "title": "[微软收购楼，ABK之后，Who's Next？P3想其他方式拓展11区业务]",
     "newtitle": "[微软楼，ABK之后，Who's Next？闹麻了TGS]",
-    "lastedit": 1727824567,
+    "lastedit": 1727827567,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -8631,10 +8631,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 83239,
+    "totalreply": 83241,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1727826250,
+    "lastedit": 1727827210,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9468,10 +9468,10 @@
     "update": false
   },
   "2193382": {
-    "totalreply": 64999,
+    "totalreply": 65003,
     "title": "[【集中楼】百合&amp;泛百合讨论专楼8.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论专楼8.0]",
-    "lastedit": 1727827088,
+    "lastedit": 1727827688,
     "category": "漫区",
     "active": true,
     "update": false
@@ -9716,7 +9716,7 @@
     "newtitle": "[FAMICOM侦探俱乐部系列新作《FAMICOM侦探俱乐部 笑脸男Emio》8月29日发售]",
     "lastedit": 1727567888,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2195377": {
@@ -12555,10 +12555,10 @@
     "update": false
   },
   "2200032": {
-    "totalreply": 2002,
+    "totalreply": 2007,
     "title": "[巴以中东专楼-9月版]",
     "newtitle": "[巴以中东专楼-9月版]",
-    "lastedit": 1727826850,
+    "lastedit": 1727827450,
     "category": "外野",
     "active": true,
     "update": false
@@ -17883,10 +17883,10 @@
     "update": false
   },
   "2201658": {
-    "totalreply": 42,
+    "totalreply": 43,
     "title": "[好听的歌 即使不懂歌词 你是否也会把它放在常驻歌单里？]",
     "newtitle": "[好听的歌 即使不懂歌词 你是否也会把它放在常驻歌单里？]",
-    "lastedit": 1727821929,
+    "lastedit": 1727827208,
     "category": "外野",
     "active": true,
     "update": false
@@ -17919,10 +17919,10 @@
     "update": false
   },
   "2201714": {
-    "totalreply": 44,
+    "totalreply": 46,
     "title": "[【NSFW】欢度十一，整套俗的]",
     "newtitle": "[【NSFW】欢度十一，整套俗的]",
-    "lastedit": 1727826848,
+    "lastedit": 1727827449,
     "category": "外野",
     "active": true,
     "update": false
@@ -17933,6 +17933,15 @@
     "newtitle": "[IOS最近新上架的漫画相关软件]",
     "lastedit": 1727824094,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2201715": {
+    "totalreply": 41,
+    "title": "[发钱啦：比亚迪向员工发放利润奖]",
+    "newtitle": "[发钱啦：比亚迪向员工发放利润奖]",
+    "lastedit": 1727827451,
+    "category": "外野",
     "active": true,
     "update": false
   }

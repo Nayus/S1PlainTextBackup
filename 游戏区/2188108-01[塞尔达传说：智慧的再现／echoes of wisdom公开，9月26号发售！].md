@@ -8804,3 +8804,15 @@ credits里NoA和NoE的本地化人员有名字，但亚洲本地化就只有神�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  kirenyama  
+##### 1406#       发表于 2024-10-2 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66359459&amp;ptid=2188108" target="_blank">罗克萨斯 发表于 2024-10-2 07:11</a>
+ 像水之神殿这种硬核迷宫，以后是不会再有了  高难度大迷宫当然好，但高自由度的塞尔达就不好玩了吗？千人 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我个人不是时之笛系塞尔达的爱好者，我是野炊开始一路接触前面的塞尔达的，除了野炊比较喜欢的是缩小帽和汽笛这样会被遗老喷“不够硬核”的作品
+对智现的不满甚至也都不用提到关卡设计，而是用心细节细小到比如以前2D塞的每个村子都会有特别之处，或者和村子相关的任务，或者是通过场景表达的叙事铺垫；和每个村民的对话都会有一些小惊喜，比如时空之章可以给小孩命名，穿越时空后小孩会长大；时之笛的卡卡力科村里的小秘密等等……但智现的村子里我尝试和一两个村民对话都得不到什么有趣或者有用的信息，feels like they are just skippable，我不再被为愿意和村民对话而奖励了。
+诸如此类，其实还有很多以往塞尔达在关卡设计意外的精华，明明智现是可以继承的。说这些也不是因为智现没有符合我的全部期待而不满，只是它作为一个塞尔达组的游戏竟然没有任何一点是给我惊喜的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

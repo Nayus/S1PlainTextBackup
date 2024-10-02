@@ -1832,7 +1832,7 @@
     "newtitle": "[星期一的满杯讨论楼]",
     "lastedit": 1727651174,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1904473": {
@@ -8631,10 +8631,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 83719,
+    "totalreply": 83720,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1727908447,
+    "lastedit": 1727910128,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -16200,10 +16200,10 @@
     "update": false
   },
   "2201211": {
-    "totalreply": 69,
+    "totalreply": 70,
     "title": "[暗喻幻想媒体评分预测投票]",
     "newtitle": "[暗喻幻想媒体评分预测投票]",
-    "lastedit": 1727884579,
+    "lastedit": 1727910129,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17739,10 +17739,10 @@
     "update": false
   },
   "2201820": {
-    "totalreply": 112,
+    "totalreply": 113,
     "title": "[问下已婚朋友，工资卡上交吗]",
     "newtitle": "[问下已婚朋友，工资卡上交吗]",
-    "lastedit": 1727909891,
+    "lastedit": 1727910487,
     "category": "外野",
     "active": true,
     "update": false

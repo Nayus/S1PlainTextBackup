@@ -900,3 +900,14 @@ xbox one至今没被破解，是不是微软自绝于人民
 
 节奏天国新作／太鼓达人新作．也不太可能跳过ＮＳ平台！
 
+
+*****
+
+####  hourousha  
+##### 82#       发表于 2024-10-2 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66362784&amp;ptid=2201766" target="_blank">Xerxes_2 发表于 2024-10-2 19:10</a>
+
+是，但是微软向下兼容做的还行，比另外两家都要好得多</blockquote>
+M$确实有技术也有能力做向后兼容，而且诸如画面强化等效果确实很好，但它会由于一些原因故意不做。最明显的比如X360上的PGR系列、Forza系列，这些都是完全有能力做兼容的，但由于据说车辆版权等问题，就都没有兼容。
+

@@ -2237,3 +2237,42 @@ NSw　スプラトゥーン3
 
 给自行车比赛下注，还好没全信旁边那个说什么黑马的屌毛
 
+
+*****
+
+####  nerugigannte  
+##### 6136#       发表于 2024-10-2 23:17
+
+这作野餐小队也太弱了吧，噩梦难度别的两条线都是无脑打自动配回路就行，野餐小队第三章下水道开场葱头还有个新的s技，结果下水道三姐妹根本打不过，要好好配下回路和指令了
+
+*****
+
+####  windtrack_qh  
+##### 6137#       发表于 2024-10-2 23:18
+
+通关了，这次主线不错，单论主线全系列最高不为过
+
+
+*****
+
+####  红魔馆的糖  
+##### 6138#       发表于 2024-10-2 23:21
+
+其实第二章开始刷完羊配好诗就已经无敌，啥都是魔法连动，随便按按就死了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  红魔馆的糖  
+##### 6139#       发表于 2024-10-2 23:22
+
+这里生怕别人不知道捏他，还故意说了个master·ninja<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/19/3f7f0b3e22f3ae58152bd88cf9dee8c1/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  仲可怀  
+##### 6140#       发表于 2024-10-2 23:23
+
+40+小时到第三章凡恩 主线剧情本身和剧情演出台词设计都不错  但是主线之前这些流程是真的是水 刷回廊加npc几个小时就过去了 
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+

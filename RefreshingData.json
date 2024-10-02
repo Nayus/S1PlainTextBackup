@@ -6822,10 +6822,10 @@
     "update": false
   },
   "2071702": {
-    "totalreply": 1961,
+    "totalreply": 1964,
     "title": "[《战锤40K：行商浪人》发售日确定！2023年12月7日！]",
     "newtitle": "[《战锤40K：行商浪人》发售日确定！2023年12月7日！]",
-    "lastedit": 1727841860,
+    "lastedit": 1727907968,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -8631,10 +8631,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 83716,
+    "totalreply": 83717,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1727906408,
+    "lastedit": 1727908087,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -16610,7 +16610,7 @@
     "newtitle": "[24年是不是没什么游戏玩了]",
     "lastedit": 1727648289,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2201449": {
@@ -17757,10 +17757,10 @@
     "update": false
   },
   "2201820": {
-    "totalreply": 109,
+    "totalreply": 110,
     "title": "[问下已婚朋友，工资卡上交吗]",
     "newtitle": "[问下已婚朋友，工资卡上交吗]",
-    "lastedit": 1727898847,
+    "lastedit": 1727907969,
     "category": "外野",
     "active": true,
     "update": false
@@ -17843,6 +17843,15 @@
     "newtitle": "[有关上交工资问题，结婚后你们谁管钱]",
     "lastedit": 1727901141,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2190237": {
+    "totalreply": 98,
+    "title": "[青黑无脑只求一战！gbc和mygo的对邦你更看好谁？]",
+    "newtitle": "[青黑无脑只求一战！gbc和mygo的对邦你更看好谁？]",
+    "lastedit": 1727907849,
+    "category": "漫区",
     "active": true,
     "update": false
   }

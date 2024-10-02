@@ -8970,3 +8970,11 @@ ps.同样是传统套路塞尔达林克双打boss，我觉得还是汽笛里的�
 应该说的是清理小裂缝给的2个碎片奖励吧</blockquote>
 是的，别人的全收集图都有那两个碎片，但我同样的地方没裂缝
 
+
+*****
+
+####  tachikoma27  
+##### 1421#       发表于 2024-10-3 00:48
+
+云泥之别都来了，每次看到疯狂吹老迷宫的我都有玩的是一个游戏吗的错觉，三角力量2的迷宫不也是平推吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

@@ -729,3 +729,15 @@ air原来参考了暴风雨啊，水魔真的还在追我，所以结局谁和�
 
 没换啊zsbd
 
+
+*****
+
+####  Ty_cc  
+##### 23754#       发表于 2024-10-2 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66363930&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-10-2 21:57</a>
+没换啊zsbd</blockquote>
+ave mujica加了官翻，utopia加了蓝火特效，angles好多不一样
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

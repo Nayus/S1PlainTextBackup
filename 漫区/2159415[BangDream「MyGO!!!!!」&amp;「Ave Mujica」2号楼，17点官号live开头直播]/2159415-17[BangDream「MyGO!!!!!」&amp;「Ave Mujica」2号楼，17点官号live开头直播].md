@@ -703,3 +703,11 @@ op要是eg有点，不太可能，因为现存的mygoave的eg歌都是在企划�
 
 air原来参考了暴风雨啊，水魔真的还在追我，所以结局谁和谁对戒
 
+
+*****
+
+####  ytttsuuuba  
+##### 23751#       发表于 2024-10-2 20:05
+
+虽然就剩3个月了，但反而更急了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">早点出点有内容的pv就好了。
+

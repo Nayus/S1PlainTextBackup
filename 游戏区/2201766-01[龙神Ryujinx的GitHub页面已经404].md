@@ -999,3 +999,13 @@ M$确实有技术也有能力做向后兼容，而且诸如画面强化等效果
 
 网络环境还要额外承受，意思是并没有跟ps xbox做到同水平吗？
 
+
+*****
+
+####  Xerxes_2  
+##### 90#         楼主| 发表于 2024-10-3 05:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66365195&amp;ptid=2201766" target="_blank">obiy 发表于 2024-10-3 05:46</a>
+偷跑本质是厂商面对经销商不够强势，你任学学苹果严禁提前激活查到就断供还会有经销商敢偷跑吗。之前诉状 ...</blockquote>
+自带WiFi太拉，需要额外买USB转以太网
+

@@ -458,3 +458,34 @@ yuzu和龙神都没用过，惋惜一个优秀的开源项目就这样没了不�
 
 <strong>下架那些靠这个赚钱的ＹＴ直播主！</strong>
 
+
+*****
+
+####  obiy  
+##### 46#       发表于 2024-10-2 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66361444&amp;ptid=2201766" target="_blank">伊迪潘宫森 发表于 2024-10-2 14:42</a>
+想玩你随时可以玩啊，指个路fitgirlrepack直接给你打包了开封既玩，都不用你搞固件和key，甚至可以用磁力下 ...</blockquote>
+私下联系开发者是怎么得出从法律层面上维权的
+
+断人财路当然就不是无缘无故了，法律上没把柄这不还有专利嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  病態極端  
+##### 47#       发表于 2024-10-2 15:40
+
+如果直接公佈多少錢收買開發者刪庫，倒是一樁招安美談。
+
+從保存遊戲到二三十年後還能玩的角度來說，那是挺損的。
+
+*****
+
+####  芜湖挨宰  
+##### 48#       发表于 2024-10-2 15:40
+
+我一直在等有能运行在vr头显上的3D版
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+

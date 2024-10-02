@@ -8998,3 +8998,13 @@ ps.同样是传统套路塞尔达林克双打boss，我觉得还是汽笛里的�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ParadiseMartyr  
+##### 1424#       发表于 2024-10-3 02:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66364672&amp;ptid=2188108" target="_blank">suzakushi 发表于 2024-10-3 00:09</a>
+打完了，最终战不是很喜欢，除了召怪和放机关我就只能全程ob，满场转圈圈和躺床上睡觉，实在没什么意思。整 ...</blockquote>
+没有啊，你可以用究极手拉boss手，林克可以自动直接y蓄力一刀断手
+

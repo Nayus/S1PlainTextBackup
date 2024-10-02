@@ -8444,3 +8444,18 @@ PV时，公主能举石头游泳潜水，比林**
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  一个陆仁贾  
+##### 1377#       发表于 2024-10-2 10:50
+
+ 本帖最后由 一个陆仁贾 于 2024-10-2 10:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66360137&amp;ptid=2188108" target="_blank">crosz1985 发表于 2024-10-2 10:32</a>
+妈的短赛道到底怎么跑进17秒啊
+
+论坛助手,iPhone</blockquote>
+最后两个拐弯的盆栽都用同步推开，内圈过弯；远程召唤龙卷风吹开或者变林克蓄力弓破坏也行但是操作繁琐容易手忙脚乱
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

@@ -4427,3 +4427,20 @@ sh2应该还不至于<img src="https://static.saraba1st.com/image/smiley/face201
 
 —— 來自 Google Pixel 2, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  Rushtime33  
+##### 1134#       发表于 2024-10-2 18:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">这游戏掌机玩还挺性感的，老引擎性能要求不高在sd能跑800p@45也变成加分点了，然后屏幕小那些画面污染没大屏显示器或者电视那么强烈。
+
+*****
+
+####  roxassix  
+##### 1135#       发表于 2024-10-2 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66362679&amp;ptid=2140224" target="_blank">Rushtime33 发表于 2024-10-2 18:52</a>
+这游戏掌机玩还挺性感的，老引擎性能要求不高在sd能跑800p@45也变成加分点了，然后屏幕小那些画面污染没大 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">sd现在能800p45了？要打社区补丁吗
+

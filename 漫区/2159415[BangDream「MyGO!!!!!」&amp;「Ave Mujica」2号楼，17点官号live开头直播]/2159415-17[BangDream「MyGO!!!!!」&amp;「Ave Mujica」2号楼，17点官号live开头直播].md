@@ -665,3 +665,25 @@ mujica一个团队需要这么好嘛？不如说有点感觉是不是她们没�
 
 就是立希是不是连学校同学的戏份都没有了，对鸡动画会补立希戏份的说法越来越悲观<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 23747#       发表于 2024-10-2 18:48
+
+“闇”に救われる人がいるかもしれない。私もそちら側なんですけど、Ave Mujicaは「ありのままでいいよ」と肯定するんじゃなくて、「仲間だよ、同じだよ」と寄り添ってくれるんです。
+
+当初看小剧场就是这个感受<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+diggy-mo元素曲解析有些用词挺有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不知道下个访谈是不是音乐P，会提到为什么那么爱长谷川吗<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 23748#       发表于 2024-10-2 18:52
+
+只能说确实是一丘之貉的方向了
+

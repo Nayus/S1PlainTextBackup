@@ -489,3 +489,21 @@ yuzu和龙神都没用过，惋惜一个优秀的开源项目就这样没了不�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
 
+
+*****
+
+####  obiy  
+##### 49#       发表于 2024-10-2 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66361512&amp;ptid=2201766" target="_blank">Xerxes_2 发表于 2024-10-2 14:53</a>
+yuzu和龙神都没用过，惋惜一个优秀的开源项目就这样没了不行吗
+
+ryujinx的技术路线可太有趣了，一开始是把a ...</blockquote>
+说再多，任天堂信者也是将其一票否决
+
+乔布斯当年也只说微软没有品味，可没说微软没有技术<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+开源互联网程序员：我哪怕饿死从这跳下去，也不会再碰一点微软的东西！
+微软：发布vscode和typescript
+开源互联网程序员：真香.jpg
+

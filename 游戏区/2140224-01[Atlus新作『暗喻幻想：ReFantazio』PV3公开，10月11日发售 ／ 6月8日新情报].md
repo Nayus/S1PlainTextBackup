@@ -4168,3 +4168,11 @@ Fami通 99109
 
 喜欢10年磨一剑，剑都磨钝了<img src="https://static.saraba1st.com/image/smiley/face/145.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罗克萨斯  
+##### 1106#       发表于 2024-10-2 15:29
+
+听玩过一代的人说灵魂骇客2就是纯纯的垃圾，完全没尝试的必要，即便你是一代粉丝，能打38分是真没良心，商单也不能这么搞啊
+

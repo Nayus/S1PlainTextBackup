@@ -8504,3 +8504,37 @@ credits里NoA和NoE的本地化人员有名字，但亚洲本地化就只有神�
 
 除了两个director之外，青沼的职位是producer，高桥（伸也）是general producer，古川是executive producer（充分体现了在director之上还有多达三层的冗官
 
+
+*****
+
+####  luffy0085  
+##### 1381#       发表于 2024-10-2 15:29
+
+<img src="https://img.saraba1st.com/forum/202410/02/152921fxdoxz4yccrccdur.jpg" referrerpolicy="no-referrer">
+
+<strong>87ff6aaf-047c-4ae8-bfa0-832e739e40c6.jpg</strong> (201.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-2 15:29 上传
+
+<img src="https://img.saraba1st.com/forum/202410/02/152921tmp1gt12n8m783mz.jpg" referrerpolicy="no-referrer">
+
+<strong>29dd1afa-0c9a-4266-beb1-78ab69b76115.jpg</strong> (170.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-2 15:29 上传
+
+<img src="https://img.saraba1st.com/forum/202410/02/152921swwwu9a9d9wguga6.jpg" referrerpolicy="no-referrer">
+
+<strong>b1f68a38-f732-4643-a99f-71953dc73570.jpg</strong> (233.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-2 15:29 上传
+
+限定机金灿灿的，之前没买过LITE，爱不释手
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

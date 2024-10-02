@@ -4060,3 +4060,32 @@ Fami通 99109
 
 ・クリアまで約80時間、やり込み含むと100時間以上
 
+
+*****
+
+####  罗克萨斯  
+##### 1096#       发表于 2024-10-2 15:04
+
+完蛋，不是满分，要褒姒了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  石中剑二  
+##### 1097#       发表于 2024-10-2 15:06
+
+<blockquote>Piano-Forest 发表于 2024-10-2 14:43
+Fami通 99109
+
+・プレイ感覚自体はペルソナシリーズとほぼ同じような印象
+</blockquote>
+全是夸的啊
+
+*****
+
+####  hkguty  
+##### 1098#       发表于 2024-10-2 15:06
+
+媒体评分几时出
+

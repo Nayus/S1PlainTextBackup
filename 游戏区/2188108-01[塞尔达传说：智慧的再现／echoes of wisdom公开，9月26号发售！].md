@@ -8546,3 +8546,26 @@ credits里NoA和NoE的本地化人员有名字，但亚洲本地化就只有神�
 
 主机模式玩着竟然没掌机模式舒服，很少有的体验
 
+
+*****
+
+####  tachikoma27  
+##### 1383#       发表于 2024-10-2 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66358861&amp;ptid=2188108" target="_blank">liekong 发表于 2024-10-2 01:36</a>
+发售当天就不敢看你楼了，29号中午才拿到卡带，
+
+刚好休了国庆前这两天假期，连肝3天通关了，通关复制只漏了 ...</blockquote>
+我也是通关都没开机关，这个描述明显误导人吧，我一直以为是个火箭怪物什么的，在火山上上下下跑了两圈
+
+*****
+
+####  库德里尔  
+##### 1384#       发表于 2024-10-2 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66359432&amp;ptid=2188108" target="_blank">达达葱2 发表于 2024-10-2 06:51</a>
+你们说的能淹死怪的水块哪里拿？</blockquote>
+应该是主线某裂缝里
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

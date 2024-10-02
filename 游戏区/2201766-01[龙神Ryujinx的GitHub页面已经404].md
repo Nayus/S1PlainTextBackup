@@ -517,3 +517,22 @@ ryujinx的技术路线可太有趣了，一开始是把a ...</blockquote>
 
 每次模拟器被弄的帖子下都有人不知道是装傻还是真傻“都怪你任不发新机/4399画质别人才去玩模拟器”，当真对模拟器(尤其是本世代机子模拟器)用户画像没点b数了？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">电子海盗也要立自己的赛博牌坊？
 
+
+*****
+
+####  Lisylfn  
+##### 51#       发表于 2024-10-2 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66361819&amp;ptid=2201766" target="_blank">obiy 发表于 2024-10-2 16:00</a>
+说再多，任天堂信者也是将其一票否决
+
+乔布斯当年也只说微软没有品味，可没说微软没有技术</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说得好像大多数反对的也是技术爱好者一样
+
+*****
+
+####  hisousihou  
+##### 52#       发表于 2024-10-2 16:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">论迹不论心，你爱不爱好技术有啥关系吗。群体形象可不就是玩盗版游戏的，拽什么呢
+

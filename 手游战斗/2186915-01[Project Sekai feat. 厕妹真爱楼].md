@@ -326,3 +326,69 @@ ws的歌也太一言难尽了
 由手机上传
 2024-10-1 11:55 上传
 
+
+*****
+
+####  Alicest  
+##### 1377#       发表于 2024-10-1 12:34
+
+hanser是中国的楠木灯吗
+<img src="https://p.sda1.dev/19/1230b3328493dcbdb66a10d63ac4752f/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  chih12  
+##### 1378#       发表于 2024-10-1 15:35
+
+从 rehearsal 试玩版入坑，陆续玩了一两年。想不到现在国服即将上线，pjsk 已经变成了臭不可闻的厕妹神游<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+看了几楼要吐了
+
+*****
+
+####  JetBrains  
+##### 1379#       发表于 2024-10-1 19:41
+
+各位PJS**丝晚上好：
+由于我在制作PJSK视频时未能充分深入了解角色剧情，使用了不当的玩梗方式造成了OOC，给大家带来了不佳的观影体验。我郑重地向每一位因此受到影响的PJS**丝诚挚地道歉！对不起！
+谢谢大家对我的监督与指正。我承诺在以后会严谨细致处理每一个细节，确保此类问题不再重现。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  反方向的波  
+##### 1380#       发表于 2024-10-1 21:22
+
+我靠太有意思了
+
+*****
+
+####  虚无缥缈的光阴  
+##### 1381#       发表于 2024-10-2 01:07
+
+<img src="https://img.saraba1st.com/forum/202410/02/010734m66lhh7eiheeicou.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1727802446840.jpg</strong> (40.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-2 01:07 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  kangkangsama  
+##### 1382#       发表于 2024-10-2 16:52
+
+<img src="https://img.saraba1st.com/forum/202410/02/165204skt7j5zezypj1fkw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6424.jpeg</strong> (226.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-2 16:52 上传
+
+楼主你和主播奶真大的恋情曝光了
+

@@ -2096,3 +2096,13 @@ NSw　スプラトゥーン3
 
 笑死了 法老控真是一个模型不浪费，从来没有一个模型只用一次就扔掉，就算是炮灰路人角色也得拿出来在登场。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skullgreymon  
+##### 6121#       发表于 2024-10-2 11:35
+
+打到庭院第一个关底，然后40回合打不死，退也退不出来，只能读史前档了？<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+网上一堆14级往上的build，我全是11级孔都没开，抄作业都抄不来
+

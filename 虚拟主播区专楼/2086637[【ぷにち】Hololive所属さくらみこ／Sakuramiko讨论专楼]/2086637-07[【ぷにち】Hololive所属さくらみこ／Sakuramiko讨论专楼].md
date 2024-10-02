@@ -11758,3 +11758,54 @@ mio真的本来要开占卜店的甚至连卡牌的贴图全部加急加入到�
 
 果然你跟我的担忧一样
 
+
+*****
+
+####  holoan  
+##### 9849#         楼主| 发表于 2024-10-2 15:51
+
+实体周间榜
+
+<img src="https://img.saraba1st.com/forum/202410/02/154930c1ah52a7c7u11152.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (17.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-2 15:49 上传
+
+数字周间榜
+
+<img src="https://img.saraba1st.com/forum/202410/02/154950m2tbvtfske554etf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (8.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-2 15:49 上传
+
+以及
+
+<img src="https://img.saraba1st.com/forum/202410/02/155047grprnddoifjgdqqg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (27.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-2 15:50 上传
+
+<img src="https://img.saraba1st.com/forum/202410/02/155143svka85m12m57gpp2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (162.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-2 15:51 上传
+
+*****
+
+####  holoan  
+##### 9850#         楼主| 发表于 2024-10-2 22:08
+
+这么简单的模拟经营游戏都能玩破产的就你最能整活
+

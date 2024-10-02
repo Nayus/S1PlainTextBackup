@@ -848,3 +848,20 @@ xbox one至今没被破解，是不是微软自绝于人民
 
 这个糟糕信号，为啥在NS半退休的这个阶段出手，虽然古川说过今后会继续提供NS平台游戏，但我们不知道具体力度有多大
 
+
+*****
+
+####  飞雨啸寒  
+##### 79#       发表于 2024-10-2 22:59
+
+模拟器以后会成为历史吗，现在已经证明了只要母公司出手，消失就是分分钟的事
+
+*****
+
+####  obiy  
+##### 80#       发表于 2024-10-2 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66363524&amp;ptid=2201766" target="_blank">1096beam 发表于 2024-10-2 20:59</a>
+讨论GVG基板破解的时候是多么的太平啊</blockquote>
+<img src="https://p.sda1.dev/19/510872f450271d319bf45e985fc14dc3/image.jpg" referrerpolicy="no-referrer">
+

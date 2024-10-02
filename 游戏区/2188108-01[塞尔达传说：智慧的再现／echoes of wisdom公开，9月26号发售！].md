@@ -8382,3 +8382,11 @@ PV时，公主能举石头游泳潜水，比林**
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看板bug也过于无敌了，既能用来速通也能把林克卡出来
 
+
+*****
+
+####  达达葱2  
+##### 1371#       发表于 2024-10-2 08:23
+
+看板有哪些作用
+

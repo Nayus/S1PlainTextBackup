@@ -8416,3 +8416,13 @@ PV时，公主能举石头游泳潜水，比林**
 
 转载一个全食谱
 
+
+*****
+
+####  冷泉夜月  
+##### 1374#       发表于 2024-10-2 10:21
+
+没看攻略靠自己摸索完成了全食谱，就是奖励缺了点特色，给个冰沙徽章之类的多好（吃冰沙效果1.5倍之类的）<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -650,3 +650,11 @@ dump 靠破解机</blockquote>
 DOMO，龙神=san，忍·Tendo DESU。
 和柚子=san 去奈落相聚吧，咿呀！
 
+
+*****
+
+####  GuDaZi  
+##### 62#       发表于 2024-10-2 18:41
+
+还是那句话又当又立最可恨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

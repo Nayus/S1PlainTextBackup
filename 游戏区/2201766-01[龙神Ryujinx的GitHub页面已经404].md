@@ -923,3 +923,16 @@ M$确实有技术也有能力做向后兼容，而且诸如画面强化等效果
 
 水平也没差多少
 
+
+*****
+
+####  NameLess2501  
+##### 84#       发表于 2024-10-2 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66362245&amp;ptid=2201766" target="_blank">Tring 发表于 2024-10-2 17:32</a>
+
+你看现在的官方模拟器和mini版把以前的冷门游戏上齐了没？都还不说有些版权复杂的玩意没法处理，光是够冷 ...</blockquote>
+当然上不齐了。
+
+对游戏公司来说，唯一值得谈的就是钱。
+

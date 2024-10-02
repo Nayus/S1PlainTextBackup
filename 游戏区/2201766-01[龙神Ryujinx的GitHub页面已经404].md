@@ -1021,3 +1021,21 @@ switch2就像3ds和new3ds的关系，能够完全兼容老3ds的游戏，也就�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  hisousihou  
+##### 92#       发表于 2024-10-3 07:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66365271&amp;ptid=2201766" target="_blank">沧兰殇 发表于 2024-10-3 07:11</a>
+
+如果是按照楼上所说，我觉得switch的时代其实还有很多年，因为按照爆料2代相对于一代性能有提升，但是特殊 ...</blockquote>
+特殊玩法都是靠手柄实现的，为什么现在就能肯定没有“特殊玩法”。之前爆料中不少内容呢，比如麦克风，磁吸部件，新的背后按键，以及依然保留的体感与分体设计。
+
+*****
+
+####  卡拉德利姆  
+##### 93#       发表于 2024-10-3 07:24
+
+所谓“特殊玩法”也就有两年图个新鲜
+

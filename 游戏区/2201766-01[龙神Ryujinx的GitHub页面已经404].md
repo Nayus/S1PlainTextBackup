@@ -674,3 +674,16 @@ xbox one至今没被破解，是不是微软自绝于人民
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Xerxes_2  
+##### 64#         楼主| 发表于 2024-10-2 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66362713&amp;ptid=2201766" target="_blank">鹅大人 发表于 2024-10-2 18:57</a>
+
+xbox one至今没被破解，是不是微软自绝于人民
+
+论坛助手,iPhone</blockquote>
+是，但是微软向下兼容做的还行
+

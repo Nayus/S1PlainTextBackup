@@ -4467,3 +4467,43 @@ sd现在能800p45了？要打社区补丁吗</blockquote>
 不用，我玩demo正常设置就能跑这个帧数，过场会低一点但是也有30以上不影响。同样老引擎的p5r能跑1080p@45 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不是，一上来沙漠大地图根本稳不了30啊。。你渲染100吗
 
+
+*****
+
+####  Rushtime33  
+##### 1138#       发表于 2024-10-2 19:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66362755&amp;ptid=2140224" target="_blank">roxassix 发表于 2024-10-2 19:04</a>
+
+不是，一上来沙漠大地图根本稳不了30啊。。你渲染100吗</blockquote>
+补了一下其他的，渲染肯定100吧，这种游戏超出原生分辨率除了加点抗锯齿提升也不大，但是性能消耗就大了。渲染倍率如果有8、90的档位我还想开低点然后全局fsr，帧数还能更稳。
+
+*****
+
+####  roxassix  
+##### 1139#       发表于 2024-10-2 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66362774&amp;ptid=2140224" target="_blank">Rushtime33 发表于 2024-10-2 19:09</a>
+补了一下其他的，渲染肯定100吧，这种游戏超出原生分辨率除了加点抗锯齿提升也不大，但是性能消耗就大了 ...</blockquote>
+看了眼 demo更新了一次 现在不用打社区补丁了吧。demo刚出的时候sd根本扛不住<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 1140#       发表于 2024-10-2 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66362782&amp;ptid=2140224" target="_blank">roxassix 发表于 2024-10-2 19:10</a>
+
+看了眼 demo更新了一次 现在不用打社区补丁了吧。demo刚出的时候sd根本扛不住 ...</blockquote>
+实际上还可以打，一样有提升<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  roxassix  
+##### 1141#       发表于 2024-10-2 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66362793&amp;ptid=2140224" target="_blank">walfeds 发表于 2024-10-2 19:11</a>
+实际上还可以打，一样有提升从补丁作者的观点来看修歪了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好家伙，还能这样的吗
+

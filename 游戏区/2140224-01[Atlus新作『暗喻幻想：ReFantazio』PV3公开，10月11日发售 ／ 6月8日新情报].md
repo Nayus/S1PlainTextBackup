@@ -4536,3 +4536,14 @@ It takes about 80 hours to clear the story, or 100 hours with side activities
 
 这60小时流程是怎么算的？我序章的试玩就打了7-8个小时了。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">减去牛头人迷宫刷的1个小时，这就玩了1/10了？
 
+
+*****
+
+####  walfeds  
+##### 1145#       发表于 2024-10-2 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66364066&amp;ptid=2140224" target="_blank">纯粹理性人 发表于 2024-10-2 22:21</a>
+
+这60小时流程是怎么算的？我序章的试玩就打了7-8个小时了。减去牛头人迷宫刷的1个小时，这就玩了1/10了？ ...</blockquote>
+试玩官方是按五个小时算的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但玩了十小时以上的感觉也不少
+

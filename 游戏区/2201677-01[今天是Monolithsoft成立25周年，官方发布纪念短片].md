@@ -748,3 +748,26 @@ se再这么作下去不知道有没机会remake XG了
 ff7好赖已经有复刻，我的怨念就差XG了</blockquote>
 不如等暴毙 让地狱收购se<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  清浦刹那  
+##### 78#       发表于 2024-10-2 10:08
+
+<img src="https://img.saraba1st.com/forum/202410/02/100800i4d12gztdcc4bade.jpg" referrerpolicy="no-referrer">
+
+<strong>004018aexnxo0kyq8yhq4d.jpg</strong> (95.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-2 10:08 上传
+
+说是顶级大作吧，好像总差着一口气；
+说有多喜欢吧，好像也不是自己最喜欢那一档的；
+明明不太有重温的时间和机会，但是每次清出库存回血的时候这几个总是能留下；
+
+<strong>Happy 25th anniversary</strong>
+
+===
+PV：“送走送走~统统给你们送走~~”
+

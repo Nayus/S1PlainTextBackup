@@ -424,3 +424,14 @@ NS2护航的跨世代游戏是指最低配置16GB内存推荐配置8GB显存的�
 
 说明我的NS可以先不急着卖了
 
+
+*****
+
+####  Xerxes_2  
+##### 43#         楼主| 发表于 2024-10-2 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66361444&amp;ptid=2201766" target="_blank">伊迪潘宫森 发表于 2024-10-2 14:42</a>
+
+想玩你随时可以玩啊，指个路fitgirlrepack直接给你打包了开封既玩，都不用你搞固件和key，甚至可以用磁力下 ...</blockquote>
+yuzu和龙神都没用过，惋惜一个优秀的开源项目就这样没了不行吗
+

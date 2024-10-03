@@ -4587,3 +4587,28 @@ It takes about 80 hours to clear the story, or 100 hours with side activities
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Rushtime33  
+##### 1150#       发表于 2024-10-3 17:25
+
+越往后玩优化越是差的离谱啊，这个教堂地城怎么做到高配pc 150渲染下有些地方60帧都稳不了的。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  nightomorrow  
+##### 1151#       发表于 2024-10-3 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66367995&amp;ptid=2140224" target="_blank">Rushtime33 发表于 2024-10-3 17:25</a>
+越往后玩优化越是差的离谱啊，这个教堂地城怎么做到高配pc 150渲染下有些地方60帧都稳不了的。
+
+—— 来自  ...</blockquote>
+看看cpu使用率<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">摸鱼了吗
+还是得手动打补丁才能保证体验
+
+—— 来自 HUAWEI BRA-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

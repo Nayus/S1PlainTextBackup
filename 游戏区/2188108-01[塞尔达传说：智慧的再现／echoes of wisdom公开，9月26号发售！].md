@@ -9217,3 +9217,11 @@ x有一个同步对象的功能，你这个有了的话就没别的升级了，�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  hisousihou  
+##### 1445#       发表于 2024-10-3 17:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">初玩能有90分，打到终盘我也给85分。扣分点和王泪一样，内容经不起消费，能力强大但是能花样运用的点不多。
+

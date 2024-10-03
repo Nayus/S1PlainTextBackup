@@ -4637,3 +4637,11 @@ It takes about 80 hours to clear the story, or 100 hours with side activities
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  roxassix  
+##### 1154#       发表于 2024-10-3 19:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">看着城里乱七八糟虾jb动的满街npc+卡通渲染+狗牙+掉帧！是你吗重力眩晕2！
+

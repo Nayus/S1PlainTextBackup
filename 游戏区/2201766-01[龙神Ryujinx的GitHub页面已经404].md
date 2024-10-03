@@ -1113,3 +1113,35 @@ switch2就像3ds和new3ds的关系，能够完全兼容老3ds的游戏，也就�
 
 还说不是任坛<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wowheyyy  
+##### 101#       发表于 2024-10-3 19:06
+
+任（模拟器爱好者）坛
+
+
+*****
+
+####  复杂梦境  
+##### 102#       发表于 2024-10-3 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66368296&amp;ptid=2201766" target="_blank">罗克萨斯 发表于 2024-10-3 18:17</a>
+
+就说UCG杂志吧，在售的没见人会去扫，你下载十年乃至二十年前的刊物，根本不会影响UCG的杂志收入，因为你 ...</blockquote>
+ucg那一系杂志现在网上流传的资源都是当时发售不久就扫出来的，以及ucg自己开始提供数字版后扒下来的
+
+至于主动上传分享的理由和下载使用的理由那更是五花八门了
+
+举个例子想玩体验更好的xb2但ns2死等活等等不到算不算
+
+*****
+
+####  Xerxes_2  
+##### 103#         楼主| 发表于 2024-10-3 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66368027&amp;ptid=2201766" target="_blank">nozomitech 发表于 2024-10-3 17:31</a>
+我想问一下担心没有盗版就会导致当任天堂下架现有的Eshop服务器很多游戏就再也玩不到了，这点我可以理解。 ...</blockquote>
+虽然你这是典型的whataboutism，但解释下好了。在线游戏没有服务端的话基本是玩不了的，关了服就没有了。玩不了的话美术素材也就没什么用，虽然也会有人dump。抗议抵制也没有用，服务端没有哪个厂家会公开的。
+

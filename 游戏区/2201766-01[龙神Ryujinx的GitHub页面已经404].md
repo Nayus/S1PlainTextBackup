@@ -1410,3 +1410,23 @@ ns2快出吧，想玩za了
 ns都快到头了，干嘛要花这个功夫</blockquote>
 搞不好是老任打了一下算盘,发现买断模拟器付的钱比自己内部开发要更便宜,所以直接买来内置到ns2上当ns1兼容层.
 
+
+*****
+
+####  DJYDJYD  
+##### 128#       发表于 2024-10-4 02:49
+
+ 本帖最后由 DJYDJYD 于 2024-10-4 02:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66364612&amp;ptid=2201766" target="_blank">NameLess2501 发表于 2024-10-2 23:55</a>
+
+说到游戏的兼容和保存，就想再安利一波《GOG》平台，现在不只是老游戏，也有新游戏在售，国区人民币结算比 ...</blockquote>
+吹不动，很多游戏缺功能，成就或者联机相关的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202410/04/025046zk8pq8cb3js3uzmc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (405.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-4 02:50 上传
+

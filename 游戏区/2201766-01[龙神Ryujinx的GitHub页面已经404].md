@@ -1585,3 +1585,26 @@ splatoon 1停服了，现在玩splatoon 1在线的都是用CEMU模拟器玩的�
 
 这个你不关注模拟、破解的话是基本不会听过的
 
+
+*****
+
+####  库德里尔  
+##### 141#       发表于 2024-10-4 07:33
+
+联想到：
+功能机上的brew游戏现在也有人在收集保存，b站有个叫阿拉雷叔的在做。
+游戏文件的导出和模拟器的开发也在进行中。
+功能机老游戏保持也够小众了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  nozomitech  
+##### 142#       发表于 2024-10-4 07:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66371468&amp;ptid=2201766" target="_blank">Xerxes_2 发表于 2024-10-4 00:13</a>
+
+你这要让我回答的话，我只能说，手游玩家绝大部分已经是被厂商规训好的狗，真要有其他想法就不可能玩手游 ...</blockquote>
+传统的线上服务游戏如果比较热门仔仔细细想想似乎确实有，但我曾经玩过几年二游，都是耳熟能详的title，而不是什么没什么人问津的冷门玩意，不算是完全的圈外人，这种呼声我个人见过的屈指可数，有也几乎没人响应，不过你要这样讲也算是一说吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，甚至觉得似乎挺有道理的。
+

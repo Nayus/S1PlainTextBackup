@@ -1094,3 +1094,13 @@ abema之前那个档期在播ネガポジアングラー，看起来似乎是十
 
 大胆点猜直接宣剧场版吧
 
+
+*****
+
+####  ykyin09  
+##### 23786#       发表于 2024-10-3 22:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天早上沿着面影桥一直走到池袋圣地巡礼，下午去了东京塔联动盖章，晚上去看了剧场版，回到酒店还看了第一集重播，今天算是狗友最开心的一集
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

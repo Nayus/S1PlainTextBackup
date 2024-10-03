@@ -2008,3 +2008,13 @@ We got the party night night night!</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  kykawaiii  
+##### 6466#       发表于 2024-10-3 10:24
+
+<img src="https://p.sda1.dev/19/f2407e236115b11e8fa588cf27e3226b/image.jpg" referrerpolicy="no-referrer">
+漫画设定上，会长有点尴尬啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+—— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

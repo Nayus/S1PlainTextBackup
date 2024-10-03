@@ -2757,3 +2757,27 @@ PS：
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">现在只希望社长和董事长看在五万死忠不离不弃的份上给你轨这个20多年的ip一个体面的收尾
 
+
+*****
+
+####  Falcomfans  
+##### 6193#       发表于 2024-10-4 02:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66369505&amp;ptid=2160194" target="_blank">pf67 发表于 2024-10-3 21:35</a>
+
+按某机构统计，黎轨港中占比高达60%，按这个比例6w都有可能
+
+—— 来自 OPPO PCLM10, Android 12上的 S1N ...</blockquote>
+不止中文，云豹是亚洲代理，还有韩文。
+
+*****
+
+####  Falcomfans  
+##### 6194#       发表于 2024-10-4 02:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66369589&amp;ptid=2160194" target="_blank">红魔馆的糖 发表于 2024-10-3 21:47</a>
+
+有一说一数字版和中文版都算上也差不多能摸一摸十万了社长美美地开一个小香槟 ...</blockquote>
+还有韩文版呢：
+[https://www.cloudedleopardent.com/game/kai/kr/](https://www.cloudedleopardent.com/game/kai/kr/)
+

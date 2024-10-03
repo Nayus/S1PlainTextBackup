@@ -4557,3 +4557,11 @@ It takes about 80 hours to clear the story, or 100 hours with side activities
 不用，我玩demo正常设置就能跑这个帧数，过场会低一点但是也有30以上不影响。同样老引擎的p5r能跑1080p@45 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">试了下城里还是没法稳30啊。我初版800p全屏100%渲染，关垂直和空间城里人多一转视角就30以下了。啊不过总的来说能踩着30线波动吧。比之前强了不少
 
+
+*****
+
+####  Dreammask  
+##### 1147#       发表于 2024-10-3 15:34
+
+并非只在做rpg.jp，指凯瑟琳FB<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

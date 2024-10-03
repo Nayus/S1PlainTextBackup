@@ -2018,3 +2018,12 @@ We got the party night night night!</blockquote>
 漫画设定上，会长有点尴尬啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 —— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  ヒトニナル  
+##### 6467#       发表于 2024-10-3 10:53
+
+不是说漫画跟游戏不是同一个世界线/世界观吗
+漫画的事务所写作100读作じゅうおう＝十王，这条世界线的会长怕不是就是事务所所长
+

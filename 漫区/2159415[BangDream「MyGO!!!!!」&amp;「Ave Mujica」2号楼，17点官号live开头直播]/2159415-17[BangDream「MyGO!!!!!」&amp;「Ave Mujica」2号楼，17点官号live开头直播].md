@@ -862,3 +862,23 @@ mygo主打男性向特攻，mujica多拉点女粉也不是坏事
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别给初华再贷病娇的款了，这一年被贷款了些什么勾八标签还不够吗
 
+
+*****
+
+####  玖羽  
+##### 23766#       发表于 2024-10-3 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66369059&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-10-3 20:38</a>
+
+别给初华再贷病娇的款了，这一年被贷款了些什么勾八标签还不够吗</blockquote>
+都复读多少遍了，初华大概率非常重
+
+*****
+
+####  七情七律  
+##### 23767#       发表于 2024-10-3 21:05
+
+初华是10个人里原作钕通最真的了吧，她对小祥一股冲着10分满分关系的意思去
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

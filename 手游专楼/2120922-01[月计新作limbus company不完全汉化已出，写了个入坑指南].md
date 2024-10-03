@@ -1112,3 +1112,28 @@ PS：除了每日一折付费单抽外，不建议在瓦尔吉普斯之夜外的
 
 接下来得4号线坐牢了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  erratic璃月  
+##### 901#       发表于 2024-10-3 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66355290&amp;ptid=2120922" target="_blank">菟原手兒奈 发表于 2024-10-1 15:36</a>
+
+一夜又一上午终于推完第六章了，最后的连战强度太高，还好最后不用下地牢
+
+手上只有个半残沉沦队，只能说这 ...</blockquote>
+要快点了，4号线闪光牌子还剩一周时间<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  erratic璃月  
+##### 902#       发表于 2024-10-3 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66350342&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2024-9-30 19:48</a>
+
+恭喜震颤队又添一位大将——二玛，我姑且预订把T罗拿出去吧，组全三星队：
+
+悔恨浮士德、臼齿奥提斯、圣愚 ...</blockquote>
+现在看来西2玛进不了震颤吧，可能更适合单通<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

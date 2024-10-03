@@ -1503,3 +1503,14 @@ ns都快到头了，干嘛要花这个功夫</blockquote>
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  hisousihou  
+##### 135#       发表于 2024-10-4 06:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66371048&amp;ptid=2201766" target="_blank">锁任龙 发表于 2024-10-4 01:27</a>
+
+很搞笑，暴黑不玩暴雪游戏只希望暴雪死就没问题，任黑不玩任天堂游戏只想任天堂死就是道德水平低下气急败坏 ...</blockquote>
+"暴黑不玩暴雪游戏"<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我有点怀疑
+

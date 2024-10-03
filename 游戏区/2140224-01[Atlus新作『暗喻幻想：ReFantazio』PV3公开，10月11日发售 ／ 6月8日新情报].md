@@ -4689,3 +4689,14 @@ It takes about 80 hours to clear the story, or 100 hours with side activities
 
 —— 来自 OPPO PGBM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  大十字紅朔  
+##### 1159#       发表于 2024-10-3 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66362280&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-10-2 17:41</a>
+
+看访谈里提到暗喻幻想虽然从立项到发售经历了8年时间，但是这8年里并非只在做暗喻幻想，看似时间拉得长但是 ...</blockquote>
+献祭了真5的开发进度，不知道值不值得
+

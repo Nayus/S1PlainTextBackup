@@ -1060,3 +1060,29 @@ abema之前那个档期在播ネガポジアングラー，看起来似乎是十
 不管是初华还是别的角色，负面性这一点我从来不否认它的存在， ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真的会有邦4和pico4吗
 
+
+*****
+
+####  Aendst  
+##### 23783#       发表于 2024-10-3 22:28
+
+ 本帖最后由 Aendst 于 2024-10-3 22:29 编辑 
+
+大发表会不知道能发表什么的，这次还比往年的迟
+
+让动画给发表会让时间那又是一个惊天迷惑操作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然既然是武士道好像就合理了
+
+如果刚好在播期间发表会也很迷惑，不知道能发表什么，BD发售日？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+按照2期3期和mygo来说开播时间是开播前一个月的动画制作发表会上公布的
+
+*****
+
+####  星天观测  
+##### 23784#       发表于 2024-10-3 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66369853&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-10-3 22:25</a>
+
+真的会有邦4和pico4吗</blockquote>
+万一呢<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">pico4还是期待一下吧
+

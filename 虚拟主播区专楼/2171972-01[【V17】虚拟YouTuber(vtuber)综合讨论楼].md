@@ -220,3 +220,16 @@ idios3D全播完了，后续倒是没啥了，等两周年看看会不会3D全�
 
 2024-10-3 14:36 上传
 
+
+*****
+
+####  艾特娜  
+##### 798#       发表于 2024-10-3 15:56
+
+ 本帖最后由 艾特娜 于 2024-10-3 15:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66366594&amp;ptid=2171972" target="_blank">バーチャルS1er 发表于 2024-10-3 12:35</a>
+[https://www.youtube.com/watch?v=H59hn0pbH08](https://www.youtube.com/watch?v=H59hn0pbH08)
+
+【転生が増える？！】個人Vtuberが引退・卒業した後に中堅事 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">中坚和大手的区别我觉得看应该广告赞助商？至少要有电脑厂商的赞助吧
+

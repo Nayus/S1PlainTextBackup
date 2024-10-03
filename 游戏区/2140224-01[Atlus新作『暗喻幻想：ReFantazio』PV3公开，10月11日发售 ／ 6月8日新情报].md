@@ -4565,3 +4565,13 @@ It takes about 80 hours to clear the story, or 100 hours with side activities
 
 并非只在做rpg.jp，指凯瑟琳FB<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  迪特  
+##### 1148#       发表于 2024-10-3 15:51
+
+试玩版玩了俩小时，暂时先把预定的实体盘退掉了。。
+
+年初打完p3实在肝不动这类型了，同质化从个人角度讲还是有点严重，缓一缓等完全版吧
+

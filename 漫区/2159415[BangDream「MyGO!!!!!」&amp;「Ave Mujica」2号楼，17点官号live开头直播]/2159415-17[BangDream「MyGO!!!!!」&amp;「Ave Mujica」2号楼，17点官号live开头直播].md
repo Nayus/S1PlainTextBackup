@@ -1086,3 +1086,11 @@ abema之前那个档期在播ネガポジアングラー，看起来似乎是十
 真的会有邦4和pico4吗</blockquote>
 万一呢<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">pico4还是期待一下吧
 
+
+*****
+
+####  前方暴雨预警  
+##### 23785#       发表于 2024-10-3 22:44
+
+大胆点猜直接宣剧场版吧
+

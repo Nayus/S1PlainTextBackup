@@ -4700,3 +4700,21 @@ It takes about 80 hours to clear the story, or 100 hours with side activities
 看访谈里提到暗喻幻想虽然从立项到发售经历了8年时间，但是这8年里并非只在做暗喻幻想，看似时间拉得长但是 ...</blockquote>
 献祭了真5的开发进度，不知道值不值得
 
+
+*****
+
+####  adretyu67.  
+##### 1160#       发表于 2024-10-3 22:42
+
+ 本帖最后由 adretyu67. 于 2024-10-3 22:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66369921&amp;ptid=2140224" target="_blank">大十字紅朔 发表于 2024-10-3 22:35</a>
+
+献祭了真5的开发进度，不知道值不值得</blockquote>
+真5进度看之前宣传的通用口径是低估了换引擎导致的技术升级问题。
+
+倒不是其他什么因素。
+
+你A搞到现在真5这个序列也就真5和真55.
+
+只能说有点技术积累了啥
+

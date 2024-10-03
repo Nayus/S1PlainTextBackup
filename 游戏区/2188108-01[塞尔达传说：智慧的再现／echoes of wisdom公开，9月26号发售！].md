@@ -9050,3 +9050,17 @@ ps.同样是传统套路塞尔达林克双打boss，我觉得还是汽笛里的�
 地区主线过完那个地区的小裂缝不会消失，有些小裂缝需要接支线才会解锁 ...</blockquote>
 那我之后看看支线
 
+
+*****
+
+####  ColAMK  
+##### 1429#       发表于 2024-10-3 10:06
+
+ 本帖最后由 ColAMK 于 2024-10-3 10:09 编辑 
+
+当初水神殿我就是卡在水位上去之后那个小平台会浮起来露出底下隐藏的房间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+说回本作，我全程玩的召唤流除了几个必须要剑砍的障碍其他时候没变过林克<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以战斗这块是跟老塞尔达很不同的体验，我是觉得挺好的
+
+对了，音乐这块除了主旋律还真没啥印象了，可能是历代排倒数的那一批了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

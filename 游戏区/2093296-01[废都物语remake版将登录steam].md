@@ -53,3 +53,13 @@
 
 那感觉可以和丝之鸽坐一桌了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等吧
 
+
+*****
+
+####  ayeah  
+##### 637#       发表于 2024-10-4 02:15
+
+直接玩原版吧<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">，原版又不差的，不如说强的要死
+
+—— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

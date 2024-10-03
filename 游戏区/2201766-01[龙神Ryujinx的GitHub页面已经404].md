@@ -1481,3 +1481,15 @@ ns都快到头了，干嘛要花这个功夫</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Xerxes_2  
+##### 133#         楼主| 发表于 2024-10-4 06:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66371397&amp;ptid=2201766" target="_blank">jtwing 发表于 2024-10-4 06:03</a>
+今年是真的热闹。
+年初帕鲁那样模仿宝可梦，然后任天堂和gf被骂说活该被抄袭。
+年中任杀过模拟器，然后被骂 ...</blockquote>
+你说的这三个我都没玩过/用过，今年还给任天堂送了不少钱，我有没有资格骂？
+

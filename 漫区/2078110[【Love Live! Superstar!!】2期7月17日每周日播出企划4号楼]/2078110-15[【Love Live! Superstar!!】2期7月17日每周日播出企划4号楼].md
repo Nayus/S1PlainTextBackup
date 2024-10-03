@@ -1963,3 +1963,15 @@ op3这衣服真丑啊。准备那么久设计出这种玩意</blockquote>
 要提前去排场贩吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我不打算去买场贩
 
+
+*****
+
+####  starring  
+##### 21144#       发表于 2024-10-3 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66366383&amp;ptid=2078110" target="_blank">461757753 发表于 2024-10-3 11:53</a>
+要提前去排场贩吗</blockquote>
+大概会很多人，有需要买的就提前去排
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

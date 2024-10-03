@@ -2731,3 +2731,13 @@ PS：
 
 虽然一直说2D美术越来越不够，但是这作微妙的在很多细节的地方画了很多新的回忆CG<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hayate0079  
+##### 6190#       发表于 2024-10-4 00:00
+
+1周目噩梦85H通了，前期全NPC后期转只看感兴趣的NPC，SP的话差6-7点到AAA，懒得搞了
+
+说起版本，我是首发（闪1开始）有中文买中文，没中文买日文，基本下载版
+

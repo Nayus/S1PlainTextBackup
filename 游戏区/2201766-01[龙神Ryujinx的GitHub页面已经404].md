@@ -1331,3 +1331,15 @@ ns2快出吧，想玩za了
 
 任天堂在n64出现前那才叫垄断，现在有没有利用市场支配地位故意拉长现有产品周期还有争议
 
+
+*****
+
+####  pipaopo  
+##### 121#       发表于 2024-10-4 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66370510&amp;ptid=2201766" target="_blank">Link213 发表于 2024-10-4 00:15</a>
+你都说自己不喜欢任系游戏，那还在意任天堂独不独占干吗？</blockquote>
+我不玩米哈游游戏，就不能希望米哈游死了么
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

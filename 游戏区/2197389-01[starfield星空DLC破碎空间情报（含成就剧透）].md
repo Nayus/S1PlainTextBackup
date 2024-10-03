@@ -456,3 +456,14 @@ dlc好玩吗，终于有外星人敌人了不用打换皮星际土匪了？
 
 用了10小时通关了DLC，感觉在贝塞斯达内部没有人对这个项目拥有热情，看不到细节也看不到创新。甚至这次我还玩出了育碧那种罐头味儿，任务设计是没垃圾到那个地步，但是主线任务总让我感觉以前玩过。看起来是对于豪华版机票的凑合答案，搞一下就完了大家也都别认真。
 
+
+*****
+
+####  FLZB  
+##### 48#       发表于 2024-10-3 08:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66365287&amp;ptid=2197389" target="_blank">ytrfegd 发表于 2024-10-3 07:23</a>
+
+用了10小时通关了DLC，感觉在贝塞斯达内部没有人对这个项目拥有热情，看不到细节也看不到创新。甚至这次我 ...</blockquote>
+之前看故事介绍pv我就说这编剧毫无想象力，直接搁这套公式了属于是。如果不是一开始就拿出来卖了钱估计这DLC都不会存在，怕不是开发者捏着鼻子做豪华版玩家捏着鼻子玩<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

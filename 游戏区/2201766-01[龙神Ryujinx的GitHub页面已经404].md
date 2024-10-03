@@ -1514,3 +1514,13 @@ ns都快到头了，干嘛要花这个功夫</blockquote>
 很搞笑，暴黑不玩暴雪游戏只希望暴雪死就没问题，任黑不玩任天堂游戏只想任天堂死就是道德水平低下气急败坏 ...</blockquote>
 "暴黑不玩暴雪游戏"<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我有点怀疑
 
+
+*****
+
+####  战术核辣条  
+##### 136#       发表于 2024-10-4 06:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我就想知道坛友要是今年想玩3ds游戏会不会也从小红书集美手里买台实机来玩，而且买了也多半只能玩烧录了
+
+—— 来自 nubia NX729J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

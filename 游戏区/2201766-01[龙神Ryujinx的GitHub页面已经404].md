@@ -1165,3 +1165,27 @@ ucg那一系杂志现在网上流传的资源都是当时发售不久就扫出�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">  模拟器死了就死了呗  正常商业行为。说Fuck Nintendo的想必也不玩任天堂的游戏吧。
 
+
+*****
+
+####  罗克萨斯  
+##### 106#       发表于 2024-10-3 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66368544&amp;ptid=2201766" target="_blank">复杂梦境 发表于 2024-10-3 19:11</a>
+ucg那一系杂志现在网上流传的资源都是当时发售不久就扫出来的，以及ucg自己开始提供数字版后扒下来的
+
+至 ...</blockquote>
+这个理由，对所有低性能平台游戏机都适用，甚至可以说任天堂有原罪，只要NS2性能达不到中端显卡水平玩破解就是对任天堂合理的惩罚<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Xerxes_2  
+##### 107#         楼主| 发表于 2024-10-3 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66368610&amp;ptid=2201766" target="_blank">罗克萨斯 发表于 2024-10-3 19:24</a>
+这个理由，对所有低性能平台游戏机都适用，甚至可以说任天堂有原罪，只要NS2性能达不到中端显卡水平玩破 ...</blockquote>
+我现在就在用ns玩智慧的再现，我只求它在大地图能别掉帧掉分辨率就谢天谢地了
+

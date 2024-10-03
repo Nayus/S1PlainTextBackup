@@ -1039,3 +1039,14 @@ switch2就像3ds和new3ds的关系，能够完全兼容老3ds的游戏，也就�
 
 所谓“特殊玩法”也就有两年图个新鲜
 
+
+*****
+
+####  赤井稻妻  
+##### 94#       发表于 2024-10-3 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66365195&amp;ptid=2201766" target="_blank">obiy 发表于 2024-10-3 05:46</a>
+
+偷跑本质是厂商面对经销商不够强势，你任学学苹果严禁提前激活查到就断供还会有经销商敢偷跑吗。之前诉状 ...</blockquote>
+关于网络环境可以看我的头像
+

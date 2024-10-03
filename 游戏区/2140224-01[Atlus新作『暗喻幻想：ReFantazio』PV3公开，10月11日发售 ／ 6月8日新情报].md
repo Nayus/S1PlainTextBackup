@@ -4575,3 +4575,15 @@ It takes about 80 hours to clear the story, or 100 hours with side activities
 
 年初打完p3实在肝不动这类型了，同质化从个人角度讲还是有点严重，缓一缓等完全版吧
 
+
+*****
+
+####  Rushtime33  
+##### 1149#       发表于 2024-10-3 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66365148&amp;ptid=2140224" target="_blank">roxassix 发表于 2024-10-3 03:59</a>
+试了下城里还是没法稳30啊。我初版800p全屏100%渲染，关垂直和空间城里人多一转视角就30以下了。啊不过总 ...</blockquote>
+回城镇之后确实帧数降的有点多，没办法我试了下高配pc也只有六七十帧。但是目前版本这么设置地城里大概能跑45吧，将就玩着了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

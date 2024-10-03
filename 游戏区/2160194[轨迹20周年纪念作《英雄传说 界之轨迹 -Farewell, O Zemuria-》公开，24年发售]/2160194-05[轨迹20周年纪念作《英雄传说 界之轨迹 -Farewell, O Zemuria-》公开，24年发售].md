@@ -2443,3 +2443,16 @@ NSw　スプラトゥーン3
 
 新补丁修正了翻译错误吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  windtrack_qh  
+##### 6159#       发表于 2024-10-3 18:04
+
+ 本帖最后由 windtrack_qh 于 2024-10-3 18:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66368183&amp;ptid=2160194" target="_blank">红魔馆的糖 发表于 2024-10-3 17:56</a>
+
+这么搞还是挺慢的而且晶片爆仓后没啥副产物，开了温泉之后还得读盘不能吃圣灵药。不知道有没有更快的 ...</blockquote>那你就把晶片全换成DX团子
+
+葱头线城里钓鱼点DX团高概率出的两种鱼有一种A级给2个U+，而且DX团子必定A级
+

@@ -882,3 +882,18 @@ mygo主打男性向特攻，mujica多拉点女粉也不是坏事
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  星天观测  
+##### 23768#       发表于 2024-10-3 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66369234&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-10-3 21:02</a>
+
+都复读多少遍了，初华大概率非常重</blockquote>
+大概率=真的？
+
+差不多得了
+
+别贷款病娇跟重不重有什么关系？
+

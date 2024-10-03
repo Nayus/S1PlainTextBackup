@@ -4624,3 +4624,16 @@ It takes about 80 hours to clear the story, or 100 hours with side activities
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Rushtime33  
+##### 1153#       发表于 2024-10-3 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66368021&amp;ptid=2140224" target="_blank">nightomorrow 发表于 2024-10-3 17:30</a>
+看看cpu使用率摸鱼了吗
+还是得手动打补丁才能保证体验</blockquote>
+已经打了special k补丁，最后还是把渲染倍率降回100帧数才上去了，但是这游戏因为没有aa所以一堆狗牙。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

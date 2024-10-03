@@ -2435,3 +2435,11 @@ NSw　スプラトゥーン3
 
 庭院第二关先把150连击做了，场上最多10个怪，法术最多一只12连击，想找能扛住两波攻击的怪好难
 
+
+*****
+
+####  swordofsoul1  
+##### 6158#       发表于 2024-10-3 17:57
+
+新补丁修正了翻译错误吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

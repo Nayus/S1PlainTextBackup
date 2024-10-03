@@ -2652,3 +2652,39 @@ PS：
 
 学妹抱枕图一出，一切都会好起来的
 
+
+*****
+
+####  windtrack_qh  
+##### 6181#       发表于 2024-10-3 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66369351&amp;ptid=2160194" target="_blank">Oshino 发表于 2024-10-3 21:18</a>
+
+不买中文同步也不会买日版实体啊，顶多买日版电子版，等日版实体寄过来黄花菜都凉了 ...</blockquote>
+现在都是提前两天发货，我在法社通贩买的限定，24号发货，27号就到了
+
+*****
+
+####  ravend233  
+##### 6182#       发表于 2024-10-3 21:34
+
+出手办吧<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pf67  
+##### 6183#       发表于 2024-10-3 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66369373&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-10-3 21:20</a>
+那中文得有四万，有吗</blockquote>
+按某机构统计，黎轨港中占比高达60%，按这个比例6w都有可能
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Aeons  
+##### 6184#       发表于 2024-10-3 21:36
+
+你法有地区统计的吧，真不多
+

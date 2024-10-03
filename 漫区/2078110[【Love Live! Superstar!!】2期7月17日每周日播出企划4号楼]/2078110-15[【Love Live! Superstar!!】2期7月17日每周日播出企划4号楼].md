@@ -1943,3 +1943,23 @@ op3这衣服真丑啊。准备那么久设计出这种玩意</blockquote>
 闲的没事干。想去广州live看下，可是ll声优基本不认识，有什么科普或者注意事项吗 ...</blockquote>
 没有，跟着嗨就完事
 
+
+*****
+
+####  461757753  
+##### 21142#       发表于 2024-10-3 11:53
+
+<blockquote>csolfans 发表于 2024-10-3 11:26
+没有，跟着嗨就完事</blockquote>
+要提前去排场贩吗
+
+*****
+
+####  csolfans  
+##### 21143#       发表于 2024-10-3 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66366383&amp;ptid=2078110" target="_blank">461757753 发表于 2024-10-3 11:53</a>
+
+要提前去排场贩吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我不打算去买场贩
+

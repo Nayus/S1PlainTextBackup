@@ -93,3 +93,27 @@ SpaceX又发布了更多B12+S30组合体照片
 
 2024-10-2 01:03 上传
 
+
+*****
+
+####  commcody  
+##### 74#         楼主| 发表于 2024-10-3 11:50
+
+一条海事预警公布，内容是10月12日将执行第五次发射。但FAA目前仍然表示发射日期不会早于11月底。
+
+<img src="https://img.saraba1st.com/forum/202410/03/114916m86mk8k8ztwwf0em.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_3461.jpg</strong> (189.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-3 11:49 上传
+
+<img src="https://img.saraba1st.com/forum/202410/03/114901fri61s3ap61iigx1.png" referrerpolicy="no-referrer">
+
+<strong>image (2).png</strong> (1.74 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-3 11:49 上传
+

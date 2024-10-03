@@ -1422,10 +1422,10 @@
     "update": false
   },
   "1727410": {
-    "totalreply": 26367,
+    "totalreply": 26368,
     "title": "[TV2，堂堂复活！【中二电波台真爱楼】]",
     "newtitle": "[中二电波台真爱楼]",
-    "lastedit": 1727933775,
+    "lastedit": 1727951417,
     "category": "漫区",
     "active": true,
     "update": false
@@ -5814,10 +5814,10 @@
     "update": false
   },
   "1989188": {
-    "totalreply": 11358,
+    "totalreply": 11359,
     "title": "[新机病栋，谁是大的？]",
     "newtitle": "[新机病栋，谁是大的？]",
-    "lastedit": 1727951178,
+    "lastedit": 1727951772,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -9198,12 +9198,12 @@
     "update": false
   },
   "2109201": {
-    "totalreply": 200,
+    "totalreply": 201,
     "title": "[「2.5次元的诱惑」TV动画化 2024年7月]",
     "newtitle": "[「2.5次元的诱惑」TV动画化 2024年7月]",
-    "lastedit": 1727541266,
+    "lastedit": 1727951417,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2124174": {
@@ -9459,10 +9459,10 @@
     "update": false
   },
   "2193382": {
-    "totalreply": 65925,
+    "totalreply": 65928,
     "title": "[【集中楼】百合&amp;泛百合讨论专楼8.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论专楼8.0]",
-    "lastedit": 1727951173,
+    "lastedit": 1727951647,
     "category": "漫区",
     "active": true,
     "update": false
@@ -9986,7 +9986,7 @@
     "newtitle": "[A26『优米雅的炼金工房 追忆之炼金术士与幻创之地』公开，2025年3月21日发售]",
     "lastedit": 1727692108,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2196996": {
@@ -11736,10 +11736,10 @@
     "update": false
   },
   "2200032": {
-    "totalreply": 2584,
+    "totalreply": 2591,
     "title": "[巴以中东专楼-9月版]",
     "newtitle": "[巴以中东专楼-9月版]",
-    "lastedit": 1727951175,
+    "lastedit": 1727951889,
     "category": "外野",
     "active": true,
     "update": false
@@ -14855,7 +14855,7 @@
     "newtitle": "[【送福利】《伊苏X》Steam版重新推出，留言赢取游戏激活码！]",
     "lastedit": 1727692108,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2201026": {
@@ -16740,10 +16740,10 @@
     "update": false
   },
   "2160925": {
-    "totalreply": 49,
+    "totalreply": 50,
     "title": "[1：1大师剑商品化决定！]",
     "newtitle": "[1：1大师剑商品化决定！]",
-    "lastedit": 1727756062,
+    "lastedit": 1727951769,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17325,19 +17325,19 @@
     "update": false
   },
   "2201742": {
-    "totalreply": 81,
+    "totalreply": 82,
     "title": "[为什么我们说败犬女主是新时代的女性向动画]",
     "newtitle": "[为什么我们说败犬女主是新时代的女性向动画]",
-    "lastedit": 1727950217,
+    "lastedit": 1727951417,
     "category": "漫区",
     "active": true,
     "update": false
   },
   "2201691": {
-    "totalreply": 52,
+    "totalreply": 53,
     "title": "[理想汽车 9 月交付新车 53709 辆：同比增长 48.9%，创单月交付量历史新高]",
     "newtitle": "[理想汽车 9 月交付新车 53709 辆：同比增长 48.9%，创单月交付量历史新高]",
-    "lastedit": 1727950576,
+    "lastedit": 1727951888,
     "category": "外野",
     "active": true,
     "update": false
@@ -17663,6 +17663,15 @@
     "newtitle": "[石破茂表示在美国建立自卫队基地]",
     "lastedit": 1727950340,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2201704": {
+    "totalreply": 41,
+    "title": "[月姬remake简中还是繁中翻译好？]",
+    "newtitle": "[月姬remake简中还是繁中翻译好？]",
+    "lastedit": 1727951772,
+    "category": "游戏区",
     "active": true,
     "update": false
   }

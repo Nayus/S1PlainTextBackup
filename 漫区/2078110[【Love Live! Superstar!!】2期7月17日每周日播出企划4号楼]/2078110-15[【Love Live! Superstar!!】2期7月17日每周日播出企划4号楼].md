@@ -1932,3 +1932,14 @@ op3这衣服真丑啊。准备那么久设计出这种玩意</blockquote>
 
 不出意外的话今天下午五点就开新楼了
 
+
+*****
+
+####  csolfans  
+##### 21141#       发表于 2024-10-3 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66366110&amp;ptid=2078110" target="_blank">461757753 发表于 2024-10-3 11:08</a>
+
+闲的没事干。想去广州live看下，可是ll声优基本不认识，有什么科普或者注意事项吗 ...</blockquote>
+没有，跟着嗨就完事
+

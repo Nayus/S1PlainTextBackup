@@ -1080,3 +1080,28 @@ switch2就像3ds和new3ds的关系，能够完全兼容老3ds的游戏，也就�
 
 — from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  罗克萨斯  
+##### 98#       发表于 2024-10-3 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66368207&amp;ptid=2201766" target="_blank">NameLess2501 发表于 2024-10-3 18:01</a>
+扫书公开分享，Z Library上传论文，和制作游戏镜像公开，有区别吗？
+
+— from S1 Next Goose v3.2.91 ...</blockquote>
+就说UCG杂志吧，在售的没见人会去扫，你下载十年乃至二十年前的刊物，根本不会影响UCG的杂志收入，因为你想买也买不到了
+
+相比起来，NS仍是在售游戏机，且5年内都不会退市，游戏购买方便，基本都带中文，找不出要玩破解的理由
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  dbyboy  
+##### 99#       发表于 2024-10-3 18:17
+
+最搞笑的是，一边扯开源项目与技术主义，一边说卖不了钱了生态链要断
+
+请问开源社区的生态链是靠给盗版玩家卖钱搞出来的吗
+

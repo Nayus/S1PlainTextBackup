@@ -1456,3 +1456,28 @@ ns都快到头了，干嘛要花这个功夫</blockquote>
 
 这是我今年看过的最抽象的帖子，玩盗版游戏的居然攻击起游戏制作方了
 
+
+*****
+
+####  Xerxes_2  
+##### 131#         楼主| 发表于 2024-10-4 06:01
+
+ 本帖最后由 Xerxes_2 于 2024-10-4 06:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66371090&amp;ptid=2201766" target="_blank">nozomitech 发表于 2024-10-4 01:35</a>
+你只解释了技术上的困难，我当然是知道的，但你确定厂商不肯放出服务端源码就是网络没有这类声音的原因么 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">闭源软件软件放源码哪有你想象的那么容易…群友太想当然了。在网上抗议抗议抵制抵制就能让商业公司放源代码？这么多年了微软也就放了个老掉牙的DOS源码。现在微软还算相对拥抱开源的公司了，游戏公司那都是一毛不拔的
+
+*****
+
+####  jtwing  
+##### 132#       发表于 2024-10-4 06:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今年是真的热闹。
+年初帕鲁那样模仿宝可梦，然后任天堂和gf被骂说活该被抄袭。
+年中任杀过模拟器，然后被骂任天堂自己不思进取还不许别人玩pc盗版。
+现在又来这个，然后任天堂继续被pc盗版玩家骂让他们玩不到游戏。
+
+今年真是我见过的最任性多样化的一年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

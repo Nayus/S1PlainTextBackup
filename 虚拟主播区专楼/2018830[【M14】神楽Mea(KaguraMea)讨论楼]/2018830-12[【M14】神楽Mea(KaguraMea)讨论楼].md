@@ -558,3 +558,30 @@ www.amazon.co.jp/-/en/Wallhack-Professional-Special-Improved-Precision/dp/B0DCNS
 
 喔，你麻还有录播机在跑么
 
+
+*****
+
+####  TiHaru  
+##### 17486#       发表于 2024-10-3 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66362721&amp;ptid=2018830" target="_blank">秋游刃 发表于 2024-10-2 18:58</a>
+有意思的来了，LOL方面的</blockquote>
+是要打比赛了吗？开始练打野了
+
+*****
+
+####  秋游刃  
+##### 17487#       发表于 2024-10-3 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66366523&amp;ptid=2018830" target="_blank">TiHaru 发表于 2024-10-3 12:24</a>
+
+是要打比赛了吗？开始练打野了</blockquote>
+我指的是主播私下LOL，匹配到了正直播的熟人。
+
+*****
+
+####  TiHaru  
+##### 17488#       发表于 2024-10-3 16:26
+
+草 撞了一把
+

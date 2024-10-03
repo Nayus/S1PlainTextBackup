@@ -2003,3 +2003,27 @@ op3这衣服真丑啊。准备那么久设计出这种玩意</blockquote>
 无论动画如何，新动画依然是新开始，以及纪念一下五这个数字</blockquote>
 那你帖子标题还改成3，而且现在讨论的还有几个人？一个帖子里讨论也有延续性。开两个帖子，讨论都分散了，有什么意义？还有什么数字5。当然咯，帖子你开你话事。
 
+
+*****
+
+####  ViyViy  
+##### 21148#       发表于 2024-10-3 16:23
+
+你坛楼高不是有bug，到时候影响批斗花田大圣就不好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">换就换了吧
+
+*****
+
+####  cybernetics31  
+##### 21149#       发表于 2024-10-3 16:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">方便批判，换就换吧
+
+*****
+
+####  starring  
+##### 21150#       发表于 2024-10-3 16:27
+
+新楼新气象也能吸引新观众（看热闹批判动画的为主<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

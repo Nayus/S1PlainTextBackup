@@ -9083,3 +9083,35 @@ ps.同样是传统套路塞尔达林克双打boss，我觉得还是汽笛里的�
 
 X按键的牵引是不是会强化？有几个地方过不去怀疑要牵引升级？
 
+
+*****
+
+####  就是剑鞘  
+##### 1432#       发表于 2024-10-3 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66365898&amp;ptid=2188108" target="_blank">DARK_HGCG 发表于 2024-10-3 10:33</a>
+X按键的牵引是不是会强化？有几个地方过不去怀疑要牵引升级？</blockquote>
+没有升级
+有的地方就是故意让你不舒服的，建议在复制品里找合适的偷鸡
+
+*****
+
+####  我在干什么啊  
+##### 1433#       发表于 2024-10-3 10:36
+
+<blockquote>DARK_HGCG 发表于 2024-10-3 10:33
+X按键的牵引是不是会强化？有几个地方过不去怀疑要牵引升级？</blockquote>
+x有一个同步对象的功能，你这个有了的话就没别的升级了，过不去可能是没找到合适的道具
+
+*****
+
+####  库德里尔  
+##### 1434#       发表于 2024-10-3 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66365590&amp;ptid=2188108" target="_blank">墨染白泉 发表于 2024-10-3 09:19</a>
+那我之后看看支线</blockquote>
+我猜可能是海拉鲁城堡里有一条支线没接
+但我不确定
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

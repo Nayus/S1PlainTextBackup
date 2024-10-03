@@ -1189,3 +1189,26 @@ ucg那一系杂志现在网上流传的资源都是当时发售不久就扫出�
 这个理由，对所有低性能平台游戏机都适用，甚至可以说任天堂有原罪，只要NS2性能达不到中端显卡水平玩破 ...</blockquote>
 我现在就在用ns玩智慧的再现，我只求它在大地图能别掉帧掉分辨率就谢天谢地了
 
+
+*****
+
+####  罗克萨斯  
+##### 108#       发表于 2024-10-3 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66368645&amp;ptid=2201766" target="_blank">Xerxes_2 发表于 2024-10-3 19:30</a>
+我现在就在用ns玩智慧的再现，我只求它在大地图能别掉帧掉分辨率就谢天谢地了 ...</blockquote>
+主机模式大概就720P，大地图确实稳不了60帧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+不过实际玩起来问题不大，连着玩4个小时也没有不适
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  NameLess2501  
+##### 109#       发表于 2024-10-3 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66368571&amp;ptid=2201766" target="_blank">pico少年 发表于 2024-10-3 19:17</a>
+
+没区别呀，我就不信这帖子里指责玩盗版，模拟器就是盗版，盗版搞死的没碰过盗版\模拟器，一群头上长屁股， ...</blockquote>
+我也觉得没区别。
+

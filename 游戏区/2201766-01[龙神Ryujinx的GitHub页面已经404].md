@@ -1240,3 +1240,21 @@ ucg那一系杂志现在网上流传的资源都是当时发售不久就扫出�
 
 ns2快出吧，想玩za了
 
+
+*****
+
+####  mamamiya  
+##### 113#       发表于 2024-10-3 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66368571&amp;ptid=2201766" target="_blank">pico少年 发表于 2024-10-3 19:17</a>
+没区别呀，我就不信这帖子里指责玩盗版，模拟器就是盗版，盗版搞死的没碰过盗版\模拟器，一群头上长屁股， ...</blockquote>
+玩盗版学技术的用嘴说话是吧
+
+
+*****
+
+####  牛肉粉小煎包  
+##### 114#       发表于 2024-10-3 20:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">反正现在的版本也基本都能玩了，版权这种东西本来就有利有弊，大家各凭本事互相制衡。但我就想问问任天堂，我去年失去了我的NS，你这种电子垃圾一直拖着不肯出新机器，难道我现在再去买一台NS玩低画质版本的游戏吗？用PRO手柄接模拟器以后，不要爽太多。我卡带都留着，你倒是出啊，天天就会搞这种保守策略恶心人
+

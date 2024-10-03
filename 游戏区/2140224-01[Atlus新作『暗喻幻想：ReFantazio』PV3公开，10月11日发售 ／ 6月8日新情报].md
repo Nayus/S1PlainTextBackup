@@ -4645,3 +4645,47 @@ It takes about 80 hours to clear the story, or 100 hours with side activities
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">看着城里乱七八糟虾jb动的满街npc+卡通渲染+狗牙+掉帧！是你吗重力眩晕2！
 
+
+*****
+
+####  哎哟卧槽了  
+##### 1155#       发表于 2024-10-3 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66368136&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-10-3 17:48</a>
+多多331的港版首发版抢到了，比2000fun的379便宜好多
+
+韩版刚刚也有273的好价，不过一想到真女5韩版封面丑 ...</blockquote>
+港版pdd最低是301<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 來自 Google Pixel 2, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  罗克萨斯  
+##### 1156#       发表于 2024-10-3 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66368885&amp;ptid=2140224" target="_blank">哎哟卧槽了 发表于 2024-10-3 20:15</a>
+港版pdd最低是301
+
+—— 來自 Google Pixel 2, Android 11上的 S1Next-鵝版 v2.1.2</blockquote>
+那个也是韩版，特地去问了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  c0x9z8  
+##### 1157#       发表于 2024-10-3 20:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">韩版价格便宜，但是就怕以后出了dlc韩版安装不上
+
+*****
+
+####  纯粹理性人  
+##### 1158#       发表于 2024-10-3 20:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">可能我没开帧数显示，完全不觉得卡，渲染开的150。
+
+—— 来自 OPPO PGBM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

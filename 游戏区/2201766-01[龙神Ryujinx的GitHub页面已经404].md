@@ -1430,3 +1430,21 @@ ns都快到头了，干嘛要花这个功夫</blockquote>
 
 2024-10-4 02:50 上传
 
+
+*****
+
+####  moeblack  
+##### 129#       发表于 2024-10-4 04:03
+
+我真没法客观看这事
+
+我真玩任天堂游戏<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+也不想批评坛友，我也不爽玩个塞尔达智慧的在线到处掉帧。
+
+但是任天堂觉得这样可以赚更多钱而且确实赚了很多那怎么办呢
+
+毕竟我真玩任天堂独一份的游戏
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

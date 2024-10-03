@@ -45,3 +45,11 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">我擦，整了快2年你跟我说目前进度1/3，这是独立游戏规模的重置欸，真的要那么久吗
 
+
+*****
+
+####  GYSS_  
+##### 636#       发表于 2024-10-4 01:57
+
+那感觉可以和丝之鸽坐一桌了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等吧
+

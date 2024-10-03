@@ -9019,3 +9019,13 @@ ps.同样是传统套路塞尔达林克双打boss，我觉得还是汽笛里的�
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">让林克上高处我是直接究极手抬上去的。
 召唤物品让他上去的思路完全没有
 
+
+*****
+
+####  就是剑鞘  
+##### 1426#       发表于 2024-10-3 08:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66364743&amp;ptid=2188108" target="_blank">墨染白泉 发表于 2024-10-3 00:36</a>
+是的，别人的全收集图都有那两个碎片，但我同样的地方没裂缝</blockquote>
+会不会是要先接某个支线才能触发
+

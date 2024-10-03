@@ -9029,3 +9029,14 @@ ps.同样是传统套路塞尔达林克双打boss，我觉得还是汽笛里的�
 是的，别人的全收集图都有那两个碎片，但我同样的地方没裂缝</blockquote>
 会不会是要先接某个支线才能触发
 
+
+*****
+
+####  JOJOROY  
+##### 1427#       发表于 2024-10-3 08:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66364743&amp;ptid=2188108" target="_blank">墨染白泉 发表于 2024-10-3 00:36</a>
+
+是的，别人的全收集图都有那两个碎片，但我同样的地方没裂缝</blockquote>
+地区主线过完那个地区的小裂缝不会消失，有些小裂缝需要接支线才会解锁
+

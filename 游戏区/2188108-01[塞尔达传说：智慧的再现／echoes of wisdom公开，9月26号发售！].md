@@ -9422,3 +9422,23 @@ fami首周20w
 这作的迷宫肯定比不过梦见岛大鹰塔那种，不过众神2的迷宫怎么又有人无脑吹上了，众神2迷宫除了最后的冰神殿 ...</blockquote>
 智杖的水迷宫不也挺敷衍的
 
+
+*****
+
+####  INDIASH  
+##### 1465#       发表于 2024-10-3 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66369335&amp;ptid=2188108" target="_blank">DARK_HGCG 发表于 2024-10-3 21:16</a>
+
+这里要怎么过？</blockquote>
+下面的碎岩可以靠着大岩石召唤炸弹鱼硬塞电梯那条道上炸掉（最下面应该也有碎岩，炸完电梯会自己上来）
+
+然而并没有卵用，因为最左边那个我想了好久都没法解决，最后和解绕路了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cy6959  
+##### 1466#       发表于 2024-10-3 23:53
+
+森林的无就是最终了吗？如果是我就先去打收集了
+

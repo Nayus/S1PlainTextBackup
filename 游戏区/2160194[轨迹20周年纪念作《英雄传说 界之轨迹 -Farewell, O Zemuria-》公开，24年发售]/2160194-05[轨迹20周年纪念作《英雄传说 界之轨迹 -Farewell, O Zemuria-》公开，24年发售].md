@@ -2723,3 +2723,11 @@ PS：
 学妹抱枕早就出了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说的新形态的吧（）
 
+
+*****
+
+####  红魔馆的糖  
+##### 6189#       发表于 2024-10-3 23:48
+
+虽然一直说2D美术越来越不够，但是这作微妙的在很多细节的地方画了很多新的回忆CG<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

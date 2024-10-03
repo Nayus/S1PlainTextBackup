@@ -192,3 +192,15 @@ idios3D全播完了，后续倒是没啥了，等两周年看看会不会3D全�
 
 莉泽不管是立绘还是3d都吃了太早出生的亏，藤原这两年画画很明显比19年那会又进化了
 
+
+*****
+
+####  バーチャルS1er  
+##### 796#       发表于 2024-10-3 12:35
+
+[https://www.youtube.com/watch?v=H59hn0pbH08](https://www.youtube.com/watch?v=H59hn0pbH08)
+
+【転生が増える？！】個人Vtuberが引退・卒業した後に中堅事務所に転生するケースが増えている理由をVtuberのプロが解説【VTuberクエスト
+
+突然想到V中堅事務所是个什么标准？虹杏vspo肯定算大手了，774、苔姨箱、.live、あおぎり高校这种算中坚还是大手？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

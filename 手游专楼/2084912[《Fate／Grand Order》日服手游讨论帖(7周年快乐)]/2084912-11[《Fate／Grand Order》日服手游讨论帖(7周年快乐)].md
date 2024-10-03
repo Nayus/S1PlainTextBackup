@@ -21,3 +21,11 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">草可以长 活动可以没 但40ap减半绝对不会拖延1秒
 
+
+*****
+
+####  DARKGRAY  
+##### 14833#       发表于 2024-10-3 12:45
+
+明天生放完马上开活动的话才会再减半吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -987,3 +987,36 @@ mygo主打男性向特攻，mujica多拉点女粉也不是坏事
 
 玩烂梗又不是泥漏在玩，梗小鬼本来就满天飞，又不是不聊他们就不玩烂梗了，因噎废食没有意义
 
+
+*****
+
+####  skives  
+##### 23777#       发表于 2024-10-3 22:14
+
+卖狗又再放送了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+正好12/26第十三集
+1/2来个特番？
+1/9还是1/16开播呢<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 23778#       发表于 2024-10-3 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66369684&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-10-3 22:03</a>
+
+这个话题说了很多次了，mygo就已经很不邦多利了
+
+而且访谈说过要写的是
+
+这很明显完全不邦多利</blockquote>
+没在说你，如果是在说你我就直接回复你了
+
+不管是初华还是别的角色，负面性这一点我从来不否认它的存在，本来也是塑造角色的一部分
+
+但是有些贷款（比如病娇和强健犯）实在是很恶心人
+
+至于邦不邦多利，我说的那句话是基于【在鸡动画完结后可能会有的邦4和pico4】上，既然确定鸡也会进这两部动画，那最终鸡成员其实也都是和之前的角色一样普通的乐队jk
+
+至于鸡动画的过程怎么走，那就是另外一回事了
+

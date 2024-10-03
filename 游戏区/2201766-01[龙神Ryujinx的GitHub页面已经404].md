@@ -1316,3 +1316,18 @@ ns2快出吧，想玩za了
 
 这种行为叫垄断吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  obiy  
+##### 120#       发表于 2024-10-4 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66370515&amp;ptid=2201766" target="_blank">血狂毘沙门 发表于 2024-10-4 00:17</a>
+
+自己卖自己生产的东西
+
+这种行为叫垄断吗</blockquote>
+黄仁勋：对啊这怎么会是垄断呢
+
+任天堂在n64出现前那才叫垄断，现在有没有利用市场支配地位故意拉长现有产品周期还有争议
+

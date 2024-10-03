@@ -1145,3 +1145,23 @@ ucg那一系杂志现在网上流传的资源都是当时发售不久就扫出�
 我想问一下担心没有盗版就会导致当任天堂下架现有的Eshop服务器很多游戏就再也玩不到了，这点我可以理解。 ...</blockquote>
 虽然你这是典型的whataboutism，但解释下好了。在线游戏没有服务端的话基本是玩不了的，关了服就没有了。玩不了的话美术素材也就没什么用，虽然也会有人dump。抗议抵制也没有用，服务端没有哪个厂家会公开的。
 
+
+*****
+
+####  pico少年  
+##### 104#       发表于 2024-10-3 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66368207&amp;ptid=2201766" target="_blank">NameLess2501 发表于 2024-10-3 18:01</a>
+
+扫书公开分享，Z Library上传论文，和制作游戏镜像公开，有区别吗？
+
+— from S1 Next Goose v3.2.91 ...</blockquote>
+没区别呀，我就不信这帖子里指责玩盗版的没碰过盗版，一群头上长屁股，用屁股说话的伪君子。
+
+*****
+
+####  jockeyjoestar  
+##### 105#       发表于 2024-10-3 19:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">  模拟器死了就死了呗  正常商业行为。说Fuck Nintendo的想必也不玩任天堂的游戏吧。
+

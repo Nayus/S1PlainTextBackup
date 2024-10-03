@@ -2618,3 +2618,37 @@ PS：
 
 你笑社长不宣发，社长笑你不懂轨批
 
+
+*****
+
+####  卢迪克  
+##### 6178#       发表于 2024-10-3 21:26
+
+ 本帖最后由 卢迪克 于 2024-10-3 21:29 编辑 
+
+宣发还是有的，只是没有pv，毕竟真的没货了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202410/03/212654otvav7zy70irbbts.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20241003_212647.jpg</strong> (323.92 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-10-3 21:26 上传
+
+*****
+
+####  卡拉德利姆  
+##### 6179#       发表于 2024-10-3 21:30
+
+宣发的钱不如腾出来给我多做几个模型资源<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  アーシェス  
+##### 6180#       发表于 2024-10-3 21:32
+
+学妹抱枕图一出，一切都会好起来的
+

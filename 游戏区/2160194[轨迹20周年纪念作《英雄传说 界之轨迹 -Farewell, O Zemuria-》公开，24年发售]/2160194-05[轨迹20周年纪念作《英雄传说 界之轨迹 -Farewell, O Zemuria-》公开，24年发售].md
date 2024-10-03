@@ -2688,3 +2688,38 @@ PS：
 
 你法有地区统计的吧，真不多
 
+
+*****
+
+####  Squall25  
+##### 6185#       发表于 2024-10-3 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66369468&amp;ptid=2160194" target="_blank">アーシェス 发表于 2024-10-3 21:32</a>
+学妹抱枕图一出，一切都会好起来的</blockquote>
+学妹抱枕早就出了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  keiyoku  
+##### 6186#       发表于 2024-10-3 21:47
+
+感觉4.7w对标界轨质量算高了，赢，以后你轨可能就只能这样了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  红魔馆的糖  
+##### 6187#       发表于 2024-10-3 21:47
+
+有一说一数字版和中文版都算上也差不多能摸一摸十万了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">社长美美地开一个小香槟
+
+
+*****
+
+####  ravend233  
+##### 6188#       发表于 2024-10-3 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66369577&amp;ptid=2160194" target="_blank">Squall25 发表于 2024-10-3 21:46</a>
+
+学妹抱枕早就出了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说的新形态的吧（）
+

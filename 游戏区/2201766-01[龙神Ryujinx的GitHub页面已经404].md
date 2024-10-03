@@ -1258,3 +1258,21 @@ ns2快出吧，想玩za了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">反正现在的版本也基本都能玩了，版权这种东西本来就有利有弊，大家各凭本事互相制衡。但我就想问问任天堂，我去年失去了我的NS，你这种电子垃圾一直拖着不肯出新机器，难道我现在再去买一台NS玩低画质版本的游戏吗？用PRO手柄接模拟器以后，不要爽太多。我卡带都留着，你倒是出啊，天天就会搞这种保守策略恶心人
 
+
+*****
+
+####  慕容断月  
+##### 115#       发表于 2024-10-3 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66368802&amp;ptid=2201766" target="_blank">沧兰殇 发表于 2024-10-3 20:01</a>
+所以，为啥不买个oled然后破解超频玩？ns第一方破解超频都能稳定1080p30帧或者60帧，电脑模拟器bug多体验也 ...</blockquote>
+不提其他，4K60帧的xbde和xb3是实机超频超冒烟都做不到的，而且观感提升极大（虽然对于xb2来说4K确实直接的提升了观感但没有60帧还是有点不到位）
+
+*****
+
+####  Gundamslave  
+##### 116#       发表于 2024-10-3 21:49
+
+玩盗版还有错咯？
+买的游戏越多，我越感觉到gog版存在的必要性。
+

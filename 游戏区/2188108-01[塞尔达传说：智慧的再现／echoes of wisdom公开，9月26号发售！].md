@@ -9319,3 +9319,13 @@ fami首周20w
 远方的FF10：</blockquote>
 复制突咻帮你吹开路
 
+
+*****
+
+####  beer  
+##### 1455#       发表于 2024-10-3 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66345642&amp;ptid=2188108" target="_blank">苍蓝之枪 发表于 2024-9-30 09:47</a>
+我也就差瞌睡道场最后一个boss连战了，主线的时候没搞懂机制的boss到连战冲时间的话就必须搞懂机制了，不过 ...</blockquote>
+鱼在无水环境里可以放加莫斯打，可以穿透
+

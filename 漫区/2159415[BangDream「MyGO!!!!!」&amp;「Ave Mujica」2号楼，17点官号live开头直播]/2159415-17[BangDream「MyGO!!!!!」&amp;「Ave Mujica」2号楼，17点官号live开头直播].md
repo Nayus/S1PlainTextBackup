@@ -1020,3 +1020,43 @@ mygo主打男性向特攻，mujica多拉点女粉也不是坏事
 
 至于鸡动画的过程怎么走，那就是另外一回事了
 
+
+*****
+
+####  Aendst  
+##### 23779#       发表于 2024-10-3 22:21
+
+abema之前那个档期在播ネガポジアングラー，看起来似乎是十二月能完结
+
+档期上来说1.2开播基本是没问题的
+
+*****
+
+####  NODY  
+##### 23780#       发表于 2024-10-3 22:22
+
+1月2号开播的话刚好3月最后一周播完，符合番剧规律
+
+但是这样的话13号的大发表会就没什么新情报能宣了，所以2号9号放个上下两集的mujica全员特番充数，16号再开播也有可能
+
+*****
+
+####  skives  
+##### 23781#       发表于 2024-10-3 22:24
+
+应该不至于1/13号宣布1/16号开播吧
+开播日期这种东西 不应该在正式pv里就确定吗
+不过毕竟是wsd<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 23782#       发表于 2024-10-3 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66369783&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-10-3 22:15</a>
+
+没在说你，如果是在说你我就直接回复你了
+
+不管是初华还是别的角色，负面性这一点我从来不否认它的存在， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真的会有邦4和pico4吗
+

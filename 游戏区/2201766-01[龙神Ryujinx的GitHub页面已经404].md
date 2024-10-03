@@ -1568,3 +1568,20 @@ ns都快到头了，干嘛要花这个功夫</blockquote>
 
 查看全部评分
 
+
+*****
+
+####  Xerxes_2  
+##### 140#         楼主| 发表于 2024-10-4 07:25
+
+ 本帖最后由 Xerxes_2 于 2024-10-4 07:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66371458&amp;ptid=2201766" target="_blank">nozomitech 发表于 2024-10-4 07:08</a>
+
+抵制不能让商业公司解决手游下线备份问题，但是没有这类声音那就证明完全没有这方面的需求，就这么简单， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">而且有的时候你听不到这些声音原因是不在那个圈子
+
+splatoon 1停服了，现在玩splatoon 1在线的都是用CEMU模拟器玩的私服
+[https://github.com/PretendoNetwork/splatoon](https://github.com/PretendoNetwork/splatoon)
+
+这个你不关注模拟、破解的话是基本不会听过的
+

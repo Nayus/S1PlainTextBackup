@@ -4748,3 +4748,13 @@ It takes about 80 hours to clear the story, or 100 hours with side activities
 
 淘宝上steam激活码 216，买了一个
 
+
+*****
+
+####  u2deack  
+##### 1163#       发表于 2024-10-4 18:12
+
+好像更新后优化稍微好了一点
+不过这游戏迷宫也要一次性攻略么，mp根本不够用啊为什么技能和普攻伤害差这么多
+这大圣堂里的骷髅还全都抗斩击我也是服了怪又多
+

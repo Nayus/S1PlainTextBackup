@@ -120,3 +120,11 @@
 
 看了别人拍的屏摄照片，怎么看都像是原版高清化一下，又不是什么百人团队，招俩女美术招个男程序员不就特么2/3是女员工了？莫名其妙的节奏<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  祆天发育不良  
+##### 644#       发表于 2024-10-4 13:17
+
+这玩意真的需要开发那么久吗？这么久没信总觉得要出幺蛾子<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

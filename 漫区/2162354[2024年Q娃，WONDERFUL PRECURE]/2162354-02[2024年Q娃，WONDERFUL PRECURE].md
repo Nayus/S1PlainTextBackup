@@ -799,3 +799,18 @@ yysy，悟君确实在某种意义上分走了一些小麦的戏份，因为对�
 
 合着38话小麦真的要回娘家了是吧
 
+
+*****
+
+####  Parahure  
+##### 2298#       发表于 2024-10-5 01:55
+
+让这帮staff幽默完了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Parahure  
+##### 2299#       发表于 2024-10-5 01:58
+
+下一话标题里的wonderful是片假，小麦看不懂，看来以后是真的只有当电灯泡的份了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

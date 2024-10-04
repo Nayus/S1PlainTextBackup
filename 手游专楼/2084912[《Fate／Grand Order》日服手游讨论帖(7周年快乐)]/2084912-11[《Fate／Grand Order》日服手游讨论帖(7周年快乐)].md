@@ -255,3 +255,25 @@
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  angelooo  
+##### 14860#       发表于 2024-10-4 20:16
+
+不知道选谁先放着了，等阿比池子开了补一个完事
+
+*****
+
+####  alucardcz  
+##### 14861#       发表于 2024-10-4 20:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/259.png" referrerpolicy="no-referrer">看了眼 从强度上来只有太公望能选了
+
+*****
+
+####  森兰丸  
+##### 14862#       发表于 2024-10-4 20:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">补奥宝50连出了还歪了个皇女....真的不想要啊
+

@@ -81,3 +81,14 @@
 塞尔达先是被不认识的人救了，冒险途中逐 ...</blockquote>
 结尾就各回各家，也没有说林克和塞有啥后续的。
 
+
+*****
+
+####  位面农场  
+##### 1489#       发表于 2024-10-4 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66373643&amp;ptid=2188108" target="_blank">我在干什么啊 发表于 2024-10-4 14:54</a>
+
+因为织梦岛接的众神1啊，众神1的塞尔达怎么可能不认识林克</blockquote>
+对哦，放在众神1前面怎么样呢，不过这部位置还是可以看心情放的。
+

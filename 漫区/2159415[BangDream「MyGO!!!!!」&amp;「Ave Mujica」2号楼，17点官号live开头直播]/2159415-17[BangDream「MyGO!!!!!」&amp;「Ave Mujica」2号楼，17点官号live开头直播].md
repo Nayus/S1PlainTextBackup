@@ -1449,3 +1449,43 @@ mujica一个团队需要这么好嘛？不如说有点感觉是不是她们没�
 
 这是很正常的好朋友间的社交频率吧
 
+
+*****
+
+####  星天观测  
+##### 23819#       发表于 2024-10-4 15:09
+
+不如说或许是今天约了李子明天约了米泽后天约了节约大后天约了梦以
+
+每个人其实也都是三四天才见一次面
+
+但是总体来说就变成了每天都在和母鸡卡的成员见面<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 23820#       发表于 2024-10-4 15:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看了眼新的訪談感覺基本都是車軲轆話 
+
+好消息 下週3rd總算能有點真的新東西了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 23821#       发表于 2024-10-4 15:11
+
+好消息，高尾自己也觉得kb部分太简单了，想和制作人谈一谈关于提升难度的事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 23822#       发表于 2024-10-4 15:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">air制作密话，希望能延续到之后的曲子里加大力度
+
+已经不奢求eg了，supalove也不是没有key出身的人，多找来多写点吧
+
+访谈虽然都是旧内容复读，但至少愿意给做这么一个专题了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">十月是黎明前的黑暗
+

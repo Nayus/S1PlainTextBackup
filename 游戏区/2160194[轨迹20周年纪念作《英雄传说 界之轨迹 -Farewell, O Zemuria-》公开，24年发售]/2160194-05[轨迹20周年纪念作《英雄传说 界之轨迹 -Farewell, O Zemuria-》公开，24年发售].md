@@ -2878,3 +2878,22 @@ PS：
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  lxshhh  
+##### 6206#       发表于 2024-10-4 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66373703&amp;ptid=2160194" target="_blank">红魔馆的糖 发表于 2024-10-4 15:07</a>
+要是直接那这段当结尾而不是拿来凑羁绊剧情将是绝杀可惜换不得
+
+这段一起的小梦和铃的羁绊写的也挺好 ...</blockquote>
+全作剑女唯二高光时刻，其他时候的角色鲜明程度甚至不如事务所里的女演员...
+
+*****
+
+####  nerugigannte  
+##### 6207#       发表于 2024-10-4 15:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剑女打起来增益蓝条也不如大少好用
+

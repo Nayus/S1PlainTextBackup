@@ -131,3 +131,14 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  努斯万克  
+##### 1494#       发表于 2024-10-4 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66373766&amp;ptid=2188108" target="_blank">我在干什么啊 发表于 2024-10-4 15:18</a>
+
+不是同一个林克塞尔达的话问题应该不大，毕竟地图挺像众神1的，不过众神1没有格鲁德，海卓拉，雪人族这些 ...</blockquote>
+最近在玩幻影沙漏 感觉孔德是雪人族，孔德的哥哥像雪猿族
+

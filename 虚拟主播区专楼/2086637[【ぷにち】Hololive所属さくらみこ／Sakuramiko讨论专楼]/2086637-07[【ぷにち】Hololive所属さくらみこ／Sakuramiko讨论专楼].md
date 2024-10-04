@@ -11844,3 +11844,30 @@ mio真的本来要开占卜店的甚至连卡牌的贴图全部加急加入到�
 
 宗教仪式 [https://x.com/hololiveALT/status/1842127617362956786](https://x.com/hololiveALT/status/1842127617362956786)
 
+
+*****
+
+####  holoan  
+##### 9853#         楼主| 发表于 2024-10-4 17:23
+
+19点突然开播是怕跟任天堂的工商视频时间撞吧
+
+告知应该是MV了不知道哪首
+
+然后昨天说今天要开店，大概率21点
+
+*****
+
+####  holoan  
+##### 9854#         楼主| 发表于 2024-10-4 18:33
+
+<img src="https://img.saraba1st.com/forum/202410/04/183331bvg3ggkrwagakkwz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (41.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-4 18:33 上传
+
+🍒🍒🍒🍒🍒🍒
+

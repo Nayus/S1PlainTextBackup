@@ -4758,3 +4758,16 @@ It takes about 80 hours to clear the story, or 100 hours with side activities
 不过这游戏迷宫也要一次性攻略么，mp根本不够用啊为什么技能和普攻伤害差这么多
 这大圣堂里的骷髅还全都抗斩击我也是服了怪又多
 
+
+*****
+
+####  AeonsTorn  
+##### 1164#       发表于 2024-10-4 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66374653&amp;ptid=2140224" target="_blank">u2deack 发表于 2024-10-4 18:12</a>
+好像更新后优化稍微好了一点
+不过这游戏迷宫也要一次性攻略么，mp根本不够用啊为什么技能和普攻伤害差这么 ...</blockquote>
+路上的情报师会告诉你骷髅弱光弱打，带个牧师砸人吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.89
+

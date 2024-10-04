@@ -3135,3 +3135,11 @@ S指令用咏唱减少
 
 克洛、剑女、卢法斯用增幅回复技能回两格S-BOOST，能无限放收到伤害0.1、0.3倍的指令，对面完全打不动你，连配链的功夫都省了。
 
+
+*****
+
+####  SuNR1sE364  
+##### 6229#       发表于 2024-10-4 23:12
+
+间章进庭院之后连羁绊事件都可以补<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太伟大了法老控
+

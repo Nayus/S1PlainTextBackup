@@ -1731,3 +1731,26 @@ pc 大把盗版也不影响 steam 正版销量，win 大把大把也不影响 ms
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  慕容断月  
+##### 153#       发表于 2024-10-4 08:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66371577&amp;ptid=2201766" target="_blank">罗克萨斯 发表于 2024-10-4 08:19</a>
+
+现在PC哪来大把盗版，几年没破解的游戏也不少了吧。PC平台能有今天，尤其是国内PC游戏市场的发展，恰恰是 ...</blockquote>
+说盗版不影响的可能是20多年前一点国产游戏不玩的那种人吧，虽然国产单机当年不一定都是什么好游戏，但论盗版对其影响，这是身边最明显的例子了，可惜这位可能不懂吧
+
+
+*****
+
+####  BotRondo  
+##### 154#       发表于 2024-10-4 08:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66371577&amp;ptid=2201766" target="_blank">罗克萨斯 发表于 2024-10-4 08:19</a>
+现在PC哪来大把盗版，几年没破解的游戏也不少了吧。PC平台能有今天，尤其是国内PC游戏市场的发展，恰恰是 ...</blockquote>
+没盗版中国连游戏文化的土壤都没有，你敢想象十几年前小孩找家长要四百块买游戏吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

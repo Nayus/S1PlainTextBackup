@@ -97,3 +97,36 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这高难青铜狗我没仔细编队卡时间用了两次令咒才过，前面三个小怪也烦人，直接打青铜狗都好打多了
 
+
+*****
+
+####  格林卡罗尔  
+##### 14842#       发表于 2024-10-4 15:55
+
+怎么更新了，不会无预告生放直接开活动吧
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  alucardcz  
+##### 14843#       发表于 2024-10-4 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66373953&amp;ptid=2084912" target="_blank">格林卡罗尔 发表于 2024-10-4 15:55</a>
+
+怎么更新了，不会无预告生放直接开活动吧
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 S1Next-鹅版 v2.5 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">6点生放松啊
+
+*****
+
+####  格林卡罗尔  
+##### 14844#       发表于 2024-10-4 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66374150&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-10-4 16:31</a>
+6点生放松啊</blockquote>
+但活动本身没预告啊，不应该预热一下
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

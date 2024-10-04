@@ -11809,3 +11809,38 @@ mio真的本来要开占卜店的甚至连卡牌的贴图全部加急加入到�
 
 这么简单的模拟经营游戏都能玩破产的就你最能整活
 
+
+*****
+
+####  holoan  
+##### 9851#         楼主| 发表于 2024-10-4 11:34
+
+第三方网站独立提供的上个月的直播内活跃会员数统计，接近于1W4的月活跃会员总数，排除掉毕业的ame的话相当于比JP第二第三名的会员数还翻了将近一倍，恐怖至极
+
+而且其中一年以上会员占比55%
+
+<img src="https://img.saraba1st.com/forum/202410/04/112907enqtuxu2igkndnig.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (52.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-4 11:29 上传
+
+为什么特地取上个月的因为有这个几乎全员都开播的GTA箱企划，所有人都连续播了一个星期这个情况下大家的直播情况最为接近，会员数受个别人直播量多少波动的影响最小
+
+*****
+
+####  holoan  
+##### 9852#         楼主| 发表于 2024-10-4 17:07
+
+<img src="https://img.saraba1st.com/forum/202410/04/170539ezb9ze39ugfq29u6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (910.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-4 17:05 上传
+
+宗教仪式 [https://x.com/hololiveALT/status/1842127617362956786](https://x.com/hololiveALT/status/1842127617362956786)
+

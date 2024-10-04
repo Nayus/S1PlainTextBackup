@@ -1284,3 +1284,44 @@ abema之前那个档期在播ネガポジアングラー，看起来似乎是十
 问题是这剧情演过一遍了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">再来一遍肯定是烂活
 初华在脆弱的时候怀念起小时候一无所知相信未来的自己更正常一点 还能形成对比
 
+
+*****
+
+####  Aendst  
+##### 23804#       发表于 2024-10-4 11:47
+
+ 本帖最后由 Aendst 于 2024-10-4 11:48 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">传统邦多利印象指的是作品基调
+
+不代表幼驯染关系这种放在大部分合乎情感逻辑的作品和现实都相当稳定双向的关系会变成两个自私自利完全不考虑对方的矫情怪闹别扭
+
+难怪这么假药呢，原来是逻辑能力太差导致的
+
+*****
+
+####  PDQ4  
+##### 23805#       发表于 2024-10-4 11:47
+
+因为哪怕不放在邦多利里也是下头脑洞，哪有这么写cp的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+吼姆拉也是因为叛逆里圆说了更想和家人朋友在一起才决定反
+要是没有铺垫，搞成想成为神的馒头卡才不是她，你看看下头不下头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 23806#       发表于 2024-10-4 11:47
+
+传统邦多利印象是什么，krkrdkdk？
+
+要不去了解一下老团剧情呢
+
+无语
+
+*****
+
+####  skives10  
+##### 23807#       发表于 2024-10-4 11:49
+
+王道cp肯定不能这么写的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

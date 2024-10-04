@@ -1977,3 +1977,59 @@ EA FC25，Switch版13332本，PS5版13265本，史诗级翻身仗（本周）
 
 画质党有空在论坛打嘴炮不如努力挣钱把每个跨平台游戏的PS4 PS5版买个几十万份，到时候你就是人民群众，我们算老几
 
+
+*****
+
+####  ppa11  
+##### 176#       发表于 2024-10-4 11:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66372158&amp;ptid=2201766" target="_blank">BotRondo 发表于 2024-10-4 10:51</a>
+十几年前是 2010 年，x360 or ps3 时代，首发 3a 游戏的定价是 60 刀，汇率是 6.8</blockquote>
+冷知识，早期芝麻是真有正版游戏的，就是上面的定价，你没发现我刚刚没说12的定价吗，盗版时期芝麻才下探的这个价位。。
+10年都多久之后了，上面38-68是ps1-ps2时期的事额
+
+—— 來自 [鵝球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+
+*****
+
+####  库德里尔  
+##### 177#       发表于 2024-10-4 11:50
+
+玩正版的
+玩盗版的
+打嘴炮的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  hanan1  
+##### 178#       发表于 2024-10-4 11:52
+
+Witcher 3
+
+PC: ~12 million
+
+PS4: ~ 10.8 million
+
+Xbox One: ~ 4.3 million
+
+Nintendo Switch: ~ 700,000
+
+Total: ~28.3 million
+
+ns版只占19年总销量的11%
+
+拿点tilted的数据出来谁不会啊？
+<img src="https://www.gamespot.com/a/uploads/original/1179/11799911/3652673-screen%20shot%202020-04-09%20at%209.40.45%20am.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pipaopo  
+##### 179#       发表于 2024-10-4 11:53
+
+好像没见到有什么正经研究盗版或者云或者二手盘对销量的定量分析，搞得现在吵来吵去都只见滑坡得来的论点，论据拿不出
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

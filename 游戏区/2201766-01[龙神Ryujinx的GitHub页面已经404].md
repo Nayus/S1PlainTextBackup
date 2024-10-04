@@ -1704,3 +1704,30 @@ pc 大把盗版也不影响 steam 正版销量，win 大把大把也不影响 ms
 我真玩任天堂游戏</blockquote>
 散了吧，能看出掉帧在意掉帧的，根本就不是任天堂的目标客户<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  库德里尔  
+##### 151#       发表于 2024-10-4 08:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66371497&amp;ptid=2201766" target="_blank">nozomitech 发表于 2024-10-4 07:37</a>
+传统的线上服务游戏如果比较热门仔仔细细想想似乎确实有，但我曾经玩过几年二游，都是耳熟能详的title， ...</blockquote>
+架私服的相对很少
+但是把美术资源抓出来留档甚至写wiki的我感觉不少
+
+比如舟那边的PRTSwiki今年和森空岛接洽，相当于半转正了
+比如近两年越来越烂的萌娘百科 有很多主题的长期维护者都流失了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  罗克萨斯  
+##### 152#       发表于 2024-10-4 08:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66371503&amp;ptid=2201766" target="_blank">BotRondo 发表于 2024-10-4 07:42</a>
+pc 大把盗版也不影响 steam 正版销量，win 大把大把也不影响 ms 从 win 上赚大钱（甚至还某种程度加速了 wi ...</blockquote>
+现在PC哪来大把盗版，几年没破解的游戏也不少了吧。PC平台能有今天，尤其是国内PC游戏市场的发展，恰恰是因为正版玩家成为主流，2000W盗版玩家能直接让游科彻底死掉你信不信，说盗版没影响纯纯的扯淡
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

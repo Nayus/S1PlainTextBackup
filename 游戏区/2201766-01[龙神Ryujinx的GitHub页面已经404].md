@@ -1762,3 +1762,15 @@ pc 大把盗版也不影响 steam 正版销量，win 大把大把也不影响 ms
 
 dumprom让游戏文化永久保存，在经过几十年后仍能让有兴趣的人轻易玩到的话，对ps2之前的游戏我是信的，但随着ps2之后的游戏越来越大，我就觉得越来越虚，自掏腰包建服务器不现实，传网盘对大型文件限制多多，冷门游戏也没几个人下载，总不能要求分享者为一年不一定出现一两个的爱好者一辈子开着bt上传，多数人只下载热门经典游戏，在这之下也越来越倾向于选取一个特定的语言/地区版本保存
 
+
+*****
+
+####  jtwing  
+##### 156#       发表于 2024-10-4 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66371403&amp;ptid=2201766" target="_blank">Xerxes_2 发表于 2024-10-4 06:09</a>
+你说的这三个我都没玩过/用过，今年还给任天堂送了不少钱，我有没有资格骂？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你骂啊，我又不是网络警察，你要说什么还要我检查吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

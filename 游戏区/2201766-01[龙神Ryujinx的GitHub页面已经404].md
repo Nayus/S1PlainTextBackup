@@ -1952,3 +1952,16 @@ DQ11S新价格版，Switch和PS4同步发售，Switch版37万，PS4版12万
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Awanano  
+##### 174#       发表于 2024-10-4 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66372203&amp;ptid=2201766" target="_blank">巨馍蘸酱 发表于 2024-10-4 10:57</a>
+笑死了，退役老机器玩玩破解和模拟就算了，在役的机器，甚至新游戏发售前不知道多少天，正版玩家还在苦等发 ...</blockquote>
+所以我很期待下一个较受关注的任系游戏，已经模拟器都干到不能明面大更了，之后再整提前偷跑十多天那问题还不是老任自己的锅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+要是模拟器要晚于正版发售几天才能玩上事情还勉强说得过去，现在就是完全失衡。问题是老任和社区联合导致的，单打社区只是挑容易的打
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -9501,3 +9501,13 @@ fami首周20w
 
 结果他真的就只是作为障眼法的背景板
 
+
+*****
+
+####  冷泉夜月  
+##### 1474#       发表于 2024-10-4 12:28
+
+发现小彩蛋，穿不同的衣服跟孔德说话会有不同的对话<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

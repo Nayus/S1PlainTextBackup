@@ -472,3 +472,21 @@ ll有宅舞，女粉不少的
 
 但是现场看了鲤鱼眼湿湿和小星星还是值了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cybernetics31  
+##### 47#       发表于 2024-10-4 23:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么好的live，希望能给星3动画一点好运吧
+
+
+*****
+
+####  firedrop  
+##### 48#       发表于 2024-10-4 23:50
+
+光路组成了挺好
+
+还有旁边是远征的太君，用力到各种泪流满面要死要活似的，吓得我<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

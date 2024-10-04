@@ -373,3 +373,18 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Geyorkias  
+##### 668#       发表于 2024-10-4 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66373973&amp;ptid=2093296" target="_blank">宛若青空 发表于 2024-10-4 15:59</a>
+
+首先，Relink那件事我举这个例子意在指的是废都Re同样不应该刚开始做就公布，搞得时间明明也没过多少就唱 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">所以说，你认为制作组甚至都不知道自己顶头上司给自己安排的开发计划？这越描越黑了啊。
+
+至于“试玩玩家带回来的消息”，那我确实也只在这个帖子里看到一个极其不乐观的“项目进度三分之一”，或者有什么乐观的你可以讲讲给坛友看看，但我说实话，什么消息也不太可能抵消一个已经马上到了deadline的项目实际上只开发了三分之一带来的负面震撼就是了。
+
+除非你能拿出来其他的证据证明游戏的开发工作已经大体完成，目前已经进入收尾阶段，不然说什么其实都是空话罢了。
+

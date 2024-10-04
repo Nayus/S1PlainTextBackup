@@ -2169,3 +2169,85 @@ shhis和卢卡真不该是你这混账动画做出来
 <img src="https://p.sda1.dev/19/3743efd01ad9bd2c263a735734decd7e/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/19/72d20aac5224cad6d533b392512814bb/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wfhtony  
+##### 6480#       发表于 2024-10-5 00:55
+
+ 本帖最后由 wfhtony 于 2024-10-5 00:58 编辑 
+
+啊，這麼玩啊...
+
+<img src="https://img.saraba1st.com/forum/202410/05/005455kpzutaupppvttvtv.jpg" referrerpolicy="no-referrer">
+
+<strong>TV Tokyo_20241005_005027.479.jpg</strong> (100.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 00:54 上传
+
+<img src="https://img.saraba1st.com/forum/202410/05/005445cpg7u8ppqzqc7m6y.jpg" referrerpolicy="no-referrer">
+
+<strong>TV Tokyo_20241005_005030.599.jpg</strong> (133.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 00:54 上传
+
+<img src="https://img.saraba1st.com/forum/202410/05/005445ujy815r1cqe1fr0d.jpg" referrerpolicy="no-referrer">
+
+<strong>TV Tokyo_20241005_005043.193 - 複製.jpg</strong> (81.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 00:54 上传
+
+動畫二期的藍光明年三月發售，屆時<strong>AsobiStore 全卷（Complete Box）版</strong>會同捆SHHis篇的短篇動畫。
+呵，不用等小高公開，也不用查，都知道是最貴的那檔（
+
+這週末的6.5週年LIVE上應該會重複公佈這條消息。
+
+
+*****
+
+####  Anatoly  
+##### 6481#       发表于 2024-10-5 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66377168&amp;ptid=2130897" target="_blank">acacaclove 发表于 2024-10-5 00:52</a>
+群友透露只有op一首新歌</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，之前不是还说新曲不少，又是什么谎报军情
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  没取名啊  
+##### 6482#       发表于 2024-10-5 01:00
+
+逃了初一没逃过十五，嘘组我的嘘组<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 6483#       发表于 2024-10-5 01:00
+
+只是出短篇？应该会有三期吧？
+
+*****
+
+####  magicc  
+##### 6484#       发表于 2024-10-5 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66377082&amp;ptid=2130897" target="_blank">acacaclove 发表于 2024-10-5 00:32</a>
+还行，只能说还行，和第一季比起来好多了，但是也就那样了</blockquote>
+不是说万圣节event都有好几首新曲了吗，信息有误吧？
+
+*****
+
+####  acacaclove  
+##### 6485#       发表于 2024-10-5 01:03
+
+说错了，是oped就这一首，放哪个位置就是什么<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

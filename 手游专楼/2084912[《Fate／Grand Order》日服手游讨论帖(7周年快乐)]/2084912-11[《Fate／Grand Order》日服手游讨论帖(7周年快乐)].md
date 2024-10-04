@@ -72,3 +72,28 @@
 
 刷到个高宝黑杯烟试了一下，算是比较轻松愉快地冲过去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sosgame67  
+##### 14839#       发表于 2024-10-3 20:42
+
+连呼符都不给的高难有必要去打么<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  DARKGRAY  
+##### 14840#       发表于 2024-10-3 21:39
+
+刷到个高宝黑杯烟试了一下，算是比较轻松愉快地冲过去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  v22325  
+##### 14841#       发表于 2024-10-4 10:22
+
+ 本帖最后由 v22325 于 2024-10-4 10:23 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这高难青铜狗我没仔细编队卡时间用了两次令咒才过，前面三个小怪也烦人，直接打青铜狗都好打多了
+

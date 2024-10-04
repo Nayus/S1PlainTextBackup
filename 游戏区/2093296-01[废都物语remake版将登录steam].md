@@ -223,3 +223,26 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  宛若青空  
+##### 655#       发表于 2024-10-4 13:57
+
+ 本帖最后由 宛若青空 于 2024-10-4 13:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66373322&amp;ptid=2093296" target="_blank">mimiced 发表于 2024-10-4 13:54</a>
+
+这么久才这个进度，我还是去继续打原版了吧，我理解重制主要是美术重绘吧，完全是可以用人工堆上去的，要么 ...</blockquote>
+
+到明年年底也就三年，别滑坡到5年了，人确实不多，为什么不多招点人我也不知道
+
+
+*****
+
+####  上杉打老虎  
+##### 656#       发表于 2024-10-4 14:05
+
+💊？
+
+乙烷！
+

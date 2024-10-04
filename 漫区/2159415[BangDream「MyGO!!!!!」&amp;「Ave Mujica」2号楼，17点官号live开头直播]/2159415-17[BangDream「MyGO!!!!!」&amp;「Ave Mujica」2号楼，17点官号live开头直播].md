@@ -1168,3 +1168,17 @@ abema之前那个档期在播ネガポジアングラー，看起来似乎是十
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Aendst  
+##### 23792#       发表于 2024-10-4 11:10
+
+从小认识的幼驯染性格变了，不去关心为什么会变，不去担心是不是发生什么事了
+
+满脑子只有自己只觉得对方变了就不喜欢了
+
+这是不是有点太难看了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+邦多利的幼驯染不至于走到这一步吧
+

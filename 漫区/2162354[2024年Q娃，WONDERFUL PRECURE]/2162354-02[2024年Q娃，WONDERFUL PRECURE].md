@@ -759,3 +759,26 @@ yysy，悟君确实在某种意义上分走了一些小麦的戏份，因为对�
 
 说一个令人不安的事实，目前komugi还没有足够的剧情来证明自己是主C。目前她的主C只体现在升级时负责插钥匙，而剧情的主角目前更像是iroha，甚至获取升级道具的前后剧情，首先讲话的都是iroha。不知道汪Q会不会是第一部出现名义主C和实际主C不是同一人的Q娃。
 
+
+*****
+
+####  bilibilius  
+##### 2294#       发表于 2024-10-2 19:04
+
+说一个令人不安的事实，目前komugi还没有足够的剧情来证明自己是主C。目前她的主C只体现在升级时负责插钥匙，而剧情的主角目前更像是iroha，甚至获取升级道具的前后剧情，首先讲话的都是iroha。不知道汪Q会不会是第一部出现名义主C和实际主C不是同一人的Q娃。
+
+*****
+
+####  renkan119  
+##### 2295#       发表于 2024-10-4 11:08
+
+直接让小麦别来碍事是不是有点过分了
+
+<img src="https://img.saraba1st.com/forum/202410/04/110819uhj1okos3sh1zsv5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9251.jpeg</strong> (490.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-4 11:08 上传
+

@@ -2105,3 +2105,23 @@ ns版都那样了，还能占比11%，这不是牛逼炸了？不然你可以去
 
 对的，您的数据不受其他要素影响，您的数据最客观，开心了不？
 
+
+*****
+
+####  锁任龙  
+##### 186#       发表于 2024-10-4 12:06
+
+确实是婆罗门了，PC玩家不如狗，更算不算人民群众了。
+
+*****
+
+####  Awanano  
+##### 187#       发表于 2024-10-4 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66372600&amp;ptid=2201766" target="_blank">heseran 发表于 2024-10-4 11:57</a>
+为什么会觉得实体游戏偷跑是因为有模拟器的存在？</blockquote>
+没觉得啊
+我意思是完善的模拟器让偷跑更明显
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

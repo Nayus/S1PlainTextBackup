@@ -102,3 +102,14 @@
 对哦，放在众神1前面怎么样呢，不过这部位置还是可以看心情放的。</blockquote>
 不是同一个林克塞尔达的话问题应该不大，毕竟地图挺像众神1的，不过众神1没有格鲁德，海卓拉，雪人族这些种族，放众神1前面得时间跨度要足够大才行
 
+
+*****
+
+####  bird-lay  
+##### 1491#       发表于 2024-10-4 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66373676&amp;ptid=2188108" target="_blank">位面农场 发表于 2024-10-4 15:02</a>
+
+结尾就各回各家，也没有说林克和塞有啥后续的。</blockquote>
+既然没有后续就不妨碍我脑补嘛<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

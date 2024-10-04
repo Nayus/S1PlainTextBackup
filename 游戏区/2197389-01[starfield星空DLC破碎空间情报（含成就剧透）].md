@@ -467,3 +467,12 @@ dlc好玩吗，终于有外星人敌人了不用打换皮星际土匪了？
 用了10小时通关了DLC，感觉在贝塞斯达内部没有人对这个项目拥有热情，看不到细节也看不到创新。甚至这次我 ...</blockquote>
 之前看故事介绍pv我就说这编剧毫无想象力，直接搁这套公式了属于是。如果不是一开始就拿出来卖了钱估计这DLC都不会存在，怕不是开发者捏着鼻子做豪华版玩家捏着鼻子玩<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  はちたや  
+##### 49#       发表于 2024-10-4 15:30
+
+MC 54分，IGN 7
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这下又不用玩了
+

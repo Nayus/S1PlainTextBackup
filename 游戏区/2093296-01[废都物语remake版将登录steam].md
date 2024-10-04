@@ -264,3 +264,19 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">三年时间都够rimworld从0做到A12版了，一行原版代码不用也TM不应该端出来一个只做了三分之一的东西
 
+
+*****
+
+####  chaucerling  
+##### 659#       发表于 2024-10-4 14:22
+
+我看他们招人是用unity重制吧，从头开始组的制作团队也要时间磨合
+
+*****
+
+####  宛若青空  
+##### 660#       发表于 2024-10-4 14:22
+
+穿越了？又哪里就已经三年了
+说了有三分之一关卡是完整做完的又不是代表另外三分之二的进度是0<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

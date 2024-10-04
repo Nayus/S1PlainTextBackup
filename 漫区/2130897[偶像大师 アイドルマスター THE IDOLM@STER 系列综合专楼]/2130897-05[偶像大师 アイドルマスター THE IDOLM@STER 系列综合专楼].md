@@ -2320,3 +2320,17 @@ shhis和卢卡真不该是你这混账动画做出来
 
 个鬼啊，抽帧加完全没有交代故事的**病又开始了，真的ptsd。你镜头先拍漂亮，再聊拍出来的东西是否有吸引力吧监督。
 
+
+*****
+
+####  Alleyht  
+##### 6492#       发表于 2024-10-5 07:31
+
+好消息，你闪应该没三期了！
+
+坏消息，嘘组没能逃过一劫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+嘘组动画里儿力大概也要被流弹波及，现在幸存者大概率只剩铃木和小羊了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+我直接去30ms联动池把石头花光，下个池子要是铃木就和你闪说再见<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

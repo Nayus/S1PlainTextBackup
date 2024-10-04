@@ -2033,3 +2033,75 @@ ns版只占19年总销量的11%
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  ppa11  
+##### 180#       发表于 2024-10-4 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66372568&amp;ptid=2201766" target="_blank">hanan1 发表于 2024-10-4 11:52</a>
+Witcher 3
+
+PC: ~12 million
+
+PS4: ~ 10.8 million</blockquote>
+ns版都那样了，还能占比11%，这不是牛逼炸了？不然你可以去看看ns版巫师3是啥画面效果，全低特效+低分辨率保证了最低程度的游玩体验，竟然还能卖到全平台的1/10。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+而且还死贵，当年我买的时候是320块。。
+
+—— 來自 [鵝球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  heseran  
+##### 181#       发表于 2024-10-4 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66372365&amp;ptid=2201766" target="_blank">Awanano 发表于 2024-10-4 11:25</a>
+所以我很期待下一个较受关注的任系游戏，已经模拟器都干到不能明面大更了，之后再整提前偷跑十多天那问题 ...</blockquote>
+为什么会觉得实体游戏偷跑是因为有模拟器的存在？
+
+*****
+
+####  hanan1  
+##### 182#       发表于 2024-10-4 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66372593&amp;ptid=2201766" target="_blank">ppa11 发表于 2024-10-4 11:56</a>
+
+ns版都那样了，还能占比11%，这不是牛逼炸了？不然你可以去看看ns版巫师3是啥画面效果，全低特效+低分辨 ...</blockquote>
+谁跟你聊牛不牛逼了？不是人民群众吗？人民群众只占11%？
+
+
+*****
+
+####  罗克萨斯  
+##### 183#       发表于 2024-10-4 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66372549&amp;ptid=2201766" target="_blank">库德里尔 发表于 2024-10-4 11:50</a>
+
+玩正版的
+
+玩盗版的
+
+打嘴炮的</blockquote>
+偷跑楼没看出来，还以为是正经讨论游戏的，原来这才是你的真面目么？我来填一下你的
+
+玩正版的
+
+玩盗版的 &lt;- 库德里尔
+
+打嘴炮的
+
+*****
+
+####  强尼高达  
+##### 184#       发表于 2024-10-4 12:04
+
+笑死，一个前几代连PS版都没有的欧洲电脑游戏跑来碰游戏机的瓷，要不是索尼罪大滔天你连PS版都玩不到
+你不如把范围划到按下确定的游戏，赢得更多
+
+*****
+
+####  hanan1  
+##### 185#       发表于 2024-10-4 12:05
+
+对的，您的数据不受其他要素影响，您的数据最客观，开心了不？
+

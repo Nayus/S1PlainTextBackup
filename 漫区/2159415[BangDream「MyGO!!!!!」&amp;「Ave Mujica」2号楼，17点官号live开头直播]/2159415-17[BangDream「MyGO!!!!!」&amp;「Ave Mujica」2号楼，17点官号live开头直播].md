@@ -1529,3 +1529,11 @@ mujica一个团队需要这么好嘛？不如说有点感觉是不是她们没�
 这……又想起那个Goodbye happiness的手书了，真贴啊</blockquote>
 那个手书确实让人泪目<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 23827#       发表于 2024-10-4 17:32
+
+李子烤面包推特下面团建好好笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

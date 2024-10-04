@@ -1774,3 +1774,15 @@ dumprom让游戏文化永久保存，在经过几十年后仍能让有兴趣的�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  BotRondo  
+##### 157#       发表于 2024-10-4 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66371740&amp;ptid=2201766" target="_blank">汤圆です 发表于 2024-10-4 09:15</a>
+dumprom让游戏文化永久保存，在经过几十年后仍能让有兴趣的人轻易玩到的话，对ps2之前的游戏我是信的，但随 ...</blockquote>
+pt 一直都有
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

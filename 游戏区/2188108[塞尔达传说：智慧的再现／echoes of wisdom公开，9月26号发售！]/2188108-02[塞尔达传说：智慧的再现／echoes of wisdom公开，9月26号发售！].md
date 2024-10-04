@@ -121,3 +121,13 @@
 
 一个母系国家 公主好像永远没妈 你们不觉得奇怪么？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">  
 
+
+*****
+
+####  kzf  
+##### 1493#       发表于 2024-10-4 17:24
+
+剧情整体流程上确实没啥好讲的啊，倒是具体情节和小表情非常有遐想空间，比如被迫出走的王女，瞌睡道场，复制体啥的，甚至假如托力其实是粉切黑，都很对xp，可惜高强度搜索也没什么本<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

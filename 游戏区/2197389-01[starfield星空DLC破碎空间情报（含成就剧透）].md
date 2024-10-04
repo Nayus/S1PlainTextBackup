@@ -484,3 +484,11 @@ MC 54分，IGN 7
 
 电力鳄对这个DLC的评价非常高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ichihatsu  
+##### 51#       发表于 2024-10-4 20:36
+
+看到差评页才意识到这玩意单卖要116，卖36还差不多，整部DLC就特别的DLC味，那色调就不想让你长呆的，神叨剧情几大家具矛盾blahblah可以无缝换皮到任何一个B社游戏里，而且隔了一整年就做出这点剧情补充，滚辐第一个DLC至少是实打实的多了玩法
+

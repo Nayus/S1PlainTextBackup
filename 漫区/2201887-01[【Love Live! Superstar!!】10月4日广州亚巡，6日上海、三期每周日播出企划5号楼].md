@@ -434,3 +434,23 @@ ll有宅舞，女粉不少的
 
 如果都加上的话就体感正常时长了
 
+
+*****
+
+####  starring  
+##### 43#       发表于 2024-10-4 22:35
+
+为了保证歌曲数量，MC时间和换衣服的时间都缩短了，连战的强度不比FMT最后一场低
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+
+*****
+
+####  AvengerRideon  
+##### 44#       发表于 2024-10-4 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66375921&amp;ptid=2201887" target="_blank">starring 发表于 2024-10-4 21:42</a>
+除了音响效果有点糊和只有两小时，很满足了
+前排效果还是好，周边也没有家虎和厄介。她们的互动都看得好清 ...</blockquote>
+羡慕死了，右半边的看台是厄介重灾区，也看不清结那<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+

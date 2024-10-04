@@ -2930,3 +2930,11 @@ PS：
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">大少那个增益很好用，但前面大少线就四个人，一般增益完直接换下去的
 
+
+*****
+
+####  新世界的派蒙  
+##### 6212#       发表于 2024-10-4 16:11
+
+大少的防御BUFF是可以和DEX叠加的，如果还嫌不够硬，把玲那个巨人AI借来就行了，0.1倍呢
+

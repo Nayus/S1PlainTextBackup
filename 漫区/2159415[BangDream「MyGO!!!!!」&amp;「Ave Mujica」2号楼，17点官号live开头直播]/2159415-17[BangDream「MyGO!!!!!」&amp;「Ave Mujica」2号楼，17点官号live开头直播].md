@@ -1489,3 +1489,43 @@ mujica一个团队需要这么好嘛？不如说有点感觉是不是她们没�
 
 访谈虽然都是旧内容复读，但至少愿意给做这么一个专题了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">十月是黎明前的黑暗
 
+
+*****
+
+####  前方暴雨预警  
+##### 23823#       发表于 2024-10-4 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66372504&amp;ptid=2159415" target="_blank">skives10 发表于 2024-10-4 11:45</a>
+
+问题是这剧情演过一遍了啊再来一遍肯定是烂活
+
+初华在脆弱的时候怀念起小时候一无所知相信未来的自己更正常 ...</blockquote>
+这……又想起那个Goodbye happiness的手书了，真贴啊
+
+*****
+
+####  六道明  
+##### 23824#       发表于 2024-10-4 16:09
+
+3rd有线上直播吗_(:з」∠)_
+
+*****
+
+####  星天观测  
+##### 23825#       发表于 2024-10-4 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66374028&amp;ptid=2159415" target="_blank">六道明 发表于 2024-10-4 16:09</a>
+
+3rd有线上直播吗_(:з」∠)_</blockquote>
+有哦zsbd
+
+
+*****
+
+####  skives  
+##### 23826#       发表于 2024-10-4 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66374020&amp;ptid=2159415" target="_blank">前方暴雨预警 发表于 2024-10-4 16:07</a>
+这……又想起那个Goodbye happiness的手书了，真贴啊</blockquote>
+那个手书确实让人泪目<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+

@@ -431,3 +431,36 @@
 所以目前有用的信息就是2024年无望，而什么时候发售也没新信息?</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">反正我是只能总结出这个情报，不知道反对俺的坛友能不能拿出什么更有价值、更有力度的东西狠狠滴锤俺了
 
+
+*****
+
+####  Sabbah  
+##### 673#       发表于 2024-10-4 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66374175&amp;ptid=2093296" target="_blank">Geyorkias 发表于 2024-10-4 16:35</a>
+
+反正我是只能总结出这个情报，不知道反对俺的坛友能不能拿出什么更有价值、更有力度的东西狠狠滴锤俺了
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">25年年底未定，按照这个计划起码比泥潭潭友搓的ruinalike时间短一点。
+
+*****
+
+####  宛若青空  
+##### 674#       发表于 2024-10-4 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66374104&amp;ptid=2093296" target="_blank">Geyorkias 发表于 2024-10-4 16:21</a>
+所以说，你认为制作组甚至都不知道自己顶头上司给自己安排的开发计划？这越描越黑了啊。
+
+至于“试玩玩家 ...</blockquote>
+天角那个企业介绍PV里讲这句话的人是总经理，并不是实际开发组人员和制作人，你当真可以，那就当23年年底就内部决定延期了呗？24年就能发售废都微博早就官宣了，去年在那个企业PV之后去试玩的人也不会问了也不说，那不明显那个计划就不是他们想要的。
+抓着那句都不是官宣的话来讲deadline震撼真的没什么意思。
+
+你没看过其他玩家的试玩感想，贴吧那么多试玩的帖子你要有兴趣就可以看看，我贴几个今年去本部试玩时间较长的帖子，基本上担心游戏内容的和一些细节问题（包括整体游戏效果、新旧对比、新内容比例、重制的效果）都可以在里面得到解答和安心。
+
+[https://tieba.baidu.com/p/918589 ... amp;share_from=post](https://tieba.baidu.com/p/9185892106?&amp;share=9105&amp;fr=sharewise&amp;is_video=false&amp;unique=DDF19CC7C3D389CAAD3BD7F19C045DFF&amp;st=1728030841&amp;client_type=1&amp;client_version=12.68.5.0&amp;sfc=copy&amp;share_from=post)
+
+[https://tieba.baidu.com/p/918567 ... amp;share_from=post](https://tieba.baidu.com/p/9185671778?&amp;share=9105&amp;fr=sharewise&amp;is_video=false&amp;unique=E9A7613EB308CAEC93D41C0E19E31461&amp;st=1728030920&amp;client_type=1&amp;client_version=12.68.5.0&amp;sfc=copy&amp;share_from=post)
+
+[https://tieba.baidu.com/p/919545 ... amp;share_from=post](https://tieba.baidu.com/p/9195451752?&amp;share=9105&amp;fr=sharewise&amp;is_video=false&amp;unique=AD60534DED2E8F57C957635A65360FDA&amp;st=1728031410&amp;client_type=1&amp;client_version=12.68.5.0&amp;sfc=copy&amp;share_from=post)
+

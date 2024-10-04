@@ -128,3 +128,23 @@
 
 这玩意真的需要开发那么久吗？这么久没信总觉得要出幺蛾子<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yangkaim4  
+##### 645#       发表于 2024-10-4 13:33
+
+<blockquote>奇袭之风 发表于 2024-10-4 00:15
+先说原版没玩过。
+
+现场试玩了。
+</blockquote>
+就这么个东西做到现在才1/3，估计是上不了市了
+
+*****
+
+####  Geyorkias  
+##### 646#       发表于 2024-10-4 13:33
+
+才做了三分之一？那不用等了，这项目死定了
+

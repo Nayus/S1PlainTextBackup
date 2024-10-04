@@ -351,3 +351,38 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">UP的要么有了要么没兴趣，自选尼托补宝具了
 
+
+*****
+
+####  zxc4563982  
+##### 14870#       发表于 2024-10-5 02:45
+
+ 本帖最后由 zxc4563982 于 2024-10-5 02:47 编辑 
+
+花了一周时间从2.5打到2.7前半，目前最大的感想就是盖提亚当初怎么没把女同事轰杀至渣<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之花  
+##### 14871#       发表于 2024-10-5 04:03
+
+女同事是后来芙芙复活的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zxc4563982  
+##### 14872#       发表于 2024-10-5 06:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66377546&amp;ptid=2084912" target="_blank">希望之花 发表于 2024-10-5 04:03</a>
+女同事是后来芙芙复活的</blockquote>
+芙芙你坏事做尽<img src="https://static.saraba1st.com/image/smiley/face2017/268.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 14873#       发表于 2024-10-5 06:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">卧槽才发现交换所里还有要3000绿方块才能换完的金芙芙....是真的一滴也没有了啊
+
+期限还只有1个月...不知道结束前能不能换完
+

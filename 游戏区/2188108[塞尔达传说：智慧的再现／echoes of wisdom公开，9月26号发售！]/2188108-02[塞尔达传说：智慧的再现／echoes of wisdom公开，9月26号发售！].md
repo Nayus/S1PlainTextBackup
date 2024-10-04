@@ -497,3 +497,11 @@ BOSS是虚无里的原生生物吧，而托力是三女神创造的，
 
 抽象的难度设计
 
+
+*****
+
+####  ping117  
+##### 1521#       发表于 2024-10-5 04:20
+
+支线是靠游戏进度触发，但地图上不标感叹号，要整天跑回去看有没有支线也是挺麻烦的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

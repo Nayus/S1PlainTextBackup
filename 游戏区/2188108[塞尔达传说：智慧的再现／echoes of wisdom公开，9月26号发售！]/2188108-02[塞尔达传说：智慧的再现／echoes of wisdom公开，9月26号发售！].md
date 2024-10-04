@@ -142,3 +142,35 @@
 不是同一个林克塞尔达的话问题应该不大，毕竟地图挺像众神1的，不过众神1没有格鲁德，海卓拉，雪人族这些 ...</blockquote>
 最近在玩幻影沙漏 感觉孔德是雪人族，孔德的哥哥像雪猿族
 
+
+*****
+
+####  煙空  
+##### 1495#       发表于 2024-10-4 18:16
+
+主線劇情沒什麼好說的，但在一些安排上能感受到用心
+
+像上面的幸福四葉草本身就是個平平無奇的清裂縫任務，直接安排公主幫忙搜尋失踪小女孩也行，但用送幸運草來引入任務明顯就溫馨很多
+
+各地區的NPC也都有記憶點，像鼓隆族新族長把石板插進縫隙時我甚至有點感動
+
+唯一不滿的只有費羅尼主線，“黑黑的東西給的棉花糖太純了”<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nma  
+##### 1496#       发表于 2024-10-4 18:20
+
+喜欢这种每部剧情微妙不同的感觉，企图搞什么正史太无聊太俗套了，也容易走进死胡同<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我在干什么啊  
+##### 1497#       发表于 2024-10-4 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66374576&amp;ptid=2188108" target="_blank">努斯万克 发表于 2024-10-4 18:00</a>
+
+最近在玩幻影沙漏 感觉孔德是雪人族，孔德的哥哥像雪猿族</blockquote>
+你说的雪人是自己冬天里堆的那种雪人吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我也觉得沙漏还有小火车里的更像堆的那种雪人，孔德还好，不知道任天堂是不是有意区分的
+

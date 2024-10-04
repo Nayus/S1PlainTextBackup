@@ -2986,3 +2986,11 @@ PS：
 
 通关了，基本全要素，大部分NPC对话，游玩时间96小时，社长说这次剧情长度系列第二也不算口胡吧
 
+
+*****
+
+####  妄想中毒  
+##### 6218#       发表于 2024-10-4 18:22
+
+第二章黎爷线我还以为又要来骑神战了，吓死我了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

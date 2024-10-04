@@ -280,3 +280,25 @@
 穿越了？又哪里就已经三年了
 说了有三分之一关卡是完整做完的又不是代表另外三分之二的进度是0<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Geyorkias  
+##### 661#       发表于 2024-10-4 14:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">上次播片都是22年了，啥时候公布的都记不清了，本质上也不影响啥，同样的例子两年多也够rim从0做到A11了。
+<strong>拿不出来的东西默认等于没做</strong>，我还以为这都是共识了呢，现在这帮搞开发的一个个画饼一流到最后发现完成度最高的就是那个PV的事儿还少了，指不定连PV都外包的。
+
+
+*****
+
+####  库德里尔  
+##### 662#       发表于 2024-10-4 14:34
+
+总而言之
+补原版也挺方便的
+对这个重制版的预期降低一些
+以及希望2025能拿出来……
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

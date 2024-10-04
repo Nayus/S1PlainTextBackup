@@ -464,3 +464,13 @@
 
 [https://tieba.baidu.com/p/919545 ... amp;share_from=post](https://tieba.baidu.com/p/9195451752?&amp;share=9105&amp;fr=sharewise&amp;is_video=false&amp;unique=AD60534DED2E8F57C957635A65360FDA&amp;st=1728031410&amp;client_type=1&amp;client_version=12.68.5.0&amp;sfc=copy&amp;share_from=post)
 
+
+*****
+
+####  Geyorkias  
+##### 675#       发表于 2024-10-4 16:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">看集美晒吧唧只能说更慌了好吧，只能说祈祷原作者把关到位，千万别加啥私货就是了。
+
+也别说坛友应激，这年头这种话题是逃不开的，也是没办法逃避的，我真是宁愿他啥也不改一点不加，一个字一个标点符号也别动是最好的。
+

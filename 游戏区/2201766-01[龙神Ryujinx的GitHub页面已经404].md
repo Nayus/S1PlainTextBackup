@@ -1786,3 +1786,17 @@ pt 一直都有
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  無始無終  
+##### 158#       发表于 2024-10-4 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66371614&amp;ptid=2201766" target="_blank">BotRondo 发表于 2024-10-4 08:33</a>
+没盗版中国连游戏文化的土壤都没有，你敢想象十几年前小孩找家长要四百块买游戏吗
+
+论坛助手,iPhone ...</blockquote>
+十几年前什么游戏要400，我家有正版泰伯利亚之日和叛逆者的盘都是几十块的，后面轩辕剑的盘也是几十块，只有豪华版才是几百块
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

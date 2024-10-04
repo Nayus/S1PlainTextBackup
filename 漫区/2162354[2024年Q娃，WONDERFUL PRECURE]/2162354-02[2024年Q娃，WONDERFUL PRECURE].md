@@ -814,3 +814,18 @@ yysy，悟君确实在某种意义上分走了一些小麦的戏份，因为对�
 
 下一话标题里的wonderful是片假，小麦看不懂，看来以后是真的只有当电灯泡的份了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Parahure  
+##### 2300#       发表于 2024-10-5 01:58
+
+下一话标题里的wonderful是片假，小麦看不懂，看来以后是真的只有当电灯泡的份了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wly  
+##### 2301#       发表于 2024-10-5 07:17
+
+我懂了，这是结局前小麦黑化的伏笔。原来诚司位是你！
+

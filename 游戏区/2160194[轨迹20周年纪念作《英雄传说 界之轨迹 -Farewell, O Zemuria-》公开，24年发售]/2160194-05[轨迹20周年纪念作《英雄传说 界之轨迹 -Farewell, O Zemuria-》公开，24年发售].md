@@ -3015,3 +3015,11 @@ PS：
 
 而且法社这种优质股票每年分红，只要日本还维持零利率就是最好的投资产品，毫无风险每年拿股利
 
+
+*****
+
+####  红魔馆的糖  
+##### 6221#       发表于 2024-10-4 19:37
+
+这就是长大么<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/19/ad1e594a1eb610cb5b0608cbfbd313d9/CMP_20241004193722024.jpg" referrerpolicy="no-referrer">
+

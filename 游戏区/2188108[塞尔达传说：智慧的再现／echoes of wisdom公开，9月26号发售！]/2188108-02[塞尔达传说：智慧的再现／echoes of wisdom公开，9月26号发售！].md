@@ -174,3 +174,76 @@
 最近在玩幻影沙漏 感觉孔德是雪人族，孔德的哥哥像雪猿族</blockquote>
 你说的雪人是自己冬天里堆的那种雪人吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我也觉得沙漏还有小火车里的更像堆的那种雪人，孔德还好，不知道任天堂是不是有意区分的
 
+
+*****
+
+####  heseran  
+##### 1498#       发表于 2024-10-4 18:33
+
+爽，一口气全收集通关<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">。
+另外是我剧情看漏了还是什么，怎么感觉托力和boss同源啊？
+
+*****
+
+####  我在干什么啊  
+##### 1499#       发表于 2024-10-4 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66374576&amp;ptid=2188108" target="_blank">努斯万克 发表于 2024-10-4 18:00</a>
+
+最近在玩幻影沙漏 感觉孔德是雪人族，孔德的哥哥像雪猿族</blockquote>
+进游戏看了一下，孔德应该就是沙漏小火车的雪人族，孔德的哥哥也是，头上都是有角的，黄昏公主里那俩投上没角，定义上更接近Yeti一些，毕竟名字都是neta的Yeti，一个叫Yeta，一个叫Yeto
+
+*****
+
+####  努斯万克  
+##### 1500#       发表于 2024-10-4 18:35
+
+[@我在干什么啊](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=532569) 就像这样
+
+1728037975652.jpg
+(170.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-4 18:34 上传
+
+<img src="https://img.saraba1st.com/forum/202410/04/183446dacb1uj2tavctcuu.jpg" referrerpolicy="no-referrer">
+
+1728037975655.jpg
+(269.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-4 18:34 上传
+
+<img src="https://img.saraba1st.com/forum/202410/04/183446fg5atjk55atveze9.jpg" referrerpolicy="no-referrer">
+
+1728037975658.jpg
+(339.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-4 18:34 上传
+
+<img src="https://img.saraba1st.com/forum/202410/04/183446p525ljz9u729lz2j.jpg" referrerpolicy="no-referrer">
+
+1728037975660.jpg
+(387.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-4 18:34 上传
+
+<img src="https://img.saraba1st.com/forum/202410/04/183447mx2s674xux2kztsx.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  我在干什么啊  
+##### 1501#       发表于 2024-10-4 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66374772&amp;ptid=2188108" target="_blank">努斯万克 发表于 2024-10-4 18:35</a>
+
+@我在干什么啊 就像这样</blockquote>
+对，智杖里的和沙漏里的雪人族大差不差，我觉得就是同一种族，沙漏里的雪人族英文名叫Anouki，智杖里好像故意没提
+

@@ -4771,3 +4771,16 @@ It takes about 80 hours to clear the story, or 100 hours with side activities
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.89
 
+
+*****
+
+####  黑修士  
+##### 1165#       发表于 2024-10-4 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66374653&amp;ptid=2140224" target="_blank">u2deack 发表于 2024-10-4 18:12</a>
+
+好像更新后优化稍微好了一点
+
+不过这游戏迷宫也要一次性攻略么，mp根本不够用啊为什么技能和普攻伤害差这么 ...</blockquote>
+主角的法师职业可以无限打怪回MP，一次性打完理论上可行，嫌往返刷怪麻烦可以利用无限招怪那种晶石
+

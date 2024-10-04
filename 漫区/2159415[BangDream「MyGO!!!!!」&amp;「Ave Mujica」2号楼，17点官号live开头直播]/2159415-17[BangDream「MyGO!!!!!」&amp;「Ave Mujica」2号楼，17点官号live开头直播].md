@@ -1398,3 +1398,54 @@ mujica一个团队需要这么好嘛？不如说有点感觉是不是她们没�
   -- 来自 能手机投票的 Sta ...</blockquote>
 ？關係好點怎麼了 是你家的團關係不好羨慕了嗎
 
+
+*****
+
+####  御幸一也  
+##### 23815#       发表于 2024-10-4 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66358360&amp;ptid=2159415" target="_blank">前方暴雨预警 发表于 2024-10-2 00:08</a>
+
+这边发的广播repo省流了，李子说的是她们最近在为3rd做准备，成员每天见面排练，排练结束后会约着喝下午茶 ...</blockquote>
+你邦企劃本身，應該團練的練習時間也算工作的
+
+私底下在自家的練習時間才是完全私人
+
+*****
+
+####  御幸一也  
+##### 23816#       发表于 2024-10-4 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66358741&amp;ptid=2159415" target="_blank">七情七律 发表于 2024-10-2 01:12</a>
+
+如果是每天排练后继续约会那确实还算普通。我相信其他的二偶企划也不太可能没工作要求的情况下自己天天见面 ...</blockquote>
+但ave裡面的人就是這麼黏黏糊糊。
+
+本來就私底下出去玩好幾次了，你可以繼續相信你的幻覺。
+
+
+*****
+
+####  御幸一也  
+##### 23817#       发表于 2024-10-4 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66371837&amp;ptid=2159415" target="_blank">七情七律 发表于 2024-10-4 09:43</a>
+
+一点猜测，也许也早有人提过，mujica里可能出现的信息差。海玲提的太少不清楚，初华认识的是大小姐白祥，不 ...</blockquote>
+怎麼還在夢那個白祥哦，高尾拿到人設的時候都不知道有白祥，
+
+是配動畫的時候看劇本了才知道原來祥子還有這麼純真的時候，說明基礎人設就已經是現在的臭臉黑祥。
+
+白祥已經死了。
+
+*****
+
+####  Aendst  
+##### 23818#       发表于 2024-10-4 15:02
+
+肯定是夸张过的，一天至少见一次面不太可能
+
+但关系好三四天约顿饭不是挺正常的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">体感上差不多是感觉几乎每天都能见到，但严格来说也只是一周一起去玩一两次
+
+这是很正常的好朋友间的社交频率吧
+

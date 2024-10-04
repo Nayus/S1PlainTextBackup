@@ -1137,3 +1137,119 @@ PS：除了每日一折付费单抽外，不建议在瓦尔吉普斯之夜外的
 悔恨浮士德、臼齿奥提斯、圣愚 ...</blockquote>
 现在看来西2玛进不了震颤吧，可能更适合单通<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 903#       发表于 2024-10-4 18:57
+
+ 本帖最后由 Jamaisvu 于 2024-10-4 19:00 编辑 
+
+新赛季预告：
+
+新人格西部二协会辛克莱，五协会默尔索：
+
+<img src="https://img.saraba1st.com/forum/202410/04/185754zp7u1i9w4134cum7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241004_184641.jpg</strong> (178.05 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-10-4 18:57 上传
+
+<img src="https://img.saraba1st.com/forum/202410/04/185013r9290qf4yfdy9ddf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241004_184657.jpg</strong> (227.14 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-10-4 18:50 上传
+
+<img src="https://img.saraba1st.com/forum/202410/04/185013lbez7wjtegjejett.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241004_184939.jpg</strong> (173.73 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-10-4 18:50 上传
+
+<img src="https://img.saraba1st.com/forum/202410/04/185013i85c90jvvvbj22c3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241004_184710.jpg</strong> (191.26 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-10-4 18:50 上传
+
+看样子协会要参与到血魔讨伐战中了？
+
+五默如果也是呼吸体系，那呼吸队估计以后要分斩呼和刺护了，剑契队不想带剑辛剑奥的话可以试试死协希斯和玛丽。
+
+战令ego：
+
+诅咒钉，罗佳和辛克莱：
+
+<img src="https://img.saraba1st.com/forum/202410/04/185237pvyz0fex0ue8hev0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241004_184725.jpg</strong> (205.64 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-10-4 18:52 上传
+
+荆棘套锁，鸿璐与浮士德：
+
+<img src="https://img.saraba1st.com/forum/202410/04/185354g0unnp7t0znlnu9l.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241004_184740.jpg</strong> (217.11 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-10-4 18:53 上传
+
+卡蜜拉•渴望，默尔索和小唐：
+
+<img src="https://img.saraba1st.com/forum/202410/04/185422rpp46c1r16466bk2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241004_184803.jpg</strong> (175.55 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-10-4 18:54 上传
+
+<img src="https://img.saraba1st.com/forum/202410/04/185422oamzhtkugcft3zbo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241004_184839.jpg</strong> (183.35 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-10-4 18:54 上传
+
+<img src="https://img.saraba1st.com/forum/202410/04/185422nexf6kvfnz865fvk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241004_184852.jpg</strong> (199.17 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-10-4 18:54 上传
+
+播报员有小唐、？？？和付费某人（复活赛选手）：
+
+<img src="https://img.saraba1st.com/forum/202410/04/185518xtywnwza7nytdtxm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241004_185508.jpg</strong> (239.52 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-10-4 18:55 上传
+

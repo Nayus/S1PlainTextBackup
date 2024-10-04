@@ -3002,3 +3002,16 @@ PS：
 
 你就说打没打吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  windtrack_qh  
+##### 6220#       发表于 2024-10-4 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66374549&amp;ptid=2160194" target="_blank">cyvery 发表于 2024-10-4 17:55</a>
+
+法老控的素材复用已经到了丧心病狂的地步，新地图都没几个，省钱到了极点，挂不得轨迹的销量一作比一作低， ...</blockquote>
+想多了，法社基本是加藤的家族企业，市场上股份很少，照近藤这个干法加藤巴不得他这么干一辈子
+
+而且法社这种优质股票每年分红，只要日本还维持零利率就是最好的投资产品，毫无风险每年拿股利
+

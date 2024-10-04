@@ -1580,3 +1580,11 @@ mujica一个团队需要这么好嘛？不如说有点感觉是不是她们没�
 
 有没有楼友记得弄之前在哪个地方说拍了4000张mujica的照片来着？这感觉没过多久昨天的广播说已经有5000张了？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 23832#       发表于 2024-10-4 21:01
+
+我倾向于这是一个比较夸张的说法吧，是真的有点可怕了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

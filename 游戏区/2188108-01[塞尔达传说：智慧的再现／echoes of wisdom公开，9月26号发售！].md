@@ -9511,3 +9511,44 @@ fami首周20w
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Nez  
+##### 1475#       发表于 2024-10-4 12:42
+
+食谱齐了的奖励哪里领？应该69个了但是没有任何提示
+
+*****
+
+####  moudianzi  
+##### 1476#       发表于 2024-10-4 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66372773&amp;ptid=2188108" target="_blank">冷泉夜月 发表于 2024-10-4 12:28</a>
+
+发现小彩蛋，穿不同的衣服跟孔德说话会有不同的对话
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+我在得到收集印章奖励的衣服后（最后一个印章刚好是在他家上方找那里找遗漏的力量碎片时顺带被引导找到的），就想着顺便去找他对话看看好了，检查一下有没有什么漏掉的区域后续任务，结果就冷不丁地被他内心吐槽这套印章衣服很怪<img src="https://static.saraba1st.com/image/smiley/face2017/190.png" referrerpolicy="no-referrer">
+
+*****
+
+####  02031f84  
+##### 1477#       发表于 2024-10-4 12:43
+
+这作的故事换了主角反而正统到有些无趣是我只有我这样觉得吗？
+
+—— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  库德里尔  
+##### 1478#       发表于 2024-10-4 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66372877&amp;ptid=2188108" target="_blank">Nez 发表于 2024-10-4 12:42</a>
+食谱齐了的奖励哪里领？应该69个了但是没有任何提示</blockquote>
+理应在全食谱的瞬间小贩就给你10个金蛋了。检查一下金蛋数量？
+如果没有增加的话，按y再看一看序号有没有缺吧。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

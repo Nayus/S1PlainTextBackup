@@ -2224,3 +2224,27 @@ Switch版13332本，PS5版13265本 多卖67份也能拿出来代表人民群众�
 
 查看全部评分
 
+
+*****
+
+####  罗克萨斯  
+##### 196#       发表于 2024-10-4 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66372747&amp;ptid=2201766" target="_blank">库德里尔 发表于 2024-10-4 12:22</a>
+我也没藏着吧，玩盗版就是玩盗版了。我的观点也说了，仍在生命周期的主机，对其游戏进行提取和模拟始终是 ...</blockquote>
+你要知道，大多数玩家并不会因为你玩盗版而排挤你，甚至还愿意跟你一起讨论游戏。但是非要跳脸那可就没那么友善了，你这列一栏“打嘴炮的”更是可笑，连评理都不让了都，只要和跳脸盗版党打嘴仗，就开除玩家籍（连玩盗版都不如），太高明了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  库德里尔  
+##### 197#       发表于 2024-10-4 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66372841&amp;ptid=2201766" target="_blank">罗克萨斯 发表于 2024-10-4 12:36</a>
+你要知道，大多数玩家并不会因为你玩盗版而排挤你，甚至还愿意跟你一起讨论游戏。但是非要跳脸那可就没那 ...</blockquote>
+那是我表述不清了。我想表达的是，打游戏的可以分成正版盗版的，在此之外还有论坛打嘴炮的，我对这三者并没有主观想排列先后关系。
+不好意思。我去编辑一下。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

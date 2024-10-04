@@ -1240,3 +1240,47 @@ abema之前那个档期在播ネガポジアングラー，看起来似乎是十
 借楼问下，小黑屋发生啥了（</blockquote>
 百综打架导致的 和邦楼没什么关系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  uhiuk  
+##### 23799#       发表于 2024-10-4 11:40
+
+想看过去的小祥<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">既然是幼驯染，幼年回忆也一并端上来吧
+
+*****
+
+####  PDQ4  
+##### 23800#       发表于 2024-10-4 11:40
+
+草看了下小黑屋好搞笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 23801#       发表于 2024-10-4 11:40
+
+什么下头脑补
+
+祥子：拘泥于过去的样子真是难看
+
+爱看这种戏份建议再去把mygo看一遍
+
+*****
+
+####  七情七律  
+##### 23802#       发表于 2024-10-4 11:41
+
+发散确实有点假药了。不过这个时间点不太该还拿着传统邦多利印象来看mujica了吧，两个pv下来，调侃的甚至说这是小圆？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  skives10  
+##### 23803#       发表于 2024-10-4 11:45
+
+问题是这剧情演过一遍了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">再来一遍肯定是烂活
+初华在脆弱的时候怀念起小时候一无所知相信未来的自己更正常一点 还能形成对比
+

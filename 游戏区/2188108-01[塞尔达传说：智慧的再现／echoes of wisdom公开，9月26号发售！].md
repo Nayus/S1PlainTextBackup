@@ -9483,3 +9483,11 @@ fami首周20w
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  赵姬  
+##### 1472#       发表于 2024-10-4 11:37
+
+还在前期，这LV2的盾牌猪又能打又能抗，怪物堆里召唤一个出来不说一骑当千至少也安全感爆棚，你才是真勇者吧，塞尔达夜里又被猪拱了的话林克你可怨不了别人<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

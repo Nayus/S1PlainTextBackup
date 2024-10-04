@@ -1965,3 +1965,15 @@ DQ11S新价格版，Switch和PS4同步发售，Switch版37万，PS4版12万
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  强尼高达  
+##### 175#       发表于 2024-10-4 11:44
+
+Gundam Breaker ４，Switch版62137本，PS5版40609本（上上周）
+Powerful Pro野球24-25，Switch版292389本，PS4版落榜（上周）
+EA FC25，Switch版13332本，PS5版13265本，史诗级翻身仗（本周）
+
+画质党有空在论坛打嘴炮不如努力挣钱把每个跨平台游戏的PS4 PS5版买个几十万份，到时候你就是人民群众，我们算老几
+

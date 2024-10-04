@@ -1815,3 +1815,15 @@ pt 一直都有
 
 —— 來自 [鵝球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  强尼高达  
+##### 160#       发表于 2024-10-4 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66371503&amp;ptid=2201766" target="_blank">BotRondo 发表于 2024-10-4 07:42</a>
+pc 大把盗版也不影响 steam 正版销量，win 大把大把也不影响 ms 从 win 上赚大钱（甚至还某种程度加速了 wi ...</blockquote>
+正版体验比盗版差可太逗了
+我电脑跑个模拟器根本带不出门，掌机跑个被邪恶的任天堂干掉的模拟器，休眠半天掉了一半电量，这模拟器熄屏以后根本不停止工作的，过了两天每次必须存档退出的GBA生活以后懒得玩了
+PC党那里真的只有画质才叫游戏体验，别的都不算的
+

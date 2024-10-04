@@ -9472,3 +9472,14 @@ fami首周20w
 
 时间线应该还是在败北线里，但和前作有联系的可能应该不大，林塞这作明显不认识
 
+
+*****
+
+####  冷泉夜月  
+##### 1471#       发表于 2024-10-4 10:11
+
+通关了！最后差3个心之碎片（一个赛马的俩看漏的），力量碎片和印章都齐了，不用查攻略的感觉真好，解密也没有卡关<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+决战流程还挺长的，林克确实太强了让我全程打辅助<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

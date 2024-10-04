@@ -317,3 +317,37 @@
 补旧角色和歪不想要的怎么能算豹呢</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/266.gif" referrerpolicy="no-referrer">彩即豹
 
+
+*****
+
+####  格林卡罗尔  
+##### 14867#       发表于 2024-10-4 20:58
+
+活动前搞个这种池子真阴险，还好我不抽
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  eilot  
+##### 14868#       发表于 2024-10-5 00:38
+
+ 本帖最后由 eilot 于 2024-10-5 00:40 编辑 
+
+看了沒有的5星，拿破倫你居然只得1個幕間那麼少，特斯拉都有2幕間1強化
+
+布拉達曼特有1幕1強化，巨象、項羽和李書文只得1個幕間，
+
+再不是選仇尼或尼莫?間中都見到有人建議使用
+
+弗栗多、果心或伽拉忒亞就沒興趣了
+
+抽角的話，最想要的都是爺爺
+
+*****
+
+####  希望之花  
+##### 14869#       发表于 2024-10-5 01:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">UP的要么有了要么没兴趣，自选尼托补宝具了
+

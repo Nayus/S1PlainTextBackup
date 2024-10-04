@@ -2251,3 +2251,31 @@ shhis和卢卡真不该是你这混账动画做出来
 
 说错了，是oped就这一首，放哪个位置就是什么<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wfhtony  
+##### 6486#       发表于 2024-10-5 01:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66377203&amp;ptid=2130897" target="_blank">Anatoly 发表于 2024-10-5 00:58</a>
+
+草，之前不是还说新曲不少，又是什么谎报军情
+
+—— 来自 S1Fun</blockquote>
+這季確實有新曲，畢竟專輯信息爛鐵都貼出來了（萬聖節五首曲子）。
+
+他說的是OPED，這兩首裏面只有OP是新的，ED還是一期那個樣。
+
+*****
+
+####  Anatoly  
+##### 6487#       发表于 2024-10-5 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66377227&amp;ptid=2130897" target="_blank">wfhtony 发表于 2024-10-5 01:05</a>
+這季確實有新曲，畢竟專輯信息爛鐵都貼出來了（萬聖節五首曲子）。
+
+他說的是OPED，這兩首裏面只有OP是新 ...</blockquote>
+草……那还真是，不出意外……
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

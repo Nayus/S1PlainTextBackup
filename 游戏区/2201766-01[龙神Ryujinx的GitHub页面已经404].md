@@ -1641,3 +1641,30 @@ pc 大把盗版也不影响 steam 正版销量，win 大把大把也不影响 ms
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  NameLess2501  
+##### 146#       发表于 2024-10-4 07:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66371244&amp;ptid=2201766" target="_blank">DJYDJYD 发表于 2024-10-4 02:49</a>
+吹不动，很多游戏缺功能，成就或者联机相关的</blockquote>
+「关注游戏本身」
+联机体验不好的话确实是个问题，但觉得成就系统可有可无。
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+
+*****
+
+####  vmon  
+##### 147#       发表于 2024-10-4 07:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66371441&amp;ptid=2201766" target="_blank">战术核辣条 发表于 2024-10-4 06:57</a>
+我就想知道坛友要是今年想玩3ds游戏会不会也从小红书集美手里买台实机来玩，而且买了也多半只能玩烧录了
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你不会觉得坛友家里没3ds和卡带吧……
+
+—— 来自 HUAWEI BLA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -2781,3 +2781,100 @@ PS：
 还有韩文版呢：
 [https://www.cloudedleopardent.com/game/kai/kr/](https://www.cloudedleopardent.com/game/kai/kr/)
 
+
+*****
+
+####  Squall25  
+##### 6195#       发表于 2024-10-3 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66369468&amp;ptid=2160194" target="_blank">アーシェス 发表于 2024-10-3 21:32</a>
+学妹抱枕图一出，一切都会好起来的</blockquote>
+学妹抱枕早就出了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  keiyoku  
+##### 6196#       发表于 2024-10-3 21:47
+
+感觉4.7w对标界轨质量算高了，赢，以后你轨可能就只能这样了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  红魔馆的糖  
+##### 6197#       发表于 2024-10-3 21:47
+
+有一说一数字版和中文版都算上也差不多能摸一摸十万了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">社长美美地开一个小香槟
+
+*****
+
+####  ravend233  
+##### 6198#       发表于 2024-10-3 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66369577&amp;ptid=2160194" target="_blank">Squall25 发表于 2024-10-3 21:46</a>
+
+学妹抱枕早就出了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说的新形态的吧（）
+
+*****
+
+####  红魔馆的糖  
+##### 6199#       发表于 2024-10-3 23:48
+
+虽然一直说2D美术越来越不够，但是这作微妙的在很多细节的地方画了很多新的回忆CG<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hayate0079  
+##### 6200#       发表于 2024-10-4 00:00
+
+1周目噩梦85H通了，前期全NPC后期转只看感兴趣的NPC，SP的话差6-7点到AAA，懒得搞了
+
+说起版本，我是首发（闪1开始）有中文买中文，没中文买日文，基本下载版
+
+
+*****
+
+####  jacket  
+##### 6201#       发表于 2024-10-4 00:30
+
+打架语音里有句台词，“既然想看黎明那我先送你去睡一觉”
+
+*****
+
+####  洛克萨斯  
+##### 6202#       发表于 2024-10-4 00:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">现在只希望社长和董事长看在五万死忠不离不弃的份上给你轨这个20多年的ip一个体面的收尾
+
+*****
+
+####  Falcomfans  
+##### 6203#       发表于 2024-10-4 02:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66369505&amp;ptid=2160194" target="_blank">pf67 发表于 2024-10-3 21:35</a>
+
+按某机构统计，黎轨港中占比高达60%，按这个比例6w都有可能
+
+—— 来自 OPPO PCLM10, Android 12上的 S1N ...</blockquote>
+不止中文，云豹是亚洲代理，还有韩文。
+
+*****
+
+####  Falcomfans  
+##### 6204#       发表于 2024-10-4 02:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66369589&amp;ptid=2160194" target="_blank">红魔馆的糖 发表于 2024-10-3 21:47</a>
+
+有一说一数字版和中文版都算上也差不多能摸一摸十万了社长美美地开一个小香槟 ...</blockquote>
+还有韩文版呢：
+[https://www.cloudedleopardent.com/game/kai/kr/](https://www.cloudedleopardent.com/game/kai/kr/)
+
+*****
+
+####  nozomitech  
+##### 6205#       发表于 2024-10-4 07:51
+
+本体的五万死士大体上没有大的伤亡，赢！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

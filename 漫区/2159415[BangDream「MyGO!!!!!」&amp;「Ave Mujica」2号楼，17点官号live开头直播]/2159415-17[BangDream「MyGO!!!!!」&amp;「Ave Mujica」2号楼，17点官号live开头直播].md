@@ -1588,3 +1588,11 @@ mujica一个团队需要这么好嘛？不如说有点感觉是不是她们没�
 
 我倾向于这是一个比较夸张的说法吧，是真的有点可怕了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 23833#       发表于 2024-10-4 21:11
+
+考虑一张照片可能拍七八张，也许不夸张<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

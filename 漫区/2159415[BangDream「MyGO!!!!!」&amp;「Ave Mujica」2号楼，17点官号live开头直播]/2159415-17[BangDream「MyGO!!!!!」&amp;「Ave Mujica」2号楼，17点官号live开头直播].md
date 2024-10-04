@@ -1596,3 +1596,11 @@ mujica一个团队需要这么好嘛？不如说有点感觉是不是她们没�
 
 考虑一张照片可能拍七八张，也许不夸张<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 23834#       发表于 2024-10-4 22:27
+
+还好吧，日本人拍照经常用连拍模式的，一个画面能拍好几张
+

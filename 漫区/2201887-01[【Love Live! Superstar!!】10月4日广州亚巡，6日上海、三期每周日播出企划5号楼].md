@@ -462,3 +462,13 @@ ll有宅舞，女粉不少的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么好的live，希望能给星3动画一点好运吧
 
+
+*****
+
+####  秋月艾莉  
+##### 46#       发表于 2024-10-4 23:27
+
+内场站了一整场累得
+
+但是现场看了鲤鱼眼湿湿和小星星还是值了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

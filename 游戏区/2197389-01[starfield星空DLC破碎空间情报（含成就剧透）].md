@@ -492,3 +492,16 @@ MC 54分，IGN 7
 
 看到差评页才意识到这玩意单卖要116，卖36还差不多，整部DLC就特别的DLC味，那色调就不想让你长呆的，神叨剧情几大家具矛盾blahblah可以无缝换皮到任何一个B社游戏里，而且隔了一整年就做出这点剧情补充，滚辐第一个DLC至少是实打实的多了玩法
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 52#       发表于 2024-10-4 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66373961&amp;ptid=2197389" target="_blank">nancygreenlife 发表于 2024-10-4 15:56</a>
+电力鳄对这个DLC的评价非常高</blockquote>
+非常高，结果不如远港
+当然从他觉得远港是杯赛最好的dlc来看，我觉得他极度缺乏鉴赏能力
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

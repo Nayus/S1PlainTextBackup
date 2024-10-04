@@ -277,3 +277,43 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">补奥宝50连出了还歪了个皇女....真的不想要啊
 
+
+*****
+
+####  alucardcz  
+##### 14863#       发表于 2024-10-4 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66375435&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-10-4 20:28</a>
+
+补奥宝50连出了还歪了个皇女....真的不想要啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">豹 又 豹
+
+*****
+
+####  zechins  
+##### 14864#       发表于 2024-10-4 20:39
+
+这个DL纪念全明星UP…
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好多人啊.jpg
+希望能抽到爷爷
+
+*****
+
+####  森兰丸  
+##### 14865#       发表于 2024-10-4 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66375507&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-10-4 20:39</a>
+
+豹 又 豹</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">补旧角色和歪不想要的怎么能算豹呢
+
+*****
+
+####  alucardcz  
+##### 14866#       发表于 2024-10-4 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66375563&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-10-4 20:46</a>
+
+补旧角色和歪不想要的怎么能算豹呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/266.gif" referrerpolicy="no-referrer">彩即豹
+

@@ -2125,3 +2125,82 @@ ns版都那样了，还能占比11%，这不是牛逼炸了？不然你可以去
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  ppa11  
+##### 188#       发表于 2024-10-4 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66372607&amp;ptid=2201766" target="_blank">hanan1 发表于 2024-10-4 11:57</a>
+谁跟你聊牛不牛逼了？不是人民群众吗？人民群众只占11%？
+
+上面列的那几个数据可比11%多多了
+
+ ...</blockquote>
+我上面说了啊，巫师3ns版作为众所周知的全低勉强能玩程度的版本，能卖到11%已经说明ns版有相当程度的竞争力了。。
+
+—— 來自 [鵝球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  臭P遇上臭脚  
+##### 189#       发表于 2024-10-4 12:14
+
+玩个盗版还要扯那么多理由给自己辩解，鉴定为不如3dm<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+公然支持盗版不nuke，鉴定为不如NGA<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hisousihou  
+##### 190#       发表于 2024-10-4 12:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">别人问的时候就把简单问题复杂化
+
+轮到自己就复杂问题简单化
+
+话都一个人说完了
+
+*****
+
+####  hanan1  
+##### 191#       发表于 2024-10-4 12:15
+
+Switch版13332本，PS5版13265本 多卖67份也能拿出来代表人民群众可有道理了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不知道还以是选举，搞多数决呢
+
+
+*****
+
+####  hanan1  
+##### 192#       发表于 2024-10-4 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66372694&amp;ptid=2201766" target="_blank">ppa11 发表于 2024-10-4 12:10</a>
+
+我上面说了啊，巫师3ns版作为众所周知的全低勉强能玩程度的版本，能卖到11%已经说明ns版有相当程度的竞争 ...</blockquote>
+对的11%就是代表了人民群众，人民群众就是喜欢540p 20帧带到外面打巫师
+
+*****
+
+####  库德里尔  
+##### 193#       发表于 2024-10-4 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66372643&amp;ptid=2201766" target="_blank">罗克萨斯 发表于 2024-10-4 12:02</a>
+偷跑楼没看出来，还以为是正经讨论游戏的，原来这才是你的真面目么？我来填一下你的
+
+玩正版的</blockquote>
+我也没藏着吧，玩盗版就是玩盗版了。我的观点也说了，仍在生命周期的主机，对其游戏进行提取和模拟始终是不好的行为，虽然这么说的我偷跑打了马惊奇和塞尔达，确有种又当又立不要脸的样子。
+
+在这个楼里我主要也就补充了一些事实，试图讨论关于brew老游戏的保存和wiki网站提取手游美术资料做百科的事情，没人接就是了。现在开始拐销量了，所以我回了您上面回复我的那一句。
+
+说到底，讨厌一个人，反对一个观点，因为反对观点所以讨厌提出观点的人都很正常。只要别因为讨厌一个人所以全盘否定这个人提出的一切观点，什么都好。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  hanan1  
+##### 194#       发表于 2024-10-4 12:24
+
+多卖67份拿出来代表人民群众，我质疑叫做简单问题复杂化，屁股决定脑袋也太可怕了，玩不过，玩不过
+

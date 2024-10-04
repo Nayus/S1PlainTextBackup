@@ -2141,3 +2141,31 @@ We got the party night night night!</blockquote>
 
 还行，只能说还行，和第一季比起来好多了，但是也就那样了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Anatoly  
+##### 6477#       发表于 2024-10-5 00:46
+
+只能说第一集很难觉得离谱程度有轻（）
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  acacaclove  
+##### 6478#       发表于 2024-10-5 00:52
+
+群友透露只有op一首新歌<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Alicest  
+##### 6479#       发表于 2024-10-5 00:52
+
+小高我操你的，能不能别shhis啊<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+shhis和卢卡真不该是你这混账动画做出来
+<img src="https://p.sda1.dev/19/3743efd01ad9bd2c263a735734decd7e/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/72d20aac5224cad6d533b392512814bb/image.jpg" referrerpolicy="no-referrer">
+

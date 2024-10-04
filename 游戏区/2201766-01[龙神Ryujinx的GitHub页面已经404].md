@@ -2280,3 +2280,34 @@ Switch版13332本，PS5版13265本 多卖67份也能拿出来代表人民群众�
 
 —— 來自 [鵝球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  gane1010  
+##### 201#       发表于 2024-10-4 13:05
+
+ 本帖最后由 gane1010 于 2024-10-4 13:08 编辑 
+
+个人是正版盗版混着玩的  现役的机器玩正版  以前的psp 3ds现在玩模拟器 这么多年 早年间机器也老化了 一些实机还没模拟玩的舒服  个人是支持模拟器的 不过最好是主机末期发布  你在主机前中期就发布 而且还跳脸官方就过分了  玩盗版这事在道义和法律上也是说不过的事  
+
+*****
+
+####  抽搐一下  
+##### 202#       发表于 2024-10-4 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66372915&amp;ptid=2201766" target="_blank">gg326 发表于 2024-10-4 12:48</a>
+虽然没人能证明盗版对正版销量有多大影响，但这年头PC上是个商业游戏都上D加密来看，厂商认为花十几几十万 ...</blockquote>
+cdpr和拉瑞安都是无加密方针，巫师三，2077，博得都是无加密且商业上大成功
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  病態極端  
+##### 203#       发表于 2024-10-4 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66372915&amp;ptid=2201766" target="_blank">gg326 发表于 2024-10-4 12:48</a>
+
+虽然没人能证明盗版对正版销量有多大影响，但这年头PC上是个商业游戏都上D加密来看，厂商认为花十几几十万 ...</blockquote>
+D加密問世10年，目前D加密遊戲一共只有255款。
+

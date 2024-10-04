@@ -26,3 +26,33 @@
 
 没几个人谈为啥不是因为没人这么觉得<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">，这作音乐有啥问题吗，主题曲和几个种族的bgm都不错啊
 
+
+*****
+
+####  位面农场  
+##### 1484#       发表于 2024-10-4 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66373429&amp;ptid=2188108" target="_blank">tachikoma27 发表于 2024-10-4 14:11</a>
+
+没几个人谈为啥不是因为没人这么觉得，这作音乐有啥问题吗，主题曲和几个种族的bgm都不错啊 ...</blockquote>
+喜欢鼓隆的音乐，不过音乐没啥记忆点，都比较平淡。
+
+*****
+
+####  位面农场  
+##### 1485#       发表于 2024-10-4 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66370320&amp;ptid=2188108" target="_blank">我在干什么啊 发表于 2024-10-3 23:37</a>
+
+织梦岛接的众神1，很明显这代和织梦岛没有啥联系，除非又吃书</blockquote>
+怎么就明显了，这部基本没讲剧情，所以留下了很多拓展的空间
+
+*****
+
+####  我在干什么啊  
+##### 1486#       发表于 2024-10-4 14:54
+
+<blockquote>位面农场 发表于 2024-10-4 14:52
+怎么就明显了，这部基本没讲剧情，所以留下了很多拓展的空间</blockquote>
+因为织梦岛接的众神1啊，众神1的塞尔达怎么可能不认识林克
+

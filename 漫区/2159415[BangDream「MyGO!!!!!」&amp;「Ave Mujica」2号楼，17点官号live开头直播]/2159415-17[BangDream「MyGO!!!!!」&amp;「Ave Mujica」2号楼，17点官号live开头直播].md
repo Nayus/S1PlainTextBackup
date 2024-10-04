@@ -1385,3 +1385,16 @@ abema之前那个档期在播ネガポジアングラー，看起来似乎是十
 
 黑生立牌放出来又会是一场腥风血雨（指买不到和炒到海景）
 
+
+*****
+
+####  御幸一也  
+##### 23814#       发表于 2024-10-4 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66357939&amp;ptid=2159415" target="_blank">七情七律 发表于 2024-10-1 22:58</a>
+
+mujica一个团队需要这么好嘛？不如说有点感觉是不是她们没多少工作太闲了（）
+
+  -- 来自 能手机投票的 Sta ...</blockquote>
+？關係好點怎麼了 是你家的團關係不好羨慕了嗎
+

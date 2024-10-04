@@ -552,3 +552,13 @@
 
 综上，这个remake是死是活根本不重要，当他不存在，还想入坑直接打原版，万一真能出大不了再来一遍，足够优秀再来一遍也不是不行
 
+
+*****
+
+####  trentswd  
+##### 684#       发表于 2024-10-5 00:32
+
+都在说人很少人很少，到底有多少？真的是1个程序员2个美术吗？是真的那做这么久确实可以理解就是了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

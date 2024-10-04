@@ -4792,3 +4792,13 @@ It takes about 80 hours to clear the story, or 100 hours with side activities
 
 看了最新的PV怎么还有ジャックフロスト啊<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  浅井惠  
+##### 1167#       发表于 2024-10-5 00:25
+
+玩了下demo，美术水平真的爆炸，跟p系列比也算再创新高了，都有种管它好不好玩也要买的念头了
+
+但是剧情和战斗也是真的无聊，虽然主线无聊也是一贯特色了，但是没有coop剧情和当时间管理大师填充只能不断推主线和那b迷宫真的忍不了
+

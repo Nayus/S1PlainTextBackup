@@ -1182,3 +1182,35 @@ abema之前那个档期在播ネガポジアングラー，看起来似乎是十
 
 邦多利的幼驯染不至于走到这一步吧
 
+
+*****
+
+####  skives  
+##### 23793#       发表于 2024-10-4 11:14
+
+大家坐下来一起讨论丰川箱子的场景一定很有趣
+
+*****
+
+####  PDQ4  
+##### 23794#       发表于 2024-10-4 11:17
+
+漏油还真是会脑下头的东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+幼驯染性情大变，正常反应大抵是是她发生了什么/祥子就是祥子，本质是不会变的
+
+类似这种偏向正面的写法
+
+你变了我更喜欢过去的你/现在不是真正的你要把你变回去，这不一眼垫子的写法，给初祥？
+
+而且第八集已经是下定决心后的祥子了，照样和初华在一起能笑得很开心<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 23795#       发表于 2024-10-4 11:19
+
+动画结束时间点，四个人聚众开个丰川祥子黑历史披露会
+感觉非常适合pico
+小祥知道要红温了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

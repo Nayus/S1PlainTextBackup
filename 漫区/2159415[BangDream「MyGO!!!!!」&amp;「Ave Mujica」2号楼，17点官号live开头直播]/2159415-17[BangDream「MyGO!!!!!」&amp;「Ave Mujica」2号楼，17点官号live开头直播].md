@@ -1537,3 +1537,13 @@ mujica一个团队需要这么好嘛？不如说有点感觉是不是她们没�
 
 李子烤面包推特下面团建好好笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 23828#       发表于 2024-10-4 17:46
+
+听了下昨天的广播，高尾和李子有聊对邦，俩人很期待，然后提到鼓子这次没来，很想再见到
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">传说归传说，这是皇军的官方认证.jpg
+

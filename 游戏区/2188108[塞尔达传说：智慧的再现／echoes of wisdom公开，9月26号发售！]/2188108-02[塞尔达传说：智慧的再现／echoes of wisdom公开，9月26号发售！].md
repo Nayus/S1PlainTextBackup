@@ -295,3 +295,45 @@ BOSS是虚无里的原生生物吧，而托力是三女神创造的，
 
 没提过有复制能力。
 
+
+*****
+
+####  heseran  
+##### 1505#       发表于 2024-10-4 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66375905&amp;ptid=2188108" target="_blank">liekong 发表于 2024-10-4 21:40</a>
+
+BOSS是虚无里的原生生物吧，而托力是三女神创造的，
+
+其实我觉得托力（Tri）的特性接近三角力量，
+
+我个人 ...</blockquote>
+这么想好像也是哦
+
+
+*****
+
+####  liekong  
+##### 1506#       发表于 2024-10-4 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66375942&amp;ptid=2188108" target="_blank">heseran 发表于 2024-10-4 21:46</a>
+
+这么想好像也是哦</blockquote>
+其实我更在意三女神对空无多次破坏世界又重生的描述，
+
+在官网的访谈里，青沼说王泪之后为了理顺塞尔达系列的故事，
+
+还特意搞了三天集训，也就是可以认为智慧再现的故事设定至少是经过整个系列的整体考虑的，
+
+然后考虑到剧中：
+
+1、没有魔王加侬的传说
+
+2、出现魔王加侬形象是战败线的猪人
+
+3、魔王加侬被复制说明至少出现过而且被空无“学习”了
+
+那么智慧再现具体的时间线位置就很值得考量了，
+
+不排除战败线世界最终被空无破坏后又被三女神再造的可能性
+

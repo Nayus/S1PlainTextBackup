@@ -16,3 +16,13 @@
 金圈，剑阶，纲哥！！！！！！！！！！！！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没事，砍茨目巨爽，打进阶本谁用谁知道
 
+
+*****
+
+####  MuramasaSP  
+##### 46747#       发表于 2024-10-4 13:38
+
+？？80抽3个旺吉娜
+
+但是我只想要一个克里姆希尔德，一个也没有。
+

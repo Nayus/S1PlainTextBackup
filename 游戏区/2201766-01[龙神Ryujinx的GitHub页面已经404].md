@@ -2311,3 +2311,11 @@ cdpr和拉瑞安都是无加密方针，巫师三，2077，博得都是无加密
 虽然没人能证明盗版对正版销量有多大影响，但这年头PC上是个商业游戏都上D加密来看，厂商认为花十几几十万 ...</blockquote>
 D加密問世10年，目前D加密遊戲一共只有255款。
 
+
+*****
+
+####  wondor1111  
+##### 204#       发表于 2024-10-4 13:40
+
+蜗壳:你说d加密影响性能？我还不懂老钟吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

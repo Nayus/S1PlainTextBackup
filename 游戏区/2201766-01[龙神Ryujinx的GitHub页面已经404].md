@@ -1668,3 +1668,39 @@ pc 大把盗版也不影响 steam 正版销量，win 大把大把也不影响 ms
 
 —— 来自 HUAWEI BLA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  罗克萨斯  
+##### 148#       发表于 2024-10-4 07:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66371505&amp;ptid=2201766" target="_blank">BotRondo 发表于 2024-10-4 07:44</a>
+从古到今，哪个游戏 ip 是因为盗版泛滥而被取消的？盗版泛滥对于 ip 方甚至不一定是坏事，只有对于平台（发 ...</blockquote>
+对，所以应该号召所有人玩盗版，反正IP不会被取消，反而对厂商有益处<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  复杂梦境  
+##### 149#       发表于 2024-10-4 08:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66371497&amp;ptid=2201766" target="_blank">nozomitech 发表于 2024-10-4 07:37</a>
+
+传统的线上服务游戏如果比较热门仔仔细细想想似乎确实有，但我曾经玩过几年二游，都是耳熟能详的title， ...</blockquote>
+有人做的，玩网游有条件的架私服，玩手游没这条件的，比方说玩现在早停服不知道几年的小众日式手游的，也有四处找同好借账号凑全图鉴把美术资源扒出来留档，不如说把美术跟文本单独扒出来是手游这块主流的做法，只是以一个个手游专题站的形式存在的，这些网站会不会突然关闭那又是另一个问题了
+
+这不是没有需求没有呼声的问题，是不觉得自己玩了五年以上的游戏会停服，自己那堆数据都会在那时付诸东流，所以没想过要不要做这种准备的问题
+
+
+*****
+
+####  obiy  
+##### 150#       发表于 2024-10-4 08:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66371313&amp;ptid=2201766" target="_blank">moeblack 发表于 2024-10-4 04:03</a>
+我真没法客观看这事
+
+我真玩任天堂游戏</blockquote>
+散了吧，能看出掉帧在意掉帧的，根本就不是任天堂的目标客户<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

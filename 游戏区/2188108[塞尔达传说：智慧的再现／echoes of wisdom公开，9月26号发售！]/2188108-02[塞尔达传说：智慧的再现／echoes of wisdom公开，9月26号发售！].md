@@ -247,3 +247,20 @@
 @我在干什么啊 就像这样</blockquote>
 对，智杖里的和沙漏里的雪人族大差不差，我觉得就是同一种族，沙漏里的雪人族英文名叫Anouki，智杖里好像故意没提
 
+
+*****
+
+####  oldttt  
+##### 1502#       发表于 2024-10-4 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66374675&amp;ptid=2188108" target="_blank">煙空 发表于 2024-10-4 18:16</a>
+主線劇情沒什麼好說的，但在一些安排上能感受到用心
+
+像上面的幸福四葉草本身就是個平平無奇的清裂縫任務， ...</blockquote>
+我倒是挺喜欢雨林那些
+
+“同伴重要还是棉花糖重要？”
+对面舔着棉花糖陷入长考 挺逗的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

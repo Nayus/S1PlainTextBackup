@@ -3023,3 +3023,23 @@ PS：
 
 这就是长大么<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/19/ad1e594a1eb610cb5b0608cbfbd313d9/CMP_20241004193722024.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  里恩  
+##### 6222#       发表于 2024-10-4 19:44
+
+ 本帖最后由 里恩 于 2024-10-4 19:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66373703&amp;ptid=2160194" target="_blank">红魔馆的糖 发表于 2024-10-4 15:07</a>
+
+要是直接那这段当结尾而不是拿来凑羁绊剧情将是绝杀可惜换不得
+
+这段一起的小梦和铃的羁绊写的也挺好 ...</blockquote>
+内容是让剑女厨很爽，就是这种描写让我一点都不觉得剑女是个前任
+
+前任讲话不应该这样的，而是更自然一点，更亲近一点，这台词写得跟彼此不熟一样，生硬，如鲠在喉
+
+他们两在一起那段时间干什么？组队下副本吗？这根本是战友情！
+
+什么前任？鉴定为新，全新的新
+

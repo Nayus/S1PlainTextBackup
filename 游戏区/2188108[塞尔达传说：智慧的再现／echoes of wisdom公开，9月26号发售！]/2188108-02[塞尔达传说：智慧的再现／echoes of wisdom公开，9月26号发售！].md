@@ -18,3 +18,11 @@
 跑完火山和湿地迷宫之后，想应该回家休整一下顺便跟两位长辈唠两句再继续，接到幸福四叶草任务，很喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
 这作包括英帕的日记、房间里的猫讲的话都很温馨，家人侠表示满意
 
+
+*****
+
+####  tachikoma27  
+##### 1483#       发表于 2024-10-4 14:11
+
+没几个人谈为啥不是因为没人这么觉得<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">，这作音乐有啥问题吗，主题曲和几个种族的bgm都不错啊
+

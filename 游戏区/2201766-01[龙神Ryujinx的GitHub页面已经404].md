@@ -2319,3 +2319,11 @@ D加密問世10年，目前D加密遊戲一共只有255款。
 
 蜗壳:你说d加密影响性能？我还不懂老钟吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  karastar  
+##### 205#       发表于 2024-10-4 14:07
+
+游戏不好可以不玩不是只有玩盗版一条路<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

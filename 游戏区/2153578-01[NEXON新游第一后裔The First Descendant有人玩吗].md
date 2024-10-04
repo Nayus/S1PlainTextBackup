@@ -83,3 +83,17 @@ s1群怎么只有12个人<img src="https://static.saraba1st.com/image/smiley/fac
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  Andariel  
+##### 231#       发表于 2024-10-4 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66374926&amp;ptid=2153578" target="_blank">Yeelolo 发表于 2024-10-4 19:01</a>
+s1群怎么只有12个人话说有终极毒妈的获取方式了吗，不会还是尸块吧
+
+—— 来自 鹅球 v3.2.91 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还没有
+他要是想让终极皮多卖点最好搞得不要太复杂
+我记得很早制作组说过终极毒妈难度会难于终极水妹但是比终极兔子简单
+

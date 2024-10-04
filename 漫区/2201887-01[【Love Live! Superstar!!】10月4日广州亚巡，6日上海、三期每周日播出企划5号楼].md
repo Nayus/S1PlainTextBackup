@@ -531,3 +531,11 @@ ll有宅舞，女粉不少的
 
 live是真爽啊，就是想到明天的动画就有点头大
 
+
+*****
+
+####  Totokei  
+##### 53#       发表于 2024-10-5 05:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有同步中文版权的话那估计开演前看不上了，原本想了想被创完再去live应该很带感
+

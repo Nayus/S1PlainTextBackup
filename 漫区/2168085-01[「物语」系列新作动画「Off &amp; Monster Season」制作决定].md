@@ -225,3 +225,25 @@ tv版愚物语好像真的给剪成了25分钟的版本（包括ed）<img src="h
 <img src="https://p.sda1.dev/19/6a12de136782a5995bb45df639489f7c/yande.re 1195581 dress monogatari__series_ monogatari_series_off___monster_season nagata_hiroto oshino_shinobu pointy_ears summer_dress.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/19/b52d033ed88cb243c591557f9ac1e9da/yande.re 1197630 dress halloween heels loli monogatari__series_ monogatari_series_off___monster_season oshino_shinobu pointy_ears skirt_lift ura_takazumi wings.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 952#         楼主| 发表于 2024-10-5 00:08
+
+#12 忍物語 しのぶマスタード 其ノ肆
+
+第四の木乃伊が残した暗号の答えとともに、再び病院へ戻った暦。成果を報告し、次は伊豆湖の番だったが、彼女は浮かない表情をしていて――。
+
+脚本：大嶋実句
+
+絵コンテ：安食 圭
+
+演出：松村幸治
+
+作画監督：伊藤良明・高野晃久・清水勝祐・高橋みき・浅井昭人・宮嶋仁志・和田賢人
+<img src="https://p.sda1.dev/19/191b13895dddbfaa7f6e0aa6d80c26fe/story_3721_photo_1727945114107345713.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/6e55c6722a7ca2530a087f407382742b/story_3721_photo_1727945114370284743.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/a637fd1ad582be421c505b4ecf93dd0d/story_3721_photo_1727945114584461796.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/c71d72e4e84d8b9a6e71fabcc60fb9fd/story_3721_photo_1727945114843309195.jpg" referrerpolicy="no-referrer">
+

@@ -4784,3 +4784,11 @@ It takes about 80 hours to clear the story, or 100 hours with side activities
 不过这游戏迷宫也要一次性攻略么，mp根本不够用啊为什么技能和普攻伤害差这么 ...</blockquote>
 主角的法师职业可以无限打怪回MP，一次性打完理论上可行，嫌往返刷怪麻烦可以利用无限招怪那种晶石
 
+
+*****
+
+####  森兰丸  
+##### 1166#       发表于 2024-10-4 21:25
+
+看了最新的PV怎么还有ジャックフロスト啊<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+

@@ -2922,3 +2922,11 @@ PS：
 
 能进大少线的时候已经能刷羊了，别的都不用怎么刷，三个法师把诗配上，斯温随便混混也很好打了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nerugigannte  
+##### 6211#       发表于 2024-10-4 16:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">大少那个增益很好用，但前面大少线就四个人，一般增益完直接换下去的
+

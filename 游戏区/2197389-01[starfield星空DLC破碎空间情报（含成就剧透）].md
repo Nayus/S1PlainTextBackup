@@ -476,3 +476,11 @@ dlc好玩吗，终于有外星人敌人了不用打换皮星际土匪了？
 MC 54分，IGN 7
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这下又不用玩了
 
+
+*****
+
+####  nancygreenlife  
+##### 50#       发表于 2024-10-4 15:56
+
+电力鳄对这个DLC的评价非常高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

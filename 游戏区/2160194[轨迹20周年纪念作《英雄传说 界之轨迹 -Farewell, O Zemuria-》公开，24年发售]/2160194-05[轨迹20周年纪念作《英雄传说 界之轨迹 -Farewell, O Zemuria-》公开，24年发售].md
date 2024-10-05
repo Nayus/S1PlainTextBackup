@@ -3459,3 +3459,13 @@ PS5更新1.03了，微砍了刷波波
 
 黎恩可以无限S技也挺厉害得
 
+
+*****
+
+####  Squall25  
+##### 6260#       发表于 2024-10-5 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66380620&amp;ptid=2160194" target="_blank">benhawk 发表于 2024-10-5 17:31</a>
+那本作有战技通用套路嘛？感觉还是魔法强势</blockquote>
+战技其实就黎恩凯文魔鬼装那几个能输出，用其它的基本都会差一点。
+

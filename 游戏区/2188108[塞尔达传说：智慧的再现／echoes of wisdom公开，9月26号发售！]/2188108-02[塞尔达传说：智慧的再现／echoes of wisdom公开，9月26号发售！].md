@@ -772,3 +772,16 @@ BOSS是虚无里的原生生物吧，而托力是三女神创造的，
 
 感觉这一作没啥藏得很深的东西，教会老哥和右基将军给的信息都挺足的
 
+
+*****
+
+####  新HGCG  
+##### 1549#       发表于 2024-10-5 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66380572&amp;ptid=2188108" target="_blank">kuarwbwe 发表于 2024-10-5 17:24</a>
+
+准确说其实是三只。打迷宫前两只，打完沙漠和水迷宫以后还有一只加强版。
+
+—— 来自 鹅球 v3.1.91-alpha ...</blockquote>
+谢谢！
+

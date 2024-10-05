@@ -3097,3 +3097,89 @@ mujica里祥睦要么自救，要么靠别人救，而别人也只能是鸡团�
 mujica里祥睦要么自救，要么靠别人救，而别人也只 ...</blockquote>
 沒有官方欽定，但有大主播欽定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pipaopo  
+##### 23950#       发表于 2024-10-5 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66380866&amp;ptid=2159415" target="_blank">akiomn 发表于 2024-10-5 18:06</a>
+不是，祥睦是官方钦定的“半身”啊，素睦有官方钦定吗？
+mujica里祥睦要么自救，要么靠别人救，而别人也只 ...</blockquote>
+灯13集的歌是契科夫的枪，必然是要打出去的。灯写这歌前是灯素天桥谈话，素谈话时点出灯的歌也是她的呐喊。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+
+*****
+
+####  御幸一也  
+##### 23951#       发表于 2024-10-5 18:13
+
+怎麼了 樓友還想說祥子必然要靠燈拯救這種話嗎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+能不能別這麼典中典，也能不能把ave mujica看作是獨立的團而不是什麼附屬團
+
+*****
+
+####  66367749  
+##### 23952#       发表于 2024-10-5 18:13
+
+怎么又在素睦了，感觉像时光倒流，大主播影响力有这么强的吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+很讨厌有的万物皆可磕cp的环境，各种人际关系坍塌成铁暗恋or铁恋爱，不要官方觉得要我觉得
+
+*****
+
+####  御幸一也  
+##### 23953#       发表于 2024-10-5 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66380913&amp;ptid=2159415" target="_blank">66367749 发表于 2024-10-5 18:13</a>
+
+怎么又在素睦了，感觉像时光倒流，大主播影响力有这么强的吗
+
+很讨厌有的万物皆可磕cp的环境，各种人际关系 ...</blockquote>
+沒新情報樓友只能吵架了是這樣的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星空冻结  
+##### 23954#       发表于 2024-10-5 18:14
+
+睦的负罪感其实更像是对c团的，包括她会去看🐶团的live，帮soyo传话，天台给灯希信息，给狗团送黄瓜，不是只对某一个人。不过你要磕cp愿意上滤镜也不是不行，但是讨论剧情和人设最好别把cp脑带进来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 23955#       发表于 2024-10-5 18:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说了几次了，狗团的人顶多打打辅助。mygo里你看谁敢说是初华拯救了mygo？初华顶多就点醒了犹豫的灯，打个辅助
+现在说鸡团里让灯来救祥，素来救睦。剩下三个特别是初华当小丑是吧？这剧本就像是鸡团炸了，剩下三个屁用没有，最后救了祥睦的是本该当配角辅助位的狗团
+你直接说想把mujica变成mygo2不就得了
+
+*****
+
+####  PDQ4  
+##### 23956#       发表于 2024-10-5 18:16
+
+说到鸡狗，10.3那个广播有提到，高尾觉得鸡和狗如果形容，应该是"相反”
+
+这个相反包括哪些方面也挺值得考察的
+
+从小剧场来看，至少角色/乐队的主旨有可能是完全背道而驰的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  星空冻结  
+##### 23957#       发表于 2024-10-5 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66380896&amp;ptid=2159415" target="_blank">pipaopo 发表于 2024-10-5 18:11</a>
+灯13集的歌是契科夫的枪，必然是要打出去的。灯写这歌前是灯素天桥谈话，素谈话时点出灯的歌也是她的呐喊 ...</blockquote>
+那建议把祥的祝你幸福这个契科夫之枪也开一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 23958#       发表于 2024-10-5 18:16
+
+你刚看完动画吗？如果不是，这种说了一年多已经说烂了的东西能不能别再说了，喜欢轮回就去无尽轮回的地方
+

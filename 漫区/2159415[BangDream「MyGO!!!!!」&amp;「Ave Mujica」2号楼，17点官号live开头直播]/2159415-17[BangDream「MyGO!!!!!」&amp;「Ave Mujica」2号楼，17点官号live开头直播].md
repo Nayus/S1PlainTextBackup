@@ -2448,3 +2448,28 @@ soyo本身在于想要家一样的温暖存在，可以说缺爱小孩，她要�
 睦虽然是好孩子，但是也没那么热脸贴冷屁股，第八集之前，都是爽世主动去 ...</blockquote>
 給CCC最好的臨終關懷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  翼宿一  
+##### 23900#       发表于 2024-10-5 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66379761&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-10-5 14:40</a>
+
+感觉漏油还是铁暗恋二创入脑了
+
+睦虽然是好孩子，但是也没那么热脸贴冷屁股，第八集之前，都是爽世主动去 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 从剧情的角度理解是需要一个角色给爽世那边搭校园的戏吧，而且这堆前队友里爽世是精神状态最需要担忧的。所以我认为睦是有点圣母属性的（即便可能就是愧疚心驱动的），只是体现得最多的地方是在爽世和祥子身上（其他的人没有那么直接的互动，除了灯和立希在天台那场戏之外都没什么直接的互动），只是实在太不会说话所以帮不上忙
+
+*****
+
+####  星天观测  
+##### 23901#       发表于 2024-10-5 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66379807&amp;ptid=2159415" target="_blank">翼宿一 发表于 2024-10-5 14:51</a>
+
+从剧情的角度理解是需要一个角色给爽世那边搭校园的戏吧，而且这堆前队友里爽世是精神状态最需要担忧的 ...</blockquote>
+说实话我看了半天，感觉你对睦这个角色的理解和一些漏油的理解不太一样，你们似乎也不太能接受对方的说法
+
+或许你和跟你有同样看法的人来讨论会更愉快一些
+

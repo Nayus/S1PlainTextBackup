@@ -447,3 +447,14 @@ md本来都打算卖号了，结果发现号价已经亏到卖了我都嫌弃的
 
 c呆什么技能组，第二部的女同事就来碰瓷，还天天锁前排折磨人
 
+
+*****
+
+####  cenhr  
+##### 14881#       发表于 2024-10-5 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66382306&amp;ptid=2084912" target="_blank">zxc4563982 发表于 2024-10-5 21:33</a>
+
+c呆什么技能组，第二部的女同事就来碰瓷，还天天锁前排折磨人</blockquote>
+锁前排折磨人谁上都是垃圾。当年打下总国武藏这垃圾也是火大
+

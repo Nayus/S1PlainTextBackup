@@ -4725,3 +4725,29 @@ Ave Mujica几乎没有什么值得讨论的情报，最起码的，为什么一�
 虽说不能算黑工，这妥妥的灰色产业，泥邦那么阳光应该不可能搞这种，但是这种考虑猜想很欢乐多<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 比起打灰产工，我认为身份的反差才是想表达的，对比一下就很有戏剧性且有冲击力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 24087#       发表于 2024-10-5 21:56
+
+说到底你邦直接在动画说人家是收初三学生的黑心公司，真不怕被人送律师函吗，拉拉那边连借个门口拍原型都有争议的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 24088#       发表于 2024-10-5 21:57
+
+真挺欢乐多，搞点别的欢乐假药
+诓祐天寺的术话指不定是从这里学来的，我们鸡总指挥去灰产公司进修推销术话，拉到无数赞助
+
+*****
+
+####  玖羽  
+##### 24089#       发表于 2024-10-5 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66382446&amp;ptid=2159415" target="_blank">NODY 发表于 2024-10-5 21:56</a>
+
+说到底你邦直接在动画说人家是收初三学生的黑心公司，真不怕被人送律师函吗，拉拉那边连借个门口拍原型都有 ...</blockquote>
+公司是架空的（一栋楼只有这家公司是架空的），楼已经被拆了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

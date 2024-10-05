@@ -4879,3 +4879,34 @@ Ave Mujica几乎没有什么值得讨论的情报，最起码的，为什么一�
 
 属于是只能吃泡面和外带了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  玖羽  
+##### 24099#       发表于 2024-10-5 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66382777&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-10-5 22:58</a>
+
+而且，就这个房子展示的地方看也没有料理台或者适合料理的地方
+
+属于是只能吃泡面和外带了啊 ...</blockquote>
+我给你标一下吧
+
+（图是从这借的，但是他画的示意图不对：[https://tieba.baidu.com/p/8900637973](https://tieba.baidu.com/p/8900637973)）
+
+<img src="https://img.saraba1st.com/forum/202410/05/232400xlkturuv3tkwtt8d.jpg" referrerpolicy="no-referrer">
+
+<strong>001.jpg</strong> (146.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 23:24 上传
+
+<img src="https://img.saraba1st.com/forum/202410/05/232400wjgs1jl2ganjcqjb.jpg" referrerpolicy="no-referrer">
+
+<strong>002.jpg</strong> (230.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 23:24 上传
+

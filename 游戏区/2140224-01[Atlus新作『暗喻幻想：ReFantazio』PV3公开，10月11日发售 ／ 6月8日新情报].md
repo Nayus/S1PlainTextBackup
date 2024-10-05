@@ -5021,3 +5021,17 @@ C跟新；了，机板还没跟新.....
 
 这战斗 BGM 还是老辣且思路开阔，记忆点十足。
 
+
+*****
+
+####  黑修士  
+##### 1188#       发表于 2024-10-5 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66382146&amp;ptid=2140224" target="_blank">NEIN 发表于 2024-10-5 21:09</a>
+
+【由住持本良敬典先生演唱的《暗喻幻想：ReFantazio》歌曲！-哔哩哔哩】 https://b23.tv/k6Zs2d7
+
+还真是和 ...</blockquote>
+几个COS也不错
+[https://www.bilibili.com/video/BV16qsBebEai](https://www.bilibili.com/video/BV16qsBebEai)
+

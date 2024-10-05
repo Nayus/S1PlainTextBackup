@@ -121,3 +121,19 @@ niko哥两个月不打，应该也能起个沙鹰把把爆我头<img src="https:
 
 GGO 第一季感觉比较平均，在、但也坚持看完了，主要是抠 JD 出场、粉红恶魔声音和不可太郎表演，但结尾直接让本作升级为白月光，两个网上装萝莉的 JD 和 M 男经济人，太有想象空间了。
 
+
+*****
+
+####  没取名啊  
+##### 1894#       发表于 2024-10-5 23:23
+
+莲酱真可爱呀，脸蛋肉噗噗的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zechins  
+##### 1895#       发表于 2024-10-5 23:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人家那是运气好抽到了萝莉体型啦
+不知道这季能不能做到医疗器械那个短篇，比打枪比赛有意思
+

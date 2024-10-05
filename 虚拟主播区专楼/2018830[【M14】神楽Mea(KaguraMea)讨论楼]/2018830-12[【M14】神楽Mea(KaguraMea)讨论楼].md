@@ -585,3 +585,34 @@ www.amazon.co.jp/-/en/Wallhack-Professional-Special-Improved-Precision/dp/B0DCNS
 
 草 撞了一把
 
+
+*****
+
+####  千里夜雨  
+##### 17489#       发表于 2024-10-3 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66362721&amp;ptid=2018830" target="_blank">秋游刃 发表于 2024-10-2 18:58</a>
+有意思的来了，LOL方面的</blockquote>
+主要是想问问站点，看看黑猴(
+
+*****
+
+####  秋游刃  
+##### 17490#       发表于 2024-10-3 19:58
+
+ 本帖最后由 秋游刃 于 2024-10-3 20:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66368712&amp;ptid=2018830" target="_blank">千里夜雨 发表于 2024-10-3 19:43</a>
+
+主要是想问问站点，看看黑猴(</blockquote>
+
+黑猴官号有录播，就2期。其他录播，B站“录播姬death”也会录。然后楼里的楼友“shmilyhua”在B站上也会更新录播。
+
+如果是指以前那种自动录播上传的站点，至少我知道的都不再更新了。
+
+*****
+
+####  sino__unnko3  
+##### 17491#       发表于 2024-10-5 23:20
+
+什么vrchat雅撒西，前面聊了几句啥来着，学校电脑能不能玩撸撸？
+

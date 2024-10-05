@@ -3183,3 +3183,149 @@ mujica里祥睦要么自救，要么靠别人救，而别人也只 ...</blockquo
 
 你刚看完动画吗？如果不是，这种说了一年多已经说烂了的东西能不能别再说了，喜欢轮回就去无尽轮回的地方
 
+
+*****
+
+####  Aendst  
+##### 23959#       发表于 2024-10-5 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66380826&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-10-5 18:02</a>
+
+我觉得睦这个问题的关键是，睦的交际圈太小了，只有祥子和爽世，虽然被爽世疯狂PUA，但是祥子(黑)至少在表 ...</blockquote>
+mujica五个人一定都有各自的问题，但我不觉得需要特定的人去把某一个角色带出某种状态
+
+访谈多次暗示的类似一丘之貉和共犯的关系，我个人觉得与其说是某一个人救了另一个人，不如说有可能会变成“大家都在一起互相舔舐伤口，大家一起被这个群体所救”，也可以对应访谈提到的“ave mujica是光”
+
+不去改变客观现状也可以，能够找到一时解脱的方法也是可行的
+
+睦的人偶状态本身就是未知的，也能看到一些日本人的假药有提及“睦小时候就被当做人偶，是当时的祥子把这件事否定了”这种设想，如果这是剧本确实要写的，那么在mujica中否定她人偶状态的依旧可能会是祥子
+
+情景就可能会变成睦和祥子二人的状态一起发生改变，但祥子只是阶段性地改变了一小部分，还需要其他成员进一步继续改变她
+
+可能性有太多太多，现在情报不足也只能单纯的猜测
+
+睦祥的目前最关键的无非是访谈实锤的①脚本上为了让睦共担祥子的责任而说出玩乐队不开心②祥子对睦来说如半身般重要
+
+确实能够发现，这两个都是睦对祥子的态度，而祥子对睦的态度不明
+
+但反过来说，在箭头如此明显的情况下让祥子疏离睦，观感上无法想象会变成什么样
+
+初华也是同理，在箭头如此明显的情况下，让祥子疏离初华，同样也非常难以向好的方向想象
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|思路广|
+
+查看全部评分
+
+*****
+
+####  pipaopo  
+##### 23960#       发表于 2024-10-5 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66380923&amp;ptid=2159415" target="_blank">akiomn 发表于 2024-10-5 18:15</a>
+说了几次了，狗团的人顶多打打辅助。mygo里你看谁敢说是初华拯救了mygo？初华顶多就点醒了犹豫的灯，打个辅 ...</blockquote>
+灯这歌写出来就就会唱出来，从平衡角度来说鸡团有狗团的歌也才平衡，既然唱出来的但这歌又不是和ave mujica那样剧情弱关联，那只能是和饺子歌了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+
+*****
+
+####  akiomn  
+##### 23961#       发表于 2024-10-5 18:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png">说mujica里灯救祥，素救睦，这观点别说泥楼，放隔壁泥潭那个专楼都得被攻击，这是mujica篇不是mygo第二季
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  星天观测  
+##### 23962#       发表于 2024-10-5 18:20
+
+懂了，是不是下一步要开始算出场时间了，看看为了平衡鸡要还多少分多少秒才行
+
+*****
+
+####  御幸一也  
+##### 23963#       发表于 2024-10-5 18:22
+
+哎呀 說半天結果是惦記在mygo裡ave佔了時間嘛 好典<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+讓我看看狗粉去年清算的時候ave mujica欠了多少哈
+
+*****
+
+####  pipaopo  
+##### 23964#       发表于 2024-10-5 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66380953&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-10-5 18:20</a>
+懂了，是不是下一步要开始算出场时间了，看看为了平衡鸡要还多少分多少秒才行 ...</blockquote>
+说平衡只是辅助论点，就算没平衡一事，从剧本的完整角度来说灯的歌也不会没下文
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  PDQ4  
+##### 23965#       发表于 2024-10-5 18:23
+
+鸡因为在狗里出场的原罪，已经空窗了一年多了，这个惩罚还不够吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 23966#       发表于 2024-10-5 18:25
+
+這是アニメ新シリーズave mujica，不是mygo第二季，
+
+非要當作mygo第二季看的話，我覺得除了S1有其他更適合你的論壇<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星空冻结  
+##### 23967#       发表于 2024-10-5 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66380974&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-10-5 18:23</a>
+鸡因为在狗里出场的原罪，已经空窗了一年多了，这个惩罚还不够吗</blockquote>
+你🐔又拖了🐶手游的活动，罪加一等<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  桜庭千景  
+##### 23968#       发表于 2024-10-5 18:27
+
+其实你漏不是第一页就是访谈内容么，感觉看一遍能减少90%的初刷疑惑，该不会很多人看完动画就直接点回复了吧
+
+*****
+
+####  skives  
+##### 23969#       发表于 2024-10-5 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66380967&amp;ptid=2159415" target="_blank">pipaopo 发表于 2024-10-5 18:23</a>
+说平衡只是辅助论点，就算没平衡一事，从剧本的完整角度来说灯的歌也不会没下文
+
+—— 来自 鹅球 v3.2.91 ...</blockquote>
+那首歌从歌词出发就不可能有多高的剧情地位
+无非就是情感的表达 完全解决不了祥子面对的真正的问题
+最抽象的一点就是 如果让立希来作曲 那又是一个地狱笑话<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+看好最后仅仅是把笔记本交给祥子 根本不会出现成品的歌曲
+

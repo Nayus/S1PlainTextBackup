@@ -774,3 +774,11 @@ steam页面
 
 居然把光标改成小人了？<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  嘉术2015  
+##### 705#       发表于 2024-10-5 19:58
+
+pv还行，就是小人移动有点难绷，史诗感一下子就没了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

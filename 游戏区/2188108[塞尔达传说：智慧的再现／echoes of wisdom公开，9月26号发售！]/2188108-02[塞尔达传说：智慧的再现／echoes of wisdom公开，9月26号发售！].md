@@ -836,3 +836,28 @@ MC开分还以为拉了，没想到还是符合我年度游戏的预期<img src=
 
 前中期体验提升神技：坠眼怪+变成林克跳上去
 
+
+*****
+
+####  冷泉夜月  
+##### 1555#       发表于 2024-10-5 19:59
+
+ 本帖最后由 冷泉夜月 于 2024-10-5 20:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66380958&amp;ptid=2188108" target="_blank">downnote 发表于 2024-10-05 18:22:09</a>
+
+有了探测器，但地图比较大遍历一遍还是蛮花时间的，因为是全收集只能遍历，不太好通过观察地图来得到需要探 ...</blockquote>
+其实就是四个种族都各有一个通完本地迷宫后的精英怪任务，格鲁德相当于是王拉吉克，卓拉是妈妈大水母，鼓隆是熔岩巨人，德库果是卷土重来的带电云，各给一个心之碎片<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  TriSPD  
+##### 1556#       发表于 2024-10-5 20:03
+
+<blockquote>一个陆仁贾 发表于 2024-10-5 09:33
+看视频瞌睡道场的boss连战极居然可以到5分钟以内，就是需要背版boss位置。流程里面最久的果然是火龙
+
+——  ...</blockquote>
+火龙太坑了，有几个位置不能招蜥蜴战神，血厚得一批，发剑气剑都要掉皮了
+

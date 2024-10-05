@@ -4536,3 +4536,97 @@ Ave Mujica几乎没有什么值得讨论的情报，最起码的，为什么一�
 
 我在日本留学的时候，1个月六七万都过过，还要付每月3w的房租（）没钱也有没钱的过法，16w养自己和酒鬼老爸我觉得是够的。
 
+
+*****
+
+####  星天观测  
+##### 24068#       发表于 2024-10-5 21:25
+
+啊这样吗，那是我不太清楚了，语言学校好像有一个月花的很少的人，但基本都是那种白天不去上课晚上去工厂打黑工来的<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  pipaopo  
+##### 24069#       发表于 2024-10-5 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66382091&amp;ptid=2159415" target="_blank">uhiuk 发表于 2024-10-5 21:02</a>
+这样说的话对应的地方早就出现了吧，初华拉住差点摔下台阶的灯那里就是。后面同样看了笔记本认为是歌词， ...</blockquote>
+这个对应确实也能说通，其实我是觉得在解释mortis的代号会提到
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  skives10  
+##### 24070#       发表于 2024-10-5 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66382108&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-10-5 21:04</a>
+祥子打工的公司是中间那家“株式会社ミネラル天然ライフ”（矿泉天然生活），一家天然水包月配送上门公司 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这剧情才是最不邦邦的吧
+
+*****
+
+####  Aendst  
+##### 24071#       发表于 2024-10-5 21:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">所以目前暂时不认为祥子是打工超人
+
+总感觉会变成奇怪的打黑工故事
+
+贴补家用程度应该是有的，但是应该不至于养自己和爹还要付房租
+
+打工这么努力要养爹，爹还非要喝asahi经典款这也挺迷惑的<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  玖羽  
+##### 24072#       发表于 2024-10-5 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66382134&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-10-5 21:07</a>
+
+我之前估算了一下假设每天都打工差不多就是16w日元左右，大概和漏油算的差不多（我预估的客服时薪要低一点 ...</blockquote>
+你们不能这么算，这种打工不是光看时薪的，完成一单有提成
+
+我在日本求职网站上找了一下，有一家比较接近（也是配送天然水的，在涩谷）：[https://townwork.net/viewjob/job ... uTF5dAf5L0MbzkdCdPP](https://townwork.net/viewjob/jobid_6f7d607e3808dfde/?jbRsltTrackingKey=5-nrt1-0-1i9ed67qbh13g800-6f7d607e3808dfde--SoAY6_M37uSXKzQ87Z0JbzkdCdPP&amp;betsKey=SoAz6_I37uTF5dAf5L0MbzkdCdPP)
+
+时薪1300日元以上，不需要工作经验，工作时间弹性很大（是的，看着就很可疑）
+ <blockquote>≪≪未経験でも日給1.5万円も実現可能　自分の頑張りによる結果で、どんどんと稼ごう♪≫≫
+
+アルバイトで正社員以上にお金を稼ぎながら販売スキル・営業スキルも身に着けることができます！
+
+給与例）
+
+例1）土日祝日出勤のみ、1日8時間勤務、月収12万円
+
+例2）土日祝メイン＋平日　20日出勤　34万円
+
+例3）平日2日・土日祝日出勤、1日の稼働時間6時間、月収18万円
+
+※下記の表記は時給とは別に歩合を含めた金額です。<strong>（包含提成）</strong>
+
+時給とは別途で販売実績に応じた歩合制度があります。<strong>（有提成）</strong></blockquote>
+
+*****
+
+####  星天观测  
+##### 24073#       发表于 2024-10-5 21:32
+
+我也觉得大概补贴家用或者自己的零花钱的程度了，养活自己和老爹有点超神
+
+以及asahi经典款有点难喝
+
+*****
+
+####  ytttsuuuba  
+##### 24074#       发表于 2024-10-5 21:33
+
+完全不需要打黑工啊。超市一般晚上过9点会有超级折扣便当卖，袋装咖喱炒面这些便宜的更是才几十日元，大盒牛奶才200日元左右，超市鸡蛋也便宜，还有超便宜饭团，冷冻鸡肉也是便宜的惊人。六万真能过，一个月6w多过了好几个月，打工就正常便利店，时薪900这样，但因为要上课所以排班少，一个月差不多到手就6w。
+
+*****
+
+####  ytttsuuuba  
+##### 24075#       发表于 2024-10-5 21:35
+
+按照我个人经验来讲，16w那真的是豪华待遇了，养活老爹和自己绰绰有余。不过酒鬼父亲地上那么多酒瓶，估计自己也有点钱，祥子不可能给他提供酒钱。
+

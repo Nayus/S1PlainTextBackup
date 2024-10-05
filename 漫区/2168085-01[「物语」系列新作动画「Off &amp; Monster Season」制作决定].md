@@ -247,3 +247,19 @@ tv版愚物语好像真的给剪成了25分钟的版本（包括ed）<img src="h
 <img src="https://p.sda1.dev/19/a637fd1ad582be421c505b4ecf93dd0d/story_3721_photo_1727945114584461796.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/19/c71d72e4e84d8b9a6e71fabcc60fb9fd/story_3721_photo_1727945114843309195.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oi99o  
+##### 953#       发表于 2024-10-5 21:29
+
+<img src="https://img.saraba1st.com/forum/202410/05/212939an44phbmmn17q5m5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (105.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 21:29 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

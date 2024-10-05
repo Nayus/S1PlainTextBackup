@@ -1883,3 +1883,83 @@ mujica一个团队需要这么好嘛？不如说有点感觉是不是她们没�
 
 破案了，原来爽世是铁血睦祥厨，默认找到其中一个另一个自动跟随<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 23858#       发表于 2024-10-5 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66379224&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-10-5 13:01</a>
+ 致命的信息差是，睦没告诉祥子爽世想复活Crychic，祥子在第八集以前一直以为爽世想组一个新乐队 所以祥子 ...</blockquote>
+这里祥子歪屁股的味儿也挺足的，明明是睦搞得信息差让她误解，结果她最后还是在骂爽世<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 23859#       发表于 2024-10-5 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66379228&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-10-5 13:02</a>
+
+破案了，原来爽世是铁血睦祥厨，默认找到其中一个另一个自动跟随</blockquote>
+爽世这么想很正常，Crychic本来就是祥子以一己之力组起来的
+
+关键是，这里还有一个信息差，爽世一直觉得祥子退团只是因为（某些她不知道的原因）闹别扭，只要好好谈一次，凭她的话术肯定能把祥子谈回来，她所有的打算都是以这个认知为基础的
+
+*****
+
+####  翼宿一  
+##### 23860#       发表于 2024-10-5 13:08
+
+<blockquote>Aendst 发表于 2024-10-5 12:13
+漏油的说法有个误区。实际上睦自始至终就没站过爽世，也不怎么在乎爽世怎么看自己，最后那句的可能性是完 ...</blockquote>
+睦还是挺容易被裹挟的，不问她真实想法的话她就是任爽世/祥子拿捏的，所以才被爽世抓着当了半季的传声筒。这方面反而是祥子更尊重她，即便是她站爽世也不会像现在的爽世那样搞她吧。
+
+虽然没什么笔墨，但睦还是挺有意思一个人，虽然当初是当了压死骆驼的最后一根稻草，但直到乐队都凑不起来了才走，而且也是解散后唯一还愿意被爽世折腾的倒霉鬼，就是下场实在太挺了。
+
+*****
+
+####  玖羽  
+##### 23861#       发表于 2024-10-5 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66379253&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-10-5 13:06</a>
+
+这里祥子歪屁股的味儿也挺足的，明明是睦搞得信息差让她误解，结果她最后还是在骂爽世 ...</blockquote>
+那没办法，祥子自己说的不要做传话筒<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">，而且那个时候她对爽世的偏见已经很大了，不会在意这种细节
+
+
+*****
+
+####  Aendst  
+##### 23862#       发表于 2024-10-5 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66379260&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-10-5 13:07</a>
+
+爽世这么想很正常，Crychic本来就是祥子以一己之力组起来的
+
+关键是，这里还有一个信息差，爽世一直觉得 ...</blockquote>
+是这样，比起其他人她更拘泥于祥子也有这个原因在
+
+因此也更能看出来她真正在意的并不是祥子个人而是crychic这个团
+
+因为在意crychic，所以需要逃课去找作为核心的祥子来解决所有问题
+
+因为只在意crychic，所以并不关心祥子到底发生了什么，也导致她的计策完全失败，从一开始就注定是竹篮打水一场空
+
+*****
+
+####  PDQ4  
+##### 23863#       发表于 2024-10-5 13:13
+
+那毕竟都开盒到校门口了，自己说的话爽世是一句都没信，脾气再好的人被三番五次纠缠也很难有好脸色
+还有个盲盒在于爽世在中间一年的空窗期到底有没有stk
+之前讨论是忙中考，也可能爽姐想的是一年了祥子别扭也闹完了，应该没事了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  uhiuk  
+##### 23864#       发表于 2024-10-5 13:13
+
+<blockquote>翼宿一 发表于 2024-10-5 13:08
+睦还是挺容易被裹挟的，不问她真实想法的话她就是任爽世/祥子拿捏的，所以才被爽世抓着当了半季的传声筒 ...</blockquote>
+说是被裹挟不如说她本就有意想要弥补些什么。
+

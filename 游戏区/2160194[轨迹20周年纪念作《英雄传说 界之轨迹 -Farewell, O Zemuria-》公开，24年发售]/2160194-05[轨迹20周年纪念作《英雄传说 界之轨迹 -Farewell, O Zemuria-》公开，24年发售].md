@@ -3367,3 +3367,16 @@ PS5更新1.03了，微砍了刷波波
 闪1闪2、闪3闪4都是一年间隔，只有闪2闪3中间隔得久</blockquote>
 真要是一年出感觉不是啥好事啊..
 
+
+*****
+
+####  windtrack_qh  
+##### 6251#       发表于 2024-10-5 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66379355&amp;ptid=2160194" target="_blank">lxshhh 发表于 2024-10-5 13:23</a>
+
+真要是一年出感觉不是啥好事啊..</blockquote>
+照界1这个完成度看我觉得界2核心剧情应该也都写完了，建模场景肯定90%复用，做几个新迷宫差不多了
+
+剩下的主要就是填料工作，赶一赶进度问题不大
+

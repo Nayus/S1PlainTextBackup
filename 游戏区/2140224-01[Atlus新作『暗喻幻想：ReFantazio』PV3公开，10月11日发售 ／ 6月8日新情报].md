@@ -4878,3 +4878,16 @@ It takes about 80 hours to clear the story, or 100 hours with side activities
 
 C跟新；了，机板还没跟新.....
 
+
+*****
+
+####  索非亚  
+##### 1174#       发表于 2024-10-5 13:31
+
+刚打完Demo吐槽一下
+1，设定写的是变身，但实际游戏的时候还是P那套技能时换形态。这点最是不爽，一整个换皮P，就不能单独整一个变身系统么？
+2，MAG设定肉眼不可见粒子，结果主城一屏幕都是，是想体现天气差异？就呆主城那3天没感觉太大差异。
+3，跑动的速度线和对话框的动态特效希望正式版能关，太难受了。
+4，有必要绕路么<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/381fa7ef3d05bf2caefedbd3b10b031f/image.jpg" referrerpolicy="no-referrer">
+

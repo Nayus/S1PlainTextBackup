@@ -2760,3 +2760,109 @@ soyo也没跟睦说她跟祥子说了什么，睦大概不确定祥子知不知�
 
 另外海铃对立希的箭头上那句话可不是台词
 
+
+*****
+
+####  御幸一也  
+##### 23924#       发表于 2024-10-5 17:38
+
+唉 還是那句話 怎麼都2024年了還在嘴硬鐵暗戀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 23925#       发表于 2024-10-5 17:39
+
+ 本帖最后由 Aendst 于 2024-10-5 17:40 编辑 
+
+不嘴硬还怎么嗑官方疯了一样打脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还能怎么办呢
+
+*****
+
+####  uhiuk  
+##### 23926#       发表于 2024-10-5 17:41
+
+抛开负罪感不谈，睦站祥子那边难道不是因为对方是自己从小到大的幼驯染外加知道对方现在的境遇的关心和保护行为吗
+
+*****
+
+####  pipaopo  
+##### 23927#       发表于 2024-10-5 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66380646&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-10-5 17:35</a>
+我以前也在泥漏看到过一个突然冒出来的漏油大喊“访谈图一乐”
+
+箭头含义绫奈自己解释过，不同色的箭头那确 ...</blockquote>
+不是台词也是第十集的互动，拿这个只能说第十集发生了什么
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  Aendst  
+##### 23928#       发表于 2024-10-5 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66380685&amp;ptid=2159415" target="_blank">pipaopo 发表于 2024-10-5 17:41</a>
+
+不是台词也是第十集的互动，拿这个只能说第十集发生了什么
+
+—— 来自 鹅球 v3.2.91 ...</blockquote>
+你继续，我在听<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 23929#       发表于 2024-10-5 17:45
+
+ 本帖最后由 Aendst 于 2024-10-5 17:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66380684&amp;ptid=2159415" target="_blank">uhiuk 发表于 2024-10-5 17:41</a>
+
+抛开负罪感不谈，睦站祥子那边难道不是因为对方是自己从小到大的幼驯染外加知道对方现在的境遇的关心和保护 ...</blockquote>
+对祥子有负罪感是一定的
+
+但是很多人真的不知道为什么看不到持续数话被绫奈提及的双向幼驯染箭头，看不到绫奈自己嗑的关系里睦祥那一长串码
+
+幼驯染三个字足以说明某种密切的关系性，其本身就是一种特殊关系
+
+即使不去讨论睦到底出于何种动机站在祥子那边，但至少行为上睦自始至终都站祥子
+
+这是她自己做出来的选择，是自愿的，是自主的
+
+楼下漏油提到了那我也补充一下
+
+“半身”就是官方认证的，祥子对睦来说无比重要也绝对无法替代的证明，是特殊的
+
+*****
+
+####  御幸一也  
+##### 23930#       发表于 2024-10-5 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66380684&amp;ptid=2159415" target="_blank">uhiuk 发表于 2024-10-5 17:41</a>
+
+抛开负罪感不谈，睦站祥子那边难道不是因为对方是自己从小到大的幼驯染外加知道对方现在的境遇的关心和保护 ...</blockquote>
+可能一些人眼裡只要都是負罪感導致的，就是平平又等等
+
+半身幼馴染？嗯嗯嗯 不如同班同學的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pipaopo  
+##### 23931#       发表于 2024-10-5 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66380684&amp;ptid=2159415" target="_blank">uhiuk 发表于 2024-10-5 17:41</a>
+抛开负罪感不谈，睦站祥子那边难道不是因为对方是自己从小到大的幼驯染外加知道对方现在的境遇的关心和保护 ...</blockquote>
+目前是未确认的，不过片里这么多关于名字的暗示，素世改名，13集喵梦那串母子，初子等，没准丰川祥子即不丰川也不祥子
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  御幸一也  
+##### 23932#       发表于 2024-10-5 17:47
+
+噴了，鼓手也有主唱夢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+[https://x.com/AkaneY_banu/status/1842501689020182703](https://x.com/AkaneY_banu/status/1842501689020182703)
+
+還有劉海的米澤好可愛<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

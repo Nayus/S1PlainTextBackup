@@ -3329,3 +3329,129 @@ mujica五个人一定都有各自的问题，但我不觉得需要特定的人�
 最抽象的一点就是 如果让立希来作曲 那又是一个地狱笑话<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 看好最后仅仅是把笔记本交给祥子 根本不会出现成品的歌曲
 
+
+*****
+
+####  PDQ4  
+##### 23970#       发表于 2024-10-5 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66380983&amp;ptid=2159415" target="_blank">星空冻结 发表于 2024-10-5 18:25</a>
+
+你🐔又拖了🐶手游的活动，罪加一等</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">wsdsb不愿意水活动的锅也要洗脚婢来承担吗，太黑暗了吧
+
+*****
+
+####  akiomn  
+##### 23971#       发表于 2024-10-5 18:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">提一嘴，隔壁泥潭有投过mujica播出后祥子cp的票，最高的是初祥，其次睦祥，第三是爱祥（纯整蛊来的）灯祥和喵祥坐一桌
+虽然想看金毛败犬的人不少，但用脑袋想都知道鸡团要卖cp肯定优先初祥睦祥，想看跨团cp去看海希。（当然队内为了配平，难保要卖一口海喵）
+
+*****
+
+####  skives  
+##### 23972#       发表于 2024-10-5 18:30
+
+听完某首歌就被拯救了 这个逻辑本身就是很变态的 
+至于soyo 
+那是亲身参与了诗超绊 
+和廉价的听到一首歌就坐地成佛是两种概念
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  星天观测  
+##### 23973#       发表于 2024-10-5 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66380967&amp;ptid=2159415" target="_blank">pipaopo 发表于 2024-10-5 18:23</a>
+
+说平衡只是辅助论点，就算没平衡一事，从剧本的完整角度来说灯的歌也不会没下文
+
+—— 来自 鹅球 v3.2.91 ...</blockquote>
+你想要什么下文，你都说歌了，谁唱？灯？谁弹吉他？爱音？睦？猫？谁打鼓？立希？喵梦？
+
+要不直接帮你快进到c团复活你看怎么样
+
+
+*****
+
+####  uhiuk  
+##### 23974#       发表于 2024-10-5 18:34
+
+ 本帖最后由 uhiuk 于 2024-10-5 18:35 编辑 
+
+一会没看原来话题已经变了。
+
+拯救这词放在这不是突出描述双方地位的不对等吗，也可能是我get不到灯祥。灯给我的感觉不像是要拯救祥子而是得到祥子的认可，连用的方法都是曾经祥子认可过的“灯的歌就是心灵的呐喊”
+
+*****
+
+####  akiomn  
+##### 23975#       发表于 2024-10-5 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66381019&amp;ptid=2159415" target="_blank">skives 发表于 2024-10-5 18:30</a>
+听完某首歌就被拯救了 这个逻辑本身就是很变态的 
+至于soyo 
+那是亲身参与了诗超绊 </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">何止是变态，用屁股想都觉得逻辑不对
+祥子快爆炸了，然后灯想唱歌给祥子听？但是这状态的祥子没理由去听狗团的歌啊，总不能把祥子绑了听歌吧？
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  PDQ4  
+##### 23976#       发表于 2024-10-5 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66380999&amp;ptid=2159415" target="_blank">skives 发表于 2024-10-5 18:27</a>
+
+那首歌从歌词出发就不可能有多高的剧情地位
+
+无非就是情感的表达 完全解决不了祥子面对的真正的问题
+
+最抽 ...</blockquote>
+别cue立希了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+那首歌本来就是灯爽两个人对谈后有感而发
+
+考虑逻辑大概率是ccc虽然散了，但是我们得到了很多，轰动泥阿里嘎多这种
+
+而且歌词本没有送出去（传达出去），之后就是爱灯水族馆告白，虽然没有传达给祥子，但是传达给了爱音
+
+相比于让祥子接本，立希怎么参与灯爽两个人的交心play确实更难一些，不知道会不会提，总不至于你c往事总是四缺一吧<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pipaopo  
+##### 23977#       发表于 2024-10-5 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66381027&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-10-5 18:32</a>
+你想要什么下文，你都说歌了，谁唱？灯？谁弹吉他？爱音？睦？猫？谁打鼓？立希？喵梦？
+
+要不直接帮你快 ...</blockquote>
+可能性太多了，不过及时是灯的歌换成信，谁会写剧本写写角色写送一封信没送出去，这信也不知道写了什么，之后扔垃圾桶没下文了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

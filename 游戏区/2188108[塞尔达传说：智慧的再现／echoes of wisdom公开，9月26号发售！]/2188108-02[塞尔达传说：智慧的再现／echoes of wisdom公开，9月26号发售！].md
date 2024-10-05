@@ -741,3 +741,34 @@ BOSS是虚无里的原生生物吧，而托力是三女神创造的，
 沙漠里的蜈蚣虫有两条？</blockquote>
 左右两边一只
 
+
+*****
+
+####  liekong  
+##### 1546#       发表于 2024-10-5 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66380514&amp;ptid=2188108" target="_blank">新HGCG 发表于 2024-10-5 17:15</a>
+沙漠里的蜈蚣虫有两条？</blockquote>
+会刷新的吧，我的话确实干掉了两条
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  kuarwbwe  
+##### 1547#       发表于 2024-10-5 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66380514&amp;ptid=2188108" target="_blank">新HGCG 发表于 2024-10-5 17:15</a>
+沙漠里的蜈蚣虫有两条？</blockquote>
+准确说其实是三只。打迷宫前两只，打完沙漠和水迷宫以后还有一只加强版。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  就是剑鞘  
+##### 1548#       发表于 2024-10-5 17:26
+
+感觉这一作没啥藏得很深的东西，教会老哥和右基将军给的信息都挺足的
+

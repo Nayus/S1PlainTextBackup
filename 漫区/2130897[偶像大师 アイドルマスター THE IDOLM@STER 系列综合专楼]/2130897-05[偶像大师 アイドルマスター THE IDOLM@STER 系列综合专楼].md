@@ -2428,3 +2428,22 @@ shhis和卢卡真不该是你这混账动画做出来
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">下午闪彩6.5live，该忘掉动画来看了
 
+
+*****
+
+####  wfhtony  
+##### 6500#       发表于 2024-10-5 17:21
+
+11. NEO THEORY FANTASY // アンティーカ（＊演出中希水的麥克風有問題）
+
+15. 夢咲きAfter school // 放課後クライマックスガールズ（＊本曲的C位爲 丸岡和佳奈）
+
+*****
+
+####  鳄鱼头  
+##### 6501#       发表于 2024-10-5 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66379911&amp;ptid=2130897" target="_blank">萩原组土狼p 发表于 2024-10-5 15:15</a>
+问问超越百万和cg了么</blockquote>
+敢情这是大逆转裁判1+2是吧
+

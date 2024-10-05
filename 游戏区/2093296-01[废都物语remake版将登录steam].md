@@ -935,3 +935,13 @@ pv还行，就是小人移动有点难绷，史诗感一下子就没了<img src=
 
 2024-10-6 02:29 上传
 
+
+*****
+
+####  xiaosayang  
+##### 722#       发表于 2024-10-6 02:55
+
+虽然新放出的pv一般
+
+不过愿意实际行动推广原作的集美，在我这的声望等级还是比只会在网络上捕风捉影意淫唱衰的云开发哥高一点<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

@@ -2300,3 +2300,75 @@ mygo才是爽世真正的归宿，爱音才是能帮到爽世，和她相性最�
 
 ansy不愧是制作组全体（至少监督系构和分镜都在访谈直球明说过）都相当喜欢的组合，确实能看出用心之处和一些巧思
 
+
+*****
+
+####  翼宿一  
+##### 23889#       发表于 2024-10-5 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66379503&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-10-5 13:47</a>
+
+貌合神离还是太美化了
+
+是爽世先天性天真的以为一定会成功，所以给所有人上了滤镜
+
+只想着自己，其他人的意 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 原先就已经很地雷妹乐队了，要是这样操作缝合回来那得变核弹妹乐队吧……在看本篇前就被二创铺天盖地刷过屏了，当时觉得祥子是个过分的人，看完之后倒是觉得爽世挺活该，既不尊重前乐队也不尊重现乐队更不尊重其他成员。睦在这前提下还愿意陪她估计也算是爱音之下最有包容心的角色了（虽然对面完全不领情）
+
+
+*****
+
+####  Aendst  
+##### 23890#       发表于 2024-10-5 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66379698&amp;ptid=2159415" target="_blank">翼宿一 发表于 2024-10-5 14:28</a>
+
+原先就已经很地雷妹乐队了，要是这样操作缝合回来那得变核弹妹乐队吧……在看本篇前就被二创铺天盖地刷 ...</blockquote>
+到底哪看出来的睦愿意<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+睦听爽世讲话都把全剧内能找到的最臭的表情摆出来了
+
+*****
+
+####  玖羽  
+##### 23891#       发表于 2024-10-5 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66379629&amp;ptid=2159415" target="_blank">相坂君 发表于 2024-10-5 14:13</a>
+
+那样多少变成《重生之长崎爽世》类的爽文
+
+soyo本身在于想要家一样的温暖存在，可以说缺爱小孩，她要是能想 ...</blockquote>
+长期爽食导致的（无误
+
+爽世自从进入月之森以来的经验就是，夹和和稀泥能解决一切问题，她在Crychic和MyGO夹的时候也从来不考虑解决问题，都是和稀泥
+
+因为月之森这种地方根本碰不到什么真正的矛盾，所有问题说穿了都是大小姐那点别扭，她又把自己的需求放得那么低，只要在表面上维持其乐融融的氛围就不会出现麻烦
+
+她想的把祥子劝回来，无非也是先把自己放得很低承认一切错误（虽然不知道是什么错误），然后和稀泥，大家就能继续过家家
+
+所以一旦发现夹和和稀泥无效，她就会不知所措，乃至崩溃
+
+这个毛病是被爱音治好的，这也是她们的CP感格外强的原因之一
+
+*****
+
+####  Aendst  
+##### 23892#       发表于 2024-10-5 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66379713&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-10-5 14:31</a>
+
+长期爽食导致的（无误
+
+爽世自从进入月之森以来的经验就是，夹和和稀泥能解决一切问题，她在Crychic和MyG ...</blockquote>
+社交面具还是太好用了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">甚至形成了路径依赖
+
+*****
+
+####  御幸一也  
+##### 23893#       发表于 2024-10-5 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66379698&amp;ptid=2159415" target="_blank">翼宿一 发表于 2024-10-5 14:28</a>
+
+原先就已经很地雷妹乐队了，要是这样操作缝合回来那得变核弹妹乐队吧……在看本篇前就被二创铺天盖地刷 ...</blockquote>
+哇哦 被pua的人是“自願”的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 真是太願願又意意了
+

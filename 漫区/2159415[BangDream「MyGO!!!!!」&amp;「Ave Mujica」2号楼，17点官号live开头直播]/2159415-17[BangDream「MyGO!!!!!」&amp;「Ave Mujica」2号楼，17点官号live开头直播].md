@@ -3515,3 +3515,88 @@ mujica五个人一定都有各自的问题，但我不觉得需要特定的人�
 
 2024-10-5 18:46 上传
 
+
+*****
+
+####  PDQ4  
+##### 23983#       发表于 2024-10-5 18:48
+
+睦团内cp个人还是奶海睦，海希个人不觉得立希会参与到海铃团内事务里来
+
+既然提了鸡是光，那海铃必定要在鸡内部，也许是某个队友，也许是乐队整体那里获得什么，当然最后肯定是落回到鸡这个乐队身上
+
+也可能鸡一丘之貉的主旨贯穿始终，谁出问题了四个共犯都上来帮衬<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  海晟天锻  
+##### 23984#       发表于 2024-10-5 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66381058&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-10-05 18:37:07</a></blockquote>13集灯素交心都不带立希，她独角兽最好真能明年让立希不参与一点c团烂摊子，省得再被当起爆器用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  桜庭千景  
+##### 23985#       发表于 2024-10-5 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66381110&amp;ptid=2159415" target="_blank">NODY 发表于 2024-10-5 18:46</a></blockquote>
+你这胖猪、、、、<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  桜庭千景  
+##### 23986#       发表于 2024-10-5 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66381130&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-10-5 18:48</a>
+
+睦团内cp个人还是奶海睦，海希个人不觉得立希会参与到海铃团内事务里来
+
+既然提了鸡是光，那海铃必定要在鸡 ...</blockquote>
+其实目前剧本把祥子推到如此重要的地步之后，整个mujica大概率必须要做一个鲜明的ALL祥才能平衡塑造（就，无论是cp或者cb也好），也就是之前漏油提到的“四救一”，当然我个人对是否要“救”是存疑的。
+
+当然团内cp我是吃C25<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 23987#       发表于 2024-10-5 18:55
+
+想猜剧情那太难了，mujica每个人抱有的问题都不清楚
+
+即使是目前描写最多的祥子，也只知道她是家里出事了，目前处境上有经济压力，具体什么状态具体什么事件以后能恢复吗都是黑箱
+
+其他四个没什么描写的成员都是只知道她有另一面，这一面是好是坏是反差是负面是沉重是轻松都不知道
+
+主流出道这个商业面的着眼点也很难推测，是事务所搞事还是mujica自己内部有什么事，是竞争对手打压恶德记者还是单纯制作人年纪太小力不能及，这些都完全没有线索
+
+又或者真的涉及严肃悬疑内容，真的有人死了？这些都不好说
+
+任何一个点不一样，那整个推测得到的结论都截然不同
+
+*****
+
+####  skives10  
+##### 23988#       发表于 2024-10-5 18:55
+
+乐队出问题 到最后还是会和祥子的境遇联系起来 才算一个严密的剧本 
+
+第八集从本家出门
+TGW物产
+（必然存在的）乐队危机
+
+这三点结合起来总感觉已经有了一个大概的方向了
+
+*****
+
+####  星天观测  
+##### 23989#       发表于 2024-10-5 18:57
+
+例行重复
+
+猜测是猜测，脑洞是脑洞，不等于官方，动画快播了，别入脑
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

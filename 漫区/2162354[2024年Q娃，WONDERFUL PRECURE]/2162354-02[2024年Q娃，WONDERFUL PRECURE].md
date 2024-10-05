@@ -943,3 +943,11 @@ wonderful不是彩羽的口癖吗，和cure wonderful有什么关系啊，真紫
 不过悟彩的恋爱剧情花了那么大力气，那么很可能恋爱内容本身就是跟主线高度相关的内容——也就是汪Q设定上 ...</blockquote>
 这主线要在向着惊天巨雷的末路一路狂奔了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新HGCG  
+##### 2312#         楼主| 发表于 2024-10-5 18:57
+
+你们说明天 悟 他能 和彩羽牵上手吗
+

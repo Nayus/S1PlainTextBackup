@@ -734,3 +734,11 @@ steam页面
 
 诶发行商是天闻角川自己？那年初春季时听说和发行商谈得不是很顺利所以后来是决定改成自己发行了？
 
+
+*****
+
+####  Dreammask  
+##### 701#       发表于 2024-10-5 18:48
+
+小人移动严重差评<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

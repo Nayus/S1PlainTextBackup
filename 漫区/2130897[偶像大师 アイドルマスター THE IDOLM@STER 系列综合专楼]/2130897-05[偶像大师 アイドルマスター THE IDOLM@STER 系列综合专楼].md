@@ -2486,3 +2486,20 @@ Day 1的安可也是一如既往的沒有MC環節... 咱也習慣了啊。
 
 一如既往的小高live
 
+
+*****
+
+####  lovekoishi  
+##### 6507#       发表于 2024-10-5 18:52
+
+成海瑠奈限时返场了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  微尘众  
+##### 6508#       发表于 2024-10-5 18:55
+
+还没看见截图来证明这个事
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+

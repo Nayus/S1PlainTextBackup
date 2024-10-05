@@ -814,3 +814,27 @@ pv还行，就是小人移动有点难绷，史诗感一下子就没了<img src=
 
 把光标具现化为小人，是一种限制玩家想象力的做法。而且这种q版小人和整体风格也不搭
 
+
+*****
+
+####  potwater  
+##### 710#       发表于 2024-10-5 21:41
+
+方框光标的乐趣在于你可以明显感觉到地图上的移动是一个缩放的形式，其真实的情景可以是数十倍甚至数百倍的规模…而小人图标则徒增了一种投射，更容易下意识理解为地图上的穿行是等比例的反而损失了沉浸感
+
+*****
+
+####  大暗月  
+##### 711#       发表于 2024-10-5 21:43
+
+有小人了要怎么表现攀爬游泳跳跃等等行动，不表现岂不是更违和了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+*****
+
+####  acekanon  
+##### 712#       发表于 2024-10-5 21:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 那么 有语音吗？
+

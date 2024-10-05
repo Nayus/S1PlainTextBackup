@@ -1042,3 +1042,15 @@ DOTA是为PVP设计的，要缝进来的话缝太重了，其实我认为KR能�
 
 最受欢迎的顾客 现在是技能第三级50%的退款（单级技能为20%）
 
+
+*****
+
+####  KevinGraham  
+##### 99#       发表于 2024-10-5 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66381838&amp;ptid=2192638" target="_blank">Doctor.S 发表于 2024-10-5 20:25</a>
+不灭狂怒迷你战役上线了！
+
+将军，时候到了，让我们深入精灵森林的幽暗阴影中！</blockquote>
+新塔超级幽默，小女巫倒是挺好玩的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

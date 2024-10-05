@@ -917,3 +917,19 @@ Amiibo还真慷慨，到了某个阶段后，第一次就能直接刷出三套�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  Yidam  
+##### 1563#       发表于 2024-10-5 23:41
+
+<img src="https://img.saraba1st.com/forum/202410/05/233922g9k9aub01ak514ks.jpg" referrerpolicy="no-referrer">
+
+<strong>image (2).jpg</strong> (154.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 23:39 上传
+
+德库果的这个小剧情好像没什么人提，哪个干部经不起这样的考验.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

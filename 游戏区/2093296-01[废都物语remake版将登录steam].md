@@ -864,3 +864,13 @@ pv还行，就是小人移动有点难绷，史诗感一下子就没了<img src=
 
 以及这游戏也能打拳是我没想到的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leonlink  
+##### 716#       发表于 2024-10-5 23:39
+
+鼠标点击实在不行就靠MOD解决了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

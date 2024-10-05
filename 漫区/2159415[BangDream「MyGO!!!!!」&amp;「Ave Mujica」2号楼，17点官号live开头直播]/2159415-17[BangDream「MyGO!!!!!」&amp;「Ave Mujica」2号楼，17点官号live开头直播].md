@@ -4940,3 +4940,24 @@ Ave Mujica几乎没有什么值得讨论的情报，最起码的，为什么一�
 
 2024-10-5 23:30 上传
 
+
+*****
+
+####  星天观测  
+##### 24102#       发表于 2024-10-5 23:36
+
+所以这房子确实应该是没灶台的，哎，便利店选手
+
+*****
+
+####  玖羽  
+##### 24103#       发表于 2024-10-5 23:37
+
+ 本帖最后由 玖羽 于 2024-10-5 23:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66383042&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-10-5 23:36</a>
+
+所以这房子确实应该是没灶台的，哎，便利店选手</blockquote>
+祥子身高155cm，1叠长182cm，房间宽度起码1叠半，即使扣除灶台也够
+
+（计算这个感觉太地狱了……<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer"> ）
+

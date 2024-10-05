@@ -829,3 +829,11 @@ yysy，悟君确实在某种意义上分走了一些小麦的戏份，因为对�
 
 我懂了，这是结局前小麦黑化的伏笔。原来诚司位是你！
 
+
+*****
+
+####  HANDAIYV  
+##### 2302#       发表于 2024-10-5 10:22
+
+wonderful不是彩羽的口癖吗，和cure wonderful有什么关系啊，真紫主谈恋爱你个粉q来这儿干啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

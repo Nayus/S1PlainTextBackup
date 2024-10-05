@@ -2232,3 +2232,27 @@ mujica一个团队需要这么好嘛？不如说有点感觉是不是她们没�
 只想着自己，其他人的意 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这确实有点悬疑宫斗心理恐怖了
 
+
+*****
+
+####  相坂君  
+##### 23883#       发表于 2024-10-5 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66379503&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-10-5 13:47</a>
+貌合神离还是太美化了
+
+是爽世先天性天真的以为一定会成功，所以给所有人上了滤镜
+
+只想着自己，其他人的意 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉…甄嬛传了
+
+
+*****
+
+####  PDQ4  
+##### 23884#       发表于 2024-10-5 14:02
+
+怎么就串到宫斗去了，不就传统坏女人
+
+虽然爽姐如果ooc成高智商，确实应该是玩弄人心的好手<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

@@ -79,3 +79,18 @@ ED真好看，香莲不如也把头发留长点
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">pro哥两个月不打电动，照样血虐薯薯
 唉，这就是天赋的差距吗
 
+
+*****
+
+####  月夜凝雪  
+##### 1889#       发表于 2024-10-5 13:53
+
+看看这部，再回想一下隔壁，偶像玩游戏会变疯女人是不是刻板印象
+
+*****
+
+####  oi99o  
+##### 1890#       发表于 2024-10-5 13:54
+
+开头这op、枪声、台词搅在一起，烂一点的外放音响根本听不清什么是什么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

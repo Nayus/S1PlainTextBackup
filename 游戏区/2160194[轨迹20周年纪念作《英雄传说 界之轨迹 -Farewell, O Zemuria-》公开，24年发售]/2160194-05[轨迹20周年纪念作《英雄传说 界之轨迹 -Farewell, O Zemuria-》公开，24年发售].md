@@ -3565,3 +3565,14 @@ ZOC+增幅角色，开一个增幅就ZOC二动换下一个人，刷满BUFF，然
 
 斯温这个标记能被sclm直接打掉太那个了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就算不看这个只看技能组和链子也是一等一的废物，娜酱好歹能凑合着当个魔法c
 
+
+*****
+
+####  cfeng123  
+##### 6271#       发表于 2024-10-6 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66381440&amp;ptid=2160194" target="_blank">meltingwhite 发表于 2024-10-5 19:36</a>
+
+假期还剩3天终于有空开打界轨了，结果这第一章就绷不住了，一群人走亲访友拉了整整3小时的家常 ...</blockquote>
+留着等界2吧...现在真不适合玩<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+

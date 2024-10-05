@@ -420,3 +420,14 @@
 
 欧罗巴这个强化……行吧我有歪出来她OTZ
 
+
+*****
+
+####  TheLoof  
+##### 14878#       发表于 2024-10-5 19:42
+
+md本来都打算卖号了，结果发现号价已经亏到卖了我都嫌弃的程度
+
+还是陪菌鸽鸽走到关服吧，多少还有点情绪价值
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

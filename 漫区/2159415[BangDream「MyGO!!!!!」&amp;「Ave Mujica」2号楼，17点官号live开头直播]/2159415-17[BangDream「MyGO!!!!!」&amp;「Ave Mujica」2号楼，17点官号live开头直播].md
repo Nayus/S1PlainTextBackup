@@ -3869,3 +3869,58 @@ mujica队内倘若要提到共犯关系，那当然不只是字面意思上的�
 
 查看全部评分
 
+
+*****
+
+####  PDQ4  
+##### 24011#       发表于 2024-10-5 19:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png">祥妈要是这个样还能养出白祥那个性格，那她是不是有点太会演了
+
+白祥肯定是高尾逆输入不接受第二种可能性<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 24012#       发表于 2024-10-5 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66381429&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-10-5 19:34</a>
+
+祥妈要是这个样还能养出白祥那个性格，那她是不是有点太会演了
+
+白祥肯定是高尾逆输入不接受第二种可能性 ...</blockquote>
+我也不认为祥妈是变态，不过必须得说，白祥的形象都是其他人眼里有严重滤镜的
+
+我的确看过一种假药，祥子初遇时以为灯想自杀是因为当时祥子自己想自杀，就是说灯以为自己被祥子拯救了，其实是祥子被灯拯救了
+
+*****
+
+####  海晟天锻  
+##### 24013#       发表于 2024-10-5 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66381400&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-10-05 19:31:10</a>
+漏油这个爹对外不姓丰川有点意思，从来没考虑过新闻的可能</blockquote>你这假药隔壁讨论过了，结论是除了再降低一次立希风评（虽然不知情但c团解散时对着妈妈躺板板的祥子出言不逊）外挺合理的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  Aendst  
+##### 24014#       发表于 2024-10-5 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66381319&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-10-5 19:19</a>
+
+（以下纯属推理，只图一乐，请当假药看）
+
+我昨天正好想过这个问题，那天祥子究竟在手机上看到了什么</blockquote>
+我来补充一下这里祥子的情绪反应
+
+这里她首先是明显表露了难以置信的情绪（额肌内侧收缩上拉、虹膜更多暴露-惊讶、恐惧、悲伤），没有抑制住惊呼出声（惊讶、恐惧）
+
+随后眼睑收缩（通常是怀疑）
+
+之后短暂地出现过一次额肌的上拉（同样是惊恐和悲伤）
+
+从情绪反应来看，应该是比较严重的相当出乎意料的事，但确实没有到最严重噩耗的地步
+

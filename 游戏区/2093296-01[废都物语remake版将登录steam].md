@@ -742,3 +742,13 @@ steam页面
 
 小人移动严重差评<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leonlink  
+##### 702#       发表于 2024-10-5 19:44
+
+出正式PV了，个人还是挺满意的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

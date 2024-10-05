@@ -3505,3 +3505,18 @@ PS5更新1.03了，微砍了刷波波
 
 这次是全系列最容易金钱自由的一作<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  meltingwhite  
+##### 6264#       发表于 2024-10-5 19:36
+
+假期还剩3天终于有空开打界轨了，结果这第一章就绷不住了，一群人走亲访友拉了整整3小时的家常<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 6265#       发表于 2024-10-5 19:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大少当自己人真没他当boss强，两作其实都不怎么好用，斯温那个游戏性能真没救了，怎么能一代比一代差的，创轨还没觉得那么拉
+

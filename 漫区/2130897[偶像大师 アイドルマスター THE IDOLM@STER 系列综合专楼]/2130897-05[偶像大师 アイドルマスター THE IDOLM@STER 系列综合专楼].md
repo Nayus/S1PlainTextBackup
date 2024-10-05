@@ -2515,3 +2515,35 @@ Day 1的安可也是一如既往的沒有MC環節... 咱也習慣了啊。
 成海瑠奈限时返场了？</blockquote>
 理論上是有宏觀鏡頭收錄進去了，但放大臉部的鏡頭應該是沒有放，至少直播回傳的鏡頭裏面沒有明顯看到。
 
+
+*****
+
+####  wfhtony  
+##### 6510#       发表于 2024-10-5 19:35
+
+ 本帖最后由 wfhtony 于 2024-10-5 19:39 编辑 
+
+二期除了萬聖節的五首新曲之外，還有六首新曲將在聖誕節發售。
+
+<img src="https://img.saraba1st.com/forum/202410/05/193211hen3hwjtwmn6eaw2.png" referrerpolicy="no-referrer">
+
+<strong>アニメ『アイドルマスター_シャイニーカラーズ_2nd_season』主題歌アルバム「Over_the.png</strong> (326.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 19:32 上传
+
+<img src="https://img.saraba1st.com/forum/202410/05/193210clb7lg52d9gg2q65.png" referrerpolicy="no-referrer">
+
+<strong>Twitter_上的_『アイドルマスター_シャイニーカラーズ』ランティス公式：「✨CD情報✨.png</strong> (40.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 19:32 上传
+
+專輯除了通常盤之外，還會賣帶藍光的特典盤，藍光收錄了安提卡《バベルシティ・グレイス》的MV+花絮影片。
+
+是動畫還是真人不好說，官方的說法是「キャストMV（Cast MV）」（咱個人傾向是真人MV）。
+
+(via [Lantis](https://shinycolors.lantis.jp/releaseinfo/laca-25138/) | [Twitter](https://twitter.com/lantis_imasSC/status/1842520112357867945))
+

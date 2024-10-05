@@ -2460,3 +2460,15 @@ GBA模拟器是实机还没发售模拟器就完善了，有多影响GBA的销�
 
 — from meizu MEIZU 20 Pro, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  liekong  
+##### 219#       发表于 2024-10-5 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66377842&amp;ptid=2201766" target="_blank">kina 发表于 2024-10-5 08:31</a>
+GBA模拟器是实机还没发售模拟器就完善了，有多影响GBA的销售？</blockquote>
+GBA发售3.5年后就发售NDS，GBA硬件生涯总销量8kw左右，老任掌机方面只有受到智能手机冲击严重的3DS销量低于GBA，与索尼的PS3总销量差不多，而GBA游戏总销量5亿多，PS3是9亿多，而GBA当时还没什么同生态位的有力对手。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

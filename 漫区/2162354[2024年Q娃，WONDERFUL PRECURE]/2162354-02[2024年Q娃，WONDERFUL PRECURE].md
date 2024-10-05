@@ -848,3 +848,27 @@ wonderful不是彩羽的口癖吗，和cure wonderful有什么关系啊，真紫
 下一话标题里的wonderful是片假，小麦看不懂，看来以后是真的只有当电灯泡的份了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还真是，ep22和ep30的标题都是平假名
 
+
+*****
+
+####  犬飼いろは  
+##### 2304#       发表于 2024-10-5 11:05
+
+第36話　特別なワンダフル！
+
+脚本：成田良美
+
+演出：飛田剛
+
+絵コンテ：上田華子
+
+作画監督：稲上晃、フルヤヨウコ、中谷友紀子
+
+美術：中林由貴
+
+意を決していろは（CV.種﨑敦美）に気持ちを伝える悟だったが、いろははおどろきのあまり固まってしまい、「バイバイ」と走り去ってしまう。自宅に帰ってきたいろはは、家まで追いかけてきてくれたまゆ（CV.上田麗奈）から「悟はずっといろはのことが好きだった」と聞かされ、さらにおどろく。一方、悟も家に戻り、ニコに通訳してもらいながら、大福にもずっといろはへの気持ちに気づかれていたことを知って顔を赤らめるが、本音をぶつける大切さを聞かされ、はげまされる。みんな寝静まった夜、いろははプリキュアになってからのやりとりを思い出しながら、悟の「特別な気持ち」に考えをめぐらせる。翌朝、寝不足気味のいろはは「どんな顔をして悟に会えば」と不安なまま登校するが、悟はいつものようにあいさつを交わし、「昨日言ったことは忘れて」と声をかける。
+<img src="https://files.catbox.moe/r7t9ks.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/1f68ht.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/ucpxmz.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/9gvc4n.jpg" referrerpolicy="no-referrer">
+

@@ -4838,3 +4838,35 @@ It takes about 80 hours to clear the story, or 100 hours with side activities
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  罗克萨斯  
+##### 1172#       发表于 2024-10-5 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66378972&amp;ptid=2140224" target="_blank">windtrack_qh 发表于 2024-10-5 12:29</a>
+话说这游戏港版是中日双语还是只有中文？</blockquote>
+官网信息如下
+
+<img src="https://img.saraba1st.com/forum/202410/05/125052rmdmfcwlqmkzbwwt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-10-05-12-47-45-015_com.android.chrome-edit.jpg</strong> (431.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 12:50 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| windtrack_qh| + 1|好，买港版了|
+
+查看全部评分
+

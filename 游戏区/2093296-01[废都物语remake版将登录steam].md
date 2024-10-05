@@ -874,3 +874,15 @@ pv还行，就是小人移动有点难绷，史诗感一下子就没了<img src=
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  serj005  
+##### 717#       发表于 2024-10-5 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66382945&amp;ptid=2093296" target="_blank">西弗 发表于 2024-10-5 23:24</a>
+快点端上来罢.jpg话说回来原作是多年前玩的，已经到宫殿的话这流程应该也走了大半了吧？还是说我记错了
+
+以 ...</blockquote>
+宫殿是很前期的地图
+

@@ -3557,3 +3557,11 @@ ZOC+增幅角色，开一个增幅就ZOC二动换下一个人，刷满BUFF，然
 
 战绩套路我阿龙暴击踢出过30W的离谱伤害来。。配合晕和ZOC其实还行了。
 
+
+*****
+
+####  SuNR1sE364  
+##### 6270#       发表于 2024-10-5 23:56
+
+斯温这个标记能被sclm直接打掉太那个了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就算不看这个只看技能组和链子也是一等一的废物，娜酱好歹能凑合着当个魔法c
+

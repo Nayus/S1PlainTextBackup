@@ -4961,3 +4961,13 @@ Ave Mujica几乎没有什么值得讨论的情报，最起码的，为什么一�
 
 （计算这个感觉太地狱了……<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer"> ）
 
+
+*****
+
+####  yifan8848  
+##### 24104#       发表于 2024-10-6 00:45
+
+祥子家連浴室都沒有
+
+該不會洗澡都去六花打工的澡堂吧
+

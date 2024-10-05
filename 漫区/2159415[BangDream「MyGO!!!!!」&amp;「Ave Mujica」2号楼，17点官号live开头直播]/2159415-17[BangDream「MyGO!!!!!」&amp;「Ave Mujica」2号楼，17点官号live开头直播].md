@@ -4787,3 +4787,11 @@ Ave Mujica几乎没有什么值得讨论的情报，最起码的，为什么一�
 
 2024-10-5 22:20 上传
 
+
+*****
+
+####  星天观测  
+##### 24091#       发表于 2024-10-5 22:34
+
+而且刚仔细看了下，祥子家应该是有电视的<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

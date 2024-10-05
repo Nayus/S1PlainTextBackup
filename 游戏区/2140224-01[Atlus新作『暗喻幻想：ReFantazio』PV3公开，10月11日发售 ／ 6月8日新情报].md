@@ -5004,3 +5004,20 @@ C跟新；了，机板还没跟新.....
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  AeonsTorn  
+##### 1186#       发表于 2024-10-5 22:33
+
+能洗点吗，我都加魔了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.89
+
+*****
+
+####  八佾舞于潭  
+##### 1187#       发表于 2024-10-5 22:36
+
+这战斗 BGM 还是老辣且思路开阔，记忆点十足。
+

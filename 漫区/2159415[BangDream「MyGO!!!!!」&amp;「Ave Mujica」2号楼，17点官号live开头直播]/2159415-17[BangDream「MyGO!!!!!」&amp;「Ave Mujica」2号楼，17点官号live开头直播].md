@@ -1628,3 +1628,18 @@ mujica一个团队需要这么好嘛？不如说有点感觉是不是她们没�
 
 [https://twitter.com/kanon_takao/status/1807267996739735828](https://twitter.com/kanon_takao/status/1807267996739735828)
 
+
+*****
+
+####  叁味线  
+##### 23837#       发表于 2024-10-5 09:37
+
+这不是才俩月，就1000张了？
+
+*****
+
+####  星天观测  
+##### 23838#       发表于 2024-10-5 09:37
+
+我还是建议当成比较夸张的说法好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

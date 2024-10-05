@@ -4978,3 +4978,18 @@ C跟新；了，机板还没跟新.....
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">三战士的合体技暴力的输出，隐隐透露又是物理流的天下了
 
+
+*****
+
+####  Dreammask  
+##### 1183#       发表于 2024-10-5 20:32
+
+不断给力加点就是ATLUS主角们的宿命<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hkguty  
+##### 1184#       发表于 2024-10-5 20:37
+
+画面确实有种ps3的美，大概是因为一个引擎吧，画面黄黄的
+

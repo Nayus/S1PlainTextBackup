@@ -12029,3 +12029,36 @@ miko把鼠标故意晃上去了就是暗示这里写星街
 咪口小姐特意强调了是孽缘青梅竹马。
 大概还是想保守一些距离<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 9867#         楼主| 发表于 2024-10-5 18:05
+
+<img src="https://img.saraba1st.com/forum/202410/05/180524fw0ghah321bbhb7i.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (71.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 18:05 上传
+
+看来很快会出holo的游戏了
+
+*****
+
+####  holoan  
+##### 9868#         楼主| 发表于 2024-10-5 20:26
+
+<img src="https://img.saraba1st.com/forum/202410/05/202502fzlxlk5nt6l55xen.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (11.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 20:25 上传
+
+公主和国王和王子
+
+另外这里miko的公主形象指的是1stsololive的keyvisual形象，3人并列其实直接暗示fbk的sololive
+

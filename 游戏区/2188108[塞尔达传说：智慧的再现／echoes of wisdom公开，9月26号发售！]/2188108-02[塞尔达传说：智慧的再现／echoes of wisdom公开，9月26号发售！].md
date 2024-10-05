@@ -631,3 +631,13 @@ BOSS是虚无里的原生生物吧，而托力是三女神创造的，
 
 30多小时全收集通关，满足了
 
+
+*****
+
+####  冷泉夜月  
+##### 1535#       发表于 2024-10-5 14:20
+
+不过机关确实太鸡肋了，登场太晚了实用性又不够强还麻烦，其实一开场逃出牢笼就该解禁<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

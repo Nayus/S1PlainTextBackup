@@ -922,3 +922,13 @@ wonderful不是彩羽的口癖吗，和cure wonderful有什么关系啊，真紫
 
 不过悟彩的恋爱剧情花了那么大力气，那么很可能恋爱内容本身就是跟主线高度相关的内容——也就是汪Q设定上日本狼被灭绝可能跟感情纠葛有关<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 2310#       发表于 2024-10-5 14:14
+
+结局悟彩合力给噶嗷一发lovelove wonderful拳解决问题<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

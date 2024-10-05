@@ -945,3 +945,16 @@ pv还行，就是小人移动有点难绷，史诗感一下子就没了<img src=
 
 不过愿意实际行动推广原作的集美，在我这的声望等级还是比只会在网络上捕风捉影意淫唱衰的云开发哥高一点<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Rainwedell  
+##### 723#       发表于 2024-10-6 05:10
+
+ 本帖最后由 Rainwedell 于 2024-10-6 05:11 编辑 
+
+进度有点太慢了，这次重制版应该不加语音吧
+
+改小人可能是为了引流新玩家吧
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

@@ -117,3 +117,47 @@ SpaceX又发布了更多B12+S30组合体照片
 
 2024-10-3 11:49 上传
 
+
+*****
+
+####  commcody  
+##### 75#         楼主| 发表于 2024-10-5 20:50
+
+墨西哥空域和印度洋海域NOTAM发布，NOTAM发射日期10月13日
+
+<img src="https://img.saraba1st.com/forum/202410/05/204653zq53xdxlqvkvrn35.png" referrerpolicy="no-referrer">
+
+<strong>image (4).png</strong> (205.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 20:46 上传
+
+<img src="https://img.saraba1st.com/forum/202410/05/204653dvdrq3oz3ltbb033.png" referrerpolicy="no-referrer">
+
+<strong>image (3).png</strong> (71.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 20:46 上传
+
+筷子负载模拟器被装上进行负载测试。通过水袋注水模拟载荷。
+
+<img src="https://img.saraba1st.com/forum/202410/05/204724nzeaeml5qthxaxe8.jpg" referrerpolicy="no-referrer">
+
+<strong>rover2-1728079434.jpg</strong> (229.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 20:47 上传
+
+B12的热分离环重新被装上。本周末S30可能重新合体。当地时间下周一开始有封路计划，可能会进行湿彩排。
+
+<img src="https://img.saraba1st.com/forum/202410/05/204641prrds3z2r3l3gf23.png" referrerpolicy="no-referrer">
+
+<strong>watermarked (1).png</strong> (754.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 20:46 上传
+

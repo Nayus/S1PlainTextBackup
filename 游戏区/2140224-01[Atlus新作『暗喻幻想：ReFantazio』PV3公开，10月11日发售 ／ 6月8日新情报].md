@@ -4802,3 +4802,11 @@ It takes about 80 hours to clear the story, or 100 hours with side activities
 
 但是剧情和战斗也是真的无聊，虽然主线无聊也是一贯特色了，但是没有coop剧情和当时间管理大师填充只能不断推主线和那b迷宫真的忍不了
 
+
+*****
+
+####  theti  
+##### 1168#       发表于 2024-10-5 09:24
+
+女人不好看
+

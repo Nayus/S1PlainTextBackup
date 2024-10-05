@@ -2440,3 +2440,11 @@ GBA模拟器是实机还没发售模拟器就完善了，有多影响GBA的销�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">Ryujin是用钱而不是法律搞定的，一开始也是从“道德”面去批判的
 
+
+*****
+
+####  npk7k_1  
+##### 217#       发表于 2024-10-5 09:21
+
+如果新机用8nm的话虽然正版的体验会很差，但是又能被模拟器狂暴鸿儒看好戏好像也不错
+

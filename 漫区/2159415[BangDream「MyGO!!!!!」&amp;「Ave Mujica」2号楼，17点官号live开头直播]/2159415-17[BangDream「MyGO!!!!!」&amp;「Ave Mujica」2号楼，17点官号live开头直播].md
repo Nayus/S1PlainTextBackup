@@ -3455,3 +3455,63 @@ mujica五个人一定都有各自的问题，但我不觉得需要特定的人�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  星天观测  
+##### 23978#       发表于 2024-10-5 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66381061&amp;ptid=2159415" target="_blank">pipaopo 发表于 2024-10-5 18:37</a>
+
+可能性太多了，不过及时是灯的歌换成信，谁会写剧本写写角色写送一封信没送出去，这信也不知道写了什么， ...</blockquote>
+那你就接着这么认为吧，我不想和你接着聊了
+
+*****
+
+####  Aendst  
+##### 23979#       发表于 2024-10-5 18:45
+
+ 本帖最后由 Aendst 于 2024-10-5 18:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66381061&amp;ptid=2159415" target="_blank">pipaopo 发表于 2024-10-5 18:37</a>
+
+可能性太多了，不过及时是灯的歌换成信，谁会写剧本写写角色写送一封信没送出去，这信也不知道写了什么， ...</blockquote>
+你别说，这个展开还挺有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+够得上不入流试作品悬疑小说的反转了，出人意料但也勉强在情理之中，你以为有交代的重要物品最终连麦高芬都算不上而是阐述了一个残酷的BE，有点黑色幽默
+
+不过一部分观众可能看不得吧
+
+*****
+
+####  桜庭千景  
+##### 23980#       发表于 2024-10-5 18:45
+
+现在去猜mujica剧情确实很难，单纯断章状态来说，其实只要乐队正常运行祥子的问题就完全不是问题——那为了制造成冲突就只能让乐队出问题了——到这一步其实推测已经完全堵死了，因为无论是场外场内线索都寥寥无几，如果只是想猜，那有几十种方向去猜——而它们在正式播出前都毫无价值。
+
+*****
+
+####  玖羽  
+##### 23981#       发表于 2024-10-5 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66380967&amp;ptid=2159415" target="_blank">pipaopo 发表于 2024-10-5 18:23</a>
+
+说平衡只是辅助论点，就算没平衡一事，从剧本的完整角度来说灯的歌也不会没下文</blockquote>
+从契诃夫之枪的原则来说，这首歌肯定要有下文，但不一定用在哪里
+
+就好像MyGO诗超绊之前很多人猜测爱音是拯救MyGO的关键，实际上爱音的确起到了某种关键作用，但是和所有人想的都不是一回事
+
+比如说，这首歌有没有可能放在最后一集，“当时没能接过来的歌词本现在可以接过来了”，这不也是很完美的呼应
+
+*****
+
+####  NODY  
+##### 23982#       发表于 2024-10-5 18:46
+
+<img src="https://img.saraba1st.com/forum/202410/05/184623ruljgwk0n3knivxn.jpg" referrerpolicy="no-referrer">
+
+<strong>GZHpkmMaoAADKEF_format=jpg&amp;name=large.jpg</strong> (242.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 18:46 上传
+

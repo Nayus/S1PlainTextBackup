@@ -700,3 +700,37 @@ steam页面
 
 从光标移动改成小人移动了啊
 
+
+*****
+
+####  Carlfie-  
+##### 697#       发表于 2024-10-5 18:37
+
+好像加了原作没有的解谜？
+
+*****
+
+####  Doctor.S  
+##### 698#       发表于 2024-10-5 18:37
+
+需要存储空间20GB？<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Hqchan  
+##### 699#       发表于 2024-10-5 18:39
+
+20g瞎写的吧，要是很大的话那我可要狠狠期待新支线新内容了呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  宛若青空  
+##### 700#       发表于 2024-10-5 18:41
+
+本来计划春季就上的Steam页面终于出来了<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
+
+诶发行商是天闻角川自己？那年初春季时听说和发行商谈得不是很顺利所以后来是决定改成自己发行了？
+

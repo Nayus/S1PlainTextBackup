@@ -2472,3 +2472,16 @@ GBA发售3.5年后就发售NDS，GBA硬件生涯总销量8kw左右，老任掌�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  obiy  
+##### 220#       发表于 2024-10-6 07:17
+
+ 本帖最后由 obiy 于 2024-10-6 07:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66372203&amp;ptid=2201766" target="_blank">巨馍蘸酱 发表于 2024-10-4 10:57</a>
+笑死了，退役老机器玩玩破解和模拟就算了，在役的机器，甚至新游戏发售前不知道多少天，正版玩家还在苦等发 ...</blockquote>
+正版玩家的权益是，玩家付款给厂商，厂商保证玩家能在发售日当天买到，玩到，在承诺登陆的游戏机平台至少有一个“能玩”的水平。
+
+其他价值是玩家自己给上的。[厂商又不是不插手退役老机器](https://bbs.saraba1st.com/2b/thread-2201874-0-1.html)
+

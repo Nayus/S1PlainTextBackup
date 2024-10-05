@@ -2547,3 +2547,11 @@ Day 1的安可也是一如既往的沒有MC環節... 咱也習慣了啊。
 
 (via [Lantis](https://shinycolors.lantis.jp/releaseinfo/laca-25138/) | [Twitter](https://twitter.com/lantis_imasSC/status/1842520112357867945))
 
+
+*****
+
+####  游蜓  
+##### 6511#       发表于 2024-10-5 19:46
+
+小高真成祸害了
+

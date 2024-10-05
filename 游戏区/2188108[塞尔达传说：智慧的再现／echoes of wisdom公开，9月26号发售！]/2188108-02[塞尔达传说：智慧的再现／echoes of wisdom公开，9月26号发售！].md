@@ -814,3 +814,25 @@ BOSS是虚无里的原生生物吧，而托力是三女神创造的，
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  ping117  
+##### 1553#       发表于 2024-10-5 19:51
+
+全收集通关了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+真是一次美好的冒险
+MC开分还以为拉了，没想到还是符合我年度游戏的预期<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+小问题不少，但只能说新玩法总会带点毛病，要是有迭代应该都能修掉
+主要缺点就是体量，30个小时就能全收集
+美术和玩法+叙事（公主救勇者）创新是最大加分项，确实能给到玩家和别的作品不一样的体验，这一点就够了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+期待有朝一日能有3D版的真•林克传说<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  佛罗伦萨  
+##### 1554#       发表于 2024-10-5 19:53
+
+前中期体验提升神技：坠眼怪+变成林克跳上去
+

@@ -3520,3 +3520,21 @@ PS5更新1.03了，微砍了刷波波
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大少当自己人真没他当boss强，两作其实都不怎么好用，斯温那个游戏性能真没救了，怎么能一代比一代差的，创轨还没觉得那么拉
 
+
+*****
+
+####  王俊凯  
+##### 6266#       发表于 2024-10-5 19:56
+
+<img src="https://static.saraba1st.com/image/smiley/face/200.gif" referrerpolicy="no-referrer">斯温当个无情的工具人不挺好，防链配出盾和箭，没事就复读黄道
+
+*****
+
+####  lxshhh  
+##### 6267#       发表于 2024-10-5 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66381440&amp;ptid=2160194" target="_blank">meltingwhite 发表于 2024-10-5 19:36</a>
+
+假期还剩3天终于有空开打界轨了，结果这第一章就绷不住了，一群人走亲访友拉了整整3小时的家常 ...</blockquote>
+噗这吐槽过于接地气实在是太戳中我笑点了
+

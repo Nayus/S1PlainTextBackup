@@ -1963,3 +1963,70 @@ mujica一个团队需要这么好嘛？不如说有点感觉是不是她们没�
 睦还是挺容易被裹挟的，不问她真实想法的话她就是任爽世/祥子拿捏的，所以才被爽世抓着当了半季的传声筒 ...</blockquote>
 说是被裹挟不如说她本就有意想要弥补些什么。
 
+
+*****
+
+####  Aendst  
+##### 23865#       发表于 2024-10-5 13:16
+
+ 本帖最后由 Aendst 于 2024-10-5 13:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66379268&amp;ptid=2159415" target="_blank">翼宿一 发表于 2024-10-5 13:08</a>
+
+睦还是挺容易被裹挟的，不问她真实想法的话她就是任爽世/祥子拿捏的，所以才被爽世抓着当了半季的传声筒 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个话题我说过很多次了
+
+留在最后才走，是彻底解散的最后一击。群体只有在两人以下（变成只剩一个人）的时候才能正式宣告群体的消解
+
+这和她最初直球“玩乐队不开心”促使crychic直接解散是恰好吻合的行为。按照目前动画透露的内容客观来看，睦无异于立派的crychic的送葬人
+
+“愿意”被爽世折腾纯属无稽之谈，有pua有被迫那就不存在愿意
+
+存在pua的情境下说什么“愿意”被折腾和背后中枪自杀身亡，自愿被家暴是一个逻辑
+
+倒是只有爱音现在可以说是“愿意”被爽世折腾
+
+只能说泥漏聊烂的东西新漏油还是多翻楼看看
+
+传声筒这个话题这页已经剖析过了，看不懂可以多看两遍
+
+*****
+
+####  翼宿一  
+##### 23866#       发表于 2024-10-5 13:19
+
+<blockquote>skives 发表于 2024-10-5 12:16
+感觉动画里第八集犹豫的否定和第十三集坚定的加入也是一个对比</blockquote>
+退黄瓜后意识到墙头草不得好死了吧（<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 23867#       发表于 2024-10-5 13:20
+
+ 本帖最后由 Aendst 于 2024-10-5 13:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66379330&amp;ptid=2159415" target="_blank">翼宿一 发表于 2024-10-5 13:19</a>
+
+退黄瓜后意识到墙头草不得好死了吧（</blockquote>
+你真的还是翻楼看看吧
+
+黄瓜是送给mygo全体的不是送给爽世个人的，这个已经是常识级别的东西了
+
+舔狗被编辑掉了是我看错了吗
+
+*****
+
+####  玖羽  
+##### 23868#       发表于 2024-10-5 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66379285&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-10-5 13:10</a>
+
+因为只在意crychic，所以并不关心祥子到底发生了什么，也导致她的计策完全失败，从一开始就注定是竹篮打水一场空</blockquote>
+这里还有一个信息差，从爽世的视角来看，祥子是顶级贵族大小姐，她不玩乐队还能有什么原因，只能是闹别扭
+
+还有一个可能是家里不让，但是如果是这样，祥子说一句就完事了，所以肯定不是
+
+就算能想到家道中落，但是丰川家破产肯定是大新闻，她肯定会知道，所以也不是
+
+祥子和她爸一起搬出去过穷人生活这种情况完全是在爽世的认知之外的，她做梦都想象不到会是这样
+

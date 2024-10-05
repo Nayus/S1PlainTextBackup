@@ -3311,3 +3311,59 @@ PS5更新1.03了，微砍了刷波波
 
 花臂大哥这通操作是不把我罗爷放在眼里
 
+
+*****
+
+####  windtrack_qh  
+##### 6246#       发表于 2024-10-5 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66379291&amp;ptid=2160194" target="_blank">skullgreymon 发表于 2024-10-5 13:11</a>
+
+丸辣，里恩线第一章忘了找传送门，后面还有吗？？</blockquote>
+有，里恩线前两章都在巴塞尔可以补，第三章龙来的错过就没了
+
+*****
+
+####  lxshhh  
+##### 6247#       发表于 2024-10-5 13:19
+
+续作感觉至少两年后吧，明年空轨重置和东轨，后年应该是伊苏？
+
+*****
+
+####  ravend233  
+##### 6248#       发表于 2024-10-5 13:20
+
+伊苏应该在界2后，估计2026界2
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  windtrack_qh  
+##### 6249#       发表于 2024-10-5 13:21
+
+ 本帖最后由 windtrack_qh 于 2024-10-5 13:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66379333&amp;ptid=2160194" target="_blank">lxshhh 发表于 2024-10-5 13:19</a>
+
+续作感觉至少两年后吧，明年空轨重置和东轨，后年应该是伊苏？</blockquote>
+我觉得一年的可能性也不小
+
+闪1闪2、闪3闪4都是一年间隔，只有闪2闪3中间隔得久
+
+黎1黎2、界1界2应该是也是这种模式
+
+空re可能放在2025上半年，东是2026上半
+
+*****
+
+####  lxshhh  
+##### 6250#       发表于 2024-10-5 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66379347&amp;ptid=2160194" target="_blank">windtrack_qh 发表于 2024-10-5 13:21</a>
+我觉得一年的可能性也不小
+
+闪1闪2、闪3闪4都是一年间隔，只有闪2闪3中间隔得久</blockquote>
+真要是一年出感觉不是啥好事啊..
+

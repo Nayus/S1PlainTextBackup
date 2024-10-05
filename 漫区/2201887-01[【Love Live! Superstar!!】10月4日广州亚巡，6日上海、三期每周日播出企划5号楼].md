@@ -673,3 +673,18 @@ emo pay 结那等人参演的朗读剧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">10组人怕不是都去看live了，快不了的
 
+
+*****
+
+####  ads147147  
+##### 68#       发表于 2024-10-5 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66381167&amp;ptid=2201887" target="_blank">离心 发表于 2024-10-5 18:53</a>
+
+隔壁已经透了第一集内容了和pv分毫不差还行楼友不骂花田的flag怕不是要破功了
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">小场面，只是技术性调整，我上个楼就预测会搞分裂然后as版本强势回归，总归都会包饺子的。
+
+反过来说打起来才好看的，赶紧分裂成四个小组，大赛给延期到剧场版口牙
+

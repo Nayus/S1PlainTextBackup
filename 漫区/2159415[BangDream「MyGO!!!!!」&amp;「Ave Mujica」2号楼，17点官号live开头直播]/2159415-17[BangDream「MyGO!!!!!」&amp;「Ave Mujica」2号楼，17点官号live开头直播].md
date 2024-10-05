@@ -4677,3 +4677,51 @@ Ave Mujica几乎没有什么值得讨论的情报，最起码的，为什么一�
 
 这样，我以为你说打工到半夜直接拿临期便当当饭吃<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 24082#       发表于 2024-10-5 21:46
+
+鸡动画之后祥子就算还有打工相关应该也就和彩彩她们那样赚点零花钱的水平了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 24083#       发表于 2024-10-5 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66382296&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-10-5 21:32</a>
+
+你们不能这么算，这种打工不是光看时薪的，完成一单有提成
+
+我在日本求职网站上找了一下，有一家比较接近 ...</blockquote>
+过于可疑反而好有意思<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 24084#       发表于 2024-10-5 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66382357&amp;ptid=2159415" target="_blank">桜庭千景 发表于 2024-10-5 21:43</a>
+
+没必要，这个打工大概率就是凹个自强人设，如果不开pico迫害我估计后面都很难再提一下了 ...</blockquote>
+问题是这个打工的性质太不邦邦了，如果只是为了不抛头露面，为什么不去澡堂打工
+
+甚至一般的作品也不会给JK安排这种打工，说好听点是电话推销，说难听点就是擦边诈骗
+
+
+*****
+
+####  PDQ4  
+##### 24085#       发表于 2024-10-5 21:51
+
+怎么感觉漏油说的这个打工很危险，不会明年被当作黑料爆出来吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 24086#       发表于 2024-10-5 21:53
+
+虽说不能算黑工，这妥妥的灰色产业，泥邦那么阳光应该不可能搞这种，但是这种考虑猜想很欢乐多<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+比起打灰产工，我认为身份的反差才是想表达的，对比一下就很有戏剧性且有冲击力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

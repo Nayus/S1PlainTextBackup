@@ -838,3 +838,11 @@ pv还行，就是小人移动有点难绷，史诗感一下子就没了<img src=
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 那么 有语音吗？
 
+
+*****
+
+####  GYSS_  
+##### 713#       发表于 2024-10-5 21:53
+
+光标改成小人确实感觉不太对。。，等上手看看吧
+

@@ -4899,3 +4899,15 @@ C跟新；了，机板还没跟新.....
 
 感觉好像跟smt系统没啥区别，所有同伴都可以换阿基态=换仲魔？
 
+
+*****
+
+####  windtrack_qh  
+##### 1176#       发表于 2024-10-5 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66379836&amp;ptid=2140224" target="_blank">hkguty 发表于 2024-10-5 14:59</a>
+感觉好像跟smt系统没啥区别，所有同伴都可以换阿基态=换仲魔？</blockquote>
+把阿基态理解为职业就行了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -4826,3 +4826,15 @@ It takes about 80 hours to clear the story, or 100 hours with side activities
 
 好纠结，是原版开玩还是等一年以后完整版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kuarwbwe  
+##### 1171#       发表于 2024-10-5 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66378992&amp;ptid=2140224" target="_blank">はちたや 发表于 2024-10-5 12:32</a>
+好纠结，是原版开玩还是等一年以后完整版</blockquote>
+你确定一年以后能玩的到完整版。<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

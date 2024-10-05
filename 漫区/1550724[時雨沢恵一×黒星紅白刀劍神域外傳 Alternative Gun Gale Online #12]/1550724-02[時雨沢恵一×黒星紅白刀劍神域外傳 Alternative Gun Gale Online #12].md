@@ -105,3 +105,11 @@ pro哥两个月不打电动，照样血虐薯薯
 唉，这就是天赋的差距吗</blockquote>
 niko哥两个月不打，应该也能起个沙鹰把把爆我头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  狼王卢比奥  
+##### 1892#       发表于 2024-10-5 19:26
+
+好喜欢看角色们插科打诨
+

@@ -4970,3 +4970,11 @@ C跟新；了，机板还没跟新.....
 
 从职业树来看就是15个基础职业，剩下的都是进阶，有几个职业有进阶变体
 
+
+*****
+
+####  baizhi  
+##### 1182#       发表于 2024-10-5 19:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">三战士的合体技暴力的输出，隐隐透露又是物理流的天下了
+

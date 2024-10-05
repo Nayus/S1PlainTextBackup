@@ -3490,3 +3490,18 @@ PS5更新1.03了，微砍了刷波波
 
 —— 来自 realme RMX3708, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  windtrack_qh  
+##### 6263#       发表于 2024-10-5 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66381294&amp;ptid=2160194" target="_blank">椎名mahuyo 发表于 2024-10-5 19:16</a>
+
+点数居然能买羁绊事件道具，早知道不换鸡肋的打折了
+
+—— 来自 realme RMX3708, Android 14上的 S1Next-鹅 ...</blockquote>
+打折是陷阱
+
+这次是全系列最容易金钱自由的一作<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

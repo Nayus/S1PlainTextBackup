@@ -4751,3 +4751,39 @@ Ave Mujica几乎没有什么值得讨论的情报，最起码的，为什么一�
 说到底你邦直接在动画说人家是收初三学生的黑心公司，真不怕被人送律师函吗，拉拉那边连借个门口拍原型都有 ...</blockquote>
 公司是架空的（一栋楼只有这家公司是架空的），楼已经被拆了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 24090#       发表于 2024-10-5 22:20
+
+来提点问题
+
+1，为什么祥子进门时外面的地面是这种常见室内木地板，如果这个房间的外面是一个室内空间，为什么祥子没换拖鞋
+
+2，祥子身后的门理应是类似于大门的，但是身后这个有边框的白色部分是什么，如果是玻璃的话是不是有点怪
+
+<img src="https://img.saraba1st.com/forum/202410/05/222022j0mb6vb0mcm36kmy.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20241005221745.png</strong> (200.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 22:20 上传
+
+<img src="https://img.saraba1st.com/forum/202410/05/222025miixvwsp5xyonhhp.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20241005221758.png</strong> (16.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 22:20 上传
+
+<img src="https://img.saraba1st.com/forum/202410/05/222028clzlmtkg78oiclxl.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20241005221804.png</strong> (35.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 22:20 上传
+

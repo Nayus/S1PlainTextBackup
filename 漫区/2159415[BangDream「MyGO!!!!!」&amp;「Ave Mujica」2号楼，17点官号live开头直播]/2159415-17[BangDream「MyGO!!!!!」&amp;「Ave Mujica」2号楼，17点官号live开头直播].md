@@ -2372,3 +2372,79 @@ soyo本身在于想要家一样的温暖存在，可以说缺爱小孩，她要�
 原先就已经很地雷妹乐队了，要是这样操作缝合回来那得变核弹妹乐队吧……在看本篇前就被二创铺天盖地刷 ...</blockquote>
 哇哦 被pua的人是“自願”的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 真是太願願又意意了
 
+
+*****
+
+####  翼宿一  
+##### 23894#       发表于 2024-10-5 14:39
+
+<blockquote>Aendst 发表于 2024-10-5 14:30
+到底哪看出来的睦愿意
+
+睦听爽世讲话都把全剧内能找到的最臭的表情摆出来了 ...</blockquote>
+和祥子的拉黑相比，睦已经怀柔得不能再怀柔了吧（虽然也可能是因为学校的原因躲不掉）
+
+*****
+
+####  PDQ4  
+##### 23895#       发表于 2024-10-5 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66379698&amp;ptid=2159415" target="_blank">翼宿一 发表于 2024-10-5 14:28</a>
+
+原先就已经很地雷妹乐队了，要是这样操作缝合回来那得变核弹妹乐队吧……在看本篇前就被二创铺天盖地刷 ...</blockquote>
+感觉漏油还是铁暗恋二创入脑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+睦虽然是好孩子，但是也没那么热脸贴冷屁股，第八集之前，都是爽世主动去找睦（问祥子信息）
+
+第八集的时候睦发现爽世状态不对了，不登校+更夹了，才开始去主动关心
+
+直击了爽世大破防后，第十集去找灯，这里值得注意的是，她一直在看灯念诗，有一直关注其他三个人的状态，发现灯希精神状态很OK
+
+第十二集发现狗成了，她也很开心三个老队友都走出来，所以给狗送上祝福
+
+睦并不是铁暗恋里说的那样，只在乎爽世和祥子，她有关心其他队友，包括live其实都有去看，毕竟团自己也拆了，她有愧疚感，只不过灯没那么犯病，立希不用担心，只有同班同学有点病入膏肓了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  翼宿一  
+##### 23896#       发表于 2024-10-5 14:41
+
+<blockquote>御幸一也 发表于 2024-10-5 14:35
+哇哦 被pua的人是“自願”的 真是太願願又意意了</blockquote>
+相比其他人躲爽世的状态，睦已经是最好欺负的那个了啊，甚至都没拉黑也没有刻意去躲
+
+*****
+
+####  Aendst  
+##### 23897#       发表于 2024-10-5 14:41
+
+ 本帖最后由 Aendst 于 2024-10-5 14:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66379757&amp;ptid=2159415" target="_blank">翼宿一 发表于 2024-10-5 14:39</a>
+
+和祥子的拉黑相比，睦已经怀柔得不能再怀柔了吧（虽然也可能是因为学校的原因躲不掉） ...</blockquote>
+不拉黑就是愿意是吗，别太荒谬了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还有怀柔不是这么用的，你可以查一下字典
+
+*****
+
+####  御幸一也  
+##### 23898#       发表于 2024-10-5 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66379766&amp;ptid=2159415" target="_blank">翼宿一 发表于 2024-10-5 14:41</a>
+
+相比其他人躲爽世的状态，睦已经是最好欺负的那个了啊，甚至都没拉黑也没有刻意去躲 ...</blockquote>
+“最好欺負” 有點太典了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 23899#       发表于 2024-10-5 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66379761&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-10-5 14:40</a>
+
+感觉漏油还是铁暗恋二创入脑了
+
+睦虽然是好孩子，但是也没那么热脸贴冷屁股，第八集之前，都是爽世主动去 ...</blockquote>
+給CCC最好的臨終關懷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

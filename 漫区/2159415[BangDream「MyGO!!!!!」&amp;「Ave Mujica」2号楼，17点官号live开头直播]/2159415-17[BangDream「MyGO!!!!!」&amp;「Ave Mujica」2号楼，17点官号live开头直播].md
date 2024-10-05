@@ -2638,3 +2638,16 @@ crychic是爽世社交上的舒适圈，是她想要的并不是她真正需要�
 
 角色理解大相径庭大概率说不通，不能接受等明年吧，感觉漏油更好睦弱弱的那一口，喜欢这口的挺多的，不然去年也不会一堆打睦的图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 23915#       发表于 2024-10-5 15:41
+
+雖然B站有人傳了，如果有樓友需要
+
+前天廣播的源檔案：
+
+鷲崎健のヨナ×ヨナチャンネル【ゲスト〜 Ave Mujica 〜】.ts
+[https://drive.google.com/file/d/ ... 90/view?usp=sharing](https://drive.google.com/file/d/1iJybtzHEeUfIu82S-MwKKzpa1VGq1S90/view?usp=sharing)
+

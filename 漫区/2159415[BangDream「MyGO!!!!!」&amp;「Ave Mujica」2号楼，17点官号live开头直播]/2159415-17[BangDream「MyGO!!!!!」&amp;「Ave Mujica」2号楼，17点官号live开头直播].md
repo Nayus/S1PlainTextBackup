@@ -2651,3 +2651,19 @@ crychic是爽世社交上的舒适圈，是她想要的并不是她真正需要�
 鷲崎健のヨナ×ヨナチャンネル【ゲスト〜 Ave Mujica 〜】.ts
 [https://drive.google.com/file/d/ ... 90/view?usp=sharing](https://drive.google.com/file/d/1iJybtzHEeUfIu82S-MwKKzpa1VGq1S90/view?usp=sharing)
 
+
+*****
+
+####  [皆神孝介]  
+##### 23916#       发表于 2024-10-5 15:54
+
+下午刷新了一下就多了两页，还以为出了什么新情报<img src="https://static.saraba1st.com/image/smiley/face/57.gif" referrerpolicy="no-referrer">
+
+坛友们该说都差不多了，再对23841L坛友发言的看法吧
+
+个人认为第四话Soyo对睦那仿佛形势一片大好的发言其实隐瞒了她和祥子交涉并不顺利这点，导致睦认为Soyo对她说的话，Soyo对祥子也说过了
+
+所以第六话睦祥交流的时候，睦默认祥子是知道Soyo要邀请祥子的
+
+结果祥子以为Soyo在针对自己，到了第八话才清楚Soyo的打算
+

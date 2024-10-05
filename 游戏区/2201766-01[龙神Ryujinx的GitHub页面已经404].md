@@ -2425,3 +2425,18 @@ D加密問世10年，目前D加密遊戲一共只有255款。
 
 GBA模拟器是实机还没发售模拟器就完善了，有多影响GBA的销售？
 
+
+*****
+
+####  kerorokun  
+##### 215#       发表于 2024-10-5 08:46
+
+模拟器本身是无罪的（除非代码里有专利），别讨论偏了
+
+*****
+
+####  hisousihou  
+##### 216#       发表于 2024-10-5 08:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">Ryujin是用钱而不是法律搞定的，一开始也是从“道德”面去批判的
+

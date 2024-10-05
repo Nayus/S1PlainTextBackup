@@ -554,3 +554,14 @@ BOSS是虚无里的原生生物吧，而托力是三女神创造的，
 漏掉的复制品居然有三个，云、彼姆、坠眼怪。这么说真是啥都漏掉了。坠眼怪这个看起来很方便的东西居然一直 ...</blockquote>
 打完红绿虫之后回格鲁德皇宫旁边的训练场有惊喜<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冷泉夜月  
+##### 1527#       发表于 2024-10-5 08:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66377557&amp;ptid=2188108" target="_blank">ping117 发表于 2024-10-05 04:20:38</a>
+支线是靠游戏进度触发，但地图上不标感叹号，要整天跑回去看有没有支线也是挺麻烦的 ...</blockquote>王泪野炊也不标的呀，挺好的这样就没啥做清单的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

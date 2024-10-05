@@ -563,3 +563,13 @@ b会有直播吧。。就是不知道那个时候谁要播
 
 上海场eplus有直播的
 
+
+*****
+
+####  一个陆仁贾  
+##### 57#       发表于 2024-10-5 10:45
+
+只是直播的话阿b就有收费250的直播呀，同步中文应该是没有的，都看live直播了多少也能听懂的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

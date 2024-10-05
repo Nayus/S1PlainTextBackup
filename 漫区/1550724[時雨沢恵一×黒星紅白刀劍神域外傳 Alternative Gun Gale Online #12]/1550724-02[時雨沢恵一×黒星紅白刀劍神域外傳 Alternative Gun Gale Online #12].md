@@ -63,3 +63,19 @@ ED真好看，香莲不如也把头发留长点
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">中规中矩的第一集 看后面铁战斗如何表现
 
+
+*****
+
+####  mhss  
+##### 1887#       发表于 2024-10-5 10:47
+
+第一季内容基本忘光了，但是不妨碍这部的观感比桐人无双传强太多了
+
+*****
+
+####  ParadiseMartyr  
+##### 1888#       发表于 2024-10-5 10:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">pro哥两个月不打电动，照样血虐薯薯
+唉，这就是天赋的差距吗
+

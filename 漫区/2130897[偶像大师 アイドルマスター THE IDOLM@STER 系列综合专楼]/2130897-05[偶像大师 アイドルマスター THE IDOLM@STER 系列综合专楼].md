@@ -2555,3 +2555,33 @@ Day 1的安可也是一如既往的沒有MC環節... 咱也習慣了啊。
 
 小高真成祸害了
 
+
+*****
+
+####  七草にちか  
+##### 6512#       发表于 2024-10-5 20:42
+
+<img src="https://img.saraba1st.com/forum/202410/05/204202z7kj7jefenn7en0h.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2024-10-05_20-39-26.png</strong> (544.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 20:42 上传
+
+<img src="https://img.saraba1st.com/forum/202410/05/204201gssqdsssdg9hnqka.jpg" referrerpolicy="no-referrer">
+
+<strong>GZIHBgCaAAAfHxO.jpg</strong> (392.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 20:42 上传
+
+<img src="https://img.saraba1st.com/forum/202410/05/204200nc0rvzlq6lc3jjc6.jpg" referrerpolicy="no-referrer">
+
+<strong>GZIHBgCa4AA9Pws.jpg</strong> (180.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 20:42 上传
+

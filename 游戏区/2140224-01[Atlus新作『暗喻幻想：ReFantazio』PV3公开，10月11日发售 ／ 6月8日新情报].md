@@ -4810,3 +4810,19 @@ It takes about 80 hours to clear the story, or 100 hours with side activities
 
 女人不好看
 
+
+*****
+
+####  windtrack_qh  
+##### 1169#       发表于 2024-10-5 12:29
+
+话说这游戏港版是中日双语还是只有中文？
+
+
+*****
+
+####  はちたや  
+##### 1170#       发表于 2024-10-5 12:32
+
+好纠结，是原版开玩还是等一年以后完整版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

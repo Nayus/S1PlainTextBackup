@@ -2699,3 +2699,15 @@ crychic是爽世社交上的舒适圈，是她想要的并不是她真正需要�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  pipaopo  
+##### 23920#       发表于 2024-10-5 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66380115&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-10-5 16:02</a>
+没有，第六集睦说的是“爽世现在正在组乐队（今バンドをやってる），也邀请了我”，如果默认祥子知道，不 ...</blockquote>
+soyo也没跟睦说她跟祥子说了什么，睦大概不确定祥子知不知道。所以只陈述了她知道的情报。SOYO也没直接叫睦邀请，邀请这事本人邀才好。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

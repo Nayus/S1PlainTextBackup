@@ -3418,3 +3418,24 @@ PS5更新1.03了，微砍了刷波波
 想看看配装研究。大家都默认配出大鲸鱼+魔法追击嘛？ ...</blockquote>
 大鲸鱼是最优解，魔法本身可以给敌人上DEBUFF，而且幻水诗放在EX可以配出最实用的额外奖励，出0驱动、回EP、回BOOST、暴击都很实在，其他属性魔法这上面亏一点
 
+
+*****
+
+####  benhawk  
+##### 6256#       发表于 2024-10-5 17:31
+
+<blockquote>windtrack_qh 发表于 2024-10-5 17:25
+大鲸鱼是最优解，魔法本身可以给敌人上DEBUFF，而且幻水诗放在EX可以配出最实用的额外奖励，出0驱动、回E ...</blockquote>
+那本作有战技通用套路嘛？感觉还是魔法强势
+
+
+*****
+
+####  windtrack_qh  
+##### 6257#       发表于 2024-10-5 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66380620&amp;ptid=2160194" target="_blank">benhawk 发表于 2024-10-5 17:31</a>
+
+那本作有战技通用套路嘛？感觉还是魔法强势</blockquote>
+反正我NM难度都是靠魔法直接轰，战技主要是都是用辅助的回boost
+

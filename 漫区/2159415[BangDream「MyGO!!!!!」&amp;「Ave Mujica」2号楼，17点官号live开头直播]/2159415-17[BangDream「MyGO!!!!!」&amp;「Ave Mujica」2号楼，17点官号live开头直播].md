@@ -2729,3 +2729,34 @@ soyo也没跟睦说她跟祥子说了什么，睦大概不确定祥子知不知�
 
 说一点都不care那当然不至于，对前团拆团的负罪感确实是有的，看爽世找到真家觉得挺好的善意和同情也都是存在的
 
+
+*****
+
+####  pipaopo  
+##### 23922#       发表于 2024-10-5 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66380530&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-10-5 17:18</a>
+没什么暗中关注，网友yy睦暗中关注铁暗恋的那几话绫奈半个箭头都没给出来，大部分都是爽世主动去pua睦的
+
+ ...</blockquote>
+拿关系图说的话这图的只是第十集谁对谁的台词写上去而已。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  Aendst  
+##### 23923#       发表于 2024-10-5 17:35
+
+ 本帖最后由 Aendst 于 2024-10-5 17:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66380640&amp;ptid=2159415" target="_blank">pipaopo 发表于 2024-10-5 17:34</a>
+
+拿关系图说的话这图的只是第十集谁对谁的台词写上去而已。
+
+—— 来自 鹅球 v3.2.91 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我以前也在泥漏看到过一个突然冒出来的漏油大喊“访谈图一乐”
+
+箭头含义绫奈自己解释过，不同色的箭头那确实是有不同具体含义的
+
+另外海铃对立希的箭头上那句话可不是台词
+

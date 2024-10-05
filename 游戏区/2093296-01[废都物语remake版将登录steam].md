@@ -908,3 +908,14 @@ pv还行，就是小人移动有点难绷，史诗感一下子就没了<img src=
  快点端上来罢.jpg话说回来原作是多年前玩的，已经到宫殿的话这流程应该也走了大半了吧？还是说我记错了  以 ...</blockquote>
 刚做到宫殿的话连1/3都没
 
+
+*****
+
+####  酱油毛玉  
+##### 720#       发表于 2024-10-6 01:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66383524&amp;ptid=2093296" target="_blank">Vg_Fy 发表于 2024-10-6 01:22</a>
+
+咋了，啥打拳节奏</blockquote>
+就是贴吧去线下试玩的说见到的工作人员2/3是女的，被截图出去传播成整个制作组2/3是女的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

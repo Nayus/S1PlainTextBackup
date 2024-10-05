@@ -1643,3 +1643,20 @@ mujica一个团队需要这么好嘛？不如说有点感觉是不是她们没�
 
 我还是建议当成比较夸张的说法好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 23839#       发表于 2024-10-5 10:28
+
+一個pose連拍10張圖的話很容易達成<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yifan8848  
+##### 23840#       发表于 2024-10-5 10:30
+
+弄李兩人上廣播真的很可愛<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+四捨五入就當一集人偶集會了
+

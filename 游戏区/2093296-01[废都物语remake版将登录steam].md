@@ -587,3 +587,16 @@
 
 还不如做久点没锅可甩，如果做好了皆大欢喜，做不好可以直接骂不需要可惜
 
+
+*****
+
+####  astrayveller  
+##### 687#       发表于 2024-10-5 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66377994&amp;ptid=2093296" target="_blank">库德里尔 发表于 2024-10-5 09:26</a>
+这游戏采用的是所有角色都能获得经验的机制吧。
+是不是探图全靠正确的配队以及针对性组建队伍？我打的时候 ...</blockquote>
+续航和输出主要靠背板挖宝+采药+料理度过前期 后期有蓝巧克力彩虹鱼嗯造就能过
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

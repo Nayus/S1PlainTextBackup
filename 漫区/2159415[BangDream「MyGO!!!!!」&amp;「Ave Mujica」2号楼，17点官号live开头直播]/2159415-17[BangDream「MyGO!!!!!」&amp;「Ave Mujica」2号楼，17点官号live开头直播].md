@@ -1684,3 +1684,97 @@ mujica一个团队需要这么好嘛？不如说有点感觉是不是她们没�
 
 说到这里就不得不提有些烂梗爽睦迷惑发言的好笑之处了，这就是爽睦“铁暗恋”“只做爽世的传信鸽”的含金量吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  翼宿一  
+##### 23843#       发表于 2024-10-5 12:09
+
+<blockquote>七情七律 发表于 2024-10-5 11:50
+想请问下漏油怎么看关于素世准备邀请睦祥加入乐队的三段话。第四集的“先是灯和立希，然后也找到小祥了，原 ...</blockquote>
+虽然知道，但睦没有当面确认过，实际上是爽世单方面认为其他人都想复辟（包括睦），而祥子质问后睦则是没有给出肯定的回答（手游这里则是因为演出效果的限制，直接用台词给出了否定的回答）。
+
+理解为祥子试图让睦给爽世最后一击（此前爽世是近乎 PUA 地在利用睦），或者祥子想要知道睦的真实想法（是不是真想再组乐队）都可以。不过就算睦这里站爽世应该也是无法挽回祥子的，顶多是让祥子更讨厌自己，而且就是这样其实也不见得会被爽世多尊重一点……
+
+*****
+
+####  skives10  
+##### 23844#       发表于 2024-10-5 12:11
+
+祥子提问只是想确认睦的真实想法罢了
+睦的答案和她的预测也是一致的
+
+*****
+
+####  六道明  
+##### 23845#       发表于 2024-10-5 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66378707&amp;ptid=2159415" target="_blank">七情七律 发表于 2024-10-5 11:50</a>
+
+想请问下漏油怎么看关于素世准备邀请睦祥加入乐队的三段话。第四集的“先是灯和立希，然后也找到小祥了，原 ...</blockquote>
+因为第八集祥子是向睦提问的，详见游戏。
+
+<img src="https://img.saraba1st.com/forum/202410/05/121109w2depf72zew2vrej.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (242.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 12:11 上传
+
+<img src="https://img.saraba1st.com/forum/202410/05/121110r8hwtuh3gbb3vxzs.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (281.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 12:11 上传
+
+<img src="https://img.saraba1st.com/forum/202410/05/121110roagumgmztwmmzob.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (241.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 12:11 上传
+
+*****
+
+####  moras2694  
+##### 23846#       发表于 2024-10-5 12:12
+
+难得刷到个mygo二创，接近一百万播放，一看是上个月的。mygo完结后我就不怎么关注社区和二创了，mygo完结后是不是热度比之前还高啊？
+
+*****
+
+####  Aendst  
+##### 23847#       发表于 2024-10-5 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66378821&amp;ptid=2159415" target="_blank">翼宿一 发表于 2024-10-5 12:09</a>
+
+虽然知道，但睦没有当面确认过，实际上是爽世单方面认为其他人都想复辟（包括睦），而祥子质问后睦则是没 ...</blockquote>
+漏油的说法有个误区。实际上睦自始至终就没站过爽世，也不怎么在乎爽世怎么看自己，最后那句的可能性是完全不存在的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实你们只要多认真看看睦祥的对手戏，就会发现祥子确实不知道爽世要拉她回crychic的
+
+因为睦根本没说
+
+
+*****
+
+####  skives  
+##### 23848#       发表于 2024-10-5 12:16
+
+感觉动画里第八集犹豫的否定和第十三集坚定的加入也是一个对比
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|思路广|
+
+查看全部评分
+

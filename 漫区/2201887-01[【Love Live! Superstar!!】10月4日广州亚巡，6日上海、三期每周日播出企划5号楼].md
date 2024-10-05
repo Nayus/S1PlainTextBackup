@@ -697,3 +697,25 @@ emo pay 结那等人参演的朗读剧
 【[LoveLive 广州] NAKO：大宝贝、小宝贝、迷你宝贝-哔哩哔哩】 [https://b23.tv/oVri3cd](https://b23.tv/oVri3cd)
 <img src="https://p.sda1.dev/19/715a83c91967490639276d279914abc5/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 70#       发表于 2024-10-5 23:03
+
+nagi明显听懂了nako在说什么ww
+
+sayu还是懵的。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  starring  
+##### 71#       发表于 2024-10-5 23:12
+
+nagi笑得合不上嘴<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">迫害sayu方面继拍手歌的小朋友后又多了mini宝贝
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

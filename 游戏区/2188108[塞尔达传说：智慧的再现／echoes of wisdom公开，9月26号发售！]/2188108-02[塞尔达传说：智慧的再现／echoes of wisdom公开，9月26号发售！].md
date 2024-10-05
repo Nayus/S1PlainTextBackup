@@ -905,3 +905,15 @@ Amiibo还真慷慨，到了某个阶段后，第一次就能直接刷出三套�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  kuarwbwe  
+##### 1562#       发表于 2024-10-5 23:07
+
+这游戏锁定打束缚之战冰整的我血压爆炸直接骂娘。太恶心了，怎么想的。<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+冰迷宫音乐真好听。反正我是觉得这作音乐没楼里说的差的突破下限，还是很好的。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

@@ -715,3 +715,29 @@ BOSS是虚无里的原生生物吧，而托力是三女神创造的，
 
 还有如果boss加限制条件后能复制，变成一个斗兽游戏也还行（法环BvB那种）。按你塞的传统估计复制这种能力之后的作品也不会用了
 
+
+*****
+
+####  ping117  
+##### 1543#       发表于 2024-10-5 17:13
+
+穿不同衣服去找孔德说话会有不同对白<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+原来牛牛之前掉进去裂缝里被林克就过一次，不怪得能看到托力
+
+*****
+
+####  新HGCG  
+##### 1544#       发表于 2024-10-5 17:15
+
+沙漠里的蜈蚣虫有两条？
+
+*****
+
+####  ping117  
+##### 1545#       发表于 2024-10-5 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66380514&amp;ptid=2188108" target="_blank">新HGCG 发表于 2024-10-5 17:15</a>
+沙漠里的蜈蚣虫有两条？</blockquote>
+左右两边一只
+

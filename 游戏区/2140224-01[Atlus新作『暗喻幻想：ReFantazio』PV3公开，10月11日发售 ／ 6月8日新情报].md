@@ -4993,3 +4993,14 @@ C跟新；了，机板还没跟新.....
 
 画面确实有种ps3的美，大概是因为一个引擎吧，画面黄黄的
 
+
+*****
+
+####  NEIN  
+##### 1185#       发表于 2024-10-5 21:09
+
+【由住持本良敬典先生演唱的《暗喻幻想：ReFantazio》歌曲！-哔哩哔哩】 https://b23.tv/k6Zs2d7
+还真是和尚念经啊<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">不过bgm响起这段确实是醍醐味拉满了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

@@ -1319,3 +1319,14 @@ PS：除了每日一折付费单抽外，不建议在瓦尔吉普斯之夜外的
 
 如果以后抽卡机会多的话，建议只换ego，净化卡池。月计有时会送必得三星十连券，搞不好就new了呢。
 
+
+*****
+
+####  法拉  
+##### 907#       发表于 2024-10-5 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66378535&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2024-10-5 11:23</a>
+
+圣愚宝本身在震颤队算得力选手，万一下岗了也能和圣愚良在场下当幼稚辅助被动。他的ego低泣和下面那个能 ...</blockquote>
+谢谢，现在只能勉强组一队流血，但是有蝶箱和狂猎夫，我就换林顿虫了
+

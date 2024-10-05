@@ -1802,3 +1802,84 @@ mujica一个团队需要这么好嘛？不如说有点感觉是不是她们没�
 
 说到这个之前经常看见有人提睦对soyo的邀请也是模棱两可，没有明确的拒绝。但是我记得soyo在剧情里的说法一直是等人都找齐了再找你，她这里忽略了睦的真实意愿。睦估计也知道这句话的重点或者说前提在于祥子能回来，知道说什么也没用所以啥也没说，毕竟祥子也不可能回来嘛
 
+
+*****
+
+####  玖羽  
+##### 23852#       发表于 2024-10-5 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66378707&amp;ptid=2159415" target="_blank">七情七律 发表于 2024-10-5 11:50</a>
+
+想请问下漏油怎么看关于素世准备邀请睦祥加入乐队的三段话。第四集的“先是灯和立希，然后也找到小祥了，原 ...</blockquote>
+有一点很重要，第四集祥子已经知道爱音和爽世（当然还有灯）组乐队了，第六集从睦那里得到的信息是爽世要组乐队邀请了睦
+
+然后祥子的反应是：她是要讽刺（当てつけ）我吗？也就是说，祥子这个时候认为，爱音在爽世组的乐队里，所以不可能是复活Crychic
+
+然后第七集去看春日影发现这个乐队还包括立希和一个不认识的白毛，所以直到第八集之前祥子都认为爽世组乐队是为了报复她
+
+第八集名场面的前半段，祥子恐怕是真心觉得“你在说什么鬼”（你的言行是矛盾的）
+
+“啊？你还说你想让睦和我加入？我让你知道知道睦的想法”<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  NODY  
+##### 23853#       发表于 2024-10-5 12:55
+
+访谈都说了，爽姐其实是在逃课，她眼里只要把救世主祥子找回来，让c团复活的事祥子就能全部搞定，所以自然没考虑灯希睦怎么想，说只想着自己是没问题的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 23854#       发表于 2024-10-5 12:56
+
+ 本帖最后由 PDQ4 于 2024-10-5 12:59 编辑 
+
+这几段对话其实很有意思，首先爽世试图pua睦其实完全没生效
+
+这也直接导致了第八集和第十二集爽世对睦的不满，颇有种失败后直球攻击来挽尊的感觉
+
+其次睦被迫传话时隐去了爽姐邀请祥子这一信息
+
+按理来讲是导致祥子误解爽的罪魁祸首，但是第八集祥子就一句话确认后开始鼓包子脸，有种无奈的味，根本没对睦生气
+
+回看第八集的话也能发现那场三人戏虽然爽世夹在中间，但是睦除了最后爽世下跪，视线基本上是在看祥子
+
+尤其是祥子问睦，爽世再回头问睦那一段，能看到睦的头没有动
+
+这里除了爽世祥子交锋外，还有祥子训睦
+
+爽女士被信息差了，还夹在睦祥中间被混合双打，确实是有点惨中惨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还好有狗和爱音正面去戳去接纳她，不然这夹子面具当场被撕可能真要让她破防很久<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  玖羽  
+##### 23855#       发表于 2024-10-5 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66379188&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-10-5 12:56</a>
+
+这几段对话其实很有意思，首先爽世试图pua睦其实完全没生效
+
+这也直接导致了第八集和第十二集爽世对睦的不满 ...</blockquote>
+致命的信息差是，睦没告诉祥子爽世想复活Crychic，祥子在第八集以前一直以为爽世想组一个新乐队
+
+所以祥子对爽世一直没好脸，“MLGB的我就退个乐队你还没完了是吧还天天PUA睦想开我盒”<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 23856#       发表于 2024-10-5 13:02
+
+睦没告诉祥子soyo也邀请了祥子
+也是因为她知道祥子不可能回去吧
+
+*****
+
+####  Aendst  
+##### 23857#       发表于 2024-10-5 13:02
+
+破案了，原来爽世是铁血睦祥厨，默认找到其中一个另一个自动跟随<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -386,3 +386,29 @@
 
 期限还只有1个月...不知道结束前能不能换完
 
+
+*****
+
+####  quanlix  
+##### 14874#       发表于 2024-10-5 09:20
+
+这白方块重置券每种兑换道具只能用一次
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  eilot  
+##### 14875#       发表于 2024-10-5 11:48
+
+雖然飼料關體力大幅減少，但白紙化還是原本40???
+
+官方又忘記了嗎?
+
+*****
+
+####  v22325  
+##### 14876#       发表于 2024-10-5 12:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正白纸本不减半我就只打要超的
+

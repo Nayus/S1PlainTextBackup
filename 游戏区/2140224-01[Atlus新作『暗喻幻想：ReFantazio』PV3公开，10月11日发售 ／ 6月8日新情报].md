@@ -4870,3 +4870,11 @@ It takes about 80 hours to clear the story, or 100 hours with side activities
 
 查看全部评分
 
+
+*****
+
+####  godless2020  
+##### 1173#       发表于 2024-10-5 12:56
+
+C跟新；了，机板还没跟新.....
+

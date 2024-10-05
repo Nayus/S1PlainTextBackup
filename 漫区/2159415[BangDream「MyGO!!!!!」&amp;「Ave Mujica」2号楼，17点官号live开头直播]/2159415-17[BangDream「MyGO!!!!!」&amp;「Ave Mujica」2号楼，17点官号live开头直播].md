@@ -4384,3 +4384,68 @@ Ave Mujica几乎没有什么值得讨论的情报，最起码的，为什么一�
 
 那一个月就是84000……
 
+
+*****
+
+####  pipaopo  
+##### 24057#       发表于 2024-10-5 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66381925&amp;ptid=2159415" target="_blank">pipaopo 发表于 2024-10-5 20:36</a>
+这部片上下文对应可以说到偏执的地步了，自杀这个要素从第三集出现了，之后就没有提及，应该在mujica里会有 ...</blockquote>
+自杀也不是我先提的，就这片情况，我赌五毛mujica会再次提到这件事。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  Aendst  
+##### 24058#       发表于 2024-10-5 20:57
+
+东京最近大部分兼职时薪大概在1500円，18岁以下晚上十点就不能打工了
+
+结合羽丘部活前会弹钢琴来看，结束时间大概在下午16点
+
+按平均来看日均3小时，而且每日一般来说最多四小时，所以大体是3~4小时
+
+要满打满算可以更久，一周可以工作40小时
+
+所以祥子如果特别打工天神降临的话理论上一个月可以赚18w~24w日元
+
+和大学新卒收入差不多一个水平
+
+当然正常生活肯定不能这么拼命的……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 24059#       发表于 2024-10-5 21:00
+
+之前不是查过未成年人打工有时间限制吗，好像一周不能超过20小时还是多少，而且不能上夜班
+
+经济状况我倾向于祥爹有自己的经济来源，所以之前一年还能勉强生活，祥子打工目的可能是减轻负担或者不想用她爸的钱
+
+*****
+
+####  uhiuk  
+##### 24060#       发表于 2024-10-5 21:02
+
+<blockquote>pipaopo 发表于 2024-10-5 20:54
+自杀也不是我先提的，就这片情况，我赌五毛mujica会再次提到这件事。
+
+—— 来自 鹅球 v3.2.91 ...</blockquote>
+这样说的话对应的地方早就出现了吧，初华拉住差点摔下台阶的灯那里就是。后面同样看了笔记本认为是歌词，以及告诉灯要传达出来。三次都对应上了
+
+*****
+
+####  -LYRE-  
+##### 24061#       发表于 2024-10-5 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66381509&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-10-5 19:45</a>
+这个基本没可能，如果祥子的精神状态到了要自杀那一步，那只能说鸡会变成烂片中的烂片
+
+也别严肃向了，妥妥 ...</blockquote>
+灯皇唱歌包治百病<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+超能力+广播想起超炮幻想御手<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/e1f43ad8e368d155bb896e7fc5e192cb/image.jpg" referrerpolicy="no-referrer">
+

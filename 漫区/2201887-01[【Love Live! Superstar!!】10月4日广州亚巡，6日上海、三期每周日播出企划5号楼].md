@@ -643,3 +643,33 @@ emo pay 结那等人参演的朗读剧
 —— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 v3.0.0-alpha</blockquote>
 指隔壁在非动画专楼里，单独发动画相关的帖子，18那会每季度都有病的厉害的，所以戏称走廊发癫，专楼是病房<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csolfans  
+##### 65#       发表于 2024-10-5 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66382013&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-10-5 20:50</a>
+指隔壁在非动画专楼里，单独发动画相关的帖子，18那会每季度都有病的厉害的，所以戏称走廊发癫，专楼是病 ...</blockquote>
+找到了<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">谢谢
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  csolfans  
+##### 66#       发表于 2024-10-5 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66382013&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-10-5 20:50</a>
+指隔壁在非动画专楼里，单独发动画相关的帖子，18那会每季度都有病的厉害的，所以戏称走廊发癫，专楼是病 ...</blockquote>
+找到了<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">谢谢
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  cybernetics31  
+##### 67#       发表于 2024-10-5 20:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">10组人怕不是都去看live了，快不了的
+

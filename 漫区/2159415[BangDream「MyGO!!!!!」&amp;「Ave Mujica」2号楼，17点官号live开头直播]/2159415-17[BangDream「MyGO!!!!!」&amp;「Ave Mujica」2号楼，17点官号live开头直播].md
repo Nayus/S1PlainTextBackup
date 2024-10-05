@@ -4841,3 +4841,31 @@ Ave Mujica几乎没有什么值得讨论的情报，最起码的，为什么一�
 
 确实是有电视 一边喝asahi一边看电视 太屑了
 
+
+*****
+
+####  星天观测  
+##### 24095#       发表于 2024-10-5 22:49
+
+刚刚和群u激情讨论的时候甚至引申出了那为什么祥子没有换拖鞋这种问题<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 24096#       发表于 2024-10-5 22:52
+
+我是感觉祥子不太像长居的样子，啤酒罐数量过多/生活用具过度单薄/没有拖鞋/收纳数目也不多
+
+住是肯定会住的，但有些难以想象是长期每天都住
+
+*****
+
+####  好想看Mujica啊  
+##### 24097#       发表于 2024-10-5 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66381061&amp;ptid=2159415" target="_blank">pipaopo 发表于 2024-10-5 18:37</a>
+
+可能性太多了，不过及时是灯的歌换成信，谁会写剧本写写角色写送一封信没送出去，这信也不知道写了什么， ...</blockquote>
+邦邦确实有过一封信，不知道写了什么，也没送出去
+

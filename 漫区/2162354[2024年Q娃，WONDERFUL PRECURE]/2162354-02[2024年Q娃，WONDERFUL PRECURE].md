@@ -837,3 +837,14 @@ yysy，悟君确实在某种意义上分走了一些小麦的戏份，因为对�
 
 wonderful不是彩羽的口癖吗，和cure wonderful有什么关系啊，真紫主谈恋爱你个粉q来这儿干啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 2303#       发表于 2024-10-5 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66377390&amp;ptid=2162354" target="_blank">Parahure 发表于 2024-10-5 01:58</a>
+
+下一话标题里的wonderful是片假，小麦看不懂，看来以后是真的只有当电灯泡的份了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还真是，ep22和ep30的标题都是平假名
+

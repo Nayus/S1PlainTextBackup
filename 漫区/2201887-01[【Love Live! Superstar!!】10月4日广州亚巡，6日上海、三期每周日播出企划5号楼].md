@@ -719,3 +719,13 @@ nagi笑得合不上嘴<img src="https://static.saraba1st.com/image/smiley/face20
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
 
+
+*****
+
+####  奥柏伦亲王  
+##### 72#       发表于 2024-10-6 02:32
+
+不管小百合懂没懂这节目效果属实是拉满了，这段别出心裁的互动真有点梦回一期生时期了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

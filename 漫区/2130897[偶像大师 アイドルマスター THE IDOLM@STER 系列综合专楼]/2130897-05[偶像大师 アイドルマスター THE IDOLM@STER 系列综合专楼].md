@@ -2447,3 +2447,19 @@ shhis和卢卡真不该是你这混账动画做出来
 问问超越百万和cg了么</blockquote>
 敢情这是大逆转裁判1+2是吧
 
+
+*****
+
+####  lunaticfool  
+##### 6502#       发表于 2024-10-5 18:04
+
+<img src="https://p.sda1.dev/19/6236795938bf4891937ccef8a06afee5/IMG_CMP_1732733.jpeg" referrerpolicy="no-referrer">
+小高，你无敌了<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+*****
+
+####  陆久舟  
+##### 6503#       发表于 2024-10-5 18:04
+
+这特效也太土了
+

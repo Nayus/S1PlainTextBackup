@@ -2974,3 +2974,126 @@ soyo也没跟睦说她跟祥子说了什么，睦大概不确定祥子知不知�
 
 cp都来了，能不能就事论事啊
 
+
+*****
+
+####  pipaopo  
+##### 23941#       发表于 2024-10-5 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66380778&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-10-5 17:55</a>
+那麼，你是覺得
+
+『睦站祥子那边难道不是因为对方是自己从小到大的幼驯染外加知道对方现在的境遇的关心和 ...</blockquote>
+相处久了有感情是自然的，但我不认为睦坚定的站祥子没啥内情，我是互换论者
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+
+*****
+
+####  玖羽  
+##### 23942#       发表于 2024-10-5 18:02
+
+我觉得睦这个问题的关键是，睦的交际圈太小了，只有祥子和爽世，虽然被爽世疯狂PUA，但是祥子(黑)至少在表面上对睦的态度也不怎么样，再加上睦仅有的几次主动行动之一就是找灯帮爽世
+
+我认为：<strong>1）描写恋爱的重点，在于相互成就。2）相互成就的极致，是影响对方的人物弧光。</strong>
+
+再说一遍，这就是爱音和爽世CP感强的原因，诗超绊是灯平等地影响了其他四个人的人物弧光，但是在此之外，爱音又额外对爽世多影响了一点，仅仅多这么一点，就产生了这么强的CP感
+
+任何角色和睦CP的关键，一定是带睦走出人偶状态，反过来说，<strong>带睦走出人偶状态的角色，就是睦的CP</strong>，逻辑同上，等Ave Mujica演到那里，所有人都将不得不承认
+
+（这也是为什么会有“爱音和睦离结婚就差认识了”这个笑话，因为理论上爱音的确可以做到）
+
+这个角色很可能不是祥子，祥子的问题大到睦去救她还来不及，还是我以前在这个楼里分析的，根据上述理论，我认为Ave Mujica很可能是四拖一
+
+因为在救祥子（决定性地影响祥子的人物弧光）的过程中，四个人中的任何一个如果没有起到决定性作用，都一定会被边缘化，所以救祥子必须是四个人一起
+
+当然也绝对不能交给MyGO成员，否则Ave Mujica直接变小丑，MyGO成员顶多只是辅助
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Aendst| + 1|思路广|
+
+查看全部评分
+
+*****
+
+####  Aendst  
+##### 23943#       发表于 2024-10-5 18:03
+
+ 本帖最后由 Aendst 于 2024-10-5 18:04 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我翻译一下：有感情是因为相处久了，但也有可能有跟这两个人没关系硬把两个人扯在一起的内情呢，唉，<strong>都不一定</strong>
+
+绫奈自己说的关系图蓝色箭头是正面感情，那又如何，唉，都不一定，就是第十话台词总结而已，睦怎么会关心立希和灯
+
+但是睦一定在暗中关注关心爽世，你说剧场版删完了？唉，都不一定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 23944#       发表于 2024-10-5 18:05
+
+确实，扯到cp是我的问题，跟漏油道歉，偏题了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+我的观点一直是睦对爽世的关心，和对灯希的关心一样，都是出于拆团ccc导致的负罪感，谁犯病重，反应大，睦就多关注她一些
+
+而对祥子的感情则和这个无关，联系到两个人的过往，以前发生过什么
+
+你说对爽世有没有关心，那是有的
+
+你说有多关心，我觉得前七集都是爽世主动去pua睦（问祥子相关），我觉得看不出多特别关心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 23945#       发表于 2024-10-5 18:05
+
+是这样的，在交流后发现无法接受对方的观点时建议等官方的答案，如果官方答案还不满意可以去屎黄论坛的二创紫一起共振
+
+*****
+
+####  御幸一也  
+##### 23946#       发表于 2024-10-5 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66380832&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-10-5 18:03</a>
+
+我翻译一下：有感情是因为相处久了，但也有可能有跟这两个人没关系硬把两个人扯在一起的内情呢，唉，都不一 ...</blockquote>
+不僅監督劇場版刪完了，連啥都撿的綾奈都從未撿過，唉 都不一定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 23947#       发表于 2024-10-5 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66380826&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-10-5 18:02</a>
+
+我觉得睦这个问题的关键是，睦的交际圈太小了，只有祥子和爽世，虽然被爽世疯狂PUA，但是祥子(黑)至少在表 ...</blockquote>
+沒關係 我相信你邦幼馴染和同團的buff，應該至少比不同團的同班同學有希望一點吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 23948#       发表于 2024-10-5 18:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是，祥睦是官方钦定的“半身”啊，素睦有官方钦定吗？
+mujica里祥睦要么自救，要么靠别人救，而别人也只能是鸡团内部的，狗团的人打打辅助，如果祥睦都得靠狗团的人来，鸡团其他三个直接变小丑了
+
+*****
+
+####  御幸一也  
+##### 23949#       发表于 2024-10-5 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66380866&amp;ptid=2159415" target="_blank">akiomn 发表于 2024-10-5 18:06</a>
+
+不是，祥睦是官方钦定的“半身”啊，素睦有官方钦定吗？
+
+mujica里祥睦要么自救，要么靠别人救，而别人也只 ...</blockquote>
+沒有官方欽定，但有大主播欽定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

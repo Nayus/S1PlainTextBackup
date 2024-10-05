@@ -4934,3 +4934,16 @@ C跟新；了，机板还没跟新.....
 
 不知道正式版会不会有角色专用技，或者我看部分职业树T3职业是分叉的，可能会有专用职业一类的，不好说
 
+
+*****
+
+####  @lias  
+##### 1179#       发表于 2024-10-5 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66380035&amp;ptid=2140224" target="_blank">bluebirdy. 发表于 2024-10-5 15:46</a>
+
+主角我看每个职业都有独特被动技能，其他角色有这个东西吗。要是每个人技能都一样那到时候带队友不是带谁都 ...</blockquote>
+看coop似乎队友角色后期会解锁专属的被动
+
+比如番长就有对人的物理暴击率上升
+

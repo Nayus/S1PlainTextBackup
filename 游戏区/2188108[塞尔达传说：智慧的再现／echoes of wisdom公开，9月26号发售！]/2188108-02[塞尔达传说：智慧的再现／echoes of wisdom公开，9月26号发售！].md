@@ -942,3 +942,33 @@ Amiibo还真慷慨，到了某个阶段后，第一次就能直接刷出三套�
 拉聂尔神殿真带劲
 为什么不能每个都是这个水准（
 
+
+*****
+
+####  Losange  
+##### 1565#       发表于 2024-10-6 01:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怪物肝脏哪里比较多啊，做冰沙发现不够用了
+
+
+*****
+
+####  冷泉夜月  
+##### 1566#       发表于 2024-10-6 01:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66383467&amp;ptid=2188108" target="_blank">Losange 发表于 2024-10-06 01:01:45</a>
+怪物肝脏哪里比较多啊，做冰沙发现不够用了</blockquote>不用特意刷，去瞌睡道场打挑战会给一大堆<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  星野航  
+##### 1567#       发表于 2024-10-6 01:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66383075&amp;ptid=2188108" target="_blank">Yidam 发表于 2024-10-6 00:41</a>
+德库果的这个小剧情好像没什么人提，哪个干部经不起这样的考验.jpg</blockquote>
+这个你换不遮脸的衣服，会发现塞尔达一脸抑郁表情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

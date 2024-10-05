@@ -3576,3 +3576,15 @@ ZOC+增幅角色，开一个增幅就ZOC二动换下一个人，刷满BUFF，然
 假期还剩3天终于有空开打界轨了，结果这第一章就绷不住了，一群人走亲访友拉了整整3小时的家常 ...</blockquote>
 留着等界2吧...现在真不适合玩<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  椎名mahuyo  
+##### 6272#       发表于 2024-10-6 00:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到三章发现马桶加倍了 
+
+庭院真的很浪费时间 虽然有不少良心功能 但是和奖励绑定 S奖励你还基本要打两次 真的很打断剧情节奏 
+
+下次你加到通关后吧 你让我有空的时候专门打而不是过主线的时候硬插进来
+

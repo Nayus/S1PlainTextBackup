@@ -986,3 +986,11 @@ wonderful不是彩羽的口癖吗，和cure wonderful有什么关系啊，真紫
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">比新Q娃入队更期待明天，怎么回事呢
 
+
+*****
+
+####  成田良美  
+##### 2317#       发表于 2024-10-6 00:04
+
+悟的爱情是由悟自己来追求的，我只是起了引路人的作用<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -654,3 +654,17 @@ BOSS是虚无里的原生生物吧，而托力是三女神创造的，
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  ping117  
+##### 1537#       发表于 2024-10-5 15:18
+
+到后半找东西该怎样就怎样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+左键应该改成水块床这些用品
+右键怪兽
+下键弄个玩家自选召唤，玩家自己去标10个
+
+用脚都能想出来的方案，感觉是为了硬加那逼机关所以整成现在这吊样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -2605,3 +2605,36 @@ crychic是爽世社交上的舒适圈，是她想要的并不是她真正需要�
 
 借用某些作品的名台词，这是“真物”
 
+
+*****
+
+####  翼宿一  
+##### 23912#       发表于 2024-10-5 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66379890&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-10-5 15:12</a>
+
+漏油有点像B站下面的AI小助手了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 达不成共识但能看看别人的意见也是好事，只是我觉得我不应该再单方面爆典来刷版了
+
+*****
+
+####  星天观测  
+##### 23913#       发表于 2024-10-5 15:17
+
+有没有可能看法这种东西本来就是聊得来就聊聊不来就不聊，谁更有道理我以为在上网课
+
+
+*****
+
+####  PDQ4  
+##### 23914#       发表于 2024-10-5 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66379924&amp;ptid=2159415" target="_blank">翼宿一 发表于 2024-10-5 15:17</a>
+
+达不成共识但能看看别人的意见也是好事，只是我觉得我不应该再单方面爆典来刷版了
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这句话没有说你（）
+
+角色理解大相径庭大概率说不通，不能接受等明年吧，感觉漏油更好睦弱弱的那一口，喜欢这口的挺多的，不然去年也不会一堆打睦的图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

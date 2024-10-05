@@ -2405,3 +2405,15 @@ D加密問世10年，目前D加密遊戲一共只有255款。
 
 倒是输入延迟这点是模拟器最大的问题
 
+
+*****
+
+####  無始無終  
+##### 213#       发表于 2024-10-5 08:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66372158&amp;ptid=2201766" target="_blank">BotRondo 发表于 2024-10-4 10:51</a>
+十几年前是 2010 年，x360 or ps3 时代，首发 3a 游戏的定价是 60 刀，汇率是 6.8</blockquote>
+国内还能合法引进外国单机游戏时，游戏都是特殊定价的，根本不用汇率换算
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

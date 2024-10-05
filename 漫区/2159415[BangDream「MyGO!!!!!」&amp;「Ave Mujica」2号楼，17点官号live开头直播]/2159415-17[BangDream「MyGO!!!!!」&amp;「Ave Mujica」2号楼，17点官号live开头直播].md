@@ -3825,3 +3825,47 @@ mujica队内倘若要提到共犯关系，那当然不只是字面意思上的�
 
 别急，就像有些人说的，剑指剧场版后篇，说不定会有<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 24009#       发表于 2024-10-5 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66381319&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-10-5 19:19</a>
+
+（以下纯属推理，只图一乐，请当假药看）
+
+我昨天正好想过这个问题，那天祥子究竟在手机上看到了什么</blockquote>
+漏油这个爹对外不姓丰川有点意思，从来没考虑过新闻的可能<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+之前和朋友讨论过是比较典的，祥妈突发意外
+
+比如ccc要开live，祥子让妈赶过来看，结束了拿到手机才发现妈无了正在躺板板
+
+能合理解释为什么不玩乐队了（ptsd），为什么不能跟队友说（总不能讲我们乐呵呵的时候家里人去世了），性情大变（妈宝女丢了妈），祥爹颓废（冈 崎 朋 也）
+
+但是问题在于祥子看见消息后只是神色有异，如果是人身安全可能更急一些，
+
+如果是news确实可以是更合理的家庭变故
+
+不过这个猜想下我也觉得祥妈是早就去世的形象，因为祥子这边只有父亲露脸，母亲是缺位的，如果祥妈还活着，放着女儿住小破屋形象会非常难评<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 24010#       发表于 2024-10-5 19:32
+
+也许祥子的牢妈是个变态 或者是丰川家阁楼上的疯女人
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 星天观测|-1|要不你去屎黄论坛的二创紫共振？.|
+
+查看全部评分
+

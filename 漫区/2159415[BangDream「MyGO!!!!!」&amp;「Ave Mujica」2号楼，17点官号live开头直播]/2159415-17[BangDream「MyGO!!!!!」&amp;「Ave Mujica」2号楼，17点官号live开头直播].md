@@ -2866,3 +2866,111 @@ soyo也没跟睦说她跟祥子说了什么，睦大概不确定祥子知不知�
 
 還有劉海的米澤好可愛<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 23933#       发表于 2024-10-5 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66380720&amp;ptid=2159415" target="_blank">pipaopo 发表于 2024-10-5 17:46</a>
+
+目前是未确认的，不过片里这么多关于名字的暗示，素世改名，13集喵梦那串母子，初子等，没准丰川祥子即不 ...</blockquote>
+？
+
+半身幼馴染哪裡不確認了，祥子主動告知睦自己轉學羽丘哪裡不確認了
+
+樓友是訪談全部沒看還是全給否了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 23934#       发表于 2024-10-5 17:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉关系图千人千面，有利的时候你看都有箭头了，她们必定有染
+
+不利的时候就一个破台词图罢了
+
+独角兽的云朵图也是
+
+不过很喜欢你们讨论的时候总是找补一句，睦确实更在乎祥子，我cp就是这么真
+
+睦在乎祥子是因为两人是幼驯染
+
+睦为什么和爽世搭上关系我不知道，肯定不是因为祥子吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 23935#       发表于 2024-10-5 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66380736&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-10-5 17:49</a>
+
+？
+
+半身幼馴染哪裡不確認了，祥子主動告知睦自己轉學羽丘哪裡不確認了
+
+樓友是訪談全部沒看還是全給否了 ...</blockquote>
+可能是“访谈图一乐”的变种<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  桜庭千景  
+##### 23936#       发表于 2024-10-5 17:51
+
+我有个提议，谈分析就谈分析，脑假药就脑假药，混在一起容易驴唇不对马嘴
+
+*****
+
+####  pipaopo  
+##### 23937#       发表于 2024-10-5 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66380736&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-10-5 17:49</a>
+？
+
+半身幼馴染哪裡不確認了，祥子主動告知睦自己轉學羽丘哪裡不確認了
+
+樓友是訪談全部沒看還是全給否了 ...</blockquote>
+我说我后面对祥子的猜测是未确认
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+
+*****
+
+####  Aendst  
+##### 23938#       发表于 2024-10-5 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66380742&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-10-5 17:50</a>
+
+感觉关系图千人千面，有利的时候你看都有箭头了，她们必定有染
+
+不利的时候就一个破台词图罢了
+
+独角兽的云朵 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那还是比以前好了不少的
+
+以前都是“木箱不熟”“爽睦官配”
+
+*****
+
+####  御幸一也  
+##### 23939#       发表于 2024-10-5 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66380750&amp;ptid=2159415" target="_blank">pipaopo 发表于 2024-10-5 17:51</a>
+
+我说我后面对祥子的猜测是未确认
+
+—— 来自 鹅球 v3.2.91</blockquote>
+那麼，你是覺得
+
+『睦站祥子那边难道不是因为对方是自己从小到大的幼驯染外加知道对方现在的境遇的关心和保护行为吗』
+
+這句話是錯的，睦站祥子“僅僅只是因為負罪感”，從小一起長大的幼馴染？睦才不關心。是這樣嗎？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 23940#       发表于 2024-10-5 17:56
+
+cp都来了，能不能就事论事啊
+

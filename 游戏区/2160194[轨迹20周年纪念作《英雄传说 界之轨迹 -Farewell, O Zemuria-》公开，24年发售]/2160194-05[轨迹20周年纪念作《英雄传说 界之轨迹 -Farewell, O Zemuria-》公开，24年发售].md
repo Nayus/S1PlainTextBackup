@@ -3439,3 +3439,15 @@ PS5更新1.03了，微砍了刷波波
 那本作有战技通用套路嘛？感觉还是魔法强势</blockquote>
 反正我NM难度都是靠魔法直接轰，战技主要是都是用辅助的回boost
 
+
+*****
+
+####  红魔馆的糖  
+##### 6258#       发表于 2024-10-5 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66380620&amp;ptid=2160194" target="_blank">benhawk 发表于 2024-10-5 17:31</a>
+那本作有战技通用套路嘛？感觉还是魔法强势</blockquote>
+战技就是用高hit战技先开，然后加上奋起之类的buff和回cp技能首饰，用高加成的回路堆伤害
+
+战技也挺吊的，一堆buff怪。
+

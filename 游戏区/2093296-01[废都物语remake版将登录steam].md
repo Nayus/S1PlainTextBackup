@@ -886,3 +886,25 @@ pv还行，就是小人移动有点难绷，史诗感一下子就没了<img src=
 以 ...</blockquote>
 宫殿是很前期的地图
 
+
+*****
+
+####  Vg_Fy  
+##### 718#       发表于 2024-10-6 01:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66382945&amp;ptid=2093296" target="_blank">西弗 发表于 2024-10-5 23:24</a>
+
+快点端上来罢.jpg话说回来原作是多年前玩的，已经到宫殿的话这流程应该也走了大半了吧？还是说我记错了
+
+以 ...</blockquote>
+咋了，啥打拳节奏
+
+*****
+
+####  abbccc200  
+##### 719#       发表于 2024-10-6 01:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66382945&amp;ptid=2093296" target="_blank">西弗 发表于 2024-10-5 23:24</a>
+ 快点端上来罢.jpg话说回来原作是多年前玩的，已经到宫殿的话这流程应该也走了大半了吧？还是说我记错了  以 ...</blockquote>
+刚做到宫殿的话连1/3都没
+

@@ -972,3 +972,13 @@ Amiibo还真慷慨，到了某个阶段后，第一次就能直接刷出三套�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  kerbad  
+##### 1568#       发表于 2024-10-6 01:23
+
+打完又顺势通了梦见岛，说实话梦见岛的迷宫除了大鹫塔的跨层设计确实不错外也就那样吧，至少对我来说跟智现比起来无非是更大更绕和“哦”的区别
+
+智现这套还有续作的话感觉迷宫设计可以参考费罗尼神殿来，这个体验是真的不错<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

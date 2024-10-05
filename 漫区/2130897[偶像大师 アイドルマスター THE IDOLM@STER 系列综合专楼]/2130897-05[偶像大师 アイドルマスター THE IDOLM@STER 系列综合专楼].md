@@ -2392,3 +2392,15 @@ shhis和卢卡真不该是你这混账动画做出来
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">这一集哪里有改善了，抽帧也好bgm也好台词也好还是那么不知所谓，是说他们得了一种拍起源会死的病吗，加组合也从突然裤裆里掏出来，你这仨人哪里找来的都不用说一下，真就请回去重温页游剧情
 
+
+*****
+
+####  微尘众  
+##### 6497#       发表于 2024-10-5 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66379674&amp;ptid=2130897" target="_blank">安广多惠子 发表于 2024-10-5 14:22</a>
+这一集哪里有改善了，抽帧也好bgm也好台词也好还是那么不知所谓，是说他们得了一种拍起源会死的病吗，加组 ...</blockquote>
+答案是小高还是放在手游里了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+

@@ -2534,3 +2534,74 @@ soyo本身在于想要家一样的温暖存在，可以说缺爱小孩，她要�
 很明顯，他喜歡鐵暗戀，但樓友最恨大主播的鐵暗戀爛梗。</blockquote>
 在我看来睦非常明显是会最优先支持祥子的，对soyo的行为她也并不是全肯定bot，这样也要被说成是铁暗恋我只能说去同看法的小团体共振其实比较爽<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 23907#       发表于 2024-10-5 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66379807&amp;ptid=2159415" target="_blank">翼宿一 发表于 2024-10-5 14:51</a>
+
+从剧情的角度理解是需要一个角色给爽世那边搭校园的戏吧，而且这堆前队友里爽世是精神状态最需要担忧的 ...</blockquote>
+睦如果真圣母，当初就不会跟着祥子一起退团，留下来继续ccc明显对爽世更好
+
+睦很难办的，又不能直说ccc就是无了，不要再做梦，祥子说了爽世又不信
+
+真做绝了不就第八集提前大放送，爽姐提前嗷一声昏倒在月之森<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+虽然是大实话，那也有点太狠了
+
+如果不是祥子已经够不待见爽世，也说不出这种话<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  七情七律  
+##### 23908#       发表于 2024-10-5 15:09
+
+我总结了一下楼友的回复，主要是两种:1.认为祥第六集开始知道soyo想邀请睦祥，第八集是一种设问的感觉，让睦给否定的回复给soyo致命一击。2.认为睦第六集没有好好传达，祥不知道soyo要重组ccc并准备拉祥，第八集听了soyo的说法才知道因而更大情绪，问句是疑问句向睦确认。大家觉得哪个理解更有道理呢。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  PDQ4  
+##### 23909#       发表于 2024-10-5 15:12
+
+漏油有点像B站下面的AI小助手了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 23910#       发表于 2024-10-5 15:13
+
+ 本帖最后由 玖羽 于 2024-10-5 15:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66379839&amp;ptid=2159415" target="_blank">相坂君 发表于 2024-10-5 15:00</a>
+
+我理解是，soyo一直在夹在演，且只看到了自己。她没有想过问题本质，一昧的以自己觉得可行的方式行动，也 ...</blockquote>
+爽世想要的与其说是家庭，不如说是一种共同体感觉，也就是kirakiradokidoki的本质
+
+由于爽世从父母离婚以来就没有过，Crychic多少给了她一点她想要的，尽管是夹出来的，总比没有好
+
+所以她一直以为Crychic能给她的就是她能得到的上限，说来也是很可怜的
+
+直到音趴她才发现MyGO原来能给她这么多，想明白之后就对MyGO死心塌地了
+
+*****
+
+####  Aendst  
+##### 23911#       发表于 2024-10-5 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66379839&amp;ptid=2159415" target="_blank">相坂君 发表于 2024-10-5 15:00</a>
+
+我理解是，soyo一直在夹在演，且只看到了自己。她没有想过问题本质，一昧的以自己觉得可行的方式行动，也 ...</blockquote>
+crychic是爽世社交上的舒适圈，是她想要的并不是她真正需要的
+
+她的社交面具是用于适应社交环境的，已经是她习惯的一部分，crychic是她在习惯下最好融入的社交群体，所以会成为她的舒适圈（也就是说，可以让她在戴着面具的时候给她提供归属感）
+
+所以她会认为crychic很好很快乐，这是理所当然的，怀念甚至拘泥，也是有理可循的
+
+当她的社交面具不再适用，她真正不得不面对“如何寻求归属”和“个人的自我同一性”这两个问题时，她才能找到真正的归属和能接纳真正的长崎爽世的人，这才是她真正需要的
+
+借用某些作品的名台词，这是“真物”
+

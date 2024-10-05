@@ -2503,3 +2503,15 @@ Day 1的安可也是一如既往的沒有MC環節... 咱也習慣了啊。
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
 
+
+*****
+
+####  wfhtony  
+##### 6509#       发表于 2024-10-5 19:00
+
+ 本帖最后由 wfhtony 于 2024-10-5 19:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66381160&amp;ptid=2130897" target="_blank">lovekoishi 发表于 2024-10-5 18:52</a>
+
+成海瑠奈限时返场了？</blockquote>
+理論上是有宏觀鏡頭收錄進去了，但放大臉部的鏡頭應該是沒有放，至少直播回傳的鏡頭裏面沒有明顯看到。
+

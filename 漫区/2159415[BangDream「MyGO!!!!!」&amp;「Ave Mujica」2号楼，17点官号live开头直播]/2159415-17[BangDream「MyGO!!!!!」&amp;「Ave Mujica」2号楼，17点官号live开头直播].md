@@ -3600,3 +3600,101 @@ TGW物产
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 23990#       发表于 2024-10-5 18:59
+
+看多了这么多层数我还以为是我漏了什么重大情报（
+
+*****
+
+####  星天观测  
+##### 23991#       发表于 2024-10-5 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66381212&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-10-5 18:59</a>
+
+看多了这么多层数我还以为是我漏了什么重大情报（</blockquote>
+结果就是不知道是不是刚看完动画的来重复那些说烂了的东西
+
+不得不说漏油是真耐心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 23992#       发表于 2024-10-5 19:02
+
+救其实就有点偏离“一丘之貉”“共犯”这种关系了，不过也可能单纯是夸大
+
+之前也在泥漏说过，我还是更想看到鸡是一个自救故事，ave mujica是五个人用来宣泄自我的巨大舞台，关键时间点队友会提供支援
+
+如果某人犯了罪，送她进去改过自新等她出来是一种救赎，但是帮她闹更大，一起被通缉怎么就不算帮助了
+
+当然这是过激的说法，但我确实爱看后面这种关系性<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 23993#       发表于 2024-10-5 19:03
+
+话说3rd的e+网络票开了吗
+
+*****
+
+####  相坂君  
+##### 23994#       发表于 2024-10-5 19:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">灯救祥，爽救睦…平衡……
+这几楼看下来，这黑色的字越看越像「戏份」「crychic」等字眼
+这样，CCC占4集，MYGO占4集，鸡团爆炸占0.5集，狗救鸡3集，最后补偿MYGO的live0.5集好不好？
+
+
+*****
+
+####  星天观测  
+##### 23995#       发表于 2024-10-5 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66381227&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-10-5 19:03</a>
+
+话说3rd的e+网络票开了吗</blockquote>
+忘看日期了，总之开始宣传配信票，一场5500三场11000
+
+*****
+
+####  御幸一也  
+##### 23996#       发表于 2024-10-5 19:06
+
+救你是給你面子呢，洗腳的附屬團不要不知好歹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 23997#       发表于 2024-10-5 19:06
+
+不是已经有统计了吗
+13集之前 纯mujica成员互动的剧情只有12分钟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 23998#       发表于 2024-10-5 19:06
+
+<img src="https://img.saraba1st.com/forum/202410/05/190644ljka2dztw5dv2nqf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-10-05-19-05-54-04_76eaced432273cd65da1ec13409568ff.jpg</strong> (176.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 19:06 上传
+
+*****
+
+####  芸香科植物激推  
+##### 23999#       发表于 2024-10-5 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66381227&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-10-5 19:03</a>
+
+话说3rd的e+网络票开了吗</blockquote>
+开了，我都付完了<img src="https://static.saraba1st.com/image/smiley/face/159.jpg" referrerpolicy="no-referrer">
+

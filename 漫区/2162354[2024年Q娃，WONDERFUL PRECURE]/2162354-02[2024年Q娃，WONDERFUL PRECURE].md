@@ -951,3 +951,14 @@ wonderful不是彩羽的口癖吗，和cure wonderful有什么关系啊，真紫
 
 你们说明天 悟 他能 和彩羽牵上手吗
 
+
+*****
+
+####  pokemon最爱  
+##### 2313#       发表于 2024-10-5 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66381192&amp;ptid=2162354" target="_blank">新HGCG 发表于 2024-10-5 18:57</a>
+
+你们说明天 悟 他能 和彩羽牵上手吗</blockquote>
+能不能牵上手不好说，但明天他应该能成为彩羽的男朋友<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

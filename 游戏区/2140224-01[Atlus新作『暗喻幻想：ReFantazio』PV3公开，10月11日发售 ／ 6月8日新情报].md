@@ -4891,3 +4891,11 @@ C跟新；了，机板还没跟新.....
 4，有必要绕路么<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/19/381fa7ef3d05bf2caefedbd3b10b031f/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hkguty  
+##### 1175#       发表于 2024-10-5 14:59
+
+感觉好像跟smt系统没啥区别，所有同伴都可以换阿基态=换仲魔？
+

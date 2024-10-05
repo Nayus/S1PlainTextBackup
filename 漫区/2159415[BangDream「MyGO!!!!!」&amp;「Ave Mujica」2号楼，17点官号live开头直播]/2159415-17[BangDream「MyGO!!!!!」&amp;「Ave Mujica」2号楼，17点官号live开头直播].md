@@ -2473,3 +2473,64 @@ soyo本身在于想要家一样的温暖存在，可以说缺爱小孩，她要�
 
 或许你和跟你有同样看法的人来讨论会更愉快一些
 
+
+*****
+
+####  御幸一也  
+##### 23902#       发表于 2024-10-5 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66379820&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-10-5 14:55</a>
+
+说实话我看了半天，感觉你对睦这个角色的理解和一些漏油的理解不太一样，你们似乎也不太能接受对方的说法 ...</blockquote>
+很明顯，他喜歡鐵暗戀，但樓友最恨大主播的鐵暗戀爛梗。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  翼宿一  
+##### 23903#       发表于 2024-10-5 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66379820&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-10-5 14:55</a>
+
+说实话我看了半天，感觉你对睦这个角色的理解和一些漏油的理解不太一样，你们似乎也不太能接受对方的说法 ...</blockquote>
+是有点不在一个频道上，没有追番的习惯所以之前也没有接触过讨论环境，感觉话题是越带越偏了，之后我还是看大家聊就好了 <img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 23904#       发表于 2024-10-5 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66379807&amp;ptid=2159415" target="_blank">翼宿一 发表于 2024-10-5 14:51</a>
+
+从剧情的角度理解是需要一个角色给爽世那边搭校园的戏吧，而且这堆前队友里爽世是精神状态最需要担忧的 ...</blockquote>
+你这个角色理解<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我直白我来说，一些比较低门槛，不看访谈不仔细看动画还喜欢玩烂梗的圈子更适合你
+
+*****
+
+####  相坂君  
+##### 23905#       发表于 2024-10-5 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66379713&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-10-5 14:31</a>
+长期爽食导致的（无误
+
+爽世自从进入月之森以来的经验就是，夹和和稀泥能解决一切问题，她在Crychic和MyG ...</blockquote>
+我理解是，soyo一直在夹在演，且只看到了自己。她没有想过问题本质，一昧的以自己觉得可行的方式行动，也是一种逃避行为
+她错误的认为曾经的CCC是自己想要的，就算她在CCC期间并没有展现出真面目
+而且，soyo从来没有在祥子面前不夹过。第八话还在夹，那些放低姿态与祥子说的话，我认为真心含量可能不多，那些术话只是让CCC复辟的手段
+当祥子戳破她的面具，她才意识到自己的方式无用，从而破防迁怒睦
+当阿农找上门，她不得不直面无法逃避时，发现她可以不演不夹，甚至可以互戳痛脚
+
+很能理解农手这cp会被很多人喜欢，相性很好，还对对方门清<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 23906#       发表于 2024-10-5 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66379826&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-10-5 14:57</a>
+
+很明顯，他喜歡鐵暗戀，但樓友最恨大主播的鐵暗戀爛梗。</blockquote>
+在我看来睦非常明显是会最优先支持祥子的，对soyo的行为她也并不是全肯定bot，这样也要被说成是铁暗恋我只能说去同看法的小团体共振其实比较爽<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

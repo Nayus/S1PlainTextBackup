@@ -4957,3 +4957,16 @@ C跟新；了，机板还没跟新.....
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  windtrack_qh  
+##### 1181#       发表于 2024-10-5 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66380294&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-10-5 16:35</a>
+
+解包没所有职业信息么？就目前试玩里仅有的几个职业，就已经被开发出不同的牛头人打法了，等正式版出来更是 ...</blockquote>
+图书馆里全基础职业都告诉了你，就藏了一个？？？
+
+从职业树来看就是15个基础职业，剩下的都是进阶，有几个职业有进阶变体
+

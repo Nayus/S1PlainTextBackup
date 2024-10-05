@@ -872,3 +872,11 @@ wonderful不是彩羽的口癖吗，和cure wonderful有什么关系啊，真紫
 <img src="https://files.catbox.moe/ucpxmz.jpg" referrerpolicy="no-referrer">
 <img src="https://files.catbox.moe/9gvc4n.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 2305#       发表于 2024-10-5 11:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这个作监阵，作画回要来了吗
+

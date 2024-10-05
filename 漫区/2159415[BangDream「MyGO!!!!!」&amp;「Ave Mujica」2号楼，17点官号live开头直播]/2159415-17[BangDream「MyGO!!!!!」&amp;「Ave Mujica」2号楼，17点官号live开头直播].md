@@ -3698,3 +3698,63 @@ TGW物产
 话说3rd的e+网络票开了吗</blockquote>
 开了，我都付完了<img src="https://static.saraba1st.com/image/smiley/face/159.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  桜庭千景  
+##### 24000#       发表于 2024-10-5 19:12
+
+我个人是建议对“一丘之貉的共犯”这个存疑，
+
+从几个方面来说：
+
+第一最基本的，这个容易滑坡到“关系不熟”，
+
+第二，李子在访谈中的“你”其实有很大概率是对着观众说的，观众本身就是mujica乐队的共犯（这个设定在多处反复强调过）
+
+第三，如果只是互相帮助无需过问的关系，那其实mygo#13的出道乐队已经实现了，大家公事公办演人偶唱歌赚米就行，只要不炸团祥子的问题就不是问题。那这样mujica本篇写什么呢？关系毫无进步吗？
+
+第四，实际上队伍中本身已经出现了1.5个反例了，睦祥之间是互相知根知底的，初华也有很大动力去探查C团的过往，这三个之间的问题要解决就很难套进去共犯关系
+
+
+*****
+
+####  御幸一也  
+##### 24001#       发表于 2024-10-5 19:12
+
+[https://ib.eplus.jp/avemujica_3rd_st/](https://ib.eplus.jp/avemujica_3rd_st/)
+
+海外的還沒開吧，要10/8才開賣
+
+
+*****
+
+####  PDQ4  
+##### 24002#       发表于 2024-10-5 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66381227&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-10-5 19:03</a>
+
+话说3rd的e+网络票开了吗</blockquote>
+日本的开了
+[https://eplus.jp/avemujica_3rd/st/](https://eplus.jp/avemujica_3rd/st/)
+
+海外的还没开，等8号
+[https://ib.eplus.jp/avemujica_3rd_st/](https://ib.eplus.jp/avemujica_3rd_st/)
+
+具体看官网
+[https://bang-dream.com/events/avemujica_3rd](https://bang-dream.com/events/avemujica_3rd)
+
+*****
+
+####  rikaren  
+##### 24003#       发表于 2024-10-5 19:18
+
+谢谢漏油
+
+*****
+
+####  NODY  
+##### 24004#       发表于 2024-10-5 19:18
+
+觉得戏份会平衡补偿的，建议看看剧场版猫补满25分钟立希0秒都没有的情况清醒一下
+

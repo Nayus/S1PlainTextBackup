@@ -94,3 +94,14 @@ ED真好看，香莲不如也把头发留长点
 
 开头这op、枪声、台词搅在一起，烂一点的外放音响根本听不清什么是什么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  azbhg1  
+##### 1891#       发表于 2024-10-5 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66378382&amp;ptid=1550724" target="_blank">ParadiseMartyr 发表于 2024-10-5 10:53</a>
+pro哥两个月不打电动，照样血虐薯薯
+唉，这就是天赋的差距吗</blockquote>
+niko哥两个月不打，应该也能起个沙鹰把把爆我头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

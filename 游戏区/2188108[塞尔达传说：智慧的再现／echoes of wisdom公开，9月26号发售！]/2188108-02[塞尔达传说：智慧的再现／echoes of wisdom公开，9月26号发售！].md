@@ -861,3 +861,11 @@ MC开分还以为拉了，没想到还是符合我年度游戏的预期<img src=
 ——  ...</blockquote>
 火龙太坑了，有几个位置不能招蜥蜴战神，血厚得一批，发剑气剑都要掉皮了
 
+
+*****
+
+####  nma  
+##### 1557#       发表于 2024-10-5 20:14
+
+速通发现告示牌wrong warp的真是人才，不过也得益于传送的鲁棒性比较好，沙漠关错传到沙子下面正好进boss房太搞了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

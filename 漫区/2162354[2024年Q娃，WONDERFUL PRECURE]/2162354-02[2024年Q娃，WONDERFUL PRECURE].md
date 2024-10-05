@@ -962,3 +962,11 @@ wonderful不是彩羽的口癖吗，和cure wonderful有什么关系啊，真紫
 你们说明天 悟 他能 和彩羽牵上手吗</blockquote>
 能不能牵上手不好说，但明天他应该能成为彩羽的男朋友<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  成田良美  
+##### 2314#       发表于 2024-10-5 21:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+

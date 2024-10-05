@@ -4795,3 +4795,49 @@ Ave Mujica几乎没有什么值得讨论的情报，最起码的，为什么一�
 
 而且刚仔细看了下，祥子家应该是有电视的<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  玖羽  
+##### 24092#       发表于 2024-10-5 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66382576&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-10-5 22:20</a>
+
+来提点问题
+
+1，为什么祥子进门时外面的地面是这种常见室内木地板，如果这个房间的外面是一个室内空间，为什 ...</blockquote>
+アパート的一间，门外是公用的走廊
+
+这个地方在赤羽站附近，有一些很便宜的老破アパート
+
+类似这种：
+
+<img src="https://img.saraba1st.com/forum/202410/05/223816jrqfaq4jqj2541vx.jpg" referrerpolicy="no-referrer">
+
+<strong>8946.jpg</strong> (14.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 22:38 上传
+
+
+*****
+
+####  Aendst  
+##### 24093#       发表于 2024-10-5 22:43
+
+[https://web.canary-app.jp/chinta ... -a32e-06a8d81a566e/](https://web.canary-app.jp/chintai/rooms/c7477a0b-4537-42bd-a32e-06a8d81a566e/)
+
+这个感觉差不多
+
+外边的室内地板可能是因为走廊在室内，不过アパート走廊用室内木地板会比较常见吗？
+
+房子大门有玻璃确实有点奇怪
+
+*****
+
+####  skives10  
+##### 24094#       发表于 2024-10-5 22:43
+
+确实是有电视 一边喝asahi一边看电视 太屑了
+

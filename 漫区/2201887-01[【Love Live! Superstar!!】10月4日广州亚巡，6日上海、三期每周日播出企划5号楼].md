@@ -688,3 +688,12 @@ emo pay 结那等人参演的朗读剧
 
 反过来说打起来才好看的，赶紧分裂成四个小组，大赛给延期到剧场版口牙
 
+
+*****
+
+####  仟音一心  
+##### 69#       发表于 2024-10-5 22:43
+
+【[LoveLive 广州] NAKO：大宝贝、小宝贝、迷你宝贝-哔哩哔哩】 [https://b23.tv/oVri3cd](https://b23.tv/oVri3cd)
+<img src="https://p.sda1.dev/19/715a83c91967490639276d279914abc5/image.jpg" referrerpolicy="no-referrer">
+

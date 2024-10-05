@@ -1261,3 +1261,27 @@ PS：除了每日一折付费单抽外，不建议在瓦尔吉普斯之夜外的
 
 这浮浮看小图我还以为她带了个波奈特，幻视人偶妹<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  法拉  
+##### 905#       发表于 2024-10-5 09:35
+
+来请教一下漏油剩下这些有没有值得最后爆肝一波换掉的
+
+<img src="https://img.saraba1st.com/forum/202410/05/093458ba4g5z6dd1bdpdz6.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (47.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 09:34 上传
+
+<img src="https://img.saraba1st.com/forum/202410/05/093458to5ie0jm65r55r05.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (49.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 09:34 上传
+

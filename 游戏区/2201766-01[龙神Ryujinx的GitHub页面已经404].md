@@ -2448,3 +2448,15 @@ GBA模拟器是实机还没发售模拟器就完善了，有多影响GBA的销�
 
 如果新机用8nm的话虽然正版的体验会很差，但是又能被模拟器狂暴鸿儒看好戏好像也不错
 
+
+*****
+
+####  aritionkb  
+##### 218#       发表于 2024-10-5 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66368027&amp;ptid=2201766" target="_blank">nozomitech 发表于 2024-10-3 17:31</a>
+我想问一下担心没有盗版就会导致当任天堂下架现有的Eshop服务器很多游戏就再也玩不到了，这点我可以理解。 ...</blockquote>
+这种网游关服可以说是最坏的。好在大多数游戏也没有多大意思
+
+— from meizu MEIZU 20 Pro, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

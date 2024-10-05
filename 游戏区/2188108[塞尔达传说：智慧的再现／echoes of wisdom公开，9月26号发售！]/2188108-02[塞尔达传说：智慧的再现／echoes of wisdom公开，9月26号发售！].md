@@ -565,3 +565,35 @@ BOSS是虚无里的原生生物吧，而托力是三女神创造的，
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  一个陆仁贾  
+##### 1528#       发表于 2024-10-5 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66377448&amp;ptid=2188108" target="_blank">downnote 发表于 2024-10-5 02:31</a>
+漏掉的复制品居然有三个，云、彼姆、坠眼怪。这么说真是啥都漏掉了。坠眼怪这个看起来很方便的东西居然一直 ...</blockquote>
+你说的冰迷宫那个房间，传统解法是开热风拿到水下的钥匙，再开冷风冻结后水面拿沉重石堵住火喷口
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+
+*****
+
+####  一个陆仁贾  
+##### 1529#       发表于 2024-10-5 09:33
+
+看视频瞌睡道场的boss连战极居然可以到5分钟以内，就是需要背版boss位置。流程里面最久的果然是火龙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  heseran  
+##### 1530#       发表于 2024-10-5 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66377448&amp;ptid=2188108" target="_blank">downnote 发表于 2024-10-5 02:31</a>
+
+漏掉的复制品居然有三个，云、彼姆、坠眼怪。这么说真是啥都漏掉了。坠眼怪这个看起来很方便的东西居然一直 ...</blockquote>
+沙漠打掉两个虫能去沙漠兵营里接任务。
+

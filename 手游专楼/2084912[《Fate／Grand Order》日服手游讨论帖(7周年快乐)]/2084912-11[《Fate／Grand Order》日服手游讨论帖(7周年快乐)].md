@@ -581,3 +581,11 @@ c呆什么技能组，第二部的女同事就来碰瓷，还天天锁前排折�
 
 自选里没啥XP角了所以很纠结是拿剧情限定的梅芙还是副位输出拐的太公望，两个都不错啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 14894#       发表于 2024-10-6 20:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/243.gif" referrerpolicy="no-referrer">无情的强度党选了太公望 
+

@@ -5178,3 +5178,11 @@ bgm太对味了，目黑还是牛逼
 
 画面观感太脏了，3080在PC上跑还不如switch上的塞尔达糖豆人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  otaku21126  
+##### 1202#       发表于 2024-10-6 20:14
+
+貌似实体盘已偷跑
+

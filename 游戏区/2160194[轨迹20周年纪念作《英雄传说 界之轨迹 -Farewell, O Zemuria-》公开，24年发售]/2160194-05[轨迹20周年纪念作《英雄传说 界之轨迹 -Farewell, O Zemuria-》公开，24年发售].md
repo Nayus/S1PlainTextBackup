@@ -3741,3 +3741,26 @@ ZOC+增幅角色，开一个增幅就ZOC二动换下一个人，刷满BUFF，然
 拉比斯怀上了，下一作明年的话怕是来不及了吧</blockquote>
 好好好。我堂堂帝国贵族不至于绝后2333
 
+
+*****
+
+####  卡拉德利姆  
+##### 6287#       发表于 2024-10-6 21:04
+
+庭院第九层完全可以做成通关后内容啊 这马上就要最后一步了突然拉了坨大的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Kusabi  
+##### 6288#       发表于 2024-10-6 21:10
+
+庭院后半段可以不打，也可调EASY速通，对于庭院的抱怨我不能理解<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  windtrack_qh  
+##### 6289#       发表于 2024-10-6 21:14
+
+庭院最后藏了一段挺核心的剧情，还是打一下吧，也不用打S，这次SPAAA绰绰有余
+

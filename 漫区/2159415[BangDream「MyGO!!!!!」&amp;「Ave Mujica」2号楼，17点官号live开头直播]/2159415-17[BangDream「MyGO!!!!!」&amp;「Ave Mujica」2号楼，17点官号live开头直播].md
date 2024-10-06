@@ -7467,3 +7467,59 @@ mujica2nd的bd资源也有了，闲着没事可以去看看mc中二话剧，感�
 
 这张图四个小人偶变大了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 24306#       发表于 2024-10-7 00:06
+
+ 本帖最后由 Aendst 于 2024-10-7 00:07 编辑 
+
+这部分是今年7月份才更新的，在此之前这个页面没有关于mujica动画的介绍
+
+同页面mygo动画的介绍是去年六月~七月更新的，图片和介绍文本都没有再变更过
+
+*****
+
+####  NODY  
+##### 24307#       发表于 2024-10-7 00:08
+
+以命运为主题的话我怀疑可能真要参考ppp初设，也就是老一辈的乐队阴差阳错继承给了现在的乐队
+
+比如父母或者乐器老师其实是某个乐队的成员，初祥小时候在小岛遇到某个乐队人开启了乐队梦想相约长大后一起组乐队之类的
+
+*****
+
+####  NODY  
+##### 24308#       发表于 2024-10-7 00:11
+
+<img src="https://img.saraba1st.com/forum/202410/07/001119cmc7em6aujhjc7km.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQkci-z69ZlT1kShs-124.jpg</strong> (129.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-7 00:11 上传
+
+
+*****
+
+####  星天观测  
+##### 24309#       发表于 2024-10-7 00:13
+
+这个鞋底厚度差<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 24310#       发表于 2024-10-7 00:14
+
+好愛，怎麼wds的都去看了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 24311#       发表于 2024-10-7 00:14
+
+确实 提到命运就难免让人想到小时候的约定啊 遗忘的重要事物啊 血缘啊 超能力元素啊……
+

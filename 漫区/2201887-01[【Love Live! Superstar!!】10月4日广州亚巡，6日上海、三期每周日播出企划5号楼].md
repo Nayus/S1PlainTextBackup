@@ -1329,3 +1329,11 @@ TVアニメ『ラブライブ！スーパースター!!』3期OPのコンセプ�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  stygian  
+##### 131#       发表于 2024-10-7 00:13
+
+香千河边对话时候的BGM贼圣诞快乐劳伦斯先生<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

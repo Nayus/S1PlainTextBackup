@@ -1119,3 +1119,13 @@ pv还行，就是小人移动有点难绷，史诗感一下子就没了<img src=
 
 独立游戏跳票也正常，成熟的组都能一拖再拖，更何况是完全没有制作经验的天闻角川<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大暗月  
+##### 741#       发表于 2024-10-7 00:11
+
+不过重制版消息出来之后刷到的二创啥的确实是女玩家很多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有点意外
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

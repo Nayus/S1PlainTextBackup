@@ -532,3 +532,13 @@ c呆什么技能组，第二部的女同事就来碰瓷，还天天锁前排折�
 
 換了仇尼就算了
 
+
+*****
+
+####  サイトヒメア  
+##### 14888#       发表于 2024-10-6 17:53
+
+纠结了一会儿选了个果心<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

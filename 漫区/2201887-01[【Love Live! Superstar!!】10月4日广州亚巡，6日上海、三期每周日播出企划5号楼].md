@@ -976,3 +976,39 @@ nico好像得要半天还是一天才能出吧
 
 再听了一遍确实和解op和ed了。我已经是结晶了.jpg已经期待在演唱会会怎么唱了
 
+
+*****
+
+####  ads147147  
+##### 99#       发表于 2024-10-6 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386834&amp;ptid=2201887" target="_blank">仟音一心 发表于 2024-10-6 17:31</a></blockquote>
+很好奇鼓子是哪个路人，完全没意识到。
+
+*****
+
+####  离心  
+##### 100#       发表于 2024-10-6 17:57
+
+<blockquote>ads147147 发表于 2024-10-6 17:52
+很好奇鼓子是哪个路人，完全没意识到。</blockquote>
+看拉片好像是这个黑毛
+
+<img src="https://img.saraba1st.com/forum/202410/06/175713svqccltlr11q6f11.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-10-06-17-56-32-659_tv.danmaku.bili.jpg</strong> (389.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-6 17:57 上传
+
+*****
+
+####  ΣPRC  
+##### 101#       发表于 2024-10-6 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386732&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-10-6 17:16</a>
+
+妈逼的还想继续祸害剧场版？真想问问企划，花田是你爹啊？</blockquote>
+虽然但是，花田好像确实是LL这个企划的爹（之一）
+

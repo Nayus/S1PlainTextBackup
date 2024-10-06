@@ -453,3 +453,13 @@ Touhou Artificial Dream in Arcadia ...</blockquote>
 
 —— 来自 HUAWEI MGA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  zzy516232108  
+##### 46#       发表于 2024-10-6 17:47
+
+这也能出手游的吗
+
+该看看了
+

@@ -2658,3 +2658,13 @@ Day 1的安可也是一如既往的沒有MC環節... 咱也習慣了啊。
 
 2024-10-6 18:22 上传
 
+
+*****
+
+####  Alleyht  
+##### 6519#       发表于 2024-10-6 20:59
+
+没想到文春炮NETA让铃木GRAD给用了，我还以为会在IF池里搞事情，这下汗流浃背了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+鉴于黑星剧情里闪P一贯的空气人作风，这波满满的烂活预感，我先投降了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

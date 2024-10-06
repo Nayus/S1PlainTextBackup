@@ -6965,3 +6965,20 @@ MyGO则是给爽世一桌丰盛的大餐，对她来说方便面已经不算什�
 
 因为有了mygo，爽世才会是现在这个样子的
 
+
+*****
+
+####  CyDiablo  
+##### 24266#       发表于 2024-10-6 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66387477&amp;ptid=2159415" target="_blank">-LYRE- 发表于 2024-10-6 19:24</a>
+你来“鸡粉怨妇楼”大聊特聊go手游就很奇怪啊
+Ave进手游起码得半年后了，不怎么关注手游剧情很奇怪吗？
+ ...</blockquote>
+你先搞清楚热度归热度，跟手游做了什么是两件完全不一样的事。你看了多少mygo的路边小对话，游戏后对话，卡面剧情，活动剧情，季节节日对话来和我聊这个。
+我再说一遍，mygo现在的手游内容太少了，还没到能谈手游官推的程度。
+
+而且这次是其他楼友为了论证自己观点先提的手游go并提出观点，我认为针对手游go的部分说的不对才发言反对。
+
+最后啊，我之前就有往楼里转一点mygo的手游情报，等你变成楼主把标题的「BangDream」和「mygo」删了我自然不会自讨没趣，现在你凭什么不让我说话，好大的官威啊，你是楼主吗，你是版主吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

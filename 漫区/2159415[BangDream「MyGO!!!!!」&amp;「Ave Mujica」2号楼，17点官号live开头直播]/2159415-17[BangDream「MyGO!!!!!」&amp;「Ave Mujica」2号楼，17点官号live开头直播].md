@@ -6770,3 +6770,13 @@ ok，那最低期望就是把4th的图放出来吧，现在跟萝一起宣传武
 偶尔零星见到给喵梦时常被代餐论骑脸抱怨的，还能看到某些恬不知耻“说你是代餐是给你带讨论度，不要不知好歹”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 明年喵梦人气如果能起来，不知道能不能看到清算时间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 24249#       发表于 2024-10-6 19:03
+
+代餐论纯纯sb啊，从来都没尊重过角色
+
+要清算的话感觉会此恨绵绵无绝期，明年再看吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

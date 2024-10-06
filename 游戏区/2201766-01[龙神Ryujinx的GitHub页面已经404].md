@@ -2539,3 +2539,20 @@ lockpick, dolphin, yuzu, yuzu forks, 现在是 ryujinx。之前每一次，不�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  hisousihou  
+##### 225#       发表于 2024-10-6 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66385788&amp;ptid=2201766" target="_blank">cgpasia 发表于 2024-10-6 14:38</a>
+
+但是这种给制作者塞钱的让他停止开发的事该怪塞钱方还是收钱方</blockquote>
+此楼最大的问题也在这，某些人应该先想清楚到底讲法律还是讲道德
+
+模拟器合法，然而龙神和任天堂的协议也合法。
+
+正版玩家道义上谴责盗版和模拟器，模拟器玩家道义上谴责任天堂
+
+然而大部分时候是选择性都要，总之先双标再说
+

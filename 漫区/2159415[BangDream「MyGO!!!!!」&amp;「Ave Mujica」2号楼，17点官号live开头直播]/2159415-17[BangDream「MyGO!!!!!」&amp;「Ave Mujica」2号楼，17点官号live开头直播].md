@@ -5085,3 +5085,69 @@ c团的部分，你这样理解了，说明你的看法跟这楼部分活跃漏�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  Sherrycat  
+##### 24115#       发表于 2024-10-6 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66384837&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-10-6 11:22</a>
+不得体都来了，能不能好好看看访谈内容怎么写的
+
+c团的部分，你这样理解了，说明你的看法跟这楼部分活跃漏 ...</blockquote>
+好的 谢谢指正 只是刚看完之后一些拙见 让大家笑话了 我的 给大家道歉了🙇
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Sherrycat  
+##### 24116#       发表于 2024-10-6 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66384875&amp;ptid=2159415" target="_blank">skives 发表于 2024-10-6 11:28</a>
+衣服旧了而已 喵梦对时尚那么敏感 肯定能看出来的
+这观点 soyo厨要被气死了 ...</blockquote>
+好的 谢谢指正 无意对soyo提出批评 soyo也是我很喜欢的角色 对可能伤害到的各位抱歉 只是觉得她对c团这个概念的执念很深或者说一个c团的灵魂在soyo身上飘荡  
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lhbb9988  
+##### 24117#       发表于 2024-10-6 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66379906&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-10-5 15:15</a>
+crychic是爽世社交上的舒适圈，是她想要的并不是她真正需要的
+
+她的社交面具是用于适应社交环境的，已经是 ...</blockquote>
+感谢解惑，我之前对素世在两团之间的差异性表现虽有模糊的定位但确实无法做到这般精确的表述。社交面具下的舒适圈这词确实精确，很好的总结了素世为什么能保持夹的情况下还那么喜欢ccc。
+
+不过我认为真物这一词还稍微有些不妥。mygo是素世社交面具破碎下愿意继续改变继续前进的归宿不假，但如果就此否认社交面具下的素世就不是素世本性的一面，ccc只能算作素世虚假的归宿，我觉得就会有失偏颇了。
+
+*****
+
+####  星天观测  
+##### 24118#       发表于 2024-10-6 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66384911&amp;ptid=2159415" target="_blank">Sherrycat 发表于 2024-10-6 11:34</a>
+
+好的 谢谢指正 只是刚看完之后一些拙见 让大家笑话了 我的 给大家道歉了🙇
+
+—— 来自 S1Fun ...</blockquote>
+这个动画已经出了一年多，有过非常疯狂且长时间的讨论和脑洞期，现在基本都是在等母鸡卡动画出来的状态，所以很多东西对于刚看完的人来说觉得很奇妙，但是大火都讨论过不少次了也不想轮回，难免无法一起热情讨论
+
+至于对剧情的理解，各有各的看法，如果对母鸡卡动画有兴趣可以等1月动画播出，或许会解答一些现在的疑惑，产生一些新的看法
+
+
+*****
+
+####  Sherrycat  
+##### 24119#       发表于 2024-10-6 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66384893&amp;ptid=2159415" target="_blank">Milarvoz 发表于 2024-10-6 11:31</a>
+原来是警告吗不可思议。
+那句我认为是soyo人物弧光的点睛之笔了。与其说是对tomorin说的，倒不如说是soyo对 ...</blockquote>
+对话前半部分我觉得确实是释然 其实我觉得从她拒绝睦头的黄瓜就是确认再也回不去了 某种程度上睦头🟰祥子 （毕竟她也不能直接联系上祥子） 拒绝睦头的黄瓜等于对祥那边不再执着了 （可能是我想太多了吧……受“重”影响太深了 做了一些不合适推论 感谢漏油批评指正）
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

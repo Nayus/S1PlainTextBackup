@@ -1044,3 +1044,16 @@ Amiibo还真慷慨，到了某个阶段后，第一次就能直接刷出三套�
 
 有床和飞板谁用那玩意儿啊
 
+
+*****
+
+####  星野航  
+##### 1574#       发表于 2024-10-6 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66385501&amp;ptid=2188108" target="_blank">DARK_HGCG 发表于 2024-10-6 14:24</a>
+
+云简直是鸡肋中的鸡肋
+
+有床和飞板谁用那玩意儿啊</blockquote>
+火山有两个地方我记得用云方便很多，飞板角度过不去，床不够长
+

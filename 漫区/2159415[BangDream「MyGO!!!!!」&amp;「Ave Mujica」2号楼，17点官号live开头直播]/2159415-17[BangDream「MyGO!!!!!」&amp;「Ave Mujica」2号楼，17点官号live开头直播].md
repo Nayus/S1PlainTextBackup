@@ -7447,3 +7447,23 @@ mujica2nd的bd资源也有了，闲着没事可以去看看mc中二话剧，感�
 オリジナル
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives  
+##### 24305#       发表于 2024-10-6 23:59
+
+ 本帖最后由 skives 于 2024-10-7 00:01 编辑 
+
+"運命"のお話 听起来还是很棒的<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202410/07/000106c33enn9ac43vqvnb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3723.jpeg</strong> (74 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-7 00:01 上传
+
+这张图四个小人偶变大了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

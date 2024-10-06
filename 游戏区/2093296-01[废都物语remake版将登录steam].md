@@ -1099,3 +1099,23 @@ pv还行，就是小人移动有点难绷，史诗感一下子就没了<img src=
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  大暗月  
+##### 739#       发表于 2024-10-6 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66389243&amp;ptid=2093296" target="_blank">kuarwbwe 发表于 2024-10-6 23:51</a>
+目前我担心的两个。一个是作为一个独立游戏他从预告整到现在两年多了，而且要真是25年年底发售那就是3年。 ...</blockquote>
+没什么经验的团队越做发现坑越多然后计划delay太常见了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+
+*****
+
+####  Hqchan  
+##### 740#       发表于 2024-10-7 00:04
+
+独立游戏跳票也正常，成熟的组都能一拖再拖，更何况是完全没有制作经验的天闻角川<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

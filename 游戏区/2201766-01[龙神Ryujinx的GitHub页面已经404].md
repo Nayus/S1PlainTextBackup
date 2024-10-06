@@ -2515,3 +2515,27 @@ lockpick, dolphin, yuzu, yuzu forks, 现在是 ryujinx。之前每一次，不�
 
 但是这种给制作者塞钱的让他停止开发的事该怪塞钱方还是收钱方
 
+
+*****
+
+####  schneehertz  
+##### 224#       发表于 2024-10-6 15:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66385788&amp;ptid=2201766" target="_blank">cgpasia 发表于 2024-10-6 14:38</a>
+但是这种给制作者塞钱的让他停止开发的事该怪塞钱方还是收钱方</blockquote>
+一个给钱，一个收钱，旁人能说什么
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+
+*****
+
+####  schneehertz  
+##### 224#       发表于 2024-10-6 15:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66385788&amp;ptid=2201766" target="_blank">cgpasia 发表于 2024-10-6 14:38</a>
+但是这种给制作者塞钱的让他停止开发的事该怪塞钱方还是收钱方</blockquote>
+一个给钱，一个收钱，旁人能说什么
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

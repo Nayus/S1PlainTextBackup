@@ -5120,3 +5120,19 @@ C跟新；了，机板还没跟新.....
 
 现在有高级阿基态形态的图吗，要是都这几个初级的样子也太菜了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  walfeds  
+##### 1197#       发表于 2024-10-6 15:06
+
+刚看到直播里pmm来上海线下场了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">原来还没打体验版在等发售前再打
+
+
+*****
+
+####  walfeds  
+##### 1197#       发表于 2024-10-6 15:06
+
+刚看到直播里pmm来上海线下场了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">原来还没打体验版在等发售前再打
+

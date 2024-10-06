@@ -2668,3 +2668,17 @@ Day 1的安可也是一如既往的沒有MC環節... 咱也習慣了啊。
 
 鉴于黑星剧情里闪P一贯的空气人作风，这波满满的烂活预感，我先投降了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oznark  
+##### 6520#       发表于 2024-10-6 21:52
+
+<img src="https://img.saraba1st.com/forum/202410/06/065151ky6xbbyzyba458b5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (347.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-6 21:51 上传
+

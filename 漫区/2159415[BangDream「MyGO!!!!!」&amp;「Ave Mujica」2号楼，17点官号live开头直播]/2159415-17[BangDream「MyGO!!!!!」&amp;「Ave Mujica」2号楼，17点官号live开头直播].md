@@ -7130,3 +7130,33 @@ Ave进手游起码得半年后了，不怎么关注手游剧情很奇怪吗？
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  PDQ4  
+##### 24278#       发表于 2024-10-6 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66388365&amp;ptid=2159415" target="_blank">pipaopo 发表于 2024-10-6 21:44</a>
+
+鉴于素世对她老妈是夹的总不能说是虚伪的，我更倾向认为素世想对人好的时候自然就是夹的
+
+—— 来自 鹅球 ...</blockquote>
+一般来讲，这种姿态产生的原因不是因为她想对人好，而是因为她害怕被人讨厌
+
+考虑爽世的家庭背景，面对母亲还有非常质朴的“不想增加负担，不想让她担心”
+
+这是非常基础的判断
+
+你知道你的观点会产生什么样的结论吗，那就是爽世对狗不夹，说明她不想对狗好
+
+你听听这是人话吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ykyin09  
+##### 24279#       发表于 2024-10-6 21:49
+
+剧场版开场小动画我看的是猫玩手机被立希训的，原来还有爱音素世的
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

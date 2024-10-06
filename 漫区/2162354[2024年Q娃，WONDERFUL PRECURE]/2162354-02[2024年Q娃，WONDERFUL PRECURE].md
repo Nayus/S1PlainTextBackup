@@ -1227,3 +1227,24 @@ Q娃这么多年终于有bg支棱起来了
 而这几话可能最终目的恰恰是要 ...</blockquote>
 如果反派作乱的动机就是男女情爱的话实在有点……
 
+
+*****
+
+####  用户名1  
+##### 2343#       发表于 2024-10-6 11:25
+
+说起来，反派为什么袭击nico花园说过吗？nico花园和人类世界目前看起来应该是相互独立的吧？既然灭绝日本狼的是人类，那袭击一个全是动物的nico花园干什么？忘了有没有提到过了？
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  HazukiShion  
+##### 2344#       发表于 2024-10-6 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66384549&amp;ptid=2162354" target="_blank">Parahure 发表于 2024-10-6 10:28</a>
+
+我倒是很想看看38会怎么演</blockquote>
+不能是小麦投入猫组的怀抱吗？<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

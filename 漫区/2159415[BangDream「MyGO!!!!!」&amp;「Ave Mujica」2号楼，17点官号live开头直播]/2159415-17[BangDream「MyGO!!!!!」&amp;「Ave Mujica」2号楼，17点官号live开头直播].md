@@ -5062,3 +5062,26 @@ c团的部分，你这样理解了，说明你的看法跟这楼部分活跃漏�
 
 至于后面的内容都是之前讨论烂了的东西，不多赘述
 
+
+*****
+
+####  skives  
+##### 24113#       发表于 2024-10-6 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66384727&amp;ptid=2159415" target="_blank">Sherrycat 发表于 2024-10-6 11:00</a>
+想问各位漏油
+
+喵梦是怎么看出来祥子的衣服在那个咖啡馆不得体的 她自己也没穿多正式吧 虽然祥子私服也挺像 ...</blockquote>
+衣服旧了而已 喵梦对时尚那么敏感 肯定能看出来的
+这观点 soyo厨要被气死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Milarvoz  
+##### 24114#       发表于 2024-10-6 11:31
+
+原来是警告吗不可思议。
+那句我认为是soyo人物弧光的点睛之笔了。与其说是对tomorin说的，倒不如说是soyo对自己说的。从一开始装模作样迎合anon背地里想复活c团。到中期惊世一跪被点破事实，“你只是想着你自己呢”。到最后被mygo的大家接受和包容。soyo明白地说出忘不了，一方面是表明c团的经历在自己心中的分量很重，另一方面愿意对tomorin说出这些也表明soyo在整整一季的波折后醒悟最终选择坦然接受了c团不会再回来的现实。既是对过去画上一个句号，也是对未来新开始的宣言。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

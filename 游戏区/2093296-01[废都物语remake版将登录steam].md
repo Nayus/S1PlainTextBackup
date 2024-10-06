@@ -984,3 +984,12 @@ pv还行，就是小人移动有点难绷，史诗感一下子就没了<img src=
 
 希望可以平稳落地吧
 
+
+*****
+
+####  hugosol  
+##### 727#       发表于 2024-10-6 09:55
+
+所以现在舆论已经默认天角是LGBT公司了吗？游戏出不来是因为开发人员在摸鱼/集美太多影响开发进度？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+比起这个你们不如担心一下楼上说的，天角自己做游戏发行会不会踩到什么坑来自: iPhone客户端
+

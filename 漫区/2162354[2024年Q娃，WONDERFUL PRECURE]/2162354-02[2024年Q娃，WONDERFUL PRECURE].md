@@ -1274,3 +1274,13 @@ Q娃这么多年终于有bg支棱起来了
 
 在各个讨论版转了一圈，目前主要有两种声音：一种是觉得BG终于成了，好；另一种是觉得为了写BG人设割裂，不好
 
+
+*****
+
+####  离心  
+##### 2348#       发表于 2024-10-6 12:28
+
+<blockquote>jaewoongh_ 发表于 2024-10-6 11:03
+如果反派作乱的动机就是男女情爱的话实在有点……</blockquote>
+茶几:你说的很对<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

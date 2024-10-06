@@ -5364,3 +5364,49 @@ soyo据蜜柑透露下一季还有一集高光，就是不知道是面对祥子�
 
 并没有说过高光之类的话，只是很多人讨论的时候吧小日向喜欢和爽世高光画上等号了（不知道这是什么逻辑）
 
+
+*****
+
+####  yuyin589  
+##### 24134#       发表于 2024-10-6 12:28
+
+我来扔一下蜜柑的原话
+
+IMG_20241006_121615.jpg
+(210.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-6 12:28 上传
+
+<img src="https://img.saraba1st.com/forum/202410/06/122814crtprybb7hb92rmy.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 24135#       发表于 2024-10-6 12:30
+
+原來是廣播說的難怪翻訪談沒翻到，尤其是go的訪談沒記那麼清…<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Milarvoz  
+##### 24136#       发表于 2024-10-6 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66385171&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-10-6 12:18</a>
+退黄瓜不是早就分析过了吗，睦的那句“よかったね”加上“ね”会有一点阴阳怪气的意思
+
+而且要结合上下文 ...</blockquote>
+所以其实我最期待母鸡卡能有小睦高光的剧情，真是让人捉摸不透的女人啊。<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  星天观测  
+##### 24137#       发表于 2024-10-6 12:32
+
+之前就说过蜜柑说的原话是“有自己很喜欢的部分”而不是“soyo有高光”
+
+造谣一张嘴辟谣跑断腿
+

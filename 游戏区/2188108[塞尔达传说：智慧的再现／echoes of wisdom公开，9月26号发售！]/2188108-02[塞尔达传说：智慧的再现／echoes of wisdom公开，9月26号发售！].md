@@ -1416,3 +1416,19 @@ Amiibo还真慷慨，到了某个阶段后，第一次就能直接刷出三套�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  DARK_HGCG  
+##### 1607#       发表于 2024-10-7 01:26
+
+哈哈哈解决了炮台不能移动和石头人不能远程的短板
+
+<img src="https://img.saraba1st.com/forum/202410/07/012641le9mwx1jw9zxzier.jpg" referrerpolicy="no-referrer">
+
+<strong>2024100701063500-CD8DDEDFE332FE055C049150B035121B.jpg</strong> (237.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-7 01:26 上传
+

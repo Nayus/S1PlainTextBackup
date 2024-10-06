@@ -1286,3 +1286,14 @@ Amiibo还真慷慨，到了某个阶段后，第一次就能直接刷出三套�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  二丁目拓也  
+##### 1594#       发表于 2024-10-6 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386672&amp;ptid=2188108" target="_blank">downnote 发表于 2024-10-6 17:09</a>
+
+把宝箱移开也不行么</blockquote>
+还没来得及移开就消失了
+

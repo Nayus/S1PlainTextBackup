@@ -6758,3 +6758,15 @@ ok，那最低期望就是把4th的图放出来吧，现在跟萝一起宣传武
 
 2024-10-6 18:07 上传
 
+
+*****
+
+####  -LYRE-  
+##### 24248#       发表于 2024-10-6 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66385507&amp;ptid=2159415" target="_blank">uhiuk 发表于 2024-10-6 13:26</a>
+狗的部分二创感觉挺一言难尽的，但是角色粉多少会抗议一下。我比较喜欢鸡的那几个角色，想着塑造不完整加 ...</blockquote>
+深受其害的喵梦和喵祥cp<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+偶尔零星见到给喵梦时常被代餐论骑脸抱怨的，还能看到某些恬不知耻“说你是代餐是给你带讨论度，不要不知好歹”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+明年喵梦人气如果能起来，不知道能不能看到清算时间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

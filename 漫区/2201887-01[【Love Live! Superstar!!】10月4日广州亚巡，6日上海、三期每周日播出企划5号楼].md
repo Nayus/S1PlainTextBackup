@@ -1012,3 +1012,38 @@ nico好像得要半天还是一天才能出吧
 妈逼的还想继续祸害剧场版？真想问问企划，花田是你爹啊？</blockquote>
 虽然但是，花田好像确实是LL这个企划的爹（之一）
 
+
+*****
+
+####  ads147147  
+##### 102#       发表于 2024-10-6 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386974&amp;ptid=2201887" target="_blank">离心 发表于 2024-10-6 17:57</a>
+
+看拉片好像是这个黑毛</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">甚至是音乐科的，说起来花田已经完全没打算写vn为什么不去音乐科了。
+
+
+*****
+
+####  ViyViy  
+##### 103#       发表于 2024-10-6 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386823&amp;ptid=2201887" target="_blank">ads147147 发表于 2024-10-6 17:30</a>
+
+某种意义上，能创造出lovelive这个企划的花田，还真能算是代便他爹。
+
+有本事让代便再掏出个一样市值的企 ...</blockquote>
+现在这爹给你下毒要你死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+霓虹金啥时候这么讲人情了；这路边充其量就是一个雇佣兵写手，缪企划起步也没他参与吧，最多是推广期大将，有功
+
+水和星你不帮倒忙都能敬他一声先生，给机会不中用啊。
+
+*****
+
+####  Vacuolar  
+##### 104#       发表于 2024-10-6 18:07
+
+多无视一些东西挺好的，很多问题就是没放上来啥都没，真的讨论起来花田完全讲不清
+

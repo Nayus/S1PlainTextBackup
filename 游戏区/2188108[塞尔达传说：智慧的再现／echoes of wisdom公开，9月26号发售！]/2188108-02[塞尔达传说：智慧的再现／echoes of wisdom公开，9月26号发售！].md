@@ -1263,3 +1263,14 @@ Amiibo还真慷慨，到了某个阶段后，第一次就能直接刷出三套�
 森迷宫也太短了
 双人解谜没玩够啊啊啊啊啊
 
+
+*****
+
+####  冷泉夜月  
+##### 1592#       发表于 2024-10-6 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386859&amp;ptid=2188108" target="_blank">woui003woui 发表于 2024-10-06 17:37:21</a>
+通关后发现缺的图鉴竟然是呱唱蛙。。。。不是我雨林怎么全程没发现有这玩意（ ...</blockquote>这个下雨青蛙还有个专属支线的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -1170,3 +1170,12 @@ pv还行，就是小人移动有点难绷，史诗感一下子就没了<img src=
 
 光标改成小人，气质相差太多了...文字已经那么到位了，不需要那么具象，各种原先的事件难道也要全部演出出来吗，非常不必要。
 
+
+*****
+
+####  ParadiseMartyr  
+##### 746#       发表于 2024-10-7 01:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">galgame共通线好歹可以c
+你要是让我不c打通bladr sky dive我可能还真有点受不了
+

@@ -1105,3 +1105,38 @@ ed试听是动画顺啊……
 前半部分为了圆不留学这个事水了半集看得我十分空虚一度忘了我想在这个动画看到什么，还好最后四分之一总算是推了点剧情<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 所以我不带弹幕看星三是为了啥<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 111#       发表于 2024-10-6 18:50
+
+ 本帖最后由 6030sylar 于 2024-10-6 18:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66387281&amp;ptid=2201887" target="_blank">一个陆仁贾 发表于 2024-10-6 18:47</a>
+
+笑死，这下我也是250了🤣
+
+—— 来自 鹅球 v3.1.88.3</blockquote>
+这狗艹的收音还画音不同步
+
+*****
+
+####  starring  
+##### 112#       发表于 2024-10-6 18:53
+
+音画不同步贼难受，单听声音了<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+
+
+*****
+
+####  ReginaldMorgan  
+##### 113#       发表于 2024-10-6 18:54
+
+好帅的水族馆，感觉已经变成定番了
+
+好帅的风火轮
+
+这下到sks哭着说再也不来上海了
+

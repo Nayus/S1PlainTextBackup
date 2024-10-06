@@ -1139,3 +1139,13 @@ Amiibo还真慷慨，到了某个阶段后，第一次就能直接刷出三套�
 
 整体体验比较低龄，可能也要迎合一些新玩家吧，新玩家入手难度相对比较低。
 
+
+*****
+
+####  ping117  
+##### 1582#       发表于 2024-10-6 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66385520&amp;ptid=2188108" target="_blank">星野航 发表于 2024-10-6 13:28</a>
+火山有两个地方我记得用云方便很多，飞板角度过不去，床不够长</blockquote>
+雪山得用<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

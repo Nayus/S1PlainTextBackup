@@ -5976,3 +5976,62 @@ crychic确实是爽世主观上 ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">搞同人只要有胆子就直接说非原作向图一乐，都非原作了就别说官方懂个屁的ave mujica
 
+
+*****
+
+####  御幸一也  
+##### 24182#       发表于 2024-10-6 15:56
+
+ 本帖最后由 御幸一也 于 2024-10-6 15:57 编辑 
+
+很佩服一些人睜眼裝瞎的能力<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+綾奈什麼都撿唯獨同班同學完全不撿已經很搞笑了，就算第二季綾奈被踢，監督去年的訪談是否還記得<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+全在拆同班同學，甚至還給出半身幼馴染幾個字<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+何況你就是看敬業的高尾平時私底下和誰出去玩的多都知道會賣哪對了
+
+2.5次元企劃，怎麼可能完全剔除三次元的部分，肯定是相輔相成
+
+對同團幼馴染自信也是正常的吧<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 24183#       发表于 2024-10-6 15:57
+
+前四个真人团里官推的<strong>纯</strong>真人团跨团cp好像只有laytae？这还是三次逆输入的吧
+
+*****
+
+####  御幸一也  
+##### 24184#       发表于 2024-10-6 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386136&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-10-6 15:57</a>
+
+前四个真人团里官推的纯真人团跨团cp好像只有laytae？这还是三次逆输入的吧 ...</blockquote>
+這好像也是掛上了幼馴染buff吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  skives  
+##### 24185#       发表于 2024-10-6 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386067&amp;ptid=2159415" target="_blank">好想看Mujica啊 发表于 2024-10-6 15:43</a>
+幼驯染和同团虽然是加分项，但也不是必赢的吧，花音表示</blockquote>
+千圣和谁是同团幼驯染啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 24186#       发表于 2024-10-6 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386142&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-10-6 15:58</a>
+
+這好像也是掛上了幼馴染buff吧</blockquote>
+三次逆输入后组了这个cp，然后在二次挂上了幼驯染
+
+你邦是真的很喜欢幼驯染，好像就没输过<img src="https://static.saraba1st.com/image/smiley/face2017/183.png" referrerpolicy="no-referrer">
+

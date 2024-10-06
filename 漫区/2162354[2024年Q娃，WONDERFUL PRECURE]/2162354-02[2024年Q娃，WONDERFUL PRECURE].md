@@ -1441,3 +1441,11 @@ Q娃这么多年终于有bg支棱起来了
 
 当编剧还是非常轻松的事情，剧情可以随心所欲的写，出事也没关系，都有河豚来替我背锅。<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  狮子咕  
+##### 2364#       发表于 2024-10-6 16:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要是前面已经那么烂了，当然怎么走都是向上……
+

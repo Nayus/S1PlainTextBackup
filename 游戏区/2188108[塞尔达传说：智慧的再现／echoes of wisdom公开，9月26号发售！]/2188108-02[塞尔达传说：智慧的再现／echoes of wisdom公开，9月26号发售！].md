@@ -1274,3 +1274,15 @@ Amiibo还真慷慨，到了某个阶段后，第一次就能直接刷出三套�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  schneehertz  
+##### 1593#       发表于 2024-10-6 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386859&amp;ptid=2188108" target="_blank">woui003woui 发表于 2024-10-6 17:37</a>
+通关后发现缺的图鉴竟然是呱唱蛙。。。。不是我雨林怎么全程没发现有这玩意（ ...</blockquote>
+呱唱蛙在海拉鲁牧场附近，不在雨林
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

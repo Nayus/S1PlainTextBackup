@@ -1047,3 +1047,24 @@ nico好像得要半天还是一天才能出吧
 
 多无视一些东西挺好的，很多问题就是没放上来啥都没，真的讨论起来花田完全讲不清
 
+
+*****
+
+####  ViyViy  
+##### 105#       发表于 2024-10-6 18:12
+
+<img src="https://img.saraba1st.com/forum/202410/06/181214xlpzd91nmgsnu79s.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQtoyd-j2xeZeT3cSr7-sg.jpg</strong> (144.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-6 18:12 上传
+
+*****
+
+####  ruffian  
+##### 106#       发表于 2024-10-6 18:13
+
+后知后觉，第一集不献祭ed了，所以这次是1-11集一人solo一次，第12集合唱？所以下一集ed是不是终于轮到某人solo了？（大喜）
+

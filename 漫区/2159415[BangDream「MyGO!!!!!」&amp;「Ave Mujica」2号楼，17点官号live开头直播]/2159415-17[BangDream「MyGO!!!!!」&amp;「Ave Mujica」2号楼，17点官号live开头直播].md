@@ -6700,3 +6700,61 @@ ok，那最低期望就是把4th的图放出来吧，现在跟萝一起宣传武
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386781&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-10-6 17:24</a></blockquote>
 是说邦里面主要角色，可以出卡的那种，不是NPC，如果算NPC的立希已经有姐姐了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 24247#       发表于 2024-10-6 18:08
+
+ 本帖最后由 NODY 于 2024-10-6 18:10 编辑 
+
+国风睦也有了（节约特地选的mortis色）
+
+<img src="https://img.saraba1st.com/forum/202410/06/180718hcrcoaatssh92ai3.png" referrerpolicy="no-referrer">
+
+<strong>c478f4dd-116a-4365-a68c-a998070899e2.png</strong> (19.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-6 18:07 上传
+
+<img src="https://img.saraba1st.com/forum/202410/06/181011kayhahz93gywquuh.jpg" referrerpolicy="no-referrer">
+
+<strong>GZL7KPFb0AAjLla.jpg</strong> (270.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-6 18:10 上传
+
+<img src="https://img.saraba1st.com/forum/202410/06/180731pkckoue4e47o5o53.jpg" referrerpolicy="no-referrer">
+
+<strong>GZMj64kb0AA1XcT.jpg</strong> (212.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-6 18:07 上传
+
+<img src="https://img.saraba1st.com/forum/202410/06/180731r7oyauz7q7kr9k7r.jpg" referrerpolicy="no-referrer">
+
+<strong>GZMj64maQAAlHgs.jpg</strong> (142.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-6 18:07 上传
+
+<img src="https://img.saraba1st.com/forum/202410/06/180731u595vldv5y5wlk8w.jpg" referrerpolicy="no-referrer">
+
+<strong>GZML24SakAAJUlH.jpg</strong> (220.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-6 18:07 上传
+
+<img src="https://img.saraba1st.com/forum/202410/06/180731mvm8n6xnx8jj6toi.jpg" referrerpolicy="no-referrer">
+
+<strong>GZML24VaYAAHzC4.jpg</strong> (235.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-6 18:07 上传
+

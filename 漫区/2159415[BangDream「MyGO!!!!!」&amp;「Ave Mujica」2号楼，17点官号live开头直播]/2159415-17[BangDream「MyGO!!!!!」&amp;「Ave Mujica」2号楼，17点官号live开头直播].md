@@ -5410,3 +5410,51 @@ IMG_20241006_121615.jpg
 
 造谣一张嘴辟谣跑断腿
 
+
+*****
+
+####  星天观测  
+##### 24138#       发表于 2024-10-6 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66385122&amp;ptid=2159415" target="_blank">uhiuk 发表于 2024-10-6 12:08</a>
+还是看到鸡的pv去看的动画，看完发现是个谜底只揭开一点的故事
+
+我真幸运.jpg 还有三个月就能看到新动画了</blockquote>
+那能怎么办呢，你不能阻止一个人二创入脑
+
+等着看“官方懂个屁的阿贝母鸡卡啊”吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 24139#       发表于 2024-10-6 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66385122&amp;ptid=2159415" target="_blank">uhiuk 发表于 2024-10-6 12:08</a>
+
+还是看到鸡的pv去看的动画，看完发现是个谜底只揭开一点的故事
+
+我真幸运.jpg 还有三个月就能看到新动画了</blockquote>
+说得好像go动画出完了就没有刻板印象一样，评论区整天喊键盘换吉他的爽姐真是原作13集后那个爽姐吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 24140#       发表于 2024-10-6 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66385213&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-10-6 12:26</a>
+
+重点是通过Live带来的共同体感觉，也就是kirakiradokidoki的本质
+
+这个不是假的，如果Crychic继续运行下 ...</blockquote>
+crychic的继续运行我认为是很难维系的
+
+mygo真某种意义上也是因为mygo的五人都是作为迷子的伙伴，本质上是同类人（算是mygo真的其中一个要因吧）
+
+或许因为是同类人，撕掉伪装坦诚相见这件事就显得非常自然
+
+但睦和祥子，我不认为和mygo的三人是同类
+
+如此一来，crychic内部的摩擦和成员间无法逾越的距离感加重的概率并不低
+
+crychic是普通的少女乐队，有krkrdkdk，但放在相对严肃的故事里，正如监督所说，就是解散也很正常嘛的“失败的乐队”
+

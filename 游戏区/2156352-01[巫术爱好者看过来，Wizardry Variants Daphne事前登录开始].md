@@ -424,3 +424,32 @@ Touhou Artificial Dream in Arcadia ...</blockquote>
 
 应该是“威泽吹”
 
+
+*****
+
+####  藤钢剑姬  
+##### 44#       发表于 2024-10-6 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66383558&amp;ptid=2156352" target="_blank">厨具战士 发表于 2024-10-6 01:33</a>
+看视频居然还有变灰！卧槽，真的敢啊！
+
+不过为啥人设又是3D小朋友啊，日巫的2D多好看啊，有几作简直是油画 ...</blockquote>
+没钱啊。制作人访谈视频里还提到过如果是单机的话拉投资比手游还少。2020年早期的测试视频里UI甚至堪比同人巫术水平<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI MGA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  藤钢剑姬  
+##### 45#       发表于 2024-10-6 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66383564&amp;ptid=2156352" target="_blank">厨具战士 发表于 2024-10-6 01:36</a>
+传统巫术是休息会让角色逐渐变老（age上升），最后导致属性劣化。
+
+看来是把变老改成变脏了。
+
+ ...</blockquote>
+巫术1重制版就把变老改成活力了。住宿和死亡会让活力降低
+
+—— 来自 HUAWEI MGA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

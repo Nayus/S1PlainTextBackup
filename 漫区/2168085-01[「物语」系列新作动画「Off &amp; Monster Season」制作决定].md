@@ -312,3 +312,30 @@ tv版愚物语好像真的给剪成了25分钟的版本（包括ed）<img src="h
 看到说尊主喝了美丽公主的血之后普通食物就无法满足了，不由得联想到尝了美丽公主口水的垃圾君以后真的还能 ...</blockquote>
 阿伊吃了鸦濡羽岛上的菜之后吃了一个月泡菜麻痹自己的舌头，垃圾君也可以喝一个月别的女人的口水吧<img src="https://static.saraba1st.com/image/smiley/face/200.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  0aleph37  
+##### 959#       发表于 2024-10-6 21:28
+
+ 本帖最后由 0aleph37 于 2024-10-6 21:29 编辑 
+
+[#物語シリーズ](https://x.com/hashtag/%E7%89%A9%E8%AA%9E%E3%82%B7%E3%83%AA%E3%83%BC%E3%82%BA?src=hashtag_click) オフ&amp;モンスターシーズン
+第2話 [#撫物語](https://x.com/hashtag/%E6%92%AB%E7%89%A9%E8%AA%9E?src=hashtag_click)「なでこドロー 其ノ壹」
+
+ご視聴ありがとうございました。[https://](https://t.co/TG02qvs1bK)
+[monogatari-series.com/oms/special/endcard/…](https://t.co/TG02qvs1bK)
+illust [#大暮維人](https://x.com/hashtag/%E5%A4%A7%E6%9A%AE%E7%B6%AD%E4%BA%BA?src=hashtag_click)
+この後、22時30分よりBS11にて放送開始。[https://](https://t.co/6et8lsa2UE)
+[monogatari-series.com/oms/onair/](https://t.co/6et8lsa2UE)
+
+[#物語oms](https://x.com/hashtag/%E7%89%A9%E8%AA%9Eoms?src=hashtag_click)
+
+<img src="https://img.saraba1st.com/forum/202410/06/212808daq3sj2p3p7nss8p.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.66 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-6 21:28 上传
+

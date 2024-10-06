@@ -7027,3 +7027,59 @@ Ave进手游起码得半年后了，不怎么关注手游剧情很奇怪吗？
 你的原话是<blockquote>你自己说的手游明显在推爱素+猫希灯，我说你说的不对因为别的明显也在卖，你go现在就没有什么所谓的官推，还是你牛逼</blockquote>
 <strong>首先这个说法根本不是我提出来的，最重要的：谁聊这个了？</strong>
 
+
+*****
+
+####  pipaopo  
+##### 24270#       发表于 2024-10-6 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66387692&amp;ptid=2159415" target="_blank">lhbb9988 发表于 2024-10-6 20:02</a>
+感谢各位直接或者间接地回复关于素世面具的这个话题的漏油。之前的讨论中确实是我自己混淆了概念，我真正想 ...</blockquote>
+手游剧情灯说过不管怎么样的素世都是素世，而且素世对她老妈都是夹的，所以也有一种可能，对熟人夹状态也是素世的自然状态，不耐烦时不夹也是自然状态，社交面具的夹才不是自然状态
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  CyDiablo  
+##### 24271#       发表于 2024-10-6 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66388164&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-10-6 21:19</a>
+我说：现在那么多人带伞出门，是因为天气预报说今天可能有雨
+
+你说：现在哪有雨，你怎么能说现在有雨
+
+那确 ...</blockquote>
+我看到自己认为不对的内容就会说，不好意思，我混什么社群都是这样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+而且，你都拿来当论据了，就代表你采信了这个观点，我建议啊，不是自己得出来，或者验证过的结论将信将疑就行了，别瞎拿来用<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 24272#       发表于 2024-10-6 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66388237&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2024-10-6 21:29</a>
+
+我看到自己认为不对的内容就会说，不好意思，我混什么社群都是这样
+
+而且，你都拿来当论据了，就代表你采 ...</blockquote>
+看到自己认为不对的内容就会说，混什么社群都是这样
+
+这种类型大众一般会称之为杠精
+
+你开心就好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  CyDiablo  
+##### 24273#       发表于 2024-10-6 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66388249&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-10-6 21:31</a>
+看到自己认为不对的内容就会说，混什么社群都是这样
+
+这种类型大众一般会称之为杠精
+
+你开心就好 ...</blockquote>
+不如楼友爱扣帽子和党同伐异<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+

@@ -1356,3 +1356,11 @@ Amiibo还真慷慨，到了某个阶段后，第一次就能直接刷出三套�
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Variks  
+##### 1601#       发表于 2024-10-6 20:26
+
+起手要拧发条，被怪打两下就坏了，ai还笨，我还是选择攻击欲望极高、伤害爆表还没有受击硬直的莱尼尔吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

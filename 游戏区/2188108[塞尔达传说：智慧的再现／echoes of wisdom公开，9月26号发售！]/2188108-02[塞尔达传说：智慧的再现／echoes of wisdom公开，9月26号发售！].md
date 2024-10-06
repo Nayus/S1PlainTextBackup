@@ -1326,3 +1326,23 @@ Amiibo还真慷慨，到了某个阶段后，第一次就能直接刷出三套�
 
 不过我没有全破过也不知道全修多少钱
 
+
+*****
+
+####  ping117  
+##### 1598#       发表于 2024-10-6 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66387435&amp;ptid=2188108" target="_blank">downnote 发表于 2024-10-6 19:13</a>
+是修理可以用钱或者怪物石，如果只损伤一点点，也不会很贵就几十块。
+
+不过我没有全破过也不知道全修多少 ...</blockquote>
+我记得小破35，大破70<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  woui003woui  
+##### 1599#       发表于 2024-10-6 19:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们都用了机关吗，我连黄金魔鸦都懒得用，做完全部机关的时候已经是人马/蜥蜴战士砍一切了
+

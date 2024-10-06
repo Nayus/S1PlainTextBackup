@@ -6803,3 +6803,26 @@ Ave进手游起码得半年后了，不怎么关注手游剧情很奇怪吗？<i
 是你自己说的手游明显在推爱素+猫希灯，我说你说的不对因为别的明显也在卖，你go现在就没有什么所谓的官 ...</blockquote>
 “就没有什么所谓的官推”，那还是你牛逼<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  光MIKAN  
+##### 24252#       发表于 2024-10-6 19:43
+
+laytae给我的感觉就挺怪的，两个团团魂卖还不错，所以每次拉她俩出来煽情想一起组乐队的事都有点哭笑不得<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 24253#       发表于 2024-10-6 19:52
+
+laytae官方给的关键词其实是宿敌，本来就是跨团才有灵魂的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 24254#       发表于 2024-10-6 19:52
+
+宿敌是这种煽情要一起组乐队的关系吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

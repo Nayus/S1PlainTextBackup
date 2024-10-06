@@ -6780,3 +6780,26 @@ ok，那最低期望就是把4th的图放出来吧，现在跟萝一起宣传武
 
 要清算的话感觉会此恨绵绵无绝期，明年再看吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  -LYRE-  
+##### 24250#       发表于 2024-10-6 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386509&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2024-10-6 16:46</a>
+还是你厉害，我全程都在说go那边手游的事，你直接把我拽到素睦这边了
+我对你们争这点屁用没有领地没半点 ...</blockquote>
+你来“鸡粉怨妇楼”大聊特聊go手游就很奇怪啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+Ave进手游起码得半年后了，不怎么关注手游剧情很奇怪吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+邦手游很早以前就喜欢吹“都是dd”“大家我都喜欢”“排列组合每对cp都能嗑”
+然后呢，影响角色、cp热度就是有层次分明的火山与北极的热度差距吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -LYRE-  
+##### 24251#       发表于 2024-10-6 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386351&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2024-10-6 16:26</a>
+是你自己说的手游明显在推爱素+猫希灯，我说你说的不对因为别的明显也在卖，你go现在就没有什么所谓的官 ...</blockquote>
+“就没有什么所谓的官推”，那还是你牛逼<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

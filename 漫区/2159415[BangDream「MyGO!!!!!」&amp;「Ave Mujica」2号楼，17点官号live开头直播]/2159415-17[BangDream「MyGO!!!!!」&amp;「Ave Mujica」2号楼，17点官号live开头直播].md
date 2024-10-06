@@ -6826,3 +6826,48 @@ laytae官方给的关键词其实是宿敌，本来就是跨团才有灵魂的<i
 
 宿敌是这种煽情要一起组乐队的关系吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 24255#       发表于 2024-10-6 19:56
+
+rival更偏向于竞争对手吧，宿敌是不是有点过了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 24256#       发表于 2024-10-6 20:00
+
+提到宿敌ag和萝，兰和ykn可能更像吧
+
+都競宴了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 24257#       发表于 2024-10-6 20:01
+
+ 本帖最后由 NODY 于 2024-10-6 20:03 编辑 
+
+那毕竟rival在日语就是ライバル，或者说你邦推的好几个跨团都带点“要变强和你站在一个舞台上”的宿敌味，yk兰和双子也有类似剧情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 24258#       发表于 2024-10-6 20:02
+
+兰和ykn其实也是那种对手的感觉
+
+你邦说实话好像没什么跟宿敌符合的人物关系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lhbb9988  
+##### 24259#       发表于 2024-10-6 20:02
+
+感谢各位直接或者间接地回复关于素世面具的这个话题的漏油。之前的讨论中确实是我自己混淆了概念，我真正想表达的意思是在ccc维持社交面具下的素世能不能算得上是素世真实的一面这一观点。而基于这个假设下，如果ccc不解散的话，或许素世也可以在ccc找到自己的归宿。
+
+这个想法的源头是基于素世动画表现和访谈的描述。访谈中提到ccc是祥子用能力为素世构建了一种新型人际关系，而素世也能很自在的表达自己的观点，因而在ccc毁灭后素世有动机去复活ccc。而我们在观察ccc素世表现的时候，也确实发现素世仍然属于维持着社交面具的形态，即使是13集，素世已经完全容纳进mygo，也依旧对ccc充满感情。如果认为ccc社交面具下的素世仍会感到不快，那13集后找到真正意义上的素世应该也能够意识到ccc不是自己的归宿，那说出不忘c在我这逻辑就有点站不住脚了。而如果认可社交面具素世也算她真实的一部分，那在我这还能算自圆其说了。
+

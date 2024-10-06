@@ -1346,3 +1346,13 @@ Amiibo还真慷慨，到了某个阶段后，第一次就能直接刷出三套�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们都用了机关吗，我连黄金魔鸦都懒得用，做完全部机关的时候已经是人马/蜥蜴战士砍一切了
 
+
+*****
+
+####  冷泉夜月  
+##### 1600#       发表于 2024-10-6 20:01
+
+仔细想想，他们家做的两款塞尔达，丹培都是个鸡肋，织梦岛的丹培给你自制迷宫——毫无乐趣的鸡肋，智杖的丹培给你做机关——完全用不上的鸡肋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

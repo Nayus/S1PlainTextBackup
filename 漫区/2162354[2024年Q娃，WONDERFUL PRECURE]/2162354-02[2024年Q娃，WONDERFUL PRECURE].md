@@ -1521,3 +1521,34 @@ Q娃这么多年终于有bg支棱起来了
 
 这集确实挺好看的。这眼睛仔目前看着不讨厌，便宜他了。
 
+
+*****
+
+####  Piano-Forest  
+##### 2370#       发表于 2024-10-6 22:16
+
+[https://x.com/hanamaru_hnkc/status/1842717062978048276](https://x.com/hanamaru_hnkc/status/1842717062978048276)
+
+わんだふるぷりきゅあ！36話の絵コンテとたくさん作画でかかわらせて頂きました…！この話数に関わってくださった多くのスタッフの皆々様大感謝です！！！！！ご視聴ありがとうございました！
+<img src="https://p.sda1.dev/19/ad2bf08f4e29478d6fda5d81d74107a8/20241006_221032.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/dffd3e902de90ba9ac1d0df65cd576dd/20241006_221029.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/miso_katsu/status/1842737842453381453](https://x.com/miso_katsu/status/1842737842453381453)
+<img src="https://p.sda1.dev/19/80b22d1853c8af792d44ef2ba91dba27/20241006_221018.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/The_TanboK/status/1842717923154305321](https://x.com/The_TanboK/status/1842717923154305321)
+
+わんぷり36話、LO原画と2原でお手伝いしました🐶
+<img src="https://p.sda1.dev/19/ead56847abaf7f947fc3533b94ecf7b7/20241006_221036.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/dashi_oishi/status/1842716497858404489](https://x.com/dashi_oishi/status/1842716497858404489)
+
+#わんだふるぷりきゅあ 36話にて
+
+ラストの原画を描かせて頂きました！
+
+シナリオ上がってない時から絵コンテの上田さんからオファー貰ってたのでプレッシャーエグったですが
+
+絵コンテ、演出さん、作監さん、国内動仕さん、撮影さん、制作さんの力でいい画面に仕上げて頂けて感無量です🙏🥳
+<img src="https://p.sda1.dev/19/d28ca41a0793ac6d00e18c1b3b1e3f41/SaveTwitter.Net_GZKk4FpaQAAz0bp__gif_.gif" referrerpolicy="no-referrer">
+

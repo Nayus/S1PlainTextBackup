@@ -7259,3 +7259,33 @@ Ave进手游起码得半年后了，不怎么关注手游剧情很奇怪吗？
 
 這位樓友有點像那個人了 這種觀點我只看過一個人有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 24289#       发表于 2024-10-6 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66388579&amp;ptid=2159415" target="_blank">pipaopo 发表于 2024-10-6 22:12</a>
+
+那你说她是真喜欢soyorin这个称呼还是，其实不喜欢但对爱音也有愧疚所以这样叫就算了
+
+—— 来自 鹅球 v3 ...</blockquote>
+爱音没品归没品，爽世喜欢她这个人所以接受了
+
+立希那个绰号比soyorin还没品
+
+爽世介意我看不出来，漏油应该是替爽世委屈死了
+
+那怎么办呢，soyorin真的要跟爽世一辈子，那漏油要不努力让自己接受一下爽世甘愿愧疚一辈子？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 24290#       发表于 2024-10-6 22:25
+
+ 本帖最后由 玖羽 于 2024-10-6 22:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66388579&amp;ptid=2159415" target="_blank">pipaopo 发表于 2024-10-6 22:12</a>
+
+那你说她是真喜欢soyorin这个称呼还是，其实不喜欢但对爱音也有愧疚所以这样叫就算了</blockquote>
+你不妨反过来想，如果有一天爱音不叫Soyorin了，你猜爽世是什么心情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

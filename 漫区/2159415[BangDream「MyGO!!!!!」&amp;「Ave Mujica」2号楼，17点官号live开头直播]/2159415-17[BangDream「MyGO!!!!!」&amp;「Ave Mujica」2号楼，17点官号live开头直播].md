@@ -5801,3 +5801,34 @@ crychic确实是爽世主观上 ...</blockquote>
  ...</blockquote>
 这个属于"部分人会接受不了并声称官方懂个屁"的部分
 
+
+*****
+
+####  玖羽  
+##### 24169#       发表于 2024-10-6 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66385836&amp;ptid=2159415" target="_blank">桜庭千景 发表于 2024-10-6 14:46</a>
+
+这个属于"部分人会接受不了并声称官方懂个屁"的部分</blockquote>
+放心，只要决定性地影响睦的人物弧光（睦走出人偶状态）的情节一出来，所有人都不得不承认<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 24170#       发表于 2024-10-6 14:58
+
+要造谣ccc if当然很简单，只要忽视其他人可能有的问题，把爱音灯做的事情全部都挪移给白祥
+捏造一个矛盾让ccc里的人看到爽世的面具就可以，难道白祥会嫌弃夹子爽世吗
+你甚至可以把滤镜变真，白祥真万能，你爹来了把问题全解决了
+有什么意义吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但就算这样也比不过狗里的爽世自由，因为ccc里爽世根本不会彻底放下那个社交面具
+
+狗最初成立就是爱音和爽世中门对夹，爽世因为试图利用爱音最开始输了一手，她在爱音或者狗面前根本没有维持那个夹子脸的底气
+夹了这么多年只能强制性撕破她的伪装才能看到爽世的真心
+
+你可以说爽姐内心不认为狗一定高于ccc，哪有跟死人争高低的
+但是对于爽世来讲，狗就是比ccc更让她自由舒适
+
+爽世那是愿意夹吗，她那是不得不夹，她的家庭背景让她觉得自己只有夹了才能融入环境<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

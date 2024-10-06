@@ -993,3 +993,14 @@ pv还行，就是小人移动有点难绷，史诗感一下子就没了<img src=
 所以现在舆论已经默认天角是LGBT公司了吗？游戏出不来是因为开发人员在摸鱼/集美太多影响开发进度？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 比起这个你们不如担心一下楼上说的，天角自己做游戏发行会不会踩到什么坑来自: iPhone客户端
 
+
+*****
+
+####  Vg_Fy  
+##### 728#       发表于 2024-10-6 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66383620&amp;ptid=2093296" target="_blank">酱油毛玉 发表于 2024-10-6 01:58</a>
+
+就是贴吧去线下试玩的说见到的工作人员2/3是女的，被截图出去传播成整个制作组2/3是女的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">那有点敏感了吧，
+

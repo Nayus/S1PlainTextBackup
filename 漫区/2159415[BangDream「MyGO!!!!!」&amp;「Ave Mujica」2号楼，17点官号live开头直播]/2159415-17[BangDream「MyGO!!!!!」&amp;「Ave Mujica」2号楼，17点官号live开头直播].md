@@ -5253,3 +5253,63 @@ soyo据蜜柑透露下一季还有一集高光，就是不知道是面对祥子�
 
 泥樓的CCC遺老也像個幽靈嚕陰魂不散，說爛了的東西還要來汴<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  uhiuk  
+##### 24127#       发表于 2024-10-6 12:08
+
+还是看到鸡的pv去看的动画，看完发现是个谜底只揭开一点的故事<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+我真幸运.jpg 还有三个月就能看到新动画了
+
+另：隔了一年才出mujica，鸡团成员的塑造都不完整，二创风向岂不是早就刻板印象拉满了。总觉得等动画播出后有些人会因为发现和自己想象的不一样而崩溃啊
+
+*****
+
+####  Sherrycat  
+##### 24128#       发表于 2024-10-6 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66385092&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-10-6 12:04</a>
+这么明显的含义为什么还有人不理解
+
+在那个情境下，“我永远不会忘记Crychic”的意思是“我以后永远忠于My ...</blockquote>
+感谢指正 可能是我体会的不准确 （只草草看了一遍）再次致歉
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Aendst  
+##### 24129#       发表于 2024-10-6 12:16
+
+ 本帖最后由 Aendst 于 2024-10-6 12:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66384943&amp;ptid=2159415" target="_blank">lhbb9988 发表于 2024-10-6 11:39</a>
+
+感谢解惑，我之前对素世在两团之间的差异性表现虽有模糊的定位但确实无法做到这般精确的表述。社交面具下 ...</blockquote>
+并不是说mygo是真物，crychic就是要被所有人批判的伪物了，并不是这样的两极结论
+
+crychic确实是爽世主观上想要的，这并不是假的，而是她困于舒适圈下的选择结果
+
+换言之就是没有认识到能让自己最轻松的真正接纳自己的归属是什么样的，所以才会要crychic
+
+在crychic期间她是快乐的，精神上是满足的这是事实
+
+但crychic确实也只是提供了一种类似归属的慰藉，不能说这就一定要被直接彻底定性为虚假的归宿，但确实也不是追本溯源后爽世“真正需要的东西”
+
+爽世想要crychic，说明crychic对她有存在意义，但也仅仅止步于此了
+
+主观上的想要和客观上的需要，我认为区别在这里
+
+*****
+
+####  Sherrycat  
+##### 24130#       发表于 2024-10-6 12:18
+
+无意为c团招魂 或者作为所谓c团遗老代表 只是刚看 提了一些不成熟的看法 让大家见笑了 
+相反我认为c团是个非常不稳固的团体 从祥子退队后到mygo成立之前大家行为就知道了
+对于在楼里引起的风波 向大家道歉 
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

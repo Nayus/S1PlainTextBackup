@@ -7289,3 +7289,61 @@ Ave进手游起码得半年后了，不怎么关注手游剧情很奇怪吗？
 那你说她是真喜欢soyorin这个称呼还是，其实不喜欢但对爱音也有愧疚所以这样叫就算了</blockquote>
 你不妨反过来想，如果有一天爱音不叫Soyorin了，你猜爽世是什么心情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 24291#       发表于 2024-10-6 22:31
+
+不是我说泥楼最近有点太热闹了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明明都没什么新情报的时候泥楼有时候一天都没人讲话来着
+
+*****
+
+####  PDQ4  
+##### 24292#       发表于 2024-10-6 22:31
+
+可能爽世怎么想不重要
+
+这位漏油会爽到高呼美帝解绑了
+
+看其他漏油提还真想到一个对爱音非常有意见的爽世厨，难道真是本人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 24293#       发表于 2024-10-6 22:31
+
+3rd快到了樓友有點熱血沸騰，理解一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pipaopo  
+##### 24294#       发表于 2024-10-6 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66388638&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-10-6 22:21</a>
+爱音没品归没品，爽世喜欢她这个人所以接受了
+
+立希那个绰号比soyorin还没品</blockquote>
+整部片我还真不认为有对个人的直接喜欢，爱素好嗑就好在一方利用对方的愧疚感得寸进尺，而不是传统的没头脑不高兴
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  Aendst  
+##### 24295#       发表于 2024-10-6 22:33
+
+为什么爽世厨会对爱音有意见……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">果然结界大开就是会有更多的神秘事件发生吗
+
+*****
+
+####  PDQ4  
+##### 24296#       发表于 2024-10-6 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66388719&amp;ptid=2159415" target="_blank">pipaopo 发表于 2024-10-6 22:33</a>
+
+整部片我还真不认为有对个人的直接喜欢，爱素好嗑就好在一方利用对方的愧疚感得寸进尺，而不是传统的没头 ...</blockquote>
+我不知道你怎么嗑的ansy
+
+但是能看出来你get不到独角兽的对等<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

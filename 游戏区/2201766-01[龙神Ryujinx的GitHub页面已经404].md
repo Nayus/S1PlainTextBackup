@@ -2485,3 +2485,14 @@ GBA发售3.5年后就发售NDS，GBA硬件生涯总销量8kw左右，老任掌�
 
 其他价值是玩家自己给上的。[厂商又不是不插手退役老机器](https://bbs.saraba1st.com/2b/thread-2201874-0-1.html)
 
+
+*****
+
+####  obiy  
+##### 221#       发表于 2024-10-6 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66360154&amp;ptid=2201766" target="_blank">indtability 发表于 2024-10-2 10:34</a>
+
+lockpick, dolphin, yuzu, yuzu forks, 现在是 ryujinx。之前每一次，不管是任天堂粉丝在维护任天堂的合理 ...</blockquote>
+想明白了此楼扣分者的逻辑：“不玩盗版的怎么会替模拟器说话”，就像“不是你撞的你为什么要扶”
+

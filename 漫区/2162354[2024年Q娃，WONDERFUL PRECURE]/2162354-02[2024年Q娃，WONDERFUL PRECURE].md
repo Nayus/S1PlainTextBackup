@@ -1012,3 +1012,44 @@ wonderful不是彩羽的口癖吗，和cure wonderful有什么关系啊，真紫
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  jaewoongh_  
+##### 2320#       发表于 2024-10-6 07:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">妈妈说爸爸是“特别的”，莫非？
+
+
+*****
+
+####  himfsz  
+##### 2321#       发表于 2024-10-6 07:47
+
+看来我对戴眼镜的人士有很深的成见，诚司和拓海我会觉得为什么不告白，四眼仔的话我就觉得你丫抢什么戏啊
+
+*****
+
+####  himfsz  
+##### 2322#       发表于 2024-10-6 07:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66383957&amp;ptid=2162354" target="_blank">himfsz 发表于 2024-10-6 07:47</a>
+
+看来我对戴眼镜的人士有很深的成见，诚司和拓海我会觉得为什么不告白，四眼仔的话我就觉得你丫抢什么戏啊 ...</blockquote>
+刚说完你小子眼镜就掉了
+
+
+*****
+
+####  DARK_HGCG  
+##### 2323#       发表于 2024-10-6 07:54
+
+这集汪Q是久违的高素质回
+
+*****
+
+####  jaewoongh_  
+##### 2324#       发表于 2024-10-6 07:56
+
+拿下！拿下！拿下！拿下！拿下！拿下！拿下！拿下！拿下！拿下！拿下！拿下！拿下！拿下！拿下！拿下！拿下！拿下！拿下！拿下！拿下！拿下！拿下！拿下！拿下！拿下！拿下！拿下！拿下！拿下！拿下！
+

@@ -5151,3 +5151,16 @@ crychic是爽世社交上的舒适圈，是她想要的并不是她真正需要�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  PDQ4  
+##### 24120#       发表于 2024-10-6 11:47
+
+这就是为什么狗剧场版要把c剧情砍掉
+长达8集念c，以及名场面连发确实容易产生误解
+
+爽这个角色在第十集后的样子才是她的本性
+虽然还没能完全放下，但是感受到狗爱后，开始学会放下，和狗一起前进
+c姨姥就有点看不得爽姐往前走了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

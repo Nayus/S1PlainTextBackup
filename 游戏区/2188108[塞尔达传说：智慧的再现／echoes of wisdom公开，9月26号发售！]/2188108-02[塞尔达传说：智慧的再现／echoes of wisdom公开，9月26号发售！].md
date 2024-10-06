@@ -1011,3 +1011,16 @@ Amiibo还真慷慨，到了某个阶段后，第一次就能直接刷出三套�
 德库果的这个小剧情好像没什么人提，哪个干部经不起这样的考验.jpg</blockquote>
 我对这剧情没啥印象，是在哪触发的来着。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  库德里尔  
+##### 1571#       发表于 2024-10-6 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66383467&amp;ptid=2188108" target="_blank">Losange 发表于 2024-10-6 01:01</a>
+怪物肝脏哪里比较多啊，做冰沙发现不够用了</blockquote>
+如果你以开图鉴为第一目标 就把唯四的肝脏配方单独做掉，需要用药的时候可以选择100卢比买
+当然在瞌睡道场刷取的掉率也还算可以
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

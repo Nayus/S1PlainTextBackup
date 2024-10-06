@@ -5051,3 +5051,19 @@ C跟新；了，机板还没跟新.....
 
 对分没啥期待。目前看应该就是下限不会那么低，但上限不会特别高的作品。但如果吃atlus这套尝试玩一下应该没啥问题。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Khellendros  
+##### 1191#       发表于 2024-10-6 11:01
+
+<img src="https://img.saraba1st.com/forum/202410/06/110141hk8a6haz2tkkq7qh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241006_053236.jpg</strong> (248.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-6 11:01 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

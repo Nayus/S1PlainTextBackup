@@ -5776,3 +5776,16 @@ crychic确实是爽世主观上 ...</blockquote>
 踢吉他换键盘梗黑的是人气最高的几个角色和美帝，照样拦不住，和粉丝多少关系不大 ...</blockquote>
 说的也是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只能说我确实不喜欢玩这些烂梗的，甚至真有不少人会信
 
+
+*****
+
+####  玖羽  
+##### 24167#       发表于 2024-10-6 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66385706&amp;ptid=2159415" target="_blank">ydsbbt 发表于 2024-10-6 14:15</a>
+
+你没写推理过程所以接受度不是很高。动画里这个画面和现实里的一模一样，名字都没改，唯独出现一个株式会 ...</blockquote>
+这还用特意写吗，都能看出来吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+不是上门送水，是送饮水机，这种公司要么是卖饮水机捆绑销售水，要么是卖水捆绑销售饮水机
+

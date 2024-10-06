@@ -1380,3 +1380,31 @@ Q娃这么多年终于有bg支棱起来了
 
 你还一本正经的描述起来了，公主好好写深度有什么用？还不是没甜点赚钱？拓海小翼人气都那么高，说明日本小孩的受众就是那些，能躺着赚钱为什么要站着？一切向钱看嘛
 
+
+*****
+
+####  粉儿alice  
+##### 2359#       发表于 2024-10-6 14:39
+
+剧场版票房10亿了<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jaewoongh_  
+##### 2360#       发表于 2024-10-6 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66385726&amp;ptid=2162354" target="_blank">半步女同笔记解 发表于 2024-10-6 14:22</a>
+
+你还一本正经的描述起来了，公主好好写深度有什么用？还不是没甜点赚钱？拓海小翼人气都那么高，说明日本小 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你这是从哪搬的屎，q娃这种长期系列也能搞销量厨？
+
+
+*****
+
+####  maoyou  
+##### 2361#       发表于 2024-10-6 14:44
+
+我草，河豚差不多得了，这里不是搬屎楼
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

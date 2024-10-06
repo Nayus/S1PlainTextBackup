@@ -210,3 +210,17 @@ B11的另一些残骸被打捞上岸
 — from S1 Next Goose v3.2.91</blockquote>
 有推测是B10坠落在深海区域，而B11地点过于靠岸容易被人回收，所以需要回收部件以防泄露机密。
 
+
+*****
+
+####  依然荏苒  
+##### 79#       发表于 2024-10-6 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66387111&amp;ptid=2190881" target="_blank">commcody 发表于 2024-10-6 18:18</a>
+有推测是B10坠落在深海区域，而B11地点过于靠岸容易被人回收，所以需要回收部件以防泄露机密。
+
+ ...</blockquote>
+确实，我记得深度就60米。
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

@@ -1297,3 +1297,11 @@ Amiibo还真慷慨，到了某个阶段后，第一次就能直接刷出三套�
 把宝箱移开也不行么</blockquote>
 还没来得及移开就消失了
 
+
+*****
+
+####  祆天发育不良  
+##### 1595#       发表于 2024-10-6 18:37
+
+机关拿到就跟我说修理要用怪物石，想了想这玩意的爆率，还是算了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

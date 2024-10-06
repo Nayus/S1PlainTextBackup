@@ -1087,3 +1087,21 @@ ed试听是动画顺啊……
 后知后觉，第一集不献祭ed了，所以这次是1-11集一人solo一次，第12集合唱？所以下一集ed是不是终于轮到某人 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">估计是冬逑solo完又开始组合了，毕竟你星最后无雷的独苗红蓝动画能拆开卖我是不信的
 
+
+*****
+
+####  一个陆仁贾  
+##### 109#       发表于 2024-10-6 18:47
+
+笑死，这下我也是250了🤣
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  cmhyt  
+##### 110#       发表于 2024-10-6 18:47
+
+前半部分为了圆不留学这个事水了半集看得我十分空虚一度忘了我想在这个动画看到什么，还好最后四分之一总算是推了点剧情<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+所以我不带弹幕看星三是为了啥<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+

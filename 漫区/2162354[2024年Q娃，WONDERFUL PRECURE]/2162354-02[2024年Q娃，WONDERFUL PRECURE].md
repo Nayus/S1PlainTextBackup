@@ -1484,3 +1484,19 @@ Q娃这么多年终于有bg支棱起来了
 
 这才哪到哪（
 
+
+*****
+
+####  leleq  
+##### 2367#       发表于 2024-10-6 18:45
+
+这集制作拉满了，和之前的神回比起来就差一个田中裕太了。
+
+这集标准没打斗戏的恶果，怎么设计都没有拳头打上去能表达感情啊。
+
+虽然小麦影薄但人家人气高啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+不过感情戏方面Q娃确实比较保守这竟然是Q娃史上正剧里成的第一对<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+其他幼女向一堆情情爱爱的呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -1259,3 +1259,49 @@ Snow Halation
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Piano-Forest  
+##### 127#       发表于 2024-10-6 21:38
+
+OP：[https://youtu.be/mZ3DPE5mgH8](https://youtu.be/mZ3DPE5mgH8)
+
+ED：[https://youtu.be/B3JAxDoYOs4](https://youtu.be/B3JAxDoYOs4)
+
+[https://x.com/kamatamanankotu/status/1842826463332155742](https://x.com/kamatamanankotu/status/1842826463332155742)
+<img src="https://p.sda1.dev/19/a80ae75227d6f0755c70b34b173e75a2/20241006_213355.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/MRN0093/status/1842843329995866160](https://x.com/MRN0093/status/1842843329995866160)
+
+- info -
+
+TVアニメ『ラブライブ！スーパースター!!』3期OPのコンセプトアートで参加させて頂きました。
+
+11人でさらにパワーアップしたLiellaのお手伝い出来て光栄です！
+
+どうぞよろしくお願いいたします！
+<img src="https://p.sda1.dev/19/aab7bba6d5b40fe6696a40aa21ec69ad/20241006_213349.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/imaziro/status/1842848104606994781](https://x.com/imaziro/status/1842848104606994781)
+
+ラブライブ！スーパースター!!3期
+
+各話サブタイデザイン・リエラのうた絵コンテ・話数演出で参加してます💫
+
+3期目のリエラもよろしくお願いします。
+<img src="https://p.sda1.dev/19/7674a931952b38e16e3baef3bbee7554/20241006_213347.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/sugimoto_mi_ho_/status/1842854809076113442](https://x.com/sugimoto_mi_ho_/status/1842854809076113442)
+
+ラブライブ!スーパースター!!
+
+3期
+
+1期生と2期生の新しいレッスン着をデザインさせて頂きました。
+
+斎藤さん監修です！ありがとうございます👕🙇‍✨
+
+あと、OPも2カットだけですが原画で参加させて頂きましたー(すみれちゃんと恋ちゃん描きました)
+<img src="https://p.sda1.dev/19/87022a8c65503f768728312729db6f0c/20241006_213342.jpg" referrerpolicy="no-referrer">
+

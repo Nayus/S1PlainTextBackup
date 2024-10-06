@@ -589,3 +589,11 @@ c呆什么技能组，第二部的女同事就来碰瓷，还天天锁前排折�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/243.gif" referrerpolicy="no-referrer">无情的强度党选了太公望 
 
+
+*****
+
+####  johnkamsar  
+##### 14895#       发表于 2024-10-6 21:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">选了特总，无他当年上大学时拜过他祖师爷+给石头多。
+

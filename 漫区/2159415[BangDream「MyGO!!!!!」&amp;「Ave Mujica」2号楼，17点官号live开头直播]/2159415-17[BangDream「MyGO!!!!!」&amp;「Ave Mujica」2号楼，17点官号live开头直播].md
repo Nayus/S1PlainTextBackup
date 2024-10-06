@@ -7083,3 +7083,50 @@ Ave进手游起码得半年后了，不怎么关注手游剧情很奇怪吗？
 你开心就好 ...</blockquote>
 不如楼友爱扣帽子和党同伐异<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 24274#       发表于 2024-10-6 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66388260&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2024-10-6 21:32</a>
+
+不如楼友爱扣帽子和党同伐异</blockquote>
+怎麼了 又想吵架嗎 我來嚕<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+說吧你這次想要什麼帽子
+
+*****
+
+####  Aendst  
+##### 24275#       发表于 2024-10-6 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66388260&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2024-10-6 21:32</a>
+
+不如楼友爱扣帽子和党同伐异</blockquote>
+那我就不懂了，反正我觉得和杠精交流是纯粹的浪费时间，谁给你扣帽子你找谁吧，不用找我回复了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 24276#       发表于 2024-10-6 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66388147&amp;ptid=2159415" target="_blank">浅草若旦那 发表于 2024-10-6 21:15</a>
+
+有没有看了剧场版的朋友说下开场前的マナー小动画有多长，我去晚了到的时候播的时候已经是素世教爱音看电影 ...</blockquote>
+那个小动画应该是轮换的，第一周是灯希猫，第二周爱素这样
+
+*****
+
+####  pipaopo  
+##### 24277#       发表于 2024-10-6 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66387878&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-10-6 20:33</a>
+不能
+
+哪怕Crychic是每个季度都会自动刷新的杂鱼偶像番里的少女乐队，也必须安排一集让爽世撕下伪装，而无 ...</blockquote>
+鉴于素世对她老妈是夹的总不能说是虚伪的，我更倾向认为素世想对人好的时候自然就是夹的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

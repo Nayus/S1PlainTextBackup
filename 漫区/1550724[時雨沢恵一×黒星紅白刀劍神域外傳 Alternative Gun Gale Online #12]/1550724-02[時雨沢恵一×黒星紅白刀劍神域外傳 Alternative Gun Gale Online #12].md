@@ -200,3 +200,14 @@ pro哥两个月不打电动，照样血虐薯薯
 主要本身SJ这些参加者算不上多强，也就是业余里面的顶尖高手算不到职业水准虽然川原娘的描写被时雨泽完爆 ...</blockquote>
 什么外传主角基枪秒<img src="https://static.saraba1st.com/image/smiley/carton2017/025.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 1902#       发表于 2024-10-6 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66389105&amp;ptid=1550724" target="_blank">luciferion 发表于 2024-10-6 23:30</a>
+
+什么外传主角基枪秒</blockquote>
+我记得娘子军搞反器材狙击枪时还得到过诗浓的建议<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

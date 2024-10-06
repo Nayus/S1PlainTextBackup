@@ -1077,3 +1077,12 @@ pv还行，就是小人移动有点难绷，史诗感一下子就没了<img src=
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  约翰里德  
+##### 737#       发表于 2024-10-6 23:42
+
+作为我白毛控的启蒙作我是不希望重制版嗝屁的。
+当然要是真完蛋了。。。至少立绘还行，符合我对白毛女法爷的想象也行吧<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

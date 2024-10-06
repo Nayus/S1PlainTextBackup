@@ -5043,3 +5043,11 @@ C跟新；了，机板还没跟新.....
 
 据说明天出分<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kuarwbwe  
+##### 1190#       发表于 2024-10-6 10:51
+
+对分没啥期待。目前看应该就是下限不会那么低，但上限不会特别高的作品。但如果吃atlus这套尝试玩一下应该没啥问题。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

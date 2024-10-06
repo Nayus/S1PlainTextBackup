@@ -1000,3 +1000,14 @@ Amiibo还真慷慨，到了某个阶段后，第一次就能直接刷出三套�
 
 其实现在2d塞尔达的迷宫设计思路是尽量本房间内解决，很少有从别的房间搬关键道具过来解谜的设计，才导致玩家觉得难度低吧
 
+
+*****
+
+####  kuarwbwe  
+##### 1570#       发表于 2024-10-6 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66383075&amp;ptid=2188108" target="_blank">Yidam 发表于 2024-10-5 23:41</a>
+
+德库果的这个小剧情好像没什么人提，哪个干部经不起这样的考验.jpg</blockquote>
+我对这剧情没啥印象，是在哪触发的来着。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

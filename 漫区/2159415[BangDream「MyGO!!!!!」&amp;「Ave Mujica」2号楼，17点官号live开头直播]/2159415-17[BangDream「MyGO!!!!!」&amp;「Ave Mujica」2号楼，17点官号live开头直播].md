@@ -6578,3 +6578,109 @@ ok，那最低期望就是把4th的图放出来吧，现在跟萝一起宣传武
 
 乐观一些，至少4th宣传图不会像MV一样会生出鬼图，还是可以期待的<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 24236#       发表于 2024-10-6 17:17
+
+既然请萝来guest了而且跟萝本番一前一后两天，那能不能把图画好点……<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+鬼图太丢人了
+
+*****
+
+####  星天观测  
+##### 24237#       发表于 2024-10-6 17:17
+
+我个人觉得2nd那种还不错但是很同人的立绘是不会再出了，以后live可能都是3rd这种邦邦风立绘（希望画师继续努力，把握好面具该怎么画）
+
+*****
+
+####  Aendst  
+##### 24238#       发表于 2024-10-6 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386674&amp;ptid=2159415" target="_blank">NODY 发表于 2024-10-6 17:09</a>
+
+说手游推爱素+猫灯希不太准确，手游为了出场时间端水5χ5都会卖一下
+
+但官方有在推爱素+猫灯希应该是真的， ...</blockquote>
+美帝热度是肉眼可见远超其他一大截的，而且制作的部分关键人员都肉眼可见在喜欢，本来其实也是用心去做了的
+
+属于于情于理都会努力推的范畴
+
+
+*****
+
+####  御幸一也  
+##### 24239#       发表于 2024-10-6 17:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">仔細想想目前是不是只有黑生和2nd的KV是好看的，1年半了1年半，
+
+這麼頂的人設武士道都約的什麼便宜小畫家
+
+*****
+
+####  Aendst  
+##### 24240#       发表于 2024-10-6 17:22
+
+1st和3rd的画师看起来像是同一个人，希望如果一定要武士道风味供稿的话换个能画好点的人来，或者让这位精进一下<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 24241#       发表于 2024-10-6 17:23
+
+要不干脆直接把火或者风当成武藏野宣传kv，然后和萝放在一起，营造一种反差萌<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+（开玩笑的）
+
+*****
+
+####  星天观测  
+##### 24242#       发表于 2024-10-6 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386768&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-10-6 17:22</a>
+
+仔細想想目前是不是只有黑生和2nd的KV是好看的，1年半了1年半，
+
+這麼頂的人設武士道都約的什麼便宜小畫家 ...</blockquote>
+不许说土不好看<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 24243#       发表于 2024-10-6 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386463&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-10-6 16:39</a>
+
+以及目前狗内所有人都没有幼驯染，不知道以后手游会不会天降一个跟老团拉起来</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202410/06/172416wmgp1hm4ncrn4ckg.jpg" referrerpolicy="no-referrer">
+
+<strong>ywy.jpg</strong> (12.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-6 17:24 上传
+
+<img src="https://img.saraba1st.com/forum/202410/06/172416ejuzfzk8szk8hj7j.jpg" referrerpolicy="no-referrer">
+
+<strong>fff.jpg</strong> (28.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-6 17:24 上传
+
+*****
+
+####  御幸一也  
+##### 24244#       发表于 2024-10-6 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386777&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-10-6 17:23</a>
+
+不许说土不好看</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">平心而論，以下略……
+

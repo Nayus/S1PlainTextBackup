@@ -5136,3 +5136,16 @@ C跟新；了，机板还没跟新.....
 
 刚看到直播里pmm来上海线下场了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">原来还没打体验版在等发售前再打
 
+
+*****
+
+####  c0x9z8  
+##### 1198#       发表于 2024-10-6 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66385478&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-10-6 13:20</a>
+
+阿特拉斯是有多担心销量啊，多多刚刚刷到312的港版首发版，还是5天内发货
+
+—— 来自 S1Fun ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer">331的港版已经落伍了吗。。
+

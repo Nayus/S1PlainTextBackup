@@ -5872,3 +5872,43 @@ crychic确实是爽世主观上 ...</blockquote>
 
 等睦的个人回出来发现全是祥子，铁暗恋自然就不攻而破了。好奇到时候的反噬有多严重
 
+
+*****
+
+####  akiomn  
+##### 24174#       发表于 2024-10-6 15:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">睦对c团其他三人都是平等的，希望剩下三个有好归宿，对祥子是祥子坠入深渊了，睦毫不犹豫跟着一起跳
+如果说睦对soyo是铁暗恋，对祥岂不是铁明恋了？
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  御幸一也  
+##### 24175#       发表于 2024-10-6 15:34
+
+我不知道樓友，但我當然是因為邦多利<strong>幼馴染</strong>&amp;邦多利同團讓我自信<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+反正賣的不會是“鐵暗戀”同班同學<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 24176#       发表于 2024-10-6 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66385974&amp;ptid=2159415" target="_blank">ydsbbt 发表于 2024-10-6 15:19</a>
+
+等睦的个人回出来发现全是祥子，铁暗恋自然就不攻而破了。好奇到时候的反噬有多严重 ...</blockquote>
+等這天等了一年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

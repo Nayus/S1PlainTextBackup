@@ -5912,3 +5912,35 @@ crychic确实是爽世主观上 ...</blockquote>
 等睦的个人回出来发现全是祥子，铁暗恋自然就不攻而破了。好奇到时候的反噬有多严重 ...</blockquote>
 等這天等了一年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  uhiuk  
+##### 24177#       发表于 2024-10-6 15:43
+
+这个我熟<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+*****
+
+####  好想看Mujica啊  
+##### 24178#       发表于 2024-10-6 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386035&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-10-6 15:34</a>
+
+我不知道樓友，但我當然是因為邦多利幼馴染&amp;邦多利同團讓我自信
+
+反正賣的不會是“鐵暗戀”同班同學 ...</blockquote>
+幼驯染和同团虽然是加分项，但也不是必赢的吧，花音表示<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 24179#       发表于 2024-10-6 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386067&amp;ptid=2159415" target="_blank">好想看Mujica啊 发表于 2024-10-6 15:43</a>
+
+幼驯染和同团虽然是加分项，但也不是必赢的吧，花音表示</blockquote>
+怎麼了 你喜歡嗑同班同學嗎 
+
+但 綾奈不嗑.jpg 而且綾奈還嗑睦祥<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

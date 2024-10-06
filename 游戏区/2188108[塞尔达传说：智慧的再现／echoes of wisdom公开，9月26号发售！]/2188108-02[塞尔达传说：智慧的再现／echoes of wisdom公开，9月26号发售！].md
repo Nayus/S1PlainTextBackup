@@ -1406,3 +1406,13 @@ Amiibo还真慷慨，到了某个阶段后，第一次就能直接刷出三套�
 
 机关要是能提前上好发条掏出来就用还能玩玩，必须掏出来再上发条这个前摇实在是太长了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kuarwbwe  
+##### 1606#       发表于 2024-10-6 23:14
+
+关键是公主能力太强大，太全面了。就是单纯加强版的机关，还有上发条的cd，我完全想不起来用它。更别说修这东西还要钱要资源。<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

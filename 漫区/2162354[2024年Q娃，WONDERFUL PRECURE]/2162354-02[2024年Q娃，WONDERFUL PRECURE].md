@@ -1552,3 +1552,11 @@ Q娃这么多年终于有bg支棱起来了
 絵コンテ、演出さん、作監さん、国内動仕さん、撮影さん、制作さんの力でいい画面に仕上げて頂けて感無量です🙏🥳
 <img src="https://p.sda1.dev/19/d28ca41a0793ac6d00e18c1b3b1e3f41/SaveTwitter.Net_GZKk4FpaQAAz0bp__gif_.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 2371#       发表于 2024-10-6 23:07
+
+虽然剧情依然简单套路表明双方心意，但是气氛渲染到位就是好吃，这集的作画也拉满<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">除了小麦全世界都在助攻，大人和亲友都各自开导两人真好
+

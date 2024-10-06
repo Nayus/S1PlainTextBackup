@@ -5087,3 +5087,16 @@ C跟新；了，机板还没跟新.....
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  抽烟的猴  
+##### 1194#       发表于 2024-10-6 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66385478&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-10-6 13:20</a>
+
+阿特拉斯是有多担心销量啊，多多刚刚刷到312的港版首发版，还是5天内发货
+
+—— 来自 S1Fun ...</blockquote>
+不知道卖几百万回本
+

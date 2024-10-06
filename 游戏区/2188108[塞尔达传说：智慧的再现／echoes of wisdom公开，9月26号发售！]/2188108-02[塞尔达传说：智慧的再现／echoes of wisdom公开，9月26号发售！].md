@@ -1065,3 +1065,16 @@ Amiibo还真慷慨，到了某个阶段后，第一次就能直接刷出三套�
 
 水方块的话只要贴着墙或地板或天花板就能浮空，可以利用这点形成通道，还能用来过士兵巡逻的关卡（你在水里的话就算士兵发现你也不能下水抓）
 
+
+*****
+
+####  Losange  
+##### 1576#       发表于 2024-10-6 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66383471&amp;ptid=2188108" target="_blank">冷泉夜月 发表于 2024-10-6 01:02</a>
+
+不用特意刷，去瞌睡道场打挑战会给一大堆
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">好的，感谢
+

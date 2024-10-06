@@ -5944,3 +5944,35 @@ crychic确实是爽世主观上 ...</blockquote>
 
 但 綾奈不嗑.jpg 而且綾奈還嗑睦祥<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 24180#       发表于 2024-10-6 15:46
+
+ 本帖最后由 Aendst 于 2024-10-6 15:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386067&amp;ptid=2159415" target="_blank">好想看Mujica啊 发表于 2024-10-6 15:43</a>
+
+幼驯染和同团虽然是加分项，但也不是必赢的吧，花音表示</blockquote>
+说很多次了，真人团和声优团规划上会不一样的
+
+每次都在科普这种常识真是无聊
+
+每次拿出来论证爽睦的老团例子拿出来一看
+
+声优团，不开live只能在手游卖不然一点东西都没有
+
+幼驯染
+
+姐妹
+
+搁这论证睦祥和初祥如果不是真人团即使不在一个团也能大卖特卖呢？
+
+
+*****
+
+####  相坂君  
+##### 24181#       发表于 2024-10-6 15:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">搞同人只要有胆子就直接说非原作向图一乐，都非原作了就别说官方懂个屁的ave mujica
+

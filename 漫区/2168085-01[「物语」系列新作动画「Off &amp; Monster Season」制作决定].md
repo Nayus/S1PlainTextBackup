@@ -289,3 +289,15 @@ tv版愚物语好像真的给剪成了25分钟的版本（包括ed）<img src="h
 
 害我笑了一下<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Yinacona  
+##### 957#       发表于 2024-10-6 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66383498&amp;ptid=2168085" target="_blank">KOPKOM 发表于 2024-10-6 01:11</a>
+看到说尊主喝了美丽公主的血之后普通食物就无法满足了，不由得联想到尝了美丽公主口水的垃圾君以后真的还能 ...</blockquote>
+那可是出名的阿良良木变态呐
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

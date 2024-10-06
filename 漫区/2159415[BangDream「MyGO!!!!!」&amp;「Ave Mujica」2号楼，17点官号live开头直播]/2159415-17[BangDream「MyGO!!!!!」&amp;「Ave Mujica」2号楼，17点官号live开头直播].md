@@ -6045,3 +6045,114 @@ crychic确实是爽世主观上 ...</blockquote>
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Aendst  
+##### 24188#       发表于 2024-10-6 16:16
+
+高尾私底下一起玩这个，她是不是唯一一个集齐跟mujica所有人单独约会（并且发出来营业了）的来着？<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+没有很关注中之人，佐佐木印象里好像没发过单独和岡田一起去玩的营业？
+
+渡瀬岡田米澤我印象里都是跟高尾，渡瀬有跟佐佐木一起玩过，米澤是单独去过佐佐木家但好像也没有直接明面营业过
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她们出去玩太多了甚至需要翻一下……
+
+*****
+
+####  NODY  
+##### 24189#       发表于 2024-10-6 16:18
+
+ 本帖最后由 NODY 于 2024-10-6 16:19 编辑 
+
+讲道理，同团的彩千圣其实是千圣关系网里面来得最晚的，花音初中就认识千圣了，薰小学就来了，论证不了同班就能赢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 24190#       发表于 2024-10-6 16:18
+
+ 本帖最后由 Aendst 于 2024-10-6 16:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386232&amp;ptid=2159415" target="_blank">九陌狂游 发表于 2024-10-6 16:14</a>
+
+有一说一同班有什么用啊？他们日本不是升一个年级就换班吗
+
+论坛助手,iPhone ...</blockquote>
+因为其他路都堵死了，想要嘴硬装瞎只能抓着同班同学这个唯一的联系不放<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+根本没想过贷款同班同学会卖本身就是个笑话
+
+别人在看制作组访谈直接夸和表达喜欢，看声优让你期待关系性，要想贷款也能贷款已经在live上卖过的同团和邦多利安定幼驯染
+
+一部分人为什么在贷款同班同学一定大卖，是因为完全没有别的依据支持吗
+
+*****
+
+####  CyDiablo  
+##### 24191#       发表于 2024-10-6 16:21
+
+手游你go现在属于什么都在卖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+爱音生日刚卖爱灯就无视了啊，我说你们别太离谱
+
+
+*****
+
+####  Aendst  
+##### 24192#       发表于 2024-10-6 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386296&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2024-10-6 16:21</a>
+
+手游你go现在属于什么都在卖
+
+爱音生日刚卖爱灯就无视了啊，我说你们别太离谱 ...</blockquote>
+这不是进一步论证了吗，更好
+
+动画卖过爱灯，手游按照动画和原案（也就是基础设定）留下的设定卖爱灯
+
+谢谢你提供新的论据<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 24193#       发表于 2024-10-6 16:23
+
+李子倒是发过和梦以的合照，但是是不是单独约出来的不太确定了
+
+不过你鸡有李和弄两个人，团内五人联系强度肯定很够了
+
+前几天的广播还有“会把每天发生的事都告诉李子”“大晚上的联系她结果她在赶论文”这种超级内容，鸡内部发消息的频率估计比较高<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CyDiablo  
+##### 24194#       发表于 2024-10-6 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386320&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-10-6 16:23</a>
+这不是进一步论证了吗，更好
+
+动画卖过爱灯，手游按照动画和原案（也就是基础设定）留下的设定卖爱灯
+
+谢谢 ...</blockquote>
+牛的，卖别的就是官方在推，爱灯就是延续动画，话都被你说完了，嗯嗯顺从<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 24195#       发表于 2024-10-6 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386328&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2024-10-6 16:24</a>
+
+牛的，卖别的就是官方在推，爱灯就是延续动画，话都被你说完了，嗯嗯顺从 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你逻辑不太好，确实还是顺从我更好一点，不然你大脑可能处理不了
+
+*****
+
+####  PDQ4  
+##### 24196#       发表于 2024-10-6 16:26
+
+爽睦厨不是自信说明年会成为官配嘛，就剩三个月
+
+你们拳打美帝，脚踢睦祥的好日子就快到了，期待你们在独角兽的带领下一起青蒜
+
+明年一定要一起准时看鸡哦<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

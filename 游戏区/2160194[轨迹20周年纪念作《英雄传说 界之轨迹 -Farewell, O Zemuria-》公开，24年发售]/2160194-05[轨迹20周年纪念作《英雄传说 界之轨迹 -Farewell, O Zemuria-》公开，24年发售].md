@@ -3708,3 +3708,26 @@ ZOC+增幅角色，开一个增幅就ZOC二动换下一个人，刷满BUFF，然
 
 界轨到时候上pc也会由现在的这批人来操刀吧
 
+
+*****
+
+####  ouyang菌  
+##### 6284#       发表于 2024-10-6 20:48
+
+又重新把大部分动补演出看了一遍，感觉你法现在演出唯一的缺点就是五毛特效和五毛音效了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么时候把这略显光污染的特效和几个素材来来回回用的音效改了就完美了
+
+
+*****
+
+####  windtrack_qh  
+##### 6285#       发表于 2024-10-6 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66387964&amp;ptid=2160194" target="_blank">ouyang菌 发表于 2024-10-6 20:48</a>
+
+又重新把大部分动补演出看了一遍，感觉你法现在演出唯一的缺点就是五毛特效和五毛音效了什么时候把这略显光 ...</blockquote>
+仔细看动作模组复用也有点多
+
+大君出场那个单腿下压动作，阿龙羁绊里胖叔叔也是这个，你要说这是月华流的招式吧
+
+终章里魔装鬼又用了...
+

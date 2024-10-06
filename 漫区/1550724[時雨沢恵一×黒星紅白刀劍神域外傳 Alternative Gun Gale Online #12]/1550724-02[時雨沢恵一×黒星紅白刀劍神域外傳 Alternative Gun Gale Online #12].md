@@ -145,3 +145,16 @@ GGO 第一季感觉比较平均，在、但也坚持看完了，主要是抠 JD 
 
 第一集很多地方看起来很贫穷啊，隐约感觉不太妙。时间隔太久了应该先来一集第一季总集篇简述一下设定，突然热热闹闹冲上来一群人去打比赛都不知道啥背景，完全是粉丝向吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 1897#       发表于 2024-10-6 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66378382&amp;ptid=1550724" target="_blank">ParadiseMartyr 发表于 2024-10-5 10:53</a>
+
+pro哥两个月不打电动，照样血虐薯薯
+
+唉，这就是天赋的差距吗</blockquote>
+主要本身SJ这些参加者算不上多强，也就是业余里面的顶尖高手算不到职业水准<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

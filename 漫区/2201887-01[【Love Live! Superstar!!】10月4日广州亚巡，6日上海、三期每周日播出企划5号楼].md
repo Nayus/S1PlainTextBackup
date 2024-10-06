@@ -948,3 +948,23 @@ nico好像得要半天还是一天才能出吧
 
 妈逼的还想继续祸害剧场版？真想问问企划，花田是你爹啊？
 
+
+*****
+
+####  ads147147  
+##### 96#       发表于 2024-10-6 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386732&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-10-6 17:16</a>
+
+妈逼的还想继续祸害剧场版？真想问问企划，花田是你爹啊？</blockquote>
+某种意义上，能创造出lovelive这个企划的花田，还真能算是代便他爹。
+
+有本事让代便再掏出个一样市值的企划，不然就只能捏着鼻子让人一起吃。
+
+*****
+
+####  仟音一心  
+##### 97#       发表于 2024-10-6 17:31
+
+<img src="https://p.sda1.dev/19/9c758f790c029393b49d9597488a75d5/image.jpg" referrerpolicy="no-referrer">
+

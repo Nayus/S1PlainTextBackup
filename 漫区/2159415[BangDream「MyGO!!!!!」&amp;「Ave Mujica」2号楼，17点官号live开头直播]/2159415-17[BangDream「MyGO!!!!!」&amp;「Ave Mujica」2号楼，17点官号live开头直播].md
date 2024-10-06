@@ -6684,3 +6684,19 @@ ok，那最低期望就是把4th的图放出来吧，现在跟萝一起宣传武
 不许说土不好看</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">平心而論，以下略……
 
+
+*****
+
+####  skives  
+##### 24245#       发表于 2024-10-6 17:26
+
+4th的kv往好了想 应该和萝武藏野的kv是对应的 差不到哪去
+
+*****
+
+####  PDQ4  
+##### 24246#       发表于 2024-10-6 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386781&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-10-6 17:24</a></blockquote>
+是说邦里面主要角色，可以出卡的那种，不是NPC，如果算NPC的立希已经有姐姐了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

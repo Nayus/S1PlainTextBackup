@@ -189,3 +189,14 @@ pro哥两个月不打电动，照样血虐薯薯
 
 军宅是哪一队，其他几个记不太清一个很大问题是外观特征太不独特了
 
+
+*****
+
+####  luciferion  
+##### 1901#       发表于 2024-10-6 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66387422&amp;ptid=1550724" target="_blank">pokemon最爱 发表于 2024-10-6 19:11</a>
+
+主要本身SJ这些参加者算不上多强，也就是业余里面的顶尖高手算不到职业水准虽然川原娘的描写被时雨泽完爆 ...</blockquote>
+什么外传主角基枪秒<img src="https://static.saraba1st.com/image/smiley/carton2017/025.png" referrerpolicy="no-referrer">
+

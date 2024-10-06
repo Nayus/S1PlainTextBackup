@@ -1305,3 +1305,27 @@ TVアニメ『ラブライブ！スーパースター!!』3期OPのコンセプ�
 あと、OPも2カットだけですが原画で参加させて頂きましたー(すみれちゃんと恋ちゃん描きました)
 <img src="https://p.sda1.dev/19/87022a8c65503f768728312729db6f0c/20241006_213342.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 128#       发表于 2024-10-6 23:26
+
+<img src="https://p.sda1.dev/19/985ce047f3b9082a0a351c05fb050280/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 129#       发表于 2024-10-6 23:26
+
+<img src="https://p.sda1.dev/19/b5faee1329b466d539f6e2287a95283e/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  一个陆仁贾  
+##### 130#       发表于 2024-10-6 23:29
+
+要是结尾每个人能说上几句该多好
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

@@ -5766,3 +5766,13 @@ crychic确实是爽世主观上 ...</blockquote>
 
 而crychic继续的if，虽然是基于角色的讨论，但是忽视了mygo的绝对优位，可以发散可以自圆其说，但我个人觉得总是有些别扭的
 
+
+*****
+
+####  uhiuk  
+##### 24166#       发表于 2024-10-6 14:31
+
+<blockquote>NODY 发表于 2024-10-6 13:38
+踢吉他换键盘梗黑的是人气最高的几个角色和美帝，照样拦不住，和粉丝多少关系不大 ...</blockquote>
+说的也是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只能说我确实不喜欢玩这些烂梗的，甚至真有不少人会信
+

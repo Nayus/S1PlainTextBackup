@@ -498,3 +498,27 @@ c呆什么技能组，第二部的女同事就来碰瓷，还天天锁前排折�
 
 虽然理解刚开始学妹变成半吊子没之前好也能接受，但这都快终章了，一个高光强化不给，难道打最终BOSS的时候再来个超绝强化不成。
 
+
+*****
+
+####  alucardcz  
+##### 14885#       发表于 2024-10-6 14:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">绿方块消耗有点大  怎么办  有没有大佬救一救!
+
+*****
+
+####  sesuna  
+##### 14886#       发表于 2024-10-6 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66383938&amp;ptid=2084912" target="_blank">v22325 发表于 2024-10-6 07:32</a>
+
+第二部技能组确实，不知道怎么想的。你既然要改就改彻底点，转成真的攻击手不好么。
+
+虽然理解刚开始学妹变 ...</blockquote>
+免费白嫖一只强力打手(拐)这好事螺旋狗哪会如你所愿...
+
+卖新卡卖不动就肯定不会考虑白嫖卡的强度了,活动送的4星就强化幅度和频率都可见的差或者少
+
+更不提这个免费的"女主"了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+

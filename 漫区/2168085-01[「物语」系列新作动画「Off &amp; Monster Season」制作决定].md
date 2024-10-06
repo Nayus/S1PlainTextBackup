@@ -281,3 +281,11 @@ tv版愚物语好像真的给剪成了25分钟的版本（包括ed）<img src="h
 看到说尊主喝了美丽公主的血之后普通食物就无法满足了，不由得联想到尝了美丽公主口水的垃圾君以后真的还能 ...</blockquote>
 尊主是专一的美食家，垃圾君既不是美食家，也不专一（大概
 
+
+*****
+
+####  k1no  
+##### 956#       发表于 2024-10-6 14:26
+
+害我笑了一下<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

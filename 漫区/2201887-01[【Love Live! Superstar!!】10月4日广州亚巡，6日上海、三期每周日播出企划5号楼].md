@@ -1068,3 +1068,22 @@ nico好像得要半天还是一天才能出吧
 
 后知后觉，第一集不献祭ed了，所以这次是1-11集一人solo一次，第12集合唱？所以下一集ed是不是终于轮到某人solo了？（大喜）
 
+
+*****
+
+####  离心  
+##### 107#       发表于 2024-10-6 18:18
+
+ed试听是动画顺啊……
+
+
+*****
+
+####  ViyViy  
+##### 108#       发表于 2024-10-6 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66387081&amp;ptid=2201887" target="_blank">ruffian 发表于 2024-10-6 18:13</a>
+
+后知后觉，第一集不献祭ed了，所以这次是1-11集一人solo一次，第12集合唱？所以下一集ed是不是终于轮到某人 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">估计是冬逑solo完又开始组合了，毕竟你星最后无雷的独苗红蓝动画能拆开卖我是不信的
+

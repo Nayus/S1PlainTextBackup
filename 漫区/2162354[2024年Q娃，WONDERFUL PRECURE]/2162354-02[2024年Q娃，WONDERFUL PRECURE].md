@@ -1069,3 +1069,28 @@ wonderful不是彩羽的口癖吗，和cure wonderful有什么关系啊，真紫
 
 为了约会还换衣服了，其实我一直觉得平时穿的露肩露脐装挺难看的
 
+
+*****
+
+####  犬飼いろは  
+##### 2327#       发表于 2024-10-6 08:07
+
+第 36 集的 TVer 源（含日字）：magnet:?xt=urn:btih:fc0dc87215f6a8012770c5424c6df2af1b858116
+
+
+*****
+
+####  modedd  
+##### 2328#       发表于 2024-10-6 08:12
+
+告白回成了之后紧跟着就是约会回，诚司拓海看了惊呼我们这看的是一个动画吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Parahure  
+##### 2329#       发表于 2024-10-6 08:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66383974&amp;ptid=2162354" target="_blank">renkan119 发表于 2024-10-6 07:56</a>
+小麦这集就是不断的被支开 确实已经是碍事的东西了</blockquote>
+也难怪这一话标题的wonderful是片假名了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

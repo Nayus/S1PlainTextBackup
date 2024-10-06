@@ -16,3 +16,11 @@
 
 动漫完结投票：[https://bbs.saraba1st.com/2b/thread-2202109-1-1.html](https://bbs.saraba1st.com/2b/thread-2202109-1-1.html)
 
+
+*****
+
+####  ashero  
+##### 142#       发表于 2024-10-6 08:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">大伙给亚托莉过生日33岁 过了70年夏生进入数据世界和亚托莉一起 33+70=103一刺
+

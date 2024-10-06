@@ -1334,3 +1334,29 @@ Q娃这么多年终于有bg支棱起来了
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  wly  
+##### 2354#       发表于 2024-10-6 13:49
+
+这表白演出作画都拉满了，是真的不错这集。就是俩人wonderful，wonderful的说着，就是和cure wonderful没什么关系也挺好笑的。
+
+*****
+
+####  modedd  
+##### 2355#       发表于 2024-10-6 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66385500&amp;ptid=2162354" target="_blank">6030sylar 发表于 2024-10-6 13:24</a>
+这狗真是只剩标题完全没用
+
+—— 来自 Realme RMX1851, Android 11上的 S1Next-鹅版 v3.0.0-alpha ...</blockquote>
+说真的这个wonderful其实是彩叶小姐的口癖而不是某影薄粉主的q娃名吧，不管是实际使用次数还是关键回点题程度都根本没得比啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  noneoneone  
+##### 2356#       发表于 2024-10-6 13:55
+
+很好，BG也好吃
+

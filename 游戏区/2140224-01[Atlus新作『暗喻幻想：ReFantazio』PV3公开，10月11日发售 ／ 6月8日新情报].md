@@ -5067,3 +5067,13 @@ C跟新；了，机板还没跟新.....
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  superlink  
+##### 1192#       发表于 2024-10-6 11:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得这个bgm比p5有意思，p5算是目黑以往套路的延续，暗喻这个新鲜感十足。
+
+—— 来自 vivo V2304A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

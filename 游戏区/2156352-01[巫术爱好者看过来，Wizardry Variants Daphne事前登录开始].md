@@ -409,3 +409,18 @@ Touhou Artificial Dream in Arcadia ...</blockquote>
 
 看了一些视频，没提氪金点是啥？
 
+
+*****
+
+####  Falcomfans  
+##### 43#       发表于 2024-10-6 11:16
+
+ 本帖最后由 Falcomfans 于 2024-10-6 11:19 编辑 
+
+这么多年都读错了……
+
+『ウィザードリィ』の正しい発音とは！？ロバート・ウッドヘッド氏の英単語教室
+[https://www.youtube.com/watch?v=ZRKOukfhC_U](https://www.youtube.com/watch?v=ZRKOukfhC_U)
+
+应该是“威泽吹”
+

@@ -5186,3 +5186,18 @@ bgm太对味了，目黑还是牛逼
 
 貌似实体盘已偷跑
 
+
+*****
+
+####  Dreammask  
+##### 1203#       发表于 2024-10-6 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66384822&amp;ptid=2140224" target="_blank">superlink 发表于 2024-10-6 11:20</a>
+
+我觉得这个bgm比p5有意思，p5算是目黑以往套路的延续，暗喻这个新鲜感十足。
+
+—— 来自 vivo V2304A, Andr ...</blockquote>
+交响乐主题之前在SMTSJ里也做过，通常战斗曲也有相似之处
+
+不过SJ整体氛围太绝境了，不大能算作一脉相承
+

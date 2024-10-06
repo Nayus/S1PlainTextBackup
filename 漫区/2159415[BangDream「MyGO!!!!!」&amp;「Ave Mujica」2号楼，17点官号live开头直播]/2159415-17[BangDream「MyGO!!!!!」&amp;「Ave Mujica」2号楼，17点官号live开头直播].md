@@ -6035,3 +6035,13 @@ crychic确实是爽世主观上 ...</blockquote>
 
 你邦是真的很喜欢幼驯染，好像就没输过<img src="https://static.saraba1st.com/image/smiley/face2017/183.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  九陌狂游  
+##### 24187#       发表于 2024-10-6 16:14
+
+有一说一同班有什么用啊？他们日本不是升一个年级就换班吗<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

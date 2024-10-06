@@ -7160,3 +7160,19 @@ Ave进手游起码得半年后了，不怎么关注手游剧情很奇怪吗？
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  浅草若旦那  
+##### 24280#       发表于 2024-10-6 22:02
+
+以后剧场版出bd了也不会把小动画放出来吧<img src="https://static.saraba1st.com/image/smiley/face/178.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 24281#       发表于 2024-10-6 22:04
+
+根据以前看银魂的记忆好像会放？不确定狗会不会
+

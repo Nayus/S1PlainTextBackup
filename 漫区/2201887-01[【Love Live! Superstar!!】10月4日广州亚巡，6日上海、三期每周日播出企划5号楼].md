@@ -968,3 +968,11 @@ nico好像得要半天还是一天才能出吧
 
 <img src="https://p.sda1.dev/19/9c758f790c029393b49d9597488a75d5/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  离心  
+##### 98#       发表于 2024-10-6 17:40
+
+再听了一遍确实和解op和ed了。我已经是结晶了.jpg已经期待在演唱会会怎么唱了
+

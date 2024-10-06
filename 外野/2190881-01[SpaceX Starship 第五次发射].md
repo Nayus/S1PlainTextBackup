@@ -161,3 +161,29 @@ B12的热分离环重新被装上。本周末S30可能重新合体。当地时�
 
 2024-10-5 20:46 上传
 
+
+*****
+
+####  commcody  
+##### 76#         楼主| 发表于 2024-10-6 17:37
+
+S30与B12再次合体。下周一开展测试。
+
+<img src="https://img.saraba1st.com/forum/202410/06/173556lrn3ooooanloyay5.jpg" referrerpolicy="no-referrer">
+
+<strong>GZMWYL3XQAAb-N6.jpg</strong> (497.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-6 17:35 上传
+
+B11的另一些残骸被打捞上岸
+
+<img src="https://img.saraba1st.com/forum/202410/06/173556mv11cqv5bugrr0g2.jpg" referrerpolicy="no-referrer">
+
+<strong>GZL0sD4WkAApPZA.jpg</strong> (618.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-6 17:35 上传
+

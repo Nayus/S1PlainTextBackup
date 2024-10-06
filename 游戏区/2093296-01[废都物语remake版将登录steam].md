@@ -1129,3 +1129,15 @@ pv还行，就是小人移动有点难绷，史诗感一下子就没了<img src=
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  宛若青空  
+##### 742#       发表于 2024-10-7 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66389119&amp;ptid=2093296" target="_blank">大暗月 发表于 2024-10-6 23:32</a>
+
+坛友说得这么信誓旦旦我还以为是我失忆了，去谷歌去微博去b站都搜了一圈，还是没看到天角或者废都物语的账 ...</blockquote>
+
+“预计24年发售”是去年天角在b站发的企业周年纪念视频里的天角总经理提了这么一句，至于这种能不能当官宣？我是不觉得算的，这种不在废都官方微博说的话谁当真谁难受吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

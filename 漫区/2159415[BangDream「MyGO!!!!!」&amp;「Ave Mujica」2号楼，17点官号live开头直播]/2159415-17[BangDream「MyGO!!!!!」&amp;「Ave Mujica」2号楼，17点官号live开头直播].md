@@ -6366,3 +6366,78 @@ cp的关系性不是在日常对话里体现全靠臆测是吧你们这cp磕的<
 
 如果你是那10%那當我沒說哈<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CyDiablo  
+##### 24217#       发表于 2024-10-6 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386491&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-10-6 16:43</a>
+畢竟嗑同班同學的誰不喜歡“鐵暗戀”呢，不說99%起碼9成吧，給你扣一個你不用客氣
+
+如果你是那10%那當我沒 ...</blockquote>
+还是你厉害，我全程都在说go那边手游的事，你直接把我拽到素睦这边了<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
+我对你们争这点屁用没有领地没半点兴趣
+
+*****
+
+####  星天观测  
+##### 24218#       发表于 2024-10-6 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386467&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-10-6 16:39</a>
+
+她们line群应该相当活跃
+
+不只是闲聊，很多时候能发现她们在一起看东西，成员直播或者比如mygo动画13话
+
+应 ...</blockquote>
+梦以名言：原来工作群是可以这么热闹的呀<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 24219#       发表于 2024-10-6 16:49
+
+没看懂漏油在吵什么，不是说鸡狗以动画为主，所以动画卖的手游大概率都会卖，如果还没卖那就是以后会卖
+
+至于动画在卖什么，如果觉得观众的感觉不准，目前有的参考就是独角兽的云朵图
+
+她可能不只嗑官推（比如海灯），但是作为系构原案，官推她肯定都会嗑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+爱灯猫灯确实都是动画卖过的，手游卖不是很正常<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 24220#       发表于 2024-10-6 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386509&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2024-10-6 16:46</a>
+
+还是你厉害，我全程都在说go那边手游的事，你直接把我拽到素睦这边了
+
+我对你们争这点屁用没有领地没半点 ...</blockquote>
+好喔 那麼 手遊賣了爽世&amp;貓嗎 或者其他更冷的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  桜庭千景  
+##### 24221#       发表于 2024-10-6 16:51
+
+我说实话，wsd自己官方都出过C25的逆天排列组合狗谷，什么都卖太正常了
+
+*****
+
+####  Aendst  
+##### 24222#       发表于 2024-10-6 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386533&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-10-6 16:49</a>
+
+没看懂漏油在吵什么，不是说鸡狗以动画为主，所以动画卖的手游大概率都会卖，如果还没卖那就是以后会卖
+
+至 ...</blockquote>
+是这样的，本来就是在说
+
+以动画为主，所以手游所谓的刻板印象只是观感不好，并没有ooc，手游在卖的实际上就是动画也或早或晚会有体现的【官方本来就打算推的东西】
+
+只是没想到这么简单的道理还有人看不懂
+

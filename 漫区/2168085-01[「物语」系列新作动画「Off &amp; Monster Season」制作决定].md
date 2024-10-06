@@ -301,3 +301,14 @@ tv版愚物语好像真的给剪成了25分钟的版本（包括ed）<img src="h
 
 —— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  oshinoshinobu  
+##### 958#       发表于 2024-10-6 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66383498&amp;ptid=2168085" target="_blank">KOPKOM 发表于 2024-10-6 01:11</a>
+
+看到说尊主喝了美丽公主的血之后普通食物就无法满足了，不由得联想到尝了美丽公主口水的垃圾君以后真的还能 ...</blockquote>
+阿伊吃了鸦濡羽岛上的菜之后吃了一个月泡菜麻痹自己的舌头，垃圾君也可以喝一个月别的女人的口水吧<img src="https://static.saraba1st.com/image/smiley/face/200.gif" referrerpolicy="no-referrer">
+

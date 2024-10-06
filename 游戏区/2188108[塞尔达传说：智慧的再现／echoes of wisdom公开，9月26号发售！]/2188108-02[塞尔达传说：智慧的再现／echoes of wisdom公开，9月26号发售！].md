@@ -1172,3 +1172,21 @@ Amiibo还真慷慨，到了某个阶段后，第一次就能直接刷出三套�
 我雪山全程没用云……</blockquote>
 迷宫一半不就强制用云
 
+
+*****
+
+####  二丁目拓也  
+##### 1585#       发表于 2024-10-6 16:47
+
+草，卡bug了
+
+<img src="https://img.saraba1st.com/forum/202410/06/164726ecdac7dci1c16cd9.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20241006164706.png</strong> (107.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-6 16:47 上传
+
+把罐子扔到宝箱上爆出来的东西捡不到
+

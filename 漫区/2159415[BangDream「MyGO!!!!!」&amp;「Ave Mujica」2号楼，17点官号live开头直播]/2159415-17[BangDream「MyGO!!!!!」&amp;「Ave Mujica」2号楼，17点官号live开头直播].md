@@ -6510,3 +6510,71 @@ syl  我的观点就是不认同所谓的“手游在推爱素+猫灯希”，
 
 情报的话至少会把武藏野和鸡狗对邦的消息复读一遍，按照立本人多少会准备点新情报的惯例来讲，最坏的情况可能就是告知11月有新曲（动画op），然后就没有了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 24228#       发表于 2024-10-6 17:05
+
+估计宣二单吧，两首新歌4th唱正好
+
+*****
+
+####  PDQ4  
+##### 24229#       发表于 2024-10-6 17:07
+
+op应该是4th唱吧，也可能宣一下新单发售时间之类
+
+或者动画发表会定档？也可能有个新的动画视觉图？
+
+总归要有点新东西<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 24230#       发表于 2024-10-6 17:08
+
+乐观展望就是宣二单+新pv+告知动画播出时间，然后锦上添花放个以太mv
+
+降低预期就是有新情报+以太mv就算成功<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 24231#       发表于 2024-10-6 17:09
+
+说手游推爱素+猫灯希不太准确，手游为了出场时间端水5χ5都会卖一下
+
+但官方有在推爱素+猫灯希应该是真的，因为好几次线下广播剧都是爱素+猫灯希，最新剧场版的附送动画看现地repo也是猫灯希+爱素<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 24232#       发表于 2024-10-6 17:11
+
+最低期望难道不是预告的预告，新情报请展望4th，努努力把4th宣图放出来
+
+反正鸡粉已经擅于等待，被晾了一年确实没剩下太多脾气<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 24233#       发表于 2024-10-6 17:12
+
+ok，那最低期望就是把4th的图放出来吧，现在跟萝一起宣传武藏野，萝那边5个人整整齐齐，鸡就只有一个**的单词，难蚌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 24234#       发表于 2024-10-6 17:13
+
+再2個月 再2個月<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 24235#       发表于 2024-10-6 17:15
+
+乐观一些，至少4th宣传图不会像MV一样会生出鬼图，还是可以期待的<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+

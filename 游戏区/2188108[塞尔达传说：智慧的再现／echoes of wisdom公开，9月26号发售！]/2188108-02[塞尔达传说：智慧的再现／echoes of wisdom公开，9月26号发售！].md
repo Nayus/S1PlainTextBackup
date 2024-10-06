@@ -1190,3 +1190,38 @@ Amiibo还真慷慨，到了某个阶段后，第一次就能直接刷出三套�
 
 把罐子扔到宝箱上爆出来的东西捡不到
 
+
+*****
+
+####  downnote  
+##### 1586#       发表于 2024-10-6 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386388&amp;ptid=2188108" target="_blank">ping117 发表于 2024-10-6 16:30</a>
+
+迷宫一半不就强制用云</blockquote>
+还好？我通关才拿到云和电梯，没有发现特别要用云的。除非是说无世界本来就有的那些
+
+*****
+
+####  downnote  
+##### 1587#       发表于 2024-10-6 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386518&amp;ptid=2188108" target="_blank">二丁目拓也 发表于 2024-10-6 16:47</a>
+
+草，卡bug了
+
+把罐子扔到宝箱上爆出来的东西捡不到</blockquote>
+把宝箱移开也不行么
+
+
+*****
+
+####  kuarwbwe  
+##### 1588#       发表于 2024-10-6 17:15
+
+这游戏虽然确实存在道具上下位替代关系，但有没有用的区别只有愿不愿意用，想用还是怎么都能用的。<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+不过云和床属于平行关系，云不需要垫脚的东西。床不会站久了消失。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

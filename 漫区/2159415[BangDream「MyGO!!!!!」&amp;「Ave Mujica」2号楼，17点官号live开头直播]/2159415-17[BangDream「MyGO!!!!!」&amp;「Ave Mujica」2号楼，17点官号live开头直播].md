@@ -5313,3 +5313,54 @@ crychic确实是爽世主观上想要的，这并不是假的，而是她困于�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  玖羽  
+##### 24131#       发表于 2024-10-6 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66385074&amp;ptid=2159415" target="_blank">Milarvoz 发表于 2024-10-6 12:02</a>
+
+批评指正算不上，mygo能吸引这么多人看也是因为剧情真的很有趣，有一些可以琢磨的点。
+
+黄瓜那一段我的理 ...</blockquote>
+退黄瓜不是早就分析过了吗，睦的那句“よかったね”加上“ね”会有一点阴阳怪气的意思
+
+而且要结合上下文，先是爽世问“你觉得Live怎么样”
+
+睦说“よかったね”（只是回答这个问题：挺好的<strong>嘛</strong>）
+
+但是由于有“ね”，在爽世听起来，睦的意思是“你在新乐队里这么高兴挺好的<strong>嘛</strong>”，就很阴阳怪气了
+
+
+*****
+
+####  玖羽  
+##### 24132#       发表于 2024-10-6 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66385160&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-10-6 12:16</a>
+
+并不是说mygo是真物，crychic就是要被所有人批判的伪物了，并不是这样的两极结论
+
+crychic确实是爽世主观上 ...</blockquote>
+重点是通过Live带来的共同体感觉，也就是kirakiradokidoki的本质
+
+这个不是假的，如果Crychic继续运行下去，经历更多事件加深羁绊，爽世未必放不下夹
+
+但是无论怎样都不太可能达到MyGO那种撕掉一切伪装彻底坦诚相见的地步
+
+与其说Crychic不够真，不如说MyGO太真了，Crychic就是普通少女乐队的程度，而MyGO是一辈子乐队
+
+*****
+
+####  Aendst  
+##### 24133#       发表于 2024-10-6 12:27
+
+ 本帖最后由 Aendst 于 2024-10-6 12:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66385048&amp;ptid=2159415" target="_blank">ytttsuuuba 发表于 2024-10-6 11:56</a>
+
+soyo据蜜柑透露下一季还有一集高光，就是不知道是面对祥子还是睦了。</blockquote>
+没有，这个说法出处是迷子集会，原话大概是小日向说有一集她比较喜欢，然后宣传了一下而已
+
+并没有说过高光之类的话，只是很多人讨论的时候吧小日向喜欢和爽世高光画上等号了（不知道这是什么逻辑）
+

@@ -2593,3 +2593,54 @@ Day 1的安可也是一如既往的沒有MC環節... 咱也習慣了啊。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这闪彩2第一集的重点不是很明显吗，就是那MV里切视角时候的混响，只能说你闪动画思路是真的倾奇，宁愿搞这种也不愿做点实在的。
 
+
+*****
+
+####  游蜓  
+##### 6514#       发表于 2024-10-5 19:46
+
+小高真成祸害了
+
+*****
+
+####  七草にちか  
+##### 6515#       发表于 2024-10-5 20:42
+
+<img src="https://img.saraba1st.com/forum/202410/05/204202z7kj7jefenn7en0h.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2024-10-05_20-39-26.png</strong> (544.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 20:42 上传
+
+<img src="https://img.saraba1st.com/forum/202410/05/204201gssqdsssdg9hnqka.jpg" referrerpolicy="no-referrer">
+
+<strong>GZIHBgCaAAAfHxO.jpg</strong> (392.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 20:42 上传
+
+<img src="https://img.saraba1st.com/forum/202410/05/204200nc0rvzlq6lc3jjc6.jpg" referrerpolicy="no-referrer">
+
+<strong>GZIHBgCa4AA9Pws.jpg</strong> (180.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 20:42 上传
+
+*****
+
+####  野菜一日分  
+##### 6516#       发表于 2024-10-5 22:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这闪彩2第一集的重点不是很明显吗，就是那MV里切视角时候的混响，只能说你闪动画思路是真的倾奇，宁愿搞这种也不愿做点实在的。
+
+*****
+
+####  ヒトニナル  
+##### 6517#       发表于 2024-10-6 10:21
+
+仮装狂騒曲5天就百万了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

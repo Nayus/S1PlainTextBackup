@@ -7347,3 +7347,39 @@ Ave进手游起码得半年后了，不怎么关注手游剧情很奇怪吗？
 
 但是能看出来你get不到独角兽的对等<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  六道明  
+##### 24297#       发表于 2024-10-6 22:47
+
+mujica2nd的bd资源也有了，闲着没事可以去看看mc中二话剧，感受下祥子的世界观∠( ᐛ 」∠)_
+
+*****
+
+####  CyDiablo  
+##### 24298#       发表于 2024-10-6 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66388551&amp;ptid=2159415" target="_blank">-LYRE- 发表于 2024-10-6 22:08</a>
+你怎么好意思说别人喜欢扣帽子的
+你这扣起来不是更熟练吗？我反复看了下之前的回复，到底哪里有“好大的 ...</blockquote>
+我干嘛要向一群没兴趣了解mygo的人分析，你们值得我花时间吗，有这时间我还不如这次赏花活多打几首歌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还有“手游在推爱素+猫希灯”这个结论，你不对手游具体内容有具体了解你怎么得出来的。不要人云亦云，结论性的东西没经过了解分析直接采用本身就有错误的风险，特别是在你不了解的领域。
+
+关于赶人，原来你上一段话的意思不是“这里都是鸡粉，只能聊鸡，你不准聊狗手游内容”啊<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">那是我的问题，我应激了
+
+
+*****
+
+####  pipaopo  
+##### 24299#       发表于 2024-10-6 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66388728&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-10-6 22:34</a>
+我不知道你怎么嗑的ansy
+
+但是能看出来你get不到独角兽的对等</blockquote>
+灯没有排斥这么叫，素世动画里明确排斥这么叫不只一次，不过该口是不会改口的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

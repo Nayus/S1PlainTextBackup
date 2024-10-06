@@ -7523,3 +7523,15 @@ mujica2nd的bd资源也有了，闲着没事可以去看看mc中二话剧，感�
 
 确实 提到命运就难免让人想到小时候的约定啊 遗忘的重要事物啊 血缘啊 超能力元素啊……
 
+
+*****
+
+####  Aendst  
+##### 24312#       发表于 2024-10-7 00:19
+
+这个简介挺有意思的，虽然大概也挖不出更多东西了
+
+只是logo的死亡芭比粉有点需要适应一下<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+应该就是mujica动画正式标题的样子了
+

@@ -3819,3 +3819,11 @@ ZOC+增幅角色，开一个增幅就ZOC二动换下一个人，刷满BUFF，然
 
 刚开始玩，这上来就让我想起了闪轨3那个宴会——介绍完一轮之后再排列组合来一遍。一堆熟面孔互相介绍自己真是太有法老控那味儿了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SuNR1sE364  
+##### 6297#       发表于 2024-10-7 00:19
+
+拉碧丝羁绊事件藏一个带0.2倍AT阵的核心也太变态了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比闪3太刀风还狠
+

@@ -5164,3 +5164,92 @@ crychic是爽世社交上的舒适圈，是她想要的并不是她真正需要�
 虽然还没能完全放下，但是感受到狗爱后，开始学会放下，和狗一起前进
 c姨姥就有点看不得爽姐往前走了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ytttsuuuba  
+##### 24121#       发表于 2024-10-6 11:56
+
+soyo据蜜柑透露下一季还有一集高光，就是不知道是面对祥子还是睦了。
+
+
+*****
+
+####  Milarvoz  
+##### 24122#       发表于 2024-10-6 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66384970&amp;ptid=2159415" target="_blank">Sherrycat 发表于 2024-10-6 11:43</a>
+对话前半部分我觉得确实是释然 其实我觉得从她拒绝睦头的黄瓜就是确认再也回不去了 某种程度上睦头🟰祥子 ...</blockquote>
+批评指正算不上，mygo能吸引这么多人看也是因为剧情真的很有趣，有一些可以琢磨的点。
+黄瓜那一段我的理解是soyo对小睦从头到尾都是单方面输出复活c团的愿景，至于小睦心里怎么想的其实对观众和对soyo都是未知的，所以soyo其实一直认为小睦和自己是一条战线的，也就是复活c团并否定mygo。但小睦送黄瓜那里表明了小睦其实和soyo不是一条心，小睦从一开始就没想复活c团（我从来没觉得玩乐队开心过），只是担心soyo一直沉浸在复活c团的美梦中。在看到mygo演出大获成功，soyo找到了新的命运共同体后小睦为之感到高兴，所以悄悄送上黄瓜表达祝福，有种瓜熟蒂落的感觉吧大概。
+soyo看到黄瓜后质问小睦那段对话我觉得才是关键，soyo希望小睦否定mygo的成功，心里还对复活c团有一点希望，但小睦却说了mygo挺好的。这下soyo明白了小睦心里的真实想法，发现其实c团的成员里其实只有自己还有那一点可笑的执念，所以才生气拒绝了黄瓜。反过来这也断了小睦的牵挂，果断决定加入母鸡卡。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Sherrycat| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  pipaopo  
+##### 24123#       发表于 2024-10-6 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66385048&amp;ptid=2159415" target="_blank">ytttsuuuba 发表于 2024-10-6 11:56</a>
+soyo据蜜柑透露下一季还有一集高光，就是不知道是面对祥子还是睦了。</blockquote>
+主要是祥子吧，天桥跟灯说她的歌词也是她的呐喊那幕也是谈的祥子
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  御幸一也  
+##### 24124#       发表于 2024-10-6 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66385048&amp;ptid=2159415" target="_blank">ytttsuuuba 发表于 2024-10-6 11:56</a>
+
+soyo据蜜柑透露下一季还有一集高光，就是不知道是面对祥子还是睦了。</blockquote>
+我怎麼記得訪談說的不是“高光”，只是說有大活<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> 不過mygo訪談我沒記得很清楚。
+
+*****
+
+####  玖羽  
+##### 24125#       发表于 2024-10-6 12:04
+
+ 本帖最后由 玖羽 于 2024-10-6 12:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66384727&amp;ptid=2159415" target="_blank">Sherrycat 发表于 2024-10-6 11:00</a>
+
+（感觉soyo最后对灯说的话是一种提示或者警告 虽然现在有mygo 但是永远不要忘了苦来兮苦 大家生是c团的人 死是c团的鬼 其实soyo爱的是c团这个概念 也算是爱祥子吧 至于其他人嘛………… 嘿嘿）</blockquote>
+这么明显的含义为什么还有人不理解
+
+在那个情境下，“我永远不会忘记Crychic”的意思是<strong>“我以后永远忠于MyGO”</strong>
+
+所以灯回答“我也是”
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Sherrycat| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  御幸一也  
+##### 24126#       发表于 2024-10-6 12:05
+
+泥樓的CCC遺老也像個幽靈嚕陰魂不散，說爛了的東西還要來汴<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

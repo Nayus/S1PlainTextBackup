@@ -927,3 +927,16 @@ nico好像得要半天还是一天才能出吧
 
 坏了，回想了一下感觉真有可能有四期或者剧场版来讲一期生毕业了这内战一时半会真解决不了。你vn越早入队，回旋镖就越狠和小丑（但我感觉花田真不在乎这一点了）
 
+
+*****
+
+####  ads147147  
+##### 94#       发表于 2024-10-6 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386560&amp;ptid=2201887" target="_blank">离心 发表于 2024-10-6 16:54</a>
+
+坏了，回想了一下感觉真有可能有四期或者剧场版来讲一期生毕业了这内战一时半会真解决不了。你vn越早入队， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">大概率有剧场版给你意外惊喜口牙。。。
+
+说实话现在京畿这个水平，让他做动画电影不如让他去画机器人好了。。。
+

@@ -6441,3 +6441,72 @@ cp的关系性不是在日常对话里体现全靠臆测是吧你们这cp磕的<
 
 只是没想到这么简单的道理还有人看不懂
 
+
+*****
+
+####  PDQ4  
+##### 24223#       发表于 2024-10-6 16:56
+
+ 本帖最后由 PDQ4 于 2024-10-6 16:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386546&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-10-6 16:52</a>
+
+是这样的，本来就是在说
+
+以动画为主，所以手游所谓的刻板印象只是观感不好，并没有ooc，手游在卖在写的的 ...</blockquote>
+也不能说没有ooc吧
+
+加重刻板印象本来就是一种ooc，角色多面之间可能会互相矛盾
+
+而性格就是把这种矛盾性糅合在一起，度量之后表现出来
+
+如果单纯重其中一面那就是纯粹的ooc
+
+就比如爽世重视ccc，这是她人设的一部分，但是现在属于狗爱狗，你让现在的爽世没事就大夸ccc甚至还想回去，那就是铁ooc
+
+不过手游编剧喜欢打标签，只是会搞得人设比较难看，卖cp还是按照wsd的任务在走
+
+*****
+
+####  御幸一也  
+##### 24224#       发表于 2024-10-6 16:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">還是想點好的，下週這時候就能看3rd了，看來MV真被壓到LIVE上播，
+
+特地把MV這樣放又是感覺沒什麼新情報了一片黑暗
+
+*****
+
+####  CyDiablo  
+##### 24225#       发表于 2024-10-6 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386538&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-10-6 16:51</a>
+算了不吵了</blockquote>
+猫二星卡面剧情前篇就是一整段和soyo的互动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再说一遍我不想在楼里进行具体的角色关系性分析
+
+syl  我的观点就是不认同所谓的“手游在推爱素+猫灯希”，mygo在手游体现出来的关系性受制于wsd停了活动进度，其实量并不是很多，仅凭现有卡面、角色对话、剧情故事都不能得出以上这个结论。
+
+*****
+
+####  Aendst  
+##### 24226#       发表于 2024-10-6 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386575&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-10-6 16:56</a>
+
+也不能说没有ooc吧
+
+加重刻板印象本来就是一种ooc，角色多面之间可能会互相矛盾
+
+而性格就是把这种矛盾性糅 ...</blockquote>
+这一方面我认为就是笔力不足，以及基底是动画导致手游文案只能看图说话、看设定写作、完全束手束脚导致的
+
+要按照别人写出来的角色写，除非自己的理解和对方接近，不然很难写，如果采取保守态度，以给出的设定为主，那很难避免写出刻板印象
+
+因为只有刻板印象能写
+
+*****
+
+####  星天观测  
+##### 24227#       发表于 2024-10-6 17:01
+
+情报的话至少会把武藏野和鸡狗对邦的消息复读一遍，按照立本人多少会准备点新情报的惯例来讲，最坏的情况可能就是告知11月有新曲（动画op），然后就没有了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

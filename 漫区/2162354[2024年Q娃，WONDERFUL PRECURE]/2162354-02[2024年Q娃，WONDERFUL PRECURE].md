@@ -1324,3 +1324,13 @@ Q娃这么多年终于有bg支棱起来了
 
 小麦待遇这是最惨粉主没跑了吧
 
+
+*****
+
+####  6030sylar  
+##### 2353#       发表于 2024-10-6 13:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">这狗真是只剩标题完全没用
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

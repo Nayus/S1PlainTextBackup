@@ -1015,3 +1015,14 @@ pv还行，就是小人移动有点难绷，史诗感一下子就没了<img src=
 那有点敏感了吧，</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">这也是时代的一个侧面吧，确实这人员性别比例的谣言一听就觉得挺恐怖的
 
+
+*****
+
+####  宛若青空  
+##### 730#       发表于 2024-10-6 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66384402&amp;ptid=2093296" target="_blank">hugosol 发表于 2024-10-6 09:55</a>
+所以现在舆论已经默认天角是LGBT公司了吗？游戏出不来是因为开发人员在摸鱼/集美太多影响开发进度？
+比起这 ...</blockquote>
+其实只要天角不自己做主机版发行和出实体版，只管一个Steam数字版发行问题应该也不会很大
+

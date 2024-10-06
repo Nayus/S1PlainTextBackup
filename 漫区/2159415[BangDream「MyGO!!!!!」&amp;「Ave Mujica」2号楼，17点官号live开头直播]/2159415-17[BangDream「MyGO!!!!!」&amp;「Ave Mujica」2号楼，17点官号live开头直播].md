@@ -5458,3 +5458,63 @@ mygo真某种意义上也是因为mygo的五人都是作为迷子的伙伴，本
 
 crychic是普通的少女乐队，有krkrdkdk，但放在相对严肃的故事里，正如监督所说，就是解散也很正常嘛的“失败的乐队”
 
+
+*****
+
+####  ytttsuuuba  
+##### 24141#       发表于 2024-10-6 12:48
+
+有很喜欢的部分那至少得是讨喜的戏份吧，总不至于对疯狂开人盒感到喜欢吧。我说的确实不准确，要指正也请好好说话，这就造谣了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">语气别那么冲。
+
+*****
+
+####  Aendst  
+##### 24142#       发表于 2024-10-6 12:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ep03我记得她就挺喜欢的（如果没记错的话），她可能会喜欢轻松点的东西
+
+而且平常的营业和活动很容易能看出来小日向很喜欢mygo团魂
+
+与其说是角色高光，不如说mygo团魂的可能性更高
+
+*****
+
+####  御幸一也  
+##### 24143#       发表于 2024-10-6 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66385325&amp;ptid=2159415" target="_blank">ytttsuuuba 发表于 2024-10-6 12:48</a>
+
+有很喜欢的部分那至少得是讨喜的戏份吧，总不至于对疯狂开人盒感到喜欢吧。我说的确实不准确，要指正也请好 ...</blockquote>
+應該不是針對你說的造謠，因為這個外面好多人都這樣說，樓友也被迷惑很正常<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 24144#       发表于 2024-10-6 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66385294&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-10-6 12:41</a>
+
+crychic的继续运行我认为是很难维系的
+
+mygo真某种意义上也是因为mygo的五人都是作为迷子的伙伴，本质上是 ...</blockquote>
+Crychic继续运行的前提必然是祥子家不出事，那样的话祥子就会一直是白祥，运行下去没有问题
+
+灯和睦跟祥子绑定，立希跟灯绑定，爽世看Crychic就像小鸭子看到第一个会动的东西，作为普通少女乐队足够了
+
+
+*****
+
+####  Aendst  
+##### 24145#       发表于 2024-10-6 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66385346&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-10-6 12:51</a>
+
+Crychic继续运行的前提必然是祥子家不出事，那样的话祥子就会一直是白祥，运行下去没有问题
+
+灯和睦跟祥 ...</blockquote>
+祥子这里就还是回到了那个疑问
+
+祥子的本性真的是白祥吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+我个人其实会更想看祥子本性并不白祥的情况，感觉会有趣很多
+

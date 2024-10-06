@@ -1295,3 +1295,24 @@ Q娃这么多年终于有bg支棱起来了
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  HANDAIYV  
+##### 2350#       发表于 2024-10-6 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66384740&amp;ptid=2162354" target="_blank">jaewoongh_ 发表于 2024-10-6 11:03</a>
+
+如果反派作乱的动机就是男女情爱的话实在有点……</blockquote>
+拥抱：孩子们，想我了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  最强惠酱  
+##### 2351#       发表于 2024-10-6 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66383957&amp;ptid=2162354" target="_blank">himfsz 发表于 2024-10-6 07:47</a>
+
+看来我对戴眼镜的人士有很深的成见，诚司和拓海我会觉得为什么不告白，四眼仔的话我就觉得你丫抢什么戏啊 ...</blockquote>
+遇到讨厌眼镜同志<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

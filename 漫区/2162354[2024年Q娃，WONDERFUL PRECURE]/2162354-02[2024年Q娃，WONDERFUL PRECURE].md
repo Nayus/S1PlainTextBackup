@@ -1094,3 +1094,11 @@ wonderful不是彩羽的口癖吗，和cure wonderful有什么关系啊，真紫
 小麦这集就是不断的被支开 确实已经是碍事的东西了</blockquote>
 也难怪这一话标题的wonderful是片假名了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HANDAIYV  
+##### 2330#       发表于 2024-10-6 08:24
+
+小麦到大结局能混到一个特别的wonderful吗。这wonderful指的不是小麦的q娃名而是彩羽的口癖，算不算是标题欺诈（ <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -5739,3 +5739,30 @@ crychic确实是爽世主观上 ...</blockquote>
 
 祥子打工学到真本事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 24165#       发表于 2024-10-6 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66385609&amp;ptid=2159415" target="_blank">lhbb9988 发表于 2024-10-6 13:52</a>
+
+我也不是想表达非此即彼这种极端的想法，不过我现在倒是明白了咱们观点分歧在哪里了，即素世可能不可能在 ...</blockquote>
+其实可以很单纯
+
+制作组需要一个拘泥于crychic的角色，所以有了爽世这个角色
+
+所以她对crychic的感情当然不会是假的，因为这正是脚本需要的
+
+但作为企划的一环，爽世注定是mygo的成员，并且一定会大力推mygo团爱，说难听点，因为实际推出的商品、需要观众喜欢上愿意为其消费的是mygo（尤其在邦多利重视单独live活动的环境下）
+
+所以mygo一定是爽世真正的应许之地才行
+
+这期间的刻画和描写，无非是要将这两点根基一般雷打不动的核心用大家都能接受的合理逻辑连接起来
+
+问题就在这里，怎么样让爽世这个角色的行为相对合理起来，怎么让她融入mygo这自然是需要重点考虑的
+
+我认为这是构成这个角色最重要的影响因素
+
+而crychic继续的if，虽然是基于角色的讨论，但是忽视了mygo的绝对优位，可以发散可以自圆其说，但我个人觉得总是有些别扭的
+

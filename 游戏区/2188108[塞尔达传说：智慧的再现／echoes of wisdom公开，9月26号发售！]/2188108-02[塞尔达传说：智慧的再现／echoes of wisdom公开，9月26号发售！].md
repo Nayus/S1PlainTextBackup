@@ -1387,3 +1387,14 @@ Amiibo还真慷慨，到了某个阶段后，第一次就能直接刷出三套�
 
 我总觉得机关像最后硬塞进来给怪物组合找个收集理由用的。。。用起来贼别扭。但怪物组合也许是个不错的深入方向。。。
 
+
+*****
+
+####  新HGCG  
+##### 1604#       发表于 2024-10-6 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66387631&amp;ptid=2188108" target="_blank">woui003woui 发表于 2024-10-6 19:50</a>
+
+你们都用了机关吗，我连黄金魔鸦都懒得用，做完全部机关的时候已经是人马/蜥蜴战士砍一切了 ...</blockquote>
+机械章鱼可以顶在脑门上当炮台
+

@@ -7176,3 +7176,86 @@ Ave进手游起码得半年后了，不怎么关注手游剧情很奇怪吗？
 
 根据以前看银魂的记忆好像会放？不确定狗会不会
 
+
+*****
+
+####  pipaopo  
+##### 24282#       发表于 2024-10-6 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66388399&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-10-6 21:48</a>
+一般来讲，这种姿态产生的原因不是因为她想对人好，而是因为她害怕被人讨厌
+
+考虑爽世的家庭背景，面对母 ...</blockquote>
+至少她对爱音确实是不耐烦
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  -LYRE-  
+##### 24283#       发表于 2024-10-6 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66388098&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2024-10-6 21:07</a>
+你先搞清楚热度归热度，跟手游做了什么是两件完全不一样的事。你看了多少mygo的路边小对话，游戏后对话， ...</blockquote>
+你怎么好意思说别人喜欢扣帽子的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+你这扣起来不是更熟练吗？我反复看了下之前的回复，到底哪里有“好大的官威”“凭什么不让你说话”了？
+是因为说了个鸡粉对狗手游剧情没多大兴趣的事实，于是你应激了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+你既然要说手游剧情，那就说清楚点展开些呗，贴个图贴个视频链接顺手给没看过的人科普下很难吗？诶，就不，就要在对面表明了确实没兴趣没看过的情况下当懂哥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/269ec14a039a8a4103093831479131c1/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 24284#       发表于 2024-10-6 22:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">……好吧，我算是回过神了，泥漏又有结界大开事件
+
+*****
+
+####  PDQ4  
+##### 24285#       发表于 2024-10-6 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66388534&amp;ptid=2159415" target="_blank">pipaopo 发表于 2024-10-6 22:06</a>
+
+至少她对爱音确实是不耐烦
+
+—— 来自 鹅球 v3.2.91</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+漏油这搞得我很想问你一句
+
+你是不是没有那种互相知底可以互损的好朋友<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 24286#       发表于 2024-10-6 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66388534&amp;ptid=2159415" target="_blank">pipaopo 发表于 2024-10-6 22:06</a>
+至少她对爱音确实是不耐烦
+
+—— 来自 鹅球 v3.2.91</blockquote>
+真的假的？那个世界线的不耐烦，你不会是对阿农有意见才觉得soyo对农不耐烦吧<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  pipaopo  
+##### 24287#       发表于 2024-10-6 22:12
+
+ 本帖最后由 pipaopo 于 2024-10-6 22:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66388557&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-10-6 22:08</a>
+漏油这搞得我很想问你一句
+
+你是不是没有那种互相知底可以互损的好朋友 ...</blockquote>
+那你说她是真喜欢soyorin这个称呼还是，其实不喜欢但对爱音也有愧疚所以这样叫就算了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  御幸一也  
+##### 24288#       发表于 2024-10-6 22:15
+
+這位樓友有點像那個人了 這種觀點我只看過一個人有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

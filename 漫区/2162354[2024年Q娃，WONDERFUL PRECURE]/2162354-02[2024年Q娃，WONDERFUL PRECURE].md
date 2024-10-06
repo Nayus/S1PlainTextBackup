@@ -1175,3 +1175,26 @@ nico自言自语“要是大家都能像你们这样就好了”，有点微妙�
 我倒是很想看看38会怎么演<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 感觉大概率是让小麦和解并且不打扰悟彩
 
+
+*****
+
+####  cmyk1234  
+##### 2338#       发表于 2024-10-6 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66384155&amp;ptid=2162354" target="_blank">走向未来 发表于 2024-10-6 08:55</a>
+我就是有一点好奇，之前的时候，你q或者其他子供向动画，有这种表白加约会的剧情吗？
+
+—— 来自 鹅球 v3.1 ...</blockquote>
+明日的娜嘉，第26集假弗朗西斯和娜嘉接吻映射水中倒影。
+鸟人战队，暴太郎战队，很热门的就不多说了。
+
+
+*****
+
+####  pokemon最爱  
+##### 2339#       发表于 2024-10-6 10:46
+
+另外根据这集妮可的台词看毫无疑问悟彩这次告白交往是主线高度相关的内容了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+而这几话可能最终目的恰恰是要引出38话的小麦的剧情——毕竟至今为止笨狗狗虽然笨但也正因为是个天真烂漫的笨狗狗所以小麦在精神性上完成度太高了，所以用悟彩交往这个外界环境变化刺激小麦自身的成长和思考，为之后主线做铺垫。
+

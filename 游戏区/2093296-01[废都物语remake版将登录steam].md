@@ -1004,3 +1004,14 @@ pv还行，就是小人移动有点难绷，史诗感一下子就没了<img src=
 就是贴吧去线下试玩的说见到的工作人员2/3是女的，被截图出去传播成整个制作组2/3是女的 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">那有点敏感了吧，
 
+
+*****
+
+####  千千千千鸟  
+##### 729#       发表于 2024-10-6 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66384468&amp;ptid=2093296" target="_blank">Vg_Fy 发表于 2024-10-6 10:11</a>
+
+那有点敏感了吧，</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">这也是时代的一个侧面吧，确实这人员性别比例的谣言一听就觉得挺恐怖的
+

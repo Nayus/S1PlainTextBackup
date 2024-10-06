@@ -7411,3 +7411,39 @@ mujica2nd的bd资源也有了，闲着没事可以去看看mc中二话剧，感�
 
 隔壁专楼我记得在阿农生日卡出来之前不时会有爱灯党出来抱怨说没新东西只能在反复回味动画里的糖吧，不过至于这个抱怨有多少是真的我也不清楚就是了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives  
+##### 24302#       发表于 2024-10-6 23:50
+
+そんな彼女たちにスポットを当てたTVアニメ「BanG Dream! Ave Mujica」が2025年1月より放送予定。完全新作のオリジナルアニメーションで繰り広げる、彼女たちの"運命"のお話をお楽しみに。
+
+还有漏油知道这段文案出自哪里吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+动画官方上找不到啊
+
+
+*****
+
+####  Aendst  
+##### 24303#       发表于 2024-10-6 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66389238&amp;ptid=2159415" target="_blank">skives 发表于 2024-10-6 23:50</a>
+
+そんな彼女たちにスポットを当てたTVアニメ「BanG Dream! Ave Mujica」が2025年1月より放送予定。完全新作 ...</blockquote>
+[https://bang-dream.com/about](https://bang-dream.com/about)
+
+企划官网的about里，最前排介绍mujica动画的地方
+
+*****
+
+####  星天观测  
+##### 24304#       发表于 2024-10-6 23:57
+
+完全新作のオリジナルアニメーション
+
+完全新作
+
+オリジナル
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

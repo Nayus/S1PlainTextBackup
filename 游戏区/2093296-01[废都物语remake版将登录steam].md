@@ -1086,3 +1086,16 @@ pv还行，就是小人移动有点难绷，史诗感一下子就没了<img src=
 作为我白毛控的启蒙作我是不希望重制版嗝屁的。
 当然要是真完蛋了。。。至少立绘还行，符合我对白毛女法爷的想象也行吧<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kuarwbwe  
+##### 738#       发表于 2024-10-6 23:51
+
+目前我担心的两个。一个是作为一个独立游戏他从预告整到现在两年多了，而且要真是25年年底发售那就是3年。这不是很多人预期的这游戏应该花费的制作时间。至少我以为23年就应该能玩到了。
+另一个是女性员工人数过多（目前已辟谣）。很难不引起我这个玩二游的ptsd。<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
+
+不过考虑到女员工比例问题被辟谣了，那我还是可以安心等了。就是这个制作进度我实在不想等重置出了再玩了。<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

@@ -5170,3 +5170,11 @@ C跟新；了，机板还没跟新.....
 
 bgm太对味了，目黑还是牛逼
 
+
+*****
+
+####  ping117  
+##### 1201#       发表于 2024-10-6 16:30
+
+画面观感太脏了，3080在PC上跑还不如switch上的塞尔达糖豆人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

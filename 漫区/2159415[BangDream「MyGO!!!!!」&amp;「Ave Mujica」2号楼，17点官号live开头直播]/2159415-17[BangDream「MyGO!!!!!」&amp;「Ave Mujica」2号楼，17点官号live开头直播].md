@@ -6156,3 +6156,94 @@ crychic确实是爽世主观上 ...</blockquote>
 
 明年一定要一起准时看鸡哦<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CyDiablo  
+##### 24197#       发表于 2024-10-6 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386334&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-10-6 16:25</a>
+你逻辑不太好，确实还是顺从我更好一点，不然你大脑可能处理不了</blockquote>
+是你自己说的手游明显在推爱素+猫希灯，我说你说的不对因为别的明显也在卖，你go现在就没有什么所谓的官推，还是你牛逼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 24198#       发表于 2024-10-6 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386334&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-10-6 16:25</a>
+
+你逻辑不太好，确实还是顺从我更好一点，不然你大脑可能处理不了</blockquote>
+无事发生
+
+*****
+
+####  Aendst  
+##### 24199#       发表于 2024-10-6 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386354&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-10-6 16:26</a>
+
+无事发生</blockquote>
+他真的完全没看懂我在说什么，你看楼上他的回复就知道了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 24200#       发表于 2024-10-6 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386328&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2024-10-6 16:24</a>
+
+牛的，卖别的就是官方在推，爱灯就是延续动画，话都被你说完了，嗯嗯顺从 ...</blockquote>
+難道你是想說官方不推愛燈嗎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  CyDiablo  
+##### 24201#       发表于 2024-10-6 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386366&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-10-6 16:27</a>
+難道你是想說官方不推愛燈嗎</blockquote>
+你能理解“什么都在卖”这句话吗
+
+*****
+
+####  御幸一也  
+##### 24202#       发表于 2024-10-6 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386375&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2024-10-6 16:28</a>
+
+你能理解“什么都在卖”这句话吗</blockquote>
+怎麼了 大鍋飯吃到一口就算贏是吧 那好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 24203#       发表于 2024-10-6 16:32
+
+可能就是这种大锅饭精神让人能够天天觉得同班同学是官配，要灯拯救祥子吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  pipaopo  
+##### 24204#       发表于 2024-10-6 16:32
+
+下一季素和祥睦的关系十有八九会恢复，而且mujica大概会卸下面具，歌的契科夫枪先不说，不修复或还匿名的话以后团活不用碰面了了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  御幸一也  
+##### 24205#       发表于 2024-10-6 16:33
+
+而且我很好奇，啥都賣的手遊有沒有賣過例如什麼爽世&amp;貓這種，還是說結果還是賣的官方會推的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 24206#       发表于 2024-10-6 16:34
+
+如果说一句话就算卖的话 还是未来可期的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

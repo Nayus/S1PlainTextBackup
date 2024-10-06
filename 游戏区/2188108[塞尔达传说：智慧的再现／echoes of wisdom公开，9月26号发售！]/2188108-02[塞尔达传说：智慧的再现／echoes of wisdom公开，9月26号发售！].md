@@ -1149,3 +1149,26 @@ Amiibo还真慷慨，到了某个阶段后，第一次就能直接刷出三套�
 火山有两个地方我记得用云方便很多，飞板角度过不去，床不够长</blockquote>
 雪山得用<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DARK_HGCG  
+##### 1583#       发表于 2024-10-6 16:25
+
+<blockquote>ping117 发表于 2024-10-6 16:00
+雪山得用</blockquote>
+雪山哪里啊……
+
+我雪山全程没用云……
+
+*****
+
+####  ping117  
+##### 1584#       发表于 2024-10-6 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386336&amp;ptid=2188108" target="_blank">DARK_HGCG 发表于 2024-10-6 16:25</a>
+雪山哪里啊……
+
+我雪山全程没用云……</blockquote>
+迷宫一半不就强制用云
+

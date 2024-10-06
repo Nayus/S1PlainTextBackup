@@ -760,3 +760,84 @@ md，真玩内战这一套啊
 
 戏份还算平均 都有台词
 
+
+*****
+
+####  ads147147  
+##### 77#       发表于 2024-10-6 16:28
+
+看完了，京极你这个分镜水平，真的下滑的好厉害。
+
+花田写的确实比雨野厉害，至少雨野不会搞步梦跳槽过去搞新偶像部（哦不对，好像已经在栞子身上搞过了？）虽然一切逻辑都是乱写，但是给你强行喊口号喊台词圆回来了，本质上还是大香传的延续，拉人入伙应该是板上钉钉了，最快第三集就合并了吧。慢点第五集或者第七集。个人猜测大赛要延到剧场版里了。
+
+第一集好评率80%往上了，结晶成果显著。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  ads147147  
+##### 78#       发表于 2024-10-6 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386327&amp;ptid=2201887" target="_blank">离心 发表于 2024-10-6 16:24</a>
+md，vn家真想想让vn当垫脚石了，还玩内战这一套啊，op、ed歌需要适应一下。但ll的ed画面你可以永远相信（好 ...</blockquote>
+歌没问题，问题是那个狗屎一样的平移分镜，完全不无法理解用这种分镜的原因。花田大不了敷衍就是了，京极是完全下滑。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  starring  
+##### 79#       发表于 2024-10-6 16:30
+
+OPED和VN的裂歌都挺好听
+
+剧情还是那样，作为第三季开局还行，内战的原因起码也好好说明了。至于香音不归队的理由，完全是为了给收编VN合理一点而作出来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  离心  
+##### 80#       发表于 2024-10-6 16:32
+
+<blockquote>ads147147 发表于 2024-10-6 16:28
+看完了，京极你这个分镜水平，真的下滑的好厉害。
+
+花田写的确实比雨野厉害，至少雨野不会搞步梦跳槽过去搞 ...</blockquote>
+我记得这是转播主自己搞得，nico那边没出吧
+
+
+*****
+
+####  夏亚之徒  
+##### 81#       发表于 2024-10-6 16:32
+
+都坚持到看第三部，还不结晶就有鬼了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png">不过第一集看起来花田是有吃药的
+
+*****
+
+####  ads147147  
+##### 82#       发表于 2024-10-6 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386337&amp;ptid=2201887" target="_blank">tjshibc21 发表于 2024-10-6 16:25</a>
+戏份还算平均 都有台词</blockquote>
+按和香音疏远近分的戏份的，不过不失的做法，vn已经钦定就是二期的香音（被snp打败不服气的香音），戏份最重。然后小千有青梅buff所以可以更多点，恋是被额外端了点水，只是那段vn的台词写的硬的出奇，不知道的还以冠军是vn，可可直接给她上个已经傻掉的buff，这样不出国这事就算圆下来了。
+
+结那配破音了，真的要多努力了，或许也是音监要求的素人感？
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  夏亚之徒  
+##### 83#       发表于 2024-10-6 16:34
+
+反正不可能超越星二吧，那已经是不可逾越的传说了，花田稳扎稳打，这季起码留点让大伙想起来不会两眼一抹黑的剧情吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Totokei  
+##### 84#       发表于 2024-10-6 16:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看完动画了该准备见真人了
+

@@ -841,3 +841,64 @@ OPED和VN的裂歌都挺好听
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看完动画了该准备见真人了
 
+
+*****
+
+####  ads147147  
+##### 85#       发表于 2024-10-6 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386394&amp;ptid=2201887" target="_blank">starring 发表于 2024-10-6 16:30</a>
+OPED和VN的裂歌都挺好听
+
+剧情还是那样，作为第三季开局还行，内战的原因起码也好好说明了。至于香音不归队 ...</blockquote>
+甚至算不上射箭画靶子，只是明确了大香传所以要大香去拉人，干脆就把香音暂时切割出去罢了，这样想还是雨野大师玩剩下的，反正我是不太理解as里步梦对小盐子的态度的。。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  ads147147  
+##### 86#       发表于 2024-10-6 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386424&amp;ptid=2201887" target="_blank">夏亚之徒 发表于 2024-10-6 16:34</a>
+反正不可能超越星二吧，那已经是不可逾越的传说了，花田稳扎稳打，这季起码留点让大伙想起来不会两眼一抹黑 ...</blockquote>
+只不过不想说，但是这一集让我两眼一黑想拉进度条的地方课太多了，花田还是那个吊样子敷衍，破防我估摸着，只是迟早。。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  cybernetics31  
+##### 87#       发表于 2024-10-6 16:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">乐是够的
+
+*****
+
+####  ads147147  
+##### 88#       发表于 2024-10-6 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386410&amp;ptid=2201887" target="_blank">离心 发表于 2024-10-6 16:32</a>
+我记得这是转播主自己搞得，nico那边没出吧</blockquote>
+啊，那好评率可能确实更好点。国内基本结晶了。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  ads147147  
+##### 89#       发表于 2024-10-6 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386469&amp;ptid=2201887" target="_blank">cybernetics31 发表于 2024-10-6 16:39</a>
+这是詹姆斯剧情啊还是as懒猪剧情啊乐是够的</blockquote>
+错误的，是as栞子剧情。。。有理由怀疑冬毬才是那个岚珠（）
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  Vacuolar  
+##### 90#       发表于 2024-10-6 16:42
+
+nico好像得要半天还是一天才能出吧
+

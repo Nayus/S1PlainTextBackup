@@ -6247,3 +6247,122 @@ crychic确实是爽世主观上 ...</blockquote>
 
 如果说一句话就算卖的话 还是未来可期的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 24207#       发表于 2024-10-6 16:36
+
+主推不等于其他都不推，望周知
+
+*****
+
+####  CyDiablo  
+##### 24208#       发表于 2024-10-6 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386413&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-10-6 16:33</a>
+而且我很好奇，啥都賣的手遊有沒有賣過例如什麼爽世&amp;貓這種，還是說結果還是賣的官方會推的 ...</blockquote>
+你不看她们街边小对话是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我不是很想在楼里进行关系性分析
+
+*****
+
+####  御幸一也  
+##### 24209#       发表于 2024-10-6 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386444&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2024-10-6 16:37</a>
+
+你不看她们街边小对话是吧</blockquote>
+沒看過go的所以我問<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+原來這就算是賣 那好吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CyDiablo  
+##### 24210#       发表于 2024-10-6 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386450&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-10-6 16:38</a>
+沒看過go的所以我問
+
+原來這就算是賣 那好吧</blockquote>
+cp的关系性不是在日常对话里体现全靠臆测是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们这cp磕的
+
+*****
+
+####  御幸一也  
+##### 24211#       发表于 2024-10-6 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386442&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-10-6 16:36</a>
+
+主推不等于其他都不推，望周知</blockquote>
+那肯定 海睦肯定未來有期<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 24212#       发表于 2024-10-6 16:39
+
+ 本帖最后由 PDQ4 于 2024-10-6 16:41 编辑 
+
+你邦卖cp不要太直白，基本上很少有在“人际关系上”写负面要素
+
+出场就带有矛盾的，一敲开人际关系，不是双子就是幼驯染，有大量空间大书笔墨写过去如何如何
+
+包括祥子，团内她臭脸主要是对着初华和睦，而恰巧这两对也有可以深挖的过去
+
+也就狗比较大胆，爽姐给人批发黑箭头，最后靠着第十集翻盘出了官推美帝ansy
+
+以及目前狗内所有人都没有幼驯染，不知道以后手游会不会天降一个跟老团拉起来
+
+当然也可能是要维持狗“关系不好的乐队”这一中心，所以不能有幼驯染，毕竟有就没法关系不好了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 24213#       发表于 2024-10-6 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386321&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-10-6 16:23</a>
+
+李子倒是发过和梦以的合照，但是是不是单独约出来的不太确定了
+
+不过你鸡有李和弄两个人，团内五人联系强度 ...</blockquote>
+她们line群应该相当活跃
+
+不只是闲聊，很多时候能发现她们在一起看东西，成员直播或者比如mygo动画13话
+
+应该经常有通过line约线上线下各种团建，很多消息都是光速全员通的
+
+说不定每天都有动静
+
+*****
+
+####  御幸一也  
+##### 24214#       发表于 2024-10-6 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386456&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2024-10-6 16:38</a>
+
+cp的关系性不是在日常对话里体现全靠臆测是吧你们这cp磕的</blockquote>
+應該比看大主播嗑的要好一點吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CyDiablo  
+##### 24215#       发表于 2024-10-6 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386468&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-10-6 16:39</a>
+應該比看大主播嗑的要好一點吧</blockquote>
+谢谢你的ylg头衔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟我一点大主播直播录播都没看过，被发这个帽子也很新鲜
+
+
+*****
+
+####  御幸一也  
+##### 24216#       发表于 2024-10-6 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66386474&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2024-10-6 16:40</a>
+
+谢谢你的ylg头衔毕竟我一点大主播直播录播都没看过，被发这个帽子也很新鲜 ...</blockquote>
+畢竟嗑同班同學的誰不喜歡“鐵暗戀”呢，不說99%起碼9成吧，給你扣一個你不用客氣<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+如果你是那10%那當我沒說哈<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+

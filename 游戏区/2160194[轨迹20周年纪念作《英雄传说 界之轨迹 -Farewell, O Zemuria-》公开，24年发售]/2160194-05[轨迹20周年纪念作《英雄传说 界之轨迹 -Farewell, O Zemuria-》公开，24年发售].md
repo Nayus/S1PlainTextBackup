@@ -3827,3 +3827,18 @@ ZOC+增幅角色，开一个增幅就ZOC二动换下一个人，刷满BUFF，然
 
 拉碧丝羁绊事件藏一个带0.2倍AT阵的核心也太变态了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比闪3太刀风还狠
 
+
+*****
+
+####  红魔馆的糖  
+##### 6298#       发表于 2024-10-7 00:39
+
+太刀风只是硬直减少，这个回路是驱动硬直双减少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">纯外挂
+
+*****
+
+####  jacket  
+##### 6299#       发表于 2024-10-7 00:41
+
+里爷这边妹子没别人胸大，机体没别人时髦，就一个惨字
+

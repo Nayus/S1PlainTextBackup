@@ -5593,3 +5593,37 @@ mygo和crychic从来都是二择一，就好像结婚按照法律只能有一个
 说得好像go动画出完了就没有刻板印象一样，评论区整天喊键盘换吉他的爽姐真是原作13集后那个爽姐吗 ...</blockquote>
 狗的部分二创感觉挺一言难尽的，但是角色粉多少会抗议一下。我比较喜欢鸡的那几个角色，想着塑造不完整加角色粉少估计连抗议的声音都没多少<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  桜庭千景  
+##### 24153#       发表于 2024-10-6 13:34
+
+其实我个人观察倒是觉得鸡成员的二创刻板印象不会影响太大，唯一可能比较让某些人接受不了的大概就是睦的“铁暗恋”
+
+至于其他几个，比如初华的败犬属性、海铃的油腻、喵梦的被加bpm等等都是很流于表面的印象，动画一波出来很容易就洗掉了
+
+祥子的话，本身形象比较复杂，二创中本身就不太固定，反而是迫害搞笑向的客服梗比较多
+
+*****
+
+####  Aendst  
+##### 24154#       发表于 2024-10-6 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66385506&amp;ptid=2159415" target="_blank">桜庭千景 发表于 2024-10-6 13:25</a>
+
+我说的"并非可选项"当然是说的ccc一开始就不可挽回，因为祥睦两个人就没打算回去，素世自己做无用功而已， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这样我就理解了
+
+确实本就是一个拘泥于crychic的人设，这么说确实完全没问题
+
+*****
+
+####  NODY  
+##### 24155#       发表于 2024-10-6 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66385507&amp;ptid=2159415" target="_blank">uhiuk 发表于 2024-10-6 13:26</a>
+
+狗的部分二创感觉挺一言难尽的，但是角色粉多少会抗议一下。我比较喜欢鸡的那几个角色，想着塑造不完整加 ...</blockquote>
+踢吉他换键盘梗黑的是人气最高的几个角色和美帝，照样拦不住，和粉丝多少关系不大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

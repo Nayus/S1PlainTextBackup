@@ -1110,3 +1110,13 @@ wonderful不是彩羽的口癖吗，和cure wonderful有什么关系啊，真紫
 
 新的高峰<img src="https://p.sda1.dev/19/b377f9c97dbbda1bd3d26fbde891e891/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  走向未来  
+##### 2332#       发表于 2024-10-6 08:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我就是有一点好奇，之前的时候，你q或者其他子供向动画，有这种表白加约会的剧情吗？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

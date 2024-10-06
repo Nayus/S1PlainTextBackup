@@ -5100,3 +5100,23 @@ C跟新；了，机板还没跟新.....
 —— 来自 S1Fun ...</blockquote>
 不知道卖几百万回本
 
+
+*****
+
+####  windtrack_qh  
+##### 1195#       发表于 2024-10-6 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66382637&amp;ptid=2140224" target="_blank">AeonsTorn 发表于 2024-10-5 22:33</a>
+
+能洗点吗，我都加魔了
+
+—— 来自 鹅球 v3.1.89</blockquote>
+按真5V的设计思路看应该是可以的
+
+*****
+
+####  kalavinka  
+##### 1196#       发表于 2024-10-6 14:12
+
+现在有高级阿基态形态的图吗，要是都这几个初级的样子也太菜了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

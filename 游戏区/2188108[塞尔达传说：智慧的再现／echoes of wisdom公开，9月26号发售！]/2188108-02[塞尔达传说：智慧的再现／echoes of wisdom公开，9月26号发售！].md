@@ -1078,3 +1078,14 @@ Amiibo还真慷慨，到了某个阶段后，第一次就能直接刷出三套�
   -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">好的，感谢
 
+
+*****
+
+####  kuarwbwe  
+##### 1577#       发表于 2024-10-6 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66385468&amp;ptid=2188108" target="_blank">Yidam 发表于 2024-10-6 13:18</a>
+
+湿地打完之后回德库果监狱</blockquote>
+难怪我没看到，我以为打完迷宫监狱就没剧情了就没回去。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

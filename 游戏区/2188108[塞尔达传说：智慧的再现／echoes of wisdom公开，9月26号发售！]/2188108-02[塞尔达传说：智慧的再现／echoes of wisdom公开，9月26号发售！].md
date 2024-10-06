@@ -1441,3 +1441,12 @@ Amiibo还真慷慨，到了某个阶段后，第一次就能直接刷出三套�
 没想到先锁定和不锁定召唤出来的怪物攻击欲望差这么多
 [https://www.bilibili.com/video/BV1maxTesEm6](https://www.bilibili.com/video/BV1maxTesEm6)
 
+
+*****
+
+####  cgpasia  
+##### 1609#       发表于 2024-10-7 04:26
+
+没想到瞬间输出最强的是林克的炸弹
+[https://www.bilibili.com/video/BV1Av4FePEBz](https://www.bilibili.com/video/BV1Av4FePEBz)
+

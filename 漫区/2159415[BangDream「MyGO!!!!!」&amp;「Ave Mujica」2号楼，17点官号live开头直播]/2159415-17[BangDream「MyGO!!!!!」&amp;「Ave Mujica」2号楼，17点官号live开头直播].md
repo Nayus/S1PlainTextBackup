@@ -7681,3 +7681,47 @@ mujica2nd的bd资源也有了，闲着没事可以去看看mc中二话剧，感�
 
 男邦怎么似了？上一次看到还说是要重启游戏呢<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives10  
+##### 24324#       发表于 2024-10-7 14:58
+
+武士道是要把资源集中在邦多利
+还是赌上社运开发一款又潮又in的单机游戏
+
+*****
+
+####  星天观测  
+##### 24325#       发表于 2024-10-7 15:04
+
+集中给邦多利吗，不可思议<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+真集中的话可以明年给鸡吃点好的吗
+
+*****
+
+####  星天观测  
+##### 24326#       发表于 2024-10-7 15:04
+
+集中给邦多利吗，不可思议<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+真集中的话可以明年给鸡吃点好的吗
+
+*****
+
+####  星天观测  
+##### 24327#       发表于 2024-10-7 15:05
+
+集中给邦多利吗，不可思议<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+真集中的话可以明年给鸡吃点好的吗
+
+
+*****
+
+####  Aendst  
+##### 24328#       发表于 2024-10-7 15:14
+
+那可能还是赌又潮又in的新时尚更有武士道风格一些<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

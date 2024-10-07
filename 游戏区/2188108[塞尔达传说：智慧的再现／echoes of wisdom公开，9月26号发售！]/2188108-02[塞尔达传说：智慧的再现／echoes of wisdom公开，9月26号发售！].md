@@ -1473,3 +1473,15 @@ Amiibo还真慷慨，到了某个阶段后，第一次就能直接刷出三套�
 
 有几个地方专门做了下面悬空且有一定高度差的地形，就是为了解决云的就业
 
+
+*****
+
+####  liekong  
+##### 1612#       发表于 2024-10-7 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66387681&amp;ptid=2188108" target="_blank">冷泉夜月 发表于 2024-10-6 20:01</a>
+仔细想想，他们家做的两款塞尔达，丹培都是个鸡肋，织梦岛的丹培给你自制迷宫——毫无乐趣的鸡肋，智杖的丹 ...</blockquote>
+都怪青沼掀桌了，不然塞尔达制造的话，丹培怕不是最重要的NPC
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -1585,3 +1585,14 @@ Amiibo还真慷慨，到了某个阶段后，第一次就能直接刷出三套�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  aaronluray  
+##### 1623#       发表于 2024-10-8 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66395301&amp;ptid=2188108" target="_blank">佛罗伦萨 发表于 2024-10-7 23:49</a>
+
+为什么凶残的沙尘暴这个支线一直触发不了？目前四个区域都解放了，地图裂缝都清完了 ...</blockquote>
+要先打掉两只野生的虫子，才会触发任务刷出第三只
+

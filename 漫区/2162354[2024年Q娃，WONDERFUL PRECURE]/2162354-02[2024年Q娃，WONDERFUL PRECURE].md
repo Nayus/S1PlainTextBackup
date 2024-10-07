@@ -2251,3 +2251,51 @@ tpp是豚楼逛久了就以为全天下都是豚楼型豚豚了吧
 但是背负作品主题的 ...</blockquote>
 不破不立，不达到这种程度小麦就永远只是一条狗，而不是一个角色或者说定位上的女主或者说犬q人气第一的象征了，况且我不觉得彩羽恋爱戏完了后有任何能力和必要担负后期的主线任务，真正能担负的人如果小麦完不成只能全部让悟完成了，归根结底犬q现在真的只有悟有资格参入主线其他所有角色都完全没有资格
 
+
+*****
+
+####  starring  
+##### 2429#       发表于 2024-10-8 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66395177&amp;ptid=2162354" target="_blank">杂灰 发表于 2024-10-7 23:33</a>
+重点不在于结果而是在于过程，告白前大半篇章展现出来的彩羽对悟的想法大部分情况连点到为止的程度都没到 ...</blockquote>
+这种剧情处理的作品又不是没有，玉子爱情故事跟汪Q这集的剧情架构就几乎一样，怎么轮到Q娃就不可以这样做<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+
+*****
+
+####  bilibilius  
+##### 2430#       发表于 2024-10-8 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66395498&amp;ptid=2162354" target="_blank">bbjajdd 发表于 2024-10-8 00:23</a>
+
+现在问题不是原不原谅敌人吧
+
+是怎么让敌人原谅人类了。。。。。。。</blockquote>
+参考公主，敌人不需要原谅人类的，反正最后不捣乱就行了
+
+
+*****
+
+####  杂灰  
+##### 2431#       发表于 2024-10-8 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66395543&amp;ptid=2162354" target="_blank">starring 发表于 2024-10-8 00:30</a>
+这种剧情处理的作品又不是没有，玉子爱情故事跟汪Q这集的剧情架构就几乎一样，怎么轮到Q娃就不可以这样做 ...</blockquote>
+放在年番里太败观感了
+
+*****
+
+####  久井路路  
+##### 2432#       发表于 2024-10-8 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66395503&amp;ptid=2162354" target="_blank">Wondering 发表于 2024-10-8 00:23</a>
+
+不破不立，不达到这种程度小麦就永远只是一条狗，而不是一个角色或者说定位上的女主或者说犬q人气第一的象 ...</blockquote>
+能力不一定，但必要非常有
+
+首先彩羽是遇到日本狼反派后最多描写在烦恼和思考的，而且主题是人和动物的羁绊、反派身上需要解决的问题是已经失去了对人的信任和爱，所以这个问题只能由反派本身或者人类来给出解答，不能把责任推给其他动物们
+
+如果彩羽在失去了小麦对她的信任时不能力挽狂澜，那她之前的烦恼就是个笑话了（
+

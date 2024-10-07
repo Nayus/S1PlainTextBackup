@@ -1337,3 +1337,27 @@ TVアニメ『ラブライブ！スーパースター!!』3期OPのコンセプ�
 
 香千河边对话时候的BGM贼圣诞快乐劳伦斯先生<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViyViy  
+##### 132#       发表于 2024-10-7 09:35
+
+刻在DNA里的强劲音乐和开场词<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202410/07/093515pzm2dlwbblra2b22.png" referrerpolicy="no-referrer">
+
+<strong>QQ20241007-093451.png</strong> (18.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-7 09:35 上传
+
+
+*****
+
+####  仟音一心  
+##### 133#       发表于 2024-10-7 09:43
+
+<img src="https://p.sda1.dev/19/eefcaf787b4484d977c0ecfbcb733202/image.jpg" referrerpolicy="no-referrer">
+

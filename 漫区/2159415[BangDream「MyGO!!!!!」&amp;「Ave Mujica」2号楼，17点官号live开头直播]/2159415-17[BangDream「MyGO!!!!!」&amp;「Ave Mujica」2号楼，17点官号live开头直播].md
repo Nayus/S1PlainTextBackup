@@ -7665,3 +7665,11 @@ mujica2nd的bd资源也有了，闲着没事可以去看看mc中二话剧，感�
 我看到pv里那一大堆会动的动物玩偶 
 就忍不住想到企鹅罐长颈鹿<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  forgetit  
+##### 24322#       发表于 2024-10-7 14:44
+
+男邦好像彻底完蛋了（不过跟这楼好像也没关系）。。。。
+

@@ -7946,3 +7946,22 @@ mujica2nd的bd资源也有了，闲着没事可以去看看mc中二话剧，感�
 
 今年开始节约和nonnon关系亲近好多<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">去年感觉nonnon和李子茜关系很亲密，和节约梦以还是有点拘谨的感觉，今年开始关系一下子拉近了好多。去年就圣诞吃到了点节约nonnon的糖，今年真的爽吃，顺便先贷款睦祥大卖了。
 
+
+*****
+
+####  NODY  
+##### 24348#       发表于 2024-10-7 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66393621&amp;ptid=2159415" target="_blank">纯良水鬼 发表于 2024-10-7 19:34</a>
+
+认真的说素世之前也不是没体验过爱，把crychic形容成雏鸟第一次见到会动的物体是不是过分了 ...</blockquote>
+缺的不是爱是被其他人需要，本来以为是crychic，结果发现crychic好像也不是很需要她，而go真的说过需要她，就这么简单
+
+<img src="https://img.saraba1st.com/forum/202410/07/202330equsok7jo8exe8zh.png" referrerpolicy="no-referrer">
+
+<strong>1e734e27-87af-4d17-b216-5e6118d4f19d.png</strong> (35.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-7 20:23 上传
+

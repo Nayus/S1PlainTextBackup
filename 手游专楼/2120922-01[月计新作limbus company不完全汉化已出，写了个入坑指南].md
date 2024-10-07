@@ -1340,3 +1340,33 @@ PS：除了每日一折付费单抽外，不建议在瓦尔吉普斯之夜外的
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
 
+
+*****
+
+####  Jamaisvu  
+##### 909#       发表于 2024-10-7 20:26
+
+新人格技能前瞻：
+
+西五协默尔索是破裂呼吸体系，速度越快拼点越强伤害越高。沾上破裂之后姑且和W箱一样扔进破裂队吧：
+
+<img src="https://img.saraba1st.com/forum/202410/07/201902sqn22p4qii275nx2.png" referrerpolicy="no-referrer">
+
+<strong>8a2ca39a51eebf7eb348c2d301b0452d_57ca238437102a7be206e6c18e0842b01247764479.png</strong> (2.49 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-7 20:19 上传
+
+西二协辛克莱，震颤防御系，和西二玛类似，不过buff没玛玛那么多，一眼看上去有种十默之于沉沦队的感觉（尤其是二技能给队友上buff这一点）...
+
+反正是个二星，震颤队高手如云，上不了场。不过场下被动也就给二协同事特供，感觉没臼齿辛泛用...：
+
+<img src="https://img.saraba1st.com/forum/202410/07/202405rmzm0e5g6550gdpg.png" referrerpolicy="no-referrer">
+
+<strong>ff6d39dc5e6c15fad117db15a0d25da5_234792f38299fa0757e9f4051d2e307e1247764479.png</strong> (2.46 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-7 20:24 上传
+

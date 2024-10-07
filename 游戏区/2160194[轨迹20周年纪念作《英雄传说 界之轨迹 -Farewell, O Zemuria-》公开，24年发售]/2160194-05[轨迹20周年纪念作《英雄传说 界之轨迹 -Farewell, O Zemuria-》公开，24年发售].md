@@ -4017,3 +4017,31 @@ ZOC+增幅角色，开一个增幅就ZOC二动换下一个人，刷满BUFF，然
 
 <img src="https://img.saraba1st.com/forum/202410/07/205511brl6k55zzdk8iika.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  benhawk  
+##### 6319#       发表于 2024-10-7 20:57
+
+<blockquote>卢迪克 发表于 2024-10-7 20:53
+不知道卖多少，贴吧看的，只有销售排名。</blockquote>
+还行吧。界轨除了动补和大场面，也就多了一两个新场景。剩下不全是复用，下一部界2估计也就是加几个新场景，复用4部，
+
+*****
+
+####  凉良  
+##### 6320#       发表于 2024-10-7 20:57
+
+韩国褒姒怎么说？
+
+
+*****
+
+####  shumabaoz  
+##### 6321#       发表于 2024-10-7 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66394128&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-10-7 20:53</a>
+
+不知道卖多少，贴吧看的，只有销售排名。</blockquote>
+感觉也不算褒姒了,至少繁中这块很顶吧,棒子那边下次别管好了.
+

@@ -5296,3 +5296,40 @@ p5 without penis？<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 fami通37分感觉有点微妙<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  八佾舞于潭  
+##### 1214#       发表于 2024-10-7 17:16
+
+ 本帖最后由 八佾舞于潭 于 2024-10-7 17:19 编辑 
+
+其实我也有类似的苦恼，17年能玩通80小时的P5和100小时的野炊160小时的xb2全清，18年能啃180小时的生肉，但现在王泪就玩了5小时，xb3只通关支线没清空dlc只开头<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+总感觉是心气变高了，不达到脑补高潮的水平就悻悻然启动一下当鱼缸看。
+
+其实我真觉得内容量比较大的 RPG 可以合理运用一下互联网的信息流设计和推荐系统。别的不说结算画面搞成弹窗，多来点小红点诱导，侧边栏及时推送词条。逃避虽然可耻但有用。
+
+*****
+
+####  八佾舞于潭  
+##### 1215#       发表于 2024-10-7 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66392662&amp;ptid=2140224" target="_blank">walfeds 发表于 2024-10-7 16:45</a>
+
+看评论区的adhd患者震怒了</blockquote>
+ADHD 本来就可以对特定感兴趣事物上瘾，它的病态表现是刹不出车、打不动方向盘。
+
+
+*****
+
+####  windtrack_qh  
+##### 1216#       发表于 2024-10-7 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66392825&amp;ptid=2140224" target="_blank">八佾舞于潭 发表于 2024-10-7 17:16</a>
+
+其实我也有类似的苦恼，17年能玩通80小时的P5和100小时的野炊160小时的xb2全清，18年能啃180小时的生肉，但 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">结算画面搞成弹窗，多来点小红点诱导，侧边栏及时推送词条
+
+轨迹：？
+

@@ -635,3 +635,16 @@ c呆什么技能组，第二部的女同事就来碰瓷，还天天锁前排折�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
 
+
+*****
+
+####  alucardcz  
+##### 14900#       发表于 2024-10-7 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66393292&amp;ptid=2084912" target="_blank">jackyhuang 发表于 2024-10-7 18:35</a>
+
+终于有金时了
+
+一宝百级也还有班可以上的吧…</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">1宝基本上不了版 除非那种能带黑杯的情况 不过我是90 1宝
+

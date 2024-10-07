@@ -7847,3 +7847,29 @@ mujica2nd的bd资源也有了，闲着没事可以去看看mc中二话剧，感�
 
 缺爱才能支撑起来这个角色的行为，否则只会变成擅自矫情
 
+
+*****
+
+####  御幸一也  
+##### 24339#       发表于 2024-10-7 18:56
+
+可愛捏<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202410/07/185623ytcxz0nth1322b0t.jpg" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 1919 - Xユーザーの渡瀬 結月さん_ 「楽しかったねえ🌹 https___t.c.jpg</strong> (9.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-7 18:56 上传
+
+<img src="https://img.saraba1st.com/forum/202410/07/185622uqqqrq9g2qa5dm6a.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_渡瀬 結月(@Watase_Yuzuki)_20241007-105504_1843243640598286842_photo.jpg</strong> (447.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-7 18:56 上传
+
+[https://x.com/Watase_Yuzuki/status/1843243640598286842](https://x.com/Watase_Yuzuki/status/1843243640598286842)
+

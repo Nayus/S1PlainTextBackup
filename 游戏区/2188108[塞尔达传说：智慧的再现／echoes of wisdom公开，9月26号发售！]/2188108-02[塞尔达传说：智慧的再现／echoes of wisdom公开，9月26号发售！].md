@@ -1450,3 +1450,26 @@ Amiibo还真慷慨，到了某个阶段后，第一次就能直接刷出三套�
 没想到瞬间输出最强的是林克的炸弹
 [https://www.bilibili.com/video/BV1Av4FePEBz](https://www.bilibili.com/video/BV1Av4FePEBz)
 
+
+*****
+
+####  怨虎龙  
+##### 1610#       发表于 2024-10-7 10:16
+
+格鲁德房顶那个填沙子的胃卫兵，怎么让她挪开啊
+
+
+*****
+
+####  Victorino  
+##### 1611#       发表于 2024-10-7 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66385501&amp;ptid=2188108" target="_blank">DARK_HGCG 发表于 2024-10-6 13:24</a>
+
+云简直是鸡肋中的鸡肋
+
+有床和飞板谁用那玩意儿啊</blockquote>
+飞板不能垂直提升高度，床不能悬空，所以
+
+有几个地方专门做了下面悬空且有一定高度差的地形，就是为了解决云的就业
+

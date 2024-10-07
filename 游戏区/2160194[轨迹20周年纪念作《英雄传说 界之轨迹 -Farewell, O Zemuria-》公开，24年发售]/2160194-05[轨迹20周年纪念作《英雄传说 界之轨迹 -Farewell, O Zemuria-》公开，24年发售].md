@@ -3965,3 +3965,16 @@ ZOC+增幅角色，开一个增幅就ZOC二动换下一个人，刷满BUFF，然
 里爷这边妹子没别人胸大，机体没别人时髦，就一个惨字</blockquote>
 只是大的没来罢了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">，再说了菲现在也不小了，机体倒真是，不知道界轨2里能不能升级换新机，或者王尼玛还魂。
 
+
+*****
+
+####  lmclmc2  
+##### 6315#       发表于 2024-10-7 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66393734&amp;ptid=2160194" target="_blank">cscbzcbz 发表于 2024-10-7 19:52</a>
+
+赶在国庆最后一天通了，我黎2跳过了，感觉还行，超出预期了。
+
+话说沐浴阳光的阿尼亚丝这个支线给的吊坠似乎 ...</blockquote>
+到时候读存档的时候看你有没有做过这个支线做几句差分台词啥的估计
+

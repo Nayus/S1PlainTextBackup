@@ -1515,3 +1515,15 @@ Amiibo还真慷慨，到了某个阶段后，第一次就能直接刷出三套�
 
 网上云黄昏公主云的好痒呀！想玩黄昏公主重制呀！<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DARK_HGCG  
+##### 1616#       发表于 2024-10-7 19:59
+
+<blockquote>carroy 发表于 2024-10-7 18:45
+【以防你不知道，你可以用恐吓的方式过关-哔哩哔哩】 https://b23.tv/DcAoggi
+
+啊？？ ...</blockquote>
+游戏里有提示他们怕怪物，但是我只是把怪扔他们面前，没想到直接举起来走过去更加省力……
+

@@ -12118,3 +12118,31 @@ miko把鼠标故意晃上去了就是暗示这里写星街
 
 2024-10-6 23:12 上传
 
+
+*****
+
+####  緋色焰華  
+##### 9873#       发表于 2024-10-7 08:00
+
+<blockquote>holoan 发表于 2024-10-6 23:13
+</blockquote>
+fubuking一说business这两人就像孩纸般听话wwwwwww
+
+*****
+
+####  holoan  
+##### 9874#         楼主| 发表于 2024-10-7 13:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66390008&amp;ptid=2086637" target="_blank">緋色焰華 发表于 2024-10-7 08:00</a>
+
+fubuking一说business这两人就像孩纸般听话wwwwwww</blockquote>
+其实七字母本来一开始是不愿意一起坐秋千的就是fbk这个七字母头子给哄上去的
+
+<img src="https://img.saraba1st.com/forum/202410/07/132644plel6ehlefexa8tg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (302.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-7 13:26 上传
+

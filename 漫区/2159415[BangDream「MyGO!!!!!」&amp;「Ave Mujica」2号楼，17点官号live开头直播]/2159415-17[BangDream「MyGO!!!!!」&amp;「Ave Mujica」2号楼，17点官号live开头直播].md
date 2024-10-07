@@ -7673,3 +7673,11 @@ mujica2nd的bd资源也有了，闲着没事可以去看看mc中二话剧，感�
 
 男邦好像彻底完蛋了（不过跟这楼好像也没关系）。。。。
 
+
+*****
+
+####  想喝一点点  
+##### 24323#       发表于 2024-10-7 14:51
+
+男邦怎么似了？上一次看到还说是要重启游戏呢<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+

@@ -8018,3 +8018,19 @@ soyo家庭问题很大吧，她人格就不太健全的样子。感觉soyo是因
 虽然在隔壁也发了，不过感觉s1这边的很多观点也很犀利，姑且再搬运到这边，希望大家能讨论讨论，不知道漏油 ...</blockquote>
 乐队番哪有什么真正的业余乐队，那些歌都出自专业音乐人之手，业余不业余就是一句话的事<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ShikiM  
+##### 24353#       发表于 2024-10-7 22:22
+
+<img src="https://img.saraba1st.com/forum/202410/07/222224atth5zhuf9h88g9l.jpg" referrerpolicy="no-referrer">
+
+<strong>GZJhjqNbMAAImVC.jpg</strong> (131.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-7 22:22 上传
+
+[https://x.com/Aria_Island__/status/1842643020711371093](https://x.com/Aria_Island__/status/1842643020711371093)
+

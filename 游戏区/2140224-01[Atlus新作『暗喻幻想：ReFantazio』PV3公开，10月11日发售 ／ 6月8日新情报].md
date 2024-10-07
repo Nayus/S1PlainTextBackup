@@ -5630,3 +5630,37 @@ IGN9GS10，这卖相能这么高分看来一定很好玩了<img src="https://sta
 
 94了已经
 
+
+*****
+
+####  塔奇克马  
+##### 1250#       发表于 2024-10-7 22:21
+
+卧槽 爆炸了<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  DET  
+##### 1251#       发表于 2024-10-7 22:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">卧槽分这么高我要忍不住豪华版了
+
+*****
+
+####  纯粹理性人  
+##### 1252#       发表于 2024-10-7 22:23
+
+感觉游戏后期会有主角和玩家的coop，替代p的宇宙牌，世界牌。
+
+—— 来自 OPPO PGBM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  星野航  
+##### 1253#       发表于 2024-10-7 22:25
+
+看来，换皮p5还是有效果的，再怎么换皮，也是90+
+

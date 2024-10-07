@@ -2682,3 +2682,101 @@ Day 1的安可也是一如既往的沒有MC環節... 咱也習慣了啊。
 
 2024-10-6 21:51 上传
 
+
+*****
+
+####  wfhtony  
+##### 6521#       发表于 2024-10-6 18:22
+
+ 本帖最后由 wfhtony 于 2024-10-6 18:47 编辑 
+
+Day 2 業務聯絡環節：（Day 1相同內容略）
+
+遊戲方面（頁遊）：  
+
+<img src="https://tc2.wfhtony.space/images/2024/10/06/a62d204c2266909f29b4bbfce037bcb7.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/0c8b2d5188e455881b7a3986527bd8f8.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/5f47233cd3509babfaa69a15081f2306.png" referrerpolicy="no-referrer">
+
+遊戲方面（音遊）：  
+<img src="https://tc2.wfhtony.space/images/2024/10/06/163c5ed25f443a53c3832120018c8c74.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/5a1ad5205447ca5450e15752f1b5500d.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/cd067d5cfe8c72e9a94c291cd519a68d.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/84bbdd4c6d12f96f2f2f4daa92f32a25.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/bc2b1608336797f5a31d1d3bb9a8d46a.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/b4720022f1da6726b480be317c3fdeb5.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/14caa85ff12bdbd2e2e41d4d211165f0.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/d90f405162d537591a3d97127caf5779.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/40684b2fca2d0a24bf3a83108fb35541.png" referrerpolicy="no-referrer">
+
+其他週邊：  
+<img src="https://tc2.wfhtony.space/images/2024/10/06/2c0e076519aa49c03b88f5598a25f6b4.png" referrerpolicy="no-referrer">
+
+今天的最速VOD應該能準時上了。  
+
+  
+
+新消息：  
+<img src="https://tc2.wfhtony.space/images/2024/10/06/b3db9a49d9f3403a40ab51b3e3b51f3b.png" referrerpolicy="no-referrer">
+
+30姊妹聯動第四彈確認爲謎光：
+<img src="https://tc2.wfhtony.space/images/2024/10/06/0d87968e35d47d1503d45b529c01417b.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/0a91f2e7ec780add14a06fc926e16b3d.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/da1e426d60bee68fbe3eff5a7554b29d.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/212de58448e2c795e731418540a36bf0.png" referrerpolicy="no-referrer">
+
+<img src="https://tc2.wfhtony.space/images/2024/10/06/e552d4e79ab073a02695173f7a17ca43.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/af437f0eadeb2dc107fa8a4cb4564319.png" referrerpolicy="no-referrer">
+
+<img src="https://tc2.wfhtony.space/images/2024/10/06/c69afc867370a1af356c4e52a069d4db.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/6a2ef63dd7d104f9035e3613856d571b.png" referrerpolicy="no-referrer">
+
+G.R.A.D.新劇本（Cometik）將於10/9實裝。  
+
+（終演後公開）
+
+7th確定舉辦，形式爲組合巡演，一共四場。
+<img src="https://tc2.wfhtony.space/images/2024/10/06/4411f83581b2ab170b2d42704a01a70b.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/5726455f0e3eb166477dd4567d7dba2e.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/a2aa0a78c1d8b2fc198f5b60522b8e49.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/1708442d9b3a4772178597a3d00b1a82.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/26e0084b4a3bd6dbd6257a792c121c35.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/cfcd6691d2e5233fe72974021dff5902.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/14d1ff69996440a2c8956091dc747993.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/a4aa3e756bad0013f60b3efb03a2fbe2.png" referrerpolicy="no-referrer">
+
+明晚Asobi賣先行票。
+
+以上爲Day 2的業務聯絡環節。
+
+*****
+
+####  Alleyht  
+##### 6522#       发表于 2024-10-6 20:59
+
+没想到文春炮NETA让铃木GRAD给用了，我还以为会在IF池里搞事情，这下汗流浃背了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+鉴于黑星剧情里闪P一贯的空气人作风，这波满满的烂活预感，我先投降了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oznark  
+##### 6523#       发表于 2024-10-6 21:52
+
+<img src="https://img.saraba1st.com/forum/202410/06/065151ky6xbbyzyba458b5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (347.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-6 21:51 上传
+
+*****
+
+####  超法拉  
+##### 6524#       发表于 2024-10-7 08:41
+
+<img src="https://p.sda1.dev/19/58374f8d73a18632027007fbb159a834/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJE110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

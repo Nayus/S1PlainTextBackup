@@ -5217,3 +5217,43 @@ bgm太对味了，目黑还是牛逼
 
 这来回闪屏闪的脑袋疼
 
+
+*****
+
+####  罗克萨斯  
+##### 1206#       发表于 2024-10-7 16:09
+
+丸辣，暗喻幻想流程长到令评委苦不堪言<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[https://www.thegamer.com/metapho ... time-atlus-persona/](https://www.thegamer.com/metaphor-refantazio-runtime-atlus-persona/)
+
+都是些什么人在做评测啊，难怪游戏媒体越来越缺乏说服力了
+
+
+*****
+
+####  windtrack_qh  
+##### 1207#       发表于 2024-10-7 16:12
+
+<img src="https://img.saraba1st.com/forum/202410/07/161234ougwbi03rfu0nfnb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (178.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-7 16:12 上传
+
+这评测作者X bio直接一个trans旗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Van夫膜开  
+##### 1208#       发表于 2024-10-7 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66392467&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-10-7 16:09</a>
+
+丸辣，暗喻幻想流程长到令评委苦不堪言
+
+https://www.thegamer.com/metaphor-refantazio-runtime-atlus-per ...</blockquote>
+属实牛逼，一个jrpg居然被抱怨流程长，评测媒体到底玩没玩过游戏啊
+

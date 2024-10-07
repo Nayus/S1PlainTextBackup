@@ -1615,3 +1615,15 @@ Q娃这么多年终于有bg支棱起来了
 
 有的忠犬角色”啊嗖啵“
 
+
+*****
+
+####  6030sylar  
+##### 2377#       发表于 2024-10-7 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66390036&amp;ptid=2162354" target="_blank">达达葱2 发表于 2024-10-7 08:13</a>
+这是啥梗？</blockquote>
+尼姬的doro狗
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

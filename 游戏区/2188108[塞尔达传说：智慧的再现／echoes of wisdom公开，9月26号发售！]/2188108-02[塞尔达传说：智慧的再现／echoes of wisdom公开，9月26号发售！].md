@@ -1596,3 +1596,15 @@ Amiibo还真慷慨，到了某个阶段后，第一次就能直接刷出三套�
 为什么凶残的沙尘暴这个支线一直触发不了？目前四个区域都解放了，地图裂缝都清完了 ...</blockquote>
 要先打掉两只野生的虫子，才会触发任务刷出第三只
 
+
+*****
+
+####  ping117  
+##### 1624#       发表于 2024-10-8 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66387631&amp;ptid=2188108" target="_blank">woui003woui 发表于 2024-10-6 19:50</a>
+你们都用了机关吗，我连黄金魔鸦都懒得用，做完全部机关的时候已经是人马/蜥蜴战士砍一切了 ...</blockquote>
+手贱试用了偶像史莱姆和机械猪头，结果被绿皮猪砍烂了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+后面要去给小屁孩看偶像史莱姆还要去维修才能拿出来<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+

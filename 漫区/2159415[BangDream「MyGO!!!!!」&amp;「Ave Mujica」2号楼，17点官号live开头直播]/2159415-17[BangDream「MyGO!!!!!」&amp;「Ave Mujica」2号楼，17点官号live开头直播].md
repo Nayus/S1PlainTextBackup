@@ -8183,3 +8183,24 @@ mujica播的时候独角兽还能集集更新关系图吗？<img src="https://st
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">幕间小剧场这时候配压根不晚，反正没画面
 新歌有可能，十月和十一月肯定得有首新歌填补空档期的
 
+
+*****
+
+####  抽搐一下  
+##### 24364#       发表于 2024-10-8 02:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66394384&amp;ptid=2159415" target="_blank">lhbb9988 发表于 2024-10-7 21:41</a>
+
+虽然在隔壁也发了，不过感觉s1这边的很多观点也很犀利，姑且再搬运到这边，希望大家能讨论讨论，不知道漏油 ...</blockquote>
+[https://tieba.baidu.com/p/8971666322?pn=1](https://tieba.baidu.com/p/8971666322?pn=1) go吧有长文分析这个
+
+*****
+
+####  抽搐一下  
+##### 24365#       发表于 2024-10-8 02:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66393947&amp;ptid=2159415" target="_blank">NODY 发表于 2024-10-7 20:23</a>
+
+缺的不是爱是被其他人需要，本来以为是crychic，结果发现crychic好像也不是很需要她，而go真的说过需要她 ...</blockquote>
+单看这段，她其实是说她原以为被需要寂寞会消失，结果被需要寂寞也没消失。
+

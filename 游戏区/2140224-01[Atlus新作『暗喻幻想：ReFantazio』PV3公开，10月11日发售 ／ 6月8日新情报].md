@@ -5726,3 +5726,18 @@ gs：有些场景有配音的话就更好
 
 ign：剧情上存在兜圈子和有点陈词滥调的部分
 
+
+*****
+
+####  ネコカイザー  
+##### 1261#       发表于 2024-10-7 22:48
+
+看了一下IGN和GS的评价内容。我现在就已经预见到全网十万八十八路UP起兵齐讨暗喻幻想剧情/世界观的盛况了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  windtrack_qh  
+##### 1262#       发表于 2024-10-7 22:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我对这个100小时持怀疑态度，考虑媒体编辑大多都不认真玩游戏，估计核心内容撑死60小时左右，希望被打脸
+

@@ -1811,3 +1811,27 @@ Q娃这么多年终于有bg支棱起来了
 还扯什么争吵的立场，知道 ...</blockquote>
 然而这两集恰恰也是真由逆天OOC和主人公小麦空心路人化达到巅峰的两集，在和人宠主题和处理好种族灭绝问题达成人与动物和谐相处的主线都没有任何关系的人类谈恋爱上投入大量人力物力也不过是在偏离正确方向的道路上猛踩油门罢了，至于路的前方是不是悬崖，马上就知道了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Wondering  
+##### 2394#       发表于 2024-10-7 22:48
+
+ 本帖最后由 Wondering 于 2024-10-7 22:49 编辑 
+
+人宠问题和种族灭绝问题八成直接淡化的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+要不还是小麦和狼男配平吧，这不是能找到小麦和新干部各自的意义了吗，反正都是犬科<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  走向未来  
+##### 2395#       发表于 2024-10-7 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66394843&amp;ptid=2162354" target="_blank">Wondering 发表于 2024-10-7 22:48</a>
+人宠问题和种族灭绝问题八成直接淡化的你指望q娃片场能整啥，那三个新干部出场后都很久没啥存在感了不知道 ...</blockquote>
+太变态了，不过成田毕竟是写出过茶几的，也不是不可能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

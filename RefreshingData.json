@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2140224": {
-    "totalreply": 1289,
+    "totalreply": 1290,
     "title": "[Atlus新作『暗喻幻想：ReFantazio』PV3公开，10月11日发售 ／ 6月8日新情报]",
     "newtitle": "[Atlus新作『暗喻幻想：ReFantazio』PV3公开，10月11日发售]",
-    "lastedit": 1728323175,
+    "lastedit": 1728324128,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -10782,10 +10782,10 @@
     "update": false
   },
   "2200032": {
-    "totalreply": 3270,
+    "totalreply": 3271,
     "title": "[巴以中东专楼-9月版]",
     "newtitle": "[巴以中东专楼-9月版]",
-    "lastedit": 1728323769,
+    "lastedit": 1728324251,
     "category": "外野",
     "active": true,
     "update": false
@@ -11007,10 +11007,10 @@
     "update": false
   },
   "2188260": {
-    "totalreply": 246,
+    "totalreply": 247,
     "title": "[『乱马½』完全新作动画 MAPPA制作 2024年10月]",
     "newtitle": "[『乱马½』完全新作动画 MAPPA制作 2024年10月]",
-    "lastedit": 1728322688,
+    "lastedit": 1728324487,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13851,10 +13851,10 @@
     "update": false
   },
   "2201211": {
-    "totalreply": 100,
+    "totalreply": 101,
     "title": "[暗喻幻想媒体评分预测投票]",
     "newtitle": "[暗喻幻想媒体评分预测投票]",
-    "lastedit": 1728312500,
+    "lastedit": 1728324129,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -15062,7 +15062,7 @@
     "newtitle": "[17张图见证共和国的伟大变化]",
     "lastedit": 1728064690,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2201639": {
@@ -16092,10 +16092,10 @@
     "update": false
   },
   "2201887": {
-    "totalreply": 144,
+    "totalreply": 145,
     "title": "[【Love Live! Superstar!!】10月4日广州亚巡，6日上海、三期每周日播出企划5号楼]",
     "newtitle": "[【Love Live! Superstar!!】10月4日广州亚巡，6日上海、三期每周日播出企划5号楼]",
-    "lastedit": 1728304582,
+    "lastedit": 1728324249,
     "category": "漫区",
     "active": true,
     "update": false
@@ -17037,10 +17037,10 @@
     "update": false
   },
   "2202296": {
-    "totalreply": 152,
+    "totalreply": 154,
     "title": "[暗喻幻想评分解禁，ign9，gs10，mc22家94（ps5版）]",
     "newtitle": "[暗喻幻想评分解禁，ign9，gs10，mc22家94（ps5版）]",
-    "lastedit": 1728323529,
+    "lastedit": 1728324367,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17055,10 +17055,10 @@
     "update": false
   },
   "2202300": {
-    "totalreply": 68,
+    "totalreply": 70,
     "title": "[假期相亲，遇到仙女了]",
     "newtitle": "[假期相亲，遇到仙女了]",
-    "lastedit": 1728322811,
+    "lastedit": 1728324251,
     "category": "外野",
     "active": true,
     "update": false
@@ -17069,6 +17069,15 @@
     "newtitle": "[惊闻废都重制版要出了？废都物语算CRPG还是JRPG？]",
     "lastedit": 1728319935,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2175757": {
+    "totalreply": 42,
+    "title": "[可爱史莱姆噗尼露 动画化]",
+    "newtitle": "[可爱史莱姆噗尼露 动画化]",
+    "lastedit": 1728324489,
+    "category": "漫区",
     "active": true,
     "update": false
   }

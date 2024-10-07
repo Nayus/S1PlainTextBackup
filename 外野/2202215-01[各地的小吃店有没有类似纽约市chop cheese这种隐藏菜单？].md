@@ -471,3 +471,13 @@ Philly cheese steak不加番茄吧，一般只加蘑菇和洋葱，在费城跟�
 
 不用预制菜正经有厨子的小饭馆，大部分家常菜你都能试着点一下，有相关备料都能给你做。
 
+
+*****
+
+####  HOIHOISAN  
+##### 46#       发表于 2024-10-7 22:29
+
+<blockquote>lynnnnnnn 发表于 2024-10-7 17:14
+Philly cheese steak不加番茄吧，一般只加蘑菇和洋葱，在费城跟着local推荐去的店，吃的几家都是这样 ...</blockquote>
+Charlie's这种连锁店可以加的
+

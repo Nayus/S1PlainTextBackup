@@ -4141,3 +4141,14 @@ ZOC+增幅角色，开一个增幅就ZOC二动换下一个人，刷满BUFF，然
 
 界轨总感觉体感上歌特别少一直在放前作歌，但看了看好像也没有很少
 
+
+*****
+
+####  we89623  
+##### 6331#       发表于 2024-10-8 04:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66395933&amp;ptid=2160194" target="_blank">darkfall 发表于 2024-10-8 03:17</a>
+
+这次机车女才是真正的英雄啊，上天后的台词也写得挺不错，神腾最终Boss曲1（PV曲2）其实是为了她写的吧，带 ...</blockquote>
+艾米莉亚少校才是真正&lt;英雄传说&gt; 凡人尝试弑神的悲壮感。
+

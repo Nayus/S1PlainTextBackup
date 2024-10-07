@@ -5983,3 +5983,32 @@ PS5港盘300大洋，不想当凯子还是有办法的<img src="https://static.s
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  khxooo  
+##### 1285#       发表于 2024-10-8 01:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66395705&amp;ptid=2140224" target="_blank">rainsheep 发表于 2024-10-8 01:07</a>
+子安是临时换的，原本是古谷彻，往子安声优梗上靠可能性不大。
+
+—— 来自 vivo V2241A, Android 14上的  ...</blockquote>
+这样的吗，但就算是这样，这家伙最终Boss 的可能性也不低。
+
+*****
+
+####  laosai13  
+##### 1286#       发表于 2024-10-8 01:21
+
+话说demo的进度正式版能继承吗？
+
+
+*****
+
+####  ネコカイザー  
+##### 1287#       发表于 2024-10-8 01:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66395738&amp;ptid=2140224" target="_blank">laosai13 发表于 2024-10-8 01:21</a>
+ 话说demo的进度正式版能继承吗？</blockquote>
+能
+

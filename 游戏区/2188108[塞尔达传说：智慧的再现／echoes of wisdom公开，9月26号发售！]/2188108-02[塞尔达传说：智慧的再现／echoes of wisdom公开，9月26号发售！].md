@@ -1608,3 +1608,13 @@ Amiibo还真慷慨，到了某个阶段后，第一次就能直接刷出三套�
 
 后面要去给小屁孩看偶像史莱姆还要去维修才能拿出来<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ParadiseMartyr  
+##### 1625#       发表于 2024-10-8 01:23
+
+【只有bug才能听到的林克惨叫-哔哩哔哩】 https://b23.tv/tfDhiwd
+居然做了林克受电击音效
+鬼叫有点搞笑
+

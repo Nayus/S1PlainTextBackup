@@ -7873,3 +7873,28 @@ mujica2nd的bd资源也有了，闲着没事可以去看看mc中二话剧，感�
 
 [https://x.com/Watase_Yuzuki/status/1843243640598286842](https://x.com/Watase_Yuzuki/status/1843243640598286842)
 
+
+*****
+
+####  rikaren  
+##### 24340#       发表于 2024-10-7 19:07
+
+这双子营业多到我开始害怕这是烟雾弹了。
+
+
+*****
+
+####  星天观测  
+##### 24341#       发表于 2024-10-7 19:13
+
+那不如就当是好朋友出去玩，没有cp或者动画内容指向呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  桜庭千景  
+##### 24342#       发表于 2024-10-7 19:13
+
+也不算特别多吧 看着存的图不少其实都是从去年狗开播开始攒到现在的，本来真人乐队就会多多营业，一直凑不齐人的才不正常
+
+当然按频率来说你鸡目前的发图是全邦最高<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">说一句圣奏音不过分吧
+

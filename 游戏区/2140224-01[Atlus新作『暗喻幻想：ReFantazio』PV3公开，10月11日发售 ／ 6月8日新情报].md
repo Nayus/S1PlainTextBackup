@@ -5423,3 +5423,28 @@ https://www.thegamer.com/metaphor-refantazio-runtime-atlus-per ...</blockquote>
 
 长的难受看来是共识
 
+
+*****
+
+####  石中剑二  
+##### 1226#       发表于 2024-10-7 19:04
+
+同样四百多块钱的游戏一个只能玩18小时，一个能玩80小时你选哪个
+
+*****
+
+####  八佾舞于潭  
+##### 1227#       发表于 2024-10-7 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66393451&amp;ptid=2140224" target="_blank">石中剑二 发表于 2024-10-7 19:04</a>
+
+同样四百多块钱的游戏一个只能玩18小时，一个能玩80小时你选哪个</blockquote>
+前者有针对性的内容稀缺性可以考虑，毕竟免费的超级耗时游戏都不少了
+
+*****
+
+####  hkguty  
+##### 1228#       发表于 2024-10-7 19:09
+
+没什么大缺点的话应该有85以上
+

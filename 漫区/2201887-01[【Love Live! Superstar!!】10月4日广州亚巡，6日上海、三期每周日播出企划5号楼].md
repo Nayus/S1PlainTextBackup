@@ -1445,3 +1445,29 @@ TVアニメ『ラブライブ！スーパースター!!』3期OPのコンセプ�
 拍店家宣传视频。
 <img src="https://p.sda1.dev/19/9efc77ccd2edb27df4dc9d6336982e76/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 143#       发表于 2024-10-7 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66391807&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-10-7 14:11</a>
+有个很难绷的事情：
+
+如果经典第三集代代木，可香作为参加了三年的人，最后却只能有一个人能雪耻。
+
+结丘，你 ...</blockquote>
+我之前猜剧情也是猜薇恩x冬毬的二人组拿代代木冠军，大香痛失人身重大冠军。结果没想到硬塞也得给香音塞进去，这样三打八，优势在大香了，可可已经是希腊奶的子了。
+
+不过往好了想，或许会有8人组曲？
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  仟音一心  
+##### 144#       发表于 2024-10-7 20:34
+
+<img src="https://p.sda1.dev/19/a92f468b0a239019222b624d32061f57/image.jpg" referrerpolicy="no-referrer">
+

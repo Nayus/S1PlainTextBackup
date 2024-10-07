@@ -1662,3 +1662,11 @@ Q娃这么多年终于有bg支棱起来了
 这两方面结合起来再加上你东这几年逆天操作，给很多人感觉就是彩羽就是个用来给悟实现恋情的工具人，争吵虽然乱七八糟但更多是不同立场对这种感觉的表达。
 虽然我也觉得在q娃里看到这样处理的bg很难对成田有什么礼貌的想法<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  不能摸的屁屁  
+##### 2382#       发表于 2024-10-7 20:28
+
+落了俩月没看，看贴吧风评不错一口气快进补完了，果然是甜甜的bg，第三季度就告白成功了，后面怎么演简直不敢想<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

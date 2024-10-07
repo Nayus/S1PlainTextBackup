@@ -8204,3 +8204,16 @@ mujica播的时候独角兽还能集集更新关系图吗？<img src="https://st
 缺的不是爱是被其他人需要，本来以为是crychic，结果发现crychic好像也不是很需要她，而go真的说过需要她 ...</blockquote>
 单看这段，她其实是说她原以为被需要寂寞会消失，结果被需要寂寞也没消失。
 
+
+*****
+
+####  抽搐一下  
+##### 24366#       发表于 2024-10-8 02:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66392704&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-10-7 16:54</a>
+
+所以呢，这不就是离婚后出现隔阂了，导致爽世要夹
+
+虽然之前夹不夹是盲盒</blockquote>
+mygo本来设定也是关系不好但也互相接纳凑一起摸爬滚打的乐队，像拍的合照那样互相合不来才是乐队真实。
+

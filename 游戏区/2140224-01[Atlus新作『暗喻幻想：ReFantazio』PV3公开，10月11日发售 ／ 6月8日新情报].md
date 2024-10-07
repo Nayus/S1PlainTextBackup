@@ -5469,3 +5469,18 @@ https://www.thegamer.com/metaphor-refantazio-runtime-atlus-per ...</blockquote>
 
 不过一直很烦明雷回合制被敌人摸到就强制进战这点，引入原野即时战斗还是有所改善。被敌人攻击和被敌人摸到，前者发生几率还是比后者低。
 
+
+*****
+
+####  TiiTiiLL  
+##### 1231#       发表于 2024-10-7 20:10
+
+像p3rdlc那样让我玩20小时不如让我玩两小时
+
+*****
+
+####  无辄辄  
+##### 1232#       发表于 2024-10-7 20:13
+
+阿特拉斯的100小时游戏时间可能有40-50小时是无聊的印象空间或者各类爬塔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

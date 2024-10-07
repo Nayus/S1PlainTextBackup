@@ -7938,3 +7938,11 @@ mujica2nd的bd资源也有了，闲着没事可以去看看mc中二话剧，感�
 
 认真的说素世之前也不是没体验过爱，把crychic形容成雏鸟第一次见到会动的物体是不是过分了
 
+
+*****
+
+####  ytttsuuuba  
+##### 24347#       发表于 2024-10-7 20:05
+
+今年开始节约和nonnon关系亲近好多<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">去年感觉nonnon和李子茜关系很亲密，和节约梦以还是有点拘谨的感觉，今年开始关系一下子拉近了好多。去年就圣诞吃到了点节约nonnon的糖，今年真的爽吃，顺便先贷款睦祥大卖了。
+

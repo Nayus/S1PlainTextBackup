@@ -7643,3 +7643,25 @@ mujica2nd的bd资源也有了，闲着没事可以去看看mc中二话剧，感�
 
 雇佣兵昨天发啦，在练贝斯勿扰<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 24320#       发表于 2024-10-7 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66389386&amp;ptid=2159415" target="_blank">skives 发表于 2024-10-7 00:14</a>
+
+确实 提到命运就难免让人想到小时候的约定啊 遗忘的重要事物啊 血缘啊 超能力元素啊…… ...</blockquote>
+前三个就算了，最后一个是不是有点奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  skives10  
+##### 24321#       发表于 2024-10-7 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66391660&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-10-7 13:39</a>
+前三个就算了，最后一个是不是有点奇怪</blockquote>
+我看到pv里那一大堆会动的动物玩偶 
+就忍不住想到企鹅罐长颈鹿<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

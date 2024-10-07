@@ -211,3 +211,21 @@ pro哥两个月不打电动，照样血虐薯薯
 什么外传主角基枪秒</blockquote>
 我记得娘子军搞反器材狙击枪时还得到过诗浓的建议<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 1903#       发表于 2024-10-6 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66389105&amp;ptid=1550724" target="_blank">luciferion 发表于 2024-10-6 23:30</a>
+
+什么外传主角基枪秒</blockquote>
+我记得娘子军搞反器材狙击枪时还得到过诗浓的建议<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yeaha123  
+##### 1904#       发表于 2024-10-7 13:22
+
+几个队打活动，感觉跟看怕疼点满防御力一样
+

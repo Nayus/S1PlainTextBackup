@@ -1716,3 +1716,16 @@ Q娃这么多年终于有bg支棱起来了
 
 别装了，都成年人了，醉翁之意在不在酒，藏的那点小心思谁瞧不出来，别入戏太深把自己都骗了。
 
+
+*****
+
+####  走向未来  
+##### 2385#       发表于 2024-10-7 21:59
+
+国内会爆发节奏的一个原因就是国内女性社区里bg解和白河豚素有恩怨。真由如果不变成bg解，估计真没那么多人喷。
+然后就是小麦厨和i女解的问题了，一个是嫌自己推变路人了，一个嫌男的抢女的戏份，女的基本所有动物都不认识了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+不过问题不大，你q明年再搞一年全员bg，男角色重要性继续增加，保证河豚，女主推，i女解都沉默，以后就再也没纷争了。
+两全其美，两难自解<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

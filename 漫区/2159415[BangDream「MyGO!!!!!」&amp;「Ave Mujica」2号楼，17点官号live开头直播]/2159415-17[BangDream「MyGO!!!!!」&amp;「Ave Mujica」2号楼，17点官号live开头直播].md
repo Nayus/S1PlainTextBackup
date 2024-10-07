@@ -8007,3 +8007,14 @@ soyo家庭问题很大吧，她人格就不太健全的样子。感觉soyo是因
 
 2024-10-7 21:47 上传
 
+
+*****
+
+####  玖羽  
+##### 24352#       发表于 2024-10-7 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66394384&amp;ptid=2159415" target="_blank">lhbb9988 发表于 2024-10-7 21:41</a>
+
+虽然在隔壁也发了，不过感觉s1这边的很多观点也很犀利，姑且再搬运到这边，希望大家能讨论讨论，不知道漏油 ...</blockquote>
+乐队番哪有什么真正的业余乐队，那些歌都出自专业音乐人之手，业余不业余就是一句话的事<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

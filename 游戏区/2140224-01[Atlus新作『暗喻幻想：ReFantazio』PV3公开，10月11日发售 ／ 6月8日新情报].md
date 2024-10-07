@@ -5499,3 +5499,80 @@ https://www.thegamer.com/metaphor-refantazio-runtime-atlus-per ...</blockquote>
 
 单纯从我玩P3R的体验来说，爬塔确实很无聊，感觉有四十个小时的游戏时长属于无意义重复劳作<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nightomorrow  
+##### 1235#       发表于 2024-10-7 22:00
+
+ 本帖最后由 nightomorrow 于 2024-10-7 22:03 编辑 
+
+mc93
+
+100h+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  D-JoeII  
+##### 1236#       发表于 2024-10-7 22:00
+
+MC 93
+
+今年GOTY是不是要被阿特拉斯拿到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 1237#         楼主| 发表于 2024-10-7 22:00
+
+ 本帖最后由 Piano-Forest 于 2024-10-7 22:04 编辑 
+
+IGN 9：
+[https://www.ign.com/articles/metaphor-refantazio-review](https://www.ign.com/articles/metaphor-refantazio-review)
+
+GS 10：
+[https://www.gamespot.com/reviews ... world/1900-6418297/](https://www.gamespot.com/reviews/metaphor-refantazio-review-everybody-wants-to-rule-the-world/1900-6418297/)
+
+MC：
+[https://www.metacritic.com/game/metaphor-refantazio/](https://www.metacritic.com/game/metaphor-refantazio/)
+
+*****
+
+####  罗克萨斯  
+##### 1238#       发表于 2024-10-7 22:01
+
+褒姒了，开分相比无印P5暴跌<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  吃鸡南小鸟  
+##### 1239#       发表于 2024-10-7 22:04
+
+**超出预期
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+
+*****
+
+####  泽希尔  
+##### 1240#       发表于 2024-10-7 22:05
+
+这开分比预想的高啊
+
+
+*****
+
+####  黑酒杯  
+##### 1241#       发表于 2024-10-7 22:05
+
+nb啊，可惜角色实在不对我胃口，等正式发售后观望下吧
+
+*****
+
+####  walfeds  
+##### 1242#       发表于 2024-10-7 22:05
+
+看来得复读一遍了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">实话说这作的世界观美术设定和旅行系统看起来更可能在白皮的好球区，所以就算出了分还是得看个人喜好
+

@@ -5341,3 +5341,26 @@ ADHD 本来就可以对特定感兴趣事物上瘾，它的病态表现是刹不
 
 国内的媒体会出测评吗？现在比起外国还是更参考国内的测评
 
+
+*****
+
+####  kuarwbwe  
+##### 1218#       发表于 2024-10-7 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66392952&amp;ptid=2140224" target="_blank">八汰乌 发表于 2024-10-7 17:38</a>
+国内的媒体会出测评吗？现在比起外国还是更参考国内的测评</blockquote>
+肯定会出的。这作宣发力度不小。
+反正我建议是多看几家的具体评价和mc均分参考一下是不适合自己。别只看一个分。<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+
+*****
+
+####  nightomorrow  
+##### 1219#       发表于 2024-10-7 17:50
+
+今晚开分，要来了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BRA-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

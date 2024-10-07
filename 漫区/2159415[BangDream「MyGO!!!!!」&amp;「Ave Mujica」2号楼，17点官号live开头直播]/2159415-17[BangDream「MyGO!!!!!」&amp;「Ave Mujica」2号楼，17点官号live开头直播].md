@@ -7545,3 +7545,37 @@ mujica2nd的bd资源也有了，闲着没事可以去看看mc中二话剧，感�
 
 ちょっかい这个词的选用是不是有点微妙<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 24314#       发表于 2024-10-7 12:20
+
+我的天又賣<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 賣好大
+
+<img src="https://img.saraba1st.com/forum/202410/07/122111ql8l8p8rul3l3jh6.jpg" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 1917 - (1) Xユーザーの高尾奏音さん_ 「この前のおデート🌙💚🩵🌙 .jpg</strong> (103.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-7 12:21 上传
+
+<img src="https://img.saraba1st.com/forum/202410/07/122026vzn3kkmkukwqxq9z.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20241007-041841_1843143888963547581_photo-0.jpg</strong> (527.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-7 12:20 上传
+
+<img src="https://img.saraba1st.com/forum/202410/07/122019jtrtxrfiq2r9q94x.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20241007-041841_1843143888963547581_photo-1.jpg</strong> (896.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-7 12:20 上传
+
+[https://x.com/Kanon_Takao/status/1843143888963547581](https://x.com/Kanon_Takao/status/1843143888963547581)
+

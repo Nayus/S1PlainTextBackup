@@ -1373,3 +1373,12 @@ TVアニメ『ラブライブ！スーパースター!!』3期OPのコンセプ�
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  仟音一心  
+##### 135#       发表于 2024-10-7 12:18
+
+据说是五角场的酸菜鱼。
+<img src="https://p.sda1.dev/19/f35c1daab47135fcba0dd0f8220e39bf/image.jpg" referrerpolicy="no-referrer">
+

@@ -1507,3 +1507,11 @@ Amiibo还真慷慨，到了某个阶段后，第一次就能直接刷出三套�
 啊？？ ...</blockquote>
 游戏里有提示他们很怕怪物的啊
 
+
+*****
+
+####  VVhaleVoice  
+##### 1615#       发表于 2024-10-7 19:29
+
+网上云黄昏公主云的好痒呀！想玩黄昏公主重制呀！<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+

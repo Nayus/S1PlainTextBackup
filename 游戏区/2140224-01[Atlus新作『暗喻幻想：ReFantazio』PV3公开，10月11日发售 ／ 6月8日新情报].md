@@ -6012,3 +6012,22 @@ PS5港盘300大洋，不想当凯子还是有办法的<img src="https://static.s
  话说demo的进度正式版能继承吗？</blockquote>
 能
 
+
+*****
+
+####  RookieTnT  
+##### 1288#       发表于 2024-10-8 01:36
+
+本来不想买的 这些不得不买了
+
+
+*****
+
+####  laosai13  
+##### 1289#       发表于 2024-10-8 01:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66395743&amp;ptid=2140224" target="_blank">ネコカイザー 发表于 2024-10-8 01:22</a>
+
+能</blockquote>
+好的谢谢，希望这作中间能再穿插点轻松一点的桥段不要全程那么苦大仇深
+

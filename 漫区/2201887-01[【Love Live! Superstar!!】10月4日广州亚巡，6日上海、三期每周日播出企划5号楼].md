@@ -1361,3 +1361,15 @@ TVアニメ『ラブライブ！スーパースター!!』3期OPのコンセプ�
 
 <img src="https://p.sda1.dev/19/eefcaf787b4484d977c0ecfbcb733202/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 134#       发表于 2024-10-7 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66390309&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-10-7 09:35</a>
+刻在DNA里的强劲音乐和开场词</blockquote>
+恐龙妈妈~
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

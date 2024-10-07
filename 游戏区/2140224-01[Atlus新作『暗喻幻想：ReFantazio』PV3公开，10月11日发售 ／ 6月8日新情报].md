@@ -5576,3 +5576,57 @@ nb啊，可惜角色实在不对我胃口，等正式发售后观望下吧
 
 看来得复读一遍了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">实话说这作的世界观美术设定和旅行系统看起来更可能在白皮的好球区，所以就算出了分还是得看个人喜好
 
+
+*****
+
+####  八汰乌  
+##### 1243#       发表于 2024-10-7 22:06
+
+懂英文能说下缺点是什么，谢谢
+
+*****
+
+####  u2deack  
+##### 1244#       发表于 2024-10-7 22:07
+
+虽然我是预购了但是demo能有这分数我只能说白皮懂什么jrpg
+除非他正式版能加一个护眼模式，不然这ui我就要扣十分
+
+*****
+
+####  少年包工头  
+##### 1245#       发表于 2024-10-7 22:09
+
+P5r算游戏冗长吗？我个人当年玩的时候是觉得有点崩溃的
+
+
+*****
+
+####  祆天发育不良  
+##### 1246#       发表于 2024-10-7 22:11
+
+刚有料测试了smtv和w这两坨大的，这次说什么也等加强版了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+世嘉还能再降价吗<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  李喜睡  
+##### 1247#       发表于 2024-10-7 22:14
+
+IGN9GS10，这卖相能这么高分看来一定很好玩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，看看后续评价准备买来玩玩看（之前demo玩到一半我都觉得这是个蠢逼游戏根本就不想买来着）
+
+*****
+
+####  无辄辄  
+##### 1248#       发表于 2024-10-7 22:15
+
+分数这么高，看来皇家版稳了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rainsheep  
+##### 1249#       发表于 2024-10-7 22:15
+
+94了已经
+

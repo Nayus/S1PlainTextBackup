@@ -1729,3 +1729,13 @@ Q娃这么多年终于有bg支棱起来了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  日野下花帆  
+##### 2386#       发表于 2024-10-7 22:07
+
+这个问题不就是立场问题<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">喜欢看恋爱bg戏的朋友肯定没有什么怨言，不喜欢看的说出的缺点也是事实，只是满意的人会无视缺点，不喜欢的人就要挑出来说，每个人想看的东西不一样但是要吃一锅饭罢了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

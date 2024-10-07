@@ -1201,3 +1201,17 @@ pv还行，就是小人移动有点难绷，史诗感一下子就没了<img src=
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Geyorkias  
+##### 749#       发表于 2024-10-7 09:13
+
+ 本帖最后由 Geyorkias 于 2024-10-7 09:17 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">谁还没玩过开发十年没开发完的游戏啊，你自己不说预期时间自然也没人追着你问，你说完了拿不出还不许讲那确实是非常幽默了。
+
+吃赞助的独立游戏你也得发开发日志的对吧，到底谁没玩过我不好讲哦。
+
+还有什么“天角说了但工作室没说的”，那我只能讲要是2K宣布了GTA发售日但R星表示“俺们不知道啊你们别信”那算是什么级别的游戏业界笑话
+

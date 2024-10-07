@@ -1627,3 +1627,11 @@ Q娃这么多年终于有bg支棱起来了
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  jaewoongh_  
+##### 2378#       发表于 2024-10-7 13:02
+
+昨天的新BGM相当不错啊，个人很喜欢深泽绘梨香这两年写的配乐
+

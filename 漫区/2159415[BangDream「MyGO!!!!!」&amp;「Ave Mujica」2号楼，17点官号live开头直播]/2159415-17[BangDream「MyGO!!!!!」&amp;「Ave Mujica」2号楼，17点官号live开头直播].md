@@ -7635,3 +7635,11 @@ mujica2nd的bd资源也有了，闲着没事可以去看看mc中二话剧，感�
 
 等一個僱傭兵
 
+
+*****
+
+####  星天观测  
+##### 24319#       发表于 2024-10-7 13:03
+
+雇佣兵昨天发啦，在练贝斯勿扰<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

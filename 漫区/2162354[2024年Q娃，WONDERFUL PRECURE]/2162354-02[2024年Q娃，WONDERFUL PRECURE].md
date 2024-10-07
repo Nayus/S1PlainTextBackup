@@ -2363,3 +2363,32 @@ tpp是豚楼逛久了就以为全天下都是豚楼型豚豚了吧
 
 但是事到如今了，我并不相信犬Q能处理得让我满意，它的这个框架和我的价值观有偏差（
 
+
+*****
+
+####  杂灰  
+##### 2439#       发表于 2024-10-8 00:59
+
+根本就没吵，我最开始说的不就是总结下个人角度对现在才吵起来的原因的见解，我可从来没发表过对这两集制作的贬低言论，一直说的都是不喜欢q娃bg用这个思路刻画，说了半天还在给我硬戴河豚发泄帽子，我要真对你q百合有那么执着我最该做的是脱坑好吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Cloudslin  
+##### 2440#       发表于 2024-10-8 01:02
+
+理解有些豚友反应激烈，就是能不能别戴小麦厨头套了，俺寻思第二季播猫q的时候不是看得挺起劲的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jaewoongh_  
+##### 2441#       发表于 2024-10-8 01:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">小麦作为一条狗只能当彩叶的挂件，之前那些访谈也表明staff对她的定位就是小孩位，真主角位只能是彩叶。所以我觉得现在狗组二人的观感如此奇怪就是因为彩叶着笔不够，比如设定里应该有的善解人意、朋友众多、运动万能在哪里体现出来了？说实话只能靠脑补，更别提动物迷这个属性还被阿悟分走了。ep35-36确实让我看得很开心，但确实缺了点对女方的描写，也许确实应该如楼上所说，存在一个彩叶作为交际花意识不到恋心的情境，但没拍出来就是没有嘛。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">小麦这个角色只能等月末ep38播出后再看了，终盘之前小麦如果还是一条只想着玩的小狗，那终盘绝对会一起烂完，完全想象不出靠其他三人把反派嘴炮服的场景……
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">作画班子很爱小麦的啊，场外虽然挺缺德的但小麦还是很可爱的，她从第一集开始就很萌，别让小狗的设定崩坏好吗……
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">总之还是希望成田能对笔下的角色多一点善意，结局做不到自圆其说应该也能做到轻轻放下吧，至少成田目前的表现比之前两个连大纲都没有的系构强
+

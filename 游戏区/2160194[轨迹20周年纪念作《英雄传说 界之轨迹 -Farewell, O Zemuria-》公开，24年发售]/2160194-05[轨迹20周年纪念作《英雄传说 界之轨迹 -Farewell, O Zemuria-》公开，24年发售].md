@@ -4087,3 +4087,21 @@ ZOC+增幅角色，开一个增幅就ZOC二动换下一个人，刷满BUFF，然
 —— 来自 realme RMX3708, Android 14上的 S1N ...</blockquote>
 黎2不就是这样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">界轨还加了究极之风直接复读量超级加倍
 
+
+*****
+
+####  液体力学  
+##### 6325#       发表于 2024-10-8 01:00
+
+高难度正常玩有些boss还是挺费劲的
+
+*****
+
+####  液体力学  
+##### 6326#       发表于 2024-10-8 01:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66392386&amp;ptid=2160194" target="_blank">nerugigannte 发表于 2024-10-7 15:53</a>
+
+50h噩梦通关，本来还想打个白金，结果宝箱差两个，sp少几点aaa，全图鉴也差四个，二周目一看连庭院都不继承 ...</blockquote>
+50h咋通的噩梦，看你sp就缺几个应该也是支线都做了，再加上刷庭院啥的乱七八糟，这怎么也不止50h了啊
+

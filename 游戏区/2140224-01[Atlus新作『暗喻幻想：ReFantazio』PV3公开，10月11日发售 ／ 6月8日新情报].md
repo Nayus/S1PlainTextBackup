@@ -5959,3 +5959,27 @@ PS5港盘300大洋，不想当凯子还是有办法的<img src="https://static.s
 
 从试玩版出现的人物猜一下最终Boss？第一个就是子安，被封印、失忆，妥妥的隐藏Boss设定，更何况是子安配音，可疑程度直线上升<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，第二个国王，其实所有的东西就是老头夺舍重生的把戏。第三个就是王子，其实所有人，包括主角都在王子的算计当中，路易和主角一样，都是从小跟着王子身边，路易和男主是王子的双保险。或者和真5一样，根据路线不同，最终Boss也不同。
 
+
+*****
+
+####  rainsheep  
+##### 1283#       发表于 2024-10-8 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66395673&amp;ptid=2140224" target="_blank">khxooo 发表于 2024-10-8 00:59</a>
+从试玩版出现的人物猜一下最终Boss？第一个就是子安，被封印、失忆，妥妥的隐藏Boss设定，更何况是子安配音 ...</blockquote>
+子安是临时换的，原本是古谷彻，往子安声优梗上靠可能性不大。
+
+—— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  kuarwbwe  
+##### 1284#       发表于 2024-10-8 01:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66395026&amp;ptid=2140224" target="_blank">ネコカイザー 发表于 2024-10-7 23:13</a>
+隔壁评分楼都已经有人开喷了，才扣5分你这是5分制吗</blockquote>
+百分制啊，而且至少5分不是上不封顶的意思。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

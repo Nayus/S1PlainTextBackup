@@ -1545,3 +1545,13 @@ Amiibo还真慷慨，到了某个阶段后，第一次就能直接刷出三套�
 
 顺便吐槽一下新塞尔达慢慢朝公式化的方向发展了，智杖好多地方真的完全就是在套公式，地图设计就是平原沙漠湖泊雨林雪山火山一样来一个，属性就是冰火雷，要说玩腻了也不至于，但真的没啥新鲜感了
 
+
+*****
+
+####  tachikoma27  
+##### 1619#       发表于 2024-10-7 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66394464&amp;ptid=2188108" target="_blank">Khellendros 发表于 2024-10-7 21:55</a>
+通关了，各方面都符合预期但也没啥超出预期的东西，感觉不爽的地方一个是ui一个是小裂缝太水了玩的打哈欠， ...</blockquote>
+这不就是祖传的公式吗也能扯到新塞尔达<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

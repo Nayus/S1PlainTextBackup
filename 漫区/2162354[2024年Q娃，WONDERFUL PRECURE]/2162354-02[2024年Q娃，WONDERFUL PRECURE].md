@@ -1998,3 +1998,69 @@ Q娃这么多年终于有bg支棱起来了
 当事人到节点为止什么都没法做是因为实际上双方在整个故事开始前就已经对互相是恋爱感情，但当事人自己没 ...</blockquote>
 重点不在于结果而是在于过程，告白前大半篇章展现出来的彩羽对悟的想法大部分情况连点到为止的程度都没到，基本就是疑惑一下然后没下文，反而是表现悟对彩羽的思考和感情在更直球更频繁的表现，我是真不认为这是q娃感情戏的该有的处理方式，如果想让q娃恋爱，为什么不早点让她产生更清晰的想法？她因此产生的思考和行动都有助于丰富她的形象
 
+
+*****
+
+####  Wondering  
+##### 2407#       发表于 2024-10-7 23:36
+
+这么吵还不如讨论讨论小麦在下下下集该何去何从，是承认自己只是一条狗只能当一对甜蜜夫妻的宠物，还是试图融入这个家庭里当个类似于女儿的角色，亦或是找个外人（例如我前面提到的狼男）谈恋爱用来证明自己还是剧情的中心？
+
+感觉只有第三种才能挽救戏份，前两种小麦的戏份肯定没救了
+
+*****
+
+####  pokemon最爱  
+##### 2408#       发表于 2024-10-7 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66395147&amp;ptid=2162354" target="_blank">帝下室の年糕 发表于 2024-10-7 23:30</a>
+
+谁都不会希望自己喜欢的角色成为别人欢庆的背景烟花，哪怕是露崎真昼这种塑造的比较好的“败犬”角色的粉 ...</blockquote>
+这几集小麦的待遇确实不怎么样，但是吧毕竟小麦只是一只笨狗狗一个小孩子，大人们谈正事把小孩支开一边不让捣乱不是很常见的处理方式吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我觉得是不着急下结论，从这集妮可的台词也能看出来悟彩恋爱剧情跟主线实际上高度关联，这几集的待遇有可能是后续（38话）小麦从一个什么都不懂的笨狗狗小孩子成长的铺垫。
+
+反倒值得担心的是主线剧情最后会不会重演茶几的悲剧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Wondering  
+##### 2409#       发表于 2024-10-7 23:40
+
+最可能还是一场离家出走戏份吧，小麦润了，甜蜜夫妻和🐱组着急找小麦，折腾了一整集然后发现流浪小麦再被偷袭，悟上去帮小麦挡了一击，从此小麦对悟改观，然后happy的又融为了一个家庭
+
+问题是成为家庭后然后呢？
+
+*****
+
+####  走向未来  
+##### 2410#       发表于 2024-10-7 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66395208&amp;ptid=2162354" target="_blank">Wondering 发表于 2024-10-7 23:36</a>
+这么吵还不如讨论讨论小麦在下下下集该何去何从，是承认自己只是一条狗只能当一对甜蜜夫妻的宠物，还是试图 ...</blockquote>
+这么看，好地狱啊<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+
+*****
+
+####  日野下花帆  
+##### 2411#       发表于 2024-10-7 23:43
+
+ 本帖最后由 日野下花帆 于 2024-10-7 23:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66394952&amp;ptid=2162354" target="_blank">不能摸的屁屁 发表于 2024-10-7 23:02</a>
+还在偷换概念，喜欢恋爱bg戏的都是bg党了？有没有可能正常人看一部作品，都是看到作品好的地方就喜欢，看 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">你回复干嘛呢，我对这几年q娃没什么感情，就算茶几我都懒得喷好吧，犬q的笔记戏我也没意见，你找有意见的人去。你在说这段话之前就自带立场来了结果打这么长一段话就是来表明自己赛博身份的吗man what can i say。https://m.weibo.cn/detail/5086499179598089 这位也是一般观众但是她也能看出来一些争议的部分，换您口中说的豚友指出就不行，太爱立场先行了吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  杂灰  
+##### 2412#       发表于 2024-10-7 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66395245&amp;ptid=2162354" target="_blank">走向未来 发表于 2024-10-7 23:41</a>
+这么看，好地狱啊
+
+—— 来自 鹅球 v3.2.91</blockquote>
+更地狱的不是等成年立刻组成家庭小麦也没剩几年吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

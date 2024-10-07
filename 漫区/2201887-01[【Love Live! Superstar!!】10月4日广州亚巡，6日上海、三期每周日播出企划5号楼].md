@@ -1406,3 +1406,15 @@ TVアニメ『ラブライブ！スーパースター!!』3期OPのコンセプ�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上班不嘻嘻
 
+
+*****
+
+####  ViyViy  
+##### 139#       发表于 2024-10-7 14:11
+
+有个很难绷的事情：
+
+如果经典第三集代代木，可香作为参加了三年的人，最后却只能有一个人能雪耻。
+
+结丘，你还是麻浦高中啊？
+

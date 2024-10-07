@@ -1643,3 +1643,11 @@ Q娃这么多年终于有bg支棱起来了
 
 组曲黑猫入队甚至直接开除猫籍了<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">好新颖的女干部惩罚机制
 
+
+*****
+
+####  406  
+##### 2380#       发表于 2024-10-7 14:07
+
+按照狼组登场的那集，四人大败被敌方逼近的情况下，猫组情况是猫爬起来护住真由，狗组情况是彩羽把麦狗抱过来护着，这个细节差别也写挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">想麦狗护主，只能等个人回看能否塑造升华起来的，目前护主位忠犬位全是白猫担当
+

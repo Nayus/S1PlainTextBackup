@@ -7535,3 +7535,13 @@ mujica2nd的bd资源也有了，闲着没事可以去看看mc中二话剧，感�
 
 应该就是mujica动画正式标题的样子了
 
+
+*****
+
+####  星天观测  
+##### 24313#       发表于 2024-10-7 11:25
+
+海铃的介绍页面里写着，立希とは同じクラスで、よくちょっかいをかけている。
+
+ちょっかい这个词的选用是不是有点微妙<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

@@ -2064,3 +2064,53 @@ Q娃这么多年终于有bg支棱起来了
 —— 来自 鹅球 v3.2.91</blockquote>
 更地狱的不是等成年立刻组成家庭小麦也没剩几年吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  走向未来  
+##### 2413#       发表于 2024-10-7 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66395259&amp;ptid=2162354" target="_blank">杂灰 发表于 2024-10-7 23:44</a>
+更地狱的不是等成年立刻组成家庭小麦也没剩几年吗</blockquote>
+这个倒是不难，都成q娃了，寿命论根本不是问题。
+但是家庭地位，感情方面，q娃的力量是解决不了的。<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  Wondering  
+##### 2414#       发表于 2024-10-7 23:49
+
+ 本帖最后由 Wondering 于 2024-10-7 23:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66395259&amp;ptid=2162354" target="_blank">杂灰 发表于 2024-10-7 23:44</a>
+
+更地狱的不是等成年立刻组成家庭小麦也没剩几年吗</blockquote>
+谈寿命论那就没意思了，本来犬q就有一个极其地狱的梗了，毕竟项圈和狗绳可是狗组羁绊的证明，情侣组交往小麦融入家庭后得让悟遛一遛小麦吧，这不比寿命论地狱的多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  大泽瑠璃乃  
+##### 2415#       发表于 2024-10-7 23:52
+
+记者：你是主角吗
+
+小麦：我觉得我是
+
+*****
+
+####  pokemon最爱  
+##### 2416#       发表于 2024-10-7 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66395177&amp;ptid=2162354" target="_blank">杂灰 发表于 2024-10-7 23:33</a>
+
+重点不在于结果而是在于过程，告白前大半篇章展现出来的彩羽对悟的想法大部分情况连点到为止的程度都没到 ...</blockquote>
+因为太熟了吧。彩羽是一个性格外向、朋友很多的角色，再加上先动心的一见钟情的是悟这边，结果就是把两人的关系感情“习惯性的”“理所应当的”误解了。
+
+我觉得这算恋爱故事里典型的青梅竹马型情侣迟迟不成的原因吧。
+
+而这也是这集设计让反派干部直接掳走悟的关键——“失去”是最有力的打破“理所应当”的方式，所以最后彩羽很明确自己的感情并因此接受了告白。
+
+另一种处理方式是由于没有这种契机没有明确自己的感情但总之先交往试试接受告白。
+

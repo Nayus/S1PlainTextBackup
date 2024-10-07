@@ -8093,3 +8093,15 @@ mujica播的时候独角兽还能集集更新关系图吗？<img src="https://st
 邦3是1月23日开播
 这么看1月2、1月9、1月16、1月23开播的可能性都有<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 24359#       发表于 2024-10-7 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66395181&amp;ptid=2159415" target="_blank">skives 发表于 2024-10-7 23:33</a>
+邦1是1月21日开播
+邦2是1月3日开播
+邦3是1月23日开播</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">13号前是不可能的，因为13号还有个发表会，有和mujica动画相关的，铁定13号之后
+

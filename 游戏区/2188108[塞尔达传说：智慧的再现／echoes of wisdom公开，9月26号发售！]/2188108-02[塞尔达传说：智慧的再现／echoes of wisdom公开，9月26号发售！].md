@@ -1555,3 +1555,20 @@ Amiibo还真慷慨，到了某个阶段后，第一次就能直接刷出三套�
 通关了，各方面都符合预期但也没啥超出预期的东西，感觉不爽的地方一个是ui一个是小裂缝太水了玩的打哈欠， ...</blockquote>
 这不就是祖传的公式吗也能扯到新塞尔达<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Khellendros  
+##### 1620#       发表于 2024-10-7 23:49
+
+<blockquote>tachikoma27 发表于 2024-10-7 23:40
+这不就是祖传的公式吗也能扯到新塞尔达</blockquote>
+但是老塞尔达迷宫占比大，相似的地图元素给人感觉重复感没那么高，新塞尔达的迷宫部分就只占整个区域探索内容的一小部分，大头放在开放世界上了，相似的地图元素多了就感觉很重复，虽然每作探索地图的方式差别挺大的吧，但是连着三作还是有点受不了
+
+*****
+
+####  佛罗伦萨  
+##### 1621#       发表于 2024-10-7 23:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么凶残的沙尘暴这个支线一直触发不了？目前四个区域都解放了，地图裂缝都清完了
+

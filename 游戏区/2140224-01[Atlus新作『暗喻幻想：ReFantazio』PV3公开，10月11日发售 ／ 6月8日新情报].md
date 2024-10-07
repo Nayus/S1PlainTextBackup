@@ -5257,3 +5257,11 @@ bgm太对味了，目黑还是牛逼
 https://www.thegamer.com/metaphor-refantazio-runtime-atlus-per ...</blockquote>
 属实牛逼，一个jrpg居然被抱怨流程长，评测媒体到底玩没玩过游戏啊
 
+
+*****
+
+####  walfeds  
+##### 1209#       发表于 2024-10-7 16:45
+
+看评论区的adhd患者震怒了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

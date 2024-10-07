@@ -7771,3 +7771,79 @@ mujica2nd的bd资源也有了，闲着没事可以去看看mc中二话剧，感�
 
 好吧，爽姐在亲妈面前就是完全自由的，一点没问题，虽然这样就不知道爽世在ccc寻求什么<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 24333#       发表于 2024-10-7 16:49
+
+也不知道爽姐在狗找到归宿，放下面具到底戳了谁肺管子
+
+亲爱的爽你怎么可以不夹不戴面具呢，那才是真正的你啊，快说你天性就爱夹，就要夹夹一辈子<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  纯良水鬼  
+##### 24334#       发表于 2024-10-7 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66392665&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-10-7 16:46</a>
+
+爽妈真是被你们用麻了
+
+跟妈相处完全放松没有社交面具的话，那爽世一定家庭没问题很幸福吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">素世家庭不幸是从离婚开始，不然回忆也不会从改名开始，那之前呢。素世和母亲的关系也不能说是差，只不过单亲家庭工作太忙根本无力经营家庭才让素世向外寻求家庭。
+
+*****
+
+####  Aendst  
+##### 24335#       发表于 2024-10-7 16:51
+
+爽世家庭温馨幸福没有问题这种设计，会破坏这个角色拘泥于crychic的动机
+
+会让她的行为非常非常难看和儿戏，但凡尊重爽世这个角色一点都不会想看这个吧
+
+
+*****
+
+####  PDQ4  
+##### 24336#       发表于 2024-10-7 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66392687&amp;ptid=2159415" target="_blank">纯良水鬼 发表于 2024-10-7 16:50</a>
+
+素世家庭不幸是从离婚开始，不然回忆也不会从改名开始，那之前呢。素世和母亲的关系也不能说是差，只不过 ...</blockquote>
+所以呢，这不就是离婚后出现隔阂了，导致爽世要夹
+
+虽然之前夹不夹是盲盒
+
+有没有可能制作组叠了这么多甲，就是告诉你情感的缺位导致爽世事事谨小慎微，小心做人
+
+到你们这就是夹子就是真真的爽世，这么真为什么后面不夹了
+
+难道爽世进了狗精神分裂了，一劈两半对狗是不夹的真，对其他人是夹夹的真？
+
+真是大爱无疆，看人下菜，对谁都是真真的呢<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  纯良水鬼  
+##### 24337#       发表于 2024-10-7 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66392690&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-10-7 16:51</a>
+
+爽世家庭温馨幸福没有问题这种设计，会破坏这个角色拘泥于crychic的动机
+
+会让她的行为非常非常难看和儿戏， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">留守儿童也不是没有问题
+
+*****
+
+####  Aendst  
+##### 24338#       发表于 2024-10-7 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66392705&amp;ptid=2159415" target="_blank">纯良水鬼 发表于 2024-10-7 16:54</a>
+
+留守儿童也不是没有问题</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你要我说实话吗，还是很儿戏和难看
+
+缺爱才能支撑起来这个角色的行为，否则只会变成擅自矫情
+

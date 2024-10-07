@@ -1434,3 +1434,14 @@ TVアニメ『ラブライブ！スーパースター!!』3期OPのコンセプ�
 
 天降vn姐把两组人都暴打成为新boss就不用考虑让哪边雪耻了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 142#       发表于 2024-10-7 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66391338&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-10-7 12:46</a>
+穿校服，是拍BD的特别收录么？</blockquote>
+拍店家宣传视频。
+<img src="https://p.sda1.dev/19/9efc77ccd2edb27df4dc9d6336982e76/image.jpg" referrerpolicy="no-referrer">
+

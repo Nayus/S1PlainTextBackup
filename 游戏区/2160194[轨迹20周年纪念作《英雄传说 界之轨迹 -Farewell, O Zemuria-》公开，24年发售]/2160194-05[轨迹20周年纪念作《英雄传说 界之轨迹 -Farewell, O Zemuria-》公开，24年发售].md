@@ -4045,3 +4045,23 @@ ZOC+增幅角色，开一个增幅就ZOC二动换下一个人，刷满BUFF，然
 不知道卖多少，贴吧看的，只有销售排名。</blockquote>
 感觉也不算褒姒了,至少繁中这块很顶吧,棒子那边下次别管好了.
 
+
+*****
+
+####  卢迪克  
+##### 6322#       发表于 2024-10-7 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66394160&amp;ptid=2160194" target="_blank">shumabaoz 发表于 2024-10-7 20:58</a>
+
+感觉也不算褒姒了,至少繁中这块很顶吧,棒子那边下次别管好了.</blockquote>
+主要云豹还做了宣传来着
+
+2c7a0690-8174-4153-9a04-73c947a193e8_512(1).png
+(876.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-7 21:16 上传
+
+<img src="https://img.saraba1st.com/forum/202410/07/211644rjcnjyu32n7cpumd.png" referrerpolicy="no-referrer">
+

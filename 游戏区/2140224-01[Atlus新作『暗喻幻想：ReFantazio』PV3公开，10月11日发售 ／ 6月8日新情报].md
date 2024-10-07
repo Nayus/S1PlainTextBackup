@@ -5741,3 +5741,25 @@ ign：剧情上存在兜圈子和有点陈词滥调的部分
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我对这个100小时持怀疑态度，考虑媒体编辑大多都不认真玩游戏，估计核心内容撑死60小时左右，希望被打脸
 
+
+*****
+
+####  kuarwbwe  
+##### 1263#       发表于 2024-10-7 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66394850&amp;ptid=2140224" target="_blank">ネコカイザー 发表于 2024-10-7 22:48</a>
+看了一下IGN和GS的评价内容。我现在就已经预见到全网十万八十八路UP起兵齐讨暗喻幻想剧情/世界观的盛况了  ...</blockquote>
+就ign盛赞political drama我就已经尿了。这玩意估计在国内至少要扣5分吧。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  日日日日日野  
+##### 1264#       发表于 2024-10-7 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66394871&amp;ptid=2140224" target="_blank">windtrack_qh 发表于 2024-10-7 22:53</a>
+
+我对这个100小时持怀疑态度，考虑媒体编辑大多都不认真玩游戏，估计核心内容撑死60小时左右，希望被打脸 ...</blockquote>
+RPG Site的人说他差不多75小时打完的
+

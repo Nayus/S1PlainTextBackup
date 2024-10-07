@@ -8034,3 +8034,11 @@ soyo家庭问题很大吧，她人格就不太健全的样子。感觉soyo是因
 
 [https://x.com/Aria_Island__/status/1842643020711371093](https://x.com/Aria_Island__/status/1842643020711371093)
 
+
+*****
+
+####  星天观测  
+##### 24354#       发表于 2024-10-7 23:03
+
+官方有盖章过初祥是幼驯染关系吗，我好像没找到确切访谈什么的<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+

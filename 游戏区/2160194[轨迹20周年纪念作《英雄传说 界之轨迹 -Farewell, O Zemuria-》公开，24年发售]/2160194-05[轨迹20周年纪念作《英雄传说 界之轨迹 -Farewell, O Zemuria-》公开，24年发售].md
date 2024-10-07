@@ -4065,3 +4065,13 @@ ZOC+增幅角色，开一个增幅就ZOC二动换下一个人，刷满BUFF，然
 
 <img src="https://img.saraba1st.com/forum/202410/07/211644rjcnjyu32n7cpumd.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  椎名mahuyo  
+##### 6323#       发表于 2024-10-7 21:24
+
+拿到大鲸鱼以后，感觉后面战斗都没啥悬念了，复读就完事了
+
+—— 来自 realme RMX3708, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

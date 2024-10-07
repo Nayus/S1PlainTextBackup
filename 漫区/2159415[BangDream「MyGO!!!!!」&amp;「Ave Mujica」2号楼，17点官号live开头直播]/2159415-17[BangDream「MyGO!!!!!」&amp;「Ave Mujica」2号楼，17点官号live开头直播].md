@@ -8042,3 +8042,32 @@ soyo家庭问题很大吧，她人格就不太健全的样子。感觉soyo是因
 
 官方有盖章过初祥是幼驯染关系吗，我好像没找到确切访谈什么的<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 24355#       发表于 2024-10-7 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66394956&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-10-7 23:03</a>
+
+官方有盖章过初祥是幼驯染关系吗，我好像没找到确切访谈什么的</blockquote>
+独角兽关系图咯
+
+<img src="https://img.saraba1st.com/forum/202410/07/230646ztlbs1lgtlagttt7.png" referrerpolicy="no-referrer">
+
+<strong>无标题.png</strong> (252.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-7 23:06 上传
+
+
+*****
+
+####  MASKA-1  
+##### 24356#       发表于 2024-10-7 23:14
+
+mujica播的时候独角兽还能集集更新关系图吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

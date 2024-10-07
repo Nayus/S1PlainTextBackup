@@ -5763,3 +5763,38 @@ ign：剧情上存在兜圈子和有点陈词滥调的部分
 我对这个100小时持怀疑态度，考虑媒体编辑大多都不认真玩游戏，估计核心内容撑死60小时左右，希望被打脸 ...</blockquote>
 RPG Site的人说他差不多75小时打完的
 
+
+*****
+
+####  ネコカイザー  
+##### 1265#       发表于 2024-10-7 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66394951&amp;ptid=2140224" target="_blank">kuarwbwe 发表于 2024-10-7 23:02</a>
+
+就ign盛赞political drama我就已经尿了。这玩意估计在国内至少要扣5分吧。
+
+—— 来自 鹅球 v3.1.91-alph ...</blockquote>
+隔壁评分楼都已经有人开喷了，才扣5分你这是5分制吗 <img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  黑修士  
+##### 1266#       发表于 2024-10-7 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66394653&amp;ptid=2140224" target="_blank">纯粹理性人 发表于 2024-10-7 22:23</a>
+
+感觉游戏后期会有主角和玩家的coop，替代p的宇宙牌，世界牌。
+
+—— 来自 OPPO PGBM10, Android 14上的 S1N ...</blockquote>
+游戏一开始就让玩家留真名，还有对应的神秘卷轴。
+
+<img src="https://img.saraba1st.com/forum/202410/07/231340wkfffjyylje11eet.jpg" referrerpolicy="no-referrer">
+
+<strong>20240927200206.jpg</strong> (695.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-7 23:13 上传
+
+感觉是个双刃剑伏笔，就看如何使用了，用的好体验加分。
+

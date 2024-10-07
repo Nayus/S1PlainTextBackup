@@ -1912,3 +1912,36 @@ Q娃这么多年终于有bg支棱起来了
 
 自己不敢表态，又喜欢阴阳怪气，唉，难怪S1厨厨都退环境了，真的没劲。
 
+
+*****
+
+####  杂灰  
+##### 2400#       发表于 2024-10-7 23:12
+
+事到如今这片子核心是恋爱是什么很隐晦的事吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">演成这样大家都懂，又没说不行，怎么你先急着甩开了
+
+
+*****
+
+####  pokemon最爱  
+##### 2401#       发表于 2024-10-7 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66394742&amp;ptid=2162354" target="_blank">杂灰 发表于 2024-10-7 22:34</a>
+
+什么事不是立场问题，我感觉自己不喜欢这种剧情构造那一刻起我就已经有了立场，我无法接受q娃第一个正经拍b ...</blockquote>
+当事人到节点为止什么都没法做是因为实际上双方在整个故事开始前就已经对互相是恋爱感情，但当事人自己没有意识到自己的感情的本质也没有注意到对方的感情的实质啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png">这种情况当然只能是被有意识的一方以及注意到真相的第三方去推动给一个契机来认识到真相。
+
+*****
+
+####  不能摸的屁屁  
+##### 2402#       发表于 2024-10-7 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66394913&amp;ptid=2162354" target="_blank">HANDAIYV 发表于 2024-10-7 22:57</a>
+
+哪来那么多有的没的。也拿天q举例，在真白第一次见蚱蜢的时候，都以为是小问题，吐槽担心一下就过了，但几 ...</blockquote>
+你也明白就事论事啊？对蚱蜢洗白不满应该批评蚱蜢。
+
+到了犬Q告白这儿，批评就变成了“男的抢戏”、“主角塑造崩坏”、“主线稀烂”、“没有肉搏”，合着你第一天看犬Q啊？这次怎么不就是论事呢？怎么变成犬Q一直以来存在的缺点了呢？
+
+反复说了，批评没啥问题，但你在什么时候批评什么东西，有没有问题谁看不出来，装啥子？
+

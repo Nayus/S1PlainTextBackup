@@ -8071,3 +8071,25 @@ mujica播的时候独角兽还能集集更新关系图吗？<img src="https://st
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  星天观测  
+##### 24357#       发表于 2024-10-7 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66394986&amp;ptid=2159415" target="_blank">NODY 发表于 2024-10-7 23:06</a>
+
+独角兽关系图咯</blockquote>
+感谢，我说怎么访谈没找到<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  skives  
+##### 24358#       发表于 2024-10-7 23:33
+
+邦1是1月21日开播
+邦2是1月3日开播
+邦3是1月23日开播
+这么看1月2、1月9、1月16、1月23开播的可能性都有<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

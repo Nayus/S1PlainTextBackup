@@ -1956,3 +1956,45 @@ Q娃这么多年终于有bg支棱起来了
 然而这两集恰恰也是主人公小麦空心路人化和社恐人设的真由逆天OOC达到巅峰的两集，这俩都是人气远高于那 ...</blockquote>
 社恐和面对亲近的人的感情问题兴致勃勃并不是什么矛盾的属性，至于小麦的待遇我觉得是为了主线展开故意的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  不能摸的屁屁  
+##### 2404#       发表于 2024-10-7 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66394783&amp;ptid=2162354" target="_blank">帝下室の年糕 发表于 2024-10-7 22:40</a>
+
+然而这两集恰恰也是主人公小麦空心路人化和社恐人设的真由逆天OOC达到巅峰的两集，这俩都是人气远高于那 ...</blockquote>
+年糕你还是算了吧，我忍不住喷你们主要就是看到你转的那玩意，而且你是昨天刚播出没多久就转的。
+
+知道啥意思不？在观众都在讨论这一集本身时，第一时间转这种不着边的喷子，这不叫客观批评，这叫砸场子，叫故意对冲懂不？我觉得你自己心里有数。但凡热度退下去一天半天，大伙冷静下来，说bg虽然拍的不错但犬Q还有很多缺点，我都觉得是正常的批评。
+
+至于狗子影薄，是老早就有的缺陷了，今年主角设定上面非常失败，但这一集小麦表现是合乎逻辑的，她要是能解风情了才奇怪。茉优，我没觉得OOC，社恐跟熟人都不社恐，估计豚豚有特别的滤镜。
+
+主线我也认为不乐观，而且根本没兴趣，但这集告白跟主线有半毛钱关系？哪来的有端联想？
+
+
+*****
+
+####  帝下室の年糕  
+##### 2405#       发表于 2024-10-7 23:30
+
+ 本帖最后由 帝下室の年糕 于 2024-10-7 23:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66395062&amp;ptid=2162354" target="_blank">pokemon最爱 发表于 2024-10-7 23:17</a>
+社恐和面对亲近的人的感情问题兴致勃勃并不是什么矛盾的属性，至于小麦的待遇我觉得是为了主线展开故意的 ...</blockquote>
+谁都不会希望自己喜欢的角色成为别人欢庆的背景烟花，哪怕是露崎真昼这种塑造的比较好的“败犬”角色的粉丝也不会希望自己推被过度迫害的
+而犬Q这几集场内外的做法就是<strong>相当于GBC官方把486花六七十打车回家这个烂梗放到正片而且玩了一遍又一遍一遍又一遍</strong>，角色厨积压的怒气到了极限爆了很正常，我只是真由这个次要受害者的粉丝，主要受害者的小麦粉丝早已骂声一片，推上都这样了匿名版更不用说，各种方面透露出来的信息就是小麦这个角色成了弃子
+<img src="https://p.sda1.dev/19/8a24fe9cefa692789b2235d5f4480811/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/85b9f9a385a300b21eb313e92b62d80c/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/673db03655e03639d844c2d218f0c27e/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/130c5c46a4ad87f54fbb54e3a31be997/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  杂灰  
+##### 2406#       发表于 2024-10-7 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66395042&amp;ptid=2162354" target="_blank">pokemon最爱 发表于 2024-10-7 23:15</a>
+当事人到节点为止什么都没法做是因为实际上双方在整个故事开始前就已经对互相是恋爱感情，但当事人自己没 ...</blockquote>
+重点不在于结果而是在于过程，告白前大半篇章展现出来的彩羽对悟的想法大部分情况连点到为止的程度都没到，基本就是疑惑一下然后没下文，反而是表现悟对彩羽的思考和感情在更直球更频繁的表现，我是真不认为这是q娃感情戏的该有的处理方式，如果想让q娃恋爱，为什么不早点让她产生更清晰的想法？她因此产生的思考和行动都有助于丰富她的形象
+

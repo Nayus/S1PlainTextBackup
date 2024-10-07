@@ -5839,3 +5839,33 @@ RPG Site的人说他差不多75小时打完的
 214，买了，ATLUS两年后出豪华版有我的责任</blockquote>
 俺也一样，前面被smt5v背刺本来不想首发的，但是实在太便宜了<img src="https://static.saraba1st.com/image/smiley/face2017/129.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  monikaca  
+##### 1271#       发表于 2024-10-8 00:12
+
+等完全版吧，当年5R系统上的提升爽到，剧情...这几年日本人还能写出啥好的故事吗？
+
+我觉得TGA会有大乐子了，估计最佳美术音乐年度游戏都会一股脑塞给日本人了哈哈哈哈哈。
+
+*****
+
+####  GameTheory  
+##### 1272#       发表于 2024-10-8 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66395406&amp;ptid=2140224" target="_blank">katern 发表于 2024-10-8 00:06</a>
+
+俺也一样，前面被smt5v背刺本来不想首发的，但是实在太便宜了</blockquote>
+淘宝买key有风险么？
+
+*****
+
+####  Leona_Akari  
+##### 1273#       发表于 2024-10-8 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66395406&amp;ptid=2140224" target="_blank">katern 发表于 2024-10-8 00:06</a>
+
+俺也一样，前面被smt5v背刺本来不想首发的，但是实在太便宜了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">别说了，SMT5刚开始NS版帧数太低没下手，VV直接首发买了以后最近降价+打折那会儿我一周目都没打完
+

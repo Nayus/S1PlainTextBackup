@@ -8105,3 +8105,72 @@ mujica播的时候独角兽还能集集更新关系图吗？<img src="https://st
 邦3是1月23日开播</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">13号前是不可能的，因为13号还有个发表会，有和mujica动画相关的，铁定13号之后
 
+
+*****
+
+####  NODY  
+##### 24360#       发表于 2024-10-7 23:56
+
+梦以说今天有mujica的录音工作
+
+会是3rd的幕间吗？这个时候配会不会有点晚
+
+<img src="https://img.saraba1st.com/forum/202410/07/235532o00svqhjhjgp8ggh.png" referrerpolicy="no-referrer">
+
+<strong>无标题.png</strong> (10.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-7 23:55 上传
+
+<img src="https://img.saraba1st.com/forum/202410/07/235532wo00jhthoho5hiov.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20231008012333.png</strong> (236.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-7 23:55 上传
+
+
+*****
+
+####  星天观测  
+##### 24361#       发表于 2024-10-7 23:58
+
+那就往好处想，万一是录新歌和声
+
+*****
+
+####  玖羽  
+##### 24362#       发表于 2024-10-8 00:01
+
+[https://www.pixiv.net/artworks/122745399](https://www.pixiv.net/artworks/122745399)
+
+<img src="https://img.saraba1st.com/forum/202410/07/235941bt0qjauqsjadsmmt.jpg" referrerpolicy="no-referrer">
+
+<strong>122745399_p0.jpg</strong> (443.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-7 23:59 上传
+
+[https://www.pixiv.net/artworks/122218301](https://www.pixiv.net/artworks/122218301)（很多图）
+
+<img src="https://img.saraba1st.com/forum/202410/07/235940uea9iin3eaiybb1k.jpg" referrerpolicy="no-referrer">
+
+<strong>122218301_p2.jpg</strong> (642.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-7 23:59 上传
+
+[https://www.pixiv.net/artworks/123084455](https://www.pixiv.net/artworks/123084455)（原图）
+
+<img src="https://img.saraba1st.com/forum/202410/08/000133coiz8js9a92o8iio.jpg" referrerpolicy="no-referrer">
+
+<strong>123084455_p0.jpg</strong> (843.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-8 00:01 上传
+

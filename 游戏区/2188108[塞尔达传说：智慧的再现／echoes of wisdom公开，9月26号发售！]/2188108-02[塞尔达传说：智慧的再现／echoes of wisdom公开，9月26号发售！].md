@@ -1572,3 +1572,16 @@ Amiibo还真慷慨，到了某个阶段后，第一次就能直接刷出三套�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么凶残的沙尘暴这个支线一直触发不了？目前四个区域都解放了，地图裂缝都清完了
 
+
+*****
+
+####  库德里尔  
+##### 1622#       发表于 2024-10-8 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66395301&amp;ptid=2188108" target="_blank">佛罗伦萨 发表于 2024-10-7 23:49</a>
+为什么凶残的沙尘暴这个支线一直触发不了？目前四个区域都解放了，地图裂缝都清完了 ...</blockquote>
+我记得沙漠区域有好几只钻沙大虫子，拉尾巴然后上去a的。
+是不是要打掉之后才能接取？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

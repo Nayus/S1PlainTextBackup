@@ -5817,3 +5817,25 @@ RPG Site的人说他差不多75小时打完的
 这两年带娃估计没时间玩
 还是等个完全版吧
 
+
+*****
+
+####  Leona_Akari  
+##### 1269#       发表于 2024-10-7 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66394825&amp;ptid=2140224" target="_blank">baizhi 发表于 2024-10-7 22:45</a>
+
+淘宝的key216，别的不提，这个价格真能冲了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">214，买了，ATLUS两年后出豪华版有我的责任
+
+
+*****
+
+####  katern  
+##### 1270#       发表于 2024-10-8 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66395355&amp;ptid=2140224" target="_blank">Leona_Akari 发表于 2024-10-7 23:57</a>
+
+214，买了，ATLUS两年后出豪华版有我的责任</blockquote>
+俺也一样，前面被smt5v背刺本来不想首发的，但是实在太便宜了<img src="https://static.saraba1st.com/image/smiley/face2017/129.png" referrerpolicy="no-referrer">
+

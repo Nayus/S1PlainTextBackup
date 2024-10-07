@@ -1494,3 +1494,16 @@ Amiibo还真慷慨，到了某个阶段后，第一次就能直接刷出三套�
 【以防你不知道，你可以用恐吓的方式过关-哔哩哔哩】 [https://b23.tv/DcAoggi](https://b23.tv/DcAoggi)
 啊？？
 
+
+*****
+
+####  aaronluray  
+##### 1614#       发表于 2024-10-7 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66393356&amp;ptid=2188108" target="_blank">carroy 发表于 2024-10-7 18:45</a>
+
+【以防你不知道，你可以用恐吓的方式过关-哔哩哔哩】 https://b23.tv/DcAoggi
+
+啊？？ ...</blockquote>
+游戏里有提示他们很怕怪物的啊
+

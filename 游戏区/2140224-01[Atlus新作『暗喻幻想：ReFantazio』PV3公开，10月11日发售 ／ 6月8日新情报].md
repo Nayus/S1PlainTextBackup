@@ -5265,3 +5265,19 @@ https://www.thegamer.com/metaphor-refantazio-runtime-atlus-per ...</blockquote>
 
 看评论区的adhd患者震怒了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  凋零的缤纷  
+##### 1210#       发表于 2024-10-7 16:57
+
+这次是没有什么器官的P5呢期待一下<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  卡拉德利姆  
+##### 1211#       发表于 2024-10-7 17:02
+
+可以联动下隔壁育碧的新闻
+

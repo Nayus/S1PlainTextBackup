@@ -7725,3 +7725,11 @@ mujica2nd的bd资源也有了，闲着没事可以去看看mc中二话剧，感�
 
 那可能还是赌又潮又in的新时尚更有武士道风格一些<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  纯良水鬼  
+##### 24329#       发表于 2024-10-7 16:00
+
+如果说素世夹就是社交面具，就是伪物，那她和自己母亲也是假母女了
+

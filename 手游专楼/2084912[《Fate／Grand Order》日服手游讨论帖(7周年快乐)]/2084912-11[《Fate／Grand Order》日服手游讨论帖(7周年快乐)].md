@@ -605,3 +605,14 @@ c呆什么技能组，第二部的女同事就来碰瓷，还天天锁前排折�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/271.png" referrerpolicy="no-referrer">那么多年 萌新终于有闪闪了
 
+
+*****
+
+####  TheLoof  
+##### 14897#       发表于 2024-10-7 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66385745&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-10-6 14:28</a>
+绿方块消耗有点大  怎么办  有没有大佬救一救!</blockquote>
+阿叶：你以为我每抽送绿方块是为了啥
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

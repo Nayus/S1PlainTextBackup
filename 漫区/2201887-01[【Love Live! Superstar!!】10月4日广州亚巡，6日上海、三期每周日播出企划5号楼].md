@@ -1418,3 +1418,11 @@ TVアニメ『ラブライブ！スーパースター!!』3期OPのコンセプ�
 
 结丘，你还是麻浦高中啊？
 
+
+*****
+
+####  adw667  
+##### 140#       发表于 2024-10-7 15:27
+
+我有点分不清PAY和结娜了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+

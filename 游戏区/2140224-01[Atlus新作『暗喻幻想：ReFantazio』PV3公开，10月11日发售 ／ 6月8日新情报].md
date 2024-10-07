@@ -5869,3 +5869,37 @@ RPG Site的人说他差不多75小时打完的
 俺也一样，前面被smt5v背刺本来不想首发的，但是实在太便宜了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">别说了，SMT5刚开始NS版帧数太低没下手，VV直接首发买了以后最近降价+打折那会儿我一周目都没打完
 
+
+*****
+
+####  katern  
+##### 1274#       发表于 2024-10-8 00:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66395434&amp;ptid=2140224" target="_blank">GameTheory 发表于 2024-10-8 00:13</a>
+
+淘宝买key有风险么？</blockquote>
+给的码没问题
+
+*****
+
+####  89765596  
+##### 1275#       发表于 2024-10-8 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66395434&amp;ptid=2140224" target="_blank">GameTheory 发表于 2024-10-8 00:13</a>
+
+淘宝买key有风险么？</blockquote>
+没有，在淘宝上买过好多，找销量高的就行
+
+
+*****
+
+####  baizhi  
+##### 1276#       发表于 2024-10-8 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66395434&amp;ptid=2140224" target="_blank">GameTheory 发表于 2024-10-8 00:13</a>
+
+淘宝买key有风险么？</blockquote>
+一定要是给key激活的，这个基本零风险。
+
+如果是送礼物的就不太行，店家可以退款不说，号还有被封的危险。
+

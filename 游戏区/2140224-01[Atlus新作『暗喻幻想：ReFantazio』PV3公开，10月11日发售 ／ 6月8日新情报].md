@@ -5448,3 +5448,14 @@ https://www.thegamer.com/metaphor-refantazio-runtime-atlus-per ...</blockquote>
 
 没什么大缺点的话应该有85以上
 
+
+*****
+
+####  Kusabi  
+##### 1229#       发表于 2024-10-7 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66393451&amp;ptid=2140224" target="_blank">石中剑二 发表于 2024-10-7 19:04</a>
+
+同样四百多块钱的游戏一个只能玩18小时，一个能玩80小时你选哪个</blockquote>
+看是不是注水吧，如果是的话泥潭对于育碧罐头的观点可以套用
+

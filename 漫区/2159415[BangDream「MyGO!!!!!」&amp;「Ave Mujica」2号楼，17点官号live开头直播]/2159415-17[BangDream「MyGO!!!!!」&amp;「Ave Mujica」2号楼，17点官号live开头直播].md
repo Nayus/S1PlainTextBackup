@@ -7741,3 +7741,33 @@ mujica2nd的bd资源也有了，闲着没事可以去看看mc中二话剧，感�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">wsd那脑子，肯定是赌上社运开发又潮又in的单机啦
 
+
+*****
+
+####  纯良水鬼  
+##### 24331#       发表于 2024-10-7 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66387878&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-10-6 20:33</a>
+
+不能
+
+哪怕Crychic是每个季度都会自动刷新的杂鱼偶像番里的少女乐队，也必须安排一集让爽世撕下伪装，而无 ...</blockquote>
+前提是素世从未感受过家庭温暖，父母离婚时素世已经很大了，即使离婚前父亲对她不怎么样，总归和母亲关系还是很好的，crychic不存在印随效应
+
+
+*****
+
+####  PDQ4  
+##### 24332#       发表于 2024-10-7 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66392418&amp;ptid=2159415" target="_blank">纯良水鬼 发表于 2024-10-7 16:00</a>
+
+如果说素世夹就是社交面具，就是伪物，那她和自己母亲也是假母女了</blockquote>
+爽妈真是被你们用麻了
+
+跟妈相处完全放松没有社交面具的话，那爽世一定家庭没问题很幸福吧
+
+制作组都那么直白的跟你讲爽世就是家庭有问题，因为不想增加妈的负担，所以学校是听妈选的，事事不敢跟妈提要求
+
+好吧，爽姐在亲妈面前就是完全自由的，一点没问题，虽然这样就不知道爽世在ccc寻求什么<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

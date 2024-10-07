@@ -5679,3 +5679,50 @@ IGN9GS10，这卖相能这么高分看来一定很好玩了<img src="https://sta
 
 完了，实体版要涨价了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  godless2020  
+##### 1256#       发表于 2024-10-7 22:39
+
+那一年的年度对决是P5对决野炊，最终胜利是野炊。当时我看见P5坐在椅子上泣不成声，那一刻我就在想如果我能拿到提名，我一定要赢下所有。如今年度就在眼前，我必须考虑这会不会是我此生仅有的机会。我相信JRPG能有过去的霸主地位，阿特拉斯功不可没。重铸JRPG的荣光，我辈义不容辞！<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+*****
+
+####  筒井彩芽  
+##### 1257#       发表于 2024-10-7 22:42
+
+惊了，想预购了，但是一想后续可能还有什么劳什子加强版单独卖又冷静了<img src="https://static.saraba1st.com/image/smiley/face2017/173.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ping117  
+##### 1258#       发表于 2024-10-7 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66394553&amp;ptid=2140224" target="_blank">少年包工头 发表于 2024-10-7 22:09</a>
+P5r算游戏冗长吗？我个人当年玩的时候是觉得有点崩溃的</blockquote>
+100小时起步
+还不长就没几个游戏更长了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  baizhi  
+##### 1259#       发表于 2024-10-7 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66394809&amp;ptid=2140224" target="_blank">筒井彩芽 发表于 2024-10-7 22:42</a>
+
+惊了，想预购了，但是一想后续可能还有什么劳什子加强版单独卖又冷静了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">淘宝的key216，别的不提，这个价格真能冲了。
+
+*****
+
+####  怨虎龙  
+##### 1260#       发表于 2024-10-7 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66394530&amp;ptid=2140224" target="_blank">八汰乌 发表于 2024-10-7 22:06</a>
+懂英文能说下缺点是什么，谢谢</blockquote>
+gs：有些场景有配音的话就更好
+
+ign：剧情上存在兜圈子和有点陈词滥调的部分
+

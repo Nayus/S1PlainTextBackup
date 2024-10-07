@@ -1945,3 +1945,14 @@ Q娃这么多年终于有bg支棱起来了
 
 反复说了，批评没啥问题，但你在什么时候批评什么东西，有没有问题谁看不出来，装啥子？
 
+
+*****
+
+####  pokemon最爱  
+##### 2403#       发表于 2024-10-7 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66394783&amp;ptid=2162354" target="_blank">帝下室の年糕 发表于 2024-10-7 22:40</a>
+
+然而这两集恰恰也是主人公小麦空心路人化和社恐人设的真由逆天OOC达到巅峰的两集，这俩都是人气远高于那 ...</blockquote>
+社恐和面对亲近的人的感情问题兴致勃勃并不是什么矛盾的属性，至于小麦的待遇我觉得是为了主线展开故意的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

@@ -3978,3 +3978,42 @@ ZOC+增幅角色，开一个增幅就ZOC二动换下一个人，刷满BUFF，然
 话说沐浴阳光的阿尼亚丝这个支线给的吊坠似乎 ...</blockquote>
 到时候读存档的时候看你有没有做过这个支线做几句差分台词啥的估计
 
+
+*****
+
+####  卢迪克  
+##### 6316#       发表于 2024-10-7 20:51
+
+ 本帖最后由 卢迪克 于 2024-10-7 20:52 编辑 
+
+界轨在韩国原来褒姒了，万一下作中韩不同步就.........<img src="https://static.saraba1st.com/image/smiley/carton2017/383.png" referrerpolicy="no-referrer">
+
+*****
+
+####  benhawk  
+##### 6317#       发表于 2024-10-7 20:52
+
+<blockquote>卢迪克 发表于 2024-10-7 20:51
+韩国原来褒姒了，万一下作中韩不同步就.........</blockquote>
+港服什么销量？
+
+*****
+
+####  卢迪克  
+##### 6318#       发表于 2024-10-7 20:53
+
+ 本帖最后由 卢迪克 于 2024-10-7 20:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66394120&amp;ptid=2160194" target="_blank">benhawk 发表于 2024-10-7 20:52</a>
+
+港服什么销量？</blockquote>
+不知道卖多少，贴吧看的，只有销售排名。
+
+621102ed8a136327bb351810d78fa0ec09fac70e.jpg
+(58.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-7 20:55 上传
+
+<img src="https://img.saraba1st.com/forum/202410/07/205511brl6k55zzdk8iika.jpg" referrerpolicy="no-referrer">
+

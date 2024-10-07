@@ -5484,3 +5484,18 @@ https://www.thegamer.com/metaphor-refantazio-runtime-atlus-per ...</blockquote>
 
 阿特拉斯的100小时游戏时间可能有40-50小时是无聊的印象空间或者各类爬塔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星花  
+##### 1233#       发表于 2024-10-7 20:47
+
+我超过20个小时的游戏就开始容易放弃了。优秀的游戏可以反复玩。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RStocking  
+##### 1234#       发表于 2024-10-7 20:49
+
+单纯从我玩P3R的体验来说，爬塔确实很无聊，感觉有四十个小时的游戏时长属于无意义重复劳作<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

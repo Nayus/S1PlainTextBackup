@@ -2299,3 +2299,47 @@ tpp是豚楼逛久了就以为全天下都是豚楼型豚豚了吧
 
 如果彩羽在失去了小麦对她的信任时不能力挽狂澜，那她之前的烦恼就是个笑话了（
 
+
+*****
+
+####  久井路路  
+##### 2433#       发表于 2024-10-8 00:40
+
+不过对我来说万恶之源还是那个杂志<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+“彩羽和悟这是在约会吗？小麦（和咩咩）不要来碍事哦。”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+哪怕那旁白改一下措辞，我看这集的时候都不一定会这么关注被隔绝在外的小麦（
+
+*****
+
+####  Wondering  
+##### 2434#       发表于 2024-10-8 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66395570&amp;ptid=2162354" target="_blank">久井路路 发表于 2024-10-8 00:33</a>
+
+能力不一定，但必要非常有
+
+首先彩羽是遇到日本狼反派后最多描写在烦恼和思考的，而且主题是人和动物的羁 ...</blockquote>
+问题不还是这个失去信任和爱理论上就是无解的话题，也是日本文娱很难处理的一个话题，我不觉得就现在q娃组的水准能够做到由人类来解决这个问题，最好的办法还是我说的，让小麦进干部组，不破不立，用其他的爱和各种情感来缓解世代的仇怨，这比由彩羽和悟嘴炮解决肯定靠谱的多，也能让小麦形象不再局限于一个宠物身份，你不会想让猫组和小麦嘴炮干部洗白吧
+
+*****
+
+####  starring  
+##### 2435#       发表于 2024-10-8 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66395569&amp;ptid=2162354" target="_blank">杂灰 发表于 2024-10-8 00:33</a>
+放在年番里太败观感了</blockquote>
+放在年番里又怎么败观感了，年番的长度比剧场版还能更加积累彩羽和悟在过去三十几集里的互动呢，实际上这集彩羽想到自己会失去悟时，所有回想的点滴都有迹可循，到感情爆发那刻一切都显得理所当然。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+
+*****
+
+####  湖静欲成冰  
+##### 2436#       发表于 2024-10-8 00:41
+
+都吵什么呢。这集至少我的观感挺好，是能过关的。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+河豚大圣能不能收了神通？你们说话对不熟悉你们那套的人来说有种让人生理恶心的感觉。那种言语中自带的俯瞰让人根本无法升起和你对话的欲望。和当初的厨厨一样让人恶心。
+

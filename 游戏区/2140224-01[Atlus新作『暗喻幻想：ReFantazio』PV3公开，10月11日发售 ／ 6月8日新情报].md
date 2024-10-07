@@ -5921,3 +5921,24 @@ RPG Site的人说他差不多75小时打完的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ping117  
+##### 1279#       发表于 2024-10-8 00:38
+
+PS5港盘300大洋，不想当凯子还是有办法的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  GameTheory  
+##### 1280#       发表于 2024-10-8 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66395509&amp;ptid=2140224" target="_blank">baizhi 发表于 2024-10-8 00:24</a>
+
+一定要是给key激活的，这个基本零风险。
+
+如果是送礼物的就不太行，店家可以退款不说，号还有被封的危险。 ...</blockquote>
+多谢 已购买 希望之后不是发皇家版而是本体+DLC形式吧
+

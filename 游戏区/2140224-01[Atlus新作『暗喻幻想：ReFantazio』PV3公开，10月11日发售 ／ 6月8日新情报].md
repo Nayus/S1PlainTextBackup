@@ -6596,3 +6596,12 @@ sqx就已经开始集大成总篇集了
 
 —— 来自 OPPO PGBM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  退治  
+##### 1347#       发表于 2024-10-9 03:18
+
+不知道有没有人发过，这游戏宣发预算真多，点个外卖都能看到
+<img src="https://pic.imgdb.cn/item/6705856ad29ded1a8cf677cc.jpg" referrerpolicy="no-referrer">
+

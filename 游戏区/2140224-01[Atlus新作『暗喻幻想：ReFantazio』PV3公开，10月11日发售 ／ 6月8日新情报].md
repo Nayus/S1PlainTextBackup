@@ -6332,3 +6332,13 @@ sqx就已经开始集大成总篇集了
 
 什么，不能洗点，我想骂人<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罗克萨斯  
+##### 1322#       发表于 2024-10-8 18:44
+
+喷了，港版实体竟然还能降，已经296了，阿特拉斯是有多想大卖啊，还是变相的把港服也搞成低价区？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

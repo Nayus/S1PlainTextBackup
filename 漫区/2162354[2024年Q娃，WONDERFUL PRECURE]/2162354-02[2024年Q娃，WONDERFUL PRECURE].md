@@ -2617,3 +2617,72 @@ bg解这种大该是厕妹用语的词吧，很难想象正常人能用得出来
 10月预告</blockquote>
 果然是狼狗cp吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天风绯炎  
+##### 2463#       发表于 2024-10-8 22:43
+
+你也亚撒西的狼，你可以欺骗自己，但围绕在你身边的动物们不会，它们围绕在你身边那一刻就证明了，你是亚撒西的。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+姑且按经验来说，是走这个套路模板了吧
+
+*****
+
+####  jaewoongh_  
+##### 2464#       发表于 2024-10-8 22:47
+
+成田你tm恶心人得有个度啊，再这样下去要跟茶几坐一桌了
+
+*****
+
+####  Wondering  
+##### 2465#       发表于 2024-10-8 22:49
+
+为啥会觉得我在口胡，不是很明显狼男就是和小麦对照的吗，要不然也不会出场就和狗组是对手戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很合理的猜测吧
+
+*****
+
+####  双重清洁枪  
+##### 2466#       发表于 2024-10-8 22:49
+
+最后要和boss一起补足小麦的个人线了
+
+
+*****
+
+####  ΣPRC  
+##### 2467#       发表于 2024-10-8 22:51
+
+发现反派隐藏的亚撒西那种事不要啊啊啊啊啊啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.85-alpha
+
+*****
+
+####  成田良美  
+##### 2468#       发表于 2024-10-8 22:51
+
+放心，我是正邪分明的人。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| jaewoongh_|-1|那你去年在搞神魔？|
+
+查看全部评分
+
+*****
+
+####  明日的红卡农  
+##### 2469#       发表于 2024-10-8 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66403303&amp;ptid=2162354" target="_blank">成田良美 发表于 2024-10-8 22:51</a>
+放心，我是正邪分明的人。</blockquote>
+该展示老牌系构的水平了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

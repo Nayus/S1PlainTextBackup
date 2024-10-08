@@ -6507,3 +6507,13 @@ sqx就已经开始集大成总篇集了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在隔壁等皇家版都能是梗了吗，怎么感觉一眼杀猪盘
 
+
+*****
+
+####  kuarwbwe  
+##### 1338#       发表于 2024-10-8 22:52
+
+打完肥仔我现在不想买了，回头看看楼里评价和几个atlus凯子的直播云一下再说了。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

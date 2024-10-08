@@ -9442,3 +9442,37 @@ URL：[https://ib.eplus.jp/avemujica_3rd_st/](https://ib.eplus.jp/avemujica_3rd_
 
 幸好我入坑还不到半年，要是像一些漏油一样要从去年等到明年，mujica要25年播的消息出的时候我就先跑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  相坂君  
+##### 24461#       发表于 2024-10-8 20:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">怎么还虾仁猪心啊，被吊着一年多的鸡粉看不得这个
+
+*****
+
+####  星天观测  
+##### 24462#       发表于 2024-10-8 20:15
+
+别说了，再说我要无法斯麦路了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 24463#       发表于 2024-10-8 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66401889&amp;ptid=2159415" target="_blank">桜庭千景 发表于 2024-10-8 19:38</a>
+
+说0宣发倒是有点过了，充其量算动画0宣发（虽然这个的确是大头，不过至少7月发了个带新镜头的pv）
+
+真人团 ...</blockquote>
+確實 沒弄弄天天團魂發糖已經<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鳥栖朝  
+##### 24464#       发表于 2024-10-8 20:15
+
+已经被wsdPUA了
+

@@ -2439,3 +2439,23 @@ BG楼友说难得有个能看的回，虽然同意汪Q有一堆问题，但能�
 
 呃呃，怎么又出来个小号来端水了，还给一顶bg帽子给我们大友戴？<img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">明明是河豚不在河豚楼拉屎跑q娃楼拉屎的错，你装什么老胡呢
 
+
+*****
+
+####  大泽瑠璃乃  
+##### 2447#       发表于 2024-10-8 15:18
+
+ 本帖最后由 大泽瑠璃乃 于 2024-10-8 15:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66399445&amp;ptid=2162354" target="_blank">maoyou 发表于 2024-10-8 14:51</a>
+
+呃呃，怎么又出来个小号来端水了，还给一顶bg帽子给我们大友戴？明明是河豚不在河豚楼拉屎跑q娃楼拉屎的错 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face/109.gif" referrerpolicy="no-referrer">我之所以在用这个号是因为被河豚橄榄了，我太害怕了，不这么写我怕河豚看不懂
+
+那要怎么描述立场打架呢
+
+大友里如果单摘出河豚大友，那剩下的该叫其他大友吗，这么标注就好像在Q娃这边河豚大友是主流了，肯定不行
+
+还是说把河豚大友都踢出大友行列，这两个标签是互斥的吗，美妙痴和偶活痴不会有意见吗
+
+虽然我是不知道为什么看Q娃的河豚大友总是会去期望一些什么不存在的东西，还喜欢给一般通过河豚推销，在楼里泥地摔跤，还被某个集中楼疯狂嘲讽
+

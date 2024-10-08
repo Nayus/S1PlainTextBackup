@@ -8616,3 +8616,15 @@ mygo本来设定也是关系不好但也互相接纳凑一起摸爬滚打的乐�
 
 悲报，萝活后面就是推子lisa，又得给这个b游戏爆米了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 24395#       发表于 2024-10-8 15:19
+
+ 本帖最后由 PDQ4 于 2024-10-8 15:21 编辑 
+
+本来就是一群只会断章取义的人，只要能捏关键字眼就可以烂梗狂欢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不能因噎废食，该讨论还是讨论
+

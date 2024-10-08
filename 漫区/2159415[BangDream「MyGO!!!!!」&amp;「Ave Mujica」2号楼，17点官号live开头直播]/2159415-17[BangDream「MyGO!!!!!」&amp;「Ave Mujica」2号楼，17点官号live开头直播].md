@@ -9239,3 +9239,65 @@ mujica的目标（之一）是最速主流出道
 wsd在鸡里安排初睦祥海喵各种搭配五人同房事后
 我可以原谅一切过激假药<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  相坂君  
+##### 24444#       发表于 2024-10-8 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66400754&amp;ptid=2159415" target="_blank">skives 发表于 2024-10-8 17:12</a>
+
+18+就可以真百了吧
+
+是fcxz拯救了……</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">啊？也不是不行
+
+那这样我幼驯染订婚是不是可以端上来了
+
+*****
+
+####  前方暴雨预警  
+##### 24445#       发表于 2024-10-8 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66400679&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-10-8 17:04</a>
+
+到底是谁在买</blockquote>
+比一单还高了400
+
+鸡粉颇有PUA受害者和斯德哥尔摩综合征患者的特色，对武士道的恶劣行径有清醒的认知，但一边骂一边又乖乖掏钱
+
+*****
+
+####  桜庭千景  
+##### 24446#       发表于 2024-10-8 17:19
+
+<img src="https://img.saraba1st.com/forum/202410/08/171900vbb7fz9zvkqqbfef.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1728379127296.jpg</strong> (172.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-8 17:19 上传
+
+叔叔的装扮贺图也发了，这低成本的东西赚麻了
+
+*****
+
+####  星天观测  
+##### 24447#       发表于 2024-10-8 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66400807&amp;ptid=2159415" target="_blank">前方暴雨预警 发表于 2024-10-8 17:17</a>
+
+比一单还高了400
+
+鸡粉颇有PUA受害者和斯德哥尔摩综合征患者的特色，对武士道的恶劣行径有清醒的认知，但 ...</blockquote>
+就是因为这样，鸡腿什么时候能吃点好的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Nungesser  
+##### 24448#       发表于 2024-10-8 17:24
+
+上次在动画里看到这种客服工位好像还是打工魔王来着...不过那个是电信公司的客服。
+

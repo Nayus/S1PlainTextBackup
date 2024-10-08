@@ -6267,3 +6267,23 @@ Origins, Armageddon, Chronicles, Awakening也是欧美比较常用的副标题
 
 不如说日本人是怎么理解“RE：”这个前缀的吧，怎么感觉变成异世界的意思了。在那边是相当于网文的“重生之...”的意思吗？
 
+
+*****
+
+####  地図と青い森  
+##### 1315#       发表于 2024-10-8 17:17
+
+后知后觉sqx当时的首发collab guest副岛就画的是霍芬伯格……
+<img src="https://p.sda1.dev/19/c362fddf32806ba3e7f4c4c51c5cd7df/CMP_20241008171536343.jpg" referrerpolicy="no-referrer">
+现在它落地了，sq的产声还听不到
+
+—— 来自 samsung SM-S9080, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  arx-7  
+##### 1316#       发表于 2024-10-8 17:22
+
+不能洗点艹<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">我demo全点力了 这下只能狠狠胧一闪了
+

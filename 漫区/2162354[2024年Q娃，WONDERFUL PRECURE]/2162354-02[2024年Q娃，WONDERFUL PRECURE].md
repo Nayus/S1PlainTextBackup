@@ -2544,3 +2544,14 @@ BG楼友说难得有个能看的回，虽然同意汪Q有一堆问题，但能�
 
 但是笔记解这个人设到底有什么问题啊，首先mayu也没有做什么过激的举动吧，其次mayu就必须一直是那种内向怕生、谨小慎微的形象吗，我怀疑是不是有些厕妹把自己代入进去了才说这种桥段OOC
 
+
+*****
+
+####  jaewoongh_  
+##### 2457#       发表于 2024-10-8 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66400235&amp;ptid=2162354" target="_blank">Cloudslin 发表于 2024-10-8 16:20</a>
+
+最近这两话脚本演出作监含女量都很高，个人建议爱女先从尊敬具体女性和女性劳动成果做起 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今年的脚本阵中除了神林裕介写了两集，全员女性脚本家
+

@@ -4421,3 +4421,22 @@ ZOC+增幅角色，开一个增幅就ZOC二动换下一个人，刷满BUFF，然
 
 这代几乎什么都能补很少有会错过的，哪怕角色剧情也能在庭院补，结果唯独狗屎LGC无论如何也得二周目才能满<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  隔壁老黄  
+##### 6358#       发表于 2024-10-8 21:01
+
+迪拜的BGM真棒啊
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  隔壁老黄  
+##### 6359#       发表于 2024-10-8 21:03
+
+4.0不行的，要4.1才行，我试过两次4.0特么没算进去
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

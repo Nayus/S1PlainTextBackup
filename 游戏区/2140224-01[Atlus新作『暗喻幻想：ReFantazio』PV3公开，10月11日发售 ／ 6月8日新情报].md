@@ -6130,3 +6130,23 @@ https://ngabbs.com/read.php?tid=41969136
 
 抖音和某宝上217块钱的CDKEY能买吗
 
+
+*****
+
+####  kuarwbwe  
+##### 1301#       发表于 2024-10-8 11:25
+
+隔壁另一个提前玩的贴子。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+https://ngabbs.com/read.php?tid=41970562
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+
+*****
+
+####  Schwarzess  
+##### 1302#       发表于 2024-10-8 11:34
+
+为了特典音乐集买了steam豪华版，我就是阿特拉斯凯子。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+虽然是淘宝买的码。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

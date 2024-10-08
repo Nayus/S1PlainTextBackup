@@ -9432,3 +9432,13 @@ URL：[https://ib.eplus.jp/avemujica_3rd_st/](https://ib.eplus.jp/avemujica_3rd_
 
 说实话我觉得还能凝聚这么多结晶粉丝，弄弄主导的团魂营业功不可没
 
+
+*****
+
+####  红楼飞雪  
+##### 24460#       发表于 2024-10-8 20:03
+
+一年有点夸张，自从7月初那个pv以来是真没什么粮。就算不能直接透露剧情，搞点类似mygo那边的小动画预热一下 这种低成本的宣传都不肯做
+
+幸好我入坑还不到半年，要是像一些漏油一样要从去年等到明年，mujica要25年播的消息出的时候我就先跑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

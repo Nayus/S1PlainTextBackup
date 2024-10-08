@@ -6122,3 +6122,11 @@ https://ngabbs.com/read.php?tid=41969136
 为啥日本游戏都喜欢叫 xx幻想 xx传说？特别俗。</blockquote>
 欧美也喜欢加 chronicle 和 impact
 
+
+*****
+
+####  膛线  
+##### 1300#       发表于 2024-10-8 11:19
+
+抖音和某宝上217块钱的CDKEY能买吗
+

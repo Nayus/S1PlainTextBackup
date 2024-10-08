@@ -9608,3 +9608,23 @@ URL：[https://ib.eplus.jp/avemujica_3rd_st/](https://ib.eplus.jp/avemujica_3rd_
 
 專輯概念跟歌都挺對我胃口的，周日去現場應該會買一張<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives10  
+##### 24480#       发表于 2024-10-8 22:37
+
+真的会<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+就因为这个特典
+这次只买了普通版<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  前方暴雨预警  
+##### 24481#       发表于 2024-10-8 22:43
+
+特典公布前就下订单了，被PUA了的结晶粉是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/147.png">
+
+但如果特典好看我可能不只给单推角色上供而是把喜欢的都收了
+

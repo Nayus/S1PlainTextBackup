@@ -4450,3 +4450,16 @@ ZOC+增幅角色，开一个增幅就ZOC二动换下一个人，刷满BUFF，然
 
 —— 来自 realme RMX3708, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  kangkangsama  
+##### 6361#       发表于 2024-10-8 22:34
+
+<blockquote>椎名mahuyo 发表于 2024-10-8 22:00
+金和瘦狼泡个温泉斗气都快把温泉炸了，笑死
+
+3章学妹离队了，只能庭院看看了，有人透我下终章会归队么（
+</blockquote>
+不会，一直空缺到最后
+

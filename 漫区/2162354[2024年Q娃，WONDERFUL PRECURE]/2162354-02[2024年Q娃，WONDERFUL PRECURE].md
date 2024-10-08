@@ -2606,3 +2606,14 @@ bg解这种大该是厕妹用语的词吧，很难想象正常人能用得出来
 
 2024-10-8 22:33 上传
 
+
+*****
+
+####  Wondering  
+##### 2462#       发表于 2024-10-8 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66403177&amp;ptid=2162354" target="_blank">jaewoongh_ 发表于 2024-10-8 22:33</a>
+
+10月预告</blockquote>
+果然是狼狗cp吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

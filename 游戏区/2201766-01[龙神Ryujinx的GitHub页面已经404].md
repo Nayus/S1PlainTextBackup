@@ -2593,3 +2593,18 @@ lockpick, dolphin, yuzu, yuzu forks, 现在是 ryujinx。之前每一次，不�
 电脑是13490+4070s，虽 ...</blockquote>
 简单来说如果你对操作的精准性要求真的很高（也不用特别高，音游的级别就行），模拟器应该都不成
 
+
+*****
+
+####  慕容断月  
+##### 229#       发表于 2024-10-8 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66387487&amp;ptid=2201766" target="_blank">六道之彼方 发表于 2024-10-6 19:25</a>
+
+都多少年了还在拿这套给自己开脱
+
+能保证拿模拟器玩的游戏全都是自己拿自购卡带dump的再来说“模拟器和盗版 ...</blockquote>
+那我手持XBDE/2/3初回限定+数字版，同时再玩模拟器，那么我可以说模拟器和盗版不是一回事了？
+
+我倒是觉得从来都不是玩盗版这件事，而是玩盗版还跳脸
+

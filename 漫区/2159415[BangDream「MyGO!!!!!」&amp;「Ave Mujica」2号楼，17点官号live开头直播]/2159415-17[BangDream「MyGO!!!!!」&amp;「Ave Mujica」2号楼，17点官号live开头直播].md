@@ -8258,3 +8258,14 @@ mygo本来设定也是关系不好但也互相接纳凑一起摸爬滚打的乐�
 
 但就是这种关系不好才拉近了角色的距离，都见过你最真的那一面了，还有什么不能接受的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 24370#       发表于 2024-10-8 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66394986&amp;ptid=2159415" target="_blank">NODY 发表于 2024-10-7 23:06</a>
+
+独角兽关系图咯</blockquote>
+还有希望看到更新吗<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+

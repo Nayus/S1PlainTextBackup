@@ -6571,3 +6571,13 @@ sqx就已经开始集大成总篇集了
 
 不知道93分怎么打出来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就这b样卖相也不好 人设也难看 
 
+
+*****
+
+####  名字已被吃  
+##### 1345#       发表于 2024-10-9 01:41
+
+敌人图鉴功能没有，迷宫碰到忘记了弱点的黄色怪，要么躲，要么硬打过去，不管怎么样都恶心人。另外打boss如果发现队伍配置还是有点问题想调整，只能关游戏，比ff7还离谱，人起码能按option回游戏主菜单读档<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

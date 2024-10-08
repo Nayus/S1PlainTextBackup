@@ -9476,3 +9476,30 @@ URL：[https://ib.eplus.jp/avemujica_3rd_st/](https://ib.eplus.jp/avemujica_3rd_
 
 已经被wsdPUA了
 
+
+*****
+
+####  御幸一也  
+##### 24465#       发表于 2024-10-8 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66402085&amp;ptid=2159415" target="_blank">红楼飞雪 发表于 2024-10-8 20:03</a>
+
+一年有点夸张，自从7月初那个pv以来是真没什么粮。就算不能直接透露剧情，搞点类似mygo那边的小动画预热一 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+好吧 是我年初沒有直接跑的錯才會讓我等得那麼痛苦<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  uhiuk  
+##### 24466#       发表于 2024-10-8 20:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">七月入坑的只是等了三个月也觉得度日如年
+
+*****
+
+####  御幸一也  
+##### 24467#       发表于 2024-10-8 20:17
+
+我的2024年都要在辱罵武士道間度過了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

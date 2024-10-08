@@ -6605,3 +6605,14 @@ sqx就已经开始集大成总篇集了
 不知道有没有人发过，这游戏宣发预算真多，点个外卖都能看到
 <img src="https://pic.imgdb.cn/item/6705856ad29ded1a8cf677cc.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wsktcy  
+##### 1348#       发表于 2024-10-9 06:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66401906&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-10-8 19:41</a>
+拼多多PS5港版实体最低296，韩版实体最低270左右
+淘宝Steam兑换码220不到</blockquote>
+这价格现在应该已经没了吧，我看了眼百亿补贴已经是韩版298港版322了
+

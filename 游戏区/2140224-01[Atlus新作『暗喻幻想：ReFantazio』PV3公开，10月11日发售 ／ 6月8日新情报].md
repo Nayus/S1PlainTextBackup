@@ -6545,3 +6545,11 @@ sqx就已经开始集大成总篇集了
 
 关键是就主角和同伴觉醒persona的那两段动画演出，感染力和时髦度还不如P345呢<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer"> 是怎么能越做越倒退的
 
+
+*****
+
+####  KevinGraham  
+##### 1342#       发表于 2024-10-9 00:41
+
+冲着评分买了，打完界轨再来玩<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

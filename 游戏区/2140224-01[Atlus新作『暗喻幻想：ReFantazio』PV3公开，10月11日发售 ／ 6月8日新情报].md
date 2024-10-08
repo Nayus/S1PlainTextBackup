@@ -6049,3 +6049,11 @@ PS5港盘300大洋，不想当凯子还是有办法的<img src="https://static.s
 
 试玩版稍微碰了一点……起码那位与某现实F1车手同名的小哥的入队剧情简直就是类型角色印象大放送<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">基本没有任何笔墨地带过去了，和队里老爷子拌嘴也拌不痛不痒
 
+
+*****
+
+####  blueeyesww  
+##### 1292#       发表于 2024-10-8 10:14
+
+demo感觉不错，再加上抖音只要218，买了
+

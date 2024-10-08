@@ -8269,3 +8269,11 @@ mygo本来设定也是关系不好但也互相接纳凑一起摸爬滚打的乐�
 独角兽关系图咯</blockquote>
 还有希望看到更新吗<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  桜庭千景  
+##### 24371#       发表于 2024-10-8 10:08
+
+那个关系图我记得是第八话的，后面独角兽没再更新了，尤其是现在半切割状态更加不太可能更新了，只是希望mujica后还有访谈吧
+

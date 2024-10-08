@@ -2536,3 +2536,11 @@ BG楼友说难得有个能看的回，虽然同意汪Q有一堆问题，但能�
 
 至于真由变“BG解”，不如看看远方的法Q第34话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 2456#       发表于 2024-10-8 17:10
+
+但是笔记解这个人设到底有什么问题啊，首先mayu也没有做什么过激的举动吧，其次mayu就必须一直是那种内向怕生、谨小慎微的形象吗，我怀疑是不是有些厕妹把自己代入进去了才说这种桥段OOC
+

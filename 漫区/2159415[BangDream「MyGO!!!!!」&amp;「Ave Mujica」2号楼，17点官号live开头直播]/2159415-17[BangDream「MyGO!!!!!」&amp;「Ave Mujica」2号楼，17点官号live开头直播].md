@@ -9119,3 +9119,123 @@ mujica的目标（之一）是最速主流出道
 
 鬼图照样卖很好，这下wsd又可以光明正大省预算了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  抽搐一下  
+##### 24432#       发表于 2024-10-8 17:06
+
+可能室外图是实景改的，室内图是建模没统一。记得回忆中咖啡馆里面的装饰图也变换了。这类算bug，不过要圆bug也可以，就说那栋建筑不完全照现实，另一个朝面也有这种排窗。
+
+*****
+
+####  skives  
+##### 24433#       发表于 2024-10-8 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66400679&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-10-8 17:04</a>
+到底是谁在买</blockquote>
+看到这个是真的没绷住
+求求他们不要再买了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 24434#       发表于 2024-10-8 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66400679&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-10-8 17:04</a>
+
+到底是谁在买</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  桜庭千景  
+##### 24435#       发表于 2024-10-8 17:09
+
+完整榜单在这里，真哈人，这么丑的封面和特典到底是谁在买
+
+<img src="https://img.saraba1st.com/forum/202410/08/170924z1mtx0bigtjtm2zt.jpg" referrerpolicy="no-referrer">
+
+<strong>A731B08B89A66425CABAB7E56CA831AD.jpg</strong> (155.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-8 17:09 上传
+
+*****
+
+####  星天观测  
+##### 24436#       发表于 2024-10-8 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66400687&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-10-8 17:05</a>
+
+说实话灰产的话，我第一反应是某家的毒亲在搞这个
+
+在公司楼道里和小祥来了个巧合相遇
+
+引出一系列连锁反应</blockquote>
+别再脑这方面了，泥楼一直被视奸，现在还被各种吃n手屎，暂时换个方向脑吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 24437#       发表于 2024-10-8 17:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一般人都觉得这假药会被传播成烂梗，对角色风评会造成更多伤害，图一乐就算了，没想到动画播都没播就在讨论这可能<strong>虚构</strong>的公司真不真
+
+盘烂的13话也就几个镜头，都是不能完全确定的信息。真这样搞我还以为打开了青年漫，一看Appstore写着年龄分级4+，嗯……丰川祥子肩负把邦邦拉高到限制18+的重任
+
+*****
+
+####  星天观测  
+##### 24438#       发表于 2024-10-8 17:11
+
+该尬吹一下了，你鸡在某周甚至卖过了米玄律师<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 24439#       发表于 2024-10-8 17:11
+
+说不定买的都是通常版<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  skives  
+##### 24440#       发表于 2024-10-8 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66400735&amp;ptid=2159415" target="_blank">相坂君 发表于 2024-10-8 17:10</a>
+一般人都觉得这假药会被传播成烂梗，对角色风评会造成更多伤害，图一乐就算了，没想到动画播都没播就在讨论 ...</blockquote>
+18+就可以真百了吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+是fcxz拯救了……
+
+
+*****
+
+####  星天观测  
+##### 24441#       发表于 2024-10-8 17:12
+
+我现在的心情宛如当年劝别人别买给他爱5
+
+别买了！再买下去什么时候才能有给他爱6！
+
+别买了！再买下去什么时候立绘才不是鬼图！
+
+*****
+
+####  相坂君  
+##### 24442#       发表于 2024-10-8 17:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">蛤？？？这鬼图砖怎么还涨了，到底谁在买？
+
+*****
+
+####  PDQ4  
+##### 24443#       发表于 2024-10-8 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66400754&amp;ptid=2159415" target="_blank">skives 发表于 2024-10-8 17:12</a>
+ 18+就可以真百了吧 是fcxz拯救了……</blockquote>
+wsd在鸡里安排初睦祥海喵各种搭配五人同房事后
+我可以原谅一切过激假药<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

@@ -9359,3 +9359,29 @@ wsd在鸡里安排初睦祥海喵各种搭配五人同房事后
 你看我之前贴的那个招工广告，不需要工作经验，有提成，打工收入有可能超过正社员，你猜这公司是靠什么盈 ...</blockquote>
 你日正社员工资又没有很高，月30万不到的不在少数，而且这种打工肯定没补贴这种隐性收入的，连网吧招服务员的广告都敢说收入比正社员高
 
+
+*****
+
+####  御幸一也  
+##### 24455#       发表于 2024-10-8 18:28
+
+○DAY2 : Ave Mujica 3rd LIVE「Veritas」
+
+Sales Period：October 8, 2024 (Tue.) 18:00(JST) - October 20, 2024 (Sun.) 21:00(JST)
+
+Archive：available until October 20, 2024 (Sun.) 23:59(JST)
+
+URL：[https://ib.eplus.jp/avemujica_3rd_st/](https://ib.eplus.jp/avemujica_3rd_st/)
+
+配信票可以買了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+樓友快來一起買eplus
+
+<img src="https://img.saraba1st.com/forum/202410/08/182848bir99pbryttriri3.jpg" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 1921 - e  TICKET INFORMATION - Gmail - mail.google.com.jpg</strong> (34.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-8 18:28 上传
+

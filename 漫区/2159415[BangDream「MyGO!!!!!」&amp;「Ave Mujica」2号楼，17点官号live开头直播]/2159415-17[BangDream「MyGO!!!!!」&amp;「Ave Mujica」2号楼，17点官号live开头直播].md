@@ -8778,3 +8778,56 @@ mygo本来设定也是关系不好但也互相接纳凑一起摸爬滚打的乐�
 
 打工让祥子处事更圆滑（？或者说不那么天真）应该是可以的，但要说锻炼的话我其实觉得做不到
 
+
+*****
+
+####  玖羽  
+##### 24406#       发表于 2024-10-8 16:28
+
+ 本帖最后由 玖羽 于 2024-10-8 16:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66400195&amp;ptid=2159415" target="_blank">skives 发表于 2024-10-8 16:16</a>
+
+讨论可以终结了
+
+天然水公司的玻璃上是贴着公司名字的</blockquote>
+不是一个方向的玻璃
+
+现实大楼里的三家店从下往上分别是按摩店、英语补习班、美容院，都不需要那么多客服，旁边两个竖着的招牌也是补习班
+
+如果说，是一家没有招牌的公司，为什么偏偏要在大楼上增加这样一个虚构的公司招牌呢？
+
+
+*****
+
+####  skives10  
+##### 24407#       发表于 2024-10-8 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66400315&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-10-8 16:28</a>
+不是一个方向的玻璃
+
+现实大楼里的三家店从下往上分别是按摩店、英语补习班、美容院，都不需要那么多客服 ...</blockquote>
+我也这么想过 有可能不是一个方向的玻璃
+但经过考察之后
+发现这个大楼其他的方向 根本就没有这种连在一起的玻璃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 24408#       发表于 2024-10-8 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66400346&amp;ptid=2159415" target="_blank">skives10 发表于 2024-10-8 16:32</a>
+
+我也这么想过 有可能不是一个方向的玻璃
+
+但经过考察之后
+
+发现这个大楼其他的方向 根本就没有这种连在一起 ...</blockquote>
+别挣扎了，这座楼在其他方面完全写实，甚至是一比一复刻，就多了那一行字，然后你说完全没有关系，你觉得有说服力吗<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  抽搐一下  
+##### 24409#       发表于 2024-10-8 16:35
+
+祥子真是这家天然水公司的也不能确定是灰产高价推销，也可能那公司是卖平价的。不过想到祥子招喵梦的手段.....真搞灰产也不是很奇怪。
+

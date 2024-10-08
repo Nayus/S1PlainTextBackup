@@ -8450,3 +8450,22 @@ mygo本来设定也是关系不好但也互相接纳凑一起摸爬滚打的乐�
 
 现在变成别的地方吃n手屎了
 
+
+*****
+
+####  御幸一也  
+##### 24386#       发表于 2024-10-8 13:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">往好處想 下週就3rd 再一個多月就開播了！……
+
+*****
+
+####  NaAgfykp  
+##### 24387#       发表于 2024-10-8 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66398656&amp;ptid=2159415" target="_blank">桜庭千景 发表于 2024-10-8 12:57</a>
+说实话本来拿这个去对祥子做有罪推定就很离谱，只能说连着全楼一起挨骂有点冤吧 ...</blockquote>
+没有攻击的意思，只是感觉祥厨楼的考据被拿去黑角色很emmm神奇？
+
+—— 来自 vivo V2301A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

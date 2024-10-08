@@ -2568,3 +2568,15 @@ lockpick, dolphin, yuzu, yuzu forks, 现在是 ryujinx。之前每一次，不�
 
 背了一背包撬锁工具然后“我以防万一忘带钥匙的时候开自己家门用的”是吧
 
+
+*****
+
+####  maritimus  
+##### 227#       发表于 2024-10-8 22:09
+
+可惜了ryujinx，ryujinx本身是个优秀的开源项目，代码组织优秀，社区技术氛围很好，开发者也很活跃，在他们的discord群里问技术问题一般都能得到解答。
+
+已经有人介绍了ryujinx在CPU模拟上独特的技术路线，这方面还想补充，ryujinx在arm mac上利用CPU架构的优势，采用hypervisor极大降低CPU占用。GPU模拟方面，ryujiinx在mac上采用moltenVK做中介实现基于metal api的3D加速，并且在修bug的过程中对moltenVK提出了不少改进。
+
+另外ryujinx还有ios和android port，还准备了native metal版，可惜尚未公布就被迫关闭...太可惜了
+

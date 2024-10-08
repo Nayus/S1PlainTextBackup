@@ -12190,3 +12190,26 @@ miko sololive前日照常直播
 
 2024-10-8 20:43 上传
 
+
+*****
+
+####  holoan  
+##### 9879#         楼主| 发表于 2024-10-8 21:01
+
+<img src="https://img.saraba1st.com/forum/202410/08/210100jyym1kq1qrpuh9hw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (13.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-8 21:01 上传
+
+*****
+
+####  holoan  
+##### 9880#         楼主| 发表于 2024-10-8 22:10
+
+3年前给家里买的新车，现在已经考虑几年后要再换车了
+
+确实手上有钱了
+

@@ -6342,3 +6342,48 @@ sqx就已经开始集大成总篇集了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  lbb3313725  
+##### 1323#       发表于 2024-10-8 18:57
+
+别慌，究极板、dlc，洗点功能安排上。
+
+*****
+
+####  masterkeaton  
+##### 1324#       发表于 2024-10-8 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66401526&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-10-8 18:44</a>
+
+喷了，港版实体竟然还能降，已经296了，阿特拉斯是有多想大卖啊，还是变相的把港服也搞成低价区？
+
+—— 来 ...</blockquote>
+哪啊，我怎么没看见
+
+
+*****
+
+####  罗克萨斯  
+##### 1325#       发表于 2024-10-8 19:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66401647&amp;ptid=2140224" target="_blank">masterkeaton 发表于 2024-10-8 18:59</a>
+哪啊，我怎么没看见</blockquote>
+首页百亿补贴-百亿消费券
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  kuarwbwe  
+##### 1326#       发表于 2024-10-8 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66401526&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-10-8 18:44</a>
+喷了，港版实体竟然还能降，已经296了，阿特拉斯是有多想大卖啊，还是变相的把港服也搞成低价区？
+
+—— 来 ...</blockquote>
+这作宣发，制作（包括过场动画和配音）肯定没少花钱。大概率是奔着扩圈大卖努力的。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

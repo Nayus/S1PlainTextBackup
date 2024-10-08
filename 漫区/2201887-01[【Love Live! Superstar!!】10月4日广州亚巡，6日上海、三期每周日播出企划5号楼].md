@@ -1479,3 +1479,19 @@ TVアニメ『ラブライブ！スーパースター!!』3期OPのコンセプ�
 
 <img src="https://p.sda1.dev/19/0ee3088486c79cd354dd4a892862442c/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViyViy  
+##### 146#       发表于 2024-10-8 19:01
+
+我的赛博摇滚爱好者花田先生，您扪心自问一下，干了三部有没有哪怕那么一瞬间有这么个想法？——《服务型编剧》<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202410/08/185851qvetm9tcyqqgxm93.png" referrerpolicy="no-referrer">
+
+<strong>QQ20241008-081237.png</strong> (18.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-8 18:58 上传
+

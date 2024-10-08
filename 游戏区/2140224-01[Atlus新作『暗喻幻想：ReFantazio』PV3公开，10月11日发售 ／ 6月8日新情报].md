@@ -6076,3 +6076,13 @@ demo感觉不错，再加上抖音只要218，买了</blockquote>
 
 为啥日本游戏都喜欢叫 xx幻想 xx传说？特别俗。
 
+
+*****
+
+####  Redimercia  
+##### 1295#       发表于 2024-10-8 10:49
+
+A9的评测是atlus老害吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">点评阿基态直接举了ddsat做例子，瑞萍即时动作手感还提了嘴雷道和魔剑
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

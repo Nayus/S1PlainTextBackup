@@ -8328,3 +8328,37 @@ mygo本来设定也是关系不好但也互相接纳凑一起摸爬滚打的乐�
 
 喔對 今天要開賣線上票了 晚上要記得買一下<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 24376#       发表于 2024-10-8 11:48
+
+是高尾視角嗎<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202410/08/114829aqjyq6xzy9jnlxz8.jpg" referrerpolicy="no-referrer">
+
+<strong>4e5a55b2-659b-4f52-b593-fd13ecf77fb4.jpg</strong> (9.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-8 11:48 上传
+
+<img src="https://img.saraba1st.com/forum/202410/08/114828f64tk39d455hckrc.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_渡瀬 結月(@Watase_Yuzuki)_20241008-034550_1843498010745159887_photo-0.jpg</strong> (344.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-8 11:48 上传
+
+<img src="https://img.saraba1st.com/forum/202410/08/114826wwsfaqdfbw6sb16w.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_渡瀬 結月(@Watase_Yuzuki)_20241008-034550_1843498010745159887_photo-1.jpg</strong> (317.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-8 11:48 上传
+
+[https://x.com/Watase_Yuzuki/status/1843498010745159887](https://x.com/Watase_Yuzuki/status/1843498010745159887)
+

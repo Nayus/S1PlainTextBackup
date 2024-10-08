@@ -6150,3 +6150,48 @@ https://ngabbs.com/read.php?tid=41970562
 为了特典音乐集买了steam豪华版，我就是阿特拉斯凯子。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 虽然是淘宝买的码。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kalavinka  
+##### 1303#       发表于 2024-10-8 11:50
+
+<img src="https://img.saraba1st.com/forum/202410/08/115018u5x9j853lsl8x3df.png" referrerpolicy="no-referrer">
+
+<strong>WX20241008-115000@2x.png</strong> (48.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-8 11:50 上传
+
+没有zz戏就是胜利<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Pipcat  
+##### 1304#       发表于 2024-10-8 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66397837&amp;ptid=2140224" target="_blank">kuarwbwe 发表于 2024-10-8 11:25</a>
+
+隔壁另一个提前玩的贴子。
+
+https://ngabbs.com/read.php?tid=41970562</blockquote>
+“6、迷宫里有不能从这一侧打开的门，有掉血的沼泽，有门后的埋伏，还有开宝箱的惊喜，你们懂的。”
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+*****
+
+####  八佾舞于潭  
+##### 1305#       发表于 2024-10-8 11:56
+
+这波 JRPG 政治 ptsd 哪里来的，其实大部分 JRPG 也就网格员风格的泛政治活动吧，当然有些会上升到国家层面，但你可以不把那种国家太当回事呀。
+
+*****
+
+####  grox133  
+##### 1306#       发表于 2024-10-8 11:57
+
+key哪来的？2game要253，这么多人提前玩不会是哪边发了大量key给试玩吧
+

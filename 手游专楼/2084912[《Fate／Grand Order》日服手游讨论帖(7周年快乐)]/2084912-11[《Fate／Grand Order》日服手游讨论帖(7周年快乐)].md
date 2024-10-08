@@ -714,3 +714,13 @@ c呆什么技能组，第二部的女同事就来碰瓷，还天天锁前排折�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">为了回收石头选了特斯拉，然后石头丢完了也没有奥宝2号机，摸了
 
+
+*****
+
+####  jackyhuang  
+##### 14908#       发表于 2024-10-8 17:38
+
+金钻头怎么那么厉害<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">打凯尼斯白字比一些单体剑都高了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

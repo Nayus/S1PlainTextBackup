@@ -2555,3 +2555,15 @@ BG楼友说难得有个能看的回，虽然同意汪Q有一堆问题，但能�
 最近这两话脚本演出作监含女量都很高，个人建议爱女先从尊敬具体女性和女性劳动成果做起 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今年的脚本阵中除了神林裕介写了两集，全员女性脚本家
 
+
+*****
+
+####  66367749  
+##### 2458#       发表于 2024-10-8 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66400036&amp;ptid=2162354" target="_blank">走向未来 发表于 2024-10-8 16:00</a>
+说明你还是不理解现在身份论战的敏感度。
+简单来说三个爆点:1.真由变bg解，部分河豚无法接受，女性社区里 ...</blockquote>
+我就是讨厌身份zz以及不管是什么动画我就要看xxx剧情，不给我看就是垃圾的思维
+bg解这种大该是厕妹用语的词吧，很难想象正常人能用得出来，神tm闺蜜助攻八卦叫bg解，我看用这词的人比动画片里的人更像生活在异次元<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+

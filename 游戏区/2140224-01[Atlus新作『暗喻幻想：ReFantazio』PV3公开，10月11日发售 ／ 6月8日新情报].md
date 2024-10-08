@@ -6306,3 +6306,29 @@ sqx就已经开始集大成总篇集了
 不如说日本人是怎么理解“RE：”这个前缀的吧，怎么感觉变成异世界的意思了。在那边是相当于网文的“重生之 ...</blockquote>
 再幻想，现实世界是幻想的幻想，玩家改造游戏世界是现实改造幻想，对幻想来说是幻想改造现实
 
+
+*****
+
+####  Jimlee080  
+##### 1319#       发表于 2024-10-8 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66400624&amp;ptid=2140224" target="_blank">ybfelix 发表于 2024-10-8 16:59</a>
+
+不如说日本人是怎么理解“RE：”这个前缀的吧，怎么感觉变成异世界的意思了。在那边是相当于网文的“重生之 ...</blockquote>
+个人阅读理解，立项的时候叫refantasy，目标是搞一款能颠覆西幻类型定义的rpg，和异世界啥的关系不大
+
+*****
+
+####  hkguty  
+##### 1320#       发表于 2024-10-8 17:40
+
+霍根伯格改成现在这个人设大概是想表现她失去守护之人之后的颓废、失落感，不知后面有没有可能变回以前的样子
+
+
+*****
+
+####  karastar  
+##### 1321#       发表于 2024-10-8 17:42
+
+什么，不能洗点，我想骂人<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

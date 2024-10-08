@@ -509,3 +509,11 @@ Charlie's这种连锁店可以加的
 
 前些年吃过一家炒菜馆子，储存备菜的冰柜就放在大厅，进去点菜就是和老板商量用什么菜怎么炒<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  马车夫  
+##### 50#       发表于 2024-10-8 10:35
+
+蛋炒饭<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+

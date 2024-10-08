@@ -6581,3 +6581,18 @@ sqx就已经开始集大成总篇集了
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  baizhi  
+##### 1346#       发表于 2024-10-9 02:23
+
+ 本帖最后由 baizhi 于 2024-10-9 02:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66404082&amp;ptid=2140224" target="_blank">名字已被吃 发表于 2024-10-9 01:41</a>
+敌人图鉴功能没有，迷宫碰到忘记了弱点的黄色怪，要么躲，要么硬打过去，不管怎么样都恶心人。另外打boss如 ...</blockquote>
+有一说一，攻略迷宫前会有商人卖情报，战前准备是第一层；boss战死后直接回档到门口可以任意调整阿基态的选择重打，这是第二层；战斗中可以无限回溯到第一回合，这是第三层。
+而且你某个怪触发过一次弱点后，不是自动给你标weak嘛。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">评价可以，但起码对游戏有点一定程度的了解吧。
+
+—— 来自 OPPO PGBM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -6287,3 +6287,22 @@ Origins, Armageddon, Chronicles, Awakening也是欧美比较常用的副标题
 
 不能洗点艹<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">我demo全点力了 这下只能狠狠胧一闪了
 
+
+*****
+
+####  祆天发育不良  
+##### 1317#       发表于 2024-10-8 17:27
+
+我感觉sq可能是真整不出新活了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+sqx就已经开始集大成总篇集了
+
+*****
+
+####  八佾舞于潭  
+##### 1318#       发表于 2024-10-8 17:29
+
+<blockquote>ybfelix 发表于 2024-10-8 16:59
+不如说日本人是怎么理解“RE：”这个前缀的吧，怎么感觉变成异世界的意思了。在那边是相当于网文的“重生之 ...</blockquote>
+再幻想，现实世界是幻想的幻想，玩家改造游戏世界是现实改造幻想，对幻想来说是幻想改造现实
+

@@ -2762,3 +2762,32 @@ bg解这种大该是厕妹用语的词吧，很难想象正常人能用得出来
 
 看来wonderful含义就是繁衍后代很wonderful的意思了，切合日本少子化的困境，狗也不能放过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  走向未来  
+##### 2479#       发表于 2024-10-9 00:15
+
+江山易改本性难移，出走十年，归来仍是贵乱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不懂bg，可能这就是bg的优越性吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  aquakane  
+##### 2480#       发表于 2024-10-9 00:18
+
+好消息:大友心心念念的粉主戏份要来力
+坏消息:是和男boss（?）的对手戏<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  爱潜水的章鱼  
+##### 2481#       发表于 2024-10-9 00:23
+
+这狼还被小麦评价为跟彩羽一样受动物喜欢，那狼更揍不得了，小麦怎样用爱感化不敢想<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">
+

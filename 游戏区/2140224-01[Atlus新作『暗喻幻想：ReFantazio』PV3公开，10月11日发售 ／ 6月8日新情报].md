@@ -6220,3 +6220,14 @@ key哪来的？2game要253，这么多人提前玩不会是哪边发了大量key
 
 问一下，demo阶段的成就转正式版后会自动跳吗？还是说需要重新打一遍？
 
+
+*****
+
+####  otaku21126  
+##### 1310#       发表于 2024-10-8 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66398180&amp;ptid=2140224" target="_blank">约翰里德 发表于 2024-10-8 12:01</a>
+虽然没有恋爱但是有暧昧内容。
+女骑士这不泡？</blockquote>
+唯一的暧昧情节估计就是粉**耳娘那个角色吧🤔
+

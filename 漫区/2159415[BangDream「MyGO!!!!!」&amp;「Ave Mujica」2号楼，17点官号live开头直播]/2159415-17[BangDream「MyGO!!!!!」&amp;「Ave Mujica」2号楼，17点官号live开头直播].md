@@ -8469,3 +8469,31 @@ mygo本来设定也是关系不好但也互相接纳凑一起摸爬滚打的乐�
 
 —— 来自 vivo V2301A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  星天观测  
+##### 24388#       发表于 2024-10-8 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66399076&amp;ptid=2159415" target="_blank">NaAgfykp 发表于 2024-10-8 13:59</a>
+
+没有攻击的意思，只是感觉祥厨楼的考据被拿去黑角色很emmm神奇？
+
+—— 来自 vivo V2301A, Android 14上 ...</blockquote>
+那人家要黑角色可不就是变着法子找角度
+
+而且那个公司现实不存在，只能从这个名字推断是卖水公司，至于其他的内容算不上考据只能说是发散
+
+*****
+
+####  NODY  
+##### 24389#       发表于 2024-10-8 14:13
+
+ 本帖最后由 NODY 于 2024-10-8 14:15 编辑 
+
+看了一圈相关讨论，回复基本都有“一家网上搜不出来的纯捏造公司如何得出卖东西捆绑高价”或者“以祥子的自尊心不可能去干半骗钱工作”的质疑，还有觉得这个考据是祥黑做来抹黑祥子的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[https://tieba.baidu.com/p/9209307337](https://tieba.baidu.com/p/9209307337)
+
+反正贴吧基本上就是觉得1、wsd不可能让主要角色搞电诈；2、何来证据说这家公司不正经
+

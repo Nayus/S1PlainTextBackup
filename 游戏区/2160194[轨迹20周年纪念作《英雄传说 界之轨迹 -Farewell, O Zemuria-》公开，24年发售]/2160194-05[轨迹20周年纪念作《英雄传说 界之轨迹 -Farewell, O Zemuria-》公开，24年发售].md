@@ -4377,3 +4377,13 @@ ZOC+增幅角色，开一个增幅就ZOC二动换下一个人，刷满BUFF，然
 
 这作刷等级晶片钱就是历代最方便，完全实现装备自由，希望下作接着保留
 
+
+*****
+
+####  Squall25  
+##### 6353#       发表于 2024-10-8 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66399005&amp;ptid=2160194" target="_blank">fireadol 发表于 2024-10-8 13:51</a>
+这作刷等级晶片钱就是历代最方便，完全实现装备自由，希望下作接着保留</blockquote>
+日版界轨现在已经砍了，从庭院奖励那么抠门看，刷波姆绝对是设计漏洞，法老控自己神志不清了没想到还有这茬才紧急削了
+

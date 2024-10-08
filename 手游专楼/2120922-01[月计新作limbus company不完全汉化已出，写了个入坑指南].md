@@ -1393,3 +1393,15 @@ PS：除了每日一折付费单抽外，不建议在瓦尔吉普斯之夜外的
 
 已经有海盗虫和林顿虫，看着300多的虫叔碎片最后开了点箱子换了2协虫..虫叔这拉跨的人格哎..<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  菟原手兒奈  
+##### 912#       发表于 2024-10-8 13:23
+
+赛季内除了良秀的EGO都换完/抽完了，不留遗憾
+
+比较难受的就是狼夫和林顿虫都是换完后没多久就用通行证和4号线给的必出券又都抽出来了，但是不换我又不好坐牢和打四号线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+国庆几天又爆肝换了液袋备战第七章，接下来就坐等了，希望主线不要太难<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

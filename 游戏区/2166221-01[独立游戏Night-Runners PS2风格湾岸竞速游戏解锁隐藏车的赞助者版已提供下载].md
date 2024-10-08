@@ -30,3 +30,15 @@ Mazda：FD3S FC3SMitsubishi：EVO（7、9）
 
 质感和手感不错
 
+
+*****
+
+####  库德里尔  
+##### 48#       发表于 2024-10-9 00:29
+
+像这种散落在地图上的计时赛，怎么才能确定起点和终点啊
+
+<img src="https://p.sda1.dev/19/5367fced302cb5c228fc2fbb423b252e/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

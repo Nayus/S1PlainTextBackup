@@ -293,3 +293,37 @@ SpaceX官宣：星舰第五次试飞计划于10月13日进行，等待监管批�
 这要是能实现真有点科幻了，不是说gps达不到这个精度，rtk这种厘米级定位应用很普遍。而是这么大质量的控制 ...</blockquote>
 第六次发射之前造好就行了啊
 
+
+*****
+
+####  commcody  
+##### 85#         楼主| 发表于 2024-10-9 00:31
+
+RGV在Starbase航拍时拍到了正在制造厂区建造的Starbase第二发射台。第二发射台是一个矩形设计，而不是第一发射台的圆形。据说这会是类似目前Starship运输兼静点台的可移动发射台。
+
+<img src="https://img.saraba1st.com/forum/202410/09/002802yjpxvnnykt7po2sy.jpg" referrerpolicy="no-referrer">
+
+<strong>GZXyAqmXIAQVL5o.jpg</strong> (437.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-9 00:28 上传
+
+NSF在SpaceX发动机测试基地McGregor的航拍过程中发现了从B11回收的猛禽发动机。
+
+<img src="https://img.saraba1st.com/forum/202410/09/002802vgiq02icn0goc590.jpg" referrerpolicy="no-referrer">
+
+<strong>GZYYGIkXIAIDR6y.jpg</strong> (325.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-9 00:28 上传
+
+<img src="https://img.saraba1st.com/forum/202410/09/002802cx7ow791r8tzz1nn.jpg" referrerpolicy="no-referrer">
+
+<strong>GZYYC1bXIAEoiL0.jpg</strong> (598.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-9 00:28 上传
+

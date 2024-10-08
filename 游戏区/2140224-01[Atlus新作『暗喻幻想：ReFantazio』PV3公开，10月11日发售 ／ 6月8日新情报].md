@@ -6057,3 +6057,22 @@ PS5港盘300大洋，不想当凯子还是有办法的<img src="https://static.s
 
 demo感觉不错，再加上抖音只要218，买了
 
+
+*****
+
+####  lighttt  
+##### 1293#       发表于 2024-10-8 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66397112&amp;ptid=2140224" target="_blank">blueeyesww 发表于 2024-10-8 10:14</a>
+demo感觉不错，再加上抖音只要218，买了</blockquote>
+淘宝还能便宜4块钱<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  子虚乌有  
+##### 1294#       发表于 2024-10-8 10:24
+
+为啥日本游戏都喜欢叫 xx幻想 xx传说？特别俗。
+

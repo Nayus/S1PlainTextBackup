@@ -2828,3 +2828,15 @@ bg解这种大该是厕妹用语的词吧，很难想象正常人能用得出来
 
 这不是科普动物习性嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">讲真这应该是悟该干的事情吧
 
+
+*****
+
+####  Wondering  
+##### 2485#       发表于 2024-10-9 00:58
+
+ 本帖最后由 Wondering 于 2024-10-9 01:00 编辑 
+
+人类侧毕竟真交往了，非常直接的把交往两个字放到正片里了，动物安排交往本来就非常合理，还是犬q这种人与动物和谐共处题材的作品，可以在结尾看到主人宠物齐撒狗粮。。。。哦不，应该说狗撒人粮人撒狗粮一齐进婚礼殿堂的结局吗<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+而且你q本来就有某个女主正片怀孕的作品了，或许能看到国家队结局？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

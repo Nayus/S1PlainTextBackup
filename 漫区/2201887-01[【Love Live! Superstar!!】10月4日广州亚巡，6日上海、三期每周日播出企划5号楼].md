@@ -1495,3 +1495,13 @@ TVアニメ『ラブライブ！スーパースター!!』3期OPのコンセプ�
 
 2024-10-8 18:58 上传
 
+
+*****
+
+####  starring  
+##### 147#       发表于 2024-10-8 22:03
+
+第一话的niconico评分是55.1%好评<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

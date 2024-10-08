@@ -6499,3 +6499,11 @@ sqx就已经开始集大成总篇集了
 
 这游戏就是10000分也等皇家版出来再说
 
+
+*****
+
+####  Layvaten  
+##### 1337#       发表于 2024-10-8 21:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在隔壁等皇家版都能是梗了吗，怎么感觉一眼杀猪盘
+

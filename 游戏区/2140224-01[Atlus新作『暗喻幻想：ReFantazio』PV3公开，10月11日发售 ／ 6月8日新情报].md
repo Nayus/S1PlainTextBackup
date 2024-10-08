@@ -6086,3 +6086,39 @@ A9的评测是atlus老害吗<img src="https://static.saraba1st.com/image/smiley/
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  walfeds  
+##### 1296#       发表于 2024-10-8 10:57
+
+ 本帖最后由 walfeds 于 2024-10-8 10:58 编辑 
+
+我只能说a老害视角和一般人视角下对暗喻的观感还是有差异的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">桥野桂威力加强版合集
+
+*****
+
+####  三尖酸努努  
+##### 1297#       发表于 2024-10-8 10:59
+
+看这个帖子感觉很稳啊
+https://ngabbs.com/read.php?tid=41969136
+
+*****
+
+####  Jimlee080  
+##### 1298#       发表于 2024-10-8 11:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">steam key才200，算了凯子就凯子，pay了
+
+
+*****
+
+####  八佾舞于潭  
+##### 1299#       发表于 2024-10-8 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66397195&amp;ptid=2140224" target="_blank">子虚乌有 发表于 2024-10-8 10:24</a>
+
+为啥日本游戏都喜欢叫 xx幻想 xx传说？特别俗。</blockquote>
+欧美也喜欢加 chronicle 和 impact
+

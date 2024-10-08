@@ -8231,3 +8231,15 @@ mygo本来设定也是关系不好但也互相接纳凑一起摸爬滚打的乐�
 
 因为后面就是说crychic是第一次有人对她说需要她一起组乐队和命运共同体，才开始感觉不寂寞，然后解散之后到mygo才是又一次有人对她说需要她
 
+
+*****
+
+####  skives10  
+##### 24368#       发表于 2024-10-8 08:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66395904&amp;ptid=2159415" target="_blank">抽搐一下 发表于 2024-10-8 02:50</a>
+mygo本来设定也是关系不好但也互相接纳凑一起摸爬滚打的乐队，像拍的合照那样互相合不来才是乐队真实。 ...</blockquote>
+暂时的而已
+我看过几个月就要关系好起来了
+不然也太地狱笑话了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

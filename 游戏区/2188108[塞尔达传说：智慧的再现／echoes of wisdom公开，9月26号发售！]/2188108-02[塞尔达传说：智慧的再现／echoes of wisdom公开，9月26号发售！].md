@@ -1642,3 +1642,13 @@ document.getElementById('flv_ALj').innerHTML=("");
 
 无敌潜行
 
+
+*****
+
+####  lilod  
+##### 1628#       发表于 2024-10-8 13:37
+
+看到 B 站有人发 OST 合集 [https://www.bilibili.com/video/BV1QWxjeQETS](https://www.bilibili.com/video/BV1QWxjeQETS)
+
+本作的 OST 也相当优秀
+

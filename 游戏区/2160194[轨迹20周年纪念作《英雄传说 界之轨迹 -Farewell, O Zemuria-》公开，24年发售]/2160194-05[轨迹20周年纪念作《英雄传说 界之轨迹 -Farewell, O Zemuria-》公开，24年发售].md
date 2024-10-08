@@ -4336,3 +4336,27 @@ ZOC+增幅角色，开一个增幅就ZOC二动换下一个人，刷满BUFF，然
 
 问一个问题 法社官方商城下单的海外订单后续怎么追踪状态啊，只有一个订单号
 
+
+*****
+
+####  windtrack_qh  
+##### 6350#       发表于 2024-10-8 13:30
+
+ 本帖最后由 windtrack_qh 于 2024-10-8 13:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66398809&amp;ptid=2160194" target="_blank">qianoooo 发表于 2024-10-8 13:19</a>
+
+问一个问题 法社官方商城下单的海外订单后续怎么追踪状态啊，只有一个订单号 ...</blockquote>
+下单后到收钱前只有订单号，之后会给你发个带付款链接的邮件
+
+收钱后会给你发一个新的邮件，有EMS号
+
+然后盯EMS就好了
+
+<img src="https://img.saraba1st.com/forum/202410/08/133131wmm99gf9p89bxb98.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1728365463415.png</strong> (108.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-8 13:31 上传
+

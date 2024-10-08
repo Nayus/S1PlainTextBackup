@@ -8628,3 +8628,53 @@ mygo本来设定也是关系不好但也互相接纳凑一起摸爬滚打的乐�
 
 不能因噎废食，该讨论还是讨论
 
+
+*****
+
+####  御幸一也  
+##### 24396#       发表于 2024-10-8 15:29
+
+團團又愛愛<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202410/08/152806glgnnxi1dx1ntd1l.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3687.jpeg</strong> (142.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-8 15:28 上传
+
+<img src="https://img.saraba1st.com/forum/202410/08/152808qdt11przxik1dqiv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3684.jpeg</strong> (134.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-8 15:28 上传
+
+<img src="https://img.saraba1st.com/forum/202410/08/152811yr258d8ndhxris7z.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3685.jpeg</strong> (1.02 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-8 15:28 上传
+
+<img src="https://img.saraba1st.com/forum/202410/08/152812cb68vu9fv91b0v66.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3686.jpeg</strong> (290.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-8 15:28 上传
+
+[https://x.com/sasakirico/status/1843553532773077120](https://x.com/sasakirico/status/1843553532773077120)
+
+
+*****
+
+####  fufusako  
+##### 24397#       发表于 2024-10-8 15:34
+
+你楼那个介绍祥子工作的层都传到小红书了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

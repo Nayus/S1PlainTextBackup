@@ -6231,3 +6231,11 @@ key哪来的？2game要253，这么多人提前玩不会是哪边发了大量key
 女骑士这不泡？</blockquote>
 唯一的暧昧情节估计就是粉**耳娘那个角色吧🤔
 
+
+*****
+
+####  史蒂符  
+##### 1311#       发表于 2024-10-8 15:32
+
+刚玩，这王子是不是有点小男娘<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+

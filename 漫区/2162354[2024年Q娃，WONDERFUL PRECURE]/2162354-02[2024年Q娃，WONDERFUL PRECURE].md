@@ -2575,3 +2575,34 @@ bg解这种大该是厕妹用语的词吧，很难想象正常人能用得出来
 
 虽然我自认河豚但我就不明白麻油“笔记解”有啥问题……
 
+
+*****
+
+####  jaewoongh_  
+##### 2460#       发表于 2024-10-8 22:30
+
+<img src="https://img.saraba1st.com/forum/202410/08/222832xwxwc2ww9eplw8w6.png" referrerpolicy="no-referrer">
+
+<strong>QQ20241008-222757.png</strong> (42.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-8 22:28 上传
+
+小友先辈：特别的wonderful就是“喜欢”的意思吧~约会就是一起喝点果汁啥的吗？
+
+*****
+
+####  jaewoongh_  
+##### 2461#       发表于 2024-10-8 22:33
+
+10月预告
+
+<img src="https://img.saraba1st.com/forum/202410/08/223309yy6xf6fl6hniezpg.png" referrerpolicy="no-referrer">
+
+<strong>B6767D70E7E9757D992A61A3AA801A2D.png</strong> (108.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-8 22:33 上传
+

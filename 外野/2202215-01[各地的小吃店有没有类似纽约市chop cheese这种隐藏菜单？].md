@@ -501,3 +501,11 @@ Charlie's这种连锁店可以加的
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  Z7AlZI7VZT  
+##### 49#       发表于 2024-10-8 10:02
+
+前些年吃过一家炒菜馆子，储存备菜的冰柜就放在大厅，进去点菜就是和老板商量用什么菜怎么炒<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

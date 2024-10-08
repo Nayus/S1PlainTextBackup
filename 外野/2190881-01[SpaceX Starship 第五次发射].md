@@ -242,3 +242,43 @@ SpaceX官宣：星舰第五次试飞计划于10月13日进行，等待监管批�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  commcody  
+##### 82#         楼主| 发表于 2024-10-8 11:39
+
+ 本帖最后由 commcody 于 2024-10-8 11:41 编辑 
+
+当地时间10月7日B12+S30组合体又完成了一次部分加注测试。
+
+同时SpaceX官宣第五飞不早于10月13日，但依然在等待FAA批准。
+
+第五飞的目标是使用筷子回收捕获B12和S30的印度洋定点再入。
+
+<img src="https://img.saraba1st.com/forum/202410/08/113651v3byji929ab3y363.jpg" referrerpolicy="no-referrer">
+
+<strong>GZUCKifXEAAwKps.jpg</strong> (261.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-8 11:36 上传
+
+<img src="https://img.saraba1st.com/forum/202410/08/114153p19yhyfzk99zf3m4.jpg" referrerpolicy="no-referrer">
+
+<strong>SPACEX_STARSHIP_INFOGRAPHIC_FLIGHT_5_WEB_c67de3a687.jpg</strong> (78.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-8 11:41 上传
+
+
+*****
+
+####  依然荏苒  
+##### 83#       发表于 2024-10-8 11:43
+
+这要是能实现真有点科幻了，不是说gps达不到这个精度，rtk这种厘米级定位应用很普遍。而是这么大质量的控制和移动。我觉得能陆降或者海降就很好了，为了快速复用冒这么大风险。第二个发射台还没封顶，炸了又要**推迟进度。
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

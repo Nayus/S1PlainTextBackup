@@ -12146,3 +12146,26 @@ fubuking一说business这两人就像孩纸般听话wwwwwww</blockquote>
 
 2024-10-7 13:26 上传
 
+
+*****
+
+####  holoan  
+##### 9875#         楼主| 发表于 2024-10-7 21:07
+
+miko sololive前日照常直播
+
+确实是你的风格了
+
+*****
+
+####  holoan  
+##### 9876#         楼主| 发表于 2024-10-8 11:40
+
+<img src="https://img.saraba1st.com/forum/202410/08/114034ghssi00ysvivvbsv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (59.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-8 11:40 上传
+

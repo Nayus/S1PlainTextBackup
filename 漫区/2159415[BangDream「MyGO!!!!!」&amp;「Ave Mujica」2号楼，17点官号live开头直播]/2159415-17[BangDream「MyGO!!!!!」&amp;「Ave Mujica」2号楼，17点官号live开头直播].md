@@ -8243,3 +8243,18 @@ mygo本来设定也是关系不好但也互相接纳凑一起摸爬滚打的乐�
 我看过几个月就要关系好起来了
 不然也太地狱笑话了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 24369#       发表于 2024-10-8 09:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66395904&amp;ptid=2159415" target="_blank">抽搐一下 发表于 2024-10-8 02:50</a>
+ mygo本来设定也是关系不好但也互相接纳凑一起摸爬滚打的乐队，像拍的合照那样互相合不来才是乐队真实。 ...</blockquote>
+关系不好才真
+狗这五个人，主要是立希爱音爽世吧，都是被迫暴露出自己想隐藏的那一面
+自己的丑事被赤裸裸的暴露在人前
+关系开篇就特别好才不现实
+
+但就是这种关系不好才拉近了角色的距离，都见过你最真的那一面了，还有什么不能接受的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

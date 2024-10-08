@@ -8910,3 +8910,151 @@ mujica的目标（之一）是最速主流出道
 而她工作这一层的玻璃上没有贴任何字样</blockquote>
 看了下那一排窗是6框的，比室内场景少很多
 
+
+*****
+
+####  PDQ4  
+##### 24416#       发表于 2024-10-8 16:46
+
+可以转换思路
+目前没有任何画面可以证明祥子就在这家公司里打工
+但是制作组虚构出了这么一个微妙的公司
+
+存不存在一种可能这个公司会在明年被提到，至于什么作用我就暂时想不到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Aendst| + 1|思路广|
+
+查看全部评分
+
+*****
+
+####  PDQ4  
+##### 24417#       发表于 2024-10-8 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66400457&amp;ptid=2159415" target="_blank">抽搐一下 发表于 2024-10-8 16:44</a>
+ 看了下那一排窗是6框的，比室内场景少很多</blockquote>
+这个倒不是证据
+室内正好六个双开式窗户<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 24418#       发表于 2024-10-8 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66400457&amp;ptid=2159415" target="_blank">抽搐一下 发表于 2024-10-8 16:44</a>
+
+看了下那一排窗是6框的，比室内场景少很多</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202410/08/164728we9w3pevm1oqvq19.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3731.jpeg</strong> (86.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-8 16:47 上传
+
+这不正好是六个窗户吗
+
+可能从室外看不见中间那条线
+
+但最大的问题还是 
+
+这楼的形状本身就很奇葩 其他的方向根本没有这种连起来的窗户 只有小窗
+
+
+*****
+
+####  桜庭千景  
+##### 24419#       发表于 2024-10-8 16:50
+
+真有意思，别的地方对祥子乃至mujica都不友好的社区都觉得这诈骗假药太过分，倒是你漏还在纠结这公司真不真。
+
+容易引起争议？我没看到别的地方哪里有争议，这不就一位在争议吗？
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 星天观测| + 1||
+
+查看全部评分
+
+*****
+
+####  抽搐一下  
+##### 24420#       发表于 2024-10-8 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66400515&amp;ptid=2159415" target="_blank">skives 发表于 2024-10-8 16:49</a>
+
+这不正好是六个窗户吗
+
+可能从室外看不见中间那条线
+
+但最大的问题还是 </blockquote>
+6框那里是粗细不均的，中间和两侧不一样
+
+*****
+
+####  桜庭千景  
+##### 24421#       发表于 2024-10-8 16:52
+
+<blockquote>星天观测 发表于 2024-10-8 16:42
+就目前的情况看，祥子给事务所的条件是ave mujica这个企划方案（或许没那么完整）+自己预计制作或完成了 ...</blockquote>
+我也觉得和客服关系不大，应该还是柿本说的祥子本身就是"有才能的人"
+
+*****
+
+####  skives  
+##### 24422#       发表于 2024-10-8 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66400444&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-10-8 16:42</a>
+如果你非要说是这一面的窗户，你要注意到每一层都没有这样的窗户，没有招牌的窗户都在一定程度上被遮住了 ...</blockquote>
+我巴不得她是偷心大盗超级诈骗天才<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+但画面是明摆着的 
+其他方向也没有这种窗户<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 24423#       发表于 2024-10-8 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66400531&amp;ptid=2159415" target="_blank">抽搐一下 发表于 2024-10-8 16:51</a>
+
+6框那里是粗细不均的，中间和两侧不一样</blockquote>
+有没有考虑过是3d建模的视角问题呢，这个是窗框又不是随便画的一条线
+
+*****
+
+####  前方暴雨预警  
+##### 24424#       发表于 2024-10-8 16:53
+
+然而我怀疑这个客服小祥都有可能是13集限定出现的，之后就进入了解决经济问题之后的时间线。所以祥子究竟在什么地方打工制作组可能有详细的设定，但并不会在动画中提供确凿的证据让观众有明确的结论。
+
+这个猜想可能到mujica播完都只是无法证实也无法证伪的猜想
+
+*****
+
+####  玖羽  
+##### 24425#       发表于 2024-10-8 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66400549&amp;ptid=2159415" target="_blank">skives 发表于 2024-10-8 16:53</a>
+
+我巴不得她是偷心大盗超级诈骗天才
+
+但画面是明摆着的 
+
+其他方向也没有这种窗户 ...</blockquote>
+我也巴不得这个假药在明年被证伪，但是祥子在这栋楼里打工，这栋楼就虚构出了这么一个公司，如果没有关系，为什么要虚构这个公司，我也希望明年这个公司以一种完全想象不到的方式被提到
+

@@ -6561,3 +6561,13 @@ sqx就已经开始集大成总篇集了
 
 看了眼假面舞者系统介绍和召唤师预告，这下真eramgt了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">全缝了
 
+
+*****
+
+####  saverok  
+##### 1344#       发表于 2024-10-9 01:26
+
+打到回王城了 评价为时髦值暴跌的p5.5
+
+不知道93分怎么打出来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就这b样卖相也不好 人设也难看 
+

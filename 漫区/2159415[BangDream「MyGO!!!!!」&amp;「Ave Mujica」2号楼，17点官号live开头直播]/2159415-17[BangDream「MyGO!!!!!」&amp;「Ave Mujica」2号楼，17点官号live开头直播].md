@@ -8277,3 +8277,31 @@ mygo本来设定也是关系不好但也互相接纳凑一起摸爬滚打的乐�
 
 那个关系图我记得是第八话的，后面独角兽没再更新了，尤其是现在半切割状态更加不太可能更新了，只是希望mujica后还有访谈吧
 
+
+*****
+
+####  桜庭千景  
+##### 24372#       发表于 2024-10-8 10:30
+
+ 本帖最后由 桜庭千景 于 2024-10-8 10:33 编辑 
+
+速报 3rd有b站直播 大航海限定（138r）
+
+<img src="https://img.saraba1st.com/forum/202410/08/103103wvjtzzjssijgjvko.png" referrerpolicy="no-referrer">
+
+<strong>Image_1728354571390.png</strong> (20.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-8 10:31 上传
+
+补充：延迟字幕版（鸡198，蝶+ppp498）
+
+<img src="https://img.saraba1st.com/forum/202410/08/103354wbqo6o84qqb27fn1.png" referrerpolicy="no-referrer">
+
+<strong>Image_1728354785585.png</strong> (46.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-8 10:33 上传
+

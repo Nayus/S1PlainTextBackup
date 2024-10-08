@@ -6443,3 +6443,13 @@ sqx就已经开始集大成总篇集了
 看起来评价还不错？打算买一份，这作也会有加强版吗？</blockquote>
 肯定有加强版啊
 
+
+*****
+
+####  pandaman7777  
+##### 1332#       发表于 2024-10-8 19:32
+
+在下体验版了，所以怎么买醉划算？
+
+除了等打折完全版之外<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

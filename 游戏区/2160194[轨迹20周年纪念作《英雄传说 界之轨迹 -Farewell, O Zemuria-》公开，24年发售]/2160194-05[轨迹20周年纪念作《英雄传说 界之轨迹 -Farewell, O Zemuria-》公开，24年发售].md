@@ -4491,3 +4491,14 @@ ZOC+增幅角色，开一个增幅就ZOC二动换下一个人，刷满BUFF，然
 
 庭院补钓鱼时我忘记能用R3扫描钓鱼点，浪费了不少时间
 
+
+*****
+
+####  SuNR1sE364  
+##### 6365#       发表于 2024-10-9 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66402911&amp;ptid=2160194" target="_blank">椎名mahuyo 发表于 2024-10-8 22:00</a>
+金和瘦狼泡个温泉斗气都快把温泉炸了，笑死
+3章学妹离队了，只能庭院看看了，有人透我下终章会归队么（</blockquote>
+不归队，玲会在进终章迷宫之前归队
+

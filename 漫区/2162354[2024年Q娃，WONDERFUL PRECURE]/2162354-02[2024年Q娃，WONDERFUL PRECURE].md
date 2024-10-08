@@ -2738,3 +2738,27 @@ bg解这种大该是厕妹用语的词吧，很难想象正常人能用得出来
 
 小悟动物课堂：狼和狗都属于犬科动物<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  湖静欲成冰  
+##### 2476#       发表于 2024-10-9 00:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">真的要狼狗吗？吓得一激灵。
+
+*****
+
+####  双重清洁枪  
+##### 2477#       发表于 2024-10-9 00:08
+
+都在关注39集吗 还挺期待38集能不能整点好的呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  爱潜水的章鱼  
+##### 2478#       发表于 2024-10-9 00:10
+
+看来wonderful含义就是繁衍后代很wonderful的意思了，切合日本少子化的困境，狗也不能放过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

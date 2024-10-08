@@ -6535,3 +6535,13 @@ sqx就已经开始集大成总篇集了
 
 —— 来自 OPPO PKK110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  pandaman7777  
+##### 1341#       发表于 2024-10-8 23:51
+
+玩到开启队友习得persona功能，这demo的水平能有90分我也是停难绷的
+
+关键是就主角和同伴觉醒persona的那两段动画演出，感染力和时髦度还不如P345呢<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer"> 是怎么能越做越倒退的
+

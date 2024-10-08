@@ -9503,3 +9503,42 @@ URL：[https://ib.eplus.jp/avemujica_3rd_st/](https://ib.eplus.jp/avemujica_3rd_
 
 我的2024年都要在辱罵武士道間度過了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 24468#       发表于 2024-10-8 20:30
+
+真没想到能坚持一年
+
+还真是靠着中之人太努力吊着一口气，wsd纯纯拖后腿的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 24469#       发表于 2024-10-8 20:31
+
+我都不知道这年怎么过的<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ytttsuuuba  
+##### 24470#       发表于 2024-10-8 20:32
+
+去年最后一个季度和今年年初等的最焦虑，1st过后反倒是静下心暂时不想mujica的事了，不过还剩三个月的当下，又有点着急了。
+
+*****
+
+####  ytttsuuuba  
+##### 24471#       发表于 2024-10-8 20:33
+
+真的羡慕很多番的pv1pv2pv3的，mujica10月了，就一个没具体信息的pv。
+
+*****
+
+####  skives10  
+##### 24472#       发表于 2024-10-8 20:35
+
+该来一个正式pv1了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

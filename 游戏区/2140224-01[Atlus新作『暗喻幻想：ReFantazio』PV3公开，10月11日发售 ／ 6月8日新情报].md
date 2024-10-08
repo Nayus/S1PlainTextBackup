@@ -6517,3 +6517,11 @@ sqx就已经开始集大成总篇集了
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  baizhi  
+##### 1339#       发表于 2024-10-8 22:56
+
+说实话，这尼玛动画真有点便宜了，精细程度感觉都不如现在一些新番了。<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">阿特拉斯，你都花这么多钱了，就不能再用力用力嘛。
+

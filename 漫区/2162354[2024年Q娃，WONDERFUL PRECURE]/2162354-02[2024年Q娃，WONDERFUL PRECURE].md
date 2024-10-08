@@ -2710,3 +2710,16 @@ bg解这种大该是厕妹用语的词吧，很难想象正常人能用得出来
 
 上一话受到了广泛好评。现在已经进入了最后的冲刺阶段，我将全力以赴，呕心沥血，一定为大家带来汪分精彩的结局！<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  走向未来  
+##### 2473#       发表于 2024-10-8 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66403383&amp;ptid=2162354" target="_blank">Wondering 发表于 2024-10-8 23:04</a>
+这么说吧，如果没有狼男和小麦的cp回我抽一套犬q的毛绒玩偶送出去好吧我相信犬q不会让我失望的 ...</blockquote>
+太变态了，身为豚豚买bg周边<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+这已经不是一般的豚豚了，已经变成了bg厨厨了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

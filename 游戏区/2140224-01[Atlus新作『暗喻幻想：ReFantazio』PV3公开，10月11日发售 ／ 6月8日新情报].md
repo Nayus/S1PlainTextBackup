@@ -6525,3 +6525,13 @@ sqx就已经开始集大成总篇集了
 
 说实话，这尼玛动画真有点便宜了，精细程度感觉都不如现在一些新番了。<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">阿特拉斯，你都花这么多钱了，就不能再用力用力嘛。
 
+
+*****
+
+####  OkaJu  
+##### 1340#       发表于 2024-10-8 23:40
+
+本来准备最近空下来后买smtvv的，现在看暗喻爆炸评分突然想冲动消费先入手暗喻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PKK110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

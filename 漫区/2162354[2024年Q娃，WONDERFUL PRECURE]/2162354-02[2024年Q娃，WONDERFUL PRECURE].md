@@ -2852,3 +2852,24 @@ bg解这种大该是厕妹用语的词吧，很难想象正常人能用得出来
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  走向未来  
+##### 2487#       发表于 2024-10-9 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66403987&amp;ptid=2162354" target="_blank">Wondering 发表于 2024-10-9 00:58</a>
+人类侧毕竟真交往了，非常直接的把交往两个字放到正片里了，动物安排交往本来就非常合理，还是犬q这种人与 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">太变态了，猫组没戏份居然变成一件好事。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  maoyou  
+##### 2488#       发表于 2024-10-9 05:53
+
+那哈基雪什么时候下挖煤工的崽
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

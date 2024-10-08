@@ -8380,3 +8380,20 @@ mygo本来设定也是关系不好但也互相接纳凑一起摸爬滚打的乐�
 
 说实话本来拿这个去对祥子做有罪推定就很离谱，只能说连着全楼一起挨骂有点冤吧
 
+
+*****
+
+####  skives  
+##### 24379#       发表于 2024-10-8 13:07
+
+难绷 泥漏究竟有多少人视奸<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  lhbb9988  
+##### 24380#       发表于 2024-10-8 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66394512&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-10-7 22:04</a>
+乐队番哪有什么真正的业余乐队，那些歌都出自专业音乐人之手，业余不业余就是一句话的事 ...</blockquote>
+乐队发展状况只是作为一个讨论，正本清源的话，是想否认立希作为灯附庸的刻板印象和以此带来的手游双标塑造。在我假象的极端ooc情况下，如果灯作出了不符合于立希价值观的事（例如假唱），立希与灯有冲突也是很可能发生的。
+

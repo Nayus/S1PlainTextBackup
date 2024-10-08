@@ -2580,3 +2580,16 @@ lockpick, dolphin, yuzu, yuzu forks, 现在是 ryujinx。之前每一次，不�
 
 另外ryujinx还有ios和android port，还准备了native metal版，可惜尚未公布就被迫关闭...太可惜了
 
+
+*****
+
+####  lmclmc2  
+##### 228#       发表于 2024-10-8 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66374010&amp;ptid=2201766" target="_blank">Amami_Haruka_ 发表于 2024-10-4 16:06</a>
+
+有ns实机，因为ns手柄不耐造试过拿模拟器玩大乱斗，因为整活试过索尼手柄玩奥德赛。
+
+电脑是13490+4070s，虽 ...</blockquote>
+简单来说如果你对操作的精准性要求真的很高（也不用特别高，音游的级别就行），模拟器应该都不成
+

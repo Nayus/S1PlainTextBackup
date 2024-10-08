@@ -9598,3 +9598,13 @@ URL：[https://ib.eplus.jp/avemujica_3rd_st/](https://ib.eplus.jp/avemujica_3rd_
 
 可能有点不合适，但我觉得wsd至少还产出过好图吧，万一资源倾斜回来了呢。。。倒是明年上国内霹雳霹雳装扮那才是完了，给你一坨包装精美的 屎
 
+
+*****
+
+####  yifan8848  
+##### 24479#       发表于 2024-10-8 22:21
+
+你們真的會因為特典不買專嗎?
+
+專輯概念跟歌都挺對我胃口的，周日去現場應該會買一張<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

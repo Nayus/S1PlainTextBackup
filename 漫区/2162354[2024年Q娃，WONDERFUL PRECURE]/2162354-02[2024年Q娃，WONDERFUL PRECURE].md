@@ -2694,3 +2694,19 @@ bg解这种大该是厕妹用语的词吧，很难想象正常人能用得出来
 
 这么说吧，如果没有狼男和小麦的cp回我抽一套犬q的毛绒玩偶送出去好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我相信犬q不会让我失望的
 
+
+*****
+
+####  HANDAIYV  
+##### 2471#       发表于 2024-10-8 23:10
+
+都是亚撒西的狼了，那两次发癫打微笑花园干啥，不再来一个幕后黑手说不过去吧
+
+
+*****
+
+####  成田良美  
+##### 2472#       发表于 2024-10-8 23:15
+
+上一话受到了广泛好评。现在已经进入了最后的冲刺阶段，我将全力以赴，呕心沥血，一定为大家带来汪分精彩的结局！<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+

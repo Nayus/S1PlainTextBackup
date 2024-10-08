@@ -9349,3 +9349,13 @@ wsd在鸡里安排初睦祥海喵各种搭配五人同房事后
 不是很懂这个节奏，你日这种矿泉水契约捆绑的饮水机都是免费租借的，也不会比便利店买水贵，突然扣个诈骗的 ...</blockquote>
 你看我之前贴的那个招工广告，不需要工作经验，有提成，打工收入有可能超过正社员，你猜这公司是靠什么盈利的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  浅草若旦那  
+##### 24454#       发表于 2024-10-8 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66401303&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-10-8 18:15</a>
+你看我之前贴的那个招工广告，不需要工作经验，有提成，打工收入有可能超过正社员，你猜这公司是靠什么盈 ...</blockquote>
+你日正社员工资又没有很高，月30万不到的不在少数，而且这种打工肯定没补贴这种隐性收入的，连网吧招服务员的广告都敢说收入比正社员高
+

@@ -489,3 +489,15 @@ Charlie's这种连锁店可以加的
 
 谁告诉主贴扣鹅点在哪里？
 
+
+*****
+
+####  alacab  
+##### 48#       发表于 2024-10-8 07:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66391054&amp;ptid=2202215" target="_blank">agsva 发表于 2024-10-7 11:58</a>
+这个有点像广州（不清楚广东其他地方怎样）的牛腩粉，一般是牛腩带点汤汁浇在陈村粉或者猪肠粉上，囊中羞 ...</blockquote>
+斋粉加腩汁，小时候收费一元，后来慢慢发现是人家老板可怜你呢
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

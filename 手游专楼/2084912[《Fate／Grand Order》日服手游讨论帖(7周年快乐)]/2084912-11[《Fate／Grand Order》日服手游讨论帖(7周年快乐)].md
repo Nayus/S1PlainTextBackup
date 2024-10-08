@@ -696,3 +696,13 @@ c呆什么技能组，第二部的女同事就来碰瓷，还天天锁前排折�
 
 2.7这跟烟雾镜的最后一战打得我差点长出脑子了，真是惊喜不断<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  姬萩九郎  
+##### 14906#       发表于 2024-10-8 07:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66395774&amp;ptid=2084912" target="_blank">zxc4563982 发表于 2024-10-8 01:33</a>
+2.7这跟烟雾镜的最后一战打得我差点长出脑子了，真是惊喜不断</blockquote>
+水绘一舢板撞烂一条血。这场仪式战就是用来听曲儿的
+

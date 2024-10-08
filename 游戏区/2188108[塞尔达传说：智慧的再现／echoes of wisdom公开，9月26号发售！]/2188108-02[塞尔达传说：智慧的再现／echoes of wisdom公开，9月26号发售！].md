@@ -1618,3 +1618,17 @@ Amiibo还真慷慨，到了某个阶段后，第一次就能直接刷出三套�
 居然做了林克受电击音效
 鬼叫有点搞笑
 
+
+*****
+
+####  一个陆仁贾  
+##### 1626#       发表于 2024-10-8 07:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66395643&amp;ptid=2188108" target="_blank">ping117 发表于 2024-10-8 00:48</a>
+手贱试用了偶像史莱姆和机械猪头，结果被绿皮猪砍烂了
+
+后面要去给小屁孩看偶像史莱姆还要去维修才能拿出 ...</blockquote>
+机械猪的话拧上发条之后还是用同步带着走比较好，本身攻击范围够大，再用同步来弥补机动性
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

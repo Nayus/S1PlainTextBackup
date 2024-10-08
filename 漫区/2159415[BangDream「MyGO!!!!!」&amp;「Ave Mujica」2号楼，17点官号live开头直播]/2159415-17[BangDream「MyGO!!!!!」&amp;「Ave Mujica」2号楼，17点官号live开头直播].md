@@ -9058,3 +9058,64 @@ mujica的目标（之一）是最速主流出道
 其他方向也没有这种窗户 ...</blockquote>
 我也巴不得这个假药在明年被证伪，但是祥子在这栋楼里打工，这栋楼就虚构出了这么一个公司，如果没有关系，为什么要虚构这个公司，我也希望明年这个公司以一种完全想象不到的方式被提到
 
+
+*****
+
+####  玖羽  
+##### 24426#       发表于 2024-10-8 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66400559&amp;ptid=2159415" target="_blank">前方暴雨预警 发表于 2024-10-8 16:53</a>
+
+然而我怀疑这个客服小祥都有可能是13集限定出现的，之后就进入了解决经济问题之后的时间线。所以祥子究竟在 ...</blockquote>
+我也认为有这种可能，我很希望如此
+
+
+*****
+
+####  星空冻结  
+##### 24427#       发表于 2024-10-8 17:00
+
+ 本帖最后由 星空冻结 于 2024-10-8 17:01 编辑 
+
+就算是不也就是国内天天骚扰你电话卖保险吗？怎么变电信诈骗了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六道明  
+##### 24428#       发表于 2024-10-8 17:02
+
+还不如说祥子是做全身もみほぐし的，刚好招牌上也写的早上十点开业，和电话上说的时间一样呢<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 24429#       发表于 2024-10-8 17:04
+
+到底是谁在买<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202410/08/170419oayg7zokg8os7clk.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20241008170355.png</strong> (6.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-8 17:04 上传
+
+*****
+
+####  PDQ4  
+##### 24430#       发表于 2024-10-8 17:05
+
+说实话灰产的话，我第一反应是某家的毒亲在搞这个
+在公司楼道里和小祥来了个巧合相遇
+引出一系列连锁反应
+
+真是角色有干这个，鸡是个什么样的故事完全不敢想<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 24431#       发表于 2024-10-8 17:06
+
+鬼图照样卖很好，这下wsd又可以光明正大省预算了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

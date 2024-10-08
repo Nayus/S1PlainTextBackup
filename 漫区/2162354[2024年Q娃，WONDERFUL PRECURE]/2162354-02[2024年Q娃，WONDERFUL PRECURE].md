@@ -2519,3 +2519,20 @@ BG楼友说难得有个能看的回，虽然同意汪Q有一堆问题，但能�
 
 河豚体量大？宛平南病友体量大！
 
+
+*****
+
+####  Cloudslin  
+##### 2454#       发表于 2024-10-8 16:20
+
+最近这两话脚本演出作监含女量都很高，个人建议爱女先从尊敬具体女性和女性劳动成果做起<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pokemon最爱  
+##### 2455#       发表于 2024-10-8 16:22
+
+还是戾气太大，我也自认是个河豚，但是除非是百合欺诈中间唐突空降一个男角色NTR转BG这种狗屎展开（比如说蒜，比如去年的蝗虫线）我并不排斥BG，你好好说明就行，汪Q这一看系构成田再来一个悟喜欢彩羽的设定就知道肯定要走BG的有什么可吵的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+至于真由变“BG解”，不如看看远方的法Q第34话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

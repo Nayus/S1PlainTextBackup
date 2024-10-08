@@ -8527,3 +8527,92 @@ mygo本来设定也是关系不好但也互相接纳凑一起摸爬滚打的乐�
 能看出用这个黑角色的人的智商
 直接和正常人区分开了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 24393#       发表于 2024-10-8 14:29
+
+<img src="https://img.saraba1st.com/forum/202410/08/142807rvl7rny1mn87yn1v.png" referrerpolicy="no-referrer">
+
+<strong>1728368836954.png</strong> (296.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-8 14:28 上传
+
+<img src="https://img.saraba1st.com/forum/202410/08/142817gv4p9vp444yvzwnv.png" referrerpolicy="no-referrer">
+
+<strong>1728368840953.png</strong> (319.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-8 14:28 上传
+
+<img src="https://img.saraba1st.com/forum/202410/08/142825n9dd9d9wvpdjhkuu.png" referrerpolicy="no-referrer">
+
+<strong>1728368843825.png</strong> (309.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-8 14:28 上传
+
+<img src="https://img.saraba1st.com/forum/202410/08/142834b1kmmpj1mbbm6361.png" referrerpolicy="no-referrer">
+
+<strong>1728368846793.png</strong> (339.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-8 14:28 上传
+
+<img src="https://img.saraba1st.com/forum/202410/08/142844gmmmrvmcz20p1c33.png" referrerpolicy="no-referrer">
+
+<strong>1728368849422.png</strong> (253.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-8 14:28 上传
+
+<img src="https://img.saraba1st.com/forum/202410/08/142854h1yay6zagwag68pi.png" referrerpolicy="no-referrer">
+
+<strong>1728368852675.png</strong> (329.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-8 14:28 上传
+
+<img src="https://img.saraba1st.com/forum/202410/08/142901q02ef2wyt883vovp.png" referrerpolicy="no-referrer">
+
+<strong>1728368855229.png</strong> (339.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-8 14:29 上传
+
+<img src="https://img.saraba1st.com/forum/202410/08/142908zjtcn92uzypm42ud.png" referrerpolicy="no-referrer">
+
+<strong>1728368857637.png</strong> (318.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-8 14:29 上传
+
+<img src="https://img.saraba1st.com/forum/202410/08/142914jg4d4oeuet577p44.png" referrerpolicy="no-referrer">
+
+<strong>1728368860042.png</strong> (160.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-8 14:29 上传
+
+全员眼镜娘
+
+*****
+
+####  星天观测  
+##### 24394#       发表于 2024-10-8 14:30
+
+喜报，ykn有了第一张常规绿5星
+
+悲报，萝活后面就是推子lisa，又得给这个b游戏爆米了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+

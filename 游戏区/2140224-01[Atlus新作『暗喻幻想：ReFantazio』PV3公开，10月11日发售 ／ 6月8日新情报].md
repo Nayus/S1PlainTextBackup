@@ -6453,3 +6453,31 @@ sqx就已经开始集大成总篇集了
 
 除了等打折完全版之外<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kuarwbwe  
+##### 1333#       发表于 2024-10-8 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66401836&amp;ptid=2140224" target="_blank">pandaman7777 发表于 2024-10-8 19:32</a>
+在下体验版了，所以怎么买醉划算？
+
+除了等打折完全版之外</blockquote>
+你先玩玩看看demo呗。要能接受淘宝买cdkey最便宜。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  罗克萨斯  
+##### 1334#       发表于 2024-10-8 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66401836&amp;ptid=2140224" target="_blank">pandaman7777 发表于 2024-10-8 19:32</a>
+在下体验版了，所以怎么买醉划算？
+
+除了等打折完全版之外</blockquote>
+拼多多PS5港版实体最低296，韩版实体最低270左右
+淘宝Steam兑换码220不到
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

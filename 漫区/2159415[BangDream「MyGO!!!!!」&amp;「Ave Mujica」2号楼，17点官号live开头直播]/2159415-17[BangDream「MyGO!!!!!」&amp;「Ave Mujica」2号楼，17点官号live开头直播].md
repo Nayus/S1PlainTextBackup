@@ -9420,3 +9420,15 @@ URL：[https://ib.eplus.jp/avemujica_3rd_st/](https://ib.eplus.jp/avemujica_3rd_
 
 <img src="https://img.saraba1st.com/forum/202410/08/192047y7wuzxzs4xbkkuxw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  桜庭千景  
+##### 24459#       发表于 2024-10-8 19:38
+
+说0宣发倒是有点过了，充其量算动画0宣发（虽然这个的确是大头，不过至少7月发了个带新镜头的pv）
+
+真人团一直在开live和走各种拼盘，debuff有歌曲质量平均不算高、live台风不讨喜还没有mc环节、周边全是鬼图、成员颜值被面具拖累
+
+说实话我觉得还能凝聚这么多结晶粉丝，弄弄主导的团魂营业功不可没
+

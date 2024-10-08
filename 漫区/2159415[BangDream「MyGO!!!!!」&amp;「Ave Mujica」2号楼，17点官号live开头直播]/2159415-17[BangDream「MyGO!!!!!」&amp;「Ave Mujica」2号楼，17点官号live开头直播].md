@@ -9575,3 +9575,11 @@ URL：[https://ib.eplus.jp/avemujica_3rd_st/](https://ib.eplus.jp/avemujica_3rd_
 
 想给漏油安利小说了(x)
 
+
+*****
+
+####  星天观测  
+##### 24476#       发表于 2024-10-8 21:14
+
+先担心一下元素卖了7000wsd会不会觉得这特典还不错吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

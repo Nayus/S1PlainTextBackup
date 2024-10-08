@@ -9583,3 +9583,18 @@ URL：[https://ib.eplus.jp/avemujica_3rd_st/](https://ib.eplus.jp/avemujica_3rd_
 
 先担心一下元素卖了7000wsd会不会觉得这特典还不错吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 24477#       发表于 2024-10-8 21:28
+
+难道不是卖的如何wsd都可能笃定特典不错嘛（x）不然也不会拿出来当特典了。
+
+*****
+
+####  调控人  
+##### 24478#       发表于 2024-10-8 21:31
+
+可能有点不合适，但我觉得wsd至少还产出过好图吧，万一资源倾斜回来了呢。。。倒是明年上国内霹雳霹雳装扮那才是完了，给你一坨包装精美的 屎
+

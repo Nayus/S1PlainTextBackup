@@ -6387,3 +6387,59 @@ sqx就已经开始集大成总篇集了
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  masterkeaton  
+##### 1327#       发表于 2024-10-8 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66401673&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-10-8 19:03</a>
+
+首页百亿补贴-百亿消费券
+
+—— 来自 S1Fun</blockquote>
+谢谢，找了半天。
+
+太便宜了，我入手看看~
+
+*****
+
+####  罗克萨斯  
+##### 1328#       发表于 2024-10-8 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66401691&amp;ptid=2140224" target="_blank">kuarwbwe 发表于 2024-10-8 19:07</a>
+这作宣发，制作（包括过场动画和配音）肯定没少花钱。大概率是奔着扩圈大卖努力的。
+
+—— 来自 鹅球 v3. ...</blockquote>
+有评测提到不是全语音了，而且配音也就日英可选。过场动画说实话质量一般（就demo里的而言），不知道是被动画公司坑了还是有人吃回扣
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  kuarwbwe  
+##### 1329#       发表于 2024-10-8 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66401742&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-10-8 19:17</a>
+有评测提到不是全语音了，而且配音也就日英可选。过场动画说实话质量一般（就demo里的而言），不知道是被 ...</blockquote>
+确实不是全语音，但就主线都是语音量应该就不少了。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  66367749  
+##### 1330#       发表于 2024-10-8 19:19
+
+看起来评价还不错？打算买一份，这作也会有加强版吗？
+
+*****
+
+####  masterkeaton  
+##### 1331#       发表于 2024-10-8 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66401756&amp;ptid=2140224" target="_blank">66367749 发表于 2024-10-8 19:19</a>
+
+看起来评价还不错？打算买一份，这作也会有加强版吗？</blockquote>
+肯定有加强版啊
+

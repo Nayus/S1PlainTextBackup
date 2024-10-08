@@ -9401,3 +9401,22 @@ URL：[https://ib.eplus.jp/avemujica_3rd_st/](https://ib.eplus.jp/avemujica_3rd_
 
 买了买了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 24458#       发表于 2024-10-8 19:20
+
+ 本帖最后由 akiomn 于 2024-10-8 19:23 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">据说比上张专辑的销量还升了？这就是鸡给wsd的自信吗？byd冷藏一年近乎0宣发外带鬼图一大堆还能有这销量
+
+12DE4971-30D9-48AD-86AA-4A44997C9EAC.jpeg
+(10.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-8 19:20 上传
+
+<img src="https://img.saraba1st.com/forum/202410/08/192047y7wuzxzs4xbkkuxw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

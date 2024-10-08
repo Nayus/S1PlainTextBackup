@@ -8831,3 +8831,82 @@ mygo本来设定也是关系不好但也互相接纳凑一起摸爬滚打的乐�
 
 祥子真是这家天然水公司的也不能确定是灰产高价推销，也可能那公司是卖平价的。不过想到祥子招喵梦的手段.....真搞灰产也不是很奇怪。
 
+
+*****
+
+####  skives10  
+##### 24410#       发表于 2024-10-8 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66400373&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-10-8 16:34</a>
+别挣扎了，这座楼在其他方面完全写实，甚至是一比一复刻，就多了那一行字，然后你说完全没有关系，你觉得 ...</blockquote>
+所以说这算证据吗
+又不是没有她工作环境内部的画面
+我看哪也没写这是天然水公司啊
+脑补太多了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 24411#       发表于 2024-10-8 16:39
+
+事实就是
+天然水公司把名字都贴在玻璃上了
+而她工作这一层的玻璃上没有贴任何字样
+然后其他方向也没有这种玻璃
+
+这还要强行联系的话 我只能说 开心就好<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 24412#       发表于 2024-10-8 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66400276&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-10-8 16:24</a>
+
+我觉得祥子的能力和手腕大概是和她家庭有直接关系的
+
+和事务所交涉并且被许可很难认为是一个普通大小姐jk可 ...</blockquote>
+就目前的情况看，祥子给事务所的条件是ave mujica这个企划方案（或许没那么完整）+自己预计制作或完成了一部分的音乐和世界观，索要的是初华这个已经拥有了一定人气的其他组合的成员来做主唱
+
+mujica的目标（之一）是最速主流出道
+
+我个人看的话达成这种交易产生的交涉跟客服交涉是不太能搭上边的，而且一个人和一个事务所这样交易总觉得有点……轻率（？）或许交易的背后也有其他助力吧（来自初华/睦/睦家/丰川家都有可能）
+
+*****
+
+####  玖羽  
+##### 24413#       发表于 2024-10-8 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66400388&amp;ptid=2159415" target="_blank">skives10 发表于 2024-10-8 16:36</a>
+
+所以说这算证据吗
+
+又不是没有她工作环境内部的画面
+
+我看哪也没写这是天然水公司啊</blockquote>
+如果你非要说是这一面的窗户，你要注意到每一层都没有这样的窗户，没有招牌的窗户都在一定程度上被遮住了
+
+我觉得你要认清现实，如果动画想避免争议，为什么要加这些容易引起争议的内容，更何况本来就有澡堂这个很合适的打工地，只能认为是故意的
+
+*****
+
+####  星天观测  
+##### 24414#       发表于 2024-10-8 16:43
+
+不要强行让别人接受你的想法，反驳并不是毫无根据，不如就等鸡动画播了呢
+
+*****
+
+####  抽搐一下  
+##### 24415#       发表于 2024-10-8 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66400409&amp;ptid=2159415" target="_blank">skives10 发表于 2024-10-8 16:39</a>
+
+事实就是
+
+天然水公司把名字都贴在玻璃上了
+
+而她工作这一层的玻璃上没有贴任何字样</blockquote>
+看了下那一排窗是6框的，比室内场景少很多
+

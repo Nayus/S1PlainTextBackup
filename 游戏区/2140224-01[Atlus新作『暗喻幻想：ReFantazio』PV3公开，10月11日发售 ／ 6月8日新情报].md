@@ -6239,3 +6239,23 @@ key哪来的？2game要253，这么多人提前玩不会是哪边发了大量key
 
 刚玩，这王子是不是有点小男娘<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UnrealApartheid  
+##### 1312#       发表于 2024-10-8 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66397589&amp;ptid=2140224" target="_blank">八佾舞于潭 发表于 2024-10-08 11:03:18</a>
+欧美也喜欢加 chronicle 和 impact</blockquote>光是R开头的就有Reloaded, Revelations, Retribution, Requiem, Reckoning, Redemption等等
+Origins, Armageddon, Chronicles, Awakening也是欧美比较常用的副标题
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  u2deack  
+##### 1313#       发表于 2024-10-8 16:41
+
+好像是说不能洗点啊  我之前试玩全加的魔
+不过就打普通难度的话应该也还行吧
+

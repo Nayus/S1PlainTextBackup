@@ -282,3 +282,14 @@ SpaceX官宣：星舰第五次试飞计划于10月13日进行，等待监管批�
 
 — from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  瓦格雷  
+##### 84#       发表于 2024-10-8 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66398018&amp;ptid=2190881" target="_blank">依然荏苒 发表于 2024-10-8 11:43</a>
+
+这要是能实现真有点科幻了，不是说gps达不到这个精度，rtk这种厘米级定位应用很普遍。而是这么大质量的控制 ...</blockquote>
+第六次发射之前造好就行了啊
+

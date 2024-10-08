@@ -9312,3 +9312,40 @@ wsd在鸡里安排初睦祥海喵各种搭配五人同房事后
 电信诈骗到底是有多劲爆，或者说多少人这么愿意相信祥子在搞电信诈骗，以至于逮到一个公司考据就到处转，真 ...</blockquote>
 就是很热点又敏感、每个人都很可能遇到的事情，被骗过的人非常多，央视每天早上都在讲各种各样的电诈，会应激太正常了
 
+
+*****
+
+####  66367749  
+##### 24450#       发表于 2024-10-8 18:05
+
+想得出电诈的也太逗了吧，电诈还有线下派遣服务的吗？你当是黑涩会啊<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  浅草若旦那  
+##### 24451#       发表于 2024-10-8 18:10
+
+不是很懂这个节奏，你日这种矿泉水契约捆绑的饮水机都是免费租借的，也不会比便利店买水贵，突然扣个诈骗的帽子实在有点唐突了
+但是这种电话推销员因为有kpi都挺死缠烂打的，只前我租的公寓的物业捆绑的推销员跟我打了半个小时电话推销这个矿泉水，一想到祥子工作的时候也这么缠人突然有点小兴奋呢
+
+
+*****
+
+####  玖羽  
+##### 24452#       发表于 2024-10-8 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66401233&amp;ptid=2159415" target="_blank">66367749 发表于 2024-10-8 18:05</a>
+
+想得出电诈的也太逗了吧，电诈还有线下派遣服务的吗？你当是黑涩会啊</blockquote>
+怎么又传成电诈了，我重复一遍，是合法的，不是电诈，只不过很微妙<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 24453#       发表于 2024-10-8 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66401265&amp;ptid=2159415" target="_blank">浅草若旦那 发表于 2024-10-8 18:10</a>
+
+不是很懂这个节奏，你日这种矿泉水契约捆绑的饮水机都是免费租借的，也不会比便利店买水贵，突然扣个诈骗的 ...</blockquote>
+你看我之前贴的那个招工广告，不需要工作经验，有提成，打工收入有可能超过正社员，你猜这公司是靠什么盈利的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

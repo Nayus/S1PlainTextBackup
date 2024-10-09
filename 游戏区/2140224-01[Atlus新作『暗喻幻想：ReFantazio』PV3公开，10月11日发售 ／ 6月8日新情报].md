@@ -7245,3 +7245,16 @@ md，说了这么多我越来越不想玩了。
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  adretyu67.  
+##### 1408#       发表于 2024-10-9 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66409031&amp;ptid=2140224" target="_blank">windtrack_qh 发表于 2024-10-9 16:56</a>
+
+发现一个盲点
+
+虽然这作起玩家名字和主角名字时候没有默认选项，但是你在游戏过程中更改语言的话，玩家名字 ...</blockquote>
+等等。都搞出玩家名和主角名这种设计了真的会没有meta环节？？？？
+

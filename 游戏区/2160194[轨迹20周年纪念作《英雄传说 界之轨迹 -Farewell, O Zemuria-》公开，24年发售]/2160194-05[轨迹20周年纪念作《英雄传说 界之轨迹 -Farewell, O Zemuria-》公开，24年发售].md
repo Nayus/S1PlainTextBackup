@@ -4987,3 +4987,32 @@ https://store.steampowered.com/app/2113920/_II/?l=schinese</blockquote>
 
 第二部最后这part各种flag往死里竖
 
+
+*****
+
+####  Falcomfans  
+##### 6407#       发表于 2024-10-10 01:20
+
+ 本帖最后由 Falcomfans 于 2024-10-10 01:22 编辑 
+
+数字版销量不错啊
+
+2024年9月のPS Storeダウンロードランキング！
+[https://blog.ja.playstation.com/ ... 09-downloadranking/](https://blog.ja.playstation.com/2024/10/09/20241009-downloadranking/)
+
+<img src="https://img.saraba1st.com/forum/202410/10/012104tlbzedeyvdrwkavw.jpg" referrerpolicy="no-referrer">
+
+<strong>25f42d61817b5197994afb572eb1dcfe3493257501739706.jpg</strong> (103.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-10 01:21 上传
+
+<img src="https://img.saraba1st.com/forum/202410/10/012104xp5toriydi233idb.jpg" referrerpolicy="no-referrer">
+
+<strong>ebb7daef1cd95df993d28dac77de31f83493257501739706.jpg</strong> (103.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-10 01:21 上传
+

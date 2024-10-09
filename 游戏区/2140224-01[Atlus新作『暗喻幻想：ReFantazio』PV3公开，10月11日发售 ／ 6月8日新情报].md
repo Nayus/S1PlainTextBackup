@@ -7567,3 +7567,30 @@ P5已经是8年前的游戏了，暗喻幻想再来一遍真的不时髦了。�
 
 啥都好，就是降智的二次元政治描写扣分，真的毫不意外。
 
+
+*****
+
+####  kuarwbwe  
+##### 1438#       发表于 2024-10-9 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66411855&amp;ptid=2140224" target="_blank">大喇叭花田 发表于 2024-10-9 22:40</a>
+可能我真的老了，我怎么也想不出一个日式西幻RPG能出圈的可能性，哪怕给个GOTY，圈外人看来依然只是一个 ...</blockquote>
+这又不是你觉得能不能扩圈的问题。是a社自己想啊。现在这宣发就是奔着扩圈走的。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+
+*****
+
+####  大喇叭花田  
+##### 1439#       发表于 2024-10-9 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66411909&amp;ptid=2140224" target="_blank">kuarwbwe 发表于 2024-10-9 22:47</a>
+
+这又不是你觉得能不能扩圈的问题。是a社自己想啊。现在这宣发就是奔着扩圈走的。
+
+—— 来自 鹅球 v3.1.9 ...</blockquote>
+他们对日式奇幻题材怎么会报有这么不切实际的幻想啊？？？
+
+还是说立项的时候有什么这类题材横扫全球的先例？
+

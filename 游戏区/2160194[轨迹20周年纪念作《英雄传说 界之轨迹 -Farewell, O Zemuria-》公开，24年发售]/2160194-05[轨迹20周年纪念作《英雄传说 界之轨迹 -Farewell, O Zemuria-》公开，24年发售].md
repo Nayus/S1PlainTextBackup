@@ -4979,3 +4979,11 @@ PS Blog公布日服9月下载排行榜，其中《界之轨迹》PS5版位列当
 https://store.steampowered.com/app/2113920/_II/?l=schinese</blockquote>
 那估计就是还没来得及更新
 
+
+*****
+
+####  jacket  
+##### 6406#       发表于 2024-10-9 22:52
+
+第二部最后这part各种flag往死里竖
+

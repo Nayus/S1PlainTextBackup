@@ -7410,3 +7410,15 @@ HARD难度也不用凹麻痹箭
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Errey  
+##### 1424#       发表于 2024-10-9 20:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">你说这作不想出圈大成功肯定是假的，宣传太多了
+
+但从demo开始很多地方都让人太失望了，初看战斗系统就是用smt的架子搭了个缺少P5R和smtvv新活，一个干瘪的DDS，smtvv珠玉在前肯定会拉低期望值的
+
+另外就是，主角团三人的人物造型是我玩了Demo第一时间想要骂的，我寻思看了三歪瓜裂枣应该不少人会打消欲望的，纯粹的难看，而说他怪又没法满足我的猎奇心
+

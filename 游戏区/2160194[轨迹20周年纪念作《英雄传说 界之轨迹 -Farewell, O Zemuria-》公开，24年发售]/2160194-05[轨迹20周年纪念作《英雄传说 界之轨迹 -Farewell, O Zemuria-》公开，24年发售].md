@@ -4889,3 +4889,19 @@ PS Blog公布日服9月下载排行榜，其中《界之轨迹》PS5版位列当
 
 <img src="https://img.saraba1st.com/forum/202410/09/200345vez72vne6nnlkxq2.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  windtrack_qh  
+##### 6398#       发表于 2024-10-9 20:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">用脚本网站统计了一下轨言轨语，不过只到黎1，黎2和界的还没更新，随便看看
+
+<img src="https://img.saraba1st.com/forum/202410/09/200718x4k94nxbzmamgcja.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (254.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-9 20:07 上传
+

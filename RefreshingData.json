@@ -3777,7 +3777,7 @@
     "lastedit": 1728504420,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1478318": {
     "totalreply": 1412,
@@ -10241,15 +10241,6 @@
     "active": true,
     "update": false
   },
-  "2198771": {
-    "totalreply": 43,
-    "title": "[墨西哥最大贩毒集团之一锡那罗亚集团(cds)爆发内战]",
-    "newtitle": "[墨西哥最大贩毒集团之一锡那罗亚集团(cds)爆发内战]",
-    "lastedit": 1727303407,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
   "1131556": {
     "totalreply": 479,
     "title": "[买了坛T的马赛克手机空号！马赛克关机！快递喊你们收货！]",
@@ -10629,10 +10620,10 @@
     "update": false
   },
   "2200031": {
-    "totalreply": 848,
+    "totalreply": 849,
     "title": "[俄乌专楼-9月版]",
     "newtitle": "[俄乌专楼-9月版]",
-    "lastedit": 1728493931,
+    "lastedit": 1728513368,
     "category": "外野",
     "active": true,
     "update": false

@@ -7192,3 +7192,31 @@ md，说了这么多我越来越不想玩了。
 日式西幻怎么想也不可能出圈，估计A社也没有抱着做出出圈爆款的心态来做吧。 ...</blockquote>
 这铺天盖地的宣发你说不报出圈心态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  抽烟的猴  
+##### 1403#       发表于 2024-10-9 16:48
+
+<blockquote>大喇叭花田 发表于 2024-10-9 16:13
+日式西幻怎么想也不可能出圈，估计A社也没有抱着做出出圈爆款的心态来做吧。 ...</blockquote>
+明说要做成和p系列和smt系列一样的台柱子还不指望出圈？
+
+*****
+
+####  八汰乌  
+##### 1404#       发表于 2024-10-9 16:51
+
+暗喻幻想将是Atlus第一个单作500w的作品，黑子们准备受死吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  哎哟卧槽了  
+##### 1405#       发表于 2024-10-9 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66408814&amp;ptid=2140224" target="_blank">无辄辄 发表于 2024-10-9 16:38</a>
+
+这铺天盖地的宣发你说不报出圈心态</blockquote>
+这种不接地气的背景设定已经注定不可能出圈了吧
+

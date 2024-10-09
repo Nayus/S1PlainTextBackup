@@ -9724,3 +9724,21 @@ URL：[https://ib.eplus.jp/avemujica_3rd_st/](https://ib.eplus.jp/avemujica_3rd_
 
 李子和青木本来就主弹木吉他，个人活动也是弹木吉他多，电吉他才是为了邦邦练的
 
+
+*****
+
+####  御幸一也  
+##### 24490#       发表于 2024-10-9 18:07
+
+[https://www.youtube.com/watch?v=0v3f9hjyy9w](https://www.youtube.com/watch?v=0v3f9hjyy9w)
+
+怎麼還有LIVE預告
+
+
+*****
+
+####  skives10  
+##### 24491#       发表于 2024-10-9 18:13
+
+还行 也算新东西
+

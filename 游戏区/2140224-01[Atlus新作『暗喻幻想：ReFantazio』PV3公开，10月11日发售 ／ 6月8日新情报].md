@@ -7258,3 +7258,25 @@ md，说了这么多我越来越不想玩了。
 虽然这作起玩家名字和主角名字时候没有默认选项，但是你在游戏过程中更改语言的话，玩家名字 ...</blockquote>
 等等。都搞出玩家名和主角名这种设计了真的会没有meta环节？？？？
 
+
+*****
+
+####  绿色食品  
+##### 1409#       发表于 2024-10-9 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66409277&amp;ptid=2140224" target="_blank">kuarwbwe 发表于 2024-10-9 17:18</a>
+
+不想出圈。
+
+指游戏发售全mc均分94分。联动f1和功夫茶。在国内微博和小红书等社交媒体打广告。在b站发商单吹 ...</blockquote>
+mc评分94确实有点假了
+
+*****
+
+####  ybfelix  
+##### 1410#       发表于 2024-10-9 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66409402&amp;ptid=2140224" target="_blank">adretyu67. 发表于 2024-10-9 17:29</a>
+等等。都搞出玩家名和主角名这种设计了真的会没有meta环节？？？？</blockquote>
+这个bug为什么就能看出有没有meta环节…
+

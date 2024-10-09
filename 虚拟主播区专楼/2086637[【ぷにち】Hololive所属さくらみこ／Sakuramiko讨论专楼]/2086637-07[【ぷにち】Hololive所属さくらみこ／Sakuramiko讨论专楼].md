@@ -12242,3 +12242,40 @@ miko sololive前日照常直播
 
 2024-10-9 15:52 上传
 
+
+*****
+
+####  holoan  
+##### 9883#         楼主| 发表于 2024-10-9 18:25
+
+<img src="https://img.saraba1st.com/forum/202410/09/182523htstqlztjij0t0s2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (16.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-9 18:25 上传
+
+*****
+
+####  holoan  
+##### 9884#         楼主| 发表于 2024-10-9 18:59
+
+<img src="https://img.saraba1st.com/forum/202410/09/185907mhfd8tf5585ydrrz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (15.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-9 18:59 上传
+
+<img src="https://img.saraba1st.com/forum/202410/09/185849p3ztzkccezcacbcu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (9.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-9 18:58 上传
+
+问题来了，手办呢？就干赞助其他什么都没有？
+

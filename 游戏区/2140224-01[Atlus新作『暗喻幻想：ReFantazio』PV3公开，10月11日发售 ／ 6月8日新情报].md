@@ -7329,3 +7329,15 @@ mc评分94确实有点假了
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.1-alpha
 
+
+*****
+
+####  罗克萨斯  
+##### 1416#       发表于 2024-10-9 19:04
+
+把宣发乱花的钱放在革新技术上，提升游戏卖相，也许效果更好<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+就拿demo说，如果不是ATLUS出的，我怕是撑不到打牛头人迷宫，连战斗系统都没怎么摸就退出游戏了，更别说预购
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

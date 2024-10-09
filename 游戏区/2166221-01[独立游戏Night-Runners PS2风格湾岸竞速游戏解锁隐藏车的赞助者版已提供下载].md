@@ -42,3 +42,14 @@ Mazda：FD3S FC3SMitsubishi：EVO（7、9）
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  Tnsbilws  
+##### 49#         楼主| 发表于 2024-10-9 09:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66403881&amp;ptid=2166221" target="_blank">库德里尔 发表于 2024-10-9 00:29</a>
+
+像这种散落在地图上的计时赛，怎么才能确定起点和终点啊</blockquote>
+左键看地图，有线路提示
+

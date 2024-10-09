@@ -2873,3 +2873,30 @@ bg解这种大该是厕妹用语的词吧，很难想象正常人能用得出来
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  黑澤黛雅  
+##### 2489#       发表于 2024-10-9 07:51
+
+39集預告你們都覺得那狼人是gaou嗎<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+我乍一看只覺得小麥看到的是化妝成狼人的妮可大人的人形態
+預告說的是狼人又不是狼男
+考慮到39集的標題難道不是更有可能是妮可大人嗎
+
+—— 來自 [鵝球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  pokemon最爱  
+##### 2490#       发表于 2024-10-9 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66404354&amp;ptid=2162354" target="_blank">黑澤黛雅 发表于 2024-10-9 07:51</a>
+
+39集預告你們都覺得那狼人是gaou嗎
+
+我乍一看只覺得小麥看到的是化妝成狼人的妮可大人的人形態
+
+預告說的是狼 ...</blockquote>
+因为大家不会把独角兽跟狼联系在一起吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

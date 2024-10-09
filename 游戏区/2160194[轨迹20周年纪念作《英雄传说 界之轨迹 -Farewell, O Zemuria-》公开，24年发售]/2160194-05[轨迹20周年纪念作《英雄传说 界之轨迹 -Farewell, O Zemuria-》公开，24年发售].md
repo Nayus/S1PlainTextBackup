@@ -4943,3 +4943,14 @@ PS Blog公布日服9月下载排行榜，其中《界之轨迹》PS5版位列当
  ...</blockquote>
 怎么就没更新呢，太可惜了，闪4那个改めて遥遥领先又给我看乐了哈哈
 
+
+*****
+
+####  windtrack_qh  
+##### 6403#       发表于 2024-10-9 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66411194&amp;ptid=2160194" target="_blank">lxshhh 发表于 2024-10-9 21:05</a>
+
+怎么就没更新呢，太可惜了，闪4那个改めて遥遥领先又给我看乐了哈哈</blockquote>
+黎2和界没有STEAM版，脚本估计不好提取
+

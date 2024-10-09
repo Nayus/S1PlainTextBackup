@@ -6839,3 +6839,22 @@ metafor的销量我觉得最危险的点还是出的慢了。
 
 p5r这都几年了，真VV都出了才到metafor，
 
+
+*****
+
+####  祆天发育不良  
+##### 1369#       发表于 2024-10-9 10:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">要是没那个试玩版我还能再稍微拉高点预期
+
+*****
+
+####  罗克萨斯  
+##### 1370#       发表于 2024-10-9 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66405305&amp;ptid=2140224" target="_blank">哎哟卧槽了 发表于 2024-10-9 10:15</a>
+紧跟泥潭步伐，剩下好几十块（退了三张单了不会黑名单吧）</blockquote>
+黑就黑呗，谁让你们不一步到位，非要搞这种商法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

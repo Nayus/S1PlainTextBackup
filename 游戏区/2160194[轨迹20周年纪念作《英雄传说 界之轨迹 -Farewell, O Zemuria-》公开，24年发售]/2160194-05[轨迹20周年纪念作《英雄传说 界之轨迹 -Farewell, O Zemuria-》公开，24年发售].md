@@ -4502,3 +4502,27 @@ ZOC+增幅角色，开一个增幅就ZOC二动换下一个人，刷满BUFF，然
 3章学妹离队了，只能庭院看看了，有人透我下终章会归队么（</blockquote>
 不归队，玲会在进终章迷宫之前归队
 
+
+*****
+
+####  一步成诗  
+##### 6366#       发表于 2024-10-9 08:10
+
+才发现NISA官推开了个投票，虽然只有四个人但是欧美人果然还是喜欢剑女这款，黎2那宣传欺诈到时候不知道会不会被骂飞<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+1009080713.jpg
+(113.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-9 08:09 上传
+
+<img src="https://img.saraba1st.com/forum/202410/09/080951wiqiocejoveoje2b.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  卡拉德利姆  
+##### 6367#       发表于 2024-10-9 08:11
+
+剑女在哪人气都是第一啊 无非压倒和不压倒的区别
+

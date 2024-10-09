@@ -2659,3 +2659,13 @@ sw更是正版买来就进游戏建个档就关机了，现在除了Splatoon这�
 按照“我买的游戏是我自己的财产我有权处置”逻辑你模拟器里的ROM得是你自己从自己买的卡带/光盘里dump出 ...</blockquote>
 请了解下程序代码是什么东西
 
+
+*****
+
+####  kerorokun  
+##### 234#       发表于 2024-10-10 04:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66405831&amp;ptid=2201766" target="_blank">六道之彼方 发表于 2024-10-9 11:04</a>
+按照“我买的游戏是我自己的财产我有权处置”逻辑你模拟器里的ROM得是你自己从自己买的卡带/光盘里dump出 ...</blockquote>
+还有，要结合各地法律，我人在新西兰，新西兰这只有传播未经授权拷贝才算是非法。下载，制作，使用拷贝都是合法的。
+

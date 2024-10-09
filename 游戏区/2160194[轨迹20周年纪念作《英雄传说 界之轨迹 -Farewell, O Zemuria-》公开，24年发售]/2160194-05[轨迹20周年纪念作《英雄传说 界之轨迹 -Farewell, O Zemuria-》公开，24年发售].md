@@ -4966,3 +4966,16 @@ PS Blog公布日服9月下载排行榜，其中《界之轨迹》PS5版位列当
 黎2怎么就没steam了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 [https://store.steampowered.com/app/2113920/_II/?l=schinese](https://store.steampowered.com/app/2113920/_II/?l=schinese)
 
+
+*****
+
+####  windtrack_qh  
+##### 6405#       发表于 2024-10-9 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66411438&amp;ptid=2160194" target="_blank">kenqqex 发表于 2024-10-9 21:37</a>
+
+黎2怎么就没steam了
+
+https://store.steampowered.com/app/2113920/_II/?l=schinese</blockquote>
+那估计就是还没来得及更新
+

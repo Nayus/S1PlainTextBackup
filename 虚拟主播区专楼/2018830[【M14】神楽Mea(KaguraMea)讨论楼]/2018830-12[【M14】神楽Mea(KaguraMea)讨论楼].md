@@ -682,3 +682,32 @@ b限突击，而且还是新衣服，吹得哪门子风这是。
 
 技术好，打的可真快。
 
+
+*****
+
+####  ashero  
+##### 17501#       发表于 2024-10-8 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66401633&amp;ptid=2018830" target="_blank">clvan_ 发表于 2024-10-8 18:58</a>
+
+看过攻略了？感觉系统基本都知道用了</blockquote>
+明显没看过 避火罩都不知道怎么用 箱子错过好多个 第二次打广谋到白衣秀士摸出来的经验还在而已 
+
+18级没避火罩硬杀黑熊精 挺强的
+
+*****
+
+####  十九号大侠  
+##### 17502#       发表于 2024-10-8 20:26
+
+错过了
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  sino__unnko3  
+##### 17503#       发表于 2024-10-9 22:06
+
+无奖竞猜今天主包几点播 凌晨来个删档的话就寄了
+

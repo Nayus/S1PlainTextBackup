@@ -7440,3 +7440,19 @@ HARD难度也不用凹麻痹箭
 
 2024-10-9 20:16 上传
 
+
+*****
+
+####  karastar  
+##### 1426#       发表于 2024-10-9 20:27
+
+到底能不能洗点啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  windtrack_qh  
+##### 1427#       发表于 2024-10-9 20:31
+
+真5我记得二周目可以洗吧，估计暗喻也差不多
+

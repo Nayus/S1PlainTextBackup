@@ -4905,3 +4905,11 @@ PS Blog公布日服9月下载排行榜，其中《界之轨迹》PS5版位列当
 
 2024-10-9 20:07 上传
 
+
+*****
+
+####  卡拉德利姆  
+##### 6399#       发表于 2024-10-9 20:26
+
+但是s技把狱卒特写删了 令我非常不爽<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
+

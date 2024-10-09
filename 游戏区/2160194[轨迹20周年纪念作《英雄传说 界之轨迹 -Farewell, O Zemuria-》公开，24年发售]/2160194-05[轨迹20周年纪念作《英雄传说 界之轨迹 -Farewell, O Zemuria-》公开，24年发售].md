@@ -4931,3 +4931,15 @@ PS Blog公布日服9月下载排行榜，其中《界之轨迹》PS5版位列当
 最终章学妹咚之前还挺感动的，硬是要一人来一个投屏讲一句废话把我整笑了 ...</blockquote>
 放心，笑得不止你一个
 
+
+*****
+
+####  lxshhh  
+##### 6402#       发表于 2024-10-9 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66410802&amp;ptid=2160194" target="_blank">windtrack_qh 发表于 2024-10-9 20:07</a>
+用脚本网站统计了一下轨言轨语，不过只到黎1，黎2和界的还没更新，随便看看
+
+ ...</blockquote>
+怎么就没更新呢，太可惜了，闪4那个改めて遥遥领先又给我看乐了哈哈
+

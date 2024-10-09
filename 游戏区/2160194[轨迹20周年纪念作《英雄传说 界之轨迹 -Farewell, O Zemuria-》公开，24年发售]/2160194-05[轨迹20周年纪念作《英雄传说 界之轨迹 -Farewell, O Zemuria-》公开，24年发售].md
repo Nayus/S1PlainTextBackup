@@ -4636,3 +4636,13 @@ y1s1黎2所谓的婚纱羁绊糖当时是有点觉得有点和黎1剑女ooc的�
 
 下作该给剑女加buff了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  医生狼多  
+##### 6380#         楼主| 发表于 2024-10-9 15:05
+
+会活下来的<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+PS Blog公布日服9月下载排行榜，其中《界之轨迹》PS5版位列当月第三名，PS4版位列当月第六名。 ​​​http://t.cn/A6EYiYkA ​​​
+

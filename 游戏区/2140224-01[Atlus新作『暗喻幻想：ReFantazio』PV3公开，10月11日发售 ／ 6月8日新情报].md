@@ -7037,3 +7037,17 @@ PS5版预下载了，麻烦看下版本号，不会还是1.00000版本吧
 
 我觉得现在的atlus只要剧情不太恶心人就算大成功了，不如说近些年的游戏只要达到这点就都谢天谢地了，正统的王道剧情完全可以接受
 
+
+*****
+
+####  罗克萨斯  
+##### 1389#       发表于 2024-10-9 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66407837&amp;ptid=2140224" target="_blank">usodakedo 发表于 2024-10-9 14:55</a>
+我觉得现在的atlus只要剧情不太恶心人就算大成功了，不如说近些年的游戏只要达到这点就都谢天谢地了，正统 ...</blockquote>
+唯一收录MC的国内媒体，游民评测里提到剧情和破晓一个档次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+B站自媒体有提到主角团智商被敌方阵营吊打，还说后面剧情争议会很大，是不是强行给主角降智就不清楚了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

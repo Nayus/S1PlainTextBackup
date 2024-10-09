@@ -9716,3 +9716,11 @@ URL：[https://ib.eplus.jp/avemujica_3rd_st/](https://ib.eplus.jp/avemujica_3rd_
 
 怎么还在玩木吉他
 
+
+*****
+
+####  NODY  
+##### 24489#       发表于 2024-10-9 16:13
+
+李子和青木本来就主弹木吉他，个人活动也是弹木吉他多，电吉他才是为了邦邦练的
+

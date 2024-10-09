@@ -1687,3 +1687,15 @@ document.getElementById('flv_ALj').innerHTML=("");
 问个小问题，饰品里的望远镜和护身符这两个东西，是不是取得了高级版的低级版的就会被自动覆盖？看到一共28 ...</blockquote>
 是的
 
+
+*****
+
+####  jackyhuang  
+##### 1633#       发表于 2024-10-9 16:14
+
+【【搬运】塞尔达传说智慧的再现-Any%-世界纪录36分53秒速通-By Ataappi-20241007-哔哩哔哩】 https://b23.tv/H2cg7Y0
+【【搬运+字幕】塞尔达传说智慧的再现-全迷宫-世界纪录2小时07分48秒速通-By Smudextra-20241005-哔哩哔哩】 https://b23.tv/9OQx3JW
+立牌bug太厉害了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

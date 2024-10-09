@@ -5036,3 +5036,11 @@ https://store.steampowered.com/app/2113920/_II/?l=schinese</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  aimujie  
+##### 6410#       发表于 2024-10-10 02:31
+
+晶石不能存满，要不给晶石的宝箱会打不开，刷太多了得专门花掉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

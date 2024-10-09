@@ -6629,3 +6629,17 @@ sqx就已经开始集大成总篇集了
  ...</blockquote>
 demo不要钱，先玩demo，先玩demo<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kuarwbwe  
+##### 1350#       发表于 2024-10-9 07:53
+
+ 本帖最后由 kuarwbwe 于 2024-10-9 07:55 编辑 
+
+这作花这么多钱宣发结果最后收不回成本就搞笑了。<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+他们啥时候能意识到不搞加强版让人原价再买一遍就是最好的宣发呢。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

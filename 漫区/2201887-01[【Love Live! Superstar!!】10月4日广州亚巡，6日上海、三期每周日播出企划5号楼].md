@@ -1569,3 +1569,16 @@ TVアニメ『ラブライブ！スーパースター!!』3期OPのコンセプ�
 花田大老师本来就没打算考虑过声优的意见啊，从缪时期我就没觉得他想过声优的想法。更别说水时期都是写自 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">首先是犯下了傲慢之罪的花田
 
+
+*****
+
+####  ads147147  
+##### 154#       发表于 2024-10-9 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66405235&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-10-9 10:06</a>
+
+首先是犯下了傲慢之罪的花田</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">并非傲慢，只是摇滚。
+
+不过说真的，至少星3开篇香音和薇恩的刻画还是可圈可点的，真要入脑这个cp我挺喜欢磕的，怎么不比那香樱好磕，懂了，外国人组总是好磕。不过冬毬入场也早不会出现可香可菫那种微妙的拆队感，大不了乱炖咯，乱炖也好过现在当陌路人。
+

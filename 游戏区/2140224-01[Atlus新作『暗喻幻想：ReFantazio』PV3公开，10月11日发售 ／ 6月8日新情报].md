@@ -6817,3 +6817,25 @@ demo早八百年玩过了，评价是时髦值不如……p5
 主要还是这几位觉醒p的时候整段演出太草率太公式了，而且过 ...</blockquote>
 P系列的觉醒一向都不咋地，总觉得这种改变人生观的大事件，在游戏里随随便便就演两下结束了，大部分只影响游戏性而对剧情，角色内心却没啥冲击，感觉还不如路边捡了只流浪猫的后果大。虽然确实属于大家心照不宣的定番桥段吧，但开场都舍得让玩家看这么长的慢节奏文戏，到了觉醒P却不怎么多花点时间渲染事件...
 
+
+*****
+
+####  哎哟卧槽了  
+##### 1367#       发表于 2024-10-9 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66401673&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-10-8 19:03</a>
+
+首页百亿补贴-百亿消费券
+
+—— 来自 S1Fun</blockquote>
+紧跟泥潭步伐，剩下好几十块（退了三张单了不会黑名单吧）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 1368#       发表于 2024-10-9 10:15
+
+metafor的销量我觉得最危险的点还是出的慢了。
+
+p5r这都几年了，真VV都出了才到metafor，
+

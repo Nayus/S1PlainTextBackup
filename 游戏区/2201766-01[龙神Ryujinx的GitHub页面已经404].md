@@ -2621,3 +2621,15 @@ lockpick, dolphin, yuzu, yuzu forks, 现在是 ryujinx。之前每一次，不�
 呵呵，从ps3开始，我模拟器上的游戏我都买了正版，但是实机都丢原盒里吃灰了，没事就看看模拟器更新了啥
 sw更是正版买来就进游戏建个档就关机了，现在除了Splatoon这种网游，其他游戏我都模拟器玩了
 
+
+*****
+
+####  粉色猛男  
+##### 231#       发表于 2024-10-9 10:20
+
+这是给NS2铺路吧，NS2向下兼容，上面的新游戏估计都可以用旧模拟器跑
+
+然后担心到时候画质帧数又被模拟器吊打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+毕竟cemu的野炊已经是360度爆打ns了
+

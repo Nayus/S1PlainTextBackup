@@ -9774,3 +9774,37 @@ IMG_5673(20241009-184228).JPG
 
 <img src="https://img.saraba1st.com/forum/202410/09/184348j75mff6vfgfc676q.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 24495#       发表于 2024-10-9 19:28
+
+这个论点倒是挺有意思，睦祥的名字里面正好含有罪（zumi）和咎（toga）的发音
+
+<img src="https://img.saraba1st.com/forum/202410/09/192506b59pupozpxjfaala.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-9 19:25 上传
+
+和独角兽说过的睦和祥都是好的含义反向对称
+
+*****
+
+####  skives10  
+##### 24496#       发表于 2024-10-9 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66410523&amp;ptid=2159415" target="_blank">NODY 发表于 2024-10-9 19:28</a>
+这个论点倒是挺有意思，睦祥的名字里面正好含有罪（zumi）和咎（toga）的发音</blockquote>
+确实 砖楼以前也提过这一点<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ytttsuuuba  
+##### 24497#       发表于 2024-10-9 19:34
+
+很早就提出来的观点了。
+

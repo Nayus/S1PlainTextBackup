@@ -7515,3 +7515,14 @@ ps5版是1656p，ps4版是1080p，也不能这么比
 
 P5已经是8年前的游戏了，暗喻幻想再来一遍真的不时髦了。尤其刚玩过黑神话，你拿出这样一个画面质量的东西，让人很难绷啊。玩个demo，出场7个人物，两男两女三男娘，给我整笑了。
 
+
+*****
+
+####  抽烟的猴  
+##### 1433#       发表于 2024-10-9 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66410949&amp;ptid=2140224" target="_blank">karastar 发表于 2024-10-9 20:27</a>
+
+到底能不能洗点啊</blockquote>
+不能
+

@@ -4921,3 +4921,13 @@ PS Blog公布日服9月下载排行榜，其中《界之轨迹》PS5版位列当
 
 第二次回到天文台的时候不着急往前推，可以让队伍六人逐一确认望远镜看到的画面
 
+
+*****
+
+####  lxshhh  
+##### 6401#       发表于 2024-10-9 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66410401&amp;ptid=2160194" target="_blank">华发夜眼[CN] 发表于 2024-10-9 19:14</a>
+最终章学妹咚之前还挺感动的，硬是要一人来一个投屏讲一句废话把我整笑了 ...</blockquote>
+放心，笑得不止你一个
+

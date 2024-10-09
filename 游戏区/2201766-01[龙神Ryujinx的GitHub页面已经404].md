@@ -2649,3 +2649,13 @@ sw更是正版买来就进游戏建个档就关机了，现在除了Splatoon这�
 
 拿着别人dump出来的ROM 所谓的入正玩盗就是你从店里拿了两份商品只付了一份的钱 你不能因为你有一份没开封就说你没偷
 
+
+*****
+
+####  kerorokun  
+##### 233#       发表于 2024-10-10 04:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66405831&amp;ptid=2201766" target="_blank">六道之彼方 发表于 2024-10-9 11:04</a>
+按照“我买的游戏是我自己的财产我有权处置”逻辑你模拟器里的ROM得是你自己从自己买的卡带/光盘里dump出 ...</blockquote>
+请了解下程序代码是什么东西
+

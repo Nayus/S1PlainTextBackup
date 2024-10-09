@@ -7359,3 +7359,40 @@ mc评分94确实有点假了
 
 没活都要自己脑补个剧情自己吃屎，谁看了这阵势敢说好啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  baizhi  
+##### 1419#       发表于 2024-10-9 19:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我说一个暴论，jrpg的剧情其实没那么重要，而“感受”才是最重要的。
+
+—— 来自 OPPO PGBM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  kuarwbwe  
+##### 1420#       发表于 2024-10-9 19:37
+
+反正要是真四平八稳，平稳落地，我认了，随便楼里拷打我给自己吃屎这事。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  qukey  
+##### 1421#       发表于 2024-10-9 19:37
+
+牛头人洗2守护骑士+剑士，骑士打合体技，剑士继承个冰技能打行动点
+
+HARD难度也不用凹麻痹箭
+
+*****
+
+####  cjayseed  
+##### 1422#       发表于 2024-10-9 19:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是看有没有像P5那样映射现实。。
+
+如果是单纯的幻想那就没什么意思了。
+

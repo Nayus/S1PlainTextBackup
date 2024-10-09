@@ -6948,3 +6948,16 @@ atlus好像提到过本作会涉及到政治斗争的剧情？
 
 暗喻幻想开发到一半没法换引擎了吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑修士  
+##### 1381#       发表于 2024-10-9 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66407465&amp;ptid=2140224" target="_blank">nagitoY 发表于 2024-10-9 14:05</a>
+
+atlus好像提到过本作会涉及到政治斗争的剧情？
+
+暗喻幻想剧情相比p5是好还是差？p5的一个明智一个狮童都是lo ...</blockquote>
+有通关评测说全程下来主角多次吃瘪，解决问题的方式也有些....显得反派倒更有执行力和谋略了
+

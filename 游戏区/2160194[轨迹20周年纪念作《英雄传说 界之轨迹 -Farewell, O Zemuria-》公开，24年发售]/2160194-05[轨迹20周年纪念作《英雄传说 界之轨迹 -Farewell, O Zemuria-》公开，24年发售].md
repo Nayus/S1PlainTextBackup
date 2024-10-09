@@ -4615,3 +4615,16 @@ y1s1黎2所谓的婚纱羁绊糖当时是有点觉得有点和黎1剑女ooc的�
 
 可是投票来看男女通吃<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 6378#       发表于 2024-10-9 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66406307&amp;ptid=2160194" target="_blank">windtrack_qh 发表于 2024-10-9 11:46</a>
+
+说起来这作剑女明明把前作的衣装都给了，但是黎2二周目可用的婚纱这作就不给，迫害！
+
+另外学妹女神装二周 ...</blockquote>
+黎2可以改出来用，跑起来会穿模。
+

@@ -11,3 +11,16 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  liekong  
+##### 1342#       发表于 2024-10-9 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66406467&amp;ptid=1317511" target="_blank">PingGuo233 发表于 2024-10-9 12:03</a>
+
+看到毒岛把男主甩了那段后面更新没看了，前面的有点忘了。有没有老哥告诉下我前面把纱织催眠以后好像效果慢 ...</blockquote>
+后来被揭穿知道了，假装原因没有明说。
+
+其实最近几话还可以，算是正常发挥，目前最新进度就是妆尸怪跟耕平正式交往了
+

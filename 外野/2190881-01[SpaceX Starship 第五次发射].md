@@ -422,3 +422,14 @@ S30和B12的自毁系统炸药安装都已开始。
 
 2024-10-9 23:45 上传
 
+
+*****
+
+####  andychen  
+##### 93#       发表于 2024-10-10 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66398018&amp;ptid=2190881" target="_blank">依然荏苒 发表于 2024-10-8 11:43</a>
+
+这要是能实现真有点科幻了，不是说gps达不到这个精度，rtk这种厘米级定位应用很普遍。而是这么大质量的控制 ...</blockquote>
+回来的时候燃料已经见底了，炸了也炸不出大动静
+

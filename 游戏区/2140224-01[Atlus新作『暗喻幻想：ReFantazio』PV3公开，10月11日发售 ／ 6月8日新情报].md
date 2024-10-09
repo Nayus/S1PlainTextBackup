@@ -7341,3 +7341,13 @@ mc评分94确实有点假了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  roydimus  
+##### 1417#       发表于 2024-10-9 19:16
+
+手贱没更新装备跑进牛头人迷宫，普通难度11级打牛头人打到弹尽粮绝才过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

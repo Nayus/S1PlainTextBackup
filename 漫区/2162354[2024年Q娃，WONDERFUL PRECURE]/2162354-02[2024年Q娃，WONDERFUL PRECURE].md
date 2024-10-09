@@ -2928,3 +2928,23 @@ bg解这种大该是厕妹用语的词吧，很难想象正常人能用得出来
 
 —— 來自 [鵝球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  pokemon最爱  
+##### 2493#       发表于 2024-10-9 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66405721&amp;ptid=2162354" target="_blank">黑澤黛雅 发表于 2024-10-9 10:55</a>
+
+小麥能扮裝狼人，妮可大人也可以扮成狼人吧
+
+我是想作為成田主線回，應該是要交待妮可大人和Gaou之間過去 ...</blockquote>
+主要是小麦一开始打招呼时收获的是简单的回应，而且噶奥变的都是微笑花园的动物，而且认为微笑花园的动物应该对人类复仇，动物镇的动物变怪都是花痴手下自己搞的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  谁的无聊中  
+##### 2494#       发表于 2024-10-9 13:07
+
+狼人不会就是葛奥的人形态？
+

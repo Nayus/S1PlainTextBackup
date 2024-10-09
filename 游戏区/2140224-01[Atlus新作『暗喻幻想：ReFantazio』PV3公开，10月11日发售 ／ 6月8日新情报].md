@@ -6891,3 +6891,13 @@ steam上468那个豪华版多了啥东西？有季票DLC之类的实质性内容
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  罗克萨斯  
+##### 1375#       发表于 2024-10-9 13:06
+
+先发售的SMT5用的虚幻4，3R甚至用上了虚幻5，效果都吊打暗喻幻想。而暗喻幻想是因为立项太早没赶上呢，还是因为过于保守没敢开发中途换，P5画面其实就已经落后时代了，桥野桂他们不会不知道吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

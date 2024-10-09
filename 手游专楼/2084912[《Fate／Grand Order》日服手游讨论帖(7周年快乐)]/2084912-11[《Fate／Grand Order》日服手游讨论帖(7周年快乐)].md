@@ -736,3 +736,20 @@ c呆什么技能组，第二部的女同事就来碰瓷，还天天锁前排折�
 —— 来自 鹅球 v3.1.90 ...</blockquote>
 有宝具本和恶特攻,宝1都1200%了满宝1800%。
 
+
+*****
+
+####  格林卡罗尔  
+##### 14910#       发表于 2024-10-9 17:21
+
+看到活动预热一阵兴奋，直到看到结束时间<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 14911#       发表于 2024-10-9 17:24
+
+又是没有万圣节的一年
+

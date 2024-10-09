@@ -4646,3 +4646,31 @@ y1s1黎2所谓的婚纱羁绊糖当时是有点觉得有点和黎1剑女ooc的�
 
 PS Blog公布日服9月下载排行榜，其中《界之轨迹》PS5版位列当月第三名，PS4版位列当月第六名。 ​​​http://t.cn/A6EYiYkA ​​​
 
+
+*****
+
+####  windtrack_qh  
+##### 6381#       发表于 2024-10-9 17:21
+
+<img src="https://img.saraba1st.com/forum/202410/09/172137zjmrdijs1hiizjss.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (707.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-9 17:21 上传
+
+新DLC  男人也可以兔
+
+*****
+
+####  ravend233  
+##### 6382#       发表于 2024-10-9 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66407933&amp;ptid=2160194" target="_blank">医生狼多 发表于 2024-10-9 15:05</a>
+
+会活下来的
+
+PS Blog公布日服9月下载排行榜，其中《界之轨迹》PS5版位列当月第三名，PS4版位列当月第六名。 ...</blockquote>
+这下大卖了，法黑流下了悔恨的泪水
+

@@ -42,3 +42,42 @@
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 5473#       发表于 2024-10-9 17:16
+
+万圣节祭典来了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 5474#       发表于 2024-10-9 17:18
+
+人体堂忍者🥷，henshin！
+第一个就去把野上恒刀了<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+img_7199.jpg
+(565.95 KB, 下载次数: )
+
+下载附件
+
+2024-10-9 17:16 上传
+
+<img src="https://img.saraba1st.com/forum/202410/09/171633kxv5jb9e6094xby6.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  绿冰  
+##### 5475#         楼主| 发表于 2024-10-9 17:23
+
+2代时在这个祭典穿魔法师、骑士的Amiibo头和鞋的话，祭典服也变成对应的Amiibo衣服（2代DLC的章鱼男孩、女孩amiibo）
+
+3代不知道会不会也妇科
+

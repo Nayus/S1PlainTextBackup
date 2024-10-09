@@ -7232,3 +7232,16 @@ md，说了这么多我越来越不想玩了。
 
 主角名字叫ウィル玩家名字叫モア（没错就是子安...）
 
+
+*****
+
+####  kuarwbwe  
+##### 1407#       发表于 2024-10-9 17:18
+
+不想出圈。
+指游戏发售全mc均分94分。联动f1和功夫茶。在国内微博和小红书等社交媒体打广告。在b站发商单吹这个游戏是年度。在成都整个霜精宣传。在隔壁nga派驻两个提前玩到游戏的人解答谭友问题。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+咋可能不想出。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

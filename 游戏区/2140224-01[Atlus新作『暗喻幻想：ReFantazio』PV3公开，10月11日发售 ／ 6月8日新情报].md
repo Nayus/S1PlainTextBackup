@@ -7127,3 +7127,24 @@ b站有提到后期会有争议剧情？
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  kuarwbwe  
+##### 1396#       发表于 2024-10-9 15:38
+
+ 本帖最后由 kuarwbwe 于 2024-10-9 15:40 编辑 
+
+争议剧情的话那可能更恐怖。都涉政了怕不是还是经典的强行团圆包饺子，打了大魔王然后所有种族全部握手言和，白左味十足的种族平等内容。还可以再加上一个更抽象的，游戏直接告诉你书里那个种族平等乌托邦就是大阿美莉卡。<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+这样也能解释清楚为啥ign盛赞这游戏的political drama了。<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+md，说了这么多我越来越不想玩了。
+
+*****
+
+####  windhawind2  
+##### 1397#       发表于 2024-10-9 15:44
+
+如果所有的rpg战斗能像xb3一样 打的不对直接重开换配置 就好了
+

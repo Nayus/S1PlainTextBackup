@@ -4526,3 +4526,11 @@ ZOC+增幅角色，开一个增幅就ZOC二动换下一个人，刷满BUFF，然
 
 剑女在哪人气都是第一啊 无非压倒和不压倒的区别
 
+
+*****
+
+####  一步成诗  
+##### 6368#       发表于 2024-10-9 08:39
+
+这也太压倒了，期待他们打完黎2的直球辱骂<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

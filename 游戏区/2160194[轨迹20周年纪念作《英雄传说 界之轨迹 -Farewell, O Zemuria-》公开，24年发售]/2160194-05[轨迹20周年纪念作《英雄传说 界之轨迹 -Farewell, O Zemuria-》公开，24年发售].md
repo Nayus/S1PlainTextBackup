@@ -5044,3 +5044,13 @@ https://store.steampowered.com/app/2113920/_II/?l=schinese</blockquote>
 
 晶石不能存满，要不给晶石的宝箱会打不开，刷太多了得专门花掉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lxshhh  
+##### 6411#       发表于 2024-10-10 03:17
+
+<img src="https://p.sda1.dev/19/900bd9cde55107896ddcaaffc9cfc461/CMP_20241010031716766.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/19/ec323888fbbe39707cebe47348e67114/CMP_20241010031716889.jpg" referrerpolicy="no-referrer">
+

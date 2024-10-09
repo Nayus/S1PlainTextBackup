@@ -1595,3 +1595,14 @@ TVアニメ『ラブライブ！スーパースター!!』3期OPのコンセプ�
 不过说真的，至少星3开篇香音和薇恩的刻画还是可圈可点的，真要入脑这个cp我挺喜 ...</blockquote>
 只能说他们想搞一个短程复刻版liella结成记（VN.ver）可以是可以；就是最后别阴差阳错的又有人不断献出了自己<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 156#       发表于 2024-10-9 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66405975&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-10-9 11:15</a>
+
+只能说他们想搞一个短程复刻版liella结成记（VN.ver）可以是可以；就是最后别阴差阳错的又有人不断献出了 ...</blockquote>
+那肯定是得螺旋上升的，你都没意识到星团的剧本脉络都是很强回扣逻辑吗，以时间节点为关键事件节点，然后搞角色定位调转或者重回再现，突出一个必须要有个回应剧情，就是这个回应做的好不好，能不能感动观众，我看staff的各位完全不考虑这事呢。口号喊出来，总有人在乎的。
+

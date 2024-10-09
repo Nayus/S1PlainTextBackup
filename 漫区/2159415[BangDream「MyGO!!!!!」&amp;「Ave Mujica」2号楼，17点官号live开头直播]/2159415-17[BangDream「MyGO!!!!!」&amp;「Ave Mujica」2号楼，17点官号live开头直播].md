@@ -9881,3 +9881,17 @@ IMG_5673(20241009-184228).JPG
 
 若麦推测指的初生的麦子，对应喵梦生日6月1日，所以有猜她应该是农村出生上京打拼的，对得上表情集那个和家人通话
 
+
+*****
+
+####  NaAgfykp  
+##### 24505#       发表于 2024-10-10 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66411540&amp;ptid=2159415" target="_blank">ydsbbt 发表于 2024-10-9 21:53</a>
+很早的说法了，大概是去年九月中到九月底。
+
+咎は裂き子、若葉無罪</blockquote>
+祥子这个名字…是指什么呢？
+
+—— 来自 vivo V2301A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

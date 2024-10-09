@@ -4692,3 +4692,18 @@ PS Blog公布日服9月下载排行榜，其中《界之轨迹》PS5版位列当
 
 所以去年伊苏10是卖了多少才让官推发推庆祝的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 6385#       发表于 2024-10-9 17:39
+
+按照近藤的说法，中日韩加起来接近20W？
+
+*****
+
+####  a2042312  
+##### 6386#       发表于 2024-10-9 17:45
+
+黑兔还拿姐姐剑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

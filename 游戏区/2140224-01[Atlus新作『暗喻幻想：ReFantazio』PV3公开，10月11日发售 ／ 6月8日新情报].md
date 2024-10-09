@@ -7156,3 +7156,11 @@ md，说了这么多我越来越不想玩了。
 
 玩了一点点demo，主角人设不够时髦，小南娘，我更喜欢反派那种
 
+
+*****
+
+####  杵瀨命  
+##### 1399#       发表于 2024-10-9 15:57
+
+你们天天喊着不要原谅反派，千万不要玩到最后求着A社在黄金版里加一条反派路线啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

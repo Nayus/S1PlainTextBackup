@@ -7466,3 +7466,29 @@ HARD难度也不用凹麻痹箭
 真5我记得二周目可以洗吧，估计暗喻也差不多</blockquote>
 真5原版不能洗点，只能二周目新生从1级重新加点，5v才加了洗点道具
 
+
+*****
+
+####  cloudys  
+##### 1429#       发表于 2024-10-9 21:35
+
+目前哪个平台性能表现好一些？都说PS5优化稳定，但是我试了一下感觉PS5和PC都不咋的
+
+有点儿想退了PS5版，毕竟PC力大砖飞，说不定后续有能人出MOD优化一下？
+
+
+*****
+
+####  罗克萨斯  
+##### 1430#       发表于 2024-10-9 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66411422&amp;ptid=2140224" target="_blank">cloudys 发表于 2024-10-9 21:35</a>
+目前哪个平台性能表现好一些？都说PS5优化稳定，但是我试了一下感觉PS5和PC都不咋的
+
+有点儿想退了PS5版， ...</blockquote>
+4090开200%渲染能4K120帧，确实能力大砖飞
+
+试玩的人有提到PS5玩PS4版能全程60帧丝般顺滑，这么看的话PS5版优化的还不如PS4版，这引擎确实得扔了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

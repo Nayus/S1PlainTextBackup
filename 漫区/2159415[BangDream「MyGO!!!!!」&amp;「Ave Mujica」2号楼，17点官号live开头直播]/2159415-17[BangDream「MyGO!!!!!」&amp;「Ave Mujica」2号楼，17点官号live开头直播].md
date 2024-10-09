@@ -9742,3 +9742,18 @@ URL：[https://ib.eplus.jp/avemujica_3rd_st/](https://ib.eplus.jp/avemujica_3rd_
 
 还行 也算新东西
 
+
+*****
+
+####  御幸一也  
+##### 24492#       发表于 2024-10-9 18:18
+
+這哪裡新東西了不是都幾乎舊東西剪輯嗎 樓友不可以被pua<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 24493#       发表于 2024-10-9 18:22
+
+这不是开头有新台词，怎么不算新东西<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

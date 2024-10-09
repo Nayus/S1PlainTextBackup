@@ -4799,3 +4799,16 @@ PS Blog公布日服9月下载排行榜，其中《界之轨迹》PS5版位列当
 
 2024-10-9 17:55 上传
 
+
+*****
+
+####  一步成诗  
+##### 6392#       发表于 2024-10-9 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66409679&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-10-9 17:53</a>
+
+比日本好，估计中日韩合计15万
+
+十年前来到台北电玩展看到玩家们这么热情让我非常高兴。这次《伊苏X》同步 ...</blockquote>
+那你轨确实比不过<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

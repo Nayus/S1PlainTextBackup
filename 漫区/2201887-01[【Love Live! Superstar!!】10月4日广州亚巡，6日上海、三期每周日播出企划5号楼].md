@@ -1513,3 +1513,37 @@ TVアニメ『ラブライブ！スーパースター!!』3期OPのコンセプ�
 
 久违的酸菜鱼<img src="https://p.sda1.dev/19/3183747068e762a2b104f57e78d462b0/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 149#       发表于 2024-10-9 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66401662&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-10-8 19:01</a>
+
+我的赛博摇滚爱好者花田先生，您扪心自问一下，干了三部有没有哪怕那么一瞬间有这么个想法？——《服务型 ...</blockquote>
+花田大老师本来就没打算考虑过声优的意见啊，从缪时期我就没觉得他想过声优的想法。更别说水时期都是写自己想写的，搞得声优只能玩反差梗。到了星更是逆输入等于没有了。
+
+怎么说呢，人家真是爱生活的父母捏，对自己的ip怎么下狠手怎么来了。
+
+*****
+
+####  ads147147  
+##### 150#       发表于 2024-10-9 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66402946&amp;ptid=2201887" target="_blank">starring 发表于 2024-10-8 22:03</a>
+
+第一话的niconico评分是55.1%好评
+
+—— 来自 鹅球 v3.1.90</blockquote>
+看来蓝总那边的结晶成都还是挺高的，毕竟目前看还是往上走不是，不过看隔壁贴和闪2真是打的有来有回，突出一个各有胜负，万代卧龙凤雏尽收手下，真是一盘好棋呀。
+
+
+*****
+
+####  Totokei  
+##### 151#       发表于 2024-10-9 09:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">首先会实时看生肉的人都是什么成份
+当然是结晶啊
+

@@ -2900,3 +2900,31 @@ bg解这种大该是厕妹用语的词吧，很难想象正常人能用得出来
 預告說的是狼 ...</blockquote>
 因为大家不会把独角兽跟狼联系在一起吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  modedd  
+##### 2491#       发表于 2024-10-9 09:31
+
+ 本帖最后由 modedd 于 2024-10-9 09:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66404354&amp;ptid=2162354" target="_blank">黑澤黛雅 发表于 2024-10-9 07:51</a>
+39集預告你們都覺得那狼人是gaou嗎
+我乍一看只覺得小麥看到的是化妝成狼人的妮可大人的人形態
+預告說的是狼 ...</blockquote>
+因为事到如今也该铺垫大BOSS洗白的事宜了，毕竟结局肯定得包饺子，而且动物镇祭祀的对象里各种动物都有，来点让嘎鲁“原来人类很亚撒西啊……”一下这种展开回收伏笔也很合理<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑澤黛雅  
+##### 2492#       发表于 2024-10-9 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66404669&amp;ptid=2162354" target="_blank">pokemon最爱 发表于 2024-10-9 08:59</a>
+因为大家不会把独角兽跟狼联系在一起吧</blockquote>
+小麥能扮裝狼人，妮可大人也可以扮成狼人吧
+我是想作為成田主線回，應該是要交待妮可大人和Gaou之間過去的事吧
+就算要發散cp也是妮可Gaou而不是小麥吧
+再說現在日本狼不是在讓動物們暴走嗎，我心中這狼人是微笑花園主人妮可，比是Gaou扮的更合理
+（要真是Gaou變裝，能圓得過來也就還行）
+
+—— 來自 [鵝球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

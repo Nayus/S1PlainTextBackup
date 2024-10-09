@@ -1730,3 +1730,34 @@ document.getElementById('flv_ALj').innerHTML=("");
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  woui003woui  
+##### 1637#       发表于 2024-10-9 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66411985&amp;ptid=2188108" target="_blank">佛罗伦萨 发表于 2024-10-9 22:58</a>
+
+瞌睡道场的挑战是只要过了就行，还是要达到速度更快的奖励，才能获得那些不可替代的收集品？ ...</blockquote>
+应该是过了就行，因为我拿到绿帽套装的时候束缚之战极就没神速……
+
+*****
+
+####  kuarwbwe  
+##### 1638#       发表于 2024-10-9 23:31
+
+今天出了游戏时长。我看了一眼，这作我看攻略40小时整全收集+全瞌睡道场额外奖励全拿。
+
+其实体量真的不算小了毕竟我这边从发售到国庆基本全花在这游戏上了。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  760194962  
+##### 1639#       发表于 2024-10-10 07:00
+
+<blockquote>Khellendros 发表于 2024-10-7 23:49
+但是老塞尔达迷宫占比大，相似的地图元素给人感觉重复感没那么高，新塞尔达的迷宫部分就只占整个区域探索 ...</blockquote>
+我感觉不一样。全程喜欢走树上等以前俯视塞尔达走不了的边界区域。
+

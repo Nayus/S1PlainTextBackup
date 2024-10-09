@@ -12213,3 +12213,32 @@ miko sololive前日照常直播
 
 确实手上有钱了
 
+
+*****
+
+####  holoan  
+##### 9881#         楼主| 发表于 2024-10-8 22:33
+
+<img src="https://img.saraba1st.com/forum/202410/08/223332lkmmkiikuokztibm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (43.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-8 22:33 上传
+
+*****
+
+####  holoan  
+##### 9882#         楼主| 发表于 2024-10-9 15:52
+
+500元的ガラポン景品甚至被撸光了
+
+<img src="https://img.saraba1st.com/forum/202410/09/155237hz08ljypcjfva8pz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (29.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-9 15:52 上传
+

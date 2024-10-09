@@ -5024,3 +5024,15 @@ https://store.steampowered.com/app/2113920/_II/?l=schinese</blockquote>
 
 9月第一时间入手的，啥成分都知道，关键还是要看后续乏不乏力了吧
 
+
+*****
+
+####  隔壁老黄  
+##### 6409#       发表于 2024-10-10 02:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66412699&amp;ptid=2160194" target="_blank">lxshhh 发表于 2024-10-10 01:51</a>
+9月第一时间入手的，啥成分都知道，关键还是要看后续乏不乏力了吧</blockquote>
+还哪来的后续，该买的只会第一时间买<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

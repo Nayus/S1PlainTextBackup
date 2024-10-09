@@ -4869,3 +4869,23 @@ PS Blog公布日服9月下载排行榜，其中《界之轨迹》PS5版位列当
 
 最终章学妹咚之前还挺感动的，硬是要一人来一个投屏讲一句废话把我整笑了
 
+
+*****
+
+####  卢迪克  
+##### 6397#       发表于 2024-10-9 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66410042&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-10-9 18:31</a>
+
+界和ysx本土可能半斤八两，不过海外界应该卖不过ysx</blockquote>
+黎2：尴黑
+
+013601z1lth7ll3xll7i3i.png
+(75.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-9 20:03 上传
+
+<img src="https://img.saraba1st.com/forum/202410/09/200345vez72vne6nnlkxq2.png" referrerpolicy="no-referrer">
+

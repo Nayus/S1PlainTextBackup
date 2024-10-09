@@ -6923,3 +6923,13 @@ steam上468那个豪华版多了啥东西？有季票DLC之类的实质性内容
 能不能去掉</blockquote>
 用社区补丁：[https://github.com/Lyall/MetaphorFix](https://github.com/Lyall/MetaphorFix)
 
+
+*****
+
+####  nagitoY  
+##### 1378#       发表于 2024-10-9 14:05
+
+atlus好像提到过本作会涉及到政治斗争的剧情？
+
+暗喻幻想剧情相比p5是好还是差？p5的一个明智一个狮童都是low穿地心的辣鸡，根本配不上幕后boss的位置。另外很多剧情推进部分也挺生硬，比如mona和龙司吵架，mona离家出走那一段。整体上来讲，我是觉得p5剧情比较差的。
+

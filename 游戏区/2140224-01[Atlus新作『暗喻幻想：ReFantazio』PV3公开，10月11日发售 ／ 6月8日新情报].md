@@ -7396,3 +7396,17 @@ HARD难度也不用凹麻痹箭
 
 如果是单纯的幻想那就没什么意思了。
 
+
+*****
+
+####  usodakedo  
+##### 1423#       发表于 2024-10-9 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66410580&amp;ptid=2140224" target="_blank">baizhi 发表于 2024-10-9 19:36</a>
+我说一个暴论，jrpg的剧情其实没那么重要，而“感受”才是最重要的。</blockquote>
+我也是这么觉得，但是有好剧情总是好事，没好剧情别硬赛史我也能接受。
+其实当初大家说p5天下第一的时候，我就觉得后期剧情好随便啊，但是顺着结局热血一下也就过去了，但是p5r就试图给你整点“深度”，我现在真怕了所谓的“深度剧情”了。前段时间的p3r的dlc据说没改原本剧情我就没买，因为我知道当初后日谈最开始的评价，但不知为何随着时间推移，一堆人能从这坨里分析出这那多么多么有立意，却无视本身带给玩家的感受<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+反正我现在只求jrpg写点大直白的王道，然后有个ke或者dr十分之一燃就大满足了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

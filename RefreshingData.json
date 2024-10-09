@@ -3777,7 +3777,7 @@
     "lastedit": 1728504420,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1478318": {
     "totalreply": 1412,
@@ -16695,10 +16695,10 @@
     "update": false
   },
   "2202426": {
-    "totalreply": 89,
+    "totalreply": 90,
     "title": "[想问下开源掌机要怎么选？]",
     "newtitle": "[想问下开源掌机要怎么选？]",
-    "lastedit": 1728498491,
+    "lastedit": 1728509528,
     "category": "游戏区",
     "active": true,
     "update": false

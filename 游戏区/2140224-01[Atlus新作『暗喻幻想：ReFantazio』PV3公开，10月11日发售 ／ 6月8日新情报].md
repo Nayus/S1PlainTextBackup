@@ -7492,3 +7492,18 @@ HARD难度也不用凹麻痹箭
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  walfeds  
+##### 1431#       发表于 2024-10-9 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66411465&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-10-9 21:43</a>
+
+4090开200%渲染能4K120帧，确实能力大砖飞
+
+试玩的人有提到PS5玩PS4版能全程60帧丝般顺滑，这么看的话PS5 ...</blockquote>
+ps5版是1656p，ps4版是1080p，也不能这么比
+
+但是没有引入任何抗锯齿技术确实是抽象新高度了，拉200%渲染比例纯粹力大砖飞（
+

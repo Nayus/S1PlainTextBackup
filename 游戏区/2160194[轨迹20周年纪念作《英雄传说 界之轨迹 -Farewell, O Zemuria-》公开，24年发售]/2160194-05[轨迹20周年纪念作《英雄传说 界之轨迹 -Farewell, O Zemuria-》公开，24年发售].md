@@ -4551,3 +4551,39 @@ y1s1黎2所谓的婚纱羁绊糖当时是有点觉得有点和黎1剑女ooc的�
 
 只能说有语音表现力就不一样了，但是想想黎1夜谈那个断断续续的语音也是挺搞笑的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kangkangsama  
+##### 6371#       发表于 2024-10-9 11:45
+
+奥拉西亚虽然语音断断续续（主要是van）有点生草
+
+但小野d配得那几句还是挺有感觉的
+
+不管是不原谅你/都是我的错，还是“明明从这里看过去的景色一直都没有变”
+
+和斋藤千和一样都有种居然为了这破游戏破剧情配得这么认真的感觉
+
+*****
+
+####  windtrack_qh  
+##### 6372#       发表于 2024-10-9 11:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">说起来这作剑女明明把前作的衣装都给了，但是黎2二周目可用的婚纱这作就不给，迫害！
+
+
+*****
+
+####  洛克萨斯  
+##### 6373#       发表于 2024-10-9 11:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">东西方玩家通杀么，扛着音响的大姐姐太猛了
+
+*****
+
+####  一步成诗  
+##### 6374#       发表于 2024-10-9 11:50
+
+有没有可能是因为大裙子穿模<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

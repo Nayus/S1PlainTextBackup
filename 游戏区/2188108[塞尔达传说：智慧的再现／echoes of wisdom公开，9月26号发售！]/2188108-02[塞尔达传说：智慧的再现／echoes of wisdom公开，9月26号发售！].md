@@ -1677,3 +1677,13 @@ document.getElementById('flv_ALj').innerHTML=("");
 
 问个小问题，饰品里的望远镜和护身符这两个东西，是不是取得了高级版的低级版的就会被自动覆盖？看到一共28个饰品，但是其实能显示出的只有26个？
 
+
+*****
+
+####  woui003woui  
+##### 1632#       发表于 2024-10-9 11:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66405893&amp;ptid=2188108" target="_blank">林檎 发表于 2024-10-9 11:08</a>
+问个小问题，饰品里的望远镜和护身符这两个东西，是不是取得了高级版的低级版的就会被自动覆盖？看到一共28 ...</blockquote>
+是的
+

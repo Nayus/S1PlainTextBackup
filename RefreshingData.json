@@ -3777,7 +3777,7 @@
     "lastedit": 1728504420,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1478318": {
     "totalreply": 1412,
@@ -14814,10 +14814,10 @@
     "update": false
   },
   "2201926": {
-    "totalreply": 3871,
+    "totalreply": 3872,
     "title": "[【集中楼】百合&amp;泛百合讨论楼9.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼9.0]",
-    "lastedit": 1728503287,
+    "lastedit": 1728506289,
     "category": "漫区",
     "active": true,
     "update": false
@@ -15120,10 +15120,10 @@
     "update": false
   },
   "2201952": {
-    "totalreply": 82,
+    "totalreply": 83,
     "title": "[我做了个“奇葩”的升级打算，大伙看看能不能行。]",
     "newtitle": "[“奇葩”升级更新：显卡到了，吕布骑上了狗]",
-    "lastedit": 1728486972,
+    "lastedit": 1728505807,
     "category": "游戏区",
     "active": true,
     "update": false

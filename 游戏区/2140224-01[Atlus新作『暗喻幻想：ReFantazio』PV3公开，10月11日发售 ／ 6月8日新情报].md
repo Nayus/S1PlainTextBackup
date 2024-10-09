@@ -6881,3 +6881,13 @@ steam上468那个豪华版多了啥东西？有季票DLC之类的实质性内容
 
 说到底这个时候才端上来就是最大的罪过，放三四年前大家勉强还能接受这种画面质量，现在自家stmvv p3r都出了还要开画面倒车，着实让人绷不住
 
+
+*****
+
+####  kuarwbwe  
+##### 1374#       发表于 2024-10-9 12:50
+
+你做8年中间可以换引擎啊。开发时间拉这么长还坚持用老工具那可不就这样。而且这段时间atlus也不是没换虚幻。<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

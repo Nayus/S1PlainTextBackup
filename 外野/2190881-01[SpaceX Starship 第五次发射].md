@@ -349,3 +349,31 @@ NSF再次询问了FAA关于许可证的进展，FAA本次回复依然表示工�
 
 — from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  commcody  
+##### 88#         楼主| 发表于 2024-10-9 11:39
+
+<blockquote>依然荏苒 发表于 2024-10-9 08:14
+这次落点在马达加斯加东岸不远，不知道能不能拍到。
+
+— from S1 Next Goose v3.2.91 ...</blockquote>
+落区范围和先前一样。预警区是三个区连起来的，分别是马达加斯加东，印度洋和澳大利亚西。中间印度洋的预警暂时还没发布。
+
+
+*****
+
+####  鲜血秋叶  
+##### 89#       发表于 2024-10-9 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66404289&amp;ptid=2190881" target="_blank">commcody 发表于 2024-10-9 06:54</a>
+当地10月13日至15日的飞行测试封路通知已发布。
+
+当地时间每天的0点至14点（北京时间13日至15日下午的13点 ...</blockquote>
+我还是坚持那个观点，SpaceX负责政府事务的人私底下跟FAA某些人关系非常好，FAA这些年替SpaceX挡了很多枪。
+
+就星舰历次发射表现来看，最初的技术成熟度绝对没到非常完善就是FAA硬卡着的地步，所以这次估计还是给放行的，放行的原因是这次SpaceX应该是真准备好了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

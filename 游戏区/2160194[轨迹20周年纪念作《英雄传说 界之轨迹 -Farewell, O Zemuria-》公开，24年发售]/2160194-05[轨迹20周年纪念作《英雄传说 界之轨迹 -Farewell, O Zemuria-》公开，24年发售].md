@@ -4534,3 +4534,20 @@ ZOC+增幅角色，开一个增幅就ZOC二动换下一个人，刷满BUFF，然
 
 这也太压倒了，期待他们打完黎2的直球辱骂<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kangkangsama  
+##### 6369#       发表于 2024-10-9 11:38
+
+y1s1黎2所谓的婚纱羁绊糖当时是有点觉得有点和黎1剑女ooc的，和界的剑女羁绊1一样就感觉剑女不像是会拿婚期/前男友去“推”van的，当然这次羁绊2水平回来了点（主要还是千和太太表现超神）
+
+，有点奥拉希亚之夜和有河畔夜酌的拉扯感了。
+
+*****
+
+####  一步成诗  
+##### 6370#       发表于 2024-10-9 11:40
+
+只能说有语音表现力就不一样了，但是想想黎1夜谈那个断断续续的语音也是挺搞笑的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

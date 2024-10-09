@@ -7542,3 +7542,28 @@ P5已经是8年前的游戏了，暗喻幻想再来一遍真的不时髦了。�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么还在蒸时髦和扩圈阿 哦我还在纠结加强版啊那没事惹
 
+
+*****
+
+####  大喇叭花田  
+##### 1436#       发表于 2024-10-9 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66409277&amp;ptid=2140224" target="_blank">kuarwbwe 发表于 2024-10-9 17:18</a>
+
+不想出圈。
+
+指游戏发售全mc均分94分。联动f1和功夫茶。在国内微博和小红书等社交媒体打广告。在b站发商单吹 ...</blockquote>
+可能我真的老了，我怎么也想不出一个日式西幻RPG能出圈的可能性，哪怕给个GOTY，圈外人看来依然只是一个美术风格比较独特的二次元游戏。
+
+试了以下DEMO，完全没有P5带给我的那种中二热血代入感。
+
+*****
+
+####  大喇叭花田  
+##### 1437#       发表于 2024-10-9 22:42
+
+神作未满 量大管饱！《暗喻幻想：ReFantazio》90小时真结局通关评测
+[https://www.bilibili.com/video/B ... 66370b3405d8f1aca91](https://www.bilibili.com/video/BV1vr2JYzEVm/?spm_id_from=333.337.search-card.all.click&amp;vd_source=599bc5c7481ba66370b3405d8f1aca91)
+
+啥都好，就是降智的二次元政治描写扣分，真的毫不意外。
+

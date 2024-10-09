@@ -6910,3 +6910,16 @@ steam上468那个豪华版多了啥东西？有季票DLC之类的实质性内容
 试了一下demo，这个跑步的时候的特效好晕啊
 能不能去掉
 
+
+*****
+
+####  walfeds  
+##### 1377#       发表于 2024-10-9 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66407168&amp;ptid=2140224" target="_blank">夜_乌鸦 发表于 2024-10-9 13:30</a>
+
+试了一下demo，这个跑步的时候的特效好晕啊
+
+能不能去掉</blockquote>
+用社区补丁：[https://github.com/Lyall/MetaphorFix](https://github.com/Lyall/MetaphorFix)
+

@@ -7456,3 +7456,13 @@ HARD难度也不用凹麻痹箭
 
 真5我记得二周目可以洗吧，估计暗喻也差不多
 
+
+*****
+
+####  SuNR1sE364  
+##### 1428#       发表于 2024-10-9 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66410977&amp;ptid=2140224" target="_blank">windtrack_qh 发表于 2024-10-9 20:31</a>
+真5我记得二周目可以洗吧，估计暗喻也差不多</blockquote>
+真5原版不能洗点，只能二周目新生从1级重新加点，5v才加了洗点道具
+

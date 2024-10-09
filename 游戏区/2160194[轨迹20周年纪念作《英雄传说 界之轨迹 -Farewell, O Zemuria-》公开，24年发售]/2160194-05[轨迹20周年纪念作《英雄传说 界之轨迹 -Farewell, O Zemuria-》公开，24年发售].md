@@ -4913,3 +4913,11 @@ PS Blog公布日服9月下载排行榜，其中《界之轨迹》PS5版位列当
 
 但是s技把狱卒特写删了 令我非常不爽<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jacket  
+##### 6400#       发表于 2024-10-9 20:36
+
+第二次回到天文台的时候不着急往前推，可以让队伍六人逐一确认望远镜看到的画面
+

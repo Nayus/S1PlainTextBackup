@@ -377,3 +377,48 @@ NSF再次询问了FAA关于许可证的进展，FAA本次回复依然表示工�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  commcody  
+##### 90#         楼主| 发表于 2024-10-9 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66406295&amp;ptid=2190881" target="_blank">鲜血秋叶 发表于 2024-10-9 11:45</a>
+
+我还是坚持那个观点，SpaceX负责政府事务的人私底下跟FAA某些人关系非常好，FAA这些年替SpaceX挡了很多枪 ...</blockquote>
+从硬件准备角度，可以观察到发射场的筷子是要到九月才算是准备好。
+
+但这次发射许可涉及的矛盾不是因为发射载具的软硬件问题，而是卡在诸如水冷钢板的水和返回时分离的热分离环会不会污染环境这种问题。
+
+*****
+
+####  依然荏苒  
+##### 91#       发表于 2024-10-9 23:45
+
+fts已经装了，13号也封路，可能6成？
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  commcody  
+##### 92#         楼主| 发表于 2024-10-9 23:45
+
+S30和B12的自毁系统炸药安装都已开始。
+
+<img src="https://img.saraba1st.com/forum/202410/09/234527n3r1mqopo23zwd36.jpg" referrerpolicy="no-referrer">
+
+<strong>GZdPR5pXAAAYb4L.jpg</strong> (502.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-9 23:45 上传
+
+<img src="https://img.saraba1st.com/forum/202410/09/234527onnke6x41hzz6oon.jpg" referrerpolicy="no-referrer">
+
+<strong>GZdIpAkXUAAkUEx.jpg</strong> (477.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-9 23:45 上传
+

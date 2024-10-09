@@ -4628,3 +4628,11 @@ y1s1黎2所谓的婚纱羁绊糖当时是有点觉得有点和黎1剑女ooc的�
 另外学妹女神装二周 ...</blockquote>
 黎2可以改出来用，跑起来会穿模。
 
+
+*****
+
+####  diectt  
+##### 6379#       发表于 2024-10-9 14:35
+
+下作该给剑女加buff了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

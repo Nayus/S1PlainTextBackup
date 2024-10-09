@@ -6961,3 +6961,41 @@ atlus好像提到过本作会涉及到政治斗争的剧情？
 暗喻幻想剧情相比p5是好还是差？p5的一个明智一个狮童都是lo ...</blockquote>
 有通关评测说全程下来主角多次吃瘪，解决问题的方式也有些....显得反派倒更有执行力和谋略了
 
+
+*****
+
+####  jajajzz  
+##### 1382#       发表于 2024-10-9 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66406991&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-10-9 13:06</a>
+
+先发售的SMT5用的虚幻4，3R甚至用上了虚幻5，效果都吊打暗喻幻想。而暗喻幻想是因为立项太早没赶上呢，还是 ...</blockquote>
+3R居然是虚幻5吗
+
+看之前测评说的都是虚幻4阿 <blockquote>《女神异闻录3 Reload》评测：精彩却又“坐牢”的一次补课 P3R在画面上并没有使用P5的新引擎，而是转用了开发《真女神转生5》时使用的虚幻4引擎。除了模型材质与贴图的精细度有所提升之外，本作还沿用了《真女5</blockquote>
+
+*****
+
+####  哎哟卧槽了  
+##### 1383#       发表于 2024-10-9 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66406991&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-10-9 13:06</a>
+
+先发售的SMT5用的虚幻4，3R甚至用上了虚幻5，效果都吊打暗喻幻想。而暗喻幻想是因为立项太早没赶上呢，还是 ...</blockquote>
+卡通渲染风格其实也不需要追求太好的引擎，P5就算现在玩其实好这口的还是看的下去，比较P组的人物吸引力都是在立绘上。
+
+只要系统不出事，剧情不雷人，这游戏就算成功了。这两点都要在玩正式版后才能发现，毕竟demo给的东西还是太少了
+
+*****
+
+####  罗克萨斯  
+##### 1384#       发表于 2024-10-9 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66407617&amp;ptid=2140224" target="_blank">jajajzz 发表于 2024-10-9 14:28</a>
+3R居然是虚幻5吗
+
+看之前测评说的都是虚幻4阿</blockquote>
+看维基上写是虚幻4，那是我记错了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

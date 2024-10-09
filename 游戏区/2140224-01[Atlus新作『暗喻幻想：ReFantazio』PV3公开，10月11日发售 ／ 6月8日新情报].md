@@ -7594,3 +7594,25 @@ P5已经是8年前的游戏了，暗喻幻想再来一遍真的不时髦了。�
 
 还是说立项的时候有什么这类题材横扫全球的先例？
 
+
+*****
+
+####  kuarwbwe  
+##### 1440#       发表于 2024-10-9 23:25
+
+demo打完龙了，停在老爷子去刺杀路易。考虑到后天要发售了，简单写点感想。睡了明天接着打。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+画面在我这其实没觉得有多差。不过我的意见没啥参考价值就是了。毕竟像王泪、智杖和ps黑猴这堆外面（比如隔壁nga）骂声一片，直说掉帧，优化差，没法玩的我都没觉得有啥。反正我就是玩ns玩的，早被规训完了。木眼睛画面不敏感。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+bgm算超出预期，主持念经真的很魔性。上头。
+
+ui确实太闪了，但能适应。还是希望p6能吸取教训。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+战斗没啥好说的，能明显感觉出来没走出atlus自己那套。但我很喜欢smt5v。所以也不会给差评。打完龙还是挺爽的。即时战斗模式有点血压，尤其是打不出昏厥劣势太大了，很麻烦。但又比想象的好，尤其是等级起来能清怪了，还有点小爽。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+剧情也没啥感觉。就很中规中矩。希望发售了写的能合理点，写好点。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+虽然前面骂了那么多，贷款吃了好几口屎。但还是希望这游戏能在以后多给我点惊喜，超出一下我的预期吧，就这样了。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

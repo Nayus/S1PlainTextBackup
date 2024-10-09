@@ -2608,3 +2608,16 @@ lockpick, dolphin, yuzu, yuzu forks, 现在是 ryujinx。之前每一次，不�
 
 我倒是觉得从来都不是玩盗版这件事，而是玩盗版还跳脸
 
+
+*****
+
+####  kerorokun  
+##### 230#       发表于 2024-10-9 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66387487&amp;ptid=2201766" target="_blank">六道之彼方 发表于 2024-10-6 19:25</a>
+都多少年了还在拿这套给自己开脱
+
+能保证拿模拟器玩的游戏全都是自己拿自购卡带dump的再来说“模拟器和盗版 ...</blockquote>
+呵呵，从ps3开始，我模拟器上的游戏我都买了正版，但是实机都丢原盒里吃灰了，没事就看看模拟器更新了啥
+sw更是正版买来就进游戏建个档就关机了，现在除了Splatoon这种网游，其他游戏我都模拟器玩了
+

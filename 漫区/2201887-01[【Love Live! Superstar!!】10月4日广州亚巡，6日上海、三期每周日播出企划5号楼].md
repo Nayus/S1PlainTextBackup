@@ -1558,3 +1558,14 @@ TVアニメ『ラブライブ！スーパースター!!』3期OPのコンセプ�
 久违的酸菜鱼</blockquote>
 菜包这个前置摄像头真不行了，学鱼每年更换新ip吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViyViy  
+##### 153#       发表于 2024-10-9 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66404937&amp;ptid=2201887" target="_blank">ads147147 发表于 2024-10-9 09:38</a>
+
+花田大老师本来就没打算考虑过声优的意见啊，从缪时期我就没觉得他想过声优的想法。更别说水时期都是写自 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">首先是犯下了傲慢之罪的花田
+

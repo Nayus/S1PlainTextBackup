@@ -1582,3 +1582,16 @@ TVアニメ『ラブライブ！スーパースター!!』3期OPのコンセプ�
 
 不过说真的，至少星3开篇香音和薇恩的刻画还是可圈可点的，真要入脑这个cp我挺喜欢磕的，怎么不比那香樱好磕，懂了，外国人组总是好磕。不过冬毬入场也早不会出现可香可菫那种微妙的拆队感，大不了乱炖咯，乱炖也好过现在当陌路人。
 
+
+*****
+
+####  ViyViy  
+##### 155#       发表于 2024-10-9 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66405312&amp;ptid=2201887" target="_blank">ads147147 发表于 2024-10-9 10:15</a>
+
+并非傲慢，只是摇滚。
+
+不过说真的，至少星3开篇香音和薇恩的刻画还是可圈可点的，真要入脑这个cp我挺喜 ...</blockquote>
+只能说他们想搞一个短程复刻版liella结成记（VN.ver）可以是可以；就是最后别阴差阳错的又有人不断献出了自己<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

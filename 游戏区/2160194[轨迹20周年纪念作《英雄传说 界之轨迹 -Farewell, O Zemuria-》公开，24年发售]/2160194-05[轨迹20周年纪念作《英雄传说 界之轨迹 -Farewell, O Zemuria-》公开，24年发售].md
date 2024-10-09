@@ -4587,3 +4587,11 @@ y1s1黎2所谓的婚纱羁绊糖当时是有点觉得有点和黎1剑女ooc的�
 
 有没有可能是因为大裙子穿模<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kojimaru  
+##### 6375#       发表于 2024-10-9 11:54
+
+大小字和感叹号破折号的冲击力确实不如声优
+

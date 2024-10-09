@@ -1661,3 +1661,11 @@ document.getElementById('flv_ALj').innerHTML=("");
 空瓶子现在只能用来装妖精了？
 我寻思冰沙用的不也是空瓶<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xlent  
+##### 1630#       发表于 2024-10-9 10:41
+
+我做那个要容器的任务时候也是第一想法就是把妖精倒出去，扔了给他瓶
+

@@ -5054,3 +5054,15 @@ https://store.steampowered.com/app/2113920/_II/?l=schinese</blockquote>
 
 <img src="https://p.sda1.dev/19/ec323888fbbe39707cebe47348e67114/CMP_20241010031716889.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 6412#       发表于 2024-10-10 07:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66412699&amp;ptid=2160194" target="_blank">lxshhh 发表于 2024-10-10 01:51</a>
+9月第一时间入手的，啥成分都知道，关键还是要看后续乏不乏力了吧</blockquote>
+咚了，后劲大概率是没有的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

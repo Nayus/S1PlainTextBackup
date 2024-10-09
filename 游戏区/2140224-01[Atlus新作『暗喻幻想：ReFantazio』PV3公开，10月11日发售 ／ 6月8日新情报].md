@@ -7292,3 +7292,21 @@ mc评分94确实有点假了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Jimlee080  
+##### 1412#       发表于 2024-10-9 18:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">怎么先是100w回本，现在连不想出圈都搞出来了？就是不想承认refantasy是altus十年磨一剑磨出来的当家旗舰游戏么？只不过到底是一艘银河战舰还是一坨恒河战舰就不好说了
+
+作为玩家站在厂商的角度去给游戏的负面舆论作辩解是最不可理喻的
+
+
+*****
+
+####  iuiuk2  
+##### 1413#       发表于 2024-10-9 18:43
+
+这个ui闪烁正式能不能给个开关，癫痫都要闪出来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -9757,3 +9757,20 @@ URL：[https://ib.eplus.jp/avemujica_3rd_st/](https://ib.eplus.jp/avemujica_3rd_
 
 这不是开头有新台词，怎么不算新东西<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 24494#       发表于 2024-10-9 18:43
+
+你鸡疑似出息了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（但不多）
+
+IMG_5673(20241009-184228).JPG
+(154.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-9 18:43 上传
+
+<img src="https://img.saraba1st.com/forum/202410/09/184348j75mff6vfgfc676q.jpg" referrerpolicy="no-referrer">
+

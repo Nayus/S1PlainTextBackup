@@ -89,3 +89,13 @@ img_7199.jpg
 
 还是这三个不好看的墨水
 
+
+*****
+
+####  KBAC  
+##### 5477#       发表于 2024-10-9 18:27
+
+小鱿鱼要撞大运咯
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

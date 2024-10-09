@@ -4812,3 +4812,52 @@ PS Blog公布日服9月下载排行榜，其中《界之轨迹》PS5版位列当
 十年前来到台北电玩展看到玩家们这么热情让我非常高兴。这次《伊苏X》同步 ...</blockquote>
 那你轨确实比不过<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 6393#       发表于 2024-10-9 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66409899&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-10-9 18:15</a>
+
+那你轨确实比不过</blockquote>
+轨门槛太高了，结晶粉丝就那些了，比不过的<img src="https://static.saraba1st.com/image/smiley/carton2017/383.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kangkangsama  
+##### 6394#       发表于 2024-10-9 18:31
+
+<img src="https://img.saraba1st.com/forum/202410/09/183031jckqiiuanmzcf1mf.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6498.jpeg</strong> (701.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-9 18:30 上传
+
+<img src="https://img.saraba1st.com/forum/202410/09/183031ellvht4rhhezaqgl.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6499.jpeg</strong> (1.02 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-9 18:30 上传
+
+看了下的确不太理想
+
+可以和同时期sh2re比比评价数算算
+
+*****
+
+####  ravend233  
+##### 6395#       发表于 2024-10-9 18:31
+
+ 本帖最后由 ravend233 于 2024-10-9 18:32 编辑 
+
+界和ysx本土可能半斤八两，不过海外界应该卖不过ysx
+
+咚了估计后劲也不行，不过考虑黎2的负面影响，已经远超我预期了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

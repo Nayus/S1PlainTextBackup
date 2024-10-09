@@ -4707,3 +4707,95 @@ PS Blog公布日服9月下载排行榜，其中《界之轨迹》PS5版位列当
 
 黑兔还拿姐姐剑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  妄想中毒  
+##### 6387#       发表于 2024-10-9 17:53
+
+庭院追加温泉后原本不需要读盘的恢复现在变得要读两次盘，还在玩ps4版的表示体验极差<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 6388#       发表于 2024-10-9 17:53
+
+<blockquote>一步成诗 发表于 2024-10-9 17:33
+所以去年伊苏10是卖了多少才让官推发推庆祝的啊</blockquote>
+比日本好，估计中日韩合计15万
+
+十年前来到台北电玩展看到玩家们这么热情让我非常高兴。这次《伊苏X》同步在Switch上发售，其实亚洲地区卖得比日本地区还要多，让我实际感受到了我们的作品在亚洲地区取得的成绩，我也意识到了亚洲甚至欧美地区的重要性，不能再像以前那样只专注于日本地区了。
+
+*****
+
+####  卢迪克  
+##### 6389#       发表于 2024-10-9 17:53
+
+这次没超过日本就没发吧
+
+*****
+
+####  空气先生  
+##### 6390#       发表于 2024-10-9 17:54
+
+剑女这一部已经获得强度美了()
+
+*****
+
+####  kangkangsama  
+##### 6391#       发表于 2024-10-9 17:56
+
+得说剑女虽然剧情爱没多少
+
+但是虽然没有新S，但战技演出除了起源之主个个都大更新，起源之主本身也有新特效。
+
+而且这新演出多少能感受到改的人的某些坚持
+
+罗恩格林
+
+<img src="https://img.saraba1st.com/forum/202410/09/175409qjlw98ymcmu8tvzj.png" referrerpolicy="no-referrer">
+
+<strong>IMG_6488.png</strong> (295.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-9 17:54 上传
+
+<img src="https://img.saraba1st.com/forum/202410/09/175410wxwb8zmlpryrxg1y.png" referrerpolicy="no-referrer">
+
+<strong>IMG_6489.png</strong> (282.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-9 17:54 上传
+
+百花剑技
+
+<img src="https://img.saraba1st.com/forum/202410/09/175427caf6zxvxla144pm0.png" referrerpolicy="no-referrer">
+
+<strong>IMG_6490.png</strong> (362.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-9 17:54 上传
+
+白银十字
+
+<img src="https://img.saraba1st.com/forum/202410/09/175539emllhavee6a23euq.png" referrerpolicy="no-referrer">
+
+<strong>IMG_6491.png</strong> (258.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-9 17:55 上传
+
+新回增幅战技
+
+<img src="https://img.saraba1st.com/forum/202410/09/175557fntzufducut4coq7.png" referrerpolicy="no-referrer">
+
+<strong>IMG_6492.png</strong> (321.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-9 17:55 上传
+

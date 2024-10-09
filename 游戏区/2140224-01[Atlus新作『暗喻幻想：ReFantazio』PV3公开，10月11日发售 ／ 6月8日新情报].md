@@ -7182,3 +7182,13 @@ md，说了这么多我越来越不想玩了。
 
 日式西幻怎么想也不可能出圈，估计A社也没有抱着做出出圈爆款的心态来做吧。
 
+
+*****
+
+####  无辄辄  
+##### 1402#       发表于 2024-10-9 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66408584&amp;ptid=2140224" target="_blank">大喇叭花田 发表于 2024-10-9 16:13</a>
+日式西幻怎么想也不可能出圈，估计A社也没有抱着做出出圈爆款的心态来做吧。 ...</blockquote>
+这铺天盖地的宣发你说不报出圈心态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -38,3 +38,15 @@
 
 看闲鱼二手和淘宝瑕疵处理感觉这批基拉和拉克丝的shf品控堪忧啊，有入手的说说么
 
+
+*****
+
+####  软软人  
+##### 1969#       发表于 2024-10-10 02:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66264491&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-9-21 14:35</a>
+昨天的见面会太满足了，桑岛法子演了一段芙蕾的内容，把基拉给臭骂了一顿，福田也说了芙蕾是基拉的创伤和战 ...</blockquote>
+我嗑了我嗑了，拉党勿喷，声优cp粉啊<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

@@ -6723,3 +6723,84 @@ P3R实体也跌倒160，我感觉半年后再买是最合适的，P的受众面�
 
 说到底给桥野这么长时间，saga肯定是要期望做出超越p5的作品的，现在来看这个目标大概是没有达到
 
+
+*****
+
+####  saverok  
+##### 1359#       发表于 2024-10-9 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66404880&amp;ptid=2140224" target="_blank">habita 发表于 2024-10-9 09:31</a>
+
+看了下国内评测，只按素质来说也就是个200w-300w水平的作品，营销下还能再高点，但也很难再高了
+
+说到底给 ...</blockquote>
+就目前这样别说超越p5 摸到p5都困难
+
+剧情一眼见底，猪脚一个比一个丑
+
+*****
+
+####  ybfelix  
+##### 1360#       发表于 2024-10-9 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66403639&amp;ptid=2140224" target="_blank">pandaman7777 发表于 2024-10-8 23:51</a>
+
+玩到开启队友习得persona功能，这demo的水平能有90分我也是停难绷的
+
+关键是就主角和同伴觉醒persona的那两 ...</blockquote>
+讲道理P系列的觉醒一向都不咋地，总觉得这种改变人生观的大事件，在游戏里随随便便就演两下结束了，大部分只影响游戏性而对剧情，角色内心却没啥冲击，感觉还不如路边捡了只流浪猫的后果大。虽然属于大家心照不宣的定番桥段，但开场都舍得让玩家看这么长的慢节奏文戏，到了觉醒P却不怎么多花点时间渲染事件...
+
+
+*****
+
+####  OkaJu  
+##### 1361#       发表于 2024-10-9 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66404300&amp;ptid=2140224" target="_blank">慕容断月 发表于 2024-10-9 07:04</a>
+demo不要钱，先玩demo，先玩demo</blockquote>
+demo早八百年玩过了，评价是时髦值不如……p5<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+主要还是这几位觉醒p的时候整段演出太草率太公式了，而且过场动画质量也有点<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nyaneko  
+##### 1362#       发表于 2024-10-9 09:50
+
+刚开始玩试玩，试玩那段继承到正式版的说明都有语音，结果转到沙漠开始妖精的话就直接没语音了。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kuarwbwe  
+##### 1363#       发表于 2024-10-9 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66403579&amp;ptid=2140224" target="_blank">OkaJu 发表于 2024-10-8 23:40</a>
+本来准备最近空下来后买smtvv的，现在看暗喻这爆炸评分突然想冲动消费当一把atlus凯子先入手暗喻了
+
+ ...</blockquote>
+你别看smtvv分比暗喻幻想低，但完全可能是今年综合质量最好的atlus游戏。<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  罗克萨斯  
+##### 1364#       发表于 2024-10-9 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66404880&amp;ptid=2140224" target="_blank">habita 发表于 2024-10-9 09:31</a>
+看了下国内评测，只按素质来说也就是个200w-300w水平的作品，营销下还能再高点，但也很难再高了
+
+说到底给 ...</blockquote>
+游民评测员跳过大量内容，速通打完的，那边会删掉几乎所有反驳的评论，任由无脑贬低评论滋生，我只能说是别太信了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  walfeds  
+##### 1365#       发表于 2024-10-9 09:55
+
+这作这个前所未有的宣发力度我大概确信平冈直人说的建立阿特牢斯第三大ip确实是segay下的死命令了
+不过跨媒体宣传战略也是segay今年自己的方针，说明会上对于暗喻的说法是新ip先打响知名度，再以提高销售为目标
+至于很多人不看好的销量，出分前看白皮方面的评价我的论断是首发不及预期但是能长卖，出分后我就给不及预期打问号了，反正也没两天了
+

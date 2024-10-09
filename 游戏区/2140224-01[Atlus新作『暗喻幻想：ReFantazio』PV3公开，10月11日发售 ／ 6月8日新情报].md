@@ -7310,3 +7310,22 @@ mc评分94确实有点假了
 
 这个ui闪烁正式能不能给个开关，癫痫都要闪出来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  walfeds  
+##### 1414#       发表于 2024-10-9 18:53
+
+那张口就来至少推倒重来一次的时候有想过随意制造负面舆论也不可理喻吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+都消个火回归正常讨论吧
+
+*****
+
+####  guiminan  
+##### 1415#       发表于 2024-10-9 18:55
+
+可atlus做游戏好像成本也不怎么高吧，p5卖2～300w已经大开香槟了，这回制作花的钱可能还没有宣发高
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.1-alpha
+

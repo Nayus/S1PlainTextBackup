@@ -99,3 +99,11 @@ img_7199.jpg
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Ryuuseigun  
+##### 5478#       发表于 2024-10-9 18:48
+
+二代万圣节装备可以在新闻里领了
+

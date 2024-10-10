@@ -5239,3 +5239,24 @@ PS5 - 1
 
 刚看明白大众点评上那张写着SECRET的图片就是庭院的商店界面背景
 
+
+*****
+
+####  卢迪克  
+##### 6421#       发表于 2024-10-10 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66412627&amp;ptid=2160194" target="_blank">Falcomfans 发表于 2024-10-10 01:20</a>
+
+数字版销量不错啊：
+
+2024年9月のPS Storeダウンロードランキング！</blockquote>
+黎2也不差
+
+ps5
+
+5        英雄伝説 黎の軌跡II -CRIMSON SiN-
+
+ps4
+
+4        英雄伝説 黎の軌跡II -CRIMSON SiN- 
+

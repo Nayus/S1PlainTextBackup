@@ -5605,3 +5605,17 @@ ps4
 有没有什么技巧可以插在敌人两个人之间？后面有些boss战刮痧刮板天然后一个1.5倍伤害霸凌接着把我直接全秒 ...</blockquote>
 ss魔法克洛诺斯封技让对面无技可出，后期堆回避率效果也很好，nightmare难度防御指令后期不如加速指令。
 
+
+*****
+
+####  lxshhh  
+##### 6452#       发表于 2024-10-10 21:58
+
+剑女平时就靠老板娘远程查岗是吧..
+
+<img src="https://p.sda1.dev/19/50a4e0f106294617cb0fc4a9ef4d0989/CMP_20241010215742736.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/19/42f68772cea3d8db13f2a05c660846ab/CMP_20241010215520269.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/19/f9aa1ea26b0c8b035944dc52b4afd8e2/CMP_20241010215526495.jpg" referrerpolicy="no-referrer">
+

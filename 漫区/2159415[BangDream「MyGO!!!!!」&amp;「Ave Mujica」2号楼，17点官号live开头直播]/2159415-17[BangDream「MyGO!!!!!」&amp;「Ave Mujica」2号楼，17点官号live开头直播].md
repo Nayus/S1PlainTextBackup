@@ -9976,3 +9976,53 @@ Ave Mujica新迷你专辑《ELEMENTS》发售首周销量7,244枚，排行专辑
 
 [https://x.com/bang_dream_info/status/1844354698817699938](https://x.com/bang_dream_info/status/1844354698817699938)
 
+
+*****
+
+####  yifan8848  
+##### 24511#       发表于 2024-10-10 21:59
+
+ 本帖最后由 yifan8848 于 2024-10-10 22:00 编辑 
+
+下周陣容豪華<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+螢幕擷取畫面 2024-10-10 215929.png
+(1.59 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-10 22:00 上传
+
+<img src="https://img.saraba1st.com/forum/202410/10/220021fad4keh1athhxxcv.png" referrerpolicy="no-referrer">
+
+*****
+
+####  滑稽Captain  
+##### 24512#       发表于 2024-10-10 22:00
+
+河口湖三队人
+
+*****
+
+####  御幸一也  
+##### 24513#       发表于 2024-10-10 22:00
+
+下週 
+
+又有初祥好耶<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202410/10/220040m0wvbu20tuysyz9v.jpg" referrerpolicy="no-referrer">
+
+<strong>バンドリ！TV LIVE 2024 #235 1-7-36 screenshot.jpg</strong> (241.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-10 22:00 上传
+
+*****
+
+####  PDQ4  
+##### 24514#       发表于 2024-10-10 22:02
+
+发表会是不是会有新东东<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

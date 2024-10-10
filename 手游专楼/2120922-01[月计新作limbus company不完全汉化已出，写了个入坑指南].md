@@ -1613,3 +1613,16 @@ Screenshot_20241010_133957.jpg
 
 有买豪华版pass的说下那横幅是动态的吗
 
+
+*****
+
+####  Jamaisvu  
+##### 924#       发表于 2024-10-10 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66419473&amp;ptid=2120922" target="_blank">Yuzutea 发表于 2024-10-10 20:58</a>
+
+有买豪华版pass的说下那横幅是动态的吗</blockquote>
+我没买，但是在B站找了个视频：[https://www.bilibili.com/video/BV1WD23YhEcp](https://www.bilibili.com/video/BV1WD23YhEcp)
+
+1分30秒up换横幅，看着是静态的。
+

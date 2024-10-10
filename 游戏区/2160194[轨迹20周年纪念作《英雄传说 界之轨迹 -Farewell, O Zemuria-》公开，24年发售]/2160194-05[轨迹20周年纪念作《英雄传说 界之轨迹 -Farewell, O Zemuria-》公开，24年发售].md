@@ -5584,3 +5584,14 @@ ps4
 
 喷了，路痴小哥送错地址送对人
 
+
+*****
+
+####  卢迪克  
+##### 6450#       发表于 2024-10-10 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66419442&amp;ptid=2160194" target="_blank">風卷豹 发表于 2024-10-10 20:52</a>
+
+亚伦的待遇的确是令人忍俊不禁，遥记得当时创轨完结后流出的黎轨相关第一张模糊大图就是他，好多人还感慨“ ...</blockquote>
+本子不会让东方人做主角的，这部还给大君补了东西混血的设定呢，特征就是红发
+

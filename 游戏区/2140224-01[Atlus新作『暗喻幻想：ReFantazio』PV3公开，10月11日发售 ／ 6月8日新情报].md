@@ -7857,3 +7857,45 @@ store.steampowered.com/app/1044490/The_Expression_Amrilato/  可以听听极�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  猪突猛进  
+##### 1466#       发表于 2024-10-10 14:37
+
+看了几个评测，感觉这游戏出圈是不可能的，不过靠P系列余威，卖个几百万份应该没问题。
+
+首先卖相太差，本身中世纪背景画面就有点脏，再配上那个UI！那个瞎眼UI！
+
+UI很明显是对P5的拙劣模仿。而P5给人一种很潮的感觉，暗喻留下的只有乱和闪。
+
+系统方面更注重战斗而不是日程安排，与P5正好反过来。
+
+看上去系统更复杂，可玩性似乎更高。
+
+至于剧情是我最不在意的点。
+
+再烂能比破晓烂？破晓都能上百万，暗喻幻想这个A社磨了7年的宝剑，卖几百万份不过分吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+可惜原罪是A社，我等完全版。
+
+不是我小气啊，灵魂骇客2首发豪华版，P5T首发豪华版，连续烂作感觉有点儿伤<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+即使将来暗喻皇家版端上来一个明智那种玩意，也就认了。至少P5R的系统比P5更友好。
+
+*****
+
+####  抽烟的猴  
+##### 1467#       发表于 2024-10-10 14:39
+
+破晓有入队的美少女，暗喻有么
+
+*****
+
+####  罗克萨斯  
+##### 1468#       发表于 2024-10-10 14:43
+
+听讲粉毛兽耳娘和小男娘男主关系暧昧，不是一般的coop，要是结局能开大车就好了<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

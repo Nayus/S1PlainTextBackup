@@ -1761,3 +1761,13 @@ document.getElementById('flv_ALj').innerHTML=("");
 但是老塞尔达迷宫占比大，相似的地图元素给人感觉重复感没那么高，新塞尔达的迷宫部分就只占整个区域探索 ...</blockquote>
 我感觉不一样。全程喜欢走树上等以前俯视塞尔达走不了的边界区域。
 
+
+*****
+
+####  otakun  
+##### 1640#       发表于 2024-10-10 09:08
+
+昨晚全收集加通关了，打最后迷宫看到裂缝里的黑色魔物形态的人马才想起这游戏应该是有人马的而且自己也猜到就是森林那堆马蹄脚印<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+看到道场最后给绿色衣服，是不是代表林克除了满属性外也是个过了道场修炼的人<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+另外我也觉得最后boss 像卡比系列的，到了公主进去横版模式打二阶段时，我还等着公主能从法杖端射星星打boss 呢，还切换召唤蝙蝠出来当僚机……怎么蝙蝠死了啊原来不是在飞行而是在水里啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

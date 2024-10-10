@@ -7686,3 +7686,17 @@ B站有放出了战车BGM，是真好听啊，女声念经和和尚念经一样�
 
 【《暗喻幻想：ReFantazio》铁甲战车BGM完整版】 [https://www.bilibili.com/video/B ... 1d47f35a8654497fea3](https://www.bilibili.com/video/BV1TK2wY6Eim/?share_source=copy_web&amp;vd_source=f62a1f76b7a951d47f35a8654497fea3)
 
+
+*****
+
+####  kuarwbwe  
+##### 1449#       发表于 2024-10-10 08:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66413268&amp;ptid=2140224" target="_blank">conanoysq 发表于 2024-10-10 08:36</a>
+B站有放出了战车BGM，是真好听啊，女声念经和和尚念经一样觉得超燃，感觉好像念的不是日语？
+
+【《暗喻幻想 ...</blockquote>
+之前说主题曲念经念的是国际语。不知道真的假的。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

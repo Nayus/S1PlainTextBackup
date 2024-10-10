@@ -1459,3 +1459,21 @@ PS：除了每日一折付费单抽外，不建议在瓦尔吉普斯之夜外的
 
 2024-10-10 12:50 上传
 
+
+*****
+
+####  Jamaisvu  
+##### 916#       发表于 2024-10-10 13:20
+
+我还以为是图层错乱导致背景里什么东西卡在了剑上<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">结果大哥你真拿着自拍杆出来了啊...
+
+<img src="https://img.saraba1st.com/forum/202410/10/131731ldqj9zdzghab66hb.jpg" referrerpolicy="no-referrer">
+
+<strong>20241010131554_1.jpg</strong> (434.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-10 13:17 上传
+
+（老铁们点个关注666啊，送火箭立刻直播处理都市梦魇！）
+

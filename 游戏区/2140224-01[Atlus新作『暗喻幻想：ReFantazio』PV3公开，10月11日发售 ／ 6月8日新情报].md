@@ -7771,3 +7771,33 @@ key在哪买呀</blockquote>
 
 我买的时候才215 现在都 238了吗
 
+
+*****
+
+####  walfeds  
+##### 1458#       发表于 2024-10-10 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66413356&amp;ptid=2140224" target="_blank">kuarwbwe 发表于 2024-10-10 08:47</a>
+之前说主题曲念经念的是国际语。不知道真的假的。
+
+—— 来自 鹅球 v3.1.91-alpha ...</blockquote>
+这次的念经和游戏内的文字用的都是世界语，甚至看到b站有世界语学习者分享翻译成果的……
+【暗喻幻想中的异世界文字，被我破译出来了-哔哩哔哩】 https://b23.tv/MvxXqC5
+
+*****
+
+####  walfeds  
+##### 1459#       发表于 2024-10-10 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66413243&amp;ptid=2140224" target="_blank">conanoysq 发表于 2024-10-10 08:32</a>
+明天中午12点解锁</blockquote>
+怎么又多半天，这这不能<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Jimlee080  
+##### 1460#       发表于 2024-10-10 10:08
+
+<blockquote>堆料包饱的，小而美的人设刻画包感人的，就是中后期的主线剧情，发售后可能会存在争议</blockquote>
+楼上链接里up在评论区提的，可能没明智那么恶心，但是也不要抱太多希望<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+

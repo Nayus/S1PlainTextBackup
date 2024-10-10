@@ -10147,3 +10147,47 @@ for 2025了，我先盲猜一个力儿八实装团名歌吧<img src="https://sta
 
 有新东西就不错了，鸡腿别挑挑拣拣<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 24529#       发表于 2024-10-10 23:06
+
+高尾好會搭配，這身ob風好看捏<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+連緞帶都特地用紅色<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202410/10/230551wmwqzww535bwmb2a.jpg" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 1923 - (1) Xユーザーの高尾奏音さん_ 「#バンドリTVLIVE ありがと.jpg</strong> (46.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-10 23:05 上传
+
+<img src="https://img.saraba1st.com/forum/202410/10/230435f4jogjz8o77n4cbn.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20241010-145324_1844390783706898776_photo-0.jpg</strong> (364.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-10 23:04 上传
+
+<img src="https://img.saraba1st.com/forum/202410/10/230533wpzkmkmf8uugf4g9.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20241010-145324_1844390783706898776_photo-1.jpg</strong> (749.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-10 23:05 上传
+
+<img src="https://img.saraba1st.com/forum/202410/10/230547cuq8pfbxx7d8m2wb.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20241010-145324_1844390783706898776_photo-2.jpg</strong> (465.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-10 23:05 上传
+
+[https://x.com/Kanon_Takao/status/1844390783706898776](https://x.com/Kanon_Takao/status/1844390783706898776)
+

@@ -5335,3 +5335,22 @@ ps4
 或者说这代成熟女性角色 ...</blockquote>
 算上卡特尔和老师傅也不如女员工那桌啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  windtrack_qh  
+##### 6429#       发表于 2024-10-10 15:47
+
+力卜儿：我是男员工？我是女员工？
+
+
+*****
+
+####  洛克萨斯  
+##### 6430#       发表于 2024-10-10 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66416997&amp;ptid=2160194" target="_blank">windtrack_qh 发表于 2024-10-10 15:47</a>
+
+力卜儿：我是男员工？我是女员工？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我是把他算男员工那桌的
+

@@ -7801,3 +7801,16 @@ key在哪买呀</blockquote>
 <blockquote>堆料包饱的，小而美的人设刻画包感人的，就是中后期的主线剧情，发售后可能会存在争议</blockquote>
 楼上链接里up在评论区提的，可能没明智那么恶心，但是也不要抱太多希望<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  conanoysq  
+##### 1461#       发表于 2024-10-10 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66414097&amp;ptid=2140224" target="_blank">walfeds 发表于 2024-10-10 10:05</a>
+
+这次的念经和游戏内的文字用的都是世界语，甚至看到b站有世界语学习者分享翻译成果的……
+
+【暗喻幻想中的 ...</blockquote>
+第一次知道还存在世界语这种语言，涨知识了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

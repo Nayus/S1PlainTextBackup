@@ -1771,3 +1771,11 @@ document.getElementById('flv_ALj').innerHTML=("");
 看到道场最后给绿色衣服，是不是代表林克除了满属性外也是个过了道场修炼的人<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 另外我也觉得最后boss 像卡比系列的，到了公主进去横版模式打二阶段时，我还等着公主能从法杖端射星星打boss 呢，还切换召唤蝙蝠出来当僚机……怎么蝙蝠死了啊原来不是在飞行而是在水里啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  760194962  
+##### 1641#       发表于 2024-10-10 16:20
+
+借的马能还的吗，还是就这样留个点在地图上了
+

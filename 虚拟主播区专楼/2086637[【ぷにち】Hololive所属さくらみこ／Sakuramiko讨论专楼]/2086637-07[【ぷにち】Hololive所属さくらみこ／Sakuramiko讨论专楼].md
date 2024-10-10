@@ -12279,3 +12279,30 @@ miko sololive前日照常直播
 
 问题来了，手办呢？就干赞助其他什么都没有？
 
+
+*****
+
+####  holoan  
+##### 9885#         楼主| 发表于 2024-10-9 20:04
+
+ 本帖最后由 holoan 于 2024-10-10 19:35 编辑 
+
+火建限定线下live了
+
+突然想起来，那既然星街的live确定了火建做嘉宾那当时那个记事本的标签是怎么回事？筹划明年的火建单独live？
+
+*****
+
+####  holoan  
+##### 9886#         楼主| 发表于 2024-10-10 21:37
+
+<img src="https://img.saraba1st.com/forum/202410/10/213628dvqhku3kt3yucqga.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (20.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-10 21:36 上传
+
+第二次raid到miko的抽卡直播了还是ptr的联动窗
+

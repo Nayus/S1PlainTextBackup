@@ -5649,3 +5649,30 @@ ss魔法克洛诺斯封技让对面无技可出，后期堆回避率效果也很
 
 界把爆裂吸收一刀砍废然后弄出来个自动充能防御这种更变态的技能是什么思路实在没弄明白<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">法师的两个核心技能倒是一刀没砍
 
+
+*****
+
+####  windtrack_qh  
+##### 6456#       发表于 2024-10-11 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66419899&amp;ptid=2160194" target="_blank">lxshhh 发表于 2024-10-10 21:58</a>
+
+剑女平时就靠老板娘远程查岗是吧..</blockquote>
+说起来也没提过剑女在首都住哪
+
+学妹有自家有宿舍、女演员有公寓还在所里蹭一套房，剑女总不能天天睡游击士协会吧，干脆也来开套房得了
+
+
+*****
+
+####  牧月萌  
+##### 6457#       发表于 2024-10-11 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66420651&amp;ptid=2160194" target="_blank">windtrack_qh 发表于 2024-10-11 00:08</a>
+说起来也没提过剑女在首都住哪
+
+学妹有自家有宿舍、女演员有公寓还在所里蹭一套房，剑女总不能天天睡游击 ...</blockquote>
+羁绊里说在泰雷尔租的房<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

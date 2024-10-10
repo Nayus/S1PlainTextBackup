@@ -10233,3 +10233,27 @@ for 2025了，我先盲猜一个力儿八实装团名歌吧<img src="https://sta
 
 河口湖太偏了，又碰上国内调休，很多人没法在一天内去日本——来到河口湖——看完live——回到国内——第二天继续上班上学，太累了（在沪特种兵可能可以）
 
+
+*****
+
+####  NODY  
+##### 24535#       发表于 2024-10-11 00:07
+
+啧啧啧
+
+<img src="https://img.saraba1st.com/forum/202410/11/000707ejji52wzi5d26h1w.png" referrerpolicy="no-referrer">
+
+<strong>83b90b15-20cd-4ac8-a5c3-22787f6225e3.png</strong> (56.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-11 00:07 上传
+
+<img src="https://img.saraba1st.com/forum/202410/11/000707hiwlwwu242rhlrkk.png" referrerpolicy="no-referrer">
+
+<strong>721d71a0-21e3-4d72-b974-cb20f4461a72.png</strong> (58.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-11 00:07 上传
+

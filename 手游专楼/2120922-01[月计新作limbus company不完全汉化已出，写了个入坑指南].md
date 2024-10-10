@@ -1626,3 +1626,12 @@ Screenshot_20241010_133957.jpg
 
 1分30秒up换横幅，看着是静态的。
 
+
+*****
+
+####  法拉  
+##### 925#       发表于 2024-10-11 00:15
+
+打完第四章了
+<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">唉，这么棒的游戏为什么不是买断制，好想一口气接着玩下去，我好恨
+

@@ -138,3 +138,25 @@ vgc上次给智杖打三星我现在还在耿耿于怀。不是很想搭理这�
 
 —— 来自 OnePlus PHK110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  walfeds  
+##### 1496#       发表于 2024-10-10 22:23
+
+官号发了2017年底的第二个概念视频的重制版：[https://www.bilibili.com/video/BV18r2VYLEbW/](https://www.bilibili.com/video/BV18r2VYLEbW/)
+
+旁白从切嗣换成子安了，话说莫尔换成切嗣来配是什么感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+台词基本一致，就删掉了一句没有人期待王和贵族<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有翻到少女沐浴画像和当中的印象角色演示
+
+看起来大方向的主题基本没变，不过相应缺少的部分确实也逆向反映在游戏里了
+
+*****
+
+####  woui003woui  
+##### 1497#       发表于 2024-10-10 22:24
+
+倒是不担心有雷（明智也不是无印的活）
+但很担心玩起来无聊<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+

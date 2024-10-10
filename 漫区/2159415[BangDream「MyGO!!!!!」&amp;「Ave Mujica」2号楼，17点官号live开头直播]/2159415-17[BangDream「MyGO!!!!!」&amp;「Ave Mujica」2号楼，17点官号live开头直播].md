@@ -10050,3 +10050,61 @@ for 2025了，我先盲猜一个力儿八实装团名歌吧<img src="https://sta
 下周四有动画新情报
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">坏消息是3rd可能啥都没有
 
+
+*****
+
+####  ytttsuuuba  
+##### 24518#       发表于 2024-10-10 22:14
+
+放个pv看看实力
+
+*****
+
+####  星天观测  
+##### 24519#       发表于 2024-10-10 22:15
+
+感觉现在内心很平静，该来的都会来的
+
+这就是熬久了的鸡腿的明镜止水之心啊<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 24520#       发表于 2024-10-10 22:18
+
+<img src="https://img.saraba1st.com/forum/202410/10/221729n7114ezepsiez4ti.png" referrerpolicy="no-referrer">
+
+<strong>cbb2b459-9b22-45d8-b738-c79d8a4f0d6a.png</strong> (18.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-10 22:17 上传
+
+动画情报可能是pv2吧，我本来也不觉得3rd会有pv2，既然是live那宣二单和5th可能性更大点
+
+
+*****
+
+####  前方暴雨预警  
+##### 24521#       发表于 2024-10-10 22:19
+
+3rd只有以太MV是吧
+
+反正不是3rd就是发表会，鸡总该有个新PV了吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png">
+
+
+*****
+
+####  桜庭千景  
+##### 24522#       发表于 2024-10-10 22:21
+
+估计3rd上就能看到，然后发表会再放一遍
+
+*****
+
+####  skives10  
+##### 24523#       发表于 2024-10-10 22:23
+
+应该是正式pv1
+可以反复品鉴了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+

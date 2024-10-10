@@ -5715,3 +5715,11 @@ ss魔法克洛诺斯封技让对面无技可出，后期堆回避率效果也很
 剑女也可以租过来嘛<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Kusabi  
+##### 6460#       发表于 2024-10-11 01:32
+
+女演员的家比较有生活气息，貌似格外用力做了
+

@@ -7952,3 +7952,13 @@ UI很明显是对P5的拙劣模仿。而P5给人一种很潮的感觉，暗喻�
 
 排队试玩的除了独行宅男也有不少情侣档，围观霜精的倒是以女生为主。买周边的时候前面一姑娘撸了一排徽章倒是让我有点震惊了。大概p5之后你A确实是年轻人乃至集美的时尚潮品了。。。
 
+
+*****
+
+####  yyf1940  
+##### 1475#       发表于 2024-10-10 18:43
+
+等完全版再割一遍，勾RPG的钱就是好赚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

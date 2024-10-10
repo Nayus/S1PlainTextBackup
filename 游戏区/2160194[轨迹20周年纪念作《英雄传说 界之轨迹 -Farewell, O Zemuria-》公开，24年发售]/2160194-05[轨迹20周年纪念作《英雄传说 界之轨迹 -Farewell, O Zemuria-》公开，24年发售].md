@@ -5354,3 +5354,25 @@ ps4
 力卜儿：我是男员工？我是女员工？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我是把他算男员工那桌的
 
+
+*****
+
+####  kangkangsama  
+##### 6431#       发表于 2024-10-10 15:58
+
+<blockquote>洛克萨斯 发表于 2024-10-10 15:41
+算上卡特尔和老师傅也不如女员工那桌啊</blockquote>
+老师傅不算员工（van说了：我哪敢啊）
+
+卡特尔单独坐一桌
+
+*****
+
+####  hourousha  
+##### 6432#       发表于 2024-10-10 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66416997&amp;ptid=2160194" target="_blank">windtrack_qh 发表于 2024-10-10 15:47</a>
+
+力卜儿：我是男员工？我是女员工？</blockquote>
+洗澡都时单独一人。不过羁绊剧情里van说以后如果再出现女性征特化现象时可以找学妹她们帮忙。
+

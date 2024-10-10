@@ -5435,3 +5435,16 @@ ps4
 
 比如力卜儿是其他人仿造学妹一家的人造人
 
+
+*****
+
+####  hourousha  
+##### 6439#       发表于 2024-10-10 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66417330&amp;ptid=2160194" target="_blank">windtrack_qh 发表于 2024-10-10 16:24</a>
+
+剧透反白
+
+这作和阿尼爱思约会那章有个伏笔说是首都的天使像和阿尼爱思奶奶很像</blockquote>
+学妹一家都长一个样子，所以这个天使像用以影射结尾时的羽化形态，我觉得已经很足够了。不一定需要再和卡特尔这个体质来强行关联（主要是关联了也想不出什么有趣的发展）。
+

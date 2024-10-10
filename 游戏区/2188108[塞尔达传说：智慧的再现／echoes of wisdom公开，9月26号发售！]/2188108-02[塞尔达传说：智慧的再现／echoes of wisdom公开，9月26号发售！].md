@@ -1779,3 +1779,13 @@ document.getElementById('flv_ALj').innerHTML=("");
 
 借的马能还的吗，还是就这样留个点在地图上了
 
+
+*****
+
+####  otakun  
+##### 1642#       发表于 2024-10-10 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66417299&amp;ptid=2188108" target="_blank">760194962 发表于 2024-10-10 16:20</a>
+借的马能还的吗，还是就这样留个点在地图上了</blockquote>
+扔水里试试
+

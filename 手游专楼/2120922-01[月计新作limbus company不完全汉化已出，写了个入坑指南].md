@@ -1536,3 +1536,34 @@ Screenshot_20241010_133957.jpg
 
 <img src="https://img.saraba1st.com/forum/202410/10/134201ksbrn0qr0jb2uzz0.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 919#       发表于 2024-10-10 13:58
+
+<img src="https://img.saraba1st.com/forum/202410/10/135654ya0isfy8gy3yi7g0.jpg" referrerpolicy="no-referrer">
+
+<strong>20241010135643_1.jpg</strong> (435.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-10 13:56 上传
+
+你我缘尽于此，唐吉坷德。
+
+*****
+
+####  Jamaisvu  
+##### 920#       发表于 2024-10-10 14:02
+
+<img src="https://img.saraba1st.com/forum/202410/10/140135exgptnnx8qi4j8tb.jpg" referrerpolicy="no-referrer">
+
+<strong>20241010140118_1.jpg</strong> (348.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-10 14:01 上传
+
+我们的老朋友扭曲侦探摩西正式登场了，上次出场她在处理血魔，这次出场她还在处理血魔，工期真长啊（雾）
+

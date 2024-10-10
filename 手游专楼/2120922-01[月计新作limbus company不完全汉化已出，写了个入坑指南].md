@@ -1587,3 +1587,21 @@ Screenshot_20241010_133957.jpg
 
 （这章演出是真的棒，连舞台剧小怪都用上纸板人了）
 
+
+*****
+
+####  Jamaisvu  
+##### 922#       发表于 2024-10-10 15:34
+
+<img src="https://img.saraba1st.com/forum/202410/10/153046enz9ecueo9a65nzc.jpg" referrerpolicy="no-referrer">
+
+<strong>20241010153038_1.jpg</strong> (425.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-10 15:30 上传
+
+继狐夫、狼夫后，希斯的新形态——熊夫！
+
+（下次瓦夜就赏给希斯快乐泰迪ego人格吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">）
+

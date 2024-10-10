@@ -5320,3 +5320,18 @@ ps4
 放心，笑得不止你一个</blockquote>
 放这个的时候我违和感直接拉满，恕我无法带入<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 6428#       发表于 2024-10-10 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66416858&amp;ptid=2160194" target="_blank">kangkangsama 发表于 2024-10-10 15:30</a>
+
+如果师父不算员工的话那男员工只有一个阿龙吧
+
+当然事务所女员工的确性能各顶各的强
+
+或者说这代成熟女性角色 ...</blockquote>
+算上卡特尔和老师傅也不如女员工那桌啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

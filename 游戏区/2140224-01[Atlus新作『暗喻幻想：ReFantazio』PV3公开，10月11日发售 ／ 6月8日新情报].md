@@ -7915,3 +7915,11 @@ UI很明显是对P5的拙劣模仿。而P5给人一种很潮的感觉，暗喻�
 
 记忆偏差了，我一直以为是今天发售，原来是明天，我说怎么没人讨论<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  石中剑二  
+##### 1471#       发表于 2024-10-10 15:39
+
+今天零点可以玩了？
+

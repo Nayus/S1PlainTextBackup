@@ -847,3 +847,14 @@ c呆什么技能组，第二部的女同事就来碰瓷，还天天锁前排折�
 
 白野的UP没说时间？还要等啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DARKGRAY  
+##### 14922#       发表于 2024-10-10 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66419844&amp;ptid=2084912" target="_blank">blue321 发表于 2024-10-10 21:49</a>
+
+白野的UP没说时间？还要等啊</blockquote>
+活动的时候啊，16号再说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

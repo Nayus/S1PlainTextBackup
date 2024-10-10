@@ -220,3 +220,12 @@ r按头写周可希望明智活着，这就远超可以接受的限度了<img sr
 
 主机是几点？
 
+
+*****
+
+####  Edvinno  
+##### 1504#       发表于 2024-10-10 23:45
+
+感觉还可以，挺喜欢这个ui的，虽然是不如当年p5那种一眼望之的潮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+定价开窍了，key折扣好评，大概能抵个2成的免喷权
+

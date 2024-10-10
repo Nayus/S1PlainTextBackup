@@ -1800,3 +1800,27 @@ document.getElementById('flv_ALj').innerHTML=("");
 扔水里试试</blockquote>
 不行，刷新回牧场了
 
+
+*****
+
+####  佛罗伦萨  
+##### 1644#       发表于 2024-10-10 23:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今晚终于全收集通关咯，大约33小时，最后躺在城堡公主的床上封印存档。
+
+本作的节奏很像王国之泪，我还挺喜欢这种用超模能力快速舔图，破坏性解谜，不断速通马桶支线所带来的正反馈。
+
+缺点就是大家集中说的UI菜单，我觉得如果能把机关合并了，左键放工具，右键放生物会好很多。还有就是平原草多的地方虚化掉帧感知明显，其他地方还行。
+
+
+*****
+
+####  heseran  
+##### 1645#       发表于 2024-10-10 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66420532&amp;ptid=2188108" target="_blank">佛罗伦萨 发表于 2024-10-10 23:48</a>
+今晚终于全收集通关咯，大约33小时，最后躺在城堡公主的床上封印存档。
+
+本作的节奏很像王国之泪，我还挺喜 ...</blockquote>
+躺床上存档<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一模一样
+

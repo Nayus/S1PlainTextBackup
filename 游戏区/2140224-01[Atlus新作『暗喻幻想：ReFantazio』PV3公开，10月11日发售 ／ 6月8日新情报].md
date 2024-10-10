@@ -7814,3 +7814,21 @@ key在哪买呀</blockquote>
 【暗喻幻想中的 ...</blockquote>
 第一次知道还存在世界语这种语言，涨知识了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kangkangsama  
+##### 1462#       发表于 2024-10-10 13:41
+
+有人试过不同阿基态会不会导致角色成长数值不同啊
+
+
+*****
+
+####  Islingr  
+##### 1463#       发表于 2024-10-10 13:46
+
+文艺作品政治戏和商战是一样的处境<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+写的弱智吗？真tm弱智
+有现实弱智吗？我看不见得
+

@@ -1495,3 +1495,44 @@ PS：除了每日一折付费单抽外，不建议在瓦尔吉普斯之夜外的
 
 贾惜春好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 918#       发表于 2024-10-10 13:39
+
+ 本帖最后由 Jamaisvu 于 2024-10-10 13:43 编辑 
+
+hana协会的人出场了，难道要发展成都市之星级别的事件吗？
+
+<img src="https://img.saraba1st.com/forum/202410/10/133903lcyaceau8kpad3dc.jpg" referrerpolicy="no-referrer">
+
+<strong>1973530_490.jpg</strong> (413.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-10 13:39 上传
+
+话说这姐们的发型有点眼熟啊...白色挑染...
+
+<img src="https://img.saraba1st.com/forum/202410/10/134250qu858zu86mf10l58.jpg" referrerpolicy="no-referrer">
+
+<strong>1973530_490.jpg</strong> (34.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-10 13:42 上传
+
+是你吗金总监<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+Screenshot_20241010_133957.jpg
+(3.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-10 13:42 上传
+
+由手机上传
+
+<img src="https://img.saraba1st.com/forum/202410/10/134201ksbrn0qr0jb2uzz0.jpg" referrerpolicy="no-referrer">
+

@@ -7938,3 +7938,17 @@ UI很明显是对P5的拙劣模仿。而P5给人一种很潮的感觉，暗喻�
 
 作为rpg人设丑得不想玩
 
+
+*****
+
+####  walfeds  
+##### 1474#       发表于 2024-10-10 18:18
+
+ 本帖最后由 walfeds 于 2024-10-10 18:21 编辑 
+
+<img src="https://p.sda1.dev/19/74491405ac142b45581632be5e876e27/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/38ebcbd416a1a669159e0cc07c09f087/image.jpg" referrerpolicy="no-referrer">
+去百联zx逛了一圈，人确实不多（不过也不是周末），排队试玩有奖品但懒得排了，看了一会就去买了点丢人周边。感觉自己确实算合格的阿特牢斯凯子了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+排队试玩的除了独行宅男也有不少情侣档，围观霜精的倒是以女生为主。买周边的时候前面一姑娘撸了一排徽章倒是让我有点震惊了。大概p5之后你A确实是年轻人乃至集美的时尚潮品了。。。
+

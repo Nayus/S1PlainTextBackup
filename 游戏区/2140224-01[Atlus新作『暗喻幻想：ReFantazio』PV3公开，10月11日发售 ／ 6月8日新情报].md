@@ -7743,3 +7743,23 @@ B站的小UP都打完出评测了，这次对国内市场这么重视？
 你别说，价格和宣发策略大成功，key都涨到238了</blockquote>
 key在哪买呀
 
+
+*****
+
+####  pandaman7777  
+##### 1455#       发表于 2024-10-10 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66413643&amp;ptid=2140224" target="_blank">yangkaim4 发表于 2024-10-10 09:24</a>
+
+key在哪买呀</blockquote>
+淘宝直接搜索暗喻幻想steam cdk啥的吧， 已经从219涨到238了
+
+*****
+
+####  罗克萨斯  
+##### 1456#       发表于 2024-10-10 09:36
+
+听讲这cdkey没有30%抽成的，不敢想象给JS的拿货价有多低
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

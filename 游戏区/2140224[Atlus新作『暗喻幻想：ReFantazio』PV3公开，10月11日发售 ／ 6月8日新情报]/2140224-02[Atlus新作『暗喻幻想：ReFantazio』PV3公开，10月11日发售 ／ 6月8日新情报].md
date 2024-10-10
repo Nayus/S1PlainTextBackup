@@ -83,3 +83,22 @@ vgc上次给智杖打三星我现在还在耿耿于怀。不是很想搭理这�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  杵瀨命  
+##### 1490#       发表于 2024-10-10 20:45
+
+ 本帖最后由 杵瀨命 于 2024-10-10 20:46 编辑 
+
+比起有爆雷的角色，我更倾向于有可能后期剧情过于亚撒西只会空喊无聊口号，主角团队显得不如反派有魅力<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  rainsheep  
+##### 1491#       发表于 2024-10-10 20:49
+
+创造一个人人都有尊严的世界<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -173,3 +173,13 @@ vgc上次给智杖打三星我现在还在耿耿于怀。不是很想搭理这�
 但很担心玩起来无聊</blockquote>
 游轮全员那个屎一样的原谅明智怎么就成不是无印的活了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  塔尔洛斯  
+##### 1499#       发表于 2024-10-10 22:50
+
+无印明智，恶有恶报，问题再多也有个好结尾。
+
+这作问题我觉得先担心atlus传统几件套吧，atlus每次都是半瓶旧酒，小心一半又腻了。
+

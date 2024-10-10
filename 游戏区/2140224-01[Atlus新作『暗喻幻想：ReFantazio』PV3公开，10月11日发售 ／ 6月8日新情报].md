@@ -7985,3 +7985,15 @@ UI很明显是对P5的拙劣模仿。而P5给人一种很潮的感觉，暗喻�
 
 据说Xbox新西兰区六点就解锁了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">这合理吗
 
+
+*****
+
+####  kuarwbwe  
+##### 1479#       发表于 2024-10-10 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66418608&amp;ptid=2140224" target="_blank">walfeds 发表于 2024-10-10 18:56</a>
+据说Xbox新西兰区六点就解锁了这合理吗</blockquote>
+合理啊。国内玩xbox的新西兰人能提前玩不是众所周知的。<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

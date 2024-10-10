@@ -160,3 +160,16 @@ vgc上次给智杖打三星我现在还在耿耿于怀。不是很想搭理这�
 倒是不担心有雷（明智也不是无印的活）
 但很担心玩起来无聊<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  抽烟的猴  
+##### 1498#       发表于 2024-10-10 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66420046&amp;ptid=2140224" target="_blank">woui003woui 发表于 2024-10-10 22:24</a>
+
+倒是不担心有雷（明智也不是无印的活）
+
+但很担心玩起来无聊</blockquote>
+游轮全员那个屎一样的原谅明智怎么就成不是无印的活了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

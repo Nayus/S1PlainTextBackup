@@ -1605,3 +1605,11 @@ Screenshot_20241010_133957.jpg
 
 （下次瓦夜就赏给希斯快乐泰迪ego人格吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">）
 
+
+*****
+
+####  Yuzutea  
+##### 923#       发表于 2024-10-10 20:58
+
+有买豪华版pass的说下那横幅是动态的吗
+

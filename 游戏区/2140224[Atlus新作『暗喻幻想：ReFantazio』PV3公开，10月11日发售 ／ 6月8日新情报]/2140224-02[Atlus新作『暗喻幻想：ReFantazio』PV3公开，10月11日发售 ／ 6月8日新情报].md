@@ -126,3 +126,15 @@ vgc上次给智杖打三星我现在还在耿耿于怀。不是很想搭理这�
 
 二柄都发实况了，你们谁关注剧情看看去回来说一下有没有雷
 
+
+*****
+
+####  Linsdy  
+##### 1495#       发表于 2024-10-10 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66419886&amp;ptid=2140224" target="_blank">wanghuanqishi 发表于 2024-10-10 21:56</a>
+二柄都发实况了，你们谁关注剧情看看去回来说一下有没有雷</blockquote>
+早就解包了，无雷
+
+—— 来自 OnePlus PHK110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

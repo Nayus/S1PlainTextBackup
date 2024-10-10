@@ -10026,3 +10026,27 @@ Ave Mujica新迷你专辑《ELEMENTS》发售首周销量7,244枚，排行专辑
 
 发表会是不是会有新东东<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 24515#       发表于 2024-10-10 22:05
+
+for 2025了，我先盲猜一个力儿八实装团名歌吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 24516#       发表于 2024-10-10 22:06
+
+发表会不就是和七月那个一样？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+会有新东西吧
+
+*****
+
+####  akiomn  
+##### 24517#       发表于 2024-10-10 22:10
+
+下周四有动画新情报
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">坏消息是3rd可能啥都没有
+

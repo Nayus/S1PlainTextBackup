@@ -330,3 +330,15 @@ PS5日服11点玩到刚刚1点
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  superlink  
+##### 1515#       发表于 2024-10-11 07:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66420932&amp;ptid=2140224" target="_blank">monikaca 发表于 2024-10-11 01:16</a>
+不懂他们内部啥情况，不过真的怕了这些二次元编剧了，明智这种角色竟然会常年人气高居不下只能说日本人没 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">哪里光是日本人，明智人气全世界集美那里都很高
+
+—— 来自 vivo V2304A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

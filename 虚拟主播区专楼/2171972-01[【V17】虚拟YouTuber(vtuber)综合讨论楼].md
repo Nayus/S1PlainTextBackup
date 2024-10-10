@@ -311,3 +311,23 @@ idios3D全播完了，后续倒是没啥了，等两周年看看会不会3D全�
 
 最强
 
+
+*****
+
+####  Porsche  
+##### 806#       发表于 2024-10-11 07:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66367219&amp;ptid=2171972" target="_blank">sgssk 发表于 2024-10-3 14:36</a>
+中坚V，忽然想起三四年前的老东西</blockquote>
+你一定不知道这封面是在neta一个中场开香槟的棒球队吧<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sgssk  
+##### 807#       发表于 2024-10-11 07:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66421372&amp;ptid=2171972" target="_blank">Porsche 发表于 2024-10-11 07:37</a>
+你一定不知道这封面是在neta一个中场开香槟的棒球队吧</blockquote>
+还真不，对棒球梗综艺梗至今没找到兴趣切入点<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

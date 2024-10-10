@@ -7763,3 +7763,11 @@ key在哪买呀</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  RookieTnT  
+##### 1457#       发表于 2024-10-10 09:39
+
+我买的时候才215 现在都 238了吗
+

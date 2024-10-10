@@ -1130,7 +1130,7 @@
     "newtitle": "[专楼 LOVELIVE! 虹咲学园学园偶像同好会 ｜ 9月6日完结篇第1章・10月19日7th Live!]",
     "lastedit": 1728265574,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2040571": {
@@ -5814,10 +5814,10 @@
     "update": false
   },
   "1989188": {
-    "totalreply": 11906,
+    "totalreply": 11910,
     "title": "[新机病栋，谁是大的？]",
     "newtitle": "[新机病栋，谁是大的？]",
-    "lastedit": 1728524065,
+    "lastedit": 1728524903,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -6327,10 +6327,10 @@
     "update": false
   },
   "2071168": {
-    "totalreply": 837,
+    "totalreply": 838,
     "title": "[逸剑风云决，类hd-2d风格武侠rpg／9.15发售]",
     "newtitle": "[逸剑风云决，类hd-2d风格武侠rpg／9.15发售]",
-    "lastedit": 1728523104,
+    "lastedit": 1728524903,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -7407,10 +7407,10 @@
     "update": false
   },
   "2170764": {
-    "totalreply": 17335,
+    "totalreply": 17337,
     "title": "[社交卡游 米家游戏幽夜讨论集MK-2，不喜剧透勿进]",
     "newtitle": "[社交卡游 米家游戏幽夜讨论集MK-2，不喜剧透勿进]",
-    "lastedit": 1728523582,
+    "lastedit": 1728524771,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -8622,19 +8622,19 @@
     "update": false
   },
   "2140224": {
-    "totalreply": 1456,
+    "totalreply": 1457,
     "title": "[Atlus新作『暗喻幻想：ReFantazio』PV3公开，10月11日发售 ／ 6月8日新情报]",
     "newtitle": "[Atlus新作『暗喻幻想：ReFantazio』PV3公开，10月11日发售]",
-    "lastedit": 1728524304,
+    "lastedit": 1728524662,
     "category": "游戏区",
     "active": true,
     "update": false
   },
   "2184782": {
-    "totalreply": 86203,
+    "totalreply": 86206,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1728523467,
+    "lastedit": 1728524660,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -8892,10 +8892,10 @@
     "update": false
   },
   "2160194": {
-    "totalreply": 6417,
+    "totalreply": 6420,
     "title": "[轨迹20周年纪念作《英雄传说 界之轨迹 -Farewell, O Zemuria-》公开，24年发售]",
     "newtitle": "[《英雄传说 界之轨迹》公开，ps版9月26日，中文同步发售]",
-    "lastedit": 1728523703,
+    "lastedit": 1728524672,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -9585,10 +9585,10 @@
     "update": false
   },
   "2194776": {
-    "totalreply": 9450,
+    "totalreply": 9451,
     "title": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
-    "lastedit": 1728523935,
+    "lastedit": 1728524902,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -10170,10 +10170,10 @@
     "update": false
   },
   "2175349": {
-    "totalreply": 196,
+    "totalreply": 197,
     "title": "[【歧路旅人 大陆的霸者】国服讨论楼 5.16公测]",
     "newtitle": "[【歧路旅人 大陆的霸者】国服讨论楼 5.16公测]",
-    "lastedit": 1728453737,
+    "lastedit": 1728524902,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -10251,10 +10251,10 @@
     "update": false
   },
   "2198973": {
-    "totalreply": 3218,
+    "totalreply": 3219,
     "title": "[界之轨迹剧透讨论楼，奖杯已出]",
     "newtitle": "[界之轨迹剧透讨论楼，奖杯已出]",
-    "lastedit": 1728524304,
+    "lastedit": 1728524662,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -10782,10 +10782,10 @@
     "update": false
   },
   "2200312": {
-    "totalreply": 2201,
+    "totalreply": 2202,
     "title": "[【集中讨论】【黑泥2】二游圈吃瓜／搬运／黑泥讨论楼，欢迎来综合讨论]",
     "newtitle": "[【集中讨论】【黑泥2】二游圈吃瓜／搬运／黑泥讨论楼，欢迎来综合讨论]",
-    "lastedit": 1728523215,
+    "lastedit": 1728524771,
     "category": "手游战斗",
     "active": true,
     "update": false
@@ -10931,15 +10931,6 @@
     "newtitle": "[TGA究竟是不是野鸡奖]",
     "lastedit": 1727572227,
     "category": "游戏区",
-    "active": false,
-    "update": false
-  },
-  "2187284": {
-    "totalreply": 85,
-    "title": "[【年经】最近两个月被耳鸣困扰，有无病友交流交流]",
-    "newtitle": "[【年经】最近两个月被耳鸣困扰，有无病友交流交流]",
-    "lastedit": 1727314826,
-    "category": "外野",
     "active": false,
     "update": false
   },
@@ -14751,10 +14742,10 @@
     "update": false
   },
   "2201926": {
-    "totalreply": 3921,
+    "totalreply": 3928,
     "title": "[【集中楼】百合&amp;泛百合讨论楼9.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼9.0]",
-    "lastedit": 1728524304,
+    "lastedit": 1728524662,
     "category": "漫区",
     "active": true,
     "update": false
@@ -15912,10 +15903,10 @@
     "update": false
   },
   "2202258": {
-    "totalreply": 261,
+    "totalreply": 262,
     "title": "[中国被万代制裁了？]",
     "newtitle": "[中国被万代制裁了？]",
-    "lastedit": 1728519495,
+    "lastedit": 1728524681,
     "category": "外野",
     "active": true,
     "update": false
@@ -15948,10 +15939,10 @@
     "update": false
   },
   "2202264": {
-    "totalreply": 320,
+    "totalreply": 321,
     "title": "[万代南梦宫：中国是一个被制裁的国家（所以我也跟进对中国选手实施制裁）]",
     "newtitle": "[万代南梦宫：中国是一个被制裁的国家（所以我也跟进对中国选手实施制裁）]",
-    "lastedit": 1728524065,
+    "lastedit": 1728524902,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -15975,10 +15966,10 @@
     "update": false
   },
   "2202279": {
-    "totalreply": 174,
+    "totalreply": 175,
     "title": "[曝大批中国网友给伊朗大使馆发红包]",
     "newtitle": "[曝大批中国网友给伊朗大使馆发红包]",
-    "lastedit": 1728522515,
+    "lastedit": 1728524681,
     "category": "外野",
     "active": true,
     "update": false
@@ -16155,10 +16146,10 @@
     "update": false
   },
   "2202328": {
-    "totalreply": 93,
+    "totalreply": 94,
     "title": "[泥潭有真的认认真真在读书的读书群吗]",
     "newtitle": "[泥潭有认真在读书的读书群吗【更新：已加到】]",
-    "lastedit": 1728520461,
+    "lastedit": 1728524771,
     "category": "外野",
     "active": true,
     "update": false
@@ -16173,10 +16164,10 @@
     "update": false
   },
   "2202322": {
-    "totalreply": 102,
+    "totalreply": 103,
     "title": "[游戏AI的发展是不是停滞很久了]",
     "newtitle": "[游戏AI的发展是不是停滞很久了]",
-    "lastedit": 1728524065,
+    "lastedit": 1728524903,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16335,10 +16326,10 @@
     "update": false
   },
   "2202378": {
-    "totalreply": 206,
+    "totalreply": 209,
     "title": "[黑神话悟空的开发成本3亿人民币]",
     "newtitle": "[黑神话悟空的开发成本3亿人民币]",
-    "lastedit": 1728524304,
+    "lastedit": 1728524902,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16443,10 +16434,10 @@
     "update": false
   },
   "2202398": {
-    "totalreply": 165,
+    "totalreply": 166,
     "title": "[做个投票贴看看大家觉得这轮牛市啥时候结束吧。]",
     "newtitle": "[做个投票贴看看大家觉得这轮牛市啥时候结束吧。]",
-    "lastedit": 1728524304,
+    "lastedit": 1728524681,
     "category": "外野",
     "active": true,
     "update": false
@@ -16497,10 +16488,10 @@
     "update": false
   },
   "2202430": {
-    "totalreply": 156,
+    "totalreply": 158,
     "title": "[理记这搅屎棍又去掺合江歌妈的骗捐，这水有点深]",
     "newtitle": "[理记这搅屎棍又去掺合江歌妈捐款问题，这水有点深]",
-    "lastedit": 1728524315,
+    "lastedit": 1728524681,
     "category": "外野",
     "active": true,
     "update": false
@@ -16623,10 +16614,10 @@
     "update": false
   },
   "2202446": {
-    "totalreply": 79,
+    "totalreply": 80,
     "title": "[你认为自己兑现了多少%的天赋？]",
     "newtitle": "[你认为自己兑现了多少%的天赋？]",
-    "lastedit": 1728519262,
+    "lastedit": 1728524681,
     "category": "外野",
     "active": true,
     "update": false
@@ -16650,10 +16641,10 @@
     "update": false
   },
   "2202462": {
-    "totalreply": 109,
+    "totalreply": 110,
     "title": "[我们不讨论对错，只展示立场]",
     "newtitle": "[我们不讨论对错，只展示立场]",
-    "lastedit": 1728523812,
+    "lastedit": 1728524681,
     "category": "外野",
     "active": true,
     "update": false
@@ -16677,10 +16668,10 @@
     "update": false
   },
   "2202459": {
-    "totalreply": 72,
+    "totalreply": 73,
     "title": "[说俄语的作者是否是轻小说界最走狗屎运的人]",
     "newtitle": "[说俄语的作者是否是轻小说界最走狗屎运的人]",
-    "lastedit": 1728523468,
+    "lastedit": 1728524681,
     "category": "漫区",
     "active": true,
     "update": false
@@ -16713,10 +16704,10 @@
     "update": false
   },
   "2202488": {
-    "totalreply": 82,
+    "totalreply": 87,
     "title": "[小学四年级数学题]",
     "newtitle": "[小学四年级数学题]",
-    "lastedit": 1728524315,
+    "lastedit": 1728524683,
     "category": "外野",
     "active": true,
     "update": false
@@ -16785,10 +16776,10 @@
     "update": false
   },
   "2202496": {
-    "totalreply": 65,
+    "totalreply": 67,
     "title": "[原来乳晕也能过steam审核的？]",
     "newtitle": "[原来乳晕也能过steam审核的？]",
-    "lastedit": 1728482655,
+    "lastedit": 1728524903,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16902,10 +16893,10 @@
     "update": false
   },
   "2202526": {
-    "totalreply": 61,
+    "totalreply": 63,
     "title": "[万代滑跪]",
     "newtitle": "[万代滑跪]",
-    "lastedit": 1728523812,
+    "lastedit": 1728524683,
     "category": "外野",
     "active": true,
     "update": false
@@ -16929,19 +16920,19 @@
     "update": false
   },
   "2202553": {
-    "totalreply": 49,
+    "totalreply": 53,
     "title": "[【脑洞】郭靖用弓箭每分钟社死一个蒙古兵，能否守住襄阳？]",
     "newtitle": "[【脑洞】郭靖用弓箭每分钟社死一个蒙古兵，能否守住襄阳？]",
-    "lastedit": 1728524309,
+    "lastedit": 1728524681,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2202461": {
-    "totalreply": 42,
+    "totalreply": 43,
     "title": "[Fate系列动画哪几作比较推荐？]",
     "newtitle": "[Fate系列动画哪几作比较推荐？]",
-    "lastedit": 1728523469,
+    "lastedit": 1728524681,
     "category": "漫区",
     "active": true,
     "update": false
@@ -16951,6 +16942,24 @@
     "title": "[救灾是不会的，雁过拔毛倒是无师自通]",
     "newtitle": "[救灾是不会的，雁过拔毛倒是无师自通]",
     "lastedit": 1728524315,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2202520": {
+    "totalreply": 43,
+    "title": "[哎我听说你坛反买别野靠海嘿2]",
+    "newtitle": "[哎我听说你坛反买别野靠海嘿2]",
+    "lastedit": 1728524682,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2202542": {
+    "totalreply": 42,
+    "title": "[电影将来有没有可能通过dlss的帧生成来补帧？]",
+    "newtitle": "[电影将来有没有可能通过dlss的帧生成来补帧？]",
+    "lastedit": 1728524682,
     "category": "外野",
     "active": true,
     "update": false

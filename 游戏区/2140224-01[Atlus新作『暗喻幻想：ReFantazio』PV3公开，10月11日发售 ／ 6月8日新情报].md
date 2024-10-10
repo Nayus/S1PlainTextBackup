@@ -7962,3 +7962,26 @@ UI很明显是对P5的拙劣模仿。而P5给人一种很潮的感觉，暗喻�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  枪聆弹语  
+##### 1476#       发表于 2024-10-10 18:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">蹲一个小精灵全果MOD
+
+
+*****
+
+####  yangkaim4  
+##### 1477#       发表于 2024-10-10 18:53
+
+总监怎么都开播了？偷跑？
+
+*****
+
+####  walfeds  
+##### 1478#       发表于 2024-10-10 18:56
+
+据说Xbox新西兰区六点就解锁了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">这合理吗
+

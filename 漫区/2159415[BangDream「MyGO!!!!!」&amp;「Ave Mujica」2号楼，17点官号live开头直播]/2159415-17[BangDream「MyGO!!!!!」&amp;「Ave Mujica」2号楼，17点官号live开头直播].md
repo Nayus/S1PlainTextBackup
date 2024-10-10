@@ -9958,3 +9958,21 @@ Ave Mujica新迷你专辑《ELEMENTS》发售首周销量7,244枚，排行专辑
 
 2024-10-10 11:39 上传
 
+
+*****
+
+####  御幸一也  
+##### 24510#       发表于 2024-10-10 20:38
+
+高尾的衣服又是ob搭配！
+
+<img src="https://img.saraba1st.com/forum/202410/10/203822sijdzlrzjhzjjdnh.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_バンドリ！ BanG Dream! 公式(@bang_dream_info)_20241010-123001_1844354698.jpg</strong> (97.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-10 20:38 上传
+
+[https://x.com/bang_dream_info/status/1844354698817699938](https://x.com/bang_dream_info/status/1844354698817699938)
+

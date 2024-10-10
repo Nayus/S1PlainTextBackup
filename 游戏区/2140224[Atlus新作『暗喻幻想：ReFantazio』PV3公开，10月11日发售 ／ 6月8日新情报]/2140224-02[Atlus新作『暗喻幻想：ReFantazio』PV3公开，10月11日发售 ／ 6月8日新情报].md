@@ -66,3 +66,20 @@ vgc上次给智杖打三星我现在还在耿耿于怀。不是很想搭理这�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  猪突猛进  
+##### 1488#       发表于 2024-10-10 20:37
+
+要对A社有信心，再烂还能比明智烂？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kuarwbwe  
+##### 1489#       发表于 2024-10-10 20:41
+
+要真有那种爆雷角色，那能和年初gbfr的伊德一样我就没啥可骂的。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

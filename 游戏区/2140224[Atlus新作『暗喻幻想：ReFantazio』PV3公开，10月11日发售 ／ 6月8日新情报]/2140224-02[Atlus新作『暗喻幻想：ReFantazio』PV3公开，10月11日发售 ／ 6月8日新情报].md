@@ -259,3 +259,13 @@ r按头写周可希望明智活着，这就远超可 ...</blockquote>
 
 等你们先行看效果决定买不买<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 1508#       发表于 2024-10-11 01:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66420807&amp;ptid=2140224" target="_blank">monikaca 发表于 2024-10-11 00:44</a>
+5r这种人气决定生死的写作方式之后我对他们的剧情就不抱期待了，学妹剧情虽然老套，但是可爱啊，明智如果 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然但是，5r是新p组搞的剧情，铁三角做完p5立马就去做暗喻幻想了，期间的p3重置都没看一眼
+

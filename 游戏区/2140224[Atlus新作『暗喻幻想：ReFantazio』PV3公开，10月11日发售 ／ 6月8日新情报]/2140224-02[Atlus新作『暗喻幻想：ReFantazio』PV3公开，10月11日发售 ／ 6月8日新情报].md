@@ -310,3 +310,11 @@ PS5日服11点玩到刚刚1点
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">为什么steam是明天中午解锁阿
 
+
+*****
+
+####  火红之眼  
+##### 1513#       发表于 2024-10-11 07:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">分身这个笑死了.....这次不用等满月了
+

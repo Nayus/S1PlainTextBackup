@@ -7832,3 +7832,18 @@ key在哪买呀</blockquote>
 写的弱智吗？真tm弱智
 有现实弱智吗？我看不见得
 
+
+*****
+
+####  llysander  
+##### 1464#       发表于 2024-10-10 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66415293&amp;ptid=2140224" target="_blank">conanoysq 发表于 2024-10-10 12:08</a>
+
+第一次知道还存在世界语这种语言，涨知识了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer"> 为某个环境比较复杂一百种语言生活在一起的地区设计，其实不怎么“世界”
+
+中日韩母语的学这个颇难
+
+store.steampowered.com/app/1044490/The_Expression_Amrilato/  可以听听极限软糯版念出来什么样子<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

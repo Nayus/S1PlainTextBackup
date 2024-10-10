@@ -55,3 +55,14 @@ VGC的评测，虽然给了5星，但是提到后期剧情不大行，满分是�
 
 评测地址：[https://www.videogameschronicle.com/review/metaphor-refantazio/](https://www.videogameschronicle.com/review/metaphor-refantazio/)
 
+
+*****
+
+####  kuarwbwe  
+##### 1487#       发表于 2024-10-10 20:28
+
+玩到了再说吧。现在懒得管分了。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+vgc上次给智杖打三星我现在还在耿耿于怀。不是很想搭理这个媒体。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

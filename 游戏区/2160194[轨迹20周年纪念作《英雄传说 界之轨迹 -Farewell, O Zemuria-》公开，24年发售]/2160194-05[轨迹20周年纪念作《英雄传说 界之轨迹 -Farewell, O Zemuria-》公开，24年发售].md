@@ -5702,3 +5702,16 @@ ss魔法克洛诺斯封技让对面无技可出，后期堆回避率效果也很
 
 剑女那边说叫起坐坐直接屏幕一黑
 
+
+*****
+
+####  windtrack_qh  
+##### 6459#       发表于 2024-10-11 00:26
+
+ 本帖最后由 windtrack_qh 于 2024-10-11 00:27 编辑 
+
+下作还得给约尔妲找房，餐厅楼上肉眼可见的不够用了，女演员这种自己有房的还不赶紧腾退<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+剑女也可以租过来嘛<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

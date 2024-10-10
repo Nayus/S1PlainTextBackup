@@ -5456,3 +5456,66 @@ ps4
 
 假如执行者21个号不加人，现在还没影的是6个？
 
+
+*****
+
+####  saitohimea  
+##### 6441#       发表于 2024-10-10 18:07
+
+回过味感觉黎2整个剧情就是让学妹预演下，方便本作最后下决定。
+
+*****
+
+####  windtrack_qh  
+##### 6442#       发表于 2024-10-10 18:09
+
+来点大家喜闻乐见的，转自X @Kaito_Shinshi_R
+
+<img src="https://img.saraba1st.com/forum/202410/10/180847fwck0a707uxbkhnx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>GY9V6-gaAAAkvPi.jpeg</strong> (407.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-10 18:08 上传
+
+<img src="https://img.saraba1st.com/forum/202410/10/180847qrgbbvr0d7wbzrrr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>GYjcmC_asAAUDJj.jpeg</strong> (340.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-10 18:08 上传
+
+<img src="https://img.saraba1st.com/forum/202410/10/180847q7n44h4pol87nhn4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>GYohgkMaEAAHTur.jpeg</strong> (288.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-10 18:08 上传
+
+<img src="https://img.saraba1st.com/forum/202410/10/180848i9rcb272b3mvg9gj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>GZcIywZbsAA2ZUt.jpeg</strong> (412.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-10 18:08 上传
+
+<img src="https://img.saraba1st.com/forum/202410/10/180848eay1y1wjh3ariziy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>GZHlmh3bAAA0pKg.jpeg</strong> (135.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-10 18:08 上传
+
+<img src="https://img.saraba1st.com/forum/202410/10/180848ic7iihi3etbeh8we.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>GZhUNekaAAMAVGZ.jpeg</strong> (367.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-10 18:08 上传
+

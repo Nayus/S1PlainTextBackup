@@ -10281,3 +10281,28 @@ for 2025了，我先盲猜一个力儿八实装团名歌吧<img src="https://sta
 
 啊！
 
+
+*****
+
+####  御幸一也  
+##### 24537#       发表于 2024-10-11 04:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">竟然有人能爬完樓
+
+*****
+
+####  御幸一也  
+##### 24538#       发表于 2024-10-11 04:04
+
+對惹今天邦TV上登的圖
+
+<img src="https://img.saraba1st.com/forum/202410/11/040403l061u90rf6z89d6r.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_🍞(@saayarimi)_20240827-074107_1828336928380624933_photo.jpg</strong> (261.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-11 04:04 上传
+
+[https://x.com/saayarimi/status/1828336928380624933](https://x.com/saayarimi/status/1828336928380624933)
+

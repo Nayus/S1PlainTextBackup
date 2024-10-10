@@ -1789,3 +1789,14 @@ document.getElementById('flv_ALj').innerHTML=("");
 借的马能还的吗，还是就这样留个点在地图上了</blockquote>
 扔水里试试
 
+
+*****
+
+####  760194962  
+##### 1643#       发表于 2024-10-10 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66418412&amp;ptid=2188108" target="_blank">otakun 发表于 2024-10-10 18:28</a>
+
+扔水里试试</blockquote>
+不行，刷新回牧场了
+

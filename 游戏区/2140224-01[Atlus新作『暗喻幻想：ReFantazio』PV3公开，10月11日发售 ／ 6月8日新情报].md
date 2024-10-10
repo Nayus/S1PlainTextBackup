@@ -7658,3 +7658,31 @@ ui确实太闪了，但能适应。还是希望p6能吸取教训。<img src="htt
 
 —— 来自 vivo V2304A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  卡拉德利姆  
+##### 1446#       发表于 2024-10-10 08:30
+
+还是聊点能聊的吧 pc版解锁时间定了吗
+
+
+*****
+
+####  conanoysq  
+##### 1447#       发表于 2024-10-10 08:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66413234&amp;ptid=2140224" target="_blank">卡拉德利姆 发表于 2024-10-10 08:30</a>
+
+还是聊点能聊的吧 pc版解锁时间定了吗</blockquote>
+明天中午12点解锁
+
+*****
+
+####  conanoysq  
+##### 1448#       发表于 2024-10-10 08:36
+
+B站有放出了战车BGM，是真好听啊，女声念经和和尚念经一样觉得超燃，感觉好像念的不是日语？
+
+【《暗喻幻想：ReFantazio》铁甲战车BGM完整版】 [https://www.bilibili.com/video/B ... 1d47f35a8654497fea3](https://www.bilibili.com/video/BV1TK2wY6Eim/?share_source=copy_web&amp;vd_source=f62a1f76b7a951d47f35a8654497fea3)
+

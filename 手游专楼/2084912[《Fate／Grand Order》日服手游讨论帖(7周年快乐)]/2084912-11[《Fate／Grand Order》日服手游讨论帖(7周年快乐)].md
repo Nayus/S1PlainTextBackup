@@ -795,3 +795,15 @@ c呆什么技能组，第二部的女同事就来碰瓷，还天天锁前排折�
 
 队长的话抱个顶配摩根红拐全上+弓南丁再带点牛魔王就能3T了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jackyhuang  
+##### 14916#       发表于 2024-10-10 08:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66412326&amp;ptid=2084912" target="_blank">v22325 发表于 2024-10-10 00:00</a>
+看人说队长有人属性用谦信能打,一宝一刀几十万慢慢砍死了……幸好没想不开用普通耐久队打…… ...</blockquote>
+我用二姐打好像也差不多这个回合数
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

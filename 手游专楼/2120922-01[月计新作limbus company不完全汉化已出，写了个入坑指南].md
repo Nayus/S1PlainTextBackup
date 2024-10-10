@@ -1567,3 +1567,23 @@ Screenshot_20241010_133957.jpg
 
 我们的老朋友扭曲侦探摩西正式登场了，上次出场她在处理血魔，这次出场她还在处理血魔，工期真长啊（雾）
 
+
+*****
+
+####  Jamaisvu  
+##### 921#       发表于 2024-10-10 15:18
+
+ 本帖最后由 Jamaisvu 于 2024-10-10 15:21 编辑 
+
+<img src="https://img.saraba1st.com/forum/202410/10/151812liiujh0ixri77ahd.jpg" referrerpolicy="no-referrer">
+
+<strong>20241010151753_1.jpg</strong> (454.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-10 15:18 上传
+
+不得不说，小唐舞台剧比李箱回忆杀经费充足多了，服化道好专业<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+（这章演出是真的棒，连舞台剧小怪都用上纸板人了）
+

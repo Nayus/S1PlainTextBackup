@@ -1439,3 +1439,23 @@ PS：除了每日一折付费单抽外，不建议在瓦尔吉普斯之夜外的
 
 月计就不会设定成第一个入手的新角色跳动画而非十连带new的某张卡带动画吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 915#       发表于 2024-10-10 12:50
+
+ 本帖最后由 Jamaisvu 于 2024-10-10 12:54 编辑 
+
+是我脑子里黄色废料太多了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这个P社部长看起来像穿着连体黑丝...
+
+（有点像火焰之纹章里那个萨莉亚...）
+
+<img src="https://img.saraba1st.com/forum/202410/10/125010aik11v84b4vkk38p.jpg" referrerpolicy="no-referrer">
+
+<strong>20241010124833_1.jpg</strong> (560.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-10 12:50 上传
+

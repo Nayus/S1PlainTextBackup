@@ -7847,3 +7847,13 @@ key在哪买呀</blockquote>
 
 store.steampowered.com/app/1044490/The_Expression_Amrilato/  可以听听极限软糯版念出来什么样子<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罗克萨斯  
+##### 1465#       发表于 2024-10-10 14:15
+
+我香港直邮的盘发货了，先看大伙打6天吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

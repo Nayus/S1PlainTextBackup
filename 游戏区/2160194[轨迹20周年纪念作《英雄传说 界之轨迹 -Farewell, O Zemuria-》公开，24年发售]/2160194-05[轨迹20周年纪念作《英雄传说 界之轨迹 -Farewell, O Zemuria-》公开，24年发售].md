@@ -5747,3 +5747,26 @@ ss魔法克洛诺斯封技让对面无技可出，后期堆回避率效果也很
 
 削了多少？1.06还是999拉满 Overkill可以1000多
 
+
+*****
+
+####  隔壁老黄  
+##### 6464#       发表于 2024-10-11 02:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66421133&amp;ptid=2160194" target="_blank">Renes 发表于 2024-10-11 02:46</a>
+削了多少？1.06还是999拉满 Overkill可以1000多</blockquote>
+削成只有对应颜色晶石和钱出500多，其他都是0
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  隔壁老黄  
+##### 6465#       发表于 2024-10-11 02:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66421132&amp;ptid=2160194" target="_blank">Renes 发表于 2024-10-11 02:44</a>
+还是师父搬出去给年轻人腾位置吧，不过我记得波蕾特说过蒙马特还有空房，还有天台那个屋子的门应该还没开过 ...</blockquote>
+那个是仓库吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

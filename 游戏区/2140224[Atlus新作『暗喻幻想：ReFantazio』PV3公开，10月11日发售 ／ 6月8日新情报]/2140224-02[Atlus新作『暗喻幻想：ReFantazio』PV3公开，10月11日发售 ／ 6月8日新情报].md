@@ -183,3 +183,32 @@ vgc上次给智杖打三星我现在还在耿耿于怀。不是很想搭理这�
 
 这作问题我觉得先担心atlus传统几件套吧，atlus每次都是半瓶旧酒，小心一半又腻了。
 
+
+*****
+
+####  kuarwbwe  
+##### 1500#       发表于 2024-10-10 23:01
+
+demo打到自由探索的部分了，先不打了。没想好要不要买，先观望一下评价了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+这demo确实有点太平淡了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  woui003woui  
+##### 1501#       发表于 2024-10-10 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66420140&amp;ptid=2140224" target="_blank">抽烟的猴 发表于 2024-10-10 22:39</a>
+游轮全员那个屎一样的原谅明智怎么就成不是无印的活了</blockquote>
+明智无印死了，以我个人标准人死了原谅就不是问题<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">当然这点见仁见智
+r按头写周可希望明智活着，这就远超可以接受的限度了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jigsaw1999  
+##### 1502#       发表于 2024-10-10 23:04
+
+三剑士的合题技能太无敌了，完全就是逃课，两招无伤解决佐尔巴和人类，完全放弃思考的打法<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

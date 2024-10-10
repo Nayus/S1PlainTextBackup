@@ -10139,3 +10139,11 @@ for 2025了，我先盲猜一个力儿八实装团名歌吧<img src="https://sta
 
 不过当年mygo那个正式pv只有30秒<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 24528#       发表于 2024-10-10 22:59
+
+有新东西就不错了，鸡腿别挑挑拣拣<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

@@ -2061,3 +2061,16 @@ BOSS战在高星怪物卡的异常概率和攻击数值前也是不值一提  
 
 看到eshop上在三部曲五折，想着如果后面不会再出什么新的打包就买一个
 
+
+*****
+
+####  jacket  
+##### 197#       发表于 2024-10-11 06:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66420350&amp;ptid=2025458" target="_blank">killbillwillil 发表于 2024-10-10 23:20</a>
+
+问一下这系列是完结了吗？
+
+看到eshop上在三部曲五折，想着如果后面不会再出什么新的打包就买一个 ...</blockquote>
+本身比较松散没啥硬性限制，想出可以继续出。连着出完三作以后就没动静了。
+

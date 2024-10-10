@@ -1690,3 +1690,14 @@ LL的集换式卡牌还有cast卡，部分还有签名
 
 这么看来应该都是新规？
 
+
+*****
+
+####  cocochiya  
+##### 166#       发表于 2024-10-11 04:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66401662&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-10-8 19:01</a>
+
+我的赛博摇滚爱好者花田先生，您扪心自问一下，干了三部有没有哪怕那么一瞬间有这么个想法？——《服务型 ...</blockquote>
+不过这个应该算是缪虹独有的情况，cv先打拼多年有了一定成果才轮到动画组出场，水星的话反而是花某人的辈分更高，也许这就是他xjb写的底气吧。
+

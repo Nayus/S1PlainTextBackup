@@ -7997,3 +7997,15 @@ UI很明显是对P5的拙劣模仿。而P5给人一种很潮的感觉，暗喻�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  kuarwbwe  
+##### 1480#       发表于 2024-10-10 19:16
+
+ 本帖最后由 kuarwbwe 于 2024-10-10 19:18 编辑 
+
+最近几年x盒子太没话题度了，我都差点忘了国内的新西兰人能比其他平台提前玩到了。突然有种梦回几年前的感觉。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

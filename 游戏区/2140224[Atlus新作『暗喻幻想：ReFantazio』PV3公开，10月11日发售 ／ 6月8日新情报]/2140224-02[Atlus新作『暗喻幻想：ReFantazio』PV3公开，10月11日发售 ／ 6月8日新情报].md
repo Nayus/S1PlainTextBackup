@@ -318,3 +318,15 @@ PS5日服11点玩到刚刚1点
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">分身这个笑死了.....这次不用等满月了
 
+
+*****
+
+####  Redimercia  
+##### 1514#       发表于 2024-10-11 07:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66420882&amp;ptid=2140224" target="_blank">akiomn 发表于 2024-10-11 01:02</a>
+虽然但是，5r是新p组搞的剧情，铁三角做完p5立马就去做暗喻幻想了，期间的p3重置都没看一眼 ...</blockquote>
+其实是p5都没做完桥野就带走了几个剧本主笔不回来填坑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -7724,3 +7724,22 @@ steam预载好啦。
 
 B站的小UP都打完出评测了，这次对国内市场这么重视？
 
+
+*****
+
+####  pandaman7777  
+##### 1453#       发表于 2024-10-10 09:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">你别说，价格和宣发策略大成功，key都涨到238了
+
+
+*****
+
+####  yangkaim4  
+##### 1454#       发表于 2024-10-10 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66413604&amp;ptid=2140224" target="_blank">pandaman7777 发表于 2024-10-10 09:19</a>
+
+你别说，价格和宣发策略大成功，key都涨到238了</blockquote>
+key在哪买呀
+

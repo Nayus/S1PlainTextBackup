@@ -5074,3 +5074,146 @@ https://store.steampowered.com/app/2113920/_II/?l=schinese</blockquote>
 
 煤炉二手现在已经6000日元都卖不出去了，不过今晚也能看发霉通销量了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 6414#       发表于 2024-10-10 09:26
+
+GEO stores: Week 40, 2024 (Sep 30 - Oct 06)
+
+01./01. [NSW] The Legend of Zelda: Echoes of Wisdom &lt;ADV&gt; (Nintendo) {2024.09.26} (¥6.980)
+
+02./00. [NSW] Sword Art Online: Fractured Daydream &lt;RPG&gt; (Bandai Namco Entertainment) {2024.10.03} (¥7.700)
+
+03./00. [PS5] Sword Art Online: Fractured Daydream &lt;RPG&gt; (Bandai Namco Entertainment) {2024.10.03} (¥7.700)
+
+04./05. [NSW] EA Sports FC 25 &lt;SPT&gt; (Electronic Arts) {2024.09.27} (¥6.091)
+
+05./03. [PS5] EA Sports FC 25 &lt;SPT&gt; (Electronic Arts) {2024.09.27} (¥8.909)
+
+06./11. [NSW] Minecraft &lt;ADV&gt; (Microsoft Game Studios) {2018.06.21} (¥3.600)
+
+07./06. [PS4] EA Sports FC 25 &lt;SPT&gt; (Electronic Arts) {2024.09.27} (¥8.909)
+
+08./14. [NSW] Power Pros 2024-2025 &lt;SPT&gt; (Konami) {2024.07.18} (¥7.700)
+
+09./17. [NSW] Momotaro Dentetsu World: The Earth Spins with Hope! &lt;TBL&gt; (Konami) {2023.11.16} (¥6.300)
+
+10./09. [NSW] Gundam Breaker 4 &lt;ACT&gt; (Bandai Namco Entertainment) {2024.08.29} (¥7.700)
+
+Top 10
+
+NSW - 7
+
+PS5 - 2
+
+PS4 - 1
+
+*****
+
+####  卢迪克  
+##### 6415#       发表于 2024-10-10 09:27
+
+Tsutaya stores: Week 40, 2024 (Sep 30 - Oct 06)
+
+01./01. [NSW] The Legend of Zelda: Echoes of Wisdom &lt;ADV&gt; (Nintendo) {2024.09.26} (¥6.980)
+
+02./00. [NSW] Sword Art Online: Fractured Daydream &lt;RPG&gt; (Bandai Namco Entertainment) {2024.10.03} (¥7.700)
+
+03./00. [PS5] Sword Art Online: Fractured Daydream &lt;RPG&gt; (Bandai Namco Entertainment) {2024.10.03} (¥7.700)
+
+04./08. [NSW] Minecraft &lt;ADV&gt; (Microsoft Game Studios) {2018.06.21} (¥3.600)
+
+05./06. [NSW] Gundam Breaker 4 &lt;ACT&gt; (Bandai Namco Entertainment) {2024.08.29} (¥7.700)
+
+06./05. [NSW] EA Sports FC 25 &lt;SPT&gt; (Electronic Arts) {2024.09.27} (¥6.091)
+
+07./02. [PS4] The Legend of Heroes: Trails of the End - Farewell, O Zemuria &lt;RPG&gt; (Nihon Falcom) {2024.09.26} (¥8.000)
+
+08./10. [NSW] Power Pros 2024-2025 &lt;SPT&gt; (Konami) {2024.07.18} (¥7.700)
+
+09./13. [NSW] Super Smash Bros. Ultimate &lt;FTG&gt; (Nintendo) {2018.12.07} (¥7.200)
+
+10./11. [NSW] Animal Crossing: New Horizons &lt;ETC&gt; (Nintendo) {2020.03.20} (¥5.980)
+
+11./03. [PS5] The Legend of Heroes: Trails of the End - Farewell, O Zemuria &lt;RPG&gt; (Nihon Falcom) {2024.09.26} (¥8.000)
+
+12./17. [NSW] Nintendo Switch Sports &lt;SPT&gt; (Nintendo) {2022.04.29} (¥4.980)
+
+13./21. [NSW] The Legend of Zelda: Tears of the Kingdom &lt;ADV&gt; (Nintendo) {2023.05.12} (¥7.200)
+
+14./07. [PS4] EA Sports FC 25 &lt;SPT&gt; (Electronic Arts) {2024.09.27} (¥8.909)
+
+15./04. [PS5] EA Sports FC 25 &lt;SPT&gt; (Electronic Arts) {2024.09.27} (¥8.909)
+
+16./18. [NSW] Mario Kart 8 Deluxe &lt;RCE&gt; (Nintendo) {2017.04.28} (¥5.980)
+
+17./12. [NSW] Kamaitachi no Yoru x3 &lt;ADV&gt; (Spike Chunsoft) {2024.09.19} (¥3.600)
+
+18./16. [NSW] Splatoon 3 &lt;ACT&gt; (Nintendo) {2022.09.09} (¥5.980)
+
+19./23. [NSW] Clubhouse Games: 51 Worldwide Classics &lt;ETC&gt; (Nintendo) {2020.06.05} (¥3.980)
+
+20./25. [NSW] Ring Fit Adventure &lt;HOB&gt; (Nintendo) {2019.10.18} (¥7.980)
+
+21./09. [NSW] Disney Epic Mickey: Rebrushed &lt;ADV&gt; (THQ Nordic Japan) {2024.09.24} (¥5.980)
+
+22./00. [PS4] Yakuza 6: The Song of Life [New Price Edition] &lt;ADV&gt; (Sega) {2020.10.22} (¥3.490)
+
+23./24. [NSW] Momotaro Dentetsu: Showa, Heisei, Reiwa mo Teiban! &lt;TBL&gt; (Konami) {2020.11.19} (¥6.300)
+
+24./30. [NSW] Pokemon Violet &lt;RPG&gt; (Pokemon Co.) {2022.11.18} (¥5.980)
+
+25./00. [NSW] Ark: Survival Evolved &lt;ADV&gt; (Spike Chunsoft) {2023.02.24} (¥3.800)
+
+26./00. [NSW] Puyo Puyo Tetris 2 [Special Price] &lt;PZL&gt; (Sega) {2022.11.17} (¥3.500)
+
+27./20. [NSW] Luigi's Mansion 2 HD &lt;ACT&gt; (Nintendo) {2024.06.27} (¥5.980)
+
+28./26. [NSW] Pikmin 4 &lt;ACT&gt; (Nintendo) {2023.07.21} (¥5.980)
+
+29./00. [NSW] Super Mario Bros. Wonder &lt;ACT&gt; (Nintendo) {2023.10.20} (¥5.980)
+
+30./00. [NSW] Kirby and the Forgotten Land &lt;ACT&gt; (Nintendo) {2022.03.25} (¥5.980)
+
+*****
+
+####  洛克萨斯  
+##### 6416#       发表于 2024-10-10 09:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">所长线的男员工除了他自己之外游戏性能比女员工差好多
+
+*****
+
+####  卢迪克  
+##### 6417#       发表于 2024-10-10 09:28
+
+COMG! Ranking: Week 40, 2024 (Sep 30 - Oct 6)
+
+01./00. [NSW][PS5] Sword Art Online: Fractured Daydream &lt;RPG&gt; (Bandai Namco Entertainment) {2024.10.03} (¥7,700)
+
+02./01. [NSW] The Legend of Zelda: Echoes of Wisdom &lt;ADV&gt; (Nintendo) {2024.09.26} (¥6,980)
+
+03./09. [NSW] Super Smash Bros. Ultimate &lt;FTG&gt; (Nintendo) {2018.12.07} (¥7,200)
+
+04./00. [NSW] The Legend of Zelda: Breath of the Wild &lt;ADV&gt; (Nintendo) {2017.03.03} (¥6,980)
+
+05./08. [NSW] Animal Crossing: New Horizons &lt;ETC&gt; (Nintendo) {2020.03.20} (¥5,980)
+
+06./00. [NSW] The Legend of Zelda: Tears of the Kingdom &lt;ADV&gt; (Nintendo) {2023.05.12} (¥7,200)
+
+07./04. [NSW] Mario Kart 8 Deluxe &lt;RCE&gt; (Nintendo) {2017.04.28} (¥5,980)
+
+08./06. [NSW] Minecraft &lt;ADV&gt; (Microsoft Game Studios) {2018.06.21} (¥3,600)
+
+09./00. [NSW] Momotaro Dentetsu: Showa, Heisei, Reiwa mo Teiban! &lt;TBL&gt; (Konami) {2020.11.19} (¥6,300)
+
+10./10. [NSW] Splatoon 3 &lt;ACT&gt; (Nintendo) {2022.09.09} (¥5,980)
+
+Top 10
+
+NSW - 10
+
+PS5 - 1
+

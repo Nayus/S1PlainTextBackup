@@ -1419,3 +1419,23 @@ PS：除了每日一折付费单抽外，不建议在瓦尔吉普斯之夜外的
 
 ——若不拥有这些人格，那轮得到我镜牢星光满、狂气用来肝。
 
+
+*****
+
+####  Jamaisvu  
+##### 914#       发表于 2024-10-10 11:30
+
+第六赛季更新了，登录界面美得像是什么正常二游<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+话说这游戏抽卡有点迷啊，我想抽个二星开图鉴，结果一发十连下去四个红镜，点到第三个是西二辛，但是没跳动画，正纳闷呢，点到第四个也是西二辛，跳了动画...
+
+<img src="https://img.saraba1st.com/forum/202410/10/113019nxm6zx5z53l53of7.jpg" referrerpolicy="no-referrer">
+
+<strong>20241010112604_1.jpg</strong> (536.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-10 11:30 上传
+
+月计就不会设定成第一个入手的新角色跳动画而非十连带new的某张卡带动画吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

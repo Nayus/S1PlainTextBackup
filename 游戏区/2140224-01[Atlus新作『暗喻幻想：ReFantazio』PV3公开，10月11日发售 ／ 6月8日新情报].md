@@ -7648,3 +7648,13 @@ ui确实太闪了，但能适应。还是希望p6能吸取教训。<img src="htt
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哈人
 
+
+*****
+
+####  superlink  
+##### 1445#       发表于 2024-10-10 08:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">国内谈剧情涉政就都是幼稚降智，虽然这帮人自己估计都不知道什么是好的游戏zz剧情。当年所谓的皇家骑士团其实你按那标准来看也不怎么样，说白了，zz这玩意儿你真在游戏里掰开了细说是个极其无聊的东西。大谈这玩意儿搞得多精妙不如游戏人物直接掀桌，无论是反派疯批掀桌还是主角开挂掀桌。
+
+—— 来自 vivo V2304A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

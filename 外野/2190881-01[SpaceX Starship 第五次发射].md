@@ -433,3 +433,20 @@ S30和B12的自毁系统炸药安装都已开始。
 这要是能实现真有点科幻了，不是说gps达不到这个精度，rtk这种厘米级定位应用很普遍。而是这么大质量的控制 ...</blockquote>
 回来的时候燃料已经见底了，炸了也炸不出大动静
 
+
+*****
+
+####  鲜血秋叶  
+##### 94#       发表于 2024-10-10 10:54
+
+ 本帖最后由 鲜血秋叶 于 2024-10-10 10:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66412213&amp;ptid=2190881" target="_blank">commcody 发表于 2024-10-9 23:43</a>
+从硬件准备角度，可以观察到发射场的筷子是要到九月才算是准备好。
+
+但这次发射许可涉及的矛盾不是因为发 ...</blockquote>
+作为一个典型的政府机构，FAA本身肯定有相当多不得不完成的内部流程，但是这几年FAA和SpaceX的拉锯下来感觉得到只要SpaceX那边真的准备好了，FAA都能走完流程。不管是啥理由。
+
+所以我赌这次13号能发
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

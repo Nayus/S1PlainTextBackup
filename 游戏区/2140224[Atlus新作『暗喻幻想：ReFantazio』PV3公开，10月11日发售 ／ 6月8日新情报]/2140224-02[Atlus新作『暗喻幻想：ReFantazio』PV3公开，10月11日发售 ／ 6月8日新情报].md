@@ -1539,3 +1539,33 @@ emmmmmmmm 怎么说呢 真女5复仇我没玩，但是真女5我玩了  和 �
 到底咋样，能不能玩呀</blockquote>
 有免费试玩啊，自己把demo全部打完就有答案了，听别人说没意义的，游戏是自己玩，好不好玩适不适合只有自己知道
 
+
+*****
+
+####  最弱败者  
+##### 1627#       发表于 2024-10-11 14:42
+
+游戏声音好小啊<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kuarwbwe  
+##### 1628#       发表于 2024-10-11 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66424762&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-10-11 14:27</a>
+
+【领导人养成模拟器：《暗喻幻想》是今年最劲的公路片RPG-哔哩哔哩】 https://b23.tv/C084cXk
+
+70～80小时 ...</blockquote>
+主要还是女骑士翻车太厉害了，丑的不行，没法说。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ping117  
+##### 1629#       发表于 2024-10-11 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66424580&amp;ptid=2140224" target="_blank">七层嘉影 发表于 2024-10-11 14:07</a>
+到底咋样，能不能玩呀</blockquote>
+你下个demo来玩玩不就懂了
+

@@ -2409,3 +2409,32 @@ Archetype就是荣格心理学的原型，只不过简中的翻译思路是日�
 
 deck城里30-50浮动吧，迷宫内55-60，1280x720p，100%渲染，兼容层用的ge-proton9-15，启动选项dxvk_async=1 %command%，等等民间补丁感觉可以上45-60左右，应该是cpu瓶颈了，windows模式没试，有空再看看
 
+
+*****
+
+####  lilisipis  
+##### 1710#       发表于 2024-10-11 20:17
+
+<blockquote>ShiKi847 发表于 2024-10-11 19:33
+为啥老鼠台才1w人看直播</blockquote>
+这个点美国人刚起床吧
+
+
+*****
+
+####  kuarwbwe  
+##### 1711#       发表于 2024-10-11 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66427742&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-10-11 19:56</a>
+贴吧看到的一篇评测，里面提到的问题，给大家泼点冷水</blockquote>
+但b站的hanser说这作成长数值设计的还行，加上秒杀机制宽松。稳步推进流程基本可以靠即时战斗解决大部分小怪，只对付精英。就不知道那个更符合实际情况了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  operatbig  
+##### 1712#       发表于 2024-10-11 20:23
+
+怎么刷级？死灵那个本居然能升到20级？
+

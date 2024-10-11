@@ -2125,3 +2125,11 @@ atlus史上最快100万，如果销售速度不跳水的话超越单算的p5r应
 
 这代战斗策略还是蛮有意思的。
 
+
+*****
+
+####  kalavinka  
+##### 1683#       发表于 2024-10-11 18:00
+
+有没有用sd玩的说说正式版帧数如何，demo在补丁后也一般 城市和战斗出特效时候很不稳<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

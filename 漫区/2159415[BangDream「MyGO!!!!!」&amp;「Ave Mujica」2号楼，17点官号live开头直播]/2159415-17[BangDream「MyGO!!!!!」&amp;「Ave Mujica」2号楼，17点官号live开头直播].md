@@ -10987,3 +10987,21 @@ disruption的详细设定，只有吉他主唱和鼓，缺贝斯，这设定就�
 总是拿过去踩现在才让人忍不住想攻击 ...</blockquote>
 讓人忍不住想，他們的“現在”是有多不堪，才會一直想要回到過去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 24600#       发表于 2024-10-11 22:22
+
+关于他人的真实状况我无意臧否，只是拿着过去来否定现在，甚至说拿着不存在的团来否定早就组成，以后会一直组下去的团，我只想说
+
+我们团后天有live，你们呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  相坂君  
+##### 24601#       发表于 2024-10-11 22:24
+
+死了的乐队怎么会有live，原来这就是天天贷款对邦CCC复活的原因啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

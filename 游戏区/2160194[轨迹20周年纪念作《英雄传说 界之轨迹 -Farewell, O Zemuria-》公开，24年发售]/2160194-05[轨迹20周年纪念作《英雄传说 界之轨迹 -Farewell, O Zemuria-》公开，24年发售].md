@@ -6299,3 +6299,21 @@ szh真疯魔了这也封<img src="https://static.saraba1st.com/image/smiley/face
 
 这明明是眼红风轨聚聚月入一达不溜北京硬盘大少的身份
 
+
+*****
+
+####  椎名mahuyo  
+##### 6511#       发表于 2024-10-12 00:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下作干脆让VAN挂在时至宝上吧，不过感觉有点悲情，作为剥离恶魔代价直接转生小孩子也行，这样至少端水了不用思考感情线了
+
+
+*****
+
+####  SuNR1sE364  
+##### 6512#       发表于 2024-10-12 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66429691&amp;ptid=2160194" target="_blank">椎名mahuyo 发表于 2024-10-12 00:38</a>
+下作干脆让VAN挂在时至宝上吧，不过感觉有点悲情，作为剥离恶魔代价直接转生小孩子也行，这样至少端水了不 ...</blockquote>
+转生小孩了那大集结篇怎么做<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

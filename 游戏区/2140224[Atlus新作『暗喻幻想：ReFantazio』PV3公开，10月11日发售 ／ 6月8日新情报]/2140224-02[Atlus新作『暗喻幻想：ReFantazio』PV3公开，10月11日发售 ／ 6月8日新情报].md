@@ -2869,3 +2869,56 @@ steamdeck限定经典虚拟路径问题，没专门适配就要手动搬存档
 compatdata/3130330/pfx/drive_c/users/steamu ...</blockquote>
 感谢 不过我已经重开了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  体质的错  
+##### 1754#       发表于 2024-10-12 00:08
+
+那么，有mod可以移除跑步速度线、动态模糊、以太粒子特效、人物尾气，并且降低场景锐化了吗？
+
+游戏好玩又引人入胜的同时感觉自己眼睛快瞎了的体验，是坛游以来的第二次<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kaornao  
+##### 1755#       发表于 2024-10-12 00:10
+
+ 本帖最后由 Kaornao 于 2024-10-12 00:11 编辑 
+
+demo之前没玩，今天打完矿洞，感觉挺好玩的，比p系列好玩不少，冒险的感觉多一些，但是h难度属于是太变态了，怪先手基本要么死完要么全残，另外队友大剑哥模型动作表现起来也太唐了，觉醒剧情真没绷住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+syl好像steam成就有bug，刚刚走完矿洞发现才成就页面没了，重新登录再打发现也就解锁了两个剧情成就<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  akiomn  
+##### 1756#       发表于 2024-10-12 00:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刷牛头人迷宫中，等成十里坡剑圣了再走
+感觉演出不行，ui酷炫但瞎眼，战斗系统目前觉得还行，整体下来byd我觉得还挺不错的
+
+
+*****
+
+####  唯一指定用户名  
+##### 1757#       发表于 2024-10-12 00:13
+
+ 本帖最后由 唯一指定用户名 于 2024-10-12 00:14 编辑 
+
+一晚上玩到试玩版后第一个队友入队了，感觉这代时间很足，出去刷本路上还可以刷属性。
+
+还有就是一些剧情有点整蛊，主角团突然就开始集体发癫<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+以及还有很多剧外剧内都会吐糟的便利设定。
+
+*****
+
+####  kuarwbwe  
+##### 1758#       发表于 2024-10-12 00:16
+
+我在这楼前面说的所有负面评价，楼友可以当成放屁了，我玩进去了。这游戏爽死了。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

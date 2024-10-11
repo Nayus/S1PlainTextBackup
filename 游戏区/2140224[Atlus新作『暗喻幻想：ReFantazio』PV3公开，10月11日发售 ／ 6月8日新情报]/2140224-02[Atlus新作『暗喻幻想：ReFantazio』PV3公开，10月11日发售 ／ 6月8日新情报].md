@@ -1354,3 +1354,25 @@ p无边框，胡的要死是我的问题吗</blockquote>
 改独显呗</blockquote>
 我就是用的独显4080，只能用1080p
 
+
+*****
+
+####  katern  
+##### 1610#       发表于 2024-10-11 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66424410&amp;ptid=2140224" target="_blank">2015年入股市 发表于 2024-10-11 13:39</a>
+
+请问怎么改？</blockquote>
+我弄好了，在电脑系统的图像设置里把游戏设置成高性能
+
+*****
+
+####  kuarwbwe  
+##### 1611#       发表于 2024-10-11 13:46
+
+ 本帖最后由 kuarwbwe 于 2024-10-11 13:48 编辑 
+
+b站的pser_hanser直接说了这次没有明智这样的角色。不过他是atlus凯子，还接了商单。可能会有过褒的可能。不过这倒是符合我对这游戏的最上限预期，至少吃他家这套的应该体验还凑活。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

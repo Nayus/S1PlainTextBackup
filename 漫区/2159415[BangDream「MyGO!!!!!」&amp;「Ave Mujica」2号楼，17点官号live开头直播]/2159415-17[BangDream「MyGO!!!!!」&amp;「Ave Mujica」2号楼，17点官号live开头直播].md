@@ -10655,3 +10655,32 @@ for 2025了，我先盲猜一个力儿八实装团名歌吧<img src="https://sta
 
 剧场版名字就是猫，给猫猫加戏份，出了那么多猫周边，新曲当然是猫之歌<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 24571#       发表于 2024-10-11 19:42
+
+泥楼又被视奸咯，骂孝祥楼是要骂的，想找论据的时候还是要视奸的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 24572#       发表于 2024-10-11 19:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">团曲应该是漏油反驳的，泥楼鸡粉从来都是输资源不输阵
+
+*****
+
+####  skives10  
+##### 24573#       发表于 2024-10-11 19:47
+
+<img src="https://img.saraba1st.com/forum/202410/11/194704bq3nmnll676kl361.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9974.jpeg</strong> (256.27 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-10-11 19:47 上传
+

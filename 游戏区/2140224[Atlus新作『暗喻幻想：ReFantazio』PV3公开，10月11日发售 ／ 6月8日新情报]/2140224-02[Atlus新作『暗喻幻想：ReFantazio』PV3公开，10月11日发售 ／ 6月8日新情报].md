@@ -3090,3 +3090,11 @@ pc版声音很小，有调整方法吗</blockquote>
 
 可以回溯到战斗开始真是勾rpg好文明啊，点赞
 
+
+*****
+
+####  真空管  
+##### 1775#       发表于 2024-10-12 02:06
+
+如果是十里坡剑圣或者像我一样下迷宫占一天不刷个爽会觉得亏了的玩法的话基本除了boss都不需要进回合制…主角dealer直接顺便经济自由<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

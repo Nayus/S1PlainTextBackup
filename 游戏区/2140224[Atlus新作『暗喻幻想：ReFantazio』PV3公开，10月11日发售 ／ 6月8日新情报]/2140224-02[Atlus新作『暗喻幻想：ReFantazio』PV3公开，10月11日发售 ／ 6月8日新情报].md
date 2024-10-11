@@ -2922,3 +2922,47 @@ syl好像steam成就有bug，刚刚走完矿洞发现才成就页面没了，重
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  casle  
+##### 1759#       发表于 2024-10-12 00:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66429192&amp;ptid=2140224" target="_blank">bwsusaga 发表于 2024-10-11 23:05</a>
+
+PC版中途切出游戏后再进入，所有按键提示都变成键盘的了，用手柄也恢复不过来。
+
+只能重启。</blockquote>
+出现这个问题在游戏界面内按crtl+alt+delete，然后点取消，动一下摇杆手柄图标就恢复了
+
+
+*****
+
+####  cxl6191467  
+##### 1760#       发表于 2024-10-12 00:23
+
+老哥们，我买个几个dlc服装换了后战斗音乐都变了，能不能不变音乐，只要服装那里有设置嘛？
+
+—— 来自 vivo V2241HA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  walfeds  
+##### 1761#       发表于 2024-10-12 00:25
+
+体验版打到自由时间收手了，今天想了想还是换hard重开了
+主线迷宫大教堂是真的长<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">主打一个战斗爽
+硬要一天游戏时间打完压力有点大
+
+*****
+
+####  satan023  
+##### 1762#       发表于 2024-10-12 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66429228&amp;ptid=2140224" target="_blank">TKD53 发表于 2024-10-11 23:11</a>
+刚玩序章，好多路人是褪色者，是我显示设置有问题还是什么游戏设定</blockquote>
+卧槽这画面认真的吗 咋一看还以为是psp模拟器画面
+
+—— 来自 OPPO PCCM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

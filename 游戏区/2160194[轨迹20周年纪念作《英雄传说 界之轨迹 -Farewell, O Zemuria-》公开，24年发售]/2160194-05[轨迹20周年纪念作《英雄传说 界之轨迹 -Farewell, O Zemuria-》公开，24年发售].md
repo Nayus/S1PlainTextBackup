@@ -6264,3 +6264,11 @@ szh真疯魔了这也封<img src="https://static.saraba1st.com/image/smiley/face
 
 每次碰到能量饮料摊位做活动，免费送你几罐但由于满状态又喝不了，于是当场卖回给摊位商人。
 
+
+*****
+
+####  椎名mahuyo  
+##### 6507#       发表于 2024-10-12 00:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">通了，怎么说呢，最后实在是太钦定了，也不知道下一作要等多久了
+

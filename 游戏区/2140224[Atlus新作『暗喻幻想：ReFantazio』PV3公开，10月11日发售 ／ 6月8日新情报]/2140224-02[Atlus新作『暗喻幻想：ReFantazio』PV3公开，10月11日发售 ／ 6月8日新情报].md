@@ -3106,3 +3106,21 @@ pc版声音很小，有调整方法吗</blockquote>
 
 大教堂中途刷了两次蓝，还是挺缺蓝的，还好打鸡蛋人之前把蓝回满了，不然都不知道要磨到什么时候
 
+
+*****
+
+####  modkingr  
+##### 1777#       发表于 2024-10-12 02:55
+
+<img src="https://img.saraba1st.com/forum/202410/12/025312z09825h354q2n9c0.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (266.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-12 02:53 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">好无语啊，看路易的造型容易想到格里菲斯或者战场女武神系列的マクシミリアン，但是比起这些个「帝国皇子」前辈来说路易和他的这手下是完全的低能啊
+
+。为什么投票选举的规则下会直接快进到恐怖统治？
+

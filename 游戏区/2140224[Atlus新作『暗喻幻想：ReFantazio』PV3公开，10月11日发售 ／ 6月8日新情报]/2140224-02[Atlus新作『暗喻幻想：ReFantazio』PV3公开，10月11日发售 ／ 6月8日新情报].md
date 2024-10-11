@@ -1254,3 +1254,36 @@ So the game isn’t making strides in how Atlus represents queer people in its w
 
 日程攻略啥的有up主在做了 [https://docs.qq.com/aio/DRUpKQUFmSmlwRG9O](https://docs.qq.com/aio/DRUpKQUFmSmlwRG9O?p=LD8lKtUHE8O0SUMqbEQ3x1)
 
+
+*****
+
+####  88ace88  
+##### 1600#       发表于 2024-10-11 12:45
+
+<blockquote>ej103 发表于 2024-10-11 12:28
+对不同系列有不一样的要求很奇怪吗
+
+你自己都说了p是 3 45了 
+
+以前有现在也要有不是正常要求吗
+</blockquote>
+不奇怪，但我说的那些人觉得奇怪啊，不然“没有心的xx”，“丢掉xx的丑陋包袱”之类的奇谈怪论怎么会层出不穷呢
+
+
+*****
+
+####  jayce  
+##### 1601#       发表于 2024-10-11 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66423943&amp;ptid=2140224" target="_blank">Khellendros 发表于 2024-10-11 12:38</a>
+
+第一个迷宫有点长，序章进度感觉才到一半，我h难度打到上层药都快吃完了，只好放弃（话说上层的安全屋离入 ...</blockquote>
+当年P5第一个迷宫也是巨长，传统，传统
+
+*****
+
+####  Khellendros  
+##### 1602#       发表于 2024-10-11 12:50
+
+另外这个战斗系统真的有点难受，原野战斗手感差又没容错，被摸到直接进回合制，h难度被抢了先手真的不用打了，打杂兵后手都要吃大战损，精英怪基本进去直接减员，基本上被抢了先手只能重开游戏了，还好自动存档存的比较频繁不太会丢进度<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">而且精英怪人均会aoe，h难度还多个行动点根本不敢让他出手，那只能战前打进break了
+

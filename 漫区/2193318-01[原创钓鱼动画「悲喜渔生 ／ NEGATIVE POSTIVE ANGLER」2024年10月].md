@@ -515,3 +515,15 @@ daiwa打钱了？轮子看着像luvias
 
 ed舒服不少
 
+
+*****
+
+####  PingGuo233  
+##### 46#       发表于 2024-10-11 12:51
+
+女角色画的挺可爱的，还有个画风不一样的蓝毛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这便利店里的人年轻的肯定都有点问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+挺想看到等男主和众人熟了以后大伙发现男主真的没几天好活了大伙是什么表情<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

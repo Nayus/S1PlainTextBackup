@@ -10440,3 +10440,14 @@ for 2025了，我先盲猜一个力儿八实装团名歌吧<img src="https://sta
 借楼问一下有去五角场快闪店的吗？我才知道有满399元消费特典，我买了700多结果没给我，你们去买有给吗？
 <img src="https://p.sda1.dev/19/ec949a012f2c4d9c28a7b6cddf05fff8/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CyDiablo  
+##### 24551#       发表于 2024-10-11 18:15
+
+【剧场版「BanG Dream! It's MyGO!!!!!」前篇片尾曲「過惰幻」特别MV-哔哩哔哩】 [https://b23.tv/RM9Mqz7](https://b23.tv/RM9Mqz7)
+前半是剧场版乐奈的新画面，后半是tv前半混剪
+可爱小猫<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/a387f66b944a0897fa46f329b3c8b2f4/IMG_20241011_171452.jpg" referrerpolicy="no-referrer">
+

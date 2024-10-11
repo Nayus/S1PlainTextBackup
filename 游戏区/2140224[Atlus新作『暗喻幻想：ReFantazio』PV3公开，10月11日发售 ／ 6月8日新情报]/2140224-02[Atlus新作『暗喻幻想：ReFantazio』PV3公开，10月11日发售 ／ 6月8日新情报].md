@@ -3098,3 +3098,11 @@ pc版声音很小，有调整方法吗</blockquote>
 
 如果是十里坡剑圣或者像我一样下迷宫占一天不刷个爽会觉得亏了的玩法的话基本除了boss都不需要进回合制…主角dealer直接顺便经济自由<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  取名真是难  
+##### 1776#       发表于 2024-10-12 02:39
+
+大教堂中途刷了两次蓝，还是挺缺蓝的，还好打鸡蛋人之前把蓝回满了，不然都不知道要磨到什么时候
+

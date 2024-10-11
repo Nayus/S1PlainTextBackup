@@ -6325,3 +6325,12 @@ szh真疯魔了这也封<img src="https://static.saraba1st.com/image/smiley/face
 
 基萨拉不是诺州人吗，为什么开头说和艾妮亚一样是雷米菲利亚
 
+
+*****
+
+####  jacket  
+##### 6514#       发表于 2024-10-12 03:04
+
+为了截这图读档重打了一遍任务，一闪而过
+<img src="https://s2.loli.net/2024/10/12/udTNywl3nJs9gZc.jpg" referrerpolicy="no-referrer">
+

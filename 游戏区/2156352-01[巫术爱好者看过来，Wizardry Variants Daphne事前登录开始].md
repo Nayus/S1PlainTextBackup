@@ -45,3 +45,11 @@
 世界树迷宫这种不属于巫术like吗</blockquote>
 世界树是新派DRPG的代表，和老派的巫术LIKE算是现存DRPG的两大主要分支了。
 
+
+*****
+
+####  cenhr  
+##### 53#       发表于 2024-10-11 11:24
+
+主要问题是如果氪金抽角色，角色死了消失，玩家真的不会闹？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

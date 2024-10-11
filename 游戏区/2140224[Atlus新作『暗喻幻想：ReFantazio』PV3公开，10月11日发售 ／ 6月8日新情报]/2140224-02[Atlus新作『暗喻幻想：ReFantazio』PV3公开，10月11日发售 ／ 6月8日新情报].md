@@ -963,3 +963,30 @@ staff栏上织部的职责近几年没什么变化，可能在未公开项目里
 2024-10-09 19:31:01 来源：游民星空 作者 ...</blockquote>
 那只能祝福，理解，支持了。
 
+
+*****
+
+####  罗克萨斯  
+##### 1572#       发表于 2024-10-11 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66423146&amp;ptid=2140224" target="_blank">superlink 发表于 2024-10-11 11:20</a>
+讲道理建模肯定比n年前的p5好那么点点，同引擎好的有限。关键是人设，你要说刻板印象那是胡扯，这tm人设绝 ...</blockquote>
+P3R默认开启光追呢，数毛社评价可没有那么不堪<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  八佾舞于潭  
+##### 1573#       发表于 2024-10-11 11:31
+
+<blockquote>抽烟的猴 发表于 2024-10-11 09:18
+以前拿几个日系画风给身边不打游戏的看
+
+破晓传说和风花雪月都获得好评
+
+xb3，八方和轨迹普普通通
+</blockquote>
+额，这怎么看起来是口味偏向插画乙女风啊
+

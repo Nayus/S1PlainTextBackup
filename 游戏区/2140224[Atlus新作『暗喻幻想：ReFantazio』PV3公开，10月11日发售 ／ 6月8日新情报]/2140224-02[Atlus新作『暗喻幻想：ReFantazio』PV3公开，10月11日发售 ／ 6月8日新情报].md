@@ -1376,3 +1376,14 @@ b站的pser_hanser直接说了这次没有明智这样的角色。不过他是at
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  忘却旋律  
+##### 1612#       发表于 2024-10-11 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66423609&amp;ptid=2140224" target="_blank">onemoment 发表于 2024-10-11 12:04</a>
+
+80.7G，先解冻着吧</blockquote>
+额？ 蒸汽版那么大嘛 我PS5昨天下载的时候粗略看了一下 才35G 还是说当时还没下完
+

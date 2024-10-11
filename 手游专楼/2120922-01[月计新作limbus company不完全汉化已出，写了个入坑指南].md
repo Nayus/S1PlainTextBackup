@@ -1635,3 +1635,62 @@ Screenshot_20241010_133957.jpg
 打完第四章了
 <img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">唉，这么棒的游戏为什么不是买断制，好想一口气接着玩下去，我好恨
 
+
+*****
+
+####  Jamaisvu  
+##### 926#       发表于 2024-10-11 17:48
+
+新卡池要来啦，三星血魔理发师奥提斯，二星牙狩事务所鸿璐：
+
+<img src="https://img.saraba1st.com/forum/202410/11/174248s4am1k4a1k4js221.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241011_174013.jpg</strong> (237.5 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-10-11 17:42 上传
+
+血魔奥应该是斩击系流血人格，有特殊机制能变成面具形态（类似赤瞳良），变身后强化三技能：
+
+<img src="https://img.saraba1st.com/forum/202410/11/174516qucu1184ywip71g4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241011_174118.jpg</strong> (194.86 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-10-11 17:45 上传
+
+<img src="https://img.saraba1st.com/forum/202410/11/174516chpkl274h2q17v10.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241011_174157.jpg</strong> (205.44 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-10-11 17:45 上传
+
+牙狩宝是打击系破裂人格，三技能满足条件能多打一个币。
+
+破裂队俩新卡我都没有，不予评价，也许哪天K宝上不了场的时候牙宝能取而代之或当个支援被动？：
+
+<img src="https://img.saraba1st.com/forum/202410/11/174640f2vhgtb6cyyux3qq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241011_174024.jpg</strong> (192.28 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-10-11 17:46 上传
+
+<img src="https://img.saraba1st.com/forum/202410/11/174640gq18ksqzhfytvtqm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241011_174057.jpg</strong> (182.19 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-10-11 17:46 上传
+

@@ -2113,3 +2113,15 @@ https://x.com/stud_zero/status/1844665951431930116
 
 atlus史上最快100万，如果销售速度不跳水的话超越单算的p5r应该都没什么问题了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿露酱  
+##### 1682#       发表于 2024-10-11 17:52
+
+继承试玩的存档第二天hard把第一个迷宫爆了。
+
+只能说全靠豪华版的回mp面包。没刷20太难了。这后面都没什么小怪帮你回mp。
+
+这代战斗策略还是蛮有意思的。
+

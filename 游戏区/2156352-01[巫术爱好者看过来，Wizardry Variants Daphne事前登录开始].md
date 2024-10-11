@@ -53,3 +53,13 @@
 
 主要问题是如果氪金抽角色，角色死了消失，玩家真的不会闹？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  llysander  
+##### 54#       发表于 2024-10-11 12:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 刚听说 抬头一看手游，好吧
+
+monetization横竖都会是大灾难
+

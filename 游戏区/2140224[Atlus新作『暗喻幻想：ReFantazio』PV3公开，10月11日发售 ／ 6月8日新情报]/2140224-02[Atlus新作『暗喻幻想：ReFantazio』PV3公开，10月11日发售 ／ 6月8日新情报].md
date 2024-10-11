@@ -1763,3 +1763,63 @@ windows的
 
 明智其实最大的问题是没写成美少女，别的问题不大。想到这里我就和解了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  最弱败者  
+##### 1649#       发表于 2024-10-11 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66425257&amp;ptid=2140224" target="_blank">猪突猛进 发表于 2024-10-11 15:20</a>
+
+看别人说是PC版移植的问题，要下载FxSound，但不需要设置。
+
+如果还不行，在游戏里声音设置再选一次FxSoun ...</blockquote>
+按照这样调好了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  出轨的三头龙  
+##### 1650#       发表于 2024-10-11 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66422846&amp;ptid=2140224" target="_blank">monikaca 发表于 2024-10-11 10:52</a>
+
+作为一个老二次元，我觉得人设还不如轨迹，既然都是刻板印象，我还不如选个美型的。 ...</blockquote>
+好的，在游玩英雄传说界之轨迹之前请先游玩：
+
+空之轨迹fc evo
+
+空之轨迹sc evo
+
+空之轨迹3rd evo
+
+零之轨迹改
+
+碧之轨迹改
+
+闪之轨迹1+2改
+
+闪之轨迹3
+
+闪之轨迹4
+
+创之轨迹
+
+黎之轨迹1
+
+黎之轨迹2
+
+*****
+
+####  哎哟卧槽了  
+##### 1651#       发表于 2024-10-11 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66425749&amp;ptid=2140224" target="_blank">出轨的三头龙 发表于 2024-10-11 16:14</a>
+
+好的，在游玩英雄传说界之轨迹之前请先游玩：
+
+空之轨迹fc evo
+
+空之轨迹sc evo</blockquote>
+FC晚一点可以玩remake了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

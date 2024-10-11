@@ -2665,3 +2665,18 @@ PC版BUG，下载FxSound，但不需要设置。
 
 这画面我服了，玩两小时眼睛就开始疼，不知道atlus哪个神人调的画面色调 
 
+
+*****
+
+####  dfdddfdd  
+##### 1736#       发表于 2024-10-11 22:32
+
+这游戏ps5有hdr吗？电视自动跳进hdr了感觉怪怪的
+
+*****
+
+####  bwsusaga  
+##### 1737#       发表于 2024-10-11 22:38
+
+翻了一下发现我最爱的狐耳老板娘没社群，草<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">！
+

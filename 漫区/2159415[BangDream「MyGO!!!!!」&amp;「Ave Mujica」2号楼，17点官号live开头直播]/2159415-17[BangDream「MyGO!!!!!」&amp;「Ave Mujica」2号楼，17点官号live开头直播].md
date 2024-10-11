@@ -11005,3 +11005,30 @@ disruption的详细设定，只有吉他主唱和鼓，缺贝斯，这设定就�
 
 死了的乐队怎么会有live，原来这就是天天贷款对邦CCC复活的原因啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  笋狐  
+##### 24602#       发表于 2024-10-11 22:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">人会对回忆自带美好滤镜，正因如此容易令人共情；
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">正常人翻开旧时的日记会感慨似水流年没过往昔，或嘲笑或叹息，默默把过去的碎片深埋于心底，珍惜现在的点滴，化作迈向未来的动力；
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但如果有人整天怀旧还隔三差五念叨想回到过去试着让故事继续，那估计这位翻的可能不是脑内擅自美化后的日记而是某医院精神科的病历
+
+*****
+
+####  PDQ4  
+##### 24603#       发表于 2024-10-11 22:34
+
+对邦不是已经被姨姥贷款成3+2+5了吗，怎么不算有live<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  极速赛车手  
+##### 24604#       发表于 2024-10-11 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66428583&amp;ptid=2159415" target="_blank">桜庭千景 发表于 2024-10-11 21:47</a>
+
+说实话 狗u大战姨姥我只想看戏，你鸡那是刚刚出生还不熟的商业乐队，还真不需要非要和ccc比个高下不可；从 ...</blockquote>
+你为什么觉得要拆散狗团的是狗u<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不接受这个归类好吧
+

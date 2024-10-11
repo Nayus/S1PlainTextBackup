@@ -3132,3 +3132,14 @@ pc版声音很小，有调整方法吗</blockquote>
 
 简体版的游戏字体是真垃圾啊<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">atlus都不愿意付个字体钱吗
 
+
+*****
+
+####  乔西  
+##### 1779#       发表于 2024-10-12 05:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66429602&amp;ptid=2140224" target="_blank">kuarwbwe 发表于 2024-10-12 00:16</a>
+ 我在这楼前面还有别的和这游戏相关的贴子说的对这游戏的担忧和负面评价，楼友可以当成放屁了，我玩进去了， ...</blockquote>
+你怎么评价p5r呢？
+想了解下口味对不对的上
+

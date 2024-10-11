@@ -101,3 +101,13 @@
 饱饱今天怎么拉这么多</blockquote>
 可能是楼主对游戏里下一个箱活，自己大概率即将和粉毛人妖高浓度cp营业感到焦虑吧
 
+
+*****
+
+####  DET  
+##### 1487#       发表于 2024-10-12 00:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66429492&amp;ptid=2186915" target="_blank">虚无缥缈的分身 发表于 2024-10-11 23:57</a>
+可能是楼主对游戏里下一个箱活，自己大概率即将和粉毛人妖高浓度cp营业感到焦虑吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不是烤批，只是测没，楼主卖的这对好吃吗
+

@@ -3017,3 +3017,19 @@ PC版中途切出游戏后再进入，所有按键提示都变成键盘的了，
 
 玩了一个晚上其实还可以，战斗挺爽的，我看直播别人平a好拖沓的感觉，我自己玩起来就流畅的多，明天试试关了那些闪瞎人的特效应该可以一口气通关了
 
+
+*****
+
+####  bwsusaga  
+##### 1768#       发表于 2024-10-12 00:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66429548&amp;ptid=2140224" target="_blank">体质的错 发表于 2024-10-12 00:08</a>
+
+那么，有mod可以移除跑步速度线、动态模糊、以太粒子特效、人物尾气，并且降低场景锐化了吗？
+
+游戏好玩又 ...</blockquote>
+3DM看到有去动态模糊和描边的补丁
+[https://bbs.3dmgame.com/thread-6542365-1-1.html](https://bbs.3dmgame.com/thread-6542365-1-1.html)
+
+不过我没用不知道效果，可能我TM已经适应了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

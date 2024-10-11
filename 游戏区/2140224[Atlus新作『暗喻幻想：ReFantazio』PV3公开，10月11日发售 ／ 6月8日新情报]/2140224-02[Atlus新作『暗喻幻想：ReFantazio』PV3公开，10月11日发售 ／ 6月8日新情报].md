@@ -2966,3 +2966,46 @@ PC版中途切出游戏后再进入，所有按键提示都变成键盘的了，
 
 —— 来自 OPPO PCCM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  linyc0010  
+##### 1763#       发表于 2024-10-12 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66429548&amp;ptid=2140224" target="_blank">体质的错 发表于 2024-10-12 00:08</a>
+
+那么，有mod可以移除跑步速度线、动态模糊、以太粒子特效、人物尾气，并且降低场景锐化了吗？
+
+游戏好玩又 ...</blockquote>
+3DM有人搬运了，可用
+
+*****
+
+####  体质的错  
+##### 1764#       发表于 2024-10-12 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66429652&amp;ptid=2140224" target="_blank">linyc0010 发表于 2024-10-11 12:28</a>
+
+3DM有人搬运了，可用</blockquote>
+嗯，我也找到了
+
+[https://github.com/Lyall/MetaphorFix](https://github.com/Lyall/MetaphorFix)
+
+
+*****
+
+####  saverok  
+##### 1765#       发表于 2024-10-12 00:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">第二章了 这傻逼ui和颜色眼睛疼 歇了
+
+*****
+
+####  shinra-01  
+##### 1766#       发表于 2024-10-12 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66428898&amp;ptid=2140224" target="_blank">dfdddfdd 发表于 2024-10-11 22:32</a>
+
+这游戏ps5有hdr吗？电视自动跳进hdr了感觉怪怪的</blockquote>
+这游戏没做hdr，PS5界面是HDR的话进游戏应该是自动跳进SDR了，但如果PS5设置的是无论有没有HDR一律开启，按理进游戏是不会跳一下的，这种模式下没HDR的游戏会很怪，会整体偏暗
+

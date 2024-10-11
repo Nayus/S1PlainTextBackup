@@ -6272,3 +6272,30 @@ szh真疯魔了这也封<img src="https://static.saraba1st.com/image/smiley/face
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">通了，怎么说呢，最后实在是太钦定了，也不知道下一作要等多久了
 
+
+*****
+
+####  shumabaoz  
+##### 6508#       发表于 2024-10-12 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66429632&amp;ptid=2160194" target="_blank">椎名mahuyo 发表于 2024-10-12 00:24</a>
+
+通了，怎么说呢，最后实在是太钦定了，也不知道下一作要等多久了</blockquote>
+所以我不理解为啥很多人还是觉得下作会端水,在我来看下作别管羁绊剧情怎么出,结局都已经定死了啊.
+
+*****
+
+####  swordofsoul1  
+##### 6509#       发表于 2024-10-12 00:35
+
+你法好像没和谐角色胖次的习惯，所有女角色的胖次（包括幼女）都是胖次而不是安全裤
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  black  
+##### 6510#       发表于 2024-10-12 00:36
+
+这明明是眼红风轨聚聚月入一达不溜北京硬盘大少的身份
+

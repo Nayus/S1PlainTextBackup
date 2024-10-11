@@ -10560,3 +10560,31 @@ for 2025了，我先盲猜一个力儿八实装团名歌吧<img src="https://sta
 因为目前看过的repo好像还真没人提到这首歌是剧场版出现过的，你这个是第一次听到 ...</blockquote>
 之前我在楼里搬的长条repo就来自这位群友，这首歌的事也是他下午才在群里讲
 
+
+*****
+
+####  NODY  
+##### 24561#       发表于 2024-10-11 18:59
+
+看了一下这个mv，海铃支援那个乐队居然有两个成员露脸而且有好几个镜头，不是以后要出场的话真的没必要做这么详细的设定吧
+
+
+*****
+
+####  御幸一也  
+##### 24562#       发表于 2024-10-11 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66427124&amp;ptid=2159415" target="_blank">NODY 发表于 2024-10-11 18:34</a>
+
+什么意思，剧场版ed在剧情里面有出现而且是猫写的？
+
+那怎么还有一堆人认为这是怀念crychic的歌，不该是猫的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">這就是C遺老呀 怎麼 你不服氣？
+
+*****
+
+####  Aendst  
+##### 24563#       发表于 2024-10-11 19:07
+
+姨姥偷歌也不是一次两次了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

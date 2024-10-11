@@ -2212,3 +2212,27 @@ se好好看别人销量的一桌<img src="https://static.saraba1st.com/image/smi
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  Piano-Forest  
+##### 1692#         楼主| 发表于 2024-10-11 19:01
+
+[https://x.com/FiFS_nono/status/1844639003007688728](https://x.com/FiFS_nono/status/1844639003007688728)
+
+『メタファー：リファンタジオ』
+
+発売おめでとうございます！！
+
+FiFSも会話時などに表示されるバストアップイラストの作画で参加させていただきました。
+
+どうぞよろしくお願いします！
+<img src="https://p.sda1.dev/19/c4c38717e19be3dcd1b7e34623c21f49/20241011_185928.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  chenzhi11  
+##### 1693#       发表于 2024-10-11 19:04
+
+一路推主线等级都挺低后面有点受苦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -434,3 +434,13 @@ demo不能选最高难度，那个难度是不是有些什么奖励</blockquote>
 
 可以说桥野自己抽走剧本骨干和一部分美术骨干这事才是P5及其后续的P组作品崩了的根本原因，P-LIVE的主视觉图质量下跌也很明显，到现在也没缓过来，只是和田在访谈里的各种奇谈怪论替桥野把火力全吸引过去了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罗克萨斯  
+##### 1525#       发表于 2024-10-11 09:14
+
+不出所料一堆喷画质和优化的，只能说不升级引擎被骂活该了，路人对画面可没那么宽容，就这卖相ATLUS还梦想着扩圈呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

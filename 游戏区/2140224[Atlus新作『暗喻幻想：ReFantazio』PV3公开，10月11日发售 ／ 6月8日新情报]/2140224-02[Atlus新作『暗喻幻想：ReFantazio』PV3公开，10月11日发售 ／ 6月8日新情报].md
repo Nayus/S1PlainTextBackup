@@ -3143,3 +3143,11 @@ pc版声音很小，有调整方法吗</blockquote>
 你怎么评价p5r呢？
 想了解下口味对不对的上
 
+
+*****
+
+####  zing223  
+##### 1780#       发表于 2024-10-12 05:45
+
+随口吐槽一下，一开始入队的两个队友一个斯特罗尔一个霍肯伯格……<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

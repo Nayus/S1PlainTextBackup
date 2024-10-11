@@ -369,3 +369,60 @@ PS5日服11点玩到刚刚1点
 
 steam几点解锁
 
+
+*****
+
+####  罗克萨斯  
+##### 1519#       发表于 2024-10-11 08:48
+
+直接继承demo存档会不会错过什么东西？等一个解答，虽然从头玩也不费事
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  yangkaim4  
+##### 1520#       发表于 2024-10-11 08:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66421696&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-10-11 08:48</a>
+
+直接继承demo存档会不会错过什么东西？等一个解答，虽然从头玩也不费事
+
+—— 来自 S1Fun ...</blockquote>
+demo不能选最高难度，那个难度是不是有些什么奖励
+
+
+*****
+
+####  kuarwbwe  
+##### 1521#       发表于 2024-10-11 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66421703&amp;ptid=2140224" target="_blank">yangkaim4 发表于 2024-10-11 08:49</a>
+
+demo不能选最高难度，那个难度是不是有些什么奖励</blockquote>
+应该是给你二周目解锁吧。
+
+*****
+
+####  kuarwbwe  
+##### 1522#       发表于 2024-10-11 08:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66421696&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-10-11 08:48</a>
+
+直接继承demo存档会不会错过什么东西？等一个解答，虽然从头玩也不费事
+
+—— 来自 S1Fun ...</blockquote>
+似乎没人说会错过啥，但是隔壁nga有人说会有bug影响玩游戏。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kuarwbwe  
+##### 1523#       发表于 2024-10-11 08:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66421473&amp;ptid=2140224" target="_blank">哎哟卧槽了 发表于 2024-10-11 08:07</a>
+
+所以說玩無印就夠了，也就是人性化設計差一些，但現在白菜價啊
+
+—— 來自 LENOVO Lenovo TB-8703X, Andr ...</blockquote>
+皇家版可以直接走原版剧情的啊，别把丸喜的coop升满就行了。
+

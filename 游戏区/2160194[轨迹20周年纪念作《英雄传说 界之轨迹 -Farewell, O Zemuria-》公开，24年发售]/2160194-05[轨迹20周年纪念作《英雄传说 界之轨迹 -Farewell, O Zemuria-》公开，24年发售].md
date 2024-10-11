@@ -5770,3 +5770,125 @@ ss魔法克洛诺斯封技让对面无技可出，后期堆回避率效果也很
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  windtrack_qh  
+##### 6466#       发表于 2024-10-11 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66419899&amp;ptid=2160194" target="_blank">lxshhh 发表于 2024-10-10 21:58</a>
+
+剑女平时就靠老板娘远程查岗是吧..</blockquote>
+说起来也没提过剑女在首都住哪
+
+学妹有自家有宿舍、女演员有公寓还在所里蹭一套房，剑女总不能天天睡游击士协会吧，干脆也来开套房得了
+
+*****
+
+####  牧月萌  
+##### 6467#       发表于 2024-10-11 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66420651&amp;ptid=2160194" target="_blank">windtrack_qh 发表于 2024-10-11 00:08</a>
+说起来也没提过剑女在首都住哪
+
+学妹有自家有宿舍、女演员有公寓还在所里蹭一套房，剑女总不能天天睡游击 ...</blockquote>
+羁绊里说在泰雷尔租的房<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  kangkangsama  
+##### 6468#       发表于 2024-10-11 00:16
+
+ 本帖最后由 kangkangsama 于 2024-10-11 00:20 编辑 
+<blockquote>windtrack_qh 发表于 2024-10-11 00:08
+说起来也没提过剑女在首都住哪
+
+学妹有自家有宿舍、女演员有公寓还在所里蹭一套房，剑女总不能天天睡游击 ...</blockquote>
+
+羁绊1说去剑女家坐坐的时候好像在泰雷优？
+
+当然这不能说明剑女就住泰雷优就是了
+
+反正肯定不是河畔（黎1在河畔区回家要叫车）
+
+倒是朱迪斯明明都是同一时段的羁绊都是叫起家里坐坐
+
+朱迪斯就有完整的家的建模
+
+当然也的确一清二白
+
+剑女那边说叫起坐坐直接屏幕一黑
+
+*****
+
+####  windtrack_qh  
+##### 6469#       发表于 2024-10-11 00:26
+
+ 本帖最后由 windtrack_qh 于 2024-10-11 00:27 编辑 
+
+下作还得给约尔妲找房，餐厅楼上肉眼可见的不够用了，女演员这种自己有房的还不赶紧腾退<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+剑女也可以租过来嘛<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Kusabi  
+##### 6470#       发表于 2024-10-11 01:32
+
+女演员的家比较有生活气息，貌似格外用力做了
+
+*****
+
+####  隔壁老黄  
+##### 6471#       发表于 2024-10-11 02:44
+
+太特么恶心了，更新后把闪光羊的晶石给削成狗了<img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  Renes  
+##### 6472#       发表于 2024-10-11 02:44
+
+还是师父搬出去给年轻人腾位置吧，不过我记得波蕾特说过蒙马特还有空房，还有天台那个屋子的门应该还没开过呢吧。
+
+*****
+
+####  Renes  
+##### 6473#       发表于 2024-10-11 02:46
+
+削了多少？1.06还是999拉满 Overkill可以1000多
+
+*****
+
+####  隔壁老黄  
+##### 6474#       发表于 2024-10-11 02:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66421133&amp;ptid=2160194" target="_blank">Renes 发表于 2024-10-11 02:46</a>
+削了多少？1.06还是999拉满 Overkill可以1000多</blockquote>
+削成只有对应颜色晶石和钱出500多，其他都是0
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  隔壁老黄  
+##### 6475#       发表于 2024-10-11 02:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66421132&amp;ptid=2160194" target="_blank">Renes 发表于 2024-10-11 02:44</a>
+还是师父搬出去给年轻人腾位置吧，不过我记得波蕾特说过蒙马特还有空房，还有天台那个屋子的门应该还没开过 ...</blockquote>
+那个是仓库吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  jacket  
+##### 6476#       发表于 2024-10-11 08:47
+
+这赛事相关人员事先下注押自己队不违规吗！
+

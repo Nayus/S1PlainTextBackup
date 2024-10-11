@@ -469,3 +469,61 @@ xb3，八方和轨迹普普通通
 
 预购了，238买的cdkey。还是玩玩看了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Fuero  
+##### 1528#       发表于 2024-10-11 09:35
+
+这游戏的资产精度应该是for NS的吧，最后居然还没上
+
+*****
+
+####  莉可厨  
+##### 1529#       发表于 2024-10-11 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66422059&amp;ptid=2140224" target="_blank">Fuero 发表于 2024-10-11 09:35</a>
+这游戏的资产精度应该是for NS的吧，最后居然还没上</blockquote>
+数毛社说和p5用的一套技术架构<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉可厨  
+##### 1530#       发表于 2024-10-11 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66421570&amp;ptid=2140224" target="_blank">chenzhi11 发表于 2024-10-11 08:29</a>
+steam几点解锁</blockquote>
+12点来着
+
+*****
+
+####  抽烟的猴  
+##### 1531#       发表于 2024-10-11 09:39
+
+<blockquote>Fuero 发表于 2024-10-11 09:35
+这游戏的资产精度应该是for NS的吧，最后居然还没上</blockquote>
+舅舅说等着给ns2护航，不上ns
+
+
+*****
+
+####  忘却旋律  
+##### 1532#       发表于 2024-10-11 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66420824&amp;ptid=2140224" target="_blank">约翰里德 发表于 2024-10-11 00:47</a>
+
+等你们先行看效果决定买不买</blockquote>
+如果 不是最近实在没游戏玩 建议别买 云吧
+
+我就是不信邪 外加最近没什么游戏玩了  本想贼 暗喻和 界轨里选一个 考虑到 黎轨2我都没打完 外加轨迹这吊样，我就像试试 暗喻，然后PS5这 画面 建模 帧数 把我惊到了，我只能说你吧这游戏放NS上我会觉得 不错，放PS5上 普通版按卖我9000+日元 豪华版15000+日元 我可去你X的 ，这是我昨天11点解锁后 玩到1点左右的 初步感想
+
+*****
+
+####  忘却旋律  
+##### 1533#       发表于 2024-10-11 09:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66422087&amp;ptid=2140224" target="_blank">莉可厨 发表于 2024-10-11 09:37</a>
+
+数毛社说和p5用的一套技术架构</blockquote>
+但有一句说一句  P5画面 可比暗喻舒服多了 包括建模
+

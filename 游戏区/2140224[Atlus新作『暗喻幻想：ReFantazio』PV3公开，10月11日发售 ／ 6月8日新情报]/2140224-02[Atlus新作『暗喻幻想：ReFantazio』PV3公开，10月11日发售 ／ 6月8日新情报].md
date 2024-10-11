@@ -2823,3 +2823,18 @@ pc版声音很小，有调整方法吗
 
 2024-10-11 23:10 上传
 
+
+*****
+
+####  walfeds  
+##### 1750#       发表于 2024-10-11 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66428805&amp;ptid=2140224" target="_blank">u2deack 发表于 2024-10-11 22:18</a>
+
+怎么我用deck玩之前把demo删了正式版进去连存档都没了的</blockquote>
+steamdeck限定经典虚拟路径问题，没专门适配就要手动搬存档
+
+compatdata/3130330/pfx/drive_c/users/steamuser/Application Data/SEGA/ 搬到
+
+compatdata/2679460/pfx/drive_c/users/steamuser/Application Data/SEGA/
+

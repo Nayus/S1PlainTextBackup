@@ -11032,3 +11032,23 @@ disruption的详细设定，只有吉他主唱和鼓，缺贝斯，这设定就�
 说实话 狗u大战姨姥我只想看戏，你鸡那是刚刚出生还不熟的商业乐队，还真不需要非要和ccc比个高下不可；从 ...</blockquote>
 你为什么觉得要拆散狗团的是狗u<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不接受这个归类好吧
 
+
+*****
+
+####  NODY  
+##### 24605#       发表于 2024-10-11 23:17
+
+隔壁翻到的这个海铃的假药倒是蛮有意思的
+
+大意是海铃憧憬这个乐队所以私服风格也是照着来的，然后根据海铃有时候会只穿校服去支援，猜测海铃对于比较重视的乐队（disruption和mujica）会特地换私服，没那么重要的就穿校服
+
+海铃要真是那种对于比较看重的乐队会特地打扮得帅一点再去的性格，还挺符合梦以说的“海铃在明年动画大致上还是那个样子但有意外的一面”的
+
+<img src="https://img.saraba1st.com/forum/202410/11/231737rslp742124sa2spr.png" referrerpolicy="no-referrer">
+
+<strong>无标题.png</strong> (69.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-11 23:17 上传
+

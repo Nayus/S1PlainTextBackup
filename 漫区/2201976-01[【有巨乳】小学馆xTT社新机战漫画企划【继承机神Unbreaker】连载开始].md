@@ -463,3 +463,13 @@ https://m.weibo.cn/6981601982/5086136055893481
 
 话说合体后出人脸也太蓝光人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  JuicyJuice  
+##### 42#         楼主| 发表于 2024-10-11 23:15
+
+<blockquote>创始’’’天翔 发表于 2024-10-11 22:34
+玩具出了吗</blockquote>
+好像还没动静
+

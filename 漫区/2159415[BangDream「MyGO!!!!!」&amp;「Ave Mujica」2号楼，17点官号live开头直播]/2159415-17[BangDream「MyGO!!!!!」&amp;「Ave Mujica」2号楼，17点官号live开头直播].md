@@ -10534,3 +10534,29 @@ for 2025了，我先盲猜一个力儿八实装团名歌吧<img src="https://sta
 
 狗u也要自信啊，这么大个标明了mygo的歌，别拱手让人啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 24559#       发表于 2024-10-11 18:48
+
+ 本帖最后由 NODY 于 2024-10-11 18:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66427229&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-10-11 18:43</a>
+
+【但这首歌旋律在剧情里完全是猫自己即兴的】
+
+这是现地群友原话</blockquote>
+因为目前看过的repo好像还真没人提到这首歌是剧场版出现过的，你这个是第一次听到
+
+要早知道这歌是猫写的估计狗厨就不会整天在那骂制作组姨姥多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 24560#       发表于 2024-10-11 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66427272&amp;ptid=2159415" target="_blank">NODY 发表于 2024-10-11 18:48</a>
+
+因为目前看过的repo好像还真没人提到这首歌是剧场版出现过的，你这个是第一次听到 ...</blockquote>
+之前我在楼里搬的长条repo就来自这位群友，这首歌的事也是他下午才在群里讲
+

@@ -6121,3 +6121,34 @@ ss魔法克洛诺斯封技让对面无技可出，后期堆回避率效果也很
 
 查看全部评分
 
+
+*****
+
+####  lxshhh  
+##### 6493#       发表于 2024-10-11 16:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/259.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202410/11/165231ul4az0iaipgbjmla.png" referrerpolicy="no-referrer">
+
+<strong>欢乐1.png</strong> (38.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-11 16:52 上传
+
+<img src="https://img.saraba1st.com/forum/202410/11/165233ta8c9ait3o9thtxa.png" referrerpolicy="no-referrer">
+
+<strong>欢乐2.png</strong> (149.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-11 16:52 上传
+
+*****
+
+####  卡拉德利姆  
+##### 6494#       发表于 2024-10-11 16:55
+
+szh是疯了吗？讲个段子也能封？
+

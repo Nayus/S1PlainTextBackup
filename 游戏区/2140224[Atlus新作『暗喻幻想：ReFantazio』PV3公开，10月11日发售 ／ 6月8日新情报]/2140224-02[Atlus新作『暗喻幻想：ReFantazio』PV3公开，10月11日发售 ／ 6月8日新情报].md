@@ -3033,3 +3033,31 @@ PC版中途切出游戏后再进入，所有按键提示都变成键盘的了，
 
 不过我没用不知道效果，可能我TM已经适应了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  johanliebert  
+##### 1769#       发表于 2024-10-12 01:00
+
+MetaphorFix把阴影分辨率改到1024以后，帧率翻了几乎1.5倍，Deck 城里最卡的那段大道都能跑到45了
+
+
+*****
+
+####  hkguty  
+##### 1770#       发表于 2024-10-12 01:04
+
+同级怪摸一下就劣势开局真tm是个傻逼设定，怪一堆一堆的放，还老被画面外的怪摸到
+
+*****
+
+####  猪突猛进  
+##### 1771#       发表于 2024-10-12 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66429210&amp;ptid=2140224" target="_blank">w酱 发表于 2024-10-11 23:07</a>
+
+pc版声音很小，有调整方法吗</blockquote>
+下载FxSound，不需要设置。
+
+如果还不行，在游戏里声音设置再选一次FxSound。
+

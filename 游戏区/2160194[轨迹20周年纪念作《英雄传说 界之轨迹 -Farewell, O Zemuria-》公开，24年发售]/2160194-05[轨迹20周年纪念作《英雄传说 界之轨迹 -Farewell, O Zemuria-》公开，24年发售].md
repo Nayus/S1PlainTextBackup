@@ -6014,3 +6014,18 @@ ss魔法克洛诺斯封技让对面无技可出，后期堆回避率效果也很
 
 师姐参战那段文字框演出挺有意思，故意重复了一遍
 
+
+*****
+
+####  tmmd  
+##### 6489#       发表于 2024-10-11 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66420720&amp;ptid=2160194" target="_blank">windtrack_qh 发表于 2024-10-11 00:26</a>
+
+下作还得给约尔妲找房，餐厅楼上肉眼可见的不够用了，女演员这种自己有房的还不赶紧腾退
+
+剑女也可以租过来 ...</blockquote>
+学黎2把师傅赶走 
+
+另外 其实楼顶靠近房东那边有个小房,就是从面积上来讲有点小
+

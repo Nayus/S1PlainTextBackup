@@ -90,3 +90,14 @@
 
 求禁直女拉娘好吗，现在不是有专门的拉娘厕了吗 ​​​
 
+
+*****
+
+####  虚无缥缈的分身  
+##### 1486#       发表于 2024-10-11 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66429184&amp;ptid=2186915" target="_blank">DET 发表于 2024-10-11 23:04</a>
+
+饱饱今天怎么拉这么多</blockquote>
+可能是楼主对游戏里下一个箱活，自己大概率即将和粉毛人妖高浓度cp营业感到焦虑吧
+

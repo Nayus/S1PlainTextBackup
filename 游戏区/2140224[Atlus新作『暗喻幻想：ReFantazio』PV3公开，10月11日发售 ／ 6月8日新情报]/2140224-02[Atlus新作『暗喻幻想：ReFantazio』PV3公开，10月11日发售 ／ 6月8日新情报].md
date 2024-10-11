@@ -2846,3 +2846,26 @@ compatdata/2679460/pfx/drive_c/users/steamuser/Application Data/SEGA/
 
 教堂里面锁着的门和冒黑气的门第一遍能进去么  打完还能回去么
 
+
+*****
+
+####  binggo12  
+##### 1752#       发表于 2024-10-12 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66428647&amp;ptid=2140224" target="_blank">Khellendros 发表于 2024-10-11 21:54</a>
+
+草，铁架战车外面的场景能绷住的都是神人了，话说场景这么空为啥要加载四五秒…… ...</blockquote>
+开头和受伤士兵对话都能来个黑屏
+
+
+*****
+
+####  u2deack  
+##### 1753#       发表于 2024-10-12 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66429294&amp;ptid=2140224" target="_blank">walfeds 发表于 2024-10-11 23:24</a>
+steamdeck限定经典虚拟路径问题，没专门适配就要手动搬存档
+
+compatdata/3130330/pfx/drive_c/users/steamu ...</blockquote>
+感谢 不过我已经重开了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+

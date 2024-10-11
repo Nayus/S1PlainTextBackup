@@ -6256,3 +6256,11 @@ szh疯狗也不是一天两天了，现在外野那群贵物搞得乌烟瘴气sz
 
 szh真疯魔了这也封<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jacket  
+##### 6506#       发表于 2024-10-11 23:57
+
+每次碰到能量饮料摊位做活动，免费送你几罐但由于满状态又喝不了，于是当场卖回给摊位商人。
+

@@ -1732,3 +1732,34 @@ P5的第一章也没几个JRPG比得上吧，LIFE WILL CHANGE一响起来，没�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  katern  
+##### 1646#       发表于 2024-10-11 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66425036&amp;ptid=2140224" target="_blank">2015年入股市 发表于 2024-10-11 14:56</a>
+
+请问是windows自己的图像设置还是显卡的图像设置？</blockquote>
+windows的
+
+*****
+
+####  katern  
+##### 1647#       发表于 2024-10-11 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66425496&amp;ptid=2140224" target="_blank">半江瑟瑟半江红 发表于 2024-10-11 15:46</a>
+
+整个游戏玩起来感觉很不流畅，明明帧率没问题
+
+—— 来自 鹅球 v3.1.91-alpha</blockquote>
+画面细节太多了，ui也是花里胡哨的没有辨识度，而且有点糊，看着很难受
+
+
+*****
+
+####  出轨的三头龙  
+##### 1648#       发表于 2024-10-11 16:03
+
+明智其实最大的问题是没写成美少女，别的问题不大。想到这里我就和解了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

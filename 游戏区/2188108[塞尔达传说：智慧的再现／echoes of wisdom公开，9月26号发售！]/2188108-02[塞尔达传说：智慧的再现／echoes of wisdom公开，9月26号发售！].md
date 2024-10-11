@@ -1857,3 +1857,15 @@ document.getElementById('flv_ALj').innerHTML=("");
 
 接下来看马路RPG卖相怎么样了, 不然真得等NS2出再买老任的游戏了
 
+
+*****
+
+####  otakun  
+##### 1649#       发表于 2024-10-11 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66425223&amp;ptid=2188108" target="_blank">Slyvan 发表于 2024-10-11 15:16</a>
+通关了,  在林克家放了张床保存结束
+
+打空无的时候太欢乐了,  单招蜥蜴人太无聊, 用了很多搭配打他 , 场面 ...</blockquote>
+打空无我也是放蜥蜴人然后拉手让林克砍，后面试着直接6回旋镖猪猪，手还没拉长被林克砍就潜地换阶段了，看来伤害并不低<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
+

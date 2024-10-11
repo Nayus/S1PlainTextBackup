@@ -10407,3 +10407,15 @@ for 2025了，我先盲猜一个力儿八实装团名歌吧<img src="https://sta
 
 鸡有直播也有录播（分开收费），ppp和蝶只有录播
 
+
+*****
+
+####  傘木希美  
+##### 24548#       发表于 2024-10-11 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66426585&amp;ptid=2159415" target="_blank">桜庭千景 发表于 2024-10-11 17:38</a>
+鸡有直播也有录播（分开收费），ppp和蝶只有录播</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">找到了，那就是直播大航海138，录播198？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

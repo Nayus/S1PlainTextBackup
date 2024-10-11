@@ -5971,3 +5971,11 @@ ss魔法克洛诺斯封技让对面无技可出，后期堆回避率效果也很
 
 宇宙偶像二人组的裙子特别短，原地站着就能走光
 
+
+*****
+
+####  nerugigannte  
+##### 6484#       发表于 2024-10-11 15:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有什么例の かの 应该都整合到第一行里去
+

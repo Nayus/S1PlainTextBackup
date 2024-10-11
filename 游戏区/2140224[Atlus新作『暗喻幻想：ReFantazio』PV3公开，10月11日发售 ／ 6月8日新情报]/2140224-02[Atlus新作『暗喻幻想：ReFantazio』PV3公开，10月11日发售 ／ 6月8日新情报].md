@@ -1622,3 +1622,14 @@ steam现在90%好评
 steam现在90%好评</blockquote>
 玩了试玩加上首发的基本都是粉丝都是好评吧，10%是优化问题
 
+
+*****
+
+####  そらたかく  
+##### 1636#       发表于 2024-10-11 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66425049&amp;ptid=2140224" target="_blank">蒼銀 发表于 2024-10-11 14:57</a>
+
+打完第一章了，这剧情有点难崩，台词写的太典了，看下来没有任何波动。昨晚我还特意去回顾了下p5r第一章， ...</blockquote>
+P5的第一章也没几个JRPG比得上吧，LIFE WILL CHANGE一响起来，没人能忍住不冲上楼顶暴打鸭某人。
+

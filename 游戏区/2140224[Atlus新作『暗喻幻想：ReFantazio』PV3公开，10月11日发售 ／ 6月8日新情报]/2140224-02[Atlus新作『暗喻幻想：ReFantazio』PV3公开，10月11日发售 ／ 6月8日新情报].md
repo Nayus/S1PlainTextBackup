@@ -1130,3 +1130,68 @@ So the game isn’t making strides in how Atlus represents queer people in its w
 
 看原文政确人士的奇葩视角当个笑话看也不难，主要就少了传统日式下neta的部分，举例子举半天举了个机性恋和偶像出反差萌当进步性闹麻了。怕是有些人只能看个标题看不了原文
 
+
+*****
+
+####  莉可厨  
+##### 1588#       发表于 2024-10-11 12:08
+
+80G解包，笔记本你动一下啊<img src="https://static.saraba1st.com/image/smiley/face/92.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  hirro  
+##### 1589#       发表于 2024-10-11 12:08
+
+一个外行问题：
+
+这个日期和时间，对我自由度的限制有多大？会不会有很大的fomo成分？要严格按照时间表情动才能全触发、全收集的话我就不买了
+
+*****
+
+####  walfeds  
+##### 1590#       发表于 2024-10-11 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66423575&amp;ptid=2140224" target="_blank">Dreammask 发表于 2024-10-11 12:01</a>
+
+角色设计特意说了是参考swinging sixties（准确点是swinging london）的风格，只能说放现在看也挺先锋的… ...</blockquote>
+从宣发开始已经肉眼可见的创死一片了
+
+解压完了，启动
+
+*****
+
+####  罗克萨斯  
+##### 1591#       发表于 2024-10-11 12:11
+
+看到欧美玩家为本作没有感情线而叫好觉得很奇怪，结果欧美媒体比如这个kotaku也是这个意思，玩家和媒体都不太待见恋爱要素的样子，国内玩家眼里的扣分项在那边倒成加分项了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  baizhi  
+##### 1592#       发表于 2024-10-11 12:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">借用一句话，在讨论优劣之前，销量打得过阿特拉斯吗？这是我最新学到的销量决定论。
+
+—— 来自 OPPO PGBM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  88ace88  
+##### 1593#       发表于 2024-10-11 12:14
+
+要觉得没有恋爱元素是加分项，有是扣分项倒也行，但这就让当初p345的高分成了笑话，就不知道该说这帮人是双标还是孝了。
+
+*****
+
+####  莉可厨  
+##### 1594#       发表于 2024-10-11 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66423667&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-10-11 12:11</a>
+
+看到欧美玩家为本作没有感情线而叫好觉得很奇怪，结果欧美媒体比如这个kotaku也是这个意思，玩家和媒体都不 ...</blockquote>
+国人肯定还是喜欢有感情线的，白皮那边只想看正统成王公路片的人还挺多的
+

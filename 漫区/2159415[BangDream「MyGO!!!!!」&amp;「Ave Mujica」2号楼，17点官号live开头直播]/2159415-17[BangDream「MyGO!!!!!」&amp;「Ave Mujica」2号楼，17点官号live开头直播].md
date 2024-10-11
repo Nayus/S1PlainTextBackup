@@ -10306,3 +10306,38 @@ for 2025了，我先盲猜一个力儿八实装团名歌吧<img src="https://sta
 
 [https://x.com/saayarimi/status/1828336928380624933](https://x.com/saayarimi/status/1828336928380624933)
 
+
+*****
+
+####  NODY  
+##### 24539#       发表于 2024-10-11 13:07
+
+<img src="https://img.saraba1st.com/forum/202410/11/130740o7nr0byiityzrysj.png" referrerpolicy="no-referrer">
+
+<strong>无标题.png</strong> (46 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-11 13:07 上传
+
+<img src="https://img.saraba1st.com/forum/202410/11/130745bettl9um4oe9llot.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20231008012333.png</strong> (56.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-11 13:07 上传
+
+
+*****
+
+####  紫吹兰  
+##### 24540#         楼主| 发表于 2024-10-11 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66421141&amp;ptid=2159415" target="_blank">苹果皮卡丘 发表于 2024-10-11 02:52</a>
+
+我的妈
+
+七月份的时候延迟一年看完了GO的动画片</blockquote>
+其实还有三号楼和四号楼，不过都是论坛bug期间的产物，没有夺走二号楼的天命
+

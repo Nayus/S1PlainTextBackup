@@ -1287,3 +1287,20 @@ So the game isn’t making strides in how Atlus represents queer people in its w
 
 另外这个战斗系统真的有点难受，原野战斗手感差又没容错，被摸到直接进回合制，h难度被抢了先手真的不用打了，打杂兵后手都要吃大战损，精英怪基本进去直接减员，基本上被抢了先手只能重开游戏了，还好自动存档存的比较频繁不太会丢进度<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">而且精英怪人均会aoe，h难度还多个行动点根本不敢让他出手，那只能战前打进break了
 
+
+*****
+
+####  空气先生  
+##### 1603#       发表于 2024-10-11 13:05
+
+试玩版存档在哪里继承
+
+*****
+
+####  walfeds  
+##### 1604#       发表于 2024-10-11 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66424171&amp;ptid=2140224" target="_blank">空气先生 发表于 2024-10-11 13:05</a>
+试玩版存档在哪里继承</blockquote>
+开游戏自动跳提示
+

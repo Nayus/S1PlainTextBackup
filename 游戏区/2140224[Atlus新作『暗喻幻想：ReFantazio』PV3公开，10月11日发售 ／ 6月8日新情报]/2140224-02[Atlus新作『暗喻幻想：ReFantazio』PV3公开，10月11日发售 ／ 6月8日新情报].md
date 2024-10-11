@@ -729,3 +729,48 @@ atlus的精英尽出怎么搞到还不如gust和轨迹的
 
 西方媒体又死命打脸的一集。
 
+
+*****
+
+####  kuarwbwe  
+##### 1551#       发表于 2024-10-11 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66422516&amp;ptid=2140224" target="_blank">抽烟的猴 发表于 2024-10-11 10:22</a>
+3D建模演出，2D动画演出和2D头像一锅炖，本来是十几年前技术力不足时的无奈选择
+
+2024年大多数游戏的技术 ...</blockquote>
+其实最典的是真5他们就已经能做到了，到暗喻幻想又退回去了就很说不出话。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  windtrack_qh  
+##### 1552#       发表于 2024-10-11 10:27
+
+轨迹有十胜而暗喻有十败
+轨迹廿年剧情连贯此为一胜，暗喻豪无前作铺垫此为一败
+轨迹战斗无缝切换此为二胜，暗喻战斗仍要切屏此为二败
+轨迹动作手感爽快此为三胜，暗喻手感僵硬粗糙此为三败
+轨迹可控角色众多此为四胜，暗喻队友数量不足此为四败
+轨迹NPC描写生动此为五胜，暗喻NPC台词复读此为五败
+轨迹幻想科技结合此为六胜，暗喻烂俗西幻背景此为六败
+轨迹动捕过场演出此为七胜，暗喻过时动画播片此为七败
+轨迹内裤细节拉满此为八胜，暗喻底裤好似黑洞此为八败
+轨迹系统不忘创新此为九胜，暗喻系统仍吃老本此为九败
+轨迹有九胜而无一败为十胜，暗喻有九败而无一胜为十败
+此轨迹胜十也，有此十胜，于以败暗喻无难矣
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Dreammask  
+##### 1553#       发表于 2024-10-11 10:32
+
+我当然清楚了，副岛至少P4G（不包括）之后就只是人设和外宣图画师了，表现也基本是一眼能见的单图层作画，实际下手的美术工作基本是交给织部岛田香林三位助手做的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+剧本骨干迁走直接看以前的采访都行，给个木户梓女士的采访，编号临近de能找到不少老面孔：[https://mynavi-creator.jp/blog/article/creators-file-0034](https://mynavi-creator.jp/blog/article/creators-file-0034)
+
+美术我确实是基于P系列全家桶那张三代主角对P3视觉的拙劣模仿，以及后来的P25thfes的某张视觉图+P3R基本没走之前的视觉风格猜测的，否则至少是无法解释全家桶那张差劲到极点的氛围塑造
+

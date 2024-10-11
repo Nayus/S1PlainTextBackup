@@ -320,3 +320,33 @@ SJ3がスタートした。今回のフィールドは四方を海に囲まれ�
 [https://www.youtube.com/watch?v=du4Cczs_Q-M](https://www.youtube.com/watch?v=du4Cczs_Q-M)
 [https://gungale-online.net/story/?id=ep02](https://gungale-online.net/story/?id=ep02)
 
+
+*****
+
+####  小比類巻香蓮  
+##### 1910#         楼主| 发表于 2024-10-11 23:48
+
+<img src="https://img.saraba1st.com/forum/202410/11/234746cggo9ab5fxd22cj9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (736.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-11 23:47 上传
+
+黒星紅白@kuroboshi
+
+ガンゲイル・オンラインⅡ　2話このあと24時！　備えるっきゃない！！　10/11｜24:00 TOKYO MXほかにて放送 ABEMAにて単独最速配信 #ggo_anime
+
+<img src="https://img.saraba1st.com/forum/202410/11/234738k5xtxdqx2j5o5ttx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.54 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-11 23:47 上传
+
+▌第2話 アイキャッチイラスト
+
+へちま さん@hechima10040
+

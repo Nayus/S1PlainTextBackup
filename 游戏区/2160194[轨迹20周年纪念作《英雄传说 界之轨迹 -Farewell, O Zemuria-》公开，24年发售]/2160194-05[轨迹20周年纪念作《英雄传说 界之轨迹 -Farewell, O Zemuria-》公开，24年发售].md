@@ -6334,3 +6334,104 @@ szh真疯魔了这也封<img src="https://static.saraba1st.com/image/smiley/face
 为了截这图读档重打了一遍任务，一闪而过
 <img src="https://s2.loli.net/2024/10/12/udTNywl3nJs9gZc.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SuNR1sE364  
+##### 6515#       发表于 2024-10-11 23:39
+
+szh真疯魔了这也封<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jacket  
+##### 6516#       发表于 2024-10-11 23:57
+
+每次碰到能量饮料摊位做活动，免费送你几罐但由于满状态又喝不了，于是当场卖回给摊位商人。
+
+*****
+
+####  椎名mahuyo  
+##### 6517#       发表于 2024-10-12 00:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">通了，怎么说呢，最后实在是太钦定了，也不知道下一作要等多久了
+
+*****
+
+####  shumabaoz  
+##### 6518#       发表于 2024-10-12 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66429632&amp;ptid=2160194" target="_blank">椎名mahuyo 发表于 2024-10-12 00:24</a>
+
+通了，怎么说呢，最后实在是太钦定了，也不知道下一作要等多久了</blockquote>
+所以我不理解为啥很多人还是觉得下作会端水,在我来看下作别管羁绊剧情怎么出,结局都已经定死了啊.
+
+*****
+
+####  swordofsoul1  
+##### 6519#       发表于 2024-10-12 00:35
+
+你法好像没和谐角色胖次的习惯，所有女角色的胖次（包括幼女）都是胖次而不是安全裤
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  black  
+##### 6520#       发表于 2024-10-12 00:36
+
+这明明是眼红风轨聚聚月入一达不溜北京硬盘大少的身份
+
+
+*****
+
+####  椎名mahuyo  
+##### 6521#       发表于 2024-10-12 00:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下作干脆让VAN挂在时至宝上吧，不过感觉有点悲情，作为剥离恶魔代价直接转生小孩子也行，这样至少端水了不用思考感情线了
+
+*****
+
+####  SuNR1sE364  
+##### 6522#       发表于 2024-10-12 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66429691&amp;ptid=2160194" target="_blank">椎名mahuyo 发表于 2024-10-12 00:38</a>
+下作干脆让VAN挂在时至宝上吧，不过感觉有点悲情，作为剥离恶魔代价直接转生小孩子也行，这样至少端水了不 ...</blockquote>
+转生小孩了那大集结篇怎么做<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 6523#       发表于 2024-10-12 02:16
+
+基萨拉不是诺州人吗，为什么开头说和艾妮亚一样是雷米菲利亚
+
+*****
+
+####  jacket  
+##### 6524#       发表于 2024-10-12 03:04
+
+为了截这图读档重打了一遍任务，一闪而过
+<img src="https://s2.loli.net/2024/10/12/udTNywl3nJs9gZc.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  jacket  
+##### 6525#       发表于 2024-10-12 05:26
+
+关于系数5.0内部成就，我是第三部先进葱头线看了拉碧丝的羁绊事件，拿到那个0.2驱动硬直的主回路再去做的。
+
+选速度最快的那批物理菜刀充当法师，武器用攻击力最低的，饰品用速度最快的。
+
+回路插满行动力、驱动、妨碍，以及时系两种刃，用时系那个直线B+的延迟法术作为主要攻击手段。
+
+<img src="https://s2.loli.net/2024/10/12/Ijp7aqQX2xPscfA.jpg" referrerpolicy="no-referrer">
+
+先进庭院刷问号被蛇咬成全员1血，出来存个盘，再进第5层找几只血厚的怪开打，难度调成hard就足够肉了。
+
+之后就是正常打，地图战把能干的事干一遍，打晕进回合战。
+
+开0.2驱动硬直放时系延迟法术，敌人动不了一点。之后对照系数列表把常规项目过一遍就行，没难度基本一遍成功。
+
+我看结算画面不知为何没算上ZOC相关项目，就这样也够5.0了。
+

@@ -1304,3 +1304,20 @@ So the game isn’t making strides in how Atlus represents queer people in its w
 试玩版存档在哪里继承</blockquote>
 开游戏自动跳提示
 
+
+*****
+
+####  医生狼多  
+##### 1605#       发表于 2024-10-11 13:31
+
+为什么开了这么多autosave但又不给迷宫随时存档还得进安全屋……？
+
+*****
+
+####  katern  
+##### 1606#       发表于 2024-10-11 13:33
+
+为什么这游戏pc全屏不了啊？只能1080
+
+p无边框，胡的要死是我的问题吗<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

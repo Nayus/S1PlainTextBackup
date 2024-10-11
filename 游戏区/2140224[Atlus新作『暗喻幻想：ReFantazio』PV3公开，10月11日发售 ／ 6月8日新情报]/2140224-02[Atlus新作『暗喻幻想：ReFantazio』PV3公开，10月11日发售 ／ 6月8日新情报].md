@@ -2253,3 +2253,23 @@ FiFSも会話時などに表示されるバストアップイラストの作画�
 一时间等不到官方提供关速度线设置的可以先用社区补丁
 另外推荐所有人关闭设置里的画面摇晃，应该能减轻锯齿感和疲劳感<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  地図と青い森  
+##### 1696#       发表于 2024-10-11 19:30
+
+这翻译错误都没人反映么……我以为至少正式版会修过来
+<img src="https://p.sda1.dev/19/05bdf2ec4e6004fdee701c84e29bc1aa/CMP_20241011192806327.jpg" referrerpolicy="no-referrer">
+另外特典服装战斗外不显示，白买了
+要是日常造型没纸娃娃的话有点离谱
+
+—— 来自 samsung SM-S9080, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ShiKi847  
+##### 1697#       发表于 2024-10-11 19:33
+
+为啥老鼠台才1w人看直播
+

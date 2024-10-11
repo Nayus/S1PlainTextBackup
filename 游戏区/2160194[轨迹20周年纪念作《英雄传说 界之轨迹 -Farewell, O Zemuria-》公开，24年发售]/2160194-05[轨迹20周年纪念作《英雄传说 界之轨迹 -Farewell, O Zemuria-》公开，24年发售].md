@@ -6037,3 +6037,67 @@ ss魔法克洛诺斯封技让对面无技可出，后期堆回避率效果也很
 
 萌主在台词里混到个出场机会
 
+
+*****
+
+####  lxshhh  
+##### 6491#       发表于 2024-10-11 16:33
+
+基于[@kenqqex](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=113768) 进行轨语补完计划！
+
+<img src="https://img.saraba1st.com/forum/202410/11/163329mbb5bbcdbwbzdayy.png" referrerpolicy="no-referrer">
+
+<strong>PCA.png</strong> (33.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-11 16:33 上传
+
+<img src="https://img.saraba1st.com/forum/202410/11/163330hluslk4r4bu5sidy.png" referrerpolicy="no-referrer">
+
+<strong>plot1.png</strong> (333.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-11 16:33 上传
+
+<img src="https://img.saraba1st.com/forum/202410/11/163330hkqk16ocjqqhrkkq.png" referrerpolicy="no-referrer">
+
+<strong>plot2.png</strong> (320.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-11 16:33 上传
+
+<img src="https://img.saraba1st.com/forum/202410/11/163330y9lpnjyjl4ynol9l.png" referrerpolicy="no-referrer">
+
+<strong>predict1.png</strong> (136.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-11 16:33 上传
+
+<img src="https://img.saraba1st.com/forum/202410/11/163330odpiudwhncwwlawp.png" referrerpolicy="no-referrer">
+
+<strong>predict2.png</strong> (56.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-11 16:33 上传
+
+<img src="https://img.saraba1st.com/forum/202410/11/163331c4znt0syynwrwam6.png" referrerpolicy="no-referrer">
+
+<strong>predict3.png</strong> (204.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-11 16:33 上传
+
+<img src="https://img.saraba1st.com/forum/202410/11/163331ywgj34a71g1gmc3a.png" referrerpolicy="no-referrer">
+
+<strong>series_comparision.png</strong> (74.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-11 16:33 上传
+

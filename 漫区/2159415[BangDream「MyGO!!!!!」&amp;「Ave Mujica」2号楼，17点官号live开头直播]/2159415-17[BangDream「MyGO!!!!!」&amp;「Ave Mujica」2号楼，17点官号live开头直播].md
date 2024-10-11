@@ -10341,3 +10341,21 @@ for 2025了，我先盲猜一个力儿八实装团名歌吧<img src="https://sta
 七月份的时候延迟一年看完了GO的动画片</blockquote>
 其实还有三号楼和四号楼，不过都是论坛bug期间的产物，没有夺走二号楼的天命
 
+
+*****
+
+####  御幸一也  
+##### 24541#       发表于 2024-10-11 16:37
+
+後天就能看3rd了！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202410/11/163651irzjdpnpqnjdr9ip.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_佐々木李子(@sasakirico)_20241011-083610_1844658235678318658_photo.jpg</strong> (196.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-11 16:36 上传
+
+[https://x.com/sasakirico/status/1844658235678318658](https://x.com/sasakirico/status/1844658235678318658)
+

@@ -1884,3 +1884,40 @@ a凯子想买了，所以剧本啥水平
 
 都玩过的怎么说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  医生狼多  
+##### 1658#       发表于 2024-10-11 16:26
+
+黑屏，ui动效，黑屏，ui动效这套下来不觉得粘着才怪
+
+*****
+
+####  kuarwbwe  
+##### 1659#       发表于 2024-10-11 16:30
+
+ 本帖最后由 kuarwbwe 于 2024-10-11 16:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66425812&amp;ptid=2140224" target="_blank">出轨的三头龙 发表于 2024-10-11 16:21</a>
+
+a凯子想买了，所以剧本啥水平</blockquote>
+我知道的。这楼玩过demo的基本不敢期待剧本。
+
+外媒这边ign吹了这游戏的political drama。ign、gs和vgc都吹了剧本和代入感。
+
+国内媒体，游民认为就是没有雷的破晓传说，剧本差强人意。A9盛赞剧本。ucg说剧本扎实稳健。
+
+接商单的自媒体这边，nga有两个，一个说剧本还不错，算言之有物。另一个说就是普通的王道剧本，不要期待太多。b站的pser_hanser说剧本还可以，没有类似明智的剧情。还有另一个up说会有争议剧情。
+
+*****
+
+####  dazzle  
+##### 1660#       发表于 2024-10-11 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66425812&amp;ptid=2140224" target="_blank">出轨的三头龙 发表于 2024-10-11 16:21</a>
+
+a凯子想买了，所以剧本啥水平</blockquote>
+打了6 7个小时，剧情和演出都相当烂，跟任何一作P都比不了
+
+我觉得这代当成纯粹的跑迷宫rpg玩起来还可以
+

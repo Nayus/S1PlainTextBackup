@@ -2485,3 +2485,15 @@ deck城里30-50浮动吧，迷宫内55-60，1280x720p，100%渲染，兼容层�
 </blockquote>
 牛头人迷宫在哪？我现在只能打死灵主线。
 
+
+*****
+
+####  kuarwbwe  
+##### 1717#       发表于 2024-10-11 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66428035&amp;ptid=2140224" target="_blank">operatbig 发表于 2024-10-11 20:32</a>
+牛头人迷宫在哪？我现在只能打死灵主线。</blockquote>
+把见识锻炼到2接黑皮老板支线。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

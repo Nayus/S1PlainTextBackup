@@ -1719,3 +1719,14 @@ LL的集换式卡牌还有cast卡，部分还有签名
 
 2024-10-11 19:58 上传
 
+
+*****
+
+####  csolfans  
+##### 168#       发表于 2024-10-11 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66427703&amp;ptid=2201887" target="_blank">离心 发表于 2024-10-11 19:52</a>
+
+惯例的6th巡演从3月东京代代木开始</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">千秋乐是周五周六 头疼
+

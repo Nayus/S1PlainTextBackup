@@ -10696,3 +10696,11 @@ for 2025了，我先盲猜一个力儿八实装团名歌吧<img src="https://sta
 
 只会打滚那确实在泥漏待不下去<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  极速赛车手  
+##### 24575#       发表于 2024-10-11 20:43
+
+姨姥已经把反对新曲和c团灯祥扯上关系的打成ylg了，感觉这届观众确实不把你企划当回事啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

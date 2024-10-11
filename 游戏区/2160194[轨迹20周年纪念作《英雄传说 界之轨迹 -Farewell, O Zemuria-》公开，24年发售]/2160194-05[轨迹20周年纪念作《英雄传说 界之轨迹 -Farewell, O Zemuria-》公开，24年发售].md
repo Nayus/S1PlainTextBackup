@@ -6220,3 +6220,15 @@ szh疯狗也不是一天两天了，现在外野那群贵物搞得乌烟瘴气sz
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  悠悠你心  
+##### 6502#       发表于 2024-10-11 18:31
+
+要是阿特拉斯的宣发给你法，早就吹上天了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当年冷饭p5r都能吹出花来，后面更上一层楼了。要说世嘉/阿特拉斯没给中国国内宣发经费我是不信的。
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

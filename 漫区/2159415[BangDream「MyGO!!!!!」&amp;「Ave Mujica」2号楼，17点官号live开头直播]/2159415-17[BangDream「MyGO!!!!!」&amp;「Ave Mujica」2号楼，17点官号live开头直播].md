@@ -10451,3 +10451,42 @@ for 2025了，我先盲猜一个力儿八实装团名歌吧<img src="https://sta
 可爱小猫<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/19/a387f66b944a0897fa46f329b3c8b2f4/IMG_20241011_171452.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 24552#       发表于 2024-10-11 18:27
+
+刷了好几次的现地群u说，在剧情里这首歌的旋律是【猫猫的即兴发挥】
+
+猫猫，即兴的神<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+*****
+
+####  名津流  
+##### 24553#       发表于 2024-10-11 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66421141&amp;ptid=2159415" target="_blank">苹果皮卡丘 发表于 2024-10-11 02:52</a>
+
+我的妈
+
+七月份的时候延迟一年看完了GO的动画片</blockquote>
+人才！漫区年度强者
+
+
+*****
+
+####  NODY  
+##### 24554#       发表于 2024-10-11 18:34
+
+什么意思，剧场版ed在剧情里面有出现而且是猫写的？
+
+那怎么还有一堆人认为这是怀念crychic的歌，不该是猫的歌吗
+
+*****
+
+####  hkguty  
+##### 24555#       发表于 2024-10-11 18:35
+
+斯科特造势开始了，最近都有让乐队成员晒吉他照
+

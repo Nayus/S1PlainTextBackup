@@ -2133,3 +2133,34 @@ atlus史上最快100万，如果销售速度不跳水的话超越单算的p5r应
 
 有没有用sd玩的说说正式版帧数如何，demo在补丁后也一般 城市和战斗出特效时候很不稳<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  土路生優里  
+##### 1684#       发表于 2024-10-11 18:30
+
+请问推图有啥好的回蓝手段吗，感觉蓝一直不够用<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+
+*****
+
+####  walfeds  
+##### 1685#       发表于 2024-10-11 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66427081&amp;ptid=2140224" target="_blank">土路生優里 发表于 2024-10-11 18:30</a>
+请问推图有啥好的回蓝手段吗，感觉蓝一直不够用
+
+—— 来自 鹅球 v3.1.90</blockquote>
+主角换术士扫图秒怪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">唯一指定轮椅就是有点废肝
+
+
+*****
+
+####  INDIASH  
+##### 1686#       发表于 2024-10-11 18:35
+
+感觉UI特效色调这些设计的都太杂了，眼花缭乱抓不到重点<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+之前试玩打到大教堂一半就开始头晕了，想买的还是要自己试玩一下
+

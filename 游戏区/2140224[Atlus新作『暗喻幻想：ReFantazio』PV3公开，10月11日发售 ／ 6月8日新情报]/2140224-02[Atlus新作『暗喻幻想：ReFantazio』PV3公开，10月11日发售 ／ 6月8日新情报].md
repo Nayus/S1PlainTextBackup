@@ -910,3 +910,56 @@ staff栏上织部的职责近几年没什么变化，可能在未公开项目里
 
 进了战斗后还是双方排排站就不可能做无缝了，轨迹的无缝是进入指令模式后保留即时制敌我双方所有站位的，只要atlus继续保留现在这个战斗系统，至少黑屏一次把站位调整到排排站就肯定会有
 
+
+*****
+
+####  leosank  
+##### 1567#       发表于 2024-10-11 11:19
+
+外媒kotaku：《暗喻幻想》是一款没有"丑陋包袱"的《女神异闻录》
+
+2024-10-09 19:31:01 来源：游民星空 作者：灰色的月华 编辑：灰色的月华　浏览：7502
+
+近日，知名游戏外媒kotaku编辑Kenneth Shepard发文称“《暗喻幻想》是没有丑陋包袱的《女神异闻录》。”表示“角色扮演游戏理应宣扬进步主义理念，《女神异闻录》系列之前却强调倒退的刻板印象。”这位编辑同样负责kotaku官方对《暗喻幻想》的评测工作，他最近在多个文章与社交媒体批判了Atlus“之前的恐同倾向”。
+
+*****
+
+####  superlink  
+##### 1568#       发表于 2024-10-11 11:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">讲道理建模肯定比n年前的p5好那么点点，同引擎好的有限。关键是人设，你要说刻板印象那是胡扯，这tm人设绝对是私货xp大放送，全是古怪玩意儿，搞得皮可西是最眉清目秀的。说白了，时间拖太久不舍得换引擎，你要说smt和p3r用了虚幻也是主流画面垫底的建模，水平就那样了，不要报不切实际的幻想
+
+—— 来自 vivo V2304A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  Piano-Forest  
+##### 1569#         楼主| 发表于 2024-10-11 11:22
+
+发售PV：
+[https://youtu.be/JjXngOfw_YQ](https://youtu.be/JjXngOfw_YQ)
+[https://youtu.be/GVQcqJTJ_eY](https://youtu.be/GVQcqJTJ_eY)
+
+<img src="https://p.sda1.dev/19/ee9e321239544fe70a0fcb59736f6a79/20241010_230128.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  罗克萨斯  
+##### 1570#       发表于 2024-10-11 11:22
+
+暗喻幻想进回合制后有前后排概念，如果做成即时的岂不是要先站队？感觉处理不好会变得很怪，比如预设主角后排，进回合制后得先跑队友后面去，节奏变得有点拖沓
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  monikaca  
+##### 1571#       发表于 2024-10-11 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66423129&amp;ptid=2140224" target="_blank">leosank 发表于 2024-10-11 11:19</a>
+
+外媒kotaku：《暗喻幻想》是一款没有"丑陋包袱"的《女神异闻录》
+
+2024-10-09 19:31:01 来源：游民星空 作者 ...</blockquote>
+那只能祝福，理解，支持了。
+

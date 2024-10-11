@@ -2505,3 +2505,21 @@ deck城里30-50浮动吧，迷宫内55-60，1280x720p，100%渲染，兼容层�
 
 PC版的调音问题这么严重，程序员不拖出去毙了
 
+
+*****
+
+####  johanliebert  
+##### 1719#       发表于 2024-10-11 21:02
+
+商店里的黄金重剑要买吗，第一个尸术士迷宫打完了<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">看见魔、力+3有点馋了，不知道买完以后装备多久迭代
+
+*****
+
+####  黑暗之眼  
+##### 1720#       发表于 2024-10-11 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66427962&amp;ptid=2140224" target="_blank">kuarwbwe 发表于 2024-10-11 20:21</a>
+
+但b站的hanser说这作成长数值设计的还行，加上秒杀机制宽松。稳步推进流程基本可以靠即时战斗解决大部分 ...</blockquote>
+一看就是JRPG爱好者和受不了JRPG的两种取向的评价，看你自己靠哪边吧
+

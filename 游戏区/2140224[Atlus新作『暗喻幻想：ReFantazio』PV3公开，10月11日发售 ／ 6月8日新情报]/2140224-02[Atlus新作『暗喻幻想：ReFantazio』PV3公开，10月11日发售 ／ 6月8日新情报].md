@@ -2791,3 +2791,35 @@ pc版声音很小，有调整方法吗
 阿基太，就是以前的曼斗罗。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">稍有经验的a老害应该提过114514次曼斗罗了
 
+
+*****
+
+####  TKD53  
+##### 1749#       发表于 2024-10-11 23:11
+
+刚玩序章，好多路人是褪色者，是我显示设置有问题还是什么游戏设定<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202410/11/231058vlz83yuwppl9aadp.jpg" referrerpolicy="no-referrer">
+
+<strong>20241011225853_1.jpg</strong> (533.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-11 23:10 上传
+
+
+*****
+
+####  TKD53  
+##### 1749#       发表于 2024-10-11 23:11
+
+刚玩序章，好多路人是褪色者，是我显示设置有问题还是什么游戏设定<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202410/11/231058vlz83yuwppl9aadp.jpg" referrerpolicy="no-referrer">
+
+<strong>20241011225853_1.jpg</strong> (533.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-11 23:10 上传
+

@@ -2523,3 +2523,30 @@ PC版的调音问题这么严重，程序员不拖出去毙了
 但b站的hanser说这作成长数值设计的还行，加上秒杀机制宽松。稳步推进流程基本可以靠即时战斗解决大部分 ...</blockquote>
 一看就是JRPG爱好者和受不了JRPG的两种取向的评价，看你自己靠哪边吧
 
+
+*****
+
+####  bonnwang  
+##### 1721#       发表于 2024-10-11 21:10
+
+听说pc版很多bug？
+
+*****
+
+####  woodey  
+##### 1722#       发表于 2024-10-11 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66427742&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-10-11 19:56</a>
+
+贴吧看到的一篇评测，里面提到的问题，给大家泼点冷水</blockquote>
+迷宫爱好者狂喜
+
+*****
+
+####  忘却旋律  
+##### 1723#       发表于 2024-10-11 21:13
+
+话说刚刚PS5开游戏  更新了  更新了点啥PS端
+
+—— 来自 HUAWEI NOH-AN01, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

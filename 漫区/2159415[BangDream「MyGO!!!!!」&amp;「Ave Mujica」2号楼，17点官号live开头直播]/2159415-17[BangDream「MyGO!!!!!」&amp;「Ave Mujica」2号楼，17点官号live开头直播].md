@@ -10712,3 +10712,44 @@ for 2025了，我先盲猜一个力儿八实装团名歌吧<img src="https://sta
 
 尊重角色是ylg的话那姨姥又是什么？角色黑吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 24577#       发表于 2024-10-11 21:05
+
+很简单，姨姥就是典型的觉得看个动画就懂mygo了，不然怎么会抱着个没有任何三次活动连二次都只是背景的团不放呢<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  前方暴雨预警  
+##### 24578#       发表于 2024-10-11 21:09
+
+姨姥们们的逻辑大概是觉得“怎么会有看了动画还不喜欢CCC的人呢”，所以你不喜欢CCC那一定是没看过动画只知道二创和梗的ylgo
+
+
+*****
+
+####  PDQ4  
+##### 24579#       发表于 2024-10-11 21:12
+
+至少说姨姥是爽世黑立希黑祥黑睦黑我觉得没问题
+
+爽世的转变和自省看不到，肯定是制作组在扭曲爽世的真心，美帝就硬卖<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+立希的想法不在乎，我们c团一直是4+1啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+祥子的决心那更是视而不见，肯定是鬼迷心窍明年要被灯拯救回来<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+至于睦太跟班话太少，直接用铁暗恋干成不会说话的舔狗就行了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+感觉被人看到又要说在aoe了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿萨德飞过去  
+##### 24580#       发表于 2024-10-11 21:13
+
+只能说你楼已经很温和了，要是真来讨论都是温声细语慢慢讲，都好几次了
+时不时就能见着被挂是真的难崩，什么被重点关注的反贼窝点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

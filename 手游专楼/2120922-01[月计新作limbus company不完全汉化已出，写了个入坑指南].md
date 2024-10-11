@@ -1735,3 +1735,16 @@ Screenshot_20241010_133957.jpg
 虫应该就是p1最后的那个血魔吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 话说这回生肉太难啃了，其他人只是从句多，唐英语差点把我看扭了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 929#       发表于 2024-10-11 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66427461&amp;ptid=2120922" target="_blank">erratic璃月 发表于 2024-10-11 19:14</a>
+
+虫应该就是p1最后的那个血魔吧
+
+话说这回生肉太难啃了，其他人只是从句多，唐英语差点把我看扭了 ...</blockquote>
+这章确实写得又癫又嗨，每小节标题长得和日本轻小说似的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

@@ -10635,3 +10635,23 @@ for 2025了，我先盲猜一个力儿八实装团名歌吧<img src="https://sta
 看了一下这个mv，海铃支援那个乐队居然有两个成员露脸而且有好几个镜头，不是以后要出场的话真的没必要做这 ...</blockquote>
 至少人设不是随便做的，我也觉得以后会有出场
 
+
+*****
+
+####  羽毛水  
+##### 24569#       发表于 2024-10-11 19:18
+
+猫猫剧场版新曲不是猫猫的曲还能是什么<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+怎么感觉在说什么很新的东西
+
+
+*****
+
+####  羽毛水  
+##### 24570#       发表于 2024-10-11 19:24
+
+动物看起来像是猫，听起来像猫，实际摸起来也像猫，那它就该是猫
+
+剧场版名字就是猫，给猫猫加戏份，出了那么多猫周边，新曲当然是猫之歌<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+

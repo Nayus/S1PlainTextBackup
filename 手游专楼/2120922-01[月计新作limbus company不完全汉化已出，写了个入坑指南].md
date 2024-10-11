@@ -1724,3 +1724,14 @@ Screenshot_20241010_133957.jpg
 
 这也太帅了吧！幸好我不是大叔控，要不得失血过多变成眷属<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  erratic璃月  
+##### 928#       发表于 2024-10-11 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66427427&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2024-10-11 19:08</a>
+今天上午日本池袋有个游戏展，其实已经剧透了两个三星，一个是理发师奥提师：</blockquote>
+虫应该就是p1最后的那个血魔吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+话说这回生肉太难啃了，其他人只是从句多，唐英语差点把我看扭了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

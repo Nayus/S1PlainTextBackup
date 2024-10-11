@@ -1387,3 +1387,37 @@ b站的pser_hanser直接说了这次没有明智这样的角色。不过他是at
 80.7G，先解冻着吧</blockquote>
 额？ 蒸汽版那么大嘛 我PS5昨天下载的时候粗略看了一下 才35G 还是说当时还没下完
 
+
+*****
+
+####  七层嘉影  
+##### 1613#       发表于 2024-10-11 14:07
+
+到底咋样，能不能玩呀
+
+*****
+
+####  SuNR1sE364  
+##### 1614#       发表于 2024-10-11 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66424521&amp;ptid=2140224" target="_blank">忘却旋律 发表于 2024-10-11 13:59</a>
+额？ 蒸汽版那么大嘛 我PS5昨天下载的时候粗略看了一下 才35G 还是说当时还没下完 ...</blockquote>
+steam是下载36解压80
+
+*****
+
+####  忘却旋律  
+##### 1615#       发表于 2024-10-11 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66424580&amp;ptid=2140224" target="_blank">七层嘉影 发表于 2024-10-11 14:07</a>
+
+到底咋样，能不能玩呀</blockquote>
+emmmmmmm 怎么说呢 我个人看法是你先做好 能忍受 画面 建模 和帧数的话 看剧情 玩法BUILD 应该还行 起码我目前只能冲着故事本身和 玩法BUILD打下去了
+
+*****
+
+####  inhalc  
+##### 1616#       发表于 2024-10-11 14:11
+
+进王城那个狗牙把我震惊了，现在是几几年啊阿特拉斯
+

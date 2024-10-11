@@ -10490,3 +10490,47 @@ for 2025了，我先盲猜一个力儿八实装团名歌吧<img src="https://sta
 
 斯科特造势开始了，最近都有让乐队成员晒吉他照
 
+
+*****
+
+####  桜庭千景  
+##### 24556#       发表于 2024-10-11 18:42
+
+正常，稍微有点抒情的歌都要被某姨姥cp厨圈地，忘了你鸡的water也被圈过？
+
+*****
+
+####  芜湖挨宰  
+##### 24557#       发表于 2024-10-11 18:43
+
+看了下B站猫猫新的MV给的码率，下载收藏应该选AVC吗？
+ <blockquote>0. [1080P 高码率] [1920x1080] [AVC] [23.976] [1346 kbps] [~38.94 MB]
+
+1. [1080P 高码率] [1920x1080] [HEVC] [23.976] [597 kbps] [~17.27 MB]
+
+2. [1080P 高码率] [1920x1080] [AV1] [23.976] [536 kbps] [~15.51 MB]</blockquote>
+
+貌似外网某知名视频站给的码率更高： <blockquote>137 mp4   1920x1080   24    │  43.48MiB 1544k https │ avc1.640028   1544k video only          1080p, mp4_dash
+
+614 mp4   1920x1080   24    │ ~41.96MiB 1492k m3u8  │ vp09.00.40.08 1492k video only
+
+248 webm  1920x1080   24    │  22.01MiB  782k https │ vp09.00.40.08  782k video only          1080p, webm_dash</blockquote>
+
+*****
+
+####  星天观测  
+##### 24558#       发表于 2024-10-11 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66427124&amp;ptid=2159415" target="_blank">NODY 发表于 2024-10-11 18:34</a>
+
+什么意思，剧场版ed在剧情里面有出现而且是猫写的？
+
+那怎么还有一堆人认为这是怀念crychic的歌，不该是猫的 ...</blockquote>
+【但这首歌旋律在剧情里完全是猫自己即兴的】
+
+这是现地群友原话
+
+所以我不知道遗老和某cp厨在贷款什么，怎么又开始偷别人的歌了
+
+狗u也要自信啊，这么大个标明了mygo的歌，别拱手让人啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

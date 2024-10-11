@@ -6199,3 +6199,24 @@ szh疯狗也不是一天两天了，现在外野那群贵物搞得乌烟瘴气sz
 
 叫你瞎说暗喻不如界轨段子，1600楼的暗喻楼都标红了，这次sega宣发到处**，你们猜szh拿到了吗
 
+
+*****
+
+####  大暗月  
+##### 6500#       发表于 2024-10-11 18:25
+
+这也能封，吃相有点难看了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+*****
+
+####  隔壁老黄  
+##### 6501#       发表于 2024-10-11 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66426797&amp;ptid=2160194" target="_blank">妄想中毒 发表于 2024-10-11 17:58</a>
+感觉菜刀流也没那么不堪，我现在第二部后半，给主力输出配行动后回cp回血还有自动加各种buff，后备再特化一 ...</blockquote>
+魔法主要是打杂兵省事，开头一个鲸鱼砸下去就完事了，不行就两个<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

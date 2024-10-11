@@ -1694,3 +1694,33 @@ Screenshot_20241010_133957.jpg
 由手机上传
 2024-10-11 17:46 上传
 
+
+*****
+
+####  Jamaisvu  
+##### 927#       发表于 2024-10-11 19:08
+
+ 本帖最后由 Jamaisvu 于 2024-10-11 19:10 编辑 
+
+今天上午日本池袋有个游戏展，其实已经剧透了两个三星，一个是理发师奥提师：
+
+<img src="https://img.saraba1st.com/forum/202410/11/190924dzyhohvv22nvhvuv.jpg" referrerpolicy="no-referrer">
+
+<strong>DC71FABCBDDE884797290D2B12B571F2.jpg</strong> (114.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-11 19:09 上传
+
+另一个就重量级了！血魔格里高利！！！：
+
+<img src="https://img.saraba1st.com/forum/202410/11/190934ldd6260mi32f93iy.jpg" referrerpolicy="no-referrer">
+
+<strong>6DB21FBFAC77E1D0F2F6018309323B01.jpg</strong> (1.23 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-11 19:09 上传
+
+这也太帅了吧！幸好我不是大叔控，要不得失血过多变成眷属<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+

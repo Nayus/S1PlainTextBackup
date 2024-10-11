@@ -10588,3 +10588,50 @@ for 2025了，我先盲猜一个力儿八实装团名歌吧<img src="https://sta
 
 姨姥偷歌也不是一次两次了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 24564#       发表于 2024-10-11 19:10
+
+制作组挺冤枉的吧，剧场版都这么给切了，结果C姨姥还是无孔不入开展圈地运动<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 24565#       发表于 2024-10-11 19:11
+
+只要有些人想，ave mujica 也能是ccc歌<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 24566#       发表于 2024-10-11 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66427356&amp;ptid=2159415" target="_blank">NODY 发表于 2024-10-11 18:59</a>
+
+看了一下这个mv，海铃支援那个乐队居然有两个成员露脸而且有好几个镜头，不是以后要出场的话真的没必要做这 ...</blockquote>
+感觉要海希一起带猫了
+
+这关系性拉上了海铃能不知道猫吗<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 24567#       发表于 2024-10-11 19:16
+
+不得不说鸡腿对自己团的歌的保护还是很不错的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">water就不说了，团名曲确实被圈过（memento mori被说成是祥子塞了tomori的私货，无语）也反驳了回去
+
+咱们鸡腿，输过气过没懦过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 24568#       发表于 2024-10-11 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66427356&amp;ptid=2159415" target="_blank">NODY 发表于 2024-10-11 18:59</a>
+
+看了一下这个mv，海铃支援那个乐队居然有两个成员露脸而且有好几个镜头，不是以后要出场的话真的没必要做这 ...</blockquote>
+至少人设不是随便做的，我也觉得以后会有出场
+

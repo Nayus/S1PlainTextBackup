@@ -2236,3 +2236,20 @@ FiFSも会話時などに表示されるバストアップイラストの作画�
 
 一路推主线等级都挺低后面有点受苦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  windtrack  
+##### 1694#       发表于 2024-10-11 19:07
+
+游戏还没到，听了一下OST，水准还可以，但是没P5那么潮了
+
+
+*****
+
+####  walfeds  
+##### 1695#       发表于 2024-10-11 19:12
+
+一时间等不到官方提供关速度线设置的可以先用社区补丁
+另外推荐所有人关闭设置里的画面摇晃，应该能减轻锯齿感和疲劳感<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

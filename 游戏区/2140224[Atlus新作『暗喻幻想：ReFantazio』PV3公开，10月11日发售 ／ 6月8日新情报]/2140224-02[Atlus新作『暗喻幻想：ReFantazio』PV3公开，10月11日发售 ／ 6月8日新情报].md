@@ -2025,3 +2025,66 @@ a凯子想买了，所以剧本啥水平</blockquote>
 
 这年头只要下本宣发，质量不像星空那样大翻车，销量都能过百万吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  horacio  
+##### 1672#       发表于 2024-10-11 17:25
+
+毕竟二次元这一块真的是刚需，生涯500w真的有可能，就是我调了半天100%和200%画质没看出任何不同
+
+*****
+
+####  alviaze  
+##### 1673#       发表于 2024-10-11 17:26
+
+一次打穿hard大教堂，demo没过练级，进去10级出来17级的样子<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+术剑骑，术士带翰玛，剑带迪，骑随便，中途刷了大半管蓝
+
+只能说冰杖术士是神，4mp打180伤害还能道中回蓝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过主角纯魔感觉后期要遭重
+
+*****
+
+####  八汰乌  
+##### 1674#       发表于 2024-10-11 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66426438&amp;ptid=2140224" target="_blank">horacio 发表于 2024-10-11 17:25</a>
+
+毕竟二次元这一块真的是刚需，生涯500w真的有可能，就是我调了半天100%和200%画质没看出任何不同 ...</blockquote>
+你什么分辨率？我1080P，100和200差别大了，200锯齿少了很多
+
+*****
+
+####  qty  
+##### 1675#       发表于 2024-10-11 17:26
+
+只能说欧美受众确实爱吃atlus这一套
+
+*****
+
+####  卡拉德利姆  
+##### 1676#       发表于 2024-10-11 17:27
+
+我之前就说了坐二破五<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  horacio  
+##### 1677#       发表于 2024-10-11 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66426447&amp;ptid=2140224" target="_blank">八汰乌 发表于 2024-10-11 17:26</a>
+
+你什么分辨率？我1080P，100和200差别大了，200锯齿少了很多</blockquote>
+我4k全拉满了
+
+*****
+
+####  八汰乌  
+##### 1678#       发表于 2024-10-11 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66426458&amp;ptid=2140224" target="_blank">horacio 发表于 2024-10-11 17:27</a>
+
+我4k全拉满了</blockquote>
+4K开200%，相当于8K呢，没必要
+

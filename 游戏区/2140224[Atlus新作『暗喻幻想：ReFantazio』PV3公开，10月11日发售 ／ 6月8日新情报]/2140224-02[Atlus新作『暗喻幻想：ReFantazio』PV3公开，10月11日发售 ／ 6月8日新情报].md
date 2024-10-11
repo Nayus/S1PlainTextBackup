@@ -3124,3 +3124,11 @@ pc版声音很小，有调整方法吗</blockquote>
 
 。为什么投票选举的规则下会直接快进到恐怖统治？
 
+
+*****
+
+####  icoywt  
+##### 1778#       发表于 2024-10-12 05:10
+
+简体版的游戏字体是真垃圾啊<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">atlus都不愿意付个字体钱吗
+

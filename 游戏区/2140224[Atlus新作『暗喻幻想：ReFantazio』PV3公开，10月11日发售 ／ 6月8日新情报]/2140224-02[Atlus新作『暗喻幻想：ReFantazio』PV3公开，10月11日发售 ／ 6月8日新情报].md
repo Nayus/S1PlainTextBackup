@@ -1421,3 +1421,14 @@ emmmmmmm 怎么说呢 我个人看法是你先做好 能忍受 画面 建模 和
 
 进王城那个狗牙把我震惊了，现在是几几年啊阿特拉斯
 
+
+*****
+
+####  斯托雷加  
+##### 1617#       发表于 2024-10-11 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66424451&amp;ptid=2140224" target="_blank">kuarwbwe 发表于 2024-10-11 13:46</a>
+
+b站的pser_hanser直接说了这次没有明智这样的角色。不过他是atlus凯子，还接了商单。可能会有过褒的可能。 ...</blockquote>
+pser_hanser也算老玩家了，当时smt3就是看他攻略玩的
+

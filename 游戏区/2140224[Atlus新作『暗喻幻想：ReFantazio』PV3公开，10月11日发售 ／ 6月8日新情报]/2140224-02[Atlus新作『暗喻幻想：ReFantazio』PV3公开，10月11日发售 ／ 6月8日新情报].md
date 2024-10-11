@@ -1823,3 +1823,64 @@ windows的
 空之轨迹sc evo</blockquote>
 FC晚一点可以玩remake了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  出轨的三头龙  
+##### 1652#       发表于 2024-10-11 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66423146&amp;ptid=2140224" target="_blank">superlink 发表于 2024-10-11 11:20</a>
+
+讲道理建模肯定比n年前的p5好那么点点，同引擎好的有限。关键是人设，你要说刻板印象那是胡扯，这tm人设绝 ...</blockquote>
+其实a的老作品人设一直都稀奇古怪的
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1653#       发表于 2024-10-11 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66425749&amp;ptid=2140224" target="_blank">出轨的三头龙 发表于 2024-10-11 16:14</a>
+好的，在游玩英雄传说界之轨迹之前请先游玩：
+
+空之轨迹fc evo
+
+空之轨迹sc evo</blockquote>
+其实从闪1开始就行了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  抽烟的猴  
+##### 1654#       发表于 2024-10-11 16:18
+
+哈人，看到纽约时代广场的巨屏广告了
+
+首周冲击200万吧这个宣发力度
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1655#       发表于 2024-10-11 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66425650&amp;ptid=2140224" target="_blank">katern 发表于 2024-10-11 15:59</a>
+画面细节太多了，ui也是花里胡哨的没有辨识度，而且有点糊，看着很难受</blockquote>
+这我都能自适应，但打开菜单和进战斗都很迟钝，真是让人不爽，再加上动不动黑屏加载，不知道的还以为是杯赛把阿特拉斯收购了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  出轨的三头龙  
+##### 1656#       发表于 2024-10-11 16:21
+
+a凯子想买了，所以剧本啥水平
+
+
+*****
+
+####  卡拉德利姆  
+##### 1657#       发表于 2024-10-11 16:22
+
+都玩过的怎么说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1237,3 +1237,20 @@ So the game isn’t making strides in how Atlus represents queer people in its w
 —— 来自 OPPO PGBM1 ...</blockquote>
 如果把开发成本和销量综合计算，轨迹可以打赢日本绝大多数RPG了
 
+
+*****
+
+####  Khellendros  
+##### 1598#       发表于 2024-10-11 12:38
+
+第一个迷宫有点长，序章进度感觉才到一半，我h难度打到上层药都快吃完了，只好放弃（话说上层的安全屋离入口也太远了）
+
+话说被死灵术士拿骨枪射的那个演出也太唐了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  医生狼多  
+##### 1599#       发表于 2024-10-11 12:40
+
+日程攻略啥的有up主在做了 [https://docs.qq.com/aio/DRUpKQUFmSmlwRG9O](https://docs.qq.com/aio/DRUpKQUFmSmlwRG9O?p=LD8lKtUHE8O0SUMqbEQ3x1)
+

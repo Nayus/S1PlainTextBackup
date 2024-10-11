@@ -2719,3 +2719,75 @@ E77EA3380450BC740EBF0BFBDF9624A9.jpg
 
 这一作的主线迷宫不能掐着日子进了……第一个迷宫就提前了一天差点打不过去
 
+
+*****
+
+####  christiny  
+##### 1742#       发表于 2024-10-11 23:02
+
+<img src="https://img.saraba1st.com/forum/202410/11/230200i7xuwwz1blh3h7lu.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20241011_224328.jpg</strong> (109.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-11 23:02 上传
+
+阿基太，就是以前的曼斗罗。
+
+*****
+
+####  bwsusaga  
+##### 1743#       发表于 2024-10-11 23:05
+
+PC版中途切出游戏后再进入，所有按键提示都变成键盘的了，用手柄也恢复不过来。
+
+只能重启。
+
+试玩就有这个问题了，正式版还没改。
+
+*****
+
+####  superlink  
+##### 1744#       发表于 2024-10-11 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66427962&amp;ptid=2140224" target="_blank">kuarwbwe 发表于 2024-10-11 20:21</a>
+但b站的hanser说这作成长数值设计的还行，加上秒杀机制宽松。稳步推进流程基本可以靠即时战斗解决大部分 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">体感每个迷宫都得调配置，没什么万能解，可玩性还是不小，就是normal难度打起来也很有点费劲
+
+—— 来自 vivo V2304A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  walfeds  
+##### 1745#       发表于 2024-10-11 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66429082&amp;ptid=2140224" target="_blank">yahanintnedo 发表于 2024-10-11 22:51</a>
+
+眼睛要瞎了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">设置里先调画面亮度试试吧，你这拍出来感觉和我玩的是两个游戏
+
+*****
+
+####  operatbig  
+##### 1746#       发表于 2024-10-11 23:07
+
+cnm，各种旅行地点基本就是一张贴图，这样欺诈的吗？
+
+*****
+
+####  w酱  
+##### 1747#       发表于 2024-10-11 23:07
+
+pc版声音很小，有调整方法吗
+
+*****
+
+####  walfeds  
+##### 1748#       发表于 2024-10-11 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66429161&amp;ptid=2140224" target="_blank">christiny 发表于 2024-10-11 23:02</a>
+
+阿基太，就是以前的曼斗罗。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">稍有经验的a老害应该提过114514次曼斗罗了
+

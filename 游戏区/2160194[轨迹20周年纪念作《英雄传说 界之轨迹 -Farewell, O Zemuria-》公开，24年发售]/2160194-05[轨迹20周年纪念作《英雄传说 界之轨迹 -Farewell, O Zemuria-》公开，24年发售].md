@@ -6317,3 +6317,11 @@ szh真疯魔了这也封<img src="https://static.saraba1st.com/image/smiley/face
 下作干脆让VAN挂在时至宝上吧，不过感觉有点悲情，作为剥离恶魔代价直接转生小孩子也行，这样至少端水了不 ...</blockquote>
 转生小孩了那大集结篇怎么做<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 6513#       发表于 2024-10-12 02:16
+
+基萨拉不是诺州人吗，为什么开头说和艾妮亚一样是雷米菲利亚
+

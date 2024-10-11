@@ -3167,3 +3167,14 @@ pc版声音很小，有调整方法吗</blockquote>
 
 给阿基态升级的那个狗粮只能做任务获得吗 买不了？
 
+
+*****
+
+####  bwsusaga  
+##### 1783#       发表于 2024-10-12 07:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66430200&amp;ptid=2140224" target="_blank">霜浪 发表于 2024-10-12 07:02</a>
+
+给阿基态升级的那个狗粮只能做任务获得吗 买不了？</blockquote>
+用满级的阿基态，溢出的经验会合成狗粮道具
+

@@ -2695,3 +2695,27 @@ PC版BUG，下载FxSound，但不需要设置。
 
 这正式版相比demo调色有变化么？这demo画面之脏让人想起风花雪月。。。还更花，打完第一个迷宫直接眼睛报废了。。。
 
+
+*****
+
+####  yahanintnedo  
+##### 1740#       发表于 2024-10-11 22:51
+
+眼睛要瞎了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+E77EA3380450BC740EBF0BFBDF9624A9.jpg
+(767.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-11 22:50 上传
+
+<img src="https://img.saraba1st.com/forum/202410/11/225017zvso4xdee2454asx.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Sopp  
+##### 1741#       发表于 2024-10-11 22:55
+
+这一作的主线迷宫不能掐着日子进了……第一个迷宫就提前了一天差点打不过去
+

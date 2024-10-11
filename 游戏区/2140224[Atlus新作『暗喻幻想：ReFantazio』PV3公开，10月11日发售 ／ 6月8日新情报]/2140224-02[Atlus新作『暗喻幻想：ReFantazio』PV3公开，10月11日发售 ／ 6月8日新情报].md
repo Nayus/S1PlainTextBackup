@@ -461,3 +461,11 @@ xb3，八方和轨迹普普通通
 
 本作和engage坐一桌，反馈就一个字：丑
 
+
+*****
+
+####  kuarwbwe  
+##### 1527#       发表于 2024-10-11 09:25
+
+预购了，238买的cdkey。还是玩玩看了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

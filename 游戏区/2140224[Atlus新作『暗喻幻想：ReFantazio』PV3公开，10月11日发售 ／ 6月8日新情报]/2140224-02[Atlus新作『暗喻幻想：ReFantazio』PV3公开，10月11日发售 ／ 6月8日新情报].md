@@ -3082,3 +3082,11 @@ pc版声音很小，有调整方法吗</blockquote>
 
 打完教堂为止剧情好鲨弊啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，不知道后面公路起来能不能好点
 
+
+*****
+
+####  体质的错  
+##### 1774#       发表于 2024-10-12 01:41
+
+可以回溯到战斗开始真是勾rpg好文明啊，点赞
+

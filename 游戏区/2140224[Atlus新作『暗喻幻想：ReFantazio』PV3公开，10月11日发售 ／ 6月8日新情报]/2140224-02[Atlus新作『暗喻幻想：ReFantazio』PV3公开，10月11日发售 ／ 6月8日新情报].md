@@ -342,3 +342,22 @@ PS5日服11点玩到刚刚1点
 
 —— 来自 vivo V2304A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  杵瀨命  
+##### 1516#       发表于 2024-10-11 08:05
+
+明智人气高不是很正常吗？如果他是个女角色，风评立刻上升一大截<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哎哟卧槽了  
+##### 1517#       发表于 2024-10-11 08:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66420932&amp;ptid=2140224" target="_blank">monikaca 发表于 2024-10-11 01:16</a>
+不懂他们内部啥情况，不过真的怕了这些二次元编剧了，明智这种角色竟然会常年人气高居不下只能说日本人没 ...</blockquote>
+所以說玩無印就夠了，也就是人性化設計差一些，但現在白菜價啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 來自 LENOVO Lenovo TB-8703X, Android 9上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

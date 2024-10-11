@@ -1569,3 +1569,39 @@ emmmmmmmm 怎么说呢 真女5复仇我没玩，但是真女5我玩了  和 �
 到底咋样，能不能玩呀</blockquote>
 你下个demo来玩玩不就懂了
 
+
+*****
+
+####  kuarwbwe  
+##### 1630#       发表于 2024-10-11 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66424580&amp;ptid=2140224" target="_blank">七层嘉影 发表于 2024-10-11 14:07</a>
+
+到底咋样，能不能玩呀</blockquote>
+我还是那个观点，你玩过他家P5而且对这游戏感觉良好，玩过他出的那个免费demo且觉得可以试一下，那就能入。至少现在我知道的几个atlus粉丝对这作评价都还可以。<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  槲寄生  
+##### 1631#       发表于 2024-10-11 14:50
+
+这个主角到底男人女人，真是没特点，看上又弱又呆又娘炮。
+
+*****
+
+####  抽烟的猴  
+##### 1632#       发表于 2024-10-11 14:55
+
+steam现在90%好评
+
+*****
+
+####  2015年入股市  
+##### 1633#       发表于 2024-10-11 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66424446&amp;ptid=2140224" target="_blank">katern 发表于 2024-10-11 13:45</a>
+
+我弄好了，在电脑系统的图像设置里把游戏设置成高性能</blockquote>
+请问是windows自己的图像设置还是显卡的图像设置？
+

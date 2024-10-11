@@ -3159,3 +3159,11 @@ pc版声音很小，有调整方法吗</blockquote>
 
 初见灰语感觉这boss设计的太莎皮了，纯纯的没活硬整<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">开局分身四个，一回合四动，禁玩家aoe清分身，打错到分身上玩家行动次数也全清，硬在这拖时间真是神经病
 
+
+*****
+
+####  霜浪  
+##### 1782#       发表于 2024-10-12 07:02
+
+给阿基态升级的那个狗粮只能做任务获得吗 买不了？
+

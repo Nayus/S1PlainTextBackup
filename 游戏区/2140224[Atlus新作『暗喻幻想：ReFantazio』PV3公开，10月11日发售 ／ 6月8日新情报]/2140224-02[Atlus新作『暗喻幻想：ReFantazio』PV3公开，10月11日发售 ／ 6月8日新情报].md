@@ -2602,3 +2602,11 @@ PC版BUG，下载FxSound，但不需要设置。
 
 —— 来自 HUAWEI NOH-AN01, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Khellendros  
+##### 1728#       发表于 2024-10-11 21:54
+
+草，铁架战车外面的场景能绷住的都是神人了，话说场景这么空为啥要加载四五秒……
+

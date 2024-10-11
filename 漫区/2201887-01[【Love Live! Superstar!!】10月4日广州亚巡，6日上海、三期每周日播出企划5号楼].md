@@ -1730,3 +1730,15 @@ LL的集换式卡牌还有cast卡，部分还有签名
 惯例的6th巡演从3月东京代代木开始</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">千秋乐是周五周六 头疼
 
+
+*****
+
+####  ViyViy  
+##### 169#       发表于 2024-10-11 21:45
+
+插4就一首歌，难道老歌新唱？
+
+然后看到第二集的糊图透了，第二集看起来应该没那八个路人的太多戏份<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看后天看具体剧本节奏是什么样的再决定这周怎么料理花田的马
+

@@ -10855,3 +10855,52 @@ for 2025了，我先盲猜一个力儿八实装团名歌吧<img src="https://sta
 
 我愿称之为难绷三板斧
 
+
+*****
+
+####  桜庭千景  
+##### 24588#       发表于 2024-10-11 21:47
+
+说实话 狗u大战姨姥我只想看戏，你鸡那是刚刚出生还不熟的商业乐队，还真不需要非要和ccc比个高下不可；从来都是狗u搁那纠结选狗还是选c，只打遗佬的时候想起来用祥子和睦当枪
+
+*****
+
+####  星天观测  
+##### 24589#       发表于 2024-10-11 21:48
+
+喜欢的只是能和心里那股无法捕捉的伤痛共振的，被具象化出来的c团罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+至于c团在企划内是什么情况？角色在故事里是什么表现？无所谓啦，都是欲擒故纵嘴巴硬罢了，其实她们心里只想回到c团
+
+*****
+
+####  NODY  
+##### 24590#       发表于 2024-10-11 21:48
+
+disruption的详细设定，只有吉他主唱和鼓，缺贝斯，这设定就是给海铃个人线铺垫的吧
+
+<img src="https://img.saraba1st.com/forum/202410/11/214814uqv7x2f5s0f9722l.png" referrerpolicy="no-referrer">
+
+<strong>a21aaec3-6e46-488a-a78f-a6d907ddfd55.png</strong> (38.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-11 21:48 上传
+
+*****
+
+####  御幸一也  
+##### 24591#       发表于 2024-10-11 21:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">C遺老打起來想的就是從你雞搶人，要加入一起打才行
+
+
+*****
+
+####  星天观测  
+##### 24592#       发表于 2024-10-11 21:53
+
+姨姥打过来了再反击，没打过来我还是先观望吧（虽然这次确实是看了群友截图的圈地和滑坡绷不住了才把现地爷的话发过来）
+
+不然小心你鸡被顺劈咯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

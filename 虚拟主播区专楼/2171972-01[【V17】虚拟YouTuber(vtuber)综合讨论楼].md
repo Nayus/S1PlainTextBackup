@@ -331,3 +331,14 @@ idios3D全播完了，后续倒是没啥了，等两周年看看会不会3D全�
 你一定不知道这封面是在neta一个中场开香槟的棒球队吧</blockquote>
 还真不，对棒球梗综艺梗至今没找到兴趣切入点<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Porsche  
+##### 808#       发表于 2024-10-11 07:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66421390&amp;ptid=2171972" target="_blank">sgssk 发表于 2024-10-11 07:42</a>
+还真不，对棒球梗综艺梗至今没找到兴趣切入点</blockquote>
+那个队在这本杂志出了之后本来势如破竹的气势全消，结果在本来有巨大领先优势的赛程里最后被人逆转了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+所以说封面选人有深意的
+

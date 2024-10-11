@@ -10768,3 +10768,35 @@ for 2025了，我先盲猜一个力儿八实装团名歌吧<img src="https://sta
 
 屎黄论坛楼连切割这首歌的都有，没看到就多看看<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 24583#       发表于 2024-10-11 21:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">屎黄论坛那个邦邦专楼没看到，二创紫专楼翻了会，感觉都在骂姨姥圈地
+我觉得那楼里有句话说的话，什么时候出一首热门cp的情歌然后被姨姥圈地看看大战效果
+至于热门cp是哪对嘛，嘻嘻
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  极速赛车手  
+##### 24584#       发表于 2024-10-11 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66428373&amp;ptid=2159415" target="_blank">akiomn 发表于 2024-10-11 21:21</a>
+
+暗喻幻想刚归来，哪里的姨姥？我看了眼隔壁泥潭也没人说啊，不会又是go吧和b站那帮货色吧 ...</blockquote>
+剧场版mv评论区，要翻到很下才能看到
+

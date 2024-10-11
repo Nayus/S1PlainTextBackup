@@ -10753,3 +10753,18 @@ for 2025了，我先盲猜一个力儿八实装团名歌吧<img src="https://sta
 只能说你楼已经很温和了，要是真来讨论都是温声细语慢慢讲，都好几次了
 时不时就能见着被挂是真的难崩，什么被重点关注的反贼窝点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 24581#       发表于 2024-10-11 21:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">暗喻幻想刚归来，哪里的姨姥？我看了眼隔壁泥潭也没人说啊，不会又是go吧和b站那帮货色吧
+
+*****
+
+####  星天观测  
+##### 24582#       发表于 2024-10-11 21:23
+
+屎黄论坛楼连切割这首歌的都有，没看到就多看看<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

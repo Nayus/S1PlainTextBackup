@@ -2626,3 +2626,11 @@ PC版BUG，下载FxSound，但不需要设置。
 
 还没买，问一下买35周年版，送的那么多战斗BGM能设置随机播放么
 
+
+*****
+
+####  牛肉粉小煎包  
+##### 1731#       发表于 2024-10-11 22:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看直播有点心动了。不喜欢P5，喜欢DQ这种传统JRPG，在意冒险感的这作可以玩吗？买的话是买普通版还是豪华版
+

@@ -10904,3 +10904,86 @@ disruption的详细设定，只有吉他主唱和鼓，缺贝斯，这设定就�
 
 不然小心你鸡被顺劈咯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  uhiuk  
+##### 24593#       发表于 2024-10-11 22:04
+
+<blockquote>星天观测 发表于 2024-10-11 21:48
+喜欢的只是能和心里那股无法捕捉的伤痛共振的，被具象化出来的c团罢了
+
+至于c团在企划内是什么情况？角色在 ...</blockquote>
+第八集飞鸟山那段看的时候就在想有过挽回破裂关系经历的人看这段估计很容易共情，甚至将自己感情过度投射到角色身上<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+c团也是，应该就是因着对过去美好的怀恋共鸣上了
+
+*****
+
+####  skives  
+##### 24594#       发表于 2024-10-11 22:07
+
+这帮人单纯怀念过去也没人会说什么 
+总是拿过去踩现在才让人忍不住想攻击<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 24595#       发表于 2024-10-11 22:10
+
+怀念或者喜欢都很正常，但歪曲角色、偷别人歌还跳脸要拆你正常推的乐队就很迷惑了
+
+共情同样可以，但把纸片人当自己皮套一厢情愿自以为是多少有点好笑了
+
+怀恋过去这种感情是可以解析的，我只能说其实更接近一种负面情感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  前方暴雨预警  
+##### 24596#       发表于 2024-10-11 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66428593&amp;ptid=2159415" target="_blank">NODY 发表于 2024-10-11 21:48</a>
+
+disruption的详细设定，只有吉他主唱和鼓，缺贝斯，这设定就是给海铃个人线铺垫的吧
+
+ ...</blockquote>
+初始设定就没贝斯的乐队是咋演奏的，放program？
+
+还是就写点根音，排练的时候凑合一下，要登台表演了就找一个刚好有空的贝斯雇佣兵
+
+所以如果真的跟海铃有关，那么是海铃向往这个乐队想加入而不得，或是生活所迫玩乐队必须要么出道要么打工，没法为爱发电?
+
+*****
+
+####  NODY  
+##### 24597#       发表于 2024-10-11 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66428756&amp;ptid=2159415" target="_blank">前方暴雨预警 发表于 2024-10-11 22:12</a>
+
+初始设定就没贝斯的乐队是咋演奏的，放program？
+
+还是就写点根音，排练的时候凑合一下，要登台表演了就找 ...</blockquote>
+没准是你邦这两年最爱的留学梗，贝斯出国留学去了
+
+然后海铃想加入，但主唱表示我们的贝斯位置已经留给原来的成员了，让海铃去找属于自己的乐队
+
+*****
+
+####  uhiuk  
+##### 24598#       发表于 2024-10-11 22:15
+
+过度沉浸是这样的，过度投射感情本就和理解角色相去甚远<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 24599#       发表于 2024-10-11 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66428732&amp;ptid=2159415" target="_blank">skives 发表于 2024-10-11 22:07</a>
+
+这帮人单纯怀念过去也没人会说什么 
+
+总是拿过去踩现在才让人忍不住想攻击 ...</blockquote>
+讓人忍不住想，他們的“現在”是有多不堪，才會一直想要回到過去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

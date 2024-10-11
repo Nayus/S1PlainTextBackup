@@ -816,3 +816,38 @@ atlus的精英尽出怎么搞到还不如gust和轨迹的
 
 奖杯成就的列表现在还没有吗
 
+
+*****
+
+####  忘却旋律  
+##### 1558#       发表于 2024-10-11 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66422566&amp;ptid=2140224" target="_blank">windtrack_qh 发表于 2024-10-11 10:27</a>
+
+轨迹有十胜而暗喻有十败
+
+轨迹廿年剧情连贯此为一胜，暗喻豪无前作铺垫此为一败
+
+轨迹战斗无缝切换此为二胜， ...</blockquote>
+憋说辣  再说 我要后悔买暗喻 没买界轨了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Redimercia  
+##### 1559#       发表于 2024-10-11 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66422712&amp;ptid=2140224" target="_blank">Dreammask 发表于 2024-10-11 10:40</a>
+
+这个确实是我的猜测，主要全家桶那张视觉图的拙劣实在是令我大跌眼镜，如果不是美术团队缺人很难解释不过 ...</blockquote>
+画画的人员权责变动了吧，你想想副岛在P3\P4担任主美和人设前也是给金子作上色和画半身立绘的助手工作；
+
+P4时期的立绘工作还是织部一个人画的，这位到P5时期是首席2d美术了，而p5的staff这个职位相比P4又多了三个名字，这么多年下来到A社上班画图的人也多了几位，体现出来的水平波动在所难免
+
+
+*****
+
+####  monikaca  
+##### 1560#       发表于 2024-10-11 10:52
+
+作为一个老二次元，我觉得人设还不如轨迹，既然都是刻板印象，我还不如选个美型的。
+

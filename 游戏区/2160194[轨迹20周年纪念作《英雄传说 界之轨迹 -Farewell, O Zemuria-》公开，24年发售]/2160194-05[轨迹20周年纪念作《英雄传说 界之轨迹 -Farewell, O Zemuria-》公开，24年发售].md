@@ -5908,3 +5908,15 @@ ss魔法克洛诺斯封技让对面无技可出，后期堆回避率效果也很
 
 路边进局子被盘问这人面前摆了一碗拉面，没摆猪排饭
 
+
+*****
+
+####  Licheus  
+##### 6479#       发表于 2024-10-11 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66423734&amp;ptid=2160194" target="_blank">jacket 发表于 2024-10-11 12:18</a>
+路边进局子被盘问这人面前摆了一碗拉面，没摆猪排饭</blockquote>
+因为那个人是东方人吧。首都和安卡维尔的派出所都专门做出来了，不知有什么用处，还是只是某种性癖
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -1195,3 +1195,45 @@ So the game isn’t making strides in how Atlus represents queer people in its w
 看到欧美玩家为本作没有感情线而叫好觉得很奇怪，结果欧美媒体比如这个kotaku也是这个意思，玩家和媒体都不 ...</blockquote>
 国人肯定还是喜欢有感情线的，白皮那边只想看正统成王公路片的人还挺多的
 
+
+*****
+
+####  ej103  
+##### 1595#       发表于 2024-10-11 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66423699&amp;ptid=2140224" target="_blank">88ace88 发表于 2024-10-11 12:14</a>
+
+要觉得没有恋爱元素是加分项，有是扣分项倒也行，但这就让当初p345的高分成了笑话，就不知道该说这帮人是双 ...</blockquote>
+对不同系列有不一样的要求很奇怪吗
+
+你自己都说了p是 3 45了 
+
+以前有现在也要有不是正常要求吗
+
+新ip不愿意玩一个异世界p5不是正常诉求？
+
+
+*****
+
+####  Dreammask  
+##### 1596#       发表于 2024-10-11 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66423644&amp;ptid=2140224" target="_blank">walfeds 发表于 2024-10-11 12:08</a>
+
+从宣发开始已经肉眼可见的创死一片了
+
+解压完了，启动</blockquote>
+美术角度上确实说不过去，60年代的先锋艺术和蓝天白云之类的鲜明色调基本分不开的，但rpg.jp的场景又偏暗色调，环境对比一突兀立马就显得这些花花绿绿的服装土了
+
+*****
+
+####  windtrack_qh  
+##### 1597#       发表于 2024-10-11 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66423693&amp;ptid=2140224" target="_blank">baizhi 发表于 2024-10-11 12:14</a>
+
+借用一句话，在讨论优劣之前，销量打得过阿特拉斯吗？这是我最新学到的销量决定论。
+
+—— 来自 OPPO PGBM1 ...</blockquote>
+如果把开发成本和销量综合计算，轨迹可以打赢日本绝大多数RPG了
+

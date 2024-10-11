@@ -352,3 +352,16 @@ idios3D全播完了，后续倒是没啥了，等两周年看看会不会3D全�
 
 果然给oc找魂还要整直播不是一般人能胜任的，特别还是男娘本子主角
 
+
+*****
+
+####  dddty  
+##### 810#       发表于 2024-10-11 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66392446&amp;ptid=2171972" target="_blank">holoan 发表于 2024-10-7 16:04</a>
+
+真就剩下个漂亮的外壳子了774
+
+有能力的全带皮走了这下</blockquote>
+UGE和rina也退了？我一年多没看了。
+

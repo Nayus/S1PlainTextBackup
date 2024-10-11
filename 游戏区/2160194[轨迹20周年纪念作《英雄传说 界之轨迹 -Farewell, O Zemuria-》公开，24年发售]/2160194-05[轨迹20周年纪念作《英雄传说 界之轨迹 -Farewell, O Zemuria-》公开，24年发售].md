@@ -5979,3 +5979,38 @@ ss魔法克洛诺斯封技让对面无技可出，后期堆回避率效果也很
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有什么例の かの 应该都整合到第一行里去
 
+
+*****
+
+####  jacket  
+##### 6485#       发表于 2024-10-11 15:17
+
+说来师姐和狮子一个发音
+
+*****
+
+####  maojiashu  
+##### 6486#       发表于 2024-10-11 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66424865&amp;ptid=2160194" target="_blank">kenqqex 发表于 2024-10-11 14:37</a>
+
+你要的【那个】，我给你整来了</blockquote>
+有没有中文版的
+
+*****
+
+####  tmmd  
+##### 6487#       发表于 2024-10-11 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66424865&amp;ptid=2160194" target="_blank">kenqqex 发表于 2024-10-11 14:37</a>
+
+你要的【那个】，我给你整来了</blockquote>
+没有 台面下 吗?
+
+*****
+
+####  jacket  
+##### 6488#       发表于 2024-10-11 15:20
+
+师姐参战那段文字框演出挺有意思，故意重复了一遍
+

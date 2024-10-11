@@ -1633,3 +1633,74 @@ steam现在90%好评</blockquote>
 打完第一章了，这剧情有点难崩，台词写的太典了，看下来没有任何波动。昨晚我还特意去回顾了下p5r第一章， ...</blockquote>
 P5的第一章也没几个JRPG比得上吧，LIFE WILL CHANGE一响起来，没人能忍住不冲上楼顶暴打鸭某人。
 
+
+*****
+
+####  蒼銀  
+##### 1637#       发表于 2024-10-11 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66425190&amp;ptid=2140224" target="_blank">そらたかく 发表于 2024-10-11 15:12</a>
+
+P5的第一章也没几个JRPG比得上吧，LIFE WILL CHANGE一响起来，没人能忍住不冲上楼顶暴打鸭某人。 ...</blockquote>
+是啊，虽然后面有点喂史，但是前面调动情绪的中二氛围确实没几个能比的
+
+主要暗喻宣传是老P组做了8年的革新之作，给人预期太高了玩下来难免有点失望
+
+*****
+
+####  ping117  
+##### 1638#       发表于 2024-10-11 15:16
+
+有demo了去买还打差评的是真抽象
+
+大写的阿特拉斯凯子
+
+*****
+
+####  竹様  
+##### 1639#       发表于 2024-10-11 15:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前在育碧的英雄无敌6踩过坑，这分辨率不满应该是显示器开了缩放的锅。
+
+不想来回设置显示器的缩放，一劳永逸的解决办法就是去安装目录找到游戏的exe，改下DPI设置就好了。
+
+<img src="https://img.saraba1st.com/forum/202410/11/151606t9czdz5me4diq54q.jpg" referrerpolicy="no-referrer">
+
+<strong>20241011150915.jpg</strong> (462.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-11 15:16 上传
+
+*****
+
+####  bwsusaga  
+##### 1640#       发表于 2024-10-11 15:19
+
+第一章主线迷宫好TM大，实在是弹尽粮绝了，用法师刷了几趟MP都没打完。
+
+看了下在线玩家通过这迷宫的情况，都是20级以上的十里坡剑神<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，
+
+自己才14级，还是不折磨自己分两天打了。
+
+
+*****
+
+####  猪突猛进  
+##### 1641#       发表于 2024-10-11 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66424904&amp;ptid=2140224" target="_blank">最弱败者 发表于 2024-10-11 14:42</a>
+
+游戏声音好小啊</blockquote>
+看别人说是PC版移植的问题，要下载FxSound，但不需要设置。
+
+如果还不行，在游戏里声音设置再选一次FxSound。
+
+
+*****
+
+####  そらたかく  
+##### 1642#       发表于 2024-10-11 15:24
+
+你们玩这个游戏不会头晕反胃吗？地牢中各种特效，然后进入战斗时各种脸部特写切换，各种色块乱飞，节奏快起来我都想吐了，比黑猴迷路时的晕车都严重。
+

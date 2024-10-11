@@ -2579,3 +2579,26 @@ PC版BUG，下载FxSound，但不需要设置。
 
 如果还不行，在游戏里声音设置再选一次FxSound。
 
+
+*****
+
+####  operatbig  
+##### 1726#       发表于 2024-10-11 21:37
+
+什么时候能来第二个妹子……
+
+*****
+
+####  忘却旋律  
+##### 1727#       发表于 2024-10-11 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66428420&amp;ptid=2140224" target="_blank">windtrack 发表于 2024-10-11 21:28</a>
+修正内容
+
+・特定条件下で極稀に進行不能になる不具合を修正しました。
+
+・ネームエントリー時のネットワー ...</blockquote>
+谢谢
+
+—— 来自 HUAWEI NOH-AN01, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

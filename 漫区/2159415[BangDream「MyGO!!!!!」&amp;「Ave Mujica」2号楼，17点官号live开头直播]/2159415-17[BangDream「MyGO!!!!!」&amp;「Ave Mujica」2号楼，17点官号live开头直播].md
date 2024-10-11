@@ -10800,3 +10800,58 @@ for 2025了，我先盲猜一个力儿八实装团名歌吧<img src="https://sta
 暗喻幻想刚归来，哪里的姨姥？我看了眼隔壁泥潭也没人说啊，不会又是go吧和b站那帮货色吧 ...</blockquote>
 剧场版mv评论区，要翻到很下才能看到
 
+
+*****
+
+####  前方暴雨预警  
+##### 24585#       发表于 2024-10-11 21:36
+
+4+1?
+
+3+2吧，睦的组乐队从来没有开心过和种种给C团处理后事的行为从来没被姨姥放在眼里过，全都跟早期素世一样认为祥子回来睦自然就回来。
+
+到底是谁混在ylgo里搞得人少声音大一目了然<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|欢乐多|
+
+查看全部评分
+
+
+*****
+
+####  Aendst  
+##### 24586#       发表于 2024-10-11 21:41
+
+有时候真不知道姨姥喜欢的是什么
+
+说喜欢角色吧，无视角色的意愿、成长和定位，无视角色本身，甚至擅自歪曲角色形象
+
+说喜欢剧情吧，监督和系构访谈明着公开的内容一问三不知
+
+说喜欢邦多利吧……crychic甚至不是内容企划中的项目，邦多利企划相关都压根不提这个
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能喜欢故意引战当乐子人，或者喜欢做迷惑行为被骂吧
+
+*****
+
+####  Aendst  
+##### 24587#       发表于 2024-10-11 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66428487&amp;ptid=2159415" target="_blank">前方暴雨预警 发表于 2024-10-11 21:36</a>
+
+4+1?
+
+3+2吧，睦的组乐队从来没有开心过和种种给C团处理后事的行为从来没被姨姥放在眼里过，全都跟早期素世 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有开心过姨姥查无此话，毕竟不看访谈确实不知道哪里讲过
+
+处理后事全部默认铁暗恋，问就是哎呀留到最后才走，黄瓜送给爽世，舔狗只为了爽世一个人才去的mygo live
+
+我愿称之为难绷三板斧
+

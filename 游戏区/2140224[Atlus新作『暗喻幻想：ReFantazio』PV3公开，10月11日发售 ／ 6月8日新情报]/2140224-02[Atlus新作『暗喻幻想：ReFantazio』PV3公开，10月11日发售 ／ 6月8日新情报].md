@@ -426,3 +426,11 @@ demo不能选最高难度，那个难度是不是有些什么奖励</blockquote>
 —— 來自 LENOVO Lenovo TB-8703X, Andr ...</blockquote>
 皇家版可以直接走原版剧情的啊，别把丸喜的coop升满就行了。
 
+
+*****
+
+####  Dreammask  
+##### 1524#       发表于 2024-10-11 09:03
+
+可以说桥野自己抽走剧本骨干和一部分美术骨干这事才是P5及其后续的P组作品崩了的根本原因，P-LIVE的主视觉图质量下跌也很明显，到现在也没缓过来，只是和田在访谈里的各种奇谈怪论替桥野把火力全吸引过去了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

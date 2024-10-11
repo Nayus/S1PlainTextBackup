@@ -46,3 +46,13 @@ https://api.xiaoheihe.cn/v3/bbs/app/api/web/share?link_id=135656870
 笑死了，更新后去巴哈看看发现有人反映字体被强行改成简中了(估计是bug)，然后一堆台蛙在底下各种破防。没 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推特下面有急了的直接贴黄色熊
 
+
+*****
+
+####  Yeelolo  
+##### 238#       发表于 2024-10-11 08:57
+
+棒子确实幽默，皮肤定价还是这么司马<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

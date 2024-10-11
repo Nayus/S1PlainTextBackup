@@ -254,3 +254,69 @@ pro哥两个月不打电动，照样血虐薯薯
 
 不知道会不会拍到佣兵那边，按表现那群家伙抢核弹任务眉毛都不皱一下，照理应该是SAO现实世界最强强者了，但是现在战场战术已经被无人机刷新了，作为一队专业士兵按照7年前写的小说看到对方商业无人机侦察不设防，而且自己没有侦察无人机可就太不专业啦
 
+
+*****
+
+####  cowgp01  
+##### 1908#       发表于 2024-10-8 22:55
+
+不知道会不会拍到佣兵那边，按表现那群家伙抢核弹任务眉毛都不皱一下，照理应该是SAO现实世界最强强者了，但是现在战场战术已经被无人机刷新了，作为一队专业士兵按照7年前写的小说看到对方商业无人机侦察不设防，而且自己没有侦察无人机可就太不专业啦
+
+*****
+
+####  小比類巻香蓮  
+##### 1909#         楼主| 发表于 2024-10-11 08:57
+
+EPISODE Ⅱ｜大貸車作戦
+
+<img src="https://img.saraba1st.com/forum/202410/11/085646czimnh6om6o6vp43.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.3 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-11 08:56 上传
+
+<img src="https://img.saraba1st.com/forum/202410/11/085654ovnuoorhybubgbbu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.26 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-11 08:56 上传
+
+<img src="https://img.saraba1st.com/forum/202410/11/085659lgpp191l2ggdqpgk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.42 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-11 08:56 上传
+
+<img src="https://img.saraba1st.com/forum/202410/11/085705efzbppfksf4p8533.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.45 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-11 08:57 上传
+
+<img src="https://img.saraba1st.com/forum/202410/11/085711mwmbccoxuqbbq4ub.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.12 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-11 08:57 上传
+
+SJ3がスタートした。今回のフィールドは四方を海に囲まれた島。小高い丘になった中央部分は「UNKNOWN」と記されている。
+
+「このUNKNOWNが、今回の《特別ルール》かな？」
+
+レンがそんなことを考えたとき、海岸の水位が上がっていることに気づく。何とフィールドである島が少しずつ沈んでいたのだ！　
+
+どんな危険があるか分からないUNKNOWNに向うことを余儀なくされるレンたち。その途中で、優勝候補のLPFMを倒すために手を結んだ連合チームに襲撃される。
+
+[https://www.youtube.com/watch?v=du4Cczs_Q-M](https://www.youtube.com/watch?v=du4Cczs_Q-M)
+[https://gungale-online.net/story/?id=ep02](https://gungale-online.net/story/?id=ep02)
+

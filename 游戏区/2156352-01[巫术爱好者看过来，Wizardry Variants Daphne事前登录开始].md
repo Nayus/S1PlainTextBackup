@@ -24,3 +24,14 @@
 
 最高稀有度的角色是特殊建模，其他稀有度都是泛用建模，然后初期点数不同？这个没有确定
 
+
+*****
+
+####  电脑死机  
+##### 51#       发表于 2024-10-11 08:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66387495&amp;ptid=2156352" target="_blank">iqbsh38 发表于 2024-10-6 19:26</a>
+
+世界树迷宫这种不属于巫术like吗</blockquote>
+没有能力吸取和等级吸取，没有复活失败，机关陷阱也人性化的多，法术算mp而不是看等级和次数，升级不用回旅馆，我看不算了
+

@@ -1980,3 +1980,48 @@ a凯子想买了，所以剧本啥水平</blockquote>
 本日発売の『#メタファー   ：リファンタジオ』の全世界累計販売本数が、100万本 ...</blockquote>
 生涯500万有希望了。
 
+
+*****
+
+####  Bruce33  
+##### 1667#       发表于 2024-10-11 17:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  罗克萨斯  
+##### 1668#       发表于 2024-10-11 17:20
+
+首日100W，在JRPG里坐哪一桌？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  rainsheep  
+##### 1669#       发表于 2024-10-11 17:20
+
+刷b站还刷到了cos的商单，世嘉这国内宣发还真是大力
+
+—— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  日日日日日野  
+##### 1670#       发表于 2024-10-11 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66426360&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-10-11 17:20</a>
+
+首日100W，在JRPG里坐哪一桌？
+
+—— 来自 S1Fun</blockquote>
+至少比年初同公司的如龙8强
+
+*****
+
+####  八汰乌  
+##### 1671#       发表于 2024-10-11 17:22
+
+这年头只要下本宣发，质量不像星空那样大翻车，销量都能过百万吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

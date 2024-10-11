@@ -6170,3 +6170,16 @@ szh疯狗也不是一天两天了，现在外野那群贵物搞得乌烟瘴气sz
 
 论坛情趣的一部分，勿念
 
+
+*****
+
+####  oskneo  
+##### 6497#       发表于 2024-10-11 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66424865&amp;ptid=2160194" target="_blank">kenqqex 发表于 2024-10-11 14:37</a>
+你要的【那个】，我给你整来了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">世話怎么没，
+一大堆世話になった
+
+—— 来自 HUAWEI TAH-AN00m, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

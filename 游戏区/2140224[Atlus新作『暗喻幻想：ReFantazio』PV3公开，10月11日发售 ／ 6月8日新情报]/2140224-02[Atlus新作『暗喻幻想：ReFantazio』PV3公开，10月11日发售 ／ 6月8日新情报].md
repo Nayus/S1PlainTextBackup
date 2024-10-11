@@ -990,3 +990,29 @@ xb3，八方和轨迹普普通通
 </blockquote>
 额，这怎么看起来是口味偏向插画乙女风啊
 
+
+*****
+
+####  wszweill  
+##### 1574#       发表于 2024-10-11 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66423066&amp;ptid=2140224" target="_blank">卡拉德利姆 发表于 2024-10-10 22:13</a>
+
+进了战斗后还是双方排排站就不可能做无缝了，轨迹的无缝是进入指令模式后保留即时制敌我双方所有站位的，只 ...</blockquote>
+随便搞个队形展开演出 不就完了。比如莱莎3那种改一改<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">  
+
+关键 这套 排排站 也没道理 不改呀（ 
+
+*****
+
+####  superlink  
+##### 1575#       发表于 2024-10-11 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66423202&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-10-11 11:25</a>
+P3R默认开启光追呢，数毛社评价可没有那么不堪
+
+—— 来自 S1Fun</blockquote>
+这玩意儿用光追有何用，关键素材底子就没那么高
+
+—— 来自 vivo V2304A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

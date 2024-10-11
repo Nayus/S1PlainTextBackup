@@ -2680,3 +2680,18 @@ PC版BUG，下载FxSound，但不需要设置。
 
 翻了一下发现我最爱的狐耳老板娘没社群，草<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">！
 
+
+*****
+
+####  operatbig  
+##### 1738#       发表于 2024-10-11 22:42
+
+草，去了个小村庄结果只是一张图片，这也太搞笑了。
+
+*****
+
+####  yahanintnedo  
+##### 1739#       发表于 2024-10-11 22:43
+
+这正式版相比demo调色有变化么？这demo画面之脏让人想起风花雪月。。。还更花，打完第一个迷宫直接眼睛报废了。。。
+

@@ -851,3 +851,39 @@ P4时期的立绘工作还是织部一个人画的，这位到P5时期是首席2
 
 作为一个老二次元，我觉得人设还不如轨迹，既然都是刻板印象，我还不如选个美型的。
 
+
+*****
+
+####  Kusabi  
+##### 1561#       发表于 2024-10-11 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66422566&amp;ptid=2140224" target="_blank">windtrack_qh 发表于 2024-10-11 10:27</a>
+
+轨迹有十胜而暗喻有十败
+
+轨迹廿年剧情连贯此为一胜，暗喻豪无前作铺垫此为一败
+
+轨迹战斗无缝切换此为二胜， ...</blockquote>
+还以为暗喻能传播轨迹原野战斗的福音，结果是不能取消的直剑，和失误一次就劣势进回合制，前者是没抄全套，后者是SB微创新。
+
+到最后评价必定是毁誉参半的设计，后续厂家要跟进还得三思，A社你就是把回合制前进的脚步停下的大罪人<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jigsaw1999  
+##### 1562#       发表于 2024-10-11 11:03
+
+唉，感觉还是衣服太难看了，特别是霍肯伯格的宽肩西装外套加连体裤，其实霍肯伯格之前当王子近卫的人设还挺好看，短发加发夹以及银色盔甲感觉就是当初最开始的红发精灵人设图，比现在的好多了（现在的服装感觉太中性的确实不太好看）。佐尔巴也是，上半身看着都挺不错，下半身一条老黑的那种吊裆裤woc太难评了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Dreammask  
+##### 1563#       发表于 2024-10-11 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66422783&amp;ptid=2140224" target="_blank">Redimercia 发表于 2024-10-11 10:46</a>
+
+画画的人员权责变动了吧，你想想副岛在P3\P4担任主美和人设前也是给金子作上色和画半身立绘的助手工作；
+
+ ...</blockquote>
+staff栏上织部的职责近几年没什么变化，可能在未公开项目里有更大的职责了吧，资历少一些的岛田已经是P3R的主人设了，我的猜测确实牵强了点<img src="https://static.saraba1st.com/image/smiley/face/184.gif" referrerpolicy="no-referrer">
+

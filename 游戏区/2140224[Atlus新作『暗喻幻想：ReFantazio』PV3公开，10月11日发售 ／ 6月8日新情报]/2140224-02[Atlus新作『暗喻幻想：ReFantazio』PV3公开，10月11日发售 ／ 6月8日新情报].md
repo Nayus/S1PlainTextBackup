@@ -1321,3 +1321,36 @@ So the game isn’t making strides in how Atlus represents queer people in its w
 
 p无边框，胡的要死是我的问题吗<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  八汰乌  
+##### 1607#       发表于 2024-10-11 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66424384&amp;ptid=2140224" target="_blank">katern 发表于 2024-10-11 13:33</a>
+
+为什么这游戏pc全屏不了啊？只能1080
+
+p无边框，胡的要死是我的问题吗</blockquote>
+ 改独显呗
+
+*****
+
+####  2015年入股市  
+##### 1608#       发表于 2024-10-11 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66424403&amp;ptid=2140224" target="_blank">八汰乌 发表于 2024-10-11 13:37</a>
+
+改独显呗</blockquote>
+请问怎么改？
+
+*****
+
+####  katern  
+##### 1609#       发表于 2024-10-11 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66424403&amp;ptid=2140224" target="_blank">八汰乌 发表于 2024-10-11 13:37</a>
+
+改独显呗</blockquote>
+我就是用的独显4080，只能用1080p
+

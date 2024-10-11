@@ -1432,3 +1432,110 @@ emmmmmmm 怎么说呢 我个人看法是你先做好 能忍受 画面 建模 和
 b站的pser_hanser直接说了这次没有明智这样的角色。不过他是atlus凯子，还接了商单。可能会有过褒的可能。 ...</blockquote>
 pser_hanser也算老玩家了，当时smt3就是看他攻略玩的
 
+
+*****
+
+####  七层嘉影  
+##### 1618#       发表于 2024-10-11 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66424601&amp;ptid=2140224" target="_blank">忘却旋律 发表于 2024-10-11 14:09</a>
+
+emmmmmmm 怎么说呢 我个人看法是你先做好 能忍受 画面 建模 和帧数的话 看剧情 玩法BUILD 应该还行 起码 ...</blockquote>
+我之前刚玩完真女5复仇，还是不如这个就不买了，我主要是本来就不太喜欢这个过于花里胡哨的UI
+
+*****
+
+####  罗克萨斯  
+##### 1619#       发表于 2024-10-11 14:27
+
+ 本帖最后由 罗克萨斯 于 2024-10-11 14:30 编辑 
+
+【领导人养成模拟器：《暗喻幻想》是今年最劲的公路片RPG-哔哩哔哩】 https://b23.tv/C084cXk
+
+70～80小时几乎不注水的内容，白金必须2周末，队伍build很有深度，感觉能玩2个月了
+
+看来这剧情是真对欧美特攻，自由平等也是ZZZQ啊，又不是只有LGBT是
+
+三眼妹和红毛看着挺好，说都是丑女有失公允了
+
+<img src="https://img.saraba1st.com/forum/202410/11/143012lk7mgxpg3tx3e3ck.jpg" referrerpolicy="no-referrer">
+
+<strong>5d829478-9cc5-4d44-9603-dd26954090df.jpg</strong> (113.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-11 14:30 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  樱桐  
+##### 1620#       发表于 2024-10-11 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66424580&amp;ptid=2140224" target="_blank">七层嘉影 发表于 2024-10-11 14:07</a>
+
+到底咋样，能不能玩呀</blockquote>
+喜欢这套UI就能玩，其他方面我觉得都到不了上乘。
+
+*****
+
+####  2015年入股市  
+##### 1621#       发表于 2024-10-11 14:30
+
+征兵所的黄金虫错过了是不是拿不到了？
+
+*****
+
+####  手铐君  
+##### 1622#       发表于 2024-10-11 14:31
+
+怎么回mp？目前打到矿坑，虽然过了但是中间安全屋好像没回状态？现在怎么加点
+
+—— 来自 vivo V2025A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  ky7913  
+##### 1623#       发表于 2024-10-11 14:33
+
+<blockquote>2015年入股市 发表于 2024-10-11 14:30
+征兵所的黄金虫错过了是不是拿不到了？</blockquote>
+后面能回去捡
+
+*****
+
+####  ky7913  
+##### 1624#       发表于 2024-10-11 14:35
+
+<blockquote>手铐君 发表于 2024-10-11 14:31
+怎么回mp？目前打到矿坑，虽然过了但是中间安全屋好像没回状态？现在怎么加点
+
+—— 来自 vivo V2025A, And ...</blockquote>
+可以靠主角转职魔法师的被动补蓝，队友物理挺强的，主角可以走魔法+速度路线吧(后面应该能洗点，大概)
+
+
+*****
+
+####  忘却旋律  
+##### 1625#       发表于 2024-10-11 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66424759&amp;ptid=2140224" target="_blank">七层嘉影 发表于 2024-10-11 14:27</a>
+
+我之前刚玩完真女5复仇，还是不如这个就不买了，我主要是本来就不太喜欢这个过于花里胡哨的UI ...</blockquote>
+emmmmmmmm 怎么说呢 真女5复仇我没玩，但是真女5我玩了  和 暗喻的对比的话 有点难评价，我真女5万的是NS版，暗喻画面给我的感觉除了清晰度 确实比NS高点外，水准和 NS的真女5比 也就略胜一筹<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+或者这么说 我P5 P5S玩的是PS4版，P5R玩的是NS，游戏画面 建模水准 动作等画面相关要素 不如 P5......P5R 舒服 ，暗喻UI花哨 我觉得是纯为了花哨而花哨 没有P5 潮的感觉............， 画面除了PS5的技能带来的优势 整体比PS4 和NS 好一些但不多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+还是那句话 如果不是最近实在没游戏玩了 不是太建议买暗喻，但是我游戏昨天也只是开了个头，后续怎么样 不好评价，起码 昨天11点解锁 体验到1点 跑了初期的 小迷宫  打了小BOSS ，看了点过场剧情 画面方面 真的只能用感人来形容了 
+
+*****
+
+####  ky7913  
+##### 1626#       发表于 2024-10-11 14:37
+
+<blockquote>七层嘉影 发表于 2024-10-11 14:07
+到底咋样，能不能玩呀</blockquote>
+有免费试玩啊，自己把demo全部打完就有答案了，听别人说没意义的，游戏是自己玩，好不好玩适不适合只有自己知道
+

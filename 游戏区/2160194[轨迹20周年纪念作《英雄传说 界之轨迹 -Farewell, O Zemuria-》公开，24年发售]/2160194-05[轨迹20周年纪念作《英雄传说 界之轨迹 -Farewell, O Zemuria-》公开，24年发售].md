@@ -5932,3 +5932,23 @@ ss魔法克洛诺斯封技让对面无技可出，后期堆回避率效果也很
 —— ...</blockquote>
 为了让你单独带各种小姑娘逛街的时候被盘问
 
+
+*****
+
+####  kenqqex  
+##### 6481#       发表于 2024-10-11 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66411194&amp;ptid=2160194" target="_blank">lxshhh 发表于 2024-10-9 21:05</a>
+
+怎么就没更新呢，太可惜了，闪4那个改めて遥遥领先又给我看乐了哈哈</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202410/11/143450afwppcp92cccp7xp.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20241011143414.jpg</strong> (168.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-11 14:34 上传
+
+你要的【那个】，我给你整来了
+

@@ -450,3 +450,19 @@ S30和B12的自毁系统炸药安装都已开始。
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  commcody  
+##### 95#         楼主| 发表于 2024-10-11 21:59
+
+离发射还有不到48小时，S30与B12的最终合体正在进行。
+
+<img src="https://img.saraba1st.com/forum/202410/11/215900b0y6lw5luwl0lxze.jpg" referrerpolicy="no-referrer">
+
+<strong>GZnTJoXWAAcD2hX.jpg</strong> (328.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-11 21:59 上传
+

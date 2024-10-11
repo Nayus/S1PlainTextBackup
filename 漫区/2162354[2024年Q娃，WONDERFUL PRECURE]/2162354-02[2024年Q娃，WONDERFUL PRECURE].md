@@ -2960,3 +2960,15 @@ bg解这种大该是厕妹用语的词吧，很难想象正常人能用得出来
 
 另外今年的学校回到底是干什么用的？就为了体现出主角团已入学的状态，让小友知道要按时上学不要到处当街溜子？虽然Q娃写学校生活一向写得没什么水平，但今年甚至连运动会和棒球都没有诶？那iroha擅长运动这条设定在哪里体现啊？跑得跟狗一样快还是跑得比悟快？
 
+
+*****
+
+####  Cloudslin  
+##### 2496#       发表于 2024-10-11 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66424198&amp;ptid=2162354" target="_blank">jaewoongh_ 发表于 2024-10-11 13:07</a>
+今年的主题大概是“传递心声”而不是什么人宠关系性了。妮可大人出场后，对人类与宠物之间羁绊的描写越来越 ...</blockquote>
+和反派配对是你q的底层逻辑，后面忘了，此事在二人是光之美少女中便有记载，顺便一提育儿也是。所以某些豚友的言论吧，也不能完全说是在troll<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+今天大陆流媒体更新的就是派对nram回，个人感觉反派洗白配对这个水平对我来说是能接受的基准吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+想那么多有啥意义呢，退一万步讲去年的百合神作天q这会儿还是真白个人回高强度和蚱蜢互动加鸟姬结婚呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

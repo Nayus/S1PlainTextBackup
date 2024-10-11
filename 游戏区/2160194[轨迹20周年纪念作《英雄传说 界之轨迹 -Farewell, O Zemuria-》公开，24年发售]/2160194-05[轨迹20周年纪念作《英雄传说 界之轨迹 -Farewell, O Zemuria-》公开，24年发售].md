@@ -6232,3 +6232,11 @@ szh疯狗也不是一天两天了，现在外野那群贵物搞得乌烟瘴气sz
 
 —— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  benhawk  
+##### 6503#       发表于 2024-10-11 22:02
+
+红温了！s1论坛的sin值提升，还有30s准备开始大重置，不献祭一个s1娘，直接打回论坛元年
+

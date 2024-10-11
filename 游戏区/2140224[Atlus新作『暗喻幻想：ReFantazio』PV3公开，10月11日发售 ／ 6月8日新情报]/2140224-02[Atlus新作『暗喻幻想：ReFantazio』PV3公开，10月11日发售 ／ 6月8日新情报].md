@@ -2438,3 +2438,50 @@ deck城里30-50浮动吧，迷宫内55-60，1280x720p，100%渲染，兼容层�
 
 怎么刷级？死灵那个本居然能升到20级？
 
+
+*****
+
+####  windtrack  
+##### 1713#       发表于 2024-10-11 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66427979&amp;ptid=2140224" target="_blank">operatbig 发表于 2024-10-11 20:23</a>
+
+怎么刷级？死灵那个本居然能升到20级？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">这次经验衰减有下限 试玩版我牛头人迷宫都刷到21了，看其他人都有到30的
+
+<img src="https://img.saraba1st.com/forum/202410/11/202632z07h7lchk028tw11.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_6721.JPG</strong> (717.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-11 20:26 上传
+
+*****
+
+####  lbb3313725  
+##### 1714#       发表于 2024-10-11 20:29
+
+这作是不是繁体翻译比简体好？
+
+*****
+
+####  linyc0010  
+##### 1715#       发表于 2024-10-11 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66428019&amp;ptid=2140224" target="_blank">lbb3313725 发表于 2024-10-11 20:29</a>
+
+这作是不是繁体翻译比简体好？</blockquote>
+繁体你得接受女骑士叫侯根宝<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  operatbig  
+##### 1716#       发表于 2024-10-11 20:32
+
+<blockquote>windtrack 发表于 2024-10-11 20:26
+这次经验衰减有下限 试玩版我牛头人迷宫都刷到21了，看其他人都有到30的
+
+</blockquote>
+牛头人迷宫在哪？我现在只能打死灵主线。
+

@@ -774,3 +774,45 @@ atlus的精英尽出怎么搞到还不如gust和轨迹的
 
 美术我确实是基于P系列全家桶那张三代主角对P3视觉的拙劣模仿，以及后来的P25thfes的某张视觉图+P3R基本没走之前的视觉风格猜测的，否则至少是无法解释全家桶那张差劲到极点的氛围塑造
 
+
+*****
+
+####  Redimercia  
+##### 1554#       发表于 2024-10-11 10:34
+
+ 本帖最后由 Redimercia 于 2024-10-11 10:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66421800&amp;ptid=2140224" target="_blank">Dreammask 发表于 2024-10-11 09:03</a>
+
+可以说桥野自己抽走剧本骨干和一部分美术骨干这事才是P5及其后续的P组作品崩了的根本原因，P-LIVE的主视觉 ...</blockquote>
+美术部门一直是独立于p组的，而且从P4的衍生作开始副岛基本不插手这块了（访谈说偶尔对面部眼神作重点调整），玩家在游戏里看到的游戏立绘和外部活动视觉图这些2d资产都是部门成员们（也就是副岛的助手们）主导的，没有抽走美术骨干这种说法
+
+*****
+
+####  Redimercia  
+##### 1555#       发表于 2024-10-11 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66422564&amp;ptid=2140224" target="_blank">kuarwbwe 发表于 2024-10-11 10:26</a>
+
+其实最典的是真5他们就已经能做到了，到暗喻幻想又退回去了就很说不出话。
+
+—— 来自 鹅球 v3.1.91-alph ...</blockquote>
+积难重返，真v和P3R都是开发组从头学习虚幻4的成果，而暗喻企划开始的时候这俩的开发都还没提上日程吧
+
+*****
+
+####  Dreammask  
+##### 1556#       发表于 2024-10-11 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66422649&amp;ptid=2140224" target="_blank">Redimercia 发表于 2024-10-11 10:34</a>
+
+美术部门一直是独立于p组的，而且从P4的衍生作开始副岛基本不插手这块了（访谈说偶尔对面部眼神作重点调 ...</blockquote>
+这个确实是我的猜测，主要全家桶那张视觉图的拙劣实在是令我大跌眼镜，如果不是美术团队缺人很难解释<img src="https://static.saraba1st.com/image/smiley/face/04.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  卡拉德利姆  
+##### 1557#       发表于 2024-10-11 10:40
+
+奖杯成就的列表现在还没有吗
+

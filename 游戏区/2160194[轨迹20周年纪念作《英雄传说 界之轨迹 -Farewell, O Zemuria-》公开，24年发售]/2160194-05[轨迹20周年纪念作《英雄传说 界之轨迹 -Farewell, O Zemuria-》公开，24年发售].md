@@ -6152,3 +6152,21 @@ ss魔法克洛诺斯封技让对面无技可出，后期堆回避率效果也很
 
 szh是疯了吗？讲个段子也能封？
 
+
+*****
+
+####  lxshhh  
+##### 6495#       发表于 2024-10-11 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66426130&amp;ptid=2160194" target="_blank">卡拉德利姆 发表于 2024-10-11 16:55</a>
+
+szh是疯了吗？讲个段子也能封？</blockquote>
+szh疯狗也不是一天两天了，现在外野那群贵物搞得乌烟瘴气szh怕不是幕后保护伞噢，当然人家szh也有理由说得，我被人拿枪顶着呢，换你来试试！
+
+*****
+
+####  lmclmc2  
+##### 6496#       发表于 2024-10-11 16:59
+
+论坛情趣的一部分，勿念
+

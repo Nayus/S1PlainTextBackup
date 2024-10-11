@@ -1929,3 +1929,22 @@ a凯子想买了，所以剧本啥水平</blockquote>
 
 steamdeck表现咋样？
 
+
+*****
+
+####  AEmpire  
+##### 1662#       发表于 2024-10-11 16:56
+
+奇怪，我用手柄玩的但是UI一直显示的是键鼠的键位，我记得之前demo还能正常显示的 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yangkaim4  
+##### 1663#       发表于 2024-10-11 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66425298&amp;ptid=2140224" target="_blank">そらたかく 发表于 2024-10-11 15:24</a>
+
+你们玩这个游戏不会头晕反胃吗？地牢中各种特效，然后进入战斗时各种脸部特写切换，各种色块乱飞，节奏快起 ...</blockquote>
+帧数问题吧，我正式版拉满144帧，感觉挺好
+

@@ -2838,3 +2838,11 @@ compatdata/3130330/pfx/drive_c/users/steamuser/Application Data/SEGA/ 搬到
 
 compatdata/2679460/pfx/drive_c/users/steamuser/Application Data/SEGA/
 
+
+*****
+
+####  saverok  
+##### 1751#       发表于 2024-10-11 23:40
+
+教堂里面锁着的门和冒黑气的门第一遍能进去么  打完还能回去么
+

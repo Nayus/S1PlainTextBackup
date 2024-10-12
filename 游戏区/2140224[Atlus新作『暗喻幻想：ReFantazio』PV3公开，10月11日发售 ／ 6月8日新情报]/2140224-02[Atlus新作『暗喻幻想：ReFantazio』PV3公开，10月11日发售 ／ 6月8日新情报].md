@@ -5435,3 +5435,19 @@ p5战斗我玩不下去，这个好玩很多
 https://www.bilibili.com/video/BV1Gox5eHEm1/</blockquote>
 评论看到「孩子们，八十稻羽和朱尼斯被坏人摧毁了」给我笑的
 
+
+*****
+
+####  AEmpire  
+##### 1991#       发表于 2024-10-12 21:54
+
+可恶啊，我要创造一个玛利亚不会流泪的世界！<img src="https://static.saraba1st.com/image/smiley/face/129.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202410/12/215424de2mckdlottm3dkm.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (82.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-12 21:54 上传
+

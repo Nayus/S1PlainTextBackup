@@ -5719,3 +5719,11 @@ bug了，我也是
 —— 来自 S1Fun</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  johanliebert  
+##### 2017#       发表于 2024-10-13 01:30
+
+第二个迷宫下水道宝箱后面那个梯子是bug了吗？为什么没有交互选项
+

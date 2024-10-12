@@ -4538,3 +4538,44 @@ a9好像有个日程攻略了<img src="https://static.saraba1st.com/image/smiley
 
 而且据说墙也要拆了，属于臭打游戏的好时代终于要来啦。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jimlee080  
+##### 1910#       发表于 2024-10-12 15:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说起来这次暗喻幻想不会没有霜精和摩罗吧，皮克西倒是勉强算有个平替，祖传吉祥物不能就这么丢了吼
+
+*****
+
+####  walfeds  
+##### 1911#       发表于 2024-10-12 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66433762&amp;ptid=2140224" target="_blank">Jimlee080 发表于 2024-10-12 15:04</a>
+说起来这次暗喻幻想不会没有霜精和摩罗吧，皮克西倒是勉强算有个平替，祖传吉祥物不能就这么丢了吼 ...</blockquote>
+霜精有的，pv和宣发都用上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">魔罗我不好说
+
+*****
+
+####  liushen  
+##### 1912#       发表于 2024-10-12 15:07
+
+冒大不韪，退款了，人设丑，画面丑，跑动时就跑动了还有搞点雪花的效果画面感觉脏兮兮的，至于对话框不停的晃动（设定能关掉），感觉不论对话还是走动到处都在晃，还嫌画面不够乱吗？感觉为效果而效果了
+
+开头的叙事也是有点莫名其妙
+
+国王被杀（第一魔法师就这样？），然后跳到主角在马车上，然后遇袭，然后就一下子到沙漠了，然后就是沙漠狂奔，一下子又进城了，然后城内画面频繁切换，乱糟糟的。
+
+哎
+
+吐槽下
+
+*****
+
+####  jxzeroga0  
+##### 1913#       发表于 2024-10-12 15:08
+
+玩了个开场，总感觉主角和番长的阿基态觉醒剧情和演出都很干巴巴，主角还好一些，番长的战士跟走流程一样没有一点情绪调动的，演出也很不咋地。
+
+倒是这系统对只接触过p的来说新鲜要素还挺多，玩起来不错。
+

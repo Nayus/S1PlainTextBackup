@@ -5469,3 +5469,30 @@ https://www.bilibili.com/video/BV1Gox5eHEm1/</blockquote>
 
 玛利亚真可爱吧
 
+
+*****
+
+####  Khellendros  
+##### 1994#       发表于 2024-10-12 23:08
+
+要有一定支持率才有暗杀保护，后面说了
+
+*****
+
+####  kuarwbwe  
+##### 1995#       发表于 2024-10-12 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66436208&amp;ptid=2140224" target="_blank">螃蟹鬼魂 发表于 2024-10-12 20:28</a>
+不是说所有人都可以挑战王位吗</blockquote>
+刚打完第一章，后面有解释。声望高的都会被魔法保护起来，不能暗杀，可以正面公平决斗。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+
+*****
+
+####  古战场亡魂  
+##### 1996#       发表于 2024-10-12 23:10
+
+你们玩吧，我等黄金版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

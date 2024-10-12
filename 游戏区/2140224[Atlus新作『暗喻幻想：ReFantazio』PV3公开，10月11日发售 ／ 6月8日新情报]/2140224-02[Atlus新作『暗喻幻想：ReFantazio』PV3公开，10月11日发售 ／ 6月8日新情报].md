@@ -3673,3 +3673,58 @@ demo里上来就种族歧视糊脸已经觉得味道不太对了，不过日本�
 比真4强多了吧，真4那个挥剑打马赛克是真的玩哭了</blockquote>
 A社的即时动作感觉总要给你掺点屎<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">真4面对发癫马赛克敌人的弱智出刀距离和速度、真5鸟类明雷怪离奇大的碰撞判定
 
+
+*****
+
+####  mjzs07  
+##### 1829#       发表于 2024-10-12 11:08
+
+真4打一下就够了 这个得往死里打
+
+*****
+
+####  HUNIESOULS_1  
+##### 1830#       发表于 2024-10-12 11:09
+
+国内制作者真敢锐评啊，就不怕自己做的东西出来被人恶意联想，没见过这么急着给自己挖坑的创作者<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  夕霧  
+##### 1831#       发表于 2024-10-12 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66431821&amp;ptid=2140224" target="_blank">heseran 发表于 2024-10-12 11:01</a>
+之前试玩的时候港服默认繁中，也就侯根堡这名字有点不习惯，正式版用简中玩一直感觉不少文本读起来有点些 ...</blockquote>
+繁体这个字号这么小的吗？看起来眼睛好累<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  ybfelix  
+##### 1832#       发表于 2024-10-12 11:14
+
+demo那个开怪失衡系统我就没太搞明白，到底是想做怎样的效果，难道就真的只是猛击按钮，完全没有其它深度吗
+
+*****
+
+####  Redimercia  
+##### 1833#       发表于 2024-10-12 11:14
+
+还自称a社老粉，怕不是就玩过个p5r<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  PETN  
+##### 1834#       发表于 2024-10-12 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66431642&amp;ptid=2140224" target="_blank">Khellendros 发表于 2024-10-12 10:43</a>
+
+种族骑士话题真的挺儿戏，基本就只表现在路人对主角说点垃圾话这种程度，教会明明倡导种姓制度但很多地方也 ...</blockquote>
+发售前给人的错觉这次要大书特书DEI和种族骑士，然而实际上我玩到公路片部分上了战车给人感觉也就是点到为止的程度，整体无非也就是日式异世界普遍存在的种族隔阂问题
+
+哪怕是巫师3杰洛特受的歧视也要比男主严重得多了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

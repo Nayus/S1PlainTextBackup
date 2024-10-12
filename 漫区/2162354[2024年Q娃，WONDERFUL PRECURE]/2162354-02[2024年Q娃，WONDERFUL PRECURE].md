@@ -2972,3 +2972,36 @@ bg解这种大该是厕妹用语的词吧，很难想象正常人能用得出来
 今天大陆流媒体更新的就是派对nram回，个人感觉反派洗白配对这个水平对我来说是能接受的基准吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 想那么多有啥意义呢，退一万步讲去年的百合神作天q这会儿还是真白个人回高强度和蚱蜢互动加鸟姬结婚呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Cloudslin  
+##### 2497#       发表于 2024-10-11 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66424198&amp;ptid=2162354" target="_blank">jaewoongh_ 发表于 2024-10-11 13:07</a>
+今年的主题大概是“传递心声”而不是什么人宠关系性了。妮可大人出场后，对人类与宠物之间羁绊的描写越来越 ...</blockquote>
+和反派配对是你q的底层逻辑，后面忘了，此事在二人是光之美少女中便有记载，顺便一提育儿也是。所以某些豚友的言论吧，也不能完全说是在troll<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+今天大陆流媒体更新的就是派对nram回，个人感觉反派洗白配对这个水平对我来说是能接受的基准吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+想那么多有啥意义呢，退一万步讲去年的百合神作天q这会儿还是真白个人回高强度和蚱蜢互动加鸟姬结婚呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  犬飼いろは  
+##### 2498#       发表于 2024-10-12 11:07
+
+第37話　みんなで初デート！？
+
+脚本：井上美緒
+
+演出：手塚江美
+
+作画監督：青山充
+
+美術：徐柱星
+
+デートの約束をしたいろは（CV.種﨑敦美）と悟は、鏡石の前で待ち合わせる。こむぎ（CV.長縄まりあ）を連れたいろはと、大福を連れた悟を見て、通りかかったユキ（CV.松田颯水）とまゆ（CV.上田麗奈）はおどろくが、そこにメエメエとニコもあらわれる。こむぎはユキとまゆに、大福はメエメエとニコにあずかってもらい、ふたりきりになるいろはと悟だが、悟をひとりじめされるのを心配したメエメエはこっそりあとをつけていく。お互い緊張で会話もぎこちなかったいろはと悟は、海浜公園でポメラニアンのポンを連れたえまと再会したり、ショッピングモールを歩くうちに落ち着いていき、水族館にやってくる頃には、いつもと変わらない会話ができるようになる。一方、ショッピングモールでメエメエをつかまえたユキとまゆだったが、そこにはトラメもおり、ガオガオーンを呼び出そうとしていた。
+<img src="https://files.catbox.moe/5vnbyg.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/wt48e0.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/uysqbn.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/5ff5x8.jpg" referrerpolicy="no-referrer">
+

@@ -4236,3 +4236,30 @@ Segay这几年融媒体宣发尝到甜头后开始加码了
 
 泥潭某些也是牛逼，这人设还不丑啊？<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kuarwbwe  
+##### 1885#       发表于 2024-10-12 12:58
+
+ 本帖最后由 kuarwbwe 于 2024-10-12 13:04 编辑 
+
+反正这游戏这个宣发对我来说真的很让我反感。很难不让我联想到一些宣发研发费用五五开，甚至比研发成本大的游戏。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  blz436  
+##### 1886#       发表于 2024-10-12 13:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+原野战斗开新档主玩战士有被动兜底开怪倒没怎么受苦，战士这双手剑空气刀还挺远，目前只在邪灵这种传送到你背后的怪吃了点小瘪
+
+*****
+
+####  horacio  
+##### 1887#       发表于 2024-10-12 13:04
+
+demo就看了个画面，我打到大教堂，那个会出怪的花，我看他无限出怪主角马上转了个术士，然后就在旁边不停地a，一会大家都满蓝了，好爽，可惜不小心被我a死了，不然我还想再哪里刷级好了
+

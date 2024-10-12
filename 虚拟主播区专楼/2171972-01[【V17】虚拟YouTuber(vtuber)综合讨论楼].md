@@ -392,3 +392,19 @@ Speciale势头最好的鳟鱼哥这就无限期休止了。。这一期真的太
 看到x趋势才知道虹最新的新人（大概）跑了一个，有说是啥原因吗？</blockquote>
 没说原因，就突然推特宣布无限期停止活动的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  バーチャルS1er  
+##### 814#       发表于 2024-10-12 11:17
+
+推特终于要杀广告机器人了，不过还要等一个月<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  holoan  
+##### 815#       发表于 2024-10-12 11:23
+
+机器人不都是蓝V吗，怎么杀
+

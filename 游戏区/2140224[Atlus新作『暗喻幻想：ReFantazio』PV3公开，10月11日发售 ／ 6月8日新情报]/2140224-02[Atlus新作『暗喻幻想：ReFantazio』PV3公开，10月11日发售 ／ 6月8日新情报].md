@@ -3728,3 +3728,68 @@ demo那个开怪失衡系统我就没太搞明白，到底是想做怎样的效�
 
 哪怕是巫师3杰洛特受的歧视也要比男主严重得多了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绯想灵梦  
+##### 1835#       发表于 2024-10-12 11:16
+
+制作人锐评小心吃回旋镖哦
+
+*****
+
+####  monikaca  
+##### 1836#       发表于 2024-10-12 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66431948&amp;ptid=2140224" target="_blank">绯想灵梦 发表于 2024-10-12 11:16</a>
+
+制作人锐评小心吃回旋镖哦</blockquote>
+他现在应该还处于21年左右冯的状态，还会在互联网和人对线QA。
+
+*****
+
+####  akiomn  
+##### 1837#       发表于 2024-10-12 11:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">影之刃0先端出来就算成功好吧，先锐评起其他游戏，到时候怕是自己回旋镖吃满
+
+*****
+
+####  断翼  
+##### 1838#       发表于 2024-10-12 11:19
+
+<blockquote>UnrealApartheid 发表于 2024-10-12 10:58
+动画制作公司Domerica，导演市川量也</blockquote>
+这次op也没委托其他公司制作？
+
+*****
+
+####  王一唯不傲娇  
+##### 1839#       发表于 2024-10-12 11:20
+
+日本有是有种族问题，但是问题是这玩意根本上不了桌。
+
+右翼每天在那黑中韩，动不动就是中国爆炸，就是明着看你们中国人不爽（结果现在被越南人和库尔德人摘了桃子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）。
+
+部落民属于直接无视的对象。
+
+至于什么阿依努人，琉球岛民，在他们眼里真是日本人吗？我不好说。
+
+
+*****
+
+####  NEIN  
+##### 1840#       发表于 2024-10-12 11:26
+
+阿基态经验也太少了……
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+
+*****
+
+####  walfeds  
+##### 1841#       发表于 2024-10-12 11:27
+
+大，大胸吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">苦思冥想半天难道梁博基尼是柏木爱好者？
+

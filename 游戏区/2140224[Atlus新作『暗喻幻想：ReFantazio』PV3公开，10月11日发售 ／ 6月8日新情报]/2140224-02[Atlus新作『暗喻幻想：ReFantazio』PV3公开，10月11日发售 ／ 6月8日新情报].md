@@ -3410,3 +3410,20 @@ bgm各有特色。而ui和p5比确实是退步了，虽然我适应了，但不�
 
 能一次打完还是一次打完吧完全没事可做只能升资质也就3天左右，而且后面支线有资质需求，推荐包容和想象
 
+
+*****
+
+####  kalavinka  
+##### 1806#       发表于 2024-10-12 10:00
+
+demo打到刺杀就没玩了，看了下视频牛头11级就过了，具体就是2骑1剑，剑士需要速度最高，带冰块或者继承冰魔法，然后剑士打打weak，主要靠骑士嘲讽+盾吃牛行动点，输出靠剑骑合题，因为减防所以等级不重要，而且也能打weak，唯一翻车点就是牛哥出aoe，我是一把就过了概率应该不会太高<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dazzle  
+##### 1807#       发表于 2024-10-12 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66430416&amp;ptid=2140224" target="_blank">半江瑟瑟半江红 发表于 2024-10-12 08:28</a>
+大地图平a开怪是我今年玩到最弱智的游戏系统，我方平a半天才能进先手，敌方摸到一下就进先手，搭配屎一样的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">比真4强多了吧，真4那个挥剑打马赛克是真的玩哭了
+

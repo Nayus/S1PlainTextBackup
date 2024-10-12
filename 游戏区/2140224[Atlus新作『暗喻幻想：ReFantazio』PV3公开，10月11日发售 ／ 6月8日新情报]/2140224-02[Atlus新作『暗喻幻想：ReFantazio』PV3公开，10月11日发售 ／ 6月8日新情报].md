@@ -5334,3 +5334,38 @@ p5战斗我玩不下去，这个好玩很多
 
 这还要做成兄弟，八成是neta回转企鹅罐，声音一出来就笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NEIN  
+##### 1984#       发表于 2024-10-12 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66436083&amp;ptid=2140224" target="_blank">LMBS 发表于 2024-10-12 20:10</a>
+看到有人起名能用中文，可是这边试不出来，电脑版吃按不出输入法</blockquote>
+我用微软输入法能打中文的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  螃蟹鬼魂  
+##### 1985#       发表于 2024-10-12 20:28
+
+ 本帖最后由 螃蟹鬼魂 于 2024-10-12 20:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66435814&amp;ptid=2140224" target="_blank">linyc0010 发表于 2024-10-12 19:31</a>
+王之魔法保护的是候选人，老头不是候选人</blockquote>
+不是说所有人都可以挑战王位吗
+
+<img src="https://p.sda1.dev/19/723222fb174183238470ac814509d09a/CMP_20241012202955529.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星野航  
+##### 1986#       发表于 2024-10-12 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66436208&amp;ptid=2140224" target="_blank">螃蟹鬼魂 发表于 2024-10-12 21:28</a>
+
+不是说所有人都可以挑战王位吗</blockquote>
+老头没有去挑战，老头是暗杀挑战者啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1782,3 +1782,13 @@ LL的集换式卡牌还有cast卡，部分还有签名
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  ViyViy  
+##### 173#       发表于 2024-10-12 14:19
+
+场外因素的大手，这次没所谓的敌人了，插曲把之前敌团的份也挪过来了，甚至还比前两季多一首，所以肯定不至于没歌
+
+但是暂时写不出来需要香音抱抱，这种顶级下三路捧人桥段花田会不会放过就不知道了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

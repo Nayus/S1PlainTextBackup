@@ -4041,3 +4041,112 @@ P5在题材选择和演出手法，节奏上比4都进步了一大截，给人�
 
 这一作美术和人设没喷点吧，我觉得比p5潮多了，要拉胯也是游戏内建模的问题。剧情我倒觉得阿特拉斯一直就那样，虽然我也觉得p4g剧情好点但也没好到哪去
 
+
+*****
+
+####  monikaca  
+##### 1866#       发表于 2024-10-12 12:17
+
+梁总被人挂了之后被团建了，骂的这集我好像看过。
+
+*****
+
+####  Sopp  
+##### 1867#       发表于 2024-10-12 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66431829&amp;ptid=2140224" target="_blank">bwsusaga 发表于 2024-10-12 11:02</a>
+
+还有，这作的美术方向，你们不觉的很像《五星物语》么？
+
+第一个阿基态旅人的设计，纯纯的致敬雷德幻像。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">同感，霍肯伯格一眼就是fatima……
+
+*****
+
+####  superlink  
+##### 1868#       发表于 2024-10-12 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66432463&amp;ptid=2140224" target="_blank">modkingr 发表于 2024-10-12 12:01</a>
+有点搞不懂为什么会有人说这一作的人设土，在我来看简直有点先锋到很多人接受不了的程度了
+
+如果说P5给人的 ...</blockquote>
+人设那是怪，过于前卫。属于特殊xp不限制放出
+
+—— 来自 vivo V2304A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  罗克萨斯  
+##### 1869#       发表于 2024-10-12 12:21
+
+这人心眼挺小的，挨不得喷，贴吧有人就这么被拉黑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202410/12/122134bj90j0vkv4j13e40.jpg" referrerpolicy="no-referrer">
+
+<strong>4A12507C37C0696AB67A12D383AB9949.jpg</strong> (718.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-12 12:21 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  superlink  
+##### 1870#       发表于 2024-10-12 12:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">影之刃是纯蹭，别什么反zq，有种做个大后宫出来，我看国内那帮人嘴里都是反zq心里还不知道咋想的
+
+—— 来自 vivo V2304A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  walfeds  
+##### 1871#       发表于 2024-10-12 12:22
+
+只能说这作的剧情美术音乐玩法不管哪个方面受众群体和p系都有光谱差异，把p粉勾过来大概率属于骗进来杀了，所以不管那个打过来都先投降为敬好吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  monikaca  
+##### 1872#       发表于 2024-10-12 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66432651&amp;ptid=2140224" target="_blank">superlink 发表于 2024-10-12 12:21</a>
+
+影之刃是纯蹭，别什么反zq，有种做个大后宫出来，我看国内那帮人嘴里都是反zq心里还不知道咋想的
+
+—— 来 ...</blockquote>
+我没记错的话他手游里倒是很多各种XP的美少女的，如果他把这些做进游戏里我就无条件支持他！
+
+
+*****
+
+####  suzakushi  
+##### 1873#       发表于 2024-10-12 12:25
+
+土不土不知道，丑是绝对的。真的太丑了，丑到完全点不下购买按钮。
+
+—— 来自 Sony XQ-AT52, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  PETN  
+##### 1874#       发表于 2024-10-12 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66432463&amp;ptid=2140224" target="_blank">modkingr 发表于 2024-10-12 12:01</a>
+
+有点搞不懂为什么会有人说这一作的人设土，在我来看简直有点先锋到很多人接受不了的程度了
+
+如果说P5给人的 ...</blockquote>
+人设并不土，主要是部分人物建模挺拉跨的，精细度太差，本作用的是老引擎开发？
+
+最典型的就是霍肯伯格，游戏里能看到她的全身设定图非常NICE，然而实际游戏建模辣眼睛...
+
+*****
+
+####  陶矢  
+##### 1875#       发表于 2024-10-12 12:26
+
+这玩意不是手游,不在中国发行为啥在街边看到了一排这个游戏的广告...国内谁会挣这个游戏的钱?
+

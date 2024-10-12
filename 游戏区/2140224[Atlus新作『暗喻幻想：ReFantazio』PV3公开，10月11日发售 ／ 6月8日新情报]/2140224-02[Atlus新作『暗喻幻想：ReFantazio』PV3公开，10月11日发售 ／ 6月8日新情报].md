@@ -4186,3 +4186,11 @@ Segay这几年融媒体宣发尝到甜头后开始加码了
 
 日本作为一个岛国怎么可能没有种族歧视等问题。。。
 
+
+*****
+
+####  星花  
+##### 1879#       发表于 2024-10-12 12:42
+
+我记得日本确实有一直被压迫的原住民的。<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

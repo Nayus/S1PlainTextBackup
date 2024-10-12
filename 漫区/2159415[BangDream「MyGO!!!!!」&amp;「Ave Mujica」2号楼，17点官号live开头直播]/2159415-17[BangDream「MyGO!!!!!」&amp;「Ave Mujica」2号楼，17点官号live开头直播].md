@@ -11128,3 +11128,19 @@ disruption的详细设定，只有吉他主唱和鼓，缺贝斯，这设定就�
 
 [https://www.bilibili.com/video/BV1Ak2DYgEp1](https://www.bilibili.com/video/BV1Ak2DYgEp1)
 
+
+*****
+
+####  6030sylar  
+##### 24612#       发表于 2024-10-12 16:43
+
+<img src="https://img.saraba1st.com/forum/202410/12/164255pkt7wyy9wtd91rdy.png" referrerpolicy="no-referrer">
+
+<strong>D@{9MCPLUALJ~IJC[~()1{J.png</strong> (48.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-12 16:42 上传
+
+不愧是你wsd
+

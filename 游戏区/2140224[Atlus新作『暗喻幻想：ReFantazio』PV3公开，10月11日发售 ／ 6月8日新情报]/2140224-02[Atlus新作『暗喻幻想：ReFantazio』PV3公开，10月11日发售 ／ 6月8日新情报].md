@@ -4971,3 +4971,42 @@ P5后很多游戏都开始做过渡动画切UI，但大部分都是画虎不成�
 
 你看，一句话就说明白，经典无比的剧情
 
+
+*****
+
+####  抽烟的猴  
+##### 1949#       发表于 2024-10-12 16:38
+
+<img src="https://img.saraba1st.com/forum/202410/12/163813jfmxesksk7bpb5sk.jpg" referrerpolicy="no-referrer">
+
+<strong>EE2BAD13DC3BE4F102C30E5538A15905_edit_2348087307111929.jpg</strong> (42.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-12 16:38 上传
+
+做成这样最后能破圈吗有点怀疑
+
+*****
+
+####  そらたかく  
+##### 1950#       发表于 2024-10-12 16:39
+
+我之前还喷XB3的剧情，现在我只想说对不起高桥GG，是我之前说话有点大声。
+
+*****
+
+####  Rainwedell  
+##### 1951#       发表于 2024-10-12 16:40
+
+nmd 还我短发骑士<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  magicc  
+##### 1952#       发表于 2024-10-12 16:40
+
+插图真比建模好看百倍吧
+

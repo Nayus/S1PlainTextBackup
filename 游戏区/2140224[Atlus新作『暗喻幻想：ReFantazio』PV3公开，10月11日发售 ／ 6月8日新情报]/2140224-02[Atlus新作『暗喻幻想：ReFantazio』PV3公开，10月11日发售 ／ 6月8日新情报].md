@@ -5134,3 +5134,35 @@ p系这种日程表式玩法真不适合暗喻幻想这种国家层面事件的�
 剑士被动的“若有同系统的阿基态”是什么意思？</blockquote>
 有其他剑士或者剑士上级职业吧应该是
 
+
+*****
+
+####  NEIN  
+##### 1966#       发表于 2024-10-12 18:18
+
+前期的aoe只有武僧吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  modkingr  
+##### 1967#       发表于 2024-10-12 18:22
+
+初见杀也太多了吧草，还不支持战斗中读档
+
+支线做个任务碰见物理攻击三反弱光的boss，最效率的重开方式竟然是ALT F4？
+
+
+*****
+
+####  Rushtime33  
+##### 1968#       发表于 2024-10-12 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66435322&amp;ptid=2140224" target="_blank">modkingr 发表于 2024-10-12 18:22</a>
+
+初见杀也太多了吧草，还不支持战斗中读档
+
+支线做个任务碰见物理攻击三反弱光的boss，最效率的重开方式竟然 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">重开战斗不支持改编队太弱智了，不会到皇家版才加吧。
+

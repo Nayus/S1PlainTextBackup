@@ -11222,3 +11222,11 @@ disruption的详细设定，只有吉他主唱和鼓，缺贝斯，这设定就�
 
 明天live肯定不会放动画pv了呗，这是早就预见到了的事情。
 
+
+*****
+
+####  skives  
+##### 24622#       发表于 2024-10-12 18:38
+
+pv会在下周四出现的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

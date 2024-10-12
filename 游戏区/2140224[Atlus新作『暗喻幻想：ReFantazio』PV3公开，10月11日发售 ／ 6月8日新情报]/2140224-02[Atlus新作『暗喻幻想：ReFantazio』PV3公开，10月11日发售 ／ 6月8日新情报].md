@@ -3191,3 +3191,42 @@ pc版声音很小，有调整方法吗</blockquote>
 想了解下口味对不对的上</blockquote>
 跟P5完全是两种游戏，这个游戏的气质比较接近DDS或者中古奇幻的女神转生，乐趣主要在build和探索闯关
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1785#       发表于 2024-10-12 08:28
+
+大地图平a开怪是我今年玩到最弱智的游戏系统，我方平a半天才能进先手，敌方摸到一下就进先手，搭配屎一样的平a手感和特别不明显的攻击前摇，负反馈拉满了。为什么我方不能也加个眩晕槽的设定？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  鶴来  
+##### 1786#       发表于 2024-10-12 08:29
+
+打到第二个城镇，目前商人的初始技能太强了，每个人都继承一个黄金攻击，战斗时只复读这一个技能就暴打所有敌人。
+
+
+*****
+
+####  牙狼GARO  
+##### 1787#       发表于 2024-10-12 08:31
+
+矿山里的龙hard有人打爆了么，那龙序章能打爆
+
+—— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  kuarwbwe  
+##### 1788#       发表于 2024-10-12 08:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66430445&amp;ptid=2140224" target="_blank">牙狼GARO 发表于 2024-10-12 08:31</a>
+
+矿山里的龙hard有人打爆了么，那龙序章能打爆
+
+—— 来自 OnePlus LE2100, Android 14上的 S1Next-鹅版 v2. ...</blockquote>
+一个战士双法师很轻松就过了。
+

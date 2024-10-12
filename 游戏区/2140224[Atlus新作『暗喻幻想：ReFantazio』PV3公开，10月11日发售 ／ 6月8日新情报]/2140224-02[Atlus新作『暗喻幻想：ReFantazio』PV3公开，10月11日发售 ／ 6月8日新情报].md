@@ -4150,3 +4150,39 @@ P5在题材选择和演出手法，节奏上比4都进步了一大截，给人�
 
 这玩意不是手游,不在中国发行为啥在街边看到了一排这个游戏的广告...国内谁会挣这个游戏的钱?
 
+
+*****
+
+####  walfeds  
+##### 1876#       发表于 2024-10-12 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66432685&amp;ptid=2140224" target="_blank">陶矢 发表于 2024-10-12 12:26</a>
+这玩意不是手游,不在中国发行为啥在街边看到了一排路灯挂着这个游戏的广告...国内谁会挣这个游戏的钱? ...</blockquote>
+Segay这几年融媒体宣发尝到甜头后开始加码了
+我记得smt5原版发售的时候就往微博上投简中广告了
+
+*****
+
+####  monikaca  
+##### 1877#       发表于 2024-10-12 12:30
+
+祝A社多样性大作大卖特卖。
+
+多样性就是力量！
+
+<img src="https://img.saraba1st.com/forum/202410/12/123038wdzd6r4dy1nnd2n4.jpg" referrerpolicy="no-referrer">
+
+<strong>biQkcp-k0xuZtT3cSqz-qm.jpg</strong> (174.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-12 12:30 上传
+
+
+*****
+
+####  iceplatinum  
+##### 1878#       发表于 2024-10-12 12:34
+
+日本作为一个岛国怎么可能没有种族歧视等问题。。。
+

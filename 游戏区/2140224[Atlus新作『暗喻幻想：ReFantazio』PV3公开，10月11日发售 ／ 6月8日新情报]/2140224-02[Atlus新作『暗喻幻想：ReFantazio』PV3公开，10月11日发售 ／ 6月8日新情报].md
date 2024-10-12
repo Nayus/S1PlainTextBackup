@@ -3941,3 +3941,88 @@ soulframe自称的A社老粉就纯笑话，真老粉不会对rpg.jp有任何超�
 — ...</blockquote>
 比较好奇日本本土的评价，该不会因为洋大人喜欢日本人就觉得为国争光了吧。
 
+
+*****
+
+####  抽烟的猴  
+##### 1856#       发表于 2024-10-12 11:57
+
+<blockquote>akiomn 发表于 2024-10-12 11:49
+p5第一章作为jrpg是顶级的，我觉得即使放到今天都是顶级，开局就装了个大逼，然后进局子开始倒叙，可能就觉 ...</blockquote>
+泥潭公认顶级的p剧情不是p4吗
+
+*****
+
+####  akiomn  
+##### 1857#       发表于 2024-10-12 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66432423&amp;ptid=2140224" target="_blank">抽烟的猴 发表于 2024-10-12 11:57</a>
+泥潭公认顶级的p剧情不是p4吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我说的是p5第一章顶级，谁都知道p5后期拉了坨大的
+
+*****
+
+####  卡拉德利姆  
+##### 1858#       发表于 2024-10-12 12:01
+
+我还以为大制作人有啥新鲜的 不就是论坛贴吧那几句复读啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  modkingr  
+##### 1859#       发表于 2024-10-12 12:01
+
+有点搞不懂为什么会有人说这一作的人设土，在我来看简直有点先锋到很多人接受不了的程度了
+
+如果说P5给人的感觉是懂得流行的潮男潮女，这游戏的角色给人感觉基本是T台走秀的模特那一类了。甚至奇装异服也是那一款的
+
+*****
+
+####  线程召唤使  
+##### 1860#       发表于 2024-10-12 12:01
+
+哎哟梁博基尼怎么又老粉了
+
+
+*****
+
+####  walfeds  
+##### 1861#       发表于 2024-10-12 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66432463&amp;ptid=2140224" target="_blank">modkingr 发表于 2024-10-12 12:01</a>
+有点搞不懂为什么会有人说这一作的人设土，在我来看简直有点先锋到很多人接受不了的程度了
+
+如果说P5给人的 ...</blockquote>
+没毛病啊，对大部分人来说如今祛魅了的时装时尚概念就是土<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dazzle  
+##### 1862#       发表于 2024-10-12 12:05
+
+P4特别是原版ps2版，展开是比较慢热比较平的，剧情量也不多，p4g额外增加了很多日常内容算是点睛之笔
+P5在题材选择和演出手法，节奏上比4都进步了一大截，给人的感觉就是十分凌厉锋芒毕露，一直到双叶结束都可以说是顶尖水准，可惜后面确实是高开低走
+
+*****
+
+####  windtrack  
+##### 1863#       发表于 2024-10-12 12:06
+
+不愧你A"集大成"之作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202410/12/120552l6tdzzkbgk7dfzv6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (102.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-12 12:05 上传
+
+<img src="https://img.saraba1st.com/forum/202410/12/120558swdgnf9b6bee55jm.png" referrerpolicy="no-referrer">
+
+<strong>67e0dc5a1eacaef7e748aab2f5f9b11d.png</strong> (215.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-12 12:05 上传
+

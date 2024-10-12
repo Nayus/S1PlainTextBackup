@@ -11118,3 +11118,13 @@ disruption的详细设定，只有吉他主唱和鼓，缺贝斯，这设定就�
 
 图来自群，李子要去北京了
 
+
+*****
+
+####  NODY  
+##### 24611#       发表于 2024-10-12 12:01
+
+【【中字/Ave Mujica】鹫崎健的夜夜×晚晚 2024.10.03（嘉宾：高尾奏音 佐佐木李子 ）】
+
+[https://www.bilibili.com/video/BV1Ak2DYgEp1](https://www.bilibili.com/video/BV1Ak2DYgEp1)
+

@@ -5496,3 +5496,30 @@ https://www.bilibili.com/video/BV1Gox5eHEm1/</blockquote>
 
 你们玩吧，我等黄金版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kuarwbwe  
+##### 1997#       发表于 2024-10-12 23:19
+
+ 本帖最后由 kuarwbwe 于 2024-10-12 23:21 编辑 
+
+这游戏各种稀奇古怪的人类可太帅了，异形爱好者狂喜。阿基态设计的也很不错。爱了爱了。<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+打完尸术师和大教堂的人类了，目前感觉还挺好的。剧情上面女骑士变身有点尬。但总体感觉还不错。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  Khellendros  
+##### 1998#       发表于 2024-10-12 23:20
+
+打到第二个城市感觉渐入佳境了
+
+支线迷宫主要分3类吧，一种是岔路加点狗洞跟印象空间差不多，一种是大平原无双，还有就是前几章的主线迷宫开放新区域（大概，还没做这个支线）
+
+商人真的太强了，撒 币攻击万能属性伤害高又有高暴击，还不耗蓝，主角带着原野战斗秒一只小怪就给300块，钱越打越多……太轮椅了，彻底告别mp焦虑
+
+第四个队友也是很着急入队没啥剧情就觉醒了，甚至感觉觉醒的时候都没受什么刺激，太样板戏了
+

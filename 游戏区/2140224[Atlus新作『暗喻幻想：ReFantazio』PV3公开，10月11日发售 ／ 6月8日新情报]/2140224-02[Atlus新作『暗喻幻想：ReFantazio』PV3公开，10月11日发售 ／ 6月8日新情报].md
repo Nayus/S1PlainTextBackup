@@ -4263,3 +4263,22 @@ Segay这几年融媒体宣发尝到甜头后开始加码了
 
 demo就看了个画面，我打到大教堂，那个会出怪的花，我看他无限出怪主角马上转了个术士，然后就在旁边不停地a，一会大家都满蓝了，好爽，可惜不小心被我a死了，不然我还想再哪里刷级好了
 
+
+*****
+
+####  Dreammask  
+##### 1888#       发表于 2024-10-12 13:08
+
+有种准备加强版都优化完再卖大家个全价钱的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kuarwbwe  
+##### 1889#       发表于 2024-10-12 13:09
+
+顺便，影之刃我估计吃不了回旋镖。这游戏卖相和题材比暗喻幻想受众广多了。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+最后的剧情发展大概率是卖不了几份的jrpg脑残粉听不得人家说实话，找人家碰瓷闹麻了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

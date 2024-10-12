@@ -5794,3 +5794,13 @@ bug了，我也是
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  NEIN  
+##### 2025#       发表于 2024-10-13 02:39
+
+才发现金钱镖是算近战伤害吗，还有金钱镖吃不吃物理技能伤害加成啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

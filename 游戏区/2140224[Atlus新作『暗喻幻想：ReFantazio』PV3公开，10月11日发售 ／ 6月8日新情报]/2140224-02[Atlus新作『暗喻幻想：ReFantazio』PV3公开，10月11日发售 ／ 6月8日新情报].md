@@ -5680,3 +5680,42 @@ https://www.bilibili.com/video/BV14221YwEXg/</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打到能接支线的地方看了一眼攻略，才发现自己最开始北部要塞那块打完根本没跳成就，这怎么做到的……
 
+
+*****
+
+####  Kaornao  
+##### 2013#       发表于 2024-10-13 01:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66437822&amp;ptid=2140224" target="_blank">蛇头 发表于 2024-10-13 01:00</a>
+打到能接支线的地方看了一眼攻略，才发现自己最开始北部要塞那块打完根本没跳成就，这怎么做到的…… ...</blockquote>
+bug了，我也是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  modkingr  
+##### 2014#       发表于 2024-10-13 01:17
+
+第二章打完了，越来越好了
+
+*****
+
+####  空集  
+##### 2015#       发表于 2024-10-13 01:17
+
+虽然这个阿特拉斯摆烂的3D和2D动画让我吐槽很多次 但是这个日子过起来还是玩的停不下来了  <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">  十里坡刷钱也很爽 ； 不过这游戏玩久了眼睛酸
+
+
+*****
+
+####  蛇头  
+##### 2016#       发表于 2024-10-13 01:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66437878&amp;ptid=2140224" target="_blank">Kaornao 发表于 2024-10-13 01:17</a>
+
+bug了，我也是
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

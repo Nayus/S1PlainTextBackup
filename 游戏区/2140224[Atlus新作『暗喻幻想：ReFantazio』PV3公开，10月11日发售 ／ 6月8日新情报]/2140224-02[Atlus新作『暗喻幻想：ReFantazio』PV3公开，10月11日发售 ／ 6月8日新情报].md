@@ -5664,3 +5664,19 @@ https://www.bilibili.com/video/BV14221YwEXg/</blockquote>
 在河道把大黑猫做掉了，一个初级群奶，一个高级群奶，三个人轮流上加攻buff和减防buff，三层叠到结束给磨死 ...</blockquote>
 猫打起来不算太难<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且打了还不是一次搞定，后面还要再来一次躲猫猫，第二次我就懒得打了
 
+
+*****
+
+####  hugosol  
+##### 2011#       发表于 2024-10-13 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66437723&amp;ptid=2140224" target="_blank"> lilod 发表于 2024-10-13 00:21</a> 完蛋，先去了牛头人任务，结果10级进去看到 22 级 boss 还是 hard 难度，想破头都不知道怎么打。。。 </blockquote>
+用L3重开凹三发麻痹箭，凹中就可以一直全力输出了，到死都不会动一下，毫无技术含量的解法来自: iPhone客户端
+
+*****
+
+####  蛇头  
+##### 2012#       发表于 2024-10-13 01:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打到能接支线的地方看了一眼攻略，才发现自己最开始北部要塞那块打完根本没跳成就，这怎么做到的……
+

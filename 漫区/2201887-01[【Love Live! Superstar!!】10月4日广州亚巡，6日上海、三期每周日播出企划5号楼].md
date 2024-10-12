@@ -1742,3 +1742,18 @@ LL的集换式卡牌还有cast卡，部分还有签名
 
 看后天看具体剧本节奏是什么样的再决定这周怎么料理花田的马
 
+
+*****
+
+####  adw667  
+##### 170#       发表于 2024-10-12 08:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66428562&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-10-11 21:45</a>
+
+插4就一首歌，难道老歌新唱？
+
+然后看到第二集的糊图透了，第二集看起来应该没那八个路人的太多戏份
+
+看后天 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">三人图和八人图一对比真是骂都不知道从哪开始骂
+

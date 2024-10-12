@@ -5313,3 +5313,24 @@ p系这种日程表式玩法真不适合暗喻幻想这种国家层面事件的�
 刚把第一个迷宫打了，这可比当年鸭志田迷宫折磨太多了，而且这套跟P系列有什么区别 ...</blockquote>
 p5战斗我玩不下去，这个好玩很多
 
+
+*****
+
+####  zycilcy  
+##### 1982#       发表于 2024-10-12 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66436083&amp;ptid=2140224" target="_blank">LMBS 发表于 2024-10-12 20:10</a>
+
+看到有人起名能用中文，可是这边试不出来，电脑版吃按不出输入法</blockquote>
+体验版确实可以盲打起中文名
+
+
+*****
+
+####  星野航  
+##### 1983#       发表于 2024-10-12 20:21
+
+原来路易身边俩兽人兄弟是木村昴跟木村良平
+
+这还要做成兄弟，八成是neta回转企鹅罐，声音一出来就笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

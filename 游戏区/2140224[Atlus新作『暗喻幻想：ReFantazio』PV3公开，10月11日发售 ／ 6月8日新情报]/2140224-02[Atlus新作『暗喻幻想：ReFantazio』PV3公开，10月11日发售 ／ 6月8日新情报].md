@@ -5537,3 +5537,40 @@ https://www.bilibili.com/video/BV1Gox5eHEm1/</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  horacio  
+##### 2000#       发表于 2024-10-12 23:57
+
+收完第三个队友，可惜主角全加魔了，结果变成治疗了，感觉目前物理强太多了，我要洗点
+
+
+*****
+
+####  inhalc  
+##### 2001#       发表于 2024-10-13 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66435700&amp;ptid=2140224" target="_blank">螃蟹鬼魂 发表于 2024-10-12 19:14</a>
+
+为什么老头不能杀路易，路易就能杀老头</blockquote>
+我教堂打完有个npc说是不能暗杀，只能明面对决，老头那个算是触发暗杀保护机制了
+
+
+*****
+
+####  NEIN  
+##### 2002#       发表于 2024-10-13 00:04
+
+怎么这路易手下都是恶心帅啊<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  黑修士  
+##### 2003#       发表于 2024-10-13 00:05
+
+这么快都有COS短片了
+[https://www.bilibili.com/video/BV14221YwEXg/](https://www.bilibili.com/video/BV14221YwEXg/)
+

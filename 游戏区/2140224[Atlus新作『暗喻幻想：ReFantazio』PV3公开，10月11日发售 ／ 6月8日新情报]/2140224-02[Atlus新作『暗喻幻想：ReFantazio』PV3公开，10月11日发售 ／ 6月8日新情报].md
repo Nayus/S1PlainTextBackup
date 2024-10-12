@@ -5735,3 +5735,31 @@ bug了，我也是
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Rushtime33  
+##### 2019#       发表于 2024-10-13 01:44
+
+逼游戏的异常只有膈应玩家的作用啊，打个宝箱怪凹一万遍<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  莉可厨  
+##### 2020#       发表于 2024-10-13 01:44
+
+撇开政治戏啥的，这游戏的公路剧情就是那股很纯正的勾式弱智味道<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  saverok  
+##### 2021#       发表于 2024-10-13 01:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66437822&amp;ptid=2140224" target="_blank">蛇头 发表于 2024-10-13 01:00</a>
+
+打到能接支线的地方看了一眼攻略，才发现自己最开始北部要塞那块打完根本没跳成就，这怎么做到的…… ...</blockquote>
+打完教堂就跳了
+

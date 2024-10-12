@@ -4485,3 +4485,56 @@ https://b23.tv/HjfrIca
 人设也是某 ...</blockquote>
 再次证明了游戏“好玩”才是硬道理，虽然剧情物料人设土爆，但是就是好玩。
 
+
+*****
+
+####  2015年入股市  
+##### 1906#       发表于 2024-10-12 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66423960&amp;ptid=2140224" target="_blank">医生狼多 发表于 2024-10-11 12:40</a>
+
+日程攻略啥的有up主在做了 https://docs.qq.com/aio/DRUpKQUFmSmlwRG9O</blockquote>
+马克一个凑字
+
+*****
+
+####  duraa  
+##### 1907#       发表于 2024-10-12 14:36
+
+a9好像有个日程攻略了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  DET  
+##### 1908#       发表于 2024-10-12 14:37
+
+我就想问问，这次宣发联动这么足，阿特拉斯可以联动蜜雪冰城吗，我一直觉得雪王和杰克霜精的适配度可高了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| はちたや| + 2||
+
+查看全部评分
+
+
+*****
+
+####  猪突猛进  
+##### 1909#       发表于 2024-10-12 14:42
+
+宣发多是好事呀。
+
+波兰人那份调查报告从理论上说明了中国游戏市场有多大，黑神话用实际证明了这一点。
+
+之后游戏厂商只要想多赚钱，都会加大在我国的宣发投入。当年2077宣发的盛况，说明波兰人走在了时代前面。
+
+以后2077、暗喻这种宣发，应该会越来越多。
+
+而且据说墙也要拆了，属于臭打游戏的好时代终于要来啦。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

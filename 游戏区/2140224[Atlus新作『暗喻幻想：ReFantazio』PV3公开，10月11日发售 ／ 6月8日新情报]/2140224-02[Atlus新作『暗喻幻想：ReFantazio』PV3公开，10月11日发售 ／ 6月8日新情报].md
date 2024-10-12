@@ -4714,3 +4714,83 @@ Domerica这动画制作水平大概就相当于二三十来人的作坊，比如
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  星花  
+##### 1925#       发表于 2024-10-12 15:55
+
+全平台首周一百多万，我不认为销量算高。<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Chia  
+##### 1926#       发表于 2024-10-12 15:57
+
+steam的激活码都卖了不止5w了
+
+你可以说虽然宣发到了，但没破什么圈。
+
+省楼
+
+P5后很多游戏都开始做过渡动画切UI，但大部分都是画虎不成反类犬。结果没想到atlus自己上也挺犬的<img src="https://static.saraba1st.com/image/smiley/face/135.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  卡拉德利姆  
+##### 1927#       发表于 2024-10-12 15:58
+
+全平台并不准确 因为本世代的赢家平台并没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ping117  
+##### 1928#       发表于 2024-10-12 15:58
+
+祖先版几时上
+加不加新的女角色入队
+
+
+*****
+
+####  日日日日日野  
+##### 1929#       发表于 2024-10-12 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66434131&amp;ptid=2140224" target="_blank">星花 发表于 2024-10-12 15:55</a>
+
+全平台首周一百多万，我不认为销量算高。</blockquote>
+一天100万，不是首周三天
+
+*****
+
+####  kuarwbwe  
+##### 1930#       发表于 2024-10-12 16:02
+
+ 本帖最后由 kuarwbwe 于 2024-10-12 16:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66434131&amp;ptid=2140224" target="_blank">星花 发表于 2024-10-12 15:55</a>
+
+全平台首周一百多万，我不认为销量算高。</blockquote>
+这销量不低。你看看他家smt5原版，现在也才100w，加复仇也就150w。我一直吐槽是因为宣发问题。现在这游戏这么大量宣发，最后销量能不能填补他花这么多宣发成本才是大问题。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+暗喻幻想这就是个前作几百万的jrpg。可不是国产手游，也不是欧美大作。保底有千万销量或者一个卡池上千万或者上亿收入的。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  umbasa  
+##### 1931#       发表于 2024-10-12 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66434131&amp;ptid=2140224" target="_blank">星花 发表于 2024-10-12 15:55</a>
+
+全平台首周一百多万，我不认为销量算高。</blockquote>
+这个数据对jrpg来说真不低了，非要说的话是销量有点对不住宣发的力度。感觉sega有点想当然，觉得jrpg潜在用户多，宣发力度堪比索尼给ff16造势那会。
+
+*****
+
+####  星花  
+##### 1932#       发表于 2024-10-12 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66434170&amp;ptid=2140224" target="_blank">日日日日日野 发表于 2024-10-12 16:01</a>
+
+一天100万，不是首周三天</blockquote>
+这就是错觉了。实际上一天一百3天还是一百。<img src="https://static.saraba1st.com/image/smiley/face/169.jpg" referrerpolicy="no-referrer">
+

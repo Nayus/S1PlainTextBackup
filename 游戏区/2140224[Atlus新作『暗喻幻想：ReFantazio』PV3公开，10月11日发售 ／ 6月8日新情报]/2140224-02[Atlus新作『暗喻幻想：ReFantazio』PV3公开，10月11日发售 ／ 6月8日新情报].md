@@ -3793,3 +3793,79 @@ demo那个开怪失衡系统我就没太搞明白，到底是想做怎样的效�
 
 大，大胸吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">苦思冥想半天难道梁博基尼是柏木爱好者？
 
+
+*****
+
+####  popchong  
+##### 1842#       发表于 2024-10-12 11:28
+
+开头一小时不就是纯纯的史? 被劫道的人说种族歧视垃圾话，被城里的各种居民说垃圾话，被征兵处的业务员说垃圾话，被将领说垃圾话，就这么肤浅的表现形式填满了开头1小时，JRPG史上最垃圾的开头之一
+
+*****
+
+####  忘却旋律  
+##### 1843#       发表于 2024-10-12 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66429161&amp;ptid=2140224" target="_blank">christiny 发表于 2024-10-11 23:02</a>
+
+阿基太，就是以前的曼斗罗。</blockquote>
+本质就是 原来的技能包 换皮而已............
+
+
+*****
+
+####  Khellendros  
+##### 1844#       发表于 2024-10-12 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66432110&amp;ptid=2140224" target="_blank">popchong 发表于 2024-10-12 11:28</a>
+
+开头一小时不就是纯纯的史? 被劫道的人说种族歧视垃圾话，被城里的各种居民说垃圾话，被征兵处的业务员说垃 ...</blockquote>
+序章整个体验都不太行，剧情也很难绷，后面到了自由活动就还不错
+
+不过序章真的有点太长了，有三四个小时吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hikuchimakoto  
+##### 1845#       发表于 2024-10-12 11:35
+
+已经玩了十几个小时开始铁甲战车公路片阶段了。现在给我的感觉男主受到的种族歧视问题还没有p5周可儿第一章被鸭志田80的压力大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  そらたかく  
+##### 1846#       发表于 2024-10-12 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66431880&amp;ptid=2140224" target="_blank">HUNIESOULS_1 发表于 2024-10-12 11:09</a>
+
+国内制作者真敢锐评啊，就不怕自己做的东西出来被人恶意联想，没见过这么急着给自己挖坑的创作者 ...</blockquote>
+可能是想走游科让IGN SBI帮自己带货的路线吧。
+
+要不是海外这些媒体反向带货，总销量怎么也得少个30%吧。
+
+*****
+
+####  忘却旋律  
+##### 1847#       发表于 2024-10-12 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66430445&amp;ptid=2140224" target="_blank">牙狼GARO 发表于 2024-10-12 08:31</a>
+
+矿山里的龙hard有人打爆了么，那龙序章能打爆
+
+—— 来自 OnePlus LE2100, Android 14上的 S1Next-鹅版 v2. ...</blockquote>
+很简单啊 我HARD打的 MP 3个人还都是半满不满的状态 都过了
+
+简单说就是 老头切法师 所有人都站后排 ，血量安全情况下主角因为弱火多防御 大剑哥也不用输出防御 吃伤害  协助丢回复药 磨过去很轻松的，关键是 主角多防御免的给龙打出多次行动和被秒浪费行动力拉人
+
+*****
+
+####  そらたかく  
+##### 1848#       发表于 2024-10-12 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66432180&amp;ptid=2140224" target="_blank">hikuchimakoto 发表于 2024-10-12 11:35</a>
+
+已经玩了十几个小时开始铁甲战车公路片阶段了。现在给我的感觉男主受到的种族歧视问题还没有p5周可儿第一章 ...</blockquote>
+拿P5比有点欺负人了，我这辈子打游戏都没遇到P5第一章那种想冲到屏幕里揍人的压力。
+
+要不是life will change及时响起，我血压估计都会上来。
+

@@ -3892,3 +3892,52 @@ demo那个开怪失衡系统我就没太搞明白，到底是想做怎样的效�
 要不是life will cha ...</blockquote>
 在我心里p5第一章的体验分量也是相当大的。只不过这游戏泥潭现在啥方面都要拿来和p5比，那拿这方面来比一下也没啥吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UnrealApartheid  
+##### 1851#       发表于 2024-10-12 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66431992&amp;ptid=2140224" target="_blank">断翼 发表于 2024-10-12 11:19:47</a>
+这次op也没委托其他公司制作？</blockquote>如果你说开头弑王的动画，这个也是Domerica制作的
+如果你说的是标题显示动画，企划制作貌似是Creative Lab（[https://crlb.co.jp/](https://crlb.co.jp/)）
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Dreammask  
+##### 1852#       发表于 2024-10-12 11:48
+
+桥野肯定不至于迎合西方的，以他的水平大概会有个理想的现实世界人人平等所以rpg.jp的世界要多搞点不平等来形成对立的逻辑链<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+soulframe自称的A社老粉就纯笑话，真老粉不会对rpg.jp有任何超出常理的期待的
+
+*****
+
+####  akiomn  
+##### 1853#       发表于 2024-10-12 11:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">p5第一章作为jrpg是顶级的，我觉得即使放到今天都是顶级，开局就装了个大逼，然后进局子开始倒叙，可能就觉醒前枯燥点，但是joker觉醒后又节奏拉满了
+
+*****
+
+####  罗克萨斯  
+##### 1854#       发表于 2024-10-12 11:50
+
+我已经感受到文化差异了，国内全在喷剧情，欧美却一片赞誉，两极分化极其严重，仿佛不是生活在一个星球
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  そらたかく  
+##### 1855#       发表于 2024-10-12 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66432349&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-10-12 11:50</a>
+
+我已经感受到文化差异了，国内全在喷剧情，欧美却一片赞誉，两极分化极其严重，仿佛不是生活在一个星球
+
+— ...</blockquote>
+比较好奇日本本土的评价，该不会因为洋大人喜欢日本人就觉得为国争光了吧。
+

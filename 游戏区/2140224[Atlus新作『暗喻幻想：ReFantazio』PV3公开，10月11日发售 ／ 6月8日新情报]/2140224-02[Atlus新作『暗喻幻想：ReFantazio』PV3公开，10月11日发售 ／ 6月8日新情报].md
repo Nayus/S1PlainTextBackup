@@ -4917,3 +4917,57 @@ P5后很多游戏都开始做过渡动画切UI，但大部分都是画虎不成�
 我最不理解的是，P3 P4 P5那么干净统一的画风，怎么到这里就花里胡哨了，我不用MOD降低特效我压根都玩不 ...</blockquote>
 有人仔细查证过了，头晕主要原因不是画面花，而是那个跑动的加速模糊，简直属于神经病典范的负优化，要么等mode（就算厂家不出第三方应该逐渐会有较好的），药么跑动时候只看屏幕中心.........
 
+
+*****
+
+####  kuarwbwe  
+##### 1945#       发表于 2024-10-12 16:24
+
+ 本帖最后由 kuarwbwe 于 2024-10-12 16:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66434297&amp;ptid=2140224" target="_blank">fsdragontree 发表于 2024-10-12 16:19</a>
+
+为啥是简繁日较低，同文化圈反而去魅，其实如果不是atlus的黄金版战法近期连搞3次，损坏了预购口碑，否则 ...</blockquote>
+我觉得他们确实想扩圈，从宣发和给dei跪了就能看出来。但这作做了8年，做了个系统缝合怪出来说明他们不知道怎么怎么做去扩圈。虽然我关注的几个atlus凯子对这套系统评价不低，我玩着也挺上头的。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  usodakedo  
+##### 1946#       发表于 2024-10-12 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66434325&amp;ptid=2140224" target="_blank">fsdragontree 发表于 2024-10-12 16:24</a>
+有人仔细查证过了，头晕主要原因不是画面花，而是那个跑动的加速模糊，简直属于神经病典范的负优化，要么 ...</blockquote>
+去跑步特效的mod已经有了，我上面有转，还有其他人也有转，3dm上好像也有
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  walfeds  
+##### 1947#       发表于 2024-10-12 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66434325&amp;ptid=2140224" target="_blank">fsdragontree 发表于 2024-10-12 16:24</a>
+
+有人仔细查证过了，头晕主要原因不是画面花，而是那个跑动的加速模糊，简直属于神经病典范的负优化，要么 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">定期投下：
+[https://bbs.3dmgame.com/thread-6542365-1-1.html](https://bbs.3dmgame.com/thread-6542365-1-1.html)
+[https://github.com/Lyall/MetaphorFix](https://github.com/Lyall/MetaphorFix)
+
+社区补丁，可以去速度模糊，去描边，宽屏适配，画质调整
+
+另外设置里关闭画面摇晃可改善视觉疲劳
+
+
+*****
+
+####  久保由利香  
+##### 1948#       发表于 2024-10-12 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66433784&amp;ptid=2140224" target="_blank">liushen 发表于 2024-10-12 15:07</a>
+
+冒大不韪，退款了，人设丑，画面丑，跑动时就跑动了还有搞点雪花的效果画面感觉脏兮兮的，至于对话框不停的 ...</blockquote>
+后面没玩我不好说，可是你这DEMO里面都有的剧情有啥看不懂的？
+
+国王可以通过权杖施展超强魔法，但是王子被刺杀昏迷假死，多年后皇上被最强的路易在梦中刺杀，死讯出来后老部下们不服派出男主传递密令。
+
+你看，一句话就说明白，经典无比的剧情
+

@@ -6475,3 +6475,11 @@ szh真疯魔了这也封<img src="https://static.saraba1st.com/image/smiley/face
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  jacket  
+##### 6530#       发表于 2024-10-13 03:46
+
+市政厅进门有一小段台阶，目前碰到的最佳观测点位
+

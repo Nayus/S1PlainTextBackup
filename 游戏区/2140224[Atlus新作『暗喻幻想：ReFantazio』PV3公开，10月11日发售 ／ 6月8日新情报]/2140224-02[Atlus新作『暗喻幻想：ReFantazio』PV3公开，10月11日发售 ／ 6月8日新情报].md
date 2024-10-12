@@ -5814,3 +5814,15 @@ bug了，我也是
 
 主角切成小贩一路平A，刷钱刷等级刷练度都不耽误，顺便还能把莫尔的课题做了
 
+
+*****
+
+####  嘴瓢王者  
+##### 2027#       发表于 2024-10-13 04:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66438108&amp;ptid=2140224" target="_blank">PETN 发表于 2024-10-13 04:07</a>
+强力推荐支线任务的小鬼巢穴地图，前期就是十里坡剑圣的修炼圣地，地图小，怪又密集，只要等级能平推了不到 ...</blockquote>
+多少级能平推啊
+
+—— 来自 OnePlus PHB110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

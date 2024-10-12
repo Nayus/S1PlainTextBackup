@@ -4847,3 +4847,73 @@ P5后很多游戏都开始做过渡动画切UI，但大部分都是画虎不成�
 他家打算把暗喻幻想打造成系列出12345代，第一代先混口碑 ...</blockquote>
 问题是赚的来吗？就这个卖相和直播效果怕不是要全赔进去了。现在世嘉高强度找水军宣发，在推特支持dei，被媒体打高分。基本都精准撞到了国内的雷点上。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 1938#       发表于 2024-10-12 16:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能不能把开发费用赚回来都难说，16年立项，开发八年，中间肯定推倒重做过一次
+
+*****
+
+####  抽烟的猴  
+##### 1939#       发表于 2024-10-12 16:18
+
+<blockquote>kuarwbwe 发表于 2024-10-12 16:13
+问题是赚的来吗？就这个卖相和直播效果怕不是要全赔进去了。现在世嘉高强度找水军宣发，在推特支持dei， ...</blockquote>
+他家p3记得销量一坨，混到p5发售时都什么鬼样子了，现在绝对不是最差的时候（甚至最好的？）
+
+赚不赚看暗喻幻想2暗喻幻想3怎么样呗
+
+*****
+
+####  fsdragontree  
+##### 1940#       发表于 2024-10-12 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66434073&amp;ptid=2140224" target="_blank">猪突猛进 发表于 2024-10-12 15:47</a>
+
+厂商又不是傻子，宣发不会白白投入的。</blockquote>
+为啥是简繁日较低，同文化圈反而去魅，其实如果不是atlus的黄金版战法近期连搞3次，损坏了预购口碑，否则应该还不错的。整体扣掉加速条纹等负优化的话，确实算是【好玩】的游戏了。
+
+不过话说你们玩到中途的，感觉atlus这次算是有勇气搞smt5的魔王城那样的【古典】迷宫么......感觉atlus有点既想扩圈，又想保持原滋原味的难度玩法的挣扎......
+
+*****
+
+####  2015年入股市  
+##### 1941#       发表于 2024-10-12 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66432963&amp;ptid=2140224" target="_blank">blz436 发表于 2024-10-12 13:02</a>
+
+什么时候来个一键切阿基态的mod，hard里追求一天推完迷宫不嗑药这蓝耗压力整得人都魔怔了，推图扫描到弱怪 ...</blockquote>
+按上键可以自动切换到可以回血的阿基态回血然后自动切回来
+
+
+*****
+
+####  budong  
+##### 1942#       发表于 2024-10-12 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66434297&amp;ptid=2140224" target="_blank">fsdragontree 发表于 2024-10-12 16:19</a>
+为啥是简繁日较低，同文化圈反而去魅，其实如果不是atlus的黄金版战法近期连搞3次，损坏了预购口碑，否则 ...</blockquote>
+因为中国人爱打差评，日本韩国人紧随其后，这是客观事实
+
+*****
+
+####  usodakedo  
+##### 1943#       发表于 2024-10-12 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66434297&amp;ptid=2140224" target="_blank">fsdragontree 发表于 2024-10-12 16:19</a>
+为啥是简繁日较低，同文化圈反而去魅，其实如果不是atlus的黄金版战法近期连搞3次，损坏了预购口碑，否则 ...</blockquote>
+这次一开始就全平台我看他们还敢不敢搞加强版战法，之前在楼里说这次不想当凯子，但最后还是当了，有一部分原因是为了之后再出加强版时，可以毫不犹豫得用最恶毒的语言辱骂atlus而不会被出警（大概）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fsdragontree  
+##### 1944#       发表于 2024-10-12 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66434089&amp;ptid=2140224" target="_blank">そらたかく 发表于 2024-10-12 15:50</a>
+
+我最不理解的是，P3 P4 P5那么干净统一的画风，怎么到这里就花里胡哨了，我不用MOD降低特效我压根都玩不 ...</blockquote>
+有人仔细查证过了，头晕主要原因不是画面花，而是那个跑动的加速模糊，简直属于神经病典范的负优化，要么等mode（就算厂家不出第三方应该逐渐会有较好的），药么跑动时候只看屏幕中心.........
+

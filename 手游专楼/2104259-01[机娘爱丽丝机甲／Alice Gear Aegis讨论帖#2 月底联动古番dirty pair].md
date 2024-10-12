@@ -16,3 +16,11 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">fa录的那点语音是什么很费劲的事吗
 
+
+*****
+
+####  alialex  
+##### 1224#       发表于 2024-10-13 01:39
+
+石头门两次联动都没抽到四星，电系小结也还是没抽到...没想法了
+

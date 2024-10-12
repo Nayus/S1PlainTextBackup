@@ -5727,3 +5727,11 @@ bug了，我也是
 
 第二个迷宫下水道宝箱后面那个梯子是bug了吗？为什么没有交互选项
 
+
+*****
+
+####  火红之眼  
+##### 2018#       发表于 2024-10-13 01:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

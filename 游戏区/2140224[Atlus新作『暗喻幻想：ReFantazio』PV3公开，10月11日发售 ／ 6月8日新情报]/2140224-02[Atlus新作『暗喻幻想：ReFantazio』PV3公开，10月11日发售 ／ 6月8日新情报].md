@@ -5010,3 +5010,76 @@ nmd 还我短发骑士<img src="https://static.saraba1st.com/image/smiley/face20
 
 插图真比建模好看百倍吧
 
+
+*****
+
+####  umbasa  
+##### 1953#       发表于 2024-10-12 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66434418&amp;ptid=2140224" target="_blank">そらたかく 发表于 2024-10-12 16:39</a>
+
+我之前还喷XB3的剧情，现在我只想说对不起高桥GG，是我之前说话有点大声。 ...</blockquote>
+你别说，还真有点像。故事母题都超过了作者自己的表达能力，想论述的问题浮于表面，最后沦为流水账一样无趣的故事。（最后一句是我的暴论）
+
+*****
+
+####  ultraseven  
+##### 1954#       发表于 2024-10-12 16:46
+
+宣发的钱又不是Atlus出的，微软有买断费啊
+
+*****
+
+####  莉可厨  
+##### 1955#       发表于 2024-10-12 16:46
+
+怎么点进来一看抡了一百楼场外，游戏本体没人聊吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1956#       发表于 2024-10-12 16:47
+
+p系这种日程表式玩法真不适合暗喻幻想这种国家层面事件的背景
+捏麻麻的国都被占了，国王葬礼被搅黄了，整个国家都跟死了一样没动静，全指望主角几个人翻盘，真是连东汉末年都不如
+路易做这个烂活跟董卓五五开，讨董联盟哪去了？日本人这么喜欢三国演义怎么不照着抄
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  Rainwedell  
+##### 1957#       发表于 2024-10-12 16:48
+
+建模水平属于就比 p5 好的有限，打完我专门掏出了 ps3 模拟器看了眼原版什么样，动画属于一个质量，建模精度还是有不少提升，有条件的都应该把渲染精度拉到 150% 以上，画面好很多，oled 电视上这套美术我个人觉得比我显示屏的观感好不少，主要是黑的地方看的清楚些。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  kuarwbwe  
+##### 1958#       发表于 2024-10-12 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66434491&amp;ptid=2140224" target="_blank">莉可厨 发表于 2024-10-12 16:46</a>
+
+怎么点进来一看抡了一百楼场外，游戏本体没人聊吗</blockquote>
+社畜上班呢啊。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  windhawind2  
+##### 1959#       发表于 2024-10-12 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66434491&amp;ptid=2140224" target="_blank">莉可厨 发表于 2024-10-12 16:46</a>
+
+怎么点进来一看抡了一百楼场外，游戏本体没人聊吗</blockquote>
+本体的话我信b站那位atlus厨的评价——剧情流水账 战斗以smtv为主的大缝合但缝合的不错 画面脏乱差
+
+*****
+
+####  windhawind2  
+##### 1960#       发表于 2024-10-12 16:53
+
+首日100w我觉得是包括出货量的 真靠销量能到100w那为啥比不上relink刚发售的讨论度
+

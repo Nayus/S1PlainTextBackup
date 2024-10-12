@@ -11240,3 +11240,17 @@ pv会在下周四出现的<img src="https://static.saraba1st.com/image/smiley/fa
 
 不过我本来也不觉得动画pv会明天发就是了，尤其是有大发表会以后，明天比较大的可能还是宣二单（4th肯定要有新歌）或者5th决定
 
+
+*****
+
+####  NODY  
+##### 24624#       发表于 2024-10-12 22:04
+
+<img src="https://img.saraba1st.com/forum/202410/12/220410zo0fywzl9zf9u9zo.jpg" referrerpolicy="no-referrer">
+
+<strong>GZsPrEAaAAMonh-.jpg</strong> (232.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-12 22:04 上传
+

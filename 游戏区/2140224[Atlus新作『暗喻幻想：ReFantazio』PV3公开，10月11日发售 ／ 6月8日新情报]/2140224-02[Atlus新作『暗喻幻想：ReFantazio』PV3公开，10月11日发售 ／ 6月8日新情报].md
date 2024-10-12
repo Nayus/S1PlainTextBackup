@@ -4402,3 +4402,17 @@ bgm一出来就知道不潮了
 
 没想到专楼内部都起兵了 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  katern  
+##### 1901#       发表于 2024-10-12 13:48
+
+ 本帖最后由 katern 于 2024-10-12 13:50 编辑 
+
+这游戏美术真不如smt5，各种地方感觉是在致敬上世纪日式幻想作品，但是融合之后变得不伦不类的
+
+人设也是某些群体喜欢的那种“高级”<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+不过玩倒是挺好玩的，量大
+

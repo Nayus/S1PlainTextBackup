@@ -3274,3 +3274,43 @@ R原创部分，我觉得丸喜和学妹都还不错，给明智加的戏全是�
 
 bgm各有特色。而ui和p5比确实是退步了，虽然我适应了，但不代表他很好。
 
+
+*****
+
+####  yangkaim4  
+##### 1792#       发表于 2024-10-12 09:04
+
+正式版帧数没问题了，怀疑是demo会默认集显，3060ti正式版全高稳定144，很舒服。
+
+
+*****
+
+####  yahanintnedo  
+##### 1793#       发表于 2024-10-12 09:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66429195&amp;ptid=2140224" target="_blank">walfeds 发表于 2024-10-11 23:06</a>
+
+设置里先调画面亮度试试吧，你这拍出来感觉和我玩的是两个游戏</blockquote>
+这要怎么调？我亮度都拉满了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  そらたかく  
+##### 1794#       发表于 2024-10-12 09:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66427772&amp;ptid=2140224" target="_blank">猪突猛进 发表于 2024-10-11 20:00</a>
+
+问下第一个“好玩”的是啥？</blockquote>
+当然是黑猴子。
+
+*****
+
+####  そらたかく  
+##### 1795#       发表于 2024-10-12 09:14
+
+玩了一整晚，感觉像酒驾一样，这特效也太花里胡哨了，完全没有P5那种浑然一体的华丽。
+
+战斗系统说是集大成毫无问题，剧情是真的别抱期望了。
+
+总体感觉，还不如P5R。
+

@@ -368,3 +368,25 @@ SJ3がスタートした。今回のフィールドは四方を海に囲まれ�
 
 打不中不是问题，毕竟对面有盾。问题是就站桩在那挨打，看来龙套们依然保持着第一季以来的垃圾水准<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oi99o  
+##### 1913#       发表于 2024-10-12 01:28
+
+ 本帖最后由 oi99o 于 2024-10-12 01:31 编辑 
+
+打不中不是问题，毕竟对面有盾。问题是就站桩在那挨打，看来龙套们依然保持着第一季以来的垃圾水准<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  梶原ひかり  
+##### 1914#       发表于 2024-10-12 09:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66429872&amp;ptid=1550724" target="_blank">oi99o 发表于 2024-10-12 01:28</a>
+
+打不中不是问题，毕竟对面有盾。问题是就站桩在那挨打，看来龙套们依然保持着第一季以来的垃圾水准
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">非氪金玩家，没有那么多花花的道具，在开阔的场地不就是人形靶子吗？而且大部分拿机枪的，移动速度都很低。
+

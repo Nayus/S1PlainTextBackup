@@ -147,3 +147,15 @@ img_7199.jpg
 
 2024-10-12 21:13 上传
 
+
+*****
+
+####  罗克萨斯  
+##### 5482#       发表于 2024-10-12 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66436575&amp;ptid=2150634" target="_blank">0314f9b7d3430c8 发表于 2024-10-12 21:13</a>
+也算是康了</blockquote>
+这谁这么离谱，头像还和我的一样<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

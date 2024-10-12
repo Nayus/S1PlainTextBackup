@@ -4194,3 +4194,45 @@ Segay这几年融媒体宣发尝到甜头后开始加码了
 
 我记得日本确实有一直被压迫的原住民的。<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Chia  
+##### 1880#       发表于 2024-10-12 12:48
+
+少数民族算地狱吧，没政策所以长期有系统性排斥。再就是网右见不得一些朝鲜人越活越好。
+
+日本地狱骑士是真行
+
+
+*****
+
+####  星花  
+##### 1881#       发表于 2024-10-12 12:52
+
+日本通过自称单民族国家，对原住民进行压迫。
+
+*****
+
+####  Sopp  
+##### 1882#       发表于 2024-10-12 12:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">楼里说种族歧视就这的
+
+去京都旅游一下就能感受到日式歧视就这味
+
+*****
+
+####  windtrack  
+##### 1883#       发表于 2024-10-12 12:53
+
+日本人根本不拿少数民族当人，所以认为自己没有歧视问题
+
+
+*****
+
+####  艹艹牛逼  
+##### 1884#       发表于 2024-10-12 12:56
+
+泥潭某些也是牛逼，这人设还不丑啊？<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+

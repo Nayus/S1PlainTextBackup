@@ -3332,3 +3332,42 @@ bgm各有特色。而ui和p5比确实是退步了，虽然我适应了，但不�
 奶奶的 为啥药店没有mp药卖啊</blockquote>
 法师刷蓝吧
 
+
+*****
+
+####  变老的大二  
+##### 1798#       发表于 2024-10-12 09:35
+
+这代我觉得音乐做崩了，和场景剧情完全不搭噶，莫名奇妙的亢奋，不如p5
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1799#       发表于 2024-10-12 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66430948&amp;ptid=2140224" target="_blank">变老的大二 发表于 2024-10-12 09:35</a>
+这代我觉得音乐做崩了，和场景剧情完全不搭噶，莫名奇妙的亢奋，不如p5</blockquote>
+崩不崩先不说，男中音念经是真的催眠
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  莉可厨  
+##### 1800#       发表于 2024-10-12 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66430773&amp;ptid=2140224" target="_blank">霜浪 发表于 2024-10-12 09:16</a>
+奶奶的 为啥药店没有mp药卖啊</blockquote>
+资源管理懂吗
+
+
+*****
+
+####  Dreammask  
+##### 1801#       发表于 2024-10-12 09:41
+
+本来以为体验版的第一个迷宫怎么说也打到3/4了，昨天玩下来感觉差不多才一半？
+
+另外难度比P4P5似乎要略微上升一点，尤其补蓝压力非常大，不知道是不是我的Archetype设置得有问题（治疗+法师+战士）<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

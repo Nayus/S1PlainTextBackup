@@ -5834,3 +5834,15 @@ bug了，我也是
 
 肝不动了，醒来继续<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kangkangsama  
+##### 2029#       发表于 2024-10-13 06:24
+
+<blockquote>johanliebert 发表于 2024-10-12 06:09
+初见灰语感觉这boss设计的太莎皮了，纯纯的没活硬整开局分身四个，一回合四动，禁玩家aoe清分身，打错到分 ...</blockquote>
+本体不是镜头凸显（好像站位都是靠前的）还算挺明显的吗
+
+二次战斗基本都打镜头想让你打的那个准没错
+

@@ -8,3 +8,11 @@
 
 盲猜月底是黑皮小个子莉莉。
 
+
+*****
+
+####  madcow  
+##### 1223#       发表于 2024-10-12 20:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">fa录的那点语音是什么很费劲的事吗
+

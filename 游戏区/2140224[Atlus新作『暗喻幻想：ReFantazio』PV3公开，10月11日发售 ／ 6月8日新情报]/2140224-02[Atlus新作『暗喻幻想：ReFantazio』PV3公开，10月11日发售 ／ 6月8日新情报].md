@@ -5369,3 +5369,24 @@ p5战斗我玩不下去，这个好玩很多
 不是说所有人都可以挑战王位吗</blockquote>
 老头没有去挑战，老头是暗杀挑战者啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Dreammask  
+##### 1987#       发表于 2024-10-12 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66436208&amp;ptid=2140224" target="_blank">螃蟹鬼魂 发表于 2024-10-12 20:28</a>
+
+不是说所有人都可以挑战王位吗</blockquote>
+后面公证人推测声望高的会被保护起来，至少石头上有脸的带保护
+
+*****
+
+####  policun  
+##### 1988#       发表于 2024-10-12 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66435700&amp;ptid=2140224" target="_blank">螃蟹鬼魂 发表于 2024-10-12 19:14</a>
+
+为什么老头不能杀路易，路易就能杀老头</blockquote>
+因为老头去杀人犯法了啊，很简单，人杀人不行，犯法，人杀了人，警察枪毙人警察还犯法吗
+

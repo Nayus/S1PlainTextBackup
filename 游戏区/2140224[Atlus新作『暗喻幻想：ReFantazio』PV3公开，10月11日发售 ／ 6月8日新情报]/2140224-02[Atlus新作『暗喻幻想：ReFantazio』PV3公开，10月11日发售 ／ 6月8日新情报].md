@@ -3869,3 +3869,26 @@ demo那个开怪失衡系统我就没太搞明白，到底是想做怎样的效�
 
 要不是life will change及时响起，我血压估计都会上来。
 
+
+*****
+
+####  NEIN  
+##### 1849#       发表于 2024-10-12 11:39
+
+之前试玩没打龙，这次开了个新档打发现确实比鸟人简单，后排两个输出冰就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+
+*****
+
+####  hikuchimakoto  
+##### 1850#       发表于 2024-10-12 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66432202&amp;ptid=2140224" target="_blank">そらたかく 发表于 2024-10-12 11:37</a>
+
+拿P5比有点欺负人了，我这辈子打游戏都没遇到P5第一章那种想冲到屏幕里揍人的压力。
+
+要不是life will cha ...</blockquote>
+在我心里p5第一章的体验分量也是相当大的。只不过这游戏泥潭现在啥方面都要拿来和p5比，那拿这方面来比一下也没啥吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

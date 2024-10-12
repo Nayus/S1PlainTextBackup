@@ -484,3 +484,25 @@ S30和B12的自毁系统炸药安装都已开始。
 
 明天就发射了，到底批了吗？
 
+
+*****
+
+####  commcody  
+##### 98#         楼主| 发表于 2024-10-13 00:10
+
+FAA为第五飞的环评重新评估发布。助推器返回时的音爆范围比2022年环评时更大，但FAA不认为会有显著影响。
+
+通常环评发布意味着发射许可证将很快颁发。
+[https://www.faa.gov/media/85696](https://www.faa.gov/media/85696)
+
+FAA的飞行警戒已将13日的第五飞列入时间表。
+[https://www.fly.faa.gov/adv/adv_spt.jsp](https://www.fly.faa.gov/adv/adv_spt.jsp)
+
+<img src="https://img.saraba1st.com/forum/202410/13/001015issk5kskaffitk75.jpg" referrerpolicy="no-referrer">
+
+<strong>image.jpg</strong> (8.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 00:10 上传
+

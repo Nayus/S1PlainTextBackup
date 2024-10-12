@@ -5574,3 +5574,68 @@ https://www.bilibili.com/video/BV1Gox5eHEm1/</blockquote>
 这么快都有COS短片了
 [https://www.bilibili.com/video/BV14221YwEXg/](https://www.bilibili.com/video/BV14221YwEXg/)
 
+
+*****
+
+####  kuarwbwe  
+##### 2004#       发表于 2024-10-13 00:07
+
+ 本帖最后由 kuarwbwe 于 2024-10-13 00:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66437667&amp;ptid=2140224" target="_blank">黑修士 发表于 2024-10-13 00:05</a>
+这么快都有COS短片了
+
+https://www.bilibili.com/video/BV14221YwEXg/</blockquote>
+铁商单。现在就没多少自发cos，而且这游戏在国内口碑也没多好，现在的cos基本是花钱买的。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  jakelee1985  
+##### 2005#       发表于 2024-10-13 00:08
+
+这游戏发售前期宣发和“粉丝”造势那么厉害，评分还那么高，怎么发售后雷声大雨点小？看来评分高并不是出圈的重要要素（小机器人也是），卖相和好不好玩才是出圈的重要要素。
+
+*****
+
+####  johanliebert  
+##### 2006#       发表于 2024-10-13 00:09
+
+在河道把大黑猫做掉了，一个初级群奶，一个高级群奶，三个人轮流上加攻buff和减防buff，三层叠到结束给磨死了，但是这奖励给的好像不是很慷慨啊
+
+20241013000210_1.jpg
+(157.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 00:07 上传
+
+<img src="https://img.saraba1st.com/forum/202410/13/000739ovj2vast2ov62qo0.jpg" referrerpolicy="no-referrer">
+
+20241013000224_1.jpg
+(174.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 00:07 上传
+
+<img src="https://img.saraba1st.com/forum/202410/13/000739nhzzapae3zpef6bn.jpg" referrerpolicy="no-referrer">
+
+20241013000217_1.jpg
+(183.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 00:07 上传
+
+<img src="https://img.saraba1st.com/forum/202410/13/000739yw4zacw4k2oz4uwb.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Dreammask  
+##### 2007#       发表于 2024-10-13 00:11
+
+玛丽亚是真好看，这游戏只能选一个喜欢的角色的话那一定得是她了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+不过模型不知道是不是受祖传引擎影响实在太像大人了，小妖精也是
+

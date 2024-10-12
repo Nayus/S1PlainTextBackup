@@ -484,3 +484,20 @@ https://m.weibo.cn/6981601982/5086136055893481
 第三话已翻完</blockquote>
 等等  不是AI的模拟身体吗 怎么还能香和软的 这是模拟了个实体出来
 
+
+*****
+
+####  JuicyJuice  
+##### 44#         楼主| 发表于 2024-10-12 16:54
+
+<blockquote>忘却旋律 发表于 2024-10-12 13:28
+等等  不是AI的模拟身体吗 怎么还能香和软的 这是模拟了个实体出来</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202410/12/165451ec8c6u6a87l7wgru.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="800" zoomfile="https://img.saraba1st.com/forum/202410/12/165451ec8c6u6a87l7wgru.jpeg">
+
+<strong>7CDF3287-029A-452A-8357-4D6594DD4FF7.jpeg</strong> (43.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-12 16:54 上传
+

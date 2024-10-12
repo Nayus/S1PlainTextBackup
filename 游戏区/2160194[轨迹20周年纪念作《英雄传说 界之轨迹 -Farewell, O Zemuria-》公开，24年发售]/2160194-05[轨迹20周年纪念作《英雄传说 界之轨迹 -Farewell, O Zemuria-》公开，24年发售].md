@@ -6445,3 +6445,33 @@ szh真疯魔了这也封<img src="https://static.saraba1st.com/image/smiley/face
 为了截这图读档重打了一遍任务，一闪而过</blockquote>
 日本著名都市传说，高速婆婆。一看到这一段，我就想到了这个。
 
+
+*****
+
+####  jacket  
+##### 6527#       发表于 2024-10-13 02:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66437726&amp;ptid=2160194" target="_blank">huyangxinhn 发表于 2024-10-13 00:22</a>
+
+日本著名都市传说，高速婆婆。一看到这一段，我就想到了这个。</blockquote>
+还有这种传说
+
+*****
+
+####  jacket  
+##### 6528#       发表于 2024-10-13 02:29
+
+又学到个男日照り的词
+
+
+*****
+
+####  windtrack  
+##### 6529#       发表于 2024-10-13 02:30
+
+<blockquote>jacket 发表于 2024-10-13 02:28
+还有这种传说</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">可以去漫区找超自然武装铛哒铛看看
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

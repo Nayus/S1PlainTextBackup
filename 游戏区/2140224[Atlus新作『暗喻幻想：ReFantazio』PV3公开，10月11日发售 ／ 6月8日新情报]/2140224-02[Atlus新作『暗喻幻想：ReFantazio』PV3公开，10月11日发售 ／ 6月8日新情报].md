@@ -5782,3 +5782,15 @@ bug了，我也是
 
 —— 来自 nubia NX729J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  windtrack  
+##### 2024#       发表于 2024-10-13 02:33
+
+商人前期太好用了，大圣堂花就直接财务自由了…到了第二个村子四人队做讨伐沙虫这又一堆花…金钱镖一点不心疼
+
+而且coop开得快，很快就能到4，3个继承槽，和其他职业的合体也厉害
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

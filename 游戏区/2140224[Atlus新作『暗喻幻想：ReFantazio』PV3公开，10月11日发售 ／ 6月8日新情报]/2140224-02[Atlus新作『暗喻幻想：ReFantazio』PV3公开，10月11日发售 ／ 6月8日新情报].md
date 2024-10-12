@@ -3526,3 +3526,150 @@ PC版键位显示总是显示键鼠怎么办
 
 这和谐前的图出处是哪？如果真是这样那只能用不买来抵制了。
 
+
+*****
+
+####  八佾舞于潭  
+##### 1818#       发表于 2024-10-12 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66431586&amp;ptid=2140224" target="_blank">そらたかく 发表于 2024-10-12 10:38</a>
+
+影之刃零制作者锐评：
+
+创作者要表达的当代话题肯定跟自己的生活环境相关的。这个主题要么是人类共通的比如 ...</blockquote>
+日本怎么没有种族问题，北海道和琉球的系统性剥削，在日中国人，在日朝鲜人，在日库尔德人，还有各种东南亚和拉美裔打工仔，日本人就是要直面和接受这些现实和冲突
+
+*****
+
+####  monikaca  
+##### 1819#       发表于 2024-10-12 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66431662&amp;ptid=2140224" target="_blank">suzakushi 发表于 2024-10-12 10:45</a>
+
+这和谐前的图出处是哪？如果真是这样那只能用不买来抵制了。</blockquote>
+就是早期宣传视频和实际游戏的差别吧，很明显是为了迎合西方审查做出的妥协，感觉以后都玩不到P5R这种全是美少女JK的日式RPG了。
+
+*****
+
+####  bwsusaga  
+##### 1820#       发表于 2024-10-12 10:55
+
+你们是不是太在意场外声音了，
+
+目前推到7月，感觉就是挺稳的JRPG，战斗层面也比P5好了一个台阶。
+
+至于这作幻想文艺复兴的奇怪男女风格，
+
+我的评价是桥野为了展露其作为制作人兼主美自已为的高态审美与设计感，妥妥的私货，倒不一定是迎合欧美市场。
+
+*****
+
+####  yahanintnedo  
+##### 1821#       发表于 2024-10-12 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66431305&amp;ptid=2140224" target="_blank">walfeds 发表于 2024-10-12 10:11</a>
+
+为什么要拉满亮度，不该调低吗</blockquote>
+我基本设置亮度都拉满，不然白天窗户光一进来啥也看不清<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  woodey  
+##### 1822#       发表于 2024-10-12 10:56
+
+ 本帖最后由 woodey 于 2024-10-12 10:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66431586&amp;ptid=2140224" target="_blank">そらたかく 发表于 2024-10-12 10:38</a>
+
+影之刃零制作者锐评：
+
+创作者要表达的当代话题肯定跟自己的生活环境相关的。这个主题要么是人类共通的比如 ...</blockquote>
+多少对jrpg有点偏见了，早期jrpg参考始于trpg，以迷宫探索和boss为考试题，养成上的体验才是重点，玩家玩的也是资源管理或者刷级，就连故事也是服务于主角慢慢变强这个逻辑。后面那些jrpg和动漫文化同化，变成了现在的理解。这个rezero说是要探寻原点，结果搞了政治儿戏但没有解构jrpg才是遗憾，这点上是才是所谓迎合zzzq带来的恶果，不过旅行感还是做出来的
+
+*****
+
+####  UnrealApartheid  
+##### 1823#       发表于 2024-10-12 10:58
+
+ 本帖最后由 UnrealApartheid 于 2024-10-12 10:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66305309&amp;ptid=2140224" target="_blank">猫沢 发表于 2024-9-25 22:15</a>
+
+metaphor是哪个
+
+论坛助手,iPhone</blockquote>
+动画制作公司Domerica，导演市川量也
+
+Screenshot_2024-10-12-10-15-00-07_f9ee0578fe1cc94de7482bd41accb329.jpg
+(102.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-12 10:59 上传
+
+<img src="https://img.saraba1st.com/forum/202410/12/105913v9ze9p4sckmtm9nn.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  suzakushi  
+##### 1824#       发表于 2024-10-12 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66431756&amp;ptid=2140224" target="_blank">monikaca 发表于 2024-10-12 10:54</a>
+
+就是早期宣传视频和实际游戏的差别吧，很明显是为了迎合西方审查做出的妥协，感觉以后都玩不到P5R这种全 ...</blockquote>
+总感觉没见过左边那么简陋的宣传画面，我印象里从最初公布的画面就和现在基本一样了。
+
+*****
+
+####  heseran  
+##### 1825#       发表于 2024-10-12 11:01
+
+ 本帖最后由 heseran 于 2024-10-12 11:03 编辑 
+
+<img src="https://img.saraba1st.com/forum/202410/12/110303ss5u553ssx3it334.jpg" referrerpolicy="no-referrer">
+
+<strong>7_1.jpg</strong> (380.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-12 11:03 上传
+
+<img src="https://img.saraba1st.com/forum/202410/12/110258uvb1i0i9x5b7kq5s.jpg" referrerpolicy="no-referrer">
+
+<strong>0_1.jpg</strong> (380.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-12 11:03 上传
+
+之前试玩的时候港服默认繁中，也就侯根堡这名字有点不习惯，正式版用简中玩一直感觉不少文本读起来有点些怪异，直到这里这句“狠狠地揍殴它们”。。。。。揍殴<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pandaman7777  
+##### 1826#       发表于 2024-10-12 11:02
+
+demo里上来就种族歧视糊脸已经觉得味道不太对了，不过日本人就是喜欢做作地讲西方议题，也不是一天两天
+
+*****
+
+####  bwsusaga  
+##### 1827#       发表于 2024-10-12 11:02
+
+还有，这作的美术方向，你们不觉的很像《五星物语》么？
+
+第一个阿基态旅人的设计，纯纯的致敬雷德幻像。
+
+各种角色特别的NPC设计，也是五星物语的风格，前期元老院那幕出现的女性调查员，放五星里就能当fatima完全不违合。
+
+桥野真不是永野粉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">？
+
+*****
+
+####  Redimercia  
+##### 1828#       发表于 2024-10-12 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66431198&amp;ptid=2140224" target="_blank">dazzle 发表于 2024-10-12 10:01</a>
+
+比真4强多了吧，真4那个挥剑打马赛克是真的玩哭了</blockquote>
+A社的即时动作感觉总要给你掺点屎<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">真4面对发癫马赛克敌人的弱智出刀距离和速度、真5鸟类明雷怪离奇大的碰撞判定
+

@@ -4282,3 +4282,68 @@ demo就看了个画面，我打到大教堂，那个会出怪的花，我看他�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  monikaca  
+##### 1890#       发表于 2024-10-12 13:19
+
+梁总怂了，删帖博了哈哈哈
+
+*****
+
+####  Kusabi  
+##### 1891#       发表于 2024-10-12 13:19
+
+ 本帖最后由 Kusabi 于 2024-10-12 13:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66432646&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-10-12 12:21</a>
+
+这人心眼挺小的，挨不得喷，贴吧有人就这么被拉黑了</blockquote>
+外面影之刃锐评暗喻的贴怎么没了？
+
+影之刃本来有点信他，结果屁*眼少还爱堵嘴，和其它手游厂的作风没啥不同。
+
+*****
+
+####  罗克萨斯  
+##### 1892#       发表于 2024-10-12 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66433023&amp;ptid=2140224" target="_blank">kuarwbwe 发表于 2024-10-12 13:09</a>
+顺便，影之刃我估计吃不了回旋镖。这游戏卖相和题材比暗喻幻想受众广多了。
+
+最后的剧情发展大概率是卖不了 ...</blockquote>
+第二个大学生嘛，确实能吃不少尾气，销量大概率吊打一众JRPG，预计800W起步这样？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  windhawind2  
+##### 1893#       发表于 2024-10-12 13:20
+
+世嘉这部宣发算是真下功夫了 引到不少流量
+
+前有自称a社老粉说a社游戏重点是大熊妹和谈恋爱的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+后有称这游戏什么都不错就是日厂定价太贵了（至于steam key 被打到200出头那可能是黑卡盗刷 不算）<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  karastar  
+##### 1894#       发表于 2024-10-12 13:20
+
+傻逼油腻中年男，抖音看太多出来发神经吗
+
+*****
+
+####  kuarwbwe  
+##### 1895#       发表于 2024-10-12 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66433082&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-10-12 13:20</a>
+第二个大学生嘛，确实能吃不少尾气，销量大概率吊打一众JRPG，预计800W起步这样？
+
+—— 来自 S1Fun ...</blockquote>
+先订个500万吧，保守点。这游戏美术风格比较暗黑，也没有黑神话这种扫描大量古建这种更亲民能吸引圈外人的内容。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

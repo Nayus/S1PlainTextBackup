@@ -4624,3 +4624,93 @@ a9好像有个日程攻略了<img src="https://static.saraba1st.com/image/smiley
 
 我还是不明白画面怎么能做这么差的。老引擎也不是你建模这么唐的理由吧。还有A社下次再搞2D过场动画能不能多花点钱找个好点的制作组，还不如一些厕纸番
 
+
+*****
+
+####  Khellendros  
+##### 1919#       发表于 2024-10-12 15:44
+
+普通攻击打weak还有个意义不明的正面特写<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还不能跳过，又唐又浪费时间，怎么想的啊
+
+*****
+
+####  leafS  
+##### 1920#       发表于 2024-10-12 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66433939&amp;ptid=2140224" target="_blank">kuarwbwe 发表于 2024-10-12 15:28</a>
+那我只能说除非以后Atlus真能整个1000万的作品出来，否则现在整得这堆无用宣发就只是在败坏自己口碑罢了。 ...</blockquote>
+主要是看steam在线真看不出是一个首日100万的游戏，如果说大头全在ps那我没话说
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+
+*****
+
+####  猪突猛进  
+##### 1921#       发表于 2024-10-12 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66433939&amp;ptid=2140224" target="_blank">kuarwbwe 发表于 2024-10-12 15:28</a>
+
+那我只能说除非以后Atlus真能整个1000万的作品出来，否则现在整得这堆无用宣发就只是在败坏自己口碑罢了。 ...</blockquote>
+厂商又不是傻子，宣发不会白白投入的。
+
+这是暗喻的首日评价：
+
+<img src="https://img.saraba1st.com/forum/202410/12/154052f16lp96xg61x4l6b.jpg" referrerpolicy="no-referrer">
+
+<strong>biQkcp-c7ebK1rT1kShs-12i.jpg</strong> (60.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-12 15:40 上传
+
+简中虽然骂得多，但是凯子也多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这是Steam的9月平均数据：
+
+<img src="https://img.saraba1st.com/forum/202410/12/154052boqhji1yol13oyjw.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2024-10-12 153612.png</strong> (53.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-12 15:40 上传
+
+简中自黑神话以来，已经变成Steam第一大语言，而且还在持续上升中。
+
+厂商只要想赚钱，必然会加强在简中的宣发投入。
+
+当然想带走多少，就看他们本事了。
+
+而这对我们玩家来说，并不是坏事。
+
+*****
+
+####  そらたかく  
+##### 1922#       发表于 2024-10-12 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66434011&amp;ptid=2140224" target="_blank">巨馍蘸酱 发表于 2024-10-12 15:38</a>
+
+我还是不明白画面怎么能做这么差的。老引擎也不是你建模这么唐的理由吧。还有A社下次再搞2D过场动画能不能 ...</blockquote>
+我最不理解的是，P3 P4 P5那么干净统一的画风，怎么到这里就花里胡哨了，我不用MOD降低特效我压根都玩不下去，头晕眼花想吐。
+
+
+*****
+
+####  卡拉德利姆  
+##### 1923#       发表于 2024-10-12 15:51
+
+这游戏给我的感觉就像里面那台战车一样，一个老匠人闭门造车用几年搞出来的玩意，很多东西一眼过时烦人，但是核心的地方依然扎实，也有他不可替代的地方
+
+*****
+
+####  UnrealApartheid  
+##### 1924#       发表于 2024-10-12 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66434011&amp;ptid=2140224" target="_blank">巨馍蘸酱 发表于 2024-10-12 15:38:53</a>
+
+我还是不明白画面怎么能做这么差的。老引擎也不是你建模这么唐的理由吧。还有A社下次再搞2D过场动画能不能 ...</blockquote>
+Domerica这动画制作水平大概就相当于二三十来人的作坊，比如说BLADE或者月虹，的平均水平
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

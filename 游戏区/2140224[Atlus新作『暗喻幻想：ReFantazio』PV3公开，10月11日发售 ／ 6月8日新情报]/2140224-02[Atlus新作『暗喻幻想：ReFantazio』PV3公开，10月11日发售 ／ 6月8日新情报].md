@@ -4376,3 +4376,29 @@ demo就看了个画面，我打到大教堂，那个会出怪的花，我看他�
 
 不过这觉醒演出真的土，镜头和模型动作都不用心，明明真女5这块时髦值是拉满的。
 
+
+*****
+
+####  变老的大二  
+##### 1899#       发表于 2024-10-12 13:38
+
+<blockquote>八佾舞于潭 发表于 2024-10-12 13:33
+看了三眼女的觉醒动画，继《不要擅自期待再擅自失望》后，ATLUS 又点了《事到如今给我翅膀》，什么青春伤痕 ...</blockquote>
+bgm一出来就知道不潮了
+
+
+*****
+
+####  ネコカイザー  
+##### 1900#       发表于 2024-10-12 13:47
+
+<img src="https://img.saraba1st.com/forum/202410/12/134526bz0hzuypnvu0h0wl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (38.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-12 13:45 上传
+
+没想到专楼内部都起兵了 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

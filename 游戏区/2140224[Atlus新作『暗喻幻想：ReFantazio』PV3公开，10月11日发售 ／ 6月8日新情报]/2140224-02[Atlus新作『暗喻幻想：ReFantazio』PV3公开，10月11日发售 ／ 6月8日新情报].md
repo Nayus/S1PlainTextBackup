@@ -3242,3 +3242,35 @@ pc版声音很小，有调整方法吗</blockquote>
 —— 来自 OnePlus LE2100, Android 14上的 S1Next-鹅版 v2. ...</blockquote>
 2法师1战士，上来先扔个降防道具，然后一直用冰魔法就行了，很简单。战士就负责用道具回回血，偶尔补点输出就行。注意两个法师不要站同一排容易被aoe一锅端。
 
+
+*****
+
+####  yangkaim4  
+##### 1790#       发表于 2024-10-12 08:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66430445&amp;ptid=2140224" target="_blank">牙狼GARO 发表于 2024-10-12 08:31</a>
+
+矿山里的龙hard有人打爆了么，那龙序章能打爆
+
+—— 来自 OnePlus LE2100, Android 14上的 S1Next-鹅版 v2. ...</blockquote>
+双术士把冰练出来hard也没难度，随便打
+
+
+*****
+
+####  kuarwbwe  
+##### 1791#       发表于 2024-10-12 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66430111&amp;ptid=2140224" target="_blank">乔西 发表于 2024-10-12 05:20</a>
+
+你怎么评价p5r呢？
+
+想了解下口味对不对的上</blockquote>
+我云过p5原版，亲自打了R。对P5R我总体评价还是算优秀。
+
+目前暗喻幻想我打到的地方的剧情我觉得算白开水，和p5的鸭志田部分比不了。p5剧情本身配合他的现代背景、日程，社交和五维系统我觉得算沉浸感很强、很有生活感的游戏内容。就是到双叶开始，这游戏盘子有点太大了，如果不能接受，我都是怪盗天天去偷心了还谈什么细节这个前提，就会比较出戏。战斗要平庸一点，不如smt5和这作，主要还是靠演出支撑。几个宫殿大boss我觉得都算让人印象深刻。
+
+R原创部分，我觉得丸喜和学妹都还不错，给明智加的戏全是狗屎。
+
+bgm各有特色。而ui和p5比确实是退步了，虽然我适应了，但不代表他很好。
+

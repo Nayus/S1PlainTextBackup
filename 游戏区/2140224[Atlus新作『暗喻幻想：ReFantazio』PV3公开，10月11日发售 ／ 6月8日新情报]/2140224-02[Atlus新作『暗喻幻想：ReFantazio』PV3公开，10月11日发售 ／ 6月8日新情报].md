@@ -4794,3 +4794,56 @@ P5后很多游戏都开始做过渡动画切UI，但大部分都是画虎不成�
 一天100万，不是首周三天</blockquote>
 这就是错觉了。实际上一天一百3天还是一百。<img src="https://static.saraba1st.com/image/smiley/face/169.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罗克萨斯  
+##### 1933#       发表于 2024-10-12 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66434171&amp;ptid=2140224" target="_blank">kuarwbwe 发表于 2024-10-12 16:02</a>
+这销量不低。你看看他家smt5原版，现在也才100w，加复仇也就150w。我一直吐槽是因为宣发问题。现在这游戏 ...</blockquote>
+我感觉宣发费用肯定超过开发费用了，有这钱真不如给EPIC虚幻引擎抽成，以及花在全语音+高质量过场动画上，而且无效宣发真的太多，比如和F1以及网吧合作，非常迷，怕不是被人坑了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  抽烟的猴  
+##### 1934#       发表于 2024-10-12 16:07
+
+<blockquote>kuarwbwe 发表于 2024-10-12 16:02
+这销量不低。你看看他家smt5原版，现在也才100w，加复仇也就150w。我一直吐槽是因为宣发问题。现在这游戏 ...</blockquote>
+赔本赚吆喝也行
+
+他家打算把暗喻幻想打造成系列出12345代，第一代先混口碑
+
+
+*****
+
+####  operatbig  
+##### 1935#       发表于 2024-10-12 16:11
+
+玩了两天，接触内容越多越觉得游戏廉价。
+
+*****
+
+####  umbasa  
+##### 1936#       发表于 2024-10-12 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66434206&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-10-12 16:07</a>
+
+我感觉宣发费用肯定超过开发费用了，有这钱真不如给EPIC虚幻引擎抽成，以及花在全语音+高质量过场动画上 ...</blockquote>
+不一定，有说法是sega给董事会画饼了，要找新的增长点，可能atlus开发全新ip也算饼的一部分，毕竟ca那边（欧洲sega）还重启了异形隔离的项目呢。
+
+*****
+
+####  kuarwbwe  
+##### 1937#       发表于 2024-10-12 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66434209&amp;ptid=2140224" target="_blank">抽烟的猴 发表于 2024-10-12 16:07</a>
+
+赔本赚吆喝也行
+
+他家打算把暗喻幻想打造成系列出12345代，第一代先混口碑 ...</blockquote>
+问题是赚的来吗？就这个卖相和直播效果怕不是要全赔进去了。现在世嘉高强度找水军宣发，在推特支持dei，被媒体打高分。基本都精准撞到了国内的雷点上。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

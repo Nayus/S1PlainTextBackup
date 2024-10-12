@@ -1792,3 +1792,13 @@ LL的集换式卡牌还有cast卡，部分还有签名
 
 但是暂时写不出来需要香音抱抱，这种顶级下三路捧人桥段花田会不会放过就不知道了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 174#       发表于 2024-10-12 16:09
+
+犹未可知为什么如此捧香音的做法是哪个神人的要求，反正京极花田都不说，就看看后面怎么展现吧，2期完全是冲着捧杀去的，连带着一期的剧情也变了味。
+
+不慌，花田不一定会整烂活，京极可说不定，live的平移镜头给你意外惊喜呀<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

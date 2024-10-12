@@ -5870,3 +5870,21 @@ bug了，我也是
 
 COOP升级的那个技能选择以后能重新选吗<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">，不会没办法改了吧
 
+
+*****
+
+####  量产失败型  
+##### 2032#       发表于 2024-10-13 07:25
+
+DEMO的牛头人地牢十里坡到L26,正式版推到支线的废弃墓地发现刷起来效率更高,迷宫常驻俩大只佬巫妖,我方2格斗家+1回复士+1盗贼,格斗家塞个影分身,先制开幕能削800左右血,然后气光波匡匡匡3~4发击破最后2只贵族骷髅盗贼放咒杀补刀,一场无伤AEXP能有近600,全员L20阿基态刷一轮能有5个英雄光叶,秒杀线是L34
+
+
+*****
+
+####  真空管  
+##### 2033#       发表于 2024-10-13 07:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66438240&amp;ptid=2140224" target="_blank">量产失败型 发表于 2024-10-13 07:25</a>
+DEMO的牛头人地牢十里坡到L26,正式版推到支线的废弃墓地发现刷起来效率更高,迷宫常驻俩大只佬巫妖,我方2格 ...</blockquote>
+光砂天气加小妹妹被动直接一只1000+，刷了个爽发现光叶上限99<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

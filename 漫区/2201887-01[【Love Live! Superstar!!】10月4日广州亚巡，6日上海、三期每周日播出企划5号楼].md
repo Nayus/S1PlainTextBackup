@@ -1757,3 +1757,16 @@ LL的集换式卡牌还有cast卡，部分还有签名
 看后天 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">三人图和八人图一对比真是骂都不知道从哪开始骂
 
+
+*****
+
+####  ViyViy  
+##### 171#       发表于 2024-10-12 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66430470&amp;ptid=2201887" target="_blank">adw667 发表于 2024-10-12 08:36</a>
+
+三人图和八人图一对比真是骂都不知道从哪开始骂</blockquote>
+后来想想这截图倾向性也太大了，没准八个路人戏份还可以呢；毕竟图透有效片段就两张
+
+感觉这集是四倍速讲磨合然后三个人在学校礼堂搭了个台展示练习成果（致敬传奇缪斯），这样既完成了插入曲任务还分流了插入曲免得一集24分钟三分一都是看京极的血压分镜；下一话代代木真刀真枪也可以直接只演示八个人的那边，有道是先手必输，提前一集展示那也是先手<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

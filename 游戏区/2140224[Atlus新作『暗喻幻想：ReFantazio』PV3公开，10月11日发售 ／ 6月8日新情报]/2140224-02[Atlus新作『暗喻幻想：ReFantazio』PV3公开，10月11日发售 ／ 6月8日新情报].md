@@ -3427,3 +3427,22 @@ demo打到刺杀就没玩了，看了下视频牛头11级就过了，具体就�
 大地图平a开怪是我今年玩到最弱智的游戏系统，我方平a半天才能进先手，敌方摸到一下就进先手，搭配屎一样的 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">比真4强多了吧，真4那个挥剑打马赛克是真的玩哭了
 
+
+*****
+
+####  walfeds  
+##### 1808#       发表于 2024-10-12 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66430728&amp;ptid=2140224" target="_blank">yahanintnedo 发表于 2024-10-12 09:11</a>
+这要怎么调？我亮度都拉满了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">为什么要拉满亮度，不该调低吗
+
+*****
+
+####  Rushtime33  
+##### 1809#       发表于 2024-10-12 10:11
+
+ 本帖最后由 Rushtime33 于 2024-10-12 10:13 编辑 
+
+原野战斗肉眼可见的会成为粪点，hard难度下先制和被先制的差距过大，推图昏厥敌人再进战斗基本成为必需，不然蓝量资源完全不够续航。但是我方偷袭状态要打四五下，不偷袭要打十几下，敌方打我只需要一下，有时候夹杂在特效中完全反应不过来。而且术士主角平A这个手感屎一样的，我愿称之为黑魂0.1。
+

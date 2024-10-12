@@ -381,3 +381,14 @@ Speciale势头最好的鳟鱼哥这就无限期休止了。。这一期真的太
 
 看到x趋势才知道虹最新的新人（大概）跑了一个，有说是啥原因吗？
 
+
+*****
+
+####  Devi_Lito  
+##### 813#       发表于 2024-10-12 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66430644&amp;ptid=2171972" target="_blank">毛头小希 发表于 2024-10-12 09:00</a>
+
+看到x趋势才知道虹最新的新人（大概）跑了一个，有说是啥原因吗？</blockquote>
+没说原因，就突然推特宣布无限期停止活动的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

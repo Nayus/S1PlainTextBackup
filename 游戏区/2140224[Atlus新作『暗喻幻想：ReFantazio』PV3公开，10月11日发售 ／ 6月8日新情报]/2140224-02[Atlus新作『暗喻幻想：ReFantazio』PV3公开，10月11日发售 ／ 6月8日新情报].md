@@ -5390,3 +5390,48 @@ p5战斗我玩不下去，这个好玩很多
 为什么老头不能杀路易，路易就能杀老头</blockquote>
 因为老头去杀人犯法了啊，很简单，人杀人不行，犯法，人杀了人，警察枪毙人警察还犯法吗
 
+
+*****
+
+####  RainbowSealife  
+##### 1989#       发表于 2024-10-12 21:04
+
+真•牢理转生：到了异世界就拿出真本事
+
+[https://www.bilibili.com/video/BV1Gox5eHEm1/](https://www.bilibili.com/video/BV1Gox5eHEm1/)
+
+<img src="https://img.saraba1st.com/forum/202410/12/210306seicpclytxptmtcr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (444.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-12 21:03 上传
+
+孩子们,长角番肘会梦见月球牢理吗？
+
+[https://www.bilibili.com/video/BV1H6x5eAE4T/](https://www.bilibili.com/video/BV1H6x5eAE4T/)
+
+<img src="https://img.saraba1st.com/forum/202410/12/210401s14bturdjc5lw45x.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (420.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-12 21:04 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  modkingr  
+##### 1990#       发表于 2024-10-12 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66436476&amp;ptid=2140224" target="_blank">RainbowSealife 发表于 2024-10-12 21:04</a>
+
+真•牢理转生：到了异世界就拿出真本事
+
+https://www.bilibili.com/video/BV1Gox5eHEm1/</blockquote>
+评论看到「孩子们，八十稻羽和朱尼斯被坏人摧毁了」给我笑的
+

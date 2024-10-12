@@ -760,3 +760,33 @@ https://bbs.saraba1st.com/2b/thread-2202503-0-1.html
 
 主包到底是要一个lol比自己好的彼氏还是不如的啊(全恼)
 
+
+*****
+
+####  古战场亡魂  
+##### 17510#       发表于 2024-10-12 16:04
+
+玩波比重拳出击，玩鳄鱼被重拳出击。
+
+*****
+
+####  TiHaru  
+##### 17511#       发表于 2024-10-12 19:55
+
+<img src="https://img.saraba1st.com/forum/202410/12/195524kux810atok48o871.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6570.jpeg</strong> (259.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-12 19:55 上传
+
+ま、ずい
+
+*****
+
+####  秋游刃  
+##### 17512#       发表于 2024-10-12 21:09
+
+这个是？
+

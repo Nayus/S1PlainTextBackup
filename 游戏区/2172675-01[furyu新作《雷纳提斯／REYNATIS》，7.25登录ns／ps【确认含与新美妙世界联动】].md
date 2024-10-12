@@ -725,3 +725,18 @@ PSN日服试玩版2.39分</blockquote>
 就看几个游戏音乐up主发过几首bgm ...</blockquote>
 涉谷系画风，不知道要卖给谁
 
+
+*****
+
+####  requiem116  
+##### 76#       发表于 2024-10-12 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66436239&amp;ptid=2172675" target="_blank">八佾舞于潭 发表于 2024-10-12 20:33</a>
+
+涉谷系画风，不知道要卖给谁</blockquote>
+刚发现居然上steam了
+
+steam上看着画质建模好不少但是居然没有中文
+
+还是不尝试了
+

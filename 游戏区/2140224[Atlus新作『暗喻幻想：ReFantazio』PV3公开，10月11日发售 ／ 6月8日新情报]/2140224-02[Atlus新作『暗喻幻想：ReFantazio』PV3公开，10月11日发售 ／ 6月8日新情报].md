@@ -4606,3 +4606,21 @@ a9好像有个日程攻略了<img src="https://static.saraba1st.com/image/smiley
 
 销量指出货加下载。游戏没玩不发表意见。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Rushtime33  
+##### 1917#       发表于 2024-10-12 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66433939&amp;ptid=2140224" target="_blank">kuarwbwe 发表于 2024-10-12 15:28</a>
+
+那我只能说除非以后Atlus真能整个1000万的作品出来，否则现在整得这堆无用宣发就只是在败坏自己口碑罢了。 ...</blockquote>
+确实，jrpg盘子就这么大，再怎么宣发都很难超过双版本并且被吹上天的p5吧。
+
+*****
+
+####  巨馍蘸酱  
+##### 1918#       发表于 2024-10-12 15:38
+
+我还是不明白画面怎么能做这么差的。老引擎也不是你建模这么唐的理由吧。还有A社下次再搞2D过场动画能不能多花点钱找个好点的制作组，还不如一些厕纸番
+

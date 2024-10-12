@@ -5763,3 +5763,22 @@ bug了，我也是
 打到能接支线的地方看了一眼攻略，才发现自己最开始北部要塞那块打完根本没跳成就，这怎么做到的…… ...</blockquote>
 打完教堂就跳了
 
+
+*****
+
+####  windtrack  
+##### 2022#       发表于 2024-10-13 01:59
+
+玩到第四个队友入队后的自由活动时间
+
+有一点很不爽就是这游戏切屏太频繁了，开宝箱切2次，迷宫里和NPC对话切2次，各种没10秒的过场也要切，让人感觉很烦躁
+
+*****
+
+####  战术核辣条  
+##### 2023#       发表于 2024-10-13 02:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这游戏怎么真是atlus全家福，开始响新宿bgm的时候差点一口水喷出来
+
+—— 来自 nubia NX729J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

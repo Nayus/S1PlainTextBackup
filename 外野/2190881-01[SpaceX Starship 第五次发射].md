@@ -515,3 +515,11 @@ FAA的飞行警戒已将13日的第五飞列入时间表。
 FAA正式发布第五飞许可证。
 [https://drs.faa.gov/browse/excel ... 01?modalOpened=true](https://drs.faa.gov/browse/excelExternalWindow/DRSDOCID173891218620231102140506.0001?modalOpened=true)
 
+
+*****
+
+####  stevenzero  
+##### 100#       发表于 2024-10-13 06:08
+
+顺便第6飞的许可也给了。但估计因为发射不会没有显著变化所以没啥用<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

@@ -5654,3 +5654,13 @@ https://www.bilibili.com/video/BV14221YwEXg/</blockquote>
 
 路易给我一种格里菲斯的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SuNR1sE364  
+##### 2010#       发表于 2024-10-13 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66437689&amp;ptid=2140224" target="_blank">johanliebert 发表于 2024-10-13 00:09</a>
+在河道把大黑猫做掉了，一个初级群奶，一个高级群奶，三个人轮流上加攻buff和减防buff，三层叠到结束给磨死 ...</blockquote>
+猫打起来不算太难<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且打了还不是一次搞定，后面还要再来一次躲猫猫，第二次我就懒得打了
+

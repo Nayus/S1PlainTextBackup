@@ -4587,3 +4587,22 @@ a9好像有个日程攻略了<img src="https://static.saraba1st.com/image/smiley
 
 尼姑庵判断水军的方式大概是我不喜欢的帖子只要多起来就一定是水军
 
+
+*****
+
+####  kuarwbwe  
+##### 1915#       发表于 2024-10-12 15:28
+
+ 本帖最后由 kuarwbwe 于 2024-10-12 15:31 编辑 
+
+那我只能说除非以后Atlus真能整个1000万的作品出来，否则现在整得这堆无用宣发就只是在败坏自己口碑罢了。暗喻幻想这游戏能做个生涯500万的作品顶天了，而且就现在这个卖相能不能卖500万我先持怀疑态度。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+更别说，就他们现在整的这堆疯了一样的宣发，要最后整个生涯真就只买了200-300w出去，能不能回本我都怀疑是个问题。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  星花  
+##### 1916#       发表于 2024-10-12 15:31
+
+销量指出货加下载。游戏没玩不发表意见。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

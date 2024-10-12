@@ -473,3 +473,14 @@ https://m.weibo.cn/6981601982/5086136055893481
 玩具出了吗</blockquote>
 好像还没动静
 
+
+*****
+
+####  忘却旋律  
+##### 43#       发表于 2024-10-12 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66428356&amp;ptid=2201976" target="_blank">JuicyJuice 发表于 2024-10-11 21:18</a>
+
+第三话已翻完</blockquote>
+等等  不是AI的模拟身体吗 怎么还能香和软的 这是模拟了个实体出来
+

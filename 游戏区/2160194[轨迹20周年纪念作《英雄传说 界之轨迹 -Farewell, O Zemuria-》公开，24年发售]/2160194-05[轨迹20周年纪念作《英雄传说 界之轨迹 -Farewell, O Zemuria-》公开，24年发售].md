@@ -6435,3 +6435,13 @@ szh真疯魔了这也封<img src="https://static.saraba1st.com/image/smiley/face
 
 我看结算画面不知为何没算上ZOC相关项目，就这样也够5.0了。
 
+
+*****
+
+####  huyangxinhn  
+##### 6526#       发表于 2024-10-13 00:22
+
+<blockquote>jacket 发表于 2024-10-12 03:04
+为了截这图读档重打了一遍任务，一闪而过</blockquote>
+日本著名都市传说，高速婆婆。一看到这一段，我就想到了这个。
+

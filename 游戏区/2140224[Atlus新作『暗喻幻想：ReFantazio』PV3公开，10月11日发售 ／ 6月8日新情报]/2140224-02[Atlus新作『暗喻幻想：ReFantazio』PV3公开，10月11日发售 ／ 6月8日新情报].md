@@ -5639,3 +5639,18 @@ https://www.bilibili.com/video/BV14221YwEXg/</blockquote>
 
 不过模型不知道是不是受祖传引擎影响实在太像大人了，小妖精也是
 
+
+*****
+
+####  lilod  
+##### 2008#       发表于 2024-10-13 00:21
+
+完蛋，先去了牛头人任务，结果10级进去看到 22 级 boss 还是 hard 难度，想破头都不知道怎么打。。。
+
+*****
+
+####  wolfwood  
+##### 2009#       发表于 2024-10-13 00:24
+
+路易给我一种格里菲斯的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

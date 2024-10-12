@@ -523,3 +523,14 @@ FAA正式发布第五飞许可证。
 
 顺便第6飞的许可也给了。但估计因为发射不会没有显著变化所以没啥用<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  commcody  
+##### 101#         楼主| 发表于 2024-10-13 06:54
+
+目前发射窗口北京时间10月13日20:00开始，时长30分钟。
+
+SpaceX将于19点35分开始直播。
+[https://x.com/i/broadcasts/1RDGlyognOgJL](https://x.com/i/broadcasts/1RDGlyognOgJL)
+

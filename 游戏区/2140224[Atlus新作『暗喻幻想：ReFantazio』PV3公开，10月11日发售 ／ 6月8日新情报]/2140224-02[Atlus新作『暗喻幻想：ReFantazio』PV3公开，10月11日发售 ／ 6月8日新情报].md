@@ -5249,3 +5249,14 @@ p系这种日程表式玩法真不适合暗喻幻想这种国家层面事件的�
 
 为什么老头不能杀路易，路易就能杀老头
 
+
+*****
+
+####  linyc0010  
+##### 1976#       发表于 2024-10-12 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66435700&amp;ptid=2140224" target="_blank">螃蟹鬼魂 发表于 2024-10-12 19:14</a>
+
+为什么老头不能杀路易，路易就能杀老头</blockquote>
+王之魔法保护的是候选人，老头不是候选人
+

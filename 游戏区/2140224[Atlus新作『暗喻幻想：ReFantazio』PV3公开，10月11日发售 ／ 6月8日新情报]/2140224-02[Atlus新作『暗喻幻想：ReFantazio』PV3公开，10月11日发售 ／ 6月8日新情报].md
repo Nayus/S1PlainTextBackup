@@ -3178,3 +3178,16 @@ pc版声音很小，有调整方法吗</blockquote>
 给阿基态升级的那个狗粮只能做任务获得吗 买不了？</blockquote>
 用满级的阿基态，溢出的经验会合成狗粮道具
 
+
+*****
+
+####  dazzle  
+##### 1784#       发表于 2024-10-12 08:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66430111&amp;ptid=2140224" target="_blank">乔西 发表于 2024-10-12 05:20</a>
+
+你怎么评价p5r呢？
+
+想了解下口味对不对的上</blockquote>
+跟P5完全是两种游戏，这个游戏的气质比较接近DDS或者中古奇幻的女神转生，乐趣主要在build和探索闯关
+

@@ -5523,3 +5523,17 @@ https://www.bilibili.com/video/BV1Gox5eHEm1/</blockquote>
 
 第四个队友也是很着急入队没啥剧情就觉醒了，甚至感觉觉醒的时候都没受什么刺激，太样板戏了
 
+
+*****
+
+####  NEIN  
+##### 1999#       发表于 2024-10-12 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66437428&amp;ptid=2140224" target="_blank">Khellendros 发表于 2024-10-12 23:20</a>
+打到第二个城市感觉渐入佳境了
+
+支线迷宫主要分3类吧，一种是岔路加点狗洞跟印象空间差不多，一种是大平原无 ...</blockquote>
+感觉都是走个过场发个队友给你用一下，你就说用不用吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

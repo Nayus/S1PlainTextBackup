@@ -390,3 +390,18 @@ SJ3がスタートした。今回のフィールドは四方を海に囲まれ�
  ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">非氪金玩家，没有那么多花花的道具，在开阔的场地不就是人形靶子吗？而且大部分拿机枪的，移动速度都很低。
 
+
+*****
+
+####  ParadiseMartyr  
+##### 1915#       发表于 2024-10-12 10:33
+
+op2好难听…
+
+*****
+
+####  tiro_finale  
+##### 1916#       发表于 2024-10-12 18:47
+
+莲跑步有几个难绷的循环动作啊
+

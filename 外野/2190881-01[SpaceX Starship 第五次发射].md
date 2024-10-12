@@ -506,3 +506,12 @@ FAA的飞行警戒已将13日的第五飞列入时间表。
 
 2024-10-13 00:10 上传
 
+
+*****
+
+####  commcody  
+##### 99#         楼主| 发表于 2024-10-13 00:46
+
+FAA正式发布第五飞许可证。
+[https://drs.faa.gov/browse/excel ... 01?modalOpened=true](https://drs.faa.gov/browse/excelExternalWindow/DRSDOCID173891218620231102140506.0001?modalOpened=true)
+

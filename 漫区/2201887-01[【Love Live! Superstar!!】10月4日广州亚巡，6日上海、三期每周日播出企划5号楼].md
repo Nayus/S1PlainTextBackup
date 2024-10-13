@@ -2157,3 +2157,16 @@ B8C387FE71819CEDC4ACF82DE7A2607D.jpg
 
 <[img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer"> 直到听完ED才反应过来，看来就算出三季动画也不会有某人的SOLO听，诶。
 
+
+*****
+
+####  离心  
+##### 208#       发表于 2024-10-14 02:00
+
+ 本帖最后由 离心 于 2024-10-14 02:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66444386&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-10-14 00:51</a>
+
+回看翻译好的发现个事情，可可会忘了"去年"VNdissLL大会的事情？不可能吧，怎么那段解释没人看的原因的地方 ...</blockquote>
+
+一期和恋那么针锋相对，在入队的时候不还是乖乖的叫恋恋了（当然也有恋的自身原因）可可是只要你愿意当偶像我就愿意应援你的，不怎么会计较的，只有急上头了才会翻旧账（这集香音跑vn那和恋恋抱怨）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -185,3 +185,14 @@ t天尘只做了前半，个人认为精华的后半估计制作组认怂了做�
 天尘只做了半拉好像（</blockquote>
 做一半做全估计都那个样 也没指望过玻璃钢这种空镜头都不会用的东西能有什么大能
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 6539#       发表于 2024-10-14 01:59
+
+e站有人传高桥正典那个本了，目录是这样
+<img src="https://p.sda1.dev/19/1fcd1baeaaa017fa47847e715dcf670a/CMP_20241014015848765.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

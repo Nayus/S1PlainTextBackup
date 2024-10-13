@@ -6482,3 +6482,32 @@ nga贴吧不是早就有那种不到千万销量不配上桌的共识了，连�
 
 我个人是觉得美术和音乐是很大的加分点，但这个是很看个人审美了没啥参考价值，妹子的话立绘我都觉得都很好看，建模差一点点但也能接受
 
+
+*****
+
+####  Whalouse  
+##### 2089#       发表于 2024-10-13 15:20
+
+打了30小时的感想就是这东西怎么能做这么多年的，都干什么去了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  budong  
+##### 2090#       发表于 2024-10-13 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66440342&amp;ptid=2140224" target="_blank">Whalouse 发表于 2024-10-13 15:20</a>
+打了30小时的感想就是这东西怎么能做这么多年的，都干什么去了</blockquote>
+反复推倒重做呗，还能怎么样？
+
+*****
+
+####  superlink  
+##### 2091#       发表于 2024-10-13 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66440342&amp;ptid=2140224" target="_blank">Whalouse 发表于 2024-10-13 15:20</a>
+打了30小时的感想就是这东西怎么能做这么多年的，都干什么去了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本来想憋大的，结果憋了n年没戏了只好路径依赖终极缝合。怀疑乔野前三年成天公费取材去了
+
+—— 来自 vivo V2304A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

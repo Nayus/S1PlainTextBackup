@@ -11520,3 +11520,21 @@ go也是4th才放动画pv的吧</blockquote>
 
 现在那个页面里没有这张图了，看来又是草台提前漏了（
 
+
+*****
+
+####  六道明  
+##### 24651#       发表于 2024-10-13 15:16
+
+国内又没引进，不还是得悄悄播_(:з」∠)_
+
+*****
+
+####  NODY  
+##### 24652#       发表于 2024-10-13 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66440164&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-10-13 14:47</a>
+
+国内没正式引进，估计就是到时候短时间盗播</blockquote>
+线下活动放片段不需要过审批吧
+

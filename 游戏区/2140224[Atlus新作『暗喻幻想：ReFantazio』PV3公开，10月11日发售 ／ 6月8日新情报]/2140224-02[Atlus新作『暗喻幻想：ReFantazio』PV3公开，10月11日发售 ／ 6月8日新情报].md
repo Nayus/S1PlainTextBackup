@@ -7460,3 +7460,15 @@ https://x.com/nistick023/status/1845357067026170151
 大教堂下层的邪灵怎么打？我剑士和武僧的技能对他都没用，需要换什么组合打？另外还有大教堂路过一个桥的时 ...</blockquote>
 这个我是用seeker合题光属性技能打的，中期开始魔法的单体输出就比物理差很多了
 
+
+*****
+
+####  windtrack  
+##### 2183#       发表于 2024-10-14 02:11
+
+我试玩版一直点的耐力到20左右然后就没加点，到现在40了也没加<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+主角就一直商人砸钱然后继承个小丑技能挂一下debuff，输出都交给大剑番长和枪妹了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

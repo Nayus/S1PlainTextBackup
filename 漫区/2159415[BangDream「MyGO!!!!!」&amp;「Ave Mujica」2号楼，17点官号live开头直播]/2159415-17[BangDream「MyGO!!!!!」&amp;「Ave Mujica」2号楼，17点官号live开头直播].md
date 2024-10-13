@@ -12732,3 +12732,11 @@ mujica的live脚本应该一直是小川负责（0th没有新的幕间，个人�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  NODY  
+##### 24773#       发表于 2024-10-14 02:09
+
+喵梦那个“为了当上主角，就算被烧尽也没关系”，不会是暗示她为了热度做了什么会引起炎上的事情吧（反正邦邦世界炎上事件基本上都能解决）
+

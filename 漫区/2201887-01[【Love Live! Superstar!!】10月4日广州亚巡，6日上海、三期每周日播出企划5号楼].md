@@ -2079,3 +2079,19 @@ B8C387FE71819CEDC4ACF82DE7A2607D.jpg
 可可怎么成香音bot了，太割裂了</blockquote>
 可可第一季不就是香音bot，竞选会长的时候推香音去，香音不肯堇自告奋勇去还被嘴臭了。
 
+
+*****
+
+####  adw667  
+##### 201#       发表于 2024-10-13 20:34
+
+<img src="https://img.saraba1st.com/forum/202410/13/203417y5yjifjet2pzndpp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (33.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 20:34 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

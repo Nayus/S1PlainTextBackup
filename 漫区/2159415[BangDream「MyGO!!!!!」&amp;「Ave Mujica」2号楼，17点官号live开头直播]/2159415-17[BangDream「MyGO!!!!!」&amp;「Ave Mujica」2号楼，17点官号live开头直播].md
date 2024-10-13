@@ -11621,3 +11621,72 @@ url还能又看到了。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我去，上来就是海睦
 
+
+*****
+
+####  御幸一也  
+##### 24663#       发表于 2024-10-13 16:07
+
+我是夢以夢女！夢以————！！！！！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  傘木希美  
+##### 24664#       发表于 2024-10-13 16:07
+
+压轴出场！
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  御幸一也  
+##### 24665#       发表于 2024-10-13 16:08
+
+媽耶這個開場好帥！！！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 24666#       发表于 2024-10-13 16:11
+
+李子的狀態真好 而且今天髮型完美的初華<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六道明  
+##### 24667#       发表于 2024-10-13 16:12
+
+好劲爆的火🔥
+
+*****
+
+####  御幸一也  
+##### 24668#       发表于 2024-10-13 16:13
+
+烏托邦連元素火 米澤：<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Toki_Ai  
+##### 24669#       发表于 2024-10-13 16:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">这火是不是太近了，吓人
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  rikaren  
+##### 24670#       发表于 2024-10-13 16:13
+
+fire是不是有重编曲？
+
+*****
+
+####  御幸一也  
+##### 24671#       发表于 2024-10-13 16:15
+
+米澤的鼓棒要冒火了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

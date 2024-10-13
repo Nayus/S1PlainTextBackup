@@ -6590,3 +6590,31 @@ nga贴吧不是早就有那种不到千万销量不配上桌的共识了，连�
 
 另外coop第一优先级肯定是玛利亚吧，做菜不消耗时间和经验加成两个特性太关键了，不过这作coop数量真的非常非常少……甚至很少有两个人同时找你的，反正看到玛利亚想你了马上过去就是了
 
+
+*****
+
+####  kuarwbwe  
+##### 2100#       发表于 2024-10-13 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66440548&amp;ptid=2140224" target="_blank">zzy199696 发表于 2024-10-13 16:01</a>
+看楼友评论怎么有种smt5加强版的意思
+剧情人设靠边站总之先战斗爽</blockquote>
+主要是人设不行，剧情我们都不敢期待，当然就看战斗了。这作战斗我是觉得真的不错，虽然开始有点便秘。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  SuNR1sE364  
+##### 2101#       发表于 2024-10-13 16:11
+
+第三章主线迷宫这一天打完树1一整个第五层也太过分了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  石中剑二  
+##### 2102#       发表于 2024-10-13 16:14
+
+就泥潭这眼光，现在把ff7原版的剧情拿出来泥潭一样会说烂
+

@@ -3335,3 +3335,17 @@ LEO太阳能电站啊，从板子到微波传输都没有物理学困难了</blo
 — from Xiaomi 23117RK66 ...</blockquote>
 太空工厂？看到有说微重力下进行碳纤维制造、半导体制造、干细胞培养的质量和效果都比地球上好。目前这些还停留在空间站实验，成本下去了确实有可能上量。
 
+
+*****
+
+####  yizi1  
+##### 378#       发表于 2024-10-14 06:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443665&amp;ptid=2190881" target="_blank">AraTurambar 发表于 2024-10-13 22:57</a>
+他身上人类之光和白目资本家两面是完全共存的。
+
+其实就SpaceX这件事情上我就有完全看不顺眼他的地方。 ...</blockquote>
+前一段时间不是刚爆出搞spacex实习生的事情么，一般公司CEO早下台两次了。
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

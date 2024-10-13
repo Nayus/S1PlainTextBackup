@@ -1903,3 +1903,16 @@ document.getElementById('flv_ALj').innerHTML=("");
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ohi.02  
+##### 1653#       发表于 2024-10-13 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66413025&amp;ptid=2188108" target="_blank">king520kyo 发表于 2024-10-10 07:45</a>
+机关出的太晚解锁还绑定火山主线 黄金乌鸦我拿到时钱都没地方花了
+搞不懂为什么不在初期就解锁机关 而且 ...</blockquote>
+机关这套系统反而成了累赘，打怪吧掏出来还要拧发条，还没上完发条就被怪打没了，有那功夫召个莱尼尔全都砍完了，伤害爆炸但是只能作为偷袭用，真的是图一乐的玩具罢了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

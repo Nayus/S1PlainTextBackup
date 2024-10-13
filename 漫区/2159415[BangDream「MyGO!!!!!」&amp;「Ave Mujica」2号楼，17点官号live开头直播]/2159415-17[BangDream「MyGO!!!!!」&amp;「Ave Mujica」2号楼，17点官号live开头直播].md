@@ -12111,3 +12111,39 @@ water
 
 事已至此，等下周四吧
 
+
+*****
+
+####  御幸一也  
+##### 24725#       发表于 2024-10-13 17:58
+
+目前為止最好看的舞台，河口湖真的太美了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 24726#       发表于 2024-10-13 17:59
+
+这次的小剧场感觉信息量没有2nd大，不过有个睦祥互相告白（疑似）好评
+
+*****
+
+####  adcdqre  
+##### 24727#       发表于 2024-10-13 18:01
+
+新加坡消息是今天新冒出来的吗？不是昨天也不是明天？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  PDQ4  
+##### 24728#       发表于 2024-10-13 18:04
+
+有最后的笑已经赢了，就爱这股阴间味<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+这场初祥卖的有点太大了，睦祥也有新卖，感觉幼驯染锁死
+
+开场的海睦玩偶不知道是哪位<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+

@@ -2038,3 +2038,11 @@ B8C387FE71819CEDC4ACF82DE7A2607D.jpg
 我不惊讶，我一惯抱着怀疑在怀疑的态度，只要不相 ...</blockquote>
 应该是热知识且没有用了，香音是有西班牙血统，这波啊是外国人组的胜利<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViyViy  
+##### 196#       发表于 2024-10-13 18:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说剧本节奏和台本的锐利度正常化的同时，主线任务也要做（指疯狂给别人加缘，淡化某位“始まり”的地位）
+

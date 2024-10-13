@@ -2590,3 +2590,78 @@ PS，马老板这个独苗也是在世界级别供应链和NASA数据库支持�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  LeonsCat  
+##### 310#       发表于 2024-10-13 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443321&amp;ptid=2190881" target="_blank">andychen 发表于 2024-10-13 22:20</a>
+
+你这想得太长远了，要投入商业运营首先得在经济性和安全性上过关才行
+
+另外我们的高超之前是军方主力推动 ...</blockquote>
+不是说了么，一个没有商业前景的项目，那唯一可以期待的就是钱多的没处花并且对效费比没有要求的军用项目——但是军用项目，长二不够用那来个长二5CBC总该够用了吧？现实是长二5CBC提出来后就被毙了。
+
+当然了，你也可以指望哪天上头发羊癫疯了，决定满足臭老九的“求知欲”。
+
+*****
+
+####  机吉斯卡  
+##### 311#       发表于 2024-10-13 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443358&amp;ptid=2190881" target="_blank">LeonsCat 发表于 2024-10-13 22:24</a>
+
+不是说了么，一个没有商业前景的项目，那唯一可以期待的就是钱多的没处花并且对效费比没有要求的军用项目 ...</blockquote>
+5CBC那个抄袭阿穆尔把，上面毙了搞了个FH鳖版真的明智
+
+*****
+
+####  lactone  
+##### 312#       发表于 2024-10-13 22:29
+
+知乎已经开咩了
+
+话说马老板这次拖这么久，成功了的话下次能不能快点
+
+— from Xiaomi 23117RK66C, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+
+
+*****
+
+####  andychen  
+##### 313#       发表于 2024-10-13 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443326&amp;ptid=2190881" target="_blank">机吉斯卡 发表于 2024-10-13 22:20</a>
+
+我赞同
+
+不要速胜和速败，我们要的就是一步步来，先弄出最适合的就行</blockquote>
+我们的航天我就期望把目前手上的几个工程项目好好搞起来就可以了，多的没啥期待
+
+*****
+
+####  longmarch5  
+##### 314#       发表于 2024-10-13 22:31
+
+以前一院的说法是如果2023年立项长9，那么2033年两次测试飞行
+
+*****
+
+####  bartholo4  
+##### 315#       发表于 2024-10-13 22:31
+
+没必要悲观的
+蓝星上还有谁能跟进的话也就只有我们了
+
+—— 来自 Xiaomi 23116PN5BC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  机吉斯卡  
+##### 316#       发表于 2024-10-13 22:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">贝索斯今天推迟发射
+
+过两天FH发射木星探测器，去探测冰卫星
+

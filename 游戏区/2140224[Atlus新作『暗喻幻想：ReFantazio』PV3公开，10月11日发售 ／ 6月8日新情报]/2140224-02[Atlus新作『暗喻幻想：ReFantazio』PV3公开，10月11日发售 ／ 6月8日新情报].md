@@ -7191,3 +7191,52 @@ smt5至少大地图探索是a社天花板
 暗喻感觉比p5探索还开倒车</blockquote>
 SMT5V的剧情土还是暗喻的剧情土？
 
+
+*****
+
+####  kuarwbwe  
+##### 2159#       发表于 2024-10-13 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443363&amp;ptid=2140224" target="_blank">そらたかく 发表于 2024-10-13 22:25</a>
+SMT5V的剧情土还是暗喻的剧情土？</blockquote>
+真5那剧情就是王道剧情披了个邪典皮，但是剧情太弱了，实际基本等于不存在。唯一的作用就是给你理由去打架。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+暗喻幻想篇幅多点，稍微丰满点。没真5那么干。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  windtrack  
+##### 2160#       发表于 2024-10-13 22:31
+
+哥布林巨人这个塔楼双水晶这个房间简直是割草式刷钱练级点...
+
+<img src="https://img.saraba1st.com/forum/202410/13/223123bnodgnj2bn5ukub7.png" referrerpolicy="no-referrer">
+
+<strong>f589768a6da99d300ac0e00185ac54e0.png</strong> (579.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 22:31 上传
+
+
+*****
+
+####  operatbig  
+##### 2161#       发表于 2024-10-13 22:31
+
+玩到现在感觉主角特权也太多了，大概猜到什么身份了，只能说还得是要有个好爹。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  baizhi  
+##### 2162#       发表于 2024-10-13 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443293&amp;ptid=2140224" target="_blank">RushMove 发表于 2024-10-13 22:17</a>
+武器攻击力会影响什么伤害？近战攻击，物理技能还是所有技能？</blockquote>
+武器攻击现在影响所有伤害
+
+—— 来自 OPPO PGBM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -12587,3 +12587,21 @@ animax有直播，至少去年是有的
 
 睦那个看到推特有猜双重人格的，不过日本那边双子和双重人格经常一起用，按双子论来说也说得通
 
+
+*****
+
+####  PDQ4  
+##### 24766#       发表于 2024-10-13 23:23
+
+双重人格之前丁真PV的时候就猜过了，还有人说那两个绿伞肯定是指狗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adcdqre  
+##### 24767#       发表于 2024-10-13 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443020&amp;ptid=2159415" target="_blank">前方暴雨预警 发表于 2024-10-13 21:48:51</a>
+如果12月1号真有动画先行放送的话，那4th有安可揭面具也有可能？</blockquote>我看有人去查网页原文一个字没提mujica大概率废案图放错了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

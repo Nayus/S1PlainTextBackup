@@ -12147,3 +12147,29 @@ water
 
 开场的海睦玩偶不知道是哪位<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives  
+##### 24729#       发表于 2024-10-13 18:10
+
+[https://x.com/moepusanai/status/ ... fBwUWaJJEgl3mSfUp5g](https://x.com/moepusanai/status/1845402365035520141?s=61&amp;t=R0KfBwUWaJJEgl3mSfUp5g)
+
+<img src="https://img.saraba1st.com/forum/202410/13/181000qqogrv23oqv4vrx2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3743.jpeg</strong> (687.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 18:10 上传
+
+
+*****
+
+####  MASKA-1  
+##### 24730#       发表于 2024-10-13 18:12
+
+没想到十二月新加坡先行上映
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

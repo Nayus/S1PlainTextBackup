@@ -6872,3 +6872,17 @@ n难度队伍平均35级打过了60级大沙虫，剑士的三豆合体技实在
 
 2024-10-13 17:46 上传
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2125#       发表于 2024-10-13 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66441372&amp;ptid=2140224" target="_blank">Khellendros 发表于 2024-10-13 17:51</a>
+第二章开始就是力&gt;&gt;&gt;魔
+
+加莉卡coop跟着主线提升的导致法师上级职业解锁的很慢 ...</blockquote>
+完了，我全加的魔力
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

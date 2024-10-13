@@ -7118,3 +7118,18 @@ DLC皮可以关BGM么，想换套世界树
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  cowgp01  
+##### 2151#       发表于 2024-10-13 21:56
+
+ATLUS除了弗林那拿刀没力的弱鸡谁加魔啊
+
+*****
+
+####  SuNR1sE364  
+##### 2152#       发表于 2024-10-13 21:59
+
+三眼妹好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

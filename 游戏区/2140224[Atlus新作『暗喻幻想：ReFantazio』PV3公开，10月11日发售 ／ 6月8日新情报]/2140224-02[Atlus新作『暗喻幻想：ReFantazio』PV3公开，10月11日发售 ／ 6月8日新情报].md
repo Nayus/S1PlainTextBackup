@@ -6739,3 +6739,26 @@ nga贴吧不是早就有那种不到千万销量不配上桌的共识了，连�
 
 合体技系统存在感极高，很多时候都是队伍的核心，比我玩过的所有其他jrpg存在感都高，这个系统还是蛮好玩的
 
+
+*****
+
+####  真空管  
+##### 2114#       发表于 2024-10-13 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66440962&amp;ptid=2140224" target="_blank">kuarwbwe 发表于 2024-10-13 16:48</a>
+是，选项只影响能拿魔古的数量。
+
+—— 来自 鹅球 v3.1.91-alpha</blockquote>
+有影响但不是所有的都有，说得力那个上台演讲不同选项给的量不同
+
+
+*****
+
+####  巨馍蘸酱  
+##### 2115#       发表于 2024-10-13 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66441061&amp;ptid=2140224" target="_blank">onemoment 发表于 2024-10-13 17:01</a>
+
+换装可以救一下这几个小唐人，但不多，自己看吧</blockquote>
+太丑了，女骑士放这里面都算好看的了，但还是比早期概念图丑了很多，总感觉这作是不是在迎合什么高级审美
+

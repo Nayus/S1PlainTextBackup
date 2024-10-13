@@ -6025,3 +6025,78 @@ nga游综好像也就20个人评吧，分数极端很正常<img src="https://sta
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁早无敌了，官宣的还能质疑起销量造假，首发第一天我还能看到个开小号用小黑盒数据算出8000多人玩了80h
 想了下明年的游戏都有福了，gta6都不好说会不会呗批倒批臭
 
+
+*****
+
+####  operatbig  
+##### 2047#       发表于 2024-10-13 10:08
+
+打完拐小孩地牢才28级，牛头人刷到30级也太逆天了吧。
+
+*****
+
+####  洛亚替身  
+##### 2048#       发表于 2024-10-13 10:09
+
+ 本帖最后由 洛亚替身 于 2024-10-13 10:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66438669&amp;ptid=2140224" target="_blank">akiomn 发表于 2024-10-13 09:56</a>
+
+隔壁早无敌了，官宣的还能质疑起销量造假，首发第一天我还能看到个开小号用小黑盒数据算出8000多人玩了80h
+
+ ...</blockquote>
+谈销量八百年没见过，突然一帮人开始扯出货量了，合着以前的数据在讨论个毛线？
+
+还成功让贴吧一帮小鬼开始复读机了.....以后不喜欢的游戏销量都第一时间可以黑成销量造假出货没人买，真就讨论环境变成一泡污<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛亚替身  
+##### 2049#       发表于 2024-10-13 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66438750&amp;ptid=2140224" target="_blank">operatbig 发表于 2024-10-13 10:08</a>
+
+打完拐小孩地牢才28级，牛头人刷到30级也太逆天了吧。</blockquote>
+ATLUS不一直这样？刷一个小时小怪艰难升一级，一个守门员稳定升一级到两级（就是拿来控制游戏节奏的）
+
+*****
+
+####  kuarwbwe  
+##### 2050#       发表于 2024-10-13 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66438669&amp;ptid=2140224" target="_blank">akiomn 发表于 2024-10-13 09:56</a>
+隔壁早无敌了，官宣的还能质疑起销量造假，首发第一天我还能看到个开小号用小黑盒数据算出8000多人玩了80h
+ ...</blockquote>
+粉丝基础和口碑都不一样，不能放一块比。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">gta到时候必然是评分销量等数据全高的多边形战士，隔壁不少人估计就直接加入了，不可能参与讨伐的。
+
+以后真的难过的是哪种生涯销量100-500万，媒体分数很高，粉丝不多不少，不算小众但又算不上大众的作品。尤其是日游。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+
+*****
+
+####  akiomn  
+##### 2051#       发表于 2024-10-13 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66438767&amp;ptid=2140224" target="_blank">kuarwbwe 发表于 2024-10-13 10:11</a>
+粉丝基础和口碑都不一样，不能放一块比。gta到时候必然是评分销量等数据全高的多边形战士，隔壁不少人估 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我第一个想到的就是明年的荒野，按照卡婊这样首发百分百优化爆炸，只能说明年有福咯
+
+*****
+
+####  空气先生  
+##### 2052#       发表于 2024-10-13 10:15
+
+尼哥主打一个群体共振，言论再弱智都可以凝聚起一帮子人
+
+*****
+
+####  windtrack  
+##### 2053#       发表于 2024-10-13 10:17
+
+能地图清怪的话找个坏天气下迷宫，地图击杀经验也有加成 效率高不少
+
+不过注意坏天气打弱点不触发额外回合
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

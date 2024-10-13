@@ -1004,3 +1004,252 @@ image.png
 
 不过这回东西完整留下来了，要分析原因会轻松一些
 
+
+*****
+
+####  鲜血秋叶  
+##### 147#       发表于 2024-10-13 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442336&amp;ptid=2190881" target="_blank">andychen 发表于 2024-10-13 20:33</a>
+超重回收成功，不过回收阶段还有些问题
+
+再入的时候屁股有些白眼，落地点火时尾部有碎片，应该是又发生了泄 ...</blockquote>
+底部都点烧穿的迹象，不过没有大的影响
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+*****
+
+####  依然荏苒  
+##### 148#       发表于 2024-10-13 20:36
+
+太离谱了我手都在抖
+
+*****
+
+####  非洲黑猩猩  
+##### 149#       发表于 2024-10-13 20:36
+
+问一下二级怎么处理啊？
+
+*****
+
+####  ohi.02  
+##### 150#       发表于 2024-10-13 20:36
+
+太酷了<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  2017.05.04  
+##### 151#       发表于 2024-10-13 20:36
+
+<img src="https://img.saraba1st.com/forum/202410/13/203642npojma7uz1lm2m93.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (267.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 20:36 上传
+
+*****
+
+####  灼眼的川川仔  
+##### 152#       发表于 2024-10-13 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442336&amp;ptid=2190881" target="_blank">andychen 发表于 2024-10-13 20:33</a>
+超重回收成功，不过回收阶段还有些问题
+
+再入的时候屁股有些白眼，落地点火时尾部有碎片，应该是又发生了泄 ...</blockquote>
+等v3猛禽吧
+
+*****
+
+####  依然荏苒  
+##### 153#       发表于 2024-10-13 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442372&amp;ptid=2190881" target="_blank">非洲黑猩猩 发表于 2024-10-13 20:36</a>
+
+问一下二级怎么处理啊？</blockquote>
+大概40分钟后再入
+
+*****
+
+####  zzzzzzzzzzz  
+##### 154#       发表于 2024-10-13 20:37
+
+手到现在都在抖
+
+*****
+
+####  Eryshou  
+##### 155#       发表于 2024-10-13 20:37
+
+长九：这下总该可以可以立项了吧。
+
+*****
+
+####  ohi.02  
+##### 156#       发表于 2024-10-13 20:38
+
+剩下最后一丢丢燃料，最后一千米高度重新点火，真极限
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  非洲黑猩猩  
+##### 157#       发表于 2024-10-13 20:38
+
+<blockquote>依然荏苒 发表于 2024-10-13 20:37
+大概40分钟后再入</blockquote>
+是不是海上软溅落？
+
+*****
+
+####  依然荏苒  
+##### 158#       发表于 2024-10-13 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442393&amp;ptid=2190881" target="_blank">非洲黑猩猩 发表于 2024-10-13 20:38</a>
+
+是不是海上软溅落？</blockquote>
+对受控再入 范围在东非到澳大利亚之间
+
+*****
+
+####  haohaoh4  
+##### 159#       发表于 2024-10-13 20:39
+
+成功，厉害<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  andychen  
+##### 160#       发表于 2024-10-13 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442378&amp;ptid=2190881" target="_blank">灼眼的川川仔 发表于 2024-10-13 20:36</a>
+
+等v3猛禽吧</blockquote>
+SS这个液氧泄露问题一直都在，不知道是发动机还是箭内管路的问题。换发以后箭内管路按理说也要重新设计，看到时候什么情况吧
+
+另外不得不说SS的硬件冗余设计和软件设计水平是真的牛逼
+
+
+*****
+
+####  pandaman7777  
+##### 161#       发表于 2024-10-13 20:40
+
+牛逼，见证历史
+
+—— 来自 OnePlus PHB110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  PuRiPuRi  
+##### 162#       发表于 2024-10-13 20:41
+
+<blockquote>ohi.02 发表于 2024-10-13 20:38
+剩下最后一丢丢燃料，最后一千米高度重新点火，真极限
+
+—— 来自 S1Fun</blockquote>
+那一刻我都以为要直接砸下来了
+
+*****
+
+####  madbird023  
+##### 163#       发表于 2024-10-13 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442336&amp;ptid=2190881" target="_blank">andychen 发表于 2024-10-13 20:33</a>
+
+超重回收成功，不过回收阶段还有些问题
+
+再入的时候屁股有些白眼，落地点火时尾部有碎片，应该是又发生了泄 ...</blockquote>
+夹之前那个摆动也很吓人，我都以为发射塔要完了
+
+*****
+
+####  非洲黑猩猩  
+##### 164#       发表于 2024-10-13 20:41
+
+<blockquote>依然荏苒 发表于 2024-10-13 20:39
+对受控再入 范围在东非到澳大利亚之间</blockquote>
+好的
+
+。。。。。。
+
+*****
+
+####  鲜血秋叶  
+##### 165#       发表于 2024-10-13 20:42
+
+斜入发射塔的时候真的感觉是不是会炸，尤其那时候屁股还在冒火
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+*****
+
+####  laotoutou  
+##### 166#       发表于 2024-10-13 20:43
+
+牛逼啊。长九真的应该立项了。别有需要大东西要打了火箭没有
+
+*****
+
+####  andychen  
+##### 167#       发表于 2024-10-13 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442424&amp;ptid=2190881" target="_blank">madbird023 发表于 2024-10-13 20:41</a>
+
+夹之前那个摆动也很吓人，我都以为发射塔要完了</blockquote>
+那地方感觉像姿控已经不稳定了，靠软件修正补偿的
+
+所以我说他们软件写得是真牛逼，另外运气也不错
+
+*****
+
+####  madbird023  
+##### 168#       发表于 2024-10-13 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442357&amp;ptid=2190881" target="_blank">monikaca 发表于 2024-10-13 20:35</a>
+
+重振美利坚荣光还是得看老马</blockquote>
+然而老马在被美利坚政府迫害
+
+*****
+
+####  遗迹永存  
+##### 169#       发表于 2024-10-13 20:44
+
+中国未来航天重点是月球基地吧，大直径火箭应该是有优势吧。
+
+*****
+
+####  灼眼的川川仔  
+##### 170#       发表于 2024-10-13 20:44
+
+能完整回收就进入空叉最擅长的领域，这下真是海量数据了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无面  
+##### 171#       发表于 2024-10-13 20:44
+
+<blockquote>鲜血秋叶 发表于 2024-10-13 20:42
+斜入发射塔的时候真的感觉是不是会炸，尤其那时候屁股还在冒火
+
+—— 来自 鹅球 v3.1.88.3-alpha ...</blockquote>
+那一下太惊险了，如果每次都是这么极限，感觉不行啊。我以为是到上空垂直下来，没想到是斜着下来。
+
+*****
+
+####  monikaca  
+##### 172#       发表于 2024-10-13 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442451&amp;ptid=2190881" target="_blank">madbird023 发表于 2024-10-13 20:44</a>
+
+然而老马在被美利坚政府迫害</blockquote>
+硬实力在那里，有本事用口水喷死他啊。
+

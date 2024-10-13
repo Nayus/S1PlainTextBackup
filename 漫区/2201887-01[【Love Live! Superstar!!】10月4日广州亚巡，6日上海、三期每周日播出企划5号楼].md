@@ -2018,3 +2018,23 @@ B8C387FE71819CEDC4ACF82DE7A2607D.jpg
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  新HGCG  
+##### 194#       发表于 2024-10-13 17:12
+
+唐可可存在感够高就满意了
+
+*****
+
+####  离心  
+##### 195#       发表于 2024-10-13 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66440840&amp;ptid=2201887" target="_blank">ads147147 发表于 2024-10-13 16:33</a>
+
+你已经和隔壁闪友一样看到一个正常的动画都很惊讶了。
+
+我不惊讶，我一惯抱着怀疑在怀疑的态度，只要不相 ...</blockquote>
+应该是热知识且没有用了，香音是有西班牙血统，这波啊是外国人组的胜利<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

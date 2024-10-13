@@ -11262,3 +11262,11 @@ pv会在下周四出现的<img src="https://static.saraba1st.com/image/smiley/fa
 
 go也是4th才放动画pv的吧
 
+
+*****
+
+####  御幸一也  
+##### 24626#       发表于 2024-10-13 12:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">今天3rd！
+

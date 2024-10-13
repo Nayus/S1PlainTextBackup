@@ -547,3 +547,15 @@ ed舒服不少
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  斑驳的阴影  
+##### 49#       发表于 2024-10-13 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66385581&amp;ptid=2193318" target="_blank">Keiji 发表于 2024-10-6 13:45</a>
+看的有点想钓鱼了是怎么回事感觉没那么轻松</blockquote>
+粉毛的打龟一整晚才是常态<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不过海钓还是比淡水好些的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

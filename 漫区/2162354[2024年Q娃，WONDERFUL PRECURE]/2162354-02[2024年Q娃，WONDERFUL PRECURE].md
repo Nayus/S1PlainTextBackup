@@ -3192,3 +3192,14 @@ bg线也搞完了 现在该好好包主线饺子了吧<img src="https://static.s
 
 [https://x.com/sc_ome/status/1845355986414076069](https://x.com/sc_ome/status/1845355986414076069)
 
+
+*****
+
+####  粉儿alice  
+##### 2517#       发表于 2024-10-13 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66441271&amp;ptid=2162354" target="_blank">6030sylar 发表于 2024-10-13 17:36</a>
+别再压榨老爷子了</blockquote>
+问题是青山大神后继无人啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+怕以后东大妈明目张胆的用ai给我们看n根手指的作画了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -6146,3 +6146,47 @@ ATLUS不一直这样？刷一个小时小怪艰难升一级，一个守门员稳
 
 游综害人啊，不知道现在互联网讨论传播多快，有多少人愿意当复读机，最恼人的还是这帮人点进去全是手游版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Khellendros  
+##### 2058#       发表于 2024-10-13 10:38
+
+小丑凹开局也太强了，直接上来毛三个闪烁豆……
+
+*****
+
+####  抽烟的猴  
+##### 2059#       发表于 2024-10-13 10:40
+
+p3r和破晓都是首周百万，一个过了一年才二百万，一个现在都没后续销量，大概率没到二百万
+
+隔壁看个乐就行
+
+*****
+
+####  汪达  
+##### 2060#       发表于 2024-10-13 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66438568&amp;ptid=2140224" target="_blank">yukinosarai 发表于 2024-10-13 09:34</a>
+
+所以到底好不好玩，有没有大佬评价一下？
+
+好玩的标准就和p5比把，设p5为10分 ...</blockquote>
+画面技术实在复古，而且更加风格化，不如P5清爽，故事也少了日式校园的那种风味，也没有恋爱要素，冲着P5美术、校园、泡妞的应该多考虑考虑
+
+冲着JRPG回合制战斗的我觉得可以无脑入，体验非常好，一方面是职业、行动点、弱点、前后排之类的系统结合得很好，让这个游戏的战斗虽然是回合制，但是有很大的操作空间，上下限差距很大，玩起来反馈很强烈
+
+另一方面是P系列的瞬杀这种高羁绊后期才有的被动技能现在是默认自带了，只要等级超出怪物等级几级，靠地图攻击就能清理杂兵了，所以当感觉到某些杂兵打多了开始厌烦的时候，等级也升得差不多了，直接砍死就行不用进回合制，玩起来就很舒畅
+
+*****
+
+####  kuarwbwe  
+##### 2061#       发表于 2024-10-13 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66438911&amp;ptid=2140224" target="_blank">洛亚替身 发表于 2024-10-13 10:37</a>
+昨天汴京销量，就有复读机说暗喻在线评测人数少，六月销量榜二百开外，百度或者游综查个在线六万就来自信满 ...</blockquote>
+是这样的，我常年混迹隔壁手综，这黑法和那边一模一样。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

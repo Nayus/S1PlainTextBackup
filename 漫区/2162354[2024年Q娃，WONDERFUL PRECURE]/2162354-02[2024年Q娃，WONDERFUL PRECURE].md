@@ -3223,3 +3223,13 @@ bg线也搞完了 现在该好好包主线饺子了吧<img src="https://static.s
 
 海贼王要停播了，深受大友喜爱的柴田会不会因为这个空挡杀回Q娃棚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  codezwei  
+##### 2520#       发表于 2024-10-13 23:10
+
+太欢乐了
+
+—— 来自 HUAWEI FOA-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

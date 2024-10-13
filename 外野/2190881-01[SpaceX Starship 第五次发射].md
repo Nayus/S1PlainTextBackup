@@ -3020,3 +3020,21 @@ Super Heavy运输平台正准备出发前往发射场接B12落地。
 之前那个很有远见一步步搓东西的ISRO，**是个很稳健的的老专家</blockquote>
 月船三号成功以后三哥真的飘，那几个PPT都什么玩意
 
+
+*****
+
+####  iceplatinum  
+##### 349#       发表于 2024-10-13 23:05
+
+牛逼，今年星舰太牛了
+
+*****
+
+####  我是大鲨鱼1453  
+##### 350#       发表于 2024-10-13 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443503&amp;ptid=2190881" target="_blank">moekyo 发表于 2024-10-13 22:44</a>
+
+微博上看到说现在的差距比100年前还大</blockquote>
+这倒没毛病，一百年前在运载火箭方面的差距是0<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

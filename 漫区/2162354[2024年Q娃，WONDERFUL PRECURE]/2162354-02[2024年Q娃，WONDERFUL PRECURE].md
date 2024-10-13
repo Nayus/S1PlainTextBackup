@@ -3151,3 +3151,26 @@ bg解这种大该是厕妹用语的词吧，很难想象正常人能用得出来
 
 bg线也搞完了 现在该好好包主线饺子了吧<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 2514#       发表于 2024-10-13 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66438296&amp;ptid=2162354" target="_blank">jaewoongh_ 发表于 2024-10-13 08:03</a>
+
+本集是青山老爷子在Q娃片场担任作监的第100集，今天表记上的一原又是只有他一个人</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">别再压榨老爷子了
+
+
+*****
+
+####  走向未来  
+##### 2515#       发表于 2024-10-13 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66441024&amp;ptid=2162354" target="_blank">1096beam 发表于 2024-10-13 16:57</a>
+过于羡慕mayu了，有前任有现任自己磕的CP还成了</blockquote>
+某种程度上确实是人生赢家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

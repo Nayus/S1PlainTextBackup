@@ -6783,3 +6783,38 @@ nga贴吧不是早就有那种不到千万销量不配上桌的共识了，连�
 这次的选项是不是不影响五维的获得点数？</blockquote>
 应该有一部分是影响的，序章帮老板娘做菜就有影响
 
+
+*****
+
+####  saverok  
+##### 2118#       发表于 2024-10-13 17:36
+
+战斗爽的确不错
+
+就是剧情太jrpg了 一点拐弯都没有的 选项本质也是** 啥影响都没
+
+有没有测评的说说男主最后加点应该偏哪里 毕竟不能洗点  前期几个队友都是糙汉 还是加了魔了
+
+
+*****
+
+####  kuarwbwe  
+##### 2119#       发表于 2024-10-13 17:42
+
+ 本帖最后由 kuarwbwe 于 2024-10-13 17:43 编辑 
+
+现在jrpg这样挺好的了，我一直不玩crpg就是因为觉得多走向剧情麻烦。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  budong  
+##### 2120#       发表于 2024-10-13 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66441308&amp;ptid=2140224" target="_blank">kuarwbwe 发表于 2024-10-13 17:42</a>
+我好像知道之前你楼说的可能引起争议的剧情会是啥了。之前在隔壁被剧透过。
+
+—— 来自 鹅球 v3.1.91-alpha ...</blockquote>
+是啥来着？
+

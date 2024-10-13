@@ -177,3 +177,39 @@ img_7199.jpg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  0314f9b7d3430c8  
+##### 5484#       发表于 2024-10-13 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66436590&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-10-12 21:15</a>
+
+这谁这么离谱，头像还和我的一样
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">当然是我自己的号了
+
+*****
+
+####  0314f9b7d3430c8  
+##### 5485#       发表于 2024-10-13 14:56
+
+今天全服装金了，目标就只剩下全桶五星和金扭蛋吧唧了
+
+<img src="https://img.saraba1st.com/forum/202410/13/145510izepxyo2nsmssyxo.jpg" referrerpolicy="no-referrer">
+
+<strong>3997291728801905_.pic.jpg</strong> (127.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 14:55 上传
+
+<img src="https://img.saraba1st.com/forum/202410/13/145510k9jjth9tmj1oiwrm.jpg" referrerpolicy="no-referrer">
+
+<strong>3997301728801906_.pic.jpg</strong> (124.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 14:55 上传
+

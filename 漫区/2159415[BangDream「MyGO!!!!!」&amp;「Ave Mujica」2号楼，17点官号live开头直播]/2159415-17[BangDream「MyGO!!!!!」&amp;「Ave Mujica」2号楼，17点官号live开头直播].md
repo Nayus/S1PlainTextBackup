@@ -11486,3 +11486,21 @@ go也是4th才放动画pv的吧</blockquote>
 
 [https://x.com/Kanon_Takao/status/1845353741018595364](https://x.com/Kanon_Takao/status/1845353741018595364)
 
+
+*****
+
+####  紫吹兰  
+##### 24647#         楼主| 发表于 2024-10-13 14:47
+
+<blockquote>NODY 发表于 2024-10-13 14:36
+放国内先行我都能理解，wsd最近被太君车偏袒老中也不是一次两次了，放新加坡先行到底是赚的哪边的钱 ...</blockquote>
+国内没正式引进，估计就是到时候短时间盗播
+
+
+*****
+
+####  收纳袋  
+##### 24648#       发表于 2024-10-13 14:53
+
+为什么是新加坡<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

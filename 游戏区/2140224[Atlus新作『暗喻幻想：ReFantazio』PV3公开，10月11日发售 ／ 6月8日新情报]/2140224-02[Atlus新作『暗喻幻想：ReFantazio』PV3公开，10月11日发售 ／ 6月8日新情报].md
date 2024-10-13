@@ -7079,3 +7079,23 @@ smt5至少大地图探索是a社天花板
 
 有老哥打到力量的精髓吗？这上来9999是什么机制？
 
+
+*****
+
+####  freedom12  
+##### 2147#       发表于 2024-10-13 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442272&amp;ptid=2140224" target="_blank">kuarwbwe 发表于 2024-10-13 20:26</a>
+
+不是。
+
+—— 来自 鹅球 v3.1.91-alpha</blockquote>
+难道后面还有更难绷的情节吗
+
+*****
+
+####  索非亚  
+##### 2148#       发表于 2024-10-13 20:59
+
+DLC皮可以关BGM么，想换套世界树
+

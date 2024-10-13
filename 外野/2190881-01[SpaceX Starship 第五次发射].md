@@ -1416,3 +1416,147 @@ SX的成就不是马老板一个人搞出来的，波音的问题也不是老板
 
 又见证历史了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madbird023  
+##### 189#       发表于 2024-10-13 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442484&amp;ptid=2190881" target="_blank">鲜血秋叶 发表于 2024-10-13 20:48</a>
+
+这次FAA周末加班给马斯克批的许可，还真别说啥迫害</blockquote>
+这次马斯克做妥协了啊，本来要用筷子要等到10月底的
+
+*****
+
+####  chenke  
+##### 190#       发表于 2024-10-13 20:56
+
+最后几秒调整姿势到稳稳夹住，这里面的工程和软件技术，真的牛皮
+
+*****
+
+####  依然荏苒  
+##### 191#       发表于 2024-10-13 20:56
+
+最后的平移是设计，确保三台发动正常才飞向发射台
+
+*****
+
+####  andychen  
+##### 192#       发表于 2024-10-13 20:58
+
+后续就看这回SS翼面根部的铰链能不能撑过再入了
+
+*****
+
+####  momol  
+##### 193#       发表于 2024-10-13 20:59
+
+二级也要用筷子回收吗？
+
+*****
+
+####  声优  
+##### 194#       发表于 2024-10-13 20:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">  牛逼 牛逼 见证历史   这下相信能上火星了 人类真的在走向星辰大海
+
+*****
+
+####  YF31  
+##### 195#       发表于 2024-10-13 21:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">有没有坛友预判一下这个技术能怎么商业化，我不了解航天方面，大概猜是能把载荷发射成本降一个数量级？可以搞大规模近地太空站为地月来回往返做准备？
+
+*****
+
+####  ohi.02  
+##### 196#       发表于 2024-10-13 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442532&amp;ptid=2190881" target="_blank">andychen 发表于 2024-10-13 20:54</a>
+SX的成就不是马老板一个人搞出来的，波音的问题也不是老板一个人搞出来的 ...</blockquote>
+想想波音和NASA有多少被不公平对待的工程师，空叉是个整体，少了马斯克或是少了这帮工程师都不行。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  madbird023  
+##### 197#       发表于 2024-10-13 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442477&amp;ptid=2190881" target="_blank">andychen 发表于 2024-10-13 20:47</a>
+
+你们也别太入戏了，马斯克说的逆天话做的奇葩事也不少，一码归一码
+
+最大的功劳应该归于SX的工程师团队和工 ...</blockquote>
+但他吹的牛逼目前都实现了，另外航天工程这东西真就是最高团队领袖个人意志的具象化体现
+
+*****
+
+####  monikaca  
+##### 198#       发表于 2024-10-13 21:02
+
+美国这群妖魔鬼怪对老马，有点钢铁侠第二部开局的味道了。
+
+*****
+
+####  遗迹永存  
+##### 199#       发表于 2024-10-13 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442591&amp;ptid=2190881" target="_blank">YF31 发表于 2024-10-13 21:00</a>
+
+有没有坛友预判一下这个技术能怎么商业化，我不了解航天方面，大概猜是能把载荷发射成本降一个数量级？可以 ...</blockquote>
+最终目标，这个助推器几个小时就能飞一次，只需要安装上面的载荷和加注燃料就行了。
+
+*****
+
+####  madbird023  
+##### 200#       发表于 2024-10-13 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442484&amp;ptid=2190881" target="_blank">鲜血秋叶 发表于 2024-10-13 20:48</a>
+
+这次FAA周末加班给马斯克批的许可，还真别说啥迫害</blockquote>
+马斯克同意做两手准备FAA才给的发射许可，不过一次给两发挺让人意外
+
+
+*****
+
+####  stevenzero  
+##### 201#       发表于 2024-10-13 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442624&amp;ptid=2190881" target="_blank">madbird023 发表于 2024-10-13 21:03</a>
+马斯克同意做两手准备FAA才给的发射许可，不过一次给两发挺让人意外</blockquote>
+没意义，这次发射一级成功回收，老马这人不可能接受两次发射完全一样，所以许可还是得重新审批。
+
+*****
+
+####  依然荏苒  
+##### 202#       发表于 2024-10-13 21:04
+
+<img src="https://img.saraba1st.com/forum/202410/13/210413fqx9vyowyyvwzi0f.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (9.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 21:04 上传
+
+<img src="https://img.saraba1st.com/forum/202410/13/210424xkyvaca3a3y70noa.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 21:04 上传
+
+*****
+
+####  间宮夏生  
+##### 203#       发表于 2024-10-13 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442591&amp;ptid=2190881" target="_blank">YF31 发表于 2024-10-13 21:00</a>
+有没有坛友预判一下这个技术能怎么商业化，我不了解航天方面，大概猜是能把载荷发射成本降一个数量级？可以 ...</blockquote>
+短期内就是星链的通讯系统，其它什么造大空间站，都没啥特别大的商业价值
+

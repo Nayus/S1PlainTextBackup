@@ -2105,3 +2105,28 @@ B8C387FE71819CEDC4ACF82DE7A2607D.jpg
 
 花田可能是这么想的
 
+
+*****
+
+####  ViyViy  
+##### 203#       发表于 2024-10-13 21:01
+
+这回可能不是你自由的花田想怎么样了；东大妈比较松弛，让代孙给你体验一下什么叫欧内的手<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这季思路可能是VN重点塑造然后让同为三期生的冬逑沾点光，夏美靠着姐妹关系顺带重塑；
+
+希奈子和红蓝单独挑出来讲一集，然后一期生就靠精炼的台词完善/补，如果一期生硬要塞，估计就一个名额，要么千要么可（或者一起写，要世界名画，“渣女香音喜欢后宫，你的青梅和天降搞一起了”吗）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  adw667  
+##### 204#       发表于 2024-10-13 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442611&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-10-13 21:01</a>
+
+这回可能不是你自由的花田想怎么样了；东大妈比较松弛，让代孙给你体验一下什么叫欧内的手
+
+这季思路可能是V ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">如果写可千的话是否也是一种排恋
+

@@ -12239,3 +12239,11 @@ live的以太确实不错，作为收尾氛围很足，比录音室版本舒服
 
 eplus的回放出了！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿萨德飞过去  
+##### 24735#       发表于 2024-10-13 18:53
+
+回味了几遍还是很开心，不得不说又活过来了
+

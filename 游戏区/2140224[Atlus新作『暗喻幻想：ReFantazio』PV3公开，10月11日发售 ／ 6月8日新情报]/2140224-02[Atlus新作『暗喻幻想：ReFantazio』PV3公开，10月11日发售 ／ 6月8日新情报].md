@@ -6926,3 +6926,20 @@ n难度队伍平均35级打过了60级大沙虫，剑士的三豆合体技实在
 
 我用小丑不断叠命中debuff，24级干掉了猫，aoe打不中瞬间减少两个图标，可惜就600经验，感觉无用功，我还以为会有成就呢
 
+
+*****
+
+####  晨汐听雨  
+##### 2131#       发表于 2024-10-13 18:51
+
+凯瑟琳娜在哪哦<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">，第一次见面后没找着
+
+*****
+
+####  莉可厨  
+##### 2132#       发表于 2024-10-13 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66441704&amp;ptid=2140224" target="_blank">晨汐听雨 发表于 2024-10-13 18:51</a>
+凯瑟琳娜在哪哦，第一次见面后没找着</blockquote>
+锁主线剧情的
+

@@ -6529,3 +6529,64 @@ nga贴吧不是早就有那种不到千万销量不配上桌的共识了，连�
 
 第二章解锁的职业，盗贼除了盗窃以外的技能感觉都很凑数……炮兵还可以，合体技能挂弱点打boss好用，小丑神中神，开局凹一下恶作剧直接加三个豆，无敌了。另外打一些会蓄力的boss可以在他蓄力的时候狠狠降命中，miss了能吞掉一大半行动点爽死了
 
+
+*****
+
+####  AeonsTorn  
+##### 2093#       发表于 2024-10-13 15:56
+
+大教堂刚进门那两个锁住的门怎么进啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.89
+
+*****
+
+####  jimclack  
+##### 2094#       发表于 2024-10-13 15:57
+
+剧情没啥看头但是战斗爽。。。怎么感觉这套评价可以套在幻影fe上
+
+*****
+
+####  onemoment  
+##### 2095#       发表于 2024-10-13 16:00
+
+那俩个能特殊实验的女队友有点意思<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，拿支线任务试下强度
+
+*****
+
+####  zzy199696  
+##### 2096#       发表于 2024-10-13 16:01
+
+看楼友评论怎么有种smt5加强版的意思<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+剧情人设靠边站总之先战斗爽
+
+
+*****
+
+####  Khellendros  
+##### 2097#       发表于 2024-10-13 16:03
+
+<blockquote>AeonsTorn 发表于 2024-10-13 15:56
+大教堂刚进门那两个锁住的门怎么进啊
+
+—— 来自 鹅球 v3.1.89</blockquote>
+进不去，那个是第二章的支线地图
+
+*****
+
+####  akiomn  
+##### 2098#       发表于 2024-10-13 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66440548&amp;ptid=2140224" target="_blank">zzy199696 发表于 2024-10-13 16:01</a>
+看楼友评论怎么有种smt5加强版的意思
+剧情人设靠边站总之先战斗爽</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">b站有个阿特拉斯老凯子的uo提过，战斗深度好像没真女5v那样深，不过还是比p5r这种过于简陋的战斗系统要强很多
+
+*****
+
+####  Khellendros  
+##### 2099#       发表于 2024-10-13 16:05
+
+另外coop第一优先级肯定是玛利亚吧，做菜不消耗时间和经验加成两个特性太关键了，不过这作coop数量真的非常非常少……甚至很少有两个人同时找你的，反正看到玛利亚想你了马上过去就是了
+

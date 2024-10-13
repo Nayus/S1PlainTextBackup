@@ -11559,3 +11559,65 @@ go也是4th才放动画pv的吧</blockquote>
 线下活动放片段不需要过审批吧</blockquote>
 办正式的官方名义的线下活动更是需要审批
 
+
+*****
+
+####  rikaren  
+##### 24655#       发表于 2024-10-13 15:57
+
+还剩三分钟
+
+
+*****
+
+####  傘木希美  
+##### 24656#       发表于 2024-10-13 16:00
+
+不是，4点了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  御幸一也  
+##### 24657#       发表于 2024-10-13 16:01
+
+待機<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 24658#       发表于 2024-10-13 16:02
+
+那个只是隐藏了，青木和凛的那个活动里改下
+
+url还能又看到了。
+
+*****
+
+####  御幸一也  
+##### 24659#       发表于 2024-10-13 16:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">怎麼還是沒聲音
+
+*****
+
+####  御景  
+##### 24660#       发表于 2024-10-13 16:04
+
+开场了！
+
+*****
+
+####  御幸一也  
+##### 24661#       发表于 2024-10-13 16:04
+
+來了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 24662#       发表于 2024-10-13 16:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我去，上来就是海睦
+

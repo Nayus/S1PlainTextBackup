@@ -3114,3 +3114,22 @@ bg解这种大该是厕妹用语的词吧，很难想象正常人能用得出来
 
 今朝有酒今朝醉，这集的青涩小情侣真好嗑啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  未熟串烧  
+##### 2510#       发表于 2024-10-13 10:52
+
+虽然我Q娃看得少，不过这集差点看不出青山味，可能是这集不怎么歪头吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  走向未来  
+##### 2511#       发表于 2024-10-13 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66438464&amp;ptid=2162354" target="_blank">himfsz 发表于 2024-10-13 09:05</a>
+我完全明白了，最终战只要嘴炮以前的日本狼不谈恋爱不生小孩所以灭绝了，就大团圆结局了吧，也不用拍什么复 ...</blockquote>
+拒绝少子化是吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

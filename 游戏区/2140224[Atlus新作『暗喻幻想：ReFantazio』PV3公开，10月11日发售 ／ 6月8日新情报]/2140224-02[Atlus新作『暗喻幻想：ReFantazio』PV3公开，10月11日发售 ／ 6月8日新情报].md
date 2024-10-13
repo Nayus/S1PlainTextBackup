@@ -6297,3 +6297,37 @@ p3r和破晓都是首周百万，一个过了一年才二百万，一个现在�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  圣罗.希露温  
+##### 2073#       发表于 2024-10-13 12:10
+
+nga贴吧不是早就有那种不到千万销量不配上桌的共识了，连泥潭都有，去年只狼销量没破千万前，轮只狼时也少不了这个点
+
+不过今年变得特别严重罢了，但反正国内讨论环境也没好过，尤其是jrpg，无非回到十几年前那种路人都能随便踩一脚的环境 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  operatbig  
+##### 2074#       发表于 2024-10-13 12:12
+
+ 本帖最后由 operatbig 于 2024-10-13 12:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66439256&amp;ptid=2140224" target="_blank">weige 发表于 2024-10-13 11:47</a>
+
+评测说的堆料堆在哪里？目前没感受到</blockquote>
+事实是没有，就连路上遇到的宏伟漂亮的地标建筑大部分就是张贴图，少部分有建模，但主角团都只是站在那对话两句就走了，一到地牢又是设计毫无亮点脏兮兮场景。主线流程也是毫无自由度的**，有些看着可行的选项队友都不给你选立马打回，只能按设定好的剧情走。
+
+
+*****
+
+####  operatbig  
+##### 2074#       发表于 2024-10-13 12:12
+
+ 本帖最后由 operatbig 于 2024-10-13 12:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66439256&amp;ptid=2140224" target="_blank">weige 发表于 2024-10-13 11:47</a>
+
+评测说的堆料堆在哪里？目前没感受到</blockquote>
+事实是没有，就连路上遇到的宏伟漂亮的地标建筑大部分就是张贴图，少部分有建模，但主角团都只是站在那对话两句就走了，一到地牢又是设计毫无亮点脏兮兮场景。主线流程也是毫无自由度的**，有些看着可行的选项队友都不给你选立马打回，只能按设定好的剧情走。
+

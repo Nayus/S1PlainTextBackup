@@ -2403,3 +2403,72 @@ BV1ep2rYwEbe
 
 文昌刚扩建完把长五的保障能力翻倍，几年前可有人担心长五打完空间站模块就没用呢
 
+
+*****
+
+####  belichick  
+##### 295#       发表于 2024-10-13 22:07
+
+牛逼牛逼
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  机吉斯卡  
+##### 296#       发表于 2024-10-13 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443161&amp;ptid=2190881" target="_blank">2017.05.04 发表于 2024-10-13 22:02</a>
+
+马一龙后续的饼是用starship拉货部署大质量卫星，以及干回收卫星这种当年只有航天飞机能干的事
+
+考虑到我国 ...</blockquote>
+CZ5现在在做第二个VAB，未来是准备火星回收两发短间内发射
+
+CZ10要需求坑定，但是没人会去投资，这点没办法。
+
+本来国家推进民营希望弄出马老板，结果来的都是官僚习气的……唯一的技术可以的还差点炸了老乡……
+
+
+*****
+
+####  2017.05.04  
+##### 297#       发表于 2024-10-13 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443218&amp;ptid=2190881" target="_blank">机吉斯卡 发表于 2024-10-13 22:09</a>
+
+CZ5现在在做第二个VAB，未来是准备火星回收两发短间内发射
+
+CZ10要需求坑定，但是没人会去投资，这点没办 ...</blockquote>
+太消极了，国内放开商业航天十年都不到，怎么和美帝这样从二战开始军民两用的比
+
+再过五年才是开花结果的时候<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">速败和速胜都要不得
+
+*****
+
+####  andychen  
+##### 298#       发表于 2024-10-13 22:13
+
+我个人觉得鳖版SS的希望很渺茫，现在开始搞按我们的效率没个10年8年拿不下，装备即落后
+
+还是发展我国有技术优势的水平起飞载具比较好，不过按最近两三年的情况看这个方向的进度也不乐观
+
+*****
+
+####  酒瓶止迁  
+##### 299#       发表于 2024-10-13 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443218&amp;ptid=2190881" target="_blank">机吉斯卡 发表于 2024-10-13 22:09</a>
+
+CZ5现在在做第二个VAB，未来是准备火星回收两发短间内发射
+
+CZ10要需求坑定，但是没人会去投资，这点没办 ...</blockquote>
+能干成创新的领导者万中无一啊，单机游戏等了几十年，民营航天刚起步，急也急不来
+
+*****
+
+####  zwxclear  
+##### 300#       发表于 2024-10-13 22:14
+
+想了一下，发射、直播平台、直播信号都是老马的，整个闭环了
+

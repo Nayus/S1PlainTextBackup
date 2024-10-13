@@ -7133,3 +7133,13 @@ ATLUS除了弗林那拿刀没力的弱鸡谁加魔啊
 
 三眼妹好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  baizhi  
+##### 2153#       发表于 2024-10-13 22:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">妈的，设置这么多超流程的怪物，阿特拉斯这不就是勾引玩家去打嘛，结果屁都不掉。。。没谁了
+
+—— 来自 OPPO PGBM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

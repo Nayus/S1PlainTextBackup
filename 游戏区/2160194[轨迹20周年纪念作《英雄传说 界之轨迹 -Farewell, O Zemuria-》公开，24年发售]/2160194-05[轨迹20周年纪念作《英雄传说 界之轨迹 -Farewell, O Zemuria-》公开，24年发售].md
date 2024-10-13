@@ -6509,3 +6509,13 @@ szh真疯魔了这也封<img src="https://static.saraba1st.com/image/smiley/face
 
 staff里一定有人看过别当哥的温泉回
 
+
+*****
+
+####  隔壁老黄  
+##### 6534#       发表于 2024-10-14 01:39
+
+泡温泉裹毛巾就算了，特么还穿内裤<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

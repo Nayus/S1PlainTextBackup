@@ -3173,3 +3173,28 @@ Super Heavy运输平台正准备出发前往发射场接B12落地。
 
 厉害！ 下一个关卡就是轨道推进剂传输。
 
+
+*****
+
+####  谢同学  
+##### 363#       发表于 2024-10-14 01:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443436&amp;ptid=2190881" target="_blank">longmarch5 发表于 2024-10-13 22:36</a>
+国内这么多年相比美国人对于运载火箭的投入就是九牛一毛，能很快赶超才是怪事，做不到的
+
+真要能2033年把长 ...</blockquote>
+好奇请教个问题，为什么tg的导弹和icbm这么强为什么运载火箭会有差距呢？这两个的技术差距大吗？tg好钢用在刀刃上了？
+
+
+*****
+
+####  多多天下  
+##### 364#       发表于 2024-10-14 01:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66444136&amp;ptid=2190881" target="_blank">lactone 发表于 2024-10-14 00:07</a>
+
+话说现在有没有啥需求是航天成本过高所以没人搞，但是成本下降了马上就有人弄的
+
+— from Xiaomi 23117RK66 ...</blockquote>
+LEO太阳能电站啊，从板子到微波传输都没有物理学困难了
+

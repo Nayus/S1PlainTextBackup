@@ -6402,3 +6402,24 @@ nga贴吧不是早就有那种不到千万销量不配上桌的共识了，连�
 
 女人拉了没想到 人设是被夺舍了？
 
+
+*****
+
+####  SuNR1sE364  
+##### 2082#       发表于 2024-10-13 14:27
+
+ 本帖最后由 SuNR1sE364 于 2024-10-13 14:30 编辑 
+
+下到辰祝之都没忍住笑出来了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这也太树1了
+
+连foe巡逻和安全屋都1：1复刻了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  嘴瓢王者  
+##### 2083#       发表于 2024-10-13 14:31
+
+那个歌姬姑娘平时穿衣审美好抽象，一身小红花
+
+—— 来自 OnePlus PHB110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

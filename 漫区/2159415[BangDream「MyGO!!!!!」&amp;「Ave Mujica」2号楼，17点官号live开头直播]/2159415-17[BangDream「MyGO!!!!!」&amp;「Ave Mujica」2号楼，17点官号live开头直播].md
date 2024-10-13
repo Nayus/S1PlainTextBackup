@@ -12435,3 +12435,22 @@ MV！
 
 小剧场睦祥告白了啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 24753#       发表于 2024-10-13 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66441926&amp;ptid=2159415" target="_blank">滑稽Captain 发表于 2024-10-13 19:24</a>
+动画最速先行放送图的名称是Singapore-1，hinarin出席活动的图名称是Singapore-2，但是图1现在没在页面上了 ...</blockquote>
+隐藏了而已，改下url还能看到，把2改成1就行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 24754#       发表于 2024-10-13 19:31
+
+<blockquote>rikaren 发表于 2024-10-13 18:58
+这图还在啊</blockquote>
+上面试过了图还在（
+

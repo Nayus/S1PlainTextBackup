@@ -6974,3 +6974,35 @@ n难度队伍平均35级打过了60级大沙虫，剑士的三豆合体技实在
 
 有没有合题技能的解析，现在陷入了职业搭配焦虑
 
+
+*****
+
+####  superlink  
+##### 2137#       发表于 2024-10-13 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66441904&amp;ptid=2140224" target="_blank">horacio 发表于 2024-10-13 19:20</a>
+是不是装了那个取消模糊的插件，我有些怪只剩下个影子，刚开始只有宝箱怪，我以为是个例，现在还有什么盔甲 ...</blockquote>
+那配置文件里有些得ture改false，应该就是那堆拉伸hud之类的
+
+—— 来自 vivo V2304A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  TiiTiiLL  
+##### 2138#       发表于 2024-10-13 19:30
+
+难蚌，我也全加的魔力，这游戏还没洗点
+
+
+*****
+
+####  horacio  
+##### 2139#       发表于 2024-10-13 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66441943&amp;ptid=2140224" target="_blank">superlink 发表于 2024-10-13 19:28</a>
+
+那配置文件里有些得ture改false，应该就是那堆拉伸hud之类的
+
+—— 来自 vivo V2304A, Android 14上的 S1 ...</blockquote>
+我就关了加速跑的特效，一跑起来我眼睛就疼
+

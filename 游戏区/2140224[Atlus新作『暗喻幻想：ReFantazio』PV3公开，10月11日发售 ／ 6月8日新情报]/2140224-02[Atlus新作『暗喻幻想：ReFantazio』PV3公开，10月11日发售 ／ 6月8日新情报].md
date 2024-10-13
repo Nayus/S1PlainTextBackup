@@ -6762,3 +6762,24 @@ nga贴吧不是早就有那种不到千万销量不配上桌的共识了，连�
 换装可以救一下这几个小唐人，但不多，自己看吧</blockquote>
 太丑了，女骑士放这里面都算好看的了，但还是比早期概念图丑了很多，总感觉这作是不是在迎合什么高级审美
 
+
+*****
+
+####  kuarwbwe  
+##### 2116#       发表于 2024-10-13 17:26
+
+<img src="https://p.sda1.dev/19/77029c6721c652c94c0e7bbb8e22d9af/image.jpg" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  汪达  
+##### 2117#       发表于 2024-10-13 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66440954&amp;ptid=2140224" target="_blank">magicc 发表于 2024-10-13 16:46</a>
+
+这次的选项是不是不影响五维的获得点数？</blockquote>
+应该有一部分是影响的，序章帮老板娘做菜就有影响
+

@@ -5896,3 +5896,23 @@ DEMO的牛头人地牢十里坡到L26,正式版推到支线的废弃墓地发现
 
 开跑步时候的模糊怎么关<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">眼睛要瞎了
 
+
+*****
+
+####  罗克萨斯  
+##### 2035#       发表于 2024-10-13 08:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66438215&amp;ptid=2140224" target="_blank">Edvinno 发表于 2024-10-13 07:06</a>
+COOP升级的那个技能选择以后能重新选吗，不会没办法改了吧</blockquote>
+两个都给的，其实只是展示，并没有让你二选一
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  operatbig  
+##### 2036#       发表于 2024-10-13 08:24
+
+这排名提升也太儿戏了吧……动不动就上几百名。
+

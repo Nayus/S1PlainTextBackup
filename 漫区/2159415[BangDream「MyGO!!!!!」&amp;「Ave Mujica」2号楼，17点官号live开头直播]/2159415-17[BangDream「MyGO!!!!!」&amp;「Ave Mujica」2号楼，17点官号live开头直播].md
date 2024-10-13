@@ -12247,3 +12247,78 @@ eplus的回放出了！<img src="https://static.saraba1st.com/image/smiley/face2
 
 回味了几遍还是很开心，不得不说又活过来了
 
+
+*****
+
+####  rikaren  
+##### 24736#       发表于 2024-10-13 18:58
+
+<img src="https://img.saraba1st.com/forum/202410/13/185838gih1o1cqeh9eto5c.png" referrerpolicy="no-referrer">
+
+<strong>Image_1728817088547.png</strong> (237.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 18:58 上传
+
+这图还在啊
+
+*****
+
+####  御幸一也  
+##### 24737#       发表于 2024-10-13 18:59
+
+[https://www.youtube.com/watch?v=z6k7YIIZ6Hk](https://www.youtube.com/watch?v=z6k7YIIZ6Hk)
+
+MV！
+
+*****
+
+####  rikaren  
+##### 24738#       发表于 2024-10-13 19:00
+
+好好好好好好
+
+
+*****
+
+####  御幸一也  
+##### 24739#       发表于 2024-10-13 19:03
+
+4000粉小畫家
+
+<img src="https://img.saraba1st.com/forum/202410/13/190313bpj798dpl34284r2.jpg" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 1924 - 茶野そめは（@sanosomeha）さん _ Twitter - x.com.jpg</strong> (59.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 19:03 上传
+
+*****
+
+####  skives  
+##### 24740#       发表于 2024-10-13 19:05
+
+这才是你啊
+
+到头来最鬼的一套曲绘当了特典
+
+<img src="https://img.saraba1st.com/forum/202410/13/190537lon1o1innppzm49w.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3744.jpeg</strong> (332.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 19:05 上传
+
+*****
+
+####  adcdqre  
+##### 24741#       发表于 2024-10-13 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66441789&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-10-13 19:03:20</a>
+4000粉小畫家</blockquote>多找找便宜好看的又不是没有
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

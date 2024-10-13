@@ -3038,3 +3038,28 @@ Super Heavy运输平台正准备出发前往发射场接B12落地。
 微博上看到说现在的差距比100年前还大</blockquote>
 这倒没毛病，一百年前在运载火箭方面的差距是0<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ranger_wang  
+##### 351#       发表于 2024-10-13 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443644&amp;ptid=2190881" target="_blank">lactone 发表于 2024-10-13 22:55</a>
+
+只要能咩鳖，谁管你马总爱谁
+
+前两天马总还非法救灾，今天就是人类之光了</blockquote>
+话不能这么说，知乎著名离岸民主党人土星5号到现在还没有发声呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  机吉斯卡  
+##### 352#       发表于 2024-10-13 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443724&amp;ptid=2190881" target="_blank">lactone 发表于 2024-10-13 23:02</a>
+
+之前天兵那个不是说其实还不错？
+
+— from Xiaomi 23117RK66C, Android 14 of S1 Next Goose v3.0.0.81-alp ...</blockquote>
+目前最接近F9的玩意，但差点载入史册，现在在吃龟苓膏
+

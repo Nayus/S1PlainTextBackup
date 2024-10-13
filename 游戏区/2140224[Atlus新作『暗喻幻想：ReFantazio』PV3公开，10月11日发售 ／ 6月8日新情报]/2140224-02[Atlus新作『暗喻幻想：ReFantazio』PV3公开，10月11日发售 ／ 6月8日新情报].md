@@ -7287,3 +7287,20 @@ smt5是没剧情，暗喻反正不太合我的胃口
 
 打完海都这块我的评价是你这个主线剧情还不如没有<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  莉可厨  
+##### 2168#       发表于 2024-10-13 23:34
+
+9月第一个主线过完，只能说这比游戏土的也太王道了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  AeonsTorn  
+##### 2169#       发表于 2024-10-13 23:35
+
+打到第二章BOSS，这游戏的演出也太舞台剧了，比普通日系二次元还要舞台剧好几个度
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.89
+

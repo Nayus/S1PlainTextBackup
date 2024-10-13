@@ -12210,3 +12210,32 @@ water
 
 live的以太确实不错，作为收尾氛围很足，比录音室版本舒服
 
+
+*****
+
+####  6030sylar  
+##### 24733#       发表于 2024-10-13 18:43
+
+<img src="https://img.saraba1st.com/forum/202410/13/184315dqbuuofbzp9dx6sn.png" referrerpolicy="no-referrer">
+
+<strong>P7]L9Q@5R9X{KV03DDP`K93.png</strong> (102.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 18:43 上传
+
+<img src="https://img.saraba1st.com/forum/202410/13/184337b3lfmokdly6nmd2u.png" referrerpolicy="no-referrer">
+
+<strong>[CWDU6D9G`QKVT@}A@08`8I.png</strong> (829.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 18:43 上传
+
+*****
+
+####  御幸一也  
+##### 24734#       发表于 2024-10-13 18:46
+
+eplus的回放出了！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

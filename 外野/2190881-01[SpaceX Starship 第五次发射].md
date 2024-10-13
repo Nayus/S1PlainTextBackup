@@ -611,3 +611,21 @@ SPMT入场，将运输支架和B12一起运输返回厂区
 
 成的概率大一点
 
+
+*****
+
+####  commcody  
+##### 106#         楼主| 发表于 2024-10-13 18:36
+
+WB57观测机已升空。
+
+根据时间表，还有十几分钟将开始燃油加注投票。
+
+<img src="https://img.saraba1st.com/forum/202410/13/183515r8zwpheqwpb6zwjw.png" referrerpolicy="no-referrer">
+
+<strong>IMG_7981.png</strong> (629.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 18:35 上传
+

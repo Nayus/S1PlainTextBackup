@@ -5916,3 +5916,30 @@ COOP升级的那个技能选择以后能重新选吗，不会没办法改了吧<
 
 这排名提升也太儿戏了吧……动不动就上几百名。
 
+
+*****
+
+####  Zireael_2077  
+##### 2037#       发表于 2024-10-13 08:45
+
+FF16含金量最高的一次
+
+<img src="https://img.saraba1st.com/forum/202410/13/084520olwu3tkftmkt2pal.jpg" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2024-10-13_08-45-15.jpg</strong> (189.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 08:45 上传
+
+
+*****
+
+####  土路生優里  
+##### 2038#       发表于 2024-10-13 08:53
+
+废弃矿山还能重新回去吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 
+漏了龙没打，现在想回去不让回去了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

@@ -581,3 +581,15 @@ B12侧面承载点接触筷子着陆导轨
 
 SPMT入场，将运输支架和B12一起运输返回厂区
 
+
+*****
+
+####  鲜血秋叶  
+##### 103#       发表于 2024-10-13 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66438894&amp;ptid=2190881" target="_blank">susan28 发表于 2024-10-13 10:33</a>
+下面是对B12回收全过程的文字简述，希望今晚可以看到这一幕</blockquote>
+第一次发射塔回收，SpaceX还是给了很大的程序安全余量
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

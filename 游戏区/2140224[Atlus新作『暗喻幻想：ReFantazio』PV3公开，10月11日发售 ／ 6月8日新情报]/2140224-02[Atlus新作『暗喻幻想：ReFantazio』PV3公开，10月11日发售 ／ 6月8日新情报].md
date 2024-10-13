@@ -6016,3 +6016,12 @@ nga游综好像也就20个人评吧，分数极端很正常<img src="https://sta
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  akiomn  
+##### 2046#       发表于 2024-10-13 09:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁早无敌了，官宣的还能质疑起销量造假，首发第一天我还能看到个开小号用小黑盒数据算出8000多人玩了80h
+想了下明年的游戏都有福了，gta6都不好说会不会呗批倒批臭
+

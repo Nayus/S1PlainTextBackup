@@ -3233,3 +3233,11 @@ bg线也搞完了 现在该好好包主线饺子了吧<img src="https://static.s
 
 —— 来自 HUAWEI FOA-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Yeaha123  
+##### 2521#       发表于 2024-10-14 00:11
+
+好在没有joker那样的反派，让彩羽在precure的使命和恋爱之间取舍
+

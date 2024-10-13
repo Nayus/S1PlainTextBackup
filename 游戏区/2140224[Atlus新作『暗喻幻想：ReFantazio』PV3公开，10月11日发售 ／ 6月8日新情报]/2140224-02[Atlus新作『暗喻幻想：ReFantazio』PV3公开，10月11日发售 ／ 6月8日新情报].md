@@ -6423,3 +6423,16 @@ nga贴吧不是早就有那种不到千万销量不配上桌的共识了，连�
 
 —— 来自 OnePlus PHB110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  kuarwbwe  
+##### 2084#       发表于 2024-10-13 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66439902&amp;ptid=2140224" target="_blank">zzy199696 发表于 2024-10-13 13:50</a>
+想着来专楼云一下游戏体验结果翻到最后全是场外内容
+所以这游戏到底咋样啊，不指望跟p5比了，剧情正常吗姑 ...</blockquote>
+反正我挺喜欢他家p5那套社群系统和smt5的战斗设计。你要是不讨厌他家这套就可以试试。<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

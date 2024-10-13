@@ -11452,3 +11452,37 @@ go也是4th才放动画pv的吧</blockquote>
 
 哎，摘桃子，哎，意难平
 
+
+*****
+
+####  NODY  
+##### 24645#       发表于 2024-10-13 14:36
+
+放国内先行我都能理解，wsd最近被太君车偏袒老中也不是一次两次了，放新加坡先行到底是赚的哪边的钱
+
+
+*****
+
+####  御幸一也  
+##### 24646#       发表于 2024-10-13 14:41
+
+馬上就3rd了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202410/13/144118blsvfqlw2bpi5llz.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20241013-063951_1845353741018595364_photo-0.jpg</strong> (414.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 14:41 上传
+
+<img src="https://img.saraba1st.com/forum/202410/13/144119abowzxav22xuo17z.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20241013-063951_1845353741018595364_photo-1.jpg</strong> (503.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 14:41 上传
+
+[https://x.com/Kanon_Takao/status/1845353741018595364](https://x.com/Kanon_Takao/status/1845353741018595364)
+

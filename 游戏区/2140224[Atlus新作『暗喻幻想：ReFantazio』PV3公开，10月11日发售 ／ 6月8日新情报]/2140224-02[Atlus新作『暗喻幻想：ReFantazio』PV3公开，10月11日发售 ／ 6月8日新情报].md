@@ -6100,3 +6100,22 @@ ATLUS不一直这样？刷一个小时小怪艰难升一级，一个守门员稳
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  ultraseven  
+##### 2054#       发表于 2024-10-13 10:25
+
+全平台首日一百万又不是啥特别的成绩，按“宣发过度”的理论来说应该是黑这个销量太少，怎么反而是嫌销量太高，一定是造假了
+
+*****
+
+####  kuarwbwe  
+##### 2055#       发表于 2024-10-13 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66438838&amp;ptid=2140224" target="_blank">ultraseven 发表于 2024-10-13 10:25</a>
+全平台首日一百万又不是啥特别的成绩，按“宣发过度”的理论来说应该是黑这个销量太少，怎么反而是嫌销量太 ...</blockquote>
+因为隔壁觉得这游戏不配卖这么好。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

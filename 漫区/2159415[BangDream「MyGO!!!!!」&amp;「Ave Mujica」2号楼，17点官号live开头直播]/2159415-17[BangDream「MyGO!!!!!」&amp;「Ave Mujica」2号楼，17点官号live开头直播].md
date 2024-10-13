@@ -11323,3 +11323,27 @@ go也是4th才放动画pv的吧</blockquote>
 坏消息：先行放映是在新加坡举行的bushiroad expo 2024 ...</blockquote>
 问下消息来源？wsd官号，邦官号，鸡官号我应该都没看到这个。
 
+
+*****
+
+####  cherryjia12  
+##### 24632#       发表于 2024-10-13 13:50
+
+牢日和牢中都沉默了
+
+*****
+
+####  Alicest  
+##### 24633#       发表于 2024-10-13 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66439866&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-10-13 13:43</a>
+问下消息来源？wsd官号，邦官号，鸡官号我应该都没看到这个。搜bushiroad expo也没看到这条消息。 ...</blockquote>
+可能下午河口湖公布吧
+
+*****
+
+####  NODY  
+##### 24634#       发表于 2024-10-13 13:55
+
+是不是下午live后公告的图偷跑了，之前那个翻唱专也是这样偷跑的
+

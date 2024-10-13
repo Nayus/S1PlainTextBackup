@@ -12329,3 +12329,62 @@ BGM无缝切换啊简直
 
 这库存准备不行啊，补充的速度甚至赶不上卖的速度，刚补完库存的周边当天就能马上再卖光
 
+
+*****
+
+####  holoan  
+##### 9890#         楼主| 发表于 2024-10-13 12:35
+
+<img src="https://img.saraba1st.com/forum/202410/13/123451wnvpz6azrajatvjd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (676.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 12:34 上传
+
+[https://x.com/blueta9810/status/1844414991312785917](https://x.com/blueta9810/status/1844414991312785917)
+
+*****
+
+####  holoan  
+##### 9891#         楼主| 发表于 2024-10-13 13:56
+
+一整货架的玩偶刚追加发售才过1天就全部卖光了，不是吧？
+
+<img src="https://img.saraba1st.com/forum/202410/13/135142n4gkkw6cuucccydy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (28.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 13:51 上传
+
+<img src="https://img.saraba1st.com/forum/202410/13/135152bxpa4eg6ubc8c8zz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (44.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 13:51 上传
+
+11号开始追加的
+
+<img src="https://img.saraba1st.com/forum/202410/13/135514zi2o5k7qjiorrndq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (219.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 13:55 上传
+
+以及12号的情况
+
+<img src="https://img.saraba1st.com/forum/202410/13/135256m66z567451xfa54m.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (142.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 13:52 上传
+

@@ -7304,3 +7304,16 @@ smt5是没剧情，暗喻反正不太合我的胃口
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.89
 
+
+*****
+
+####  cowgp01  
+##### 2170#       发表于 2024-10-13 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443970&amp;ptid=2140224" target="_blank">AeonsTorn 发表于 2024-10-13 23:35</a>
+
+打到第二章BOSS，这游戏的演出也太舞台剧了，比普通日系二次元还要舞台剧好几个度
+
+—— 来自 鹅球 v3.1.89 ...</blockquote>
+本来就是想用舞台剧装逼吧，虽然装不好
+

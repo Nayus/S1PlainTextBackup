@@ -3063,3 +3063,47 @@ Super Heavy运输平台正准备出发前往发射场接B12落地。
 — from Xiaomi 23117RK66C, Android 14 of S1 Next Goose v3.0.0.81-alp ...</blockquote>
 目前最接近F9的玩意，但差点载入史册，现在在吃龟苓膏
 
+
+*****
+
+####  phorcys02  
+##### 353#       发表于 2024-10-13 23:36
+
+民主党的水军不出动，连泥潭都这么清净
+
+我居然觉得有点刺挠...
+
+*****
+
+####  madbird023  
+##### 354#       发表于 2024-10-13 23:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443653&amp;ptid=2190881" target="_blank">lactone 发表于 2024-10-13 22:56</a>
+
+话说马总这次成功了，下次 FAA 会不会审批快一些
+
+— from Xiaomi 23117RK66C, Android 14 of S1 Next Goos ...</blockquote>
+这次原则上给了两次发射许可，但是没想到现在能测的这一次都干完了，6飞要等马斯克想到什么新活了吧，不然就真要等二号塔竣工后测SS回收后正式商业使用了
+
+*****
+
+####  ranger_wang  
+##### 355#       发表于 2024-10-13 23:41
+
+<blockquote>机吉斯卡 发表于 2024-10-13 23:28
+目前最接近F9的玩意，但差点载入史册，现在在吃龟苓膏</blockquote>
+有了这么一出，牢康是不是有希望少吃龟苓膏了？
+
+
+*****
+
+####  LeonsCat  
+##### 356#       发表于 2024-10-13 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443703&amp;ptid=2190881" target="_blank">机吉斯卡 发表于 2024-10-13 23:00</a>
+
+这个你放心，未来甚至可能出现中美前后脚登月的情况
+
+现在有个最大的问题是，我们登月以后的长期航天战略 ...</blockquote>
+颠过来倒过去，要么有紧要的军事应用，要么有实际的商业利益，不然航天工程就是个白象，你规划到登陆太阳都随你便的那种。
+

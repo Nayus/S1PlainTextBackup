@@ -11538,3 +11538,24 @@ go也是4th才放动画pv的吧</blockquote>
 国内没正式引进，估计就是到时候短时间盗播</blockquote>
 线下活动放片段不需要过审批吧
 
+
+*****
+
+####  御幸一也  
+##### 24653#       发表于 2024-10-13 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66440296&amp;ptid=2159415" target="_blank">滑稽Captain 发表于 2024-10-13 15:10</a>
+
+现在那个页面里没有这张图了，看来又是草台提前漏了（</blockquote>
+啊這 呃 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  滑稽Captain  
+##### 24654#       发表于 2024-10-13 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66440341&amp;ptid=2159415" target="_blank">NODY 发表于 2024-10-13 15:19</a>
+
+线下活动放片段不需要过审批吧</blockquote>
+办正式的官方名义的线下活动更是需要审批
+

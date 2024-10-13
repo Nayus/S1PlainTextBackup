@@ -3074,3 +3074,28 @@ bg解这种大该是厕妹用语的词吧，很难想象正常人能用得出来
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">小麦的小孩定位越来越明显，看来会保持挂件状态到终盘了，最后那句“约会是很高兴的事情吧，那以后也跟我约会吧”是啥啊？
 
+
+*****
+
+####  千恋万花  
+##### 2506#       发表于 2024-10-13 08:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66438319&amp;ptid=2162354" target="_blank">jaewoongh_ 发表于 2024-10-13 08:13</a>
+
+今天直球得可怕，甚至显得有些生硬，想到今后Q娃的主角团里有一对实际情侣，感觉不太自然啊
+
+小麦的小孩定 ...</blockquote>
+就是把约会当成了一种玩耍吧
+
+*****
+
+####  modedd  
+##### 2507#       发表于 2024-10-13 08:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66438319&amp;ptid=2162354" target="_blank">jaewoongh_ 发表于 2024-10-13 08:13</a>
+
+今天直球得可怕，甚至显得有些生硬，想到今后Q娃的主角团里有一对实际情侣，感觉不太自然啊
+
+小麦的小孩定 ...</blockquote>
+和之前的5以内加减法一样就是单纯的狗狗joke吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

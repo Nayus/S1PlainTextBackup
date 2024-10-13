@@ -12605,3 +12605,19 @@ animax有直播，至少去年是有的
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  NODY  
+##### 24768#       发表于 2024-10-13 23:52
+
+2nd和3rd的小剧场都是动画编剧小川瞳写的，不知道会不会和动画剧情有联系
+
+<img src="https://img.saraba1st.com/forum/202410/13/234941yxtdggup0qssz0q7.png" referrerpolicy="no-referrer">
+
+<strong>f97e1461-a628-41b3-bf79-b8f0b2dd8338.png</strong> (76.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 23:49 上传
+

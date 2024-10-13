@@ -12322,3 +12322,77 @@ MV！
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  PDQ4  
+##### 24742#       发表于 2024-10-13 19:10
+
+也算有新情报了好好好
+
+*****
+
+####  御幸一也  
+##### 24743#       发表于 2024-10-13 19:11
+
+請樓友銳評
+
+<img src="https://img.saraba1st.com/forum/202410/13/191047pmhl8kqxk5oljwxw.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_茶野そめは(@sanosomeha)_20241013-110716_1845421038198456501_photo.jpg</strong> (669.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 19:10 上传
+
+[https://x.com/sanosomeha/status/1845421038198456501](https://x.com/sanosomeha/status/1845421038198456501)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御景| + 1|海铃的脸好幼|
+
+查看全部评分
+
+*****
+
+####  前方暴雨预警  
+##### 24744#       发表于 2024-10-13 19:12
+
+这次脸还挺好看的，人体结构差一点但比air好太多了，跟武士道和解1分钟
+
+*****
+
+####  skives  
+##### 24745#       发表于 2024-10-13 19:12
+
+[https://x.com/sanosomeha/status/ ... fBwUWaJJEgl3mSfUp5g](https://x.com/sanosomeha/status/1845421038198456501?s=61&amp;t=R0KfBwUWaJJEgl3mSfUp5g)
+
+<img src="https://img.saraba1st.com/forum/202410/13/191153nb4zptvvt1rtbzz1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3745.jpeg</strong> (1.04 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 19:11 上传
+
+
+*****
+
+####  芸香科植物激推  
+##### 24746#       发表于 2024-10-13 19:12
+
+我还挺喜欢这个眼睛的画法<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 24747#       发表于 2024-10-13 19:16
+
+还不错吧，可以接受的
+

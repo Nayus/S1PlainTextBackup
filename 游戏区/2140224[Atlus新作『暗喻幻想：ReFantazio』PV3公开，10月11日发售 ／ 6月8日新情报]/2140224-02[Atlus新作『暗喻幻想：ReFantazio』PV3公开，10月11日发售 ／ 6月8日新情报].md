@@ -6943,3 +6943,11 @@ n难度队伍平均35级打过了60级大沙虫，剑士的三豆合体技实在
 凯瑟琳娜在哪哦，第一次见面后没找着</blockquote>
 锁主线剧情的
 
+
+*****
+
+####  莉可厨  
+##### 2133#       发表于 2024-10-13 19:08
+
+不是哥们，这coop才7级你怎么就退场了<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">那我rank8上哪升啊
+

@@ -11298,3 +11298,28 @@ go也是4th才放动画pv的吧</blockquote>
 好消息：12月1号就看到母鸡卡动画了
 坏消息：先行放映是在新加坡举行的bushiroad expo 2024
 
+
+*****
+
+####  skives10  
+##### 24630#       发表于 2024-10-13 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66439819&amp;ptid=2159415" target="_blank">akiomn 发表于 2024-10-13 13:34</a>
+好消息：12月1号就看到母鸡卡动画了
+
+坏消息：先行放映是在新加坡举行的bushiroad expo 2024 ...</blockquote>
+不是哥们 这kv
+我人偶哪去了…
+
+
+*****
+
+####  rikaren  
+##### 24631#       发表于 2024-10-13 13:43
+
+<blockquote>akiomn 发表于 2024-10-13 13:34
+好消息：12月1号就看到母鸡卡动画了
+
+坏消息：先行放映是在新加坡举行的bushiroad expo 2024 ...</blockquote>
+问下消息来源？wsd官号，邦官号，鸡官号我应该都没看到这个。
+

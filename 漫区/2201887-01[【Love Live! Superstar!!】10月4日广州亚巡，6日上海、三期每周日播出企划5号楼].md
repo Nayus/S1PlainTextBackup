@@ -1967,3 +1967,31 @@ B8C387FE71819CEDC4ACF82DE7A2607D.jpg
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  夏亚之徒  
+##### 190#       发表于 2024-10-13 16:48
+
+ 本帖最后由 夏亚之徒 于 2024-10-13 16:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66440905&amp;ptid=2201887" target="_blank">ads147147 发表于 2024-10-13 16:41</a>
+
+毕竟3对8，谁赢其实都挺尴尬，直接用互联网有记忆给你ban了。
+
+说实话这么饭圈的操作，反而让薇恩当年战 ...</blockquote>
+其实主要是这么想，比如现在的剧情细想一下，就像你分析的，哪里细想都是有说不通的地方，完全是强行自圆其说，但是起码没有破坏人物形象而来胡说八道。你想一下，上次VN登台，又是莫名其妙赢了SNP然后嘲讽拉拉大赛是垃圾，又是输给星团之后质疑黑幕输不起，又是为了进去音乐学院低头愿意当大香洗脚婢。回想一下之后，哇哇哇！现在的剧情简直没什么好挑剔
+
+
+*****
+
+####  ads147147  
+##### 191#       发表于 2024-10-13 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66440967&amp;ptid=2201887" target="_blank">夏亚之徒 发表于 2024-10-13 16:48</a>
+其实主要是这么想，比如现在的剧情细想一下，就像你分析的，哪里细想都是有说不通的地方，完全是强行自圆 ...</blockquote>
+按隔壁的话说就是，虽然动画里的互联网有记忆，但是现实世界的没有，毕竟隔了两年了，说不定现在真的有人忘掉星2什么逆天了，反而能接受直接从星1跨到星3。
+
+我现在开始理解为什么今年这时候播星3了。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

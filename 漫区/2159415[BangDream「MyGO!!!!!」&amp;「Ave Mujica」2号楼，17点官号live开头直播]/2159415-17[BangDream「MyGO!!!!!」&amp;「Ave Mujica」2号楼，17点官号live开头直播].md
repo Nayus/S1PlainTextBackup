@@ -11867,3 +11867,29 @@ avemujica是不是不會有新翻唱了<img src="https://static.saraba1st.com/im
 
 暗黑天国
 
+
+*****
+
+####  傘木希美  
+##### 24694#       发表于 2024-10-13 16:46
+
+女鬼又来了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+
+*****
+
+####  rikaren  
+##### 24695#       发表于 2024-10-13 16:53
+
+开奶下一首会是water还是earth
+
+*****
+
+####  akiomn  
+##### 24696#       发表于 2024-10-13 16:54
+
+water
+喵梦多珍惜，之后没得休息了哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

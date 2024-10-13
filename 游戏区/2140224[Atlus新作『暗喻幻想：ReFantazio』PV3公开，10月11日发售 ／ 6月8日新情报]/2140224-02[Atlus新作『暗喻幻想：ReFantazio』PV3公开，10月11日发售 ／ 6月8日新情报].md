@@ -6646,3 +6646,42 @@ nga贴吧不是早就有那种不到千万销量不配上桌的共识了，连�
 暗喻战斗强度很高，但战斗有重开，捡道具自动存档等人性化设计，在hard难度翻车也不会有多大负反馈，这些设计改进真的值得好评。
 最后这游戏可以说是p系列三巨头做了个和p系列没任何关系的传统王道jrpg。用对p系列的眼光看它肯定会有差别，但对我这种jrpg老鸟来说，就好这口。
 
+
+*****
+
+####  magicc  
+##### 2106#       发表于 2024-10-13 16:46
+
+这次的选项是不是不影响五维的获得点数？
+
+*****
+
+####  kuarwbwe  
+##### 2107#       发表于 2024-10-13 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66440954&amp;ptid=2140224" target="_blank">magicc 发表于 2024-10-13 16:46</a>
+这次的选项是不是不影响五维的获得点数？</blockquote>
+是，选项只影响能拿魔古的数量。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  ky7913  
+##### 2108#       发表于 2024-10-13 16:48
+
+<blockquote>magicc 发表于 2024-10-13 16:46
+这次的选项是不是不影响五维的获得点数？</blockquote>
+对，只影响资源获取
+
+
+*****
+
+####  八佾舞于潭  
+##### 2109#       发表于 2024-10-13 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66439910&amp;ptid=2140224" target="_blank">そらたかく 发表于 2024-10-13 13:51</a>
+
+我10个小时后开始剧情基本全跳过了，非常爽！战斗系统可以说是A社目前最爽的，流程体验极佳，建议以后所有 ...</blockquote>
+对比同样全职业横转的 XB3 和火纹 engage 有什么异同？
+

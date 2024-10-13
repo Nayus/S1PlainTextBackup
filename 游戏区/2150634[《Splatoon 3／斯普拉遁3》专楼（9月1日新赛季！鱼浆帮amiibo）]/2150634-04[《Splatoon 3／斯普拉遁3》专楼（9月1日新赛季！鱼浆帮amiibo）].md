@@ -264,3 +264,14 @@ img_7199.jpg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  0314f9b7d3430c8  
+##### 5489#       发表于 2024-10-13 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66440779&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-10-13 16:26</a>
+
+楼友精力真好，我反正持续差不多5小时就开始操作变形了，我看上位势直播顶多5、6小时也要下播了，肉眼可 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实我如果集中注意力认真打的话一个多小时两个小时就会觉得累了，还好打工和开放刷武器熟练度这些比较轻量级不怎么需要集中注意力，不打x赛浑水摸鱼就好，上位势那是摸鱼模式都是我拼尽全力达不到的程度
+

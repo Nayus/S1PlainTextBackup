@@ -2780,3 +2780,116 @@ https://www.bilibili.com/video/BV1Sh411m7qj</blockquote>
 
 过几年就该第二次电动车冲击了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">不如趁现在截好图，看看对面敢不敢发个毒誓
 
+
+*****
+
+####  Суслов  
+##### 328#       发表于 2024-10-13 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443503&amp;ptid=2190881" target="_blank">moekyo 发表于 2024-10-13 22:44</a>
+微博上看到说现在的差距比100年前还大</blockquote>
+不如问问他们esa isro roskosmos还活不活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+
+*****
+
+####  机吉斯卡  
+##### 329#       发表于 2024-10-13 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443483&amp;ptid=2190881" target="_blank">lactone 发表于 2024-10-13 22:41</a>
+
+你们在这里不悲观，知乎都快亡国了
+
+— from Xiaomi 23117RK66C, Android 14 of S1 Next Goose v3.0.0.81-a ...</blockquote>
+你看看这里ID，都是航天老鬼系列的
+
+*****
+
+####  机吉斯卡  
+##### 330#       发表于 2024-10-13 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443477&amp;ptid=2190881" target="_blank">longmarch5 发表于 2024-10-13 22:41</a>
+
+微博上我都看到有人说长10落后不该搞了...有病
+
+三哥也是脑子有屎，我要是ISRO的人，就拿SCE-200为基础去 ...</blockquote>
+一看就是外行
+
+*****
+
+####  八佾舞于潭  
+##### 331#       发表于 2024-10-13 22:52
+
+马的公司太商业和个人化了，怎么会和亡国怪，空叉和马总爱美国吗？
+
+*****
+
+####  AraTurambar  
+##### 332#       发表于 2024-10-13 22:53
+
+讲道理，马斯克很多事情是自己作的，FAA够支持了。
+
+他就这么把火箭冷却水往自然保护区的滩涂里排，我看了都觉得不像话。
+
+做一下相应安排是要了他的命还是怎么的，支持环保组织大力拷打。
+
+*****
+
+####  ranger_wang  
+##### 333#       发表于 2024-10-13 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443477&amp;ptid=2190881" target="_blank">longmarch5 发表于 2024-10-13 22:41</a>
+
+微博上我都看到有人说长10落后不该搞了...有病
+
+三哥也是脑子有屎，我要是ISRO的人，就拿SCE-200为基础去 ...</blockquote>
+嘲笑三哥，成为三哥<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stevenzero  
+##### 334#       发表于 2024-10-13 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443608&amp;ptid=2190881" target="_blank">八佾舞于潭 发表于 2024-10-13 22:52</a>
+马的公司太商业和个人化了，怎么会和亡国怪，空叉和马总爱美国吗？</blockquote>
+你是没听过F9第一次回收成功时空X大厅里震耳欲聋的“USA！”吗
+
+*****
+
+####  鲜血秋叶  
+##### 335#       发表于 2024-10-13 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443493&amp;ptid=2190881" target="_blank">longmarch5 发表于 2024-10-13 22:43</a>
+他们有病，头一天知道中国运载火箭不如美国么</blockquote>
+这几年把中国航天吹的太过，有些人是真的觉得中国航天已经远远领先美国的
+
+火箭只有成功率一个指标
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+*****
+
+####  lactone  
+##### 336#       发表于 2024-10-13 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443608&amp;ptid=2190881" target="_blank">八佾舞于潭 发表于 2024-10-13 22:52</a>
+马的公司太商业和个人化了，怎么会和亡国怪，空叉和马总爱美国吗？</blockquote>
+只要能咩鳖，谁管你马总爱谁
+
+前两天马总还妄言救灾，今天就是人类之光了
+
+— from Xiaomi 23117RK66C, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+
+*****
+
+####  无念  
+##### 337#       发表于 2024-10-13 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443503&amp;ptid=2190881" target="_blank">moekyo 发表于 2024-10-13 22:44</a>
+微博上看到说现在的差距比100年前还大</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">100年前？1961年加加林出地球，1969年登月成功，100年前？搞笑评论
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

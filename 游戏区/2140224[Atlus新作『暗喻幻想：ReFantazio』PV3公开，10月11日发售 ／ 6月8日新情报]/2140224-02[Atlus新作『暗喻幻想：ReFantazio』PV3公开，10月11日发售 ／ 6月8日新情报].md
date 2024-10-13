@@ -7248,3 +7248,14 @@ SMT5V的剧情土还是暗喻的剧情土？</blockquote>
 
 hard 下纯纯战斗爽
 
+
+*****
+
+####  cowgp01  
+##### 2164#       发表于 2024-10-13 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443363&amp;ptid=2140224" target="_blank">そらたかく 发表于 2024-10-13 22:25</a>
+
+SMT5V的剧情土还是暗喻的剧情土？</blockquote>
+真女剧情再土能杀你全家不服就干的剧情在JRPG还是独份的
+

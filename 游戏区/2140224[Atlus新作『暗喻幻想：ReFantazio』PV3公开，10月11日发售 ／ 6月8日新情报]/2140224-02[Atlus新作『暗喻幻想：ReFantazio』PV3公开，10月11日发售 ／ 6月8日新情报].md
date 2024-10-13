@@ -6190,3 +6190,15 @@ p3r和破晓都是首周百万，一个过了一年才二百万，一个现在�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  罗克萨斯  
+##### 2062#       发表于 2024-10-13 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66438911&amp;ptid=2140224" target="_blank">洛亚替身 发表于 2024-10-13 10:37</a>
+昨天汴京销量，就有复读机说暗喻在线评测人数少，六月销量榜二百开外，百度或者游综查个在线六万就来自信满 ...</blockquote>
+香港直邮的盘还在路上，感觉这作实体出货量很大，光是一个百亿补贴链接里就卖了2000+了，不清楚官方发的销量是指出货还是指激活，不过至少盘没到的人想在线也在线不了啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

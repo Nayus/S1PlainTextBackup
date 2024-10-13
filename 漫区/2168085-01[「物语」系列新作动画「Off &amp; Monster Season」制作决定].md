@@ -59,3 +59,28 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  0aleph37  
+##### 966#       发表于 2024-10-13 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66440457&amp;ptid=2168085" target="_blank">傘木希美 发表于 2024-10-13 15:44</a>
+
+最后一集是还没播嘛
+
+—— 来自 鹅球 v3.2.91</blockquote>
+下周最后一集
+
+
+*****
+
+####  傘木希美  
+##### 967#       发表于 2024-10-13 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66440716&amp;ptid=2168085" target="_blank">0aleph37 发表于 2024-10-13 16:18</a>
+下周最后一集</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">又延了啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

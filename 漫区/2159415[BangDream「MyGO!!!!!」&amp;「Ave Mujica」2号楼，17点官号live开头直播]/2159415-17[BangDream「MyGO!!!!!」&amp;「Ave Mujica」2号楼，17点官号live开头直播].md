@@ -11690,3 +11690,92 @@ fire是不是有重编曲？
 
 米澤的鼓棒要冒火了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Milarvoz  
+##### 24672#       发表于 2024-10-13 16:17
+
+爽！😎这才叫音乐！😋👍🏻爽！😎这才叫音乐！😋👍🏻爽！😎这才叫音乐！😋👍
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  akiomn  
+##### 24673#       发表于 2024-10-13 16:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喵梦别似我手机里
+
+*****
+
+####  rikaren  
+##### 24674#       发表于 2024-10-13 16:18
+
+乌托邦，fire，air，什么死亡三连。
+
+*****
+
+####  六道明  
+##### 24675#       发表于 2024-10-13 16:18
+
+这鼓要笑着敲啊
+
+
+*****
+
+####  cherryjia12  
+##### 24676#       发表于 2024-10-13 16:22
+
+梦以<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星空冻结  
+##### 24677#       发表于 2024-10-13 16:22
+
+这鸡的小剧场又在整什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六道明  
+##### 24678#       发表于 2024-10-13 16:22
+
+<blockquote>星空冻结 发表于 2024-10-13 16:22
+这鸡的小剧场又在整什么</blockquote>
+东京奥运会开幕式罢了
+
+*****
+
+####  Toki_Ai  
+##### 24679#       发表于 2024-10-13 16:22
+
+吓人<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  御幸一也  
+##### 24680#       发表于 2024-10-13 16:23
+
+這個女鬼是誰好恐怖<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  傘木希美  
+##### 24681#       发表于 2024-10-13 16:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">太抽象了
+就不能给个屏幕
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  rikaren  
+##### 24682#       发表于 2024-10-13 16:24
+
+有幕间有小剧场还远在河口湖还不租投影设备，wsd的惊世智慧。
+

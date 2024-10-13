@@ -225,3 +225,30 @@ img_7199.jpg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  0314f9b7d3430c8  
+##### 5487#       发表于 2024-10-13 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66440243&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-10-13 15:01</a>
+
+应该有超过一半时间是挂机？我记得像巧这种网瘾少年，继承2代存档时游戏时间也不过9000小时。即便是周末 ...</blockquote>
+有挂机也不多，手游没活动的时候基本上下班了6点开始玩到凌晨两三点，周末中午睡醒开始玩到凌晨，挂机基本上就是刷手游的时候丢那边了，比如现在就在刷手游<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202410/13/161423kgz1momo1ys77j7m.jpg" referrerpolicy="no-referrer">
+
+<strong>WeChatc4aa7bc2abaf8eec8501b3ba73d48dc2.jpg</strong> (35.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 16:14 上传
+
+<img src="https://img.saraba1st.com/forum/202410/13/161455scxxf3w1z3vy8xhe.jpg" referrerpolicy="no-referrer">
+
+<strong>WeChatceeadefd367bb7266840ad63e2da360c.jpg</strong> (38.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 16:14 上传
+

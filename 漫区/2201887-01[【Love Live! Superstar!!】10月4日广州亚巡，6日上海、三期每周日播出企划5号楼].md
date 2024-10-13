@@ -2141,3 +2141,11 @@ B8C387FE71819CEDC4ACF82DE7A2607D.jpg
 说起来没注意三人组的组合名是什么，拉什么的？之前好像薇恩参赛也没说她的solo比赛用名是什么（根本没前例 ...</blockquote>
 这集的标题
 
+
+*****
+
+####  ViyViy  
+##### 206#       发表于 2024-10-14 00:51
+
+回看翻译好的发现个事情，可可会忘了"去年"VNdissLL大会的事情？不可能吧，怎么那段解释没人看的原因的地方感觉啥都不知道的样子，当时可是和芽衣一块儿红了来着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

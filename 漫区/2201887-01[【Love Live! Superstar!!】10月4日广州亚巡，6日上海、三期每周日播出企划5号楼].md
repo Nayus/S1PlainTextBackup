@@ -2130,3 +2130,14 @@ B8C387FE71819CEDC4ACF82DE7A2607D.jpg
 这季思路可能是V ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">如果写可千的话是否也是一种排恋
 
+
+*****
+
+####  csolfans  
+##### 205#       发表于 2024-10-13 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66441060&amp;ptid=2201887" target="_blank">ads147147 发表于 2024-10-13 17:01</a>
+
+说起来没注意三人组的组合名是什么，拉什么的？之前好像薇恩参赛也没说她的solo比赛用名是什么（根本没前例 ...</blockquote>
+这集的标题
+

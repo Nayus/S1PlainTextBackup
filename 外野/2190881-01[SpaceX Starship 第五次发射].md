@@ -2128,3 +2128,218 @@ BYE BYE S30，溅落后启动FTS自毁
 
 y1s1这次互联网清净不少，首页只有航天博主在欢呼 ​​​
 
+
+*****
+
+####  遗迹永存  
+##### 267#       发表于 2024-10-13 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442901&amp;ptid=2190881" target="_blank">nanayashikijp 发表于 2024-10-13 21:35</a>
+
+y1s1这次互联网清净不少，首页只有航天博主在欢呼 ​​​</blockquote>
+因为马斯克支持懂王，所以民主党的殖人不吹了
+
+*****
+
+####  madbird023  
+##### 268#       发表于 2024-10-13 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442871&amp;ptid=2190881" target="_blank">灼眼的川川仔 发表于 2024-10-13 21:32</a>
+
+下次要挑战二级回收吗</blockquote>
+二号塔建好前不会
+
+*****
+
+####  windrarara  
+##### 269#       发表于 2024-10-13 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442901&amp;ptid=2190881" target="_blank">nanayashikijp 发表于 2024-10-13 21:35</a>
+
+y1s1这次互联网清净不少，首页只有航天博主在欢呼 ​​​</blockquote>
+因为老马支持了ykw，ykw没水军，网上全是民主党的水军<img src="https://static.saraba1st.com/image/smiley/face/100.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  茉莉呐噶米谬谬  
+##### 270#       发表于 2024-10-13 21:37
+
+厉害，好久没有这种美国强无敌的感觉了
+
+*****
+
+####  越动天下  
+##### 271#       发表于 2024-10-13 21:37
+
+其实是吹的黑的都少了 你坛帖子都没几个人了 现在才7面 第一次发射还全是人在讨论
+
+*****
+
+####  依然荏苒  
+##### 272#       发表于 2024-10-13 21:39
+
+牛夫人了，基本上只剩下星舰返回这个工程节点值得看了。
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  haohaoh4  
+##### 273#       发表于 2024-10-13 21:39
+
+因为热度低了
+
+*****
+
+####  commcody  
+##### 274#         楼主| 发表于 2024-10-13 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442804&amp;ptid=2190881" target="_blank">璇瑢子R 发表于 2024-10-13 21:25</a></blockquote>
+SuperHeavy是靠这两个撑点支撑，但是现在Starship的起吊是筷子伸出两个插销，插进左右前翼下的孔后举升的。
+
+所以，如果现在要用筷子空中回收，那还得靠筷子把销子插进去，这个控制精度就太离谱了。
+
+<img src="https://img.saraba1st.com/forum/202410/13/213853lddva6a9roro2aaa.jpg" referrerpolicy="no-referrer">
+
+<strong>微信截图_20241013213427.jpg</strong> (263.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 21:38 上传
+
+*****
+
+####  死宅真恶心  
+##### 275#       发表于 2024-10-13 21:39
+
+落水后那个是自爆吗？
+
+*****
+
+####  windrarara  
+##### 276#       发表于 2024-10-13 21:40
+
+感觉已经成了90%了，以后可以一边打新型号星链一边测，改到好为止，不是完全烧钱了……
+
+*****
+
+####  越动天下  
+##### 277#       发表于 2024-10-13 21:40
+
+这星舰进步速度真快 比我第一次发射的时候在你坛说的还快
+
+
+*****
+
+####  濡鸦之羽_  
+##### 278#       发表于 2024-10-13 21:41
+
+不得不说，夹筷子真的太秀了
+
+*****
+
+####  laotoutou  
+##### 279#       发表于 2024-10-13 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442939&amp;ptid=2190881" target="_blank">windrarara 发表于 2024-10-13 21:40</a>
+感觉已经成了90%了，以后可以一边打新型号星链一边测，改到好为止，不是完全烧钱了…… ...</blockquote>
+是的，完全可以打个10颗二代这样子
+
+*****
+
+####  鲜血秋叶  
+##### 280#       发表于 2024-10-13 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442925&amp;ptid=2190881" target="_blank">依然荏苒 发表于 2024-10-13 21:39</a>
+牛夫人了，基本上只剩下星舰返回这个工程节点值得看了。
+
+— from S1 Next Goose v3.2.91 ...</blockquote>
+等正式上载荷了，不过感觉正式上载荷还要再迭代2代
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+
+*****
+
+####  zwxclear  
+##### 281#       发表于 2024-10-13 21:41
+
+落水以后可能是启动FTS了
+
+*****
+
+####  zzzzzzzzzzz  
+##### 282#       发表于 2024-10-13 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442934&amp;ptid=2190881" target="_blank">死宅真恶心 发表于 2024-10-13 21:39</a>
+
+落水后那个是自爆吗？</blockquote>
+应该是FTS引爆了，要沉入印度洋。有浮漂摄像就落区非常准，看下次要不要飞过澳洲落在白天的位置了
+
+*****
+
+####  依然荏苒  
+##### 283#       发表于 2024-10-13 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442954&amp;ptid=2190881" target="_blank">鲜血秋叶 发表于 2024-10-13 21:41</a>
+等正式上载荷了，不过感觉正式上载荷还要再迭代2代
+
+—— 来自 鹅球 v3.1.88.3-alpha ...</blockquote>
+现在的干重太大，运力只有设计的1/4这次测试的也是新减重的新隔热瓦。
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  phorcys02  
+##### 284#       发表于 2024-10-13 21:43
+
+落在筷子上的最后几下姿态微调有点炸裂了
+
+
+*****
+
+####  瓦格雷  
+##### 285#       发表于 2024-10-13 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442717&amp;ptid=2190881" target="_blank">非洲黑猩猩 发表于 2024-10-13 21:15</a>
+
+再问一下二级如果回收，怎么回收啊？</blockquote>
+建议日历往回翻
+[https://www.bilibili.com/video/BV1Sh411m7qj](https://www.bilibili.com/video/BV1Sh411m7qj)
+
+*****
+
+####  madbird023  
+##### 286#       发表于 2024-10-13 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442934&amp;ptid=2190881" target="_blank">死宅真恶心 发表于 2024-10-13 21:39</a>
+
+落水后那个是自爆吗？</blockquote>
+是，FTS启动了
+
+*****
+
+####  commcody  
+##### 287#         楼主| 发表于 2024-10-13 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442934&amp;ptid=2190881" target="_blank">死宅真恶心 发表于 2024-10-13 21:39</a>
+
+落水后那个是自爆吗？</blockquote>
+可能是倒在水面后内部液氧和液态甲烷输送管路破损，残余推进剂混合后造成的爆炸。
+
+*****
+
+####  commcody  
+##### 288#         楼主| 发表于 2024-10-13 21:45
+
+初代与后辈
+
+<img src="https://img.saraba1st.com/forum/202410/13/214538g2zn9pk332kb4y2o.jpg" referrerpolicy="no-referrer">
+
+<strong>微信截图_20241013214250.jpg</strong> (333.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 21:45 上传
+

@@ -6119,3 +6119,30 @@ ATLUS不一直这样？刷一个小时小怪艰难升一级，一个守门员稳
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  星花  
+##### 2056#       发表于 2024-10-13 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66438838&amp;ptid=2140224" target="_blank">ultraseven 发表于 2024-10-13 10:25</a>
+
+全平台首日一百万又不是啥特别的成绩，按“宣发过度”的理论来说应该是黑这个销量太少，怎么反而是嫌销量太 ...</blockquote>
+谁叫他们宣布首日百万<img src="https://static.saraba1st.com/image/smiley/face/41.gif" referrerpolicy="no-referrer">而且很多人不了解市场，认为首日百万首周会有几百万<img src="https://static.saraba1st.com/image/smiley/face/169.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  洛亚替身  
+##### 2057#       发表于 2024-10-13 10:37
+
+昨天汴京销量，就有复读机说暗喻在线评测人数少，六月销量榜二百开外，百度或者游综查个在线六万就来自信满满的说全是出货
+
+首先就对在线人数没个概念，而且也不知道暗喻后面steam在线都76000了，作为全平台，主机可能打头的游戏这steam在线属于首日百万线
+
+还不知道6月份暗喻愿望单和销量榜同时冲进50（愿望单后面还涨了的），虽然后面销量榜掉下来了
+
+这种人以为首日百万可能要几个十万在线，销量榜单是恒定的.....最后辩不过来了句等ATLUS以后报销量，没有一句话能解释他认为首日百万是出货量的观点
+
+游综害人啊，不知道现在互联网讨论传播多快，有多少人愿意当复读机，最恼人的还是这帮人点进去全是手游版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

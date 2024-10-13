@@ -3099,3 +3099,18 @@ bg解这种大该是厕妹用语的词吧，很难想象正常人能用得出来
 小麦的小孩定 ...</blockquote>
 和之前的5以内加减法一样就是单纯的狗狗joke吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  himfsz  
+##### 2508#       发表于 2024-10-13 09:05
+
+我完全明白了，最终战只要嘴炮以前的日本狼不谈恋爱不生小孩所以灭绝了，就大团圆结局了吧，也不用拍什么复仇和解戏了
+
+*****
+
+####  pokemon最爱  
+##### 2509#       发表于 2024-10-13 10:32
+
+今朝有酒今朝醉，这集的青涩小情侣真好嗑啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

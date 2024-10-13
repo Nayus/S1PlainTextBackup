@@ -1918,3 +1918,213 @@ peak heating @ 58km 4.888km/s
 
 2024-10-13 21:25 上传
 
+
+*****
+
+####  璇瑢子R  
+##### 240#       发表于 2024-10-13 21:26
+
+MaxQ@ 42km 2km/s
+
+
+*****
+
+####  濡鸦之羽_  
+##### 241#       发表于 2024-10-13 21:26
+
+过了二阶段 max q了
+
+*****
+
+####  madbird023  
+##### 242#       发表于 2024-10-13 21:27
+
+温度峰值点已经过了，舰体温度开始下降
+
+*****
+
+####  bartholo4  
+##### 243#       发表于 2024-10-13 21:27
+
+解决了一些问题但没完全解决<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23116PN5BC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ohi.02  
+##### 244#       发表于 2024-10-13 21:27
+
+太黑了，开个灯吧<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  璇瑢子R  
+##### 245#       发表于 2024-10-13 21:28
+
+亚音速 @21km
+
+*****
+
+####  madbird023  
+##### 246#       发表于 2024-10-13 21:28
+
+不烧之后马上看不见了，地球开灯啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  haohaoh4  
+##### 247#       发表于 2024-10-13 21:29
+
+没光，看来不着火了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  madbird023  
+##### 248#       发表于 2024-10-13 21:29
+
+S30开始滑翔
+
+
+*****
+
+####  机吉斯卡  
+##### 249#       发表于 2024-10-13 21:31
+
+水面着陆成功
+
+*****
+
+####  璇瑢子R  
+##### 250#       发表于 2024-10-13 21:31
+
+居然有海面视角
+
+*****
+
+####  声优  
+##### 251#       发表于 2024-10-13 21:31
+
+牛逼 ！！！！！！
+
+*****
+
+####  zwxclear  
+##### 252#       发表于 2024-10-13 21:31
+
+落点还有船在直播
+
+*****
+
+####  濡鸦之羽_  
+##### 253#       发表于 2024-10-13 21:31
+
+ 本帖最后由 濡鸦之羽_ 于 2024-10-13 21:32 编辑 
+
+老马，啊，老马啊
+
+what a day
+
+*****
+
+####  攻城匠师黑索  
+##### 254#       发表于 2024-10-13 21:31
+
+这是自毁了吗<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+*****
+
+####  ohi.02  
+##### 255#       发表于 2024-10-13 21:32
+
+竟然有海上现场直播？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  机吉斯卡  
+##### 256#       发表于 2024-10-13 21:32
+
+水面还摄像？落区很准啊
+
+*****
+
+####  madbird023  
+##### 257#       发表于 2024-10-13 21:32
+
+BYE BYE S30，溅落后启动FTS自毁
+
+*****
+
+####  bartholo4  
+##### 258#       发表于 2024-10-13 21:32
+
+太准了 完全是在秀肌肉
+
+—— 来自 Xiaomi 23116PN5BC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  PuRiPuRi  
+##### 259#       发表于 2024-10-13 21:32
+
+这么准吗？居然直接有船在等
+
+*****
+
+####  灼眼的川川仔  
+##### 260#       发表于 2024-10-13 21:32
+
+下次要挑战二级回收吗
+
+*****
+
+####  haohaoh4  
+##### 261#       发表于 2024-10-13 21:33
+
+这次二级落地精度很好啊，有三方视角了
+
+*****
+
+####  鲜血秋叶  
+##### 262#       发表于 2024-10-13 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442858&amp;ptid=2190881" target="_blank">机吉斯卡 发表于 2024-10-13 21:32</a>
+水面还摄像？落区很准啊</blockquote>
+落区肯定准啊，超重都能直接飞进发射塔了，这种厘米级的落点控制力
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+*****
+
+####  commcody  
+##### 263#         楼主| 发表于 2024-10-13 21:33
+
+离谱，竟然还有海面视角<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  机吉斯卡  
+##### 264#       发表于 2024-10-13 21:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">马老板这一年内进步神速
+
+*****
+
+####  七层嘉影  
+##### 265#       发表于 2024-10-13 21:35
+
+太准了，工程上这玩意厉害的要死
+
+*****
+
+####  nanayashikijp  
+##### 266#       发表于 2024-10-13 21:35
+
+y1s1这次互联网清净不少，首页只有航天博主在欢呼 ​​​
+

@@ -3203,3 +3203,15 @@ bg线也搞完了 现在该好好包主线饺子了吧<img src="https://static.s
 问题是青山大神后继无人啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 怕以后东大妈明目张胆的用ai给我们看n根手指的作画了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leleq  
+##### 2518#       发表于 2024-10-13 22:21
+
+虽然是青山回但分镜演出有点想法的
+
+不好意思2人见面少女漫画味直接笑出来<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+咩咩你来真的啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -2472,3 +2472,121 @@ CZ10要需求坑定，但是没人会去投资，这点没办 ...</blockquote>
 
 想了一下，发射、直播平台、直播信号都是老马的，整个闭环了
 
+
+*****
+
+####  DJI  
+##### 301#       发表于 2024-10-13 22:15
+
+优先级来说肯定是先把星座发射能力搞定吧 老马画饼大质量载荷能不能有不知道 但小垃圾超级加倍跑不了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  2017.05.04  
+##### 302#       发表于 2024-10-13 22:15
+
+顺带一提现在国内卡脖子最多的不是设计材料，反而是产能
+
+换句话说就是博士硕士不缺了，缺高级技工
+
+*****
+
+####  andychen  
+##### 303#       发表于 2024-10-13 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443218&amp;ptid=2190881" target="_blank">机吉斯卡 发表于 2024-10-13 22:09</a>
+
+CZ5现在在做第二个VAB，未来是准备火星回收两发短间内发射
+
+CZ10要需求坑定，但是没人会去投资，这点没办 ...</blockquote>
+我国的民营航天各方面都是刚起步的阶段，不止是企业处于萌芽期，还有大量企业和民间无法解决的问题。这是我们过去的航天产业体制决定的
+
+拔苗助长不可取，这行业真要搞起来需要巨大的决心和漫长的时间。时间现在不够久，决心也不怎么看得到，我个人短时间是相对悲观的态度
+
+*****
+
+####  LeonsCat  
+##### 304#       发表于 2024-10-13 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443255&amp;ptid=2190881" target="_blank">andychen 发表于 2024-10-13 22:13</a>
+
+我个人觉得鳖版SS的希望很渺茫，现在开始搞按我们的效率没个10年8年拿不下，装备即落后
+
+还是发展我国有技术 ...</blockquote>
+一个不能利用现有商业机场起降的HTHL载具，不如长二5CBC，属于知识越多越反动的典型。
+
+*****
+
+####  Суслов  
+##### 305#       发表于 2024-10-13 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443218&amp;ptid=2190881" target="_blank">机吉斯卡 发表于 2024-10-13 22:09</a>
+CZ5现在在做第二个VAB，未来是准备火星回收两发短间内发射
+
+CZ10要需求坑定，但是没人会去投资，这点没办 ...</blockquote>
+牢康没进去已经算是大力支持了，实在不行只能八院自己上了，而且现在朱雀进度也不算慢啊<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  LeonsCat  
+##### 306#       发表于 2024-10-13 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443218&amp;ptid=2190881" target="_blank">机吉斯卡 发表于 2024-10-13 22:09</a>
+
+CZ5现在在做第二个VAB，未来是准备火星回收两发短间内发射
+
+CZ10要需求坑定，但是没人会去投资，这点没办 ...</blockquote>
+蓝箭就是国家队马甲啊……你还当真他家是民营了……九州啥的也都差不多。
+
+天兵从头到尾都有严重的JQK味道，啥时候他把那个单组元说清楚了啥时候我觉得他家有可能成事了。
+
+说难听点，你看看贝佐斯搞成啥样，就知道有时候真不是砸钱就OK的。
+
+
+*****
+
+####  andychen  
+##### 307#       发表于 2024-10-13 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443290&amp;ptid=2190881" target="_blank">LeonsCat 发表于 2024-10-13 22:17</a>
+
+一个不能利用现有商业机场起降的HTHL载具，不如长二5CBC，属于知识越多越反动的典型。 ...</blockquote>
+你这想得太长远了，要投入商业运营首先得在经济性和安全性上过关才行
+
+另外我们的高超之前是军方主力推动的，要如何把高敏感性技术转向民用过去也没有先例和现有的程序可以参照
+
+*****
+
+####  机吉斯卡  
+##### 308#       发表于 2024-10-13 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443280&amp;ptid=2190881" target="_blank">andychen 发表于 2024-10-13 22:16</a>
+
+我国的民营航天各方面都是刚起步的阶段，不止是企业处于萌芽期，还有大量企业和民间无法解决的问题。这是 ...</blockquote>
+我赞同
+
+不要速胜和速败，我们要的就是一步步来，先弄出最适合的就行
+
+航天不是手机和汽车，这个产业有特性不能简单对比
+
+就短期需求而言未来CZ10已经覆盖需求，CZ10真的不好说
+
+民营需要更长时间成长
+
+PS，马老板这个独苗也是在世界级别供应链和NASA数据库支持下成长的，不能简单吹
+
+*****
+
+####  Суслов  
+##### 309#       发表于 2024-10-13 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443255&amp;ptid=2190881" target="_blank">andychen 发表于 2024-10-13 22:13</a>
+我个人觉得鳖版SS的希望很渺茫，现在开始搞按我们的效率没个10年8年拿不下，装备即落后
+
+还是发展我国有技术 ...</blockquote>
+装备即落后，当年辽宁舰也是有人这么想，这不是不迈步的理由，况且现在步子早迈出去了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

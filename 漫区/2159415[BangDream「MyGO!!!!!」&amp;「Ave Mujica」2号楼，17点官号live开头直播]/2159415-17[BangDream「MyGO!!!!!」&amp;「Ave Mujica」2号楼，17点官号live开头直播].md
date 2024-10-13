@@ -12559,3 +12559,11 @@ animax有直播，至少去年是有的
 不敢信
 对邦视觉图都戴着面具呢<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 24763#       发表于 2024-10-13 22:26
+
+不是说永久摘面具啊，就是像狗4th那样正式解锁声优mc和安可
+

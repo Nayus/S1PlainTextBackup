@@ -7143,3 +7143,51 @@ ATLUS除了弗林那拿刀没力的弱鸡谁加魔啊
 
 —— 来自 OPPO PGBM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  牙狼GARO  
+##### 2154#       发表于 2024-10-13 22:16
+
+可以自由活动第二天就跑进牛头人迷宫，hard10级进被哥布林打的死去活来，男主角mp可以刷小兵解决，好兄弟和红毛的mp只能吃药了么
+
+—— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  RushMove  
+##### 2155#       发表于 2024-10-13 22:17
+
+武器攻击力会影响什么伤害？近战攻击，物理技能还是所有技能？
+
+*****
+
+####  kuarwbwe  
+##### 2156#       发表于 2024-10-13 22:20
+
+打这游戏坐得我屁股疼。突然就觉得ns好了，往床上一趴就能玩了。希望以后科技进步能能做出每代60显卡水平，售价3000左右的掌机。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+
+*****
+
+####  NEIN  
+##### 2157#       发表于 2024-10-13 22:22
+
+阿隆索都来了，后面是不是还有f1车手啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  そらたかく  
+##### 2158#       发表于 2024-10-13 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442255&amp;ptid=2140224" target="_blank">freedom12 发表于 2024-10-13 20:24</a>
+
+smt5至少大地图探索是a社天花板
+
+暗喻感觉比p5探索还开倒车</blockquote>
+SMT5V的剧情土还是暗喻的剧情土？
+

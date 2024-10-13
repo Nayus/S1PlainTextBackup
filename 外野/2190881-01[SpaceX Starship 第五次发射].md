@@ -1736,3 +1736,185 @@ S30开始再入
 
 2024-10-13 21:12 上传
 
+
+*****
+
+####  璇瑢子R  
+##### 221#       发表于 2024-10-13 21:14
+
+100km出现等离子体
+
+85km气动翼面建立姿态控制
+
+目前高度依然迅速下降中@74km 7.35km/s
+
+*****
+
+####  非洲黑猩猩  
+##### 222#       发表于 2024-10-13 21:15
+
+再问一下二级如果回收，怎么回收啊？
+
+*****
+
+####  依然荏苒  
+##### 223#       发表于 2024-10-13 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442717&amp;ptid=2190881" target="_blank">非洲黑猩猩 发表于 2024-10-13 21:15</a>
+
+再问一下二级如果回收，怎么回收啊？</blockquote>
+二级原型设计是有着陆腿，不过还没定型不知道以后什么样。目前测试都是软着陆到海上
+
+*****
+
+####  laotoutou  
+##### 224#       发表于 2024-10-13 21:16
+
+猎鹰九我其实一直觉得，批量上去搞成大运力一次性的单价也不见得贵，搞不好还更便宜。
+
+星舰这么一大坨回收还真有意义
+
+*****
+
+####  stevenzero  
+##### 225#       发表于 2024-10-13 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442717&amp;ptid=2190881" target="_blank">非洲黑猩猩 发表于 2024-10-13 21:15</a>
+再问一下二级如果回收，怎么回收啊？</blockquote>
+星舰二级已经单独测试过发射回收了，可以参考
+
+*****
+
+####  璇瑢子R  
+##### 226#       发表于 2024-10-13 21:17
+
+69km进入黑障，高度保持不变速度下降@6.5km/s
+
+*****
+
+####  commcody  
+##### 227#         楼主| 发表于 2024-10-13 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442717&amp;ptid=2190881" target="_blank">非洲黑猩猩 发表于 2024-10-13 21:15</a>
+
+再问一下二级如果回收，怎么回收啊？</blockquote>
+还是飞回筷子。需要在多次定点精确溅落成功后才会尝试。
+
+但是现在的Starship设计是靠筷子上的两个销子插入舰体来完成悬吊，目前还不清楚这种设计在回收时是怎样捕获。
+
+*****
+
+####  madbird023  
+##### 228#       发表于 2024-10-13 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442717&amp;ptid=2190881" target="_blank">非洲黑猩猩 发表于 2024-10-13 21:15</a>
+
+再问一下二级如果回收，怎么回收啊？</blockquote>
+陆地着陆，和猎鹰9一样
+
+*****
+
+####  madbird023  
+##### 229#       发表于 2024-10-13 21:19
+
+离子层烧烤直播真是百看不厌
+
+
+*****
+
+####  遗迹永存  
+##### 230#       发表于 2024-10-13 21:21
+
+因为星舰够大，所以能直播穿越黑障区，等离子的画面是真的漂亮，更别说还能看烧烤机翅膀
+
+*****
+
+####  璇瑢子R  
+##### 231#       发表于 2024-10-13 21:22
+
+peak heating @ 58km 4.888km/s
+
+*****
+
+####  奶香花卷  
+##### 232#       发表于 2024-10-13 21:22
+
+马老板是不是有超能力叫把吹过得比现实化……
+
+*****
+
+####  攻城匠师黑索  
+##### 233#       发表于 2024-10-13 21:22
+
+这次星舰放出来的机位好多
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+*****
+
+####  longmarch5  
+##### 234#       发表于 2024-10-13 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442724&amp;ptid=2190881" target="_blank">laotoutou 发表于 2024-10-13 21:16</a>
+
+猎鹰九我其实一直觉得，批量上去搞成大运力一次性的单价也不见得贵，搞不好还更便宜。
+
+星舰这么一大坨回收 ...</blockquote>
+欧洲人阿5就想着一次发射拼车打几个来降低成本，但是并不好使
+
+客户A的卫星现在已经出厂了他想尽快上天，客户B的卫星还在造，半年后才能打，你能让他们接受拼车么，不能
+
+*****
+
+####  机吉斯卡  
+##### 235#       发表于 2024-10-13 21:23
+
+有鸡翅膀烧穿了
+
+
+*****
+
+####  YoumuChan  
+##### 236#       发表于 2024-10-13 21:24
+
+又开始烧穿了
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.1.90
+
+*****
+
+####  ohi.02  
+##### 237#       发表于 2024-10-13 21:25
+
+翼片又烧起来了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  依然荏苒  
+##### 238#       发表于 2024-10-13 21:25
+
+前翼果然还是要重新设计的v2才行
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  璇瑢子R  
+##### 239#       发表于 2024-10-13 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442747&amp;ptid=2190881" target="_blank">commcody 发表于 2024-10-13 21:18</a>
+
+还是飞回筷子。需要在多次定点精确溅落成功后才会尝试。
+
+但是现在的Starship设计是靠筷子上的两个销子插 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202410/13/212527dfn6ggzbbfyrnn2n.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2024-10-13 092504.png</strong> (1.43 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 21:25 上传
+

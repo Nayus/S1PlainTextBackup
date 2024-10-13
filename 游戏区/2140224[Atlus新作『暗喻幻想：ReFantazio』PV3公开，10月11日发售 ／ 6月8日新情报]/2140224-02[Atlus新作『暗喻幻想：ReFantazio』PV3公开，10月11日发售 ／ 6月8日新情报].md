@@ -7006,3 +7006,41 @@ n难度队伍平均35级打过了60级大沙虫，剑士的三豆合体技实在
 —— 来自 vivo V2304A, Android 14上的 S1 ...</blockquote>
 我就关了加速跑的特效，一跑起来我眼睛就疼
 
+
+*****
+
+####  freedom12  
+##### 2140#       发表于 2024-10-13 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66440548&amp;ptid=2140224" target="_blank">zzy199696 发表于 2024-10-13 16:01</a>
+
+看楼友评论怎么有种smt5加强版的意思
+
+剧情人设靠边站总之先战斗爽</blockquote>
+smt5至少大地图探索是a社天花板
+
+暗喻感觉比p5探索还开倒车
+
+*****
+
+####  freedom12  
+##### 2141#       发表于 2024-10-13 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66441318&amp;ptid=2140224" target="_blank">kuarwbwe 发表于 2024-10-13 17:44</a>
+
+看到时候会不会起争议吧，我就不在这楼说了。
+
+—— 来自 鹅球 v3.1.91-alpha ...</blockquote>
+是歌姬姐姐那段吗
+
+*****
+
+####  kuarwbwe  
+##### 2142#       发表于 2024-10-13 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442266&amp;ptid=2140224" target="_blank">freedom12 发表于 2024-10-13 20:26</a>
+是歌姬姐姐那段吗</blockquote>
+不是。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

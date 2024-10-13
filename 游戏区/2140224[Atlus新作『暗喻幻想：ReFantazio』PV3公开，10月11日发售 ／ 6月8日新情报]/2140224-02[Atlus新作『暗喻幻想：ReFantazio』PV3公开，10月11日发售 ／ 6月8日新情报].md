@@ -5993,3 +5993,26 @@ nga游综好像也就20个人评吧，分数极端很正常<img src="https://sta
 
 好玩的标准就和p5比把，设p5为10分
 
+
+*****
+
+####  抽烟的猴  
+##### 2044#       发表于 2024-10-13 09:44
+
+<blockquote>yukinosarai 发表于 2024-10-13 09:34
+所以到底好不好玩，有没有大佬评价一下？
+
+好玩的标准就和p5比把，设p5为10分 ...</blockquote>
+玩到目前感觉p5风花雪月，本作engage
+
+*****
+
+####  kuarwbwe  
+##### 2045#       发表于 2024-10-13 09:46
+
+ 本帖最后由 kuarwbwe 于 2024-10-13 09:47 编辑 
+
+这游戏因为过度宣发和被质疑销量造假，在隔壁游综主版已经臭了，现在他的待遇就是米哈游同款待遇。我已经看到，到时候记得按100万分交税这种隔壁手综质疑米哈游流水kol数据的经典拷打话术了。<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

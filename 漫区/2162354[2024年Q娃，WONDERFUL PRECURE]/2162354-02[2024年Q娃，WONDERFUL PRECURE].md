@@ -3057,3 +3057,20 @@ bg解这种大该是厕妹用语的词吧，很难想象正常人能用得出来
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">本集是青山老爷子在Q娃片场担任作监的第100集，今天表记上的一原又是只有他一个人
 
+
+*****
+
+####  犬飼いろは  
+##### 2504#       发表于 2024-10-13 08:08
+
+第 37 集的 TVer 源（含日字）：magnet:?xt=urn:btih:bcf1f941f4e2d872efcb38a628f1b7abc0537b17
+
+*****
+
+####  jaewoongh_  
+##### 2505#       发表于 2024-10-13 08:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">今天直球得可怕，甚至显得有些生硬，想到今后Q娃的主角团里有一对实际情侣，感觉不太自然啊
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">小麦的小孩定位越来越明显，看来会保持挂件状态到终盘了，最后那句“约会是很高兴的事情吧，那以后也跟我约会吧”是啥啊？
+

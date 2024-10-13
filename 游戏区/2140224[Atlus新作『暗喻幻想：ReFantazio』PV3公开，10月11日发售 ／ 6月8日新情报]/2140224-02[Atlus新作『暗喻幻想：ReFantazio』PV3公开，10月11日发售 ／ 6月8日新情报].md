@@ -6202,3 +6202,20 @@ p3r和破晓都是首周百万，一个过了一年才二百万，一个现在�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  拖鞋脚后跟  
+##### 2063#       发表于 2024-10-13 11:16
+
+steam版用手柄玩，经常莫名切换显示键鼠键位，而且一切换就回不来了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  horacio  
+##### 2064#       发表于 2024-10-13 11:20
+
+我在小鬼巢穴刷了99个古旧硬币出关了，一看才24级，然后我看了一眼旅行者的声音，都是27.28，还是比不过大刷子<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+幸运道具是不是叠加的，我换成四个小贩肉眼可见的道具掉率高了
+

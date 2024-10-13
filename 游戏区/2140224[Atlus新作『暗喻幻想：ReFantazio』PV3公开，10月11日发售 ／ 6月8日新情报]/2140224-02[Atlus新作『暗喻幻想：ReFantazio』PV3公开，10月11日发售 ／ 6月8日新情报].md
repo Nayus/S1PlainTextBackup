@@ -7317,3 +7317,34 @@ smt5是没剧情，暗喻反正不太合我的胃口
 —— 来自 鹅球 v3.1.89 ...</blockquote>
 本来就是想用舞台剧装逼吧，虽然装不好
 
+
+*****
+
+####  Piano-Forest  
+##### 2171#         楼主| 发表于 2024-10-14 00:03
+
+[https://x.com/nistick023/status/1845357067026170151](https://x.com/nistick023/status/1845357067026170151)
+
+『メタファー：リファンタジオ』 発売も100万本もまとめておめでとうございます！
+
+わたしもアーキタイプとかデザイン協力で参加してます、スタッフみんなみんなおつかれさま！！
+
+ユーザーのみなさま、いっぱいお待たせしました！！！いっぱいたのしんでね！！！！！
+<img src="https://p.sda1.dev/19/a274ea9212a767b9fd81bfd6e925f81e/20241013_235329.jpg" referrerpolicy="no-referrer">
+
+（懐かしの世界樹Xコラボの構え）
+<img src="https://p.sda1.dev/19/1d55338e65cee3ceb2c16f85f397e6aa/20241013_235335.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/19/0c3a9ccfce92cf3a577c40808def8949/IMG_20241014_000159.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/7b400cc9bfc404fcb2237f7147db591e/033 _1_.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  蛇头  
+##### 2172#       发表于 2024-10-14 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66437966&amp;ptid=2140224" target="_blank">saverok 发表于 2024-10-13 01:53</a>
+
+打完教堂就跳了</blockquote>
+打完也没跳，而且我是【迅捷攻击手】和【同志会合】都没跳<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

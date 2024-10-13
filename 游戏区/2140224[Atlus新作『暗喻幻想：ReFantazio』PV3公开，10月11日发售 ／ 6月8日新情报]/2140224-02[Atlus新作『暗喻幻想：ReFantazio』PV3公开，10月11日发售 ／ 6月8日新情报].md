@@ -7472,3 +7472,11 @@ https://x.com/nistick023/status/1845357067026170151
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Lokad  
+##### 2184#       发表于 2024-10-14 03:06
+
+在牛头人那猛刷哥布林中，战斗体验比P5R流畅多了，P5R那战斗系统爽不了一点。
+

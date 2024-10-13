@@ -213,3 +213,15 @@ img_7199.jpg
 
 2024-10-13 14:55 上传
 
+
+*****
+
+####  罗克萨斯  
+##### 5486#       发表于 2024-10-13 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66440204&amp;ptid=2150634" target="_blank">0314f9b7d3430c8 发表于 2024-10-13 14:54</a>
+当然是我自己的号了</blockquote>
+应该有超过一半时间是挂机？我记得像巧这种网瘾少年，继承2代存档时游戏时间也不过9000小时。即便是周末，打10小时差不多是极限了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

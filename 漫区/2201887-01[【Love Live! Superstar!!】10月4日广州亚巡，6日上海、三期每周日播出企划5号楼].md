@@ -1953,3 +1953,17 @@ B8C387FE71819CEDC4ACF82DE7A2607D.jpg
 
 用视听人数不够排除淘汰三人组避免代代木fes 3V8的情况，算是上策<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 189#       发表于 2024-10-13 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66440846&amp;ptid=2201887" target="_blank">starring 发表于 2024-10-13 16:34</a>
+这集意外还行，不过又加了很多一眼补漏的新设定，VN小时候疑似听过香音的歌，小时候在JP待过，冬比夏更爱钱 ...</blockquote>
+毕竟3对8，谁赢其实都挺尴尬，直接用互联网有记忆给你ban了。
+
+说实话这么饭圈的操作，反而让薇恩当年战胜snp显得莫名其妙，是snp累计3年的粉丝都是蠢货还是薇恩现在退步了。。。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

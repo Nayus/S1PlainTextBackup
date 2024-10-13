@@ -11852,3 +11852,18 @@ fire是不是有重编曲？
 
 刚刚是不是看到了又有人拿祥睦娃娃应援？
 
+
+*****
+
+####  御幸一也  
+##### 24692#       发表于 2024-10-13 16:37
+
+avemujica是不是不會有新翻唱了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 24693#       发表于 2024-10-13 16:38
+
+暗黑天国
+

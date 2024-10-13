@@ -3273,3 +3273,14 @@ B12在返回时可以看到部分边条保护罩脱落了，在回收完成后�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  madbird023  
+##### 372#       发表于 2024-10-14 03:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66444823&amp;ptid=2190881" target="_blank">你来搞笑 发表于 2024-10-14 02:34</a>
+
+美国航天遥遥领先这个事情已经不需要空x来证明了，居然很多人拿这事来觉得我们不行，我倒是觉得有一种变相 ...</blockquote>
+单就火箭而言，只是空叉厉害而不是现在的美国，泛航天技术那美国确实非常厉害
+

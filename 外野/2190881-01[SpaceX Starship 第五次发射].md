@@ -1253,3 +1253,166 @@ SS这个液氧泄露问题一直都在，不知道是发动机还是箭内管路
 然而老马在被美利坚政府迫害</blockquote>
 硬实力在那里，有本事用口水喷死他啊。
 
+
+*****
+
+####  novice  
+##### 173#       发表于 2024-10-13 20:46
+
+这精确控制牛啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  机吉斯卡  
+##### 174#       发表于 2024-10-13 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442452&amp;ptid=2190881" target="_blank">遗迹永存 发表于 2024-10-13 20:44</a>
+
+中国未来航天重点是月球基地吧，大直径火箭应该是有优势吧。</blockquote>
+月球基地是2040+，目前没计划
+
+*****
+
+####  间宮夏生  
+##### 175#       发表于 2024-10-13 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442449&amp;ptid=2190881" target="_blank">andychen 发表于 2024-10-13 20:44</a>
+那地方感觉像姿控已经不稳定了，靠软件修正补偿的
+
+所以我说他们软件写得是真牛逼，另外运气也不错 ...</blockquote>
+视角问题，侧面看稳如老狗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  andychen  
+##### 176#       发表于 2024-10-13 20:47
+
+你们也别太入戏了，马斯克说的逆天话做的奇葩事也不少，一码归一码<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+最大的功劳应该归于SX的工程师团队和工厂的制造工人们
+
+*****
+
+####  机吉斯卡  
+##### 177#       发表于 2024-10-13 20:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">MD关弹幕才是正确的
+
+*****
+
+####  madbird023  
+##### 178#       发表于 2024-10-13 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442449&amp;ptid=2190881" target="_blank">andychen 发表于 2024-10-13 20:44</a>
+
+那地方感觉像姿控已经不稳定了，靠软件修正补偿的
+
+所以我说他们软件写得是真牛逼，另外运气也不错 ...</blockquote>
+所以还有很大改进的余地，另外尾部最后烧的有点惨，可能有不小损坏
+
+*****
+
+####  鲜血秋叶  
+##### 179#       发表于 2024-10-13 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442451&amp;ptid=2190881" target="_blank">madbird023 发表于 2024-10-13 20:44</a>
+然而老马在被美利坚政府迫害</blockquote>
+这次FAA周末加班给马斯克批的许可，还真别说啥迫害
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+*****
+
+####  madbird023  
+##### 180#       发表于 2024-10-13 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442462&amp;ptid=2190881" target="_blank">monikaca 发表于 2024-10-13 20:45</a>
+
+硬实力在那里，有本事用口水喷死他啊。</blockquote>
+什么叫政---治迫害啊，亿万富翁又算老几啊
+
+*****
+
+####  laotoutou  
+##### 181#       发表于 2024-10-13 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442453&amp;ptid=2190881" target="_blank">灼眼的川川仔 发表于 2024-10-13 20:44</a>
+能完整回收就进入空叉最擅长的领域，这下真是海量数据了</blockquote>
+星链能提供很多数据了。但是火箭整个的数据量几乎是无穷的。
+没星链他还做不到这么有的放矢的改进
+
+
+*****
+
+####  灼眼的川川仔  
+##### 182#       发表于 2024-10-13 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442449&amp;ptid=2190881" target="_blank">andychen 发表于 2024-10-13 20:44</a>
+那地方感觉像姿控已经不稳定了，靠软件修正补偿的
+
+所以我说他们软件写得是真牛逼，另外运气也不错 ...</blockquote>
+去看nsf的直播录像，那下其实差的很远，稳的不行，最后使劲歪的那一下更像是消减水平速度
+
+*****
+
+####  ohi.02  
+##### 183#       发表于 2024-10-13 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442477&amp;ptid=2190881" target="_blank">andychen 发表于 2024-10-13 20:47</a>
+你们也别太入戏了，马斯克说的逆天话做的奇葩事也不少，一码归一码
+
+最大的功劳应该归于SX的工程师团队和工 ...</blockquote>
+换成波音的老板你觉得还有现在这样的成就吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  longmarch5  
+##### 184#       发表于 2024-10-13 20:53
+
+民主党肯定讨厌他，问题是现在美国航天就靠他空叉了，所以马院士的统战价值也很高
+
+*****
+
+####  windrarara  
+##### 185#       发表于 2024-10-13 20:54
+
+坐等哈哈哈上台，然后给马发十二道金牌搞莫须有<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  andychen  
+##### 186#       发表于 2024-10-13 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442525&amp;ptid=2190881" target="_blank">ohi.02 发表于 2024-10-13 20:53</a>
+
+换成波音的老板你觉得还有现在这样的成就吗？
+
+—— 来自 S1Fun</blockquote>
+SX的成就不是马老板一个人搞出来的，波音的问题也不是老板一个人搞出来的
+
+*****
+
+####  2017.05.04  
+##### 187#       发表于 2024-10-13 20:54
+
+<img src="https://img.saraba1st.com/forum/202410/13/205440rhrfrfeym40eydh9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (32.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 20:54 上传
+
+卧槽我说怎么这次没有媒体宣传
+
+*****
+
+####  gkira  
+##### 188#       发表于 2024-10-13 20:55
+
+又见证历史了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+

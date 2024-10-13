@@ -7348,3 +7348,15 @@ smt5是没剧情，暗喻反正不太合我的胃口
 打完教堂就跳了</blockquote>
 打完也没跳，而且我是【迅捷攻击手】和【同志会合】都没跳<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Khellendros  
+##### 2173#       发表于 2024-10-14 00:24
+
+<blockquote>Piano-Forest 发表于 2024-10-14 00:03
+https://x.com/nistick023/status/1845357067026170151
+
+『メタファー：リファンタジオ』 発売も100万本もま ...</blockquote>
+不懂设定为啥改了，副岛是觉得现在这个双开门冰箱更好看吗
+

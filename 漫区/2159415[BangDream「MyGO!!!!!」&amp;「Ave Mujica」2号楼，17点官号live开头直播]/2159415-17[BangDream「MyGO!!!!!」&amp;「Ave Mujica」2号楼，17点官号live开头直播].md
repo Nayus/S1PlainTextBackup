@@ -12629,3 +12629,23 @@ animax有直播，至少去年是有的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">听说小剧场有一幕睦初华和祥卖了个大的，等个翻译
 
+
+*****
+
+####  PDQ4  
+##### 24770#       发表于 2024-10-14 00:14
+
+会不会和角色自身经历完全一致不一定，但应该是有对照
+
+个人还是觉得幕间三信息量最大
+
+睦说过了，喵梦的野望就和她梦里登上舞台主演，座无虚席对得上，初华是假面和隐藏真实的自己
+
+祥子梦里则是有追忆美好过去，提到稚嫩的弹钢琴时光都还存在的时候，基本上可以锁定美好童年，但是被外力粉碎
+
+2nd也说不想被忘记，有种哪里的大手要抹去她的感觉，对应她遭遇什么性格爆变
+
+也就海铃有点摸不透，就发表重要讲话我们大家一起努力终于找到了光（虽然是梦里），然后有有个不能打开的门<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+结月说的12月看到真实的我们更有意思一点，4th大的要来了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+

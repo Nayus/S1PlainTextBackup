@@ -7259,3 +7259,31 @@ hard 下纯纯战斗爽
 SMT5V的剧情土还是暗喻的剧情土？</blockquote>
 真女剧情再土能杀你全家不服就干的剧情在JRPG还是独份的
 
+
+*****
+
+####  focus  
+##### 2165#       发表于 2024-10-13 22:58
+
+刷牛头人真的上瘾啊，一下午刷到80级啦
+
+【暗喻幻想 中后期高效刷级 2小时70级】 [https://www.bilibili.com/video/B ... fc435dfcf8547c94220](https://www.bilibili.com/video/BV1kT2rYGEyu/?share_source=copy_web&amp;vd_source=cfec1ae03c42cfc435dfcf8547c94220)
+
+
+*****
+
+####  freedom12  
+##### 2166#       发表于 2024-10-13 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443363&amp;ptid=2140224" target="_blank">そらたかく 发表于 2024-10-13 22:25</a>
+
+SMT5V的剧情土还是暗喻的剧情土？</blockquote>
+smt5是没剧情，暗喻反正不太合我的胃口
+
+*****
+
+####  卡拉德利姆  
+##### 2167#       发表于 2024-10-13 23:06
+
+打完海都这块我的评价是你这个主线剧情还不如没有<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
+

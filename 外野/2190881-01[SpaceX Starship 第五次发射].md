@@ -2893,3 +2893,130 @@ https://www.bilibili.com/video/BV1Sh411m7qj</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  lactone  
+##### 338#       发表于 2024-10-13 22:56
+
+话说马总这次成功了，下次 FAA 会不会审批快一些
+
+— from Xiaomi 23117RK66C, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+
+*****
+
+####  你好音希  
+##### 339#       发表于 2024-10-13 22:56
+
+确实看着不可思议
+
+*****
+
+####  AraTurambar  
+##### 340#       发表于 2024-10-13 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443644&amp;ptid=2190881" target="_blank">lactone 发表于 2024-10-13 22:55</a>
+
+只要能咩鳖，谁管你马总爱谁
+
+前两天马总还妄言救灾，今天就是人类之光了</blockquote>
+他身上人类之光和白目资本家两面是完全共存的。
+
+其实就SpaceX这件事情上我就有完全看不顺眼他的地方。
+
+*****
+
+####  机吉斯卡  
+##### 341#       发表于 2024-10-13 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443477&amp;ptid=2190881" target="_blank">longmarch5 发表于 2024-10-13 22:41</a>
+
+微博上我都看到有人说长10落后不该搞了...有病
+
+三哥也是脑子有屎，我要是ISRO的人，就拿SCE-200为基础去 ...</blockquote>
+奥对了
+
+之前那个很有远见一步步搓东西的ISRO，**是个很稳健的的老专家
+
+现在换人了，传统的阿三吹牛皮，有的好玩咯
+
+*****
+
+####  stevenzero  
+##### 342#       发表于 2024-10-13 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443643&amp;ptid=2190881" target="_blank">鲜血秋叶 发表于 2024-10-13 22:55</a>
+这几年把中国航天吹的太过，有些人是真的觉得中国航天已经远远领先美国的
+
+火箭只有成功率一个指标</blockquote>
+好几年前我发了个帖感叹一下空x发射频率越来越高，有人就回了个“为了追赶casa，nasa也是拼命了。” 
+
+*****
+
+####  longmarch5  
+##### 343#       发表于 2024-10-13 22:58
+
+长10真做出来，论水平也就是星舰之下，跟重猎一级的东西，除了马老板没人有脸说它不行，相对长5等型号也是很大的进步
+
+*****
+
+####  lactone  
+##### 344#       发表于 2024-10-13 22:59
+
+我觉得还是先登月吧
+
+— from Xiaomi 23117RK66C, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+
+
+*****
+
+####  机吉斯卡  
+##### 345#       发表于 2024-10-13 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443689&amp;ptid=2190881" target="_blank">lactone 发表于 2024-10-13 22:59</a>
+
+我觉得还是先登月吧
+
+— from Xiaomi 23117RK66C, Android 14 of S1 Next Goose v3.0.0.81-alpha</blockquote>
+这个你放心，未来甚至可能出现中美前后脚登月的情况
+
+现在有个最大的问题是，我们登月以后的长期航天战略规划问题
+
+这个需要大人物战略规划
+
+*****
+
+####  commcody  
+##### 346#         楼主| 发表于 2024-10-13 23:02
+
+Super Heavy运输平台正准备出发前往发射场接B12落地。
+
+<img src="https://img.saraba1st.com/forum/202410/13/230133s5xxxbb9z0fygwy0.jpg" referrerpolicy="no-referrer">
+
+<strong>微信截图_20241013230113.jpg</strong> (567.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 23:01 上传
+
+*****
+
+####  lactone  
+##### 347#       发表于 2024-10-13 23:02
+
+之前天兵那个不是说其实还不错？
+
+— from Xiaomi 23117RK66C, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+
+*****
+
+####  longmarch5  
+##### 348#       发表于 2024-10-13 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443669&amp;ptid=2190881" target="_blank">机吉斯卡 发表于 2024-10-13 22:57</a>
+
+奥对了
+
+之前那个很有远见一步步搓东西的ISRO，**是个很稳健的的老专家</blockquote>
+月船三号成功以后三哥真的飘，那几个PPT都什么玩意
+

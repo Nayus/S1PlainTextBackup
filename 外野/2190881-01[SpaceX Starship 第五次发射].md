@@ -3165,3 +3165,11 @@ Super Heavy运输平台正准备出发前往发射场接B12落地。
 
 — from Xiaomi 23117RK66C, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
 
+
+*****
+
+####  mogadishu  
+##### 362#       发表于 2024-10-14 00:37
+
+厉害！ 下一个关卡就是轨道推进剂传输。
+

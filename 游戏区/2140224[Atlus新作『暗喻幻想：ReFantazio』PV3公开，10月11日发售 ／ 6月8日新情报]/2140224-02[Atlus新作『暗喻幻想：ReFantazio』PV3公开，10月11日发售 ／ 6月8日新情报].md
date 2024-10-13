@@ -7360,3 +7360,54 @@ https://x.com/nistick023/status/1845357067026170151
 『メタファー：リファンタジオ』 発売も100万本もま ...</blockquote>
 不懂设定为啥改了，副岛是觉得现在这个双开门冰箱更好看吗
 
+
+*****
+
+####  巨馍蘸酱  
+##### 2174#       发表于 2024-10-14 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66444127&amp;ptid=2140224" target="_blank">Piano-Forest 发表于 2024-10-14 00:03</a>
+
+https://x.com/nistick023/status/1845357067026170151
+
+『メタファー：リファンタジオ』 発売も100万本もま ...</blockquote>
+这个还没见过，这是第几版人设了，挺好看的，还有最早的这版
+
+<img src="https://img.saraba1st.com/forum/202410/14/004100mi7qkz8i86ajsvki.jpg" referrerpolicy="no-referrer">
+
+<strong>aec1d0889e510fb31201d0599c33c895d0430cf5.jpg</strong> (418.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-14 00:41 上传
+
+也比现在的好看，不明白改来改去改成最丑的是什么意思
+
+现在这版人设这个披肩是问题最大的，显得肩太宽，跟双开门冰箱似的。而且穿得比较紧身的衣服也几乎看不出什么身体曲线，还不如初版这个穿铁甲的
+
+*****
+
+####  RookieTnT  
+##### 2175#       发表于 2024-10-14 00:43
+
+玩到蝙蝠哥入队. 这游戏的队友觉醒是不是真的都那么儿戏. 仿佛黄油里面的女主, 被主角碰一下就飞起来了. 直接恨不得直接开槽
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 莉可厨| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  莉可厨  
+##### 2176#       发表于 2024-10-14 00:45
+
+不是哥们，这游戏真一点恋爱没有吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还是略有麻辣的。当然，没法和p那种明着来相提并论
+

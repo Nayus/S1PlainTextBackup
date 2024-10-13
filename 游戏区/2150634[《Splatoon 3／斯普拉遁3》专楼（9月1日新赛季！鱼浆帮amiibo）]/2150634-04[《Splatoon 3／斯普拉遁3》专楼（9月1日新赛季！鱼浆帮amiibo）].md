@@ -275,3 +275,11 @@ img_7199.jpg
 楼友精力真好，我反正持续差不多5小时就开始操作变形了，我看上位势直播顶多5、6小时也要下播了，肉眼可 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实我如果集中注意力认真打的话一个多小时两个小时就会觉得累了，还好打工和开放刷武器熟练度这些比较轻量级不怎么需要集中注意力，不打x赛浑水摸鱼就好，上位势那是摸鱼模式都是我拼尽全力达不到的程度
 
+
+*****
+
+####  秋月孝三  
+##### 5490#       发表于 2024-10-13 18:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">🍈难得认真的做了一次视频封面
+

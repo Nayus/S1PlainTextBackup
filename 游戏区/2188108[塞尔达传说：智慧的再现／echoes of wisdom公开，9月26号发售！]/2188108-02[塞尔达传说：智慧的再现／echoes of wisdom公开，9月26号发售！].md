@@ -1891,3 +1891,15 @@ document.getElementById('flv_ALj').innerHTML=("");
 
 选复制品的问题没有锁定的问题大，经常锁不到想锁的东西反而锁到自己的复制品上，应该还有改进空间
 
+
+*****
+
+####  ohi.02  
+##### 1652#       发表于 2024-10-13 18:20
+
+ 本帖最后由 ohi.02 于 2024-10-13 18:24 编辑 
+
+通关了，为什么我反倒觉得空无的战斗很没意思，把之前的boss都拉出来，然后一直重复几个流程。anyway，这作真适合小朋友玩，游戏只有一个卡住我的难题，最讨厌的盖章正好漏了一个<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

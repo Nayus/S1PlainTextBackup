@@ -12173,3 +12173,40 @@ water
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  NODY  
+##### 24731#       发表于 2024-10-13 18:22
+
+<img src="https://img.saraba1st.com/forum/202410/13/182236xinvi34irv8nhaxv.jpg" referrerpolicy="no-referrer">
+
+<strong>GZw0UBMaAAEagxF.jpg</strong> (1.07 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 18:22 上传
+
+<img src="https://img.saraba1st.com/forum/202410/13/182236yanl2dvqynvevq2e.jpg" referrerpolicy="no-referrer">
+
+<strong>GZww8_maAAQ93Lh.jpg</strong> (772.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 18:22 上传
+
+<img src="https://img.saraba1st.com/forum/202410/13/182236w4zf64yxrpf07e94.jpg" referrerpolicy="no-referrer">
+
+<strong>GZww9BtaAAIK8TP.jpg</strong> (602.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 18:22 上传
+
+*****
+
+####  桜庭千景  
+##### 24732#       发表于 2024-10-13 18:23
+
+live的以太确实不错，作为收尾氛围很足，比录音室版本舒服
+

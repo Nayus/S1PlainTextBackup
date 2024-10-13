@@ -655,3 +655,37 @@ WB57观测机已升空。
 
 S30和B12的推进剂加注都已开始，目前瞄准窗口北京时间20点25分，距离窗口结束只有5分钟余量。
 
+
+*****
+
+####  commcody  
+##### 110#         楼主| 发表于 2024-10-13 19:56
+
+官方直播已开始
+
+<img src="https://img.saraba1st.com/forum/202410/13/195618geww4404c7r60f82.jpg" referrerpolicy="no-referrer">
+
+<strong>微信截图_20241013195555.jpg</strong> (125.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 19:56 上传
+
+*****
+
+####  璇瑢子R  
+##### 111#       发表于 2024-10-13 19:59
+
+居然又回YouTube直播了
+
+
+*****
+
+####  commcody  
+##### 112#         楼主| 发表于 2024-10-13 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442142&amp;ptid=2190881" target="_blank">璇瑢子R 发表于 2024-10-13 19:59</a>
+
+居然又回YouTube直播了</blockquote>
+YT直播的都是假的，现在只在推特直播
+

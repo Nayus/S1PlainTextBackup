@@ -1867,3 +1867,89 @@ B8C387FE71819CEDC4ACF82DE7A2607D.jpg
 
 以及 下回貌似是四季主的红蓝回，且有歌，四芽双C？
 
+
+*****
+
+####  夏亚之徒  
+##### 181#       发表于 2024-10-13 16:27
+
+花田真的有吃药
+
+*****
+
+####  懂你意思  
+##### 182#       发表于 2024-10-13 16:29
+
+可可怎么成香音bot了，太割裂了
+
+
+*****
+
+####  ads147147  
+##### 183#       发表于 2024-10-13 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66440761&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-10-13 16:23</a>
+好了，才一集，ED每个人solo的愿景就破灭了
+
+以及 下回貌似是四季主的红蓝回，且有歌，四芽双C？
+
+ ...</blockquote>
+代代木直接没去我是没想到，只能说花田大老师就是能超出我们这些凡人一步。
+
+下一集红蓝回更是没想到，人数少的cp回应该是问题不大，神不神就不好说了，起码能满足磕cp的了。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  cybernetics31  
+##### 184#       发表于 2024-10-13 16:31
+
+没啥惊喜的一回。。。。。。
+
+*****
+
+####  ads147147  
+##### 185#       发表于 2024-10-13 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66440803&amp;ptid=2201887" target="_blank">懂你意思 发表于 2024-10-13 16:29</a>
+可可怎么成香音bot了，太割裂了</blockquote>
+现在反推来看就是花田本来就要把可可变成香音肯定bot，对香音那是理想的特别，对民警才是生活，那你问我能不能接受，那我只能说我推可恋薇jpg
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  夏亚之徒  
+##### 186#       发表于 2024-10-13 16:32
+
+ 本帖最后由 夏亚之徒 于 2024-10-13 16:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66440816&amp;ptid=2201887" target="_blank">cybernetics31 发表于 2024-10-13 16:31</a>
+
+没啥惊喜的一回。。。。。。</blockquote>
+不不不，对花田的要求不该是“惊喜”，而是没写出“整个角色都毁掉啦！”这种玩意<img src="https://static.saraba1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 187#       发表于 2024-10-13 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66440825&amp;ptid=2201887" target="_blank">夏亚之徒 发表于 2024-10-13 16:32</a>
+不不不，对花田的要求不该是“惊喜”，而不是没写出“整个角色都毁掉啦！”这种玩意 ...</blockquote>
+你已经和隔壁闪友一样看到一个正常的动画都很惊讶了。
+
+我不惊讶，我一惯抱着怀疑在怀疑的态度，只要不相信就会有真的惊喜。
+
+比如这集冬毬的描写我挺喜欢的，香薇也很好磕，同居感好棒好棒~香音特有外国人特攻。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  starring  
+##### 188#       发表于 2024-10-13 16:34
+
+这集意外还行，不过又加了很多一眼补漏的新设定，VN小时候疑似听过香音的歌，小时候在JP待过，冬比夏更爱钱之类
+
+用视听人数不够排除淘汰三人组避免代代木fes 3V8的情况，算是上策<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

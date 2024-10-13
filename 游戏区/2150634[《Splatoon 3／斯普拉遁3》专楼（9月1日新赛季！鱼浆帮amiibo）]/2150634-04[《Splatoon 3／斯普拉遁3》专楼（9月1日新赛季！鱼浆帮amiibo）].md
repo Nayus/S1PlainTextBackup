@@ -252,3 +252,15 @@ img_7199.jpg
 
 2024-10-13 16:14 上传
 
+
+*****
+
+####  罗克萨斯  
+##### 5488#       发表于 2024-10-13 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66440699&amp;ptid=2150634" target="_blank">0314f9b7d3430c8 发表于 2024-10-13 16:17</a>
+有挂机也不多，手游没活动的时候基本上下班了6点开始玩到凌晨两三点，周末中午睡醒开始玩到凌晨，挂机基 ...</blockquote>
+楼友精力真好，我反正持续差不多5小时就开始操作变形了，我看上位势直播顶多5、6小时也要下播了，肉眼可见的累
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

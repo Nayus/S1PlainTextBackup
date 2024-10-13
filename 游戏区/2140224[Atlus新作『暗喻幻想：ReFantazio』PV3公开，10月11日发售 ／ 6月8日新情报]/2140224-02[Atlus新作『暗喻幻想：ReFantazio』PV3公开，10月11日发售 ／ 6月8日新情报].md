@@ -7411,3 +7411,12 @@ https://x.com/nistick023/status/1845357067026170151
 
 不是哥们，这游戏真一点恋爱没有吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还是略有麻辣的。当然，没法和p那种明着来相提并论
 
+
+*****
+
+####  是谁的书画  
+##### 2177#       发表于 2024-10-14 00:58
+
+打到海都，总体来说我还是满意的，也能感觉到制作者在努力给你找事情做。
+但成也败也都在这个p系列的倒计时机制上，我个人倒是不讨厌<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+

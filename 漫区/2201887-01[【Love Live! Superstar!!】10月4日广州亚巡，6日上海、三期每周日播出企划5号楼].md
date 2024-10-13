@@ -2149,3 +2149,11 @@ B8C387FE71819CEDC4ACF82DE7A2607D.jpg
 
 回看翻译好的发现个事情，可可会忘了"去年"VNdissLL大会的事情？不可能吧，怎么那段解释没人看的原因的地方感觉啥都不知道的样子，当时可是和芽衣一块儿红了来着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  2148214  
+##### 207#       发表于 2024-10-14 01:02
+
+<[img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer"> 直到听完ED才反应过来，看来就算出三季动画也不会有某人的SOLO听，诶。
+

@@ -5956,3 +5956,30 @@ nga现在评分6.8
 
 风评是真差
 
+
+*****
+
+####  zerg12345  
+##### 2040#       发表于 2024-10-13 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66438292&amp;ptid=2140224" target="_blank">人畜无害沃特碧 发表于 2024-10-13 08:02</a>
+
+开跑步时候的模糊怎么关眼睛要瞎了</blockquote>
+3dm有老外做的mod，或者你去作者那里下载 [https://github.com/Lyall/MetaphorFix/releases](https://github.com/Lyall/MetaphorFix/releases)
+
+
+*****
+
+####  woui003woui  
+##### 2041#       发表于 2024-10-13 09:19
+
+nga游综好像也就20个人评吧，分数极端很正常<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  operatbig  
+##### 2042#       发表于 2024-10-13 09:26
+
+评测这80小时不会是选的hard吧，玩到现在完全不觉得有堆料。
+

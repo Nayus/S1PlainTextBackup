@@ -11270,3 +11270,31 @@ go也是4th才放动画pv的吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">今天3rd！
 
+
+*****
+
+####  rikaren  
+##### 24627#       发表于 2024-10-13 13:28
+
+<blockquote>461757753 发表于 2024-10-13 02:35
+go也是4th才放动画pv的吧</blockquote>
+是2023.5.24的动画发表大会
+
+
+*****
+
+####  六道明  
+##### 24628#       发表于 2024-10-13 13:31
+
+【Ave Mujica 3rd 河口湖现场 彩排 场外视角录像 Symbol I : △-哔哩哔哩】 https://b23.tv/n81ldAP
+
+多听了30块的
+
+*****
+
+####  akiomn  
+##### 24629#       发表于 2024-10-13 13:34
+
+好消息：12月1号就看到母鸡卡动画了
+坏消息：先行放映是在新加坡举行的bushiroad expo 2024
+

@@ -12649,3 +12649,15 @@ animax有直播，至少去年是有的
 
 结月说的12月看到真实的我们更有意思一点，4th大的要来了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 24771#       发表于 2024-10-14 00:25
+
+mujica的live脚本应该一直是小川负责（0th没有新的幕间，个人算作解谜活动的延伸）
+
+解谜活动时期应该也参与了，具体程度不明，和绫奈都关注了解谜活动制作者
+
+即使只从目前看来，小川负责的mujica相关内容也不算少
+

@@ -6219,3 +6219,33 @@ steam版用手柄玩，经常莫名切换显示键鼠键位，而且一切换就
 
 幸运道具是不是叠加的，我换成四个小贩肉眼可见的道具掉率高了
 
+
+*****
+
+####  Chia  
+##### 2065#       发表于 2024-10-13 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66439122&amp;ptid=2140224" target="_blank">拖鞋脚后跟 发表于 2024-10-13 11:16</a>
+
+steam版用手柄玩，经常莫名切换显示键鼠键位，而且一切换就回不来了</blockquote>
+个人体验，你的鼠标不能停在ui边界上，不然可能反复热切换。
+
+*****
+
+####  夜月紫耀  
+##### 2066#       发表于 2024-10-13 11:39
+
+<blockquote>抽烟的猴 发表于 2024-10-13 10:40
+p3r和破晓都是首周百万，一个过了一年才二百万，一个现在都没后续销量，大概率没到二百万
+隔壁看个乐就行 ...</blockquote>
+破晓传说不是都300w了吗？
+
+*****
+
+####  superlink  
+##### 2067#       发表于 2024-10-13 11:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">怎么可能类比engage，好歹剧情乐子多，各种人物你要说样板现在见那么多了哪有不样板，好歹各种剧情描写都够有趣，主线还没打到展开不好评
+
+—— 来自 vivo V2304A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -1995,3 +1995,26 @@ B8C387FE71819CEDC4ACF82DE7A2607D.jpg
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  夏亚之徒  
+##### 192#       发表于 2024-10-13 17:00
+
+<img src="https://img.saraba1st.com/forum/202410/13/170000cf9ckzsc9lrz8958.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (243.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 17:00 上传
+
+*****
+
+####  ads147147  
+##### 193#       发表于 2024-10-13 17:01
+
+说起来没注意三人组的组合名是什么，拉什么的？之前好像薇恩参赛也没说她的solo比赛用名是什么（根本没前例。。。）
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

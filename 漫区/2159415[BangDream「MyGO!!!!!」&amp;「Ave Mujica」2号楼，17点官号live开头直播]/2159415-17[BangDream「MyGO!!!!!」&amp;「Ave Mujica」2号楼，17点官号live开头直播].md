@@ -11893,3 +11893,44 @@ avemujica是不是不會有新翻唱了<img src="https://static.saraba1st.com/im
 water
 喵梦多珍惜，之后没得休息了哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  傘木希美  
+##### 24697#       发表于 2024-10-13 16:59
+
+新歌？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  御幸一也  
+##### 24698#       发表于 2024-10-13 16:59
+
+這是什麼曲子<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 24699#       发表于 2024-10-13 17:01
+
+草，怎么是假面舞会，还以为有新歌。
+
+
+*****
+
+####  傘木希美  
+##### 24700#       发表于 2024-10-13 17:02
+
+艹，这是没上来？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  鳥栖朝  
+##### 24701#       发表于 2024-10-13 17:03
+
+弄该不会是第一下没上去吧
+

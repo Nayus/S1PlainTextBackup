@@ -6685,3 +6685,40 @@ nga贴吧不是早就有那种不到千万销量不配上桌的共识了，连�
 我10个小时后开始剧情基本全跳过了，非常爽！战斗系统可以说是A社目前最爽的，流程体验极佳，建议以后所有 ...</blockquote>
 对比同样全职业横转的 XB3 和火纹 engage 有什么异同？
 
+
+*****
+
+####  InnerRevachol  
+##### 2110#       发表于 2024-10-13 17:01
+
+刚打完序章发现矿山前的成就都没跳，是bug吗？有坛友知道怎么解决吗
+
+<img src="https://img.saraba1st.com/forum/202410/13/170115t00540yl030b7yq8.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2024-10-13 170027.png</strong> (86.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 17:01 上传
+
+*****
+
+####  onemoment  
+##### 2111#       发表于 2024-10-13 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66440719&amp;ptid=2140224" target="_blank">巨馍蘸酱 发表于 2024-10-13 16:18</a>
+
+话说后面还有啥颜值过得去的女队友吗？感觉女骑士和大额头妹都不太行</blockquote>
+换装可以救一下这几个小唐人，但不多<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kuarwbwe  
+##### 2112#       发表于 2024-10-13 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66441053&amp;ptid=2140224" target="_blank">InnerRevachol 发表于 2024-10-13 17:01</a>
+刚打完序章发现矿山前的成就都没跳，是bug吗？有坛友知道怎么解决吗</blockquote>
+打完第一章就跳。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

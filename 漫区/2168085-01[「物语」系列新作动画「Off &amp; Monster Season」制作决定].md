@@ -84,3 +84,18 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  oi99o  
+##### 968#       发表于 2024-10-13 16:57
+
+ 本帖最后由 oi99o 于 2024-10-13 17:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66440767&amp;ptid=2168085" target="_blank">傘木希美 发表于 2024-10-13 16:24</a>
+又延了啊
+
+—— 来自 鹅球 v3.2.91</blockquote>
+什么叫又，忍物语共六集，昨天第五集，下周第六集才完结
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

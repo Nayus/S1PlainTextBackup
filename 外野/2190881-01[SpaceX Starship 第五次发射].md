@@ -3284,3 +3284,33 @@ B12在返回时可以看到部分边条保护罩脱落了，在回收完成后�
 美国航天遥遥领先这个事情已经不需要空x来证明了，居然很多人拿这事来觉得我们不行，我倒是觉得有一种变相 ...</blockquote>
 单就火箭而言，只是空叉厉害而不是现在的美国，泛航天技术那美国确实非常厉害
 
+
+*****
+
+####  laotoutou  
+##### 373#       发表于 2024-10-14 03:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66444308&amp;ptid=2190881" target="_blank">mogadishu 发表于 2024-10-14 00:37</a>
+厉害！ 下一个关卡就是轨道推进剂传输。</blockquote>
+不，下个难点是结构减重，不然星舰现在的kg发射成本还远比不上长征11。。。
+回收后会有一大堆探伤检查
+
+*****
+
+####  laotoutou  
+##### 374#       发表于 2024-10-14 03:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66444670&amp;ptid=2190881" target="_blank">多多天下 发表于 2024-10-14 01:44</a>
+LEO太阳能电站啊，从板子到微波传输都没有物理学困难了</blockquote>
+老美直接给你撞了。这能源太不安全了。
+
+*****
+
+####  laotoutou  
+##### 375#       发表于 2024-10-14 03:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66444612&amp;ptid=2190881" target="_blank">谢同学 发表于 2024-10-14 01:36</a>
+好奇请教个问题，为什么tg的导弹和icbm这么强为什么运载火箭会有差距呢？这两个的技术差距大吗？tg好钢用 ...</blockquote>
+洲际导弹强的是固体燃料火箭强。
+反映到引力一号就是世界最大固体火箭，没毛病。
+

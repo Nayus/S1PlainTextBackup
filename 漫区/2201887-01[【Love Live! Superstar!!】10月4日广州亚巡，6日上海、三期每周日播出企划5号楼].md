@@ -2170,3 +2170,15 @@ B8C387FE71819CEDC4ACF82DE7A2607D.jpg
 
 一期和恋那么针锋相对，在入队的时候不还是乖乖的叫恋恋了（当然也有恋的自身原因）可可是只要你愿意当偶像我就愿意应援你的，不怎么会计较的，只有急上头了才会翻旧账（这集香音跑vn那和恋恋抱怨）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 209#       发表于 2024-10-14 07:43
+
+说到底还是花田那套段子流加工具人写法，需要的时候就把某人拉出来当工具人，第二集虽然看着很流畅没槽点，前提是观众别对星2耿耿于怀，最好就和可可对恋的态度一样，一个专场直接原谅。
+
+早干嘛去了。。。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -3322,3 +3322,16 @@ LEO太阳能电站啊，从板子到微波传输都没有物理学困难了</blo
 
 马斯克这么多动作会对懂王大选加buff么？
 
+
+*****
+
+####  YoumuChan  
+##### 377#       发表于 2024-10-14 05:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66444136&amp;ptid=2190881" target="_blank">lactone 发表于 2024-10-14 00:07</a>
+
+话说现在有没有啥需求是航天成本过高所以没人搞，但是成本下降了马上就有人弄的
+
+— from Xiaomi 23117RK66 ...</blockquote>
+太空工厂？看到有说微重力下进行碳纤维制造、半导体制造、干细胞培养的质量和效果都比地球上好。目前这些还停留在空间站实验，成本下去了确实有可能上量。
+

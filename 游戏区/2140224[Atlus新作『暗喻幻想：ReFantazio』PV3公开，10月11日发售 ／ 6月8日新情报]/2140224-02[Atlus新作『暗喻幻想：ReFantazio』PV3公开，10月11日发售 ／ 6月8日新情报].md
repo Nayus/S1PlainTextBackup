@@ -6818,3 +6818,57 @@ nga贴吧不是早就有那种不到千万销量不配上桌的共识了，连�
 —— 来自 鹅球 v3.1.91-alpha ...</blockquote>
 是啥来着？
 
+
+*****
+
+####  kuarwbwe  
+##### 2121#       发表于 2024-10-13 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66441312&amp;ptid=2140224" target="_blank">budong 发表于 2024-10-13 17:43</a>
+是啥来着？</blockquote>
+看到时候会不会起争议吧，我就不在这楼说了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  罗克萨斯  
+##### 2122#       发表于 2024-10-13 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66441272&amp;ptid=2140224" target="_blank">saverok 发表于 2024-10-13 17:36</a>
+战斗爽的确不错
+
+就是剧情太jrpg了 一点拐弯都没有的 选项本质也是** 啥影响都没</blockquote>
+前期魔后期力，我也打算这么玩，法师还是重要
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Khellendros  
+##### 2123#       发表于 2024-10-13 17:51
+
+<blockquote>saverok 发表于 2024-10-13 17:36
+战斗爽的确不错
+
+就是剧情太jrpg了 一点拐弯都没有的 选项本质也是** 啥影响都没</blockquote>
+第二章开始就是力&gt;&gt;&gt;魔
+
+加莉卡coop跟着主线提升的导致法师上级职业解锁的很慢
+
+*****
+
+####  SuNR1sE364  
+##### 2124#       发表于 2024-10-13 17:52
+
+n难度队伍平均35级打过了60级大沙虫，剑士的三豆合体技实在是太强了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">开局凹一个助战的全体回避大提升，队里再放一个降敌人回避，然后就是复读剑士二豆/三豆合体技和回复就行
+
+<img src="https://img.saraba1st.com/forum/202410/13/174620whm5ztzvuudwogdo.jpg" referrerpolicy="no-referrer">
+
+<strong>20241013123617_1.jpg</strong> (236.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 17:46 上传
+

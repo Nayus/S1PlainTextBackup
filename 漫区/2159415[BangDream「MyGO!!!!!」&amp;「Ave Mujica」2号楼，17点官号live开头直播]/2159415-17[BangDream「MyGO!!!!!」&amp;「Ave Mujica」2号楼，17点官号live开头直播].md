@@ -11996,3 +11996,118 @@ water
 
 今天应该会有动画pv吧，急急急
 
+
+*****
+
+####  rikaren  
+##### 24710#       发表于 2024-10-13 17:47
+
+应该是没有的，最早也要等10.17的发表大会（有说有动画新情报），何况这live场地也没屏幕可以放pv（
+
+*****
+
+####  御幸一也  
+##### 24711#       发表于 2024-10-13 17:48
+
+結束了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer"> 好爽啊這次 舞台太好看了
+
+*****
+
+####  rikaren  
+##### 24712#       发表于 2024-10-13 17:48
+
+要摘面具了吗？？？！！！
+
+*****
+
+####  星空冻结  
+##### 24713#       发表于 2024-10-13 17:48
+
+ 本帖最后由 星空冻结 于 2024-10-13 17:50 编辑 
+
+我安可呢？我新情报呢？wsd🐴🐴似了<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 24714#       发表于 2024-10-13 17:49
+
+呃 情報為淋 我真服了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  滑稽Captain  
+##### 24715#       发表于 2024-10-13 17:50
+
+全留到下周四了意思是
+
+*****
+
+####  Aendst  
+##### 24716#       发表于 2024-10-13 17:50
+
+感觉是目前整体最精彩的一次live，但是我情报呢？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 24717#       发表于 2024-10-13 17:50
+
+还没缓过来，怎么没有情报<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 24718#       发表于 2024-10-13 17:51
+
+这个迷惑演出感觉只有你鸡才干得出来，判断不出是鸡风味还是日本风味，但是最后那个弹钢琴有点意思
+
+*****
+
+####  星天观测  
+##### 24719#       发表于 2024-10-13 17:52
+
+等发表会吧，毕竟屏幕都没
+
+这次live感觉很不错
+
+
+*****
+
+####  rikaren  
+##### 24720#       发表于 2024-10-13 17:52
+
+再等8分钟看有没有mv
+
+
+*****
+
+####  六道明  
+##### 24721#       发表于 2024-10-13 17:52
+
+水和以太真好啊，地有点小拉
+
+*****
+
+####  cherryjia12  
+##### 24722#       发表于 2024-10-13 17:53
+
+演出最好看的一次
+就是什么时候能把小剧场风格统一一下啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  1a不解释  
+##### 24723#       发表于 2024-10-13 17:53
+
+新歌感觉不太熟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，但总体比2rd好
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  御景  
+##### 24724#       发表于 2024-10-13 17:56
+
+事已至此，等下周四吧
+

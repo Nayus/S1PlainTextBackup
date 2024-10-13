@@ -2665,3 +2665,118 @@ PS，马老板这个独苗也是在世界级别供应链和NASA数据库支持�
 
 过两天FH发射木星探测器，去探测冰卫星
 
+
+*****
+
+####  longmarch5  
+##### 317#       发表于 2024-10-13 22:36
+
+国内这么多年相比美国人对于运载火箭的投入就是九牛一毛，能很快赶超才是怪事，做不到的
+
+真要能2033年把长9飞起来做测试，意味着差距缩短到10年左右，已经是很大的进步了
+
+*****
+
+####  依然荏苒  
+##### 318#       发表于 2024-10-13 22:37
+
+还是那句话，美国只有spx蓝源两家，但是中国靠谱的也有三四家，都是丢轨道垃圾，我们能以量取胜，明年商业队就会测回收。
+
+*****
+
+####  momol  
+##### 319#       发表于 2024-10-13 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442983&amp;ptid=2190881" target="_blank">瓦格雷 发表于 2024-10-13 21:44</a>
+
+建议日历往回翻
+
+https://www.bilibili.com/video/BV1Sh411m7qj</blockquote>
+二级的着陆腿也太细小了吧，就不怕倾倒么
+
+*****
+
+####  机吉斯卡  
+##### 320#       发表于 2024-10-13 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443436&amp;ptid=2190881" target="_blank">longmarch5 发表于 2024-10-13 22:36</a>
+
+国内这么多年相比美国人对于运载火箭的投入就是九牛一毛，能很快赶超才是怪事，做不到的
+
+真要能2033年把长 ...</blockquote>
+现在先登月，登月以后CZ10差不多能吊打米国以外的玩意，我们自己用都可以
+
+其他的慢慢来又没啥，阿三还在搓煤油
+
+
+*****
+
+####  longmarch5  
+##### 321#       发表于 2024-10-13 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443408&amp;ptid=2190881" target="_blank">bartholo4 发表于 2024-10-13 22:31</a>
+
+没必要悲观的
+
+蓝星上还有谁能跟进的话也就只有我们了</blockquote>
+只有中国能跟
+
+目前各路重型复用箭大饼，长9是唯一一个真在搓零件的
+
+
+*****
+
+####  longmarch5  
+##### 322#       发表于 2024-10-13 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443455&amp;ptid=2190881" target="_blank">机吉斯卡 发表于 2024-10-13 22:38</a>
+
+现在先登月，登月以后CZ10差不多能吊打米国以外的玩意，我们自己用都可以
+
+其他的慢慢来又没啥，阿三还在 ...</blockquote>
+微博上我都看到有人说长10落后不该搞了...有病
+
+三哥也是脑子有屎，我要是ISRO的人，就拿SCE-200为基础去做新的中/大型火箭系列去了，升级lvm3干嘛
+
+*****
+
+####  lactone  
+##### 323#       发表于 2024-10-13 22:41
+
+你们在这里不悲观，知乎都快亡国了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+— from Xiaomi 23117RK66C, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+
+*****
+
+####  longmarch5  
+##### 324#       发表于 2024-10-13 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443483&amp;ptid=2190881" target="_blank">lactone 发表于 2024-10-13 22:41</a>
+
+你们在这里不悲观，知乎都快亡国了
+
+— from Xiaomi 23117RK66C, Android 14 of S1 Next Goose v3.0.0.81-a ...</blockquote>
+他们有病，头一天知道中国运载火箭不如美国么
+
+*****
+
+####  呼鲁鲁修  
+##### 325#       发表于 2024-10-13 22:43
+
+太牛逼了，老马真是个人才
+
+*****
+
+####  moekyo  
+##### 326#       发表于 2024-10-13 22:44
+
+微博上看到说现在的差距比100年前还大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  2017.05.04  
+##### 327#       发表于 2024-10-13 22:44
+
+过几年就该第二次电动车冲击了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">不如趁现在截好图，看看对面敢不敢发个毒誓
+

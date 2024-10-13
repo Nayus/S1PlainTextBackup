@@ -7240,3 +7240,11 @@ SMT5V的剧情土还是暗喻的剧情土？</blockquote>
 
 —— 来自 OPPO PGBM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Rainwedell  
+##### 2163#       发表于 2024-10-13 22:37
+
+hard 下纯纯战斗爽
+

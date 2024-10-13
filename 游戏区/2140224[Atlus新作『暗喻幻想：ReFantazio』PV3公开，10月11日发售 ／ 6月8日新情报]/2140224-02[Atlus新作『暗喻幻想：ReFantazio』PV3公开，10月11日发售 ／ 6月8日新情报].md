@@ -6249,3 +6249,41 @@ p3r和破晓都是首周百万，一个过了一年才二百万，一个现在�
 
 —— 来自 vivo V2304A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  usodakedo  
+##### 2068#       发表于 2024-10-13 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66438568&amp;ptid=2140224" target="_blank">yukinosarai 发表于 2024-10-13 09:34</a>
+所以到底好不好玩，有没有大佬评价一下？
+
+好玩的标准就和p5比把，设p5为10分 ...</blockquote>
+如果只论回合制战斗方面，个人觉得比p5r好玩很多
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  weige  
+##### 2069#       发表于 2024-10-13 11:47
+
+评测说的堆料堆在哪里？目前没感受到
+
+*****
+
+####  yangkaim4  
+##### 2070#       发表于 2024-10-13 11:51
+
+把序章迷宫打通了，战斗感觉没有什么爽点
+
+
+*****
+
+####  windtrack  
+##### 2071#       发表于 2024-10-13 11:53
+
+这战斗其实就是融了真5的世界树，难度上也差不多，一回合不把对面带走你就重伤
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

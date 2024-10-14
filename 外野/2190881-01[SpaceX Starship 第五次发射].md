@@ -4380,3 +4380,36 @@ ui上确实是这样的，当时让人觉得控燃料特别准。
 
 利用电磁线圈对金属进行熔炼，金属材料在太空中悬浮在空中，通过电磁感应产生涡流发热，从而使金属熔化。由于太空的超高真空和失重环境，熔融金属不会下沉或上浮，冶炼过程中不会出现热对流和静液压等问题，这使得冶炼出的金属具有更高的纯度和特殊的物理性质‌。
 
+
+*****
+
+####  ranger_wang  
+##### 463#       发表于 2024-10-14 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66448296&amp;ptid=2190881" target="_blank">madbird023 发表于 2024-10-14 14:29</a>
+
+裂解甲烷啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">裂解甲烷？甲烷裂解的结果是氢和碳，你打算用这两个当氧化剂？而且你以为小行星上甲烷很多吗？
+
+*****
+
+####  YoumuChan  
+##### 464#       发表于 2024-10-14 14:39
+
+爱好者做的操控助推降落到筷子上的小游戏：[https://mechazilla.io/](https://mechazilla.io/)
+
+官方做的完全不如爱好者的星舰小游戏：[https://starshipthegame.spacex.com/](https://starshipthegame.spacex.com/)
+
+
+*****
+
+####  ranger_wang  
+##### 465#       发表于 2024-10-14 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66448348&amp;ptid=2190881" target="_blank">Illidan 发表于 2024-10-14 14:36</a>
+
+真空感应加热电磁悬浮。
+
+https://www.cnki.com.cn/Article/CJFDTotal-JSSJ199805016.htm</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

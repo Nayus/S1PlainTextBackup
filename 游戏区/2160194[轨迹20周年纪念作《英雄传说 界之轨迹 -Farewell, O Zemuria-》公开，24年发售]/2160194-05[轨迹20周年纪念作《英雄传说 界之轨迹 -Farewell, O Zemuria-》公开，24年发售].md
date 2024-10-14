@@ -6625,3 +6625,26 @@ staff里一定有人看过别当哥的温泉回
 不就学妹一次吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是拐圣和桃花剑在主线剧情里一次都没有啊
 
+
+*****
+
+####  隔壁老黄  
+##### 6546#       发表于 2024-10-14 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66447802&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-10-14 13:29</a>
+不就学妹一次吗</blockquote>
+黎1里剑女那次难道不算？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  Aeons  
+##### 6547#       发表于 2024-10-14 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66448420&amp;ptid=2160194" target="_blank">隔壁老黄 发表于 2024-10-14 14:44</a>
+黎1里剑女那次难道不算？
+
+—— 来自 鹅球 v3.1.91-alpha</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">表白怎么也得我喜欢你四个字吧，黎一剑女有表白吗
+

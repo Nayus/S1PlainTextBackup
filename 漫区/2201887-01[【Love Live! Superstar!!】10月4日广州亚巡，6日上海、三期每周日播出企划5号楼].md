@@ -2239,3 +2239,17 @@ x：abukero_rainbow
 
 铺垫了半集的高智商精于算计的人设，结果连自家C位风评很差这点都没意识到，论秒破功毁人设这点花田还是这么强<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 215#       发表于 2024-10-14 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66447374&amp;ptid=2201887" target="_blank">sephal 发表于 2024-10-14 12:27</a>
+铺垫了半集的高智商精于算计的人设，结果连自家C位风评很差这点都没意识到，论秒破功毁人设这点花田还是这 ...</blockquote>
+没想到拉拉世界黑红不是红罢了
+
+就和gbc强行给你塞103，水团的不够数一个尿性。。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -4331,3 +4331,52 @@ ui上确实是这样的，当时让人觉得控燃料特别准。
 星舰不要说火星，连去月球都吃力好吧。</blockquote>
 现在是，但以后可不一定超重V2和现在的可不是一个东西了
 
+
+*****
+
+####  qqks  
+##### 459#       发表于 2024-10-14 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66448231&amp;ptid=2190881" target="_blank">madbird023 发表于 2024-10-14 14:23</a>
+
+现在是，但以后可不一定超重V2和现在的可不是一个东西了</blockquote>
+参照自动驾驶，马斯克这样的天才也不见得全是对的。我国追的也紧，国内竞争环境更加激烈，需求也被马斯克创造出来了，不会一直落后下去的
+
+*****
+
+####  madbird023  
+##### 460#       发表于 2024-10-14 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66448075&amp;ptid=2190881" target="_blank">ranger_wang 发表于 2024-10-14 14:03</a>
+
+可燃物？就地加工？地球上的氧气是蓝细菌与其后继者几亿年光合作用的结果，外太空你上哪找氧化剂？ ...</blockquote>
+裂解甲烷啊
+
+*****
+
+####  ranger_wang  
+##### 461#       发表于 2024-10-14 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66448168&amp;ptid=2190881" target="_blank">艾诺琳 发表于 2024-10-14 14:14</a>
+
+地球上最好的材料也要克服地球引力圈
+
+你打算用星舰发射几百万吨钢材去建设火星殖民地？ ...</blockquote>
+有没有一种可能，就是火星殖民地在你我有生之年根本不具有经济效益？火星就像南极一样，不会有殖民地，只会有科考站？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Illidan  
+##### 462#       发表于 2024-10-14 14:36
+
+ 本帖最后由 Illidan 于 2024-10-14 14:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66448075&amp;ptid=2190881" target="_blank">ranger_wang 发表于 2024-10-14 14:03</a>
+
+可燃物？就地加工？地球上的氧气是蓝细菌与其后继者几亿年光合作用的结果，外太空你上哪找氧化剂？ ...</blockquote>
+真空感应加热电磁悬浮。
+
+[https://www.cnki.com.cn/Article/CJFDTotal-JSSJ199805016.htm](https://www.cnki.com.cn/Article/CJFDTotal-JSSJ199805016.htm)
+
+利用电磁线圈对金属进行熔炼，金属材料在太空中悬浮在空中，通过电磁感应产生涡流发热，从而使金属熔化。由于太空的超高真空和失重环境，熔融金属不会下沉或上浮，冶炼过程中不会出现热对流和静液压等问题，这使得冶炼出的金属具有更高的纯度和特殊的物理性质‌。
+

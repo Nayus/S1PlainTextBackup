@@ -7749,3 +7749,39 @@ P5的觉醒就是那种，能猜到这里他/她要觉醒了，但是配合音�
 
 感觉不常驻商人刷钱的话 钱连买商店里的独特武器都够呛
 
+
+*****
+
+####  saverok  
+##### 2213#       发表于 2024-10-14 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66445902&amp;ptid=2140224" target="_blank">Khellendros 发表于 2024-10-14 09:48</a>
+
+职业主要看你想打什么合题技能，反正技能都是可以继承的
+
+主角推图一般用商人吧能刷点钱，打boss看你怎么 ...</blockquote>
+主要舍弃不了法师配牧师的群法
+
+前期主角投入在这，也没有谁好接班
+
+灰羽转了盗贼加狙击 感觉也挺怪，回去整个i小丑试试
+
+*****
+
+####  变老的大二  
+##### 2214#       发表于 2024-10-14 10:10
+
+主要问题是没办法战斗中切P，外加P的经验难刷。 前期MAG攒着其实选择面也就这样。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jxzeroga0  
+##### 2215#       发表于 2024-10-14 10:15
+
+最近刚体验了p5x，外传主线在p5基础上进一步优化了觉醒的戏剧冲突，学姐的觉醒既有忍不了干死对面也有救赎和解面对本心，非常自然和爽快。
+
+对比之下暗喻幻想只能说啊对对嗯嗯嗯知道觉醒了赶紧继续，做得太烂了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+主线玩到海都感觉剧情还是可以的，但觉醒相关部分真的很拖后腿，也导致第一章初见观感真的很烂。
+

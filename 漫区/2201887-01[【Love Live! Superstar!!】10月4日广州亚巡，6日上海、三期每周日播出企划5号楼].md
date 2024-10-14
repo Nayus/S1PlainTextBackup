@@ -2262,3 +2262,11 @@ x：abukero_rainbow
 【Love Live! Series 联动咖啡 in 上海 岚珠和可可的 ~特别Vlog~】 [https://www.bilibili.com/video/B ... a72830f4665c1ebd3cf](https://www.bilibili.com/video/BV1ywmLYCEU5/?share_source=copy_web&amp;vd_source=e3fc4172c6f57a72830f4665c1ebd3cf)
 <img src="https://img.chkaja.com/84074e3ea5b37197.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星降る森  
+##### 217#       发表于 2024-10-14 18:54
+
+风评差没意识到不是很正常吗？现实里塌房不也是源于发现“原来有这样不知道的一面”。冬毬认识vn才多久？先查户口？
+

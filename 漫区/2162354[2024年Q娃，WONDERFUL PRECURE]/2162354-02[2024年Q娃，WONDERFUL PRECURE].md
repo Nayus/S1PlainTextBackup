@@ -3299,3 +3299,15 @@ bg线也搞完了 现在该好好包主线饺子了吧<img src="https://static.s
 
 nga那边有人用来踩汪q的天q三十五话的脚本井上美绪在我印象里是现在q娃的女性作家阵中最稳的一个，上限可能没有成田高但下限很让人放心，不出意外当上系构应该只是时间问题
 
+
+*****
+
+####  maoyou  
+##### 2529#       发表于 2024-10-14 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66446401&amp;ptid=2162354" target="_blank">猫屋敷まゆ 发表于 2024-10-14 10:41</a>
+我推CP成真了</blockquote>
+想听你唱晚安大小姐<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

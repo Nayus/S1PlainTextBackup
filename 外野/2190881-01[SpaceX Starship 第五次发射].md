@@ -4702,3 +4702,14 @@ https://www.cnki.com.cn/Article/CJFDTotal-JSSJ199805016.htm</blockquote>
 
 <img src="https://p.sda1.dev/19/4d9d0b4fdf705f54f3e0b0dff8181113/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  薄皮破船  
+##### 488#       发表于 2024-10-14 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66450333&amp;ptid=2190881" target="_blank">cyberalogo 发表于 2024-10-14 18:44</a>
+
+笑死，发现居然已经有欧洲科幻作品迫不及待畅想星舰被用在火星城的场面。</blockquote>
+文化标签就是这样的，你搜登月舱啥的现在出来也是阿波罗为主········
+

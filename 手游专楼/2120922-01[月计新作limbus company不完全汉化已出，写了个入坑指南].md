@@ -1748,3 +1748,33 @@ Screenshot_20241010_133957.jpg
 话说这回生肉太难啃了，其他人只是从句多，唐英语差点把我看扭了 ...</blockquote>
 这章确实写得又癫又嗨，每小节标题长得和日本轻小说似的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 930#       发表于 2024-10-14 18:43
+
+新人格技能前瞻：
+
+<img src="https://img.saraba1st.com/forum/202410/14/183952zu064e2433q9h0o4.jpg" referrerpolicy="no-referrer">
+
+<strong>BE1354354962BFAC40CBAC35E7DCAE44.jpg</strong> (322.79 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-10-14 18:39 上传
+
+血魔猎人鸿璐能对血魔系敌人特攻，被动能减少我方流血和降低带破裂敌人的防御，应该是目前最适合破裂队的宝子人格。
+
+<img src="https://img.saraba1st.com/forum/202410/14/183952ht4ga0zl5b5cqtti.jpg" referrerpolicy="no-referrer">
+
+<strong>3F076C837A4C29B137F990E3259D0556.jpg</strong> (175.82 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-10-14 18:39 上传
+
+理发师奥提斯是纯血体系，技能都带吸血，三技能又是AOE又是威力提升，还能提供暴食资源，一眼强。
+

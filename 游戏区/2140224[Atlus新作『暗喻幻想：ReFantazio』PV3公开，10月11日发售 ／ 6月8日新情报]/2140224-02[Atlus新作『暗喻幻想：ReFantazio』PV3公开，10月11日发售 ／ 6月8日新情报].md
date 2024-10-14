@@ -8021,3 +8021,68 @@ P5的觉醒就是那种，能猜到这里他/她要觉醒了，但是配合音�
 
 Metaphor: The Simile（暗喻幻想：明喻版）还是Metaphor: King's Guard（暗喻幻想：王之护卫版）？
 
+
+*****
+
+####  usodakedo  
+##### 2240#       发表于 2024-10-14 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66446752&amp;ptid=2140224" target="_blank">kuarwbwe 发表于 2024-10-14 11:13</a>
+他家是真的该整合一下开发经验了。现在他家能用虚幻4了，能做出无缝大地图探索了，这作抄了隔壁法老控有了 ...</blockquote>
+为了打造新ip吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  一护饭团  
+##### 2241#       发表于 2024-10-14 11:51
+
+翻了半天，没有一个有用的攻略和 tips，果然不爱玩都在论坛。
+
+
+*****
+
+####  罗克萨斯  
+##### 2242#       发表于 2024-10-14 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66447073&amp;ptid=2140224" target="_blank">抽烟的猴 发表于 2024-10-14 11:46</a>
+真的卖不到500w吗
+
+虽然国内这几天风评褒姒，但是国外很不错啊，steam在线已经8.5w了 ...</blockquote>
+卖相不行，路人未必能个撑到爽的阶段。就说这个demo，如果没get到战斗系统的乐趣，根本不会预购，起码我在没打到牛头人迷宫前，是不想买的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  operatbig  
+##### 2243#       发表于 2024-10-14 11:54
+
+<blockquote>RookieTnT 发表于 2024-10-14 00:43
+玩到蝙蝠哥入队. 这游戏的队友觉醒是不是真的都那么儿戏. 仿佛黄油里面的女主, 被主角碰一下就飞起来了. 直 ...</blockquote>
+
+你玩到后面就知道了，就是给主角开的特权，后面还有更离谱的。
+
+*****
+
+####  莉可厨  
+##### 2244#       发表于 2024-10-14 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66447119&amp;ptid=2140224" target="_blank">一护饭团 发表于 2024-10-14 11:51</a>
+
+翻了半天，没有一个有用的攻略和 tips，果然不爱玩都在论坛。</blockquote>
+s1还算聊本体比较多的地方，nga蒸汽吧全是踩头的<img src="https://static.saraba1st.com/image/smiley/face/167.gif" referrerpolicy="no-referrer">不过这游戏本体不禁聊，估计一个月后该有的攻略都有了热度就下去了
+
+*****
+
+####  operatbig  
+##### 2245#       发表于 2024-10-14 11:58
+
+<blockquote>jxzeroga0 发表于 2024-10-14 10:59
+按照官方说法觉醒阿基态象征着迈出第一步的意志，主要也是为了和反派做对照吧，
+
+主角算是生死关头坚定对王 ...</blockquote>
+你想太多了，玩到后面就知道这觉醒就是很儿戏的开挂后门，谁帮主角谁就有权觉醒。
+

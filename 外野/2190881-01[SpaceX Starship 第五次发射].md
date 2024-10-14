@@ -3846,3 +3846,28 @@ mechazilla下面的那一付短一点的夹子是干什么用的?
 
 为什么最后被夹住的时候不是垂直的还有一点角度呢?
 
+
+*****
+
+####  灼眼的川川仔  
+##### 418#       发表于 2024-10-14 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66446911&amp;ptid=2190881" target="_blank">silverfoxz 发表于 2024-10-14 11:29</a>
+每次空X一有风吹草动泥潭就有不少人跳出来扯这么多有的没有，能不能等发挥实际作用再来吹啊，牢霉进入本世 ...</blockquote>
+还在画饼？还在没有实际作用是吧？f9是什么先打听清楚吧，基本航天领域形势都不懂吧
+
+*****
+
+####  longmarch5  
+##### 419#       发表于 2024-10-14 11:49
+
+ 本帖最后由 longmarch5 于 2024-10-14 11:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66446810&amp;ptid=2190881" target="_blank">zzzzzzzzzzz 发表于 2024-10-14 11:19</a>
+
+最明显的作用:
+
+太空实验室、太空工厂。特别是生物实验室，不论是辐照、无重力培养，都是能有飞跃的；
+
+另 ...</blockquote>
+全球1小时运输这个事情，货运的话缺乏这种需求，拿星舰做客运的话安全性还远远不够，即使是长2F这样设计安全性指标非常高的载人运载火箭，相比现在的大众交通工具，安全性也是**不如的
+

@@ -6614,3 +6614,14 @@ staff里一定有人看过别当哥的温泉回
 不玩二手市场，有没有懂的老哥锐评一下
 <img src="https://p.sda1.dev/19/08d4315d318167ee4853e3368701b0b0/CMP_20241014133106492.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Renes  
+##### 6545#       发表于 2024-10-14 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66447802&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-10-14 13:29</a>
+
+不就学妹一次吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是拐圣和桃花剑在主线剧情里一次都没有啊
+

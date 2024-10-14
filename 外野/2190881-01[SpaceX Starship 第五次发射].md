@@ -4153,3 +4153,31 @@ mechazilla下面的那一付短一点的夹子是干什么用的?</blockquote>
 
 确实很浪漫
 
+
+*****
+
+####  憂鬱臺灣烏龜  
+##### 444#       发表于 2024-10-14 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442784&amp;ptid=2190881" target="_blank">longmarch5 发表于 2024-10-13 21:23</a>
+
+欧洲人阿5就想着一次发射拼车打几个来降低成本，但是并不好使
+
+客户A的卫星现在已经出厂了他想尽快上天， ...</blockquote>
+这倒不是问题。你说的这是目前客户稀少的情况。发射价格便宜之后，客户不会是A、B、C这样的个位数客户，而是可能随时有上百个在排队，那么发射任务可以航班化，谁先来就先发射，甚至给钱多的优先发射。
+
+跟快递业一个道理，客户规模足够大了，服务企业就能做更精确的用户和服务分级。
+
+
+*****
+
+####  qqks  
+##### 445#       发表于 2024-10-14 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66447756&amp;ptid=2190881" target="_blank">madbird023 发表于 2024-10-14 13:22</a>
+
+我只能说你的想象力太贫乏了，我说拉到火星熔炼加工其实是最保守的，应该是在有可燃物的地方就地加工 ...</blockquote>
+星舰不要说火星，连去月球都吃力好吧。
+
+完全针对低轨特化的玩意。
+

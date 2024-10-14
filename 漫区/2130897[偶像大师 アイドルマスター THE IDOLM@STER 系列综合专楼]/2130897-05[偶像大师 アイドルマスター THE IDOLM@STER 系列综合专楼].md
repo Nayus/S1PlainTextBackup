@@ -501,3 +501,18 @@ solo3证明不用跳唱功瞬间上来了<img src="https://static.saraba1st.com/
 
 体力差是真的，看看跑完所有公演能不能有点进步吧
 
+
+*****
+
+####  joshua1990  
+##### 6576#       发表于 2024-10-14 18:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">是不是可以给9个中之人来个首秀vo da vi排行了
+
+*****
+
+####  BQlin  
+##### 6577#       发表于 2024-10-14 18:41
+
+晚场该补一下冠菊了，别又是泳装
+

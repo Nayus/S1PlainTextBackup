@@ -13247,3 +13247,21 @@ mujica的世界观似乎是统合了相当多的东西，五个人同调出来�
 
 2024-10-14 17:59 上传
 
+
+*****
+
+####  PDQ4  
+##### 24812#       发表于 2024-10-14 18:39
+
+ppp十周年 武道馆
+
+我还以为会是邦邦十周年呢
+
+<img src="https://img.saraba1st.com/forum/202410/14/183925z4u57m04gpxx4r94.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (135.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-14 18:39 上传
+

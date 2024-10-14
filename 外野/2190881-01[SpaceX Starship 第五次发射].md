@@ -4690,3 +4690,15 @@ https://www.cnki.com.cn/Article/CJFDTotal-JSSJ199805016.htm</blockquote>
 已经有天文学家在畅想L2的50米甚至百米直径天文望远镜了</blockquote>
 【【双语】既然有了星舰何不梦想更大？50米或百米级液体镜面空间望远镜-哔哩哔哩】 https://b23.tv/bnFoBxw
 
+
+*****
+
+####  cyberalogo  
+##### 487#       发表于 2024-10-14 18:44
+
+笑死，发现居然已经有欧洲科幻作品迫不及待畅想星舰被用在火星城的场面。
+
+<img src="https://p.sda1.dev/19/877cd8c2853c31270a276c444c85a29f/image.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/19/4d9d0b4fdf705f54f3e0b0dff8181113/image.jpg" referrerpolicy="no-referrer">
+

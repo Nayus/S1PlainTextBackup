@@ -4237,3 +4237,36 @@ mechazilla下面的那一付短一点的夹子是干什么用的?</blockquote>
 
 你要有这么大量的需求，为什么不造复用火箭呢？</blockquote>对啊，我的假设就是回收火箭+航班化发射啊。
 
+
+*****
+
+####  longmarch5  
+##### 451#       发表于 2024-10-14 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66448026&amp;ptid=2190881" target="_blank">憂鬱臺灣烏龜 发表于 2024-10-14 13:56</a>
+
+对啊，我的假设就是回收火箭+航班化发射啊。</blockquote>
+你看我回的人说什么啊，他说的是大运力一次性
+
+*****
+
+####  憂鬱臺灣烏龜  
+##### 452#       发表于 2024-10-14 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66448043&amp;ptid=2190881" target="_blank">longmarch5 发表于 2024-10-14 13:58</a>
+
+你看我回的人说什么啊，他说的是大运力一次性</blockquote>
+我知道他说的是阿里亚纳，但我回你的是你说的因为客户需求发射期不同很难拼车的问题。
+
+用回收火箭降低发射成本，本身就能带来客户群规模增长，在这种情况下发射期的协同不再困难。
+
+*****
+
+####  ranger_wang  
+##### 453#       发表于 2024-10-14 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66447756&amp;ptid=2190881" target="_blank">madbird023 发表于 2024-10-14 13:22</a>
+
+我只能说你的想象力太贫乏了，我说拉到火星熔炼加工其实是最保守的，应该是在有可燃物的地方就地加工 ...</blockquote>
+可燃物？就地加工？地球上的氧气是蓝细菌几亿年光合作用的结果，外太空你上哪找氧化剂？
+

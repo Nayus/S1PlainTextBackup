@@ -8390,3 +8390,21 @@ steam好评率92%算崩？有一半差评还是因为pc版优化问题
 
 2024-10-14 13:49 上传
 
+
+*****
+
+####  RookieTnT  
+##### 2277#       发表于 2024-10-14 14:04
+
+没有洗点 我直接风灵月影修改了 问题不大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  katern  
+##### 2278#       发表于 2024-10-14 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66447863&amp;ptid=2140224" target="_blank">operatbig 发表于 2024-10-14 13:37</a>
+
+看了看我normal难度全支线全羁绊剧情全看17小时就已经到8月18了，这真的能撑到80甚至100小时？这100小时不 ...</blockquote>
+媒体评测一般都打得慢吧，但我hard难度全清支线8月15，steam就31个小时了
+

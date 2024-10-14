@@ -3311,3 +3311,18 @@ nga那边有人用来踩汪q的天q三十五话的脚本井上美绪在我印象
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  粉儿alice  
+##### 2530#       发表于 2024-10-14 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66450326&amp;ptid=2162354" target="_blank">没有爱就看不见 发表于 2024-10-14 18:43</a>
+nga那边有人用来踩汪q的天q三十五话的脚本井上美绪在我印象里是现在q娃的女性作家阵中最稳的一个，上限可能 ...</blockquote>
+井上美绪在q娃里表现最好的时候是抓心 毕竟那时候有人猜她是敏鬼的女儿
+之后负责剧场版春之嘉年华什么玩意啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+天空和宠物只能说她是编剧里比较负责 矮子拔尖一位了
+而且她从来没有担任过任何系列构成 真当上后续的系列构成 情况难说
+
+q娃一直没有什么好p和好编剧 而且女性比例也越来越高 现在来点脑子正常的士大夫也算奢求了<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+

@@ -9236,3 +9236,11 @@ hard难度下敌人先手基本等于死，而吃屎一般的地图战斗手感�
 
 到海港了 这个路边小商人咋随便卖+9速度的护符 数值突然那么膨胀了么 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  onemoment  
+##### 2367#       发表于 2024-10-15 05:21
+
+那个三龙和后面那个boss是真的菜，hard压10多级直接一回合无伤带走
+

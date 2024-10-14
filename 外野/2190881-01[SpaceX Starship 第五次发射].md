@@ -4516,3 +4516,26 @@ https://www.cnki.com.cn/Article/CJFDTotal-JSSJ199805016.htm</blockquote>
 一级重型助推器被筷子夹住后，底部火箭发动机喷口上面一个地方一直在往外喷火是什么问题？ ...</blockquote>
 看官方返图，那个喷火口是一个排多余液氧的喷口
 
+
+*****
+
+####  Xenor  
+##### 474#       发表于 2024-10-14 16:15
+
+同造型体积的乳白色长筒在万米高空上横着飞隐隐约约还反着光经常见到，但这种竖着倒飞并精准降落的还是第一次见<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">确实厉害
+
+*****
+
+####  Xenor  
+##### 475#       发表于 2024-10-14 16:16
+
+同造型体积的乳白色长筒在万米高空上横着飞隐隐约约还反着光经常见到，但这种竖着倒飞并精准降落的还是第一次见<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">确实厉害
+
+<img src="https://img.saraba1st.com/forum/202410/14/160837w3xo8z8z3g3g8m9n.jpg" referrerpolicy="no-referrer">
+
+<strong>hoshinoyume.JPG</strong> (245.41 KB, 下载次数: )
+
+下载附件
+
+2024-10-14 16:08 上传
+

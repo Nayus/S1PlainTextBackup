@@ -3603,3 +3603,56 @@ LEO太阳能电站啊，从板子到微波传输都没有物理学困难了</blo
 
 F9一级回收三次点火两次转身，最后一刻对地速度才会降到0，实现这些才能叫同一水平。
 
+
+*****
+
+####  stevenzero  
+##### 397#       发表于 2024-10-14 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66446240&amp;ptid=2190881" target="_blank">laotoutou 发表于 2024-10-14 10:26</a>
+空叉的确很强，但是不能拿leo的运力直接等价其他高轨高价值载荷。毕竟老马为了省钱，二级也是梅林改改， ...</blockquote>
+明天凌晨的欧罗巴快帆，算得上高轨高质量载荷吗？
+
+*****
+
+####  阿梓Azusa  
+##### 398#       发表于 2024-10-14 10:39
+
+前几年这边吹的吹的过于先进的空天飞机呢？不见踪影了？
+
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 399#       发表于 2024-10-14 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66446369&amp;ptid=2190881" target="_blank">阿梓Azusa 发表于 2024-10-14 10:39</a>
+前几年这边吹的吹的过于先进的空天飞机呢？不见踪影了？</blockquote>
+去年说trre引擎试车成功了
+真造出来还得个5、6年吧
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  laotoutou  
+##### 400#       发表于 2024-10-14 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66446327&amp;ptid=2190881" target="_blank">stevenzero 发表于 2024-10-14 10:35</a>
+明天凌晨的欧罗巴快帆，算得上高轨高质量载荷吗？</blockquote>
+我又没说他不发射这种载荷<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">只是提到他的入轨质量，应该记得下大多数是低轨。毕竟猎鹰九gto也就是长7水平。
+
+
+*****
+
+####  鲜血秋叶  
+##### 401#       发表于 2024-10-14 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66446369&amp;ptid=2190881" target="_blank">阿梓Azusa 发表于 2024-10-14 10:39</a>
+前几年这边吹的吹的过于先进的空天飞机呢？不见踪影了？</blockquote>
+空天飞机最大的问题是可回收火箭成功后他怎么定位
+
+要是星舰真的完成了理论上的运载能力和可复用性，一个leo十几吨的飞机给自己什么定位就很麻烦了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

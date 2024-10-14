@@ -8428,3 +8428,32 @@ hard难度还得修改个回蓝，这屌游戏加强版本百分百有回蓝续�
 
 加强版会加的东西：1 地图收集品回蓝 2经验获取强化 3随时存档 4 洗点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kuarwbwe  
+##### 2281#       发表于 2024-10-14 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66448174&amp;ptid=2140224" target="_blank">变老的大二 发表于 2024-10-14 14:15</a>
+加强版会加的东西：1 地图收集品回蓝 2经验获取强化 3随时存档 4 洗点</blockquote>
+再加个战斗中随时可读档。这作没配好队进战斗想重开调整配队太麻烦了。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  zero4166  
+##### 2282#       发表于 2024-10-14 14:18
+
+可用角色里真就找不出一个好看的妹子，不理解粉毛兽人妹为什么不能入队
+
+
+*****
+
+####  Dreammask  
+##### 2283#       发表于 2024-10-14 14:26
+
+三眼妹大概在啥时候能入队，可用角色里看她最顺眼了
+
+顺便打到小镇后支线一下子就多了，新P从未有的时间管理压力扑面而来
+

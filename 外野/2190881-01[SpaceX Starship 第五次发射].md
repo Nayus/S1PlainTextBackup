@@ -4295,3 +4295,39 @@ mechazilla下面的那一付短一点的夹子是干什么用的?</blockquote>
 
 产品的改进是要以潜在回报率来支撑的。完全竞争的市场中，客户有需求，供应商可以改进，但改进成本需要以商业订单来支撑、摊薄。中国现在吃亏就在于：自1990年代以来，美国强行封锁中国商业火箭发射市场，规定任何使用美国技术的卫星，都不许用中国运载火箭发射。由于世界上多数卫星都使用美国技术，中国的商业运载火箭基本只剩下国内需求，以及极少数完全使用中国技术的卫星发射市场。结果就是市场太小，技术迭代改进的动力和资金投入不足，长期以来无法走激进的技术迭代路线。
 
+
+*****
+
+####  艾诺琳  
+##### 456#       发表于 2024-10-14 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66447568&amp;ptid=2190881" target="_blank">ranger_wang 发表于 2024-10-14 12:56</a>
+
+差不多得了。地球环境最糟糕的地方都比火星环境最好的地方优越百倍。地球上开采难度最高的矿产都比小行星 ...</blockquote>
+地球上最好的材料也要克服地球引力圈
+
+你打算用星舰发射几百万吨钢材去建设火星殖民地？
+
+*****
+
+####  鲜血秋叶  
+##### 457#       发表于 2024-10-14 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66448023&amp;ptid=2190881" target="_blank">瓦格雷 发表于 2024-10-14 13:56</a>
+但是UI上的燃料槽 已经空了</blockquote>
+ui上确实是这样的，当时让人觉得控燃料特别准。
+但是现在看下来大部分涉及到这块的都在说燃料应该是有富裕的，可能那个ui本身不是实时传感器传回的数据而是做了一个模拟
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+
+*****
+
+####  madbird023  
+##### 458#       发表于 2024-10-14 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66447937&amp;ptid=2190881" target="_blank">qqks 发表于 2024-10-14 13:46</a>
+
+星舰不要说火星，连去月球都吃力好吧。</blockquote>
+现在是，但以后可不一定超重V2和现在的可不是一个东西了
+

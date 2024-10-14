@@ -196,3 +196,40 @@ e站有人传高桥正典那个本了，目录是这样
 
 —— 来自 OnePlus PGKM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Unlight  
+##### 6540#         楼主| 发表于 2024-10-13 08:54
+
+<blockquote>无证madam 发表于 2024-10-12 20:21
+透鸽不透鸽无所谓 跟迷光这组回照搬活动一样 氼有一个照搬天尘的单回就行了 ...</blockquote>
+天尘只做了半拉好像（
+
+*****
+
+####  无证madam  
+##### 6541#       发表于 2024-10-13 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66438438&amp;ptid=2130897" target="_blank">Unlight 发表于 2024-10-13 08:54</a>
+
+天尘只做了半拉好像（</blockquote>
+做一半做全估计都那个样 也没指望过玻璃钢这种空镜头都不会用的东西能有什么大能
+
+*****
+
+####  RhmBWT_Wu  
+##### 6542#       发表于 2024-10-14 01:59
+
+e站有人传高桥正典那个本了，目录是这样
+<img src="https://p.sda1.dev/19/1fcd1baeaaa017fa47847e715dcf670a/CMP_20241014015848765.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  BQlin  
+##### 6543#       发表于 2024-10-14 14:24
+
+这次还没开始就翻车
+

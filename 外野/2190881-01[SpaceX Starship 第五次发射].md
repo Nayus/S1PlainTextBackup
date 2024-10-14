@@ -4730,3 +4730,24 @@ https://www.cnki.com.cn/Article/CJFDTotal-JSSJ199805016.htm</blockquote>
 
 <img src="https://img.saraba1st.com/forum/202410/14/212903o4is4rzpx4mppzip.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madbird023  
+##### 490#       发表于 2024-10-14 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66451309&amp;ptid=2190881" target="_blank">亚尔迪8424 发表于 2024-10-14 21:30</a>
+
+来源微博，火星基地 美帝做不到的。只有我们能行</blockquote>
+这个问题马一龙在后边的直播里也说了，但很明显是在外圈关机后才出的问题
+
+*****
+
+####  madbird023  
+##### 491#       发表于 2024-10-14 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66450389&amp;ptid=2190881" target="_blank">薄皮破船 发表于 2024-10-14 18:51</a>
+
+文化标签就是这样的，你搜登月舱啥的现在出来也是阿波罗为主········ ...</blockquote>
+最常跟阿波罗出现的meme不是电影厂摄影棚吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，这个真没办法，不管真假只有阿波罗留下了飞船影响
+

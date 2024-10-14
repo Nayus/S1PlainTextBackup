@@ -117,3 +117,35 @@
 
 不知道有没有动画党考虑猜一下凶手。
 
+
+*****
+
+####  oi99o  
+##### 971#       发表于 2024-10-14 22:16
+
+【【新画面】抚物语 TV版OP动画】 [https://www.bilibili.com/video/BV185mjYsEYo/](https://www.bilibili.com/video/BV185mjYsEYo/) 真有你的哦沙发套
+
+<img src="https://img.saraba1st.com/forum/202410/14/221503xud8sjobj38ot1jg.png" referrerpolicy="no-referrer">
+
+<strong>{77D7F9A2-116F-4723-8BDE-5E1A28931C4E}.png</strong> (138.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-14 22:15 上传
+
+<img src="https://img.saraba1st.com/forum/202410/14/221519rtssrgg3x4butz41.png" referrerpolicy="no-referrer">
+
+<strong>{BDEB1AB2-6B27-46B8-8331-7B95CB581E65}.png</strong> (90.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-14 22:15 上传
+
+<img src="https://img.saraba1st.com/forum/202410/14/221624x67gvpg3hp6pgwic.png" referrerpolicy="no-referrer">
+
+<strong>{06A89D59-7A40-4F69-A688-409D9DBDF878}.png</strong> (66.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-14 22:16 上传
+

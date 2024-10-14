@@ -4539,3 +4539,23 @@ https://www.cnki.com.cn/Article/CJFDTotal-JSSJ199805016.htm</blockquote>
 
 2024-10-14 16:08 上传
 
+
+*****
+
+####  冷静先找时光机  
+##### 476#       发表于 2024-10-14 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66448372&amp;ptid=2190881" target="_blank">ranger_wang 发表于 2024-10-14 14:38</a>
+
+裂解甲烷？甲烷裂解的结果是氢和碳，你打算用这两个当氧化剂？而且你以为小行星上甲烷很多吗？ ...</blockquote>
+为什么要氧化剂？大部分用于冶金的矿物本来就是氧化物、硫化物，缺也是缺还原剂，你要氧化剂难不成还是想靠化石燃料提供能源？
+
+*****
+
+####  opened  
+##### 477#       发表于 2024-10-14 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66446911&amp;ptid=2190881" target="_blank">silverfoxz 发表于 2024-10-14 11:29</a>
+每次空X一有风吹草动泥潭就有不少人跳出来扯这么多有的没有，能不能等发挥实际作用再来吹啊，牢霉进入本世 ...</blockquote>
+10年前也是这么说猎鹰9的，5年前也是这么说星链的，到现在还不长记性，再过5年星舰成熟了就轮到spacex的下一代项目“等实用了再吹”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

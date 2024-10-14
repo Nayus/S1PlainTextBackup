@@ -8918,3 +8918,14 @@ Atlus又又又又背刺了，把数据都放在试玩版上，黑客用试玩版
 
 DLC内容在哪领的
 
+
+*****
+
+####  icoywt  
+##### 2332#       发表于 2024-10-14 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66450779&amp;ptid=2140224" target="_blank">modkingr 发表于 2024-10-14 19:54</a>
+
+DLC内容在哪领的</blockquote>
+天鹅绒之间左侧的沙发上，有个金色箱子，都在那里面
+

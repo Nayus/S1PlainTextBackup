@@ -805,3 +805,11 @@ demo 10.14
 
 —— 来自 vivo V2303A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  RainbowSealife  
+##### 89#       发表于 2024-10-14 20:54
+
+<blockquote>本作也为玩家提供了更灵活的闪避方式：无锁定状态下，按下闪避键将触发传统的翻滚动作，适合快速拉开距离，无敌帧比较明显。 而锁定状态下，玩家可以进行滑步闪避，动作更加流畅，位移距离短但速度极快。不过无敌帧也相对较短，更适合规避起手明显的攻击，尤其是在面对 BOSS 时，滑步可以有效避开大部分快慢刀。 游戏中拥有跳跃功能，但需要按住奔跑再符合按下摇杆，这种设计明显是更多用于探索环境，但其快速响应能力仍然在特定情况下提供额外机动性。 </blockquote>无锁定时翻滚，锁定时滑步，奔跑时按摇杆跳跃，有点抽象，现在在玩堕落之主，按摇杆奔跑时再按A跳跃就很难受了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

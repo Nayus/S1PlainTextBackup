@@ -3413,3 +3413,70 @@ LEO太阳能电站啊，从板子到微波传输都没有物理学困难了</blo
 还是那句话，美国只有spx蓝源两家，但是中国靠谱的也有三四家，都是丢轨道垃圾，我们能以量取胜，明年商业 ...</blockquote>
 量??  空叉1家就能把全世界拉一起 秒4遍了 
 
+
+*****
+
+####  文武不同道  
+##### 385#       发表于 2024-10-14 08:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66445385&amp;ptid=2190881" target="_blank">七层嘉影 发表于 2024-10-14 08:44</a>
+
+比起运载火箭，牢美还在吃老本并领先世界的是深空探测吧（</blockquote>
+这个估计基础物理没有颠覆性突破，怎么也追不上了，毕竟别人的探测器都飞出去50多年了。。。
+
+
+*****
+
+####  tianruilee  
+##### 386#       发表于 2024-10-14 09:03
+
+来点官图。
+
+<img src="https://img.saraba1st.com/forum/202410/14/090017v6rkyohii9krmjkc.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_0917.JPG</strong> (342.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-14 09:00 上传
+
+<img src="https://img.saraba1st.com/forum/202410/14/090029mqpnjgs73zngsq73.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_0918.JPG</strong> (608.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-14 09:00 上传
+
+<img src="https://img.saraba1st.com/forum/202410/14/090035yw2wo9a2c26y99uz.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_0919.JPG</strong> (274.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-14 09:00 上传
+
+<img src="https://img.saraba1st.com/forum/202410/14/090044zh5684dd1d6h6f8p.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_0920.JPG</strong> (1.06 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-14 09:00 上传
+
+<img src="https://img.saraba1st.com/forum/202410/14/090104x86tvbvl856c326r.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_0921.JPG</strong> (1.69 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-14 09:01 上传
+
+<img src="https://img.saraba1st.com/forum/202410/14/090239uavjv2gfcaf2jct4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0923.jpeg</strong> (1.38 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-14 09:02 上传
+

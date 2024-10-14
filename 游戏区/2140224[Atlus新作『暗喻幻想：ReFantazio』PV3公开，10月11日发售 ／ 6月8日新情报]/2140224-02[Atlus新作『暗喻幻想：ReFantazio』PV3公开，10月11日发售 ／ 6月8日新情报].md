@@ -7962,3 +7962,62 @@ P5的觉醒就是那种，能猜到这里他/她要觉醒了，但是配合音�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  莉可厨  
+##### 2234#       发表于 2024-10-14 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66446942&amp;ptid=2140224" target="_blank">windtrack 发表于 2024-10-14 11:32</a>
+说到系统被砍，村里买的鱼饵我直到歌姬入队都没找到哪能钓鱼…
+
+论坛助手,iPhone ...</blockquote>
+可能还没打到出海吧，铁甲战车在海上开的时候可以去找灰雨钓鱼
+
+*****
+
+####  巨馍蘸酱  
+##### 2235#       发表于 2024-10-14 11:41
+
+这游戏应该推翻重做了好几次吧，起码做了8年还这么点完成度，开发进度肯定是出了问题的，我觉得还没买的可以等加强版了
+
+
+*****
+
+####  抽烟的猴  
+##### 2236#       发表于 2024-10-14 11:43
+
+<blockquote>kuarwbwe 发表于 2024-10-14 11:13
+他家是真的该整合一下开发经验了。现在他家能用虚幻4了，能做出无缝大地图探索了，这作抄了隔壁法老控有了 ...</blockquote>
+之前讨论过很多次了，扩圈扩销量
+
+*****
+
+####  windtrack  
+##### 2237#       发表于 2024-10-14 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66446979&amp;ptid=2140224" target="_blank">莉可厨 发表于 2024-10-14 11:37</a>
+
+可能还没打到出海吧，铁甲战车在海上开的时候可以去找灰雨钓鱼</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">昨天正好停在出海前，一出海解锁了
+
+*****
+
+####  抽烟的猴  
+##### 2238#       发表于 2024-10-14 11:46
+
+<blockquote>kuarwbwe 发表于 2024-10-14 11:24
+那我只能说网传桥野桂第一次把这游戏推翻重做的时候他家就应该把这游戏砍了，还能少亏点。现在这个网络风 ...</blockquote>
+真的卖不到500w吗
+
+虽然国内这几天风评褒姒，但是国外很不错啊，steam在线已经8.5w了
+
+*****
+
+####  UnrealApartheid  
+##### 2239#       发表于 2024-10-14 11:47
+
+话说加强版如果有的话你们认为会定名为什么呢？
+
+Metaphor: The Simile（暗喻幻想：明喻版）还是Metaphor: King's Guard（暗喻幻想：王之护卫版）？
+

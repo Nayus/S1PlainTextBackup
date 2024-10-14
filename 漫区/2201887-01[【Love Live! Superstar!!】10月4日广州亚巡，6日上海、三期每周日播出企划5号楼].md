@@ -2278,3 +2278,29 @@ x：abukero_rainbow
 
 薇恩好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 219#       发表于 2024-10-14 21:31
+
+[https://x.com/imaziro/status/1845383137536377230](https://x.com/imaziro/status/1845383137536377230)
+
+リエラのうた01、02絵コンテでした　マルちゃんが謎の宇宙生命体みたいになってしまいましたがマルチーズのつもりです
+<img src="https://p.sda1.dev/19/c666cf3755bf6b35bafaa3a47d328321/20241014_212913.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/5e90df99e87406cf2e482b86e07ccebc/20241014_212907.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/wato_0913/status/1845464914967789879](https://x.com/wato_0913/status/1845464914967789879)
+
+『ラブライブ!スーパースター!!』3期2話、動画で参加しました！
+
+ラブライブの仕事に携わることができて嬉しいです！
+
+今後の展開も楽しみです!!
+<img src="https://p.sda1.dev/19/f2edda6a8318e285b99c8cd19d8cdb65/20241014_212930.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/KISAYU_/status/1845485901495115834](https://x.com/KISAYU_/status/1845485901495115834)
+
+『ラブライブ！スーパースター!!3期』2話に登場する『Bubble Rise』の衣装デザインとステージのイメージボードを制作させて頂きました🫧（3人描いたイラストはまた改めてアップします…すみません）
+<img src="https://p.sda1.dev/19/aad1c4629dfd658b8fcf166b713d8918/20241014_212923.jpg" referrerpolicy="no-referrer">
+

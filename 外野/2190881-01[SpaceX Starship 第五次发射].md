@@ -4713,3 +4713,20 @@ https://www.cnki.com.cn/Article/CJFDTotal-JSSJ199805016.htm</blockquote>
 笑死，发现居然已经有欧洲科幻作品迫不及待畅想星舰被用在火星城的场面。</blockquote>
 文化标签就是这样的，你搜登月舱啥的现在出来也是阿波罗为主········
 
+
+*****
+
+####  亚尔迪8424  
+##### 489#       发表于 2024-10-14 21:30
+
+来源微博，火星基地 美帝做不到的。只有我们能行
+
+9a11a493b6f66778b31b1bb0cf4ea281_007TNyq5gy1hulp2yg0ptj30k60f2tao.jpg
+(73.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-14 21:29 上传
+
+<img src="https://img.saraba1st.com/forum/202410/14/212903o4is4rzpx4mppzip.jpg" referrerpolicy="no-referrer">
+

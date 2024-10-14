@@ -13318,3 +13318,14 @@ schecter的两把琴和一把贝斯还没放出消息么，好急，太想买来
 
 睦头那把琴在黄色小鱼平台有定制版 （非广告
 
+
+*****
+
+####  紫吹兰  
+##### 24819#         楼主| 发表于 2024-10-14 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66450929&amp;ptid=2159415" target="_blank">香雨香香 发表于 2024-10-14 20:26</a>
+
+schecter的两把琴和一把贝斯还没放出消息么，好急，太想买来当大号手办了</blockquote>
+狗琴是在动画完结后才开卖的，schecter这几把应该也差不多
+

@@ -3741,3 +3741,50 @@ F9一级回收三次点火两次转身，最后一刻对地速度才会降到0�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  Lzzyf  
+##### 410#       发表于 2024-10-14 11:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">离人类进入太空如同做飞机一样还差几步
+
+*****
+
+####  laotoutou  
+##### 411#       发表于 2024-10-14 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66446524&amp;ptid=2190881" target="_blank">stevenzero 发表于 2024-10-14 10:53</a>
+不算重猎，F9在23年打了7发GTO高轨，不少了。
+说少是因为需求少而不是做不到。</blockquote>
+我什么时候说过空叉不能打高轨了。不要对空输出好不好。
+看了下24年射的，超过百分之九十的投掷重量是星链这种低轨。
+我国这种，差不多1/3是低轨。低轨去和地球同步轨道太阳同步轨道比质量，本来就对高轨不公平。
+
+马斯克优势是有，我只是是说不至于什么把后面加起来乘四。他主要投送的轨道本来就能量需要少。
+
+*****
+
+####  zzzzzzzzzzz  
+##### 412#       发表于 2024-10-14 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66446623&amp;ptid=2190881" target="_blank">lilisipis 发表于 2024-10-14 11:02</a>
+
+话说这玩意有啥大作用吗，人类又飞不出太阳系，星际采矿又亏本。就是降低射卫星成本？ ...</blockquote>
+最明显的作用:
+
+太空实验室、太空工厂。特别是生物实验室，不论是辐照、无重力培养，都是能有飞跃的；
+
+另外个成熟后的可能性，全球1小时到，目前最长航线新加坡飞纽约，15000公里也能1个多小时到。
+
+
+*****
+
+####  瓦格雷  
+##### 413#       发表于 2024-10-14 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66446437&amp;ptid=2190881" target="_blank">laotoutou 发表于 2024-10-14 10:45</a>
+
+我又没说他不发射这种载荷只是提到他的入轨质量，应该记得下大多数是低轨。 ...</blockquote>
+不是不能射  是高轨高价载荷太少   现在人类甚至连低轨低价的载荷都要靠老马自己挖掘才吃得饱   还跑量 哈
+

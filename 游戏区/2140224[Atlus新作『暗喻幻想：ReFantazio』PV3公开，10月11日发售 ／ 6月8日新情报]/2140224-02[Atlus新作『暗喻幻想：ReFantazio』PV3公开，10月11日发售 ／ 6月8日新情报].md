@@ -7883,3 +7883,59 @@ P5的觉醒就是那种，能猜到这里他/她要觉醒了，但是配合音�
 
 说了这么多还是那个问题，他们到底怎么想的要给这作整这么疯狂的宣发？我是觉得他们正常宣发，卖个一两百万给核心粉丝绝对不会亏。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ky7913  
+##### 2226#       发表于 2024-10-14 11:16
+
+<blockquote>kuarwbwe 发表于 2024-10-14 11:13
+他家是真的该整合一下开发经验了。现在他家能用虚幻4了，能做出无缝大地图探索了，这作抄了隔壁法老控有了 ...</blockquote>
+因为这个是新ip，想扩圈吧
+
+*****
+
+####  晨汐听雨  
+##### 2227#       发表于 2024-10-14 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66446432&amp;ptid=2140224" target="_blank">Rushtime33 发表于 2024-10-14 10:45</a>
+第二章某个迷宫捡的，去教堂净化可以选择减金钱消耗或者加消耗加伤害的分支。 ...</blockquote>
+好的谢谢
+
+*****
+
+####  Khellendros  
+##### 2228#       发表于 2024-10-14 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66446752&amp;ptid=2140224" target="_blank">kuarwbwe 发表于 2024-10-14 11:13</a>
+
+他家是真的该整合一下开发经验了。现在他家能用虚幻4了，能做出无缝大地图探索了，这作抄了隔壁法老控有了 ...</blockquote>
+开发周期这么长成本肯定不会低了
+
+
+*****
+
+####  罗克萨斯  
+##### 2229#       发表于 2024-10-14 11:23
+
+看新闻说零组已经开始做新作了，这总该用上虚幻5了吧，真没借口了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  kuarwbwe  
+##### 2230#       发表于 2024-10-14 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66446791&amp;ptid=2140224" target="_blank">Khellendros 发表于 2024-10-14 11:17</a>
+
+开发周期这么长成本肯定不会低了</blockquote>
+那我只能说网传桥野桂第一次把这游戏推翻重做的时候他家就应该把这游戏砍了，还能少亏点。现在这个网络风评铁上不了500W，而且为了最后多卖出的那几份花的宣发费，折合一下，最后怕不是还要亏掉裤衩。<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卡拉德利姆  
+##### 2231#       发表于 2024-10-14 11:26
+
+真能上吗 0组现在的情况有点像隔壁B社 老人老东西老办法用的太顺手卖的也不错 不见得有全面换新的动力<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+

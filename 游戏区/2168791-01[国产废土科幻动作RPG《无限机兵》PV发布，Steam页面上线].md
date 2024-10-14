@@ -901,3 +901,15 @@ demo 10.14
 
 最后还是学了下弹反才过去的，之前其实还挺期待这游戏的，不过现在有点解毒了，各方面问题有点多，暂时也不想打这么难的魂系游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zzy516232108  
+##### 97#       发表于 2024-10-15 06:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66452513&amp;ptid=2168791" target="_blank">oahcihs 发表于 2024-10-15 01:02</a>
+那个双剑也有抽象的一面
+重击不蓄力还挺好的 能自动向前位移攻击
+一蓄满力攻击动作完全变了 变成多段的  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">那搞了半天还得是片手
+

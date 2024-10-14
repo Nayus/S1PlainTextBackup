@@ -6761,3 +6761,14 @@ staff里一定有人看过别当哥的温泉回
 有个问题就是这个任务怎么样算完成，我把惊叹号该清的都清了结果后来的结算画面还是告诉我fail了 ...</blockquote>
 你是差了儿子控猎兵去抓残党那段吧，前面全部完成后才能触发这段剧情的
 
+
+*****
+
+####  maojiashu  
+##### 6558#       发表于 2024-10-14 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66449775&amp;ptid=2160194" target="_blank">隔壁老黄 发表于 2024-10-14 17:26</a>
+
+空轨说实话太过水到渠成，没啥意思</blockquote>
+有人喜欢水到渠成 有人喜欢贵圈真乱
+

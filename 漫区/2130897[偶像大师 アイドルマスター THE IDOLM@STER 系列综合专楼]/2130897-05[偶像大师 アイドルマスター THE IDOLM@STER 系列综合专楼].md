@@ -411,3 +411,58 @@ solo都挺差的，合唱时候就还行（看来确实就是热舞体力太差�
 
 这家伙是表演系的天才吧
 
+
+*****
+
+####  BQlin  
+##### 6565#       发表于 2024-10-14 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66449018&amp;ptid=2130897" target="_blank">raimouse 发表于 2024-10-14 15:52</a>
+
+录音室版本不是miya最厉害么
+
+现场拉了么？上班没看呢</blockquote>
+喘得最厉害
+
+*****
+
+####  鳄鱼头  
+##### 6566#       发表于 2024-10-14 17:42
+
+紫云清夏，录音棚战神<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  joshua1990  
+##### 6567#       发表于 2024-10-14 17:59
+
+晚场开了呀
+
+*****
+
+####  raimouse  
+##### 6568#       发表于 2024-10-14 18:02
+
+看了下夜场,感觉miya光速就没体力了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  joshua1990  
+##### 6569#       发表于 2024-10-14 18:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">体力杂鱼辣妹
+
+*****
+
+####  馬斯特壺  
+##### 6570#       发表于 2024-10-14 18:05
+
+清夏这首前半段能听出来唱得不错，然后跳着跳着就开始断气了，体力多跳应该会上来的
+
+*****
+
+####  raimouse  
+##### 6571#       发表于 2024-10-14 18:07
+
+考虑到清夏在游戏里面VO都快要垫底了DA一柱擎天,问就是还原人设<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

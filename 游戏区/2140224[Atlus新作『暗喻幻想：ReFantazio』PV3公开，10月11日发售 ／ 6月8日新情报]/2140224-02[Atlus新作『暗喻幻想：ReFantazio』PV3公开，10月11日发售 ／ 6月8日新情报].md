@@ -8367,3 +8367,26 @@ steam好评率92%算崩？有一半差评还是因为pc版优化问题
 
 看了看我normal难度全支线全羁绊剧情全看17小时就已经到8月18了，这真的能撑到80甚至100小时？这100小时不会是king难度全收集吧，都不特别说明，现在这样写评测的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Eric_方歌阙  
+##### 2275#       发表于 2024-10-14 13:49
+
+玩了一点，个人最大的问题是没厨上任何一名角色…感觉要坑了，好亏<img src="https://static.saraba1st.com/image/smiley/face/117.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  windtrack  
+##### 2276#       发表于 2024-10-14 13:49
+
+这新宿也太树了，迷宫和BGM万全复刻，掉落品都一样，甚至还有FOE，就差个死龙了
+
+<img src="https://img.saraba1st.com/forum/202410/14/134956k3793b9d9cd9uj9k.png" referrerpolicy="no-referrer">
+
+<strong>9674d11e337fe74e604effd0e9dc5b9f.png</strong> (397.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-14 13:49 上传
+

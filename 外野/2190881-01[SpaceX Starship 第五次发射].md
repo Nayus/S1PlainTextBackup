@@ -4181,3 +4181,59 @@ mechazilla下面的那一付短一点的夹子是干什么用的?</blockquote>
 
 完全针对低轨特化的玩意。
 
+
+*****
+
+####  憂鬱臺灣烏龜  
+##### 446#       发表于 2024-10-14 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443017&amp;ptid=2190881" target="_blank">nanayashikijp 发表于 2024-10-13 21:48</a>
+
+长九目前还有个问题是中国航天规划中的任务没有一个是需要长九这个级别的火箭执行的任务，目前规划中的任务 ...</blockquote>
+国内也有卫星星座计划的。
+
+如果卫星终端（含天线）能小到10寸pad大小，提供mbps级的稳定数据接入服务，带宽价格不超出现有移动通信业务的10倍，那么对于在荒野区域活动的用户，不管是旅游、运输、工程、勘探、国防还是其他商业活动来说，都非常有吸引力。
+
+说来这是个新兴市场，过去没搞起来（比如铱星）是因为30年前的价格还太高，功能太单调（纯语音服务）所以失败了，但现在的回收火箭+卫星卫星星座的业务模式已经证明其可行性。那么中国在这方面加大投入跟进是可想而知的。
+
+
+*****
+
+####  Суслов  
+##### 447#       发表于 2024-10-14 13:54
+
+吹火星乃至小行星带开发还是太早了，先把近地轨道和地月系开发的理念搞懂，我看星链2期就挺好
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  longmarch5  
+##### 448#       发表于 2024-10-14 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66447869&amp;ptid=2190881" target="_blank">憂鬱臺灣烏龜 发表于 2024-10-14 13:38</a>
+
+这倒不是问题。你说的这是目前客户稀少的情况。发射价格便宜之后，客户不会是A、B、C这样的个位数客户， ...</blockquote>
+你要有这么大量的需求，为什么不造复用火箭呢？
+
+*****
+
+####  瓦格雷  
+##### 449#       发表于 2024-10-14 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66447713&amp;ptid=2190881" target="_blank">鲜血秋叶 发表于 2024-10-14 13:16</a>
+
+从航天爱好者那里收集的信息来看，助推剂没有用完，有很大的冗余
+
+—— 来自 鹅球 v3.1.88.3-alpha ...</blockquote>
+但是UI上的燃料槽 已经空了 
+
+*****
+
+####  憂鬱臺灣烏龜  
+##### 450#       发表于 2024-10-14 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66448020&amp;ptid=2190881" target="_blank">longmarch5 发表于 2024-10-14 13:56</a>
+
+你要有这么大量的需求，为什么不造复用火箭呢？</blockquote>对啊，我的假设就是回收火箭+航班化发射啊。
+

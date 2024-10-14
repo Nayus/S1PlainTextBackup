@@ -7641,3 +7641,20 @@ https://x.com/nistick023/status/1845357067026170151
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉这游戏重做了几轮好多废料，关系者那里每个人还都有喜好物品，那我送礼系统在哪里呢
 
+
+*****
+
+####  Lokad  
+##### 2203#       发表于 2024-10-14 09:18
+
+废料留着做威力加强版呢，首日卖100万肯定会出的。
+
+*****
+
+####  石中剑二  
+##### 2204#       发表于 2024-10-14 09:21
+
+<blockquote>Khellendros 发表于 2024-10-14 07:03
+武僧的合题技光属性大伤害，几下就打死了</blockquote>
+两个武僧是吗？
+

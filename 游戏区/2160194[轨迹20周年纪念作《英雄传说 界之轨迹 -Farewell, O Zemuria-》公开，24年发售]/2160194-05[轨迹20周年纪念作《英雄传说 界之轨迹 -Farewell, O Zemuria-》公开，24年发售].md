@@ -6698,3 +6698,13 @@ staff里一定有人看过别当哥的温泉回
 
 算命婆看手相被里爷的感情线吓到了
 
+
+*****
+
+####  Kusabi  
+##### 6553#       发表于 2024-10-14 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66448875&amp;ptid=2160194" target="_blank">jacket 发表于 2024-10-14 15:37</a>
+算命婆看手相被里爷的感情线吓到了</blockquote>
+桃花剑成官设，实锤falcom员工有上贴吧
+

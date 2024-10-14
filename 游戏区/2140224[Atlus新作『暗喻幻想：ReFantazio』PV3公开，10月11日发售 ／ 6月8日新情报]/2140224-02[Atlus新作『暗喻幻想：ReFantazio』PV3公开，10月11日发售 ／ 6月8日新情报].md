@@ -8668,3 +8668,18 @@ hard难度还得修改个回蓝，这屌游戏加强版本百分百有回蓝续�
 
 前中期金钱镖吊打一切，哪里憋屈了，还不耗蓝
 
+
+*****
+
+####  kuarwbwe  
+##### 2305#       发表于 2024-10-14 15:41
+
+算了，我还是魔走到死得了。懒得换了。主要我对灵魂骇客有兴趣。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  人畜无害沃特碧  
+##### 2306#       发表于 2024-10-14 15:43
+
+金钱镖教堂净化选加伤害的，太变态了，hard模式也砍瓜切菜<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

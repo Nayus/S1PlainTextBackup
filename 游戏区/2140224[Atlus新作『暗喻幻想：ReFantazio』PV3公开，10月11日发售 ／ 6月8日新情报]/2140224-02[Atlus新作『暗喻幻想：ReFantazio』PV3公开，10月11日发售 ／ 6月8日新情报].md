@@ -7939,3 +7939,26 @@ P5的觉醒就是那种，能猜到这里他/她要觉醒了，但是配合音�
 
 真能上吗 0组现在的情况有点像隔壁B社 老人老东西老办法用的太顺手卖的也不错 不见得有全面换新的动力<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kuarwbwe  
+##### 2232#       发表于 2024-10-14 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66446854&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-10-14 11:23</a>
+
+看新闻说零组已经开始做新作了，这总该用上虚幻5了吧，真没借口了
+
+—— 来自 S1Fun ...</blockquote>
+他家我觉得是最没理由不用虚幻5的日厂之一，因为他家已经能用虚幻4了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  windtrack  
+##### 2233#       发表于 2024-10-14 11:32
+
+说到系统被砍，村里买的鱼饵我直到歌姬入队都没找到哪能钓鱼…
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

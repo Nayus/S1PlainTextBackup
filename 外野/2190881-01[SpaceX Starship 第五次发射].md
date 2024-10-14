@@ -3371,3 +3371,13 @@ LEO太阳能电站啊，从板子到微波传输都没有物理学困难了</blo
 好奇请教个问题，为什么tg的导弹和icbm这么强为什么运载火箭会有差距呢？这两个的技术差距大吗？tg好钢用 ...</blockquote>
 ICBM怎么强了？一院搞东41都没整利索几年
 
+
+*****
+
+####  瓦格雷  
+##### 381#       发表于 2024-10-14 08:25
+
+[https://www.bilibili.com/video/BV1kN2rYCEBo](https://www.bilibili.com/video/BV1kN2rYCEBo)
+
+地面拍的助推从发射到回收的全过程 
+

@@ -4912,3 +4912,18 @@ CO2是说明火星表面是氧化性氛围的，意思就是在火星表面缺�
 
 以前法国人搞出了ITAR-free的卫星交给中国发射，也给美国人搅黄了
 
+
+*****
+
+####  LeonsCat  
+##### 504#       发表于 2024-10-15 05:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66452422&amp;ptid=2190881" target="_blank">longmarch5 发表于 2024-10-15 00:36</a>
+
+这是把元老院当猴子耍
+
+以前法国人搞出了ITAR-free的卫星交给中国发射，也给美国人搅黄了 ...</blockquote>
+那个就是明确耍猴啊。
+
+你髪的卫星，元老院不找你麻烦，ESA也会啊。
+

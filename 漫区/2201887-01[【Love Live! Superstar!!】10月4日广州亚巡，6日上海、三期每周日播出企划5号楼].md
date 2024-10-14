@@ -2231,3 +2231,11 @@ x：abukero_rainbow
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  sephal  
+##### 214#       发表于 2024-10-14 12:27
+
+铺垫了半集的高智商精于算计的人设，结果连自家C位风评很差这点都没意识到，论秒破功毁人设这点花田还是这么强<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

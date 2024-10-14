@@ -466,3 +466,38 @@ solo都挺差的，合唱时候就还行（看来确实就是热舞体力太差�
 
 考虑到清夏在游戏里面VO都快要垫底了DA一柱擎天,问就是还原人设<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  馬斯特壺  
+##### 6572#       发表于 2024-10-14 18:33
+
+solo3证明不用跳唱功瞬间上来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  raimouse  
+##### 6573#       发表于 2024-10-14 18:33
+
+不愧是学马第一录音室战神
+
+要不是先跳了万圣,感觉效果会更好
+
+*****
+
+####  joshua1990  
+##### 6574#       发表于 2024-10-14 18:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">真录音室战神了
+
+*****
+
+####  麻巳巳  
+##### 6575#       发表于 2024-10-14 18:34
+
+ 本帖最后由 麻巳巳 于 2024-10-14 18:36 编辑 
+
+这也没上来啊，不都是第二段就开始没气
+
+体力差是真的，看看跑完所有公演能不能有点进步吧
+

@@ -8408,3 +8408,23 @@ steam好评率92%算崩？有一半差评还是因为pc版优化问题
 看了看我normal难度全支线全羁绊剧情全看17小时就已经到8月18了，这真的能撑到80甚至100小时？这100小时不 ...</blockquote>
 媒体评测一般都打得慢吧，但我hard难度全清支线8月15，steam就31个小时了
 
+
+*****
+
+####  变老的大二  
+##### 2279#       发表于 2024-10-14 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66447694&amp;ptid=2140224" target="_blank">星野航 发表于 2024-10-14 13:14</a>
+
+你们是真的热爱论坛，这游戏hard一开攻略爽度不下于vv，整了半天还在围绕能不能上500w
+
+论坛助手,iPhone ...</blockquote>
+hard难度还得修改个回蓝，这屌游戏加强版本百分百有回蓝续航措施<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  变老的大二  
+##### 2280#       发表于 2024-10-14 14:15
+
+加强版会加的东西：1 地图收集品回蓝 2经验获取强化 3随时存档 4 洗点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

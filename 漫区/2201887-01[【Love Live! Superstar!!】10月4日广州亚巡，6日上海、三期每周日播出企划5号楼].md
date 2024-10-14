@@ -2328,3 +2328,11 @@ x：abukero_rainbow
 
 好像就半句+4个合唱吧，感觉如果不是需要展示画面可以从头合唱到尾，好歹是一期生毕业季OP，有位一期生看上去是留级了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  280041437  
+##### 223#       发表于 2024-10-14 23:37
+
+op分词这么少，星三后面剧情一定会弥补点吧（笑）
+

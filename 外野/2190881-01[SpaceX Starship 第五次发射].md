@@ -4822,3 +4822,30 @@ https://www.cnki.com.cn/Article/CJFDTotal-JSSJ199805016.htm</blockquote>
 </blockquote>
 你要不要先查一查火星表面的大气压强和温度是多少？然后根据理想气体状态方程算一算同样的体积下co2物质的量是多少？
 
+
+*****
+
+####  LeonsCat  
+##### 497#       发表于 2024-10-14 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66452073&amp;ptid=2190881" target="_blank">longmarch5 发表于 2024-10-14 23:18</a>
+
+你想想协和造了几架，赢利状况如何，最后有没有活下来，有没有后续机型 ...</blockquote>
+确实啊，所以说就算搞很可能还是得指望军队的订单，一小时全球部署，那只要在前进基地囤装备就可以了，甭管有没有钱囤装备，至少看上去比人和装备一起到处拉、一个茶壶盖对付三个茶壶好呗。
+
+另外为啥说JFK-SIN，其实一个关键就是确实实现了有效的节省时间。协和因为主要飞跨大西洋，和红眼航班比没有决定性优势。但是对于12+甚至16+小时的航班，实际上就是节省了一整天的时间。当然了，这也意味着这种亚轨道快速直达的价值只存在于东亚-美东，美西-西欧，西欧-东亚这三个航线。甚至说难听点，只涉及JFK, LHR, HKG, PVG, SIN, TYO, SFO, LAX这数得过来几个点之间飞（甚至都把CDG和FRA给去掉了，内陆）。
+
+*****
+
+####  LeonsCat  
+##### 498#       发表于 2024-10-14 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66452125&amp;ptid=2190881" target="_blank">ranger_wang 发表于 2024-10-14 23:26</a>
+
+你要不要先查一查火星表面的大气压强和温度是多少？然后根据理想气体状态方程算一算同样的体积下co2物质 ...</blockquote>
+？
+
+CO2是说明火星表面是氧化性氛围的，意思就是在火星表面缺的是还原剂（也就是燃料）而不是氧化剂。我为什么需要CO2？
+
+或者说，除了造渣和除碳外，为什么冶金需要氧气？
+

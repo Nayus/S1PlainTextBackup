@@ -9108,3 +9108,20 @@ hard越21级把砂虫打了，全靠贫贵哥二动断岩斩<img src="https://st
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这九月初剧情也太差了
 
+
+*****
+
+####  kuarwbwe  
+##### 2354#       发表于 2024-10-15 00:25
+
+ 本帖最后由 kuarwbwe 于 2024-10-15 00:28 编辑 
+
+这游戏演出太拉了。还有画面debuff。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+本来上铁甲战车那堆应该是一段小高潮，结果动画不够精彩，演出完全没有，整的我完全兴奋不起来。公路片本来有好多奇观，但是就一张贴图。其实这些奇观都够奇特的，但是不能像开放世界一样自由探索，总觉得缺点啥。在铁甲战车甲板呆着看战车奔驰四周景色流逝而过本来应该是很享受的事，但因为这个稀烂的画面完全兴奋不起来。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+我唯一有印象大场面的就是去打死灵法师的最后一段路给了王城一个大远景。
+还有打各种人类。这作美术最好的我觉得就是这些怪诞、凶恶又危险的人类了。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

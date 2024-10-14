@@ -4899,3 +4899,16 @@ CO2是说明火星表面是氧化性氛围的，意思就是在火星表面缺�
 所以这里还有一个问题，等于是要在中国发射美国火 ...</blockquote>
 公海发射，反正这玩意也不可能离城市几十公里内
 
+
+*****
+
+####  longmarch5  
+##### 503#       发表于 2024-10-15 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66452375&amp;ptid=2190881" target="_blank">多多天下 发表于 2024-10-15 00:25</a>
+
+公海发射，反正这玩意也不可能离城市几十公里内</blockquote>
+这是把元老院当猴子耍
+
+以前法国人搞出了ITAR-free的卫星交给中国发射，也给美国人搅黄了
+

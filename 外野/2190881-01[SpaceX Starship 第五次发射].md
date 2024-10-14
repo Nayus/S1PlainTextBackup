@@ -4795,3 +4795,30 @@ https://www.cnki.com.cn/Article/CJFDTotal-JSSJ199805016.htm</blockquote>
 
 倒是太空工厂、太空实验室的可能性更加？？？——后者臭老九就是属于添头，前者对产业附加值要求太高了。不过谁知道呢？
 
+
+*****
+
+####  longmarch5  
+##### 495#       发表于 2024-10-14 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66452053&amp;ptid=2190881" target="_blank">LeonsCat 发表于 2024-10-14 23:15</a>
+
+对于快速军事部署、对时效要求极高的商务客，还真未必。
+
+如果单人价格能拉到JFK-SIN商务舱的十倍以内，敢 ...</blockquote>
+你想想协和造了几架，赢利状况如何，最后有没有活下来，有没有后续机型
+
+
+*****
+
+####  ranger_wang  
+##### 496#       发表于 2024-10-14 23:26
+
+<blockquote>LeonsCat 发表于 2024-10-14 23:09
+这儿稍微翻译一下
+
+可燃物≈还原剂
+
+</blockquote>
+你要不要先查一查火星表面的大气压强和温度是多少？然后根据理想气体状态方程算一算同样的体积下co2物质的量是多少？
+

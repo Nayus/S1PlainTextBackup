@@ -9084,3 +9084,11 @@ hard越21级把砂虫打了，全靠贫贵哥二动断岩斩<img src="https://st
 
 后期多支线解锁的会复读无限超大群体万能boss怎么打啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">太变态了。
 
+
+*****
+
+####  onemoment  
+##### 2351#       发表于 2024-10-14 23:44
+
+虚幻蓄力+烈空斩 伤害是真高啊，还没上buff debuff猴戏直接就秒各种boss
+

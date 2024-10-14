@@ -6819,3 +6819,13 @@ staff里一定有人看过别当哥的温泉回
 <img src="https://p.sda1.dev/19/3d197191679b9874096b35d1c28bdf67/20241014_223436.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/19/6c6d0fa7b5d06fded047bfa5b7bd4d56/20241014_223433.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  benhawk  
+##### 6563#       发表于 2024-10-14 23:57
+
+<blockquote>qianoooo 发表于 2024-10-14 21:19
+吹一下法老控官方商城 海淘非常丝滑 除了要等人工订单其他价格算邮费和税都很厚道 出关也丝滑 ems到从寄出 ...</blockquote>
+是中文盘嘛
+

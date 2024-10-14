@@ -8519,3 +8519,36 @@ steam的cdk都涨价了淘宝
 —— 来自 鹅球 v3.1.91-alpha ...</blockquote>
 砍怪回蓝的设计搞成法师独占实在是搞笑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Khellendros  
+##### 2291#       发表于 2024-10-14 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66448468&amp;ptid=2140224" target="_blank">kuarwbwe 发表于 2024-10-14 14:49</a>
+
+还真是248了。
+
+看这架势可能真的路人评价还可以？</blockquote>
+steam评价还不错啊92%好评
+
+*****
+
+####  kuarwbwe  
+##### 2292#       发表于 2024-10-14 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66448567&amp;ptid=2140224" target="_blank">Khellendros 发表于 2024-10-14 14:59</a>
+
+steam评价还不错啊92%好评</blockquote>
+确实，而且这好评还是慢慢涨起来的。我看最低的时候只有89%好评。
+
+*****
+
+####  Khellendros  
+##### 2293#       发表于 2024-10-14 15:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66447863&amp;ptid=2140224" target="_blank">operatbig 发表于 2024-10-14 13:37</a>
+
+看了看我normal难度全支线全羁绊剧情全看17小时就已经到8月18了，这真的能撑到80甚至100小时？这100小时不 ...</blockquote>
+那你进度挺快的，我18小时才刚到海都
+

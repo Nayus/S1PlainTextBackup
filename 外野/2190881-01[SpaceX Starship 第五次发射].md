@@ -3549,3 +3549,14 @@ LEO太阳能电站啊，从板子到微波传输都没有物理学困难了</blo
 
 2024-10-14 09:55 上传
 
+
+*****
+
+####  qqks  
+##### 392#       发表于 2024-10-14 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66445434&amp;ptid=2190881" target="_blank">瓦格雷 发表于 2024-10-14 08:51</a>
+
+量??  空叉1家就能把全世界拉一起 秒4遍了</blockquote>
+参考电动汽车，我国国内这票民营航天追的速度是很快的
+

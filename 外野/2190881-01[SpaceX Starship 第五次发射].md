@@ -4494,3 +4494,14 @@ https://www.cnki.com.cn/Article/CJFDTotal-JSSJ199805016.htm</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  madbird023  
+##### 472#       发表于 2024-10-14 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66448279&amp;ptid=2190881" target="_blank">qqks 发表于 2024-10-14 14:28</a>
+
+参照自动驾驶，马斯克这样的天才也不见得全是对的。我国追的也紧，国内竞争环境更加激烈，需求也被马斯克 ...</blockquote>
+咱们说的好像不是一回事……不过美国当初的民间发射竞争也很激烈，光被nasa大**的公司就有三、四家吧，最后搞出东西的只有空叉和轨道科学，最后轨道科学更多转向卫星制造和国防业务后被诺格收购，所以竞争激烈不一定都能整出活来，国内的民间发射公司，我的观点就是给国家队锻炼人才，而不是真要搞什么民间发射
+

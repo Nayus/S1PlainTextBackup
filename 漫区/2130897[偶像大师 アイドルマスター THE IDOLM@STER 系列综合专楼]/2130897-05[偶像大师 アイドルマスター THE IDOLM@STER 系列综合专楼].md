@@ -278,3 +278,32 @@ e站有人传高桥正典那个本了，目录是这样
 
 至少，清夏的舞台最热闹（暂时)
 
+
+*****
+
+####  lunaticfool  
+##### 6550#       发表于 2024-10-14 15:14
+
+骷髅舞太作弊了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  joshua1990  
+##### 6551#       发表于 2024-10-14 15:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">牢广你等着 等会合唱曲看你发力！
+
+*****
+
+####  BQlin  
+##### 6552#       发表于 2024-10-14 15:16
+
+等下的团体曲该换一下万圣节吧，不想再见到泳装曲了
+
+*****
+
+####  麻巳巳  
+##### 6553#       发表于 2024-10-14 15:20
+
+凑美也还真就是三人唱功垫底的啊，我们学马士也要有自己的录音室战神+1
+

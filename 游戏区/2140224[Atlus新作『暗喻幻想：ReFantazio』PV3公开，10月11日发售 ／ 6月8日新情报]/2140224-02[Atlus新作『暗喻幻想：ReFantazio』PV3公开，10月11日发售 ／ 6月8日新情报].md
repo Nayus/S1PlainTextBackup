@@ -8610,3 +8610,40 @@ steam评价还不错啊92%好评</blockquote>
 没洗点也没随时存档？那不就跟smtv原版到加强版一个尿性吗坐等加强版了</blockquote>
 只有迷宫没有随时存档，但是迷宫你捡了蓝点道具，开了箱子都会有自动存档。这个其实属于人性化了但没完全人性化的设计。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  我是谁无名氏  
+##### 2300#       发表于 2024-10-14 15:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">等实体的时候先把demo玩了，后面没有洗点的功能吗，主角应该更倾向物理还是魔法一些更好
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  战术核辣条  
+##### 2301#       发表于 2024-10-14 15:24
+
+ 本帖最后由 战术核辣条 于 2024-10-14 15:25 编辑 
+
+主角最终特有阿基态专属技能是万能物理
+从这个角度推荐走力
+但是主角不走魔前中流程很憋<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+不过合体技能属性好像是和队友一起算的，总体影响不大
+
+—— 来自 nubia NX729J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  Khellendros  
+##### 2302#       发表于 2024-10-14 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66448762&amp;ptid=2140224" target="_blank">我是谁无名氏 发表于 2024-10-14 15:20</a>
+
+等实体的时候先把demo玩了，后面没有洗点的功能吗，主角应该更倾向物理还是魔法一些更好
+
+论坛助手,iPad ...</blockquote>
+都行，菜刀全程都挺强的，但是前期没啥适合当法师的队友，让主角主魔也行，就是中期法师太拉了，不过主角可以兼职下辅助，挂挂buff打打弱点，输出让队友来就是了。
+

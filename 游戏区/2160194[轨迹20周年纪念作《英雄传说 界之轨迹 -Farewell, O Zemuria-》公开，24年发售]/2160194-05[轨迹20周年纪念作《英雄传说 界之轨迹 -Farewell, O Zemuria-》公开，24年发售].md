@@ -6809,3 +6809,13 @@ staff里一定有人看过别当哥的温泉回
 
 二线JRPG能搞出终章这种水平的也就轨迹了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lxshhh  
+##### 6562#       发表于 2024-10-14 22:39
+
+<img src="https://p.sda1.dev/19/68dff05091fbee8e4d1a1c7db544ac79/20241014_223438.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/3d197191679b9874096b35d1c28bdf67/20241014_223436.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/6c6d0fa7b5d06fded047bfa5b7bd4d56/20241014_223433.jpg" referrerpolicy="no-referrer">
+

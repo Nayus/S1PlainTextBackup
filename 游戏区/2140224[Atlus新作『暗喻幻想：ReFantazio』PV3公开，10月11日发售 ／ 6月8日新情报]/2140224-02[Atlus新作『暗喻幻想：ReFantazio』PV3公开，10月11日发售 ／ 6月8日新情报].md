@@ -9008,3 +9008,18 @@ hard越21级把砂虫打了，全靠贫贵哥二动断岩斩<img src="https://st
 
 为什么要让番长当军师角色啊，这圣都剧情给我看麻了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  是谁的书画  
+##### 2342#       发表于 2024-10-14 22:36
+
+把商人的羁绊升最高了，每天一大早就有美丽大姐姐送零花钱的感觉好爽<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  check  
+##### 2343#       发表于 2024-10-14 22:39
+
+体验下来就台词对白水平来说吊打90%jrpg是没问题的，给游戏加分不少
+

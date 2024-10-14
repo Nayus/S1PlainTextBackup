@@ -9254,3 +9254,13 @@ hard难度下敌人先手基本等于死，而吃屎一般的地图战斗手感�
 
 —— 来自 nubia NX729J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  SuNR1sE364  
+##### 2369#       发表于 2024-10-15 07:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66452764&amp;ptid=2140224" target="_blank">johanliebert 发表于 2024-10-15 03:49</a>
+人均40级的时候想打赢coop沙虫委托有什么逃课方法吗</blockquote>
+开局凹巴登回避阵然后给对面上满回避debuff用剑士合体技砍，带个有坏识破的武僧会比较稳，队友能抗住一发aoe不死就行
+

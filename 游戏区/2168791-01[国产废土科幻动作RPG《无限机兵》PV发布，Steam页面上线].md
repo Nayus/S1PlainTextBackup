@@ -791,3 +791,17 @@ demo 10.14
 
 打完了就感觉没啥亮点 都是魂魂魂老一套 属于是最后能安全做完就可以了的一档  顺便切盾牌的手感太屎了
 
+
+*****
+
+####  oahcihs  
+##### 88#       发表于 2024-10-14 20:11
+
+不玩了 净死了
+那个二阶段 来回跑还得追着他打 
+真从别的游戏学到精髓了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+明明会说话 出招挨打不带哼一声呢 我从没见过这么塔夫的主角！
+明明没有体力槽 比有还难受 像别的游戏里负重超了似的  
+
+—— 来自 vivo V2303A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

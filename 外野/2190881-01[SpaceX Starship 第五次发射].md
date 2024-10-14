@@ -3499,3 +3499,53 @@ LEO太阳能电站啊，从板子到微波传输都没有物理学困难了</blo
 比起运载火箭，牢美还在吃老本并领先世界的是深空探测吧（</blockquote>
 2028年发射的天问三号如果成功就在火星探测上反超美国了
 
+
+*****
+
+####  longmarch5  
+##### 389#       发表于 2024-10-14 09:52
+
+<img src="https://img.saraba1st.com/forum/202410/14/095244btdtc9yscc7w7cky.jpg" referrerpolicy="no-referrer">
+
+<strong>005ueeahly1hulk5gklvuj31hp0u079j.jpg</strong> (199.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-14 09:52 上传
+
+*****
+
+####  2017.05.04  
+##### 390#       发表于 2024-10-14 09:54
+
+已经放回发射座上了
+
+*****
+
+####  机吉斯卡  
+##### 391#       发表于 2024-10-14 09:55
+
+【为保成功回收，SpaceX留了好多推进剂】细心的群友注意到，根据箭体结冰的高度，可见刚接住的星舰一级仍然留有不少推进剂。可见为了这次成功回收，SpaceX预留了大量推进剂用于反推过程，而且从第5次和第4次发射时序来看，一级的关机和各项节点都有所提前，都是为这次回收留足裕量，当然结果也很好。
+
+有人说这和直播画面不太一致，直播画面显示是推进剂已经耗光，但可能直播画面的推进剂显示是预计的推进剂消耗，而非实际的贮箱内推进剂状态。
+
+后续真正进入带载阶段后，SpaceX势必会减少残余推进剂，最大化运力水平，应该是理论上被捕获瞬间消耗掉所有推进剂，或者仅有很少的推进剂剩余。
+
+#SpaceX星舰进行第五次试飞##航天爱好者网[超话]#
+
+<img src="https://img.saraba1st.com/forum/202410/14/095528hp7pbxnd3ufadmax.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4954.jpeg</strong> (234.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-14 09:55 上传
+
+<img src="https://img.saraba1st.com/forum/202410/14/095528e0qfezeeuwqj5ejb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4955.jpeg</strong> (172.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-14 09:55 上传
+

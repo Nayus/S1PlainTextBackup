@@ -8330,3 +8330,20 @@ s1还算聊本体比较多的地方，nga蒸汽吧全是踩头的不过这游戏
 
 这游戏难度又不高，也没什么错过要素，正常人都还在打吧，我刚打完第一个迷宫
 
+
+*****
+
+####  2015年入股市  
+##### 2271#       发表于 2024-10-14 13:11
+
+正经商店可以批量购买，但是路边小贩只能一个个买
+
+*****
+
+####  星野航  
+##### 2272#       发表于 2024-10-14 13:14
+
+你们是真的热爱论坛，这游戏hard一开攻略爽度不下于vv，整了半天还在围绕能不能上500w<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

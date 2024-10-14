@@ -6563,3 +6563,13 @@ staff里一定有人看过别当哥的温泉回
 
 羁绊2同人图<img src="https://p.sda1.dev/19/d74ff24d1399f52021b737e93c8d83fc/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  隔壁老黄  
+##### 6540#       发表于 2024-10-14 13:12
+
+说起来梵是主线被告白最多的轨迹男主吧，神马克洛斯贝尔咸湿警察和帝国桃花剑太弱了<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

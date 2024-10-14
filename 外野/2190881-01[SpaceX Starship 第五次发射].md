@@ -4413,3 +4413,36 @@ ui上确实是这样的，当时让人觉得控燃料特别准。
 https://www.cnki.com.cn/Article/CJFDTotal-JSSJ199805016.htm</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qqks  
+##### 466#       发表于 2024-10-14 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66448151&amp;ptid=2190881" target="_blank">憂鬱臺灣烏龜 发表于 2024-10-14 14:12</a>
+
+导弹是国防需求，属于刚需，只要能力指标（射程、荷载能力）够了，性价比低一些也没问题。但运载火箭属于 ...</blockquote>
+参照汽车
+
+中国一国的需求就等于欧洲加美国
+
+而且还有一大票发展中国家因为政治因素被美国封锁呢，够大了。
+
+中国航天近几十年来发展速度绝对不算慢的，马斯克也只能是美国佬运气好摇出了一个南非ssr
+
+*****
+
+####  憂鬱臺灣烏龜  
+##### 467#       发表于 2024-10-14 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66448458&amp;ptid=2190881" target="_blank">qqks 发表于 2024-10-14 14:48</a>
+
+参照汽车
+
+中国一国的需求就等于欧洲加美国</blockquote>
+差不多是这意思，但火箭方面中国市场没有在汽车领域那么大的份额比例。
+
+毕竟汽车方面，中国人均收入突破一万美元后，中国汽车市场占全世界的比例是高于中国人口占世界比例的，且中国有基本完整的自主知识产权和解决方案。
+
+但在卫星市场方面各国都以政府需求的订单为主，商业的卫星通信市场占比不大。而第三世界国家的政府主导投资的卫星发射一般很难绕过美国技术。
+

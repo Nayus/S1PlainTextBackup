@@ -8487,3 +8487,35 @@ steam的cdk都涨价了淘宝
 
 打到现在强烈感觉就是队友入队的顺序不对劲，前期需要法师结果塞进来一个大力哥番长和一个肉盾一个贼，后期物理队成型了开始法师大放送
 
+
+*****
+
+####  人畜无害沃特碧  
+##### 2288#       发表于 2024-10-14 14:49
+
+一开始以为应该是各种职业自由搭配
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">结果实际上还是根据上级职业的前置要求去刷阿基态等级
+
+*****
+
+####  kuarwbwe  
+##### 2289#       发表于 2024-10-14 14:49
+
+还真是248了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+看这架势可能真的路人评价还可以？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+
+*****
+
+####  变老的大二  
+##### 2290#       发表于 2024-10-14 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66448195&amp;ptid=2140224" target="_blank">kuarwbwe 发表于 2024-10-14 14:18</a>
+
+再加个战斗中随时可读档。这作没配好队进战斗想重开调整配队太麻烦了。
+
+—— 来自 鹅球 v3.1.91-alpha ...</blockquote>
+砍怪回蓝的设计搞成法师独占实在是搞笑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

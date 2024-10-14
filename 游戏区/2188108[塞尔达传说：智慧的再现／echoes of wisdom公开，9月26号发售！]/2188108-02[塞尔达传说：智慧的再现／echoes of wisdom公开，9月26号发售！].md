@@ -1932,3 +1932,23 @@ document.getElementById('flv_ALj').innerHTML=("");
 
 一周目通关了都没解锁机关系统。完了看一下进度，所有复制品刚好只差一个解锁系统的
 
+
+*****
+
+####  wthall  
+##### 1656#       发表于 2024-10-14 14:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">我也打完了，四平八稳，有几个谜题卡住了急的团团转，但是总体而言，还是有股意犹未尽的感觉，希望再多来2个迷宫。
+
+另外最终战挺快乐的，基本上全程都在睡觉
+
+<img src="https://img.saraba1st.com/forum/202410/14/145029vhjhjr3d5j656aad.png" referrerpolicy="no-referrer">
+
+<strong>qqjietu.png</strong> (89.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-14 14:50 上传
+
+现在可以去看看速通表演了
+

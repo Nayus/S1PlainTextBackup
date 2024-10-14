@@ -9220,3 +9220,11 @@ hard难度下敌人先手基本等于死，而吃屎一般的地图战斗手感�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  johanliebert  
+##### 2365#       发表于 2024-10-15 03:49
+
+人均40级的时候想打赢coop沙虫委托有什么逃课方法吗<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+

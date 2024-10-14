@@ -13310,3 +13310,11 @@ wsd越自信越吓人<img src="https://static.saraba1st.com/image/smiley/face201
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442224&amp;ptid=2159415" target="_blank">NODY 发表于 2024-10-13 20:19</a></blockquote>
 schecter的两把琴和一把贝斯还没放出消息么，好急，太想买来当大号手办了
 
+
+*****
+
+####  Sherrycat  
+##### 24818#       发表于 2024-10-14 21:21
+
+睦头那把琴在黄色小鱼平台有定制版 （非广告
+

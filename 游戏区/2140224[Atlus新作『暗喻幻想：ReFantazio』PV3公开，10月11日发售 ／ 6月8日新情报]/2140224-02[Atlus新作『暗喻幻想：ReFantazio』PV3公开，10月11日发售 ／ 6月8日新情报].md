@@ -8812,3 +8812,16 @@ Atlus又又又又背刺了，把数据都放在试玩版上，黑客用试玩版
 
 我寻思阿特拉斯和d加密犯冲啊
 
+
+*****
+
+####  Asukalangley33  
+##### 2321#       发表于 2024-10-14 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66449526&amp;ptid=2140224" target="_blank">八汰乌 发表于 2024-10-14 16:55</a>
+
+Atlus又又又又背刺了，把数据都放在试玩版上，黑客用试玩版exe把正式版的D加密给绕过去了 ...</blockquote>
+当时看到DEMO容量超大就有人提可能会这样破解来着<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+结果没几天就被捅穿了
+

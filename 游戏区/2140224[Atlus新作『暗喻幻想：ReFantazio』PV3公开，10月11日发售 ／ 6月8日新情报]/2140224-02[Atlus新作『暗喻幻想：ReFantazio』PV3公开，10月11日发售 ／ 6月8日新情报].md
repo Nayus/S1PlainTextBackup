@@ -8940,3 +8940,18 @@ DLC内容在哪领的</blockquote>
 后面有个塔比这里还爽</blockquote>
 刚刚半个小时刷了100w，心满意足的离开了。
 
+
+*****
+
+####  真空管  
+##### 2334#       发表于 2024-10-14 20:23
+
+hard越21级把砂虫打了，全靠贫贵哥二动断岩斩<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chenzhi11  
+##### 2335#       发表于 2024-10-14 20:26
+
+30小时终于打完第四个城所有支线
+

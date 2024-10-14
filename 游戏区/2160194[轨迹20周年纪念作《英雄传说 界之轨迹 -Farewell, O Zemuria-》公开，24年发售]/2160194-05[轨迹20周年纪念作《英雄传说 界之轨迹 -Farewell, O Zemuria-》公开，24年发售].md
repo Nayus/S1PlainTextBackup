@@ -6656,3 +6656,14 @@ staff里一定有人看过别当哥的温泉回
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">昨天玩到黑暗街救火，跑到夜店那里，发觉我穿着各种赛车服，还有暴露三点泳衣，感觉我更像是小姐
 
+
+*****
+
+####  无动于衷  
+##### 6549#       发表于 2024-10-14 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66448630&amp;ptid=2160194" target="_blank">chris1987 发表于 2024-10-14 15:04</a>
+
+昨天玩到黑暗街救火，跑到夜店那里，发觉我穿着各种赛车服，还有暴露三点泳衣，感觉我更像是小姐 ...</blockquote>
+有个问题就是这个任务怎么样算完成，我把惊叹号该清的都清了结果后来的结算画面还是告诉我fail了
+

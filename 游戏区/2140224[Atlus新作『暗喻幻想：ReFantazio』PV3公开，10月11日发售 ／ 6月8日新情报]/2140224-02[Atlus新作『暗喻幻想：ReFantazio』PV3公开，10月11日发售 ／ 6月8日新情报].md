@@ -8552,3 +8552,61 @@ steam评价还不错啊92%好评</blockquote>
 看了看我normal难度全支线全羁绊剧情全看17小时就已经到8月18了，这真的能撑到80甚至100小时？这100小时不 ...</blockquote>
 那你进度挺快的，我18小时才刚到海都
 
+
+*****
+
+####  ky7913  
+##### 2294#       发表于 2024-10-14 15:10
+
+<blockquote>Khellendros 发表于 2024-10-14 15:03
+那你进度挺快的，我18小时才刚到海都</blockquote>
+我18小时才到小镇
+
+*****
+
+####  ky7913  
+##### 2295#       发表于 2024-10-14 15:11
+
+ 本帖最后由 ky7913 于 2024-10-14 15:13 编辑 
+
+看错，编辑一下
+
+*****
+
+####  windhawind2  
+##### 2296#       发表于 2024-10-14 15:13
+
+没洗点也没随时存档？那不就跟smtv原版到加强版一个尿性吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">坐等加强版了
+
+*****
+
+####  Khellendros  
+##### 2297#       发表于 2024-10-14 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66448695&amp;ptid=2140224" target="_blank">windhawind2 发表于 2024-10-14 15:13</a>
+
+没洗点也没随时存档？那不就跟smtv原版到加强版一个尿性吗坐等加强版了</blockquote>
+随时存档倒是没啥，迷宫里自动存档很频繁，基本不太会丢进度
+
+
+*****
+
+####  SuNR1sE364  
+##### 2298#       发表于 2024-10-14 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66447973&amp;ptid=2140224" target="_blank">windtrack 发表于 2024-10-14 13:49</a>
+这新宿也太树了，迷宫和BGM万全复刻，掉落品都一样，甚至还有FOE，就差个死龙了
+
+ ...</blockquote>
+关底还真是龙<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这段太情怀了，从上层迷宫下到新宿一直到boss完全1：1复刻
+
+*****
+
+####  kuarwbwe  
+##### 2299#       发表于 2024-10-14 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66448695&amp;ptid=2140224" target="_blank">windhawind2 发表于 2024-10-14 15:13</a>
+
+没洗点也没随时存档？那不就跟smtv原版到加强版一个尿性吗坐等加强版了</blockquote>
+只有迷宫没有随时存档，但是迷宫你捡了蓝点道具，开了箱子都会有自动存档。这个其实属于人性化了但没完全人性化的设计。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

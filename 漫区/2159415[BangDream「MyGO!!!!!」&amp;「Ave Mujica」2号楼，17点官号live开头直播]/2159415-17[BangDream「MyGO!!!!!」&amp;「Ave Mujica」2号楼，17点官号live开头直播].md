@@ -13201,3 +13201,17 @@ mujica的世界观似乎是统合了相当多的东西，五个人同调出来�
 
 隐约有一种全员-制作人-全员这种同调流程的观感
 
+
+*****
+
+####  PDQ4  
+##### 24809#       发表于 2024-10-14 15:12
+
+如果从剧本是祥子操刀的角度来考虑挺吓人的
+
+虽然基本上只是设定，实际的舞台演出是为了映照全员
+
+不过13集喵梦问祥子为什么起爱的名字很有意思，祥子到底看到了多少<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+也可能设定给出来后每个人都回家去写小剧本，祥子负责整合润色<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

@@ -7633,3 +7633,11 @@ https://x.com/nistick023/status/1845357067026170151
 
 桥野终究还是懦了，传统勾中林林总总的剧情问题全都放着不解决，直接舞台剧路径依赖了
 
+
+*****
+
+####  DancingAndy  
+##### 2202#       发表于 2024-10-14 09:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉这游戏重做了几轮好多废料，关系者那里每个人还都有喜好物品，那我送礼系统在哪里呢
+

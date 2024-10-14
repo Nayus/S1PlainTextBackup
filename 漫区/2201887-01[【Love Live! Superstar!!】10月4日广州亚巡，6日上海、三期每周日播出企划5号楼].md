@@ -2182,3 +2182,14 @@ B8C387FE71819CEDC4ACF82DE7A2607D.jpg
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  ViyViy  
+##### 210#       发表于 2024-10-14 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66444739&amp;ptid=2201887" target="_blank">离心 发表于 2024-10-14 02:00</a>
+
+一期和恋那么针锋相对，在入队的时候不还是乖乖的叫恋恋了（当然也有恋的自身原因）可可是只要你愿意当偶 ...</blockquote>
+主要是目前VN也没表态对偶像的看法且让可可知晓<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有种大手紧急避险的感觉，毕竟开头已经暴走过了
+

@@ -8985,3 +8985,26 @@ hard越21级把砂虫打了，全靠贫贵哥二动断岩斩<img src="https://st
 
 怎么说呢 真的很有旅行感 很好
 
+
+*****
+
+####  卡拉德利姆  
+##### 2339#       发表于 2024-10-14 21:44
+
+傻逼atlus 你多搞两个自动档位会死啊
+迷宫里大退读档读错直接给我把自动档覆盖了<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  真空管  
+##### 2340#       发表于 2024-10-14 21:49
+
+有没有人知道被动那个同系统加成触发条件是当前的职业还是这个技能原来的职业
+
+*****
+
+####  Whalouse  
+##### 2341#       发表于 2024-10-14 21:50
+
+为什么要让番长当军师角色啊，这圣都剧情给我看麻了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

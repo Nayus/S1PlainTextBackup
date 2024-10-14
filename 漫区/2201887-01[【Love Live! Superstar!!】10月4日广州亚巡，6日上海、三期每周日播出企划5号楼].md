@@ -2304,3 +2304,11 @@ x：abukero_rainbow
 『ラブライブ！スーパースター!!3期』2話に登場する『Bubble Rise』の衣装デザインとステージのイメージボードを制作させて頂きました🫧（3人描いたイラストはまた改めてアップします…すみません）
 <img src="https://p.sda1.dev/19/aad1c4629dfd658b8fcf166b713d8918/20241014_212923.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  plazum  
+##### 220#       发表于 2024-10-14 21:49
+
+当ChatGPT成精并试图扮演学园偶像.jpg
+

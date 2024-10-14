@@ -8712,3 +8712,14 @@ hard难度还得修改个回蓝，这屌游戏加强版本百分百有回蓝续�
 哪个装备？</blockquote>
 第二章（水井）支线迷宫得到的小贩装备，教堂净化可以选择丢钱一半或者双倍丢钱双倍伤害。
 
+
+*****
+
+####  2015年入股市  
+##### 2310#       发表于 2024-10-14 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66448174&amp;ptid=2140224" target="_blank">变老的大二 发表于 2024-10-14 14:15</a>
+
+加强版会加的东西：1 地图收集品回蓝 2经验获取强化 3随时存档 4 洗点</blockquote>
+好像没有怪物图鉴
+

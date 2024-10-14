@@ -6543,3 +6543,15 @@ staff里一定有人看过别当哥的温泉回
 
 高速婆婆也是jrpg常客了 如龙7里也有
 
+
+*****
+
+####  Falcomfans  
+##### 6538#       发表于 2024-10-14 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66445034&amp;ptid=2160194" target="_blank">jacket 发表于 2024-10-14 07:06</a>
+
+台词里写着喝粥绝配揚げパン，我愣了一会才看明白画面里泡的是油条</blockquote>
+
+换一个角度还可以看到油条飞在碗上。
+

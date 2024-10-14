@@ -3241,3 +3241,22 @@ bg线也搞完了 现在该好好包主线饺子了吧<img src="https://static.s
 
 好在没有joker那样的反派，让彩羽在precure的使命和恋爱之间取舍
 
+
+*****
+
+####  Yeaha123  
+##### 2522#       发表于 2024-10-14 00:11
+
+ 本帖最后由 Yeaha123 于 2024-10-14 00:47 编辑 
+
+阿悟的知识还挺重要，不然都打不出硬直
+
+*****
+
+####  Parahure  
+##### 2523#       发表于 2024-10-14 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66443517&amp;ptid=2162354" target="_blank">待宵 发表于 2024-10-13 22:44</a>
+海贼王要停播了，深受大友喜爱的柴田会不会因为这个空挡杀回Q娃棚</blockquote>
+好啊，我要看血流成河，反正q娃已经这样了不怕更乱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

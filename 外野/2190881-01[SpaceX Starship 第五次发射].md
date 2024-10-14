@@ -3583,3 +3583,23 @@ LEO太阳能电站啊，从板子到微波传输都没有物理学困难了</blo
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  laotoutou  
+##### 395#       发表于 2024-10-14 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66445434&amp;ptid=2190881" target="_blank">瓦格雷 发表于 2024-10-14 08:51</a>
+量??  空叉1家就能把全世界拉一起 秒4遍了</blockquote>
+空叉的确很强，但是不能拿leo的运力直接等价其他高轨高价值载荷。毕竟老马为了省钱，二级也是梅林改改，其实是个低轨特化
+
+
+*****
+
+####  stevenzero  
+##### 396#       发表于 2024-10-14 10:32
+
+直上直下回收，全程不关机。有这些特征就和F9一级回收差距很大。
+
+F9一级回收三次点火两次转身，最后一刻对地速度才会降到0，实现这些才能叫同一水平。
+

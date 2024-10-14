@@ -8734,3 +8734,14 @@ hard难度还得修改个回蓝，这屌游戏加强版本百分百有回蓝续�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.89
 
+
+*****
+
+####  yangkaim4  
+##### 2312#       发表于 2024-10-14 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66449050&amp;ptid=2140224" target="_blank">空气先生 发表于 2024-10-14 15:54</a>
+
+第二章（水井）支线迷宫得到的小贩装备，教堂净化可以选择丢钱一半或者双倍丢钱双倍伤害。 ...</blockquote>
+了解，还没打到那
+

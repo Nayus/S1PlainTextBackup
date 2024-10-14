@@ -1752,3 +1752,78 @@ B7089 ​​​
 
 —— 来自 vivo V2309A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  東雲絵名  
+##### 1626#         楼主| 发表于 2024-10-14 22:32
+
+【漏史】就这智力
+
+<img src="https://img.saraba1st.com/forum/202410/14/223246phu9dfddo0ntzf03.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (80.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-14 22:32 上传
+
+<img src="https://img.saraba1st.com/forum/202410/14/223251mus1rs92fwf2wt11.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (46.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-14 22:32 上传
+
+*****
+
+####  東雲絵名  
+##### 1627#         楼主| 发表于 2024-10-14 22:35
+
+【乐】随便一点开就是美帝配平亩，怎么好意思装成女宝妈的[笑哈哈][笑哈哈]
+
+<img src="https://img.saraba1st.com/forum/202410/14/223454e5wuz5wznjun5nrj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (43.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-14 22:34 上传
+
+<img src="https://img.saraba1st.com/forum/202410/14/223459b770a0p1xa9xn3t3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (111.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-14 22:34 上传
+
+<img src="https://img.saraba1st.com/forum/202410/14/223504l3snji3dhszcigko.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (105.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-14 22:35 上传
+
+*****
+
+####  東雲絵名  
+##### 1628#         楼主| 发表于 2024-10-14 22:35
+
+<img src="https://img.saraba1st.com/forum/202410/14/223528jibie1ppectcgg8z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (74.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-14 22:35 上传
+
+*****
+
+####  東雲絵名  
+##### 1629#         楼主| 发表于 2024-10-14 22:36
+
+【我】前脚挚友一生一世一起走，后脚你懂什么他们只是朋友，xx才是真couple！我说男酮不是你们当师生的借口，我说哥们你清醒一点你同桌是真的想和你深入交流！（因为不同圈吃的类型不同，我在互联网上没有亲友，只有对手）
+

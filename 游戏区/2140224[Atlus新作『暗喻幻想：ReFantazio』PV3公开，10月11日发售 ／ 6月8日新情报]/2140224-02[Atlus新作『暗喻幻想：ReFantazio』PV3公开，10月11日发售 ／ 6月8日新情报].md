@@ -7532,3 +7532,11 @@ https://x.com/nistick023/status/1845357067026170151
 
 —— 来自 OPPO PGBM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  fireadol  
+##### 2191#       发表于 2024-10-14 08:08
+
+前期哪个职业好用啊，现在20多级感觉输出就靠商人砸钱跟大剑哥二级职业合体技，打迷宫精英怪被先手基本走远<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+

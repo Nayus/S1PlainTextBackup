@@ -8683,3 +8683,32 @@ hard难度还得修改个回蓝，这屌游戏加强版本百分百有回蓝续�
 
 金钱镖教堂净化选加伤害的，太变态了，hard模式也砍瓜切菜<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  check  
+##### 2307#       发表于 2024-10-14 15:51
+
+终于一周目通关了。美术设计是真的顶级，剧情内核还是桥野老一套。磨了8年做了个换皮P系列只能说是不满意的。
+
+*****
+
+####  yangkaim4  
+##### 2308#       发表于 2024-10-14 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66448941&amp;ptid=2140224" target="_blank">人畜无害沃特碧 发表于 2024-10-14 15:43</a>
+
+金钱镖教堂净化选加伤害的，太变态了，hard模式也砍瓜切菜</blockquote>
+哪个装备？
+
+
+*****
+
+####  空气先生  
+##### 2309#       发表于 2024-10-14 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66449013&amp;ptid=2140224" target="_blank">yangkaim4 发表于 2024-10-14 15:52</a>
+
+哪个装备？</blockquote>
+第二章（水井）支线迷宫得到的小贩装备，教堂净化可以选择丢钱一半或者双倍丢钱双倍伤害。
+

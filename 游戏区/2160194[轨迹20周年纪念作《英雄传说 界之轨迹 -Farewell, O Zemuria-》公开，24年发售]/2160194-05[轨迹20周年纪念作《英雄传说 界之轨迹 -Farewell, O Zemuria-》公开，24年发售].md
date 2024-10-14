@@ -6708,3 +6708,22 @@ staff里一定有人看过别当哥的温泉回
 算命婆看手相被里爷的感情线吓到了</blockquote>
 桃花剑成官设，实锤falcom员工有上贴吧
 
+
+*****
+
+####  aimujie  
+##### 6554#       发表于 2024-10-14 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66448721&amp;ptid=2160194" target="_blank">无动于衷 发表于 2024-10-14 15:16</a>
+
+有个问题就是这个任务怎么样算完成，我把惊叹号该清的都清了结果后来的结算画面还是告诉我fail了 ...</blockquote>
+四部分吧，印象里是123完成然后触发4，4打完自动结束
+
+1. 给光头拳击哥找酒
+
+2. 找餐具和场地
+
+3. 给伤患振奋精神
+
+4. 去暗渠找酒吧前猎兵
+

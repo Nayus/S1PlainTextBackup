@@ -9142,3 +9142,14 @@ hard越21级把砂虫打了，全靠贫贵哥二动断岩斩<img src="https://st
 
 尼玛 为啥我玩到这个古堡小镇的下水道后进入战斗视角奇怪 怪物和人物没有模型啊 
 
+
+*****
+
+####  linyc0010  
+##### 2357#       发表于 2024-10-15 01:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66452508&amp;ptid=2140224" target="_blank">空集 发表于 2024-10-15 01:00</a>
+
+尼玛 为啥我玩到这个古堡小镇的下水道后进入战斗视角奇怪 怪物和人物没有模型啊  ...</blockquote>
+大概率是打那个去除速度线MOD导致的，更新一下MOD试试
+

@@ -865,3 +865,25 @@ demo 10.14
 
 —— 来自 vivo V2303A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  仓鼠吃火锅  
+##### 94#       发表于 2024-10-15 01:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66452483&amp;ptid=2168791" target="_blank">zzy516232108 发表于 2024-10-15 00:52</a>
+
+开局三选一选了大剑，然后发现连和怪玩回合制的资本都没有了，大剑砍完超长后摇
+
+怪物直接硬霸体反打
+
+我在这 ...</blockquote>
+最好用路上掉的那把剔骨双刀，战技最后一段能对所有精英怪和boss出硬直
+
+*****
+
+####  慕容断月  
+##### 95#       发表于 2024-10-15 01:22
+
+这个弹反太抽象了，得稍微看到怪刚刚有点动作就得按，十分不爽
+

@@ -4751,3 +4751,47 @@ https://www.cnki.com.cn/Article/CJFDTotal-JSSJ199805016.htm</blockquote>
 文化标签就是这样的，你搜登月舱啥的现在出来也是阿波罗为主········ ...</blockquote>
 最常跟阿波罗出现的meme不是电影厂摄影棚吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，这个真没办法，不管真假只有阿波罗留下了飞船影响
 
+
+*****
+
+####  LeonsCat  
+##### 492#       发表于 2024-10-14 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66449760&amp;ptid=2190881" target="_blank">ranger_wang 发表于 2024-10-14 17:24</a>
+
+我只能说你的想象力太贫乏了，我说拉到火星熔炼加工其实是最保守的，应该是在有可燃物的地方就地加工
+
+你 ...</blockquote>
+这儿稍微翻译一下
+
+可燃物≈还原剂
+
+然后一个豆知识，火星表面是氧化性氛围，大气主要成分是CO2，表面有大量的氧化铁（这也是为啥火星是红色的）。有了氧化铁，有了还原剂，那就可以炼铁了。甚至如果不是氧化铁这玩意生成焓太负，如果是氧化铜这种，直接加热都不用还原剂也可以。
+
+*****
+
+####  longmarch5  
+##### 493#       发表于 2024-10-14 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66451309&amp;ptid=2190881" target="_blank">亚尔迪8424 发表于 2024-10-14 21:30</a>
+
+来源微博，火星基地 美帝做不到的。只有我们能行</blockquote>
+看了一下你的其他回复，给个建议——隔壁赢区很适合你。
+
+国内如果要搞载人登火，一样要做重型火箭，为了控制成本也要复用， 一样得啃下这些问题。至少目前，马老板在这方面是很领先的，别人没有嘲笑他的资格。
+
+
+*****
+
+####  LeonsCat  
+##### 494#       发表于 2024-10-14 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66447103&amp;ptid=2190881" target="_blank">longmarch5 发表于 2024-10-14 11:49</a>
+
+全球1小时运输这个事情，货运的话缺乏这种需求，拿星舰做客运的话安全性还远远不够，即使是长2F这样设计安 ...</blockquote>
+对于快速军事部署、对时效要求极高的商务客，还真未必。
+
+如果单人价格能拉到JFK-SIN商务舱的十倍以内，敢尝试愿意尝试的人估计不少。当然能不能养活这个商业模式，我个人表示怀疑，可能最终要指望拿军队的钱。
+
+倒是太空工厂、太空实验室的可能性更加？？？——后者臭老九就是属于添头，前者对产业附加值要求太高了。不过谁知道呢？
+

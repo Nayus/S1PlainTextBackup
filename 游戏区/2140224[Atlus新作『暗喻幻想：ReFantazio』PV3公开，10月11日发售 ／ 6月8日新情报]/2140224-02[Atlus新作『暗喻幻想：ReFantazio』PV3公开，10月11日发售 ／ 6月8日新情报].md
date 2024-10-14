@@ -9023,3 +9023,30 @@ hard越21级把砂虫打了，全靠贫贵哥二动断岩斩<img src="https://st
 
 体验下来就台词对白水平来说吊打90%jrpg是没问题的，给游戏加分不少
 
+
+*****
+
+####  莉可厨  
+##### 2344#       发表于 2024-10-14 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66451432&amp;ptid=2140224" target="_blank">Whalouse 发表于 2024-10-14 21:50</a>
+为什么要让番长当军师角色啊，这圣都剧情给我看麻了</blockquote>
+点子都给番长出完了，主角跟个弱智一样在旁边嗯嗯啊啊，番长来当王算了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  战术核辣条  
+##### 2345#       发表于 2024-10-14 23:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">9999秒杀是什么机制有没有懂哥
+
+—— 来自 nubia NX729J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  windtrack  
+##### 2346#       发表于 2024-10-14 23:12
+
+新宿BOSS这剧情真是日式弱智，BOSS就那么静静看着吃货骑士和三眼跟这说半天...
+

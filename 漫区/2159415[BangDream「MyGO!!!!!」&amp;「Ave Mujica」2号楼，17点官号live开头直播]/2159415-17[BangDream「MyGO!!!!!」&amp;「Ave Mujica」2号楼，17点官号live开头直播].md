@@ -12842,3 +12842,58 @@ mujica的live脚本应该一直是小川负责（0th没有新的幕间，个人�
 和之前的姐妹论假药的主要区别点在于睦不知道祥 ...</blockquote>
 睦的台词令我想起那句我或许是为了遇见你才出生在这个世界上。分别的姊妹相遇时尽管没有认出彼此但是身体仍有感应，或许还蛮合理？
 
+
+*****
+
+####  ydsbbt  
+##### 24782#       发表于 2024-10-14 10:54
+
+从前查半身的时候查到的近义词，「ツインレイ」，应该翻译成双灵？
+
+<img src="https://img.saraba1st.com/forum/202410/14/105335s9xfjmhfey9ysiiw.png" referrerpolicy="no-referrer">
+
+<strong>QQ20241014-105216.png</strong> (53.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-14 10:53 上传
+
+*****
+
+####  芸香科植物激推  
+##### 24783#       发表于 2024-10-14 10:55
+
+太狗血了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且你邦角色生日挺重要的，真姐妹那谁的生日是真的，还是两个都不是真的，她俩每人有两个生日，wsd爽出两次生日池骗氪么
+
+*****
+
+####  黑夜落叶秋天  
+##### 24784#       发表于 2024-10-14 10:59
+
+希望有网友在新加坡看完第一集后转播下
+
+*****
+
+####  ydsbbt  
+##### 24785#       发表于 2024-10-14 10:59
+
+原来动画中就有对应<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+IMG_20241014_105619.jpg
+(126.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-14 10:59 上传
+
+<img src="https://img.saraba1st.com/forum/202410/14/105937fy9893ki0glpe93k.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 24786#       发表于 2024-10-14 11:00
+
+大祥老师属于被现实教育到了，觉得真可以把啊b二创的假如有一天变得很有钱作为角色曲了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

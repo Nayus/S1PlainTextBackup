@@ -2193,3 +2193,31 @@ B8C387FE71819CEDC4ACF82DE7A2607D.jpg
 一期和恋那么针锋相对，在入队的时候不还是乖乖的叫恋恋了（当然也有恋的自身原因）可可是只要你愿意当偶 ...</blockquote>
 主要是目前VN也没表态对偶像的看法且让可可知晓<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有种大手紧急避险的感觉，毕竟开头已经暴走过了
 
+
+*****
+
+####  仟音一心  
+##### 211#       发表于 2024-10-14 12:02
+
+いまむら老师：
+ 香音:猫头鹰
+ 可可:熊猫
+ 千砂都:猴子
+ 堇:大王具足虫
+ 恋:小不点(狗)
+ 希奈子:松鼠
+ 红蓝:猫
+ 鬼冢姐妹:兔子
+ VN:马尔济斯犬
+<img src="https://p.sda1.dev/19/d7f9247cbb774d183f00fcf445667336/image.jpg" referrerpolicy="no-referrer">
+
+x：abukero_rainbow
+<img src="https://p.sda1.dev/19/53b384eb76aae66be8d14b7bb1280e4b/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 212#       发表于 2024-10-14 12:03
+
+<img src="https://p.sda1.dev/19/16b816097d12b2fb4fca65b7c6fb6f30/image.jpg" referrerpolicy="no-referrer">
+

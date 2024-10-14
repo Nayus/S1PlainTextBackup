@@ -3871,3 +3871,98 @@ mechazilla下面的那一付短一点的夹子是干什么用的?
 另 ...</blockquote>
 全球1小时运输这个事情，货运的话缺乏这种需求，拿星舰做客运的话安全性还远远不够，即使是长2F这样设计安全性指标非常高的载人运载火箭，相比现在的大众交通工具，安全性也是**不如的
 
+
+*****
+
+####  瓦格雷  
+##### 420#       发表于 2024-10-14 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66446950&amp;ptid=2190881" target="_blank">YoumuChan 发表于 2024-10-14 11:33</a>
+
+https://archive.is/yFexm
+
+https://x.com/elonmusk/status/1798937746624631249</blockquote>
+主要是星舰够大  不锈钢的优势要一定的尺寸才会显现出来 
+
+*****
+
+####  瓦格雷  
+##### 421#       发表于 2024-10-14 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66446911&amp;ptid=2190881" target="_blank">silverfoxz 发表于 2024-10-14 11:29</a>
+
+每次空X一有风吹草动泥潭就有不少人跳出来扯这么多有的没有，能不能等发挥实际作用再来吹啊，牢霉进入本世 ...</blockquote>
+妈呀  每年入轨超90%的都算饼啊 
+
+*****
+
+####  鲜血秋叶  
+##### 422#       发表于 2024-10-14 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66446911&amp;ptid=2190881" target="_blank">silverfoxz 发表于 2024-10-14 11:29</a>
+每次空X一有风吹草动泥潭就有不少人跳出来扯这么多有的没有，能不能等发挥实际作用再来吹啊，牢霉进入本世 ...</blockquote>
+把一个时速1.4km/s的20层楼在4分钟里通过多次发动机重启修改姿态降低速度，最后实现落点精度cm级，还是对着发动机喷管直播外加不封闭现场。
+
+就这个技术力哪怕不锈钢方案不靠谱，换传统航材不也是遥遥领先
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+
+*****
+
+####  依然荏苒  
+##### 423#       发表于 2024-10-14 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66447037&amp;ptid=2190881" target="_blank">anoymouswho 发表于 2024-10-14 11:43</a>
+有点疑问哈: 
+
+mechazilla下面的那一付短一点的夹子是干什么用的?</blockquote>
+那个是加注和通信线缆的支架，发射前会摆开。
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  commcody  
+##### 424#         楼主| 发表于 2024-10-14 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66447037&amp;ptid=2190881" target="_blank">anoymouswho 发表于 2024-10-14 11:43</a>
+
+有点疑问哈: 
+
+mechazilla下面的那一付短一点的夹子是干什么用的?</blockquote>
+那是稳定臂，插进Super Heavy的插孔后用来稳定舰体。
+
+捕获的最后阶段是斜着进筷子的，所以看上去有点角度。
+
+<img src="https://img.saraba1st.com/forum/202410/14/120153bzoyzyrtiifiigfg.jpg" referrerpolicy="no-referrer">
+
+<strong>微信截图_20241014115943.jpg</strong> (303.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-14 12:01 上传
+
+<img src="https://img.saraba1st.com/forum/202410/14/120153hz4u488ab4upzz4a.jpg" referrerpolicy="no-referrer">
+
+<strong>微信截图_20241014120000.jpg</strong> (299.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-14 12:01 上传
+
+<img src="https://img.saraba1st.com/forum/202410/14/120153etyqy6yuuyk3q6l0.jpg" referrerpolicy="no-referrer">
+
+<strong>微信截图_20241014120019.jpg</strong> (345.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-14 12:01 上传
+
+*****
+
+####  nightheart  
+##### 425#       发表于 2024-10-14 12:04
+
+听你们这么说，这个星舰跟5G还挺像的，都是在应用层面搞出的工程学突破，同样在缺少应用场景的时候先投入了市场。希望能吸引更多人早点把目光投向地外吧，新边疆总是有助于化解内部压力的。
+

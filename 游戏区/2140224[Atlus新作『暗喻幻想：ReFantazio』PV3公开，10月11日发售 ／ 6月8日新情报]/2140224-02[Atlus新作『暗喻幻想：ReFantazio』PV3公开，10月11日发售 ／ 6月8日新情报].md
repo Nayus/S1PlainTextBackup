@@ -8086,3 +8086,39 @@ s1还算聊本体比较多的地方，nga蒸汽吧全是踩头的<img src="https
 主角算是生死关头坚定对王 ...</blockquote>
 你想太多了，玩到后面就知道这觉醒就是很儿戏的开挂后门，谁帮主角谁就有权觉醒。
 
+
+*****
+
+####  cloudymc007  
+##### 2246#       发表于 2024-10-14 12:01
+
+有朋友知道这作二周目继承什么吗？
+
+不会跟P5一样只继承五维不继承战斗属性吧
+
+*****
+
+####  莉可厨  
+##### 2247#       发表于 2024-10-14 12:02
+
+我尼玛不用想就知道这帮比解释主角为啥有挂最后还是得回到血统论这条老路上，不然圆都圆不回来
+
+*****
+
+####  DancingAndy  
+##### 2248#       发表于 2024-10-14 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66447056&amp;ptid=2140224" target="_blank">windtrack 发表于 2024-10-14 11:45</a>
+ 昨天正好停在出海前，一出海解锁了</blockquote>
+用尾巴鱼饵sl钓一次鱼王就行<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">，其他都有的卖
+
+*****
+
+####  walfeds  
+##### 2249#       发表于 2024-10-14 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66447165&amp;ptid=2140224" target="_blank">莉可厨 发表于 2024-10-14 11:55</a>
+
+s1还算聊本体比较多的地方，nga蒸汽吧全是踩头的不过这游戏本体不禁聊，估计一个月后该有的攻略都有了热 ...</blockquote>
+白皮比你们爱聊本体多了，泥潭不过就比nga表面上好看一点罢了
+

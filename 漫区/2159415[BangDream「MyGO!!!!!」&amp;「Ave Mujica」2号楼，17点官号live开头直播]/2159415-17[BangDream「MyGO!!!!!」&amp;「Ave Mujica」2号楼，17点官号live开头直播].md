@@ -13301,3 +13301,12 @@ wsd越自信越吓人<img src="https://static.saraba1st.com/image/smiley/face201
 
 我还想着以你邦现在的人气让ppp单独上全开武道馆有点太自信了
 
+
+*****
+
+####  香雨香香  
+##### 24817#       发表于 2024-10-14 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66442224&amp;ptid=2159415" target="_blank">NODY 发表于 2024-10-13 20:19</a></blockquote>
+schecter的两把琴和一把贝斯还没放出消息么，好急，太想买来当大号手办了
+

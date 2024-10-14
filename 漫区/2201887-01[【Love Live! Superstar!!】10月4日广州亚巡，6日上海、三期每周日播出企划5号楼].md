@@ -2221,3 +2221,13 @@ x：abukero_rainbow
 
 <img src="https://p.sda1.dev/19/16b816097d12b2fb4fca65b7c6fb6f30/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 213#       发表于 2024-10-14 12:13
+
+过于桃太郎<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

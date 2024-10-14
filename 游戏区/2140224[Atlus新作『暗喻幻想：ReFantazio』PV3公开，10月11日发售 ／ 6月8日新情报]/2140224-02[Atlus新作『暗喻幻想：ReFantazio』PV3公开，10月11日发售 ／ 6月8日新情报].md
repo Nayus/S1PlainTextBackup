@@ -8122,3 +8122,37 @@ s1还算聊本体比较多的地方，nga蒸汽吧全是踩头的<img src="https
 s1还算聊本体比较多的地方，nga蒸汽吧全是踩头的不过这游戏本体不禁聊，估计一个月后该有的攻略都有了热 ...</blockquote>
 白皮比你们爱聊本体多了，泥潭不过就比nga表面上好看一点罢了
 
+
+*****
+
+####  kuuhiz  
+##### 2250#       发表于 2024-10-14 12:08
+
+楼里说世界树迷宫，真的好想玩全新的世界树迷宫<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">能把纯纯增加负反馈的日程表和开怪惩罚机制去掉吗
+
+*****
+
+####  DancingAndy  
+##### 2251#       发表于 2024-10-14 12:10
+
+同样风评差，<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉讨论环境比活侠传专楼差多了（
+
+*****
+
+####  莉可厨  
+##### 2252#       发表于 2024-10-14 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66447250&amp;ptid=2140224" target="_blank">walfeds 发表于 2024-10-14 12:06</a>
+白皮比你们爱聊本体多了，泥潭不过就比nga表面上好看一点罢了</blockquote>
+泥潭至少没人觉得这作是为了政治正确向白皮低头妥协的产物，你妈nga那地方点进去能看30秒的真是神人了
+
+*****
+
+####  operatbig  
+##### 2253#       发表于 2024-10-14 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66444874&amp;ptid=2140224" target="_blank">2015年入股市 发表于 2024-10-14 03:21</a>
+
+我发现这游戏自动战斗有时候比我自己操控厉害啊</blockquote>
+我刚开始卡关都是看一遍AI怎么打再自己打。
+

@@ -8300,3 +8300,25 @@ s1还算聊本体比较多的地方，nga蒸汽吧全是踩头的不过这游戏
 
 玛利亚社群解锁了做饭不耗时间，草，前面为了看剧情每个角色都做了一次，血亏
 
+
+*****
+
+####  hirro  
+##### 2268#       发表于 2024-10-14 12:52
+
+游戏还没拆，怎么评价已经崩了
+
+虽然知道一定会有皇家版，如果到时候还是当独立游戏不给折扣升级选项，那这公司一定铁板坏逼无疑了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  btnasi  
+##### 2269#       发表于 2024-10-14 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66447119&amp;ptid=2140224" target="_blank">一护饭团 发表于 2024-10-14 11:51</a>
+
+翻了半天，没有一个有用的攻略和 tips，果然不爱玩都在论坛。</blockquote>
+[https://docs.qq.com/aio/DRUpKQUF ... LVOz3toRrKlp4whzjbG](https://docs.qq.com/aio/DRUpKQUFmSmlwRG9O?p=xMuLVOz3toRrKlp4whzjbG)
+
+给给给给给
+

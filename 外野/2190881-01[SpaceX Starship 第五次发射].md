@@ -4007,3 +4007,38 @@ mechazilla下面的那一付短一点的夹子是干什么用的?</blockquote>
 
 现在的材料技术  回收了 重复利用率和 维护成本 都是不可行的。这个实验的作用  就是股价和认知战
 
+
+*****
+
+####  ranger_wang  
+##### 430#       发表于 2024-10-14 12:46
+
+<blockquote>madbird023 发表于 2024-10-14 12:19
+怎么没用，最现实的是打V2版星链，真正实现外太空通信卫星之间的激光链路，其次就是准备开始火星基建了， ...</blockquote>
+小行星代采矿？火星冶炼？你对宇宙的空旷只能说一无所知。
+
+*****
+
+####  鲜血秋叶  
+##### 431#       发表于 2024-10-14 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66447424&amp;ptid=2190881" target="_blank">亚尔迪8424 发表于 2024-10-14 12:36</a>
+现在的材料技术  回收了 重复利用率和 维护成本 都是不可行的。这个实验的作用  就是股价和认知战 ...</blockquote>
+2枚23手老火箭猎鹰9说，确实重复率不可行，我们都是认知作战
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+
+*****
+
+####  艾诺琳  
+##### 432#       发表于 2024-10-14 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66447510&amp;ptid=2190881" target="_blank">ranger_wang 发表于 2024-10-14 12:46</a>
+小行星代采矿？火星冶炼？你对宇宙的空旷只能说一无所知。</blockquote>
+不这样你建设火星殖民地还从地球运材料过去？
+
+深空材料生产是人类走出地球的第一步
+
+星舰成功是好事，太空竞赛创造过人类技术进步最快的时期，希望太空竞赛2.0尽快到来
+

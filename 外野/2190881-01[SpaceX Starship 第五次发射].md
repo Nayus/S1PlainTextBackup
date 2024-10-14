@@ -3381,3 +3381,16 @@ ICBM怎么强了？一院搞东41都没整利索几年
 
 地面拍的助推从发射到回收的全过程 
 
+
+*****
+
+####  wszweill  
+##### 382#       发表于 2024-10-14 08:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66444670&amp;ptid=2190881" target="_blank">多多天下 发表于 2024-10-13 12:44</a>
+
+LEO太阳能电站啊，从板子到微波传输都没有物理学困难了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">就咱们国家来说，西部还有很多地方可以堆太阳能呢。航天成本再便宜 还能比得上铁路和公路运输嘛 （
+
+就算搞这个，主要目标一样 是占领轨道，乃至附带的军事作用，而不指望啥特别的经济效应。
+

@@ -2008,3 +2008,11 @@ L会影响左手控制方向的手感所以就不用了
 
 居然有NS版!
 
+
+*****
+
+####  crosz1985  
+##### 170#       发表于 2024-10-14 17:20
+
+不过NS是和谐版，没漏**<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

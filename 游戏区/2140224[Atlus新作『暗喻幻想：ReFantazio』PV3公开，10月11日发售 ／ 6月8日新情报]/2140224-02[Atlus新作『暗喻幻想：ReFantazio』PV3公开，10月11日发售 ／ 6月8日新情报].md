@@ -8768,3 +8768,18 @@ Atlus又又又又背刺了，把数据都放在试玩版上，黑客用试玩版
 
 什么马奇诺防线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  莉可厨  
+##### 2316#       发表于 2024-10-14 17:25
+
+哇日厂的技术力太变态了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  变老的大二  
+##### 2317#       发表于 2024-10-14 17:28
+
+太变态了，atlus，打个差评先
+

@@ -4596,3 +4596,87 @@ https://www.cnki.com.cn/Article/CJFDTotal-JSSJ199805016.htm</blockquote>
 
 2024-10-14 17:13 上传
 
+
+*****
+
+####  commcody  
+##### 481#         楼主| 发表于 2024-10-14 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66448574&amp;ptid=2190881" target="_blank">yy0317 发表于 2024-10-14 15:00</a>
+
+一级重型助推器被筷子夹住后，底部火箭发动机喷口上面一个地方一直在往外喷火是什么问题？ ...</blockquote>
+
+冒火的看起来是助推器的液态甲烷加注和排放口，也就是下图的LCH4F/D。冒火原因未知，有可能自封活门或者封严还有问题。
+
+<img src="https://img.saraba1st.com/forum/202410/14/171816dsvq7i0ll8sf8ele.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="800" zoomfile="https://img.saraba1st.com/forum/202410/14/171816dsvq7i0ll8sf8ele.jpg">
+
+<strong>微信截图_20241014171529.jpg</strong> (180.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-14 17:18 上传
+
+<img src="https://img.saraba1st.com/forum/202410/14/171836ydhuhg9uymtvsktx.jpg" referrerpolicy="no-referrer">
+
+<strong>nvrzvs37y8t71.jpg</strong> (440.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-14 17:18 上传
+
+*****
+
+####  机吉斯卡  
+##### 482#       发表于 2024-10-14 17:21
+
+<img src="https://img.saraba1st.com/forum/202410/14/172041xesmo3w8owd816w5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5009.jpeg</strong> (107.08 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-10-14 17:20 上传
+
+<img src="https://img.saraba1st.com/forum/202410/14/172100cqeqgzlnvfnivlsq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4955.jpeg</strong> (177.54 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-10-14 17:21 上传
+
+
+*****
+
+####  ranger_wang  
+##### 483#       发表于 2024-10-14 17:24
+
+<blockquote>冷静先找时光机 发表于 2024-10-14 16:52
+为什么要氧化剂？大部分用于冶金的矿物本来就是氧化物、硫化物，缺也是缺还原剂，你要氧化剂难不成还是想 ...</blockquote>
+我只能说你的想象力太贫乏了，我说拉到火星熔炼加工其实是最保守的，应该是在有可燃物的地方就地加工
+
+你跟说这话的这位说去。
+
+*****
+
+####  鲜血秋叶  
+##### 484#       发表于 2024-10-14 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66449542&amp;ptid=2190881" target="_blank">andychen 发表于 2024-10-14 16:56</a>
+从最后一张图上推测着陆时有一台猛禽发动机的燃料管路损坏导致开机失败，但是直播时的画面显示所有发动机 ...</blockquote>
+最外圈的20个猛禽本来在最后降落阶段就不开机的，推进剂余量只能看SpaceX给的示意图，发动机工不工作直接看直播就能看到
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+*****
+
+####  commcody  
+##### 485#         楼主| 发表于 2024-10-14 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66449633&amp;ptid=2190881" target="_blank">宏. 发表于 2024-10-14 17:08</a>
+
+星舰搞出来是不可能缺客户的，很简单道理，太多卫星上用的航天级技术是往死了减重的的同义词，仅仅是放宽重 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">已经有天文学家在畅想L2的50米甚至百米直径天文望远镜了
+

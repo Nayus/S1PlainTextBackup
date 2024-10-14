@@ -6727,3 +6727,26 @@ staff里一定有人看过别当哥的温泉回
 
 4. 去暗渠找酒吧前猎兵
 
+
+*****
+
+####  隔壁老黄  
+##### 6555#       发表于 2024-10-14 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66448840&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-10-14 15:31</a>
+
+空轨不就是顶级感情戏
+
+只是现在写后宫给法老控写傻了罢了</blockquote>
+空轨说实话太过水到渠成，没啥意思
+
+*****
+
+####  隔壁老黄  
+##### 6556#       发表于 2024-10-14 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66448436&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-10-14 14:46</a>
+
+表白怎么也得我喜欢你四个字吧，黎一剑女有表白吗</blockquote>
+他俩本来就是情侣。。。而且也没分手，梵自己跑了而已。而且说出的话比喜欢之类的要情重多了啊
+

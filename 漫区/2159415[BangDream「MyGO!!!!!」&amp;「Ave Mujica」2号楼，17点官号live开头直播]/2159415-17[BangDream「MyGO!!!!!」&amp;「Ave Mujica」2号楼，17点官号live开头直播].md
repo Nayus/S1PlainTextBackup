@@ -13045,3 +13045,11 @@ IMG_20241014_105619.jpg
 
 多重人格和双胞胎，看过几个类似的诡叙作品，都是如果从开头猜到设定的话后续就没什么悬念的故事。
 
+
+*****
+
+####  skives10  
+##### 24802#       发表于 2024-10-14 13:16
+
+wsd播太晚导致的 可能性都被穷举出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -4092,3 +4092,64 @@ mechazilla下面的那一付短一点的夹子是干什么用的?</blockquote>
 现在的材料技术  回收了 重复利用率和 维护成本 都是不可行的。这个实验的作用  就是股价和认知战 ...</blockquote>
 妈呀  都是些什么人啊  猎鹰9都回收几百次了  还有人说不可行  ﹃_﹃〣 
 
+
+*****
+
+####  鲜血秋叶  
+##### 438#       发表于 2024-10-14 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66447684&amp;ptid=2190881" target="_blank">瓦格雷 发表于 2024-10-14 13:12</a>
+从重助 结霜情况来看  是不是意味着 发射时下方的燃料槽ui并不是真正的全部燃料  而只是正常使用燃料的量 ? ...</blockquote>
+从航天爱好者那里收集的信息来看，助推剂没有用完，有很大的冗余
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+*****
+
+####  windtrack  
+##### 439#       发表于 2024-10-14 13:20
+
+这新宿也太树了，迷宫、BGM都依赖就算了，采集品都特么和树一样
+
+<img src="https://img.saraba1st.com/forum/202410/14/132022jq06g0jjd0hdhyiy.png" referrerpolicy="no-referrer">
+
+<strong>9604c04f4dcda44f72db10d23905d4b5_720.png</strong> (88.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-14 13:20 上传
+
+
+*****
+
+####  madbird023  
+##### 440#       发表于 2024-10-14 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66447510&amp;ptid=2190881" target="_blank">ranger_wang 发表于 2024-10-14 12:46</a>
+
+小行星带采矿？火星冶炼？你对宇宙的空旷只能说一无所知。</blockquote>
+我只能说你的想象力太贫乏了，我说拉到火星熔炼加工其实是最保守的，应该是在有可燃物的地方就地加工
+
+
+*****
+
+####  laotoutou  
+##### 441#       发表于 2024-10-14 13:24
+
+星链2.0还是有很价值的。1.25吨的卫星布置这么多。
+我国那是基建强，修路多，光纤已经铺满乡村了。老美那里拉cable可贵了
+
+*****
+
+####  madbird023  
+##### 442#       发表于 2024-10-14 13:24
+
+我手贱，为什么要理负分的
+
+*****
+
+####  我是蓝石头  
+##### 443#       发表于 2024-10-14 13:25
+
+确实很浪漫
+

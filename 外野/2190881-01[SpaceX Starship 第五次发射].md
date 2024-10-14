@@ -3656,3 +3656,27 @@ F9一级回收三次点火两次转身，最后一刻对地速度才会降到0�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  stevenzero  
+##### 402#       发表于 2024-10-14 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66446437&amp;ptid=2190881" target="_blank">laotoutou 发表于 2024-10-14 10:45</a>
+我又没说他不发射这种载荷只是提到他的入轨质量，应该记得下大多数是低轨。 ...</blockquote>
+不算重猎，F9在23年打了7发GTO高轨，不少了。
+说少是因为需求少而不是做不到。
+
+商业卫星，ses 18、19双星7吨多，可以一级回收打亚GTO，galaxy 31、32双星，6.6吨，可以不回收打SSTO超同步转移，直送GEO还有重猎。实际上现在并没有多少空X打不了的高轨任务。
+
+*****
+
+####  灼眼的川川仔  
+##### 403#       发表于 2024-10-14 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66446439&amp;ptid=2190881" target="_blank">鲜血秋叶 发表于 2024-10-14 10:45</a>
+空天飞机最大的问题是可回收火箭成功后他怎么定位
+
+要是星舰真的完成了理论上的运载能力和可复用性，一个 ...</blockquote>
+4、5吨就超乎预计了，受载荷舱影响对载荷形态也有限制，没有什么黑科技就是试试军用和载人方向
+

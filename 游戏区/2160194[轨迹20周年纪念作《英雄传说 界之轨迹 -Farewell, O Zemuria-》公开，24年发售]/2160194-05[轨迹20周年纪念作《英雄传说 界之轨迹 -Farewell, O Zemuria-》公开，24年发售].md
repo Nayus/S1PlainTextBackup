@@ -6667,3 +6667,34 @@ staff里一定有人看过别当哥的温泉回
 昨天玩到黑暗街救火，跑到夜店那里，发觉我穿着各种赛车服，还有暴露三点泳衣，感觉我更像是小姐 ...</blockquote>
 有个问题就是这个任务怎么样算完成，我把惊叹号该清的都清了结果后来的结算画面还是告诉我fail了
 
+
+*****
+
+####  maojiashu  
+##### 6550#       发表于 2024-10-14 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66437317&amp;ptid=2160194" target="_blank">妄想中毒 发表于 2024-10-12 22:57</a>
+
+第二部打完，没想到居然能在轨迹里看到这么正经的感情戏</blockquote>
+空轨不就是顶级感情戏
+
+只是现在写后宫给法老控写傻了罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chris1987  
+##### 6551#       发表于 2024-10-14 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66448721&amp;ptid=2160194" target="_blank">无动于衷 发表于 2024-10-14 15:16</a>
+
+有个问题就是这个任务怎么样算完成，我把惊叹号该清的都清了结果后来的结算画面还是告诉我fail了 ...</blockquote>
+不知道啊，我玩到追到公园那边就睡了，还没看到结算，可能还有遗漏？我记得我顺着路走到斗技场那边发觉黑暗医师那边有个支线剧情，但正路挡住了，然后再返回去绕过去完成了那个剧情。
+
+
+*****
+
+####  jacket  
+##### 6552#       发表于 2024-10-14 15:37
+
+算命婆看手相被里爷的感情线吓到了
+

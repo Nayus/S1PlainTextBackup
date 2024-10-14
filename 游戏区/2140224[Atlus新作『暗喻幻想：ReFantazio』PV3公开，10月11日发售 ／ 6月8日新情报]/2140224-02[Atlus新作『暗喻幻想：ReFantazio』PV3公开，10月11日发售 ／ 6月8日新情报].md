@@ -8647,3 +8647,24 @@ steam评价还不错啊92%好评</blockquote>
 论坛助手,iPad ...</blockquote>
 都行，菜刀全程都挺强的，但是前期没啥适合当法师的队友，让主角主魔也行，就是中期法师太拉了，不过主角可以兼职下辅助，挂挂buff打打弱点，输出让队友来就是了。
 
+
+*****
+
+####  星野航  
+##### 2303#       发表于 2024-10-14 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66448150&amp;ptid=2140224" target="_blank">变老的大二 发表于 2024-10-14 15:12</a>
+hard难度还得修改个回蓝，这屌游戏加强版本百分百有回蓝续航措施</blockquote>
+我常备两个术士副职轮着用了，蓝确实太缺了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  zero4166  
+##### 2304#       发表于 2024-10-14 15:30
+
+ 本帖最后由 zero4166 于 2024-10-14 15:31 编辑 
+
+前中期金钱镖吊打一切，哪里憋屈了，还不耗蓝
+

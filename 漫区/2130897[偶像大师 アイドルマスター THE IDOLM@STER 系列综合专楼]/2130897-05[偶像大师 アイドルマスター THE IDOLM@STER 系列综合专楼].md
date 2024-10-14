@@ -591,3 +591,23 @@ miya怎么抖得这么厉害
 
 大的估计有一个是1st live的消息吧
 
+
+*****
+
+####  BQlin  
+##### 6586#       发表于 2024-10-14 19:08
+
+下个月半周年，估计也是其一
+
+*****
+
+####  wfhtony  
+##### 6587#       发表于 2024-10-14 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66450499&amp;ptid=2130897" target="_blank">joshua1990 发表于 2024-10-14 19:06</a>
+
+大的估计有一个是1st live的消息吧</blockquote>
+至少有一個消息是確定的（被AsobiStore的臨時工放出來過）：
+
+出道LIVE會在明年2月有追加公演「初陣公演」，一共三場，2/8（週六）、2/11（週二・日本祝日）、2/16（週日）。
+

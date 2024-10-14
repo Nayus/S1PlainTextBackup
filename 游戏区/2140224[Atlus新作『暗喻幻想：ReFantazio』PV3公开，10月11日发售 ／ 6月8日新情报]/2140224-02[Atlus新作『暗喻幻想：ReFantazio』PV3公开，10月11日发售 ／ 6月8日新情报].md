@@ -8825,3 +8825,23 @@ Atlus又又又又背刺了，把数据都放在试玩版上，黑客用试玩版
 
 结果没几天就被捅穿了
 
+
+*****
+
+####  alucardcz  
+##### 2322#       发表于 2024-10-14 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66450440&amp;ptid=2140224" target="_blank">Asukalangley33 发表于 2024-10-14 18:58</a>
+
+当时看到DEMO容量超大就有人提可能会这样破解来着
+
+结果没几天就被捅穿了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/273.png" referrerpolicy="no-referrer">上次p5s是不是也是这样
+
+*****
+
+####  kalavinka  
+##### 2323#       发表于 2024-10-14 19:14
+
+还是下了个风大师把魔改成力了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

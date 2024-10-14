@@ -847,3 +847,21 @@ demo 10.14
 
 不，我什么都做不到，只能被一枪插回篝火
 
+
+*****
+
+####  oahcihs  
+##### 93#       发表于 2024-10-15 01:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66452483&amp;ptid=2168791" target="_blank">zzy516232108 发表于 2024-10-15 00:52</a>
+开局三选一选了大剑，然后发现连和怪玩回合制的资本都没有了，大剑砍完超长后摇
+
+怪物直接硬霸体反打
+
+我在这 ...</blockquote>
+那个双剑也有抽象的一面
+重击不蓄力还挺好的 能自动向前位移攻击
+一蓄满力攻击动作完全变了 变成多段的 空中那几下如果不贴脸根本打不着 一般情况落地最后一下才能打到人...
+
+—— 来自 vivo V2303A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

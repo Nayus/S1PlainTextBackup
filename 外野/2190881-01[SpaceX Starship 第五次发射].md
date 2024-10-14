@@ -4680,3 +4680,13 @@ https://www.cnki.com.cn/Article/CJFDTotal-JSSJ199805016.htm</blockquote>
 星舰搞出来是不可能缺客户的，很简单道理，太多卫星上用的航天级技术是往死了减重的的同义词，仅仅是放宽重 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">已经有天文学家在畅想L2的50米甚至百米直径天文望远镜了
 
+
+*****
+
+####  机吉斯卡  
+##### 486#       发表于 2024-10-14 18:09
+
+<blockquote>commcody 发表于 2024-10-14 17:28
+已经有天文学家在畅想L2的50米甚至百米直径天文望远镜了</blockquote>
+【【双语】既然有了星舰何不梦想更大？50米或百米级液体镜面空间望远镜-哔哩哔哩】 https://b23.tv/bnFoBxw
+

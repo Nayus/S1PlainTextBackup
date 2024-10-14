@@ -8900,3 +8900,21 @@ Atlus又又又又背刺了，把数据都放在试玩版上，黑客用试玩版
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有个鬼泣5我记得也是，给卡婊幽默完了
 
+
+*****
+
+####  windtrack  
+##### 2330#       发表于 2024-10-14 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66450726&amp;ptid=2140224" target="_blank">horacio 发表于 2024-10-14 19:45</a>
+
+这邪见之塔有个房间有两朵花不停地出怪，我打不过跑过去杀了boss现在35级了，可以全秒了，我在这里房间玩无 ...</blockquote>
+后面有个塔比这里还爽
+
+*****
+
+####  modkingr  
+##### 2331#       发表于 2024-10-14 19:54
+
+DLC内容在哪领的
+

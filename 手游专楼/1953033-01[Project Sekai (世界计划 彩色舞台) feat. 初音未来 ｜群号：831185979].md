@@ -26,3 +26,11 @@
 现在窝在世界不出来到时候live要怎么演<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 就该ena进去扇他一巴掌<img src="https://static.saraba1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ヒトニナル  
+##### 792#       发表于 2024-10-14 09:31
+
+本次活动after live不会唱歌，也没有after talk
+

@@ -12759,3 +12759,17 @@ mujica的live脚本应该一直是小川负责（0th没有新的幕间，个人�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">五个人精装状态都挺堪忧的啊
 
+
+*****
+
+####  笋干爆炸碱  
+##### 24776#       发表于 2024-10-14 09:31
+
+假药：睦认为祥子是半身是因为她的多重人格里有一个性格和白祥很像，而这个人格消失了
+
+主要灵感是来源于这次的幕间。似乎存在一个motris睦和低能耗睦之外的白睦（仮）在跟她说话，而且多重人格暗示此前已经出现，比如KV图
+
+同时白睦（仮）的消失也可以对应死这个意象
+
+声优多次暗示双子，但如果双子是同一在睦一个人身上不也很有意思吗？多重人格，其中一个死去了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

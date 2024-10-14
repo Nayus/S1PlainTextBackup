@@ -7873,3 +7873,13 @@ P5的觉醒就是那种，能猜到这里他/她要觉醒了，但是配合音�
 
 只能说凑合看吧，加强版优化点+1。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">目前个人感觉主线看点也不在觉醒，公路片风大故事脉络还是有趣的，扮猪吃老虎也是很传统的爽点。
 
+
+*****
+
+####  kuarwbwe  
+##### 2225#       发表于 2024-10-14 11:13
+
+他家是真的该整合一下开发经验了。现在他家能用虚幻4了，能做出无缝大地图探索了，这作抄了隔壁法老控有了即时战斗，工具有了和游戏进化的尝试也做了。最后今年新作整了这么个说不出话的旧作缝合怪出来，反正就挺难蚌的。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+说了这么多还是那个问题，他们到底怎么想的要给这作整这么疯狂的宣发？我是觉得他们正常宣发，卖个一两百万给核心粉丝绝对不会亏。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

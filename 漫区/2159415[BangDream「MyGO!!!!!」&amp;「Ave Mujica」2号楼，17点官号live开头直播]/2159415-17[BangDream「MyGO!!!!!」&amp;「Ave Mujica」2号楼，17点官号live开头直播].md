@@ -12897,3 +12897,45 @@ IMG_20241014_105619.jpg
 
 大祥老师属于被现实教育到了，觉得真可以把啊b二创的假如有一天变得很有钱作为角色曲了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑夜落叶秋天  
+##### 24787#       发表于 2024-10-14 11:04
+
+期待睦祥在动画中的糖
+
+*****
+
+####  黑夜落叶秋天  
+##### 24788#       发表于 2024-10-14 11:04
+
+期待睦祥在动画中的糖
+
+*****
+
+####  skives10  
+##### 24789#       发表于 2024-10-14 11:06
+
+说到底还是生日只差一个月太可疑了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  uhiuk  
+##### 24790#       发表于 2024-10-14 11:09
+
+我选择先相信再相信 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 24791#       发表于 2024-10-14 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66446549&amp;ptid=2159415" target="_blank">芸香科植物激推 发表于 2024-10-14 10:55</a>
+
+太狗血了吧
+
+而且你邦角色生日挺重要的，真姐妹那谁的生日是真的，还是两个都不是真的，她俩每人有两个生日 ...</blockquote>
+按双子孤儿领养论的版本，因为被父母抛弃了所以原生日自己也不知道，所以都直接用新生日，也不是不行<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

@@ -3349,3 +3349,25 @@ LEO太阳能电站啊，从板子到微波传输都没有物理学困难了</blo
 
 —— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  longmarch5  
+##### 379#       发表于 2024-10-14 07:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66444612&amp;ptid=2190881" target="_blank">谢同学 发表于 2024-10-14 01:36</a>
+
+好奇请教个问题，为什么tg的导弹和icbm这么强为什么运载火箭会有差距呢？这两个的技术差距大吗？tg好钢用 ...</blockquote>
+东风31AG、41是固体弹，5B是常温毒发井射弹。猎鹰9使用的推进剂是液氧煤油，星舰是液氧甲烷。弹道导弹和液体燃料运载火箭在技术路线上有很大区别。
+
+而且就中近程弹道导弹来说，中美相反，美国人在中导条约后放弃了中程弹道导弹，而中国一直在发展。
+
+*****
+
+####  你大爷的  
+##### 380#       发表于 2024-10-14 07:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66444612&amp;ptid=2190881" target="_blank">谢同学 发表于 2024-10-14 01:36</a>
+好奇请教个问题，为什么tg的导弹和icbm这么强为什么运载火箭会有差距呢？这两个的技术差距大吗？tg好钢用 ...</blockquote>
+ICBM怎么强了？一院搞东41都没整利索几年
+

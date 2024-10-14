@@ -4886,3 +4886,16 @@ CO2是说明火星表面是氧化性氛围的，意思就是在火星表面缺�
 所以这里还有一个问题，等于是要在中国发射美国火 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  多多天下  
+##### 502#       发表于 2024-10-15 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66452203&amp;ptid=2190881" target="_blank">longmarch5 发表于 2024-10-14 23:47</a>
+
+星舰以前那个CG，当时还叫BFR，里面是上海和纽约之间
+
+所以这里还有一个问题，等于是要在中国发射美国火 ...</blockquote>
+公海发射，反正这玩意也不可能离城市几十公里内
+

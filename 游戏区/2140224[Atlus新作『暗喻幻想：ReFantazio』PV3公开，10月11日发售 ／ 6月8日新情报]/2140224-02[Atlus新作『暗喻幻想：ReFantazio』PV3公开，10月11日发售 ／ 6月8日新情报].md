@@ -8845,3 +8845,58 @@ Atlus又又又又背刺了，把数据都放在试玩版上，黑客用试玩版
 
 还是下了个风大师把魔改成力了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UnrealApartheid  
+##### 2324#       发表于 2024-10-14 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66450548&amp;ptid=2140224" target="_blank">alucardcz 发表于 2024-10-14 19:14:18</a>
+上次p5s是不是也是这样</blockquote>不是
+是预购豪华版泄露了无Denuvo的exe被快速破解了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Whalouse  
+##### 2325#       发表于 2024-10-14 19:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有这种破解方法，太搞笑了
+
+*****
+
+####  alucardcz  
+##### 2326#       发表于 2024-10-14 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66450688&amp;ptid=2140224" target="_blank">UnrealApartheid 发表于 2024-10-14 19:37</a>
+
+不是
+
+是预购豪华版泄露了无Denuvo的exe被快速破解了</blockquote>
+可能记错了。。。总记得以前也有啥游戏也是这种用试玩破的
+
+
+*****
+
+####  budong  
+##### 2327#       发表于 2024-10-14 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66450702&amp;ptid=2140224" target="_blank">alucardcz 发表于 2024-10-14 19:40</a>
+可能记错了。。。总记得以前也有啥游戏也是这种用试玩破的</blockquote>
+最终幻想15
+
+*****
+
+####  horacio  
+##### 2328#       发表于 2024-10-14 19:45
+
+这邪见之塔有个房间有两朵花不停地出怪，我打不过跑过去杀了boss现在35级了，可以全秒了，我在这里房间玩无双呢，不停的出怪好爽，这应该是前期刷钱最爽的地方了
+
+*****
+
+####  akiomn  
+##### 2329#       发表于 2024-10-14 19:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有个鬼泣5我记得也是，给卡婊幽默完了
+

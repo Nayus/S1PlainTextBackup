@@ -9244,3 +9244,13 @@ hard难度下敌人先手基本等于死，而吃屎一般的地图战斗手感�
 
 那个三龙和后面那个boss是真的菜，hard压10多级直接一回合无伤带走
 
+
+*****
+
+####  战术核辣条  
+##### 2368#       发表于 2024-10-15 05:43
+
+系统其实挺好玩的，就是缺个能让人打到力竭的boss，boss远不如道中小怪群包夹有压迫力<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX729J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

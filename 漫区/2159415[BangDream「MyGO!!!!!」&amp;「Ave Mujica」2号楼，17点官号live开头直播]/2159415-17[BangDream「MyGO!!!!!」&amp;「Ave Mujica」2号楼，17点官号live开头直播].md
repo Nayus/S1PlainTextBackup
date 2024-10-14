@@ -12751,3 +12751,11 @@ mujica的live脚本应该一直是小川负责（0th没有新的幕间，个人�
 喵梦那个“为了当上主角，就算被烧尽也没关系”，不会是暗示她为了热度做了什么会引起炎上的事情吧（反正邦 ...</blockquote>
 楚萍芳有次引发炎上，直接散伙，需要六花轮回时间几次才救回来
 
+
+*****
+
+####  akiomn  
+##### 24775#       发表于 2024-10-14 08:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">五个人精装状态都挺堪忧的啊
+

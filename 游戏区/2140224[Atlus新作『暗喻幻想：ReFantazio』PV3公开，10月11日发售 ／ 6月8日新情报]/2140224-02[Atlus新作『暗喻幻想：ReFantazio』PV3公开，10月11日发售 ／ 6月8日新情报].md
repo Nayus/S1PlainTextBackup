@@ -7691,3 +7691,23 @@ https://x.com/nistick023/status/1845357067026170151
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  Khellendros  
+##### 2208#       发表于 2024-10-14 09:38
+
+<blockquote>石中剑二 发表于 2024-10-14 09:21
+两个武僧是吗？</blockquote>
+武僧牧师，合题搭配可以在阿基态详情里查的
+
+*****
+
+####  そらたかく  
+##### 2209#       发表于 2024-10-14 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66445736&amp;ptid=2140224" target="_blank">忘却旋律 发表于 2024-10-14 09:28</a>
+
+上周就1天休息 高强度打了一天 从6月中推进到7月中，打了若干迷宫和主线，刚想就是 HARD的 战斗真特么带劲  ...</blockquote>
+P5的觉醒就是那种，能猜到这里他/她要觉醒了，但是配合音乐和演出，就是能产生一种“来了！干死对面那王八蛋”的情绪。
+

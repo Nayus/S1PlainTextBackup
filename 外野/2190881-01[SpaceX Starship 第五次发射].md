@@ -3488,3 +3488,14 @@ LEO太阳能电站啊，从板子到微波传输都没有物理学困难了</blo
 
 楼上的图太美了
 
+
+*****
+
+####  longmarch5  
+##### 388#       发表于 2024-10-14 09:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66445385&amp;ptid=2190881" target="_blank">七层嘉影 发表于 2024-10-14 08:44</a>
+
+比起运载火箭，牢美还在吃老本并领先世界的是深空探测吧（</blockquote>
+2028年发射的天问三号如果成功就在火星探测上反超美国了
+

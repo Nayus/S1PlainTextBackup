@@ -4927,3 +4927,18 @@ CO2是说明火星表面是氧化性氛围的，意思就是在火星表面缺�
 
 你髪的卫星，元老院不找你麻烦，ESA也会啊。
 
+
+*****
+
+####  longmarch5  
+##### 505#       发表于 2024-10-15 06:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66452806&amp;ptid=2190881" target="_blank">LeonsCat 发表于 2024-10-15 05:47</a>
+
+那个就是明确耍猴啊。
+
+你髪的卫星，元老院不找你麻烦，ESA也会啊。</blockquote>
+不是，那个是美国人找泰雷兹的
+
+ESA自己和中国还有一些航天合作
+

@@ -2253,3 +2253,12 @@ x：abukero_rainbow
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  仟音一心  
+##### 216#       发表于 2024-10-14 17:15
+
+【Love Live! Series 联动咖啡 in 上海 岚珠和可可的 ~特别Vlog~】 [https://www.bilibili.com/video/B ... a72830f4665c1ebd3cf](https://www.bilibili.com/video/BV1ywmLYCEU5/?share_source=copy_web&amp;vd_source=e3fc4172c6f57a72830f4665c1ebd3cf)
+<img src="https://img.chkaja.com/84074e3ea5b37197.png" referrerpolicy="no-referrer">
+

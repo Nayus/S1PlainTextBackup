@@ -4570,3 +4570,29 @@ https://www.cnki.com.cn/Article/CJFDTotal-JSSJ199805016.htm</blockquote>
 从最后一张图上推测着陆时有一台猛禽发动机的燃料管路损坏导致开机失败，但是直播时的画面显示所有发动机都正常点火
 结合前面关于燃料量的讨论，应该是从某次以后直播画面的信息从真实遥测数据替换为了模拟数据。基本没有多少参考价值了
 
+
+*****
+
+####  宏.  
+##### 479#       发表于 2024-10-14 17:08
+
+星舰搞出来是不可能缺客户的，很简单道理，太多卫星上用的航天级技术是往死了减重的的同义词，仅仅是放宽重量限制之后的军事订单就能让spacex吃到撑
+
+*****
+
+####  commcody  
+##### 480#         楼主| 发表于 2024-10-14 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66449542&amp;ptid=2190881" target="_blank">andychen 发表于 2024-10-14 16:56</a>
+
+从最后一张图上推测着陆时有一台猛禽发动机的燃料管路损坏导致开机失败，但是直播时的画面显示所有发动机 ...</blockquote>
+着陆点火时候13台都开机的
+
+<img src="https://img.saraba1st.com/forum/202410/14/171332xe6i360znl03pkip.png" referrerpolicy="no-referrer">
+
+<strong>微信图片_20241014171302.png</strong> (145.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-14 17:13 上传
+

@@ -9100,3 +9100,11 @@ hard越21级把砂虫打了，全靠贫贵哥二动断岩斩<img src="https://st
 
 这9月初的剧情真的是<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">感觉底子还不错但是就是哪里哪里都缺一口气，情绪完全调动不起来
 
+
+*****
+
+####  DancingAndy  
+##### 2353#       发表于 2024-10-15 00:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这九月初剧情也太差了
+

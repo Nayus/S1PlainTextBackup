@@ -6829,3 +6829,33 @@ staff里一定有人看过别当哥的温泉回
 吹一下法老控官方商城 海淘非常丝滑 除了要等人工订单其他价格算邮费和税都很厚道 出关也丝滑 ems到从寄出 ...</blockquote>
 是中文盘嘛
 
+
+*****
+
+####  Falcomfans  
+##### 6564#       发表于 2024-10-15 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66452251&amp;ptid=2160194" target="_blank">benhawk 发表于 2024-10-14 23:57</a>
+是中文盘嘛</blockquote>
+当然是日文
+
+
+*****
+
+####  蒸汽投石BuBu車  
+##### 6565#       发表于 2024-10-15 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66447777&amp;ptid=2160194" target="_blank">lxshhh 发表于 2024-10-14 13:25</a>
+吃我一发50米拉！</blockquote>
+一直在想，老范这招打苦劳为什么没有大易伤，每场战斗限1次，直接把苦劳干剩下1点血
+
+
+*****
+
+####  蒸汽投石BuBu車  
+##### 6565#       发表于 2024-10-15 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66447777&amp;ptid=2160194" target="_blank">lxshhh 发表于 2024-10-14 13:25</a>
+吃我一发50米拉！</blockquote>
+一直在想，老范这招打苦劳为什么没有大易伤，每场战斗限1次，直接把苦劳干剩下1点血
+

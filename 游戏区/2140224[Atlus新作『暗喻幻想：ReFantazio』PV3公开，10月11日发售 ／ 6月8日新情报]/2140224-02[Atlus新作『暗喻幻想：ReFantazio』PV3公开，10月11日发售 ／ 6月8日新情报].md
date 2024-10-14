@@ -8280,3 +8280,23 @@ s1还算聊本体比较多的地方，nga蒸汽吧全是踩头的不过这游戏
 
 看目前的情况，感觉皇家版板上钉钉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，今年smtvv我直接玩完全版爽歪歪，这次我还是不当原版首发冤种了
 
+
+*****
+
+####  walfeds  
+##### 2266#       发表于 2024-10-14 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66447412&amp;ptid=2140224" target="_blank">是谁的书画 发表于 2024-10-14 12:34</a>
+
+一共有几个可用角色啊，我现在才解锁面具
+
+但看着车里一共五个床位，是不是掐指一算已经到头了 ...</blockquote>
+不算过了序章就用不了的那个一共七个
+
+*****
+
+####  katern  
+##### 2267#       发表于 2024-10-14 12:39
+
+玛利亚社群解锁了做饭不耗时间，草，前面为了看剧情每个角色都做了一次，血亏
+

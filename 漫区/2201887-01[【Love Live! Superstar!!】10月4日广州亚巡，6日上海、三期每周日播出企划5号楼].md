@@ -2320,3 +2320,11 @@ x：abukero_rainbow
 
 布什戈门，是，星团歌一般也就三分钟，再去掉前奏间奏尾奏，剩下的11个人分确实solo会变少，这是不可避免的。但是你端水稍微平均一点是会死吗？谁家好人solo就1秒啊？这可是op……到时候live少个人是不是都没人发现啊？
 
+
+*****
+
+####  ViyViy  
+##### 222#       发表于 2024-10-14 23:07
+
+好像就半句+4个合唱吧，感觉如果不是需要展示画面可以从头合唱到尾，好歹是一期生毕业季OP，有位一期生看上去是留级了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

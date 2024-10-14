@@ -4559,3 +4559,14 @@ https://www.cnki.com.cn/Article/CJFDTotal-JSSJ199805016.htm</blockquote>
 每次空X一有风吹草动泥潭就有不少人跳出来扯这么多有的没有，能不能等发挥实际作用再来吹啊，牢霉进入本世 ...</blockquote>
 10年前也是这么说猎鹰9的，5年前也是这么说星链的，到现在还不长记性，再过5年星舰成熟了就轮到spacex的下一代项目“等实用了再吹”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  andychen  
+##### 478#       发表于 2024-10-14 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66445508&amp;ptid=2190881" target="_blank">tianruilee 发表于 2024-10-14 09:03</a>
+来点官图。</blockquote>
+从最后一张图上推测着陆时有一台猛禽发动机的燃料管路损坏导致开机失败，但是直播时的画面显示所有发动机都正常点火
+结合前面关于燃料量的讨论，应该是从某次以后直播画面的信息从真实遥测数据替换为了模拟数据。基本没有多少参考价值了
+

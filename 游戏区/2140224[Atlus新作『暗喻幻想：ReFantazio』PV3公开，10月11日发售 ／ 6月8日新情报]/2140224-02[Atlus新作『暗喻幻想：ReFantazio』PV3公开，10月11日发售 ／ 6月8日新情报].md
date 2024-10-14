@@ -8760,3 +8760,11 @@ hard难度还得修改个回蓝，这屌游戏加强版本百分百有回蓝续�
 
 Atlus又又又又背刺了，把数据都放在试玩版上，黑客用试玩版exe把正式版的D加密给绕过去了
 
+
+*****
+
+####  blackprice  
+##### 2315#       发表于 2024-10-14 17:00
+
+什么马奇诺防线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

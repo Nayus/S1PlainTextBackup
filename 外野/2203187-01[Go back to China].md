@@ -966,3 +966,25 @@ want doing 需要做某事，want意思是“需要、要求”，主语常是�
 
 本质是现实现充不能理解网络死宅圈子里的文化，网络圈子里自嗨
 
+
+*****
+
+####  林无德  
+##### 88#       发表于 2024-10-15 11:20
+
+爬完这楼，感觉无法再说自己曾经是留子了<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+英语，竟是如此不便之物。。。
+
+*****
+
+####  迪米特里  
+##### 89#       发表于 2024-10-15 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66454266&amp;ptid=2203187" target="_blank">荡寇将军张嶷 发表于 2024-10-15 10:33</a>
+
+这玩意儿纯粹是被现代西方人用呲了的扩大化，正常接受普通英文教育的中国人哪跟得上这种奇葩潮流。
+
+翻一下 ...</blockquote>
+拿《回中国》这部典型的香蕉人电影当例子你是会选的，很有华川粉那种热脸贴冷屁股的美
+

@@ -9632,3 +9632,14 @@ hard难度下敌人先手基本等于死，而吃屎一般的 ...</blockquote>
 话说小丑本体基本全是DEBUFF和辅助技能 继承技能怎么带 出来 志愿者RANK等级不高 继承槽就1个，而且不知 ...</blockquote>
 我都继承的偷窃，上完debuff再偷一下基本也打完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  空集  
+##### 2405#       发表于 2024-10-15 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66453871&amp;ptid=2140224" target="_blank">horacio 发表于 2024-10-15 09:57</a>
+
+在我魔法只能打200多的时候，我大剑合题18mp已经能打出1000aoe了，我直接学了几个5000,6000的技能给他继承 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">吃小孩那个BOSS 我当时给兄弟把亢奋和斩强化都继承了然后物理大队用三人合体一发暴击两千多 ，要不是锁血我能直接首轮OTK那个BOSS 
+

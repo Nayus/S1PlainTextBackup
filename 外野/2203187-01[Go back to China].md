@@ -1227,3 +1227,21 @@ funny mud pee，历史是人民创造的，语言是共识规则，认同的人�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  猫一猫  
+##### 110#       发表于 2024-10-15 12:48
+
+有没有人说一下正确的口号应该怎么喊才对？
+
+
+*****
+
+####  气旋  
+##### 111#       发表于 2024-10-15 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66455591&amp;ptid=2203187" target="_blank">猫一猫 发表于 2024-10-15 12:48</a>
+有没有人说一下正确的口号应该怎么喊才对？</blockquote>
+we want to go home?
+

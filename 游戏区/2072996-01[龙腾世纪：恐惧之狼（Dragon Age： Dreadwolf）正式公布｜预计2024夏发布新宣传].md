@@ -77,3 +77,14 @@
 —— 来自 S1Fun ...</blockquote>
 到现在大部分物料对国内玩家来说都是负面宣传，就不要想销量的事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  huhu0007  
+##### 620#       发表于 2024-10-15 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66275193&amp;ptid=2072996" target="_blank">woaimiyabi 发表于 2024-9-22 21:22</a>
+
+可以去龙腾世纪贴吧看看，捏人是可以捏出高个子好看人物的，现在很多捏人都是故意捏成巨魔，但yt上很多试 ...</blockquote>
+这叫好看？你是不是骑砍玩多了——骑砍玩三年，母猪赛貂蝉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

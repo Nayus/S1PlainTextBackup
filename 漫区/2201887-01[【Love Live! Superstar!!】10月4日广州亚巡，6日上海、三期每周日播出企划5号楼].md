@@ -2346,3 +2346,13 @@ op分词这么少，星三后面剧情一定会弥补点吧（笑）
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  与天争锋_LZ  
+##### 225#       发表于 2024-10-15 19:17
+
+惊了，为什么会有香音？<img src="https://p.sda1.dev/19/88229e9931c15574f5d5b7ddeeaae0c3/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

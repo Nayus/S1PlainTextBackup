@@ -1993,3 +1993,43 @@ Send us back to China!
 
 不是 这不就单纯是不该用祈使句的问题嘛。英语祈使句主语默认是第二人称，一群中国人扎堆喊这个是挺迷惑的，下次建议找个伴儿互相对着喊。
 
+
+*****
+
+####  双刀少女  
+##### 173#       发表于 2024-10-15 19:14
+
+这楼看下来泥潭哪有脸嘲笑隔壁低学历的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Indolencoma  
+##### 174#       发表于 2024-10-15 19:20
+
+我属实没想到这楼原来是五十步笑百步<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赞卡机  
+##### 175#       发表于 2024-10-15 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66458402&amp;ptid=2203187" target="_blank">MASKA-1 发表于 2024-10-15 18:31</a>
+啥原因延误这么久？有点离谱</blockquote>
+找到评论但没说具体原因<blockquote>延误了24h，没有住宿没有餐食甚至没有休息室，航司没有任何人来说明情况并且一再出尔反尔。利雅得机场特别冷，很多老人孩子已经冻到感冒了。作为当事人虽然没参与游行但是很理解大家的情绪，况且那个情景所有人都知道大家的意思，这样发到网上断章取义太没意思了吧[吃惊]</blockquote>
+
+*****
+
+####  Rockchan  
+##### 176#       发表于 2024-10-15 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66458406&amp;ptid=2203187" target="_blank">EdSheeran 发表于 2024-10-15 18:32</a>
+估摸着老外理解成你们维权怎么还骂自己的
+
+----发送自 STAGE1 App for Android.</blockquote>
+老外自己也会用在自己身上（但句子可能会长点），你在谷歌搜一下便会知道这不是负面句子（先不论没有主语的文法问题），负面只是用这句子骂人的那一方。
+
+然后一班人可能因为曾被这样骂，或看见有人被这样骂，便自己 PTSD 起来了。便好像因为曾见有人用刀伤人，结果自己一看见有人拿刀具煮菜也说这一定是凶器。
+
+— from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.1.88.1-alpha
+

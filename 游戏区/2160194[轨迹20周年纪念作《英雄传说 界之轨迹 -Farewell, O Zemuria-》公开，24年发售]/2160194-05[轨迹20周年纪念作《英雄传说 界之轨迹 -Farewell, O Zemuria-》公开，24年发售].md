@@ -6965,3 +6965,14 @@ staff里一定有人看过别当哥的温泉回
 
 一周目噩梦通关，122h，就三天的时间愣是给我吃了191种料理，法老控真有你的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jacket  
+##### 6578#       发表于 2024-10-15 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66458572&amp;ptid=2160194" target="_blank">qooweds 发表于 2024-10-15 18:58</a>
+
+一周目噩梦通关，122h，就三天的时间愣是给我吃了191种料理，法老控真有你的 ...</blockquote>
+主食甜点饮料三种，24人吃三天，没饿死不错了！
+

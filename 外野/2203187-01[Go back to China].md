@@ -1673,3 +1673,42 @@ We Are From China, We Want to Go HOME!!!
 
 — from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.1.88.1-alpha
 
+
+*****
+
+####  Rockchan  
+##### 148#       发表于 2024-10-15 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66457863&amp;ptid=2203187" target="_blank">gnihton314 发表于 2024-10-15 17:22</a>
+还真不大一样，go这种单音节词的命令性更强，用在自己头上更是主动被动都反过来了。f*ck, ni**er这种词， ...</blockquote>
+在谷歌随便搜一下也能找到：
+
+“How do I go back to my country?” 
+
+“What happens if your visa expires and you go back to your home country?”
+
+而回答也是正正经，没人觉得这是侮辱或没有善意。
+
+— from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.1.88.1-alpha
+
+*****
+
+####  66367749  
+##### 149#       发表于 2024-10-15 17:59
+
+如果是一群老外在国内机场延误了，喊“给我回去”呢？你或者他们的同乡会觉得反感吗？
+
+
+*****
+
+####  Rockchan  
+##### 150#       发表于 2024-10-15 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66458161&amp;ptid=2203187" target="_blank">66367749 发表于 2024-10-15 17:59</a>
+如果是一群老外在国内机场延误了，喊“给我回去”呢？你或者他们的同乡会觉得反感吗？ ...</blockquote>
+不会，因为一个人对自己说 “给我回去” 是指 “我要回去”，至少一般人不会在乎身陷困境的人的外语水平。
+
+更何况英文中 go back to my country 便不是罕见用语，在谷歌搜一下可以找到不少。
+
+— from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.1.88.1-alpha
+

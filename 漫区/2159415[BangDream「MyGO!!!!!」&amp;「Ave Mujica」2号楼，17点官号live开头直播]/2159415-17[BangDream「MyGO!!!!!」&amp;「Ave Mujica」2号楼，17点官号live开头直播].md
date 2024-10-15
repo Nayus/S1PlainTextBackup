@@ -13385,3 +13385,36 @@ go琴是在动画完结后才开卖的，国内邦标实际到货时今年的五
 
 是不是又可以回到祥子失忆论了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SakuraのOrigami  
+##### 24826#       发表于 2024-10-15 20:59
+
+『明弦音』
+
+作詞：藤原優樹 (SUPA LOVE)
+
+作曲・編曲：鈴木裕明 (SUPA LOVE)
+
+歌：MyGO!!!!!
+
+（潜在表明的作编曲）
+
+<img src="https://img.saraba1st.com/forum/202410/15/205918zkcduzdmync7piab.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20241015205348.png</strong> (40.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-15 20:59 上传
+
+
+*****
+
+####  CyDiablo  
+##### 24827#       发表于 2024-10-15 21:03
+
+很突然的新歌<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/ed922da4fa454fe086b98c7c071bd8aa/Image_1728997335066.jpg" referrerpolicy="no-referrer">
+

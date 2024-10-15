@@ -12539,3 +12539,48 @@ R18 MMD pekoramama
 
 み俺恥。
 
+
+*****
+
+####  holoan  
+##### 9908#         楼主| 发表于 2024-10-15 21:21
+
+<img src="https://img.saraba1st.com/forum/202410/15/212127ssse4z141qe8iosu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (141.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-15 21:21 上传
+
+最新版自我介绍
+
+*****
+
+####  holoan  
+##### 9909#         楼主| 发表于 2024-10-15 21:24
+
+miko从政委做声优开始第一部正式常驻声优的动画作品就开始看了，还有刚才说的写真集是9年前发售的，政委本人都惊了这是真爱粉级别的
+
+*****
+
+####  holoan  
+##### 9910#         楼主| 发表于 2024-10-15 21:26
+
+被最喜欢的声优一直亲口说“可爱”
+
+我觉得miko这V生已经圆满了
+
+*****
+
+####  holoan  
+##### 9911#         楼主| 发表于 2024-10-15 21:27
+
+<img src="https://img.saraba1st.com/forum/202410/15/212750jp2guggz7gfhxjnn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (43.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-15 21:27 上传
+

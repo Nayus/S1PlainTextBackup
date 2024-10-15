@@ -13418,3 +13418,11 @@ go琴是在动画完结后才开卖的，国内邦标实际到货时今年的五
 很突然的新歌<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/19/ed922da4fa454fe086b98c7c071bd8aa/Image_1728997335066.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  六道明  
+##### 24828#       发表于 2024-10-15 21:18
+
+写作明弦音，读作again是吧<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

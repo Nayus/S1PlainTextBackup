@@ -590,3 +590,15 @@ Mikael E
 
 以前那个刷新机制没注意清点顺序就很容易出现巡逻队集中在撤离点附近导致难以撤离被车轮战打崩的情况，这下箭头直接给你做成固定机制了，还“降低已完成任务但仍想探索地图或采集样本的玩家所受的影响”，有命捡样本你有命撤离吗？傻逼箭头<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xinfengj  
+##### 5486#       发表于 2024-10-16 02:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66458481&amp;ptid=2170852" target="_blank">屑屑代沟尼亚 发表于 2024-10-15 18:44</a>
+无后座这专职反重的加个对群用的高爆是挺迷的
+
+空爆：那我走？</blockquote>
+he并不好用，没破片没子炸弹纯加一个范围爆炸，效果感觉不如榴弹，试了几发就切回heat了
+

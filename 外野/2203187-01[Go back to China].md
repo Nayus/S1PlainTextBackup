@@ -1945,3 +1945,51 @@ B站评论区一堆反思怪
 
 没文化真可怕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  シャル  
+##### 170#         楼主| 发表于 2024-10-15 19:02
+
+<blockquote>坛子大魔王 发表于 2024-10-15 18:46
+好尴尬  脚趾抠紧了</blockquote>
+比较推荐的口号：
+
+We need to go back to China now!
+
+Bring us home!
+
+We want to go home!
+
+Let us return home!
+
+Help us get back to China!
+
+Send us back to China!
+
+*****
+
+####  Rockchan  
+##### 171#       发表于 2024-10-15 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66458234&amp;ptid=2203187" target="_blank">シャル 发表于 2024-10-15 18:11</a>
+还有今天在花生炖发生了一起种族歧视袭击
+
+一个黑人在街上大喊“Go back to China”，揍了一个华人女人的 ...</blockquote>
+这属打人时表达意见，英国人看完足球赛时打起来时还会说 “自己球队万岁” ，“对方球队差劲” 呢。
+
+最重要是我们为何让一班暴徒犯罪者所用的句子来限制自己能说的话？
+
+抢劫犯拿刀出来时还会说 “don't move don't shout" 呢。
+
+真把街头打架或各种问题时说的句子全视为 “禁句”，我们有很多平常句子也不能说了。
+
+— from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.1.88.1-alpha
+
+*****
+
+####  jesuswjx  
+##### 172#       发表于 2024-10-15 19:04
+
+不是 这不就单纯是不该用祈使句的问题嘛。英语祈使句主语默认是第二人称，一群中国人扎堆喊这个是挺迷惑的，下次建议找个伴儿互相对着喊。
+

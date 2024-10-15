@@ -10298,3 +10298,12 @@ s1官博都转疯了，那张“狗命贵”的游戏截图。
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  ネコカイザー  
+##### 2461#       发表于 2024-10-15 19:00
+
+我觉得你们拿现代社会的政治观念去套一个中世纪生产力水平还存在魔法的世界的政治表现，这多少还是有点不恰当的。 
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+

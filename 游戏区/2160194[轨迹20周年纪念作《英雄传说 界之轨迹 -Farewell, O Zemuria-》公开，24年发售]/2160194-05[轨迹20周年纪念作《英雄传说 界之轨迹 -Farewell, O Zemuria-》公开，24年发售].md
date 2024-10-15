@@ -6957,3 +6957,11 @@ staff里一定有人看过别当哥的温泉回
 
 <img src="https://p.sda1.dev/19/2e1a714d69255b4b32105a1d171f9b28/CMP_20241015170258981.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qooweds  
+##### 6577#       发表于 2024-10-15 18:58
+
+一周目噩梦通关，122h，就三天的时间愣是给我吃了191种料理，法老控真有你的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

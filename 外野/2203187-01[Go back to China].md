@@ -1336,3 +1336,13 @@ fuck ____(航空公司名称)
 
 i said the caculation
 
+
+*****
+
+####  dclara1  
+##### 120#       发表于 2024-10-15 14:09
+
+所以误机了在机场大喊大叫有什用
+
+— from Google Pixel 8a, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.2
+

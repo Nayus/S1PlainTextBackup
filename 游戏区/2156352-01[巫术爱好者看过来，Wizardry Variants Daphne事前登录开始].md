@@ -24,3 +24,11 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  战术核辣条  
+##### 58#       发表于 2024-10-15 14:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">打开gplay发现设备不兼容，怎会如此....
+

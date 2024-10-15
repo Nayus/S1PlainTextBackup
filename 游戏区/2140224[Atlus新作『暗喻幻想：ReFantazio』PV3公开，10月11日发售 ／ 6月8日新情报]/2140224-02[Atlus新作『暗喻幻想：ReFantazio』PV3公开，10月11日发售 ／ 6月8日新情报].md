@@ -10074,3 +10074,23 @@ a社每一作物理都在加强，魔法永远就那吊样，爹不疼娘不爱
 
 —— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  竹様  
+##### 2443#       发表于 2024-10-15 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66456734&amp;ptid=2140224" target="_blank">AEmpire 发表于 2024-10-15 15:02</a>
+
+我服了，我第二章都打完了这个击晕的成就还是没给我跳</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202410/15/162747rpjsyjquwus023ti.png" referrerpolicy="no-referrer">
+
+<strong>20241015162721.png</strong> (115.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-15 16:27 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">我也是，打到第四章，除了出远门以外每次特卖都去买东西了，也没给我跳成就。
+

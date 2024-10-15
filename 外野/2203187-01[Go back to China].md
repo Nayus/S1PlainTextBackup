@@ -1511,3 +1511,41 @@ go back to China 表示歧视也主要是歧视高华吧
 
 — from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.1.88.1-alpha
 
+
+*****
+
+####  Rockchan  
+##### 136#       发表于 2024-10-15 16:27
+
+ 本帖最后由 Rockchan 于 2024-10-15 16:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66457239&amp;ptid=2203187" target="_blank">gnihton314 发表于 2024-10-15 16:15</a>
+但即使不考虑歧视含义，这种祈使句也是极其不友善的用法啊</blockquote>
+不考虑岐视，这句跟 “return to" 便没什幺大分别。
+
+特别当用在自己身上时，更没有友善的问题了。
+
+加上口语这东西很多时便谈不上在乎友善，重点在于说话人的心态，“FXck" 这字便不见得友善，还不是有一堆人在朋友间时常说？
+
+— from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.1.88.1-alpha
+
+
+*****
+
+####  black  
+##### 137#       发表于 2024-10-15 16:30
+
+英语0分
+
+*****
+
+####  Rockchan  
+##### 138#       发表于 2024-10-15 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66457214&amp;ptid=2203187" target="_blank">T7imal 发表于 2024-10-15 16:11</a>
+说实话挺蠢的，中国人在外表达自己的需求，表达自己的不满，居然要用英文，一方面是中国文化导致的普遍性格 ...</blockquote>
+在外地不用当地语言会被人无视的，英语是国际语言才成特例。
+
+即使用德法日韩拉丁文，也不见得比用中文好多少。
+
+— from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.1.88.1-alpha
+

@@ -13350,3 +13350,14 @@ schecter的两把琴和一把贝斯还没放出消息么，好急，太想买来
 —— 来自 鹅球 v3.2.91</blockquote>
 要扣薪水了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  香雨香香  
+##### 24822#       发表于 2024-10-15 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66451273&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-10-14 21:24</a>
+
+go琴是在动画完结后才开卖的，国内邦标实际到货时今年的五月份。不过go这几把在草根那里没有对应琴型，是 ...</blockquote>
+那看来至少明年年底甚至后年才能买到了，唉，想想前辈团的那些琴，之前都随便买，go标的居然能卖断货
+

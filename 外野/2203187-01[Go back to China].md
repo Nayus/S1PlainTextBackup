@@ -1895,3 +1895,37 @@ X分也两派，一派认为用法没问题，一派认为这就是用错了，�
   -- 来自 能搜索的 Stage ...</blockquote>
 不能让飞机起飞，但能让人知道被延误一天不是小事，搞不好能争取些补偿，当然搞不好也会被发到网上被本国人嘲讽了
 
+
+*****
+
+####  EdSheeran  
+##### 165#       发表于 2024-10-15 18:43
+
+<blockquote>引用第96楼tukabi于2024-10-15 11:35发表的  :
+
+【中国游客国外机场大喊“Go back to China”，老外懵圈…-哔哩哔哩】 https://......</blockquote>
+@tukabi
+
+B站评论区一堆反思怪
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  アーリィ  
+##### 166#       发表于 2024-10-15 18:45
+
+之前泥潭能为个力的单位吵十几页是不是初中物理“常识”，这句英语也就是个初中水平吧，怎么没人说这些人连初中文化都没
+
+*****
+
+####  坛子大魔王  
+##### 167#       发表于 2024-10-15 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66453786&amp;ptid=2203187" target="_blank">シャル 发表于 2024-10-15 09:50</a>
+
+那也不能省略I want to going啊
+
+我想回中国说成滚回中国这不是有病嘛</blockquote>
+好尴尬  脚趾抠紧了
+

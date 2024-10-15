@@ -9418,3 +9418,52 @@ hard难度下敌人先手基本等于死，而吃屎一般的 ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">主角魔点到25了，转力还来得及么
 
+
+*****
+
+####  忘却旋律  
+##### 2384#       发表于 2024-10-15 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66453165&amp;ptid=2140224" target="_blank">focus 发表于 2024-10-15 08:41</a>
+
+本作物理魔法待遇差距太大了。原先物理暴击魔法打弱点还算相对平衡，暴击可以堆可以凹，物理稍微占优一点。 ...</blockquote>
+问个问题，军师系的指挥官 有个 技能 是 火属性的物理伤害 那他应该是吃 剑士的 10%物理伤害的把 ，法系我没怎么联系 那他这个火属性伤害是否吃 火属性增伤呢 是否可以来个双加成
+
+*****
+
+####  石中剑二  
+##### 2385#       发表于 2024-10-15 10:37
+
+去买烤比多鸟的香草为什么店家不卖给我？说只卖给老顾客
+
+
+*****
+
+####  莉可厨  
+##### 2386#       发表于 2024-10-15 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66454313&amp;ptid=2140224" target="_blank">石中剑二 发表于 2024-10-15 10:37</a>
+去买烤比多鸟的香草为什么店家不卖给我？说只卖给老顾客</blockquote>
+回耳语亭买情报
+
+*****
+
+####  kuarwbwe  
+##### 2387#       发表于 2024-10-15 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66454313&amp;ptid=2140224" target="_blank">石中剑二 发表于 2024-10-15 10:37</a>
+去买烤比多鸟的香草为什么店家不卖给我？说只卖给老顾客</blockquote>
+得打完了尸术师，去找情报贩子买情报，让他告诉你报大叔的名号才能在他那买。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  zycilcy  
+##### 2388#       发表于 2024-10-15 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66454313&amp;ptid=2140224" target="_blank">石中剑二 发表于 2024-10-15 10:37</a>
+
+去买烤比多鸟的香草为什么店家不卖给我？说只卖给老顾客</blockquote>
+应该是先去和旅馆的情报商人买情报，得知店主就是香草的老客户后，就可以通过和店主的关系买香草了。
+

@@ -587,3 +587,17 @@ ed舒服不少
 
 一集一个ost厉害了
 
+
+*****
+
+####  好much橘  
+##### 53#       发表于 2024-10-15 10:39
+
+虽然主题是钓鱼，但是意外地更想看展开男主过去赌狗的一面的集数<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+再加上漏油说的与鱼搏斗致死END，也算是大起大落、色彩复杂的人生了。
+
+中间再加个同行钓鱼好友因病致死，把只是渐渐习惯钓鱼的男主再一次拉回“生死”的现实就更好了。
+
+不知道会不会有这一面<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

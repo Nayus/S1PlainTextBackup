@@ -666,3 +666,86 @@ want go
 
 want going
 
+
+*****
+
+####  ashVision  
+##### 60#       发表于 2024-10-15 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66454266&amp;ptid=2203187" target="_blank">荡寇将军张嶷 发表于 2024-10-15 10:33</a>
+
+这玩意儿纯粹是被现代西方人用呲了的扩大化，正常接受普通英文教育的中国人哪跟得上这种奇葩潮流。
+
+翻一下 ...</blockquote>
+[https://www.bilibili.com/video/BV1kPmVYeEG7](https://www.bilibili.com/video/BV1kPmVYeEG7)
+
+童厕也干了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，只能说某些搞外语教辅也有点味大
+
+*****
+
+####  airfire  
+##### 61#       发表于 2024-10-15 10:41
+
+这不就是群体心理学的“羊群效应”，有人带头其它人就会跟着附和，出国的航班全是不懂英语的老粗不大可能。
+
+*****
+
+####  Alexmacau8  
+##### 62#       发表于 2024-10-15 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66454143&amp;ptid=2203187" target="_blank">Diong 发表于 2024-10-15 10:21</a>
+这个事情等价于老外被骗在中国大喊“我是傻逼”，没有特别倾向的人会觉得好玩儿（当然可能有点儿过于滑稽以 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">现场肯定有乐子人喜麻了
+
+*****
+
+####  瓦格雷  
+##### 63#       发表于 2024-10-15 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66453668&amp;ptid=2203187" target="_blank">马志明 发表于 2024-10-15 09:41</a>
+
+我理解这个不叫文化差异，应该叫智力差异</blockquote>
+你倒是挺有自我认知的 
+
+*****
+
+####  剑鹰  
+##### 64#       发表于 2024-10-15 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66453858&amp;ptid=2203187" target="_blank">马志明 发表于 2024-10-15 09:56</a>
+
+就算不带任何歧视
+
+你使用了一个错误的内容，大声自我表达
+
+我觉得不是文化差异的问题</blockquote>
+什么话得看什么人说，中国人说go back to China有什么问题么，就好比黑人说Niger
+
+*****
+
+####  荡寇将军张嶷  
+##### 65#       发表于 2024-10-15 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66454337&amp;ptid=2203187" target="_blank">ashVision 发表于 2024-10-15 10:39</a>
+[https://www.bilibili.com/video/BV1kPmVYeEG7](https://www.bilibili.com/video/BV1kPmVYeEG7)
+
+童厕也干了，只能说某些搞外语教辅也有点味大 ...</blockquote>
+搞英语教育也该分清语言变化趋势。
+
+Go back to where you came from，到19年才被确认为歧视词汇。
+
+从小学正常李雷韩梅梅那套教材的成年中国人谁有必要跟着这种潮流啊。
+
+而且严格来说都不是一个词组。
+
+像是LGBT的they这两年迅速趋势连美国人自己都跟不上，难道还要强求中国人也跟么。
+
+这教辅老哥第一句话就利雅得都口误了，这才是地理老师听了要流泪，体育迷听了要沉默系列。
+
+*****
+
+####  日日夜夜  
+##### 66#       发表于 2024-10-15 10:44
+
+该反思的是把这么正常的短语搞成歧视性语句的文化圈子，嘴上全是政治正确，私底下这也歧视那也歧视
+

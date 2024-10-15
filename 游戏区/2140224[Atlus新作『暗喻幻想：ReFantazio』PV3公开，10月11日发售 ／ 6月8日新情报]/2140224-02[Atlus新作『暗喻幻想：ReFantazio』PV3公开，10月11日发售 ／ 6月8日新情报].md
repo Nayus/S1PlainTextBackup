@@ -10737,3 +10737,15 @@ jjc三十连原来没奖励…只有成就，打完取档…
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  莉可厨  
+##### 2503#       发表于 2024-10-16 02:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66461101&amp;ptid=2140224" target="_blank">Kaornao 发表于 2024-10-16 01:50</a>
+这龙神宫殿能忍住不喷的也是神人了，解密+开电梯，两套阵容来回换打了我整整4个小时
+
+—— 来自 S1Fun ...</blockquote>
+这有啥谜啊，指引也太明显了，这游戏就压根没那种机关型迷宫，全是一条路的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

@@ -13555,3 +13555,29 @@ https://bang-dream.com/discographies/3846 ...</blockquote>
 
 其他地方看到了比较有意思的发言，说幕间3祥子和睦的台词一个描写窗外一个描写室内暗示这俩是在一起的，至于不符合祥子口癖的夸奖有可能就来自祥子手中的人偶，所以说是在模仿人偶说话也蛮合理的。
 
+
+*****
+
+####  NODY  
+##### 24838#       发表于 2024-10-16 02:10
+
+看到这个同人有了个猜想，睦那个对话的对象会不会就是这个经常抱着不离手的吉他？
+
+@bpdne
+
+<img src="https://img.saraba1st.com/forum/202410/16/021003mg2bg0wd1fb0g0bx.jpg" referrerpolicy="no-referrer">
+
+<strong>GZ8NWBxb0AIaXiN.jpg</strong> (132.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-16 02:10 上传
+
+<img src="https://img.saraba1st.com/forum/202410/16/021003jsk9z67b9gcs9kg7.jpg" referrerpolicy="no-referrer">
+
+<strong>GZ8NWBvb0AQ9OFJ.jpg</strong> (134.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-16 02:10 上传
+

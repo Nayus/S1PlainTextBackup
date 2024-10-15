@@ -1073,3 +1073,31 @@ Go back to China是祈使句，祈使句是一种命令、请求对方做某事�
 
 【中国游客国外机场大喊“Go back to China”，老外懵圈…-哔哩哔哩】 [https://b23.tv/44t3tAQ](https://b23.tv/44t3tAQ)
 
+
+*****
+
+####  迪米特里  
+##### 98#       发表于 2024-10-15 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66454933&amp;ptid=2203187" target="_blank">荡寇将军张嶷 发表于 2024-10-15 11:31</a>
+
+亚裔虽然有这样那样的问题，但亚裔一直没流行起黑哥那种拿着N-word当问候语的情况。
+
+至少在这个电影的标 ...</blockquote>
+香蕉人确实是觉得自己没受歧视的<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  renoluo  
+##### 99#       发表于 2024-10-15 11:41
+
+其实也就是词语污名化，比如同志这个词，所以有什么不好意思的，自信点本身就是外国人歧视性导致的
+
+*****
+
+####  regname  
+##### 100#       发表于 2024-10-15 11:43
+
+不是，你可以说他半吊子英文和骂他们瞎几把起哄，攻击他们其它方面真的是一种“自我矮化”和“自我歧视”
+

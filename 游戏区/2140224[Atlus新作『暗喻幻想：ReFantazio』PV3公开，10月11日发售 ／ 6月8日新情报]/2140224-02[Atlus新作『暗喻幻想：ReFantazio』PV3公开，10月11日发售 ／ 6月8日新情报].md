@@ -9318,3 +9318,30 @@ hard难度下敌人先手基本等于死，而吃屎一般的地图战斗手感�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">玩到现在唯一恶心的地方是为了出皇家版留了不少故意恶心人的点，很难想象一个2024年的游戏还没有即时存档和洗点
 
+
+*****
+
+####  operatbig  
+##### 2373#       发表于 2024-10-15 08:19
+
+话说终极形态能力会碾压普职吗？不会碾压有构思套路的配队吧。
+
+*****
+
+####  duraa  
+##### 2374#       发表于 2024-10-15 08:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66452722&amp;ptid=2140224" target="_blank">windtrack 发表于 2024-10-15 02:50</a>
+说实话这游戏战斗系统其实不错，但完全毁在这个地图战斗上了
+
+hard难度下敌人先手基本等于死，而吃屎一般的 ...</blockquote>
+用大剑走黄怪区不就行了，打晕开怪前切成自己想用的职业<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  modkingr  
+##### 2375#       发表于 2024-10-15 08:22
+
+2d过场基本是a社平均水平，p系列内置的便宜动画就没几个好看的
+

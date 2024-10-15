@@ -1354,3 +1354,47 @@ i said the caculation
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没文化真可怕，但我没有嘲笑LZ
 
+
+*****
+
+####  hellsingqd  
+##### 122#       发表于 2024-10-15 15:25
+
+不是，现在都不用考英语了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pigsy  
+##### 123#       发表于 2024-10-15 15:26
+
+ 本帖最后由 pigsy 于 2024-10-15 15:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66456060&amp;ptid=2203187" target="_blank">black199 发表于 2024-10-15 13:48</a>
+
+要怪还不如怪国内英文教育太不接地气了</blockquote>
+这个真和”不接地气“没关系，go back to xxx现在贬义化,纯粹是移动互联网时代才进化出来的新语义，而且尤其是在建政对喷的语境下……这个航班的人如果不长期浸盈在推特或者红迪之类的文字环境中，怎么可能都懂得？
+
+假如一个老外学中文，把”菊花“”翔“这些词语很规矩的按字典意思使用，你也不会吐槽”中文教育不接地气“吧……互联网meme实在是一个神出鬼没的过程，不是”教育“能够习得的，只能靠在这个环境中体会。
+
+*****
+
+####  暗月杀人兔  
+##### 124#       发表于 2024-10-15 15:29
+
+<blockquote>シャル 发表于 2024-10-15 09:50
+那也不能省略I want to going啊
+
+我想回中国说成滚回中国这不是有病嘛</blockquote>
+你这水平保守估计属于初中肄业
+
+
+*****
+
+####  赞卡机  
+##### 125#       发表于 2024-10-15 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66454337&amp;ptid=2203187" target="_blank">ashVision 发表于 2024-10-15 10:39</a>
+https://www.bilibili.com/video/BV1kPmVYeEG7
+
+童厕也干了，只能说某些搞外语教辅也有点味大 ...</blockquote>
+微博上也是这个人带节奏
+

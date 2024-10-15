@@ -1282,3 +1282,14 @@ go.png
 <blockquote>Go back to Mississippi, go back to Alabama, go back to South Carolina, go back to Georgia, go back to Louisiana, go back to the slums and ghettos of our Northern cities, knowing that somehow this situation can and will be changed.</blockquote>
 马丁路德金也是这样用的，原来这也是尼哥喊尼哥不算歧视
 
+
+*****
+
+####  呼和浩特  
+##### 115#       发表于 2024-10-15 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66455259&amp;ptid=2203187" target="_blank">暗の使徒 发表于 2024-10-15 12:03</a>
+
+funny mud pee，历史是人民创造的，语言是共识规则，认同的人多了就能用，不存在什么绝对正确。gbtc在红脖 ...</blockquote>
+太长不看
+

@@ -10592,3 +10592,29 @@ p5r的玩家已经不是习惯大气功啥的了，dlc一开始就给大气功�
 
 这作把好多迷宫做大了很多但是还是沿用了a社一贯的死扣mp回复手段真的挺难绷的<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">典型的就是龙宫，复刻的树1部分在原作一般都要回至少3次城才能拿下，放在这种进迷宫会消耗时间资源的游戏里要求一次性打完太过分了
 
+
+*****
+
+####  里恩  
+##### 2490#       发表于 2024-10-15 23:59
+
+被牛头人干废了，无法应对AOE
+
+而且牛头人的哪个阶段，并没有突属性的攻击技能，只有骑士的普通攻击，难道让我转3个骑士吗？
+
+感觉这个BOSS设计有问题。练级再去试试
+
+完了被牛头人了，亚绿莎！
+
+
+*****
+
+####  SuNR1sE364  
+##### 2491#       发表于 2024-10-16 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66460736&amp;ptid=2140224" target="_blank">里恩 发表于 2024-10-15 23:59</a>
+被牛头人干废了，无法应对AOE
+
+而且牛头人的哪个阶段，并没有突属性的攻击技能，只有骑士的普通攻击，难道 ...</blockquote>
+不需要专门的突属性，直接剑士三豆合体技砍就行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">伤害巨大量溢出
+

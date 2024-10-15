@@ -1262,3 +1262,23 @@ go.png
 
 <img src="https://img.saraba1st.com/forum/202410/15/125640miyvwwxv4il4lv1v.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  darkangel0224  
+##### 113#       发表于 2024-10-15 13:12
+
+<blockquote>猫一猫 发表于 2024-10-15 12:48
+有没有人说一下正确的口号应该怎么喊才对？</blockquote>
+如果非要强调中国，可以说return to china
+
+不过，一般鬼佬的牌子上大概会写成 i wanna go home这样
+
+*****
+
+####  买码！注册！  
+##### 114#       发表于 2024-10-15 13:13
+
+<blockquote>Go back to Mississippi, go back to Alabama, go back to South Carolina, go back to Georgia, go back to Louisiana, go back to the slums and ghettos of our Northern cities, knowing that somehow this situation can and will be changed.</blockquote>
+马丁路德金也是这样用的，原来这也是尼哥喊尼哥不算歧视
+

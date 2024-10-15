@@ -10243,3 +10243,24 @@ s1官博都转疯了，那张“狗命贵”的游戏截图。
 
 我去 最后这一段内容真的是答辩 太折磨了 三塔支线这boss共通的残血开吼加行动次数 玛德吼一下就七八动 动画长的一比 直接手柄放下来看戏了
 
+
+*****
+
+####  杜文乐超神归来  
+##### 2457#       发表于 2024-10-15 18:35
+
+真的幽默，带提示的门前面摆个猫。调整完技能吃完蓝药推门进去根本不用打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  kuarwbwe  
+##### 2458#       发表于 2024-10-15 18:37
+
+真要是a社的老头环起码先得用上虚幻4，再加上smt5的无缝地图探索再说别的。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+现在这游戏最多算个战斗超级加强版缝合怪。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

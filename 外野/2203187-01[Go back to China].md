@@ -1822,3 +1822,76 @@ We Are From China, We Want to Go HOME!!!
 
 不算错误用法，但这句节律交错不适合喊口号
 
+
+*****
+
+####  赞卡机  
+##### 159#       发表于 2024-10-15 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66458299&amp;ptid=2203187" target="_blank">MASKA-1 发表于 2024-10-15 18:19</a>
+为啥飞机延误开始闹了，有没有前因后果。
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+延误24小时食宿不包
+
+*****
+
+####  シャル  
+##### 160#         楼主| 发表于 2024-10-15 18:25
+
+ 本帖最后由 シャル 于 2024-10-15 18:29 编辑 
+<blockquote>Baccano 发表于 2024-10-15 18:20
+别找补了，这个就跟N-word。外国人说才是歧视，本国人就是表达本意。</blockquote>
+
+呵呵，你去X看看啊
+
+X分也两派，一派认为用法没问题，一派认为这就是用错了，不能直接用go back to china，至少要加let me，l want to，单独使用就不行
+
+这又不是你哥用法问题
+
+
+*****
+
+####  MASKA-1  
+##### 161#       发表于 2024-10-15 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66458311&amp;ptid=2203187" target="_blank">シャル 发表于 2024-10-15 18:20:39</a>
+延误时间久了，然后那个披风带头大哥起哄
+
+本来没啥事</blockquote>我还以为歧视中国乘客了，延误一般都有正经理由吧，喊口号也不能让飞机飞起来啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  MASKA-1  
+##### 162#       发表于 2024-10-15 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66458343&amp;ptid=2203187" target="_blank">赞卡机 发表于 2024-10-15 18:25</a>
+
+延误24小时食宿不包</blockquote>
+啥原因延误这么久？有点离谱
+
+*****
+
+####  EdSheeran  
+##### 163#       发表于 2024-10-15 18:32
+
+估摸着老外理解成你们维权怎么还骂自己的
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  日日夜夜  
+##### 164#       发表于 2024-10-15 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66458353&amp;ptid=2203187" target="_blank">MASKA-1 发表于 2024-10-15 18:26</a>
+
+我还以为歧视中国乘客了，延误一般都有正经理由吧，喊口号也不能让飞机飞起来啊
+
+  -- 来自 能搜索的 Stage ...</blockquote>
+不能让飞机起飞，但能让人知道被延误一天不是小事，搞不好能争取些补偿，当然搞不好也会被发到网上被本国人嘲讽了
+

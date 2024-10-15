@@ -10791,3 +10791,13 @@ jjc三十连原来没奖励…只有成就，打完取档…
 
 身边没死几个人别跟主角搞coop嗷，不然下一个就是你的马或者狗了
 
+
+*****
+
+####  杜文乐超神归来  
+##### 2508#       发表于 2024-10-16 04:57
+
+部分主线迷宫都不是设计好不好的问题，内容约等于没有。后面甚至懒得敷衍了，限时主线连迷宫都没了，就打一场收工<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

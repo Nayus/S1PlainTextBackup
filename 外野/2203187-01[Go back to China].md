@@ -2064,3 +2064,17 @@ X 上的派系没意义，假如我们这帖放上 X 也会分至少两派。
 
 这些人  到国外要用英文 因为不能麻烦本地洋大人  到国内要用英文  因为不能麻烦旅游的洋大人
 
+
+*****
+
+####  black  
+##### 179#       发表于 2024-10-15 20:46
+
+ 本帖最后由 black 于 2024-10-15 20:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66458599&amp;ptid=2203187" target="_blank">シャル 发表于 2024-10-15 19:02</a>
+
+比较推荐的口号：
+
+We need to go back to China now!</blockquote>
+我觉得都不如Fuck America
+

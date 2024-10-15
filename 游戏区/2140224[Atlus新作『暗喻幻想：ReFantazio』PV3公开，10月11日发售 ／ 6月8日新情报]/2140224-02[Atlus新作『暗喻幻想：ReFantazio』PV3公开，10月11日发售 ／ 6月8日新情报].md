@@ -10345,3 +10345,29 @@ s1官博都转疯了，那张“狗命贵”的游戏截图。
 休息房间不回HPMP太反直觉了吧？这次BOSS前不让回满状态？这是什么倒退30年的设定啊？ ...</blockquote>
 鹈鹕鹈鹕，不爽不要玩<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卡拉德利姆  
+##### 2466#       发表于 2024-10-15 20:44
+
+p5回不回来着 反正p5有大气功贴
+
+*****
+
+####  windtrack  
+##### 2467#       发表于 2024-10-15 20:48
+
+狂战士最后一个coop的支线怎么做，接到后白天去找他触发不了
+
+*****
+
+####  kuarwbwe  
+##### 2468#       发表于 2024-10-15 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66459285&amp;ptid=2140224" target="_blank">卡拉德利姆 发表于 2024-10-15 20:44</a>
+p5回不回来着 反正p5有大气功贴</blockquote>
+不回，打迷宫全靠大气功。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

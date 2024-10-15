@@ -13329,3 +13329,24 @@ schecter的两把琴和一把贝斯还没放出消息么，好急，太想买来
 schecter的两把琴和一把贝斯还没放出消息么，好急，太想买来当大号手办了</blockquote>
 狗琴是在动画完结后才开卖的，schecter这几把应该也差不多
 
+
+*****
+
+####  傘木希美  
+##### 24820#       发表于 2024-10-15 16:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/19/f87a69b4576f55ad14420285cefa2f8c/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+
+*****
+
+####  六道明  
+##### 24821#       发表于 2024-10-15 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66457257&amp;ptid=2159415" target="_blank">傘木希美 发表于 2024-10-15 16:16</a>
+
+—— 来自 鹅球 v3.2.91</blockquote>
+要扣薪水了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

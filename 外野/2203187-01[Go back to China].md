@@ -1492,3 +1492,22 @@ go back to China 表示歧视也主要是歧视高华吧
 你要是真说因为这个一开始那的确 ...</blockquote>
 但即使不考虑歧视含义，这种祈使句也是极其不友善的用法啊
 
+
+*****
+
+####  septer  
+##### 134#       发表于 2024-10-15 16:18
+
+凤梨就是菠萝<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rockchan  
+##### 135#       发表于 2024-10-15 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66454586&amp;ptid=2203187" target="_blank">鸳鸳相抱 发表于 2024-10-15 11:01</a>
+不管你啥趋势，go back to也是个祈使句，对自己使用祈使句其实确实挺欢乐的，楼主要是不扯什么歧视用语， ...</blockquote>
+先不说正统文法，用 “I/We want to go back to my/our country" 或 "Let's us go back to our country" 在英文口语上来说是颇常见的。
+
+— from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.1.88.1-alpha
+

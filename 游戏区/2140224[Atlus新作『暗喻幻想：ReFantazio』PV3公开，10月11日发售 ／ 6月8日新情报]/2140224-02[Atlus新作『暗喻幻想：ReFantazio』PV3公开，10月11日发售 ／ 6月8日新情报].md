@@ -10307,3 +10307,11 @@ s1官博都转疯了，那张“狗命贵”的游戏截图。
 我觉得你们拿现代社会的政治观念去套一个中世纪生产力水平还存在魔法的世界的政治表现，这多少还是有点不恰当的。 
 <img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  量产失败型  
+##### 2462#       发表于 2024-10-15 20:04
+
+大冢明夫报职业名时一声 阿萨↑辛↓ 差点没背过气去,这什么情况<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

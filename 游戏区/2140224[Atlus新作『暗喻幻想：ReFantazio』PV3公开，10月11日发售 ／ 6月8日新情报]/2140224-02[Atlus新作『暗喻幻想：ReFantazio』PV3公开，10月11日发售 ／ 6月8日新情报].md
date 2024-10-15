@@ -10094,3 +10094,11 @@ a社每一作物理都在加强，魔法永远就那吊样，爹不疼娘不爱
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">我也是，打到第四章，除了出远门以外每次特卖都去买东西了，也没给我跳成就。
 
+
+*****
+
+####  Khellendros  
+##### 2444#       发表于 2024-10-15 16:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刷到ign评测，标题就没绷住，唉反思
+

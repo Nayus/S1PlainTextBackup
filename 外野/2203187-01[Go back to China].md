@@ -1565,3 +1565,17 @@ go back to China 表示歧视也主要是歧视高华吧
 
 — from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.1.88.1-alpha
 
+
+*****
+
+####  尘落樱飞  
+##### 140#       发表于 2024-10-15 16:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我真看不懂
+
+真正该受歧视的是把china歧视来歧视去的人
+
+是把这句子的人搞成有歧视含义的人
+
+朴素直白的表示合理诉求有什么过错？（可能声音过大会扰到他人）
+

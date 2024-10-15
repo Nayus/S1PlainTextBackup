@@ -10727,3 +10727,13 @@ jjc三十连原来没奖励…只有成就，打完取档…
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Kaornao  
+##### 2502#       发表于 2024-10-16 01:50
+
+这龙神宫殿能忍住不喷的也是神人了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

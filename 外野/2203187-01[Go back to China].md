@@ -2051,3 +2051,16 @@ X 上的派系没意义，假如我们这帖放上 X 也会分至少两派。
 
 — from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.1.88.1-alpha
 
+
+*****
+
+####  瓦格雷  
+##### 178#       发表于 2024-10-15 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66458515&amp;ptid=2203187" target="_blank">monikaca 发表于 2024-10-15 18:48</a>
+
+如果洋大人来中国，没人用英文沟通，他在机场用中文叫唤“滚回美利坚”，会不会依然需要我们反思？ ...</blockquote>
+会的
+
+这些人  到国外要用英文 因为不能麻烦本地洋大人  到国内要用英文  因为不能麻烦旅游的洋大人
+

@@ -1101,3 +1101,35 @@ Go back to China是祈使句，祈使句是一种命令、请求对方做某事�
 
 不是，你可以说他半吊子英文和骂他们瞎几把起哄，攻击他们其它方面真的是一种“自我矮化”和“自我歧视”
 
+
+*****
+
+####  林无德  
+##### 101#       发表于 2024-10-15 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66454890&amp;ptid=2203187" target="_blank">MeursaulT 发表于 2024-10-15 11:26</a>
+
+是被是真的跟抖音上描述的一样
+
+我要吃鸭子：I want a gagaga</blockquote>
+语言这玩意儿交流够用就行吧，英语是母语的本地人说起话来有时还不如留子们严谨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+就跟你把是不是打成是被是，我还是能读懂一样，gagaga能被理解，那就没啥问题啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dazzle  
+##### 102#       发表于 2024-10-15 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66454933&amp;ptid=2203187" target="_blank">荡寇将军张嶷 发表于 2024-10-15 11:31</a>
+
+亚裔虽然有这样那样的问题，但亚裔一直没流行起黑哥那种拿着N-word当问候语的情况。
+
+至少在这个电影的标 ...</blockquote>
+哥们你太逗了，你自己贴的海报不看的么
+
+They told her to go back to china, so she did
+
+你觉得这句话里的go back to china是表达了什么思想感情
+

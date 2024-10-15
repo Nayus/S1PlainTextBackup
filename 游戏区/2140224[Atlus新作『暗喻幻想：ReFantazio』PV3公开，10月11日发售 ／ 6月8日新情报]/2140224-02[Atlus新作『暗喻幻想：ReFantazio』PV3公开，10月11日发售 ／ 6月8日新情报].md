@@ -10843,3 +10843,11 @@ jjc三十连原来没奖励…只有成就，打完取档…
 还有一个作用可以在迷宫里瞬移，猫没有瞬移功能</blockquote>
 草，忘了，能一天打穿迷宫后就没用过这功能。
 
+
+*****
+
+####  SuNR1sE364  
+##### 2513#       发表于 2024-10-16 07:30
+
+王宫那个传送门小迷宫有一个宝箱怎么搞都进不去，结果打完boss直接告诉我传送门都没了随便进<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">玩我是吧
+

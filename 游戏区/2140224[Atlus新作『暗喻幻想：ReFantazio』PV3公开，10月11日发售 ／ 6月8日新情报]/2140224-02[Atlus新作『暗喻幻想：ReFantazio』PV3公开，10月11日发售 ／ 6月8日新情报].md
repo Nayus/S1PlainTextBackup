@@ -10715,3 +10715,15 @@ p5r的玩家已经不是习惯大气功啥的了，dlc一开始就给大气功�
 
 他吗的金斧人也太强了，这机制和解锁难度真是无敌。相比之下隔壁金小偷的解锁难度和技能我都看笑了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  windtrack  
+##### 2501#       发表于 2024-10-16 01:30
+
+jjc三十连原来没奖励…只有成就，打完取档…
+
+单打最高级和隔壁三龙一比也是个废物
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

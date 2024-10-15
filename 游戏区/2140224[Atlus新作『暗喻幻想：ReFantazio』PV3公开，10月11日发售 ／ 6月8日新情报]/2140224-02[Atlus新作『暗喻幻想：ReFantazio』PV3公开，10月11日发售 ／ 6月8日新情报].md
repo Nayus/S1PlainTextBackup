@@ -9610,3 +9610,25 @@ hard难度下敌人先手基本等于死，而吃屎一般的 ...</blockquote>
 话说小丑本体基本全是DEBUFF和辅助技能 继承技能怎么带 出来 志愿者RANK等级不高 继承槽就1个，而且不知 ...</blockquote>
 我加点的魔速，初期练的术士治愈士，小丑继承个打弱点的魔法和群hp恢复就完事了。但不推荐主角加魔路线，后面回过头看其实挺坑的，最好全加力稍微带点速就行，不过魔成型了伤害也挺高就是了，但不推荐加魔
 
+
+*****
+
+####  Khellendros  
+##### 2404#       发表于 2024-10-15 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66455095&amp;ptid=2140224" target="_blank">忘却旋律 发表于 2024-10-15 11:47</a>
+
+话说小丑本体基本全是DEBUFF和辅助技能 继承技能怎么带 出来 志愿者RANK等级不高 继承槽就1个，而且不知 ...</blockquote>
+我都继承的偷窃，上完debuff再偷一下基本也打完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Khellendros  
+##### 2404#       发表于 2024-10-15 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66455095&amp;ptid=2140224" target="_blank">忘却旋律 发表于 2024-10-15 11:47</a>
+
+话说小丑本体基本全是DEBUFF和辅助技能 继承技能怎么带 出来 志愿者RANK等级不高 继承槽就1个，而且不知 ...</blockquote>
+我都继承的偷窃，上完debuff再偷一下基本也打完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

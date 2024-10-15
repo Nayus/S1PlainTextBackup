@@ -53,3 +53,27 @@
 
 游戏素质高也没啥用，现在社区环境就是卖相大于一切，粘ZZZQ的更是要批倒批臭，自己玩得开心就好了，就怕游戏烂到自娱自乐都不行
 
+
+*****
+
+####  寂长无星夜  
+##### 619#       发表于 2024-10-15 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66453957&amp;ptid=2072996" target="_blank">Dedalus 发表于 2024-10-15 10:06</a>
+离发售就15天了，淘宝拼多多只有一家卖碟还不是好价，这正常吗国内不会真暴死了吧
+
+—— 来自 S1Fun ...</blockquote>
+到现在大部分物料对国内玩家来说都是负面宣传，就不要想销量的事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寂长无星夜  
+##### 619#       发表于 2024-10-15 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66453957&amp;ptid=2072996" target="_blank">Dedalus 发表于 2024-10-15 10:06</a>
+离发售就15天了，淘宝拼多多只有一家卖碟还不是好价，这正常吗国内不会真暴死了吧
+
+—— 来自 S1Fun ...</blockquote>
+到现在大部分物料对国内玩家来说都是负面宣传，就不要想销量的事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

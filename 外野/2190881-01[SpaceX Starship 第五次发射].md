@@ -4958,3 +4958,13 @@ ESA自己和中国还有一些航天合作
 
 摄影水平遥遥领先
 
+
+*****
+
+####  stevenzero  
+##### 508#       发表于 2024-10-15 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66449719&amp;ptid=2190881" target="_blank">commcody 发表于 2024-10-14 17:19</a>
+冒火的看起来是助推器的液态甲烷加注和排放口，也就是下图的LCH4F/D。冒火原因未知，有可能自封活门或者 ...</blockquote>
+有说法助推回落时qd 口的火苗是一种保护机制，用来处理额外未烧尽的甲烷。
+

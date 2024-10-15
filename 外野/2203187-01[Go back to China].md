@@ -938,3 +938,31 @@ want doing 需要做某事，want意思是“需要、要求”，主语常是�
 
 不懂go back to China在充满歧视的环境里面的侮辱性含义，说明这群游客都长着没受过欺负的脸 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  الطائر  
+##### 85#       发表于 2024-10-15 11:08
+
+有前提的。让美国黑人回非洲，让美国白人回欧洲，让美籍华人回美国，是嘲讽。假如说让美洲原住民回美洲，就狗屁不通了。
+
+
+*****
+
+####  burgerWang  
+##### 86#       发表于 2024-10-15 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66453786&amp;ptid=2203187" target="_blank">シャル 发表于 2024-10-15 09:50</a>
+
+那也不能省略I want to going啊
+
+我想回中国说成滚回中国这不是有病嘛</blockquote>
+原来这就是985论坛的水平，受教
+
+*****
+
+####  ruistu  
+##### 87#       发表于 2024-10-15 11:16
+
+本质是现实现充不能理解网络死宅圈子里的文化，网络圈子里自嗨
+

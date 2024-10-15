@@ -10823,3 +10823,13 @@ jjc三十连原来没奖励…只有成就，打完取档…
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  plok201  
+##### 2511#       发表于 2024-10-16 06:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">大部队都差不多完事了，怎么说呢，就atlus不如给点钱外包给法老控吧，用界轨那个素质弄你这个作品
+
+法老控肯定用不了8年，顺便把地图也外包设计了，这个分数还能接受那么一点
+

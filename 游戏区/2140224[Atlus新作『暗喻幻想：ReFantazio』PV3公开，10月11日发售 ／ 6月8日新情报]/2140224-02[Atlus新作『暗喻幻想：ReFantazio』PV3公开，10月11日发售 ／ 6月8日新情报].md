@@ -10335,3 +10335,13 @@ s1官博都转疯了，那张“狗命贵”的游戏截图。
 
 休息房间不回HPMP太反直觉了吧？这次BOSS前不让回满状态？这是什么倒退30年的设定啊？
 
+
+*****
+
+####  莉可厨  
+##### 2465#       发表于 2024-10-15 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66459190&amp;ptid=2140224" target="_blank">里恩 发表于 2024-10-15 20:29</a>
+休息房间不回HPMP太反直觉了吧？这次BOSS前不让回满状态？这是什么倒退30年的设定啊？ ...</blockquote>
+鹈鹕鹈鹕，不爽不要玩<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

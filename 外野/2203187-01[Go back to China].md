@@ -2033,3 +2033,21 @@ Send us back to China!
 
 — from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.1.88.1-alpha
 
+
+*****
+
+####  Rockchan  
+##### 177#       发表于 2024-10-15 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66458348&amp;ptid=2203187" target="_blank">シャル 发表于 2024-10-15 18:25</a>
+呵呵，你去X看看啊
+
+X分也两派，一派认为用法没问题，一派认为这就是用错了，不能直接用go back to china ...</blockquote>
+X 上的派系没意义，假如我们这帖放上 X 也会分至少两派。
+
+最好方法便像我那样直接把 “go back to my country" 在谷歌搜索一下，看看多少人用及怎样用。至少我随便搜索一下便发现使用这句的人还真不罕见，也是正面使用没有岐视性质。
+
+当然单单用 “go back to my country" 的文法问题便是另一回事了，但旅客用错外语文法便没什么好奇怪的。
+
+— from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.1.88.1-alpha
+

@@ -10191,3 +10191,11 @@ s1官博都转疯了，那张“狗命贵”的游戏截图。
 
 从游玩上来说可以给9，因为玩得确实舒坦。但看桥野桂这老本吃8年的懒散架子跟当年豪气干云的口号实在反差过大，倒扣2分给不思进取吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 2451#       发表于 2024-10-15 17:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很怀疑这帮人八年干嘛去了，哪怕用四年快做完了结果最后推翻重做好了，再用四年重做一下起码能换个引擎吧？这画质建模端出来好意思吗？还想着扩圈，做梦呢
+

@@ -1633,3 +1633,17 @@ We Are From China, We Want to Go HOME!!!
 
 — from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.1.88.1-alpha
 
+
+*****
+
+####  Rockchan  
+##### 145#       发表于 2024-10-15 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66457863&amp;ptid=2203187" target="_blank">gnihton314 发表于 2024-10-15 17:22</a>
+还真不大一样，go这种单音节词的命令性更强，用在自己头上更是主动被动都反过来了。f*ck, ni**er这种词， ...</blockquote>
+你还说出主动被动便正正限制于文法当中。口语本来便是能理解便可以，假如用 go 会导致理解错误自然是问题，但既然能够理解那对于受众来说便没有需要计较的地方。不是每一个人也这么在乎文法，即使有人用错了也不会放在心上。
+
+在国外有众多移民及留学生的地方这么在乎文法，会患上高血压的。
+
+— from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.1.88.1-alpha
+

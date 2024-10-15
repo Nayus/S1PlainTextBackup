@@ -13516,3 +13516,17 @@ go琴是在动画完结后才开卖的，国内邦标实际到货时今年的五
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  NODY  
+##### 24835#       发表于 2024-10-15 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66460175&amp;ptid=2159415" target="_blank">傘木希美 发表于 2024-10-15 22:34</a>
+
+说来二专的特典有啥推荐的吗
+
+—— 来自 鹅球 v3.2.91</blockquote>
+角色厨的话，不同角色在对应店铺有特典，你对着官网看一下吧
+[https://bang-dream.com/discographies/3846](https://bang-dream.com/discographies/3846)
+

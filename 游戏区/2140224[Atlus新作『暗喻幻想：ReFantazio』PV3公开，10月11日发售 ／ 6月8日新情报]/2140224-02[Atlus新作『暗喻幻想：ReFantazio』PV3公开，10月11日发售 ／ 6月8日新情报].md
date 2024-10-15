@@ -10518,3 +10518,49 @@ p5也不回吧，p5r倒是在迷宫里加了3个欲石，拿到会回点mp
 最后是难度调低叠buff一回合秒了,看技能名称应该就是设定</blockquote>
 我测了一下。番长最终职业刚好是弱风的，boss进去会老老实实变探求者打风aoe，如果穿个风反鞋直接全场9999了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fsdragontree  
+##### 2482#       发表于 2024-10-15 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66460083&amp;ptid=2140224" target="_blank">Khellendros 发表于 2024-10-15 22:23</a>
+
+p5也不回吧，p5r倒是在迷宫里加了3个欲石，拿到会回点mp</blockquote>
+p5r的玩家已经不是习惯大气功啥的了，dlc一开始就给大气功饰品，熟悉的还带大神的胜利咆哮......没办法，由俭入奢难.......
+
+而且暗喻幻想这作前期的回蓝轮椅要靠主角转法师才有被动，其他人转法师还差一点，而且也麻烦......
+
+
+*****
+
+####  唯一指定用户名  
+##### 2483#       发表于 2024-10-15 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66460277&amp;ptid=2140224" target="_blank">fsdragontree 发表于 2024-10-15 22:47</a>
+这个如果常玩atlus应该可以发现，就像打人修罗，你全物抗、物反过去不给他机会，人家就直接请你吃地母晚 ...</blockquote>
+这个其实就是这种<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">连发哈米吉多顿，数值固定9999。不过看楼上大概知道为什么了。
+
+*****
+
+####  我要日十个  
+##### 2484#       发表于 2024-10-15 22:56
+
+前期拿了龙鳞大剑给了老头装备结果剧情杀了，装备就没了？？？？
+
+*****
+
+####  唯一指定用户名  
+##### 2485#       发表于 2024-10-15 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66460334&amp;ptid=2140224" target="_blank">我要日十个 发表于 2024-10-15 22:56</a>
+前期拿了龙鳞大剑给了老头装备结果剧情杀了，装备就没了？？？？</blockquote>
+不要慌，会还的。
+
+*****
+
+####  我要日十个  
+##### 2486#       发表于 2024-10-15 22:57
+
+哦哦，吓我一跳。。。
+

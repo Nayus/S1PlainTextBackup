@@ -13506,3 +13506,13 @@ go琴是在动画完结后才开卖的，国内邦标实际到货时今年的五
 
 2024-10-15 21:57 上传
 
+
+*****
+
+####  傘木希美  
+##### 24834#       发表于 2024-10-15 22:34
+
+说来二专的特典有啥推荐的吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

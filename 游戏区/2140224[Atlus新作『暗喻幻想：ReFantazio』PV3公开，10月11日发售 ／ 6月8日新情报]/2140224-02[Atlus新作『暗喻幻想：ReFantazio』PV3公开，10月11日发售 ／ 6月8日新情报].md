@@ -10460,3 +10460,29 @@ p5也不回吧，p5r倒是在迷宫里加了3个欲石，拿到会回点mp
 休息房间不回HPMP太反直觉了吧？这次BOSS前不让回满状态？这是什么倒退30年的设定啊？ ...</blockquote>
 唯一的作用就是当个存档点，尼玛我存个档还要看两遍过场是真的逆天。
 
+
+*****
+
+####  AEmpire  
+##### 2477#       发表于 2024-10-15 22:33
+
+大伙都这么忙吗，都抽不出时间回来陪陪玛丽亚？必须谴责！<img src="https://static.saraba1st.com/image/smiley/face/27.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202410/15/223106rtoa9acoor3tn9wn.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (5.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-15 22:31 上传
+
+*****
+
+####  fsdragontree  
+##### 2478#       发表于 2024-10-15 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66452127&amp;ptid=2140224" target="_blank">唯一指定用户名 发表于 2024-10-14 23:27</a>
+
+后期多支线解锁的会复读无限超大群体万能boss怎么打啊太变态了。</blockquote>
+一般这种是有什么物理抗性/反弹啥的触发boss的坑爹机制了，上网查一下.....
+

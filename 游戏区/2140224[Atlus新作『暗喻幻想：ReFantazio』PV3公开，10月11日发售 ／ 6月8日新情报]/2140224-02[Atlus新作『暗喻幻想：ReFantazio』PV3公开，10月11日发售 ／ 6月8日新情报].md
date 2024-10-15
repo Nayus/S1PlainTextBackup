@@ -10618,3 +10618,45 @@ p5r的玩家已经不是习惯大气功啥的了，dlc一开始就给大气功�
 而且牛头人的哪个阶段，并没有突属性的攻击技能，只有骑士的普通攻击，难道 ...</blockquote>
 不需要专门的突属性，直接剑士三豆合体技砍就行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">伤害巨大量溢出
 
+
+*****
+
+####  ネコカイザー  
+##### 2492#       发表于 2024-10-16 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66460736&amp;ptid=2140224" target="_blank">里恩 发表于 2024-10-15 23:59</a>
+ 被牛头人干废了，无法应对AOE  而且牛头人的哪个阶段，并没有突属性的攻击技能，只有骑士的普通攻击，难道 ...</blockquote>
+你不是有个麻痹箭吗，实在打不过无限凹麻痹也总能过的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ネコカイザー  
+##### 2492#       发表于 2024-10-16 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66460736&amp;ptid=2140224" target="_blank">里恩 发表于 2024-10-15 23:59</a>
+ 被牛头人干废了，无法应对AOE  而且牛头人的哪个阶段，并没有突属性的攻击技能，只有骑士的普通攻击，难道 ...</blockquote>
+你不是有个麻痹箭吗，实在打不过无限凹麻痹也总能过的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  SuNR1sE364  
+##### 2493#       发表于 2024-10-16 00:23
+
+这三龙除了那个全反的麻烦点剩下两个没物理抗性在好基友刀下就像路边一条啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kuarwbwe  
+##### 2494#       发表于 2024-10-16 00:24
+
+ 本帖最后由 kuarwbwe 于 2024-10-16 00:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66460736&amp;ptid=2140224" target="_blank">里恩 发表于 2024-10-15 23:59</a>
+被牛头人干废了，无法应对AOE
+
+而且牛头人的哪个阶段，并没有突属性的攻击技能，只有骑士的普通攻击，难道 ...</blockquote>
+战士和骑士的合体技也是突刺，或者骑士和武僧，还能给牛头人赋予突刺弱点。我就是在牛头人蓄力的时侯直接开合体技给一个突刺就行。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

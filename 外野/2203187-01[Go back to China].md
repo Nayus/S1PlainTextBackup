@@ -815,3 +815,126 @@ r/China 也有人发这个了。国内互联网上有的人对这些不幸在机
 
 楼主没有编辑掉want to going这一点值得我的尊重
 
+
+*****
+
+####  基本农田  
+##### 74#       发表于 2024-10-15 10:58
+
+这视频原来是这么回事<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  gogobar  
+##### 75#       发表于 2024-10-15 10:58
+
+<blockquote>马志明 发表于 2024-10-15 09:41
+我理解这个不叫文化差异，应该叫智力差异</blockquote>
+这只能说明一个问题：
+
+他们没有被歧视过
+
+然后推上一群这辈子或多或少经历过“go back to China”这类歧视迫害的人，在新闻下面评论里嘲笑那些没有被歧视过的人不懂“go back to China”
+
+多少有点黑色幽默。
+
+*****
+
+####  downforce  
+##### 76#       发表于 2024-10-15 10:59
+
+ 本帖最后由 downforce 于 2024-10-15 11:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66454011&amp;ptid=2203187" target="_blank">シャル 发表于 2024-10-15 10:10</a>
+？？呵呵了，还是你去座一桌吧
+
+我的意思是毯子男本意是想说 I want going back to china吧，然后直接省 ...</blockquote>
+他意思是你那句英语语法错了。所以和那帮人水平也差不多。want to 后面跟动词原型。<blockquote>want to do想做某事，want意思是“想要”，主语常是人
+want doing 需要做某事，want意思是“需要、要求”，主语常是物</blockquote>—— 来自 Xiaomi 22061218C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  black  
+##### 77#       发表于 2024-10-15 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66454010&amp;ptid=2203187" target="_blank">瓦格雷 发表于 2024-10-15 10:09</a>
+
+你这帖子主题是什么  欢乐
+
+你帖子第一句话是什么 没文化真可怕</blockquote>
+小刘，你上班怎么还在摸鱼，到我办公室来一趟
+
+*****
+
+####  小小雪空  
+##### 78#       发表于 2024-10-15 11:00
+
+我看楼主英语也不太好……×
+
+*****
+
+####  鸳鸳相抱  
+##### 79#       发表于 2024-10-15 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66454535&amp;ptid=2203187" target="_blank">荡寇将军张嶷 发表于 2024-10-15 10:56</a>
+
+义务教育又不管结束阶段之后的新趋势，总不能让义务教育再去教育都毕业十几年的成年人吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">不管你啥趋势，go back to也是个祈使句，对自己使用祈使句其实确实挺欢乐的，楼主要是不扯什么歧视用语，估计站他的能多一点
+
+*****
+
+####  早乙女种马  
+##### 80#       发表于 2024-10-15 11:02
+
+不懂英语闹笑话还不让人笑了？ 什么玻璃心
+
+生活带来您时柠檬做柠檬水
+
+
+*****
+
+####  Mr姜  
+##### 81#       发表于 2024-10-15 11:02
+
+这和会不会英语有什么关系，什么英语课会教你这是歧视中国人的语言？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  好无聊哎  
+##### 82#       发表于 2024-10-15 11:02
+
+<img src="https://img.saraba1st.com/forum/202410/15/110214kgttxx2mo722x7ps.png" referrerpolicy="no-referrer">
+
+<strong>S41015-11012152_com.mmbox.xbrowser.png</strong> (210.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-15 11:02 上传
+
+最多也只能说游客英语不好，直接百度翻译回中国就是这个，哪谈得上什么丢人的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  MeursaulT  
+##### 83#       发表于 2024-10-15 11:04
+
+没文化真可怕
+
+该事件发生在s1论坛。
+
+近日，一日本名字的楼主在论坛锐评中国旅客的帖子在网上流传。帖子里，楼主高举want to doing的反义务教育大旗，批判旅客不懂2019年开始的英文歧视语，引发热议。
+部分网友评价：急了自己都骂、丢人现眼。
+还有中国义务教育合格的网友表示楼主的英语水平“非常令人困惑”
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  zyuco  
+##### 84#       发表于 2024-10-15 11:07
+
+不懂go back to China在充满歧视的环境里面的侮辱性含义，说明这群游客都长着没受过欺负的脸 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -6915,3 +6915,11 @@ staff里一定有人看过别当哥的温泉回
 
 游戏内成就里能看的吧，主要还是一直只有初级魔法，不说双属性能升级成单属性的高级魔法还不酷炫？就是优化不行丢出来卡半死吧<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jacket  
+##### 6572#       发表于 2024-10-15 10:53
+
+给李霞换轻装才注意到她的手甲是用红绳穿过肩部前后两个吊环固定的<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+

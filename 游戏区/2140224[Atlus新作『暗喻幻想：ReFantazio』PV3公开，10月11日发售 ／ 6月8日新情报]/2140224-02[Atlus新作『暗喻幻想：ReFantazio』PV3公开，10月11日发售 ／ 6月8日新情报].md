@@ -9505,3 +9505,16 @@ hard难度下敌人先手基本等于死，而吃屎一般的 ...</blockquote>
 
 —— 来自 samsung SM-S9080, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  忘却旋律  
+##### 2393#       发表于 2024-10-15 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66451971&amp;ptid=2140224" target="_blank">莉可厨 发表于 2024-10-14 23:04</a>
+
+点子都给番长出完了，主角跟个弱智一样在旁边嗯嗯啊啊，番长来当王算了 ...</blockquote>
+那还不如和以往一样 让主角基本大部分时间是当个哑巴的，这样是不是观感还好点。
+
+现在这样 平时屁话也挺多，但是 一到关键时候/出点子的时候全是附和就特么很弱智。
+

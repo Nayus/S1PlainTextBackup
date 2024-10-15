@@ -5023,3 +5023,15 @@ ESA自己和中国还有一些航天合作
 
 说到军事用途，它用来打星链就够军事用途了，未来星链可能真会改变战场
 
+
+*****
+
+####  YoumuChan  
+##### 512#       发表于 2024-10-16 05:15
+
+[https://mp.weixin.qq.com/s?__biz ... 430a1da40dc144c254a](https://mp.weixin.qq.com/s?__biz=MzAxODUwODAwOQ==&amp;mid=2649414647&amp;idx=1&amp;sn=0d6bfd1db5bff430a1da40dc144c254a)
+
+《“超重-星舰”成功执行第五次综合飞行试验，首次实现一级回收》
+
+《中国航天》每次都会发布的任务总结
+

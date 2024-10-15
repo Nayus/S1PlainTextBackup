@@ -1133,3 +1133,41 @@ They told her to go back to china, so she did
 
 你觉得这句话里的go back to china是表达了什么思想感情
 
+
+*****
+
+####  皮埃罗幻想  
+##### 103#       发表于 2024-10-15 12:00
+
+懂英语都知道这句话啥意思
+
+*****
+
+####  tonyshva  
+##### 104#       发表于 2024-10-15 12:02
+
+直接let us go home就好了嘛，非要加上china吗
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  moonchild  
+##### 105#       发表于 2024-10-15 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66453668&amp;ptid=2203187" target="_blank">马志明 发表于 2024-10-15 09:41:34</a>
+我理解这个不叫文化差异，应该叫智力差异</blockquote>觉得没问题有没有可能是智力水平问题
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  暗の使徒  
+##### 106#       发表于 2024-10-15 12:03
+
+funny mud pee，历史是人民创造的，语言是共识规则，认同的人多了就能用，不存在什么绝对正确。gbtc在红脖和精神白皮种族歧视语境下是贬义，谁规定我们正常表达就是贬义？
+
+什么long time no see，you can you up都是共识形成规则。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -1778,3 +1778,14 @@ Screenshot_20241010_133957.jpg
 
 理发师奥提斯是纯血体系，技能都带吸血，三技能又是AOE又是威力提升，还能提供暴食资源，一眼强。
 
+
+*****
+
+####  菟原手兒奈  
+##### 931#       发表于 2024-10-15 09:37
+
+普牢试了下残缺的流血队，比沉沦快多了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+趁着最后几天赶紧牢，希望这赛季的新牢别削血雾
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

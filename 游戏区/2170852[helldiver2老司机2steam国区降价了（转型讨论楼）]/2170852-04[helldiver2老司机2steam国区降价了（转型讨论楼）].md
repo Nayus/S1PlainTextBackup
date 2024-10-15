@@ -621,3 +621,41 @@ he并不好用，没破片没子炸弹纯加一个范围爆炸，效果感觉不
 
 总感觉怪刷的多了
 
+
+*****
+
+####  xinfengj  
+##### 5489#       发表于 2024-10-16 02:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66458481&amp;ptid=2170852" target="_blank">屑屑代沟尼亚 发表于 2024-10-15 18:44</a>
+无后座这专职反重的加个对群用的高爆是挺迷的
+
+空爆：那我走？</blockquote>
+he并不好用，没破片没子炸弹纯加一个范围爆炸，效果感觉不如榴弹，试了几发就切回heat了
+
+*****
+
+####  xinfengj  
+##### 5490#       发表于 2024-10-16 02:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64868182&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-5-10 00:16</a>
+一把硬直突击步枪，一把击退冲锋枪，一把蓄力焦土。
+突击步枪打虫子看不出效果，冲锋枪能停隐身虫。蓄力 ...</blockquote>
+净化用了5个月终于成为了它本来诞生时应该成为的样子<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">反馈有用但是效率还是太低了
+
+*****
+
+####  Aeons  
+##### 5491#       发表于 2024-10-16 03:33
+
+总感觉怪刷的多了
+
+*****
+
+####  风萧飒  
+##### 5492#       发表于 2024-10-16 07:40
+
+净化者弹药用的有点快
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

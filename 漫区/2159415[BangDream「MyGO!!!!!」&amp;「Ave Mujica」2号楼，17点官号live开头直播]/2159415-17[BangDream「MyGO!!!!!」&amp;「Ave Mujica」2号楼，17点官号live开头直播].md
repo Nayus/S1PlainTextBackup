@@ -13482,3 +13482,27 @@ go琴是在动画完结后才开卖的，国内邦标实际到货时今年的五
 
 2024-10-15 21:57 上传
 
+
+*****
+
+####  御幸一也  
+##### 24833#       发表于 2024-10-15 22:19
+
+李子這次給的回應好棒<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202410/15/215814e28momuoghi86zo6.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_佐々木李子(@sasakirico)_20241014-055023_1845703678348738741_photo-3.jpg</strong> (1.47 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-15 21:58 上传
+
+<img src="https://img.saraba1st.com/forum/202410/15/215734vtauuuuumaar4ims.jpg" referrerpolicy="no-referrer">
+
+<strong>loft.jpg</strong> (251.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-15 21:57 上传
+

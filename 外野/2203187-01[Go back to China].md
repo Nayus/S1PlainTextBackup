@@ -1549,3 +1549,19 @@ go back to China 表示歧视也主要是歧视高华吧
 
 — from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.1.88.1-alpha
 
+
+*****
+
+####  Rockchan  
+##### 139#       发表于 2024-10-15 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66453895&amp;ptid=2203187" target="_blank">kira1988 发表于 2024-10-15 10:00</a>
+直接we want to go home不就行了
+
+这么喊不就自己辱自己</blockquote>
+假如这句是一个要求，说 “home" 的问题是对方不知道那 home 在哪。
+
+再加上这一句单单在文字上没有侮辱成份，变成岐视语源于某些人吧了。长期在国内的人不知道国外把英文用歪了便是理所当然。
+
+— from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.1.88.1-alpha
+

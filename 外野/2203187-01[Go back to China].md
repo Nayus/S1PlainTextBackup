@@ -1398,3 +1398,31 @@ https://www.bilibili.com/video/BV1kPmVYeEG7
 童厕也干了，只能说某些搞外语教辅也有点味大 ...</blockquote>
 微博上也是这个人带节奏
 
+
+*****
+
+####  老崔  
+##### 126#       发表于 2024-10-15 15:38
+
+go back to China 表示歧视也主要是歧视高华吧
+
+白皮嫌他们占了自己的地盘，赶他们回中国
+
+普通中国人本来也不稀罕跑你那边定居啊，在你那边呆久了还浑身不舒服呢，go back to China表达了作者的思乡之情，没毛病啊没毛病
+
+觉得有毛病的才是有毛病
+
+*****
+
+####  gnihton314  
+##### 127#       发表于 2024-10-15 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66454266&amp;ptid=2203187" target="_blank">荡寇将军张嶷 发表于 2024-10-15 10:33</a>
+
+这玩意儿纯粹是被现代西方人用呲了的扩大化，正常接受普通英文教育的中国人哪跟得上这种奇葩潮流。
+
+翻一下 ...</blockquote>
+主动句和祈使句都分不清在这里说啥呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+初中英语就教过祈使句虽然叫祈使句，但是实际上是命令。
+

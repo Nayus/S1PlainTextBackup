@@ -10044,3 +10044,15 @@ a社每一作物理都在加强，魔法永远就那吊样，爹不疼娘不爱
 
 2024-10-15 15:02 上传
 
+
+*****
+
+####  NEIN  
+##### 2440#       发表于 2024-10-15 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66456047&amp;ptid=2140224" target="_blank">Khellendros 发表于 2024-10-15 13:47</a>
+真身有影子老梗了</blockquote>
+一开始还以为是p5x的看不同动作，结果atlus纯懒狗公式化看影子
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

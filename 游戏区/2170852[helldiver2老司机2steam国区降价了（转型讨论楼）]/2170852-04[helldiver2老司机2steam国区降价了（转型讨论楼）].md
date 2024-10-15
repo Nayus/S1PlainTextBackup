@@ -602,3 +602,14 @@ Mikael E
 空爆：那我走？</blockquote>
 he并不好用，没破片没子炸弹纯加一个范围爆炸，效果感觉不如榴弹，试了几发就切回heat了
 
+
+*****
+
+####  xinfengj  
+##### 5487#       发表于 2024-10-16 02:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64868182&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-5-10 00:16</a>
+一把硬直突击步枪，一把击退冲锋枪，一把蓄力焦土。
+突击步枪打虫子看不出效果，冲锋枪能停隐身虫。蓄力 ...</blockquote>
+净化用了5个月终于成为了它本来诞生时应该成为的样子<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">反馈有用但是效率还是太低了
+

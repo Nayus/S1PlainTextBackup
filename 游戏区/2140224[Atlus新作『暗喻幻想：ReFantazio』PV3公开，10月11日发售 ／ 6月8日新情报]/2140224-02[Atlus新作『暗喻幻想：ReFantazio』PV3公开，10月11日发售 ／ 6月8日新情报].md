@@ -10757,3 +10757,29 @@ jjc三十连原来没奖励…只有成就，打完取档…
 
 47h通了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这游戏倒也不是不值得玩，但还是那个观点：桥野桂你好好想想自己的项目管理能力是什么勾毛，8年磨出来这么个东西后让sega找媒体买分炒作，有没有神作水平自己心里没数吗？
 
+
+*****
+
+####  windtrack  
+##### 2505#       发表于 2024-10-16 02:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66461131&amp;ptid=2140224" target="_blank">莉可厨 发表于 2024-10-16 02:13</a>
+这有啥谜啊，指引也太明显了，这游戏就压根没那种机关型迷宫，全是一条主路配几个拿宝贝的支路的而且龙宫 ...</blockquote>
+设计含量X
+世界树迷宫复制粘贴O
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  AeonsTorn  
+##### 2506#       发表于 2024-10-16 02:53
+
+ 本帖最后由 AeonsTorn 于 2024-10-16 02:55 编辑 
+
+服了龙宫这逼耳人，堆雷系打弱点苦哈哈打半天，结果一个剑士合题随便打出三倍数值伤害，魔法和物理一比也太笑话了
+
+哦之前忘说了加强版高低得给个保存队伍配置的选项
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.89
+

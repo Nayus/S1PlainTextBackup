@@ -4968,3 +4968,48 @@ ESA自己和中国还有一些航天合作
 冒火的看起来是助推器的液态甲烷加注和排放口，也就是下图的LCH4F/D。冒火原因未知，有可能自封活门或者 ...</blockquote>
 有说法助推回落时qd 口的火苗是一种保护机制，用来处理额外未烧尽的甲烷。
 
+
+*****
+
+####  机吉斯卡  
+##### 509#       发表于 2024-10-15 16:00
+
+<img src="https://img.saraba1st.com/forum/202410/15/160020h5id8oppos5ue2ys.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5041.jpeg</strong> (186.86 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-10-15 16:00 上传
+
+<img src="https://img.saraba1st.com/forum/202410/15/160021s2oemnzgxsfzk554.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5042.jpeg</strong> (120.35 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-10-15 16:00 上传
+
+像不像一位故人的作品？
+
+*****
+
+####  机吉斯卡  
+##### 510#       发表于 2024-10-15 16:03
+
+【这回应该不挨骂了，最后一个叫“星舟”的官媒也改了，这下“星舰”的译名应该没争议了吧】SpaceX前几次发射时，国内官媒大部分对Starship一词采用“星舰”的译名，尤其是东高地首先用了这个译名，作为火箭领域权威机构译名，我个人觉得这个名字也不错。唯一的例外是图中的XX社官媒，第1-3次发射都坚持翻译为”星舟“，我专门发微博吐槽过，结果被骂的狗血淋头的。
+
+第4次发射起，XX社也算是从善如流，也改成了”星舰“，有人说可能是某个小编偶尔搬错了，这回第五次发射还叫星舰，那应该是正式修改了。自此应该这玩意的中文译名算是统一了，只要说SpaceX的星舰，就是指这个玩意。
+
+但是，我额外说一句，我个人不太喜欢东高地对猎鹰9的翻译——法尔肯9...
+
+都音译，那岂不是Starlink斯大林克，Starship斯塔细普，怪怪的。
+
+不过，火箭译名很乱的，你像欧洲火箭，Airane一般直接音译阿丽亚娜，而Vega更多意译为织女星，而非音译”维嘉“，简直了。早年看港台杂志，经常有三角洲火箭这叫法，后来才知道是德尔塔Delta。
+
+简直了。。。
+
+#航天爱好者网[超话]##SpaceX星舰进行第五次试飞#
+

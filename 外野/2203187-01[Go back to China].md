@@ -988,3 +988,88 @@ want doing 需要做某事，want意思是“需要、要求”，主语常是�
 翻一下 ...</blockquote>
 拿《回中国》这部典型的香蕉人电影当例子你是会选的，很有华川粉那种热脸贴冷屁股的美
 
+
+*****
+
+####  66367749  
+##### 90#       发表于 2024-10-15 11:26
+
+用want to doing的人嘲笑游客不懂英文近几年的歧视语，我看lz还是少接触日式英语，先把英语的基本语法搞搞清楚再来吧–_–!!!
+
+*****
+
+####  MeursaulT  
+##### 91#       发表于 2024-10-15 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66454816&amp;ptid=2203187" target="_blank">林无德 发表于 2024-10-15 11:20</a>
+爬完这楼，感觉无法再说自己曾经是留子了
+
+英语，竟是如此不便之物。。。 ...</blockquote>
+是被是真的跟抖音上描述的一样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+我要吃鸭子：I want a gagaga
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  iamdog  
+##### 92#       发表于 2024-10-15 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66454168&amp;ptid=2203187" target="_blank">玉米黍 发表于 2024-10-15 10:22</a>
+
+这些游客又不是移民，本来就是要go back to China的因为中国是一个更好的地方游客只是出来猎奇一下。 如果 ...</blockquote>
+和外国人自己在国内机场集体喊：滚回美国/英国/法国...，你会感觉很不理解，但想一想就明白大概是语法用错了，大部分人就也不是很在意，但肯定也有一部分会感觉很尴尬。
+
+当个乐子我感觉没啥问题，反思大可不必，语法用错当然要记着改（不管是中国人说英语还是外国人说中文，感觉不写这个又会被人扣帽子）
+
+*****
+
+####  hollowd  
+##### 93#       发表于 2024-10-15 11:28
+
+屁大点事，等美国人说我爱吃白皮猪，我是白皮猪再来智商低下吧
+
+
+*****
+
+####  荡寇将军张嶷  
+##### 94#       发表于 2024-10-15 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66454841&amp;ptid=2203187" target="_blank">迪米特里 发表于 2024-10-15 11:22</a>
+
+拿《回中国》这部典型的香蕉人电影当例子你是会选的，很有华川粉那种热脸贴冷屁股的美 ...</blockquote>
+亚裔虽然有这样那样的问题，但亚裔一直没流行起黑哥那种拿着N-word当问候语的情况。
+
+至少在这个电影的标题上，是没把这个词当歧视语来用的。
+
+而且你看我上下文都举过大量例子了：
+
+1，Go back to xxx到现在英语世界还在正常用。
+
+2，真正的歧视语是Go back to your country或者go back to where you came from。
+
+3，即使是上文的歧视语也是19年刚刚被确立。
+
+*****
+
+####  棺材叔叔  
+##### 95#       发表于 2024-10-15 11:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">加个we want就好了。
+
+不过这也就让老外一乐，不会有啥副作用；比起在飞机上对着空姐喊“shut up”那位还是好多了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿菠萝13  
+##### 96#       发表于 2024-10-15 11:34
+
+Go back to China是祈使句，祈使句是一种命令、请求对方做某事的句式，观感上是比较奇怪，但是结合语境就能搞懂真实用意了，尬就尬吧，开心最重要<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tukabi  
+##### 97#       发表于 2024-10-15 11:35
+
+【中国游客国外机场大喊“Go back to China”，老外懵圈…-哔哩哔哩】 [https://b23.tv/44t3tAQ](https://b23.tv/44t3tAQ)
+

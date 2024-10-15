@@ -2356,3 +2356,220 @@ ab姐说以上话的同时也说“我磕b当0是因为他很欠曹”“磕ab�
 
 :别给它画面了，听见都ex。直接冷处理，看看如果一个视频只有几百播放量它还会不会继续做下去
 
+
+*****
+
+####  東雲絵名  
+##### 1671#         楼主| 发表于 2024-10-15 16:52
+
+我个人🤓👆🏻比较讨厌😡同性👄之间的恋爱❤️、交配🥵等事情，所以😤，我创作✍🏻了一个男性👌🏻的主角。
+
+而她们💅🏻，仅仅🤡只是朋友🤝的关系，她们💅🏻为彼此做的事情😘，让我并不认为👊🏻她们是同性恋🧐。
+
+☝🏻所以，在一个有能力😎获得她们好感度🥰的人面前，她们😘是会向普通女孩🌹一样心动😍，接近😋，攻略😈，交往❤️，结婚💐的。
+
+因此😠，我创作✍🏻了这个故事。
+
+新人😎第一次☝🏻制作这类自制剧情👐🏻试水，有可以优化😋的地方请指出😘。
+
+时长会因为我的熟练度😤提升而逐渐增加👊🏻。
+
+男主😤后宫向😍，无翅膀👐🏻打结。
+
+*****
+
+####  東雲絵名  
+##### 1672#         楼主| 发表于 2024-10-15 16:54
+
+【反】哇塞在视频底下发这种评论的简直逆如天了哈 ​​​
+
+<img src="https://img.saraba1st.com/forum/202410/15/165349u02sc6mi03h4zw4z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (50.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-15 16:53 上传
+
+:真让你生又不乐意了[黑线]
+
+:[允悲]我说，不理解能不能尊重人家，发棉花娃娃干什么，显得你很独立很清醒么，每个人幸福的方式不一样，发棉花娃娃是显得你幸福方式很高贵吗？二次元能不能回到人人喊打的时代
+
+*****
+
+####  東雲絵名  
+##### 1673#         楼主| 发表于 2024-10-15 16:54
+
+<img src="https://img.saraba1st.com/forum/202410/15/165446m8o6iwhx884p8hoz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (69.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-15 16:54 上传
+
+*****
+
+####  東雲絵名  
+##### 1674#         楼主| 发表于 2024-10-15 16:56
+
+【米底解魅力时刻】甚至还有人拿厕所认同的产品跟zng口中的好女人做比较[疑问]
+
+:在指指点点之前就是说热评那几位女明星能别再厕控评吗？
+
+厕所看多了真会给人一种对家很火的错觉，看作品公测里面几千人人均嗑我对家，结果一搜tag对家产出只有二位数 ​​​
+
+:挺经典的，就像同人女人均嫌美帝男科，那么美帝是外星人在产出吗[二哈]
+
+:你对家其实是厕所美帝
+
+:忙着产出的话谁有空天天盯着测
+
+:厕所美帝增量美帝投稿美帝
+
+:我下家就这样[阴险][阴险]天天在公测对我家喊打喊杀结果出了厕所饭量还没有我家零头
+
+:还有些热衷于投测拉架翻炒的 感觉在各种蹭 给人一种蹭多了也很火的既视感
+
+*****
+
+####  東雲絵名  
+##### 1675#         楼主| 发表于 2024-10-15 16:56
+
+【圈地运动】望月给阿特拉斯画一商单，画的老明老5，评论区转发区美帝姐又在高潮了说主明99，表明cp属性了吗又成你家的了，一群蠢猪。自家饭吃不下去了在这要饭来了[疑问]
+
+*****
+
+####  東雲絵名  
+##### 1676#         楼主| 发表于 2024-10-15 16:58
+
+这已经不是一把糯米能解决的事了 ​​​
+
+<img src="https://img.saraba1st.com/forum/202410/15/165654lprvtmpzwrw1mmlj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (109.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-15 16:56 上传
+
+<img src="https://img.saraba1st.com/forum/202410/15/165700fibimadh8rqj8qhg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (79.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-15 16:57 上传
+
+:怎么真把棉花当儿子。。。。
+
+::其实都是螨虫，爱会让棉花长出螨虫[允悲][允悲][允悲][允悲][允悲]
+
+:其实小孩不愿意买上面这些哈
+
+:真心疼你怎么不all了[疑问]
+
+:要真心疼你就全买回家呗
+
+::还有图上这三个丑的都到达一个新的高度了
+
+::她们有钱all吗[偷笑]
+
+:小孩买个娃娃玩而已，也是无妄之灾了，对别人的钱怎么那么有占有欲
+
+*****
+
+####  東雲絵名  
+##### 1677#         楼主| 发表于 2024-10-15 16:58
+
+mn其实是弹力球，弹**女，弹性反梦三，弹性厌男，我弹弹弹 ​​​
+
+:大手探，白兔弹，探探探，弹弹弹
+
+*****
+
+####  東雲絵名  
+##### 1678#         楼主| 发表于 2024-10-15 17:01
+
+马马是馋b ​​​
+
+<img src="https://img.saraba1st.com/forum/202410/15/165957mnidfyneffbebs0d.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (179.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-15 16:59 上传
+
+<img src="https://img.saraba1st.com/forum/202410/15/170004xeev4vy2ii2cpzpz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (206.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-15 17:00 上传
+
+<img src="https://img.saraba1st.com/forum/202410/15/170009llq34vl3im4v7zic.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (290.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-15 17:00 上传
+
+<img src="https://img.saraba1st.com/forum/202410/15/170016t8u38uyky13fgniz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (395.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-15 17:00 上传
+
+<img src="https://img.saraba1st.com/forum/202410/15/170024u4yqkx7yigdgzpgm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (240.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-15 17:00 上传
+
+<img src="https://img.saraba1st.com/forum/202410/15/170033sgi65j11r5ji6jj5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (152.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-15 17:00 上传
+
+<img src="https://img.saraba1st.com/forum/202410/15/170043wydyoxolrzvzvrdv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (254.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-15 17:00 上传
+
+<img src="https://img.saraba1st.com/forum/202410/15/170054jinqsjaejf2ebbha.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (269.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-15 17:00 上传
+
+<img src="https://img.saraba1st.com/forum/202410/15/170100erkzhumkupx48xkd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (139 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-15 17:01 上传
+
+<img src="https://img.saraba1st.com/forum/202410/15/170108gmojdj4c9x7ebe04.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (141.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-15 17:01 上传
+

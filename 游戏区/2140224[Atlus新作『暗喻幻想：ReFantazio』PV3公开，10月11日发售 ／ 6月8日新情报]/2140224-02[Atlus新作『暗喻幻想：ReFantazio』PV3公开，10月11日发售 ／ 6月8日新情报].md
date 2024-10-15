@@ -9643,3 +9643,25 @@ hard难度下敌人先手基本等于死，而吃屎一般的 ...</blockquote>
 在我魔法只能打200多的时候，我大剑合题18mp已经能打出1000aoe了，我直接学了几个5000,6000的技能给他继承 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">吃小孩那个BOSS 我当时给兄弟把亢奋和斩强化都继承了然后物理大队用三人合体一发暴击两千多 ，要不是锁血我能直接首轮OTK那个BOSS 
 
+
+*****
+
+####  忘却旋律  
+##### 2406#       发表于 2024-10-15 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66455363&amp;ptid=2140224" target="_blank">Khellendros 发表于 2024-10-15 12:16</a>
+
+我都继承的偷窃，上完debuff再偷一下基本也打完了</blockquote>
+我本来也带的是偷窃，而且我速度加的也不低 但是就怎么感觉 老偷不到所以换了个吸魔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  忘却旋律  
+##### 2407#       发表于 2024-10-15 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66455246&amp;ptid=2140224" target="_blank">onemoment 发表于 2024-10-15 12:02</a>
+
+我加点的魔速，初期练的术士治愈士，小丑继承个打弱点的魔法和群hp恢复就完事了。但不推荐主角加魔路线， ...</blockquote>
+谢谢 目前 继承的格子少 回头道中带个 续航向的 回头打BOSS换军师的哪个 火属性的单体物理中伤害试试 才10点MP 能打中伤害
+

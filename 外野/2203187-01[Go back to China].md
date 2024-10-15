@@ -1245,3 +1245,20 @@ funny mud pee，历史是人民创造的，语言是共识规则，认同的人�
 有没有人说一下正确的口号应该怎么喊才对？</blockquote>
 we want to go home?
 
+
+*****
+
+####  アルミナ  
+##### 112#       发表于 2024-10-15 12:56
+
+吃了百度股沟翻译的亏
+
+go.png
+(49.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-15 12:56 上传
+
+<img src="https://img.saraba1st.com/forum/202410/15/125640miyvwwxv4il4lv1v.png" referrerpolicy="no-referrer">
+

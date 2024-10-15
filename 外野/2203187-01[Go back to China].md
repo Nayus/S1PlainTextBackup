@@ -1293,3 +1293,28 @@ go.png
 funny mud pee，历史是人民创造的，语言是共识规则，认同的人多了就能用，不存在什么绝对正确。gbtc在红脖 ...</blockquote>
 太长不看
 
+
+*****
+
+####  black199  
+##### 116#       发表于 2024-10-15 13:48
+
+要怪还不如怪国内英文教育太不接地气了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ロス  
+##### 117#       发表于 2024-10-15 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66453786&amp;ptid=2203187" target="_blank">シャル 发表于 2024-10-15 09:50</a>
+
+那也不能省略I want to going啊
+
+我想回中国说成滚回中国这不是有病嘛</blockquote>
+你是认真的还是反串？？
+
+我是没能想到在2024年的论坛上能看到一个用want going的人在语法层面上嘲笑用go back to China的人
+
+我寻思小学或者初中英文就教了want的用法了吧
+

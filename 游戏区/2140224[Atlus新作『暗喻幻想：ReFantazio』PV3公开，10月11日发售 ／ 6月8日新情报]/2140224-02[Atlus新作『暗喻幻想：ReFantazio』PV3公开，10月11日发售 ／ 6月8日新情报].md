@@ -9745,3 +9745,42 @@ a社每一作物理都在加强，魔法永远就那吊样，爹不疼娘不爱
 
 请问灰雨分身是怎么对付的，全体攻击全部miss，只能单体攻击猜哪个是真身，最后我是靠自动战斗AI作弊(自动战斗打真身一打一个准)过的，但是实际应该怎么分辨真假身
 
+
+*****
+
+####  Khellendros  
+##### 2415#       发表于 2024-10-15 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66456027&amp;ptid=2140224" target="_blank">2015年入股市 发表于 2024-10-15 13:44</a>
+
+请问灰雨分身是怎么对付的，全体攻击全部miss，只能单体攻击猜哪个是真身，最后我是靠自动战斗AI作弊(自动 ...</blockquote>
+真身有影子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老梗了
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2416#       发表于 2024-10-15 13:49
+
+灰雨入队后战斗难度下来了，头十来个小时真是血妈难，被不小心抓了先手几乎就等死了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  2015年入股市  
+##### 2417#       发表于 2024-10-15 13:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66456047&amp;ptid=2140224" target="_blank">Khellendros 发表于 2024-10-15 13:47</a>
+
+真身有影子老梗了</blockquote>
+昏倒，我通过自动战斗来发现真身也算是另一种急中生智了
+
+*****
+
+####  kuarwbwe  
+##### 2418#       发表于 2024-10-15 13:50
+
+真5我就当的全力战士，这次就算了。好好当法师当辅助也挺好的。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

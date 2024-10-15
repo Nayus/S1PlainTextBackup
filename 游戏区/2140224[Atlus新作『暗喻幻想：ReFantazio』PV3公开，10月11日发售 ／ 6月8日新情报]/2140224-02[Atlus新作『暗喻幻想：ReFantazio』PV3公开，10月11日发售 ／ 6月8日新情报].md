@@ -10264,3 +10264,37 @@ s1官博都转疯了，那张“狗命贵”的游戏截图。
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  罗克萨斯  
+##### 2459#       发表于 2024-10-15 18:51
+
+二创的侯根宝，作者B站的 @澤世丶
+
+<img src="https://img.saraba1st.com/forum/202410/15/184923pu3fo3y36dwdxh6v.jpg" referrerpolicy="no-referrer">
+
+<strong>4c32e0c3-ea08-4e8c-805a-298b091824e3.jpg</strong> (145.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-15 18:49 上传
+
+这不比原版的可口<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2460#       发表于 2024-10-15 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66457888&amp;ptid=2140224" target="_blank">umbasa 发表于 2024-10-15 17:25</a>
+s1官博都转疯了，那张“狗命贵”的游戏截图。
+
+想必鬼佬测评的时候玩到这就好比育碧从史书里翻出弥助一样 ...</blockquote>
+那段紧接着不就是老板娘被主角嘴炮说服狗命不比人命贵么，ign是不是云的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

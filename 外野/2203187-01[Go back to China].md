@@ -1647,3 +1647,29 @@ We Are From China, We Want to Go HOME!!!
 
 — from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.1.88.1-alpha
 
+
+*****
+
+####  gnihton314  
+##### 146#       发表于 2024-10-15 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66458039&amp;ptid=2203187" target="_blank">Rockchan 发表于 2024-10-15 17:42</a>
+
+你还说出主动被动便正正限制于文法当中。口语本来便是能理解便可以，假如用 go 会导致理解错误自然是问题 ...</blockquote>
+这里不是显然导致理解错误所以才好笑了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Rockchan  
+##### 147#       发表于 2024-10-15 17:56
+
+ 本帖最后由 Rockchan 于 2024-10-15 17:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66458085&amp;ptid=2203187" target="_blank">gnihton314 发表于 2024-10-15 17:49</a>
+这里不是显然导致理解错误所以才好笑了吗</blockquote>
+我不觉得有理解错误，一班回不了家的人想表达什么便有何可以误解的？
+
+至少我觉得当地人不会误解。
+
+— from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.1.88.1-alpha
+

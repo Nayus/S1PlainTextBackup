@@ -10102,3 +10102,74 @@ a社每一作物理都在加强，魔法永远就那吊样，爹不疼娘不爱
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刷到ign评测，标题就没绷住，唉反思
 
+
+*****
+
+####  Chia  
+##### 2445#       发表于 2024-10-15 17:15
+
+这coop剧情又长又啰嗦，还都是一个套路。
+
+能忍住不跳都是神人了，我现在就妖精的能认真看两眼了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kuarwbwe  
+##### 2446#       发表于 2024-10-15 17:16
+
+ 本帖最后由 kuarwbwe 于 2024-10-15 17:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66457576&amp;ptid=2140224" target="_blank">Khellendros 发表于 2024-10-15 16:48</a>
+刷到ign评测，标题就没绷住，唉反思</blockquote>
+ign之前盛赞political drama我就知道不妙了。现在到灰雨没爆什么特别抽象的典我已经很欣慰了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+你还在隔壁nga发了啊。那我就不在隔壁回你了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  忘却旋律  
+##### 2447#       发表于 2024-10-15 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66457576&amp;ptid=2140224" target="_blank">Khellendros 发表于 2024-10-15 16:48</a>
+
+刷到ign评测，标题就没绷住，唉反思</blockquote>
+妈的 居然还提FF14 7.0  石味剧情果然是会互相吸引的吗
+
+
+*****
+
+####  Khellendros  
+##### 2448#       发表于 2024-10-15 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66457843&amp;ptid=2140224" target="_blank">忘却旋律 发表于 2024-10-15 17:19</a>
+
+妈的 居然还提FF14 7.0  石味剧情果然是会互相吸引的吗</blockquote>
+感觉还是7.0更史一点，这边起码不是帮个低能npc竞选<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 忘却旋律| + 2|有一说一确实|
+
+查看全部评分
+
+*****
+
+####  umbasa  
+##### 2449#       发表于 2024-10-15 17:25
+
+<blockquote>Khellendros 发表于 2024-10-15 16:48
+刷到ign评测，标题就没绷住，唉反思
+
+</blockquote>
+
+s1官博都转疯了，那张“狗命贵”的游戏截图。
+
+想必鬼佬测评的时候玩到这就好比育碧从史书里翻出弥助一样，那种喜悦，谁懂?
+

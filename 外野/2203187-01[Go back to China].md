@@ -1605,3 +1605,16 @@ We Are From China, We Want to Go HOME!!!
 是把这句子的人搞成有歧视含义的人</blockquote>
 因为踩头别人获得优越感是人性的一环
 
+
+*****
+
+####  gnihton314  
+##### 143#       发表于 2024-10-15 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66457357&amp;ptid=2203187" target="_blank">Rockchan 发表于 2024-10-15 16:27</a>
+
+不考虑岐视，这句跟 “return to" 便没什幺大分别。
+
+特别当用在自己身上时，更没有友善的问题了。</blockquote>
+还真不大一样，go这种单音节词的命令性更强，用在自己头上更是主动被动都反过来了。f*ck, ni**er这种词，更是因为非常不友善，要是不在朋友间用，那真的就是骂人了。
+

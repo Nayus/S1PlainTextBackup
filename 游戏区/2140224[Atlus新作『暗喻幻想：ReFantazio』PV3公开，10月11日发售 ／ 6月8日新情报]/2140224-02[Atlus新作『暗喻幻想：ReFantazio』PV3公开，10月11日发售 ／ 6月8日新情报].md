@@ -9467,3 +9467,41 @@ hard难度下敌人先手基本等于死，而吃屎一般的 ...</blockquote>
 去买烤比多鸟的香草为什么店家不卖给我？说只卖给老顾客</blockquote>
 应该是先去和旅馆的情报商人买情报，得知店主就是香草的老客户后，就可以通过和店主的关系买香草了。
 
+
+*****
+
+####  zycilcy  
+##### 2389#       发表于 2024-10-15 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66454239&amp;ptid=2140224" target="_blank">Jimlee080 发表于 2024-10-15 10:29</a>
+
+主角魔点到25了，转力还来得及么</blockquote>
+应该可以吧，我点到18点开始转力属性的
+
+*****
+
+####  忘却旋律  
+##### 2390#       发表于 2024-10-15 10:49
+
+另外 话说  你们有没有发现 暗喻的 不少地方BGM 和 火纹风华雪月 不少BGM超级像， 尤其是有个日常剧情出现的BGM 和 风花雪月的学校逛街BGM超级像 ，战斗BGM和 风华雪月的主旋律BGM有一段也贼像..............   现在不少时候 这NS水平的画面和建模质量+ BGM 时不时让我觉得再打 风花雪月....................
+
+
+*****
+
+####  忘却旋律  
+##### 2391#       发表于 2024-10-15 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66451738&amp;ptid=2140224" target="_blank">是谁的书画 发表于 2024-10-14 22:36</a>
+
+把商人的羁绊升最高了，每天一大早就有美丽大姐姐送零花钱的感觉好爽</blockquote>
+商人黑皮大姐姐 颜值身材 衣品吊打入队女角色
+
+*****
+
+####  vviosonia  
+##### 2392#       发表于 2024-10-15 10:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">今早听到消息正式版被爆破，原因是用DEMO启动器代替正式版就可以了。D加密被爆最抽象的一次……
+
+—— 来自 samsung SM-S9080, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

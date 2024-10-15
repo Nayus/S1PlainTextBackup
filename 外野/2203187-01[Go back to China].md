@@ -749,3 +749,69 @@ Go back to where you came from，到19年才被确认为歧视词汇。
 
 该反思的是把这么正常的短语搞成歧视性语句的文化圈子，嘴上全是政治正确，私底下这也歧视那也歧视
 
+
+*****
+
+####  JOY_GoGo  
+##### 67#       发表于 2024-10-15 10:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">他们为啥不能说回家 而非要说回中国
+
+*****
+
+####  迪米特里  
+##### 68#       发表于 2024-10-15 10:49
+
+指点下义务教育水平的英文都算秀优越了吗<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  proxima  
+##### 69#       发表于 2024-10-15 10:51
+
+欢乐 
+没文化真可怕
+指楼主自己英语水平也堪忧
+
+*****
+
+####  pigsy  
+##### 70#       发表于 2024-10-15 10:55
+
+部分国人对自己同胞的苛刻，真是比真正英文语种的人还严格<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+r/China 也有人发这个了。国内互联网上有的人对这些不幸在机场滞留的同胞，比一向对中国不友好的红迪 r/China 版还更不友善。
+
+起码r/China 除了同情游客、喷沙特的以外，还有借机喷“反英语政策”的，但唯独还没看到直接攻击这些游客”智商低下“的评论。
+
+
+*****
+
+####  wszweill  
+##### 71#       发表于 2024-10-15 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66454258&amp;ptid=2203187" target="_blank">子虚乌有 发表于 2024-10-14 21:31</a>
+
+这种歪用只是网络流行语，如果正式场合说出来并不会引起歧义。
+
+葬礼上该送菊花还是菊花不会有人往歪地方 ...</blockquote>
+但是go back to China妥妥的网络流行语呀。估计去问个不在X上冲浪的英美老人，人家一样不熟。普通同事聊天go back to China/India/etc聊天太正常了
+
+*****
+
+####  荡寇将军张嶷  
+##### 72#       发表于 2024-10-15 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66454451&amp;ptid=2203187" target="_blank">迪米特里 发表于 2024-10-15 10:49</a>
+
+指点下义务教育水平的英文都算秀优越了吗</blockquote>
+义务教育又不管结束阶段之后的新趋势，总不能让义务教育再去教育都毕业十几年的成年人吧<img src="https://static.saraba1st.com/image/smiley/face/31.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Booorunestud  
+##### 73#       发表于 2024-10-15 10:57
+
+楼主没有编辑掉want to going这一点值得我的尊重
+

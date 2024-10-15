@@ -1453,3 +1453,42 @@ go back to China 表示歧视也主要是歧视高华吧
 
 不管这句话有没有演变出歧视含义，它都是一个命令形态的祈使句，用在这里显然是用错了
 
+
+*****
+
+####  荡寇将军张嶷  
+##### 131#       发表于 2024-10-15 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66456980&amp;ptid=2203187" target="_blank">gnihton314 发表于 2024-10-15 15:38</a>
+
+主动句和祈使句都分不清在这里说啥呢
+
+初中英语就教过祈使句虽然叫祈使句，但是实际上是命令。 ...</blockquote>
+口语里有时候的确会有省略主语的情况，当然我觉得这事情没必要多尴尬。
+
+你要是真说因为这个一开始那的确有点不对劲<img src="https://static.saraba1st.com/image/smiley/face/31.gif" referrerpolicy="no-referrer">
+
+但不管是主楼还是教辅，都是抓着“go back to”有歧视含义来说的。
+
+实话说这没法逼着中国人这么快和美国人同步啊。
+
+*****
+
+####  T7imal  
+##### 132#       发表于 2024-10-15 16:11
+
+说实话挺蠢的，中国人在外表达自己的需求，表达自己的不满，居然要用英文，一方面是中国文化导致的普遍性格，一方面是文化上不够自信，作为大国未免太谦卑了
+
+
+*****
+
+####  gnihton314  
+##### 133#       发表于 2024-10-15 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66457184&amp;ptid=2203187" target="_blank">荡寇将军张嶷 发表于 2024-10-15 16:07</a>
+
+口语里有时候的确会有省略主语的情况，当然我觉得这事情没必要多尴尬。
+
+你要是真说因为这个一开始那的确 ...</blockquote>
+但即使不考虑歧视含义，这种祈使句也是极其不友善的用法啊
+

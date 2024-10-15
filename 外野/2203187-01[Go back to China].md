@@ -1618,3 +1618,18 @@ We Are From China, We Want to Go HOME!!!
 特别当用在自己身上时，更没有友善的问题了。</blockquote>
 还真不大一样，go这种单音节词的命令性更强，用在自己头上更是主动被动都反过来了。f*ck, ni**er这种词，更是因为非常不友善，要是不在朋友间用，那真的就是骂人了。
 
+
+*****
+
+####  Rockchan  
+##### 144#       发表于 2024-10-15 17:32
+
+ 本帖最后由 Rockchan 于 2024-10-15 17:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66457773&amp;ptid=2203187" target="_blank">Falrev 发表于 2024-10-15 17:12</a>
+这其实也不太对，不过不是语法上的问题。英语母语使用者如果想举牌子表达完全相同的意思，他们应该可能会 ...</blockquote>
+口语化本来便是比较自由自在，只要能让他人理解自己想法便成。
+
+我认识的英语母语者便不大在乎他人的英语用法。他们见得多移民，留学生或旅人早便习惯了。只要那段话容易理解，也不会让受众产生负面情绪便没问题了。特别是对于身陷困境正在求援的人更不会计较。
+
+— from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.1.88.1-alpha
+

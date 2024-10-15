@@ -530,3 +530,39 @@ Mikael E
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  风萧飒  
+##### 5480#       发表于 2024-10-15 17:16
+
+步枪加强好像挺大，可以试试了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  WGTCorp  
+##### 5481#       发表于 2024-10-15 17:25
+
+步枪感觉没怎么加强，主要问题还是伤害和子弹数量不太够，减后坐力用处不大啊。
+
+*****
+
+####  艾诺琳  
+##### 5482#       发表于 2024-10-15 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66457892&amp;ptid=2170852" target="_blank">WGTCorp 发表于 2024-10-15 17:25</a>
+步枪感觉没怎么加强，主要问题还是伤害和子弹数量不太够，减后坐力用处不大啊。 ...</blockquote>
+穿甲解放者子弹加到了45了，应该会好用了
+
+*****
+
+####  风萧飒  
+##### 5483#       发表于 2024-10-15 17:34
+
+审判加强很多，看数据应该能用了吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

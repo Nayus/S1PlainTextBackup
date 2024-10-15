@@ -10019,3 +10019,28 @@ a社每一作物理都在加强，魔法永远就那吊样，爹不疼娘不爱
  脑壳疼。这回怎么比stm5v还难，后者好歹地图和迷宫里回复手段管够  —— 来自 鹅球 v3.1.91-alpha ...</blockquote>
 多换职业，活用重来功能。后期不好说，这作前中期的打法丰富程度比smt5v高很多。 难度的话其实我觉得比smt5v是更低的。
 
+
+*****
+
+####  kusanagi9999  
+##### 2438#       发表于 2024-10-15 15:01
+
+这个逼剧情土到一种什么地步，玩十分钟能猜到接下来两小时会发生什么
+
+—— 来自 Xiaomi 23116PN5BC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  AEmpire  
+##### 2439#       发表于 2024-10-15 15:02
+
+<img src="https://static.saraba1st.com/image/smiley/face/145.gif" referrerpolicy="no-referrer">我服了，我第二章都打完了这个击晕的成就还是没给我跳
+
+<img src="https://img.saraba1st.com/forum/202410/15/150230sitz8ztyvdi4o3tj.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (16.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-15 15:02 上传
+

@@ -64,3 +64,17 @@
 两点再上google play看一下</blockquote>
 我一开始也是，过一下预注册通知刷出来了，就可以下了。
 
+
+*****
+
+####  库德里尔  
+##### 62#       发表于 2024-10-15 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66456595&amp;ptid=2156352" target="_blank">Tring 发表于 2024-10-15 14:46</a>
+我一开始也是，过一下预注册通知刷出来了，就可以下了。</blockquote>
+后来好了。
+跑了两张图，不知道是不是我网络不好，过剧情总是读loading，一卡一卡的。
+卸了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

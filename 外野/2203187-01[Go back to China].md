@@ -1579,3 +1579,29 @@ go back to China 表示歧视也主要是歧视高华吧
 
 朴素直白的表示合理诉求有什么过错？（可能声音过大会扰到他人）
 
+
+*****
+
+####  Falrev  
+##### 141#       发表于 2024-10-15 17:12
+
+<blockquote>Rockchan 发表于 2024-10-15 16:21
+先不说正统文法，用 “I/We want to go back to my/our country" 或 "Let us go back to our country" 在 ...</blockquote>
+这其实也不太对，不过不是语法上的问题。英语母语使用者如果想举牌子表达完全相同的意思，他们应该可能会这么写: 
+
+We Are From China, We Want to Go HOME!!!
+
+*****
+
+####  trentswd  
+##### 142#       发表于 2024-10-15 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66457631&amp;ptid=2203187" target="_blank">尘落樱飞 发表于 2024-10-15 16:55</a>
+
+我真看不懂
+
+真正该受歧视的是把china歧视来歧视去的人
+
+是把这句子的人搞成有歧视含义的人</blockquote>
+因为踩头别人获得优越感是人性的一环
+

@@ -9784,3 +9784,14 @@ a社每一作物理都在加强，魔法永远就那吊样，爹不疼娘不爱
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  凤凰院天豪  
+##### 2419#       发表于 2024-10-15 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66455246&amp;ptid=2140224" target="_blank">onemoment 发表于 2024-10-15 12:02</a>
+
+我加点的魔速，初期练的术士治愈士，小丑继承个打弱点的魔法和群hp恢复就完事了。但不推荐主角加魔路线， ...</blockquote>
+前期不加魔队里都没魔，怎么玩
+

@@ -10749,3 +10749,11 @@ jjc三十连原来没奖励…只有成就，打完取档…
 —— 来自 S1Fun ...</blockquote>
 这有啥谜啊，指引也太明显了，这游戏就压根没那种机关型迷宫，全是一条路的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  莉可厨  
+##### 2504#       发表于 2024-10-16 02:20
+
+47h通了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这游戏倒也不是不值得玩，但还是那个观点：桥野桂你好好想想自己的项目管理能力是什么勾毛，8年磨出来这么个东西后让sega找媒体买分炒作，有没有神作水平自己心里没数吗？
+

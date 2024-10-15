@@ -6885,3 +6885,25 @@ staff里一定有人看过别当哥的温泉回
 
 快捷魔法手感真差啊............有些角色的即时制模式手感没怎么调教，飘的一比
 
+
+*****
+
+####  maojiashu  
+##### 6569#       发表于 2024-10-15 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66453666&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-10-15 09:41</a>
+
+快捷魔法手感真差啊............有些角色的即时制模式手感没怎么调教，飘的一比 ...</blockquote>
+这东西是真不好用 砍两下不比这东西历害？ 这次还有个快捷魔法击杀100的奖杯 游戏内成就还看不到 我现在都不知道杀了多少了<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  洛克萨斯  
+##### 6570#       发表于 2024-10-15 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66453920&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-10-15 10:02</a>
+
+这东西是真不好用 砍两下不比这东西历害？ 这次还有个快捷魔法击杀100的奖杯 游戏内成就还看不到 我现在 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">蓄力手感很差，演出也不华丽，完全看不出有啥用
+

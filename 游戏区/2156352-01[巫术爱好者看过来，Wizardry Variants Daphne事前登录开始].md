@@ -42,3 +42,25 @@
 
 下班在玩了
 
+
+*****
+
+####  Tring  
+##### 60#       发表于 2024-10-15 14:44
+
+提示我GP版本太老，不给玩。
+
+告辞。
+
+*****
+
+####  Tring  
+##### 61#       发表于 2024-10-15 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66456072&amp;ptid=2156352" target="_blank">库德里尔 发表于 2024-10-15 13:50</a>
+
+我现在还在预注册中 奇怪
+
+两点再上google play看一下</blockquote>
+我一开始也是，过一下预注册通知刷出来了，就可以下了。
+

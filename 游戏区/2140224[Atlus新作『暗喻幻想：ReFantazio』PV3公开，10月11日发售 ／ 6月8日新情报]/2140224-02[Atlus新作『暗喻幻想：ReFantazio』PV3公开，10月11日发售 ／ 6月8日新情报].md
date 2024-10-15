@@ -9888,3 +9888,134 @@ a社每一作物理都在加强，魔法永远就那吊样，爹不疼娘不爱
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2428#       发表于 2024-10-15 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66456468&amp;ptid=2140224" target="_blank">忘却旋律 发表于 2024-10-15 14:33</a>
+问下 每天消耗时间的时间 是不是 先有限把志愿者 RANK提升了，提升到 所有志愿者都升无可升，再去做哪些 ...</blockquote>
+肯定先升coop，关系到阿基态的升级，再说本身coop剧情也是游戏体验的一部分
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  Khellendros  
+##### 2429#       发表于 2024-10-15 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66456468&amp;ptid=2140224" target="_blank">忘却旋律 发表于 2024-10-15 14:33</a>
+
+问下 每天消耗时间的时间 是不是 先有限把志愿者 RANK提升了，提升到 所有志愿者都升无可升，再去做哪些 ...</blockquote>
+先去占卜看看天气，坏天气去做支线没等级压制很坐牢，如果路线规划要一次打两个迷宫的话最好就挑两边都是好天气的日期，天气不合适再做coop吧，我感觉这作时间挺宽裕的
+
+五维优先级最低，尽量在铁甲战车上做就行了（看书性价比最高），实在没事干再去升五维
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 忘却旋律| + 2|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  Rainwedell  
+##### 2430#       发表于 2024-10-15 14:38
+
+有几首日常的音乐怎么一股子三房学院味
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 忘却旋律| + 1|终于有人和我感觉一样了|
+
+查看全部评分
+
+*****
+
+####  忘却旋律  
+##### 2431#       发表于 2024-10-15 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66456417&amp;ptid=2140224" target="_blank">Khellendros 发表于 2024-10-15 14:29</a>
+
+别急，后面第三章支线一上来就有量产型楚生牛头人（就是第一章支线的boss）等着你 ...</blockquote>
+那些量产牛头人 是否还是有对 那钝器角色 有无脑 蓄力+群体大伤害AOE的 初生特攻行为。
+
+当时自行习惯跳对话 买情报的时候习惯性跳出事情了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卡拉德利姆  
+##### 2432#       发表于 2024-10-15 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66456516&amp;ptid=2140224" target="_blank">忘却旋律 发表于 2024-10-15 14:38</a>
+
+那些量产牛头人 是否还是有对 那钝器角色 有无脑 蓄力+群体大伤害AOE的 初生特攻行为。
+
+当时自行习惯跳对 ...</blockquote>
+是地精有这些特点吧 情报可以在道具栏里回看的
+
+*****
+
+####  忘却旋律  
+##### 2433#       发表于 2024-10-15 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66456526&amp;ptid=2140224" target="_blank">卡拉德利姆 发表于 2024-10-15 14:39</a>
+
+是地精有这些特点吧 情报可以在道具栏里回看的</blockquote>
+支线那个牛头人好像也是 我一开始 主角是治愈师 第二个回合开始后 就是复读 蓄力+AOE 秒的 不要不要的
+
+
+*****
+
+####  忘却旋律  
+##### 2434#       发表于 2024-10-15 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66456513&amp;ptid=2140224" target="_blank">Khellendros 发表于 2024-10-15 14:38</a>
+
+先去占卜看看天气，坏天气去做支线没等级压制很坐牢，如果路线规划要一次打两个迷宫的话最好就挑两边都是 ...</blockquote>
+好的 谢谢  之后还能一次打2个迷宫的嘛
+
+*****
+
+####  Khellendros  
+##### 2435#       发表于 2024-10-15 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66456516&amp;ptid=2140224" target="_blank">忘却旋律 发表于 2024-10-15 14:38</a>
+
+那些量产牛头人 是否还是有对 那钝器角色 有无脑 蓄力+群体大伤害AOE的 初生特攻行为。
+
+当时自行习惯跳对 ...</blockquote>
+量产牛头人可以（必须）原野战斗打晕再打的，都是进去一回合杀了哪用管别的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  忘却旋律  
+##### 2436#       发表于 2024-10-15 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66456567&amp;ptid=2140224" target="_blank">Khellendros 发表于 2024-10-15 14:43</a>
+
+量产牛头人可以（必须）原野战斗打晕再打的，都是进去一回合杀了哪用管别的 ...</blockquote>
+明白了  收到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ネコカイザー  
+##### 2437#       发表于 2024-10-15 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66456480&amp;ptid=2140224" target="_blank">半江瑟瑟半江红 发表于 2024-10-15 14:35</a>
+ 脑壳疼。这回怎么比stm5v还难，后者好歹地图和迷宫里回复手段管够  —— 来自 鹅球 v3.1.91-alpha ...</blockquote>
+多换职业，活用重来功能。后期不好说，这作前中期的打法丰富程度比smt5v高很多。 难度的话其实我觉得比smt5v是更低的。
+

@@ -2364,3 +2364,15 @@ op分词这么少，星三后面剧情一定会弥补点吧（笑）
 
 宝可梦粉丝那么多 有重合很正常 正好星三播出赶上了 那废案真是震撼人心呐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 227#       发表于 2024-10-15 21:35
+
+【【中字】青山渚翻唱「もってけ!セーラーふく」(拿去吧！水手服)-哔哩哔哩】 https://b23.tv/Ej7aujk
+
+这时候才有种：啊，nagi和我是同辈人啊的感觉。。。（其实比我小）
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

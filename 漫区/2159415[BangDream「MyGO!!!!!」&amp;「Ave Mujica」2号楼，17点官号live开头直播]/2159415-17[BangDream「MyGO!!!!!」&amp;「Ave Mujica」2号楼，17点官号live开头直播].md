@@ -13426,3 +13426,13 @@ go琴是在动画完结后才开卖的，国内邦标实际到货时今年的五
 
 写作明弦音，读作again是吧<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 24829#       发表于 2024-10-15 21:26
+
+就算双重人格大概也就是个萌属性吧，不太看好你邦能认真写，只是能很好的解释为什么mortis和pv里很刺激的小房间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+反而不是双重人格的话，这个性格隐藏的一面可能背景会更严肃一些<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

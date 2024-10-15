@@ -10813,3 +10813,13 @@ jjc三十连原来没奖励…只有成就，打完取档…
 
 腐龙就纯互相上数值弱化来折磨 没什么互动
 
+
+*****
+
+####  Rainwedell  
+##### 2510#       发表于 2024-10-16 06:27
+
+我个人觉得他们迷宫就这设计水平你不如堆点城镇设计，顺便再多做点 coop，目前到海都看你那个比城镇地图就很难崩，当然这游戏原罪其实不是剧情，是人设<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

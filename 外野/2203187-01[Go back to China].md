@@ -543,3 +543,126 @@ zhihu已经轮过一圈了，lz动作有点慢了<img src="https://static.saraba
 
 —— 来自 Xiaomi 2206122SC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  eternity0079  
+##### 52#       发表于 2024-10-15 10:28
+
+其实就是像这边的“小姐、同志、菊花”一样，本意没问题，都是被用歪了。
+
+*****
+
+####  yxch  
+##### 53#       发表于 2024-10-15 10:28
+
+let's go back to China！
+
+这些人按照自己的理解使用英文，说的人明白什么意思，听的人明白什么意思，关你屁事啊？I want going都出来了，这英语水平就别聊了
+
+*****
+
+####  AndrewChen  
+##### 54#       发表于 2024-10-15 10:29
+
+确实你这英语水平……不遑多让
+
+*****
+
+####  子虚乌有  
+##### 55#       发表于 2024-10-15 10:29
+
+我觉得还是英语这语法有问题阿。
+
+滚 这个动词在中文里是贬义毫无问题
+
+go 是中性，然后靠习惯俗成把它的某种用法变为贬义。毫无道理。
+
+
+*****
+
+####  子虚乌有  
+##### 56#       发表于 2024-10-15 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66454229&amp;ptid=2203187" target="_blank">eternity0079 发表于 2024-10-15 10:28</a>
+
+其实就是像这边的“小姐、同志、菊花”一样，本意没问题，都是被用歪了。 ...</blockquote>
+这种歪用只是网络流行语，如果正式场合说出来并不会引起歧义。
+
+葬礼上该送菊花还是菊花不会有人往歪地方想。
+
+*****
+
+####  tobelovedwow  
+##### 57#       发表于 2024-10-15 10:31
+
+让楼主丢脸了，私密马赛<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+*****
+
+####  荡寇将军张嶷  
+##### 58#       发表于 2024-10-15 10:33
+
+这玩意儿纯粹是被现代西方人用呲了的扩大化，正常接受普通英文教育的中国人哪跟得上这种奇葩潮流。
+
+翻一下韦伯斯特大辞典，go back to就是正常的return to而已。直到最近几年还在用。
+
+<img src="https://img.saraba1st.com/forum/202410/15/102543rqm9jjyuy0smqqmy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (120.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-15 10:25 上传
+
+真正有歧视嘲讽意义的，是Go back to where you come from. 四舍五入可以翻译成打哪来回哪去。
+
+或者说成什么“Go back to your country”也行。
+
+<img src="https://img.saraba1st.com/forum/202410/15/102905gdhmjnmwcswajvds.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (49.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-15 10:29 上传
+
+**也收录了这个全文。
+
+<img src="https://img.saraba1st.com/forum/202410/15/102950hd5ezv54n28z18ck.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (198.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-15 10:29 上传
+
+实际上19年都有一部亚裔电影就叫Go back to China。也就是说哪怕是成长在美国的亚裔，也没把这个词当做“滚回中国”来理解。
+
+<img src="https://img.saraba1st.com/forum/202410/15/103217g2m2ilalam6v2nrv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (18.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-15 10:32 上传
+
+本质上就是中国人接受的都是正常的英语教育，没想到欧美人的歧视用语包含这个。
+
+歪果仁觉得诧异至少可以解释一下。至于中国人或者殖子自己跟着喊丢人，属实太卑微了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pright  
+##### 59#       发表于 2024-10-15 10:34
+
+很难得在一个帖子下看到了这么全的组合<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+want to go
+
+want to going
+
+want go
+
+want going
+

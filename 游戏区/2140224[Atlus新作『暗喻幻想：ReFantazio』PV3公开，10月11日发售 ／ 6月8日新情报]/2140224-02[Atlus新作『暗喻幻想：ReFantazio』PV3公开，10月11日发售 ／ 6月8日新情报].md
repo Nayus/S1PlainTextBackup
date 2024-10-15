@@ -9410,3 +9410,11 @@ hard难度下敌人先手基本等于死，而吃屎一般的 ...</blockquote>
 
 所以我就不打hard，也不刻意刷东西，体验还行
 
+
+*****
+
+####  Jimlee080  
+##### 2383#       发表于 2024-10-15 10:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">主角魔点到25了，转力还来得及么
+

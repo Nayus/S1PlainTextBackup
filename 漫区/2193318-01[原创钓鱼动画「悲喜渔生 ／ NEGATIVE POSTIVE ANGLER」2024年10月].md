@@ -601,3 +601,31 @@ ed舒服不少
 
 不知道会不会有这一面<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 54#         楼主| 发表于 2024-10-15 23:12
+
+第3話「心のこり」
+
+突然その場から逃げ出した常宏に戸惑う貴明たちを後目に、常宏はネットカフェに身を寄せ、自らの行く末を案じていた。そんな中、ネットでは賞金付きの釣り企画が話題になっていて…
+
+脚本：鈴木智尋
+
+絵コンテ: 山本貴之、末田宜史、松原 聡、三浦 慧
+
+演出：山本貴之
+
+総作画監督：谷口宏美
+
+作画監督：南井尚子、三好和也、緒方歩惟、三島詠子
+
+作画監督補佐：栗田新一、東 遼太、梁 博雅
+<img src="https://p.sda1.dev/19/b6bbe4ebeb0b931e90a2420c18178be7/p_001.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/d222a2cc3d6ffdb7548cef232153aa35/p_002.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/22926a656135ae8f3fd11e73c3b306e2/p_003.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/c1adf94a8ce014fb723de0e02a9043e5/p_004.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/128481e301a82474724f944bfbb0a6b0/p_005.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/9db365a990ef25a51fe9ba331dbc6661/pic006.jpg" referrerpolicy="no-referrer">
+

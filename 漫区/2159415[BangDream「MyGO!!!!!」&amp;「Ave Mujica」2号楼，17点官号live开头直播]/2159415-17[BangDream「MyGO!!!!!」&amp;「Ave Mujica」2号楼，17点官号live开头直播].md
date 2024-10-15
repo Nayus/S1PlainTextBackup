@@ -13530,3 +13530,18 @@ go琴是在动画完结后才开卖的，国内邦标实际到货时今年的五
 角色厨的话，不同角色在对应店铺有特典，你对着官网看一下吧
 [https://bang-dream.com/discographies/3846](https://bang-dream.com/discographies/3846)
 
+
+*****
+
+####  傘木希美  
+##### 24836#       发表于 2024-10-15 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66460293&amp;ptid=2159415" target="_blank">NODY 发表于 2024-10-15 22:50</a>
+角色厨的话，不同角色在对应店铺有特典，你对着官网看一下吧
+
+https://bang-dream.com/discographies/3846 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">好家伙，蓝光还分两种盘
+记得前段时间看任你购有官方合作的，不行去看看那个好了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

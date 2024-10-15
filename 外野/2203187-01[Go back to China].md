@@ -490,3 +490,56 @@ we want go home 不就完事了
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  瓦格雷  
+##### 46#       发表于 2024-10-15 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66454027&amp;ptid=2203187" target="_blank">我是侦查员 发表于 2024-10-15 10:11</a>
+
+不懂英文不是很正常吗
+
+干嘛又要求人反思，贱不贱啊</blockquote>
+有些人觉得自己会一点鸟语(还暴露了其实真的只有一点)  就很有优越感  不表现一下难受
+
+*****
+
+####  Diong  
+##### 47#       发表于 2024-10-15 10:21
+
+这个事情等价于老外被骗在中国大喊“我是傻逼”，没有特别倾向的人会觉得好玩儿（当然可能有点儿过于滑稽以至于诡异了），但是对于仇中反华的人来说，应该是会感觉到爽快，因为他们乐见中国人出丑。楼主你这种，我怎么说呢，世界上丢人的事情千千万万每时每刻都在发生，没啥大不了的别太在意。
+
+*****
+
+####  玉米黍  
+##### 48#       发表于 2024-10-15 10:22
+
+这些游客又不是移民，本来就是要go back to China的因为中国是一个更好的地方游客只是出来猎奇一下。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AkaiSuisei  
+##### 49#       发表于 2024-10-15 10:24
+
+你楼连want都能用错的就不要嘲笑人家游客不懂英语了吧
+
+
+*****
+
+####  与太郎  
+##### 50#       发表于 2024-10-15 10:25
+
+zhihu已经轮过一圈了，lz动作有点慢了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  makuro  
+##### 51#       发表于 2024-10-15 10:27
+
+我觉得没问题 本就是要回家 所谓歧视用语本质也针对那些润出去的
+本来就是堂堂正正中国人 堂堂正正要求回家
+ 说go back to china有什么问题
+
+—— 来自 Xiaomi 2206122SC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

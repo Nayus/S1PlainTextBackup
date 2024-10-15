@@ -6907,3 +6907,11 @@ staff里一定有人看过别当哥的温泉回
 这东西是真不好用 砍两下不比这东西历害？ 这次还有个快捷魔法击杀100的奖杯 游戏内成就还看不到 我现在 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">蓄力手感很差，演出也不华丽，完全看不出有啥用
 
+
+*****
+
+####  王俊凯  
+##### 6571#       发表于 2024-10-15 10:20
+
+游戏内成就里能看的吧，主要还是一直只有初级魔法，不说双属性能升级成单属性的高级魔法还不酷炫？就是优化不行丢出来卡半死吧<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
+

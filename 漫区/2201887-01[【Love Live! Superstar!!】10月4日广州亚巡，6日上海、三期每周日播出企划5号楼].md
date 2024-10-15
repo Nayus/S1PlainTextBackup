@@ -2356,3 +2356,11 @@ op分词这么少，星三后面剧情一定会弥补点吧（笑）
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  ViyViy  
+##### 226#       发表于 2024-10-15 19:31
+
+宝可梦粉丝那么多 有重合很正常 正好星三播出赶上了 那废案真是震撼人心呐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

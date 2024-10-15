@@ -10315,3 +10315,23 @@ s1官博都转疯了，那张“狗命贵”的游戏截图。
 
 大冢明夫报职业名时一声 阿萨↑辛↓ 差点没背过气去,这什么情况<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星野航  
+##### 2463#       发表于 2024-10-15 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66459037&amp;ptid=2140224" target="_blank">量产失败型 发表于 2024-10-15 21:04</a>
+
+大冢明夫报职业名时一声 阿萨↑辛↓ 差点没背过气去,这什么情况</blockquote>
+应该是故意的w<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+他别的职业没有这个问题，就刺客这个。毕竟灰雨是个骨子里有点萌点的小老头
+
+*****
+
+####  里恩  
+##### 2464#       发表于 2024-10-15 20:29
+
+休息房间不回HPMP太反直觉了吧？这次BOSS前不让回满状态？这是什么倒退30年的设定啊？
+

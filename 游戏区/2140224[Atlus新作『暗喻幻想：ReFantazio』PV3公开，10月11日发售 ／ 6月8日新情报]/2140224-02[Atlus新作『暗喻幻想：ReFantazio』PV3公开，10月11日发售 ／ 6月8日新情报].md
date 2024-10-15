@@ -10486,3 +10486,35 @@ p5也不回吧，p5r倒是在迷宫里加了3个欲石，拿到会回点mp
 后期多支线解锁的会复读无限超大群体万能boss怎么打啊太变态了。</blockquote>
 一般这种是有什么物理抗性/反弹啥的触发boss的坑爹机制了，上网查一下.....
 
+
+*****
+
+####  唯一指定用户名  
+##### 2479#       发表于 2024-10-15 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66460191&amp;ptid=2140224" target="_blank">fsdragontree 发表于 2024-10-15 22:35</a>
+一般这种是有什么物理抗性/反弹啥的触发boss的坑爹机制了，上网查一下..... ...</blockquote>
+最后是难度调低叠buff一回合秒了,看技能名称应该就是设定<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fsdragontree  
+##### 2480#       发表于 2024-10-15 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66460234&amp;ptid=2140224" target="_blank">唯一指定用户名 发表于 2024-10-15 22:41</a>
+
+最后是难度调低叠buff一回合秒了,看技能名称应该就是设定</blockquote>
+这个如果常玩atlus应该可以发现，就像打人修罗，你全物抗、物反过去不给他机会，人家就直接请你吃地母晚餐了.....估计是刚好配的职业搭配被机制错误识别了......
+
+还有一种是低血狂暴，比如p3隐藏boss请你吃米吉多拉翁9999，这种一般就是控血秒杀......但这种玩家应该理解的到......
+
+
+*****
+
+####  莉可厨  
+##### 2481#       发表于 2024-10-15 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66460234&amp;ptid=2140224" target="_blank">唯一指定用户名 发表于 2024-10-15 22:41</a>
+最后是难度调低叠buff一回合秒了,看技能名称应该就是设定</blockquote>
+我测了一下。番长最终职业刚好是弱风的，boss进去会老老实实变探求者打风aoe，如果穿个风反鞋直接全场9999了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

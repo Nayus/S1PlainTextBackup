@@ -1712,3 +1712,62 @@ We Are From China, We Want to Go HOME!!!
 
 — from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.1.88.1-alpha
 
+
+*****
+
+####  シャル  
+##### 151#         楼主| 发表于 2024-10-15 18:08
+
+<blockquote>Rockchan 发表于 2024-10-15 17:56
+我不觉得有理解错误，一班回不了家的人想表达什么便有何可以误解的？
+
+至少我觉得当地人不会误解。</blockquote>
+当地人也在笑话啊
+
+<img src="https://img.saraba1st.com/forum/202410/15/180713eektezs995030c60.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="800" zoomfile="https://img.saraba1st.com/forum/202410/15/180713eektezs995030c60.png">
+
+<strong>2C021E75-BB0B-4468-BCCD-5C5F93B1359B.png</strong> (380.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-15 18:07 上传
+
+也有阿拉伯人说带头大哥是国民党
+
+<img src="https://img.saraba1st.com/forum/202410/15/180758v0hnpo30efhn3nyx.png" referrerpolicy="no-referrer">
+
+<strong>4DC78B08-324A-4AA4-ABED-0C65036FE32D.png</strong> (406.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-15 18:07 上传
+
+
+*****
+
+####  Falrev  
+##### 152#       发表于 2024-10-15 18:10
+
+<blockquote>66367749 发表于 2024-10-15 17:59
+如果是一群老外在国内机场延误了，喊“给我回去”呢？你或者他们的同乡会觉得反感吗？ ...</blockquote>
+语言不仅有表达含义的功能，还有传达感情的功能，如果想要精准地传达感情，用词和语法就必须要准确了。在 求助 这个场景下，能够良好地表达感情还是很重要的。一群老外如果能用修辞准确、符合母语使用者语言习惯的中文进行求助，肯定会比用让中国人看了先懵逼3秒才能反应过来的中文，来得效果更好
+
+*****
+
+####  シャル  
+##### 153#         楼主| 发表于 2024-10-15 18:11
+
+ 本帖最后由 シャル 于 2024-10-15 18:13 编辑 
+
+<img src="https://img.saraba1st.com/forum/202410/15/180908uz674l4j7hs0o402.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="800" zoomfile="https://img.saraba1st.com/forum/202410/15/180908uz674l4j7hs0o402.png">
+
+<strong>641B4F6A-1ACE-4D21-99BE-26133C041D26.png</strong> (389.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-15 18:09 上传
+
+还有今天在花生炖发生了一起种族歧视袭击
+
+一个黑人在街上大喊“Go back to China”，揍了一个华人女人的脸，**正在找袭击者
+

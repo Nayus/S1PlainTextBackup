@@ -9264,3 +9264,57 @@ hard难度下敌人先手基本等于死，而吃屎一般的地图战斗手感�
 人均40级的时候想打赢coop沙虫委托有什么逃课方法吗</blockquote>
 开局凹巴登回避阵然后给对面上满回避debuff用剑士合体技砍，带个有坏识破的武僧会比较稳，队友能抗住一发aoe不死就行
 
+
+*****
+
+####  operatbig  
+##### 2370#       发表于 2024-10-15 08:08
+
+<blockquote>kuarwbwe 发表于 2024-10-15 00:25
+这游戏演出太拉了。还有画面debuff。
+
+本来上铁甲战车那堆应该是一段小高潮，结果动画不够精彩，演出完全没 ...</blockquote>
+这动画质量真心便宜，第一章时还特别多，看到心烦。
+
+*****
+
+####  卡拉德利姆  
+##### 2371#       发表于 2024-10-15 08:11
+
+你让atlus自己把这一段作3d演出效果只会更烂…<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+只能说能力跟不上自己的野心
+
+*****
+
+####  pwzzy  
+##### 2372#       发表于 2024-10-15 08:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">玩到现在唯一恶心的地方是为了出皇家版留了不少故意恶心人的点，很难想象一个2024年的游戏还没有即时存档和洗点
+
+
+*****
+
+####  operatbig  
+##### 2370#       发表于 2024-10-15 08:08
+
+<blockquote>kuarwbwe 发表于 2024-10-15 00:25
+这游戏演出太拉了。还有画面debuff。
+
+本来上铁甲战车那堆应该是一段小高潮，结果动画不够精彩，演出完全没 ...</blockquote>
+这动画质量真心便宜，第一章时还特别多，看到心烦。
+
+*****
+
+####  卡拉德利姆  
+##### 2371#       发表于 2024-10-15 08:11
+
+你让atlus自己把这一段作3d演出效果只会更烂…<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+只能说能力跟不上自己的野心
+
+*****
+
+####  pwzzy  
+##### 2372#       发表于 2024-10-15 08:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">玩到现在唯一恶心的地方是为了出皇家版留了不少故意恶心人的点，很难想象一个2024年的游戏还没有即时存档和洗点
+

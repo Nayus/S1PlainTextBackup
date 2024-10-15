@@ -13448,3 +13448,37 @@ go琴是在动画完结后才开卖的，国内邦标实际到货时今年的五
 
 前者就像我上面说的爱慕织姬那个情况，单纯作为一个心理问题的表现形式，然后以告别这个对象的形式来表现角色的成长（一般会让那个幻想人来对本人说“你的身边已经有真正的伙伴不是孤独一人了，所以我也该离开了”之类的），日漫这种剧情也不算少见，还能对上无畏死亡的设定
 
+
+*****
+
+####  玖羽  
+##### 24831#       发表于 2024-10-15 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66459818&amp;ptid=2159415" target="_blank">NODY 发表于 2024-10-15 21:53</a>
+
+“幻想一个人来陪自己玩耍聊天”和双重人格还是有点差别的
+
+前者就像我上面说的爱慕织姬那个情况，单纯作为 ...</blockquote>
+太老套了，就像前面有人说的，只要被猜到，后面悬念全无
+
+*****
+
+####  玖羽  
+##### 24832#       发表于 2024-10-15 21:57
+
+<img src="https://img.saraba1st.com/forum/202410/15/215741r2qggzs2qx7xws9u.jpg" referrerpolicy="no-referrer">
+
+<strong>orig.jpg</strong> (144.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-15 21:57 上传
+
+<img src="https://img.saraba1st.com/forum/202410/15/215741i5buuqc9ogsyqkb5.jpg" referrerpolicy="no-referrer">
+
+<strong>illust_id=112292270.jpg</strong> (783.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-15 21:57 上传
+

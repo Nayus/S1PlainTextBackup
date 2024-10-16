@@ -7072,3 +7072,24 @@ staff里一定有人看过别当哥的温泉回
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  隔壁老黄  
+##### 6589#       发表于 2024-10-17 01:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66462440&amp;ptid=2160194" target="_blank">樱桐 发表于 2024-10-16 10:08</a>
+刚有空开玩，刷羊的方法修复了之后还有啥比较快的刷资源方法么？</blockquote>
+只有庭院的羊修复了，现实世界的还是全999，过一段时间就会复活，只能这样刷了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  隔壁老黄  
+##### 6590#       发表于 2024-10-17 01:59
+
+那个杀5000敌人的成就有点麻烦啊，我打到桃花剑终章才3700多，我都觉得自己是很勤奋杀怪的了也才这么点<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

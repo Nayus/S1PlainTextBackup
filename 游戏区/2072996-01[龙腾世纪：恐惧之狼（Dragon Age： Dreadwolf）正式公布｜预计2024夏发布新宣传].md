@@ -333,3 +333,11 @@ https://www.reddit.com/r/dragonage/comments/5p4jd6/no_spoilersa_question_to_wome
 
 ME系列薛姐的人数不超过30%
 
+
+*****
+
+####  isa2456  
+##### 642#       发表于 2024-10-17 02:03
+
+说实话不加d加密是不是优化太烂了以生软现在的技术力救不回来<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">keep不能用是真的可惜，十年前大费周章做了这样的存档编辑机制说不用就不用
+

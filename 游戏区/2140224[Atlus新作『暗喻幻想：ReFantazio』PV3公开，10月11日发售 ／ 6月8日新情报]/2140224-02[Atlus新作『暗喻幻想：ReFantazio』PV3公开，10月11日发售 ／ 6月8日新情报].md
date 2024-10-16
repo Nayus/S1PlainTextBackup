@@ -11410,3 +11410,14 @@ HARD里面 商人初级的砸钱优势也之后 是万能属性和高暴击了 �
 
 确实想象不出霍肯伯格这造型这骑士人设承担了日常大部份笑点，什么都牵扯到吃的问题上好几次笑出声，做饭也是一个比一个搞笑，路飞感觉都没这么颠
 
+
+*****
+
+####  fireadol  
+##### 2570#       发表于 2024-10-16 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66463126&amp;ptid=2140224" target="_blank">变老的大二 发表于 2024-10-16 11:09</a>
+
+PC用修改器回蓝吧，这游戏的mp数值设定明显不正常</blockquote>
+我怕修改器回蓝体会不到阿特拉斯在迷宫资源管理上精妙的数值设计，都是开了无敌跟倍速切术士回<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

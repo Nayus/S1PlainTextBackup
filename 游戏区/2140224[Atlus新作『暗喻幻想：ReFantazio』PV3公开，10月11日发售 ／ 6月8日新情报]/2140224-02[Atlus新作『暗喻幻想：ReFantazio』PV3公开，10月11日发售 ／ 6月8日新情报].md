@@ -12101,3 +12101,16 @@ p的这套日期倒计时在p5后期已经十分搞笑对不上剧情，在暗�
 
 你们觉得暗喻幻想最终能卖过300W吗？我觉得很一般可玩可不玩，卖相也不好安利<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kuarwbwe  
+##### 2632#       发表于 2024-10-16 23:58
+
+ 本帖最后由 kuarwbwe 于 2024-10-16 23:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66468730&amp;ptid=2140224" target="_blank">八汰乌 发表于 2024-10-16 23:56</a>
+你们觉得暗喻幻想最终能卖过300W吗？我觉得很一般可玩可不玩，卖相也不好安利 ...</blockquote>
+我一直觉得生涯300w也就到头了，想突破500w必须要上虚幻4和开放世界。他这公路片题材也适合开放世界。<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

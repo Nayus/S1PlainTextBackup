@@ -2121,3 +2121,16 @@ A：Take me home
 
 B：Back to China
 
+
+*****
+
+####  gnihton314  
+##### 182#       发表于 2024-10-16 09:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66458157&amp;ptid=2203187" target="_blank">Rockchan 发表于 2024-10-15 17:58</a>
+
+在谷歌随便搜一下也能找到：
+
+“How do I go back to my country?” </blockquote>
+我都反复说了好几遍了，祈使句和有主语的陈述句完全是两个意思，你这纯属断章取义
+

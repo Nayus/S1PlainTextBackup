@@ -10903,3 +10903,16 @@ jjc三十连原来没奖励…只有成就，打完取档…
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Kaornao  
+##### 2518#       发表于 2024-10-16 09:04
+
+ 本帖最后由 Kaornao 于 2024-10-16 09:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66461131&amp;ptid=2140224" target="_blank">莉可厨 发表于 2024-10-16 02:13</a>
+这有啥谜啊，指引也太明显了，这游戏就压根没那种机关型迷宫，全是一条主路配几个拿宝贝的支路的而且龙宫 ...</blockquote>
+不是解谜太难的问题，是为了弱智解谜跑图太繁琐了，其他迷宫虽然没有设计感，好歹上下层楼梯对应，加莉卡扫描一下基本一下基本也能判断怪物的方位，龙宫里没打完耳人前去拿蓝点和宝箱跑路怪物多到吐，楼梯间的路长的要死，还要和耳人躲猫猫，还好是前面刷完级40级进去的，这一关教会我一个是眩晕怪物不一定开战可以直接跑路，还有就是朱娜即死sl和迷宫直奔刷怪笼。上一章飞天战车迷宫毫无设计，甚至可以说枯燥，然后下一章就给你塞个五层填满的大迷宫<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

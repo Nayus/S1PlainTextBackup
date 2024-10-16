@@ -2154,3 +2154,29 @@ B：Back to China
 
 给我回中国，是什么意思？
 
+
+*****
+
+####  大十字紅朔  
+##### 185#       发表于 2024-10-16 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66462141&amp;ptid=2203187" target="_blank">つうかあ 发表于 2024-10-16 09:40</a>
+
+给我回中国，是什么意思？</blockquote>
+G....Give me back china?<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dclara1  
+##### 186#       发表于 2024-10-16 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66457184&amp;ptid=2203187" target="_blank">荡寇将军张嶷 发表于 2024-10-15 16:07</a>
+口语里有时候的确会有省略主语的情况，当然我觉得这事情没必要多尴尬。
+
+你要是真说因为这个一开始那的确 ...</blockquote>
+鬼佬省略主语都是进行时/过去式/完成时，“yep, already done”, "working on it"
+
+你一般时态+省略主语就只有祈使句一种理解，不存在任何误解空间
+
+— from Google Pixel 8a, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.2
+

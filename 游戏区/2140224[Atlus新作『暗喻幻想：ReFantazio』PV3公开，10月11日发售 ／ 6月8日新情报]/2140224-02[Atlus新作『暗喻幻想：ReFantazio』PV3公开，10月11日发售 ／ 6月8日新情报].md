@@ -10962,3 +10962,30 @@ P的升级太慢了，升满了打经验道具也不快，真的肝
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我自己普通难度打也不算很细致，现在8月12日41h，主要是刷阿基态然后偷偷道具什么的，然后路上行人有新对话也会唠两句，有些还会有小支线，所以我对30小时通关的就感到很惊讶
 
+
+*****
+
+####  空气先生  
+##### 2524#       发表于 2024-10-16 09:45
+
+我hard龙宫前清完除悬赏外的新支线也就21小时（）,当然没看攻略自己摸索着打的，jrpg这东西游玩时差差距挺大的。
+
+
+*****
+
+####  SuNR1sE364  
+##### 2525#       发表于 2024-10-16 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66462061&amp;ptid=2140224" target="_blank">微尘众 发表于 2024-10-16 09:29</a>
+不是说堆料有60h吗，怎么看楼上感觉没多长
+
+—— 来自 鹅球 v3.0.87-alpha</blockquote>
+把对话语音听完可能有60，像我这种不怎么听的50h差不多了
+
+*****
+
+####  卡拉德利姆  
+##### 2526#       发表于 2024-10-16 09:54
+
+100h是哪个媒体说的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -409,3 +409,29 @@ ALL IN王哈 无事发生 现在就突出一个后悔 能退我石头吗</blockq
 （虽然但是，救救EX助战位吧 ...</blockquote>
 等把人理攻破/说服，就给extra一阶一个名分<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  シャル  
+##### 14967#       发表于 2024-10-16 21:38
+
+妈耶
+
+又是呼符出
+
+<img src="https://img.saraba1st.com/forum/202410/16/213821ly8kczyh5mhldvhm.png" referrerpolicy="no-referrer">
+
+<strong>8B7C0941-A838-4BCA-B80C-08C15926FF8B.png</strong> (1.02 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-16 21:38 上传
+
+<img src="https://img.saraba1st.com/forum/202410/16/213821bf11s44ooqpna666.png" referrerpolicy="no-referrer">
+
+<strong>F922B8F4-E58B-4D01-9BEC-ECBF1173889C.png</strong> (904.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-16 21:38 上传
+

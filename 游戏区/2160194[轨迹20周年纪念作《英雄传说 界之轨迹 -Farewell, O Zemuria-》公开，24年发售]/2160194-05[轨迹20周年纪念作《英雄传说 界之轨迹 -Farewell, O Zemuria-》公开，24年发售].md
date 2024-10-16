@@ -7051,3 +7051,24 @@ staff里一定有人看过别当哥的温泉回
 
 原来开局boost+1的回路效果可以叠加，带几个加几条
 
+
+*****
+
+####  隔壁老黄  
+##### 6587#       发表于 2024-10-17 01:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66468146&amp;ptid=2160194" target="_blank">jacket 发表于 2024-10-16 22:03</a>
+刚打boss出现一种情况，后备人员靠着援助攻击拿了单场mvp，比那些用魔法打出几十万伤害的贡献值都高。 ...</blockquote>
+谁打死谁就是mvp，我刚用菲捡了漏打了一万多就mvp了，其他三位打了七十万的表示很委屈<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  隔壁老黄  
+##### 6588#       发表于 2024-10-17 01:53
+
+看了下战技演出，凯文的双魔枪是没做完吧，爆炸刚出来就莫名其妙切换镜头到对手趴下，而且演出也是敷衍得不行。反而是桃花剑和师姐觉醒与否做了两套演出，桃花剑火文太刀和师姐鬼神乐的追加攻击演出可以说是轨迹新的巅峰，虽然只有两个镜头。但实在百看不厌<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

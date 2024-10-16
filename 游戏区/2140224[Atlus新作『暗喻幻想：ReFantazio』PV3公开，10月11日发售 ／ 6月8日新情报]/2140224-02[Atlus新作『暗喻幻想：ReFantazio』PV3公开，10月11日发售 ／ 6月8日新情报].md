@@ -11465,3 +11465,33 @@ PC用修改器回蓝吧，这游戏的mp数值设定明显不正常</blockquote>
 
 但是他么的 日常 和 过场 还是原皮 草，只有迷宫战斗换
 
+
+*****
+
+####  斯托雷加  
+##### 2574#       发表于 2024-10-16 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66463205&amp;ptid=2140224" target="_blank">jxzeroga0 发表于 2024-10-16 11:17</a>
+
+最低难度无脑万能魔法砸过去就完事，前期商人，中期军师，后期召唤，没什么难度 ...</blockquote>
+好的，谢谢
+
+
+*****
+
+####  罗克萨斯  
+##### 2575#       发表于 2024-10-16 13:21
+
+女角色不行，是不是桥野、副岛、码农都有锅，没恋爱要素、人设夹私货、祖传引擎，buff叠满了了都<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+最艹的的是让最好看的几个妹子不能入队，这不是故意的谁信？！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  里恩  
+##### 2576#       发表于 2024-10-16 13:26
+
+加点系统连队友都不然加，这个系统做出来有啥意义，太古早派了，不亏8年前的立项
+

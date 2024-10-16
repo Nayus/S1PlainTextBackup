@@ -12046,3 +12046,25 @@ p的这套日期倒计时在p5后期已经十分搞笑对不上剧情，在暗�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  莉可厨  
+##### 2627#       发表于 2024-10-16 23:40
+
+这游戏砍的东西可太多了，我一直觉得油咖喱会入队，不入队专门做一套她的装备系统干嘛<img src="https://static.saraba1st.com/image/smiley/face/132.gif" referrerpolicy="no-referrer">估计皇家版补上了
+
+*****
+
+####  ultraseven  
+##### 2628#       发表于 2024-10-16 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66468618&amp;ptid=2140224" target="_blank">kuarwbwe 发表于 2024-10-16 23:35</a>
+
+隔壁怎么还没放过这游戏的销量。今天又蹦出来一个帖子质疑这游戏销量造假。
+
+—— 来自 鹅球 v3.1.91-alpha ...</blockquote>
+这么久也该换个黑法了，什么“病毒式宣发”结果首发才100万，销量后劲不足之类的。
+
+确实不理解JRPG全平台卖个100万是个多么不可接受的事。FF16和FF7RB单平台首发成绩肯定比这强只被婊销量太少没有婊销量太多的
+

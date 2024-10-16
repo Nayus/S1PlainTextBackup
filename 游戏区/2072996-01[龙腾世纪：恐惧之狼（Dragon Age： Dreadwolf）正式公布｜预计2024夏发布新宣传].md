@@ -323,3 +323,13 @@ https://www.reddit.com/r/dragonage/comments/5p4jd6/no_spoilersa_question_to_wome
 
 退一步就算这数据真的好了，从哪看出来女的就愿意接受，这作队友男的女的都很抱歉<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jf8350143  
+##### 641#       发表于 2024-10-16 21:04
+
+没有一半吧，我记得是43%，占比挺高的
+
+ME系列薛姐的人数不超过30%
+

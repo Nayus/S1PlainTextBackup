@@ -11007,3 +11007,16 @@ Normal刚打完第四个城市主线迷宫也有40小时了，四五十小时通
 100h是哪个媒体说的</blockquote>
 桥野桂亲自说的，估计算了kok二周目的时间。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  忘却旋律  
+##### 2529#       发表于 2024-10-16 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66459160&amp;ptid=2140224" target="_blank">星野航 发表于 2024-10-15 20:25</a>
+
+应该是故意的w
+
+他别的职业没有这个问题，就刺客这个。毕竟灰雨是个骨子里有点萌点的小老头 ...</blockquote>
+昨天我也刚让灰雨转 刺客，第一次进战斗 听到这个 阿萨辛 实在叫的太难听了，因为当时我正在打一个支线不死怪BOSS  我还以为是怪物 什么在怪叫啥，然后发现不对 真就是灰雨在叫 没绷住
+

@@ -1970,3 +1970,11 @@ document.getElementById('flv_ALj').innerHTML=("");
 
 真的牛逼，一个快40年历史的系列还能玩出新花样来
 
+
+*****
+
+####  yohyoh4966  
+##### 1659#       发表于 2024-10-16 17:16
+
+现在还卡在短距离赛马 怎么都差一点<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+

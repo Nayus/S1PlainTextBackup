@@ -453,3 +453,43 @@ ALL IN王哈 无事发生 现在就突出一个后悔 能退我石头吗</blockq
 
 想追个蔓藤二宝，结果歪了俩五星，其中还有个盘子，欲哭无泪...希望她适用程度真的足够高吧...
 
+
+*****
+
+####  DARKGRAY  
+##### 14970#       发表于 2024-10-16 22:57
+
+特殊UP池就应该像石头池那样别搞+100上限<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eilot  
+##### 14971#       发表于 2024-10-16 22:59
+
+白野池按到手抽搐，用了16點友情點
+
+甚麼都沒有
+
+紅A又有強化?之後會再來2段強化嗎，
+
+柳生的寶具給了無敵貫通，可惜他的主動技都是得1回合
+
+
+*****
+
+####  天王寺凯伊姆  
+##### 14972#       发表于 2024-10-16 23:00
+
+友情池是不是也实装个保底比较好…
+
+*****
+
+####  heyfly  
+##### 14973#       发表于 2024-10-16 23:04
+
+想抽个三宝，咣咣咣咣砸晕了，比当年三呼符2弓呆时还欧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/5014894fae0d3a6aab377f08553ca95f/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/836257c5ec4026e395fd7dfc9301c9e6/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

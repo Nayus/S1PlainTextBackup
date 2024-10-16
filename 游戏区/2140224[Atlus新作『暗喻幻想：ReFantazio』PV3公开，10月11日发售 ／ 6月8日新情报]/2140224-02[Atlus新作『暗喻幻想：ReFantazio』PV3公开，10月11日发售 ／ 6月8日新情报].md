@@ -11753,3 +11753,27 @@ UI字体极为抽象，本来敌人就看不清了，冲刺时候还有那一条
 
 打完了，总体体验给我的感觉和打xb3差不多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  windtrack  
+##### 2601#       发表于 2024-10-16 18:10
+
+最终boss前地图的牙有概率刷黄金王和白金女王，概率掉物反饰品和魔反饰品， 不能偷
+
+<img src="https://img.saraba1st.com/forum/202410/16/181028gqqv0nfu5d0g0qrs.png" referrerpolicy="no-referrer">
+
+<strong>c419b9ead80e4731c15dad8be9242f74_720.png</strong> (192.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-16 18:10 上传
+
+
+*****
+
+####  陆久舟  
+##### 2602#       发表于 2024-10-16 18:15
+
+消耗品里的面具有什么用？我看也不能装备？是在哪里合成吗？
+

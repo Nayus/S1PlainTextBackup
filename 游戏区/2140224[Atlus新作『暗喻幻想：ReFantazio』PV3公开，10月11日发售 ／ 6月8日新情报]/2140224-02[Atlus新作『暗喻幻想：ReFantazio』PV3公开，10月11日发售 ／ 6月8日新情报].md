@@ -11542,3 +11542,36 @@ UI字体极为抽象，本来敌人就看不清了，冲刺时候还有那一条
 
 结果这个游戏贴图又写实又细碎，配合UI直接崩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  operatbig  
+##### 2579#       发表于 2024-10-16 14:20
+
+<blockquote>baizhi 发表于 2024-10-16 12:31
+别的不谈，如果有恋爱系统，和霍肯伯格恋爱是真想象不出来。
+
+—— 来自 OPPO PGBM10, Android 14上的 S1Ne ...</blockquote>
+有什么难想象的，女性精灵近身侍卫骑士，不就等于是内定的王子rbq么。
+
+
+*****
+
+####  66367749  
+##### 2580#       发表于 2024-10-16 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66464288&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-10-16 13:21</a>
+女角色不行，是不是桥野、副岛、码农都有锅，没恋爱要素、人设夹私货、祖传引擎，buff叠满了了都
+
+最艹的的 ...</blockquote>
+敬请期待完整版<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星野航  
+##### 2581#       发表于 2024-10-16 14:26
+
+加点不是老味道么，这跟做8年有啥关系，别啥都往这上面扯
+
+这种东西确实看耐受了，说白了很多问题就是引擎问题，加强版最好改一改<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

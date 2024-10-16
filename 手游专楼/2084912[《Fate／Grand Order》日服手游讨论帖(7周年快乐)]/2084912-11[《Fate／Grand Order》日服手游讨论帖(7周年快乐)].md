@@ -493,3 +493,22 @@ ALL IN王哈 无事发生 现在就突出一个后悔 能退我石头吗</blockq
 
 —— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  希望之花  
+##### 14974#       发表于 2024-10-16 23:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不愧是你们
+
+
+*****
+
+####  Jamaisvu  
+##### 14975#       发表于 2024-10-16 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66468462&amp;ptid=2084912" target="_blank">heyfly 发表于 2024-10-16 23:04</a>
+
+想抽个三宝，咣咣咣咣砸晕了，比当年三呼符2弓呆时还欧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">你才是真正的月之王
+

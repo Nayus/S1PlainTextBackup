@@ -12036,3 +12036,13 @@ p的这套日期倒计时在p5后期已经十分搞笑对不上剧情，在暗�
 
 感觉atlus硬凑的什么三巨头，都是在用刀背切菜。真不如专业幻想风神婆吧。
 
+
+*****
+
+####  kuarwbwe  
+##### 2626#       发表于 2024-10-16 23:35
+
+隔壁怎么还没放过这游戏的销量。今天又蹦出来一个帖子质疑这游戏销量造假。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

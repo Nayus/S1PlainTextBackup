@@ -12068,3 +12068,36 @@ p的这套日期倒计时在p5后期已经十分搞笑对不上剧情，在暗�
 
 确实不理解JRPG全平台卖个100万是个多么不可接受的事。FF16和FF7RB单平台首发成绩肯定比这强只被婊销量太少没有婊销量太多的
 
+
+*****
+
+####  usodakedo  
+##### 2629#       发表于 2024-10-16 23:48
+
+ 本帖最后由 usodakedo 于 2024-10-16 23:51 编辑 
+
+我个人对霍肯伯格的双开门没那么大意见，对她下半身的穿搭倒是意见挺大，主要显得有点头重脚轻，我还是更喜欢之前初版的带盔甲的人设。
+但是这姐们日常挺搞笑的，不谈就不谈吧，做哥们挺好
+
+*****
+
+####  kuarwbwe  
+##### 2630#       发表于 2024-10-16 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66468647&amp;ptid=2140224" target="_blank">ultraseven 发表于 2024-10-16 23:41</a>
+这么久也该换个黑法了，什么“病毒式宣发”结果首发才100万，销量后劲不足之类的。
+
+确实不理解JRPG全平 ...</blockquote>
+因为隔壁玩手游的多。这个黑法是用来黑国产手游厂（米哈游）的。比如那几个质疑贴有一楼说建议atlus以后按100万销量交税。这个源头就是b站那几个做手游流水榜（最早是二次元手游观察这个up）的kol为了吹米哈游的流水会给黑箱安卓、pc和ps这三端编系数。然后那边手综觉得这数据是假的（实际上这数据确实很扯淡，最近腾讯盖章说米哈游移动端和电脑端流水是1：1，说明这帮搞手游流水的确实是瞎编的），就阴阳米哈游建议以后按榜上的流水纳税。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+然后隔壁还有几个人特别恨atlus，就顺手推了一波。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+
+*****
+
+####  八汰乌  
+##### 2631#       发表于 2024-10-16 23:56
+
+你们觉得暗喻幻想最终能卖过300W吗？我觉得很一般可玩可不玩，卖相也不好安利<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

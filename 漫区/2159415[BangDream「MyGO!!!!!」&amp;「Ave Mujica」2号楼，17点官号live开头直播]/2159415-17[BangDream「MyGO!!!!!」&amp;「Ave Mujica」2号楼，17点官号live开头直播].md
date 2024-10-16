@@ -13800,3 +13800,20 @@ Q5 MUSIX15週年！請說出你對此的幹勁！
 邦标猫其实不贵，硝基漆+做旧+粘接琴颈+拱面琴体卖6000多，而且还是单独开生产线的异形琴，虽然这些外观配 ...</blockquote>
 那看来是我记错了，我总记得邦标猫要1万左右<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 24851#       发表于 2024-10-16 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66468505&amp;ptid=2159415" target="_blank">11A511 发表于 2024-10-16 23:13</a>
+
+多重人格有些老套，之前NGA有人提过的沙耶之歌那种程度的幻视又太科幻了，考虑到灯也“只”能归于ASD谱系而 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说没有专业学习不推荐赛博诊断
+
+文娱作品的剧本很难做到“诊断”程度的病症描写，去年我就说过这个
+
+更多的是萌属性，也就是艺术加工后的“会产生幻觉/看到一般人看不到的东西”“一个躯体多个人格”，这种非疾病意义的概念本身就比解离症更适合艺术创作
+
+灯根本称不上ASD谱系，只是一个“活在自己世界里，不擅长交流，举止有些怪异”的人设罢了
+

@@ -512,3 +512,12 @@ ALL IN王哈 无事发生 现在就突出一个后悔 能退我石头吗</blockq
 想抽个三宝，咣咣咣咣砸晕了，比当年三呼符2弓呆时还欧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">你才是真正的月之王
 
+
+*****
+
+####  壳壳牛  
+##### 14976#       发表于 2024-10-16 23:54
+
+妈耶<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+抽个1宝收藏走人了
+

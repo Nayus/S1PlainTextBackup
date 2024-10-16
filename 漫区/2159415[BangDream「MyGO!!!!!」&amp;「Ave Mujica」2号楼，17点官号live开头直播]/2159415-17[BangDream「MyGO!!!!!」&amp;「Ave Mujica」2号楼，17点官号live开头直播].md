@@ -13596,3 +13596,16 @@ https://bang-dream.com/discographies/3846 ...</blockquote>
 
 下一代吉他店老板既视感
 
+
+*****
+
+####  紫吹兰  
+##### 24840#         楼主| 发表于 2024-10-16 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66457413&amp;ptid=2159415" target="_blank">香雨香香 发表于 2024-10-15 16:31</a>
+
+那看来至少明年年底甚至后年才能买到了，唉，想想前辈团的那些琴，之前都随便买，go标的居然能卖断货 ...</blockquote>
+也不一定拖那么久，毕竟go琴的销量远超esp预期，这次应该会提前备货才对。
+
+mujica这几把琴主要问题是会不会有邦标版，schecter虽然和esp是一个老板，部分琴是一个工厂出品，但是schecter没有出过草根这种廉价品牌，这次不知道是会找草根代工出邦标还是只有schecter标但是分高低配（类似六花），六花那把的低配也要近万了。
+

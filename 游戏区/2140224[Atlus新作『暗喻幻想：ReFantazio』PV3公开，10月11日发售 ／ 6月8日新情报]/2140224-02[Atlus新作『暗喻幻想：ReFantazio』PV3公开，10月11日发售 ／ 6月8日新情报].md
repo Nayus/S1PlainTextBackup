@@ -11583,3 +11583,40 @@ UI字体极为抽象，本来敌人就看不清了，冲刺时候还有那一条
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">这过场动画2d3d来回切换实在是太难绷了，感觉三个小时玩下来能看3-4种不同感觉的美术风格，这明显就是项目管理爆炸了吧
 
+
+*****
+
+####  Whalouse  
+##### 2583#       发表于 2024-10-16 14:45
+
+哇，最后剩的那几天就不能一键跳过吗，还要我一直黑屏读图午睡晚睡，<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jimlee080  
+##### 2584#       发表于 2024-10-16 14:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前我就在楼里说不要对这个开发了八年至少推倒重来一次的游戏抱太大期望，还有漏油反驳说推倒重来是无稽之谈的。现在这成品，如果真的是铁三角一条路做下来的话，那至少桥野和副岛这俩可以直接拖下去埋了
+
+*****
+
+####  里恩  
+##### 2585#       发表于 2024-10-16 14:48
+
+都TM2024年了，装备界面已经被同伴装备时都不能给个头像，而是只有一个很小的E，是哪个角色在装备也看不出来
+
+我是QA我能把项目组喷到土下座
+
+
+*****
+
+####  星野航  
+##### 2586#       发表于 2024-10-16 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66464925&amp;ptid=2140224" target="_blank">Whalouse 发表于 2024-10-16 15:45</a>
+
+哇，最后剩的那几天就不能一键跳过吗，还要我一直黑屏读图午睡晚睡，</blockquote>
+那几天就是给你做得盈余，防止前期推图时间耗久了最后没办法满，如果你前面推图都是一天搞定最后肯定会剩下来
+
+去看看戏剧，泡温泉过就完了
+

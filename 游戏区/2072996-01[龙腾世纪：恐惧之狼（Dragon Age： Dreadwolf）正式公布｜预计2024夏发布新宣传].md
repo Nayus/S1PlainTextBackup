@@ -196,3 +196,11 @@ DAO的玩家看到博德之门3篝火营地系统时还是百感交集，甚至�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">steam全球区前40都进不去还在这里环大陆热销么
 
+
+*****
+
+####  sosgame67  
+##### 631#       发表于 2024-10-16 14:52
+
+说白了不就是普通的暴死么，生软从差强人意的dai后已经快10年没好活了，加上这作糟糕的卖相和抛弃前作继承的keep，不暴死才奇怪吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

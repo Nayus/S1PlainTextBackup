@@ -3777,7 +3777,7 @@
     "lastedit": 1729049040,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1478318": {
     "totalreply": 1412,
@@ -16341,7 +16341,7 @@
     "lastedit": 1729092600,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2191872": {
     "totalreply": 64,
@@ -16731,10 +16731,10 @@
     "update": false
   },
   "2203397": {
-    "totalreply": 49,
+    "totalreply": 50,
     "title": "[奇缘这种翻译到底怎么来的]",
     "newtitle": "[奇缘这种翻译到底怎么来的]",
-    "lastedit": 1729110852,
+    "lastedit": 1729112410,
     "category": "外野",
     "active": true,
     "update": false

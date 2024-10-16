@@ -502,3 +502,14 @@ x的 我的侦探绅士完结篇呢？ 为什么就这么没了？<img src="http
 
 这算是先发优势的诅咒吗？明明供应链水平已经跟不上时代了，但发行太过发达了，直接组装一路推到了消费者面前？
 
+
+*****
+
+####  伊布桑  
+##### 48#       发表于 2024-10-16 20:41
+
+这卖相我怎么感觉还不如之前那个只做了一章就被搁置了的尸体派对2啊<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">那种模式起码能藏拙，玩家当成独立小游戏来玩。现在这个模式简直成倍地放大了这个建模的粗糙。
+想不通日本人怎么游戏越做越回去了，233
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

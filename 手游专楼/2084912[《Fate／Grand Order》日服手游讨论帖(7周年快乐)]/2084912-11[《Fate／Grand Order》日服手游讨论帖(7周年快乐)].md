@@ -231,3 +231,18 @@ ALL IN王哈 无事发生 现在就突出一个后悔 能退我石头吗</blockq
 
 红A这都没捞到自充有点幽默了
 
+
+*****
+
+####  yangun22  
+##### 14949#       发表于 2024-10-16 19:29
+
+9宝了。。我只是想多抽张礼装而已啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 14950#       发表于 2024-10-16 19:31
+
+宝具差分倒是做足了
+

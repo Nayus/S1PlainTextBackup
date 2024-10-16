@@ -1988,3 +1988,11 @@ document.getElementById('flv_ALj').innerHTML=("");
 现在还卡在短距离赛马 怎么都差一点</blockquote>
 跟自己和解吧，用怪物吹走障碍不可耻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，你控制的是智慧三角力量的持有者。
 
+
+*****
+
+####  liekong  
+##### 1661#       发表于 2024-10-16 19:45
+
+短距离赛马我跑了20多次才成功，中间试着用同步移走障碍物发现更不顺手就没用了，最后靠硬实力跑进时间内
+

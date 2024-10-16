@@ -11085,3 +11085,27 @@ Normal刚打完第四个城市主线迷宫也有40小时了，四五十小时通
 
 只能说遇到卡关的时候开自动战斗看看ai怎么打能节省很多时间。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  牙狼GARO  
+##### 2538#       发表于 2024-10-16 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66460736&amp;ptid=2140224" target="_blank">里恩 发表于 2024-10-15 23:59</a>
+被牛头人干废了，无法应对AOE
+
+而且牛头人的哪个阶段，并没有突属性的攻击技能，只有骑士的普通攻击，难道 ...</blockquote>
+据说没事前后跳跳可以扰乱敌人ai，哪怕跳后面再立刻跳会前线都可以，可以有效减少敌人放aor的概率
+
+—— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  变老的大二  
+##### 2539#       发表于 2024-10-16 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66463059&amp;ptid=2140224" target="_blank">fireadol 发表于 2024-10-16 11:01</a>
+
+目前第三个迷宫打了30小时，绝大部分时间在迷宫里刷，不是刷钱就是没蓝了切术士回蓝 ...</blockquote>
+PC用修改器回蓝吧，这游戏的mp数值设定明显不正常<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

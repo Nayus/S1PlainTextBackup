@@ -11710,3 +11710,11 @@ UI字体极为抽象，本来敌人就看不清了，冲刺时候还有那一条
 
 剧情难绷，全程没有新coop，主线迷宫（都不能叫迷宫了）短的不行，最后甚至连场像样的boss战都没有。好歹是大城市怎么做的比马尔蒂拉这种小镇都无聊
 
+
+*****
+
+####  DancingAndy  
+##### 2596#       发表于 2024-10-16 16:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">大部分女coop比男主大一轮的吧，这男主还没满20不能喝酒呢
+

@@ -11354,3 +11354,51 @@ HARD里面 商人初级的砸钱优势也之后 是万能属性和高暴击了 �
 
 那个追求美貌的神金候选人模型做的一坨史，每次他讲话都很难绷<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我就想问你长的好吗，你什么建模主角什么建模
 
+
+*****
+
+####  kuarwbwe  
+##### 2565#       发表于 2024-10-16 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66463826&amp;ptid=2140224" target="_blank">Khellendros 发表于 2024-10-16 12:17</a>
+那个追求美貌的神金候选人模型做的一坨史，每次他讲话都很难绷我就想问你长的好吗，你什么建模主角什么建模 ...</blockquote>
+这倒无所谓，这帮背景板选举竞争对手基本都是来搞抽象的。形象抽象点也好。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+
+*****
+
+####  里恩  
+##### 2566#       发表于 2024-10-16 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66461953&amp;ptid=2140224" target="_blank">忘却旋律 发表于 2024-10-16 09:19</a>
+
+没毛病，起码同样PS5 界轨我没打不评论，黎轨2的画面 建模 帧数都是秒了这8年的暗喻的，居然特么有一天能 ...</blockquote>
+当初我进去就发现，怎么在你法之下
+
+玩了3小时眼睛都快瞎了
+
+原来开发8年的意思是这游戏全部都是8年前游戏的缺点是吧
+
+*****
+
+####  baizhi  
+##### 2567#       发表于 2024-10-16 12:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别的不谈，如果有恋爱系统，和霍肯伯格恋爱是真想象不出来。
+
+—— 来自 OPPO PGBM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  里恩  
+##### 2568#       发表于 2024-10-16 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66463514&amp;ptid=2140224" target="_blank">saverok 发表于 2024-10-16 11:44</a>
+
+女角色各有各的不行 老板娘和粉毛两个能看的还不是队友 玩你吗</blockquote>
+女角色质量之糟糕，简直被我法吊打
+
+我目前遇到的长耳女像路人
+

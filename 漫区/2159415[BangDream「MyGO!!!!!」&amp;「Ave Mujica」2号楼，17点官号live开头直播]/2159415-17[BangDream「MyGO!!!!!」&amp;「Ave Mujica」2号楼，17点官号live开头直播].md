@@ -13655,3 +13655,49 @@ mujica这几把琴主要问题是会 ...</blockquote>
 
 至于这个吉他和祥子有没有关系也是可以延伸的点
 
+
+*****
+
+####  uhiuk  
+##### 24844#       发表于 2024-10-16 19:09
+
+ 本帖最后由 uhiuk 于 2024-10-16 19:12 编辑 
+
+确实有可能，想到一个我挺喜欢的故事手法就是把谜底藏在谜底下面。故事开始就制造了两个谜题，但是人们一般只会注意到明显且容易猜到答案的那个，到了结尾揭开谜底的时候另一个谜题才一并被揭开。
+
+虽然不是一回事，但是如果把人偶当做明显的，大家一眼就能注意到的谜题的话，并且有用这个谜题来隐藏其他信息的意思的话。说不定房间布局这里坐在椅子上的人偶对应的不是最符合人偶描述的睦，而是睦怀里的吉他
+
+<img src="https://img.saraba1st.com/forum/202410/16/190545vr311dckcgmdanpf.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20241016_185805.jpg</strong> (17.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-16 19:05 上传
+
+<img src="https://img.saraba1st.com/forum/202410/16/190545oadftm3ca8fyauol.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20241016_185824.jpg</strong> (69.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-16 19:05 上传
+
+就像祥子给睦梳头这里，镜头给到睦，但是话里的意思其实指的是站在旁边的祥子那样
+
+<img src="https://img.saraba1st.com/forum/202410/16/190848qu52eu6tep62iicq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241016_190008.jpg</strong> (231.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-16 19:08 上传
+
+<img src="https://img.saraba1st.com/forum/202410/16/190848azmm6svbw9swgb96.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241016_190007.jpg</strong> (232.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-16 19:08 上传
+

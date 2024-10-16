@@ -2415,3 +2415,15 @@ op分词这么少，星三后面剧情一定会弥补点吧（笑）
 —— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 v3.0.0-alpha ...</blockquote>
 アニメーションの脚本術里面的
 
+
+*****
+
+####  csolfans  
+##### 231#       发表于 2024-10-16 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66467067&amp;ptid=2201887" target="_blank">日野下花帆 发表于 2024-10-16 19:06</a>
+アニメーションの脚本術里面的</blockquote>
+谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

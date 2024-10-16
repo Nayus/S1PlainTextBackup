@@ -179,3 +179,32 @@ ALL IN王哈 无事发生 现在就突出一个后悔 能退我石头吗</blockq
 
 酋长强化的是绿魔放那个技能……我都想要狂笑了
 
+
+*****
+
+####  angelooo  
+##### 14943#       发表于 2024-10-16 19:05
+
+满破太拉了……其他三张还行
+
+*****
+
+####  alucardcz  
+##### 14944#       发表于 2024-10-16 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66466905&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-10-16 18:42</a>
+
+你忍住不抽就不会画出去啊
+
+这波3000wDL一个石头都没扔出去
+
+（全扔第七史诗了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/273.png" referrerpolicy="no-referrer">萌新抽了闪闪又抽了神祖又抽了王哈
+
+*****
+
+####  alucardcz  
+##### 14945#       发表于 2024-10-16 19:09
+
+绿光炮。。结束了 全都结束了（
+

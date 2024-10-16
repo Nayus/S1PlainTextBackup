@@ -10989,3 +10989,21 @@ P的升级太慢了，升满了打经验道具也不快，真的肝
 
 100h是哪个媒体说的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jxzeroga0  
+##### 2527#       发表于 2024-10-16 09:59
+
+Normal刚打完第四个城市主线迷宫也有40小时了，四五十小时通关有多少水分不用多说，毕竟现在是不感兴趣的剧情就能快进跳过也能算正常玩的。
+
+*****
+
+####  kuarwbwe  
+##### 2528#       发表于 2024-10-16 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66462285&amp;ptid=2140224" target="_blank">卡拉德利姆 发表于 2024-10-16 09:54</a>
+
+100h是哪个媒体说的</blockquote>
+桥野桂亲自说的，估计算了kok二周目的时间。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

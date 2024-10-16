@@ -529,3 +529,13 @@ ALL IN王哈 无事发生 现在就突出一个后悔 能退我石头吗</blockq
 
 这楼这么多豹跳的……好不容易出了一宝的简直无言以对
 
+
+*****
+
+####  格林卡罗尔  
+##### 14978#       发表于 2024-10-17 02:13
+
+双藤蔓最大的问题是要有人挂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这可不是烟雾镜坐assassin阶而是最杂的extra，而且双藤蔓也没破格到哪里去
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

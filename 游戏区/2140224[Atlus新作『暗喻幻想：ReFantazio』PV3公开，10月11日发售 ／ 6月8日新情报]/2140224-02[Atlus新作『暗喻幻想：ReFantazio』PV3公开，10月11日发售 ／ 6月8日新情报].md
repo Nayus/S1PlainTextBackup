@@ -11421,3 +11421,30 @@ HARD里面 商人初级的砸钱优势也之后 是万能属性和高暴击了 �
 PC用修改器回蓝吧，这游戏的mp数值设定明显不正常</blockquote>
 我怕修改器回蓝体会不到阿特拉斯在迷宫资源管理上精妙的数值设计，都是开了无敌跟倍速切术士回<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  变老的大二  
+##### 2571#       发表于 2024-10-16 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66464091&amp;ptid=2140224" target="_blank">fireadol 发表于 2024-10-16 12:51</a>
+
+我怕修改器回蓝体会不到阿特拉斯在迷宫资源管理上精妙的数值设计，都是开了无敌跟倍速切术士回 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">从P5到P5R证明了他家迷宫的mp管理真就简单粗暴，不然也不会加个欲石回蓝
+
+按游戏内正常回蓝方法，就是纯术士刷小怪+人手一个吸蓝技能<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+最搞笑的还是那个回蓝面包，60s持续回蓝搞得和真的一样，结果扣扣索索的。
+
+*****
+
+####  忘却旋律  
+##### 2572#       发表于 2024-10-16 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66463940&amp;ptid=2140224" target="_blank">里恩 发表于 2024-10-16 12:31</a>
+
+当初我进去就发现，怎么在你法之下
+
+玩了3小时眼睛都快瞎了</blockquote>
+是的 8年 就这画面 笑死人  目前也就好在战斗玩法还行 过的去
+

@@ -452,3 +452,13 @@ x的 我的侦探绅士完结篇呢？ 为什么就这么没了？<img src="http
 
 如果按演示水平直接搬上来绝对是天神小学级的灾难，希望能好好打磨<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shin3  
+##### 43#       发表于 2024-10-16 18:03
+
+看了实机演示，只能说跳票是对的。。。。
+
+10年前的驭血我买了限定版收藏，2代目前这个素质。。我不好评价
+

@@ -13609,3 +13609,18 @@ https://bang-dream.com/discographies/3846 ...</blockquote>
 
 mujica这几把琴主要问题是会不会有邦标版，schecter虽然和esp是一个老板，部分琴是一个工厂出品，但是schecter没有出过草根这种廉价品牌，这次不知道是会找草根代工出邦标还是只有schecter标但是分高低配（类似六花），六花那把的低配也要近万了。
 
+
+*****
+
+####  香雨香香  
+##### 24841#       发表于 2024-10-16 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66466491&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-10-16 17:50</a>
+
+也不一定拖那么久，毕竟go琴的销量远超esp预期，这次应该会提前备货才对。
+
+mujica这几把琴主要问题是会 ...</blockquote>
+好像猫的那把做旧LP邦标也挺贵的？反正我希望还是有邦标吧，这可是传统啊，哪怕schecter的邦标贵点也不能直接阉割掉啊，毕竟不是富哥也不是吉他手，能省则省<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+另外希望鸡的动画真爆红的话也别把琴价给炒上去了，不然一下子买三把溢价大号手办真是肉疼
+

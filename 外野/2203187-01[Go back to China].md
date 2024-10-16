@@ -2134,3 +2134,15 @@ B：Back to China
 “How do I go back to my country?” </blockquote>
 我都反复说了好几遍了，祈使句和有主语的陈述句完全是两个意思，你这纯属断章取义
 
+
+*****
+
+####  心二  
+##### 183#       发表于 2024-10-16 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66454431&amp;ptid=2203187" target="_blank">JOY_GoGo 发表于 2024-10-15 10:48</a>
+他们为啥不能说回家 而非要说回中国</blockquote>
+鬼知道你家在哪里啊...
+
+—— 来自 Xiaomi 23116PN5BC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

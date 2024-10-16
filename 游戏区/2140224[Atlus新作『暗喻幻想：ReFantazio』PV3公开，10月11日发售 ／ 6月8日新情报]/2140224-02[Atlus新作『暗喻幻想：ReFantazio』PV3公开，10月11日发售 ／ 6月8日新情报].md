@@ -10916,3 +10916,31 @@ jjc三十连原来没奖励…只有成就，打完取档…
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  -SLSL-  
+##### 2519#       发表于 2024-10-16 09:17
+
+这游戏音乐真有点东西吧，感觉被异世界轻改幻想拖后腿了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  忘却旋律  
+##### 2520#       发表于 2024-10-16 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66461322&amp;ptid=2140224" target="_blank">plok201 发表于 2024-10-16 06:36</a>
+
+大部队都差不多完事了，怎么说呢，就atlus不如给点钱外包给法老控吧，用界轨那个素质弄你这个作品
+
+法老控 ...</blockquote>
+没毛病，起码同样PS5 界轨我没打不评论，黎轨2的画面 建模 帧数都是秒了这8年的暗喻的，居然特么有一天能吹法老控的画面和建模了 都了
+
+
+*****
+
+####  yangkaim4  
+##### 2521#       发表于 2024-10-16 09:19
+
+P的升级太慢了，升满了打经验道具也不快，真的肝
+

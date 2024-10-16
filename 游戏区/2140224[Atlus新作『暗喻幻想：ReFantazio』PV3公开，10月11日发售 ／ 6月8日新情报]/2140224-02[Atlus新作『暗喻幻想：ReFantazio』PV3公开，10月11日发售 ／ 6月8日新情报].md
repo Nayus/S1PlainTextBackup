@@ -11527,3 +11527,18 @@ UI字体极为抽象，本来敌人就看不清了，冲刺时候还有那一条
 
 你总不能让玩家在冲刺中还时不时停下来去开瞎眼的鹰眼系统吧？
 
+
+*****
+
+####  变老的大二  
+##### 2578#       发表于 2024-10-16 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66464378&amp;ptid=2140224" target="_blank">里恩 发表于 2024-10-16 13:33</a>
+
+这游戏应该是完全美术主导的立项，对于体验完全没人把关
+
+这游戏灰蒙蒙的画面，空气中漂浮着大概制作人会觉 ...</blockquote>
+实际上这个问题P5就存在，但是P5在迷宫里大批量运用了纯色贴图减少环境信息量，看起来没那么花。 
+
+结果这个游戏贴图又写实又细碎，配合UI直接崩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

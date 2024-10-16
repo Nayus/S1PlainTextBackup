@@ -11745,3 +11745,11 @@ UI字体极为抽象，本来敌人就看不清了，冲刺时候还有那一条
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">用过寂静岭2重置的超方便的地图后，看阿特拉斯这个迷宫地图真是一坨
 
+
+*****
+
+####  Whalouse  
+##### 2600#       发表于 2024-10-16 17:40
+
+打完了，总体体验给我的感觉和打xb3差不多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

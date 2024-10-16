@@ -289,3 +289,18 @@ veilguard你说它爆死还太早
 da的女玩家有一半，就算被男玩家摒弃了，也不至于死的和concord一样难看</blockquote>
 占一半的数据是哪来的
 
+
+*****
+
+####  mimighost  
+##### 638#       发表于 2024-10-16 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66466350&amp;ptid=2072996" target="_blank">pygrads 发表于 2024-10-16 17:33</a>
+
+占一半的数据是哪来的</blockquote>
+[https://www.reddit.com/r/dragona ... playing_dragon_age/](https://www.reddit.com/r/dragonage/comments/5p4jd6/no_spoilersa_question_to_women_playing_dragon_age/)
+
+我也记得当年dai的时候看过这个数据，好像是哪个论坛自己统计的
+
+把龙腾当gal玩儿的人真不少
+

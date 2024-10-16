@@ -341,3 +341,14 @@ ME系列薛姐的人数不超过30%
 
 说实话不加d加密是不是优化太烂了以生软现在的技术力救不回来<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">keep不能用是真的可惜，十年前大费周章做了这样的存档编辑机制说不用就不用
 
+
+*****
+
+####  mimighost  
+##### 643#       发表于 2024-10-17 05:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66466871&amp;ptid=2072996" target="_blank">Edvinno 发表于 2024-10-16 18:39</a>
+
+退一步就算这数据真的好了，从哪看出来女的就愿意接受，这作队友男的女的都很抱歉 ...</blockquote>
+女玩家对于zzzq和男玩家的立场是反的
+

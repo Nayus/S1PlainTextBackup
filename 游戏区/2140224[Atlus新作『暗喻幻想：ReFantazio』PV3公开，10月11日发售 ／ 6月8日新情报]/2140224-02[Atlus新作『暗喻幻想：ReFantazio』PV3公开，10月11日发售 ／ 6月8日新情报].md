@@ -10869,3 +10869,37 @@ jjc三十连原来没奖励…只有成就，打完取档…
 
 巫师的合体技增伤被动对物理技能也生效吗
 
+
+*****
+
+####  变老的大二  
+##### 2516#       发表于 2024-10-16 08:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66461486&amp;ptid=2140224" target="_blank">fireadol 发表于 2024-10-16 08:05</a>
+
+巫师的合体技增伤被动对物理技能也生效吗</blockquote>
+我记得前面有人说过不生效
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| fireadol| + 1|感谢|
+
+查看全部评分
+
+*****
+
+####  星野航  
+##### 2517#       发表于 2024-10-16 08:46
+
+可以了，至少迷宫不给你搞随机生成一百来层这种玩意我觉得已经是进步了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+其实很多问题都可以靠换引擎解决，8年我实在是没想通为什么不换虚幻，atlus又不是没有这个技术储备，0组还是吃了不少人力堆出来的，总不能连这个也解决不了吧。还是说桥野桂跟sega就觉得现在这引擎也能应付应付？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+新宿这图其实大体不赖，而且推图也有爽点，搭配起来尤法这个角色都细致了很多，多发挥发挥这种长处嘛。而且里面有不少可以加的内容，猴根宝这家庭背景难道不应该跟鲁道夫有点故事？老头跟莉娜竟然没有互动？加强版是不是已经准备好坑位了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

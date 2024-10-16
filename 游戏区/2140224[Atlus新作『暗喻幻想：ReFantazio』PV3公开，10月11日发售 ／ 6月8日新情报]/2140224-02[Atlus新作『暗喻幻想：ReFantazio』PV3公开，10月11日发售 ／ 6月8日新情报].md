@@ -11109,3 +11109,49 @@ Normal刚打完第四个城市主线迷宫也有40小时了，四五十小时通
 目前第三个迷宫打了30小时，绝大部分时间在迷宫里刷，不是刷钱就是没蓝了切术士回蓝 ...</blockquote>
 PC用修改器回蓝吧，这游戏的mp数值设定明显不正常<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jxzeroga0  
+##### 2540#       发表于 2024-10-16 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66463059&amp;ptid=2140224" target="_blank">fireadol 发表于 2024-10-16 11:01</a>
+目前第三个迷宫打了30小时，绝大部分时间在迷宫里刷，不是刷钱就是没蓝了切术士回蓝 ...</blockquote>
+第三个迷宫不就几个怪，第二个吧。主线迷宫长度基本都很长，一般推荐支线迷宫打完再去，等级高了根本没几个杂兵要打，蓝够用的。支线迷宫都是两层，流程短不怎么需要考虑续航。
+
+*****
+
+####  斯托雷加  
+##### 2541#       发表于 2024-10-16 11:16
+
+求问一下，这个游戏有没有类似于p5r大神那样只看剧情的打法，我本人肯定是高难度开荒，但是我想安利下我女朋友。
+
+*****
+
+####  jxzeroga0  
+##### 2542#       发表于 2024-10-16 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66463190&amp;ptid=2140224" target="_blank">斯托雷加 发表于 2024-10-16 11:16</a>
+求问一下，这个游戏有没有类似于p5r大神那样只看剧情的打法，我本人肯定是高难度开荒，但是我想安利下我女 ...</blockquote>
+最低难度无脑万能魔法砸过去就完事，前期商人，中期军师，后期召唤，没什么难度
+
+
+*****
+
+####  fireadol  
+##### 2543#       发表于 2024-10-16 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66463182&amp;ptid=2140224" target="_blank">jxzeroga0 发表于 2024-10-16 11:15:06</a>
+第三个迷宫不就几个怪，第二个吧。主线迷宫长度基本都很长，一般推荐支线迷宫打完再去，等级高了根本没几 ...</blockquote>就是说刷支线迷宫，路易飞船我都还没去<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Jimlee080  
+##### 2544#       发表于 2024-10-16 11:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">都上pc了就别折磨自己了，jrpg有些醍醐味吃不下去很正常，直接风大师或者ce自我和解吧
+
+我倒是觉得这代缝新p的日期主线剧情的推动力真的不强，和3代那种到点打卡上班的感觉差不多，完全没有4 5那种给人主观上着急推图的情绪调动
+

@@ -13734,3 +13734,11 @@ Q5 MUSIX15週年！請說出你對此的幹勁！
 
 [https://x.com/animaxmusi**/status/1846521482282946898](https://x.com/animaxmusi**/status/1846521482282946898)
 
+
+*****
+
+####  星天观测  
+##### 24846#       发表于 2024-10-16 21:29
+
+15万日元够世界旅行一周吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不可思议
+

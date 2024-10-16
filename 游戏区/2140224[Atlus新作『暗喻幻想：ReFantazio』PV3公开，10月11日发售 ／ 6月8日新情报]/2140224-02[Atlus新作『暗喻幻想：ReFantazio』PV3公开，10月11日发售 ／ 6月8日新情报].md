@@ -11155,3 +11155,95 @@ PC用修改器回蓝吧，这游戏的mp数值设定明显不正常<img src="htt
 
 我倒是觉得这代缝新p的日期主线剧情的推动力真的不强，和3代那种到点打卡上班的感觉差不多，完全没有4 5那种给人主观上着急推图的情绪调动
 
+
+*****
+
+####  莉可厨  
+##### 2545#       发表于 2024-10-16 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66462336&amp;ptid=2140224" target="_blank">jxzeroga0 发表于 2024-10-16 09:59</a>
+Normal刚打完第四个城市主线迷宫也有40小时了，四五十小时通关有多少水分不用多说，毕竟现在是不感兴趣的剧 ...</blockquote>
+不好意思没跳任何剧情只是不听全语音<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">当然我不是那种每个人都对话过去直到变成复读机的类型
+
+*****
+
+####  zero4166  
+##### 2546#       发表于 2024-10-16 11:26
+
+这解锁阿基态的动画不能跳过太傻X了，所有人解锁全职业得看一百多次？
+
+*****
+
+####  星野航  
+##### 2547#       发表于 2024-10-16 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66462393&amp;ptid=2140224" target="_blank">忘却旋律 发表于 2024-10-16 11:05</a>
+
+昨天我也刚让灰雨转 刺客，第一次进战斗 听到这个 阿萨辛 实在叫的太难听了，因为当时我正在打一个支线不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大冢正经配音还挺搞怪的，小老头设计本来又是萌物，其实还挺有看头的
+
+这种肯定是音监配音的时候刻意要求的，结果出来成了喜剧效果了
+
+*****
+
+####  operatbig  
+##### 2548#       发表于 2024-10-16 11:28
+
+ 本帖最后由 operatbig 于 2024-10-16 11:29 编辑 
+
+你们都不用商人么？砸币攻击伤害稳定还能补刀为队友省蓝，拿到回蓝衣服后加上迷宫捡的道具足够打穿了，不过商人到第四个迷宫就乏力了。不过我玩的normal就是了。
+
+*****
+
+####  katern  
+##### 2549#       发表于 2024-10-16 11:28
+
+游戏时间35h已经打完水都了，我感觉没有60h
+
+*****
+
+####  星野航  
+##### 2550#       发表于 2024-10-16 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66463190&amp;ptid=2140224" target="_blank">斯托雷加 发表于 2024-10-16 12:16</a>
+
+求问一下，这个游戏有没有类似于p5r大神那样只看剧情的打法，我本人肯定是高难度开荒，但是我想安利下我女 ...</blockquote>
+全能走起就行，军师法师召唤应有尽有
+
+后期把尤法拉满可以一直什么湿婆大苍蝇轮着来，顺便给玩过p的玩家一点代入感
+
+
+*****
+
+####  SuNR1sE364  
+##### 2551#       发表于 2024-10-16 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66463190&amp;ptid=2140224" target="_blank">斯托雷加 发表于 2024-10-16 11:16</a>
+求问一下，这个游戏有没有类似于p5r大神那样只看剧情的打法，我本人肯定是高难度开荒，但是我想安利下我女 ...</blockquote>
+直接最低难度呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  katern  
+##### 2552#       发表于 2024-10-16 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66463330&amp;ptid=2140224" target="_blank">operatbig 发表于 2024-10-16 11:28</a>
+
+你们都不用商人么？砸币攻击伤害稳定还能补刀为队友省蓝，拿到回蓝衣服后加上迷宫捡的道具足够打穿了，不过 ...</blockquote>
+只有刷怪的时候用商人，中后期战斗不好用了，而且高级职业解锁太晚
+
+不过这游戏队友太强，hard难度主角想怎么玩都行
+
+*****
+
+####  星野航  
+##### 2553#       发表于 2024-10-16 11:33
+
+换皮这个我也想吐槽，这可是做了8年的玩意，就算再怎么打磨，故事里的怪大概就
+
+狗换皮，蝴蝶蜜蜂换皮，史莱姆三色，沙虫两色，牛头人三色，鸡蛇三色，巫妖三色，骷髅若干，蝎师两种，奇美拉两种，龙四种
+
+还有剩下的人类设计还比较有点意思，结果人类也复用若干。换皮蛙人，换皮树妖
+
+给点别的东西呗桥野桂<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

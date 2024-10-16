@@ -166,3 +166,13 @@
 
 认真的吗<img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DRAGONBLEAPIECE  
+##### 69#       发表于 2024-10-16 22:54
+
+战斗中掉线
+
+再进去后直接啥都做不了卡死<img src="https://static.saraba1st.com/image/smiley/face/53.gif" referrerpolicy="no-referrer">
+

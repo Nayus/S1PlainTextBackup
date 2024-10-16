@@ -2094,3 +2094,30 @@ Go back to China对自己说没有任何问题，
 
 高华是自己语言水平底下，分不清表达对象，该嘲笑的是他们自己。
 
+
+*****
+
+####  阿菠萝13  
+##### 181#       发表于 2024-10-16 08:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66459403&amp;ptid=2203187" target="_blank">larry1 发表于 2024-10-15 20:58</a>
+
+对象不一样，表达的意思也不一样。
+
+Go back to China对自己说没有任何问题，
+
+只有对别人说的时候才有滚回中 ...</blockquote>
+问题是祈使句一般不会对自己说啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+把祈使句里省略的主语补齐的话，这话就等价于You should go back to China，就很迷惑
+
+前面有人问正确的口号怎么喊，我认为可以把谓语去掉，那就只是短语而不成句子了
+
+有款游戏叫《去月球》，看看人家怎么取名的
+
+或者用完整的祈使句喊口号也不是不行，只是句子有点长，建议可以分AB两组交替喊
+
+A：Take me home
+
+B：Back to China
+

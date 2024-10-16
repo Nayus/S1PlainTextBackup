@@ -297,3 +297,11 @@ ALL IN王哈 无事发生 现在就突出一个后悔 能退我石头吗</blockq
 抽了10w友情点才发现白野up友情池在隔壁</blockquote>
 我也……草
 
+
+*****
+
+####  希望之花  
+##### 14956#       发表于 2024-10-16 20:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

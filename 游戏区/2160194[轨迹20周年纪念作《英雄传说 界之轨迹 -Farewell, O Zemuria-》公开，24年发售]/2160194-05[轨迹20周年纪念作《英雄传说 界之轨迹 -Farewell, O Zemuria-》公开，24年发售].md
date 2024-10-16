@@ -7026,3 +7026,20 @@ staff里一定有人看过别当哥的温泉回
 
 开了个投票帖，可以去打打分说说个人评价<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  flxgundam  
+##### 6584#       发表于 2024-10-16 21:58
+
+<img src="https://p.sda1.dev/19/caccbe61893810ab9629ed890c129fca/CMP_20241016215754039.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/a6c5f32e74fc6549910341f8fa03d2ad/CMP_20241016215754121.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jacket  
+##### 6585#       发表于 2024-10-16 22:03
+
+刚打boss出现一种情况，后备人员靠着援助攻击拿了单场mvp，比那些用魔法打出几十万伤害的贡献值都高。
+

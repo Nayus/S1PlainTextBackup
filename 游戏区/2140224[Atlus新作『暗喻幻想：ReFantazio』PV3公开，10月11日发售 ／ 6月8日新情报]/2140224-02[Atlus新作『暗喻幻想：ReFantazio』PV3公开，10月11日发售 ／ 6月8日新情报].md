@@ -11335,3 +11335,14 @@ HARD里面 商人初级的砸钱优势也之后 是万能属性和高暴击了 �
 这牛头人小怪真有点司马，打到第三章支线迷宫，正清小怪呢，隔老**远一个冲锋给我打进战斗，开局拍个buff随 ...</blockquote>
 这司马 牛头人 使我们现在遇到最恶心的怪物了 血厚攻高 会自己上BUFF 会蓄力 有单体高伤 也有群体AOE 秒单 秒群都初生 ，小丑DEBUFF和他自己上BUFF来回拉扯
 
+
+*****
+
+####  忘却旋律  
+##### 2563#       发表于 2024-10-16 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66463514&amp;ptid=2140224" target="_blank">saverok 发表于 2024-10-16 11:44</a>
+
+女角色各有各的不行 老板娘和粉毛两个能看的还不是队友 玩你吗</blockquote>
+商人大姐姐  兽人老板娘，粉毛最好看的3个女角色全部不能入队 打你吗，P5我的怨念是123
+

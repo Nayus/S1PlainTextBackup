@@ -5067,3 +5067,68 @@ ESA自己和中国还有一些航天合作
 
 近地轨道再牛逼最多不就是halo里的mac炮或者星际迷航里的行星护盾了, 不还是困死在地球上
 
+
+*****
+
+####  commcody  
+##### 516#         楼主| 发表于 2024-10-16 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66460414&amp;ptid=2190881" target="_blank">无面 发表于 2024-10-15 23:11</a>
+
+星舰打深空还是不行吧。未来新格伦和ula还是有蛮多生意的。
+
+说到军事用途，它用来打星链就够军事用途了， ...</blockquote>
+星舰核心技术是快速复用和在轨加注。达成这两点，就好像开车有了加油站，想开到哪里都不再是个问题。
+
+
+*****
+
+####  commcody  
+##### 517#         楼主| 发表于 2024-10-16 12:03
+
+ 本帖最后由 commcody 于 2024-10-16 12:05 编辑 
+
+B12已经从发射台拆下运回了Mega Bay 1。
+
+编号314的猛禽2发动机上还画了一个Pie。
+
+<img src="https://img.saraba1st.com/forum/202410/16/120245ja59oagp2zp85rug.jpg" referrerpolicy="no-referrer">
+
+<strong>GZ8VLpUXAAA8Mmi.jpg</strong> (487.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-16 12:02 上传
+
+<img src="https://img.saraba1st.com/forum/202410/16/120245ksktrnkfq8tnlzc2.jpg" referrerpolicy="no-referrer">
+
+<strong>GZ9BLUcWkAAzh8y.jpg</strong> (557.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-16 12:02 上传
+
+<img src="https://img.saraba1st.com/forum/202410/16/120535vjwe3qvvkjy3zyz1.jpg" referrerpolicy="no-referrer">
+
+<strong>GZ-iQBdXkAAPS1W.jpg</strong> (275.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-16 12:05 上传
+
+<img src="https://img.saraba1st.com/forum/202410/16/120245tel11qcclz8t8l82.jpg" referrerpolicy="no-referrer">
+
+<strong>GZ9KI50XYAAdqxR.jpg</strong> (464.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-16 12:02 上传
+
+<img src="https://img.saraba1st.com/forum/202410/16/120245yv21hvy44hhxmctp.jpg" referrerpolicy="no-referrer">
+
+<strong>GZ9JrTjXoAAWvI7.jpg</strong> (522.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-16 12:02 上传
+

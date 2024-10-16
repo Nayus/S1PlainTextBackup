@@ -11312,3 +11312,26 @@ Normal刚打完第四个城市主线迷宫也有40小时了，四五十小时通
 
 不爽的是二周目可继承的也太少了，能力数值不继承、最终形态阿极态也得走剧情解锁、车上加的HPMP不继承、没有二周目一路碾过去的爽快感。
 
+
+*****
+
+####  忘却旋律  
+##### 2561#       发表于 2024-10-16 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66463330&amp;ptid=2140224" target="_blank">operatbig 发表于 2024-10-16 11:28</a>
+
+你们都不用商人么？砸币攻击伤害稳定还能补刀为队友省蓝，拿到回蓝衣服后加上迷宫捡的道具足够打穿了，不过 ...</blockquote>
+HARD里面 商人初级的砸钱优势也之后 是万能属性和高暴击了 伤害其实不是太高
+
+主要是 地图战斗刷低级怪 刷钱 能刷个爽
+
+*****
+
+####  忘却旋律  
+##### 2562#       发表于 2024-10-16 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66463508&amp;ptid=2140224" target="_blank">半江瑟瑟半江红 发表于 2024-10-16 11:44</a>
+
+这牛头人小怪真有点司马，打到第三章支线迷宫，正清小怪呢，隔老**远一个冲锋给我打进战斗，开局拍个buff随 ...</blockquote>
+这司马 牛头人 使我们现在遇到最恶心的怪物了 血厚攻高 会自己上BUFF 会蓄力 有单体高伤 也有群体AOE 秒单 秒群都初生 ，小丑DEBUFF和他自己上BUFF来回拉扯
+

@@ -2202,3 +2202,11 @@ G....Give me back china?<img src="https://static.saraba1st.com/image/smiley/face
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  yth329  
+##### 189#       发表于 2024-10-16 15:42
+
+为啥这么应激啊，一群人站在一起喊go back to XXX 怎么想也联想不到好的地方去啊，不会下次遇到老外这么说你还笑着回应吧...
+

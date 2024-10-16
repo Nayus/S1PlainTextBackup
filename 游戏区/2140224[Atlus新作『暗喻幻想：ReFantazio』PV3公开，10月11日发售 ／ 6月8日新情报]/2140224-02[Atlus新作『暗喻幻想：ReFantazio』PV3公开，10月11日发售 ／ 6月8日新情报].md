@@ -11670,3 +11670,16 @@ UI字体极为抽象，本来敌人就看不清了，冲刺时候还有那一条
 霍肯伯格这造型 我原版买的是是PS5的 普通版，打了几个销售  这双开门 我实在开看不下去了，去单 ...</blockquote>
 感谢排雷，本来打算买DLC的，衣服只有迷宫生效，那我就忍了吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  忘却旋律  
+##### 2592#       发表于 2024-10-16 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66465299&amp;ptid=2140224" target="_blank">conanoysq 发表于 2024-10-16 15:29</a>
+
+感谢排雷，本来打算买DLC的，衣服只有迷宫生效，那我就忍了吧</blockquote>
+花钱点吧 这双开门 实在看不下去了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">）
+
+还好当时忍住了 没多买P3和P4的DLC
+

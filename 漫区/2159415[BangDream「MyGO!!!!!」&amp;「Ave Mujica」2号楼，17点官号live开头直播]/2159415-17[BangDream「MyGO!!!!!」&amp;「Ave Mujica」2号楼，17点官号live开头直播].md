@@ -13581,3 +13581,18 @@ https://bang-dream.com/discographies/3846 ...</blockquote>
 
 2024-10-16 02:10 上传
 
+
+*****
+
+####  前方暴雨预警  
+##### 24839#       发表于 2024-10-16 15:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66461128&amp;ptid=2159415" target="_blank">NODY 发表于 2024-10-16 02:10</a>
+
+看到这个同人有了个猜想，睦那个对话的对象会不会就是这个经常抱着不离手的吉他？
+
+@bpdne</blockquote>
+在多重人格什么的对比之下，这个猜想居然都显得有点邦了
+
+下一代吉他店老板既视感
+

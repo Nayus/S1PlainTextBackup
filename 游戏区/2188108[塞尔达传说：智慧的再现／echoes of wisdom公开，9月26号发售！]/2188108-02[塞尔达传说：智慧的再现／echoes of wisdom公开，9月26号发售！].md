@@ -1952,3 +1952,13 @@ document.getElementById('flv_ALj').innerHTML=("");
 
 现在可以去看看速通表演了
 
+
+*****
+
+####  jackyhuang  
+##### 1657#       发表于 2024-10-16 15:43
+
+【【智慧的再现】尝试不使用飞行道具通过火山滑翔挑战（困难）-哔哩哔哩】 https://b23.tv/F6jvKea
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

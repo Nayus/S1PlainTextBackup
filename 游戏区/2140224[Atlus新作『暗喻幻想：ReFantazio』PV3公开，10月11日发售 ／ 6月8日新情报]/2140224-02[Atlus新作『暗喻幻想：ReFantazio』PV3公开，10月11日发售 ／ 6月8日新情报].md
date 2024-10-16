@@ -11575,3 +11575,11 @@ UI字体极为抽象，本来敌人就看不清了，冲刺时候还有那一条
 
 这种东西确实看耐受了，说白了很多问题就是引擎问题，加强版最好改一改<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pwzzy  
+##### 2582#       发表于 2024-10-16 14:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">这过场动画2d3d来回切换实在是太难绷了，感觉三个小时玩下来能看3-4种不同感觉的美术风格，这明显就是项目管理爆炸了吧
+

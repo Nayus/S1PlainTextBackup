@@ -12316,3 +12316,11 @@ boss还一直降攻，血又厚的一笔，我感觉正常晴天来打都很难�
 
 感觉路易就是个套着格里菲斯皮的大西王<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  石中剑二  
+##### 2653#       发表于 2024-10-17 03:02
+
+hard难度打boss总是要死人吃不到经验值有点不爽
+

@@ -156,3 +156,13 @@
 
 游戏其实比想象中好玩，但读取太慢，服务器还会死机。为啥不当单人游戏卖，真的因为不赚钱<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DRAGONBLEAPIECE  
+##### 68#       发表于 2024-10-16 22:27
+
+12000日币的石头只能30抽
+
+认真的吗<img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
+

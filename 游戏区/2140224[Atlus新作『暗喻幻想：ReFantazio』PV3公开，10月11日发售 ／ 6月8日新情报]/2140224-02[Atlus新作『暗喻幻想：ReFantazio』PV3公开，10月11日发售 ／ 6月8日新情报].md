@@ -11777,3 +11777,23 @@ UI字体极为抽象，本来敌人就看不清了，冲刺时候还有那一条
 
 消耗品里的面具有什么用？我看也不能装备？是在哪里合成吗？
 
+
+*****
+
+####  windtrack  
+##### 2603#       发表于 2024-10-16 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66466695&amp;ptid=2140224" target="_blank">陆久舟 发表于 2024-10-16 18:15</a>
+
+消耗品里的面具有什么用？我看也不能装备？是在哪里合成吗？</blockquote>
+解锁歌姬coop后书斋合成歌姬职业专用装备
+
+*****
+
+####  陆久舟  
+##### 2604#       发表于 2024-10-16 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66466704&amp;ptid=2140224" target="_blank">windtrack 发表于 2024-10-16 18:16</a>
+解锁歌姬coop后书斋合成歌姬职业专用装备</blockquote>
+去书斋啊，除了解锁coop基本不去，怪不得没找到
+

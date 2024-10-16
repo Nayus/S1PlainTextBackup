@@ -11247,3 +11247,42 @@ Normal刚打完第四个城市主线迷宫也有40小时了，四五十小时通
 
 给点别的东西呗桥野桂<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SuNR1sE364  
+##### 2554#       发表于 2024-10-16 11:34
+
+三龙之后的隐藏boss也是个没物理抗性的主<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">完全没有任何难度
+
+*****
+
+####  windtrack  
+##### 2555#       发表于 2024-10-16 11:34
+
+商人就是前期刷钱和超后期打BOSS上BUFF用
+
+中期比较乏力
+
+*****
+
+####  focus  
+##### 2556#       发表于 2024-10-16 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66463361&amp;ptid=2140224" target="_blank">katern 发表于 2024-10-16 11:31</a>
+
+只有刷怪的时候用商人，中后期战斗不好用了，而且高级职业解锁太晚
+
+不过这游戏队友太强，hard难度主角想 ...</blockquote>
+后期也好用，大亨有个3倍钱3倍伤害的武器，再配一个暴击2倍伤害首饰，6倍伤害的万能特大你闹呢
+
+*****
+
+####  星野航  
+##### 2557#       发表于 2024-10-16 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66463399&amp;ptid=2140224" target="_blank">SuNR1sE364 发表于 2024-10-16 12:34</a>
+
+三龙之后的隐藏boss也是个没物理抗性的主完全没有任何难度</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">atlus最菜隐藏绝对有他一个位置，压迫力完全不够强啊
+

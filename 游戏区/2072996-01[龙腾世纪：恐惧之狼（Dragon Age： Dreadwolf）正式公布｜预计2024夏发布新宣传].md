@@ -212,3 +212,25 @@ DAO的玩家看到博德之门3篝火营地系统时还是百感交集，甚至�
 
 没有keep真的是给fanbase一记重拳了，明明剧情是衔接的
 
+
+*****
+
+####  亚瑟摩根  
+##### 633#       发表于 2024-10-16 15:21
+
+<img src="https://img.saraba1st.com/forum/202410/16/151956rpkoher5edrbbp8i.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (26.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-16 15:19 上传
+
+龙腾这个数据不比首日1M的jrpg 排名要好看？
+
+我感觉还是等media再下结论
+
+尤其现在还是挺多人看分下菜
+
+比如SH2 RE，我朋友看分出来才买的
+

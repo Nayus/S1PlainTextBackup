@@ -177,3 +177,14 @@ DAI是连民间汉化都不到位。
 什么乱七八糟的，怎么连游戏汉化都没有都来了。盗版时代都有汉化组的，也就DAI这代在2014年这个时间点，好 ...</blockquote>
 DAO的玩家看到博德之门3篝火营地系统时还是百感交集，甚至狗子都比DAO那只眉清目秀了很多
 
+
+*****
+
+####  Hidewhite  
+##### 629#       发表于 2024-10-16 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66463327&amp;ptid=2072996" target="_blank">风烛尘香 发表于 2024-10-16 11:27</a>
+
+DAO的玩家看到博德之门3篝火营地系统时还是百感交集，甚至狗子都比DAO那只眉清目秀了很多 ...</blockquote>
+营地地图是真让我惊讶，博德之门3居然把不同地区的营地都做出来了。一般这种程度的繁琐细节都是玩家MOD才会考虑到的
+

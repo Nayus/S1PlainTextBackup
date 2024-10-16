@@ -56,3 +56,50 @@ ALL IN王哈 无事发生 现在就突出一个后悔 能退我石头吗</blockq
 
 新活动这标题，果然是糖果蔓藤吗？看样子是把2.6的马甲也缝进去了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 14929#       发表于 2024-10-16 18:29
+
+红a怎么还能强化。。。
+
+*****
+
+####  GuDaZi  
+##### 14930#       发表于 2024-10-16 18:29
+
+酋长被强化了。平衡被破坏了，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 14931#       发表于 2024-10-16 18:30
+
+毫无意外。。。。。。的新5星
+
+*****
+
+####  reidel  
+##### 14932#       发表于 2024-10-16 18:32
+
+红A感觉喜提30np了
+
+*****
+
+####  reidel  
+##### 14933#       发表于 2024-10-16 18:33
+
+不要啊，又要抽红A
+
+
+*****
+
+####  TheLoof  
+##### 14934#       发表于 2024-10-16 18:36
+
+太省钱了
+
+活动后估计能重新回到300+石
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

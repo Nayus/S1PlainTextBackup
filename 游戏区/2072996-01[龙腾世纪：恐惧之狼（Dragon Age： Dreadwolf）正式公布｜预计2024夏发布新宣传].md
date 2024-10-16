@@ -304,3 +304,14 @@ da的女玩家有一半，就算被男玩家摒弃了，也不至于死的和con
 
 把龙腾当gal玩儿的人真不少
 
+
+*****
+
+####  PROCAINUM  
+##### 639#       发表于 2024-10-16 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66466397&amp;ptid=2072996" target="_blank">mimighost 发表于 2024-10-16 17:38</a>
+
+https://www.reddit.com/r/dragonage/comments/5p4jd6/no_spoilersa_question_to_women_playing_dragon_a ...</blockquote>
+红迪引用的原博文看不到，不知道该博文数据来源是啥。但我记得当年DAI发售一段时间后生软自己公布过数据，使用男女主角开始游戏的比例为6:4，实际玩家性别比例估计很难判断
+

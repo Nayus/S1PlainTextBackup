@@ -262,3 +262,38 @@ ALL IN王哈 无事发生 现在就突出一个后悔 能退我石头吗</blockq
 
 本来db已经被掏空石头了。想着一发随缘结果直接被吓到了，这么追着来我有点害怕。
 
+
+*****
+
+####  xiongxingyu  
+##### 14952#       发表于 2024-10-16 19:57
+
+抽了200多发才出，又歪了个脚后跟<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  乾理央  
+##### 14953#       发表于 2024-10-16 19:59
+
+抽了10w友情点才发现白野up友情池在隔壁<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  希望之花  
+##### 14954#       发表于 2024-10-16 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66466898&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2024-10-16 18:42</a>
+
+放PV时卡了，完全不知道美海激动个啥</blockquote>
+因为听出来声音是wug时代一起打拼过来的好友
+
+*****
+
+####  angelooo  
+##### 14955#       发表于 2024-10-16 20:03
+
+<blockquote>乾理央 发表于 2024-10-16 19:59
+抽了10w友情点才发现白野up友情池在隔壁</blockquote>
+我也……草
+

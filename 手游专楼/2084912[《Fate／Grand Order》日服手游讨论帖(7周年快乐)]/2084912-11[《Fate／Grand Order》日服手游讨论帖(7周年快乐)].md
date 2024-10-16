@@ -305,3 +305,25 @@ ALL IN王哈 无事发生 现在就突出一个后悔 能退我石头吗</blockq
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xiongxingyu  
+##### 14957#       发表于 2024-10-16 20:19
+
+等等，这个糖果藤曼的二技能是“除自身之外”而不是"除糖果蔓藤之外”，双蔓藤两个人都可以原地起爆<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">而且因为是1技能是加给对面的，等同与全体50绿放，双蔓藤就是100绿放，两个里面一个可以二面交3技能解决大怪，一个留给3面，30的弱体成功up可以完美处理对魔力（只有女神神核能抗）。
+
+我收回前言，蔓藤酱，你才是新时代的绿拐，你才是拯救绿卡的英雄<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 14958#       发表于 2024-10-16 20:24
+
+五张卡面四套宝具，高额绿耐降低，大额充能，除兽阶外全员特攻，除非为了给艾蕾上场机会弄混装extra本，数值和机制都很强啊。
+
+接下来只要樱系再出个绿拐就更舒服了。
+
+（间桐樱是紫发，我有一计，命所有紫发从者为sakura颜...）
+

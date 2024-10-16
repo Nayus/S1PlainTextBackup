@@ -5043,3 +5043,19 @@ ESA自己和中国还有一些航天合作
 
 在40小时内，4个发射场，空X完成了4次成功的发射。包括一次成功的星舰试射，一次重猎深空任务，两次F9星链任务。 全年发射数来到101次。
 
+
+*****
+
+####  鲜血秋叶  
+##### 514#       发表于 2024-10-16 07:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66460414&amp;ptid=2190881" target="_blank">无面 发表于 2024-10-15 23:11</a>
+星舰打深空还是不行吧。未来新格伦和ula还是有蛮多生意的。
+
+说到军事用途，它用来打星链就够军事用途了， ...</blockquote>
+重型猎鹰打深空也不行，但是不也打了欧罗巴快船
+
+要这样想星舰虽然二级架构而且都是甲烷机比冲还一般，但是送上轨道的载荷大啊，你把载荷当三级不就行了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

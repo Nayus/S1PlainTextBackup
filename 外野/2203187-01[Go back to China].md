@@ -2188,3 +2188,17 @@ G....Give me back china?<img src="https://static.saraba1st.com/image/smiley/face
 
 高华集体小高潮
 
+
+*****
+
+####  梁山伯与猪硬来  
+##### 188#       发表于 2024-10-16 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66453656&amp;ptid=2203187" target="_blank">pigsy 发表于 2024-10-15 09:40</a>
+就是个文化差异导致的乌龙了嘛，有什么好觉得“丢脸”的？
+
+日本耻文化上身了？</blockquote>
+这是字面意思上的滚回中国<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

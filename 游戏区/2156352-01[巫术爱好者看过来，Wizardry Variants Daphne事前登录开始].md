@@ -176,3 +176,13 @@
 
 再进去后直接啥都做不了卡死<img src="https://static.saraba1st.com/image/smiley/face/53.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SPRINGSOUSHI  
+##### 70#       发表于 2024-10-16 23:24
+
+宣传物料很有意思，但看了好几个视频都没搞懂这是什么战斗机制的，旧作好像是回合制，现在改成动作了？
+
+有没有玩过的大佬推荐一下单机版本，这个平面画风挺喜欢的，3D感觉没有也罢
+

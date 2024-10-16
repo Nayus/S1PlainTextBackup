@@ -11922,3 +11922,31 @@ p5卖得好做一个p5 vs 我想做点别的 的回合
 假面舞者太幽默了吧，不戴面具就4个技能，戴了面具才和普通阿基态一样？然后还被锁了饰品栏？什么鬼啊，我 ...</blockquote>
 群体蓄力一个技能就够了，高伤害暴力队必带
 
+
+*****
+
+####  SuNR1sE364  
+##### 2616#       发表于 2024-10-16 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66467184&amp;ptid=2140224" target="_blank">Khellendros 发表于 2024-10-16 19:27</a>
+假面舞者太幽默了吧，不戴面具就4个技能，戴了面具才和普通阿基态一样？然后还被锁了饰品栏？什么鬼啊，我 ...</blockquote>
+假面舞者有全体蓄力，在这个力狗无敌的游戏里就算把别的技能全扣掉它也是t0辅助<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SuNR1sE364  
+##### 2617#       发表于 2024-10-16 20:44
+
+ 本帖最后由 SuNR1sE364 于 2024-10-16 20:45 编辑 
+
+打完了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  windtrack  
+##### 2618#       发表于 2024-10-16 20:47
+
+一周目HARD没跳剧情65小时通关，估算应该是60小时左右（试玩版刷了好久），100小时纯扯淡了
+
+一句话点评，包括剧情系统在内所有的东西，就是个八年便秘产物过时游戏，
+

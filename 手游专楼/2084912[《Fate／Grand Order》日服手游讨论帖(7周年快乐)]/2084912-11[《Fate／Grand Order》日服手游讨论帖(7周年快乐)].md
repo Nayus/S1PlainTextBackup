@@ -395,3 +395,17 @@ ALL IN王哈 无事发生 现在就突出一个后悔 能退我石头吗</blockq
 
 （虽然但是，救救EX助战位吧
 
+
+*****
+
+####  Jamaisvu  
+##### 14966#       发表于 2024-10-16 20:49
+
+<blockquote>angelooo 发表于 2024-10-16 20:43
+但因为是夏日，双藤蔓的第三人可以用水铃鹿来拐
+
+这卡好像越来越离谱了
+
+（虽然但是，救救EX助战位吧 ...</blockquote>
+等把人理攻破/说服，就给extra一阶一个名分<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+

@@ -11620,3 +11620,20 @@ UI字体极为抽象，本来敌人就看不清了，冲刺时候还有那一条
 
 去看看戏剧，泡温泉过就完了
 
+
+*****
+
+####  Whalouse  
+##### 2587#       发表于 2024-10-16 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66464987&amp;ptid=2140224" target="_blank">星野航 发表于 2024-10-16 14:51</a>
+那几天就是给你做得盈余，防止前期推图时间耗久了最后没办法满，如果你前面推图都是一天搞定最后肯定会剩 ...</blockquote>
+我想吐槽的是没有一键跳过这个功能，我记得p5明明也是有的，这部怎么就抠掉了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">总不能是想强制让我听每一天开始的语音吧
+
+*****
+
+####  Whalouse  
+##### 2588#       发表于 2024-10-16 15:16
+
+最终日coop众发红包环节终于可以一次集齐了，省的我sl倒腾了
+

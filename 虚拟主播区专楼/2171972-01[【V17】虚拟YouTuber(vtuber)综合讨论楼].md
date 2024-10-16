@@ -444,3 +444,13 @@ Speciale势头最好的鳟鱼哥这就无限期休止了。。这一期真的太
 
 兰熊在关系性上也许还有点才能吧，不过也就这么一点了
 
+
+*****
+
+####  Harunoharu  
+##### 820#       发表于 2024-10-16 16:42
+
+没事，虹跨这几组人就没几个会跳舞的，vlt就算跳再烂也不会被艳压<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+话说下半年活动也是有够多的，全挤在一起了
+

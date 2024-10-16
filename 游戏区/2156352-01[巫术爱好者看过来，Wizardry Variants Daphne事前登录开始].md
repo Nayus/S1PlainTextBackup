@@ -238,3 +238,18 @@
 总能搞点问题出来
 虽然挺好玩的，但是经常卡住/报错/断联
 
+
+*****
+
+####  藤钢剑姬  
+##### 75#       发表于 2024-10-17 01:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66468563&amp;ptid=2156352" target="_blank">SPRINGSOUSHI 发表于 2024-10-16 23:24</a>
+宣传物料很有意思，但看了好几个视频都没搞懂这是什么战斗机制的，旧作好像是回合制，现在改成动作了？
+
+有 ...</blockquote>
+推荐一下《elminage》（错译为：冬宫）系列。PC上有高清英文版叫做《elminage original》，简称冬宫源。NDS版有汉化（但是汉化版有死机bug）
+elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样过于强调战斗，也不至于像早期巫术那样简陋到近乎只剩战斗。这一点在NDS汉化版的死机bug上就体现出来：汉化版在初始迷宫的第二层入口死机、一个水下迷宫全程死机。但是elminage的任务流程非常自由：游戏主线是收集散落的戒指。整个游戏流程完全由玩家自己决定推进方向。因此死机的迷宫完全可以跳过不打。实际上我玩elminage初代开荒全程只完整跑过3个迷宫。其他的迷宫都是拿完戒指就跑路的那种。
+
+—— 来自 HUAWEI MGA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

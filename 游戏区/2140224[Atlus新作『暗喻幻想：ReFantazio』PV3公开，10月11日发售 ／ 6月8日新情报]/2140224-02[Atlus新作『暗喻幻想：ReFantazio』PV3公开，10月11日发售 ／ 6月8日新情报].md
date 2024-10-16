@@ -12258,3 +12258,14 @@ boss还一直降攻，血又厚的一笔，我感觉正常晴天来打都很难�
 
 这塔算是最终迷宫前最好的练级圣地了
 
+
+*****
+
+####  莉可厨  
+##### 2647#       发表于 2024-10-17 01:19
+
+ 本帖最后由 莉可厨 于 2024-10-17 01:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66469079&amp;ptid=2140224" target="_blank">operatbig 发表于 2024-10-17 01:07</a>
+路易这角色最离谱的还是未拿到宝杖前的两次战斗是真的菜，导致他说的什么力量就是一切根本立不住，成了纯纯 ...</blockquote>
+勾阿皮吉老问题了，剧情里说要决斗结果是一堆人干一个<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">主角能用aibo的力量，反派都踏马是傻逼宁愿一打多。就主角这小身板真跟路易决斗脑浆都被打飞了
+

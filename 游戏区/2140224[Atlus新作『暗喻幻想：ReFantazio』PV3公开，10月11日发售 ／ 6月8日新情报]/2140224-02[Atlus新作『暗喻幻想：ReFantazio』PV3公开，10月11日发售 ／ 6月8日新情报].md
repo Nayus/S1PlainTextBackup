@@ -12151,3 +12151,30 @@ boss还一直降攻，血又厚的一笔，我感觉正常晴天来打都很难�
 
 boss还一直降攻，血又厚的一笔，我感觉正常晴天来打都很难，坏天气太坐牢了，最后拿攻击道具磨死了……有啥简单的打法吗
 
+
+*****
+
+####  onemoment  
+##### 2636#       发表于 2024-10-17 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66468828&amp;ptid=2140224" target="_blank">Khellendros 发表于 2024-10-17 00:14</a>
+
+这盲信之塔数值好高，精英怪还人均会吼一嗓子加4豆，吐了。而且一路上存档点（道具）很少，还得规划一下什 ...</blockquote>
+全员后排<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  空气先生  
+##### 2637#       发表于 2024-10-17 00:24
+
+<blockquote>Khellendros 发表于 2024-10-17 00:14
+这盲信之塔数值好高，精英怪还人均会吼一嗓子加4豆，吐了。而且一路上存档点（道具）很少，还得规划一下什 ...</blockquote>
+丢攻击道具就是最简单的打法（）
+
+*****
+
+####  兰开夏  
+##### 2638#       发表于 2024-10-17 00:25
+
+首周100w，首月200w，首年300. lifetime打折5mn。
+

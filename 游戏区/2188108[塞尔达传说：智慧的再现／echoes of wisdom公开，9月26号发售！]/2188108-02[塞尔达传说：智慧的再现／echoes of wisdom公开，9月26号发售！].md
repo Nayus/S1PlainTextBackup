@@ -1962,3 +1962,11 @@ document.getElementById('flv_ALj').innerHTML=("");
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
 
+
+*****
+
+####  hersi  
+##### 1658#       发表于 2024-10-16 15:56
+
+真的牛逼，一个快40年历史的系列还能玩出新花样来
+

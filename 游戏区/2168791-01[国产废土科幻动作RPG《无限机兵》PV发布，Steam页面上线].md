@@ -960,3 +960,11 @@ demo这个隐藏boss粪度简直逆天
 就像锈蚀对剑的这个战技，试用了几把就把挑战boss在50秒内速杀了，而其他武器打起来就麻烦很多。
 [www.bilibili.com/video/BV1JjmKYVEk6](http://www.bilibili.com/video/BV1JjmKYVEk6)
 
+
+*****
+
+####  frankCC  
+##### 100#       发表于 2024-10-17 05:36
+
+吐槽魂like的boss设计感觉已经是定式了。自从环之后，还拿魂boss设计来要求现在魂like的boss有点old school了，现在没几个神经病boss都不是魂like了。甚至老贼自己的boss都是病情最重的那个。
+

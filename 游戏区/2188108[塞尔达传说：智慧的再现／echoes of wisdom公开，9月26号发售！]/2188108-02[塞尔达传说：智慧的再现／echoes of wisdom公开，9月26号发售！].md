@@ -1978,3 +1978,13 @@ document.getElementById('flv_ALj').innerHTML=("");
 
 现在还卡在短距离赛马 怎么都差一点<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  otakun  
+##### 1660#       发表于 2024-10-16 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66466194&amp;ptid=2188108" target="_blank">yohyoh4966 发表于 2024-10-16 17:16</a>
+现在还卡在短距离赛马 怎么都差一点</blockquote>
+跟自己和解吧，用怪物吹走障碍不可耻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，你控制的是智慧三角力量的持有者。
+

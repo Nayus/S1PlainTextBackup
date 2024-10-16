@@ -2376,3 +2376,42 @@ op分词这么少，星三后面剧情一定会弥补点吧（笑）
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  日野下花帆  
+##### 228#       发表于 2024-10-16 19:02
+
+扫书的时候意外发现一张当年星一的现场图片
+
+<img src="https://img.saraba1st.com/forum/202410/16/190252tkua2wn3aopw8uvn.png" referrerpolicy="no-referrer">
+
+<strong>bd90f2ae1e797587179c34ff4b87e7b4.png</strong> (200.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-16 19:02 上传
+
+*****
+
+####  csolfans  
+##### 229#       发表于 2024-10-16 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66467048&amp;ptid=2201887" target="_blank">日野下花帆 发表于 2024-10-16 19:02</a>
+扫书的时候意外发现一张当年星一的现场图片</blockquote>
+这张有点印象啊，出处是？
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  日野下花帆  
+##### 230#       发表于 2024-10-16 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66467060&amp;ptid=2201887" target="_blank">csolfans 发表于 2024-10-16 19:05</a>
+
+这张有点印象啊，出处是？
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 v3.0.0-alpha ...</blockquote>
+アニメーションの脚本術里面的
+

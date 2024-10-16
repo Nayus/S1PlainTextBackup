@@ -11845,3 +11845,14 @@ UI字体极为抽象，本来敌人就看不清了，冲刺时候还有那一条
 
 歌剧院这段真是看笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  windtrack  
+##### 2609#       发表于 2024-10-16 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66467184&amp;ptid=2140224" target="_blank">Khellendros 发表于 2024-10-16 19:27</a>
+
+假面舞者太幽默了吧，不戴面具就4个技能，戴了面具才和普通阿基态一样？然后还被锁了饰品栏？什么鬼啊，我 ...</blockquote>
+然而假面舞者有全体蓄力...
+

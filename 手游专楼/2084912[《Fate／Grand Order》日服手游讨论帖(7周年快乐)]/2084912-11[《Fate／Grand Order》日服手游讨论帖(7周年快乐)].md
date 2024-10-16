@@ -246,3 +246,19 @@ ALL IN王哈 无事发生 现在就突出一个后悔 能退我石头吗</blockq
 
 宝具差分倒是做足了
 
+
+*****
+
+####  yyzcacxg  
+##### 14951#       发表于 2024-10-16 19:52
+
+<img src="https://img.saraba1st.com/forum/202410/16/194702ohb1u4use0j400e7.jpg" referrerpolicy="no-referrer">
+
+<strong>CD22C7A462D5.jpg</strong> (359.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-16 19:47 上传
+
+本来db已经被掏空石头了。想着一发随缘结果直接被吓到了，这么追着来我有点害怕。
+

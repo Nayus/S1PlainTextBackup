@@ -315,3 +315,11 @@ da的女玩家有一半，就算被男玩家摒弃了，也不至于死的和con
 https://www.reddit.com/r/dragonage/comments/5p4jd6/no_spoilersa_question_to_women_playing_dragon_a ...</blockquote>
 红迪引用的原博文看不到，不知道该博文数据来源是啥。但我记得当年DAI发售一段时间后生软自己公布过数据，使用男女主角开始游戏的比例为6:4，实际玩家性别比例估计很难判断
 
+
+*****
+
+####  Edvinno  
+##### 640#       发表于 2024-10-16 18:39
+
+退一步就算这数据真的好了，从哪看出来女的就愿意接受，这作队友男的女的都很抱歉<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

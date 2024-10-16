@@ -2210,3 +2210,11 @@ G....Give me back china?<img src="https://static.saraba1st.com/image/smiley/face
 
 为啥这么应激啊，一群人站在一起喊go back to XXX 怎么想也联想不到好的地方去啊，不会下次遇到老外这么说你还笑着回应吧...
 
+
+*****
+
+####  电动大熊猫  
+##### 190#       发表于 2024-10-16 16:50
+
+这帖子是什么小学英语错题本
+

@@ -11070,3 +11070,18 @@ Normal刚打完第四个城市主线迷宫也有40小时了，四五十小时通
 Normal刚打完第四个城市主线迷宫也有40小时了，四五十小时通关有多少水分不用多说，毕竟现在是不感兴趣的剧 ...</blockquote>
 不好意思，只跳了某些不感兴趣的羁绊动画。
 
+
+*****
+
+####  fireadol  
+##### 2536#       发表于 2024-10-16 11:01
+
+目前第三个迷宫打了30小时，绝大部分时间在迷宫里刷，不是刷钱就是没蓝了切术士回蓝<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  operatbig  
+##### 2537#       发表于 2024-10-16 11:04
+
+只能说遇到卡关的时候开自动战斗看看ai怎么打能节省很多时间。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

@@ -276,3 +276,16 @@ da的女玩家有一半，就算被男玩家摒弃了，也不至于死的和con
 
 我反倒是觉得这个敌人比我想象的还要丑八怪，有点儿无法接受
 
+
+*****
+
+####  pygrads  
+##### 637#       发表于 2024-10-16 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66465651&amp;ptid=2072996" target="_blank">mimighost 发表于 2024-10-16 16:08</a>
+
+veilguard你说它爆死还太早
+
+da的女玩家有一半，就算被男玩家摒弃了，也不至于死的和concord一样难看</blockquote>
+占一半的数据是哪来的
+

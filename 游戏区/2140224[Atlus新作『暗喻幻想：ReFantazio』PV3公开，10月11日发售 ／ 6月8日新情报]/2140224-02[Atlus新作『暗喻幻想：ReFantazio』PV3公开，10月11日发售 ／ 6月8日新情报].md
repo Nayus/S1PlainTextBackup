@@ -10954,3 +10954,11 @@ P的升级太慢了，升满了打经验道具也不快，真的肝
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
 
+
+*****
+
+####  standci  
+##### 2523#       发表于 2024-10-16 09:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我自己普通难度打也不算很细致，现在8月12日41h，主要是刷阿基态然后偷偷道具什么的，然后路上行人有新对话也会唠两句，有些还会有小支线，所以我对30小时通关的就感到很惊讶
+

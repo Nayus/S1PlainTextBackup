@@ -2146,3 +2146,11 @@ B：Back to China
 
 —— 来自 Xiaomi 23116PN5BC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  つうかあ  
+##### 184#       发表于 2024-10-16 09:40
+
+给我回中国，是什么意思？
+

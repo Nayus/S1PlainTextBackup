@@ -7101,3 +7101,11 @@ staff里一定有人看过别当哥的温泉回
 
 通了，界轨天下第一<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jacket  
+##### 6592#       发表于 2024-10-17 02:28
+
+不开防御不开减伤技能的话boss还是会秒人的，只顾着输出大意了几次，不过这系列如今已经没有死亡惩罚了，终于可以摆脱一次不死的束缚。
+

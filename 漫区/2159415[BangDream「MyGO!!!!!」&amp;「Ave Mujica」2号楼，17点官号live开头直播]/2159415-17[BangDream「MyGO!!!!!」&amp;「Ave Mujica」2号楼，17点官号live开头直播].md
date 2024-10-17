@@ -14776,3 +14776,93 @@ PV真是挤牙膏。那个门不知道是谁家的。
 同步tv放送出漫画</blockquote>
 这种续作还能大爆的吗？吸引不到路人顶多粉丝圈内大爆
 
+
+*****
+
+####  Aendst  
+##### 24929#       发表于 2024-10-17 22:26
+
+疑似同一位置
+
+<img src="https://img.saraba1st.com/forum/202410/17/222631jmtuvbw1bwrb5ub1.jpg" referrerpolicy="no-referrer">
+
+<strong>20241017232609.jpg</strong> (24.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-17 22:26 上传
+
+<img src="https://img.saraba1st.com/forum/202410/17/222631u1pl4f6mfmt04hh4.jpg" referrerpolicy="no-referrer">
+
+<strong>20241017232541.jpg</strong> (7.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-17 22:26 上传
+
+*****
+
+####  星天观测  
+##### 24930#       发表于 2024-10-17 22:28
+
+1月2号，你鸡好像真有希望周年进手游了（虽然还是有点困难）
+
+*****
+
+####  akiomn  
+##### 24931#       发表于 2024-10-17 22:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉是全员爆爆爆，没点悲惨过去都不好意思加入鸡团
+这么一对比，mygo还真是多大点事
+
+*****
+
+####  苹果皮卡丘  
+##### 24932#       发表于 2024-10-17 22:30
+
+国服还有一年时间可以备战你团首活！
+
+
+*****
+
+####  skives10  
+##### 24933#       发表于 2024-10-17 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66476548&amp;ptid=2159415" target="_blank">dqtql 发表于 2024-10-17 22:25</a>
+这种续作还能大爆的吗？吸引不到路人顶多粉丝圈内大爆</blockquote>
+学习赛马娘2大卖十八万八
+
+*****
+
+####  玖羽  
+##### 24934#       发表于 2024-10-17 22:33
+
+五个人应该都是过去的经历
+
+祥子令和二年
+
+喵梦似乎比现在年轻，穿着廉价T恤，应该是刚开始直播
+
+睦被家里要求学演技？看到了不得了的事？
+
+海铃被原乐队背叛说成立？
+
+初华只要展现重力就好
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/230.gif" referrerpolicy="no-referrer"> 
+
+*****
+
+####  ydsbbt  
+##### 24935#       发表于 2024-10-17 22:34
+
+也许有对应吧，动画里有明显的这种动作的只有睦，祥子和素世的基本都被桌子挡住了
+
+<img src="https://img.saraba1st.com/forum/202410/17/223148o434h3p32pbp3391.jpg" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2024-10-17_22-30-45.jpg</strong> (55.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-17 22:31 上传
+

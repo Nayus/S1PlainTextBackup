@@ -13319,3 +13319,13 @@ Hard难度通关了，最满意的就是战斗系统，其他的感觉都挺一�
 
 全他妈在牢里蹲着一出来就要去救妹妹了太搞了
 
+
+*****
+
+####  拖鞋脚后跟  
+##### 2745#       发表于 2024-10-18 01:56
+
+给敌方上异常状态的成功率是不是跟等级差距挂钩啊？我就想用麻痹箭控一下牛头人，凹了快俩小时一次都没中过<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

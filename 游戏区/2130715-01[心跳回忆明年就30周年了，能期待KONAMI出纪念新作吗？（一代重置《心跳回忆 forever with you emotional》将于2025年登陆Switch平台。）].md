@@ -2985,3 +2985,15 @@ VHS版：[https://youtu.be/mX9Li4WEU0Y?si=uvvXgXVzhApXy45p](https://youtu.be/mX9
 
 2024-10-17 07:03 上传
 
+
+*****
+
+####  北一硝子  
+##### 240#       发表于 2024-10-17 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66218115&amp;ptid=2130715" target="_blank">snkcapcom 发表于 2024-9-16 09:40</a>
+预告一下
+
+未来还会有心跳2的ＮＳ版公开</blockquote>
+才看到，这瓜保熟吗？
+

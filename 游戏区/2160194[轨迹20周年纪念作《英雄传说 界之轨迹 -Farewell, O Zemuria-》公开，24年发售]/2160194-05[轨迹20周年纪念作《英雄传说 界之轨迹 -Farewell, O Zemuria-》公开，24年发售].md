@@ -7169,3 +7169,14 @@ staff里一定有人看过别当哥的温泉回
 
 强迫症表示战斗手册上不能有重试和战斗不能，带即死技能的boss连战+不能换装备的客座角色简直是噩梦<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无动于衷  
+##### 6599#       发表于 2024-10-17 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66462440&amp;ptid=2160194" target="_blank">樱桐 发表于 2024-10-16 10:08</a>
+
+刚有空开玩，刷羊的方法修复了之后还有啥比较快的刷资源方法么？</blockquote>
+刷各层的boss
+

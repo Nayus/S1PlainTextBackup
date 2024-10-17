@@ -1835,3 +1835,11 @@ Screenshot_20241010_133957.jpg
 
 充能补强前的人格池子来说流血之外除了沉沦和呼吸开局不星光拿四级饰品点数真有点搞笑的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  菟原手兒奈  
+##### 936#       发表于 2024-10-17 13:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">西格玛池70抽未出货，血奥池30抽未出货，本赛季好像还没有抽到过任何一个UP
+

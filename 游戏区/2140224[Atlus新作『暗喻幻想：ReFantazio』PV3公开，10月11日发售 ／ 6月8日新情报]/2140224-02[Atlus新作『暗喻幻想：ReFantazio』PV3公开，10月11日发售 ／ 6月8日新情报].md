@@ -12540,3 +12540,14 @@ hard难度打boss总是要死人吃不到经验值有点不爽
 进度到9月刚解咒，听说贵族bro最终阿基态有高级斩强化，是不是直接跃升唯一指定物理一哥了？我现在的档主角堆力运战士系拉满bro跑去当灵魂骇客/军师buff机，跟原型反着来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 感觉得提前做好转型准备
 
+
+*****
+
+####  windtrack  
+##### 2674#       发表于 2024-10-17 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66472360&amp;ptid=2140224" target="_blank">blz436 发表于 2024-10-17 12:51</a>
+
+进度到9月刚解咒，听说贵族bro最终阿基态有高级斩强化，是不是直接跃升唯一指定物理一哥了？我现在的档主角 ...</blockquote>
+物理一哥是狂战士，坏版本剑圣，但是其他技能比番长强，不过吃亏在加入太晚等级和练度跟不上
+

@@ -436,3 +436,18 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 我TM全队2~3级的升级啊，玩巫术系DRPG图啥啊？不就图住店看升级么！直接给我卡没了艹。
 
+
+*****
+
+####  elven119  
+##### 89#         楼主| 发表于 2024-10-18 07:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66477707&amp;ptid=2156352" target="_blank">Tring 发表于 2024-10-18 00:53</a>
+
+清空数据重下后继承，算是进去了。
+
+然而打了一大圈，去住店喜洋洋的等升级界面的时候，又又又又又TM的黑屏 ...</blockquote>
+2周目才会出
+
+第一个迷宫打完才算出新手村，因为涉及剧透不好说。
+

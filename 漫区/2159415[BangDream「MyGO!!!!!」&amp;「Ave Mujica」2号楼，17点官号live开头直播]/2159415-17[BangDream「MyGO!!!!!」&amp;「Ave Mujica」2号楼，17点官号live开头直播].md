@@ -15423,3 +15423,57 @@ pv欺诈这种东西骗的就是你这样的观众<img src="https://static.sarab
 
 隔壁那边有猜演技书是喵梦的，原因是喵梦设定有个目标艺能界出道，而且3rd喵梦也提到了想当舞台上的主角
 
+
+*****
+
+####  前方暴雨预警  
+##### 24993#       发表于 2024-10-18 00:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66477583&amp;ptid=2159415" target="_blank">NODY 发表于 2024-10-18 00:32</a>
+
+隔壁那边有猜演技书是喵梦的，原因是喵梦设定有个目标艺能界出道，而且3rd喵梦也提到了想当舞台上的主角 ...</blockquote>
+书柜这帧真要被猜成蒙太奇镜头了……
+
+但如果不是睦家的书柜，睦的相关信息是不是隐藏得太深了？
+
+*****
+
+####  玖羽  
+##### 24994#       发表于 2024-10-18 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66477583&amp;ptid=2159415" target="_blank">NODY 发表于 2024-10-18 00:32</a>
+
+隔壁那边有猜演技书是喵梦的，原因是喵梦设定有个目标艺能界出道，而且3rd喵梦也提到了想当舞台上的主角 ...</blockquote>
+我第一反应也以为是，但是这些书是老书，内容很专业，不像是喵梦会看的，她要看也是看一些面向年轻人的演技入门书
+
+实际上，如果不是家里自有的，我估计恐怕得跑一遍旧书店才能买齐这些书，若叶家藏书是最合理的解释，除非涉及现在还不知道的设定
+
+*****
+
+####  akiomn  
+##### 24995#       发表于 2024-10-18 00:39
+
+镜头应该都是鸡团成团前，祥子哭肯定是元和二年那次，第二个是幼年喵梦，睦应该和演员有关？初华是sumimi还在发展打拼时期？海玲不知道藏了啥能让她破防
+
+*****
+
+####  玖羽  
+##### 24996#       发表于 2024-10-18 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66477633&amp;ptid=2159415" target="_blank">akiomn 发表于 2024-10-18 00:39</a>
+
+镜头应该都是鸡团成团前，祥子哭肯定是元和二年那次，第二个是幼年喵梦，睦应该和演员有关？初华是sumimi还在发展打拼时期？海玲不知道藏了啥能让她破防</blockquote>
+海玲被原乐队背叛（暴论<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 24997#       发表于 2024-10-18 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66477579&amp;ptid=2159415" target="_blank">前方暴雨预警 发表于 2024-10-18 00:31</a>
+
+虽然应该可以在武藏野看，但日语听不懂啦
+
+最感慨应该掌握一门外语的一集.jpg ...</blockquote>
+今天開始學日文.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

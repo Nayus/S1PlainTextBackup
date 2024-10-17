@@ -13280,3 +13280,42 @@ Hard难度通关了，最满意的就是战斗系统，其他的感觉都挺一�
 怎么都是这种反派啊，好像没错，但是最大的错就是太激进了。被主角嘴一句你疑似有点太偏激了。 ...</blockquote>
 引用剧透内容也记得编辑一下<img src="https://static.saraba1st.com/image/smiley/animal2017/028.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  莉可厨  
+##### 2742#       发表于 2024-10-18 00:39
+
+ 本帖最后由 莉可厨 于 2024-10-18 00:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66476745&amp;ptid=2140224" target="_blank">八佾舞于潭 发表于 2024-10-17 22:48</a>
+
+感觉 50~70 后的日本创作者输出观念基本就是别因为不满就闹革命，维持现状更好。 ...</blockquote>
+主角上来当王说白了就是保了。换谁来当王元老院那几个畜生都会被清算，就主角不会动他们。这游戏结局真不能细想，一片欣欣向荣只能说太符合JRPG的童话本质了，最重大的种族问题暂时被生产力飙升给压制下去了。这下又得说本作的主角塑造实在太烂，看不出他有处理任何重大问题的能力，真遇上什么政变恐怕只有女商人和阿隆索能帮上忙<img src="https://static.saraba1st.com/image/smiley/face/187.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  modkingr  
+##### 2743#       发表于 2024-10-18 00:39
+
+上岛→被抓→被救→遇见哥哥→被托付救出妹妹
+
+这一段情绪也太急了吧，感觉都在塑造派里巴斯兄弟了，三眼兄妹的事情就提了一两句就快进到救人了
+
+*****
+
+####  modkingr  
+##### 2744#       发表于 2024-10-18 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66477630&amp;ptid=2140224" target="_blank">modkingr 发表于 2024-10-18 00:39</a>
+
+上岛→被抓→被救→遇见哥哥→被托付救出妹妹
+
+这一段情绪也太急了吧，感觉都在塑造派里巴斯兄弟了，三眼兄 ...</blockquote>
+感觉这一段至少缺了可以填充好几集的
+
+融入村民生活→逐渐培养和优法、艾登的感情→发现优法自愿活祭的事实→发生意外决定救人
+
+的剧情
+
+全他妈在牢里蹲着一出来就要去救妹妹了太搞了
+

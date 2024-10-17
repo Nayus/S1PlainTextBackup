@@ -352,3 +352,23 @@ ME系列薛姐的人数不超过30%
 退一步就算这数据真的好了，从哪看出来女的就愿意接受，这作队友男的女的都很抱歉 ...</blockquote>
 女玩家对于zzzq和男玩家的立场是反的
 
+
+*****
+
+####  Hidewhite  
+##### 644#       发表于 2024-10-17 08:38
+
+连最近的三代都是十年前的游戏了，如果还要填一代选项那就更久远了，太老粉了。这些东西对新玩家是没什么用的，而忠诚老粉数量从来都不会太多。我当年填三代的时候一些支线细节谁是谁都忘了，这么多年真要填keep我觉得都要去翻资料了。
+
+这东西就算能用，也不是用在一个十年出一个的续作上，搞不好人都换代了 
+
+
+*****
+
+####  Edvinno  
+##### 645#       发表于 2024-10-17 08:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66469398&amp;ptid=2072996" target="_blank">mimighost 发表于 2024-10-17 05:23</a>
+女玩家对于zzzq和男玩家的立场是反的</blockquote>
+最好还是别指望，这作队友除了黑人精灵连个适龄男青年都无，给妹子安利都说不出口，谁会因为支持zzzq去买首发全价游戏啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

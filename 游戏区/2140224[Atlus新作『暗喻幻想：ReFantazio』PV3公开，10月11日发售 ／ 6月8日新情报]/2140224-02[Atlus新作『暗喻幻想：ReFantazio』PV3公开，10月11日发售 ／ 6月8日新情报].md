@@ -12997,3 +12997,15 @@ Hard难度通关了，最满意的就是战斗系统，其他的感觉都挺一�
 
 要说膨胀，那mc80多的塞尔达算臭鱼烂虾么
 
+
+*****
+
+####  kuarwbwe  
+##### 2715#       发表于 2024-10-17 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66474498&amp;ptid=2140224" target="_blank">88ace88 发表于 2024-10-17 17:37</a>
+要说膨胀，那mc80多的塞尔达算臭鱼烂虾么</blockquote>
+单说今年的智杖，那是我今年年度。在我眼里这游戏86分就是2d游戏天生被媒体歧视，加上傻逼遗老接受不了大迷宫宝宝巴士化泄愤打低分的结果。对，我点艹的就是vgc的6分。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

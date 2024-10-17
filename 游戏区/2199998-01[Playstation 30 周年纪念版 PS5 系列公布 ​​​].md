@@ -593,3 +593,11 @@ PS4同期也有GTS和瑞奇与叮当啊，绝地潜兵一代也在这一时期�
 
 —— 来自 HUAWEI OCE-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  京浜東北線  
+##### 57#       发表于 2024-10-17 12:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer"> 想买个普通手柄，精英的还是算了
+

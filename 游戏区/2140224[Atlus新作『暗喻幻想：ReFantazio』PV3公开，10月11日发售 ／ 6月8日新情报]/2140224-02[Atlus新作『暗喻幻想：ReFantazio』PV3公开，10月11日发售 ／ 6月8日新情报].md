@@ -12438,3 +12438,28 @@ hard难度打boss总是要死人吃不到经验值有点不爽
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  忘却旋律  
+##### 2664#       发表于 2024-10-17 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66470817&amp;ptid=2140224" target="_blank">woshenc 发表于 2024-10-17 10:23</a>
+
+我在网上大概看了下，这敌我双方带npc在内，人设实在是爱不起来
+
+没有时髦值的a社，是堕落了啊 ...</blockquote>
+有句刚句 黑皮商人大姐姐  兽耳尾巴老板娘 顶中顶，某个粉毛女拳 也很不错 就是全不能入队
+
+*****
+
+####  忘却旋律  
+##### 2665#       发表于 2024-10-17 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66470963&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-10-17 10:36</a>
+
+当首发玩家纷纷通关时，我的盘终于到了，还好还在填别的游戏坑，没那么着急
+
+现在暗喻幻想白金攻略应该也差 ...</blockquote>
+唉 我本来还指望靠暗喻 混过10月 无缝接 DQ3HD2D的，目前看下 下周 搞不好周末 就能一周目结束了 ，我还带打的还是HARD...............
+

@@ -12463,3 +12463,11 @@ hard难度打boss总是要死人吃不到经验值有点不爽
 现在暗喻幻想白金攻略应该也差 ...</blockquote>
 唉 我本来还指望靠暗喻 混过10月 无缝接 DQ3HD2D的，目前看下 下周 搞不好周末 就能一周目结束了 ，我还带打的还是HARD...............
 
+
+*****
+
+####  卡拉德利姆  
+##### 2666#       发表于 2024-10-17 11:12
+
+好看的都不能入队只能说是故意的<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
+

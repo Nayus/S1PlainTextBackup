@@ -2686,3 +2686,17 @@ B7367 ​​​
 
 —— 来自 vivo V2309A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  kangkangsama  
+##### 1689#       发表于 2024-10-17 11:06
+
+<img src="https://img.saraba1st.com/forum/202410/17/110638csabz1dkctmau166.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6397.jpeg</strong> (143.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-17 11:06 上传
+

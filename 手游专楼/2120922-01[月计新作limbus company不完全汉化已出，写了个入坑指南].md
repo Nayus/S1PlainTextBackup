@@ -1913,3 +1913,22 @@ Screenshot_20241010_133957.jpg
 
 —— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  Jamaisvu  
+##### 942#       发表于 2024-10-18 01:21
+
+7—35观后感：
+
+<img src="https://img.saraba1st.com/forum/202410/18/011846npmm7m87mzmmoof4.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>e824b899a9014c08150b7a9994739c0d7bf4f4ec@f_auto.webp</strong> (64.7 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-10-18 01:18 上传
+
+去吧，“唐吉诃德”，你就用这个名号，去见识真正的收尾人吧。
+

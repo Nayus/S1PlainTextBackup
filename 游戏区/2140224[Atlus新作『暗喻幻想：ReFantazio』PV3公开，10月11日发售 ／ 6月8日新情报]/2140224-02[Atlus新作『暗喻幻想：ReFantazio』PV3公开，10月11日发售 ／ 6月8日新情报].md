@@ -12342,3 +12342,15 @@ hard难度打boss总是要死人吃不到经验值有点不爽
 
 （如果换引擎再把那上上上个时代的建模换换，可能就无脑入了
 
+
+*****
+
+####  kuarwbwe  
+##### 2656#       发表于 2024-10-17 09:14
+
+ 本帖最后由 kuarwbwe 于 2024-10-17 09:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66469664&amp;ptid=2140224" target="_blank">抽烟的猴 发表于 2024-10-17 08:19</a>
+
+考虑到暗喻是第三招牌会变成系列作，暗喻2你们会第一时间入吗</blockquote>
+先看P6和P6后一作，他要连着两作还这逼样我估计就直接把他家拉黑了。哪还有暗喻2的事。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

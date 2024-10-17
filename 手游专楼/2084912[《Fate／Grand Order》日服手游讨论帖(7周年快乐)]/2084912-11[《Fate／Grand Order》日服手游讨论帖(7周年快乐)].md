@@ -696,3 +696,42 @@ ex阶都比常规职阶多了。真不如再起一排
 由手机上传
 2024-10-17 12:30 上传
 
+
+*****
+
+####  Jamaisvu  
+##### 14993#       发表于 2024-10-17 12:43
+
+前情提要，糖果蔓藤的声优山下七海是田中美海当初在Wake up,girls!企划的队友，这么多年来一直不火，如今突然拿到了FGO饭票，欣慰地流下泪来：
+
+<img src="https://img.saraba1st.com/forum/202410/17/124233molppzlt5dyozdla.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241017_123939.jpg</strong> (161.67 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-10-17 12:42 上传
+
+叶良树触景生情，泪，抹了出来：
+
+<img src="https://img.saraba1st.com/forum/202410/17/124305g1kc3fioa3uoxfcu.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241017_124012.jpg</strong> (154.76 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-10-17 12:43 上传
+
+看来说哭就哭是制作人的一项必修课：
+
+<img src="https://img.saraba1st.com/forum/202410/17/124323cyutkz7wvuwo5m76.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241017_123634.jpg</strong> (293.51 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-10-17 12:43 上传
+

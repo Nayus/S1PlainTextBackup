@@ -12521,3 +12521,13 @@ hard难度打boss总是要死人吃不到经验值有点不爽
 
 会不会一拳能把自己打半死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zifuhun  
+##### 2672#       发表于 2024-10-17 12:35
+
+为什么不能跟妖精谈恋爱<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9180, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -7286,3 +7286,13 @@ staff里一定有人看过别当哥的温泉回
 
 我现在打波姆有的只掉单属性晶片，有的还是会掉全属性晶片
 
+
+*****
+
+####  隔壁老黄  
+##### 6610#       发表于 2024-10-17 18:04
+
+E大师快给滚啊！！这剧情插图多好看啊，立绘都被大师给毁了<img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/19/54806dfd8822f917d881b4e9d10065fa/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

@@ -5140,3 +5140,26 @@ B12已经从发射台拆下运回了Mega Bay 1。
 
 直接把认知战这三个字屏蔽了，太难看了
 
+
+*****
+
+####  madbird023  
+##### 519#       发表于 2024-10-17 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66463708&amp;ptid=2190881" target="_blank">commcody 发表于 2024-10-16 12:03</a>
+
+B12已经从发射台拆下运回了Mega Bay 1。
+
+编号314的猛禽2发动机上还画了一个Pie。</blockquote>
+不锈钢确实好啊，再入大气层都没有积碳
+
+*****
+
+####  madbird023  
+##### 520#       发表于 2024-10-17 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66453097&amp;ptid=2190881" target="_blank">pandaxysh2 发表于 2024-10-15 08:31</a>
+
+现在才思考和确定马斯克星舰用在哪里也太晚了，人真实目标就是军事用途为主。 ...</blockquote>
+怎么可能，先不说美军才出了多少钱，就算有军用投送的可能性，你以为美军真有阿斯塔特啊
+

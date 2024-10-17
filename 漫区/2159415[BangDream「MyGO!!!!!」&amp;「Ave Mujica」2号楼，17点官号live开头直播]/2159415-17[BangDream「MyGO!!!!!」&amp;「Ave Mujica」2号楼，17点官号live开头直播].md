@@ -15076,3 +15076,52 @@ PV真是挤牙膏。那个门不知道是谁家的。
 
 说句题外话，初华设计得真优秀，就算没说有好看的设定颜值在也很突出。
 
+
+*****
+
+####  星天观测  
+##### 24957#       发表于 2024-10-17 22:56
+
+那个背影看指甲啊，还有旁边的笔记本电脑和设施
+
+基本就是喵梦吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 24958#       发表于 2024-10-17 23:00
+
+画面都是连续的，不是喵的话，难道我们喵梦亲是什么没过去的名誉路人吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 24959#       发表于 2024-10-17 23:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">就算是排除法也肯定是喵夢啊，難道ave mujica四缺一，只有喵夢沒畫面是吧……哪可能。
+
+*****
+
+####  skives10  
+##### 24960#       发表于 2024-10-17 23:01
+
+其实唯一没有新画面的是我们箱箱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  uhiuk  
+##### 24961#       发表于 2024-10-17 23:03
+
+11月是不是该有正式pv了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  亚瑟邓特  
+##### 24962#       发表于 2024-10-17 23:06
+
+说个幻视还能被扣分的，你楼也成蒜楼二号了？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

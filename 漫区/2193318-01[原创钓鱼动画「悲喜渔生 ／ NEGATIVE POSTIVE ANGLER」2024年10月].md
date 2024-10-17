@@ -661,3 +661,11 @@ ed舒服不少
 
 粉毛这个闪回是死了弟弟的意思么
 
+
+*****
+
+####  狮子咕  
+##### 58#       发表于 2024-10-17 23:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这奇怪的设定……这么轻松化fx战士的？隔壁韭留美看完羡慕哭了，感觉奇怪的烂片雷达开始响起来了
+

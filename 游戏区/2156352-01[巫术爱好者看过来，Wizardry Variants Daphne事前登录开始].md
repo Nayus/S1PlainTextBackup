@@ -387,3 +387,20 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  elven119  
+##### 86#         楼主| 发表于 2024-10-17 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66474650&amp;ptid=2156352" target="_blank">Tring 发表于 2024-10-17 17:56</a>
+
+我日，我也中招了。
+
+3F塌方事件后，有个门前面有个伏击事件战斗，
+
+我一碰到，切战斗，出特殊战斗的BGM，然 ...</blockquote>
+这个bug一堆人遇到，我看有小日本是把账号继承到其他机器上就能解决，这个应该是前端出bug了
+
+目前这种直接卡死的bug还不少。我看公告都列了10多个
+

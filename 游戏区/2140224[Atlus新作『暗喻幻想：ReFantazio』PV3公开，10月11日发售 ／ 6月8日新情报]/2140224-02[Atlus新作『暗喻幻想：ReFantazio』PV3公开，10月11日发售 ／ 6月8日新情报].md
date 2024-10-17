@@ -12966,3 +12966,18 @@ Hard难度通关了，最满意的就是战斗系统，其他的感觉都挺一�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黄金树幽影就能看出来了，制作组名气够响+游戏本身还算说得过去就能给90+，只能说mc分数也通货膨胀的厉害，现在没到90都感觉是臭鱼烂虾了
 
+
+*****
+
+####  是谁的书画  
+##### 2711#       发表于 2024-10-17 17:22
+
+这游戏能有80个G确实挺牛的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 2712#       发表于 2024-10-17 17:25
+
+真的假的 这也太夸张了
+

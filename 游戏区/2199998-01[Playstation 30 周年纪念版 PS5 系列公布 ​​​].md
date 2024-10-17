@@ -574,3 +574,22 @@ PS4同期也有GTS和瑞奇与叮当啊，绝地潜兵一代也在这一时期�
 
 除了京沪感觉没啥人抽，成都才300多人
 
+
+*****
+
+####  医生狼多  
+##### 55#         楼主| 发表于 2024-10-17 11:36
+
+人少的不是当地也去不了呀<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+广州这边我看了也有一千多了
+
+
+*****
+
+####  ranapocket  
+##### 56#       发表于 2024-10-17 11:42
+
+要去线下付款提货的，不在当地抽中也不方便吧
+
+—— 来自 HUAWEI OCE-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -12483,3 +12483,31 @@ hard难度打boss总是要死人吃不到经验值有点不爽
 我个人对霍肯伯格的双开门没那么大意见，对她下半身的穿搭倒是意见挺大，主要显得有点头重脚轻，我还是更喜 ...</blockquote>
 毁灭性的味觉 不谈确实挺好 ，不然日后得遭重
 
+
+*****
+
+####  operatbig  
+##### 2668#       发表于 2024-10-17 11:38
+
+不是有挖出黑皮进队内容吗？被砍了吧。
+
+*****
+
+####  operatbig  
+##### 2669#       发表于 2024-10-17 11:41
+
+<blockquote>星野航 发表于 2024-10-17 10:00
+有个底裤挽尊法就是，人家嘴上说得就是，你们上几个人我都无所谓
+
+死了就是操盘侠，我根本不屑在这里展露 ...</blockquote>
+问题就算是剧情上他能混个最终boss大半功劳是运气，各种昏招作死，论智谋被基友碾压。
+
+*****
+
+####  无辄辄  
+##### 2670#       发表于 2024-10-17 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66471742&amp;ptid=2140224" target="_blank">operatbig 发表于 2024-10-17 11:38</a>
+不是有挖出黑皮进队内容吗？被砍了吧。</blockquote>
+等皇家版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

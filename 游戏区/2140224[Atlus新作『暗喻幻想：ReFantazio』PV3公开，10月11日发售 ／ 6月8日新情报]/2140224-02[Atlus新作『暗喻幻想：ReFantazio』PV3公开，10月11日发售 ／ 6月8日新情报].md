@@ -12815,3 +12815,21 @@ p5是无心插柳插出来的500w销量，不是瞄着做个500w东西出来的�
 
 唉，家庭伦理剧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  windtrack  
+##### 2699#       发表于 2024-10-17 16:30
+
+ 本帖最后由 windtrack 于 2024-10-17 16:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66473480&amp;ptid=2140224" target="_blank">罐子 发表于 2024-10-17 15:37</a>
+
+刚开始玩，主角加点是不是不能洗的？ 应该怎么加好纠结 前期没有魔法师用，让主角转术士了
+
+另外，那个净化 ...</blockquote>
+建议纯力，主角后期专属P合体技能是万能物理，力量满了转耐
+
+不建议加速，后期需要辅助先手，主角打输出要后手
+
+属性香如果要打二周目的话不要吃，二周目继承道具不继承效果
+

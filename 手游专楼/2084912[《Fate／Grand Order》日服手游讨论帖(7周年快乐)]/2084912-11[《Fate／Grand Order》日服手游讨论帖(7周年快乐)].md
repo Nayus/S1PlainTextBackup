@@ -860,3 +860,26 @@ ex阶都比常规职阶多了。真不如再起一排
 
 狂阿周那对神性敌人：1 - (1 - 50%*80%)*( 1 - 80%*80%) = 78.4%
 
+
+*****
+
+####  khxooo  
+##### 15002#       发表于 2024-10-17 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66473573&amp;ptid=2084912" target="_blank">الطائر 发表于 2024-10-17 15:48</a>
+公式是：我方即死付与率*(1 + 我方即死成功率变化 + 敌方即死耐性变化)*敌方被即死率假设是80%
+
+道满：120% ...</blockquote>
+狂娜没有即死吧，有即死那是弓娜吧<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之花  
+##### 15003#       发表于 2024-10-17 16:33
+
+道满：我不是说针对你，我是说在座的各位都是垃圾<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+另外山中老人宝具是OC1 100%，三技能降200%即死耐性
+
+某个中山装老人宝具是稳定150%即死，满羁绊前我拿来打白纸化QP本，现在被徐福顶班了
+

@@ -14076,3 +14076,19 @@ Q5 MUSIX15週年！請說出你對此的幹勁！
 
 睦如果确实是有这方面的问题，逐渐学会怎么与另一个自己相处怎么不能算人物弧光呢？接受自己不也是一种成长<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 24865#       发表于 2024-10-17 19:47
+
+先行也挺正常吧，不过只有新加坡不太信，至少日本本土得有吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+syl，非常不建议拿动画里的只言片语去推测纸片人是不是有病，感觉看到什么抽象大作业在分析纸片人
+
+病史确定都全吗，至少把诊断和用药写出来
+
+基本上都是单纯角色属性罢了
+
+是不是病很好判断，你看片尾制作人员有没有专业协力人员就行，总不能独角兽搁那翻书编<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

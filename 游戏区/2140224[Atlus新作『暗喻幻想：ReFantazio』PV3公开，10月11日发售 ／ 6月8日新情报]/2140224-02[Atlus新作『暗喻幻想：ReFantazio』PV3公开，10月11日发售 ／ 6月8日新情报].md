@@ -13152,3 +13152,13 @@ Hard难度通关了，最满意的就是战斗系统，其他的感觉都挺一�
 亡灵可以靠旅人和武僧 ...</blockquote>
 后面还有光反弹的骷髅法爷呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cmnewfan  
+##### 2729#       发表于 2024-10-17 21:44
+
+没看到继承demo存档的选项啊？
+
+—— 来自 vivo V2303A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

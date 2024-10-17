@@ -14142,3 +14142,89 @@ solo果然是高尾原创（？）的，休息的时候弹了下前奏，然后p
 
 笑死，新情报——ether mv
 
+
+*****
+
+####  PDQ4  
+##### 24871#       发表于 2024-10-17 21:39
+
+10周年，10个乐队都有新衣服
+鸡终于可以换衣服了吗<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 24872#       发表于 2024-10-17 21:42
+
+4th KV 換衣服惹
+
+<img src="https://img.saraba1st.com/forum/202410/17/214246h22fhla8hp2zntfn.jpg" referrerpolicy="no-referrer">
+
+<strong>バンドリ！発表会 For 2025 51-25 screenshot.jpg</strong> (305.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-17 21:42 上传
+
+*****
+
+####  yifan8848  
+##### 24873#       发表于 2024-10-17 21:43
+
+夢回0th的長袍
+
+*****
+
+####  PDQ4  
+##### 24874#       发表于 2024-10-17 21:43
+
+唤起了一个名为flowers冬的记忆
+别真闹麻了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  鳥栖朝  
+##### 24875#       发表于 2024-10-17 21:43
+
+绷不住了
+
+*****
+
+####  六道明  
+##### 24876#       发表于 2024-10-17 21:44
+
+0th的袍子还挺带感的
+
+*****
+
+####  星天观测  
+##### 24877#       发表于 2024-10-17 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66476144&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-10-17 21:42</a>
+
+4th KV 換衣服惹</blockquote>
+没换衣服，就是现在的服装套了个袍子，看鞋子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 24878#       发表于 2024-10-17 21:46
+
+<img src="https://img.saraba1st.com/forum/202410/17/214605ksjsrbjwcldar92j.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_バンドリ！ BanG Dream! 公式(@bang_dream_info)_20241017-134322_1846909872.jpg</strong> (189.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-17 21:46 上传
+
+[https://x.com/bang_dream_info/status/1846909872748851711](https://x.com/bang_dream_info/status/1846909872748851711)
+
+*****
+
+####  rikaren  
+##### 24879#       发表于 2024-10-17 21:46
+
+只有15分钟不到了
+

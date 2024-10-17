@@ -761,3 +761,26 @@ ex阶都比常规职阶多了。真不如再起一排
 
 可惜是法尼就算用了技1增加即死率都是中，要oc1才能確定即死
 
+
+*****
+
+####  格林卡罗尔  
+##### 14996#       发表于 2024-10-17 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66472520&amp;ptid=2084912" target="_blank">eilot 发表于 2024-10-17 13:16</a>
+用仇尼打白紙化的金錢關發現
+
+原來用了技2給對方上了惡屬性(技2)和自充100%
+
+惡屬性是100%即死都能Miss</blockquote>
+记得是80%被即死率，有个130%即死就差不多了
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  天王寺凯伊姆  
+##### 14997#       发表于 2024-10-17 13:21
+
+仇尼第一面物理即死就可以了，配合道满技能和衣服
+

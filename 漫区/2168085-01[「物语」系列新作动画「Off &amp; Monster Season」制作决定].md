@@ -185,3 +185,25 @@
 
 尊主: 日本JK干净又卫生啊 (食物中毒, 死了)
 
+
+*****
+
+####  Piano-Forest  
+##### 976#         楼主| 发表于 2024-10-17 22:07
+
+#14 忍物語 しのぶマスタード 其ノ陸
+
+女子バスケットボール部OG会に参加した暦は、彼女たちに行方不明となっている五人の共通点を聞く。話を聞いているうちにとある確信を得た暦は、急ぎその場を後にする。その頃、ひとり神原家で待っているスーサイドマスターのもとを訪れたのは――。
+
+脚本：大嶋実句
+
+絵コンテ：大石美絵
+
+演出：吉澤 翠
+
+作画監督：宮嶋仁志・高橋みき・清水麻未・浅井昭人・清水勝祐・鮫島寿志・和田賢人・菊地しゅんすけ・高野晃久・伊藤良明
+<img src="https://p.sda1.dev/19/0fc6a7ec6d77363cc12da234a86be52d/10001.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/95067ade30d38f5e2be63c7fe93a9a1a/10002.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/b9ec1ad02d8385c503e2378573984ebe/10003.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/b811200b26f0e5c6f13da292be3d8a91/10004.jpg" referrerpolicy="no-referrer">
+

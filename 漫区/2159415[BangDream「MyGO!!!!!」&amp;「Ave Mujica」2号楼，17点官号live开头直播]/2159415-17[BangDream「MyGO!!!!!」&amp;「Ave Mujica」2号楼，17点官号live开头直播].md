@@ -14377,3 +14377,208 @@ solo果然是高尾原创（？）的，休息的时候弹了下前奏，然后p
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">wsd勉强保住了马，还行吧。看来b站弱智官号也知道之前新加坡的节奏
 
+
+*****
+
+####  uhiuk  
+##### 24897#       发表于 2024-10-17 22:04
+
+ 本帖最后由 uhiuk 于 2024-10-17 22:05 编辑 
+
+绝对不能打开的紧闭着的门.jpg
+
+<img src="https://img.saraba1st.com/forum/202410/17/220540z0ww2s4u6ysy6iti.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241017_220319.jpg</strong> (71.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-17 22:05 上传
+
+<img src="https://img.saraba1st.com/forum/202410/17/220540xf51mp4ybb51ptu2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241017_220315.jpg</strong> (80.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-17 22:05 上传
+
+有种不好的预感
+
+*****
+
+####  cherryjia12  
+##### 24898#       发表于 2024-10-17 22:06
+
+12月都先行了怎么还不出正式pv，柿本绫奈你们最好是真的想藏<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 24899#       发表于 2024-10-17 22:06
+
+pv里是萝莉喵梦吗
+
+*****
+
+####  ytttsuuuba  
+##### 24900#       发表于 2024-10-17 22:07
+
+是吧，旁边还有直播器材
+
+*****
+
+####  akiomn  
+##### 24901#       发表于 2024-10-17 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66476362&amp;ptid=2159415" target="_blank">skives10 发表于 2024-10-17 22:06</a>
+pv里是萝莉喵梦吗</blockquote>
+大概率是，这是母鸡卡pv，狗团其他人都没出现，先祥子后海玲睦头初华，中间这个小时候很可能是喵梦小时候
+
+*****
+
+####  振翼发  
+##### 24902#       发表于 2024-10-17 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66476361&amp;ptid=2159415" target="_blank">cherryjia12 发表于 2024-10-17 22:06</a>
+12月都先行了怎么还不出正式pv，柿本绫奈你们最好是真的想藏</blockquote>
+定档pv都有了，先行pv还会远吗
+
+*****
+
+####  星天观测  
+##### 24903#       发表于 2024-10-17 22:08
+
+那个指甲应该是喵梦吧
+
+*****
+
+####  akiomn  
+##### 24904#       发表于 2024-10-17 22:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好像4th就能看第一集？byd这卖票给wsd玩明白了
+
+*****
+
+####  PDQ4  
+##### 24905#       发表于 2024-10-17 22:09
+
+新画面有点多
+五个人都在emo，喵梦应该是以前看以来有点小，在架子鼓前抱胳膊，疑似不是初学者
+那个书架应该是睦家，全都是演技相关，不知道是不是家庭期望压力
+海铃咬嘴唇
+初华疑似小破屋（比祥子好一些）煮咖啡
+
+门那个视角有点恐怖片的氛围了
+最后还有个人偶特写，然后有个电车画面，别给我整车祸啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kirir192  
+##### 24906#       发表于 2024-10-17 22:10
+
+有必要认真讨论下超自然要素的可能性吗？比如那个人偶真的是活的<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ydsbbt  
+##### 24907#       发表于 2024-10-17 22:11
+
+这两个画面应该都是初华家？
+
+<img src="https://img.saraba1st.com/forum/202410/17/221056r79sj3wowsn71tss.jpg" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2024-10-17_22-10-17.jpg</strong> (102.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-17 22:10 上传
+
+<img src="https://img.saraba1st.com/forum/202410/17/221102fyggh33zrnbn3cky.jpg" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2024-10-17_22-10-40.jpg</strong> (87.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-17 22:11 上传
+
+*****
+
+####  振翼发  
+##### 24908#       发表于 2024-10-17 22:11
+
+睦妈演员爸搞笑艺人，应该是妈那边的压力
+
+*****
+
+####  skives10  
+##### 24909#       发表于 2024-10-17 22:11
+
+12/1全世界先行放送
+12/15的4th放动画第一集
+同步tv放送出漫画
+算是奔着大爆去的吧
+
+*****
+
+####  六道明  
+##### 24910#       发表于 2024-10-17 22:11
+
+<img src="https://img.saraba1st.com/forum/202410/17/220853mqcfao2apdfzczii.png" referrerpolicy="no-referrer">
+
+<strong>4197917291738572.png</strong> (108.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-17 22:08 上传
+
+芙蓉枫空锅的既视感，目测要化身病娇，“把祥子还给我”
+
+*****
+
+####  skives10  
+##### 24911#       发表于 2024-10-17 22:12
+
+有人说如果关于演技的书都是初华的 也挺有趣的
+
+*****
+
+####  akiomn  
+##### 24912#       发表于 2024-10-17 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66476412&amp;ptid=2159415" target="_blank">ydsbbt 发表于 2024-10-17 22:11</a>
+这两个画面应该都是初华家？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第一个是睦家，演员很明显对应睦
+
+*****
+
+####  uhiuk  
+##### 24913#       发表于 2024-10-17 22:13
+
+感觉都是过去的回忆？
+
+*****
+
+####  PDQ4  
+##### 24914#       发表于 2024-10-17 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66476427&amp;ptid=2159415" target="_blank">skives10 发表于 2024-10-17 22:12</a>
+
+有人说如果关于演技的书都是初华的 也挺有趣的</blockquote>
+是睦家，那个画面五个人都切了过去，不会就差一个睦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ytttsuuuba  
+##### 24915#       发表于 2024-10-17 22:14
+
+其实我也觉得关于演技的书是初华的，和一直以来的各种访谈也对的上。
+
+*****
+
+####  星天观测  
+##### 24916#       发表于 2024-10-17 22:14
+
+病娇都来了，差不多得了
+

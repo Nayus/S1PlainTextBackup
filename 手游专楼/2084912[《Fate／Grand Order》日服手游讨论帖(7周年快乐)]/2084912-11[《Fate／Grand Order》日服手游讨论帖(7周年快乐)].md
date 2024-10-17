@@ -883,3 +883,14 @@ ex阶都比常规职阶多了。真不如再起一排
 
 某个中山装老人宝具是稳定150%即死，满羁绊前我拿来打白纸化QP本，现在被徐福顶班了
 
+
+*****
+
+####  الطائر  
+##### 15004#       发表于 2024-10-17 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66473926&amp;ptid=2084912" target="_blank">khxooo 发表于 2024-10-17 16:31</a>
+
+狂娜没有即死吧，有即死那是弓娜吧</blockquote>
+是的。所以根本用不上。
+

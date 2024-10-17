@@ -15125,3 +15125,65 @@ PV真是挤牙膏。那个门不知道是谁家的。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  PDQ4  
+##### 24963#       发表于 2024-10-17 23:09
+
+只能说还债了，代餐了一年的结果<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 24964#       发表于 2024-10-17 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66476935&amp;ptid=2159415" target="_blank">亚瑟邓特 发表于 2024-10-17 23:06</a>
+
+说个幻视还能被扣分的，你楼也成蒜楼二号了？
+
+看见pv出了还没看先点进许久没来的专楼，一进来就看见不明所 ...</blockquote>
+行了行了给你加鹅了 
+
+至于把鹅看得那么重要吗 还上升到党同伐异的高度了
+
+
+*****
+
+####  星天观测  
+##### 24965#       发表于 2024-10-17 23:10
+
+嗯嗯嗯对的对的党同伐异<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+所以说啊赶紧开鸡专楼不好吗
+
+*****
+
+####  御幸一也  
+##### 24966#       发表于 2024-10-17 23:11
+
+被代餐了一年噁心的要死應激一下怎麼了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  [皆神孝介]  
+##### 24967#       发表于 2024-10-17 23:15
+
+第一次看到人偶的正面，将来能出个商品发卖吗？<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dqtql  
+##### 24968#       发表于 2024-10-17 23:15
+
+哎，12-1后真的要退出一切动画社区了
+
+*****
+
+####  PDQ4  
+##### 24969#       发表于 2024-10-17 23:16
+
+话说这次故事梗概也提到命运了，是不是你鸡第二次官方情报提到命运
+
+难道真的五人过去都藕断丝连<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

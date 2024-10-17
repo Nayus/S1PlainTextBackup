@@ -12471,3 +12471,15 @@ hard难度打boss总是要死人吃不到经验值有点不爽
 
 好看的都不能入队只能说是故意的<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  忘却旋律  
+##### 2667#       发表于 2024-10-17 11:21
+
+ 本帖最后由 忘却旋律 于 2024-10-17 11:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66468684&amp;ptid=2140224" target="_blank">usodakedo 发表于 2024-10-16 23:48</a>
+
+我个人对霍肯伯格的双开门没那么大意见，对她下半身的穿搭倒是意见挺大，主要显得有点头重脚轻，我还是更喜 ...</blockquote>
+毁灭性的味觉 不谈确实挺好 ，不然日后得遭重
+

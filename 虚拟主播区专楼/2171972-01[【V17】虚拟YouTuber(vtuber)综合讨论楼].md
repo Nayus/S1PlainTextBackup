@@ -462,3 +462,18 @@ Speciale势头最好的鳟鱼哥这就无限期休止了。。这一期真的太
 
 虹的新工作室终于好了档期全安排上了吧？
 
+
+*****
+
+####  Porsche  
+##### 822#       发表于 2024-10-17 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66452635&amp;ptid=2171972" target="_blank">格林卡罗尔 发表于 2024-10-15 01:45</a>
+如果ひのらん的数字能被判断为人才的话，那774还挺人才辈出的（
+
+—— 来自 Xiaomi M2012K11AC, Android 11 ...</blockquote>
+这774就是你はねる一个人的吗.png
+
+我还是很喜欢いちか的
+真的，出道几年了还能点进直播几秒内就能听到没心没肺在那傻笑的管人真的见不到第二个，感觉从来没有遇到过烦恼
+

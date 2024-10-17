@@ -600,3 +600,11 @@ solas我真是一直不理解的，不过现在也有点点理解了，这就属
 那要是感觉女玩家大部分都是这种xp也行吧，反正我指定不行。囧a可以，库伦可以，索拉斯至少他是个传统精灵 ...</blockquote>
 传统精灵有蛋头这么丑的吗，我审判第一次见蛋头感觉他像个白皮哥布林<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qrgarryqr  
+##### 657#       发表于 2024-10-17 22:49
+
+请女玩家玩了命得买
+

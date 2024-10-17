@@ -601,3 +601,14 @@ PS4同期也有GTS和瑞奇与叮当啊，绝地潜兵一代也在这一时期�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer"> 想买个普通手柄，精英的还是算了
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 58#       发表于 2024-10-17 22:53
+
+笑死，安卓14的X1V说索尼商城APK为旧版安卓打造给谷歌拦截了不给装
+<img src="https://static.saraba1st.com/image/smiley/face/84.gif" referrerpolicy="no-referrer">然后去柜子里翻XZ2出来更新了用
+
+看了下现在每个店都至少一万多人了吧，上海这种都两万四了，选了个杭州店大概一万六吧，目前概率差不多1%不到
+

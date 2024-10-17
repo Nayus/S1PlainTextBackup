@@ -14990,3 +14990,89 @@ PV真是挤牙膏。那个门不知道是谁家的。
 
 好日子来临了
 
+
+*****
+
+####  御幸一也  
+##### 24948#       发表于 2024-10-17 22:47
+
+夏天5th耶
+
+<img src="https://img.saraba1st.com/forum/202410/17/224717zq0c7fdz7n7ufiw2.jpg" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 1925 - 2nd Single「KiLLKiSS」 - BanG Dream!（バンドリ！）公式サ.jpg</strong> (43.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-17 22:47 上传
+
+*****
+
+####  相坂君  
+##### 24949#       发表于 2024-10-17 22:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">短发的小心了，不管你想不想总之能幻视成灯
+
+*****
+
+####  极速赛车手  
+##### 24950#       发表于 2024-10-17 22:48
+
+有先行上映的话，1.2是只放第一话还是几话连放
+
+*****
+
+####  仓鼠胖太  
+##### 24951#       发表于 2024-10-17 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66476412&amp;ptid=2159415" target="_blank">ydsbbt 发表于 2024-10-17 22:11</a>
+这两个画面应该都是初华家？</blockquote>
+娘的，初华重女力史诗级增强
+以及，你们真的是少女乐队对吧…
+
+
+*****
+
+####  hd_moretime  
+##### 24952#       发表于 2024-10-17 22:50
+
+这个人偶就是初祥第一次见面的时候小祥抱着那个吧
+
+*****
+
+####  ykyin09  
+##### 24953#       发表于 2024-10-17 22:50
+
+那个蓝色短发也可能是小祥吧，按照回忆里小时候的祥子也是短发
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  skives10  
+##### 24954#       发表于 2024-10-17 22:51
+
+免费live估计也挺难抽的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 24955#       发表于 2024-10-17 22:51
+
+感觉这个画面有点诡异了 天使们的升天是吧
+
+<img src="https://img.saraba1st.com/forum/202410/17/225044byirtdyeyddyegy2.png" referrerpolicy="no-referrer">
+
+<strong>Y~K(RC `B~{$~ELA@]X]D.png</strong> (90.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-17 22:50 上传
+
+*****
+
+####  Adyeshach  
+##### 24956#       发表于 2024-10-17 22:55
+
+说句题外话，初华设计得真优秀，就算没说有好看的设定颜值在也很突出。
+

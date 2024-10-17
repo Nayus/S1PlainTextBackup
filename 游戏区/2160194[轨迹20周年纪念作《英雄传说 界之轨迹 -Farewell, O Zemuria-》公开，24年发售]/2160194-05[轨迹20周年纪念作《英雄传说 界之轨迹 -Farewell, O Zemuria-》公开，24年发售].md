@@ -7180,3 +7180,16 @@ staff里一定有人看过别当哥的温泉回
 刚有空开玩，刷羊的方法修复了之后还有啥比较快的刷资源方法么？</blockquote>
 刷各层的boss
 
+
+*****
+
+####  tmmd  
+##### 6600#       发表于 2024-10-17 14:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66452630&amp;ptid=2160194" target="_blank">dddyghr 发表于 2024-10-15 01:44</a>
+
+刚到李恩线黑色庭院 波姆被砍了后刷了两个小时效率极低，后面有没有效率高点的地方 ...</blockquote>
+庭院波姆被砍了 但是外面野生波姆没被砍但是不可再生
+
+据说 李恩线 龙来的野生波姆可以再生
+

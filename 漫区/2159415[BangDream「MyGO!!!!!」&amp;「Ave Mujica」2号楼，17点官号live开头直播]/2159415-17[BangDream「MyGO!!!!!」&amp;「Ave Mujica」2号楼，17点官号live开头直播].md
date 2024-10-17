@@ -14866,3 +14866,127 @@ PV真是挤牙膏。那个门不知道是谁家的。
 
 2024-10-17 22:31 上传
 
+
+*****
+
+####  PDQ4  
+##### 24936#       发表于 2024-10-17 22:37
+
+ 本帖最后由 PDQ4 于 2024-10-17 22:39 编辑 
+
+人偶疑似睦祥结合体，姿势是睦，位置是睦，发型是睦，但是衣服风格像oblivionis<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202410/17/223925rtl9jwu9tjuawwws.jpg" referrerpolicy="no-referrer">
+
+<strong>MEITU_20241017_221635153.jpg</strong> (53.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-17 22:39 上传
+
+*****
+
+####  鳥栖朝  
+##### 24937#       发表于 2024-10-17 22:38
+
+吃得最爽的一天<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rushsong  
+##### 24938#       发表于 2024-10-17 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66476548&amp;ptid=2159415" target="_blank">dqtql 发表于 2024-10-17 22:25</a>
+这种续作还能大爆的吗？吸引不到路人顶多粉丝圈内大爆</blockquote>
+真往猎奇黑暗方面走的话有几率大爆，欧美就好这口
+
+—— 来自 vivo V2183A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  ytttsuuuba  
+##### 24939#       发表于 2024-10-17 22:39
+
+宝石颜色也是睦<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ytttsuuuba  
+##### 24940#       发表于 2024-10-17 22:40
+
+大爆不是没可能啊，像马娘2不管是成绩还是口碑都做到了远超1的大爆吧
+
+*****
+
+####  星天观测  
+##### 24941#       发表于 2024-10-17 22:42
+
+是不是可以开新楼了，放送时间已经定了，可以开鸡专楼了吗
+
+*****
+
+####  星天观测  
+##### 24942#       发表于 2024-10-17 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66476646&amp;ptid=2159415" target="_blank">鳥栖朝 发表于 2024-10-17 22:38</a>
+
+吃得最爽的一天</blockquote>
+没想过宣传期原来是这样的体验吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 24943#       发表于 2024-10-17 22:43
+
+好 支持<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 雞專樓雞專樓
+
+*****
+
+####  TTAA  
+##### 24944#       发表于 2024-10-17 22:43
+
+大猫这个背影真的会幻视灯<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PJR110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 3战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 振翼发| + 1|？|
+| 御幸一也|-1|哦|
+| PDQ4|-1|有点万物起源的味了|
+
+查看全部评分
+
+*****
+
+####  OPCI_0125  
+##### 24945#       发表于 2024-10-17 22:44
+
+两个pv看下来，ave mujica和mygo两部动画剧情上的联系大概真不多，两条岔路，直接观看估计也影响不大，新观众加上原本看mygo的引流，大爆也不是没可能&gt;&lt;
+
+*****
+
+####  ytttsuuuba  
+##### 24946#       发表于 2024-10-17 22:44
+
+完全不像，灯头发是蓝色的？
+
+*****
+
+####  PDQ4  
+##### 24947#       发表于 2024-10-17 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66476685&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-10-17 22:43</a>
+
+没想过宣传期原来是这样的体验吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/181.png" referrerpolicy="no-referrer">确实，一想到这还是刚进入宣传期，不敢想明年
+
+好日子来临了
+

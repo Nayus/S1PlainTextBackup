@@ -13354,3 +13354,13 @@ Hard难度通关了，最满意的就是战斗系统，其他的感觉都挺一�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  bwsusaga  
+##### 2748#       发表于 2024-10-18 04:23
+
+总算打完龙宫，打了四个小时<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+后面还有没有这么吊长的迷宫了……
+

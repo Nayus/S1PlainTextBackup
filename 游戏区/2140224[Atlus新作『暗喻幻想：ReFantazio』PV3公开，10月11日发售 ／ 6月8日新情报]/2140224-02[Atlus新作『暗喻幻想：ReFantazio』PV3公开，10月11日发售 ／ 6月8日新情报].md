@@ -12947,3 +12947,22 @@ Hard难度通关了，最满意的就是战斗系统，其他的感觉都挺一�
 
 到时候mc皇家版没准能冲一个96分，毕竟无印就94了
 
+
+*****
+
+####  kuarwbwe  
+##### 2709#       发表于 2024-10-17 17:10
+
+这游戏把游戏文本做进建模了，太智障了。8年不会有两年花在这上面了吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/19/c21d0320cf5c1dc0b4f3584603297de0/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  Khellendros  
+##### 2710#       发表于 2024-10-17 17:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黄金树幽影就能看出来了，制作组名气够响+游戏本身还算说得过去就能给90+，只能说mc分数也通货膨胀的厉害，现在没到90都感觉是臭鱼烂虾了
+

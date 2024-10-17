@@ -15393,3 +15393,14 @@ live有动画先行放送倒是很不错
 
 我选择退网到1-2号直接看<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Schwftyyyyy  
+##### 24990#       发表于 2024-10-18 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66476445&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-10-17 22:13</a>
+
+是睦家，那个画面五个人都切了过去，不会就差一个睦</blockquote>
+pv欺诈这种东西骗的就是你这样的观众<img src="https://static.saraba1st.com/image/smiley/carton2017/427.png" referrerpolicy="no-referrer">
+

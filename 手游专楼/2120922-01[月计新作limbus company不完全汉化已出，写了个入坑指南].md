@@ -1843,3 +1843,14 @@ Screenshot_20241010_133957.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">西格玛池70抽未出货，血奥池30抽未出货，本赛季好像还没有抽到过任何一个UP
 
+
+*****
+
+####  erratic璃月  
+##### 937#       发表于 2024-10-17 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66472484&amp;ptid=2120922" target="_blank">菟原手兒奈 发表于 2024-10-17 13:10</a>
+
+西格玛池70抽未出货，血奥池30抽未出货，本赛季好像还没有抽到过任何一个UP ...</blockquote>
+别上头阿朋友，你抽干了瓦夜就要干瞪眼了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

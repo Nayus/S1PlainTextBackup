@@ -12568,3 +12568,34 @@ hard难度打boss总是要死人吃不到经验值有点不爽
 
 需要看攻略的主要是有几个过时不候的成就
 
+
+*****
+
+####  星野航  
+##### 2676#       发表于 2024-10-17 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66470692&amp;ptid=2140224" target="_blank">kuarwbwe 发表于 2024-10-17 11:12</a>
+
+这个确实，玩了暗喻，我还是犹豫要不要把他家拉黑掉还就是因为有VV的缘故。其实他家在暗喻上的很多问题我 ...</blockquote>
+虽然桥野桂话说得满，做事一股守成中年人的味，但有些东西还是有一些底线的，起码不会那么不要脸
+
+很多问题我看都是高阶管理问题，有些东西不是atlus跟桥野桂能左右的。
+
+p5是无心插柳插出来的500w销量，不是瞄着做个500w东西出来的，这出发点就存在问题了。p4-p5中间也过了7，8年，还有个凯瑟琳呢。完成度上就不是这么回事。我看桥野桂那一脸想如释重负又不敢的样子，估计脑子里全在想什么500w的破事呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星野航  
+##### 2677#       发表于 2024-10-17 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66471764&amp;ptid=2140224" target="_blank">operatbig 发表于 2024-10-17 12:41</a>
+
+问题就算是剧情上他能混个最终boss大半功劳是运气，各种昏招作死，论智谋被基友碾压。 ...</blockquote>
+路易还有基友？他不是独狼么，杉田那不是他小弟么，不是他基友啊，听他指挥的。
+
+他一开始就没有把主角一行放在眼里，他的目标就是圣教的老登，主角被他利用，老登被他骗过击杀之后。实际上确实没有人能跟他竞争。
+
+倒不如说主角是纯粹一外挂，爹妈双亡结果都没死，留着两个魂一个天天陪着旅游一个随时随地叫到精神世界指导如何研发最新最强法门。你是路易你能怎么办，给人变成人类灭了人气，结果没想到老登当年搞暗杀没杀成，一家子都会玩精神体分裂这出，搞出个真王子。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+三个外挂打人一个，招数有啥用啊
+

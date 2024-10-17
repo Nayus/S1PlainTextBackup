@@ -1890,3 +1890,13 @@ Screenshot_20241010_133957.jpg
 转一个贴吧老哥的肝镜牢换人格计算公式：</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/159.gif" referrerpolicy="no-referrer">谢谢老哥，其实我也有每天买狂气和坐牢，主要是赛季初通行证卡进度，结果发现啥都换不起，刚好狂气和十连票还有库存就扔了几发，接下来还是老老实实坐牢和等瓦夜吧
 
+
+*****
+
+####  erratic璃月  
+##### 940#       发表于 2024-10-17 14:59
+
+光荣决斗是不是你游至今最强buff了
+
+维导当时有1605的血量吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

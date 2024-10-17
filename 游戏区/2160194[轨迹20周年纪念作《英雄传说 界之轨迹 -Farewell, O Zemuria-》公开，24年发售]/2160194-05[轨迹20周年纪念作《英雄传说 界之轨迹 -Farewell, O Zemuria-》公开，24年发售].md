@@ -7215,3 +7215,17 @@ staff里一定有人看过别当哥的温泉回
 黎开始其实战斗手册没有阵亡次数了，虽然我还是打的0阵亡，哪怕噩梦难度，前期靠饰品，后期有客座的时候 ...</blockquote>
 说的是以前，虽然很少翻车，但是翻车了一定要重来，现在不统计就不在意了
 
+
+*****
+
+####  隔壁老黄  
+##### 6603#       发表于 2024-10-17 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66472797&amp;ptid=2160194" target="_blank">tmmd 发表于 2024-10-17 14:01</a>
+庭院波姆被砍了 但是外面野生波姆没被砍但是不可再生
+
+据说 李恩线 龙来的野生波姆可以再生 ...</blockquote>
+都可以再生，只是不是靠恢复点而是按照实际时间
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

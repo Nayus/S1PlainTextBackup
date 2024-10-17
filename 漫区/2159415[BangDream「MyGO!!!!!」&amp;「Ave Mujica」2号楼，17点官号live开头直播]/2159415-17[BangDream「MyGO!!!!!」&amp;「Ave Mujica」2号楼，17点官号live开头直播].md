@@ -15310,3 +15310,11 @@ live有动画先行放送倒是很不错
 虽然几个人的精神都不太对，但只初华硬是没有破防颜的稳定感</blockquote>
 稳定感：面具以下日常破防状态<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  九陌狂游  
+##### 24981#       发表于 2024-10-17 23:37
+
+还会在香港前瞻吗，感觉可以期待一下
+

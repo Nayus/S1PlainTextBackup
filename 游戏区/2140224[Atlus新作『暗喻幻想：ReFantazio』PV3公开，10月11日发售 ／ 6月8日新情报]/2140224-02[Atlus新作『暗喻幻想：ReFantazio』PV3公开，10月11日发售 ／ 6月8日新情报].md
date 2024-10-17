@@ -13270,3 +13270,13 @@ Hard难度通关了，最满意的就是战斗系统，其他的感觉都挺一�
 </blockquote>
 怎么都是这种反派啊，好像没错，但是最大的错就是太激进了。被主角嘴一句你疑似有点太偏激了。
 
+
+*****
+
+####  SuNR1sE364  
+##### 2741#       发表于 2024-10-17 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66476946&amp;ptid=2140224" target="_blank">umbasa 发表于 2024-10-17 23:07</a>
+怎么都是这种反派啊，好像没错，但是最大的错就是太激进了。被主角嘴一句你疑似有点太偏激了。 ...</blockquote>
+引用剧透内容也记得编辑一下<img src="https://static.saraba1st.com/image/smiley/animal2017/028.png" referrerpolicy="no-referrer">
+

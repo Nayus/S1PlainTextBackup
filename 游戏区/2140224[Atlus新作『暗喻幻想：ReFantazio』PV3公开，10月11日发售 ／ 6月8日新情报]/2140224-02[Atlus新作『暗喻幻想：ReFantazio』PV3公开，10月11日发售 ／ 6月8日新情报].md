@@ -12768,3 +12768,12 @@ p5是无心插柳插出来的500w销量，不是瞄着做个500w东西出来的�
 
 所以路易是怎么做到一切尽在我掌握中还让自己结结实实挨了一枪的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  是谁的书画  
+##### 2694#       发表于 2024-10-17 16:09
+
+只能说路易这个人当事后诸葛亮很厉害<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+但是面对意外招招吃好吃满<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

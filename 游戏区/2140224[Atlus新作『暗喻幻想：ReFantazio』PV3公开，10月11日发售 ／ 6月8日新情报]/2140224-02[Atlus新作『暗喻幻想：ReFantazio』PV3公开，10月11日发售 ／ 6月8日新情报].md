@@ -12599,3 +12599,29 @@ p5是无心插柳插出来的500w销量，不是瞄着做个500w东西出来的�
 
 三个外挂打人一个，招数有啥用啊
 
+
+*****
+
+####  是谁的书画  
+##### 2678#       发表于 2024-10-17 13:34
+
+是谁看了不得评价句“这太子可真难杀”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lazycat233  
+##### 2679#       发表于 2024-10-17 13:36
+
+龙神迷宫用什么职业打比较好，感觉自己好刮，完全没有P和真女5秒怪的爽感，就算是打弱点也是刮半天。
+
+
+*****
+
+####  focus  
+##### 2680#       发表于 2024-10-17 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66472647&amp;ptid=2140224" target="_blank">lazycat233 发表于 2024-10-17 13:36</a>
+
+龙神迷宫用什么职业打比较好，感觉自己好刮，完全没有P和真女5秒怪的爽感，就算是打弱点也是刮半天。 ...</blockquote>
+现在都推荐跑酷到第三层右边的结晶那里，是个刷级圣地，刷一会儿就是碾压
+

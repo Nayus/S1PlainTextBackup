@@ -7153,3 +7153,11 @@ staff里一定有人看过别当哥的温泉回
 死亡惩罚以前也就记录而已吧，没有实质性的惩罚啊</blockquote>
 我记得最开始是单章死亡没S评价，所以才养成习惯，逐渐发展到如今没有任何影响。
 
+
+*****
+
+####  王俊凯  
+##### 6597#       发表于 2024-10-17 12:14
+
+5000敌人那个前面刷得勤点很快就拿到了，最慢还是那个2000次sclm连锁<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
+

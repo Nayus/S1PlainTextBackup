@@ -1024,3 +1024,16 @@ DEMO更新了，调了很多东西，看来正式版数值也会调很多挺好�
 
 请问魂系的系统和怪猎系的区别是什么？我没玩过魂系。
 
+
+*****
+
+####  小司司  
+##### 107#       发表于 2024-10-17 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66474672&amp;ptid=2168791" target="_blank">优秀 发表于 2024-10-17 18:01</a>
+
+看人设还有点心动的，动作系统没做好吗。
+
+请问魂系的系统和怪猎系的区别是什么？我没玩过魂系。 ...</blockquote>
+RPG和ACT的区别~~
+

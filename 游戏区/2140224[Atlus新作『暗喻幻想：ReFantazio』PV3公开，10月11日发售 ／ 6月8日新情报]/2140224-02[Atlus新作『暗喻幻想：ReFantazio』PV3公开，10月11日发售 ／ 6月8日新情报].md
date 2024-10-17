@@ -13059,3 +13059,16 @@ Hard难度通关了，最满意的就是战斗系统，其他的感觉都挺一�
 这游戏把游戏文本做进建模了，太智障了。8年不会有两年花在这上面了吧？</blockquote>
 能信的多少带点…
 
+
+*****
+
+####  杜文乐超神归来  
+##### 2720#       发表于 2024-10-17 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66474927&amp;ptid=2140224" target="_blank">星野航 发表于 2024-10-17 18:40</a>
+
+复活之后他也不需要智谋了，因为明牌就是实力最强
+
+吊打完圣教老登之后转手就能把主角卖了，还要啥其他招 ...</blockquote>
+难道复活之前就有智谋吗，要是说他知道龙枪能杀带保护的人，那他肯定知道主角是能杀人类的实力。结果跟个二傻子一样受伤了还找人一打多，要不是剧情需要直接暴毙死掉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

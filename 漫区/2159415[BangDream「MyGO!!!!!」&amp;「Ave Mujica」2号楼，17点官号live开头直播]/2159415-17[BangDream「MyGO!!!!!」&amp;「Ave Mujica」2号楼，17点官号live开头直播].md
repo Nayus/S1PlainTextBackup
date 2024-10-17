@@ -15346,3 +15346,42 @@ live有动画先行放送倒是很不错
 
 现场放送应该是live结束后吧 感觉直播能看的概率很小
 
+
+*****
+
+####  星天观测  
+##### 24985#       发表于 2024-10-17 23:56
+
+已经跟群友说好如果直播看不了就写repo了
+
+就之前repo剧场版的那位，应该会比较全的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dqtql  
+##### 24986#       发表于 2024-10-17 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66477370&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-10-17 23:56</a>
+已经跟群友说好如果直播看不了就写repo了
+
+就之前repo剧场版的那位，应该会比较全的 ...</blockquote>
+12-1估计就repo满天飞了
+
+
+*****
+
+####  Aendst  
+##### 24987#       发表于 2024-10-18 00:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该带着笔记本去看了
+
+*****
+
+####  星天观测  
+##### 24988#       发表于 2024-10-18 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66477389&amp;ptid=2159415" target="_blank">dqtql 发表于 2024-10-17 23:58</a>
+
+12-1估计就repo满天飞了</blockquote>
+没事，已经一个群都帮群友抽选了看新宿场了，1号写repo也一样
+

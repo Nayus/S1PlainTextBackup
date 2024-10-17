@@ -13162,3 +13162,27 @@ Hard难度通关了，最满意的就是战斗系统，其他的感觉都挺一�
 
 —— 来自 vivo V2303A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  MobyDickStudio  
+##### 2730#       发表于 2024-10-17 21:57
+
+为啥ps5启动游戏强制1080p，这是什么bug还是游戏设定本身就是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  汪达  
+##### 2731#       发表于 2024-10-17 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66473480&amp;ptid=2140224" target="_blank">罐子 发表于 2024-10-17 15:37</a>
+
+刚开始玩，主角加点是不是不能洗的？ 应该怎么加好纠结 前期没有魔法师用，让主角转术士了
+
+另外，那个净化 ...</blockquote>
+想刷祝福之水，可以等进入海港城市后，接一个去墓地的悬赏任务，那个墓地里有明牌的宝箱怪，打晕后进去偷了就跑，跑出来立即再打晕偷了再跑，就可以从宝箱怪那进货了，直到宝箱怪精尽人亡
+
+注意偷也有可能把眩晕状态的怪物打醒，醒了就跑不了，记得重置回合
+
+还有就是如果当时状态不佳可以适当的多换人，利用饰品或者吸魔回点蓝再跑，这个迷宫牛头人挺猛的，用射手技能很耗蓝，折磨宝箱怪的时候也可以顺便回状态，主角职业选商人打晕宝箱怪时还能顺便赚点钱
+

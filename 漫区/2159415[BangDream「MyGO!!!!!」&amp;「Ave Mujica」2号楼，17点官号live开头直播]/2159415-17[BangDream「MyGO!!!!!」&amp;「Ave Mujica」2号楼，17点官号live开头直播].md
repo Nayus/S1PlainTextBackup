@@ -14322,3 +14322,58 @@ solo果然是高尾原创（？）的，休息的时候弹了下前奏，然后p
 一次性喂这么多
 好吓人
 
+
+*****
+
+####  PDQ4  
+##### 24890#       发表于 2024-10-17 21:59
+
+画了好多饼<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ydsbbt  
+##### 24891#       发表于 2024-10-17 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66476147&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-10-17 21:43</a>
+
+唤起了一个名为flowers冬的记忆
+
+别真闹麻了</blockquote>
+不要啊<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  爱祥男科  
+##### 24892#       发表于 2024-10-17 22:00
+
+动画放送的同时出漫画 非常可以<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">希望画风给力
+
+*****
+
+####  六道明  
+##### 24893#       发表于 2024-10-17 22:00
+
+吃饼吃到饱，但是这一个半月都没新情报了吧_(:з」∠)_
+
+*****
+
+####  振翼发  
+##### 24894#       发表于 2024-10-17 22:01
+
+12.1就能复活了，不知道到时候有没有盗摄
+
+*****
+
+####  Sherrycat  
+##### 24895#       发表于 2024-10-17 22:02
+
+【TV动画「BanG Dream! Ave Mujica」先导PV 第2弹】 [https://www.bilibili.com/video/BV1SVyTYpEdS](https://www.bilibili.com/video/BV1SVyTYpEdS)
+
+*****
+
+####  akiomn  
+##### 24896#       发表于 2024-10-17 22:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">wsd勉强保住了马，还行吧。看来b站弱智官号也知道之前新加坡的节奏
+

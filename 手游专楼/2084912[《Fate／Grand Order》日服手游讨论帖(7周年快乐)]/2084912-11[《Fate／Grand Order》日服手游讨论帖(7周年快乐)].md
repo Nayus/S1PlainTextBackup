@@ -613,3 +613,11 @@ ALL IN王哈 无事发生 现在就突出一个后悔 能退我石头吗</blockq
 
 当然比红字高
 
+
+*****
+
+####  xiongxingyu  
+##### 14985#       发表于 2024-10-17 09:30
+
+老蔓的满破宝具动画里居然有紫罗兰。好家伙，有好事不叫人家，要挨打了就不忘带上，不愧是R姐的异世界同位体<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+

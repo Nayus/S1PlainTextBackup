@@ -13129,3 +13129,26 @@ Hard难度通关了，最满意的就是战斗系统，其他的感觉都挺一�
 传送装置在车上，只传人怎么回来啊。</blockquote>
 我后来也想到了，尴尬的设定，真是尴尬
 
+
+*****
+
+####  hugosol  
+##### 2727#       发表于 2024-10-17 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66475634&amp;ptid=2140224" target="_blank"> 石中剑二 发表于 2024-10-17 20:30</a> 玩到大兔子🐰入队，去推墓穴，肉眼可见的不好打了，推荐几个犀利的职业组合，现在打个宝箱怪都吃力，亡灵也打不过 </blockquote>
+情报商说了，商人砸钱宝箱怪就会发呆，不然就是一回合能秒你全队，没什么意思的设计
+很想吐槽这个墓穴大概是为了强推新职业小偷，骷髅愣是给搞了个暗弱点，不愧是重新定义rpg<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+*****
+
+####  windtrack  
+##### 2728#       发表于 2024-10-17 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66475827&amp;ptid=2140224" target="_blank">hugosol 发表于 2024-10-17 20:58</a>
+
+情报商说了，商人砸钱宝箱怪就会发呆，不然就是一回合能秒你全队，没什么意思的设计
+
+亡灵可以靠旅人和武僧 ...</blockquote>
+后面还有光反弹的骷髅法爷呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

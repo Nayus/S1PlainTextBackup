@@ -7296,3 +7296,25 @@ E大师快给滚啊！！这剧情插图多好看啊，立绘都被大师给毁�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  隔壁老黄  
+##### 6611#       发表于 2024-10-17 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66474580&amp;ptid=2160194" target="_blank">妄想中毒 发表于 2024-10-17 17:48</a>
+我现在打波姆有的只掉单属性晶片，有的还是会掉全属性晶片</blockquote>
+现实世界还是全属性，庭院在棋盘地图是单属性，在随机迷宫里被砍到跟普通怪没分别
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  flxgundam  
+##### 6612#       发表于 2024-10-17 18:11
+
+『英雄伝説 界の軌跡』ネタバレありインタビューを実施。近藤社長への質問を受け付けています！
+[https://dengekionline.com/article/202410/21051](https://dengekionline.com/article/202410/21051)
+
+虽然多半是近藤跟编辑部提前两边协调好问题啥的，反正投一下也没什么成本，我是已经投了，大家有兴趣得也建议试试啊
+

@@ -12777,3 +12777,41 @@ p5是无心插柳插出来的500w销量，不是瞄着做个500w东西出来的�
 只能说路易这个人当事后诸葛亮很厉害<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 但是面对意外招招吃好吃满<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  operatbig  
+##### 2695#       发表于 2024-10-17 16:15
+
+当初不是有王的魔法保护直接被刺杀下线了。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  operatbig  
+##### 2696#       发表于 2024-10-17 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66472586&amp;ptid=2140224" target="_blank">星野航 发表于 2024-10-17 13:29</a>
+
+路易还有基友？他不是独狼么，杉田那不是他小弟么，不是他基友啊，听他指挥的。
+
+他一开始就没有把主角一行 ...</blockquote>
+主角更离谱，爹妈给开一堆后门，甚至还掀桌子，海都那里紫毛直接被爆头属实让我绷不住，也让我猜到主角身份了。
+
+
+*****
+
+####  忘却旋律  
+##### 2697#       发表于 2024-10-17 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66472880&amp;ptid=2140224" target="_blank">无辄辄 发表于 2024-10-17 14:12</a>
+
+玩得差不多了，有几点不吐不快，1.画面真的不像是打磨了8年的作品，也就PS3水平，和法老控坐一桌，这8年我 ...</blockquote>
+邮局港剧 ，法老控 黎轨1和2的画面还是可以的，起码对的起PS4 5的画面技能，没有明显糊掉的东西，暗喻这整体画面 往好听了说都只能说凑合， 部分 细节 小物件，门  桶子啊  树啊 什么的贴图 ，简直没眼看，法老控在细节都做不到那么拉
+
+*****
+
+####  莉可厨  
+##### 2698#       发表于 2024-10-17 16:25
+
+唉，家庭伦理剧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

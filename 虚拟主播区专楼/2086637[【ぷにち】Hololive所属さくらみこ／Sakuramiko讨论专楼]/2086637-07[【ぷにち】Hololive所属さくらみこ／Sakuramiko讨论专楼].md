@@ -12754,3 +12754,34 @@ AI！？？？？？？？？？？？？？？？？？？？？？
 
 flower rhapsody这曲是真的难啊，竟然公开了难得的录制现场
 
+
+*****
+
+####  holoan  
+##### 9929#         楼主| 发表于 2024-10-17 17:27
+
+<img src="https://img.saraba1st.com/forum/202410/17/172718e0cyyxxypdyvdypa.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (71.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-17 17:27 上传
+
+突出一个怪。
+
+*****
+
+####  rs5621  
+##### 9930#       发表于 2024-10-17 17:27
+
+<img src="https://img.saraba1st.com/forum/202410/17/172710w1uq669i1cvkkkg6.png" referrerpolicy="no-referrer">
+
+<strong>SPZO9PSPCCJZ@U2Q)TGC@_2.png</strong> (132.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-17 17:27 上传
+
+35这个看起来不错，想要了
+

@@ -13087,3 +13087,27 @@ Hard难度通关了，最满意的就是战斗系统，其他的感觉都挺一�
 
 有P5的joker把明智骗进印象空间假死但是现实里没人发现这一段，看其他桥野贵哥哥写的剧情我已经是你说啥就是啥的状态了。
 
+
+*****
+
+####  里恩  
+##### 2723#       发表于 2024-10-17 20:22
+
+玩到战车传送哪里我人都傻了
+
+你都合主义有个限度好不好？便利需要就开始不管多么鬼扯了？第一次见过传送整部几百吨以上的战车的。
+
+需要传送你哪怕设计个角色传送就好了呀
+
+*****
+
+####  Lokad  
+##### 2724#       发表于 2024-10-17 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66475586&amp;ptid=2140224" target="_blank">里恩 发表于 2024-10-17 20:22</a>
+
+玩到战车传送哪里我人都傻了
+
+你都合主义有个限度好不好？便利需要就开始不管多么鬼扯了？第一次见过传送整 ...</blockquote>
+传送装置在车上，只传人怎么回来啊。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

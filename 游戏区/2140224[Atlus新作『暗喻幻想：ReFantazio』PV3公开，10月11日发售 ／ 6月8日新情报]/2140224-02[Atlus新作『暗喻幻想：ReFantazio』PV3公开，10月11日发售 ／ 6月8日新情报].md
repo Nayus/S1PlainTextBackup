@@ -13111,3 +13111,21 @@ Hard难度通关了，最满意的就是战斗系统，其他的感觉都挺一�
 你都合主义有个限度好不好？便利需要就开始不管多么鬼扯了？第一次见过传送整 ...</blockquote>
 传送装置在车上，只传人怎么回来啊。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  石中剑二  
+##### 2725#       发表于 2024-10-17 20:30
+
+玩到大兔子🐰入队，去推墓穴，肉眼可见的不好打了，推荐几个犀利的职业组合，现在打个宝箱怪都吃力，亡灵也打不过
+
+*****
+
+####  里恩  
+##### 2726#       发表于 2024-10-17 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66475603&amp;ptid=2140224" target="_blank">Lokad 发表于 2024-10-17 20:25</a>
+
+传送装置在车上，只传人怎么回来啊。</blockquote>
+我后来也想到了，尴尬的设定，真是尴尬
+

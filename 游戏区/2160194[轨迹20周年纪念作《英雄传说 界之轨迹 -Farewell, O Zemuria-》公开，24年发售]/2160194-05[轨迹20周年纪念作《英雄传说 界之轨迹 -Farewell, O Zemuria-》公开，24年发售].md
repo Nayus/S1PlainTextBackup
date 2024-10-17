@@ -7229,3 +7229,21 @@ staff里一定有人看过别当哥的温泉回
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  flxgundam  
+##### 6604#       发表于 2024-10-17 15:04
+
+庭院波姆砍了啥，之前没刷过不知道
+
+*****
+
+####  aimujie  
+##### 6605#       发表于 2024-10-17 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66473253&amp;ptid=2160194" target="_blank">flxgundam 发表于 2024-10-17 15:04</a>
+
+庭院波姆砍了啥，之前没刷过不知道</blockquote>
+掉落从全种类耀石砍成了单属性
+

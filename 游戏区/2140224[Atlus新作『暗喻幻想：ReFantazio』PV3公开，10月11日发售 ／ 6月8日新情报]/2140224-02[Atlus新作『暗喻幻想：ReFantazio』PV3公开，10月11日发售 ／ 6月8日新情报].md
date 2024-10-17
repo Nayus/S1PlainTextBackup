@@ -12395,3 +12395,24 @@ hard难度打boss总是要死人吃不到经验值有点不爽
 
 说到底还是拿脚本跟游戏性对比，这本来就存在错位
 
+
+*****
+
+####  出轨的三头龙  
+##### 2660#       发表于 2024-10-17 10:07
+
+这游戏卖了几套了
+
+
+*****
+
+####  kuarwbwe  
+##### 2661#       发表于 2024-10-17 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66470511&amp;ptid=2140224" target="_blank">星野航 发表于 2024-10-17 09:58</a>
+
+那我觉得可以不用看p6，和田什么尿性还需要看p6？直接给atlus判死刑都行
+
+今年有vv出，atlus就有底气，没啥 ...</blockquote>
+这个确实，玩了暗喻，我还是犹豫要不要把他家拉黑掉还就是因为有VV的缘故。其实他家在暗喻上的很多问题我觉得再努把力都不是不能解决的，还是看他们愿不愿意拼一把了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

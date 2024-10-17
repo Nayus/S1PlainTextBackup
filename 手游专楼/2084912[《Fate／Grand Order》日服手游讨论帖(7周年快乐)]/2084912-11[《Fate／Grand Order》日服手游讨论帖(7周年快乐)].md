@@ -799,3 +799,18 @@ ex阶都比常规职阶多了。真不如再起一排
 
 只是想不到仇尼說對惡是100%即死還有機會不能即死，看說明應該是兩次判定，先是50%再來如果是惡就100%?
 
+
+*****
+
+####  格林卡罗尔  
+##### 14999#       发表于 2024-10-17 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66472846&amp;ptid=2084912" target="_blank">eilot 发表于 2024-10-17 14:07</a>
+道滿120%即死是確定即死，最簡單直接，可惜沒甚麼人掛道滿，就算有也沒有再學NP20
+
+只是想不到仇尼說對惡 ...</blockquote>
+即死的成功率很简单，就是即死率乘被即死率。
+而道满被动还有20%，所以对铜名怪常见的80%通杀。仇尼托看起来也是即死计算两次
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

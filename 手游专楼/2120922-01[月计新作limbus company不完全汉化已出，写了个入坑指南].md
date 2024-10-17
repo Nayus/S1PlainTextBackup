@@ -1879,3 +1879,14 @@ Screenshot_20241010_133957.jpg
 
 而且这游戏有真正逼氪必抽的瓦夜活动，每年四次呢，平时不节制，瓦夜徒伤悲。年轻的但丁还是多肝镜牢吧。
 
+
+*****
+
+####  菟原手兒奈  
+##### 939#       发表于 2024-10-17 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66472876&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2024-10-17 14:12</a>
+
+转一个贴吧老哥的肝镜牢换人格计算公式：</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face/159.gif" referrerpolicy="no-referrer">谢谢老哥，其实我也有每天买狂气和坐牢，主要是赛季初通行证卡进度，结果发现啥都换不起，刚好狂气和十连票还有库存就扔了几发，接下来还是老老实实坐牢和等瓦夜吧
+

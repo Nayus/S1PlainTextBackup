@@ -14100,3 +14100,15 @@ syl，非常不建议拿动画里的只言片语去推测纸片人是不是有�
 
 再18min，必有PV<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  前方暴雨预警  
+##### 24867#       发表于 2024-10-17 20:55
+
+那个……我就是扒阿B那个充电视频的srt文件的，不懂日语，所以没法提供原文<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+以及我觉得，这小剧场疑似有点太癫了，更多是曲目串场的用处？如果有什么暗示价值，大概也就跟狗当初那个关键词PV差不多吧
+
+真情报还是得看5分钟后的邦TV
+

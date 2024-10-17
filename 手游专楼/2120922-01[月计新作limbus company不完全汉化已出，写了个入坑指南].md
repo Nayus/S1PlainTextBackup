@@ -1854,3 +1854,28 @@ Screenshot_20241010_133957.jpg
 西格玛池70抽未出货，血奥池30抽未出货，本赛季好像还没有抽到过任何一个UP ...</blockquote>
 别上头阿朋友，你抽干了瓦夜就要干瞪眼了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 938#       发表于 2024-10-17 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66472484&amp;ptid=2120922" target="_blank">菟原手兒奈 发表于 2024-10-17 13:10</a>
+
+西格玛池70抽未出货，血奥池30抽未出货，本赛季好像还没有抽到过任何一个UP ...</blockquote>
+转一个贴吧老哥的肝镜牢换人格计算公式：
+
+<img src="https://img.saraba1st.com/forum/202410/17/140732iabjonmow5j1e16k.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20241017_140639.jpg</strong> (183.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-17 14:07 上传
+
+如图，愿意用狂气换体力、花时间刷镜牢的话，6发单抽的狂气就能换一个三星。
+
+当然抽卡也是有副产物的（5、15、40的重复人格碎片），金光出货的快感更难以替代，但真的不建议在普池里抽太多，两三个十连或者出了任意三星就最好收手。
+
+而且这游戏有真正逼氪必抽的瓦夜活动，每年四次呢，平时不节制，瓦夜徒伤悲。年轻的但丁还是多肝镜牢吧。
+

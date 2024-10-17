@@ -1900,3 +1900,16 @@ Screenshot_20241010_133957.jpg
 
 维导当时有1605的血量吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  菟原手兒奈  
+##### 941#       发表于 2024-10-18 00:58
+
+7-34 打过了，确实有一定难度，借了个西格玛几次救我于水火
+小唐的真实身份果然是！
+白月骑士也很像一位前作有出现的…
+接下来 13 傻不断接触到都市核心与更重大的事件，或许也能遇见罗兰和安吉拉，甚至和艾因神交也说不定啊<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

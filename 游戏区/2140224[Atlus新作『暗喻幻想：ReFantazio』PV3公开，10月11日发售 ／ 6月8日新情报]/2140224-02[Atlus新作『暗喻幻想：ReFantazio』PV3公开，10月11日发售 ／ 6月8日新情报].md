@@ -12416,3 +12416,13 @@ hard难度打boss总是要死人吃不到经验值有点不爽
 今年有vv出，atlus就有底气，没啥 ...</blockquote>
 这个确实，玩了暗喻，我还是犹豫要不要把他家拉黑掉还就是因为有VV的缘故。其实他家在暗喻上的很多问题我觉得再努把力都不是不能解决的，还是看他们愿不愿意拼一把了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  woshenc  
+##### 2662#       发表于 2024-10-17 10:23
+
+我在网上大概看了下，这敌我双方带npc在内，人设实在是爱不起来
+
+没有时髦值的a社，是堕落了啊
+

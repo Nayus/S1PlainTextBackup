@@ -404,3 +404,16 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 目前这种直接卡死的bug还不少。我看公告都列了10多个
 
+
+*****
+
+####  whfnet  
+##### 87#       发表于 2024-10-17 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66475225&amp;ptid=2156352" target="_blank">warerest 发表于 2024-10-17 19:29</a>
+
+打不过咋回程啊，坦克和法师死了，往前往后退都打不过，往回冲死了又回到迷宫上层，这破游戏卡住了就凉凉了 ...</blockquote>
+主角死了就可以复活在传送点附近了
+
+也可以用那个钩子道具直接脱离迷宫，不过没带就没办法了
+

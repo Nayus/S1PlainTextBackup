@@ -677,3 +677,13 @@ ed舒服不少
 
 3集了还没摸清基调.......
 
+
+*****
+
+####  ParadiseMartyr  
+##### 60#       发表于 2024-10-17 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66476890&amp;ptid=2193318" target="_blank">狮子咕 发表于 2024-10-17 23:01</a>
+这奇怪的设定……这么轻松化fx战士的？隔壁韭留美看完羡慕哭了，感觉奇怪的烂片雷达开始响起来了 ...</blockquote>
+烂也烂不到哪儿去吧
+

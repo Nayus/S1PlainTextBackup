@@ -15284,3 +15284,29 @@ live有动画先行放送倒是很不错
 
 通常這種大場地側邊都還會有小螢幕
 
+
+*****
+
+####  浅草若旦那  
+##### 24978#       发表于 2024-10-17 23:27
+
+喵梦是大灯坐时间机器回来拯救祥子的，结果穿越回来失忆了转职美妆博主
+
+
+*****
+
+####  alialex  
+##### 24979#       发表于 2024-10-17 23:31
+
+虽然几个人的精神都不太对，但只初华硬是没有破防颜的稳定感
+
+*****
+
+####  玖羽  
+##### 24980#       发表于 2024-10-17 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66477126&amp;ptid=2159415" target="_blank">alialex 发表于 2024-10-17 23:31</a>
+
+虽然几个人的精神都不太对，但只初华硬是没有破防颜的稳定感</blockquote>
+稳定感：面具以下日常破防状态<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+

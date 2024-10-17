@@ -14582,3 +14582,197 @@ pv里是萝莉喵梦吗</blockquote>
 
 病娇都来了，差不多得了
 
+
+*****
+
+####  KirigawaMaki  
+##### 24917#       发表于 2024-10-17 22:15
+
+话说那么早放送，海铃的生日卡是不是大概率明年就能看到了
+
+*****
+
+####  ydsbbt  
+##### 24918#       发表于 2024-10-17 22:15
+
+狂按7，这两个画面会不会是类似的场景
+
+<img src="https://img.saraba1st.com/forum/202410/17/221501iqbyoakheoy6qeyb.jpg" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2024-10-17_22-13-43.jpg</strong> (57.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-17 22:15 上传
+
+<img src="https://img.saraba1st.com/forum/202410/17/221508y4g7qgwgrtz6agg6.jpg" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2024-10-17_22-14-46.jpg</strong> (69.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-17 22:15 上传
+
+*****
+
+####  玖羽  
+##### 24919#       发表于 2024-10-17 22:19
+
+调亮之后很有意思，明显是豪宅的房间内部，但是门上装着锁
+
+<img src="https://img.saraba1st.com/forum/202410/17/221751z778jj9octjyuhcl.jpg" referrerpolicy="no-referrer">
+
+<strong>009.jpg</strong> (39.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-17 22:17 上传
+
+人偶应该是摆在祥子破房子的壁橱里
+
+<img src="https://img.saraba1st.com/forum/202410/17/221751d3ettckqek7cv3qu.jpg" referrerpolicy="no-referrer">
+
+<strong>010.jpg</strong> (35.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-17 22:17 上传
+
+
+*****
+
+####  滑稽Captain  
+##### 24920#       发表于 2024-10-17 22:20
+
+搞线下活动放映会在现在的大陆是真的很难过审，去不了的只能各显神通等盗摄看吧（
+
+
+*****
+
+####  友情的结晶  
+##### 24921#       发表于 2024-10-17 22:20
+
+睦有单独的镜头了。睦父母都成名已久感觉不需要这种演员入门级别的书，目前也没看出来她父母在推她进演艺圈。这个环境色说是初华的也不是不可能
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  PDQ4  
+##### 24922#       发表于 2024-10-17 22:20
+
+书的话全是妈的书也有可能，睦看到架子感到压力，具体怎么样不好说
+
+*****
+
+####  ytttsuuuba  
+##### 24923#       发表于 2024-10-17 22:22
+
+PV真是挤牙膏。那个门不知道是谁家的。
+
+*****
+
+####  skives10  
+##### 24924#       发表于 2024-10-17 22:23
+
+也许森美奈美是典中典东亚妈
+
+*****
+
+####  玖羽  
+##### 24925#       发表于 2024-10-17 22:23
+
+按照出现顺序，演技书显然对应睦
+
+<img src="https://img.saraba1st.com/forum/202410/17/222248po0wcxu2wc0fju0w.jpg" referrerpolicy="no-referrer">
+
+<strong>001.jpg</strong> (43.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-17 22:22 上传
+
+<img src="https://img.saraba1st.com/forum/202410/17/222248qqasa5v5a55ssj5z.jpg" referrerpolicy="no-referrer">
+
+<strong>002.jpg</strong> (58.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-17 22:22 上传
+
+<img src="https://img.saraba1st.com/forum/202410/17/222249gdkfard8885dbhb3.jpg" referrerpolicy="no-referrer">
+
+<strong>003.jpg</strong> (57.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-17 22:22 上传
+
+<img src="https://img.saraba1st.com/forum/202410/17/222250q3llt3whc77sstr1.jpg" referrerpolicy="no-referrer">
+
+<strong>004.jpg</strong> (68.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-17 22:22 上传
+
+<img src="https://img.saraba1st.com/forum/202410/17/222250twi16ttz1wjwrw1i.jpg" referrerpolicy="no-referrer">
+
+<strong>005.jpg</strong> (41.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-17 22:22 上传
+
+<img src="https://img.saraba1st.com/forum/202410/17/222251mwpw4pw666jpdc6p.jpg" referrerpolicy="no-referrer">
+
+<strong>006.jpg</strong> (25.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-17 22:22 上传
+
+<img src="https://img.saraba1st.com/forum/202410/17/222251y4b6ub6j2xn8uxmx.jpg" referrerpolicy="no-referrer">
+
+<strong>007.jpg</strong> (51.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-17 22:22 上传
+
+<img src="https://img.saraba1st.com/forum/202410/17/222252m7pfi1k5156l51p5.jpg" referrerpolicy="no-referrer">
+
+<strong>008.jpg</strong> (62.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-17 22:22 上传
+
+*****
+
+####  ytttsuuuba  
+##### 24926#       发表于 2024-10-17 22:24
+
+那我第一个想到的就是MFY妈<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 24927#       发表于 2024-10-17 22:24
+
+祥子狂按777777
+
+*****
+
+####  dqtql  
+##### 24928#       发表于 2024-10-17 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66476419&amp;ptid=2159415" target="_blank">skives10 发表于 2024-10-17 22:11</a>
+
+12/1全世界先行放送
+
+12/15的4th放动画第一集
+
+同步tv放送出漫画</blockquote>
+这种续作还能大爆的吗？吸引不到路人顶多粉丝圈内大爆
+

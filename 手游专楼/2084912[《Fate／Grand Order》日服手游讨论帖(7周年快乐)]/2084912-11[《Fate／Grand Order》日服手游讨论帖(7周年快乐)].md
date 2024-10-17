@@ -670,3 +670,29 @@ ex阶都比常规职阶多了。真不如再起一排
 本来300石不报希望了
 结果70抽出了嫁狐和蔓藤，赚了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 14992#       发表于 2024-10-17 12:30
+
+当你在EX阶找DB/蔓藤助战时，请回忆如何区分水摩和C呆：
+
+<img src="https://img.saraba1st.com/forum/202410/17/123004gqxdtzcgvncdxto0.png" referrerpolicy="no-referrer">
+
+<strong>1729139333010.png</strong> (22.5 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-10-17 12:30 上传
+
+<img src="https://img.saraba1st.com/forum/202410/17/123004bd3bg9s911i9r17v.png" referrerpolicy="no-referrer">
+
+<strong>1729139335683.png</strong> (20.39 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-10-17 12:30 上传
+

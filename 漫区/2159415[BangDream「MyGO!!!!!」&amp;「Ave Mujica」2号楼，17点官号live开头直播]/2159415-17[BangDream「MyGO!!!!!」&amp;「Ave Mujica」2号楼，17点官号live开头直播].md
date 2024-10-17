@@ -14134,3 +14134,11 @@ solo果然是高尾原创（？）的，休息的时候弹了下前奏，然后p
 
 於是高尾就想了下怎麼彈這段key solo，最終表演了出來。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  六道明  
+##### 24870#       发表于 2024-10-17 21:35
+
+笑死，新情报——ether mv
+

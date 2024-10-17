@@ -312,3 +312,25 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 不是这捡装备时的qte能tmd取消么，老子光教程捡装备都能死好几次
 
+
+*****
+
+####  elven119  
+##### 80#         楼主| 发表于 2024-10-17 15:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66473406&amp;ptid=2156352" target="_blank">yj98879 发表于 2024-10-17 15:28</a>
+
+不是这捡装备时的qte能tmd取消么，，掉血就算了，还得中个麻痹。老子光教程捡装备都能死好几次 ...</blockquote>
+傻逼制作组觉得猜宝箱陷阱难度太高，自作聪明给了个qte。结果这玩意儿比猜陷阱还恶心
+
+
+*****
+
+####  yj98879  
+##### 81#       发表于 2024-10-17 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66473481&amp;ptid=2156352" target="_blank">elven119 发表于 2024-10-17 15:37</a>
+
+傻逼制作组觉得猜宝箱陷阱难度太高，自作聪明给了个qte。结果这玩意儿比猜陷阱还恶心 ...</blockquote>
+只能说制作组开心就好了，这么抽象的开局教程也是没谁了，更何况还是个手游
+

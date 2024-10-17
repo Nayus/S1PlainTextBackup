@@ -814,3 +814,11 @@ ex阶都比常规职阶多了。真不如再起一排
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  xiongxingyu  
+##### 15000#       发表于 2024-10-17 15:42
+
+等等，这个穆里安的灵衣有立绘有建模有卡面，甚至还有独立的宝具动画特写，这不完全就是男性从者泳装灵衣的规格吗？到底哪里简易了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

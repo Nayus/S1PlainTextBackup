@@ -13049,3 +13049,13 @@ Hard难度通关了，最满意的就是战斗系统，其他的感觉都挺一�
 
 我强烈怀疑桥野桂是看了《国王排名》才有了暗喻幻想的创作灵感。《国王排名》是十日草辅于2017年5月20日起在漫画投稿网站“Manga Hack”上连载的漫画。
 
+
+*****
+
+####  蓝雉  
+##### 2719#       发表于 2024-10-17 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66474253&amp;ptid=2140224" target="_blank">kuarwbwe 发表于 2024-10-17 17:10</a>
+这游戏把游戏文本做进建模了，太智障了。8年不会有两年花在这上面了吧？</blockquote>
+能信的多少带点…
+

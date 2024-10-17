@@ -12531,3 +12531,12 @@ hard难度打boss总是要死人吃不到经验值有点不爽
 
 —— 来自 samsung SM-S9180, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  blz436  
+##### 2673#       发表于 2024-10-17 12:51
+
+进度到9月刚解咒，听说贵族bro最终阿基态有高级斩强化，是不是直接跃升唯一指定物理一哥了？我现在的档主角堆力运战士系拉满bro跑去当灵魂骇客/军师buff机，跟原型反着来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+感觉得提前做好转型准备
+

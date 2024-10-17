@@ -1811,3 +1811,27 @@ Screenshot_20241010_133957.jpg
 
 这下不得不怀疑鸿潞和通灵宝玉以及郊区的关系了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Yuzutea  
+##### 934#       发表于 2024-10-17 12:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难得抽个普通池子抽出来还没角色碎片四破
+
+早知道上赛季末不把箱子全开了给ego全四破了
+
+*****
+
+####  Yuzutea  
+##### 935#       发表于 2024-10-17 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66459703&amp;ptid=2120922" target="_blank">salic428 发表于 2024-10-15 21:38</a>
+
+沉沦是这样的，打20区包道中的有理智小怪一打一个不吭声
+
+四级饰品（美感）部分解决了这个问题，但我都开局 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">沉沦优势就是不拿四级点数够硬吧
+
+充能补强前的人格池子来说流血之外除了沉沦和呼吸开局不星光拿四级饰品点数真有点搞笑的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

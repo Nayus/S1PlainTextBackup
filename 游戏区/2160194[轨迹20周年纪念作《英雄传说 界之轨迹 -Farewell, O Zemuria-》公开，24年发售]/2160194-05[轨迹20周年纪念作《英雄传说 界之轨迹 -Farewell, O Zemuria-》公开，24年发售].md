@@ -7161,3 +7161,11 @@ staff里一定有人看过别当哥的温泉回
 
 5000敌人那个前面刷得勤点很快就拿到了，最慢还是那个2000次sclm连锁<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aimujie  
+##### 6598#       发表于 2024-10-17 12:48
+
+强迫症表示战斗手册上不能有重试和战斗不能，带即死技能的boss连战+不能换装备的客座角色简直是噩梦<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

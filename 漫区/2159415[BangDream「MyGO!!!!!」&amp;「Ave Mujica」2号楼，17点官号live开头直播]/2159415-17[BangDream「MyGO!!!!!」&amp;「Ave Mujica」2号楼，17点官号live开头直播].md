@@ -15477,3 +15477,18 @@ pv欺诈这种东西骗的就是你这样的观众<img src="https://static.sarab
 最感慨应该掌握一门外语的一集.jpg ...</blockquote>
 今天開始學日文.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 24998#       发表于 2024-10-18 00:46
+
+海铃可能前队友里有sayo plus，但是其他队友没有亚子的抗压能力<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 24999#       发表于 2024-10-18 00:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也可能是成长期海玲被嫌弃太菜然后被踢了
+

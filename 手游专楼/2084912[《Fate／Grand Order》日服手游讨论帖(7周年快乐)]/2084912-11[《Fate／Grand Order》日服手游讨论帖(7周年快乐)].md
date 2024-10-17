@@ -575,3 +575,41 @@ ALL IN王哈 无事发生 现在就突出一个后悔 能退我石头吗</blockq
 
 双蔓藤绿弱100%，降防100%
 
+
+*****
+
+####  怀特布莱克  
+##### 14982#       发表于 2024-10-17 08:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66469622&amp;ptid=2084912" target="_blank">シャル 发表于 2024-10-17 08:11</a>
+兽外万物特攻啊
+
+同阶特攻75%</blockquote>
+同职介的话是白字吗，白字万物特攻也就那样吧
+
+
+*****
+
+####  TheLoof  
+##### 14983#       发表于 2024-10-17 08:32
+
+说一千道一万，除了外星人打其他职介就是亏伤害
+
+兽蕾还能叠出万物1500%宝具倍率呢，你看有人理她吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  シャル  
+##### 14984#       发表于 2024-10-17 08:34
+
+ 本帖最后由 シャル 于 2024-10-17 08:35 编辑 
+<blockquote>怀特布莱克 发表于 2024-10-17 08:27
+同职介的话是白字吗，白字万物特攻也就那样吧</blockquote>
+
+白字75%特攻
+
+等于加了黑圣杯啊
+
+当然比红字高
+

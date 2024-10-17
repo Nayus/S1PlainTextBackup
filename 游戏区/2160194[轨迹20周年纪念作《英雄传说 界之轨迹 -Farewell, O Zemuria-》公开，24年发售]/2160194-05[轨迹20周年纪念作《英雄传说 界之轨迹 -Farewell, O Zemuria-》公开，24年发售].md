@@ -7131,3 +7131,25 @@ staff里一定有人看过别当哥的温泉回
 
 说来前面那个肉夹馍任务如果不做，终章的摊位还会卖新开发的肉夹馍吗？
 
+
+*****
+
+####  洛克萨斯  
+##### 6595#       发表于 2024-10-17 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66469273&amp;ptid=2160194" target="_blank">jacket 发表于 2024-10-17 02:28</a>
+
+不开防御不开减伤技能的话boss还是会秒人的，只顾着输出大意了几次，不过这系列如今已经没有死亡惩罚了，终 ...</blockquote>
+死亡惩罚以前也就记录而已吧，没有实质性的惩罚啊
+
+
+*****
+
+####  jacket  
+##### 6596#       发表于 2024-10-17 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66470408&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-10-17 09:49</a>
+
+死亡惩罚以前也就记录而已吧，没有实质性的惩罚啊</blockquote>
+我记得最开始是单章死亡没S评价，所以才养成习惯，逐渐发展到如今没有任何影响。
+

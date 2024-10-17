@@ -15187,3 +15187,100 @@ PV真是挤牙膏。那个门不知道是谁家的。
 
 难道真的五人过去都藕断丝连<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 24970#       发表于 2024-10-17 23:16
+
+看明白了吗？啊？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202410/17/231621sxx8ls8z48nt484i.png" referrerpolicy="no-referrer">
+
+<strong>EX{P(OTZ8%OG`D_3EIC7PEP.png</strong> (74.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-17 23:16 上传
+
+*****
+
+####  御幸一也  
+##### 24971#       发表于 2024-10-17 23:17
+
+畢竟是背負了人生的真正的命運共同體<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 24972#       发表于 2024-10-17 23:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么会幻视，你们连灯长什么样都不知道吗
+
+<img src="https://img.saraba1st.com/forum/202410/17/231933pxxbb2u4y59byzfx.jpg" referrerpolicy="no-referrer">
+
+<strong>20241018001852.jpg</strong> (12.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-17 23:19 上传
+
+<img src="https://img.saraba1st.com/forum/202410/17/232120m3nvhvvv5151sn2q.jpg" referrerpolicy="no-referrer">
+
+<strong>20241018002108.jpg</strong> (13.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-17 23:21 上传
+
+*****
+
+####  kirir192  
+##### 24973#       发表于 2024-10-17 23:21
+
+看到op标题名兴奋了一下，看到长谷川的名字直接心死了...希望别太拉，毕竟要听一季度动画...
+
+*****
+
+####  skives10  
+##### 24974#       发表于 2024-10-17 23:21
+
+live有动画先行放送倒是很不错
+
+不过这边上的位置感觉会看不清屏幕啊
+
+<img src="https://img.saraba1st.com/forum/202410/17/232133nyyk3uhwabbyafb5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3764.jpeg</strong> (585.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-17 23:21 上传
+
+*****
+
+####  星天观测  
+##### 24975#       发表于 2024-10-17 23:22
+
+ 本帖最后由 星天观测 于 2024-10-17 23:25 编辑 
+
+  好像之前说过关于鸡专楼的问题，现在放送时间定了可以开 了吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 24976#       发表于 2024-10-17 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66477051&amp;ptid=2159415" target="_blank">kirir192 发表于 2024-10-17 23:21</a>
+看到op标题名兴奋了一下，看到长谷川的名字直接心死了...希望别太拉，毕竟要听一季度动画... ...</blockquote>
+卖狗的op倒也是长谷川作曲的 还行
+希望至少中规中矩吧<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yifan8848  
+##### 24977#       发表于 2024-10-17 23:25
+
+通常這種大場地側邊都還會有小螢幕
+

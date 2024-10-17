@@ -1037,3 +1037,11 @@ DEMO更新了，调了很多东西，看来正式版数值也会调很多挺好�
 请问魂系的系统和怪猎系的区别是什么？我没玩过魂系。 ...</blockquote>
 RPG和ACT的区别~~
 
+
+*****
+
+####  roxassix  
+##### 108#       发表于 2024-10-17 21:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">sd太卡了 之后会有优化吗
+

@@ -572,3 +572,13 @@ solas我真是一直不理解的，不过现在也有点点理解了，这就属
 
 捏人丑可以指望美化mod救一下，其他方面拉了就完了，说实话现在最没信心的就是这部分<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  roydimus  
+##### 654#       发表于 2024-10-17 21:51
+
+战斗部分看起来还可以，文本别像仙女座一样烂就行了
+
+— from Sony XQ-DQ72, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2
+

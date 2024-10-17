@@ -14228,3 +14228,97 @@ solo果然是高尾原创（？）的，休息的时候弹了下前奏，然后p
 
 只有15分钟不到了
 
+
+*****
+
+####  PDQ4  
+##### 24880#       发表于 2024-10-17 21:49
+
+袍子还是有不一样的，虽然只有一点点<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 24881#       发表于 2024-10-17 21:51
+
+<img src="https://img.saraba1st.com/forum/202410/17/215116nntqlb6x02e5zgvx.jpg" referrerpolicy="no-referrer">
+
+<strong>バンドリ！発表会 For 2025 60-23 screenshot.jpg</strong> (322.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-17 21:51 上传
+
+*****
+
+####  rikaren  
+##### 24882#       发表于 2024-10-17 21:51
+
+漫画？？？？
+
+
+*****
+
+####  PDQ4  
+##### 24883#       发表于 2024-10-17 21:52
+
+1.2好好好
+
+*****
+
+####  御幸一也  
+##### 24884#       发表于 2024-10-17 21:53
+
+<img src="https://img.saraba1st.com/forum/202410/17/215308qxejxfgvjgd5ijir.png" referrerpolicy="no-referrer">
+
+<strong>バンドリ！発表会 For 2025 1-2-9 screenshot.png</strong> (2.01 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-17 21:53 上传
+
+*****
+
+####  uhiuk  
+##### 24885#       发表于 2024-10-17 21:53
+
+人偶和紧闭的大门有些哈人了
+
+*****
+
+####  rikaren  
+##### 24886#       发表于 2024-10-17 21:53
+
+坏消息：新片段很短
+
+好消息：1.2开始放送
+
+*****
+
+####  dqtql  
+##### 24887#       发表于 2024-10-17 21:54
+
+新pv内容主打一个挤牙膏
+
+*****
+
+####  御幸一也  
+##### 24888#       发表于 2024-10-17 21:55
+
+<img src="https://img.saraba1st.com/forum/202410/17/215455vdl9ad9z7f8ihi9i.png" referrerpolicy="no-referrer">
+
+<strong>バンドリ！発表会 For 2025 1-3-8 screenshot.png</strong> (2.5 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-17 21:54 上传
+
+*****
+
+####  PDQ4  
+##### 24889#       发表于 2024-10-17 21:57
+
+一次性喂这么多
+好吓人
+

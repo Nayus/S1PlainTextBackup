@@ -15531,3 +15531,14 @@ pv欺诈这种东西骗的就是你这样的观众<img src="https://static.sarab
 
 而mujica是跟什么新手游或者全新载体发布有关系吗？ 
 
+
+*****
+
+####  11A511  
+##### 25004#       发表于 2024-10-18 01:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66477754&amp;ptid=2159415" target="_blank">kojima34 发表于 2024-10-18 01:01</a>
+
+你好像完全忽略了马娘2动画跟马娘手游上线是同一时期的事这个决定性要素。在那个时候，马娘2动画的定位更 ...</blockquote>
+马娘手游在第二季第八话推出，首周已经爆火取得20亿流水，很难说马娘第二季没有手游就不会爆红，何况第一季的这些角色在手游里人气也不差
+

@@ -12354,3 +12354,44 @@ hard难度打boss总是要死人吃不到经验值有点不爽
 考虑到暗喻是第三招牌会变成系列作，暗喻2你们会第一时间入吗</blockquote>
 先看P6和P6后一作，他要连着两作还这逼样我估计就直接把他家拉黑了。哪还有暗喻2的事。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星野航  
+##### 2657#       发表于 2024-10-17 09:58
+
+那我觉得可以不用看p6，和田什么尿性还需要看p6？直接给atlus判死刑都行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+今年有vv出，atlus就有底气，没啥可说的。暗喻这东西，我看最大的问题就是设计不协调。昨天我找资料看到不少0组早期设定内容，那玩意跟现在的东西完全两回事。中间为什么做成这样可能是这游戏现在症结所在。
+
+技术力的问题其实好解决，vv跟3r都能上虚幻，你说桥野桂带队就上不了虚幻？这不是纯扯。解决了技术问题，这游戏卖相就好看多了。
+
+至于设计上的问题还有所谓rpg.jp的问题，我觉得不是桥野桂跟atlus能解决的了，如果sega想要拿暗喻当摇钱树，那怎么也不可能作出rpg.jp<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  汪达  
+##### 2658#       发表于 2024-10-17 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66469664&amp;ptid=2140224" target="_blank">抽烟的猴 发表于 2024-10-17 08:19</a>
+
+考虑到暗喻是第三招牌会变成系列作，暗喻2你们会第一时间入吗</blockquote>
+还是200出头交个朋友的价格肯定入啊，虽然画面比较“复古”但是玩起来体验不错
+
+当年的JRPG，最喜欢的职业系统就是DQ6、DQ7的，职业又多还有各种组合进阶，培养出强力职业后很有成就感，要我说如今能接近这种体验的还真就是暗喻幻想了
+
+
+*****
+
+####  星野航  
+##### 2659#       发表于 2024-10-17 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66469254&amp;ptid=2140224" target="_blank">杜文乐超神归来 发表于 2024-10-17 03:17</a>
+
+路易战斗表现真的很路边吧，一直在吹武力魔法天下无双，本来我的预期是各种大魔法和武技糊脸。结果打起来魔 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有个底裤挽尊法就是，人家嘴上说得就是，你们上几个人我都无所谓
+
+死了就是操盘侠，我根本不屑在这里展露真实实力
+
+说到底还是拿脚本跟游戏性对比，这本来就存在错位
+

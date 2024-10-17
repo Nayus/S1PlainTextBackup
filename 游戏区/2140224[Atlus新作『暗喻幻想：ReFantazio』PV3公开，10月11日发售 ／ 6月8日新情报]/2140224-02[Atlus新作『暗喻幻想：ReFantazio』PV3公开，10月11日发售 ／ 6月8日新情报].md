@@ -12511,3 +12511,13 @@ hard难度打boss总是要死人吃不到经验值有点不爽
 不是有挖出黑皮进队内容吗？被砍了吧。</blockquote>
 等皇家版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  是谁的书画  
+##### 2671#       发表于 2024-10-17 11:49
+
+粉毛猫一个大飞脚踹了boss大半管血，要是以后成了王家拳师不知战斗力几何<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+会不会一拳能把自己打半死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

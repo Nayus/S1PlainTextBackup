@@ -421,3 +421,28 @@ solas我真是一直不理解的，不过现在也有点点理解了，这就属
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  woaimiyabi  
+##### 650#       发表于 2024-10-17 19:18
+
+娜芙确实稍微能看
+
+1293802f0708283826a3a130fe99a9014d08f150 (1).jpg
+(175.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-17 19:18 上传
+
+<img src="https://img.saraba1st.com/forum/202410/17/191810zfi8l0wkkjagkbqk.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Edvinno  
+##### 651#       发表于 2024-10-17 19:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那要是感觉女玩家大部分都是这种xp也行吧，反正我指定不行。囧a可以，库伦可以，索拉斯至少他是个传统精灵，这作的男队友只能祝他成功。
+

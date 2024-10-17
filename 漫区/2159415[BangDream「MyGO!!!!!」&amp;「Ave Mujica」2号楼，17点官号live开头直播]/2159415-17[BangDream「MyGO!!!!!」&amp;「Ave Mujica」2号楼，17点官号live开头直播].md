@@ -15558,3 +15558,105 @@ pv欺诈这种东西骗的就是你这样的观众<img src="https://static.sarab
 
 光看手不就知道是喵梦吗？还有某些意见领袖也别一顺风就上群体护盾了好吧？你楼当初爆典的时候有鸡友替狗和纸片人说过一句话吗？真当自己冰清玉洁呀，也不是不行，如果你对标的是sbylg那确实
 
+
+*****
+
+####  御幸一也  
+##### 25007#       发表于 2024-10-18 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66477579&amp;ptid=2159415" target="_blank">前方暴雨预警 发表于 2024-10-18 00:31</a>
+
+虽然应该可以在武藏野看，但日语听不懂啦
+
+最感慨应该掌握一门外语的一集.jpg ...</blockquote>
+今天開始學日文.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 25008#       发表于 2024-10-18 00:46
+
+海铃可能前队友里有sayo plus，但是其他队友没有亚子的抗压能力<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 25009#       发表于 2024-10-18 00:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也可能是成长期海玲被嫌弃太菜然后被踢了
+
+*****
+
+####  11A511  
+##### 25010#       发表于 2024-10-18 00:54
+
+3rd小剧场中背叛她的是“海之精灵“，我觉得应该不是指一只特定乐队？可能是她试图向支援的乐队奉献真心却被没有收到对应的回应，感到被背叛
+
+*****
+
+####  玖羽  
+##### 25011#       发表于 2024-10-18 00:57
+
+ 本帖最后由 玖羽 于 2024-10-18 02:25 编辑 
+
+我猜测，能让海铃露出如此美味的表情，应该是非常严重的问题
+
+这也能完美解释海铃为何游走于三十个乐队，原来不是不想加入，而是不敢加入（Timoris毋惧恐惧……）
+
+但是海铃为什么又愿意跟Ave Mujica一辈子，说到底Ave Mujica为什么要一辈子，只能等动画揭示
+
+*****
+
+####  akiomn  
+##### 25012#       发表于 2024-10-18 00:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太美味啦小喵梦，就好这口道心破碎啊
+
+*****
+
+####  kojima34  
+##### 25013#       发表于 2024-10-18 01:01
+
+<blockquote>ytttsuuuba 发表于 2024-10-17 22:40
+大爆不是没可能啊，像马娘2不管是成绩还是口碑都做到了远超1的大爆吧</blockquote>
+你好像完全忽略了马娘2动画跟马娘手游上线是同一时期的事这个决定性要素。在那个时候，马娘2动画的定位更多是新手游的广告片，而不是马娘1的续作。
+
+而mujica是跟什么新手游或者全新载体发布有关系吗？ 
+
+*****
+
+####  11A511  
+##### 25014#       发表于 2024-10-18 01:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66477754&amp;ptid=2159415" target="_blank">kojima34 发表于 2024-10-18 01:01</a>
+
+你好像完全忽略了马娘2动画跟马娘手游上线是同一时期的事这个决定性要素。在那个时候，马娘2动画的定位更 ...</blockquote>
+马娘手游在第二季第八话推出，首周已经爆火取得20亿流水，很难说马娘第二季没有手游就不会爆红，何况第一季的这些角色在手游里人气也不差
+
+*****
+
+####  阿萨德飞过去  
+##### 25015#       发表于 2024-10-18 01:35
+
+好满足<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">，那么正式pv什么时候发
+
+*****
+
+####  安洁莉娜  
+##### 25016#       发表于 2024-10-18 02:33
+
+光看手不就知道是喵梦吗？还有某些意见领袖也别一顺风就上群体护盾了好吧？你楼当初爆典的时候有鸡友替狗和纸片人说过一句话吗？真当自己冰清玉洁呀，也不是不行，如果你对标的是sbylg那确实
+
+*****
+
+####  oznark  
+##### 25017#       发表于 2024-10-18 06:04
+
+<img src="https://img.saraba1st.com/forum/202410/17/150442szdjn4dxn4dzn4nu.png" referrerpolicy="no-referrer">
+
+<strong>]B5C4}1PER(9XD@I__KGBFA.png</strong> (411.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-18 06:04 上传
+

@@ -13342,3 +13342,15 @@ Hard难度通关了，最满意的就是战斗系统，其他的感觉都挺一�
 
 不过H难度下你最好当给敌方上异常这个系统不存在
 
+
+*****
+
+####  windtrack  
+##### 2747#       发表于 2024-10-18 02:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66476394&amp;ptid=2140224" target="_blank">horacio 发表于 2024-10-17 22:08</a>
+糖蜂蜜怎么拿到的，我看上面说会被篝火吸引，我天天跑营地都没遇到过，前面的都被我用掉了，还缺一个 ...</blockquote>
+开车野外露营篝火随机出，打扫（我记得好像是甲板）也会出
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

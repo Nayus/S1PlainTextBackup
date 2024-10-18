@@ -16648,3 +16648,51 @@ live上的先行放送是线下限定才是正常情况
 
 当然这种事讨论也没结果，到时候再看了，反正就算没有再等半个月也播了
 
+
+*****
+
+####  六道明  
+##### 25092#       发表于 2024-10-18 16:04
+
+<img src="https://img.saraba1st.com/forum/202410/18/160050mlyycl4nlhyjs8a4.jpg" referrerpolicy="no-referrer">
+
+<strong>1729238402543.jpg</strong> (71.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-18 16:00 上传
+
+emmmm
+
+*****
+
+####  玖羽  
+##### 25093#       发表于 2024-10-18 16:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202410/18/160618rcvkg6knf8n66jti.jpg" referrerpolicy="no-referrer">
+
+<strong>02.jpg</strong> (45.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-18 16:06 上传
+
+*****
+
+####  skives10  
+##### 25094#       发表于 2024-10-18 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66483078&amp;ptid=2159415" target="_blank">六道明 发表于 2024-10-18 16:04</a>
+emmmm</blockquote>
+不光是鞋 还连着袜子吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 25095#       发表于 2024-10-18 16:11
+
+有种内个吧打过来了的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

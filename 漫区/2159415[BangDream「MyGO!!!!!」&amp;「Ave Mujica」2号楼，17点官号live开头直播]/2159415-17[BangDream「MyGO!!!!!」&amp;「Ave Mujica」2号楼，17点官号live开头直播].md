@@ -16922,3 +16922,11 @@ Ave M ...</blockquote>
 
 感興趣的樓友可以馬上行動起來，也沒有很麻煩的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  哈曼的YY  
+##### 25107#       发表于 2024-10-18 18:49
+
+这画师画的人感觉很像祥老师的玩偶
+

@@ -538,3 +538,15 @@ https://www.zhihu.co ...</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  birdma  
+##### 57#       发表于 2024-10-18 18:50
+
+<blockquote>ondin 发表于 2024-10-18 16:22
+好家伙，别的脱口秀演员活该倒霉是吧
+
+—— 来自 S1Fun</blockquote>
+目前脱口秀这个以笑果为首的行业怕都是屁股不正，真不如推平了重新来一遍
+

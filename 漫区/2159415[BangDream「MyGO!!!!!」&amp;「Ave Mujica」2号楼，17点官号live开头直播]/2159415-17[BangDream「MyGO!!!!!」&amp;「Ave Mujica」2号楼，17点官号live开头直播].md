@@ -17262,3 +17262,18 @@ solace of foregetting 有点意思
 
 https://x.com/this_is_nn/status/1847205741788295484?s=46&amp;t=IZGx0N13SOtHALpwG0Ubrg
 
+
+*****
+
+####  玖羽  
+##### 25139#       发表于 2024-10-19 00:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66477641&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-10-18 00:40</a>
+
+海铃被原乐队背叛（暴论</blockquote>
+我忽略了一个设定，访谈里说过海铃的目的是靠音乐自立<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> 
+
+跟背叛掺和起来，有没有可能是ykn剧本，海铃认为父/母/双亲放弃音乐是背叛
+
+家里不让搞音乐也有可能，但是太老套了，我认为这种可能性比较小
+

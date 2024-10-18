@@ -16971,3 +16971,35 @@ Ave M ...</blockquote>
 </blockquote>
 演技书是喵梦的可能性大增
 
+
+*****
+
+####  桜庭千景  
+##### 25113#       发表于 2024-10-18 20:06
+
+<img src="https://img.saraba1st.com/forum/202410/18/200543lpcsamsiscb9dsxa.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1255347624280844.jpg</strong> (119.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-18 20:05 上传
+
+反子转发了mujica的pv，明年sumimi大概还有一定戏份
+
+*****
+
+####  skives10  
+##### 25114#       发表于 2024-10-18 20:06
+
+等待mana小姐的精彩表现<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 25115#       发表于 2024-10-18 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66485373&amp;ptid=2159415" target="_blank">NODY 发表于 2024-10-18 19:59</a>
+这个2.9w粉画得还不如以太那个4900粉好看</blockquote>
+我把母鸡卡每个mv的曲绘画师都关注了 有些人画自己的oc时真的很正常 但一画母鸡卡就发病<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

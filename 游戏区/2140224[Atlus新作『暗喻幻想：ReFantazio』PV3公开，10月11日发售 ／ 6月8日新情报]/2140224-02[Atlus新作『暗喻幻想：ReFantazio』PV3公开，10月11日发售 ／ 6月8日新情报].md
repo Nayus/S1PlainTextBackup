@@ -13640,3 +13640,18 @@ atlus你这技术力连个单独的demo做不来，原来都有学习版了啊<i
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  星野航  
+##### 2775#       发表于 2024-10-18 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66485360&amp;ptid=2140224" target="_blank">半江瑟瑟半江红 发表于 2024-10-18 20:57</a>
+
+这游戏真有100小时体量吗？我第四章主线迷宫快打完了还不到40小时，这其中还有不少时间浪费在竞技场里了
+
+ ...</blockquote>
+没有，h难度全支线，正常速度阅读文本不跳过场最多60+吧
+
+当然刷刷级墨迹墨迹也就70
+

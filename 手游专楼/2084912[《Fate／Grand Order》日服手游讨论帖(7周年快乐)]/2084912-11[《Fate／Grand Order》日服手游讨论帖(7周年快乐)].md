@@ -990,3 +990,35 @@ ex阶都比常规职阶多了。真不如再起一排
 友情池不是加月之王的出货率么，我抽了一个小时都没有</blockquote>
 有两个友情池，平常的友情池不UP。另一个UP的友情池不会出SABERLILY和哈贝特洛特
 
+
+*****
+
+####  洛克萨斯  
+##### 15014#       发表于 2024-10-18 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66482450&amp;ptid=2084912" target="_blank">希望之花 发表于 2024-10-18 15:08</a>
+
+月之王概率UP的池子在普通友情池左边，是新开的一个卡池</blockquote>
+对啊，我就是选有月之王那个友情池
+
+*****
+
+####  希望之花  
+##### 15015#       发表于 2024-10-18 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66482622&amp;ptid=2084912" target="_blank">洛克萨斯 发表于 2024-10-18 15:25</a>
+
+对啊，我就是选有月之王那个友情池</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">那个按理说十几万点下去就能出的
+
+
+*****
+
+####  洛克萨斯  
+##### 15016#       发表于 2024-10-18 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66482680&amp;ptid=2084912" target="_blank">希望之花 发表于 2024-10-18 15:29</a>
+
+那个按理说十几万点下去就能出的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所以才来论坛问，惊呆了，毛都没有
+

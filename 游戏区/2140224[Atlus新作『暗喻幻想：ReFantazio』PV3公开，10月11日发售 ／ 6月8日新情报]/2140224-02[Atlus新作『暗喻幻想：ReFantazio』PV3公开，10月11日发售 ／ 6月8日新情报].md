@@ -13506,3 +13506,30 @@ atlus你这技术力连个单独的demo做不来，原来都有学习版了啊<i
 
 【雷总妙评《暗喻幻想》的迷宫设计】 [https://www.bilibili.com/video/B ... da33b18dbdfb6356b70](https://www.bilibili.com/video/BV1VLmnYgEQ6/?share_source=copy_web&amp;vd_source=18d009e3af8efda33b18dbdfb6356b70)
 
+
+*****
+
+####  汪达  
+##### 2763#       发表于 2024-10-18 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66480279&amp;ptid=2140224" target="_blank">Khellendros 发表于 2024-10-18 11:27</a>
+
+【雷总妙评《暗喻幻想》的迷宫设计】 https://www.bilibili.com/video/BV1VLmnYgEQ6/?share_source=copy_w ...</blockquote>
+这个明显没玩明白，墓地情报就说过牛头人弱点是突刺，虽然会突进，但是主角选射手远处偷袭，射四下就能打晕进战斗，我记得这玩意好像也弱冰来着？组个射手加法师或者巫师的阵容一轮秒掉就完事了，冲着食材我还专门刷了几只
+
+牛头怪的设计按理说是要等级不足的玩家适当躲着走的，我全支线打到那里觉得等级已经偏高了，这玩意还是红色图标
+
+*****
+
+####  拖鞋脚后跟  
+##### 2764#       发表于 2024-10-18 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66478015&amp;ptid=2140224" target="_blank">windtrack 发表于 2024-10-18 02:08</a>
+按A社一贯设定跟运气值有关
+
+不过H难度下你最好当给敌方上异常这个系统不存在 ...</blockquote>
+只玩过p5r的我想着“这不是简简单单？”果断选了hard...<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+顺便想请教一下，这游戏暴击率也跟运气挂钩吗？
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

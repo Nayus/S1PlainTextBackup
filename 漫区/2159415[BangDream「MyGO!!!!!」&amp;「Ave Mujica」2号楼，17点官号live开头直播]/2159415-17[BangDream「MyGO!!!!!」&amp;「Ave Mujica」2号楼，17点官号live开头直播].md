@@ -15940,3 +15940,46 @@ syl：
 
 武士道太会挤牙膏导致的<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fufusako  
+##### 25037#       发表于 2024-10-18 11:54
+
+这pv搞了套啥啊，你最好不是噱头，真的在正片里搞出点大事，否则大家胃口给吊这么高期待值拉满，到时“就这？”就完了
+
+*****
+
+####  11A511  
+##### 25038#       发表于 2024-10-18 11:57
+
+这么短的新片段，放具像化的画面又不想剧透的确不会有啥信息量
+
+不过注意到在书籍那个画面上，有竖条阴影持续的扫过，类似电车通过时的阴影，而前后都没有，不知道暗示了什么
+
+<img src="https://img.saraba1st.com/forum/202410/18/115621c7pl65mpqvo33nol.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3960.jpeg</strong> (165.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-18 11:56 上传
+
+<img src="https://img.saraba1st.com/forum/202410/18/115621ovp00ympvva3pz0y.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3954.jpeg</strong> (156.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-18 11:56 上传
+
+另外就是这次伞的数量也太多了，还是最诡异的匀速上升
+
+<img src="https://img.saraba1st.com/forum/202410/18/115724goyfoeyziwp1xizw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3957.jpeg</strong> (131.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-18 11:57 上传
+

@@ -13392,3 +13392,21 @@ Hard难度通关了，最满意的就是战斗系统，其他的感觉都挺一�
 
 这套战斗系统是有意思，但又没像真女5有那么多精英BOSS给你打，除了讨伐任务BOSS，其他迷宫精英跟人类换皮太多，打多了蓝又不够打BOSS，想换个套路玩玩又担心暴毙没存档重来，所以目前感觉虽然战斗有意思但没有真女5战斗有意思
 
+
+*****
+
+####  卡拉德利姆  
+##### 2752#       发表于 2024-10-18 08:26
+
+一个独眼巨人能换皮悬赏三遍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yangkaim4  
+##### 2753#       发表于 2024-10-18 08:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66475634&amp;ptid=2140224" target="_blank">石中剑二 发表于 2024-10-17 20:30</a>
+
+玩到大兔子🐰入队，去推墓穴，肉眼可见的不好打了，推荐几个犀利的职业组合，现在打个宝箱怪都吃力，亡灵也 ...</blockquote>
+乾坤一掷，扔钱解决一切问题
+

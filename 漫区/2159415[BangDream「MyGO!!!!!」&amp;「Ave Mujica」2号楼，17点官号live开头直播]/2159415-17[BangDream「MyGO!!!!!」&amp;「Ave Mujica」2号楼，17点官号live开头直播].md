@@ -16021,3 +16021,25 @@ syl：
 正主怎么还是只会躲啊？几个月不见你这饭味不减就罢了怎么怂劲也不减啊？还有啊，你楼里就这几号人怎么一个 ...</blockquote>
 你都睦头了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别装了吧
 
+
+*****
+
+####  akiomn  
+##### 25042#       发表于 2024-10-18 12:16
+
+ 本帖最后由 akiomn 于 2024-10-18 12:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66480558&amp;ptid=2159415" target="_blank">11A511 发表于 2024-10-18 11:57</a>
+
+这么短的新片段，放具像化的画面又不想剧透的确不会有啥信息量
+
+不过注意到在书籍那个画面上，有竖条阴影持 ...</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">整个pv里就这个伞的最意义不明，完全不明白是什么意思，舞台剧也没这效果吧，要么是op画面？或者说祥师承偶像一样出幻觉了？
+
+*****
+
+####  skives10  
+##### 25043#       发表于 2024-10-18 12:17
+
+扣个鹅都能应激 真是最脆弱的一集
+

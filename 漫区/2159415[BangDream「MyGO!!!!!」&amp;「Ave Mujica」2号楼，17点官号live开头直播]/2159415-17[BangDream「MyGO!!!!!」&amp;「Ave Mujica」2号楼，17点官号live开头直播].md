@@ -16494,3 +16494,37 @@ wsd你tm有没有好活
 
 但是不要复刻隔壁企划的妈了……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不想看这种内容
 
+
+*****
+
+####  skives10  
+##### 25077#       发表于 2024-10-18 13:37
+
+丰川箱子和森美奈美的谈判可以端上来吗
+睦不是你的人偶什么的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 25078#       发表于 2024-10-18 13:39
+
+还有就是KillKiss这个op标题真的很让人在意
+致命之吻什么的 可以期待吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 25079#       发表于 2024-10-18 13:40
+
+演员大概率就是睦相关，按照邦家长都不是恶人的定律来看，也许睦妈会强硬一段时间，但最后还是会让睦继续组乐队
+完全想不出祥子和睦妈对线的场面
+
+
+*****
+
+####  PDQ4  
+##### 25080#       发表于 2024-10-18 13:42
+
+睦妈现在还完全是盲盒，不过复刻隔壁企划的妈应该不会
+毕竟睦家女仆都对祥子小姐挺客气的，要是睦妈高压看不起乐队，怎么会开口让她参加乐队，还放失去家的祥子进门
+

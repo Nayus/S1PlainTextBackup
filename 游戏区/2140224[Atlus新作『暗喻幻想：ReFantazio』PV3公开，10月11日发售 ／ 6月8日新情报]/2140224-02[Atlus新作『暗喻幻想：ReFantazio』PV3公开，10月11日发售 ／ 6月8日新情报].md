@@ -13548,3 +13548,36 @@ atlus你这技术力连个单独的demo做不来，原来都有学习版了啊<i
  ...</blockquote>
 对，99运可以增加15%暴率
 
+
+*****
+
+####  忘却旋律  
+##### 2766#       发表于 2024-10-18 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66475827&amp;ptid=2140224" target="_blank">hugosol 发表于 2024-10-17 20:58</a>
+
+情报商说了，商人砸钱宝箱怪就会发呆，不然就是一回合能秒你全队，没什么意思的设计
+
+亡灵的话，旅人和武僧 ...</blockquote>
+是的 我特么都傻了 神特么 我光属性打上去 普通 打暗室弱点
+
+*****
+
+####  忘却旋律  
+##### 2767#       发表于 2024-10-18 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66476317&amp;ptid=2140224" target="_blank">汪达 发表于 2024-10-17 22:00</a>
+
+想刷祝福之水，可以等进入海港城市后，接一个去墓地的悬赏任务，那个墓地里有明牌的宝箱怪，打晕后进去偷 ...</blockquote>
+已近过了海港都市了 后面还有机会刷祝福水吗
+
+*****
+
+####  Lokad  
+##### 2768#       发表于 2024-10-18 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66481496&amp;ptid=2140224" target="_blank">忘却旋律 发表于 2024-10-18 13:40</a>
+
+已近过了海港都市了 后面还有机会刷祝福水吗</blockquote>
+后面记得还是有宝箱怪的，灰雨练来当闪避T经常带着就行。
+

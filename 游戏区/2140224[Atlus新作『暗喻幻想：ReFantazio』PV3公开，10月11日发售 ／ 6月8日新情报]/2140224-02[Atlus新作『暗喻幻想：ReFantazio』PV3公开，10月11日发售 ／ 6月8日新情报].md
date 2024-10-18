@@ -13581,3 +13581,16 @@ atlus你这技术力连个单独的demo做不来，原来都有学习版了啊<i
 已近过了海港都市了 后面还有机会刷祝福水吗</blockquote>
 后面记得还是有宝箱怪的，灰雨练来当闪避T经常带着就行。
 
+
+*****
+
+####  忘却旋律  
+##### 2769#       发表于 2024-10-18 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66481513&amp;ptid=2140224" target="_blank">Lokad 发表于 2024-10-18 13:42</a>
+
+后面记得还是有宝箱怪的，灰雨练来当闪避T经常带着就行。
+
+祝福水也分等级，恩宠、天宠之类有的刷了。</blockquote>
+好的  谢谢提醒
+

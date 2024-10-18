@@ -16234,3 +16234,54 @@ AUV，一个不注意，您老出来啦。
 
 后来我走了，因为也没几个狗友了，昨儿回来一看，哎呀，本来就是扣ky的鹅嘛，您一开始也是正常的，怎么人一多就忍不住了犯了病了呢？您瞧，您这一犯，我也犯了，这下彻底认识了。你这庙动不了，终归还是我走，我只是太想骂骂你嘞<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 25055#       发表于 2024-10-18 12:56
+
+ 本帖最后由 akiomn 于 2024-10-18 12:58 编辑 
+
+还有个有趣的点，pv开电视这一幕唯独少了13，mygo的13集应该是母鸡卡的第0集了
+
+其次按的是7，mygo第七集正好是祥子破防下决心组mujica那集
+
+byd这pv剪的还挺有水平
+
+E17FBD15-15D1-47B4-8230-EBDA303B7203.jpeg
+(55.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-18 12:57 上传
+
+<img src="https://img.saraba1st.com/forum/202410/18/125707gtikj55i56539936.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 25056#       发表于 2024-10-18 12:59
+
+放在丰川家可能性不高
+
+因为那些书如果是睦在看的，那大概率是睦妈留下的东西
+
+没有放在丰川家的必要
+
+至于光照颜色完全可以是演出和制作层面造成的效果
+
+*****
+
+####  rikaren  
+##### 25057#       发表于 2024-10-18 13:00
+
+【【BanG Dream! Ave Mujica】pv2画面倒放竟然和台词对得上！！-哔哩哔哩】 https://b23.tv/Q3IOyxz
+
+*****
+
+####  阿萨德飞过去  
+##### 25058#       发表于 2024-10-18 13:00
+
+什么鬼，你楼也开始刷新神人了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+看来是宣发期真的来了
+

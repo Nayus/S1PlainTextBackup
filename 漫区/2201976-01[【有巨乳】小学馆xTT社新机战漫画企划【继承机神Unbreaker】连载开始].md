@@ -38,3 +38,13 @@
 
 2024-10-18 15:55 上传
 
+
+*****
+
+####  TOYSTORY  
+##### 48#       发表于 2024-10-18 23:11
+
+机体会氪命把驾驶员弄死，死后会被做成AI。所以黑毛大姐姐就是上任驾驶员？
+
+放大招要一下子氪10年命，男主不是长寿种的话顶多也就能用8次左右吧，限制是不是设得太大了点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

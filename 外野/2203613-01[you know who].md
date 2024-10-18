@@ -518,3 +518,11 @@ https://www.zhihu.co ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  毒菇  
+##### 55#       发表于 2024-10-18 18:15
+
+兄弟只是要一个态度！
+

@@ -592,3 +592,33 @@ nasa是不是软件硬化工程师请了太多了？</blockquote>
 
 上面那哥啥情况，吹波音哨子背后身中八枪了？
 
+
+*****
+
+####  松下仓鼠  
+##### 68#       发表于 2024-10-18 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66484490&amp;ptid=2203653" target="_blank">猪突猛进 发表于 2024-10-18 18:06</a>
+上面那哥啥情况，吹波音哨子背后身中八枪了？</blockquote>
+手机放兜里没息屏
+
+*****
+
+####  longlivedick  
+##### 69#       发表于 2024-10-18 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66484456&amp;ptid=2203653" target="_blank">火星後繼者 发表于 2024-10-18 18:02</a>
+吃了56重风怒</blockquote>
+请简述一下你看到提醒消息时的心情哈哈哈
+
+
+*****
+
+####  火星後繼者  
+##### 70#       发表于 2024-10-18 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66484518&amp;ptid=2203653" target="_blank">longlivedick 发表于 2024-10-18 18:09</a>
+
+请简述一下你看到提醒消息时的心情哈哈哈</blockquote>
+好嗨哟，感觉人生到达了巅峰，感觉人生到达了高潮，康忙康忙康忙。gif
+

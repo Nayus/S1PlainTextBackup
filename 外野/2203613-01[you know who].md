@@ -563,3 +563,13 @@ https://www.zhihu.co ...</blockquote>
 https://www.zhihu.co ...</blockquote>
 证明公关部门确实没几个男的，估计整天都沉溺在某些回音壁社区获取数据了，但凡在b站微博这些平台有十几个男性员工，不可能感受不到这半年的环境变化。
 
+
+*****
+
+####  f1iceman  
+##### 59#       发表于 2024-10-18 20:57
+
+感觉是不是觉得钱都花了，直接不用了交待不过去。
+
+—— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

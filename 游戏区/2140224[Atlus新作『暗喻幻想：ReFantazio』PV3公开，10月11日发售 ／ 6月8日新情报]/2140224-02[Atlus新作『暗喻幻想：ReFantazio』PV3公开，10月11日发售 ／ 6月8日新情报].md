@@ -13663,3 +13663,19 @@ atlus你这技术力连个单独的demo做不来，原来都有学习版了啊<i
 
 刚开始玩有点迷惑，为啥我跑着跑着就出过场动画进王都了海星
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2777#       发表于 2024-10-18 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66485488&amp;ptid=2140224" target="_blank">星野航 发表于 2024-10-18 20:12</a>
+没有，h难度全支线，正常速度阅读文本不跳过场最多60+吧
+
+当然刷刷级墨迹墨迹也就70
+
+ ...</blockquote>
+也好，下下周正好打浪漫沙加2
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

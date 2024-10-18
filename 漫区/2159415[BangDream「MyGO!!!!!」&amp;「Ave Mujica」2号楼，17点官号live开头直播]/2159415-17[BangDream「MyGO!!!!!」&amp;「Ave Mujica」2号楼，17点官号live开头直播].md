@@ -15887,3 +15887,56 @@ mygo第十二集就说了mujica是一生的事业了<img src="https://static.sar
 鉴于海铃设定想尽快靠音乐独立，那个表情有是在和家人对话的可能性吧，不准她玩乐队什么的 ...</blockquote>
 但是看打光感觉也像是在livehouse的舞台下面看着别人的演出？
 
+
+*****
+
+####  那什么阿法  
+##### 25034#       发表于 2024-10-18 11:35
+
+ 本帖最后由 那什么阿法 于 2024-10-18 11:38 编辑 
+<blockquote>中已矣 发表于 2024-10-18 10:17
+楼里看的少，Ave Mujica也一辈子了？</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202410/18/113123qpfjm315uautkk11.png" referrerpolicy="no-referrer">
+
+<strong>5BD50554-FC70-4E95-945E-103DCCE53E9E.png</strong> (28.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-18 11:31 上传
+
+2023_8_31
+
+从mujica开始祥子就是决定一辈子的关系
+
+以及希望别太aoe
+
+贴吧骂过代餐，遇见祥黑去楼里举报找吧务处理，隔壁看见那位有鸡不看的上去攻击过，遇见说“祥子只想着赚钱”也次次搬13集的访谈。
+
+结果每次一看aoe、对立闹切总感觉自己里外不是人。焦虑的难受
+
+*****
+
+####  相坂君  
+##### 25035#       发表于 2024-10-18 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66480241&amp;ptid=2159415" target="_blank">桜庭千景 发表于 2024-10-18 11:24</a>
+
+目前还是先导pv2，下个月应该会有正式的大概会多点，倒是不知道什么时候放op画面出来 ...</blockquote>
+新画面属于是理性上知道，感性上想要，饿了好几个月，给口吃的吧！
+
+不过op应该会晚一点，可能12月才有，提前放出长谷川也算是给鸡腿们打预防针
+
+syl：
+
+盘pv好几次，新画面太碎了只是露出一方衣角，整体偏向阴暗沉重，且家庭成因颇多，我们邦邦也要有自己的25时
+
+但就这点东西，线索完全连不上，还在藏还在藏.jpg
+
+*****
+
+####  skives10  
+##### 25036#       发表于 2024-10-18 11:38
+
+武士道太会挤牙膏导致的<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

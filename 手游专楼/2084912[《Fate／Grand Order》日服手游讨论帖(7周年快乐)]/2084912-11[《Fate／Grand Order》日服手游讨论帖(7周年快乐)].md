@@ -1073,3 +1073,14 @@ ex阶都比常规职阶多了。真不如再起一排
 
 妈的，抽阿比歪了最没用的布妹<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jackyhuang  
+##### 15021#       发表于 2024-10-18 20:20
+
+果然是没有满分就不行然后循环那套
+这次活动主角其实是卡多克吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又是围裙又是泳装的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

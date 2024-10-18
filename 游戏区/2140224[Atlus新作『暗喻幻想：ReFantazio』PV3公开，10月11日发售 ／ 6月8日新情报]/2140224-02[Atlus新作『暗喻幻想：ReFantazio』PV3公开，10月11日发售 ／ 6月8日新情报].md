@@ -13594,3 +13594,11 @@ atlus你这技术力连个单独的demo做不来，原来都有学习版了啊<i
 祝福水也分等级，恩宠、天宠之类有的刷了。</blockquote>
 好的  谢谢提醒
 
+
+*****
+
+####  horacio  
+##### 2770#       发表于 2024-10-18 13:58
+
+那个糖蜂蜜说是在篝火附近，原来是要过夜的时候靠近篝火点一下才给，坑死我了。昨晚读档都读疯了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

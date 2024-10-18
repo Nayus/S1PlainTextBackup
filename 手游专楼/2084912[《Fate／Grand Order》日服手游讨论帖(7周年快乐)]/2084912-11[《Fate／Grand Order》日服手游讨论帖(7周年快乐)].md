@@ -969,3 +969,24 @@ ex阶都比常规职阶多了。真不如再起一排
 是抽错池了吗，月之王池子是另外开的</blockquote>
 友情池不是加月之王的出货率么，我抽了一个小时都没有
 
+
+*****
+
+####  希望之花  
+##### 15012#       发表于 2024-10-18 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66482380&amp;ptid=2084912" target="_blank">洛克萨斯 发表于 2024-10-18 15:01</a>
+
+友情池不是加月之王的出货率么，我抽了一个小时都没有</blockquote>
+月之王概率UP的池子在普通友情池左边，是新开的一个卡池
+
+*****
+
+####  213专用  
+##### 15013#       发表于 2024-10-18 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66482380&amp;ptid=2084912" target="_blank">洛克萨斯 发表于 2024-10-18 15:01</a>
+
+友情池不是加月之王的出货率么，我抽了一个小时都没有</blockquote>
+有两个友情池，平常的友情池不UP。另一个UP的友情池不会出SABERLILY和哈贝特洛特
+

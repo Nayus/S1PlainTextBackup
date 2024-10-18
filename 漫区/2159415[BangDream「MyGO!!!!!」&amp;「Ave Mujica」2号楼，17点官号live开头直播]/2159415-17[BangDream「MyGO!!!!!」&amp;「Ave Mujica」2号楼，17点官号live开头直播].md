@@ -16125,3 +16125,70 @@ syl：
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得我一年半间爆的典都不如你这几个小时爆的多
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正破防的不是我，大家都在看笑话呢
 
+
+*****
+
+####  -LYRE-  
+##### 25050#       发表于 2024-10-18 12:41
+
+ 本帖最后由 -LYRE- 于 2024-10-18 12:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66478064&amp;ptid=2159415" target="_blank">安洁莉娜 发表于 2024-10-18 02:33</a>
+光看手不就知道是喵梦吗？还有某些意见领袖也别一顺风就上群体护盾了好吧？你楼当初爆典的时候有鸡友替狗和 ...</blockquote>
+时至今日，喵梦相关还在大量跳脸代餐，新增“灯祥私生女”
+睦相关除铁暗恋舔狗外因3rd新增“把素世当白祥代餐”
+初华相关还在贷款灯祥败犬
+银河战舰还在“就是为了翻车大爆炸而存在”
+一反驳就“凭什么不让提不知道的还以为两团撕破脸老死不相往来了”“玩梗而已怎么急了”“一般路人正常看法罢了”
+这玩梗路人的群体护盾确实好用啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+倒是不知您的仗义执言在哪呢，可否瞻仰一下？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 25051#       发表于 2024-10-18 12:42
+
+ 本帖最后由 Aendst 于 2024-10-18 12:44 编辑 
+
+聊点可能还算有点意义的东西
+
+<img src="https://img.saraba1st.com/forum/202410/18/124344k2sqhusuc67h2khc.jpg" referrerpolicy="no-referrer">
+
+<strong>g_photo_18.jpg</strong> (95.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-18 12:43 上传
+
+旧古河庭园现实中的室内布置
+
+这间可能是曾经放置钢琴的娱乐室的原型
+
+<img src="https://img.saraba1st.com/forum/202410/18/124354klu8uqu5ruouxixu.jpg" referrerpolicy="no-referrer">
+
+<strong>g_photo_20.jpg</strong> (73.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-18 12:43 上传
+
+洋式房间内部大体如此，整栋宅邸的大部分灯光基本都是偏向暗黄色的
+
+<img src="https://img.saraba1st.com/forum/202410/18/124404wkqhqtqmnqptam44.jpg" referrerpolicy="no-referrer">
+
+<strong>g_photo_24.jpg</strong> (86.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-18 12:44 上传
+
+另外比较有意思的是旧古河庭园内部有和室，而且面积不小
+
+*****
+
+####  11A511  
+##### 25052#       发表于 2024-10-18 12:46
+
+所以会不会那些书是睦的，但存放在丰川邸中（
+
+（如果和喵有关的话可能是在图书馆）
+

@@ -13876,3 +13876,14 @@ mag后期怎么都不够用，怎么还能搞出来一个mag换金的功能，�
 跳楼有个成就</blockquote>
 跳楼在水城也能刷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  operatbig  
+##### 2795#       发表于 2024-10-19 04:12
+
+ 本帖最后由 operatbig 于 2024-10-19 04:15 编辑 
+<blockquote>windtrack 发表于 2024-10-18 23:38
+40万都不够把一个人全最终职业点出来，你哪怕是拿了4把最强武器一周目都不会溢出 ...</blockquote>
+单纯normal通过没必要点全最终职业吧。
+

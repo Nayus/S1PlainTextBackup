@@ -13602,3 +13602,23 @@ atlus你这技术力连个单独的demo做不来，原来都有学习版了啊<i
 
 那个糖蜂蜜说是在篝火附近，原来是要过夜的时候靠近篝火点一下才给，坑死我了。昨晚读档都读疯了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  operatbig  
+##### 2771#       发表于 2024-10-18 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66475634&amp;ptid=2140224" target="_blank">石中剑二 发表于 2024-10-17 20:30</a>
+
+玩到大兔子🐰入队，去推墓穴，肉眼可见的不好打了，推荐几个犀利的职业组合，现在打个宝箱怪都吃力，亡灵也 ...</blockquote>
+军师、骑士、商人比较强势，输出看敌人配置选法系或物理，打精英或者boss可以把商人换下来。
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2772#       发表于 2024-10-18 16:41
+
+第四章支线迷宫里这哥布林真有点恶心，没弱点不说，只要没一轮打死就会召唤同类
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

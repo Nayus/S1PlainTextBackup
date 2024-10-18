@@ -16566,3 +16566,28 @@ X上看到日本人在提，KiLLKiSS，只有两个i是小写的设计<img src="
 4th肯定会有线上的对吧<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
 这下要从12.1退网到12.15了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 25084#       发表于 2024-10-18 14:52
+
+虽然剧情怎么展开不好说，但是在赌上一切的商业乐队里找到/解决自己寻求的东西也挺定番的
+这方面海铃可能是最好被忽悠的那个，祥子要是招募的时候和对喵梦一样，让交人生结果正中靶心
+来自旧乐队的背叛也可以是某个乐队找了正牌贝斯手不要海铃了
+
+睦展开有很多吧，不太好猜的，虽然live上渡濑玩挺开心的，但是小剧场还挺迟滞在动画那个阶段
+演技书我现在的想法是人偶模仿人类，幼睦因为情感淡漠，比如看电视上睦妈演戏萌生了自己可以通过演技来学习当人类，最开始就是学母亲
+但是没学成/被制止了，个人倾向于后者，睦妈和祥子让她应当有自己想法这种，所以一直不知道该怎么办
+不自知的人偶发现自己是有感情的/人偶也无所谓，学会不被外界的风言风语干扰
+
+总的来讲大概和2nd-3rd小剧场一样是找寻光（自我存在方式）的故事，而且对鸡来讲会是HE<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  相坂君  
+##### 25085#       发表于 2024-10-18 14:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">如果和小剧场类似的话，找了跟没找样的虚无感，我还是想动画里能好好讲完故事再he
+

@@ -7474,3 +7474,17 @@ Q:你提到黎恩在界軌裡有多酷，會擔心帶回你心愛的角色，會
 
 13.PS市場對我們非常重要，除了軌跡跟伊蘇，幻都系列也要推出新作了，請大家支持。
 
+
+*****
+
+####  隔壁老黄  
+##### 6620#       发表于 2024-10-18 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66483708&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-10-18 16:58</a>
+1.社長表明剛剛完成界之軌跡，正在進行「善後工作」                                
+
+                    ...</blockquote>
+难不成日本喜欢埃尼亚斯的多？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

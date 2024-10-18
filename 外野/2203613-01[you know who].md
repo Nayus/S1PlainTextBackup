@@ -550,3 +550,16 @@ https://www.zhihu.co ...</blockquote>
 —— 来自 S1Fun</blockquote>
 目前脱口秀这个以笑果为首的行业怕都是屁股不正，真不如推平了重新来一遍
 
+
+*****
+
+####  月珊瑚与紫鸢尾  
+##### 58#       发表于 2024-10-18 19:00
+
+ 本帖最后由 月珊瑚与紫鸢尾 于 2024-10-18 19:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66483079&amp;ptid=2203613" target="_blank">青春之我 发表于 2024-10-18 16:05</a>
+如何看待京东找杨笠宣传之后很快删除了杨笠相关内容？ - 云梦山门生的回答 - 知乎
+
+https://www.zhihu.co ...</blockquote>
+证明公关部门确实没几个男的，估计整天都沉溺在某些回音壁社区获取数据了，但凡在b站微博这些平台有十几个男性员工，不可能感受不到这半年的环境变化。
+

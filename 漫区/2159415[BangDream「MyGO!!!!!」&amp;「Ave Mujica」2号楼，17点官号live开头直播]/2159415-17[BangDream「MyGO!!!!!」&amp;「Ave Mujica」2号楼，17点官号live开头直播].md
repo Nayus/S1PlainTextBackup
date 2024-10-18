@@ -16696,3 +16696,44 @@ emmmm</blockquote>
 
 有种内个吧打过来了的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  玖羽  
+##### 25096#       发表于 2024-10-18 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66482266&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-10-18 14:52</a>
+
+虽然剧情怎么展开不好说，但是在赌上一切的商业乐队里找到/解决自己寻求的东西也挺定番的
+
+这方面海铃可能是 ...</blockquote>
+我刚才想了一下，祥子在3rd小剧场里物理意义上绷不住了那段，以及后面的白日梦，都有很强的<strong>自欺感</strong>
+
+Ave Mujica可能会这样，从一开始就非常成功，五人都以为在这个乐队里找到了自己想要的（虚假的自欺）
+
+祥子 - 噫，我又有自己的乐队了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer"> 
+
+喵梦 - 噫，我终于火了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+海铃 - 噫，我终于被乐队接纳了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer"> 
+
+初华 - 噫，我终于和祥子一起搞乐队了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+睦 - 噫，我又和最喜欢的人偶一起唱歌了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+在自欺到达顶峰的时候（第7话？）大爆特爆碎成一地
+
+然后以某种方式从头收拾，变成真的一辈子乐队
+
+*****
+
+####  akiomn  
+##### 25097#       发表于 2024-10-18 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66483197&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-10-18 16:14</a>
+我刚才想了一下，祥子在3rd小剧场里物理意义上绷不住了那段，以及后面的白日梦，都有很强的自欺感
+
+Ave M ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥子应该是改成：我终于有钱了！
+睦这精神状态太可怕了吧
+

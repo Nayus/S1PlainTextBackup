@@ -453,3 +453,26 @@ http ...</blockquote>
 [https://www.zhihu.com/question/1163388136/answer/8309424933](https://www.zhihu.com/question/1163388136/answer/8309424933)
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ondin  
+##### 50#       发表于 2024-10-18 16:22
+
+好家伙，别的脱口秀演员活该倒霉是吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ondin  
+##### 51#       发表于 2024-10-18 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66483079&amp;ptid=2203613" target="_blank">青春之我 发表于 2024-10-18 16:05</a>
+如何看待京东找杨笠宣传之后很快删除了杨笠相关内容？ - 云梦山门生的回答 - 知乎
+
+https://www.zhihu.co ...</blockquote>
+就挺离谱，都没影响力了还找，我看京东真是脑子不好了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

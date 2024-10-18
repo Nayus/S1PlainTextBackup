@@ -616,3 +616,26 @@ solas我真是一直不理解的，不过现在也有点点理解了，这就属
 
 【【熟肉】龙腾世纪编剧攻击玩家批判觉醒议程！匿名测试者证明游戏只适合“现代观众”！-哔哩哔哩】 https://b23.tv/C3ObfeQ
 
+
+*****
+
+####  sosgame67  
+##### 659#       发表于 2024-10-18 18:19
+
+看了一下评测员的剧透，warden垫脚石，蛋头边缘化（毕竟标题都改了），测试版的人物建模和仙女座初版一个尿性，无处不在的woke要素<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mimighost  
+##### 660#       发表于 2024-10-18 18:21
+
+<img src="https://img.saraba1st.com/forum/202410/18/182057xvivxeivh0vq33lp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (76.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-18 18:20 上传
+
+算不算制作人的自我插入
+

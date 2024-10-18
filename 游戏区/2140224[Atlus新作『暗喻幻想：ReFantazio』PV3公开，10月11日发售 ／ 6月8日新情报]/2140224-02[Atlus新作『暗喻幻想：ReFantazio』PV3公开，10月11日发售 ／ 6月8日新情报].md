@@ -13533,3 +13533,18 @@ atlus你这技术力连个单独的demo做不来，原来都有学习版了啊<i
 
 —— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  focus  
+##### 2765#       发表于 2024-10-18 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66480612&amp;ptid=2140224" target="_blank">拖鞋脚后跟 发表于 2024-10-18 12:06</a>
+
+只玩过p5r的我想着“这不是简简单单？”果断选了hard...
+
+顺便想请教一下，这游戏暴击率也跟运气挂钩吗？
+
+ ...</blockquote>
+对，99运可以增加15%暴率
+

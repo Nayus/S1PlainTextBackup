@@ -16285,3 +16285,104 @@ E17FBD15-15D1-47B4-8230-EBDA303B7203.jpeg
 什么鬼，你楼也开始刷新神人了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 看来是宣发期真的来了
 
+
+*****
+
+####  NODY  
+##### 25059#       发表于 2024-10-18 13:06
+
+倒放论还真挺有意思的，按这个的话海睦喵三个反而都是从迷茫痛苦到下定决心入队，也符合假药的情况
+
+*****
+
+####  御幸一也  
+##### 25060#       发表于 2024-10-18 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66481011&amp;ptid=2159415" target="_blank">安洁莉娜 发表于 2024-10-18 12:52</a>
+
+AUV，一个不注意，您老出来啦。
+
+那些东西我也不想说呀，有些鸡友不相信狗友里有好人啊而且你多少也说过吧 ...</blockquote>
+
+你就算是說go紙片人，我也沒罵過呀，我什麼時候罵了<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">
+
+搞半天私人恩怨嘛<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 25061#       发表于 2024-10-18 13:11
+
+ 本帖最后由 Aendst 于 2024-10-18 13:12 编辑 
+
+发了个先行pv就这样了，正式宣发后我不敢想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+旧电视这个意向也很有意思，前一个pv最怪异的镜头基本集中在旧电视意向
+
+这次pv的旧电视片段后、疑似睦的新片段前后有彩色雪花屏效果
+
+mujica主流出道，必然会经常上电视
+
+睦线路上可能存在的女演员相关内容，以及已经上过电视这两点，电视可能和全员有关，也有可能和睦个人有关
+
+“人偶”如果虚指，那么也可能是“电视中演绎他者的自己”
+
+但为什么是旧电视，这就没有头绪了
+
+*****
+
+####  Royi  
+##### 25062#       发表于 2024-10-18 13:11
+
+参考一下mygo的剧情结构和新出的剧情简介的话，猜测前6集喵梦初华海玲轮流个人回解释个人问题，然后都被祥子兜住，当大家都觉得鸡团越来越好的时候第7话祥子彻底炸了个大的
+
+至于怎么炸我现在我突然有个想法，之所以搞假面乐队不会是为了可以临时换中之人吧？PV那句假面破碎时就是终末的开始。可能指的就是鸡团大火之后某次活动决定摘面具公开身份，最后ob一串字母面具一摘不是祥子！彻底爆爆爆
+
+*****
+
+####  11A511  
+##### 25063#       发表于 2024-10-18 13:12
+
+你楼好像还没讨论过，官网这个倒计时对应的是12.1 14:00JST，也就是先行上映会<strong>结束</strong>的时间，不知道到时能整出什么活，「又一个箱子被送到了世界的某处」？
+
+IMG_3961.jpeg
+(231.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-18 13:11 上传
+
+<img src="https://img.saraba1st.com/forum/202410/18/131155i5wmd8gmzmuwd8c8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  septer  
+##### 25064#       发表于 2024-10-18 13:13
+
+是你们太久没东西吃，疑似有点饿了
+
+到时肯定有很多二创入脑的把同人当官方了
+
+*****
+
+####  septer  
+##### 25065#       发表于 2024-10-18 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66481191&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-10-18 13:11</a>
+
+发了个先行pv就这样了，正式宣发后我不敢想
+
+旧电视这个意向也很有意思，前一个pv最怪异的镜头基本集中在旧 ...</blockquote>
+是女神异闻录4罢！
+
+*****
+
+####  Aendst  
+##### 25066#       发表于 2024-10-18 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66481232&amp;ptid=2159415" target="_blank">septer 发表于 2024-10-18 13:14</a>
+
+是女神异闻录4罢！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

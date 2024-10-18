@@ -2427,3 +2427,13 @@ op分词这么少，星三后面剧情一定会弥补点吧（笑）
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  starring  
+##### 232#       发表于 2024-10-18 20:51
+
+Nagi的一专网易云也上架了
+
+最喜欢Addicted to you，不过全长居然只有不到两分半钟<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+

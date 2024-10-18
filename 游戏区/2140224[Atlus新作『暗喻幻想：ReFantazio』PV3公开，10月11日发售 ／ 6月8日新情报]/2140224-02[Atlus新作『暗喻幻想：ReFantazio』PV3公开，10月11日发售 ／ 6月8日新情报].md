@@ -13695,3 +13695,34 @@ mag后期怎么都不够用，怎么还能搞出来一个mag换金的功能，�
 
 前15个小时有9分，现在60小时到决战门口，感觉只值6分了，好气啊<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AeonsTorn  
+##### 2780#       发表于 2024-10-18 22:36
+
+结局太幽默了，大搞分封功臣之后中央集体下江南微服私访是吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+*****
+
+####  windtrack  
+##### 2781#       发表于 2024-10-18 22:39
+
+ 本帖最后由 windtrack 于 2024-10-18 22:40 编辑 
+
+85小时白金了，最后一个料理太无赖了，二周目刻意堆材料做了12个，打完三龙全员70就去找隐藏BOSS了
+
+管你什么KOK难度，料理磕下去隐藏BOSS根本不用动就死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+回头再试试直接打什么难度
+
+<img src="https://img.saraba1st.com/forum/202410/18/223756z9h6oe3nj3cal33j.png" referrerpolicy="no-referrer">
+
+<strong>bb0dacd0984de542189342e00e49974c.png</strong> (77.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-18 22:37 上传
+

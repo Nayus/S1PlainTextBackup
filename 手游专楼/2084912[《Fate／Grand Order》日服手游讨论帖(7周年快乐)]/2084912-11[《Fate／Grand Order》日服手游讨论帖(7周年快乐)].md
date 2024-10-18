@@ -918,3 +918,43 @@ ex阶都比常规职阶多了。真不如再起一排
 
 全部衣服都練完後就不用再考慮浪費經驗值
 
+
+*****
+
+####  الطائر  
+##### 15007#       发表于 2024-10-17 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66473926&amp;ptid=2084912" target="_blank">khxooo 发表于 2024-10-17 16:31</a>
+
+狂娜没有即死吧，有即死那是弓娜吧</blockquote>
+是的。所以根本用不上。
+
+*****
+
+####  格林卡罗尔  
+##### 15008#       发表于 2024-10-17 19:24
+
+看了下徐福到了3t光主动技能就能充到60，还真不错，加件衣服不点被动都能上班了
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  eilot  
+##### 15009#       发表于 2024-10-17 23:05
+
+道滿就算得寶1，只要升到絆6就有足夠個人硬幣學NP20，之後就不用再綁禮裝直接上班，你們各位都是垃圾...
+
+法尼還是最低都要OC1，沒其他人幫手就只能穿OC1或OC2
+
+仇尼雖然只能自充100和幫對方上惡屬，但還是有機會不穩，只能用衣服幫手打第3層單體，不過本人也不用綁禮裝
+
+全部衣服都練完後就不用再考慮浪費經驗值
+
+*****
+
+####  zechins  
+##### 15010#       发表于 2024-10-18 07:52
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">ex阶助战真该多给几个了
+

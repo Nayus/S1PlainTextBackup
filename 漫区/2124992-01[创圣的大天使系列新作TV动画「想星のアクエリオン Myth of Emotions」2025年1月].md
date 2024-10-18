@@ -782,3 +782,11 @@ TOKYO MX、テレビ愛知、tvk、BS朝日ほか：2025年1月放送開始
 
 LOGOS实在太水了，剧情都忘光了，只记得里面的少爷苦得一逼，LOGOS跟前两作有没有直接关系来着？
 
+
+*****
+
+####  马桶3  
+##### 81#       发表于 2024-10-18 14:11
+
+这三台不就是初代同模换色<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

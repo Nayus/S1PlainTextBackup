@@ -16528,3 +16528,32 @@ wsd你tm有没有好活
 睦妈现在还完全是盲盒，不过复刻隔壁企划的妈应该不会
 毕竟睦家女仆都对祥子小姐挺客气的，要是睦妈高压看不起乐队，怎么会开口让她参加乐队，还放失去家的祥子进门
 
+
+*****
+
+####  笋干爆炸碱  
+##### 25081#       发表于 2024-10-18 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66481482&amp;ptid=2159415" target="_blank">skives10 发表于 2024-10-18 13:39</a>
+
+还有就是KillKiss这个op标题真的很让人在意
+
+致命之吻什么的 可以期待吗</blockquote>
+X上看到日本人在提，KiLLKiSS，只有两个i是小写的设计<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
+
+可能对应的是初华小剧场里表现出来的面具和真实自我问题
+
+*****
+
+####  玖羽  
+##### 25082#       发表于 2024-10-18 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66481517&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-10-18 13:42</a>
+
+睦妈现在还完全是盲盒，不过复刻隔壁企划的妈应该不会
+
+毕竟睦家女仆都对祥子小姐挺客气的，要是睦妈高压看不起乐队，怎么会开口让她参加乐队，还放失去家的祥子进门</blockquote>
+其实一半以上的谜团都可以归结到一个问题：Ave Mujica这样一个商业乐队为什么要一辈子
+
+如果把一辈子去掉，睦参加Ave Mujica很正常，睦的父母本来就想让睦当艺人，Ave Mujica又有sumimi的初华，又有TGW物产(假药)，明显是一艘银河战舰，对睦的演艺事业会有很大帮助
+

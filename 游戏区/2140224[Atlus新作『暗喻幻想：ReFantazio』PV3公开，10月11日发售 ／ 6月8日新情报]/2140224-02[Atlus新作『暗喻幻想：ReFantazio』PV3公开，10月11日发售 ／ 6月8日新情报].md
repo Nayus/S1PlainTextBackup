@@ -13887,3 +13887,11 @@ mag后期怎么都不够用，怎么还能搞出来一个mag换金的功能，�
 40万都不够把一个人全最终职业点出来，你哪怕是拿了4把最强武器一周目都不会溢出 ...</blockquote>
 单纯normal通过没必要点全最终职业吧。
 
+
+*****
+
+####  operatbig  
+##### 2796#       发表于 2024-10-19 04:33
+
+突然想起整个游戏是不是不超过15种怪物建模？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

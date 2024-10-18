@@ -16591,3 +16591,15 @@ X上看到日本人在提，KiLLKiSS，只有两个i是小写的设计<img src="
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">如果和小剧场类似的话，找了跟没找样的虚无感，我还是想动画里能好好讲完故事再he
 
+
+*****
+
+####  rikaren  
+##### 25086#       发表于 2024-10-18 15:00
+
+<blockquote>cherryjia12 发表于 2024-10-18 14:43
+4th肯定会有线上的对吧
+
+这下要从12.1退网到12.15了</blockquote>
+这种动画提前放映，网络票真的也会跟着直播吗（
+

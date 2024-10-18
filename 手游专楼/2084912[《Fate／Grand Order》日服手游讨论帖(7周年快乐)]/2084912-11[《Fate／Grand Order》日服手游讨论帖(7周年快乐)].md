@@ -958,3 +958,14 @@ ex阶都比常规职阶多了。真不如再起一排
 
 <img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">ex阶助战真该多给几个了
 
+
+*****
+
+####  洛克萨斯  
+##### 15011#       发表于 2024-10-18 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66482341&amp;ptid=2084912" target="_blank">希望之花 发表于 2024-10-18 14:58</a>
+
+是抽错池了吗，月之王池子是另外开的</blockquote>
+友情池不是加月之王的出货率么，我抽了一个小时都没有
+

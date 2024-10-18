@@ -23,3 +23,14 @@
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  检索者  
+##### 64#       发表于 2024-10-18 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66478691&amp;ptid=2200160" target="_blank">crosz1985 发表于 2024-10-18 08:41</a>
+
+好色的广告</blockquote>
+这广告好像还出了一波圈（b站有个十万多播放的视频），但是游戏本身还是没啥人关注，笑死
+

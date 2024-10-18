@@ -7344,3 +7344,11 @@ E大师快给滚啊！！这剧情插图多好看啊，立绘都被大师给毁�
 
 二周目前期的交换列表怎么跳过了三级回路直接到珠子，早知道多备点三级回路
 
+
+*****
+
+####  aimujie  
+##### 6616#       发表于 2024-10-18 10:02
+
+大鲸鱼伤害不如有bug结算两次的黑色触手<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">，不过先手丢一个清杂清buff上debuff的功能性还是有用的
+

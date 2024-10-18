@@ -17003,3 +17003,60 @@ Ave M ...</blockquote>
 这个2.9w粉画得还不如以太那个4900粉好看</blockquote>
 我把母鸡卡每个mv的曲绘画师都关注了 有些人画自己的oc时真的很正常 但一画母鸡卡就发病<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 25116#       发表于 2024-10-18 20:28
+
+sumimi可以再来一首歌吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  浅草若旦那  
+##### 25117#       发表于 2024-10-18 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66484839&amp;ptid=2159415" target="_blank">哈曼的YY 发表于 2024-10-18 18:49</a>
+这画师画的人感觉很像祥老师的玩偶</blockquote>
+预算要多少？
+
+
+*****
+
+####  NaAgfykp  
+##### 25118#       发表于 2024-10-18 20:32
+
+话说mtm，skk，umr生日的时候有对上动画的某一集吗？会不会有大的？
+
+—— 来自 vivo V2301A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  skives10  
+##### 25119#       发表于 2024-10-18 20:33
+
+第七集放完第二天就是祥子生日<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  想喝一点点  
+##### 25120#       发表于 2024-10-18 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66485452&amp;ptid=2159415" target="_blank">skives10 发表于 2024-10-18 20:07</a>
+
+我把母鸡卡每个mv的曲绘画师都关注了 有些人画自己的oc时真的很正常 但一画母鸡卡就发病 ...</blockquote>
+说明钱没给够<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NaAgfykp  
+##### 25121#       发表于 2024-10-18 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66485667&amp;ptid=2159415" target="_blank">skives10 发表于 2024-10-18 20:33</a>
+第七集放完第二天就是祥子生日</blockquote>
+让我看看mygo的第七话是…
+WOW！
+
+—— 来自 vivo V2301A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -13622,3 +13622,11 @@ atlus你这技术力连个单独的demo做不来，原来都有学习版了啊<i
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  超极巨鲨鲨  
+##### 2773#       发表于 2024-10-18 17:40
+
+尤法觉醒前这段演出太蠢了，敌方我方全都不动就盯着两个人在那聊，既然不参与剧情让他们在背景板打打架不好吗就光看着啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

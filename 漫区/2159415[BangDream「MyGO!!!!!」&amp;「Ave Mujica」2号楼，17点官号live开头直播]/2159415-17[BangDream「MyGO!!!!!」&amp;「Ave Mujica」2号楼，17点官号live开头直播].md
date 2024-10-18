@@ -16737,3 +16737,39 @@ Ave M ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥子应该是改成：我终于有钱了！
 睦这精神状态太可怕了吧
 
+
+*****
+
+####  玖羽  
+##### 25098#       发表于 2024-10-18 17:35
+
+ttps://x.com/nagomu_7_56/status/1845719385509679308
+
+<img src="https://img.saraba1st.com/forum/202410/18/173231nqyr70gyj9zjmnwn.jpg" referrerpolicy="no-referrer">
+
+<strong>orig.jpg</strong> (474.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-18 17:32 上传
+
+ttps://x.com/baiyuBYY/status/1830993095284146312
+
+<img src="https://img.saraba1st.com/forum/202410/18/173226z68wwy6hs49l9woc.jpg" referrerpolicy="no-referrer">
+
+<strong>_orig.jpg</strong> (297.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-18 17:32 上传
+
+ttps://x.com/nunnun_0410/status/1846546642587324672
+
+<img src="https://img.saraba1st.com/forum/202410/18/173220phfjrhmauuto5tcc.jpg" referrerpolicy="no-referrer">
+
+<strong>n_orig.jpg</strong> (452.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-18 17:32 上传
+

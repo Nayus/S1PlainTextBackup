@@ -1050,3 +1050,18 @@ ex阶都比常规职阶多了。真不如再起一排
 差不多，我三十连出了第一个
 然后抽了100万左右才出第二个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  芭德薇  
+##### 15019#       发表于 2024-10-18 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66483983&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-10-18 17:22</a>
+
+你们还是太看得起非洲人
+
+我应该是扔了21w下去，第一个十连出了一个，我还说概率这不是挺高的吗嘛
+
+然后就没 ...</blockquote>
+21万一个很正常啊，我是100万四个……
+

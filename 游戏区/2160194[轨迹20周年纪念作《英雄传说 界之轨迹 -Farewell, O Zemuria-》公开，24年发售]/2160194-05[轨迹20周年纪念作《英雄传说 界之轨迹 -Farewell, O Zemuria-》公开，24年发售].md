@@ -7510,3 +7510,16 @@ Q:你提到黎恩在界軌裡有多酷，會擔心帶回你心愛的角色，會
 亚洲欧美这俩不是收一笔过的授权费 ...</blockquote>
 当然是立本太烂了
 
+
+*****
+
+####  电磁炮233  
+##### 6623#       发表于 2024-10-18 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66485208&amp;ptid=2160194" target="_blank">Oshino 发表于 2024-10-18 19:33</a>
+
+8.軌跡目前在西方十分成功，系列總銷售額來看，日本40%，亞洲+歐美60%
+
+亚洲欧美这俩不是收一笔过的授权费 ...</blockquote>
+销售额啊，而且这几年欧美卖的越来越好，授权费肯定也抬高价格了
+

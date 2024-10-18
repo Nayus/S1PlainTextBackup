@@ -17102,3 +17102,17 @@ WOW！
 
 <img src="https://p.sda1.dev/19/9ebff8e9c5913b94f4f9c5e19d563304/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ydsbbt  
+##### 25126#       发表于 2024-10-18 21:08
+
+ 本帖最后由 ydsbbt 于 2024-10-18 21:11 编辑 
+
+春剑哥的3rd解读，看看日本人的想法也许会有新的启发。
+[https://note.com/halkenborg/n/nfe51d2778ce5](https://note.com/halkenborg/n/nfe51d2778ce5)
+
+（才发现原来还有2nd的）
+[https://note.com/halkenborg/n/n8d1cfc72f094](https://note.com/halkenborg/n/n8d1cfc72f094)
+

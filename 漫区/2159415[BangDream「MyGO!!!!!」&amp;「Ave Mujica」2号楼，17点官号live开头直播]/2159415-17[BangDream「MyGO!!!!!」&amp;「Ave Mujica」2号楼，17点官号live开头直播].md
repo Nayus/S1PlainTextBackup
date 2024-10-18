@@ -16043,3 +16043,85 @@ syl：
 
 扣个鹅都能应激 真是最脆弱的一集
 
+
+*****
+
+####  御幸一也  
+##### 25044#       发表于 2024-10-18 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66480620&amp;ptid=2159415" target="_blank">安洁莉娜 发表于 2024-10-18 12:07</a>
+
+正主怎么还是只会躲啊？几个月不见你这饭味不减就罢了怎么怂劲也不减啊？还有啊，你楼里就这几号人怎么一个 ...</blockquote>
+想點草我就直說嘛 那麼你想怎麼battle<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我在泥樓一直都是看到代餐論鐵暗戀就嘴，你是想來互罵嗎<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+而且我對ave也問心無愧喔，花錢花時間還約朋友畫圖，怎麼了現在是開始查粉絲證了嗎，
+
+那我覺得我做的不會比你少雖然我不會拿這些說<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+再說了，你是什麼時候看過我罵紙片人了？我討厭的一直是某些粉絲。
+
+*****
+
+####  Aendst  
+##### 25045#       发表于 2024-10-18 12:25
+
+ 本帖最后由 Aendst 于 2024-10-18 12:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66476495&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-10-17 22:19</a>
+
+调亮之后很有意思，明显是豪宅的房间内部，但是门上装着锁 </blockquote>
+是这样，壁橱完全可以对上，走廊（或者房间）的层高和装修风格都很古典豪宅感
+
+睦家的风格更接近现代工业风格，应该不会有这样的装修
+
+这种有转角的房间设计不知道算不算不太常见，但电灯开关来看确实是房间内
+
+所以感觉有可能是祥子视角下的旧宅
+
+下一个画面是祥子视角下的人偶
+
+*****
+
+####  rinku  
+##### 25046#       发表于 2024-10-18 12:25
+
+有没有前情提要啊，看这哥们前言不搭后语的
+
+*****
+
+####  相坂君  
+##### 25047#       发表于 2024-10-18 12:26
+
+怎么吃个饭回来就变成：“给mujica流过血立过功要告到中央！”
+
+这种情况我建议直接@ 漏油battle<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+*****
+
+####  安洁莉娜  
+##### 25048#       发表于 2024-10-18 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66480688&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-10-18 12:14</a>
+
+你都睦头了别装了吧
+
+说不想护ky，但实际行动就是在护ky啊，不然你转移话题干嘛</blockquote>
+你又懂了，全让你懂了，是不是很久没爆典了又蓄势待发了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+而且辩过经这玩意儿也能装吗，全幽默完了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 25049#       发表于 2024-10-18 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66480807&amp;ptid=2159415" target="_blank">安洁莉娜 发表于 2024-10-18 12:28</a>
+
+你又懂了，全让你懂了，是不是很久没爆典了又蓄势待发了
+
+而且辩过经这玩意儿也能装吗，全幽默完了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得我一年半间爆的典都不如你这几个小时爆的多
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正破防的不是我，大家都在看笑话呢
+

@@ -2633,3 +2633,14 @@ https://bbs.saraba1st.com/2b/thread-2198959-0-1.html</blockquote><blockquote>类
 这可不是饼，星空真的有1000多个星球，实际上他们真的做了1000个星球（甚至还是真实比例的）其实就是星空 ...</blockquote>
 发售前我就在想，这1000个星球的城市数量，有江苏省多吗？
 
+
+*****
+
+####  三千珈蓝  
+##### 215#       发表于 2024-10-18 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66480534&amp;ptid=2200803" target="_blank">RinQ0326 发表于 2024-10-18 11:54</a>
+
+有些部分有点倒果为因的意思，不是很能赞同，确实更像是在“讲故事”</blockquote>
+更像是做案例分析，和他之前的比很没意思
+

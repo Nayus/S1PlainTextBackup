@@ -815,3 +815,13 @@ LOGOS实在太水了，剧情都忘光了，只记得里面的少爷苦得一逼
 
 一定要癫，越癫越好，千万别无聊，跟LOGOS似的
 
+
+*****
+
+####  Piano-Forest  
+##### 84#         楼主| 发表于 2024-10-18 22:53
+
+<img src="https://p.sda1.dev/19/8c43c49e3efeabcffaeb6f24b892011b/20241018_224220.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/1f1ea5a566a65cd7a5d95bdb5b6cfaa0/20241018_224221.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/c93a12e3f241675805ea953341f76b46/20241018_224222.jpg" referrerpolicy="no-referrer">
+

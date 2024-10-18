@@ -17155,3 +17155,37 @@ WOW！
 
 给我干到古川哥哥新作的片场了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  玖羽  
+##### 25130#       发表于 2024-10-18 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66486055&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-10-18 21:26</a>
+
+英文的ave mujica劇情介紹和日文的差好多喔 </blockquote><blockquote>"Will you give me the rest of your life?"
+
+After losing everything <strong>in a single night</strong>, Sakiko Togawa <strong>reaches out toward an even deeper abyss, one that will drag everyone around her down as well.</strong>
+
+Gathering the lives of <strong>girls burdened with their own troubles and desires</strong>, Sakiko raises the curtain on a perfect masquerade.
+
+"Welcome to the world of Ave Mujica."
+
+On a stage where sorrow, death, fear, love — even the solace of forgetting — are stripped away, will their masks be torn off and shatter into oblivion, or will they...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202410/18/213749jyrmeseppwde4adr.jpg" referrerpolicy="no-referrer">
+
+<strong>aa5.jpg</strong> (107.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-18 21:37 上传
+
+
+*****
+
+####  PDQ4  
+##### 25131#       发表于 2024-10-18 21:42
+
+实际上就是把所有人都拖下去了吧，毕竟都要求队员“献出人生”了
+

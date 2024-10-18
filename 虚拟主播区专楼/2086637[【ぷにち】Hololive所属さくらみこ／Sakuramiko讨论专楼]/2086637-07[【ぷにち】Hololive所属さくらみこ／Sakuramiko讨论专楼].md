@@ -12843,3 +12843,26 @@ flower rhapsody这曲是真的难啊，竟然公开了难得的录制现场
 
 2024-10-18 19:36 上传
 
+
+*****
+
+####  holoan  
+##### 9935#         楼主| 发表于 2024-10-18 19:48
+
+<img src="https://img.saraba1st.com/forum/202410/18/194825lgzgaydjcz3ydypw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (125.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-18 19:48 上传
+
+*****
+
+####  holoan  
+##### 9936#         楼主| 发表于 2024-10-18 21:18
+
+有人说今天的破游戏通关需要4小时
+
+那真选错游戏了
+

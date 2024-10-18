@@ -418,3 +418,38 @@ http ...</blockquote>
 
 孟川还没说呢
 
+
+*****
+
+####  隧道  
+##### 48#       发表于 2024-10-18 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66482561&amp;ptid=2203613" target="_blank">青春之我 发表于 2024-10-18 15:19</a>
+
+这次京东请杨笠宣传双十一引发争议，这个双十一你还会去京东消费吗？ - 云梦山门生的回答 - 知乎
+
+http ...</blockquote>
+已经删帖缩卵了 笑
+
+
+*****
+
+####  青春之我  
+##### 49#       发表于 2024-10-18 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66483019&amp;ptid=2203613" target="_blank">隧道 发表于 2024-10-18 15:58</a>
+
+已经删帖缩卵了 笑</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202410/18/160355yr3wb3slsxxirsz1.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2024-10-18 160340.png</strong> (116.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-18 16:03 上传
+
+如何看待京东找杨笠宣传之后很快删除了杨笠相关内容？ - 云梦山门生的回答 - 知乎
+[https://www.zhihu.com/question/1163388136/answer/8309424933](https://www.zhihu.com/question/1163388136/answer/8309424933)
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

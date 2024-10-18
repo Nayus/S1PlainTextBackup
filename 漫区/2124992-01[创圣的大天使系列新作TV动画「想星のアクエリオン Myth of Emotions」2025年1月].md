@@ -790,3 +790,18 @@ LOGOS实在太水了，剧情都忘光了，只记得里面的少爷苦得一逼
 
 这三台不就是初代同模换色<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  X(iaolw)S  
+##### 82#       发表于 2024-10-18 14:27
+
+<blockquote>引用第79楼plusfive于2024-10-18 13:57发表的  :
+
+LOGOS实在太水了，剧情都忘光了，只记得里面的少爷苦得一逼，LOGOS跟前两作有没有直接关系来着？</blockquote>
+@plusfive
+
+没有关系，甚至机设都不是河森
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+

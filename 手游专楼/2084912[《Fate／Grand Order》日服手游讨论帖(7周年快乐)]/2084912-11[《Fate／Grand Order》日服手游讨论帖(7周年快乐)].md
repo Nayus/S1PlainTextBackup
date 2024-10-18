@@ -1084,3 +1084,16 @@ ex阶都比常规职阶多了。真不如再起一排
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
 
+
+*****
+
+####  cenhr  
+##### 15022#       发表于 2024-10-18 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66485549&amp;ptid=2084912" target="_blank">jackyhuang 发表于 2024-10-18 20:20</a>
+
+果然是没有满分就不行然后循环那套
+
+这次活动主角其实是卡多克吧又是围裙又是泳装的</blockquote>
+看来是准备刀人了，趁现在还有时间先把猪养肥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

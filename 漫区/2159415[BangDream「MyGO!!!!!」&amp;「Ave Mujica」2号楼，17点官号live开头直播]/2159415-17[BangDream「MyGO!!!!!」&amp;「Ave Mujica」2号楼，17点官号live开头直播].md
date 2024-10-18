@@ -15700,3 +15700,14 @@ mygo第十二集就说了mujica是一生的事业了<img src="https://static.sar
   -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
 初祥的已经有了，睦的大概率也在路上了，真希望我们AM都有可爱的幼年体形态啊。
 
+
+*****
+
+####  MASKA-1  
+##### 25022#       发表于 2024-10-18 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66479664&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-10-18 10:32:31</a>
+初祥的已经有了，睦的大概率也在路上了，真希望我们AM都有可爱的幼年体形态啊。 ...</blockquote>如果海希是幼驯染，也希望补充一下<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

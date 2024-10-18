@@ -13458,3 +13458,11 @@ Hard难度通关了，最满意的就是战斗系统，其他的感觉都挺一�
 
 龙宫刷怪点好多，正好每个队员巫师都没有练，想刷个回蓝被动技能出来，结果不小心人物等级刷太高，龙宫一路无双过去了，毫无体验。但是不刷，职业等级又上不来，这个矛盾点怎么解决啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猫沢  
+##### 2758#       发表于 2024-10-18 10:40
+
+atlus你这技术力连个单独的demo做不来，原来都有学习版了啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+

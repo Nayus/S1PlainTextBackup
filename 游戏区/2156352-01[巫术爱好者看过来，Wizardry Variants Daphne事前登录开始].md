@@ -485,3 +485,30 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 我大概明白这玩意的闪退逻辑了。就是黑屏的时候实际上是在后台悄悄下东西，但如果网卡了，就会卡那不能动，这时候如果强退，那下次相同位置必闪退，只能清缓存重下几个G能解决。
 
+
+*****
+
+####  雪映风影  
+##### 94#       发表于 2024-10-19 01:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">没玩过这类的 角色属性太复杂了 法师前期怎么打输出 魔力有限 平a基本都是1
+
+*****
+
+####  whfnet  
+##### 95#       发表于 2024-10-19 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66486763&amp;ptid=2156352" target="_blank">yj98879 发表于 2024-10-18 22:56</a>
+ 我想知道怎么挣钱，卖没用的装备么，</blockquote>
+一键卖出，里面自动勾选了换金道具
+
+
+*****
+
+####  whfnet  
+##### 96#       发表于 2024-10-19 01:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66487772&amp;ptid=2156352" target="_blank">雪映风影 发表于 2024-10-19 01:09</a>
+ 没玩过这类的 角色属性太复杂了 法师前期怎么打输出 魔力有限 平a基本都是1 ...</blockquote>
+法师就是留着mp等关键时刻用的，平时输出就别想了
+

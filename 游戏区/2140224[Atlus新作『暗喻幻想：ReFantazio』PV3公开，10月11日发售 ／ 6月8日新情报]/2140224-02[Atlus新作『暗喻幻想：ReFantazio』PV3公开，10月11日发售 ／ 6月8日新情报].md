@@ -13466,3 +13466,13 @@ Hard难度通关了，最满意的就是战斗系统，其他的感觉都挺一�
 
 atlus你这技术力连个单独的demo做不来，原来都有学习版了啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  saverok  
+##### 2759#       发表于 2024-10-18 10:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">32小时终于收齐队友了
+
+三眼妹这一股子钦定正宫的气息啊
+

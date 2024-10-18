@@ -13488,3 +13488,11 @@ atlus你这技术力连个单独的demo做不来，原来都有学习版了啊<i
 这沟槽的龙神迷宫打完能不喷的都是神人了，昨晚打了三个多小时全在迷宫里跑路，怪多安全屋又少，等级低不能 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">纯物理队？练个巫师解决一切续航问题，每个人都带一回合回10点mp的被动根本不愁没蓝。这迷宫是挺长的，但用朱娜法师队秒起来挺快。
 
+
+*****
+
+####  猫沢  
+##### 2761#       发表于 2024-10-18 11:18
+
+战车上看完的书是可以重复看的，我五维气量不够没发现这点在那里保养武器，踩了个坑<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+

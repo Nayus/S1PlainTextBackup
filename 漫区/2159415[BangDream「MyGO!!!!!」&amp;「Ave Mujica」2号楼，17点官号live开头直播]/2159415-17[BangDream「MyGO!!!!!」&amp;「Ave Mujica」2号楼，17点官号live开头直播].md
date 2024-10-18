@@ -16386,3 +16386,71 @@ IMG_3961.jpeg
 是女神异闻录4罢！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 25067#       发表于 2024-10-18 13:18
+
+旧电视的话，之前讨论过祥子现在的话家应该是有一台电视的，从目前的经济水平看，或许旧电视是那一台呢
+
+*****
+
+####  NODY  
+##### 25068#       发表于 2024-10-18 13:18
+
+虽然有点过度解读，但那个睦倒放的实际剧情是睦和父母摊牌做好撕破脸的准备，结果发现父母支持她追梦的假药挺有意思的
+
+*****
+
+####  rikaren  
+##### 25069#       发表于 2024-10-18 13:19
+
+旧电视和门我都觉得是演出手法的一部分，未必真实存在这样一个旧电视和门。
+
+*****
+
+####  skives10  
+##### 25070#       发表于 2024-10-18 13:20
+
+森美奈美肯定是支持睦加入mujica的吧 乐队的曝光能让睦更顺滑的进入演艺圈 
+但如果一直持续乐队活动 森美奈美可能就会反对了 也许在她看来乐队就是个跳板
+
+*****
+
+####  rikaren  
+##### 25071#       发表于 2024-10-18 13:21
+
+<img src="https://img.saraba1st.com/forum/202410/18/132100tp5kyk0c77kqbkdp.jpg" referrerpolicy="no-referrer">
+
+<strong>46291D914396FA7C94D661FEF63A8958.jpg</strong> (139.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-18 13:21 上传
+
+<img src="https://img.saraba1st.com/forum/202410/18/132105g3x9rvffvf434w23.jpg" referrerpolicy="no-referrer">
+
+<strong>C05FF89CA3857EAE60BE75E4809D82BF.jpg</strong> (130.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-18 13:21 上传
+
+
+*****
+
+####  adcdqre  
+##### 25072#       发表于 2024-10-18 13:22
+
+理性的go友现在应该正在致力于奔走相告消除地摊文学和黑子吧。添油和护短是肯定不会做的，好想认识这样伟大的人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  akiomn  
+##### 25073#       发表于 2024-10-18 13:25
+
+按之前被幽默wsd隐藏的那个新加坡先行播放的图来看，祥子应该是灯那样的核心女主位，初华是访谈实锤的侦探位（类似爱音）睦可能是soyo位？最后才会爆个大的？
+

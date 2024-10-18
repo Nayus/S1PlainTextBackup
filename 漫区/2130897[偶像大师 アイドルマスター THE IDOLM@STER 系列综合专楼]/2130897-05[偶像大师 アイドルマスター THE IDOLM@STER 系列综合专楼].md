@@ -695,3 +695,13 @@ sc2本身就还行吧我觉得（
 
 能不能让甘〇也来一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大崎甜花  
+##### 6598#       发表于 2024-10-18 19:28
+
+奈酱…攻击力，不如甜花，呢嘻嘻
+
+Producer，这次就，由我收下了。毕竟，甜花是姐姐嘛
+

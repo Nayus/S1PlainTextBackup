@@ -526,3 +526,15 @@ https://www.zhihu.co ...</blockquote>
 
 兄弟只是要一个态度！
 
+
+*****
+
+####  UNICORN00  
+##### 56#       发表于 2024-10-18 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66482481&amp;ptid=2203613" target="_blank">nekkihs2 发表于 2024-10-18 15:11</a>
+此事在速胜论中亦有记载</blockquote>
+出自剑来
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

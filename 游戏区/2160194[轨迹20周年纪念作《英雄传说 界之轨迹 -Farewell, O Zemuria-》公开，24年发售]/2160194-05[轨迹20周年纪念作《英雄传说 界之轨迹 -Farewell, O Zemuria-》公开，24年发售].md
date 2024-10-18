@@ -7352,3 +7352,11 @@ E大师快给滚啊！！这剧情插图多好看啊，立绘都被大师给毁�
 
 大鲸鱼伤害不如有bug结算两次的黑色触手<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">，不过先手丢一个清杂清buff上debuff的功能性还是有用的
 
+
+*****
+
+####  jacket  
+##### 6617#       发表于 2024-10-18 10:13
+
+之前听圣兽之王的降魔bgm还没过瘾，这回靠界轨最终boss战bgm续上了
+

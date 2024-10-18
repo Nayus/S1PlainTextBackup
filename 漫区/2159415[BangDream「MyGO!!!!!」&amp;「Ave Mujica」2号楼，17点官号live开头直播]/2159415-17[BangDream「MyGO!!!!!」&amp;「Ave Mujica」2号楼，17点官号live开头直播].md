@@ -17060,3 +17060,29 @@ WOW！
 
 —— 来自 vivo V2301A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  uhiuk  
+##### 25122#       发表于 2024-10-18 20:39
+
+<blockquote>skives10 发表于 2024-10-18 20:33
+第七集放完第二天就是祥子生日</blockquote>
+说不定真的在生日上有什么门道  <img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer"> 想到pv反复按7的电视机了
+
+*****
+
+####  玖羽  
+##### 25123#       发表于 2024-10-18 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66484287&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-10-18 17:51</a>
+
+3rd小剧场整体就有种阴间感，特别是幕间三这段做梦</blockquote>
+我猜想可能会这样，商业乐队拿成绩说话，开始的几次Live在商业上都很成功
+
+与此同时用个人回<strong>看似</strong>解决几个角色的个人问题（相当于MyGO的4~6话），但是隐忧一直存在并且越来越大
+
+所以表面上一切顺利（和MyGO刚组建时的一切不顺相反），就算有人感觉不对劲，但是作为商业乐队没什么可指摘的，也不好说什么
+
+直到一次Live出了问题，矛盾彻底爆发（公演本身可以是成功的，相当于春日影），只是现在还不知道是什么
+

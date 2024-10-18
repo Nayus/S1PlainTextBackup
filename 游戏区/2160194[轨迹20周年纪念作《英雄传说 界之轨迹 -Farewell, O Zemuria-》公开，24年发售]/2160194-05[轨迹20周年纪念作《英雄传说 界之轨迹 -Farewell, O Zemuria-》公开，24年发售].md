@@ -7498,3 +7498,15 @@ Q:你提到黎恩在界軌裡有多酷，會擔心帶回你心愛的角色，會
 
 亚洲欧美这俩不是收一笔过的授权费的吗，居然能占到60%，是他们给得太多还是日本卖得太少了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  红魔馆的糖  
+##### 6622#       发表于 2024-10-18 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66485208&amp;ptid=2160194" target="_blank">Oshino 发表于 2024-10-18 19:33</a>
+8.軌跡目前在西方十分成功，系列總銷售額來看，日本40%，亞洲+歐美60%
+
+亚洲欧美这俩不是收一笔过的授权费 ...</blockquote>
+当然是立本太烂了
+

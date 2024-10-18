@@ -12812,3 +12812,34 @@ flower rhapsody这曲是真的难啊，竟然公开了难得的录制现场
 
 查看全部评分
 
+
+*****
+
+####  holoan  
+##### 9933#         楼主| 发表于 2024-10-17 22:39
+
+<img src="https://img.saraba1st.com/forum/202410/17/223650dl5qq99qelbj5jqm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (94 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-17 22:36 上传
+
+等会……什么意思？
+
+*****
+
+####  holoan  
+##### 9934#         楼主| 发表于 2024-10-18 19:37
+
+还有人吃饱了撑着弄了这个图表，正好很直观地感受最近订阅增速的变化
+
+<img src="https://img.saraba1st.com/forum/202410/18/193633f5z5v177jewzw55n.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (58.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-18 19:36 上传
+

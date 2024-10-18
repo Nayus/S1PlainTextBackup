@@ -1022,3 +1022,16 @@ ex阶都比常规职阶多了。真不如再起一排
 那个按理说十几万点下去就能出的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所以才来论坛问，惊呆了，毛都没有
 
+
+*****
+
+####  TheLoof  
+##### 15017#       发表于 2024-10-18 17:22
+
+你们还是太看得起非洲人
+
+我应该是扔了21w下去，第一个十连出了一个，我还说概率这不是挺高的吗嘛
+
+然后就没有然后了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -15983,3 +15983,41 @@ syl：
 
 2024-10-18 11:57 上传
 
+
+*****
+
+####  安洁莉娜  
+##### 25039#       发表于 2024-10-18 12:07
+
+正主怎么还是只会躲啊？几个月不见你这饭味不减就罢了怎么怂劲也不减啊？还有啊，你楼里就这几号人怎么一个“意见领袖”也能打出aoe啊？这么喜欢抱团，难道很让人看得起吗？
+
+另外，我可不想护着某些KY，只是这些sb可能就要去祸害母鸡卡了，某人还在“应激怎么了”，你是怎么想出这么尬的词的？你应激多久了，总想靠所谓“对家”的逆天发言就能无限散味儿的病还没好啊？
+
+请问某位鸡友，敢说自己没故意恶心过别人吗？敢说自己没恨过哪个纸片人哪个cp吗？至少我可以问心无愧，至少我在贴吧替李噶对过线，给睦头辩过经，写过初祥，画过立希，至少我永远不会因为sb讨厌哪个纸片人。
+
+会开车的让着不会开的，素质高的让着素质低的，脸皮薄的让着脸皮厚的。上赶着吃我骂的，你们和九天仙女好好学ta那股厕味吧。
+
+
+*****
+
+####  skives10  
+##### 25040#       发表于 2024-10-18 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66480620&amp;ptid=2159415" target="_blank">安洁莉娜 发表于 2024-10-18 12:07</a>
+正主怎么还是只会躲啊？几个月不见你这饭味不减就罢了怎么怂劲也不减啊？还有啊，你楼里就这几号人怎么一个 ...</blockquote>
+所以说前因后果到底是什么 你怎么就突然爆发了 是被人喷了吗<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+但大家也不知道具体情况啊
+某位鸡友又是谁
+都激动这样了 还在这说什么谜语啊 有仇的报仇呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 25041#       发表于 2024-10-18 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66480620&amp;ptid=2159415" target="_blank">安洁莉娜 发表于 2024-10-18 12:07</a>
+
+正主怎么还是只会躲啊？几个月不见你这饭味不减就罢了怎么怂劲也不减啊？还有啊，你楼里就这几号人怎么一个 ...</blockquote>
+你都睦头了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别装了吧
+

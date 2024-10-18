@@ -13687,3 +13687,11 @@ atlus你这技术力连个单独的demo做不来，原来都有学习版了啊<i
 
 mag后期怎么都不够用，怎么还能搞出来一个mag换金的功能，能不能反过来啊<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Edvinno  
+##### 2779#       发表于 2024-10-18 22:35
+
+前15个小时有9分，现在60小时到决战门口，感觉只值6分了，好气啊<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

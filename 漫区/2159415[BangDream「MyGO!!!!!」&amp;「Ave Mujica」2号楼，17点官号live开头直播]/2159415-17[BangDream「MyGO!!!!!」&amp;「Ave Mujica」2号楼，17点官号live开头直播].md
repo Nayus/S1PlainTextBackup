@@ -17295,3 +17295,19 @@ https://x.com/this_is_nn/status/1847205741788295484?s=46&amp;t=IZGx0N13SOtHALpwG
 
 不过很难说这里是延伸为“初华并不适应手冲咖啡这种形式”还是“初华当时只想能省一步算一步压根不在乎那点咖啡渣”
 
+
+*****
+
+####  uhiuk  
+##### 25141#       发表于 2024-10-19 02:06
+
+<img src="https://img.saraba1st.com/forum/202410/19/020549wgww95333bc93xcb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241019_020516.jpg</strong> (277.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-19 02:05 上传
+
+贴吧看到的
+

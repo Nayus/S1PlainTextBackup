@@ -52,3 +52,16 @@
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  pokemon最爱  
+##### 1921#       发表于 2024-10-19 02:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66487990&amp;ptid=1550724" target="_blank">oi99o 发表于 2024-10-19 02:03</a>
+
+女疯子打架是ggo最重要的一环，不得不品尝
+
+论坛助手,iPhone</blockquote>
+充分展现了时雨泽写小说时的精神状态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

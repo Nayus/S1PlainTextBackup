@@ -705,3 +705,29 @@ sc2本身就还行吧我觉得（
 
 Producer，这次就，由我收下了。毕竟，甜花是姐姐嘛
 
+
+*****
+
+####  wfhtony  
+##### 6599#       发表于 2024-10-18 21:26
+
+12月EXPO的線上觀看券[已經開賣](https://asobistage.asobistore.jp/event/idolmaster_master_expo/information)：
+
+<img src="https://img.saraba1st.com/forum/202410/18/212644mdq0j5jzmqrzr10a.png" referrerpolicy="no-referrer">
+
+<strong>download.png</strong> (113.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-18 21:26 上传
+
+日程：
+
+<img src="https://img.saraba1st.com/forum/202410/18/212645ae0eu9afeqv0c6aj.png" referrerpolicy="no-referrer">
+
+<strong>timetable_streaming.png</strong> (259.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-18 21:26 上传
+

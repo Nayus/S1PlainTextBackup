@@ -17116,3 +17116,42 @@ WOW！
 （才发现原来还有2nd的）
 [https://note.com/halkenborg/n/n8d1cfc72f094](https://note.com/halkenborg/n/n8d1cfc72f094)
 
+
+*****
+
+####  御幸一也  
+##### 25127#       发表于 2024-10-18 21:26
+
+英文的ave mujica劇情介紹和日文的差好多喔<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202410/18/212542o32r2pdzk5k9qtw3.jpg" referrerpolicy="no-referrer">
+
+<strong>GaJDtiKbgAAjHlY.jpg</strong> (250.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-18 21:25 上传
+
+[https://x.com/animefestasia/status/1847125456295698685](https://x.com/animefestasia/status/1847125456295698685)
+
+
+*****
+
+####  Aendst  
+##### 25128#       发表于 2024-10-18 21:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">一起堕入深渊 好中二，这很mujica
+
+不过这介绍算是能完美解释幕间小剧场吧
+
+各自怀抱的困扰和欲望
+
+欲望这个说法真的是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 25129#       发表于 2024-10-18 21:32
+
+给我干到古川哥哥新作的片场了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

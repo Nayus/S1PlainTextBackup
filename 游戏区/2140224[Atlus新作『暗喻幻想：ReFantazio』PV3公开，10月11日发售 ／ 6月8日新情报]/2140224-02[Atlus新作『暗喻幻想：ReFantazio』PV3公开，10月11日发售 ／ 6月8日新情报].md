@@ -13679,3 +13679,11 @@ atlus你这技术力连个单独的demo做不来，原来都有学习版了啊<i
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  卡拉德利姆  
+##### 2778#       发表于 2024-10-18 21:29
+
+mag后期怎么都不够用，怎么还能搞出来一个mag换金的功能，能不能反过来啊<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+

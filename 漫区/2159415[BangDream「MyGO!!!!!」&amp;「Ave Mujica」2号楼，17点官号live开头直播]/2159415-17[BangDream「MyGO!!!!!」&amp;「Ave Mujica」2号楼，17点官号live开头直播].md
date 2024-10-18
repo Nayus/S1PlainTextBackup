@@ -15711,3 +15711,46 @@ mygo第十二集就说了mujica是一生的事业了<img src="https://static.sar
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  结衣小比取  
+##### 25023#       发表于 2024-10-18 10:52
+
+祥子哭泣的表情真是美味，从先导PV1、PV2里截了几个GIF<img src="https://static.saraba1st.com/image/smiley/face/159.gif" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202410/18/105017xyszywzkuaaasrok.gif" referrerpolicy="no-referrer">
+
+<strong>PV1祥子哭.gif</strong> (2.59 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-18 10:50 上传
+
+<img src="https://img.saraba1st.com/forum/202410/18/105019fga3ptpwi44e4tfi.gif" referrerpolicy="no-referrer">
+
+<strong>PV2祥子哭_转换版.gif</strong> (2.56 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-18 10:50 上传
+
+<img src="https://img.saraba1st.com/forum/202410/18/105029tyzlkff1z6flmyl3.gif" referrerpolicy="no-referrer">
+
+<strong>PV2祥子哭V2_转换版.gif</strong> (1.91 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-18 10:50 上传
+
+*****
+
+####  Aendst  
+##### 25024#       发表于 2024-10-18 10:56
+
+ 本帖最后由 Aendst 于 2024-10-18 10:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66478064&amp;ptid=2159415" target="_blank">安洁莉娜 发表于 2024-10-18 02:33</a>
+
+光看手不就知道是喵梦吗？还有某些意见领袖也别一顺风就上群体护盾了好吧？你楼当初爆典的时候有鸡友替狗和 ...</blockquote>
+你先现场骂一下武士道看看实力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

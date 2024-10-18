@@ -13496,3 +13496,13 @@ atlus你这技术力连个单独的demo做不来，原来都有学习版了啊<i
 
 战车上看完的书是可以重复看的，我五维气量不够没发现这点在那里保养武器，踩了个坑<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Khellendros  
+##### 2762#       发表于 2024-10-18 11:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+【雷总妙评《暗喻幻想》的迷宫设计】 [https://www.bilibili.com/video/B ... da33b18dbdfb6356b70](https://www.bilibili.com/video/BV1VLmnYgEQ6/?share_source=copy_web&amp;vd_source=18d009e3af8efda33b18dbdfb6356b70)
+

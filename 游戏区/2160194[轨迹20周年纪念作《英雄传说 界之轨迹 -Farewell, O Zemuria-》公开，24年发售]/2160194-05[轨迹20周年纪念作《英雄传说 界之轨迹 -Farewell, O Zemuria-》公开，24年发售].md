@@ -7360,3 +7360,13 @@ E大师快给滚啊！！这剧情插图多好看啊，立绘都被大师给毁�
 
 之前听圣兽之王的降魔bgm还没过瘾，这回靠界轨最终boss战bgm续上了
 
+
+*****
+
+####  哆哆鸡  
+##### 6618#       发表于 2024-10-18 11:26
+
+我也打完了，作为结晶粉可以给9分，已经开始期待黎轨4部曲完结后的新系列了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+打的时候就感觉夏侬的声优好像长崎素世，打完看cast表发现还真是<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

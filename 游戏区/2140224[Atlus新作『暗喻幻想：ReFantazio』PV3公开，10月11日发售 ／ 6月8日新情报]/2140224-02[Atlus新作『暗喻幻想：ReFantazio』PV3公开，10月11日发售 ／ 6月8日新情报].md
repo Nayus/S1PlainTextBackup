@@ -13839,3 +13839,30 @@ mag后期怎么都不够用，怎么还能搞出来一个mag换金的功能，�
 
 反向莱欧斯
 
+
+*****
+
+####  modkingr  
+##### 2792#       发表于 2024-10-18 23:58
+
+第二章的村子有什么特殊功能吗？感觉每个大城市都有无法取代的功能，只有第二章看起来什么都没有啊
+
+王都可以鉴定可以买魔导器
+
+水城有竞技场、买面具
+
+岛上可以改天气
+
+
+*****
+
+####  windtrack  
+##### 2793#       发表于 2024-10-19 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66487312&amp;ptid=2140224" target="_blank">modkingr 发表于 2024-10-18 23:58</a>
+
+第二章的村子有什么特殊功能吗？感觉每个大城市都有无法取代的功能，只有第二章看起来什么都没有啊
+
+王都可 ...</blockquote>
+跳楼有个成就<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -13476,3 +13476,15 @@ atlus你这技术力连个单独的demo做不来，原来都有学习版了啊<i
 
 三眼妹这一股子钦定正宫的气息啊
 
+
+*****
+
+####  jxzeroga0  
+##### 2760#       发表于 2024-10-18 11:06
+
+ 本帖最后由 jxzeroga0 于 2024-10-18 11:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66478546&amp;ptid=2140224" target="_blank">fireadol 发表于 2024-10-18 08:19</a>
+
+这沟槽的龙神迷宫打完能不喷的都是神人了，昨晚打了三个多小时全在迷宫里跑路，怪多安全屋又少，等级低不能 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">纯物理队？练个巫师解决一切续航问题，每个人都带一回合回10点mp的被动根本不愁没蓝。这迷宫是挺长的，但用朱娜法师队秒起来挺快。
+

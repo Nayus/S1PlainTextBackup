@@ -689,3 +689,55 @@ he并不好用，没破片没子炸弹纯加一个范围爆炸，效果感觉不
 
 2024-10-17 21:32 上传
 
+
+*****
+
+####  xinfengj  
+##### 5495#       发表于 2024-10-16 15:14
+
+<img src="https://p.sda1.dev/19/7bc77b270056e43b8eedf61aa80249e8/CMP_20241016150646252.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/d96eb439c623e90b1dd8cb7fd6d07b8a/CMP_20241016150646337.jpg" referrerpolicy="no-referrer">
+更新文档里的彩蛋，描述巨型者nerf时使用了天龙特攻队的台词
+<img src="https://p.sda1.dev/19/8f4a65029be6e62103e83df24c36e82d/CMP_20241016151011520.jpg" referrerpolicy="no-referrer">
+“If you have a problem, if no one else can help, and if you can find them, maybe you can hire the A-Team.”
+而John既是天龙特攻队主角的名字，也是士官长的名字。
+<img src="https://p.sda1.dev/19/7f95edb4fc922380be9a4b7f97153f00/CMP_20241016150646426.jpg" referrerpolicy="no-referrer">
+曾经发布过一套致敬士官长的中型医疗甲TR117
+
+*****
+
+####  艾诺琳  
+##### 5496#       发表于 2024-10-17 09:18
+
+玩了几天，各种武器体验也还行，步枪能上场了，穿甲解放者挺好用的
+
+但是现在问题是我打一局毫无成就感，样本满了，牌子满了，总不能每次打N10刷超级货币吧？
+
+还不如出个改枪系统刷刷刷
+
+最近联机系统又bug了吧，和基友2人联机第一把可以匹配到人，结果人一退就再也没人了，搞得每次只能打一个任务就退出再开
+
+*****
+
+####  BadYanL  
+##### 5497#       发表于 2024-10-17 21:33
+
+亚马逊的游戏短剧有披风虫
+
+<img src="https://img.saraba1st.com/forum/202410/17/213242pfffafjp2a2pf2jf.png" referrerpolicy="no-referrer">
+
+<strong>IMG_3204.png</strong> (658.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-17 21:32 上传
+
+*****
+
+####  风萧飒  
+##### 5498#       发表于 2024-10-18 10:31
+
+索尼的小机器人也刚上了冻肉版机器人
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

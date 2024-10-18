@@ -15688,3 +15688,15 @@ mygo第十二集就说了mujica是一生的事业了<img src="https://static.sar
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  rikaren  
+##### 25021#       发表于 2024-10-18 10:32
+
+<blockquote>MASKA-1 发表于 2024-10-18 10:24
+有没有可爱系小喵梦看？
+
+  -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
+初祥的已经有了，睦的大概率也在路上了，真希望我们AM都有可爱的幼年体形态啊。
+

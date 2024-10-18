@@ -16603,3 +16603,13 @@ X上看到日本人在提，KiLLKiSS，只有两个i是小写的设计<img src="
 这下要从12.1退网到12.15了</blockquote>
 这种动画提前放映，网络票真的也会跟着直播吗（
 
+
+*****
+
+####  cherryjia12  
+##### 25087#       发表于 2024-10-18 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66482358&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-10-18 15:00</a>
+这种动画提前放映，网络票真的也会跟着直播吗（</blockquote>
+这么残忍吗<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">wsd你最好想清楚
+

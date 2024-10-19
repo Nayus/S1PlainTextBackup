@@ -1087,3 +1087,29 @@ lofter看到的好玩的图<img src="https://static.saraba1st.com/image/smiley/f
 
    <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">让母鸡卡演奏春日影是想把c团尸体秽土转生出来吹个唢呐再重新入土吗
 
+
+*****
+
+####  星天观测  
+##### 25262#       发表于 2024-10-20 00:29
+
+为什么要鸡唱春日影，初华海铃喵梦跟春日影有关系吗，还是祥子和睦说过真想弹春日影<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+已经一年多了，有些梗真的挺烂了吧
+
+*****
+
+####  skives10  
+##### 25263#       发表于 2024-10-20 00:34
+
+<img src="https://img.saraba1st.com/forum/202410/20/003341fantyizsji92ba2y.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0105.jpeg</strong> (298.9 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-10-20 00:33 上传
+
+https://x.com/moepusanai/status/1847656777523093865?s=46&amp;t=IZGx0N13SOtHALpwG0Ubrg
+

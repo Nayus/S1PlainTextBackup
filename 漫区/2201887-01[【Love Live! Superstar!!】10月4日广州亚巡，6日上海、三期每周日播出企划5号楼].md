@@ -2666,3 +2666,17 @@ yysy，就算是早年的安卓pad也一直都比surface好用<img src="https://
 
 真要拿pad比喻，那可能是邦邦动画（
 
+
+*****
+
+####  csolfans  
+##### 253#       发表于 2024-10-20 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66494714&amp;ptid=2201887" target="_blank">ads147147 发表于 2024-10-19 23:36</a>
+一直以为是先三次元再反过来输入建模呢，怎么还能反过来
+
+所以说其实是人好看所以衣服也就那么接受了，反 ...</blockquote>
+出处不是公式书，而是99music的访谈:BV1fw41157fW
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

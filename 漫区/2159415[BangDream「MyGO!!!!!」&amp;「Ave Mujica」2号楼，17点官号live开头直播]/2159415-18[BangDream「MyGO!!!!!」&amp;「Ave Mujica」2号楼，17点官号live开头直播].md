@@ -1129,3 +1129,11 @@ https://x.com/moepusanai/status/1847656777523093865?s=46&amp;t=IZGx0N13SOtHALpwG
 
 [https://x.com/nCVn9wGaqX64908/status/1847335945999438028](https://x.com/nCVn9wGaqX64908/status/1847335945999438028)
 
+
+*****
+
+####  akiomn  
+##### 25265#       发表于 2024-10-20 01:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鸡团不知道谁会是爹妈位，狗团立希当爹soyo当妈，鸡团除掉喵梦和睦，剩下三个都有说法啊
+

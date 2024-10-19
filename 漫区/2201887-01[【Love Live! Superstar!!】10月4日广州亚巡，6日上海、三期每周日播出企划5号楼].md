@@ -2447,3 +2447,17 @@ Nagi的一专网易云也上架了
 
 本周肯定是红蓝的，但听口述说衣服很难欣赏，BYD，真的有必要吗，算了，反正现在也不是唐女士全权负责，直接分摊伤害<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 234#       发表于 2024-10-19 08:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66487656&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-10-19 00:49</a>
+现在动画真是大漏勺啊，而且每周还挺准时，都是代理漏的吗
+
+本周肯定是红蓝的，但听口述说衣服很难欣赏，BYD ...</blockquote>
+隔壁闪2刚刚拉了41.2%，红蓝cp回还能写烂去和闪凑一桌的话我也得佩服下你花。。。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -2485,3 +2485,28 @@ Nagi的一专网易云也上架了
 
 2024-10-19 09:24 上传
 
+
+*****
+
+####  ads147147  
+##### 237#       发表于 2024-10-19 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66488661&amp;ptid=2201887" target="_blank">starring 发表于 2024-10-19 09:25</a>
+鬼姐姐这套衣服，和op3一个风格但不是格仔纹还挺好看的</blockquote>
+我觉得op那身如果是现实看，光影细节更多应该也不会难看。op里渲染的一片糊的颜色，还有那个肩带真的丑。。。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  ads147147  
+##### 238#       发表于 2024-10-19 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66488516&amp;ptid=2201887" target="_blank">离心 发表于 2024-10-19 09:00</a>
+看来前面有人预测的是对的恐怕星三真的早就做好了，这也太固定时间了</blockquote>
+花田确实不太可能一年8开，大概率是疫情之类的累积下来的，堆到24年播了。
+
+目前看gbc，星3，京吹3都像是之前已经写好的。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

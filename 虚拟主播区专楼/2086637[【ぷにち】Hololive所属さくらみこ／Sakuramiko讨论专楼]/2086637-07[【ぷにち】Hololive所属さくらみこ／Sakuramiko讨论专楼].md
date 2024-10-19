@@ -12921,3 +12921,24 @@ flower rhapsody这曲是真的难啊，竟然公开了难得的录制现场
 
 其实真起不来还有一个保险，486还在直播到时候绝对会有人去直播间叫486去叫醒
 
+
+*****
+
+####  holoan  
+##### 9943#         楼主| 发表于 2024-10-19 10:01
+
+<img src="https://img.saraba1st.com/forum/202410/19/100113zmqiba4bxctsmqxt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (6.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-19 10:01 上传
+
+*****
+
+####  holoan  
+##### 9944#         楼主| 发表于 2024-10-19 10:16
+
+这没开闹钟吧，还要2个妈妈轮流伺候
+

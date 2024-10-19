@@ -65,3 +65,12 @@
 论坛助手,iPhone</blockquote>
 充分展现了时雨泽写小说时的精神状态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ParadiseMartyr  
+##### 1922#       发表于 2024-10-19 10:10
+
+不是，绿毛女的发疯下场杀其他小队干嘛，动机是什么
+等主角队出来直接狙死不就好了
+

@@ -92,3 +92,16 @@
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  梶原ひかり  
+##### 1925#       发表于 2024-10-19 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66488947&amp;ptid=1550724" target="_blank">ParadiseMartyr 发表于 2024-10-19 10:10</a>
+
+不是，绿毛女的发疯下场杀其他小队干嘛，动机是什么
+
+等主角队出来直接狙死不就好了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">享受猎杀人的快乐
+

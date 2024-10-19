@@ -316,3 +316,19 @@ cnm,wsd......
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  ydsbbt  
+##### 25191#       发表于 2024-10-19 15:40
+
+感觉企划的决策变更点和独角兽出事的时间点重合度还挺高的，都是去年秋9月<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 25192#       发表于 2024-10-19 15:40
+
+泥漏早就推测出早做完了，但是真有人敢说是没想到的
+不会觉得自己很天才吧wsd<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

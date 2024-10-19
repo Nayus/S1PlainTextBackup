@@ -214,3 +214,45 @@ cnm,wsd......
 
 這下實錘了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御景  
+##### 25181#       发表于 2024-10-19 15:06
+
+猜到和实锤还是两码事，WSD真敢说啊
+
+*****
+
+####  skives10  
+##### 25182#       发表于 2024-10-19 15:08
+
+这个松本桑是三次元的人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 25183#       发表于 2024-10-19 15:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么看是wsd费拉不堪，手游先炸了导致go的箱活做不出来（轮符雨大概率是库存）鸡团进不了游戏，只能延期到明年一月。中间的空档期赶工做个猫猫剧场版来填补
+
+
+*****
+
+####  Aendst  
+##### 25184#       发表于 2024-10-19 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66491081&amp;ptid=2159415" target="_blank">akiomn 发表于 2024-10-19 15:11</a>
+
+这么看是wsd费拉不堪，手游先炸了导致go的箱活做不出来（轮符雨大概率是库存）鸡团进不了游戏，只能延期到 ...</blockquote>
+不会的，手游炸了所有团的活动都会炸，因为mygo是已实装乐队，在手游活动的制作流程上和其他老团没有任何区别，不会只拖mygo一家的
+
+而且根本自己亲口说过了，大意来说就是为了等mujica的动画（也说了mygo的剧场版），因为mygo和mujica的内容重心是动画
+
+*****
+
+####  461757753  
+##### 25185#       发表于 2024-10-19 15:15
+
+虽然猜到了，不过wsd这什么烂寄吧决策
+

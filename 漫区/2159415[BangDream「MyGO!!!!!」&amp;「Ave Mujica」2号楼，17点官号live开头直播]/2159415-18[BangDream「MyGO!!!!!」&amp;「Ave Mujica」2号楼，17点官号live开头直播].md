@@ -550,3 +550,48 @@ wsd还我独角兽发癫小作文<img src="https://static.saraba1st.com/image/sm
 
 往好了想，这是武士道对mujica的动画有信心，自信可以再拉起一波热度而不是让两波热度变一波。
 
+
+*****
+
+####  11A511  
+##### 25214#       发表于 2024-10-19 16:48
+
+其实拖个一年应该不会真的对动画开播时的热度造成影响吧，之前某倒🐶屯了十几套4th票卖不出去，3rd+邦TV之后刷的一下就卖掉了
+
+*****
+
+####  御幸一也  
+##### 25215#       发表于 2024-10-19 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66491658&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-10-19 16:42</a>
+
+我都懒得骂了
+
+真想推鸡就多弄点东西出来，邦tv腹泻式预告（画饼）后的一个半月里鸡其实又是一点东西没有的 ...</blockquote>
+
+往好處想，現在憋一個月，12月能拉很多情報<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+邦TV的腹瀉不就是便秘了很久拉出來的嗎，
+
+就12/15的KV圖，蘿的早就出來不知道多久了，你雞的還要憋到上次邦TV才丟，湊一下顯得腹瀉了很多……
+
+
+*****
+
+####  Aendst  
+##### 25216#       发表于 2024-10-19 16:52
+
+ 本帖最后由 Aendst 于 2024-10-19 16:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66491619&amp;ptid=2159415" target="_blank">11A511 发表于 2024-10-19 16:35</a>
+
+今年年初时猜想过wsd因为营收状况不行，砍掉或者无限期推迟了一部后续作品，为了填补空档只能把🐔往后拉
+
+ ...</blockquote>
+看根本的意思，新企划其实可能是在筹备中的，当然这部分内容太模糊了不能定论
+
+而且既然手头还有资源去做mygo的总集篇+新内容剧场版，没理由反而连蝶同款的ova都没有资源去做
+
+同样也是股东大会的记录
+
+股东在质疑这一年间新乐队企划投入问题的时候，根本的所有回答都是对mygo的，没有提到mujica，他们知道自己资源都投给谁了
+

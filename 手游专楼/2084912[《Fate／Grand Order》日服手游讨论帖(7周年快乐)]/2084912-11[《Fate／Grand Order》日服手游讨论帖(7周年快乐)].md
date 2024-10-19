@@ -1105,3 +1105,44 @@ ex阶都比常规职阶多了。真不如再起一排
 
 这次活动地图太花了，找本找半天<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jackyhuang  
+##### 15024#       发表于 2024-10-18 20:20
+
+果然是没有满分就不行然后循环那套
+这次活动主角其实是卡多克吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又是围裙又是泳装的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+
+*****
+
+####  cenhr  
+##### 15025#       发表于 2024-10-18 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66485549&amp;ptid=2084912" target="_blank">jackyhuang 发表于 2024-10-18 20:20</a>
+
+果然是没有满分就不行然后循环那套
+
+这次活动主角其实是卡多克吧又是围裙又是泳装的</blockquote>
+看来是准备刀人了，趁现在还有时间先把猪养肥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之花  
+##### 15026#       发表于 2024-10-19 02:56
+
+这次活动地图太花了，找本找半天<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eilot  
+##### 15027#       发表于 2024-10-19 11:16
+
+平均30萬才出一隻，暫時出到2隻...
+
+這真的是月之子友情池UP嗎?已經確定不是抽錯普通的殺怖池
+
+不過另外saber lily和小妖精一隻都沒有
+

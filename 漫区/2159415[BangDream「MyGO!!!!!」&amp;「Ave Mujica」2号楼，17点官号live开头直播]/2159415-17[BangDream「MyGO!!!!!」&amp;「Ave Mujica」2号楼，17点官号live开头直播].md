@@ -17400,3 +17400,20 @@ https://x.com/this_is_nn/status/1847205741788295484?s=46&amp;t=IZGx0N13SOtHALpwG
 狗u来或不来 那都是他们自己的选择 
 鸡粉明明只是正常讨论剧情 怎么就成了排挤了呢
 
+
+*****
+
+####  星天观测  
+##### 25150#       发表于 2024-10-19 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66489181&amp;ptid=2159415" target="_blank">skives10 发表于 2024-10-19 10:46</a>
+
+而且我觉得泥楼的鸡粉也太会帮他人着想了
+
+狗u来或不来 那都是他们自己的选择 
+
+鸡粉明明只是正常讨论剧情 怎 ...</blockquote>
+很简单，近有昨天破防人的声声控诉，远有几个月前突然冒出来的“这楼为什么没有狗粉你们心里不清楚么”
+
+排挤并不是鸡推自嘲，而是他人的说法
+

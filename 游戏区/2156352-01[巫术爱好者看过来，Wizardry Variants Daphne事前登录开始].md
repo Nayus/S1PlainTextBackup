@@ -635,3 +635,31 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 —— 来自 鹅球 v3.1.88.3-alpha</blockquote>
 【6层石像谜题解法 -巫术手游 Wizardry Variants Daphne-哔哩哔哩】 [https://b23.tv/SduVesm](https://b23.tv/SduVesm)
 
+
+*****
+
+####  fallout  
+##### 107#       发表于 2024-10-19 20:08
+
+下完打开黑屏怎么回事啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  elven119  
+##### 108#         楼主| 发表于 2024-10-19 20:11
+
+妈的第一个迷宫真的就是教程，进入2周目以后出来一堆新迷宫，刚去打提升冒险者阶级（解锁角色等级上限），那迷宫的boss直接把我干碎了。太几把难打了
+
+*****
+
+####  elven119  
+##### 109#         楼主| 发表于 2024-10-19 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66492986&amp;ptid=2156352" target="_blank">fallout 发表于 2024-10-19 20:08</a>
+
+下完打开黑屏怎么回事啊
+
+等了半天有内容了</blockquote>
+黑屏就是网络问题，挂梯子
+

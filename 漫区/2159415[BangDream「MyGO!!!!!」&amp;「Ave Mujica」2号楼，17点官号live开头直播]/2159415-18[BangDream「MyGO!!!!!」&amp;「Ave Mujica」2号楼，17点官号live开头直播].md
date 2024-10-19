@@ -658,3 +658,28 @@ wsd还我独角兽发癫小作文<img src="https://static.saraba1st.com/image/sm
 
 wsd还是需要高人指点 把钱用在刀刃上啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星空冻结  
+##### 25224#       发表于 2024-10-19 17:45
+
+wsd就是太弱智了不然邦邦整个企划就算碰上疫情也不会断崖式的下降<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 25225#       发表于 2024-10-19 17:47
+
+所以我一直不理解哪来的wsd孝子，草台wsd向来是脑子一拍新想法赌大运，邦邦大火是为数不多赌赢的情况，然后反手又把大好前景赌崩了
+
+这回就...祝他们赌赢吧
+
+
+*****
+
+####  skives10  
+##### 25226#       发表于 2024-10-19 17:52
+
+但wsd确实是业界难得的忠于百合的公司<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -751,3 +751,60 @@ Producer，这次就，由我收下了。毕竟，甜花是姐姐嘛
 
 hana这张卡剧情，我的评价是一张卡快把页游上面plove能干的都干完了
 
+
+*****
+
+####  wfhtony  
+##### 6602#       发表于 2024-10-18 21:26
+
+12月EXPO的線上觀看券[已經開賣](https://asobistage.asobistore.jp/event/idolmaster_master_expo/information)：
+
+<img src="https://img.saraba1st.com/forum/202410/18/212644mdq0j5jzmqrzr10a.png" referrerpolicy="no-referrer">
+
+<strong>download.png</strong> (113.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-18 21:26 上传
+
+日程：
+
+<img src="https://img.saraba1st.com/forum/202410/18/212645ae0eu9afeqv0c6aj.png" referrerpolicy="no-referrer">
+
+<strong>timetable_streaming.png</strong> (259.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-18 21:26 上传
+
+*****
+
+####  Alleyht  
+##### 6603#       发表于 2024-10-19 01:50
+
+ 本帖最后由 Alleyht 于 2024-10-19 01:52 编辑 
+
+太土了……实在太土了……尤其在吃了GRAD那一大坨又被限定儿力S掏空以后，真心没有把剩下10W矿挖掉来井这只暮光铃木的动力<img src="https://static.saraba1st.com/image/smiley/face2017/273.png" referrerpolicy="no-referrer">
+
+而且暮光这东西不满破基本就是变相食雪，这第一轮暮光结束后也不知道还有没有机会歪旧暮光，还是，算了吧……
+
+200连1铃木1灯织，还行（
+
+小高我劝你善良，暮光铃木，剩下200连起码再给我1只<img src="https://static.saraba1st.com/image/smiley/face2017/271.png" referrerpolicy="no-referrer">
+
+*****
+
+####  德米特里  
+##### 6604#       发表于 2024-10-19 01:59
+
+hana这张卡剧情，我的评价是一张卡快把页游上面plove能干的都干完了
+
+*****
+
+####  微尘众  
+##### 6605#       发表于 2024-10-19 08:47
+
+进攻这么猛，下个版本就只能当退堂鼓了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+

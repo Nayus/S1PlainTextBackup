@@ -14224,3 +14224,16 @@ BOSS完全不难用电脚打，但是差一丝的时候倒计时结束，直接�
 
 hard中期开始太恶心了，问下后面boss是不是人均起手+三次行动？本想说战斗系统比smt5好，现在看来差远了只会无脑给boss再动
 
+
+*****
+
+####  Lokad  
+##### 2827#       发表于 2024-10-19 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66494012&amp;ptid=2140224" target="_blank">耶耶抛的岔 发表于 2024-10-19 22:06</a>
+
+hard中期开始太恶心了，问下后面boss是不是人均起手+三次行动？本想说战斗系统比smt5好，现在看来差远了只 ...</blockquote>
+boss多动症得靠小丑coop7解锁王都魔法店卖的闪避戒指解决，或者练出王家盗贼。
+
+如果打算做成就的最终boss更是得好好规划，因为有独门绝技削行动点，让它动一次就只配一轮一动了。
+

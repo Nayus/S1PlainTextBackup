@@ -793,3 +793,14 @@ ed舒服不少
 
 要到哪一集能看到男主痛哭流涕地改变呢
 
+
+*****
+
+####  PingGuo233  
+##### 72#       发表于 2024-10-19 13:24
+
+果然是赌狗，只能说好似，看起来母亲还在世，但是那镜头有点经典歇斯底里阴郁母亲的感觉，既视感好浓<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+粉毛哥挺帅啊，看起来家里人也像得了癌症走了，而且明明是干便利店的活居然能帮男主还高利贷，什么隐藏富哥。说实话第一眼看粉毛哥这头发色和耳坠，一直担心他是楠酮，现在看起来还挺正常<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都是前阵子那些多元化害得风声鹤唳
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

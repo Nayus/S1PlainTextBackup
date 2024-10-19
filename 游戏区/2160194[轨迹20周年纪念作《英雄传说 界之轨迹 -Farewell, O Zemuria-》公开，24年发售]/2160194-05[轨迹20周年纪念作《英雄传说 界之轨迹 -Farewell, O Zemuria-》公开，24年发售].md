@@ -7730,3 +7730,16 @@ Q:你提到黎恩在界軌裡有多酷，會擔心帶回你心愛的角色，會
 
 然后我比较认可他们没给李霞出兔女郎装，不然实在太夸张了。
 
+
+*****
+
+####  卢迪克  
+##### 6636#       发表于 2024-10-19 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66492219&amp;ptid=2160194" target="_blank">aimbot 发表于 2024-10-19 18:07</a>
+
+今天看了一下之前玩游戏录的视频，发现你轨为什么人物说话的时候总是爱闭着眼睛，是因为这样很酷吗？
+
+ ...</blockquote>
+祖传插嘴闭眼
+

@@ -682,3 +682,11 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 比想象中好玩以及刺激。但因为中立，善和恶其实会影响一些buff，所以还是要注意一些 ...</blockquote>
 打完第一个迷宫，很多东西都会有解释，剧情也是牛的很
 
+
+*****
+
+####  elven119  
+##### 112#         楼主| 发表于 2024-10-19 20:37
+
+只求赶紧出steam版，这几天躺床上玩人都要废了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

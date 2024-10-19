@@ -8631,10 +8631,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 89705,
+    "totalreply": 89711,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1729365247,
+    "lastedit": 1729365726,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -17087,6 +17087,15 @@
     "newtitle": "[上海黄浦区不准万圣节换装了]",
     "lastedit": 1729361773,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2190591": {
+    "totalreply": 128,
+    "title": "[魔法少女奈叶 20周年纪念企划始动]",
+    "newtitle": "[魔法少女奈叶 20周年纪念企划始动]",
+    "lastedit": 1729366090,
+    "category": "漫区",
     "active": true,
     "update": false
   }

@@ -2584,3 +2584,15 @@ nga专楼最后一页</blockquote>
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  离心  
+##### 246#       发表于 2024-10-19 17:17
+
+<blockquote>csolfans 发表于 2024-10-19 17:10
+好 谢谢
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 v3.0.0-alpha</blockquote>
+那个是我发的，来源是在贴吧
+

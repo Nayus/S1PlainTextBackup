@@ -2653,3 +2653,16 @@ nga专楼最后一页</blockquote>
 
 说起来导演不是对服装设计也有很大的修改权力么，而且也不是没有好看的衣服，感觉上就是这里漏点毛病那里丢点状态，最后折腾个能看的玩意就交差的草台感，果然还是surface。。。
 
+
+*****
+
+####  ads147147  
+##### 252#       发表于 2024-10-19 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66493664&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-10-19 21:32</a>
+
+苏菲好歹还能用，你这个充其量是以前的安卓pad</blockquote>
+yysy，就算是早年的安卓pad也一直都比surface好用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+真要拿pad比喻，那可能是邦邦动画（
+

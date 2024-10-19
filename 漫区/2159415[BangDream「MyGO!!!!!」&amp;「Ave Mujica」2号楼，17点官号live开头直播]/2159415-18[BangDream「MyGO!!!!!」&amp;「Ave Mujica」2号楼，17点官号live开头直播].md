@@ -166,3 +166,51 @@ cnm,wsd......
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就又是泥漏早就猜到的东西了
 
+
+*****
+
+####  极速赛车手  
+##### 25176#       发表于 2024-10-19 14:56
+
+看起来是手游出问题导致tv延期，然后赶工一个剧场版出来填补空档？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 25177#       发表于 2024-10-19 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66490985&amp;ptid=2159415" target="_blank">极速赛车手 发表于 2024-10-19 14:56</a>
+
+看起来是手游出问题导致tv延期，然后赶工一个剧场版出来填补空档？</blockquote>
+这和手游需要等mujica动画，甚至把mygo的团活都停掉了是矛盾的
+
+所以实际上可能是决策上先决定了剧场版-延期mujica动画-手游还没做的部分就干脆没有追加
+
+*****
+
+####  相坂君  
+##### 25178#       发表于 2024-10-19 15:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 武士道，你可真行
+
+
+*****
+
+####  NODY  
+##### 25179#       发表于 2024-10-19 15:04
+
+怎么还特地吹了句配得上十周年的大作，wsd该不会是草台做不出十周年纪念动画所以干脆让鸡动画延迟顶上来了吧
+
+*****
+
+####  御幸一也  
+##### 25180#       发表于 2024-10-19 15:05
+
+這不是早就猜到的事了嗎<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+那時就說的，接著go做的沒停下動畫製作的線（本就不可能停），從聲優的配音時間看就是2024年1月能播的製作進程。
+
+最遲最遲，今年4月都做完了一定能播。然後還一堆人反駁ave mujica一定是沒做完才2025年1月播的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+這下實錘了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+

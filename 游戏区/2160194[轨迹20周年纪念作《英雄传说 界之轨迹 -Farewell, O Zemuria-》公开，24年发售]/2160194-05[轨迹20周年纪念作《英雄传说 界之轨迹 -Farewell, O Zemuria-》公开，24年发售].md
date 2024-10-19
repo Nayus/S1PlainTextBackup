@@ -7754,3 +7754,11 @@ Q:你提到黎恩在界軌裡有多酷，會擔心帶回你心愛的角色，會
 [https://www.falcom.co.jp/zwei2/character.html](https://www.falcom.co.jp/zwei2/character.html)
 <img src="https://www.falcom.co.jp/zwei2/character/gallandou/ss01.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jacket  
+##### 6638#       发表于 2024-10-20 00:17
+
+二周目数了一下第二部那个关键夜晚的情侣数量，高歌猛进的7对，关系复杂的3对，不算欢喜冤家类型的，至少有10对男女在搞事情
+

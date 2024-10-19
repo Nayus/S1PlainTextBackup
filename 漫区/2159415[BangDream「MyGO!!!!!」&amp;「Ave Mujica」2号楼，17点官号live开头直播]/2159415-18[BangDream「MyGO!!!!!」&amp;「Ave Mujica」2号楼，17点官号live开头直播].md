@@ -1079,3 +1079,11 @@ lofter看到的好玩的图<img src="https://static.saraba1st.com/image/smiley/f
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会，也没有理由唱
 
+
+*****
+
+####  uhiuk  
+##### 25261#       发表于 2024-10-20 00:15
+
+   <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">让母鸡卡演奏春日影是想把c团尸体秽土转生出来吹个唢呐再重新入土吗
+

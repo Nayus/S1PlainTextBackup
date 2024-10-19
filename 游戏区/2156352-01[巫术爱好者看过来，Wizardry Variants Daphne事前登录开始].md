@@ -708,3 +708,14 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 看起来很复古，steam版几时会出呢
 
+
+*****
+
+####  elven119  
+##### 115#         楼主| 发表于 2024-10-20 07:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66473525&amp;ptid=2156352" target="_blank">yj98879 发表于 2024-10-17 15:42</a>
+
+只能说制作组开心就好了，这么抽象的开局教程也是没谁了，更何况还是个手游 ...</blockquote>
+后面盗贼开锁起来以后，宝箱判定槽几乎占了整个槽的一半以上，闭着眼睛都不会按失败，到这个阶段更觉得这qte是鸡肋了
+

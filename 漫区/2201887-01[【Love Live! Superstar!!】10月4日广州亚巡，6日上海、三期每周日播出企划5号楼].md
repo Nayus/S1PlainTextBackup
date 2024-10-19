@@ -2518,3 +2518,17 @@ Nagi的一专网易云也上架了
 
 看到偷跑的打歌服了，好抽象啊艹，我以为op已经是巅峰了，结果还有高手
 
+
+*****
+
+####  csolfans  
+##### 240#       发表于 2024-10-19 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66487656&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-10-19 00:49</a>
+现在动画真是大漏勺啊，而且每周还挺准时，都是代理漏的吗
+
+本周肯定是红蓝的，但听口述说衣服很难欣赏，BYD ...</blockquote>
+在隔壁nga？
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

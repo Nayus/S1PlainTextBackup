@@ -2067,3 +2067,18 @@ document.getElementById('flv_ALj').innerHTML=("");
 
 真好玩<img src="https://p.sda1.dev/19/d93fc7a0ed058b884ab6f6e403043857/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  VVhaleVoice  
+##### 1669#       发表于 2024-10-19 15:56
+
+结局托力离开了什么的！我不接受<img src="https://static.saraba1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">
+托力的命由我不由天！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+塔塔开！！！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+一至末塔塔开！！！！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+打倒邪恶的三女神！！！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+解放托力！！！！！！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

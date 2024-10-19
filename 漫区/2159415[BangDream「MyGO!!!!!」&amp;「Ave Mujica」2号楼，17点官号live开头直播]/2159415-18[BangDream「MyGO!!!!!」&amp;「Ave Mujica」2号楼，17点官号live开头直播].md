@@ -347,3 +347,67 @@ cnm,wsd......
 
 只能說喜歡avemujica的誰受得了這種事，直接這樣被拖了一年，這下理解綾奈了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kivz  
+##### 25194#       发表于 2024-10-19 15:57
+
+吐了，傻逼wsd
+
+*****
+
+####  Aendst  
+##### 25195#       发表于 2024-10-19 15:59
+
+ 本帖最后由 Aendst 于 2024-10-19 16:01 编辑 
+
+绫奈取关柿本是在去年的10~11月，在取关后还删了大量mygo相关的推文
+
+刚好差不多是mygo剧场版的决定时间和开始制作的前期
+
+mygo推和官推不确定有没有关注，但取关柿本的时间点确实没有关注了
+
+取关mujica官推大概是在今年的7月，而且9月又自己主动提了写mujica脚本相关的事
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大概她确实挺爱的，可能比一般路过mujica推还爱
+
+*****
+
+####  鳥栖朝  
+##### 25196#       发表于 2024-10-19 16:00
+
+果然，wsd你真的是太天才了
+
+*****
+
+####  PDQ4  
+##### 25197#       发表于 2024-10-19 16:01
+
+wsd还我独角兽发癫小作文<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  鳥栖朝  
+##### 25198#       发表于 2024-10-19 16:03
+
+ 本帖最后由 鳥栖朝 于 2024-10-19 16:04 编辑 
+
+可太会护食了，这种发过去也治不好
+
+*****
+
+####  akiomn  
+##### 25199#       发表于 2024-10-19 16:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很难不理解独角兽为什么会气的取关了，自己的心血本来以为最早一月最迟四月就能播，结果延到25年1月
+
+*****
+
+####  Toki_Ai  
+##### 25200#       发表于 2024-10-19 16:05
+
+这算不算歪打正着，在这边熬出了不少企划粉<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">至少邦邦这一年里比以前有热度
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

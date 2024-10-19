@@ -808,3 +808,46 @@ hana这张卡剧情，我的评价是一张卡快把页游上面plove能干的�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
 
+
+*****
+
+####  joshua1990  
+##### 6606#       发表于 2024-10-19 14:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">牢广的假声唱歌越发熟练了
+
+*****
+
+####  joshua1990  
+##### 6607#       发表于 2024-10-19 15:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">牢广的solo3来乐
+
+*****
+
+####  raimouse  
+##### 6608#       发表于 2024-10-19 15:18
+
+solo3不如solo2对口味
+
+*****
+
+####  Serious  
+##### 6609#       发表于 2024-10-19 15:19
+
+solo3好普通，没有solo1和2电波
+
+*****
+
+####  BQlin  
+##### 6610#       发表于 2024-10-19 15:19
+
+很平淡的一首，连编曲和灯光都摸了
+
+*****
+
+####  joshua1990  
+##### 6611#       发表于 2024-10-19 15:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">最节能的一首solo3
+

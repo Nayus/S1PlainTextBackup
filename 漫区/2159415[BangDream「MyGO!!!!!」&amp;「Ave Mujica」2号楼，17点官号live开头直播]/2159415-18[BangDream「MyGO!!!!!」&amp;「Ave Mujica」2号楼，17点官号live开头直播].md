@@ -256,3 +256,42 @@ cnm,wsd......
 
 虽然猜到了，不过wsd这什么烂寄吧决策
 
+
+*****
+
+####  御幸一也  
+##### 25186#       发表于 2024-10-19 15:19
+
+往前翻怎麼還有劇場版是去年秋天決定的錘
+
+這怎麼越想越<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202410/19/151832jy6ty5ty41yt1byb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (93.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-19 15:18 上传
+
+[https://realsound.jp/movie/2024/10/post-1814313.html](https://realsound.jp/movie/2024/10/post-1814313.html)
+
+*****
+
+####  skives10  
+##### 25187#       发表于 2024-10-19 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66491134&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-10-19 15:19</a>
+往前翻怎麼還有劇場版是去年秋天決定的錘
+
+這怎麼越想越 </blockquote>
+去年9/14的时候 可能全体staff都觉得明年四月甚至一月就能开播呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rikaren  
+##### 25188#       发表于 2024-10-19 15:25
+
+算了下1.2开播，一周放送一话，13话在3.27结束，掺个总集篇就是4.3，那估计3.27放送结束，周年活动结束后再进游戏了。
+

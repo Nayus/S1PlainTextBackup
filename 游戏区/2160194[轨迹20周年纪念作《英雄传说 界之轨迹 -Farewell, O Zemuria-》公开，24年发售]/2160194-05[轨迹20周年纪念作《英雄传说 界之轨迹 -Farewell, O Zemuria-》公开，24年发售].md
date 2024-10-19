@@ -7743,3 +7743,14 @@ Q:你提到黎恩在界軌裡有多酷，會擔心帶回你心愛的角色，會
  ...</blockquote>
 祖传插嘴闭眼
 
+
+*****
+
+####  jacket  
+##### 6637#       发表于 2024-10-19 23:51
+
+回去查了一下双星2，企鹅台词里的「ムッシュ」说的是肌肉假面
+
+[https://www.falcom.co.jp/zwei2/character.html](https://www.falcom.co.jp/zwei2/character.html)
+<img src="https://www.falcom.co.jp/zwei2/character/gallandou/ss01.jpg" referrerpolicy="no-referrer">
+

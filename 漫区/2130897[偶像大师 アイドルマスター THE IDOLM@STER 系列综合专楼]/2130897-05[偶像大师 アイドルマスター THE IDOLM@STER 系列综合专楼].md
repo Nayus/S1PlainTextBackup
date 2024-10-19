@@ -851,3 +851,88 @@ solo3好普通，没有solo1和2电波
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">最节能的一首solo3
 
+
+*****
+
+####  Serious  
+##### 6612#       发表于 2024-10-19 15:43
+
+miya今天气息好多了，还是得多上舞台
+
+*****
+
+####  北条早苗  
+##### 6613#       发表于 2024-10-19 18:02
+
+牢广的solo3比起solo1的前卫和solo2的数摇过于普通了
+
+*****
+
+####  lunaticfool  
+##### 6614#       发表于 2024-10-19 19:08
+
+看录音室版本能不能救吧。L.U.V现场也拉，录音室版本一出，这不挺好听的嘛
+
+*****
+
+####  wfhtony  
+##### 6615#       发表于 2024-10-19 19:13
+
+Setlist（-初恋公演- 広島クラブクアトロ公演）：
+
+[開演時間：
+
+・晝場：15:13 (UTC+9)
+
+・夜場：18:27 (UTC+9)]
+
+・Overture + 1st block<blockquote>[開演前注意事項 // 十王邦夫（CV.大塚明夫）、根緒亜紗里（CV.古賀葵）]
+
+[Overture:《DEBUT LIVE 初 TOUR -序曲-》 // Kijibato]
+
+01. 初 // 全員
+
+02. Campus mode!! // 全員
+
+→ 開場MC（MC①）</blockquote>・2nd block<blockquote>03. Fluorite // 七瀬つむぎ
+
+04. Tame-Lie-One-Step // 湊みや（＊Long Intro ver.）
+
+05. 光景 // 川村玲奈
+
+→ MC②
+
+06. カクシタワタシ // 湊みや
+
+07. コントラスト // 川村玲奈
+
+08. Feel Jewel Dream // 七瀬つむぎ
+
+→ MC③</blockquote>・3rd block + 安可<blockquote>09. 仮装狂騒曲 // 全員
+
+10. コンテンポラリのダンス // 川村玲奈（＊晝場，新曲）
+
+10. Top Secret // 七瀬つむぎ（＊夜場）
+
+→ MC④
+
+11. がむしゃらに行こう！ // 全員（＊晝場）
+
+11. Howling over the World // 全員（＊夜場）
+
+---安可---
+
+12. キミとセミブルー // 全員（＊晝場）
+
+12. 冠菊 // 全員（＊夜場）
+
+→ 安可MC
+
+13. 初 // 全員
+
+[終演後留言 // 十王邦夫（CV.大冢明夫）、根绪亜纱里（CV.古贺葵）]</blockquote>
+本週NO KOMINO。（上週預告過了，下週日會來）
+以下内容需要积分高于 500 才可浏览
+
+Resilio: BVHEBN3H6UH54ASZ7FLXWRCAQDTH52F67
+

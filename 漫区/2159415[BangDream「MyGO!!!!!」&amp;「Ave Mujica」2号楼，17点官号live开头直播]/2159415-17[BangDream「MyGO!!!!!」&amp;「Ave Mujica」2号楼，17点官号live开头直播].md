@@ -17360,3 +17360,11 @@ https://x.com/this_is_nn/status/1847205741788295484?s=46&amp;t=IZGx0N13SOtHALpwG
 
 等人多了就可以学习水魔 分动画楼和真爱楼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 25146#       发表于 2024-10-19 09:23
+
+确实学水魔分成动画楼和mujica真爱楼好点，毕竟等动画开播了是拦不住动画新入坑跟风玩梗的人的
+

@@ -13895,3 +13895,11 @@ mag后期怎么都不够用，怎么还能搞出来一个mag换金的功能，�
 
 突然想起整个游戏是不是不超过15种怪物建模？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猫沢  
+##### 2797#       发表于 2024-10-19 09:22
+
+更新的抗锯齿真的有用吗？我设置完和off没区别全是锯齿，换回n卡控制面板里的fxaa了
+

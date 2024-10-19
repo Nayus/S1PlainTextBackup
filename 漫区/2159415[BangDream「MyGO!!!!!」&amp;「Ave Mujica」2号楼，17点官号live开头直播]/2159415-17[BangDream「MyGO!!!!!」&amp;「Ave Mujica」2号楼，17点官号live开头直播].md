@@ -17352,3 +17352,11 @@ https://x.com/this_is_nn/status/1847205741788295484?s=46&amp;t=IZGx0N13SOtHALpwG
 
 至于粉丝对线这种事感觉是不太可能完全避免的，分楼和不分楼的差别也只是隔空对线和当面对线而已，但是这种事并不是每个人都会参与都爱看，分楼或许也会利好部分爬楼漏油和不爱看纷争刷屏的漏油
 
+
+*****
+
+####  skives10  
+##### 25145#       发表于 2024-10-19 09:08
+
+等人多了就可以学习水魔 分动画楼和真爱楼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

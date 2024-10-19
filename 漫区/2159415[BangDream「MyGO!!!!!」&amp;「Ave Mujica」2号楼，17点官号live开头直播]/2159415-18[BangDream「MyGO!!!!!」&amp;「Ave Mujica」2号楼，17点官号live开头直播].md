@@ -1180,3 +1180,11 @@ https://x.com/moepusanai/status/1847656777523093865?s=46&amp;t=IZGx0N13SOtHALpwG
 
 其实，主要就是想看大祥老师暗黑功德祥再弹一次春日影<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KirigawaMaki  
+##### 25271#       发表于 2024-10-20 03:03
+
+喵梦家族通话那张表情差分，会照顾弟妹的大姐感也很足的啊
+

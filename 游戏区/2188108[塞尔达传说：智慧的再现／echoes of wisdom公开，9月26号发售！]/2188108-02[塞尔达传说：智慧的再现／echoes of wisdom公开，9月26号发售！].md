@@ -2030,3 +2030,40 @@ document.getElementById('flv_ALj').innerHTML=("");
 
 【鸿儒林克的塞尔达】 [https://www.bilibili.com/video/B ... d11544ce04b701263dc](https://www.bilibili.com/video/BV1Y3mTYvEA1/?share_source=copy_web&amp;vd_source=e25a19f57372cd11544ce04b701263dc)
 
+
+*****
+
+####  佛罗伦萨  
+##### 1666#       发表于 2024-10-17 11:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66466194&amp;ptid=2188108" target="_blank">yohyoh4966 发表于 2024-10-16 17:16</a>
+
+现在还卡在短距离赛马 怎么都差一点</blockquote>
+开局就变身林克形态，把障碍物射没就行了，多试几次就能成功
+
+*****
+
+####  佛罗伦萨  
+##### 1667#       发表于 2024-10-17 11:46
+
+【鸿儒林克的塞尔达】 [https://www.bilibili.com/video/B ... d11544ce04b701263dc](https://www.bilibili.com/video/BV1Y3mTYvEA1/?share_source=copy_web&amp;vd_source=e25a19f57372cd11544ce04b701263dc)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| kuarwbwe| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  溴麝香草酚蓝  
+##### 1668#       发表于 2024-10-19 08:07
+
+真好玩<img src="https://p.sda1.dev/19/d93fc7a0ed058b884ab6f6e403043857/image.jpg" referrerpolicy="no-referrer">
+

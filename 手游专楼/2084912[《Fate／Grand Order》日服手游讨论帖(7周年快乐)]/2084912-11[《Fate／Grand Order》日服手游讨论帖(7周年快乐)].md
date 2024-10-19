@@ -1146,3 +1146,11 @@ ex阶都比常规职阶多了。真不如再起一排
 
 不過另外saber lily和小妖精一隻都沒有
 
+
+*****
+
+####  DARKGRAY  
+##### 15028#       发表于 2024-10-19 19:29
+
+白野池所谓的3倍出率就是把莉莉和哈贝的出率塞给白野<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

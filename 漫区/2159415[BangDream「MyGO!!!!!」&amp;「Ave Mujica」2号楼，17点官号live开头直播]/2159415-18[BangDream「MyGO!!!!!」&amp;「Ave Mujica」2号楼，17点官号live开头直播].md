@@ -1113,3 +1113,19 @@ lofter看到的好玩的图<img src="https://static.saraba1st.com/image/smiley/f
 
 https://x.com/moepusanai/status/1847656777523093865?s=46&amp;t=IZGx0N13SOtHALpwG0Ubrg
 
+
+*****
+
+####  哈曼的YY  
+##### 25264#       发表于 2024-10-20 00:58
+
+<img src="https://img.saraba1st.com/forum/202410/20/005826t4n8nnitpttbtzrp.jpg" referrerpolicy="no-referrer">
+
+<strong>GaMNexsbUAU62Dv.jpg</strong> (189.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-20 00:58 上传
+
+[https://x.com/nCVn9wGaqX64908/status/1847335945999438028](https://x.com/nCVn9wGaqX64908/status/1847335945999438028)
+

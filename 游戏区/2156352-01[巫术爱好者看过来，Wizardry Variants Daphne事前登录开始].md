@@ -700,3 +700,11 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 再信楼主一次，不好玩回来扣鹅(<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hkguty  
+##### 114#       发表于 2024-10-20 01:01
+
+看起来很复古，steam版几时会出呢
+

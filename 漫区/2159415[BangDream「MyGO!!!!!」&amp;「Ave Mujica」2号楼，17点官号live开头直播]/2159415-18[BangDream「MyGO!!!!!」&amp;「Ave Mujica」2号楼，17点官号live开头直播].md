@@ -634,3 +634,27 @@ wsd还我独角兽发癫小作文<img src="https://static.saraba1st.com/image/sm
 想起前两集沙绫是新模型，后面又换回老模型了，没准一开始真有全员模型翻新十周年动画的计划，结果草台搞 ...</blockquote>
 那我只能说武士道对不起邦多利这整个企划<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 25221#       发表于 2024-10-19 17:35
+
+<blockquote>Aendst 发表于 2024-10-19 17:28
+那我只能说武士道对不起邦多利这整个企划</blockquote>
+这种事情不是从wsd放着巅峰期邦邦不管转头全投入D5J的时候就该发现了吗
+
+*****
+
+####  Aendst  
+##### 25222#       发表于 2024-10-19 17:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 25223#       发表于 2024-10-19 17:36
+
+wsd还是需要高人指点 把钱用在刀刃上啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

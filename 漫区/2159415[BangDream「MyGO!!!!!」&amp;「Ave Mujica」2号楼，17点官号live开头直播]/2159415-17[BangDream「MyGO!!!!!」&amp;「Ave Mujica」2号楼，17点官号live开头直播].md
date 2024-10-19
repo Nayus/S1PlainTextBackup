@@ -17378,3 +17378,25 @@ https://x.com/this_is_nn/status/1847205741788295484?s=46&amp;t=IZGx0N13SOtHALpwG
 其实分不分楼和放送时间定不定没有什么关系的，主要问题是真的分得开吗，或者说分楼的根本目的是什么，要 ...</blockquote>
 按两季动画分的乐队楼，正好还mygo们一个清静<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives10  
+##### 25148#       发表于 2024-10-19 10:39
+
+感觉还是等动画开播了看情况再决定更好
+如果现在就直接分楼 
+到时候如果没吸引多少新观众 就会很尴尬
+红白人退出水魔主楼也是有特殊原因的
+而且新动画明明是母鸡卡主场 提前这么长时间直接放弃交流也没什么道理 实在是油盐不进的人应该也不多 
+
+
+*****
+
+####  skives10  
+##### 25149#       发表于 2024-10-19 10:46
+
+而且我觉得泥楼的鸡粉也太会帮他人着想了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+狗u来或不来 那都是他们自己的选择 
+鸡粉明明只是正常讨论剧情 怎么就成了排挤了呢
+

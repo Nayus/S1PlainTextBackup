@@ -13934,3 +13934,14 @@ mag后期怎么都不够用，怎么还能搞出来一个mag换金的功能，�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  莉可厨  
+##### 2801#       发表于 2024-10-19 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66489074&amp;ptid=2140224" target="_blank">星野航 发表于 2024-10-19 10:30</a>
+结局还是挺正常的，起义称帝不得分封功臣？
+到头来国王还是最高统治者+握有绝对实权，政体又没有变</blockquote>
+应保尽保！
+

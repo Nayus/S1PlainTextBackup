@@ -17454,3 +17454,29 @@ https://x.com/this_is_nn/status/1847205741788295484?s=46&amp;t=IZGx0N13SOtHALpwG
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一说一，隔壁刚刚又在吵戏份问题了
 所以分楼还是有好处的，我是支持分楼的
 
+
+*****
+
+####  星天观测  
+##### 25154#       发表于 2024-10-19 11:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66489315&amp;ptid=2159415" target="_blank">akiomn 发表于 2024-10-19 11:02</a>
+
+有一说一，隔壁刚刚又在吵戏份问题了
+
+所以分楼还是有好处的，我是支持分楼的 ...</blockquote>
+确实，好处之一就是给人一个“眼不见为净”的选项
+
+
+*****
+
+####  skives10  
+##### 25155#       发表于 2024-10-19 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66489314&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-10-19 11:02</a>
+分不分楼也并不是因为这一个原因，这一年时间这楼已经因为各种原因由各种立场的人提出过分楼了
+
+而且我好 ...</blockquote>
+吸引人气这个说法确实不太对
+就是感觉 很多对角色的正确解读都是专楼讨论出来的 如果分楼 没有了交流之后 会不会导致信息茧房越来越严重？
+

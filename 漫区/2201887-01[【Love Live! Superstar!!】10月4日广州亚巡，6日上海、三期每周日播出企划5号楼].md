@@ -2680,3 +2680,13 @@ yysy，就算是早年的安卓pad也一直都比surface好用<img src="https://
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  一个陆仁贾  
+##### 254#       发表于 2024-10-20 01:30
+
+感觉是为了好区分其他团所以在设计思路上沿着某种公式去做了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

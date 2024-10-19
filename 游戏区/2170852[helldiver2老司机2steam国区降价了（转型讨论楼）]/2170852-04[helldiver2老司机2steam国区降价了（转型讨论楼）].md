@@ -749,3 +749,14 @@ he并不好用，没破片没子炸弹纯加一个范围爆炸，效果感觉不
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">实蛋狗腐乳喷气旅出列！
 
+
+*****
+
+####  Jabeck  
+##### 5500#       发表于 2024-10-19 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66483080&amp;ptid=2170852" target="_blank">normalli 发表于 2024-10-18 16:05</a>
+
+回归玩了几把，总的来说武器集体强化一个级别，原本很难对付的敌人现在也有信心了，但代价就是现在重甲敌人 ...</blockquote>
+有重甲模版和小怪模版，重甲模版的应该重甲才多。
+

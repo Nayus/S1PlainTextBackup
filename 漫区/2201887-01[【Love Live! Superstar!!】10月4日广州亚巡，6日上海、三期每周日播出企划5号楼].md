@@ -2618,3 +2618,23 @@ nga专楼最后一页</blockquote>
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  ViyViy  
+##### 249#       发表于 2024-10-19 21:32
+
+苏菲好歹还能用，你这个充其量是以前的安卓pad<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  csolfans  
+##### 250#       发表于 2024-10-19 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66493582&amp;ptid=2201887" target="_blank">ads147147 发表于 2024-10-19 21:24</a>
+
+幻视虹2dd组的衣服，但是仔细一看啥玩意。。。
+
+现在你星服装设计，我只能用老乔的名言了：不是没能力，而 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前买了星的服装公式书，发现其实服装设计这么多年都是同一团队。但是好像动画的服装设计，也不完全跟她们挂钩，因为她们提到过把动画中Vitamin SUMMER打歌服还原到现实非常困难来着
+

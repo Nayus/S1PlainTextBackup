@@ -2540,3 +2540,15 @@ Nagi的一专网易云也上架了
 
 新衣服有点像小学生拿废纸diy的环保服装
 
+
+*****
+
+####  csolfans  
+##### 242#       发表于 2024-10-19 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66491507&amp;ptid=2201887" target="_blank">ayara 发表于 2024-10-19 16:19</a>
+新衣服有点像小学生拿废纸diy的环保服装</blockquote>
+有出处吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

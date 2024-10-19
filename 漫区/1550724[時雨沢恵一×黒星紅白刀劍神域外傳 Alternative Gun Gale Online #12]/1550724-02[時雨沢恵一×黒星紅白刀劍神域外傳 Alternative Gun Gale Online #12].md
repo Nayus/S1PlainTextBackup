@@ -105,3 +105,29 @@
 等主角队出来直接狙死不就好了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">享受猎杀人的快乐
 
+
+*****
+
+####  wingzerocos  
+##### 1926#       发表于 2024-10-19 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66488947&amp;ptid=1550724" target="_blank">ParadiseMartyr 发表于 2024-10-19 10:10</a>
+
+不是，绿毛女的发疯下场杀其他小队干嘛，动机是什么
+
+等主角队出来直接狙死不就好了 ...</blockquote>
+S她上一次被P背刺灭队了，所以这次看到C也玩背刺就忍不住制裁了。
+
+开枪暴露自己了那就只能转移位置再找机会，结果太有缘分撞脸上了。
+
+*****
+
+####  ParadiseMartyr  
+##### 1927#       发表于 2024-10-19 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66491570&amp;ptid=1550724" target="_blank">wingzerocos 发表于 2024-10-19 16:29</a>
+S她上一次被P背刺灭队了，所以这次看到C也玩背刺就忍不住制裁了。
+
+开枪暴露自己了那就只能转移位置再找机 ...</blockquote>
+她这不是连被背刺的都杀了吗…
+

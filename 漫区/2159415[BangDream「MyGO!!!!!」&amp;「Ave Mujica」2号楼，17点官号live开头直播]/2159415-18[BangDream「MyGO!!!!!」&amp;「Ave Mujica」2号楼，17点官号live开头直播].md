@@ -869,3 +869,50 @@ wsd就是太弱智了不然邦邦整个企划就算碰上疫情也不会断崖�
 
 你猜猜go在电视上重播了几遍了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  w酱  
+##### 25243#       发表于 2024-10-19 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66493569&amp;ptid=2159415" target="_blank">liekong 发表于 2024-10-19 21:23</a>
+不是吧，做完了又不一定有档期，说得好像想在电视台什么时候、怎么放都行，
+
+有的是动画做完了一两年都被压 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">tokyomx那个23点档是wsd买断的
+
+
+*****
+
+####  NODY  
+##### 25244#       发表于 2024-10-19 21:45
+
+贴吧新发现，可能不是幼喵梦而是现在的喵梦
+
+<img src="https://img.saraba1st.com/forum/202410/19/214429s37roeoyv239fby2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241019_214311.jpg</strong> (73.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-19 21:44 上传
+
+*****
+
+####  相坂君  
+##### 25245#       发表于 2024-10-19 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66493569&amp;ptid=2159415" target="_blank">liekong 发表于 2024-10-19 21:23</a>
+
+不是吧，做完了又不一定有档期，说得好像想在电视台什么时候、怎么放都行，
+
+有的是动画做完了一两年都被压 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">以防你不知道，那个档已经重播狗4次了
+
+*****
+
+####  上杉打老虎  
+##### 25246#       发表于 2024-10-19 21:47
+
+往好了想，至少鸡的剧情是原汁原味的，是纯正的女女关系，赢！
+

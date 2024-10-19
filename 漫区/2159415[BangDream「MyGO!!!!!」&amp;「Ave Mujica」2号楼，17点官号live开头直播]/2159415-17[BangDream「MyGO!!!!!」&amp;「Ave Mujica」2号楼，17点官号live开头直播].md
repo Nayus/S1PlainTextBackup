@@ -17522,3 +17522,13 @@ AM这边问题除了情感问题外还有经济问题和自立问题，自立问
 反正就这么点人
 我支持直接开新楼然后改名叫「ave mujica」&amp;「mygo」三号楼 聊的内容不变，不服别来，有的是讨论区<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  七情七律  
+##### 25159#       发表于 2024-10-19 12:23
+
+真不能期待mujica动画里讲怎么解决经济问题，自立问题吧？感觉最好还是作为角色背景就好，着重角色心理和角色之间。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

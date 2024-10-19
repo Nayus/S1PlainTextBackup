@@ -14249,3 +14249,14 @@ boss多动症得靠小丑coop7解锁王都魔法店卖的闪避戒指解决，�
 
 一周目hard只有两个BOSS有难度，1个是三龙后面解锁的BOSS，1个是全状态最终BOSS
 
+
+*****
+
+####  chm007  
+##### 2829#       发表于 2024-10-19 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66489724&amp;ptid=2140224" target="_blank">ohi.02 发表于 2024-10-19 11:58</a>
+
+可恶，好不容易把矿洞的龙打败，然后把武器给攻击力最高的大叔装备上去，回城后过完剧情就保存存档，陪她女 ...</blockquote>
+前期神器，一直到第三个城才会淘汰，普攻变成火焰斩击，前期打部分怪伤害很高
+

@@ -2596,3 +2596,11 @@ nga专楼最后一页</blockquote>
 —— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 v3.0.0-alpha</blockquote>
 那个是我发的，来源是在贴吧
 
+
+*****
+
+####  ViyViy  
+##### 247#       发表于 2024-10-19 17:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">昨晚去贴吧看了一眼就没看了，原来后来发出来了啊，这帽子顶级抽象，顶上贴个蝴蝶结花纹，那为什么不直接带蝴蝶结和帽子呢草
+

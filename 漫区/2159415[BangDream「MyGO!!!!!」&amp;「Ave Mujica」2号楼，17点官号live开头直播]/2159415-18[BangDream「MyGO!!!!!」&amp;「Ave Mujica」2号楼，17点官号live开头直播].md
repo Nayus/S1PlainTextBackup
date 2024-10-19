@@ -612,3 +612,25 @@ wsd还我独角兽发癫小作文<img src="https://static.saraba1st.com/image/sm
 
 砍了企划全体的周年纪念，但是去年秋天决定了要做有新画面新内容的前后两部mygo剧场版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 25219#       发表于 2024-10-19 17:26
+
+<blockquote>Aendst 发表于 2024-10-19 17:01
+那不是更过分了
+
+砍了企划全体的周年纪念，但是去年秋天决定了要做有新画面新内容的前后两部mygo剧场版 ...</blockquote>
+想起前两集沙绫是新模型，后面又换回老模型了，没准一开始真有全员模型翻新十周年动画的计划，结果草台搞不定就放置了，还挺符合草台wsd一拍脑袋就上然后翻车的尿性的
+
+*****
+
+####  Aendst  
+##### 25220#       发表于 2024-10-19 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66491959&amp;ptid=2159415" target="_blank">NODY 发表于 2024-10-19 17:26</a>
+
+想起前两集沙绫是新模型，后面又换回老模型了，没准一开始真有全员模型翻新十周年动画的计划，结果草台搞 ...</blockquote>
+那我只能说武士道对不起邦多利这整个企划<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

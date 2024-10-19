@@ -117,3 +117,52 @@ mygo值得大量讨论的东西在动画完结后本来就不多了这是客观�
 Ave Mujica在2024年春季就做完了
 [https://realsound.jp/movie/2024/10/post-1814313_2.html](https://realsound.jp/movie/2024/10/post-1814313_2.html)
 
+
+*****
+
+####  skives10  
+##### 25170#       发表于 2024-10-19 14:50
+
+——剧场版「BanG Dream! It's MyGO!!!!!」上映后，2025年1月还将播出TV动画『BanG Dream! Ave Mujica』（以下简称『Ave Mujica』）。
+松浦：2024年春天就已经完成了。是从『MyGO!!!!!』开始就一直在制作的。内容不会让观众感到不满足。我已经看了三遍，非常精彩，令人上瘾。
+——『Ave Mujica』的播出正值『BanG Dream!』十周年，你认为它能够与这个里程碑相匹配吗？
+松浦：当然了，我们一直希望不断提升作品的趣味性。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 25171#       发表于 2024-10-19 14:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊这……早做完了憋着不放是吧
+
+
+*****
+
+####  uhiuk  
+##### 25172#       发表于 2024-10-19 14:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">这么早就做完了
+
+*****
+
+####  好想看Mujica啊  
+##### 25173#       发表于 2024-10-19 14:53
+
+cnm,wsd......
+
+*****
+
+####  skives10  
+##### 25174#       发表于 2024-10-19 14:53
+
+其实和漏油的判断差不多 早做完了 可惜公司是个草台 没法同时运营两个乐队<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 25175#       发表于 2024-10-19 14:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就又是泥漏早就猜到的东西了
+

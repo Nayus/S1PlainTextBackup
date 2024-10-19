@@ -622,3 +622,16 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 —— 来自 HUAWEI MGA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  whfnet  
+##### 106#       发表于 2024-10-19 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66492708&amp;ptid=2156352" target="_blank">warerest 发表于 2024-10-19 19:24</a>
+
+六楼的雕像谜题怎么破？
+
+—— 来自 鹅球 v3.1.88.3-alpha</blockquote>
+【6层石像谜题解法 -巫术手游 Wizardry Variants Daphne-哔哩哔哩】 [https://b23.tv/SduVesm](https://b23.tv/SduVesm)
+

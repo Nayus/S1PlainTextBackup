@@ -2552,3 +2552,11 @@ Nagi的一专网易云也上架了
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  夏亚之徒  
+##### 243#       发表于 2024-10-19 16:41
+
+有时候会觉得，估计会是这个系列唯一一个吧，拉拉社团部的发起者，几乎没有什么戏份和塑造，要知道其他三部，这个主动带头组建拉拉社团的都是主角或者主角最身边的人<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

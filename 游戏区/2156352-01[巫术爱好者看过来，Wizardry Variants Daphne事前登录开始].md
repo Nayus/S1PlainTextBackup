@@ -610,3 +610,15 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  藤钢剑姬  
+##### 105#       发表于 2024-10-19 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66491571&amp;ptid=2156352" target="_blank">elven119 发表于 2024-10-19 16:29</a>
+屌屌屌屌！太屌了，8F最终boss打完。这剧情，这演出，无敌无敌无敌啊！太牛逼了。这tm是手游能拥有的玩意儿 ...</blockquote>
+可惜没有什么大博主愿意宣传了。这手游同时沾了CRPG+JRPG+DRPG+手游+没中文感觉好难出圈哦
+
+—— 来自 HUAWEI MGA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -691,3 +691,48 @@ wsd就是太弱智了不然邦邦整个企划就算碰上疫情也不会断崖�
 
 不过既然确定了独角兽这么重视mujica动画，是不是明年有希望继续放关系图了，毕竟她现在也重新在推特聊鸡剧本相关了
 
+
+*****
+
+####  枫林不见  
+##### 25228#       发表于 2024-10-19 18:13
+
+哦牛逼 全都和之前的推测一模一样 答应我 别真的是改了剧本的烂作好吗？<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 25229#       发表于 2024-10-19 18:14
+
+那当然不是剧本改了，这不都说了mygo时期就在做，春天就做完了
+
+就是正常进度做完的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  桜庭千景  
+##### 25230#       发表于 2024-10-19 18:15
+
+说白了这一年下来多重打击下能留到现在的结晶鸡杂早就看透你wsd是个啥德行了，画饼一张借一张，一次次吊高胃口又让人失望。
+
+你说十周年就十周年，对应的资源呢？
+
+鸡杂想要一首编曲好点的歌都难，mv和kv量产鬼图，radio没有，pv难产
+
+鸡杂粉丝对得起wsd了吧
+
+你说开的live多，先不说有没有隔壁多，1st 2nd 3rd人气一路下滑但是老粉该去的都去了花篮也送了，b站开个播能还卖出900舰，录播回放卖出1500个
+
+元素专，鬼一样的封面和火立绘特典，两周卖了八千六
+
+鸡杂还能咋支持你，真的是骂累了
+
+*****
+
+####  skives10  
+##### 25231#       发表于 2024-10-19 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66492265&amp;ptid=2159415" target="_blank">枫林不见 发表于 2024-10-19 18:13</a>
+哦牛逼 全都和之前的推测一模一样 答应我 别真的是改了剧本的烂作好吗？</blockquote>
+不可能了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">1月配音完成 三次元配音时都是有画面的 独角兽切割之前应该连分镜都看过了
+

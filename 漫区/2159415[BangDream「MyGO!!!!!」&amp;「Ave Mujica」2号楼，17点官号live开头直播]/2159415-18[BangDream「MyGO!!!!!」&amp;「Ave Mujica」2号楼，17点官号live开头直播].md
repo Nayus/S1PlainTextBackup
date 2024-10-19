@@ -20,3 +20,18 @@
 
 ppp家庭问题最大的沙绫动画也就开了个头，手游一直到第五年才完全解决呢，ykn和chuchu和父母的心结也是主线三章才搞定的
 
+
+*****
+
+####  akiomn  
+##### 25163#       发表于 2024-10-19 13:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">13集去掉包饺子的最后一集，12集能把初睦祥讲清楚就算成功，海玲喵梦大概率要变成牺牲角色了，不过这俩可以期待展望下个人剧场版？
+
+*****
+
+####  skives10  
+##### 25164#       发表于 2024-10-19 13:57
+
+大发表会的动画情报会是原创剧场版吗<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

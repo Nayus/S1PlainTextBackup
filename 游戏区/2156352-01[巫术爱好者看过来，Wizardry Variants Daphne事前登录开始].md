@@ -690,3 +690,13 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 只求赶紧出steam版，这几天躺床上玩人都要废了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蒼銀  
+##### 113#       发表于 2024-10-19 20:49
+
+记得以前被楼主骗了去玩了SAO的新作
+
+再信楼主一次，不好玩回来扣鹅(<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

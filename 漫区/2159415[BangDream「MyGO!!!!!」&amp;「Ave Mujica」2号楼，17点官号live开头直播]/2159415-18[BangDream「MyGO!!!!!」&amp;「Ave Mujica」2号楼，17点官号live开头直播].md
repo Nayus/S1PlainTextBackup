@@ -79,3 +79,24 @@ mygo值得大量讨论的东西在动画完结后本来就不多了这是客观�
 
 这种环境下，分楼当然不能说有必要，但是有人想分楼也无可厚非吧
 
+
+*****
+
+####  akiomn  
+##### 25166#       发表于 2024-10-19 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66490685&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-10-19 14:06</a>
+我印象中每次提分楼几乎都是一部分不知道哪来的人不满mujica推觉得武士道烂活频出想要捂嘴，或者是不满聊mu ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我在隔壁看了一下午大战，分楼确实是有必要的，起码大部分时候能有个好环境
+
+
+*****
+
+####  Aendst  
+##### 25167#       发表于 2024-10-19 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66490740&amp;ptid=2159415" target="_blank">akiomn 发表于 2024-10-19 14:17</a>
+
+我在隔壁看了一下午大战，分楼确实是有必要的，起码大部分时候能有个好环境 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不看隔壁这就触及我的知识盲区了
+

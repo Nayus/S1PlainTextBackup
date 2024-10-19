@@ -1172,3 +1172,11 @@ https://x.com/moepusanai/status/1847656777523093865?s=46&amp;t=IZGx0N13SOtHALpwG
 
 当然现实中4月合同live会不会整个十人演奏甚至五人的烂活我不能保证就是了<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AP0rt_  
+##### 25270#       发表于 2024-10-20 02:50
+
+其实，主要就是想看大祥老师暗黑功德祥再弹一次春日影<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

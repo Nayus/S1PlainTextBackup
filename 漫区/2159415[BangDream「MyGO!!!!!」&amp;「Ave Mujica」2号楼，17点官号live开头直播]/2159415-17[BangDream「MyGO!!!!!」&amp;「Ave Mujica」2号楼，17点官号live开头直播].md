@@ -17513,3 +17513,12 @@ AM这边问题除了情感问题外还有经济问题和自立问题，自立问
 
 所以我对AM动画里go团人戏份的预期最多就是初华点醒灯那种级别，情感问题方面打下助攻。
 
+
+*****
+
+####  rinku  
+##### 25158#       发表于 2024-10-19 12:11
+
+反正就这么点人
+我支持直接开新楼然后改名叫「ave mujica」&amp;「mygo」三号楼 聊的内容不变，不服别来，有的是讨论区<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

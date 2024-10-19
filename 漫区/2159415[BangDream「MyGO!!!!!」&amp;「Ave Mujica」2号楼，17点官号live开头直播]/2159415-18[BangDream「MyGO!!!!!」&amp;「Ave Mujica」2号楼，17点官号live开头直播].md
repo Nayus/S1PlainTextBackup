@@ -1137,3 +1137,19 @@ https://x.com/moepusanai/status/1847656777523093865?s=46&amp;t=IZGx0N13SOtHALpwG
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鸡团不知道谁会是爹妈位，狗团立希当爹soyo当妈，鸡团除掉喵梦和睦，剩下三个都有说法啊
 
+
+*****
+
+####  PDQ4  
+##### 25266#       发表于 2024-10-20 01:44
+
+这个不好说，但是睦是团宠大概率的事<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  桜庭千景  
+##### 25267#       发表于 2024-10-20 01:52
+
+单说目前。mujica的四个人都是独立性很重的强人人设，只有睦带一点楚楚可怜的形象，所以看着不会有所谓父母位<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">倒是漏u说的睦宝团宠可能性不小
+

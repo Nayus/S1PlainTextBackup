@@ -595,3 +595,20 @@ wsd还我独角兽发癫小作文<img src="https://static.saraba1st.com/image/sm
 
 股东在质疑这一年间新乐队企划投入问题的时候，根本的所有回答都是对mygo的，没有提到mujica，他们知道自己资源都投给谁了
 
+
+*****
+
+####  NODY  
+##### 25217#       发表于 2024-10-19 17:00
+
+被砍掉的计划？是不是wsd打算做个十周年纪念企划全新剧场版什么的，结果营收拉胯做不出来，干脆让鸡卡这个十周年算了
+
+*****
+
+####  Aendst  
+##### 25218#       发表于 2024-10-19 17:01
+
+那不是更过分了
+
+砍了企划全体的周年纪念，但是去年秋天决定了要做有新画面新内容的前后两部mygo剧场版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

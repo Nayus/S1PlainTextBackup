@@ -295,3 +295,24 @@ cnm,wsd......
 
 算了下1.2开播，一周放送一话，13话在3.27结束，掺个总集篇就是4.3，那估计3.27放送结束，周年活动结束后再进游戏了。
 
+
+*****
+
+####  海晟天锻  
+##### 25189#       发表于 2024-10-19 15:28
+
+那mygo总集篇新增的猫猫剧情也是后来现想的是吧，怪不得访谈说是从动画剧情倒推猫父母人设以及就repo说脚本就一个柿本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  adcdqre  
+##### 25190#       发表于 2024-10-19 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66489362&amp;ptid=2159415" target="_blank">skives10 发表于 2024-10-19 11:13:17</a>
+吸引人气这个说法确实不太对
+就是感觉 很多对角色的正确解读都是专楼讨论出来的 如果分楼 没有了交流之后 ...</blockquote>比起信息茧房还是装睡的人多吧
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

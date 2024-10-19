@@ -671,3 +671,14 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 比想象中好玩以及刺激。但因为中立，善和恶其实会影响一些buff，所以还是要注意一些
 
+
+*****
+
+####  elven119  
+##### 111#         楼主| 发表于 2024-10-19 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66493094&amp;ptid=2156352" target="_blank">cenhr 发表于 2024-10-19 20:22</a>
+
+比想象中好玩以及刺激。但因为中立，善和恶其实会影响一些buff，所以还是要注意一些 ...</blockquote>
+打完第一个迷宫，很多东西都会有解释，剧情也是牛的很
+

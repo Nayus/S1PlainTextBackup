@@ -2092,3 +2092,11 @@ document.getElementById('flv_ALj').innerHTML=("");
 这一作玩到把国王救出来开启后面三个区域流程后才开始有意思起来，前期实在是无聊 ...</blockquote>
 我刚好是把地图全开完才进城堡走流程的，我还在想为什么鼓隆城和湿地这么好的地形没填充进任务<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cih  
+##### 1671#       发表于 2024-10-20 01:41
+
+学到了乌鸦坐飞机，真是逆天！完全像开了老金一样无视地形无视迷题😨这算是出BUG还是设计故意的？要真就藏的轮椅那设计者真的牛
+

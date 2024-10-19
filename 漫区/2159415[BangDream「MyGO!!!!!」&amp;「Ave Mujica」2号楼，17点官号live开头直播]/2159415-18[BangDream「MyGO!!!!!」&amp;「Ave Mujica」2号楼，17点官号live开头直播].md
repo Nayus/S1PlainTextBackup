@@ -683,3 +683,11 @@ wsd就是太弱智了不然邦邦整个企划就算碰上疫情也不会断崖�
 
 但wsd确实是业界难得的忠于百合的公司<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 25227#       发表于 2024-10-19 17:57
+
+不过既然确定了独角兽这么重视mujica动画，是不是明年有希望继续放关系图了，毕竟她现在也重新在推特聊鸡剧本相关了
+

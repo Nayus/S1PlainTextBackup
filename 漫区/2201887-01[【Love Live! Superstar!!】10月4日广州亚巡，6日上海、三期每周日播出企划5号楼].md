@@ -2604,3 +2604,17 @@ nga专楼最后一页</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">昨晚去贴吧看了一眼就没看了，原来后来发出来了啊，这帽子顶级抽象，顶上贴个蝴蝶结花纹，那为什么不直接带蝴蝶结和帽子呢草
 
+
+*****
+
+####  ads147147  
+##### 248#       发表于 2024-10-19 21:24
+
+幻视虹2dd组的衣服，但是仔细一看啥玩意。。。
+
+现在你星服装设计，我只能用老乔的名言了：不是没能力，而是没品味。
+
+哦，不只是服装设计，这从1到3的剧情设计都是没品味的巨硬风范，仿佛是surface。。。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

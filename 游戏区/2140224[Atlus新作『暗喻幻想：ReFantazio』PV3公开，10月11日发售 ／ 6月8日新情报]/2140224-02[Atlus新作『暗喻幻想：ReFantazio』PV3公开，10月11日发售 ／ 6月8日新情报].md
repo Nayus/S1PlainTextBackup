@@ -13923,3 +13923,14 @@ mag后期怎么都不够用，怎么还能搞出来一个mag换金的功能，�
 
 我想想大概有哥布林，独眼巨人，史莱姆，小飞蛾，大飞鸟，牙齿怪，小精灵，狼，狮子，石像鬼外加几种奇行种。虽然rpg的确都是换皮怪正常，但是我刷钱刷职业的时候看着水晶冒出的怪都看吐了。
 
+
+*****
+
+####  星野航  
+##### 2800#       发表于 2024-10-19 10:30
+
+结局还是挺正常的，起义称帝不得分封功臣？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+到头来国王还是最高统治者+握有绝对实权，政体又没有变
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

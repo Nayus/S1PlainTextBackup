@@ -17368,3 +17368,13 @@ https://x.com/this_is_nn/status/1847205741788295484?s=46&amp;t=IZGx0N13SOtHALpwG
 
 确实学水魔分成动画楼和mujica真爱楼好点，毕竟等动画开播了是拦不住动画新入坑跟风玩梗的人的
 
+
+*****
+
+####  kivz  
+##### 25147#       发表于 2024-10-19 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66488049&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-10-19 02:40</a>
+其实分不分楼和放送时间定不定没有什么关系的，主要问题是真的分得开吗，或者说分楼的根本目的是什么，要 ...</blockquote>
+按两季动画分的乐队楼，正好还mygo们一个清静<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

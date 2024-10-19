@@ -17417,3 +17417,40 @@ https://x.com/this_is_nn/status/1847205741788295484?s=46&amp;t=IZGx0N13SOtHALpwG
 
 排挤并不是鸡推自嘲，而是他人的说法
 
+
+*****
+
+####  skives10  
+##### 25151#       发表于 2024-10-19 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66489217&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-10-19 10:51</a>
+很简单，近有昨天破防人的声声控诉，远有几个月前突然冒出来的“这楼为什么没有狗粉你们心里不清楚么”
+
+ ...</blockquote>
+我是觉得 为了这种少数奇葩 放弃吸引更多的人的机会还是挺没道理的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+但如果开播之后讨论环境真的很恶劣 那时候漏油再开个讨论楼绝对没问题 
+根据红白楼的经验 应该也不需要让楼主特地去开 
+
+
+*****
+
+####  星天观测  
+##### 25152#       发表于 2024-10-19 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66489265&amp;ptid=2159415" target="_blank">skives10 发表于 2024-10-19 10:57</a>
+
+我是觉得 为了这种少数奇葩 放弃吸引更多的人的机会还是挺没道理的
+
+但如果开播之后讨论环境真的很恶劣 那 ...</blockquote>
+分不分楼也并不是因为这一个原因，这一年时间这楼已经因为各种原因由各种立场的人提出过分楼了
+
+而且我好像没get到分楼和吸引人有什么联系，毕竟努力吸引粉丝是wsd该干的事，分成mygo企划楼和mujica企划楼好像没有什么会拉低人气的理由吧，因为分楼而选择不看mujica的人估计大概率本身就对mujica没什么兴趣
+
+*****
+
+####  akiomn  
+##### 25153#       发表于 2024-10-19 11:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一说一，隔壁刚刚又在吵戏份问题了
+所以分楼还是有好处的，我是支持分楼的
+

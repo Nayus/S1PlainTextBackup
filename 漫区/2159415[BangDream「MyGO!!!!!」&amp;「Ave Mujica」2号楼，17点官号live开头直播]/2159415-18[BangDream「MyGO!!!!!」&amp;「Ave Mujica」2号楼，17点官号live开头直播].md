@@ -793,3 +793,11 @@ wsd就是太弱智了不然邦邦整个企划就算碰上疫情也不会断崖�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">弄弄不带面具真还行，气质挺好的
 
+
+*****
+
+####  dqtql  
+##### 25238#       发表于 2024-10-19 19:57
+
+鸡团颜值都挺能打，（现用的）面具纯纯负优化
+

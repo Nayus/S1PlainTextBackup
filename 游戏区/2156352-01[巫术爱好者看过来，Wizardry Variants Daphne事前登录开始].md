@@ -564,3 +564,14 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 屌屌屌屌！太屌了，8F最终boss打完。这剧情，这演出，无敌无敌无敌啊！太牛逼了。这tm是手游能拥有的玩意儿？同期对比暗喻幻想就是一坨屎。无敌了
 
+
+*****
+
+####  whfnet  
+##### 101#       发表于 2024-10-19 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66491571&amp;ptid=2156352" target="_blank">elven119 发表于 2024-10-19 16:29</a>
+
+屌屌屌屌！太屌了，8F最终boss打完。这剧情，这演出，无敌无敌无敌啊！太牛逼了。这tm是手游能拥有的玩意儿 ...</blockquote>
+什么配置打的？我16级被它几个全屏攻击打惨了，治疗不过来啊
+

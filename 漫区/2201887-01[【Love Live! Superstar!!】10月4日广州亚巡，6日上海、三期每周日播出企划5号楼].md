@@ -2572,3 +2572,15 @@ Nagi的一专网易云也上架了
 —— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 v3.0.0-alpha</blockquote>
 nga专楼最后一页
 
+
+*****
+
+####  csolfans  
+##### 245#       发表于 2024-10-19 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66491786&amp;ptid=2201887" target="_blank">ayara 发表于 2024-10-19 17:02</a>
+nga专楼最后一页</blockquote>
+好 谢谢
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

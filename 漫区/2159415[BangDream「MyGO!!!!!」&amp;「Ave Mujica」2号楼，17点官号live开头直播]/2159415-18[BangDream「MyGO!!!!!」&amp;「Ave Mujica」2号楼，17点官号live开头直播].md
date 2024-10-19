@@ -916,3 +916,52 @@ wsd就是太弱智了不然邦邦整个企划就算碰上疫情也不会断崖�
 
 往好了想，至少鸡的剧情是原汁原味的，是纯正的女女关系，赢！
 
+
+*****
+
+####  hitori酱  
+##### 25247#       发表于 2024-10-19 21:48
+
+wsd中期财报在工艺蛋跑路、切割各种负资产自救的情况下财报稀烂，只能说按照日本这些垃圾公司高层草台的程度如果不是底下的动画人血汗和爱支撑，早倒闭一大串了。
+
+然后感觉wsd压狗游戏进度和mujica动画进度很大程度就是游戏那边的制作运营要交接给那个什么fromTokyo新公司，但是最近也没有看到新公司名字出现在游戏里，社长森川修一倒是一场live没拉下……
+
+*****
+
+####  Aendst  
+##### 25248#       发表于 2024-10-19 21:50
+
+ 本帖最后由 Aendst 于 2024-10-19 21:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66493569&amp;ptid=2159415" target="_blank">liekong 发表于 2024-10-19 21:23</a>
+
+不是吧，做完了又不一定有档期，说得好像想在电视台什么时候、怎么放都行，
+
+有的是动画做完了一两年都被压 ...</blockquote>
+那确实是想在电视台什么时候、怎么放都行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且就算是按照上下分割放送来看也没有拖这么久的
+
+很早以前统计过，邦多利1~3期动画都没有重播过这么多次的
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| liekong| + 1|我的我的，确实不知道重播那么多次.|
+
+查看全部评分
+
+*****
+
+####  Aendst  
+##### 25249#       发表于 2024-10-19 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66493837&amp;ptid=2159415" target="_blank">hitori酱 发表于 2024-10-19 21:48</a>
+
+wsd中期财报在工艺蛋跑路、切割各种负资产自救的情况下财报稀烂，只能说按照日本这些垃圾公司高层草台的程 ...</blockquote>
+所以说，根本都说了就是要等动画啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

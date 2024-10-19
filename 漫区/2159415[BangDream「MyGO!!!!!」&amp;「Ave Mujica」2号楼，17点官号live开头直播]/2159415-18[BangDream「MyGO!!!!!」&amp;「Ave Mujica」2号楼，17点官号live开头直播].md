@@ -1057,3 +1057,25 @@ lofter看到的好玩的图<img src="https://static.saraba1st.com/image/smiley/f
 
 2024-10-19 23:31 上传
 
+
+*****
+
+####  AP0rt_  
+##### 25258#       发表于 2024-10-19 23:53
+
+突然想到，mujika会不会唱春日影呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 25259#       发表于 2024-10-19 23:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">会吧，但mujika唱春日影关我ave mujica什么事
+
+*****
+
+####  akiomn  
+##### 25260#       发表于 2024-10-19 23:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会，也没有理由唱
+

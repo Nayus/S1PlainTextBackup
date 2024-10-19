@@ -411,3 +411,63 @@ wsd还我独角兽发癫小作文<img src="https://static.saraba1st.com/image/sm
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  cherryjia12  
+##### 25201#       发表于 2024-10-19 16:09
+
+虽然猜到了但能实锤是没想到的。wsd心真大<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六道明  
+##### 25202#       发表于 2024-10-19 16:10
+
+ 本帖最后由 六道明 于 2024-10-19 16:12 编辑 
+
+从积累粉丝和延长ip寿命的角度看，不算太糟糕的决策吧
+
+*****
+
+####  桜庭千景  
+##### 25203#       发表于 2024-10-19 16:11
+
+算了吧，企划粉有一大部分是弄弄带着团员营业出来的，武士道纯纯拖后腿
+
+*****
+
+####  ydsbbt  
+##### 25204#       发表于 2024-10-19 16:11
+
+独角兽不止切割鸡狗，还把邦邦整个企划切割的原因好像可以理解了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+只是单纯和监督在别的片场的矛盾可上升不到这个地步
+
+
+*****
+
+####  Toki_Ai  
+##### 25205#       发表于 2024-10-19 16:12
+
+我还是觉得是当年蝶团，ras的决策巨大失误导致的企划延期，毕竟前车之鉴<img src="https://static.saraba1st.com/image/smiley/face2017/176.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  Aendst  
+##### 25206#       发表于 2024-10-19 16:13
+
+ 本帖最后由 Aendst 于 2024-10-19 16:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66491447&amp;ptid=2159415" target="_blank">六道明 发表于 2024-10-19 16:10</a>
+
+从积累粉丝的角度看，不算太糟糕的决策吧</blockquote>
+很糟糕
+
+股东大会记录基本可以说明mygo的策略比较失败，手游也依旧没起来，只有海外市场有提升并且只有海外市场方面对邦多利企划有一定程度的反哺（但不多）
+
+但最重要的本土不行，甚至引起了股东的质疑
+
+至于mujica，从3rd的live售票状况和ytb播放来看，热度掉得很厉害
+

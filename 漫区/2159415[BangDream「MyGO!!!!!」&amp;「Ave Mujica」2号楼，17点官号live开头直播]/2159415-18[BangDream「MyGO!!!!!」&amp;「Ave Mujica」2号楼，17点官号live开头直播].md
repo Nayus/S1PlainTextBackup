@@ -332,3 +332,18 @@ cnm,wsd......
 泥漏早就推测出早做完了，但是真有人敢说是没想到的
 不会觉得自己很天才吧wsd<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 25193#       发表于 2024-10-19 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66491271&amp;ptid=2159415" target="_blank">ydsbbt 发表于 2024-10-19 15:40</a>
+
+感觉企划的决策变更点和独角兽出事的时间点重合度还挺高的，都是去年秋9月 ...</blockquote>
+綾奈先是去年取消關注的邦官推和柿本（go官推不知道她有沒有關注過，反正樓裡提到的時候去看是沒關注的），
+
+今年幾個月前才取消關注的ave mujica官推，樓裡也討論過
+
+只能說喜歡avemujica的誰受得了這種事，直接這樣被拖了一年，這下理解綾奈了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

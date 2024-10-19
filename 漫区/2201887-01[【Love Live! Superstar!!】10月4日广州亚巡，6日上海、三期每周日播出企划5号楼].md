@@ -2638,3 +2638,18 @@ nga专楼最后一页</blockquote>
 现在你星服装设计，我只能用老乔的名言了：不是没能力，而 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前买了星的服装公式书，发现其实服装设计这么多年都是同一团队。但是好像动画的服装设计，也不完全跟她们挂钩，因为她们提到过把动画中Vitamin SUMMER打歌服还原到现实非常困难来着
 
+
+*****
+
+####  ads147147  
+##### 251#       发表于 2024-10-19 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66493700&amp;ptid=2201887" target="_blank">csolfans 发表于 2024-10-19 21:37</a>
+
+之前买了星的服装公式书，发现其实服装设计这么多年都是同一团队。但是好像动画的服装设计，也不完全跟她 ...</blockquote>
+一直以为是先三次元再反过来输入建模呢，怎么还能反过来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+所以说其实是人好看所以衣服也就那么接受了，反正我还是不太接受星2的豹纹和夺冠的那个混合色。
+
+说起来导演不是对服装设计也有很大的修改权力么，而且也不是没有好看的衣服，感觉上就是这里漏点毛病那里丢点状态，最后折腾个能看的玩意就交差的草台感，果然还是surface。。。
+

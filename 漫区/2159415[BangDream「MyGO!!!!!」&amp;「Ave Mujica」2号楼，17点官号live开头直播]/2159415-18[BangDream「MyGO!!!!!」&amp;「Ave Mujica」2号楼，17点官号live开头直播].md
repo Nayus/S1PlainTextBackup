@@ -1153,3 +1153,22 @@ https://x.com/moepusanai/status/1847656777523093865?s=46&amp;t=IZGx0N13SOtHALpwG
 
 单说目前。mujica的四个人都是独立性很重的强人人设，只有睦带一点楚楚可怜的形象，所以看着不会有所谓父母位<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">倒是漏u说的睦宝团宠可能性不小
 
+
+*****
+
+####  akiomn  
+##### 25268#       发表于 2024-10-20 01:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">睦肯定团宠，海玲和祥特别关照，初华估计也会关照。喵梦……队内搞事活宝迫害位吧，刚建队就敢给祥子整点活涨血压，以后少不了被祥子治啊
+
+*****
+
+####  桜庭千景  
+##### 25269#       发表于 2024-10-20 01:58
+
+能说出mujica唱春日影的朋友我觉得你可能动画和幕后都没太认真看啊
+
+春日影是灯唱出来的内心的呐喊，而mujica是基于世界观之下完全掌控舞台的既定华丽演出，完全不搭调的东西
+
+当然现实中4月合同live会不会整个十人演奏甚至五人的烂活我不能保证就是了<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+

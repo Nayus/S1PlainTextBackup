@@ -14183,3 +14183,29 @@ BOSS完全不难用电脚打，但是差一丝的时候倒计时结束，直接�
 
 2024-10-19 20:56 上传
 
+
+*****
+
+####  Lokad  
+##### 2824#       发表于 2024-10-19 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66489074&amp;ptid=2140224" target="_blank">星野航 发表于 2024-10-19 10:30</a>
+
+结局还是挺正常的，起义称帝不得分封功臣？
+
+到头来国王还是最高统治者+握有绝对实权，政体又没有变</blockquote>
+整个国家都要靠王国权杖这类东西吸负面情绪，国情一乱就直接油门踩死魔力崩溃，怎么改政体。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Lokad  
+##### 2824#       发表于 2024-10-19 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66489074&amp;ptid=2140224" target="_blank">星野航 发表于 2024-10-19 10:30</a>
+
+结局还是挺正常的，起义称帝不得分封功臣？
+
+到头来国王还是最高统治者+握有绝对实权，政体又没有变</blockquote>
+整个国家都要靠王国权杖这类东西吸负面情绪，国情一乱就直接油门踩死魔力崩溃，怎么改政体。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

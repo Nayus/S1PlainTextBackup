@@ -14390,3 +14390,14 @@ boss多动症得靠小丑coop7解锁王都魔法店卖的闪避戒指解决，�
 
 这游戏玩到后面甚至有几天是纯昏睡时间，按理说是不会紧张
 
+
+*****
+
+####  取名真是难  
+##### 2843#       发表于 2024-10-20 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66493340&amp;ptid=2140224" target="_blank">Rushtime33 发表于 2024-10-19 20:56</a>
+
+这三兄弟是人类摆的出来的配置吗？真以为玩黑魂呢</blockquote>
+左边两个都是菜的，中间那个我用武僧主角加兄弟超大斩两回合带走了，主要是得凹这家伙不醒
+

@@ -69,3 +69,11 @@
 
 又是大友们最喜欢的主角黑化时间了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HANDAIYV  
+##### 2542#       发表于 2024-10-20 12:13
+
+主角黑化也要成为固定套路了吗
+

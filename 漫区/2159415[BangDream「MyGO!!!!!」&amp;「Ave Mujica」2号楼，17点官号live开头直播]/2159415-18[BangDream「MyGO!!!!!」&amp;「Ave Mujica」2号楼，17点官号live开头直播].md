@@ -1220,3 +1220,21 @@ https://x.com/moepusanai/status/1847656777523093865?s=46&amp;t=IZGx0N13SOtHALpwG
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">不过我还是那句话，mujica的各位目前表现出来的都是很能自立的强人，不适合硬套其他团的模板
 
+
+*****
+
+####  Aendst  
+##### 25275#       发表于 2024-10-20 11:12
+
+海铃团魂这一点，目前有对应表现的是
+
+特意等睦同行离开ring，表露了明显的关心
+
+live开场前主动联系初华确认状况
+
+告知祥子喵梦在哪（至少知道人在哪干什么事）
+
+live结束后询问祥子怎么离场
+
+虽然有微妙的公事公办距离感，但关怀所有人的态度很明显，非常安心与信赖
+

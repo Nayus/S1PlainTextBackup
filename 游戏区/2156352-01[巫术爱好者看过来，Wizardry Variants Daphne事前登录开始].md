@@ -851,3 +851,27 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 人物能不能洗点的
 
+
+*****
+
+####  elven119  
+##### 129#         楼主| 发表于 2024-10-20 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66499002&amp;ptid=2156352" target="_blank">浅草若旦那 发表于 2024-10-20 17:24</a>
+
+2f的红衣怪应该升多少级再去升级，能不能做十字坡剑圣</blockquote>
+7级去是满经验，8级就减半了，可以做十里坡剑圣，很多日本人在那刷到3万多经验，直接睡一觉20级了
+
+
+*****
+
+####  whfnet  
+##### 130#       发表于 2024-10-20 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66498599&amp;ptid=2156352" target="_blank">elven119 发表于 2024-10-20 16:26</a>
+
+卡2周目2F的双异形了，一口毒直接喷死一排，22级的队伍根本打不了。
+
+跑去日站看了下，原来2周目也是新手教 ...</blockquote>
+艹 难怪我19级去完全打不过
+

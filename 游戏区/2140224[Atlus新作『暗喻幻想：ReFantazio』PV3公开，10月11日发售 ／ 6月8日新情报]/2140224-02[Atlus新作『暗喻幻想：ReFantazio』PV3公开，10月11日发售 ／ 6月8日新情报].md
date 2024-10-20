@@ -14922,3 +14922,15 @@ Bgm整体还是很好，最喜欢的是偷袭的战斗bgm和铠战车选好目�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2893#       发表于 2024-10-21 04:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66500601&amp;ptid=2140224" target="_blank">Dorohedoro 发表于 2024-10-20 20:57</a>
+随便玩了玩刚刚打完大教堂，这迷宫地图设计的不是挺好的嘛，降完雕像位置再返回中间层拿宝箱，作为一个没有 ...</blockquote>
+我给给你泼一盆冷水：主线大迷宫一只手就能数过来，支线就是三个样式复制粘贴
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+

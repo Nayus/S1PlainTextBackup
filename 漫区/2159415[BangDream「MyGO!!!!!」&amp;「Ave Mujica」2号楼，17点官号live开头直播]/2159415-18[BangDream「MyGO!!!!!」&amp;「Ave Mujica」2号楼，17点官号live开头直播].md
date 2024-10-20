@@ -1369,3 +1369,13 @@ b站有昨天梦以的ins直播了
 
 当然我发这的这些，到时候截出去又要被当怨妇鸡杂了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  七情七律  
+##### 25287#       发表于 2024-10-20 19:23
+
+话说mujica动画之后也许后续都只能看手游里看了？似乎是常识却后知后觉意识到，莫名有种完结的惆怅感（不是还没开播嘛！）手游也好吧，但mygo个人来说最吸引人还是动画这么多集的表现力，也许这样的动画又不知道要等上几年了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -301,3 +301,21 @@ Off季和Monster季的其他故事，像是宵物语，有动画化的消息嘛
 小说是从黑发染成棕发，但是动画里黑发表现为紫发</blockquote>
 不光染了棕发，还穿了适合社会人的棕色套装，真是努力的女子大学生啊。
 
+
+*****
+
+####  oi99o  
+##### 986#       发表于 2024-10-20 19:30
+
+编辑
+
+*****
+
+####  oi99o  
+##### 987#       发表于 2024-10-20 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66498049&amp;ptid=2168085" target="_blank">BigDaddyN0tail 发表于 2024-10-20 15:11</a>
+
+Off季和Monster季的其他故事，像是宵物语，有动画化的消息嘛</blockquote>
+等tv版播完再看看有没有机会吧
+

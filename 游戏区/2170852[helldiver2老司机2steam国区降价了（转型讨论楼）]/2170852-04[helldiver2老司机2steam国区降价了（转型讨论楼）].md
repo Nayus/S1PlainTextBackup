@@ -768,3 +768,13 @@ he并不好用，没破片没子炸弹纯加一个范围爆炸，效果感觉不
 
 打了两把机器人升旗着实离谱，往点里一站坦克无畏移动工厂直接下饺子，这不把红战备和反重拉满根本顶不住。另外机器人精度整体上感觉没原来准了，但还是避免不了神经枪，被无畏火箭弹炸飞再接一发空摘，我人都傻了，不知道还以为玩Quake呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风萧飒  
+##### 5502#       发表于 2024-10-20 19:29
+
+等空间站建完丢个核弹机器人全得死<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

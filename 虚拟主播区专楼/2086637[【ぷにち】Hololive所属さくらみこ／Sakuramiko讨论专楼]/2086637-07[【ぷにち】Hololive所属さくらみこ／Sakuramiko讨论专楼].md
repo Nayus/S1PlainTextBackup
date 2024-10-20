@@ -13050,3 +13050,26 @@ rui现在在抽选会上特别评价miko和今天的1135曲子
 
 2024-10-20 12:51 上传
 
+
+*****
+
+####  holoan  
+##### 9956#         楼主| 发表于 2024-10-20 21:53
+
+今天miko怎么了，sololive的自带buff吗，赢了双人游戏对决赢了赛马最后又轻松赢了社内大会
+
+*****
+
+####  holoan  
+##### 9957#         楼主| 发表于 2024-10-20 21:57
+
+以及，JP和EN同时宣布了各自的胜利
+
+<img src="https://img.saraba1st.com/forum/202410/20/215751j5o2n61ktt77g4jt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (153.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-20 21:57 上传
+

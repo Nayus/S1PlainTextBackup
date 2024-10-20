@@ -2889,3 +2889,15 @@ s2e11的时候小千和四季也有过对话就强调过四季的性格比较丧
 
 在nico上重温上一集，nico观众还是十分乐观地相信花田的，另外感觉nico的720p好清晰，码率比B站720p高多了
 
+
+*****
+
+####  ads147147  
+##### 275#       发表于 2024-10-20 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66501134&amp;ptid=2201887" target="_blank">wolf1997 发表于 2024-10-20 22:04</a>
+在nico上重温上一集，nico观众还是十分乐观地相信花田的，另外感觉nico的720p好清晰，码率比B站720p高多了 ...</blockquote>
+相信吗？投1的只有65%，算上2的15%才勉强凑够80%。。。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -78,3 +78,15 @@ coco这大花袄子真喜庆
 ティザービジュアル解禁！
 <img src="https://p.sda1.dev/19/d5667026d0e926bddbfe99d1057d898c/20241020_193601.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 7555#       发表于 2024-10-20 22:21
+
+去冲绳强行拍出夏天的感觉，第二章应该是回台场了？还是说会有新舞台搞新的主题，某种意义上还挺值得期待的。
+
+as归来的游戏好像还是全团一个世界的世界观，重写了吗。。。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

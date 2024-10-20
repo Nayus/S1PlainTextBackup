@@ -14545,3 +14545,39 @@ Bgm整体还是很好，最喜欢的是偷袭的战斗bgm和铠战车选好目�
 
 放心 后面的剧情也是一眼能猜得到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  嘴瓢王者  
+##### 2857#       发表于 2024-10-20 20:55
+
+蕾拉不是死了吗，怎么看别人评论最后活了？
+
+—— 来自 OnePlus PHB110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Dorohedoro  
+##### 2858#       发表于 2024-10-20 20:57
+
+随便玩了玩刚刚打完大教堂，这迷宫地图设计的不是挺好的嘛，降完雕像位置再返回中间层拿宝箱，作为一个没有任何特殊移动机制的jrpg，也就能做到这样了，塞尔达智障有些迷宫的谜题还没这复杂呢，另外这种地图想做的更硬核一点完全可以把小地图去掉，走起来更有意思
+
+
+*****
+
+####  莉可厨  
+##### 2859#       发表于 2024-10-20 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66500601&amp;ptid=2140224" target="_blank">Dorohedoro 发表于 2024-10-20 20:57</a>
+随便玩了玩刚刚打完大教堂，这迷宫地图设计的不是挺好的嘛，降完雕像位置再返回中间层拿宝箱，作为一个没有 ...</blockquote>
+去小地图也过于老害了😨不想卖了是吗
+
+*****
+
+####  NEIN  
+##### 2860#       发表于 2024-10-20 21:04
+
+合理怀疑兄弟俩本来设计了保大保小但是时间不够只能做保小的coop了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

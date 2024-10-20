@@ -14469,3 +14469,14 @@ MAG的话，商人偷MAG根据人物等级，60级以上偷一次大概1500+，�
 
 但整体来说还是很喜欢。个人评分在91～92吧。如果dq3re拉跨了的话暗喻幻想基本就是我的年度游戏了。<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AeonsTorn  
+##### 2850#       发表于 2024-10-20 18:44
+
+服了，最后一刀怎么就给个过场动画啊，不能让我按一个键爽一爽吗
+还有最后整个内阁撂挑子跑路冒险去了合适吗？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+

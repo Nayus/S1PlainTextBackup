@@ -270,3 +270,15 @@
 
 来投票吧：[[2024.07][WEB.14]物语系列 外传季&amp;怪物季/〈物語〉シリーズ オフ&amp;モンスターシーズン](https://bbs.saraba1st.com/2b/thread-2203799-1-1.html)
 
+
+*****
+
+####  KDConan  
+##### 983#       发表于 2024-10-20 14:20
+
+ 本帖最后由 KDConan 于 2024-10-20 14:21 编辑 
+
+只喜欢愚物语和抚物语，后面业和忍一般<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

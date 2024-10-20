@@ -1290,3 +1290,15 @@ live开场前主动联系初华确认 ...</blockquote>
 b站有昨天梦以的ins直播了
 【冈田梦以 ins直播（2024.10.19）-哔哩哔哩】 [https://b23.tv/Fl7mPy6](https://b23.tv/Fl7mPy6)
 
+
+*****
+
+####  鳥栖朝  
+##### 25281#       发表于 2024-10-20 15:38
+
+ 本帖最后由 鳥栖朝 于 2024-10-20 15:41 编辑 
+
+已经开岁祥子没有多少人黑，什么时候有全网黑
+
+我母语都要被这些人变成无语了<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+

@@ -967,3 +967,16 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 妈的2周目把派遣也重置了，生怕玩家赚点钱
 
+
+*****
+
+####  Tring  
+##### 138#       发表于 2024-10-20 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66499688&amp;ptid=2156352" target="_blank">elven119 发表于 2024-10-20 19:02</a>
+
+是这个道理，不过你这个睡觉感觉没啥意义了吧，只为了回大号HP？</blockquote>
+回点SP/MP嘛。
+
+不住店去迷宫里找火锅吃倒是也行，就是麻烦点。
+

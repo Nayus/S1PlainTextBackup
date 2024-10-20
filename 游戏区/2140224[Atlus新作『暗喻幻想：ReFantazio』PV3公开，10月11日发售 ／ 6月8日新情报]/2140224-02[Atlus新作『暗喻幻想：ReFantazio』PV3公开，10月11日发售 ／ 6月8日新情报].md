@@ -14621,3 +14621,53 @@ Bgm整体还是很好，最喜欢的是偷袭的战斗bgm和铠战车选好目�
 
 其他的小桥段处理也不算差，atlus在三三两两勾勒人物细节上的功底还是有一些的。岛上那段整个世界树复刻也挺好，唯一不满的是，既然你都复刻到这程度了，能不能多讲点？等到山城主线一过，桥野桂甚至三转两转转回了p5无印的那套收束方法就有点太没劲了，有没有别的招数啊。这也要复刻多少就有点暴露底牌不够了
 
+
+*****
+
+####  Dorohedoro  
+##### 2865#       发表于 2024-10-20 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66500765&amp;ptid=2140224" target="_blank">windtrack 发表于 2024-10-20 21:19</a>
+
+大教堂这地图就是试玩版拿来骗你买游戏的
+
+后面主线迷宫一个比一个水</blockquote>
+你是真急啊，毕竟你也清楚现在论坛上活跃的这些大把都是云玩家和黑子，而且这年头真正愿意去认真研究迷宫战斗的人也不多，所以你就放开了在这里胡说八道，也就是这年头认真玩jrpg的人不多了，你们这种人才能有市场
+
+*****
+
+####  windtrack  
+##### 2866#       发表于 2024-10-20 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66500986&amp;ptid=2140224" target="_blank">Dorohedoro 发表于 2024-10-20 21:46</a>
+
+你是真急啊，毕竟你也清楚现在论坛上活跃的这些大把都是云玩家和黑子，而且这年头真正愿意去认真研究迷宫 ...</blockquote>
+和连游戏打了20%不到进来吹迷宫设计的您不知道谁更急<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NEIN  
+##### 2867#       发表于 2024-10-20 21:52
+
+感觉小丑这乱数肯定和属性有关吧，打boss经常开局变全闪烁，roll好几次才能变成加2豆，再roll一会儿变成加3豆
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  ouyang菌  
+##### 2868#       发表于 2024-10-20 21:52
+
+我hard难度不刷级一路顶着低boss10级的等级差全清地图，最后跨了18级打通的最终boss，请问泥潭大能可以允许我骂这个游戏后期数值稀烂迷宫敷衍了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Dorohedoro  
+##### 2869#       发表于 2024-10-20 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66501002&amp;ptid=2140224" target="_blank">windtrack 发表于 2024-10-20 21:48</a>
+
+和连游戏打了20%不到进来吹迷宫设计的您不知道谁更急</blockquote>
+我急啥，我玩游戏是细细品味，打完了第一个迷宫觉得体验不错就上论坛来分享一下心得体会，你哪里看出来我急了？倒是你这人游戏发售没几天也不知道玩了个啥，一天天在论坛上蹿下跳，我看你是24小时都守在这个帖子里吧，不然也不会我这边一发帖你蹭的就冒出来了，就你那点肮脏心思我还能不了解吗，你不就是怕我把这话说出来后破坏了你这几天苦心营造的对这游戏的负面印象吗，就和当时老头环发售的时候论坛里也是各种神论满天飞一样，连迷宫历代最差，小地牢全是复制粘贴都出来了
+

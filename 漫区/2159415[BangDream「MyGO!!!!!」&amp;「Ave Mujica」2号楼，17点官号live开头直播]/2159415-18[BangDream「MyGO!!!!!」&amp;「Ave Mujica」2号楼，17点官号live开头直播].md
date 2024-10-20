@@ -1444,3 +1444,31 @@ https://x.com/ushio0104/status/1847928771476889842?s=46&amp;t=IZGx0N13SOtHALpwG0
 
 来又不敢来对线，恨又恨鸡杂骂怨妇，楼里发言没几小时就被传出去，感觉深柜漏油们……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 25293#       发表于 2024-10-20 22:28
+
+真截图啊，别人说截你就截啊，真听话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 桜庭千景| + 1|我也没想到这么喜感|
+
+查看全部评分
+
+
+*****
+
+####  hisousihou  
+##### 25294#       发表于 2024-10-20 22:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看到了亿点东西，已经迫不及待想看到明年开播时的情景了
+

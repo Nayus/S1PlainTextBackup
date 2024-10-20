@@ -14847,3 +14847,14 @@ Bgm整体还是很好，最喜欢的是偷袭的战斗bgm和铠战车选好目�
 朱娜之后的角色还好，前三个队友那是为了过关什么阵容都试了，谁知道他 ...</blockquote>
 经验其实还好，到最终迷宫刷经验效率非常高，1个小时主角全职业成就都能做完，但是MAG很缺，撑死解锁1、2个队友的100%
 
+
+*****
+
+####  索非亚  
+##### 2886#       发表于 2024-10-21 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66501800&amp;ptid=2140224" target="_blank">windtrack 发表于 2024-10-20 23:23</a>
+
+这个地方好像是你去下面的塔才触发，因为洋流所以要绕岛一圈过去</blockquote>
+看了下视频，我应该是忘记买情报，盲信之塔那没注意一直没清，等能飞了以后直接过去了<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+

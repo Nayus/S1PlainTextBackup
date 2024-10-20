@@ -149,3 +149,11 @@
 
 之前人设图就不错，这集妮可人形好看<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  待宵  
+##### 2546#       发表于 2024-10-21 00:31
+
+前面狗子太空气了，开始临近最终主线了所以准备开始增加小麦的存在感吧，如果能靠连着几集把小麦塑造好了也不错
+

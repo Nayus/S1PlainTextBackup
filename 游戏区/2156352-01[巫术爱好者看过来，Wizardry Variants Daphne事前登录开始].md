@@ -988,3 +988,11 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 我看别人的视频心情上限会降低，这是受啥影响的
 
+
+*****
+
+####  我猫呢?  
+##### 140#       发表于 2024-10-21 00:35
+
+7层进8层必经之路上的毒沼泽也太讨厌了<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">每次都要踩一遍，就没有什么免疫技能吗
+

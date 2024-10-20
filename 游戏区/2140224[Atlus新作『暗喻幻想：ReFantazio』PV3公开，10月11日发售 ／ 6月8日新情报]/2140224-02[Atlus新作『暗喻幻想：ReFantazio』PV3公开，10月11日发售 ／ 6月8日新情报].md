@@ -14537,3 +14537,11 @@ Bgm整体还是很好，最喜欢的是偷袭的战斗bgm和铠战车选好目�
 
 异世界旅行安排景点算是用心了，给个及格，其他真的拉，我都玩睡着了
 
+
+*****
+
+####  卡拉德利姆  
+##### 2856#       发表于 2024-10-20 20:47
+
+放心 后面的剧情也是一眼能猜得到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

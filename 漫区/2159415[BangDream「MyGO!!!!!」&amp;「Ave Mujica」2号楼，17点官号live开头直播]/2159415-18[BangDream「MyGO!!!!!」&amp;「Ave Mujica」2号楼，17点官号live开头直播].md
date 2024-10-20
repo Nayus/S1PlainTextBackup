@@ -1311,3 +1311,22 @@ b站有昨天梦以的ins直播了
 12集之后那两周确实算是全网黑吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 泥潭都投降疯狂滑坡了
 
+
+*****
+
+####  -LYRE-  
+##### 25283#       发表于 2024-10-20 16:03
+
+ 本帖最后由 -LYRE- 于 2024-10-20 16:05 编辑 
+
+这连招都见过好几次了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+开岁，“压根没这回事”
+⇩
+（被拿出当时舆论截图证明确有其事）
+被打脸后转移话题
+“这么早就开始存弹药了，可怕”
+“饭圈甩图一套一套的”
+“别倒垃圾/都×××了有什么好说的”
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

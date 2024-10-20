@@ -7799,3 +7799,14 @@ Q:你提到黎恩在界軌裡有多酷，會擔心帶回你心愛的角色，會
 二周目的时候发现一个新饰品“魔女徽章”，忘记是怎么拿到的了，说明是“沐浴阳光的‘阿尼艾丝’托付给另一 ...</blockquote>
 调查书作者支线
 
+
+*****
+
+####  jacket  
+##### 6643#       发表于 2024-10-20 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66494902&amp;ptid=2160194" target="_blank">jacket 发表于 2024-10-20 00:17</a>
+
+二周目数了一下第二部那个关键夜晚的情侣数量，高歌猛进的7对，关系复杂的3对，不算欢喜冤家类型的，至少有 ...</blockquote>
+擦，忘了算最后事务所地图的，老城区地图这边还有6对，一个晚上总共16对男女在推进关系<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+

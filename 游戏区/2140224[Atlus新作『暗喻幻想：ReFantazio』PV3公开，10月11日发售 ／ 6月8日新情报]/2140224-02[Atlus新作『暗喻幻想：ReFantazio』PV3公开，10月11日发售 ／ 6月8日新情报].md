@@ -14334,3 +14334,11 @@ boss多动症得靠小丑coop7解锁王都魔法店卖的闪避戒指解决，�
 
 账号终于是找回来了，看了看视频，还不错
 
+
+*****
+
+####  baizhi  
+##### 2838#       发表于 2024-10-20 10:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过这一作boss就算有100动都无所谓，因为主角这边耍一耍随便都有10动12动，耍一耍猴戏就是秒boss。
+

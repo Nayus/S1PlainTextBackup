@@ -2922,3 +2922,19 @@ s2e11的时候小千和四季也有过对话就强调过四季的性格比较丧
 
 现在也就2400人打分，感觉样本实在少
 
+
+*****
+
+####  stygian  
+##### 278#       发表于 2024-10-21 02:09
+
+<img src="https://img.saraba1st.com/forum/202410/21/020913krf6gsrrfslfm6ba.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (497.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-21 02:09 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

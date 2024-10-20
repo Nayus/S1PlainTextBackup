@@ -2873,3 +2873,11 @@ s2e11的时候小千和四季也有过对话就强调过四季的性格比较丧
 
 一期真的有推岛吗…我记得就今年才有那种吸引人上岛的新绘+活动吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViyViy  
+##### 273#       发表于 2024-10-20 19:53
+
+看完熟的，先恭喜唐小妹和这次的服设完美切割<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说白色确实是能包揽万物的。
+

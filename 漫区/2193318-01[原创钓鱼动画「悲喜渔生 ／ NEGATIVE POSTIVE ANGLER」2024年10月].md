@@ -846,3 +846,13 @@ ed舒服不少
 
 给废物男主还钱还给他地方住，是不是想撅男主啊？？？
 
+
+*****
+
+####  Charizard  
+##### 77#       发表于 2024-10-20 13:37
+
+什么赌狗死前幻想<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ALN-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

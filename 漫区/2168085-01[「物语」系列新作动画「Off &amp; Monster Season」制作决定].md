@@ -233,3 +233,20 @@
 
 抚子都被那么折腾了还肯和月火一起弄副音轨
 
+
+*****
+
+####  傘木希美  
+##### 979#       发表于 2024-10-20 08:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">荡漾染发了？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  狼王卢比奥  
+##### 980#       发表于 2024-10-20 08:44
+
+居然追加了新op，不过应该要等bd才能看到了
+

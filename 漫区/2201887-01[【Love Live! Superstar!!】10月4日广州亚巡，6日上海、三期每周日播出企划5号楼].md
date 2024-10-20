@@ -2901,3 +2901,16 @@ s2e11的时候小千和四季也有过对话就强调过四季的性格比较丧
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  wolf1997  
+##### 276#       发表于 2024-10-20 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66501228&amp;ptid=2201887" target="_blank">ads147147 发表于 2024-10-20 22:15</a>
+
+相信吗？投1的只有65%，算上2的15%才勉强凑够80%。。。
+
+—— 来自 OPPO PHN110, Android 14上的 S1Next- ...</blockquote>
+直播归直播的，视频版里的弹幕氛围还是很不错的，开头就有“言っとくけど花田先生すごい人だから！バカにしたら許さないから！ ”、“花田先生は時間を与えればちゃんと名作書いてくれるぞ”、“ガルクラ花田を信じろ”之类的话，能看出至少是愿意相信的。
+

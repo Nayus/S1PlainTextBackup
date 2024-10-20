@@ -14706,3 +14706,20 @@ Bgm整体还是很好，最喜欢的是偷袭的战斗bgm和铠战车选好目�
 随便玩了玩刚刚打完大教堂，这迷宫地图设计的不是挺好的嘛，降完雕像位置再返回中间层拿宝箱，作为一个没有 ...</blockquote>
 你以为是开始，其实是巅峰<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ouyang菌  
+##### 2873#       发表于 2024-10-20 22:40
+
+二周目王中王打无削弱最终boss也打完了，70级稍微凹一下就能两回合带走，我都不知道该说是真爽还是说这数值也太离谱<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+而且这作后期的boss设计甚至没前期的有意思，鸡蛇有个即死不加防成员，独眼巨人有被解除蓄力破buff，主线那堆就不说了。偏偏最终boss，暗黑牢理，默示录红龙这种就只会迪卡加迪坤达上buff上debuff输出放异常，我方输出暴力到能直接秒可能也是种好事
+
+*****
+
+####  卡拉德利姆  
+##### 2874#       发表于 2024-10-20 22:44
+
+没有一刀流，想想要看那几个逆天玩意我的回合我的回合我的回合还是我的回合…<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

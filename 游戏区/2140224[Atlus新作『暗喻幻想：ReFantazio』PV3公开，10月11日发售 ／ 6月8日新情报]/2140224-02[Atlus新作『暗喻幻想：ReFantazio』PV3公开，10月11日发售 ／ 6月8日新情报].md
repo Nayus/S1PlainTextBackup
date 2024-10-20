@@ -14342,3 +14342,16 @@ boss多动症得靠小丑coop7解锁王都魔法店卖的闪避戒指解决，�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过这一作boss就算有100动都无所谓，因为主角这边耍一耍随便都有10动12动，耍一耍猴戏就是秒boss。
 
+
+*****
+
+####  忘却旋律  
+##### 2839#       发表于 2024-10-20 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66493340&amp;ptid=2140224" target="_blank">Rushtime33 发表于 2024-10-19 20:56</a>
+
+这三兄弟是人类摆的出来的配置吗？真以为玩黑魂呢</blockquote>
+别问 问就是 刷级 刷到直接秒
+
+反整要刷一堆P <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

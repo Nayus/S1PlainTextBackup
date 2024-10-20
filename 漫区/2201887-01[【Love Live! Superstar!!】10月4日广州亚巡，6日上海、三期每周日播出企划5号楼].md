@@ -2865,3 +2865,11 @@ s2e11的时候小千和四季也有过对话就强调过四季的性格比较丧
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  ViyViy  
+##### 272#       发表于 2024-10-20 18:50
+
+一期真的有推岛吗…我记得就今年才有那种吸引人上岛的新绘+活动吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

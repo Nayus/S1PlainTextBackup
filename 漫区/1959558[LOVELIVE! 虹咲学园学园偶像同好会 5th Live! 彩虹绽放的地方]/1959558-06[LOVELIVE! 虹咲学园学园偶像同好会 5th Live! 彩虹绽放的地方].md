@@ -100,3 +100,11 @@ as归来的游戏好像还是全团一个世界的世界观，重写了吗。。
 去冲绳强行拍出夏天的感觉，第二章应该是回台场了？还是说会有新舞台搞新的主题，某种意义上还挺值得期待的 ...</blockquote>
 视觉图 <img src="https://p.sda1.dev/19/9c30de7dbfa39008f2b18a0a5e17e533/image.jpg" referrerpolicy="no-referrer">地点是大阪。
 
+
+*****
+
+####  仟音一心  
+##### 7557#       发表于 2024-10-20 22:45
+
+<img src="https://p.sda1.dev/19/f62f79a25314cbfa1e0fd2fd8c75bc6a/image.jpg" referrerpolicy="no-referrer">
+

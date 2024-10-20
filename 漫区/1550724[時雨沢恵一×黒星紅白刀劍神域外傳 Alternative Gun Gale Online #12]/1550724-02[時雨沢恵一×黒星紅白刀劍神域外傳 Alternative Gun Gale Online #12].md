@@ -142,3 +142,23 @@ S她上一次被P背刺灭队了，所以这次看到C也玩背刺就忍不住�
 她这不是连被背刺的都杀了吗…</blockquote>
 她只是不能容忍背叛。至于被背叛的，那又不是自己队友。
 
+
+*****
+
+####  wingzerocos  
+##### 1929#       发表于 2024-10-19 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66491585&amp;ptid=1550724" target="_blank">ParadiseMartyr 发表于 2024-10-19 16:30</a>
+
+她这不是连被背刺的都杀了吗…</blockquote>
+她只是不能容忍背叛。至于被背叛的，那又不是自己队友。
+
+*****
+
+####  mhss  
+##### 1930#       发表于 2024-10-20 10:36
+
+工具人集体下线<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+两杂鱼面对冲脸的狙击手一枪不中实在太典了
+

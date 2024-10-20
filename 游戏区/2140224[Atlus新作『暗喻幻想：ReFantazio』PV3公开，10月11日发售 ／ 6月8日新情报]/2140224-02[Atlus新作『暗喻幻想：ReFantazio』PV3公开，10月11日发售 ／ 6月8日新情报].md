@@ -14431,3 +14431,14 @@ boss多动症得靠小丑coop7解锁王都魔法店卖的闪避戒指解决，�
 进入十月解锁二转了，哪里可以快速刷级啊？感觉经验和MAG真的是缺到不行吧 ...</blockquote>
 最终迷宫高效率刷到饱
 
+
+*****
+
+####  baizhi  
+##### 2847#       发表于 2024-10-20 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66498266&amp;ptid=2140224" target="_blank">modkingr 发表于 2024-10-20 15:48</a>
+
+进入十月解锁二转了，哪里可以快速刷级啊？感觉经验和MAG真的是缺到不行吧 ...</blockquote>
+不明遗迹boss房门口有两个宝箱怪掉最高级的光叶，主角用小偷可以刷职业经验，继承一下商人的掉落被动，10秒能刷6000差不多。
+

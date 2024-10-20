@@ -946,3 +946,16 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 回旅店睡觉前，把小号除外编队，睡好了后再加回来，就可以不升级一直刷了么？
 
+
+*****
+
+####  elven119  
+##### 136#         楼主| 发表于 2024-10-20 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66499449&amp;ptid=2156352" target="_blank">Tring 发表于 2024-10-20 18:26</a>
+
+铁刷刷也是DRPG的一环！
+
+———— 谨记树3里被我刷了无数个日夜的企鹅王</blockquote>
+是这个道理，不过你这个睡觉感觉没啥意义了吧，只为了回大号HP？
+

@@ -1480,3 +1480,11 @@ https://x.com/ushio0104/status/1847928771476889842?s=46&amp;t=IZGx0N13SOtHALpwG0
 
 楼上是舅舅吗，说起来新楼是不是得禁一下剧透
 
+
+*****
+
+####  ac408010  
+##### 25296#       发表于 2024-10-21 01:03
+
+当时祥从第八集开始被骂，然后第十二集因为有各种学说出来转移了注意，第二周就被骂得少了，十三集播完以后被骂得最厉害，各种堵嘴，说一句好的能被骂几十楼，黑祥楼能骂几百层不被删<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
+

@@ -62,3 +62,15 @@
 
 绝了，星吧老哥爆料这么多，不知道真假
 
+
+*****
+
+####  小零360  
+##### 3412#       发表于 2024-10-21 01:03
+
+ 本帖最后由 小零360 于 2024-10-21 01:04 编辑 
+
+<img src="https://p.sda1.dev/19/f670a505b76b43dcb0fb7a45e0bd850d/CMP_20241021010358328.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Lenovo TB-J716F, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

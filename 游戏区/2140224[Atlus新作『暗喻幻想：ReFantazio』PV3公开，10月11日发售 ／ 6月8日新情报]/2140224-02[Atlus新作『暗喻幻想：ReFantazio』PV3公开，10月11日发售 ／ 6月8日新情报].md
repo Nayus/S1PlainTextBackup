@@ -14355,3 +14355,23 @@ boss多动症得靠小丑coop7解锁王都魔法店卖的闪避戒指解决，�
 
 反整要刷一堆P <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猫沢  
+##### 2840#       发表于 2024-10-20 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66493340&amp;ptid=2140224" target="_blank">Rushtime33 发表于 2024-10-19 20:56</a>
+ 这三兄弟是人类摆的出来的配置吗？真以为玩黑魂呢</blockquote>
+我坏天气去的，中间那个骷髅送我回家两次，这个塔还没有自动存档的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想了好久解法。
+
+
+*****
+
+####  莉可厨  
+##### 2841#       发表于 2024-10-20 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66493340&amp;ptid=2140224" target="_blank">Rushtime33 发表于 2024-10-19 20:56</a>
+这三兄弟是人类摆的出来的配置吗？真以为玩黑魂呢</blockquote>
+这个应该是习惯全清迷宫玩家的本作最难点了，我是三个分开打的
+

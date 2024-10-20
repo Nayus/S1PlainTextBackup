@@ -53,3 +53,19 @@
 
 看了隔壁的恶毒笑话，不会真的搞小麦变成噶路噶路，彩羽认不出来眼镜大喊这是狗吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Blackson  
+##### 2540#       发表于 2024-10-20 10:58
+
+经过去年同样操作，Staff敢让小麦当“敌役”超过一集的量吗？我看不敢
+
+
+*****
+
+####  pokemon最爱  
+##### 2541#       发表于 2024-10-20 11:02
+
+又是大友们最喜欢的主角黑化时间了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

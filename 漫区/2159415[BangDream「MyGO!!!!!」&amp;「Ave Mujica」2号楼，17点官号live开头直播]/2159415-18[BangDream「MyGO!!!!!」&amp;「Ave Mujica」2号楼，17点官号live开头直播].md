@@ -1256,3 +1256,20 @@ live结束后询问祥子怎么离场
 
 祥子是p，海铃才是队长<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  玖羽  
+##### 25278#       发表于 2024-10-20 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66496671&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-10-20 11:12</a>
+
+海铃团魂这一点，目前有对应表现的是
+
+特意等睦同行离开ring，表露了明显的关心
+
+live开场前主动联系初华确认 ...</blockquote>
+我记得之前讨论过<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，我认为海铃不爆则已，要爆是爆得最大的
+
+喵梦正好相反，解决了她的问题之后她会把乐队当家人看待
+

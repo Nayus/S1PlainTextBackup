@@ -14960,3 +14960,19 @@ Bgm整体还是很好，最喜欢的是偷袭的战斗bgm和铠战车选好目�
 
 而且敢戳是因为不怕庇护，自己也知道这行为会被庇护制裁，纯纯给对面制造大义。
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2896#       发表于 2024-10-21 07:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66502881&amp;ptid=2140224" target="_blank">八佾舞于潭 发表于 2024-10-21 05:41</a>
+刺杀剧场那里感觉尤其的土。
+
+&gt;
+
+&gt;</blockquote>
+有点像致敬碟中谍
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+

@@ -14934,3 +14934,13 @@ Bgm整体还是很好，最喜欢的是偷袭的战斗bgm和铠战车选好目�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2894#       发表于 2024-10-21 04:50
+
+拿完龙神长枪以后这剧情怎么油门踩死了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">我还以为至少得跟福根和他手下那个光头打几回，结果直接退场了？？？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+

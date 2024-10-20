@@ -14457,3 +14457,15 @@ MAG的话，商人偷MAG根据人物等级，60级以上偷一次大概1500+，�
 
 72以后能刷的就只有最终BOSS前了
 
+
+*****
+
+####  ネコカイザー  
+##### 2849#       发表于 2024-10-20 18:28
+
+通关了。我最喜欢的是剧情和战斗。中期龙神岛那段剧情节奏有点怪，以及后期王家职业有点太破坏平衡和build多样性不是很喜欢。
+
+然后就是技术力过低导致很多地方能看出点子不错但呈现一坨。这个没啥办法，atlus就这水平。<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+但整体来说还是很喜欢。个人评分在91～92吧。如果dq3re拉跨了的话暗喻幻想基本就是我的年度游戏了。<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

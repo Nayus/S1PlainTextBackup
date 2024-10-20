@@ -996,3 +996,17 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 7层进8层必经之路上的毒沼泽也太讨厌了<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">每次都要踩一遍，就没有什么免疫技能吗
 
+
+*****
+
+####  森兰丸  
+##### 141#       发表于 2024-10-21 06:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">别的不说官网的画面起码是高清的....实际手机版下下来糊成什么样了....鬼知道这PC版还要什么时候出
+
+一堆便利设定都没有放在远古还能说是硬核.....放到现在来说就是反人类.....更别说这还只是个手游
+
+连最基本的玩家改名都不行
+
+溜了溜了
+

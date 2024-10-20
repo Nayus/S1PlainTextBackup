@@ -14741,3 +14741,38 @@ Bgm整体还是很好，最喜欢的是偷袭的战斗bgm和铠战车选好目�
 
 一周目HARD打到王宫，拿到专属职业跟强化合体技饰品后打BOSS最多两回合，包括三龙跟龙宫boss，这个数值是否有点太离谱，物理有群体蓄力有万能超特大，魔法属实狗都不玩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  姊控  
+##### 2877#       发表于 2024-10-20 23:18
+
+专属职业这个设计我觉得本来就有问题....因为伤害计算中属性加点占比很低，实际上RPG构筑自由度来源于阿基态和技能搭配。专属强度低了鸡肋，高了就和现在一样玩家只有用几个专属体验最好。
+
+*****
+
+####  索非亚  
+##### 2878#       发表于 2024-10-20 23:20
+
+奇怪，维尔加岛左边的绝景怎么会漏了，不是都跟着主线触发的么，还是有天气要求<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+2679460_91.jpg
+(702.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-20 23:18 上传
+
+<img src="https://img.saraba1st.com/forum/202410/20/231854sg4v148r9xur1mtp.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  windtrack  
+##### 2879#       发表于 2024-10-20 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66501772&amp;ptid=2140224" target="_blank">索非亚 发表于 2024-10-20 23:20</a>
+
+奇怪，维尔加岛左边的绝景怎么会漏了，不是都跟着主线触发的么，还是有天气要求 ...</blockquote>
+这个地方好像是你去下面的塔才触发，因为洋流所以要绕岛一圈过去
+

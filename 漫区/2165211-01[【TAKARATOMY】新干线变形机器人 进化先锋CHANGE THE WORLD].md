@@ -52,3 +52,13 @@
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66476420&amp;ptid=2165211" target="_blank">JuicyJuice 发表于 2024-10-17 22:11</a></blockquote>
 三重合体还能返厂吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  JuicyJuice  
+##### 98#       发表于 2024-10-20 23:16
+
+<blockquote>创始’’’天翔 发表于 2024-10-20 22:12
+三重合体还能返厂吗</blockquote>
+建模和玩具差距也太大了
+

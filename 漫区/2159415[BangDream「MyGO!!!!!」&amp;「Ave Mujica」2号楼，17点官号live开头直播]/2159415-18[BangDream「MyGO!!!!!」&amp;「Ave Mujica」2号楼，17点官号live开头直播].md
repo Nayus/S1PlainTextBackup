@@ -1488,3 +1488,11 @@ https://x.com/ushio0104/status/1847928771476889842?s=46&amp;t=IZGx0N13SOtHALpwG0
 
 当时祥从第八集开始被骂，然后第十二集因为有各种学说出来转移了注意，第二周就被骂得少了，十三集播完以后被骂得最厉害，各种堵嘴，说一句好的能被骂几十楼，黑祥楼能骂几百层不被删<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  uhiuk  
+##### 25297#       发表于 2024-10-21 01:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚在mujica吧看到有人发帖说鸡友太极端了，说什么大部分狗友不是这样想的，什么二创不影响正剧啊想解决c团问题之类。挺搞笑的，现在帖子没了好像
+

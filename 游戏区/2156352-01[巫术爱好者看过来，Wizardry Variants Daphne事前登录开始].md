@@ -755,3 +755,27 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 刚下，这游戏切换语言的选项在哪里啊
 
+
+*****
+
+####  elven119  
+##### 120#         楼主| 发表于 2024-10-20 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66496017&amp;ptid=2156352" target="_blank">yj98879 发表于 2024-10-20 09:26</a>
+
+装备星级影响啥，前期我看1星和3星的属性好像也一样，另外强化有时候不涨属性。
+
+另外，有2个支线我都拿的最 ...</blockquote>
+关于支线，不剧透，打完8F最终boss你就知道了
+
+
+*****
+
+####  elven119  
+##### 121#         楼主| 发表于 2024-10-20 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66496188&amp;ptid=2156352" target="_blank">Leliel 发表于 2024-10-20 09:57</a>
+
+刚下，这游戏切换语言的选项在哪里啊</blockquote>
+需要进游戏后再设置里切换，标题画面无法切换
+

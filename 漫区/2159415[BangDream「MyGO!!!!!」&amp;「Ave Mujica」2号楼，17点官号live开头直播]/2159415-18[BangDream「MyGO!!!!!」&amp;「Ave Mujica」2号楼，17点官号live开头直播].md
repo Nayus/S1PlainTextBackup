@@ -1246,3 +1246,13 @@ live结束后询问祥子怎么离场
 
 海玲的表现挺像团内的二把手，好奇祥子招募她时两个人到底谈了些什么
 
+
+*****
+
+####  桜庭千景  
+##### 25277#       发表于 2024-10-20 12:00
+
+我不太懂商业乐队啊，其实有一种微妙的感觉是
+
+祥子是p，海铃才是队长<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

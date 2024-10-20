@@ -789,3 +789,37 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 看日站攻略为了开宝箱ssr选了个骷髅脸盗贼，结果第一次进地下城一次开锁失败一次触发陷阱，盗贼直接获得宝箱恐惧症不愿意开宝箱了<img src="https://static.saraba1st.com/image/smiley/face/74.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  elven119  
+##### 123#         楼主| 发表于 2024-10-20 16:26
+
+卡2周目2F的双异形了，一口毒直接喷死一排，22级的队伍根本打不了。
+
+跑去日站看了下，原来2周目也是新手教程，直到救出国王游戏才正式开始。太难了，现在日站各种大佬都被打的无法自理，推荐第一次碰巫术系列的人不要轻易尝试啊
+
+
+*****
+
+####  cenhr  
+##### 124#       发表于 2024-10-20 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66498599&amp;ptid=2156352" target="_blank">elven119 发表于 2024-10-20 16:26</a>
+
+卡2周目2F的双异形了，一口毒直接喷死一排，22级的队伍根本打不了。
+
+跑去日站看了下，原来2周目也是新手教 ...</blockquote>
+难度很巫术，但做成氪金游戏就有些不适合，尤其是投不投钱影响很有限<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+还有就像SMT，主角一死直接GG，太刺激了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bwsusaga  
+##### 125#       发表于 2024-10-20 16:35
+
+黑屏卡屏，读取，玩的太痛苦了，
+
+这游戏会上steam么？？
+

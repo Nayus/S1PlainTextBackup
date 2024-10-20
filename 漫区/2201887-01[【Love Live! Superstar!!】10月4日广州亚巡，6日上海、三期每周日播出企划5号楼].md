@@ -2713,3 +2713,74 @@ yysy，就算是早年的安卓pad也一直都比surface好用<img src="https://
 
 歌好听，打歌服丑，剧情没活硬造，不整烂活卖红蓝够了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViyViy  
+##### 258#       发表于 2024-10-20 16:26
+
+xdm现在都哪儿看的草，叔叔可真绝情呐，手真快<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+只能等晚上翻译版了
+
+*****
+
+####  stygian  
+##### 259#       发表于 2024-10-20 16:28
+
+ 本帖最后由 stygian 于 2024-10-20 16:29 编辑 
+
+透明/白色=多色这种东西要发散其实挺多可说的，不过也就这样呗，没发病就不错了
+
+下集定生死<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  离心  
+##### 260#       发表于 2024-10-20 16:29
+
+<blockquote>ViyViy 发表于 2024-10-20 16:26
+xdm现在都哪儿看的草，叔叔可真绝情呐，手真快
+
+只能等晚上翻译版了</blockquote>
+https://web4.lovelivegundam.top/#/LoveLive
+
+*****
+
+####  ViyViy  
+##### 261#       发表于 2024-10-20 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66498625&amp;ptid=2201887" target="_blank">离心 发表于 2024-10-20 16:29</a>
+
+https://web4.lovelivegundam.top/#/LoveLive</blockquote>
+感谢<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 262#       发表于 2024-10-20 16:34
+
+正常水平的一集，端水端的比恋回正常多了。
+
+s2e11的时候小千和四季也有过对话就强调过四季的性格比较丧，自比西瓜虫，所以作为callback的回扣做的相当稳，可能这类贴标签的角色也不太容易写出什么问题（那为什么夏美这种贴标签角色能写崩？是因为不给写妹妹吗？）
+
+薇恩和冬毬基本就是可堇翻版了，外国人负责攻击性，本地人负责当妈妈，还好冬毬属于机器人完全不怕薇恩发癫。下一集应该就是姐妹回了，大概好起来？
+
+说起端水，那土妹子应该也有一集端水吧，拉人被大香k头，c位被小千钦定归四季，那土妹还剩什么，被投诉私自使用造型的北海道之家咩。霓虹金就算歧视北海道应该也不至于这一季不给个人回吧。。。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  ads147147  
+##### 263#       发表于 2024-10-20 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66498614&amp;ptid=2201887" target="_blank">stygian 发表于 2024-10-20 16:28</a>
+透明/白色=多色这种东西要发散其实挺多可说的，不过也就这样呗，没发病就不错了
+
+下集定生死</blockquote>
+花田发病一般中后期。。前期问题不算大。。。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

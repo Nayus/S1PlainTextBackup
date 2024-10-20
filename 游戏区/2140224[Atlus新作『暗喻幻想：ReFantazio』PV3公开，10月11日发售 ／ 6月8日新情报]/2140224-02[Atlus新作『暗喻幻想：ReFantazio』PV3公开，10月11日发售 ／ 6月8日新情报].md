@@ -14421,3 +14421,13 @@ boss多动症得靠小丑coop7解锁王都魔法店卖的闪避戒指解决，�
 
 进入十月解锁二转了，哪里可以快速刷级啊？感觉经验和MAG真的是缺到不行吧
 
+
+*****
+
+####  jxzeroga0  
+##### 2846#       发表于 2024-10-20 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66498266&amp;ptid=2140224" target="_blank">modkingr 发表于 2024-10-20 15:48</a>
+进入十月解锁二转了，哪里可以快速刷级啊？感觉经验和MAG真的是缺到不行吧 ...</blockquote>
+最终迷宫高效率刷到饱
+

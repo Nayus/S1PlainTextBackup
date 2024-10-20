@@ -290,3 +290,14 @@
 
 Off季和Monster季的其他故事，像是宵物语，有动画化的消息嘛
 
+
+*****
+
+####  戦場ヶ原ひたぎ  
+##### 985#       发表于 2024-10-20 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66496071&amp;ptid=2168085" target="_blank">0aleph37 发表于 2024-10-20 09:37</a>
+
+小说是从黑发染成棕发，但是动画里黑发表现为紫发</blockquote>
+不光染了棕发，还穿了适合社会人的棕色套装，真是努力的女子大学生啊。
+

@@ -823,3 +823,16 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 这游戏会上steam么？？
 
+
+*****
+
+####  elven119  
+##### 126#         楼主| 发表于 2024-10-20 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66498679&amp;ptid=2156352" target="_blank">bwsusaga 发表于 2024-10-20 16:35</a>
+
+黑屏卡屏，读取，玩的太痛苦了，
+
+这游戏会上steam么？？</blockquote>
+官网写了会上steam，但是目前刚上线阶段恶性bug一大堆，我估计官方肯定是优先处理bug，steam可能要等几个月后去了
+

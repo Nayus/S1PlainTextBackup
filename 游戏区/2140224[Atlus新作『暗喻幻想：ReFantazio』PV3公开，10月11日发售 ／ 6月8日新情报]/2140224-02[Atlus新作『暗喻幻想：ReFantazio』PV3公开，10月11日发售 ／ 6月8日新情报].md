@@ -14314,3 +14314,15 @@ boss多动症得靠小丑coop7解锁王都魔法店卖的闪避戒指解决，�
 
 5800x + 3080 上战车以后老黑屏死机咋办
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2836#       发表于 2024-10-20 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66495668&amp;ptid=2140224" target="_blank">卡拉德利姆 发表于 2024-10-20 07:12</a>
+还早着呢 后面有30天的自由行动</blockquote>
+还好，吓死我了，差点读十个小时前的档
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+

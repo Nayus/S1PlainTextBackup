@@ -84,3 +84,14 @@ shuma四代时能成为第二个灭龙吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">塔就是刺激。可惜赛前吹上天的推塔新锐薄荷太刀到正赛毫无踪影
 
+
+*****
+
+####  laosai13  
+##### 5501#       发表于 2024-10-21 01:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66500117&amp;ptid=2150634" target="_blank">秋月孝三 发表于 2024-10-20 19:58</a>
+
+塔就是刺激。可惜赛前吹上天的推塔新锐薄荷太刀到正赛毫无踪影</blockquote>
+薄荷刀塔楼应该没有中刷强，感觉区域很强估计会有人用吧，要不然就是新武器熟练度还不够
+

@@ -2881,3 +2881,11 @@ s2e11的时候小千和四季也有过对话就强调过四季的性格比较丧
 
 看完熟的，先恭喜唐小妹和这次的服设完美切割<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说白色确实是能包揽万物的。
 
+
+*****
+
+####  wolf1997  
+##### 274#       发表于 2024-10-20 22:04
+
+在nico上重温上一集，nico观众还是十分乐观地相信花田的，另外感觉nico的720p好清晰，码率比B站720p高多了
+

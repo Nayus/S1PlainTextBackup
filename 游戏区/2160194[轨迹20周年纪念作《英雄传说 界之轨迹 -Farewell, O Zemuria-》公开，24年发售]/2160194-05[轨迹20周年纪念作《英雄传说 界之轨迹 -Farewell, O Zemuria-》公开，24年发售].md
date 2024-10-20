@@ -7840,3 +7840,23 @@ Q:你提到黎恩在界軌裡有多酷，會擔心帶回你心愛的角色，會
 
 爆肝三周打完了，越打越停不下来
 
+
+*****
+
+####  dddyghr  
+##### 6647#       发表于 2024-10-20 22:10
+
+哎天台告白，jk太会了，如果没有剑女真成了吧，其他人怎么比啊
+
+*****
+
+####  flxgundam  
+##### 6648#       发表于 2024-10-20 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66501184&amp;ptid=2160194" target="_blank">dddyghr 发表于 2024-10-20 22:10</a>
+
+哎天台告白，jk太会了，如果没有剑女真成了吧，其他人怎么比啊</blockquote>
+成不了一点，范恩不是说了不是因为剑女才拒绝的么，说白了就是现阶段他跟谁都谈不了恋爱，因为魔王的破事+他自己性格原因。
+
+不过么这通操作应该是至少直接拉到跟剑女同一起跑线了<img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">
+

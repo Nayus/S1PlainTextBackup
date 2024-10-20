@@ -1429,3 +1429,18 @@ b站有昨天梦以的ins直播了
 
 https://x.com/ushio0104/status/1847928771476889842?s=46&amp;t=IZGx0N13SOtHALpwG0Ubrg
 
+
+*****
+
+####  相坂君  
+##### 25292#       发表于 2024-10-20 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66499749&amp;ptid=2159415" target="_blank">桜庭千景 发表于 2024-10-20 19:11</a>
+
+祥子还算有厨站出来反抗一下；
+
+初华当了一年败犬和贷款挺王了，喵梦也当了一年灯皇代餐了，睦头铁暗恋了一 ...</blockquote>
+好搞笑，的确有在一些群看到这段话了，来泥潭爬楼一看乐了
+
+来又不敢来对线，恨又恨鸡杂骂怨妇，楼里发言没几小时就被传出去，感觉深柜漏油们……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

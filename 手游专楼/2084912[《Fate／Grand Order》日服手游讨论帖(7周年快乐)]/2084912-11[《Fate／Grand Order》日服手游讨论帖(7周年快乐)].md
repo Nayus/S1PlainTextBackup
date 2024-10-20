@@ -1188,3 +1188,11 @@ ex阶都比常规职阶多了。真不如再起一排
 
 喷了我就想抽几个礼装又出了……不过一宝好像也没啥用
 
+
+*****
+
+####  克苏鲁系青骑士  
+##### 15032#       发表于 2024-10-20 20:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">我蔓呢！后悔去抽奥宝2号机还没抽到了！
+

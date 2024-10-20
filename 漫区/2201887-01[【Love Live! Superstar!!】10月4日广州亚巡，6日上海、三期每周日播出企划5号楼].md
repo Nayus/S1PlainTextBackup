@@ -2845,3 +2845,13 @@ s2e11的时候小千和四季也有过对话就强调过四季的性格比较丧
 
 插2插3都是AB盘，拿三个出来把剩下六个两两配呗，还剩一个就祖宗之法，香千。
 
+
+*****
+
+####  ruffian  
+##### 270#       发表于 2024-10-20 17:51
+
+可可这个大头啊……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

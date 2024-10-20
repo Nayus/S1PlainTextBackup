@@ -899,3 +899,30 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 7级去是满经验，8级就减半了，可以做十里坡剑圣，很多日本人在那刷到3万多经验，直接睡一觉20级了 ...</blockquote>
 艹，大号带小号刷，小号经验有折损么？
 
+
+*****
+
+####  elven119  
+##### 133#         楼主| 发表于 2024-10-20 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66499140&amp;ptid=2156352" target="_blank">Tring 发表于 2024-10-20 17:49</a>
+
+艹，大号带小号刷，小号经验有折损么？</blockquote>
+没有，每个角色都是独立计算的
+
+刷那玩意儿很容易腻，我相信不是所有人都能坚持刷3万经验
+
+*****
+
+####  elven119  
+##### 134#         楼主| 发表于 2024-10-20 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66499126&amp;ptid=2156352" target="_blank">Tring 发表于 2024-10-20 17:46</a>
+
+现在有个确定说法没？
+
+角色升级加点到底是随机的，还是固定的，还是由隐藏潜质决定的？
+
+初始属性和奖励点数 ...</blockquote>
+没有，日本人也在验证，很复杂貌似
+

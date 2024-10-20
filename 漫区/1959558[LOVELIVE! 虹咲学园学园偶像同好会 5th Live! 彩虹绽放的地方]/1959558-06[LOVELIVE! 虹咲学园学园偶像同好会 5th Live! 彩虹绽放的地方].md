@@ -63,3 +63,18 @@ coco这大花袄子真喜庆
 <img src="https://p.sda1.dev/19/bb110dbd5606267bfd10de091324a825/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/19/318416ac71e3f6eac74aa7f2843792b9/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 7554#       发表于 2024-10-20 19:40
+
+🌈2025年冬公開予定🌈
+
+映画「ラブライブ！#虹ヶ咲 学園
+
+スクールアイドル同好会 完結編 第2章」
+
+ティザービジュアル解禁！
+<img src="https://p.sda1.dev/19/d5667026d0e926bddbfe99d1057d898c/20241020_193601.jpg" referrerpolicy="no-referrer">
+

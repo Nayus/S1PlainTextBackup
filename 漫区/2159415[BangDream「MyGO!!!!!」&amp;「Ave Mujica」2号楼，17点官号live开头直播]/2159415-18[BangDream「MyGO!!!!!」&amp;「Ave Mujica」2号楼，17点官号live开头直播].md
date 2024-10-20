@@ -1351,3 +1351,21 @@ b站有昨天梦以的ins直播了
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  桜庭千景  
+##### 25286#       发表于 2024-10-20 19:11
+
+ 本帖最后由 桜庭千景 于 2024-10-20 19:13 编辑 
+
+祥子还算有厨站出来反抗一下；
+
+初华当了一年败犬和贷款挺王了，喵梦也当了一年灯皇代餐了，睦头铁暗恋了一年，海铃当了一年立希挂件。
+
+大家都很难发声出来，瞬间就被ylg的刷屏淹没了。<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+而且临近开播，某些人突然又开始提前动员了，又是鸡杂也干了，又是社区要被占领了（隔壁某楼竟然被称为鸡杂楼，隔壁某吧竟然被称为祥吧，我差点笑出声），又是阴阳大祥传大女主<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+当然我发这的这些，到时候截出去又要被当怨妇鸡杂了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

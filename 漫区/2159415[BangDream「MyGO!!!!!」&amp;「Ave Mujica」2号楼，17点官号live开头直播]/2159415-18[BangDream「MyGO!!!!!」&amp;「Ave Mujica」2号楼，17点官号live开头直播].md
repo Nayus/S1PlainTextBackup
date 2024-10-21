@@ -1577,3 +1577,38 @@ bangdream是2.5次元企划
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">提到贴吧正好说个乐子：某素毒唯是mygo小吧，这两天终于被挖黑历史举办弄下去了，为什么专门提一嘴大概是因为此人行止过于符合漏油对“一些群体”的刻板印象吧
 
+
+*****
+
+####  Aendst  
+##### 25305#       发表于 2024-10-21 11:35
+
+ 本帖最后由 Aendst 于 2024-10-21 11:37 编辑 
+<blockquote>akiomn 发表于 2024-10-21 08:45
+不极端都难，之前在go吧对线个自称杂食的，第二季卖初灯祥都来了。理由突出一个狗屁不通，看完血压都高了
+
+ ...</blockquote>
+
+既不懂2.5，也不看live，还不看官方情报和绫奈推，但总觉得自己什么都懂的人才能爆出这种级别的迷惑发言了只能说
+
+
+*****
+
+####  skives10  
+##### 25306#       发表于 2024-10-21 11:42
+
+真别把贴吧的屎搬到泥潭了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+s1巨魔的命也是命<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Aendst| + 1|欢乐多|
+
+查看全部评分
+

@@ -13208,3 +13208,36 @@ MV的背景解读都延伸到什么地方了
 
 2024-10-21 12:25 上传
 
+
+*****
+
+####  holoan  
+##### 9966#         楼主| 发表于 2024-10-21 18:23
+
+箱内同时视听预定：随时更新
+
+fuwamoco
+
+<img src="https://img.saraba1st.com/forum/202410/21/182307rr3pp9wayyagg2yx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (15.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-21 18:23 上传
+
+*****
+
+####  holoan  
+##### 9967#         楼主| 发表于 2024-10-21 18:44
+
+<img src="https://img.saraba1st.com/forum/202410/21/184335ak4accc4ctmif9ie.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (258.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-21 18:43 上传
+
+[https://x.com/kito_koruta/status/1848314056849174633](https://x.com/kito_koruta/status/1848314056849174633)
+

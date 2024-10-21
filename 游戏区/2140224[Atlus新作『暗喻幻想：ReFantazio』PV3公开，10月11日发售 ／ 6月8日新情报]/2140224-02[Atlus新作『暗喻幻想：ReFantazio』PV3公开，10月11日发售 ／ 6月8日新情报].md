@@ -15081,3 +15081,26 @@ Bgm整体还是很好，最喜欢的是偷袭的战斗bgm和铠战车选好目�
 老登一出来看似伟光正，结果他手下那个僧兵队长吉多一眼草鸡 ...</blockquote>
 谁都知道圣教不是好东西，但富登根本看不出什么能力能把国王架空，狮童就够蠢的了，富登更是破产版狮童，连这种小丑都干不过更让人觉得上一代的国王是个废物<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2906#       发表于 2024-10-21 09:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66503226&amp;ptid=2140224" target="_blank">莉可厨 发表于 2024-10-21 08:38</a>
+话说主角这边是不是没有那个长寿族的成员，我怎么没印象……还有城里人是怎么一眼看出爱尔达的，主角的眼瞳 ...</blockquote>
+没角没长耳朵没第三只眼也不是福瑞，那就是艾尔达
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2907#       发表于 2024-10-21 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66503309&amp;ptid=2140224" target="_blank">fireadol 发表于 2024-10-21 08:51</a>
+谁都知道圣教不是好东西，但富登根本看不出什么能力能把国王架空，狮童就够蠢的了，富登更是破产版狮童， ...</blockquote>
+后面剧情说了，国王以前有雄心壮志，后来摆烂了任由圣教瞎搞
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+

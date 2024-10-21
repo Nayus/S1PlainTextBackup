@@ -1544,3 +1544,17 @@ bangdream是2.5次元企划
 
 关于母鸡卡吧，是有正常人在管的（但肯定不是随时盯着），所以有人发沙币帖想引战包被删的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 25302#       发表于 2024-10-21 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66503267&amp;ptid=2159415" target="_blank">akiomn 发表于 2024-10-21 08:45</a>
+
+不极端都难，之前在go吧对线个自称杂食的，第二季卖初灯祥都来了。理由突出一个狗屁不通，看完血压都高了
+
+ ...</blockquote><blockquote>因为无论卖的歌曲，线下的live，都是迈不开灯和祥子这个角色的。</blockquote>
+
+说了这么多就是为了给偷歌做铺垫呗，难怪狗屁不通
+

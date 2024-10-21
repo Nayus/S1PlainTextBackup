@@ -168,3 +168,37 @@ XB1是指机神界那位？那个感觉是纯纯不说人话导致的
 
 看其他人评测量大管饱，实际玩下来感觉也没多少，复制粘贴的迷宫这么多，真不知道0组这八年都在混什么日子。
 
+
+*****
+
+####  星野航  
+##### 2979#       发表于 2024-10-21 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66506585&amp;ptid=2140224" target="_blank">NEIN 发表于 2024-10-21 16:34</a>
+
+剧情里说了龙神名字是艾托，所以叫艾托利亚
+
+—— 来自 鹅球 v3.1.88.3</blockquote>
+整个这个名字本来就是neta，那不等于硬凑么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+艾托利亚这名字出来的时候直接会心一笑了
+
+*****
+
+####  星野航  
+##### 2980#       发表于 2024-10-21 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66507507&amp;ptid=2140224" target="_blank">operatbig 发表于 2024-10-21 18:09</a>
+
+他这信条自己嘴上说说罢了，他都被干趴几次了，哪次认账？</blockquote>
+只要没干死人家就能翻盘啊。二号外挂碰到一号外挂罢了，二号外挂碰到老登这种不是随便拿捏么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+路易如果真的会耍什么阴的，那整个城市里的人都知道你们这帮人盘踞在小巷子里一家酒馆里，还整天不在大本营，随时安排人手去图图了玛丽亚跟法比耶娜，弄不好还抓你们几个措手不及，实在不行劫持了来一招投鼠忌器也行。但人不都没干么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星野航  
+##### 2981#       发表于 2024-10-21 17:28
+
+要说真有谈恋爱的，其实大概只有尤法是最明显的，其他像同志像兄弟。妖精论外可以走别的路线
+

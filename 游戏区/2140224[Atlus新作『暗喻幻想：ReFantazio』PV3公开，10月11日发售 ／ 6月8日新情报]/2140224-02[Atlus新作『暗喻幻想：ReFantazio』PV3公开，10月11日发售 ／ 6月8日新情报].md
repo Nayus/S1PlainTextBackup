@@ -15104,3 +15104,60 @@ Bgm整体还是很好，最喜欢的是偷袭的战斗bgm和铠战车选好目�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2908#       发表于 2024-10-21 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66503280&amp;ptid=2140224" target="_blank">星野航 发表于 2024-10-21 08:47</a>
+这故事不就明摆着告诉你圣教不是个好东西么
+
+老登一出来看似伟光正，结果他手下那个僧兵队长吉多一眼草鸡 ...</blockquote>
+最奇怪的是，为什么在国王国葬前、王之魔法还没发动时候没把路易拿下，当时在场的人里路易嫌疑最大，他还孤身一人进入王宫，禁军直接给他按住啊，总不能这堂堂联合王国就路易一个人掌兵吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+
+*****
+
+####  fireadol  
+##### 2909#       发表于 2024-10-21 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66503417&amp;ptid=2140224" target="_blank">半江瑟瑟半江红 发表于 2024-10-21 09:06</a>
+
+后面剧情说了，国王以前有雄心壮志，后来摆烂了任由圣教瞎搞
+
+—— 来自 鹅球 v3.3.92-alpha ...</blockquote>
+摆烂不是理由啊，他没摆烂前也没能保住自己老婆孩子，年轻时撑死了算个志大才疏，跟富登刚好是一时瑜亮
+
+*****
+
+####  卡拉德利姆  
+##### 2910#       发表于 2024-10-21 09:11
+
+其实罗格族也是没有天生的外部特征的，主要靠后天涂上的面纹和长寿做区分，但是长寿种族又不是没小孩……
+
+我一直以为这里藏了包袱来着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  fireadol  
+##### 2911#       发表于 2024-10-21 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66503456&amp;ptid=2140224" target="_blank">半江瑟瑟半江红 发表于 2024-10-21 09:10</a>
+
+最奇怪的是，为什么在国王国葬前、王之魔法还没发动时候没把路易拿下，当时在场的人里路易嫌疑最大，他还 ...</blockquote>
+军队头头是全身盔甲的那个王国军上将，路易宰了富登后他直接被拿下了，可能这群人除了抱团以外真没本事吧，碰上不讲道理的就只能等死，路易连教堂都敢炸，他们可能怕真打不过吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2912#       发表于 2024-10-21 09:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66503477&amp;ptid=2140224" target="_blank">fireadol 发表于 2024-10-21 09:13</a>
+军队头头是全身盔甲的那个王国军上将，路易宰了富登后他直接被拿下了，可能这群人除了抱团以外真没本事吧 ...</blockquote>
+路易给我感觉特别像董卓，可惜这联合王国还不如东汉末年，连讨董联盟都集结不起来，按理说是三国联合，地方应该有很强的武备才对
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+

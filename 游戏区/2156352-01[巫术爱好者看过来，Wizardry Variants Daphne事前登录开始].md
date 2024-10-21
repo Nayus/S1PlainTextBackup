@@ -1062,3 +1062,28 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  elven119  
+##### 146#         楼主| 发表于 2024-10-21 09:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66503054&amp;ptid=2156352" target="_blank">浅草若旦那 发表于 2024-10-21 08:05</a>
+
+刷到三万了其实也才15级，进三层的哥布林洞照样被秒杀
+
+是不是应该买商店几千的银武器，抽出来的破铜烂铁 ...</blockquote>
+哥布林洞不是前期去的地方啊，40级都会被秒
+
+*****
+
+####  elven119  
+##### 147#         楼主| 发表于 2024-10-21 09:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66503131&amp;ptid=2156352" target="_blank">warerest 发表于 2024-10-21 08:20</a>
+
+二周目二层前两次打的没开场喷毒，普攻的攻击力算是正常水平，差点过了，第三次连续几次开始见面连喷几口前 ...</blockquote>
+关键词，睡眠和盾击
+
+上面2个技能都带有运气成分，所以这个boss要多凹，没有必胜机制，运用你手上的一切技能和魔法来对应
+

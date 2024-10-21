@@ -1770,3 +1770,30 @@ s1巨魔的命也是命<img src="https://static.saraba1st.com/image/smiley/face2
 
 “家道中落算什么很难过的事吗？这是这么对待前队友的理由？”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 25321#       发表于 2024-10-21 16:51
+
+ 本帖最后由 Aendst 于 2024-10-21 16:54 编辑 
+
+ep9结尾闹成那样也没几个人觉得灯自怨自艾是爱音离开和爽世破罐破摔引起的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这不也是能正常思考的，怎么到了mujica成员身上就退行了
+
+到祥子就是不论理由如何说的是不是对的，态度不好就该被千刀万剐就该低头道歉，讲究一个“你怎么敢”
+
+当然还有一个被大主播带节奏天天被车背锅的立希
+
+都是祥子态度不好的错，也都是立希不会说话和态度不好的错
+
+*****
+
+####  桜庭千景  
+##### 25322#       发表于 2024-10-21 16:53
+
+说是腹泻式画饼，仔细想想也没很多东西，一个pv也就十几秒新镜头，剩下的也就是12月先行了。
+
+之前喊了很久了角色pv，官延活动什么还是0<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+

@@ -7937,3 +7937,12 @@ Q:你提到黎恩在界軌裡有多酷，會擔心帶回你心愛的角色，會
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对啊，所以女仆平常cp没啥机会用别的技能我才好奇那个分身有啥用
 
+
+*****
+
+####  flxgundam  
+##### 6658#       发表于 2024-10-21 23:07
+
+<img src="https://p.sda1.dev/19/59724679937992a1c14a9967dfaa9da8/CMP_20241021230444160.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/0995cd10d02c913956d44c4a296fb4d0/CMP_20241021230554740.jpg" referrerpolicy="no-referrer">
+

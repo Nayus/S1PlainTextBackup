@@ -1496,3 +1496,11 @@ https://x.com/ushio0104/status/1847928771476889842?s=46&amp;t=IZGx0N13SOtHALpwG0
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚在mujica吧看到有人发帖说鸡友太极端了，说什么大部分狗友不是这样想的，什么二创不影响正剧啊想解决c团问题之类。挺搞笑的，现在帖子没了好像
 
+
+*****
+
+####  桜庭千景  
+##### 25298#       发表于 2024-10-21 07:52
+
+真的禁的了吗，感觉不想看剧透的人真得退所有社区才能避免<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+

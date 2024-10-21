@@ -15252,3 +15252,53 @@ Bgm整体还是很好，最喜欢的是偷袭的战斗bgm和铠战车选好目�
 
 角色经验衰减就算了，为啥阿基态经验也跟着衰减。
 
+
+*****
+
+####  星野航  
+##### 2921#       发表于 2024-10-21 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66503309&amp;ptid=2140224" target="_blank">fireadol 发表于 2024-10-21 09:51</a>
+
+谁都知道圣教不是好东西，但富登根本看不出什么能力能把国王架空，狮童就够蠢的了，富登更是破产版狮童， ...</blockquote>
+国王就是废物，不然他也不会折腾出什么分身。而且，一个连自己夫人跟储君都保护不了的国王，这不是废物是啥啊。
+
+面对这样的国王，老登背靠国教架空国王攫取权力就再自然不过了。老登不一定有多强，但折射出来的是圣教的影响力有多大
+
+
+*****
+
+####  fireadol  
+##### 2922#       发表于 2024-10-21 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66503865&amp;ptid=2140224" target="_blank">星野航 发表于 2024-10-21 09:59</a>
+
+国王就是废物，不然他也不会折腾出什么分身。而且，一个连自己夫人跟储君都保护不了的国王，这不是废物是 ...</blockquote>
+但是个人认为富登作为圣教的代表再怎么也该安排一段剧情，迷宫跟BOSS战的，而且作为故事起源的的幕后黑手，这个结局也太平淡了，路易都能两次不死，富登就不能多活一次吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星野航  
+##### 2923#       发表于 2024-10-21 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66503456&amp;ptid=2140224" target="_blank">半江瑟瑟半江红 发表于 2024-10-21 10:10</a>
+
+最奇怪的是，为什么在国王国葬前、王之魔法还没发动时候没把路易拿下，当时在场的人里路易嫌疑最大，他还 ...</blockquote>
+硬圆的话，就是圣教要走形式搞审判那一套。鉴于开头在王城走一趟就已经知道路易的人望并不低，特别是军中人望。他还有自己的部曲，所以佣兵自重，本来王朝内部就不见得能一比一拿下路易。
+
+单挑拿不下，军队开战更是两说，而且如果路易都藏着的话，圣教不好直接开打，所以这个位置自然就尬住了。
+
+所以就属于又没有能力又没有胆量，也就不可能拿下了。
+
+*****
+
+####  星野航  
+##### 2924#       发表于 2024-10-21 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66503927&amp;ptid=2140224" target="_blank">fireadol 发表于 2024-10-21 11:04</a>
+
+但是个人认为富登作为圣教的代表再怎么也该安排一段剧情，迷宫跟BOSS战的，而且作为故事起源的的幕后黑手 ...</blockquote>
+肯定应该要安排，老登那个老奸巨猾的模样，安排一次迷宫狠狠打一场不是挺好的么
+
+不过就看这游戏后期的模样，就知道，看看远方的加强版吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

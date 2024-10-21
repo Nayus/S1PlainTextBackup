@@ -1095,3 +1095,14 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 2周目2层还是先打一只过剧情比较好，后面有实力了再回来挑战
 
+
+*****
+
+####  elven119  
+##### 149#         楼主| 发表于 2024-10-21 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66503618&amp;ptid=2156352" target="_blank">whfnet 发表于 2024-10-21 09:30</a>
+
+2周目2层还是先打一只过剧情比较好，后面有实力了再回来挑战</blockquote>
+打一只会死NPC吗？
+

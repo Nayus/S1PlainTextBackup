@@ -455,3 +455,18 @@ XB1是指机神界那位？那个感觉是纯纯不说人话导致的
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
 
+
+*****
+
+####  jxzeroga0  
+##### 3002#       发表于 2024-10-21 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66508902&amp;ptid=2140224" target="_blank">星野航 发表于 2024-10-21 20:17</a>
+
+感觉直球撩人是这种族特技，你看那小丑哥阿隆索，更是，支线最后跟主角掏心掏肺的。
+
+像三眼那说话都是迷 ...</blockquote>
+刚出城就遇到全国瞩目大歌姬贴脸直球表示对你感兴趣谁顶得住啊
+
+尤法第二次握手后刷新npc对话主角还能继续装傻去问老哥握手什么意思，老哥表示由我挑明就太不解风趣了，最终决战前再问一次老哥才暗示主角花心后果，吓得脸色都白了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

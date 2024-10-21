@@ -2080,3 +2080,59 @@ ep9结尾闹成那样也没几个人觉得灯自怨自艾是爱音离开和爽�
 
 不太理解退个乐队怎么就逃避了，知道的是退个喝茶乐队，不知道的以为丰川祥子欠下3.5个亿带着睦跑了呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  vigada  
+##### 25344#       发表于 2024-10-21 23:37
+
+<blockquote>Aendst 发表于 2024-10-21 20:19
+这是另一回事
+
+大部分非要让祥子求饶道歉的人基本话术之一就是祥子退出crychic当日对灯态度很差，无法原谅
+
+ ...</blockquote>
+说到剧本完成度高，突然想起来去年绫奈和武田的访谈了。其实绫奈也很忐忑观众能不能接受祥子，这里武田是大欢迎，不过绫奈应该是在制作脚本时有思考过祥子目前在mygo动画里播出的行为会有争议的。这点在我当时看这个访谈时就觉得脚本很清楚自己在干什么，是剧本完成度高的体现。
+
+题外话：这篇访谈的时间段看起来监督柿本广大还和绫奈没发生矛盾，毕竟绫奈还会分享制作脚本在为需要多严肃的剧情而苦恼时柿本让她放手去做，现在嘛……
+
+<img src="https://img.saraba1st.com/forum/202410/21/233504tq05c5kbv06191bx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241021_233207.jpg</strong> (315.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-21 23:35 上传
+
+<img src="https://img.saraba1st.com/forum/202410/21/232615lvrtelmglvr33u3x.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241021_231303.jpg</strong> (150.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-21 23:26 上传
+
+*****
+
+####  九陌狂游  
+##### 25345#       发表于 2024-10-21 23:42
+
+现在漏油们是明年第二季的季前赛吗<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  好想看Mujica啊  
+##### 25346#       发表于 2024-10-21 23:44
+
+其实跑路在邦邦里很正常的，哪个队都有过跑路被队友抓回来的
+
+*****
+
+####  星天观测  
+##### 25347#       发表于 2024-10-21 23:45
+
+别季前赛了，都是写讲了无数次的事，我其实是建议漏油下次别浪费时间在这些重复的问题上的
+
+毕竟已经一年多了，有些东西还不明白说明是不怎么想明白的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

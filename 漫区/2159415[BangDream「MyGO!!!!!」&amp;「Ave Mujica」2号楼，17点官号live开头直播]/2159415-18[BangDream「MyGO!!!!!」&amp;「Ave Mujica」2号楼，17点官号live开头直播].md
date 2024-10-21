@@ -1748,3 +1748,25 @@ s1巨魔的命也是命<img src="https://static.saraba1st.com/image/smiley/face2
 
 可以说她态度冲，但这话属于正论吧？粉丝心疼是一回事，但大实话伤人那也是大实话啊
 
+
+*****
+
+####  相坂君  
+##### 25319#       发表于 2024-10-21 16:37
+
+祥子做错什么？
+
+：“虽然她可能是对的，但她态度不好！”
+
+其实很多很多黑点延生都会回归祥子态度问题<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 25320#       发表于 2024-10-21 16:44
+
+爆典的话不是还有那个
+
+“家道中落算什么很难过的事吗？这是这么对待前队友的理由？”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

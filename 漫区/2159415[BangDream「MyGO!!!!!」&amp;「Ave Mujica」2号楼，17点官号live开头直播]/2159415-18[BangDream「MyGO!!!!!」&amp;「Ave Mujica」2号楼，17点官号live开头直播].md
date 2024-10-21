@@ -2136,3 +2136,21 @@ ep9结尾闹成那样也没几个人觉得灯自怨自艾是爱音离开和爽�
 
 毕竟已经一年多了，有些东西还不明白说明是不怎么想明白的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 25348#       发表于 2024-10-22 00:01
+
+ 本帖最后由 Aendst 于 2024-10-22 00:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66510280&amp;ptid=2159415" target="_blank">vigada 发表于 2024-10-21 23:37</a>
+
+说到剧本完成度高，突然想起来去年绫奈和武田的访谈了。其实绫奈也很忐忑观众能不能接受祥子，这里武田是 ...</blockquote>
+脚本或许相当早就写好了，所以更方便打磨脚本，完成度也就更高
+
+mygo的基调注定让角色多多少少都会有争议行为，能看得出来绫奈真的很喜欢祥子，不管是作为脚本家作为原案还是作为观众
+
+正因为喜欢，所以才会担心不被接受
+
+和柿本的问题只能说事已至此<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

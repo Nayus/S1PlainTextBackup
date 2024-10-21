@@ -14986,3 +14986,78 @@ Bgm整体还是很好，最喜欢的是偷袭的战斗bgm和铠战车选好目�
 
 路易也挺搞的，还以为他没死应该是用了什么办法，比如在龙神长枪是他故意丢在那的，结果没想到没有准备全凭命硬，编剧说我不能死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后就开始精神病一样狂杀，简直就像看主角这边还差个帕里帕斯凑够八种族就强行把手下送过去，描述魔武双修实力强大完全没感受到压迫感，装的像个吕布项羽这种天下无双的霸王但每次跟主角决斗都被打趴下，然后就用些见不得人的小手段强行扳回来
 
+
+*****
+
+####  卡拉德利姆  
+##### 2898#       发表于 2024-10-21 08:37
+
+初见路易我都想勾rpg经典流程之必败战要来了，结果路易一刀砍了30<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉可厨  
+##### 2899#       发表于 2024-10-21 08:38
+
+ 本帖最后由 莉可厨 于 2024-10-21 08:40 编辑 
+
+话说主角这边是不是没有那个长寿族的成员，我怎么没印象……还有城里人是怎么一眼看出爱尔达的，主角的眼瞳也非常kirakira啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2900#       发表于 2024-10-21 08:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66503173&amp;ptid=2140224" target="_blank">fireadol 发表于 2024-10-21 08:31</a>
+从拿到龙神长枪开始剧情就开始狂飙了吧福根这人再怎么也是一人之下万人之上，看描述都把国王架空了，还以为 ...</blockquote>
+剧场这段确实怪到不行，路易和朱娜一起出现时候我还以为朱娜是内，给路易透的信路易才躲过长枪，没想到路易全靠运气好才没被扎死，而且从始至终都没看透朱娜<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+
+*****
+
+####  fireadol  
+##### 2901#       发表于 2024-10-21 08:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66503226&amp;ptid=2140224" target="_blank">莉可厨 发表于 2024-10-21 08:38</a>
+
+话说主角这边是不是没有那个长寿族的成员，我怎么没印象</blockquote>
+死掉的大叔<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 莉可厨| + 1|sad|
+
+查看全部评分
+
+
+*****
+
+####  星野航  
+##### 2902#       发表于 2024-10-21 08:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66503226&amp;ptid=2140224" target="_blank">莉可厨 发表于 2024-10-21 09:38</a>
+
+话说主角这边是不是没有那个长寿族的成员，我怎么没印象……还有城里人是怎么一眼看出爱尔达的，主角的眼瞳 ...</blockquote>
+有，开头刺杀路易挂掉的那个老头就是
+
+*****
+
+####  星野航  
+##### 2903#       发表于 2024-10-21 08:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66503173&amp;ptid=2140224" target="_blank">fireadol 发表于 2024-10-21 09:31</a>
+
+从拿到龙神长枪开始剧情就开始狂飙了吧福根这人再怎么也是一人之下万人之上，看描述都把国王架空了，还以为 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这故事不就明摆着告诉你圣教不是个好东西么
+
+老登一出来看似伟光正，结果他手下那个僧兵队长吉多一眼草鸡小弟，唯老登马首是瞻。蕾拉一出场就明显知道老登肯定是阴谋坏水一肚子。
+
+要说铺垫太少是肯定的，这游戏细节上欠打磨的地方不少。他在意的人只有路易一个，说白了就是，上层都知道是路易动手杀了老王，但王之魔法加持没办法制裁。不然按照正常道理，清理弑君者自古以来都是名正言顺。老登就是着急了点，看到长枪在手觉得这下可以正义制裁了，结果反向被终结
+

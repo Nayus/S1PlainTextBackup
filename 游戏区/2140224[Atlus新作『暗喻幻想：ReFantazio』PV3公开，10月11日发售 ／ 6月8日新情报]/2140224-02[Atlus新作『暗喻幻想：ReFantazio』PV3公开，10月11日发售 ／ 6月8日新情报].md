@@ -15608,3 +15608,44 @@ P系列的BOSS能明显看出是有设计的，你这人类的造型和游戏主
 当然 ...</blockquote>
 是富登不是巴登啊，巴登老实人的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SuNR1sE364  
+##### 2951#       发表于 2024-10-21 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66506025&amp;ptid=2140224" target="_blank">fireadol 发表于 2024-10-21 14:17</a>
+是富登不是巴登啊，巴登老实人的要说挂还是耐杀王路易挂多，没挂都不知道死多少次了，或许这就是天命吧 ...</blockquote>
+我看不是路易耐杀，是艾尔达族就耐杀，主角也是个死几次都能活的主<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  变老的大二  
+##### 2952#       发表于 2024-10-21 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66504309&amp;ptid=2140224" target="_blank">半江瑟瑟半江红 发表于 2024-10-21 10:45</a>
+
+蕾拉都一笔带过了，何况福登
+
+这游戏除了画面像八年前的以外，别的地方真不像开发了八年，更像开发了八个 ...</blockquote>
+蕾拉明显是有个大纲就拉过来用，最关键玩家也下不去手干她，到最后强行说她也快噶了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太抽象了。
+
+魔法学院好歹也给个单独地图+圣教线收尾才正常
+
+*****
+
+####  变老的大二  
+##### 2953#       发表于 2024-10-21 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66506104&amp;ptid=2140224" target="_blank">SuNR1sE364 发表于 2024-10-21 14:27</a>
+
+我看不是路易耐杀，是艾尔达族就耐杀，主角也是个死几次都能活的主</blockquote>
+变巨人那一幕梦回菊苣，直接笑嘻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卡拉德利姆  
+##### 2954#       发表于 2024-10-21 14:32
+
+我懂了 爱尔达人全村的性命都算到这俩头上了
+

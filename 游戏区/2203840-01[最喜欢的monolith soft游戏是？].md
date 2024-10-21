@@ -580,3 +580,11 @@ xb2虽然要挑毛病能挑很多，但确实有加成，演出好故事完整�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">选异度X,因为还没玩过,没玩过的游戏最好玩
 
+
+*****
+
+####  fleedot  
+##### 56#       发表于 2024-10-21 14:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">结果坛游是XB系列里票数最低的
+

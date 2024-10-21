@@ -515,3 +515,35 @@ hnn这个pr组合，还找了这么多其他人来翻跳
 
 说是8点开始，但目前还没开，可能过几分钟开。
 
+
+*****
+
+####  吃咸菜的  
+##### 827#       发表于 2024-10-21 23:56
+
+合着这握手券是白塞了
+
+<img src="https://img.saraba1st.com/forum/202410/21/235512r8954hg79sl78854.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (12.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-21 23:55 上传
+
+<img src="https://img.saraba1st.com/forum/202410/21/235605qo97kbqhvqqhsznh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (12.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-21 23:56 上传
+
+*****
+
+####  渡鸦骑士  
+##### 828#       发表于 2024-10-21 23:57
+
+意思你虹就这么多销量了？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+还真是清晰的上限啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

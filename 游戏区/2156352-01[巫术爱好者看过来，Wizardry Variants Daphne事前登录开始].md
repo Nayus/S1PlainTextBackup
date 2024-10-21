@@ -1124,3 +1124,24 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 现在卡在4楼了，队伍死剩下主角一个人，没带勾子，回程点还在1楼。每次复活都复活在4楼，跑回1楼必然死在半路。这样是不是基本死档了？
 
+
+*****
+
+####  whfnet  
+##### 152#       发表于 2024-10-21 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66504395&amp;ptid=2156352" target="_blank">nukejoker 发表于 2024-10-21 10:55</a>
+
+现在卡在4楼了，队伍死剩下主角一个人，没带勾子，回程点还在1楼。每次复活都复活在4楼，跑回1楼必然死在半 ...</blockquote>
+？？？3楼不是也有回城吗
+
+*****
+
+####  nukejoker  
+##### 153#       发表于 2024-10-21 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66504540&amp;ptid=2156352" target="_blank">whfnet 发表于 2024-10-21 11:13</a>
+
+？？？3楼不是也有回城吗</blockquote>
+3楼估计之前路过岔路口支走了没开到。现在频频死在疑似回程点的半路上。
+

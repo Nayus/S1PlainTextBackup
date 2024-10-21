@@ -15441,3 +15441,13 @@ P系列的BOSS能明显看出是有设计的，你这人类的造型和游戏主
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
 
+
+*****
+
+####  只因皮饺子  
+##### 2939#       发表于 2024-10-21 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66504311&amp;ptid=2140224" target="_blank">mai6696 发表于 2024-10-21 10:45</a>
+人间乐园</blockquote>
+那个蛋壳人类，剑风里也出现过。
+

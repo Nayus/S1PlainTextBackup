@@ -1895,3 +1895,31 @@ ep9结尾闹成那样也没几个人觉得灯自怨自艾是爱音离开和爽�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Aendst  
+##### 25330#       发表于 2024-10-21 21:13
+
+ 本帖最后由 Aendst 于 2024-10-21 21:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66509215&amp;ptid=2159415" target="_blank">adcdqre 发表于 2024-10-21 20:59</a>
+
+不值什么见到祥子第一句话上来就推卸责任给队友这话越重视乐队的人听了越来气，而且春日影你没干？
+
+  --  ...</blockquote>
+计较和不值都是泥漏以前确实存在过的发言，这两个词基本摘录自原文<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我也不是很懂为什么能这么想，不过当时祥厨没有呼吸权，怎么讲的都有
+
+去年播出ep08的那个时间段（20230803）各个地方的言论都简直不要太精彩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202410/21/211535b1u9nuh8nhw8y7on.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (5.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-21 21:15 上传
+
+比如这样的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

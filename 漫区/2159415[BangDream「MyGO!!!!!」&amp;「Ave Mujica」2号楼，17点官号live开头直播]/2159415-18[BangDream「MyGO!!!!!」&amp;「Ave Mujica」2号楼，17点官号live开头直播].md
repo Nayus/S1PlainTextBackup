@@ -2037,3 +2037,29 @@ ep9结尾闹成那样也没几个人觉得灯自怨自艾是爱音离开和爽�
 这种陷阱题可太容易陷入攻击角色的套里了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 灯的主观能动性是在进了mygo之后才有体现的，之前她更多是被动接受，她是这种性格没错，但别人实际上没有义务一直推着拽着前进。c团并没有让她主动。
 
+
+*****
+
+####  Aendst  
+##### 25340#       发表于 2024-10-21 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66509932&amp;ptid=2159415" target="_blank">相坂君 发表于 2024-10-21 22:38</a>
+
+还没播呢，就贷个款再次丢下队友逃避不奇怪……
+
+合着冒雨过来说退出是逃避，退乐队什么时候等同于逃避责任 ...</blockquote>
+高松灯在动画里有被明确表示出唱功不够需要加强练习的描写吗
+
+高松灯在动画里有被明确表示出唱功很强不需要练习的描写吗
+
+怎么回事，好像下面这个也没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 25341#       发表于 2024-10-21 22:57
+
+我其实一直很想问，既然一直声明祥子过得怎么样又不关别人的事，那为什么又一直要求祥子应该跟大火讲明原因呢
+
+我们可以不想知道，但是你一定要说？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -103,3 +103,15 @@ shuma四代时能成为第二个灭龙吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shirolin  
+##### 5503#       发表于 2024-10-21 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66506454&amp;ptid=2150634" target="_blank">墨染白泉 发表于 2024-10-21 15:16</a>
+没有崩铁谁知道你们喷喷</blockquote>
+服了…
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

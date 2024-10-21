@@ -374,3 +374,70 @@ XB1是指机神界那位？那个感觉是纯纯不说人话导致的
 红发吃货女做DLC角色进过树3？</blockquote>
 树X额外人物形象DLC
 
+
+*****
+
+####  Errey  
+##### 2996#       发表于 2024-10-21 20:07
+
+<img src="https://img.saraba1st.com/forum/202410/21/200435fqn7j0qv7qqjfh6v.png" referrerpolicy="no-referrer">
+
+<strong>QQ20241021-194919.png</strong> (400.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-21 20:04 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">路易活得很刻意，而留着路易让他公开观点，主角是不需要辩论辩赢的，只要等路易自爆就行了，完全不知道编剧在做什么，观感不是一般的差
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2997#       发表于 2024-10-21 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66508825&amp;ptid=2140224" target="_blank">Errey 发表于 2024-10-21 20:07</a>
+路易活得很刻意，而留着路易让他公开观点，主角是不需要辩论辩赢的，只要等路易自爆就行了，完全不知道编剧 ...</blockquote>
+往好处想，至少没洗白，死的跟个小丑一样
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+
+*****
+
+####  kuarwbwe  
+##### 2998#       发表于 2024-10-21 20:12
+
+ 本帖最后由 kuarwbwe 于 2024-10-21 20:13 编辑 
+
+跨了六级，坏天气打叹息之墓结果就是和吃屎一样，日了狗了。
+
+打weak和critic也是吃你一个行动点，你一回合绝壁送不走他，输出一轮下来还要赌中途哪个队友别把它弄醒了，醒了然后就梆梆几套残血给你送走。最傻逼的是在牛头人面前给你放个苍元素，操作稍微差点就是进后手战斗，梆梆又给你送走了。
+
+这什么傻逼设计？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  星野航  
+##### 2999#       发表于 2024-10-21 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66507683&amp;ptid=2140224" target="_blank">operatbig 发表于 2024-10-21 18:33</a>
+
+他不下黑手不就是这人喜欢装逼顺风浪么，劣势立马撕破脸，更小丑了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">本来就是怎么个人啊
+
+路易的行事风格从一开始就看出来了。老登是伪君子，路易就是真小人。他是纯粹想毁灭世界的，人死不死跟我有啥关系啊，大家都变人类才是舒坦的
+
+
+*****
+
+####  星野航  
+##### 3000#       发表于 2024-10-21 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66507861&amp;ptid=2140224" target="_blank">jxzeroga0 发表于 2024-10-21 18:54</a>
+
+朱娜直接给你看只有家人才知道的真实形态了，其他人主角都是装迟钝，只有朱娜的coop有主动撩的选项，主线 ...</blockquote>
+感觉直球撩人是这种族特技，你看那小丑哥阿隆索，更是，支线最后跟主角掏心掏肺的。
+
+像三眼那说话都是迷迷瞪瞪绕来绕去的，输在起跑线啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

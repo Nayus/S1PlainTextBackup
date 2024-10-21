@@ -1707,3 +1707,20 @@ s1巨魔的命也是命<img src="https://static.saraba1st.com/image/smiley/face2
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">下一個已知行程是11/23的ANIMAX拼盤，在這之前好像又什麼都沒有了
 
+
+*****
+
+####  uhiuk  
+##### 25315#       发表于 2024-10-21 15:57
+
+已经逐渐理解有些人的理解水平确实是没法跳出主视角看问题的。
+
+不知等祥子主视角的部分播出后这帮人又会作何感想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 25316#       发表于 2024-10-21 16:02
+
+就是说啊腹泻式画饼以后一个半月什么都没有，真有你的啊wsd<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+

@@ -283,3 +283,14 @@ XB1是指机神界那位？那个感觉是纯纯不说人话导致的
 
 看的我都开始可怜他了。
 
+
+*****
+
+####  毛利提督  
+##### 2989#       发表于 2024-10-21 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66506360&amp;ptid=2140224" target="_blank">ouyang菌 发表于 2024-10-21 15:03</a>
+
+其实打完还是最好奇的是龙宫岛和神殿，名字，音乐，迷宫，剧情设定全都是照搬新树1的，但是又没看出来这么 ...</blockquote>
+因为做了会有世界树大儒帮忙辩经，拿世界树的鹌鹑味来洗啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1869,3 +1869,16 @@ ep9结尾闹成那样也没几个人觉得灯自怨自艾是爱音离开和爽�
 
 很多细节都是明显用心去做的，脚本完成度非常高
 
+
+*****
+
+####  adcdqre  
+##### 25328#       发表于 2024-10-21 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66508527&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-10-21 19:27:12</a>
+还是我在之前说过的，这中间有一个致命的信息差
+
+大部分观众没发现，祥子爽世想重组Crychic，睦没把这件事 ...</blockquote>爽世不是想重组，爽世是想让祥子重组不然怎么灯和立希也不知道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

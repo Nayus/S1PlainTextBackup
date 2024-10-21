@@ -15497,3 +15497,16 @@ P系列的BOSS能明显看出是有设计的，你这人类的造型和游戏主
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  operatbig  
+##### 2944#       发表于 2024-10-21 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66504685&amp;ptid=2140224" target="_blank">Khellendros 发表于 2024-10-21 11:28</a>
+
+决战前路易除了有艘大船完全体现不出他所谓的“实力”
+
+刺杀老国王搞得人尽皆知，第一次被刺杀如果不是老国 ...</blockquote>
+拿到权杖后依旧菜逼，最后看到主角复活居然自己绷不住变成人类，他这算不算是自己淘汰自己？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

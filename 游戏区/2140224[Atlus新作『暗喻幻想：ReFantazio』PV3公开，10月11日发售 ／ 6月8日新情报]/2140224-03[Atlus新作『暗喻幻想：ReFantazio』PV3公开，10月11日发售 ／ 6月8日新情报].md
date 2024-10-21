@@ -126,3 +126,11 @@ XB1是指机神界那位？那个感觉是纯纯不说人话导致的
 
 虽然说没有恋爱要素 但是尤法 油咖喱 这都是很明显的 难不成真要在什么皇家版 国王版加么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jxzeroga0  
+##### 2974#       发表于 2024-10-21 16:23
+
+除了某个红发女只知道吃，女队友女COOP全员后宫箭头是很清晰的，一个个都是脸红暧昧台词就差直球了。加强版coop9 coop10妥妥的。
+

@@ -97,3 +97,24 @@ XB1是指机神界那位？那个感觉是纯纯不说人话导致的
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  windtrack  
+##### 2971#       发表于 2024-10-21 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66506509&amp;ptid=2140224" target="_blank">卢迪克 发表于 2024-10-21 15:23</a>
+
+尤法是官配吗，为什么没有coop9和10</blockquote>
+官配显然是嘉利卡吧，老夫老妻感
+
+*****
+
+####  卢迪克  
+##### 2972#       发表于 2024-10-21 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66506652&amp;ptid=2140224" target="_blank">windtrack 发表于 2024-10-21 15:43</a>
+
+官配显然是嘉利卡吧，老夫老妻感</blockquote>
+异世界油咖喱和异世界牢理没毛病
+

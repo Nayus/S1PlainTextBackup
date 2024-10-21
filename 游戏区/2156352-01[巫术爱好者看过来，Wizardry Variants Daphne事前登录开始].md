@@ -1271,3 +1271,38 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 本期up那个公主就是普通公主的异画版，性能是一样的？
 
+
+*****
+
+####  warerest  
+##### 167#       发表于 2024-10-21 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66506559&amp;ptid=2156352" target="_blank">Tring 发表于 2024-10-21 15:31</a>
+本期up那个公主就是普通公主的异画版，性能是一样的？</blockquote>
+是的，完全一样。我看别人说后期公主没用，初始要刷金盗贼和男精灵法师，我allin公主池（还啥都没出）有点后悔了，不知道池子点数下个up会不会继承。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+
+*****
+
+####  elven119  
+##### 168#         楼主| 发表于 2024-10-21 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66506559&amp;ptid=2156352" target="_blank">Tring 发表于 2024-10-21 15:31</a>
+
+本期up那个公主就是普通公主的异画版，性能是一样的？</blockquote>
+这东西你喂给公主（同一化）以后就能随时切换造型了
+
+*****
+
+####  elven119  
+##### 169#         楼主| 发表于 2024-10-21 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66505021&amp;ptid=2156352" target="_blank">nukejoker 发表于 2024-10-21 12:04</a>
+
+逃出升天了。。。
+
+回3楼回程点没希望之后开始往四周添图试图多开地图必可活用于下一局，然后在4楼发现个盗 ...</blockquote>
+原来那个盗贼是用来干这个的啊。我之前点错一次直接给我送上去，害我白跑路
+

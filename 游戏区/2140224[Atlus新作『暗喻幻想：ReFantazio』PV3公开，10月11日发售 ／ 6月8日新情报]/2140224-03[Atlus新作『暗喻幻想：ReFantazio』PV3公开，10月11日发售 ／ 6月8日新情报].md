@@ -221,3 +221,49 @@ XB1是指机神界那位？那个感觉是纯纯不说人话导致的
 路易如果真 ...</blockquote>
 他不下黑手不就是这人喜欢装逼顺风浪么，劣势立马撕破脸，更小丑了。
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2984#       发表于 2024-10-21 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66507613&amp;ptid=2140224" target="_blank">星野航 发表于 2024-10-21 17:26</a>
+只要没干死人家就能翻盘啊。二号外挂碰到一号外挂罢了，二号外挂碰到老登这种不是随便拿捏么
+
+路易如果真 ...</blockquote>
+他纯**，剧场第一次翻车就要对路人动手逼着主角挡刀
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+
+*****
+
+####  jxzeroga0  
+##### 2985#       发表于 2024-10-21 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66507623&amp;ptid=2140224" target="_blank">星野航 发表于 2024-10-21 17:28</a>
+
+要说真有谈恋爱的，其实大概只有尤法是最明显的，其他像同志像兄弟。妖精论外可以走别的路线 ...</blockquote>
+朱娜直接给你看只有家人才知道的真实形态了，其他人主角都是装迟钝，只有朱娜的coop有主动撩的选项，主线更是大量巨魔路易朱娜的选项洗清牛头人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jxzeroga0  
+##### 2986#       发表于 2024-10-21 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66507519&amp;ptid=2140224" target="_blank">忘却旋律 发表于 2024-10-21 17:12</a>
+
+话说那大额头立绘有办法救救吗 明明建模也是大额头，但是看上去还凑合不至于惊悚，这立绘 实在太难绷了，加 ...</blockquote>
+头巾拖了后腿，结局换了身衣服戴帽子明显好很多。五彩眼睛应该是种族特效。
+
+*****
+
+####  jxzeroga0  
+##### 2987#       发表于 2024-10-21 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66507848&amp;ptid=2140224" target="_blank">半江瑟瑟半江红 发表于 2024-10-21 17:52</a>
+
+他纯**，剧场第一次翻车就要对路人动手逼着主角挡刀
+
+—— 来自 鹅球 v3.3.92-alpha ...</blockquote>
+不是翻车泄愤吧，只不过是砍个落单路人证明教会纯垃圾证明自己的抛瓦平等论
+

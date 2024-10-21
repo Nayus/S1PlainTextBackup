@@ -1797,3 +1797,11 @@ ep9结尾闹成那样也没几个人觉得灯自怨自艾是爱音离开和爽�
 
 之前喊了很久了角色pv，官延活动什么还是0<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  集合酱  
+##### 25323#       发表于 2024-10-21 17:54
+
+隔壁来的问一下对邦的电子票可以转让吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

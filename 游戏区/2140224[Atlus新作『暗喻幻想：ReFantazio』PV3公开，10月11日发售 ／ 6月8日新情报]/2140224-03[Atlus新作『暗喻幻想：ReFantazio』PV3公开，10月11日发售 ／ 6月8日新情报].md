@@ -294,3 +294,20 @@ XB1是指机神界那位？那个感觉是纯纯不说人话导致的
 其实打完还是最好奇的是龙宫岛和神殿，名字，音乐，迷宫，剧情设定全都是照搬新树1的，但是又没看出来这么 ...</blockquote>
 因为做了会有世界树大儒帮忙辩经，拿世界树的鹌鹑味来洗啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蟹粉小笼  
+##### 2990#       发表于 2024-10-21 19:15
+
+刚开始玩，这个黑市一样的地方呆滞之锤那个图标的是以后自己敲装备的素材吗？也没个介绍只有买不买选项，都不知道这是啥<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+忘带图了补上
+
+<img src="https://img.saraba1st.com/forum/202410/21/191603z2ydd5zuo9jgd8yj.jpg" referrerpolicy="no-referrer">
+
+<strong>192aec7656648-screenshotUrl~2.jpg</strong> (150.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-21 19:16 上传
+

@@ -118,3 +118,11 @@ XB1是指机神界那位？那个感觉是纯纯不说人话导致的
 官配显然是嘉利卡吧，老夫老妻感</blockquote>
 异世界油咖喱和异世界牢理没毛病
 
+
+*****
+
+####  a2276382  
+##### 2973#       发表于 2024-10-21 15:46
+
+虽然说没有恋爱要素 但是尤法 油咖喱 这都是很明显的 难不成真要在什么皇家版 国王版加么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

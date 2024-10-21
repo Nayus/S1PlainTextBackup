@@ -556,3 +556,14 @@ XB1是指机神界那位？那个感觉是纯纯不说人话导致的
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  卢武铉  
+##### 3012#       发表于 2024-10-22 01:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66510693&amp;ptid=2140224" target="_blank">u2deack 发表于 2024-10-22 00:56</a>
+
+玩得不是很多刚出城，以为拿路易的画像当盾牌已经够弱智了，打到这个吉多这里虽然我打不了你，但是你打我我 ...</blockquote>
+桥野是这样的
+

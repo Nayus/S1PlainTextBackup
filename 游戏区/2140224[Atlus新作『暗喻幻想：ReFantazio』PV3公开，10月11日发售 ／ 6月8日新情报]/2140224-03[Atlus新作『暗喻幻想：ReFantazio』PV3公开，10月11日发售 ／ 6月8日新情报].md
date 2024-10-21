@@ -441,3 +441,17 @@ XB1是指机神界那位？那个感觉是纯纯不说人话导致的
 
 像三眼那说话都是迷迷瞪瞪绕来绕去的，输在起跑线啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3001#       发表于 2024-10-21 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66508867&amp;ptid=2140224" target="_blank">kuarwbwe 发表于 2024-10-21 20:12</a>
+跨了六级，坏天气打叹息之墓结果就是和吃屎一样，日了狗了。
+
+打weak和critic也是吃你一个行动点，你一回合 ...</blockquote>
+坏天气这设计只对玩家有效就是纯粹恶心人的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+

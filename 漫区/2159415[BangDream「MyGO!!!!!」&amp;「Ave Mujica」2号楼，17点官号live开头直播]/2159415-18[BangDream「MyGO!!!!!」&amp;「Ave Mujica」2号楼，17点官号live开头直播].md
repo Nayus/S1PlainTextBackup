@@ -2063,3 +2063,20 @@ ep9结尾闹成那样也没几个人觉得灯自怨自艾是爱音离开和爽�
 
 我们可以不想知道，但是你一定要说？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jerryoq1  
+##### 25342#       发表于 2024-10-21 23:18
+
+原来面对面说清楚自己个人原因没法继续下去就叫逃避阿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我还以为突然消失联系不上才叫逃避<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 25343#       发表于 2024-10-21 23:27
+
+不太理解退个乐队怎么就逃避了，知道的是退个喝茶乐队，不知道的以为丰川祥子欠下3.5个亿带着睦跑了呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

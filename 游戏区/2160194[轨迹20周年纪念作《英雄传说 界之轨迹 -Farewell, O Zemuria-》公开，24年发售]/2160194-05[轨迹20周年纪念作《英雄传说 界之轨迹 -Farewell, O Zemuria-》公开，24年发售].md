@@ -7979,3 +7979,18 @@ Q:你提到黎恩在界軌裡有多酷，會擔心帶回你心愛的角色，會
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66510110&amp;ptid=2160194" target="_blank">flxgundam 发表于 2024-10-21 23:07</a></blockquote>
 黎一好像也有这个种苦番茄的人物剧情
 
+
+*****
+
+####  jacket  
+##### 6662#       发表于 2024-10-22 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66510386&amp;ptid=2160194" target="_blank">秘银mithril 发表于 2024-10-21 23:57</a>
+
+刚玩界轨
+
+第一章钓个鱼都能精神2*3
+
+我记着以前钓鱼也就中期一个一个给……这作是都这么大方吗，这精神2*3搞 ...</blockquote>
+高级回路主要是通过进度来限制，其余资源都不怎么缺，各方面比较便民。
+

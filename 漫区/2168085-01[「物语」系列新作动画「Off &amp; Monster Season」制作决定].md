@@ -369,3 +369,14 @@ Off季和Monster季的其他故事，像是宵物语，有动画化的消息嘛<
 忍物语出场人物包括垃圾君在内全是剧情工具人啊，几乎没有情绪波动，卡米亚台词从头念到尾语气都没怎么变过 ...</blockquote>
 死上多少也是这样
 
+
+*****
+
+####  戦場ヶ原ひたぎ  
+##### 992#       发表于 2024-10-21 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66502092&amp;ptid=2168085" target="_blank">神原駿河 发表于 2024-10-21 00:04</a>
+棕色是不错啦，但未免太淡太不醒目了！？平平无奇的黑色染成棕色还好说，战场原前辈从一目了然的女主紫，变 ...</blockquote>
+算了算了，看你 <strong>曾经</strong> 是我可爱后辈的交情上说下吧，忘记过去我对你的教导吧。对于青春期的中学生来说或许适用，上大学以后还坚持那些的话，就变形穿着性感睡衣让前辈的男朋友穿朋友睡衣参加派对的令人嫌弃的家伙了。
+你已经是大学生了，可以走自己的路了<img src="https://static.saraba1st.com/image/smiley/carton2017/130.png" referrerpolicy="no-referrer">
+

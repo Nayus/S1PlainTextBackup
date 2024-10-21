@@ -478,3 +478,22 @@ XB1是指机神界那位？那个感觉是纯纯不说人话导致的
 
 说起来霍肯伯格还有个朱娜粉丝的设定，结果除了初见，后面基本没提起过这茬了
 
+
+*****
+
+####  modkingr  
+##### 3004#       发表于 2024-10-21 22:04
+
+开宝箱的特效也太瞎眼了亮得我眼睛痛。。现在开宝箱我都得闭眼开
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3005#       发表于 2024-10-21 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66509479&amp;ptid=2140224" target="_blank">ouyang菌 发表于 2024-10-21 21:35</a>
+说起来霍肯伯格还有个朱娜粉丝的设定，结果除了初见，后面基本没提起过这茬了 ...</blockquote>
+和狗哥狗弟撞属性了，只能让一让
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+

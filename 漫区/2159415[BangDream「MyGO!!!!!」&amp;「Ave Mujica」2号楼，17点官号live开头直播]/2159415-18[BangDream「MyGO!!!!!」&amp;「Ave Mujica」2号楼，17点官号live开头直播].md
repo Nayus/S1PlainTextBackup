@@ -1805,3 +1805,14 @@ ep9结尾闹成那样也没几个人觉得灯自怨自艾是爱音离开和爽�
 
 隔壁来的问一下对邦的电子票可以转让吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives10  
+##### 25324#       发表于 2024-10-21 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66507858&amp;ptid=2159415" target="_blank">集合酱 发表于 2024-10-21 17:54</a>
+隔壁来的问一下对邦的电子票可以转让吗</blockquote>
+是狗刺对邦还是鸡狗对邦啊
+都可以转的 但狗刺的场太小了 估计要加价很多
+

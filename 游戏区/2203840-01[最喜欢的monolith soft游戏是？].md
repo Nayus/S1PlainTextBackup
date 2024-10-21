@@ -614,3 +614,11 @@ xb2虽然要挑毛病能挑很多，但确实有加成，演出好故事完整�
 
 这次是第几次投票了，无论来多少次必然还是xb2<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  richardkisser  
+##### 60#       发表于 2024-10-21 18:09
+
+三部xb都很喜欢，所以投的天灾，希望mono的新游可以做现代风的
+

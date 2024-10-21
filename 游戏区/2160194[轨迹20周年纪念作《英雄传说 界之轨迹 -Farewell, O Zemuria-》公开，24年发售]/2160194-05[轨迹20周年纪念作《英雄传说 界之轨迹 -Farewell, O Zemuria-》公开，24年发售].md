@@ -7884,3 +7884,21 @@ Q:你提到黎恩在界軌裡有多酷，會擔心帶回你心愛的角色，會
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">女仆那个分身有啥用来着，平常她cp没机会用这招
 
+
+*****
+
+####  妄想中毒  
+##### 6652#       发表于 2024-10-21 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66506218&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-10-21 14:42</a>
+女仆那个分身有啥用来着，平常她cp没机会用这招</blockquote>
+我第二部快打完了从来没用过女仆，范恩线常驻队员菜刀好用点的就师傅，法师没好用的，学妹和卡特尔链子不行魔法输出比其他几个法师要差不少
+
+
+*****
+
+####  jacket  
+##### 6653#       发表于 2024-10-21 18:15
+
+女仆出勤率99.9%，常驻法师没跑，所有魔攻药都可以喂她
+

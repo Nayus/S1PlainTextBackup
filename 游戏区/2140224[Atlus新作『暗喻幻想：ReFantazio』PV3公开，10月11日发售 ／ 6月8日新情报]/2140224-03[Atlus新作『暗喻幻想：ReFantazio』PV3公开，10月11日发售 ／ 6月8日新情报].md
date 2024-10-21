@@ -349,3 +349,28 @@ XB1是指机神界那位？那个感觉是纯纯不说人话导致的
 
 2024-10-21 19:34 上传
 
+
+*****
+
+####  蟹粉小笼  
+##### 2994#       发表于 2024-10-21 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66508521&amp;ptid=2140224" target="_blank">windtrack 发表于 2024-10-21 19:26</a>
+不是，甜甜圈是解不安状态的道具，后面那个是给敌人上异常的装备
+
+简而言之基本都没用</blockquote>
+好的谢谢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  windtrack  
+##### 2995#       发表于 2024-10-21 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66508563&amp;ptid=2140224" target="_blank">bwsusaga 发表于 2024-10-21 19:32</a>
+
+红发吃货女做DLC角色进过树3？</blockquote>
+树X额外人物形象DLC
+

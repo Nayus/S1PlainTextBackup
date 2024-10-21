@@ -1039,3 +1039,16 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 7层进8层必经之路上的毒沼泽也太讨厌了每次都要踩一遍，就没有什么免疫技能吗 ...</blockquote>
 赶紧去8F把几个浮游石开了，7F就会出现新道路绕过毒沼泽
 
+
+*****
+
+####  浅草若旦那  
+##### 144#       发表于 2024-10-21 08:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66499403&amp;ptid=2156352" target="_blank">elven119 发表于 2024-10-20 18:20</a>
+没有，每个角色都是独立计算的
+
+刷那玩意儿很容易腻，我相信不是所有人都能坚持刷3万经验 ...</blockquote>
+刷到三万了其实也才15级，进三层的哥布林洞照样被秒杀<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+是不是应该买商店几千的银武器，抽出来的破铜烂铁要强化吗
+

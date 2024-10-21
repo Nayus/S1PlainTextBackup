@@ -1196,3 +1196,13 @@ ex阶都比常规职阶多了。真不如再起一排
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">我蔓呢！后悔去抽奥宝2号机还没抽到了！
 
+
+*****
+
+####  サイトヒメア  
+##### 15033#       发表于 2024-10-21 15:13
+
+奏三还没打完，好像快结束了的样子<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

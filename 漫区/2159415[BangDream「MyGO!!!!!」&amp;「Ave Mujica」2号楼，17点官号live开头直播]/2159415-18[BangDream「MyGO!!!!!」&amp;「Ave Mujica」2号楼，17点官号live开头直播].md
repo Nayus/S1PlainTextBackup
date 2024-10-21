@@ -1644,3 +1644,13 @@ s1巨魔的命也是命<img src="https://static.saraba1st.com/image/smiley/face2
 
 我几个月前才看的 十三集后是为什么骂的更厉害了 不是漏了一点原因吗
 
+
+*****
+
+####  御幸一也  
+##### 25309#       发表于 2024-10-21 15:11
+
+13話之後罵的更厲害，估計是因為那半集LIVE吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+就我個人感覺，是直到完結後的監督訪談/綾奈訪談，風評才開始逐漸好轉有呼吸權了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+

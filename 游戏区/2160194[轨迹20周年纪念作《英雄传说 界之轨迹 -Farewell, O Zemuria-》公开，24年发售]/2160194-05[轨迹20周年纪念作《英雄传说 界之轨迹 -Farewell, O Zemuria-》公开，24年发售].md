@@ -7958,3 +7958,15 @@ Q:你提到黎恩在界軌裡有多酷，會擔心帶回你心愛的角色，會
 
 我记着以前钓鱼也就中期一个一个给……这作是都这么大方吗，这精神2*3搞得我想先多钓几条鱼再走了
 
+
+*****
+
+####  隔壁老黄  
+##### 6660#       发表于 2024-10-22 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66507994&amp;ptid=2160194" target="_blank">妄想中毒 发表于 2024-10-21 18:10</a>
+我第二部快打完了从来没用过女仆，范恩线常驻队员菜刀好用点的就师傅，法师没好用的，学妹和卡特尔链子不 ...</blockquote>
+两个最强法师都在事务所，一个是女演员，一个是玲
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

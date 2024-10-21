@@ -2154,3 +2154,11 @@ mygo的基调注定让角色多多少少都会有争议行为，能看得出来�
 
 和柿本的问题只能说事已至此<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 25349#       发表于 2024-10-22 00:08
+
+从新加坡先行放映那张图上就可以看出祥子是绝对核心主角，而mujica也是祥子最后的赌注了，这次炸了祥子就没退路了，所以祥子在剧里八成是拉人的那个人
+

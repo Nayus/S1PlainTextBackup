@@ -15302,3 +15302,18 @@ Bgm整体还是很好，最喜欢的是偷袭的战斗bgm和铠战车选好目�
 
 不过就看这游戏后期的模样，就知道，看看远方的加强版吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fireadol  
+##### 2925#       发表于 2024-10-21 10:10
+
+富登这段就像还没进狮童殿堂呢，狮童直接被丸喜干死了，然后明智跳出来说坏事都是我干的，怪盗团来沈阳大街跟我单挑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  weige  
+##### 2926#       发表于 2024-10-21 10:11
+
+能上场就话4个人，真不知道后期狗子加进来有啥意义
+

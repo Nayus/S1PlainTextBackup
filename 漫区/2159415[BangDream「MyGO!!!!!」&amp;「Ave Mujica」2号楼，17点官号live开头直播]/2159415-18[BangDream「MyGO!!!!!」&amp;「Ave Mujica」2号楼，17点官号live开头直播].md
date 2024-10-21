@@ -2172,3 +2172,11 @@ mygo的基调注定让角色多多少少都会有争议行为，能看得出来�
 
 就好像要是卖狗的人都不关心爽女士怎么样那这队组的起来吗
 
+
+*****
+
+####  PDQ4  
+##### 25351#       发表于 2024-10-22 01:32
+
+看漏油说不kirakira像上班，想起来去年有种经典话术，就是把退队类比成项目负责人甩手跑路了，唉，不负责<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

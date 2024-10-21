@@ -606,3 +606,11 @@ xb2虽然要挑毛病能挑很多，但确实有加成，演出好故事完整�
 
 第一次知道交叉领域计划居然是mono做得。实际挺有意思的，可惜10来年了，没有任何续作的消息。
 
+
+*****
+
+####  AOJ7566  
+##### 59#       发表于 2024-10-21 18:05
+
+这次是第几次投票了，无论来多少次必然还是xb2<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

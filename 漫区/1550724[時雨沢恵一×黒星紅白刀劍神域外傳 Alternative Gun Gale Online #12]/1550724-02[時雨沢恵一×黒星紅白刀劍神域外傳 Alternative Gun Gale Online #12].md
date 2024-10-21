@@ -186,3 +186,26 @@ S她上一次被P背刺灭队了，所以这次看到C也玩背刺就忍不住�
 神崎艾莎live也脱了鞋子
 <img src="https://p.sda1.dev/19/e25dd728d7d419f2b29aa91f5dc497ce/CMP_20241021154002162.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Toby_dak  
+##### 1934#       发表于 2024-10-21 17:47
+
+不知道SAO里的GGO有没有设定，这类似吃鸡毒圈和类似塔科夫的枪械改造是与时俱进新加的？
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  oi99o  
+##### 1935#       发表于 2024-10-21 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66507800&amp;ptid=1550724" target="_blank">Toby_dak 发表于 2024-10-21 17:47</a>
+不知道SAO里的GGO有没有设定，这类似吃鸡毒圈和类似塔科夫的枪械改造是与时俱进新加的？
+
+----发送自 Sony  ...</blockquote>
+原作是16年写的，比塔科夫和吃鸡都早。另外ggo设定上本质也是mmorpg，就相当于把sao的刀剑换成枪械。sao都能自己锻造武器，ggo的改装武器就更是小儿科了。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

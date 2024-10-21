@@ -15595,3 +15595,16 @@ P系列的BOSS能明显看出是有设计的，你这人类的造型和游戏主
 
 只能说当时看铁血以为是某个staff傻 逼，现在看上以日本这一代的staff的政治素养能想出这种剧情已经是极限了<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fireadol  
+##### 2950#       发表于 2024-10-21 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66505895&amp;ptid=2140224" target="_blank">毛利提督 发表于 2024-10-21 13:58</a>
+
+辩经和破防纯粹是编剧知道再写下去主角团嘴炮破不了防，自己又不知道怎么办，所以强行让路易破防了事
+
+当然 ...</blockquote>
+是富登不是巴登啊，巴登老实人的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

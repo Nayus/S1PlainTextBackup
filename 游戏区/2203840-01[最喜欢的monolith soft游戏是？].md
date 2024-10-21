@@ -565,3 +565,18 @@ xb2虽然要挑毛病能挑很多，但确实有加成，演出好故事完整�
 
 我真的好喜欢og saga 啊，希望能打包丢上来NS
 
+
+*****
+
+####  faithlifer  
+##### 54#       发表于 2024-10-21 14:21
+
+那肯定是XB2了，白月光<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alex2092  
+##### 55#       发表于 2024-10-21 14:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">选异度X,因为还没玩过,没玩过的游戏最好玩
+

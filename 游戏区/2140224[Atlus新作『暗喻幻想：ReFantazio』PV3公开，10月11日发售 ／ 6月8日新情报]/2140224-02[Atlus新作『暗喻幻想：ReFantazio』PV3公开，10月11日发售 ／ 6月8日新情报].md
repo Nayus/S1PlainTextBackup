@@ -15510,3 +15510,17 @@ P系列的BOSS能明显看出是有设计的，你这人类的造型和游戏主
 刺杀老国王搞得人尽皆知，第一次被刺杀如果不是老国 ...</blockquote>
 拿到权杖后依旧菜逼，最后看到主角复活居然自己绷不住变成人类，他这算不算是自己淘汰自己？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2945#       发表于 2024-10-21 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66502671&amp;ptid=2140224" target="_blank">NEIN 发表于 2024-10-21 01:55</a>
+最后三塔只接到2个塔的任务？正常吗
+
+—— 来自 鹅球 v3.1.88.3</blockquote>
+第一个塔接任务以后，直接去海岛酒馆就能买情报
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+

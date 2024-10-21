@@ -15337,3 +15337,11 @@ Bgm整体还是很好，最喜欢的是偷袭的战斗bgm和铠战车选好目�
 
 打到大头娃娃san值掉光了，哪个大头娃娃也太恐怖了，之前及格人类也有特别恶心的
 
+
+*****
+
+####  fireadol  
+##### 2929#       发表于 2024-10-21 10:27
+
+道具不能批量使用也挺逆天的，刷全职业用英雄光叶能把手都按断<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

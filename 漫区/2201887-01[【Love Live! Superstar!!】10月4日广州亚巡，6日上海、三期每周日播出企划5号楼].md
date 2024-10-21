@@ -2938,3 +2938,15 @@ s2e11的时候小千和四季也有过对话就强调过四季的性格比较丧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 279#       发表于 2024-10-21 08:17
+
+有人认领了设计啊。
+
+四季还喜欢锹形虫怎么没放进去（）
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

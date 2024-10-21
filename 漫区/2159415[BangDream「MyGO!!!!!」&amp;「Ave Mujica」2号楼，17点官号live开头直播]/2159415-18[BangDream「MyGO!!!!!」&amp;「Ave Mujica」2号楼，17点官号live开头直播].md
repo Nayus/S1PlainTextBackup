@@ -1504,3 +1504,13 @@ https://x.com/ushio0104/status/1847928771476889842?s=46&amp;t=IZGx0N13SOtHALpwG0
 
 真的禁的了吗，感觉不想看剧透的人真得退所有社区才能避免<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 25299#       发表于 2024-10-21 08:24
+
+最近已经开始看到不止一个自称舅舅的人了，按春季做完+送审几个月来算也确实是差不多这个时间点有内部人士看完全片
+
+不想让剧透影响观感的话新楼最好还是强调一下
+

@@ -74,3 +74,39 @@
 
 —— 来自 Lenovo TB-J716F, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  JSWILL  
+##### 3413#       发表于 2024-10-20 17:43
+
+大吉这也太难蚌了，影逝二度<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  龙娘777  
+##### 3414#       发表于 2024-10-20 18:39
+
+恋爱中的女人智商真低 当然也有可能是本身就低<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小零360  
+##### 3415#       发表于 2024-10-21 01:03
+
+ 本帖最后由 小零360 于 2024-10-21 01:04 编辑 
+
+<img src="https://p.sda1.dev/19/f670a505b76b43dcb0fb7a45e0bd850d/CMP_20241021010358328.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Lenovo TB-J716F, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  月白天青  
+##### 3416#       发表于 2024-10-21 12:55
+
+正常的，当套皮人就是个工作而已。可能这项目的原罪就是心比天高命比纸薄，招的人也是这样的。让她们像抽象人一样在网络粪坑里打滚不能长久。但是这项目，甚至这些人本身又不具备真的推出一个偶像组合的能力。
+至于各种搞笑的死了又死，其实就是当个工作而已，觉得干不下去一辞了之，这是这工作比较麻烦，辞职还得搞次直播想点说辞。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

@@ -2180,3 +2180,15 @@ mygo的基调注定让角色多多少少都会有争议行为，能看得出来�
 
 看漏油说不kirakira像上班，想起来去年有种经典话术，就是把退队类比成项目负责人甩手跑路了，唉，不负责<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rinku  
+##### 25352#       发表于 2024-10-22 02:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66509780&amp;ptid=2159415" target="_blank">kojima34 发表于 2024-10-21 22:16</a>
+对于高松灯的情节，高松灯在动画里有被明确表示出唱功不够需要加强练习的描写吗？如果没有，那这个指责确 ...</blockquote>
+其实我第一次看第三集一直以为祥子是在说灯在第一次live后一直没练习唱歌这事
+整个过程我感觉就是c团live成功-&gt;看到黑评同时祥子变脸以为自己唱的不好-&gt;退团当天-&gt;从灯的笔记看确实这段时间都没练-&gt;立希说在等祥子-&gt;祥子说没我也能练-&gt;灯说祥子不再就不行-&gt;祥子爆发说别任性你最应该多练习，这几天都干什么去了-&gt;灯加深了对祥子以为自己唱的不好的误会
+在我看来祥子视角是不知道灯以为自己唱的不好这件事的，关注的重点并不是灯唱的不好而是没自己就不练习。
+

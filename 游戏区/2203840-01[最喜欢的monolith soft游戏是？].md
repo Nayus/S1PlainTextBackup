@@ -588,3 +588,13 @@ xb2虽然要挑毛病能挑很多，但确实有加成，演出好故事完整�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">结果坛游是XB系列里票数最低的
 
+
+*****
+
+####  ppa11  
+##### 57#       发表于 2024-10-21 17:42
+
+异度装甲是个屁的monolith soft游戏，血统纯正的Square游戏<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 來自 [鵝球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

@@ -115,3 +115,11 @@ shuma四代时能成为第二个灭龙吧
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  罗克萨斯  
+##### 5504#       发表于 2024-10-21 20:43
+
+抄得这么明目张胆，估计是觉得喷喷玩家和米游玩家没有任何交集<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

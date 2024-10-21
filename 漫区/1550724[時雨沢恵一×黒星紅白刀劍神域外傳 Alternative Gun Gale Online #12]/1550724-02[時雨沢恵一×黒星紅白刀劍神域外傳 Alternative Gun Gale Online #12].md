@@ -209,3 +209,31 @@ S她上一次被P背刺灭队了，所以这次看到C也玩背刺就忍不住�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  wingzerocos  
+##### 1936#       发表于 2024-10-21 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66507800&amp;ptid=1550724" target="_blank">Toby_dak 发表于 2024-10-21 17:47</a>
+
+不知道SAO里的GGO有没有设定，这类似吃鸡毒圈和类似塔科夫的枪械改造是与时俱进新加的？
+
+----发送自 Sony  ...</blockquote>
+毒圈看剧中角色的表现来看不是常见玩法，就是“主办”看上一届有人苟赢了加的规则。
+
+不知道时雨泽看到半年后吃鸡火了是个什么感受。
+
+*****
+
+####  stevenzero  
+##### 1937#       发表于 2024-10-21 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66496446&amp;ptid=1550724" target="_blank">mhss 发表于 2024-10-20 10:36</a>
+工具人集体下线
+
+两杂鱼面对冲脸的狙击手一枪不中实在太典了</blockquote>
+这游戏心跳会影响缩圈，心态乱了确实会这样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

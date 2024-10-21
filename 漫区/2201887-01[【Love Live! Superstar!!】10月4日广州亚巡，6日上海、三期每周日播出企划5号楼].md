@@ -2992,3 +2992,23 @@ s2e11的时候小千和四季也有过对话就强调过四季的性格比较丧
 
 可的话，咋说呢，看看隔壁的岚珠吧，其实待遇好也就岚珠那种级别到顶了，说到底还是有点边缘化。
 
+
+*****
+
+####  ViyViy  
+##### 284#       发表于 2024-10-21 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66504327&amp;ptid=2201887" target="_blank">ads147147 发表于 2024-10-21 10:48</a>
+
+还等着始空呢，肯定有始空的位置吧，三年了不会就只有你不唱出道单曲吧。
+
+可的话，咋说呢，看看隔壁的岚珠 ...</blockquote>
+始空2024.ver改可C也不是不行，就说TMD没我你香音怎么站起来吧！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我的模因里此事企划好像有记载 
+
+*****
+
+####  evestart  
+##### 285#       发表于 2024-10-21 11:01
+
+狼蛛姐的待遇挺好的，这次虹咲剧场版听说大加强，希望可可也能再续高光
+

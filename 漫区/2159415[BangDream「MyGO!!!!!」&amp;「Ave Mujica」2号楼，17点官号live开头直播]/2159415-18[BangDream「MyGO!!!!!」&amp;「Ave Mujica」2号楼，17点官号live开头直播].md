@@ -1882,3 +1882,16 @@ ep9结尾闹成那样也没几个人觉得灯自怨自艾是爱音离开和爽�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  adcdqre  
+##### 25329#       发表于 2024-10-21 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66508910&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-10-21 20:19:12</a>
+这是另一回事
+
+大部分非要让祥子求饶道歉的人基本话术之一就是祥子退出crychic当日对灯态度很差，无法原 ...</blockquote>不值什么见到祥子第一句话上来就推卸责任给队友这话越重视乐队的人听了越来气，而且春日影你没干？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

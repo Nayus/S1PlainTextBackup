@@ -15061,3 +15061,23 @@ Bgm整体还是很好，最喜欢的是偷袭的战斗bgm和铠战车选好目�
 
 要说铺垫太少是肯定的，这游戏细节上欠打磨的地方不少。他在意的人只有路易一个，说白了就是，上层都知道是路易动手杀了老王，但王之魔法加持没办法制裁。不然按照正常道理，清理弑君者自古以来都是名正言顺。老登就是着急了点，看到长枪在手觉得这下可以正义制裁了，结果反向被终结
 
+
+*****
+
+####  conanoysq  
+##### 2904#       发表于 2024-10-21 08:51
+
+60小时打完了，最接受不了的是音乐平庸到了极点，当初因为战斗曲和后期战车曲这种铺面而来的异世界风格预购了游戏，结果就这两首合胃口，其他都没有留下任何印象，太失望了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  fireadol  
+##### 2905#       发表于 2024-10-21 08:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66503280&amp;ptid=2140224" target="_blank">星野航 发表于 2024-10-21 08:47</a>
+
+这故事不就明摆着告诉你圣教不是个好东西么
+
+老登一出来看似伟光正，结果他手下那个僧兵队长吉多一眼草鸡 ...</blockquote>
+谁都知道圣教不是好东西，但富登根本看不出什么能力能把国王架空，狮童就够蠢的了，富登更是破产版狮童，连这种小丑都干不过更让人觉得上一代的国王是个废物<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

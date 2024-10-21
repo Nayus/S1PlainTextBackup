@@ -3028,3 +3028,16 @@ s2e11的时候小千和四季也有过对话就强调过四季的性格比较丧
 
 <img src="https://p.sda1.dev/19/96639a49519723ca98355cf3b3a8be0d/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  离心  
+##### 288#       发表于 2024-10-21 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66504327&amp;ptid=2201887" target="_blank">ads147147 发表于 2024-10-21 10:48</a>
+
+还等着始空呢，肯定有始空的位置吧，三年了不会就只有你不唱出道单曲吧。
+
+可的话，咋说呢，看看隔壁的岚珠 ...</blockquote>
+三年级都要毕业了唱始空也太地狱笑话了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

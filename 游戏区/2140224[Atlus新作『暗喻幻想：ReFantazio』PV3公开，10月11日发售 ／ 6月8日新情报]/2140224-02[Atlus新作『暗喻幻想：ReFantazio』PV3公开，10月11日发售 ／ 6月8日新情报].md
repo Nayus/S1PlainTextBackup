@@ -15649,3 +15649,22 @@ P系列的BOSS能明显看出是有设计的，你这人类的造型和游戏主
 
 我懂了 爱尔达人全村的性命都算到这俩头上了
 
+
+*****
+
+####  一护饭团  
+##### 2955#       发表于 2024-10-21 14:48
+
+大家有没有发现第二场竞技赛的神器就是 p5 的那些秘宝啊，看到猪存钱罐，机器人和大圣杯，直接笑出来了
+
+
+*****
+
+####  变老的大二  
+##### 2956#       发表于 2024-10-21 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66506256&amp;ptid=2140224" target="_blank">一护饭团 发表于 2024-10-21 14:48</a>
+
+大家有没有发现第二场竞技赛的神器就是 p5 的那些秘宝啊，看到猪存钱罐，机器人和大圣杯，直接笑出来了 ...</blockquote>
+恶魔召唤师这个职业里面也全是女神的老熟人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

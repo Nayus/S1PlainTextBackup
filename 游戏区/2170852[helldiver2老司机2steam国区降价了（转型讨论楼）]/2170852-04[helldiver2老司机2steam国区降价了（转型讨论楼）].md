@@ -778,3 +778,37 @@ he并不好用，没破片没子炸弹纯加一个范围爆炸，效果感觉不
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Jabeck  
+##### 5503#       发表于 2024-10-19 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66483080&amp;ptid=2170852" target="_blank">normalli 发表于 2024-10-18 16:05</a>
+
+回归玩了几把，总的来说武器集体强化一个级别，原本很难对付的敌人现在也有信心了，但代价就是现在重甲敌人 ...</blockquote>
+有重甲模版和小怪模版，重甲模版的应该重甲才多。
+
+*****
+
+####  FLZB  
+##### 5504#       发表于 2024-10-20 18:42
+
+打了两把机器人升旗着实离谱，往点里一站坦克无畏移动工厂直接下饺子，这不把红战备和反重拉满根本顶不住。另外机器人精度整体上感觉没原来准了，但还是避免不了神经枪，被无畏火箭弹炸飞再接一发空摘，我人都傻了，不知道还以为玩Quake呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  风萧飒  
+##### 5505#       发表于 2024-10-20 19:29
+
+等空间站建完丢个核弹机器人全得死<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  xinfengj  
+##### 5506#       发表于 2024-10-21 10:18
+
+打喷气旅用燃烧轨道有奇效啊，喷气旅有大量的小杂兵，一个轨道燃烧下去猛猛刷击杀数
+

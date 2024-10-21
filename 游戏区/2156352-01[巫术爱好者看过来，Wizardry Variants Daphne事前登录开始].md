@@ -1106,3 +1106,13 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 2周目2层还是先打一只过剧情比较好，后面有实力了再回来挑战</blockquote>
 打一只会死NPC吗？
 
+
+*****
+
+####  whfnet  
+##### 150#       发表于 2024-10-21 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66503873&amp;ptid=2156352" target="_blank">elven119 发表于 2024-10-21 09:59</a>
+ 打一只会死NPC吗？</blockquote>
+2f这个好像没有死亡相关剧情，主要说是4层就有任意跳跃时间能力了
+

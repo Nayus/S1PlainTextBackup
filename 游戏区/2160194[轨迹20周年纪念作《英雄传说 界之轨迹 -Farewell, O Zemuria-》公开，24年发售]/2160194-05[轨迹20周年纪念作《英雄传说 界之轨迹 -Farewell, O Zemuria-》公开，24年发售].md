@@ -7970,3 +7970,12 @@ Q:你提到黎恩在界軌裡有多酷，會擔心帶回你心愛的角色，會
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  冰寒之月  
+##### 6661#       发表于 2024-10-22 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66510110&amp;ptid=2160194" target="_blank">flxgundam 发表于 2024-10-21 23:07</a></blockquote>
+黎一好像也有这个种苦番茄的人物剧情
+

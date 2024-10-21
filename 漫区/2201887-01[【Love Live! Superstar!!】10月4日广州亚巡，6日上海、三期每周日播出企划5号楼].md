@@ -3070,3 +3070,20 @@ s2e11的时候小千和四季也有过对话就强调过四季的性格比较丧
 『ラブライブ！スーパースター!!3期』3話に登場する『Special Color』の衣装をデザインさせて頂きました🤍プリズムをイメージした三角形と四季ちゃんの好きな蝶のモチーフをあしらった衣装です。
 <img src="https://p.sda1.dev/19/d3ec607270b53fb82b916569195e4eb2/20241021_221856.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViyViy  
+##### 291#       发表于 2024-10-22 00:27
+
+不行，这OP3真人穿我也不是很能接受。。。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  csolfans  
+##### 292#       发表于 2024-10-22 00:32
+
+<img src="https://p.sda1.dev/19/3ba28ab7b08270f08dd01018cf302823/CMP_20241022003148118.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

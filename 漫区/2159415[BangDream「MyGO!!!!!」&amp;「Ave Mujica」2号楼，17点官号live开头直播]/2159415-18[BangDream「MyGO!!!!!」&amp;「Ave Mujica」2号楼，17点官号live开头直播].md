@@ -1664,3 +1664,38 @@ s1巨魔的命也是命<img src="https://static.saraba1st.com/image/smiley/face2
 我几个月前才看的 十三集后是为什么骂的更厉害了 不是漏了一点原因吗</blockquote>
 因为祥子没向前crychic成员磕头认错，而有些人就想看她翻车吃瘪破防，非但没翻车还挺成功，不给看自然就骂上了。一些混二偶饭圈的，需要通过踩特定对象角色，或者拿角色当垫子来抬高自己，没祥子也会找别的角色踩<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 25311#       发表于 2024-10-21 15:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我印象很深还有说就算祥子家里人都死了也不能对人态度不好的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+很多人确实根本不在乎<strong>部分角色</strong>的行为逻辑和原因，毕竟早就是眼中钉肉中刺了
+
+可能是有一些铁了心想要“大反派”“翻车爆爆爆”好给其他<strong>部分角色</strong>道歉的潮流吧
+
+
+*****
+
+####  好想看Mujica啊  
+##### 25312#       发表于 2024-10-21 15:32
+
+还记得nga神论，祥子你只是被赶出大豪斯做客服养酒鬼老爹，立希可是要通宵写歌呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 25313#       发表于 2024-10-21 15:35
+
+13集之后黑的更厉害还有一个原因是 
+
+看完13集之后角色厨敢反驳一些尬黑言论了
+
+然后人家一看 居然有人敢支持反派
+
+那可不更要猛猛的打压你<img src="https://static.saraba1st.com/image/smiley/face/134.gif" referrerpolicy="no-referrer">
+

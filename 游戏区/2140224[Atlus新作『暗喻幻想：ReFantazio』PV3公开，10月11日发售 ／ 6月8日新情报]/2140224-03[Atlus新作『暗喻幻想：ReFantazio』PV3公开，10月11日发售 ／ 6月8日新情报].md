@@ -76,3 +76,24 @@ XB1是指机神界那位？那个感觉是纯纯不说人话导致的
 
 尤法是官配吗，为什么没有coop9和10<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AeonsTorn  
+##### 2969#       发表于 2024-10-21 15:32
+
+本社致敬要素很多吧，又是灵魂骇客又是恶魔召唤师又是persona master的，粉毛叫凯瑟琳娜不知道是不是也是致敬
+
+*****
+
+####  NEIN  
+##### 2970#       发表于 2024-10-21 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66506404&amp;ptid=2140224" target="_blank">星野航 发表于 2024-10-21 15:09</a>
+我猜就是定位成树0了吧w
+
+不然艾托利亚那段就过于玩梗了，你艾丁这脑瓜子是怎么想出来就叫这名字的呢。这 ...</blockquote>
+剧情里说了龙神名字是艾托，所以叫艾托利亚
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

@@ -1196,3 +1196,13 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 是，退回前一个剧情点。毫无意义的设计。还不如净身踢回城呢。所以现在陷入反复死去活来卡在四楼的尴尬境 ...</blockquote>
 嗯，确实挺蠢的，不如直接踢回老家
 
+
+*****
+
+####  warerest  
+##### 160#       发表于 2024-10-21 11:49
+
+这是不是在逼人买付费钩子（不知道付费钩子买了是不是直接在人物身上）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

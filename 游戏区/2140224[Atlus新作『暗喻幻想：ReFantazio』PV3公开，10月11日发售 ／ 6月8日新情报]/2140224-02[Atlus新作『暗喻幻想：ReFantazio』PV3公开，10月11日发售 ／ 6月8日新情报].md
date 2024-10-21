@@ -15475,3 +15475,25 @@ P系列的BOSS能明显看出是有设计的，你这人类的造型和游戏主
 哦对了，主角狙击那次也是打中路易了，这么看路易命跟主角差不多硬了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么叫爱尔达天命啊，这就是
 
+
+*****
+
+####  星野航  
+##### 2942#       发表于 2024-10-21 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66504425&amp;ptid=2140224" target="_blank">半江瑟瑟半江红 发表于 2024-10-21 11:58</a>
+
+纽拉斯给的系列任务收集八个远古神器，说这是个大规模杀伤性武器，是不是暗指核弹？
+
+—— 来自 鹅球 v3.3. ...</blockquote>
+我猜是w
+
+*****
+
+####  NEIN  
+##### 2943#       发表于 2024-10-21 12:19
+
+路易那船真帅吧，过场还给了主炮特写，到主角杀伤手段就只有爆弹桶g用，真的很愤怒了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

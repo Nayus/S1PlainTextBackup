@@ -1242,3 +1242,16 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 制作组的慈悲！
 
+
+*****
+
+####  nukejoker  
+##### 164#       发表于 2024-10-21 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66504922&amp;ptid=2156352" target="_blank">warerest 发表于 2024-10-21 11:54</a>
+
+那个bondmates有办法解绑吗？手贱乱选了，两个bonmate绑的人都不对
+
+—— 来自 鹅球 v3.1.88.3-alpha ...</blockquote>
+公会点数兑换物里有个忘却的香，貌似可以解绑。
+

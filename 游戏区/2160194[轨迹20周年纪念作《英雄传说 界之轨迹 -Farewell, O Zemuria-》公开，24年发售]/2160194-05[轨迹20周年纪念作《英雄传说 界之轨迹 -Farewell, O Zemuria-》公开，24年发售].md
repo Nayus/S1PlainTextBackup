@@ -7876,3 +7876,11 @@ Q:你提到黎恩在界軌裡有多酷，會擔心帶回你心愛的角色，會
 
 葱头线最终boss还得看运气，运气不好抽到对方先行动，素质四连就直接躺了。
 
+
+*****
+
+####  洛克萨斯  
+##### 6651#       发表于 2024-10-21 14:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">女仆那个分身有啥用来着，平常她cp没机会用这招
+

@@ -3025,3 +3025,13 @@ mihon已经显示废弃了</blockquote>
 
 有个别插件（漫画柜）总是无法成功安装，可能是什么问题啊？
 
+
+*****
+
+####  frosta  
+##### 280#       发表于 2024-10-21 13:46
+
+借楼请问ios有方便看漫画柜的app么，搜到个tachimanga但是看起来没有漫画柜插件
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

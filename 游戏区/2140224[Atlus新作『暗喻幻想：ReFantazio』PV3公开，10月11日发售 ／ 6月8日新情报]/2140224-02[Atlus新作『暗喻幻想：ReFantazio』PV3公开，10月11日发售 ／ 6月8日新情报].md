@@ -14976,3 +14976,13 @@ Bgm整体还是很好，最喜欢的是偷袭的战斗bgm和铠战车选好目�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
 
+
+*****
+
+####  fireadol  
+##### 2897#       发表于 2024-10-21 08:31
+
+从拿到龙神长枪开始剧情就开始狂飙了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+路易也挺搞的，还以为他没死应该是用了什么办法，比如在龙神长枪是他故意丢在那的，结果没想到没有准备全凭命硬，编剧说我不能死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后就开始精神病一样狂杀，简直就像看主角这边还差个帕里帕斯凑够八种族就强行把手下送过去，描述魔武双修实力强大完全没感受到压迫感，装的像个吕布项羽这种天下无双的霸王但每次跟主角决斗都被打趴下，然后就用些见不得人的小手段强行扳回来
+

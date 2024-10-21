@@ -15345,3 +15345,59 @@ Bgm整体还是很好，最喜欢的是偷袭的战斗bgm和铠战车选好目�
 
 道具不能批量使用也挺逆天的，刷全职业用英雄光叶能把手都按断<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NEIN  
+##### 2930#       发表于 2024-10-21 10:37
+
+光叶上限99也有点不行，好几次忘了用溢出了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2931#       发表于 2024-10-21 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66504030&amp;ptid=2140224" target="_blank">里恩 发表于 2024-10-21 10:17</a>
+也不知道是该夸还是喷，这次的怪物设计真的有多少大病，SAN值一直在掉
+
+从菊花出去都要来个特写，不肯黑屏 ...</blockquote>
+之前刷到个视频，说这次boss设计是致敬文艺复兴时期什么手稿的，没来及的看刷掉了，再想看就找不到了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2932#       发表于 2024-10-21 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66503927&amp;ptid=2140224" target="_blank">fireadol 发表于 2024-10-21 10:04</a>
+但是个人认为富登作为圣教的代表再怎么也该安排一段剧情，迷宫跟BOSS战的，而且作为故事起源的的幕后黑手 ...</blockquote>
+蕾拉都一笔带过了，何况福登
+这游戏除了画面像八年前的以外，别的地方真不像开发了八年，更像开发了八个月
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+
+*****
+
+####  mai6696  
+##### 2933#       发表于 2024-10-21 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66504260&amp;ptid=2140224" target="_blank">半江瑟瑟半江红 发表于 2024-10-21 10:41</a>
+
+之前刷到个视频，说这次boss设计是致敬文艺复兴时期什么手稿的，没来及的看刷掉了，再想看就找不到了
+
+— ...</blockquote>
+人间乐园
+
+<img src="https://img.saraba1st.com/forum/202410/21/104548nr082sfr60z2s82x.jpg" referrerpolicy="no-referrer">
+
+<strong>El_jardin_de_las_Delicias_de_El_Bosco.jpg</strong> (233.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-21 10:45 上传
+

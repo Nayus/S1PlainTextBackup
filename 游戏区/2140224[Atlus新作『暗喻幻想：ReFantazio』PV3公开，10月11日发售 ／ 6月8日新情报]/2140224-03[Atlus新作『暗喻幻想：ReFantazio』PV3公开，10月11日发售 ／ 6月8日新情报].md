@@ -41,3 +41,38 @@
 
 而且这整个迷宫是少数带有大量可跳过要素的。按流程走和不按流程走是两个难度的。
 
+
+*****
+
+####  SuNR1sE364  
+##### 2965#       发表于 2024-10-21 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66506360&amp;ptid=2140224" target="_blank">ouyang菌 发表于 2024-10-21 15:03</a>
+其实打完还是最好奇的是龙宫岛和神殿，名字，音乐，迷宫，剧情设定全都是照搬新树1的，但是又没看出来这么 ...</blockquote>
+纯粹的致敬而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  变老的大二  
+##### 2966#       发表于 2024-10-21 15:20
+
+主角在圆窗户上读书的姿势也在致敬牢理
+
+
+*****
+
+####  变老的大二  
+##### 2967#       发表于 2024-10-21 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66506408&amp;ptid=2140224" target="_blank">莉可厨 发表于 2024-10-21 15:10</a>
+
+话说蕾拉那段和xb1那段本质上好像差不了多少，但前者的风评明显好得多，不知道大家怎么看 ...</blockquote>
+XB1是指机神界那位？那个感觉是纯纯不说人话导致的
+
+*****
+
+####  卢迪克  
+##### 2968#       发表于 2024-10-21 15:23
+
+尤法是官配吗，为什么没有coop9和10<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+

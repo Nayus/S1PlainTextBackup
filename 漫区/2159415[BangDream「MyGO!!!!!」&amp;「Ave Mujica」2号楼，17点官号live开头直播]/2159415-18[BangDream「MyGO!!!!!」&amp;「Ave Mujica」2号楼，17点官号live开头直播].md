@@ -1654,3 +1654,13 @@ s1巨魔的命也是命<img src="https://static.saraba1st.com/image/smiley/face2
 
 就我個人感覺，是直到完結後的監督訪談/綾奈訪談，風評才開始逐漸好轉有呼吸權了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  66367749  
+##### 25310#       发表于 2024-10-21 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66506325&amp;ptid=2159415" target="_blank">哈曼的YY 发表于 2024-10-21 14:58</a>
+我几个月前才看的 十三集后是为什么骂的更厉害了 不是漏了一点原因吗</blockquote>
+因为祥子没向前crychic成员磕头认错，而有些人就想看她翻车吃瘪破防，非但没翻车还挺成功，不给看自然就骂上了。一些混二偶饭圈的，需要通过踩特定对象角色，或者拿角色当垫子来抬高自己，没祥子也会找别的角色踩<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

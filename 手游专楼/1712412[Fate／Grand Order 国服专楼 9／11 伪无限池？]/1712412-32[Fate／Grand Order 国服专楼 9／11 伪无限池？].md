@@ -24,3 +24,11 @@
 
 但是毕竟不能按理论抽卡
 
+
+*****
+
+####  麻花疼  
+##### 46753#       发表于 2024-10-22 06:47
+
+白纸本出了以后感觉天天像坐牢一样，必须打三把。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

@@ -15451,3 +15451,16 @@ P系列的BOSS能明显看出是有设计的，你这人类的造型和游戏主
 人间乐园</blockquote>
 那个蛋壳人类，剑风里也出现过。
 
+
+*****
+
+####  Khellendros  
+##### 2940#       发表于 2024-10-21 11:28
+
+ 本帖最后由 Khellendros 于 2024-10-21 11:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66504410&amp;ptid=2140224" target="_blank">fireadol 发表于 2024-10-21 10:56</a>
+
+哦对了，主角狙击那次也是打中路易了，这么看路易命跟主角差不多硬了</blockquote>
+决战前路易除了有艘大船完全体现不出他所谓的“实力”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+刺杀老国王搞得人尽皆知，第一次被刺杀如果不是老国王犯贱差点就成功了，第二次明知道有人想刺杀，一点准备都不做，能挺过去单纯是命硬，两场boss战也是水的不行
+

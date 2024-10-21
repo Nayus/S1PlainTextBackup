@@ -1558,3 +1558,22 @@ bangdream是2.5次元企划
 
 说了这么多就是为了给偷歌做铺垫呗，难怪狗屁不通
 
+
+*****
+
+####  相坂君  
+##### 25303#       发表于 2024-10-21 11:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">想说能不能不要直接搬shi……直接面对的精神伤害还是有点大了
+
+鸡线下团魂卖不停，闭眼不看鸡中之人各种说团内，也不看访谈
+
+既然这么掩耳盗铃也不愿意夹着尾巴都看不见，选择性看见想看的，满脑子只想着自己呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋狐  
+##### 25304#       发表于 2024-10-21 11:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">提到贴吧正好说个乐子：某素毒唯是mygo小吧，这两天终于被挖黑历史举办弄下去了，为什么专门提一嘴大概是因为此人行止过于符合漏油对“一些群体”的刻板印象吧
+

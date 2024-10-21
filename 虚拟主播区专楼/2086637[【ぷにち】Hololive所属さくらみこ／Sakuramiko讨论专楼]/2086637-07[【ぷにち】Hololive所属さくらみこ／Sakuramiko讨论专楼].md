@@ -13124,3 +13124,34 @@ MV制作团队感谢！
 
 今天ordan在活动最后一天去了展会，狂夸
 
+
+*****
+
+####  holoan  
+##### 9962#         楼主| 发表于 2024-10-21 11:18
+
+<img src="https://img.saraba1st.com/forum/202410/21/111801p8b59t58ubtya5y6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-21 11:18 上传
+
+今天看到有人抱怨，虽然是有点过激了但是怎么说呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 9963#         楼主| 发表于 2024-10-21 11:25
+
+<img src="https://img.saraba1st.com/forum/202410/21/112511jpqplrdpptbpd9eg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (16.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-21 11:25 上传
+
+MV的背景解读都延伸到什么地方了
+

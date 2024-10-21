@@ -3041,3 +3041,21 @@ s2e11的时候小千和四季也有过对话就强调过四季的性格比较丧
 可的话，咋说呢，看看隔壁的岚珠 ...</blockquote>
 三年级都要毕业了唱始空也太地狱笑话了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 289#       发表于 2024-10-21 15:01
+
+ 本帖最后由 ads147147 于 2024-10-21 15:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66506280&amp;ptid=2201887" target="_blank">离心 发表于 2024-10-21 14:51</a>
+
+三年级都要毕业了唱始空也太地狱笑话了唱交响曲和第一季做对应就不错了正好也是一单的歌没区别
+
+ ...</blockquote>
+哪里地狱了，香音去了维也纳，小千去当舞蹈进修，可可夺了两次冠军说不定还要回国传教，民警想去演艺圈、想继续当偶像都是可以，恋恋成功把自己母亲留下的学校打出招牌，大家都有光明的未来，凭什么不能唱始空<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+明明是前途一片光明，比tgtg和mygo还光明，和母鸡卡比可能要看看情况。
+
+当然私的交响乐我觉得比较不够催泪，按饺子大王花田的做法，肯定要玩钢琴起大家哭哭的，不哭怎么行。
+

@@ -1206,3 +1206,27 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  warerest  
+##### 161#       发表于 2024-10-21 11:54
+
+那个bondmates有办法解绑吗？手贱乱选了，两个bonmate绑的人都不对
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+*****
+
+####  nukejoker  
+##### 162#       发表于 2024-10-21 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66504881&amp;ptid=2156352" target="_blank">warerest 发表于 2024-10-21 11:49</a>
+
+这是不是在逼人买付费钩子（不知道付费钩子买了是不是直接在人物身上）
+
+—— 来自 鹅球 v3.1.88.3-alpha ...</blockquote>
+八成不在。日常拿了个勾子，以为柳暗花明了，一看包里没有。八成在仓库里。
+
+还好就4层，也还没来得及氪金。实在不行就重开吧。
+

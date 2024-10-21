@@ -29,3 +29,14 @@ ally 2代
 ally 1代</blockquote>
 没有2代
 
+
+*****
+
+####  requiem116  
+##### 1308#       发表于 2024-10-21 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66509363&amp;ptid=2086469" target="_blank">Falcomfans 发表于 2024-10-21 21:20</a>
+
+没有2代</blockquote>
+所以实际上是把ally X喊成了二代？
+

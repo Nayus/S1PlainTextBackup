@@ -40,3 +40,16 @@ ally 1代</blockquote>
 没有2代</blockquote>
 所以实际上是把ally X喊成了二代？
 
+
+*****
+
+####  卖哥  
+##### 1309#       发表于 2024-10-21 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66270547&amp;ptid=2086469" target="_blank">stevenzero 发表于 2024-9-22 10:50</a>
+
+求助，想去咸鱼淘个便宜垃圾跑跑ps3模拟器和独立游戏。
+
+现在有两个选择</blockquote>
+11代酷睿支持AVX512
+

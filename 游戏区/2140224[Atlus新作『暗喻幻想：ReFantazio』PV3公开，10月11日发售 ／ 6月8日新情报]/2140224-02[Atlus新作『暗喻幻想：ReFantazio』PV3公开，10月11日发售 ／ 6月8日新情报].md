@@ -15184,3 +15184,71 @@ Bgm整体还是很好，最喜欢的是偷袭的战斗bgm和铠战车选好目�
 
 所以 这8年到底是怎么做出了 这个要剧情 画面 内容体量 每一个让他满意的东西 ，目前看来也就 战斗和 养成稍微有点东西而已，其他真没啥好的评价，山都剧情 真是一路油门，一路拉稀，暗杀靠肉体硬抗破局 也没谁了 
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2916#       发表于 2024-10-21 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66503657&amp;ptid=2140224" target="_blank">fireadol 发表于 2024-10-21 09:34</a>
+佐尔巴跳出来那里也挺抽象，本来我脑补的是路易装死并且在掉下去的时候已经把枪掉包了，没想到他还真的差点 ...</blockquote>
+那段挺都合的
+那么大一把枪怎么说掉包就掉包，而且掉包以后的真货佐尔巴藏哪了才能有机会递给路易
+其实最开始佐尔巴兜帽遮脸开口时候我都没想到他就是第一章那个boss，我一直以为兜帽人是朱娜<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+
+
+*****
+
+####  Khellendros  
+##### 2917#       发表于 2024-10-21 09:42
+
+<blockquote>卡拉德利姆 发表于 2024-10-21 09:11
+其实罗格族也是没有天生的外部特征的，主要靠后天涂上的面纹和长寿做区分，但是长寿种族又不是没小孩……
+
+ ...</blockquote>
+
+罗格族都没啥剧情，重要角色只有保姆骑士和福登（女老板好像也是？），这俩连死法都一样太搞了
+
+*****
+
+####  mai6696  
+##### 2918#       发表于 2024-10-21 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66503226&amp;ptid=2140224" target="_blank">莉可厨 发表于 2024-10-21 08:38</a>
+
+话说主角这边是不是没有那个长寿族的成员，我怎么没印象……还有城里人是怎么一眼看出爱尔达的，主角的眼瞳 ...</blockquote>
+商人也是长寿族
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2919#       发表于 2024-10-21 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66503681&amp;ptid=2140224" target="_blank">忘却旋律 发表于 2024-10-21 09:37</a>
+所以 这8年到底是怎么做出了 这个要剧情 画面 内容体量 每一个让他满意的东西 ，目前看来也就 战斗和 养成 ...</blockquote>
+养成问题太大了
+前期给两个偏物理的队友，然后安排一堆物抗怪，玩家只能给主角加魔，结果后期主角大招是物理，并且流程中期开始一股脑给玩家塞进来两个偏法的队友
+这还没提部分阿基态解锁太晚这个问题
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+
+*****
+
+####  mai6696  
+##### 2920#       发表于 2024-10-21 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66503729&amp;ptid=2140224" target="_blank">半江瑟瑟半江红 发表于 2024-10-21 09:43</a>
+
+养成问题太大了
+
+前期给两个偏物理的队友，然后安排一堆物抗怪，玩家只能给主角加魔，结果后期主角大招是 ...</blockquote>
+我最烦的还是经验衰减，导致没有什么迷宫能爽刷。
+
+大额头和三眼都练不起职业，更别提狗子了。
+
+难道一定要最终迷宫才能放开了练？
+
+角色经验衰减就算了，为啥阿基态经验也跟着衰减。
+

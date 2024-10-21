@@ -487,3 +487,13 @@ xg？
 
 两作无限边境和xb1
 
+
+*****
+
+####  kyonkoism  
+##### 46#       发表于 2024-10-21 09:32
+
+很有意思的一个情况就是，楼内回复的截至目前只有2个提了xb2，而xb2的票数却一骑绝尘
+
+喜欢xb2的坛友投就完了，不需要发声和辩解，非常的GigaChad.gif<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

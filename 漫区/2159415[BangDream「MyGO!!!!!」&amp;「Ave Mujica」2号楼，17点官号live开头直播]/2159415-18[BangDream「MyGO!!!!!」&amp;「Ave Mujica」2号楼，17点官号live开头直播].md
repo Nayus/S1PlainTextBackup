@@ -1734,3 +1734,17 @@ s1巨魔的命也是命<img src="https://static.saraba1st.com/image/smiley/face2
 
 我逼站看的比较多 大部分不喜欢祥子的主要是不满她退队的时候嘴了一下灯 让灯一直自责
 
+
+*****
+
+####  芸香科植物激推  
+##### 25318#       发表于 2024-10-21 16:28
+
+祥子是说的有哪里不对吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+灯才是最需要练习的一个（真话，队友都比她稳）
+
+迄今为止你都在干什么？（在趴地上画画）
+
+可以说她态度冲，但这话属于正论吧？粉丝心疼是一回事，但大实话伤人那也是大实话啊
+

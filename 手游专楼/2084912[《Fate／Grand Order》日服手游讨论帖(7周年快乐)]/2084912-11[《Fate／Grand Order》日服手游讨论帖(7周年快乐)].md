@@ -1269,3 +1269,25 @@ ex阶都比常规职阶多了。真不如再起一排
 
 等会我试试学姐1宝能不能打
 
+
+*****
+
+####  qixinno2  
+##### 15040#       发表于 2024-10-22 21:13
+
+ 本帖最后由 qixinno2 于 2024-10-22 21:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66517394&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-10-22 20:39</a>
+
+你怎么放出来了 （
+
+等会我试试学姐1宝能不能打</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羡慕萌新啥都有 虽然我也出了一个
+
+
+*****
+
+####  khxooo  
+##### 15041#       发表于 2024-10-22 21:15
+
+道满提妈双核，1宝提妈最后剩下血皮。
+

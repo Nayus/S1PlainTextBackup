@@ -734,3 +734,43 @@ GF居然不专门设计十几种换色泥巴 ...</blockquote>
 
 可能这就是桥野理解的原点回归吧，这么看来最后还是做成P的模样也是必然的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  modkingr  
+##### 3027#       发表于 2024-10-22 10:57
+
+2016年9月初版p5发售，2018年p5中文化
+
+这游戏要是内容原封不动2018年发布感觉是对得起mc九十多分的，然后每晚一年实际体验就会因为时代进步而往下掉
+
+到了2024已经到点了。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能在玩的时候幻想现在是2018年了
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3028#       发表于 2024-10-22 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66512414&amp;ptid=2140224" target="_blank">变老的大二 发表于 2024-10-22 10:39</a>
+这代好歹给小怪设计了不少怪物机制，落单狂暴，前排狂暴，特定武器狂暴。 
+
+有些精英怪我感觉比关底boss还难 ...</blockquote>
+还有司马的一个打不死就召唤一堆，逼着玩家先手眩晕开局otk
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3029#       发表于 2024-10-22 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66512628&amp;ptid=2140224" target="_blank">modkingr 发表于 2024-10-22 10:57</a>
+2016年9月初版p5发售，2018年p5中文化
+
+这游戏要是内容原封不动2018年发布感觉是对得起mc九十多分的，然后 ...</blockquote>
+就这游戏优化2018年发售怕不是原地爆炸
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+

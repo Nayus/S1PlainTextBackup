@@ -13241,3 +13241,26 @@ fuwamoco
 
 [https://x.com/kito_koruta/status/1848314056849174633](https://x.com/kito_koruta/status/1848314056849174633)
 
+
+*****
+
+####  holoan  
+##### 9968#         楼主| 发表于 2024-10-21 22:03
+
+明天马趴新游戏联动，korone，kanata，fbk，miko
+
+*****
+
+####  holoan  
+##### 9969#         楼主| 发表于 2024-10-22 10:58
+
+昨晚本篇结束念SC就睡了没想到发生了不得了的事
+
+<img src="https://img.saraba1st.com/forum/202410/22/105810j2hlihm6m92ly8y2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (17.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-22 10:58 上传
+

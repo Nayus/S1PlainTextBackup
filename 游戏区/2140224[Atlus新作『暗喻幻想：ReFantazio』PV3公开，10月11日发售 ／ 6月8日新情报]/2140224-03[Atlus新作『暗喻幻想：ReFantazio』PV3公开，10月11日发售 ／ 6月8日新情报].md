@@ -1103,3 +1103,11 @@ Alt+tab切会这样，鼠标切回来基本就能换回手柄按键提示，总�
 
 打完了，这个最终战能这么幽默我是没想到的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  石中剑二  
+##### 3062#       发表于 2024-10-23 02:01
+
+相比日式剧情历来如此的圣母式原谅，这次当场把女祭司给嘎了还真是小有点冲击
+

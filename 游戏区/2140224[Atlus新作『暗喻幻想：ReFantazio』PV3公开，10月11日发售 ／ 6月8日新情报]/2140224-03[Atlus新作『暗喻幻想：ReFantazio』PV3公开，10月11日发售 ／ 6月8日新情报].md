@@ -660,3 +660,39 @@ P5那叫偷懒吗，敌我同源是基本设定啊，P1P2就是这样的，何�
 P5那叫偷懒吗，敌我同源是基本设定啊，P1P2就是这样的，何况这套设计是要带着交涉系统一块做的；P3P4那才 ...</blockquote>
 说偷懒不太好，换个词用取巧吧。反正肯定是省了设计换皮小怪的功夫。
 
+
+*****
+
+####  空气先生  
+##### 3021#       发表于 2024-10-22 10:26
+
+P5是ATLUS ps3以来第一次高清仲魔吧，这都是偷懒有点太苛刻了。
+
+而且P5可不会一个BOSS打三次（）
+
+
+*****
+
+####  mai6696  
+##### 3022#       发表于 2024-10-22 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66512191&amp;ptid=2140224" target="_blank">modkingr 发表于 2024-10-22 10:20</a>
+
+说偷懒不太好，换个词用取巧吧。反正肯定是省了设计换皮小怪的功夫。
+
+ ...</blockquote>
+那宝可梦也是取巧吗？
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 敌人居然和我们一样都是几百只各色各样的怪物。
+
+GF居然不专门设计十几种换色泥巴怪作为敌人，太取巧了。 
+
+*****
+
+####  loserm  
+##### 3023#       发表于 2024-10-22 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66510693&amp;ptid=2140224" target="_blank">u2deack 发表于 2024-10-22 00:56</a>
+
+玩得不是很多刚出城，以为拿路易的画像当盾牌已经够弱智了，打到这个吉多这里虽然我打不了你，但是你打我我 ...</blockquote>
+路易画像当盾牌这个，朱棣打侄子的时候也遇到过用朱元璋神牌当盾牌的，也没啥办法。。
+

@@ -3056,3 +3056,13 @@ mihon已经显示废弃了</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  fsmn4976  
+##### 283#       发表于 2024-10-23 02:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66505538&amp;ptid=2167901" target="_blank">舌怪 发表于 2024-10-21 13:10</a>
+有个别插件（漫画柜）总是无法成功安装，可能是什么问题啊？</blockquote>
+旧版卸载再安装新的，新旧签名不一致
+

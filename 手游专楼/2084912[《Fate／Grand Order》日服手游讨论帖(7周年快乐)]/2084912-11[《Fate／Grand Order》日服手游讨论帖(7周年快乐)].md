@@ -1317,3 +1317,11 @@ https://www.bilibili.com/video/BV1KuyWYcEng/
 试了下可以  1宝 5加成换人</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">强无敌
 
+
+*****
+
+####  cenhr  
+##### 15044#       发表于 2024-10-23 00:30
+
+库库带上活动加伤害的礼装配合双杀狐和奥伯龙能轻松3回合，1宝也不是问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

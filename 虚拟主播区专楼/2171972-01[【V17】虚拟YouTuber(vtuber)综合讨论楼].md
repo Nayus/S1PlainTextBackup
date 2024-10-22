@@ -547,3 +547,11 @@ hnn这个pr组合，还找了这么多其他人来翻跳
 意思你虹就这么多销量了？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 还真是清晰的上限啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aritaatsu222  
+##### 829#       发表于 2024-10-22 09:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">看三枝的初动曲线还以为后续肯定爆杀了没想到竟然苟住了btw虽然不如握手券但不破的也塞了个线下拍照券
+

@@ -636,3 +636,16 @@ XB1是指机神界那位？那个感觉是纯纯不说人话导致的
 
 大家通关后觉得哪个人物塑造的最顶
 
+
+*****
+
+####  Redimercia  
+##### 3019#       发表于 2024-10-22 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66511231&amp;ptid=2140224" target="_blank">modkingr 发表于 2024-10-22 08:18</a>
+
+这个比起其他的真是小问题了 以p系列基准来说也就是平均线上吧
+
+除了5代偷懒直接用仲魔当小怪以外 34基本 ...</blockquote>
+P5那叫偷懒吗，敌我同源是基本设定啊，P1P2就是这样的，何况这套设计是要带着交涉系统一块做的；P3P4那才叫真偷懒吧
+

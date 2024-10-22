@@ -3105,3 +3105,14 @@ s2e11的时候小千和四季也有过对话就强调过四季的性格比较丧
 
 拉拉现在缺个游戏保持流量
 
+
+*****
+
+####  仟音一心  
+##### 295#       发表于 2024-10-22 09:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66510924&amp;ptid=2201887" target="_blank">cat1230 发表于 2024-10-22 02:34</a>
+
+拉拉现在缺个游戏保持流量</blockquote>
+现在那个卡牌游戏不知道行不行。
+

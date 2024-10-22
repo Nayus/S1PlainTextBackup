@@ -903,3 +903,15 @@ GF居然不专门设计十几种换色泥巴 ...</blockquote>
 目前28小时打到潜入路易的铁甲船，感觉这剧情太平淡了，各种设定都像是p5的劣化版，玩的我要瞌睡了，后面要 ...</blockquote>
 跟你一模一样的进度，目前坑着了
 
+
+*****
+
+####  提莫  
+##### 3043#       发表于 2024-10-22 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66513451&amp;ptid=2140224" target="_blank">八佾舞于潭 发表于 2024-10-22 12:10</a>
+那破解不是乌龙吗，嫁接也只能玩到后面一点</blockquote>
+可以完美通关
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

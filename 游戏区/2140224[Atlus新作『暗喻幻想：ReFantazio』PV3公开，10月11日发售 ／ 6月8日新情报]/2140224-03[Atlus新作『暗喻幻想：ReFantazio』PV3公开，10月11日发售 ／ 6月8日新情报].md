@@ -1111,3 +1111,18 @@ Alt+tab切会这样，鼠标切回来基本就能换回手柄按键提示，总�
 
 相比日式剧情历来如此的圣母式原谅，这次当场把女祭司给嘎了还真是小有点冲击
 
+
+*****
+
+####  星野航  
+##### 3063#       发表于 2024-10-23 06:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66509016&amp;ptid=2140224" target="_blank">jxzeroga0 发表于 2024-10-21 21:34</a>
+
+刚出城就遇到全国瞩目大歌姬贴脸直球表示对你感兴趣谁顶得住啊
+
+尤法第二次握手后刷新npc对话主角还能继续 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就那头巾打扮，再顶不住也顶得住了好么
+
+更别说还有狗哥狗弟这俩小跟班
+

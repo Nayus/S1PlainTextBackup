@@ -1409,3 +1409,18 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 这游戏真tm上头，彻底治疗电子阳痿。boss战也太刺激了
 
+
+*****
+
+####  浅草若旦那  
+##### 181#       发表于 2024-10-22 19:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66516951&amp;ptid=2156352" target="_blank">浅草若旦那 发表于 2024-10-22 19:21</a>
+
+到第五层之后发现第四层的路都被大怪异给堵上了，怎么打小兔子的委托
+
+好像还是要做石头解密
+
+ ...</blockquote>
+做兔子任务主角被一个ct咬死了，然后触发了一个无偿复活给我整到右上角死路了，下周目见
+

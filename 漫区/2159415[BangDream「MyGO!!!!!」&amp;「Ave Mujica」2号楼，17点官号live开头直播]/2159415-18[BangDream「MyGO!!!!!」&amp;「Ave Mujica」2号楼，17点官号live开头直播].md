@@ -3239,3 +3239,11 @@ c团解散就是纯解散，这个团本身也持久不了，团队领导+代理
 
 ……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我只能说这个会很难看，看点好的吧
 
+
+*****
+
+####  星天观测  
+##### 25440#       发表于 2024-10-22 16:47
+
+……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我只能说别把其他四个角色当弱智吧
+

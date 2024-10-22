@@ -8185,3 +8185,37 @@ Q:你提到黎恩在界軌裡有多酷，會擔心帶回你心愛的角色，會
 
 灵活用剑女的回复然后多用zoc，靠菲莉和剑女两个大能刷到100，猫女的突袭，60cp那个，很高hit，剩下靠所长大或者女仆音速冲击补
 
+
+*****
+
+####  jacket  
+##### 6681#       发表于 2024-10-22 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66515725&amp;ptid=2160194" target="_blank">小猫鼬 发表于 2024-10-22 16:38</a>
+
+话说，连击数这次怎么刷？其他的次数啥的，第二章开始就刷好了。</blockquote>
+不急的话流程中自然就拿到150连击了，什么都不用管。
+
+我是在庭院第二层才找到足够肉的怪，拉10只一起用法术A，装备用最弱的，难度调最高，这样怪才能抗住两三波伤害。
+
+法术火A+的连击数是12，法术风A的连击数是8，具体忘了用的哪个。
+
+*****
+
+####  洛克萨斯  
+##### 6682#       发表于 2024-10-22 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66515835&amp;ptid=2160194" target="_blank">jacket 发表于 2024-10-22 16:49</a>
+
+不急的话流程中自然就拿到150连击了，什么都不用管。
+
+我是在庭院第二层才找到足够肉的怪，拉10只一起用 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正史上最强进队就随时都能做，他太强了
+
+*****
+
+####  dddyghr  
+##### 6683#       发表于 2024-10-22 16:51
+
+300连击庭院打破戒不随便刷吗 三法师加艾蕾因boss动一次我方能动20次 配好各种诗减硬直
+

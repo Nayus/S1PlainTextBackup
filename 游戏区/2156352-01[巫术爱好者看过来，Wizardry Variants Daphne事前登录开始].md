@@ -1316,3 +1316,11 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 —— 来自 samsung SM-S918U1, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  cenhr  
+##### 171#       发表于 2024-10-22 08:58
+
+比较地狱的是访问有提到就是因为提出游戏将会是氪金游戏才得到投资去开发<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

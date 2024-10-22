@@ -2234,3 +2234,31 @@ mygo的基调注定让角色多多少少都会有争议行为，能看得出来�
 
 我怎么记得好像官方还是声优哪里提过tomori唱功一般来着，主要靠魔法伤害的。
 
+
+*****
+
+####  skives10  
+##### 25357#       发表于 2024-10-22 09:00
+
+<img src="https://img.saraba1st.com/forum/202410/22/085955wolohw36oubdell6.png" referrerpolicy="no-referrer">
+
+<strong>IMG_0121.png</strong> (505.46 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-10-22 08:59 上传
+
+<img src="https://img.saraba1st.com/forum/202410/22/085956txwa66ruruwbjhxu.png" referrerpolicy="no-referrer">
+
+<strong>IMG_0122.png</strong> (480.73 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-10-22 08:59 上传
+
+https://x.com/nideaneng/status/1848425547896132012?s=46&amp;t=IZGx0N13SOtHALpwG0Ubrg
+
+这就是求婚
+

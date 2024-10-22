@@ -3509,3 +3509,43 @@ image.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">叠这么甲，不如上面那段真心话
 
+
+*****
+
+####  PDQ4  
+##### 25466#       发表于 2024-10-22 21:26
+
+泥漏难得有让我想说太长不看的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 25467#       发表于 2024-10-22 21:27
+
+说了那么多谁都知道的一般论
+最后还是暴露了自己就是想看屎片的本质
+水魔怎么把你害成这样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 25468#       发表于 2024-10-22 21:28
+
+太长懒得看，压根就没看那层说了什么东西
+
+没想到本人没忍住直接短文自爆了，好像更好笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 25469#       发表于 2024-10-22 21:33
+
+啊原来是水魔导致的吗，那就不奇怪了，厨厨以为自己找到了归宿结果最后被百合婚炸穿了房顶，难免精神创伤
+
+水魔有二人戒指，我们鸡也有五人戒指
+
+水魔系构大河内，鸡系构独角兽是大河内死忠粉
+
+是不是说明我们鸡的五人百合婚指日可待<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+

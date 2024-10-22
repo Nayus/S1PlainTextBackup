@@ -3259,3 +3259,20 @@ Nagi一专的初动销量有5800+，很不错的成绩
 
 pay的二单又是办发售会又是每首歌做了视频，相对来说算花了挺大力度宣传，SMA居然不报数据
 
+
+*****
+
+####  ViyViy  
+##### 311#       发表于 2024-10-22 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66517185&amp;ptid=2201887" target="_blank">ruffian 发表于 2024-10-22 20:03</a>
+
+可可台词比较多的集数、可能今后的故事中我也不知道以后会有什么变化……不是，别搞
+
+  -- 来自 能手机投票 ...</blockquote>
+不慌，后句菜宝说的，她应该就看过台本，光看台本是很难看出啥的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这种时候是悲观派最有用的一集：因为后面也没多少戏份了所以我也不知道会有什么变化。
+
+台词比较多的集数，也没暗示很集中，像这两集就不少，感觉这周再来一回的话要成新公式了：OP过完可可先搞怪一段然后下线<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">隔壁nga说这种安排很类似ksks的定位。
+

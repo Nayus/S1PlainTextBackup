@@ -1325,3 +1325,14 @@ https://www.bilibili.com/video/BV1KuyWYcEng/
 
 库库带上活动加伤害的礼装配合双杀狐和奥伯龙能轻松3回合，1宝也不是问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 15045#       发表于 2024-10-23 02:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66518767&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-10-23 00:30</a>
+
+库库带上活动加伤害的礼装配合双杀狐和奥伯龙能轻松3回合，1宝也不是问题 ...</blockquote>
+有道满吗，大姐姐用即死服+被动+奥伯龙1技能刚好开宝具，道满配合即死服即死第二面，第三面直接秒了。换人都不用换人。
+

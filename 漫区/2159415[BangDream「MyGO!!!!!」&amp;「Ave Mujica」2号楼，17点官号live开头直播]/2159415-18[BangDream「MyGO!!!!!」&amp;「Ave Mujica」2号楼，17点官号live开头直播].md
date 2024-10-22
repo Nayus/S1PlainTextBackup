@@ -3745,3 +3745,11 @@ mujica活动是比mygo动画播出早的，有些人真的能在mujica已经作�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很多人想看的压根不是avemujica，想看的是bangdream its mygo 2。点名有些灯祥素睦党，想看的是灯祥素睦吗？不是，他们只想看银河战舰爆炸后的睦祥被灯和素食拯救，想看的是更多的mygo戏份，对初华海玲喵梦这几个角色压根不关心
 
+
+*****
+
+####  -LYRE-  
+##### 25487#       发表于 2024-10-23 02:08
+
+别尬黑，希望她们早日发现自己是灯皇的代餐败犬，怎么不是一种关心呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -3400,3 +3400,14 @@ c团解散就是纯解散，这个团本身也持久不了，团队领导+代理
 祥子动画最大的风险不还是回不回箭头吗？四个队友三个箭头对着祥子，其中有两个还是加粗的，别最后一个箭头 ...</blockquote>
 只要初华/睦/喵梦破防 祥子高光 一切都会好起来的
 
+
+*****
+
+####  桜庭千景  
+##### 25457#       发表于 2024-10-22 17:57
+
+cp问题我从来不担心，独角兽操刀，柿本把控，别的再不行女女关系还是管饱的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">纠结点应该是你祥会走cst还是走sayo
+
+另外我支持全部爱啊，有无初喵逆输入，海睦初睦随便来啊我不挑<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+

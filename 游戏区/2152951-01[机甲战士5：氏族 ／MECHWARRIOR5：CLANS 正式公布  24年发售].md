@@ -487,3 +487,11 @@ MW5M我是当骑砍玩的，这回CLAN改关卡制了，队友机体实际也不
 
 挨self-righteousness骂也是正常。
 
+
+*****
+
+####  bladethunder  
+##### 44#       发表于 2024-10-23 00:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">但是主角反水入佣兵团简直就是为了后续Merc大型DLC预备的，感觉大概率后续会是反水线的后续
+

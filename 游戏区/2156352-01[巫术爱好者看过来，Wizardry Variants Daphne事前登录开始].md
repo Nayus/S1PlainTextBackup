@@ -1324,3 +1324,11 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 比较地狱的是访问有提到就是因为提出游戏将会是氪金游戏才得到投资去开发<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Falcomfans  
+##### 172#       发表于 2024-10-22 09:44
+
+一周了，苹果氪金榜的名次稳定上升，最高进过总榜前20，游戏前10，而且昨天还宣布哥杀作者写的巫术小说动画化，看来资金回收顺利。
+

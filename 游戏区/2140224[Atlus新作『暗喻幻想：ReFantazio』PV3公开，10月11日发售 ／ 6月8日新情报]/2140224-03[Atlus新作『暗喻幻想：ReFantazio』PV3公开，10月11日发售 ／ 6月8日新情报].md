@@ -947,3 +947,21 @@ Alt+tab切会这样，鼠标切回来基本就能换回手柄按键提示，总�
 
 这游戏中后期剧情还真是油门踩死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AeonsTorn  
+##### 3047#       发表于 2024-10-22 17:11
+
+坏天气还是得配合激浪戒指必定暴击才比较能打
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+
+*****
+
+####  johanliebert  
+##### 3048#       发表于 2024-10-22 17:15
+
+二周目了 后知后觉这coop卡职业技能格子真的恶心，处处受限，有点手游花式卡资源规训那味了
+

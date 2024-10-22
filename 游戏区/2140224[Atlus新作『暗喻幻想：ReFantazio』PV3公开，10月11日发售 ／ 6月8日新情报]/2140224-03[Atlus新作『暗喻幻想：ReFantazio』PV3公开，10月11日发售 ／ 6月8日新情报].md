@@ -791,3 +791,42 @@ GF居然不专门设计十几种换色泥巴 ...</blockquote>
 70小时通关了，感觉刷了得有10个小时，体量真不算大。剧情最大感受就是没想到发售之前全网都不看好的政治戏 ...</blockquote>
 二周目继承阿基态学习进度，解锁就回到一周目的状态，不需要重学
 
+
+*****
+
+####  mai6696  
+##### 3032#       发表于 2024-10-22 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66512814&amp;ptid=2140224" target="_blank">jxzeroga0 发表于 2024-10-22 11:12</a>
+
+二周目继承阿基态学习进度，解锁就回到一周目的状态，不需要重学</blockquote>
+那二周目的大亨也要锁到10月吗？
+
+另外，已学习的继承技怎么算？需要重新交MAG么？
+
+*****
+
+####  忘却旋律  
+##### 3033#       发表于 2024-10-22 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66512891&amp;ptid=2140224" target="_blank">mai6696 发表于 2024-10-22 11:19</a>
+
+那二周目的大亨也要锁到10月吗？
+
+另外，已学习的继承技怎么算？需要重新交MAG么？ ...</blockquote>
+我看攻略说 好像是指锁解锁进度，而已已学会的职业和技能应该不用重新消费MAG
+
+*****
+
+####  jxzeroga0  
+##### 3034#       发表于 2024-10-22 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66512891&amp;ptid=2140224" target="_blank">mai6696 发表于 2024-10-22 11:19</a>
+
+那二周目的大亨也要锁到10月吗？
+
+另外，已学习的继承技怎么算？需要重新交MAG么？ ...</blockquote>
+是，只能等10月
+
+已继承技能也保留解锁状态，只要coop进度到就会出现，满级属性加成也是剧情进度一解锁就会加上去
+

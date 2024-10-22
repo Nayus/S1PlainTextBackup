@@ -2434,3 +2434,16 @@ chuchu和祥子的人设也太天差地别了，魅力点和被黑点也完全�
 
 这样就不会有抱怨祥子最后态度不好，还能由此反推前面态度差是不是有苦衷<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">就我个人感觉大部分人相较于起起起落估计更愿意接受落落落起
 
+
+*****
+
+####  rinku  
+##### 25375#       发表于 2024-10-22 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66512820&amp;ptid=2159415" target="_blank">uhiuk 发表于 2024-10-22 11:13</a>
+不如换成祥子从一开始对灯就是散团那会这个态度，直到退团那会才拿出天桥上的态度和缓地对灯说因为灯的歌 ...</blockquote>
+问题是一开始这态度灯就不会入团了，不如说大家被白祥吸引进c团不就是她太完美了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+其实没啥好洗不洗的，态度差就是事实，go团有个态度更差还不改的经常被拿出来挨锤。
+祥子是转变太大而且明显有隐情，只是接受的会觉得锅在隐情上，不接受的觉得锅在祥子上。
+说到底背后到底什么原因压根还没说，争太多容易被打脸。
+

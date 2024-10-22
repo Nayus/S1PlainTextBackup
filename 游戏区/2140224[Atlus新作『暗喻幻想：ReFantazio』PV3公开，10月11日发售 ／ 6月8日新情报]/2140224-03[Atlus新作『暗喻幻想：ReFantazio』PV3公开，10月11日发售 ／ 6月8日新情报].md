@@ -982,3 +982,23 @@ Alt+tab切会这样，鼠标切回来基本就能换回手柄按键提示，总�
 
 还有在装备里切换职业—回退主菜单—打开学院—选择角色—继承技能<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NEIN  
+##### 3051#       发表于 2024-10-22 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66516208&amp;ptid=2140224" target="_blank">卡拉德利姆 发表于 2024-10-22 17:26</a>
+还有在装备里切换职业—回退主菜单—打开学院—选择角色—继承技能</blockquote>
+继承技能倒是可以直接阿基态界面换职业选
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+
+*****
+
+####  新世界的派蒙  
+##### 3052#       发表于 2024-10-22 17:34
+
+一晚上才刷满主角全面具+尤法全开，一开始在最终图刷的牙齿王，但是牙齿王好几分钟才刷一只太磨叽而且mag太少了，后面用常规清图手法了，还有更快的么
+

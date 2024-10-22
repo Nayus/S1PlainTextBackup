@@ -3720,3 +3720,18 @@ mujica活动是比mygo动画播出早的，有些人真的能在mujica已经作�
 
 说这个人不一定知道什么凑父兰父吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NaAgfykp  
+##### 25485#       发表于 2024-10-23 01:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66518333&amp;ptid=2159415" target="_blank">红楼飞雪 发表于 2024-10-22 23:03</a>
+其实去年9月go刚完结的时候就明确了下一部动画名字叫做BanG Dream! Ave Mujica
+
+最初放出来的视觉图也是一 ...</blockquote>
+甚至还有人新PV出来后还在复读“AM是反派团，除了五个人的推没人会喜欢”
+只能说鸡狗团能看的社区是越来越少了 。
+
+—— 来自 vivo V2301A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

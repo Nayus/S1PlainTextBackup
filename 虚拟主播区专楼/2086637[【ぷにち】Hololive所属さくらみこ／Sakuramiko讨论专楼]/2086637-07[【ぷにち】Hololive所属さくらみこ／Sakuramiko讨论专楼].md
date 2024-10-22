@@ -13300,3 +13300,18 @@ fuwamoco
 
 kanata第二次杀死了fbk<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 9974#         楼主| 发表于 2024-10-22 20:51
+
+下次玩马车，那这次为啥玩这个
+
+*****
+
+####  karastar  
+##### 9975#       发表于 2024-10-22 21:02
+
+这个游戏挺好的，能搞成箱游吗
+

@@ -8091,3 +8091,18 @@ Q:你提到黎恩在界軌裡有多酷，會擔心帶回你心愛的角色，會
 玩了三作才注意到通话界面右下角有人名
 <img src="https://s2.loli.net/2024/10/22/NH481m3IFCvWTeS.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  plok201  
+##### 6672#       发表于 2024-10-22 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66511007&amp;ptid=2160194" target="_blank">最终兵器狂战 发表于 2024-10-22 04:27</a>
+
+闪3啃完了。讲真的直到帝都篇打死龙观感都超出预期的好。结果终章这特么编了个啥鬼东西？？？还tm就讲一半 ...</blockquote>
+轮恶心应该是闪2最恶心，闪3就是那种咚了后，你说一句艹然后安心等下一作把那几个围住你的大只佬打爆就行了
+
+闪2故事确实告一段落了，但是那结局就像个校园恋爱剧最后一集女主嫁给了情敌老师那种
+
+闪2赢了个寂寞，闪3是输得一塌糊涂，反正我宁愿全输也不喜欢赢的像卖钩子才赢的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

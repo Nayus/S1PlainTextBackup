@@ -915,3 +915,15 @@ GF居然不专门设计十几种换色泥巴 ...</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  嘲风  
+##### 3044#       发表于 2024-10-22 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66429192&amp;ptid=2140224" target="_blank">bwsusaga 发表于 2024-10-11 23:05</a>
+PC版中途切出游戏后再进入，所有按键提示都变成键盘的了，用手柄也恢复不过来。
+
+只能重启。</blockquote>
+Alt+tab切会这样，鼠标切回来基本就能换回手柄按键提示，总之挺抽象的
+

@@ -2961,3 +2961,62 @@ sumimi同事务所并且商业上大热，自然是一个相当好的切入点
 
 不知道这样解释能不能理解我的脑回路，其实我也算祥子深度入脑的祥厨，确实这一年半下来感觉脑子已经有些不正常了，有解释不到位的情况可以再讨论，并没有攻击角色的意思
 
+
+*****
+
+####  相坂君  
+##### 25415#       发表于 2024-10-22 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66515202&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-10-22 15:43</a>
+
+这就是你鸡疑似进入宣发期但还是没什么东西的情况吧
+
+只能无限的轮回早就说烂了的话题 ...</blockquote>
+原来如此，这宣发期像是要考试，让鸡腿反复复习知识点，开播前后要考哦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  66367749  
+##### 25416#       发表于 2024-10-22 16:03
+
+你楼时不时会给人一种动画还没播完的既视感<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+c团解散就是纯解散，这个团本身也持久不了，团队领导+代理核心家里有事个人原因干不下去了，没什么为了谁好不为了谁好的。团队成员互相也没那么熟，更多是被动接受而不是主动去追求，这点和mygo就不一样，mygo个个都有自己的主动性，不管动机如何。
+话说回来，不会真有人以为素世能用妈妈的钱包养同学和老爹，还是祥子背后有十来个黑衣讨债人会找一切她认识的人下手吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adcdqre  
+##### 25417#       发表于 2024-10-22 16:06
+
+ 本帖最后由 adcdqre 于 2024-10-22 16:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66515318&amp;ptid=2159415" target="_blank">Royi 发表于 2024-10-22 15:56</a>
+
+确实脑补的成分偏多，因为促成这脑补的核心逻辑是“祥子的个人能力足够强，只要她不想炸团必不可能炸”这 ...</blockquote>
+只是自己退似乎不能叫炸团，采用炸团这个说法是站在什么的角度说呢。那只要平时或者以后剩下人能carry放走祥子也是OK的，你要非说退出就是炸团等同于其他队友平时在吸血这不好吧
+
+*****
+
+####  skives10  
+##### 25418#       发表于 2024-10-22 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66515318&amp;ptid=2159415" target="_blank">Royi 发表于 2024-10-22 15:56</a>
+确实脑补的成分偏多，因为促成这脑补的核心逻辑是“祥子的个人能力足够强，只要她不想炸团必不可能炸”这 ...</blockquote>
+这也太反复横跳了
+自己觉得想组乐队就组了 自己觉得自己有问题就安排好后事润了
+根本看不出觉悟
+还不如按狗血剧情 
+人身自由被丰川本家限制了被迫脱退
+
+*****
+
+####  星天观测  
+##### 25419#       发表于 2024-10-22 16:07
+
+祥子的个人能力足够强，只要她不想炸团必不可能炸，这一点的论据呢，万能之人吗
+
+把队友人生都安排好，你毁约了队友是不会知道不会跑的吗
+
+一开始组鸡团的时候就考虑好之后自己要退团的事/把oblivious这个身份卖了套现走人/卖身份能获得一大笔钱，ob这个身份卖给谁，谁会买，买来的意义是什么，成为ob二代吗，为什么不做自己
+
+算了，感觉不是我能讨论的东西，看漏油的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

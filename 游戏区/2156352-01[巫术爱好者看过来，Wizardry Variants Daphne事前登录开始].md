@@ -1371,3 +1371,13 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 下午貌似要维护更新了，这游戏bug是真的多。听群友说起才知道这开发商就是魔界战纪手游的开发商，创下开服下架维护3个月战记那个。
 
+
+*****
+
+####  Falcomfans  
+##### 177#       发表于 2024-10-22 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66513169&amp;ptid=2156352" target="_blank">yj98879 发表于 2024-10-22 11:44</a>
+下午貌似要维护更新了，这游戏bug是真的多。听群友说起才知道这开发商就是魔界战纪手游的开发商，创下开服 ...</blockquote>
+不是的，你说的是运营商Drecom，而这作的开发商是Studio 2PRO。
+

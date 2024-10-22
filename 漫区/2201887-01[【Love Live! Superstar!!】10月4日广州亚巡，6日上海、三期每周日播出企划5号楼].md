@@ -3288,3 +3288,26 @@ pay的二单又是办发售会又是每首歌做了视频，相对来说算花�
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Piano-Forest  
+##### 313#       发表于 2024-10-22 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66509801&amp;ptid=2201887" target="_blank">Piano-Forest 发表于 2024-10-21 22:19</a>
+
+https://x.com/KISAYU_/status/1848032976841621640
+
+『ラブライブ！スーパースター!!3期』3話に登場する『S ...</blockquote>
+[https://x.com/toriaezukariid/status/1848402446831485363](https://x.com/toriaezukariid/status/1848402446831485363)
+
+2期4話が初めてスパスタに参加した話数だったのでこの二人には思い入れがありました
+
+またこの二人がメインの回で参加できて嬉しかったです！ありがとうございました！
+<img src="https://p.sda1.dev/19/be3dcc6874081872d6301a4ec29beee3/20241022_225155.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/imaziro/status/1848699949573415149](https://x.com/imaziro/status/1848699949573415149)
+
+3話本編絵コンテ演出でした。2期4話につづいて四季とメイ、ちぃの回は絶対に自分がやりたいと挑んだ話数でした。力を貸してくれたスタッフのみなさん本当にありがとうございました！
+<img src="https://p.sda1.dev/19/5e4be151882e16ef2c14ddc72d16a4b4/20241022_225213.jpg" referrerpolicy="no-referrer">
+

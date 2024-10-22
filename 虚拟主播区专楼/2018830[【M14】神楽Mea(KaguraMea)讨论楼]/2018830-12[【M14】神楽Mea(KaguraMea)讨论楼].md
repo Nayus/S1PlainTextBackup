@@ -104,3 +104,39 @@
 
 去年喜欢年下，前年喜欢年上，今年喜欢韩国人。
 
+
+*****
+
+####  sino__unnko3  
+##### 17531#       发表于 2024-10-22 23:16
+
+ 本帖最后由 sino__unnko3 于 2024-10-22 23:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66518326&amp;ptid=2018830" target="_blank">秋游刃 发表于 2024-10-22 23:03</a>
+去年喜欢年下，前年喜欢年上，今年喜欢韩国人。</blockquote>
+好像是刚刚直播回答的提问箱问题；前两个月她还说喜欢年下的()
+
+挖个前两天的，魔法未来应该也算演唱会？主播18岁才去的演唱会
+
+主播还在回答提问箱的问题，话题极为跳跃
+
+*****
+
+####  汇聚群光  
+##### 17532#       发表于 2024-10-22 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66518377&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2024-10-22 23:16</a>
+
+好像是刚刚直播回答的提问箱问题；前两个月她还说喜欢年下的()
+
+挖个前两天的，魔法未来应该也算演唱会？ ...</blockquote>
+18岁那次演唱会不会就是她在回程的出租车上漏尿（还漏血）的经历吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（她19年提到过这件事，那年她刚好18岁）
+
+*****
+
+####  sino__unnko3  
+##### 17533#       发表于 2024-10-22 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66518439&amp;ptid=2018830" target="_blank">汇聚群光 发表于 2024-10-22 23:27</a>
+18岁那次演唱会不会就是她在回程的出租车上漏尿（还漏血）的经历吧？（她19年提到过这件事，那年她刚好18 ...</blockquote>
+你咩前两次直播说的（好像就是赫曼米勒这期）坐3个小时出租车不会也是这类演唱会散场吧？刚才抱怨了好久西武巨蛋急行军和散场时的大堵车，还有傻子车停路上不动的，今年CM前的直播好像也抱怨过一次，但那次应该说的是CM
+

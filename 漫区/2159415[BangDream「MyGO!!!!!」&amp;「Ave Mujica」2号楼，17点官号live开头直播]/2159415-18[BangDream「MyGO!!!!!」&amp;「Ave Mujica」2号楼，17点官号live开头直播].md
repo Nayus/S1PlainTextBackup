@@ -3020,3 +3020,94 @@ c团解散就是纯解散，这个团本身也持久不了，团队领导+代理
 
 算了，感觉不是我能讨论的东西，看漏油的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives10  
+##### 25420#       发表于 2024-10-22 16:11
+
+感觉11月注定是绝望轮回的一个月<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 25421#       发表于 2024-10-22 16:11
+
+ 本帖最后由 Aendst 于 2024-10-22 16:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66515318&amp;ptid=2159415" target="_blank">Royi 发表于 2024-10-22 15:56</a>
+
+确实脑补的成分偏多，因为促成这脑补的核心逻辑是“祥子的个人能力足够强，只要她不想炸团必不可能炸”这 ...</blockquote>
+其他2.5企划经常会有一些“能力上天赋异禀、可靠而富有魅力”的全能角色
+
+出问题的形式也什么样的都有，当然有自己精神出问题然后自己解开心结的救火队员，有伤病或者遇到重大打击导致出问题的美强惨，也有被恶德记者周边八卦影响到精神、进一步影响生理状态的
+
+只拘泥于“一定是祥子自己因为自己的问题炸团了”未免有点太无聊，喝茶乐队可能无所谓很正常，但商业乐队搞这一套观感不会很好
+
+祥子是很重要，但其他成员也同样很重要，每个人都有各自的问题
+
+在这个基础上还要面对外部问题，商业出道不是幌子不是噱头，自然有商业出道才能表现出来的故事
+
+已经要走商业路线，而且她是制作人，就算她经历剧变之后依旧和白祥一样天真，也不至于会有“商业乐队没有制作人没有key也没关系”这种小学生级别的想法
+
+而且漏油也提过了，访谈说了她要靠mujica生活的，她又不是什么全身心奉献型圣人
+
+*****
+
+####  玖羽  
+##### 25422#       发表于 2024-10-22 16:12
+
+我觉得有一个误区，Ave Mujica爆炸是肯定的，但是并不必然联系到商业失败
+
+就像春日影一样，可能Live成功了但是矛盾爆炸了，然后在两次Live之间解决问题
+
+然后我还是那句话，我认为解决祥子的问题很可能是四拖一
+
+*****
+
+####  66367749  
+##### 25423#       发表于 2024-10-22 16:13
+
+怎么会有这么抽象的为醋包饺子思维，先有结论再补中间过程的吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 25424#       发表于 2024-10-22 16:14
+
+我再多一句嘴吧，ave mujica是bangdream的<strong>企划</strong>之一，是二次邦的第九个团，是<strong>三次</strong>邦的第六个<strong>真人团</strong><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+脑补的时候或许也考虑一下ob/丰川祥子役 高尾奏音的事呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 25425#       发表于 2024-10-22 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66515469&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-10-22 16:12</a>
+
+我觉得有一个误区，Ave Mujica爆炸是肯定的，但是并不必然联系到商业失败
+
+就像春日影一样，可能Live成功了 ...</blockquote>
+我不认为这能叫爆炸
+
+剧本上内部会有问题有摩擦，并且内部矛盾可能会爆发，这是自然的
+
+漏油之所以不喜欢mujica要爆炸这个说法就是因为
+
+目前的讨论社群大部分语境下，这个说法是在说：mujica一定会出现明确的失败，并且很难看
+
+在这个基础上，有一部分人还会贷款mygo撞沉mujica
+
+内部可能有矛盾爆发对于这些老是喊着银河战舰必翻车的人来说不算爆炸
+
+也不是mujica推想要反驳的内容
+
+*****
+
+####  skives10  
+##### 25426#       发表于 2024-10-22 16:17
+
+确实 一季动画大概率也就三四场live
+某两场live之间把问题解决了就完事了
+

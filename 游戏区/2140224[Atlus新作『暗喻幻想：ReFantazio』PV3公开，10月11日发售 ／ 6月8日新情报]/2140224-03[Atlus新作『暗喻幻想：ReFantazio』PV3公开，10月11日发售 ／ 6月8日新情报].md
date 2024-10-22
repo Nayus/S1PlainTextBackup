@@ -927,3 +927,15 @@ PC版中途切出游戏后再进入，所有按键提示都变成键盘的了，
 只能重启。</blockquote>
 Alt+tab切会这样，鼠标切回来基本就能换回手柄按键提示，总之挺抽象的
 
+
+*****
+
+####  Geraltwang  
+##### 3045#       发表于 2024-10-22 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66508914&amp;ptid=2140224" target="_blank">半江瑟瑟半江红 发表于 2024-10-21 20:19</a>
+坏天气这设计只对玩家有效就是纯粹恶心人的
+
+—— 来自 鹅球 v3.3.92-alpha</blockquote>
+给玩家刷级用的吧，坏天气哪怕高三级收益也不是很低
+

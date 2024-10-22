@@ -8106,3 +8106,27 @@ Q:你提到黎恩在界軌裡有多酷，會擔心帶回你心愛的角色，會
 
 闪2赢了个寂寞，闪3是输得一塌糊涂，反正我宁愿全输也不喜欢赢的像卖钩子才赢的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jacket  
+##### 6673#       发表于 2024-10-22 16:11
+
+最终战某一场用阿龙刷了300多连击
+
+*****
+
+####  红魔馆的糖  
+##### 6674#       发表于 2024-10-22 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66508029&amp;ptid=2160194" target="_blank">jacket 发表于 2024-10-21 18:15</a>
+女仆出勤率99.9%，常驻法师没跑，所有魔攻药都可以喂她</blockquote>
+婕婕其实后期堆CP回复走永动的话不需要读攻击魔法，只需要读辅助魔法和一直拉人，魔攻给女演员好点
+
+*****
+
+####  chris1987  
+##### 6675#       发表于 2024-10-22 16:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

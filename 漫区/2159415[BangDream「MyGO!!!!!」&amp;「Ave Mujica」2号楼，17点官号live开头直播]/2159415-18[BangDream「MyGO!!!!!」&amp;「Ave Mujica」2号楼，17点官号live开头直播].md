@@ -3111,3 +3111,41 @@ c团解散就是纯解散，这个团本身也持久不了，团队领导+代理
 确实 一季动画大概率也就三四场live
 某两场live之间把问题解决了就完事了
 
+
+*****
+
+####  好想看Mujica啊  
+##### 25427#       发表于 2024-10-22 16:18
+
+还是贷款初华跑路，祥子追到小岛上，两人躺在小时候的那块草皮上看星星
+
+*****
+
+####  桜庭千景  
+##### 25428#       发表于 2024-10-22 16:19
+
+“只要她想就可以不炸团”，
+
+在邦邦里这已经属于魔法级别了朋友，chuchu都不敢这么说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 25429#       发表于 2024-10-22 16:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">ob二代这个，我猜你想要ClariS……？
+
+虽然四拖一是比较稳且常见的剧本，但我觉得祥的姐妹们指不定也挺重量级……最后反而是她相对正常也不是不可能
+
+
+*****
+
+####  66367749  
+##### 25430#       发表于 2024-10-22 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66515538&amp;ptid=2159415" target="_blank">桜庭千景 发表于 2024-10-22 16:19</a>
+“只要她想就可以不炸团”，
+
+在邦邦里这已经属于魔法级别了朋友，chuchu都不敢这么说 ...</blockquote>
+高中生只要想也可以一直读高一<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

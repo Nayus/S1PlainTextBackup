@@ -8130,3 +8130,14 @@ Q:你提到黎恩在界軌裡有多酷，會擔心帶回你心愛的角色，會
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jacket  
+##### 6676#       发表于 2024-10-22 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66515467&amp;ptid=2160194" target="_blank">红魔馆的糖 发表于 2024-10-22 16:12</a>
+
+婕婕其实后期堆CP回复走永动的话不需要读攻击魔法，只需要读辅助魔法和一直拉人，魔攻给女演员好点 ...</blockquote>
+二周目发现升满的菜刀比法系猛，只留女仆一人用大鲸鱼上debuff，剩下两个菜刀就一刀背后一刀S技轮流砸。
+

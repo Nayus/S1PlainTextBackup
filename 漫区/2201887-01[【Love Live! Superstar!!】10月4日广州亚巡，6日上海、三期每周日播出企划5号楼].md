@@ -3233,3 +3233,21 @@ Nagi一专的初动销量有5800+，很不错的成绩
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  星降る森  
+##### 309#       发表于 2024-10-22 20:41
+
+<img src="https://img.saraba1st.com/forum/202410/22/203850gss9mmn9k9m09zdm.png" referrerpolicy="no-referrer">
+
+<strong>[Y025MM(NFCKFN4D5PG29ZA.png</strong> (148.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-22 20:38 上传
+
+目前星成员个活销量这里也贴一下吧，lustqueen是没在大众渠道发售碟，如出道。
+
+至于为什么一样是没在大众渠道发碟但sma计了2次数就要问神奇的o榜了
+

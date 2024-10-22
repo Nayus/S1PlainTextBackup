@@ -3311,3 +3311,11 @@ https://x.com/KISAYU_/status/1848032976841621640
 3話本編絵コンテ演出でした。2期4話につづいて四季とメイ、ちぃの回は絶対に自分がやりたいと挑んだ話数でした。力を貸してくれたスタッフのみなさん本当にありがとうございました！
 <img src="https://p.sda1.dev/19/5e4be151882e16ef2c14ddc72d16a4b4/20241022_225213.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 314#       发表于 2024-10-22 23:44
+
+<img src="https://p.sda1.dev/19/1e7da8e4663257769330834679e1bd01/image.jpg" referrerpolicy="no-referrer">
+

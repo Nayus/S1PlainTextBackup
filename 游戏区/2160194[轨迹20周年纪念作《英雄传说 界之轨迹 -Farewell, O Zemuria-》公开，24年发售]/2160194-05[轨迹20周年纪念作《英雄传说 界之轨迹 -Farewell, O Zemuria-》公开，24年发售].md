@@ -8010,3 +8010,14 @@ Q:你提到黎恩在界軌裡有多酷，會擔心帶回你心愛的角色，會
 
 闪3啃完了。讲真的直到帝都篇打死龙观感都超出预期的好。结果终章这特么编了个啥鬼东西？？？还tm就讲一半？？？真就。。。吃了屎都没这么难受。好在现在能直接玩闪4去，难以想象刚出那会大伙得恶心成啥样。。。<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 6665#       发表于 2024-10-22 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66510735&amp;ptid=2160194" target="_blank">jacket 发表于 2024-10-22 01:11</a>
+
+高级回路主要是通过进度来限制，其余资源都不怎么缺，各方面比较便民。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">庭院不能刷羊了，难受死了，我第二章桃花剑路线刚进去庭院想刷个痛，发现已经被改了掉落
+

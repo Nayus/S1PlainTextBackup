@@ -599,3 +599,21 @@ XB1是指机神界那位？那个感觉是纯纯不说人话导致的
 
 除了5代偷懒直接用仲魔当小怪以外 34基本都是一路换色换上去的
 
+
+*****
+
+####  mai6696  
+##### 3016#       发表于 2024-10-22 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66510122&amp;ptid=2140224" target="_blank">里恩 发表于 2024-10-21 23:09</a>
+
+我很好奇有些明显并不贵重的材料购买一个需要完成一次反锁的对话是出于什么目的的设计
+
+这日本策划脑子是远 ...</blockquote>
+像雪城的包子铺，那种一天只能买一个，我可以理解为强力道具要给点限制。
+
+但鱼饵无限买，一次对话最多买一个，我是真的看不懂。
+
+最搞笑的是，这两种鱼饵能钓的鱼，都是可以直接店里批量买的。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 怎么着难道是怕玩家批量刷蜂蜜？但是钓鱼本身就锁一天一次了，你这饵有什么让人限量的必要吗？
+

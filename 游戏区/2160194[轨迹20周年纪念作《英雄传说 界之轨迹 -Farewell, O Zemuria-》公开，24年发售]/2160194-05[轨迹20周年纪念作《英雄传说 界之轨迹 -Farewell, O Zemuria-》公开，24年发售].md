@@ -8162,3 +8162,26 @@ Q:你提到黎恩在界軌裡有多酷，會擔心帶回你心愛的角色，會
 
 反正法师技能配出来就大差不差，都是输出过剩的，我用剑女当法师也一样读触手和鲸鱼
 
+
+*****
+
+####  小猫鼬  
+##### 6679#       发表于 2024-10-22 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66515465&amp;ptid=2160194" target="_blank">jacket 发表于 2024-10-22 16:11</a>
+最终战某一场用阿龙刷了300多连击</blockquote>
+话说，连击数这次怎么刷？其他的次数啥的，第二章开始就刷好了。
+
+
+*****
+
+####  洛克萨斯  
+##### 6680#       发表于 2024-10-22 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66515725&amp;ptid=2160194" target="_blank">小猫鼬 发表于 2024-10-22 16:38</a>
+
+话说，连击数这次怎么刷？其他的次数啥的，第二章开始就刷好了。</blockquote>
+第一章那个虫子魔兽任务就可以刷了，最早能150的地方
+
+灵活用剑女的回复然后多用zoc，靠菲莉和剑女两个大能刷到100，猫女的突袭，60cp那个，很高hit，剩下靠所长大或者女仆音速冲击补
+

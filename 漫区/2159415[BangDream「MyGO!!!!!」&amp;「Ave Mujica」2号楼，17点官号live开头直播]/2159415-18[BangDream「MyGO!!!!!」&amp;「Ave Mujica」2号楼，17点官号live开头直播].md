@@ -3549,3 +3549,20 @@ image.png
 
 是不是说明我们鸡的五人百合婚指日可待<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  桜庭千景  
+##### 25470#       发表于 2024-10-22 21:46
+
+指望邦邦正剧破防河豚是否有点恶搞了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+感觉 不如前几天的某逆天作者
+
+*****
+
+####  silver鲤跃  
+##### 25471#       发表于 2024-10-22 21:49
+
+看了这么长的小作文还想聊两句，反手来个河豚爆炸，神金...
+

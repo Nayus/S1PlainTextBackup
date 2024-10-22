@@ -1291,3 +1291,16 @@ ex阶都比常规职阶多了。真不如再起一排
 
 道满提妈双核，1宝提妈最后剩下血皮。
 
+
+*****
+
+####  alucardcz  
+##### 15042#       发表于 2024-10-22 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66517581&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-10-22 21:13</a>
+
+羡慕萌新啥都有 虽然我也出了一个</blockquote>
+[https://www.bilibili.com/video/BV1KuyWYcEng/](https://www.bilibili.com/video/BV1KuyWYcEng/)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/273.png" referrerpolicy="no-referrer">试了下可以  1宝 5加成换人
+

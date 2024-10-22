@@ -8219,3 +8219,46 @@ Q:你提到黎恩在界軌裡有多酷，會擔心帶回你心愛的角色，會
 
 300连击庭院打破戒不随便刷吗 三法师加艾蕾因boss动一次我方能动20次 配好各种诗减硬直
 
+
+*****
+
+####  jacket  
+##### 6684#       发表于 2024-10-22 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66515861&amp;ptid=2160194" target="_blank">dddyghr 发表于 2024-10-22 16:51</a>
+
+300连击庭院打破戒不随便刷吗 三法师加艾蕾因boss动一次我方能动20次 配好各种诗减硬直
+
+ ...</blockquote>
+我是用阿龙推背加S技，途中感觉boss好肉，打完一看推了300。
+
+*****
+
+####  王俊凯  
+##### 6685#       发表于 2024-10-22 16:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">朱迪斯前两作当法师当腻了，这作物理强了不少就走物理那边算，双幻链又不是只有她一个（
+
+*****
+
+####  悠悠你心  
+##### 6686#       发表于 2024-10-22 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66511007&amp;ptid=2160194" target="_blank">最终兵器狂战 发表于 2024-10-22 04:27</a>
+闪3啃完了。讲真的直到帝都篇打死龙观感都超出预期的好。结果终章这特么编了个啥鬼东西？？？还tm就讲一半 ...</blockquote>
+有一说一，按照闪轨大纲来看，闪3抛开终章就是加新人认老人，然后跑几个地方打了几次神机<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但是我依然闪中最喜欢闪3，校园部分确实很赞。
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  dddyghr  
+##### 6687#       发表于 2024-10-22 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66515926&amp;ptid=2160194" target="_blank">jacket 发表于 2024-10-22 16:58</a>
+
+我是用阿龙推背加S技，途中感觉boss好肉，打完一看推了300。</blockquote>
+这部女人性能强加范恩嘲讽被削了 非强制战我都不上男人了 全女队爽推，缺t套个盾加理念之力就行了
+

@@ -3247,3 +3247,76 @@ c团解散就是纯解散，这个团本身也持久不了，团队领导+代理
 
 ……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我只能说别把其他四个角色当弱智吧
 
+
+*****
+
+####  Aendst  
+##### 25441#       发表于 2024-10-22 16:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真的只有其他四个被当了吗，无人生还吧我觉得
+
+*****
+
+####  PDQ4  
+##### 25442#       发表于 2024-10-22 16:56
+
+想不炸团就不炸，怎么看起来有点爽姐附体的味道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| adcdqre| + 1|发现盲点|
+
+查看全部评分
+
+*****
+
+####  狂热飞鸟  
+##### 25443#       发表于 2024-10-22 16:56
+
+12月先行的话，那鸡的正式PV大概会什么时候放?
+
+*****
+
+####  Aendst  
+##### 25444#       发表于 2024-10-22 16:57
+
+可能会和先行同天放出来
+
+
+*****
+
+####  skives10  
+##### 25445#       发表于 2024-10-22 17:03
+
+那个倒计时也许是新一轮的解密游戏
+到时候全日本找线索
+找齐线索解锁正式pv
+
+*****
+
+####  ytttsuuuba  
+##### 25446#       发表于 2024-10-22 17:04
+
+还是先放个正式PV吧，别再谜语人挤牙膏了。
+
+*****
+
+####  六道明  
+##### 25447#       发表于 2024-10-22 17:06
+
+邦邦除了pp的假唱风波外，有其他因live失败而面临炸团的吗<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+摘面具也不一定非要露脸破坏世界观，更有可能是摘下“人格假面”直面真实的自己吧<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+過去も素顔も仮面で覆い隠し、
+
+今宵も完璧な箱庭に降り立つ。
+
+面对问题后也不一定能立刻解决，mygo五个人合影一样是各干各的，mujica结尾大概是大家暂且放下争议专心演中二剧场，给手游留下发挥空间<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+

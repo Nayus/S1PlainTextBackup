@@ -2489,3 +2489,53 @@ chuchu和祥子的人设也太天差地别了，魅力点和被黑点也完全�
 只是举个例子，我是觉得还是祥子开头态度太好了，以至于可以无视她前头做的事单独挑她唯一没做好的退团一 ...</blockquote>
 mygo的动画当然要让mygo成员更接近完美受害者啊 如果箱子不来演恶人接锅 导致观众没法完全站在主角团那一边 岂不是会引起更多问题
 
+
+*****
+
+####  Aendst  
+##### 25380#       发表于 2024-10-22 11:48
+
+看得出来有人很恨mujica了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 25381#       发表于 2024-10-22 11:48
+
+懂了 鸡被吊着烤火就是暗指队员被夺走 一堆电视机，雨伞和人偶在动就是夺还作战的抽象画面
+
+编不下去了
+
+说来一堆电视那画面让我想到塔科夫里的邪jiao献祭房间
+
+<img src="https://img.saraba1st.com/forum/202410/22/114907jmtl9fktvfuclclc.png" referrerpolicy="no-referrer">
+
+<strong>2024-10-18[01-52]_-120.3, -13.1, 27.3_0.1, -0.6, 0.1, 0.8_20.17 (0).png</strong> (1.25 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-22 11:49 上传
+
+*****
+
+####  skives10  
+##### 25382#       发表于 2024-10-22 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66513021&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-10-22 11:29</a>
+可以不立马走人，只要找到下家同时在这边开摆拖着就行了，大不了就走流程，走完你乐队也差不多凉凉了，娱 ...</blockquote>
+这种情节真的不是一般的变态<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+哪怕直接交违约金跑路 都比这种耍手段强
+做出来是要被炎上的
+
+*****
+
+####  Aendst  
+##### 25383#       发表于 2024-10-22 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66513027&amp;ptid=2159415" target="_blank">uhiuk 发表于 2024-10-22 11:30</a>
+
+只是举个例子，我是觉得还是祥子开头态度太好了，以至于可以无视她前头做的事单独挑她唯一没做好的退团一 ...</blockquote>
+指责一个学生喝茶兴趣社团有人在退出的时候态度差本身就是迷惑行为
+
+多大点事
+

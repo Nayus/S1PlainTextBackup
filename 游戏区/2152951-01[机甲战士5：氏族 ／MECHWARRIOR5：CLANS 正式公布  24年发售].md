@@ -470,3 +470,20 @@ MW5M我是当骑砍玩的，这回CLAN改关卡制了，队友机体实际也不
 
 可能因为后来要出网游的原因，这mod就完蛋了
 
+
+*****
+
+####  regular  
+##### 43#       发表于 2024-10-22 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66516714&amp;ptid=2152951" target="_blank">bladethunder 发表于 2024-10-22 18:39</a>
+
+打完背离氏族的Warden路线，确实是加入狼龙骑兵了，但能用的机甲还是只有氏族机体。这条路线剧情总感觉有点 ...</blockquote>
+太潦草了，看来还是别走叛逃线了。
+
+不过有一点Ezra说得对，从氏族观点看，Perez的行为仅仅就是无能狂怒，弱逼丢了我烟虎氏族的脸，
+
+除此之外没什么了不得的，屠个城而已，留在本氏族基本就是要靠拢这种观点，典型的就是Mia那些话，
+
+挨self-righteousness骂也是正常。
+

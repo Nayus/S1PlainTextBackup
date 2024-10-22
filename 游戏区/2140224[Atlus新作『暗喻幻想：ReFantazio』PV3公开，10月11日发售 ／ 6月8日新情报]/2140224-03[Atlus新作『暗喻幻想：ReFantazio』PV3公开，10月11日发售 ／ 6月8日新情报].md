@@ -649,3 +649,14 @@ XB1是指机神界那位？那个感觉是纯纯不说人话导致的
 除了5代偷懒直接用仲魔当小怪以外 34基本 ...</blockquote>
 P5那叫偷懒吗，敌我同源是基本设定啊，P1P2就是这样的，何况这套设计是要带着交涉系统一块做的；P3P4那才叫真偷懒吧
 
+
+*****
+
+####  modkingr  
+##### 3020#       发表于 2024-10-22 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66511893&amp;ptid=2140224" target="_blank">Redimercia 发表于 2024-10-22 09:50</a>
+
+P5那叫偷懒吗，敌我同源是基本设定啊，P1P2就是这样的，何况这套设计是要带着交涉系统一块做的；P3P4那才 ...</blockquote>
+说偷懒不太好，换个词用取巧吧。反正肯定是省了设计换皮小怪的功夫。
+

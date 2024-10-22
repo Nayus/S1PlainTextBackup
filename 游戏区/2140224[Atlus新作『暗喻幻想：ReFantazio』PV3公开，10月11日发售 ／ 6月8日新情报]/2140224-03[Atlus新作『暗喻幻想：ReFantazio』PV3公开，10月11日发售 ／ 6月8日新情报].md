@@ -1067,3 +1067,19 @@ Alt+tab切会这样，鼠标切回来基本就能换回手柄按键提示，总�
 
 —— 来自 Xiaomi 23078RKD5C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  kuarwbwe  
+##### 3059#       发表于 2024-10-22 22:35
+
+我运气很好的又在坏天气进了邪见之塔。真不错。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+然后就很喜闻乐见的又被扣了一半行动点继续吃屎。结果就是邪见之塔的宝箱怪我输出不够，打他要三到五回合他高兴了可以一回合送走我一个，然后我sl。还有屎中屎瞌睡之雾。宝箱怪又必须要灰雨偷水，相当于我第一回合固定只能动三次。输出两到三回，结果就是各种sl吃屎，然后我又受不了了，读档，今天晚上白打。<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+还有那兽人，我一进去看到那个血量和一阶盗贼可怜的小暗伤我就知道完蛋了，想打no damage kill就准备接着sl吃屎吧。
+
+我终于知道这游戏100小时流程怎么来的了，就是给我这种hard难度坏天气下本准备的。我进去了然后被砍一半行动点，输出不足各种吃瘪。打一个精英怪还要赌灰雨偷窃，赌精英怪第一回合不醒，你想顺利打死一个精英怪，做梦，先sl个四五次吧。然后等你受不了了，sl了，四五个小时白打。真是不错。<img src="https://static.saraba1st.com/image/smiley/face2017/265.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

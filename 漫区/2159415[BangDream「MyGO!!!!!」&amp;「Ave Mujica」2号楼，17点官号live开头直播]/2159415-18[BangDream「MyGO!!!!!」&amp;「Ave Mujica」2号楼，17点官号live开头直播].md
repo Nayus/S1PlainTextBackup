@@ -3704,3 +3704,11 @@ mujica活动是比mygo动画播出早的，有些人真的能在mujica已经作�
 
 厨厨代男角色的时候记得回顾一下老登的典<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  silver鲤跃  
+##### 25483#       发表于 2024-10-23 00:44
+
+能在有凑父兰父两个前例的情况下说出来祥子的故事将会把侧重点放在与父亲和解上也是在是忍俊不禁
+

@@ -3735,3 +3735,13 @@ mujica活动是比mygo动画播出早的，有些人真的能在mujica已经作�
 
 —— 来自 vivo V2301A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  akiomn  
+##### 25486#       发表于 2024-10-23 01:39
+
+ 本帖最后由 akiomn 于 2024-10-23 01:41 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很多人想看的压根不是avemujica，想看的是bangdream its mygo 2。点名有些灯祥素睦党，想看的是灯祥素睦吗？不是，他们只想看银河战舰爆炸后的睦祥被灯和素食拯救，想看的是更多的mygo戏份，对初华海玲喵梦这几个角色压根不关心
+

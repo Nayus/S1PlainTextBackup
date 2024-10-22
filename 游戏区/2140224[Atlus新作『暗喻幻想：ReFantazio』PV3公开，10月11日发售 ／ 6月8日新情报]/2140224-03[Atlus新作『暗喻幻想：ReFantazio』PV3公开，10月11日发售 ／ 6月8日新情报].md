@@ -1095,3 +1095,11 @@ Alt+tab切会这样，鼠标切回来基本就能换回手柄按键提示，总�
 
 偏偏游戏还有限时，24年还能玩到这种游戏还真是服了
 
+
+*****
+
+####  -SLSL-  
+##### 3061#       发表于 2024-10-23 01:41
+
+打完了，这个最终战能这么幽默我是没想到的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

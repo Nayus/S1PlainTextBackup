@@ -3574,3 +3574,17 @@ image.png
 
 感觉某粪坑那么多二创肯定有你喜欢的啊，去看看呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  桜庭千景  
+##### 25473#       发表于 2024-10-22 22:18
+
+其实也是蛮有意思，mygo完结一年下来，对祥子的攻击越来越站不住脚，以至于那层里甚至被迫失心疯一样说出来“祥子的错还是太少了”这种暴笑言论出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+为什么？因为一直都是捋的越清楚越明白祥子那点所谓的“态度问题”黑点从来就不是什么大黑点啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+至少祥子对灯是鼓励祝福吧？而mygo里可是真的不止一位真想拆队or跑路or换人啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+。。。。就，真蛮搞笑的
+

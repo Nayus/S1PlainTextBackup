@@ -2316,3 +2316,30 @@ https://x.com/nideaneng/status/1848425547896132012?s=46&amp;t=IZGx0N13SOtHALpwG0
 
 倒是祥子说缺了人也能练习有可能成为回旋镖，因为双r在高压时期都出现过有队友跑路但核心要求缺人也继续练习的剧情，然后才是被人点醒去追队友
 
+
+*****
+
+####  星天观测  
+##### 25363#       发表于 2024-10-22 10:36
+
+哎，观这两天双r出现率上升有感：
+
+ykn/楚平方：过去的黑历史还在追我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 25364#       发表于 2024-10-22 10:39
+
+ 本帖最后由 Aendst 于 2024-10-22 10:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66512287&amp;ptid=2159415" target="_blank">NODY 发表于 2024-10-22 10:29</a>
+
+我的看法是官方可能没把退团事件和飞鸟山当成需要“补偿”的事件，单纯觉得这样当爆点很亮眼而已
+
+倒是祥子 ...</blockquote>
+以目前的访谈来说确实是这个思路<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+有时候会怀疑制作组多少沾了点巨魔
+
+双r经典黑历史复刻可能性还挺高就是了，而且mujica一上来就是商业乐队，这种可能性只增不减
+

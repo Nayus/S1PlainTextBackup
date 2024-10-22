@@ -2398,3 +2398,39 @@ chuchu毕竟只有13岁<img src="https://static.saraba1st.com/image/smiley/face2
 上次是她一个人走，这次是留她一个人，这样对称也有可能吧</blockquote>
 mygo有过的情节再演一遍就没意思了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  相坂君  
+##### 25371#       发表于 2024-10-22 11:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欸，这集我在C团也看到过，是都得来一次吗？
+
+要是真来一次我只会觉得鸡的大家好有钱，商业乐队都随便走，是随随便便付违约金的富姐儿们
+
+*****
+
+####  桜庭千景  
+##### 25372#       发表于 2024-10-22 11:06
+
+chuchu和祥子的人设也太天差地别了，魅力点和被黑点也完全不重合，唯一共同点大概就是对队伍的掌控力和影响力远超一般的队长，更接近制作人
+
+
+*****
+
+####  桜庭千景  
+##### 25373#       发表于 2024-10-22 11:12
+
+说的没错啊，mygo制作组很明显就是擅长制造有冲击性的场景，独角兽还洋洋得意飞鸟山之战就是她想的呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  uhiuk  
+##### 25374#       发表于 2024-10-22 11:13
+
+<blockquote>桜庭千景 发表于 2024-10-22 10:17
+我觉得纠结这个没意义，"该练习"本身不算是分歧点，争议主要在祥子的态度上罢了（是否是"逃避责任转火嘴灯" ...</blockquote>
+不如换成祥子从一开始对灯就是散团那会这个态度，直到退团那会才拿出天桥上的态度和缓地对灯说因为灯的歌就是内心的呐喊。
+
+这样就不会有抱怨祥子最后态度不好，还能由此反推前面态度差是不是有苦衷<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">就我个人感觉大部分人相较于起起起落估计更愿意接受落落落起
+

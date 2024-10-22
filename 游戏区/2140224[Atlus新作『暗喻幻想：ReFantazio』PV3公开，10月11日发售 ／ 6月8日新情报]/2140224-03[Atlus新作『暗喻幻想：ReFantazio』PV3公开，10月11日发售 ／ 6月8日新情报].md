@@ -774,3 +774,20 @@ GF居然不专门设计十几种换色泥巴 ...</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
 
+
+*****
+
+####  哎哟卧槽了  
+##### 3030#       发表于 2024-10-22 11:08
+
+港版250了，看来破解的出现对行情影响太大了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  jxzeroga0  
+##### 3031#       发表于 2024-10-22 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66510171&amp;ptid=2140224" target="_blank">fireadol 发表于 2024-10-21 23:17</a>
+70小时通关了，感觉刷了得有10个小时，体量真不算大。剧情最大感受就是没想到发售之前全网都不看好的政治戏 ...</blockquote>
+二周目继承阿基态学习进度，解锁就回到一周目的状态，不需要重学
+

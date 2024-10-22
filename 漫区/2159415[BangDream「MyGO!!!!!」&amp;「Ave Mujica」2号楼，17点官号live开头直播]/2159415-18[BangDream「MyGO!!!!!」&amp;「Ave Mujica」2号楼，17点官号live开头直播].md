@@ -3455,3 +3455,57 @@ cp问题我从来不担心，独角兽操刀，柿本把控，别的再不行女
 
 綾奈對立希的惡趣味居然也是能被欣賞的<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kojima34  
+##### 25462#       发表于 2024-10-22 21:20
+
+而且我其实喜欢看河豚爆炸多过看别的东西爆炸，我要贷款就贷款丰川祥子别扭父控离家是为了养废物老爸最后结局也把老爸看得比队友更重、或者心结解开主要靠跟父亲和解而不是靠队友（例如25时真冬跟其父的那种），这不比贷款丰川祥子所在的某个具体组织解散对河豚破坏力大多了。看乐子也得看点大的吧，泥漏这几个企划厨或者角色厨破防的乐子完全不够塞牙缝的。
+
+*****
+
+####  相坂君  
+##### 25463#       发表于 2024-10-22 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66517495&amp;ptid=2159415" target="_blank">kojima34 发表于 2024-10-22 20:59</a>
+
+关于你说什么过来说退出团队就不是逃避责任，首先“不负责任”这个评价不是我说的，剧里首先让素世说“小 ...</blockquote>
+
+等一哈啊，我看看你说了什么……嗯……彳亍！当一个人反驳你诉说的论点时，你已经把怨妇帽子扣上去了，你已经推测她又一次丢下队友逃避，却不给人说一句，还泼个脏水说我们祥厨强调自推没做错，倒打一耙的本事比你打这一千来字更出色<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202410/22/211014zlyyy2nquxmevnsz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (401.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-22 21:10 上传
+
+image.png
+(484.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-22 21:10 上传
+
+<img src="https://img.saraba1st.com/forum/202410/22/211001eo8ogqkbgqb3nq7r.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 25464#       发表于 2024-10-22 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66517624&amp;ptid=2159415" target="_blank">kojima34 发表于 2024-10-22 21:20</a>
+
+而且我其实喜欢看河豚爆炸多过看别的东西爆炸，我要贷款就贷款丰川祥子别扭父控离家是为了养废物老爸最后结 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你怎么没忍住自爆了，本日最好笑
+
+*****
+
+####  相坂君  
+##### 25465#       发表于 2024-10-22 21:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">叠这么甲，不如上面那段真心话
+

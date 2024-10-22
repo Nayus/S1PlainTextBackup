@@ -455,3 +455,18 @@ MW5M我是当骑砍玩的，这回CLAN改关卡制了，队友机体实际也不
 
 —— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  qqks  
+##### 42#       发表于 2024-10-22 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66482462&amp;ptid=2152951" target="_blank">muderx 发表于 2024-10-18 15:09</a>
+
+这个系列复兴是很困难的。
+
+1、游戏性如果没有很大创新，缺乏吸引力，绕圈对射的游戏模式在2024年不算有竞争 ...</blockquote>
+这ip的游戏最高作是当年微软抛弃此系列后，民间高手们用cryengine打造的同人mod，纯联网对战，高度拟真的战场环境扮演，从杂兵肉身到坦克飞机到机甲，可以进行复杂的电子战，侦查 标定目标间接射击支援火力打击,再加上各种不同星球的引力大气环境的地图。基本上就是真实系机甲游戏的巅峰了。
+
+可能因为后来要出网游的原因，这mod就完蛋了
+

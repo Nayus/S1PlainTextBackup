@@ -13285,3 +13285,18 @@ fuwamoco
 
 昨天SC念到有一个从国内去日本参加现场live的，竟然真的有吗而且不是台湾那边的
 
+
+*****
+
+####  holoan  
+##### 9972#         楼主| 发表于 2024-10-22 13:35
+
+今晚这游戏比马趴有意思，谁推荐的
+
+*****
+
+####  holoan  
+##### 9973#         楼主| 发表于 2024-10-22 19:58
+
+kanata第二次杀死了fbk<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

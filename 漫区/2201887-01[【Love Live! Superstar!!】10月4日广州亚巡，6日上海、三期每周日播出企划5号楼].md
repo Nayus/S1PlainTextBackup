@@ -3223,3 +3223,13 @@ TCG只能锦上添花不能雪中送炭，二偶少一个质量过关的gaas游�
 
 Nagi一专的初动销量有5800+，很不错的成绩
 
+
+*****
+
+####  ruffian  
+##### 308#       发表于 2024-10-22 20:03
+
+可可台词比较多的集数、可能今后的故事中我也不知道以后会有什么变化……不是，别搞<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

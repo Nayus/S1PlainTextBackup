@@ -3276,3 +3276,15 @@ pay的二单又是办发售会又是每首歌做了视频，相对来说算花�
 
 台词比较多的集数，也没暗示很集中，像这两集就不少，感觉这周再来一回的话要成新公式了：OP过完可可先搞怪一段然后下线<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">隔壁nga说这种安排很类似ksks的定位。
 
+
+*****
+
+####  ruffian  
+##### 312#       发表于 2024-10-22 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66517671&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-10-22 21:28:45</a>
+不慌，后句菜宝说的，她应该就看过台本，光看台本是很难看出啥的隔壁nga说这种安排很类似ksks的定位。 ...</blockquote>台词很多的集数，鱼自己搞不定需要菜宝帮忙那要么是台词复杂要么量大了，至于变化……情人节访谈那会小百合就说过成员的性格会变化，虽然看完前两集我觉得她说的是vn<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+主要是我星2ptsd对这b剧本不信任啊，多说多错真的
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

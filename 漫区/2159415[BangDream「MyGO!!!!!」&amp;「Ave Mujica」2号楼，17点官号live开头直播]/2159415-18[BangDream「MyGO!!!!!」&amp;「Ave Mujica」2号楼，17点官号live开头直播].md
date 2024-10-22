@@ -3566,3 +3566,11 @@ image.png
 
 看了这么长的小作文还想聊两句，反手来个河豚爆炸，神金...
 
+
+*****
+
+####  星天观测  
+##### 25472#       发表于 2024-10-22 21:57
+
+感觉某粪坑那么多二创肯定有你喜欢的啊，去看看呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

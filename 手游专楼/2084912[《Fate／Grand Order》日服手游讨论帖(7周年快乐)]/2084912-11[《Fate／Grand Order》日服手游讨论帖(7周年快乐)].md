@@ -1304,3 +1304,16 @@ ex阶都比常规职阶多了。真不如再起一排
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/273.png" referrerpolicy="no-referrer">试了下可以  1宝 5加成换人
 
+
+*****
+
+####  qixinno2  
+##### 15043#       发表于 2024-10-22 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66517803&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-10-22 21:47</a>
+
+https://www.bilibili.com/video/BV1KuyWYcEng/
+
+试了下可以  1宝 5加成换人</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">强无敌
+

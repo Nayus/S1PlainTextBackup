@@ -3319,3 +3319,14 @@ https://x.com/KISAYU_/status/1848032976841621640
 
 <img src="https://p.sda1.dev/19/1e7da8e4663257769330834679e1bd01/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViyViy  
+##### 315#       发表于 2024-10-23 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66517769&amp;ptid=2201887" target="_blank">ruffian 发表于 2024-10-22 21:43</a>
+
+台词很多的集数，鱼自己搞不定需要菜宝帮忙那要么是台词复杂要么量大了，至于变化……情人节访谈那会小百合 ...</blockquote>
+变化应该指的是别人，可可的主轴应该是贯彻“不变”这个点的，总不能是“她都是装的”这种假药成真吧，你星就这么一个假药<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

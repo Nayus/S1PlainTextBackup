@@ -2272,3 +2272,17 @@ https://x.com/nideaneng/status/1848425547896132012?s=46&amp;t=IZGx0N13SOtHALpwG0
 <img src="https://p.sda1.dev/19/a877b471b71c2b9f8119ee497859dea0/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/19/85ac0a3ee5f289fd1a821ec3a3b535ad/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 25359#       发表于 2024-10-22 10:13
+
+漏油提到无关唱得好不好，没练习→该练习打开了新思路
+
+灯唱不出来这一点的确有过多次描写，一开始立希甚至都在为此质疑主唱是乐队门面为什么要选灯
+
+灯的答复是不擅长在别人面前唱歌
+
+不管是紧张怯场还是人群恐惧，按照一般思路，这确实是需要通过多练习去解决的问题
+

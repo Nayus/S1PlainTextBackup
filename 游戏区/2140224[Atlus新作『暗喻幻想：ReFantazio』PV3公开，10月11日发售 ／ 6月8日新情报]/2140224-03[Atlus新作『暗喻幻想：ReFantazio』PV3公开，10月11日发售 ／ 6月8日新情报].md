@@ -1155,3 +1155,13 @@ rpg设计太差劲了，因为职业进阶对于固有技能几乎没有提升�
 
 但你做了这么多年，和当初那个概念图一比，真是还是那半瓶醋。
 
+
+*****
+
+####  superlink  
+##### 3066#       发表于 2024-10-23 06:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">其实游戏整体体验还行，但一想到这玩意搞了八年这么点内容，就不太行
+
+—— 来自 vivo V2304A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

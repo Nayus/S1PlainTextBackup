@@ -892,3 +892,14 @@ GF居然不专门设计十几种换色泥巴 ...</blockquote>
 
 二手盘稳定地一天降五块钱，不着急的话一个月后玩的应该最划算
 
+
+*****
+
+####  里恩  
+##### 3042#       发表于 2024-10-22 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66513325&amp;ptid=2140224" target="_blank">CswStar 发表于 2024-10-22 11:58</a>
+
+目前28小时打到潜入路易的铁甲船，感觉这剧情太平淡了，各种设定都像是p5的劣化版，玩的我要瞌睡了，后面要 ...</blockquote>
+跟你一模一样的进度，目前坑着了
+

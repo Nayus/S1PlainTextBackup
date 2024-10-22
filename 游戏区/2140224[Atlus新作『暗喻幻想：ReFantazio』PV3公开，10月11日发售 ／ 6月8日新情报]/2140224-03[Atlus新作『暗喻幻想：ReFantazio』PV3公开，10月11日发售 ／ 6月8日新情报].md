@@ -617,3 +617,14 @@ XB1是指机神界那位？那个感觉是纯纯不说人话导致的
 最搞笑的是，这两种鱼饵能钓的鱼，都是可以直接店里批量买的。
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 怎么着难道是怕玩家批量刷蜂蜜？但是钓鱼本身就锁一天一次了，你这饵有什么让人限量的必要吗？
 
+
+*****
+
+####  忘却旋律  
+##### 3017#       发表于 2024-10-22 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66510693&amp;ptid=2140224" target="_blank">u2deack 发表于 2024-10-22 00:56</a>
+
+玩得不是很多刚出城，以为拿路易的画像当盾牌已经够弱智了，打到这个吉多这里虽然我打不了你，但是你打我我 ...</blockquote>
+画像当盾牌这S B点子 放P5的BOSS的殿堂里 没什么问题，毕竟心里因素能说的过去，暗喻这现实世界 拿个画当盾 你就走人了 我估计路易在现场的话 都把这货当内鬼了
+

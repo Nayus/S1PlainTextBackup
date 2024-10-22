@@ -8021,3 +8021,26 @@ Q:你提到黎恩在界軌裡有多酷，會擔心帶回你心愛的角色，會
 高级回路主要是通过进度来限制，其余资源都不怎么缺，各方面比较便民。 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">庭院不能刷羊了，难受死了，我第二章桃花剑路线刚进去庭院想刷个痛，发现已经被改了掉落
 
+
+*****
+
+####  隔壁老黄  
+##### 6666#       发表于 2024-10-22 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66511007&amp;ptid=2160194" target="_blank">最终兵器狂战 发表于 2024-10-22 04:27</a>
+闪3啃完了。讲真的直到帝都篇打死龙观感都超出预期的好。结果终章这特么编了个啥鬼东西？？？还tm就讲一半 ...</blockquote>
+其实闪1就这样，打到至宝化身时感觉良好，尾声被苦劳喂了一坨，对了闪2其实也是，结局相当憋屈
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+
+*****
+
+####  hourousha  
+##### 6667#       发表于 2024-10-22 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66511007&amp;ptid=2160194" target="_blank">最终兵器狂战 发表于 2024-10-22 04:27</a>
+
+闪3啃完了。讲真的直到帝都篇打死龙观感都超出预期的好。结果终章这特么编了个啥鬼东西？？？还tm就讲一半 ...</blockquote>
+从空轨FC开始不就这样？闪1结尾不也差不多，所以闪3倒也没太恶心我，都习惯了。
+

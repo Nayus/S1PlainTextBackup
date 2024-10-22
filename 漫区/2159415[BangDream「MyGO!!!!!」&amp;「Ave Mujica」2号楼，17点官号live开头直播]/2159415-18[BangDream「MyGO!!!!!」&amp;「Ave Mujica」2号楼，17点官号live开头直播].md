@@ -2907,3 +2907,24 @@ sumimi同事务所并且商业上大热，自然是一个相当好的切入点
 
 我怎么看不出关联呢。。。。
 
+
+*****
+
+####  相坂君  
+##### 25411#       发表于 2024-10-22 15:41
+
+最近每次进楼里都得做一下阅读理解……推理一些漏油是逻辑是怎样的，我这是在上什么语文课吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 25412#       发表于 2024-10-22 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66515185&amp;ptid=2159415" target="_blank">相坂君 发表于 2024-10-22 15:41</a>
+
+最近每次进楼里都得做一下阅读理解……推理一些漏油是逻辑是怎样的，我这是在上什么语文课吗？ ...</blockquote>
+这就是你鸡疑似进入宣发期但还是没什么东西的情况吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+只能无限的轮回早就说烂了的话题
+

@@ -2600,3 +2600,20 @@ c团一共才存在多久，她们对彼此很了解很熟悉吗，有主动去�
 
 海岛追妻我看行，大战森美奈美<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">……我们邦邦也要有自己的25时！
 
+
+*****
+
+####  Aendst  
+##### 25390#       发表于 2024-10-22 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66513360&amp;ptid=2159415" target="_blank">66367749 发表于 2024-10-22 12:01</a>
+
+c团一共才存在多久，她们对彼此很了解很熟悉吗，有主动去了解成员彼此吗 ...</blockquote>
+大概率只有一个月（很早之前已经推理过了）
+
+不怎么了解（mygo已经在结团后去队友家团建过了，反观crychic只有ktv团建，团建的时候爽世还疑似说错话踩了睦的雷）
+
+对彼此也不怎么感兴趣（祥子淋雨进来没人真正去关心一下，话题完全围绕“你不能退出没有你就不行”展开）
+
+很明显，但这说出来会有人受不了
+

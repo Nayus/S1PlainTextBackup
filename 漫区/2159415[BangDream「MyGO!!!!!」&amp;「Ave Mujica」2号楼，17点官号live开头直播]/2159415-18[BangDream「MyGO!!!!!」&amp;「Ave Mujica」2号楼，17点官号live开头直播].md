@@ -3630,3 +3630,41 @@ mujica活动是比mygo动画播出早的，有些人真的能在mujica已经作�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">洋洋洒洒写一堆，不如一句想看河豚爆炸……
 指望在邦这里看河豚爆炸什么啊，这不是蒜也不是水魔，男角色都是配角的不能再配角了
 
+
+*****
+
+####  红楼飞雪  
+##### 25478#       发表于 2024-10-22 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66518150&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-10-22 22:39</a>
+
+或许是因为最近的PV以及官方的新简介
+
+某些人终于开始意识到自己贷款一年一定要被踩被打败的“反派”根本不 ...</blockquote>
+其实去年9月go刚完结的时候就明确了下一部动画名字叫做BanG Dream! Ave Mujica
+
+最初放出来的视觉图也是一个超大的祥子搂着四个小人偶，图里就没有go成员的事情
+
+即使这样有人也能幻想一整年以mujica为名的动画里mujica不仅不是主角 还要被拿来垫其他人的高光，确实是无敌了<img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
+
+倒不如说居然到最近才破防 确实要佩服心理素质
+
+
+*****
+
+####  红楼飞雪  
+##### 25478#       发表于 2024-10-22 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66518150&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-10-22 22:39</a>
+
+或许是因为最近的PV以及官方的新简介
+
+某些人终于开始意识到自己贷款一年一定要被踩被打败的“反派”根本不 ...</blockquote>
+其实去年9月go刚完结的时候就明确了下一部动画名字叫做BanG Dream! Ave Mujica
+
+最初放出来的视觉图也是一个超大的祥子搂着四个小人偶，图里就没有go成员的事情
+
+即使这样有人也能幻想一整年以mujica为名的动画里mujica不仅不是主角 还要被拿来垫其他人的高光，确实是无敌了<img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
+
+倒不如说居然到最近才破防 确实要佩服心理素质
+

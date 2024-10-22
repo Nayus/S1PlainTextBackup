@@ -2539,3 +2539,64 @@ mygo的动画当然要让mygo成员更接近完美受害者啊 如果箱子不�
 
 多大点事
 
+
+*****
+
+####  相坂君  
+##### 25384#       发表于 2024-10-22 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66513021&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-10-22 11:29</a>
+
+可以不立马走人，只要找到下家同时在这边开摆拖着就行了，大不了就走流程，走完你乐队也差不多凉凉了，娱 ...</blockquote>
+虽然有想讲一讲商业行程的运作安排，以及是否存在愿意承受外界舆论压力接收退队成员并支付违约金的冤大头经济公司等相对现实的合同问题
+
+但是吧……你已认定这种“鸡狗C都对称，要来一次大家都走只留一人”的模式，那就没什么意思了<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+一而再再而衰三而竭，还陷入这种已有过的剧情循环
+
+看腻了，下一个.jpg
+
+*****
+
+####  桜庭千景  
+##### 25385#       发表于 2024-10-22 11:57
+
+祥子的反派位最大来源还是飞鸟山一战
+
+动画播出末期最大的粉丝群体是哪一家
+
+其实理清楚这个就好了。前面的嘴不嘴灯，是否好好说话更像是一盘醋。
+
+
+*****
+
+####  66367749  
+##### 25386#       发表于 2024-10-22 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66513236&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-10-22 11:49</a>
+指责（甚至不是指责，是绝不原谅和抓着不放）一个学生喝茶兴趣社团有人在退出的时候态度差本身就是迷惑行 ...</blockquote>
+c团一共才存在多久，她们对彼此很了解很熟悉吗，有主动去了解成员彼此吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 25387#       发表于 2024-10-22 12:03
+
+复刻双r的可能性都比复刻go要高，因为涉及违约问题不可能全都说走就走
+
+初华和睦其中一个走（父母原因或者经纪公司原因）然后祥子在社会人海喵的劝说下去追还有可能，而祥子追的这个人大概率是祥子重点描写的cp，参考chuchu和pareo的定位
+
+*****
+
+####  skives10  
+##### 25388#       发表于 2024-10-22 12:03
+
+来一次海岛追妻或者大战森美奈美还是喜闻乐见的
+
+*****
+
+####  相坂君  
+##### 25389#       发表于 2024-10-22 12:06
+
+海岛追妻我看行，大战森美奈美<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">……我们邦邦也要有自己的25时！
+

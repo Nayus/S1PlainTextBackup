@@ -846,3 +846,31 @@ GF居然不专门设计十几种换色泥巴 ...</blockquote>
 
 剧场开始跟坐火箭一样，学院连个迷宫都没
 
+
+*****
+
+####  CswStar  
+##### 3037#       发表于 2024-10-22 11:58
+
+目前28小时打到潜入路易的铁甲船，感觉这剧情太平淡了，各种设定都像是p5的劣化版，玩的我要瞌睡了，后面要还是这么一副吊样子，我都想弃坑了。
+
+
+*****
+
+####  farAway  
+##### 3038#       发表于 2024-10-22 12:03
+
+有个饰品叫贵妇的耳环，限定女性戴的, 番长不能戴但是精灵女戴了就没问题
+
+但是主角他可以戴，惊喜吧？简直太ZQ了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  plok201  
+##### 3039#       发表于 2024-10-22 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66513058&amp;ptid=2140224" target="_blank">magicc 发表于 2024-10-22 11:33</a>
+
+剧场开始跟坐火箭一样，学院连个迷宫都没</blockquote>
+学院结局暗示了，一张图要弄一年，加上有的没的，3年后登基版见吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

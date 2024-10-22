@@ -2343,3 +2343,58 @@ ykn/楚平方：过去的黑历史还在追我<img src="https://static.saraba1st
 
 双r经典黑历史复刻可能性还挺高就是了，而且mujica一上来就是商业乐队，这种可能性只增不减
 
+
+*****
+
+####  ddy2811  
+##### 25365#       发表于 2024-10-22 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66509983&amp;ptid=2159415" target="_blank">NODY 发表于 2024-10-21 22:45</a>
+
+参考双r套路的话，某个队友跑了，祥子被其他队友点醒去追人的可能性更大点 ...</blockquote>
+上次是她一个人走，这次是留她一个人，这样对称也有可能吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ytttsuuuba  
+##### 25366#       发表于 2024-10-22 10:46
+
+吸取chu²的教训，千万别整2.0，当时补完番直接成chu²的黑子，看完三次元顺利把动画人设切割了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 25367#       发表于 2024-10-22 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66512370&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-10-22 10:36</a>
+
+哎，观这两天双r出现率上升有感：
+
+ykn/楚平方：过去的黑历史还在追我</blockquote>
+那没办法的，做了就是做了
+
+*****
+
+####  好想看Mujica啊  
+##### 25368#       发表于 2024-10-22 10:49
+
+楚萍芳可是拆了3次团啊，3次，游戏编剧直接把她写成死不悔改的死小鬼
+
+*****
+
+####  skives10  
+##### 25369#       发表于 2024-10-22 10:51
+
+chuchu毕竟只有13岁<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 25370#       发表于 2024-10-22 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66512508&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-10-22 10:46</a>
+
+上次是她一个人走，这次是留她一个人，这样对称也有可能吧</blockquote>
+mygo有过的情节再演一遍就没意思了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

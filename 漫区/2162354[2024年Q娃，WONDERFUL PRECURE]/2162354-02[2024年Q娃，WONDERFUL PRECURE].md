@@ -201,3 +201,16 @@
  #ドリステ 限定イラスト✨
 <img src="https://p.sda1.dev/19/4175adcaac949a2cd65414e958b6d302/20241021_222221.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猫屋敷ゆき  
+##### 2551#       发表于 2024-10-22 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66503210&amp;ptid=2162354" target="_blank">maoyou 发表于 2024-10-21 08:36</a>
+
+还是我们麦宝好，溜猫几天，轻松拿下小键帽
+
+—— 来自 鹅球 v3.1.88.3-alpha</blockquote>
+天天陪这狗子玩真的是累死人了<img src="https://static.saraba1st.com/image/smiley/animal2017/011.png" referrerpolicy="no-referrer">
+

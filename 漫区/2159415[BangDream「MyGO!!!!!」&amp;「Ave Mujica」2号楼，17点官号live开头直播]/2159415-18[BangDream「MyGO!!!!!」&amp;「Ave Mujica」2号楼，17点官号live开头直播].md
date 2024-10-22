@@ -3676,3 +3676,16 @@ mujica活动是比mygo动画播出早的，有些人真的能在mujica已经作�
 
 厨厨在百合企划死活找不到男角色可以代，都开始拿角色的爹来妄想了，看着真可怜
 
+
+*****
+
+####  adcdqre  
+##### 25480#       发表于 2024-10-23 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66518150&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-10-22 22:39:04</a>
+或许是因为最近的PV以及官方的新简介
+
+某些人终于开始意识到自己贷款一年一定要被踩被打败的“反派”根本不 ...</blockquote>连载期不就爆出来是真人团了我看是装傻比较多，尤其是之前看邦还这么讲的
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

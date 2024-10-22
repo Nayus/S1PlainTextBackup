@@ -1350,3 +1350,16 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 突然想到一个有点阴间的问题。如果这个游戏和其他作品联动，进卡池的联动角色是不是都要从骷髅复活成人才能加入<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  elven119  
+##### 175#         楼主| 发表于 2024-10-22 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66512992&amp;ptid=2156352" target="_blank">我猫呢? 发表于 2024-10-22 11:27</a>
+
+突然想到一个有点阴间的问题。如果这个游戏和其他作品联动，进卡池的联动角色是不是都要从骷髅复活成人才能 ...</blockquote>
+总有办法解释的吧，比如从传送门过来之类的。
+
+不过你这么一说，感觉和哥杀联动的可能性非常大啊
+

@@ -1342,3 +1342,11 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 关键这玩意儿还是个关键支线（救NPC）任务怪，太恶心了
 
+
+*****
+
+####  我猫呢?  
+##### 174#       发表于 2024-10-22 11:27
+
+突然想到一个有点阴间的问题。如果这个游戏和其他作品联动，进卡池的联动角色是不是都要从骷髅复活成人才能加入<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

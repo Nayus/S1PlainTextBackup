@@ -3167,3 +3167,13 @@ TCG只能锦上添花不能雪中送炭，二偶少一个质量过关的gaas游�
 
 我感觉是拉拉系列走的“王道”剧情风格不吃香了。这里要吸引人就得“乱”
 
+
+*****
+
+####  仟音一心  
+##### 302#       发表于 2024-10-22 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66512833&amp;ptid=2201887" target="_blank">Blackson 发表于 2024-10-22 11:14</a>
+我感觉是拉拉系列走的“王道”剧情风格不吃香了。这里要吸引人就得“乱” ...</blockquote>
+所以有了虹咲。
+

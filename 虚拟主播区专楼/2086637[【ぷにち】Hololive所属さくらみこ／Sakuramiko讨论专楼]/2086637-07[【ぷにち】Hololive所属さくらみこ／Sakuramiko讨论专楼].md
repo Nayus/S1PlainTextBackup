@@ -13264,3 +13264,24 @@ fuwamoco
 
 2024-10-22 10:58 上传
 
+
+*****
+
+####  holoan  
+##### 9970#         楼主| 发表于 2024-10-22 11:10
+
+<img src="https://img.saraba1st.com/forum/202410/22/110959kfae6j4fcezzo6df.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (13.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-22 11:09 上传
+
+*****
+
+####  holoan  
+##### 9971#         楼主| 发表于 2024-10-22 11:34
+
+昨天SC念到有一个从国内去日本参加现场live的，竟然真的有吗而且不是台湾那边的
+

@@ -939,3 +939,11 @@ Alt+tab切会这样，鼠标切回来基本就能换回手柄按键提示，总�
 —— 来自 鹅球 v3.3.92-alpha</blockquote>
 给玩家刷级用的吧，坏天气哪怕高三级收益也不是很低
 
+
+*****
+
+####  李喜睡  
+##### 3046#       发表于 2024-10-22 16:29
+
+这游戏中后期剧情还真是油门踩死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1029,3 +1029,23 @@ Alt+tab切会这样，鼠标切回来基本就能换回手柄按键提示，总�
 
   目前玩到诱拐事件突入城堡前，番长的战士原型已经到顶了但是和他的友好一直上不去3级转高级职业，是要怎么提升，还是要等后边剧情升级？
 
+
+*****
+
+####  莉可厨  
+##### 3056#       发表于 2024-10-22 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66516761&amp;ptid=2140224" target="_blank">yyman 发表于 2024-10-22 18:46</a>
+目前玩到诱拐事件突入城堡前，番长的战士原型已经到顶了但是和他的友好一直上不去3级转高级职业，是要怎 ...</blockquote>
+你这才第二张图呢，往后推吧
+
+
+*****
+
+####  莉可厨  
+##### 3056#       发表于 2024-10-22 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66516761&amp;ptid=2140224" target="_blank">yyman 发表于 2024-10-22 18:46</a>
+目前玩到诱拐事件突入城堡前，番长的战士原型已经到顶了但是和他的友好一直上不去3级转高级职业，是要怎 ...</blockquote>
+你这才第二张图呢，往后推吧
+

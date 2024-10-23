@@ -5378,3 +5378,15 @@ oyu直呼：母鸡卡！</blockquote>
 
 <img src="https://img.saraba1st.com/forum/202410/24/011505ih9wmcayjescllgm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives10  
+##### 25618#       发表于 2024-10-24 01:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66527753&amp;ptid=2159415" target="_blank">akiomn 发表于 2024-10-24 01:15</a>
+“海”景房</blockquote>
+这回收价也太黑了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+前两天煤炉刚出一套祥子的特典 售价99999被秒切
+海铃特典在闲鱼上成交价已经破万了
+

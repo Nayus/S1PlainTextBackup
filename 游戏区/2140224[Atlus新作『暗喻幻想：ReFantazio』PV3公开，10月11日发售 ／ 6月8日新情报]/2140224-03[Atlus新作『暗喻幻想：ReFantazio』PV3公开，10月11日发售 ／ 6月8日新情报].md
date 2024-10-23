@@ -1730,3 +1730,15 @@ hiho<img src="https://p.sda1.dev/19/66971d5da4129525a7bc38cff5b9f4c1/image.jpg" 
 
 全职业解锁给职业毕业装，还是有点鼓励你全职业解锁的
 
+
+*****
+
+####  kuarwbwe  
+##### 3116#       发表于 2024-10-24 00:12
+
+在邪见之塔费了半天劲升到35本来觉得可以好好刷怪升级了，然后我发现好像根本没必要在这刷级，而且还要保水晶好麻烦。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+想想最可惜的还是coop没安排好浪费了三天。遗憾。<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

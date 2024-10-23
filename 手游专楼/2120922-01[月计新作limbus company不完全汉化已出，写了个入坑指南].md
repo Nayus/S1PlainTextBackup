@@ -28,3 +28,11 @@
 
 血魔唐估计和船玛、狼夫一样是单人池，接下来就等着看间章会出什么新人格...
 
+
+*****
+
+####  Yuzutea  
+##### 949#       发表于 2024-10-23 09:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这赛季感觉像要超过惯例的六个三灯赛季人格了
+

@@ -3878,3 +3878,95 @@ mujica是真人团，那又如何
 
 突然就有一种那没事了的观感
 
+
+*****
+
+####  桜庭千景  
+##### 25498#       发表于 2024-10-23 10:40
+
+昨天忙着battle忘了提这个
+
+磨磨蹭蹭的，元素专有望成为mujica第一张破万的碟片
+
+到底是谁还在买.jpg
+
+-14170761881729651152476.jpg
+(4.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-23 10:41 上传
+
+<img src="https://img.saraba1st.com/forum/202410/23/104130cyrtq44cx2i28mr6.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 25499#       发表于 2024-10-23 10:40
+
+有一说一 
+mygo和mujica简介的第一句话
+就已经给两个团的情感关系定下基调了
+一辈子乐队 一定只属于团内的对象
+交付人生 也是一样的道理 只属于mujica
+证明了跨团的情感关系 不可能高于团内的情感关系（除非这个角色在团内没什么建立情感关系的对象）
+
+当然如果按有互动有对话就算赢的思路去想 那确实没什么问题
+
+*****
+
+####  6030sylar  
+##### 25500#       发表于 2024-10-23 10:41
+
+<img src="https://img.saraba1st.com/forum/202410/23/103902dhfhslgnvdtv1td4.png" referrerpolicy="no-referrer">
+
+<strong>f31d8b68e2b944c85460588949b6b0fd.png</strong> (60.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-23 10:39 上传
+
+<img src="https://img.saraba1st.com/forum/202410/23/103950qh3vu3463w6hp6h3.png" referrerpolicy="no-referrer">
+
+<strong>314e848b0a022aa3b7b507a4165bdd8c.png</strong> (105.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-23 10:39 上传
+
+<img src="https://img.saraba1st.com/forum/202410/23/104011aiox8578784g37sw.png" referrerpolicy="no-referrer">
+
+<strong>791028893069ca196d76d09df35773f4.png</strong> (95.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-23 10:40 上传
+
+<img src="https://img.saraba1st.com/forum/202410/23/104022iwj2jv3izjkf22qi.png" referrerpolicy="no-referrer">
+
+<strong>5ad819a7cb9b91c0ac4b8914e95bd40d.png</strong> (18.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-23 10:40 上传
+
+<img src="https://img.saraba1st.com/forum/202410/23/104030p85j8899rol390og.png" referrerpolicy="no-referrer">
+
+<strong>1dcb48b77c12561dfa41c5a559902158.png</strong> (98.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-23 10:40 上传
+
+<img src="https://img.saraba1st.com/forum/202410/23/104040l686gttw6ov1o6i6.png" referrerpolicy="no-referrer">
+
+<strong>8ad4f495e698536a5b6ea7b2b7f58cb2.png</strong> (119.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-23 10:40 上传
+
+[https://tieba.baidu.com/p/921980 ... ;cid=0#151073093380](https://tieba.baidu.com/p/9219800337?pid=151073093380&amp;cid=0#151073093380)
+
+转个辟谣
+

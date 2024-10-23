@@ -1324,3 +1324,25 @@ MP不担心的。
 
 —— 来自 OPPO PGBM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  牙狼GARO  
+##### 3080#       发表于 2024-10-23 13:19
+
+谢谢楼上各位，我现在社群还有两个没来，是不是就歌姬和三眼妹妹了？
+
+—— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Khellendros  
+##### 3081#       发表于 2024-10-23 13:21
+
+<blockquote>牙狼GARO 发表于 2024-10-23 13:19
+谢谢楼上各位，我现在社群还有两个没来，是不是就歌姬和三眼妹妹了？
+
+—— 来自 OnePlus LE2100, Android  ...</blockquote>
+三眼妹是倒数第二个，后面还有个队友
+

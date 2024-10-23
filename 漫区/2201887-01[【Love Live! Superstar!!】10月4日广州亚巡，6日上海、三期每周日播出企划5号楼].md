@@ -3419,3 +3419,25 @@ nagi确实也走了舞台剧这条路吧，nako也是没法子，声优这条路
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  adw667  
+##### 326#       发表于 2024-10-23 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66521088&amp;ptid=2201887" target="_blank">伊卡石 发表于 2024-10-23 11:03</a>
+
+星这边，除了鲤鱼是出道早，已明确走歌手路线，其他人应该还没有比较固定的发展路线？我最早想的是nako可能 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我老觉得nagi想考公
+
+
+*****
+
+####  adw667  
+##### 327#       发表于 2024-10-23 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66517769&amp;ptid=2201887" target="_blank">ruffian 发表于 2024-10-22 21:43</a>
+
+台词很多的集数，鱼自己搞不定需要菜宝帮忙那要么是台词复杂要么量大了，至于变化……情人节访谈那会小百合 ...</blockquote>
+性格变化如果是相较于第二季来说的话那还好，第三季我看到现在没什么不舒服的，偶尔有觉得尬的部分都是太抹布洗我脑子变了吃不下<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+

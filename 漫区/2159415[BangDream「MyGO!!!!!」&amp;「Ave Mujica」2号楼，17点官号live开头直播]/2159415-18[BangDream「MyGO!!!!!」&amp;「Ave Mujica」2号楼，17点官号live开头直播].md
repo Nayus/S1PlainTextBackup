@@ -4629,3 +4629,53 @@ mygo和mujica简介的第一句话
 
 2024-10-23 13:17 上传
 
+
+*****
+
+####  Royi  
+##### 25549#       发表于 2024-10-23 13:42
+
+爽睦关系主要还有个传声筒要素吧，特别是对立希很干脆的拒绝，但是祥子就算劝了睦，睦还是愿意当传声筒
+
+
+*****
+
+####  adcdqre  
+##### 25550#       发表于 2024-10-23 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66522702&amp;ptid=2159415" target="_blank">Royi 发表于 2024-10-23 13:42</a>
+
+爽睦关系主要还有个传声筒要素吧，特别是对立希很干脆的拒绝，但是祥子就算劝了睦，睦还是愿意当传声筒 ...</blockquote>
+好一个被自愿
+
+*****
+
+####  Aendst  
+##### 25551#       发表于 2024-10-23 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66522702&amp;ptid=2159415" target="_blank">Royi 发表于 2024-10-23 13:42</a>
+
+爽睦关系主要还有个传声筒要素吧，特别是对立希很干脆的拒绝，但是祥子就算劝了睦，睦还是愿意当传声筒 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是“祥厨”的理解吗，我真是信了你的邪
+
+*****
+
+####  skives  
+##### 25552#       发表于 2024-10-23 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66522702&amp;ptid=2159415" target="_blank">Royi 发表于 2024-10-23 13:42</a>
+爽睦关系主要还有个传声筒要素吧，特别是对立希很干脆的拒绝，但是祥子就算劝了睦，睦还是愿意当传声筒 ...</blockquote>
+这个说法就挺春秋笔法的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+要不要回忆一下立希联络之前发生了什么事
+
+*****
+
+####  Aendst  
+##### 25553#       发表于 2024-10-23 13:48
+
+说八百遍了，爽世需要睦传递给祥子的的重要信息，睦根本就没传达
+
+反而是爽世的状况，睦都直接告诉了祥子
+
+你一定要说传声筒的话，按照基本逻辑，睦在行为上是祥子的“传声筒”
+

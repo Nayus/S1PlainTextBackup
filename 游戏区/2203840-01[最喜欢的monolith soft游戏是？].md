@@ -648,3 +648,32 @@ xb2本体对我来说是一款超预期的优秀游戏（主要在地图设计�
 
 11月份还能再看到一次这个选题吗
 
+
+*****
+
+####  UIonTV  
+##### 64#       发表于 2024-10-23 13:35
+
+xb2唯一遗憾，雷老板人设太幼，为什么要这样做也许需要若干年后我才能参悟（总不能是喜欢开大车吧？）
+
+*****
+
+####  faithlifer  
+##### 65#       发表于 2024-10-23 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66522666&amp;ptid=2203840" target="_blank">UIonTV 发表于 2024-10-23 13:35</a>
+
+xb2唯一遗憾，雷老板人设太幼，为什么要这样做也许需要若干年后我才能参悟（总不能是喜欢开大车吧？） ...</blockquote>
+只有小孩才能有那种无畏吧，一种解释<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  UIonTV  
+##### 66#       发表于 2024-10-23 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66522672&amp;ptid=2203840" target="_blank">faithlifer 发表于 2024-10-23 13:36</a>
+
+只有小孩才能有那种无畏吧，一种解释</blockquote>
+可能只有这个年龄段才能说出“道理我也不懂，但我就是可以做到”这样的话。
+

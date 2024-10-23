@@ -5390,3 +5390,15 @@ oyu直呼：母鸡卡！</blockquote>
 前两天煤炉刚出一套祥子的特典 售价99999被秒切
 海铃特典在闲鱼上成交价已经破万了
 
+
+*****
+
+####  akiomn  
+##### 25619#       发表于 2024-10-24 01:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66527793&amp;ptid=2159415" target="_blank">skives10 发表于 2024-10-24 01:25</a>
+这回收价也太黑了
+前两天煤炉刚出一套祥子的特典 售价99999被秒切
+海铃特典在闲鱼上成交价已经破万了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好像这是当初限定cd附赠的，不太可能再版了
+

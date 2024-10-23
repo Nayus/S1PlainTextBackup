@@ -1479,3 +1479,38 @@ https://www.bilibili.com/video/BV1KuyWYcEng/
 
 90++也用兽蕾五加成换人打，发牌好点的话可以3t
 
+
+*****
+
+####  angelooo  
+##### 15060#       发表于 2024-10-23 20:54
+
+加班回来看到莉莉丝又赢了，好耶！
+
+*****
+
+####  johnkamsar  
+##### 15061#       发表于 2024-10-24 01:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">国服2宝，明年赢嘛！
+
+*****
+
+####  希望之花  
+##### 15062#       发表于 2024-10-24 05:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">高难用兽蕾无脑冲浪了
+
+90++也用兽蕾五加成换人打，发牌好点的话可以3t
+
+*****
+
+####  克苏鲁系青骑士  
+##### 15063#       发表于 2024-10-24 07:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66525932&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-10-23 20:15</a>
+昨天比较忙今天才有空把这活动打完
+
+这低难看系统提示有提到藤蔓好像在策划什么.....可我直接用兽蕾光炮洗 ...</blockquote>
+其他ae被break后没在下一T带走就会被吃掉<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

@@ -1754,3 +1754,21 @@ hiho<img src="https://p.sda1.dev/19/66971d5da4129525a7bc38cff5b9f4c1/image.jpg" 
 套路研究好了之后基本就定型了，倒是出个可以洗职业然后返还mag的系统是比较要紧的， ...</blockquote>
 问题就在全职业解锁送角色最终武器<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">各个非可控角色职业的最终武器也是看职业解锁率送
 
+
+*****
+
+####  莉可厨  
+##### 3118#       发表于 2024-10-24 01:06
+
+每个角色都有王家职业的设定总感觉有点过于引导构筑思路了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不过最影响大后战斗体验的还是隐藏boss太少，要多几个机制怪能逼着玩家组队就好了
+
+
+*****
+
+####  NEIN  
+##### 3119#       发表于 2024-10-24 01:11
+
+还好做了2个匙，不然最后路易真打不过
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

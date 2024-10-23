@@ -1460,3 +1460,14 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">宝箱怪，只要你开成功了，就只是个宝箱（开启后也给宝箱怪体液）
 
+
+*****
+
+####  elven119  
+##### 186#         楼主| 发表于 2024-10-23 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66522017&amp;ptid=2156352" target="_blank">lesword 发表于 2024-10-23 12:23</a>
+
+宝箱怪，只要你开成功了，就只是个宝箱（开启后也给宝箱怪体液）</blockquote>
+有个救人的支线强制战斗的
+

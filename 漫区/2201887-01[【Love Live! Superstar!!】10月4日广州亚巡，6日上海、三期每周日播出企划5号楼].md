@@ -3498,3 +3498,16 @@ nagi确实看不出，第一个拿到星外重要角色的是她，个人solo专
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  ads147147  
+##### 333#       发表于 2024-10-23 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66523132&amp;ptid=2201887" target="_blank">csolfans 发表于 2024-10-23 14:43</a>
+
+其实在日本，舞台剧演员地位如何
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 v3.0.0-alpha ...</blockquote>
+比演电视剧的高一点，但不多。
+

@@ -13344,3 +13344,26 @@ kanata第二次杀死了fbk<img src="https://static.saraba1st.com/image/smiley/f
 
 2024-10-22 21:23 上传
 
+
+*****
+
+####  holoan  
+##### 9978#         楼主| 发表于 2024-10-23 09:52
+
+今天还玩昨天联动的游戏，还跟观众玩
+
+sololive前沉迷血腥暴力游戏也是没谁了，剩3天了
+
+*****
+
+####  holoan  
+##### 9979#         楼主| 发表于 2024-10-23 10:11
+
+<img src="https://img.saraba1st.com/forum/202410/23/101130pzkcq3nl3gpqpj3z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (137.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-23 10:11 上传
+

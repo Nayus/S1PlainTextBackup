@@ -3330,3 +3330,13 @@ https://x.com/KISAYU_/status/1848032976841621640
 台词很多的集数，鱼自己搞不定需要菜宝帮忙那要么是台词复杂要么量大了，至于变化……情人节访谈那会小百合 ...</blockquote>
 变化应该指的是别人，可可的主轴应该是贯彻“不变”这个点的，总不能是“她都是装的”这种假药成真吧，你星就这么一个假药<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 316#       发表于 2024-10-23 10:11
+
+n站的米娜桑好像对红蓝营销不是很感兴趣，看看下一回冬毬怎么办吧。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

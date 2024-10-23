@@ -5225,3 +5225,26 @@ Anon mujuca,我，无畏契约！
 
 千春这是又在d4dj配了个路人？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  金属化反射装甲  
+##### 25604#       发表于 2024-10-23 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66526213&amp;ptid=2159415" target="_blank">arachnid 发表于 2024-10-23 20:59</a>
+
+Anon mujuca,我，无畏契约！
+
+oyu直呼：母鸡卡！</blockquote>
+为什么mujica真人团的面具不搞这种透明镂空设计呢，明明动画是镂空的耶<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  紫吹兰  
+##### 25605#         楼主| 发表于 2024-10-23 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66526439&amp;ptid=2159415" target="_blank">金属化反射装甲 发表于 2024-10-23 21:28</a>
+
+为什么mujica真人团的面具不搞这种透明镂空设计呢，明明动画是镂空的耶</blockquote>
+因为要保证3小时高强度live不坏
+

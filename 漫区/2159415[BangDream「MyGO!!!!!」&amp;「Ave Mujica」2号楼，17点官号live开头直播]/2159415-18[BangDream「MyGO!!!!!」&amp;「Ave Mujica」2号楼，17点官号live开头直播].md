@@ -4227,3 +4227,107 @@ mygo和mujica简介的第一句话
 
 当然，这些会被官方真正的关系性冲掉这一点我很赞同
 
+
+*****
+
+####  玖羽  
+##### 25518#       发表于 2024-10-23 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66521845&amp;ptid=2159415" target="_blank">狂热飞鸟 发表于 2024-10-23 12:10</a>
+
+比祥子好在哪，祥子除了组鸡团利用了一次睦，但实际都是尊重睦自己的选择的，爽世可是直接PUA且到现在都 ...</blockquote>
+我只是给你分析，祥睦缺温情桥段，这些人会觉得，爽世至少还有抱抱，就算是为了PUA的抱抱，也总比没有好
+
+这张图把这种思路表现得很精炼：
+
+<img src="https://img.saraba1st.com/forum/202410/23/121433l5rw0grgcw801vo0.jpg" referrerpolicy="no-referrer">
+
+<strong>orig.jpg</strong> (642.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-23 12:14 上传
+
+*****
+
+####  九陌狂游  
+##### 25519#       发表于 2024-10-23 12:17
+
+漏油又在内涵月之森大三角是吧，等明年大主播发力了楼上一个别想跑<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 25520#       发表于 2024-10-23 12:19
+
+大主播不是看風向的嗎，明年的風向……我很期待<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 25521#       发表于 2024-10-23 12:19
+
+ 本帖最后由 Aendst 于 2024-10-23 12:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66521927&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-10-23 12:16</a>
+
+我只是给你分析，祥睦缺温情桥段，这些人会觉得，爽世至少还有抱抱，就算是为了PUA的抱抱，也总比没有好
+
+ ...</blockquote>
+并非如此
+
+只要嗑爽睦，那么这张图的思路是：睦满脑子只想着手木（铁暗恋）
+
+而爽世给予了回应<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+在讨论社群一年半，爽睦厨怎么想就算我压根不想了解，也差不多能懂个八成
+
+*****
+
+####  PDQ4  
+##### 25522#       发表于 2024-10-23 12:20
+
+大主播不是已经嘴硬自己不黑祥子甚至要祥厨了吗
+
+前期带节奏是不是打算岁掉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 25523#       发表于 2024-10-23 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66521900&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-10-23 12:14</a>
+
+我不太能苟同
+
+睦和海铃是有相关场景的，而海铃确实表现出了关心
+
+睦和爽世的关系性，官方几乎都是从不谈论 ...</blockquote>
+海铃和睦太少了，而且海铃对立希之外的所有人都戴着公事公办的面具，对于建立关系性不太够
+
+我觉得还有一点，很多人对日本的冷暴力可能不是那么敏感，但是祥子对睦甩脸子是很明显的
+
+关键还是，睦除此之外实在没有其他得到描写的关系性了
+
+*****
+
+####  金属化反射装甲  
+##### 25524#       发表于 2024-10-23 12:21
+
+呃，我知道的自称月之森大三角爱好者的人喜欢祥子和睦这一条的基本是批皮，这应该叫平行线吧？<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  skives  
+##### 25525#       发表于 2024-10-23 12:23
+
+大主播前段时间发的那个视频太变态了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狂热飞鸟  
+##### 25526#       发表于 2024-10-23 12:26
+
+祥子对睦甩脸子这点在知道祥子年龄最小这点后，感觉就很好品了，睦莫名有了种宠妹妹感
+

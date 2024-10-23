@@ -1452,3 +1452,11 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  lesword  
+##### 185#       发表于 2024-10-23 12:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">宝箱怪，只要你开成功了，就只是个宝箱（开启后也给宝箱怪体液）
+

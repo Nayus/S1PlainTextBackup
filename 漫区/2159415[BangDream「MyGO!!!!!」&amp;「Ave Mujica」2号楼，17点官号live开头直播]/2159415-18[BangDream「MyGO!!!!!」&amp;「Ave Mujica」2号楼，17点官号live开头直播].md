@@ -5316,3 +5316,23 @@ oyu直呼：母鸡卡！</blockquote>
 
 虽然总有一种换新款也好看不起来的预感<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives10  
+##### 25612#       发表于 2024-10-23 22:26
+
+本来觉得必然会有揭面环节
+
+但故事简介最后一段又好像是暗示不会揭面的样子
+
+不过pv里初华的台词又暗示了假面会碎裂
+
+
+*****
+
+####  光MIKAN  
+##### 25613#       发表于 2024-10-23 22:33
+
+连cafe的浴衣谷子都带面具，对摘面具不抱希望了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

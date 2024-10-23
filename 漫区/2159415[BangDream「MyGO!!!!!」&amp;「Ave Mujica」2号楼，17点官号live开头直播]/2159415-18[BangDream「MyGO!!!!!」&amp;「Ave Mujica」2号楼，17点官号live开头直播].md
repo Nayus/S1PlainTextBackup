@@ -5248,3 +5248,19 @@ oyu直呼：母鸡卡！</blockquote>
 为什么mujica真人团的面具不搞这种透明镂空设计呢，明明动画是镂空的耶</blockquote>
 因为要保证3小时高强度live不坏
 
+
+*****
+
+####  NODY  
+##### 25606#       发表于 2024-10-23 21:43
+
+因为镂空设计顶不住一排别针就破光了（所以她们和花篮合照的时候都是直接把面具拿手上的，因为挂不住）
+
+<img src="https://img.saraba1st.com/forum/202410/23/214340zowduwa9yti4u4o0.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20231017231729.png</strong> (90.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-23 21:43 上传
+

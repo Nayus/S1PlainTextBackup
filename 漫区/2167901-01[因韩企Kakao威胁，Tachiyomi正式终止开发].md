@@ -3077,3 +3077,15 @@ mihon已经显示废弃了</blockquote>
 旧版卸载再安装新的，新旧签名不一致</blockquote>
 我是直接卸了以前装的tachiyomi再装的mihon，感觉找不到单独卸载旧插件的入口了……
 
+
+*****
+
+####  神宫司麻理茉  
+##### 285#       发表于 2024-10-23 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66522858&amp;ptid=2167901" target="_blank">舌怪 发表于 2024-10-23 14:04</a>
+我是直接卸了以前装的tachiyomi再装的mihon，感觉找不到单独卸载旧插件的入口了…… ...</blockquote>
+去手机的应用列表里面卸载
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

@@ -1742,3 +1742,15 @@ hiho<img src="https://p.sda1.dev/19/66971d5da4129525a7bc38cff5b9f4c1/image.jpg" 
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  SuNR1sE364  
+##### 3117#       发表于 2024-10-24 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66527240&amp;ptid=2140224" target="_blank">星野航 发表于 2024-10-23 23:34</a>
+又没有必要全职业解锁
+
+套路研究好了之后基本就定型了，倒是出个可以洗职业然后返还mag的系统是比较要紧的， ...</blockquote>
+问题就在全职业解锁送角色最终武器<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">各个非可控角色职业的最终武器也是看职业解锁率送
+

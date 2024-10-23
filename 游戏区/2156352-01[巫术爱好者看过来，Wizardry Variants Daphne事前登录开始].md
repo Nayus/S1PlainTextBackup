@@ -1491,3 +1491,14 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 这青铜阶级的升级任务真的是人能做的嘛？进去一个杂兵莉莉丝先手一巴掌打了我356还吸了我15mp<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  藤钢剑姬  
+##### 189#       发表于 2024-10-23 22:20
+
+今天看见一个文章介绍这个游戏的。结果这句话把我看笑
+“当然，作为一个古早的RPG系列，剧情一直以来都是“巫术”系列最大的亮点之一，《Wizardry Variants Daphne》也不例外。”
+
+—— 来自 HUAWEI MGA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

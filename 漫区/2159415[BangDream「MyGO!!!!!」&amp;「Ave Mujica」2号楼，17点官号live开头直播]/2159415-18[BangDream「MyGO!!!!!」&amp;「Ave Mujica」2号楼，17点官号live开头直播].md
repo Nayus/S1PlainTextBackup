@@ -3838,3 +3838,23 @@ https://x.com/_a_jak_/status/1848760808974750165?s=46&amp;t=IZGx0N13SOtHALpwG0Ub
 
 韓國人強勢回歸<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 25495#       发表于 2024-10-23 10:05
+
+确实就是这样，其实整理一下这些行为会发现
+
+希望mujica是反派，希望mujica爆炸，希望crychic有更多戏份，希望看到mygo第二季，希望灯拯救祥子爽世拯救睦，这些期望导向的是：希望整个mujica动画的角色重要戏份和高光都在高松灯和长崎爽世这两个角色身上
+
+至于为什么要这样，有漏油已经提到了有些人只能用主视角看待故事，经常看龙傲天作品的人一定更能体会
+
+武士道的资源倾斜可能加重了他们自视为主角的倾向
+
+mujica是真人团，那又如何
+
+以mujica为主角？初华喵梦海铃都谁啊，都得边缘
+
+睦和祥子？必须只给自己推提鞋
+

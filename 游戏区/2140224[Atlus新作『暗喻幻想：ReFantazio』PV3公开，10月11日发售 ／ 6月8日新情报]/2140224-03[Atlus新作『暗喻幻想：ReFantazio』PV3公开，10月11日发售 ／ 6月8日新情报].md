@@ -1165,3 +1165,16 @@ rpg设计太差劲了，因为职业进阶对于固有技能几乎没有提升�
 
 —— 来自 vivo V2304A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  忘却旋律  
+##### 3067#       发表于 2024-10-23 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66519315&amp;ptid=2140224" target="_blank">星野航 发表于 2024-10-23 06:24</a>
+
+就那头巾打扮，再顶不住也顶得住了好么
+
+更别说还有狗哥狗弟这俩小跟班</blockquote>
+如果是她演出时的装扮和发型 那确实顶不住，平时的头巾装扮怕不是主角主视角里全是大额头了
+

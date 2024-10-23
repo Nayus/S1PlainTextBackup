@@ -5336,3 +5336,11 @@ oyu直呼：母鸡卡！</blockquote>
 
 连cafe的浴衣谷子都带面具，对摘面具不抱希望了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  vigada  
+##### 25614#       发表于 2024-10-23 22:43
+
+但是假面不摘那要漂亮小女孩干什么…感觉还是会摘…的吧
+

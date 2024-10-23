@@ -1370,3 +1370,42 @@ MP不担心的。
 
 另外P3~P5好歹日历 差不多 有一年的时间， 这特么才6~10月  半年都没有 草了
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3084#       发表于 2024-10-23 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66523420&amp;ptid=2140224" target="_blank">忘却旋律 发表于 2024-10-23 15:19</a>
+内容是真特么少，全特么换皮怪 8年做的什么玩意 ，算了 安心等DQ3HD2D了，反正本来我买这个游戏就是过度一 ...</blockquote>
+这周可以试试浪漫沙加2
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+
+*****
+
+####  星野航  
+##### 3085#       发表于 2024-10-23 17:09
+
+dq3 hd还是可以期待的，至少八方2之后这个组制作水平不是太需要担心
+
+
+*****
+
+####  horacio  
+##### 3086#       发表于 2024-10-23 17:11
+
+demo我倒是觉得沙加2比暗喻好玩多了，马上逸剑加沙加2，dq3，回合制游戏是可以爽玩了
+
+*****
+
+####  忘却旋律  
+##### 3087#       发表于 2024-10-23 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66524463&amp;ptid=2140224" target="_blank">半江瑟瑟半江红 发表于 2024-10-23 17:04</a>
+
+这周可以试试浪漫沙加2
+
+—— 来自 鹅球 v3.3.92-alpha</blockquote>
+有考虑过 ，但是DQX 在线版 新版本7.0也还没全打完了，回头先把7.0主线当前主线跑完再说还有时间就浪漫沙加2
+

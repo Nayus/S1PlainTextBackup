@@ -5083,3 +5083,23 @@ mygo和mujica简介的第一句话
 
 查看全部评分
 
+
+*****
+
+####  skives10  
+##### 25591#       发表于 2024-10-23 16:43
+
+动画播了就都讨论动画了
+旧的烂梗肯定被新的烂梗冲没<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  桜庭千景  
+##### 25592#       发表于 2024-10-23 16:47
+
+只能说允悲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+因为动画拖太久，漏里一大部分漏u已经把各路访谈和设定集倒背如流了（因为其实本来也没多少）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+二创入脑的哥们可能来这里稍微说两句就暴露了然后被扣鹅，久而久之环境就成这样了
+

@@ -3534,3 +3534,22 @@ sayu配音的感觉真的不错，挺希望她能有配音资源，不过好像s
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有伯伯带，她根本不用太愁的
 
+
+*****
+
+####  奥柏伦亲王  
+##### 336#       发表于 2024-10-23 16:38
+
+主要是做声优卷生卷死的，想比现在发展得更好，得非常努力加上运气很好才行......
+
+你要问我，伊达小百合去做声优的话会发展的怎么样，我个人一定是看好的，绝对是有天赋的而且还自带粉丝群，但是本人有没有必要往这方向发展，是真的难说<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  ViyViy  
+##### 337#       发表于 2024-10-23 16:40
+
+ban代真是太草了，唯独不ban第三集，啥意思
+

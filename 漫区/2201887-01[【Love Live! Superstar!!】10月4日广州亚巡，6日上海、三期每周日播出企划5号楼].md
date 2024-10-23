@@ -3348,3 +3348,22 @@ n站的米娜桑好像对红蓝营销不是很感兴趣，看看下一回冬毬�
 
 红蓝确实工业糖精有些重，更重要的是三次元互动太少了连逆输入都没多少是怎么回事。
 
+
+*****
+
+####  ads147147  
+##### 318#       发表于 2024-10-23 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66520559&amp;ptid=2201887" target="_blank">仟音一心 发表于 2024-10-23 10:22</a>
+红蓝确实工业糖精有些重，更重要的是三次元互动太少了连逆输入都没多少是怎么回事。 ...</blockquote>
+主要还是Kuma和四季，个人是很难联想成一个人，比恋变成游戏宅这种搞怪都还要难一个级别。。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  cybernetics31  
+##### 319#       发表于 2024-10-23 10:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">熊连sns都没，互动还没她和鱼多
+

@@ -688,3 +688,24 @@ xb2唯一遗憾，雷老板人设太幼，为什么要这样做也许需要若�
 xb2唯一遗憾，雷老板人设太幼，为什么要这样做也许需要若干年后我才能参悟（总不能是喜欢开大车吧？） ...</blockquote>
 玩过黄金国后我才懂，阿德尔软肋太多导致没办法完全信任光，雷老板就可以
 
+
+*****
+
+####  ziyer  
+##### 68#       发表于 2024-10-23 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66522709&amp;ptid=2203840" target="_blank">UIonTV 发表于 2024-10-23 13:43</a>
+
+可能只有这个年龄段才能说出“道理我也不懂，但我就是可以做到”这样的话。 ...</blockquote>
+只有上没老下没小的小孩才敢创业和“整顿职场”<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hayate0079  
+##### 69#       发表于 2024-10-23 14:04
+
+选了XG XS3 XB2
+
+不过XG是史克威尔的，不是monolith soft
+

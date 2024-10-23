@@ -4687,3 +4687,61 @@ mygo和mujica简介的第一句话
 
 这楼被称为起手就是访谈/动画/官方设定，二创入脑建议去别的地方爆典，不然漏油还得不厌其烦的用这些东西反驳你<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 25555#       发表于 2024-10-23 13:58
+
+一年多了还在爽世的传声筒
+睦唯一当了“传声筒”的一次，是第八集被爽世利用愧疚感去找祥子了
+从头到尾爽世想拉祥子回ccc这件事睦从来没有说过，传了个寂寞
+尊重一下爽世瑞平的“总是做我不希望你做的事”好不好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Royi  
+##### 25556#       发表于 2024-10-23 13:59
+
+<blockquote>adcdqre 发表于 2024-10-23 13:45
+好一个被自愿。没被骂就能当成喜欢实在缺爱到有点可悲了</blockquote>
+倒也不是说喜欢，爽睦关系目前看来是挺负面的关系，不过睦对待爽世的态度也和对待看上去没啥关系的立希完全不一样
+
+属于是在负面的程度上，纠缠的很深，但要说睦对爽世态度是完全无关系也不太对劲吧
+
+
+*****
+
+####  adcdqre  
+##### 25557#       发表于 2024-10-23 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66522825&amp;ptid=2159415" target="_blank">Royi 发表于 2024-10-23 13:59</a>
+
+倒也不是说喜欢，爽睦关系目前看来是挺负面的关系，不过睦对待爽世的态度也和对待看上去没啥关系的立希完 ...</blockquote>
+有种病人自称跟医护人员纠缠很深的美
+
+*****
+
+####  Aendst  
+##### 25558#       发表于 2024-10-23 14:07
+
+ 本帖最后由 Aendst 于 2024-10-23 14:08 编辑 
+
+<img src="https://img.saraba1st.com/forum/202410/23/140648iamclja8irapoi9m.jpg" referrerpolicy="no-referrer">
+
+<strong>20241023150632.jpg</strong> (19.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-23 14:06 上传
+
+<img src="https://img.saraba1st.com/forum/202410/23/140757uhz2p29kvvgxkgp2.jpg" referrerpolicy="no-referrer">
+
+<strong>20241023150739.jpg</strong> (26.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-23 14:07 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">……散了吧
+

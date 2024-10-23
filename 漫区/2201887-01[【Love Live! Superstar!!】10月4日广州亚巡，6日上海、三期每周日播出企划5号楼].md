@@ -3488,3 +3488,13 @@ nagi确实看不出，第一个拿到星外重要角色的是她，个人solo专
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
 
+
+*****
+
+####  csolfans  
+##### 332#       发表于 2024-10-23 14:43
+
+其实在日本，舞台剧演员地位如何
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

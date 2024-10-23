@@ -5304,3 +5304,15 @@ oyu直呼：母鸡卡！</blockquote>
 
 摘面具这个，我只能说，别抱期待<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 25611#       发表于 2024-10-23 22:06
+
+不好说会不会摘，非要贯彻假面乐队的要旨换别款也可以……
+
+不要一直只有这一款就行
+
+虽然总有一种换新款也好看不起来的预感<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

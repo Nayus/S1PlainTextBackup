@@ -3511,3 +3511,18 @@ nagi确实看不出，第一个拿到星外重要角色的是她，个人solo专
 —— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 v3.0.0-alpha ...</blockquote>
 比演电视剧的高一点，但不多。
 
+
+*****
+
+####  ads147147  
+##### 334#       发表于 2024-10-23 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66522498&amp;ptid=2201887" target="_blank">奥柏伦亲王 发表于 2024-10-23 13:12</a>
+
+nako已经一张专辑两张EP了呀，就是偶像歌手
+
+nagi确实看不出，第一个拿到星外重要角色的是她，个人solo专辑 ...</blockquote>
+看解放的采访来说，nagi就是啥都想试试，燃烧自己挥洒青春的感觉。
+
+sayu配音的感觉真的不错，挺希望她能有配音资源，不过好像sayu现在的路线有点混沌。。
+

@@ -1312,3 +1312,15 @@ MP不担心的。
 
 这个图流程非常长，都进指令战斗打顶不住的
 
+
+*****
+
+####  baizhi  
+##### 3079#       发表于 2024-10-23 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66522285&amp;ptid=2140224" target="_blank">vacuumsword 发表于 2024-10-23 12:47</a>
+打到10月冒个泡。主角队说是包含了所有种族，战斗队员+船长也就8个，是不是少了个肥肥族？coop里面好像也没 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别忘了老爷爷啊，老爷爷是罗格族。
+
+—— 来自 OPPO PGBM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

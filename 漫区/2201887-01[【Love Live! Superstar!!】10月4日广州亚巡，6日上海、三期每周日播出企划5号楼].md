@@ -3441,3 +3441,25 @@ nagi确实也走了舞台剧这条路吧，nako也是没法子，声优这条路
 台词很多的集数，鱼自己搞不定需要菜宝帮忙那要么是台词复杂要么量大了，至于变化……情人节访谈那会小百合 ...</blockquote>
 性格变化如果是相较于第二季来说的话那还好，第三季我看到现在没什么不舒服的，偶尔有觉得尬的部分都是太抹布洗我脑子变了吃不下<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csolfans  
+##### 328#       发表于 2024-10-23 12:59
+
+<img src="https://p.sda1.dev/19/bc4374ef9ca73be3f4b88667891f02af/CMP_20241023125833994.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+
+*****
+
+####  csolfans  
+##### 329#       发表于 2024-10-23 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66520559&amp;ptid=2201887" target="_blank">仟音一心 发表于 2024-10-23 10:22</a>
+红蓝确实工业糖精有些重，更重要的是三次元互动太少了连逆输入都没多少是怎么回事。 ...</blockquote>
+星三次元太混沌(褒义)了……kuma&amp;结那;yabu&amp;小百合;主打各种意想不到。现在看来，虽然没明说，non和pay应该也经常出去玩
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

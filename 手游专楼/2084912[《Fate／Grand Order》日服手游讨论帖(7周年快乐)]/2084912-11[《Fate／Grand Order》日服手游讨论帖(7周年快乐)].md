@@ -1469,3 +1469,13 @@ https://www.bilibili.com/video/BV1KuyWYcEng/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">国服2宝，明年赢嘛！
 
+
+*****
+
+####  希望之花  
+##### 15059#       发表于 2024-10-24 05:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">高难用兽蕾无脑冲浪了
+
+90++也用兽蕾五加成换人打，发牌好点的话可以3t
+

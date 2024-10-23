@@ -3561,3 +3561,13 @@ ban代真是太草了，唯独不ban第三集，啥意思
 
 答案是一周限时放送
 
+
+*****
+
+####  ads147147  
+##### 339#       发表于 2024-10-23 16:58
+
+其实是代便授权播一周就下线<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

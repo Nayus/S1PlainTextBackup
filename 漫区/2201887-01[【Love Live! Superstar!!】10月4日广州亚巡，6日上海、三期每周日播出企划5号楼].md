@@ -3571,3 +3571,13 @@ ban代真是太草了，唯独不ban第三集，啥意思
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  csolfans  
+##### 340#       发表于 2024-10-23 23:23
+
+<img src="https://p.sda1.dev/19/aef8b69e6386e8f4c2f680e392d2692b/CMP_20241023232307162.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

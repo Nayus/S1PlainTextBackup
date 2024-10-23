@@ -8372,3 +8372,19 @@ nm难度庭院有几个限制回合数的boss有点麻烦，瘦狼那一层我�
 啥情况
 <img src="https://p.sda1.dev/19/10013f7b80680e71d7330843129c7e31/20241023_220253.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  liuguokobe  
+##### 6698#       发表于 2024-10-24 01:53
+
+<img src="https://img.saraba1st.com/forum/202410/24/015330kt2ei61krke1r1ss.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20241024015309.png</strong> (56.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-24 01:53 上传
+
+f社你非要这样说话么，上来一见面就xx不见(第一次听到有人会说“昨日ぶり”）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

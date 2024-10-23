@@ -5344,3 +5344,20 @@ oyu直呼：母鸡卡！</blockquote>
 
 但是假面不摘那要漂亮小女孩干什么…感觉还是会摘…的吧
 
+
+*****
+
+####  sweet.  
+##### 25615#       发表于 2024-10-23 22:51
+
+会摘的！（真的吗）
+
+*****
+
+####  Toki_Ai  
+##### 25616#       发表于 2024-10-23 22:54
+
+目标是二代萝，那铁摘，毕竟要角色不可崩的<img src="https://static.saraba1st.com/image/smiley/face2017/178.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

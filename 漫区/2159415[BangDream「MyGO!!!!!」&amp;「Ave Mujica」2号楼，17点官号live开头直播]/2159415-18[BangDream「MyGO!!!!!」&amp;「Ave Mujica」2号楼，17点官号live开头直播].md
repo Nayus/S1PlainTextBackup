@@ -4867,3 +4867,43 @@ mygo和mujica简介的第一句话
 
 大概知道这位“祥厨”的“滤镜”是什么东西了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/19/60cbfd033d30bbbb5cc33b3106cd639f/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 25572#       发表于 2024-10-23 14:28
+
+没什么的，可以大胆说，会有群体护盾加血，虽然厨厨爆典都没触发护盾效果，但爱应该是可以的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 25573#       发表于 2024-10-23 14:29
+
+这就是我为什么喜欢大热原创作品的原因
+场外也有这么多的节目效果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Royi  
+##### 25574#       发表于 2024-10-23 14:32
+
+并没有披皮啊，可以说自mygo完结后的这一年多里，前所未有的喜欢祥子这个角色
+
+漏油似乎总希望把我打成某种特殊立场的人，认为我的行为在反串
+
+*****
+
+####  -LYRE-  
+##### 25575#       发表于 2024-10-23 14:33
+
+鉴定为喜欢看空中飞祥跪地痛哭的“大祥老师”厨
+和认为睦活该被pua、喜欢看睦被霸凌被殴打的“睦厨”坐一桌<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 25576#       发表于 2024-10-23 14:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果你依旧认为自己是真心实意喜欢祥子，那我只能说，被你“喜欢”上的角色真可怜
+

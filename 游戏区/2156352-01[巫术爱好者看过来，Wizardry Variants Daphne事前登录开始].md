@@ -1442,3 +1442,13 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 哭了，卡了我两天的宝箱怪，原来有机制。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  warerest  
+##### 184#       发表于 2024-10-23 09:26
+
+打到二周目抽到都是重复金，一怒之下买号重开了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

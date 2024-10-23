@@ -1352,3 +1352,14 @@ https://www.bilibili.com/video/BV1KuyWYcEng/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我活动礼装第五张还没出
 
+
+*****
+
+####  alucardcz  
+##### 15048#       发表于 2024-10-23 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66521098&amp;ptid=2084912" target="_blank">v22325 发表于 2024-10-23 11:04</a>
+
+我活动礼装第五张还没出</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/273.png" referrerpolicy="no-referrer">虽然但是  任务给
+

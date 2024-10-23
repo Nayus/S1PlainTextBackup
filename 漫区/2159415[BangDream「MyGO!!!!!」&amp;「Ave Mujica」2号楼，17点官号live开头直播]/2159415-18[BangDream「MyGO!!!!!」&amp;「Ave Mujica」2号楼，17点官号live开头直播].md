@@ -4162,3 +4162,68 @@ mygo和mujica简介的第一句话
 
 然后沉淀发酵一年多，自然会演变成这样，等开播之后展现出更多新鲜的关系性，这些很快就会被冲掉
 
+
+*****
+
+####  御幸一也  
+##### 25514#       发表于 2024-10-23 12:07
+
+這不就是一直不播導致環境那麼惡臭嘛，二創入腦後這些人等ave播了不知道會不會來一句綾奈根本不懂mygo和avemujica<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狂热飞鸟  
+##### 25515#       发表于 2024-10-23 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66521768&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-10-23 12:05</a>
+
+我记得之前说过这个问题 很容易理解，睦展现出来的关系性只有爽世和祥子，很多人会觉得，爽世虽然PUA，但 ...</blockquote>
+比祥子好在哪，祥子除了组鸡团利用了一次睦，但实际都是尊重睦自己的选择的，爽世可是直接PUA且到现在都都睦毫无愧疚，把c团解散归咎于睦
+
+
+*****
+
+####  PDQ4  
+##### 25516#       发表于 2024-10-23 12:14
+
+“爽世虽然pua”这点其实也很微妙，因为爽睦厨大多会绕过这一点
+会从pua下手去嗑的少之又少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而嘴硬祥子对睦不好的时候只知道拿12集结尾的喵祥交锋说话
+至于祥子不让睦当信鸽，13集劝诱前给睦选择权这两点
+前者被认为是王母娘娘棒打鸳鸯，后者是睦败犬心伤/或者直接嘴硬是被迫加入
+
+虽然都是轮回，但是铁暗恋的论点真的看一次想笑一次<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 25517#       发表于 2024-10-23 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66521768&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-10-23 12:05</a>
+
+我记得之前说过这个问题 很容易理解，睦展现出来的关系性只有爽世和祥子，很多人会觉得，爽世虽然PUA，但 ...</blockquote>
+我不太能苟同
+
+睦和海铃是有相关场景的，而海铃确实表现出了关心
+
+睦和爽世的关系性，官方几乎都是从不谈论或者负面评价的态度
+
+也可能正是因为官方在后期表达的态度很明显，所以每次访谈都能看到爽睦厨破防<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+从另一个角度说
+
+日本人的讨论社群里几乎看不到爽睦，如果能聊起来，多半是在说爽世很恐怖
+
+同样也有日本人说祥子对睦的态度“睦做不到这种事”（温柔）和爽世对睦的态度“总是做我不希望你做的事”（强压）是明确的对比
+
+说到底，爽睦确实会有就喜欢硬拉冷门的那部分人群喜欢，但这么大规模的“喜欢”，甚至集体往睦暗恋爽世，爽睦甜甜甜的方向脑补
+
+已经和官方表现的关系性没有太大关联了
+
+实际上也不是沉淀发酵一年多，因为官方在这一年间透露的内容，嗑爽睦的人反而大量减少了（基本上是断崖式的掉热度）
+
+以前爽睦厨可是会直接踩睦祥说睦祥根本不熟的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当然，这些会被官方真正的关系性冲掉这一点我很赞同
+

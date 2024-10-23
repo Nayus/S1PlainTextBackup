@@ -8351,3 +8351,15 @@ nm难度庭院有几个限制回合数的boss有点麻烦，瘦狼那一层我�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">从19级刷到30级还没够晶片给桃花剑全身开孔，更别说其他人了，好后悔更新了1.7
 
+
+*****
+
+####  隔壁老黄  
+##### 6696#       发表于 2024-10-23 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66513570&amp;ptid=2160194" target="_blank">最终兵器狂战 发表于 2024-10-22 12:24</a>
+俺寻思这不一样啊。闪2明确是红魔城搞定宰相吐便当故事告一段落了；闪1虽然也是类似被巴掌拍飞，但是起码 ...</blockquote>
+闪1实际就是个序章，基本等于啥都没说，闪2后日谈桃花剑当了他爹的菜刀到处搞侵略，都快憋出抑郁症了，闪3最后失控被抓其实也就延续了闪轨系列的结局而已
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

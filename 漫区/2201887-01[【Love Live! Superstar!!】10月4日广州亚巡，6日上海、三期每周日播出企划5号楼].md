@@ -3390,3 +3390,13 @@ nagi确实也走了舞台剧这条路吧，nako也是没法子，声优这条路
 
 nagi确实也走了舞台剧这条路吧，nako也是没法子，声优这条路确实很看事务所资源。
 
+
+*****
+
+####  仟音一心  
+##### 323#       发表于 2024-10-23 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66521088&amp;ptid=2201887" target="_blank">伊卡石 发表于 2024-10-23 11:03</a>
+星这边，除了鲤鱼是出道早，已明确走歌手路线，其他人应该还没有比较固定的发展路线？我最早想的是nako可能 ...</blockquote>
+但是第一个配其他动画的就是nagi。
+

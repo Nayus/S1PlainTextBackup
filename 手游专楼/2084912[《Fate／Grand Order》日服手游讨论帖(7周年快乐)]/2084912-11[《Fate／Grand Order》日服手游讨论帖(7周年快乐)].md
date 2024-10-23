@@ -1336,3 +1336,11 @@ https://www.bilibili.com/video/BV1KuyWYcEng/
 库库带上活动加伤害的礼装配合双杀狐和奥伯龙能轻松3回合，1宝也不是问题 ...</blockquote>
 有道满吗，大姐姐用即死服+被动+奥伯龙1技能刚好开宝具，道满配合即死服即死第二面，第三面直接秒了。换人都不用换人。
 
+
+*****
+
+####  克苏鲁系青骑士  
+##### 15046#       发表于 2024-10-23 08:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">放弃动脑双杀狐带洗牌服让库库在T2打红爆了，只要有一张红卡就能解，洗不出就当无事发生了
+

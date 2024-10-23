@@ -3785,3 +3785,14 @@ c团剧情能涉及到go 3～4人（一般贷款爱音会加入局内），却�
 
 剩下那家因为剧场版某个剧情已经骂动画组姨姥骂了半个月了
 
+
+*****
+
+####  御幸一也  
+##### 25490#       发表于 2024-10-23 08:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66519030&amp;ptid=2159415" target="_blank">akiomn 发表于 2024-10-23 01:39</a>
+
+很多人想看的压根不是avemujica，想看的是bangdream its mygo 2。点名有些灯祥素睦党，想看的是灯祥素睦吗 ...</blockquote>
+樓友好敢說 點了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

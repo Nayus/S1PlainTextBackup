@@ -4076,3 +4076,89 @@ mygo和mujica简介的第一句话
 
 也是贴吧永恒话题里的月之森大三角中车祥部分
 
+
+*****
+
+####  uhiuk  
+##### 25508#       发表于 2024-10-23 11:58
+
+我入坑晚品鉴的不多， 只是观光一些遗迹也觉得确实难绷<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 25509#       发表于 2024-10-23 11:59
+
+其实磕不健康关系性cp本身倒是没什么 
+磕素祥的还一大把呢 
+我唯一不理解的是
+这cp的同人怎么一大堆都要特地打上丰川祥子tag 这脑回路也太奇葩了 无法理解
+
+*****
+
+####  PDQ4  
+##### 25510#       发表于 2024-10-23 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66521580&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-10-23 11:47</a>
+ 在各种意义上都完全不尊重角色，才会在现阶段去嗑爽睦 爽睦在mygo动画中的相处完全是爽世在利用睦，甚至用 ...</blockquote>
+这群人要是能闭嘴搞颜色，不指点江山还能当看不见
+天天把xp塞入正经讨论还要昭告天下装懂哥属实闹麻了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+最后就是喊着什么二创自由、假药图一乐，梗着脖子说是你们极端<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 25511#       发表于 2024-10-23 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66521715&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-10-23 12:00</a>
+
+这群人要是能闭嘴搞颜色，不指点江山还能当看不见
+
+天天把xp塞入正经讨论还要昭告天下装懂哥属实闹麻了
+
+最 ...</blockquote>
+泥漏之前那个趁着结界大开进来说你们都不懂小众xp
+
+就是要ryona然后不停打滚干扰正常讨论，后来好像还被封了的“祥厨”
+
+好像也说过这种话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 25512#       发表于 2024-10-23 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66521647&amp;ptid=2159415" target="_blank">桜庭千景 发表于 2024-10-23 11:54</a>
+
+鸡杂祥厨雷素睦的一大原因是，
+
+磕这个
+
+容易拿“祥子也干了”“祥子盐睦头”“睦头选择帮素，是祥子不对”来 ...</blockquote>
+所謂的“月之森大三角”，怎麼感覺都是喜歡素祥和睦爽在說<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+至少我很少看正常喜歡睦祥的說這東西
+
+睦和祥子的關係已經那麼緊密了，為什麼要插一個第三者<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+而他們這種角度下的祥子，通常會對爽世“愧疚”和“後悔”，睦也是“鐵暗戀”爽世，
+
+加上爽世對祥子的看重和對睦的“女同性恨”，嗒噠。
+
+*****
+
+####  玖羽  
+##### 25513#       发表于 2024-10-23 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66521580&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-10-23 11:47</a>
+
+在各种意义上都完全不尊重角色，才会在现阶段去嗑爽睦
+
+爽睦在mygo动画中的相处完全是爽世在利用睦，甚至用 ...</blockquote>
+我记得之前说过这个问题<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer"> 很容易理解，睦展现出来的关系性只有爽世和祥子，爽世虽然PUA，但总比祥子好一点
+
+你们说这些，本质上也是这个问题，Ave Mujica五人目前展现出来的关系性非常少，已有的部分大多也和MyGO五人相关
+
+然后沉淀发酵一年多，自然会演变成这样，等开播之后展现出更多新鲜的关系性，这些很快就会被冲掉
+

@@ -3526,3 +3526,11 @@ nagi确实看不出，第一个拿到星外重要角色的是她，个人solo专
 
 sayu配音的感觉真的不错，挺希望她能有配音资源，不过好像sayu现在的路线有点混沌。。
 
+
+*****
+
+####  cybernetics31  
+##### 335#       发表于 2024-10-23 15:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有伯伯带，她根本不用太愁的
+

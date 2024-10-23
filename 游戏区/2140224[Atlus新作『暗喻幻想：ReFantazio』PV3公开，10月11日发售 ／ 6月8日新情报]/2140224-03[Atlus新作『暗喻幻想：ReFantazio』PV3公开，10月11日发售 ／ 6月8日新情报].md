@@ -1695,3 +1695,20 @@ hiho<img src="https://p.sda1.dev/19/66971d5da4129525a7bc38cff5b9f4c1/image.jpg" 
 
 而且中前期搭配职业还算有自由度，后期直接给角色限定有进化树的专属职业，不仅卡资源还限制自由度。Mag紧缺，前期还预览不到王家职业进化树
 
+
+*****
+
+####  星野航  
+##### 3113#       发表于 2024-10-23 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66526955&amp;ptid=2140224" target="_blank">抽烟的猴 发表于 2024-10-23 23:52</a>
+
+辱蕾拉了</blockquote>
+处理得好的蕾拉嘛
+
+定位就是那么个定位
+
+身负一定隐情，做了恶事
+
+无非松饼是一路坏完了，蕾拉本质向善自我终结
+

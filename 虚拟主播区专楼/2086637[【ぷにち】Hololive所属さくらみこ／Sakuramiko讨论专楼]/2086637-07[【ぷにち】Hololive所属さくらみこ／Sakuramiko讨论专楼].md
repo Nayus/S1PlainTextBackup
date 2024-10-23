@@ -13428,3 +13428,28 @@ miko杀死了8字母厨。
 
 另外一提刚才那个pkmk的ID被人查出来的是蝗虫/FH分子，为了参加直播改了ID名
 
+
+*****
+
+####  holoan  
+##### 9986#         楼主| 发表于 2024-10-23 23:23
+
+果然七字母的肥姑妈要在近期同时宣布预售开始，看来时机就是sololive了
+
+而既然maxfactory都直接赞助了就不可能只卖一个肥姑妈，所以推测会有其他数个新的手办在sololive上同时宣布发表
+
+*****
+
+####  holoan  
+##### 9987#         楼主| 发表于 2024-10-23 23:28
+
+<img src="https://img.saraba1st.com/forum/202410/23/232840rt16bnxqz5g4oseg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (144.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-23 23:28 上传
+
+这是封面图，25号直播
+

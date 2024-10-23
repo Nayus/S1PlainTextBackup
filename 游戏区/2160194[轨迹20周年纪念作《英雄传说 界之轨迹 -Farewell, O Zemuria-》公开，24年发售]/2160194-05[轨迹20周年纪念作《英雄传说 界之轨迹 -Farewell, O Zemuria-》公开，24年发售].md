@@ -8343,3 +8343,11 @@ nm难度庭院有几个限制回合数的boss有点麻烦，瘦狼那一层我�
 
  · Falcom擅长制作JRPG，除了轨迹也打算创建新的IP，为JRPG市场做出贡献。
 
+
+*****
+
+####  洛克萨斯  
+##### 6695#       发表于 2024-10-23 10:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">从19级刷到30级还没够晶片给桃花剑全身开孔，更别说其他人了，好后悔更新了1.7
+

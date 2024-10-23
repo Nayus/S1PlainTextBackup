@@ -4784,3 +4784,86 @@ mygo和mujica简介的第一句话
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">大火指的是大主播的粉絲裡大火嗎
 
+
+*****
+
+####  Royi  
+##### 25563#       发表于 2024-10-23 14:18
+
+<blockquote>Aendst 发表于 2024-10-23 14:07
+……散了吧</blockquote>
+其实截图也能看出，那时候都是动画播出期间的当时的评论，无可否认的是当时大主播的意见影响了很多个人判断
+
+且当时各类访谈啥的也没出，那个时期的人肯定不如现在论据充足
+
+*****
+
+####  Aendst  
+##### 25564#       发表于 2024-10-23 14:20
+
+ 本帖最后由 Aendst 于 2024-10-23 14:21 编辑 
+
+正常讨论没什么，昨天晚上如果不是这位漏油最后的想法太迷惑，期间还是有在合理讨论的，甚至友善讨论过“开播前要怎么调理”
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但说出来的话自相矛盾，有一种诡异的观感，然后还不能让人信服，那真的有点难以交流
+
+这种泥漏聊烂的东西，还不如多聊一点小岛追爱和大战森美奈美<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鳥栖朝  
+##### 25565#       发表于 2024-10-23 14:22
+
+ 本帖最后由 鳥栖朝 于 2024-10-23 14:23 编辑 
+
+只能说贫穷、咳嗽和爱是藏不住的，越是隐藏就越是欲盖弥彰，答应我不要为了你喜欢的东西去伪装成你讨厌的东西，好吗？
+
+*****
+
+####  adcdqre  
+##### 25566#       发表于 2024-10-23 14:22
+
+昨天就发现了言辞之间很叵测偷换概念和诡辩要素比较多，以为是漏油想多玩一会
+
+*****
+
+####  Royi  
+##### 25567#       发表于 2024-10-23 14:22
+
+<blockquote>Aendst 发表于 2024-10-23 14:20
+正常讨论没什么，昨天晚上如果不是这位漏油最后的想法太迷惑，期间还是有在合理讨论的，甚至友善讨论过“开 ...</blockquote>
+现在我的感想是刘姥姥进了大观园
+
+
+*****
+
+####  Aendst  
+##### 25568#       发表于 2024-10-23 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66522979&amp;ptid=2159415" target="_blank">Royi 发表于 2024-10-23 14:22</a>
+
+现在我的感想是刘姥姥进了大观园</blockquote>
+没关系，我也大开眼界，没想到泥漏还能有批皮祥厨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鳥栖朝  
+##### 25569#       发表于 2024-10-23 14:26
+
+<blockquote>Aendst 发表于 2024-10-23 14:25
+没关系，我也大开眼界，没想到泥漏还能有批皮祥厨</blockquote>
+你祥怎么老招这些<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 25570#       发表于 2024-10-23 14:27
+
+不明白为什么要批皮，你没有喜欢的东西吗，还是你喜欢的东西说出来会让你觉得丢人吗
+
+*****
+
+####  -LYRE-  
+##### 25571#       发表于 2024-10-23 14:28
+
+大概知道这位“祥厨”的“滤镜”是什么东西了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/19/60cbfd033d30bbbb5cc33b3106cd639f/image.jpg" referrerpolicy="no-referrer">
+

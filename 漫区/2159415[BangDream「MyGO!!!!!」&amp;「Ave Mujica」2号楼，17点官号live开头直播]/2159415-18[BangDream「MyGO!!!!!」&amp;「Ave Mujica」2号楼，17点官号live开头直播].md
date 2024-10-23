@@ -4982,3 +4982,16 @@ mygo和mujica简介的第一句话
 
 强烈的剧情冲突不等于故意毫无逻辑的喂屎好吧
 
+
+*****
+
+####  星天观测  
+##### 25584#       发表于 2024-10-23 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66523071&amp;ptid=2159415" target="_blank">-LYRE- 发表于 2024-10-23 14:33</a>
+
+鉴定为喜欢看空中飞祥跪地痛哭的“大祥老师”厨
+
+和认为睦活该被pua、喜欢看睦被霸凌被殴打的“睦厨”坐一桌 ...</blockquote>
+别咯，我们初华厨已经很少了，再来几个这种的怕不是都要润完了<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+

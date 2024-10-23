@@ -1346,3 +1346,13 @@ MP不担心的。
 —— 来自 OnePlus LE2100, Android  ...</blockquote>
 三眼妹是倒数第二个，后面还有个队友
 
+
+*****
+
+####  kusanagi9999  
+##### 3082#       发表于 2024-10-23 14:47
+
+八年就做了一个这么土的绝世土游，我看阿特拉斯也快入土了
+
+—— 来自 Xiaomi 23116PN5BC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

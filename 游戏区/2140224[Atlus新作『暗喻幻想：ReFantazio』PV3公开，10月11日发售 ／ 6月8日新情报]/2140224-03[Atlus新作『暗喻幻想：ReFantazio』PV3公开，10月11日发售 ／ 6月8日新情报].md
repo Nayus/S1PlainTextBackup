@@ -1610,3 +1610,26 @@ P5的时候就想吐槽了，为什么A社游戏的2D过场动画质量这么差
 —— 来自 鹅球 v3.3.92-alpha</blockquote>
 凯瑟琳娜也还行吧
 
+
+*****
+
+####  星野航  
+##### 3106#       发表于 2024-10-23 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66525999&amp;ptid=2140224" target="_blank">hsyg 发表于 2024-10-23 21:26</a>
+
+一直很在意，最后山下育人整了点啥，好像完全没有人聊。</blockquote>
+铁甲战车的机设来自山下育人
+
+*****
+
+####  星野航  
+##### 3107#       发表于 2024-10-23 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66525960&amp;ptid=2140224" target="_blank">modkingr 发表于 2024-10-23 21:19</a>
+
+2D最好的部分我觉得应该是进战斗时候的那几个动画
+
+队友原型面纹高亮的cut-in还是非常帅的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怒目cut是每年atlus拿来卖钱的谷柄，这还不画好点拿啥卖钱
+

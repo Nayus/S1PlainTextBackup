@@ -5264,3 +5264,23 @@ oyu直呼：母鸡卡！</blockquote>
 
 2024-10-23 21:43 上传
 
+
+*****
+
+####  arachnid  
+##### 25607#       发表于 2024-10-23 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66526460&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-10-23 21:30</a>
+
+因为要保证3小时高强度live中不坏不大幅度位移</blockquote>
+是的，我估计应该就是出于要在高强度live中不坏能循环利用这个原因所以才把面具做成那样，不过我想最大原因应该还是跟成本有关，要搞动画那种镂空的面具不难，但是可能就是每场live都要更换新的面具，某公司不想额外花钱在这个上面，所以就做成现在那样，一劳永逸让声优她们用一辈子
+
+这只是我自己的想法，不一定对...
+
+*****
+
+####  金属化反射装甲  
+##### 25608#       发表于 2024-10-23 21:51
+
+为了维持人物设定挺辛苦的样子，以后应该会摘掉吧<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+

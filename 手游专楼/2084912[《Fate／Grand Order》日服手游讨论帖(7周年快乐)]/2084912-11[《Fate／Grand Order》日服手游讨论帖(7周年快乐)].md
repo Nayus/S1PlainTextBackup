@@ -1441,3 +1441,15 @@ https://www.bilibili.com/video/BV1KuyWYcEng/
 
 —— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  森兰丸  
+##### 15056#       发表于 2024-10-23 20:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">昨天比较忙今天才有空把这活动打完
+
+这低难看系统提示有提到藤蔓好像在策划什么.....可我直接用兽蕾光炮洗地4T过了
+
+不知道让藤蔓成功的话这机制是什么....盲猜应该是把LIP和莉莉丝都给吃了来强化自己
+

@@ -719,3 +719,29 @@ fear 和fear 2
 
 死刑犯罪恶起源
 
+
+*****
+
+####  hourousha  
+##### 71#       发表于 2024-10-23 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66523647&amp;ptid=2203840" target="_blank">maninhole 发表于 2024-10-23 15:44</a>
+
+fear 和fear 2
+
+死刑犯罪恶起源</blockquote>
+fear是fps那个？
+
+你说的这个是做《升刚》《无人永生》的Monolith Productions，和谭游这个完全不是一公司啊。
+
+*****
+
+####  maninhole  
+##### 72#       发表于 2024-10-23 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66523993&amp;ptid=2203840" target="_blank">hourousha 发表于 2024-10-23 16:19</a>
+fear是fps那个？
+
+你说的这个是做《升刚》《无人永生》的Monolith Productions，和谭游这个完全不是一公司 ...</blockquote>
+对 我是故意的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

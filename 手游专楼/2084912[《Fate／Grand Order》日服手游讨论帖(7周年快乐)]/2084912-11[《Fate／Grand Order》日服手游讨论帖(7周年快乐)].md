@@ -1374,3 +1374,52 @@ https://www.bilibili.com/video/BV1KuyWYcEng/
 虽然但是  任务给</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">草生，还有几个没做完
 
+
+*****
+
+####  jackyhuang  
+##### 15050#       发表于 2024-10-23 17:15
+
+强解和绿放前置，真是好省事的强化啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+
+*****
+
+####  Jamaisvu  
+##### 15051#       发表于 2024-10-23 17:17
+
+<img src="https://img.saraba1st.com/forum/202410/23/171720a2qf2b8bcffj2g2x.jpg" referrerpolicy="no-referrer">
+
+<strong>1729674961126.jpg</strong> (118.64 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-10-23 17:17 上传
+
+莉莉丝复刻+宝具本，喜提全面强化！
+
+这是绿卡的胜利（误）
+
+*****
+
+####  cckuku  
+##### 15052#       发表于 2024-10-23 17:18
+
+我超，运营还记得有lls这个人呢？
+
+
+*****
+
+####  Jamaisvu  
+##### 15053#       发表于 2024-10-23 17:20
+
+<blockquote>jackyhuang 发表于 2024-10-23 17:15
+强解和绿放前置，真是好省事的强化啊
+
+—— 来自 鹅球 v3.1.90</blockquote>
+官方这不是很清楚后置的毒点嘛，糖果宝具本也这么强化得了。
+
+蔓：我不够完美kora！what can I say？！<img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
+

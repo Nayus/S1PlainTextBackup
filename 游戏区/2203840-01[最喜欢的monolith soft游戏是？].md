@@ -677,3 +677,14 @@ xb2唯一遗憾，雷老板人设太幼，为什么要这样做也许需要若�
 只有小孩才能有那种无畏吧，一种解释</blockquote>
 可能只有这个年龄段才能说出“道理我也不懂，但我就是可以做到”这样的话。
 
+
+*****
+
+####  KOS-MOS_Refrain  
+##### 67#       发表于 2024-10-23 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66522666&amp;ptid=2203840" target="_blank">UIonTV 发表于 2024-10-23 13:35</a>
+
+xb2唯一遗憾，雷老板人设太幼，为什么要这样做也许需要若干年后我才能参悟（总不能是喜欢开大车吧？） ...</blockquote>
+玩过黄金国后我才懂，阿德尔软肋太多导致没办法完全信任光，雷老板就可以
+

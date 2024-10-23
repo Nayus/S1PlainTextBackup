@@ -3477,3 +3477,14 @@ nagi确实看不出，第一个拿到星外重要角色的是她，个人solo专
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  starring  
+##### 331#       发表于 2024-10-23 13:49
+
+薮和熊吧，两人都的事务所都是侧重配音
+倒是pay一直强调自己声优的身份，最近除了参加几次朗读剧就是在pjsk最近两期活动里出演了路人
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

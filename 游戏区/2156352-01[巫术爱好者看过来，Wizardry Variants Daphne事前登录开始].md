@@ -1434,3 +1434,11 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 不是的，你说的是运营商Drecom，而这作的开发商是Studio 2PRO。</blockquote>
 哈哈那看来搞错了
 
+
+*****
+
+####  elven119  
+##### 183#         楼主| 发表于 2024-10-23 08:57
+
+哭了，卡了我两天的宝箱怪，原来有机制。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

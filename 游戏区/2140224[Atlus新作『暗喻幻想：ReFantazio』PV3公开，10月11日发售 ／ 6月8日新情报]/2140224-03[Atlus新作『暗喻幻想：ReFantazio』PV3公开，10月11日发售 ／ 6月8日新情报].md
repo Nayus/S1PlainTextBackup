@@ -1681,3 +1681,17 @@ hiho<img src="https://p.sda1.dev/19/66971d5da4129525a7bc38cff5b9f4c1/image.jpg" 
 
 解锁职业要mag真是神人设计，这种基础资源搞这么稀缺，本来职业就要推coop解锁，又要刷经验从低级职业练起，然后还要被mag卡，太恶心了
 
+
+*****
+
+####  姊控  
+##### 3112#       发表于 2024-10-23 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66526964&amp;ptid=2140224" target="_blank">Khellendros 发表于 2024-10-23 22:53</a>
+解锁职业要mag真是神人设计，这种基础资源搞这么稀缺，本来职业就要推coop解锁，又要刷经验从低级职业练起 ...</blockquote>
+职业系统设计漏洞太多了
+
+低级高阶职业技能不全，前期继承槽位也紧缺，导致最优解是先带低阶用光叶升级高阶。解锁新职业的新鲜感就被这段延迟瓦解了
+
+而且中前期搭配职业还算有自由度，后期直接给角色限定有进化树的专属职业，不仅卡资源还限制自由度。Mag紧缺，前期还预览不到王家职业进化树
+

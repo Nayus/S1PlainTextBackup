@@ -1780,3 +1780,14 @@ hiho<img src="https://p.sda1.dev/19/66971d5da4129525a7bc38cff5b9f4c1/image.jpg" 
 
 地下纳骨堂那个收集8个骷髅的任务怎么做？不过我看这任务的奖励也真够少的，不如让那士兵被嘎了算了😄
 
+
+*****
+
+####  2015年入股市  
+##### 3121#       发表于 2024-10-24 02:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66527877&amp;ptid=2140224" target="_blank">石中剑二 发表于 2024-10-24 02:09</a>
+
+地下纳骨堂那个收集8个骷髅的任务怎么做？不过我看这任务的奖励也真够少的，不如让那士兵被嘎了算了😄 ...</blockquote>
+里面的骷髅兵打了就掉啊
+

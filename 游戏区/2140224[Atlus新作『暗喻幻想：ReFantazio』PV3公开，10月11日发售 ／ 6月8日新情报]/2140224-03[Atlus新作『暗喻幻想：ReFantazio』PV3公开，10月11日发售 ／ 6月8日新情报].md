@@ -1633,3 +1633,18 @@ P5的时候就想吐槽了，为什么A社游戏的2D过场动画质量这么差
 队友原型面纹高亮的cut-in还是非常帅的 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怒目cut是每年atlus拿来卖钱的谷柄，这还不画好点拿啥卖钱
 
+
+*****
+
+####  星野航  
+##### 3108#       发表于 2024-10-23 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66526420&amp;ptid=2140224" target="_blank">抽烟的猴 发表于 2024-10-23 22:24</a>
+
+通关后其实感觉还行，但回味了一下又觉得余味不太行，像是砍掉了松饼，但是同时砍掉了十艘跳并且所有女人长 ...</blockquote>
+松饼：蕾拉
+
+而且你这也纯扯，尤法立绘完全够看，大宅那个烈焰红唇倒是跟赏金猎人有得一拼
+
+而且你要扩大种族看，蝙蝠人莉娜也是个萌物
+

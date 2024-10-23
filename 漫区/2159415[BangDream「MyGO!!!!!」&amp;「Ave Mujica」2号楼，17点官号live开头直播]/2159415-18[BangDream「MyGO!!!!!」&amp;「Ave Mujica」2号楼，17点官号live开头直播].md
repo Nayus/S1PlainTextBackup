@@ -5284,3 +5284,23 @@ oyu直呼：母鸡卡！</blockquote>
 
 为了维持人物设定挺辛苦的样子，以后应该会摘掉吧<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 25609#         楼主| 发表于 2024-10-23 21:57
+
+ 本帖最后由 紫吹兰 于 2024-10-23 22:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66526584&amp;ptid=2159415" target="_blank">金属化反射装甲 发表于 2024-10-23 21:51</a>
+
+为了维持人物设定挺辛苦的样子，以后应该会摘掉吧</blockquote>
+肯定要摘，祥子为了流量（脸和数字）招募的大猫，不摘面具不是白招了
+
+
+*****
+
+####  桜庭千景  
+##### 25610#       发表于 2024-10-23 22:04
+
+摘面具这个，我只能说，别抱期待<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

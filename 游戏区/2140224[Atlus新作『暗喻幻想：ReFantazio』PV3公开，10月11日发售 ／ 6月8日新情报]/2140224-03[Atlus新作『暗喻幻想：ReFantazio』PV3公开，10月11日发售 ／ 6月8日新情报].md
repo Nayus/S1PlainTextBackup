@@ -1232,3 +1232,29 @@ rpg设计太差劲了，因为职业进阶对于固有技能几乎没有提升�
 
 —— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  mai6696  
+##### 3073#       发表于 2024-10-23 12:26
+
+ 本帖最后由 mai6696 于 2024-10-23 12:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66522018&amp;ptid=2140224" target="_blank">牙狼GARO 发表于 2024-10-23 12:23</a>
+
+剧情到海岛了，人均35-36级，是先去清支线好还是先推龙宫好？
+
+是不是不打龙宫，盲信塔就一直坏天气？那个太 ...</blockquote>
+龙宫等级比支线低我记得。
+
+你看QUSET难度，按顺序打吧。
+
+早点打龙宫还能解锁尤珐。
+
+另外，龙宫的刷怪笼很多，而且有刷蝴蝶的，你可以量产魔道丸。
+
+MP不担心的。
+
+打完龙宫之后可以解锁一个祈祷，能把坏天气变成晴天。
+
+不过如果你等级刷搞了，原野刷级的话坏天气经验更高。
+

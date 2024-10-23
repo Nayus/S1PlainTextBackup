@@ -4331,3 +4331,70 @@ mygo和mujica简介的第一句话
 
 祥子对睦甩脸子这点在知道祥子年龄最小这点后，感觉就很好品了，睦莫名有了种宠妹妹感
 
+
+*****
+
+####  Aendst  
+##### 25527#       发表于 2024-10-23 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66521990&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-10-23 12:21</a>
+
+海铃和睦太少了，而且海铃对立希之外的所有人都戴着公事公办的面具，对于建立关系性不太够
+
+我觉得还有一 ...</blockquote>
+所以说，为什么一定要去嗑官方都在（笑），对睦压根不友好，在剧场版被完全删掉一丁点不留的东西呢
+
+不还是那个结论吗，<strong>没看懂，没看访谈，也不关心睦</strong>
+
+爽世厨愿意，因为在他们的思考中睦是爽世的铁暗恋舔狗
+
+把睦对爽世的拒绝，在听到爽世找到祥子后的嫌恶表情完全视而不见
+
+祥子对睦的温和态度，甚至声线都会更轻柔这样的事实也完全看不见
+
+睦对祥子的关心，绫奈给出的稳定箭头完全当做不存在
+
+在这个基础上觉得祥子甩脸，觉得海睦不如爽睦，只考虑乱拉海外和官方都查无此的“关系性”
+
+这不就是<strong>没看懂，没看访谈，也不关心睦</strong>吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 25528#       发表于 2024-10-23 12:28
+
+开场就说睦祥是幼驯染不就是有这个理由
+就是为了告诉你两个人的亲密和包容不是凭空造谣，是依托过去合乎情理的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  桜庭千景  
+##### 25529#       发表于 2024-10-23 12:29
+
+<blockquote>玖羽 发表于 2024-10-23 12:21
+海铃和睦太少了，而且海铃对立希之外的所有人都戴着公事公办的面具，对于建立关系性不太够
+
+我觉得还有一 ...</blockquote>
+所以这算素睦老中特供热门cp的原因？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+老中观众对素的pua那套感知有限？
+
+
+*****
+
+####  御幸一也  
+##### 25530#       发表于 2024-10-23 12:34
+
+有一說一，海睦在日本人和韓國人裡人氣都是有的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+高強度蹲了一年的avemujica推特關鍵字，一般日本人的嗑法就是初祥/海睦，或者初祥/睦祥。
+
+雖然我不建議現在去看日本人腦洞，之前去吃了點日本人寫的海睦，裡面的睦完全是嬌妻，直接把我嚇跑了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  uhiuk  
+##### 25531#       发表于 2024-10-23 12:34
+
+说老中不懂pua我确实不太相信，但要说是擅长自我欺骗，只愿意看自己想看的那还是蛮合理的
+

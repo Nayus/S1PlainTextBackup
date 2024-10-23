@@ -1483,3 +1483,11 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 手游运营都TM一个德行，对玩家有利的BUG修得比啥都快，其他BUG能拖就拖。
 
+
+*****
+
+####  elven119  
+##### 188#         楼主| 发表于 2024-10-23 21:14
+
+这青铜阶级的升级任务真的是人能做的嘛？进去一个杂兵莉莉丝先手一巴掌打了我356还吸了我15mp<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

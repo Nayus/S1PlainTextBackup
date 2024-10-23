@@ -1258,3 +1258,57 @@ MP不担心的。
 
 不过如果你等级刷搞了，原野刷级的话坏天气经验更高。
 
+
+*****
+
+####  vacuumsword  
+##### 3074#       发表于 2024-10-23 12:47
+
+打到10月冒个泡。主角队说是包含了所有种族，战斗队员+船长也就8个，是不是少了个肥肥族？coop里面好像也没有肥肥族人？
+
+----发送自 [Xiaomi 2304FPN6DC,Android 14](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  baizhi  
+##### 3075#       发表于 2024-10-23 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66522018&amp;ptid=2140224" target="_blank">牙狼GARO 发表于 2024-10-23 12:23</a>
+剧情到海岛了，人均35-36级，是先去清支线好还是先推龙宫好？
+是不是不打龙宫，盲信塔就一直坏天气？那个太 ...</blockquote>
+先推龙神迷宫吧，你这个等级盲信之塔刷不太动。。。
+
+—— 来自 OPPO PGBM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  卡拉德利姆  
+##### 3076#       发表于 2024-10-23 12:52
+
+肥肥族是哪个，算上开场死掉的保姆骑士8+1是全的啊
+
+*****
+
+####  fireadol  
+##### 3077#       发表于 2024-10-23 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66522285&amp;ptid=2140224" target="_blank">vacuumsword 发表于 2024-10-23 12:47</a>
+
+打到10月冒个泡。主角队说是包含了所有种族，战斗队员+船长也就8个，是不是少了个肥肥族？coop里面好像也没 ...</blockquote>
+死掉的大叔是罗格族啊，你们怎么都把他忘了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">coop商人也是罗格族
+
+*****
+
+####  modkingr  
+##### 3078#       发表于 2024-10-23 12:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66522018&amp;ptid=2140224" target="_blank">牙狼GARO 发表于 2024-10-23 12:23</a>
+
+剧情到海岛了，人均35-36级，是先去清支线好还是先推龙宫好？
+
+是不是不打龙宫，盲信塔就一直坏天气？那个太 ...</blockquote>
+先支线，支线清完龙宫的怪大部分都能场外杀了
+
+这个图流程非常长，都进指令战斗打顶不住的
+

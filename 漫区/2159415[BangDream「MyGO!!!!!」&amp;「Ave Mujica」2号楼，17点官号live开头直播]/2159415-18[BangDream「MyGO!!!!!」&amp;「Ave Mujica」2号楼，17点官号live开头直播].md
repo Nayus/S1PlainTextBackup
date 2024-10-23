@@ -4492,3 +4492,77 @@ mygo和mujica简介的第一句话
 
 你们别再带大主播节奏了，我怕引流进来你漏打不过啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别忘了你漏常年被视奸
 
+
+*****
+
+####  uhiuk  
+##### 25539#       发表于 2024-10-23 12:49
+
+现在贴吧版本已经更迭到soyo没有pua睦，没有强迫睦做她不愿意做的事，睦是出于愧疚帮soyo的，所以两人是相互守护的关系<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 25540#       发表于 2024-10-23 12:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好吧，看来我也完全不懂爽睦厨
+
+没想到他们的思维如此超脱，已经不是人类可以正常理解的了
+
+*****
+
+####  桜庭千景  
+##### 25541#       发表于 2024-10-23 12:51
+
+<blockquote>Aendst 发表于 2024-10-23 12:46
+没有的，推测成立的前提是基于事实
+
+事实就是，爽睦厨最喜欢贷款的是“睦送给了爽世黄瓜，被拒绝了”（即 ...</blockquote>
+其实蛮有意思的这点
+
+某群体最喜欢论证祥对睦不好的地方其实是
+
+“还没问就拿睦去诱骗女主播入坑了”
+
+类似昨天那位来漏里自爆的那位，你看看记录应该就有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这里搞笑的地方在于，
+
+明明这里受害者是大喵，而接下来祥子就是郑重其事准备用很大诚意去邀请睦的，
+
+反而是睦直接答应了打了祥子一个措手不及，还担心的问她现在还可以反悔，
+
+应该横向对比其他队友，祥子对睦是最好的了
+
+结果不知道怎么他们都抓着这个论证祥子对睦怎么怎么不好，我一头雾水<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 25542#       发表于 2024-10-23 12:52
+
+打进来了我会带头投降🏳️
+其实我是台长粉丝喵，记得冲对人<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  相坂君  
+##### 25543#       发表于 2024-10-23 12:52
+
+这变得挺快啊，前段时间我看到一些爽睦厨说她们俩都同班同学了，每天见面的甜甜甜小情侣呢，哪有pua哪有霸凌
+
+*****
+
+####  御幸一也  
+##### 25544#       发表于 2024-10-23 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66522320&amp;ptid=2159415" target="_blank">桜庭千景 发表于 2024-10-23 12:51</a>
+
+其实蛮有意思的这点
+
+某群体最喜欢论证祥对睦不好的地方其实是
+
+“还没问就拿睦去诱骗女主播入坑了”</blockquote>
+祥子要是對睦好，可能他們的一些根基就要碎了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

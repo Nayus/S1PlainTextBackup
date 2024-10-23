@@ -1197,10 +1197,10 @@
     "update": false
   },
   "1986197": {
-    "totalreply": 17023,
+    "totalreply": 17024,
     "title": "[ブルーアーカイブ／Blue Archive／蔚蓝檔案 日服2021／2／4中午…]",
     "newtitle": "[ブルーアーカイブ 综合讨论]",
-    "lastedit": 1729704379,
+    "lastedit": 1729714207,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -6516,10 +6516,10 @@
     "update": false
   },
   "2156895": {
-    "totalreply": 12174,
+    "totalreply": 12175,
     "title": "[微软收购楼，ABK之后，Who's Next？P3想其他方式拓展11区业务]",
     "newtitle": "[微软楼，ABK之后，Who's Next？黑楼换虚幻]",
-    "lastedit": 1729693094,
+    "lastedit": 1729714447,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -9887,7 +9887,7 @@
     "newtitle": "[2019.07『重来吧，魔王大人！／魔王様、リトライ！』专楼]",
     "lastedit": 1729454887,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2198947": {
@@ -17217,10 +17217,10 @@
     "update": false
   },
   "2204175": {
-    "totalreply": 257,
+    "totalreply": 259,
     "title": "[Linux 内核将数名与俄罗斯联邦相关的贡献者从维护者列表中移除]",
     "newtitle": "[Linux 内核将数名与俄罗斯联邦相关的贡献者从维护者列表中移除]",
-    "lastedit": 1729713968,
+    "lastedit": 1729714570,
     "category": "外野",
     "active": true,
     "update": false
@@ -17370,10 +17370,10 @@
     "update": false
   },
   "2204224": {
-    "totalreply": 80,
+    "totalreply": 81,
     "title": "[金星：网上都是骗子！]",
     "newtitle": "[金星：网上都是骗子！]",
-    "lastedit": 1729710967,
+    "lastedit": 1729714569,
     "category": "外野",
     "active": true,
     "update": false
@@ -17501,6 +17501,15 @@
     "newtitle": "[外野坛友年龄以及婚姻分布状况调查]",
     "lastedit": 1729704971,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "1917515": {
+    "totalreply": 160,
+    "title": "[推漫：オジロマコト放学后失眠的你，失眠男女的夜晚]",
+    "newtitle": "[推漫：オジロマコト放学后失眠的你，失眠男女的夜晚]",
+    "lastedit": 1729714575,
+    "category": "漫区",
     "active": true,
     "update": false
   }

@@ -4606,3 +4606,26 @@ mygo和mujica简介的第一句话
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉都不如独角兽本人磕睦祥，甚至听说独角兽还写过睦祥的约会小段子
 有本事把独角兽开除编剧籍
 
+
+*****
+
+####  skives  
+##### 25547#       发表于 2024-10-23 13:16
+
+印象里是有睦祥一起去市民游泳池的小段子
+
+*****
+
+####  NODY  
+##### 25548#       发表于 2024-10-23 13:17
+
+是真的，而且独角兽删了好几个月的黑历史都没删睦祥约会，现在上独角兽推特都能搜出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202410/23/131721qbkblawsuuidqqp9.png" referrerpolicy="no-referrer">
+
+<strong>f8ed5745-9bb3-48c7-a006-6cd36d739003.png</strong> (47.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-23 13:17 上传
+

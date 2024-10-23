@@ -3463,3 +3463,17 @@ nagi确实也走了舞台剧这条路吧，nako也是没法子，声优这条路
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  奥柏伦亲王  
+##### 330#       发表于 2024-10-23 13:12
+
+nako已经一张专辑两张EP了呀，就是偶像歌手
+
+nagi确实看不出，第一个拿到星外重要角色的是她，个人solo专辑是第四个出的而且成绩不错，有地上波节目，还有舞台。有种各方面条件都很好，但是没有特别突出的长板，所以都要试一试的感觉
+
+目前看不觉得星团11人有哪个会走声优路线，要说天赋的话，其实我觉得小百合最好
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

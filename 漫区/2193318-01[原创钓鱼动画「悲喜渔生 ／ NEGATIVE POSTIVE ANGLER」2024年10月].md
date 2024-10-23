@@ -864,3 +864,29 @@ ed舒服不少
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">说实话，男主莫名其妙自己跑掉，然后又莫名其妙拿了根鱼竿在河岸和粉毛他们相遇实在是有点生硬了
 
+
+*****
+
+####  Piano-Forest  
+##### 79#         楼主| 发表于 2024-10-23 13:15
+
+第4話「釣りって難しい？」
+
+釣り好きが集まるコンビニでの勤務がスタート。ロクに働いたこともなければ釣りの知識もない常宏は、目まぐるしい日常を過ごす中、同僚ハナの不思議な私生活を知る。
+
+脚本：鈴木智尋
+
+絵コンテ・演出：松原 聡
+
+総作画監督：谷口宏美
+
+作画監督：南井尚子、三好和也
+
+作画監督補佐：三島詠子、栗田新一、緒方歩惟、中山見都美、梁 博雅
+<img src="https://p.sda1.dev/19/03f1b9c1981af72463bd65088f60af29/p_001.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/10e4dfa44d67c8944d1bf0b10046e8c0/p_002.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/4cc6a2c4c6ea94ba9a14f3f42888e8e1/p_003.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/817eaddc7ac8c0e2b5b95877cde67e9a/p_004.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/8be7a7c5178c7a8536d88ee61ae5602a/p_005.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/22d4dd16cb75b66d32d15e67730ab07f/pic006 _1_.jpg" referrerpolicy="no-referrer">
+

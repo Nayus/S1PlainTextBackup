@@ -5596,3 +5596,28 @@ IMG_3790.jpeg
 
 后知后觉刚想起mygo刺刺的对邦，现在买live的bd还是初回吗，我看推特最近animate卖的bd还有抽选券，但是亚马逊完全生产限定版打折到一万三是不是没有抽选券的，animate还是1万8
 
+
+*****
+
+####  akiomn  
+##### 25638#       发表于 2024-10-25 01:07
+
+看了眼预告，剧场版后篇新live有首歌应该是壱雫空，还有两首可能是一首老歌完整版一首新歌
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想了下wsd这帮废物应该没啥能力做三首新歌＋新模型，毕竟连衣服都还是op那套，要不然母鸡卡也不至于拖到明年了
+
+
+*****
+
+####  NODY  
+##### 25639#       发表于 2024-10-25 01:13
+
+鞋跟刚好在边缘，难怪3rd踩空了一下
+
+<img src="https://img.saraba1st.com/forum/202410/25/011228gyywy48kzp87oncb.jpg" referrerpolicy="no-referrer">
+
+<strong>GaqVcasbAAAFzH5.jpg</strong> (621.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-25 01:12 上传
+

@@ -214,3 +214,19 @@
 —— 来自 鹅球 v3.1.88.3-alpha</blockquote>
 天天陪这狗子玩真的是累死人了<img src="https://static.saraba1st.com/image/smiley/animal2017/011.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 2552#       发表于 2024-10-24 10:15
+
+11.10：主角团去远吠神社找老狼，妮可躲起来变人开雷达，但妮可的力量暴走，把彩叶变成了狗、茉优变成了猫
+
+<img src="https://img.saraba1st.com/forum/202410/24/101403ss3tpp9yy33aj6e3.png" referrerpolicy="no-referrer">
+
+<strong>B37EA1A9EC77FF45F9758B1D9B00A3AE.png</strong> (1.04 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-24 10:14 上传
+

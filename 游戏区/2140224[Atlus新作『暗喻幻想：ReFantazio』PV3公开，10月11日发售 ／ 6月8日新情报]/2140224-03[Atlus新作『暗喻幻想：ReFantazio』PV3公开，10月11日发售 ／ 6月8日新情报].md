@@ -1933,3 +1933,23 @@ domerica在P5就是动画二队了（主力还是PIG），P3DP5DP5R的动画也�
 
 场景那就更别提了，点名表扬开头那片荒野，还有铠战车跑路时的甲板风景。
 
+
+*****
+
+####  变老的大二  
+##### 3134#       发表于 2024-10-24 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66529073&amp;ptid=2140224" target="_blank">星野航 发表于 2024-10-24 10:06</a>
+
+我觉得吧，既然人家1组都已经玩转虚幻了，你0组p组也别整什么这低成本动画了，直接虚幻做过场不挺好，表 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等他们技术升级了，本来P5就是靠演出来掩盖不足，这代连演出都有点拉了。
+
+这引擎做大世界相当的灾难。感觉还不如宝可梦用心。
+
+*****
+
+####  变老的大二  
+##### 3135#       发表于 2024-10-24 10:16
+
+而且前后排的设计明明有很多可以挖掘的玩法，结果能集体切站位的只有军师的两个技能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

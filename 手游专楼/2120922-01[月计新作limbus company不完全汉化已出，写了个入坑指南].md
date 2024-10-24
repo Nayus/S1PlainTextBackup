@@ -73,3 +73,16 @@ i want you海报(乐
 这boss战真是你游最傻逼的boss战</blockquote>
 纯演出boss了，比前面几章的压迫力小了不少<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Yuzutea  
+##### 954#       发表于 2024-10-24 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66533255&amp;ptid=2120922" target="_blank">erratic璃月 发表于 2024-10-24 17:58</a>
+
+纯演出boss了，比前面几章的压迫力小了不少</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我不好说，我怀疑这设计是唐不上场不跳阶段
+
+我唐放九号位在人死完之前被无限那几个红币技能复读
+

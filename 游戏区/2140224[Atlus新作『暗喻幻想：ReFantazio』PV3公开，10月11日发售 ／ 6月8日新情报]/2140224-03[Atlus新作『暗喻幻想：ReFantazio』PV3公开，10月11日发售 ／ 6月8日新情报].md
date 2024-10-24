@@ -2258,3 +2258,16 @@ meta部分肯定是被砍到只剩张皮了
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  plok201  
+##### 3163#       发表于 2024-10-24 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66532375&amp;ptid=2140224" target="_blank">半江瑟瑟半江红 发表于 2024-10-24 16:30</a>
+
+说起来这游戏meta元素到底干啥用的？除了最开头整个悬疑和最结尾整个说叫以外
+
+—— 来自 鹅球 v3.3.92-alp ...</blockquote>
+推倒重来的遗留吧，也只能想到这个了，要不就这成品，一开始透露那堆meta概念情报只能说风不相及
+

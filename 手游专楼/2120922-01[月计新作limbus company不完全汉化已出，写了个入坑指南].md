@@ -62,3 +62,14 @@ i want you海报(乐
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这boss战真是你游最傻逼的boss战
 
+
+*****
+
+####  erratic璃月  
+##### 953#       发表于 2024-10-24 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66533161&amp;ptid=2120922" target="_blank">Yuzutea 发表于 2024-10-24 17:47</a>
+
+这boss战真是你游最傻逼的boss战</blockquote>
+纯演出boss了，比前面几章的压迫力小了不少<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -2169,3 +2169,16 @@ domerica在P5就是动画二队了（主力还是PIG），P3DP5DP5R的动画也�
 （ ...</blockquote>
 尤法已经是主角团里比较好的了吧，不论立绘还是建模，我不知道atlus怎么想的，粉毛、蕾菈、参加竞选的那个蝙蝠妹、参加竞选的酒鬼狗族，这几个人的形象怎么看都该入队成为能操控的角色，替换掉什么男二、侯根堡、蝙蝠男、大额头影响的歌姬完全是正向提升。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mai6696  
+##### 3154#       发表于 2024-10-24 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66530939&amp;ptid=2140224" target="_blank">heseran 发表于 2024-10-24 13:24</a>
+
+尤法已经是主角团里比较好的了吧，不论立绘还是建模，我不知道atlus怎么想的，粉毛、蕾菈、参加竞选的那 ...</blockquote>
+那个工房蝙蝠妹，看立绘总给我一种诺彭族的既视感。
+
+灰雨在发售前我只觉得好怪，不过玩多了感觉还挺可爱的。
+

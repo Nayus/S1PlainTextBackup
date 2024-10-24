@@ -5402,3 +5402,11 @@ oyu直呼：母鸡卡！</blockquote>
 海铃特典在闲鱼上成交价已经破万了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好像这是当初限定cd附赠的，不太可能再版了
 
+
+*****
+
+####  桜庭千景  
+##### 25620#       发表于 2024-10-24 07:58
+
+海景谷是炒价格的，已经脱离本身意义了。你掏再多钱拍下来武士道也不会多赚一分钱
+

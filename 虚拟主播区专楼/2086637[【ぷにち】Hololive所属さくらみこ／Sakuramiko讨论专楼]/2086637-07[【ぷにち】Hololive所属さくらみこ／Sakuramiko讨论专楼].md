@@ -13453,3 +13453,38 @@ miko杀死了8字母厨。
 
 这是封面图，25号直播
 
+
+*****
+
+####  holoan  
+##### 9988#         楼主| 发表于 2024-10-24 10:36
+
+马趴取消的一个说法
+
+<img src="https://img.saraba1st.com/forum/202410/24/103600hoooc3f7ktckmb23.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (18.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-24 10:36 上传
+
+且不说为什么最后不直播还要向任爹申请取消？
+
+或许吧，不过反而是典型的托SB运营的因祸得福了，那个俄罗斯轮盘赌的游戏比马趴的直播效果好太多了
+
+*****
+
+####  holoan  
+##### 9989#         楼主| 发表于 2024-10-24 11:05
+
+今天预定开始了
+
+<img src="https://img.saraba1st.com/forum/202410/24/110541x61uo8t6581lut51.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (101.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-24 11:05 上传
+

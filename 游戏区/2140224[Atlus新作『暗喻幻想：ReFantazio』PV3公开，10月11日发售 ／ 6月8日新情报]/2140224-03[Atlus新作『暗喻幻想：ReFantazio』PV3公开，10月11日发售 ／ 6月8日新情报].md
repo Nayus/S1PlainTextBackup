@@ -2070,3 +2070,43 @@ p组其实也已经用上虚幻了，3R不就是虚幻整得，大概率也是1�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Jimlee080  
+##### 3145#       发表于 2024-10-24 10:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">点个阿基态，要反复在物品和技能树两个菜单切来切去的，这种弱智菜单逻辑怎么设计出来的，就不能把经验值道具单独放到技能树里么
+
+
+*****
+
+####  takayama  
+##### 3146#       发表于 2024-10-24 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66529080&amp;ptid=2140224" target="_blank">Dreammask 发表于 2024-10-24 10:07</a>
+domerica在P5就是动画二队了（主力还是PIG），P3DP5DP5R的动画也都是他们做的，这么算起来合作至少也有六 ...</blockquote>
+其实5S也是，实际就是5无印做完后IG就解散了，留下这个小组继续DSR的动画，看5S的OP有点跟无印遗留味道，而5S剧内的那就跟R的感觉差不太多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.89
+
+*****
+
+####  变老的大二  
+##### 3147#       发表于 2024-10-24 11:04
+
+还得吐槽一下灰雨的职业解锁，忍者要解锁龙骑兵，术士，魔法骑士等一堆职业，和个大杂烩一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Edvinno  
+##### 3148#       发表于 2024-10-24 11:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66529105&amp;ptid=2140224" target="_blank">mai6696 发表于 2024-10-24 10:10</a>
+老引擎大概是太低能了，即时演算的效果不好。
+
+角色建模除了路易男主男二，就没几个能看的。
+
+场景那就更别 ...</blockquote>
+男二也不能看，怎么想的建模做成莽夫小混混姿势纯纯翻版龙司，定位居然算智谋担当，张口闭口都是贵族，主角还夸他家教好，基本仪态都没有的，出戏的不行<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

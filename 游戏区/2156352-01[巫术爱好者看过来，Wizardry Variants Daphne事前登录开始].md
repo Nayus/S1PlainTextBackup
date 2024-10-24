@@ -1539,3 +1539,20 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 传说级角色的技能方面，限定 ...</blockquote>
 几个传说级分别叫什么，目前调的英文，没分清独立建模里哪些算传说级的
 
+
+*****
+
+####  我猫呢?  
+##### 193#       发表于 2024-10-24 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66530036&amp;ptid=2156352" target="_blank">电脑死机 发表于 2024-10-24 11:34</a>
+几个传说级分别叫什么，目前调的英文，没分清独立建模里哪些算传说级的 ...</blockquote>
+在日文wiki找了个图，圈里面的都是传说角色<img src="https://p.sda1.dev/19/2c4a5dbf4a838597f95349ae79cc3bec/CMP_20241024113819852.png" referrerpolicy="no-referrer">
+
+*****
+
+####  索非亚  
+##### 194#       发表于 2024-10-24 11:39
+
+王女是推荐克己还是升技能？1级技能到4层有点无感了。
+

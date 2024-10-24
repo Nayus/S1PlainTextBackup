@@ -5430,3 +5430,11 @@ oyu直呼：母鸡卡！</blockquote>
 
 但凡后来的谷柄出好看点黑生都不至于变成这样
 
+
+*****
+
+####  jerryoq1  
+##### 25623#       发表于 2024-10-24 11:41
+
+黑生柄不是还有一个吊饰吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

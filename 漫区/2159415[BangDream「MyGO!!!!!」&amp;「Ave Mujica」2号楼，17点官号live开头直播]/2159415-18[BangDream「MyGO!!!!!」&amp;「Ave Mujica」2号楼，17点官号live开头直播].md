@@ -5500,3 +5500,11 @@ IMG_3790.jpeg
 </blockquote>
 初华：刘海太长扎眼睛，紧急wink一下
 
+
+*****
+
+####  星天观测  
+##### 25628#       发表于 2024-10-24 16:38
+
+初华终于有一个看起来没那么傻了吧唧的娃娃了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

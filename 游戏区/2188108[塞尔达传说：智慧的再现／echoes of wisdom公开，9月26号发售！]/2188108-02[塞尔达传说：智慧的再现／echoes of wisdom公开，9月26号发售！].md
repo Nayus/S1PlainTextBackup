@@ -14,3 +14,11 @@
 
 刚好刷视频刷到原来雪山脚下的洞穴门是可以炸开的，我直接在山脚用攀爬蜘蛛爬上去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  valand  
+##### 1674#       发表于 2024-10-25 03:31
+
+最终 boss 有点过于无聊了 全程就是召唤一个莱尼尔和林克一起输出 ，算一个减分项
+

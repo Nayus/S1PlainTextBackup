@@ -87,3 +87,13 @@ INTI CREATES老早就开始这种商法了，店特全是擦边色图<img src="h
 
 打完骰子浪游者回来，居然感觉自己变成原始人了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  laoz  
+##### 75#       发表于 2024-10-24 20:49
+
+把主线打完了，一共12个迷宫，打完会加个额外迷宫1，按照前面排列数量不知道会不会加到额外3
+
+整个流程感觉最爽的是流亡代码的完全体变身BD，一直变身一直爽，还能检索变身
+

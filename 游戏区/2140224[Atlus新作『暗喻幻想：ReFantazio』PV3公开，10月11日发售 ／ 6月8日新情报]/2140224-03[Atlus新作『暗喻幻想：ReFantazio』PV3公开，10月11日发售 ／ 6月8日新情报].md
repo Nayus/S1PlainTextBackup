@@ -2632,3 +2632,14 @@ meta部分肯定是被砍到只剩张皮了
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
 
+
+*****
+
+####  塔尔洛斯  
+##### 3195#       发表于 2024-10-25 06:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66535920&amp;ptid=2140224" target="_blank">石中剑二 发表于 2024-10-25 00:52</a>
+
+为什么我进地下纳骨堂做收集8个头骨💀的任务里面就不出来骷髅敌人呢？我真是不明白了 ...</blockquote>
+那个是特定刷新的，从棺材板里跳出来。不是小兵掉落
+

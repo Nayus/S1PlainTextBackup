@@ -5508,3 +5508,11 @@ IMG_3790.jpeg
 
 初华终于有一个看起来没那么傻了吧唧的娃娃了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  六道明  
+##### 25629#       发表于 2024-10-24 17:28
+
+除了两个口罩，其他的谁戴谁丑，不管是真人还是动画<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+

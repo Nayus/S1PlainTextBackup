@@ -2576,3 +2576,13 @@ meta部分肯定是被砍到只剩张皮了
 
 这作最成功的可能就是阿基态的设计了，虽然整个阿基态系统还是有不少槽点，不过还是值得肯定
 
+
+*****
+
+####  猫沢  
+##### 3190#       发表于 2024-10-24 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66516193&amp;ptid=2140224" target="_blank">NEIN 发表于 2024-10-22 17:24</a>
+ 开始开王家了，这ui为啥不把阿基态经验道具和阿基态解锁放一个界面，升满一个切来切去真闹麻了  —— 来自  ...</blockquote>
+为什么不能批量喂经验<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">决战那天打那个牙牙一次就给47个1000的经验喂半天。
+

@@ -13663,3 +13663,24 @@ B站你还敢买，给你2026年还不一定能到货
 
 看看其他曲
 
+
+*****
+
+####  holoan  
+##### 10005#         楼主| 发表于 2024-10-24 23:16
+
+网上的SB真的多，本来sugarrush就不准备唱啊，要不哪来的新曲呢
+
+*****
+
+####  holoan  
+##### 10006#         楼主| 发表于 2024-10-24 23:22
+
+<img src="https://img.saraba1st.com/forum/202410/24/232233a5bx8in53cpxrdys.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (9.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-24 23:22 上传
+

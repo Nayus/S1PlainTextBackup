@@ -2535,3 +2535,36 @@ meta部分肯定是被砍到只剩张皮了
 
 只不过媒体评分给了大伙不切实际的幻想
 
+
+*****
+
+####  freedom12  
+##### 3187#       发表于 2024-10-24 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66535157&amp;ptid=2140224" target="_blank">抽烟的猴 发表于 2024-10-24 22:32</a>
+
+宣传增加期待值
+
+尤其是发现游戏只有几个月时，自我安慰“没事有meta元素，肯定藏了大的” ...</blockquote>
+我也是后半段好几都有种是不是“大的要来了”，结果啥也没有，真的挺败兴的
+
+最后结局却又给你硬整这么一出，寸止的感觉太难受了
+
+售前好多猜测的现代心理治疗的meta比这合理的多
+
+*****
+
+####  freedom12  
+##### 3188#       发表于 2024-10-24 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66535247&amp;ptid=2140224" target="_blank">ouyang菌 发表于 2024-10-24 22:48</a>
+
+有句讲句，暗喻的宣传完全是负作用好吧一路追下来的应该很明显能感觉到这作越看越不对劲的
+
+只不过媒体评分 ...</blockquote>
+所以也不怪隔壁魔怔
+
+黑猴 机器人 暗喻幻想
+
+欧美媒体评分最近的三连表现真的够恶心
+

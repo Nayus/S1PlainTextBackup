@@ -90,3 +90,11 @@ yls说产能不足以复刻老活动 干脆授权给其他服调试完了反哺�
 
 第一次遇上五星卡镀金特效，之前一直还以为是四星卡专属，以为要凉了没想到有意外之喜
 
+
+*****
+
+####  khxooo  
+##### 46761#       发表于 2024-10-25 04:59
+
+小号歪了个尼莫，尼玛这个真的是0.8的概率吗<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+

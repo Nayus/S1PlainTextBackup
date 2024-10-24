@@ -1587,3 +1587,22 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 —— 来自 nubia NX729J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  索非亚  
+##### 198#       发表于 2024-10-24 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66531005&amp;ptid=2156352" target="_blank">elven119 发表于 2024-10-24 13:35</a>
+
+升技能，升1级回复翻倍呢</blockquote>
+主要是看到技能那还有道具可以用，不知道后面获取难度如何
+
+
+*****
+
+####  elven119  
+##### 199#         楼主| 发表于 2024-10-24 20:23
+
+哭了，青铜升级过了，真的太难了。复活卷都用光了
+

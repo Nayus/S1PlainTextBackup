@@ -5420,3 +5420,13 @@ oyu直呼：母鸡卡！</blockquote>
 
 你鸡大概不会有比黑生好看的特典了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 25622#       发表于 2024-10-24 11:32
+
+炒到比较高价可以理解，但变成这种海景武士道全责
+
+但凡后来的谷柄出好看点黑生都不至于变成这样
+

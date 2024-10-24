@@ -13535,3 +13535,25 @@ miko杀死了8字母厨。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">终于来了，看着还不错
 
+
+*****
+
+####  rs5621  
+##### 9992#       发表于 2024-10-24 16:27
+
+ 本帖最后由 rs5621 于 2024-10-24 16:36 编辑 
+
+<img src="https://p.sda1.dev/19/bd81c8e5ef43deb08e271f9d5cc6b7ce/CMP_20241024163604216.jpg" referrerpolicy="no-referrer">【淘宝】http://e.tb.cn/h.gxS4Ix1BW3wxtyS?tk=6uVZ3n1gRGE CZ8908 「【GSC预售定金】figma 樱巫女 附官方限定特典」
+点击链接直接打开 或者 淘宝搜索直接打开
+
+官方旗舰店能预订，590这价格太哈人，我决定吃现了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 9993#         楼主| 发表于 2024-10-24 18:15
+
+这价格比我从日店买还便宜！我去官店订了……
+

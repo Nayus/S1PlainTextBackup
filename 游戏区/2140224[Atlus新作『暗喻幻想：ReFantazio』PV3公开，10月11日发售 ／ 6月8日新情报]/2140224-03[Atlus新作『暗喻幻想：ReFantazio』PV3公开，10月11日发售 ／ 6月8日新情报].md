@@ -2235,3 +2235,14 @@ meta部分肯定是被砍到只剩张皮了
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
 
+
+*****
+
+####  operatbig  
+##### 3161#       发表于 2024-10-24 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66526396&amp;ptid=2140224" target="_blank">抽烟的猴 发表于 2024-10-23 21:20</a>
+
+三年后的国王版一切都会好起来的，mc95分保底</blockquote>
+3年后还是这画面就太抽象了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

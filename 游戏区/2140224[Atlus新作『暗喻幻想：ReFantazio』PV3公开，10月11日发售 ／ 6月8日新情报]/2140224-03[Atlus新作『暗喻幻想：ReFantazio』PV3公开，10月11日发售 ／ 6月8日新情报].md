@@ -1891,3 +1891,30 @@ hiho<img src="https://p.sda1.dev/19/66971d5da4129525a7bc38cff5b9f4c1/image.jpg" 
 
 不过他现在做东西确实比以前更明确了，尤其是P3P4那个时候他都说不清自己想做什么
 
+
+*****
+
+####  星野航  
+##### 3131#       发表于 2024-10-24 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66528932&amp;ptid=2140224" target="_blank">变老的大二 发表于 2024-10-24 10:50</a>
+
+就Atlus那个项目管理能力，大纲剧情随时变更，也找不了多好的公司来制作动画。 
+
+开场动画能做好都算合格 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得吧，既然人家1组都已经玩转虚幻了，你0组p组也别整什么这低成本动画了，直接虚幻做过场不挺好，表现力不比现在这歪瓜裂枣强多了
+
+*****
+
+####  Dreammask  
+##### 3132#       发表于 2024-10-24 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66528845&amp;ptid=2140224" target="_blank">星野航 发表于 2024-10-24 09:40</a>
+
+你a每次做动画的公司都不一样，都透露着一股贫穷，也是绝了
+
+从这里你甚至无法判断你a到底是否重视手里的 ...</blockquote>
+domerica在P5就是动画二队了（主力还是PIG），P3DP5DP5R的动画也都是他们做的，这么算起来合作至少也有六年了
+
+我感觉就是单纯的用以前的路径或者干脆是其他公司没档期
+

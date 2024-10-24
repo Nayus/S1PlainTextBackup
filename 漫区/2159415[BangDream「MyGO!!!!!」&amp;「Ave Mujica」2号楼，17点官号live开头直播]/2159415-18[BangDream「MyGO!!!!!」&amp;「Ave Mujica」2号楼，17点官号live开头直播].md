@@ -5410,3 +5410,13 @@ oyu直呼：母鸡卡！</blockquote>
 
 海景谷是炒价格的，已经脱离本身意义了。你掏再多钱拍下来武士道也不会多赚一分钱
 
+
+*****
+
+####  PDQ4  
+##### 25621#       发表于 2024-10-24 11:23
+
+迷你专特嘛，还有一个理由是真的好看，鬼图再稀有也炒不到这么高
+
+你鸡大概不会有比黑生好看的特典了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

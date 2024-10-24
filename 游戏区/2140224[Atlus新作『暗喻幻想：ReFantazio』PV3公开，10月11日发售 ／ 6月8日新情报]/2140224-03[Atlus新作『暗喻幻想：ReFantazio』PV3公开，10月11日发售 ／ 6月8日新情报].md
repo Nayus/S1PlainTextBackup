@@ -2392,3 +2392,47 @@ meta部分肯定是被砍到只剩张皮了
 或许现在游戏里那些奇观本来应该也是游玩内容的，有些奇观看概念还蛮有乐子的，最后端上来就只剩下换皮怪和 ...</blockquote>
 我也是这么想的，大概原本就是类似奇观那样的固定俯视角，适合美工发挥又不需要太大技术力。
 
+
+*****
+
+####  石中剑二  
+##### 3174#       发表于 2024-10-24 20:59
+
+<blockquote>蟹粉小笼 发表于 2024-10-24 20:27
+我跑图的时候可能因为越级了就一路把怪都扫了正好打完boss收集了8个，没有额外刷，如果没刷满可能就是等 ...</blockquote>
+我现在玩到港都，进地下纳骨堂就不刷新骷髅了，只要史莱姆和邪灵，看来这设计的有问题啊
+
+
+*****
+
+####  magicc  
+##### 3175#       发表于 2024-10-24 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66534347&amp;ptid=2140224" target="_blank">半江瑟瑟半江红 发表于 2024-10-24 20:33</a>
+对，就是很有问题
+前期给你硬塞俩物理队友，再给你塞物抗怪，等你主角走了法系，嘿嘿，您猜怎么着，主角 ...</blockquote>
+虽然写着万能物理，但是加成是力魔哪个大用哪个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蟹粉小笼  
+##### 3176#       发表于 2024-10-24 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66534399&amp;ptid=2140224" target="_blank">NEIN 发表于 2024-10-24 20:40</a>
+
+主角最终职业力魔加成是一样的，挑一个数值高的算伤害
+
+—— 来自 鹅球 v3.1.88.3 ...</blockquote>
+我晕，那按照这个说法，其实加点可以力/魔二选一只加一个？之前我两个平均加就是浪费点数？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3177#       发表于 2024-10-24 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66534533&amp;ptid=2140224" target="_blank">magicc 发表于 2024-10-24 21:03</a>
+虽然写着万能物理，但是加成是力魔哪个大用哪个</blockquote>
+那我后期疯狂点力也是亏了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+

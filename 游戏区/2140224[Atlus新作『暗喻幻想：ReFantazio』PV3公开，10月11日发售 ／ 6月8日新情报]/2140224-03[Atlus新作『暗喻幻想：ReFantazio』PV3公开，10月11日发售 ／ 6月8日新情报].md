@@ -2198,3 +2198,13 @@ domerica在P5就是动画二队了（主力还是PIG），P3DP5DP5R的动画也�
 
 老老实实搞个王位争夺战多好，结果其他候选人就是路边一条野狗，打完收工<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dubhea  
+##### 3157#       发表于 2024-10-24 15:33
+
+场景和路人模型做的真烂，搞这么花哨的ui和这么风格化的主要角色衣着，不求场景啥的搞得像p5宫殿那么夸张，但也得风格化一点才好配合，结果整这么一套土到掉渣的场景和路人，整个游戏玩下来全是三流rpg水准的垃圾场景
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

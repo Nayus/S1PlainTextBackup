@@ -5524,3 +5524,11 @@ IMG_3790.jpeg
 
 【【官方live视频】Ave Mujica「黒のバースデイ」（Ave Mujica 2nd LIVE「Quaerere Lumina」神奈川公演）-哔哩哔哩】 https://b23.tv/1pSz9Zs
 
+
+*****
+
+####  桜庭千景  
+##### 25631#       发表于 2024-10-24 19:53
+
+怎么还在发神奈川啊。。。。
+

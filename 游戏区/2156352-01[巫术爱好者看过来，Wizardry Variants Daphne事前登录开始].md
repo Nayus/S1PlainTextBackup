@@ -1575,3 +1575,15 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 不知道能不能让版主帮忙把这个帖子移到手游区去
 
+
+*****
+
+####  战术核辣条  
+##### 197#       发表于 2024-10-24 19:46
+
+大部分地方都很好，至少算很好玩，就是贵的发狂
+1单20抽，资源给的极其扣缩，一个角色还有强制需求抽复数的要素
+而且我搞不懂就忘却香这种东西也要单独收钱是有什么必要吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX729J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

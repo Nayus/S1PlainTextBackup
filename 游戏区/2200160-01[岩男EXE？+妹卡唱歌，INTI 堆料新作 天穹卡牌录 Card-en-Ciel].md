@@ -61,3 +61,13 @@ INTI CREATES老早就开始这种商法了，店特全是擦边色图<img src="h
 对战模式怎样玩，回合速度怎么计算？</blockquote>
 规则写的是随机给玩家发卡组然后两边拼手速抢先攻，感觉是纯胡逼玩法了
 
+
+*****
+
+####  cmyk1234  
+##### 72#       发表于 2024-10-24 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66532186&amp;ptid=2200160" target="_blank">检索者 发表于 2024-10-24 16:06</a>
+规则写的是随机给玩家发卡组然后两边拼手速抢先攻，感觉是纯胡逼玩法了 ...</blockquote>
+有没有强制双方停手思考的机制，像是EXE在暂停阶段选牌？
+

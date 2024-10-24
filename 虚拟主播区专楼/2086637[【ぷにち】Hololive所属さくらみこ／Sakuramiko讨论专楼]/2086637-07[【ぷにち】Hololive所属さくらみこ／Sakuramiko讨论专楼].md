@@ -13606,3 +13606,41 @@ B站你还敢买，给你2026年还不一定能到货
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">这种工场都在国内的应该没事
 
+
+*****
+
+####  holoan  
+##### 10000#         楼主| 发表于 2024-10-24 21:36
+
+<img src="https://img.saraba1st.com/forum/202410/24/213617ss4fmbq7a4opam24.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (49.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-24 21:36 上传
+
+这粘土强，赶紧参加WF去
+
+
+*****
+
+####  holoan  
+##### 10001#         楼主| 发表于 2024-10-24 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66534391&amp;ptid=2086637" target="_blank">rs5621 发表于 2024-10-24 20:39</a>
+
+这种工厂都在国内的应该没事</blockquote>
+就是国内才怕，给你塞个次品呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 10002#         楼主| 发表于 2024-10-24 21:40
+
+……
+
+现在说啥就是随口“下次2ndlive的时候balabala”
+
+真的就已经安排2ndlive了啊
+

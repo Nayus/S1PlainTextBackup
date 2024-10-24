@@ -1803,3 +1803,14 @@ hiho<img src="https://p.sda1.dev/19/66971d5da4129525a7bc38cff5b9f4c1/image.jpg" 
 
 以及下次换个公司做过场动画吧，这次崩得厉害……
 
+
+*****
+
+####  变老的大二  
+##### 3123#       发表于 2024-10-24 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66528252&amp;ptid=2140224" target="_blank">Dreammask 发表于 2024-10-24 08:17</a>
+
+一周目57小时，很规整的王道风（不过掺了不少你社特有的气质），结尾的部分做得挺好，把FD和后日谈全照顾上 ...</blockquote>
+其实我感觉原案有可能是魔法学院版P5，结果莫名其妙魔法学院直接没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+

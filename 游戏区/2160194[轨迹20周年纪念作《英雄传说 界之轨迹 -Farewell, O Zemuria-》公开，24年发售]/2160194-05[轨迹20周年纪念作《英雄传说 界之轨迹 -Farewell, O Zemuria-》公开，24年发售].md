@@ -8406,3 +8406,11 @@ f社你非要这样说话么，上来一见面就xx不见(第一次听到有人�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">刷到快34了才开完桃花剑的槽，回路还没配好，还有三个人，法老控你说你为啥要修这种良性bug呢
 
+
+*****
+
+####  无动于衷  
+##### 6701#       发表于 2024-10-24 09:26
+
+那个FIO在工学院玄关拿黄色晶片的小游戏到底有没有什么技巧，一周目我就没打过去 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

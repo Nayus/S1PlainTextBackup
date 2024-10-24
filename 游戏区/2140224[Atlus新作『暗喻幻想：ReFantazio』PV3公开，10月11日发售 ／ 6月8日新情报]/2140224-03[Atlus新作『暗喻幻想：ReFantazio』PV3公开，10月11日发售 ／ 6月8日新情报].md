@@ -1831,3 +1831,13 @@ hiho<img src="https://p.sda1.dev/19/66971d5da4129525a7bc38cff5b9f4c1/image.jpg" 
 
 谁知道呢 但和现实世界的关系肯定不是现在这样仅仅是结尾提一嘴的程度
 
+
+*****
+
+####  windhawind2  
+##### 3126#       发表于 2024-10-24 09:22
+
+纠结许久 看到pdd246 感觉好价还是买了
+
+突然想通了 大不了看成无剧情的smtvv弱化版嘛  这shi我吃了（如果真是shi的话）<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+

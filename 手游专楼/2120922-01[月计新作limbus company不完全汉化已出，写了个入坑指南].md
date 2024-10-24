@@ -86,3 +86,20 @@ i want you海报(乐
 
 我唐放九号位在人死完之前被无限那几个红币技能复读
 
+
+*****
+
+####  erratic璃月  
+##### 955#       发表于 2024-10-24 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66533404&amp;ptid=2120922" target="_blank">Yuzutea 发表于 2024-10-24 18:17</a>
+
+我不好说，我怀疑这设计是唐不上场不跳阶段
+
+我唐放九号位在人死完之前被无限那几个红币技能复读 ...</blockquote>
+我自己打的时候前半段有失误，唐上场的时间和到第二混乱线的时间差不多。
+
+因为到最后还有后备人格且ego资源也宽裕，所以整体上没什么心理压力<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+不过yj演出确实越来越花哨了，希望下章多来点类似的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

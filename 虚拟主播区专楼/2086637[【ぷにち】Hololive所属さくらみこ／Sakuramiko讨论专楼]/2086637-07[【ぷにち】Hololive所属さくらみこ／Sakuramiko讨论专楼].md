@@ -13572,3 +13572,22 @@ miko杀死了8字母厨。
 
 600RMB往上最少的，这原价11800日元呢跟星街的一样，便宜不到哪去的
 
+
+*****
+
+####  holoan  
+##### 9996#         楼主| 发表于 2024-10-24 19:25
+
+真的有女的特地把头发染成miko的发色去现场的
+
+太强了
+
+*****
+
+####  rs5621  
+##### 9997#       发表于 2024-10-24 19:32
+
+<img src="https://p.sda1.dev/19/ad4abed6255c498fe906100ebf1ef207/CMP_20241024193201153.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

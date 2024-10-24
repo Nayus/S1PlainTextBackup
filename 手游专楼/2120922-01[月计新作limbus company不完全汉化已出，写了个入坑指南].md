@@ -54,3 +54,11 @@ i want you海报(乐
 
 血魔的颜值都好高<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Yuzutea  
+##### 952#       发表于 2024-10-24 17:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这boss战真是你游最傻逼的boss战
+

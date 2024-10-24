@@ -2310,3 +2310,30 @@ meta部分肯定是被砍到只剩张皮了
 没看到骷髅兵啊，都是些史莱姆什么的</blockquote>
 往里走会有块新区域，骷髅随机刷得还挺多的
 
+
+*****
+
+####  石中剑二  
+##### 3168#       发表于 2024-10-24 20:12
+
+<blockquote>TiiTiiLL 发表于 2024-10-24 20:02
+往里走会有块新区域，骷髅随机刷得还挺多的</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202410/24/201130qwwug6ek6zgem3ui.png" referrerpolicy="no-referrer">
+
+<strong>D7D5055F-FDB1-42FE-92EE-1A59D899A148.png</strong> (364.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-24 20:11 上传
+
+<img src="https://img.saraba1st.com/forum/202410/24/201130vvczvchu8cvy2vf2.png" referrerpolicy="no-referrer">
+
+<strong>532A8F79-E919-404B-BE4A-CE89E0AD4619.png</strong> (409.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-24 20:11 上传
+
+新区域在这两个图的什么位置，我绕了半天了
+

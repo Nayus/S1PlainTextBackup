@@ -8414,3 +8414,14 @@ f社你非要这样说话么，上来一见面就xx不见(第一次听到有人�
 
 那个FIO在工学院玄关拿黄色晶片的小游戏到底有没有什么技巧，一周目我就没打过去 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dddyghr  
+##### 6702#       发表于 2024-10-24 09:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66528729&amp;ptid=2160194" target="_blank">无动于衷 发表于 2024-10-24 09:26</a>
+
+那个FIO在工学院玄关拿黄色晶片的小游戏到底有没有什么技巧，一周目我就没打过去  ...</blockquote>
+优先吃运动的晶片，吃一个就贴地或着贴顶，慢慢来 时间比较极限，我也试了三遍才拿满sp，确实很难
+

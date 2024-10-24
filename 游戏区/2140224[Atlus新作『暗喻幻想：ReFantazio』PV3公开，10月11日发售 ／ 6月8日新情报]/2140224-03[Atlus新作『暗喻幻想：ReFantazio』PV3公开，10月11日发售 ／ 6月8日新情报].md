@@ -1841,3 +1841,16 @@ hiho<img src="https://p.sda1.dev/19/66971d5da4129525a7bc38cff5b9f4c1/image.jpg" 
 
 突然想通了 大不了看成无剧情的smtvv弱化版嘛  这shi我吃了（如果真是shi的话）<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星野航  
+##### 3127#       发表于 2024-10-24 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66528252&amp;ptid=2140224" target="_blank">Dreammask 发表于 2024-10-24 09:17</a>
+
+一周目57小时，很规整的王道风（不过掺了不少你社特有的气质），结尾的部分做得挺好，把FD和后日谈全照顾上 ...</blockquote>
+你a每次做动画的公司都不一样，都透露着一股贫穷，也是绝了
+
+从这里你甚至无法判断你a到底是否重视手里的项目
+

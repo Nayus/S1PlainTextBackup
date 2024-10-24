@@ -8511,3 +8511,16 @@ f社你非要这样说话么，上来一见面就xx不见(第一次听到有人�
 双子妹自带的</blockquote>
 谢谢指点。我流程到她入队后去操作页面看看
 
+
+*****
+
+####  maojiashu  
+##### 6711#       发表于 2024-10-24 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66530314&amp;ptid=2160194" target="_blank">leokai8988 发表于 2024-10-24 12:03</a>
+
+怎么能更快更方便换回路，每次切换路线，外加庭院攻略都要手动换回路，好麻烦。 ...</blockquote>
+除了三个主角之外全部用当前可以换到的回路
+
+这样每次切换线路不需要拆来拆去 只需要升级 到后面富裕了再选主力给稀有回路
+

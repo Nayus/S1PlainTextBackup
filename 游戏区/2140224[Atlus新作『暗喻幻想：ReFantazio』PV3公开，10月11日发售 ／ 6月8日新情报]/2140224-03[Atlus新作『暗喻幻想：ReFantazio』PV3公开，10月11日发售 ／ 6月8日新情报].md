@@ -2618,3 +2618,17 @@ meta部分肯定是被砍到只剩张皮了
 
 为什么我进地下纳骨堂做收集8个头骨💀的任务里面就不出来骷髅敌人呢？我真是不明白了
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3194#       发表于 2024-10-25 04:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66535558&amp;ptid=2140224" target="_blank">Khellendros 发表于 2024-10-24 23:45</a>
+最后王宫里打佐尔巴那段给我整笑了，佐尔巴在那说了一堆空话之后就跳了，主角团还在那莫名其妙的共情
+
+然而 ...</blockquote>
+这时候就不得不提团队唯一的智囊，点子王斯特罗尔的含金量了，别人还搁那共情，斯特罗尔直接评价他是被路易骗了好死，逗死我了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+

@@ -1502,3 +1502,11 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 —— 来自 HUAWEI MGA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  电脑死机  
+##### 190#       发表于 2024-10-24 10:47
+
+所以目前编队和队员推荐哪些？武器装备需要注意什么点
+

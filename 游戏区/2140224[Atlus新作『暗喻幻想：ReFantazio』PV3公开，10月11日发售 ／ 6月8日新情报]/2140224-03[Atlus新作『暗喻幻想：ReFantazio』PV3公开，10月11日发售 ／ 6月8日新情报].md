@@ -1963,3 +1963,110 @@ domerica在P5就是动画二队了（主力还是PIG），P3DP5DP5R的动画也�
 
 —— 来自 OPPO PGBM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  星野航  
+##### 3137#       发表于 2024-10-24 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66529080&amp;ptid=2140224" target="_blank">Dreammask 发表于 2024-10-24 11:07</a>
+
+domerica在P5就是动画二队了（主力还是PIG），P3DP5DP5R的动画也都是他们做的，这么算起来合作至少也有六 ...</blockquote>
+3D5D5R那有几个糙得我都不想说
+
+早该淘汰了
+
+合作是长了，问题是这给钱肯定不够到位，当然你a大概率也掏不了多少钱，真不如赶紧淘汰了得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星野航  
+##### 3138#       发表于 2024-10-24 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66529105&amp;ptid=2140224" target="_blank">mai6696 发表于 2024-10-24 11:10</a>
+
+老引擎大概是太低能了，即时演算的效果不好。
+
+角色建模除了路易男主男二，就没几个能看的。
+
+场景那就更别 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">男二驼背，骑士双开门，小女友耸肩+绿色裤袜
+
+真的折磨人，尤法跟男主满级握手互诉衷肠那段，建模把氛围全折腾没了
+
+0组这狗屎引擎本来就已经是迭代过一次的东西了，现在已经进步到只能看立绘自己脑补了，不然纯毁
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3139#       发表于 2024-10-24 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66528907&amp;ptid=2140224" target="_blank">忘却旋律 发表于 2024-10-24 09:48</a>
+解锁就行 还是得练满</blockquote>
+解锁就行。只有主角那个成就需要主角全部练满
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 忘却旋律| + 1|感谢|
+
+查看全部评分
+
+*****
+
+####  星野航  
+##### 3140#       发表于 2024-10-24 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66529161&amp;ptid=2140224" target="_blank">变老的大二 发表于 2024-10-24 11:14</a>
+
+等他们技术升级了，本来P5就是靠演出来掩盖不足，这代连演出都有点拉了。
+
+这引擎做大世界相当的灾难。感 ...</blockquote>
+p组其实也已经用上虚幻了，3R不就是虚幻整得，大概率也是1组去了不少人帮的，只有桥野桂这闭门造车，8年在这歇逼引擎上乱晃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+学学人家1组，哪怕你用5年学个虚幻，3年端上来暗喻幻想估计都好不少
+
+*****
+
+####  ouyang菌  
+##### 3141#       发表于 2024-10-24 10:50
+
+前后排这系统到了后期不能说没有意义只能说是存在感稀薄<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下作咱要不学世界树搞个正经点的前后排吧桥野哥哥
+
+*****
+
+####  抽烟的猴  
+##### 3142#       发表于 2024-10-24 10:51
+
+主要是有销量买单，卖的好凭什么换
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3143#       发表于 2024-10-24 10:52
+
+70小时通关了
+回味一下，剧情给我感觉还行，尤其是没给路易这小丑洗白这点我挺满意的
+就是游玩过程太折磨了，30小时往后几乎没有新怪，最后整整打了三回路易，三回啊三回，追尾高级铁甲战车对方提出的和解条件是……
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+
+
+*****
+
+####  modkingr  
+##### 3144#       发表于 2024-10-24 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66528907&amp;ptid=2140224" target="_blank">忘却旋律 发表于 2024-10-24 09:48</a>
+解锁就行 还是得练满</blockquote>
+解锁比例给的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

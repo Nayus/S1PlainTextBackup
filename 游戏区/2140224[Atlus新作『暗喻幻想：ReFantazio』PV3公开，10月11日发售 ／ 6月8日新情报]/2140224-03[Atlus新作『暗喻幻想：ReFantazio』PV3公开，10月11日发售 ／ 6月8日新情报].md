@@ -2246,3 +2246,15 @@ meta部分肯定是被砍到只剩张皮了
 三年后的国王版一切都会好起来的，mc95分保底</blockquote>
 3年后还是这画面就太抽象了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kuarwbwe  
+##### 3162#       发表于 2024-10-24 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66533408&amp;ptid=2140224" target="_blank">operatbig 发表于 2024-10-24 18:17</a>
+3年后还是这画面就太抽象了。</blockquote>
+三年以后必还是这个画面啊，不可能换引擎的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

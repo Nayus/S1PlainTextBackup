@@ -928,3 +928,45 @@ LP获取暂且开个200%看看吧。少farm一点。钱和经验实在卡了再�
 
 发现没人说，汉化已经完全做完了，现在可以放心体验
 
+
+*****
+
+####  kerbad  
+##### 72#       发表于 2024-10-25 01:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66535401&amp;ptid=2068019" target="_blank">慕容断月 发表于 2024-10-24 23:11</a>
+发现没人说，汉化已经完全做完了，现在可以放心体验</blockquote>
+校对也做好了吗，我记得上次看见这游戏汉化还是非常机翻的质量<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  慕容断月  
+##### 73#       发表于 2024-10-25 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66536024&amp;ptid=2068019" target="_blank">kerbad 发表于 2024-10-25 01:28</a>
+
+校对也做好了吗，我记得上次看见这游戏汉化还是非常机翻的质量</blockquote>
+[https://steamcommunity.com/sharedfiles/filedetails/?id=3320600127](https://steamcommunity.com/sharedfiles/filedetails/?id=3320600127)
+
+至少看得懂了
+
+image.png
+(185.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-25 01:30 上传
+
+<img src="https://img.saraba1st.com/forum/202410/25/013027trwxwzwlrmzdvr0m.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kerbad  
+##### 74#       发表于 2024-10-25 01:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66536028&amp;ptid=2068019" target="_blank">慕容断月 发表于 2024-10-25 01:31</a>
+
+https://steamcommunity.com/sharedfiles/filedetails/?id=3320600127</blockquote>
+好，这段时间的坑清完就去玩<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

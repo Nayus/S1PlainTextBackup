@@ -2141,3 +2141,31 @@ domerica在P5就是动画二队了（主力还是PIG），P3DP5DP5R的动画也�
 
 真的是土绝人寰，100小时hard通关，憋得我屙了坨大的，写了八千字玩后喷，没想到steam评价的字数上限只有7000，居然贴不完
 
+
+*****
+
+####  忘却旋律  
+##### 3152#       发表于 2024-10-24 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66529704&amp;ptid=2140224" target="_blank">mai6696 发表于 2024-10-24 11:07</a>
+
+我提男二是我觉得脸捏得还行。
+
+主要是大额头和三眼妹的建模太唐了，让我试图在游戏里找到还能看的脸。
+
+（ ...</blockquote>
+大额头是建模还过得去，立绘感人， 三眼没反一下，不过三眼没建模也就是和她自己立绘比稍微差点，整体还行。狗子弟入队太晚了，这时候同样物理输出的 男二早成型了，我吃饱了再去练狗子弟，我宁可让男二去练狂战系补技能也懒得练狗子
+
+*****
+
+####  heseran  
+##### 3153#       发表于 2024-10-24 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66529704&amp;ptid=2140224" target="_blank">mai6696 发表于 2024-10-24 11:07</a>
+我提男二是我觉得脸捏得还行。
+
+主要是大额头和三眼妹的建模太唐了，让我试图在游戏里找到还能看的脸。
+
+（ ...</blockquote>
+尤法已经是主角团里比较好的了吧，不论立绘还是建模，我不知道atlus怎么想的，粉毛、蕾菈、参加竞选的那个蝙蝠妹、参加竞选的酒鬼狗族，这几个人的形象怎么看都该入队成为能操控的角色，替换掉什么男二、侯根堡、蝙蝠男、大额头影响的歌姬完全是正向提升。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

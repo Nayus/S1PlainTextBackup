@@ -8471,3 +8471,22 @@ f社你非要这样说话么，上来一见面就xx不见(第一次听到有人�
  ...</blockquote>
 我严重怀疑是不是我的PS5手柄飘了……
 
+
+*****
+
+####  leokai8988  
+##### 6707#       发表于 2024-10-24 12:03
+
+怎么能更快更方便换回路，每次切换路线，外加庭院攻略都要手动换回路，好麻烦。
+
+*****
+
+####  红魔馆的糖  
+##### 6708#       发表于 2024-10-24 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66530314&amp;ptid=2160194" target="_blank">leokai8988 发表于 2024-10-24 12:03</a>
+怎么能更快更方便换回路，每次切换路线，外加庭院攻略都要手动换回路，好麻烦。 ...</blockquote>
+拍个照对着换<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不过也没用，你拿了新回路旧的配置就废了，还得重新换，只能吃这口石
+

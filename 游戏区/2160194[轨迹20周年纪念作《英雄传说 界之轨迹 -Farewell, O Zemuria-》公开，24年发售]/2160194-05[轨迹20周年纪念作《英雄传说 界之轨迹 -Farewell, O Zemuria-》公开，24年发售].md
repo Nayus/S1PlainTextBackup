@@ -8388,3 +8388,13 @@ nm难度庭院有几个限制回合数的boss有点麻烦，瘦狼那一层我�
 
 f社你非要这样说话么，上来一见面就xx不见(第一次听到有人会说“昨日ぶり”）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qooweds  
+##### 6699#       发表于 2024-10-24 08:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66527845&amp;ptid=2160194" target="_blank">liuguokobe 发表于 2024-10-24 01:53</a>
+f社你非要这样说话么，上来一见面就xx不见(第一次听到有人会说“昨日ぶり”） ...</blockquote>
+这点特别傻逼，然后这点在界轨已经登峰造极，到了令人发指的地步
+

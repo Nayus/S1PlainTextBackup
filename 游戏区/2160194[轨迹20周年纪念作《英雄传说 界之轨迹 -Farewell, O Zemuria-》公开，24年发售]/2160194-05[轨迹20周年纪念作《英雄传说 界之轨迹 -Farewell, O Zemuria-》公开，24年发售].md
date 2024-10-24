@@ -8490,3 +8490,13 @@ f社你非要这样说话么，上来一见面就xx不见(第一次听到有人�
 
 不过也没用，你拿了新回路旧的配置就废了，还得重新换，只能吃这口石
 
+
+*****
+
+####  aimujie  
+##### 6709#       发表于 2024-10-24 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66529572&amp;ptid=2160194" target="_blank">露卡 发表于 2024-10-24 10:57</a>
+少个这个驱动，谁知道拿法，求指点一下</blockquote>
+双子妹自带的
+

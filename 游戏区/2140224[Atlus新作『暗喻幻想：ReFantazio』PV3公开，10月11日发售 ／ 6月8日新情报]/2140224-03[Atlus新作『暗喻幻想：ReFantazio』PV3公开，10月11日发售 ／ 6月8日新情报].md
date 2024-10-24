@@ -2369,3 +2369,16 @@ meta部分肯定是被砍到只剩张皮了
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
 
+
+*****
+
+####  NEIN  
+##### 3172#       发表于 2024-10-24 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66534347&amp;ptid=2140224" target="_blank">半江瑟瑟半江红 发表于 2024-10-24 20:33</a>
+对，就是很有问题
+前期给你硬塞俩物理队友，再给你塞物抗怪，等你主角走了法系，嘿嘿，您猜怎么着，主角 ...</blockquote>
+主角最终职业力魔加成是一样的，挑一个数值高的算伤害
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

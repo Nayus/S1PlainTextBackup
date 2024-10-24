@@ -13591,3 +13591,18 @@ miko杀死了8字母厨。
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  holoan  
+##### 9998#         楼主| 发表于 2024-10-24 20:29
+
+B站你还敢买，给你2026年还不一定能到货
+
+*****
+
+####  rs5621  
+##### 9999#       发表于 2024-10-24 20:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">这种工场都在国内的应该没事
+

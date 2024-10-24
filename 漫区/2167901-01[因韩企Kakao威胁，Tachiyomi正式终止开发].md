@@ -3089,3 +3089,16 @@ mihon已经显示废弃了</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  vvleemm  
+##### 286#       发表于 2024-10-24 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66505817&amp;ptid=2167901" target="_blank">frosta 发表于 2024-10-21 13:46</a>
+
+借楼请问ios有方便看漫画柜的app么，搜到个tachimanga但是看起来没有漫画柜插件
+
+论坛助手,iPhone ...</blockquote>
+要退出APP，打开梯子再重新进去就可以看到插件了
+

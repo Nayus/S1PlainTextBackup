@@ -230,3 +230,16 @@
 
 2024-10-24 10:14 上传
 
+
+*****
+
+####  pokemon最爱  
+##### 2553#       发表于 2024-10-24 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66529163&amp;ptid=2162354" target="_blank">jaewoongh_ 发表于 2024-10-24 10:15</a>
+
+11.10：主角团去远吠神社找老狼，妮可躲起来变人开雷达，但妮可的力量暴走，把彩叶变成了狗、茉优变成了猫
+
+ ...</blockquote>
+草，什么同人设定转正<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

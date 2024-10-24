@@ -1953,3 +1953,13 @@ domerica在P5就是动画二队了（主力还是PIG），P3DP5DP5R的动画也�
 
 而且前后排的设计明明有很多可以挖掘的玩法，结果能集体切站位的只有军师的两个技能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  baizhi  
+##### 3136#       发表于 2024-10-24 10:39
+
+确实，**过场2d动画也态便宜了吧，没有一帧不是崩坏的。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">过场我宁愿看3D比目鱼都不想看这破动画。
+
+—— 来自 OPPO PGBM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

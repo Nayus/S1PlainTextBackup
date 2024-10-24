@@ -2289,3 +2289,24 @@ meta部分肯定是被砍到只剩张皮了
 里面的骷髅兵打了就掉啊</blockquote>
 没看到骷髅兵啊，都是些史莱姆什么的
 
+
+*****
+
+####  空集  
+##### 3166#       发表于 2024-10-24 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66528252&amp;ptid=2140224" target="_blank">Dreammask 发表于 2024-10-24 08:17</a>
+
+一周目57小时，很规整的王道风（不过掺了不少你社特有的气质），结尾的部分做得挺好，把FD和后日谈全照顾上 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这种烂完了的过场动画本质与其说是找谁做不如说肯定一眼是出价很低的原因。。。动画这个东西你不愿保证一定的成本那只能这种烂完了的东西
+
+*****
+
+####  TiiTiiLL  
+##### 3167#       发表于 2024-10-24 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66533987&amp;ptid=2140224" target="_blank">石中剑二 发表于 2024-10-24 19:37</a>
+
+没看到骷髅兵啊，都是些史莱姆什么的</blockquote>
+往里走会有块新区域，骷髅随机刷得还挺多的
+

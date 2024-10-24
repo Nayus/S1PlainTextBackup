@@ -1854,3 +1854,40 @@ hiho<img src="https://p.sda1.dev/19/66971d5da4129525a7bc38cff5b9f4c1/image.jpg" 
 
 从这里你甚至无法判断你a到底是否重视手里的项目
 
+
+*****
+
+####  忘却旋律  
+##### 3128#       发表于 2024-10-24 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66527336&amp;ptid=2140224" target="_blank">modkingr 发表于 2024-10-23 23:51</a>
+
+全职业解锁给职业毕业装，还是有点鼓励你全职业解锁的</blockquote>
+解锁就行 还是得练满
+
+*****
+
+####  变老的大二  
+##### 3129#       发表于 2024-10-24 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66528845&amp;ptid=2140224" target="_blank">星野航 发表于 2024-10-24 09:40</a>
+
+你a每次做动画的公司都不一样，都透露着一股贫穷，也是绝了
+
+从这里你甚至无法判断你a到底是否重视手里的 ...</blockquote>
+就Atlus那个项目管理能力，大纲剧情随时变更，也找不了多好的公司来制作动画。 
+
+开场动画能做好都算合格了。结果这次开场动画都意义不明。
+
+*****
+
+####  Dreammask  
+##### 3130#       发表于 2024-10-24 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66528450&amp;ptid=2140224" target="_blank">变老的大二 发表于 2024-10-24 08:52</a>
+
+其实我感觉原案有可能是魔法学院版P5，结果莫名其妙魔法学院直接没了。</blockquote>
+那不至于，不要小看桥野喜欢给作品铺大底子的癖好，单单一个魔法学院版P5不可能满足他的宏大愿景<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
+不过他现在做东西确实比以前更明确了，尤其是P3P4那个时候他都说不清自己想做什么
+

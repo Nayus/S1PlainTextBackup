@@ -1556,3 +1556,14 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 王女是推荐克己还是升技能？1级技能到4层有点无感了。
 
+
+*****
+
+####  elven119  
+##### 195#         楼主| 发表于 2024-10-24 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66530087&amp;ptid=2156352" target="_blank">索非亚 发表于 2024-10-24 11:39</a>
+
+王女是推荐克己还是升技能？1级技能到4层有点无感了。</blockquote>
+升技能，升1级回复翻倍呢
+

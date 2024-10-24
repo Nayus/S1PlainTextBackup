@@ -425,3 +425,13 @@ Off季和Monster季的其他故事，像是宵物语，有动画化的消息嘛<
 没看过小说，本季的女子高生们只是龙套还是后续会有她们的故事？</blockquote>
 绝大多数都是仅登场一次的龙套
 
+
+*****
+
+####  人畜无害沃特碧  
+##### 998#       发表于 2024-10-25 06:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66535251&amp;ptid=2168085" target="_blank">cauchua3 发表于 2024-10-24 22:48</a>
+没看过小说，本季的女子高生们只是龙套还是后续会有她们的故事？</blockquote>
+没记错的话命日子和日伞后面还会出场打酱油
+

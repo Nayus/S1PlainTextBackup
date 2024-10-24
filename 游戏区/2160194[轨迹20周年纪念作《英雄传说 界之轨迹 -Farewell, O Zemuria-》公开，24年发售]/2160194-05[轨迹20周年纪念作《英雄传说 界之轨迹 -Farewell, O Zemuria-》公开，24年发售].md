@@ -8500,3 +8500,14 @@ f社你非要这样说话么，上来一见面就xx不见(第一次听到有人�
 少个这个驱动，谁知道拿法，求指点一下</blockquote>
 双子妹自带的
 
+
+*****
+
+####  露卡  
+##### 6710#       发表于 2024-10-24 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66530595&amp;ptid=2160194" target="_blank">aimujie 发表于 2024-10-24 12:38</a>
+
+双子妹自带的</blockquote>
+谢谢指点。我流程到她入队后去操作页面看看
+

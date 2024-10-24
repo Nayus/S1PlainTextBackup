@@ -1814,3 +1814,20 @@ hiho<img src="https://p.sda1.dev/19/66971d5da4129525a7bc38cff5b9f4c1/image.jpg" 
 一周目57小时，很规整的王道风（不过掺了不少你社特有的气质），结尾的部分做得挺好，把FD和后日谈全照顾上 ...</blockquote>
 其实我感觉原案有可能是魔法学院版P5，结果莫名其妙魔法学院直接没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  空气先生  
+##### 3124#       发表于 2024-10-24 08:58
+
+感觉原案是三主角：男主，路易，老王。结果现在老王就倾情奉献场演出战，国际惯例登基版就加一张大地图，加一张阿玛拉深界板的魔法学院也不是不可能。
+
+*****
+
+####  卡拉德利姆  
+##### 3125#       发表于 2024-10-24 08:59
+
+【《PROJECT Re FANTASY》概念预告】 [https://www.bilibili.com/video/BV16W41187qa](https://www.bilibili.com/video/BV16W41187qa)
+
+谁知道呢 但和现实世界的关系肯定不是现在这样仅仅是结尾提一嘴的程度
+

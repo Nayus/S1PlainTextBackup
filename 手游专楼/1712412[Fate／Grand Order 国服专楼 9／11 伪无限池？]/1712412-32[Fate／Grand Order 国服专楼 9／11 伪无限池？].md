@@ -56,3 +56,13 @@ yls说产能不足以复刻老活动 干脆授权给其他服调试完了反哺�
 
 金光、大象<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shimotsuki14  
+##### 46757#       发表于 2024-10-24 19:42
+
+凑了四十连
+最后十连caster镀金，居然歪了第五宝孔明…
+然后最后一下居然还出了托勒密，收工。
+

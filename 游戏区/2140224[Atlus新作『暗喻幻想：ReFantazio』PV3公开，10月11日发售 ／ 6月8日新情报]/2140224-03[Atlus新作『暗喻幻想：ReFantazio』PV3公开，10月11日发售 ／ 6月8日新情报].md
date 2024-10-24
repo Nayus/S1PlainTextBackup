@@ -2446,3 +2446,59 @@ meta部分肯定是被砍到只剩张皮了
 3年后还是这画面就太抽象了。</blockquote>
 画面更新得等20年后的太上皇版了，3年后就换画面不是纯做梦
 
+
+*****
+
+####  Reslayer  
+##### 3179#       发表于 2024-10-24 22:14
+
+摸六年鱼把边角料用两年拼起来，然后卖我400块
+
+我躲过了灵魂骇客2躲不过这袋工业垃圾<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+创不了新你不要创，隔壁轨迹侠打过来你a不如直接双手投降
+
+越打越气，从头到尾都是美术资源和点子拼接的痕迹
+
+整个流程一口气下来根本没有一个让人感到顺畅的地方
+
+*****
+
+####  baizhi  
+##### 3180#       发表于 2024-10-24 22:14
+
+那还是剑指P6吧，说实话新P组做的P3R其实真还行，特别是队友羁绊的部分。<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  freedom12  
+##### 3181#       发表于 2024-10-24 22:15
+
+把幻想主题/真实世界相关内容砍了 好像也完全不影响剧情
+
+留着 好像也没有什么加分
+
+不清楚搞这一出噱头为了啥
+
+这游戏开发过程中到底经历了什么灾难 最终变成这样
+
+*****
+
+####  NEIN  
+##### 3182#       发表于 2024-10-24 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66534548&amp;ptid=2140224" target="_blank">蟹粉小笼 发表于 2024-10-24 21:06</a>
+我晕，那按照这个说法，其实加点可以力/魔二选一只加一个？之前我两个平均加就是浪费点数？ ...</blockquote>
+是，99力/魔大于50力50魔
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  Reslayer  
+##### 3183#       发表于 2024-10-24 22:18
+
+哦对，你a这次最成功的地方就在于原来不用去欧美多样性取材也能成功用人设丑到我<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+太伟大了副岛，太伟大了异世界多样性
+

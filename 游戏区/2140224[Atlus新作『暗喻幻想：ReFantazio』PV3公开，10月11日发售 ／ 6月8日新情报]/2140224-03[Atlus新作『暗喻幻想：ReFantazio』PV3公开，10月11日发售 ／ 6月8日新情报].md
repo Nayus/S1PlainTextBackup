@@ -2110,3 +2110,18 @@ domerica在P5就是动画二队了（主力还是PIG），P3DP5DP5R的动画也�
 场景那就更别 ...</blockquote>
 男二也不能看，怎么想的建模做成莽夫小混混姿势纯纯翻版龙司，定位居然算智谋担当，张口闭口都是贵族，主角还夸他家教好，基本仪态都没有的，出戏的不行<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mai6696  
+##### 3149#       发表于 2024-10-24 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66529673&amp;ptid=2140224" target="_blank">Edvinno 发表于 2024-10-24 11:05</a>
+
+男二也不能看，怎么想的建模做成莽夫小混混姿势纯纯翻版龙司，定位居然算智谋担当，张口闭口都是贵族，主 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我提男二是我觉得脸捏得还行。
+
+主要是大额头和三眼妹的建模太唐了，让我试图在游戏里找到还能看的脸。
+
+（其实狗子弟的也还可以。
+

@@ -3110,3 +3110,14 @@ mihon已经显示废弃了</blockquote>
 
 想问一下一些要登陆的源要怎么登录？没看见登录的选项啊
 
+
+*****
+
+####  pgain2004  
+##### 288#         楼主| 发表于 2024-10-24 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66529593&amp;ptid=2167901" target="_blank">zhongjie 发表于 2024-10-24 10:59</a>
+
+想问一下一些要登陆的源要怎么登录？没看见登录的选项啊</blockquote>
+某些插件在选项那里，别的一般是点进某个对应源的作品，然后点webview，在网页版里登录，cookies就会被应用继承了
+

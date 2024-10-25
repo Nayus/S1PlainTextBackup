@@ -2899,3 +2899,18 @@ https://vkguide.dev/docs/extra-chapter/graphics_analysis_metafor/
 
 玛丽亚和女拳师没啥槽点，但也就是不过不失，放别的作品里泯然众人的水平
 
+
+*****
+
+####  Jimlee080  
+##### 3214#       发表于 2024-10-25 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66537457&amp;ptid=2140224" target="_blank">Standpronder 发表于 2024-10-25 10:11</a>
+
+只能说风灵月影是个好东西。
+
+每一个角色阿基态是独立的这点太抽象了。
+
+然后加最多经验的宝玉根才给3000点。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我看风大师官网19号发的版本下面评价是最新版用不了啊？有更新么？不想专门刷mag和aexp了
+

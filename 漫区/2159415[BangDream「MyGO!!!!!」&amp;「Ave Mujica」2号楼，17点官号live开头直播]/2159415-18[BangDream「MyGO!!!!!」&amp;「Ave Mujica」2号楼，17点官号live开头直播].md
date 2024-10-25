@@ -5789,3 +5789,34 @@ wsd节节败退是因为媚豚吗，哈哈，那无敌了呀
 
 爽睦是爱情，木箱是亲情，睦每次都选祥是因为兄弟如手足女人如衣服，所以睦只和soyo有恋爱感情的。
 
+
+*****
+
+####  rinku  
+##### 25655#       发表于 2024-10-25 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66538630&amp;ptid=2159415" target="_blank">狂热飞鸟 发表于 2024-10-25 12:15</a>
+啊啊啊，我被伤到了，刚看到的一个评论，这想法是不是也太逆天了。
+
+爽睦是爱情，木箱是亲情，睦每次都选祥 ...</blockquote>
+你不当场攻击回去而是搬史给大家看，我可就要攻击你了
+
+*****
+
+####  金属化反射装甲  
+##### 25656#       发表于 2024-10-25 12:20
+
+你无法叫醒一个装睡的人<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 25657#       发表于 2024-10-25 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66538630&amp;ptid=2159415" target="_blank">狂热飞鸟 发表于 2024-10-25 12:15</a>
+啊啊啊，我被伤到了，刚看到的一个评论，这想法是不是也太逆天了。
+
+爽睦是爱情，木箱是亲情，睦每次都选祥 ...</blockquote>
+他都伤敌500自伤5000了 还是让让他吧
+第一次见这么贬低自己推的cp的人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

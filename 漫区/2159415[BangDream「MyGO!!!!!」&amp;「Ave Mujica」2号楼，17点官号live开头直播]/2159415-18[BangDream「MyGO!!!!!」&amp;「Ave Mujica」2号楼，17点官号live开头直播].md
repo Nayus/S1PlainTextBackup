@@ -6020,3 +6020,44 @@ https://x.com/animaxmusi**/status/1849737670718562760?t=DM44h1ZQYb2bMTvKQRp2HQ&a
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  adcdqre  
+##### 25679#       发表于 2024-10-25 22:10
+
+ 本帖最后由 adcdqre 于 2024-10-25 22:14 编辑 
+
+回顾的时候顺便破除了一个谣言。祥睦一进门灯就发现了她俩来了，不存在不知道没看见的情况。以下是现场监控
+
+<img src="https://img.saraba1st.com/forum/202410/25/220837a84ev15o48polo1b.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241025_220157.jpg</strong> (171.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-25 22:08 上传
+
+<img src="https://img.saraba1st.com/forum/202410/25/220842hzcrggcbo8h5h5uo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241025_220124.jpg</strong> (115.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-25 22:08 上传
+
+*****
+
+####  adcdqre  
+##### 25680#       发表于 2024-10-25 22:12
+
+对应瞳孔里的是这一幕。一反大家印象的这里睦全程说话祥子在听
+
+<img src="https://img.saraba1st.com/forum/202410/25/221107hfogdo5ki341qqo5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241025_220230.jpg</strong> (105.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-25 22:11 上传
+

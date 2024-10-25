@@ -5980,3 +5980,23 @@ https://x.com/animaxmusi**/status/1849737670718562760?t=DM44h1ZQYb2bMTvKQRp2HQ&a
 ——剧场版「BanG Dream! It's MyGO!!!!!」上映后，2025年1月还将播出TV动画『BanG Dream! Ave Mujica』（ ...</blockquote>
 你知道这一年我是怎么过的吗.jpg
 
+
+*****
+
+####  哈曼的YY  
+##### 25675#       发表于 2024-10-25 19:19
+
+喔漏油那个分析大喵关注小黄瓜老妈的图当时没看懂
+
+所以大喵想去小黄瓜家和她老妈打好关系进入演艺圈 书还是小黄瓜家的
+
+可能还是个围城 小黄瓜天天被监督学演技不喜欢vs大喵想学演技
+
+
+*****
+
+####  skives10  
+##### 25676#       发表于 2024-10-25 19:22
+
+回家发现自己又又又又落选 眼前一黑<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

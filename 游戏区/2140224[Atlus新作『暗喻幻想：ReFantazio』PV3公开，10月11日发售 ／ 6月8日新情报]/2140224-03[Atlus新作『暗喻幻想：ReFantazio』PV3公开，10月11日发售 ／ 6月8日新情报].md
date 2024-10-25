@@ -2914,3 +2914,11 @@ https://vkguide.dev/docs/extra-chapter/graphics_analysis_metafor/
 然后加最多经验的宝玉根才给3000点。 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我看风大师官网19号发的版本下面评价是最新版用不了啊？有更新么？不想专门刷mag和aexp了
 
+
+*****
+
+####  八佾舞于潭  
+##### 3215#       发表于 2024-10-25 16:26
+
+很正常，我做实验在一个小圈子冷门模拟器上调了许久，快收尾了跟我说最好换到主流模拟器平台我也很不情愿，好不容易卡出来的结果都不能用了，前途一片未知。
+

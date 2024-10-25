@@ -5820,3 +5820,23 @@ wsd节节败退是因为媚豚吗，哈哈，那无敌了呀
 他都伤敌500自伤5000了 还是让让他吧
 第一次见这么贬低自己推的cp的人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  狂热飞鸟  
+##### 25658#       发表于 2024-10-25 12:28
+
+是的，这话骂点太多，一时之间都都不知道怎么开头骂，有一种骂他都是会继续受内伤的感觉
+
+*****
+
+####  芸香科植物激推  
+##### 25659#       发表于 2024-10-25 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66538630&amp;ptid=2159415" target="_blank">狂热飞鸟 发表于 2024-10-25 12:15</a>
+
+啊啊啊，我被伤到了，刚看到的一个评论，这想法是不是也太逆天了。
+
+爽睦是爱情，木箱是亲情，睦每次都选祥 ...</blockquote>
+感觉有成为定型文的潜质<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

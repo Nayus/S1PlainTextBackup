@@ -2842,3 +2842,12 @@ https://vkguide.dev/docs/extra-chapter/graphics_analysis_metafor/
 零组程序都这么菜了，搞不懂为何不向真女组和新P组求支援，四年前换虚幻4来得及不说，同社也不缺会用的人 ...</blockquote>
 就这态度 还当初 注册各什么 RPG.JP网址 简直小丑
 
+
+*****
+
+####  mai6696  
+##### 3210#       发表于 2024-10-25 13:30
+
+现在想想，开头那片荒漠简直就是demo欺诈。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 让你以为以后能跑大地图哩。
+

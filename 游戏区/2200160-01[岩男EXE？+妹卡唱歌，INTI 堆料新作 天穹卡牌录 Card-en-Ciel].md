@@ -135,3 +135,13 @@ INTI CREATES老早就开始这种商法了，店特全是擦边色图<img src="h
 强化的过牌卡都都效率惊人。
 零费增压套打起来最爽
 
+
+*****
+
+####  八佾舞于潭  
+##### 79#         楼主| 发表于 2024-10-25 14:08
+
+官方发售贺图
+
+<img src="https://p.sda1.dev/19/10810a9a2999a5f35eade56f80222dd0/GaokBEabsAACjlA.jpeg" referrerpolicy="no-referrer">
+

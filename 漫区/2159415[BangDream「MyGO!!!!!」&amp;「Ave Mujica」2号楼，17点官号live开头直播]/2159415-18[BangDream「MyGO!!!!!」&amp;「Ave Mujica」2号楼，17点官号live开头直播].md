@@ -5719,3 +5719,19 @@ mygo或者加上mujica 都是糊逼玩意儿，还是别蹭“大热原创”这
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">深柜厨厨没事就来阴阳喊话钓一下，超爱河豚呢
 
+
+*****
+
+####  星天观测  
+##### 25647#       发表于 2024-10-25 09:19
+
+一直到12月1号可能都没什么东西，辛苦你跑来蹦跶了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是感觉有点腻了
+
+
+*****
+
+####  金属化反射装甲  
+##### 25648#       发表于 2024-10-25 09:24
+
+我傻逼恐惧症要犯了，能不能举报把这条随地大小便的野犬送进去啊<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+

@@ -6194,3 +6194,13 @@ https://x.com/animaxmusi**/status/1849737670718562760?t=DM44h1ZQYb2bMTvKQRp2HQ&a
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">感覺 去新加坡看到的機率還比較大
 
+
+*****
+
+####  仓鼠胖太  
+##### 25694#       发表于 2024-10-26 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66543416&amp;ptid=2159415" target="_blank">skives10 发表于 2024-10-25 22:28</a>
+比较常见的谣言应该是睦对祥子跑出live house毫无反应 实际上从祥子跑出门开始 睦一直看着祥子离开的方向  ...</blockquote>
+雀实，不过这个反应也挺怪的，不知道母鸡卡篇会不会出一集睦视角完整解说下心路历程不
+

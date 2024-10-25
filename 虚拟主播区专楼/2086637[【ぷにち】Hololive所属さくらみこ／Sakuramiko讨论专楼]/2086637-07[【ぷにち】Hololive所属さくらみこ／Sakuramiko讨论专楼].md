@@ -13722,3 +13722,30 @@ GSC那个手办介绍，原型制作者自己是35P特地花了好几分钟解�
 
 这访谈这么近才做的！？
 
+
+*****
+
+####  holoan  
+##### 10011#         楼主| 发表于 2024-10-25 18:58
+
+<img src="https://img.saraba1st.com/forum/202410/25/185809kxc8cfd858st6sc5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (96.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-25 18:58 上传
+
+*****
+
+####  holoan  
+##### 10012#         楼主| 发表于 2024-10-25 20:28
+
+<img src="https://img.saraba1st.com/forum/202410/25/202803dedplmmjjatwa3wa.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (240.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-25 20:28 上传
+

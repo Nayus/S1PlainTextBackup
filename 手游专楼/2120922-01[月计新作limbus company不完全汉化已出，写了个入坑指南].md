@@ -146,3 +146,35 @@ boss战感觉老唐有点放水了
 
 惜春也挺不错的
 
+
+*****
+
+####  Jamaisvu  
+##### 960#       发表于 2024-10-25 17:10
+
+10.31是神父虫单池子，待遇不错嘛，血罗和血唐不知道怎么个出法？
+
+<img src="https://img.saraba1st.com/forum/202410/25/170748h0aumvzrwk96r9uz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.32 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-25 17:07 上传
+
+<img src="https://img.saraba1st.com/forum/202410/25/170937pbdbwb9jwb2jku02.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.14 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-25 17:09 上传
+
+<img src="https://img.saraba1st.com/forum/202410/25/170918und93zzgf77df9zd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.79 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-25 17:09 上传
+

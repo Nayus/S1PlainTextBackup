@@ -56,3 +56,35 @@ LPFMはトラックに乗りUNKNOWNへと向う。
 
 [https://youtu.be/L7q9w_fZNXI](https://youtu.be/L7q9w_fZNXI)
 
+
+*****
+
+####  小比類巻香蓮  
+##### 1939#         楼主| 发表于 2024-10-26 00:47
+
+ 本帖最后由 小比類巻香蓮 于 2024-10-26 00:48 编辑 
+
+<img src="https://img.saraba1st.com/forum/202410/26/004659fib89b7d819wb797.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (866.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-26 00:46 上传
+
+黒星紅白 @kuroboshi
+
+24時からアニメ『GGOⅡ』　第4話！見るっきゃない！　#ggo_anime
+
+<img src="https://img.saraba1st.com/forum/202410/26/004727q317o8npyo54joor.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.45 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-26 00:47 上传
+
+▌第4話 アイキャッチイラスト
+
+吉田健一 さん @gallo44_yoshida
+

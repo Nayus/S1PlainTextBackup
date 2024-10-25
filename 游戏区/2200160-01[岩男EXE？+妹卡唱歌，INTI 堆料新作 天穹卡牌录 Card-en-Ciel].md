@@ -163,3 +163,13 @@ INTI CREATES老早就开始这种商法了，店特全是擦边色图<img src="h
 
 崩解点这玩意真难用啊，挂不到多人经常副作用，就算全挂上了，怪的位置不好也要面临输出卡不够的困境，每回合都要把大量卡用在走位上，迷宫6按着头玩这个，头疼<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Booorunestud  
+##### 82#       发表于 2024-10-26 03:04
+
+普通难度一路推到迷宫6被它这除毒+安装的强卖卡组给噎着了，毫无过牌和输出，完全不知道怎么玩，到第三层对着1578血的隐藏boss干瞪眼
+
+需不需要去前面几关刷积分拿些加成？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

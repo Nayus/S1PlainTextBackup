@@ -6127,3 +6127,43 @@ https://x.com/animaxmusi**/status/1849737670718562760?t=DM44h1ZQYb2bMTvKQRp2HQ&a
 
 这下12月1号之后真要断网两周了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 25688#       发表于 2024-10-25 23:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">109新宿好像一共只有七百座，难以想象会有多难抽
+
+*****
+
+####  skives10  
+##### 25689#       发表于 2024-10-25 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66543714&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-10-25 23:26</a>
+109新宿好像一共只有七百座，难以想象会有多难抽</blockquote>
+三号厅一共142个座 这还是算上轮椅席位 实际能抽的更少<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 25690#       发表于 2024-10-25 23:32
+
+等武藏野吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 25691#       发表于 2024-10-25 23:32
+
+ 本帖最后由 Aendst 于 2024-10-25 23:37 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">血战同担大失败
+
+只能等4th了
+
+原来是只有三号厅放吗<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">看了一下只有140座
+
+算了，什么欧皇专属
+

@@ -5864,3 +5864,11 @@ wsd节节败退是因为媚豚吗，哈哈，那无敌了呀
 
 你甚至能在只打着“睦祥”tag的文里看到“为了妹妹放弃爱情”，吃到好几次这种的被创到再也不敢看不认识的作者写的东西<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 25663#       发表于 2024-10-25 14:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能别搬石吗，难蚌
+

@@ -2851,3 +2851,33 @@ https://vkguide.dev/docs/extra-chapter/graphics_analysis_metafor/
 现在想想，开头那片荒漠简直就是demo欺诈。
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 让你以为以后能跑大地图哩。
 
+
+*****
+
+####  星野航  
+##### 3211#       发表于 2024-10-25 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66535501&amp;ptid=2140224" target="_blank">猫沢 发表于 2024-10-25 00:35</a>
+
+绿色裤袜还行，木花朔耶，法比耶娜都是绿裤袜</blockquote>
+建模差太远
+
+木花整体有上半身袖裙，哪怕是裤袜也无碍，而且本身花叶繁茂之神，用点绿可以
+
+尤法身上是黑白相间宽袍，上半身建模又像驼背，然后搭配亮绿裤袜，折磨
+
+
+*****
+
+####  星野航  
+##### 3212#       发表于 2024-10-25 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66538924&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-10-25 13:55</a>
+
+零组程序都这么菜了，搞不懂为何不向真女组和新P组求支援，四年前换虚幻4来得及不说，同社也不缺会用的人 ...</blockquote>
+这事儿，不是简单换引擎的问题
+
+桥野桂一开始就没想着要动这个引擎。跟1组的情况完全不一样，1组当年立项smtv的时候，上一代成熟的产品已经没法看了，属于必须技术改革。smtv拖了这么久也是因为先折腾了几年虚幻。
+
+暗喻这中间光项目推进就耗进去了，还谈啥换引擎。指不定头四年做得东西都不是现在这个玩意
+

@@ -5771,3 +5771,11 @@ wsd节节败退是因为媚豚吗，哈哈，那无敌了呀
 
 看得出来厨厨对wsd卖百合真的很破防，难怪整天贷款剧情爆炸
 
+
+*****
+
+####  PDQ4  
+##### 25653#       发表于 2024-10-25 12:00
+
+厨厨如果有什么公司暗杀名单，wsd绝对榜上有名<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

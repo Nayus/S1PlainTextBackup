@@ -970,3 +970,11 @@ image.png
 https://steamcommunity.com/sharedfiles/filedetails/?id=3320600127</blockquote>
 好，这段时间的坑清完就去玩<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kerbad  
+##### 75#       发表于 2024-10-25 18:16
+
+我草这地图有点牛，一开始就能通过跳跳乐从鱼孵场拐到首都了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">。然后门卫要我收到五颗水晶才放我出去
+

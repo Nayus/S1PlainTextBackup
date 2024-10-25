@@ -5941,3 +5941,23 @@ wsd节节败退是因为媚豚吗，哈哈，那无敌了呀
 <img src="https://p.sda1.dev/19/3618e5b69e14014dbcb3f49eada0378b/GauPxLnb0AAk4EY.jpg" referrerpolicy="no-referrer">
 [朗読劇『#白きは沈黙の街で 』](https://x.com/aoki__hina/status/1849730158871314840/photo/1)
 
+
+*****
+
+####  鳥栖朝  
+##### 25671#       发表于 2024-10-25 18:24
+
+<blockquote>yuyin589 发表于 2024-10-25 13:46
+你甚至能在只打着“睦祥”tag的文里看到“为了妹妹放弃爱情”，吃到好几次这种的被创到再也不敢看不认识的 ...</blockquote>
+直接boss直聘进黑名单，犹豫一秒都是对ta的不尊重
+
+*****
+
+####  1a不解释  
+##### 25672#       发表于 2024-10-25 18:26
+
+https://x.com/animaxmusi**/status/1849737670718562760?t=DM44h1ZQYb2bMTvKQRp2HQ&amp;s=19
+世界观崩坏了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

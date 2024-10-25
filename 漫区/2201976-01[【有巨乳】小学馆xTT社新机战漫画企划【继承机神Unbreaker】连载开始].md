@@ -22,3 +22,14 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">好大,我要吸
 
+
+*****
+
+####  HATENA  
+##### 51#       发表于 2024-10-25 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66433135&amp;ptid=2201976" target="_blank">忘却旋律 发表于 2024-10-12 13:28</a>
+
+等等  不是AI的模拟身体吗 怎么还能香和软的 这是模拟了个实体出来</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">怎么新莱丁搓个女人出来我就不能吗
+

@@ -2778,3 +2778,42 @@ meta部分肯定是被砍到只剩张皮了
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
 
+
+*****
+
+####  GuardHei  
+##### 3206#       发表于 2024-10-25 12:38
+
+ 本帖最后由 GuardHei 于 2024-10-25 12:40 编辑 
+
+[https://vkguide.dev/docs/extra-chapter/graphics_analysis_metafor/](https://vkguide.dev/docs/extra-chapter/graphics_analysis_metafor/)
+暗喻幻想渲染截帧分析
+我看了下这个文章，省流：为什么优化这么拉
+
+调几个难绷的点说：
+阴影和光源都没有做合适的剔除，所有物体都会为了阴影画3遍，影响范围完全在视锥外的光源也在绘制。整个阴影占了一半的渲染开销
+
+画光源的时候额外多画了一遍，没有任何卵用的多画了一遍
+
+ui是一个字母一个字母画的，没有任何合批
+
+虽然我对atlus的技术不报期望，但这不如直接换unity/ue了，只能说做太久了。难怪还得小场景分割，技术根本不支持大地图。
+
+smtvv在sd上玩的还是挺爽的，暗喻幻想这帧数大火车实在玩不舒服
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3207#       发表于 2024-10-25 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66538804&amp;ptid=2140224" target="_blank">GuardHei 发表于 2024-10-25 12:38</a>
+https://vkguide.dev/docs/extra-chapter/graphics_analysis_metafor/
+暗喻幻想渲染截帧分析
+我看了下这个 ...</blockquote>
+怪不得我那台4070ti的机器跑着都掉帧，换4090才能保证帧率稳定
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+

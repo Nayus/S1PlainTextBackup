@@ -3616,3 +3616,27 @@ VN这个姿势真有人能还原。
 
 第五集坛友想要的来了
 
+
+*****
+
+####  ads147147  
+##### 345#       发表于 2024-10-25 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66543130&amp;ptid=2201887" target="_blank">csolfans 发表于 2024-10-25 21:41</a>
+第五集坛友想要的来了</blockquote>
+但是事到如今你花还是盯着一个cp薅。。。想起当年你花好像缪水也是这个尿性又觉得无语。
+
+感觉第五话得破功了。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  日野下花帆  
+##### 346#       发表于 2024-10-25 21:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">可堇本来就缺少可可视角的补充，这才算是把一对cp写完了，看看下周能不能挽救一下了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

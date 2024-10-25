@@ -1633,3 +1633,11 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 所以有人总结过本作的难点么，刚到6F，5F传送点后面小路双基等级太高打不过……boss比预期的好打，某个宝箱 ...</blockquote>
 难点就是，第一个迷宫是新手教程，打完（真正意义上的打完）游戏才开始
 
+
+*****
+
+####  hzh3355  
+##### 203#       发表于 2024-10-25 18:05
+
+这技术力也是没谁了，灵药不能用的BUG还没修好<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

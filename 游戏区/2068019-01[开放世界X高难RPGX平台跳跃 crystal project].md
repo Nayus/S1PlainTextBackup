@@ -978,3 +978,16 @@ https://steamcommunity.com/sharedfiles/filedetails/?id=3320600127</blockquote>
 
 我草这地图有点牛，一开始就能通过跳跳乐从鱼孵场拐到首都了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">。然后门卫要我收到五颗水晶才放我出去
 
+
+*****
+
+####  慕容断月  
+##### 76#       发表于 2024-10-25 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66541569&amp;ptid=2068019" target="_blank">kerbad 发表于 2024-10-25 18:16</a>
+
+我草这地图有点牛，一开始就能通过跳跳乐从鱼孵场拐到首都了。然后门卫要我收到五颗水晶才放我出去 ...</blockquote>
+前期可以快速打完7个水晶（还是建议多开home point）
+
+然后赶紧把昆塔龙拿了这样还能扩展移动范围
+

@@ -953,3 +953,19 @@ ed舒服不少
 
 观感挺舒服的，也有乐子（fx战士好似，目前感觉比之前芳文社的钓鱼动画有意思。
 
+
+*****
+
+####  月珊瑚与紫鸢尾  
+##### 87#       发表于 2024-10-25 21:08
+
+以为是钓鱼佬欢乐日常，没想到是戒赌片<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  熊猫roey  
+##### 88#       发表于 2024-10-25 21:14
+
+戒社元素过多了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

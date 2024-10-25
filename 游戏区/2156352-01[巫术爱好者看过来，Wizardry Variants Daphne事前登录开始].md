@@ -1622,3 +1622,14 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 加载bug有点频繁了，6F传送阵逛了半天发现个宝箱又没显示，重启后卧槽到处都是怪
 
+
+*****
+
+####  elven119  
+##### 202#         楼主| 发表于 2024-10-25 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66539910&amp;ptid=2156352" target="_blank">电脑死机 发表于 2024-10-25 15:01</a>
+
+所以有人总结过本作的难点么，刚到6F，5F传送点后面小路双基等级太高打不过……boss比预期的好打，某个宝箱 ...</blockquote>
+难点就是，第一个迷宫是新手教程，打完（真正意义上的打完）游戏才开始
+

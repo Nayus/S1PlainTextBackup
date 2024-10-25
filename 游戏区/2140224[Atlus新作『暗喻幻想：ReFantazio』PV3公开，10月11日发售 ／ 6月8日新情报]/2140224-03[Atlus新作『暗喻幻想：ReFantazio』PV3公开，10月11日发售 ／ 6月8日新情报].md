@@ -2731,3 +2731,25 @@ meta部分肯定是被砍到只剩张皮了
 最后各个城镇的支持者帮主角拉票的剧情里面就巴登一 ...</blockquote>
 老头车长家里有矿答应和自家工房做交易了吧，毕竟是个傻萌生意人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kamiruding  
+##### 3202#       发表于 2024-10-25 11:45
+
+试玩了一下 不得不说今年 阿特拉斯最好得 游戏是 STM5 VV  可惜不火  P3R 那么多弱智东西都动都不敢动  阿特拉斯真诚信让大家吃屎，更不说P3R豪华版哪个送的音乐和画册 简直侮辱人得EXE启动器 以及不带DLC得骚操作。
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3203#       发表于 2024-10-25 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66537757&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-10-25 10:42</a>
+买游戏给修改器玩，steam成就系统真不如取消得了
+
+—— 来自 S1Fun</blockquote>
+讲真stm5v的dlc也没跟修改器有啥区别了
+而且我猜暗喻幻想R（或者暗喻幻想V？暗喻幻想G？）也会带增加鬼火出现概率的dlc
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+

@@ -97,3 +97,13 @@ INTI CREATES老早就开始这种商法了，店特全是擦边色图<img src="h
 
 整个流程感觉最爽的是流亡代码的完全体变身BD，一直变身一直爽，还能检索变身
 
+
+*****
+
+####  EndlessDied  
+##### 76#       发表于 2024-10-25 08:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">今天看了一下Steam评论里的差评
+
+怎么会有人不喜欢打总力战！<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+

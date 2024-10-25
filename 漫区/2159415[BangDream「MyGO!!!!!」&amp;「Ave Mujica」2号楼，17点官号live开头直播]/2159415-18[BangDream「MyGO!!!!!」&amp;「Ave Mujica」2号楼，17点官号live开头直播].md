@@ -6119,3 +6119,11 @@ https://x.com/animaxmusi**/status/1849737670718562760?t=DM44h1ZQYb2bMTvKQRp2HQ&a
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">讓朋友抽了2張 ご用意できませんでした 
 
+
+*****
+
+####  skives10  
+##### 25687#       发表于 2024-10-25 23:18
+
+这下12月1号之后真要断网两周了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

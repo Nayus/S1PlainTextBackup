@@ -114,3 +114,11 @@ yls说产能不足以复刻老活动 干脆授权给其他服调试完了反哺�
 
 抽光了300石头，没有，退坑
 
+
+*****
+
+####  qixinno2  
+##### 46764#       发表于 2024-10-25 11:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">连个四星都没有 五星礼装也没出 傻逼游戏
+

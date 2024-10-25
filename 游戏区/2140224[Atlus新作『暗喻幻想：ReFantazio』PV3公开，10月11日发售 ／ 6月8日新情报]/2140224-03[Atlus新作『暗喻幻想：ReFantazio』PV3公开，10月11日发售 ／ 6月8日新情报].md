@@ -2945,3 +2945,11 @@ https://vkguide.dev/docs/extra-chapter/graphics_analysis_metafor/
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  李喜睡  
+##### 3218#       发表于 2024-10-25 22:24
+
+终于通关了，后日谈不错，让我对这个游戏的印象好了点
+

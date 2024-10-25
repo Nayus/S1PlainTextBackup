@@ -5970,3 +5970,13 @@ https://x.com/animaxmusi**/status/1849737670718562760?t=DM44h1ZQYb2bMTvKQRp2HQ&a
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66484600&amp;ptid=2159415" target="_blank">allesdg 发表于 2024-10-18 18:23</a></blockquote>
 艹，太细了姐
 
+
+*****
+
+####  仓鼠胖太  
+##### 25674#       发表于 2024-10-25 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66490920&amp;ptid=2159415" target="_blank">skives10 发表于 2024-10-19 14:50</a>
+——剧场版「BanG Dream! It's MyGO!!!!!」上映后，2025年1月还将播出TV动画『BanG Dream! Ave Mujica』（ ...</blockquote>
+你知道这一年我是怎么过的吗.jpg
+

@@ -2708,3 +2708,13 @@ meta部分肯定是被砍到只剩张皮了
 
 是啊，有修改器DLC销量就少了。<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Khellendros  
+##### 3200#       发表于 2024-10-25 11:08
+
+感觉艾丁莉娜巴特林原本也应该有coop吧，做不完砍掉了
+
+最后各个城镇的支持者帮主角拉票的剧情里面就巴登一个有coop也太搞了，别的就算了，我都不知道莉娜为啥帮我
+

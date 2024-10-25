@@ -8548,3 +8548,113 @@ f社你非要这样说话么，上来一见面就xx不见(第一次听到有人�
 
 没兴趣折腾的话，主线和庭院装备共用，三条线每部随便插一次普通石头就好，游戏难度不算特别高不至于卡关。
 
+
+*****
+
+####  露卡  
+##### 6714#       发表于 2024-10-24 10:57
+
+<img src="http://i0.hdslb.com/bfs/new_dyn/b6cba0cba22546f9c85ac7887aa5294b8586092.jpg" referrerpolicy="no-referrer">
+
+少个这个驱动，谁知道拿法，求指点一下
+
+*****
+
+####  黄字  
+##### 6715#       发表于 2024-10-24 11:08
+
+快打完了 说一个点，所有的语音几乎都放在了见面打招呼上，打完招呼讲重要剧情就没有语音了。
+
+*****
+
+####  无动于衷  
+##### 6716#       发表于 2024-10-24 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66528947&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-10-24 09:52</a>
+
+啊？你是不是开着加速玩的？
+
+我第一次玩的时候忘了关加速觉得还有点难 关了瞬间没难度了
+
+ ...</blockquote>
+我严重怀疑是不是我的PS5手柄飘了……
+
+*****
+
+####  leokai8988  
+##### 6717#       发表于 2024-10-24 12:03
+
+怎么能更快更方便换回路，每次切换路线，外加庭院攻略都要手动换回路，好麻烦。
+
+*****
+
+####  红魔馆的糖  
+##### 6718#       发表于 2024-10-24 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66530314&amp;ptid=2160194" target="_blank">leokai8988 发表于 2024-10-24 12:03</a>
+怎么能更快更方便换回路，每次切换路线，外加庭院攻略都要手动换回路，好麻烦。 ...</blockquote>
+拍个照对着换<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不过也没用，你拿了新回路旧的配置就废了，还得重新换，只能吃这口石
+
+*****
+
+####  aimujie  
+##### 6719#       发表于 2024-10-24 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66529572&amp;ptid=2160194" target="_blank">露卡 发表于 2024-10-24 10:57</a>
+少个这个驱动，谁知道拿法，求指点一下</blockquote>
+双子妹自带的
+
+*****
+
+####  露卡  
+##### 6720#       发表于 2024-10-24 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66530595&amp;ptid=2160194" target="_blank">aimujie 发表于 2024-10-24 12:38</a>
+
+双子妹自带的</blockquote>
+谢谢指点。我流程到她入队后去操作页面看看
+
+
+*****
+
+####  maojiashu  
+##### 6721#       发表于 2024-10-24 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66530314&amp;ptid=2160194" target="_blank">leokai8988 发表于 2024-10-24 12:03</a>
+
+怎么能更快更方便换回路，每次切换路线，外加庭院攻略都要手动换回路，好麻烦。 ...</blockquote>
+除了三个主角之外全部用当前可以换到的回路
+
+这样每次切换线路不需要拆来拆去 只需要升级 到后面富裕了再选主力给稀有回路
+
+*****
+
+####  仲可怀  
+##### 6722#       发表于 2024-10-24 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66530314&amp;ptid=2160194" target="_blank">leokai8988 发表于 2024-10-24 12:03</a>
+
+怎么能更快更方便换回路，每次切换路线，外加庭院攻略都要手动换回路，好麻烦。 ...</blockquote>
+其实这次羊被改之前，随便刷，除了少部分高级回路外 普通回路随便装
+
+*****
+
+####  jacket  
+##### 6723#       发表于 2024-10-24 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66530314&amp;ptid=2160194" target="_blank">leokai8988 发表于 2024-10-24 12:03</a>
+
+怎么能更快更方便换回路，每次切换路线，外加庭院攻略都要手动换回路，好麻烦。 ...</blockquote>
+你要是乐于研究最佳回路，就盯着每条链子配出最关键的一两项效果，其余都比较随意。想同时出四项效果才费脑筋。
+
+没兴趣折腾的话，主线和庭院装备共用，三条线每部随便插一次普通石头就好，游戏难度不算特别高不至于卡关。
+
+*****
+
+####  洛克萨斯  
+##### 6724#       发表于 2024-10-25 10:05
+
+桃花剑的神气合一是对自己攻击？能触发挨打加cp的效果...............是你干的么！小黑？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

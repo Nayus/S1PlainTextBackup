@@ -119,3 +119,19 @@ INTI CREATES老早就开始这种商法了，店特全是擦边色图<img src="h
 
 但是这游戏牌库长的一笔，不太明白怎么搞
 
+
+*****
+
+####  101207777  
+##### 78#       发表于 2024-10-25 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66536891&amp;ptid=2200160" target="_blank">zzy516232108 发表于 2024-10-25 09:09</a>
+昨晚上手玩了几把，说实话真不太明白怎么胡的
+
+盗版世界树男人女人一套步伐叠起来，一刀80 2刀通关
+
+但是这游 ...</blockquote>
+少打架，少抓卡。
+强化的过牌卡都都效率惊人。
+零费增压套打起来最爽
+

@@ -145,3 +145,13 @@ INTI CREATES老早就开始这种商法了，店特全是擦边色图<img src="h
 
 <img src="https://p.sda1.dev/19/10810a9a2999a5f35eade56f80222dd0/GaokBEabsAACjlA.jpeg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  检索者  
+##### 80#       发表于 2024-10-25 14:46
+
+<blockquote>meltingwhite 发表于 2024-10-24 16:36
+万用卡大家都是怎么搭配的</blockquote>
+我是带了两张雷电链击用来开局秒怪(基本可以稳定ftk开局小怪)，传奇卡带侦探的抽满手牌，其他的都带久远那张一费抽三用来防鬼抽
+

@@ -278,3 +278,16 @@
 ※ノベルティは常設店・期間限定店舗のみの取扱となります。予めご了承ください。
 <img src="https://files.catbox.moe/mrd053.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猫屋敷ゆき  
+##### 2556#       发表于 2024-10-25 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66538012&amp;ptid=2162354" target="_blank">猫屋敷まゆ 发表于 2024-10-25 11:07</a>
+
+🎉11月5日はキュアリリアンのお誕生日💚
+
+11月5日(火)、キュアリリアンのお誕生日フェア開催♪</blockquote>
+请大家多多购买喵<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+

@@ -5735,3 +5735,15 @@ mygo或者加上mujica 都是糊逼玩意儿，还是别蹭“大热原创”这
 
 我傻逼恐惧症要犯了，能不能举报把这条随地大小便的野犬送进去啊<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  桜庭千景  
+##### 25649#       发表于 2024-10-25 09:34
+
+试图拿水魔和蒜打击邦邦人的话
+
+我感觉大伙只会差点笑出声啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+有种威胁天天大鱼大肉的人说你们不吃大粪就会饿死的美
+

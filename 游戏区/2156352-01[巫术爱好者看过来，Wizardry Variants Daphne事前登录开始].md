@@ -1654,3 +1654,13 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 —— 来自 nubia NX729J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  索非亚  
+##### 205#       发表于 2024-10-26 01:53
+
+这游戏现在最难的就是战Bug了，刚到8F恢复完所有落石，道具回城发现背包里的装备道具全没了，还包括宝箱怪给的单抽。。。
+这我后面怎么打<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/9c4e4be93618eb0f04ae21f6a0b8e512/image.jpg" referrerpolicy="no-referrer">
+

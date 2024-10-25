@@ -2953,3 +2953,13 @@ https://vkguide.dev/docs/extra-chapter/graphics_analysis_metafor/
 
 终于通关了，后日谈不错，让我对这个游戏的印象好了点
 
+
+*****
+
+####  李喜睡  
+##### 3219#       发表于 2024-10-25 23:04
+
+路易是真的菜，不如试炼全反boss一根
+
+—— 来自 samsung SM-S9180, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

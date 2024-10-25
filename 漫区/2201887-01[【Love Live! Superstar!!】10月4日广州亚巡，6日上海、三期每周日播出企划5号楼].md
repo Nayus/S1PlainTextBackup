@@ -3648,3 +3648,24 @@ VN这个姿势真有人能还原。
 
 那按访谈不只一话个人回?那应该还有一个三年级回。看隔壁舅舅说质量不错。但我不怎么相信cp粉说的话。还是得等
 
+
+*****
+
+####  csolfans  
+##### 348#       发表于 2024-10-25 23:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">舅舅把下一集标题完整放出来了
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  ads147147  
+##### 349#       发表于 2024-10-25 23:11
+
+打预防针的话，现在的日本对中国角色有好脸色属于一种不太可能的幻觉。
+
+不过总有希望？不是么<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

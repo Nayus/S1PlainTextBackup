@@ -6101,3 +6101,21 @@ https://x.com/animaxmusi**/status/1849737670718562760?t=DM44h1ZQYb2bMTvKQRp2HQ&a
 这个也在分镜里锤了</blockquote>
 有时候就得有图有真相有用
 
+
+*****
+
+####  桜庭千景  
+##### 25685#       发表于 2024-10-25 23:06
+
+这里的传言我记得是因为手游里改掉还给睦加了一句台词吧
+
+
+*****
+
+####  御幸一也  
+##### 25686#       发表于 2024-10-25 23:12
+
+ 本帖最后由 御幸一也 于 2024-10-25 23:14 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">讓朋友抽了2張 ご用意できませんでした 
+

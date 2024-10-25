@@ -1641,3 +1641,16 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 这技术力也是没谁了，灵药不能用的BUG还没修好<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  战术核辣条  
+##### 204#       发表于 2024-10-25 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66539910&amp;ptid=2156352" target="_blank">电脑死机 发表于 2024-10-25 15:01</a>
+所以有人总结过本作的难点么，刚到6F，5F传送点后面小路双基等级太高打不过……boss比预期的好打，某个宝箱 ...</blockquote>
+难点大概是传统drpg的低容错率配上日系手游式的极大资源缺口，还要和各种恶性bug做斗争
+第一个迷宫还好，出来之后开始见到这些升格票和装备强化就头大了
+
+—— 来自 nubia NX729J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

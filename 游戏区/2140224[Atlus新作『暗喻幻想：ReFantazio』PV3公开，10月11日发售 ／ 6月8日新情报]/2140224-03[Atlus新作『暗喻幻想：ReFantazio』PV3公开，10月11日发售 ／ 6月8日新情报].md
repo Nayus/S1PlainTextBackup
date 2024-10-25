@@ -2643,3 +2643,14 @@ meta部分肯定是被砍到只剩张皮了
 为什么我进地下纳骨堂做收集8个头骨💀的任务里面就不出来骷髅敌人呢？我真是不明白了 ...</blockquote>
 那个是特定刷新的，从棺材板里跳出来。不是小兵掉落
 
+
+*****
+
+####  fireadol  
+##### 3196#       发表于 2024-10-25 08:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66535501&amp;ptid=2140224" target="_blank">猫沢 发表于 2024-10-24 23:35</a>
+
+绿色裤袜还行，木花朔耶，法比耶娜都是绿裤袜</blockquote>
+但尤法是绿色裤袜配中年人凉鞋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

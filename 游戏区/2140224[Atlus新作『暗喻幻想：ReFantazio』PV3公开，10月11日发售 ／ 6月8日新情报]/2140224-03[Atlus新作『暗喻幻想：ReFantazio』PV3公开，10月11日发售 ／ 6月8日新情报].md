@@ -2684,3 +2684,19 @@ meta部分肯定是被砍到只剩张皮了
 
 2024-10-25 10:11 上传
 
+
+*****
+
+####  罗克萨斯  
+##### 3198#       发表于 2024-10-25 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66537457&amp;ptid=2140224" target="_blank">Standpronder 发表于 2024-10-25 10:11</a>
+只能说风灵月影是个好东西。
+
+每一个角色阿基态是独立的这点太抽象了。
+
+然后加最多经验的宝玉根才给3000点。 ...</blockquote>
+买游戏给修改器玩，steam成就系统真不如取消得了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

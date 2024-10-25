@@ -5848,3 +5848,11 @@ wsd节节败退是因为媚豚吗，哈哈，那无敌了呀
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一种为了证明自己志坚就把自己手砍了的美
 
+
+*****
+
+####  鳥栖朝  
+##### 25661#       发表于 2024-10-25 13:00
+
+难绷的说法
+

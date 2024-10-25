@@ -6091,3 +6091,13 @@ https://x.com/animaxmusi**/status/1849737670718562760?t=DM44h1ZQYb2bMTvKQRp2HQ&a
 
 而且还锤了睦看演出的时候是无感情的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adcdqre  
+##### 25684#       发表于 2024-10-25 22:47
+
+<blockquote>Aendst 发表于 2024-10-25 22:38
+这个也在分镜里锤了</blockquote>
+有时候就得有图有真相有用
+

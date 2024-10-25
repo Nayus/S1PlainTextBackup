@@ -5684,3 +5684,38 @@ mygo或者加上mujica 都是糊逼玩意儿，还是别蹭“大热原创”这
 
 有一种试图在广场裸奔引起注意的美
 
+
+*****
+
+####  哈曼的YY  
+##### 25643#       发表于 2024-10-25 09:10
+
+这是什么玩意 百合原罪审判？
+
+*****
+
+####  skives10  
+##### 25644#       发表于 2024-10-25 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66536469&amp;ptid=2159415" target="_blank">kojima34 发表于 2024-10-25 07:46</a>
+mygo或者加上mujica 都是糊逼玩意儿，还是别蹭“大热原创”这个词了，水魔跟蒜这种才是。当然了，水魔跟 ...</blockquote>
+能把你这种不懂装懂的人吸引过来长篇大论
+在爱撕衣肯定算大热原创了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 25645#       发表于 2024-10-25 09:13
+
+有一种试图在广场裸奔来引起注意的美
+
+这次我还能感叹一下怎么有人又在裸奔下次可能连这个笑话都玩腻了
+
+*****
+
+####  相坂君  
+##### 25646#       发表于 2024-10-25 09:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">深柜厨厨没事就来阴阳喊话钓一下，超爱河豚呢
+

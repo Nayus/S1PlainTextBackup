@@ -107,3 +107,15 @@ INTI CREATES老早就开始这种商法了，店特全是擦边色图<img src="h
 
 怎么会有人不喜欢打总力战！<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zzy516232108  
+##### 77#       发表于 2024-10-25 09:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">昨晚上手玩了几把，说实话真不太明白怎么胡的
+
+盗版世界树男人女人一套步伐叠起来，一刀80 2刀通关
+
+但是这游戏牌库长的一笔，不太明白怎么搞
+

@@ -2922,3 +2922,26 @@ https://vkguide.dev/docs/extra-chapter/graphics_analysis_metafor/
 
 很正常，我做实验在一个小圈子冷门模拟器上调了许久，快收尾了跟我说最好换到主流模拟器平台我也很不情愿，好不容易卡出来的结果都不能用了，前途一片未知。
 
+
+*****
+
+####  AeonsTorn  
+##### 3216#       发表于 2024-10-25 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66540520&amp;ptid=2140224" target="_blank">Jimlee080 发表于 2024-10-25 16:19</a>
+我看风大师官网19号发的版本下面评价是最新版用不了啊？有更新么？不想专门刷mag和aexp了 ...</blockquote>
+单说达到效果的话，直接用ce简单搜数值就行
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+*****
+
+####  罗克萨斯  
+##### 3217#       发表于 2024-10-25 16:48
+
+侯根宝明显是被垫肩给害了，人设哪有那么差啊，两条大长腿晃来晃去我都有点顶不住了，她和粉毛兔兔我都想艹<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+
+感觉副岛存心是想搞标新立异，非得给你整些记忆深刻的设计，中规中矩点多好。当然，他这么干也许是桥野桂指使的，毕竟桥野桂说本作没恋爱要素
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

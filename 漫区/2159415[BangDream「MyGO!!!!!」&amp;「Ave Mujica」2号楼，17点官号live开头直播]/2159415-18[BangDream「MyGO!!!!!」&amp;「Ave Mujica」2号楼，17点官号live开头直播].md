@@ -6204,3 +6204,19 @@ https://x.com/animaxmusi**/status/1849737670718562760?t=DM44h1ZQYb2bMTvKQRp2HQ&a
 比较常见的谣言应该是睦对祥子跑出live house毫无反应 实际上从祥子跑出门开始 睦一直看着祥子离开的方向  ...</blockquote>
 雀实，不过这个反应也挺怪的，不知道母鸡卡篇会不会出一集睦视角完整解说下心路历程不
 
+
+*****
+
+####  紫吹兰  
+##### 25695#         楼主| 发表于 2024-10-26 03:22
+
+刚注意到这期的登录界面……
+
+<img src="https://img.saraba1st.com/forum/202410/26/032240gbq5umrjdohzfg3d.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-10-26-03-20-08-199_com.bilibili.star.bili.jpg</strong> (366.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-26 03:22 上传
+

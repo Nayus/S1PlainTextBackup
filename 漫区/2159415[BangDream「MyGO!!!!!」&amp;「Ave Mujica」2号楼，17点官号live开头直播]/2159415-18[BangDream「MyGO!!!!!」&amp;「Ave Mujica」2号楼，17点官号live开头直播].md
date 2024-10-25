@@ -6077,3 +6077,17 @@ https://x.com/animaxmusi**/status/1849737670718562760?t=DM44h1ZQYb2bMTvKQRp2HQ&a
 
 前面唱不出声的时候应该一直看着祥老师吧 不然后面也不会立刻被吓出声了
 
+
+*****
+
+####  Aendst  
+##### 25683#       发表于 2024-10-25 22:38
+
+ 本帖最后由 Aendst 于 2024-10-25 22:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66543416&amp;ptid=2159415" target="_blank">skives10 发表于 2024-10-25 22:28</a>
+
+比较常见的谣言应该是睦对祥子跑出live house毫无反应 实际上从祥子跑出门开始 睦一直看着祥子离开的方向  ...</blockquote>
+这个也在设定集的分镜里锤了
+
+而且还锤了睦看演出的时候是无感情的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

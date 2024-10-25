@@ -2831,3 +2831,14 @@ https://vkguide.dev/docs/extra-chapter/graphics_analysis_metafor/
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  忘却旋律  
+##### 3209#       发表于 2024-10-25 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66538924&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-10-25 12:55</a>
+
+零组程序都这么菜了，搞不懂为何不向真女组和新P组求支援，四年前换虚幻4来得及不说，同社也不缺会用的人 ...</blockquote>
+就这态度 还当初 注册各什么 RPG.JP网址 简直小丑
+

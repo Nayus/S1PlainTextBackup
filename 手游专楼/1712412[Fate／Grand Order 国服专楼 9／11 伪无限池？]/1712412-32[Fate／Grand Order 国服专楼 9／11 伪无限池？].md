@@ -122,3 +122,11 @@ yls说产能不足以复刻老活动 干脆授权给其他服调试完了反哺�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">连个四星都没有 五星礼装也没出 傻逼游戏
 
+
+*****
+
+####  苍蓝之枪  
+##### 46765#       发表于 2024-10-25 13:15
+
+yls的方差是这样的呀，我一个抓包1.1的连续翻车，人家1.5的还在豹
+

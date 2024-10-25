@@ -2718,3 +2718,16 @@ meta部分肯定是被砍到只剩张皮了
 
 最后各个城镇的支持者帮主角拉票的剧情里面就巴登一个有coop也太搞了，别的就算了，我都不知道莉娜为啥帮我
 
+
+*****
+
+####  jxzeroga0  
+##### 3201#       发表于 2024-10-25 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66538026&amp;ptid=2140224" target="_blank">Khellendros 发表于 2024-10-25 11:08</a>
+
+感觉艾丁莉娜巴特林原本也应该有coop吧，做不完砍掉了
+
+最后各个城镇的支持者帮主角拉票的剧情里面就巴登一 ...</blockquote>
+老头车长家里有矿答应和自家工房做交易了吧，毕竟是个傻萌生意人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

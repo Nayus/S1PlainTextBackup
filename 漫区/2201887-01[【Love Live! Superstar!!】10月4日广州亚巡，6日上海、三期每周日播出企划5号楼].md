@@ -3693,3 +3693,15 @@ VN这个姿势真有人能还原。
 
 仔细想想星动画里五六集总回去点什么地方，第一季是神津岛，第二季是北海道，既然第三季第五集是这个标题，那可能八九不离十就是去上海了
 
+
+*****
+
+####  ads147147  
+##### 353#       发表于 2024-10-26 06:30
+
+这次应该有正常的圣地巡礼授权吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+二期那个北海道养老院真的是搞得人哭笑不得。。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -2817,3 +2817,17 @@ https://vkguide.dev/docs/extra-chapter/graphics_analysis_metafor/
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
 
+
+*****
+
+####  罗克萨斯  
+##### 3208#       发表于 2024-10-25 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66538804&amp;ptid=2140224" target="_blank">GuardHei 发表于 2024-10-25 12:38</a>
+https://vkguide.dev/docs/extra-chapter/graphics_analysis_metafor/
+暗喻幻想渲染截帧分析
+我看了下这个 ...</blockquote>
+零组程序都这么菜了，搞不懂为何不向真女组和新P组求支援，四年前换虚幻4来得及不说，同社也不缺会用的人，还能解决目前存在的不少技术问题。与其说是推倒重来过，我更愿意相信是他们不思进取，这帮人依然活在既有舒适区，不肯真正从0开始
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

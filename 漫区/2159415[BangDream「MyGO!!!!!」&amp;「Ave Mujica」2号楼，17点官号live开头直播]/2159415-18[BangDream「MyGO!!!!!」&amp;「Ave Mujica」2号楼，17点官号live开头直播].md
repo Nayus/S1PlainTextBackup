@@ -6167,3 +6167,30 @@ https://x.com/animaxmusi**/status/1849737670718562760?t=DM44h1ZQYb2bMTvKQRp2HQ&a
 
 算了，什么欧皇专属
 
+
+*****
+
+####  likeny  
+##### 25692#       发表于 2024-10-25 23:41
+
+看首映的朋友能不能透露一下……噢不不要剧透……能不能透露一下……噢不不要剧透……<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御景| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  御幸一也  
+##### 25693#       发表于 2024-10-25 23:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">感覺 去新加坡看到的機率還比較大
+

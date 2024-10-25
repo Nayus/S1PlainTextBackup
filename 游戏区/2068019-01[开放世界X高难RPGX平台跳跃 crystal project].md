@@ -991,3 +991,15 @@ https://steamcommunity.com/sharedfiles/filedetails/?id=3320600127</blockquote>
 
 然后赶紧把昆塔龙拿了这样还能扩展移动范围
 
+
+*****
+
+####  kerbad  
+##### 77#       发表于 2024-10-25 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66542034&amp;ptid=2068019" target="_blank">慕容断月 发表于 2024-10-25 19:24</a>
+前期可以快速打完7个水晶（还是建议多开home point）
+
+然后赶紧把昆塔龙拿了这样还能扩展移动范围 ...</blockquote>
+给我两个膝盖跳跳乐我都已经把它列为跟fanastasis一个级别的神作了，开了载具是什么体验想都不敢想<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+

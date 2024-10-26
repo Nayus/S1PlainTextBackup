@@ -6545,3 +6545,21 @@ https://x.com/canshilv/status/1849740699941601345
 
 祥子哭都两遍了，大概率a part甚至op前的内容<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 25717#       发表于 2024-10-27 00:58
+
+dolo來偷心了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202410/27/005754l8onxkmndcf021ok.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_せとー(@bpdne)_20241026-154143_1850201146536960387_photo.jpg</strong> (134.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-27 00:57 上传
+
+[https://x.com/bpdne/status/1850201146536960387](https://x.com/bpdne/status/1850201146536960387)
+

@@ -36,3 +36,13 @@
 
 2024-10-26 00:35 上传
 
+
+*****
+
+####  嘎吱嘎吱梦浮桥  
+##### 100#       发表于 2024-10-27 04:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66034439&amp;ptid=2165211" target="_blank">JuicyJuice 发表于 2024-8-27 20:30</a>
+福尔登=fall den=fall でん=秋田</blockquote>
+其实我想问的就是除了这种字面之外的，剧情里有没有更深的渊源了因为我一边做事一边看也许会漏
+

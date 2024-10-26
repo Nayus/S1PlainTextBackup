@@ -2973,3 +2973,23 @@ https://vkguide.dev/docs/extra-chapter/graphics_analysis_metafor/
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
 
+
+*****
+
+####  saverok  
+##### 3221#       发表于 2024-10-26 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66528493&amp;ptid=2140224" target="_blank">空气先生 发表于 2024-10-24 08:58</a>
+感觉原案是三主角：男主，路易，老王。结果现在老王就倾情奉献场演出战，国际惯例登基版就加一张大地图，加 ...</blockquote>
+皇家版加魔法学院的计划都写脸上了 一点不带装的
+
+
+*****
+
+####  saverok  
+##### 3222#       发表于 2024-10-26 10:04
+
+后期好兄弟拉完整个游戏除了全反龙其他boss全是废 连招都看不到 难崩
+
+更难崩的是你不秒他他秒你
+

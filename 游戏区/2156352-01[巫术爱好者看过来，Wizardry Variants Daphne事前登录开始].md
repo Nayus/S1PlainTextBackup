@@ -1778,3 +1778,11 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 2024-10-26 16:36 上传
 
+
+*****
+
+####  我猫呢?  
+##### 216#       发表于 2024-10-26 16:49
+
+交易水路6区也太恶心了吧，地图有前几层2倍大，打到boss资源基本耗尽，打又打不过，只能往回走，结果敌人还能刷新的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">只能等明天复活队友再试了
+

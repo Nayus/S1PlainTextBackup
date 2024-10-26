@@ -1716,3 +1716,14 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 —— 来自 nubia NX729J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  elven119  
+##### 211#         楼主| 发表于 2024-10-26 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66546949&amp;ptid=2156352" target="_blank">战术核辣条 发表于 2024-10-26 15:10</a>
+为了回收ラーバード的支线这逼二周目我少说从头到尾捋了三遍了，结果一开日站发现全世界没人能触发
+把国 ...</blockquote>
+其实根本没必要着急，我救了国王发现还有两个？号直接无视去新地区了，去了新地区装备直接起飞到时候再到回来做就好了
+

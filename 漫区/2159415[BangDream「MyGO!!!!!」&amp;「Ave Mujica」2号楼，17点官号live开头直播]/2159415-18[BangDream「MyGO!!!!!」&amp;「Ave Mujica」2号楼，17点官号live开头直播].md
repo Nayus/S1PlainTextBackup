@@ -6326,3 +6326,11 @@ oblivionis：會有大家一起唱的地方，希望觀眾的大家一起唱
 
 [https://x.com/animaxmusi**/status/1849737670718562760](https://x.com/animaxmusi**/status/1849737670718562760)
 
+
+*****
+
+####  星天观测  
+##### 25697#       发表于 2024-10-26 08:53
+
+可惜p5已经联动过了，不然你鸡和p5联动还挺合适的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

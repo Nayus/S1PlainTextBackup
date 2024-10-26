@@ -3777,7 +3777,7 @@
     "lastedit": 1729902060,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1478318": {
     "totalreply": 1412,
@@ -8631,10 +8631,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 92401,
+    "totalreply": 92403,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1729972568,
+    "lastedit": 1729975688,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -14508,10 +14508,10 @@
     "update": false
   },
   "2203526": {
-    "totalreply": 150,
+    "totalreply": 151,
     "title": "[《异星工厂》大型资料片《太空时代》2024-10-21发售（除FFF之外无剧透)]",
     "newtitle": "[《异星工厂》大型资料片《太空时代》2024-10-21发售（除FFF之外无剧透)]",
-    "lastedit": 1729971850,
+    "lastedit": 1729975209,
     "category": "游戏区",
     "active": true,
     "update": false

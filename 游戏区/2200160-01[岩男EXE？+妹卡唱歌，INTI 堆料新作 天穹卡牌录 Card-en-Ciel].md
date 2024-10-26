@@ -273,3 +273,13 @@ INTI CREATES老早就开始这种商法了，店特全是擦边色图<img src="h
 
 我傻乎乎的按一回合秒7000血的强度差不多刷满了插件，然后打破防刚准备斩杀就发现歌姬解锁了<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  benhawk  
+##### 91#       发表于 2024-10-27 07:44
+
+<blockquote>白軍浪 发表于 2024-10-26 23:47
+可以地上插卡啊</blockquote>
+插卡就没了呀？但是不是回合数就打多了？
+

@@ -1702,3 +1702,17 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 补支线还要重打强化版本的剧情boss这种逼设计谁想出 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">帖子里终于有人进到二周目了吗
 
+
+*****
+
+####  战术核辣条  
+##### 210#       发表于 2024-10-26 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66546804&amp;ptid=2156352" target="_blank">elven119 发表于 2024-10-26 14:46</a>
+帖子里终于有人进到二周目了吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">为了回收ラーバード的支线这逼二周目我少说从头到尾捋了三遍了，结果一开日站发现全世界没人能触发
+把国王救出来发现缺一个flag拿灯笼无奈倒车，结果因为主线节点推进了所有的怪等级自动+10
+我只能说牛逼完了这游戏
+
+—— 来自 nubia NX729J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

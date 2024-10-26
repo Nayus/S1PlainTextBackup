@@ -2993,3 +2993,13 @@ https://vkguide.dev/docs/extra-chapter/graphics_analysis_metafor/
 
 更难崩的是你不秒他他秒你
 
+
+*****
+
+####  saverok  
+##### 3223#       发表于 2024-10-26 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66544958&amp;ptid=2140224" target="_blank">——啧 发表于 2024-10-26 09:42</a>
+这某个武器不是说不能离开某人吗，怎么敌方还能框框用，捡回来之后还给女骑士用了，那某人不是纯纯看上主角 ...</blockquote>
+小心思多的很 各种操作都是按夫妇标准来 只能说隐藏重女<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

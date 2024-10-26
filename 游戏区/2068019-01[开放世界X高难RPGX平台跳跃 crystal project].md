@@ -1029,3 +1029,16 @@ https://steamcommunity.com/sharedfiles/filedetails/?id=3320600127</blockquote>
 
 打完昆塔圣地出来跳进红杉城跑不出来，要不是有盖亚传送石差点死档在里边<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  库德里尔  
+##### 81#       发表于 2024-10-26 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66547295&amp;ptid=2068019" target="_blank">kerbad 发表于 2024-10-26 16:14</a>
+打完昆塔圣地出来跳进红杉城跑不出来，要不是有盖亚传送石差点死档在里边 ...</blockquote>
+如果不开辅助模式，那么各个神庙的传送石+只能设置一个的honepoint就是唯一的瞬间移动法了
+很关键（
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

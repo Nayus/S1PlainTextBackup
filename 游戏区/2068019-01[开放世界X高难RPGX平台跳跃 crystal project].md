@@ -1021,3 +1021,11 @@ https://steamcommunity.com/sharedfiles/filedetails/?id=3320600127</blockquote>
 
 结果做了拿粗野昆塔龙眼球的支线就把执照给我了，找了半天都没找到剩下两个水晶还以为我哪条路没发现<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kerbad  
+##### 80#       发表于 2024-10-26 16:14
+
+打完昆塔圣地出来跳进红杉城跑不出来，要不是有盖亚传送石差点死档在里边<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

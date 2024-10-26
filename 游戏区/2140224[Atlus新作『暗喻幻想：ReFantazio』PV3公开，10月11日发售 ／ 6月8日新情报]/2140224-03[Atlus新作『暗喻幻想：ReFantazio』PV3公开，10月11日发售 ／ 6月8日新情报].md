@@ -3154,3 +3154,29 @@ https://vkguide.dev/docs/extra-chapter/graphics_analysis_metafor/
 —— 来自 So ...</blockquote>
 狙击手不是有个合题弱点设射击啥的，改弱点后番长一刀砍屎啊
 
+
+*****
+
+####  onemoment  
+##### 3238#       发表于 2024-10-27 03:46
+
+一周目ce强开kok难度通了，感觉比hard一周目要有意思点
+
+之前hard主角走的魔速→kok二周目走的纯力→重开kok一周目走的运力，开局选运点到40后点力，靠原型补后力99后再点运，终盘主角力99运80＋，好兄弟力80＋
+
+每天也不用sl去食材库收集凯旋菇，最后剩余半个月左右垃圾时间可以钓鱼、拖地，最后至高一匙做了12个<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+终盘原型用的 君主 战士 龙骑兵 舞蹈家，一周目kok不刷的话mag缺口太大，直到通关还有3个队友的王家原型前置还没学，终盘阵容的build也是半成品，都算上还差50万mag左右，不过足够打了
+
+再调存档把二周目的隐藏boss也打了，不过没用上至高一匙，好兄弟2刀，主角1刀万能暴击翻倍，boss倒欠我2万多伤害，直接结束战斗
+
+游戏封盘了，给个7.8分吧，各方面都很平庸，这游戏没有一处让我印象深刻的点，真是太遗憾了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202410/27/034311uzzjvc6knncvkc1c.jpg" referrerpolicy="no-referrer">
+
+<strong>METAPHOR.jpg</strong> (504.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-27 03:43 上传
+

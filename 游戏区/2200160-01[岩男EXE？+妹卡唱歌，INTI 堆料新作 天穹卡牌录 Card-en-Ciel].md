@@ -246,3 +246,11 @@ INTI CREATES老早就开始这种商法了，店特全是擦边色图<img src="h
 这游戏，不能不选卡吗？只要打架就有卡入账，是不是就是避战直接冲呀</blockquote>
 可以地上插卡啊
 
+
+*****
+
+####  siriii  
+##### 89#       发表于 2024-10-27 01:08
+
+真结局感觉还真得一层层全刷多上点强化，要不然牌堆想打9999血真折磨完了，另外第二遍进去发现只剩7000血600盾了，该不会一把过还有差分吧<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+

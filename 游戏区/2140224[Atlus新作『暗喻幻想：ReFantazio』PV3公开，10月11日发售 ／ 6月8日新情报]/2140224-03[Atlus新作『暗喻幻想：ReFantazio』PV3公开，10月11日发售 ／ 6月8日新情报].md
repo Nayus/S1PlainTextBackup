@@ -3142,3 +3142,15 @@ https://vkguide.dev/docs/extra-chapter/graphics_analysis_metafor/
 铁甲战车里那个神秘机器真的就是个阿基态合体配件？为啥国王会让纽拉斯提前装进去？这东西到底是什么来历？ ...</blockquote>
 ？王子适配的传送装置，王子是纯血人类回血，王子老母亲家里有黑科技。主角就是王子的persona，所以可以用。
 
+
+*****
+
+####  sonnabanana  
+##### 3237#       发表于 2024-10-27 01:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66550137&amp;ptid=2140224" target="_blank">Sylpheed 发表于 2024-10-26 23:37</a>
+通了，最后二度上天打换皮有点不耐烦了就直冲boss，结果两刀秒了。评价是再输轨迹就没得输了
+
+—— 来自 So ...</blockquote>
+狙击手不是有个合题弱点设射击啥的，改弱点后番长一刀砍屎啊
+

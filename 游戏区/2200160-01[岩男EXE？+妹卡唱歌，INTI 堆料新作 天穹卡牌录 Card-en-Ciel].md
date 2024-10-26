@@ -254,3 +254,22 @@ INTI CREATES老早就开始这种商法了，店特全是擦边色图<img src="h
 
 真结局感觉还真得一层层全刷多上点强化，要不然牌堆想打9999血真折磨完了，另外第二遍进去发现只剩7000血600盾了，该不会一把过还有差分吧<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  EndlessDied  
+##### 90#       发表于 2024-10-27 01:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66550486&amp;ptid=2200160" target="_blank">siriii 发表于 2024-10-27 01:08</a>
+
+真结局感觉还真得一层层全刷多上点强化，要不然牌堆想打9999血真折磨完了，另外第二遍进去发现只剩7000血60 ...</blockquote>
+其实只需要打1/5的血就可以跳剧情把歌姬的封锁解放（然后一次性连续跳出来二三十个歌姬的动画<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我明明开了合并演出还是二三十个）
+
+不需要全打满
+
+顺带一提，同一个格子只要不选镇压，你离开后那里会刷出来2个小怪，打完又可以触发一次三选一
+
+临近的两格可以反复刷小怪实现牌堆强化
+
+我傻乎乎的按一回合秒7000血的强度差不多刷满了插件，然后打破防刚准备斩杀就发现歌姬解锁了<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+

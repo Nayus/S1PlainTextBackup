@@ -3015,3 +3015,24 @@ https://vkguide.dev/docs/extra-chapter/graphics_analysis_metafor/
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
 
+
+*****
+
+####  xifeilu  
+##### 3225#       发表于 2024-10-26 15:52
+
+刚开始玩这个游戏不久，现在是刚打完尸术尸没几天，我想问问支线任务时间卡得紧吗？这存档位置居然只给16个，现在只要去提升一下五维就要消耗半天，要是支线全接做完跟提升五维不冲突我就不多存档了
+
+现在强迫症存了不少分支档怕出问题，但是一看位置只有16个完全不够啊
+
+*****
+
+####  NEIN  
+##### 3226#       发表于 2024-10-26 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66547183&amp;ptid=2140224" target="_blank">xifeilu 发表于 2024-10-26 15:52</a>
+刚开始玩这个游戏不久，现在是刚打完尸术尸没几天，我想问问支线任务时间卡得紧吗？这存档位置居然只给16个 ...</blockquote>
+不紧，稍微规划一下coop哪里亮了点哪里完全做的完
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

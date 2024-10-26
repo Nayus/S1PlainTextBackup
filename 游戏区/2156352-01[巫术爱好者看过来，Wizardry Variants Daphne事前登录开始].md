@@ -1680,3 +1680,13 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">回收支线flag太脑残了，走错一步动不动要回两层的进度
 
+
+*****
+
+####  战术核辣条  
+##### 208#       发表于 2024-10-26 11:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">强烈建议二周目没打完的看着攻略一次性做完全员生存路线
+
+如果漏flag要走巨量的主支线回头路，而且不做完漏主角技能树
+

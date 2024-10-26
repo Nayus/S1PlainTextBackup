@@ -6386,3 +6386,18 @@ https://x.com/canshilv/status/1849740699941601345
 
 符合一些刻板印象
 
+
+*****
+
+####  Aendst  
+##### 25702#       发表于 2024-10-26 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66545468&amp;ptid=2159415" target="_blank">rinku 发表于 2024-10-26 11:14</a>
+
+最恶心的难度不是这种先行上映很容易被带节奏吗
+
+不管实际情况如何都是看的人自己主观转述的情报，国内论 ...</blockquote>
+就算不带主观色彩，一般repo的信息流失率也差不多要在50%以上
+
+更何况确实有压根看不懂和别有用心带节奏的
+

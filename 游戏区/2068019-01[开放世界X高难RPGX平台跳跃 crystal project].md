@@ -1013,3 +1013,11 @@ https://steamcommunity.com/sharedfiles/filedetails/?id=3320600127</blockquote>
 给我两个膝盖跳跳乐我都已经把它列为跟fanastasis一个级别的神作了，开了载具是什么体验想都不敢想 ...</blockquote>
 巧了，我也是把它和fanastasis并列为单人制作开放世界rpg的范本案例，这俩冒险感拉的太满了，好这口的人根本没法停下来
 
+
+*****
+
+####  kerbad  
+##### 79#       发表于 2024-10-26 12:43
+
+结果做了拿粗野昆塔龙眼球的支线就把执照给我了，找了半天都没找到剩下两个水晶还以为我哪条路没发现<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+

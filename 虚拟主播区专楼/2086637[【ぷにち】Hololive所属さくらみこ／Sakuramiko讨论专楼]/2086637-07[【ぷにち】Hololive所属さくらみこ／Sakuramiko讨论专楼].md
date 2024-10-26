@@ -14200,3 +14200,51 @@ ZAIKO提供即时录像而SPWN一如既往未提供
 
 fbk和polka的曲子call过于完美比粉丝还懂，平时曲子绝对没少听完全就是粉丝角度了
 
+
+*****
+
+####  holoan  
+##### 10056#         楼主| 发表于 2024-10-27 00:24
+
+ 本帖最后由 holoan 于 2024-10-27 00:26 编辑 
+
+MV全neta解析 <blockquote>2790 名無しさん@転載禁止 (ﾜｯﾁｮｲ e6f9-Arv6)  2024/10/26(土) 23:03:17.72 ID:Zib4ycRN
+
+元ネタいっぱいありすぎる
+
+わためのケツフックとかもあったけどアーカイブ無い
+
+[https://i.imgur.com/viGBZl1.jpeg](https://i.imgur.com/viGBZl1.jpeg)</blockquote>
+部分细节解析 <blockquote>809:名無しさん@転載禁止 (ﾜｯﾁｮｲW cdc1-39eT) 2024/10/26(土) 23:44:40.39 ID:zHB0bNXf
+
+みこちのMV3回くらい見返してるけどやっぱいいな
+
+3人のみこちが一つになって過去現在未来を影で象徴してる演出とか
+[https://i.imgur.com/5tNlhup.jpeg](https://i.imgur.com/5tNlhup.jpeg)
+[https://i.imgur.com/lOgX46W.jpeg](https://i.imgur.com/lOgX46W.jpeg)
+[https://i.imgur.com/1tCeWuS.jpeg](https://i.imgur.com/1tCeWuS.jpeg)
+
+↓
+[https://i.imgur.com/SBxpw7i.jpeg](https://i.imgur.com/SBxpw7i.jpeg)
+
+ライブでも下積み時代の後悔や次のライブへの決意を込めた手紙を読んでからflower rhapsody歌ってたし
+
+MVとライブが完全に連動してて総合的なプロデュース完成度普通に高えと思う
+
+みこちは配信全振りタイプのホロメンだと思ってたから正直舐めてたわ</blockquote>
+
+*****
+
+####  rs5621  
+##### 10057#       发表于 2024-10-27 02:03
+
+妈来！
+
+<img src="https://img.saraba1st.com/forum/202410/27/020250tkb77ahkbznbcbh7.jpg" referrerpolicy="no-referrer">
+
+<strong>@YRG~I`D[K6C}]G6Y`HVHKR.jpg</strong> (260.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-27 02:02 上传
+

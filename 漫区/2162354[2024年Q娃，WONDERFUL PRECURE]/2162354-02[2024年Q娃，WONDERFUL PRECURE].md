@@ -291,3 +291,27 @@
 11月5日(火)、キュアリリアンのお誕生日フェア開催♪</blockquote>
 请大家多多购买喵<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  犬飼いろは  
+##### 2557#       发表于 2024-10-26 11:06
+
+第39話　ニコエボリューション！
+
+脚本：成田良美
+
+演出：岩井隆央
+
+絵コンテ：頂真司
+
+作画監督：小澤誠、ノエル・アンニョヌエボ
+
+美術：戸杉奈津子
+
+ハロウィンを迎え、仮装した人や動物たちがアニマルタウンを行き交う中、こむぎ（CV.長縄まりあ）といろは（CV.種﨑敦美）も家でお菓子を配る。ユキ（CV.松田颯水）やまゆ（CV.上田麗奈）、クラスメイトたちもやってきてにぎわう最中、こむぎはオオカミの格好をした人を見かけ、後を追いかけていく。「オオカミさん」に自分もオオカミの仮装をしていることをうれしそうに伝えるこむぎ。しかしオオカミさんは言葉少なに返事をするだけで、足早に歩いていく。さらに追いかけようとするこむぎだったが、やがて疲れて犬の姿に戻ってしまう。オオカミさんに川のそばに連れてきてもらい、水を飲んで落ち着くこむぎ。たたずんでいるだけでたくさんの動物がオオカミさんに近寄ってくるのを見て、「いろはと同じ」と話していると、こむぎを探していたいろはたちがやってくる。すると、オオカミさんのまわりに暗いオーラがたちこめて──
+<img src="https://files.catbox.moe/ewx6fp.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/wctgoq.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/cdg478.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/i69h4p.jpg" referrerpolicy="no-referrer">
+

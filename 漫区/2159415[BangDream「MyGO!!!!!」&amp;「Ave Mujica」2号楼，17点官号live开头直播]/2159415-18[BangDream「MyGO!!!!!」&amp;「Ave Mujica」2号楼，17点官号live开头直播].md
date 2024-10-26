@@ -6369,3 +6369,20 @@ oblivionis：會有大家一起唱的地方，希望觀眾的大家一起唱
 最恶心的难度不是这种先行上映很容易被带节奏吗<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 不管实际情况如何都是看的人自己主观转述的情报，国内论坛对着一堆不知真假的消息脑补发酵一个月，动画播出节奏早不知道带到哪里去了（参考当年eva终节奏或者那些漫画偷跑情报）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 25701#       发表于 2024-10-26 11:37
+
+<blockquote>祐天寺若麦 发表于 2024-10-26 10:14
+</blockquote>
+
+这是推上那个06年的mygo推羊宫厨吧
+
+https://x.com/canshilv/status/1849740699941601345
+
+截图时间都一模一样
+
+符合一些刻板印象
+

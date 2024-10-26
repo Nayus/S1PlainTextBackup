@@ -3076,3 +3076,17 @@ https://vkguide.dev/docs/extra-chapter/graphics_analysis_metafor/
 
 就你这练级效率怎么好意思没有定时自动存档的，打不下去クソゲー
 
+
+*****
+
+####  saverok  
+##### 3231#       发表于 2024-10-26 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66548082&amp;ptid=2140224" target="_blank">塔尔洛斯 发表于 2024-10-26 18:47</a>
+游戏的评价还是那样，但是战斗系统的评价我想降低了。
+
+抄轨迹抄不明白，练级半小时被骷髅兵戳到打死级全白 ...</blockquote>
+前期系统没开放完 见招拆招 还有道具 感觉战斗系统还行
+
+中后期纯纯水多加面面多加水 技能伤害消耗对面血量同步增加 体验感觉根本没差 特别是中期道具伤害跟不上 自己技能没成型的时候无比吃屎 随便什么小怪先手到都有可能翻车
+

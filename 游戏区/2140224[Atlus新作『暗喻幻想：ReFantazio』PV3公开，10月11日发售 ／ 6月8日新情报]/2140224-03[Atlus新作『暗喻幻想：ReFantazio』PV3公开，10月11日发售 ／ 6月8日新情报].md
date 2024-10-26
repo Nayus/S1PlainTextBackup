@@ -2963,3 +2963,13 @@ https://vkguide.dev/docs/extra-chapter/graphics_analysis_metafor/
 
 —— 来自 samsung SM-S9180, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  ——啧  
+##### 3220#       发表于 2024-10-26 09:42
+
+这某个武器不是说不能离开某人吗，怎么敌方还能框框用，捡回来之后还给女骑士用了，那某人不是纯纯看上主角硬蹭上来吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

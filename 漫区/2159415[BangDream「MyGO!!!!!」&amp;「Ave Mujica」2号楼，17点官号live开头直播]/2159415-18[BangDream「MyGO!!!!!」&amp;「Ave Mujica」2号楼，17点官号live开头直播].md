@@ -6497,3 +6497,21 @@ https://x.com/canshilv/status/1849740699941601345
 
 而且从独角兽之前的推来看，这个剧中剧应该还挺重要，真第一集以剧中剧为主也不是不可能。
 
+
+*****
+
+####  NODY  
+##### 25712#       发表于 2024-10-26 18:47
+
+第一集可能就是一整集的祥子前日谈，前半小时候怎么认识初睦，后半怎么组建mujica，结尾回到13集的live结束正好断章，这样断一个月也不影响
+
+
+*****
+
+####  仓鼠胖太  
+##### 25713#       发表于 2024-10-26 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66547846&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-10-26 18:01</a>
+其实第一集也没太多好剧透的，第一集塞个live加上台前台后就能把第一集塞得差不多了，不需要太多涉及核心剧 ...</blockquote>
+第一集就上live么，强度这么高<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+

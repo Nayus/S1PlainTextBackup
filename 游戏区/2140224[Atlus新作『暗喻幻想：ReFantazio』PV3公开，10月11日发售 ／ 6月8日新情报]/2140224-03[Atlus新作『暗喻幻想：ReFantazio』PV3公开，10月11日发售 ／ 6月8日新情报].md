@@ -3098,3 +3098,14 @@ https://vkguide.dev/docs/extra-chapter/graphics_analysis_metafor/
 
 邪见之塔的兽人boss怎么打？我的攻击大多数都resist，推荐几个打他好用的P
 
+
+*****
+
+####  moonmagian  
+##### 3233#       发表于 2024-10-26 22:55
+
+60小时通了，至少10小时是刷刷刷垃圾时间
+最终boss念了半天诗结果被无敌的大剑哥堆满buff真蓄OTK，实在是有点难崩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88-alpha
+

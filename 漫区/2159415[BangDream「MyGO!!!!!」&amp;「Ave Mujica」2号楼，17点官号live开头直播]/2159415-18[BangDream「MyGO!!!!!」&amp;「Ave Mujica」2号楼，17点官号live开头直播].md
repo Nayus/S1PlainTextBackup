@@ -6220,3 +6220,109 @@ https://x.com/animaxmusi**/status/1849737670718562760?t=DM44h1ZQYb2bMTvKQRp2HQ&a
 
 2024-10-26 03:22 上传
 
+
+*****
+
+####  御幸一也  
+##### 25696#       发表于 2024-10-26 08:34
+
+ 本帖最后由 御幸一也 于 2024-10-26 08:40 编辑 
+
+ANIMAX那個影片簡單翻譯一下
+
+<img src="https://img.saraba1st.com/forum/202410/26/083141fwfviunkxkn9k2ry.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_ANIMAX MUSIX(@animaxmusi**)_20241025-090001_1849737670718562760_video.m.jpg</strong> (127.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-26 08:31 上传
+
+<strong>如果可以重生，希望變成哪個？</strong>
+
+→傳奇大海盜
+
+→傳奇大盜賊
+doloris：盜賊也有很多種類，我想當專門偷心的盜賊。我要偷走你的心
+timoris我們的話4個人就組團……
+doloris：我想坐你們的船……
+
+<img src="https://img.saraba1st.com/forum/202410/26/083142f05lrkcrrc7llkc8.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_ANIMAX MUSIX(@animaxmusi**)_20241025-090001_1849737670718562760_video.m.jpg</strong> (117.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-26 08:31 上传
+
+<strong>想要獲得的品味是哪個？</strong>
+
+→搞笑的品味
+
+→時尚的品味
+oblivionis：我們一起笑吧
+doloris：想要提高幽默感
+
+（聽不出是誰說的）想變得既時尚又有趣
+mortis：那就幽默時尚
+
+<img src="https://img.saraba1st.com/forum/202410/26/083143r5sqa5ztnrt72q35.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_ANIMAX MUSIX(@animaxmusi**)_20241025-090001_1849737670718562760_video.m.jpg</strong> (122.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-26 08:31 上传
+
+<strong>想要獲得的能力是哪個？</strong>
+
+→在天空中飛翔
+
+→在時空中穿梭
+doloris：大家一起牽手圍成一個圓，然後飛上天
+oblivionis：想在演唱會上弄這個呢！
+mortis：我想飛超級快！
+amoris：就算能在天空飛，大概也飛不了
+oblivionis：因為會給其他人添麻煩吧
+
+<img src="https://img.saraba1st.com/forum/202410/26/083144zmzr2331nrgl7u27.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_ANIMAX MUSIX(@animaxmusi**)_20241025-090001_1849737670718562760_video.m.jpg</strong> (122.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-26 08:31 上传
+
+<strong>希望ANIMAX MUSIX提供怎樣的餐食？</strong>
+
+→蛋糕
+
+→啤酒
+amoris：（指夢以）超像會喜歡蛋糕的人
+doloris：想乾杯
+amoris：我們乾杯吧
+oblivionis：那我們就用蛋糕（來乾杯吧）……
+amoris：拜託了！
+
+<img src="https://img.saraba1st.com/forum/202410/26/083145nvmthviz0hkuihy5.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_ANIMAX MUSIX(@animaxmusi**)_20241025-090001_1849737670718562760_video.m.jpg</strong> (120.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-26 08:31 上传
+
+<strong>更喜歡的觀眾是哪種？</strong>
+
+→用盡全力喊出聲音炒熱氣氛
+
+→用盡全力揮舞螢光棒
+oblivionis：站中間的人……
+doloris：希望大家一邊揮舞一邊喊出聲！
+mortis：其實也不是說……
+oblivionis：絕對不是說讓大家別揮螢光棒！
+mortis：是說硬要選的話！
+oblivionis：會有大家一起唱的地方，希望觀眾的大家一起唱
+
+[https://x.com/animaxmusi**/status/1849737670718562760](https://x.com/animaxmusi**/status/1849737670718562760)
+

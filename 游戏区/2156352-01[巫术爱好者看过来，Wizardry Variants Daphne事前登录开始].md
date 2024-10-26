@@ -1690,3 +1690,15 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 如果漏flag要走巨量的主支线回头路，而且不做完漏主角技能树
 
+
+*****
+
+####  elven119  
+##### 209#         楼主| 发表于 2024-10-26 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66545273&amp;ptid=2156352" target="_blank">战术核辣条 发表于 2024-10-26 10:39</a>
+回收支线flag太脑残了，走错一步动不动要回两层的进度
+
+补支线还要重打强化版本的剧情boss这种逼设计谁想出 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">帖子里终于有人进到二周目了吗
+

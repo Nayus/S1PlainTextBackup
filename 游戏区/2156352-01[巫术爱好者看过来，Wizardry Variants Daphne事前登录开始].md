@@ -1664,3 +1664,11 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 这我后面怎么打<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/19/9c4e4be93618eb0f04ae21f6a0b8e512/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Boring_Days  
+##### 206#       发表于 2024-10-26 08:25
+
+消息说后续还有新职业追加，那么看来武士，忍者，司教，甚至以后那些领主，狂战士，超能力者，女仆/执事什么的也不是不可能有了
+

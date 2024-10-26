@@ -172,3 +172,11 @@ yls的方差是这样的呀，我一个抓包1.1的连续翻车，人家1.5的�
 
 护符攒了300多了，有没有办法在不动石头的情况下直接用护符十连？
 
+
+*****
+
+####  advancedigger  
+##### 46770#       发表于 2024-10-26 10:41
+
+活动礼装卡面，他还惦记着那晚那桥<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+

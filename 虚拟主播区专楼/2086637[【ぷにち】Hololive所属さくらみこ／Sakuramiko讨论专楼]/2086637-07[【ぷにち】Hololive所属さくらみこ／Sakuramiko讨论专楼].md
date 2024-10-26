@@ -13951,3 +13951,32 @@ fbk好夸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" r
 
 现场一大早就排了5个小时以上的队结果中午一过就所有周边卖光了，cover你的库存？
 
+
+*****
+
+####  holoan  
+##### 10034#         楼主| 发表于 2024-10-26 16:11
+
+<img src="https://img.saraba1st.com/forum/202410/26/161139gohmjsr8m3i53dis.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (538.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-26 16:11 上传
+
+<img src="https://img.saraba1st.com/forum/202410/26/161124jb48u9b99ffcxw84.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (399.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-26 16:11 上传
+
+*****
+
+####  rs5621  
+##### 10035#       发表于 2024-10-26 17:31
+
+新衣服真不错
+

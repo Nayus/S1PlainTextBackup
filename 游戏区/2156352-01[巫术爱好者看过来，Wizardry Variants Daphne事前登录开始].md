@@ -1727,3 +1727,26 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 把国 ...</blockquote>
 其实根本没必要着急，我救了国王发现还有两个？号直接无视去新地区了，去了新地区装备直接起飞到时候再到回来做就好了
 
+
+*****
+
+####  elven119  
+##### 212#         楼主| 发表于 2024-10-26 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66546949&amp;ptid=2156352" target="_blank">战术核辣条 发表于 2024-10-26 15:10</a>
+为了回收ラーバード的支线这逼二周目我少说从头到尾捋了三遍了，结果一开日站发现全世界没人能触发
+把国 ...</blockquote>
+エルモン在最终boss那里是不是固定会被石头砸死？到底算不算救了她，二周目我所有她的flag都触发了，也活到最终boss了，结果剧情上还是被砸死了
+
+
+*****
+
+####  战术核辣条  
+##### 213#       发表于 2024-10-26 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66547090&amp;ptid=2156352" target="_blank">elven119 发表于 2024-10-26 15:38</a>
+エルモン在最终boss那里是不是固定会被石头砸死？到底算不算救了她，二周目我所有她的flag都触发了，也活 ...</blockquote>
+可以全活，没一个人死包括杂兵
+
+—— 来自 nubia NX729J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

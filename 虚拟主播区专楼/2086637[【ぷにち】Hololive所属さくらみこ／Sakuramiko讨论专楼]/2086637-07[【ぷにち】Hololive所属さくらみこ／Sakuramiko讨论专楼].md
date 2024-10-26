@@ -13907,3 +13907,47 @@ fbk好夸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" r
 
 推特扫了一下 个人送花的比那些集体企划的还多得多，还得是个人，都是些平时直播和推特经常见得到的老面孔
 
+
+*****
+
+####  holoan  
+##### 10031#         楼主| 发表于 2024-10-26 10:37
+
+神社都被占领了
+
+<img src="https://img.saraba1st.com/forum/202410/26/103651ouinuuuknfddobf7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (613.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-26 10:36 上传
+
+<img src="https://img.saraba1st.com/forum/202410/26/103707b5dtxrdhxrjafxkz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (13.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-26 10:37 上传
+
+*****
+
+####  holoan  
+##### 10032#         楼主| 发表于 2024-10-26 13:47
+
+<img src="https://img.saraba1st.com/forum/202410/26/134712hoi5lsol5llub6oi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (12.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-26 13:47 上传
+
+*****
+
+####  holoan  
+##### 10033#         楼主| 发表于 2024-10-26 13:50
+
+现场一大早就排了5个小时以上的队结果中午一过就所有周边卖光了，cover你的库存？
+

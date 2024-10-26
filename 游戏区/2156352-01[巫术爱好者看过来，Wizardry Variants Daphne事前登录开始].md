@@ -1806,3 +1806,22 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 这游戏资源给的很少，不氪金还是推荐刷下或买个初始的。起手送20抽，加上一个必得和一个自选，一般能3,4个传奇开局。
 
+
+*****
+
+####  战术核辣条  
+##### 219#       发表于 2024-10-27 04:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66550079&amp;ptid=2156352" target="_blank">绝对小白 发表于 2024-10-26 23:21</a>
+请问一下需要刷初始吗，需要的话瞄准哪几个刷？
+
+另外英文的信息也很少，有哪些日站讨论/信息多一点的？</blockquote>
+https://gamerch.com/wizardry-daphne/
+我个人找下来目前觉得最活跃的日站
+初始建议三个ssr法系至少有一个，全体攻击秘术这个东西有和无，走路都有区别
+然后骷髅盗贼，自回sp续航面很赖
+王女10%阵型很强，不考虑凸的话回血被动最多说回点擦伤吧，不是那种绝对必需品
+以上五个有2到3个加上自选的一个就能配很舒服的阵容了
+
+—— 来自 nubia NX729J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

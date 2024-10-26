@@ -3777,7 +3777,7 @@
     "lastedit": 1729902060,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1478318": {
     "totalreply": 1412,
@@ -8631,10 +8631,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 92407,
+    "totalreply": 92408,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1729982409,
+    "lastedit": 1729983250,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9482,7 +9482,7 @@
     "newtitle": "[丸户×よむ《事到如今，喜欢上了青梅竹马》]",
     "lastedit": 1729723928,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2194917": {
@@ -10620,10 +10620,10 @@
     "update": false
   },
   "2156352": {
-    "totalreply": 220,
+    "totalreply": 221,
     "title": "[巫术爱好者看过来，Wizardry Variants Daphne事前登录开始]",
     "newtitle": "[巫术爱好者看过来，Wizardry Variants Daphne（10月15上线）]",
-    "lastedit": 1729982170,
+    "lastedit": 1729983368,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16317,10 +16317,10 @@
     "update": false
   },
   "2197354": {
-    "totalreply": 110,
+    "totalreply": 111,
     "title": "[卢大公：“中国强则白俄罗斯强”]",
     "newtitle": "[卢大公：“中国强则白俄罗斯强”]",
-    "lastedit": 1729919898,
+    "lastedit": 1729983131,
     "category": "外野",
     "active": true,
     "update": false
@@ -16407,10 +16407,10 @@
     "update": false
   },
   "2204375": {
-    "totalreply": 115,
+    "totalreply": 116,
     "title": "[如果男性的阿喀琉斯之踵是jb小，那女性的是什么？]",
     "newtitle": "[如果男性的阿喀琉斯之踵是jb小，那女性的是什么？]",
-    "lastedit": 1729977614,
+    "lastedit": 1729983131,
     "category": "外野",
     "active": true,
     "update": false
@@ -16812,10 +16812,10 @@
     "update": false
   },
   "2204458": {
-    "totalreply": 82,
+    "totalreply": 84,
     "title": "[【纯良向】米哈游百合讨论楼]",
     "newtitle": "[【纯良向】米哈游百合讨论楼]",
-    "lastedit": 1729982169,
+    "lastedit": 1729983249,
     "category": "手游战斗",
     "active": true,
     "update": false

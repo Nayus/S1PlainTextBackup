@@ -3045,3 +3045,22 @@ https://vkguide.dev/docs/extra-chapter/graphics_analysis_metafor/
 越玩越觉得硬套这个日程系统真的多余
 该不会真以为好玩的是这个吧
 
+
+*****
+
+####  SuNR1sE364  
+##### 3228#       发表于 2024-10-26 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66547183&amp;ptid=2140224" target="_blank">xifeilu 发表于 2024-10-26 15:52</a>
+刚开始玩这个游戏不久，现在是刚打完尸术尸没几天，我想问问支线任务时间卡得紧吗？这存档位置居然只给16个 ...</blockquote>
+我做得不算功利的，最后有半个月时间只能躺尸<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不用紧张
+
+*****
+
+####  jxzeroga0  
+##### 3229#       发表于 2024-10-26 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66547183&amp;ptid=2140224" target="_blank">xifeilu 发表于 2024-10-26 15:52</a>
+刚开始玩这个游戏不久，现在是刚打完尸术尸没几天，我想问问支线任务时间卡得紧吗？这存档位置居然只给16个 ...</blockquote>
+主线自由行动五维越到后期升得越快，所以优先coop哪里亮了点哪里，实在没人又是晚上再去升五维。平均点升就行，时间充裕。第一章剧情过完解锁旅行，优先读书升五维并且选项选对，性价比最高。
+

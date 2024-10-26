@@ -6515,3 +6515,11 @@ https://x.com/canshilv/status/1849740699941601345
 其实第一集也没太多好剧透的，第一集塞个live加上台前台后就能把第一集塞得差不多了，不需要太多涉及核心剧 ...</blockquote>
 第一集就上live么，强度这么高<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  uhiuk  
+##### 25714#       发表于 2024-10-26 19:08
+
+感觉第一集会是祥子回忆视角，就是不知道会直接把谜底揭开还是留一部分藏到后面
+

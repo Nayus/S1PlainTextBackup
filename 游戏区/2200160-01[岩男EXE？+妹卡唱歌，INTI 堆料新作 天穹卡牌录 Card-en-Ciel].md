@@ -235,3 +235,14 @@ INTI CREATES老早就开始这种商法了，店特全是擦边色图<img src="h
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">狂乱吹拂吧！温希尔芙！真强，拿几张检索能一直在那里循环复读把对面按着来打
 
+
+*****
+
+####  白軍浪  
+##### 88#       发表于 2024-10-26 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66548142&amp;ptid=2200160" target="_blank">benhawk 发表于 2024-10-26 18:58</a>
+
+这游戏，不能不选卡吗？只要打架就有卡入账，是不是就是避战直接冲呀</blockquote>
+可以地上插卡啊
+

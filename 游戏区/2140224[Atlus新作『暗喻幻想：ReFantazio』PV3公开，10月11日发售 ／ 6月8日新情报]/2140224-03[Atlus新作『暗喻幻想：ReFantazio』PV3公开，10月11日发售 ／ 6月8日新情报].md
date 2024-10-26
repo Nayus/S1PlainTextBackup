@@ -3119,3 +3119,16 @@ https://vkguide.dev/docs/extra-chapter/graphics_analysis_metafor/
 
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  KOL2022  
+##### 3235#       发表于 2024-10-26 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66549908&amp;ptid=2140224" target="_blank">石中剑二 发表于 2024-10-26 22:52</a>
+
+邪见之塔的兽人boss怎么打？我的攻击大多数都resist，推荐几个打他好用的P</blockquote>
+不无效反射【突】属性，就上枪手合题挂弱点
+
+好兄弟大剑合题直接带走，剩下几个位置上上buff，降降防就行了
+

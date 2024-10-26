@@ -3705,3 +3705,13 @@ VN这个姿势真有人能还原。
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  ViyViy  
+##### 354#       发表于 2024-10-26 09:22
+
+海外一般都是取外景吧，不会涉及具体店面
+
+btw，八个人去上海，不住酒店至少要一间六室的住宅暂住，有这种规格的基本是别墅吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

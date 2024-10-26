@@ -6417,3 +6417,14 @@ https://x.com/canshilv/status/1849740699941601345
 
 2024-10-26 13:27 上传
 
+
+*****
+
+####  silver鲤跃  
+##### 25704#       发表于 2024-10-26 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66545103&amp;ptid=2159415" target="_blank">祐天寺若麦 发表于 2024-10-26 10:11</a>
+
+刚刚看到首映的票，咸鱼2000块卖出去了，难绷，利好倒钩，标签还是MyGO。武士道开这首映有什么意义呢，100 ...</blockquote>
+这就不是赚钱的啊，二级市场开几千几万最后到wsd手里的也就一张电影票钱加手续费
+

@@ -14029,3 +14029,65 @@ wocao
 
 唱别人的曲子比你自己的曲子唱得还好怎么回事！！！！！！！！！！！！！！！！！！！！
 
+
+*****
+
+####  holoan  
+##### 10041#         楼主| 发表于 2024-10-26 19:44
+
+疯了大概，这就是人气V吗
+
+*****
+
+####  holoan  
+##### 10042#         楼主| 发表于 2024-10-26 19:52
+
+ZAIKO的live以外的画面为什么全部偏黄，这个转播系统到底什么问题
+
+*****
+
+####  holoan  
+##### 10043#         楼主| 发表于 2024-10-26 19:55
+
+<img src="https://img.saraba1st.com/forum/202410/26/195445gyj0dzzxp9ox981o.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (316.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-26 19:54 上传
+
+当时就说了，sakuradays不就是黄油主题曲
+
+结果真的是了，太强了只能说，还有这个企划原来早就在准备了难怪我说她从来不羡慕别人有黄油
+
+*****
+
+####  holoan  
+##### 10044#         楼主| 发表于 2024-10-26 19:56
+
+<img src="https://img.saraba1st.com/forum/202410/26/195559t900s93e232k9k1g.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (272.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-26 19:55 上传
+
+这个半年后的企划竟然立绘已经画好了……
+
+*****
+
+####  holoan  
+##### 10045#         楼主| 发表于 2024-10-26 19:57
+
+<img src="https://img.saraba1st.com/forum/202410/26/195707dl9l14k89t9q8kky.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (162.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-26 19:57 上传
+
+这个只能说意料之中且意料之外了，毕竟最近SHARP官推一直公开跟miko眉来眼去，也没想到竟然来得这么快
+

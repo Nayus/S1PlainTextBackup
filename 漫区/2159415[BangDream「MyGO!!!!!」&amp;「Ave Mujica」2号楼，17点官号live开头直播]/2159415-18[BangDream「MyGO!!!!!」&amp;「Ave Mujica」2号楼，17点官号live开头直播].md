@@ -6531,3 +6531,17 @@ https://x.com/canshilv/status/1849740699941601345
 
 其实我也觉得第一集会是祥子第一人称视角的回忆。
 
+
+*****
+
+####  PDQ4  
+##### 25716#       发表于 2024-10-26 21:31
+
+ 本帖最后由 PDQ4 于 2024-10-26 21:33 编辑 
+
+我觉得第一集就把元和二年重演一遍了，为什么退ccc我觉得也可能直接讲（手机看到了什么）
+
+然后放点mujica日常状态
+
+祥子哭都两遍了，大概率a part甚至op前的内容<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

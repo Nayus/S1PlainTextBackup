@@ -3777,7 +3777,7 @@
     "lastedit": 1729902060,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1478318": {
     "totalreply": 1412,
@@ -8631,10 +8631,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 92404,
+    "totalreply": 92405,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1729977488,
+    "lastedit": 1729978687,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -16677,10 +16677,10 @@
     "update": false
   },
   "2204439": {
-    "totalreply": 146,
+    "totalreply": 147,
     "title": "[瑞士著名高校ETH对中国籍留学生实施最严格审查禁令]",
     "newtitle": "[瑞士著名高校ETH对中国籍留学生实施最严格审查禁令]",
-    "lastedit": 1729968253,
+    "lastedit": 1729978208,
     "category": "外野",
     "active": true,
     "update": false

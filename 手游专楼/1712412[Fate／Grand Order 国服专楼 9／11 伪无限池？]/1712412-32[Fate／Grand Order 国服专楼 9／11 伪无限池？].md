@@ -180,3 +180,12 @@ yls的方差是这样的呀，我一个抓包1.1的连续翻车，人家1.5的�
 
 活动礼装卡面，他还惦记着那晚那桥<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kon-El  
+##### 46771#       发表于 2024-10-26 11:06
+
+180石8呼符 托勒密+小玉…
+至今出的三个小玉都是呼符出的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

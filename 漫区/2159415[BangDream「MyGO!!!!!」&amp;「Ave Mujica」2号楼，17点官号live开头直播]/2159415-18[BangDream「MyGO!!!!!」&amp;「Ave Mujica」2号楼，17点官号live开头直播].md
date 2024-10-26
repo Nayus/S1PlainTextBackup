@@ -6358,3 +6358,14 @@ oblivionis：會有大家一起唱的地方，希望觀眾的大家一起唱
 
 2024-10-26 10:14 上传
 
+
+*****
+
+####  rinku  
+##### 25700#       发表于 2024-10-26 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66545103&amp;ptid=2159415" target="_blank">祐天寺若麦 发表于 2024-10-26 10:11</a>
+刚刚看到首映的票，咸鱼2000块卖出去了，难绷，利好倒钩，标签还是MyGO。武士道开这首映有什么意义呢，100 ...</blockquote>
+最恶心的难度不是这种先行上映很容易被带节奏吗<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+不管实际情况如何都是看的人自己主观转述的情报，国内论坛对着一堆不知真假的消息脑补发酵一个月，动画播出节奏早不知道带到哪里去了（参考当年eva终节奏或者那些漫画偷跑情报）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

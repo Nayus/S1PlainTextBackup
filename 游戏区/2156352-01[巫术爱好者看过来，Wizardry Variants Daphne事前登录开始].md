@@ -1825,3 +1825,11 @@ https://gamerch.com/wizardry-daphne/
 
 —— 来自 nubia NX729J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  Boring_Days  
+##### 220#       发表于 2024-10-27 06:34
+
+干，有没有倒霉蛋和我一样8f剧情固定闪退的，怎么办
+

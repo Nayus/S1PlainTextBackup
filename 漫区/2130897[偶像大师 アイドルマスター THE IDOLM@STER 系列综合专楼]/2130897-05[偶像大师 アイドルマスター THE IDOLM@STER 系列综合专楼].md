@@ -28,3 +28,16 @@
 
 另外两人估计也是一起发售，只是目前没落地，不好宣传
 
+
+*****
+
+####  wfhtony  
+##### 6618#       发表于 2024-10-26 21:22
+
+ 本帖最后由 wfhtony 于 2024-10-26 21:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66549106&amp;ptid=2130897" target="_blank">BQlin 发表于 2024-10-26 21:11</a>
+
+另外两人估计也是一起发售，只是目前没落地，不好宣传</blockquote>
+學馬仕裏御三家的另外兩位，星南估計十一月中/下旬實裝、美玲估計十二月（中旬）。這樣配合CD發售週期和2月追加LIVE的話是最理想的。
+問題是，這是萬南運營的遊戲，這就是最大的不確定因素。
+

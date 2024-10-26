@@ -1750,3 +1750,31 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 —— 来自 nubia NX729J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  elven119  
+##### 214#         楼主| 发表于 2024-10-26 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66547133&amp;ptid=2156352" target="_blank">战术核辣条 发表于 2024-10-26 15:45</a>
+
+可以全活，没一个人死包括杂兵
+
+—— 来自 nubia NX729J, Android 13上的 S1Next-鹅版 v3.0.0.81-alpha ...</blockquote>
+那估计就是我有2个没触发，以后再去搞了，先搞新地图
+
+*****
+
+####  elven119  
+##### 215#         楼主| 发表于 2024-10-26 16:36
+
+香
+
+<img src="https://img.saraba1st.com/forum/202410/26/163613u7gx5wsy7f7gqx6x.jpg" referrerpolicy="no-referrer">
+
+<strong>图片_20241026173535.jpg</strong> (118.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-26 16:36 上传
+

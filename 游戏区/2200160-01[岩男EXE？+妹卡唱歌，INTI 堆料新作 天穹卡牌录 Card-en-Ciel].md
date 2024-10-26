@@ -195,3 +195,19 @@ INTI CREATES老早就开始这种商法了，店特全是擦边色图<img src="h
 
 抽牌体系强度感觉和其他不是一个次元附加boss随便打，简单粗暴高额加攻和源源不断资源，有死神和大小恶魔当稳定核弹还能轻松掏出妙妙工具
 
+
+*****
+
+####  EndlessDied  
+##### 85#       发表于 2024-10-26 16:27
+
+真结局Get，刷了俩小时失误寄了，然后新开了一局刷了四小时……强度溢出<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202410/26/162623cv5zp5aplvf42fzf.png" referrerpolicy="no-referrer">
+
+<strong>ZVG_[BP42TD)1P01SX@0Q}P.png</strong> (366.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-26 16:26 上传
+

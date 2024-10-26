@@ -14091,3 +14091,39 @@ ZAIKO的live以外的画面为什么全部偏黄，这个转播系统到底什�
 
 这个只能说意料之中且意料之外了，毕竟最近SHARP官推一直公开跟miko眉来眼去，也没想到竟然来得这么快
 
+
+*****
+
+####  karastar  
+##### 10046#       发表于 2024-10-26 19:58
+
+鲷鱼烧有在fes摆摊吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+不加水的加湿器吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 10047#         楼主| 发表于 2024-10-26 19:59
+
+神崎广参与flower rhapsody 原画制作
+
+<img src="https://img.saraba1st.com/forum/202410/26/195913tnnibntbucqkwnzc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (21.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-26 19:59 上传
+
+*****
+
+####  holoan  
+##### 10048#         楼主| 发表于 2024-10-26 20:01
+
+ZAIKO提供即时录像而SPWN一如既往未提供
+
+另外一提这次摄像很不好，很多画面切换得不得当还有很多跟丢对象或者过度放大
+
+不知道BD修不修
+

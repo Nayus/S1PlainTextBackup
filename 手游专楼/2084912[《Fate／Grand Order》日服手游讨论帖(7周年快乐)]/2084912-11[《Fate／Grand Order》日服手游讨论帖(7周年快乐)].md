@@ -1525,3 +1525,16 @@ https://www.bilibili.com/video/BV1KuyWYcEng/
 刚刚反应过来杀狐已经15羁绊了。。丸辣！全丸辣！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我C呆奥博龙几个月前就15了 杀狐刚13 还能再用用
 
+
+*****
+
+####  TheLoof  
+##### 15065#       发表于 2024-10-26 17:38
+
+所以说苍银到底什么时候联动
+
+一个都知道肯定会有的逼宝具本憋了快5年
+
+再憋两年怕是，人家放后排的都15羁绊了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

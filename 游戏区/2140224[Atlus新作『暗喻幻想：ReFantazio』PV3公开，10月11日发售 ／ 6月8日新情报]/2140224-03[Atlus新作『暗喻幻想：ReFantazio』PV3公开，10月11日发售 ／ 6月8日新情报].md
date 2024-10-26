@@ -3109,3 +3109,13 @@ https://vkguide.dev/docs/extra-chapter/graphics_analysis_metafor/
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88-alpha
 
+
+*****
+
+####  Sylpheed  
+##### 3234#       发表于 2024-10-26 23:37
+
+通了，最后二度上天打换皮有点不耐烦了就直冲boss，结果两刀秒了。评价是再输轨迹就没得输了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

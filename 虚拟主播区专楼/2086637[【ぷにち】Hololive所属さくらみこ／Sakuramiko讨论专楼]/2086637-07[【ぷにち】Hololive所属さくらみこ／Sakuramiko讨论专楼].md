@@ -14172,3 +14172,31 @@ ZAIKO提供即时录像而SPWN一如既往未提供
 
 これもうホロライブオルタナティブだろ</blockquote>
 
+
+*****
+
+####  holoan  
+##### 10053#         楼主| 发表于 2024-10-26 21:32
+
+1st的曲目
+
+直接把一专12曲全部一口气唱完，加上定番2首和一首特别翻唱，而去年的EP直接skip了
+
+2nd怎么办？
+
+简单，出二专<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，还记得前几天直播说了什么吗，明年开始要以2ndlive为目标努力
+
+*****
+
+####  渡鸦骑士  
+##### 10054#       发表于 2024-10-26 21:49
+
+这MV会动的可爱彗酱也太多了，非常感谢<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 10055#         楼主| 发表于 2024-10-26 21:53
+
+fbk和polka的曲子call过于完美比粉丝还懂，平时曲子绝对没少听完全就是粉丝角度了
+

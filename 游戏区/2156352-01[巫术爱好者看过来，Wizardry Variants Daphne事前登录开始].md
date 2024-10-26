@@ -1786,3 +1786,15 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 
 交易水路6区也太恶心了吧，地图有前几层2倍大，打到boss资源基本耗尽，打又打不过，只能往回走，结果敌人还能刷新的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">只能等明天复活队友再试了
 
+
+*****
+
+####  绝对小白  
+##### 217#       发表于 2024-10-26 23:21
+
+请问一下需要刷初始吗，需要的话瞄准哪几个刷？
+
+另外英文的信息也很少，有哪些日站讨论/信息多一点的？
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

@@ -1538,3 +1538,14 @@ https://www.bilibili.com/video/BV1KuyWYcEng/
 再憋两年怕是，人家放后排的都15羁绊了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 15066#       发表于 2024-10-26 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66547679&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-10-26 17:26</a>
+
+我C呆奥博龙几个月前就15了 杀狐刚13 还能再用用</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕 奥师傅是我故意能不用就不用  不过也14过半了
+

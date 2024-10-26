@@ -173,3 +173,17 @@ INTI CREATES老早就开始这种商法了，店特全是擦边色图<img src="h
 
 需不需要去前面几关刷积分拿些加成？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zzy516232108  
+##### 83#       发表于 2024-10-26 16:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">胡的时候很胡
+
+鬼的时候特别鬼
+
+玩了两天感觉只有抽0打0的小红帽 和 布局一堆的强度在线
+
+其他的都很堪忧
+

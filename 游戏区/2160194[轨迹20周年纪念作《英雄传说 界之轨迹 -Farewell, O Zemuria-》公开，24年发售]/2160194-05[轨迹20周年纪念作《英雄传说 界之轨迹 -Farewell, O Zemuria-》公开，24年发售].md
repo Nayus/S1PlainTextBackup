@@ -8658,3 +8658,11 @@ f社你非要这样说话么，上来一见面就xx不见(第一次听到有人�
 
 桃花剑的神气合一是对自己攻击？能触发挨打加cp的效果...............是你干的么！小黑？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  妄想中毒  
+##### 6725#       发表于 2024-10-27 01:19
+
+终于通关了，看结局学妹这待遇剑女完全赢不了的吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -3132,3 +3132,13 @@ https://vkguide.dev/docs/extra-chapter/graphics_analysis_metafor/
 
 好兄弟大剑合题直接带走，剩下几个位置上上buff，降降防就行了
 
+
+*****
+
+####  sonnabanana  
+##### 3236#       发表于 2024-10-27 01:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66532471&amp;ptid=2140224" target="_blank">半江瑟瑟半江红 发表于 2024-10-24 16:41</a>
+铁甲战车里那个神秘机器真的就是个阿基态合体配件？为啥国王会让纽拉斯提前装进去？这东西到底是什么来历？ ...</blockquote>
+？王子适配的传送装置，王子是纯血人类回血，王子老母亲家里有黑科技。主角就是王子的persona，所以可以用。
+

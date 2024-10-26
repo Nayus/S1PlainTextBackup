@@ -3777,7 +3777,7 @@
     "lastedit": 1729902060,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1478318": {
     "totalreply": 1412,
@@ -8631,10 +8631,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 92403,
+    "totalreply": 92404,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1729975688,
+    "lastedit": 1729977488,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10436,7 +10436,7 @@
     "newtitle": "[【僧侣档】集合帖：大正伪婚～替身新娘与军服的猛爱  2024.10]",
     "lastedit": 1729717688,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2201576": {
@@ -16749,10 +16749,10 @@
     "update": false
   },
   "2204452": {
-    "totalreply": 66,
+    "totalreply": 68,
     "title": "[处罚骑手的人，如今失业送外卖]",
     "newtitle": "[处罚骑手的人，如今失业送外卖]",
-    "lastedit": 1729959265,
+    "lastedit": 1729977369,
     "category": "外野",
     "active": true,
     "update": false
@@ -16956,10 +16956,10 @@
     "update": false
   },
   "2204531": {
-    "totalreply": 104,
+    "totalreply": 105,
     "title": "[影视飓风 tim：我们去年的淘汰率在百分之三十以上]",
     "newtitle": "[影视飓风 tim：我们去年的淘汰率在百分之三十以上]",
-    "lastedit": 1729976772,
+    "lastedit": 1729977008,
     "category": "外野",
     "active": true,
     "update": false

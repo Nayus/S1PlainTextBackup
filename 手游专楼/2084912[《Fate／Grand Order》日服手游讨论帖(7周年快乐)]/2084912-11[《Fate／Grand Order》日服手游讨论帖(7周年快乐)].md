@@ -1514,3 +1514,14 @@ https://www.bilibili.com/video/BV1KuyWYcEng/
 这低难看系统提示有提到藤蔓好像在策划什么.....可我直接用兽蕾光炮洗 ...</blockquote>
 其他ae被break后没在下一T带走就会被吃掉<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 15064#       发表于 2024-10-26 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66539303&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-10-25 13:46</a>
+
+刚刚反应过来杀狐已经15羁绊了。。丸辣！全丸辣！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我C呆奥博龙几个月前就15了 杀狐刚13 还能再用用
+

@@ -320,3 +320,11 @@ INTI CREATES老早就开始这种商法了，店特全是擦边色图<img src="h
 最终boss打掉1000血以上（简单难度500血）就能解封歌姬，同时启动此前满足条件的歌姬。
 只要不用红点碎卡女主就不会进BE，蓝点打出女主没事，演出和红点不一样。
 
+
+*****
+
+####  Meiien  
+##### 96#       发表于 2024-10-27 19:04
+
+总力战真的狗屎<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+

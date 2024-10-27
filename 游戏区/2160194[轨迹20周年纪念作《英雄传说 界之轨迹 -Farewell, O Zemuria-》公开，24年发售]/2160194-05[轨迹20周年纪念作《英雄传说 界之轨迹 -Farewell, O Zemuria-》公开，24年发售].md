@@ -8674,3 +8674,16 @@ f社你非要这样说话么，上来一见面就xx不见(第一次听到有人�
 
 剑仙老头的初登场还挺……该说符合轨迹味么
 
+
+*****
+
+####  plok201  
+##### 6727#       发表于 2024-10-27 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66550519&amp;ptid=2160194" target="_blank">妄想中毒 发表于 2024-10-27 01:19</a>
+
+终于通关了，看结局学妹这待遇剑女完全赢不了的吧</blockquote>
+剑女现在周围一圈潜在竞争者都是有身份的，巫女，天使，执行者，圣女，未来人，高达驾驶员，剑圣，现在女神都来了，说句难听的，连小梦都有个神秘体质呢
+
+明明这次重头陪伴到最后了，但是感觉比黎1还过分<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

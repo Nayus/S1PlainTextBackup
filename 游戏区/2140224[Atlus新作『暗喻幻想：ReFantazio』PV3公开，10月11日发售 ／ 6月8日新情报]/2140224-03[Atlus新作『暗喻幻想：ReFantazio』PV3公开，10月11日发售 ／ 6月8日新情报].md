@@ -3241,3 +3241,27 @@ https://vkguide.dev/docs/extra-chapter/graphics_analysis_metafor/
 
 开始打了，缝了真女的系统但战斗还是p系列的味，数值简单粗暴，正常打一场小怪bgm前奏刚过去到念经已经结算了。也理解了为什么还拿p系列mp资源管理那套遮战斗设计不足(还搞了手感稀烂的原野战斗帮你提高难度，阿里嘎多)。牢玩家刷完礼拜堂估计17 18级出来奔下一个牢了，术士转圈圈居然还让我回忆起了智慧再现(?)
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3245#       发表于 2024-10-27 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66551839&amp;ptid=2140224" target="_blank">plok201 发表于 2024-10-27 11:29</a>
+好兄弟尽力了，人家撑死是策略游戏智力75左右给你度过初期的角色，后面真的99智力军师出来就退下来当纯打手 ...</blockquote>
+我一开始以为灰雨是智囊定位，没想到他真就从开头摸鱼到结尾混了个从龙之功<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3246#       发表于 2024-10-27 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66550523&amp;ptid=2140224" target="_blank">sonnabanana 发表于 2024-10-27 01:20</a>
+？王子适配的传送装置，王子是纯血人类回血，王子老母亲家里有黑科技。主角就是王子的persona，所以可以 ...</blockquote>
+没提到这玩意是从仙乡来的吧
+而且后面铁甲战车和阿基态合体又是啥情况
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+

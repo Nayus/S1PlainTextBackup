@@ -6563,3 +6563,27 @@ dolo來偷心了<img src="https://static.saraba1st.com/image/smiley/face2017/074
 
 [https://x.com/bpdne/status/1850201146536960387](https://x.com/bpdne/status/1850201146536960387)
 
+
+*****
+
+####  NODY  
+##### 25718#       发表于 2024-10-27 11:42
+
+@NovaRoll_
+
+<img src="https://img.saraba1st.com/forum/202410/27/114243hz8fk95pj8f89pd9.jpg" referrerpolicy="no-referrer">
+
+<strong>Ga1DhH0aQAASLf3.jpg</strong> (35.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-27 11:42 上传
+
+<img src="https://img.saraba1st.com/forum/202410/27/114243mger100felldl9l4.jpg" referrerpolicy="no-referrer">
+
+<strong>Ga1DhH1b0AARS17.jpg</strong> (482.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-27 11:42 上传
+

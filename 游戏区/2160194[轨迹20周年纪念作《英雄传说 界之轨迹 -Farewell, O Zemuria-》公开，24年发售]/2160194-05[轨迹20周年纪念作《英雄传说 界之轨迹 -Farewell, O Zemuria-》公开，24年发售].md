@@ -8687,3 +8687,25 @@ f社你非要这样说话么，上来一见面就xx不见(第一次听到有人�
 
 明明这次重头陪伴到最后了，但是感觉比黎1还过分<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  秘银mithril  
+##### 6728#       发表于 2024-10-27 11:38
+
+草 第一章晚上亚伦的连接事件怎么还解锁S技的
+
+不选的话会缺一个吗？还是之后会等级解锁
+
+
+*****
+
+####  SuNR1sE364  
+##### 6729#       发表于 2024-10-27 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66551879&amp;ptid=2160194" target="_blank">秘银mithril 发表于 2024-10-27 11:38</a>
+草 第一章晚上亚伦的连接事件怎么还解锁S技的
+
+不选的话会缺一个吗？还是之后会等级解锁 ...</blockquote>
+羁绊时间之后都可以补，不用担心
+

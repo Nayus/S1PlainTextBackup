@@ -4060,3 +4060,19 @@ btw，八个人去上海，不住酒店至少要一间六室的住宅暂住，�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">太急了，甚至只有12集而不是13
 
+
+*****
+
+####  cybernetics31  
+##### 390#       发表于 2024-10-27 23:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">im家岩井同志上海话也能讲的，都可以上。
+
+
+*****
+
+####  ViyViy  
+##### 391#       发表于 2024-10-27 23:36
+
+呃等会我突然想到个事情，星一期生毕业后的下一届大赛，二期生三期生岂不是会碰上莲？这丫怎么处理啊。
+

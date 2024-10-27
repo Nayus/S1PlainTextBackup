@@ -8666,3 +8666,11 @@ f社你非要这样说话么，上来一见面就xx不见(第一次听到有人�
 
 终于通关了，看结局学妹这待遇剑女完全赢不了的吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  秘银mithril  
+##### 6726#       发表于 2024-10-27 10:31
+
+剑仙老头的初登场还挺……该说符合轨迹味么
+

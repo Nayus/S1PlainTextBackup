@@ -3273,3 +3273,16 @@ https://vkguide.dev/docs/extra-chapter/graphics_analysis_metafor/
 
 这游戏后段剧情赶成这样，以及有又没有的meta要素，感觉加强版都救不回来，加强版是个继承存档的98块的dlc可能考虑下
 
+
+*****
+
+####  plok201  
+##### 3248#       发表于 2024-10-27 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66552139&amp;ptid=2140224" target="_blank">半江瑟瑟半江红 发表于 2024-10-27 12:19</a>
+
+我一开始以为灰雨是智囊定位，没想到他真就从开头摸鱼到结尾混了个从龙之功
+
+—— 来自 鹅球 v3.3.92-alp ...</blockquote>
+我是以为歌姬当的，毕竟潜伏在BOSS身边的友军，想想结局都是她当魔法学院老大了，看着就是魔戒里甘道夫那种吧.....<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

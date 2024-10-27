@@ -14294,3 +14294,27 @@ X上透露了负责水着那一卡的原画，但实际mv动画里修正后看�
 
 而且负责的那幕还是水着，staff很大胆，画不好45P们直接找上门的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 10062#         楼主| 发表于 2024-10-27 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66550984&amp;ptid=2086637" target="_blank">緋色焰華 发表于 2024-10-27 07:58</a>
+
+这mv破坏力太强了…… 完全能想象到live后回程、二次off会35p的状态……</blockquote>
+昨晚在推特和MV下面的评论区已经看到了很多这种了
+
+大概很多人已经哭得没有感情了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+然后今天还有回顾直播，而且这次live的回放已经可以看了，再哭一次
+
+*****
+
+####  holoan  
+##### 10063#         楼主| 发表于 2024-10-27 11:02
+
+之前看网上说的是ZAIKO虽然以前转播稳定性不太行但是它提供的音轨码率比SPWN高，我这次特地两方都买了，而实际直播和回放看起来并没有差别
+
+反而ZAIKO的综合码率比SPWN低
+

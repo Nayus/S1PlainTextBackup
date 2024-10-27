@@ -260,3 +260,47 @@ Resilio: B3JERIBE52YEADZJMDWDLE4EBRSRNTPRX
 
 正式PV（SOLO曲MV）將在11/10公開。
 
+
+*****
+
+####  wfhtony  
+##### 6630#       发表于 2024-10-27 20:48
+
+「會長嘛，她當然有自己專門的粉專(非公式)啦。」
+
+<img src="https://img.saraba1st.com/forum/202410/27/204715ixrwk3rk4xg4gkmm.png" referrerpolicy="no-referrer">
+
+<strong>01.png</strong> (44.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-27 20:47 上传
+
+<img src="https://img.saraba1st.com/forum/202410/27/204716uxz9m1mdnb8o4gjm.png" referrerpolicy="no-referrer">
+
+<strong>02.png</strong> (111.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-27 20:47 上传
+
+官方也開了一個[「星南粉專（非公式）」的推特帳號](https://twitter.com/I_love_senasama)。
+
+<img src="https://img.saraba1st.com/forum/202410/27/204730syiiaeefoaqq6mnr.png" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 1224 - 十王 星南様非公式ファンサイト👑🌟 (@I_love_senasama) _ T.png</strong> (713.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-27 20:47 上传
+
+該帳號最早的PO文日期爲10/25。
+
+<img src="https://img.saraba1st.com/forum/202410/27/204804wn7ftwtf7tj72fqj.png" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 1225 - 十王 星南様非公式ファンサイト👑🌟 (@I_love_senasama) _ T.png</strong> (265.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-27 20:48 上传
+

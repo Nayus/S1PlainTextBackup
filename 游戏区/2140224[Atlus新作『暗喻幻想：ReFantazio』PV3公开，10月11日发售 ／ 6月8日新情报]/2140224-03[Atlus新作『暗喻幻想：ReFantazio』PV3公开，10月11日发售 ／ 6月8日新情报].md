@@ -3335,3 +3335,14 @@ https://vkguide.dev/docs/extra-chapter/graphics_analysis_metafor/
 我是以为歌姬当的，毕竟潜伏在BOSS身边的友军，想想结局都是她当魔法学院老大了，看着就是魔戒里甘道夫那 ...</blockquote>
 勾日屁股的传统不就是计谋比不上根性和羁绊吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">剧情设计上搞个智酱然后偷偷输剧情一子被反转还不如摆烂全程点子王扑街
 
+
+*****
+
+####  modkingr  
+##### 3253#       发表于 2024-10-27 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66553499&amp;ptid=2140224" target="_blank">u2deack 发表于 2024-10-27 17:02</a>
+
+打这个城堡下水道的迷宫真的是闪了一万次屏我眼都要瞎了，为什么他们这么执着做开宝箱的动画就不能直接开么 ...</blockquote>
+这游戏亮度控制有点问题的，开宝箱、后期队友的光属性魔法特效，有的时候眼睛稍微疲劳一点真的白得眼睛痛
+

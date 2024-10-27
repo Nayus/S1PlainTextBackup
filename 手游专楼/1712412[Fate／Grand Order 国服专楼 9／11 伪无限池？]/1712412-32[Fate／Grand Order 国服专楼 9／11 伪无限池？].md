@@ -189,3 +189,13 @@ yls的方差是这样的呀，我一个抓包1.1的连续翻车，人家1.5的�
 180石8呼符 托勒密+小玉…
 至今出的三个小玉都是呼符出的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  昆古尼尔  
+##### 46772#       发表于 2024-10-27 13:52
+
+<img src="https://p.sda1.dev/19/758ffbdddfd57d86871cf9eb9ae9c01f/CMP_20241027135231610.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2311DRK48C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

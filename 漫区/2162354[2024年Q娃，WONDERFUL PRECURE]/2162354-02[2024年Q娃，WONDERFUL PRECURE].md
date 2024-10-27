@@ -331,3 +331,13 @@
 
 果然和去年的搞笑黑化一样 想玩但怂<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  待宵  
+##### 2560#       发表于 2024-10-27 14:53
+
+BOSS是阿夸，小麦的智商当不了赤音要不就充当帽皇吧<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+剧情上我并不反感，但一坨的演出真是无力吐槽，虽说也是如今Q娃常态不得不品了
+

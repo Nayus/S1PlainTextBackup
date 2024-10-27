@@ -1015,3 +1015,13 @@ dmzj章末吐槽怎么一群人说公主和龙融合了，最后一页这是公�
 总帅：你知道我要说什么<img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/19/f54df43d7f8fefd168998095b7d1a47c/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ww-tsl  
+##### 109#       发表于 2024-10-27 14:50
+
+仍然不知道这作的世界观基调是奇幻还是披着奇幻皮的科幻。
+
+画风也不对胃口，个人觉得二瓶画风的巅峰是人形之国虽然不够精细剧情老套。
+

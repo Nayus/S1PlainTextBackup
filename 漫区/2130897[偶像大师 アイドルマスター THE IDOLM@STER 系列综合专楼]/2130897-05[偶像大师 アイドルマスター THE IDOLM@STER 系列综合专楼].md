@@ -185,3 +185,36 @@ Resilio: B3JERIBE52YEADZJMDWDLE4EBRSRNTPRX
 
 2024-10-27 19:12 上传
 
+
+*****
+
+####  BQlin  
+##### 6625#       发表于 2024-10-27 19:23
+
+等八点的pv了
+
+*****
+
+####  RhmBWT_Wu  
+##### 6626#       发表于 2024-10-27 19:24
+
+[https://idolmaster-official.jp/l ... formation/uijin.php](https://idolmaster-official.jp/live_event/gkmas_debutlivehajime/information/uijin.php)
+
+2月8日(土) 名古屋クラブクアトロ
+
+＜昼の部＞14:30開場／15:15開演
+
+＜夜の部＞17:45開場／18:30開演
+
+2月11日(火・祝) 梅田クラブクアトロ
+
+＜昼の部＞14:30開場／15:15開演
+
+＜夜の部＞17:45開場／18:30開演
+
+2月16日(日) 渋谷クラブクアトロ
+
+＜昼の部＞14:30開場／15:15開演
+
+＜夜の部＞17:45開場／18:30開演
+

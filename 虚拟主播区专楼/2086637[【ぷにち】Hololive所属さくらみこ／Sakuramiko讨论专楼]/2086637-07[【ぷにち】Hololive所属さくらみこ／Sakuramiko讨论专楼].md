@@ -14318,3 +14318,30 @@ X上透露了负责水着那一卡的原画，但实际mv动画里修正后看�
 
 反而ZAIKO的综合码率比SPWN低
 
+
+*****
+
+####  holoan  
+##### 10064#         楼主| 发表于 2024-10-27 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66550625&amp;ptid=2086637" target="_blank">karastar 发表于 2024-10-27 02:07</a>
+
+miko妈什么时候出道，我要看到双妈联动</blockquote>
+前几年就有观众替你问完了，miko始终只有一句话 不会出现在直播里的，包括其他家人都不会，一方面是她们主动拒绝了另一方面她们不住在东京而住在乡下
+
+前世的就是另外一回事了，10年前
+
+*****
+
+####  rs5621  
+##### 10065#       发表于 2024-10-27 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66551646&amp;ptid=2086637" target="_blank">holoan 发表于 2024-10-27 10:52</a>
+
+昨晚在推特和MV下面的评论区已经看到了很多这种了
+
+大概很多人已经哭得没有感情了
+
+然后今天还有回顾直播， ...</blockquote>
+这不做成油 管表情包可惜了
+

@@ -218,3 +218,32 @@ Resilio: B3JERIBE52YEADZJMDWDLE4EBRSRNTPRX
 
 ＜夜の部＞17:45開場／18:30開演
 
+
+*****
+
+####  wfhtony  
+##### 6627#       发表于 2024-10-27 20:01
+
+ 本帖最后由 wfhtony 于 2024-10-27 20:03 编辑 
+
+官方算是總算學到了，專門多留了一分鐘放**首映的倒計時。
+
+<img src="https://img.saraba1st.com/forum/202410/27/200105gxbjbptsxueiujwj.png" referrerpolicy="no-referrer">
+
+<strong>十王_星南_PROMOTION_VIDEO_-Teaser_ver.-_【アイドルマスター】_-_Y_2024-10-27_19-58-02.png</strong> (6.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-27 20:01 上传
+
+不過這推特告知長度的預告真的有專門上首映的必要麼（
+
+但這段預告也確定一點：SOLO《Choo Choo Choo》將於11/11前後販賣（及上架流媒體）。
+
+*****
+
+####  BQlin  
+##### 6628#       发表于 2024-10-27 20:02
+
+就几秒啊
+

@@ -199,3 +199,13 @@ yls的方差是这样的呀，我一个抓包1.1的连续翻车，人家1.5的�
 
 —— 来自 Xiaomi 2311DRK48C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  khxooo  
+##### 46773#       发表于 2024-10-27 17:33
+
+ 本帖最后由 khxooo 于 2024-10-27 17:35 编辑 
+
+兽尼：你们已经被我一个人包围了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+

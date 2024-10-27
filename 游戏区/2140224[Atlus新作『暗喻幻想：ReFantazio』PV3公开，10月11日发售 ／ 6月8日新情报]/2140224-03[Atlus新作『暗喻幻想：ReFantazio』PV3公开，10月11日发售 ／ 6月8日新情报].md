@@ -3216,3 +3216,20 @@ https://vkguide.dev/docs/extra-chapter/graphics_analysis_metafor/
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
 
+
+*****
+
+####  plok201  
+##### 3242#       发表于 2024-10-27 11:29
+
+好兄弟尽力了，人家撑死是策略游戏智力75左右给你度过初期的角色，后面真的99智力军师出来就退下来当纯打手的
+
+谁知道整个游戏真靠点子王出谋划策到最后<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wolfwood  
+##### 3243#       发表于 2024-10-27 11:31
+
+65小时打完了，总体感觉。。。真的好普通，没有翻车离谱的地方也米有非常惊艳的地方，大概就比破晓传说强一点吧
+

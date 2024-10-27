@@ -3777,3 +3777,11 @@ C罗不知道是本体内容还是DLC内容
 
 馆长大儿子。
 
+
+*****
+
+####  1096beam  
+##### 351#       发表于 2024-10-27 20:45
+
+有没有一丁点可能，铁拳和真人快打主机玩家占比多一点呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -3396,3 +3396,13 @@ https://vkguide.dev/docs/extra-chapter/graphics_analysis_metafor/
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  森兰丸  
+##### 3259#       发表于 2024-10-28 02:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这2天终于能够抽出点时间来玩了....结果刚玩就直接喷了...这东西不就是个P5换皮吗...整个游戏的进行流程都差不多...A社是真整不出新活了吗
+
+唯一比较大的区别和改良大概就是把P换成アーキタイプ....同伴也能自由换P和技能了
+

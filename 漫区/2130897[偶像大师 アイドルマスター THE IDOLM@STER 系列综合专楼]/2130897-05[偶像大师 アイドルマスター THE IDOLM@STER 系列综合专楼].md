@@ -41,3 +41,23 @@
 學馬仕裏御三家的另外兩位，星南估計十一月中/下旬實裝、美玲估計十二月（中旬）。這樣配合CD發售週期和2月追加LIVE的話是最理想的。
 問題是，這是萬南運營的遊戲，這就是最大的不確定因素。
 
+
+*****
+
+####  joshua1990  
+##### 6619#       发表于 2024-10-27 15:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">今天的live没人讨论呀
+
+*****
+
+####  RhmBWT_Wu  
+##### 6620#       发表于 2024-10-27 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66552979&amp;ptid=2130897" target="_blank">joshua1990 发表于 2024-10-27 15:38</a>
+
+今天的live没人讨论呀</blockquote>
+毕竟是第三场了吧
+
+等夜场结束有新消息大概会有人讨论，虽然感觉大家都知道是啥了
+

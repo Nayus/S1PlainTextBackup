@@ -3286,3 +3286,15 @@ https://vkguide.dev/docs/extra-chapter/graphics_analysis_metafor/
 —— 来自 鹅球 v3.3.92-alp ...</blockquote>
 我是以为歌姬当的，毕竟潜伏在BOSS身边的友军，想想结局都是她当魔法学院老大了，看着就是魔戒里甘道夫那种吧.....<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NEIN  
+##### 3249#       发表于 2024-10-27 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66552622&amp;ptid=2140224" target="_blank">头发头发 发表于 2024-10-27 14:02</a>
+这游戏后段剧情赶成这样，以及有又没有的meta要素，感觉加强版都救不回来，加强版是个继承存档的98块的dlc ...</blockquote>
+看结局动画应该铁后日谈dlc了吧，看p3r那个更新方式感觉atlus也是以后出dlc的趋势
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

@@ -346,3 +346,16 @@ INTI CREATES老早就开始这种商法了，店特全是擦边色图<img src="h
 
 随便打几张卡就无限过牌必杀无限丢什么的最爽啦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  siriii  
+##### 99#       发表于 2024-10-27 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66554066&amp;ptid=2200160" target="_blank">cmyk1234 发表于 2024-10-27 18:46</a>
+
+最终boss打掉1000血以上（简单难度500血）就能解封歌姬，同时启动此前满足条件的歌姬。
+
+只要不用红点碎卡 ...</blockquote>
+草，我解封当回合老婆已经被我塞进弃牌堆了，蓝豆演出没看着就打死了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

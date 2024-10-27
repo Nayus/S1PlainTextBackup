@@ -3314,3 +3314,24 @@ https://vkguide.dev/docs/extra-chapter/graphics_analysis_metafor/
 
 打这个城堡下水道的迷宫真的是闪了一万次屏我眼都要瞎了，为什么他们这么执着做开宝箱的动画就不能直接开么，以前就闪一次屏，现在除了闪屏还要带上那个切屏动画和音效，我真的是要吐了
 
+
+*****
+
+####  sonnabanana  
+##### 3251#       发表于 2024-10-27 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66552156&amp;ptid=2140224" target="_blank">半江瑟瑟半江红 发表于 2024-10-27 12:21</a>
+没提到这玩意是从仙乡来的吧
+而且后面铁甲战车和阿基态合体又是啥情况</blockquote>
+传送和铁甲舰不就是国王被夺权之前的魔法学院研究出来的。
+魔法学院技术支持肯定就是仙乡里的上古人类黑科技，仙乡老太太也说过，仙乡有技术给你躺赢，另一个仙乡传人路易能当传奇耐死王肯定是开挂了。
+
+*****
+
+####  sonnabanana  
+##### 3252#       发表于 2024-10-27 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66552930&amp;ptid=2140224" target="_blank">plok201 发表于 2024-10-27 15:26</a>
+我是以为歌姬当的，毕竟潜伏在BOSS身边的友军，想想结局都是她当魔法学院老大了，看着就是魔戒里甘道夫那 ...</blockquote>
+勾日屁股的传统不就是计谋比不上根性和羁绊吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">剧情设计上搞个智酱然后偷偷输剧情一子被反转还不如摆烂全程点子王扑街
+

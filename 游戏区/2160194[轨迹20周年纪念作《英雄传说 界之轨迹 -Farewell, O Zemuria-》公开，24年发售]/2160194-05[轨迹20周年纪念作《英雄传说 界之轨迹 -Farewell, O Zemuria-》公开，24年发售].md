@@ -8709,3 +8709,15 @@ f社你非要这样说话么，上来一见面就xx不见(第一次听到有人�
 不选的话会缺一个吗？还是之后会等级解锁 ...</blockquote>
 羁绊时间之后都可以补，不用担心
 
+
+*****
+
+####  秘银mithril  
+##### 6730#       发表于 2024-10-27 12:14
+
+笑死，逛完街进黑色庭院调整装备才发现
+
+把幻晶石当耀晶石块卖光了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+还好有存档
+

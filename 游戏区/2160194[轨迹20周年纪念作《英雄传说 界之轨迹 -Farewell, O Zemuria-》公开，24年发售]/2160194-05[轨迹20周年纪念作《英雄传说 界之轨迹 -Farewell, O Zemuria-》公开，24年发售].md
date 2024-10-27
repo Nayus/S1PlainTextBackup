@@ -8778,3 +8778,14 @@ f社你非要这样说话么，上来一见面就xx不见(第一次听到有人�
 感觉我这边不退出去重新配回路很难40回合内打完 ...</blockquote>
 没啥必要 因为想要S就至少得打2次 
 
+
+*****
+
+####  kanata  
+##### 6737#       发表于 2024-10-27 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66552666&amp;ptid=2160194" target="_blank">Renes 发表于 2024-10-27 14:13</a>
+
+我们玩的是一个噩梦难度吗？最终章除了最终战哪还有什么强制动作模式？哪怕前面一章凯文那个地道也是弄完 ...</blockquote>
+怪物血量是按指令难度算的，原野调成EASY也只会减少受到的伤害
+

@@ -1053,3 +1053,13 @@ https://steamcommunity.com/sharedfiles/filedetails/?id=3320600127</blockquote>
 很关键（</blockquote>
 这段先跑回去拿龙笛就不会卡了，估计作者也没设想过没拿传送石就跑过来会卡死是问题<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kerbad  
+##### 83#       发表于 2024-10-28 00:48
+
+拿到山羊后迫不及待绕了一圈从地图另一端跳出来了，太性感了这游戏<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+不过初始森林一些个高地宝箱和墨丘利神殿这个传送石价格该不会游戏初期只靠双脚就能从一些刁钻的地方跳上来吧，太离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -8883,3 +8883,13 @@ f社你非要这样说话么，上来一见面就xx不见(第一次听到有人�
 但打完boss后突然就……有点无奈的感觉 ...</blockquote>
 第一章是最牢的，第二章就有趣点了，但是节奏还是很烂（
 
+
+*****
+
+####  flxgundam  
+##### 6745#       发表于 2024-10-27 23:21
+
+nayuta
+<img src="https://p.sda1.dev/19/30b8393bd04499ca03ce651776ab2899/CMP_20241027232100047.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/ad9a619d94cf3f16e8e6d5df3e27e37a/CMP_20241027232100126.jpg" referrerpolicy="no-referrer">
+

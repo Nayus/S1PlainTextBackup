@@ -6646,3 +6646,21 @@ dolo來偷心了<img src="https://static.saraba1st.com/image/smiley/face2017/074
 
 谢谢各位解答
 
+
+*****
+
+####  御幸一也  
+##### 25723#       发表于 2024-10-28 01:11
+
+好可愛 狗狗當然喜歡撿樹枝啦<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202410/28/011043t8r8pm91y107ju7y.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_せとー(@bpdne)_20241027-132441_1850529050105884746_photo.jpg</strong> (195.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-28 01:10 上传
+
+[https://x.com/bpdne/status/1850529050105884746](https://x.com/bpdne/status/1850529050105884746)
+

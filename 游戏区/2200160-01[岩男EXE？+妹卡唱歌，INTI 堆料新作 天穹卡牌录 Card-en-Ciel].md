@@ -301,3 +301,11 @@ INTI CREATES老早就开始这种商法了，店特全是擦边色图<img src="h
 
 笑死，卡牌游戏也有快慢刀，差点被慢刀劈死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  志濑散绪  
+##### 94#       发表于 2024-10-27 18:08
+
+问个简单的问题，这游戏好玩吗？我就不说和T1的前辈们比了，能跟六面先知一个等级吗？
+

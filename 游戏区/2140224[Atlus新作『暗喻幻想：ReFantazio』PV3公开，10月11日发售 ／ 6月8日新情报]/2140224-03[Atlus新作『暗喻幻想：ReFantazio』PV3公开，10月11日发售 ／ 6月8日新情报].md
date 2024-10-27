@@ -3265,3 +3265,11 @@ https://vkguide.dev/docs/extra-chapter/graphics_analysis_metafor/
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
 
+
+*****
+
+####  头发头发  
+##### 3247#       发表于 2024-10-27 14:02
+
+这游戏后段剧情赶成这样，以及有又没有的meta要素，感觉加强版都救不回来，加强版是个继承存档的98块的dlc可能考虑下
+

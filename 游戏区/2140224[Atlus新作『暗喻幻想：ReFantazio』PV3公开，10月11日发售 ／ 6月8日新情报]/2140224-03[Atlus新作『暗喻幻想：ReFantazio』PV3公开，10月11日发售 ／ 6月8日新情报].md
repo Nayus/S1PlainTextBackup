@@ -3373,3 +3373,26 @@ https://vkguide.dev/docs/extra-chapter/graphics_analysis_metafor/
 <img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">这游戏没PC版的各种便利手段，我铁定半路弃坑了。
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">好就好在最后一个后日谈拉回一点分数。RPG有后日谈真不错。
 
+
+*****
+
+####  猫沢  
+##### 3257#       发表于 2024-10-28 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66554824&amp;ptid=2140224" target="_blank">modkingr 发表于 2024-10-27 20:25</a>
+ 这游戏亮度控制有点问题的，开宝箱、后期队友的光属性魔法特效，有的时候眼睛稍微疲劳一点真的白得眼睛痛 ...</blockquote>
+最闪的都不是开宝箱，可以试试玛哈拉库卡加斯库卡加塔尔卡加<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">连闪4下。
+
+*****
+
+####  NEIN  
+##### 3258#       发表于 2024-10-28 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66556032&amp;ptid=2140224" target="_blank">DarkDancer 发表于 2024-10-27 23:24</a>
+三阶法师的合体威力提升对物理技能有效吗
+
+哥们用的武器本身就是合体威力提升的 能叠加不 ...</blockquote>
+被动吗?有用啊，输出必带的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

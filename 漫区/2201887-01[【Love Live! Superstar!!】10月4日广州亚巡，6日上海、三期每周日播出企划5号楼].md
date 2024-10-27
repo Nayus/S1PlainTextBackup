@@ -3904,3 +3904,20 @@ btw，八个人去上海，不住酒店至少要一间六室的住宅暂住，�
 
 从预告来看像是全员去上海旅游，然后偶遇可可姐
 
+
+*****
+
+####  ads147147  
+##### 377#       发表于 2024-10-27 16:53
+
+其实也没啥，就算是妈妈来也不一定需要说中文。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  仟音一心  
+##### 378#       发表于 2024-10-27 16:55
+
+<img src="https://p.sda1.dev/19/f78c0d1ff118bb05c184395f5bfd8c62/image.jpg" referrerpolicy="no-referrer">
+

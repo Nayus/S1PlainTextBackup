@@ -379,3 +379,11 @@ BOSS是阿夸，小麦的智商当不了赤音要不就充当帽皇吧<img src="
 
 下一集倒是同人大胜利<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CureJoker  
+##### 2565#       发表于 2024-10-27 22:30
+
+真羡慕后辈们可以互相吸吸
+

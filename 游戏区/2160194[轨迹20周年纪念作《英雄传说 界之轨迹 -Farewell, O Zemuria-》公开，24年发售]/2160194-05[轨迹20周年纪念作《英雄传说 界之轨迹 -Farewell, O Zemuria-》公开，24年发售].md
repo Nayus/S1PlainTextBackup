@@ -8845,3 +8845,14 @@ f社你非要这样说话么，上来一见面就xx不见(第一次听到有人�
 
 限制地图战那段当时想起剑星，又短又简单不说我都忘了
 
+
+*****
+
+####  Renes  
+##### 6742#       发表于 2024-10-27 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66553478&amp;ptid=2160194" target="_blank">windtrack 发表于 2024-10-27 17:00</a>
+
+最后迷宫电梯那俩AF强制动作进战斗，另外小怪里有一种更恶心的会强制让你退出指令战斗 ...</blockquote>
+电梯那个AF觉醒加时停很好打了已经，都忘了这茬了，小怪那个强制退出和进入没啥感觉，初见杀完了就不会吃了
+

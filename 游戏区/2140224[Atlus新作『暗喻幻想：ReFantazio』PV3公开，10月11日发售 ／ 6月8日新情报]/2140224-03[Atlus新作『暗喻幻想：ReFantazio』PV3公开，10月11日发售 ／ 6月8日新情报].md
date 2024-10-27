@@ -3364,3 +3364,12 @@ https://vkguide.dev/docs/extra-chapter/graphics_analysis_metafor/
 
 哥们用的武器本身就是合体威力提升的 能叠加不
 
+
+*****
+
+####  killcal  
+##### 3256#       发表于 2024-10-28 00:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">这游戏没PC版的各种便利手段，我铁定半路弃坑了。
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">好就好在最后一个后日谈拉回一点分数。RPG有后日谈真不错。
+

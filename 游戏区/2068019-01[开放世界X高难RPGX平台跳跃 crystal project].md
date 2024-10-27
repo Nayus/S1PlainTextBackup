@@ -1042,3 +1042,14 @@ https://steamcommunity.com/sharedfiles/filedetails/?id=3320600127</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  kerbad  
+##### 82#       发表于 2024-10-27 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66547458&amp;ptid=2068019" target="_blank">库德里尔 发表于 2024-10-26 16:46</a>
+如果不开辅助模式，那么各个神庙的传送石+只能设置一个的honepoint就是唯一的瞬间移动法了
+很关键（</blockquote>
+这段先跑回去拿龙笛就不会卡了，估计作者也没设想过没拿传送石就跑过来会卡死是问题<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

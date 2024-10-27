@@ -8868,3 +8868,18 @@ f社你非要这样说话么，上来一见面就xx不见(第一次听到有人�
 
 但打完boss后突然就……有点无奈的感觉
 
+
+*****
+
+####  ravend233  
+##### 6744#       发表于 2024-10-27 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66555290&amp;ptid=2160194" target="_blank">秘银mithril 发表于 2024-10-27 21:39</a>
+
+第一章打完了，本来体验都挺好的
+
+战斗好玩，演出又棒
+
+但打完boss后突然就……有点无奈的感觉 ...</blockquote>
+第一章是最牢的，第二章就有趣点了，但是节奏还是很烂（
+

@@ -359,3 +359,11 @@ INTI CREATES老早就开始这种商法了，店特全是擦边色图<img src="h
 只要不用红点碎卡 ...</blockquote>
 草，我解封当回合老婆已经被我塞进弃牌堆了，蓝豆演出没看着就打死了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  101207777  
+##### 100#       发表于 2024-10-27 22:18
+
+总力战基本是纯爽局，问题就是能量上限只有3太不爽了。能量基本浪费了
+

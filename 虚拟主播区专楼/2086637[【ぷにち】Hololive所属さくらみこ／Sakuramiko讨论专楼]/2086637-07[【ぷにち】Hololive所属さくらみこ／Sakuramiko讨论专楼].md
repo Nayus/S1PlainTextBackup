@@ -14394,3 +14394,28 @@ sololive用衣装有3种形态
 
 所以只有BD能拯救画质
 
+
+*****
+
+####  holoan  
+##### 10071#         楼主| 发表于 2024-10-27 23:43
+
+现场带了超过历届sololive的周边量和4000份CD结果还是全部早早卖光了
+
+还是那句话，cover你的库存可以多准备一点吗？
+
+*****
+
+####  holoan  
+##### 10072#         楼主| 发表于 2024-10-27 23:44
+
+<img src="https://img.saraba1st.com/forum/202410/27/234317t5kk7mrhz7frzkns.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (49.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-27 23:43 上传
+
+果然，我甚至还没去特地翻他的推特就自己找上门了
+

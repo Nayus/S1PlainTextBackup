@@ -3794,3 +3794,89 @@ btw，八个人去上海，不住酒店至少要一间六室的住宅暂住，�
 
 无聊的一集
 
+
+*****
+
+####  离心  
+##### 364#       发表于 2024-10-27 16:35
+
+看到香音出来要k头的时候我差点ptsd了，谢谢你可可
+
+*****
+
+####  仟音一心  
+##### 365#       发表于 2024-10-27 16:36
+
+可可姐会是菜宝配音吗？
+<img src="https://p.sda1.dev/19/1c496789c86bdc3e93827cabc2c1b2f1/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 366#       发表于 2024-10-27 16:37
+
+正常发挥平均水准的一集，下集才是重头戏，那怕像这集一样喂鸡汤只要不整烂活做好给可可回就暂时不骂花田<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 367#       发表于 2024-10-27 16:37
+
+日笠阳子的LL第三个角色。
+<img src="https://p.sda1.dev/19/374590a76e5921b7229fa50c81283f6c/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 368#       发表于 2024-10-27 16:38
+
+栞子是鬼冢姐妹的小姨jpg
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  cybernetics31  
+##### 369#       发表于 2024-10-27 16:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">来个上海大舞台（
+
+*****
+
+####  ads147147  
+##### 370#       发表于 2024-10-27 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66553318&amp;ptid=2201887" target="_blank">仟音一心 发表于 2024-10-27 16:36</a>
+可可姐会是菜宝配音吗？</blockquote>
+大概率鲤鱼自己配的吧，小概率其他人，菜宝的姐姐音，我记得好像之前直播切片里有用过那种御姐声。。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  ads147147  
+##### 371#       发表于 2024-10-27 16:40
+
+补丁打的很好的一集，虽然槽点也一堆。
+
+问题在于，这个补丁明明不需要打。。。
+
+说起来这集如果有live，就有点虹2的感觉了。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  we89623  
+##### 372#       发表于 2024-10-27 16:42
+
+你们为什么判定一定是可姐，不能是可妈？ 可姐还打找会双语的，可妈就不用了。
+
+*****
+
+####  wolf1997  
+##### 373#       发表于 2024-10-27 16:44
+
+下集会以什么方式引入到上海？难道是家族一声令下，可可不得不回？
+

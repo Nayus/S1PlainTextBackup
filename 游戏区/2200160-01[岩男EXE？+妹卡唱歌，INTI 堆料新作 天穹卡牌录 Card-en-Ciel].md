@@ -336,3 +336,13 @@ INTI CREATES老早就开始这种商法了，店特全是擦边色图<img src="h
 
 总力战可以全歌姬猴大数字还是蛮爽，刚用变身火男猴了一发3600<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  EndlessDied  
+##### 98#       发表于 2024-10-27 19:43
+
+总力战天下第一啦
+
+随便打几张卡就无限过牌必杀无限丢什么的最爽啦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

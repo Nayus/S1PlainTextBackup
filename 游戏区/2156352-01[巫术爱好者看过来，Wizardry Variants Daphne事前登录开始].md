@@ -1972,3 +1972,14 @@ https://gamerch.com/wizardry-daphne/
   -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
 看你心情，有小日本刷了3万经验直接20级的
 
+
+*****
+
+####  神手之兔  
+##### 231#       发表于 2024-10-27 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66554369&amp;ptid=2156352" target="_blank">elven119 发表于 2024-10-27 19:28:25</a>
+看你心情，有小日本刷了3万经验直接20级的</blockquote>115一把等于小300把……这也太空虚了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

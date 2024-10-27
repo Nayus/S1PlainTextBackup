@@ -3366,10 +3366,10 @@
     "update": false
   },
   "1770999": {
-    "totalreply": 4984,
+    "totalreply": 4994,
     "title": "[东离剑游纪3专楼。第三季2021.4.3晚9：30]",
     "newtitle": "[东离剑游纪4专楼。2024.10.6，网盘见]",
-    "lastedit": 1729972091,
+    "lastedit": 1729986978,
     "category": "漫区",
     "active": true,
     "update": false
@@ -3777,7 +3777,7 @@
     "lastedit": 1729902060,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1478318": {
     "totalreply": 1412,
@@ -7902,10 +7902,10 @@
     "update": false
   },
   "2050404": {
-    "totalreply": 66933,
+    "totalreply": 66934,
     "title": "[东映完全新作原创动画『GIRLS BAND CRY』2024年4月]",
     "newtitle": "[东映完全新作原创动画『GIRLS BAND CRY』2024年4月]",
-    "lastedit": 1729952178,
+    "lastedit": 1729986978,
     "category": "漫区",
     "active": true,
     "update": false
@@ -9459,10 +9459,10 @@
     "update": false
   },
   "2194776": {
-    "totalreply": 10094,
+    "totalreply": 10095,
     "title": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
-    "lastedit": 1729984932,
+    "lastedit": 1729987088,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -11348,15 +11348,6 @@
     "active": false,
     "update": false
   },
-  "2202882": {
-    "totalreply": 69,
-    "title": "[就你也配MAGA？]",
-    "newtitle": "[就你也配MAGA？]",
-    "lastedit": 1728777009,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
   "2197070": {
     "totalreply": 59,
     "title": "[KONAMI这个公司真是纯纯有点大病]",
@@ -12533,7 +12524,7 @@
     "newtitle": "[我的第二部游戏《恶魔鉴定守则》已发售，首发折扣29.7]",
     "lastedit": 1729727407,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2203153": {
@@ -14499,10 +14490,10 @@
     "update": false
   },
   "2203526": {
-    "totalreply": 151,
+    "totalreply": 153,
     "title": "[《异星工厂》大型资料片《太空时代》2024-10-21发售（除FFF之外无剧透)]",
     "newtitle": "[《异星工厂》大型资料片《太空时代》2024-10-21发售（除FFF之外无剧透)]",
-    "lastedit": 1729975209,
+    "lastedit": 1729986609,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17082,19 +17073,19 @@
     "update": false
   },
   "2204572": {
-    "totalreply": 58,
+    "totalreply": 59,
     "title": "[新自由主义残害苍生]",
     "newtitle": "[新自由主义残害苍生]",
-    "lastedit": 1729985773,
+    "lastedit": 1729986978,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2204569": {
-    "totalreply": 67,
+    "totalreply": 68,
     "title": "[猪爷冲击！杭州高龄太刀侠solo未果反断指]",
     "newtitle": "[猪爷冲击！杭州高龄太刀侠solo未果反断指]",
-    "lastedit": 1729976772,
+    "lastedit": 1729986978,
     "category": "外野",
     "active": true,
     "update": false
@@ -17163,10 +17154,10 @@
     "update": false
   },
   "2204606": {
-    "totalreply": 60,
+    "totalreply": 61,
     "title": "[称重快餐属于坑吗？]",
     "newtitle": "[称重快餐属于坑吗？]",
-    "lastedit": 1729986379,
+    "lastedit": 1729986978,
     "category": "外野",
     "active": true,
     "update": false
@@ -17204,6 +17195,15 @@
     "newtitle": "[(剧透)宿命传说2里裘达斯的结局是？]",
     "lastedit": 1729985409,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2204601": {
+    "totalreply": 41,
+    "title": "[电商节是不是已经成为了智商税鉴定器]",
+    "newtitle": "[电商节是不是已经成为了智商税鉴定器]",
+    "lastedit": 1729986978,
+    "category": "外野",
     "active": true,
     "update": false
   }

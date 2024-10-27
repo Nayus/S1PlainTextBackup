@@ -134,3 +134,54 @@ Resilio: B3JERIBE52YEADZJMDWDLE4EBRSRNTPRX
 
 さて…
 
+
+*****
+
+####  BQlin  
+##### 6623#       发表于 2024-10-27 19:11
+
+我小美野呢
+
+*****
+
+####  wfhtony  
+##### 6624#       发表于 2024-10-27 19:13
+
+<img src="https://img.saraba1st.com/forum/202410/27/191243t14588z96678dw2l.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-10-27-19h11m14s966.png</strong> (982.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-27 19:12 上传
+
+<img src="https://img.saraba1st.com/forum/202410/27/191243gahi26zey6h2mmfr.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-10-27-19h11m22s674.png</strong> (792.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-27 19:12 上传
+
+靠，小美野放鴿子了(
+
+<img src="https://img.saraba1st.com/forum/202410/27/191244gz2xgh2ncpmt2pzv.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-10-27-19h12m31s288.png</strong> (1.23 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-27 19:12 上传
+
+今天的新消息：
+
+・初戀公演的完走插畫，相關週邊也將發售。
+
+<img src="https://img.saraba1st.com/forum/202410/27/191245vdeacinp00mddc00.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-10-27-19h12m35s915.png</strong> (1.71 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-27 19:12 上传
+

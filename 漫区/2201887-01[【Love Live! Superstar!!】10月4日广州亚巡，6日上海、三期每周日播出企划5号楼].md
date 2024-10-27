@@ -4017,3 +4017,11 @@ btw，八个人去上海，不住酒店至少要一间六室的住宅暂住，�
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  ViyViy  
+##### 385#       发表于 2024-10-27 19:09
+
+后面冬逑应该还有一集，应该是和VN一起写吧，“这集”过完就正式合并入队，最慢最慢第八集了，再拖那就真的决赛+毕业剧场版见了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

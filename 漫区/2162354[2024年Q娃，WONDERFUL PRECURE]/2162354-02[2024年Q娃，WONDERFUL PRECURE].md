@@ -413,3 +413,29 @@ BOSS是阿夸，小麦的智商当不了赤音要不就充当帽皇吧<img src="
 现在设计黑化形态还来得及吗</blockquote>
 我觉得你守寡期间很适合出一个黑化形态，真的，可惜估计法Q2不会做<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  朝日奈みらい.  
+##### 2569#       发表于 2024-10-27 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66555769&amp;ptid=2162354" target="_blank">pokemon最爱 发表于 2024-10-27 22:44</a>
+
+我觉得你守寡期间很适合出一个黑化形态，真的，可惜估计法Q2不会做</blockquote>
+如果李可那个时候还不来的话,也许我真的会觉醒一些奇怪的招数
+
+吾阿萨西奈-米拉库鲁乃恶断之剑!没有吾的剑斩不断的魔法界
+
+切!死!她!!!!!! 
+
+*****
+
+####  天风绯炎  
+##### 2570#       发表于 2024-10-27 23:18
+
+亚撒西老狼，太好洗白的展开<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+黑化又是光速解决，纯噱头
+
+尼克大人好像还藏了一句，是怎么被自私人类伤害的？
+

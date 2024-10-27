@@ -293,3 +293,11 @@ INTI CREATES老早就开始这种商法了，店特全是擦边色图<img src="h
 其实只需要打1/5的血就可以跳剧情把歌姬的封锁解放（然后一次性连续跳出来二三十个歌姬的动画我明明开了 ...</blockquote>
 草，原来不用打完，那我放心了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  siriii  
+##### 93#       发表于 2024-10-27 16:02
+
+笑死，卡牌游戏也有快慢刀，差点被慢刀劈死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

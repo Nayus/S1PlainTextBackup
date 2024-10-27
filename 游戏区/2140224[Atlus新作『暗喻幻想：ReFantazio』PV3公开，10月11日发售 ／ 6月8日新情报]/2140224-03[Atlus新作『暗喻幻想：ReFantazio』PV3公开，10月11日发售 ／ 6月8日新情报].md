@@ -3180,3 +3180,15 @@ https://vkguide.dev/docs/extra-chapter/graphics_analysis_metafor/
 
 2024-10-27 03:43 上传
 
+
+*****
+
+####  benhawk  
+##### 3239#       发表于 2024-10-27 08:56
+
+<blockquote>kamiruding 发表于 2024-10-25 11:45
+试玩了一下 不得不说今年 阿特拉斯最好得 游戏是 STM5 VV  可惜不火  P3R 那么多弱智东西都动都不敢动  阿 ...</blockquote>
+我觉得最差的就是vv 因为我买了无印
+
+如果他出个dlc。再出个完整版，可能声量就会出现在高
+

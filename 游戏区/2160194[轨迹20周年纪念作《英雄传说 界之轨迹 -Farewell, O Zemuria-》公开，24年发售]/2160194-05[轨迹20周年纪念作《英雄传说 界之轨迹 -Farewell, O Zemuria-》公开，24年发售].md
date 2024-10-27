@@ -8747,3 +8747,14 @@ f社你非要这样说话么，上来一见面就xx不见(第一次听到有人�
 
 感觉我这边不退出去重新配回路很难40回合内打完的样子……随便打完后发现条件从40回合变成60回合，总有种输了的感觉，好气<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Renes  
+##### 6734#       发表于 2024-10-27 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66552316&amp;ptid=2160194" target="_blank">妄想中毒 发表于 2024-10-27 12:56</a>
+
+说起来最终章有很多强制动作模式战斗真的很讨厌，噩梦难度下动作模式究极刮痧打起来体验太差了 ...</blockquote>
+我们玩的是一个噩梦难度吗？最终章除了最终战哪还有什么强制动作模式？哪怕前面一章凯文那个地道也是弄完图鉴所有怪都能跳，最终战那么爽的魔装鬼大战直接给你无限回血就是让你看风景和演出的，也没有嗯拖时间啊。更何况地图战斗最难只有hard，你嫌血厚调成easy不就完了。这版本有时停有觉醒，地图上已经算是开无双了
+

@@ -387,3 +387,29 @@ BOSS是阿夸，小麦的智商当不了赤音要不就充当帽皇吧<img src="
 
 真羡慕后辈们可以互相吸吸
 
+
+*****
+
+####  朝日奈みらい.  
+##### 2566#       发表于 2024-10-27 22:38
+
+现在设计黑化形态还来得及吗
+
+*****
+
+####  jaewoongh_  
+##### 2567#       发表于 2024-10-27 22:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">小麦莫名其妙多了个对狼感兴趣的设定……
+
+
+*****
+
+####  pokemon最爱  
+##### 2568#       发表于 2024-10-27 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66555727&amp;ptid=2162354" target="_blank">朝日奈みらい. 发表于 2024-10-27 22:38</a>
+
+现在设计黑化形态还来得及吗</blockquote>
+我觉得你守寡期间很适合出一个黑化形态，真的，可惜估计法Q2不会做<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

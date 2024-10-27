@@ -283,3 +283,13 @@ INTI CREATES老早就开始这种商法了，店特全是擦边色图<img src="h
 可以地上插卡啊</blockquote>
 插卡就没了呀？但是不是回合数就打多了？
 
+
+*****
+
+####  siriii  
+##### 92#       发表于 2024-10-27 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66550544&amp;ptid=2200160" target="_blank">EndlessDied 发表于 2024-10-27 01:26</a>
+其实只需要打1/5的血就可以跳剧情把歌姬的封锁解放（然后一次性连续跳出来二三十个歌姬的动画我明明开了 ...</blockquote>
+草，原来不用打完，那我放心了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

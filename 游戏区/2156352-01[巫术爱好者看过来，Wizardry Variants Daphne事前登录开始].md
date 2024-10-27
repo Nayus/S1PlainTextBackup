@@ -1875,3 +1875,17 @@ https://gamerch.com/wizardry-daphne/
 
 —— 来自 samsung SM-S918U1, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  战术核辣条  
+##### 225#       发表于 2024-10-27 12:48
+
+ 本帖最后由 战术核辣条 于 2024-10-27 12:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66551388&amp;ptid=2156352" target="_blank">startea15 发表于 2024-10-27 10:02</a>
+有没**写一下骑士团全生存路线怎么做？
+游击部队要活下来的话⑤B4Fの生餌の罠で生餌の騎士が死亡後にカース ...</blockquote>
+这里要支走女精灵看一次游击部队死，然后b2和骑士团长聊过防御部队，再倒回来b1就有选项救游击部队了
+
+—— 来自 nubia NX729J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

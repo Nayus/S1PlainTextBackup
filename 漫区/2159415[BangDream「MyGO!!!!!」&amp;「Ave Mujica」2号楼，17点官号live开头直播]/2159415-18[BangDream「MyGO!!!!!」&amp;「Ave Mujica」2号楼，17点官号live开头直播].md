@@ -6595,3 +6595,17 @@ dolo來偷心了<img src="https://static.saraba1st.com/image/smiley/face2017/074
 
 谁有那个访谈讲祥子读羽丘是有奖学金和免费餐的原文链接
 
+
+*****
+
+####  玖羽  
+##### 25720#       发表于 2024-10-27 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66553483&amp;ptid=2159415" target="_blank">太二EricGuo 发表于 2024-10-27 17:00</a>
+
+谁有那个访谈讲祥子读羽丘是有奖学金和免费餐的原文链接</blockquote>
+原文打不开了，有缓存
+ <blockquote>https://web.archive.org/web/20240120054819/https://www.anime-recorder.com/tvanime/283670/
+
+祥子に限っては、お嬢様高校から転落して、特待生制度のある羽丘女子学園に行くのは決まっていましたけど、それ以外のキャラクターはかなりランダム性が強く、むしろそれからのキャラクター同士の化学反応を期待して振り分けていった感じでした。</blockquote>
+

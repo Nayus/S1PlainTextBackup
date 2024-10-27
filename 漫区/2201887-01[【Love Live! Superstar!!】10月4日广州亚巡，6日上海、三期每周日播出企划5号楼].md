@@ -3921,3 +3921,71 @@ btw，八个人去上海，不住酒店至少要一间六室的住宅暂住，�
 
 <img src="https://p.sda1.dev/19/f78c0d1ff118bb05c184395f5bfd8c62/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 379#       发表于 2024-10-27 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66553367&amp;ptid=2201887" target="_blank">we89623 发表于 2024-10-27 16:42</a>
+你们为什么判定一定是可姐，不能是可妈？ 可姐还打找会双语的，可妈就不用了。 ...</blockquote>
+因为有现成的音响协力<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">。
+
+*****
+
+####  星降る森  
+##### 380#       发表于 2024-10-27 17:04
+
+<blockquote>ads147147 发表于 2024-10-27 16:30
+应该是可可姐来吧，去上海没啥条件。大概率鲤鱼自己配的。
+
+</blockquote>
+堇都有外滩背景了还扯什么可可姐来啊……香音明显也是在船上
+
+*****
+
+####  ads147147  
+##### 381#       发表于 2024-10-27 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66553521&amp;ptid=2201887" target="_blank">星降る森 发表于 2024-10-27 17:04</a>
+堇都有外滩背景了还扯什么可可姐来啊……香音明显也是在船上</blockquote>
+后面才看到预告截图，一晃而过不好记。
+
+不过个人对上海的记忆只有煎包是甜的味道还行，然后买杂志汇率比是十比一还高。。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  仟音一心  
+##### 379#       发表于 2024-10-27 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66553367&amp;ptid=2201887" target="_blank">we89623 发表于 2024-10-27 16:42</a>
+你们为什么判定一定是可姐，不能是可妈？ 可姐还打找会双语的，可妈就不用了。 ...</blockquote>
+因为有现成的音响协力<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">。
+
+*****
+
+####  星降る森  
+##### 380#       发表于 2024-10-27 17:04
+
+<blockquote>ads147147 发表于 2024-10-27 16:30
+应该是可可姐来吧，去上海没啥条件。大概率鲤鱼自己配的。
+
+</blockquote>
+堇都有外滩背景了还扯什么可可姐来啊……香音明显也是在船上
+
+*****
+
+####  ads147147  
+##### 381#       发表于 2024-10-27 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66553521&amp;ptid=2201887" target="_blank">星降る森 发表于 2024-10-27 17:04</a>
+堇都有外滩背景了还扯什么可可姐来啊……香音明显也是在船上</blockquote>
+后面才看到预告截图，一晃而过不好记。
+
+不过个人对上海的记忆只有煎包是甜的味道还行，然后买杂志汇率比是十比一还高。。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

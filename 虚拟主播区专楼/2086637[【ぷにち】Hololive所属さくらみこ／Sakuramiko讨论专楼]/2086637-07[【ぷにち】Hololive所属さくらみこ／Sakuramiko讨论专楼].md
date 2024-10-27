@@ -14419,3 +14419,18 @@ sololive用衣装有3种形态
 
 果然，我甚至还没去特地翻他的推特就自己找上门了
 
+
+*****
+
+####  holoan  
+##### 10073#         楼主| 发表于 2024-10-27 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66548447&amp;ptid=2086637" target="_blank">holoan 发表于 2024-10-26 19:55</a>
+
+当时就说了，sakuradays不就是黄油主题曲
+
+结果真的是了，太强了只能说，还有这个企划原来早就在准备了难怪 ...</blockquote>
+刚才直播里提了一下，SD人物其中4个可以看得出来是火建的4人
+
+剩下一个黄毛一个黑毛按miko的说法是原创角色？暂时不清楚
+

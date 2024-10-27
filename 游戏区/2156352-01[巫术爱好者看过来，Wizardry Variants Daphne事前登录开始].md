@@ -1983,3 +1983,11 @@ https://gamerch.com/wizardry-daphne/
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  战术核辣条  
+##### 232#       发表于 2024-10-27 23:55
+
+成长居然真是roll成长率....这游戏开发立项的时候真的有那么一点打算做手游吗....
+

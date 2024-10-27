@@ -1841,3 +1841,25 @@ https://gamerch.com/wizardry-daphne/
 
 下级矿石也太缺了，今天要挖一天矿了，进了水都这装备更新太频繁了
 
+
+*****
+
+####  战术核辣条  
+##### 222#       发表于 2024-10-27 09:24
+
+港镇这个地方怎么真的要打三遍<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，没活吗
+
+—— 来自 nubia NX729J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  DRAGONBLEAPIECE  
+##### 223#       发表于 2024-10-27 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66550079&amp;ptid=2156352" target="_blank">绝对小白 发表于 2024-10-26 23:21</a>
+请问一下需要刷初始吗，需要的话瞄准哪几个刷？
+
+另外英文的信息也很少，有哪些日站讨论/信息多一点的？</blockquote>
+个人推荐等个半年修修bug和改善一下之后
+用石头号入坑比较好
+

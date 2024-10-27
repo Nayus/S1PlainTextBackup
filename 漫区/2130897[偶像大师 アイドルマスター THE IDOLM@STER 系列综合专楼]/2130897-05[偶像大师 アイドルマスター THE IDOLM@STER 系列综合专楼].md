@@ -247,3 +247,16 @@ Resilio: B3JERIBE52YEADZJMDWDLE4EBRSRNTPRX
 
 就几秒啊
 
+
+*****
+
+####  wfhtony  
+##### 6629#       发表于 2024-10-27 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66554621&amp;ptid=2130897" target="_blank">BQlin 发表于 2024-10-27 20:02</a>
+
+就几秒啊</blockquote>
+其實就是預告（這點只寫在**的標題和簡介裏面）而已...
+
+正式PV（SOLO曲MV）將在11/10公開。
+

@@ -14272,3 +14272,25 @@ miko妈什么时候出道，我要看到双妈联动
 由手机上传
 2024-10-27 07:58 上传
 
+
+*****
+
+####  緋色焰華  
+##### 10060#       发表于 2024-10-27 08:21
+
+<blockquote>holoan 发表于 2024-10-26 19:59
+神崎广参与flower rhapsody 原画制作</blockquote>
+X上透露了负责水着那一卡的原画，但实际mv动画里修正后看不出多少神崎广的风格了。
+
+*****
+
+####  holoan  
+##### 10061#         楼主| 发表于 2024-10-27 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66551021&amp;ptid=2086637" target="_blank">緋色焰華 发表于 2024-10-27 08:21</a>
+
+X上透露了负责水着那一卡的原画，但实际mv动画里修正后看不出多少神崎广的风格了。 ...</blockquote>
+连最后的luna脸都被剥夺了，神崎广已经没有自己的风格了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且负责的那幕还是水着，staff很大胆，画不好45P们直接找上门的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

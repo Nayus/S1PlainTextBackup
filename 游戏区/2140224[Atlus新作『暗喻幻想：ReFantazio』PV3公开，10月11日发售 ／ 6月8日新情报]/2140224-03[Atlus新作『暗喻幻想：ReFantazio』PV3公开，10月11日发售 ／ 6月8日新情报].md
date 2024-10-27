@@ -3192,3 +3192,27 @@ https://vkguide.dev/docs/extra-chapter/graphics_analysis_metafor/
 
 如果他出个dlc。再出个完整版，可能声量就会出现在高
 
+
+*****
+
+####  变老的大二  
+##### 3240#       发表于 2024-10-27 10:44
+
+好兄弟算得上本作点子王，基本上全部翻车。
+
+最后痛定思痛整了个吊灯刺杀的狠活，差点一发大结局。
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3241#       发表于 2024-10-27 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66551599&amp;ptid=2140224" target="_blank">变老的大二 发表于 2024-10-27 10:44</a>
+好兄弟算得上本作点子王，基本上全部翻车。
+
+最后痛定思痛整了个吊灯刺杀的狠活，差点一发大结局。 ...</blockquote>
+但该说不说，好兄弟好歹真的一直在动脑子，总比另一个只知道动嘴和胃的有用多了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+

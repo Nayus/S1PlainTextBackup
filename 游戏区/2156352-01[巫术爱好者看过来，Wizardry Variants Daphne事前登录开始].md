@@ -2047,3 +2047,11 @@ https://gamerch.com/wizardry-daphne/
 8F在boss那边仆街一次，死翘翘之后剧情点是铁定会还原回无捷径状态？求指导如何速**oss ...</blockquote>
 速通不了，二周目才是第一个迷宫的正式攻略，很多新剧情，还有敌人强度大幅度提升
 
+
+*****
+
+####  asd235614  
+##### 238#       发表于 2024-10-28 17:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">游戏底子是真的好，就是这运营也太逆天了，昨天那两公告给我整不会了，甚至没有补偿
+

@@ -351,3 +351,19 @@ steam全球热销好像排第四
 
 反正等着看乐子了```
 
+
+*****
+
+####  hisousihou  
+##### 694#       发表于 2024-10-29 06:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这游戏都这样了还有人捧臭脚啊
+
+
+*****
+
+####  zzy516232108  
+##### 695#       发表于 2024-10-29 06:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ea花了多少钱买评
+

@@ -3777,7 +3777,7 @@
     "lastedit": 1730109120,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1478318": {
     "totalreply": 1412,
@@ -8631,10 +8631,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 93068,
+    "totalreply": 93069,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1730155335,
+    "lastedit": 1730157970,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -11434,15 +11434,6 @@
     "title": "[香港市民 ： 北上消費更有性價比]",
     "newtitle": "[香港市民 ： 北上消費更有性價比]",
     "lastedit": 1729125393,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2202975": {
-    "totalreply": 56,
-    "title": "[特斯拉人形机器人Optimus现场做饮料，员工证实有人在远程控制]",
-    "newtitle": "[特斯拉人形机器人Optimus现场做饮料，员工证实有人在远程控制]",
-    "lastedit": 1728948008,
     "category": "外野",
     "active": false,
     "update": false
@@ -16947,10 +16938,10 @@
     "update": false
   },
   "2204729": {
-    "totalreply": 55,
+    "totalreply": 56,
     "title": "[20-30万价位中老人开什么车好]",
     "newtitle": "[20-30万价位中老人开什么车好]",
-    "lastedit": 1730157489,
+    "lastedit": 1730157970,
     "category": "外野",
     "active": true,
     "update": false

@@ -367,3 +367,13 @@ INTI CREATES老早就开始这种商法了，店特全是擦边色图<img src="h
 
 总力战基本是纯爽局，问题就是能量上限只有3太不爽了。能量基本浪费了
 
+
+*****
+
+####  ルティナ  
+##### 101#       发表于 2024-10-29 01:24
+
+崩解点这玩意还要给所有人都上才好使 有点难用<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+这玩意比暗喻幻想好玩多了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+

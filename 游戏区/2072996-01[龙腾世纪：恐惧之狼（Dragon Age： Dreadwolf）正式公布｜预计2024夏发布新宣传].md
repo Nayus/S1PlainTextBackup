@@ -220,3 +220,22 @@ goty稳了？
 
 你软这平台分好高。估计评分人数少也拉不下来多少
 
+
+*****
+
+####  寂长无星夜  
+##### 681#       发表于 2024-10-29 01:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66564492&amp;ptid=2072996" target="_blank">ak123 发表于 2024-10-29 00:45</a>
+怎么那么多重量级独立宣言</blockquote>
+真恶心啊游戏里掺这种东西<img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mimighost  
+##### 682#       发表于 2024-10-29 01:20
+
+还有鼓励你assume trans身份解锁更多对话选项？
+
+比我想象的还要疯
+

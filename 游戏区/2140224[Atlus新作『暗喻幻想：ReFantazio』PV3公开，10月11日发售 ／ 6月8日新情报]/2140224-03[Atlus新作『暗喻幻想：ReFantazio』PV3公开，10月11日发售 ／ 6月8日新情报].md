@@ -3728,3 +3728,44 @@ meta叙事的范围已经扩大到幻想与现实互相隐喻都要是meta叙事
 
 还有游戏角色要把玩家也关到盒子里的
 
+
+*****
+
+####  sonnabanana  
+##### 3287#       发表于 2024-10-28 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66559147&amp;ptid=2140224" target="_blank">祆天发育不良 发表于 2024-10-28 11:55</a>
+你要这么说所有游戏都是meta游戏
+
+还有游戏角色要把玩家也关到盒子里的</blockquote>
+我觉得meta一个判点是 主动 打破第四堵墙，开摄像头明显算啊，师承ff7换盘来着，还有EVA电影骂死宅？
+
+后日谈主角不是开始写书了吗，应该算整个游戏就是主角还没写的书这种结构？所有假扮成meta要素的话语可能就是主角小说的跋和序。宣发完全是在玩叙述性诡计<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sonnabanana  
+##### 3288#       发表于 2024-10-28 12:11
+
+ 本帖最后由 sonnabanana 于 2024-10-28 12:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66559147&amp;ptid=2140224" target="_blank">祆天发育不良 发表于 2024-10-28 11:55</a>
+你要这么说所有游戏都是meta游戏
+
+还有游戏角色要把玩家也关到盒子里的</blockquote>
+meta要素又不稀奇。写的好，玩梗，专门做是三个层面的事情了吧。
+
+想起了勇者闯魔城的佛祖，演员出轨好像剧里还处刑过一次。
+
+*****
+
+####  祆天发育不良  
+##### 3289#       发表于 2024-10-28 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66559228&amp;ptid=2140224" target="_blank">sonnabanana 发表于 2024-10-28 12:05</a>
+我觉得meta一个判点是 主动 打破第四堵墙，开摄像头明显算啊，师承ff7换盘来着，还有EVA电影骂死宅？</blockquote>
+我没说这游戏不算meta，但玩家的皮套明显是主角而不是最终BOSS
+书你是说d手记的话也不是主角写的，是别的平行世界的
+1代结尾就是主角把玩家灵魂还回去后死在弟弟墓前了
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我们聊的是一个游戏吗
+

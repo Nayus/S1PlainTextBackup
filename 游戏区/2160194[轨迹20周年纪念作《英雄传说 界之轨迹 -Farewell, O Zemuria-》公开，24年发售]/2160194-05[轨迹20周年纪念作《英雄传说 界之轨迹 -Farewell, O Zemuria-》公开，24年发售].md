@@ -8944,3 +8944,11 @@ nayuta
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大结局怎么也得可控100人，一百人份的装备回路晶片，开孔想想就腿软了
 
+
+*****
+
+####  妄想中毒  
+##### 6750#       发表于 2024-10-28 18:25
+
+我想不到城管和艾约能找什么理由来共和国，就目前角色上吧别来更多人了。回廊也别搞了连续三部刷回廊真的会吐的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

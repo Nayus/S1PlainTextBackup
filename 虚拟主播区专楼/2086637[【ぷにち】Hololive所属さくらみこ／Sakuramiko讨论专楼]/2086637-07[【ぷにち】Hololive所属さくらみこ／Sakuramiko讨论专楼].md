@@ -14678,3 +14678,29 @@ SUNAO和DAIDAIDAI的词曲作者
 
 miko你在干什么？
 
+
+*****
+
+####  緋色焰華  
+##### 10084#       发表于 2024-10-28 22:01
+
+<blockquote>holoan 发表于 2024-10-28 21:07
+最后附加题，星街在sololive谢幕以后给miko单独送的花（好像是自己特地准备的）
+
+花语
+
+ ...</blockquote>
+这business搭档也太会了…… 跟说私下相性不好我都不信……
+
+*****
+
+####  holoan  
+##### 10085#         楼主| 发表于 2024-10-28 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66563638&amp;ptid=2086637" target="_blank">緋色焰華 发表于 2024-10-28 22:01</a>
+
+这business搭档也太会了…… 跟说私下相性不好我都不信……</blockquote>
+直播里miko说的是星街说“fbk都送花了我不能输给她”
+
+反正这话你就听听，fbk的花是前一天才送到现场作为惊喜而星街怎么可能提早知道而且花束怎么可能一天之内准备好
+

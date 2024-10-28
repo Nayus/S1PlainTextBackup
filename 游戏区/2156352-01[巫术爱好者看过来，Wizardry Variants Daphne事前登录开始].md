@@ -2036,3 +2036,14 @@ https://gamerch.com/wizardry-daphne/
 
 第二张图感觉就是正常DRPG普通图的水平吧，不过第一次解锁右手能力那里的提示我是想骂娘的，害我全灭一次
 
+
+*****
+
+####  elven119  
+##### 237#         楼主| 发表于 2024-10-28 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66559966&amp;ptid=2156352" target="_blank">电脑死机 发表于 2024-10-28 14:00</a>
+
+8F在boss那边仆街一次，死翘翘之后剧情点是铁定会还原回无捷径状态？求指导如何速**oss ...</blockquote>
+速通不了，二周目才是第一个迷宫的正式攻略，很多新剧情，还有敌人强度大幅度提升
+

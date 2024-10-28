@@ -8901,3 +8901,38 @@ nayuta
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有了混合属性的魔法之后单属性魔法显得好鸡肋
 
+
+*****
+
+####  卢迪克  
+##### 6747#       发表于 2024-10-28 16:54
+
+ 本帖最后由 卢迪克 于 2024-10-28 16:57 编辑 
+
+界轨里的地图已经把南海岛点亮了，至此全地图就剩下东部是黑的了。
+
+<img src="https://img.saraba1st.com/forum/202410/28/165439sohc8ph6loj87c68.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20241028_165325.jpg</strong> (52.55 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-10-28 16:54 上传
+
+<img src="https://img.saraba1st.com/forum/202410/28/165442lzn7o66ynai8yynz.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20241028_165338.jpg</strong> (37.72 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-10-28 16:54 上传
+
+*****
+
+####  lmclmc2  
+##### 6748#       发表于 2024-10-28 16:56
+
+下一代要人全来的话能不能再出一回波波的BUG，不然估计真搞不动
+

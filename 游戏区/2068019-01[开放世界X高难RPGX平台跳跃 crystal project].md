@@ -1098,3 +1098,11 @@ mercury到过了是吧
 那请看这个跳点 我扫图的时候才发现的……</blockquote>
 这里我从神殿返走才发现有路被视角挡住了，离谱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  black1991518  
+##### 86#       发表于 2024-10-28 09:36
+
+这游戏大后期的boss不针对配对基本就不给过，导致我半搁置了，在解锁所有移动方式前是各种寻路是最快乐的时光
+

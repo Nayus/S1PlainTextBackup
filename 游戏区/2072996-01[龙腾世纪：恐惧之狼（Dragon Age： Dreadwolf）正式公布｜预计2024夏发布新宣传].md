@@ -190,3 +190,33 @@ goty稳了？
 
 没人开评分楼吗<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  恋妖壶  
+##### 679#       发表于 2024-10-29 01:08
+
+前情提要，eurogamer是mc评分中权重差不多仅此于ign、gs权重的媒体。
+
+不废话直接上评分
+
+2024：龙腾4 100分，暗喻幻想 100分，小机器人 100分，铁拳8 100分，龙信2 100分。
+
+2023：博德3 80分，王泪 80分，蜘蛛侠2 80分，街霸6 80分，阿兰醒醒2 60分。
+
+
+*****
+
+####  ultraseven  
+##### 680#       发表于 2024-10-29 01:15
+
+<img src="https://img.saraba1st.com/forum/202410/29/011430rs1uiia3rzsop2o3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>MC.jpeg</strong> (54.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-29 01:14 上传
+
+你软这平台分好高。估计评分人数少也拉不下来多少
+

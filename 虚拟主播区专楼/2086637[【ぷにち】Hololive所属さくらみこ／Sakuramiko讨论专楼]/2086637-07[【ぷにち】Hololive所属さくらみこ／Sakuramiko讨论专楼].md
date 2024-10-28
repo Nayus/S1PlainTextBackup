@@ -14522,3 +14522,34 @@ sololive用衣装有3种形态
 
 告知？？？
 
+
+*****
+
+####  holoan  
+##### 10078#         楼主| 发表于 2024-10-28 19:20
+
+<img src="https://img.saraba1st.com/forum/202410/28/192048m9btjajzjf1om116.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (259.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-28 19:20 上传
+
+*****
+
+####  holoan  
+##### 10079#         楼主| 发表于 2024-10-28 19:23
+
+昨晚直播里也提到的，HH送了花
+
+其实就在miko送给35P的花和fbk的花旁边，不知道为什么当天没有人发推
+
+<img src="https://img.saraba1st.com/forum/202410/28/192245vh1nhbghgb7ndhl1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (503.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-28 19:22 上传
+

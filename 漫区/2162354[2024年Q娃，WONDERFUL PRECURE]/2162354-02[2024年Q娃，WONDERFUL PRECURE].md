@@ -447,3 +447,21 @@ BOSS是阿夸，小麦的智商当不了赤音要不就充当帽皇吧<img src="
 
 人变宠物，是把魔女莉娜请来了吗
 
+
+*****
+
+####  Yeaha123  
+##### 2572#       发表于 2024-10-27 23:57
+
+人变宠物，是把魔女莉娜请来了吗
+
+*****
+
+####  lydia5989  
+##### 2573#       发表于 2024-10-28 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66555661&amp;ptid=2162354" target="_blank">CureJoker 发表于 2024-10-27 22:30</a>
+
+真羡慕后辈们可以互相吸吸</blockquote>
+别的不知道，很多后辈估计更羡慕前辈可以二合一，比如未来啊，比如猫猫啊，比如您队友那只燕子可能也想跟六花二合一
+

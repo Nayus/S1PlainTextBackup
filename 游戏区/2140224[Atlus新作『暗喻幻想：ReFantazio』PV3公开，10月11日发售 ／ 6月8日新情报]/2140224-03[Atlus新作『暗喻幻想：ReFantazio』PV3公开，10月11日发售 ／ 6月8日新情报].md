@@ -3406,3 +3406,13 @@ https://vkguide.dev/docs/extra-chapter/graphics_analysis_metafor/
 
 唯一比较大的区别和改良大概就是把P换成アーキタイプ....同伴也能自由换P和技能了
 
+
+*****
+
+####  sonnabanana  
+##### 3260#       发表于 2024-10-28 08:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66556908&amp;ptid=2140224" target="_blank">森兰丸 发表于 2024-10-28 02:20</a>
+这2天终于能够抽出点时间来玩了....结果刚玩就直接喷了...这东西不就是个P5换皮吗...整个游戏的进行流程都 ...</blockquote>
+你好，p1p2队友也能换p的<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+

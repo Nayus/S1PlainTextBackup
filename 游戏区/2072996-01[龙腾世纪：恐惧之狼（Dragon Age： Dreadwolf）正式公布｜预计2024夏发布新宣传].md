@@ -262,3 +262,35 @@ goty稳了？
 
 这种东西在steam论坛里看到的一个回复把我笑惨了，I identify as non-buynary。
 
+
+*****
+
+####  tuiskusuomaa  
+##### 685#       发表于 2024-10-29 01:49
+
+表达政治观点的欲望有点过于强烈<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ak123  
+##### 686#       发表于 2024-10-29 01:51
+
+<img src="https://img.saraba1st.com/forum/202410/29/015044thvu4h3iuv5mr4gl.png" referrerpolicy="no-referrer">
+
+<strong>独立宣言.png</strong> (48.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-29 01:50 上传
+
+不做点吊图真对不起你游这么好的节目效果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zzf111  
+##### 687#       发表于 2024-10-29 01:54
+
+<img src="https://p.sda1.dev/19/c852b93a229e453c194ec4e9cccf6f22/1730129888997402.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/b76f1d2e3b1074d1f86c8dcb00efce9e/1730130131845191.png" referrerpolicy="no-referrer">
+

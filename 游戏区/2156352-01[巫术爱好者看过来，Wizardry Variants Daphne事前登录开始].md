@@ -2004,3 +2004,11 @@ https://gamerch.com/wizardry-daphne/
 
 —— 来自 nubia NX729J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  电脑死机  
+##### 234#       发表于 2024-10-28 14:00
+
+8F在boss那边仆街一次，死翘翘之后剧情点是铁定会还原回无捷径状态？求指导如何速**oss
+

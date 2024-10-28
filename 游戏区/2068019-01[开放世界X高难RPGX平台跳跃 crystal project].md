@@ -1117,3 +1117,11 @@ mercury到过了是吧
 这游戏大后期的boss不针对配对基本就不给过，导致我半搁置了，在解锁所有移动方式前是各种寻路是最快乐的时 ...</blockquote>
 我目前为止打BOSS几乎都靠DOT过的，剩下好用的输出也就收割者装吸血剑烧血和法师最高级的魔法了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kerbad  
+##### 88#       发表于 2024-10-28 14:04
+
+跑回萨蒙河才发现可以从波塞冬神殿跑沙漠，但是我当时跳跑去拿吸血剑了没发现<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+

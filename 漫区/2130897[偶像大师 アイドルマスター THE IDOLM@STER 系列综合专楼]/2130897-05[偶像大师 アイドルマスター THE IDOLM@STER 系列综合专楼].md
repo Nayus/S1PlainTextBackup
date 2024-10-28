@@ -304,3 +304,21 @@ Resilio: B3JERIBE52YEADZJMDWDLE4EBRSRNTPRX
 
 2024-10-27 20:48 上传
 
+
+*****
+
+####  Alleyht  
+##### 6631#       发表于 2024-10-28 19:42
+
+甜瓜！我的超人！
+
+还差40发才能天井最后一只暮光铃木，矿山彻底挖空余量为0
+
+绝望之际我本以为只能在退坑和给小高充钱之间二选一了
+
+没想到商店里换的3张SR票竟然抽到了两只甜瓜NEW<[img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">真的假的
+
+所以说蓝色甘奈P也是甘奈P，最后时刻还得是我们甜瓜的姐妹情啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+谢谢你！甜瓜！我会每天点击蓝色甘奈胸部来报答你！
+

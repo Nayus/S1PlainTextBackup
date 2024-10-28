@@ -517,3 +517,25 @@ BOSS是阿夸，小麦的智商当不了赤音要不就充当帽皇吧<img src="
 
 2024-10-28 11:47 上传
 
+
+*****
+
+####  pokemon最爱  
+##### 2578#       发表于 2024-10-28 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66559080&amp;ptid=2162354" target="_blank">朝日奈みらい. 发表于 2024-10-28 11:47</a>
+
+现在去当剑道馆看板娘也是一种选择
+
+不过也许还有一种抓了合体的更好选择</blockquote>
+别说，真想合体用暗魔法就完事了，而且我觉得搞不好大人李可真的会暗魔法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟击退无尽混沌后暗魔法没有会解除无尽混沌封印的风险，而暗魔法本身是用人类的魔法再现了无尽混沌的巫法，所以其实暗魔法的整个魔法体系是十分有研究价值的（比如参考其体系再现包括连接世界的大魔法Precure以及使用波纹石力量的Q娃变身等Rapapa母神的魔法）
+
+*****
+
+####  十六夜リコ  
+##### 2579#       发表于 2024-10-28 13:00
+
+这表情一看就知道我是融合素材
+
+莫非未来在做什么危险的人体实验？
+

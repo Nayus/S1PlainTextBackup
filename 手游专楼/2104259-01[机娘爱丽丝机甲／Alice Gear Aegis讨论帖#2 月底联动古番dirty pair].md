@@ -80,3 +80,15 @@ LV4，合计88连出了黑猫，寡妇平时就不用也没凸点就随缘啦<im
 
 非常难得的活动第一天就打活动为了换衣服<img src="https://static.saraba1st.com/image/smiley/face/84.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 1237#       发表于 2024-10-28 22:45
+
+<img src="https://p.sda1.dev/19/6fadfacc4c632383737a1a98d3776715/image.jpg" referrerpolicy="no-referrer">
+
+听说黑猫寡妇这俩的抽取动画都挺涩
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

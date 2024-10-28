@@ -3824,3 +3824,13 @@ meta要素又不稀奇。写的好，玩梗，专门做是三个层面的事情�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
 
+
+*****
+
+####  saverok  
+##### 3294#       发表于 2024-10-28 18:50
+
+还不如白天涉谷晚上异世界 最后结局看选项决定哪个是现实哪个是幻想呢
+
+怕是没这个能力<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

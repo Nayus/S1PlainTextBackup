@@ -8936,3 +8936,11 @@ nayuta
 
 下一代要人全来的话能不能再出一回波波的BUG，不然估计真搞不动
 
+
+*****
+
+####  洛克萨斯  
+##### 6749#       发表于 2024-10-28 17:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大结局怎么也得可控100人，一百人份的装备回路晶片，开孔想想就腿软了
+

@@ -2055,3 +2055,33 @@ https://gamerch.com/wizardry-daphne/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">游戏底子是真的好，就是这运营也太逆天了，昨天那两公告给我整不会了，甚至没有补偿
 
+
+*****
+
+####  我猫呢?  
+##### 239#       发表于 2024-10-28 17:28
+
+有没有坛友分享一下应该只能拿一次，实际上可以多次拿的道具<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">该说这个运营是没有做手游的思维呢，还是想法太逆天呢，回收道具之前是不是应该先把bug都修完
+
+
+*****
+
+####  我猫呢?  
+##### 240#       发表于 2024-10-28 17:30
+
+以下内容需要积分高于 20 才可浏览
+
+初始奈落7F有一个冒险者遗骨可以重复拿，在最右侧需要8F回溯落石才能通过的区域
+顺便测试一下积分限制
+
+
+*****
+
+####  elven119  
+##### 241#         楼主| 发表于 2024-10-28 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66561738&amp;ptid=2156352" target="_blank">我猫呢? 发表于 2024-10-28 17:28</a>
+
+有没有坛友分享一下应该只能拿一次，实际上可以多次拿的道具该说这个运营是没有做手游的思维呢，还是想法太 ...</blockquote>
+这东西明显就是bug，最好不要碰吧
+

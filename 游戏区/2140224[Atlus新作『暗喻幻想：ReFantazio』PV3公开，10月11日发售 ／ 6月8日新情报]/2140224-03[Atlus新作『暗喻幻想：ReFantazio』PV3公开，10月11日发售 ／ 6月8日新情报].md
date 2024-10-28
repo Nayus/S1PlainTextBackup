@@ -3558,3 +3558,61 @@ BGM不是确实喊了风花雪月作曲来帮忙的吗，真要目黑劳模又�
 
 为什么挤个牛奶画面都不变的点一下选项就要切一次屏啊，到底他们是有多喜欢这个切屏动效，我真的生气了
 
+
+*****
+
+####  Dreammask  
+##### 3274#       发表于 2024-10-28 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66558699&amp;ptid=2140224" target="_blank">白昼梦DD 发表于 2024-10-28 11:04</a>
+
+是起名的时候要玩家的名字，还直接神神叨叨说了一堆明示你我们要玩meta，再加上故事书直接蹭现代社会，读 ...</blockquote>
+神神叨叨的那些对应的是metaphor吧，只是幻想的幻想=现实的“暗喻”而已
+
+当然我理解的meta叙事大概就是MGS2和妈3那样，至少也得有角色一本正经的对着屏幕前的玩家说按X键怎样怎样的，不知道这词的语义这几年有没有扩大化
+
+*****
+
+####  mai6696  
+##### 3275#       发表于 2024-10-28 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66558930&amp;ptid=2140224" target="_blank">Dreammask 发表于 2024-10-28 11:29</a>
+
+神神叨叨的那些对应的是metaphor吧，只是幻想的幻想=现实的“暗喻”而已
+
+当然我理解的meta叙事大概就是MG ...</blockquote>
+不知道是不是大家过度期待了，以为起了两个名字后面就能用上。
+
+我没觉得有什么meta要素。不要这个玩家名对游戏叙事有啥影响吗？
+
+
+*****
+
+####  莉可厨  
+##### 3276#       发表于 2024-10-28 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66558950&amp;ptid=2140224" target="_blank">mai6696 发表于 2024-10-28 11:31</a>
+不知道是不是大家过度期待了，以为起了两个名字后面就能用上。
+
+我没觉得有什么meta要素。不要这个玩家名对 ...</blockquote>
+没影响就别煞有介事地让人取啊，浪费感情了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| mai6696| + 1|那倒也是|
+
+查看全部评分
+
+*****
+
+####  卡拉德利姆  
+##### 3277#       发表于 2024-10-28 11:37
+
+这游戏多年前的概念pv就在掰扯现实与幻想的关系了
+

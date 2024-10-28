@@ -8986,3 +8986,13 @@ nayuta
 
 果然还是艾略特存在感太低的关系
 
+
+*****
+
+####  flxgundam  
+##### 6754#       发表于 2024-10-28 23:43
+
+现在回头看辣妹这话伏笔拉满啊
+<img src="https://p.sda1.dev/19/2868e3d016cb465a0da80b62fd3bc043/CMP_20241028234233037.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/4ff33578eb35a60bee9a57b3270f9bca/CMP_20241028234233090.jpg" referrerpolicy="no-referrer">
+

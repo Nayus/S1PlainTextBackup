@@ -3463,3 +3463,35 @@ https://vkguide.dev/docs/extra-chapter/graphics_analysis_metafor/
 什么大师的面具还要占饰品栏，战斗中还不能切换啊？
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 全程都在戴合体-1的饰品，谁几把戴你那破逼面具。
 
+
+*****
+
+####  Dreammask  
+##### 3265#       发表于 2024-10-28 11:03
+
+所以为什么有人会觉得这游戏就该有meta叙事啊，是起名的时候要玩家的名字还是metaphor这个词带meta<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白昼梦DD  
+##### 3266#       发表于 2024-10-28 11:04
+
+ 本帖最后由 白昼梦DD 于 2024-10-28 11:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66558688&amp;ptid=2140224" target="_blank">Dreammask 发表于 2024-10-28 11:03</a>
+
+所以为什么有人会觉得这游戏就该有meta叙事啊，是起名的时候要玩家的名字还是metaphor这个词带meta ...</blockquote>
+是起名的时候要玩家的名字，还直接神神叨叨说了一堆明示你我们要玩meta，再加上故事书直接蹭现代社会，读不出制作组一股想玩meta的劲头的人才有问题吧
+
+*****
+
+####  sonnabanana  
+##### 3267#       发表于 2024-10-28 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66558602&amp;ptid=2140224" target="_blank">忘却旋律 发表于 2024-10-28 10:55</a>
+问题是... 问题是建模也不咋地啊 主要角色阵容也就平均水平
+
+路人建模 环境建模更是感人，一些路边的桶子 ...</blockquote>
+这可是0-1的突破啊，本来就是表讽刺。
+
+BGM不是确实喊了风花雪月作曲来帮忙的吗，真要目黑劳模又给你人声整成hihohiho了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">dsj虽然用了管弦乐队，但是普遍1min不到的长度。
+

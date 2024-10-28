@@ -14633,3 +14633,48 @@ HimeHina
 
 SUNAO和DAIDAIDAI的词曲作者
 
+
+*****
+
+####  holoan  
+##### 10082#         楼主| 发表于 2024-10-28 21:07
+
+最后附加题，星街在sololive谢幕以后给miko单独送的花（好像是自己特地准备的）
+
+<img src="https://img.saraba1st.com/forum/202410/28/210733mexdwyx5etg8dl7t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (215.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-28 21:07 上传
+
+花语<blockquote>白いカーネーションの花言葉は、「純粋な愛」「私の愛は生きています」「尊敬」「かわいくて愛らしい」
+
+白いかすみ草は、「感謝」「幸福」「無邪気」「親切」
+
+アルストロメリアの花言葉は「持続」「未来への憧れ」「エキゾチック」「小悪魔的な思い」です
+
+ガーベラ全体の花言葉は「希望」「前向き」「常に前進」
+
+ピンクバラの花言葉：「感謝・しとやか・上品・感銘」</blockquote>
+
+*****
+
+####  holoan  
+##### 10083#         楼主| 发表于 2024-10-28 21:38
+
+<img src="https://img.saraba1st.com/forum/202410/28/213740xrkw456ytw8xjtn5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (209.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-28 21:37 上传
+
+听听知名35P的现地repo
+
+而且竟然是普通席而不是关系者席，包括另外几个声优名人都是自己抢票去现场的
+
+miko你在干什么？
+

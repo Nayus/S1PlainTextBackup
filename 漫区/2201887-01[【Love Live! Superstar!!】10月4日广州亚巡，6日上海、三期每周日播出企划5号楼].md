@@ -4286,3 +4286,13 @@ btw，八个人去上海，不住酒店至少要一间六室的住宅暂住，�
 
 op3这歌，鲤佩熊三人因为后半段没独唱导播干脆连单独镜头都不给是吧<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViyViy  
+##### 412#       发表于 2024-10-28 21:34
+
+ 本帖最后由 ViyViy 于 2024-10-28 21:35 编辑 
+
+OP3这首感觉是上层地震前做的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">应该是分配的最离谱的一次
+

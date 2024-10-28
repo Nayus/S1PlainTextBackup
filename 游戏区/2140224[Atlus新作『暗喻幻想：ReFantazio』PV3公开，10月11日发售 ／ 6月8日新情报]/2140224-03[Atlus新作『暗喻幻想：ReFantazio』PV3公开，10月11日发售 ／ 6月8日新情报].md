@@ -3789,3 +3789,17 @@ meta要素又不稀奇。写的好，玩梗，专门做是三个层面的事情�
 
 所以标题想表达的应该是阿特拉斯描绘了一个关于世界因为人心而毁灭之后，未来的人们重新追求理想世界的童话故事，而你也是故事的参与者
 
+
+*****
+
+####  杜文乐超神归来  
+##### 3291#       发表于 2024-10-28 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66558790&amp;ptid=2140224" target="_blank">anyasora 发表于 2024-10-28 11:14</a>
+一直在想既然都是民选，为啥不直接把兄弟推上去做国王候选人
+
+有抱负，有点子，会说话，还和王族是一个种族 ...</blockquote>
+印象中番长对主角说过自称王子可能就要一直当王子。番长就怕这种情况，到时候没法以家族身份示人，对他来说难受坏了。而拥立其他人称王，一个从龙之功直接就振兴家族
+
+—— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

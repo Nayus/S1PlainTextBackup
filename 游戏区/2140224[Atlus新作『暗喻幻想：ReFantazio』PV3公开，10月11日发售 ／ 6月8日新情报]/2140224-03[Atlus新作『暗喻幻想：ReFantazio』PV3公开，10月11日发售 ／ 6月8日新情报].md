@@ -3670,3 +3670,61 @@ BGM不是确实喊了风花雪月作曲来帮忙的吗，真要目黑劳模又�
 几个宣传直播都给你点一下故事书，制作人采访给你cuo一下现 ...</blockquote>
 老国王去有上古黑科技的地方看了个vr电影回来写了本小说结果能发动王之魔法，这么就不meta了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  祆天发育不良  
+##### 3282#       发表于 2024-10-28 11:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66559004&amp;ptid=2140224" target="_blank">sonnabanana 发表于 2024-10-28 11:38</a>
+
+我记得勇气默示录里最终boss就是玩家化身，还很贴心的黑屏给你看自己脸来着？
+
+主角遭那么多罪就怪有玩家 ...</blockquote>
+记反了，最终boss是要入侵神界（现实世界），看脸是告诉你boss快要打过来了
+
+主角笛子才是玩家化身，从玩家那里借来的灵魂，最后把玩家放回去后死了，虽然2代给塞了个别的灵魂复活了
+
+*****
+
+####  Jimlee080  
+##### 3283#       发表于 2024-10-28 11:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">通关了，复盘了一下感觉这游戏最大的问题就是没有一个突出的长板，但是其他的水桶板也没有短到连半桶水都装不下的程度。综合游戏的开发时间和人员配置，总结四个字，德不配位
+
+
+*****
+
+####  Dreammask  
+##### 3284#       发表于 2024-10-28 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66559011&amp;ptid=2140224" target="_blank">plok201 发表于 2024-10-28 11:39</a>
+
+因为从项目宣传开始就一副要搞meta的样子啊
+
+几个宣传直播都给你点一下故事书，制作人采访给你cuo一下现 ...</blockquote>
+meta叙事的范围已经扩大到幻想与现实互相隐喻都要是meta叙事了吗<img src="https://static.saraba1st.com/image/smiley/face/145.gif" referrerpolicy="no-referrer">我觉得这只是桥野做了这么多年基于现实的异世界到头来还是逃不开现实世界的调性而已
+
+*****
+
+####  sonnabanana  
+##### 3285#       发表于 2024-10-28 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66559074&amp;ptid=2140224" target="_blank">祆天发育不良 发表于 2024-10-28 11:46</a>
+记反了，最终boss是要入侵神界（现实世界），看脸是告诉你boss快要打过来了
+
+主角笛子才是玩家化身，从玩 ...</blockquote>
+没说错啊，因为有玩家买游戏的需求导致游戏世界被设计出来，然后游戏角色跳出盒子杀爆**甲方也是一层meta
+
+*****
+
+####  祆天发育不良  
+##### 3286#       发表于 2024-10-28 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66559112&amp;ptid=2140224" target="_blank">sonnabanana 发表于 2024-10-28 11:52</a>
+
+没说错啊，因为有玩家买游戏的需求导致游戏世界被设计出来，然后游戏角色跳出盒子杀爆**甲方也是一层meta ...</blockquote>
+你要这么说所有游戏都是meta游戏
+
+还有游戏角色要把玩家也关到盒子里的
+

@@ -86,3 +86,21 @@ goty稳了？
 
 看了下 媒体主要夸剧本写作和世界构建<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Asukalangley33  
+##### 671#       发表于 2024-10-28 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66564154&amp;ptid=2072996" target="_blank">ff2077 发表于 2024-10-28 23:25</a>
+
+看了下 媒体主要夸剧本写作和世界构建</blockquote>
+现在欧美游戏圈的剧本，用一个词就能全部概括——SAFE<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  耶耶抛的岔  
+##### 672#       发表于 2024-10-28 23:29
+
+抛开zzzq也没那本事做好多人arpg
+

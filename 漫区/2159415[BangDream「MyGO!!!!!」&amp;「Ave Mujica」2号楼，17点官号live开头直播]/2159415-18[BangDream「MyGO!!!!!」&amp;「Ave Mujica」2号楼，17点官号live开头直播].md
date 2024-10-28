@@ -6672,3 +6672,30 @@ dolo來偷心了<img src="https://static.saraba1st.com/image/smiley/face2017/074
 
 拜托，谁能拒绝一根又长又直的棍子呢，这超——酷的好吧<img src="https://static.saraba1st.com/image/smiley/face2017/266.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 25725#       发表于 2024-10-28 20:20
+
+<img src="https://img.saraba1st.com/forum/202410/28/202038fr775h1zguu71t1h.png" referrerpolicy="no-referrer">
+
+<strong>90dbe7e7-2cf0-412a-bc4f-f19c8692cd20.png</strong> (78.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-28 20:20 上传
+
+*****
+
+####  六道明  
+##### 25726#       发表于 2024-10-28 20:23
+
+<img src="https://img.saraba1st.com/forum/202410/28/202336u30zt35uoll7ozx0.png" referrerpolicy="no-referrer">
+
+<strong>tb_image_share_1730118199357.jpg.png</strong> (38.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-28 20:23 上传
+

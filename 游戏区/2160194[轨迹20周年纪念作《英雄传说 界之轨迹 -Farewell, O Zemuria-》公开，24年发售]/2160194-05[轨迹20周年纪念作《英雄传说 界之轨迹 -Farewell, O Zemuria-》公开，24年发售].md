@@ -8972,3 +8972,17 @@ nayuta
 黎恩线黑色庭院的棋子居然是黑兔，可爱</blockquote>
 艾略特，拉小提琴做蛋包饭那个
 
+
+*****
+
+####  秘银mithril  
+##### 6753#       发表于 2024-10-28 23:02
+
+ 本帖最后由 秘银mithril 于 2024-10-28 23:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66563965&amp;ptid=2160194" target="_blank">ouyang菌 发表于 2024-10-28 22:52</a>
+
+艾略特，拉小提琴做蛋包饭那个</blockquote>
+完全不记得创轨有没有这回事了，明明我还挺喜欢敏特的<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+果然还是艾略特存在感太低的关系
+

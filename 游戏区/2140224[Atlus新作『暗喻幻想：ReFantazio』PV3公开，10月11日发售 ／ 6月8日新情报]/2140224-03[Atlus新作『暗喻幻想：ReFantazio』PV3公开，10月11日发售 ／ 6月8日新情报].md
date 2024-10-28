@@ -3495,3 +3495,58 @@ https://vkguide.dev/docs/extra-chapter/graphics_analysis_metafor/
 
 BGM不是确实喊了风花雪月作曲来帮忙的吗，真要目黑劳模又给你人声整成hihohiho了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">dsj虽然用了管弦乐队，但是普遍1min不到的长度。
 
+
+*****
+
+####  sonnabanana  
+##### 3268#       发表于 2024-10-28 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66558688&amp;ptid=2140224" target="_blank">Dreammask 发表于 2024-10-28 11:03</a>
+所以为什么有人会觉得这游戏就该有meta叙事啊，是起名的时候要玩家的名字还是metaphor这个词带meta ...</blockquote>
+现在看来是单纯的troll一下，全篇没看出有啥隐喻和重新幻想的。难不成他是在diss 最终幻想既不最终也不幻想吗<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  超极巨鲨鲨  
+##### 3269#       发表于 2024-10-28 11:10
+
+后期剧情真是开火箭了，魔法学院啥都没有，古仙乡居然只是个一次性地图，怎么看都像是被砍掉的
+
+开头让人输名字还以为要搞类似本所7大不可思议那种meta，结果就这啊<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  anyasora  
+##### 3270#       发表于 2024-10-28 11:14
+
+一直在想既然都是民选，为啥不直接把兄弟推上去做国王候选人
+
+有抱负，有点子，会说话，还和王族是一个种族，要作为王子来宣传也比主角方便  主角被烧了村子他也被烧了村子，政治经历和口号都是现成的
+
+和反派几场嘴仗感觉主角几个选项都很假大空，兄弟一开口就很有信服力，直到登基那会都觉得旁边那哥们比主角更像国王
+
+*****
+
+####  sonnabanana  
+##### 3271#       发表于 2024-10-28 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66558760&amp;ptid=2140224" target="_blank">超极巨鲨鲨 发表于 2024-10-28 11:10</a>
+后期剧情真是开火箭了，魔法学院啥都没有，古仙乡居然只是个一次性地图，怎么看都像是被砍掉的
+
+开头让人输 ...</blockquote>
+加强版如果给一个古仙乡的人类人均可以请先祖附身当persona，将是绝杀。这样主角真能逃回现代or魂穿异世界就非常meta了
+
+*****
+
+####  sonnabanana  
+##### 3272#       发表于 2024-10-28 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66558790&amp;ptid=2140224" target="_blank">anyasora 发表于 2024-10-28 11:14</a>
+一直在想既然都是民选，为啥不直接把兄弟推上去做国王候选人
+
+有抱负，有点子，会说话，还和王族是一个种族 ...</blockquote>
+这可是日本游戏，还有血统和大义<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+全程通马桶遛狗抖玛利亚的也是主角不是番长啊，假决战前不是路易开挂主角也选上了啊。
+

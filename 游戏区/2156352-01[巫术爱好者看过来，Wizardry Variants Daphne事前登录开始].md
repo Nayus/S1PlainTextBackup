@@ -2107,3 +2107,11 @@ https://gamerch.com/wizardry-daphne/
 还刷？官方都说要回收多刷的骨头了</blockquote>
 只是分享一下，我也是偶然多拿了一个，要不是官方发了公告，我还以为是游戏设定
 
+
+*****
+
+####  索非亚  
+##### 244#       发表于 2024-10-28 21:07
+
+终于，BUG把我卡到死档了。6F收集白金的任务战，不管是战胜还是逃跑都是100003报错重启<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

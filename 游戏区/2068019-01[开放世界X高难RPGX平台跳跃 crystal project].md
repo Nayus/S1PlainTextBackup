@@ -1086,3 +1086,15 @@ mercury到过了是吧
 
 2024-10-28 08:39 上传
 
+
+*****
+
+####  kerbad  
+##### 85#       发表于 2024-10-28 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66557420&amp;ptid=2068019" target="_blank">库德里尔 发表于 2024-10-28 08:39</a>
+mercury到过了是吧
+
+那请看这个跳点 我扫图的时候才发现的……</blockquote>
+这里我从神殿返走才发现有路被视角挡住了，离谱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

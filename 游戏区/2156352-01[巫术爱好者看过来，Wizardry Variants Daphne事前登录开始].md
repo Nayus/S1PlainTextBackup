@@ -2012,3 +2012,14 @@ https://gamerch.com/wizardry-daphne/
 
 8F在boss那边仆街一次，死翘翘之后剧情点是铁定会还原回无捷径状态？求指导如何速**oss
 
+
+*****
+
+####  神手之兔  
+##### 235#       发表于 2024-10-28 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66559531&amp;ptid=2156352" target="_blank">战术核辣条 发表于 2024-10-28 12:54</a>
+
+港镇差不多一轮要打完了，这个大图整体要给差评，如果初始奈落的一周目流程有满分，港镇大概只有一半的分数 ...</blockquote>
+原版巫术也不是所有图都有各种设计的。。
+

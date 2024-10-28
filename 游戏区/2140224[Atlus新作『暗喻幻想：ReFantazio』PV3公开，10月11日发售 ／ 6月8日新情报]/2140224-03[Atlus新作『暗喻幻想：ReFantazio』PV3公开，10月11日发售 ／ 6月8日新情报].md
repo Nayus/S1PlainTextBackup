@@ -3803,3 +3803,14 @@ meta要素又不稀奇。写的好，玩梗，专门做是三个层面的事情�
 
 —— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  sonnabanana  
+##### 3292#       发表于 2024-10-28 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66559282&amp;ptid=2140224" target="_blank">祆天发育不良 发表于 2024-10-28 12:14</a>
+我没说这游戏不算meta，但玩家的皮套明显是主角而不是最终BOSS
+书你是说d手记的话也不是主角写的，是别的 ...</blockquote>
+第二段说的是暗喻的书啊，主角和路易手里的那本。
+

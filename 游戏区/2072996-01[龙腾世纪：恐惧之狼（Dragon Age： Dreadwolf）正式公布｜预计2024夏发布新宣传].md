@@ -114,3 +114,19 @@ goty稳了？
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  roydimus  
+##### 674#       发表于 2024-10-29 00:18
+
+<img src="https://img.saraba1st.com/forum/202410/29/001734ogz6w0g0tmun0m0c.png" referrerpolicy="no-referrer">
+
+<strong>$B394BXJE[BYRJ%[AORAM34.png</strong> (27.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-29 00:17 上传
+
+这种弱智台词。。怕不是真是看漫威长大的小登才写得出来
+

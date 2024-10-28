@@ -8893,3 +8893,11 @@ nayuta
 <img src="https://p.sda1.dev/19/30b8393bd04499ca03ce651776ab2899/CMP_20241027232100047.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/19/ad9a619d94cf3f16e8e6d5df3e27e37a/CMP_20241027232100126.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 6746#       发表于 2024-10-28 09:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有了混合属性的魔法之后单属性魔法显得好鸡肋
+

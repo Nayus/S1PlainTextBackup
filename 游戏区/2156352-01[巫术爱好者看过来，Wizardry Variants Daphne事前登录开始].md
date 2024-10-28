@@ -2085,3 +2085,25 @@ https://gamerch.com/wizardry-daphne/
 有没有坛友分享一下应该只能拿一次，实际上可以多次拿的道具该说这个运营是没有做手游的思维呢，还是想法太 ...</blockquote>
 这东西明显就是bug，最好不要碰吧
 
+
+*****
+
+####  whfnet  
+##### 242#       发表于 2024-10-28 17:35
+
+ 本帖最后由 whfnet 于 2024-10-28 17:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66561765&amp;ptid=2156352" target="_blank">我猫呢? 发表于 2024-10-28 17:30</a>
+
+**** 本内容被作者隐藏 ****</blockquote>
+还刷？官方都说要回收多刷的骨头了<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  我猫呢?  
+##### 243#       发表于 2024-10-28 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66561799&amp;ptid=2156352" target="_blank">whfnet 发表于 2024-10-28 17:35</a>
+还刷？官方都说要回收多刷的骨头了</blockquote>
+只是分享一下，我也是偶然多拿了一个，要不是官方发了公告，我还以为是游戏设定
+

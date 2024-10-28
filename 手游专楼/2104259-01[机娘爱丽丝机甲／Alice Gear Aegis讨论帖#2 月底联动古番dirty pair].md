@@ -42,3 +42,13 @@ LV4，合计88连出了黑猫，寡妇平时就不用也没凸点就随缘啦<im
 
 活动还没玩，这旗袍红花居然没份？
 
+
+*****
+
+####  江戸前ルナ  
+##### 1235#         楼主| 发表于 2024-10-28 17:39
+
+天朝相关的，还是透明好点吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+话说到时谁抽到FA寡妇了记得在楼里透一下剧情啊
+

@@ -4229,3 +4229,16 @@ btw，八个人去上海，不住酒店至少要一间六室的住宅暂住，�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">花花第一次看到鱼 眼神拉丝一样
 
+
+*****
+
+####  仟音一心  
+##### 406#       发表于 2024-10-28 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66560847&amp;ptid=2201887" target="_blank">csolfans 发表于 2024-10-28 15:49</a>
+
+花花第一次看到鱼 眼神拉丝一样</blockquote>
+憧憬LL后加入后辈LL团的很多，但是加入自己厨的那个团的，迄今为止只有花花一人。
+
+<img src="https://img.chkaja.com/ce4383b7b34ce130.jpg" referrerpolicy="no-referrer">
+

@@ -3416,3 +3416,11 @@ https://vkguide.dev/docs/extra-chapter/graphics_analysis_metafor/
 这2天终于能够抽出点时间来玩了....结果刚玩就直接喷了...这东西不就是个P5换皮吗...整个游戏的进行流程都 ...</blockquote>
 你好，p1p2队友也能换p的<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  忘却旋律  
+##### 3261#       发表于 2024-10-28 10:28
+
+不是 队友能不能换P的问题，是这暗喻实在 找不出太多的优点，不是换皮就是缝合，画面糟糕 滤镜奇怪 UI烦人，PS5玩帧数还会来回跳 PS5游戏容量35G左右才，可想而止，这8年做了啥，取糟粕去精华是吧。
+

@@ -6664,3 +6664,11 @@ dolo來偷心了<img src="https://static.saraba1st.com/image/smiley/face2017/074
 
 [https://x.com/bpdne/status/1850529050105884746](https://x.com/bpdne/status/1850529050105884746)
 
+
+*****
+
+####  前方暴雨预警  
+##### 25724#       发表于 2024-10-28 10:32
+
+拜托，谁能拒绝一根又长又直的棍子呢，这超——酷的好吧<img src="https://static.saraba1st.com/image/smiley/face2017/266.gif" referrerpolicy="no-referrer">
+

@@ -989,3 +989,11 @@ Wake Up, Girls！ Music Collection
 
 何卒ご理解賜りますよう、謹んでお願い申し上げます。</blockquote>
 
+
+*****
+
+####  DarthAka  
+##### 100#         楼主| 发表于 2024-10-28 20:37
+
+变11周年了
+

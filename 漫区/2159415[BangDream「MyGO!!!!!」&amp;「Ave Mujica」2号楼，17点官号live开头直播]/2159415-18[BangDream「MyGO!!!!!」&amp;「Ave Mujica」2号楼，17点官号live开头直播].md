@@ -6699,3 +6699,19 @@ dolo來偷心了<img src="https://static.saraba1st.com/image/smiley/face2017/074
 
 2024-10-28 20:23 上传
 
+
+*****
+
+####  NODY  
+##### 25727#       发表于 2024-10-28 20:57
+
+月光奏鸣曲+月亮+湖水，李子从哪找的这么符合角色设定的项链
+
+<img src="https://img.saraba1st.com/forum/202410/28/205714xmtzmbvibhxbximz.png" referrerpolicy="no-referrer">
+
+<strong>788dc6a1-91bb-4804-8411-a68e04f26a69.png</strong> (82.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-28 20:57 上传
+

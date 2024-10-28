@@ -14553,3 +14553,83 @@ sololive用衣装有3种形态
 
 2024-10-28 19:22 上传
 
+
+*****
+
+####  holoan  
+##### 10080#         楼主| 发表于 2024-10-28 20:51
+
+其他企业势/关系者的花
+
+<img src="https://img.saraba1st.com/forum/202410/28/201248sagobw2gok5zb3wb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (244.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-28 20:12 上传
+
+JOYSOUND（live协办方）
+
+Furyu（景品厂商，近期有大量holo授权商品投入）
+
+maxfactory（live协办方）
+
+<img src="https://img.saraba1st.com/forum/202410/28/201804ikncnctj2jml6jxm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (200.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-28 20:18 上传
+
+ナナホシ管弦楽団（さくらんぼメッセージ作词编曲）
+
+HimeHina
+
+<img src="https://img.saraba1st.com/forum/202410/28/202054jw60p0euwpwmwwww.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.47 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-28 20:20 上传
+
+左上：つむみ&amp;秋田書店（しらないこと研究会 漫画作者及週刊少年チャンピオン杂志社）[https://x.com/kandumesss/status/1850092171569005045](https://x.com/kandumesss/status/1850092171569005045)
+
+右上：bushiroad ヴァイスシュヴァルツ卡牌 staff（19年micomet工商）
+
+左下：Eallin Japan（SUNAO MV制作）
+
+右下：LOGIC&amp;MAGIC（hololive相关MV live制作）
+
+其他粉丝个人送的花就不贴了，看到了很多海外势特地送的花
+
+单独发一个特别的
+
+<img src="https://img.saraba1st.com/forum/202410/28/204600nm6xyw66opvmovwx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (107.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-28 20:46 上传
+
+
+*****
+
+####  holoan  
+##### 10081#         楼主| 发表于 2024-10-28 21:03
+
+<img src="https://img.saraba1st.com/forum/202410/28/205743xrom0y8ejdk00k0d.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (263.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-28 20:57 上传
+
+漏了两个
+
+SUNAO和DAIDAIDAI的词曲作者
+

@@ -4186,3 +4186,38 @@ btw，八个人去上海，不住酒店至少要一间六室的住宅暂住，�
 
 2024-10-28 15:28 上传
 
+
+*****
+
+####  ads147147  
+##### 402#       发表于 2024-10-28 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66560673&amp;ptid=2201887" target="_blank">离心 发表于 2024-10-28 15:28</a>
+这玩意会出现吗？</blockquote>
+按代哥的尿性，可能性不小
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  ads147147  
+##### 403#       发表于 2024-10-28 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66560545&amp;ptid=2201887" target="_blank">ayara 发表于 2024-10-28 15:13</a>
+说个巨魔的，如果好不容易等来的第六集是可堇双c怎么办😂</blockquote>
+还能怎么办呢，现在不一直是有比没有好。
+
+要清算等播完再说。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  ViyViy  
+##### 404#       发表于 2024-10-28 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66560545&amp;ptid=2201887" target="_blank">ayara 发表于 2024-10-28 15:13</a>
+
+说个巨魔的，如果好不容易等来的第六集是可堇双c怎么办😂</blockquote>
+你还是不够巨魔，看看第五集念题的人，你以为是香堇二选一抢椅子和可双C，其实是香堇一起占了搞三C<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -24,3 +24,13 @@ FA黑猫和寡妇来了，之前中文+僵尸帽+旗袍吊胃口我还以为是F
 
 50连下去就一个彩还是绫香<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江戸前ルナ  
+##### 1233#         楼主| 发表于 2024-10-28 15:40
+
+LV4，合计88连出了黑猫，寡妇平时就不用也没凸点就随缘啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+试了下，这次黑猫的短剑SP挺炫酷的。但是毫无卵用，我还是选择ANSP吧<img src="https://static.saraba1st.com/image/smiley/face/166.gif" referrerpolicy="no-referrer">
+

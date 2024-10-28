@@ -3814,3 +3814,13 @@ meta要素又不稀奇。写的好，玩梗，专门做是三个层面的事情�
 书你是说d手记的话也不是主角写的，是别的 ...</blockquote>
 第二段说的是暗喻的书啊，主角和路易手里的那本。
 
+
+*****
+
+####  milky658  
+##### 3293#       发表于 2024-10-28 15:41
+
+虽然有诸多不满，但打到铁甲战车启动那里嘴还是软了一点。果然和一群傻必朋友热热闹闹地冒险是我要的勾rpg鹈鹕味啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+

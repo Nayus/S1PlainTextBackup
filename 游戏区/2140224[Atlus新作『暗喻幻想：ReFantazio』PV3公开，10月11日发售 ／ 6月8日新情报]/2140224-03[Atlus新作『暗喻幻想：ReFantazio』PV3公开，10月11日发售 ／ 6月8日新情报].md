@@ -3424,3 +3424,42 @@ https://vkguide.dev/docs/extra-chapter/graphics_analysis_metafor/
 
 不是 队友能不能换P的问题，是这暗喻实在 找不出太多的优点，不是换皮就是缝合，画面糟糕 滤镜奇怪 UI烦人，PS5玩帧数还会来回跳 PS5游戏容量35G左右才，可想而止，这8年做了啥，取糟粕去精华是吧。
 
+
+*****
+
+####  sonnabanana  
+##### 3262#       发表于 2024-10-28 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66558328&amp;ptid=2140224" target="_blank">忘却旋律 发表于 2024-10-28 10:28</a>
+不是 队友能不能换P的问题，是这暗喻实在 找不出太多的优点，不是换皮就是缝合，画面糟糕 滤镜奇怪 UI烦人 ...</blockquote>
+老p队友能换p显得新p队友不能换p，结果到了重新定义勾rpg又开倒车加上队友可以换p，不是彰显小丑本色吗。
+
+面具大师虚空蓄力的动画不是很明显了吗，戴上眼镜开枪射爆卡片，突出一个重新定义自家做过的所有系统然后拉了泡大的端出来。玩家老老实实对着老游戏的某些设定刻奇就行了，我们制作人考虑的就多了。隔壁树迷宫foe还没3d建模呢，我们prg.jp
+至少还多个建模，差不多的了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  忘却旋律  
+##### 3263#       发表于 2024-10-28 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66558542&amp;ptid=2140224" target="_blank">sonnabanana 发表于 2024-10-28 10:49</a>
+
+老p队友能换p显得新p队友不能换p，结果到了重新定义勾rpg又开倒车加上队友可以换p，不是彰显小丑本色吗。 ...</blockquote>
+问题是... 问题是建模也不咋地啊 主要角色阵容也就平均水平<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+路人建模 环境建模更是感人，一些路边的桶子啊 树啊  路人服装 简直不能细看，当初一看宣传PV我第一反应 这特么 不是风花雪月水准吗，然后不少BGM还真特么 和风花雪月一个味 ，战斗BGM的其中一段旋律 ， 日常逛街BGM更是 梦回弗朵拉大陆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mai6696  
+##### 3264#       发表于 2024-10-28 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66558542&amp;ptid=2140224" target="_blank">sonnabanana 发表于 2024-10-28 10:49</a>
+
+老p队友能换p显得新p队友不能换p，结果到了重新定义勾rpg又开倒车加上队友可以换p，不是彰显小丑本色吗。 ...</blockquote>
+说起面具大师我就想笑。
+
+什么大师的面具还要占饰品栏，战斗中还不能切换啊？
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 全程都在戴合体-1的饰品，谁几把戴你那破逼面具。
+

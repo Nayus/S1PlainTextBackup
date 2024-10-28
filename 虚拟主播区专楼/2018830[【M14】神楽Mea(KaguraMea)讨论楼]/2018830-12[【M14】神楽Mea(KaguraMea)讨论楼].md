@@ -399,3 +399,31 @@
 
 还有3分钟联动，这是唱上瘾了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sino__unnko3  
+##### 17548#       发表于 2024-10-27 22:28
+
+ 本帖最后由 sino__unnko3 于 2024-10-27 22:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66499254&amp;ptid=2018830" target="_blank">TiHaru 发表于 2024-10-20 18:01</a>
+没说是谁换的，只能任君想象了
+
+另外主播还在vrc里给人唱歌，因为这个掌握了开着变声器唱歌的技术。也就是 ...</blockquote>
+挖，刚刚犬山这里逆凸说是马内甲过来帮忙换的线缆这些，还帮忙扔垃圾
+合着这人就等着犬山这边再揭开谜底是吧(
+
+*****
+
+####  TiHaru  
+##### 17549#       发表于 2024-10-28 10:48
+
+指甲没做了 讲了瓦相关的内容 之后再听一下
+
+*****
+
+####  sino__unnko3  
+##### 17550#       发表于 2024-10-28 10:51
+
+不喜欢化妆打游戏，不想打游戏的时候留着香水的气味
+

@@ -465,3 +465,24 @@ BOSS是阿夸，小麦的智商当不了赤音要不就充当帽皇吧<img src="
 真羡慕后辈们可以互相吸吸</blockquote>
 别的不知道，很多后辈估计更羡慕前辈可以二合一，比如未来啊，比如猫猫啊，比如您队友那只燕子可能也想跟六花二合一
 
+
+*****
+
+####  pokemon最爱  
+##### 2574#       发表于 2024-10-28 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66555984&amp;ptid=2162354" target="_blank">朝日奈みらい. 发表于 2024-10-27 23:15</a>
+
+如果李可那个时候还不来的话,也许我真的会觉醒一些奇怪的招数</blockquote>
+不应该是把整个无魔法界连着自己一块冻起来的火属性魔法或者干脆无魔法界爆破EXPLOSION吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ダイヤモンド  
+##### 2575#       发表于 2024-10-28 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66558198&amp;ptid=2162354" target="_blank">lydia5989 发表于 2024-10-28 10:14</a>
+
+别的不知道，很多后辈估计更羡慕前辈可以二合一，比如未来啊，比如猫猫啊，比如您队友那只燕子可能也想跟 ...</blockquote>
+赢家，时间问题，金毛勿扰
+

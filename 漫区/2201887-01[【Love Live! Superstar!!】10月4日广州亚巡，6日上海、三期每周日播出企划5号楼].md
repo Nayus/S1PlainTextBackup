@@ -4296,3 +4296,14 @@ op3这歌，鲤佩熊三人因为后半段没独唱导播干脆连单独镜头�
 
 OP3这首感觉是上层地震前做的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">应该是分配的最离谱的一次
 
+
+*****
+
+####  ruffian  
+##### 413#       发表于 2024-10-28 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66560804&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-10-28 15:44:00</a>
+你还是不够巨魔，看看第五集念题的人，你以为是香堇二选一抢椅子和可双C，其实是香堇一起占了搞三C ...</blockquote>你还是善良了，说不定根本就没有什么可回也没有可c，就是吃喝玩乐的一个合宿回，最后是香堇双c
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

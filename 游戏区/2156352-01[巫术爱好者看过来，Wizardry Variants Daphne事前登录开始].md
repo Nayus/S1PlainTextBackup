@@ -2115,3 +2115,16 @@ https://gamerch.com/wizardry-daphne/
 
 终于，BUG把我卡到死档了。6F收集白金的任务战，不管是战胜还是逃跑都是100003报错重启<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lesword  
+##### 245#       发表于 2024-10-28 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66563306&amp;ptid=2156352" target="_blank">索非亚 发表于 2024-10-28 21:07</a>
+
+终于，BUG把我卡到死档了。6F收集白金的任务战，不管是战胜还是逃跑都是100003报错重启 ...</blockquote>
+把引继码搞出来，然后清数据在网络好的地方用稳定的梯子或者加速器重下游戏的内容。
+
+这游戏的BUG里，有不少和网络有关系，而且一次下载的数据包太大，容易网络波动丢东西。
+

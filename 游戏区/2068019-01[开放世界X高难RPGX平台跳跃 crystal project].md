@@ -1063,3 +1063,26 @@ https://steamcommunity.com/sharedfiles/filedetails/?id=3320600127</blockquote>
 
 不过初始森林一些个高地宝箱和墨丘利神殿这个传送石价格该不会游戏初期只靠双脚就能从一些刁钻的地方跳上来吧，太离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  库德里尔  
+##### 84#       发表于 2024-10-28 08:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66556661&amp;ptid=2068019" target="_blank">kerbad 发表于 2024-10-28 00:48</a>
+
+拿到山羊后迫不及待绕了一圈从地图另一端跳出来了，太性感了这游戏
+
+不过初始森林一些个高地宝箱和墨丘利神 ...</blockquote>
+mercury到过了是吧
+
+那请看这个跳点 我扫图的时候才发现的……
+
+<img src="https://img.saraba1st.com/forum/202410/28/083900kei212121ep02xz0.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (2.81 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-28 08:39 上传
+

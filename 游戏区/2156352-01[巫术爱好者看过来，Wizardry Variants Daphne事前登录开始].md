@@ -2128,3 +2128,23 @@ https://gamerch.com/wizardry-daphne/
 
 这游戏的BUG里，有不少和网络有关系，而且一次下载的数据包太大，容易网络波动丢东西。
 
+
+*****
+
+####  elven119  
+##### 246#         楼主| 发表于 2024-10-28 22:58
+
+铁等级了。这升阶任务真的是要人老命。
+
+*****
+
+####  索非亚  
+##### 247#       发表于 2024-10-28 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66563649&amp;ptid=2156352" target="_blank">lesword 发表于 2024-10-28 22:03</a>
+
+把引继码搞出来，然后清数据在网络好的地方用稳定的梯子或者加速器重下游戏的内容。
+
+这游戏的BUG里，有不 ...</blockquote>
+游戏内清除数据还有应用里直接清除所有数据重新引继都试过了，没用<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

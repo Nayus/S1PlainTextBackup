@@ -239,3 +239,26 @@ goty稳了？
 
 比我想象的还要疯
 
+
+*****
+
+####  lilisipis  
+##### 683#       发表于 2024-10-29 01:37
+
+游戏媒体真的已经烂完了吧
+
+<img src="https://img.saraba1st.com/forum/202410/29/013642vt1ogbi4vt5tg3ie.png" referrerpolicy="no-referrer">
+
+<strong>1000002989.png</strong> (248.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-29 01:36 上传
+
+*****
+
+####  Nosgoth  
+##### 684#       发表于 2024-10-29 01:41
+
+这种东西在steam论坛里看到的一个回复把我笑惨了，I identify as non-buynary。
+

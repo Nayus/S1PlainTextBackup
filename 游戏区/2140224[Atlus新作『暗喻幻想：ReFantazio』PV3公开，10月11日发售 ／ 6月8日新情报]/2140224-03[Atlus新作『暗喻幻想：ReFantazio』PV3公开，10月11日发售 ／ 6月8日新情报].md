@@ -3616,3 +3616,57 @@ BGM不是确实喊了风花雪月作曲来帮忙的吗，真要目黑劳模又�
 
 这游戏多年前的概念pv就在掰扯现实与幻想的关系了
 
+
+*****
+
+####  sonnabanana  
+##### 3278#       发表于 2024-10-28 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66558950&amp;ptid=2140224" target="_blank">mai6696 发表于 2024-10-28 11:31</a>
+不知道是不是大家过度期待了，以为起了两个名字后面就能用上。
+
+我没觉得有什么meta要素。不要这个玩家名对 ...</blockquote>
+我记得勇气默示录里最终boss就是玩家化身，还很贴心的黑屏给你看自己脸来着？
+
+主角遭那么多罪就怪有玩家想玩游戏<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Dreammask  
+##### 3279#       发表于 2024-10-28 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66558950&amp;ptid=2140224" target="_blank">mai6696 发表于 2024-10-28 11:31</a>
+
+不知道是不是大家过度期待了，以为起了两个名字后面就能用上。
+
+我没觉得有什么meta要素。不要这个玩家名对 ...</blockquote>
+玩家名和故事几乎一点关系都没有，去掉肯定没影响
+
+可能桥野觉得主角所追求的伟大的探索者是玩家本人，而玩家本人被尊为伟大的探索者是因为玩了这个游戏之类的闭环很酷吧<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  plok201  
+##### 3280#       发表于 2024-10-28 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66558688&amp;ptid=2140224" target="_blank">Dreammask 发表于 2024-10-28 11:03</a>
+
+所以为什么有人会觉得这游戏就该有meta叙事啊，是起名的时候要玩家的名字还是metaphor这个词带meta ...</blockquote>
+因为从项目宣传开始就一副要搞meta的样子啊
+
+几个宣传直播都给你点一下故事书，制作人采访给你cuo一下现实世界
+
+23年的正式宣传片，最后2句台词是，一切都始于你手中的小说，幻想才不是无稽之谈<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sonnabanana  
+##### 3281#       发表于 2024-10-28 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66559011&amp;ptid=2140224" target="_blank">plok201 发表于 2024-10-28 11:39</a>
+因为从项目宣传开始就一副要搞meta的样子啊
+
+几个宣传直播都给你点一下故事书，制作人采访给你cuo一下现 ...</blockquote>
+老国王去有上古黑科技的地方看了个vr电影回来写了本小说结果能发动王之魔法，这么就不meta了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+

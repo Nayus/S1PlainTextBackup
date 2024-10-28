@@ -148,3 +148,37 @@ goty稳了？
 
 等不及看烟花了
 
+
+*****
+
+####  ak123  
+##### 677#       发表于 2024-10-29 00:45
+
+ 本帖最后由 ak123 于 2024-10-29 00:48 编辑 
+
+<img src="https://img.saraba1st.com/forum/202410/29/004543tveco1vgg8y4o19a.png" referrerpolicy="no-referrer">
+
+<strong>QQ20241029-004516.png</strong> (176.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-29 00:45 上传
+
+<img src="https://img.saraba1st.com/forum/202410/29/004837nr09pi30kthhtktp.png" referrerpolicy="no-referrer">
+
+<strong>EC8ADF99132BE5C59EEAE5E54D539414.png</strong> (330.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-29 00:48 上传
+
+<img src="https://img.saraba1st.com/forum/202410/29/004554zxrn3039t3gg53d5.png" referrerpolicy="no-referrer">
+
+<strong>418708E7D87130AB7633AEFBC52F9F3C.png</strong> (59.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-29 00:45 上传
+
+怎么那么多重量级独立宣言<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

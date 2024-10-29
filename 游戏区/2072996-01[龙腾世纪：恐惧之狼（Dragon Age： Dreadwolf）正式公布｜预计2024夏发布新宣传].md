@@ -453,3 +453,11 @@ gs7分。
 一个冒充lgbt才获得提前试玩的人透露：优化有问题，全程30有掉帧。每个职业技能组3套从头玩到尾， ...</blockquote>
 之前那个说冒充LGBT拿到测评的明显是假的好吧，那么多打60分的都没说优化有问题，现在都有大量视频了可以去看看画面咋样。现在来看对于我来说最大雷点是像银河护卫队，队友很欢乐，ROOK不能做坏人<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  三谷歩夢  
+##### 705#       发表于 2024-10-29 09:32
+
+去龙腾吧看了会，真是孝出天际了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

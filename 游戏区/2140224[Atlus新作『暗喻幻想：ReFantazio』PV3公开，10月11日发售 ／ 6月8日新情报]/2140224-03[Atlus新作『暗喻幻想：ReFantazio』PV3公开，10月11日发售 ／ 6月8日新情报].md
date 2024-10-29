@@ -3892,3 +3892,16 @@ meta要素又不稀奇。写的好，玩梗，专门做是三个层面的事情�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  忘却旋律  
+##### 3301#       发表于 2024-10-29 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66565520&amp;ptid=2140224" target="_blank">NEIN 发表于 2024-10-29 09:23</a>
+
+治疗没啥好技能好被动，解锁都不想解锁
+
+—— 来自 鹅球 v3.1.88.3</blockquote>
+一个2级群聊 用到死才20MP，复活不如直接用药 钱多的没地方花，消敌方BUFF 和消我放DEBUFF的 技能我也不带 直接 用店货 ，
+

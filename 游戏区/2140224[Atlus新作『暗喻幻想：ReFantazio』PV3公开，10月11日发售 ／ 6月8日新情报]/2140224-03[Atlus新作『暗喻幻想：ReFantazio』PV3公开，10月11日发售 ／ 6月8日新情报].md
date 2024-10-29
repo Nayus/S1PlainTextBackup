@@ -4004,3 +4004,22 @@ meta要素又不稀奇。写的好，玩梗，专门做是三个层面的事情�
 
 战斗和系统也很不错，唯一问题在于前期好缺mp，后面我琢磨过来了没蓝就去转术士在迷宫敲小怪。。
 
+
+*****
+
+####  xifeilu  
+##### 3312#       发表于 2024-10-29 14:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">好奇问问，这游戏偷窃概率怎么算的……我现在在坟墓里偷那些骷髅兵，已经三个人有偷窃技能了，先手晕了骷髅兵留着不打一直偷窃，成功率低得吓人……随着职业RANK上去，是否会提升偷窃成功率
+
+
+*****
+
+####  kuarwbwe  
+##### 3313#       发表于 2024-10-29 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66568140&amp;ptid=2140224" target="_blank">xifeilu 发表于 2024-10-29 14:41</a>
+
+好奇问问，这游戏偷窃概率怎么算的……我现在在坟墓里偷那些骷髅兵，已经三个人有偷窃技能了，先手晕了骷髅 ...</blockquote>
+偷窃按速度走，我一般都是用灰羽戴一个加偷窃概率的饰品偷。
+

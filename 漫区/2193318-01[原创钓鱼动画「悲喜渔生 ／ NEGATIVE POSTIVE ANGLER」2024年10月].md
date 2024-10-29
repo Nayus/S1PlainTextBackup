@@ -1064,3 +1064,13 @@ ed舒服不少
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  rushsong  
+##### 99#       发表于 2024-10-29 17:01
+
+不懂为啥有些人对于男性的人际关系那么敏感，bangumi也一堆担心会有gay展开的，在我看来这种粉毛对男主行为就是单纯的想阻止悲剧的发生，也算是以前经历过某些事的ptsd吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2183A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

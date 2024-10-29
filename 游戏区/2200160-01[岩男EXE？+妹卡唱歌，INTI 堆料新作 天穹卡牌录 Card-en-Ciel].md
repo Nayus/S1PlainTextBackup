@@ -419,3 +419,13 @@ INTI CREATES老早就开始这种商法了，店特全是擦边色图<img src="h
 我对NS有点不信任（谁能想到玩逆检复刻的时候遇到大点的调查场景它都会掉帧呢 ...</blockquote>
 不是有demo嘛 画质低下和掉帧都有 不过玩还是能玩没啥影响 毕竟打牌游戏
 
+
+*****
+
+####  cmyk1234  
+##### 106#       发表于 2024-10-29 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66567425&amp;ptid=2200160" target="_blank">heliosphere 发表于 2024-10-29 13:04</a>
+有没有人体验了NS版，这种游戏比较想拿手上玩，但是担心NS版又卡又难操作</blockquote>
+Inti只有pc和ps适配出奇奇怪怪的小问题，特别是ps4移植5各种跳出，没有ns适配出问题。
+

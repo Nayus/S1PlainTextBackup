@@ -4412,3 +4412,16 @@ OP3这首感觉是上层地震前做的<img src="https://static.saraba1st.com/im
 
 2024-10-29 22:28 上传
 
+
+*****
+
+####  ruffian  
+##### 425#       发表于 2024-10-29 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66572578&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-10-29 22:29:52</a>
+今晚没人发？2话开始其实4+5波动不大，只是配比变了，不过这集可能吓到恐同的了，5有6%
+
+ ...</blockquote>崆峒草，我说这5怎么又涨了？醍醐灌顶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

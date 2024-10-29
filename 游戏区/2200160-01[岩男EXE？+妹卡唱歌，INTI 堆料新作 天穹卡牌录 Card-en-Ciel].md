@@ -396,3 +396,16 @@ INTI CREATES老早就开始这种商法了，店特全是擦边色图<img src="h
 没买ns版
 不过这简陋的ui跟画面ns跑应该是没有任何问题的
 
+
+*****
+
+####  heliosphere  
+##### 104#       发表于 2024-10-29 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66568565&amp;ptid=2200160" target="_blank">ルティナ 发表于 2024-10-29 15:29</a>
+
+没买ns版
+
+不过这简陋的ui跟画面ns跑应该是没有任何问题的</blockquote>
+我对NS有点不信任（谁能想到玩逆检复刻的时候遇到大点的调查场景它都会掉帧呢
+

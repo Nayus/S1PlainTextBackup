@@ -152,3 +152,11 @@ LV4，合计88连出了黑猫，寡妇平时就不用也没凸点就随缘啦<im
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是说会长能改其他人对她的好感度吗（小鸟游除外）
 
+
+*****
+
+####  江戸前ルナ  
+##### 1245#         楼主| 发表于 2024-10-29 20:16
+
+原来说的是漫画<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

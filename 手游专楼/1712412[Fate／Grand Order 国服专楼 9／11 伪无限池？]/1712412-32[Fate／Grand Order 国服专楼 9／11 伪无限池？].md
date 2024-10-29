@@ -219,3 +219,11 @@ yls的方差是这样的呀，我一个抓包1.1的连续翻车，人家1.5的�
 
 —— 来自 samsung SM-S9210, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  dawning  
+##### 46775#       发表于 2024-10-29 20:45
+
+我要抽果子龙<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+

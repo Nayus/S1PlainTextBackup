@@ -144,3 +144,11 @@ LV4，合计88连出了黑猫，寡妇平时就不用也没凸点就随缘啦<im
 
 话说女演员控制人类是指哪个啊，没印象啊。不是就控制VICE的某两个吗
 
+
+*****
+
+####  madcow  
+##### 1244#       发表于 2024-10-29 20:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是说会长能改其他人对她的好感度吗（小鸟游除外）
+

@@ -4338,3 +4338,13 @@ xi
 卡那个海上章鱼人类了，有什么好的打法没有</blockquote>
 hard难度除了全反射龙我没遇到会卡的boss除非等级太低，你先按Lt看看boss等级有没有高你5级以上，有就练练级
 
+
+*****
+
+####  莉可厨  
+##### 3342#       发表于 2024-10-30 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66573376&amp;ptid=2140224" target="_blank">石中剑二 发表于 2024-10-30 00:26</a>
+卡那个海上章鱼人类了，有什么好的打法没有</blockquote>
+应该不会吧，一般开h难的都是地图全清的，主线boss应该等级碾压随便打的
+

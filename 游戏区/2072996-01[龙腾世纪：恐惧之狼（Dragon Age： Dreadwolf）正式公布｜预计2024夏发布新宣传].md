@@ -461,3 +461,13 @@ gs7分。
 
 去龙腾吧看了会，真是孝出天际了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jf8350143  
+##### 706#       发表于 2024-10-29 10:13
+
+GS改成蓝分了，也就是不是正式出分之后还会改
+
+毕竟他们都没打完一周目（才打了30个小时，大概才一半的流程）
+

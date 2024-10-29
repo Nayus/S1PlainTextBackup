@@ -367,3 +367,31 @@ steam全球热销好像排第四
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ea花了多少钱买评
 
+
+*****
+
+####  PROCAINUM  
+##### 696#       发表于 2024-10-29 08:27
+
+既然都预购了，怎么屎都会试试，大概率没有ME5了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Eric_方歌阙  
+##### 697#       发表于 2024-10-29 08:31
+
+S1也有串…啊不，有trans吗
+
+*****
+
+####  震荡波  
+##### 698#       发表于 2024-10-29 08:31
+
+gs7分。
+
+一个冒充lgbt才获得提前试玩的人透露：优化有问题，全程30有掉帧。每个职业技能组3套从头玩到尾，剧情全线性，剧情选择和没选一样，剧情差不多一半都在讲lgbtqia。
+
+翻车预定了。
+

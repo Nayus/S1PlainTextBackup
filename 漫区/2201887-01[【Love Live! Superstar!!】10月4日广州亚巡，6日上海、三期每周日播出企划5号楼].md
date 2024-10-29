@@ -4441,3 +4441,16 @@ OP3这首感觉是上层地震前做的<img src="https://static.saraba1st.com/im
 
 怎么看你拉还有崆峒的，从水开始还没跑光吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViyViy  
+##### 428#       发表于 2024-10-29 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66572690&amp;ptid=2201887" target="_blank">ruffian 发表于 2024-10-29 22:41</a>
+
+崆峒草，我说这5怎么又涨了？醍醐灌顶
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">昏头了，都第四集了，我还在以为这是第三集，应该是没live被打差评了
+

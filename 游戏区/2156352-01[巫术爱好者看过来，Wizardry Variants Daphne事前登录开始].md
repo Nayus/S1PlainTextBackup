@@ -2309,3 +2309,11 @@ https://gamerch.com/wizardry-daphne/
 
 —— 来自 nubia NX729J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  elven119  
+##### 258#         楼主| 发表于 2024-10-30 07:18
+
+更新了群号
+

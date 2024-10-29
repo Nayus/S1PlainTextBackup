@@ -4454,3 +4454,11 @@ OP3这首感觉是上层地震前做的<img src="https://static.saraba1st.com/im
   -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">昏头了，都第四集了，我还在以为这是第三集，应该是没live被打差评了
 
+
+*****
+
+####  starring  
+##### 429#       发表于 2024-10-30 00:15
+
+大熊的首专几首歌的质量都好高
+

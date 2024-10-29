@@ -429,3 +429,11 @@ INTI CREATES老早就开始这种商法了，店特全是擦边色图<img src="h
 有没有人体验了NS版，这种游戏比较想拿手上玩，但是担心NS版又卡又难操作</blockquote>
 Inti只有pc和ps适配出奇奇怪怪的小问题，特别是ps4移植5各种跳出，没有ns适配出问题。
 
+
+*****
+
+####  仓鼠吃火锅  
+##### 107#       发表于 2024-10-29 18:27
+
+全卡都见过了还差几张没拿过，但歌姬还差几个见都没见过的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">是只有个别关卡或者线上关卡才能遇到吗
+

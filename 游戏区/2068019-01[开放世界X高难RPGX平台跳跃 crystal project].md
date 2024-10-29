@@ -1125,3 +1125,11 @@ mercury到过了是吧
 
 跑回萨蒙河才发现可以从波塞冬神殿跑沙漠，但是我当时跳跑去拿吸血剑了没发现<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kerbad  
+##### 89#       发表于 2024-10-29 18:35
+
+刚拿到鲑鱼，越玩越觉得这游戏战斗打着难受。不知道是不是我玩的方式有问题，感觉有效的输出也就暗杀者的致命一击和法爷最高级的魔法，要狂砸魔法还得带药师猛灌蓝瓶，看着搭配丰富但是体验单调感觉有点幻视XB3<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

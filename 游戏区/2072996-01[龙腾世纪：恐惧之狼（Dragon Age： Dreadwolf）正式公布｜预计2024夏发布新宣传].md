@@ -519,3 +519,17 @@ GS改成蓝分了，也就是不是正式出分之后还会改
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">Skillup的评论太给劲了，我怎么没想到呢？
 
+
+*****
+
+####  mj240608414  
+##### 712#       发表于 2024-10-29 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66566300&amp;ptid=2072996" target="_blank">pp1349 发表于 2024-10-29 10:59</a>
+龙腾吧结晶成那样还有人能看的下去吗
+
+—— 来自 鹅球 v3.1.90</blockquote>
+龙腾吧现在一堆不知道哪来的1级号搁那舔，只能说战争早就开始了
+
+—— 来自 Xiaomi 22127RK46C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

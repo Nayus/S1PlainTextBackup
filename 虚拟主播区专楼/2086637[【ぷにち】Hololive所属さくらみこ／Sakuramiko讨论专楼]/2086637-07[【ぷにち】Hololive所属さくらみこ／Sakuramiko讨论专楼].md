@@ -14727,3 +14727,32 @@ miko你在干什么？
 
 miko直播也特地提了这个事说这次负责live的运营团队简直是精英团队，当时在幕后听到staff说live回放已经可以看的时候她自己都被这速度震惊了，实际上这个团队确实NB，包括最后安可演出时回忆短片的live即时剪辑我也是第一次看到还能这么玩的确实有点东西
 
+
+*****
+
+####  holoan  
+##### 10088#         楼主| 发表于 2024-10-29 10:32
+
+<img src="https://img.saraba1st.com/forum/202410/29/103227y15mdgpll81did1u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (76.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-29 10:32 上传
+
+*****
+
+####  holoan  
+##### 10089#         楼主| 发表于 2024-10-29 11:19
+
+<img src="https://img.saraba1st.com/forum/202410/29/111253gj3jjzwqluhywwys.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (20.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-29 11:12 上传
+
+sololive上3D技术完成度最高、物理演算能力点满的那条毛巾，在miko手上卷了无数次还能反复甩不会崩模型，跟现实毛巾一比毫无差别
+

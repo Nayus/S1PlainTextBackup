@@ -2246,3 +2246,17 @@ https://gamerch.com/wizardry-daphne/
 
 —— 来自 nubia NX729J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  lesword  
+##### 254#       发表于 2024-10-29 22:53
+
+ 本帖最后由 lesword 于 2024-10-29 22:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66571764&amp;ptid=2156352" target="_blank">战术核辣条 发表于 2024-10-29 21:07</a>
+
+全加主属性或者补速，盗贼可以考虑补力
+
+考虑到属性成长在50级的情况下有可能自然成长差出10点左右，我个 ...</blockquote>
+它这个属性成长好像是有阶段属性上限的，类似火纹结合那种，只是每个阶段都有个总属性合计和每项上限，只是分配的数值（实际体现就是成长率）不一样（然后合计数值好像是一样的）
+

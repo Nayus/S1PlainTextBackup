@@ -598,3 +598,23 @@ GS改成蓝分了，也就是不是正式出分之后还会改
 你是不是说反了</blockquote>
 天邈的汉化是今年出的吧，10年没毛病（
 
+
+*****
+
+####  花海佑芽  
+##### 720#       发表于 2024-10-29 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66564635&amp;ptid=2072996" target="_blank">lilisipis 发表于 2024-10-29 01:37</a>
+游戏媒体真的已经烂完了吧</blockquote>
+乐，多来点，除非大部分玩家都是lgbt+，或者游戏质量高到让玩家无视这坨狗💩，不然这种评分和评价就是顶级串子和乐子<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Bieaeml  
+##### 721#       发表于 2024-10-29 12:17
+
+<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">别说贴吧，泥潭之前不也是有盆友自己骗自己的，最后一句大不了自己玩。
+
+从DAO看到如今的DA4只会觉得恶心，一点不会有玩的想法。
+

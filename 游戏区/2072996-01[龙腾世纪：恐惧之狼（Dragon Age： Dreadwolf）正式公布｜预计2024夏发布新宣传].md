@@ -533,3 +533,28 @@ GS改成蓝分了，也就是不是正式出分之后还会改
 
 —— 来自 Xiaomi 22127RK46C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  operatbig  
+##### 713#       发表于 2024-10-29 11:27
+
+<blockquote>卡拉德利姆 发表于 2024-10-29 09:04
+这个所谓的提前测评者大概率是假的，不能因为说了人想听的话就全盘接受 ...</blockquote>
+看了看别的评测也说玩家选择不多，那玩毛，玩欧美rpg不就图一口整蛊作恶。
+
+*****
+
+####  wswseven  
+##### 714#       发表于 2024-10-29 11:29
+
+与其逛龙腾吧还不如点击只看该作者，查看部分楼友精神状态的转变<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cyvery  
+##### 715#       发表于 2024-10-29 11:34
+
+比起评分，龙腾这游戏的国内热度可是真低，国内那些自媒体平台一点水花都没有，完全是无人问津的状态。
+

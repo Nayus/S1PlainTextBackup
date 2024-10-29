@@ -1158,3 +1158,26 @@ mercury到过了是吧
 —— 来自 OnePlus CPH2487, A ...</blockquote>
 原来是这样吗，我体感物理用着顺手的就暗杀和收割者，现在拿到时魔能放群体大魔法也好。召唤师拿了还没找召唤兽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blackll7  
+##### 92#         楼主| 发表于 2024-10-30 01:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66572274&amp;ptid=2068019" target="_blank">kerbad 发表于 2024-10-29 22:05</a>
+原来是这样吗，我体感物理用着顺手的就暗杀和收割者，现在拿到时魔能放群体大魔法也好。召唤师拿了还没找 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实只要能刷ap（打蘑菇）就算后期了，没齐全技能组的时候暗杀确实鸡。后期boss有通用的召唤两个控➕一个无敌➕一个反射配上学者全体化的伤害逆转这样的拖时间套路以后，强输出的阵容才好用。比如最终战的4v4，或者树顶的一大二小。
+
+—— 来自 OnePlus CPH2487, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  blackll7  
+##### 93#         楼主| 发表于 2024-10-30 01:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66572274&amp;ptid=2068019" target="_blank">kerbad 发表于 2024-10-29 22:05</a>
+原来是这样吗，我体感物理用着顺手的就暗杀和收割者，现在拿到时魔能放群体大魔法也好。召唤师拿了还没找 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且真觉得不喜欢的话，直接去mod区，基本上什么乱七八糟jrpg里的技能组mod基本上齐了，从dq到狒狒，从世界树迷宫到ro。
+
+—— 来自 OnePlus CPH2487, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

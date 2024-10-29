@@ -4462,3 +4462,17 @@ OP3这首感觉是上层地震前做的<img src="https://static.saraba1st.com/im
 
 大熊的首专几首歌的质量都好高
 
+
+*****
+
+####  csolfans  
+##### 430#       发表于 2024-10-30 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66572578&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-10-29 22:29</a>
+今晚没人发？2话开始其实4+5波动不大，只是配比变了，不过这集可能吓到恐同的了，5有6%
+
+昏头了，这是第四集 ...</blockquote>
+打差评比例太稳定了……估计后面无论质量如何都不会变化的
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

@@ -4188,3 +4188,16 @@ meta要素又不稀奇。写的好，玩梗，专门做是三个层面的事情�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  zero4166  
+##### 3328#       发表于 2024-10-29 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66569371&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-10-29 16:47</a>
+
+龙宫我咋感觉比大教堂还爽，但看社区却一片骂声，仿佛玩的不是一个游戏
+
+—— 来自 S1Fun ...</blockquote>
+龙宫主要是迷宫太大存档点还少吧，然后过了龙宫就再没有大型迷宫了
+

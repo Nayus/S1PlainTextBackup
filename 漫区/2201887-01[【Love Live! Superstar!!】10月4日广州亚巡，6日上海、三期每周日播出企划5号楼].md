@@ -4386,3 +4386,13 @@ OP3这首感觉是上层地震前做的<img src="https://static.saraba1st.com/im
 
 不会讲为啥组成
 
+
+*****
+
+####  csolfans  
+##### 423#       发表于 2024-10-29 17:14
+
+3期OP 10241 3期ED 10120
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

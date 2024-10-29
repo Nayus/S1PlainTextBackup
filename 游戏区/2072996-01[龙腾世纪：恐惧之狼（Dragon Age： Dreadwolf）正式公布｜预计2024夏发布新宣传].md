@@ -779,3 +779,16 @@ DAI里我记得就有trans了啊，依稀记得是铁牛那边阵营的</blockqu
 DAI里我记得就有trans了啊，依稀记得是铁牛那边阵营的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">审判里面队友多利安的老爸，一个塔文特大法师不介意儿子是基佬，就在乎基佬儿子不能留后代。计划把儿子变性成女性。铁牛那个副队长还是女斜坡配音呢，实际上没变性。就是一直认为自己是男的
 
+
+*****
+
+####  jf8350143  
+##### 736#       发表于 2024-10-29 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66573070&amp;ptid=2072996" target="_blank">瘦猪与肥猴 发表于 2024-10-29 23:27</a>
+
+审判里面队友多利安的老爸，一个塔文特大法师不介意儿子是基佬，就在乎基佬儿子不能留后代。计划把儿子变 ...</blockquote>
+原文只说了change me，没说变成女性好吧……
+
+明显是希望改变他的取向让他去艹妹生娃
+

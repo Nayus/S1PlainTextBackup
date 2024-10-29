@@ -1122,3 +1122,54 @@ ed舒服不少
 <img src="https://p.sda1.dev/19/2d0a5967fbb5d91e6e66749403aca85e/pic006.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/19/59edce980c89268730f54d0f8aad6dc4/p_005.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Tilocal  
+##### 103#       发表于 2024-10-29 23:49
+
+与其说是男主与男二的关系性有问题不如说动画组总感觉有意无意地塞了些怪东西，是我自己的问题吗<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202410/29/233251rj64huuat41at84r.gif" referrerpolicy="no-referrer">
+
+<strong>[LoliHouse] Negative Positive Angler - 04 [WebRip 1080p HEVC-10bit AAC SRTx2] 00.gif</strong> (473.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-29 23:32 上传
+
+<img src="https://img.saraba1st.com/forum/202410/29/233250h8myqqsoppoyymop.gif" referrerpolicy="no-referrer">
+
+<strong>[LoliHouse] Negative Positive Angler - 02 [WebRip 1080p HEVC-10bit AAC SRTx2] 00.gif</strong> (296.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-29 23:32 上传
+
+<img src="https://img.saraba1st.com/forum/202410/29/233330s9gfjsas7un7gu8g.png" referrerpolicy="no-referrer">
+
+<strong>02.png</strong> (308.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-29 23:33 上传
+
+<img src="https://img.saraba1st.com/forum/202410/29/233331k2icey5l6c4lecvc.png" referrerpolicy="no-referrer">
+
+<strong>022.png</strong> (275.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-29 23:33 上传
+
+还有男主举杆时经常发出的轻哼<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+查了下发现男主岩中睦樹的里名恋津田蓮也确实没少配BL抓<img src="https://static.saraba1st.com/image/smiley/face2017/198.png" referrerpolicy="no-referrer">
+
+*****
+
+####  このママでいい  
+##### 104#       发表于 2024-10-29 23:54
+
+早晨三点起来钓鱼?这什么超人
+

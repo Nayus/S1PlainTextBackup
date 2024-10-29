@@ -3972,3 +3972,11 @@ meta要素又不稀奇。写的好，玩梗，专门做是三个层面的事情�
 
 —— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  TiiTiiLL  
+##### 3309#       发表于 2024-10-29 12:13
+
+马尔蒂拉小镇夜间广场的bgm是什么啊，翻遍了ost没找到
+

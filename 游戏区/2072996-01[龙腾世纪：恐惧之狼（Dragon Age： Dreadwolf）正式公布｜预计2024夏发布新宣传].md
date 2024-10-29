@@ -587,3 +587,14 @@ GS改成蓝分了，也就是不是正式出分之后还会改
 14年年度游戏10年才出汉化，哪有啥热度，粉丝只剩下结晶遗老了</blockquote>
 你是不是说反了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madcow  
+##### 719#       发表于 2024-10-29 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66566938&amp;ptid=2072996" target="_blank">约翰里德 发表于 2024-10-29 12:05</a>
+
+你是不是说反了</blockquote>
+天邈的汉化是今年出的吧，10年没毛病（
+

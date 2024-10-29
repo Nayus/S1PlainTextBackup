@@ -403,3 +403,24 @@ gs7分。
 
 不管我就是想玩<img src="https://static.saraba1st.com/image/smiley/face2017/265.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Pipcat  
+##### 700#       发表于 2024-10-29 08:47
+
+热度总算起来了，MC84分比想象中好很多
+
+看看吧，反正我暗喻还没打完
+
+*****
+
+####  operatbig  
+##### 701#       发表于 2024-10-29 08:50
+
+<blockquote>震荡波 发表于 2024-10-29 08:31
+gs7分。
+
+一个冒充lgbt才获得提前试玩的人透露：优化有问题，全程30有掉帧。每个职业技能组3套从头玩到尾， ...</blockquote>
+居然全线性，想退款了。
+

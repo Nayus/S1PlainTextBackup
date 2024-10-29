@@ -385,3 +385,14 @@ INTI CREATES老早就开始这种商法了，店特全是擦边色图<img src="h
 
 有没有人体验了NS版，这种游戏比较想拿手上玩，但是担心NS版又卡又难操作
 
+
+*****
+
+####  ルティナ  
+##### 103#       发表于 2024-10-29 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66567425&amp;ptid=2200160" target="_blank">heliosphere 发表于 2024-10-29 13:04</a>
+有没有人体验了NS版，这种游戏比较想拿手上玩，但是担心NS版又卡又难操作</blockquote>
+没买ns版
+不过这简陋的ui跟画面ns跑应该是没有任何问题的
+

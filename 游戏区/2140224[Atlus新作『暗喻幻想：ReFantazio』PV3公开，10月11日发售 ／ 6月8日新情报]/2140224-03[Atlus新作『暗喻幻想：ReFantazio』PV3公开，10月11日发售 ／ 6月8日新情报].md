@@ -4148,3 +4148,31 @@ meta要素又不稀奇。写的好，玩梗，专门做是三个层面的事情�
 昨天打到龙神迷宫了，坐牢感实在太强了，熬夜打到凌晨三点半不是这游戏有多好玩而是我在找存档点想赶紧存档 ...</blockquote>
 皇家职业不算的话，好兄弟的萨姆来 我感觉还真没 剑圣 清小怪舒服
 
+
+*****
+
+####  Jimlee080  
+##### 3325#       发表于 2024-10-29 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66567946&amp;ptid=2140224" target="_blank">lyjssj1 发表于 2024-10-29 14:14</a>
+
+笑死，因为论坛所谓的恶评而有了逆反心理去买了玩了。
+
+之前atlus只玩过世界树的全系列、真女神345全玩不下 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">大教堂在的序章应该算是体验最好的一部分了，等中期龙宫一过整个游戏全方位的垮掉
+
+
+*****
+
+####  忘却旋律  
+##### 3326#       发表于 2024-10-29 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66565940&amp;ptid=2140224" target="_blank">Khellendros 发表于 2024-10-29 10:22</a>
+
+所有人都学一下巫师11级的被动就无限蓝了，后面都是无脑开合题大招平推
+
+尤法入队之后推荐先学灵魂骇客吧， ...</blockquote>
+话说 我目前最终章了 感觉皇家召唤师 不如 灵魂骇客好用，我都把尤法放弃皇家职业 转灵魂骇客了，带个回蓝被动 万能伤害BUFF  美吉多拉  还有一个位置看情况，感觉比灵魂骇客好用多了，平时清小怪 直接美吉多拉砸，打BOSS 用 灵魂骇客的无视风抗的哪个，+伤害洗那多之剑+风伤，伤害居然还不低，话说既然无视风抗的技能是不是 相当于一个能打风弱点的 万能伤害了
+
+另外 洗那多之剑+的额外风伤（但是剑本体面板略低）和王中王500的面板哪个加成多啊 有测试过吗大佬（最近爽完沙加2 暗喻快收尾了但是没怎么玩这两天）
+

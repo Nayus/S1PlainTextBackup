@@ -4201,3 +4201,15 @@ meta要素又不稀奇。写的好，玩梗，专门做是三个层面的事情�
 —— 来自 S1Fun ...</blockquote>
 龙宫主要是迷宫太大存档点还少吧，然后过了龙宫就再没有大型迷宫了
 
+
+*****
+
+####  罗克萨斯  
+##### 3329#       发表于 2024-10-29 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66569594&amp;ptid=2140224" target="_blank">zero4166 发表于 2024-10-29 17:07</a>
+龙宫主要是迷宫太大存档点还少吧，然后过了龙宫就再没有大型迷宫了</blockquote>
+核心楼层就是带安全屋的那个，其它层其实都算是延伸，很容易就能再次绕回到安全屋。机关不为难人，刷蓝地方也多，正反馈挺强的，唯一槽点就是那个龙，第一次竟然给我无伤过了，菜到家了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -4352,3 +4352,11 @@ OP3这首感觉是上层地震前做的<img src="https://static.saraba1st.com/im
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  ads147147  
+##### 419#       发表于 2024-10-29 09:42
+
+目标只是看到可回的话，这次应该是满足了，反正我目标也不高，唯一可惜的是恋这个角色还是一团浆糊。
+

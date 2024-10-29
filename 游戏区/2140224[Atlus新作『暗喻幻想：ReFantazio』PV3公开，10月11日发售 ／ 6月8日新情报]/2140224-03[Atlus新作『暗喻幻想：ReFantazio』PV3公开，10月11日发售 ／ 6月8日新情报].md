@@ -4036,3 +4036,25 @@ meta要素又不稀奇。写的好，玩梗，专门做是三个层面的事情�
 更难崩的是你不秒他他秒你 ...</blockquote>
 没有啊，灰雨的皇家职业被动技能一出敌方攻击灰雨全是miss，秒不了
 
+
+*****
+
+####  2015年入股市  
+##### 3315#       发表于 2024-10-29 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66565461&amp;ptid=2140224" target="_blank">modkingr 发表于 2024-10-29 09:16</a>
+
+进到山城之后每天可以买一个全体清异常的包子根本也不用治疗职业了</blockquote>
+全体清异常有“灵丹妙药”无限量买，也不用包子啊，倒是没有mp药需要加mp包子
+
+
+*****
+
+####  2015年入股市  
+##### 3316#       发表于 2024-10-29 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66568637&amp;ptid=2140224" target="_blank">2015年入股市 发表于 2024-10-29 15:35</a>
+
+全体清异常有“灵丹妙药”无限量买，也不用包子啊，倒是没有mp药需要加mp包子 ...</blockquote>
+“灵丹妙药”就是那个王都征兵所旁边的面具老板在红日之后有卖，就是需要手动点一次买一个不能批量买
+

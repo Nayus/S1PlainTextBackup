@@ -2164,3 +2164,11 @@ https://gamerch.com/wizardry-daphne/
 
 青铜升格测试好难，只能水都和土偶魔窟来回捡垃圾，升级装备，坐牢一段时间。另外，主角心泉的升级泪滴怎么获得的啊？
 
+
+*****
+
+####  zzy516232108  
+##### 250#       发表于 2024-10-29 18:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这游戏加点在怎么点比较好啊？
+

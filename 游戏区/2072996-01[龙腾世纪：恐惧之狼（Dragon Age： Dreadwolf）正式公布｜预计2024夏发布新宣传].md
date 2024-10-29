@@ -569,3 +569,21 @@ GS改成蓝分了，也就是不是正式出分之后还会改
 比起评分，龙腾这游戏的国内热度可是真低，国内那些自媒体平台一点水花都没有，完全是无人问津的状态。 ...</blockquote>
 14年年度游戏10年才出汉化，哪有啥热度，粉丝只剩下结晶遗老了
 
+
+*****
+
+####  popchong  
+##### 717#       发表于 2024-10-29 12:00
+
+部分谭友说我反ZZZQ反魔怔了，但我还是要重申，DEI的泛滥就是一个你死我活的问题，游戏的开发资源有限，向DEI内容大量倾斜的后果，必然是对玩家喜闻乐见内容的删减。
+
+
+*****
+
+####  约翰里德  
+##### 718#       发表于 2024-10-29 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66566785&amp;ptid=2072996" target="_blank">假布偶是臭猪 发表于 2024-10-29 11:51</a>
+14年年度游戏10年才出汉化，哪有啥热度，粉丝只剩下结晶遗老了</blockquote>
+你是不是说反了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

@@ -4213,3 +4213,15 @@ meta要素又不稀奇。写的好，玩梗，专门做是三个层面的事情�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  NEIN  
+##### 3330#       发表于 2024-10-29 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66569232&amp;ptid=2140224" target="_blank">忘却旋律 发表于 2024-10-29 16:32</a>
+还是练到巫师11级 一个加护祝福什么的被动，身上有 加攻防命中回避的这3个任意一个BUFF 每回合回10点，简 ...</blockquote>
+巫师确实是必须要开的阿基态了，合体威力提升/消耗减半/buff回蓝都在这条线上，实用性拉满
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

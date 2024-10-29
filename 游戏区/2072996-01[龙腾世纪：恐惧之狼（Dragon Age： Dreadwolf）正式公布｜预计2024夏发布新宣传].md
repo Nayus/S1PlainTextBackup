@@ -693,3 +693,13 @@ GS改成蓝分了，也就是不是正式出分之后还会改
 仿佛悟空进了一个妖怪洞</blockquote>
 经典woke审美时装
 
+
+*****
+
+####  pgain2004  
+##### 729#       发表于 2024-10-29 20:47
+
+[https://www.youtube.com/watch?v=QF-Kd2BBpx8](https://www.youtube.com/watch?v=QF-Kd2BBpx8)
+
+看完评测……嘿。
+

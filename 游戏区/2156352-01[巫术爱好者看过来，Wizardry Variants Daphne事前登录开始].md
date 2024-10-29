@@ -2219,3 +2219,15 @@ https://gamerch.com/wizardry-daphne/
 
 運        さまざまな行動の結果
 
+
+*****
+
+####  战术核辣条  
+##### 252#       发表于 2024-10-29 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66568828&amp;ptid=2156352" target="_blank">赛尔法斯特 发表于 2024-10-29 15:54</a>
+青铜升格测试好难，只能水都和土偶魔窟来回捡垃圾，升级装备，坐牢一段时间。另外，主角心泉的升级泪滴怎么 ...</blockquote>
+把灯笼点了就有技能点了
+
+—— 来自 nubia NX729J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

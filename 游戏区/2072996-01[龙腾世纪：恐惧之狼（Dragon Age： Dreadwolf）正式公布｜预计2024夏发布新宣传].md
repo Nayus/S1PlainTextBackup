@@ -618,3 +618,13 @@ GS改成蓝分了，也就是不是正式出分之后还会改
 
 从DAO看到如今的DA4只会觉得恶心，一点不会有玩的想法。
 
+
+*****
+
+####  199april  
+##### 722#       发表于 2024-10-29 12:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">超越以前所有zzzq游戏的存在，在zzzq里面做了个游戏
+
+旧生软的人都跑了吧，鸠占鹊巢的典型了属于是
+

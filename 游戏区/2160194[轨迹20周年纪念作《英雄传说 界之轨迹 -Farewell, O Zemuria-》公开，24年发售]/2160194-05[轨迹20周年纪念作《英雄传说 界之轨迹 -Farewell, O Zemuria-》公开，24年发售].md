@@ -9053,3 +9053,37 @@ nayuta
 屏幕还能塞得下！吗？
 <img src="https://p.sda1.dev/19/f6804a0d992b6e0ddeddba0bc2ee9973/CMP_20241029130447037.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tmmd  
+##### 6760#       发表于 2024-10-29 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66551879&amp;ptid=2160194" target="_blank">秘银mithril 发表于 2024-10-27 11:38</a>
+
+草 第一章晚上亚伦的连接事件怎么还解锁S技的
+
+不选的话会缺一个吗？还是之后会等级解锁 ...</blockquote>
+不会.就算你不走连接事件,第二天的某个时间点某个主线迷宫阿龙会自言自语一句要拿出真本事然后解锁新S技
+
+
+*****
+
+####  tmmd  
+##### 6761#       发表于 2024-10-29 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66528620&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-10-24 09:13</a>
+
+刷到快34了才开完桃花剑的槽，回路还没配好，还有三个人，法老控你说你为啥要修这种良性bug呢 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">大概是为了更好卖晶片dlc吧
+
+*****
+
+####  tmmd  
+##### 6762#       发表于 2024-10-29 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66567432&amp;ptid=2160194" target="_blank">flxgundam 发表于 2024-10-29 13:06</a>
+
+屏幕还能塞得下！吗？</blockquote>
+视角可以拉远一点,没问题的!
+

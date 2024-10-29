@@ -2172,3 +2172,50 @@ https://gamerch.com/wizardry-daphne/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这游戏加点在怎么点比较好啊？
 
+
+*****
+
+####  elven119  
+##### 251#         楼主| 发表于 2024-10-29 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66570552&amp;ptid=2156352" target="_blank">zzy516232108 发表于 2024-10-29 18:46</a>
+
+这游戏开局注册冒险者 怎么加点比较好啊？
+
+没玩过传统巫术 只玩过日本人的世界树 那个自动加点的 ...</blockquote>
+戦士
+
+力＞器用さ&gt;生命力
+
+騎士
+
+生命力≧信仰心
+
+盗賊
+
+器用さ＞素早さ＝力＞運
+
+僧侶
+
+信仰心＞生命力
+
+魔術師
+
+知恵&gt;素早さ&gt;生命力
+
+ステータス        特性値が影響する項目
+
+力        攻撃力、SP
+
+知恵        魔力、MP、探知
+
+信仰心        神力、抵抗、魔術防御、MP
+
+生命力        抵抗、物理防御、HP、SP
+
+素早さ        回避、罠回避、会心回避、行動速度
+
+器用さ        命中、会心、罠解除
+
+運        さまざまな行動の結果
+

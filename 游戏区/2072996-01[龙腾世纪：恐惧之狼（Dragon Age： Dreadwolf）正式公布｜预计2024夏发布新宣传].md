@@ -471,3 +471,33 @@ GS改成蓝分了，也就是不是正式出分之后还会改
 
 毕竟他们都没打完一周目（才打了30个小时，大概才一半的流程）
 
+
+*****
+
+####  pygrads  
+##### 707#       发表于 2024-10-29 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66565862&amp;ptid=2072996" target="_blank">jf8350143 发表于 2024-10-29 10:13</a>
+
+GS改成蓝分了，也就是不是正式出分之后还会改
+
+毕竟他们都没打完一周目（才打了30个小时，大概才一半的流程 ...</blockquote>
+别改了之后分比之前更低了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zris  
+##### 708#       发表于 2024-10-29 10:56
+
+都龙腾贴吧了
+
+还不让人喜欢吗？
+
+*****
+
+####  三世十方  
+##### 709#       发表于 2024-10-29 10:57
+
+退款了，整这么多场外很难让人相信游戏本身还能做好<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

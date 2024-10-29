@@ -711,3 +711,13 @@ GS改成蓝分了，也就是不是正式出分之后还会改
 
 一个剑与魔法的奇幻背景，对话里居然会直接写“non-binary”和讨论代词，骇死我了
 
+
+*****
+
+####  petrouchka  
+##### 731#       发表于 2024-10-29 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66572093&amp;ptid=2072996" target="_blank">Algie 发表于 2024-10-29 21:48</a>
+一个剑与魔法的奇幻背景，对话里居然会直接写“non-binary”和讨论代词，骇死我了 ...</blockquote>
+DAI里我记得就有trans了啊，依稀记得是铁牛那边阵营的
+

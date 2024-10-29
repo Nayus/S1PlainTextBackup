@@ -798,3 +798,13 @@ Steam必入神作
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最近dlc发售了,新开档重新手搓轮子十分痛苦,上个存档已经是4年前了
 
+
+*****
+
+####  oyss  
+##### 85#       发表于 2024-10-29 22:12
+
+旧档直接玩才痛苦吧,都忘差不多了,看着一团麻都不知道该干啥好.
+
+正好重头来一遍理一理思路.
+

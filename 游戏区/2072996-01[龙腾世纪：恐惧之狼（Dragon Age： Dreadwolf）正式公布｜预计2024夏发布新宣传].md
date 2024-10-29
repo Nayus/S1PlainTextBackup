@@ -751,3 +751,31 @@ MODERN DnD,MODERN FANTASY
 
 不如说早就同化了，主打的就是包容多元
 
+
+*****
+
+####  Algie  
+##### 733#       发表于 2024-10-29 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66572348&amp;ptid=2072996" target="_blank">petrouchka 发表于 2024-10-29 22:12</a>
+
+DAI里我记得就有trans了啊，依稀记得是铁牛那边阵营的</blockquote>
+我是说直接使用这种近几十年才产生的现代社会词汇，听起来像是异世界转生的一样
+
+
+*****
+
+####  ak123  
+##### 734#       发表于 2024-10-29 23:25
+
+本质上还是从业者没文化，导致古装题材不管是台词还是世界观塑造都一坨，欧米版本纯粹是现代弱智厕纸剧情+lgbt贵物私货骑脸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  瘦猪与肥猴  
+##### 735#       发表于 2024-10-29 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66572348&amp;ptid=2072996" target="_blank">petrouchka 发表于 2024-10-29 22:12</a>
+DAI里我记得就有trans了啊，依稀记得是铁牛那边阵营的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">审判里面队友多利安的老爸，一个塔文特大法师不介意儿子是基佬，就在乎基佬儿子不能留后代。计划把儿子变性成女性。铁牛那个副队长还是女斜坡配音呢，实际上没变性。就是一直认为自己是男的
+

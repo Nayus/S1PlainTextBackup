@@ -1133,3 +1133,15 @@ mercury到过了是吧
 
 刚拿到鲑鱼，越玩越觉得这游戏战斗打着难受。不知道是不是我玩的方式有问题，感觉有效的输出也就暗杀者的致命一击和法爷最高级的魔法，要狂砸魔法还得带药师猛灌蓝瓶，看着搭配丰富但是体验单调感觉有点幻视XB3<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blackll7  
+##### 90#         楼主| 发表于 2024-10-29 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66570461&amp;ptid=2068019" target="_blank">kerbad 发表于 2024-10-29 18:35</a>
+刚拿到鲑鱼，越玩越觉得这游戏战斗打着难受。不知道是不是我玩的方式有问题，感觉有效的输出也就暗杀者的致 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">暗杀不是前中期最菜的吗，前中期是双手和全体魔法的天下（能耗有办法减）
+
+—— 来自 OnePlus CPH2487, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

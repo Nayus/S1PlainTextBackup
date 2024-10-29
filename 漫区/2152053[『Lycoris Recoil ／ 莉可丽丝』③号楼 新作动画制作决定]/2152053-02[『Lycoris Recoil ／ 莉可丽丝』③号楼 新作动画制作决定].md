@@ -70,3 +70,19 @@
 
 她是真喜欢大金链子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  osore  
+##### 2015#       发表于 2024-10-29 15:08
+
+顺便，千束那身黑色造型让我想起GBF的gunslinger这个职业
+
+<img src="https://img.saraba1st.com/forum/202410/29/150440s35x6z3ix5xoa3xz.jpg" referrerpolicy="no-referrer">
+
+<strong>gunslinger.jpg</strong> (181.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-29 15:04 上传
+

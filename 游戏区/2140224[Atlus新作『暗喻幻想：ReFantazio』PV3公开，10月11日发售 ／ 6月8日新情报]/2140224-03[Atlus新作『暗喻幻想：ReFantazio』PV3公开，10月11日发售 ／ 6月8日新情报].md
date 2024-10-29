@@ -4176,3 +4176,15 @@ meta要素又不稀奇。写的好，玩梗，专门做是三个层面的事情�
 
 另外 洗那多之剑+的额外风伤（但是剑本体面板略低）和王中王500的面板哪个加成多啊 有测试过吗大佬（最近爽完沙加2 暗喻快收尾了但是没怎么玩这两天）
 
+
+*****
+
+####  罗克萨斯  
+##### 3327#       发表于 2024-10-29 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66569284&amp;ptid=2140224" target="_blank">Jimlee080 发表于 2024-10-29 16:37</a>
+大教堂在的序章应该算是体验最好的一部分了，等中期龙宫一过整个游戏全方位的垮掉 ...</blockquote>
+龙宫我咋感觉比大教堂还爽，但看社区却一片骂声，仿佛玩的不是一个游戏<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

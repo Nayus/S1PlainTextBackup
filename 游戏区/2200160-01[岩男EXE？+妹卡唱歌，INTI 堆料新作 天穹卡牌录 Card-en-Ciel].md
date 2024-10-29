@@ -409,3 +409,13 @@ INTI CREATES老早就开始这种商法了，店特全是擦边色图<img src="h
 不过这简陋的ui跟画面ns跑应该是没有任何问题的</blockquote>
 我对NS有点不信任（谁能想到玩逆检复刻的时候遇到大点的调查场景它都会掉帧呢
 
+
+*****
+
+####  wilkyway  
+##### 105#       发表于 2024-10-29 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66569221&amp;ptid=2200160" target="_blank">heliosphere 发表于 2024-10-29 16:31</a>
+我对NS有点不信任（谁能想到玩逆检复刻的时候遇到大点的调查场景它都会掉帧呢 ...</blockquote>
+不是有demo嘛 画质低下和掉帧都有 不过玩还是能玩没啥影响 毕竟打牌游戏
+

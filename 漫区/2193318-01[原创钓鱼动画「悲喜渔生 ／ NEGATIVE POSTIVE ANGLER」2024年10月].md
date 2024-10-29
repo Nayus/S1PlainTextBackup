@@ -1094,3 +1094,31 @@ ed舒服不少
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  Piano-Forest  
+##### 102#         楼主| 发表于 2024-10-29 21:12
+
+第5話「散財アングラー」
+
+初めての給料日。常宏はハナとこずえと初めて大型釣り具店に向かう。右も左も分からない常宏に優しくレクチャーするこずえに、常宏はデートのようだと浮かれるが…
+
+脚本：鈴木智尋
+
+絵コンテ・演出：室井ふみえ
+
+演出補佐：松原 聡
+
+総作画監督：谷口宏美
+
+作画監督：日向正樹、永田大樹
+
+作画監督補佐：緒方歩惟、栗田新
+<img src="https://p.sda1.dev/19/dcb368ef8fb916537da65acc47f8192f/p_001.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/9a18ccd8fa8e8efcf7cb1fc9a184e195/p_002.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/5c78ab62d3749c35e06738aa493f21e5/p_003.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/2568df2ee79e1779c8bfa218c3aa08b8/p_004.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/2d0a5967fbb5d91e6e66749403aca85e/pic006.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/59edce980c89268730f54d0f8aad6dc4/p_005.jpg" referrerpolicy="no-referrer">
+

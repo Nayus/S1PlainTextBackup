@@ -2231,3 +2231,18 @@ https://gamerch.com/wizardry-daphne/
 
 —— 来自 nubia NX729J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  战术核辣条  
+##### 253#       发表于 2024-10-29 21:07
+
+ 本帖最后由 战术核辣条 于 2024-10-29 21:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66570552&amp;ptid=2156352" target="_blank">zzy516232108 发表于 2024-10-29 18:46</a>
+这游戏开局注册冒险者 怎么加点比较好啊？
+没玩过传统巫术 只玩过日本人的世界树 那个自动加点的 ...</blockquote>
+全加主属性或者补速，盗贼可以考虑补力
+考虑到属性成长在50级的情况下有可能自然成长差出10点左右，我个人觉得奖励点还是全加主属性比较好起码角色完全废掉的概率低一点<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX729J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

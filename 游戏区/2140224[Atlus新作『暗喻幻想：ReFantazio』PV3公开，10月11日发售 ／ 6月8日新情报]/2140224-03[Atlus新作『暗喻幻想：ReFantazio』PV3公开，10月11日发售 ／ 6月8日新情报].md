@@ -4225,3 +4225,25 @@ meta要素又不稀奇。写的好，玩梗，专门做是三个层面的事情�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  猫沢  
+##### 3331#       发表于 2024-10-29 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66568140&amp;ptid=2140224" target="_blank">xifeilu 发表于 2024-10-29 14:41</a>
+ 好奇问问，这游戏偷窃概率怎么算的……我现在在坟墓里偷那些骷髅兵，已经三个人有偷窃技能了，先手晕了骷髅 ...</blockquote>
+没偷到用那个直接重新开始战斗功能就行。
+
+*****
+
+####  Jimlee080  
+##### 3332#       发表于 2024-10-29 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66569371&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-10-29 16:47</a>
+
+龙宫我咋感觉比大教堂还爽，但看社区却一片骂声，仿佛玩的不是一个游戏
+
+—— 来自 S1Fun ...</blockquote>
+龙宫这种drpg味重的长流程迷宫还是很挑人的，社区主流接受不了很正常<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">反正我也是龙宫玩爽了，结果后面的迷宫一个比一个拉跨
+

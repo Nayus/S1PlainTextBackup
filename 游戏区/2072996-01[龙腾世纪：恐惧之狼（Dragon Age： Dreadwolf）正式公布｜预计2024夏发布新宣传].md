@@ -501,3 +501,21 @@ GS改成蓝分了，也就是不是正式出分之后还会改
 
 退款了，整这么多场外很难让人相信游戏本身还能做好<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pp1349  
+##### 710#       发表于 2024-10-29 10:59
+
+龙腾吧结晶成那样还有人能看的下去吗<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+
+
+*****
+
+####  itsmyrailgun  
+##### 711#       发表于 2024-10-29 11:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">Skillup的评论太给劲了，我怎么没想到呢？
+

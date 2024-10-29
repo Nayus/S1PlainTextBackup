@@ -437,3 +437,14 @@ Inti只有pc和ps适配出奇奇怪怪的小问题，特别是ps4移植5各种�
 
 全卡都见过了还差几张没拿过，但歌姬还差几个见都没见过的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">是只有个别关卡或者线上关卡才能遇到吗
 
+
+*****
+
+####  101207777  
+##### 108#       发表于 2024-10-29 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66570373&amp;ptid=2200160" target="_blank">仓鼠吃火锅 发表于 2024-10-29 18:27</a>
+
+全卡都见过了还差几张没拿过，但歌姬还差几个见都没见过的是只有个别关卡或者线上关卡才能遇到吗 ...</blockquote>
+每个迷宫能碰到的卡不同，有缺的可以看下哪个迷宫有缺
+

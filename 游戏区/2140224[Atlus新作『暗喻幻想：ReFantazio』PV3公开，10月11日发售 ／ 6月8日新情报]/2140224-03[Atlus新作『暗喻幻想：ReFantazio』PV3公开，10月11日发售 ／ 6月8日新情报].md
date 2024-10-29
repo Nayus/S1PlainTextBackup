@@ -4265,3 +4265,15 @@ meta要素又不稀奇。写的好，玩梗，专门做是三个层面的事情�
 
 —— 来自 OnePlus MT2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
+
+*****
+
+####  jxzeroga0  
+##### 3335#       发表于 2024-10-29 18:47
+
+ 本帖最后由 jxzeroga0 于 2024-10-29 18:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66569232&amp;ptid=2140224" target="_blank">忘却旋律 发表于 2024-10-29 16:32</a>
+
+还是练到巫师11级 一个加护祝福什么的被动，身上有 加攻防命中回避的这3个任意一个BUFF 每回合回10点，简 ...</blockquote>
+主要也就中期龙宫比较好用，主魔玩法靠这个基本无损打完了龙宫。到后面也没有这么长的迷宫了，而小怪全是一回合秒，也就打boss合体会有点消耗。后期动不动88的消耗靠10点回蓝真闹不住，到了王城迷宫用mp200包子砸过去快一些。
+

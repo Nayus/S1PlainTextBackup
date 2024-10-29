@@ -377,3 +377,11 @@ INTI CREATES老早就开始这种商法了，店特全是擦边色图<img src="h
 
 这玩意比暗喻幻想好玩多了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  heliosphere  
+##### 102#       发表于 2024-10-29 13:04
+
+有没有人体验了NS版，这种游戏比较想拿手上玩，但是担心NS版又卡又难操作
+

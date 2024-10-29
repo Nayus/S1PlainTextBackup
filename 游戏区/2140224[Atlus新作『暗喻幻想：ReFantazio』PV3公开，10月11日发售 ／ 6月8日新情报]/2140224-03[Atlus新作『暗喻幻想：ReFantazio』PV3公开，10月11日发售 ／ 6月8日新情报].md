@@ -4058,3 +4058,25 @@ meta要素又不稀奇。写的好，玩梗，专门做是三个层面的事情�
 全体清异常有“灵丹妙药”无限量买，也不用包子啊，倒是没有mp药需要加mp包子 ...</blockquote>
 “灵丹妙药”就是那个王都征兵所旁边的面具老板在红日之后有卖，就是需要手动点一次买一个不能批量买
 
+
+*****
+
+####  Khellendros  
+##### 3317#       发表于 2024-10-29 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66568140&amp;ptid=2140224" target="_blank">xifeilu 发表于 2024-10-29 14:41</a>
+
+好奇问问，这游戏偷窃概率怎么算的……我现在在坟墓里偷那些骷髅兵，已经三个人有偷窃技能了，先手晕了骷髅 ...</blockquote>
+第二章主线迷宫宝箱里有加偷窃成功率的饰品，让灰羽带着很容易偷
+
+后期还有消耗10mp的高概率偷窃技能
+
+*****
+
+####  jxzeroga0  
+##### 3318#       发表于 2024-10-29 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66568140&amp;ptid=2140224" target="_blank">xifeilu 发表于 2024-10-29 14:41</a>
+好奇问问，这游戏偷窃概率怎么算的……我现在在坟墓里偷那些骷髅兵，已经三个人有偷窃技能了，先手晕了骷髅 ...</blockquote>
+第二个城镇主线迷宫下水道有提升偷窃概率饰品，灰雨戴上概率就很高了
+

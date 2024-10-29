@@ -1082,3 +1082,15 @@ ed舒服不少
 
 这个主角团配置我猜连正经感情戏都不太可能会有
 
+
+*****
+
+####  亚瑟邓特  
+##### 101#       发表于 2024-10-29 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66569502&amp;ptid=2193318" target="_blank">rushsong 发表于 2024-10-29 17:01</a>
+不懂为啥有些人对于男性的人际关系那么敏感，bangumi也一堆担心会有gay展开的，在我看来这种粉毛对男主行为 ...</blockquote>
+是啊，为什么呢，这就要问问环境了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

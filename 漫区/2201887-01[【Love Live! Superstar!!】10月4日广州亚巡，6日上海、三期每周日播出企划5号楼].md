@@ -4342,3 +4342,13 @@ OP3这首感觉是上层地震前做的<img src="https://static.saraba1st.com/im
 
 代哥最能炒的时候还要追溯到去年这时候歌查德的大金蛋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  奥柏伦亲王  
+##### 418#       发表于 2024-10-29 08:59
+
+看了发售活动和星三期想来感慨一下好起来了，发现原来我才是最乐观的那个<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

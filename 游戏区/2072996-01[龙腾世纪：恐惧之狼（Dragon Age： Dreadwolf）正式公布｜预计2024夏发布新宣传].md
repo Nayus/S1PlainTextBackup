@@ -424,3 +424,32 @@ gs7分。
 一个冒充lgbt才获得提前试玩的人透露：优化有问题，全程30有掉帧。每个职业技能组3套从头玩到尾， ...</blockquote>
 居然全线性，想退款了。
 
+
+*****
+
+####  back57992  
+##### 702#       发表于 2024-10-29 09:03
+
+GS还是比较靠谱的 至少比IGN靠谱太多了
+
+*****
+
+####  卡拉德利姆  
+##### 703#       发表于 2024-10-29 09:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66565284&amp;ptid=2072996" target="_blank">operatbig 发表于 2024-10-29 08:50</a>
+居然全线性，想退款了。</blockquote>
+这个所谓的提前测评者大概率是假的，不能因为说了人想听的话就全盘接受
+
+*****
+
+####  PROCAINUM  
+##### 704#       发表于 2024-10-29 09:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66565153&amp;ptid=2072996" target="_blank">震荡波 发表于 2024-10-29 08:31</a>
+
+gs7分。
+
+一个冒充lgbt才获得提前试玩的人透露：优化有问题，全程30有掉帧。每个职业技能组3套从头玩到尾， ...</blockquote>
+之前那个说冒充LGBT拿到测评的明显是假的好吧，那么多打60分的都没说优化有问题，现在都有大量视频了可以去看看画面咋样。现在来看对于我来说最大雷点是像银河护卫队，队友很欢乐，ROOK不能做坏人<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+

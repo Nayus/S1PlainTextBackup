@@ -721,3 +721,33 @@ GS改成蓝分了，也就是不是正式出分之后还会改
 一个剑与魔法的奇幻背景，对话里居然会直接写“non-binary”和讨论代词，骇死我了 ...</blockquote>
 DAI里我记得就有trans了啊，依稀记得是铁牛那边阵营的
 
+
+*****
+
+####  zzf111  
+##### 732#       发表于 2024-10-29 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66572093&amp;ptid=2072996" target="_blank">Algie 发表于 2024-10-29 21:48</a>
+
+一个剑与魔法的奇幻背景，对话里居然会直接写“non-binary”和讨论代词，骇死我了 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202410/29/225629fqnpk5a458a8qhfa.jpg" referrerpolicy="no-referrer">
+
+<strong>1730133058161243.jpg</strong> (907.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-29 22:56 上传
+
+<img src="https://img.saraba1st.com/forum/202410/29/225634h8gis2u8uzirbuu8.png" referrerpolicy="no-referrer">
+
+<strong>1790199198489891.png</strong> (968.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-29 22:56 上传
+
+MODERN DnD,MODERN FANTASY
+
+不如说早就同化了，主打的就是包容多元
+

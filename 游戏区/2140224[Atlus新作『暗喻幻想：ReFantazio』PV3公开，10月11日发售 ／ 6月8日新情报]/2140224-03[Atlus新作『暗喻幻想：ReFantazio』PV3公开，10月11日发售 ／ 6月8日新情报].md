@@ -4285,3 +4285,28 @@ meta要素又不稀奇。写的好，玩梗，专门做是三个层面的事情�
 
 其实到龙宫那里怎么也能做10多个mp100群回的料理了，根本不会缺mp。还有除了需求合题威力上升被动、超越和王者前置的角色外，包括主角在内的其余角色游戏全程都不需要学术士刷小怪恢复mp。游戏里唯一会缺mp的点也就是大教堂了，提前备足hp恢复药，也就不缺mp了。
 
+
+*****
+
+####  saverok  
+##### 3337#       发表于 2024-10-29 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66567946&amp;ptid=2140224" target="_blank">lyjssj1 发表于 2024-10-29 14:14</a>
+
+笑死，因为论坛所谓的恶评而有了逆反心理去买了玩了。
+
+之前atlus只玩过世界树的全系列、真女神345全玩不下 ...</blockquote>
+每个像你这样开香槟的回头都会来骂的，不着急<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  saverok  
+##### 3338#       发表于 2024-10-29 22:58
+
+xi
+
+<blockquote>you<a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66569265&amp;ptid=2140224" target="_blank">忘却旋律 发表于 2024-10-29 16:35</a>
+
+皇家职业不算的话，好兄弟的萨姆来 我感觉还真没 剑圣 清小怪舒服</blockquote>
+萨姆来纯纯弱智，不过游戏钦定王家职业才是最终职业，途中的屎该吃就得吃
+

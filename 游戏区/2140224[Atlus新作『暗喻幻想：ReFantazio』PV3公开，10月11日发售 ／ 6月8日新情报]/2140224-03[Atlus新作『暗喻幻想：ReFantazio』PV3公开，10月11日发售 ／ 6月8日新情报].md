@@ -4103,3 +4103,14 @@ meta要素又不稀奇。写的好，玩梗，专门做是三个层面的事情�
 全队刷巫师移植回蓝被动 然后把怪敲晕 空过到眩晕结束前一动 然后逃跑 ...</blockquote>
 要是怪等级太低地图上攻击只会打死压根进不了战斗呢
 
+
+*****
+
+####  jxzeroga0  
+##### 3321#       发表于 2024-10-29 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66569004&amp;ptid=2140224" target="_blank">2015年入股市 发表于 2024-10-29 16:10</a>
+
+要是怪等级太低地图上攻击只会打死压根进不了战斗呢</blockquote>
+主角魔法师地图攻击被动杀怪+1直接开刷，后期每天买个200mp包子，续航基本不太成问题
+

@@ -1145,3 +1145,16 @@ mercury到过了是吧
 
 —— 来自 OnePlus CPH2487, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  kerbad  
+##### 91#       发表于 2024-10-29 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66571955&amp;ptid=2068019" target="_blank">blackll7 发表于 2024-10-29 21:31</a>
+
+暗杀不是前中期最菜的吗，前中期是双手和全体魔法的天下（能耗有办法减）
+
+—— 来自 OnePlus CPH2487, A ...</blockquote>
+原来是这样吗，我体感物理用着顺手的就暗杀和收割者，现在拿到时魔能放群体大魔法也好。召唤师拿了还没找召唤兽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -445,3 +445,41 @@ https://zh-hk/concept/10008864
 dark and darker本来有希望大火的一波官司打费了
 大逃杀英雄射击现在都一片红了，只能往逃离卷了
 
+
+*****
+
+####  泰坦失足  
+##### 47#       发表于 2024-10-29 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66568517&amp;ptid=2135998" target="_blank">zzy516232108 发表于 2024-10-29 15:24</a>
+
+MCC打哪个多人比较多啊，我老光环多人其实没玩过，土命的多人玩的多
+
+无限PVP现在就剩下老狗了，刚开服的 ...</blockquote>
+我两年前的经验是：Halo2周年版在画面和Halo味游戏上取得了平衡，Halo3/Reach画面太老了，Halo1（含周年）画面也不咋地，设计也很早期。Halo4变的太多了，人称小Cod或者小Halo5
+
+*****
+
+####  idkenji  
+##### 48#       发表于 2024-10-29 15:58
+
+惑星是找的港译吧，香港这边一直都是把行星叫惑星
+
+
+*****
+
+####  operatbig  
+##### 49#       发表于 2024-10-29 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66568523&amp;ptid=2135998" target="_blank">爱护动物抓根宝 发表于 2024-10-29 15:24</a>
+
+这几年有做成的新撤离游戏吗，欧美厂商着了魔似的往里挤，cod往死里推dmz都没什么人去玩 ...</blockquote>
+dmz人还是挺多的，但没氪金点动视自己放弃了。
+
+*****
+
+####  OkaJu  
+##### 50#       发表于 2024-10-29 16:01
+
+明明看pv这酸性风格的美术这么惊艳的，这是又被献祭了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

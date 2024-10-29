@@ -2296,3 +2296,16 @@ https://gamerch.com/wizardry-daphne/
 
              智惠(法师)
 
+
+*****
+
+####  战术核辣条  
+##### 257#       发表于 2024-10-30 02:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66572810&amp;ptid=2156352" target="_blank">lesword 发表于 2024-10-29 22:53</a>
+它这个属性成长好像是有阶段属性上限的，类似火纹结合那种，只是每个阶段都有个总属性合计和每项上限，只 ...</blockquote>
+有效属性毕竟还是有限的，法师的力高了也没有用，我在5ch看他们截图最倒霉的50lvエカテ是52点知，最高的可以到69点
+虽然实际看面板下来我感觉主属性差距转化成面板的效率不高，远不如装备多个词条牛逼
+
+—— 来自 nubia NX729J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

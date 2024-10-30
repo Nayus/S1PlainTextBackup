@@ -18,3 +18,11 @@
 
 (真男团现在商法也贵那当我没说
 
+
+*****
+
+####  Devi_Lito  
+##### 832#       发表于 2024-10-30 20:44
+
+出道2个半月，雲母たまこ总算是想到开电吉他练习回了，虽然弹得挺好的但直播里依然写了“切り抜きNG”，只能说底边都是有底边的道理的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

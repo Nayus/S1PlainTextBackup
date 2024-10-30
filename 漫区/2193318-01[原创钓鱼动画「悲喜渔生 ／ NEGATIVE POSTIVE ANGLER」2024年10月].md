@@ -1183,3 +1183,16 @@ ed舒服不少
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  olico  
+##### 106#       发表于 2024-10-30 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66573852&amp;ptid=2193318" target="_blank">concert 发表于 2024-10-30 05:13</a>
+
+问问路亚需要挂活虾之类的真饵吗
+
+论坛助手,iPhone</blockquote>
+路亚这种钓法区别于其他钓法的根本就是用假饵，同一套杆轮你只要用的不是假饵就不能叫路亚，反过来你就是拿个矿泉水瓶卷线，用钩子串着烟头这也是路亚钓。
+

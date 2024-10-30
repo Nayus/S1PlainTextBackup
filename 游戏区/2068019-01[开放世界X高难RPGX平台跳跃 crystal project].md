@@ -1235,3 +1235,16 @@ mercury到过了是吧
 
 隐藏迷宫有两个还是三个，需要解密和跳跳乐，npc会给点大致的提示，隐藏boss就一大堆了
 
+
+*****
+
+####  库德里尔  
+##### 99#       发表于 2024-10-30 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66574493&amp;ptid=2068019" target="_blank">black1991518 发表于 2024-10-30 09:11</a>
+
+隐藏迷宫有两个还是三个，需要解密和跳跳乐，npc会给点大致的提示，隐藏boss就一大堆了 ...</blockquote>
+世界树那个我纯手搓走了1/3……后来老老实实去养金quintar了。
+
+水底下的那一大堆隐藏boss我一只都打不过。
+

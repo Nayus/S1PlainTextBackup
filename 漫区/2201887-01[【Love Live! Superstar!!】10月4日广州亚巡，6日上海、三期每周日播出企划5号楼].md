@@ -4476,3 +4476,34 @@ OP3这首感觉是上层地震前做的<img src="https://static.saraba1st.com/im
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  ads147147  
+##### 431#       发表于 2024-10-30 09:27
+
+你拉虽然没拉彩虹旗，但是很明显在轻百合里也算比较重的那种了，真的会有老登受不了这个？应该反过来说老登受不了你拉出现男人吧，你花可是费尽心思让香音和恋恋的老爹消失。
+
+说起来，真要说真地雷，个人来看应该是写外国人，特别是写中国人对于这部动画来说才是一种大事，容易得罪一边甚至是两边都得罪，且看下周京极和花田如何表演。
+
+*****
+
+####  Totokei  
+##### 432#       发表于 2024-10-30 09:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你拉最后一次bg营业怕不是snow hala的pv
+
+之后不都当百合作品看了
+
+*****
+
+####  ads147147  
+##### 433#       发表于 2024-10-30 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66574650&amp;ptid=2201887" target="_blank">Totokei 发表于 2024-10-30 09:29</a>
+
+你拉最后一次bg营业怕不是snow hala的pv
+
+之后不都当百合作品看了</blockquote>
+二单pv附赠的广播剧里还是少女怀春了，一股爱马仕的味道。
+

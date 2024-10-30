@@ -816,3 +816,11 @@ Steam必入神作
 
 DLC版本改了好多配方，直接用老档改产线都头大，还不如开新档重新玩<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Benighted  
+##### 87#       发表于 2024-10-30 09:28
+
+属于那种想回坑又不敢的游戏，每次玩上头就连续打好几天
+

@@ -1196,3 +1196,54 @@ ed舒服不少
 论坛助手,iPhone</blockquote>
 路亚这种钓法区别于其他钓法的根本就是用假饵，同一套杆轮你只要用的不是假饵就不能叫路亚，反过来你就是拿个矿泉水瓶卷线，用钩子串着烟头这也是路亚钓。
 
+
+*****
+
+####  Piano-Forest  
+##### 107#         楼主| 发表于 2024-10-30 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66388369&amp;ptid=2193318" target="_blank">Piano-Forest 发表于 2024-10-6 21:45</a>
+
+https://x.com/onigiri123091/status/1841843153718149297
+
+ネガポジアングラー1話ご視聴ありがとうございま ...</blockquote>
+人设：谷口宏美
+[https://x.com/onigiri123091/status/1851449435878015087](https://x.com/onigiri123091/status/1851449435878015087)
+
+本日ネガポジアングラー2話放送だぃ！
+
+貴明さん🐟
+
+この時代に、ゆっくり見てほしいという願いのアニメをつくるかっこよさ、あると思います！
+<img src="https://p.sda1.dev/20/5027b9d434043a3e1723e4cb3254a909/20241030_213728.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/07cfcbb2c2a93e8d88b37fdc3be3f0f9/20241030_213732.jpg" referrerpolicy="no-referrer">
+
+シャープ3って縦で書く時これであってるの…？
+
+放送って漢字が永遠に描けなくて、スマホでうったらああ！ってなりました。
+
+今晩3話放送です、何卒よろしくお願いします！
+
+不安そうな表情が似合うぞ常宏！
+<img src="https://p.sda1.dev/20/b37221a22d88b7ea45e03a8d149c58c4/20241030_213736.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/d845591ad28504f05e675c536509a928/20241030_213744.jpg" referrerpolicy="no-referrer">
+
+今日はネガグラ第4話放送
+
+ハナちゃん🌸
+
+どんな生活をおくっとるんやろ🎣
+<img src="https://p.sda1.dev/20/a44d89ef8866f3b4476b33e2801f7431/20241030_213747.jpg" referrerpolicy="no-referrer">
+
+髪ぽよん。
+
+🌸ハナちゃんは朝3時起きなんでもうおねむですな。
+<img src="https://p.sda1.dev/20/42bf3d4c313671e6668019133b97ff0d/20241030_213751.jpg" referrerpolicy="no-referrer">
+
+息抜き落書き
+
+なんかハナちゃんの落書き横顔しかしてないやんけ。横顔以外も描くぞ。
+
+服の後ろこうなってるです。
+<img src="https://p.sda1.dev/20/656507dee2a9aef89127fc1e68b0127e/20241030_213755.jpg" referrerpolicy="no-referrer">
+

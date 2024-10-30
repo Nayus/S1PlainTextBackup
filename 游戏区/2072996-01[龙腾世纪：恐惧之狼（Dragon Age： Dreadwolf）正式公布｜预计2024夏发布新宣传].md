@@ -1404,3 +1404,40 @@ skillup视频里那几段解决队友矛盾的片段确实太像幼儿园小朋�
 是的，rock paper shotgun的review的大标题是：</blockquote>
 这下真要退款了，我还请了一天假……
 
+
+*****
+
+####  ArgentDawn  
+##### 788#       发表于 2024-10-30 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66579084&amp;ptid=2072996" target="_blank">petrouchka 发表于 2024-10-30 17:23</a>
+看到“蛋头边缘化”但不描述怎么个边缘化，我对这种测评里的说法高度怀疑。
+写蛋头这个角色的编剧就是大 ...</blockquote>
+我看了点目前不同评测总结的内容，感觉关于蛋头有几个相对共同的点：
+1. Solas是个很复杂很有趣的角色
+2. Solas的登场机会很少（和他的互动只有4次？）
+3. 主线第3章剧情非常优秀，而第3章的标题是“恐惧之狼崛起”
+
+哪怕说第1点里可能有前作的印象分加成，第3点应该算是个定心丸了，可以看出蛋头（又）在最后爆了个大的，完成了他的角色塑造
+但也能理解被说边缘化，毕竟我本来期待着rook能和蛋头斗智斗勇**，结果蛋头开幕雷击把自己关起来了，之后大部分时间我只能探四次监（
+又想起来审判官问蛋头撕裂影帐把精灵神放出来了怎么办，蛋头说i have plans，结果精灵神真出来了蛋头反而进去了，达奇并感
+
+*****
+
+####  ak123  
+##### 789#       发表于 2024-10-30 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66579084&amp;ptid=2072996" target="_blank">petrouchka 发表于 2024-10-30 17:23</a>
+
+看到“蛋头边缘化”但不描述怎么个边缘化，我对这种测评里的说法高度怀疑。
+
+写蛋头这个角色的编剧就是大 ...</blockquote>
+临发售半年游戏名都给蛋头边缘化了，从logo到副标题都改了，怎么看都没什么底气吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jf8350143  
+##### 790#       发表于 2024-10-30 21:37
+
+蛋头：“把精灵神放出来让rook去打就是我的plan，我在fade里摸着鱼唱着歌boss就被rook打死了，多爽”
+

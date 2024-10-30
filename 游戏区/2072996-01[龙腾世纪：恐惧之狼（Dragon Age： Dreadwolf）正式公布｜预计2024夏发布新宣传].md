@@ -867,3 +867,18 @@ EA会员不能提前
 
 一大票吃反woke饭的主播跃跃欲试，不管东方人愿意不愿意见，这就是战争<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mimighost  
+##### 743#       发表于 2024-10-30 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66572348&amp;ptid=2072996" target="_blank">petrouchka 发表于 2024-10-29 22:12</a>
+
+DAI里我记得就有trans了啊，依稀记得是铁牛那边阵营的</blockquote>
+有trans，但是是剧情里面讲那个人是trans
+
+non-binary这个纯粹就是tumblr 10年之后发明的东西，纯纯的傻好么，如果一个种族本身就性别暧昧，那有怎么会形成二元性别的认知？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">。
+
+摩登受众，摩登剧情，摩登lingo，摩登审美
+

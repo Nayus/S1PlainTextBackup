@@ -1181,3 +1181,25 @@ mercury到过了是吧
 
 —— 来自 OnePlus CPH2487, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  kerbad  
+##### 94#       发表于 2024-10-30 07:47
+
+ 本帖最后由 kerbad 于 2024-10-30 07:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66573582&amp;ptid=2068019" target="_blank">blackll7 发表于 2024-10-30 01:13</a>
+其实只要能刷ap（打蘑菇）就算后期了，没齐全技能组的时候暗杀确实鸡。后期boss有通用的召唤两个控➕一个 ...</blockquote>
+哦我说暗杀输出就是一个人带满挂异常被动一个人不停丢伤害随异常个数增加的那招，技能没学全的时候确实菜得要死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+现在在海底当无头苍蝇乱转也不知道底下有什么，还是先去把召唤兽都收了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kerbad  
+##### 95#       发表于 2024-10-30 07:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66573588&amp;ptid=2068019" target="_blank">blackll7 发表于 2024-10-30 01:15</a>
+而且真觉得不喜欢的话，直接去mod区，基本上什么乱七八糟jrpg里的技能组mod基本上齐了，从dq到狒狒，从世 ...</blockquote>
+毕竟我主要还是来逛地图的，战斗凑合凑合倒还好。那堆职业mod等以后想打二周目了估计会考虑一下<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

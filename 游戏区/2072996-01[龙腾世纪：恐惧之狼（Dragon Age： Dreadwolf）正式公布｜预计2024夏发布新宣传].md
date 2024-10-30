@@ -1355,3 +1355,22 @@ skillup视频里那几段解决队友矛盾的片段确实太像幼儿园小朋�
 
 所以实际上就是个战神？那还玩毛线……
 
+
+*****
+
+####  BRAVADO  
+##### 784#       发表于 2024-10-30 21:22
+
+<blockquote>operatbig 发表于 2024-10-30 21:14
+所以实际上就是个战神？那还玩毛线……</blockquote>
+是的，rock paper shotgun的review的大标题是：
+
+<img src="https://img.saraba1st.com/forum/202410/30/212207xby78b4lzdb7nc38.png" referrerpolicy="no-referrer">
+
+<strong>IMG_6947.png</strong> (260.48 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-10-30 21:22 上传
+

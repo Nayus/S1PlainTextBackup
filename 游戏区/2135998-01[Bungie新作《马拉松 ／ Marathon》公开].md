@@ -491,3 +491,37 @@ dmz人还是挺多的，但没氪金点动视自己放弃了。
 
 惑星是源自日本的吧 看动画常见的词
 
+
+*****
+
+####  Midnight.Coup  
+##### 52#       发表于 2024-10-30 17:07
+
+ 本帖最后由 Midnight.Coup 于 2024-10-30 17:09 编辑 
+
+开发者视频省流
+
+- 2 张角色截图 Thief 和 Stealth 
+
+- <strong>可能</strong>会在 2025 年进行<strong>内测 </strong>
+
+真是糟蹋美术的成果啊，连个实机都拿不出，赶紧艰难的决定吧
+
+角色截图链接 [https://press.bungie.com/Marathon-Announcement-press-kit-93894](https://press.bungie.com/Marathon-Announcement-press-kit-93894)
+
+<img src="https://img.saraba1st.com/forum/202410/30/170907eknnsxppkc7o4orc.jpg" referrerpolicy="no-referrer">
+
+<strong>ss_3c94fe6ccd2b4eba5badcfbdb33f7130dcbbdc14.1920x1080.jpg</strong> (296.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-30 17:09 上传
+
+<img src="https://img.saraba1st.com/forum/202410/30/170914u412b1b844id3l43.jpg" referrerpolicy="no-referrer">
+
+<strong>ss_660c00495249ef846d6bd615ca4b9617d5321dbf.1920x1080.jpg</strong> (543.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-30 17:09 上传
+

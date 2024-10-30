@@ -215,3 +215,18 @@ boss战感觉老唐有点放水了
 
 流血队目前配置大概是环指箱、N浮、犀牛默、赤瞳良、血奥、神父虫，未来的血唐感觉可以换下N浮，不过她应该会在5号线实装后才出...
 
+
+*****
+
+####  Yuzutea  
+##### 964#       发表于 2024-10-30 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66561908&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2024-10-28 17:46</a>
+
+神父虫技能来了，纯打击系人格，流血队T位。
+
+流血队目前配置大概是环指箱、N浮、犀牛默、赤瞳良、血奥、 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我感觉下周或者下周就要出杜尔西内亚给浮了
+
+这少个二星感觉就是要多个三星了
+

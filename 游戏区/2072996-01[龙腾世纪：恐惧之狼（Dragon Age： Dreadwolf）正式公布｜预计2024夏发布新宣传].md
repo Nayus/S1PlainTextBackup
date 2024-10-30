@@ -941,3 +941,17 @@ da女玩家不少，solas粉丝一大堆，首发不会缺人
 
 错误的，是woke第一大作，吸引woke人士猛猛爆金币<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ak123  
+##### 750#       发表于 2024-10-30 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66578786&amp;ptid=2072996" target="_blank">mimighost 发表于 2024-10-30 16:47</a>
+da女玩家不少，solas粉丝一大堆，首发不会缺人
+
+想要这作爆死不可能，不过后劲肯定萎，系列第四作，各种w ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是从几个评测看他们偏偏把蛋头边缘化了
+
+讲真这个把123受众得罪遍，美术和剧情还皮克斯迪士尼低幼化了，也不知道在迎合谁，还在喊着必玩那可能真的只对里面各种独立宣言感兴趣了
+

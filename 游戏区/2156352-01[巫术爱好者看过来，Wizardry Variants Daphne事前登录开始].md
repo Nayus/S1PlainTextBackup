@@ -2325,3 +2325,14 @@ https://gamerch.com/wizardry-daphne/
 
 不小心进了哥布林洞窟被怪堵了，怎么出来。。没带钩子
 
+
+*****
+
+####  赛尔法斯特  
+##### 260#       发表于 2024-10-30 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66574164&amp;ptid=2156352" target="_blank">神手之兔 发表于 2024-10-30 08:25</a>
+
+不小心进了哥布林洞窟被怪堵了，怎么出来。。没带钩子</blockquote>
+主角送死，同伴避免死亡，然后接受死亡重开吧
+

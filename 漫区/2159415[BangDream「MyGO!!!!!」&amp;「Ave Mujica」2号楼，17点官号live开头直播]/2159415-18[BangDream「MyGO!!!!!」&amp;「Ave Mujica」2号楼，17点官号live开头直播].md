@@ -6753,3 +6753,44 @@ dolo來偷心了<img src="https://static.saraba1st.com/image/smiley/face2017/074
 
 2024-10-29 13:04 上传
 
+
+*****
+
+####  御幸一也  
+##### 25731#       发表于 2024-10-30 10:06
+
+我猜米澤 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202410/30/100609xor2bcosh7zriish.jpg" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 1934 - (1) Xユーザーの高尾奏音さん_ 「ちょっと前に夢の国へ行き.jpg</strong> (16.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-30 10:06 上传
+
+<img src="https://img.saraba1st.com/forum/202410/30/100612pzuapkkupagii3zg.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20241030-020445_1851445105452073463_photo-0.jpg</strong> (585.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-30 10:06 上传
+
+<img src="https://img.saraba1st.com/forum/202410/30/100614qyvfnffaufnf89u4.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20241030-020445_1851445105452073463_photo-1.jpg</strong> (658.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-30 10:06 上传
+
+[https://x.com/Kanon_Takao/status/1851445105452073463](https://x.com/Kanon_Takao/status/1851445105452073463)
+
+*****
+
+####  星天观测  
+##### 25732#       发表于 2024-10-30 10:09
+
+为什么不是全员，我猜阿贝母鸡卡全员<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

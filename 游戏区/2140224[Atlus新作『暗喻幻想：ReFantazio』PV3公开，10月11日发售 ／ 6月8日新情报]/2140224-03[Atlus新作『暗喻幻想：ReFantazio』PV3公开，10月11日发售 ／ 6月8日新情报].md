@@ -4401,3 +4401,16 @@ hard难度除了全反射龙我没遇到会卡的boss除非等级太低，你先
 
 龙宫大吗，我倒觉得是其他迷宫都太小了
 
+
+*****
+
+####  4ckc  
+##### 3348#       发表于 2024-10-30 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66577945&amp;ptid=2140224" target="_blank">TiiTiiLL 发表于 2024-10-30 15:21</a>
+龙宫大吗，我倒觉得是其他迷宫都太小了</blockquote>
+各人感受不一样，我确实觉得大了点，特别一开始不知道只有一个存档点的时候四处找存档点特别烦躁
+毕竟不是所有人都是世界树迷宫爱好者
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

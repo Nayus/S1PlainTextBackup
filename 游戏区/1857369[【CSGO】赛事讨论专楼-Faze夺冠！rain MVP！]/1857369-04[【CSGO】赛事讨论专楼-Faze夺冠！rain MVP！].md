@@ -6,3 +6,11 @@
 
 小蜜蜂真是神队，有人还没c4人头多<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  曼陀罗肥  
+##### 4491#       发表于 2024-10-30 23:59
+
+小蜜蜂从科隆后直接烂掉了，之前还稳定决赛四强，现在天天淘汰赛一轮游，感觉这个队从根上就已经腐烂了
+

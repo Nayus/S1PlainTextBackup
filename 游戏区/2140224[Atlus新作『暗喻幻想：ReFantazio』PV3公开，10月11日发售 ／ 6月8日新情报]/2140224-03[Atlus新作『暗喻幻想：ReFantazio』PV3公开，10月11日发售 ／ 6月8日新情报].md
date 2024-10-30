@@ -4378,3 +4378,18 @@ hard难度除了全反射龙我没遇到会卡的boss除非等级太低，你先
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  jbjack1215  
+##### 3346#       发表于 2024-10-30 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66563039&amp;ptid=2140224" target="_blank">AeonsTorn 发表于 2024-10-28 20:28</a>
+
+练治疗士除了全体清异常以外基本没什么用处了
+
+—— 来自 鹅球 v3.3.92</blockquote>
+弥赛亚全体光特大、再附带全体光弱点
+
+中间只卡一个气量4，你看看治疗rank8多早能解锁
+

@@ -484,3 +484,13 @@
 马内甲小姐姐？
 有厄介阿宅往工作邮箱发东西
 
+
+*****
+
+####  十九号大侠  
+##### 17558#       发表于 2024-10-30 20:59
+
+能同步解说lol决赛吗
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

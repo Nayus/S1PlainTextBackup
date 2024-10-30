@@ -1458,3 +1458,31 @@ skillup视频里那几段解决队友矛盾的片段确实太像幼儿园小朋�
 
 突然想到，当初做银河护卫队的编剧是不是跑生软了？这回从战斗到画面风格都太像银护了吧
 
+
+*****
+
+####  BK10  
+##### 793#       发表于 2024-10-31 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66581944&amp;ptid=2072996" target="_blank">真实之影 发表于 2024-10-31 00:05</a>
+
+突然想到，当初做银河护卫队的编剧是不是跑生软了？这回从战斗到画面风格都太像银护了吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">护卫队美术哪有这么丑啊，编辑也不负责这个，人在质量效应组
+
+
+*****
+
+####  supersssbc  
+##### 794#       发表于 2024-10-31 00:16
+
+看了下偷跑那个亚裔精灵的挤眉弄眼的表情比想象中要让人不适得多，那股子需要多元化要让亚裔角色登场但又克制不住用东方主义审视的味道根本掩盖不住<img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zzf111  
+##### 795#       发表于 2024-10-31 00:16
+
+外网4ch喷这作对话文本写作能力差的也不少，
+
+无非就是不好总结不如直接拿前几页lgbt的图来喷的直观+目前没法进游戏只有前瞻内容 还没找到最具代表性的战犯文本
+

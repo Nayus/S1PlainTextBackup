@@ -14,3 +14,11 @@
 
 小蜜蜂从科隆后直接烂掉了，之前还稳定决赛四强，现在天天淘汰赛一轮游，感觉这个队从根上就已经腐烂了
 
+
+*****
+
+####  heseran  
+##### 4492#       发表于 2024-10-31 00:11
+
+这c4炸5个也太有节目效果了哈哈哈哈哈哈哈艹，堪比g2遗迹0:13<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

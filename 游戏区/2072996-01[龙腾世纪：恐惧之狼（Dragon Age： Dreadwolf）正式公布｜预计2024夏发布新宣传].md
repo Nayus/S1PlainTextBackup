@@ -890,3 +890,23 @@ non-binary这个纯粹就是tumblr 10年之后发明的东西，纯纯的傻好�
 
 我见现在STEAM热销排名挺高的，不会是大伙为了打差评去的？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kevinausting  
+##### 745#       发表于 2024-10-30 16:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不能预载吗，不会解锁了才能下吧，今早看了眼还不能下载
+
+*****
+
+####  petrouchka  
+##### 746#       发表于 2024-10-30 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66578455&amp;ptid=2072996" target="_blank">mimighost 发表于 2024-10-30 16:18</a>
+有trans，但是是剧情里面讲那个人是trans
+
+non-binary这个纯粹就是tumblr 10年之后发明的东西，纯纯的傻 ...</blockquote>
+即使是在奇幻世界，一个外表和性别认同不一致的人在其他人看来也是很奇怪的。其他人可能理解为：灵魂错位，怪异化身，灵体附体，腹语口技……或者和现实一样，“流动性别”。现代网络亚文化群体发明的词汇未必不能融入奇幻游戏，只要世界观能容纳就行。增加一个小众玩家扮演属性，增加一些选择分枝，玩家可以选也可以不选。没设定，无感略过即可。
+真trans 玩家可以“扮演自己”提高代入感，非trans整活玩家可以玩“怪奇OC”，当个男身女心中性长发美少年或者大雕萌妹。不知道这个过程中到底谁受到了严重损失。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

@@ -261,3 +261,14 @@ yls的方差是这样的呀，我一个抓包1.1的连续翻车，人家1.5的�
 
 也不知道那些抽2宝以上托勒密的怎么还会有被动2不点满的
 
+
+*****
+
+####  khxooo  
+##### 46780#       发表于 2024-10-30 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66572204&amp;ptid=1712412" target="_blank">马桶3 发表于 2024-10-29 22:00</a>
+
+全打完了都没觉得日战和夜战有什么区别</blockquote>
+本来就是多几个怪而已，兽尼禄上去没什么区别，一样被无双。
+

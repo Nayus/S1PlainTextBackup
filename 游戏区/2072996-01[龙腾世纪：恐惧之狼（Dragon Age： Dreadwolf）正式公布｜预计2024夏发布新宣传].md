@@ -1441,3 +1441,12 @@ skillup视频里那几段解决队友矛盾的片段确实太像幼儿园小朋�
 
 蛋头：“把精灵神放出来让rook去打就是我的plan，我在fade里摸着鱼唱着歌boss就被rook打死了，多爽”
 
+
+*****
+
+####  哆哆鸡  
+##### 791#       发表于 2024-10-30 21:56
+
+偷跑了？b站上翻到一个1个半小时的试玩
+[https://www.bilibili.com/video/BV19ZSvY9EFw/](https://www.bilibili.com/video/BV19ZSvY9EFw/)
+

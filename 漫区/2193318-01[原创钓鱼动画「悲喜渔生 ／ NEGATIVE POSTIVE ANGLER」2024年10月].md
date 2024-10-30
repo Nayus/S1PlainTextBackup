@@ -1247,3 +1247,17 @@ https://x.com/onigiri123091/status/1841843153718149297
 服の後ろこうなってるです。
 <img src="https://p.sda1.dev/20/656507dee2a9aef89127fc1e68b0127e/20241030_213755.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  熊猫roey  
+##### 108#       发表于 2024-10-30 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66573852&amp;ptid=2193318" target="_blank">concert 发表于 2024-10-30 05:13</a>
+
+问问路亚需要挂活虾之类的真饵吗
+
+论坛助手,iPhone</blockquote>
+之前看到的路亚科普视频
+[https://www.bilibili.com/video/BV1PB4y1C7Xe/](https://www.bilibili.com/video/BV1PB4y1C7Xe/)
+

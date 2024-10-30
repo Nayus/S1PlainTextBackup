@@ -494,3 +494,11 @@
 
 —— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  古战场亡魂  
+##### 17559#       发表于 2024-10-30 23:51
+
+不知道为啥这么喜欢玩个鳄鱼，前期打不出来，后期大头兵。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然赢了，但和你个0-8的鳄鱼有啥关系呢。
+

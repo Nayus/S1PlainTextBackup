@@ -26,3 +26,11 @@
 
 出道2个半月，雲母たまこ总算是想到开电吉他练习回了，虽然弹得挺好的但直播里依然写了“切り抜きNG”，只能说底边都是有底边的道理的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  渡鸦骑士  
+##### 833#       发表于 2024-10-31 01:34
+
+无人关注，犬山终于百万粉了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

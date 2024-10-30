@@ -1516,3 +1516,18 @@ skillup视频里那几段解决队友矛盾的片段确实太像幼儿园小朋�
 
 200多楼的时候，我就发对比贴吐槽过6头身大头娃娃的问题了，这个难绷人设是制作组很早就定下的，现在各种新视频证明了他们画风还故意往皮克斯和迪士尼靠去迎合低龄玩家，但是你游不是m级么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  刻路希  
+##### 799#       发表于 2024-10-31 05:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66580894&amp;ptid=2072996" target="_blank">ArgentDawn 发表于 2024-10-30 21:36</a>
+
+我看了点目前不同评测总结的内容，感觉关于蛋头有几个相对共同的点：
+
+1. Solas是个很复杂很有趣的角色
+
+2. ...</blockquote>
+和蛋头互动总共4次？好家伙这不是ME3的幻影人吗，真好斜坡和幻影人互怼4次，DATV是ME正统了属于是
+

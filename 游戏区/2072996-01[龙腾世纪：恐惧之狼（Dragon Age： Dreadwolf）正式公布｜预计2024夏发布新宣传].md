@@ -1134,3 +1134,14 @@ datv男队友做成囧女队友做成起源那对，谁还会说啥 ...</blockqu
 对哦还有君主，鱿鱼都有人能接受呢！
 挑，都可以挑，不满意都可以打mod。我还见人把博德之门3主角们全换成FF14那种画风模型的。我丝毫没有意见。
 
+
+*****
+
+####  放大镜  
+##### 765#       发表于 2024-10-30 17:39
+
+这就是当初设定上埋的一个雷，不被挖出来才是怪事
+ <blockquote>The Qunari also have the concept of "Aqun-Athlok," which means "<strong>born as one gender but living as another</strong>".[59] For example, a woman who shows sincere interest and outstanding talent at fighting will be considered male regardless of biological sex, and socially treated as male for all intents and purposes. For the Qunari, gender is inexorably linked to their role within the Qun </blockquote>
+
+牛头教认可心理性别，3里边那个跟着牛头混的人类女佣兵就是这种情况，并不是真的变性了。游戏里提到过女佣兵在塔文特服役期间一直靠贿赂军医来隐瞒性别，结果部队体检时被其他医生发现“下边少了点东西”，军籍给整没了，这才跑路干了佣兵
+

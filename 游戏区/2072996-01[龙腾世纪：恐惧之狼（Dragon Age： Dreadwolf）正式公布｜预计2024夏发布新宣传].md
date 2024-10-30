@@ -817,3 +817,16 @@ DAI里我记得就有trans了啊，依稀记得是铁牛那边阵营的</blockqu
 
 塔文特社会在明面上是禁血魔法的，改性向不会露陷，改性别一定会
 
+
+*****
+
+####  nonstoper  
+##### 739#       发表于 2024-10-30 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66567054&amp;ptid=2072996" target="_blank">Bieaeml 发表于 2024-10-29 12:17</a>
+
+别说贴吧，泥潭之前不也是有盆友自己骗自己的，最后一句大不了自己玩。
+
+从DAO看到如今的DA4只会觉得恶心， ...</blockquote>
+前几页不就有个吹的 
+

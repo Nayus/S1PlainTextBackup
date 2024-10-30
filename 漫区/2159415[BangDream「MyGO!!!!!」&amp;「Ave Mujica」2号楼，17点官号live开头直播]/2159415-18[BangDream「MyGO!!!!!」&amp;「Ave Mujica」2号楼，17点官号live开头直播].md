@@ -6890,3 +6890,16 @@ dolo來偷心了<img src="https://static.saraba1st.com/image/smiley/face2017/074
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">沒提過這種東西吧
 
+
+*****
+
+####  前方暴雨预警  
+##### 25741#       发表于 2024-10-31 01:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66580479&amp;ptid=2159415" target="_blank">狂热飞鸟 发表于 2024-10-30 20:31</a>
+
+想问一下，哪篇访谈说得祥子的那句祝你幸福是祥子的真心祝福来着?</blockquote>
+我印象里没有，这么说的人是不是跟第9集爱音退队时祝她们组crychic的祝福搞混了？
+
+lsl是有说过那时的爱音是真心祝福的
+

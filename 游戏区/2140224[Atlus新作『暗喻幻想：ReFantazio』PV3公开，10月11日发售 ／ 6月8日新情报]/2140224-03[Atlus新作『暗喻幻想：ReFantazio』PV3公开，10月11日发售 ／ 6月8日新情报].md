@@ -4366,3 +4366,15 @@ hard难度除了全反射龙我没遇到会卡的boss除非等级太低，你先
 
 过了，虽然很难但是战斗系统魅力全开，所有的buffdebuff都用上了，连小丑的第一个加技能图标的技能也用上了，最后完美躲过了它的爆发算好血一波带走好爽
 
+
+*****
+
+####  NEIN  
+##### 3345#       发表于 2024-10-30 08:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66573484&amp;ptid=2140224" target="_blank">莉可厨 发表于 2024-10-30 00:48</a>
+应该不会吧，一般开h难的都是地图全清的，主线boss应该等级碾压随便打的</blockquote>
+并不会，地图全清了到后面基本差个10级，我通关前在恐王星刷了会都没80呢
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

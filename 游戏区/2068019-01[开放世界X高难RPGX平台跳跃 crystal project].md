@@ -1203,3 +1203,14 @@ mercury到过了是吧
 而且真觉得不喜欢的话，直接去mod区，基本上什么乱七八糟jrpg里的技能组mod基本上齐了，从dq到狒狒，从世 ...</blockquote>
 毕竟我主要还是来逛地图的，战斗凑合凑合倒还好。那堆职业mod等以后想打二周目了估计会考虑一下<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  库德里尔  
+##### 96#       发表于 2024-10-30 08:45
+
+第一次打完最终boss是大后期的开始。
+孵化金quintar，探索隐藏地图，击败隐藏boss，精通所有职业什么的都可以做。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

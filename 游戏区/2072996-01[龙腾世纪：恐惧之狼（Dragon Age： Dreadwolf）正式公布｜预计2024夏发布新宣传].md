@@ -1187,3 +1187,13 @@ datv男队友做成囧女队友做成起源那对，谁还会说啥 ...</blockqu
 
 —— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Kaornao  
+##### 769#       发表于 2024-10-30 18:47
+
+不反感游戏内含有zzzq，但是个人非常反感游戏拿这个点来炒作，本来想首发的，看完评测视频只能说坐等半年一年卖不出去直接进包<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

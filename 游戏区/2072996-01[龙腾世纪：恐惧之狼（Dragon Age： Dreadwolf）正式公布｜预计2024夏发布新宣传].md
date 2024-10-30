@@ -1197,3 +1197,18 @@ datv男队友做成囧女队友做成起源那对，谁还会说啥 ...</blockqu
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  风烛尘香  
+##### 770#       发表于 2024-10-30 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66579168&amp;ptid=2072996" target="_blank">petrouchka 发表于 2024-10-30 17:32</a>
+
+可以玩啊。
+
+那这些东西加了为什么某些群体像死了爹妈一样？和他们讨厌的群体一样啊。游戏多一个可选可不 ...</blockquote>
+多元化不是原罪，把多元化当奖章给角色贴标签然后敷衍了事才是原罪，DAI表哥也是男同，没有人会说这个角色是zzzq布景板吧
+
+主角仿佛队伍里HR这种，我觉得只要不是跟所有角色都HR就行，队伍里总得分出关系亲疏有别，DAI里黑人女法师薇薇安跟主角就是很明显的利益关系，虽然不讨喜但也是很难得的跟主角无法恋爱+利用他人情感关系向上爬的事业女性，她的主张属于自己上车后就恨不得把梯子给拆了的精英高女，支持法师自由派的主角可以表面上哄着你好我好，然后反手就把薇薇安的对立面莉莉安娜推上教皇宝座，下次见面她还得跟你关系营销甜甜地叫darling，怎么不算是一种塑料姐妹花呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

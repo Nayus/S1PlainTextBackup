@@ -1214,3 +1214,16 @@ mercury到过了是吧
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  kerbad  
+##### 97#       发表于 2024-10-30 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66574281&amp;ptid=2068019" target="_blank">库德里尔 发表于 2024-10-30 08:45</a>
+
+第一次打完最终boss是大后期的开始。
+
+孵化金quintar，探索隐藏地图，击败隐藏boss，精通所有职业什么的都可 ...</blockquote>
+孵化金龙和精通全职业有点懒得刷（虽然我开了LXP三倍），隐藏地图就看我找不找得到了
+

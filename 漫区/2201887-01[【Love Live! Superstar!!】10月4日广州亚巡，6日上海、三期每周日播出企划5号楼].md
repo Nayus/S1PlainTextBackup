@@ -4515,3 +4515,11 @@ OP3这首感觉是上层地震前做的<img src="https://static.saraba1st.com/im
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">星团唯一男性香音爹已经出差了
 
+
+*****
+
+####  starring  
+##### 435#       发表于 2024-10-30 21:11
+
+【【4K】Spileben(大熊和奏) 1stEP- 「序章」】 [https://www.bilibili.com/video/B ... ac28d8cf8e031afff27](https://www.bilibili.com/video/BV1mPS3YCEfK/?share_source=copy_web&amp;vd_source=2cc77ebe129bdac28d8cf8e031afff27)
+

@@ -1316,3 +1316,42 @@ skillup视频里那几段解决队友矛盾的片段确实太像幼儿园小朋�
 
 看了前两页，我不好说是谁最急啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PROCAINUM  
+##### 780#       发表于 2024-10-30 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66579770&amp;ptid=2072996" target="_blank">Kaornao 发表于 2024-10-30 18:47</a>
+不反感游戏内含有zzzq，但是个人非常反感游戏拿这个点来炒作，本来想首发的，看完评测视频只能说坐等半年一 ...</blockquote>
+这个真怪错生软，不是生软拿来炒作，是反woke斗士到处拿着截图喷。叠个甲，个人觉得一个奇幻游戏中出现近几年才出现的新词汇是编剧水平低下的表现，现在这个lead writer看起来水平确实不如DG。woke和反woke都是两坨💩，好好讨论个游戏都不行。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  风烛尘香  
+##### 781#       发表于 2024-10-30 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66580176&amp;ptid=2072996" target="_blank">petrouchka 发表于 2024-10-30 19:46</a>
+
+我真的觉得她特别像《思想验证区域》里的“黑暗骑士”哥和“浪子”姐，纯正奋斗人老右，一方面觉得“咱法 ...</blockquote>
+薇薇安对表哥这种活得更自由的法师是带着羡慕嫉妒恨的破防心态，队友谈话几乎次次夹枪带棒，面对黑墙相对草根的（虽然灰卫指挥官这个假身份也不算泥腿子），她又会端起架子来，别站脏了我这地儿靠脏了我这门，突出一个自我以上人人平等自我以下尊卑分明，太典了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  roydimus  
+##### 782#       发表于 2024-10-30 21:13
+
+真要治薇薇安还得靠科尔，随便你怎么阴阳怪气都行<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+— from Sony XQ-DQ72, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2
+
+*****
+
+####  operatbig  
+##### 783#       发表于 2024-10-30 21:14
+
+所以实际上就是个战神？那还玩毛线……
+

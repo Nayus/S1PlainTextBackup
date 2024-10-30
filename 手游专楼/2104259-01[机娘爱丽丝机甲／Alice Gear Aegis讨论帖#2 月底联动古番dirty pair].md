@@ -160,3 +160,16 @@ LV4，合计88连出了黑猫，寡妇平时就不用也没凸点就随缘啦<im
 
 原来说的是漫画<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Picavian  
+##### 1246#       发表于 2024-10-30 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66570996&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2024-10-29 19:45</a>
+
+特务组织叫外卖，恭喜王红花同学上场
+
+话说女演员控制人类是指哪个啊，没印象啊。不是就控制VICE的某两个吗 ...</blockquote>
+寡妇的隐身机制，其实是影响人的意识让对方忽视她。
+

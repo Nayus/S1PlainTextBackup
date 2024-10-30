@@ -855,3 +855,15 @@ EA会员是今天就能玩？</blockquote>
 
 EA会员不能提前
 
+
+*****
+
+####  llysander  
+##### 742#       发表于 2024-10-30 14:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">预售这不是挺好的嘛，
+
+发主播尝鲜码的时候政审过了，但肯定总有漏的背刺的
+
+一大票吃反woke饭的主播跃跃欲试，不管东方人愿意不愿意见，这就是战争<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

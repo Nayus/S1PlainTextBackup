@@ -1503,3 +1503,16 @@ skillup视频里那几段解决队友矛盾的片段确实太像幼儿园小朋�
 
 上面1小时的视频所有人物设计都特别别扭，哪怕一个正常的男性角色看着都像矮人，一个个都是5短身材。
 
+
+*****
+
+####  ak123  
+##### 798#       发表于 2024-10-31 04:30
+
+ 本帖最后由 ak123 于 2024-10-31 04:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66582303&amp;ptid=2072996" target="_blank">leosank 发表于 2024-10-31 02:35</a>
+
+上面1小时的视频所有人物设计都特别别扭，哪怕一个正常的男性角色看着都像矮人，一个个都是5短身材。 ...</blockquote>
+
+200多楼的时候，我就发对比贴吐槽过6头身大头娃娃的问题了，这个难绷人设是制作组很早就定下的，现在各种新视频证明了他们画风还故意往皮克斯和迪士尼靠去迎合低龄玩家，但是你游不是m级么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+

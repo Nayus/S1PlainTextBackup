@@ -840,3 +840,18 @@ DAI里我记得就有trans了啊，依稀记得是铁牛那边阵营的</blockqu
 
 EA会员是今天就能玩？
 
+
+*****
+
+####  coneed  
+##### 741#       发表于 2024-10-30 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66576551&amp;ptid=2072996" target="_blank">jbjack1215 发表于 2024-10-30 12:41</a>
+
+普通版解锁时间是31号的00:00吗？
+
+EA会员是今天就能玩？</blockquote>
+国区是11月1日0点
+
+EA会员不能提前
+

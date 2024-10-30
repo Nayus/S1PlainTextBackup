@@ -322,3 +322,136 @@ Resilio: B3JERIBE52YEADZJMDWDLE4EBRSRNTPRX
 
 谢谢你！甜瓜！我会每天点击蓝色甘奈胸部来报答你！
 
+
+*****
+
+####  wfhtony  
+##### 6632#       发表于 2024-10-27 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66554621&amp;ptid=2130897" target="_blank">BQlin 发表于 2024-10-27 20:02</a>
+
+就几秒啊</blockquote>
+其實就是預告（這點只寫在**的標題和簡介裏面）而已...
+
+正式PV（SOLO曲MV）將在11/10公開。
+
+*****
+
+####  wfhtony  
+##### 6633#       发表于 2024-10-27 20:48
+
+ 本帖最后由 wfhtony 于 2024-10-27 21:01 编辑 
+
+「會長嘛，她當然有自己專門的粉專(非公式)啦。」
+
+<img src="https://img.saraba1st.com/forum/202410/27/204715ixrwk3rk4xg4gkmm.png" referrerpolicy="no-referrer">
+
+<strong>01.png</strong> (44.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-27 20:47 上传
+
+<img src="https://img.saraba1st.com/forum/202410/27/204716uxz9m1mdnb8o4gjm.png" referrerpolicy="no-referrer">
+
+<strong>02.png</strong> (111.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-27 20:47 上传
+
+官方也開了一個[「星南粉專（非公式）」的推特帳號](https://twitter.com/I_love_senasama)。
+
+<img src="https://img.saraba1st.com/forum/202410/27/204730syiiaeefoaqq6mnr.png" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 1224 - 十王 星南様非公式ファンサイト👑🌟 (@I_love_senasama) _ T.png</strong> (713.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-27 20:47 上传
+
+該帳號最早的PO文日期爲10/25。
+
+<img src="https://img.saraba1st.com/forum/202410/27/204804wn7ftwtf7tj72fqj.png" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 1225 - 十王 星南様非公式ファンサイト👑🌟 (@I_love_senasama) _ T.png</strong> (265.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-27 20:48 上传
+
+非公式粉絲網站：
+
+→ [https://love-senasama.hatsuboshigakuen.jp/](https://love-senasama.hatsuboshigakuen.jp/)
+
+然後就是之前LIVE上說到的「十王星南」的個人網站：
+
+→ [https://juo-sena.idolmaster-official.jp/](https://juo-sena.idolmaster-official.jp/) <blockquote>動画コンテンツ『新入生向け演説動画アーカイブ』『十王 星南に聞く10の質問』を近日公開いたします。</blockquote>
+之後好像還會有新視頻公開的樣子啊。
+
+並且：
+
+<img src="https://img.saraba1st.com/forum/202410/27/205704gkrmoyrzn5x5jxog.png" referrerpolicy="no-referrer">
+
+<strong>114.png</strong> (92.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-27 20:57 上传
+
+之後的發霉通《學馬仕半週年專輯》那期的封面上應該也會有星南的身影。
+
+<hr class="l"/)
+
+<img src="https://img.saraba1st.com/forum/202410/27/210131p0v2i2uomii23tiu.png" referrerpolicy="no-referrer">
+
+<strong>星南様PROMOTION_VIDEO「Choo_Choo_Choo」が11月10日に公開予定です！__2024-10-27_20-58-31.png</strong> (19.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-27 21:01 上传
+
+「10號（MV公開）之後，保健室（的狀態）搞不好會變得非常不得了。」by 初星學院的會長粉絲
+
+*****
+
+####  Alleyht  
+##### 6634#       发表于 2024-10-28 19:42
+
+甜瓜！我的超人！
+
+还差40发才能天井最后一只暮光铃木，矿山彻底挖空余量为0
+
+绝望之际我本以为只能在退坑和给小高充钱之间二选一了
+
+没想到商店里换的3张SR票竟然抽到了两只甜瓜NEW<[img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">真的假的
+
+所以说蓝色甘奈P也是甘奈P，最后时刻还得是我们甜瓜的姐妹情啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+谢谢你！甜瓜！我会每天点击蓝色甘奈胸部来报答你！
+
+*****
+
+####  Erikas  
+##### 6635#       发表于 2024-10-30 15:15
+
+喷了，在泰国商城的日本馆发现了杏的周边
+
+这都哪年的货了
+
+<img src="https://img.saraba1st.com/forum/202410/30/151300e5dk7vk989995499.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2222.jpeg</strong> (1.62 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-30 15:13 上传
+
+<img src="https://img.saraba1st.com/forum/202410/30/151301us0x1asypzphf2dd.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2224.jpeg</strong> (1.38 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-30 15:13 上传
+

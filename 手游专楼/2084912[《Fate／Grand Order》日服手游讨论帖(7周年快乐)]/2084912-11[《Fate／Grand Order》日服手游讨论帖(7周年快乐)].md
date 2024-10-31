@@ -1594,3 +1594,27 @@ https://www.bilibili.com/video/BV1KuyWYcEng/
 
 奏章关闭之前没打完，亏了一个亿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 15072#       发表于 2024-10-31 12:20
+
+看了2个月的地图终于关了，又要等泳装活动进商店才再开.......
+
+<img src="https://img.saraba1st.com/forum/202410/31/121747cpixxdllprwzdw53.png" referrerpolicy="no-referrer">
+
+<strong>@]KY~K3U9V6}(W]U6WT2Z[0.png</strong> (331.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-31 12:17 上传
+
+<img src="https://img.saraba1st.com/forum/202410/31/121757pku8fywnqk1kyndk.png" referrerpolicy="no-referrer">
+
+<strong>Q}ZX7(2@Y19@5UQQ@Q[H`DL.png</strong> (1.07 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-31 12:17 上传
+

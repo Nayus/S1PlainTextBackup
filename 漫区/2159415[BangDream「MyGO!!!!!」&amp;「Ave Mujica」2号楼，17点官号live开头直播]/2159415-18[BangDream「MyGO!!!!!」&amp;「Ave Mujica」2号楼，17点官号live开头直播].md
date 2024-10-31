@@ -6983,3 +6983,12 @@ Happy Halloween捏
 
 就是有人觉得祥子的祝你幸福是嘴硬的，还是放不下灯的
 
+
+*****
+
+####  PDQ4  
+##### 25748#       发表于 2024-10-31 10:45
+
+本来就是第七集后下定决心杀死软弱的自己
+认为这个决心是笑话的当然觉得祥子只是在嘴硬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

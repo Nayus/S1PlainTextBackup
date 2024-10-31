@@ -1769,3 +1769,35 @@ skillup视频里那几段解决队友矛盾的片段确实太像幼儿园小朋�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">新爆出来的道歉过场既出戏又无聊，直接爆破故事沉浸感，关键是语气也很低龄，如果全程都是这种宝宝化语言风格那是真遭不住。也就是生软还能有死忠挽尊，如果是草创期的猫头鹰拉瑞安之流，在rpg里搞这种对话早就直接升天了。
 
+
+*****
+
+####  roydimus  
+##### 818#       发表于 2024-10-31 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66582517&amp;ptid=2072996" target="_blank">风烛尘香 发表于 2024-10-31 07:14</a>
+索拉斯和科尔都不同程度上克薇薇安，克得方向还不同，一个彬彬有礼阴阳怪气，一个真诚可爱浑身无软肋，但 ...</blockquote>
+还真没同时带过蛋头和薇薇安，得找对话看看了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+— from Sony XQ-DQ72, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2
+
+*****
+
+####  llysander  
+##### 819#       发表于 2024-10-31 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66580579&amp;ptid=2072996" target="_blank">roydimus 发表于 2024-10-30 20:48</a>
+
+skillup视频里那几段解决队友矛盾的片段确实太像幼儿园小朋友了
+
+前瞻里面我觉得Fextralife做得视频不错， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 真的乐死了，
+
+"你们不要吵了辣"
+
+“小盆友，想一想，你喜欢龙，他像你喜欢龙一样喜欢死灵法，你们能做好盆友的鸭”
+
+我觉得吧，幼儿园老师/妈妈圣骑士也是一种扮演，但至少给一个各来一个大耳刮子（吼）“都给我闭嘴，拯救完世界后你们爱啥啥”
+
+或者 【乐子人】“你找条龙和他的骷髅打一场，输的罚听对方念经一年”
+

@@ -6903,3 +6903,58 @@ dolo來偷心了<img src="https://static.saraba1st.com/image/smiley/face2017/074
 
 lsl是有说过那时的爱音是真心祝福的
 
+
+*****
+
+####  adcdqre  
+##### 25742#       发表于 2024-10-31 08:28
+
+这个剧场版剧情梗概看下来能解决80%角色厨搞出的所谓“争议”了
+
+
+*****
+
+####  御幸一也  
+##### 25743#       发表于 2024-10-31 08:30
+
+微博上今天有睦祥接力活動<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+[https://weibo.com/u/7908834265](https://weibo.com/u/7908834265)
+
+<img src="https://img.saraba1st.com/forum/202410/31/083008plp44u44uauqayax.jpg" referrerpolicy="no-referrer">
+
+<strong>008DeF4Zgy1hv3pnp1pybj315o3pc1ht.jpg</strong> (435.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-31 08:30 上传
+
+*****
+
+####  御幸一也  
+##### 25744#       发表于 2024-10-31 08:34
+
+Happy Halloween捏
+
+<img src="https://img.saraba1st.com/forum/202410/31/083332eislntplntzvx41i.jpg" referrerpolicy="no-referrer">
+
+<strong>008DeF4Zgy1hv44qw83ghj31jk130qu7.jpg</strong> (385.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-31 08:33 上传
+
+[https://weibo.com/7908834265/ODZSO0vmo](https://weibo.com/7908834265/ODZSO0vmo)
+
+還有akni有點太會畫了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202410/31/083510q9unz999fmbb1pf1.jpg" referrerpolicy="no-referrer">
+
+<strong>008DeF4Zgy1hv456cqcnsj30we0lwgpz.jpg</strong> (167.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-31 08:35 上传
+
+[https://weibo.com/7908834265/OE2eQcWna](https://weibo.com/7908834265/OE2eQcWna)
+

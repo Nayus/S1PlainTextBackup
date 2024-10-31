@@ -1588,3 +1588,15 @@ skillup视频里那几段解决队友矛盾的片段确实太像幼儿园小朋�
 前瞻里面我觉得Fextralife做得视频不错， ...</blockquote>
 老實說我有點驚訝Fextralife能被邀請去前瞻,畢竟他們家的wiki錯漏百出+曾經在每一個自家wiki頁面裡偷偷插入他們的twitch直播視頻(1x1像素所以多少人發現)+自動播放,營造每次都上萬人看他們直播的錯覺,直到去年才被twitch反制
 
+
+*****
+
+####  bad_alloc  
+##### 804#       发表于 2024-10-31 08:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66582613&amp;ptid=2072996" target="_blank">D-JoeII 发表于 2024-10-31 07:54</a>
+老實說我有點驚訝Fextralife能被邀請去前瞻,畢竟他們家的wiki錯漏百出+曾經在每一個自家wiki頁面裡偷偷插 ...</blockquote>
+说起来就气，之前试过开他们的wiki然后电脑没关机，一直挂着梯子，**直播把我梯子流量跑光了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

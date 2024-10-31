@@ -9165,3 +9165,20 @@ nayuta
 
 变了，黎一丁格死了她还鼓励范恩
 
+
+*****
+
+####  秘银mithril  
+##### 6770#       发表于 2024-11-1 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66590668&amp;ptid=2160194" target="_blank">winggg 发表于 2024-10-31 23:43</a>
+
+故事原因：
+
+面对着可能会没命回来的挑战，行动之前几天心态放纵一下可以理解，
+
+况且也没有越过底线，只是 ...</blockquote>
+黎1的时候我完全想象不到她亲亲搂搂的画面……就感觉一下子从御姐角色变成辣妹（？）角色
+
+我个人还是更喜欢黎1的感觉，真可惜
+

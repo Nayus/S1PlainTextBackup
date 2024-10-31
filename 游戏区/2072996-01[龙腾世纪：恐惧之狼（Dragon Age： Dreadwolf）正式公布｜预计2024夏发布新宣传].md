@@ -2268,3 +2268,15 @@ nm又饮茶开会了，想起之前看新法政，主角团也是一个案件结
 和我几个月前猜的差不多，早期宣传c位就是可选主角的默认脸</blockquote>
 这女精灵和女矮人的默认脸型看着还算正常，但是这身材比例实在太难绷了
 
+
+*****
+
+####  寂长无星夜  
+##### 862#       发表于 2024-11-1 00:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66590632&amp;ptid=2072996" target="_blank">PROCAINUM 发表于 2024-10-31 23:37</a>
+游民带了那么久节奏，我还以为最多会给6分，想不到给了7.8分，看来质量还可以
+
+—— 来自 S1Fun ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">编辑是生软老粉，我觉得这分数算挺低了
+

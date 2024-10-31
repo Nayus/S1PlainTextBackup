@@ -1918,3 +1918,34 @@ skillup视频里那几段解决队友矛盾的片段确实太像幼儿园小朋�
 
 我操现在这玩意是什么神经东西，制作组真信你讲的那些东西吗傻逼玩意
 
+
+*****
+
+####  花海佑芽  
+##### 830#       发表于 2024-10-31 13:18
+
+你tm是来做游戏的，还是来宣传zzzz的？<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  perfect_duck  
+##### 831#       发表于 2024-10-31 13:20
+
+你跟我说这是同一个角色？
+
+<img src="https://img.saraba1st.com/forum/202410/31/131554y916rmpd51p5sln5.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2024-10-31 161150.png</strong> (701.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-31 13:15 上传
+
+<img src="https://img.saraba1st.com/forum/202410/31/131946tcr13a8qhkz1rvxz.jpg" referrerpolicy="no-referrer">
+
+<strong>sddefault.jpg</strong> (30.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-31 13:19 上传
+

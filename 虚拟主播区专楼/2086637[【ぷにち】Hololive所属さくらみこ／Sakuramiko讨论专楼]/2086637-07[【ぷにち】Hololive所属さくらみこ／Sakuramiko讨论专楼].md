@@ -14828,3 +14828,35 @@ danye人生最高光时刻
 
 输得彻底连新手wateme都能输，看来sololive的buff解除得比我想的快
 
+
+*****
+
+####  緋色焰華  
+##### 10097#       发表于 2024-10-31 10:10
+
+ 本帖最后由 緋色焰華 于 2024-10-31 10:11 编辑 
+<blockquote>holoan 发表于 2024-10-30 19:29
+个人V：miko的live现地女性比例体感1/10左右比其他V的live多得多，而且都很可爱还有一些cosplayer一样的
+
+ ...</blockquote>
+
+结合前晚486说谎酒吧和35p的互动，果然35p对miko以外的人都很温柔
+
+*****
+
+####  holoan  
+##### 10098#         楼主| 发表于 2024-10-31 10:21
+
+<img src="https://img.saraba1st.com/forum/202410/31/101900eddp70m5z7ro006n.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (145.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-31 10:19 上传
+
+cali直播中热评miko的曲子和live
+[https://youtu.be/3fIFWUBevE0](https://youtu.be/3fIFWUBevE0)
+
+平时没太感觉没想到cali这么喜欢miko的吗
+

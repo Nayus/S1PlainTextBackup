@@ -1735,3 +1735,15 @@ skillup视频里那几段解决队友矛盾的片段确实太像幼儿园小朋�
 
 <img src="https://img.saraba1st.com/forum/202410/31/100126obx320p1ugw8au02.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  roydimus  
+##### 815#       发表于 2024-10-31 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66582613&amp;ptid=2072996" target="_blank">D-JoeII 发表于 2024-10-31 07:54</a>
+老實說我有點驚訝Fextralife能被邀請去前瞻,畢竟他們家的wiki錯漏百出+曾經在每一個自家wiki頁面裡偷偷插 ...</blockquote>
+草，这么干太缺德了吧，好恶心啊，看来也是骗流量高手<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+— from Sony XQ-DQ72, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2
+

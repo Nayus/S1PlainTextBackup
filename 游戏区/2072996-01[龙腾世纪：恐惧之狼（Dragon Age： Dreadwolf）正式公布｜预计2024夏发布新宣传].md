@@ -1848,3 +1848,23 @@ skillup视频里那几段解决队友矛盾的片段确实太像幼儿园小朋�
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66584266&amp;ptid=2072996" target="_blank">三谷歩夢 发表于 2024-10-31 11:04</a></blockquote>
 有请洗地说这种设定无关紧要无感就略过的坛友发言
 
+
+*****
+
+####  nukacolamania  
+##### 824#       发表于 2024-10-31 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66579059&amp;ptid=2072996" target="_blank">petrouchka 发表于 2024-10-30 17:19</a>
+男性玩家诉求是什么呢？是统一的吗？
+是要求“队友尽量都是相貌周正的正常异性恋男性（可作为伙伴/兄弟两 ...</blockquote>
+你一个上古奇幻游戏，世界观单薄剧情人物/剧情幼稚，大肆拿dei做卖点，都low到地心了还好意思跟玩家谈格局？
+
+—— 来自 motorola moto g stylus 5G (2022), Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  林无德  
+##### 825#       发表于 2024-10-31 12:06
+
+偷跑视频给我看乐了，一比吊糟，去尼玛的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -26,3 +26,14 @@ e站能出作品列表，但真正点进章节时马上退出来说“没有图�
 e站能出作品列表，但真正点进章节时马上退出来说“没有图片”，webview能正常看到，有没有跟我一样的情况 ...</blockquote>
 一样，最近这几天就是没有图片
 
+
+*****
+
+####  DARILBALDE  
+##### 292#       发表于 2024-10-31 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66582748&amp;ptid=2167901" target="_blank">Kfly 发表于 2024-10-31 08:29</a>
+
+e站能出作品列表，但真正点进章节时马上退出来说“没有图片”，webview能正常看到，有没有跟我一样的情况 ...</blockquote>
+好像是e站又搞了什么新花招，ehv也出现了一样的check failed问题，CI更新的最新版才解决了。mihon的插件不知道有没有跟进<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

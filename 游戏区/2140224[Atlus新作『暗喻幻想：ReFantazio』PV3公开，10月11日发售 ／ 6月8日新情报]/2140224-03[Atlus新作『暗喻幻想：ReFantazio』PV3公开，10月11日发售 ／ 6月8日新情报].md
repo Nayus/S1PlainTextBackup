@@ -4651,3 +4651,11 @@ Hard难度除开第一章卡续航，之后就是名不副实毫无难度，只�
 
 这种打法会需要队伍有个盗贼，同时支援射手和战士，所以盗贼mp消耗巨大
 
+
+*****
+
+####  TiiTiiLL  
+##### 3370#       发表于 2024-10-31 19:51
+
+自由的翼这首歌我记得有一首前奏特别像的但是实在想不起来了，有坛友知道的吗<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+

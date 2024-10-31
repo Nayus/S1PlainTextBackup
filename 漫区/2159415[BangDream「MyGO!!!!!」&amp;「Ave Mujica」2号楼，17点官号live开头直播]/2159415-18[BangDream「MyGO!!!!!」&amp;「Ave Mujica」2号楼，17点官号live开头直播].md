@@ -6992,3 +6992,11 @@ Happy Halloween捏
 本来就是第七集后下定决心杀死软弱的自己
 认为这个决心是笑话的当然觉得祥子只是在嘴硬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  66367749  
+##### 25749#       发表于 2024-10-31 10:47
+
+家庭原因退队而已，高中生乐队多大仇啊，别代入自己见不得人好的性格<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

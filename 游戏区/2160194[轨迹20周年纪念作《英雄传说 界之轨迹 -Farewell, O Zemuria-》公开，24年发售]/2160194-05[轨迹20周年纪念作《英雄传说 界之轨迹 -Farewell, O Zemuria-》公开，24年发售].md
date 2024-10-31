@@ -9190,3 +9190,17 @@ nayuta
 
 说是直接换头了我都信，完全就是另一个人
 
+
+*****
+
+####  隔壁老黄  
+##### 6772#       发表于 2024-11-1 01:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66590626&amp;ptid=2160194" target="_blank">秘银mithril 发表于 2024-10-31 23:36</a>
+骑神战还是那么无趣
+
+话说这个艾米莉亚少校，是不是微妙的性格变了？感觉黎1、2的时候是更可靠稳重的感觉… ...</blockquote>
+萝卜战向魔装鬼模式靠拢了，续作如果萝卜也能套即时战斗系统那就牛了，技术上问题应该不大吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+

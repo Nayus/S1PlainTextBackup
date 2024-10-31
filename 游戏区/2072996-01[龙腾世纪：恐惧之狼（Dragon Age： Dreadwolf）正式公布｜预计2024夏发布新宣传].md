@@ -2296,3 +2296,15 @@ nm又饮茶开会了，想起之前看新法政，主角团也是一个案件结
 
 玩了两小时我觉得这游戏就是因为zzzq自毁长城了，两个小时左右开了技能树看了眼动作系统还是做了深度的，手感像星战幸存者，整体体验还可以，捏人也能捏出看的过眼的，序章唯一瞎眼的地方是上来那矮人队友的一脸麻子，真的是看了让人起鸡皮疙瘩的水平。
 
+
+*****
+
+####  roydimus  
+##### 865#       发表于 2024-11-1 03:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">蛋头来个I had a plan直接笑出声了，恭喜达奇在点子王大赛中勇夺亚军
+
+这个灯塔，无论设计还是同伴对话，都和漫威午夜之子的根据地一个调调
+
+— from Sony XQ-AT52, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

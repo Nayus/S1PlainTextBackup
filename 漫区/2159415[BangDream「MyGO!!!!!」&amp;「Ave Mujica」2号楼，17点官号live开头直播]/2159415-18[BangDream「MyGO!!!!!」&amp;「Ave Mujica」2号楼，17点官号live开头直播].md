@@ -7085,3 +7085,13 @@ Happy Halloween捏
 
 动画里初华也这么背喵梦一下给我看看呢
 
+
+*****
+
+####  星天观测  
+##### 25755#       发表于 2024-10-31 14:40
+
+啪的一下跳到初华背上
+
+感觉喵梦干出这种事好像也不是不可能啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

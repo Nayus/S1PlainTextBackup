@@ -4468,3 +4468,11 @@ hard难度除了全反射龙我没遇到会卡的boss除非等级太低，你先
 
 —— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  莉可厨  
+##### 3355#       发表于 2024-10-31 10:12
+
+龙宫已经是这个游戏最像样的一张图了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不知道大家在吐槽什么
+

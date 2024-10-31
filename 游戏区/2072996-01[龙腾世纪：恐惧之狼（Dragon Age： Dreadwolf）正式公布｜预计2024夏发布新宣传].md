@@ -2036,3 +2036,13 @@ skillup视频里那几段解决队友矛盾的片段确实太像幼儿园小朋�
 这代官方中文里所有的they都翻译成了TA，导致剧情里一旦出现一个非二元角色，在文本里就特别显眼 ...</blockquote>
 它，反正they/them本来也是“它们”<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刻路希  
+##### 840#       发表于 2024-10-31 16:47
+
+[https://www.bilibili.com/video/B ... 032a9367350af539bae](https://www.bilibili.com/video/BV18LS7Y8E8X/?vd_source=b07071744150b032a9367350af539bae)
+
+Skill Up评测有AI精翻了
+

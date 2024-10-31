@@ -313,3 +313,11 @@ f0Q91yo-ifouZbT1kShs-13i.jpg
 
 30发暗狐终于光暗齐全，40发老头，石不过三石不过三<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 46785#       发表于 2024-11-1 02:58
+
+抽3星上头了，240石头老头来了，3星才3宝<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

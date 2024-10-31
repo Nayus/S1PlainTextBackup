@@ -1747,3 +1747,25 @@ skillup视频里那几段解决队友矛盾的片段确实太像幼儿园小朋�
 
 — from Sony XQ-DQ72, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2
 
+
+*****
+
+####  llysander  
+##### 816#       发表于 2024-10-31 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66580852&amp;ptid=2072996" target="_blank">Hidewhite 发表于 2024-10-30 21:29</a>
+
+龙腾世纪现在最先进的就是它的多元化啊，这是游戏最突出的卖点了，不拿这个说事那不是罔顾事实嘛。这包容这 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer"> 然后所有讨论都默认了一个前提：游戏都是没活没亮点了才开始把woke当卖点。
+
+如果游戏综合得好，woke只是对反对者无关痛痒对支持者锦上添花的加一句，跟所有抓着小地方大力宣传的产品一样。
+
+“我们的手机用了环保回收纸包装”
+
+*****
+
+####  Edvinno  
+##### 817#       发表于 2024-10-31 10:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">新爆出来的道歉过场既出戏又无聊，直接爆破故事沉浸感，关键是语气也很低龄，如果全程都是这种宝宝化语言风格那是真遭不住。也就是生软还能有死忠挽尊，如果是草创期的猫头鹰拉瑞安之流，在rpg里搞这种对话早就直接升天了。
+

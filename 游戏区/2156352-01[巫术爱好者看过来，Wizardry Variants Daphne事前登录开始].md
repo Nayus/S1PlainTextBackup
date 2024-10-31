@@ -2355,3 +2355,13 @@ https://gamerch.com/wizardry-daphne/
 做兔子任务主角被一个ct咬死了，然后触发了一个无偿复活给我整到右上角死路了，下周目见 ...</blockquote>
 发了个邮件问怎么解决一周都没回 这就是日本厂的服务精神吗
 
+
+*****
+
+####  startea15  
+##### 263#       发表于 2024-11-1 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66588910&amp;ptid=2156352" target="_blank">浅草若旦那 发表于 2024-10-31 04:40</a>
+发了个邮件问怎么解决一周都没回 这就是日本厂的服务精神吗</blockquote>
+是这样的，我第一个号死档了发了n久申诉单都没有一点回复的，连个已收到申诉单自动回复都没的，气得我去退款了，然后也不让退一点，感情就像三哥赚钱三哥花，一分别想带走<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+

@@ -7000,3 +7000,11 @@ Happy Halloween捏
 
 家庭原因退队而已，高中生乐队多大仇啊，别代入自己见不得人好的性格<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 25750#       发表于 2024-10-31 11:01
+
+那有些人就是看不得角色不想回到哭来西裤你能怎么办呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

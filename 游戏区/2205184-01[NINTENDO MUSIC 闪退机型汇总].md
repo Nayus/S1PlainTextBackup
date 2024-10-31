@@ -410,3 +410,13 @@ PTCGpocket不用梯子可以登录不闪退，但是没法连接商店。
 
 iqoo neo9s pro ，安装时说不支持手机，求解
 
+
+*****
+
+####  a2276382  
+##### 46#       发表于 2024-10-31 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66590048&amp;ptid=2205184" target="_blank">装甲兔 发表于 2024-10-31 22:11</a>
+iqoo neo9s pro ，安装时说不支持手机，求解</blockquote>
+我 neo9可以啊 谷歌play问题？
+

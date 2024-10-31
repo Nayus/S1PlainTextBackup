@@ -2233,3 +2233,15 @@ nm又饮茶开会了，想起之前看新法政，主角团也是一个案件结
 
 和我几个月前猜的差不多，早期宣传c位就是可选主角的默认脸<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  寂长无星夜  
+##### 859#       发表于 2024-10-31 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66584987&amp;ptid=2072996" target="_blank">哆哆鸡 发表于 2024-10-31 12:26</a>
+国内这是一家媒体或个人自媒体都没收到评测邀请啊，只有2柄一家有一个不痛不痒的发售前7件事
+
+特别好奇如果 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">游民发了，看它家天天猛发龙腾负面新闻还以为不可能拿到评测码呢
+

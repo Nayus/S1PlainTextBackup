@@ -2046,3 +2046,15 @@ skillup视频里那几段解决队友矛盾的片段确实太像幼儿园小朋�
 
 Skill Up评测有AI精翻了
 
+
+*****
+
+####  nukacolamania  
+##### 841#       发表于 2024-10-31 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66585661&amp;ptid=2072996" target="_blank">风烛尘香 发表于 2024-10-31 13:49</a>
+两眼一黑（五周目都跟Dorian建立浪漫关系，已碎.jpg）</blockquote>
+反派最大的恶行就是故意不按正确的代词称呼主角团队<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+—— 来自 motorola moto g stylus 5G (2022), Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

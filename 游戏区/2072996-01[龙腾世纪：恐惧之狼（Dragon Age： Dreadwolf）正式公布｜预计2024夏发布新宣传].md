@@ -2003,3 +2003,25 @@ skillup视频里那几段解决队友矛盾的片段确实太像幼儿园小朋�
 
 迫真woke garbage，看视频都恶心了
 
+
+*****
+
+####  sunkaifeng00  
+##### 838#       发表于 2024-10-31 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66585709&amp;ptid=2072996" target="_blank">棺材叔叔 发表于 2024-10-31 13:54</a>
+
+本来想给以前玩的盗版补票。。结果，这也太丑了补不下去
+
+就不能老老实实重置1代吗 ...</blockquote>
+重制1代的话你可能看到
+
+1、砍精灵和一帮妹子的颜值
+
+2、Zevran变尼精灵，阿诺拉变拉美后裔
+
+3、冏A、罗根和Sten增加双插头设定
+
+4、morigan的动机变成只是想要一个伐木累
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

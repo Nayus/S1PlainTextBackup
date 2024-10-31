@@ -1656,3 +1656,24 @@ skillup视频里那几段解决队友矛盾的片段确实太像幼儿园小朋�
 
 可不是DATV一群小钻风可比
 
+
+*****
+
+####  风烛尘香  
+##### 809#       发表于 2024-10-31 08:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66582377&amp;ptid=2072996" target="_blank">ak123 发表于 2024-10-31 04:30</a>
+
+200多楼的时候，我就发对比贴吐槽过6头身大头娃娃的问题了，这个难绷人设是制作组很早就定下的，现在各种 ...</blockquote>
+目前我最不满意的也是这个角色形象，预告里那个小胡子简直是从模拟人生4里抠下来的角色建模再精细化后的产物，真的有人想跟这种下一秒仿佛发出迷之狂笑的抽象角色谈恋爱吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  风烛尘香  
+##### 810#       发表于 2024-10-31 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66582435&amp;ptid=2072996" target="_blank">刻路希 发表于 2024-10-31 05:59</a>
+
+和蛋头互动总共4次？好家伙这不是ME3的幻影人吗，真好斜坡和幻影人互怼4次，DATV是ME正统了属于是 ...</blockquote>
+只出场四次还得做到很复杂很有趣，这得是非常高超的写作水平了，要么浓缩就是精华，要么谜语人大叔你谁啊
+

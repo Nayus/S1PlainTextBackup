@@ -4670,3 +4670,14 @@ Hard难度除开第一章卡续航，之后就是名不副实毫无难度，只�
 斩强化和高级斩强化能不能叠加？</blockquote>
 这个可以叠啊
 
+
+*****
+
+####  2015年入股市  
+##### 3372#       发表于 2024-11-1 02:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66586589&amp;ptid=2140224" target="_blank">莉可厨 发表于 2024-10-31 15:26</a>
+
+不能叠来着，可以搜一下攻略，有的被动是不能叠的（比如前后排攻击力加10%） ...</blockquote>
+我试了下斩强化和高级斩强化似乎是可以叠加的
+

@@ -2104,3 +2104,13 @@ misgender boss然后boss原地自鲨<img src="https://static.saraba1st.com/image
 
 媒体说画质好，但是真看起来就那么回事，因为设计问题，很多脸，服装，房子贴图都是大块大块的色块，缺乏细节，充满了廉价感。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pgain2004  
+##### 847#       发表于 2024-10-31 18:28
+
+[https://x.com/GambleMike/status/1850994136629068091](https://x.com/GambleMike/status/1850994136629068091)
+
+哦你还想继续出质量效益哦？
+

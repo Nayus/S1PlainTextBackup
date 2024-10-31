@@ -1586,3 +1586,11 @@ https://www.bilibili.com/video/BV1KuyWYcEng/
 
 再掉一张礼装就可以成为唯一两张满破的活动礼装了，虽然感觉没什么用。而且认真一看这剑兰的锁骨下胸肌怎么那么怪
 
+
+*****
+
+####  白金口袋  
+##### 15071#       发表于 2024-10-31 12:08
+
+奏章关闭之前没打完，亏了一个亿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -2161,3 +2161,22 @@ https://www.bilibili.com/video/BV1hLSJYMEFg/?vd_source=b07071744150b032a9367350a
 当然目前不确定Cassandra是否会在4代出现 ...</blockquote>
 DAI的Dorian绝对是白月光级别的好看，带点骄矜之气但善良温和有教养有爱心的德范特公子哥，在阿斯代伦出现之前Dorian一直是我心目中的男同天菜，有资格像个花孔雀一样炫耀自己浑身上下散发金钱气息的美貌，给人的第一印象可能是虚伪浮华，但其实善良有正义感还充满反思精神。结果DAV里变半秃大叔，这对LGBT群体就友好吗？？？？<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  operatbig  
+##### 852#       发表于 2024-10-31 20:35
+
+看了会直播，主角这人群怎么这么喜欢开会。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  汪达  
+##### 853#       发表于 2024-10-31 20:35
+
+youtu.be/GwNCsyBjQfY
+
+刷到个切片，这对话氛围也太怪了，感觉这种情景应该发生在生软办公室里，而不是奇幻世界<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+看到有人说“Todd lied better”没绷住<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

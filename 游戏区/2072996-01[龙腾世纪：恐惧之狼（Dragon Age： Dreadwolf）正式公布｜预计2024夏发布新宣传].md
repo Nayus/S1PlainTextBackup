@@ -1827,3 +1827,24 @@ skillup视频里那几段解决队友矛盾的片段确实太像幼儿园小朋�
 
 这代官方中文里所有的they都翻译成了TA，导致剧情里一旦出现一个非二元角色，在文本里就特别显眼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  斯拉克自有喵计  
+##### 822#       发表于 2024-10-31 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66584449&amp;ptid=2072996" target="_blank">丧失神殿 发表于 2024-10-31 11:22</a>
+这代官方中文里所有的they都翻译成了TA，导致剧情里一旦出现一个非二元角色，在文本里就特别显眼 ...</blockquote>
+只能用它了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+
+*****
+
+####  寂长无星夜  
+##### 823#       发表于 2024-10-31 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66584266&amp;ptid=2072996" target="_blank">三谷歩夢 发表于 2024-10-31 11:04</a></blockquote>
+有请洗地说这种设定无关紧要无感就略过的坛友发言
+

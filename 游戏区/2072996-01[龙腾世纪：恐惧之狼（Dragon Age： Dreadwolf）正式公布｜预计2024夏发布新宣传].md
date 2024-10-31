@@ -2195,3 +2195,11 @@ youtu.be/GwNCsyBjQfY
 
 新队友随便你怎么做了，难以想象DA2那个剽悍的海盗大姐伊莎贝拉会用oops sorry这种语气
 
+
+*****
+
+####  operatbig  
+##### 856#       发表于 2024-10-31 20:58
+
+这地牢全程一路见面就是打打打，没有npc对话事件，只有队友在旁边碎碎念，妥妥的战神。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

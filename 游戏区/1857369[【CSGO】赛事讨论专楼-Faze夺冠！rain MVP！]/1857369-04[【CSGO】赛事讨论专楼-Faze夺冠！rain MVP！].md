@@ -54,3 +54,11 @@ make丹麦csgreatagain
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一次比赛承包了一年的名场面，每一场都有看（笑）点，能忍住不笑的都不是人
 
+
+*****
+
+####  朔方原的星  
+##### 4497#         楼主| 发表于 2024-10-31 21:01
+
+快进到a队进场馆被直接抬走
+

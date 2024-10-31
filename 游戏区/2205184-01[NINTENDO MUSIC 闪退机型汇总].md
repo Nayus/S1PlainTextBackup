@@ -431,3 +431,13 @@ iqoo neo9s pro ，安装时说不支持手机，求解</blockquote>
 我 neo9可以啊 谷歌play问题？</blockquote>
 求问怎么装谷歌play
 
+
+*****
+
+####  咲晨  
+##### 48#       发表于 2024-10-31 23:32
+
+xperia 1 iv 在开始点歌单播放闪退了一次，之后再也没闪退过
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

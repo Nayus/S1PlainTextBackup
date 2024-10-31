@@ -1575,3 +1575,16 @@ skillup的原话是对话像是有hr在同一个房间一样
 
 薇薇安：判官，既然你的恶魔缺乏教养，也许你可以去找索拉斯来训练它。
 
+
+*****
+
+####  D-JoeII  
+##### 803#       发表于 2024-10-31 07:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66580579&amp;ptid=2072996" target="_blank">roydimus 发表于 2024-10-30 20:48</a>
+
+skillup视频里那几段解决队友矛盾的片段确实太像幼儿园小朋友了
+
+前瞻里面我觉得Fextralife做得视频不错， ...</blockquote>
+老實說我有點驚訝Fextralife能被邀請去前瞻,畢竟他們家的wiki錯漏百出+曾經在每一個自家wiki頁面裡偷偷插入他們的twitch直播視頻(1x1像素所以多少人發現)+自動播放,營造每次都上萬人看他們直播的錯覺,直到去年才被twitch反制
+

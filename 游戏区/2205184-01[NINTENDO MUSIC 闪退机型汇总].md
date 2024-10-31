@@ -420,3 +420,14 @@ iqoo neo9s pro ，安装时说不支持手机，求解
 iqoo neo9s pro ，安装时说不支持手机，求解</blockquote>
 我 neo9可以啊 谷歌play问题？
 
+
+*****
+
+####  装甲兔  
+##### 47#       发表于 2024-10-31 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66590158&amp;ptid=2205184" target="_blank">a2276382 发表于 2024-10-31 22:28</a>
+
+我 neo9可以啊 谷歌play问题？</blockquote>
+求问怎么装谷歌play
+

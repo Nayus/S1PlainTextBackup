@@ -2096,3 +2096,11 @@ B站有实体盘偷跑直播了，已经播了三个多小时了
 —— 来自 motorola moto g stylus 5G (2022), Andr ...</blockquote>
 misgender boss然后boss原地自鲨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  震荡波  
+##### 846#       发表于 2024-10-31 18:00
+
+媒体说画质好，但是真看起来就那么回事，因为设计问题，很多脸，服装，房子贴图都是大块大块的色块，缺乏细节，充满了廉价感。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

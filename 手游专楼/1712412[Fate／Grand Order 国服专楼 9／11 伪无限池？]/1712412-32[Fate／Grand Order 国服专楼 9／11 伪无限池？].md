@@ -288,3 +288,20 @@ yls的方差是这样的呀，我一个抓包1.1的连续翻车，人家1.5的�
 
 有活动倍卡打战线还是比较无脑的，最后一关也是莽就完事了，就是提丰那个硬拖三回合设计的比较恶心
 
+
+*****
+
+####  johnkamsar  
+##### 46783#       发表于 2024-10-31 14:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">“你们啊！要知耻啊！这游戏活到现在你们都有责任！”
+
+f0Q91yo-ifouZbT1kShs-13i.jpg
+(121.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-31 14:09 上传
+
+<img src="https://img.saraba1st.com/forum/202410/31/140913vggd2tgti9zvqitd.jpg" referrerpolicy="no-referrer">
+

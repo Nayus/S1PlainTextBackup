@@ -246,3 +246,11 @@ boss战感觉老唐有点放水了
 
 当然N浮仅凭共鸣回理智就不会被淘汰，起码也能作为场下辅助。
 
+
+*****
+
+####  Yuzutea  
+##### 966#       发表于 2024-10-31 13:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">实战起来好帅的我虫
+

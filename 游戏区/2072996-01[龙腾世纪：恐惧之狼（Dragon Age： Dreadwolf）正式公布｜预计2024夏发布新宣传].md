@@ -2257,3 +2257,14 @@ nm又饮茶开会了，想起之前看新法政，主角团也是一个案件结
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  DawnGuardian  
+##### 861#       发表于 2024-11-1 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66590050&amp;ptid=2072996" target="_blank">ak123 发表于 2024-10-31 22:11</a>
+
+和我几个月前猜的差不多，早期宣传c位就是可选主角的默认脸</blockquote>
+这女精灵和女矮人的默认脸型看着还算正常，但是这身材比例实在太难绷了
+

@@ -4548,3 +4548,14 @@ TVアニメ『ラブライブ！スーパースター!!』3期 第4話「No Rain
 
 看来生死就看这两周了，会赢吗，小唐<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csolfans  
+##### 438#       发表于 2024-10-31 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66587864&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-10-31 17:40</a>
+
+看来生死就看这两周了，会赢吗，小唐</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">起码舅舅锐评打歌服无敌
+

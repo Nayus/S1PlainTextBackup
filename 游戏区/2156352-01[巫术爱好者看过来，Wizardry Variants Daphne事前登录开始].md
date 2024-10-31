@@ -2344,3 +2344,14 @@ https://gamerch.com/wizardry-daphne/
 
 某个1F清哥布林的任务，原来去了4F拿到某人遗书再回来清会有隐藏剧情
 
+
+*****
+
+####  浅草若旦那  
+##### 262#       发表于 2024-10-31 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66517129&amp;ptid=2156352" target="_blank">浅草若旦那 发表于 2024-10-22 19:53</a>
+
+做兔子任务主角被一个ct咬死了，然后触发了一个无偿复活给我整到右上角死路了，下周目见 ...</blockquote>
+发了个邮件问怎么解决一周都没回 这就是日本厂的服务精神吗
+

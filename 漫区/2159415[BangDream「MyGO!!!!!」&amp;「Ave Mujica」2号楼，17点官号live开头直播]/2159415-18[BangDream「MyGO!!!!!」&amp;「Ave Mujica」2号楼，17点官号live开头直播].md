@@ -6967,3 +6967,11 @@ Happy Halloween捏
 杂志上也没啥新内容吧，去年访谈差不多的东西
 有人就爱睁眼瞎当然有“争议”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哈曼的YY  
+##### 25746#       发表于 2024-10-31 09:42
+
+祝你幸福不是真心的难不成还是我要杀了你<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -1957,3 +1957,49 @@ skillup视频里那几段解决队友矛盾的片段确实太像幼儿园小朋�
 
 感觉会是今年继黑猴之后的第二次互联网狂欢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风烛尘香  
+##### 833#       发表于 2024-10-31 13:49
+
+ 本帖最后由 风烛尘香 于 2024-10-31 13:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66585410&amp;ptid=2072996" target="_blank">perfect_duck 发表于 2024-10-31 13:20</a>
+
+你跟我说这是同一个角色？</blockquote>
+两眼一黑（五周目都跟Dorian建立浪漫关系，已碎.jpg）
+
+*****
+
+####  ArowRocher  
+##### 834#       发表于 2024-10-31 13:51
+
+我有一个问题，恶劣的反派使用代词称呼主角队伍的时候要正确使用吗
+
+
+*****
+
+####  ArowRocher  
+##### 835#       发表于 2024-10-31 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66585597&amp;ptid=2072996" target="_blank">变老的大二 发表于 2024-10-31 13:42</a>
+
+感觉会是今年继黑猴之后的第二次互联网狂欢</blockquote>
+什么意思，concord狂欢把你落下了？
+
+*****
+
+####  棺材叔叔  
+##### 836#       发表于 2024-10-31 13:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">本来想给以前玩的盗版补票。。结果，这也太丑了补不下去
+
+就不能老老实实重置1代吗
+
+*****
+
+####  Benighted  
+##### 837#       发表于 2024-10-31 13:56
+
+迫真woke garbage，看视频都恶心了
+

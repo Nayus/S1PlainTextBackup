@@ -4534,3 +4534,11 @@ P系列跑图还有个合P能调剂一下，暗喻练初级阿基态练到吐不
 
 也怪不得后面大家都不想管那么多，万能扔过去完事<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  2015年入股市  
+##### 3362#       发表于 2024-10-31 13:45
+
+斩强化和高级斩强化能不能叠加？
+

@@ -2373,3 +2373,14 @@ nm又饮茶开会了，想起之前看新法政，主角团也是一个案件结
 这部与ME1-3的收割者剧情模式还真像，但主线真够短的，举个例子相当于ME1-3浓缩在了一部作品，所谓的世上最 ...</blockquote>
 并不是，隐藏结局里他们硬塞了一群面具人，说他们才是一切的幕后黑手，为了维持平衡蛊惑了历史上所有的坏人，摆明了还要搞下一部<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刻路希  
+##### 872#       发表于 2024-11-1 06:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66591375&amp;ptid=2072996" target="_blank">ak123 发表于 2024-11-1 06:29</a>
+
+并不是，隐藏动画里他们硬塞了一群面具人，面具人说他们才是一切的幕后黑手，所有历史大事件后都是他们在 ...</blockquote>
+这剧情真够恶心人的，真的有所谓的新老粉会买新作吗？有种轨迹系列连续剧的美
+

@@ -502,3 +502,28 @@
 
 不知道为啥这么喜欢玩个鳄鱼，前期打不出来，后期大头兵。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然赢了，但和你个0-8的鳄鱼有啥关系呢。
 
+
+*****
+
+####  十九号大侠  
+##### 17560#       发表于 2024-10-30 20:59
+
+能同步解说lol决赛吗
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  古战场亡魂  
+##### 17561#       发表于 2024-10-30 23:51
+
+不知道为啥这么喜欢玩个鳄鱼，前期打不出来，后期大头兵。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然赢了，但和你个0-8的鳄鱼有啥关系呢。
+
+*****
+
+####  sino__unnko3  
+##### 17562#       发表于 2024-10-31 09:58
+
+这两次15h直播看到现在，做了个对应部分视频全留档，手动拼接了一下，你咩是把跟这位路人的私信全部展示出来了的，虽然作为🦄对你咩拉个路人来甜蜜双排十分甚至九分的不满，但是私信全展示的话是没什么私心的。。？
+

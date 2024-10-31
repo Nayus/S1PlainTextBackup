@@ -2180,3 +2180,18 @@ youtu.be/GwNCsyBjQfY
 
 看到有人说“Todd lied better”没绷住<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  operatbig  
+##### 854#       发表于 2024-10-31 20:44
+
+看了两小时没见到任何有意义的对话选项，唉，我这专门请的假啊...
+
+*****
+
+####  Edvinno  
+##### 855#       发表于 2024-10-31 20:45
+
+新队友随便你怎么做了，难以想象DA2那个剽悍的海盗大姐伊莎贝拉会用oops sorry这种语气
+

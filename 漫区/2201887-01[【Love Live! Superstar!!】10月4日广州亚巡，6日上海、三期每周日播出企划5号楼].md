@@ -4559,3 +4559,16 @@ TVアニメ『ラブライブ！スーパースター!!』3期 第4話「No Rain
 看来生死就看这两周了，会赢吗，小唐</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">起码舅舅锐评打歌服无敌
 
+
+*****
+
+####  ViyViy  
+##### 439#       发表于 2024-10-31 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66588186&amp;ptid=2201887" target="_blank">csolfans 发表于 2024-10-31 18:17</a>
+
+起码舅舅锐评打歌服无敌</blockquote>
+情报师补充后感觉和第四集一样只是个衣服<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+想到动画这时间应该是7月，也就是说老姐（或老妈）大费周章难道是给宝贝过生日<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

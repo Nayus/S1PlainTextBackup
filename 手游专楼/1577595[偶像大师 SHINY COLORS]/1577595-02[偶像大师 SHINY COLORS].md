@@ -25,3 +25,11 @@
 
 但你问我满破了谁那我只能说铃木她长得好看<img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  caiseni  
+##### 2958#       发表于 2024-10-31 19:02
+
+每次看到社区关于羽那剧情的愚痴，嘴角就忍不住上扬并加深对创作staff的信者度，只能说在这个角色的设计上他们干了很大胆的事情而且干得很漂亮
+

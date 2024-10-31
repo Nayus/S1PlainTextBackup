@@ -2127,3 +2127,37 @@ misgender boss然后boss原地自鲨<img src="https://static.saraba1st.com/image
 
 当然目前不确定Cassandra是否会在4代出现
 
+
+*****
+
+####  jf8350143  
+##### 849#       发表于 2024-10-31 18:58
+
+质量效应吧有剧透了……
+
+龙腾吧也有讨论的，想躲剧透的可以注意一下
+
+
+*****
+
+####  刻路希  
+##### 850#       发表于 2024-10-31 19:00
+
+https://www.bilibili.com/video/BV1hLSJYMEFg/?vd_source=b07071744150b032a9367350af539bae
+
+最终结局都泄露了，如果这是唯一结局的话蛋头和小丑没区别，难怪不叫恐惧之狼了，蛋头根本没有幻影人的B格
+
+
+*****
+
+####  风烛尘香  
+##### 851#       发表于 2024-10-31 19:05
+
+ 本帖最后由 风烛尘香 于 2024-10-31 19:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66588502&amp;ptid=2072996" target="_blank">perfect_duck 发表于 2024-10-31 18:54</a>
+
+我推的Cassandra，现在Cassandra都比他漂亮的多
+
+当然目前不确定Cassandra是否会在4代出现 ...</blockquote>
+DAI的Dorian绝对是白月光级别的好看，带点骄矜之气但善良温和有教养有爱心的德范特公子哥，在阿斯代伦出现之前Dorian一直是我心目中的男同天菜，有资格像个花孔雀一样炫耀自己浑身上下散发金钱气息的美貌，给人的第一印象可能是虚伪浮华，但其实善良有正义感还充满反思精神。结果DAV里变半秃大叔，这对LGBT群体就友好吗？？？？<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

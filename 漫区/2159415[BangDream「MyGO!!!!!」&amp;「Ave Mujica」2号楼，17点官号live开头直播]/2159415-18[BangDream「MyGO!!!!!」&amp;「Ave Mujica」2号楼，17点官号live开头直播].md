@@ -7068,3 +7068,20 @@ Happy Halloween捏
 
 2024-10-31 14:15 上传
 
+
+*****
+
+####  星天观测  
+##### 25753#       发表于 2024-10-31 14:33
+
+特意做了喵梦色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这真可以算初喵上大分了吧
+
+*****
+
+####  skives10  
+##### 25754#       发表于 2024-10-31 14:34
+
+动画里初华也这么背喵梦一下给我看看呢
+

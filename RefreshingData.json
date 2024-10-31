@@ -2265,7 +2265,7 @@
     "lastedit": 1730376120,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1804478": {
     "totalreply": 1242,
@@ -8631,10 +8631,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 94329,
+    "totalreply": 94330,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1730402647,
+    "lastedit": 1730406605,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -11416,15 +11416,6 @@
     "title": "[听说易建联爆雷了]",
     "newtitle": "[听说易建联爆雷了]",
     "lastedit": 1729223316,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2203461": {
-    "totalreply": 65,
-    "title": "[这年头老奶奶都开始喜欢键政了吗]",
-    "newtitle": "[这年头老奶奶都开始喜欢键政了吗]",
-    "lastedit": 1729196889,
     "category": "外野",
     "active": false,
     "update": false

@@ -391,3 +391,14 @@ PTCGpocket不用梯子可以登录不闪退，但是没法连接商店。
 一加8T，os14，怎么弄都不行，服啦</blockquote>
 8t 刷了aosp rom 正常用
 
+
+*****
+
+####  yahanintnedo  
+##### 44#       发表于 2024-10-31 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66589615&amp;ptid=2205184" target="_blank">atomos_096 发表于 2024-10-31 21:14</a>
+
+8t 刷了aosp rom 正常用</blockquote>
+晚上不开**等一下反而登上去了
+

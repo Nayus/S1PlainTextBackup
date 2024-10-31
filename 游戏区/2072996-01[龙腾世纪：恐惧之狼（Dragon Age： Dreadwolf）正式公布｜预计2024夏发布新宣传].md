@@ -2066,3 +2066,20 @@ Skill Up评测有AI精翻了
 
 期待解锁
 
+
+*****
+
+####  刻路希  
+##### 843#       发表于 2024-10-31 17:40
+
+[https://live.bilibili.com/277238 ... arch-card.all.click](https://live.bilibili.com/27723867?live_from=84001&amp;spm_id_from=333.337.search-card.all.click)
+
+B站有实体盘偷跑直播了，已经播了三个多小时了
+
+*****
+
+####  刻路希  
+##### 844#       发表于 2024-10-31 17:44
+
+我去中文字幕好大，应该是给电视游戏远距离看的吧，我玩的是pc，希望能调整字体大小
+

@@ -2083,3 +2083,16 @@ B站有实体盘偷跑直播了，已经播了三个多小时了
 
 我去中文字幕好大，应该是给电视游戏远距离看的吧，我玩的是pc，希望能调整字体大小
 
+
+*****
+
+####  mimighost  
+##### 845#       发表于 2024-10-31 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66587544&amp;ptid=2072996" target="_blank">nukacolamania 发表于 2024-10-31 17:11</a>
+
+反派最大的恶行就是故意不按正确的代词称呼主角团队
+
+—— 来自 motorola moto g stylus 5G (2022), Andr ...</blockquote>
+misgender boss然后boss原地自鲨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

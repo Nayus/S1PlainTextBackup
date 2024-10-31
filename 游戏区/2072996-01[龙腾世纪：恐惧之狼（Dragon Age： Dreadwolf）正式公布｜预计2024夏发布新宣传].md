@@ -2211,3 +2211,25 @@ youtu.be/GwNCsyBjQfY
 
 nm又饮茶开会了，想起之前看新法政，主角团也是一个案件结束后就开始红酒美食聊人生，这就是成功人士吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ak123  
+##### 858#       发表于 2024-10-31 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65205520&amp;ptid=2072996" target="_blank">ak123 发表于 2024-6-12 11:23</a>
+
+卡通角色，塑料武器，迪士尼建筑，微笑骷髅,就和第一个预告一模一样
+
+还自我驯化预告误导的人眼睛和脑子 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202410/31/221031desehlela4rhaped.png" referrerpolicy="no-referrer">
+
+<strong>QQ20241031-220915.png</strong> (1.77 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-31 22:10 上传
+
+和我几个月前猜的差不多，早期宣传c位就是可选主角的默认脸<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

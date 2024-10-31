@@ -14924,3 +14924,20 @@ cali直播中热评miko的曲子和live
 
 笑死了见人就问你看了我的live吗，我不信这么多箱推都看了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 10106#         楼主| 发表于 2024-10-31 21:53
+
+不会明年真的办2nd吧
+
+*****
+
+####  holoan  
+##### 10107#         楼主| 发表于 2024-10-31 22:09
+
+恁耐久我可得睡了
+
+不过还好多亏死得快
+

@@ -2025,3 +2025,14 @@ skillup视频里那几段解决队友矛盾的片段确实太像幼儿园小朋�
 4、morigan的动机变成只是想要一个伐木累
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mimighost  
+##### 839#       发表于 2024-10-31 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66584449&amp;ptid=2072996" target="_blank">丧失神殿 发表于 2024-10-31 11:22</a>
+
+这代官方中文里所有的they都翻译成了TA，导致剧情里一旦出现一个非二元角色，在文本里就特别显眼 ...</blockquote>
+它，反正they/them本来也是“它们”<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

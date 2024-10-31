@@ -2245,3 +2245,15 @@ nm又饮茶开会了，想起之前看新法政，主角团也是一个案件结
 特别好奇如果 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">游民发了，看它家天天猛发龙腾负面新闻还以为不可能拿到评测码呢
 
+
+*****
+
+####  PROCAINUM  
+##### 860#       发表于 2024-10-31 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66590205&amp;ptid=2072996" target="_blank">寂长无星夜 发表于 2024-10-31 22:34</a>
+游民发了，看它家天天猛发龙腾负面新闻还以为不可能拿到评测码呢</blockquote>
+游民带了那么久节奏，我还以为最多会给6分，想不到给了7.8分，看来质量还可以<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

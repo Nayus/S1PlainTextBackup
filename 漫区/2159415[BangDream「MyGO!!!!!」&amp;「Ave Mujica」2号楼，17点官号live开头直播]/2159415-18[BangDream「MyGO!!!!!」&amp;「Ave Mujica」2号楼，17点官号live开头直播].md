@@ -6958,3 +6958,12 @@ Happy Halloween捏
 
 [https://weibo.com/7908834265/OE2eQcWna](https://weibo.com/7908834265/OE2eQcWna)
 
+
+*****
+
+####  PDQ4  
+##### 25745#       发表于 2024-10-31 08:45
+
+杂志上也没啥新内容吧，去年访谈差不多的东西
+有人就爱睁眼瞎当然有“争议”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

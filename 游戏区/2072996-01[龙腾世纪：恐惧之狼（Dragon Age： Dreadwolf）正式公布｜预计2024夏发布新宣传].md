@@ -1600,3 +1600,59 @@ skillup视频里那几段解决队友矛盾的片段确实太像幼儿园小朋�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  jf8350143  
+##### 805#       发表于 2024-10-31 08:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66582710&amp;ptid=2072996" target="_blank">bad_alloc 发表于 2024-10-31 08:20</a>
+说起来就气，之前试过开他们的wiki然后电脑没关机，一直挂着梯子，**直播把我梯子流量跑光了
+
+论坛助手,i ...</blockquote>
+他家就是一业界毒瘤，污染搜索引擎（搜wiki他们的破玩意排在正经wiki前面）加一堆过期/不全的攻略。
+
+还有人给他们眼神拿他们当正经测评就离谱。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  PROCAINUM  
+##### 806#       发表于 2024-10-31 08:46
+
+被透了一段伊莎贝拉关于牛头妹的对话，真是够了，塞的私货太多，我这个中间派也受不了，被人喷活该，自作孽不可活。生软还是在做完DAI后就成为过去式比较好，起码不会再败坏名声了<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  卡拉德利姆  
+##### 807#       发表于 2024-10-31 08:50
+
+所以回到之前的争论
+“你为什么不宽容？”
+“我为什么要宽容？”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  油条小贩  
+##### 808#       发表于 2024-10-31 08:52
+
+ 本帖最后由 油条小贩 于 2024-10-31 08:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66579203&amp;ptid=2072996" target="_blank">petrouchka 发表于 2024-10-30 17:36</a>
+
+不是，莱埃泽尔/阿斯代伦/威尔他们是死的是吧？
+
+对哦还有君主，鱿鱼都有人能接受呢！
+
+挑，都可以挑，不满 ...</blockquote>
+威尔作为黑人，哪里丑了
+
+莱姐除了种族特征，也没丑
+
+你把她种族的鼻子和肤色换掉看看，就是正常，身材比例杀DATV全家
+
+可不是DATV一群小钻风可比
+

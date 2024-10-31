@@ -2203,3 +2203,11 @@ youtu.be/GwNCsyBjQfY
 
 这地牢全程一路见面就是打打打，没有npc对话事件，只有队友在旁边碎碎念，妥妥的战神。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  operatbig  
+##### 857#       发表于 2024-10-31 21:09
+
+nm又饮茶开会了，想起之前看新法政，主角团也是一个案件结束后就开始红酒美食聊人生，这就是成功人士吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

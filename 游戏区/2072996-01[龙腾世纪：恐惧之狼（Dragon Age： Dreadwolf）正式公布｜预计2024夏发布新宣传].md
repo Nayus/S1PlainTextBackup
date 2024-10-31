@@ -2114,3 +2114,16 @@ misgender boss然后boss原地自鲨<img src="https://static.saraba1st.com/image
 
 哦你还想继续出质量效益哦？
 
+
+*****
+
+####  perfect_duck  
+##### 848#       发表于 2024-10-31 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66585661&amp;ptid=2072996" target="_blank">风烛尘香 发表于 2024-10-31 13:49</a>
+
+两眼一黑（五周目都跟Dorian建立浪漫关系，已碎.jpg）</blockquote>
+我推的Cassandra，现在Cassandra都比他漂亮的多
+
+当然目前不确定Cassandra是否会在4代出现
+

@@ -9115,3 +9115,14 @@ nayuta
 <img src="https://p.sda1.dev/20/265e25d27f39d4e04063ffe4008a946f/CMP_20241031175102395.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/20/41df4237479c90298d66e6a95b6caa0b/CMP_20241031175102528.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jacket  
+##### 6766#       发表于 2024-10-31 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66587960&amp;ptid=2160194" target="_blank">flxgundam 发表于 2024-10-31 17:51</a>
+
+🍵</blockquote>
+这次有句台词专门吐槽自己当年开茶话会
+

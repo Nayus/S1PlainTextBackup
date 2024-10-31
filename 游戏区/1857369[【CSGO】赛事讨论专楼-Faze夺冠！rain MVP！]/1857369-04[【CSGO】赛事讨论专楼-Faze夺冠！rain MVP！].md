@@ -90,3 +90,13 @@ make丹麦csgreatagain
 
 孩神！让我们草着走！
 
+
+*****
+
+####  Anarkh  
+##### 4501#       发表于 2024-11-1 00:44
+
+s1有没有cs的群啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+

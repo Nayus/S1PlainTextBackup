@@ -2337,3 +2337,21 @@ nm又饮茶开会了，想起之前看新法政，主角团也是一个案件结
 战斗比较动作化，可玩性还可以，但是不像之前几代可以爽扔法术了</blockquote>
 可能我期待不高，主要是看直播感觉还可以，有点想玩。不知道剧情怎么样。
 
+
+*****
+
+####  陈词与芍药  
+##### 869#       发表于 2024-11-1 06:11
+
+<img src="https://img.saraba1st.com/forum/202410/31/181111jjbudzq3s3dddu6d.jpg" referrerpolicy="no-referrer">
+
+<strong>img_0280.jpg</strong> (558.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-1 06:11 上传
+
+孩子们我为了更多对话选项成为trans了
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -4659,3 +4659,14 @@ Hard难度除开第一章卡续航，之后就是名不副实毫无难度，只�
 
 自由的翼这首歌我记得有一首前奏特别像的但是实在想不起来了，有坛友知道的吗<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  modkingr  
+##### 3371#       发表于 2024-10-31 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66585623&amp;ptid=2140224" target="_blank">2015年入股市 发表于 2024-10-31 13:45</a>
+
+斩强化和高级斩强化能不能叠加？</blockquote>
+这个可以叠啊
+

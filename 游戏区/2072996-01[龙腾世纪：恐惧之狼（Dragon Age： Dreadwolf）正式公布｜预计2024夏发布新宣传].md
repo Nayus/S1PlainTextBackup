@@ -2403,3 +2403,14 @@ nm又饮茶开会了，想起之前看新法政，主角团也是一个案件结
 
 最高在线能有7万啊，生软凯子还是太多了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刻路希  
+##### 875#       发表于 2024-11-1 08:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66591426&amp;ptid=2072996" target="_blank">EvenSharper 发表于 2024-11-1 07:18</a>
+
+最高在线能有7万啊，生软凯子还是太多了</blockquote>
+暗喻幻想最高在线8.5w，不会龙腾新作首发还卖不过暗喻吧？
+

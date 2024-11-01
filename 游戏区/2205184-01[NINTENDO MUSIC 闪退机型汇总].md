@@ -469,3 +469,13 @@ xperia 1 iv 在开始点歌单播放闪退了一次，之后再也没闪退过
 
 等了至少5分钟竟然进去了。。。没挂梯子
 
+
+*****
+
+####  kzf  
+##### 52#       发表于 2024-11-1 08:12
+
+我这台安装需要关miui优化，不过装上后感觉很顺滑啊，看来还得是miui14<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

@@ -4689,3 +4689,13 @@ Hard难度除开第一章卡续航，之后就是名不副实毫无难度，只�
 
 龙神迷宫可算是打得要见底了，从第二层开始我就不打杂兵了最后连东西都不捡了还是走了这么长时间这迷宫的量可真大
 
+
+*****
+
+####  kuarwbwe  
+##### 3374#       发表于 2024-11-1 08:27
+
+打了一点尤法的剧情，结果给我整乐了。这哪来的小女友？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

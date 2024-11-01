@@ -479,3 +479,13 @@ xperia 1 iv 在开始点歌单播放闪退了一次，之后再也没闪退过
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  11--  
+##### 53#       发表于 2024-11-1 08:28
+
+不开梯进去了但点音乐播放不了，点下载显示已开始下载但半天没动静<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

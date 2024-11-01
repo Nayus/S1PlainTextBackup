@@ -7502,3 +7502,11 @@ PV：米库米库米 （@米库米库米 ）
 这歌说不定不上live，上一首联动曲孤坏牢也没上6th，看7th怎么选曲了，怪期待的 ...</blockquote>
 我反正觉得藤田淳平在给每个人平等地上压力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 25779#       发表于 2024-11-1 19:34
+
+看来米家这次给wsd塞了不少钱，eg都请上了
+

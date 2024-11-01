@@ -56,3 +56,28 @@
 
 是前传吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 1977#         楼主| 发表于 2024-11-1 19:26
+
+前传
+
+◤￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣◥ 
+
+　　  『#SEEDFREEDOM』の前日譚
+
+『機動戦士ガンダムSEED FREEDOM ZERO』
+
+　　　　　　🌱制作決定🌱
+
+◣＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿◢  
+
+特別版上映第2弾
+
+映画本編ラストにて‟特報映像“を解禁。
+
+続報をお楽しみにお待ちください。
+<img src="https://p.sda1.dev/20/67e449cb5bfbba8ce08bbfb3c523cfda/20241101_192459.jpg" referrerpolicy="no-referrer">
+

@@ -137,3 +137,14 @@ s1有没有cs的群啊<img src="https://static.saraba1st.com/image/smiley/face20
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  三千珈蓝  
+##### 4506#       发表于 2024-11-1 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66594984&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2024-11-1 15:02</a>
+
+难绷</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">公式化补枪
+

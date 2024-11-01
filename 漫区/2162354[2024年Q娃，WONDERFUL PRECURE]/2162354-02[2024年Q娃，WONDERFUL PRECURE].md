@@ -595,3 +595,23 @@ BOSS是阿夸，小麦的智商当不了赤音要不就充当帽皇吧<img src="
 
 2024-10-31 00:25 上传
 
+
+*****
+
+####  jaewoongh_  
+##### 2583#       发表于 2024-11-1 10:10
+
+41 yuki on stage
+
+42 大家家中的wonderful
+
+<img src="https://img.saraba1st.com/forum/202411/01/100904q3gga7z96r23act6.jpg" referrerpolicy="no-referrer">
+
+<strong>e7cbae74gy1hv5zxqiesyj20cg05075v.jpg</strong> (32.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-1 10:09 上传
+
+每集结尾的宠物投稿是平假名，又要搞假名文字游戏了吗
+

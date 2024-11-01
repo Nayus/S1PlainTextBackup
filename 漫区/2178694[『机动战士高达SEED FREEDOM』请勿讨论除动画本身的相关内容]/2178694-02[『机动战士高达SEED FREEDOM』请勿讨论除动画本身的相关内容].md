@@ -1,0 +1,18 @@
+﻿
+*****
+
+####  死难者23er  
+##### 1971#       发表于 2024-11-1 10:11
+
+<img src="https://img.saraba1st.com/forum/202411/01/101054nwzwjuimc7tw0mh0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3088.jpeg</strong> (93 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-1 10:10 上传
+
+高达seed freedom zero制作决定
+
+看来福田之前说的会有产生争论的消息，应该是这个
+

@@ -3111,3 +3111,26 @@ dav这个地方估计是一开始当网游做得时候遗留的设计，从role 
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  aaronluray  
+##### 939#       发表于 2024-11-1 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66593893&amp;ptid=2072996" target="_blank">刻路希 发表于 2024-11-1 12:42</a>
+
+要想玩明白这一代剧情必须先把DAI和DAI的dlc入侵者通关才能明白DATV的开头剧情。四代和三代强绑定，你可 ...</blockquote>
+不止这个，看他们说同时还和小说tevinter nights强相关，很多人物都是这小说里的，你没看过小说只玩过入侵者的话照样看不懂
+
+*****
+
+####  油条小贩  
+##### 940#       发表于 2024-11-1 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66594258&amp;ptid=2072996" target="_blank">petrouchka 发表于 2024-11-1 13:31</a>
+
+可以啊，但在这个游戏专楼里，你不是玩家，也不打算玩，也不是测评者，也表明了自己的特定立场“你们玩这 ...</blockquote>
+对啊，我都说了我厌丑，你还回复我干嘛呢
+
+推销你的审美吗
+

@@ -2633,3 +2633,11 @@ Neve和Harding都不错，修罗场开搞！
 乐死🤣龙腾世纪吧已经给这鸟游戏开年度游戏的香槟了，怎么和感觉我和他们活的不是一个世界</blockquote>
 怎么说呢，倒不是没有正常8u，不乏黄牌直球辱骂生软的，但是确实有些8u言论感觉像进了疾地吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  震荡波  
+##### 898#       发表于 2024-11-1 10:50
+
+块两小时了，先退款，玩得不多不好评价，只能说，我已经不是生软的受众了。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

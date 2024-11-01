@@ -3506,3 +3506,14 @@ ccu是什么？
 只要到了能接支线自由探索的阶段，你就会发现ff16的地图设计给他提鞋都不配了。 ...</blockquote>
 ff16哪有地图设计，不都是野外大空地迷宫一条路吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ak123  
+##### 974#       发表于 2024-11-1 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66598492&amp;ptid=2072996" target="_blank">woaimiyabi 发表于 2024-11-1 22:29</a>
+
+只要到了能接支线自由探索的阶段，你就会发现ff16的地图设计给他提鞋都不配了。 ...</blockquote>
+地图设计比ff16.你这是和轮椅飙车么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

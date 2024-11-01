@@ -9217,3 +9217,136 @@ nayuta
 我个人还是更喜 ...</blockquote>
 哥们你戴着个头盔怎么亲亲搂搂
 
+
+*****
+
+####  byisme001  
+##### 6774#       发表于 2024-10-30 22:55
+
+敏特其实算是彻底上位了吧，黎1的路人同学角色就她人气最高，各种理由安排出场。利贝尔旅行二人组现在彻底没了
+
+*****
+
+####  flxgundam  
+##### 6775#       发表于 2024-10-31 17:51
+
+🍵
+<img src="https://p.sda1.dev/20/b4eb2bcf70355332099abb194eb962b4/CMP_20241031175102137.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/74d47dbc961cfed28f34c82cc7801448/CMP_20241031175102320.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/265e25d27f39d4e04063ffe4008a946f/CMP_20241031175102395.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/41df4237479c90298d66e6a95b6caa0b/CMP_20241031175102528.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  jacket  
+##### 6776#       发表于 2024-10-31 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66587960&amp;ptid=2160194" target="_blank">flxgundam 发表于 2024-10-31 17:51</a>
+
+🍵</blockquote>
+这次有句台词专门吐槽自己当年开茶话会
+
+*****
+
+####  秘银mithril  
+##### 6777#       发表于 2024-10-31 23:36
+
+骑神战还是那么无趣
+
+话说这个艾米莉亚少校，是不是微妙的性格变了？感觉黎1、2的时候是更可靠稳重的感觉……难道是因为戴头盔幻视赛尔提的错觉
+
+*****
+
+####  winggg  
+##### 6778#       发表于 2024-10-31 23:43
+
+ 本帖最后由 winggg 于 2024-11-1 00:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66590626&amp;ptid=2160194" target="_blank">秘银mithril 发表于 2024-10-31 23:36</a>
+
+骑神战还是那么无趣
+
+话说这个艾米莉亚少校，是不是微妙的性格变了？感觉黎1、2的时候是更可靠稳重的感觉… ...</blockquote>
+故事原因：
+
+面对着可能会没命回来的挑战，行动之前几天心态变化，希望放纵一下也可理解，
+
+况且也没有越过底线，只是亲亲搂搂。
+
+大人原因：
+
+社长：这里可以加个卖杀必死的元素，死宅们就爱吃这套。
+
+*****
+
+####  Aeons  
+##### 6779#       发表于 2024-10-31 23:50
+
+变了，黎一丁格死了她还鼓励范恩
+
+*****
+
+####  秘银mithril  
+##### 6780#       发表于 2024-11-1 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66590668&amp;ptid=2160194" target="_blank">winggg 发表于 2024-10-31 23:43</a>
+
+故事原因：
+
+面对着可能会没命回来的挑战，行动之前几天心态放纵一下可以理解，
+
+况且也没有越过底线，只是 ...</blockquote>
+黎1的时候我完全想象不到她亲亲搂搂的画面……就感觉一下子从御姐角色变成辣妹（？）角色
+
+我个人还是更喜欢黎1的感觉，真可惜
+
+*****
+
+####  aimujie  
+##### 6781#       发表于 2024-11-1 00:23
+
+说是直接换头了我都信，完全就是另一个人
+
+*****
+
+####  隔壁老黄  
+##### 6782#       发表于 2024-11-1 01:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66590626&amp;ptid=2160194" target="_blank">秘银mithril 发表于 2024-10-31 23:36</a>
+骑神战还是那么无趣
+
+话说这个艾米莉亚少校，是不是微妙的性格变了？感觉黎1、2的时候是更可靠稳重的感觉… ...</blockquote>
+萝卜战向魔装鬼模式靠拢了，续作如果萝卜也能套即时战斗系统那就牛了，技术上问题应该不大吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+
+*****
+
+####  jacket  
+##### 6783#       发表于 2024-11-1 04:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66590834&amp;ptid=2160194" target="_blank">秘银mithril 发表于 2024-11-1 00:12</a>
+
+黎1的时候我完全想象不到她亲亲搂搂的画面……就感觉一下子从御姐角色变成辣妹（？）角色
+
+我个人还是更喜 ...</blockquote>
+哥们你戴着个头盔怎么亲亲搂搂
+
+*****
+
+####  jacket  
+##### 6784#       发表于 2024-11-1 09:12
+
+结社技术民用化，写作星辰，读作アストラルコード
+<img src="https://s2.loli.net/2024/11/01/a2R3q5AfvJygxKw.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  隔壁老黄  
+##### 6785#       发表于 2024-11-1 09:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66591925&amp;ptid=2160194" target="_blank">jacket 发表于 2024-11-1 09:12</a>
+结社技术民用化，写作星辰，读作アストラルコード</blockquote>
+雷军是新七柱实锤了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+

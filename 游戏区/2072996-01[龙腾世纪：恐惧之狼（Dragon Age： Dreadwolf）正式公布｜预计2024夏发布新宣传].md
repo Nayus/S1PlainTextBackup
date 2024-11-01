@@ -2660,3 +2660,23 @@ Neve和Harding都不错，修罗场开搞！
 7W这个同时在线人数，感觉翻车了。</blockquote>
 竟然有7w同时在线   比预期的高啊，但是感觉这数据生软应该似定了
 
+
+*****
+
+####  三谷歩夢  
+##### 901#       发表于 2024-11-1 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66593155&amp;ptid=2072996" target="_blank">拉莱耶妇联主任 发表于 2024-11-1 11:26</a>
+
+竟然有7w同时在线   比预期的高啊，但是感觉这数据生软应该似定了</blockquote>
+现在只有5W了，和TF2坐一桌
+
+*****
+
+####  NaiveBot2580  
+##### 902#       发表于 2024-11-1 11:36
+
+<blockquote>拉莱耶妇联主任 发表于 2024-11-1 11:26
+竟然有7w同时在线   比预期的高啊，但是感觉这数据生软应该似定了</blockquote>
+博德之门3最高87W， 等周末在看看
+

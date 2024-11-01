@@ -89,3 +89,18 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">继续出的话就是sin double1 saga
 
+
+*****
+
+####  线程召唤使  
+##### 1979#       发表于 2024-11-1 20:02
+
+哈哈哈哈哈
+
+*****
+
+####  线程召唤使  
+##### 1980#       发表于 2024-11-1 20:04
+
+好吧，居然不是说说而已<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

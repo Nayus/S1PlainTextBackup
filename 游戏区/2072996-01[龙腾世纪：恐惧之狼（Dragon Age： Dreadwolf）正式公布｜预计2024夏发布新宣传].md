@@ -3374,3 +3374,27 @@ resetera是不是忘了自己把造谣抹黑新疆的帖子置顶的样子有多
 不过后面物品栏就解锁了，但是感觉rpg要素比dai还是少了 ...</blockquote>
 前期就是让你去找队友和解锁各个地图，队友找的差不多了才会让你回头去各个地图探索和作支线
 
+
+*****
+
+####  蒼銀  
+##### 963#       发表于 2024-11-1 17:33
+
+ 本帖最后由 蒼銀 于 2024-11-1 17:35 编辑 
+
+玩了一会，观感还行，不过不像龙腾了反而像加了战神系统的霍格沃兹
+
+虽然说LGBT含量高，不过这作捏人还真不赖，至少能看
+
+<img src="https://imgse.com/i/pAD28iV" id="aimg_A5a4K" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://imgse.com/i/pAD21I0" id="aimg_xDdV5" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+5{`Q59L[MVC$48U0%NH8UA7.png
+(1.31 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-1 17:35 上传
+
+<img src="https://img.saraba1st.com/forum/202411/01/173533d19u9g98aiowj1wh.png" referrerpolicy="no-referrer">
+

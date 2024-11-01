@@ -37,3 +37,11 @@ e站能出作品列表，但真正点进章节时马上退出来说“没有图�
 e站能出作品列表，但真正点进章节时马上退出来说“没有图片”，webview能正常看到，有没有跟我一样的情况 ...</blockquote>
 好像是e站又搞了什么新花招，ehv也出现了一样的check failed问题，CI更新的最新版才解决了。mihon的插件不知道有没有跟进<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  darcia  
+##### 293#       发表于 2024-11-1 17:32
+
+拷贝源好像打不开了
+

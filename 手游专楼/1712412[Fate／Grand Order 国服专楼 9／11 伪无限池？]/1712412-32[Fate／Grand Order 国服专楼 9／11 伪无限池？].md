@@ -329,3 +329,14 @@ f0Q91yo-ifouZbT1kShs-13i.jpg
 
 3星之后进友情池的，没必要为了3星下池吧
 
+
+*****
+
+####  khxooo  
+##### 46787#       发表于 2024-11-1 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66595001&amp;ptid=1712412" target="_blank">q8241808 发表于 2024-11-1 15:04</a>
+
+3星之后进友情池的，没必要为了3星下池吧</blockquote>
+那啥，本来抽个90石头的，谁知道没出，一上头就是这样的了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

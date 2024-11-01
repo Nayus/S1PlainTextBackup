@@ -55,3 +55,16 @@
 说明手册
 2024-11-1 20:45 上传
 
+
+*****
+
+####  暮光こころ  
+##### 1158#       发表于 2024-11-1 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66597849&amp;ptid=1992654" target="_blank">Ditfran 发表于 2024-11-1 20:47</a>
+
+挖一下，日版实体板已经发售了
+
+有普通板和特装板，特装版是一个长长的盒子，里面有几个钥匙扣和一张60*47c ...</blockquote>
+之前了解到欧美版的光盘忘了把DLC眼之回想的内容刻上去，结果只能让玩家去网上领DLC下载码。请问日版的光盘包含了DLC内容吗？
+

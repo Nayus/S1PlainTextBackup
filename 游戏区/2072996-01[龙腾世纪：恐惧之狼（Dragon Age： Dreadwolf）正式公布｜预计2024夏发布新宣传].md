@@ -2414,3 +2414,25 @@ nm又饮茶开会了，想起之前看新法政，主角团也是一个案件结
 最高在线能有7万啊，生软凯子还是太多了</blockquote>
 暗喻幻想最高在线8.5w，不会龙腾新作首发还卖不过暗喻吧？
 
+
+*****
+
+####  棺材叔叔  
+##### 876#       发表于 2024-11-1 08:36
+
+还是没法接受这个大头设计，希望后期能有mod补救。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  棺材叔叔  
+##### 877#       发表于 2024-11-1 08:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66587018&amp;ptid=2072996" target="_blank">sunkaifeng00 发表于 2024-10-31 16:09</a>
+
+重制1代的话你可能看到
+
+1、砍精灵和一帮妹子的颜值
+
+2、Zevran变尼精灵，阿诺拉变拉美后裔</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">希望至少做个设定开关。。。
+

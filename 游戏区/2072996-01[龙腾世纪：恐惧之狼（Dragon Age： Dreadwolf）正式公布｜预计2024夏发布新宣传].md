@@ -3665,3 +3665,17 @@ ConCurrent User
 
 现在可是西海岸下午接近晚上了，东海岸7点半了，resetera那些2b没理由继续狡辩了
 
+
+*****
+
+####  ak123  
+##### 989#       发表于 2024-11-2 07:43
+
+ 本帖最后由 ak123 于 2024-11-2 07:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66599649&amp;ptid=2072996" target="_blank">刻路希 发表于 2024-11-2 04:56</a>
+
+能在剧情感染力进一步倒退也是神了，这里的前作不是2014年的DAI，而是2009年的DAO。这个剧情全程寡淡无味就 ...</blockquote>
+因为基软知道自己的目标用户群体已经不在乎剧情了，他们再怎么敌友流水账对面也能照单全收
+
+而且这部的底子又是gaas刷子网游，哪里都能拉但战斗才是完成度最高的
+

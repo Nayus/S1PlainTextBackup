@@ -4790,3 +4790,29 @@ p3r先宣布200w的可能性大一些
 
 反正桥野哥哥的东西我先拉黑了，出不出黑名单看下一作表现
 
+
+*****
+
+####  罗克萨斯  
+##### 3384#       发表于 2024-11-1 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66592787&amp;ptid=2140224" target="_blank">check 发表于 2024-11-1 10:49</a>
+
+发售到现在200w都不知道有没有，全平台也不过如此，还是要靠自身质量在线才能长卖 ...</blockquote>
+其实和受众关系更大，不然以销售额判定品质的话，热门手游都能吊打小厂精品了<img src="https://static.saraba1st.com/image/smiley/face/84.gif" referrerpolicy="no-referrer">
+
+暗喻幻想确实有不少槽点，比如卖相很差（画面可能打不过一些PS3游戏），技术低下（城镇就那么大点地方都不能无缝），文本质量整体很高但是关键节点又不够好（比如兽人兄弟的部分我都不太满意，尤其是歌剧院高潮部分，已经不单单是演出不行的问题了），动画外包钱没给够，主角小队都没实现全语音。不过即便这样我还是沉迷了，一不小心就玩到凌晨1点，实际上手还是会停不下来
+
+卖的不行，阿特拉斯和零组确实该检讨，多听取玩家的意见没坏处的<img src="https://static.saraba1st.com/image/smiley/face/84.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2015年入股市  
+##### 3385#       发表于 2024-11-1 11:45
+
+泥潭推荐的某个up主的锐评
+
+【可以锐评吗】眺望幻想时瞥到了现实——暗喻幻想
+[https://www.bilibili.com/video/BV1HE1EYkER8](https://www.bilibili.com/video/BV1HE1EYkER8)
+

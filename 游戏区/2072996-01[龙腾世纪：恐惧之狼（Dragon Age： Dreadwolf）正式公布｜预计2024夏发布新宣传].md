@@ -2680,3 +2680,50 @@ Neve和Harding都不错，修罗场开搞！
 竟然有7w同时在线   比预期的高啊，但是感觉这数据生软应该似定了</blockquote>
 博德之门3最高87W， 等周末在看看
 
+
+*****
+
+####  拉莱耶妇联主任  
+##### 903#       发表于 2024-11-1 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66593273&amp;ptid=2072996" target="_blank">NaiveBot2580 发表于 2024-11-1 11:36</a>
+
+博德之门3最高87W， 等周末在看看</blockquote>
+我知道的呀，我就是觉得 这粪game  7w都高了<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  petrouchka  
+##### 904#       发表于 2024-11-1 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66584840&amp;ptid=2072996" target="_blank">nukacolamania 发表于 2024-10-31 12:01</a>
+你一个上古奇幻游戏，世界观单薄剧情人物/剧情幼稚，大肆拿dei做卖点，都low到地心了还好意思跟玩家谈格 ...</blockquote>
+我现在游戏玩两小时了，确实承认这游戏对话写得不如DAI好，你能拿出你玩游戏的体验详细解释一下你对这个游戏的指责吗<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wswseven  
+##### 905#       发表于 2024-11-1 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66593273&amp;ptid=2072996" target="_blank">NaiveBot2580 发表于 2024-11-1 11:36</a>
+
+博德之门3最高87W， 等周末在看看</blockquote>
+博3是首日40万，周末87万，龙腾先过暗喻再过石榴吧<img src="http://tiebapic.baidu.com/forum/w%3D580/sign=2d70321d28061d957d4637304bf40a5d/bbcc30f33a87e950b15bb84956385343faf2b497.jpg?tbpicau=2024-11-12-05_0b361d5267893d028810e86129b40ee1" id="aimg_P1pgp" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+*****
+
+####  petrouchka  
+##### 906#       发表于 2024-11-1 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66582917&amp;ptid=2072996" target="_blank">油条小贩 发表于 2024-10-31 08:52</a>
+威尔作为黑人，哪里丑了
+
+莱姐除了种族特征，也没丑
+
+你把她种族的鼻子和肤色换掉看看，就是正常，身材比例 ...</blockquote>
+我知道啦，在你眼中队友RPG队友角色难看是很严重的缺点。
+那别的玩家觉得这不是严重的缺点，你就不能接受啦？博德之门3确实在队友长相平均水平上很高，这游戏我也玩了我也很满意（我是俗人看脸选盖尔谈恋爱）。但是我，或者其他选择玩大电视的玩家有没有权利玩一个角色不好看的游戏捏？
+你在一个游戏的专楼里愤愤不平觉得这个游戏角色不好看罪大滔天，觉得反驳你的潜在游戏玩家非要说服你强行让你买游戏玩游戏啦？不会吧？
+接受别人和自己是不同的玩家，很难吗？对游戏的判断标准和你不一样，就是“粉丝”，就是“孝”，这种风气哪来的，手游区吗？
+

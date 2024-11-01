@@ -3440,3 +3440,16 @@ resetera是不是忘了自己把造谣抹黑新疆的帖子置顶的样子有多
 
 虽然线性，游戏体量和审判比如何，有审判一半吗？
 
+
+*****
+
+####  鬼眼见证人  
+##### 968#       发表于 2024-11-1 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66596033&amp;ptid=2072996" target="_blank">mimighost 发表于 2024-11-1 16:42</a>
+
+resetera那些白左居然寄望中国市场来托ccu
+
+是不是想多了</blockquote>
+ccu是什么？
+

@@ -7491,3 +7491,14 @@ PV：米库米库米 （@米库米库米 ）
 前奏叠了3把吉他，而且节奏部分还有点花()</blockquote>
 这歌说不定不上live，上一首联动曲孤坏牢也没上6th，看7th怎么选曲了，怪期待的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SakuraのOrigami  
+##### 25778#       发表于 2024-11-1 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66597011&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2024-11-1 18:32</a>
+
+这歌说不定不上live，上一首联动曲孤坏牢也没上6th，看7th怎么选曲了，怪期待的 ...</blockquote>
+我反正觉得藤田淳平在给每个人平等地上压力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

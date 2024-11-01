@@ -3412,3 +3412,13 @@ resetera是不是忘了自己把造谣抹黑新疆的帖子置顶的样子有多
 
 这图里的人不说我还以为是什么乙女游戏…
 
+
+*****
+
+####  猫沢  
+##### 965#       发表于 2024-11-1 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66593363&amp;ptid=2072996" target="_blank">wswseven 发表于 2024-11-1 11:44</a>
+ 博3是首日40万，周末87万，龙腾先过暗喻再过石榴吧</blockquote>
+虽然但是，图里是最终幻想14。
+

@@ -79,3 +79,23 @@
 之前了解到欧美版的光盘忘了把DLC眼之回想的内容刻上去，结果只能让玩家去网上领DLC下载码。请问日版的光 ...</blockquote>
 我没舍得拆就没插上盘实机试<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ditfran  
+##### 1160#       发表于 2024-11-1 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66598202&amp;ptid=1992654" target="_blank">暮光こころ 发表于 2024-11-1 21:41</a>
+
+之前了解到欧美版的光盘忘了把DLC眼之回想的内容刻上去，结果只能让玩家去网上领DLC下载码。请问日版的光 ...</blockquote>
+
+在推上查了一下，插进光盘时会提示你是否安装DLC，可以确定不用兑换码兑换了
+
+<img src="https://img.saraba1st.com/forum/202411/01/230543g8fz338280nyrzx7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (71.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-1 23:05 上传
+

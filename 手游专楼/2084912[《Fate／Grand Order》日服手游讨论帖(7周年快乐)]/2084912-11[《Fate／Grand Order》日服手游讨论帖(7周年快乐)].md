@@ -1681,3 +1681,16 @@ https://www.bilibili.com/video/BV1KuyWYcEng/
 
 昨天刚补的妖兰宝具，这就光速返场了，而且还带巴格斯特，螺旋社坑人，这要不给个强化说不过去
 
+
+*****
+
+####  eilot  
+##### 15079#       发表于 2024-11-1 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66596338&amp;ptid=2084912" target="_blank">RiesbyfeAtlasia 发表于 2024-11-1 17:12</a>
+
+后天会给妖兰强化吗</blockquote>
+妖蘭如何強化?
+
+不過只是將技3變成選擇變身，就已經足夠了
+

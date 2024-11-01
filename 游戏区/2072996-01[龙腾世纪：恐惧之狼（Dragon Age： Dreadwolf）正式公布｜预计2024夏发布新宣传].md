@@ -3602,3 +3602,16 @@ https://www.forbes.com/sites/erikkain/2024/10/31/dragon-age-the-veilguards-clums
 
 云了半晚，战斗养成装备升级词条非常好，故事对话纯白开水还要对着哪丑脸。。。。
 
+
+*****
+
+####  刻路希  
+##### 983#       发表于 2024-11-2 04:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66599068&amp;ptid=2072996" target="_blank">jf8350143 发表于 2024-11-2 00:16</a>
+
+几张图里，森林最漂亮，但是我反而最不喜欢，太亮了+光线解密看得我脑壳痛（尤其是狼和雕像的解密）
+
+另外 ...</blockquote>
+质量效应系列没这么平淡垃圾的文本剧情写作，简直像AI写的剧本，当然仙女座除外
+

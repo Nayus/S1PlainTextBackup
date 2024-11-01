@@ -148,3 +148,11 @@ s1有没有cs的群啊<img src="https://static.saraba1st.com/image/smiley/face20
 难绷</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">公式化补枪
 
+
+*****
+
+####  朔方原的星  
+##### 4507#         楼主| 发表于 2024-11-1 16:10
+
+上海major官宣碗橱要当现场解说了
+

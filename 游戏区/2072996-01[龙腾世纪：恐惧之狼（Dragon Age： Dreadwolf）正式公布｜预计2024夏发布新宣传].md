@@ -3461,3 +3461,23 @@ ccu是什么？
 
 问下，各位进游戏的也需要好几分钟验证着色器吗？还是我16g内存不够？
 
+
+*****
+
+####  糖然君  
+##### 970#       发表于 2024-11-1 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66598398&amp;ptid=2072996" target="_blank">假布偶是臭猪 发表于 2024-11-1 22:14</a>
+问下，各位进游戏的也需要好几分钟验证着色器吗？还是我16g内存不够？</blockquote>
+第一次开游戏都要编译着色器编一会儿
+16g内存够用，我16g内存2k画质开最高非常丝滑
+
+*****
+
+####  woaimiyabi  
+##### 971#       发表于 2024-11-1 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66595898&amp;ptid=2072996" target="_blank">kevinausting 发表于 2024-11-1 16:30</a>
+玩了俩小时了，这游戏该不会全程都是这种纯线性模式了吧，除了有个技能树没有感受到任何RPG的成分，我们DA ...</blockquote>
+只要到了能接支线自由探索的阶段，你就会发现ff16的地图设计给他提鞋都不配了。
+

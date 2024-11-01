@@ -7477,3 +7477,17 @@ PV：米库米库米 （@米库米库米 ）
 
 —— 来自 samsung SM-F9360, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
+
+*****
+
+####  CyDiablo  
+##### 25777#       发表于 2024-11-1 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66596446&amp;ptid=2159415" target="_blank">SakuraのOrigami 发表于 2024-11-1 17:23</a>
+这曲子编的这么旋律硬核吗
+
+220的BPM()
+
+前奏叠了3把吉他，而且节奏部分还有点花()</blockquote>
+这歌说不定不上live，上一首联动曲孤坏牢也没上6th，看7th怎么选曲了，怪期待的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -4699,3 +4699,18 @@ Hard难度除开第一章卡续航，之后就是名不副实毫无难度，只�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  忘却旋律  
+##### 3375#       发表于 2024-11-1 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66591615&amp;ptid=2140224" target="_blank">kuarwbwe 发表于 2024-11-1 08:27</a>
+
+打了一点尤法的剧情，结果给我整乐了。这哪来的小女友？
+
+—— 来自 鹅球 v3.1.91-alpha ...</blockquote>
+小女友X
+
+小媳妇儿O
+

@@ -2513,3 +2513,24 @@ nm又饮茶开会了，想起之前看新法政，主角团也是一个案件结
 
 角色扮演的部分感觉像辐射4，和人说话有几个选项，但是基本没什么区别，哦忘了，辐射4对话就是ME的劣化版。
 
+
+*****
+
+####  刻路希  
+##### 885#       发表于 2024-11-1 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66591941&amp;ptid=2072996" target="_blank">DawnGuardian 发表于 2024-11-1 09:14</a>
+
+所以说这代的战斗系统玩起来咋样？ 能摸到新战神的边吗？前面看评测有说战斗系统不错的，但也有批评战斗缺 ...</blockquote>
+无血条的ME队友系统+低配版新战神的战斗系统+弱智版新战神解密系统。只能控制主角，两名队友严格来讲只能算作主角的两个技能，敌人仇恨基本集中在主角，队友甚至不能帮主角抗伤害
+
+*****
+
+####  刻路希  
+##### 886#       发表于 2024-11-1 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66592048&amp;ptid=2072996" target="_blank">震荡波 发表于 2024-11-1 09:26</a>
+
+试了一下，没有深入尝试，如果抛开致死量的政确内容不谈，就一般，和某外网评测差不多，没有亮点，当然可能 ...</blockquote>
+从2011年的DA2开始龙腾系列就不是CRPG了
+

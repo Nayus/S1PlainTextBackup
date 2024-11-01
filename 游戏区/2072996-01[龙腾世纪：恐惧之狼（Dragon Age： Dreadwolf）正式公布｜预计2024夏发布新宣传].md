@@ -3641,3 +3641,27 @@ https://www.forbes.com/sites/erikkain/2024/10/31/dragon-age-the-veilguards-clums
 现在生软在整个欧美rpg地位很尴尬，自己开创了rpg电影化叙事和优秀的人物剧情设计但现在无论是电影化还是故 ...</blockquote>
 别侮辱猫头鹰啊，猫头鹰只是穷而已，用王者，正义生气，行商狼人每个我都打了3周目300小时以上，他只是穷，剧本和文笔角色塑造是真好，lgbt内容也不突兀。
 
+
+*****
+
+####  wswseven  
+##### 987#       发表于 2024-11-2 07:30
+
+生软这海飞丝还有优化，ea如果是为了寒霜引擎，可能不会像西木时代一样，不过SE也是做完了forspoken才击毙夜光组的就是了
+
+*****
+
+####  mimighost  
+##### 988#       发表于 2024-11-2 07:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66597844&amp;ptid=2072996" target="_blank">鬼眼见证人 发表于 2024-11-1 20:46</a>
+
+ccu是什么？</blockquote>
+ConCurrent User
+
+同时在线用户数
+
+第二天看起来peak在77k
+
+现在可是西海岸下午接近晚上了，东海岸7点半了，resetera那些2b没理由继续狡辩了
+

@@ -187,3 +187,11 @@ LV4，合计88连出了黑猫，寡妇平时就不用也没凸点就随缘啦<im
 顺带昨天传的MOSS大佬用的FA“高速腿”寡妇
 [https://www.bilibili.com/video/BV16NSvYcEAs](https://www.bilibili.com/video/BV16NSvYcEAs)
 
+
+*****
+
+####  lxh00770077  
+##### 1248#       发表于 2024-11-1 18:03
+
+能在万圣节活动把棺材直接放屋里的也就只有你游了<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+

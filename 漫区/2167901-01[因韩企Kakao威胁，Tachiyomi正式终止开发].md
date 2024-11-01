@@ -45,3 +45,14 @@ e站能出作品列表，但真正点进章节时马上退出来说“没有图�
 
 拷贝源好像打不开了
 
+
+*****
+
+####  pgain2004  
+##### 294#         楼主| 发表于 2024-11-1 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66596512&amp;ptid=2167901" target="_blank">darcia 发表于 2024-11-1 17:32</a>
+
+拷贝源好像打不开了</blockquote>
+偶尔就会出点问题。在设置里换一下网址地址
+

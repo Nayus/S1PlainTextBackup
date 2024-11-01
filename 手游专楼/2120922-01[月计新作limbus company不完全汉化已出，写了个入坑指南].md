@@ -286,3 +286,31 @@ boss战感觉老唐有点放水了
 
 （愚人节维导cos那帮手游都有可能呢...要不发挥余热联动少前1吧2333）
 
+
+*****
+
+####  Jamaisvu  
+##### 968#       发表于 2024-11-1 18:05
+
+下午金总监直播玩了会镜牢，这是他的流血队阵容：
+
+<img src="https://img.saraba1st.com/forum/202411/01/180412zybs8wby8gswq5aw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241101_180340.jpg</strong> (286.66 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-11-1 18:04 上传
+
+不愧是设计出伞夫的惊世智慧，仪表最右是船玛：
+
+<img src="https://img.saraba1st.com/forum/202411/01/180504mt1tz1jw0oytr3ya.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241101_180122.jpg</strong> (293.31 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-11-1 18:05 上传
+

@@ -532,3 +532,11 @@ mate60p，安卓12（鸿蒙4.2.0.150），microg环境
 
 11月1日，开了已经能完全正常使用了，搞不好是工具的问题<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dforce  
+##### 58#       发表于 2024-11-1 12:05
+
+matepadpro鸿蒙4.2今天开梯子可以进不闪退了
+

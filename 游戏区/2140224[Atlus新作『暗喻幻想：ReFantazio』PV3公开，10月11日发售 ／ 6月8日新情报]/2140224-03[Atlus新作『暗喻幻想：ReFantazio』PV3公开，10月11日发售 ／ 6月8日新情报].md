@@ -4816,3 +4816,13 @@ p3r先宣布200w的可能性大一些
 【可以锐评吗】眺望幻想时瞥到了现实——暗喻幻想
 [https://www.bilibili.com/video/BV1HE1EYkER8](https://www.bilibili.com/video/BV1HE1EYkER8)
 
+
+*****
+
+####  耶耶抛的岔  
+##### 3386#       发表于 2024-11-1 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66585623&amp;ptid=2140224" target="_blank">2015年入股市 发表于 2024-10-31 13:45</a>
+斩强化和高级斩强化能不能叠加？</blockquote>
+高级和低级技能可以叠，相同的技能不能叠，比如武器上带的高级强化和阿基态的高级强化算相同技能，就叠不了
+

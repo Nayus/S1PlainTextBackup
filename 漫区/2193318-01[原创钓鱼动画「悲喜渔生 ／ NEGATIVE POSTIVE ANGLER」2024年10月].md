@@ -1271,3 +1271,14 @@ https://x.com/onigiri123091/status/1841843153718149297
 
 这集怎么这么喜欢晃镜头
 
+
+*****
+
+####  PingGuo233  
+##### 110#       发表于 2024-11-1 12:04
+
+这女二不会真是白河展开吧<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">本来以为男主要买给女二装装逼的，原来只是买给自己的。感觉从这集开始男主正式喜欢上钓鱼了
+这男主有美女在旁边就膨胀开启幻想时间，发工资了想的就是氪金和打小钢珠，喜欢上钓鱼明明是纯新手，但是上头了就要花高价买最好的装备，很符合我对男主的想象<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

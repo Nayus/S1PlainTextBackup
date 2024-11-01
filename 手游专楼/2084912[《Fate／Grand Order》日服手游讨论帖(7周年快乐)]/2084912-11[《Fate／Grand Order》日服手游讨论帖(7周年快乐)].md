@@ -1694,3 +1694,13 @@ https://www.bilibili.com/video/BV1KuyWYcEng/
 
 不過只是將技3變成選擇變身，就已經足夠了
 
+
+*****
+
+####  格林卡罗尔  
+##### 15080#       发表于 2024-11-2 01:08
+
+妖兰没那么强弓本还能多点，要不劝叶良树削弱吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -3249,3 +3249,33 @@ dav这个地方估计是一开始当网游做得时候遗留的设计，从role 
 
 不过如果剧情是紧接着DAI真结局的话，怎么看着无论瓦里克还是多里安都老了很多，这也是DEI的功劳吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jf8350143  
+##### 952#       发表于 2024-11-1 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66595251&amp;ptid=2072996" target="_blank">西弗 发表于 2024-11-1 15:28</a>
+
+有一说一这捏人比DAI靠谱，DAI那个屎绿色泛光的捏人界面+欺诈捏人我当年重开了好几次才捏了个勉强能看的
+
+ ...</blockquote>
+剧情上是离审判结局过了10年了
+
+*****
+
+####  西弗  
+##### 953#       发表于 2024-11-1 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66595309&amp;ptid=2072996" target="_blank">jf8350143 发表于 2024-11-1 15:33</a>
+
+剧情上是离审判结局过了10年了</blockquote>
+哦，那还稍微能理解一点，看上面坛友聊天还以为是紧接着的，总之是骡子是马下班回去看看了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DawnGuardian  
+##### 954#       发表于 2024-11-1 15:37
+
+这代优化咋样？看楼里没人提那应该默认还行？来自: iPhone客户端
+

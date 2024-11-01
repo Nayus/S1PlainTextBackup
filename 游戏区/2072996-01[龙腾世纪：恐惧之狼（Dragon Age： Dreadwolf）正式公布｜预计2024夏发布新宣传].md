@@ -3594,3 +3594,11 @@ https://www.forbes.com/sites/erikkain/2024/10/31/dragon-age-the-veilguards-clums
 
 福布斯：笨拙、说教的政治信息弊大于利
 
+
+*****
+
+####  leosank  
+##### 982#       发表于 2024-11-2 04:28
+
+云了半晚，战斗养成装备升级词条非常好，故事对话纯白开水还要对着哪丑脸。。。。
+

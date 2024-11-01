@@ -14941,3 +14941,24 @@ cali直播中热评miko的曲子和live
 
 不过还好多亏死得快
 
+
+*****
+
+####  holoan  
+##### 10108#         楼主| 发表于 2024-11-1 11:06
+
+tomozu的C104set挂在甜瓜的通贩等了2个月没有发货今天突然收到消单通知，一看连商品页面都没了，跑路了这是？
+
+*****
+
+####  holoan  
+##### 10109#         楼主| 发表于 2024-11-1 12:39
+
+<img src="https://img.saraba1st.com/forum/202411/01/123930wkxsss5oxys3lo2l.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (11.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-1 12:39 上传
+

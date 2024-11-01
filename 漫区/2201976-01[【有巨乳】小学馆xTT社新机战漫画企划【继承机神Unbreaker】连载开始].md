@@ -14,3 +14,13 @@
 
 下一期开始变成半月更
 
+
+*****
+
+####  嘴瓢王者  
+##### 54#       发表于 2024-11-1 12:41
+
+crazy
+
+—— 来自 OnePlus PHB110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

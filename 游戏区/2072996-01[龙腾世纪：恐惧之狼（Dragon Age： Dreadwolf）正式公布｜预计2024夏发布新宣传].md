@@ -2966,3 +2966,27 @@ dav这个地方估计是一开始当网游做得时候遗留的设计，从role 
 
 管的真宽啊
 
+
+*****
+
+####  nukacolamania  
+##### 927#       发表于 2024-11-1 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66593335&amp;ptid=2072996" target="_blank">petrouchka 发表于 2024-11-1 11:42</a>
+我现在游戏玩两小时了，确实承认这游戏对话写得不如DAI好，你能拿出你玩游戏的体验详细解释一下你对这个 ...</blockquote>
+免费领游戏的媒体才需要去评测去论证
+
+捏着钱包的玩家只需要看流出的截图和pv就足够下判断了，I identify myself as non-BUYnary.
+
+别说什么没玩就没有发言权，你猜学术论文前面的参考文献部分是做什么用的？
+
+—— 来自 motorola moto g stylus 5G (2022), Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  mimighost  
+##### 928#       发表于 2024-11-1 13:14
+
+为啥到了美西下班时间这游戏在线人数反而降了
+

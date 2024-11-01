@@ -40,3 +40,11 @@ AI未亡人的老公头发跟男主一模一样（性格也差不多） 搞不�
 
 这也太大了吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  永恒的王牌  
+##### 57#       发表于 2024-11-1 13:20
+
+男主前世贵族氪死恋人兼仆从AI大姐姐打击之下下定决心下次要自己开机……感觉看到了这类发展<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

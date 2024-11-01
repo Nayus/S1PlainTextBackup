@@ -2990,3 +2990,14 @@ dav这个地方估计是一开始当网游做得时候遗留的设计，从role 
 
 为啥到了美西下班时间这游戏在线人数反而降了
 
+
+*****
+
+####  C.W.Nimitz  
+##### 929#       发表于 2024-11-1 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66592129&amp;ptid=2072996" target="_blank">刻路希 发表于 2024-11-1 09:36</a>
+
+无血条的ME队友系统+低配版新战神的战斗系统+弱智版新战神解密系统。只能控制主角，两名队友严格来讲只能 ...</blockquote>
+我以为是个战棋游戏，结果根本不是么<img src="https://static.saraba1st.com/image/smiley/face/155.jpg" referrerpolicy="no-referrer">
+

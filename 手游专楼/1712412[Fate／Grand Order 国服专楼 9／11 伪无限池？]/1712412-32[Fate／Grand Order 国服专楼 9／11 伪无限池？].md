@@ -340,3 +340,11 @@ f0Q91yo-ifouZbT1kShs-13i.jpg
 3星之后进友情池的，没必要为了3星下池吧</blockquote>
 那啥，本来抽个90石头的，谁知道没出，一上头就是这样的了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  johnkamsar  
+##### 46788#       发表于 2024-11-1 21:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">2单石头，结果就一五星尼托…..跑了，福袋见吧
+

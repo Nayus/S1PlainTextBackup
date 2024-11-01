@@ -3150,3 +3150,48 @@ dav这个地方估计是一开始当网游做得时候遗留的设计，从role 
 
 有个急得上下跳脚 哈哈哈哈
 
+
+*****
+
+####  wgoenitz  
+##### 943#       发表于 2024-11-1 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66593729&amp;ptid=2072996" target="_blank">jf8350143 发表于 2024-11-1 12:19</a>
+
+捏人系统很强。而且捏人的时候还可以让你选光照，可以选死亡打光来看看效果
+
+这个头发效果简直无敌，选了长 ...</blockquote>
+这次头发丝效果很棒，我看贴吧截图，铠甲也比3代漂亮好多。
+
+捏人总体下限比三代高，已经有不少帅哥美女了。
+
+*****
+
+####  拉莱耶妇联主任  
+##### 944#       发表于 2024-11-1 14:52
+
+白皮这么多游戏公司不就都是 这么堕落的吗，但凡有些人愿意少吃点shit，白皮游戏也不至于zzzq盛行<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wgoenitz  
+##### 945#       发表于 2024-11-1 14:53
+
+贴吧吧友捏的判官
+
+<img src="https://img.saraba1st.com/forum/202411/01/145335dzo9s07m70hhn9vm.jpg" referrerpolicy="no-referrer">
+
+<strong>c2dab1c379310a55526c6ad1f14543a9832610b3.jpg</strong> (329.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-1 14:53 上传
+
+<img src="https://img.saraba1st.com/forum/202411/01/145335syn8b9fbg6wmzgqh.jpg" referrerpolicy="no-referrer">
+
+<strong>a8fae3faaf51f3deccf40d41d2eef01f3b2979b9.jpg</strong> (393.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-1 14:53 上传
+

@@ -1634,3 +1634,26 @@ https://www.bilibili.com/video/BV1KuyWYcEng/
 
 十年废狗生第二次吃井，希望蔓能像水伊吹那样一用用几年<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 15075#       发表于 2024-11-1 17:12
+
+又是2.6回顾真有点绷不住了..............
+
+<img src="https://img.saraba1st.com/forum/202411/01/171220absquzz9mbqbhxst.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.04 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-1 17:12 上传
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 15076#       发表于 2024-11-1 17:12
+
+后天会给妖兰强化吗
+

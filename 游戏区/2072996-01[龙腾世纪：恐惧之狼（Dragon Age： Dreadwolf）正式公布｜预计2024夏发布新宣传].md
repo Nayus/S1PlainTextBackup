@@ -3361,3 +3361,16 @@ resetera是不是忘了自己把造谣抹黑新疆的帖子置顶的样子有多
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  jf8350143  
+##### 962#       发表于 2024-11-1 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66596162&amp;ptid=2072996" target="_blank">trentswd 发表于 2024-11-1 16:53</a>
+
+我开始还在想，不会只有技能树了把，物品栏呢？
+
+不过后面物品栏就解锁了，但是感觉rpg要素比dai还是少了 ...</blockquote>
+前期就是让你去找队友和解锁各个地图，队友找的差不多了才会让你回头去各个地图探索和作支线
+

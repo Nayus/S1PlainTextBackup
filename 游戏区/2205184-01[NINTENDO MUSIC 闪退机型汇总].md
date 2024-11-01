@@ -548,3 +548,23 @@ matepadpro鸿蒙4.2今天开梯子可以进不闪退了
 
 专辑太少。。。
 
+
+*****
+
+####  JOJOROY  
+##### 60#       发表于 2024-11-1 17:08
+
+[https://support.m.nintendo.com/h ... 4%E3%81%84%E3%81%A6](https://support.m.nintendo.com/hc/ja/articles/11127097267471-Android%E7%AB%AF%E6%9C%AB%E3%81%A7%E3%82%A2%E3%83%97%E3%83%AA%E3%81%8C%E8%B5%B7%E5%8B%95%E3%81%A7%E3%81%8D%E3%81%AA%E3%81%84%E4%BA%8B%E8%B1%A1%E3%81%AB%E3%81%A4%E3%81%84%E3%81%A6)
+
+任天堂：現在、一部のAndroid端末において『Nintendo Music』アプリが起動できない事象を確認しており、調査と対応を進めております。なお、端末に取り付けられたSDカードの状態によって発生している場合があります。詳細については、こちらのサポートサイトをご覧ください。
+
+
+*****
+
+####  VVhaleVoice  
+##### 61#       发表于 2024-11-1 17:13
+
+<img src="https://p.sda1.dev/20/9c570e512c0ee6321b7de31c22a847da/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

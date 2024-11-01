@@ -81,3 +81,11 @@
 続報をお楽しみにお待ちください。
 <img src="https://p.sda1.dev/20/67e449cb5bfbba8ce08bbfb3c523cfda/20241101_192459.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  合格s1er  
+##### 1978#       发表于 2024-11-1 19:42
+
+<img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">继续出的话就是sin double1 saga
+

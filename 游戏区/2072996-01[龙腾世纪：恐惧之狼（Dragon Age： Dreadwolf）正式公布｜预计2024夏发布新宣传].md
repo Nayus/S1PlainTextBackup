@@ -3320,3 +3320,44 @@ resetera那些白左居然寄望中国市场来托ccu
 
 是不是想多了
 
+
+*****
+
+####  roydimus  
+##### 959#       发表于 2024-11-1 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66596033&amp;ptid=2072996" target="_blank">mimighost 发表于 2024-11-1 16:42</a>
+resetera那些白左居然寄望中国市场来托ccu
+
+是不是想多了</blockquote>
+resetera是不是忘了自己把造谣抹黑新疆的帖子置顶的样子有多靓仔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  trentswd  
+##### 960#       发表于 2024-11-1 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66595341&amp;ptid=2072996" target="_blank">DawnGuardian 发表于 2024-11-1 15:37</a>
+这代优化咋样？看楼里没人提那应该默认还行？</blockquote>
+非常好，是我今年玩的游戏里面最流畅的
+别的游戏就算60帧还会有偶尔跳，datv玩了几个小时都没发生
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+
+*****
+
+####  trentswd  
+##### 961#       发表于 2024-11-1 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66595898&amp;ptid=2072996" target="_blank">kevinausting 发表于 2024-11-1 16:30</a>
+玩了俩小时了，这游戏该不会全程都是这种纯线性模式了吧，除了有个技能树没有感受到任何RPG的成分，我们DA ...</blockquote>
+我开始还在想，不会只有技能树了把，物品栏呢？
+不过后面物品栏就解锁了，但是感觉rpg要素比dai还是少了一点，确实一股ff16的既视感
+
+听说到十字路口之后会有一定的自由度，我还没玩到
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

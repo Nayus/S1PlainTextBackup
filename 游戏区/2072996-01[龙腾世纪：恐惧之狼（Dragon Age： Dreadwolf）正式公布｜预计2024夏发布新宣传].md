@@ -3398,3 +3398,17 @@ resetera是不是忘了自己把造谣抹黑新疆的帖子置顶的样子有多
 
 <img src="https://img.saraba1st.com/forum/202411/01/173533d19u9g98aiowj1wh.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kevinausting  
+##### 964#       发表于 2024-11-1 18:46
+
+<blockquote>蒼銀 发表于 2024-11-1 17:33
+玩了一会，观感还行，不过不像龙腾了反而像加了战神系统的霍格沃兹
+
+虽然说LGBT含量高，不过这作捏人还真不 ...</blockquote>
+这游戏的头发做得真的顺滑
+
+这图里的人不说我还以为是什么乙女游戏…
+

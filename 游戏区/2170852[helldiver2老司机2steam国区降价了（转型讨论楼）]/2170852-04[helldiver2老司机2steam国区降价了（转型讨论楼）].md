@@ -330,3 +330,20 @@ o 我们正在研究如何进一步改善此类敌人的对战体验
 
 2024-10-31 19:47 上传
 
+
+*****
+
+####  xinfengj  
+##### 5515#       发表于 2024-11-1 09:18
+
+ 本帖最后由 xinfengj 于 2024-11-1 09:21 编辑 
+
+<img src="https://p.sda1.dev/20/ce6d3c0a60690a0c7fd25b6e28e6117a/CMP_20241101091807270.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/423bd2cc71af876336b8bf0d09b9797c/CMP_20241101091807364.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/786e0cf15699ff08e605d6e53b11cb7a/GbORlFUXEAEJT11.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/309304f9215c9fa015004e4bce88a639/CMP_20241101091807486.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/08541b23a3c034f25d71e00bf54d74f8/GbORr1pXwAAdZ0k.png" referrerpolicy="no-referrer">
+
+新的支线目标，回收后可以触发隐藏任务。
+另外解包发现光能的混淆效果已经更新到游戏里了，效果是wasd方向对调
+

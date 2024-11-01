@@ -2436,3 +2436,37 @@ nm又饮茶开会了，想起之前看新法政，主角团也是一个案件结
 2、Zevran变尼精灵，阿诺拉变拉美后裔</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">希望至少做个设定开关。。。
 
+
+*****
+
+####  ultraseven  
+##### 878#       发表于 2024-11-1 08:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66591564&amp;ptid=2072996" target="_blank">刻路希 发表于 2024-11-1 08:11</a>
+
+暗喻幻想最高在线8.5w，不会龙腾新作首发还卖不过暗喻吧？</blockquote>
+比暗喻高，周末应该能破十万
+
+*****
+
+####  迎春君  
+##### 879#       发表于 2024-11-1 08:47
+
+乐死🤣龙腾世纪吧已经给这鸟游戏开年度游戏的香槟了，怎么和感觉我和他们活的不是一个世界
+
+<img src="https://img.saraba1st.com/forum/202411/01/084708o0fzo9o6k6fjzffo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241101_084429_com.baidu.tieba.jpg</strong> (276.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-1 08:47 上传
+
+<img src="https://img.saraba1st.com/forum/202411/01/084800a3p323cvb37i7c2f.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241101_084401_com.baidu.tieba.jpg</strong> (295.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-1 08:48 上传
+

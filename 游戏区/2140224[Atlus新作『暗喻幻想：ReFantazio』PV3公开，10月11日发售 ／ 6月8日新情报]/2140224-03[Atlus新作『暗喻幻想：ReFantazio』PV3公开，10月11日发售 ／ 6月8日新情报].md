@@ -4846,3 +4846,11 @@ p3r先宣布200w的可能性大一些
 
 说真的连续看COOP剧情而且大多都是白开水标准JRPG模板看了上文知道下文的发展实在是没意识，比逛迷宫动脑子打BOSS都累，体验好差，感觉就纯纯注水时间啊…………<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卡拉德利姆  
+##### 3389#       发表于 2024-11-2 00:01
+
+后面还有大段流程 放心
+

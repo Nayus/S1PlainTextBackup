@@ -2932,3 +2932,22 @@ dav这个地方估计是一开始当网游做得时候遗留的设计，从role 
 要想玩明白这一代剧情必须先把DAI和DAI的dlc入侵者通关才能明白DATV的开头剧情。四代和三代强绑定，你可 ...</blockquote>
 谢谢，之前系列没玩过，那等打折了
 
+
+*****
+
+####  zhenlune  
+##### 924#       发表于 2024-11-1 12:51
+
+居然还能有几万人在线，只能说西幻rpg这块产量太低，大家都饿了
+
+
+*****
+
+####  BadYanL  
+##### 925#       发表于 2024-11-1 12:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66593677&amp;ptid=2072996" target="_blank">jf8350143 发表于 2024-11-1 12:14</a>
+
+职业不能转，职业的三个专精可以随便洗点换</blockquote>
+也猜到不能转，好在进度不是很多，重开吧
+

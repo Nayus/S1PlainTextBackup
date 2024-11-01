@@ -24,3 +24,11 @@ crazy
 
 —— 来自 OnePlus PHB110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  siebten  
+##### 55#       发表于 2024-11-1 12:54
+
+AI未亡人的老公头发跟男主一模一样（性格也差不多） 搞不好就是前世之类的
+

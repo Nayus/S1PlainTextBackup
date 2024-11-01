@@ -3001,3 +3001,37 @@ dav这个地方估计是一开始当网游做得时候遗留的设计，从role 
 无血条的ME队友系统+低配版新战神的战斗系统+弱智版新战神解密系统。只能控制主角，两名队友严格来讲只能 ...</blockquote>
 我以为是个战棋游戏，结果根本不是么<img src="https://static.saraba1st.com/image/smiley/face/155.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PROCAINUM  
+##### 930#       发表于 2024-11-1 13:30
+
+玩了一下，真就完全动作化了，哈丁那满脸雀斑真是太膈应了，明明颜色淡一点就好，非得弄那么深颜色。玩了2小时，总体来说是一部合格的3A，没多少惊艳也没说得那么差，现在84分还挺合适<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  刻路希  
+##### 931#       发表于 2024-11-1 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66594226&amp;ptid=2072996" target="_blank">C.W.Nimitz 发表于 2024-11-1 13:25</a>
+
+我以为是个战棋游戏，结果根本不是么</blockquote>
+龙腾正传系列从来没出过战棋游戏，一直都是可暂停的即时制策略rpg，就龙腾手游出过战棋游戏[https://www.bilibili.com/video/B ... 032a9367350af539bae](https://www.bilibili.com/video/BV1xXSeYuEVw/?spm_id_from=333.337.search-card.all.click&amp;vd_source=b07071744150b032a9367350af539bae)
+
+*****
+
+####  petrouchka  
+##### 932#       发表于 2024-11-1 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66594023&amp;ptid=2072996" target="_blank">油条小贩 发表于 2024-11-1 12:59</a>
+我没玩啊
+
+我不能说我不喜欢吗
+
+管的真宽啊</blockquote>
+可以啊，但在这个游戏专楼里，你不是玩家，也不打算玩，也不是测评者，也表明了自己的特定立场“你们玩这个平庸游戏，不知道在玩什么，角色都不好看，哼”。
+那我只能一边尊重你的看法一边觉得你的看法……无关紧要好了
+

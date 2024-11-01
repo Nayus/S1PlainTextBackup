@@ -3584,3 +3584,13 @@ ff16哪有地图设计，不都是野外大空地迷宫一条路吗<img src="htt
 
 看小黑盒说数据不错，是定语问题还是真的不错
 
+
+*****
+
+####  针刺骑士  
+##### 981#       发表于 2024-11-2 01:38
+
+https://www.forbes.com/sites/erikkain/2024/10/31/dragon-age-the-veilguards-clumsy-preachy-political-messaging-does-more-harm-than-good/
+
+福布斯：笨拙、说教的政治信息弊大于利
+

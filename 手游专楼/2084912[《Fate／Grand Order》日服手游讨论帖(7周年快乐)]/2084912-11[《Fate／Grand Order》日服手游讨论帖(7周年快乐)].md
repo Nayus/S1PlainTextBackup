@@ -1657,3 +1657,19 @@ https://www.bilibili.com/video/BV1KuyWYcEng/
 
 后天会给妖兰强化吗
 
+
+*****
+
+####  qixinno2  
+##### 15077#       发表于 2024-11-1 18:24
+
+<img src="https://img.saraba1st.com/forum/202411/01/182355t9fbporpr8qn1fqk.jpg" referrerpolicy="no-referrer">
+
+<strong>Cache_-2c8af0b89e5ff2a9.jpg</strong> (248.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-1 18:23 上传
+
+有石就扔才是正确玩法
+

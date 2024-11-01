@@ -4854,3 +4854,15 @@ p3r先宣布200w的可能性大一些
 
 后面还有大段流程 放心
 
+
+*****
+
+####  kusanagi9999  
+##### 3390#       发表于 2024-11-2 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66598732&amp;ptid=2140224" target="_blank">xifeilu 发表于 2024-11-1 23:13</a>
+好奇来问问，现在时间是8月3日，我是支线都做完了，路易房间也调查完毕了，剩下10天，然后我每天就在升COOP ...</blockquote>
+后面要一直到十月底，大把时间升coop，我就是最后睡了足足二十天
+
+—— 来自 Xiaomi 23116PN5BC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

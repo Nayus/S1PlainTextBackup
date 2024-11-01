@@ -712,3 +712,27 @@ rank分类加了新的野男人老八，现在是2人，根据公开数据，你
 大规模撸撸之前就没这些整活。每个人都有属于自己的原神(
 <img src="https://p.sda1.dev/20/c4c891206e881f8589d08a237feafcd6/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  makourisu-2  
+##### 17583#       发表于 2024-11-1 21:29
+
+什么韩国人，不许韩国人<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 17584#       发表于 2024-11-1 22:58
+
+日女怎么这么喜欢韩男啊
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  sino__unnko3  
+##### 17585#       发表于 2024-11-2 00:33
+
+(问个略不相关问题，几年前那个肥羊铲屎官压缩包还在更新吗，这几天整理文件找到了好多压缩包里面的存档的说，我那个版本还在22年
+

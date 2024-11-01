@@ -7437,3 +7437,43 @@ GbRiIJBbcAAIzrs.jpg
 
 <img src="https://img.saraba1st.com/forum/202411/01/180503jdkg9nx6g9xradx8.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SakuraのOrigami  
+##### 25774#       发表于 2024-11-1 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66596791&amp;ptid=2159415" target="_blank">SakuraのOrigami 发表于 2024-11-1 18:05</a>
+
+新歌今晚23点配信
+
+读音是Mist（ミスト）</blockquote>
+草，居然是藤田淳平作编曲（）
+
+*****
+
+####  CyDiablo  
+##### 25775#       发表于 2024-11-1 18:12
+
+这联动还真是，很多活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+【【崩坏学园2×MyGO!!!!!】联动曲「雾周途（Mist）」MV发布-哔哩哔哩】 [https://b23.tv/ibpioHQ](https://b23.tv/ibpioHQ)
+
+「雾周途」
+作词：藤原優樹(SUPA LOVE)
+作曲・编曲：藤田淳平(Elements Garden) 
+歌：MyGO!!!!!
+
+企划：文学少女灵依
+PV：米库米库米 （@米库米库米 ）
+
+*****
+
+####  滑稽Captain  
+##### 25776#       发表于 2024-11-1 18:16
+
+原来是这么直接从雾-mist-ミースト
+ス-周 ト-途
+来的歌名汉字
+
+—— 来自 samsung SM-F9360, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+

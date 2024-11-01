@@ -3517,3 +3517,39 @@ ff16哪有地图设计，不都是野外大空地迷宫一条路吗<img src="htt
 只要到了能接支线自由探索的阶段，你就会发现ff16的地图设计给他提鞋都不配了。 ...</blockquote>
 地图设计比ff16.你这是和轮椅飙车么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PROCAINUM  
+##### 975#       发表于 2024-11-1 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66598710&amp;ptid=2072996" target="_blank">codecloud 发表于 2024-11-1 23:09</a>
+没有一刻比现在更希望gayware早死晚投胎了.
+
+泥马,看了几分钟直播,开头第一个女性队友就直接把我的密集恐惧 ...</blockquote>
+冰法满脸瘀斑是因为主角二选一选她去，为了保持唯一能看女队友的颜值，推哈丁去被砸了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  kevinausting  
+##### 976#       发表于 2024-11-1 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66598492&amp;ptid=2072996" target="_blank">woaimiyabi 发表于 2024-11-1 22:29</a>
+
+只要到了能接支线自由探索的阶段，你就会发现ff16的地图设计给他提鞋都不配了。 ...</blockquote>
+那可太期待了，我玩rpg最在意探索和地图设计方面
+
+*****
+
+####  kevinausting  
+##### 977#       发表于 2024-11-1 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66598710&amp;ptid=2072996" target="_blank">codecloud 发表于 2024-11-1 23:09</a>
+
+没有一刻比现在更希望gayware早死晚投胎了.
+
+泥马,看了几分钟直播,开头第一个女性队友就直接把我的密集恐惧 ...</blockquote>
+满脸淤青是因为剧情里选让她跟着一起去所以让她受伤了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

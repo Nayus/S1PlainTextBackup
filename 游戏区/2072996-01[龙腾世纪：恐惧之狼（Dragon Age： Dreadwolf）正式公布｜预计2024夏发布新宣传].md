@@ -3279,3 +3279,16 @@ dav这个地方估计是一开始当网游做得时候遗留的设计，从role 
 
 这代优化咋样？看楼里没人提那应该默认还行？来自: iPhone客户端
 
+
+*****
+
+####  jf8350143  
+##### 955#       发表于 2024-11-1 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66595341&amp;ptid=2072996" target="_blank">DawnGuardian 发表于 2024-11-1 15:37</a>
+
+这代优化咋样？看楼里没人提那应该默认还行？</blockquote>
+优化挺好的，数毛社说是近几年PC上表现最好的3a游戏
+
+不过我闪退了两次，估计是因为我内存只有16g还开了一堆别的东西导致的
+

@@ -3300,3 +3300,23 @@ dav这个地方估计是一开始当网游做得时候遗留的设计，从role 
 
 玩了俩小时了，这游戏该不会全程都是这种纯线性模式了吧，除了有个技能树没有感受到任何RPG的成分，我们DA玩家也有自己的FF16了。
 
+
+*****
+
+####  含恨未了切莫死  
+##### 957#       发表于 2024-11-1 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66595898&amp;ptid=2072996" target="_blank">kevinausting 发表于 2024-11-1 16:30</a>
+
+玩了俩小时了，这游戏该不会全程都是这种纯线性模式了吧，除了有个技能树没有感受到任何RPG的成分，我们DA ...</blockquote>
+不是更像质量效应么，质量还是tps
+
+*****
+
+####  mimighost  
+##### 958#       发表于 2024-11-1 16:42
+
+resetera那些白左居然寄望中国市场来托ccu
+
+是不是想多了
+

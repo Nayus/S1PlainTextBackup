@@ -4744,3 +4744,13 @@ Hard难度除开第一章卡续航，之后就是名不副实毫无难度，只�
 
 发售到现在200w都不知道有没有，全平台也不过如此，还是要靠自身质量在线才能长卖
 
+
+*****
+
+####  猫沢  
+##### 3379#       发表于 2024-11-1 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66592787&amp;ptid=2140224" target="_blank">check 发表于 2024-11-1 10:49</a>
+ 发售到现在200w都不知道有没有，全平台也不过如此，还是要靠自身质量在线才能长卖 ...</blockquote>
+p3r先宣布200w的可能性大一些
+

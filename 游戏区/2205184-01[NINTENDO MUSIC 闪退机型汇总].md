@@ -568,3 +568,45 @@ matepadpro鸿蒙4.2今天开梯子可以进不闪退了
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  yoyokirby  
+##### 62#       发表于 2024-11-1 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66592744&amp;ptid=2205184" target="_blank">3123 发表于 2024-11-1 10:45</a>
+
+mate60p，安卓12（鸿蒙4.2.0.150），microg环境
+
+10月30日，不开卡三点，开了进入账户认证就闪退
+
+11月1日， ...</blockquote>
+求更详细些，例如代理等。
+
+我m60p microg环境刚才试一下还是登录后闪退
+
+我的m40p是老方法框架直接gp装了用没事。
+
+代理CFA
+
+
+*****
+
+####  yoyokirby  
+##### 62#       发表于 2024-11-1 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66592744&amp;ptid=2205184" target="_blank">3123 发表于 2024-11-1 10:45</a>
+
+mate60p，安卓12（鸿蒙4.2.0.150），microg环境
+
+10月30日，不开卡三点，开了进入账户认证就闪退
+
+11月1日， ...</blockquote>
+求更详细些，例如代理等。
+
+我m60p microg环境刚才试一下还是登录后闪退
+
+我的m40p是老方法框架直接gp装了用没事。
+
+代理CFA
+

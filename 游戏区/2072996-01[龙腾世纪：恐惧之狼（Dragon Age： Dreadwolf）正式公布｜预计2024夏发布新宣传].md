@@ -2727,3 +2727,63 @@ Neve和Harding都不错，修罗场开搞！
 你在一个游戏的专楼里愤愤不平觉得这个游戏角色不好看罪大滔天，觉得反驳你的潜在游戏玩家非要说服你强行让你买游戏玩游戏啦？不会吧？
 接受别人和自己是不同的玩家，很难吗？对游戏的判断标准和你不一样，就是“粉丝”，就是“孝”，这种风气哪来的，手游区吗？
 
+
+*****
+
+####  BadYanL  
+##### 907#       发表于 2024-11-1 11:49
+
+ 本帖最后由 BadYanL 于 2024-11-1 11:50 编辑 
+
+因为没有支援职业选了战士，现在有点后悔想转玩魔法师，能转职吗？
+
+*****
+
+####  petrouchka  
+##### 908#       发表于 2024-11-1 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66580903&amp;ptid=2072996" target="_blank">ak123 发表于 2024-10-30 21:37</a>
+临发售半年游戏名都给蛋头边缘化了，从logo到副标题都改了，怎么看都没什么底气吗 ...</blockquote>
+我才刚玩我哪知道啊，反正现在开始是蛋头放出了两个神，我们去打他们<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  petrouchka  
+##### 909#       发表于 2024-11-1 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66580894&amp;ptid=2072996" target="_blank">ArgentDawn 发表于 2024-10-30 21:36</a>
+我看了点目前不同评测总结的内容，感觉关于蛋头有几个相对共同的点：
+1. Solas是个很复杂很有趣的角色
+2. ...</blockquote>
+这样啊，稍微安下心了
+
+
+*****
+
+####  油条小贩  
+##### 910#       发表于 2024-11-1 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66593400&amp;ptid=2072996" target="_blank">petrouchka 发表于 2024-11-1 11:48</a>
+
+我知道啦，在你眼中队友RPG队友角色难看是很严重的缺点。
+
+那别的玩家觉得这不是严重的缺点，你就不能接受 ...</blockquote>
+我厌丑，对丑人没有带入感
+
+*****
+
+####  petrouchka  
+##### 911#       发表于 2024-11-1 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66580750&amp;ptid=2072996" target="_blank">operatbig 发表于 2024-10-30 21:14</a>
+所以实际上就是个战神？那还玩毛线……</blockquote>
+反正我玩的感觉不像战神。目前很多游戏包括战神在操作和战斗的时候为了“写实”，操作手感总会有点“延迟”或者“黏滞”，但我玩没有这种感觉。
+至少我玩安提梵出身的暗鸦刺客（拿刺剑）没有这种感觉。
+
+*****
+
+####  刻路希  
+##### 912#       发表于 2024-11-1 11:55
+
+DAO一开始就是完整且独立剧情而非ME1-3那种三部曲大格局世界观，DA2严格了来讲是DAO第五次瘟潮的不同视角的分支，且格局太小。整个赛达斯世界观从一开始就被限制死了，有种jrpg小格局世界观的特点。DAI到DATV在整个龙腾系列才是连贯的一个系列，属于不玩DAI，DATV就不可能看的明白，从DAI开始疯狂加新设定，精灵神龙神上帝泰坦黄金城黑城什么的突然一股脑的解释，再到DATV潦草收尾再机械将神引出新的幕后黑手。有种龙腾也要走轨迹系列阴谋论连续剧那种感觉，也同样在不断吃书，问题是轨迹的大局从空轨时期就开始做了，到界轨都能看到3rd的伏笔。且关键是轨迹系列可以做到一到两年一作，龙腾世纪能做到么，DAI到DATV花了十年，DAO到DA2倒是花了16个月，但如果都DA2这简陋的质量还有多少新老粉丝愿意买单？
+

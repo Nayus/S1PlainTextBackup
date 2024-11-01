@@ -2951,3 +2951,18 @@ dav这个地方估计是一开始当网游做得时候遗留的设计，从role 
 职业不能转，职业的三个专精可以随便洗点换</blockquote>
 也猜到不能转，好在进度不是很多，重开吧
 
+
+*****
+
+####  油条小贩  
+##### 926#       发表于 2024-11-1 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66593531&amp;ptid=2072996" target="_blank">petrouchka 发表于 2024-11-1 11:59</a>
+
+那你可以不玩啊，你为什么不玩游戏也对游戏的“致命缺陷”反感却还要在这个楼里呢，是在游戏已经上线，游 ...</blockquote>
+我没玩啊
+
+我不能说我不喜欢吗
+
+管的真宽啊
+

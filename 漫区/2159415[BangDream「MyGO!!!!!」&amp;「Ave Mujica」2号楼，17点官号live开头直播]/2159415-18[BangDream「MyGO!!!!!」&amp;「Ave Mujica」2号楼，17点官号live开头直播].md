@@ -7360,3 +7360,15 @@ akni——<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" 
 
 什么姐妹丼<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CyDiablo  
+##### 25768#       发表于 2024-11-1 13:00
+
+（game size）【居然有新歌！崩坏学园2 × MyGo!!!!!联动曲【雾周途】试听-哔哩哔哩】 [https://b23.tv/6i6iHvq](https://b23.tv/6i6iHvq)
+（全曲）【雾周途 励志羊！-哔哩哔哩】 [https://b23.tv/svSvKJ0](https://b23.tv/svSvKJ0)
+
+这样二专还剩两个位置，爱信等剧场版下篇了
+这联动也太认真了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

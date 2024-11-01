@@ -254,3 +254,35 @@ boss战感觉老唐有点放水了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">实战起来好帅的我虫
 
+
+*****
+
+####  Jamaisvu  
+##### 967#       发表于 2024-11-1 17:21
+
+<img src="https://img.saraba1st.com/forum/202411/01/172157e2vcj239vtxi3z2z.png" referrerpolicy="no-referrer">
+
+<strong>1730452072275.png</strong> (73.6 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-11-1 17:21 上传
+
+由于第七章太耗时耗力，镜牢5延迟上线，估计要在11.22八周年直播后实装吧。
+
+八周年还有联动，感觉是PM社外的IP（脑叶和废墟都出过人了，总不能联动火腿嘭嘭吧）。
+
+话说主美画过蔚蓝档案的同人，会不会联动BA呀？：
+
+<img src="https://img.saraba1st.com/forum/202411/01/172046jcb1b9asv10bubdg.jpg" referrerpolicy="no-referrer">
+
+<strong>080691A165A6DEABABAD05F4FFE9B9A9.jpg</strong> (212.26 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-11-1 17:20 上传
+
+（愚人节维导cos那帮手游都有可能呢...要不发挥余热联动少前1吧2333）
+

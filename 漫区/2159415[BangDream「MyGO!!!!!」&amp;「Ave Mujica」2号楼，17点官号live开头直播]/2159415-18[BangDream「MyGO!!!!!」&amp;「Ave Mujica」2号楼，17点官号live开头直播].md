@@ -7397,3 +7397,24 @@ akni——<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" 
 
 主要是为了赶紧填满二单好卖钱，什么联动打牌节目联动游戏全来了，不过这样看的话剧场版新加的live大概率老歌多，可以复用模型
 
+
+*****
+
+####  SakuraのOrigami  
+##### 25772#       发表于 2024-11-1 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66594031&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2024-11-1 13:00</a>
+
+（game size）【居然有新歌！崩坏学园2 × MyGo!!!!!联动曲【雾周途】试听-哔哩哔哩】 https://b23.tv/6i6i ...</blockquote>
+这曲子编的这么旋律硬核吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+220的BPM()
+
+前奏叠了3把吉他，而且节奏部分还有点花()
+
+A melo和B melo一堆下拨+重音和强力和弦
+
+间奏节奏这个颗粒感听着像是全下拨
+
+凛有压力咯（）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

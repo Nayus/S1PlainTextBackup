@@ -127,3 +127,13 @@ s1有没有cs的群啊<img src="https://static.saraba1st.com/image/smiley/face20
 <img src="https://p.sda1.dev/20/50728947514f2ae324ff8bd2f7431ce8/image.jpg" referrerpolicy="no-referrer">
 难绷
 
+
+*****
+
+####  攻城匠师黑索  
+##### 4505#       发表于 2024-11-1 15:12
+
+背刺大队<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

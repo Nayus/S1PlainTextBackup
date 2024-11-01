@@ -2641,3 +2641,22 @@ Neve和Harding都不错，修罗场开搞！
 
 块两小时了，先退款，玩得不多不好评价，只能说，我已经不是生软的受众了。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NaiveBot2580  
+##### 899#       发表于 2024-11-1 11:19
+
+7W这个同时在线人数，感觉翻车了。
+
+
+*****
+
+####  拉莱耶妇联主任  
+##### 900#       发表于 2024-11-1 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66593071&amp;ptid=2072996" target="_blank">NaiveBot2580 发表于 2024-11-1 11:19</a>
+
+7W这个同时在线人数，感觉翻车了。</blockquote>
+竟然有7w同时在线   比预期的高啊，但是感觉这数据生软应该似定了
+

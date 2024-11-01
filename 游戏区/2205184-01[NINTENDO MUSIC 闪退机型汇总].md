@@ -511,3 +511,24 @@ xperia 1 iv 在开始点歌单播放闪退了一次，之后再也没闪退过
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">折腾半天没用上，还是等资源提取吧
 
+
+*****
+
+####  Pettabuz  
+##### 56#       发表于 2024-11-1 10:45
+
+s24u 每天第一次打开点播放会闪退 再进来就正常了。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  3123  
+##### 57#       发表于 2024-11-1 10:45
+
+mate60p，安卓12（鸿蒙4.2.0.150），microg环境
+
+10月30日，不开卡三点，开了进入账户认证就闪退
+
+11月1日，开了已经能完全正常使用了，搞不好是工具的问题<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

@@ -68,3 +68,14 @@
 有普通板和特装板，特装版是一个长长的盒子，里面有几个钥匙扣和一张60*47c ...</blockquote>
 之前了解到欧美版的光盘忘了把DLC眼之回想的内容刻上去，结果只能让玩家去网上领DLC下载码。请问日版的光盘包含了DLC内容吗？
 
+
+*****
+
+####  Ditfran  
+##### 1159#       发表于 2024-11-1 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66598202&amp;ptid=1992654" target="_blank">暮光こころ 发表于 2024-11-1 21:41</a>
+
+之前了解到欧美版的光盘忘了把DLC眼之回想的内容刻上去，结果只能让玩家去网上领DLC下载码。请问日版的光 ...</blockquote>
+我没舍得拆就没插上盘实机试<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

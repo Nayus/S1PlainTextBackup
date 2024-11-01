@@ -2622,3 +2622,14 @@ nm又饮茶开会了，想起之前看新法政，主角团也是一个案件结
 
 Neve和Harding都不错，修罗场开搞！
 
+
+*****
+
+####  pp1349  
+##### 897#       发表于 2024-11-1 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66591727&amp;ptid=2072996" target="_blank">迎春君 发表于 2024-11-1 08:47</a>
+
+乐死🤣龙腾世纪吧已经给这鸟游戏开年度游戏的香槟了，怎么和感觉我和他们活的不是一个世界</blockquote>
+怎么说呢，倒不是没有正常8u，不乏黄牌直球辱骂生软的，但是确实有些8u言论感觉像进了疾地吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

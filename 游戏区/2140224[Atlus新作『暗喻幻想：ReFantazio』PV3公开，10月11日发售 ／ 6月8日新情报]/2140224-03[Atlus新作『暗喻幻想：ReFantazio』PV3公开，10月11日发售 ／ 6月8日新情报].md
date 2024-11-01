@@ -4714,3 +4714,25 @@ Hard难度除开第一章卡续航，之后就是名不副实毫无难度，只�
 
 小媳妇儿O
 
+
+*****
+
+####  莉可厨  
+##### 3376#       发表于 2024-11-1 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66591215&amp;ptid=2140224" target="_blank">2015年入股市 发表于 2024-11-1 02:19</a>
+我试了下斩强化和高级斩强化似乎是可以叠加的</blockquote>
+丫的记错了，我打开游戏一看我自己都是两个一起放上去的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NEIN  
+##### 3377#       发表于 2024-11-1 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66586589&amp;ptid=2140224" target="_blank">莉可厨 发表于 2024-10-31 15:26</a>
+不能叠来着，可以搜一下攻略，有的被动是不能叠的（比如前后排攻击力加10%） ...</blockquote>
+罗刹手套不能叠
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

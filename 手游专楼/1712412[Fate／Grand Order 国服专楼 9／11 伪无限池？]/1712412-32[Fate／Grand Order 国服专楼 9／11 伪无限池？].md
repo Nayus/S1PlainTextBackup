@@ -321,3 +321,11 @@ f0Q91yo-ifouZbT1kShs-13i.jpg
 
 抽3星上头了，240石头老头来了，3星才3宝<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  q8241808  
+##### 46786#       发表于 2024-11-1 15:04
+
+3星之后进友情池的，没必要为了3星下池吧
+

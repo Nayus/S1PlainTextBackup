@@ -118,3 +118,12 @@ s1有没有cs的群啊<img src="https://static.saraba1st.com/image/smiley/face20
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  朔方原的星  
+##### 4504#         楼主| 发表于 2024-11-1 15:02
+
+<img src="https://p.sda1.dev/20/50728947514f2ae324ff8bd2f7431ce8/image.jpg" referrerpolicy="no-referrer">
+难绷
+

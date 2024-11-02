@@ -3938,3 +3938,27 @@ DA4完全没有这种魅力，前几楼有人说像ME，但是ME2几乎完全建
 
 这逻辑我上一次看到还是护749局的王俊凯粉丝说的
 
+
+*****
+
+####  roydimus  
+##### 1014#       发表于 2024-11-2 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66603324&amp;ptid=2072996" target="_blank">Dedalus 发表于 2024-11-2 19:49</a>
+有人能简单讲一下背景故事吗，这游戏开幕就一副懂得都懂的态度飞快推进主线，可龙腾3都十年前的游戏了我什 ...</blockquote>
+索拉斯自己就是古精灵神fen harel，他为了对抗其它精灵神创造了veil，把他们都关进去与世隔绝了，但这样的结果是毁了精灵，dai最后一个dlc就是讲索拉斯打算把veil拆了，让精灵回归自己应有的地位
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+
+*****
+
+####  roydimus  
+##### 1015#       发表于 2024-11-2 20:05
+
+【【中字熟肉】龙腾世纪编年史：从远古时代到第五次瘟潮开始-哔哩哔哩】 https://b23.tv/dCpGquo
+
+借楼发一下和朋友一起翻译的龙腾背景故事介绍视频，有兴趣了解世界观的坛友可以看一下
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

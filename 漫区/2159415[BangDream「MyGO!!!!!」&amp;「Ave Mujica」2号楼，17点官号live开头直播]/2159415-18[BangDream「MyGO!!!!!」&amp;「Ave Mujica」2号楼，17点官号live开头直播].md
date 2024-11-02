@@ -7587,3 +7587,19 @@ PV：米库米库米 （@米库米库米 ）
 
 是不是有一个博客还是专栏全过程的讲如何去日本当邦邦现地✌🏻的，以前还看过其中的现地神人榜板块的，现在不知道在哪找这个
 
+
+*****
+
+####  [皆神孝介]  
+##### 25787#       发表于 2024-11-3 00:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66605241&amp;ptid=2159415" target="_blank">太二EricGuo 发表于 2024-11-3 00:17</a>
+
+是不是有一个博客还是专栏全过程的讲如何去日本当邦邦现地✌🏻的，以前还看过其中的现地神人榜板块的，现在 ...</blockquote>
+这个吗？
+
+邦邦人如何做一次现地爷——一场Live的详细指南
+[https://www.bilibili.com/video/BV1Dm421n7fb/](https://www.bilibili.com/video/BV1Dm421n7fb/)
+
+简介里有pdf版本下载链接
+

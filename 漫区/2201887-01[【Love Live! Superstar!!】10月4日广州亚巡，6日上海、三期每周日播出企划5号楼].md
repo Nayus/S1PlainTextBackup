@@ -4745,3 +4745,28 @@ TVアニメ『ラブライブ！スーパースター!!』3期 第4話「No Rain
 换句话是不是可以理解成还是达不到神回程度？</blockquote>
 平稳就是胜利<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 457#       发表于 2024-11-2 21:51
+
+舅舅故意说错标题我就对这位没啥态度了，不也是乐子人，为什么还要看他评价。
+
+反正现在国内对可的要求已经很低了，不当连体人或者怼人bot就已经能满足绝大部分人的需求。
+
+说到底还是那个矛盾，你写的不错就已经是踩钢丝玩的好的了，花田京极确实是顶级监督编剧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  ads147147  
+##### 458#       发表于 2024-11-2 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66602384&amp;ptid=2201887" target="_blank">仟音一心 发表于 2024-11-2 16:26</a>
+耐人寻味的组合</blockquote>
+大部分组合还挺有意思的，个别几个不太理解。mari和恋是会长组？dia和冬毬？？
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

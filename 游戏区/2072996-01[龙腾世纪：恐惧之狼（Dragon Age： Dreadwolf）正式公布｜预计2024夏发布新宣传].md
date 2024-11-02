@@ -4071,3 +4071,32 @@ Da系列向着我越来越不喜欢的方向发展，现在它已经变成了这
 
 我有时候觉得生软现在核心用户可能是画同人图和写同人文的玩家，不知道为什么，但是社区氛围让我不得不这么想。
 
+
+*****
+
+####  u2deack  
+##### 1026#       发表于 2024-11-2 23:27
+
+打完怪物猎人荒野说进这边捏个脸搞了半天看脸还行，结果一进到职业选择画面那个全身预览我就想退款了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qrgarryqr  
+##### 1027#       发表于 2024-11-2 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66604544&amp;ptid=2072996" target="_blank">糖然君 发表于 2024-11-2 22:46</a>
+说是换lead writer有影响，可是DG去当制作人的stray gods我也玩了，主线是真没意思啊，所以说当年写出好剧 ...</blockquote>
+这种woke团队氛围，正常人早跑了
+
+*****
+
+####  PROCAINUM  
+##### 1028#       发表于 2024-11-2 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66604544&amp;ptid=2072996" target="_blank">糖然君 发表于 2024-11-2 22:46</a>
+说是换lead writer有影响，可是DG去当制作人的stray gods我也玩了，主线是真没意思啊，所以说当年写出好剧 ...</blockquote>
+DG的故事其实很一般，DAO就是很老套的套路，但是胜在人物塑造好，代入感也强。他写的角色都不错，除了阿诺门这个黑历史<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

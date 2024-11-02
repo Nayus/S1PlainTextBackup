@@ -828,3 +828,14 @@ GBC确实可以说得上是抓住了时代的脉搏吧。传统的叛逆系角�
 不过纯可爱就算了，剧中可爱的角色也挺多的，但真要说有感的就nina，当然 ...</blockquote>
     但是最出圈的是486的各类颜艺，nina在“圈外人”眼里就是一个普通的量产的每季度好多个的日本JK，而表情包486才是吸睛的那个。
 
+
+*****
+
+####  aptx8285144  
+##### 47#       发表于 2024-11-2 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66604822&amp;ptid=2205484" target="_blank">wuwo2 发表于 2024-11-2 23:17</a>
+
+但是最出圈的是486的各类颜艺，nina在“圈外人”眼里就是一个普通的量产的每季度好多个的日本JK，而 ...</blockquote>
+安才是正统jk呀，要说表情包，仁菜，安，小智都太多了，本质是安的老婆党多所以表情包流传广<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

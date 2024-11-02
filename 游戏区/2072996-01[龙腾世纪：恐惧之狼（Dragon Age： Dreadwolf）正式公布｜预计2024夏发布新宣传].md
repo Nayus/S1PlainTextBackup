@@ -4040,3 +4040,14 @@ DA4完全没有这种魅力，前几楼有人说像ME，但是ME2几乎完全建
 
 至于做游戏方面，一方面是bioware东一榔头西一棒槌的，做了几代连个重心都没有，另一方面这年头的大作感是要靠量堆的，CDPR的每作破釜沉舟、艾尔登法环、黑神话悟空、博德之门3等全都是超乎寻常作的体量，量大质优在感官上有超乎寻常的效果。 但龙腾世纪从二代开始就像被会计算好投入的那种作品，在这个层面上bioware根本没有制作大作的可能。
 
+
+*****
+
+####  wswseven  
+##### 1023#       发表于 2024-11-2 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66604149&amp;ptid=2072996" target="_blank">Hidewhite 发表于 2024-11-2 21:52</a>
+
+塞多元化有什么难的，商业套路都有了，一号位塞个漂亮异性，后面二三位塞其他。反正类似游戏又不能NP， 大 ...</blockquote>
+这作的投入绝对不少了，画面优化工期，要是把这钱给计算好投入的龙信2，估计就是又一个法环<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

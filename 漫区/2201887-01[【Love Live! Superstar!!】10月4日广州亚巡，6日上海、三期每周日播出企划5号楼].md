@@ -4770,3 +4770,26 @@ TVアニメ『ラブライブ！スーパースター!!』3期 第4話「No Rain
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  仟音一心  
+##### 459#       发表于 2024-11-2 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66604160&amp;ptid=2201887" target="_blank">ads147147 发表于 2024-11-2 21:53</a>
+大部分组合还挺有意思的，个别几个不太理解。mari和恋是会长组？dia和冬毬？？
+
+—— 来自 OPPO PHN110,  ...</blockquote>
+水星两组姐妹是交换组合的。
+
+*****
+
+####  仟音一心  
+##### 460#       发表于 2024-11-2 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66603096&amp;ptid=2201887" target="_blank">csolfans 发表于 2024-11-2 19:02</a>
+舅舅直接锐评了
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 v3.0.0-alpha ...</blockquote>
+这是舅舅党？这位是我QQ好友啊！
+

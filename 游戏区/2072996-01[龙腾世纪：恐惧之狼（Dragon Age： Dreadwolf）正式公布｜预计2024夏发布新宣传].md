@@ -3853,3 +3853,14 @@ da系列底子是有的
 
 感觉是想一出是一出，还是吃了没了原著的亏
 
+
+*****
+
+####  codecloud  
+##### 1007#       发表于 2024-11-2 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66599964&amp;ptid=2072996" target="_blank">Victorino 发表于 2024-11-2 08:44</a>
+
+讲道理，harding是dai就有很多戏份的角色了（而且当时就有雀斑），这次把她扶正成队友也是社区请愿出来的 ...</blockquote>
+所以我才说,由上一代的雀斑进化了.现在这个完全就是重度麻风病后遗症.
+

@@ -4801,3 +4801,17 @@ TVアニメ『ラブライブ！スーパースター!!』3期 第4話「No Rain
 
 又可以了吗？求个叔叔的直播间和播放时间，是周日16点？
 
+
+*****
+
+####  ads147147  
+##### 462#       发表于 2024-11-2 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66604479&amp;ptid=2201887" target="_blank">cat1230 发表于 2024-11-2 22:37</a>
+又可以了吗？求个叔叔的直播间和播放时间，是周日16点？</blockquote>
+https://web4.lovelivegundam.top/#/LoveLive
+
+北京时间周日下午4点
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

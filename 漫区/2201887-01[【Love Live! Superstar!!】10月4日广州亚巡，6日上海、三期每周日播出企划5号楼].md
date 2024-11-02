@@ -4646,3 +4646,14 @@ TVアニメ『ラブライブ！スーパースター!!』3期 第4話「No Rain
 
 耐人寻味的组合<img src="https://p.sda1.dev/20/d6bfd7477efa7aeb978039b6980c1a94/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  离心  
+##### 448#       发表于 2024-11-2 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66602384&amp;ptid=2201887" target="_blank">仟音一心 发表于 2024-11-2 16:26</a>
+
+耐人寻味的组合</blockquote>
+上下还能对个位，中间只有几个能对上了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

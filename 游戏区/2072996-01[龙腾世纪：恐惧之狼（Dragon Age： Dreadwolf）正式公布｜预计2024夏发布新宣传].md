@@ -3798,3 +3798,15 @@ dai珠玉在前这ip还有这个成绩基本盘是真不小，
 
 这退款率估计有点吓人。
 
+
+*****
+
+####  trentswd  
+##### 1002#       发表于 2024-11-2 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66599964&amp;ptid=2072996" target="_blank">Victorino 发表于 2024-11-2 08:44</a>
+讲道理，harding是dai就有很多戏份的角色了（而且当时就有雀斑），这次把她扶正成队友也是社区请愿出来的 ...</blockquote>
+讲道理dai哈丁雀斑没这么明显
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

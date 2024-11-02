@@ -7579,3 +7579,11 @@ PV：米库米库米 （@米库米库米 ）
 
 我记得她的学校好像早被考据出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  太二EricGuo  
+##### 25786#       发表于 2024-11-3 00:17
+
+是不是有一个博客还是专栏全过程的讲如何去日本当邦邦现地✌🏻的，以前还看过其中的现地神人榜板块的，现在不知道在哪找这个
+

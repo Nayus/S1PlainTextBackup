@@ -3892,3 +3892,25 @@ DA4完全没有这种魅力，前几楼有人说像ME，但是ME2几乎完全建
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  PROCAINUM  
+##### 1010#       发表于 2024-11-2 18:36
+
+对话文本真是太差了，很难想象生软居然连他们最擅长的都做不好了。这次换了lead writer影响有那么大吗，查了一下现在的lead writer，感觉以前写的还行。还是故意弄那么弱智直白的对话
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  假布偶是臭猪  
+##### 1011#       发表于 2024-11-2 18:45
+
+ 本帖最后由 假布偶是臭猪 于 2024-11-2 18:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66602692&amp;ptid=2072996" target="_blank">hmfwsl 发表于 2024-11-2 17:32</a>
+
+作为DAO时代一路过来的老粉，对这一代真的心情很复杂。虽然从预告出来就决定的要坏但是本着10多年的情怀无 ...</blockquote>
+像ME应该是去招募队友队友说我家厕所堵了我去不了然后开始通厕所让人入队，入队之后关系好了找你说厕所又堵了这个流程特别me……
+

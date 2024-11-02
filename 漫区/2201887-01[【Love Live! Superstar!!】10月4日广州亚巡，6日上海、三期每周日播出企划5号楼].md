@@ -4708,3 +4708,40 @@ TVアニメ『ラブライブ！スーパースター!!』3期 第4話「No Rain
 
 看图透5集就有舞台了，第六集要干什么？
 
+
+*****
+
+####  csolfans  
+##### 454#       发表于 2024-11-2 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66603133&amp;ptid=2201887" target="_blank">we89623 发表于 2024-11-2 19:10</a>
+还不错...
+换句话是不是可以理解成还是达不到神回程度？</blockquote>
+我只能说他从来没锐评过
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  ViyViy  
+##### 455#       发表于 2024-11-2 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66603133&amp;ptid=2201887" target="_blank">we89623 发表于 2024-11-2 19:10</a>
+
+还不错...
+
+换句话是不是可以理解成还是达不到神回程度？</blockquote>
+不烂已经超越预期了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且在贴吧里还说含可量巨高，终于不是写作xx读作xx的cp回了
+
+*****
+
+####  离心  
+##### 456#       发表于 2024-11-2 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66603133&amp;ptid=2201887" target="_blank">we89623 发表于 2024-11-2 19:10</a>
+
+还不错...
+
+换句话是不是可以理解成还是达不到神回程度？</blockquote>
+平稳就是胜利<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

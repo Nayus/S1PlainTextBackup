@@ -711,3 +711,13 @@ Russia stronk！
 
 一眼看成罗斯福姬
 
+
+*****
+
+####  卡Sam  
+##### 48#       发表于 2024-11-2 20:47
+
+来晚了没看到露点<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+— from Xiaomi 2211133C, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

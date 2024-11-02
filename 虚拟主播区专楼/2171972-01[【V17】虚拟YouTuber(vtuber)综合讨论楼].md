@@ -146,3 +146,17 @@ DI对策拉希德蓄力踢风，精防莉莉突进后的lp接轻旋风连段，2
 
 比她声音还普通的又不是没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哦都是前辈啊
 
+
+*****
+
+####  バーチャルS1er  
+##### 843#       发表于 2024-11-2 20:36
+
+<img src="https://img.saraba1st.com/forum/202411/02/203641gh8ww8qatf6v8aoe.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20241102203607.png</strong> (567.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-2 20:36 上传
+

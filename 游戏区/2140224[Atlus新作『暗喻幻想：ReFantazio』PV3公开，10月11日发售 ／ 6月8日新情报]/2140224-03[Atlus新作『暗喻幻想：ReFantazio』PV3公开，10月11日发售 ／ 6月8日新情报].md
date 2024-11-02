@@ -4882,3 +4882,13 @@ p3r先宣布200w的可能性大一些
 
 游戏后期的数值平衡彻底崩坏，随便一条龙都能迪卡加迪坤达 然后再加8个行动点降能力升能力再扔6个aoe直接团灭。 除了鼠鼠闪避、合题一回合秒掉boss外根本没法玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 设计这么多职业有个屁用。我还是去玩死胎游戏算了
 
+
+*****
+
+####  牙狼GARO  
+##### 3393#       发表于 2024-11-2 09:38
+
+还剩几天就到上天找路易的最后时限了，现在全社群满了，三龙打了，还差全竞技场和三龙后续，这些是不是可以打完了路易再回来做？
+
+—— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

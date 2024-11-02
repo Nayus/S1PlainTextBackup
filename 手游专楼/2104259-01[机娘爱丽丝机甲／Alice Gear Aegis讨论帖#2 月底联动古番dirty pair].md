@@ -195,3 +195,20 @@ LV4，合计88连出了黑猫，寡妇平时就不用也没凸点就随缘啦<im
 
 能在万圣节活动把棺材直接放屋里的也就只有你游了<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  不灭的旋律  
+##### 1249#       发表于 2024-11-2 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66561847&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2024-10-28 17:39</a>
+
+天朝相关的，还是透明好点吧
+
+话说到时谁抽到FA寡妇了记得在楼里透一下剧情啊 ...</blockquote>
+透明？僵尸梗玩到烂还把王红花塞进棺材扮僵尸就是不肯多做一件旗袍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+晚上开馆真的是棺材板压不住了你游是懂的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+推上看到FA寡妇剧情有14岁时的插画，同求剧透
+

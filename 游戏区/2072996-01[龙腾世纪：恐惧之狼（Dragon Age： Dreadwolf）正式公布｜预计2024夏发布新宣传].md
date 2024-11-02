@@ -3994,3 +3994,15 @@ DA4完全没有这种魅力，前几楼有人说像ME，但是ME2几乎完全建
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  tigs1  
+##### 1019#       发表于 2024-11-2 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66603558&amp;ptid=2072996" target="_blank">chm007 发表于 2024-11-2 20:27</a>
+拉瑞安知道怎么塞多元化不影响游戏性，生软就明显不懂了
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+这个问题是知道怎么把游戏做好玩，而不是知道怎么添加lgbt元素，生软现在知道自己龙腾好玩在哪儿吗？
+

@@ -3836,3 +3836,20 @@ dai珠玉在前这ip还有这个成绩基本盘是真不小，
 
 目前体验像是ME2或3典范斜坡的魔幻版，尤其是蛋头……
 
+
+*****
+
+####  mimighost  
+##### 1006#       发表于 2024-11-2 15:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66600925&amp;ptid=2072996" target="_blank">杉田悠一 发表于 2024-11-2 11:41</a>
+
+dai珠玉在前这ip还有这个成绩基本盘是真不小，
+
+—— 来自 鹅球 v3.3.92</blockquote>
+da系列底子是有的
+
+但是实际操作得并不怎么样，da2和dai灰卫都是打酱油的，暗种让路，圣殿骑士和法师的矛盾成了主线
+
+感觉是想一出是一出，还是吃了没了原著的亏
+

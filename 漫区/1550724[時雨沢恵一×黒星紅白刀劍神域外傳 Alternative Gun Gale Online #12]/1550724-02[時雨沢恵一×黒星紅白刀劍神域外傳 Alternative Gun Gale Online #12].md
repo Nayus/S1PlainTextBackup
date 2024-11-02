@@ -35,3 +35,20 @@
 
 平山寛菜 さん @kaaaaaappe
 
+
+*****
+
+####  oi99o  
+##### 1944#       发表于 2024-11-2 11:12
+
+竟然是平山宽菜，这小莲画得挺有帽皇内味的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  mhss  
+##### 1945#       发表于 2024-11-2 11:53
+
+这片每集中间的插入卡都挺用心，目前还没见到太摸鱼的
+

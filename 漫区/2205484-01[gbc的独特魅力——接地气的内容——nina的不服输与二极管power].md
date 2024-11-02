@@ -879,3 +879,15 @@ GBC确实可以说得上是抓住了时代的脉搏吧。传统的叛逆系角�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Ashice  
+##### 51#       发表于 2024-11-3 01:16
+
+天哪，都过去多久了还有人要来吹gbc<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+扣鹅不太礼貌就只能给反对的声音加鹅了
+不过不得不承认，gbc在刻画一个惹人厌的主角这个角度，非常成功
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

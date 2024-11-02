@@ -99,3 +99,16 @@
 
 2024-11-1 23:05 上传
 
+
+*****
+
+####  暮光こころ  
+##### 1161#       发表于 2024-11-2 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66598696&amp;ptid=1992654" target="_blank">Ditfran 发表于 2024-11-1 23:07</a>
+
+在推上查了一下，插进光盘时会提示你是否安装DLC，可以确定不用兑换码兑换了
+
+ ...</blockquote>
+谢谢，这样就可以放心了。
+

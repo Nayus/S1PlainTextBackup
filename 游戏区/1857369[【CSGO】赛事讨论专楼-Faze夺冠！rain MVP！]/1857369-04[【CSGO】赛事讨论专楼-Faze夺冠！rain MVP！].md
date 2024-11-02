@@ -156,3 +156,11 @@ s1有没有cs的群啊<img src="https://static.saraba1st.com/image/smiley/face20
 
 上海major官宣碗橱要当现场解说了
 
+
+*****
+
+####  朔方原的星  
+##### 4508#         楼主| 发表于 2024-11-2 23:44
+
+零蛋<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

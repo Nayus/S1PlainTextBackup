@@ -1364,3 +1364,11 @@ https://x.com/onigiri123091/status/1841843153718149297
 
 天才销售
 
+
+*****
+
+####  好much橘  
+##### 120#       发表于 2024-11-2 18:10
+
+把前面男主赌狗的一面转化成贪、忍不住就全买下来、买高档货了还挺不错的，推进剧情非常自然，有种幽默但又不沉重的意味。还不了钱的炸弹也被粉毛承包下来解开了，现在就马力全开的成为广告工具人吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

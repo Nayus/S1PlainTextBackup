@@ -4051,3 +4051,11 @@ DA4完全没有这种魅力，前几楼有人说像ME，但是ME2几乎完全建
 塞多元化有什么难的，商业套路都有了，一号位塞个漂亮异性，后面二三位塞其他。反正类似游戏又不能NP， 大 ...</blockquote>
 这作的投入绝对不少了，画面优化工期，要是把这钱给计算好投入的龙信2，估计就是又一个法环<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  糖然君  
+##### 1024#       发表于 2024-11-2 22:46
+
+说是换lead writer有影响，可是DG去当制作人的stray gods我也玩了，主线是真没意思啊，所以说当年写出好剧情的好编剧都上哪去了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

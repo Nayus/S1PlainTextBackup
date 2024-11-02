@@ -129,3 +129,20 @@ DI对策拉希德蓄力踢风，精防莉莉突进后的lp接轻旋风连段，2
 怎么感觉三枝明那的声线和我以前的印象完全不一样。
 感觉战损有点严重啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  バーチャルS1er  
+##### 841#       发表于 2024-11-2 20:07
+
+蝶屋はなび：本来vspo落选了好几次，运营说街霸6升到大师才让我过了
+
+这声音难怪会落选N次<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Harunoharu  
+##### 842#       发表于 2024-11-2 20:10
+
+比她声音还普通的又不是没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哦都是前辈啊
+

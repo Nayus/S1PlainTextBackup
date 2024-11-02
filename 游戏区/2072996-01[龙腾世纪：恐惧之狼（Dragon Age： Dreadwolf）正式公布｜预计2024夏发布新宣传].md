@@ -3731,3 +3731,14 @@ ConCurrent User
 
 MC玩家评分2.5，周末在线人数不增反降，不如怪猎试玩的三分之一，推测销量顶天100W左右了，褒姒预定。
 
+
+*****
+
+####  ak123  
+##### 995#       发表于 2024-11-2 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66600458&amp;ptid=2072996" target="_blank">震荡波 发表于 2024-11-2 10:25</a>
+
+MC玩家评分2.5，周末在线人数不增反降，不如怪猎试玩的三分之一，推测销量顶天100W左右了，褒姒预定。 ...</blockquote>
+主要是榜一就呆了一天就开始跌了，而且是在周末，确实有点难看了
+

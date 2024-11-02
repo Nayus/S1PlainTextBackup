@@ -3768,3 +3768,15 @@ MC玩家评分2.5，周末在线人数不增反降，不如怪猎试玩的三分
 
 r/dragonage 评价大崩溃了，遗老们非常失望，可以去看乐子
 
+
+*****
+
+####  Flechette  
+##### 999#       发表于 2024-11-2 11:26
+
+刚在MHWs捏完脸，又在DA4里捏脸，这体验的落差还挺大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+昨天捏得快超出可退款时间不说，捏人过程中我几度怀疑自己对人类脸部结构有所误解，以至于跑去照镜子来确证下颌骨并不像生软认为的那样在嘴角位置附近会向外凸起。默认脸生成的基础脸模可谓类人群星，有些脸看起来像是祖先才刚完成脸部脱毛的进化，但可选的体型又远不及祖先魁梧雄壮，不是营养不良就是肥到不太像个冒险者，而女性角色胸部拉到最大可能还没mtf植入的假体大。我就请问了，diversity呢，representation呢，一般生理男性生理女性的代表呢，这已经不是贴近现实而是刻意审丑了
+
+今天继续捏脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -4909,3 +4909,12 @@ p3r先宣布200w的可能性大一些
 三眼岛上好像是没有征兵所的吧？不过征兵所里的内容好像哪个城都一样</blockquote>
 未开化之地哪来的这东西<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zzy199696  
+##### 3396#       发表于 2024-11-2 11:29
+
+卡女骑士coop三了 问下有遇到相同情况的吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+之前赶路时触发过一次 当时选了其他行动没去推，结果现在灰雨都入队了外出两次下本，赶路三天了都硬没触发一次。不会真就卡没了吧
+

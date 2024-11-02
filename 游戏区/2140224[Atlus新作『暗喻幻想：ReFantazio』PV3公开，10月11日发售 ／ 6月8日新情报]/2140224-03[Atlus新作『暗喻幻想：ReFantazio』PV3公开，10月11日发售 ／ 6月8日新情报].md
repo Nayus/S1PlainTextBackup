@@ -4930,3 +4930,14 @@ p3r先宣布200w的可能性大一些
 
 —— 来自 Xiaomi 23116PN5BC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  khxooo  
+##### 3398#       发表于 2024-11-2 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66600862&amp;ptid=2140224" target="_blank">zzy199696 发表于 2024-11-2 11:29</a>
+卡女骑士coop三了 问下有遇到相同情况的吗
+之前赶路时触发过一次 当时选了其他行动没去推，结果现在灰雨都 ...</blockquote>
+记得有些coop是在机甲触发的，而且有些触发是没有提示的，你自己查一下最好。
+

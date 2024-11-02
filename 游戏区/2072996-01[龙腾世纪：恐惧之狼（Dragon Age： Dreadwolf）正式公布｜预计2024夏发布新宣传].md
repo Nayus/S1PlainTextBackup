@@ -3700,3 +3700,16 @@ ConCurrent User
 
 唯二难顶的一个是选精灵那头身比看着就像个大号小朋友，另一个是手柄输入感觉有点问题尤其是在菜单里面，对话白开水之类的还得再看看，不过蛋头在那i have a plan真笑了，你个小崽种
 
+
+*****
+
+####  Victorino  
+##### 992#       发表于 2024-11-2 08:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66598710&amp;ptid=2072996" target="_blank">codecloud 发表于 2024-11-1 23:09</a>
+
+没有一刻比现在更希望gayware早死晚投胎了.
+
+泥马,看了几分钟直播,开头第一个女性队友就直接把我的密集恐惧 ...</blockquote>
+讲道理，harding是dai就有很多戏份的角色了（而且当时就有雀斑），这次把她扶正成队友也是社区请愿出来的……
+

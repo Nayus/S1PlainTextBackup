@@ -4918,3 +4918,15 @@ p3r先宣布200w的可能性大一些
 卡女骑士coop三了 问下有遇到相同情况的吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 之前赶路时触发过一次 当时选了其他行动没去推，结果现在灰雨都入队了外出两次下本，赶路三天了都硬没触发一次。不会真就卡没了吧
 
+
+*****
+
+####  kusanagi9999  
+##### 3397#       发表于 2024-11-2 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66600202&amp;ptid=2140224" target="_blank">牙狼GARO 发表于 2024-11-2 09:38</a>
+还剩几天就到上天找路易的最后时限了，现在全社群满了，三龙打了，还差全竞技场和三龙后续，这些是不是可以 ...</blockquote>
+打完路易就直接快进到大结局了
+
+—— 来自 Xiaomi 23116PN5BC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

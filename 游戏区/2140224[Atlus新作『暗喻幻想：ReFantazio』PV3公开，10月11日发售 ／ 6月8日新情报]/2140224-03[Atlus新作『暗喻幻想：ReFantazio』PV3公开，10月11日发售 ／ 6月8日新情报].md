@@ -4892,3 +4892,20 @@ p3r先宣布200w的可能性大一些
 
 —— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  u2deack  
+##### 3394#       发表于 2024-11-2 10:36
+
+新补丁终于可以把跑步的模糊效果关掉，舒服多了
+
+*****
+
+####  莉可厨  
+##### 3395#       发表于 2024-11-2 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66599477&amp;ptid=2140224" target="_blank">石中剑二 发表于 2024-11-2 02:05</a>
+三眼岛上好像是没有征兵所的吧？不过征兵所里的内容好像哪个城都一样</blockquote>
+未开化之地哪来的这东西<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

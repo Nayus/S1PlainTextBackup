@@ -3780,3 +3780,21 @@ r/dragonage 评价大崩溃了，遗老们非常失望，可以去看乐子
 
 今天继续捏脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  杉田悠一  
+##### 1000#       发表于 2024-11-2 11:41
+
+dai珠玉在前这ip还有这个成绩基本盘是真不小，
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+
+*****
+
+####  operatbig  
+##### 1001#       发表于 2024-11-2 11:45
+
+这退款率估计有点吓人。
+

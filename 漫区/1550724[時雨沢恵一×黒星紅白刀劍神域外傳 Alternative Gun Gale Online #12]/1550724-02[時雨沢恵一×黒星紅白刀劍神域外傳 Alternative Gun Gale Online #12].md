@@ -52,3 +52,16 @@
 
 这片每集中间的插入卡都挺用心，目前还没见到太摸鱼的
 
+
+*****
+
+####  pokemon最爱  
+##### 1946#       发表于 2024-11-2 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66601470&amp;ptid=1550724" target="_blank">X(iaolw)S 发表于 2024-11-2 13:14</a>
+
+该不会最后全船同归于尽，在楼顶躺平的ts再次吃鸡成功吧？
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+怎么可能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

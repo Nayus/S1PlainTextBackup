@@ -200,3 +200,11 @@ V圈稳坐最强的座了，这实力在比赛里也完全有能力让pro翻车�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">moka这是直接导师位了
 
+
+*****
+
+####  バーチャルS1er  
+##### 849#       发表于 2024-11-2 21:32
+
+V圈街霸6教练需求量很大的、而且还能特别给玩独角兽营业的人当教练<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -4006,3 +4006,25 @@ DA4完全没有这种魅力，前几楼有人说像ME，但是ME2几乎完全建
   -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
 这个问题是知道怎么把游戏做好玩，而不是知道怎么添加lgbt元素，生软现在知道自己龙腾好玩在哪儿吗？
 
+
+*****
+
+####  西弗  
+##### 1020#       发表于 2024-11-2 21:34
+
+其实还挺好玩的，就是不像DA而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+撇开外形不谈，这个描写方式就很二次元，角色描写突出一个扁平易懂，但世界观的解释又完全不搞，虽然这游戏大概也不会有纯新人买，但哪怕对系列老玩家也该给点前情提要之类的东西，审判都十年前的了，有些名词这会冒出来我都要懵一会
+
+外形真的是故意搞丑，明明那种塔罗卡牌风格的原画上看着都还蛮正常
+
+*****
+
+####  ak123  
+##### 1021#       发表于 2024-11-2 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66602999&amp;ptid=2072996" target="_blank">PROCAINUM 发表于 2024-11-2 18:36</a>
+
+对话文本真是太差了，很难想象生软居然连他们最擅长的都做不好了。这次换了lead writer影响有那么大吗，查 ...</blockquote>
+也有可能就是叫来供着的门面,自己不参与<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

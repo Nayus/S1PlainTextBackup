@@ -3962,3 +3962,35 @@ DA4完全没有这种魅力，前几楼有人说像ME，但是ME2几乎完全建
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  sosgame67  
+##### 1016#       发表于 2024-11-2 20:19
+
+其实dai打通dlc也会觉得dav开头一头雾水，感觉中间缺了一大段剧情——没错，大部分剧情在漫画小说里<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  pgain2004  
+##### 1017#       发表于 2024-11-2 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66602999&amp;ptid=2072996" target="_blank">PROCAINUM 发表于 2024-11-2 18:36</a>
+
+对话文本真是太差了，很难想象生软居然连他们最擅长的都做不好了。这次换了lead writer影响有那么大吗，查 ...</blockquote>
+排除什么woke不woke的，我觉得最大可能是这作再暴死工作室就真的要被毙了，后面的ME也不用想了，所以在定调上大幅度转为扩大受众，很多弱智谜题超额引导和幼稚对话应该都是该基调下的产物
+
+不像CDPR和拉瑞安，这两都是上一作大获成功风头正盛，玩家愿意去接受和理解新作，所以相对敢于冒险
+
+当然你说这里没有woke的影响，我肯定不信，不是说其中的woke要素有多么强，而是woke势力运作带来的制作团队平均素质下降，这种明明白白的东西前面某楼弱智居然没什么知觉，唉……
+
+*****
+
+####  chm007  
+##### 1018#       发表于 2024-11-2 20:27
+
+拉瑞安知道怎么塞多元化不影响游戏性，生软就明显不懂了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

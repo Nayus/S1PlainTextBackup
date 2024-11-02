@@ -7571,3 +7571,11 @@ PV：米库米库米 （@米库米库米 ）
 <img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">奏音自曝大學了 青山学院大学 
 這很大小姐
 
+
+*****
+
+####  星天观测  
+##### 25785#       发表于 2024-11-2 21:17
+
+我记得她的学校好像早被考据出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

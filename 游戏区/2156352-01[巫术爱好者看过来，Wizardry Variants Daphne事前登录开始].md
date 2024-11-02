@@ -2365,3 +2365,16 @@ https://gamerch.com/wizardry-daphne/
 发了个邮件问怎么解决一周都没回 这就是日本厂的服务精神吗</blockquote>
 是这样的，我第一个号死档了发了n久申诉单都没有一点回复的，连个已收到申诉单自动回复都没的，气得我去退款了，然后也不让退一点，感情就像三哥赚钱三哥花，一分别想带走<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  玄冥忌  
+##### 264#       发表于 2024-11-2 11:19
+
+虚假的宝箱怪:一回合两动高伤害带麻痹和各种异常
+真正的宝箱怪:活动图4f右上角房间里静静的待着摸了就报错跳出重登直接卡那啥都干不了
+
+真把我急死了，好在最后发现点活动任务后退出来终于正常了
+
+—— 来自 Xiaomi 22081212C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

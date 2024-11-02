@@ -4665,3 +4665,23 @@ TVアニメ『ラブライブ！スーパースター!!』3期 第4話「No Rain
 
 第五集还没播怎么第六集剧透都有了....<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ayara  
+##### 450#       发表于 2024-11-2 18:55
+
+这总得是可的单c了吧，不至于翻车了吧
+
+
+*****
+
+####  csolfans  
+##### 451#       发表于 2024-11-2 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66603069&amp;ptid=2201887" target="_blank">ayara 发表于 2024-11-2 18:55</a>
+这总得是可的单c了吧，不至于翻车了吧</blockquote>
+<img src="https://p.sda1.dev/20/666b8d9f7789bdf50c0545ac9bbc351d/IMG_20241102_190028.jpg" referrerpolicy="no-referrer">舅舅直接锐评了
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

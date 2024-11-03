@@ -766,3 +766,30 @@ Russia stronk！
 
 感觉毛妹和欧美那些还是有显著区别
 
+
+*****
+
+####  猫出没注意  
+##### 54#       发表于 2024-11-3 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66605177&amp;ptid=2205177" target="_blank">zxlice 发表于 2024-11-3 00:09</a>
+
+感觉毛妹和欧美那些还是有显著区别</blockquote>
+估计是被蒙古人统治了很长时间，加上国土大面积往亚洲延伸，不少毛妹都有股东西方结合的观感<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer"> 我觉得花滑的千金（安娜 谢尔巴科娃）就挺有代表性。
+
+<img src="https://img.saraba1st.com/forum/202411/03/145510g64mnvu4898mbd86.jpg" referrerpolicy="no-referrer">
+
+<strong>1706752281403487.jpg</strong> (133.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-3 14:55 上传
+
+<img src="https://img.saraba1st.com/forum/202411/03/145532vw2nwziw5li0a5nw.jpg" referrerpolicy="no-referrer">
+
+<strong>1667405189861544.jpg</strong> (195.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-3 14:55 上传
+

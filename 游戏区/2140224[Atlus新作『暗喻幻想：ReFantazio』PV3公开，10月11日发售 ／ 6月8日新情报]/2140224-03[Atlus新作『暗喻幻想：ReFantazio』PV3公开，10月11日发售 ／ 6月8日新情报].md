@@ -4988,3 +4988,13 @@ p3r先宣布200w的可能性大一些
 
 说起来也好笑，王宫里那个传送门好多红点精英，打了半天发现与其打弱点加行动力，不如好兄弟装合题大剑一刀一个秒的轻松，没mp了就找个小怪进去待机再逃走，一次一个人稳定回20mp，再加上一些乱七八糟装备技能，mp清零都能几分钟回满，毫无压力
 
+
+*****
+
+####  猫沢  
+##### 3404#       发表于 2024-11-3 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66607553&amp;ptid=2140224" target="_blank">牙狼GARO 发表于 2024-11-3 11:23</a>
+ 打到进恐王星了，还有9天，不得不说路易这人真墨迹 现在进恐王星应该就是大结局了吧，打完出来还有时间去竞 ...</blockquote>
+恐亡星9天后才能去现在去不了。所以只能去jjc和龙宫。然后就是彻底没事做<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

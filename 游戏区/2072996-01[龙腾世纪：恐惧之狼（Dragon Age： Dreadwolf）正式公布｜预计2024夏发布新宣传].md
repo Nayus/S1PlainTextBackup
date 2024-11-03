@@ -4349,3 +4349,16 @@ Anomen算啥黑历史啊。一个原生家庭有缺陷的纨绔子弟从一开�
 
 唯一的例外是塔什，就他妈一坨屎真就前脚去猎龙后脚唐突硬拐non-binary。你哪怕写两句坤我也就忍了，再不济打完龙你再发癫也就算了，现在龙都没看到就搁那硬拐
 
+
+*****
+
+####  kevinausting  
+##### 1052#       发表于 2024-11-4 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66612075&amp;ptid=2072996" target="_blank">jf8350143 发表于 2024-11-4 00:14</a>
+
+目前每个队友的个人剧情都还挺有爆点的，有不少大料
+
+唯一的例外是塔什，就他妈一坨屎真就前脚去猎龙后脚唐 ...</blockquote>
+问下前期那个剧情抉择二选一那里，没选的那个队友的支线断掉了后面还会有后续吗，还是说就这么彻底断掉了？变成麻木不仁状态之后一直没有对话或者个人任务，有点难受了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

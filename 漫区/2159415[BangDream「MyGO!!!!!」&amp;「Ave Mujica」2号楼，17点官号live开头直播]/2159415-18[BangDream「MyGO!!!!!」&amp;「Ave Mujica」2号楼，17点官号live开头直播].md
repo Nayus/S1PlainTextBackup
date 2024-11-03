@@ -7775,3 +7775,13 @@ PV：米库米库米 （@米库米库米 ）
 還缺個Bass阿</blockquote>
 沒事了她們並不表演 所以樂器位置不重要<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  LeonsCat  
+##### 25803#       发表于 2024-11-4 02:01
+
+青学啊
+
+我对他家最大的印象就是国内某小有名气的女装大佬是青学的，并曾经报名miss 青学被组织方劝退了。
+

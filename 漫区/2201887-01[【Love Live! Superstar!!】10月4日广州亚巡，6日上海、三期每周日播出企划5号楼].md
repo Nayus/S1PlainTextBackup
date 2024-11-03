@@ -5330,3 +5330,13 @@ lala，再和你游星河
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  adw667  
+##### 518#       发表于 2024-11-3 21:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">爽了，独唱听得我飞起来。
+
+可惜姐姐的CV完全不给CV梗厨一点乐子，配音的口气也怪怪的对不上表情
+

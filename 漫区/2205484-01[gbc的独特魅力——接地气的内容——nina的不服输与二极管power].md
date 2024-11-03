@@ -1166,3 +1166,26 @@ KLK
 
 如果这样的不能让你满意，那你的要求确实挺高的。建议去看一些主角不平凡的片子，或者平凡但脚本可以发主角光环的片子，局部HE多的片子，比较适合你
 
+
+*****
+
+####  雪霜  
+##### 68#       发表于 2024-11-3 13:10
+
+就是因为不喜欢女主所以这番都没追下去<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  子夜微雪  
+##### 69#       发表于 2024-11-3 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66608096&amp;ptid=2205484" target="_blank">strayark 发表于 2024-11-3 12:42</a>
+我觉得你才没有看我说的吧？
+
+重要的是逻辑前后自洽，是否严谨。烂作要么是逻辑不通，都合主义，甚至没有 ...</blockquote>
+哦，那么你的意思是，只要剧情发展逻辑自洽，它就一定是好作品，哪怕人物不咋讨喜问题解决一地鸡毛一样照吹不误<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">那不是我要求太高，明显是你要求已经低到兽娘2的水平了啊，你就说兽娘2低分是不是因为剧情不严谨吧
+而且逻辑自洽剧情严谨这种说法才真的叫做“脚本一句话的事”吧，哪怕你前脚艺人家族拉扯，后脚一笔带过摊牌；前脚劳保家庭压抑，后脚自然和解；前脚为了出道大打出手，后脚悍然解约不顾后路——反正就是自洽了，需要自洽的中间或后续部分我没拍但自行想象，能想得到的合理逻辑就是严谨的。那么原话奉还，所有“逻辑严谨”都只不过是一种可能性罢了，我就算直接编结局百万粉武道馆，都可以是mmk的内部粉带货出来的自洽剧情，和签约解约的逻辑一样严谨
+我从来没反驳我们的绝对大女主影响到了所有人啊，你就说486是mmk送的队员，红姜是live送的队员是不是事实吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

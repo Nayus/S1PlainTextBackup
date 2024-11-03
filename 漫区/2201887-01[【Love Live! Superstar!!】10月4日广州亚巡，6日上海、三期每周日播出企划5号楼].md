@@ -5173,3 +5173,14 @@ lala，再和你游星河
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  新HGCG  
+##### 501#       发表于 2024-11-3 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66609629&amp;ptid=2201887" target="_blank">oi99o 发表于 2024-11-3 17:17</a>
+
+这段占卜婆婆也是上海话吗</blockquote>
+“小妹妹让我帮侬算一算好伐” ​​​
+

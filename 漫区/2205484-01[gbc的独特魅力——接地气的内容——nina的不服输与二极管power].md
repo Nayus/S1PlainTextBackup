@@ -1063,3 +1063,77 @@ GBC确实可以说得上是抓住了时代的脉搏吧。传统的叛逆系角�
 
 再比如vinland的阿谢拉德，这种魅力拉满的角色，你觉得他有什么弧度吗？他从小开始就已经是完全体，各种心计了，但并不妨碍他的魅力拉满。
 
+
+*****
+
+####  病態極端  
+##### 65#       发表于 2024-11-3 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66607656&amp;ptid=2205484" target="_blank">千本blur 发表于 2024-11-3 11:36</a>
+
+我从来没见过把家庭矛盾放到大街上的东西，哪里有那么多号召打倒家人的创作者，能举出实例不能？刃牙的话 ...</blockquote>
+魯魯修
+
+EVA
+
+FlipFlappers
+
+KLK
+
+可能你看得少，打倒家人其實是東西方作品都常見的要素。
+[https://tvtropes.org/pmwiki/pmwiki.php/Main/Patricide](https://tvtropes.org/pmwiki/pmwiki.php/Main/Patricide)
+[https://tvtropes.org/pmwiki/pmwiki.php/Main/Matricide](https://tvtropes.org/pmwiki/pmwiki.php/Main/Matricide)
+[https://tvtropes.org/pmwiki/pmwi ... rents/AnimeAndManga](https://tvtropes.org/pmwiki/pmwiki.php/AbusiveParents/AnimeAndManga)
+
+*****
+
+####  子夜微雪  
+##### 66#       发表于 2024-11-3 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66607827&amp;ptid=2205484" target="_blank">strayark 发表于 2024-11-3 11:58</a>
+我觉得我基本上覆盖到了。
+
+“结果大家也看到了，问题不在于没解决问题，而是问题以并不理想的方式结束了 ...</blockquote>
+作者花了笔墨去着重写了问题的解决，写得一地鸡毛之后你表示“这只是一种结局”——潜台词是鸵鸟埋头，他写烂了我就当只是一种可能性而已，烂的部分在我眼里不做数<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">那你无敌了呀，天底下还有烂作吗？只要把烂的部分都只当做一种可能性不去看就都是好评呗？你这个手法去洗一洗游戏王A5和兽娘2我觉得妥妥的呀
+同样我上文也说了，作者给每个人物安排了的矛盾和困难是故事主要组成部分，这些问题你选择“不看”，转而选择把问题降级到没怎么花笔墨的“队伍整合”——你扪心自问一下，GBC有多少内容是靠nina一个个去整合队伍的，安是一开始送的 说要退队是假的，红姜是一个live主动送的，tomo是独处的时候主动自爆的，还有一个干脆没个人戏份，五人团里甚至有一个没单独安排入队环节，你都能把整合队伍当做主要内容和功绩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+而且我们假设她在整合队伍上有所建树好了——还是那个问题，我们的绝对大女主在剧集里的大多数矛盾中，包括赢下hina，艺人家族摊牌，家庭学校的斗争与和解，和mmk前队友的沟通等主要内容上毫无建树，甚至出道问题上还解约了，和大女主的落差感让人难以忽视
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  病態極端  
+##### 65#       发表于 2024-11-3 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66607656&amp;ptid=2205484" target="_blank">千本blur 发表于 2024-11-3 11:36</a>
+
+我从来没见过把家庭矛盾放到大街上的东西，哪里有那么多号召打倒家人的创作者，能举出实例不能？刃牙的话 ...</blockquote>
+魯魯修
+
+EVA
+
+FlipFlappers
+
+KLK
+
+可能你看得少，打倒家人其實是東西方作品都常見的要素。
+[https://tvtropes.org/pmwiki/pmwiki.php/Main/Patricide](https://tvtropes.org/pmwiki/pmwiki.php/Main/Patricide)
+[https://tvtropes.org/pmwiki/pmwiki.php/Main/Matricide](https://tvtropes.org/pmwiki/pmwiki.php/Main/Matricide)
+[https://tvtropes.org/pmwiki/pmwi ... rents/AnimeAndManga](https://tvtropes.org/pmwiki/pmwiki.php/AbusiveParents/AnimeAndManga)
+
+*****
+
+####  子夜微雪  
+##### 66#       发表于 2024-11-3 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66607827&amp;ptid=2205484" target="_blank">strayark 发表于 2024-11-3 11:58</a>
+我觉得我基本上覆盖到了。
+
+“结果大家也看到了，问题不在于没解决问题，而是问题以并不理想的方式结束了 ...</blockquote>
+作者花了笔墨去着重写了问题的解决，写得一地鸡毛之后你表示“这只是一种结局”——潜台词是鸵鸟埋头，他写烂了我就当只是一种可能性而已，烂的部分在我眼里不做数<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">那你无敌了呀，天底下还有烂作吗？只要把烂的部分都只当做一种可能性不去看就都是好评呗？你这个手法去洗一洗游戏王A5和兽娘2我觉得妥妥的呀
+同样我上文也说了，作者给每个人物安排了的矛盾和困难是故事主要组成部分，这些问题你选择“不看”，转而选择把问题降级到没怎么花笔墨的“队伍整合”——你扪心自问一下，GBC有多少内容是靠nina一个个去整合队伍的，安是一开始送的 说要退队是假的，红姜是一个live主动送的，tomo是独处的时候主动自爆的，还有一个干脆没个人戏份，五人团里甚至有一个没单独安排入队环节，你都能把整合队伍当做主要内容和功绩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">GBC到底是不是把乐队离离合合当主要问题我觉得你和其他GBC粉丝们应该都统一不了意见
+而且我们假设她在整合队伍上有所建树好了——还是那个问题，我们的绝对大女主在剧集里的大多数矛盾中，包括赢下hina，艺人家族摊牌，家庭学校的斗争与和解，和mmk前队友的沟通等主要内容上毫无建树，甚至出道问题上还解约了，和大女主的落差感让人难以忽视
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -1521,10 +1521,10 @@
     "update": false
   },
   "1811212": {
-    "totalreply": 1077,
+    "totalreply": 1079,
     "title": "[『在地下城寻求邂逅是否搞错了什么』动画专楼 4期2022年]",
     "newtitle": "[『在地下城寻求邂逅是否搞错了什么』动画专楼 5期2024年]",
-    "lastedit": 1730564551,
+    "lastedit": 1730607737,
     "category": "漫区",
     "active": true,
     "update": false
@@ -5607,10 +5607,10 @@
     "update": false
   },
   "2139166": {
-    "totalreply": 10045,
+    "totalreply": 10046,
     "title": "[Capcom《街霸 6》新宣传视频公开，2023年6月2日发售]",
     "newtitle": "[Capcom《街霸 6》新宣传视频公开，2023年6月2日发售]",
-    "lastedit": 1730607131,
+    "lastedit": 1730607732,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -6939,13 +6939,13 @@
     "update": false
   },
   "2163356": {
-    "totalreply": 3652,
+    "totalreply": 3654,
     "title": "[怪物猎人新作mh wild正式公开！2025年发售]",
     "newtitle": "[mh wilds／怪物猎人荒野，ps5／xs／pc，25.2.28发售／10.29psn会员测试，11.1全员测试]",
-    "lastedit": 1730607120,
+    "lastedit": 1730607968,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2163511": {
     "totalreply": 1142,
@@ -8631,13 +8631,13 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 95193,
+    "totalreply": 95194,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1730607240,
+    "lastedit": 1730607662,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2185160": {
     "totalreply": 852,
@@ -8883,10 +8883,10 @@
     "update": false
   },
   "2187424": {
-    "totalreply": 3092,
+    "totalreply": 3095,
     "title": "[2024阿里巴巴全球数学竞赛决赛名单公布，17岁中专女生第12名]",
     "newtitle": "[2024阿里巴巴全球数学竞赛决赛结果公布，附姜萍事件说明]",
-    "lastedit": 1730607259,
+    "lastedit": 1730608097,
     "category": "外野",
     "active": true,
     "update": false
@@ -9216,13 +9216,13 @@
     "update": false
   },
   "2192398": {
-    "totalreply": 3918,
+    "totalreply": 3919,
     "title": "[《尘白禁区》攻略活动互助讨论楼 ver2.0空都演绎（7.11-8.22）]",
     "newtitle": "[《尘白禁区》综合讨论楼#2.3「漠北寻风」前瞻]",
-    "lastedit": 1730607180,
+    "lastedit": 1730607663,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2192350": {
     "totalreply": 2109,
@@ -9770,7 +9770,7 @@
     "newtitle": "[《寂静岭2 重制版》正式公布！主机PS5独占，同步登录PC]",
     "lastedit": 1730348780,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2124540": {
@@ -11276,15 +11276,6 @@
     "active": true,
     "update": false
   },
-  "2203630": {
-    "totalreply": 163,
-    "title": "[《日经》：雅迪以“价格破坏战略”登陆日本]",
-    "newtitle": "[《日经》：雅迪以“价格破坏战略”登陆日本]",
-    "lastedit": 1729398133,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
   "2203615": {
     "totalreply": 297,
     "title": "[为啥现在的字幕组都把「覚悟」翻译成“觉悟”？]",
@@ -11754,10 +11745,10 @@
     "update": false
   },
   "2125791": {
-    "totalreply": 131,
+    "totalreply": 132,
     "title": "[魔王2099 动画化 2024年秋]",
     "newtitle": "[魔王2099 动画化 2024年秋]",
-    "lastedit": 1730604249,
+    "lastedit": 1730607847,
     "category": "漫区",
     "active": true,
     "update": false
@@ -15993,13 +15984,13 @@
     "update": false
   },
   "2205058": {
-    "totalreply": 140,
+    "totalreply": 146,
     "title": "[起点又双叒叕地震了？听说多女主文会被判定“重婚”下架。]",
     "newtitle": "[起点又双叒叕地震了？听说多女主文会被判定“重婚”下架。]",
-    "lastedit": 1730607420,
+    "lastedit": 1730608097,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2204970": {
     "totalreply": 49,
@@ -16322,7 +16313,7 @@
     "newtitle": "[在线社交推理游戏《DEATH NOTE 暗影任务》将于11月6日登陆Steam／PS5／PS4，PS+11月会免]",
     "lastedit": 1730348112,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2205162": {
@@ -17145,10 +17136,10 @@
     "update": false
   },
   "2205412": {
-    "totalreply": 157,
+    "totalreply": 158,
     "title": "[中方决定对韩国等9国试行免签政策]",
     "newtitle": "[中方决定对韩国等9国试行免签政策]",
-    "lastedit": 1730604976,
+    "lastedit": 1730608097,
     "category": "外野",
     "active": true,
     "update": false
@@ -17244,10 +17235,10 @@
     "update": false
   },
   "2205451": {
-    "totalreply": 196,
+    "totalreply": 197,
     "title": "[民政部：今年前三季度结婚登记474.7万对，离婚登记196.7万对]",
     "newtitle": "[民政部：今年前三季度结婚登记474.7万对，离婚登记196.7万对]",
-    "lastedit": 1730607022,
+    "lastedit": 1730608098,
     "category": "外野",
     "active": true,
     "update": false
@@ -17334,19 +17325,19 @@
     "update": false
   },
   "2205491": {
-    "totalreply": 106,
+    "totalreply": 107,
     "title": "[纽约上门逮捕并处决百万粉丝网红松鼠]",
     "newtitle": "[纽约上门逮捕并处决百万粉丝网红松鼠]",
-    "lastedit": 1730607022,
+    "lastedit": 1730607737,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2205484": {
-    "totalreply": 64,
+    "totalreply": 66,
     "title": "[gbc的独特魅力——接地气的内容——nina的不服输与二极管power]",
     "newtitle": "[gbc的独特魅力——接地气的内容——nina的不服输与二极管power]",
-    "lastedit": 1730607259,
+    "lastedit": 1730607737,
     "category": "漫区",
     "active": true,
     "update": false
@@ -17424,13 +17415,13 @@
     "update": false
   },
   "2205497": {
-    "totalreply": 80,
+    "totalreply": 85,
     "title": "[劉德華於台灣省熱唱＂五千年的風和雨啊藏了多少夢＂, 島上多人玻璃心破防]",
     "newtitle": "[劉德華於台灣省熱唱＂五千年的風和雨啊藏了多少夢＂, 島上多人玻璃心破防]",
-    "lastedit": 1730607360,
+    "lastedit": 1730608092,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2205463": {
     "totalreply": 54,
@@ -17460,13 +17451,13 @@
     "update": false
   },
   "2205542": {
-    "totalreply": 147,
+    "totalreply": 153,
     "title": "[姜萍事件结果公布以及涟水中等专业学校对王某某的处理通告]",
     "newtitle": "[姜萍事件结果公布以及涟水中等专业学校对王某某的处理通告]",
-    "lastedit": 1730607300,
+    "lastedit": 1730608097,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2205367": {
     "totalreply": 42,
@@ -17478,19 +17469,19 @@
     "update": false
   },
   "2205408": {
-    "totalreply": 41,
+    "totalreply": 42,
     "title": "[速度比摩托还快，日本开始流行鬼火爆改电动自行车]",
     "newtitle": "[速度比摩托还快，日本开始流行鬼火爆改电动自行车]",
-    "lastedit": 1730607240,
+    "lastedit": 1730607658,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2205530": {
-    "totalreply": 46,
+    "totalreply": 51,
     "title": "[怪猎荒野和世界除了画面真不如崛起吧]",
     "newtitle": "[怪猎荒野和世界除了画面真不如崛起吧]",
-    "lastedit": 1730607129,
+    "lastedit": 1730607967,
     "category": "游戏区",
     "active": true,
     "update": false

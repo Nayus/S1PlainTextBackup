@@ -7715,3 +7715,14 @@ PV：米库米库米 （@米库米库米 ）
 从时间顺序上讲，应该就是音乐祭m团演出→有组乐队想法→看上soyo→遇到灯→和立希见面？不确定具体什么时 ...</blockquote>
 灯和素世的顺序是怎么确定的?
 
+
+*****
+
+####  rikaren  
+##### 25798#       发表于 2024-11-3 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66609549&amp;ptid=2159415" target="_blank">狂热飞鸟 发表于 2024-11-3 17:05</a>
+
+灯和素世的顺序是怎么确定的?</blockquote>
+祥找上soyo的时间就是月之森音乐祭soyo表演结束后，大概率就是m团演出当时就在计划组队然后看上了soyo。
+

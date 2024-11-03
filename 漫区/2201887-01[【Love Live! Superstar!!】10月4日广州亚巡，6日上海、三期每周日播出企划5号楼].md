@@ -5084,3 +5084,58 @@ kk北京人，动画里那几句不太像现学的
 https://weibo.com/u/1738008193
 <img src="https://p.sda1.dev/20/d0aa5dd8e56fdad559d62806ac1038ca/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  奥柏伦亲王  
+##### 493#       发表于 2024-11-3 17:11
+
+好，好起来了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  ViyViy  
+##### 494#       发表于 2024-11-3 17:13
+
+所以下集不出意外也是河村有coop咯？40min精简映画规格超级大明星，启动！<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 495#       发表于 2024-11-3 17:14
+
+ 本帖最后由 ads147147 于 2024-11-3 17:16 编辑 
+
+河村说京极不管让他自己搞，可以说限定虹（星ver）ova了。
+
+看河村的说法基本也确定星团去年就弄好了。。。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  oi99o  
+##### 496#       发表于 2024-11-3 17:17
+
+这段占卜婆婆也是上海话吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202411/03/171723afmzhbia66hugim1.png" referrerpolicy="no-referrer">
+
+<strong>Love Live! Superstar!! 3 - 05 (NHKE 1440x1080 MPEG2 AAC).ts_snapshot_15.50.328.png</strong> (142.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-3 17:17 上传
+
+*****
+
+####  仟音一心  
+##### 497#       发表于 2024-11-3 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66609629&amp;ptid=2201887" target="_blank">oi99o 发表于 2024-11-3 17:17</a>
+这段占卜婆婆也是上海话吗</blockquote>
+这个应该就是木花蓝
+

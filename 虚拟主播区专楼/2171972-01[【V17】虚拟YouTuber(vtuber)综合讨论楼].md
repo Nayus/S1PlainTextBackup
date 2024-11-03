@@ -208,3 +208,19 @@ V圈稳坐最强的座了，这实力在比赛里也完全有能力让pro翻车�
 
 V圈街霸6教练需求量很大的、而且还能特别给玩独角兽营业的人当教练<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  バーチャルS1er  
+##### 850#       发表于 2024-11-3 22:08
+
+<img src="https://img.saraba1st.com/forum/202411/03/220731e6xwx7zzou72u7iu.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20241103220720.png</strong> (121.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-3 22:07 上传
+
+真人母vtuber来喽<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

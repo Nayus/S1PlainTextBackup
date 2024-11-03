@@ -4310,3 +4310,24 @@ Anomen算啥黑历史啊。一个原生家庭有缺陷的纨绔子弟从一开�
 刷装备的有机制玩法吗 ...</blockquote>
 如果这部游戏真是刷子游戏说不定比现在要火的多，遗憾的是并不是。装备是可以升级的但被限定住了，但无论是build还是队友技能到后面都固定了。这个B站up主的视频就做的挺好的可以看一下[https://www.bilibili.com/video/B ... 032a9367350af539bae](https://www.bilibili.com/video/BV1dNSkYVEjY/?spm_id_from=333.337.search-card.all.click&amp;vd_source=b07071744150b032a9367350af539bae)
 
+
+*****
+
+####  鬼眼见证人  
+##### 1048#       发表于 2024-11-3 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66611065&amp;ptid=2072996" target="_blank">刻路希 发表于 2024-11-3 21:27</a>
+
+如果这部游戏真是刷子游戏说不定比现在要火的多，遗憾的是并不是。装备是可以升级的但被限定住了，但无论 ...</blockquote>
+看完了，弹幕一句银河护卫队，感觉恍然大悟。
+
+*****
+
+####  csodaszarvas  
+##### 1049#       发表于 2024-11-3 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66610351&amp;ptid=2072996" target="_blank">傲娇的章鱼 发表于 2024-11-3 19:30</a>
+
+对新人有点不友好，一堆世界观名词砸脸我又压根不知道是啥。就知道我们为拯救世界不小心捅了更大的篓子要找 ...</blockquote>
+对老人也不友好，前作打了一百个小时的世界状态说不给继承就不给继承
+

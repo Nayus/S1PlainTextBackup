@@ -628,3 +628,17 @@ iqoo10，play app直接搜搜不出来，从网页版跳转安装的。
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.85-alpha
 
+
+*****
+
+####  weare17k  
+##### 65#       发表于 2024-11-3 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66592236&amp;ptid=2205184" target="_blank">kinfox 发表于 2024-11-1 09:49</a>
+睡醒再次打开app,莫名其妙好了 一切正常了 可以播放了 我也是p70的鸿蒙系统啊  太神奇了
+
+你可以再试试。 ...</blockquote>
+版本是1.0吗？需要有microg吗？
+
+—— 来自 HUAWEI ALN-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+

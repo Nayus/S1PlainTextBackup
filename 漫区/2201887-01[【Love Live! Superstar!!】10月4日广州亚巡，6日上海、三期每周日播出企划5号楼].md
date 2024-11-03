@@ -5309,3 +5309,24 @@ lala，再和你游星河
 
 楼友现在谁还有高清的萌萌和可可的聊天记录吗
 
+
+*****
+
+####  miokojima  
+##### 516#       发表于 2024-11-3 21:40
+
+这两句上海话还可以，没那么洋滨羟
+
+*****
+
+####  ads147147  
+##### 517#       发表于 2024-11-3 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66610424&amp;ptid=2201887" target="_blank">夏亚之徒 发表于 2024-11-3 19:41</a>
+第三季开播后，不止一次看到有人说和花田和解了</blockquote>
+今朝有酒今朝醉。
+
+个人来说不可能原谅星2的，但是得知道星2的锅是谁的，目前看制作人＞导演＞编剧，花田锅确实少。（仅限于可香复活的目前）
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

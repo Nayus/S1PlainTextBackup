@@ -4206,3 +4206,14 @@ Anomen算啥黑历史啊。一个原生家庭有缺陷的纨绔子弟从一开�
 
 十小时后地图探索都变得好玩了起来，太神秘了，前十个小时跟后面仿佛不是一个游戏。
 
+
+*****
+
+####  banrendacha  
+##### 1038#       发表于 2024-11-3 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66608278&amp;ptid=2072996" target="_blank">kevinausting 发表于 2024-11-3 13:14</a>
+
+十小时后地图探索都变得好玩了起来，太神秘了，前十个小时跟后面仿佛不是一个游戏。 ...</blockquote>
+去年听过类似的评价
+

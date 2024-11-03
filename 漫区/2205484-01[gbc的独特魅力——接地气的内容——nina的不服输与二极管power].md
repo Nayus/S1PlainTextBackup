@@ -1335,3 +1335,23 @@ https://bbs ...</blockquote>
 
 说实话你喜不喜欢我都无所谓。只不过你这逻辑……
 
+
+*****
+
+####  strayark  
+##### 78#         楼主| 发表于 2024-11-3 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66608589&amp;ptid=2205484" target="_blank">ParadiseMartyr 发表于 2024-11-3 14:17</a>
+
+和这群黑子争这么多没啥意思，播出时候见得多了。
+
+想鸡蛋里头挑骨头可简单得多。</blockquote>
+的确有点上头了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赤黑的假面  
+##### 79#       发表于 2024-11-3 14:39
+
+GBC至少在调动情绪还是没得说的，NINA在较劲上倒是真挺孩子的，毕竟跟爹妈吵过架的都知道吵完之后那股劲不是那么容易抵消的
+

@@ -5419,3 +5419,30 @@ vn还挺可爱的<img src="https://static.saraba1st.com/image/smiley/face2017/07
 
 根据下集标题和这集开头熟肉，感觉可可当满三年校园偶像真的会回国上大学了。有人要异国恋了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViyViy  
+##### 525#       发表于 2024-11-4 00:36
+
+代哥，滔天的机会你不中用啊，哪怕自己发呢。
+
+感觉第六集最后就是直接把鱼的轨迹套上去，但文凭含金量是超量升级版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+老五星估计全都不在日本念大学<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 526#       发表于 2024-11-4 00:41
+
+草，强劲的音乐还在响
+
+<img src="https://img.saraba1st.com/forum/202411/04/004036hszhki2hmsmhedsm.png" referrerpolicy="no-referrer">
+
+<strong>QQ20241104-004015.png</strong> (293.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-4 00:40 上传
+

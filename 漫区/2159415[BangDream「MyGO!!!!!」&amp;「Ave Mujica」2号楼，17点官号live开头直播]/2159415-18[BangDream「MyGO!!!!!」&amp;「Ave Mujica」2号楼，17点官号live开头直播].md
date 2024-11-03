@@ -7762,3 +7762,16 @@ PV：米库米库米 （@米库米库米 ）
 
 還缺個Bass阿
 
+
+*****
+
+####  御幸一也  
+##### 25802#       发表于 2024-11-3 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66610724&amp;ptid=2159415" target="_blank">yifan8848 发表于 2024-11-3 20:23</a>
+
+找了5把吉他，2個主唱，1個鍵盤，1個鼓
+
+還缺個Bass阿</blockquote>
+沒事了她們並不表演 所以樂器位置不重要<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

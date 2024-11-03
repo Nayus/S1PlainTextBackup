@@ -5053,3 +5053,11 @@ p3r先宣布200w的可能性大一些
 
 —— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  u2deack  
+##### 3410#       发表于 2024-11-3 21:00
+
+坏天气进盲信之塔我真的要吐了哪冒出来一个55级的boss啊还每回合五动疯狂降攻，真的有病
+

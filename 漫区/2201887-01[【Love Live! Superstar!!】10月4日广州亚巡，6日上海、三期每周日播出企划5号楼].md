@@ -4952,3 +4952,35 @@ https://web4.lovelivegundam.top/#/LoveLive
 
 姐姐声优谁啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 478#       发表于 2024-11-3 16:29
+
+本质旅游回，但是挺好看<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">中文版的星际遨游真是意外惊喜
+
+大沪人家就是豪，不声不响给10人全包旅游费用<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cat1230  
+##### 479#       发表于 2024-11-3 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66609324&amp;ptid=2201887" target="_blank">oi99o 发表于 2024-11-3 16:28</a>
+
+姐姐声优谁啊</blockquote>
+刘婧荦？
+
+*****
+
+####  stygian  
+##### 480#       发表于 2024-11-3 16:31
+
+贤pro的这个？
+[https://www.kenproduction.co.jp/talent/245](https://www.kenproduction.co.jp/talent/245)
+
+不过感觉还是不太对
+
+kk北京人，动画里那几句不太像现学的
+

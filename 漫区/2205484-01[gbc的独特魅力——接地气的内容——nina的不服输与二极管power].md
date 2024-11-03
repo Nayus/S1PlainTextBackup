@@ -902,3 +902,11 @@ GBC确实可以说得上是抓住了时代的脉搏吧。传统的叛逆系角�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  gane1010  
+##### 53#       发表于 2024-11-3 09:51
+
+我就觉得歌好听 动画制作精良 角色表情动作可爱  至于剧情算不上多喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+

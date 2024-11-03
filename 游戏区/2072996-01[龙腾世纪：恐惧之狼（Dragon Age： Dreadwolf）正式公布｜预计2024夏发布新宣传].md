@@ -4148,3 +4148,15 @@ DG的故事其实很一般，DAO就是很老套的套路，但是胜在人物塑
 说是换lead writer有影响，可是DG去当制作人的stray gods我也玩了，主线是真没意思啊，所以说当年写出好剧 ...</blockquote>
 都被开了。换成了EA的人。
 
+
+*****
+
+####  杉田悠一  
+##### 1033#       发表于 2024-11-3 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66606873&amp;ptid=2072996" target="_blank">KTD 发表于 2024-11-3 09:36</a>
+这尼玛是女主？</blockquote>
+这画面真好啊，我玩幻想作品就为了看一个幻想世界，这样的脸我现实确实看不到，逻辑自洽了嘿，
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+

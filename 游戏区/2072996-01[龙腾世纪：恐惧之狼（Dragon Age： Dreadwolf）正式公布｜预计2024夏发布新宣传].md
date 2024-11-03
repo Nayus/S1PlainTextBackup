@@ -4122,3 +4122,29 @@ DG的故事其实很一般，DAO就是很老套的套路，但是胜在人物塑
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">开头那十几个小时节奏又慢对话疯狂水时长不知道图啥，难道真是多人留下来的东西不想改么
 
+
+*****
+
+####  KTD  
+##### 1031#       发表于 2024-11-3 09:36
+
+<img src="https://img.saraba1st.com/forum/202411/03/093607xbfaxbaf0zfffzbj.png" referrerpolicy="no-referrer">
+
+<strong>IMG_6279.png</strong> (284.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-3 09:36 上传
+
+这尼玛是女主？
+
+
+*****
+
+####  HellMaster  
+##### 1032#       发表于 2024-11-3 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66604544&amp;ptid=2072996" target="_blank">糖然君 发表于 2024-11-2 22:46</a>
+说是换lead writer有影响，可是DG去当制作人的stray gods我也玩了，主线是真没意思啊，所以说当年写出好剧 ...</blockquote>
+都被开了。换成了EA的人。
+

@@ -891,3 +891,14 @@ GBC确实可以说得上是抓住了时代的脉搏吧。传统的叛逆系角�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  KDConan  
+##### 52#       发表于 2024-11-3 09:34
+
+百花齐放百家争鸣，啥样的女主都有才有趣<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+但是一季确实收的不舒服，歌我也不喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

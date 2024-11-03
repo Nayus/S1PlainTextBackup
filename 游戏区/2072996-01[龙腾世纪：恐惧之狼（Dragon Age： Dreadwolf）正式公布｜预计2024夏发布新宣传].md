@@ -4297,3 +4297,16 @@ Anomen算啥黑历史啊。一个原生家庭有缺陷的纨绔子弟从一开�
 
 刷装备的有机制玩法吗？还是基本就是数字游戏？
 
+
+*****
+
+####  刻路希  
+##### 1047#       发表于 2024-11-3 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66611040&amp;ptid=2072996" target="_blank">鬼眼见证人 发表于 2024-11-3 21:21</a>
+
+听说是刷刷刷游戏，本身的技能树系统能玩出bd吗？还是就简单几条输出线路的区别？
+
+刷装备的有机制玩法吗 ...</blockquote>
+如果这部游戏真是刷子游戏说不定比现在要火的多，遗憾的是并不是。装备是可以升级的但被限定住了，但无论是build还是队友技能到后面都固定了。这个B站up主的视频就做的挺好的可以看一下[https://www.bilibili.com/video/B ... 032a9367350af539bae](https://www.bilibili.com/video/BV1dNSkYVEjY/?spm_id_from=333.337.search-card.all.click&amp;vd_source=b07071744150b032a9367350af539bae)
+

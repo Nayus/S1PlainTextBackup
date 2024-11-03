@@ -5069,3 +5069,13 @@ p3r先宣布200w的可能性大一些
 
 剧情快到九月底了，其实感觉也还行吧，不知是不是近几年JRPG剧情烂活太多，导致我期望放得很低，这个我反而觉得也还行了，猫两兄弟的剧情也还不错，魔法学院似乎很明显删掉了一个迷宫导致大头姐剧情过得有点快
 
+
+*****
+
+####  kuarwbwe  
+##### 3412#       发表于 2024-11-4 01:33
+
+快通关了，明天争取把coop全打满，然后把除龙以外的地洞都下了。最后争取把尤法的皇家职业开了。<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

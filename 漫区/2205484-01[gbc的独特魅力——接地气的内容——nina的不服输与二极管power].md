@@ -1314,3 +1314,24 @@ https://bbs.saraba1st.com/2b/thread-2189756-1-1.html
 
 竖起小拇指就完事了。
 
+
+*****
+
+####  strayark  
+##### 77#         楼主| 发表于 2024-11-3 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66608576&amp;ptid=2205484" target="_blank">Ashice 发表于 2024-11-3 14:14</a>
+
+那只能说明批评的声音太尖锐了，传递不到你耳朵里
+
+毕竟几个月刚完结前就有过一栋楼怒喷gbc了
+
+https://bbs ...</blockquote>
+有一栋楼怒喷。意思是不喜欢的都不会在评分帖评分，只在楼里怒喷。只有喜欢的会在评分帖评分。
+
+从而有前面你说的“需要粉丝长篇大论去说服别人为什么它'好'”，
+
+从而说明他“好失败”。
+
+说实话你喜不喜欢我都无所谓。只不过你这逻辑……
+

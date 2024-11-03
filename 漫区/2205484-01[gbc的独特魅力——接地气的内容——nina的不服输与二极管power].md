@@ -1241,3 +1241,76 @@ KLK
 
 后面但凡有需要我重复之前帖子说过的内容的，我都会直接无视。
 
+
+*****
+
+####  Ashice  
+##### 72#       发表于 2024-11-3 14:08
+
+突然又想到一个暴论
+一部通俗作品，如果需要粉丝长篇大论去说服别人为什么它“好”
+那只能说明它好失败<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  strayark  
+##### 73#         楼主| 发表于 2024-11-3 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66608544&amp;ptid=2205484" target="_blank">Ashice 发表于 2024-11-3 14:08</a>
+
+突然又想到一个暴论
+
+一部通俗作品，如果需要粉丝长篇大论去说服别人为什么它“好”
+
+那只能说明它好失败</blockquote>
+我不需要说服他好，因为在我说他好之前，论坛内评分已经是好评。
+
+我只是从我的角度分析他的魅力点。
+
+你这个逻辑的一个隐含前提是，他不受欢迎，而我需要说服大家让他受欢迎。不适用于本帖。
+
+
+*****
+
+####  Ashice  
+##### 74#       发表于 2024-11-3 14:14
+
+ 本帖最后由 Ashice 于 2024-11-3 14:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66608558&amp;ptid=2205484" target="_blank">strayark 发表于 2024-11-3 14:10</a>
+我不需要说服他好，因为在我说他好之前，论坛内评分已经是好评。
+
+我只是从我的角度分析他的魅力点。
+
+你这 ...</blockquote>
+那只能说明批评的声音太尖锐了，传递不到你耳朵里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+毕竟几个月刚完结前就有过一栋楼怒喷gbc了
+https://bbs.saraba1st.com/2b/thread-2189756-1-1.html
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Sabbah  
+##### 75#       发表于 2024-11-3 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66608544&amp;ptid=2205484" target="_blank">Ashice 发表于 2024-11-3 14:08</a>
+
+突然又想到一个暴论
+
+一部通俗作品，如果需要粉丝长篇大论去说服别人为什么它“好”
+
+那只能说明它好失败</blockquote>
+的确暴论，只要你想表达对于赞扬性主题的不满又懒得进行最基本的讨论就可以直接把这个圈丢过去然后换个地儿冲浪了。
+
+*****
+
+####  ParadiseMartyr  
+##### 76#       发表于 2024-11-3 14:17
+
+和这群黑子争这么多没啥意思，播出时候见得多了。
+想鸡蛋里头挑骨头可简单得多。
+
+竖起小拇指就完事了。
+

@@ -4858,3 +4858,97 @@ https://web4.lovelivegundam.top/#/LoveLive
 
 老朋友东北烤肉
 
+
+*****
+
+####  ViyViy  
+##### 468#       发表于 2024-11-3 16:20
+
+中文版星巡？？
+
+*****
+
+####  新HGCG  
+##### 469#       发表于 2024-11-3 16:21
+
+终于听到唐可可说上海话了
+
+<img src="https://img.saraba1st.com/forum/202411/03/162115hiewe0eaj2quqwmq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (81.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-3 16:21 上传
+
+
+*****
+
+####  离心  
+##### 470#       发表于 2024-11-3 16:22
+
+上海话听不懂啦
+
+*****
+
+####  stygian  
+##### 471#       发表于 2024-11-3 16:22
+
+喷了，らん是谁啊
+
+*****
+
+####  ads147147  
+##### 472#       发表于 2024-11-3 16:24
+
+真听不懂中国歌了，不过有岚珠那个solo味道了。（好像真是河村打工了？）
+
+萌萌姐的rann是哪位。。。
+
+*****
+
+####  新HGCG  
+##### 473#       发表于 2024-11-3 16:25
+
+普通话台词就算开电视的字母功能也只现实“中国語”而上海话台词有内嵌字幕
+
+<img src="https://img.saraba1st.com/forum/202411/03/162446kyo2o4hyasvoojao.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (48.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-3 16:24 上传
+
+*****
+
+####  cat1230  
+##### 474#       发表于 2024-11-3 16:26
+
+哭了，终于让我找回1期前三集的感觉了
+
+啥也不说了，等熟肉再看一遍。
+
+*****
+
+####  llllife  
+##### 475#       发表于 2024-11-3 16:26
+
+因为上海话是真的听不懂啦
+
+*****
+
+####  EBe  
+##### 476#       发表于 2024-11-3 16:27
+
+浙江人大致能听懂可可在埋怨姐姐搞太复杂了<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR MAG-AN00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  oi99o  
+##### 477#       发表于 2024-11-3 16:28
+
+姐姐声优谁啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

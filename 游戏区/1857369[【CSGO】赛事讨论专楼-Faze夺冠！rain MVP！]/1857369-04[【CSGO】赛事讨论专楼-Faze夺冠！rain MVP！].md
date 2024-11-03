@@ -180,3 +180,13 @@ s1有没有cs的群啊<img src="https://static.saraba1st.com/image/smiley/face20
 
 绿龙直接被路边了
 
+
+*****
+
+####  doublehit  
+##### 4511#       发表于 2024-11-3 20:51
+
+下半年看下来就navi＞g2＞小蜜蜂了，其他队都沾点路边的意思
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

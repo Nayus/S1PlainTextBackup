@@ -5031,3 +5031,11 @@ p3r先宣布200w的可能性大一些
 
 —— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  卡拉德利姆  
+##### 3408#       发表于 2024-11-3 12:35
+
+不难 随便打
+

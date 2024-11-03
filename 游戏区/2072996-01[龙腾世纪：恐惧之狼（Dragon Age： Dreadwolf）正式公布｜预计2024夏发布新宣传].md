@@ -4172,3 +4172,29 @@ DG的故事其实很一般，DAO就是很老套的套路，但是胜在人物塑
 
 没D加密，跑起来非常流畅，画面按2024的标准其实一般，但美术很优秀
 
+
+*****
+
+####  lega-II  
+##### 1035#       发表于 2024-11-3 11:52
+
+ 本帖最后由 lega-II 于 2024-11-3 11:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66604955&amp;ptid=2072996" target="_blank">PROCAINUM 发表于 2024-11-2 23:34</a>
+
+DG的故事其实很一般，DAO就是很老套的套路，但是胜在人物塑造好，代入感也强。他写的角色都不错，除了阿 ...</blockquote>
+Anomen算啥黑历史啊。一个原生家庭有缺陷的纨绔子弟从一开始的幼稚到崩溃再到重建生活的理由，这个角色写的很好啊。 是BG2里少数随着剧情有成长，性格显著变化的角色。如果说他一开始性格不讨喜，但是试炼失败之后， 抛弃了当傻x骑士的梦想，就会发现他之后明显正常成熟了不少，可爱多了。我觉得是bioware的男角色里数一数二塑造好的角色，虽然比不上Alistair《=这位也是DG写的。
+
+*****
+
+####  lega-II  
+##### 1036#       发表于 2024-11-3 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66605340&amp;ptid=2072996" target="_blank">jf8350143 发表于 2024-11-3 00:41</a>
+
+画面很好，战斗也很好
+
+地图设计也很好，甚至还做了deep road我是没想到的，本来以为不会下地或者下去只会 ...</blockquote>
+对，感觉就是队友收集齐了之后明显对话就正常了不少。
+
+感觉前十个小时某些傻x对话是逼着写手写的， 面向新玩家的指导方针的产物。
+

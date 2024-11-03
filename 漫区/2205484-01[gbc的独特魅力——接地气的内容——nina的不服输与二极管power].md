@@ -1501,3 +1501,11 @@ mmk从专楼看的话感觉人气一般？说实话前几集对她印象还挺�
 
 人设方面要说漂亮，我觉得她跟486是同级别的，而且很飒。
 
+
+*****
+
+####  Thetempest  
+##### 90#       发表于 2024-11-3 19:37
+
+过了半年多了，居然还有这么多人追着喷Nina说明塑造的挺成功了，从第一集喷到现在<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">  
+

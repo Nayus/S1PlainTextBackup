@@ -5200,3 +5200,29 @@ lala，再和你游星河
 
 我可堇呢<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  we89623  
+##### 504#       发表于 2024-11-3 19:38
+
+这就是NHK少儿教育频道的含金量吗?
+
+为什么这么色气。
+
+<img src="https://p.sda1.dev/20/b8c21607801774aa36ea5a50ae99c25c/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  qratosones1337  
+##### 505#       发表于 2024-11-3 19:39
+
+刚想起来第一季可可跟姐姐打电话的时候说的还是普通话，纯为了让堇能翻译出来吗2333
+
+*****
+
+####  夏亚之徒  
+##### 506#       发表于 2024-11-3 19:41
+
+第三季开播后，不止一次看到有人说和花田和解了
+

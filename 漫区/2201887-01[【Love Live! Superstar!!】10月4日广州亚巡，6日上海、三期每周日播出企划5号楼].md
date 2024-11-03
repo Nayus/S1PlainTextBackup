@@ -5399,3 +5399,15 @@ vn还挺可爱的<img src="https://static.saraba1st.com/image/smiley/face2017/07
 
 但那个泳池是哪里的
 
+
+*****
+
+####  starring  
+##### 523#       发表于 2024-11-4 00:04
+
+【【小林幸子XPayton尚未】与风一起（風といっしょに）超梦的逆袭片尾曲】 [https://www.bilibili.com/video/B ... ac28d8cf8e031afff27](https://www.bilibili.com/video/BV1D1S1YCESm/?share_source=copy_web&amp;vd_source=2cc77ebe129bdac28d8cf8e031afff27)
+
+【【Payton尚未X宮田俊哉】革命デュアリズム（革命的二元论）革命机valvrave OP2】 [https://www.bilibili.com/video/B ... ac28d8cf8e031afff27](https://www.bilibili.com/video/BV126SUYCEFn/?share_source=copy_web&amp;vd_source=2cc77ebe129bdac28d8cf8e031afff27)
+
+自制了字幕，Pay这两天参加niconico超集结祭和前辈合唱的歌，革命机OP2唱得好劲<img src="https://static.saraba1st.com/image/smiley/face2017/173.png" referrerpolicy="no-referrer">
+

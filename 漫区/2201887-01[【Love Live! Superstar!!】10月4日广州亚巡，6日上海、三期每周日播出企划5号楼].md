@@ -5249,3 +5249,38 @@ lala，再和你游星河
 
 <img src="https://p.sda1.dev/20/8b569a321b42ad3763be4568ed130509/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新HGCG  
+##### 510#       发表于 2024-11-3 20:26
+
+结果剧组里上海话最好的是鲤鱼吗！ ​​​
+
+<img src="https://img.saraba1st.com/forum/202411/03/202627xlko7o7ugrqyqqkz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (131.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-3 20:26 上传
+
+
+*****
+
+####  仟音一心  
+##### 511#       发表于 2024-11-3 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66610735&amp;ptid=2201887" target="_blank">新HGCG 发表于 2024-11-3 20:26</a>
+结果剧组里上海话最好的是鲤鱼吗！ ​​​</blockquote>
+本地人啊，姐姐也是本地人。
+
+*****
+
+####  iuhehc  
+##### 512#       发表于 2024-11-3 20:33
+
+回来了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

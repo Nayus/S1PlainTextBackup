@@ -378,3 +378,18 @@ on机器人往泉水里的那一勾，把Faker勾醒了<img src="https://static.
 
 —— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  汪达  
+##### 42#       发表于 2024-11-3 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66609907&amp;ptid=2205528" target="_blank">Troywest 发表于 2024-11-3 18:11</a>
+
+为什么这么执着于全华班？这年头国家队都可以规划海外球员，俱乐部形式的队伍为啥要搞血统论？
+
+—— 来自  ...</blockquote>
+以前IG FPX EDG实力强能够夺冠的时候扯什么不是全华班夺冠我不支持，倒确实是某些粉丝在争风吃醋打压韩援队伍的
+
+现在全华班是LPL最高战力，随着LPL被T1连续干碎注定人气疯狂下滑，缺乏投资的情况下也不会有顶级韩援过来捞钱了，最土豪的JDG都和ruler解约了，所以现在不支持全华班也没得支持了，像什么LNG WBG遇到T1更是路边
+

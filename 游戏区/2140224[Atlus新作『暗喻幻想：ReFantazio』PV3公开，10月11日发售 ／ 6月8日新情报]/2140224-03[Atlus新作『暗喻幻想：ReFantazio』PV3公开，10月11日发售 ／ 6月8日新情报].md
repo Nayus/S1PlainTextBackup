@@ -4998,3 +4998,36 @@ p3r先宣布200w的可能性大一些
  打到进恐王星了，还有9天，不得不说路易这人真墨迹 现在进恐王星应该就是大结局了吧，打完出来还有时间去竞 ...</blockquote>
 恐亡星9天后才能去现在去不了。所以只能去jjc和龙宫。然后就是彻底没事做<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  牙狼GARO  
+##### 3405#       发表于 2024-11-3 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66607610&amp;ptid=2140224" target="_blank">猫沢 发表于 2024-11-3 11:30</a>
+恐亡星9天后才能去现在去不了。所以只能去jjc和龙宫。然后就是彻底没事做 ...</blockquote>
+去完恐王星还能去龙宫吗？
+
+—— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  猫沢  
+##### 3406#       发表于 2024-11-3 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66607686&amp;ptid=2140224" target="_blank">牙狼GARO 发表于 2024-11-3 11:40</a>
+ 去完恐王星还能去龙宫吗？  —— 来自 OnePlus LE2100, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+去不了，恐王星游戏结束。刷级建议打恐王星的大齿人，一只4w6经验糖果。
+
+*****
+
+####  牙狼GARO  
+##### 3407#       发表于 2024-11-3 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66607706&amp;ptid=2140224" target="_blank">猫沢 发表于 2024-11-3 11:42</a>
+去不了，恐王星游戏结束。刷级建议打恐王星的大齿人，一只4w6经验糖果。 ...</blockquote>
+那还是得先去龙宫干掉xxxxx，难么，能不能上弱点虚幻蓄力好兄弟一刀
+
+—— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

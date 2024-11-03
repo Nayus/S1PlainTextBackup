@@ -393,3 +393,16 @@ on机器人往泉水里的那一勾，把Faker勾醒了<img src="https://static.
 
 现在全华班是LPL最高战力，随着LPL被T1连续干碎注定人气疯狂下滑，缺乏投资的情况下也不会有顶级韩援过来捞钱了，最土豪的JDG都和ruler解约了，所以现在不支持全华班也没得支持了，像什么LNG WBG遇到T1更是路边
 
+
+*****
+
+####  GFF  
+##### 43#       发表于 2024-11-3 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66609907&amp;ptid=2205528" target="_blank">Troywest 发表于 2024-11-3 18:11</a>
+
+为什么这么执着于全华班？这年头国家队都可以规划海外球员，俱乐部形式的队伍为啥要搞血统论？
+
+—— 来自  ...</blockquote>
+因为LPL夺冠的外援全是韩国人而且是大腿（大都是中单上单） 而LCK夺冠都是全韩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -5411,3 +5411,11 @@ vn还挺可爱的<img src="https://static.saraba1st.com/image/smiley/face2017/07
 
 自制了字幕，Pay这两天参加niconico超集结祭和前辈合唱的歌，革命机OP2唱得好劲<img src="https://static.saraba1st.com/image/smiley/face2017/173.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  离心  
+##### 524#       发表于 2024-11-4 00:10
+
+根据下集标题和这集开头熟肉，感觉可可当满三年校园偶像真的会回国上大学了。有人要异国恋了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

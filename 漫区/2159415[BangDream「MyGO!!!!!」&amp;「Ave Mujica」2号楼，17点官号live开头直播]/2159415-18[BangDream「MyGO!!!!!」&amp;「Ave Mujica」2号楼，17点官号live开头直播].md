@@ -7736,3 +7736,14 @@ PV：米库米库米 （@米库米库米 ）
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  玖羽  
+##### 25800#       发表于 2024-11-3 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66610164&amp;ptid=2159415" target="_blank">novalli 发表于 2024-11-3 18:57</a>
+
+这么说的话，睦是怎么加入的？祥子一邀请就加入了？还是默认就是乐队成员或者一直有在一起合奏？睦的视角还 ...</blockquote>
+应该是一直都在一起，顺便就邀请了，祥子找灯去咖啡馆开会的时候说的是“前几天的月之森音乐祭”，就是说整个组建过程没几天，分析谁先谁后没太大意义
+

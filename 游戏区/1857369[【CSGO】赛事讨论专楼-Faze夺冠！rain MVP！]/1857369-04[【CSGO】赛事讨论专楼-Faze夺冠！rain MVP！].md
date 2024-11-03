@@ -172,3 +172,11 @@ s1有没有cs的群啊<img src="https://static.saraba1st.com/image/smiley/face20
 
 绿龙被3：0带走了
 
+
+*****
+
+####  银色天空  
+##### 4510#       发表于 2024-11-3 20:12
+
+绿龙直接被路边了
+

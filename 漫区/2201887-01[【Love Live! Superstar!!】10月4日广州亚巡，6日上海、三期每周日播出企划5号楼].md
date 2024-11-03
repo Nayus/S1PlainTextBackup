@@ -5340,3 +5340,42 @@ lala，再和你游星河
 
 可惜姐姐的CV完全不给CV梗厨一点乐子，配音的口气也怪怪的对不上表情
 
+
+*****
+
+####  adw667  
+##### 519#       发表于 2024-11-3 22:22
+
+<img src="https://img.saraba1st.com/forum/202411/03/221559sm4m51j8nky1x2dn.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20241103221423.png</strong> (14.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-3 22:15 上传
+
+<img src="https://img.saraba1st.com/forum/202411/03/221559j8i3nl6hmmk9imm6.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20241103221415.png</strong> (105.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-3 22:15 上传
+
+<img src="https://img.saraba1st.com/forum/202411/03/221559mrcoolni40abwr0r.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221003194401.png</strong> (18.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-3 22:15 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">我的脑子已经扭成旋涡了
+
+*****
+
+####  Vacuolar  
+##### 520#       发表于 2024-11-3 22:25
+
+这集好就享受，别想着以后
+

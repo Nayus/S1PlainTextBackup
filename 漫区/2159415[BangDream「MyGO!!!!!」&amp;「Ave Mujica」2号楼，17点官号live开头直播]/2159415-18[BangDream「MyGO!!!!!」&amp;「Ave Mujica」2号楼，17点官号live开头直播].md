@@ -7658,3 +7658,60 @@ PV：米库米库米 （@米库米库米 ）
 
 是明示了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">那么什么时候把mujica和蝶的乱炖和对邦端上来
 
+
+*****
+
+####  御幸一也  
+##### 25793#       发表于 2024-11-3 16:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 1/13的新春發表會，ave居然只叫了3個人去，我還以為5人都會去表演呢
+
+[https://bushiroad.com/2025newyear_launch_event](https://bushiroad.com/2025newyear_launch_event)
+
+<img src="https://img.saraba1st.com/forum/202411/03/164704ldw1z77f7yzs434e.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (652.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-3 16:47 上传
+
+*****
+
+####  rikaren  
+##### 25794#       发表于 2024-11-3 16:48
+
+从时间顺序上讲，应该就是音乐祭m团演出→有组乐队想法→看上soyo→遇到灯→和立希见面？不确定具体什么时间通过真希邀请立希，但是见面的顺序应该就是这个了。
+
+*****
+
+####  御幸一也  
+##### 25795#       发表于 2024-11-3 16:52
+
+バンドリ！プロジェクト10周年記念に関する続報を発表！
+
+2025年1月放送開始のTVアニメ「BanG Dream! Ave Mujica」最新情報のほか、様々なニュースをお届け！
+
+さらに、夢(バーチャル)と現実(リアル)を飛び越える運命共同体(バンド)「夢限大みゅーたいぷ」のリアルライブを開催！
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">又看了下好像也沒說ave會表演，所以就是只叫了她們3個上去發表情報嗎……居然會沒有高尾（
+
+*****
+
+####  NODY  
+##### 25796#       发表于 2024-11-3 17:03
+
+之前就说过了只有管人团有live，因为新春发表会那个场子很小而且是多个作品轮流上，没时间摆整套乐器，要么去年狗那样不插电，要么管人团上去跳舞，mujica要上全套设备的肯定不行
+
+高尾大概是和什么其他的活动日程撞了吧
+
+*****
+
+####  狂热飞鸟  
+##### 25797#       发表于 2024-11-3 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66609452&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-11-3 16:48</a>
+
+从时间顺序上讲，应该就是音乐祭m团演出→有组乐队想法→看上soyo→遇到灯→和立希见面？不确定具体什么时 ...</blockquote>
+灯和素世的顺序是怎么确定的?
+

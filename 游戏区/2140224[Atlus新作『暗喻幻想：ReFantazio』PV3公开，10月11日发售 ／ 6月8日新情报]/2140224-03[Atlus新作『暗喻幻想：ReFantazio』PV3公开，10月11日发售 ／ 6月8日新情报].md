@@ -5039,3 +5039,17 @@ p3r先宣布200w的可能性大一些
 
 不难 随便打
 
+
+*****
+
+####  牙狼GARO  
+##### 3409#       发表于 2024-11-3 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66608050&amp;ptid=2140224" target="_blank">卡拉德利姆 发表于 2024-11-3 12:35</a>
+不难 随便打</blockquote>
+打完了，确实菜
+管你变幻什么职业什么机制，通通上弱点让好兄弟来一刀
+开场对话还真有跟好兄弟说靠你了，真的笑死
+
+—— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

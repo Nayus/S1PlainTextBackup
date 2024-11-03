@@ -1367,3 +1367,51 @@ GBC至少在调动情绪还是没得说的，NINA在较劲上倒是真挺孩子�
 就是好👍就是喜欢👍仁菜宝贝亲亲亲😘在我心里留下爪痕咯～
 就是烂🤢剧情烂🤢绿毛路人恶心心🤢百合欺骗气气气。
 
+
+*****
+
+####  aptx8285144  
+##### 81#       发表于 2024-11-3 16:39
+
+ 本帖最后由 aptx8285144 于 2024-11-3 16:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66608272&amp;ptid=2205484" target="_blank">子夜微雪 发表于 2024-11-3 13:14</a>
+
+哦，那么你的意思是，只要剧情发展逻辑自洽，它就一定是好作品，哪怕人物不咋讨喜问题解决一地鸡毛一样照 ...</blockquote>
+喂喂，兽娘2这种集人间恶意于一身，<strong>冲着算计骆鹿监督而去</strong>，别说gbc这种优秀作品了，连蝈蝈，蒜，智商机等争议大作都不配和它“相提并论”好吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 82#       发表于 2024-11-3 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66608875&amp;ptid=2205484" target="_blank">Huiiii 发表于 2024-11-3 15:15</a>
+
+讨论氛围简直像乐队番中的莉可丽丝转世灵童。
+
+一样的制作优秀商业成绩斐然路人口碑高开低走，
+
+完结以后讨论 ...</blockquote>
+啥，gbc的受众至少还可以和你讨论剧情，喜欢或讨厌仁菜的性格，蒜，你确定那玩意有“剧情”？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 83#       发表于 2024-11-3 16:49
+
+ 本帖最后由 aptx8285144 于 2024-11-3 16:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66608544&amp;ptid=2205484" target="_blank">Ashice 发表于 2024-11-3 14:08</a>
+
+突然又想到一个暴论
+
+一部通俗作品，如果需要粉丝长篇大论去说服别人为什么它“好”
+
+那只能说明它好失败</blockquote>
+RE0和无职纷纷表示你说得对，我们那时候引发的争议又不是没有，当年re0一期时候甚至是撕逼蔓延整个论坛，泥潭为此开了至少两个专楼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，无职更不用说了，从蕾某人到泥潭围绕主角前世事情争吵也是源源不断，结果年度好评分进了泥潭前五
+
+*****
+
+####  aptx8285144  
+##### 84#       发表于 2024-11-3 17:04
+
+其实我有个很大的疑惑，<strong>仁菜的性格在剧情番里真得算不讨喜的吗</strong>，萝卜片和sf片里就有一大堆仁兄或小姐姐们表示把主张嘴炮说服或强制给其他队友们（当然像安那样能经常治她服服帖帖）并正面坚持自己没有错，这tam真得算个事？？<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+

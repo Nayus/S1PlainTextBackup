@@ -4984,3 +4984,103 @@ https://web4.lovelivegundam.top/#/LoveLive
 
 kk北京人，动画里那几句不太像现学的
 
+
+*****
+
+####  ads147147  
+##### 481#       发表于 2024-11-3 16:32
+
+真要说惊爆也没有，可香复活属于早干嘛去了，旅游的部分挺水的，可能是角色太多反而切的比较碎。
+
+小千果然很喜欢东方明珠。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  starring  
+##### 482#       发表于 2024-11-3 16:32
+
+ 本帖最后由 starring 于 2024-11-3 16:34 编辑 
+
+姐姐的CV是放映新社的人
+[https://space.bilibili.com/1334424?spm_id_from=333.337.0.0](https://space.bilibili.com/1334424?spm_id_from=333.337.0.0)
+<img src="https://p.sda1.dev/20/ca1f0306e24b08a094a358ec559c6bfe/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  cat1230  
+##### 483#       发表于 2024-11-3 16:34
+
+原来是新人啊，b站看着也不怎么营业，这波应该能吸粉不少的。
+
+*****
+
+####  llllife  
+##### 484#       发表于 2024-11-3 16:35
+
+感觉也没啥，就是上海旅游宣传片，根本什么也没讲，看下一集的live什么实力了
+
+*****
+
+####  仟音一心  
+##### 485#       发表于 2024-11-3 16:36
+
+<img src="https://p.sda1.dev/20/9fb92395d9347a50a5061bde17f19d6f/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  水莲寺流歌  
+##### 486#       发表于 2024-11-3 16:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唐家到底在拉拉世界观里是什么实力，沪爷冲击有点太暴力了
+
+*****
+
+####  stygian  
+##### 487#       发表于 2024-11-3 16:40
+
+沪爷必须&gt;港仔
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 488#       发表于 2024-11-3 16:43
+
+<img src="https://p.sda1.dev/20/7d321fc65724ddbdd0a911dd6050ca74/image.jpg" referrerpolicy="no-referrer">
+那个男人
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  ViyViy  
+##### 489#       发表于 2024-11-3 16:43
+
+10张往返机票好像还是拼不了直接改造食堂供应链<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  懂你意思  
+##### 490#       发表于 2024-11-3 16:44
+
+还是看下集吧
+
+*****
+
+####  後藤正文  
+##### 491#       发表于 2024-11-3 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66609385&amp;ptid=2201887" target="_blank">仟音一心 发表于 2024-11-3 16:36</a></blockquote>
+一个比一个高，给岛民来点中华冲击
+
+*****
+
+####  仟音一心  
+##### 492#       发表于 2024-11-3 17:05
+
+https://weibo.com/u/1738008193
+<img src="https://p.sda1.dev/20/d0aa5dd8e56fdad559d62806ac1038ca/image.jpg" referrerpolicy="no-referrer">
+

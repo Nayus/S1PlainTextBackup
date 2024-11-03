@@ -7603,3 +7603,16 @@ PV：米库米库米 （@米库米库米 ）
 
 简介里有pdf版本下载链接
 
+
+*****
+
+####  Milarvoz  
+##### 25788#       发表于 2024-11-3 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66605241&amp;ptid=2159415" target="_blank">太二EricGuo 发表于 2024-11-3 00:17</a>
+是不是有一个博客还是专栏全过程的讲如何去日本当邦邦现地✌🏻的，以前还看过其中的现地神人榜板块的，现在 ...</blockquote>
+是个飞书的文档：从零开始的现地live攻略: https://arisa114514.feishu.cn/wiki/QCNOwAGPxiAE1Ak39BIcRlGbnjh?fromScene=spaceOverview
+为方便的话还有个对应的公众号会推送live信息：BDR现地攻略组。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

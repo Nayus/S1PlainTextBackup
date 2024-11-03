@@ -4815,3 +4815,31 @@ https://web4.lovelivegundam.top/#/LoveLive
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  ViyViy  
+##### 463#       发表于 2024-11-3 16:02
+
+ 本帖最后由 ViyViy 于 2024-11-3 16:05 编辑 
+
+果然是暑假，而且这就开始埋毕业了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">woc 北大，书香门第
+
+*****
+
+####  离心  
+##### 464#       发表于 2024-11-3 16:02
+
+ 本帖最后由 离心 于 2024-11-3 16:05 编辑 
+
+猜对了果然是关于毕业出路的，结果是在可可回讲嘛?也正常毕竟是三年级唯一的外国人，还是可能会回去的，艹北京的大学还行
+
+*****
+
+####  新HGCG  
+##### 465#       发表于 2024-11-3 16:05
+
+上海人
+
+考北京的大学？
+

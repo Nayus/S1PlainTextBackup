@@ -164,3 +164,11 @@ s1有没有cs的群啊<img src="https://static.saraba1st.com/image/smiley/face20
 
 零蛋<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  heseran  
+##### 4509#       发表于 2024-11-3 20:04
+
+绿龙被3：0带走了
+

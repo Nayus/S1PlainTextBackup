@@ -930,3 +930,15 @@ GBC确实可以说得上是抓住了时代的脉搏吧。传统的叛逆系角�
 
 再次，我不需要脚本施舍一个问题解决的结局来催眠自己，因为所谓结局只是在我结合故事过程中的信息可以推算的东西。很多时候故事过程的信息往后推演会发现根本没有固定的结局，这种时候不就是脚本动一动笔结局就不同的情况么。
 
+
+*****
+
+####  子夜微雪  
+##### 55#       发表于 2024-11-3 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66606970&amp;ptid=2205484" target="_blank">strayark 发表于 2024-11-3 09:56</a>
+如果把解决问题的标准降低，那么nina把另外4个人整合在一起组成乐队，并造就了很好的乐队氛围也是一种问题 ...</blockquote>
+你是不是干脆没看回复，准备了一套定型文啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你瞅我有一个字说过问题没解决吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -7616,3 +7616,21 @@ PV：米库米库米 （@米库米库米 ）
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  御幸一也  
+##### 25789#       发表于 2024-11-3 11:08
+
+河口湖的廣播公開了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+[https://www.youtube.com/watch?v=xdiD1lpQ014](https://www.youtube.com/watch?v=xdiD1lpQ014)
+
+<img src="https://img.saraba1st.com/forum/202411/03/110834jkifo6j5vb5abmud.png" referrerpolicy="no-referrer">
+
+<strong>【期間限定公開】バンドリ！河口湖ステラシアター3DAYSアクセスバスツアー オリジ.png</strong> (2.25 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-3 11:08 上传
+

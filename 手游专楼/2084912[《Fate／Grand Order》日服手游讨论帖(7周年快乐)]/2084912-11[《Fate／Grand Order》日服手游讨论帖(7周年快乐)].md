@@ -1712,3 +1712,41 @@ https://www.bilibili.com/video/BV1KuyWYcEng/
 
 奏二岩窟王这花里胡哨的怎么打？
 
+
+*****
+
+####  eilot  
+##### 15082#       发表于 2024-11-1 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66596338&amp;ptid=2084912" target="_blank">RiesbyfeAtlasia 发表于 2024-11-1 17:12</a>
+
+后天会给妖兰强化吗</blockquote>
+妖蘭如何強化?
+
+不過只是將技3變成選擇變身，就已經足夠了
+
+*****
+
+####  格林卡罗尔  
+##### 15083#       发表于 2024-11-2 01:08
+
+妖兰没那么强弓本还能多点，要不劝叶良树削弱吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  poor  
+##### 15084#       发表于 2024-11-3 02:06
+
+ 本帖最后由 poor 于 2024-11-3 06:50 编辑 
+
+奏二岩窟王这花里胡哨的怎么打？过了
+
+*****
+
+####  保罗嚇伯特  
+##### 15085#       发表于 2024-11-3 22:28
+
+趁着活动加倍把摩根喂到了110，补宝成功就升120<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

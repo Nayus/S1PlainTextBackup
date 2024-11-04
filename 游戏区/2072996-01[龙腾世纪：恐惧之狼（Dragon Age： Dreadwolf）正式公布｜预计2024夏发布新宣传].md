@@ -4423,3 +4423,18 @@ Anomen算啥黑历史啊。一个原生家庭有缺陷的纨绔子弟从一开�
 
 玩了9小时感觉这就是生软一直所追求的arpg的最终形态，倒退13年龙腾2是这个完成度也不至于骂声一片，可惜现在生不逢时
 
+
+*****
+
+####  llysander  
+##### 1059#       发表于 2024-11-4 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66614487&amp;ptid=2072996" target="_blank">xzzfft 发表于 2024-11-4 11:33</a>
+
+玩了9小时感觉这就是生软一直所追求的arpg的最终形态，倒退13年龙腾2是这个完成度也不至于骂声一片，可惜现 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 那世上就少了个小队rts rpg从前排得上号的佳作了，
+
+da2在我心目中至少有锤战争黎明1同等的非潜行小队rts，十多年后玩着还不落伍
+
+罢了生软志不在此，只能觉得可惜，arpg茫茫多又能比得过谁
+

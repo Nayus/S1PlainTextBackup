@@ -828,3 +828,25 @@ rank分类加了新的野男人老八，现在是2人，根据公开数据，你
 
 一位国人天狗（不确定是不是楼友）在讨论前男友录音话题时又被点草了
 
+
+*****
+
+####  Sanco  
+##### 17594#       发表于 2024-11-4 14:37
+
+被点草的那个人其实也没说啥，以前联动的时候也被人说过，麻姨妈的时候估计是随便被说点啥就会爆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TiHaru  
+##### 17595#       发表于 2024-11-4 17:37
+
+真巧啊
+
+*****
+
+####  秋游刃  
+##### 17596#       发表于 2024-11-4 18:22
+
+最好交个玩LOL的男友，有共同话题<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+

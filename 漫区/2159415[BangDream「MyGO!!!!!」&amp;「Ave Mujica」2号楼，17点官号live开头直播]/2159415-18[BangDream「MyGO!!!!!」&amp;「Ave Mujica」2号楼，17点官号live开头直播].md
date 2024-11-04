@@ -7872,3 +7872,14 @@ PV：米库米库米 （@米库米库米 ）
 
 国内这种二创环境放了一年多，明年怕不是一堆人骂独角兽懂个屁鸡狗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 25812#       发表于 2024-11-4 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66614700&amp;ptid=2159415" target="_blank">kirir192 发表于 2024-11-4 11:57</a>
+
+朋友最近看go就聊了一下，才知道这都一年多了那些人还在把那铁暗恋和天之弱二创入脑当真，不敢相信这都2024 ...</blockquote>
+活在自己的世界裡是這樣的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

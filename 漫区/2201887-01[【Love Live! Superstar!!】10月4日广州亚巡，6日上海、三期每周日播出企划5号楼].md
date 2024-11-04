@@ -5948,3 +5948,30 @@ PTSD
 
 — from HONOR MAA-AN10, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  ads147147  
+##### 573#       发表于 2024-11-5 06:58
+
+就算出问题也不可能是第六集有问题，怎么着也是要开生放送。
+
+最多是第七集的预告有活。。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  ads147147  
+##### 574#       发表于 2024-11-5 06:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66619871&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-11-4 23:28</a>
+还是猜猜明天晚上niconico评分叭
+
+1的比率能不能过73%，1+2能不能85%
+
+感觉5的比率应该比前面都要高，估计7% ...</blockquote>
+虽然大环境是这样，但是这集是纯旅游回也不至于吧，上次夏美旅游回还夹带着版权问题才蹦的。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

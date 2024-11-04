@@ -5522,3 +5522,21 @@ vn还挺可爱的<img src="https://static.saraba1st.com/image/smiley/face2017/07
 按你拉东京出线都可以去考不上就二战的维也纳入学，去清北可不是轻轻松松。
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  stygian  
+##### 533#       发表于 2024-11-4 11:39
+
+可那个成绩用外籍身份上大学不就是随便上
+
+*****
+
+####  武男  
+##### 534#       发表于 2024-11-4 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66609393&amp;ptid=2201887" target="_blank">水莲寺流歌 发表于 2024-11-3 16:38</a>
+
+唐家到底在拉拉世界观里是什么实力，沪爷冲击有点太暴力了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看这个财力大概也能背负隔壁乐队某成员的一生？
+

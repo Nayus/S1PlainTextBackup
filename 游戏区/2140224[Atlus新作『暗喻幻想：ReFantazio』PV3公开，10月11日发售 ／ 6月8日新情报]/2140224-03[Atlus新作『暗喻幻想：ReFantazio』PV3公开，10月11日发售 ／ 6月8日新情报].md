@@ -5120,3 +5120,31 @@ p3r先宣布200w的可能性大一些
 打到最终章发现料理还缺一个女王蜂蜜瓶，但是飞行铁战车没法钓鱼，岛上两个也都买过了，还能补救么 ...</blockquote>
 可以钓鱼，目的地选到龙宫左上角那个村子就行
 
+
+*****
+
+####  猫沢  
+##### 3417#       发表于 2024-11-4 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66614588&amp;ptid=2140224" target="_blank">yyman 发表于 2024-11-4 11:44</a>
+打到最终章发现料理还缺一个女王蜂蜜瓶，但是飞行铁战车没法钓鱼，岛上两个也都买过了，还能补救么 ...</blockquote>
+种英雄光叶/打扫甲板有几率出尾巴钓饵（可以SL）钓鱼选项看图
+
+<img src="https://img.saraba1st.com/forum/202411/04/120023bwm1mmqt0k2q22v7.png" referrerpolicy="no-referrer">
+
+<strong>img_2872.png</strong> (41.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-4 12:00 上传
+
+<img src="https://img.saraba1st.com/forum/202411/04/120027fyih6bp6eezfe6y5.png" referrerpolicy="no-referrer">
+
+<strong>img_2871.png</strong> (39.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-4 12:00 上传
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -698,3 +698,18 @@ Inti只有pc和ps适配出奇奇怪怪的小问题，特别是ps4移植5各种�
 
 总之挺怪的
 
+
+*****
+
+####  kthec  
+##### 126#       发表于 2024-11-4 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66614306&amp;ptid=2200160" target="_blank">EndlessDied 发表于 2024-11-4 11:16</a>
+
+顺带一提这评价也没个明确提示的基准分数线
+
+目前体感0~2是58000分，3~5是59000分，6~8是59500分，9是60000 ...</blockquote>
+辅助系统那真是缺的太多了，连根据卡牌费用检索都没有。
+
+我自困难5就放弃追求1回杀了，打死精英通关就算成功。
+

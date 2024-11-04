@@ -5619,3 +5619,20 @@ PTSD
 花田不会让香音强行跟夏美那次一样再收一次可可的人头吧，到最后还是要做实没有大香就没有liella这种设定
 这可可的家世让我想起来以前有个说法是花田直接把森凸套到可堇来写导致第二季可可有事没事就嘴小堇，刚好凸守也是家世显赫的设定
 
+
+*****
+
+####  ViyViy  
+##### 542#       发表于 2024-11-4 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66615823&amp;ptid=2201887" target="_blank">adw667 发表于 2024-11-4 14:32</a>
+
+PTSD
+
+花田不会让香音强行跟夏美那次一样再收一次可可的人头吧，到最后还是要做实没有大香就没有liella这种 ...</blockquote>
+应该不会，更何况可可又没说我要现在就退出liella，这两集的主旨大概率是既要又要（可香可堇车轮战文戏）
+
+还记得第二集的多少人看就能上代代木fes么，第六集估计也一样的套路，但是要求更高，这样还能最小化竞技性
+
+第二件事情，包是copy自己森凸的，一期恋的入队事件不就是简化版南极，自己抄自己都抄不明白<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

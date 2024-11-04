@@ -7893,3 +7893,13 @@ PV：米库米库米 （@米库米库米 ）
 朋友最近看go就聊了一下，才知道这都一年多了那些人还在把那铁暗恋和天之弱二创入脑当真，不敢相信这都2024 ...</blockquote>
 铁暗恋是知道的，天之弱是什么？b站等二创除了部分手书外我都不看的，是不是错过了什么？
 
+
+*****
+
+####  cherryjia12  
+##### 25814#       发表于 2024-11-4 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66615419&amp;ptid=2159415" target="_blank">vigada 发表于 2024-11-4 13:36</a>
+铁暗恋是知道的，天之弱是什么？b站等二创除了部分手书外我都不看的，是不是错过了什么？ ...</blockquote>
+[第十集播完那会出的素睦二创](https://b23.tv/bDXX0Wa)
+

@@ -5687,3 +5687,18 @@ PTSD
 
 <img src="https://img.saraba1st.com/forum/202411/04/164147xkanb5bzn0hbhbbr.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViyViy  
+##### 546#       发表于 2024-11-4 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66616915&amp;ptid=2201887" target="_blank">llopppp 发表于 2024-11-4 16:42</a>
+
+泳池是改的吧...
+
+虽然不是LL人，但是找酒店泳池这事我还是在行的...
+
+上海康莱德酒店，泳池彻底拉异形了，保 ...</blockquote>
+虽然贵的可能没多少人去巡礼，但规避一下总归是一种，经验教训<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">此事在上一季的同集有记载
+

@@ -7972,3 +7972,16 @@ PV：米库米库米 （@米库米库米 ）
 
 最喜欢看没脑子的人破防了嘻嘻<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  浅草若旦那  
+##### 25821#       发表于 2024-11-4 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66613626&amp;ptid=2159415" target="_blank">NaAgfykp 发表于 2024-11-4 10:02</a>
+
+竟然是帝大出身…好高贵
+
+—— 来自 vivo V2301A, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+看wiki没写是哪个大学的 可能是我听错了
+

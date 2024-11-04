@@ -4464,3 +4464,18 @@ da2在我心目中至少有锤战争黎明1同等的非潜行小队rts，十多�
 
 博得止步于和同性恋爱，费伦还是那个费伦，你看这龙腾都进步到哪了？为了政确不停的改世界观，改设定，最终变成了现在这不伦不类的样子。
 
+
+*****
+
+####  卡拉德利姆  
+##### 1062#       发表于 2024-11-4 17:08
+
+博得3没有教你怎么给被冒犯的binary道歉的桥段吧<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shinoverse  
+##### 1063#       发表于 2024-11-4 17:10
+
+lgbt可能不完全对应woke，但为了让一部分真人代入的丑陋肿胀lgbt肯定是woke<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+

@@ -2416,3 +2416,15 @@ https://gamerch.com/wizardry-daphne/
 氪了1200，80连放浪骑士0传说，就想要把三连攻击的剑，抽到最后最后井出来 ...</blockquote>
 兄弟你这也太惨了
 
+
+*****
+
+####  UdukiMisato  
+##### 269#       发表于 2024-11-4 17:12
+
+ 本帖最后由 UdukiMisato 于 2024-11-4 17:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66612998&amp;ptid=2156352" target="_blank">愿墨争皓月 发表于 2024-11-4 08:09</a>
+不是？这抽卡该不会也有bug吧？
+氪了1200，80连放浪骑士0传说，就想要把三连攻击的剑，抽到最后最后井出来 ...</blockquote>
+真氪啊 顺便井优先给剑
+

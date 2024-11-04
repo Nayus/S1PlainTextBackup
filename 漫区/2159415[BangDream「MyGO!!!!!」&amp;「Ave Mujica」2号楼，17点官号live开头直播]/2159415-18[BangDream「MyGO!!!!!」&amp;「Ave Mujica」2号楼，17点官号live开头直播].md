@@ -7903,3 +7903,15 @@ PV：米库米库米 （@米库米库米 ）
 铁暗恋是知道的，天之弱是什么？b站等二创除了部分手书外我都不看的，是不是错过了什么？ ...</blockquote>
 [第十集播完那会出的素睦二创](https://b23.tv/bDXX0Wa)
 
+
+*****
+
+####  NaAgfykp  
+##### 25815#       发表于 2024-11-4 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66615419&amp;ptid=2159415" target="_blank">vigada 发表于 2024-11-4 13:36</a>
+铁暗恋是知道的，天之弱是什么？b站等二创除了部分手书外我都不看的，是不是错过了什么？ ...</blockquote>
+一首V+曲，原曲我还挺喜欢的。
+
+—— 来自 vivo V2301A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

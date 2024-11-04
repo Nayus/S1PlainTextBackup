@@ -5481,3 +5481,13 @@ vn还挺可爱的<img src="https://static.saraba1st.com/image/smiley/face2017/07
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
 
+
+*****
+
+####  ads147147  
+##### 529#       发表于 2024-11-4 10:18
+
+星团小细节其实一直都在的。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

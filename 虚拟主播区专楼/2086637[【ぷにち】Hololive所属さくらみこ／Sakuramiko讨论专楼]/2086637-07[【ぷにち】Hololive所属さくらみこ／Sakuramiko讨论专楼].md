@@ -15093,3 +15093,28 @@ miko的过激玩法甚至声优本人都有反应
 
 <blockquote>みこもゲマズだったかもしれねぇ…</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 10122#         楼主| 发表于 2024-11-4 10:22
+
+<img src="https://img.saraba1st.com/forum/202411/04/094730zfsg6eeqbs5nfj0e.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (79.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-4 09:47 上传
+
+又出名到官方推特去了，每次你都能搞新闻
+
+*****
+
+####  holoan  
+##### 10123#         楼主| 发表于 2024-11-4 19:27
+
+这就完了？
+
+就为了这？
+

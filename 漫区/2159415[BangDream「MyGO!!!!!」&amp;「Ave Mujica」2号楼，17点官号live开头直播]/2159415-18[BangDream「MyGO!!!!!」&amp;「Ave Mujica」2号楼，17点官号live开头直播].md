@@ -8022,3 +8022,52 @@ mujica动画播出推迟的一整年：理直气壮“mujica本来就是附庸�
 看wiki没写是哪个大学的 可能是我听错了</blockquote>
 山形大学
 
+
+*****
+
+####  御幸一也  
+##### 25825#       发表于 2024-11-4 18:29
+
+感情真好 愛看 多發點<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202411/04/182839qsipa2fxgcixsej2.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20241104-102718_1853383513028120670_photo-0.jpg</strong> (186.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-4 18:28 上传
+
+<img src="https://img.saraba1st.com/forum/202411/04/182840luz2ppl63q63lxl6.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20241104-102718_1853383513028120670_photo-1.jpg</strong> (458.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-4 18:28 上传
+
+<img src="https://img.saraba1st.com/forum/202411/04/182842un6f360zhhofa2j0.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20241104-102718_1853383513028120670_photo-2.jpg</strong> (172.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-4 18:28 上传
+
+<img src="https://img.saraba1st.com/forum/202411/04/182844qc0pxpavkka2epcc.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20241104-102718_1853383513028120670_photo-3.jpg</strong> (178.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-4 18:28 上传
+
+[https://x.com/Kanon_Takao/status/1853383513028120670](https://x.com/Kanon_Takao/status/1853383513028120670)
+
+*****
+
+####  御幸一也  
+##### 25826#       发表于 2024-11-4 18:31
+
+感覺奏音拍的夢以是最好看的 誰贊成 誰反對<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

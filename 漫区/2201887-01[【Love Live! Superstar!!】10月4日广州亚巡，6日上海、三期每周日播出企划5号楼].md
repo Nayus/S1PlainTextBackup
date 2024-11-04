@@ -5917,3 +5917,15 @@ PTSD
 
 舅舅就是拿情报换你们这点情绪价值的呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViyViy  
+##### 570#       发表于 2024-11-4 23:28
+
+还是猜猜明天晚上niconico评分叭
+
+1的比率能不能过73%，1+2能不能85%<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+感觉5的比率应该比前面都要高，估计7%，原因嘛，都懂。
+

@@ -1509,3 +1509,16 @@ mmk从专楼看的话感觉人气一般？说实话前几集对她印象还挺�
 
 过了半年多了，居然还有这么多人追着喷Nina说明塑造的挺成功了，从第一集喷到现在<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">  
 
+
+*****
+
+####  tony701  
+##### 91#       发表于 2024-11-4 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66603747&amp;ptid=2205484" target="_blank">stmule 发表于 2024-11-2 04:56</a>
+
+new type是这样的，你们这些被重力束缚的灵魂理解包容一下
+
+—— 来自 samsung SM-S9110, Android 14上的  ...</blockquote>
+Nina维丹（不是 
+

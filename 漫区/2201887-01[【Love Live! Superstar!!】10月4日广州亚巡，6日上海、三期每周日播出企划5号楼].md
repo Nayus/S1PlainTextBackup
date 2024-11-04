@@ -5491,3 +5491,11 @@ vn还挺可爱的<img src="https://static.saraba1st.com/image/smiley/face2017/07
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  kata魂  
+##### 530#       发表于 2024-11-4 10:40
+
+下集香音离队回归liella,复刻九人上海行。接着开展vn剧情，对于两团的纠结，一集直接入伙顺理成章
+

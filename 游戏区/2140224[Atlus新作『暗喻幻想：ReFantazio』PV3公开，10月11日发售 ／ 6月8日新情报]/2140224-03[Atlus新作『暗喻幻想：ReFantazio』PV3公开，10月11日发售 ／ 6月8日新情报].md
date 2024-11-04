@@ -5079,3 +5079,16 @@ p3r先宣布200w的可能性大一些
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  mai6696  
+##### 3413#       发表于 2024-11-4 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66607706&amp;ptid=2140224" target="_blank">猫沢 发表于 2024-11-3 11:42</a>
+
+去不了，恐王星游戏结束。刷级建议打恐王星的大齿人，一只4w6经验糖果。 ...</blockquote>
+那个大牙齿不刷新吧？
+
+我看大金大银分别有一个饰品，但是打完没掉落。。。
+

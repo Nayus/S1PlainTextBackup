@@ -5656,3 +5656,34 @@ PTSD
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  llopppp  
+##### 545#       发表于 2024-11-4 16:42
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">泳池是改的吧...
+
+虽然不是LL人，但是找酒店泳池这事我还是在行的...
+
+上海康莱德酒店，泳池彻底拉异形了，保留的直线泳道给拉变形了。
+
+因为海外艺人一般都去大酒店，那范围好找多了，再抛出去一堆我去过的，这消费不起的康莱德就对劲了。
+
+<img src="https://img.saraba1st.com/forum/202411/04/163834z37hah723g3x7mqp.png" referrerpolicy="no-referrer">
+
+<strong>screenshot-sns-webpic-qc_xhscdn_com-2024_11_04-16_38_07.png</strong> (153.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-4 16:38 上传
+
+[NanakoRaws] Love Live! Superstar!! S3 - 05 (NHKE 1920x1080 x264 AAC).mkv_202411.jpg
+(235.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-4 16:41 上传
+
+<img src="https://img.saraba1st.com/forum/202411/04/164147xkanb5bzn0hbhbbr.jpg" referrerpolicy="no-referrer">
+

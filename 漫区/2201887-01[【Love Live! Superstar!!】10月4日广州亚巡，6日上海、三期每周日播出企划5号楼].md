@@ -5636,3 +5636,11 @@ PTSD
 
 第二件事情，包是copy自己森凸的，一期恋的入队事件不就是简化版南极，自己抄自己都抄不明白<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  llllife  
+##### 543#       发表于 2024-11-4 15:26
+
+希望这次能不忘初心，让可可把三年生拉入liella，复刻一下一期前三集，尤其还有小花是鲤鱼粉丝的逆输入，当然也只是想想，感觉拉三年生入团这么重要的内容还得大香老师来
+

@@ -7830,3 +7830,17 @@ PV：米库米库米 （@米库米库米 ）
 
 会叫的吧，按李子的说法去年她去学园祭的星象馆（？）玩过，而且高尾回复去年也一起去玩了呢，难道今年也一起去了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NaAgfykp  
+##### 25808#       发表于 2024-11-4 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66612785&amp;ptid=2159415" target="_blank">浅草若旦那 发表于 2024-11-4 03:41</a>
+昨天早稻田活动的repo:
+早大学园祭女性声优研究会搞的活动，一个最大的阶梯教室基本都坐满了
+大概是因为早 ...</blockquote>
+竟然是帝大出身…好高贵
+
+—— 来自 vivo V2301A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

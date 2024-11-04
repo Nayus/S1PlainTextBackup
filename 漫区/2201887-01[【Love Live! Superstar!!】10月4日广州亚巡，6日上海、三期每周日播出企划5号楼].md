@@ -5499,3 +5499,13 @@ vn还挺可爱的<img src="https://static.saraba1st.com/image/smiley/face2017/07
 
 下集香音离队回归liella,复刻九人上海行。接着开展vn剧情，对于两团的纠结，一集直接入伙顺理成章
 
+
+*****
+
+####  ruffian  
+##### 531#       发表于 2024-11-4 11:01
+
+也没说是北京哪个大学，但日本人对中国大学的了解估计也就清北了，可可还真在认真思考回国上大学甚至没考虑过落榜的可能性，这已经不是学霸了，这是学神了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

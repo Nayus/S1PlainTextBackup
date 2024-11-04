@@ -5929,3 +5929,22 @@ PTSD
 
 感觉5的比率应该比前面都要高，估计7%，原因嘛，都懂。
 
+
+*****
+
+####  巴麻耒  
+##### 571#       发表于 2024-11-5 00:57
+
+<img src="https://p.sda1.dev/20/19c7ed9cfe3298c4cfe94bd047ad7570/image.jpg" referrerpolicy="no-referrer">
+可堇太真了<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  太阳寺太守  
+##### 572#       发表于 2024-11-5 01:04
+
+这集还可以啊，这不是有实力么<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+— from HONOR MAA-AN10, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

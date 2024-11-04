@@ -2265,7 +2265,7 @@
     "lastedit": 1730725860,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1804478": {
     "totalreply": 1242,
@@ -8631,10 +8631,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 95811,
+    "totalreply": 95812,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1730748848,
+    "lastedit": 1730758088,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -17205,7 +17205,7 @@
     "lastedit": 1730692800,
     "category": "手游战斗",
     "active": true,
-    "update": true
+    "update": false
   },
   "2205558": {
     "totalreply": 56,
@@ -17406,10 +17406,10 @@
     "update": false
   },
   "2205669": {
-    "totalreply": 61,
+    "totalreply": 62,
     "title": "[按世界冰原崛起曙光情况，荒野还有次DEMO，优化能否改善可见真章]",
     "newtitle": "[按世界冰原崛起曙光情况，荒野还有次DEMO，优化能否改善可见真章]",
-    "lastedit": 1730748728,
+    "lastedit": 1730757968,
     "category": "游戏区",
     "active": true,
     "update": false

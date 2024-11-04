@@ -4450,3 +4450,17 @@ da2在我心目中至少有锤战争黎明1同等的非潜行小队rts，十多�
 
 当然最根本的的还是游戏本身素质也没有好到老头环博得3这种大家一致喝彩，要说woke要素博得3恐怕并不比这游戏少，但是又如何？
 
+
+*****
+
+####  震荡波  
+##### 1061#       发表于 2024-11-4 17:04
+
+ 本帖最后由 震荡波 于 2024-11-4 17:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66616958&amp;ptid=2072996" target="_blank">lega 发表于 2024-11-4 16:46</a>
+
+主要是这作拖得太久了。10年了，人都走光了，新来的lead designer怕是还不如粉丝了解DA的世界观。（记得之 ...</blockquote>
+好一个【woke要素博得3恐怕并不比这游戏少】。要不是我都玩过我都相信了。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+博得止步于和同性恋爱，费伦还是那个费伦，你看这龙腾都进步到哪了？为了政确不停的改世界观，改设定，最终变成了现在这不伦不类的样子。
+

@@ -5221,3 +5221,14 @@ p3r先宣布200w的可能性大一些
 已经在睡觉等打路易了，龙宫以后明显大缩水，不知道少了多少东西，明面上的魔法学院不谈，进了王城就嗯拖一个月着实没绷住，然后每次见到路易就是我在下个地方等你，这30天时间里至少删了一整个国家的量（类似那个巨婴村的体量）
 看皇家版怎么补吧，不过一个说歧视和种族不平等的游戏最后主角又是上古种族又是皇室血脉还是挺幽默的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  2015年入股市  
+##### 3425#       发表于 2024-11-5 04:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66620089&amp;ptid=2140224" target="_blank">xifeilu 发表于 2024-11-5 00:08</a>
+
+而且这个盲信之塔真的恶心，这个占卜3天就很幽默，出发到那边天气不好，露营几天天气还不好，逼着人在恶劣 ...</blockquote>
+盲信之塔的时候不是已经有改天气功能了？
+

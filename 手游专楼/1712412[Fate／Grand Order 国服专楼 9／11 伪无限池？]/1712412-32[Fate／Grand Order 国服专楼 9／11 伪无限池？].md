@@ -348,3 +348,13 @@ f0Q91yo-ifouZbT1kShs-13i.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">2单石头，结果就一五星尼托…..跑了，福袋见吧
 
+
+*****
+
+####  朝仓和美  
+##### 46789#       发表于 2024-11-4 09:43
+
+看很多攻略上说汇呆，想问下为什么水C呆会被叫汇呆。
+👆🏻然后打完上面那行字以后理解了，汉字真是博大精深。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

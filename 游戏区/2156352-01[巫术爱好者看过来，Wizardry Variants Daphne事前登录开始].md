@@ -2387,3 +2387,11 @@ https://gamerch.com/wizardry-daphne/
 不是？这抽卡该不会也有bug吧？
 氪了1200，80连放浪骑士0传说，就想要把三连攻击的剑，抽到最后最后井出来的公主，真1200买个皮肤啊？？？？哪怕来点其他的传说给我送点技能啊？
 
+
+*****
+
+####  startea15  
+##### 266#       发表于 2024-11-4 09:39
+
+今天主线推到了船舱二层但是上甲板前的路被npc挡住要求要三个许可证才能进场斗技场，有没**懂怎么做下去<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

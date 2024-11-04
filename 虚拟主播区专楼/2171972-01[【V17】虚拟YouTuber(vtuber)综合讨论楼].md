@@ -251,3 +251,17 @@ vspo街霸6职业4W+同接的新人播完订阅还没10W，V圈是真的饱和�
 vspo街霸6职业4W+同接的新人播完订阅还没10W，V圈是真的饱和了，街霸老哥也是真不给面子 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">最高有53000+，但下播之前没提请订阅，少了这一句差别会挺大的
 
+
+*****
+
+####  バーチャルS1er  
+##### 854#       发表于 2024-11-4 22:27
+
+ 本帖最后由 バーチャルS1er 于 2024-11-4 22:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66619432&amp;ptid=2171972" target="_blank">艾特娜 发表于 2024-11-4 22:19</a>
+
+最高有53000+，但下播之前没提请订阅，少了这一句差别会挺大的</blockquote>
+5W3那更有点了，感觉主要还是直播技术太新人了，直播一直在念紧张西得路，
+
+等看看之后有没有大热切片发酵了，不然只有靠联动了
+

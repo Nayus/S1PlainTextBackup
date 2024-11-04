@@ -5826,3 +5826,14 @@ PTSD
 
 那个舅舅一开始在鲤鱼群里说还不错，但是后来在贴吧发第六集剧透的时候又说自己是根据预告推测的，也只提了预告那几个画面，总之在下周日前还是对花田先质疑再质疑（
 
+
+*****
+
+####  ruffian  
+##### 560#       发表于 2024-11-4 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66619403&amp;ptid=2201887" target="_blank">we89623 发表于 2024-11-04 22:15:46</a>
+这是他今天最新的发言，鲤鱼之前说的是期待第五集... 那第六集...</blockquote>我觉得至少能保证及格，如果是烂穿天际的大活鱼不会是这个反应
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -5789,3 +5789,40 @@ PTSD
 
 想看星剧场版像少女歌剧一样交代一下众人毕业的情感加去向，不过毕竟ll没有那种虚实结合的演出，而且非毕业年级变动没有那么大不好讲，所以也只是想想，估计就是传统拉拉剧场版出国演出
 
+
+*****
+
+####  we89623  
+##### 556#       发表于 2024-11-4 22:09
+
+舅舅在NGA专楼里喊花田并发的那俩表情啥意思，感觉不像啥好事，是不是香槟要收一收了？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ruffian  
+##### 557#       发表于 2024-11-4 22:11
+
+舅舅不是说含可量巨高、还不错吗，那应该不会太崩，再说鲤鱼姐兜底了，我信她<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  we89623  
+##### 558#       发表于 2024-11-4 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66619372&amp;ptid=2201887" target="_blank">ruffian 发表于 2024-11-4 22:11</a>
+
+舅舅不是说含可量巨高、还不错吗，那应该不会太崩，再说鲤鱼姐兜底了，我信她
+
+  -- 来自 能搜索的 Stage1 ...</blockquote>
+这是他今天最新的发言，鲤鱼之前说的是期待第五集... 那第六集...<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CaptainPenguin  
+##### 559#       发表于 2024-11-4 22:18
+
+那个舅舅一开始在鲤鱼群里说还不错，但是后来在贴吧发第六集剧透的时候又说自己是根据预告推测的，也只提了预告那几个画面，总之在下周日前还是对花田先质疑再质疑（
+

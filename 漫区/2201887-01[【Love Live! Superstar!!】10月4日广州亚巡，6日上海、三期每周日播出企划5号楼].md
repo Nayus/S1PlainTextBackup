@@ -5446,3 +5446,27 @@ vn还挺可爱的<img src="https://static.saraba1st.com/image/smiley/face2017/07
 
 2024-11-4 00:40 上传
 
+
+*****
+
+####  saya1892  
+##### 527#       发表于 2024-11-4 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66611574&amp;ptid=2201887" target="_blank">新HGCG 发表于 2024-11-3 22:48</a>
+
+对了背景离乡多年
+
+田子坊什么的都知道
+
+但那个泳池是哪里的</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202411/04/091820ru9q9uw07gffk470.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (236.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-4 09:18 上传
+
+群友说是这个
+

@@ -2395,3 +2395,11 @@ https://gamerch.com/wizardry-daphne/
 
 今天主线推到了船舱二层但是上甲板前的路被npc挡住要求要三个许可证才能进场斗技场，有没**懂怎么做下去<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赛尔法斯特  
+##### 267#       发表于 2024-11-4 14:29
+
+有三个NPC，就在本层水里，打倒他们就能获得。准备点卷轴再打
+

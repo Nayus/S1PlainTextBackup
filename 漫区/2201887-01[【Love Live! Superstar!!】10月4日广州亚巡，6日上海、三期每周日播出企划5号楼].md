@@ -5608,3 +5608,14 @@ vn还挺可爱的<img src="https://static.saraba1st.com/image/smiley/face2017/07
 —— 来自 OPPO PHN110, Android 15上的 S1Next-鹅版 v3.0.0.81-al ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">理论上是这样的，但是还是看需求啊
 
+
+*****
+
+####  adw667  
+##### 541#       发表于 2024-11-4 14:32
+
+PTSD
+
+花田不会让香音强行跟夏美那次一样再收一次可可的人头吧，到最后还是要做实没有大香就没有liella这种设定
+这可可的家世让我想起来以前有个说法是花田直接把森凸套到可堇来写导致第二季可可有事没事就嘴小堇，刚好凸守也是家世显赫的设定
+

@@ -8012,3 +8012,13 @@ mujica动画播出推迟的一整年：理直气壮“mujica本来就是附庸�
 新pv放出：骂抢戏要求还一集、狗要被mujica垫了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  septer  
+##### 25824#       发表于 2024-11-4 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66617045&amp;ptid=2159415" target="_blank">浅草若旦那 发表于 2024-11-4 16:54</a>
+看wiki没写是哪个大学的 可能是我听错了</blockquote>
+山形大学
+

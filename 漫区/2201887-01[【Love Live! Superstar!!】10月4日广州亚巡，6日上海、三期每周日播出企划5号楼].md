@@ -5866,3 +5866,32 @@ PTSD
 
 我感觉烂不了哪去，要不鱼肯定连第五集都不会宣传
 
+
+*****
+
+####  ruffian  
+##### 564#       发表于 2024-11-4 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66619558&amp;ptid=2201887" target="_blank">280041437 发表于 2024-11-04 22:44:39</a>
+我感觉烂不了哪去，要不鱼肯定连第五集都不会宣传
+
+哦，我在贴吧预测第6集有可堇的帖子里找到舅舅的回复了 ...</blockquote>啥啊？氪金真亲嘴了？<img src="https://static.saraba1st.com/image/smiley/face2017/115.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  蜜梨柑  
+##### 565#       发表于 2024-11-4 23:06
+
+就这第6集标题随随便便写个样板戏都能60分吧，这也能写烂我也是服了花田了
+
+*****
+
+####  ViyViy  
+##### 566#       发表于 2024-11-4 23:06
+
+不慌，他第五集还干了瞒标题的活儿，震惊可能不是针对第六集本身的。
+
+估计他其实想要能全看完，这两周的应该周末就全看过了，只是现在享受谜语人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -2428,3 +2428,13 @@ https://gamerch.com/wizardry-daphne/
 氪了1200，80连放浪骑士0传说，就想要把三连攻击的剑，抽到最后最后井出来 ...</blockquote>
 真氪啊 顺便井优先给剑
 
+
+*****
+
+####  愿墨争皓月  
+##### 270#       发表于 2024-11-4 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66617201&amp;ptid=2156352" target="_blank">UdukiMisato 发表于 2024-11-4 17:12</a>
+真氪啊 顺便井优先给剑</blockquote>
+这游戏应该是不会再氪了也就无所谓了，本来如果能氪出来还打算持续氪，现在看运营又是暗改又是放置，感觉其实也活不了太久，接下来就看看剧情拉倒了
+

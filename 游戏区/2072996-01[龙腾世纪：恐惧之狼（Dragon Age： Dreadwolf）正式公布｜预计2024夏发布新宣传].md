@@ -4376,3 +4376,14 @@ Anomen算啥黑历史啊。一个原生家庭有缺陷的纨绔子弟从一开�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  kevinausting  
+##### 1054#       发表于 2024-11-4 08:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66613010&amp;ptid=2072996" target="_blank">jf8350143 发表于 2024-11-4 08:14</a>
+
+队友任务都不会断，但是麻木不仁的队友做完队友任务之后解锁的技能是单选，其他队友是两个技能选一个。 ...</blockquote>
+谢谢，那就放心了
+

@@ -7923,3 +7923,13 @@ PV：米库米库米 （@米库米库米 ）
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等明年那些二创素睦入脑的吃回旋镖就完事了，还素睦呢，素祥素睦灯祥这三明年能从棺材板里抢救出来就不错了
 
+
+*****
+
+####  Aendst  
+##### 25817#       发表于 2024-11-4 15:18
+
+ 本帖最后由 Aendst 于 2024-11-4 15:20 编辑 
+
+访谈都锤成这样了还能活在自己想象里，明年没准就合体变异了，现在不是已经变异出自称月之森大三角幻想爽世双飞睦祥的了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

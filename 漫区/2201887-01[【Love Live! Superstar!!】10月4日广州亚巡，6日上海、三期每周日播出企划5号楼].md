@@ -5568,3 +5568,30 @@ vn还挺可爱的<img src="https://static.saraba1st.com/image/smiley/face2017/07
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  qratosones1337  
+##### 538#       发表于 2024-11-4 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66614162&amp;ptid=2201887" target="_blank">ruffian 发表于 2024-11-4 11:01</a>
+也没说是北京哪个大学，但日本人对中国大学的了解估计也就清北了，可可还真在认真思考回国上大学甚至没考虑 ...</blockquote>
+正常情况下沪爷家门口就是复旦交大，也没必要来北京上个普通985
+
+—— 来自 HUAWEI HBN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  saya1892  
+##### 539#       发表于 2024-11-4 14:10
+
+[https://x.com/OekakiFnyanky/status/1853285072302186560](https://x.com/OekakiFnyanky/status/1853285072302186560)
+
+<img src="https://img.saraba1st.com/forum/202411/04/140949x63yfy2r380fs526.png" referrerpolicy="no-referrer">
+
+<strong>3 (1).png</strong> (1.05 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-4 14:09 上传
+

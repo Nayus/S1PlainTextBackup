@@ -4362,3 +4362,17 @@ Anomen算啥黑历史啊。一个原生家庭有缺陷的纨绔子弟从一开�
 唯一的例外是塔什，就他妈一坨屎真就前脚去猎龙后脚唐 ...</blockquote>
 问下前期那个剧情抉择二选一那里，没选的那个队友的支线断掉了后面还会有后续吗，还是说就这么彻底断掉了？变成麻木不仁状态之后一直没有对话或者个人任务，有点难受了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jf8350143  
+##### 1053#       发表于 2024-11-4 08:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66612122&amp;ptid=2072996" target="_blank">kevinausting 发表于 2024-11-4 00:26</a>
+问下前期那个剧情抉择二选一那里，没选的那个队友的支线断掉了后面还会有后续吗，还是说就这么彻底断掉了 ...</blockquote>
+
+队友任务都不会断，但是麻木不仁的队友做完队友任务之后解锁的技能是单选，其他队友是两个技能选一个。
+阵营支线会变，但是也不会断
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

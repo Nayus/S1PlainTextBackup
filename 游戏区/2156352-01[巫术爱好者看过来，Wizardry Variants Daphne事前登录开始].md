@@ -2378,3 +2378,12 @@ https://gamerch.com/wizardry-daphne/
 
 —— 来自 Xiaomi 22081212C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  愿墨争皓月  
+##### 265#       发表于 2024-11-4 08:09
+
+不是？这抽卡该不会也有bug吧？
+氪了1200，80连放浪骑士0传说，就想要把三连攻击的剑，抽到最后最后井出来的公主，真1200买个皮肤啊？？？？哪怕来点其他的传说给我送点技能啊？
+

@@ -5185,3 +5185,14 @@ p3r先宣布200w的可能性大一些
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  xifeilu  
+##### 3421#       发表于 2024-11-4 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66619856&amp;ptid=2140224" target="_blank">kuarwbwe 发表于 2024-11-4 23:26</a>
+
+个人体验完全是随机的。感觉就是你每一次和敌人有交互都会有不小的概率苏醒，我打一个精英怪roll十把，有 ...</blockquote>
+我也觉得像随机，不过不确定是不是不同难度亦有差别，因为现在简单难度我去刷这个骷髅倒是从来没在我打完两回合WEAK后醒来，但我没有在HARD模式下试是不是也那么固定，说不定为了难度也是随机。。。。。
+

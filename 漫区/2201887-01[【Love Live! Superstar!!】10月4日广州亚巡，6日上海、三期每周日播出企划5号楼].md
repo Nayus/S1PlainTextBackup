@@ -5556,3 +5556,15 @@ vn还挺可爱的<img src="https://static.saraba1st.com/image/smiley/face2017/07
 
 <img src="https://p.sda1.dev/20/ec3afc8fb37744957c05b48a1bb9c70d/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 537#       发表于 2024-11-4 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66614570&amp;ptid=2201887" target="_blank">武男 发表于 2024-11-4 11:41</a>
+看这个财力大概也能背负隔壁乐队某成员的一生？</blockquote>
+某个人？整个乐队，几个乐队都行。。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

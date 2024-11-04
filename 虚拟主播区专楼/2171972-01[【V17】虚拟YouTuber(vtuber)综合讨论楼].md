@@ -240,3 +240,14 @@ V圈街霸6教练需求量很大的、而且还能特别给玩独角兽营业的
 
 vspo街霸6职业4W+同接的新人播完订阅还没10W，V圈是真的饱和了，街霸老哥也是真不给面子
 
+
+*****
+
+####  艾特娜  
+##### 853#       发表于 2024-11-4 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66619255&amp;ptid=2171972" target="_blank">バーチャルS1er 发表于 2024-11-4 21:55</a>
+
+vspo街霸6职业4W+同接的新人播完订阅还没10W，V圈是真的饱和了，街霸老哥也是真不给面子 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">最高有53000+，但下播之前没提请订阅，少了这一句差别会挺大的
+

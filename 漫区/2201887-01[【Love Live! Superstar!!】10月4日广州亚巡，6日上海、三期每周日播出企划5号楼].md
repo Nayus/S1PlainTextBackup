@@ -5509,3 +5509,16 @@ vn还挺可爱的<img src="https://static.saraba1st.com/image/smiley/face2017/07
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  ads147147  
+##### 532#       发表于 2024-11-4 11:13
+
+ 本帖最后由 ads147147 于 2024-11-4 11:14 编辑 
+
+万一是和奶茶一样艺术体育生特招呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+按你拉东京出线都可以去考不上就二战的维也纳入学，去清北可不是轻轻松松。
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

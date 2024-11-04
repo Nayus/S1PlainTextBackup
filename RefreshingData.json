@@ -2265,7 +2265,7 @@
     "lastedit": 1730725860,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1804478": {
     "totalreply": 1242,
@@ -10269,10 +10269,10 @@
     "update": false
   },
   "2201926": {
-    "totalreply": 18254,
+    "totalreply": 18255,
     "title": "[【集中楼】百合&amp;泛百合讨论楼9.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼9.0]",
-    "lastedit": 1730743688,
+    "lastedit": 1730744048,
     "category": "漫区",
     "active": true,
     "update": false
@@ -17055,10 +17055,10 @@
     "update": false
   },
   "2205598": {
-    "totalreply": 312,
+    "totalreply": 313,
     "title": "[西班牙恐怖盲盒要开箱了]",
     "newtitle": "[西班牙恐怖盲盒要开箱了]",
-    "lastedit": 1730742619,
+    "lastedit": 1730743811,
     "category": "外野",
     "active": true,
     "update": false
@@ -17205,7 +17205,7 @@
     "lastedit": 1730692800,
     "category": "手游战斗",
     "active": true,
-    "update": false
+    "update": true
   },
   "2205558": {
     "totalreply": 56,
@@ -17464,6 +17464,15 @@
     "title": "[推荐《我们生活在南京》]",
     "newtitle": "[推荐《我们生活在南京》]",
     "lastedit": 1730734700,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2205738": {
+    "totalreply": 42,
+    "title": "[父亲得了胰腺癌，不知该怎么办了]",
+    "newtitle": "[父亲得了胰腺癌，不知该怎么办了]",
+    "lastedit": 1730743812,
     "category": "外野",
     "active": true,
     "update": false

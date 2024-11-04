@@ -2265,7 +2265,7 @@
     "lastedit": 1730725860,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1804478": {
     "totalreply": 1242,
@@ -9351,10 +9351,10 @@
     "update": false
   },
   "2188121": {
-    "totalreply": 890,
+    "totalreply": 891,
     "title": "[浪漫沙加2完全重制!《浪漫沙加2 七英雄的复仇》 2024.10.24中文同步发售]",
     "newtitle": "[浪漫沙加2完全重制!《浪漫沙加2 七英雄的复仇》 2024.10.24中文同步发售]",
-    "lastedit": 1730744528,
+    "lastedit": 1730759888,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -9468,10 +9468,10 @@
     "update": false
   },
   "2194890": {
-    "totalreply": 895,
+    "totalreply": 896,
     "title": "[丸户×よむ《事到如今，喜欢上了青梅竹马》]",
     "newtitle": "[丸户×よむ《事到如今，喜欢上了青梅竹马》]",
-    "lastedit": 1730747048,
+    "lastedit": 1730759408,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13068,12 +13068,12 @@
     "update": false
   },
   "2160915": {
-    "totalreply": 151,
+    "totalreply": 152,
     "title": "[推漫，午夜心旋律（45话，山吹姐妹登场）]",
     "newtitle": "[推漫，午夜心旋律（51话，暑假结束）]",
-    "lastedit": 1729826909,
+    "lastedit": 1730759648,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2204350": {
@@ -17205,7 +17205,7 @@
     "lastedit": 1730692800,
     "category": "手游战斗",
     "active": true,
-    "update": true
+    "update": false
   },
   "2205558": {
     "totalreply": 56,

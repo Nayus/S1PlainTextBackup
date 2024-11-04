@@ -4479,3 +4479,16 @@ da2在我心目中至少有锤战争黎明1同等的非潜行小队rts，十多�
 
 lgbt可能不完全对应woke，但为了让一部分真人代入的丑陋肿胀lgbt肯定是woke<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  假布偶是臭猪  
+##### 1064#       发表于 2024-11-4 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66614666&amp;ptid=2072996" target="_blank">llysander 发表于 2024-11-4 11:52</a>
+
+那世上就少了个小队rts rpg从前排得上号的佳作了，
+
+da2在我心目中至少有锤战争黎明1同等的非潜行小队rts ...</blockquote>
+这游戏的地编真的很可以的，DA2被骂的最多的就是那几个地图来回用
+

@@ -5837,3 +5837,32 @@ PTSD
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  桥本有菜  
+##### 561#       发表于 2024-11-4 22:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在的花田是什么版本，写完GBC脑子暂时被治愈的版本
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  kata魂  
+##### 562#       发表于 2024-11-4 22:42
+
+ 本帖最后由 kata魂 于 2024-11-4 22:45 编辑 
+
+能烂到哪去，还能当场退队留在国内，来一场盛大的烟花。
+
+顶多就是没有预料的c位
+
+*****
+
+####  280041437  
+##### 563#       发表于 2024-11-4 22:44
+
+我感觉烂不了哪去，要不鱼肯定连第五集都不会宣传
+

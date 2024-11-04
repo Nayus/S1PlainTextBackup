@@ -5736,3 +5736,24 @@ PTSD
 
 四季泳装画面一出，对观看NHK的青少年的影响不可估量啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViyViy  
+##### 550#       发表于 2024-11-4 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66618777&amp;ptid=2201887" target="_blank">llllife 发表于 2024-11-4 20:51</a>
+
+上面说森凸我又去复习了一遍，是真的甜，花田有本事抄自己，有本事让可堇也亲一个（4集预告里那种虚晃一枪 ...</blockquote>
+（巨魔时间到）下午隔壁的情报师突然震惊没准儿真是因为这个呢<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">不过NHK应该只能亲脸，我记得中二病直接对嘴，虽然是经典意外摔了的桥段
+
+
+*****
+
+####  llllife  
+##### 551#       发表于 2024-11-4 21:46
+
+<blockquote>ViyViy 发表于 2024-11-4 21:38
+（巨魔时间到）下午隔壁的情报师突然震惊没准儿真是因为这个呢不过NHK应该只能亲脸，我记得中二病直接对 ...</blockquote>
+那就真的该伟大的花田老师正在书写不朽的篇章了（开玩笑）现在cp能不能救都是其次了，下集live做好了比什么都重要
+

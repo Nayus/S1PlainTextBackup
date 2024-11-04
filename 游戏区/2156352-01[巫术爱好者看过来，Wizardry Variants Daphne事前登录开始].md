@@ -2403,3 +2403,16 @@ https://gamerch.com/wizardry-daphne/
 
 有三个NPC，就在本层水里，打倒他们就能获得。准备点卷轴再打
 
+
+*****
+
+####  yj98879  
+##### 268#       发表于 2024-11-4 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66612998&amp;ptid=2156352" target="_blank">愿墨争皓月 发表于 2024-11-4 08:09</a>
+
+不是？这抽卡该不会也有bug吧？
+
+氪了1200，80连放浪骑士0传说，就想要把三连攻击的剑，抽到最后最后井出来 ...</blockquote>
+兄弟你这也太惨了
+

@@ -15169,3 +15169,24 @@ miko的过激玩法甚至声优本人都有反应
 
 只要korone身体和时间上允许的话其实是可以做得到的，而且miko在sololive之后很忙的状态并没有转变还要忙到年底
 
+
+*****
+
+####  holoan  
+##### 10129#         楼主| 发表于 2024-11-4 22:31
+
+miko：你见过凌晨6点的东京吗
+
+*****
+
+####  holoan  
+##### 10130#         楼主| 发表于 2024-11-4 23:08
+
+<img src="https://img.saraba1st.com/forum/202411/04/230806pz8cd5dt3syx0qqc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (50.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-4 23:08 上传
+

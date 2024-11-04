@@ -8097,3 +8097,13 @@ mujica动画播出推迟的一整年：理直气壮“mujica本来就是附庸�
 
 队友加油，不要让梦以拍了<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novalli  
+##### 25830#       发表于 2024-11-4 23:09
+
+其实路人大环境我倒是不怎么担心的，大概率也就是“原来素睦不是官配”的一点落差感，只要故事本身精彩没那么多人关心这一点波折。CP粉声量与人数不成比例也算是固有属性了，最多就是苍蝇水平，吵死人；再怎么样也是搞不出音爆的。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

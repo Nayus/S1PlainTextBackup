@@ -7997,3 +7997,18 @@ PV：米库米库米 （@米库米库米 ）
 還缺個Bass阿</blockquote>
 很多乐队贝斯都是吉他转职的，这个5个吉他真需要转一个贝斯就是了
 
+
+*****
+
+####  -LYRE-  
+##### 25823#       发表于 2024-11-4 17:29
+
+ 本帖最后由 -LYRE- 于 2024-11-4 17:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66614700&amp;ptid=2159415" target="_blank">kirir192 发表于 2024-11-4 11:57</a>
+朋友最近看go就聊了一下，才知道这都一年多了那些人还在把那铁暗恋和天之弱二创入脑当真，不敢相信这都2024 ...</blockquote>
+历史重演罢了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+13集播出时：骂抢戏要求还一集、狗被mujica垫了
+mujica动画播出推迟的一整年：理直气壮“mujica本来就是附庸”
+新pv放出：骂抢戏要求还一集、狗要被mujica垫了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

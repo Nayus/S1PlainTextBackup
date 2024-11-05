@@ -5454,3 +5454,15 @@ steamdeck固件更新，体验一下子好了许多
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  khxooo  
+##### 3446#       发表于 2024-11-5 19:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66624855&amp;ptid=2140224" target="_blank">lyjssj1 发表于 2024-11-5 16:36</a>
+额，我现在到九月底了和路易决战前，随便写点
+
+后期剧情，其实我觉得还行吧，不好不坏，目前为止还是比较稳 ...</blockquote>
+主角并不算是犹豫吧，配合后面剧情，这里发挥不稳定反而算是一个小伏笔。
+

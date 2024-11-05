@@ -6240,3 +6240,17 @@ n站真的幽默完了
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  ads147147  
+##### 601#       发表于 2024-11-6 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66627582&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-11-5 23:45</a>
+现在最希望的是企划会算数，别看到63%就腿软了
+
+或者第五层，知道有这种情况赶紧在季番里给你高规格认真搞两 ...</blockquote>
+角川当年都没鸟过的玩意，代便更不会鸟，更何况高达早就被叼好多次了。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

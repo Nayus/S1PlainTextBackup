@@ -1389,3 +1389,29 @@ https://x.com/onigiri123091/status/1841843153718149297
 
 看了两集这片子真拧巴啊，粉毛那么好，男主爱答不理……
 
+
+*****
+
+####  Piano-Forest  
+##### 123#         楼主| 发表于 2024-11-6 00:12
+
+第6話「TAI LOVER」
+
+接客トラブルで慌てる常寛。助けてくれたのは、弟のアルアと共にタイから来た同僚のアイスだった。タフでどこか突飛なアイスに翻弄されつつ、常宏は皆と鯛ラバに繰り出す。
+
+脚本：鈴木智尋
+
+絵コンテ・演出：三浦 慧
+
+総作画監督：谷口宏美
+
+作画監督：東 亮太、中山見都美
+
+作画監督補佐：緒方歩惟、三島詠子
+<img src="https://p.sda1.dev/20/35dede79e44c9c491121001c52e2eb7f/p_001.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/d32169c7fc8a1bc863fb1a6398e7036f/p_002.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/7afb1ea9d4f874172e4edad500850254/pic003.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/221b1f0266a885ca6ff69532ec130194/p_004.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/e573086a05b9d14a225af6eccb431895/p_005.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/2636dfe7c8191b3d91c76fdaf3ecb68a/pic006.jpg" referrerpolicy="no-referrer">
+

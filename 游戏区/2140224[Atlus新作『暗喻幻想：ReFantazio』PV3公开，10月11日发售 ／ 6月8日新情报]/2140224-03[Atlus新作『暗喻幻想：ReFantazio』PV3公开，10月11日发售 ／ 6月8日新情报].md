@@ -5484,3 +5484,19 @@ steamdeck固件更新，体验一下子好了许多
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我在龙宫吃完屎再清的支线，反正都得吃一回
 
+
+*****
+
+####  xifeilu  
+##### 3449#       发表于 2024-11-5 21:08
+
+话说这游戏有弱点是斩的BOSS吗……回忆起来有难度让我看弱点试组合的BOSS好像印象里除了各种弱点魔法以外，基本都是弱突的同时还会放群体魔法啥的
+
+导致我一路过来基本都是在用骑士组合去打，骑士不行的时候就改狙击手
+
+斩的刺客跟兄弟的武士，好像一次都没拿出来打过BOSS用过……甚至以前小偷也只是时雨刚入队时候懒得给别人转拿来盗窃用的输出真一次没指望过
+
+哦对了那个暗杀概率反正，等中了我彩票应该也中了
+
+后期应该会有弱斩的BOSS吧？不然改名骑士幻想算了泛用性这么高度<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+

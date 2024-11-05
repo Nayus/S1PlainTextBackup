@@ -8166,3 +8166,14 @@ mujica动画播出推迟的一整年：理直气壮“mujica本来就是附庸�
 
 再说了二创和本家的环境是相对独立的，几乎平行发展一年了，现在恐怕在不少话题上连对话都不容易了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  -LYRE-  
+##### 25836#       发表于 2024-11-5 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66623512&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-11-5 13:47</a>
+考虑到crychic的logo设计，其实是可以贷祥很早就想和睦一起进行什么活动（组乐队或者其他事情都有可能） ...</blockquote>
+这话可不敢说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+12集-13集中间那两周讨论姐妹论的时候，就有人提出这个猜想，被灯祥厨(灯厨)追着怼灯皇是绝对核心<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

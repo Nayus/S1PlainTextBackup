@@ -277,3 +277,13 @@ vspo街霸6职业4W+同接的新人播完订阅还没10W，V圈是真的饱和�
 
 杏练了这么久还是有功力在身上的
 
+
+*****
+
+####  格林卡罗尔  
+##### 856#       发表于 2024-11-5 10:12
+
+我有种很神秘的想法，觉得もか是ftg圈送进vspo的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这样的人以前没有直播过现在搞直播想必是有什么外因
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

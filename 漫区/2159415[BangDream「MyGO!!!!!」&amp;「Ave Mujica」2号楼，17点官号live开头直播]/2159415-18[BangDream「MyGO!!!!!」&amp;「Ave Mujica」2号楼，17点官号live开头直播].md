@@ -8325,3 +8325,43 @@ c团里明确的绝对核心目前不是只有祥子吗，灯当主唱当时还�
 
 用“前々”说明关系已经很久了，椎名家是普通中产，也不像是家族关系
 
+
+*****
+
+####  [皆神孝介]  
+##### 25847#       发表于 2024-11-6 00:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66627455&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-11-5 23:21</a>
+
+第三话的情节是非常有误导性的，这里的关键是，月之森音乐祭是Morfonica的初Live（就连名字都是音乐祭之前 ...</blockquote>
+祥子把灯拉到家里即兴弹唱的是《成为人类之歌》<img src="https://static.saraba1st.com/image/smiley/face/159.gif" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 玖羽| + 1|改了|
+
+查看全部评分
+
+
+*****
+
+####  Aendst  
+##### 25848#       发表于 2024-11-6 00:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66627781&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-11-6 00:30</a>
+
+如果只是看演出的关系，谈不上“親交”，虽然吹奏乐部有钢琴，但是真希参加了地方的管弦乐团，所以真希不 ...</blockquote>
+可能有过多次共演？
+
+不然很难想象年龄差比较大还不同校的情况下关系进展到这个程度
+
+真希可能是负责小号的，房间门口挂的名牌上有小号和音符（ep09）
+
+立希这边则是熊猫，可能是各自的爱好
+

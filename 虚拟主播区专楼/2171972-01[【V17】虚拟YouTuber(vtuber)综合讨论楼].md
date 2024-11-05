@@ -392,3 +392,13 @@ Alisa只是直播不多名气不高+把前世都删了而已
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">主要花了很多时间和观众bb，专心打能快几十分钟吧
 
+
+*****
+
+####  格林卡罗尔  
+##### 868#       发表于 2024-11-6 03:07
+
+好久没看匿名板，ぶいすぽ無しスレ是跑哪里去了
+
+もか可能活动时间比较长，但这直播一眼就不是很熟练<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过我之前的说法也就图个乐，更加可信的说法要多少有多少
+

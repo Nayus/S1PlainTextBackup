@@ -4766,3 +4766,29 @@ TM笑死，还碰瓷博得3.
 
 你说你创新但是舍不得老IP的号召力，又担心新IP没人买账，结果不就是新玩家不敢入坑，老玩家怒而退坑。
 
+
+*****
+
+####  棺材叔叔  
+##### 1083#       发表于 2024-11-5 11:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">所以这游戏能打mod吗，什么时候出人物外观美化mod什么时候玩玩
+
+*****
+
+####  initium  
+##### 1084#       发表于 2024-11-5 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66622619&amp;ptid=2072996" target="_blank">棺材叔叔 发表于 2024-11-5 11:48</a>
+所以这游戏能打mod吗，什么时候出人物外观美化mod什么时候玩玩</blockquote>
+上一代就没法大改模型只能玩玩光影化妆服饰之类的玩意，这一代如果还是寒霜的话也就到这个地步了。
+
+—— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  西弗  
+##### 1085#       发表于 2024-11-5 11:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是谁在说“老玩家”哪玩得下去这坨，以及死忠粉是DAI粉啊，怪猎代际歧视好歹有换平台的因素在，就算辐射也毕竟换过主了，还是那句话，不喜欢它乱搞喷生软就是了，不用扯到玩家身上
+

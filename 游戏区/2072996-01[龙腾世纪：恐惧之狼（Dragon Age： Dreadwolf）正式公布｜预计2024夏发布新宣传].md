@@ -4792,3 +4792,16 @@ TM笑死，还碰瓷博得3.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是谁在说“老玩家”哪玩得下去这坨，以及死忠粉是DAI粉啊，怪猎代际歧视好歹有换平台的因素在，就算辐射也毕竟换过主了，还是那句话，不喜欢它乱搞喷生软就是了，不用扯到玩家身上
 
+
+*****
+
+####  difa  
+##### 1086#       发表于 2024-11-5 12:27
+
+ 本帖最后由 difa 于 2024-11-5 12:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66621742&amp;ptid=2072996" target="_blank">震荡波 发表于 2024-11-5 10:17</a>
+STEAM可以通过首发最高在线人数推测首发销量的，虽然有特例，但绝大多数STEAM首发销量大概是当期在最高线人 ...</blockquote>
+你这是啥推测？龙信2在线22万，然后是全平台250万，你意思是主机平台只卖了30万？黑悟空在线是240万，首发只有3天给的数据1000万，也是全平台。环的dlc，3天500万，Steam在线70万，照你这么算，主机上还要倒贴人？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

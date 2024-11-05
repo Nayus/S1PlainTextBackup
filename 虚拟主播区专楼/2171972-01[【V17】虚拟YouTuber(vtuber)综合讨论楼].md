@@ -314,3 +314,24 @@ vspo街霸6职业4W+同接的新人播完订阅还没10W，V圈是真的饱和�
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  艾特娜  
+##### 860#       发表于 2024-11-5 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66623801&amp;ptid=2171972" target="_blank">格林卡罗尔 发表于 2024-11-5 14:24</a>
+
+我觉得比起vspo对st6，st6圈对vspo乃至于整个vtuber界更为热衷，随便办个比赛教练都是职业界数一数二的高手 ...</blockquote>
+同期另一个人花火就是素人练了两年出道的啊
+
+*****
+
+####  艾特娜  
+##### 861#       发表于 2024-11-5 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66619255&amp;ptid=2171972" target="_blank">バーチャルS1er 发表于 2024-11-4 21:55</a>
+
+vspo街霸6职业4W+同接的新人播完订阅还没10W，V圈是真的饱和了，街霸老哥也是真不给面子 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">虽然不是下播马上到10万，但现在已经破10万了
+

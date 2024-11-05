@@ -4919,3 +4919,33 @@ steam首发我看估计30-50w的都有
 说到怪猎，这次撞上荒野测试也不能说完全没影响。至少测试消息放出来之前群里偶尔还能见着瞎猜DA4系统的 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">大概不会影响销量，但是猛汉还是开启预售了，被挤下销售榜难看而已
 
+
+*****
+
+####  风烛尘香  
+##### 1097#       发表于 2024-11-5 14:48
+
+慕名去看了non-binary那段剧情，生硬又毫无趣味的台词真的是生软曾经的水平吗？对比之下把无聊的DAI衬托得跟《百年孤独》一样了
+
+*****
+
+####  风烛尘香  
+##### 1098#       发表于 2024-11-5 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66617172&amp;ptid=2072996" target="_blank">卡拉德利姆 发表于 2024-11-4 17:08</a>
+
+博得3没有教你怎么给被冒犯的binary道歉的桥段吧</blockquote>
+按头教你道歉那段仿佛是被mean girl霸凌过的编剧魂穿角色口头小作文教你怎么道歉，问题是玩家没有惹你，玩家凭什么被糊这一脸说教啊。
+
+*****
+
+####  风烛尘香  
+##### 1099#       发表于 2024-11-5 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66619086&amp;ptid=2072996" target="_blank">hmfwsl 发表于 2024-11-4 21:33</a>
+
+DA2那种风格的作品在大制作里怕是独一份了
+
+队友除了varric都是神经病，窒息的城市高压的环境，全城不是疯子 ...</blockquote>
+之前看到一个吐槽，跟安德斯谈恋爱的霍克到了第三章会逐渐进入一种临终关怀式的精神状态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

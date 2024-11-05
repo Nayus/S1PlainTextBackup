@@ -6267,3 +6267,16 @@ n站真的幽默完了
 —— 来自 OPPO PHN110, Android ...</blockquote>
 差点忘了角川干了件更劲爆的事情<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  須理出未来  
+##### 603#       发表于 2024-11-6 07:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66627416&amp;ptid=2201887" target="_blank">D麦林 发表于 2024-11-5 23:12</a>
+上次炸完以后我已经不知道到底哪个拉板才是真正的现行5厕拉板了</blockquote>
+ラブライブ！板★3
+https://jbbs.shitaraba.net/anime/11210/
+
+这个，虽然人也不多，不过比基本没活人的5ch拉板还是好点
+

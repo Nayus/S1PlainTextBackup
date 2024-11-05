@@ -6099,3 +6099,20 @@ n站真的幽默完了
 
 4也不低啊
 
+
+*****
+
+####  cybernetics31  
+##### 587#       发表于 2024-11-5 21:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不奇怪了
+
+*****
+
+####  日野下花帆  
+##### 588#       发表于 2024-11-5 21:50
+
+太君幽默
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

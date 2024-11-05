@@ -850,3 +850,37 @@ rank分类加了新的野男人老八，现在是2人，根据公开数据，你
 
 最好交个玩LOL的男友，有共同话题<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sino__unnko3  
+##### 17597#       发表于 2024-11-4 18:28
+
+ 本帖最后由 sino__unnko3 于 2024-11-4 22:52 编辑 
+
+连车道都能走的弱女子
+
+你咩又被说是关西腔？
+
+后面是收据的生草对话
+
+看漫画去了(被whisper气晕，翻译出事故)
+
+*****
+
+####  Dualist彩  
+##### 17598#       发表于 2024-11-5 11:10
+
+不准找撸狗男朋友！不准找泡菜男朋友！不准找生主男朋友！
+
+不准找男朋友，主播就该一辈子坐在电脑前给我唱歌听，不唱歌就被铜丝！<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+*****
+
+####  乔id  
+##### 17599#       发表于 2024-11-5 12:25
+
+她讲的理想韩男不就是大飞吗，楼友努努力帮lpl拿个五冠，梦想就成真了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -6048,3 +6048,15 @@ PTSD
 主要是希奈子这个个性， ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就如果今年你星运营真的会banpick的话第八集很难不会蹭一蹭恋生日
 
+
+*****
+
+####  ads147147  
+##### 581#       发表于 2024-11-5 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66622791&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-11-5 12:08</a>
+就如果今年你星运营真的会banpick的话第八集很难不会蹭一蹭恋生日</blockquote>
+恋身上又是魂环又是生物工具爹，又是游戏沉迷，真的，别写了。。。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

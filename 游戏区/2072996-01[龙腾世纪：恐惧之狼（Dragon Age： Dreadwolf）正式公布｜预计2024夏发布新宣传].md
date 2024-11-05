@@ -4985,3 +4985,17 @@ DA2那种风格的作品在大制作里怕是独一份了
 
 讲道理1代warden还真不一定死，不过查无此人和死掉谁更惨还真不好说<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csodaszarvas  
+##### 1104#       发表于 2024-11-5 15:52
+
+ 本帖最后由 csodaszarvas 于 2024-11-5 15:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66624431&amp;ptid=2072996" target="_blank">sosgame67 发表于 2024-11-5 15:46</a>
+
+讲道理1代warden还真不一定死，不过查无此人和死掉谁更惨还真不好说，2代霍克后续如何伊莎贝拉也不提 ...</blockquote>
+一代窝蹲如果和莫瑞甘生孩子是不会死的，而且三代弗莱梅斯也把基兰体内的大恶魔碎片抽走了，走这条线相当于彻底窝蹲和莫瑞甘彻底HE了（但就算和莫瑞甘没有romance也能生娃容纳大恶魔灵魂，然后去和圣维多利亚双宿双飞当渣男，只是一代dlc就没机会去镜子里面看儿子了）
+
+另外霍克在三代也是出场角色，在影界选一个人殿后可以选灰卫指挥官或者霍克，这里如果一代没杀洛根，那就可以让洛根殿后赎罪，结束自己罪恶的一生。
+

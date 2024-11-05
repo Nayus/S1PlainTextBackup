@@ -8177,3 +8177,11 @@ mujica动画播出推迟的一整年：理直气壮“mujica本来就是附庸�
 这话可不敢说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 12集-13集中间那两周讨论姐妹论的时候，就有人提出这个猜想，被灯祥厨(灯厨)追着怼灯皇是绝对核心<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  狂热飞鸟  
+##### 25837#       发表于 2024-11-5 21:24
+
+c团里明确的绝对核心目前不是只有祥子吗，灯当主唱当时还是祥子力保下来的，素希当时可都没认同。go团里灯是绝对核心没错。
+

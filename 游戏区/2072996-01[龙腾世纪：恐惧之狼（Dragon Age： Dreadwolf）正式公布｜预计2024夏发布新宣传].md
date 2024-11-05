@@ -4898,3 +4898,24 @@ steam首发我看估计30-50w的都有
 说到怪猎，这次撞上荒野测试也不能说完全没影响。至少测试消息放出来之前群里偶尔还能见着瞎猜DA4系统的 ...</blockquote>
 这个还真赖不上怪猎，荒野那也就是个限时测试，该说DA系列一方面是仿佛生软自己都不知道它核心到底是什么总在那变来变去，另一方面距离上作DAI整整十年了，即使DAI靠乘“开放世界”的东风拉了一大票人进来，这么多年过后又能留下几个，外加DA4这队友一眼呆瓜裂枣，哪怕是DAI在当年也被吐槽可攻略女角色不好看呢，现在更是撞上各路拳法水火不容的关口，不被批倒骂臭踩上一千只脚已经谢天谢地了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sunkaifeng00  
+##### 1095#       发表于 2024-11-5 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66622619&amp;ptid=2072996" target="_blank">棺材叔叔 发表于 2024-11-5 11:48</a>
+
+所以这游戏能打mod吗，什么时候出人物外观美化mod什么时候玩玩</blockquote>
+按照之前先进经验，近几年的反woke美化极有可能被平台针对性删除
+
+*****
+
+####  llysander  
+##### 1096#       发表于 2024-11-5 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66623402&amp;ptid=2072996" target="_blank">放大镜 发表于 2024-11-5 13:31</a>
+
+说到怪猎，这次撞上荒野测试也不能说完全没影响。至少测试消息放出来之前群里偶尔还能见着瞎猜DA4系统的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">大概不会影响销量，但是猛汉还是开启预售了，被挤下销售榜难看而已
+

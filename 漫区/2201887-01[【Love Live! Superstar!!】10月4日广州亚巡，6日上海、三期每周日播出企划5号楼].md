@@ -6035,3 +6035,16 @@ PTSD
 
 小千作为青梅竹马肯定有的，什么活又不太好说，进路回作为切口应该不错，恋的话，我ptsd，比可还吓人。
 
+
+*****
+
+####  ViyViy  
+##### 580#       发表于 2024-11-5 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66622545&amp;ptid=2201887" target="_blank">ads147147 发表于 2024-11-5 11:40</a>
+
+希奈子戏份在星2里并不算少了，为什么会变成还要个人回呢，是不是因为某个老师啊
+
+主要是希奈子这个个性， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就如果今年你星运营真的会banpick的话第八集很难不会蹭一蹭恋生日
+

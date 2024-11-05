@@ -4666,3 +4666,24 @@ STEAM可以通过首发最高在线人数推测首发销量的，虽然有特例
 
 但大概笔力不够只能写点自我投影...吧（摊手
 
+
+*****
+
+####  ak123  
+##### 1074#       发表于 2024-11-5 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66620885&amp;ptid=2072996" target="_blank">mimighost 发表于 2024-11-5 08:33</a>
+感觉已经不是woke的问题了。。。
+
+我觉在游戏里面夹杂这个，主创已经疯了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以你知道为啥不管基软再怎么做系列切割，也有人誓死捍卫了吧
+
+
+*****
+
+####  Edvinno  
+##### 1075#       发表于 2024-11-5 10:56
+
+龙腾以及正常奇幻故事都是批判俯视态度，玩家姿态高的很舒适。这一作异世界却搞得好像某种程度的地上天国，奴隶社会部落制出身的都有大半道德标兵，路边一条狗都比我这个正宗现代人玩家的思想开放包容，人人有权指点我几句。
+虽然我们大半辈子都在歧视精灵，十年前有个精灵背刺了审判庭，现在还有两个精灵神要灭世，但是你是精灵，fine让我们来帮助你吧。
+

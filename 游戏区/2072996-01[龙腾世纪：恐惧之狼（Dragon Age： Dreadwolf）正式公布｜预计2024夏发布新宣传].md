@@ -4699,3 +4699,16 @@ STEAM可以通过首发最高在线人数推测首发销量的，虽然有特例
 
 我只想知道bioware这次要亏多少<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Bieaeml  
+##### 1077#       发表于 2024-11-5 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66621417&amp;ptid=2072996" target="_blank">tybtxt 发表于 2024-11-5 09:44</a>
+
+TM笑死，还碰瓷博得3.
+
+博得3你想和谁搞，想被谁搞都是自由，变动物乱搞也可以，这就是DND的风格，很还原， ...</blockquote>
+所谓死忠粉，很难说不是DAI入坑粉，因为不少DAO粉丝打完2代就满头问号了，打DAI都属于例行公事，看着DATV一路制作的各种幺蛾子，怎么会去玩来恶心自己<img src="https://static.saraba1st.com/image/smiley/face/35.gif" referrerpolicy="no-referrer">
+

@@ -350,3 +350,13 @@ vspo街霸6职业4W+同接的新人播完订阅还没10W，V圈是真的饱和�
 
 至少不是突然开始直播的
 
+
+*****
+
+####  バーチャルS1er  
+##### 863#       发表于 2024-11-5 15:42
+
+[https://www.youtube.com/live/BgJ2ibaNp3A](https://www.youtube.com/live/BgJ2ibaNp3A)
+
+Alisa只是直播不多名气不高+把前世都删了而已
+

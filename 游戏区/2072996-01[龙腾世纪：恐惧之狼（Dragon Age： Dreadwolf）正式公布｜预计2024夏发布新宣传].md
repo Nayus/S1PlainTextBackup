@@ -4967,3 +4967,21 @@ DA2那种风格的作品在大制作里怕是独一份了
 
 光是这塔文特变成文明先进的奴隶制国家就已经非常吃书了啊..你建个精灵灰卫在街上都没人鄙视你，这还是龙腾世纪吗？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csodaszarvas  
+##### 1102#       发表于 2024-11-5 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66622482&amp;ptid=2072996" target="_blank">西弗 发表于 2024-11-5 11:32</a>
+
+不是，DA也要跟猛汉似的搞代际歧视？真不至于，虽然我个人也很好奇它每一代之间游戏类型差别如此之大的原因 ...</blockquote>
+这代keep都不用了，把玩家前三代的努力全切割了，比如一代最后让洛根当灰卫，三代影界就能让洛根殿后赎罪，现在硬塞个官方世界状态，不仅要牺牲无辜路人，更是直接把一代窝蹲写死了，属于纯喂屎。
+
+*****
+
+####  sosgame67  
+##### 1103#       发表于 2024-11-5 15:46
+
+讲道理1代warden还真不一定死，不过查无此人和死掉谁更惨还真不好说<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

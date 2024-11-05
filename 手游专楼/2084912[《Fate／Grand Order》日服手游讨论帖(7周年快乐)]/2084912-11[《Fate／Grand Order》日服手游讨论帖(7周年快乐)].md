@@ -1750,3 +1750,19 @@ https://www.bilibili.com/video/BV1KuyWYcEng/
 
 趁着活动加倍把摩根喂到了110，补宝成功就升120<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 15086#       发表于 2024-11-5 17:14
+
+这强化有点无语了
+
+<img src="https://img.saraba1st.com/forum/202411/05/171431fssst6d2zost2u2e.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1006.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-5 17:14 上传
+

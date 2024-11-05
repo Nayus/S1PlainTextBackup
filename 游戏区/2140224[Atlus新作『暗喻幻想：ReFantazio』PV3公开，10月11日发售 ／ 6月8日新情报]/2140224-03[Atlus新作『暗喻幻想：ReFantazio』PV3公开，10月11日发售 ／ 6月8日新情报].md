@@ -5529,3 +5529,22 @@ steamdeck固件更新，体验一下子好了许多
 话说这游戏有弱点是斩的BOSS吗……回忆起来有难度让我看弱点试组合的BOSS好像印象里除了各种弱点魔法以外， ...</blockquote>
 ？好兄弟**oss还需要看属性？蓄力一刀合体全都带走了
 
+
+*****
+
+####  yyman  
+##### 3453#       发表于 2024-11-6 00:58
+
+  黑狗coop6触发条件是啥，白天黑夜还是铁战车上都是什么也感觉不到
+
+*****
+
+####  NEIN  
+##### 3454#       发表于 2024-11-6 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66627855&amp;ptid=2140224" target="_blank">yyman 发表于 2024-11-6 00:58</a>
+黑狗coop6触发条件是啥，白天黑夜还是铁战车上都是什么也感觉不到</blockquote>
+是有个支线要打吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

@@ -5326,3 +5326,29 @@ Atlus特有的时间焦虑挥之不去。
 
 话说这游戏是不是没有战斗中途切阿基态这个功能啊，感觉是最不爽的地方之一，带着商人刷下刷下钱或者是队友带着小号刷刷经验突然进剧情要开打了没切回主要输出职业
 
+
+*****
+
+####  mai6696  
+##### 3434#       发表于 2024-11-5 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66624701&amp;ptid=2140224" target="_blank">hkguty 发表于 2024-11-5 16:18</a>
+
+话说这游戏是不是没有战斗中途切阿基态这个功能啊，感觉是最不爽的地方之一，带着商人刷下刷下钱或者是队友 ...</blockquote>
+剧情门口不都有黑烟么？门外还有猫。
+
+最烦的还是坐船的时候突然给你甲板上刷个怪或者其他候选人。
+
+进了战斗你发现诶~职业配置有问题。
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 然后一读档发现自己还在出发的前一天晚上。
+
+*****
+
+####  忘却旋律  
+##### 3435#       发表于 2024-11-5 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66620089&amp;ptid=2140224" target="_blank">xifeilu 发表于 2024-11-5 00:08</a>
+
+而且这个盲信之塔真的恶心，这个占卜3天就很幽默，出发到那边天气不好，露营几天天气还不好，逼着人在恶劣 ...</blockquote>
+占卜这东西突出一个逗你玩 我从来不用的 不如后面直接改天气 ，虽然我也不用，突出一个没必要
+

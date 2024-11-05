@@ -5989,3 +5989,19 @@ PTSD
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  ads147147  
+##### 576#       发表于 2024-11-5 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66621023&amp;ptid=2201887" target="_blank">csolfans 发表于 2024-11-5 08:53</a>
+(当年第二季倒数那几集晚上都开了生放送来着
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">至少运营是真自信不是，拉拉系列百集不也评价好嘛。
+
+反正个人是不觉得6有问题，真有问题鲤鱼也不会冒头，要整活肯定是7的团队大合并出点岔子，不过我寻思已经用了虹2的强行合并法了，也不太可能出什么花活，薇恩早就是Liella的一份子了，比米娅还好对付jpg。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -376,3 +376,19 @@ Alisa只是直播不多名气不高+把前世都删了而已
 
 2天加起来5个小时就上传说了，这速度也没谁了
 
+
+*****
+
+####  艾特娜  
+##### 866#       发表于 2024-11-5 23:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">最高排名到过24，花四个多小时冲到前500她自己还说觉得慢了
+
+
+*****
+
+####  asclepiusz  
+##### 867#       发表于 2024-11-5 23:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">主要花了很多时间和观众bb，专心打能快几十分钟吧
+

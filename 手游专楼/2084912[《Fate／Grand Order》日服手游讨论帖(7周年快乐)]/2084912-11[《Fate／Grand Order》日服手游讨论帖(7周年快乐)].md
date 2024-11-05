@@ -1789,3 +1789,13 @@ wys又发力了
 
 这是新时代的+3000hp强化吗23333
 
+
+*****
+
+####  miro112233  
+##### 15090#       发表于 2024-11-5 17:41
+
+wys总是在大家以为他改性了的时候证明自己<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

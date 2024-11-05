@@ -5561,3 +5561,14 @@ steamdeck固件更新，体验一下子好了许多
 —— 来自 鹅球 v3.1.88.3</blockquote>
 大狗的支线是最后才做的，做完就是满羁绊，估计是卡主线吧。
 
+
+*****
+
+####  yyman  
+##### 3456#       发表于 2024-11-6 02:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66627959&amp;ptid=2140224" target="_blank">khxooo 发表于 2024-11-6 01:51</a>
+
+大狗的支线是最后才做的，做完就是满羁绊，估计是卡主线吧。</blockquote>
+ 最后是到多后啊，进度都已经是10月6号了。五维里说服和见识还没升满，会跟这有关么？
+

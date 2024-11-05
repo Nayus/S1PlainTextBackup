@@ -5548,3 +5548,16 @@ steamdeck固件更新，体验一下子好了许多
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  khxooo  
+##### 3455#       发表于 2024-11-6 01:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66627859&amp;ptid=2140224" target="_blank">NEIN 发表于 2024-11-6 01:01</a>
+
+是有个支线要打吧
+
+—— 来自 鹅球 v3.1.88.3</blockquote>
+大狗的支线是最后才做的，做完就是满羁绊，估计是卡主线吧。
+

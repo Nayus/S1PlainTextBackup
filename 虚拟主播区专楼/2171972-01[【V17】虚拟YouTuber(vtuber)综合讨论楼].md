@@ -335,3 +335,18 @@ vspo街霸6职业4W+同接的新人播完订阅还没10W，V圈是真的饱和�
 vspo街霸6职业4W+同接的新人播完订阅还没10W，V圈是真的饱和了，街霸老哥也是真不给面子 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">虽然不是下播马上到10万，但现在已经破10万了
 
+
+*****
+
+####  艾特娜  
+##### 862#       发表于 2024-11-5 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66621695&amp;ptid=2171972" target="_blank">格林卡罗尔 发表于 2024-11-5 10:12</a>
+
+我有种很神秘的想法，觉得もか是ftg圈送进vspo的这样的人以前没有直播过现在搞直播想必是有什么外因
+
+——  ...</blockquote>
+看到剪接评论区有前世粉说，她在直播里讲过不会参加只有女性的街霸大会
+
+至少不是突然开始直播的
+

@@ -4959,3 +4959,11 @@ DA2那种风格的作品在大制作里怕是独一份了
 
 就算没有woke，这游戏也把前三代的lore给挥霍得差不多了，david gaider脑子是瓦特了么，给这玩意儿背书
 
+
+*****
+
+####  sosgame67  
+##### 1101#       发表于 2024-11-5 15:26
+
+光是这塔文特变成文明先进的奴隶制国家就已经非常吃书了啊..你建个精灵灰卫在街上都没人鄙视你，这还是龙腾世纪吗？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

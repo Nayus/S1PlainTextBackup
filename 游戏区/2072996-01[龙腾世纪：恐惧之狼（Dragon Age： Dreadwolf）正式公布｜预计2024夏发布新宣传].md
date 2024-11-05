@@ -4949,3 +4949,13 @@ DA2那种风格的作品在大制作里怕是独一份了
 队友除了varric都是神经病，窒息的城市高压的环境，全城不是疯子 ...</blockquote>
 之前看到一个吐槽，跟安德斯谈恋爱的霍克到了第三章会逐渐进入一种临终关怀式的精神状态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mimighost  
+##### 1100#       发表于 2024-11-5 14:59
+
+看了ytb上的剧透
+
+就算没有woke，这游戏也把前三代的lore给挥霍得差不多了，david gaider脑子是瓦特了么，给这玩意儿背书
+

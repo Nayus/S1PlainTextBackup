@@ -5975,3 +5975,17 @@ PTSD
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  csolfans  
+##### 575#       发表于 2024-11-5 08:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66620587&amp;ptid=2201887" target="_blank">ads147147 发表于 2024-11-5 06:58</a>
+就算出问题也不可能是第六集有问题，怎么着也是要开生放送。
+
+最多是第七集的预告有活。。</blockquote>
+(当年第二季倒数那几集晚上都开了生放送来着
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

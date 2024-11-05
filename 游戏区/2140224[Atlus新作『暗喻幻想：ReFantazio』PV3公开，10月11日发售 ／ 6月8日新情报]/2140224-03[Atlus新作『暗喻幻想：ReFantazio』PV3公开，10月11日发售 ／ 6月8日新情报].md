@@ -5291,3 +5291,30 @@ Atlus特有的时间焦虑挥之不去。
 
 另外灰雨王家盗贼的前置条件也太多了吧，要开这么多职业，吓一大跳
 
+
+*****
+
+####  kuarwbwe  
+##### 3432#       发表于 2024-11-5 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66624128&amp;ptid=2140224" target="_blank">Pipcat 发表于 2024-11-5 15:11</a>
+
+到10月份了，哎，一堆coop没刷满。尤其是尤法和巴西利奥。
+
+Atlus特有的时间焦虑挥之不去。
+
+另外灰雨王家盗 ...</blockquote>
+十月你有一整个月的自由时间，不要焦虑。时间很充足的。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Pipcat| + 2|好评加鹅|
+
+查看全部评分
+

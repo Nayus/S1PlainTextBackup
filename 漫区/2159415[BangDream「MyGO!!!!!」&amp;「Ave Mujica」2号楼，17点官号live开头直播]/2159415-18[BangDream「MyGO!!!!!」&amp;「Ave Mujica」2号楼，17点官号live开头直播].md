@@ -8206,3 +8206,12 @@ c团里明确的绝对核心目前不是只有祥子吗，灯当主唱当时还�
 问就是c团是祥子为了灯皇而创立的，所以灯是核心</blockquote>
 祥子第一个邀请遇见的人都不是灯，怎么可能为了灯皇而创立的c团<img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿萨德飞过去  
+##### 25840#       发表于 2024-11-5 22:11
+
+这种就和铁暗恋一样，屁股就是歪的
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没必要去理解
+

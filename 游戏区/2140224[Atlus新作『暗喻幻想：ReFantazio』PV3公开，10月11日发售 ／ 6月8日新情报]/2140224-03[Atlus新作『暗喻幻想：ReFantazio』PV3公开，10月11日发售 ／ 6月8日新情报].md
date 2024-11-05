@@ -5518,3 +5518,14 @@ steamdeck固件更新，体验一下子好了许多
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  saverok  
+##### 3452#       发表于 2024-11-5 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66626750&amp;ptid=2140224" target="_blank">xifeilu 发表于 2024-11-5 21:08</a>
+
+话说这游戏有弱点是斩的BOSS吗……回忆起来有难度让我看弱点试组合的BOSS好像印象里除了各种弱点魔法以外， ...</blockquote>
+？好兄弟**oss还需要看属性？蓄力一刀合体全都带走了
+

@@ -6178,3 +6178,45 @@ n站真的幽默完了
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  csolfans  
+##### 595#       发表于 2024-11-5 23:06
+
+ 本帖最后由 csolfans 于 2024-11-5 23:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66627152&amp;ptid=2201887" target="_blank">雪城穗乃香 发表于 2024-11-5 22:17</a>
+
+听说好评人数和上一集基本持平，但差评人数多冒出来两三百人？</blockquote>
+<img src="https://p.sda1.dev/20/9ab130a2b3e1f7adc1c067297493236d/Image_286153047708054.jpg" referrerpolicy="no-referrer">
+
+每一档的人数；多了约200人观看，第三档评分多了41 第四档评分多了94，第五档评分多了89
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  ViyViy  
+##### 596#       发表于 2024-11-5 23:10
+
+直接直奔5厕看看有没有小丑跳舞不就知道这集究竟如何了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过5厕好像炸过一次？
+
+
+*****
+
+####  D麦林  
+##### 597#       发表于 2024-11-5 23:12
+
+上次炸完以后我已经不知道到底哪个拉板才是真正的现行5厕拉板了
+
+*****
+
+####  ads147147  
+##### 598#       发表于 2024-11-5 23:15
+
+突然想到，这不就是你拉心心念念的破圈吗<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+只能说肯定是踩了很奇怪群体的尾巴了，这集花田发挥的真的可以，河村也是卖力卖景点和美色（双关）了，个人预测1能到80也不意外，结果就这也是有点，神奇。。。。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

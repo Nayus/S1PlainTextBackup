@@ -5021,3 +5021,11 @@ DA2那种风格的作品在大制作里怕是独一份了
 一代窝蹲如果和莫瑞甘生孩子是不会死的，而且三代弗莱梅斯也把基兰体内的大恶魔碎片抽走了，走这条线相当 ...</blockquote>
  是说datv剧情啦<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">dai我3年前重新打了一遍全成就还是有印象的， 现在不继承keep设定所以前两代主角都模糊处理了，瓦瑞克不提霍克，伊莎贝拉出场也不提霍克就很扯<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mimighost  
+##### 1107#       发表于 2024-11-5 17:55
+
+所以教会那一套解释这一座彻底成为野史了么？
+

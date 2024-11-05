@@ -6060,3 +6060,26 @@ PTSD
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  仟音一心  
+##### 582#       发表于 2024-11-5 21:32
+
+<img src="https://p.sda1.dev/20/5ed0259fa329b2019e0850c15653425e/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  we89623  
+##### 583#       发表于 2024-11-5 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66626889&amp;ptid=2201887" target="_blank">仟音一心 发表于 2024-11-5 21:32</a></blockquote>
+5率这么高，可见有多少情绪是跟动画本身无关的。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  280041437  
+##### 584#       发表于 2024-11-5 21:35
+
+n站真的幽默完了
+

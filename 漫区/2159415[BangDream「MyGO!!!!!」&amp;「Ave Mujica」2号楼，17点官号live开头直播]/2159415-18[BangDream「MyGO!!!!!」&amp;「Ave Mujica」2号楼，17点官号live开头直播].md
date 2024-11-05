@@ -8185,3 +8185,13 @@ mujica动画播出推迟的一整年：理直气壮“mujica本来就是附庸�
 
 c团里明确的绝对核心目前不是只有祥子吗，灯当主唱当时还是祥子力保下来的，素希当时可都没认同。go团里灯是绝对核心没错。
 
+
+*****
+
+####  -LYRE-  
+##### 25838#       发表于 2024-11-5 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66626849&amp;ptid=2159415" target="_blank">狂热飞鸟 发表于 2024-11-5 21:24</a>
+c团里明确的绝对核心目前不是只有祥子吗，灯当主唱当时还是祥子力保下来的，素希当时可都没认同。go团里灯 ...</blockquote>
+问就是c团是祥子为了灯皇而创立的，所以灯是核心<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

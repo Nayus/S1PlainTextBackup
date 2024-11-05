@@ -4846,3 +4846,32 @@ STEAM可以通过首发最高在线人数推测首发销量的，虽然有特例
 
 然后测试一开群内主要活动就变成卡婊公审大会了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  厨厨？杀！  
+##### 1090#       发表于 2024-11-5 13:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">讲道理龙腾的矮人一直给人一种阴森的感觉啊
+
+
+*****
+
+####  ak123  
+##### 1091#       发表于 2024-11-5 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66623456&amp;ptid=2072996" target="_blank">厨厨？杀！ 发表于 2024-11-5 13:39</a>
+
+讲道理龙腾的矮人一直给人一种阴森的感觉啊</blockquote>
+也没差，dao的矮人就是个充满阶级种性压迫，尔虞我诈的达尔文社会，好人镇不住场子没多久就会被推翻
+
+*****
+
+####  厨厨？杀！  
+##### 1092#       发表于 2024-11-5 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66623496&amp;ptid=2072996" target="_blank">ak123 发表于 2024-11-5 13:44</a>
+
+也没差，dao的矮人就是个充满阶级种性压迫，尔虞我诈的达尔文社会，好人镇不住场子没多久就会被推翻 ...</blockquote>
+还有那个巢母<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+

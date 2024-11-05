@@ -6229,3 +6229,14 @@ n站真的幽默完了
 现在最希望的是企划会算数，别看到63%就腿软了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 或者第五层，知道有这种情况赶紧在季番里给你高规格认真搞两集正式封笔。
 
+
+*****
+
+####  ruffian  
+##### 600#       发表于 2024-11-6 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66627582&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-11-05 23:45:58</a>
+现在最希望的是企划会算数，别看到63%就腿软了</blockquote>企划怎么会拿个两千多人参与的n站评分当参考……
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

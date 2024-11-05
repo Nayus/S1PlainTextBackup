@@ -5466,3 +5466,21 @@ steamdeck固件更新，体验一下子好了许多
 后期剧情，其实我觉得还行吧，不好不坏，目前为止还是比较稳 ...</blockquote>
 主角并不算是犹豫吧，配合后面剧情，这里发挥不稳定反而算是一个小伏笔。
 
+
+*****
+
+####  hkguty  
+##### 3447#       发表于 2024-11-5 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66626021&amp;ptid=2140224" target="_blank">kuarwbwe 发表于 2024-11-5 19:02</a>
+
+其实没问题。这游戏你打完龙宫解锁大舅哥改天气的功能。然后尤法试炼场和塔都是常驻坏天气的。说白了就是 ...</blockquote>
+如果你打完龙宫再去打，中途的迷宫就会显得太过简单，而他这里是设计成一直线航路的，如果你要别人打完龙宫再去走这条航路清支线，那就应该中途的迷宫也设置成相应的等级
+
+*****
+
+####  fatzhi  
+##### 3448#       发表于 2024-11-5 19:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我在龙宫吃完屎再清的支线，反正都得吃一回
+

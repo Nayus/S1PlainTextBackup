@@ -234,3 +234,14 @@ LV4，合计88连出了黑猫，寡妇平时就不用也没凸点就随缘啦<im
 
 好吧群友说了是動画而不是アニメ，所以应该还是3D小短片了。
 
+
+*****
+
+####  希望之花  
+##### 1252#       发表于 2024-11-5 19:59
+
+你游在秋叶原animate后门贴了活动海报<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+乡民看到后大不解你贴这里干啥
+[https://x.com/blackcat_phos4/status/1853373809744605466](https://x.com/blackcat_phos4/status/1853373809744605466)
+

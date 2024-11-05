@@ -4833,3 +4833,16 @@ STEAM可以通过首发最高在线人数推测首发销量的，虽然有特例
 
 又不是上一作只有小绿手能关裂缝
 
+
+*****
+
+####  放大镜  
+##### 1089#       发表于 2024-11-5 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66622654&amp;ptid=2072996" target="_blank">西弗 发表于 2024-11-5 11:52</a>
+
+但是谁在说“老玩家”哪玩得下去这坨，以及死忠粉是DAI粉啊，怪猎代际歧视好歹有换平台的因素在，就算辐射 ...</blockquote>
+说到怪猎，这次撞上荒野测试也不能说完全没影响。至少测试消息放出来之前群里偶尔还能见着瞎猜DA4系统的，其中有一部分没玩过前作，都是顺着话题闲聊
+
+然后测试一开群内主要活动就变成卡婊公审大会了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

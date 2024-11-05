@@ -1799,3 +1799,11 @@ wys总是在大家以为他改性了的时候证明自己<img src="https://stati
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  DARKGRAY  
+##### 15091#       发表于 2024-11-5 19:03
+
+每回合30星打蓝爆吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

@@ -5442,3 +5442,15 @@ steamdeck固件更新，体验一下子好了许多
 盲信之塔主要是那个骷髅仙人还会召唤就真的恶心，你一个高我十级的怪就算了，还一下来三个
 到了boss更是又高了5级就算了还疯狂群体降攻，真的太恶意了
 
+
+*****
+
+####  kuarwbwe  
+##### 3445#       发表于 2024-11-5 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66625828&amp;ptid=2140224" target="_blank">hkguty 发表于 2024-11-5 18:37</a>
+那个塔我觉得可能数值设计有问题，可能后面会调整，围绕龙神岛外面的一圈是一整条航路的，应该是一路做支线 ...</blockquote>
+其实没问题。这游戏你打完龙宫解锁大舅哥改天气的功能。然后尤法试炼场和塔都是常驻坏天气的。说白了就是让你先去龙宫再打这俩地。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

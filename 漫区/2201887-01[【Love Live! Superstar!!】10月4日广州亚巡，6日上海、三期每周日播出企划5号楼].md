@@ -6254,3 +6254,16 @@ n站真的幽默完了
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  ViyViy  
+##### 602#       发表于 2024-11-6 00:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66627688&amp;ptid=2201887" target="_blank">ads147147 发表于 2024-11-6 00:09</a>
+
+角川当年都没鸟过的玩意，代便更不会鸟，更何况高达早就被叼好多次了。
+
+—— 来自 OPPO PHN110, Android ...</blockquote>
+差点忘了角川干了件更劲爆的事情<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

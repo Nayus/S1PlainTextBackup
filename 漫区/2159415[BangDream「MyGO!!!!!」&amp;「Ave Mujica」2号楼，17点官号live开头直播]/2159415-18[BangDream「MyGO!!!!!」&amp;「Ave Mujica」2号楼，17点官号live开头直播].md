@@ -8294,3 +8294,34 @@ c团里明确的绝对核心目前不是只有祥子吗，灯当主唱当时还�
 
 如果没有的话，可能会是接下来出问题的点之一
 
+
+*****
+
+####  rinku  
+##### 25844#       发表于 2024-11-6 00:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66627455&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-11-5 23:21</a>
+第三话的情节是非常有误导性的，这里的关键是，月之森音乐祭是Morfonica的初Live（就连名字都是音乐祭之前 ...</blockquote>
+修正一下，春日影在咖啡馆后面，春日影是库拉西裤的歌，不是灯祥的歌
+
+*****
+
+####  好想看Mujica啊  
+##### 25845#       发表于 2024-11-6 00:29
+
+老登害了祥子，本来应该是ksm、kkr那种类型的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 25846#       发表于 2024-11-6 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66627695&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-11-6 00:10</a>
+
+祥子和真希这条线路目前一点东西都没给
+
+只能从动画和手游文本一起推测出是都心地区的管弦乐竞技大会（日本 ...</blockquote>
+如果只是看演出的关系，谈不上“親交”，虽然吹奏乐部有钢琴，但是真希参加了地方的管弦乐团，所以真希不太可能是弹钢琴的
+
+用“前々”说明关系已经很久了，椎名家是普通中产，也不像是家族关系
+

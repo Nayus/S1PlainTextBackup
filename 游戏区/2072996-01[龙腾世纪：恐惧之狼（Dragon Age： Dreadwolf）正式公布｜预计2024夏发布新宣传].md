@@ -5010,3 +5010,14 @@ DA2那种风格的作品在大制作里怕是独一份了
 这代keep都不用了，把玩家前三代的努力全切割了，比如一代最后让洛根当灰卫，三代影界就能让洛根殿后赎罪 ...</blockquote>
 这代摆出来的态度基本就是软重启的意思，只不过这软重启吧，显然也是谁也没能讨好到
 
+
+*****
+
+####  sosgame67  
+##### 1106#       发表于 2024-11-5 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66624479&amp;ptid=2072996" target="_blank">csodaszarvas 发表于 2024-11-5 15:52</a>
+
+一代窝蹲如果和莫瑞甘生孩子是不会死的，而且三代弗莱梅斯也把基兰体内的大恶魔碎片抽走了，走这条线相当 ...</blockquote>
+ 是说datv剧情啦<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">dai我3年前重新打了一遍全成就还是有印象的， 现在不继承keep设定所以前两代主角都模糊处理了，瓦瑞克不提霍克，伊莎贝拉出场也不提霍克就很扯<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

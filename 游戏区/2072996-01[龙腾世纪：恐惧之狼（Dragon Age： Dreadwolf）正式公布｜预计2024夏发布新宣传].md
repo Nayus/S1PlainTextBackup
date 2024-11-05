@@ -4645,3 +4645,24 @@ STEAM可以通过首发最高在线人数推测首发销量的，虽然有特例
 
 这龙腾2，最高8W的在线人数，口碑不咋地，STEAM要过100W挺难的。可能真像给了9分的IGN说的，可能不会有续作了。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  llysander  
+##### 1073#       发表于 2024-11-5 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66620885&amp;ptid=2072996" target="_blank">mimighost 发表于 2024-11-5 08:33</a>
+
+感觉已经不是woke的问题了。。。
+
+我觉在游戏里面夹杂这个，主创已经疯了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer"> 我一直觉得以前da营造的世界氛围是你死我活级别生存压力下的歧视、偏见、压迫。
+
+然而在生存的名义下一切都是合理，所以更绝望。
+
+明明是个能套现实里所有对立议题又不出戏的起点。
+
+比方说：一个fade spirit完全控制了肉身甚至部分憎恶化，但是自我认同为人类，这不比性别议题尖锐多了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"> 而且也不出戏，dao的Wynne奶奶更深入一阶段而已。
+
+但大概笔力不够只能写点自我投影...吧（摊手
+

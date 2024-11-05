@@ -8143,3 +8143,13 @@ mujica动画播出推迟的一整年：理直气壮“mujica本来就是附庸�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">海鈴給人感覺，如果動物塑就會是訓練有素的軍犬，確實就是會幫leader打理各種事情的定位
 
+
+*****
+
+####  rikaren  
+##### 25834#       发表于 2024-11-5 13:47
+
+<blockquote>novalli 发表于 2024-11-3 18:57
+这么说的话，睦是怎么加入的？祥子一邀请就加入了？还是默认就是乐队成员或者一直有在一起合奏？睦的视角还 ...</blockquote>
+考虑到crychic的logo设计，其实是可以贷祥很早就想和睦一起进行什么活动（组乐队或者其他事情都有可能），m团演出的时候开始具体行动，毕竟那个logo我只看得出睦祥的元素，另外三个人的看不出来，logo很早就设计好的可能也有。
+

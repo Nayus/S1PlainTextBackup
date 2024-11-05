@@ -15244,3 +15244,11 @@ fbk你
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天又玩什么沙雕游戏
 
+
+*****
+
+####  holoan  
+##### 10135#         楼主| 发表于 2024-11-5 20:36
+
+9天百万播放，目前为止所有MV里最快的，虽然内容还是粉丝向并没有特别能够火到外部环境的元素，所以真就是粉丝的力量了
+

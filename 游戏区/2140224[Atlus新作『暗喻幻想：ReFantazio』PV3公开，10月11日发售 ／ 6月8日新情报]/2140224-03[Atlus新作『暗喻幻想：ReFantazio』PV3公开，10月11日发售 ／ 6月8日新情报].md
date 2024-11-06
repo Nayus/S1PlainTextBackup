@@ -5643,3 +5643,20 @@ steamdeck固件更新，体验一下子好了许多
 
 这破游戏还能战斗中读档的？不是指回到第一回合哦。我都是直接alt+f4再进游戏的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Lynn冰翎  
+##### 3464#       发表于 2024-11-6 11:24
+
+<blockquote>sonnabanana 发表于 2024-11-6 10:30
+谁点的Meta</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202411/06/112420aez0b88j77wu7o70.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-11-06-11-23-34-13_99c04817c0de5652397fc8b56c3b3817.jpg</strong> (87.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-6 11:24 上传
+

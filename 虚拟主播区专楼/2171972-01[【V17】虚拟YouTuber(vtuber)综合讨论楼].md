@@ -402,3 +402,13 @@ Alisa只是直播不多名气不高+把前世都删了而已
 
 もか可能活动时间比较长，但这直播一眼就不是很熟练<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过我之前的说法也就图个乐，更加可信的说法要多少有多少
 
+
+*****
+
+####  バーチャルS1er  
+##### 869#       发表于 2024-11-6 11:19
+
+[https://bbs.jpnkn.com/hololiveneet/](https://bbs.jpnkn.com/hololiveneet/)
+[https://bbs.jpnkn.com/nijifunbbs/subback.html](https://bbs.jpnkn.com/nijifunbbs/subback.html)
+[https://bbs.jpnkn.com/vspofan/](https://bbs.jpnkn.com/vspofan/)
+

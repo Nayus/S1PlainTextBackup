@@ -8401,3 +8401,31 @@ c团里明确的绝对核心目前不是只有祥子吗，灯当主唱当时还�
 </blockquote>
 常服睦祥可爱。这套有其他三人的吗？
 
+
+*****
+
+####  stygian  
+##### 25852#       发表于 2024-11-6 15:09
+
+l
+
+<img src="https://img.saraba1st.com/forum/202411/06/150915vl2il4oz8o8g9gl6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (14.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-6 15:09 上传
+
+老登跑成都干嘛？
+
+
+*****
+
+####  Milarvoz  
+##### 25853#       发表于 2024-11-6 15:15
+
+4th加场成都和tv先行上映（不是<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+

@@ -637,3 +637,11 @@ ns卡带第一次插入ns2的时候应该要联网吧，一是下载新机专用
 
 古川都没我懂NS2
 
+
+*****
+
+####  永远的访客  
+##### 71#       发表于 2024-11-6 17:28
+
+等于没说，就是向下兼容一代的卡带呗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

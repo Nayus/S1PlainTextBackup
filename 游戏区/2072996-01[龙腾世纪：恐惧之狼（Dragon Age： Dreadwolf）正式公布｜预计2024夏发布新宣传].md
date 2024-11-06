@@ -5175,3 +5175,25 @@ DEI不会让好游戏变差也不会让差游戏变好。
 
 就这个制作时间少说200W到300W回本。
 
+
+*****
+
+####  zzf111  
+##### 1121#       发表于 2024-11-6 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66628730&amp;ptid=2072996" target="_blank">含恨未了切莫死 发表于 2024-11-6 09:22</a>
+
+看索拉斯回忆崩不住了，这都什么傻逼台词，从今天起成为DAV黑子</blockquote>
+草，居然有真的战犯文本
+
+
+*****
+
+####  lega-II  
+##### 1122#       发表于 2024-11-6 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66629533&amp;ptid=2072996" target="_blank">Edvinno 发表于 2024-11-6 10:41</a>
+
+那要说去掉库纳利的部分，现在这帮自由平等塔文特，团结互助野精灵，温馨家庭安提梵，知心大姐伊莎贝拉， ...</blockquote>
+还有那些寡淡到出水的队友罗曼史， 连接个吻都跟20年前的肥皂剧一样遮遮掩掩，这实在是太明显不过了。
+

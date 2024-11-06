@@ -1823,3 +1823,18 @@ wys总是在大家以为他改性了的时候证明自己<img src="https://stati
 
 吐了 不会还来个riyo的破活动吧
 
+
+*****
+
+####  eilot  
+##### 15094#       发表于 2024-11-6 22:53
+
+又來甚麼活動前夜祭，即是有兩星期長草期...
+
+*****
+
+####  khxooo  
+##### 15095#       发表于 2024-11-6 22:56
+
+奥伯龙你行不行？每次1动都是加BUFF，送不下人啊<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+

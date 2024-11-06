@@ -502,3 +502,29 @@ ns卡带第一次插入ns2的时候应该要联网吧，一是下载新机专用
 到时候新机如果要买高速microSD卡也要不少钱,还是继续普通microSD卡,每次玩游戏拷贝到内置储存体里?
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  封面杀手  
+##### 58#       发表于 2024-11-6 13:20
+
+盖个毛土，信不信下周销量依然高于PS5+PS5pro
+
+*****
+
+####  sslink  
+##### 59#       发表于 2024-11-6 13:21
+
+给个分辨率提升不过分吧，古川不要不知好歹<img src="https://static.saraba1st.com/image/smiley/carton2017/385.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ycy8332589  
+##### 60#       发表于 2024-11-6 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66629114&amp;ptid=2205882" target="_blank">warjuggler 发表于 2024-11-6 10:01</a>
+
+如果支持现在的卡带的话，那现在的烧录卡也能继续用了，等于发售即破解了 ...</blockquote>
+谁也不知道烧录卡这事后面两年怎么发展，但你现在不说兼容，影响今年圣诞节游戏销量
+

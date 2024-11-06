@@ -550,3 +550,24 @@ ns卡带第一次插入ns2的时候应该要联网吧，一是下载新机专用
 如果支持现在的卡带的话，那现在的烧录卡也能继续用了，等于发售即破解了 ...</blockquote>
 你可以现在把烧录卡插在 ns 上 ban 了自己<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  chaos7  
+##### 63#       发表于 2024-11-6 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66631263&amp;ptid=2205882" target="_blank">heseran 发表于 2024-11-6 13:28</a>
+
+换个思路想如果你现在都要插512G卡才刚刚够用，随着机能提升后期游戏体积肯定比现在更大，NS2内置512G你 ...</blockquote>
+其实我希望主机模式的底座支持外置SSD,
+
+主要是我通关后的游戏,一个月可能只打开一两次,
+
+但又不能删除游戏,每次重新下载,这又太过麻烦了,
+
+反正我只是定期开游逛一逛怀念一下,不介意只能在主机模式玩,
+
+然后内置储存放新游戏和未通关的游戏,方便外出时随时用手提模式玩,
+
+这样说不定内置256GB挺足够,然后买个2TB外置SSD也不贵,应该是对我来说最好的解决方案。
+

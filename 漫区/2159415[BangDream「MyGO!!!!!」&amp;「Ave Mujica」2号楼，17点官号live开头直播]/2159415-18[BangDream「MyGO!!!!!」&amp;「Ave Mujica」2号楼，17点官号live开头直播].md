@@ -8480,3 +8480,18 @@ l
 
 如果只是跟着工作的祥爹去参观比赛才认识就合理一点，有机会多次见面但大众认知度不高
 
+
+*****
+
+####  PDQ4  
+##### 25859#       发表于 2024-11-6 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66634357&amp;ptid=2159415" target="_blank">NODY 发表于 2024-11-6 18:17</a>
+ 主要是讨论怎么认识真希，如果是比赛参加多了经常共演才认识，那剧情里面应该会强调一下祥子得过多少奖之 ...</blockquote>
+其实这两人怎么认识，有一个盲盒就是真希到底是什么样的人
+白祥是个参考高尾的超级阳角，真希现在只知道声名远扬，如果也是个super阳角那根本不用思考怎么认识的，只要见一面就能从音乐畅谈到人生理想未来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+戏剧性可以偶遇，去听演奏会发现哇原来就是你
+纯背景那就更无所谓，理由太多
+
+动画大概率不会交代，如果明年要大卖希祥另说，我是挺乐意看到姐出场的
+

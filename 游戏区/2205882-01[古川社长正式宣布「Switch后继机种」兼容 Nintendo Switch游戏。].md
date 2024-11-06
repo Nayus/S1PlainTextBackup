@@ -738,3 +738,15 @@ UMD？光驱塞在掌机里连PSV都不做了，居然还有复辟的？NS被破
 UMD？光驱塞在掌机里连PSV都不做了，居然还有复辟的？NS被破解和老任没关系，是老黄的芯片漏洞。再说了， ...</blockquote>
 他说的是烧录卡
 
+
+*****
+
+####  clyde-wang  
+##### 81#       发表于 2024-11-6 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66634448&amp;ptid=2205882" target="_blank">npk7k_1 发表于 2024-11-6 18:30</a>
+他说的是烧录卡</blockquote>
+就现在的烧录卡体验和当年的烧录卡完全没法比，现在还需要各种正版卡验证而且也很容易被识别。
+
+他的问题我觉得应该是偷跑dump rom吧
+

@@ -5751,3 +5751,16 @@ p系列不同在于，它一直鼓励你otk。你从进入迷宫一开始就有�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  milky658  
+##### 3473#       发表于 2024-11-6 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66634482&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-11-6 18:35</a>
+
+官方提供了你轮椅，很多人懒得研究直接套用轮椅罢了，给公式感罪名太莫须有了。不用好兄弟无脑合题的打法 ...</blockquote>
+可能是我职业还没开全吧，饰品好兄弟之类的轮椅也还没开出来，打精英确实有些重复疲劳了，思路还局限在这么一回合两回合杀。等全解锁二周目再仔细探探，毕竟肉眼可见地性能过剩，花活应该能整一些。大部分时间玩得还挺开心，真有加强版也不是不能凯。
+
+我出差断网回来看到这游戏被扣上zzzq的帽子时候也已经笑岔气了，梦回小机器人被批斗，A社把P5天下第一当真自信宣发肯定想不到自己能有这待遇<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

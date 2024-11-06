@@ -6306,3 +6306,26 @@ https://jbbs.shitaraba.net/anime/11210/
 
 不过如果这集住的酒店真是康莱德的话，那等于住了钟家的酒店 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViyViy  
+##### 607#       发表于 2024-11-6 10:52
+
+对小孩子的影响不可估量口牙
+
+<img src="https://img.saraba1st.com/forum/202411/06/105034wrse5bez6zsdjfjf.png" referrerpolicy="no-referrer">
+
+<strong>QQ20241106-105019.png</strong> (507.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-6 10:50 上传
+
+*****
+
+####  stygian  
+##### 608#       发表于 2024-11-6 10:52
+
+したらば活人也不多，或者说揭示板就这样了，之前经常看的你拉まとめ站都转型做综合まとめ了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

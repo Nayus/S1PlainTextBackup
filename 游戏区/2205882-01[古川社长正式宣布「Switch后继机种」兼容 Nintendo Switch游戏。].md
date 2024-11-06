@@ -457,3 +457,13 @@ ns卡带第一次插入ns2的时候应该要联网吧，一是下载新机专用
 现在就有差异了</blockquote>
 想起那个ps4外置硬盘usb3.0比内置硬盘sata2快的笑话。
 
+
+*****
+
+####  GuardHei  
+##### 53#       发表于 2024-11-6 12:28
+
+来个fps boost吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

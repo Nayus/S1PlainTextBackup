@@ -15262,3 +15262,40 @@ fbk你
 
 确实NB，特别是里面几个大的目标 sololive，出大量曲子、MV，今年在活动上使用的资金是以往最多的这几个大的全部达成，现在想当时或许其实已经知道今年一定会做这些事了所以定的目标吧
 
+
+*****
+
+####  holoan  
+##### 10137#         楼主| 发表于 2024-11-5 22:03
+
+刚才直播里提到的她今天看到推上有人说年初给今年定的目标全部达成的截图我下午刷推刚好也看到了，不过没存图
+
+确实NB，特别是里面几个大的目标 sololive，出大量曲子、MV，今年在活动上使用的资金是以往最多的这几个大的全部达成，现在想当时或许其实已经知道今年一定会做这些事了所以定的目标吧
+
+*****
+
+####  holoan  
+##### 10138#         楼主| 发表于 2024-11-6 11:41
+
+实物图
+
+<img src="https://img.saraba1st.com/forum/202411/06/113846qeehn5eizpwpwrdp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (445.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-6 11:38 上传
+
+效果图
+
+<img src="https://img.saraba1st.com/forum/202411/06/114042qwwdtjwiuwzt4uww.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (162.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-6 11:40 上传
+
+感觉有点逗
+

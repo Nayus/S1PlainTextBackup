@@ -750,3 +750,14 @@ UMD？光驱塞在掌机里连PSV都不做了，居然还有复辟的？NS被破
 
 他的问题我觉得应该是偷跑dump rom吧
 
+
+*****
+
+####  强尼高达  
+##### 82#       发表于 2024-11-6 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66629086&amp;ptid=2205882" target="_blank">heseran 发表于 2024-11-6 09:59</a>
+PS2和PS3也干过，PS5出来的时候你也觉得是塞了一颗美洲豹吗有些没道理是不是 ...</blockquote>
+PS2塞了一颗PS的CPU R3000作为IO芯片，顺带用来跑PS游戏
+PS3厚机塞了一整套PS2的芯片用来跑PS2游戏，其中当然包括R3000；薄机取消了这些东西，用收购的VGS模拟PS，所以只保留了PS的向下兼容，但是没有PS2
+

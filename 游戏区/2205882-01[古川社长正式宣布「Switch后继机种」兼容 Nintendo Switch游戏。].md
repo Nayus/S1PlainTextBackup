@@ -398,3 +398,23 @@ NS卡带大小感觉也没啥优化空间了，做更小反而不方便插拔，
 
 ns卡带第一次插入ns2的时候应该要联网吧，一是下载新机专用的着色器，二是防烧录卡
 
+
+*****
+
+####  particle  
+##### 47#       发表于 2024-11-6 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66629431&amp;ptid=2205882" target="_blank">天堂大法 发表于 2024-11-6 10:33</a>
+
+现在海关扒出来的消息，就是UFS3.1</blockquote>
+那倒是挺好呀，大小有泄露嘛？希望有最起码512G
+
+*****
+
+####  UCXCU  
+##### 48#       发表于 2024-11-6 10:44
+
+新机内置存储读写性能应该比大概率使用的扩容存储tf 卡快很多吧？不知道到时候会不会因为游戏存储位置产生读盘速度差异
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

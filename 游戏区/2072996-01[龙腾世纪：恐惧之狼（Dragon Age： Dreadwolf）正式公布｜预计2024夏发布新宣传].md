@@ -5133,3 +5133,14 @@ DEI不会让好游戏变差也不会让差游戏变好。
 
 反woke警察还行，反反woke警察不如先去问问woke警察是不是先把游戏当工具来制作而不是当游戏来制作了<img src="https://static.saraba1st.com/image/smiley/face/159.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Edvinno  
+##### 1117#       发表于 2024-11-6 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66628610&amp;ptid=2072996" target="_blank">lega-II 发表于 2024-11-6 09:07</a>
+
+写的不好显然不可能只是写手的问题，当然有方针的问题，没人在怪写手。 明显这作的写作风格就是给小朋友 ...</blockquote>
+那要说去掉库纳利的部分，现在这帮自由平等塔文特，团结互助野精灵，温馨家庭安提梵，知心大姐伊莎贝拉，都只是因为要写给小朋友看，完全和私货没关系那也行。
+

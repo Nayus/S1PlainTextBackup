@@ -8437,3 +8437,23 @@ l
 
 问了下说可能是天府红那边的武士道店？
 
+
+*****
+
+####  紫吹兰  
+##### 25855#         楼主| 发表于 2024-11-6 17:59
+
+ 本帖最后由 紫吹兰 于 2024-11-6 18:01 编辑 
+
+去四川爱美老家考察是吧，几个大学聚集地其实都可以开个店试试，武汉西安南京北京都转转吧，另外上海其实可以把esp拉过来在隔壁开个店，邦标在大陆的销量其实挺可观的
+
+
+*****
+
+####  PDQ4  
+##### 25856#       发表于 2024-11-6 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66630639&amp;ptid=2159415" target="_blank">skives 发表于 2024-11-6 12:23</a>
+</blockquote>
+这个来源是哪，转了一圈没看哪有卖的，偷跑吗<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+

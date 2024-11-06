@@ -707,3 +707,14 @@ PS那边也有一堆AI垃圾游戏，怕不是没法治<img src="https://static.
 
 那东西是真sb，不如卡带。
 
+
+*****
+
+####  clyde-wang  
+##### 78#       发表于 2024-11-6 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66634009&amp;ptid=2205882" target="_blank">椎名mahuyo 发表于 2024-11-6 17:41</a>
+继承旧机最蛋疼的，还是新机一出就被光速破解被骑脸吧 
+要我说，卡带这介质真不行，速度太慢了，速度可以快 ...</blockquote>
+UMD？光驱塞在掌机里连PSV都不做了，居然还有复辟的？NS被破解和老任没关系，是老黄的芯片漏洞。再说了，PSP和PSV说得没被破解一样，就连PS5也有破解，只是系统版本低罢了
+

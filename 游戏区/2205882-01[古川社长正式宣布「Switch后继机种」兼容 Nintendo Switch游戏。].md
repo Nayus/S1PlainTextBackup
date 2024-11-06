@@ -621,3 +621,11 @@ ns卡带第一次插入ns2的时候应该要联网吧，一是下载新机专用
 
 还是电子版兼容，但卡槽不兼容旧版NS卡带？
 
+
+*****
+
+####  Slyvan  
+##### 69#       发表于 2024-11-6 16:03
+
+古川像极了被任任宣判死刑 , 然后每段时间都拿点不一样的东西上诉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

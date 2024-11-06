@@ -5100,3 +5100,28 @@ DEI不会让好游戏变差也不会让差游戏变好。
 
 2024-11-6 09:22 上传
 
+
+*****
+
+####  trentswd  
+##### 1113#       发表于 2024-11-6 09:48
+
+这一代相比三代强的地方只剩剧情节奏和地编的
+剧情和队友人物真的平淡如水，这要不是龙腾世纪我还能当爆米花玩，但是想到上个月刚重玩的dai就算主线boss毫无排面，探讨的问题涉及的设定都比这个复杂十倍我就不能跟他和解
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  sosgame67  
+##### 1114#       发表于 2024-11-6 09:48
+
+这代rook这预设主角性格就是伟光正傻白甜，别说叛逆斜坡了，da2霍克的阴阳怪气都比不上<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  sosgame67  
+##### 1115#       发表于 2024-11-6 09:50
+
+哦顺带看完结局我是真建议宰了蛋头这傻逼玩意，真结局按头和解简直了，只有最傻逼的蛋头梦女能吃下这坨屎吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

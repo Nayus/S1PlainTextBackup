@@ -5162,3 +5162,16 @@ DEI不会让好游戏变差也不会让差游戏变好。
 
 销量有说法吗？
 
+
+*****
+
+####  震荡波  
+##### 1120#       发表于 2024-11-6 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66633774&amp;ptid=2072996" target="_blank">爱吃冻鳗的猫 发表于 2024-11-6 17:15</a>
+
+销量有说法吗？</blockquote>
+现在STEAM据说20W，全平台40W，我个人推测最终100W左右。
+
+就这个制作时间少说200W到300W回本。
+

@@ -528,3 +528,25 @@ ns卡带第一次插入ns2的时候应该要联网吧，一是下载新机专用
 如果支持现在的卡带的话，那现在的烧录卡也能继续用了，等于发售即破解了 ...</blockquote>
 谁也不知道烧录卡这事后面两年怎么发展，但你现在不说兼容，影响今年圣诞节游戏销量
 
+
+*****
+
+####  heseran  
+##### 61#       发表于 2024-11-6 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66630979&amp;ptid=2205882" target="_blank">chaos7 发表于 2024-11-6 12:57</a>
+
+内置256GB不够用吧,我现在switch插了张512GB的microSD卡才刚好够用,
+
+到时候新机如果要买高速microSD卡也要 ...</blockquote>
+换个思路想如果你现在都要插512G卡才刚刚够用，随着机能提升后期游戏体积肯定比现在更大，NS2内置512G你大概率还是不够用还得插卡，这么一想是不是一下就跟256G和解了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猫不萌  
+##### 62#       发表于 2024-11-6 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66629114&amp;ptid=2205882" target="_blank">warjuggler 发表于 2024-11-6 10:01</a>
+如果支持现在的卡带的话，那现在的烧录卡也能继续用了，等于发售即破解了 ...</blockquote>
+你可以现在把烧录卡插在 ns 上 ban 了自己<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -5668,3 +5668,13 @@ steamdeck固件更新，体验一下子好了许多
 
 这游戏突入战斗确实蛮奇怪的，有的时候给你选人，有的时候默认阵容就上了，有次不知道为啥把其他人都卸了，进入战斗直接孤零零，还要濒死一个个把队友换上来
 
+
+*****
+
+####  牙狼GARO  
+##### 3466#       发表于 2024-11-6 15:26
+
+打完最终boss进入后日谈的时候可以刷踩飞剑里程吗？我平时都是传送，这会儿steamdeck压着压杆转圈呢<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -5125,3 +5125,11 @@ DEI不会让好游戏变差也不会让差游戏变好。
 
 哦顺带看完结局我是真建议宰了蛋头这傻逼玩意，真结局按头和解简直了，只有最傻逼的蛋头梦女能吃下这坨屎吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Bieaeml  
+##### 1116#       发表于 2024-11-6 09:59
+
+反woke警察还行，反反woke警察不如先去问问woke警察是不是先把游戏当工具来制作而不是当游戏来制作了<img src="https://static.saraba1st.com/image/smiley/face/159.gif" referrerpolicy="no-referrer">
+

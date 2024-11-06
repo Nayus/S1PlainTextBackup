@@ -728,3 +728,13 @@ UMD？光驱塞在掌机里连PSV都不做了，居然还有复辟的？NS被破
 
 —— 来自 realme RMX3708, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  npk7k_1  
+##### 80#       发表于 2024-11-6 18:30
+
+<blockquote>clyde-wang 发表于 2024-11-6 18:06
+UMD？光驱塞在掌机里连PSV都不做了，居然还有复辟的？NS被破解和老任没关系，是老黄的芯片漏洞。再说了， ...</blockquote>
+他说的是烧录卡
+

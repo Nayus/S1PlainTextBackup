@@ -5733,3 +5733,21 @@ p系列不同在于，它一直鼓励你otk。你从进入迷宫一开始就有�
 大头塑造其实比我想象的好，没想到是很独立自信的女性，大概是参考了一些历史上的女明星吧，不过尤法入队后 ...</blockquote>
 太像茜茜公主了,只差唱一首 我只属于我自己，甚至都有这样的台词
 
+
+*****
+
+####  罗克萨斯  
+##### 3472#       发表于 2024-11-6 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66634265&amp;ptid=2140224" target="_blank">milky658 发表于 2024-11-6 18:07</a>
+刚好smtvv更新，回去又开了一周目开荒，忍不住轻哼了起来，发点对战斗系统拙见吧:
+
+暗喻东拼西凑缝合了很多 ...</blockquote>
+官方提供了你轮椅，很多人懒得研究直接套用轮椅罢了，给公式感罪名太莫须有了。不用好兄弟无脑合题的打法不是没有，只不过被功利的玩家抛弃了
+
+【暗喻幻想63级打Hard90级真毁灭王路易走流程演示带解说-哔哩哔哩】 https://b23.tv/wXX99wb
+
+不得不说，把这游戏倒批臭屁已经成为国内的ZZZQ了，给我提供了不少乐子<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

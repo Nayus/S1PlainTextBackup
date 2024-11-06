@@ -773,3 +773,16 @@ PS2塞了一颗PS的CPU R3000作为IO芯片，顺带用来跑PS游戏
 PS3厚机塞了一整套PS2的芯片用来跑PS2游戏，其中 ...</blockquote>
 我觉得他肯定知道这些
 
+
+*****
+
+####  navarra  
+##### 84#       发表于 2024-11-6 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66634860&amp;ptid=2205882" target="_blank">强尼高达 发表于 2024-11-6 19:30</a>
+PS2塞了一颗PS的CPU R3000作为IO芯片，顺带用来跑PS游戏
+PS3厚机塞了一整套PS2的芯片用来跑PS2游戏，其中 ...</blockquote>
+ps3兼容ps2还有欧版的情况，砍了ee，只保留gs，ee用cpu模拟
+
+—— 来自 samsung SM-X710, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

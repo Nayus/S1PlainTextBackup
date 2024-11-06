@@ -5678,3 +5678,11 @@ steamdeck固件更新，体验一下子好了许多
 
 —— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Mostovoi  
+##### 3467#       发表于 2024-11-6 16:46
+
+后期全是换皮怪
+

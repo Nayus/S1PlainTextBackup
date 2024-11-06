@@ -5686,3 +5686,14 @@ steamdeck固件更新，体验一下子好了许多
 
 后期全是换皮怪
 
+
+*****
+
+####  Jimlee080  
+##### 3468#       发表于 2024-11-6 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66630015&amp;ptid=2140224" target="_blank">TiiTiiLL 发表于 2024-11-6 11:27</a>
+
+这游戏突入战斗确实蛮奇怪的，有的时候给你选人，有的时候默认阵容就上了，有次不知道为啥把其他人都卸了， ...</blockquote>
+换人是有强制上场的角色才有，普通战斗只能altf4或者送死重开
+

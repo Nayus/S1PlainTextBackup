@@ -571,3 +571,19 @@ ns卡带第一次插入ns2的时候应该要联网吧，一是下载新机专用
 
 这样说不定内置256GB挺足够,然后买个2TB外置SSD也不贵,应该是对我来说最好的解决方案。
 
+
+*****
+
+####  heseran  
+##### 64#       发表于 2024-11-6 13:49
+
+ 本帖最后由 heseran 于 2024-11-6 13:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66631410&amp;ptid=2205882" target="_blank">chaos7 发表于 2024-11-6 13:42</a>
+
+其实我希望主机模式的底座支持外置SSD,
+
+主要是我通关后的游戏,一个月可能只打开一两次,
+
+但又不能删除游戏 ...</blockquote>
+那运行外置SSD里的游戏时，要是打着打着需要切换成掌机模式直接带走或者躺在床上玩怎么办，存档关游戏然后现传然后再打开游戏读档吗？要是那种需要找到存档点才能存档的游戏呢？<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">可能新PSP那种串流设备或者SD比较符合你的使用场景，打完的游戏放在PC、PS5里，没打完的游戏放在SD上，云存档互通，平时用电脑或者PS5玩通关的游戏，出门用SD或者PSP串流新游戏。
+

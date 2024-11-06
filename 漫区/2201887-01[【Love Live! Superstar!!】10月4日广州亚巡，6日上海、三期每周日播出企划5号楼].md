@@ -6329,3 +6329,11 @@ https://jbbs.shitaraba.net/anime/11210/
 
 したらば活人也不多，或者说揭示板就这样了，之前经常看的你拉まとめ站都转型做综合まとめ了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  金属化反射装甲  
+##### 609#       发表于 2024-11-6 11:00
+
+闹麻了，如果去的是夏威夷哈基日还会哈气吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

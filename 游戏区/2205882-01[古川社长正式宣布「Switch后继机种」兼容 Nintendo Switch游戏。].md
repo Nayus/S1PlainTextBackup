@@ -426,3 +426,13 @@ ns卡带第一次插入ns2的时候应该要联网吧，一是下载新机专用
 
 求一个异界锁链和贝姐3的画质帧率强化
 
+
+*****
+
+####  heseran  
+##### 50#       发表于 2024-11-6 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66629569&amp;ptid=2205882" target="_blank">UCXCU 发表于 2024-11-6 10:44</a>
+新机内置存储读写性能应该比大概率使用的扩容存储tf 卡快很多吧？不知道到时候会不会因为游戏存储位置产生 ...</blockquote>
+现在就有差异了
+

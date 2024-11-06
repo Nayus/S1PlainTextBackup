@@ -5624,3 +5624,22 @@ steamdeck固件更新，体验一下子好了许多
 谁点的Meta
 <img src="https://p.sda1.dev/20/c5305b25def3d8fb56033d2c40341217/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NEIN  
+##### 3462#       发表于 2024-11-6 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66627982&amp;ptid=2140224" target="_blank">yyman 发表于 2024-11-6 02:05</a>
+最后是到多后啊，进度都已经是10月6号了。五维里说服和见识还没升满，会跟这有关么？ ...</blockquote>
+不会，五维不够会直接提示你哪个五维不够的。可能是时间问题，coop做完要歇个一两天才能接着做下个coop，不能两天接着做
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  pale219  
+##### 3463#       发表于 2024-11-6 11:07
+
+这破游戏还能战斗中读档的？不是指回到第一回合哦。我都是直接alt+f4再进游戏的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

@@ -645,3 +645,65 @@ ns卡带第一次插入ns2的时候应该要联网吧，一是下载新机专用
 
 等于没说，就是向下兼容一代的卡带呗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  geniuswu  
+##### 72#       发表于 2024-11-6 17:38
+
+有没有哪个嘴欠的股东问问，eshop那些反复换皮上线的垃圾小游戏有没有治<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  姐霓姐霓  
+##### 73#       发表于 2024-11-6 17:39
+
+重点是第一方能不能免费升级ns2版
+
+*****
+
+####  ScL9  
+##### 74#       发表于 2024-11-6 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66633974&amp;ptid=2205882" target="_blank">geniuswu 发表于 2024-11-6 17:38</a>
+
+有没有哪个嘴欠的股东问问，eshop那些反复换皮上线的垃圾小游戏有没有治</blockquote>
+PS那边也有一堆AI垃圾游戏，怕不是没法治<img src="https://static.saraba1st.com/image/smiley/face2017/190.png" referrerpolicy="no-referrer">
+
+*****
+
+####  椎名mahuyo  
+##### 75#       发表于 2024-11-6 17:41
+
+ 本帖最后由 椎名mahuyo 于 2024-11-6 17:42 编辑 
+
+继承旧机最蛋疼的，还是新机一出就被光速破解被骑脸吧 
+要我说，卡带这介质真不行，速度太慢了，速度可以快但是成本高，下一代还是像ps那样处理吧
+
+—— 来自 realme RMX3708, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  heseran  
+##### 76#       发表于 2024-11-6 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66634009&amp;ptid=2205882" target="_blank">椎名mahuyo 发表于 2024-11-6 17:41</a>
+继承旧机最蛋疼的，还是新机一出就被光速破解被骑脸吧 
+要我说，卡带这介质真不行，速度太慢了，速度可以快 ...</blockquote>
+新机还没出呢怎么判断出会光速破解的？
+
+
+*****
+
+####  5353  
+##### 77#       发表于 2024-11-6 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66634009&amp;ptid=2205882" target="_blank">椎名mahuyo 发表于 2024-11-6 17:41</a>
+
+继承旧机最蛋疼的，还是新机一出就被光速破解被骑脸吧 
+
+要我说，卡带这介质真不行，速度太慢了，速度可以快 ...</blockquote>
+你是想说以前的小光盘吗？
+
+那东西是真sb，不如卡带。
+

@@ -5594,3 +5594,14 @@ steamdeck固件更新，体验一下子好了许多
 
 这游戏实在太烂了，玩的想弃坑。战斗系统还可以，但职业系统太恶心了。
 
+
+*****
+
+####  jxzeroga0  
+##### 3459#       发表于 2024-11-6 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66627982&amp;ptid=2140224" target="_blank">yyman 发表于 2024-11-6 02:05</a>
+
+最后是到多后啊，进度都已经是10月6号了。五维里说服和见识还没升满，会跟这有关么？ ...</blockquote>
+要满级口才还有一个满级什么来着，感觉不到也可以去找npc对话，会给条件提示。支线是7升8才会出现。
+

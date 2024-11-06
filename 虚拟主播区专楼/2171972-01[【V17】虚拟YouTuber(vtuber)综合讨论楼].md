@@ -412,3 +412,20 @@ Alisa只是直播不多名气不高+把前世都删了而已
 [https://bbs.jpnkn.com/nijifunbbs/subback.html](https://bbs.jpnkn.com/nijifunbbs/subback.html)
 [https://bbs.jpnkn.com/vspofan/](https://bbs.jpnkn.com/vspofan/)
 
+
+*****
+
+####  格林卡罗尔  
+##### 870#       发表于 2024-11-6 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66629920&amp;ptid=2171972" target="_blank">バーチャルS1er 发表于 2024-11-6 11:19</a>
+https://bbs.jpnkn.com/hololiveneet/
+
+https://bbs.jpnkn.com/nijifunbbs/subback.html
+
+https://bbs.jpnkn. ...</blockquote>
+这应该是正常串，里面说话太纯良
+看了下無しスレ应该是消亡了
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

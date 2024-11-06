@@ -5605,3 +5605,13 @@ steamdeck固件更新，体验一下子好了许多
 最后是到多后啊，进度都已经是10月6号了。五维里说服和见识还没升满，会跟这有关么？ ...</blockquote>
 要满级口才还有一个满级什么来着，感觉不到也可以去找npc对话，会给条件提示。支线是7升8才会出现。
 
+
+*****
+
+####  SuNR1sE364  
+##### 3460#       发表于 2024-11-6 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66626750&amp;ptid=2140224" target="_blank">xifeilu 发表于 2024-11-5 21:08</a>
+话说这游戏有弱点是斩的BOSS吗……回忆起来有难度让我看弱点试组合的BOSS好像印象里除了各种弱点魔法以外， ...</blockquote>
+骑士叠满buff打一个弱点合体技可能还不如好兄弟裸砍一发断岩斩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

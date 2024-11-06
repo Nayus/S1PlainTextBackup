@@ -6337,3 +6337,17 @@ https://jbbs.shitaraba.net/anime/11210/
 
 闹麻了，如果去的是夏威夷哈基日还会哈气吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViyViy  
+##### 610#       发表于 2024-11-6 20:47
+
+我看情报师也挺坐不住的
+
+btw 还是网友想的多，虽然都是其他描写目的造成的巧合，但是就是正好侧写了我们二小姐的细节<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+S1E7见到恋恋家，三人感叹的画面里可可是唯一脸上不带汗珠淡定表示要按铃拜访；
+
+S1E12毅然决然跑原宿的各个场馆借场地，想起今年4月歪果仁研究协会视频他老爹想租鸟巢那段，这就是环境不一样思考规模都不一样吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

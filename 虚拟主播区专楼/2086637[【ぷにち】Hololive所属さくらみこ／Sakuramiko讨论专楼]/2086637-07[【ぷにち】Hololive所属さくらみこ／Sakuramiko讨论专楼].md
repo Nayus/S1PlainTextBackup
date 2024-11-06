@@ -15299,3 +15299,34 @@ fbk你
 
 感觉有点逗
 
+
+*****
+
+####  holoan  
+##### 10139#         楼主| 发表于 2024-11-6 13:12
+
+<img src="https://img.saraba1st.com/forum/202411/06/131123kmewwexe6bnjbr6f.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (58.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-6 13:11 上传
+
+一种说法，昨天直播开头聊到自己时间线上没看到过自己的黄图的事
+
+当然另一种可能是说她认为的黄图的定义跟我们大多数人认为的标准不一样
+
+*****
+
+####  holoan  
+##### 10140#         楼主| 发表于 2024-11-6 13:59
+
+<img src="https://img.saraba1st.com/forum/202411/06/135947isp0pw4tz2st6q02.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (112.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-6 13:59 上传
+

@@ -447,3 +447,13 @@ ns卡带第一次插入ns2的时候应该要联网吧，一是下载新机专用
 闪存为256GB UFS 3.1，凯侠（原东芝存储）制造，型号为THGJFGT1E45BAILHW0
 泄露的是256GB
 
+
+*****
+
+####  stevenzero  
+##### 52#       发表于 2024-11-6 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66629708&amp;ptid=2205882" target="_blank">heseran 发表于 2024-11-6 10:59</a>
+现在就有差异了</blockquote>
+想起那个ps4外置硬盘usb3.0比内置硬盘sata2快的笑话。
+

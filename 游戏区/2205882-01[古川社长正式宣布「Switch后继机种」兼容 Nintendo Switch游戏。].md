@@ -352,3 +352,49 @@ NS卡带大小感觉也没啥优化空间了，做更小反而不方便插拔，
 
 等入手NS2了，犹豫要不要把NS破了做串流机，不过一想到NS2屏幕更大，岂不是更适合做串流？要是NS2能上架PSPlay和Moonlight就好了
 
+
+*****
+
+####  鹅大人  
+##### 42#       发表于 2024-11-6 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66629007&amp;ptid=2205882" target="_blank">无辄辄 发表于 2024-11-6 09:50</a>
+都说向下兼容了，卡带必然也是兼容的，就是不知道会不会另外给ns卡带开个卡槽。 ...</blockquote>
+估计卡带样式不变，用同一个槽，然后ns2的卡带像3ds卡带那样多一个小尖防呆，以防玩家把新卡带插旧机上用不了怒喷。
+卡带介质就这样了，在这个大小下不讲成本的话容量怎么都是够用的，没必要改来改去。而且多加一个卡槽反而对机子内部设计来说更加难设计，本身掌机内部空间就紧凑，能同接口尽量同接口。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+*****
+
+####  particle  
+##### 43#       发表于 2024-11-6 10:31
+
+希望ns2的本体能上ufs存储，卡带从成本考虑不改存储介质没问题，提供安装到本体就行，不然习惯了ssd的加载速度的情况下还继续使用ns这套要疯
+
+*****
+
+####  天堂大法  
+##### 44#         楼主| 发表于 2024-11-6 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66629401&amp;ptid=2205882" target="_blank">particle 发表于 2024-11-6 10:31</a>
+希望ns2的本体能上ufs存储，卡带从成本考虑不改存储介质没问题，提供安装到本体就行，不然习惯了ssd的加载 ...</blockquote>
+现在海关扒出来的消息，就是UFS3.1
+
+*****
+
+####  heseran  
+##### 45#       发表于 2024-11-6 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66629342&amp;ptid=2205882" target="_blank">罗克萨斯 发表于 2024-11-6 10:27</a>
+NS卡带大小感觉也没啥优化空间了，做更小反而不方便插拔，所以下一代直接兼容是明智的，还省得玩家分开收纳 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ps remote play上架eshop只会让索尼的用户放弃买那个psp然后去买ns2吧
+
+
+*****
+
+####  lubo  
+##### 46#       发表于 2024-11-6 10:36
+
+ns卡带第一次插入ns2的时候应该要联网吧，一是下载新机专用的着色器，二是防烧录卡
+

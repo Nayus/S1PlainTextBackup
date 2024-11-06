@@ -5615,3 +5615,12 @@ steamdeck固件更新，体验一下子好了许多
 话说这游戏有弱点是斩的BOSS吗……回忆起来有难度让我看弱点试组合的BOSS好像印象里除了各种弱点魔法以外， ...</blockquote>
 骑士叠满buff打一个弱点合体技可能还不如好兄弟裸砍一发断岩斩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sonnabanana  
+##### 3461#       发表于 2024-11-6 10:30
+
+谁点的Meta
+<img src="https://p.sda1.dev/20/c5305b25def3d8fb56033d2c40341217/image.jpg" referrerpolicy="no-referrer">
+

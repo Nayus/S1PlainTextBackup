@@ -6296,3 +6296,13 @@ https://jbbs.shitaraba.net/anime/11210/
 
 就不可能没有吧
 
+
+*****
+
+####  lanslort  
+##### 606#       发表于 2024-11-6 10:36
+
+岚珠家住台场希尔顿，剧场版去冲绳住自家酒店也是希尔顿，证明岚珠就是拉拉宇宙的帕里斯希尔顿，应该还是比唐家富的
+
+不过如果这集住的酒店真是康莱德的话，那等于住了钟家的酒店 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

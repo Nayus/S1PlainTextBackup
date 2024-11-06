@@ -718,3 +718,13 @@ PS那边也有一堆AI垃圾游戏，怕不是没法治<img src="https://static.
 要我说，卡带这介质真不行，速度太慢了，速度可以快 ...</blockquote>
 UMD？光驱塞在掌机里连PSV都不做了，居然还有复辟的？NS被破解和老任没关系，是老黄的芯片漏洞。再说了，PSP和PSV说得没被破解一样，就连PS5也有破解，只是系统版本低罢了
 
+
+*****
+
+####  椎名mahuyo  
+##### 79#       发表于 2024-11-6 18:11
+
+我说的是卡带当验证就行，不是直接读卡带数据<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">破解这东西，反正我不爽半个月前发售游戏就满天飞剧透
+
+—— 来自 realme RMX3708, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

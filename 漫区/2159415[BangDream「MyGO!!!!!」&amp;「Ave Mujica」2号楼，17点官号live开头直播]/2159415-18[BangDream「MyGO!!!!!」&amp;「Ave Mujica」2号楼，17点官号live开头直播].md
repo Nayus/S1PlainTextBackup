@@ -8377,3 +8377,17 @@ c团里明确的绝对核心目前不是只有祥子吗，灯当主唱当时还�
 
 理由：双R的核心ykn和chuchu都有父母是音乐工作的，祥子沿用这个传统的可能性很大
 
+
+*****
+
+####  skives  
+##### 25850#       发表于 2024-11-6 12:23
+
+<img src="https://img.saraba1st.com/forum/202411/06/122327xk6wb6a0nnb00g60.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3857.jpeg</strong> (202.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-6 12:23 上传
+

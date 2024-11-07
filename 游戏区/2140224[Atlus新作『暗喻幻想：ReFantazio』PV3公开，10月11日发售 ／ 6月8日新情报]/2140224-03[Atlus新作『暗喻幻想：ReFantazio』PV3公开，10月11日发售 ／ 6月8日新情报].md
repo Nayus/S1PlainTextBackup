@@ -5946,3 +5946,27 @@ p系列不同在于，它一直鼓励你otk。你从进入迷宫一开始就有�
 
 跟他本人在城里对话也没有什么下文，要在什么时候找他才可以开启COOP
 
+
+*****
+
+####  sonnabanana  
+##### 3490#       发表于 2024-11-7 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66642071&amp;ptid=2140224" target="_blank">xifeilu 发表于 2024-11-7 18:23</a>
+猫男的COOP是怎么开的啊，现在他狂战满级了，但是支持者里本该是他的图标现在是？？？黑的状态
+
+跟他本人在 ...</blockquote>
+特性不够吧，要么战舰里一般就这俩
+
+*****
+
+####  上坂莲华  
+##### 3491#       发表于 2024-11-7 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66642071&amp;ptid=2140224" target="_blank">xifeilu 发表于 2024-11-7 18:23</a>
+
+猫男的COOP是怎么开的啊，现在他狂战满级了，但是支持者里本该是他的图标现在是？？？黑的状态
+
+跟他本人在 ...</blockquote>
+我记得他coop好像得在战车出门的时候才能开
+

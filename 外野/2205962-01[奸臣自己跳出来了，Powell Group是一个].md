@@ -467,3 +467,19 @@ Powell Group删除sbi合作页面，说明不再与sbi合作；sbi删除所有�
 
 这个页面现在已经被 sbi 删除了
 
+
+*****
+
+####  Rockchan  
+##### 45#       发表于 2024-11-8 07:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66637898&amp;ptid=2205962" target="_blank">cabin 发表于 2024-11-7 09:49</a>
+游戏行业内都是蟑螂乱窜了，光封个蟑螂窝有个毛用</blockquote>
+你这便是中了 SB 的计了，假如没有 SB 的存在，你可能只会感到有数个蟑螂窝，其他公司还没大问题，游戏业还有救。
+
+只要没有 SB 威胁，正常中小公司大多不会冒销售太低而倒闭的险乱塞 LGBT 内容。
+
+然而当 SB 四处搞事，四处塞蟑螂时，即使实质上蟑螂其实还不算多，也会经各种传媒让你觉得 “游戏业内都是蟑螂”，开始放弃抵抗，无可奈何地尝试接受 LGBT 游戏。
+
+— from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.1.88.1-alpha
+

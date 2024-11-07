@@ -479,3 +479,34 @@ only you能白宫我
 
 喃呒阿弥陀佛
 
+
+*****
+
+####  镜湖月影  
+##### 42#       发表于 2024-11-7 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66637404&amp;ptid=2205953" target="_blank">shikiki 发表于 2024-11-7 08:58</a>
+
+他要是美国出生，下届总统估计都可以提前决定是他了，可惜呀。</blockquote>
+可以搞个德州节度使当当
+
+*****
+
+####  芦-中-人  
+##### 43#       发表于 2024-11-7 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66636554&amp;ptid=2205953" target="_blank">笵藏 发表于 2024-11-7 00:25</a>
+与陛下运筹帷幄之中，决胜千里之外</blockquote>
+把每一次选举当做最后一次，然后就也不要怕
+
+*****
+
+####  芦-中-人  
+##### 44#       发表于 2024-11-7 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66636623&amp;ptid=2205953" target="_blank">笵藏 发表于 2024-11-7 00:49</a>
+“自然是我的x人气更甚”
+
+“但陛下的平台人气虽逊，却每条都是真相，我这x上法克新闻清都清不完”</blockquote>
+陛下平台只能引流真相，不能引流假象，而我则多多益善
+

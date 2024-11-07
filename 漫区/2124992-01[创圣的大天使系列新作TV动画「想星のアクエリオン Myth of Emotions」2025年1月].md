@@ -1006,3 +1006,20 @@ TOKYO MX、テレビ愛知、tvk、BS朝日ほか：2025年1月放送開始
 
 还叫创圣大天使估计是觉得这个名字还能骗来一点老粉丝关注，老老实实取个新的名字不好吗
 
+
+*****
+
+####  a85982313  
+##### 101#       发表于 2024-11-7 19:49
+
+怎么是这个人设
+
+*****
+
+####  novyDC  
+##### 102#       发表于 2024-11-7 19:53
+
+这是要开拓儿童市场吗 这画风<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -1439,3 +1439,11 @@ https://x.com/onigiri123091/status/1841843153718149297
 
 这中文太难绷了
 
+
+*****
+
+####  酒石酸唑吡坦  
+##### 127#       发表于 2024-11-7 22:55
+
+好温馨<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">看的我都要掉小珍珠了
+

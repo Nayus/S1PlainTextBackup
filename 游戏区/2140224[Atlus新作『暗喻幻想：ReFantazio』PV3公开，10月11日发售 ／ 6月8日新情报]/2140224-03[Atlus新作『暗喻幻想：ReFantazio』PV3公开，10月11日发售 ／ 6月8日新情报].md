@@ -5926,3 +5926,13 @@ p系列不同在于，它一直鼓励你otk。你从进入迷宫一开始就有�
 这楼应该是表述错了。v的机制是有1豆0.5豆同时存在的时候，打出弱点优先消耗1豆变0.5豆。暗喻是直接消耗 ...</blockquote>
 谢谢指正，我没仔细想到底是哪里被偷了就只转述了网上看到别人的描述。
 
+
+*****
+
+####  隔壁老黄  
+##### 3488#       发表于 2024-11-7 18:11
+
+打完隐藏boss拿到的武器还不如子安送的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+

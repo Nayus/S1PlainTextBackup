@@ -875,3 +875,29 @@ TOKYO MX、テレビ愛知、tvk、BS朝日ほか：2025年1月放送開始
 <img src="https://p.sda1.dev/20/46ac8cb31873d5f6de193ff12aef4c33/下载 _3_.jpeg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/20/9bad998ca3fd5f39f89a0c7afa07ab49/20241107_180118.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Atamaitai  
+##### 87#       发表于 2024-11-7 18:12
+
+好出乎意料的人设<img src="https://static.saraba1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+*****
+
+####  夜月紫耀  
+##### 88#       发表于 2024-11-7 18:12
+
+居然是这种人设吗？
+
+*****
+
+####  Toby_dak  
+##### 89#       发表于 2024-11-7 18:13
+
+看到人设时候我也<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.37)
+

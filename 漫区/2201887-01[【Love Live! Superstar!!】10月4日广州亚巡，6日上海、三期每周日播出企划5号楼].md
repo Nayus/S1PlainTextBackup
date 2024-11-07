@@ -6362,3 +6362,13 @@ S1E12毅然决然跑原宿的各个场馆借场地，想起今年4月歪果仁�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
 
+
+*****
+
+####  ViyViy  
+##### 612#       发表于 2024-11-7 16:26
+
+【三月兽 × LoveLive! CV探店视频大公开-哔哩哔哩】 [https://b23.tv/3QkA7sa](https://b23.tv/3QkA7sa)
+
+抱盒的盲能最后一个开到自己也是没谁了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

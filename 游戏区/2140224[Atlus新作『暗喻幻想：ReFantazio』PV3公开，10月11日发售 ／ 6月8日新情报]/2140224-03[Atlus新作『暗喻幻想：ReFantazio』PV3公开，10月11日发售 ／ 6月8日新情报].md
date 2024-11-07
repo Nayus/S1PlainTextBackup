@@ -5852,3 +5852,15 @@ p系列不同在于，它一直鼓励你otk。你从进入迷宫一开始就有�
 
 后期有没有什么无敌build，王子职业和皇家职业都解锁了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Leona_Akari  
+##### 3482#       发表于 2024-11-7 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66638330&amp;ptid=2140224" target="_blank">MobyDickStudio 发表于 2024-11-7 10:33</a>
+后期有没有什么无敌build，王子职业和皇家职业都解锁了</blockquote>
+好兄弟一刀流
+男主加豆，面具人蓄力，军阀加减buff
+高难度的话要练兔子，闪避吃对面的豆
+

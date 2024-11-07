@@ -466,3 +466,13 @@ KISS KISS KISS
 
 多欣赏美
 
+
+*****
+
+####  Adrenaline!!!  
+##### 53#       发表于 2024-11-8 07:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66642562&amp;ptid=2205999" target="_blank">lqf3dnow 发表于 2024-11-7 19:33</a>
+SI对LGBT这么包容么？</blockquote>
+只对第一个包容
+

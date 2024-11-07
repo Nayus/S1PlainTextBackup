@@ -396,3 +396,14 @@ SI对LGBT这么包容么？
 
 还以为说的是小野大辅的辣眼mv<img src="https://static.saraba1st.com/image/smiley/face/98.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  plazum  
+##### 46#       发表于 2024-11-7 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66642562&amp;ptid=2205999" target="_blank">lqf3dnow 发表于 2024-11-7 19:33</a>
+
+SI对LGBT这么包容么？</blockquote>
+只不过是当图看吧
+

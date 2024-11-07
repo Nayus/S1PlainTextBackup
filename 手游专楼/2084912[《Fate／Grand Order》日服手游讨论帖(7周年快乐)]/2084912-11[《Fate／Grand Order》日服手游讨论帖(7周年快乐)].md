@@ -1838,3 +1838,11 @@ wys总是在大家以为他改性了的时候证明自己<img src="https://stati
 
 奥伯龙你行不行？每次1动都是加BUFF，送不下人啊<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  beer  
+##### 15096#       发表于 2024-11-7 22:54
+
+这活动标题让人怀疑是星铁联动
+

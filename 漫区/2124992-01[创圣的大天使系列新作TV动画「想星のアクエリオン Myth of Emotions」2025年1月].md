@@ -1064,3 +1064,11 @@ TOKYO MX、テレビ愛知、tvk、BS朝日ほか：2025年1月放送開始
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">这人设给我干哪来了
 
+
+*****
+
+####  Stephen9755  
+##### 108#       发表于 2024-11-7 21:26
+
+看了看人物介绍，各种重要情感欠缺，这人设怕是致郁的障眼法（
+

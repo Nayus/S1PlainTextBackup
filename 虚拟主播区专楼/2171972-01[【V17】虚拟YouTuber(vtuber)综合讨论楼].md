@@ -429,3 +429,13 @@ https://bbs.jpnkn. ...</blockquote>
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Porsche  
+##### 871#       发表于 2024-11-7 21:20
+
+moka的观众参与回看的太爽了<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">高手打街霸就是纯享受
+
+打到现在只输了一场，然后第二次遇到同样人物就马上会对策之前的打法了
+

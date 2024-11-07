@@ -1072,3 +1072,11 @@ TOKYO MX、テレビ愛知、tvk、BS朝日ほか：2025年1月放送開始
 
 看了看人物介绍，各种重要情感欠缺，这人设怕是致郁的障眼法（
 
+
+*****
+
+####  创始’’’天翔  
+##### 109#       发表于 2024-11-7 21:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">或许会藏大的呢
+

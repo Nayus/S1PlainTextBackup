@@ -5227,3 +5227,13 @@ DEI不会让好游戏变差也不会让差游戏变好。
 看索拉斯回忆崩不住了，这都什么傻逼台词，从今天起成为DAV黑子</blockquote>
 感觉官方在按头玩家理解solas，记得有个选项，光看我以为是表达不满，结果主角说的话那意思还是在理解solas，我直接？？？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ArgentDawn  
+##### 1126#       发表于 2024-11-7 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66641316&amp;ptid=2072996" target="_blank">针刺骑士 发表于 2024-11-7 16:42</a>
+虽然我一点也不想看，但这代和队友还有do的场面吗，审判还是有的</blockquote>
+审判原来有do的吗，约瑟芬就搁那干亲
+

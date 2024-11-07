@@ -924,3 +924,19 @@ TOKYO MX、テレビ愛知、tvk、BS朝日ほか：2025年1月放送開始
 
 这个画风<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cmyk1234  
+##### 93#       发表于 2024-11-7 18:39
+
+丰崎爱生配音小男孩让我意外
+
+
+*****
+
+####  natmk  
+##### 94#       发表于 2024-11-7 18:45
+
+河森这是想做子供向的动画吗
+

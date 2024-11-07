@@ -8,3 +8,14 @@
 
 你可以在碧蓝之海看到一切热血战斗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  电脑死机  
+##### 1344#       发表于 2024-11-7 08:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66406467&amp;ptid=1317511" target="_blank">PingGuo233 发表于 2024-10-9 12:03</a>
+
+看到毒岛把男主甩了那段后面更新没看了，前面的有点忘了。有没有老哥告诉下我前面把纱织催眠以后好像效果慢 ...</blockquote>
+还好啦，最新话比博人传燃多了，还有求婚环节
+

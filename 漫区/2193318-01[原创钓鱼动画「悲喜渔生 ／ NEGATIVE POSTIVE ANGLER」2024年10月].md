@@ -1447,3 +1447,20 @@ https://x.com/onigiri123091/status/1841843153718149297
 
 好温馨<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">看的我都要掉小珍珠了
 
+
+*****
+
+####  baozi268369重练  
+##### 128#       发表于 2024-11-8 01:20
+
+艹，这一话的中文也太难蚌了
+
+哪有中国人去日本旅游讲中文的，不都是手势+蹩脚英语么233333333
+
+*****
+
+####  Keiji  
+##### 129#       发表于 2024-11-8 01:23
+
+看到突然走掉，就猜到是要准备惊喜了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">好温馨的一幕
+

@@ -5916,3 +5916,13 @@ p系列不同在于，它一直鼓励你otk。你从进入迷宫一开始就有�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  sonnabanana  
+##### 3487#       发表于 2024-11-7 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66639648&amp;ptid=2140224" target="_blank">milky658 发表于 2024-11-7 13:00</a>
+这楼应该是表述错了。v的机制是有1豆0.5豆同时存在的时候，打出弱点优先消耗1豆变0.5豆。暗喻是直接消耗 ...</blockquote>
+谢谢指正，我没仔细想到底是哪里被偷了就只转述了网上看到别人的描述。
+

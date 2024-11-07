@@ -8680,3 +8680,12 @@ l
 
 绫奈确实有点苦吧，自己系构的脚本分成两段，不连播也就算了，中间压着隔了一年半，其中一部分被拿去重改和新增东西
 
+
+*****
+
+####  likeny  
+##### 25879#       发表于 2024-11-8 04:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66630639&amp;ptid=2159415" target="_blank">skives 发表于 2024-11-6 12:23</a></blockquote>
+这个是同人来的
+

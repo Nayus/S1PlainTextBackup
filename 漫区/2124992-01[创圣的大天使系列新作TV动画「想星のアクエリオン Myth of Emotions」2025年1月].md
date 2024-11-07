@@ -901,3 +901,26 @@ TOKYO MX、テレビ愛知、tvk、BS朝日ほか：2025年1月放送開始
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  会长辅佐  
+##### 90#       发表于 2024-11-7 18:19
+
+这种风格吗
+
+
+*****
+
+####  会长辅佐  
+##### 91#       发表于 2024-11-7 18:24
+
+主角团cv全是女性还行
+
+*****
+
+####  kisstv22  
+##### 92#       发表于 2024-11-7 18:26
+
+这个画风<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

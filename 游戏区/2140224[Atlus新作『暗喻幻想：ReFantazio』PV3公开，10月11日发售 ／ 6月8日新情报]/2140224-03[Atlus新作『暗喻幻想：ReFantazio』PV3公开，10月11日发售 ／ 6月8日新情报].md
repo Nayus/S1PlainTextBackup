@@ -5992,3 +5992,17 @@ p系列不同在于，它一直鼓励你otk。你从进入迷宫一开始就有�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  隔壁老黄  
+##### 3494#       发表于 2024-11-7 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66643457&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-11-7 21:53</a>
+这打法确实比物理队稳定，物理队挺依赖暴击的，想刷成就的可以参考下
+
+【【暗喻幻想】还有高手？超简单4军 ...</blockquote>
+物理队打红龙就一招的事，打出26000多的伤害直接秒了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+

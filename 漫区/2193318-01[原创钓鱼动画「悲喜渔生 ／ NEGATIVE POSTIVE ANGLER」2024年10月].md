@@ -1423,3 +1423,11 @@ https://x.com/onigiri123091/status/1841843153718149297
 
 很少见这么现实又畜生的男主角了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wolf1997  
+##### 125#       发表于 2024-11-7 21:10
+
+全世界都在说中国话，孔夫子的话越来越国际化
+

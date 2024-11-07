@@ -940,3 +940,16 @@ TOKYO MX、テレビ愛知、tvk、BS朝日ほか：2025年1月放送開始
 
 河森这是想做子供向的动画吗
 
+
+*****
+
+####  查理_芒格  
+##### 95#       发表于 2024-11-7 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66642210&amp;ptid=2124992" target="_blank">natmk 发表于 2024-11-7 18:45</a>
+看画风还以为是吊带袜天使新作</blockquote>
+变相的
+小孩开大车<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

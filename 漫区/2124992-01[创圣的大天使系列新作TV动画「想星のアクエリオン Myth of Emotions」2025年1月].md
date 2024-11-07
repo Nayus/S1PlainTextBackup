@@ -1088,3 +1088,18 @@ TOKYO MX、テレビ愛知、tvk、BS朝日ほか：2025年1月放送開始
 
 这PV一眼便宜动画<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kos_mos  
+##### 111#       发表于 2024-11-7 22:05
+
+会不会关键剧情人物一转眼变成标准画风
+
+*****
+
+####  aptx8285144  
+##### 112#       发表于 2024-11-7 22:08
+
+这画风太别扭了，人头比例失衡
+

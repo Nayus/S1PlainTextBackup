@@ -976,3 +976,11 @@ TOKYO MX、テレビ愛知、tvk、BS朝日ほか：2025年1月放送開始
 这个男主造型和气质有点像fnf的bf（换色版）
 封面后面那个绿（？）毛也有点像gf
 
+
+*****
+
+####  七七見奈波  
+##### 98#       发表于 2024-11-7 19:14
+
+这人设认真的吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

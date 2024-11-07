@@ -744,3 +744,21 @@ Inti只有pc和ps适配出奇奇怪怪的小问题，特别是ps4移植5各种�
 刷困难关了，一开始搞不懂的崩解点还挺有意思的
 这游戏很多便利性设定都缺乏，而且给我一种按键防抖没做的感觉，手柄时不时就判定连按两下
 
+
+*****
+
+####  EndlessDied  
+##### 130#       发表于 2024-11-7 14:49
+
+<img src="https://img.saraba1st.com/forum/202411/07/144909g2ycdyd91kk4fypg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (97.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-7 14:49 上传
+
+草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+OST发售，但OST比本体还贵
+

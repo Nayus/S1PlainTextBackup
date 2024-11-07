@@ -1023,3 +1023,12 @@ TOKYO MX、テレビ愛知、tvk、BS朝日ほか：2025年1月放送開始
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  winda  
+##### 103#       发表于 2024-11-7 20:04
+
+这个人设，很竹啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+但是竹的人设适合宝可梦和戏言片场，和创圣合适么
+

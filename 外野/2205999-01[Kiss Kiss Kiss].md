@@ -380,3 +380,11 @@ Kiss sis<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" re
 
 一种形而上理想概念，现实的存在性可疑
 
+
+*****
+
+####  lqf3dnow  
+##### 44#       发表于 2024-11-7 19:33
+
+SI对LGBT这么包容么？
+

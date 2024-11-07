@@ -6351,3 +6351,14 @@ S1E7见到恋恋家，三人感叹的画面里可可是唯一脸上不带汗珠�
 
 S1E12毅然决然跑原宿的各个场馆借场地，想起今年4月歪果仁研究协会视频他老爹想租鸟巢那段，这就是环境不一样思考规模都不一样吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 611#       发表于 2024-11-7 12:00
+
+秀秀也去Nagi的1st live了
+<img src="https://p.sda1.dev/20/a47d1a3f3dc57c21cf67bc352eea0bd0/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

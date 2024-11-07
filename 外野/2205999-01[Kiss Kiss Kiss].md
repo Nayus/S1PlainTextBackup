@@ -372,3 +372,11 @@ Kiss sis<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" re
 
 2024-11-7 18:59 上传
 
+
+*****
+
+####  geeky_kappa  
+##### 43#       发表于 2024-11-7 19:19
+
+一种形而上理想概念，现实的存在性可疑
+

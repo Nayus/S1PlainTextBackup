@@ -420,3 +420,26 @@ SB 的问题在于让游戏玩家无处可走。大企业搞 LGBT 噁心玩家�
 
 星鸣特攻的褒姒起到了决定性的作用
 
+
+*****
+
+####  x.cat  
+##### 42#       发表于 2024-11-7 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66637130&amp;ptid=2205962" target="_blank">全世界失恋 发表于 2024-11-7 08:12</a>
+多大点事，过两天sbi就改成指导游戏公司往游戏里塞金发大波大屁股洋马
+
+论坛助手,iPhone ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">金发波波大洋马还需要sbi来指导？它也配？
+
+*****
+
+####  斯拉克自有妙计  
+##### 43#       发表于 2024-11-7 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66637898&amp;ptid=2205962" target="_blank">cabin 发表于 2024-11-7 09:49</a>
+游戏行业内都是蟑螂乱窜了，光封个蟑螂窝有个毛用</blockquote>
+先枪打出头鸟警告一下
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

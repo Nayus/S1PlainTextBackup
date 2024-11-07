@@ -443,3 +443,27 @@ SB 的问题在于让游戏玩家无处可走。大企业搞 LGBT 噁心玩家�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  perfect_duck  
+##### 44#       发表于 2024-11-7 22:26
+
+ 本帖最后由 perfect_duck 于 2024-11-7 22:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66641140&amp;ptid=2205962" target="_blank">watanabeyou 发表于 2024-11-7 16:24</a>
+
+大游戏公司大多数都是上市公司，暗箱操作这么大笔钱怎么写到财报里？</blockquote>
+不懂财报，等着看你分析财报的高见
+
+Powell Group删除sbi合作页面，说明不再与sbi合作；sbi删除所有合作公司页面，是否说说明sbi彻底变为孤家寡人
+
+<img src="https://img.saraba1st.com/forum/202411/07/222745on99f34yuzh3t3h5.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2024-11-08 012612.png</strong> (269.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-7 22:27 上传
+
+这个页面现在已经被 sbi 删除了
+

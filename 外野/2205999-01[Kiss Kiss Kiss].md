@@ -496,3 +496,15 @@ SI对LGBT这么包容么？</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  CCauchy  
+##### 56#       发表于 2024-11-8 08:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66637728&amp;ptid=2205999" target="_blank">虚无缥缈的分身 发表于 2024-11-7 09:33</a>
+确实，看到说性转成美少女就给兄弟爽爽的我都怀疑他们是隐性南通，我要是变了我肯定和美少女贴贴才不会让男 ...</blockquote>
+不，我是色孽，我会同时跟帅哥和美少女贴贴
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

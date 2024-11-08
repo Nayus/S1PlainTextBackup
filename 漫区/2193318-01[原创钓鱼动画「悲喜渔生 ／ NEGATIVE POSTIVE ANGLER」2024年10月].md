@@ -1464,3 +1464,11 @@ https://x.com/onigiri123091/status/1841843153718149297
 
 看到突然走掉，就猜到是要准备惊喜了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">好温馨的一幕
 
+
+*****
+
+####  jacket  
+##### 130#       发表于 2024-11-8 08:17
+
+我比较喜欢打枪
+

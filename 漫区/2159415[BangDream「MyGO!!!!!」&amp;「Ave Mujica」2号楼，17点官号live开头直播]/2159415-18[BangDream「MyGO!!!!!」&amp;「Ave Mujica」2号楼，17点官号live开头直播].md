@@ -9028,3 +9028,99 @@ ep3到底留了啥？前面说的我还以为只剩下春日影演出部分和�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">春日影接なん春多少有点地狱了
 
+
+*****
+
+####  浅草若旦那  
+##### 25904#       发表于 2024-11-8 12:10
+
+羊宫：喜欢mygo的冲击感的观众一定也会喜欢母鸡卡
+
+*****
+
+####  PDQ4  
+##### 25905#       发表于 2024-11-8 12:11
+
+感觉像第六集画面挪用，希祥梦又碎了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 25906#       发表于 2024-11-8 12:12
+
+羊宮这次小册子访谈都压根没宣传mujica动画<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+反倒是林说了mujica动画有不同于mygo的有趣，青木和立石也宣传了一下
+
+*****
+
+####  SakuraのOrigami  
+##### 25907#       发表于 2024-11-8 12:12
+
+跡暖空所有曲目名已公布
+
+1.歩拾道
+
+2.明弦音
+
+3.孤壊牢
+
+4.霧周途
+
+5.端程山
+
+6.処救生
+
+7.輪符雨
+
+8.夜隠染
+
+9.過惰幻
+
+10.回層浮
+
+11.砂寸奏
+
+12.焚音打
+
+<img src="https://img.saraba1st.com/forum/202411/08/121217f9j8d2s0w7kdj2zw.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20241108121119.png</strong> (23.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-8 12:12 上传
+
+*****
+
+####  浅草若旦那  
+##### 25908#       发表于 2024-11-8 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66647119&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-11-8 12:12</a>
+羊宮这次小册子访谈都压根没宣传mujica动画
+
+反倒是林说了mujica动画有不同于mygo的有趣，青木和立石也宣传 ...</blockquote>
+刚才舞台挨拶说的
+
+*****
+
+####  Aendst  
+##### 25909#       发表于 2024-11-8 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66647130&amp;ptid=2159415" target="_blank">浅草若旦那 发表于 2024-11-8 12:12</a>
+
+刚才舞台挨拶说的</blockquote>
+邦tv说过一模一样的话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">复读罢了
+
+
+*****
+
+####  akiomn  
+##### 25910#       发表于 2024-11-8 12:14
+
+ 本帖最后由 akiomn 于 2024-11-8 12:16 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爱灯大声表白被同学议论纷纷那段，八成后面祥子也知道了
+
+这下祝你幸福是真的祝你幸福了，你和你的女友过日子，我去把两个青梅拉过来搞事业，彻底分道扬镳咯，
+

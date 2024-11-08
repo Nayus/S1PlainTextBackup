@@ -550,3 +550,13 @@ xxxx年的历史书：在古代由于科技不够发达人们无法自主控制�
 
 —— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  SkavenYesYes  
+##### 61#       发表于 2024-11-8 11:19
+
+谁不喜欢看两个水灵灵的小姑凉搞在一起.jpg
+
+—— 来自 HUAWEI ALN-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

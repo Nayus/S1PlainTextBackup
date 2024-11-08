@@ -5312,3 +5312,13 @@ DEI不会让好游戏变差也不会让差游戏变好。
 
 编辑补充一下，这作中文翻译质量不能说很差，但就我目前的进度确实有好几处明显的翻译错误，而且都是把表达意思翻译反的那种，错误的方式跟pentiment官中的几处类似（不过不知道pentiment现在有没有纠正）
 
+
+*****
+
+####  kevinausting  
+##### 1134#       发表于 2024-11-8 11:23
+
+买了本tevinter nights看了几篇，感觉当初看了小说的人应该以为DA4会做得很黑暗压抑恐怖吧，再看看现在的DAV……
+
+昨天做了个老头的队友支线，那个反派的形象和演出感觉好像在看迪士尼动画片<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

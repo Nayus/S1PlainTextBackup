@@ -9444,3 +9444,16 @@ https://www.pixiv.net/artworks/124083499</blockquote>
 
 好的只是提出坏的想法的具体方案是吧
 
+
+*****
+
+####  紫吹兰  
+##### 25940#         楼主| 发表于 2024-11-9 02:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66651849&amp;ptid=2159415" target="_blank">cherryjia12 发表于 2024-11-8 21:04</a>
+
+mujica算不算是奶的最全面的一部
+
+声优监督制作人社长都在奶</blockquote>
+不算，编剧还在保持沉默
+

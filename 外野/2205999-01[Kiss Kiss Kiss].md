@@ -610,3 +610,14 @@ Cool tag, bro.
 
 Thanks
 
+
+*****
+
+####  kaddh  
+##### 66#       发表于 2024-11-8 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66637892&amp;ptid=2205999" target="_blank">1303312165 发表于 2024-11-7 09:48</a>
+
+是谁在呼叫舰队？</blockquote>
+黑镜有一集讲这个的，大做特做看得我浑身不适
+

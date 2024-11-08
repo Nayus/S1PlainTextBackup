@@ -483,3 +483,15 @@ Powell Group删除sbi合作页面，说明不再与sbi合作；sbi删除所有�
 
 — from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.1.88.1-alpha
 
+
+*****
+
+####  sodr  
+##### 46#       发表于 2024-11-8 07:50
+
+<blockquote>perfect_duck 发表于 2024-11-7 22:26
+不懂财报，等着看你分析财报的高见
+
+Powell Group删除sbi合作页面，说明不再与sbi合作；sbi删除所有合作公 ...</blockquote>
+sbi没上市的话，随便他删不删，可以不公开的，但那些合作伙伴要是上市了，那必须在财报里说清楚每一笔钱花哪了，所以等下一季财报就行
+

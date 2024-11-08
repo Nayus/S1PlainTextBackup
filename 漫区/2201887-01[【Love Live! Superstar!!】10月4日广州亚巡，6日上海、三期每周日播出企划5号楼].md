@@ -6620,3 +6620,34 @@ cp大战好啥啊，俩家都拿可solo3论证是自己家呢。正经剧情能�
 
 加了这么多新人还在卖传统cp，可芽、香薇、堇鬼不香吗<img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黒烨  
+##### 642#       发表于 2024-11-8 19:08
+
+我对cp脑上头的人都没啥好印象，看见这种人都嫌脏
+笑死可恋那个曲子可堇剪了合鲤也剪了，只能说可恋粉丝太少了打不起来吧，话说回来国内可恋粉丝有没有十个都是问题<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  笋狐  
+##### 643#       发表于 2024-11-8 19:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">场外的CP火药味（主要围绕除了恋的老5人，精简一下可以把白毛丸子头也去掉）本质是一期以来因各方面原因积怨已久，矛盾俨然一副不可调和的架势；2期来的新人这种小卡拉米人家压根没放在眼里，估计除了被拿来当打对家的弹药以外nbcs那种
+
+
+*****
+
+####  优妮可  
+##### 644#       发表于 2024-11-8 19:14
+
+那次唱yura有挺多冒出来的，我觉得水煮鱼粉也不少，但却没参与到大战中也挺神奇的
+
+*****
+
+####  CaptainPenguin  
+##### 645#       发表于 2024-11-8 19:14
+
+个人体感取决于更偏向于这两个人还是更偏向自己推的角色吧，前者那就是对家水火不容了非这俩不行，后者对自己角色相关的多少都能吃一些，而且也不希望角色变成纯纯cp工具人，比起cp会更重视个人剧情。同意楼上说的上脑的都不太行，尤其某些魔怔人不满意就开始骂角色骂中之人<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+

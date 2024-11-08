@@ -8984,3 +8984,47 @@ mujica内部确实就是路人NPC，反正也没放进剧场版里，没必要�
 第三集的初遇和人类歌都在  其他没了
 祝你幸福还在 但这是为了引出爱灯水族馆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太明显了
 
+
+*****
+
+####  桜庭千景  
+##### 25899#       发表于 2024-11-8 11:58
+
+对鸡狗跨团磕不起来大概是中日共识（乐
+
+*****
+
+####  前方暴雨预警  
+##### 25900#       发表于 2024-11-8 12:03
+
+ep3到底留了啥？前面说的我还以为只剩下春日影演出部分和演出后台部分了，但原来初遇和人类歌都有？
+
+删了咖啡厅成团、成人桥和KTV吗？
+
+
+*****
+
+####  skives10  
+##### 25901#       发表于 2024-11-8 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66647022&amp;ptid=2159415" target="_blank">前方暴雨预警 发表于 2024-11-8 12:03</a>
+ep3到底留了啥？前面说的我还以为只剩下春日影演出部分和演出后台部分了，但原来初遇和人类歌都有？
+
+删了咖 ...</blockquote>
+初遇 人类歌 然后就是春日影live 
+无缝接为什么要演奏春日影 差点吓死
+
+*****
+
+####  skives10  
+##### 25902#       发表于 2024-11-8 12:06
+
+黑刀之夜只存在于soyo的回忆场景里
+
+*****
+
+####  Aendst  
+##### 25903#       发表于 2024-11-8 12:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">春日影接なん春多少有点地狱了
+

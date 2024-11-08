@@ -484,3 +484,15 @@ SI对LGBT这么包容么？</blockquote>
 
 倒数第二个是蒜？
 
+
+*****
+
+####  modedd  
+##### 55#       发表于 2024-11-8 08:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66645047&amp;ptid=2205999" target="_blank">hyhyhyhy 发表于 2024-11-8 07:52</a>
+倒数第二个是蒜？</blockquote>
+蒜那个白毛是头短发<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

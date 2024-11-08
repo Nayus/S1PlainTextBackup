@@ -9436,3 +9436,11 @@ https://x.com/rousei13/status/1854886949318017035?s=46&amp;t=IZGx0N13SOtHALpwG0U
 https://www.pixiv.net/artworks/124083499</blockquote>
 草 两边都不是好人
 
+
+*****
+
+####  哈曼的YY  
+##### 25939#       发表于 2024-11-9 00:20
+
+好的只是提出坏的想法的具体方案是吧
+

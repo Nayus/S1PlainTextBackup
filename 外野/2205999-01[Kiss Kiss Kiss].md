@@ -526,3 +526,17 @@ r/blowjobsandwich
 
 可以b站搜一下蒙眼猜酒看看，虽然基本都是大码，但至少妹子还看得过去
 
+
+*****
+
+####  Porsche  
+##### 59#       发表于 2024-11-8 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66641050&amp;ptid=2205999" target="_blank">没什么bu好 发表于 2024-11-7 16:12</a>
+美少女贴贴真好看，人类为什么不能自己选择性别样貌呢？
+
+----发送自 Xiaomi 22021211RC,Android 12 ...</blockquote>
+以后科技进步了大概从出生时就能控制基因选择相貌了
+
+xxxx年的历史书：在古代由于科技不够发达人们无法自主控制出生时的相貌，由于颜值差异在当时社会引起了一系列矛盾云云..<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+

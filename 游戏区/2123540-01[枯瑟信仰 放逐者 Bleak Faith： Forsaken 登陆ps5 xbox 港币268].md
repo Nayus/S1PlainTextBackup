@@ -3510,3 +3510,27 @@ boss技能和地图都有改变, 完成度似乎又稍微高了一些, 但有些
 
 原谅我这些问题，这游戏中文网提到相关玩法分析等等居然只有这个帖子里有，其他也就通个关还洋洋得意多大谱，所以特意注册这论坛账号求问...
 
+
+*****
+
+####  qappip  
+##### 278#         楼主| 发表于 2024-11-8 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66645963&amp;ptid=2123540" target="_blank">老牛就要吃嫩草 发表于 2024-11-8 10:10</a>
+打搅问下这贴子里的大佬，俺初入这游戏，目前已通关。但是游戏里很多设定仍然不明白...比如那个收集12个异 ...</blockquote>
+隐藏敌人是指结尾隐藏结局那段意识流跑酷吗？ 海面那里往低处走，跳过那些坑坑洼洼 触碰光球。
+成就么看，听起来是说那些+3大宝石吗？ 那些散落在全地图隐藏点，**搜下有攻略。 讨论推荐去外网ds那边。
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  qappip  
+##### 279#         楼主| 发表于 2024-11-8 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66645963&amp;ptid=2123540" target="_blank">老牛就要吃嫩草 发表于 2024-11-8 10:10</a>
+打搅问下这贴子里的大佬，俺初入这游戏，目前已通关。但是游戏里很多设定仍然不明白...比如那个收集12个异 ...</blockquote>
+peck没有印象了，好像不集成的。
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

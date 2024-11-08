@@ -456,3 +456,13 @@ AUDI只是一个环</blockquote>
 
 终于轮到汽车ODM了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  广告位  
+##### 44#       发表于 2024-11-8 10:29
+
+我倒是觉得这次的连屏设计比智己好点，智己的又窄又容易被方向盘档。
+
+还为了这个设计，单独做了扶手屏+半幅方向盘
+

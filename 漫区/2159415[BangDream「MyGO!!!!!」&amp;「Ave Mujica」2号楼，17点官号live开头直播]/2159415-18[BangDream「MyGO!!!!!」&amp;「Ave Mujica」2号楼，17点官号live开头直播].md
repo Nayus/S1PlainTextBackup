@@ -9124,3 +9124,93 @@ ep3到底留了啥？前面说的我还以为只剩下春日影演出部分和�
 
 这下祝你幸福是真的祝你幸福了，你和你的女友过日子，我去把两个青梅拉过来搞事业，彻底分道扬镳咯，
 
+
+*****
+
+####  御幸一也  
+##### 25911#       发表于 2024-11-8 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66645531&amp;ptid=2159415" target="_blank">桜庭千景 发表于 2024-11-8 09:17</a>
+
+这有什么，独角兽发声切割mygo剧场版是好事啊，本来剧场版新内容（猫剧情、film live）都和她无关，她要是 ...</blockquote>
+綾奈肯定很愛ave，感覺ave是她的性癖集大成<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 25912#       发表于 2024-11-8 12:19
+
+所以柿本之前画的大饼“后篇会补充立希的心情”指的就是一句台词没有的一点自闭画面，这立希待遇可真是垃圾桶里捡的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  桜庭千景  
+##### 25913#       发表于 2024-11-8 12:19
+
+盲猜独角兽不满剧场版是祥子剧情删太多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">观感上带莫名其妙的这蓝毛女路人是谁啊
+
+*****
+
+####  PDQ4  
+##### 25914#       发表于 2024-11-8 12:19
+
+羊洁这话挺有意思的，说的是冲击感，没有说喜欢mygo剧情/风格的一定会喜欢鸡
+
+不过鸡肯定又更多惊吓已经是意料之内，喜欢说爱看爆爆爆的要是对鸡动画失望我要怀疑究竟爱的是什么了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 25915#       发表于 2024-11-8 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66646972&amp;ptid=2159415" target="_blank">桜庭千景 发表于 2024-11-8 11:58</a>
+
+对鸡狗跨团磕不起来大概是中日共识（乐</blockquote>
+至少製作組似乎不太磕呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 25916#       发表于 2024-11-8 12:23
+
+保留下来的
+祥子：灯祥初遇到人类歌 春日影live 第八集 soyo回忆的素祥初遇 黑刀之夜 第十集一堆闪回 祝你幸福
+睦：第八集 天台给提示
+初华：天文馆给提示
+海铃：支援
+喵梦：我买电子鼓了
+
+
+*****
+
+####  御幸一也  
+##### 25917#       发表于 2024-11-8 12:25
+
+我 買 電 子 鼓 了
+
+怎麼保留這個<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  浅草若旦那  
+##### 25918#       发表于 2024-11-8 12:26
+
+鼓子解说新歌叫speed因为步step 拾pick 道road
+
+*****
+
+####  桜庭千景  
+##### 25919#       发表于 2024-11-8 12:27
+
+就是speed。Bushiroad无了（悲
+
+<img src="https://img.saraba1st.com/forum/202411/08/122710mgqhvl99292qqf9i.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_80994030191286.jpg</strong> (9.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-8 12:27 上传
+
+）
+

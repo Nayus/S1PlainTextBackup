@@ -8699,3 +8699,39 @@ l
 这个是同人来的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">也太像真的了
 
+
+*****
+
+####  桜庭千景  
+##### 25881#       发表于 2024-11-8 09:17
+
+ 本帖最后由 桜庭千景 于 2024-11-8 09:21 编辑 
+
+这有什么，独角兽发声切割mygo剧场版是好事啊，本来剧场版新内容（猫剧情、film live）都和她无关，她要是想连鸡一起切割的话要么就直接去年底开始不再发任何邦邦相关，要么在这里和剧场版一起声明后续的所有东西都和她无关了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png">，现在只切割剧场版我觉得就是她舍不得切割鸡
+
+*****
+
+####  桜庭千景  
+##### 25882#       发表于 2024-11-8 09:18
+
+<img src="https://img.saraba1st.com/forum/202411/08/091848qo80ndenoi8eoenk.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_70051900510664.jpg</strong> (235.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-8 09:18 上传
+
+群友说这个是Bushiroad谐音，一下子有把我笑到
+
+
+*****
+
+####  SakuraのOrigami  
+##### 25883#       发表于 2024-11-8 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66645541&amp;ptid=2159415" target="_blank">桜庭千景 发表于 2024-11-8 09:18</a>
+
+群友说这个是Bushiroad谐音，一下子有把我笑到</blockquote>
+無路矢的作编曲（）
+

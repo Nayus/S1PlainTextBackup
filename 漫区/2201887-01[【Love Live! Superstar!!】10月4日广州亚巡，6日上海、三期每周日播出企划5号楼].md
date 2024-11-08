@@ -6430,3 +6430,11 @@ S1E12毅然决然跑原宿的各个场馆借场地，想起今年4月歪果仁�
 
 省去的宾语大概率是差评，那就是稳得一了。
 
+
+*****
+
+####  we89623  
+##### 620#       发表于 2024-11-8 17:59
+
+啊，这中国校服，看样是真考察过的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

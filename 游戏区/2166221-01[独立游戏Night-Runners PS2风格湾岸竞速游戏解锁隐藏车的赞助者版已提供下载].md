@@ -35,3 +35,31 @@ Porsche ：911 Type964<strong>\</strong>911<strong> </strong>Type930
 Honda：NSX NA1<strong>\</strong>NSX NA2，EK9
 Mazda：FD3S FC3SMitsubishi：EVO7<strong>\</strong>EVO9
 
+
+*****
+
+####  Tnsbilws  
+##### 54#         楼主| 发表于 2024-11-8 12:29
+
+这周的开发日志
+
+秋名山完成了，还有EK9的套件也公布了不少，甚至还给你带了个DC5
+
+EK9的套件有几个还是美国的
+
+还有确认特殊款车辆有专属售卖商：
+
+吉田的930 （Midnight Club的成员）
+
+Top Secret的GT300 Supra
+
+ABFLUG的Supra
+
+<img src="https://img.saraba1st.com/forum/202411/08/122531etxtsdzsks6vkyvo.jpg" referrerpolicy="no-referrer">
+
+<strong>CC806AEC813ACCB20796C98A6ADC38F8.jpg</strong> (341.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-8 12:25 上传
+

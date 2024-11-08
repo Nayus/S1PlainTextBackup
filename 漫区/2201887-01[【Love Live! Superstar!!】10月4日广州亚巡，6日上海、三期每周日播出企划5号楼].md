@@ -6601,3 +6601,22 @@ cp大战好啥啊，俩家都拿可solo3论证是自己家呢。正经剧情能�
 就有时突发奇想，如果第六集卖的的是可恋之类，会不会双方就没话说了</blockquote>
 真是可恋那我要香槟大开特开了
 
+
+*****
+
+####  CaptainPenguin  
+##### 640#       发表于 2024-11-8 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66650808&amp;ptid=2201887" target="_blank">优妮可 发表于 2024-11-8 18:54</a>
+
+就有时突发奇想，如果第六集卖的的是可恋之类，会不会双方就没话说了</blockquote>
+然而有人拿可恋曲剪过可堇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  懂你意思  
+##### 641#       发表于 2024-11-8 19:03
+
+加了这么多新人还在卖传统cp，可芽、香薇、堇鬼不香吗<img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">
+

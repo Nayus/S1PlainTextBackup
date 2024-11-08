@@ -245,3 +245,16 @@ LV4，合计88连出了黑猫，寡妇平时就不用也没凸点就随缘啦<im
 乡民看到后大不解你贴这里干啥
 [https://x.com/blackcat_phos4/status/1853373809744605466](https://x.com/blackcat_phos4/status/1853373809744605466)
 
+
+*****
+
+####  冰风血羽  
+##### 1253#       发表于 2024-11-8 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66589306&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2024-10-31 20:34</a>
+
+原来说的是这点，我都快忘了
+
+另外推荐一个你游整活哈哈</blockquote>
+问一下，开头小鸟跟黑猫的发型是哪里搞的？
+

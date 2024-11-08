@@ -495,3 +495,17 @@ Powell Group删除sbi合作页面，说明不再与sbi合作；sbi删除所有�
 Powell Group删除sbi合作页面，说明不再与sbi合作；sbi删除所有合作公 ...</blockquote>
 sbi没上市的话，随便他删不删，可以不公开的，但那些合作伙伴要是上市了，那必须在财报里说清楚每一笔钱花哪了，所以等下一季财报就行
 
+
+*****
+
+####  马卡洛夫厂长  
+##### 47#       发表于 2024-11-8 09:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66640819&amp;ptid=2205962" target="_blank">中国科学院 发表于 2024-11-7 15:41</a>
+
+等等，是库巴还是库巴姬得掰持清楚！</blockquote>
+就是库巴，不是库巴姬
+[https://www.bilibili.com/video/BV19bSXYqEnL](https://www.bilibili.com/video/BV19bSXYqEnL)
+
+有兴趣可以全看，没兴趣5分23秒开始看
+

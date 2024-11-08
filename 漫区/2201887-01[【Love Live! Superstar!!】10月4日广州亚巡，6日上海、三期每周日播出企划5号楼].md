@@ -6438,3 +6438,35 @@ S1E12毅然决然跑原宿的各个场馆借场地，想起今年4月歪果仁�
 
 啊，这中国校服，看样是真考察过的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ruffian  
+##### 621#       发表于 2024-11-8 18:04
+
+就算剧情不怎么样，看到可c我就能原谅全世界，可惜没见到幼可
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  280041437  
+##### 622#       发表于 2024-11-8 18:09
+
+我已经和星和解了，接下来是全力星团悸动形态
+
+
+*****
+
+####  离心  
+##### 623#       发表于 2024-11-8 18:11
+
+可惜没有幼可可，不过可c已经原谅世界了
+
+*****
+
+####  ViyViy  
+##### 624#       发表于 2024-11-8 18:13
+
+没事，遗憾总是贯穿人生始终<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没准儿斋藤蝶蝶给补一个呢
+

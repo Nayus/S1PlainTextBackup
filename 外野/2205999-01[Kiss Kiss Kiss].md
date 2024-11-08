@@ -540,3 +540,13 @@ r/blowjobsandwich
 
 xxxx年的历史书：在古代由于科技不够发达人们无法自主控制出生时的相貌，由于颜值差异在当时社会引起了一系列矛盾云云..<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jojo他提不起劲  
+##### 60#       发表于 2024-11-8 11:02
+
+你就是我上班的报应
+
+—— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -9425,3 +9425,14 @@ https://x.com/rousei13/status/1854886949318017035?s=46&amp;t=IZGx0N13SOtHALpwG0U
 
 2024-11-8 23:02 上传
 
+
+*****
+
+####  浅草若旦那  
+##### 25938#       发表于 2024-11-8 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66652685&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-11-8 23:02</a>
+
+https://www.pixiv.net/artworks/124083499</blockquote>
+草 两边都不是好人
+

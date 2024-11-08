@@ -279,3 +279,14 @@ LV4，合计88连出了黑猫，寡妇平时就不用也没凸点就随缘啦<im
 都是活动发型啊，音绪的是一个表演歌剧的活动，黑猫的活动内容忘了，反正就是去理头发换的 ...</blockquote>
 遗憾，看来只能等复刻了
 
+
+*****
+
+####  江戸前ルナ  
+##### 1256#         楼主| 发表于 2024-11-8 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66650533&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2024-11-8 18:21</a>
+
+遗憾，看来只能等复刻了</blockquote>
+周年肯定送复刻券可以整套换的，去年都有。没注意到的今年周年留意下
+

@@ -9319,3 +9319,16 @@ tv编排某种意义上很巧妙，实际上除去祥子，mujica角色出场少
 
 最后filmlive唱了三首，猫直接跳到音箱上solo，羊mc说今天下雨了，自己喜欢下雨的味道，人对味道的记忆是最持久的，希望今天下雨的味道也能永远记住
 
+
+*****
+
+####  skives10  
+##### 25929#       发表于 2024-11-8 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66651366&amp;ptid=2159415" target="_blank">浅草若旦那 发表于 2024-11-8 19:58</a>
+回忆下剧场版后篇新加的剧情 顺便这次音监很给力，bgm的插入时机都很巧妙
+
+灯皇念诗新加了足足两场live，一 ...</blockquote>
+别的bgm都很好
+但飞鸟山那段的bgm感觉真不如tv的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

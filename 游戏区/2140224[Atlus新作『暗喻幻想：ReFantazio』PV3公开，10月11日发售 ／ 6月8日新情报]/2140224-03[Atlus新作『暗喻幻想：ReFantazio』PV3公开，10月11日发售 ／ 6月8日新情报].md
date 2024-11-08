@@ -6034,3 +6034,19 @@ hard难度冰龙怎么打？给个攻略
 
 当然我的理解很可能是给人修罗吹喇叭级别的。
 
+
+*****
+
+####  Piano-Forest  
+##### 3498#         楼主| 发表于 2024-11-9 02:02
+
+日向悠二 绘
+<img src="https://p.sda1.dev/20/29e713727ad5c3e36c3873398bd2e985/20241106_103543.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 3499#         楼主| 发表于 2024-11-9 02:03
+
+<img src="https://p.sda1.dev/20/1086bc0b28858cf9a9eda7b1c8bec417/20241106_104900.jpg" referrerpolicy="no-referrer">
+

@@ -9292,3 +9292,11 @@ tv编排某种意义上很巧妙，实际上除去祥子，mujica角色出场少
 
 后篇基本只有最后的live是新画面，看得我快睡着了。舞台挨拶的最后小羊差点在阶梯摔跤很可爱。
 
+
+*****
+
+####  cherryjia12  
+##### 25927#       发表于 2024-11-8 17:55
+
+新live有音一会是好的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">不知道有没有换新队服
+

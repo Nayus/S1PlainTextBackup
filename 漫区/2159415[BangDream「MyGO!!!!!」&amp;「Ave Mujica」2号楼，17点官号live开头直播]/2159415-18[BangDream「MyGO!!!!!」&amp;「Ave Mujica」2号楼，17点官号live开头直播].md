@@ -9363,3 +9363,24 @@ mggm说他把mujica动画看了五遍_(:з」∠)_
 
 宁可自己看了5遍，都不愿意放给粉丝看一遍，我要闹了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 25933#       发表于 2024-11-8 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66651366&amp;ptid=2159415" target="_blank">浅草若旦那 发表于 2024-11-8 19:58</a>
+
+回忆下剧场版后篇新加的剧情 顺便这次音监很给力，bgm的插入时机都很巧妙
+
+------------------------------- ...</blockquote>
+挺搞笑的，猫灯都有新台词新画面，连凛凛子都有新台词，立希就一个没台词的打卡下班自闭，就这柿本好意思说“后篇会补立希的戏份”啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cherryjia12  
+##### 25934#       发表于 2024-11-8 21:04
+
+mujica算不算是奶的最全面的一部<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+声优监督制作人社长都在奶
+

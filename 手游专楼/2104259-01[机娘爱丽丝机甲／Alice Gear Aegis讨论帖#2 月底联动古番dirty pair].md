@@ -258,3 +258,24 @@ LV4，合计88连出了黑猫，寡妇平时就不用也没凸点就随缘啦<im
 另外推荐一个你游整活哈哈</blockquote>
 问一下，开头小鸟跟黑猫的发型是哪里搞的？
 
+
+*****
+
+####  江戸前ルナ  
+##### 1254#         楼主| 发表于 2024-11-8 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66650148&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2024-11-8 17:40</a>
+
+问一下，开头小鸟（or音绪？）跟黑猫的发型是哪里搞的？</blockquote>
+都是活动发型啊，音绪的是一个表演歌剧的活动，黑猫的活动内容忘了，反正就是去理头发换的
+
+*****
+
+####  冰风血羽  
+##### 1255#       发表于 2024-11-8 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66650505&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2024-11-8 18:17</a>
+
+都是活动发型啊，音绪的是一个表演歌剧的活动，黑猫的活动内容忘了，反正就是去理头发换的 ...</blockquote>
+遗憾，看来只能等复刻了
+

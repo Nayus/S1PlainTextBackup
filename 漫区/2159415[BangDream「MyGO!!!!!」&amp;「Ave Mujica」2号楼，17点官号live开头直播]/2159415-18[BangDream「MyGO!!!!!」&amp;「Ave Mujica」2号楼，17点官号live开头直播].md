@@ -9384,3 +9384,11 @@ mggm说他把mujica动画看了五遍_(:з」∠)_
 mujica算不算是奶的最全面的一部<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 声优监督制作人社长都在奶
 
+
+*****
+
+####  狂热飞鸟  
+##### 25935#       发表于 2024-11-8 21:14
+
+只能说希望到时候端上的成品符合他们自己奶的评价吧。
+

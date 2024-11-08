@@ -9259,3 +9259,28 @@ tv编排某种意义上很巧妙，实际上除去祥子，mujica角色出场少
 聊动画的时候立石说自己印象最深的是爱音听到soyo真相的时候走马灯的脸。
 最后结束语的时候鼓子说自己是鼓手的xxxx，然后旁边的蜜柑脱口而出”我是鼓手的……”鼓子说没事的双鼓手也可以有
 
+
+*****
+
+####  SakuraのOrigami  
+##### 25923#       发表于 2024-11-8 13:45
+
+【【音频】歩拾道 - MyGO!!!!!】 [https://www.bilibili.com/video/B ... 3d116a8c99d9ad274d6](https://www.bilibili.com/video/BV1EYDdYxER4/?share_source=copy_web&amp;vd_source=57a622f4e51063d116a8c99d9ad274d6)
+
+怎么还有弦乐（）
+
+*****
+
+####  桜庭千景  
+##### 25924#       发表于 2024-11-8 13:47
+
+新歌还不错，狗专辑最后一首没公开的会是mujica里放出来吗
+
+
+*****
+
+####  SakuraのOrigami  
+##### 25925#       发表于 2024-11-8 13:52
+
+【【音频】DOKI DOKI SCARY - Poppin'Party-哔哩哔哩】 https://b23.tv/W5aJWWt
+

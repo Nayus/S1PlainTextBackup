@@ -8905,3 +8905,82 @@ op
 
 剧场版没有什么值得切割的内容 基本上就是tv不影响大局 第三集除了开头和结尾春日影live全删了 估计遗老狂怒
 
+
+*****
+
+####  NODY  
+##### 25894#       发表于 2024-11-8 11:51
+
+懂了，姨姥独角兽不满c团画面被删太多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  结衣小比取  
+##### 25895#       发表于 2024-11-8 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66646731&amp;ptid=2159415" target="_blank">skives10 发表于 2024-11-8 11:36</a>
+
+全篇结束在爱灯水族馆</blockquote>
+哎呦，看过一个外挂字幕就是截止到第13话水族馆灯和爱音握手都是蓝色字幕，后面改成红色字幕了，这算是领会了官方的意图吧<img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202411/08/115051f4pj7ujazfuapwaj.png" referrerpolicy="no-referrer">
+
+<strong>PixPin_2024-11-08_11-48-14.png</strong> (2.54 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-8 11:50 上传
+
+<img src="https://img.saraba1st.com/forum/202411/08/115053a5t4jdk95ggg6l64.png" referrerpolicy="no-referrer">
+
+<strong>PixPin_2024-11-08_11-48-38.png</strong> (2.79 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-8 11:50 上传
+
+*****
+
+####  Aendst  
+##### 25896#       发表于 2024-11-8 11:52
+
+也没全删吧
+
+爽世对睦的强压、一厢情愿复活crychic和被祥子拒绝说“只想着你自己”这不是保留了吗
+
+mujica内部确实就是路人NPC，反正也没放进剧场版里，没必要展示箭头
+
+只能用花女三人组同班同学连一下关系性
+
+不过爽睦同班同学怎么没标啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+立希箭头倒是有跟猫和跟灯的了
+
+<img src="https://img.saraba1st.com/forum/202411/08/115224vea2clielglpgti5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (263.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-8 11:52 上传
+
+补个清晰点的
+
+
+*****
+
+####  NODY  
+##### 25897#       发表于 2024-11-8 11:54
+
+看到隔壁吐槽说睦应该对素世回个“太好了呢”或者“我没有这样想过（重组crychic）”，可能是太地狱了就没加吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 25898#       发表于 2024-11-8 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66646804&amp;ptid=2159415" target="_blank">NODY 发表于 2024-11-8 11:42</a>
+删了灯祥线说明柿本不磕灯祥</blockquote>
+第三集的初遇和人类歌都在  其他没了
+祝你幸福还在 但这是为了引出爱灯水族馆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太明显了
+

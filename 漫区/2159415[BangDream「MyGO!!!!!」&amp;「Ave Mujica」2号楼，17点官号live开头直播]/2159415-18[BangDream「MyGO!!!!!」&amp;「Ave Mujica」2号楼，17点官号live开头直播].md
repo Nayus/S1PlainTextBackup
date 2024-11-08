@@ -8780,3 +8780,54 @@ SPC05848558_280-v-1730166906.jpg
 
 film live处救生+音一会+ 壱雫空（）
 
+
+*****
+
+####  akiomn  
+##### 25887#       发表于 2024-11-8 11:33
+
+ 本帖最后由 akiomn 于 2024-11-8 11:35 编辑 
+
+笑点解析：鸡相关的线全删了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都知道剧场版是给粉丝看的，好歹把线连上吧。结果这鸡团的线删了，路人看不懂
+
+然后灯祥的线也删了
+
+wsd的幽默操作，完全看不懂
+
+3763D4DA-46CD-49B2-A581-AEE99EE42668.jpeg
+(139.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-8 11:33 上传
+
+<img src="https://img.saraba1st.com/forum/202411/08/113345n6tjwgdfjlzi5yyq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 25888#       发表于 2024-11-8 11:36
+
+观感比前篇好多了 全是live爽死了
+
+开篇就是第十集 灯去念诗的场景
+最后一句
+僕は人間ではありません
+
+然后进入第三集剧情
+除了开头和结尾的春日影 全部删除
+春日影唱完后 无缝接超大声 为什么要演奏春日影
+把我吓一大跳
+然后进入soyo视角 第九集的soyo搬进大房子的回忆前置到第八集剧情里
+之后就没什么变化了 按tv来
+有第九集之后立希在房间里自闭的新画面
+增加了灯在教室里大声表白爱音 同学议论纷纷的音效
+全篇结束在爱灯水族馆
+ed
+
+ed后是 live电影
+救处生
+音一会
+op
+

@@ -9332,3 +9332,26 @@ tv编排某种意义上很巧妙，实际上除去祥子，mujica角色出场少
 别的bgm都很好
 但飞鸟山那段的bgm感觉真不如tv的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 25930#       发表于 2024-11-8 20:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202411/08/202658uj7spprlx7mzxmpx.png" referrerpolicy="no-referrer">
+
+<strong>da69d9e9-a336-4049-9273-3dfff744b950.png</strong> (12.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-8 20:26 上传
+
+*****
+
+####  六道明  
+##### 25931#       发表于 2024-11-8 20:28
+
+mggm说他把mujica动画看了五遍_(:з」∠)_
+

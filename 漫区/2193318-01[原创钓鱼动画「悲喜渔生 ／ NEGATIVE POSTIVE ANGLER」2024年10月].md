@@ -1500,3 +1500,13 @@ https://x.com/onigiri123091/status/1841843153718149297
 
 感觉画风太时髦年轻了 没有钓鱼佬常有的出世冷淡感
 
+
+*****
+
+####  Vitiate  
+##### 134#       发表于 2024-11-9 03:39
+
+沟槽的日式中文还在追我<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+看那姐们的cos我还以为是异世界四重奏的协力，结果是骨王和幼女战记直接来。
+而且老姐你确定男主体力差？他能从白天跑到晚上
+

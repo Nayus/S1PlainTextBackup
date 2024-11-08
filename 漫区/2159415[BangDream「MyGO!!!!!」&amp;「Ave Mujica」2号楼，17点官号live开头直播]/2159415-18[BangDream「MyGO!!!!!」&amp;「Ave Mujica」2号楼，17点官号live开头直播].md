@@ -8689,3 +8689,13 @@ l
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66630639&amp;ptid=2159415" target="_blank">skives 发表于 2024-11-6 12:23</a></blockquote>
 这个是同人来的
 
+
+*****
+
+####  skives10  
+##### 25880#       发表于 2024-11-8 08:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66644830&amp;ptid=2159415" target="_blank">likeny 发表于 2024-11-8 04:09</a>
+这个是同人来的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">也太像真的了
+

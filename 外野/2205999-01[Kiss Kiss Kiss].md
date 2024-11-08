@@ -560,3 +560,14 @@ xxxx年的历史书：在古代由于科技不够发达人们无法自主控制�
 
 —— 来自 HUAWEI ALN-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  wuwo2  
+##### 62#       发表于 2024-11-8 13:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66645047&amp;ptid=2205999" target="_blank">hyhyhyhy 发表于 2024-11-8 07:52</a>
+
+倒数第二个是蒜？</blockquote>
+    我最开始看成《我的朋友很少》里的肉和夜空了，但是转念一想，夜空不是双马尾的。
+

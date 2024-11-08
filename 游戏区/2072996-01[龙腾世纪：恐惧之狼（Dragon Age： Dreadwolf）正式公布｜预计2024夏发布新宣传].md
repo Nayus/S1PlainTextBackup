@@ -5322,3 +5322,13 @@ DEI不会让好游戏变差也不会让差游戏变好。
 
 昨天做了个老头的队友支线，那个反派的形象和演出感觉好像在看迪士尼动画片<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ArgentDawn  
+##### 1135#       发表于 2024-11-9 00:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66642971&amp;ptid=2072996" target="_blank">风烛尘香 发表于 2024-11-7 20:38</a>
+哈丁浪漫剧情的吻戏，DAI里洒脱爽利的侦察兵到了DAV居然用娇滴滴的夹子音娇嗔I'm gonna kiss you，这编剧是 ...</blockquote>
+10年前带着审判官打遍南赛达斯的潇洒利落侦察兵，10年后也是越活越回去了
+

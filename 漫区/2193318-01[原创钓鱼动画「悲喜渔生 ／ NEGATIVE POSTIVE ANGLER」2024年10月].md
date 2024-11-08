@@ -1472,3 +1472,15 @@ https://x.com/onigiri123091/status/1841843153718149297
 
 我比较喜欢打枪
 
+
+*****
+
+####  PingGuo233  
+##### 131#       发表于 2024-11-8 12:38
+
+唐突中文<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+话说这个泰国弟开头几分钟的小动作挺娘啊<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">隐约感觉lgbt要素又增加了😩
+这集比较平淡但是稳步推进啊，大团体还有几个没介绍的角色和小花小梢粉毛哥的过去也都没讲。感觉接下来个人回过一过，和这集泰国姐一样，收集收集每个人的死亡观和人生哲学修正补完男主，最后几集就可以给心态完全转变的男主愉悦送走了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过感觉到最后整个"误诊"的可能还是有啊，从第一集到现在的氛围都那么温馨，动画片真是亚撒西的世界啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

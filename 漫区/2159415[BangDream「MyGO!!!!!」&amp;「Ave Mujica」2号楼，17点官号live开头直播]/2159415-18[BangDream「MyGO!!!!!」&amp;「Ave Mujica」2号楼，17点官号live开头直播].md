@@ -8831,3 +8831,77 @@ ed后是 live电影
 音一会
 op
 
+
+*****
+
+####  PDQ4  
+##### 25889#       发表于 2024-11-8 11:39
+
+漏u细讲一下立希自闭，说了点啥<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 25890#       发表于 2024-11-8 11:42
+
+删了灯祥线说明柿本不磕灯祥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  skives10  
+##### 25891#       发表于 2024-11-8 11:45
+
+ 本帖最后由 skives10 于 2024-11-8 11:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66646763&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-11-8 11:39</a>
+
+漏u细讲一下立希自闭，说了点啥</blockquote>
+
+这是不是新画面不确定
+
+第十集的时间点 立希蜷缩在床上 情绪低落 有她用来作曲的键盘的特写
+
+然后还有她打卡下班的新场景
+
+*****
+
+####  Aendst  
+##### 25892#       发表于 2024-11-8 11:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绫奈这个状况很容易拿现在的情报解释
+
+时间顺：完成了mygo和mujica tv动画的脚本（秋以前）→mygo完结mujica制作中（秋季）→决定做mygo剧场版，延期了mujica动画（秋季）
+
+绫奈：去年秋（10月~12月之前）取关柿本和mygo官推，今年7月取关mujica官推
+
+最大可能就是在剧场版制作上产生了分歧
+
+两种具体的可能性
+
+1.延期mujica动画，导致放送观感可能不符合绫奈预期
+
+（首先就不可能有那么多人去不停复习mygo动画，内容都忘差不多了然后给你放出来mujica动画，连贯性都打折了，另外初见和多周目观感也不同）
+
+延期mujica动画，自己的心血被强行积压至少半年到一年之久
+
+→决定延期mujica动画时就有不满
+
+2.剧场版新内容柿本写得不怎么样，而且有删减和修改自己写好的部分
+
+这个就是偏向个人矛盾的状况了，主要是对柿本有不满
+
+结合绫奈推上的蛛丝马迹捕风捉影一下，大体会是两种都有
+
+可能首先因为加塞和延期已经有不满了，脚本还被动了，新增了可能她觉得没什么意思的剧情
+
+所以绫奈在mujica脚本已经写完，但动画成品还在制作中的状态下就退出了制作组，取关了柿本和mygo官推
+
+反正柿本也不会让她参与后续制作，她的工作已经结束了
+
+*****
+
+####  skives10  
+##### 25893#       发表于 2024-11-8 11:47
+
+剧场版没有什么值得切割的内容 基本上就是tv不影响大局 第三集除了开头和结尾春日影live全删了 估计遗老狂怒
+

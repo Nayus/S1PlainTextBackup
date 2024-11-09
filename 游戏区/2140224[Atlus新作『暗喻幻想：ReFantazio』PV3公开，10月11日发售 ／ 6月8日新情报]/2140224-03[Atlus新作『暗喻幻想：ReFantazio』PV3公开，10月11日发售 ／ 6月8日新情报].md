@@ -6108,3 +6108,15 @@ SMT 的 press turn 与世界树的职业 + 前后排机制是一次失败的融�
 
 尴尬了，天变红之后所有地图加见识的观景点都没了，白天就没有可以加见识的办法了吗？
 
+
+*****
+
+####  SuNR1sE364  
+##### 3505#       发表于 2024-11-10 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66660521&amp;ptid=2140224" target="_blank">yyman 发表于 2024-11-10 00:30</a>
+尴尬了，天变红之后所有地图加见识的观景点都没了，白天就没有可以加见识的办法了吗？ ...</blockquote>
+开车随便找个地方出门在车上读见识书
+
+不过都到这个时候了五维还没满吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

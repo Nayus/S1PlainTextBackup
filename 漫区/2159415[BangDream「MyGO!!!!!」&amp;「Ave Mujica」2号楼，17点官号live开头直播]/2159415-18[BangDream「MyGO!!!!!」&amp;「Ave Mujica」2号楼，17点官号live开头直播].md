@@ -9465,3 +9465,14 @@ mujica算不算是奶的最全面的一部
 
 都是business啦
 
+
+*****
+
+####  dqtql  
+##### 25942#       发表于 2024-11-9 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66653747&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-11-9 02:31</a>
+
+不算，编剧还在保持沉默</blockquote>
+"没看到分镜我也不好说成片是啥样"
+

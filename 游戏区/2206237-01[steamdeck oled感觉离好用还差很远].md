@@ -473,3 +473,14 @@ SD2能有1080@60就行了，续航其实没多大问题，大不了外挂血袋�
 SD最大的危机其实是被手机偷家吧，隔壁安卓8elite机型已经开始搞PC模拟器了，未来小屏安卓板机身功耗给到10 ...</blockquote>
 Valve已经在开发ARM64和Android平台使用的Proton了
 
+
+*****
+
+####  Midnight.Coup  
+##### 49#       发表于 2024-11-9 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66655988&amp;ptid=2206237" target="_blank">糖皮质激素 发表于 2024-11-9 14:14</a>
+SD最大的危机其实是被手机偷家吧，隔壁安卓8elite机型已经开始搞PC模拟器了，未来小屏安卓板机身功耗给到10 ...</blockquote>
+SD 切桌面模式就是一台正儿八经的 Linux 桌面 PC 啊，还是潮流的不可变 Arch 发行版<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">稳定性胜过本家
+你通 XE 都没整明白，8E 在 Android 上用 pKVM 跑 Win 虚拟机还想赢 SD，就算以后 CPU 转议真跑赢了又能如何，GPU 和兼容性呢
+

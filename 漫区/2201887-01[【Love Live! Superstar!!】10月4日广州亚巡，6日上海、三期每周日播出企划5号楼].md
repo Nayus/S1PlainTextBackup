@@ -6857,3 +6857,19 @@ https://ngabbs.com/read.php?tid=42389631
 
 唉，现在人是真的实打实的少，第五集这样规格端上来到现在下一集播出前夕单人的同人图只有二十出头，但一想到今年生日也就一百出头就很难绷，明天播完一周后有望达到今年生贺的50%<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黒烨  
+##### 665#       发表于 2024-11-9 17:09
+
+怪了我看还是挺多人发了可可单人图（x,p,bsy）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，不过今年生贺可可有几个手书吧
+
+
+*****
+
+####  llllife  
+##### 666#       发表于 2024-11-9 17:15
+
+第一季火的时候b站上有好多上百万的视频，现在能有个十万都开香槟，看看6集的live怎么样吧
+

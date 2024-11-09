@@ -9573,3 +9573,157 @@ wsd什么时候有科学的声乐指导了
 </blockquote>
 呃啊 buff叠满了
 
+
+*****
+
+####  紫吹兰  
+##### 25952#         楼主| 发表于 2024-11-9 02:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66651849&amp;ptid=2159415" target="_blank">cherryjia12 发表于 2024-11-8 21:04</a>
+
+mujica算不算是奶的最全面的一部
+
+声优监督制作人社长都在奶</blockquote>
+不算，编剧还在保持沉默
+
+*****
+
+####  66367749  
+##### 25953#       发表于 2024-11-9 06:44
+
+都是business啦
+
+*****
+
+####  dqtql  
+##### 25954#       发表于 2024-11-9 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66653747&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-11-9 02:31</a>
+
+不算，编剧还在保持沉默</blockquote>
+"没看到分镜我也不好说成片是啥样"
+
+*****
+
+####  skives10  
+##### 25955#       发表于 2024-11-9 15:00
+
+沟槽的wsd不会真的没有科学的声乐指导吧
+
+<img src="https://img.saraba1st.com/forum/202411/09/150005vaawwwawj5quhhk7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0283.jpeg</strong> (407.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-9 15:00 上传
+
+*****
+
+####  星天观测  
+##### 25956#       发表于 2024-11-9 15:28
+
+wsd什么时候有科学的声乐指导了
+
+进藤天音向相羽爱奈学习唱歌技巧就是一个最大的笑话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 25957#       发表于 2024-11-9 16:50
+
+别说声乐指导了，天音平常说话的声音就得直接让人好奇这能唱高音吗，然后wsd在一开始就照样安排需要高音的歌。
+
+*****
+
+####  NODY  
+##### 25958#       发表于 2024-11-9 17:06
+
+爱美和i8都差点把嗓子唱坏了，也就大姐头自己歌手出身有保养和系统练习的经验才逃过一劫
+
+*****
+
+####  NODY  
+##### 25959#       发表于 2024-11-9 18:04
+
+【【中字】河口湖巴士车内广播 Ave Mujica部分-哔哩哔哩】 https://b23.tv/YkKMnEM
+
+*****
+
+####  六道明  
+##### 25960#       发表于 2024-11-9 18:10
+
+爱美夹着也太累了
+
+
+*****
+
+####  玖羽  
+##### 25961#       发表于 2024-11-9 18:29
+
+ 本帖最后由 玖羽 于 2024-11-9 19:10 编辑 
+
+<img src="https://img.saraba1st.com/forum/202411/09/182904og3d5xm1gngnmz0a.jpg" referrerpolicy="no-referrer">
+
+<strong>31.jpg</strong> (21.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-9 18:29 上传
+
+<img src="https://img.saraba1st.com/forum/202411/09/190958cytikikitgninjly.jpg" referrerpolicy="no-referrer">
+
+<strong>001.jpg</strong> (52.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-9 19:09 上传
+
+<img src="https://img.saraba1st.com/forum/202411/09/190958xzjnzj462d52d7nz.jpg" referrerpolicy="no-referrer">
+
+<strong>002.jpg</strong> (73.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-9 19:09 上传
+
+<img src="https://img.saraba1st.com/forum/202411/09/190958g14o4ygla6640g44.jpg" referrerpolicy="no-referrer">
+
+<strong>003.jpg</strong> (63.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-9 19:09 上传
+
+*****
+
+####  良臣没有重谢  
+##### 25962#       发表于 2024-11-9 19:58
+
+特地去了趟上野toho听轰音版。说实话感觉也没有多特别。
+
+剧场版live很爽，就是mc环节稍微让我有点绷不住。
+屏幕里面灯说雨开始下的时候是石头的味道，雨下完之后是泥土的味道。屏幕外面的我深吸一口气，闻到了旁边坐着的肥宅的味道。肥宅从头到尾喘息过于粗重以至于我一直在怀疑他是不是下一秒就会喷射出来。
+
+🥒没有了也太可惜了，下个月再看🥒。
+
+—— 来自 HUAWEI CET-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  桜庭千景  
+##### 25963#       发表于 2024-11-9 20:41
+
+<blockquote>玖羽 发表于 2024-11-9 18:29
+</blockquote>
+呃啊 buff叠满了
+
+*****
+
+####  星天观测  
+##### 25964#       发表于 2024-11-9 21:44
+
+说起来之前是说的，12月1号有人用ave mujica的皮开鸡楼对吧，那时候好像还没公布正式播出时间，现在一看正好提前一个月
+
+不知道官网倒数完是不是正式pv
+

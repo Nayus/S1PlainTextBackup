@@ -102,3 +102,27 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  罗克萨斯  
+##### 5522#       发表于 2024-11-9 18:55
+
+世界第一人+四模式综合最强+最强泡+最强加特林的队伍竟然会输<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  墨染白泉  
+##### 5523#       发表于 2024-11-9 18:56
+
+实践出绿双精英长蓝不如52香槟长热<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这把蓝方的牙膏和96确实猛
+
+*****
+
+####  carroy  
+##### 5524#       发表于 2024-11-9 18:59
+
+直播间怎么也这么紧张啊wwww
+

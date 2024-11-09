@@ -5362,3 +5362,13 @@ DEI不会让好游戏变差也不会让差游戏变好。
 
 没有撕裂影帐的结局，失望<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  震荡波  
+##### 1139#       发表于 2024-11-9 15:06
+
+现在首周全平台销量50W，远低于预期，大写的惨。
+
+这游戏成本有谁核算过吗？
+

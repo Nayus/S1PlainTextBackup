@@ -1518,3 +1518,65 @@ https://x.com/onigiri123091/status/1841843153718149297
 
 在国外仍然坚持用自己的母语跟当地人沟通，那TM不是美国人吗？怎么动画里的中国人也这样
 
+
+*****
+
+####  Piano-Forest  
+##### 136#         楼主| 发表于 2024-11-9 15:09
+
+<img src="https://p.sda1.dev/20/acae4b3c1c20b68fb69f8efa62847218/20241109_150537.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/324ecc72bccf6385ab6334c9ad067f86/20241109_150539.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/ad060ee0cffc18461b90712e50f903de/20241109_150542.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/87349a70fd04186ecaef56ecef8176c5/20241109_150543.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/onigiri123091/status/1851848604119683098](https://x.com/onigiri123091/status/1851848604119683098)
+
+今晩ネガグラ5話放送でぃ
+
+行くんだこずえ、ネガグラのかわいいを一手に背負って！！
+
+私にとっては1番チャレンジングなキャラクターでした。
+
+こずえはかわいい女の子をかわいく描いてくれるスタッフさんがいてくれて本当によかった…助かった〜あぶね〜。
+<img src="https://p.sda1.dev/20/14d3fc33b6f10733d4cf14a7c0b41245/20241109_150640.jpg" referrerpolicy="no-referrer">
+
+5話ご視聴ありがとうございました🎣
+
+えいって投げるんですよーって言われて
+
+えいって言っちゃって
+
+えいっは言わなくていいんですよーwって言われるところ超好き。
+<img src="https://p.sda1.dev/20/bf2bb9beae85d274e8868ac7232600b5/20241109_150643.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 137#         楼主| 发表于 2024-11-9 15:12
+
+[https://x.com/onigiri123091/status/1854386378844569927](https://x.com/onigiri123091/status/1854386378844569927)
+
+ネガグラ6話今晩放送🍨
+
+アイスは「1人」、私が何の手癖で作画出来るキャラデザの子が欲しい…！と思ってデザインさせて頂いた子です。
+
+まあ、藤代さんが打ち合わせを重ねてああなった結果、苦労せず描けるキャラが「2人」のなってしまったのですが🐟🐟
+<img src="https://p.sda1.dev/20/6362c9e8275c52a84df725035e51021e/20241109_150917.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/41497a0dc19718b3eb257cfcb11ca0f0/20241109_150919.jpg" referrerpolicy="no-referrer">
+
+6話🎊🎉🥳
+
+うりゅっと泣いちゃう常宏
+
+私ごとですけども、このカットが無事に描けて、総作監としては少しほっとしました。
+<img src="https://p.sda1.dev/20/7df7630cda95c22a83a5267a65232981/20241109_150929.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/ed15107d9deed46f9dee3badc028c190/20241109_150930.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/56e70902809fe568522ecab97fd4e77f/20241109_150932.jpg" referrerpolicy="no-referrer">
+
+常宏の拗らせ方見てると、シンパシーを感じざる得ない。
+
+でもそんな人間の事おもしろい、って思って友達でいてくれたり、仕事教えようとしてくれたりする人もいるんだよね。
+
+頑張れ常宏！うりゅりゅ泣きかわいいぞ！
+<img src="https://p.sda1.dev/20/88274408d933827e227849c74e957bb8/20241109_150934.jpg" referrerpolicy="no-referrer">
+

@@ -126,3 +126,50 @@
 
 直播间怎么也这么紧张啊wwww
 
+
+*****
+
+####  秋月孝三  
+##### 5525#       发表于 2024-11-9 19:06
+
+致敬牢詹了这下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  罗克萨斯  
+##### 5526#       发表于 2024-11-9 19:06
+
+笑死我了，竟然又输，还是被逆转<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  shirolin  
+##### 5527#       发表于 2024-11-9 19:07
+
+翻车啦<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  墨染白泉  
+##### 5528#       发表于 2024-11-9 19:07
+
+大王乌贼和太刀可以登基了
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 5529#       发表于 2024-11-9 19:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个反超wwwww
+
+*****
+
+####  墨染白泉  
+##### 5530#       发表于 2024-11-9 19:09
+
+还是让一追二，这下有人要睡不着了
+

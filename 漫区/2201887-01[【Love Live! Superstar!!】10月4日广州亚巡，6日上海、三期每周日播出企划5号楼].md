@@ -6926,3 +6926,11 @@ https://ngabbs.com/read.php?tid=42389631
 怪了我看还是挺多人发了可可单人图（x,p,bsy），不过今年生贺可可有几个手书吧 ...</blockquote>
 我按我收藏夹数的，要只论心意的话，X重新数了一遍刚好三十出头，算上国内平台是快五十了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kata魂  
+##### 672#       发表于 2024-11-9 19:10
+
+感觉在剧透下去，明天剧情都能省了
+

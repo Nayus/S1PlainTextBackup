@@ -6915,3 +6915,14 @@ https://ngabbs.com/read.php?tid=42389631
 
 可堇在出道单的广播剧里就是欢喜冤家设定了
 
+
+*****
+
+####  ViyViy  
+##### 671#       发表于 2024-11-9 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66657050&amp;ptid=2201887" target="_blank">黒烨 发表于 2024-11-9 17:09</a>
+
+怪了我看还是挺多人发了可可单人图（x,p,bsy），不过今年生贺可可有几个手书吧 ...</blockquote>
+我按我收藏夹数的，要只论心意的话，X重新数了一遍刚好三十出头，算上国内平台是快五十了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

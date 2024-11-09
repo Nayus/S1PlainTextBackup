@@ -6827,7 +6827,7 @@
     "newtitle": "[《战锤40K：行商浪人》发售日确定！2023年12月7日！]",
     "lastedit": 1730915290,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2162351": {
@@ -7875,10 +7875,10 @@
     "update": false
   },
   "2171972": {
-    "totalreply": 873,
+    "totalreply": 874,
     "title": "[【V17】虚拟YouTuber(vtuber)综合讨论楼]",
     "newtitle": "[【V17】虚拟YouTuber(vtuber)综合讨论楼]",
-    "lastedit": 1731067229,
+    "lastedit": 1731174848,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -8631,10 +8631,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 97232,
+    "totalreply": 97235,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1731172936,
+    "lastedit": 1731174608,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9279,10 +9279,10 @@
     "update": false
   },
   "2192962": {
-    "totalreply": 4206,
+    "totalreply": 4207,
     "title": "[【明日方舟】国服15号楼 7.16集成战略#5 「萨卡兹的无终奇语」周六19点30夏活前瞻]",
     "newtitle": "[【明日方舟】国服15号楼 11.1 SS「揭幕者们」基建／理智上限优化 (本楼含YJWL动态交流)]",
-    "lastedit": 1731172936,
+    "lastedit": 1731174727,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -9936,10 +9936,10 @@
     "update": false
   },
   "2200312": {
-    "totalreply": 4440,
+    "totalreply": 4444,
     "title": "[【集中讨论】【黑泥2】二游圈吃瓜／搬运／黑泥讨论楼，欢迎来综合讨论]",
     "newtitle": "[【集中讨论】【黑泥2】二游圈吃瓜／搬运／黑泥讨论楼，欢迎来综合讨论]",
-    "lastedit": 1731174009,
+    "lastedit": 1731175096,
     "category": "手游战斗",
     "active": true,
     "update": false
@@ -16920,10 +16920,10 @@
     "update": false
   },
   "2206156": {
-    "totalreply": 206,
+    "totalreply": 207,
     "title": "[不同地方的华人百态，马来西亚华人]",
     "newtitle": "[不同地方的华人百态，马来西亚华人]",
-    "lastedit": 1731173053,
+    "lastedit": 1731175092,
     "category": "外野",
     "active": true,
     "update": false
@@ -17127,10 +17127,10 @@
     "update": false
   },
   "2206239": {
-    "totalreply": 92,
+    "totalreply": 93,
     "title": "[猫是真的会毫无征兆的突然发疯啊]",
     "newtitle": "[猫是真的会毫无征兆的突然发疯啊]",
-    "lastedit": 1731174251,
+    "lastedit": 1731175096,
     "category": "外野",
     "active": true,
     "update": false
@@ -17199,10 +17199,10 @@
     "update": false
   },
   "2206274": {
-    "totalreply": 132,
+    "totalreply": 135,
     "title": "[马斯克的跨性别女儿宣布离开美国]",
     "newtitle": "[马斯克的跨性别女儿宣布离开美国]",
-    "lastedit": 1731174492,
+    "lastedit": 1731174849,
     "category": "外野",
     "active": true,
     "update": false
@@ -17217,10 +17217,10 @@
     "update": false
   },
   "2206270": {
-    "totalreply": 98,
+    "totalreply": 99,
     "title": "[雷军：小米SU7 10月销量20726辆，新势力／20万以上／中大型纯电三类轿车销冠]",
     "newtitle": "[雷军：小米SU7 10月销量20726辆，新势力／20万以上／中大型纯电三类轿车销冠]",
-    "lastedit": 1731173895,
+    "lastedit": 1731175096,
     "category": "外野",
     "active": true,
     "update": false
@@ -17325,10 +17325,10 @@
     "update": false
   },
   "2206304": {
-    "totalreply": 149,
+    "totalreply": 150,
     "title": "[联动“无孩养猫女”，你们认可国家不能交给没有未来的人吗？]",
     "newtitle": "[联动“无孩养猫女”，你们认可国家不能交给没有未来的人吗？]",
-    "lastedit": 1731174492,
+    "lastedit": 1731175096,
     "category": "外野",
     "active": true,
     "update": false
@@ -17465,6 +17465,15 @@
     "newtitle": "[TPC联合ILCA合资成立新子公司Pokemon Works 负责宝可梦游戏开发]",
     "lastedit": 1731173660,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2206340": {
+    "totalreply": 41,
+    "title": "[宇宙里为什么会有生命呢]",
+    "newtitle": "[宇宙里为什么会有生命呢]",
+    "lastedit": 1731175096,
+    "category": "外野",
     "active": true,
     "update": false
   }

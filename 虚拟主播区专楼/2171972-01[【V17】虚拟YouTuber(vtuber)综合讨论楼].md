@@ -455,3 +455,13 @@ moka的观众参与回看的太爽了<img src="https://static.saraba1st.com/imag
 
 怎么新的共通live服一堆en的，都凉了想起来给资源吗，太惊世智慧了吧
 
+
+*****
+
+####  格林卡罗尔  
+##### 874#       发表于 2024-11-10 01:51
+
+怕是做给liver看的维稳手段<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

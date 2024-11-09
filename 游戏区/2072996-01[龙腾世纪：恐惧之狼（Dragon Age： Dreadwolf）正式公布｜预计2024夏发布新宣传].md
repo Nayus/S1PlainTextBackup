@@ -5426,3 +5426,16 @@ DEI不会让好游戏变差也不会让差游戏变好。
 成本估算是1.5亿左右，但有没有包含广告没提，这作正式开发应该是圣歌暴毙后，所以具体成本很可能有浮动 ...</blockquote>
 1.5亿包括宣发的话300W到400W份回本，基本没希望了，先是仙女座，然后是圣歌，现在是龙腾4，这样都不被解散 ，那生软真是EA的爹，每次都是拿钱上供给生软烧。
 
+
+*****
+
+####  xjtxp  
+##### 1145#       发表于 2024-11-9 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66624032&amp;ptid=2072996" target="_blank">mimighost 发表于 2024-11-5 14:59</a>
+
+看了ytb上的剧透
+
+就算没有woke，这游戏也把前三代的lore给挥霍得差不多了，david gaider脑子是瓦特了么， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">他做为基佬其实只给woke元素在DA存在背书，快一个月前他就说自己可能不会玩DATV，然后到现在看起来是真一直没玩
+

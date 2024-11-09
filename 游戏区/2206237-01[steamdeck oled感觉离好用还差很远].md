@@ -435,3 +435,13 @@ SD最大的危机其实是被手机偷家吧，隔壁安卓8elite机型已经开
 
 rog ally一代突出一个便宜大碗，除了续航硬伤，休眠唤醒因为windows可能遇到各种bug以外，比sdo强得多，买sdo真不如买ally
 
+
+*****
+
+####  ranapocket  
+##### 45#       发表于 2024-11-9 17:34
+
+我觉得明年switch出二代的话sd可能仅有的性能优势都不明显了，作为掌机玩起来并不舒服，只适合steam库存多但是不想开电脑的人
+
+—— 来自 HUAWEI OCE-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

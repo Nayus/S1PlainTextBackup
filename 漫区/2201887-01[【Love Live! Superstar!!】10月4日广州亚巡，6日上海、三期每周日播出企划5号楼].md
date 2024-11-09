@@ -6896,3 +6896,14 @@ https://ngabbs.com/read.php?tid=42389631
 至于为什么我也不知道，动画播出前 ...</blockquote>
 感觉日常剧情跟主线剧情有割裂感，可堇是第十集才真正确立下来的，十集之后可可是堇的贵人，平时斗两句嘴当然没啥
 
+
+*****
+
+####  qratosones1337  
+##### 669#       发表于 2024-11-9 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66657150&amp;ptid=2201887" target="_blank">cat1230 发表于 2024-11-9 17:25</a>
+
+第五话要是放在第一季，流量得爆上天。现在的星团国内确实没啥热度。</blockquote>
+第二季挖的坑太大了
+

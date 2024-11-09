@@ -20,3 +20,14 @@ document.getElementById('flv_GGc').innerHTML=("");
 有人用ar眼镜接gpd win mini吗？直接接就可以吗？问了一下客服说全功能c口，但我怎么接上去完全没反应啊(  ...</blockquote>
 我一代nreal插7640u的win mini两个c口都行啊，是你那款眼镜有问题吗
 
+
+*****
+
+####  肛之练筋士  
+##### 1322#       发表于 2024-11-9 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66656961&amp;ptid=2086469" target="_blank">霖岚_ 发表于 2024-11-9 16:57</a>
+
+我一代nreal插7640u的win mini两个c口都行啊，是你那款眼镜有问题吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没问题了，不知道为什么核显被禁用了，重启之后就可以了
+

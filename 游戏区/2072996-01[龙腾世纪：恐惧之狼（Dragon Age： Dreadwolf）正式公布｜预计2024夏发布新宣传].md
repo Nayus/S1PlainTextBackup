@@ -5387,3 +5387,32 @@ DEI不会让好游戏变差也不会让差游戏变好。
 
 至少上亿吧
 
+
+*****
+
+####  sosgame67  
+##### 1141#       发表于 2024-11-9 15:57
+
+成本估算是1.5亿左右，但有没有包含广告没提，这作正式开发应该是圣歌暴毙后，所以具体成本很可能有浮动<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tigs1  
+##### 1142#       发表于 2024-11-9 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66656248&amp;ptid=2072996" target="_blank">震荡波 发表于 2024-11-9 15:06</a>
+现在首周全平台销量50W，远低于预期，大写的惨。
+
+这游戏成本有谁核算过吗？ ...</blockquote>
+这消息哪来的？官宣吗？
+
+*****
+
+####  BK10  
+##### 1143#       发表于 2024-11-9 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66656570&amp;ptid=2072996" target="_blank">tigs1 发表于 2024-11-9 16:01</a>
+这消息哪来的？官宣吗？</blockquote>
+一个自媒体爆料，就算没这么低，发售一周了官方安静如鸡，没玩家人数，没销量数字，感觉好不到哪里去
+

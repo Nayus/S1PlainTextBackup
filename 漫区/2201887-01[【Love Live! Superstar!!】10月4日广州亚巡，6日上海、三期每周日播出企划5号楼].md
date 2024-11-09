@@ -6685,3 +6685,27 @@ CP大战自古以来都有吧，水那时候千曜千梨也闹麻了，结果官
 
 暂时星和解了，时隔多年下单了动画CD<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 650#       发表于 2024-11-9 08:46
+
+可恋的话啊，可能性太低了。说到底还是yura这个曲子词写的太好了，又把星1那个不清不楚的恋恋问题搞清楚了。不过星3让我确信了花田心中的可可就是对恋恋有敌意的，不然当年不让搞偶像部的仇不会记到现在来用。
+
+现在的cp大战问题，不只是星1的遗留问题，也是你拉这么多年天天搞擦边百合营销的福报吧，当年就是这么玩的，还吸引了星无这种完全扭曲作品氛围的创作者，也不知道是好事还是坏事。
+
+说实话当年缪的时候我也搞不懂为什么那么多磕妮姬的，这两个纯看动画甚至连可堇这种怪味糖都没有，妮可后面长期是和花阳与凛混的。
+
+*****
+
+####  ads147147  
+##### 651#       发表于 2024-11-9 08:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66650934&amp;ptid=2201887" target="_blank">黒烨 发表于 2024-11-8 19:08</a>
+
+我对cp脑上头的人都没啥好印象，看见这种人都嫌脏
+
+笑死可恋那个曲子可堇剪了合鲤也剪了，只能说可恋粉丝太 ...</blockquote>
+可恋粉丝起码比绘海粉丝多<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

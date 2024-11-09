@@ -6986,3 +6986,11 @@ https://ngabbs.com/read.php?tid=42389631
 
 btw 我看图透发现个比较骚的事情，为什么她们还带着校服来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黒烨  
+##### 678#       发表于 2024-11-10 00:27
+
+往细节想没有好处全是槽点，就当结丘要拍宣传片吧，拍出来第四年宣传跨越国际招生用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

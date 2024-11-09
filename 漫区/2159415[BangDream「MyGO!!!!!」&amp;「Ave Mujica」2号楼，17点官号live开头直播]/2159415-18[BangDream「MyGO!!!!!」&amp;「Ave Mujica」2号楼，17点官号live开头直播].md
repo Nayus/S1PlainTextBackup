@@ -9476,3 +9476,19 @@ mujica算不算是奶的最全面的一部
 不算，编剧还在保持沉默</blockquote>
 "没看到分镜我也不好说成片是啥样"
 
+
+*****
+
+####  skives10  
+##### 25943#       发表于 2024-11-9 15:00
+
+沟槽的wsd不会真的没有科学的声乐指导吧
+
+<img src="https://img.saraba1st.com/forum/202411/09/150005vaawwwawj5quhhk7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0283.jpeg</strong> (407.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-9 15:00 上传
+

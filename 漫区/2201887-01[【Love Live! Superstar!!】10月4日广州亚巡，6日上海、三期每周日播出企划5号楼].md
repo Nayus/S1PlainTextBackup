@@ -6963,3 +6963,16 @@ https://ngabbs.com/read.php?tid=42389631
 舅舅这个环大陆的说法真是有点搞，他不知道mal对星团评价远超所有拉拉系列吗，星2还是额外的高捏，欧美佬能 ...</blockquote>
 呃 兽娘二都不行？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 676#       发表于 2024-11-9 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66658306&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-11-9 19:46</a>
+
+呃 兽娘二都不行？</blockquote>
+主要是兽娘1也不高啊，mal只有7.51，兽娘2是5.82，说实话虽然低但是也没那么低。
+
+拉拉系列基本在7.4~9这个区间，星团2现在少了点现在也是7.6，星1是7.93.星3目前7.81.在拉拉系列里都算是非常高的了，缪都只有7.4和7.7，目前最高星1其次缪剧场。说到底老外对于学园偶像片真的说不上什么喜欢或者不喜欢，打的分完全没有区分度的。
+

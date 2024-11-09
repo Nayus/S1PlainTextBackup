@@ -190,3 +190,11 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Humpy  
+##### 5533#       发表于 2024-11-9 19:56
+
+双rpg，你所拥有的火力，正是成王的理由<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -5372,3 +5372,18 @@ DEI不会让好游戏变差也不会让差游戏变好。
 
 这游戏成本有谁核算过吗？
 
+
+*****
+
+####  mimighost  
+##### 1140#       发表于 2024-11-9 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66656248&amp;ptid=2072996" target="_blank">震荡波 发表于 2024-11-9 15:06</a>
+
+现在首周全平台销量50W，远低于预期，大写的惨。
+
+这游戏成本有谁核算过吗？ ...</blockquote>
+实际开发周期4-5年
+
+至少上亿吧
+

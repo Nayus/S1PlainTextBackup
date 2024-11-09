@@ -6709,3 +6709,11 @@ CP大战自古以来都有吧，水那时候千曜千梨也闹麻了，结果官
 笑死可恋那个曲子可堇剪了合鲤也剪了，只能说可恋粉丝太 ...</blockquote>
 可恋粉丝起码比绘海粉丝多<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  金属化反射装甲  
+##### 652#       发表于 2024-11-9 10:45
+
+好奇星团第一季的五人相关cp人气大概啥样子，有人知道吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

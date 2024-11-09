@@ -6952,3 +6952,14 @@ https://ngabbs.com/read.php?tid=42389631
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  ViyViy  
+##### 675#       发表于 2024-11-9 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66658196&amp;ptid=2201887" target="_blank">ads147147 发表于 2024-11-9 19:34</a>
+
+舅舅这个环大陆的说法真是有点搞，他不知道mal对星团评价远超所有拉拉系列吗，星2还是额外的高捏，欧美佬能 ...</blockquote>
+呃 兽娘二都不行？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

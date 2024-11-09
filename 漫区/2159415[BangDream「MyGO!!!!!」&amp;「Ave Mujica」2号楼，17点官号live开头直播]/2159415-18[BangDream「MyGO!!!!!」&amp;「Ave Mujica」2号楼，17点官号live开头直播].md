@@ -9502,3 +9502,11 @@ wsd什么时候有科学的声乐指导了
 
 进藤天音向相羽爱奈学习唱歌技巧就是一个最大的笑话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 25945#       发表于 2024-11-9 16:50
+
+别说声乐指导了，天音平常说话的声音就得直接让人好奇这能唱高音吗，然后wsd在一开始就照样安排需要高音的歌。
+

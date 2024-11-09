@@ -6087,3 +6087,16 @@ SMT 的 press turn 与世界树的职业 + 前后排机制是一次失败的融�
 打到9月最后了，我怎么感觉要是不刻意刷的话到通关我都转不出一个队友的皇家职业
 而且后面冒出来这么多任务，我真有点想调低难度了。那几个塔就是大家说的几个龙么，是先上皇宫还是把所有任务推了再去比较好
 
+
+*****
+
+####  隔壁老黄  
+##### 3503#       发表于 2024-11-9 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66657013&amp;ptid=2140224" target="_blank">u2deack 发表于 2024-11-9 17:03</a>
+打到9月最后了，我怎么感觉要是不刻意刷的话到通关我都转不出一个队友的皇家职业
+而且后面冒出来这么多任务 ...</blockquote>
+打龙送三件防具，打隐藏boss送把破烂剑和全参数+8的饰品
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+

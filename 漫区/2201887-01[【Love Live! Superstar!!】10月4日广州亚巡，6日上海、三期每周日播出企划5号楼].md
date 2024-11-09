@@ -6976,3 +6976,13 @@ https://ngabbs.com/read.php?tid=42389631
 
 拉拉系列基本在7.4~9这个区间，星团2现在少了点现在也是7.6，星1是7.93.星3目前7.81.在拉拉系列里都算是非常高的了，缪都只有7.4和7.7，目前最高星1其次缪剧场。说到底老外对于学园偶像片真的说不上什么喜欢或者不喜欢，打的分完全没有区分度的。
 
+
+*****
+
+####  ViyViy  
+##### 677#       发表于 2024-11-10 00:11
+
+鱼ins直播最后说期待明天，最后的保险也上了，世界聚焦于你<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+btw 我看图透发现个比较骚的事情，为什么她们还带着校服来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

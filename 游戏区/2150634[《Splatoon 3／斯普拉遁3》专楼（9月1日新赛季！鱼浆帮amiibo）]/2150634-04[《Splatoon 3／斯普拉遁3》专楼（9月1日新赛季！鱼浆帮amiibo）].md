@@ -25,3 +25,37 @@
 
 —— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  shirolin  
+##### 5513#       发表于 2024-11-9 17:20
+
+太快了…
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 5514#       发表于 2024-11-9 17:20
+
+第一把简直就是吊打
+
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 5515#       发表于 2024-11-9 17:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太惨了
+
+*****
+
+####  shirolin  
+##### 5516#       发表于 2024-11-9 17:25
+
+第二把也是
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

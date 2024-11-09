@@ -6873,3 +6873,26 @@ https://ngabbs.com/read.php?tid=42389631
 
 第一季火的时候b站上有好多上百万的视频，现在能有个十万都开香槟，看看6集的live怎么样吧
 
+
+*****
+
+####  cat1230  
+##### 667#       发表于 2024-11-9 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66656987&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-11-9 17:00</a>
+
+唉，现在人是真的实打实的少，第五集这样规格端上来到现在下一集播出前夕单人的同人图只有二十出头，但一想 ...</blockquote>
+第五话要是放在第一季，流量得爆上天。现在的星团国内确实没啥热度。
+
+*****
+
+####  qratosones1337  
+##### 668#       发表于 2024-11-9 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66656040&amp;ptid=2201887" target="_blank">ads147147 发表于 2024-11-9 14:27</a>
+
+可堇开播前就有很强的人气了，反而是可香是因为动画后来居上的第一。
+
+至于为什么我也不知道，动画播出前 ...</blockquote>
+感觉日常剧情跟主线剧情有割裂感，可堇是第十集才真正确立下来的，十集之后可可是堇的贵人，平时斗两句嘴当然没啥
+

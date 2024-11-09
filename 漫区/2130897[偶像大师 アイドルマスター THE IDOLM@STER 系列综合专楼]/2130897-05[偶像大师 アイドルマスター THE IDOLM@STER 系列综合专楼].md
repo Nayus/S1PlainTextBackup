@@ -151,3 +151,39 @@ u149完结，百11th延期<img src="https://static.saraba1st.com/image/smiley/fa
 
 闪三这周又咋了？（
 
+
+*****
+
+####  wolf1997  
+##### 6645#       发表于 2024-11-9 15:46
+
+闪三这周已经无敌了，不仅回到了左讲一个组右讲一个组的混搭状态，后半更是全员NT模式，交流是全靠内心的，台词是前言不搭后语的，透鸽是零帧起手一见面就开始探讨偶像意义的，鉴定为对富野节的拙劣模仿
+
+*****
+
+####  wfhtony  
+##### 6646#       发表于 2024-11-9 18:16
+
+[十王 星南 新入生向け演説動画アーカイブ](https://www.youtube.com/watch?v=164oLHKMR4Q)
+[十王 星南に聞く５つの質問](https://www.youtube.com/watch?v=Z5p8px-mGHU)
+
+明天晚上公開：
+[十王 星南 PROMOTION VIDEO『Choo Choo Choo』](https://www.youtube.com/watch?v=upM_XM2QdKk)
+
+*****
+
+####  aptx8285144  
+##### 6647#       发表于 2024-11-9 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66655858&amp;ptid=2130897" target="_blank">Unlight 发表于 2024-11-9 13:50</a>
+
+闪三这周又咋了？（</blockquote>
+突然想起了好像那位楼主没有再开投票对决楼了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Ask_10A  
+##### 6648#       发表于 2024-11-9 23:19
+
+这周进入了喜闻乐见的原创环节
+

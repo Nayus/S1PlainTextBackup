@@ -6849,3 +6849,11 @@ https://ngabbs.com/read.php?tid=42389631
 
 但到了关键问题上还是会遵循底层逻辑兼容模式运行的，毕竟如果不是萌萌姐手快估计可可还要纠结上半天“浪费时间”吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViyViy  
+##### 664#       发表于 2024-11-9 17:00
+
+唉，现在人是真的实打实的少，第五集这样规格端上来到现在下一集播出前夕单人的同人图只有二十出头，但一想到今年生日也就一百出头就很难绷，明天播完一周后有望达到今年生贺的50%<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -455,3 +455,21 @@ rog ally一代突出一个便宜大碗，除了续航硬伤，休眠唤醒因为
 
 就是现在nsl破解都要拆机买的限定版不舍得<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cosx  
+##### 47#       发表于 2024-11-9 17:56
+
+SD2能有1080@60就行了，续航其实没多大问题，大不了外挂血袋。以SD1代社区的DIY精神来看魔改个2wmAh也不成问题。
+游玩优势是steam库，劣势是没有主机独占游戏，用户群体不冲突，没有捧一踩一一说。
+
+*****
+
+####  nanonya2  
+##### 48#       发表于 2024-11-9 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66655988&amp;ptid=2206237" target="_blank">糖皮质激素 发表于 2024-11-9 14:14</a>
+SD最大的危机其实是被手机偷家吧，隔壁安卓8elite机型已经开始搞PC模拟器了，未来小屏安卓板机身功耗给到10 ...</blockquote>
+Valve已经在开发ARM64和Android平台使用的Proton了
+

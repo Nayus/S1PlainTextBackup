@@ -6717,3 +6717,13 @@ CP大战自古以来都有吧，水那时候千曜千梨也闹麻了，结果官
 
 好奇星团第一季的五人相关cp人气大概啥样子，有人知道吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViyViy  
+##### 653#       发表于 2024-11-9 10:55
+
+现在小组在一起了以后可恋机会就多啦
+
+btw 我是get不到香堇的，他们所谓的抢C，递名片在我看来实在是太轻飘飘了…
+

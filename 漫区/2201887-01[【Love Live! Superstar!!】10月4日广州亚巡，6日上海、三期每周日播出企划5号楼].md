@@ -6753,3 +6753,14 @@ btw 我是get不到香堇的，他们所谓的抢C，递名片在我看来实在
 
 反正看不出竞争关系，更像是千香这种母女关系。。
 
+
+*****
+
+####  金属化反射装甲  
+##### 656#       发表于 2024-11-9 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66654935&amp;ptid=2201887" target="_blank">ads147147 发表于 2024-11-9 11:17</a>
+
+可香，可堇，千香，其他，动画播完后特典的yura曲会让可恋多了点。三次元的话，大家都差不多乱炖，都有可 ...</blockquote>
+都是动画倾向很大的那几对啊。。另外我一直很纳闷动画里堇对可可这个看着好像很大的箭头是怎么来的，这两人前三集一点交集没有，也是香音拉她入团的，下一集就怎么一下子开始吵嘴了<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+

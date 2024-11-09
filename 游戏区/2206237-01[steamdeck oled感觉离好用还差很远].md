@@ -445,3 +445,13 @@ rog ally一代突出一个便宜大碗，除了续航硬伤，休眠唤醒因为
 
 —— 来自 HUAWEI OCE-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  双刀少女  
+##### 46#       发表于 2024-11-9 17:44
+
+之前纠结了好久，感觉拿来串流还是找个nsl破解下好了，分辨率都一样..
+
+就是现在nsl破解都要拆机买的限定版不舍得<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

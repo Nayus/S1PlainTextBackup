@@ -6833,3 +6833,19 @@ https://ngabbs.com/read.php?tid=42389631
 
 你星有几个塑造有清晰个性的，除了贴标签就是无塑造，唯一笔墨多的大香还因为二期而贼割裂
 
+
+*****
+
+####  ViyViy  
+##### 663#       发表于 2024-11-9 16:39
+
+ 本帖最后由 ViyViy 于 2024-11-9 16:41 编辑 
+
+这种解读差异，又可以拷打我们的花田大师了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">从他写作的喜好上看其实他真亲的反而是可可这样的，但最后阴差阳错全包装堇去了。
+
+爱憎分明可能太宽泛了，就一期对堇恋的态度转变可以狭义点理解为“你对学偶好，那我就支持你”（照偶镜）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+二期在此基础上补充了一点：别过多干涉可可觉得应该完全由自己吞下的苦，我会不高兴；这个拜堇无效输出了一番后，就算她成功松动了一下可可的想法吧，毕竟现在第五集开头愿意跟香音分享了（不过这丫真不好说，因为一二期的西八安排应该一般观众只会觉得又是对香对堇的区别对待现场吧）
+
+但到了关键问题上还是会遵循底层逻辑兼容模式运行的，毕竟如果不是萌萌姐手快估计可可还要纠结上半天“浪费时间”吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

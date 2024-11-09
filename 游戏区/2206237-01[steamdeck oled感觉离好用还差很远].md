@@ -416,3 +416,14 @@ SD对我来说也不折腾 可能我比较熟悉电脑，WIN主要还是待机�
 
 SD最大的危机其实是被手机偷家吧，隔壁安卓8elite机型已经开始搞PC模拟器了，未来小屏安卓板机身功耗给到10w开外，算上转译损失都能赢sd，z1e掌机是可以当作移动PC来使用的，sd可没这个能力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  传说中的天才  
+##### 43#       发表于 2024-11-9 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66655988&amp;ptid=2206237" target="_blank">糖皮质激素 发表于 2024-11-9 14:14</a>
+
+SD最大的危机其实是被手机偷家吧，隔壁安卓8elite机型已经开始搞PC模拟器了，未来小屏安卓板机身功耗给到10 ...</blockquote>
+对Valve来说SD是X86还是ARM完全无所谓的事情，选X86是X86的兼容性好，如果ARM干到了X86的兼容性那么SD肯定就变成ARM的机器了，所以当家被偷的时候直接就变成对面的基地了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

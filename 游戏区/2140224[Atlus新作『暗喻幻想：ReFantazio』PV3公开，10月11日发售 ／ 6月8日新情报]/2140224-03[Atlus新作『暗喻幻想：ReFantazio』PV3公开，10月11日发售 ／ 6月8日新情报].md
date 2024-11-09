@@ -6130,3 +6130,15 @@ SMT 的 press turn 与世界树的职业 + 前后排机制是一次失败的融�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
 
+
+*****
+
+####  恍兮惚兮  
+##### 3507#       发表于 2024-11-10 06:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66660521&amp;ptid=2140224" target="_blank">yyman 发表于 2024-11-10 00:30</a>
+尴尬了，天变红之后所有地图加见识的观景点都没了，白天就没有可以加见识的办法了吗？ ...</blockquote>
+王城魔导店前面的椅子可以加吧，一次加挺多的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

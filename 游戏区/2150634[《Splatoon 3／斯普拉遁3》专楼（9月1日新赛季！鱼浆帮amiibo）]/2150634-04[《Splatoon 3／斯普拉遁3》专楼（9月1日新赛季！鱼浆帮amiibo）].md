@@ -173,3 +173,20 @@
 
 还是让一追二，这下有人要睡不着了
 
+
+*****
+
+####  carroy  
+##### 5531#       发表于 2024-11-9 19:44
+
+睡不着了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shirolin  
+##### 5532#       发表于 2024-11-9 19:44
+
+理想乡后继乏力啊…可能打egoist燃尽了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

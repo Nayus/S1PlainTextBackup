@@ -6942,3 +6942,13 @@ https://ngabbs.com/read.php?tid=42389631
 
 不一定能省，舅舅是有主观性的。只能当作参考不能当作全部。不过cp厨很煎熬就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 674#       发表于 2024-11-9 19:34
+
+舅舅这个环大陆的说法真是有点搞，他不知道mal对星团评价远超所有拉拉系列吗，星2还是额外的高捏，欧美佬能一致给差评的动画至今我还没发现。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

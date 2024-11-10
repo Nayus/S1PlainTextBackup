@@ -7731,3 +7731,48 @@ live前还卖了千香呢，小问题（）不过不知道可可升学这条线�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  ayara  
+##### 763#       发表于 2024-11-10 17:10
+
+星星也有自己的千曜梨
+
+至于香千薇，薇恩还是进场太晚了难以撼动千妈地位，除非最后薇恩一路赢到底，但是这不太可能，都要合并了
+
+*****
+
+####  黒烨  
+##### 764#       发表于 2024-11-10 17:12
+
+个人觉得这集观感比上集差
+
+*****
+
+####  优妮可  
+##### 765#       发表于 2024-11-10 17:12
+
+虽然知道🐟要回上海演出，但这个选人现在看来还是巨魔
+
+<img src="https://img.saraba1st.com/forum/202411/10/171230yhrbuxac5eu1ssd1.jpg" referrerpolicy="no-referrer">
+
+<strong>1000051382.jpg</strong> (254.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-10 17:12 上传
+
+*****
+
+####  ads147147  
+##### 766#       发表于 2024-11-10 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66664185&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-11-10 16:54</a>
+破案了</blockquote>
+所以姐姐其实是桃矢（噗）
+
+我记得鱼cos过小樱来着。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

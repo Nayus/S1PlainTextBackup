@@ -7680,3 +7680,54 @@ live前还卖了千香呢，小问题（）不过不知道可可升学这条线�
 —— 来自 HUAWEI ABR-AL60, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
 你来得正是时候
 
+
+*****
+
+####  ViyViy  
+##### 758#       发表于 2024-11-10 16:54
+
+破案了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202411/10/165404qlu42rb6zf24jkb6.png" referrerpolicy="no-referrer">
+
+<strong>QQ20241110-165343.png</strong> (334.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-10 16:54 上传
+
+*****
+
+####  笋狐  
+##### 759#       发表于 2024-11-10 16:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉这集场外会比场内精彩耶（默默端起板凳
+
+*****
+
+####  KirigawaMaki  
+##### 760#       发表于 2024-11-10 16:57
+
+可可爸少有的露脸男性，还有可可的挑染原来是遗传妈妈<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  离心  
+##### 761#       发表于 2024-11-10 16:59
+
+<blockquote>llllife 发表于 2024-11-10 16:52
+你星是唯一提到成员（香音和薇恩）毕业后去向的团吧，如果还有剧场版的话说不定真的会提一下，而且可是老 ...</blockquote>
+恋这边就是芭蕾或是接手结丘（除非花田真疯了让恋当电玩高手）
+
+
+*****
+
+####  ruffian  
+##### 762#       发表于 2024-11-10 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66664168&amp;ptid=2201887" target="_blank">llllife 发表于 2024-11-10 16:52:37</a>
+你星是唯一提到成员（香音和薇恩）毕业后去向的团吧，如果还有剧场版的话说不定真的会提一下，而且可是 ...</blockquote>恋这边可是真的有家业<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

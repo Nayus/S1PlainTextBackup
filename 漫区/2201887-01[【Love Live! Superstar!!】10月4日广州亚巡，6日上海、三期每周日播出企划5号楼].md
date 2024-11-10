@@ -7776,3 +7776,45 @@ live前还卖了千香呢，小问题（）不过不知道可可升学这条线�
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  csolfans  
+##### 767#       发表于 2024-11-10 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66664332&amp;ptid=2201887" target="_blank">ads147147 发表于 2024-11-10 17:12</a>
+所以姐姐其实是桃矢（噗）
+
+我记得鱼cos过小樱来着。</blockquote>
+魔卡少女樱和LL无印这两部动画可以说是在鲤鱼人生留下不可磨灭的印象了
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  仟音一心  
+##### 768#       发表于 2024-11-10 17:21
+
+<img src="https://p.sda1.dev/20/4f660bf7cd3adaec5f02058cd2e80d1b/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 769#       发表于 2024-11-10 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66664377&amp;ptid=2201887" target="_blank">csolfans 发表于 2024-11-10 17:18</a>
+魔卡少女樱和LL无印这两部动画可以说是在鲤鱼人生留下不可磨灭的印象了
+
+—— 来自 Xiaomi 22041211AC, A ...</blockquote>
+其实现在往回看感觉鱼更适合走粉色系，可爱的那种，现在的cool系有点cute装cool（不过可可确实更cool点
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  llllife  
+##### 770#       发表于 2024-11-10 17:26
+
+怎么大家都认为可可以后不读大学要去做地偶（不是）。这集不就说了可可以后要继续留在舞台上，继续搞音乐，其他啥也没说，也没说她以后不继续深造啊，她家的条件送去外国艺术学院深造不是很轻松，而且也有成绩（lovelive大赛冠军），说不定还是国际的（日本和上海双冠军，如果这集能拿下的话）
+

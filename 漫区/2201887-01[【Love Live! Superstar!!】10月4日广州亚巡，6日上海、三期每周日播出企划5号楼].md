@@ -7979,3 +7979,46 @@ live前还卖了千香呢，小问题（）不过不知道可可升学这条线�
 
 他现在的水平真的建议GBC2写完自己自觉点<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViyViy  
+##### 786#       发表于 2024-11-10 18:04
+
+哦对 说个有点牵强的点，这集插歌的【绝对的LOVER】 可能是参考的一期外景鱼塔罗牌占卜出来的【恋人】牌（不过恋人是The Lovers）
+
+
+*****
+
+####  qty  
+##### 787#       发表于 2024-11-10 18:11
+
+这生放怎么还在扯前几话
+
+*****
+
+####  ads147147  
+##### 788#       发表于 2024-11-10 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66664766&amp;ptid=2201887" target="_blank">qty 发表于 2024-11-10 18:11</a>
+这生放怎么还在扯前几话</blockquote>
+是1~6都谈吧
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  ruffian  
+##### 789#       发表于 2024-11-10 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66664627&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-11-10 17:54:25</a></blockquote>只是不上北大吧？至少现在是。上网一看我以为她要去当地偶了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  qty  
+##### 790#       发表于 2024-11-10 18:14
+
+感觉鲤鱼还是茶发好些，纯黑发有点显脸胖
+

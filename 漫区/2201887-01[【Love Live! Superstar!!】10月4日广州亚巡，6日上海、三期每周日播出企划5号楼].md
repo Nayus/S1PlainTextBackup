@@ -8336,3 +8336,41 @@ bd1封面
 这集是星三第一次上日趋第一？收视率不知道怎么样</blockquote>
 第二次了好像，第一次是第三集还是第二集来着
 
+
+*****
+
+####  a85982313  
+##### 824#       发表于 2024-11-10 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66665367&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-11-10 19:35</a>
+
+第二次了好像，第一次是第三集还是第二集来着</blockquote>
+第一集上过
+
+*****
+
+####  we89623  
+##### 825#       发表于 2024-11-10 19:41
+
+免费大魔没露面？这不像你啊万代。
+
+
+*****
+
+####  ads147147  
+##### 826#       发表于 2024-11-10 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66665407&amp;ptid=2201887" target="_blank">we89623 发表于 2024-11-10 19:41</a>
+
+免费大魔没露面？这不像你啊万代。</blockquote>
+对哦，自由高达也没出来。。
+
+*****
+
+####  ViyViy  
+##### 827#       发表于 2024-11-10 19:44
+
+高层斗争.jpg
+
+话说小星星那家水平如何，有了解的吗
+

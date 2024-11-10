@@ -30,3 +30,13 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  Totokei  
+##### 1880#       发表于 2024-11-11 00:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">Spec2大管牙膏还以为是开始，没想到是结束
+
+现在GT7已经摆烂成双月更新了甚至没有和新主机同步更新补丁
+

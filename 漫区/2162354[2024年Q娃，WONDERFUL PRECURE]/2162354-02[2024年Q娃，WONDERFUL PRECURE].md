@@ -66,3 +66,22 @@
 
 这集整集里小雪的态度都不对劲，像是觉醒了什么糟糕的东西（指XP）一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leleq  
+##### 2591#       发表于 2024-11-10 16:26
+
+同人大胜利回<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+狗组和猫组感觉不是一个类型的“玩”<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+悟：卧槽有🐂
+
+*****
+
+####  八佾舞于潭  
+##### 2592#       发表于 2024-11-10 20:37
+
+今年的Q娃，原来是摇铃啊摇铃那种设定<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

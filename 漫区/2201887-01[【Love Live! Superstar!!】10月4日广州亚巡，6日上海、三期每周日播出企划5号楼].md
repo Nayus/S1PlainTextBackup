@@ -8241,3 +8241,50 @@ live前还卖了千香呢，小问题（）不过不知道可可升学这条线�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">聊着聊着都哭了 
 
+
+*****
+
+####  llllife  
+##### 814#       发表于 2024-11-10 19:06
+
+小百合也绷不住了，可香真的是白月光，不光对角色，对观众和声优也是，现在能call back也算是不忘初心，当然要是能删了第二季就更好了
+
+*****
+
+####  evestart  
+##### 815#       发表于 2024-11-10 19:09
+
+ED是小星星更好
+
+*****
+
+####  ViyViy  
+##### 816#       发表于 2024-11-10 19:10
+
+说回贵企划ED这巨魔安排，乐观点想嘛，和前辈团一样solo专应该是稳稳有了，毕竟这个也太刻意了，硬造梗然后自己接<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  离心  
+##### 817#       发表于 2024-11-10 19:13
+
+bd1封面
+
+<img src="https://img.saraba1st.com/forum/202411/10/191301ba54hwwiwl5lejj5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-11-10-19-11-57-776_tv.danmaku.bili.jpg</strong> (268.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-10 19:13 上传
+
+我艹这水母
+
+*****
+
+####  ViyViy  
+##### 818#       发表于 2024-11-10 19:15
+
+啊？小星星手办？
+

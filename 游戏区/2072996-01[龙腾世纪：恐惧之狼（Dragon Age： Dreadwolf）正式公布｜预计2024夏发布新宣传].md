@@ -5824,3 +5824,11 @@ DG算是DA一二三代剧情世界观的创造者，但算不上创始者。</bl
 
 <img src="https://img.saraba1st.com/forum/202411/10/190054n1gr95gzcbu915do.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风烛尘香  
+##### 1178#       发表于 2024-11-10 19:12
+
+在一个已经快烂的差不多的系列里，抱着所谓的设定集和小说死扣细节，就像是在教人茴字有几种写法一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

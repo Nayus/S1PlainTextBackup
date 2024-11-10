@@ -5522,3 +5522,17 @@ DEI不会让好游戏变差也不会让差游戏变好。
 抛开ZZZQ，系统和玩法，还有体量到底咋样？？？？</blockquote>
 战斗系统一眼到底，人物build也没有深度，地图遍布弱智解谜，剧情白开水，作为一款rpg来说也就及格
 
+
+*****
+
+####  PROCAINUM  
+##### 1154#       发表于 2024-11-10 08:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66660954&amp;ptid=2072996" target="_blank">mimighost 发表于 2024-11-10 03:26</a>
+这心态可真扭曲
+
+看来他除了讨厌所谓的chuds，也讨厌现在的bioware</blockquote>
+这个可以理解，DG作为DA世界的创始人之人，看到那么多吃书的设定，自己的心血结晶被人糟蹋，不玩不是很正常<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -7081,3 +7081,11 @@ em比较捕风捉影的话，情报师那声花田的那一页有个组队差两
 有一说一，上海的sif让Liella淹死鱼塘的可能性挺高的，如果是限定在拉拉大赛这种能算成绩能入学高等学府的 ...</blockquote>
 SIF应该是个邀请性质的演出，不是严格的比赛
 
+
+*****
+
+####  cat1230  
+##### 686#       发表于 2024-11-10 15:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">第六话可一定要挺住，口碑好坏在此一举。花田审判还差个吧小时
+

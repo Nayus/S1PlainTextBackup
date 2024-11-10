@@ -610,3 +610,19 @@ oled装个黑屏插件不就是息屏下载了
 
 中文搜不到Surface pro11睡死的讨论，大概是现在买SP的国人太少了。但是外网还是有人问为啥都微软自产的，还有睡死的windows**病。
 
+
+*****
+
+####  zid99825  
+##### 62#       发表于 2024-11-10 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66662975&amp;ptid=2206237" target="_blank">泰坦失足 发表于 2024-11-10 14:05</a>
+https://www.reddit.com/r/Surface ... usable_after_sleep/
+
+https://www.reddit.com/r/Surface/comments/ ...</blockquote>
+因为驱动不是自己写的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+顺便第三方软件也在mods这条睡眠链里，是个程序都可以拦着不去睡
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

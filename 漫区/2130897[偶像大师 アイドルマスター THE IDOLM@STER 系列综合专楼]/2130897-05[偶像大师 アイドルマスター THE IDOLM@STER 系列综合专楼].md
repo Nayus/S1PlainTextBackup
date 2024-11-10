@@ -249,3 +249,19 @@ u149完结，百11th延期<img src="https://static.saraba1st.com/image/smiley/fa
 
 是，11点还有生日曲
 
+
+*****
+
+####  joshua1990  
+##### 6654#       发表于 2024-11-10 23:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">会长solo1有点微妙
+
+
+*****
+
+####  ViviR  
+##### 6655#       发表于 2024-11-10 23:56
+
+先说下，这个不是solo1，是专门做的印象曲。虽然期待也不大就是了…
+

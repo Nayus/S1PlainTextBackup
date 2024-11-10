@@ -5771,3 +5771,11 @@ DG算是DA一二三代剧情世界观的创造者，但算不上创始者。</bl
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">通关了，读档把最后一个选择的三个选项都看了一遍，浑身舒爽
 
+
+*****
+
+####  sosgame67  
+##### 1175#       发表于 2024-11-10 17:49
+
+看了一下红迪版块，几个老玩家的datv长篇评测全部被删了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

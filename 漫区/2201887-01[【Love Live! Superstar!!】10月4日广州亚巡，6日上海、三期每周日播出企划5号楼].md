@@ -7933,3 +7933,33 @@ live前还卖了千香呢，小问题（）不过不知道可可升学这条线�
 
 2024-11-10 17:46 上传
 
+
+*****
+
+####  1096beam  
+##### 782#       发表于 2024-11-10 17:49
+
+拉拉动画以前9个人都有人说人太多了，戏份还要搞端水又不能像偶像大师那样一集可以就出场三四个人
+
+*****
+
+####  ruffian  
+##### 783#       发表于 2024-11-10 17:49
+
+不是，是我理解错了吗？可可还没说以后具体要干啥吧？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ads147147  
+##### 784#       发表于 2024-11-10 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66664527&amp;ptid=2201887" target="_blank">渡辺梨加 发表于 2024-11-10 17:40</a>
+从gbc很明显能看出来，花田的XP就是不上学嘛
+
+—— 来自 鹅球 v3.1.88.3-alpha</blockquote>
+台长那种狗屁暴论居然能被一步步证实也是南蚌
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

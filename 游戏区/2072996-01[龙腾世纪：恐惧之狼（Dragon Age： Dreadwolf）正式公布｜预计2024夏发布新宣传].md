@@ -5673,3 +5673,13 @@ DG算是DA一二三代剧情世界观的创造者，但算不上创始者。
 
 新阵营真没感觉在开世界观，我玩起来只感觉是服务性游戏残余，六个阵营各自职业特色，分商人分威望，像是给多人刷刷刷准备的。
 
+
+*****
+
+####  PROCAINUM  
+##### 1166#       发表于 2024-11-10 11:11
+
+看了一下自己的回复，发现原来是打错字，原本想打世界观创始人之一，结果打错了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">查了一下wiki说PW是DAI才参与的，之前在ME，但是想不通为啥以他的能力，为啥会把塔什写成这么差<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

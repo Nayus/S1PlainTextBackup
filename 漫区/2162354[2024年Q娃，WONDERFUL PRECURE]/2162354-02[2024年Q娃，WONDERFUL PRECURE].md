@@ -51,3 +51,18 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">其实反派干部是想跟大家一起玩……吗？味儿越来越冲了
 
+
+*****
+
+####  犬飼いろは  
+##### 2589#       发表于 2024-11-10 08:06
+
+第 40 集的 TVer 源（含日字）：magnet:?xt=urn:btih:8ed59d15854bdaef9cfa417268d16a4a4e2c9486
+
+*****
+
+####  pokemon最爱  
+##### 2590#       发表于 2024-11-10 11:13
+
+这集整集里小雪的态度都不对劲，像是觉醒了什么糟糕的东西（指XP）一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

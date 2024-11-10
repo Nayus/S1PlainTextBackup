@@ -8405,3 +8405,32 @@ bd1封面
 
 官方用了将近四年的时间才明白过来味卖可香。
 
+
+*****
+
+####  llllife  
+##### 832#       发表于 2024-11-10 20:08
+
+怎么感觉是卖可香无心插柳，没想到大家都吃，后面想扳过来卖可堇千香也无力回天；不过看了看p站数据，其实还是可堇最多，然后香千可香，不过都是1000上下，差不了几百，以一个只卖了三集的cp，可香够能打了
+
+*****
+
+####  ruffian  
+##### 833#       发表于 2024-11-10 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66665470&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-11-10 19:49:26</a>
+哎不是，这首歌中间那段可可钻隧道鱼要怎么还原草</blockquote>思路打开，从上面跳过去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  a85982313  
+##### 834#       发表于 2024-11-10 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66665609&amp;ptid=2201887" target="_blank">llllife 发表于 2024-11-10 20:08</a>
+
+怎么感觉是卖可香无心插柳，没想到大家都吃，后面想扳过来卖可堇千香也无力回天；不过看了看p站数据，其实 ...</blockquote>
+那还是有点差距的，可堇图文2211，图1216，香千图文2006，图990，可香图文886，图660
+

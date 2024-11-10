@@ -7872,3 +7872,64 @@ live前还卖了千香呢，小问题（）不过不知道可可升学这条线�
 
 <img src="https://p.sda1.dev/20/544505a51ea66db3b09cf74e4ea9e4b0/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  日野下花帆  
+##### 776#       发表于 2024-11-10 17:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">指望日本人真的很懂老钟吗 或者说这集很多一看不都是逆输入过来的 真要细究那要没完没了了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  渡辺梨加  
+##### 777#       发表于 2024-11-10 17:40
+
+从gbc很明显能看出来，花田的XP就是不上学嘛
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+*****
+
+####  llllife  
+##### 778#       发表于 2024-11-10 17:41
+
+剧情还没提可可之后的路，这倒无所谓，可以提了再婊，不过这个live确实没啥亮点，打歌服也不好看，比第一季水平差多了，nonfiction小星星那种live再也做不出来了，也不如星光序曲和wish song
+
+
+*****
+
+####  日野下花帆  
+##### 779#       发表于 2024-11-10 17:44
+
+后路要留到毕业回了 这集做到的也就是背景补充
+现在留下来的问题还有二队回归一队 三年生毕业&amp;进路问题  可能会有的土妹子回 可能会有的恋堇回 
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  ayara  
+##### 780#       发表于 2024-11-10 17:46
+
+<blockquote>llllife 发表于 2024-11-10 17:41
+剧情还没提可可之后的路，这倒无所谓，可以提了再婊，不过这个live确实没啥亮点，打歌服也不好看，比第一季 ...</blockquote>
+人太多了，第一季五个人能每个人有很多镜头很多设计，现在十一个人每个人能露个脸都不错了
+
+*****
+
+####  ViyViy  
+##### 781#       发表于 2024-11-10 17:47
+
+虽然从创作时间轴来看倒反天罡<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202411/10/174651od6d6o55gx55bfza.png" referrerpolicy="no-referrer">
+
+<strong>QQ20241110-174616.png</strong> (358.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-10 17:46 上传
+

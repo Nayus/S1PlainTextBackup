@@ -7024,3 +7024,12 @@ btw 我看图透发现个比较骚的事情，为什么她们 ...</blockquote>
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  ViyViy  
+##### 681#       发表于 2024-11-10 09:45
+
+em比较捕风捉影的话，情报师那声花田的那一页有个组队差两票没冠军被点赞了…
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">难道图透的可香可堇谈心是输了之后……的？
+

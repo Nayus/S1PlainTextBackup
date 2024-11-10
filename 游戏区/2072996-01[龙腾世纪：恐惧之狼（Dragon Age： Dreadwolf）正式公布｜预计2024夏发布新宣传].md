@@ -5583,3 +5583,23 @@ VGI上写的都有52.3万，剩下两个平台能连50w都凑不出来？
 VGI上写的都有52.3万，剩下两个平台能连50w都凑不出来？</blockquote>
 vgi这个数据很可怕了吧，平均游玩时间3个多小时，好家伙，得有多少退款的
 
+
+*****
+
+####  含恨未了切莫死  
+##### 1159#       发表于 2024-11-10 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66661476&amp;ptid=2072996" target="_blank">Edvinno 发表于 2024-11-10 09:29</a>
+
+vgi这个数据很可怕了吧，平均游玩时间3个多小时，好家伙，得有多少退款的 ...</blockquote>
+小黑盒上的平均游玩时间16.5小时，不过中文玩家已经被筛过一遍了，玩家占比和没中文的游戏差不多<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  空中的风铃  
+##### 1160#       发表于 2024-11-10 09:38
+
+<blockquote>lega-II 发表于 2024-11-10 08:09
+战斗和地图探索系列最佳，美工顶级，优化很好。我还没通关但是看通关的普遍至少40+所以体量应该也足够。 ...</blockquote>
+要不你和楼下先打一架吧
+

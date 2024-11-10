@@ -586,3 +586,13 @@ ROG Ally x有坛友在用么，当掌机使用如何，就是这款涨价太厉�
 arm的proton搞好后就天下归一了，可以预见到轻薄3a掌机普及&amp;mac游戏性大跨越</blockquote>
 x64--&gt;arm64 的 FEX 项目有段时间了，但 V 社是给自家的 VR 一体机准备的，而且大概率还是跑 Linux，因为用了 WayDroid，大概就是 SteamOS arm 版上面跑 Android App(尤其 Quest 独占软件)还能跑一些 x86 的 2D 游戏和低性能要求的 3D 游戏/软件，但目前没有适合 V 社的 SoC 好像，除非 AMD 拿出 K12 废案<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">或者老黄的 arm SoC
 
+
+*****
+
+####  OldGlory  
+##### 60#       发表于 2024-11-10 14:00
+
+oled装个黑屏插件不就是息屏下载了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -9743,3 +9743,13 @@ wsd什么时候有科学的声乐指导了
 
 最后的壱雫空, 恍惚间突然有一种首尾相扣, mygo已经全部结束了的惆怅感<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 25967#       发表于 2024-11-10 20:50
+
+绫奈新访谈稍微提到了一句mygo，锤了「一生、バンドしてくれる？」这句是mygo脚本核心
+
+漏油之前说得没错，看来 「言ったでしょう？残りの人生、わたくしに下さいと」这句很可能就是mujica脚本的核心了
+

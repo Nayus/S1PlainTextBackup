@@ -7204,3 +7204,133 @@ ll第一个露脸的男性?
 
 呃 我有种不好的预感。。。
 
+
+*****
+
+####  starring  
+##### 703#       发表于 2024-11-10 16:15
+
+VN谐星化
+
+*****
+
+####  新HGCG  
+##### 704#       发表于 2024-11-10 16:15
+
+同一集里日语普通话上海话并存，还好都听得懂
+
+*****
+
+####  ads147147  
+##### 705#       发表于 2024-11-10 16:15
+
+沪爷：我要去当京爷
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  saglork  
+##### 706#       发表于 2024-11-10 16:17
+
+绷不住，又是大香老师一杆清台，真蛋疼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 707#       发表于 2024-11-10 16:18
+
+<img src="https://p.sda1.dev/20/33afb04fe50a8d6d15e85456f8ce39bc/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 708#       发表于 2024-11-10 16:18
+
+一期的callback
+
+说起来，可可也去维也纳不也行了。。没搞懂为什么有了拉拉冠军还不让走职业偶像的沪爷家庭是什么情况。。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  qratosones1337  
+##### 709#       发表于 2024-11-10 16:18
+
+草，这下可香回收了
+
+*****
+
+####  新HGCG  
+##### 710#       发表于 2024-11-10 16:18
+
+“这三个小姑娘是长宁来的吧”
+
+*****
+
+####  ads147147  
+##### 711#       发表于 2024-11-10 16:19
+
+唯一不反感大香的时候jpg
+
+不过这事我觉得直接按tv雪菜的处理不就好了，直接家里接受了不就好了。。。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  金属化反射装甲  
+##### 712#       发表于 2024-11-10 16:19
+
+在日本动画里看到中国校园故事真是奇妙的感觉。。
+
+
+*****
+
+####  qratosones1337  
+##### 713#       发表于 2024-11-10 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66663786&amp;ptid=2201887" target="_blank">ads147147 发表于 2024-11-10 16:18</a>
+
+一期的callback
+
+说起来，可可也去维也纳不也行了。。没搞懂为什么有了拉拉冠军还不让走职业偶像的沪爷家庭 ...</blockquote>
+不过以LL世界观下毕业之后继续从事狭义偶像行业也是比较少的吧，大香自己去维也纳也是专业音乐路线，跟偶像还是不一样的
+
+*****
+
+####  ruffian  
+##### 714#       发表于 2024-11-10 16:21
+
+说起来……是不是忘了可可睡觉左边靠墙这回事了？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ads147147  
+##### 715#       发表于 2024-11-10 16:22
+
+其实故事很怪，主要是给一期做callback，写的还算可以吧，早就该写的东西拖到现在。
+
+话说不去大学也算不登校么。。。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  cat1230  
+##### 716#       发表于 2024-11-10 16:24
+
+感动，值了！！
+
+喊中文量严重超标的日本新番<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 717#       发表于 2024-11-10 16:24
+
+完蛋，我最担心的事情还是发生了，这丫的不符合咱们的价值观啊草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

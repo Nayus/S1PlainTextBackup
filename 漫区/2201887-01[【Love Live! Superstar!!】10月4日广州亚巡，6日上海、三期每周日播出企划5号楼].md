@@ -7963,3 +7963,19 @@ live前还卖了千香呢，小问题（）不过不知道可可升学这条线�
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  ViyViy  
+##### 785#       发表于 2024-11-10 17:54
+
+ 本帖最后由 ViyViy 于 2024-11-10 17:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66664599&amp;ptid=2201887" target="_blank">ruffian 发表于 2024-11-10 17:49</a>
+
+不是，是我理解错了吗？可可还没说以后具体要干啥吧？
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+花田典型的喊口号…他这集前面让可可很孝顺的骗自己让自己上北大断绝梦想，后面又动摇了说我还是想继续在舞台上，一来一回第一解读肯定是不上大学了啊。而且还有个问题就是像上面说的，父母方面的表态太少了搞得也很微妙，回到一期那种疯狂想象的空间
+
+他现在的水平真的建议GBC2写完自己自觉点<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+

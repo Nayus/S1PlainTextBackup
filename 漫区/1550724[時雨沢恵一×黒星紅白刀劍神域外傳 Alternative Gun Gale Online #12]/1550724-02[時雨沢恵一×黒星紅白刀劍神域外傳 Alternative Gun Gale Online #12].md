@@ -47,3 +47,16 @@ tarou2 さん@tarou2
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  pokemon最爱  
+##### 1951#       发表于 2024-11-10 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66661808&amp;ptid=1550724" target="_blank">stevenzero 发表于 2024-11-10 10:49</a>
+
+不可把左子右太搞错了打了发电浆出去差点把敌我一起送掉，这个笑点做得一点效果没有
+
+还为了断章让莲喊了三 ...</blockquote>
+主要莲因为pito的操作而陷入了混乱状态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

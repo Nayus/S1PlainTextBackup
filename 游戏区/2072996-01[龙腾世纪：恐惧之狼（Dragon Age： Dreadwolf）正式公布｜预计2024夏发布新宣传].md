@@ -5563,3 +5563,23 @@ VGI上写的都有52.3万，剩下两个平台能连50w都凑不出来？
 
 2024-11-10 09:10 上传
 
+
+*****
+
+####  刻路希  
+##### 1157#       发表于 2024-11-10 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66661200&amp;ptid=2072996" target="_blank">ak123 发表于 2024-11-10 07:59</a>
+
+没那么少，应该在90万以内。但是全平台首发肯定没破百万，否则之前ea说本做销量乐观.媒提称da4超越星战幸 ...</blockquote>
+不知道DATV有没有DA2的首发销量，如果连DA2都不如那还真是褒姒了，不过说实话DATV罪不当死，抛开zzzq和剧情来说关卡设定确实是四代中最好的，玩法也是四代中最爽的
+
+*****
+
+####  Edvinno  
+##### 1158#       发表于 2024-11-10 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66661408&amp;ptid=2072996" target="_blank">SergeGlenn 发表于 2024-11-10 09:12</a>
+VGI上写的都有52.3万，剩下两个平台能连50w都凑不出来？</blockquote>
+vgi这个数据很可怕了吧，平均游玩时间3个多小时，好家伙，得有多少退款的
+

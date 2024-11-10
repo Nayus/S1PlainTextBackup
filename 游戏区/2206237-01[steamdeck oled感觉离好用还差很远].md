@@ -626,3 +626,16 @@ https://www.reddit.com/r/Surface/comments/ ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  泰坦失足  
+##### 63#       发表于 2024-11-10 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66663320&amp;ptid=2206237" target="_blank">zid99825 发表于 2024-11-10 15:09</a>
+
+因为驱动不是自己写的啊
+
+顺便第三方软件也在mods这条睡眠链里，是个程序都可以拦着不去睡</blockquote>
+我的win笔记本倒不是睡不着，是醒不了或者莫名的自己醒来
+

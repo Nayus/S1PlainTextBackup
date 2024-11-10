@@ -7070,3 +7070,14 @@ em比较捕风捉影的话，情报师那声花田的那一页有个组队差两
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  qratosones1337  
+##### 685#       发表于 2024-11-10 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66662050&amp;ptid=2201887" target="_blank">ads147147 发表于 2024-11-10 11:32</a>
+
+有一说一，上海的sif让Liella淹死鱼塘的可能性挺高的，如果是限定在拉拉大赛这种能算成绩能入学高等学府的 ...</blockquote>
+SIF应该是个邀请性质的演出，不是严格的比赛
+

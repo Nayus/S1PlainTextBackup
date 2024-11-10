@@ -5714,3 +5714,16 @@ pw代表的dai蛋头也是被打回去三次重写的角色，说不定没人审
 VGI上写的都有52.3万，剩下两个平台能连50w都凑不出来？</blockquote>
 VGI上黑猴两千多万玩家平均游玩时间是40-50小时，你可以想想da4这里有多少人没坚持到俩小时就退款的,别的平台的实体版就更难说了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lega-II  
+##### 1170#       发表于 2024-11-10 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66661624&amp;ptid=2072996" target="_blank">xjtxp 发表于 2024-11-10 10:08</a>
+
+其实很逗的是我觉得DATV的光头跟PW写的官方第四部长篇DA小说里，慢箭费拉森（DATV回忆里提到的光头千年战 ...</blockquote>
+毕竟是自己主笔的角色，Solas的整个人物塑造在DATV里也是少数在线的。
+
+PW之前在DAI里还写了科尔和铁牛。记得DAI里铁牛对Qun有长篇累牍的讨论，最后哪怕和判官山盟海誓了说背叛还是就背叛了。很难想象会简化成现在Taash说的想加就加想离就离开的样子。
+

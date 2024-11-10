@@ -8870,3 +8870,11 @@ VN嘴硬和心软的程度差距越来越大，看下集预告这仨不会搞那
 
 话说，BD3的封面<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">要不可恋吧。
 
+
+*****
+
+####  黒烨  
+##### 872#       发表于 2024-11-11 01:43
+
+可恋厨最幻想的一集<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，如果有那就再好不过了，至少把恋在5、6集缺的那块互动给补上了,但是这卖六卷肯定还有一卷要塞个人吧
+

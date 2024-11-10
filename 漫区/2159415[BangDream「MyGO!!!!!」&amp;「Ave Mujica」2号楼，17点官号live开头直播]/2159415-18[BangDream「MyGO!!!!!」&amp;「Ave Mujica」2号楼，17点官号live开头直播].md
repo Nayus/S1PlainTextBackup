@@ -9793,3 +9793,20 @@ wsd什么时候有科学的声乐指导了
 
 怎么就不能对着队友一起说呢，祥p努努力养四个<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  uhiuk  
+##### 25972#       发表于 2024-11-10 23:23
+
+挺好奇祥子是怎么对初睦说出把你剩余的人生交给我这种话的<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">喵梦听到后的反应也没放出来
+
+*****
+
+####  skives10  
+##### 25973#       发表于 2024-11-10 23:27
+
+估计初华会比较宠溺 海铃会产生强烈的兴趣 喵梦可能不屑心里觉得不靠谱但还是想抓住可能性 睦会有点吃惊吧
+但看到成果之后喵梦应该会很明显的表现出喜悦
+这时候祥子就可以复读这句了
+

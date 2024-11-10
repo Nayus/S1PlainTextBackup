@@ -5779,3 +5779,48 @@ DG算是DA一二三代剧情世界观的创造者，但算不上创始者。</bl
 
 看了一下红迪版块，几个老玩家的datv长篇评测全部被删了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刻路希  
+##### 1176#       发表于 2024-11-10 18:55
+
+[https://www.bilibili.com/video/B ... d_from=333.1007.0.0](https://www.bilibili.com/video/BV1m6m6Y9Ems/?spm_id_from=333.1007.0.0)疯猫的预购毒奶评测来了，不知道生软这次顶不顶的住
+
+
+*****
+
+####  刻路希  
+##### 1177#       发表于 2024-11-10 19:01
+
+疯猫经典毒奶系列系列标题
+
+《牛逼疯了》
+
+《买爆玩爆爽爆》
+
+《想想就很带感》
+
+《怎么看都很稳》
+
+《能出什么问题呢》
+
+《能烂过辐射76？》
+
+《圣歌何以成为bioware史上评价最差的游戏》
+
+《一年过去了，圣歌能玩了吗》
+
+《圣歌为何突然宣布停更？》
+
+《那些年被EA毙掉的工作室──生软》
+
+1.png
+(132.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-10 19:00 上传
+
+<img src="https://img.saraba1st.com/forum/202411/10/190054n1gr95gzcbu915do.png" referrerpolicy="no-referrer">
+

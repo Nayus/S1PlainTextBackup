@@ -8182,3 +8182,62 @@ live前还卖了千香呢，小问题（）不过不知道可可升学这条线�
 突然想问个不相关的人，b站那个青叶真司怎么转性了，记得以前以攻击liyuu和可可为主，现在发言好正常。我都 ...</blockquote>
 这人就是纯串子，不存在什么准确的标签属性
 
+
+*****
+
+####  新HGCG  
+##### 807#       发表于 2024-11-10 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66664836&amp;ptid=2201887" target="_blank">金属化反射装甲 发表于 2024-11-10 18:21</a>
+
+日本人是不是很讨厌上学啊</blockquote>
+毕竟日语里“学习”叫“勉強”
+
+*****
+
+####  黒烨  
+##### 808#       发表于 2024-11-10 18:58
+
+青叶真司一直是个**，你最好还是一直拉黑他比较好
+
+*****
+
+####  kata魂  
+##### 809#       发表于 2024-11-10 18:59
+
+<blockquote>ViyViy 发表于 2024-11-10 18:54
+这人就是纯串子，不存在什么准确的标签属性</blockquote>
+原来如此，拉黑总是能看到别人回复他，还挺奇怪的这么和谐
+
+*****
+
+####  金属化反射装甲  
+##### 810#       发表于 2024-11-10 19:01
+
+勉强凑合，就当可可做主角在外国搞了个合宿回，cp端水这个，可香回收了以前台词，不说ed的话可堇看着也没第二季卖的那么强行，就这样吧
+
+*****
+
+####  ViyViy  
+##### 811#       发表于 2024-11-10 19:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草这群人一直准备着时刻递纸巾
+
+
+*****
+
+####  qratosones1337  
+##### 812#       发表于 2024-11-10 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66664863&amp;ptid=2201887" target="_blank">离心 发表于 2024-11-10 18:24</a>
+
+如果是按隔壁的猜想是回国还是留日本，有些地方能说的通但最后观众不隔应吗？解开可可心结的人跑维也纳去了 ...</blockquote>
+留日本的问题在于，liella肯定是要毕业的，大香老师也去维也纳了，留下来干啥？
+
+*****
+
+####  cybernetics31  
+##### 813#       发表于 2024-11-10 19:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">聊着聊着都哭了 
+

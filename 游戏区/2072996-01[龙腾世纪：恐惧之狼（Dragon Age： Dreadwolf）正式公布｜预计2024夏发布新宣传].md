@@ -5691,3 +5691,14 @@ DG算是DA一二三代剧情世界观的创造者，但算不上创始者。
 
 玩到岔路口 居然有种老头环的感觉。
 
+
+*****
+
+####  sosgame67  
+##### 1168#       发表于 2024-11-10 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66661925&amp;ptid=2072996" target="_blank">PROCAINUM 发表于 2024-11-10 11:11</a>
+
+看了一下自己的回复，发现原来是打错字，原本想打世界观创始人之一，结果打错了，还是改回来好了查了一下wi ...</blockquote>
+pw代表的dai蛋头也是被打回去三次重写的角色，说不定没人审核就放飞自我了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

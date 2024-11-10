@@ -651,3 +651,11 @@ https://www.reddit.com/r/Surface/comments/ ...</blockquote>
 
 模拟器也基本能包干到switch，而且弄个emudeck就行。
 
+
+*****
+
+####  landside  
+##### 65#       发表于 2024-11-10 16:31
+
+息屏下载可以用 Decky Loader 里的黑屏插件解决，另外解决网络问题也是很基本的吧
+

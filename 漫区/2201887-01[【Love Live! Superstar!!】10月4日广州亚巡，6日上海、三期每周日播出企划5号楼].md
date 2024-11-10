@@ -7334,3 +7334,158 @@ VN谐星化
 
 完蛋，我最担心的事情还是发生了，这丫的不符合咱们的价值观啊草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tjshibc21  
+##### 718#       发表于 2024-11-10 16:24
+
+这集节奏像坐火箭 
+
+*****
+
+####  saglork  
+##### 719#       发表于 2024-11-10 16:24
+
+行吧，脑子啥的都扔了，就当给鲤鱼拍了一集自传也不错吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 720#       发表于 2024-11-10 16:25
+
+不是，可可的ed solo呢，端水得太过分
+
+
+*****
+
+####  ads147147  
+##### 721#       发表于 2024-11-10 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66663828&amp;ptid=2201887" target="_blank">qratosones1337 发表于 2024-11-10 16:21</a>
+不过以LL世界观下毕业之后继续从事狭义偶像行业也是比较少的吧，大香自己去维也纳也是专业音乐路线，跟偶 ...</blockquote>
+主要是arise和ss都算走职业路线，snp是没说，所以挺奇怪的。
+
+主要是学院偶像肯定是高中时期才算，所以是有期限限制的社团活动，高中毕业了肯定是不能当学院偶像的。总觉得花田就没打算深究这个，所以讨论这个会很乱。
+
+直播还有故意打5的4v笑死了。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  cybernetics31  
+##### 722#       发表于 2024-11-10 16:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可是 鱼也是上了大学后。。。。。。
+
+*****
+
+####  离心  
+##### 723#       发表于 2024-11-10 16:27
+
+不是没区别的啊，上大学和继续站在舞台上没区别啊，直接全都要就行了啊。只能当作鲤鱼自传了
+
+*****
+
+####  ads147147  
+##### 724#       发表于 2024-11-10 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66663859&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-11-10 16:24</a>
+完蛋，我最担心的事情还是发生了，这丫的不符合咱们的价值观啊草</blockquote>
+按理说都让娃去日本搞学院偶像，还拿到了顶级赛事的冠军，沪爷哪有不开放到让娃必须读大学的。然后典中典的去北京的大学，我怀疑有那位大人的粉丝。。。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  llllife  
+##### 725#       发表于 2024-11-10 16:28
+
+完全是鲤鱼姐自传，把大学变成而高中已
+
+*****
+
+####  懂你意思  
+##### 726#       发表于 2024-11-10 16:29
+
+这意思是不上国内大学了直接偶像出道吗
+
+*****
+
+####  starring  
+##### 727#       发表于 2024-11-10 16:29
+
+抛去没有可可ed solo这点，这两集的质量可以说回到一期前三集，剩下几集不搞烂活平稳完结就是胜利
+
+*****
+
+####  蜜梨柑  
+##### 728#       发表于 2024-11-10 16:29
+
+感觉又看了次一期小千回<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cat1230  
+##### 729#       发表于 2024-11-10 16:29
+
+确实是鲤鱼自传，你说剧本没参考鲤鱼的故事都不信了。
+
+
+*****
+
+####  qratosones1337  
+##### 730#       发表于 2024-11-10 16:31
+
+ 本帖最后由 qratosones1337 于 2024-11-10 16:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66663886&amp;ptid=2201887" target="_blank">ads147147 发表于 2024-11-10 16:26</a>
+
+主要是arise和ss都算走职业路线，snp是没说，所以挺奇怪的。
+
+主要是学院偶像肯定是高中时期才算，所以是 ...</blockquote>
+职业偶像跟音乐路线还是不太一样的，老剧场版里的疑似未来果皇看起来应该是走了独立歌手的路线，水团毕业的南黛鞠看起来也没有走音乐路线。
+
+*****
+
+####  1096beam  
+##### 731#       发表于 2024-11-10 16:32
+
+先提前默哀好评率创新低<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 732#       发表于 2024-11-10 16:32
+
+真当鲤鱼自传也有点微妙。。。你拉都四代了，水开始都是选粉丝作为中之人，结果而言还是比较传统（俗套）的传承故事，看不出新意，也没有烂活。如果从缪一路看下来可能对这类型的叙事手法都免疫了。
+
+不过大概率真的会让看到中国就会死的狗应激反应。看看这次打5的会有多少人。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  cat1230  
+##### 733#       发表于 2024-11-10 16:33
+
+生放送是不是接着上？
+
+*****
+
+####  saglork  
+##### 734#       发表于 2024-11-10 16:33
+
+歌不错，live好看，鲤鱼写个自传做原型，CP端个水，再来个传统艺能大香老师神兵天降一杆清台，揉吧揉吧凑一下，算把唐可可这角色糊弄完了，也就这水平了，还能期待啥<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 735#       发表于 2024-11-10 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66663950&amp;ptid=2201887" target="_blank">1096beam 发表于 2024-11-10 16:32</a>
+先提前默哀好评率创新低</blockquote>
+这次不能套中国人没事外国人没事狗会死的公式了，让我看看吧，网右的实力<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

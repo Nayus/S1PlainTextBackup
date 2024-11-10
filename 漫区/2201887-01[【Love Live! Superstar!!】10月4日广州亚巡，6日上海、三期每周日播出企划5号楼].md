@@ -8592,3 +8592,18 @@ bd1封面
 
 草，仔细又看了一遍才看明白，大香老师先上台是去救场了，给可可拖时间
 
+
+*****
+
+####  ΣPRC  
+##### 852#       发表于 2024-11-10 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66666523&amp;ptid=2201887" target="_blank">kata魂 发表于 2024-11-10 22:12</a>
+
+逛了下微博，基本是单推好评，cp统一骂运营。
+
+真难得，这次没骂可可挺不错了。
+
+有个可堇画师气的画了个可香 ...</blockquote>
+看看可香堇
+

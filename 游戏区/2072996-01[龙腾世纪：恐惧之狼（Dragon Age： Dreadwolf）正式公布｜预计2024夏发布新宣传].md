@@ -5850,3 +5850,18 @@ DG算是DA一二三代剧情世界观的创造者，但算不上创始者。</bl
 
 还没通关，但是已经两次碰到主线任务之后编剧借角色之口反复强调要做队友支线，要做阵营支线，这是生怕玩家不会感觉角色都是编剧手下的提线木偶？
 
+
+*****
+
+####  ak123  
+##### 1181#       发表于 2024-11-11 07:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66665129&amp;ptid=2072996" target="_blank">刻路希 发表于 2024-11-10 19:01</a>
+
+疯猫经典毒奶系列系列标题
+
+《牛逼疯了》
+
+《买爆玩爆爽爆》</blockquote>
+宁愿信东方神秘力量都不信这些制作组本身已经烂到根子上了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

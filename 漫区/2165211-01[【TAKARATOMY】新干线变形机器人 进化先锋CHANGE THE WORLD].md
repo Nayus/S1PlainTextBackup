@@ -33,3 +33,11 @@ ED3上线音乐平台了
 国内机战粉是不是只看富野和日升啊，咋新卡里昂这么冷清</blockquote>
 子供一概不看的
 
+
+*****
+
+####  王九的哥哥  
+##### 107#       发表于 2024-11-11 00:31
+
+今年这本子较往年比太鬼畜了……<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+

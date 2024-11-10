@@ -5727,3 +5727,27 @@ VGI上黑猴两千多万玩家平均游玩时间是40-50小时，你可以想想
 
 PW之前在DAI里还写了科尔和铁牛。记得DAI里铁牛对Qun有长篇累牍的讨论，最后哪怕和判官山盟海誓了说背叛还是就背叛了。很难想象会简化成现在Taash说的想加就加想离就离开的样子。
 
+
+*****
+
+####  aaronluray  
+##### 1171#       发表于 2024-11-10 14:05
+
+有些人觉得最后打索拉斯的话，他被打懵逼之后会大喊 我是神我是神你打败不了我的 太low了，不符合他一直的形象。我倒是觉得能说通，毕竟这逼之前一直觉得优势在我，匕首也骗到手了，感觉自己马上就要成功了结果局势一下翻转，破防了不是很正常<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">。
+
+和蛋头谈恋爱还走原谅路线的女精判官形象倒是彻底毁完了，蛋头这作里还是一路骗骗骗，关键pw为了打补丁游戏发售后说的话把这恋爱变成了更大的笑话，什么蛋头一开始喜欢上判官是因为从判官身上看到了米索，米索是所有事情变坏的原因（米索：我请问呢？），虽然你看游戏剧情很莫名其妙但是他们真的是真爱哦。结果结局说服蛋头最重要的部分是前任米索，这也能继续磕啊。我都要感谢制作组把某位老朋友写死了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">。
+
+另外我突然懂了我觉得也就一般的入侵者dlc却有那么多人夸，原来是因为我不是cp粉没有服务到我啊，是我不配了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mimighost  
+##### 1172#       发表于 2024-11-10 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66661556&amp;ptid=2072996" target="_blank">xjtxp 发表于 2024-11-10 09:50</a>
+
+DG算是DA一二三代剧情世界观的创造者，但算不上创始者。</blockquote>
+但是后来他写了几本darkspwan的小说啊，calling我觉得还挺好看的
+
+结果居然是被按着头？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -596,3 +596,17 @@ oled装个黑屏插件不就是息屏下载了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  泰坦失足  
+##### 61#       发表于 2024-11-10 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66661534&amp;ptid=2206237" target="_blank">bypass 发表于 2024-11-10 09:43</a>
+
+正常，PC 游戏/系统本身的限制/开放性注定是不可能跟真正的主机系统比的，但好在 V 社也一直在努力更新，不 ...</blockquote>
+[https://www.reddit.com/r/Surface ... usable_after_sleep/](https://www.reddit.com/r/Surface/comments/1eypflh/surface_pro_11_laggy_and_unusable_after_sleep/)
+[https://www.reddit.com/r/Surface ... nt_wake_from_sleep/](https://www.reddit.com/r/Surface/comments/1dwyyj1/surface_pro_11_wont_wake_from_sleep/)
+
+中文搜不到Surface pro11睡死的讨论，大概是现在买SP的国人太少了。但是外网还是有人问为啥都微软自产的，还有睡死的windows**病。
+

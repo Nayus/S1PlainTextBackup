@@ -7561,3 +7561,122 @@ live里鬼姐拉着鬼妹和薇恩的手比心太混沌了，笑死
 还有一个问题，按照可可的人设确实应该去上大学——她的技能点比起个人上台其实更适合给偶像当制作人，在星 ...</blockquote>
 感觉原来要去的是综合类大学，以后不搞艺术了，现在可可提出以后继续搞音乐，凭她的家庭去外国留学或者在国内上艺术类大学继续深造都可以，也没说就不上大学了吧
 
+
+*****
+
+####  ads147147  
+##### 745#       发表于 2024-11-10 16:44
+
+哦对了，这集确实没有可solo ed。也不是我对日本人有什么偏见，反正你日这么多年操作下来，早就放弃对他们有什么好话了。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  ads147147  
+##### 746#       发表于 2024-11-10 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66664049&amp;ptid=2201887" target="_blank">水莲寺流歌 发表于 2024-11-10 16:41</a>
+看完这集，cp党和单推人都沉默了</blockquote>
+看到这集音乐封面是可堇才是真绷住了。。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  llllife  
+##### 747#       发表于 2024-11-10 16:47
+
+以及11人的c位真的能玩的好花，不错
+
+*****
+
+####  优妮可  
+##### 748#       发表于 2024-11-10 16:47
+
+顶级端水和拱火，能吃的下cp也是神人了。不过这下大家都干了，之后就不要指责对方绑定了。这巨魔官方
+
+*****
+
+####  llllife  
+##### 749#       发表于 2024-11-10 16:49
+
+<blockquote>ads147147 发表于 2024-11-10 16:45
+看到这集音乐封面是可堇才是真绷住了。。
+
+—— 来自 OPPO PHN110, Android 15上的 S1Next-鹅版 v3.0.0.8 ...</blockquote>
+live前还卖了千香呢，小问题（）不过不知道可可升学这条线还要不要继续跟进下去，讨论一下可可不去读大学以后怎么办，是去艺术类深造还是直接去娱乐圈（和堇汇合？），这样的话可堇估计还能再卖一卖
+
+*****
+
+####  cat1230  
+##### 750#       发表于 2024-11-10 16:49
+
+星动画到目前为止，我觉得可可回算是单人回里看的最舒服的一个，排个前三没问题。
+
+*****
+
+####  稀勢のささ  
+##### 751#       发表于 2024-11-10 16:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">早干嘛去了
+
+*****
+
+####  280041437  
+##### 752#       发表于 2024-11-10 16:49
+
+如果你不去想ed和封面，还挺感动的，至少六巡有主c曲了
+
+
+*****
+
+####  ads147147  
+##### 753#       发表于 2024-11-10 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66664136&amp;ptid=2201887" target="_blank">llllife 发表于 2024-11-10 16:49</a>
+live前还卖了千香呢，小问题（）不过不知道可可升学这条线还要不要继续跟进下去，讨论一下可可不去读大学 ...</blockquote>
+你拉世界线应该在毕业回后就彻底暂停了，除非出现剧场版未来果那种玩法估计是不会提的。。。
+
+干脆全员维也纳算了
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  CAFc  
+##### 754#       发表于 2024-11-10 16:50
+
+<img src="https://p.sda1.dev/20/a2a8390cfec7f87dd2f06237b4858e05/1213771215.jpg" referrerpolicy="no-referrer">太巨魔了
+
+—— 来自 HUAWEI ABR-AL60, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ViyViy  
+##### 755#       发表于 2024-11-10 16:51
+
+最好后面看看有没有空补一句上艺校…不然真的汗流浃背草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  llllife  
+##### 756#       发表于 2024-11-10 16:52
+
+<blockquote>ads147147 发表于 2024-11-10 16:50
+你拉世界线应该在毕业回后就彻底暂停了，除非出现剧场版未来果那种玩法估计是不会提的。。。
+
+干脆全员维 ...</blockquote>
+你星是唯一提到成员（香音和薇恩）毕业后去向的团吧，如果还有剧场版的话说不定真的会提一下
+
+*****
+
+####  ayara  
+##### 757#       发表于 2024-11-10 16:52
+
+<blockquote>CAFc 发表于 2024-11-10 16:50
+太巨魔了
+
+—— 来自 HUAWEI ABR-AL60, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+你来得正是时候
+

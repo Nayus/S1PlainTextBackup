@@ -15453,3 +15453,33 @@ MV播放111W
 
 虽然我们感觉没什么特别的，日本网上好像很喜欢这种连号数字
 
+
+*****
+
+####  holoan  
+##### 10151#         楼主| 发表于 2024-11-9 16:22
+
+<img src="https://img.saraba1st.com/forum/202411/09/162204sk8h40k0jgh014k9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (36.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-9 16:22 上传
+
+复制粘贴都能错的，你还能做什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 10152#         楼主| 发表于 2024-11-10 20:00
+
+旅行好像是后天开始的，个人直播应该明天还有的来着
+
+*****
+
+####  holoan  
+##### 10153#         楼主| 发表于 2024-11-10 20:03
+
+另外说到hOCG，miko主题的卡牌包据说是应景的安排在明年春天那批发售但是目前为止没有任何消息透露出来
+

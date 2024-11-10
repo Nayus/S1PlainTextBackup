@@ -8843,3 +8843,30 @@ VN嘴硬和心软的程度差距越来越大，看下集预告这仨不会搞那
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  ads147147  
+##### 869#       发表于 2024-11-11 01:20
+
+日升真的没把自由高达画进去，在b站都看到教主的官号了，里头一堆自由，在日升动画里上海回两集居然看不到自由。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  kata魂  
+##### 870#       发表于 2024-11-11 01:24
+
+反正我这种被第二季恶心跑的，这集就是要啥自行车。
+
+我甚至连三季没有ed的solo都心平气和了。
+
+*****
+
+####  ViyViy  
+##### 871#       发表于 2024-11-11 01:26
+
+话说，BD3的封面<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">要不可恋吧。
+

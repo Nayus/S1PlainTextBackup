@@ -1573,3 +1573,13 @@ https://github.com/vladmikhalin/shadPS4/tree/fix-bb-lighting复制代码
 那是ps5，ps4是fx6300级别的性能 大名鼎鼎的推土机，5600十倍性能差不多吧</blockquote>
 美洲豹真没推土机厉害吧？推土机再怎么烂频率还是蛮高但美洲豹无论哪方面都是一坨大便啊。。。
 
+
+*****
+
+####  VVhaleVoice  
+##### 152#       发表于 2024-11-11 01:16
+
+已经能玩了吗恭喜了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

@@ -8155,3 +8155,30 @@ live前还卖了千香呢，小问题（）不过不知道可可升学这条线�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说拉拉这个世界本身就不大一样
 
+
+*****
+
+####  ccared  
+##### 804#       发表于 2024-11-10 18:49
+
+不是怎么真有人在意那个上不上大学，我gbc黑子都绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">非在意那个逼大学在日本找所野鸡私立买学籍是啥难事吗，哪怕公立找人代上课**也不难啊。
+我上横国同届的沪姐成天神龙见首不见尾中日两头飞，一节课2000日元让我代签到，最后轻轻松松拿个毕业证去北美继续潇洒了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">哪就上层圈子看重学历啊。
+
+
+*****
+
+####  kata魂  
+##### 805#       发表于 2024-11-10 18:53
+
+突然想问个不相关的人，b站那个青叶真司怎么转性了，记得以前以攻击liyuu和可可为主，现在发言好正常。我都怀疑当初拉黑拉错人了
+
+*****
+
+####  ViyViy  
+##### 806#       发表于 2024-11-10 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66665058&amp;ptid=2201887" target="_blank">kata魂 发表于 2024-11-10 18:53</a>
+
+突然想问个不相关的人，b站那个青叶真司怎么转性了，记得以前以攻击liyuu和可可为主，现在发言好正常。我都 ...</blockquote>
+这人就是纯串子，不存在什么准确的标签属性
+

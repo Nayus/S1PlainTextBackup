@@ -36,3 +36,14 @@
 
 tarou2 さん@tarou2
 
+
+*****
+
+####  stevenzero  
+##### 1950#       发表于 2024-11-10 10:49
+
+不可把左子右太搞错了打了发电浆出去差点把敌我一起送掉，这个笑点做得一点效果没有<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+还为了断章让莲喊了三声M一点事没干，看着是够蠢的<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

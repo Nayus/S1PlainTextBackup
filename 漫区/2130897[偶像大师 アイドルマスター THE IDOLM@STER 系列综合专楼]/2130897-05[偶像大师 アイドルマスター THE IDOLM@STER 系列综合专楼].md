@@ -265,3 +265,11 @@ u149完结，百11th延期<img src="https://static.saraba1st.com/image/smiley/fa
 
 先说下，这个不是solo1，是专门做的印象曲。虽然期待也不大就是了…
 
+
+*****
+
+####  magicc  
+##### 6656#       发表于 2024-11-11 00:19
+
+原来不是solo1吗
+

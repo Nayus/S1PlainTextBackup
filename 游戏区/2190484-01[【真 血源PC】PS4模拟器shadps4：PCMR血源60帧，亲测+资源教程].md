@@ -1562,3 +1562,14 @@ https://github.com/vladmikhalin/shadPS4/tree/fix-bb-lighting复制代码
 
 最新版本粒子特效已经全部支持了
 
+
+*****
+
+####  囧囧囧  
+##### 151#       发表于 2024-11-11 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66223813&amp;ptid=2190484" target="_blank">浅色轮回 发表于 2024-9-17 00:23</a>
+
+那是ps5，ps4是fx6300级别的性能 大名鼎鼎的推土机，5600十倍性能差不多吧</blockquote>
+美洲豹真没推土机厉害吧？推土机再怎么烂频率还是蛮高但美洲豹无论哪方面都是一坨大便啊。。。
+

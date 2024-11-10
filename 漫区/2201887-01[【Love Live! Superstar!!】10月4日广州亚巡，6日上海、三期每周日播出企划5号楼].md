@@ -8492,3 +8492,21 @@ bd1封面
 
 看了一下lofter，就算剧情崩成那样，可堇也能压可香。这某种意义上也是一种实力了
 
+
+*****
+
+####  ads147147  
+##### 841#       发表于 2024-11-10 21:08
+
+毕竟是动画播出前就高人气的cp，花田写的烂不妨碍二创啊
+
+*****
+
+####  ViyViy  
+##### 842#       发表于 2024-11-10 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66666051&amp;ptid=2201887" target="_blank">ads147147 发表于 2024-11-10 21:08</a>
+
+毕竟是动画播出前就高人气的cp，花田写的烂不妨碍二创啊</blockquote>
+还是妨碍到了些的，至少我天天逛P，去年年中后增速其实逐渐变慢到三期开播前几乎是停滞的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

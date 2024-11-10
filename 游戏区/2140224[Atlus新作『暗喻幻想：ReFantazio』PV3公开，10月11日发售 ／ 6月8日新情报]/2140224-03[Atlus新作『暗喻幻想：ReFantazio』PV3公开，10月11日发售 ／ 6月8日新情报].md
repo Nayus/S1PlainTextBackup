@@ -6181,3 +6181,21 @@ SMT 的 press turn 与世界树的职业 + 前后排机制是一次失败的融�
 三个塔打到第二个龙我直接降难度了，懒得刷等级了，赶快通关完打别的游戏去了
 还有二十天打路易五维满了就差凯瑟琳娜和狂战的coop没满感觉也没必要升
 
+
+*****
+
+####  罗克萨斯  
+##### 3512#       发表于 2024-11-10 23:27
+
+这也能GO<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202411/10/232609to0kfnx7u770n98b.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-11-10-23-24-26-736_tv.danmaku.bili-edit.jpg</strong> (93.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-10 23:26 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -1862,3 +1862,11 @@ wys总是在大家以为他改性了的时候证明自己<img src="https://stati
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那就要问YLS为什么要把助战位搞得那么紧张了 一个职介一个位子有那么难么
 
+
+*****
+
+####  希望之花  
+##### 15099#       发表于 2024-11-10 23:33
+
+看了下box，三十个extra阶的从者挤一个助战位，普通七骑也就四十多个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

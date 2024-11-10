@@ -6142,3 +6142,13 @@ SMT 的 press turn 与世界树的职业 + 前后排机制是一次失败的融�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  InfiniteGyre  
+##### 3508#       发表于 2024-11-10 11:49
+
+在王城大街找个空地，拿橡皮筋把左右摇杆绑住就能原地转圈了，我大概等了二十多分钟跳杯
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+

@@ -7056,3 +7056,17 @@ em比较捕风捉影的话，情报师那声花田的那一页有个组队差两
 有一说一，上海的sif让Liella淹死鱼塘的可能性挺高的，如果是限定在拉拉大赛这种能算成绩能入学高等学府的 ...</blockquote>
 问题是篇幅长度不允许搞这种活，这样的话这集就是Apart结尾没赢然后Bpart谈心，然后找了个折中的进路结束，真有必要这么教育意义吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 684#       发表于 2024-11-10 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66662198&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-11-10 11:58</a>
+问题是篇幅长度不允许搞这种活，这样的话这集就是Apart结尾没赢然后Bpart谈心，然后找了个折中的进路结束 ...</blockquote>
+也是，写太多不适合现在教育小孩的路子。
+
+反正真舅舅我只信任鲤鱼，大呼小叫的没啥意义，只要鲤鱼发话多少还是可以看看。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

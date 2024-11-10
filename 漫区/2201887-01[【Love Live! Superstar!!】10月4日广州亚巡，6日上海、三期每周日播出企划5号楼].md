@@ -7818,3 +7818,57 @@ live前还卖了千香呢，小问题（）不过不知道可可升学这条线�
 
 怎么大家都认为可可以后不读大学要去做地偶（不是）。这集不就说了可可以后要继续留在舞台上，继续搞音乐，其他啥也没说，也没说她以后不继续深造啊，她家的条件送去外国艺术学院深造不是很轻松，而且也有成绩（lovelive大赛冠军），说不定还是国际的（日本和上海双冠军，如果这集能拿下的话）
 
+
+*****
+
+####  qratosones1337  
+##### 771#       发表于 2024-11-10 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66664150&amp;ptid=2201887" target="_blank">CAFc 发表于 2024-11-10 16:50</a>
+
+太巨魔了
+
+—— 来自 HUAWEI ABR-AL60, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+笑死，这下可可左搂右抱了
+
+*****
+
+####  saya1892  
+##### 772#       发表于 2024-11-10 17:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">在内鱼都要打肿脸充胖子扮学霸人设的时候你说她普通科成绩第一不读大学？日本人偶像不读大学是因为不喜欢吗？我怕这破动画再看下去我会说出难听的话，我先走了
+
+阴谋论一下就是群友瑞萍初中女同学嫉妒可可的成绩，于是带她去看snp
+
+萌萌这集一看就是欺上瞒下，父母都还没什么表态就已经来搞这一套了
+
+拜托，就算不读985211没有那个学历在唐家那个圈子里都要被嘲笑的好吧，可可这还不是考不上，是能考上不去
+
+
+*****
+
+####  ads147147  
+##### 773#       发表于 2024-11-10 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66664482&amp;ptid=2201887" target="_blank">saya1892 发表于 2024-11-10 17:32</a>
+在内鱼都要打肿脸充胖子扮学霸人设的时候你说她普通科成绩第一不读大学？日本人偶像不读大学是因为不喜欢吗 ...</blockquote>
+你花不一直是这个逻辑赤石的水平，这倒是一直没变过，只是有时候大家在乎有时候不在乎罢了。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  EBe  
+##### 774#       发表于 2024-11-10 17:35
+
+上海人考个985211不随随便便？
+
+—— 来自 HONOR MAG-AN00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  仟音一心  
+##### 775#       发表于 2024-11-10 17:37
+
+<img src="https://p.sda1.dev/20/544505a51ea66db3b09cf74e4ea9e4b0/image.jpg" referrerpolicy="no-referrer">
+

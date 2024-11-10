@@ -8110,3 +8110,48 @@ live前还卖了千香呢，小问题（）不过不知道可可升学这条线�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  lanslort  
+##### 800#       发表于 2024-11-10 18:38
+
+我是服了泥潭了，虚拟老钟也只准当做题家是吧　<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Mr.Giraffe| + 1|欢乐多|
+
+查看全部评分
+
+
+*****
+
+####  llllife  
+##### 801#       发表于 2024-11-10 18:41
+
+<blockquote>日野下花帆 发表于 2024-11-10 18:33
+非要纠结这个，当职业歌手的话回国考试就考虑央音咯。按唐可可的的学力一边在日本继续偶像活动一边回国高 ...</blockquote>
+你拉世界观一向是不能多想的，人均超人高中生，自己就是一整个团队，作曲写词舞台衣服无一不能，这样的人才直接自己开公司都行了，更别提大香老师去维也纳更是突出一个超现实；这集就是声优自己的经历逆输入太多，所以显得过于真实，才让人觉得放弃北大太可惜，实际上下一集就给可可安排一个类似维也纳音乐学院的学校也完全没问题，就看企划愿不愿意多提一笔了
+
+
+*****
+
+####  remedios010000  
+##### 802#       发表于 2024-11-10 18:44
+
+谈拉拉就谈拉拉，不要看见点什么都往现实世界里代<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 803#       发表于 2024-11-10 18:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说拉拉这个世界本身就不大一样
+

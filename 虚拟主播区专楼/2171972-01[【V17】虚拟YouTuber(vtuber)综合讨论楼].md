@@ -465,3 +465,27 @@ moka的观众参与回看的太爽了<img src="https://static.saraba1st.com/imag
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  バーチャルS1er  
+##### 875#       发表于 2024-11-10 18:32
+
+<img src="https://img.saraba1st.com/forum/202411/10/183123ug6t4flozfo6zw6g.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20241110183034.png</strong> (413.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-10 18:31 上传
+
+<img src="https://img.saraba1st.com/forum/202411/10/183252cwhxk6wots6wzhjo.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20241110183239.png</strong> (369.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-10 18:32 上传
+
+搞不懂你们歌势的审美<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+

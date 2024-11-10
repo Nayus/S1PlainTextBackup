@@ -672,3 +672,11 @@ https://www.reddit.com/r/Surface/comments/ ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  塔洛斯级  
+##### 67#       发表于 2024-11-10 18:27
+
+启动游戏有点慢，按键布局难受，其他的对我来说都不是缺点。屏幕虽然比ns的oled护眼程度好多了但我还是希望更好一点。
+

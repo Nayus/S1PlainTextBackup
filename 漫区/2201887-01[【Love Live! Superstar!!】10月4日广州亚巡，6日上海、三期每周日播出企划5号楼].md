@@ -8075,3 +8075,38 @@ live前还卖了千香呢，小问题（）不过不知道可可升学这条线�
 
 如果是按隔壁的猜想是回国还是留日本，有些地方能说的通但最后观众不隔应吗？解开可可心结的人跑维也纳去了也不回国了更地狱笑话了
 
+
+*****
+
+####  日野下花帆  
+##### 797#       发表于 2024-11-10 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66664850&amp;ptid=2201887" target="_blank">蜜梨柑 发表于 2024-11-10 18:22</a>
+不去北大去东大我觉得大伙也没什么意见的</blockquote>
+我感觉没问题 但是在上海回说自己要当罕见还是有点不行吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  llllife  
+##### 798#       发表于 2024-11-10 18:27
+
+<blockquote>日野下花帆 发表于 2024-11-10 18:20
+我感觉意思是想留在日本而不是中国 只是这话不兴说吧
+
+—— 来自 鹅球 v3.1.91-alpha ...</blockquote>
+大香老师还去维也纳了呢，可可怎么就一定得留在日本了，就是个要不要今后走职业音乐或者爱豆的分歧罢了，怎么能扭曲成这样
+
+
+*****
+
+####  日野下花帆  
+##### 799#       发表于 2024-11-10 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66664896&amp;ptid=2201887" target="_blank">llllife 发表于 2024-11-10 18:27</a>
+大香老师还去维也纳了呢，可可怎么就一定得留在日本了，就是个要不要今后走职业音乐或者爱豆的分歧罢了， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">非要纠结这个，当职业歌手的话回国考试就考虑央音咯。按唐可可的的学力一边在日本继续偶像活动一边回国高考考个大学好像也不算问题 日本人还是不够了解中国当考学制度
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

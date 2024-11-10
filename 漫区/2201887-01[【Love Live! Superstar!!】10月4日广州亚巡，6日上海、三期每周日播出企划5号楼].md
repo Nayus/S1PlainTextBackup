@@ -7010,3 +7010,17 @@ btw 我看图透发现个比较骚的事情，为什么她们 ...</blockquote>
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  csolfans  
+##### 680#       发表于 2024-11-10 08:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66661211&amp;ptid=2201887" target="_blank">ads147147 发表于 2024-11-10 08:05</a>
+鱼还是可以信任的。
+
+那舅舅那个花田是什么鬼，第七集要花活？</blockquote>
+应该？剧透楼有两楼小小提了一下第七集的预告
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

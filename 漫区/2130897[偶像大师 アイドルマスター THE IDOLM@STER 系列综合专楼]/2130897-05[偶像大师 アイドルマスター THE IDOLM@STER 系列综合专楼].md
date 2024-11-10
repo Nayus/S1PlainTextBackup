@@ -187,3 +187,65 @@ u149完结，百11th延期<img src="https://static.saraba1st.com/image/smiley/fa
 
 这周进入了喜闻乐见的原创环节
 
+
+*****
+
+####  BQlin  
+##### 6649#       发表于 2024-11-10 21:06
+
+正式版也没长多少，后半的动次打次听得脑壳疼
+
+接下来就15号的直播了，真正的solo曲
+
+*****
+
+####  wfhtony  
+##### 6650#       发表于 2024-11-10 21:07
+
+<img src="https://img.saraba1st.com/forum/202411/10/210621znpf5eaxe5ll8lkj.png" referrerpolicy="no-referrer">
+
+<strong>111.png</strong> (619.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-10 21:06 上传
+
+<img src="https://img.saraba1st.com/forum/202411/10/210620zw3g2ciecrc3vmhh.png" referrerpolicy="no-referrer">
+
+<strong>222.png</strong> (614.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-10 21:06 上传
+
+<img src="https://img.saraba1st.com/forum/202411/10/210655dfx8krn4071rxlfk.png" referrerpolicy="no-referrer">
+
+<strong>アイドルマスターチャンネル - 十王 星南 PROMOTION VIDEO『Choo Choo Choo』【アイド.png</strong> (411.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-10 21:06 上传
+
+15號生放，16號實裝。
+
+*****
+
+####  藤田琴音  
+##### 6651#       发表于 2024-11-10 21:19
+
+会长，，这会不会有点太韩了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  magicc  
+##### 6652#       发表于 2024-11-10 21:22
+
+今天是不是还有首ride on beat
+
+*****
+
+####  BQlin  
+##### 6653#       发表于 2024-11-10 21:23
+
+是，11点还有生日曲
+

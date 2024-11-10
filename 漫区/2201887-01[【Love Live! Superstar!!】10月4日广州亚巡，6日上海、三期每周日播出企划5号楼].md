@@ -8510,3 +8510,17 @@ bd1封面
 毕竟是动画播出前就高人气的cp，花田写的烂不妨碍二创啊</blockquote>
 还是妨碍到了些的，至少我天天逛P，去年年中后增速其实逐渐变慢到三期开播前几乎是停滞的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViyViy  
+##### 843#       发表于 2024-11-10 21:16
+
+<img src="https://img.saraba1st.com/forum/202411/10/211624cxincrneczmnrir5.png" referrerpolicy="no-referrer">
+
+<strong>QQ20241110-211611.png</strong> (44.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-10 21:16 上传
+

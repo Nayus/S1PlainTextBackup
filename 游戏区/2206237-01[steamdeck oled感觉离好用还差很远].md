@@ -659,3 +659,16 @@ https://www.reddit.com/r/Surface/comments/ ...</blockquote>
 
 息屏下载可以用 Decky Loader 里的黑屏插件解决，另外解决网络问题也是很基本的吧
 
+
+*****
+
+####  zid99825  
+##### 66#       发表于 2024-11-10 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66663461&amp;ptid=2206237" target="_blank">泰坦失足 发表于 2024-11-10 15:31</a>
+我的win笔记本倒不是睡不着，是醒不了或者莫名的自己醒来</blockquote>
+还是那句话，你软搞surface就该自己弄驱动的，反正验证周期已经这么长了，再长点出货也没什么。
+自己醒是你软为了系统维护留的口子，但一般最多醒来15分钟，如果超出那就是有程序拦着不给睡
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

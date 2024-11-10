@@ -8022,3 +8022,56 @@ live前还卖了千香呢，小问题（）不过不知道可可升学这条线�
 
 感觉鲤鱼还是茶发好些，纯黑发有点显脸胖
 
+
+*****
+
+####  cybernetics31  
+##### 791#       发表于 2024-11-10 18:15
+
+推特趋势第一啊 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反响还是好的
+
+*****
+
+####  ViyViy  
+##### 792#       发表于 2024-11-10 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66664792&amp;ptid=2201887" target="_blank">ruffian 发表于 2024-11-10 18:13</a>
+
+只是不上北大吧？至少现在是。上网一看我以为她要去当地偶了
+
+  -- 来自 能手机投票的 Stage1官方 Android ...</blockquote>
+还算是规制了很多了吧，说法巨模糊，只是还想继续在舞台上，没说干什么
+
+春晚舞台也是舞台！那牌面老大了！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  日野下花帆  
+##### 793#       发表于 2024-11-10 18:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我感觉意思是想留在日本而不是中国 只是这话不兴说吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  金属化反射装甲  
+##### 794#       发表于 2024-11-10 18:21
+
+日本人是不是很讨厌上学啊<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蜜梨柑  
+##### 795#       发表于 2024-11-10 18:22
+
+不去北大去东大我觉得大伙也没什么意见的<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  离心  
+##### 796#       发表于 2024-11-10 18:24
+
+如果是按隔壁的猜想是回国还是留日本，有些地方能说的通但最后观众不隔应吗？解开可可心结的人跑维也纳去了也不回国了更地狱笑话了
+

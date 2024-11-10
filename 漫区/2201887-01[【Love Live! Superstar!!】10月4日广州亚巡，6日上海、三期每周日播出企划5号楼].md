@@ -6994,3 +6994,19 @@ btw 我看图透发现个比较骚的事情，为什么她们还带着校服来<
 
 往细节想没有好处全是槽点，就当结丘要拍宣传片吧，拍出来第四年宣传跨越国际招生用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 679#       发表于 2024-11-10 08:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66660402&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-11-10 00:11</a>
+鱼ins直播最后说期待明天，最后的保险也上了，世界聚焦于你
+
+btw 我看图透发现个比较骚的事情，为什么她们 ...</blockquote>
+鱼还是可以信任的。
+
+那舅舅那个花田是什么鬼，第七集要花活？
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -8607,3 +8607,14 @@ bd1封面
 有个可堇画师气的画了个可香 ...</blockquote>
 看看可香堇
 
+
+*****
+
+####  ΣPRC  
+##### 853#       发表于 2024-11-10 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66666533&amp;ptid=2201887" target="_blank">kata魂 发表于 2024-11-10 22:14</a>
+
+欢喜冤家永远是T0级，写烂是另一回事了</blockquote>
+我的意思是一期开播前，好像就有可堇推了
+

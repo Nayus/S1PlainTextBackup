@@ -6311,3 +6311,15 @@ SMT 的 press turn 与世界树的职业 + 前后排机制是一次失败的融�
 
 感觉灰雨才是真正的神，叠满闪避T一个miss吃掉boss所有行动点，比smt还离谱，就算boss有10动都没用
 
+
+*****
+
+####  隔壁老黄  
+##### 3522#       发表于 2024-11-11 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66674616&amp;ptid=2140224" target="_blank">u2deack 发表于 2024-11-11 21:28</a>
+打死还不还钱这设定真的是人想的么我服了，各种拐角阴人不知道还以为我在玩魂 ...</blockquote>
+打死不还钱真的逆天
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+

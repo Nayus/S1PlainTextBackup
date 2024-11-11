@@ -64,3 +64,27 @@
 莉莉和亚当各服装1款，无人机Pot外型1款
 不知道亚当那个艾米尔头是不是单独的，如果不算的话目前还有4种联动物品是未知的，不知道还会不会有隐藏服装<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  名字已被吃  
+##### 1769#       发表于 2024-11-12 00:53
+
+好像是付费dlc，没看到公布价格，就剩下8天了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  宛若青空  
+##### 1770#       发表于 2024-11-12 00:55
+
+ 本帖最后由 宛若青空 于 2024-11-12 00:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66675621&amp;ptid=1978008" target="_blank">名字已被吃 发表于 2024-11-12 00:53</a>
+
+好像是付费dlc，没看到公布价格，就剩下8天了
+
+—— 来自 鹅球 v3.0.86-alpha</blockquote>
+
+免费更新的，很多人没看清楚“购买”就以为是付费，实际上这指的联动物品是在游戏里的“艾米尔商店”购买
+

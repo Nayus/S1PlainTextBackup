@@ -137,3 +137,35 @@
 
 ego制作越来越精良了，你月蒸蒸日上阿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 973#       发表于 2024-11-11 17:30
+
+新卡前瞻：
+
+<img src="https://img.saraba1st.com/forum/202411/11/172534bilzztb76336gjgz.jpg" referrerpolicy="no-referrer">
+
+<strong>42BD0AE10C6224F13798CFFDAFF1026681965389.jpg</strong> (484.14 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-11-11 17:25 上传
+
+血奥斩击，血虫打击，血罗刺击，三种攻击属性齐全了。
+
+神父和公主都是破裂流血双关键词，该不会要推血破队了吧...
+
+<img src="https://img.saraba1st.com/forum/202411/11/173052q8qcqnbd5qo68666.jpg" referrerpolicy="no-referrer">
+
+<strong>78752A38ED120BCAF4DA632F468BE37D58912196.jpg</strong> (297.61 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-11-11 17:30 上传
+
+凶弹ego是呼吸系的，剑箱和船箱都用的上。
+

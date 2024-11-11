@@ -5865,3 +5865,11 @@ DG算是DA一二三代剧情世界观的创造者，但算不上创始者。</bl
 《买爆玩爆爽爆》</blockquote>
 宁愿信东方神秘力量都不信这些制作组本身已经烂到根子上了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sosgame67  
+##### 1182#       发表于 2024-11-11 17:28
+
+龙腾世纪吧已经把所有国内恶评玩家当成黑猴孝子反串了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

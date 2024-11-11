@@ -9083,3 +9083,34 @@ VN嘴硬和心软的程度差距越来越大，看下集预告这仨不会搞那
 只能说可可一家子确实挺像的姐姐蒙头蒙脑想给父母证道，妹妹自我内耗让父母不失望。父母给了一张纸条和参 ...</blockquote>
 所以唐家给我的感觉很怪异，明明父母开明女儿懂事，但父母和子女之间不知道从哪来的距离感，特别是跟涩谷家女儿和老妈斗嘴开玩笑一对比
 
+
+*****
+
+####  ayara  
+##### 894#       发表于 2024-11-11 15:15
+
+如果可可父母特别强硬的话，其实和拉拉这个作品比较温和的基调不符，然后也不利于包饺子，动画的篇幅也不够展开来讲，这样把矛盾圈在小偶像之间写还是合适的
+
+*****
+
+####  ayara  
+##### 895#       发表于 2024-11-11 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66671067&amp;ptid=2201887" target="_blank">仟音一心 发表于 2024-11-11 13:47</a>
+
+学生会给冬毬感觉不错。</blockquote>
+冬毬有点栞子的感觉
+
+
+*****
+
+####  仟音一心  
+##### 896#       发表于 2024-11-11 15:20
+
+ 本帖最后由 仟音一心 于 2024-11-11 15:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66671648&amp;ptid=2201887" target="_blank">ayara 发表于 2024-11-11 15:16</a>
+
+冬毬有点栞子的感觉</blockquote>
+栞子也是妹妹，姐姐也是偶像，且声优和鬼冢妈是同一个人（日笠阳子）。
+<img src="https://p.sda1.dev/20/293d8757ea53e68bb2290e4ff0669263/image.jpg" referrerpolicy="no-referrer">
+

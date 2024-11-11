@@ -489,3 +489,11 @@
  ...</blockquote>
 齐齐哈尔只是车牌和区号上的第二大城市<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ww279620040  
+##### 50#       发表于 2024-11-11 11:38
+
+话说理论上要全球变暖几度，黑龙江气候条件才回变得“过得去、还凑活”？
+

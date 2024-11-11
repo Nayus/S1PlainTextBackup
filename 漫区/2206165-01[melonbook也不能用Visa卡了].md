@@ -467,3 +467,11 @@ Buke 发表于 2024-11-9 12:47看了下，12月31前前申请免年费。我去�
 
 中行那个遗像猫还挺好看的，新版反而没那味了。<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  超极巨鲨鲨  
+##### 45#       发表于 2024-11-11 11:32
+
+之前去日本旅游的时候办了一张中行的jcb，但有些网站的在线支付也是死活过不了3D认证<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

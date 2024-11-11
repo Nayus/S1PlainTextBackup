@@ -8974,3 +8974,11 @@ VN嘴硬和心软的程度差距越来越大，看下集预告这仨不会搞那
 
 以及是真的有些无语，才一天过去又开始卖惨什么小丑、无意义；甚至开始怪起唐女士闷罐子害的堇二期搞那种破事，都是回旋，说好的好好看剧说了什么而不是你cp有没有表现呢，都是假的啦<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  evestart  
+##### 883#       发表于 2024-11-11 13:30
+
+经过这两集可可其实已经差不多算补完了，CEO的戏其实和妹妹一起感觉问题不会太大，但后面的恋怎么办呢，还有办法补救吗？更别说名堇不会就这么点戏份吧，还会有可堇回吗<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+

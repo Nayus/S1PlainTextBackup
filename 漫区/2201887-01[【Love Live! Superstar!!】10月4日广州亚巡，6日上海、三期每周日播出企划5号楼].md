@@ -9136,3 +9136,35 @@ VN嘴硬和心软的程度差距越来越大，看下集预告这仨不会搞那
 比较别扭的还是香音这个所谓剑指维也纳，吹的太狠了，跨越程度也太逆天，导致观感上你们明明都是一个档次 ...</blockquote>
 剑指维也纳虽然抽象，但是大香老师毕竟设定上是声乐天才，也不算夸张。
 
+
+*****
+
+####  懂你意思  
+##### 899#       发表于 2024-11-11 17:48
+
+小百合嗓子伤了后音乐天才这设定挺地狱的
+
+*****
+
+####  adw667  
+##### 900#       发表于 2024-11-11 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66671671&amp;ptid=2201887" target="_blank">仟音一心 发表于 2024-11-11 15:20</a>
+
+栞子也是妹妹，姐姐也是偶像，且声优和鬼冢妈是同一个人（日笠阳子）。
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">真让冬毬当上会长那系列传统又可以加一条了：和阳子角色有关系的就是下届会长
+
+*****
+
+####  adw667  
+##### 901#       发表于 2024-11-11 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66671880&amp;ptid=2201887" target="_blank">ads147147 发表于 2024-11-11 15:51</a>
+
+希奈子当了快两年大香小跟班，结果会长是自己同学的妹妹，是不是有点伤她.wav
+
+—— 来自 OPPO PHN110, And ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">香音她妹第一季不也有点戏份，结果最后转正的不还是夏美的天降妹妹
+

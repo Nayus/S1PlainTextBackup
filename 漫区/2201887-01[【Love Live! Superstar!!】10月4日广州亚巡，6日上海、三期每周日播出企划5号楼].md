@@ -9124,3 +9124,15 @@ VN嘴硬和心软的程度差距越来越大，看下集预告这仨不会搞那
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  qratosones1337  
+##### 898#       发表于 2024-11-11 16:02
+
+ 本帖最后由 qratosones1337 于 2024-11-11 16:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66670438&amp;ptid=2201887" target="_blank">ads147147 发表于 2024-11-11 12:23</a>
+
+比较别扭的还是香音这个所谓剑指维也纳，吹的太狠了，跨越程度也太逆天，导致观感上你们明明都是一个档次 ...</blockquote>
+剑指维也纳虽然抽象，但是大香老师毕竟设定上是声乐天才，也不算夸张。
+

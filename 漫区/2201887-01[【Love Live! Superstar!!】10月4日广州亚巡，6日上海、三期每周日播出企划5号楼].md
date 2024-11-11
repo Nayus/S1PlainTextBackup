@@ -9114,3 +9114,13 @@ VN嘴硬和心软的程度差距越来越大，看下集预告这仨不会搞那
 栞子也是妹妹，姐姐也是偶像，且声优和鬼冢妈是同一个人（日笠阳子）。
 <img src="https://p.sda1.dev/20/293d8757ea53e68bb2290e4ff0669263/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 897#       发表于 2024-11-11 15:51
+
+希奈子当了快两年大香小跟班，结果会长是自己同学的妹妹，是不是有点伤她.wav
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

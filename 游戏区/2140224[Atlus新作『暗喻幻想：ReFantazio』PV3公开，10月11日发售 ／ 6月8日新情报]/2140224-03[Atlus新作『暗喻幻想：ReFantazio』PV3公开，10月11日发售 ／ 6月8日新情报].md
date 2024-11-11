@@ -6293,3 +6293,13 @@ SMT 的 press turn 与世界树的职业 + 前后排机制是一次失败的融�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  u2deack  
+##### 3520#       发表于 2024-11-11 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66674547&amp;ptid=2140224" target="_blank">蟹粉小笼 发表于 2024-11-11 21:14</a>
+受不了了，那个不明遗迹真的怎么能这么恶意全是跳杀，还一直抢钱，一次抢五万玩你🐴呢，好不容易攒点钱全被 ...</blockquote>
+打死还不还钱这设定真的是人想的么我服了，各种拐角阴人不知道还以为我在玩魂
+

@@ -508,3 +508,16 @@ Buke 发表于 2024-11-9 12:47看了下，12月31前前申请免年费。我去�
 
 再要一张银联卡就行了，共享额度
 
+
+*****
+
+####  那由  
+##### 49#       发表于 2024-11-11 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66654850&amp;ptid=2206165" target="_blank">黑上シグマ 发表于 2024-11-9 11:03</a>
+
+PSN已经全Ban完了，勿念
+
+苹果日服得用中行JCB</blockquote>
+去年用招行，今年用浦发，都能在日服AppStore刷
+

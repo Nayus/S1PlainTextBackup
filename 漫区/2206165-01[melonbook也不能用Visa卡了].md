@@ -475,3 +475,11 @@ Buke 发表于 2024-11-9 12:47看了下，12月31前前申请免年费。我去�
 
 之前去日本旅游的时候办了一张中行的jcb，但有些网站的在线支付也是死活过不了3D认证<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Viteeee  
+##### 46#       发表于 2024-11-11 17:27
+
+借帖问一下，招行JCB单标那张黑卡据说是“仅限境外消费”，那网购能用吗？能的话考虑办一张，不收visa的日站越来越多了<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+

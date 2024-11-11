@@ -5885,3 +5885,15 @@ DG算是DA一二三代剧情世界观的创造者，但算不上创始者。</bl
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  sosgame67  
+##### 1184#       发表于 2024-11-11 18:08
+
+ 本帖最后由 sosgame67 于 2024-11-11 18:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66673031&amp;ptid=2072996" target="_blank">PROCAINUM 发表于 2024-11-11 18:02</a>
+
+仿佛我上的不是同一个贴吧一样，明明有很多人都在批评剧情文本不行。把少数人甚至是一级小号的言论当作一 ...</blockquote>
+老屁股怒骂剧情吃书前三代白费的是有..疯猫和狗蛋视频帖子下面一堆情真意切地怒骂up主的更多，别提还有张口顺直引流，夸牛头妹塔什高华脸贝拉拉好看的帖子<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

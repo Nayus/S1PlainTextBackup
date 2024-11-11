@@ -8993,3 +8993,36 @@ VN嘴硬和心软的程度差距越来越大，看下集预告这仨不会搞那
 经过这两集可可其实已经差不多算补完了，CEO的戏其实和妹妹一起感觉问题不会太大，但后面的恋怎么办呢，还 ...</blockquote>
 有人猜7、8合并同时还包含学生会交接问题，没准儿真奶中了呢
 
+
+*****
+
+####  蒸汽投石BuBu車  
+##### 885#       发表于 2024-11-11 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66670385&amp;ptid=2201887" target="_blank">qratosones1337 发表于 2024-11-11 12:17</a>
+其实这个问题可以直接简化成“可可作为一个从小一直是卷王路线的文化生，继续当卷王有希望目指清北，是否 ...</blockquote>
+可可下不到决心就安排桑尼啪来一波话疗，甚至只需要一张桑尼啪的CD就行了
+纠结进路的问题迎刃而解
+要相信花田的魔法
+
+*****
+
+####  仟音一心  
+##### 886#       发表于 2024-11-11 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66670972&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-11-11 13:35</a>
+
+有人猜7、8合并同时还包含学生会交接问题，没准儿真奶中了呢</blockquote>
+学生会给冬毬感觉不错。
+
+*****
+
+####  ruffian  
+##### 887#       发表于 2024-11-11 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66670850&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-11-11 13:21:01</a>
+这集过完部分可堇人口口声声说我比毒单推了解可可，是真漏了马脚，难道真的没有一瞬间考虑过，可可的父母其 ...</blockquote>我感觉可可父母平时可能也很少主动跟女儿谈心，俩女儿胡思乱想一大堆做了各种选择偏偏没想过直接跟父母谈。可可那内耗先不提，萌萌都想到让可可上sif给父母证道了，都没想过先跟父母好好沟通沟通？（当然也可能沟通了只是没篇幅写）
+我看完这集最想做的事是给家人打个电话<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

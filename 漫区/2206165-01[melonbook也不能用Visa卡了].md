@@ -447,3 +447,15 @@ Buke 发表于 2024-11-9 12:47看了下，12月31前前申请免年费。我去�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88-alpha
 
+
+*****
+
+####  飞叶  
+##### 43#       发表于 2024-11-11 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66666316&amp;ptid=2206165" target="_blank">best32167 发表于 2024-11-10 21:44</a>
+见今年风向不对先办了还没刷过喵
+
+外币卡也都是免刷免免费的喵</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">这是新卡面吗
+

@@ -9836,3 +9836,35 @@ wsd什么时候有科学的声乐指导了
 
 终于想起来初华才是主唱了
 
+
+*****
+
+####  玖羽  
+##### 25976#       发表于 2024-11-12 04:59
+
+ 本帖最后由 玖羽 于 2024-11-12 05:03 编辑 
+
+<img src="https://img.saraba1st.com/forum/202411/12/045903er8l8pjmeuj6ujeh.jpg" referrerpolicy="no-referrer">
+
+<strong>orig1.jpg</strong> (384.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-12 04:59 上传
+
+<img src="https://img.saraba1st.com/forum/202411/12/050338pmt22ti92nymqnmj.jpg" referrerpolicy="no-referrer">
+
+<strong>orig3.jpg</strong> (220.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-12 05:03 上传
+
+<img src="https://img.saraba1st.com/forum/202411/12/045904do3bhl11imx7bnzn.jpg" referrerpolicy="no-referrer">
+
+<strong>orig2.jpg</strong> (967.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-12 04:59 上传
+

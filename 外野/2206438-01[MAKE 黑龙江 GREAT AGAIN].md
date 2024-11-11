@@ -624,3 +624,40 @@ oo是贪污吗，一般这种情况肯定是有一条贪污链，所以即使明
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  中国科学院  
+##### 62#       发表于 2024-11-12 03:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66667774&amp;ptid=2206438" target="_blank">theory0 发表于 2024-11-11 02:09</a>
+冷知识：
+
+哈尔滨市纬度，北纬44°04′―46°40′
+
+然而西欧很多国家首都都比哈尔滨靠北（靠北！），黑龙江也 ...</blockquote>
+欧洲北纬68度冬天极低温也就跟哈尔滨一样
+
+
+*****
+
+####  wszweill  
+##### 63#       发表于 2024-11-12 03:16
+
+ 本帖最后由 wszweill 于 2024-11-11 14:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66669110&amp;ptid=2206438" target="_blank">最后的法芙娜 发表于 2024-11-10 21:12</a>
+
+不是有抖音最爱的大学哈工大吗</blockquote>
+大学生毕业能有几个留黑龙江的 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  安琪拉之歌  
+##### 64#       发表于 2024-11-12 03:17
+
+东北的人口是特殊历史造就的特殊产物。不是自然增长的。闯关东之前全东北才几十万人。正常情况下东北这样的土地就长不出来那么大的人口规模。全世界还有哪一块冻土能像现在东北一样生活那么多人？？
+
+气候太差，供暖成本太高。
+
+营商环境除非能到给菠菜独营的程度。否则根本没救，人总是喜欢阳光宜人的地方。
+

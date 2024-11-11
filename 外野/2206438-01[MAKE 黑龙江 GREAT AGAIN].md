@@ -680,3 +680,11 @@ oo是贪污吗，一般这种情况肯定是有一条贪污链，所以即使明
 欧洲北纬68度冬天极低温也就跟哈尔滨一样</blockquote>
 北纬78度的朗伊尔一月平均都没哈尔滨冷
 
+
+*****
+
+####  中国科学院  
+##### 67#       发表于 2024-11-12 05:15
+
+等于泡在北大西洋暖流里了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">，肯定的
+

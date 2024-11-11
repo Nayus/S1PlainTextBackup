@@ -6234,3 +6234,15 @@ SMT 的 press turn 与世界树的职业 + 前后排机制是一次失败的融�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  牙狼GARO  
+##### 3515#       发表于 2024-11-11 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66668820&amp;ptid=2140224" target="_blank">蟹粉小笼 发表于 2024-11-11 09:41</a>
+玩到变天了，这两天感觉比较恶心的是尤法剧情那个副本乌尔卡诺山，进去的时候等级没特意刷差不多五十一二级 ...</blockquote>
+打大圣堂boss紫毛的时候我就悟了，打什么弱点，直接灌伤害，每个迷宫我都练到能直接地图秒掉所有小怪再去找boss谈谈
+
+—— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

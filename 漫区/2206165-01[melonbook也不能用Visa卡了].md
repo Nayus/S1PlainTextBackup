@@ -483,3 +483,14 @@ Buke 发表于 2024-11-9 12:47看了下，12月31前前申请免年费。我去�
 
 借帖问一下，招行JCB单标那张黑卡据说是“仅限境外消费”，那网购能用吗？能的话考虑办一张，不收visa的日站越来越多了<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑上シグマ  
+##### 47#       发表于 2024-11-11 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66672641&amp;ptid=2206165" target="_blank">Viteeee 发表于 2024-11-11 17:27</a>
+
+借帖问一下，招行JCB单标那张黑卡据说是“仅限境外消费”，那网购能用吗？能的话考虑办一张，不收visa的日 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">招行那卡我没记错的话记账用美元记的
+

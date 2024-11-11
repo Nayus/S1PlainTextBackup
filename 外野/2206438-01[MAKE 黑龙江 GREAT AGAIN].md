@@ -566,3 +566,13 @@ oo是贪污吗，一般这种情况肯定是有一条贪污链，所以即使明
 
 越恶越穷，越穷越恶，死循环了
 
+
+*****
+
+####  阿库鲁艾特  
+##### 57#       发表于 2024-11-11 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66672922&amp;ptid=2206438" target="_blank">AP0rt_ 发表于 2024-11-11 17:53</a>
+越恶越穷，越穷越恶，死循环了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">恶？再恶恶得过火烧钦差吗
+

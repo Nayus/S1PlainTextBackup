@@ -5873,3 +5873,15 @@ DG算是DA一二三代剧情世界观的创造者，但算不上创始者。</bl
 
 龙腾世纪吧已经把所有国内恶评玩家当成黑猴孝子反串了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PROCAINUM  
+##### 1183#       发表于 2024-11-11 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66672662&amp;ptid=2072996" target="_blank">sosgame67 发表于 2024-11-11 17:28</a>
+龙腾世纪吧已经把所有国内恶评玩家当成黑猴孝子反串了我记得往前这个位置是博德之门3，再往前是巫师3吧 ...</blockquote>
+仿佛我上的不是同一个贴吧一样，明明有很多人都在批评剧情文本不行。把少数人甚至是一级小号的言论当作一整个吧的言论也太以偏概全了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

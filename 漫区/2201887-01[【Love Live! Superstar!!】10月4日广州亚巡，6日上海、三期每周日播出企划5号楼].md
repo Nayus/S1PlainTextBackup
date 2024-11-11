@@ -9037,3 +9037,39 @@ VN嘴硬和心软的程度差距越来越大，看下集预告这仨不会搞那
 我感觉可可父母平时可能也很少主动跟女儿谈心，俩女儿胡思乱想一大堆做了各种选择偏偏没想过直接跟父母谈。 ...</blockquote>
 只能说育儿经验+1：无论好坏，只做灌输是不行的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ΣPRC  
+##### 889#       发表于 2024-11-11 14:15
+
+可可会去维也纳吗（
+
+*****
+
+####  ViyViy  
+##### 890#       发表于 2024-11-11 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66671265&amp;ptid=2201887" target="_blank">ΣPRC 发表于 2024-11-11 14:15</a>
+
+可可会去维也纳吗（</blockquote>
+答案是维也纳是希望之峰，专收一两项技能点满的，不收常规六边形<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  离心  
+##### 891#       发表于 2024-11-11 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66671089&amp;ptid=2201887" target="_blank">ruffian 发表于 2024-11-11 13:49</a>
+
+我感觉可可父母平时可能也很少主动跟女儿谈心，俩女儿胡思乱想一大堆做了各种选择偏偏没想过直接跟父母谈。 ...</blockquote>
+只能说可可一家子确实挺像的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黒烨  
+##### 892#       发表于 2024-11-11 14:23
+
+第八集那天正好是恋生日啊，有点担心会不会给恋再整个和二期一样的烂活<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">。整个一期生里就她有种一直游离在外的感觉……
+

@@ -9026,3 +9026,14 @@ VN嘴硬和心软的程度差距越来越大，看下集预告这仨不会搞那
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  ViyViy  
+##### 888#       发表于 2024-11-11 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66671089&amp;ptid=2201887" target="_blank">ruffian 发表于 2024-11-11 13:49</a>
+
+我感觉可可父母平时可能也很少主动跟女儿谈心，俩女儿胡思乱想一大堆做了各种选择偏偏没想过直接跟父母谈。 ...</blockquote>
+只能说育儿经验+1：无论好坏，只做灌输是不行的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

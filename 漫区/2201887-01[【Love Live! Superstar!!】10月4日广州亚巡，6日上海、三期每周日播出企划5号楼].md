@@ -8982,3 +8982,14 @@ VN嘴硬和心软的程度差距越来越大，看下集预告这仨不会搞那
 
 经过这两集可可其实已经差不多算补完了，CEO的戏其实和妹妹一起感觉问题不会太大，但后面的恋怎么办呢，还有办法补救吗？更别说名堇不会就这么点戏份吧，还会有可堇回吗<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViyViy  
+##### 884#       发表于 2024-11-11 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66670928&amp;ptid=2201887" target="_blank">evestart 发表于 2024-11-11 13:30</a>
+
+经过这两集可可其实已经差不多算补完了，CEO的戏其实和妹妹一起感觉问题不会太大，但后面的恋怎么办呢，还 ...</blockquote>
+有人猜7、8合并同时还包含学生会交接问题，没准儿真奶中了呢
+

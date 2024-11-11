@@ -474,3 +474,18 @@
 
 演一出剧，大家都想到舞台上当演员，但是灯光音响这些活也要有人做的。至于我们当事人（本地人）愿不愿意……唉。
 
+
+*****
+
+####  wxc060302  
+##### 49#       发表于 2024-11-11 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66668847&amp;ptid=2206438" target="_blank">阿萨托斯 发表于 2024-11-11 09:44</a>
+
+齐齐哈尔的飞机场也是，军民两用，小到不像正经机场
+
+看了机场很难想象这是黑龙江第二大城市
+
+ ...</blockquote>
+齐齐哈尔只是车牌和区号上的第二大城市<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -459,3 +459,11 @@ Buke 发表于 2024-11-9 12:47看了下，12月31前前申请免年费。我去�
 外币卡也都是免刷免免费的喵</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">这是新卡面吗
 
+
+*****
+
+####  老贝  
+##### 44#       发表于 2024-11-11 10:51
+
+中行那个遗像猫还挺好看的，新版反而没那味了。<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+

@@ -589,3 +589,13 @@ oo是贪污吗，一般这种情况肯定是有一条贪污链，所以即使明
 — from S1 Next Goose v3.1.91-alpha</blockquote>
 牛哇，幸福指数max的地上天国
 
+
+*****
+
+####  vampiar  
+##### 59#       发表于 2024-11-12 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66667003&amp;ptid=2206438" target="_blank">羞羞羞 发表于 2024-11-10 23:13</a>
+黑龙江发展地下都市怎样？所有商业场所转移到地下空间，常年保持地下常年25度，然后从商业场所看看扩大到教 ...</blockquote>
+蒙特利尔是吧
+

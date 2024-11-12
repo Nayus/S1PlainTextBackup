@@ -118,3 +118,11 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  otakun  
+##### 1692#       发表于 2024-11-12 22:37
+
+一开始从pv认出是众神地图的时候我就想过林克被吸走会不会变兔子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要是众神1林克，宝珠还在身上吧
+

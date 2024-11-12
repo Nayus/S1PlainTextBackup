@@ -1325,3 +1325,13 @@ oo是贪污吗，一般这种情况肯定是有一条贪污链，所以即使明
 
 黑龙江除了哈尔滨和大庆其他的都。。。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  twilightzone  
+##### 123#       发表于 2024-11-12 22:47
+
+<blockquote>AP0rt_ 发表于 2024-11-12 22:29
+黑龙江除了哈尔滨和大庆其他的都。。。</blockquote>
+脑子里瞬间开始回放十多年前黑A和黑E在百度贴吧掐架的情景了
+

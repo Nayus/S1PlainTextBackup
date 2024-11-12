@@ -109,3 +109,22 @@
 
 为啥只有小雪人度特别地高LOL
 
+
+*****
+
+####  maoyou  
+##### 2595#       发表于 2024-11-12 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66676960&amp;ptid=2162354" target="_blank">舞野咲 发表于 2024-11-12 09:56</a>
+为啥只有小雪人度特别地高LOL</blockquote>
+更方便演女同样板戏罢了，不然演哈气米吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+*****
+
+####  猫屋敷ゆき  
+##### 2596#       发表于 2024-11-12 15:14
+
+吸猫这事原来这么快乐啊<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+

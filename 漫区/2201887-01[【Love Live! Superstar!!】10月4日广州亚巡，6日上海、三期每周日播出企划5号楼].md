@@ -9313,3 +9313,11 @@ ps：Luna两年没在b站更新夏季特辑了，怕不是忘号了
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  ViyViy  
+##### 916#       发表于 2024-11-12 15:18
+
+今晚能有50%吗，上周真是高估他们了
+

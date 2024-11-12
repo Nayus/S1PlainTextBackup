@@ -1082,3 +1082,14 @@ oo是贪污吗，一般这种情况肯定是有一条贪污链，所以即使明
 
 工业发展到现在没有特别需要散热的产业吗？
 
+
+*****
+
+####  盗号找不回  
+##### 104#       发表于 2024-11-12 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66677035&amp;ptid=2206438" target="_blank">汪达 发表于 2024-11-12 10:03</a>
+
+其实黑龙江旅游资源挺好的，可以考虑在旅游方面加大创收，哈尔滨可以看冰雕展，看东欧风格的建筑，看东北大 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">雪乡问题不是宰客，是实在太小，你看看地图雪乡才多大一地方， 然后除了现在的地方之外还不太让扩建，接待能力上限太低了
+

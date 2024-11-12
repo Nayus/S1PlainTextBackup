@@ -9391,3 +9391,12 @@ ps：Luna两年没在b站更新夏季特辑了，怕不是忘号了
 
 <img src="https://p.sda1.dev/20/10296b73b5c24d79ac5d9c41481b1a6a/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  we89623  
+##### 925#       发表于 2024-11-12 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66683043&amp;ptid=2201887" target="_blank">仟音一心 发表于 2024-11-12 21:45</a></blockquote>
+这么看在日本拉圈这集也是大好评，至于新多出来一堆打4.5的生物可以不用管了....
+

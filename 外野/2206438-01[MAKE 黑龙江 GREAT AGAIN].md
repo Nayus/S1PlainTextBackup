@@ -1093,3 +1093,14 @@ oo是贪污吗，一般这种情况肯定是有一条贪污链，所以即使明
 其实黑龙江旅游资源挺好的，可以考虑在旅游方面加大创收，哈尔滨可以看冰雕展，看东欧风格的建筑，看东北大 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">雪乡问题不是宰客，是实在太小，你看看地图雪乡才多大一地方， 然后除了现在的地方之外还不太让扩建，接待能力上限太低了
 
+
+*****
+
+####  安琪拉之歌  
+##### 105#       发表于 2024-11-12 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66677155&amp;ptid=2206438" target="_blank">动力装甲 发表于 2024-11-12 10:13</a>
+
+今年的全球前10名宜居城市依次为：维也纳、哥本哈根、苏黎世、墨尔本、卡尔加里、日内瓦、悉尼、温哥华、 ...</blockquote>
+气候又不全是维度决定的。暖流是什么冷知识吗？
+

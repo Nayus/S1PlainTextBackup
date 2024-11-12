@@ -35,3 +35,18 @@ Maxwell's puzzling demon全通了，steam时长150h，但实际上远不止。�
 
 （没有记错的话）baba的机制一开始都能用，只是没有告诉玩家，有几关是在告诉你新机制之后直接在相同关卡上面做减法，依靠新机制解题，当时觉得这种设计太神了；而demon也有同一关的模板在新机制下复用（譬如1-16），但这些关卡都是平行的，不存在包含关系，这点我觉得比较可惜
 
+
+*****
+
+####  BRAVADO  
+##### 227#       发表于 2024-11-13 03:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66671355&amp;ptid=2017380" target="_blank">Rincewind 发表于 2024-11-11 14:32</a>
+
+最近在玩i wanna lockpick和冰宫，看看能不能挖一下（应该没事吧……）
+
+虽然爬到T4-4了但说实话不太适应IW ...</blockquote>
+我也不是很喜欢大量的跨关卡联动<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+不过我觉得如果玩解谜游戏的话，卡关是不可避免的，也是乐趣的一部分，真的想要避免卡关的话得去玩zach like啦，即使是很困难的谜题也不会毫无思路。如果更喜欢以大量的机制（我更喜欢叫ruleset）堆积起来的游戏，试试bean and nothingness和leaf's odyssey，而且这两个游戏没有跨关卡联动:)
+

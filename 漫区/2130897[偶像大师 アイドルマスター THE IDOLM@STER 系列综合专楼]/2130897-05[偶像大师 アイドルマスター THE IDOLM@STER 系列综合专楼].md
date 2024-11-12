@@ -281,3 +281,69 @@ u149完结，百11th延期<img src="https://static.saraba1st.com/image/smiley/fa
 
 学那边好像怒涛展开了（
 
+
+*****
+
+####  wfhtony  
+##### 6658#       发表于 2024-11-12 20:25
+
+ 本帖最后由 wfhtony 于 2024-11-12 20:28 编辑 
+
+千奈（節選）：<blockquote>message text=ごきげんよう、先生っ♪ name=千奈
+
+message text=まぁ、とってもお疲れのご様子ですわ。\nなにかございましたの？ name=千奈
+
+message text=いいえ、なにもありませんよ。\nいいですか、倉本さん―― name={user}
+
+message text=次のプロデュースプランに移る前に、\n急ぎ成長しなければなりません。 name={user}
+
+message text=はいっ！　わたくしがんばりますわ！ name=千奈
+
+message text=というわけで、しばらく\nあさり先生の特別授業を受けてきます。 name={user}
+
+message text=あれぇっ！？　わたくしではなく先生が\n特訓を！？　いったいどんな…… name=千奈
+
+message text=こちらが授業のレジュメです。 name={user}
+
+message text=ええと……『961式プロデュース術、\nその功罪と適切な運用について』……？ name=千奈</blockquote>
+
+手毬（節選）：<blockquote>message text=聞いてよ美鈴、プロデューサーがサァ♪\n私のこと好きすぎてサァ～♡ name=手毬
+
+message text=まぁ、ふふふ……\nねぇ、まりちゃん。 name=美鈴
+
+message text=そろそろ……\nりんちゃんとも仲直りしませんか？ name=美鈴
+
+message text=……むり。燐羽とは……\nあれから一度も話してないし…… name=手毬
+
+message text=りんちゃんがいま、どうしているか……\nしっているでしょう？ name=美鈴
+
+message text=わたしじゃ、説得できないんです。\nまりちゃんじゃないと。 name=美鈴
+
+message text=……ちょっと話すだけ、なら。 name=手毬
+
+message text=じゃあ、呼んできますね。\nすこし、待っていてください。 name=美鈴
+
+message text=まりちゃん！　大変！\nりんちゃんが―――― name=美鈴
+
+message text=初星学園を退学して、\n961プロに移籍した……って。 name=美鈴</blockquote>
+共通部分：<blockquote>message text=クックック……。\nハーッハハ！ name=黒井
+
+message text=ついに来たのだ。我が極月学園が\n初星学園を蹂躙するときが！ name=黒井
+
+message text=四音、ここに呼ばれた意味はわかるな？ name=黒井
+
+message text=ええ、私が初星学園の生徒を\n血祭りにあげればいいのでしょう？ name=四音
+
+message text=……月花姉様には声を？ name=四音
+
+message text=いいや、&lt;r\=プリマステラ&gt;一番星&lt;/r&gt;が出てこない以上、\n月花を呼び戻すまでもない。 name=黒井
+
+message text=それに……やつらを潰すための策は、\nすでに打ってある。 name=黒井
+
+message text=四音。極月学園の力を、あの無能どもに\n思い知らせてやるのだ。いいな？ name=黒井
+
+message text=承知しました、理事長。 name=四音
+
+message text=愚かな初星の連中は、この白草四音が\n始末してみせましょう。 name=四音</blockquote>
+看來可以期待一下明年961 xRLive會不會有追加成員出現了（
+

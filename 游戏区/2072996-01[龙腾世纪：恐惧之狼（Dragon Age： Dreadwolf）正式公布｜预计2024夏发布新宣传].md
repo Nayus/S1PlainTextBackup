@@ -5981,3 +5981,11 @@ https://tieba.baidu.com/p/9263140943</blockquote>
 鳄官长的评测也来了，这下他把龙腾四部曲都评测了，不过四部加起来也没他评测星空的长，他对龙腾世纪的爱还 ...</blockquote>
 游戏发售前有个问这个逼的贴，一堆不是骂他就是表示害怕的回复。拿几个人的回复试图代表一个吧，认真的？一看拿来做例子的帖子，是疯猫，笑了，对不起我也不喜欢这位，这下不配做人了<img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aaronluray  
+##### 1193#       发表于 2024-11-12 11:52
+
+结局除了有多远滚多远的救赎结局，其他三结局我觉得全灭结局味道是最正的。真假匕首不说了，还真能骗过蛋头啊，amazing！队员活的结局，太爱与魔法了，这作的大部分任务还烂得要死。反倒是全灭结局，主角最后那一句 你的问题是身为领队却从来不想牺牲，几乎可以说是这作难得还能看的台词了，主角为数不多有逼格的时候<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

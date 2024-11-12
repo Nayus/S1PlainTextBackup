@@ -155,3 +155,13 @@ a9写的付费dlc</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  ScL9  
+##### 1777#       发表于 2024-11-12 12:24
+
+上个月买的剑星实体，然后这个月价钱暴跌
+
+现在只想知道ECAS00094这版本，2B能不能说日语<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+

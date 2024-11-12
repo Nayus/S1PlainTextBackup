@@ -6357,3 +6357,11 @@ SMT 的 press turn 与世界树的职业 + 前后排机制是一次失败的融�
 
 日本中古游戏那么发达，出货量100万套不知道牛年马月才能消化完。
 
+
+*****
+
+####  ouyang菌  
+##### 3527#       发表于 2024-11-12 22:14
+
+打死不还钱也是集大成的一个侧面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">让大伙体验smt4被路边一条野猫抢全身3/4钱还有被黑骑士开局强制抢31/32钱的美好回忆
+

@@ -980,3 +980,22 @@ oo是贪污吗，一般这种情况肯定是有一条贪污链，所以即使明
 
 你自己都受不了 已经没有早晚时间概念了
 
+
+*****
+
+####  skyuni  
+##### 94#       发表于 2024-11-12 13:36
+
+黑龙江那每年的供暖费就是一笔不小支出了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  收缩压  
+##### 95#       发表于 2024-11-12 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66677190&amp;ptid=2206438" target="_blank">动力装甲 发表于 2024-11-12 10:16</a>
+全球变暖对低纬度地区影响最大（也就是关里）
+
+首先农业，全球变暖农作物不适合生长，虫害增多，雨水增多 ...</blockquote>
+五年之内南方不适合开工厂这事儿，中央和南方的领导们知道了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

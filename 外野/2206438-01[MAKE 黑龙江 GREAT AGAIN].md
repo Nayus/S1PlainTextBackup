@@ -999,3 +999,25 @@ oo是贪污吗，一般这种情况肯定是有一条贪污链，所以即使明
 首先农业，全球变暖农作物不适合生长，虫害增多，雨水增多 ...</blockquote>
 五年之内南方不适合开工厂这事儿，中央和南方的领导们知道了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  动力装甲  
+##### 96#       发表于 2024-11-12 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66678814&amp;ptid=2206438" target="_blank">qucqee 发表于 2024-11-12 13:22</a>
+
+冬天那是人呆的地儿么。。。要不都往海南跑呢
+
+今天广东30度 上海20度 北京15度 哈尔滨零下
+
+这冷空气还没来 ...</blockquote>
+海南跑前几位的是广东四川广西，你把东北三个省加一起都排不上，何来东北人想去海南一说？！东北人喜欢考清华北大倒是真的，清华北大东北学生最多
+
+*****
+
+####  省心  
+##### 97#       发表于 2024-11-12 13:57
+
+显然清北是北京学生最多...
+

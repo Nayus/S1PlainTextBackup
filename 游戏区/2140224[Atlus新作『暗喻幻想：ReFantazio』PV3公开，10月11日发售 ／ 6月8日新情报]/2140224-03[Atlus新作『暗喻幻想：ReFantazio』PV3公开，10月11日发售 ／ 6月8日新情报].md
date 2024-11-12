@@ -6323,3 +6323,11 @@ SMT 的 press turn 与世界树的职业 + 前后排机制是一次失败的融�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
 
+
+*****
+
+####  flyingover  
+##### 3523#       发表于 2024-11-12 13:53
+
+[https://www.youtube.com/watch?v=-eFkMJzc6ow](https://www.youtube.com/watch?v=-eFkMJzc6ow) 暗喻幻想的纪录片，里面有谈到一些人设废案之类的（从欧美时装、名牌服饰学的风格）
+

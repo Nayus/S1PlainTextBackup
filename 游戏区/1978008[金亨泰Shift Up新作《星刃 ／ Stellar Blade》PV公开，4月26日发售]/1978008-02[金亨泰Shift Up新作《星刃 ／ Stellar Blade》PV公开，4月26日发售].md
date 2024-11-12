@@ -183,3 +183,23 @@ a9写的付费dlc</blockquote>
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  modkingr  
+##### 1780#       发表于 2024-11-12 13:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">啥时候上pc呀 太想玩了
+
+*****
+
+####  theworld  
+##### 1781#       发表于 2024-11-12 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66678394&amp;ptid=1978008" target="_blank">ScL9 发表于 2024-11-12 12:24</a>
+
+上个月买的剑星实体，然后这个月价钱暴跌
+
+现在只想知道ECAS00094这版本，2B能不能说日语 ...</blockquote>
+没怎么跌吧，看了下多多日版最便宜到手也要300出头，很坚挺了
+

@@ -1335,3 +1335,17 @@ oo是贪污吗，一般这种情况肯定是有一条贪污链，所以即使明
 黑龙江除了哈尔滨和大庆其他的都。。。</blockquote>
 脑子里瞬间开始回放十多年前黑A和黑E在百度贴吧掐架的情景了
 
+
+*****
+
+####  wxc060302  
+##### 124#       发表于 2024-11-12 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66683171&amp;ptid=2206438" target="_blank">圣血天使 发表于 2024-11-12 22:05</a>
+不会是大庆吧
+
+—— 来自 OPPO PJC110, Android 14上的 S1Next-鹅版 v2.5.3</blockquote>
+一个沃尔沃都快顶得上俩齐市的二产了，更别提石化相关的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

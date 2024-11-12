@@ -5938,3 +5938,22 @@ DG算是DA一二三代剧情世界观的创造者，但算不上创始者。</bl
 鳄官长的评测也来了，这下他把龙腾四部曲都评测了，不过四部加起来也没他评测星空的长，他对龙腾世纪的爱还是不够。这应该是现在龙腾世纪吧想看到的评测吧。
 [https://www.bilibili.com/video/B ... 032a9367350af539bae](https://www.bilibili.com/video/BV1rhmxYeES1/?vd_source=b07071744150b032a9367350af539bae)
 
+
+*****
+
+####  dogod  
+##### 1189#       发表于 2024-11-12 10:34
+
+一想到ea能让鳄官长入职，感觉ea没救了
+
+*****
+
+####  PROCAINUM  
+##### 1190#       发表于 2024-11-12 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66676211&amp;ptid=2072996" target="_blank">刻路希 发表于 2024-11-12 08:14</a>
+https://tieba.baidu.com/p/9263140943</blockquote>
+不看主播不看自媒体，说的谁不认识。但是拿一个帖子的部分回帖来地图炮攻击一个吧的人，是不是太偏颇了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -285,3 +285,11 @@ PSSR似乎会在某些场合造成画面底部有一条抽搐的黑色像素
 金亨泰干得好啊，都做到这种地步的史诗级更新了，真的想不明白为何要首发更新补丁和谐掉几件衣服 ...</blockquote>
 之前老版本没有两半球自然下垂的表现<img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  寂长无星夜  
+##### 1789#       发表于 2024-11-12 23:23
+
+明年登录PC，我好急
+

@@ -1032,3 +1032,14 @@ oo是贪污吗，一般这种情况肯定是有一条贪污链，所以即使明
 黑龙江发展地下都市怎样？所有商业场所转移到地下空间，常年保持地下常年25度，然后从商业场所看看扩大到教 ...</blockquote>
 没有阳光，人会得各种各样的精神疾病。北欧那边各种病患多，就是因为极夜太长了，不只是冷的问题。
 
+
+*****
+
+####  懒懒的冬夜  
+##### 99#       发表于 2024-11-12 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66679006&amp;ptid=2206438" target="_blank">动力装甲 发表于 2024-11-12 13:54</a>
+
+海南跑前几位的是广东四川广西，你把东北三个省加一起都排不上，何来东北人想去海南一说？！东北人喜欢考 ...</blockquote>
+清北有不喜欢的吗，有几个是因为不喜欢清北不去考清北的，清北的学生哪里多不是只取决于他们在当地招生的数量吗<img src="https://static.saraba1st.com/image/smiley/face/50.gif" referrerpolicy="no-referrer">
+

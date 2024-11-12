@@ -329,3 +329,16 @@ LV4，合计88连出了黑猫，寡妇平时就不用也没凸点就随缘啦<im
 有没有佬拼胶还有钓鱼佬钓鱼的ASMR</blockquote>
 我龙和九哥哥的跑鱼拍断大腿的声音gkb
 
+
+*****
+
+####  不灭的旋律  
+##### 1261#       发表于 2024-11-12 19:16
+
+棒球活动复刻，ST悠都要来了（可能再搭个ST夜露or日向）？
+
+AGA动画版的漫画版久违更新，确定这个漫画版时间是在长闲被卡车撞异世界转生之后，而且和游戏联动的世界还不是一个世界，连边见都成平行世界漂流者了还保留上一个世界的记忆<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+然后下一话就是最终话？这是被腰斩了吗？
+[https://web-ace.jp/youngaceup/contents/1000235/episode/8851/](https://web-ace.jp/youngaceup/contents/1000235/episode/8851/)
+

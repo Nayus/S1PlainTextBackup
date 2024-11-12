@@ -9877,3 +9877,19 @@ wsd什么时候有科学的声乐指导了
 追加小羊
 <img src="https://p.sda1.dev/20/bd57bfef94057b90ef8c265972bf44eb/IMG_DFCDA946D8FF4A37AAEC9A5CB2479A79.jpeg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  q0we123456  
+##### 25978#       发表于 2024-11-12 14:01
+
+日本鼓手人气投票，drummerjapan.com
+
+<img src="https://img.saraba1st.com/forum/202411/12/140053w4vnqqq7e1echhqf.jpg" referrerpolicy="no-referrer">
+
+<strong>20241112_140002.jpg</strong> (199.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-12 14:00 上传
+

@@ -6001,3 +6001,16 @@ https://tieba.baidu.com/p/9263140943</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  wgoenitz  
+##### 1195#       发表于 2024-11-12 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66678783&amp;ptid=2072996" target="_blank">PROCAINUM 发表于 2024-11-12 13:19</a>
+
+看了一下，我还是12级呢，又如何几个人能代表一个吧整体？
+
+—— 来自 S1Fun ...</blockquote>
+这和所谓把所有喷子都归为猴批一样，就是一概而论，自己设立假想敌，然后站在制高点优越的不行。
+

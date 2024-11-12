@@ -234,3 +234,29 @@ a9写的付费dlc</blockquote>
 
 有点想买了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  浅川雏羽  
+##### 1786#       发表于 2024-11-12 20:33
+
+PSSR似乎会在某些场合造成画面底部有一条抽搐的黑色像素
+
+不知道是我机器的问题还是怎样，不过并不是每个过场都会出现
+
+<img src="https://img.saraba1st.com/forum/202411/12/203249s672s5xk5ky26278.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_4783.JPG</strong> (235.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-12 20:32 上传
+
+<img src="https://img.saraba1st.com/forum/202411/12/203249rvdurd9mdhk8hd9i.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_4782.JPG</strong> (257.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-12 20:32 上传
+

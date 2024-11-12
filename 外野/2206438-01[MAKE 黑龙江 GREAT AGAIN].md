@@ -1212,3 +1212,18 @@ oo是贪污吗，一般这种情况肯定是有一条贪污链，所以即使明
 
 这算哈耶克的大手吗?
 
+
+*****
+
+####  qqq2142  
+##### 114#       发表于 2024-11-12 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66676375&amp;ptid=2206438" target="_blank">夜月紫耀 发表于 2024-11-12 08:50</a>
+
+长春这几年发展比哈尔滨好多了</blockquote>
+我也不知道 我只知道长春有中车
+
+我寻思中车应该挺厉害的
+
+但是沈阳这段时间造船和飞机也挺好
+

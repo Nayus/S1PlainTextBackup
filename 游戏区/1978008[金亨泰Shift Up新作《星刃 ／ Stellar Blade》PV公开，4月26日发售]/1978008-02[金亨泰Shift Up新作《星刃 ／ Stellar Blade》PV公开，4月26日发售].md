@@ -274,3 +274,14 @@ PSSR似乎会在某些场合造成画面底部有一条抽搐的黑色像素
 
 活动过了平台上还留有几间店卖380，我是真看不懂实体版的价钱是怎么定的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  爱撕衣魔刃  
+##### 1788#       发表于 2024-11-12 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66335666&amp;ptid=1978008" target="_blank">宛若青空 发表于 2024-9-29 02:01</a>
+
+金亨泰干得好啊，都做到这种地步的史诗级更新了，真的想不明白为何要首发更新补丁和谐掉几件衣服 ...</blockquote>
+之前老版本没有两半球自然下垂的表现<img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">
+

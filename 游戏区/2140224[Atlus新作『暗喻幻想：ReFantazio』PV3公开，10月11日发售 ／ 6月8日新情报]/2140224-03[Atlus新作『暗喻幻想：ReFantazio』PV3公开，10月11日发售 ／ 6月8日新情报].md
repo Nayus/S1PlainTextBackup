@@ -6331,3 +6331,12 @@ SMT 的 press turn 与世界树的职业 + 前后排机制是一次失败的融�
 
 [https://www.youtube.com/watch?v=-eFkMJzc6ow](https://www.youtube.com/watch?v=-eFkMJzc6ow) 暗喻幻想的纪录片，里面有谈到一些人设废案之类的（从欧美时装、名牌服饰学的风格）
 
+
+*****
+
+####  u2deack  
+##### 3524#       发表于 2024-11-12 21:31
+
+路易最终战不秒杀的话是人打的么，一回合十动，我都笑了
+技能动画又慢又长打了我半小时要重来
+

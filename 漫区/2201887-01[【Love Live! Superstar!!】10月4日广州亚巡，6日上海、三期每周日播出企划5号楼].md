@@ -9343,3 +9343,36 @@ ps：Luna两年没在b站更新夏季特辑了，怕不是忘号了
 —— ...</blockquote>
 主要是这集比较微妙，没能做到一边倒，再加上右右感觉会是一个很惨的比例
 
+
+*****
+
+####  仟音一心  
+##### 919#       发表于 2024-11-12 21:28
+
+<img src="https://p.sda1.dev/20/ed57ac3714ef625c39f148cf6e452146/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ΣPRC  
+##### 920#       发表于 2024-11-12 21:33
+
+哈基日果然不负期待<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.85-alpha
+
+
+*****
+
+####  ViyViy  
+##### 921#       发表于 2024-11-12 21:35
+
+还行吧，这型，这次来的三百个应该是活人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  280041437  
+##### 922#       发表于 2024-11-12 21:35
+
+观看人数创星三记录了，也是好事
+

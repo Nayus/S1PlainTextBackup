@@ -1257,3 +1257,16 @@ oo是贪污吗，一般这种情况肯定是有一条贪污链，所以即使明
 
 —— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  qqq2142  
+##### 117#       发表于 2024-11-12 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66682668&amp;ptid=2206438" target="_blank">斯城恶魔 发表于 2024-11-12 20:49</a>
+
+中车长春，长春光机所，吉林一号，长春生物，金赛制药，一汽红旗大众奥迪
+
+沈飞，北方重工，三一重型，雪 ...</blockquote>
+有冰雪节！（是的，开车的司机这么给我说的
+

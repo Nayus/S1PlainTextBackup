@@ -58,3 +58,13 @@
 结局那段真的是有意为之呀</blockquote>
 求解惑
 
+
+*****
+
+####  tachikoma27  
+##### 1687#       发表于 2024-11-12 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66679503&amp;ptid=2188108" target="_blank">佛罗伦萨 发表于 2024-11-12 14:55</a>
+结局那段真的是有意为之呀</blockquote>
+结局如果只是说林克开口说话的话大家会有那么强烈的震惊反应吗，有点微妙，因为大家知道林克原本会说话的啊。看起来更像是有什么意想不到的展开一样
+

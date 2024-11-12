@@ -260,3 +260,17 @@ PSSR似乎会在某些场合造成画面底部有一条抽搐的黑色像素
 
 2024-11-12 20:32 上传
 
+
+*****
+
+####  ScL9  
+##### 1787#       发表于 2024-11-12 21:08
+
+ 本帖最后由 ScL9 于 2024-11-12 21:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66681134&amp;ptid=1978008" target="_blank">小明神 发表于 2024-11-12 18:00</a>
+
+刚看了下 二手价格都在350+  价格真是坚挺</blockquote>
+坐标东南亚，全价平均510上下，我当时领卷买花了400，而双11我这索尼合作的零售商活动卖330
+
+活动过了平台上还留有几间店卖380，我是真看不懂实体版的价钱是怎么定的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

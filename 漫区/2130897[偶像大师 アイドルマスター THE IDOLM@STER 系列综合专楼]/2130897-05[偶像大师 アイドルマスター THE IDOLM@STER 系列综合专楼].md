@@ -347,3 +347,11 @@ message text=承知しました、理事長。 name=四音
 message text=愚かな初星の連中は、この白草四音が\n始末してみせましょう。 name=四音</blockquote>
 看來可以期待一下明年961 xRLive會不會有追加成員出現了（
 
+
+*****
+
+####  北条早苗  
+##### 6659#       发表于 2024-11-12 21:10
+
+怎么961还能开个中专的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -5989,3 +5989,15 @@ https://tieba.baidu.com/p/9263140943</blockquote>
 
 结局除了有多远滚多远的救赎结局，其他三结局我觉得全灭结局味道是最正的。真假匕首不说了，还真能骗过蛋头啊，amazing！队员活的结局，太爱与魔法了，这作的大部分任务还烂得要死。反倒是全灭结局，主角最后那一句 你的问题是身为领队却从来不想牺牲，几乎可以说是这作难得还能看的台词了，主角为数不多有逼格的时候<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PROCAINUM  
+##### 1194#       发表于 2024-11-12 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66677567&amp;ptid=2072996" target="_blank">刻路希 发表于 2024-11-12 10:54</a>
+很简单，你要不看下回帖人的等级？</blockquote>
+看了一下，我还是12级呢，又如何<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">几个人能代表一个吧整体？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

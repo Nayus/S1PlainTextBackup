@@ -727,3 +727,35 @@ oo是贪污吗，一般这种情况肯定是有一条贪污链，所以即使明
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
 
+
+*****
+
+####  夜月紫耀  
+##### 72#       发表于 2024-11-12 08:50
+
+<blockquote>qqq2142 发表于 2024-11-12 08:44
+是这样吗？长春竟然比哈尔滨强
+国庆去哈尔滨玩，感觉说到长春支柱产业都是pc
+</blockquote>
+长春这几年发展比哈尔滨好多了
+
+*****
+
+####  iamsolowingpixy  
+##### 73#       发表于 2024-11-12 08:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66666397&amp;ptid=2206438" target="_blank">pure_liquid 发表于 2024-11-10 21:57</a>
+
+东三省经常被并列提起，那么为什么辽宁吉林出现人口回流，黑龙江没有呢？ ...</blockquote>
+辽宁吉林的迁入人口主要都是黑龙江的。
+
+
+*****
+
+####  thelinli2  
+##### 74#       发表于 2024-11-12 08:53
+
+一年有半年冬天，啥也干不了的日子太难熬了。
+
+人还是需要阳光的。
+

@@ -1286,3 +1286,34 @@ oo是贪污吗，一般这种情况肯定是有一条贪污链，所以即使明
 
 黑龙江可以搞避暑山庄旅游，夏天搬过去住，今天看到b站一个小姐姐在东北卖豆腐，她家有几个邻居就是夏天过来，一过冬就跑了然后夏天再来<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">除了冬天，黑龙江是一个宜居的好地方
 
+
+*****
+
+####  圣血天使  
+##### 120#       发表于 2024-11-12 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66682696&amp;ptid=2206438" target="_blank">wxc060302 发表于 2024-11-12 20:53</a>
+冷笑话：黑省工业第一既不是哈市也不是齐市
+
+—— 来自 OPPO PCLM10, Android 12上的 S1Next-鹅版 v3.0.0 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会是大庆吧
+
+—— 来自 OPPO PJC110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+
+*****
+
+####  爱撕衣魔刃  
+##### 121#       发表于 2024-11-12 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66683171&amp;ptid=2206438" target="_blank">圣血天使 发表于 2024-11-12 22:05</a>
+
+不会是大庆吧
+
+—— 来自 OPPO PJC110, Android 14上的 S1Next-鹅版 v2.5.3</blockquote>
+那还能是牡佳不成？
+
+勇敢的牡佳，
+
+加起来也不如大庆啊<img src="https://static.saraba1st.com/image/smiley/face/177.gif" referrerpolicy="no-referrer">
+

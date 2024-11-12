@@ -355,3 +355,13 @@ message text=愚かな初星の連中は、この白草四音が\n始末して�
 
 怎么961还能开个中专的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Unlight  
+##### 6660#         楼主| 发表于 2024-11-12 22:10
+
+<blockquote>北条早苗 发表于 2024-11-12 21:10
+怎么961还能开个中专的</blockquote>
+唉，哈基井的大手
+

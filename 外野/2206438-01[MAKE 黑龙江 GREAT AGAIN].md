@@ -1144,3 +1144,14 @@ oo是贪污吗，一般这种情况肯定是有一条贪污链，所以即使明
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  动力装甲  
+##### 109#       发表于 2024-11-12 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66680774&amp;ptid=2206438" target="_blank">安琪拉之歌 发表于 2024-11-12 17:19</a>
+
+气候又不全是维度决定的。暖流是什么冷知识吗？</blockquote>
+冷不是问题，热才是问题，国家发展的好是因为不热。北欧国家都挨着北极圈了，反而更加富裕。
+

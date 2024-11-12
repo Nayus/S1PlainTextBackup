@@ -40,3 +40,15 @@
 
 豪车的最大卖点永远是车标，豪车也是奢侈品。奢侈品最重要的属性是只能增值不能贬值，至于车本身只要能正常开就行。我朝这些豪车竟然在之前的价格战期间降价，肥肠不可思议。
 
+
+*****
+
+####  圣锤修会  
+##### 55#       发表于 2024-11-12 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66677245&amp;ptid=2206115" target="_blank">依亿伊邑壹 发表于 2024-11-12 10:22</a>
+豪车的最大卖点永远是车标，豪车也是奢侈品。奢侈品最重要的属性是只能增值不能贬值，至于车本身只要能正常 ...</blockquote>
+车这东西和lv还是不一样的，豪华是需要技术做支撑的。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

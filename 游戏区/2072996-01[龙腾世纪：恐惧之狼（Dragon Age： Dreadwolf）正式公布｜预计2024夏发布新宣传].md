@@ -5970,3 +5970,14 @@ https://tieba.baidu.com/p/9263140943</blockquote>
  ...</blockquote>
 很简单，你要不看下回帖人的等级？
 
+
+*****
+
+####  aaronluray  
+##### 1192#       发表于 2024-11-12 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66676783&amp;ptid=2072996" target="_blank">刻路希 发表于 2024-11-12 09:36</a>
+
+鳄官长的评测也来了，这下他把龙腾四部曲都评测了，不过四部加起来也没他评测星空的长，他对龙腾世纪的爱还 ...</blockquote>
+游戏发售前有个问这个逼的贴，一堆不是骂他就是表示害怕的回复。拿几个人的回复试图代表一个吧，认真的？一看拿来做例子的帖子，是疯猫，笑了，对不起我也不喜欢这位，这下不配做人了<img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
+

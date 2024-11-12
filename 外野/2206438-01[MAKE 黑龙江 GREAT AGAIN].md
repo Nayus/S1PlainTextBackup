@@ -896,3 +896,26 @@ oo是贪污吗，一般这种情况肯定是有一条贪污链，所以即使明
 冬季湿冷，下雪天气没供暖，夏季湿热，经常有死于热射病。但是，宜居！ ...</blockquote>
 哪个位面黑龙江下雪天气没供暖？全省基本上10月15日前后都进入供暖季了，一直能采暖到4月15日，而且也不是湿热和湿冷啊？干的一b
 
+
+*****
+
+####  无敌可爱猫  
+##### 86#       发表于 2024-11-12 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66677035&amp;ptid=2206438" target="_blank">汪达 发表于 2024-11-12 10:03</a>
+其实黑龙江旅游资源挺好的，可以考虑在旅游方面加大创收，哈尔滨可以看冰雕展，看东欧风格的建筑，看东北大 ...</blockquote>
+野生动物多了可以搞野生动物保护区然后弄些车道供游客乘车看动物
+
+
+*****
+
+####  动力装甲  
+##### 87#       发表于 2024-11-12 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66677204&amp;ptid=2206438" target="_blank">gogoneogg 发表于 2024-11-12 10:17</a>
+
+其实没什么可惊讶的，本身那边就是建国初期为国家建设才建立起来的，历朝历代也没多少人口。
+
+放在以前本身 ...</blockquote>
+江浙沪福建，苦热之地！
+

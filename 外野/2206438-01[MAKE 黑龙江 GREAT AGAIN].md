@@ -937,3 +937,20 @@ oo是贪污吗，一般这种情况肯定是有一条贪污链，所以即使明
 
 一谈黑龙江祖上阔过就说特殊历史产物，有没有可能进入近现代史黑龙江富是必然，相反穷才奇怪。基本都是列强必争之地进入东亚路上走廊，要不是柴娜富强了，毛子，米国和鬼子早又开始惦记上了。
 
+
+*****
+
+####  太对了  
+##### 90#       发表于 2024-11-12 12:40
+
+好多国师<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  叶子  
+##### 91#       发表于 2024-11-12 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66667003&amp;ptid=2206438" target="_blank">羞羞羞 发表于 2024-11-10 23:13</a>
+黑龙江发展地下都市怎样？所有商业场所转移到地下空间，常年保持地下常年25度，然后从商业场所看看扩大到教 ...</blockquote>
+没阳光人会疯
+

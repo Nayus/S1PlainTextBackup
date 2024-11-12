@@ -165,3 +165,11 @@ a9写的付费dlc</blockquote>
 
 现在只想知道ECAS00094这版本，2B能不能说日语<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jacket  
+##### 1778#       发表于 2024-11-12 12:44
+
+给钱才能联动吧，那应该要付费才合理
+

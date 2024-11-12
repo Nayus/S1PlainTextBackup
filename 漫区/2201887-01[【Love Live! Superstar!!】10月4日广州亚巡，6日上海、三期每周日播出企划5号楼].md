@@ -9240,3 +9240,11 @@ snp输得太不体面了，垫给vn垫的莫名其妙，还刻意让人最后一
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  ViyViy  
+##### 908#       发表于 2024-11-12 10:01
+
+不知道热场会不会还原，能还原真的爽死了，配合动画刷12场印象，就算后面雪藏我都无所谓<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+

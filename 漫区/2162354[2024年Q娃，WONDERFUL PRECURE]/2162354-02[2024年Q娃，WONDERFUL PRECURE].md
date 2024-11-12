@@ -85,3 +85,27 @@
 
 今年的Q娃，原来是摇铃啊摇铃那种设定<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 2593#       发表于 2024-11-11 21:39
+
+[https://x.com/naoki1653/status/1855528343216767026](https://x.com/naoki1653/status/1855528343216767026)
+
+今朝放送のわんだふるぷりきゅあ#40にて
+
+レイアウト、動検、動画と幅広く参加させて頂きました
+
+ご視聴ありがとうございました
+
+最高に可愛く、尊い回に参加できて幸せな時間でした
+<img src="https://p.sda1.dev/20/d02432068ecad6accd08a6d37c16ef03/20241111_213904.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  舞野咲  
+##### 2594#       发表于 2024-11-12 09:56
+
+为啥只有小雪人度特别地高LOL
+

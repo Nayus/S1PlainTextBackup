@@ -5957,3 +5957,16 @@ https://tieba.baidu.com/p/9263140943</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  刻路希  
+##### 1191#       发表于 2024-11-12 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66677416&amp;ptid=2072996" target="_blank">PROCAINUM 发表于 2024-11-12 10:39</a>
+
+不看主播不看自媒体，说的谁不认识。但是拿一个帖子的部分回帖来地图炮攻击一个吧的人，是不是太偏颇了
+
+ ...</blockquote>
+很简单，你要不看下回帖人的等级？
+

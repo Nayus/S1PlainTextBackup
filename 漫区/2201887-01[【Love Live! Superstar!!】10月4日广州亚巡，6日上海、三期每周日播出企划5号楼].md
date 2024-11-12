@@ -9258,3 +9258,20 @@ snp输得太不体面了，垫给vn垫的莫名其妙，还刻意让人最后一
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  仟音一心  
+##### 910#       发表于 2024-11-12 11:02
+
+<img src="https://p.sda1.dev/20/891d1f5360284829af815249cda33e7c/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 911#       发表于 2024-11-12 11:03
+
+奥黛丽pay，刚刚b站刷到了
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

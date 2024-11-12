@@ -1227,3 +1227,33 @@ oo是贪污吗，一般这种情况肯定是有一条贪污链，所以即使明
 
 但是沈阳这段时间造船和飞机也挺好
 
+
+*****
+
+####  斯城恶魔  
+##### 115#       发表于 2024-11-12 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66682580&amp;ptid=2206438" target="_blank">qqq2142 发表于 2024-11-12 20:37</a>
+我也不知道 我只知道长春有中车
+
+我寻思中车应该挺厉害的
+
+但是沈阳这段时间造船和飞机也挺好 ...</blockquote>
+中车长春，长春光机所，吉林一号，长春生物，金赛制药，一汽红旗大众奥迪
+沈飞，北方重工，三一重型，雪花，桃李，东药，汽车制造及配件
+哈尔滨什么也不剩了，车没了，机械工业没了，剩一个哈药六厂现在也不温不火
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+
+*****
+
+####  wxc060302  
+##### 116#       发表于 2024-11-12 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66679624&amp;ptid=2206438" target="_blank">盗号找不回 发表于 2024-11-12 15:12</a>
+我要继续说我的暴论，按上面的安排的话，黑龙江的人还不够少，除了几个大城市之外全机械化耕地，上农场和地 ...</blockquote>
+冷笑话：黑省工业第一既不是哈市也不是齐市<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -31,3 +31,31 @@ document.getElementById('flv_GGc').innerHTML=("");
 我一代nreal插7640u的win mini两个c口都行啊，是你那款眼镜有问题吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没问题了，不知道为什么核显被禁用了，重启之后就可以了
 
+
+*****
+
+####  bypass  
+##### 1323#         楼主| 发表于 2024-11-12 09:27
+
+白色限量版，好看（官方这个配图全是锯齿）。
+
+<img src="https://img.saraba1st.com/forum/202411/12/092650ghpy4q81zvt8tx1g.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (138.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-12 09:26 上传
+
+ <blockquote>Steam Deck OLED 白色限量版将于 2024 年 11 月 18 日下午 3 时（PT）全球发售。 本型号售价 679 美元，将于所有 Steam Deck 发货地区发售，包括通过 Komodo 进行销售的日本、韩国、台湾和香港。
+
+我们在澳大利亚的新顾客也包括在内哦！ 在澳大利亚，白色限量版型号将与所有其他 Steam Deck 型号同时（也就是 11 月 19 日上午 10 时 AEDT）发货。
+
+Steam Deck OLED 白色限量版与 Steam Deck OLED 1TB 型号所有规格完全相同，只是颜色是白色加灰色， 此外随附一个独家白色便携盒及白色超纤清洁布。
+
+此型号限量发售，库存在各地区按比例分配。 也就是说美国、加拿大、英国、欧盟、澳大利亚及 Komodo 销售地区将分别供货。 为确保尽可能多有意愿购买 Steam Deck OLED 白色限量版的顾客都能买到，我们将限制一个帐户只能购买一台。 帐户必须在 2024 年 11 月前在 Steam 进行过购买且信誉良好，才有购买资格。
+
+既然是限量版发售，这一特殊设计我们不会进行更多的生产。 一旦售罄，再无供应。
+
+点击下方链接，给您的日历添加提醒——这些链接会按您所在当地时区自动调整，迎接全球同步发售。</blockquote>
+

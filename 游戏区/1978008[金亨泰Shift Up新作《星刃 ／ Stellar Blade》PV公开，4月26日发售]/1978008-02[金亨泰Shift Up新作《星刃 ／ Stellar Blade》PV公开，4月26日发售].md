@@ -96,3 +96,39 @@
 
 2B这套换装可以
 
+
+*****
+
+####  nagitoY  
+##### 1772#       发表于 2024-11-12 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66675632&amp;ptid=1978008" target="_blank">宛若青空 发表于 2024-11-12 00:55</a>
+
+感觉可能是很多人误会了，我看PS BLOG的文章里实际上这指的联动物品是在游戏里的“艾米尔商店”购买吧… ...</blockquote>
+a9写的付费dlc
+
+<img src="https://img.saraba1st.com/forum/202411/12/093151w98yxvxaxuyd9xdy.png" referrerpolicy="no-referrer">
+
+<strong>007.png</strong> (237.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-12 09:31 上传
+
+*****
+
+####  nagitoY  
+##### 1773#       发表于 2024-11-12 09:32
+
+还要注册一个日服账号买dlc了，淘宝应该可以直接买点卡？
+
+*****
+
+####  宛若青空  
+##### 1774#       发表于 2024-11-12 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66676735&amp;ptid=1978008" target="_blank">nagitoY 发表于 2024-11-12 09:31</a>
+
+a9写的付费dlc</blockquote>
+昨晚全网我就只看到A9这么写，我感觉也是他们编辑误会了，发过私信给他们了今天看看怎么回复
+

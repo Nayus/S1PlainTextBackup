@@ -1104,3 +1104,13 @@ oo是贪污吗，一般这种情况肯定是有一条贪污链，所以即使明
 今年的全球前10名宜居城市依次为：维也纳、哥本哈根、苏黎世、墨尔本、卡尔加里、日内瓦、悉尼、温哥华、 ...</blockquote>
 气候又不全是维度决定的。暖流是什么冷知识吗？
 
+
+*****
+
+####  Viteeee  
+##### 106#       发表于 2024-11-12 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66679630&amp;ptid=2206438" target="_blank">迪门修斯 发表于 2024-11-12 15:14</a>
+工业发展到现在没有特别需要散热的产业吗？</blockquote>
+有，但碰巧同时也是电力密集行业，而贵州在电价方面优势太大了。
+

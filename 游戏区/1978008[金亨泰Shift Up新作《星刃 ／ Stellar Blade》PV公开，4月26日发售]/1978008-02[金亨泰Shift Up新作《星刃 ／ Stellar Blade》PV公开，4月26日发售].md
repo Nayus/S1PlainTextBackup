@@ -132,3 +132,26 @@ a9写的付费dlc
 a9写的付费dlc</blockquote>
 昨晚全网我就只看到A9这么写，我感觉也是他们编辑误会了，发过私信给他们了今天看看怎么回复
 
+
+*****
+
+####  Bani82  
+##### 1775#       发表于 2024-11-12 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66676767&amp;ptid=1978008" target="_blank">宛若青空 发表于 2024-11-12 09:34</a>
+
+昨晚全网我就只看到A9这么写，外网没一个媒体这么写的，我感觉也是他们编辑误会了，发过私信给他们了今天 ...</blockquote>
+没问题啊，付费DLC但是进度没到拿不到
+
+
+*****
+
+####  名字已被吃  
+##### 1776#       发表于 2024-11-12 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66676767&amp;ptid=1978008" target="_blank">宛若青空 发表于 2024-11-12 09:34</a>
+昨晚全网我就只看到A9这么写，外网没一个媒体这么写的，我感觉也是他们编辑误会了，发过私信给他们了今天 ...</blockquote>
+我也很奇怪，按理说收费的话，都快出了不至于不趁着这次公布日期的时候公布价格
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

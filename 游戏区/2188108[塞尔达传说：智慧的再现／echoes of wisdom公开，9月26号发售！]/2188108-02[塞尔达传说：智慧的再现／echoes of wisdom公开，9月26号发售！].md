@@ -68,3 +68,14 @@
 结局那段真的是有意为之呀</blockquote>
 结局如果只是说林克开口说话的话大家会有那么强烈的震惊反应吗，有点微妙，因为大家知道林克原本会说话的啊。看起来更像是有什么意想不到的展开一样
 
+
+*****
+
+####  woui003woui  
+##### 1688#       发表于 2024-11-12 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66680871&amp;ptid=2188108" target="_blank">tachikoma27 发表于 2024-11-12 17:28</a>
+
+结局如果只是说林克开口说话的话大家会有那么强烈的震惊反应吗，有点微妙，因为大家知道林克原本会说话的 ...</blockquote>
+怀疑是“其实林克没有受到裂缝影响，一直都会说话，就是不爱说”这种谜设定……
+

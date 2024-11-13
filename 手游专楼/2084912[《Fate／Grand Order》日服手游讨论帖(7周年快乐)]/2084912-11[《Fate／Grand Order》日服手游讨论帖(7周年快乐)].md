@@ -2060,3 +2060,53 @@ FGO宝具动画喜欢玩机战的梗，但是3D机设做的和shit一样...要�
 </blockquote>
 发型太普通了，不过肤色和发色挺像马利克的...
 
+
+*****
+
+####  angelooo  
+##### 15119#       发表于 2024-11-13 19:08
+
+枪梵高卡面不如本体，当然本体几个卡面实在太强了很难比得过
+
+*****
+
+####  khxooo  
+##### 15120#       发表于 2024-11-13 19:10
+
+单体大英雄<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  angelooo  
+##### 15121#       发表于 2024-11-13 19:10
+
+不是，你这个单体大英雄怎么还有战续啊
+
+你什么cost我什么cost.jpg
+
+*****
+
+####  Jamaisvu  
+##### 15122#       发表于 2024-11-13 19:12
+
+<img src="https://img.saraba1st.com/forum/202411/13/190802n3v67p7v2rpef6o6.jpg" referrerpolicy="no-referrer">
+
+<strong>0ADE8285B5044D260DCAE36C9F57AD16.jpg</strong> (200.13 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-11-13 19:08 上传
+
+这配置挺怪的，蓝单特攻宝具后置自身即死，三技能战续，一技能爆金币，三个技能散装80自充，还有20群充。
+
+宝具回收高的话，可以三个技能全用放第一次宝具，战续复活触发一技能给星星，第二次放彻底退场再给星星，之后换人？
+
+*****
+
+####  alucardcz  
+##### 15123#       发表于 2024-11-13 19:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">什么 1张护符直接出了
+

@@ -227,3 +227,35 @@
 
 东迷剧本是谁啊，竹入还是社长。
 
+
+*****
+
+####  ravend233  
+##### 6820#       发表于 2024-11-13 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66688516&amp;ptid=2160194" target="_blank">无动于衷 发表于 2024-11-13 16:26</a>
+所以最坏的打算就是到明年9月就一个空轨1st是吧</blockquote>
+现在基本就是这样了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  Squall25  
+##### 6821#       发表于 2024-11-13 16:36
+
+<blockquote>a2042312 发表于 2024-11-13 16:32
+东迷剧本是谁啊，竹入还是社长。</blockquote>
+应该是新人编剧。界轨编剧cast那里李岚峰也不见了，不是离职的话只能认为参与了其它项目，比起空re更可能是京迷，
+
+*****
+
+####  ravend233  
+##### 6822#       发表于 2024-11-13 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66688565&amp;ptid=2160194" target="_blank">a2042312 发表于 2024-11-13 16:32</a>
+东迷剧本是谁啊，竹入还是社长。</blockquote>
+近藤不写伊苏以外的剧本，李岚峰不在界的staff表，估计是分到迷城去了，不过主笔不排除还是竹入
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

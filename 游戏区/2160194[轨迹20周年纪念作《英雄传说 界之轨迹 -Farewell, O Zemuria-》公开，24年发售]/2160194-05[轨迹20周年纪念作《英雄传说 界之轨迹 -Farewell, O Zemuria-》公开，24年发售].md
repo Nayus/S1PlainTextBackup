@@ -120,3 +120,11 @@
 
 说明年东迷界2双开的，我不觉得和东迷同年发售是什么好事，界2一定会比界1更敷衍<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hayate0079  
+##### 6809#       发表于 2024-11-13 15:16
+
+我怎么感觉法老控还没想好/写好共和国篇的结局
+

@@ -429,3 +429,15 @@ fc1f4134970a304e899c51df97c8a786c9175c5d(1).jpg
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  ouyang菌  
+##### 6838#       发表于 2024-11-13 19:37
+
+闪12和闪34都只隔了一年吧
+
+fc和sc是隔了1年9个月
+
+界2要是还是9月发售是不是能算最长断章了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

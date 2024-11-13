@@ -6440,3 +6440,13 @@ SMT 的 press turn 与世界树的职业 + 前后排机制是一次失败的融�
 
 过了，拿骑士的吸收减少一些全体攻击就过了
 
+
+*****
+
+####  隔壁老黄  
+##### 3535#       发表于 2024-11-14 02:25
+
+通关了，完全体路易没撑过一回合<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+

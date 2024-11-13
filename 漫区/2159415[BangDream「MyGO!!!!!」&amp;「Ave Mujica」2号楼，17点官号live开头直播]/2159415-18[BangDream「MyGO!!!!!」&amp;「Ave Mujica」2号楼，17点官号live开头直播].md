@@ -10036,3 +10036,11 @@ wsd在令人失望这一点上从不令人失望<img src="https://static.saraba1
 
 武士道是按CD销量订场子的吗<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 25992#       发表于 2024-11-13 16:51
+
+武士道总能在迷惑操作上让我大开眼界（贬义）
+

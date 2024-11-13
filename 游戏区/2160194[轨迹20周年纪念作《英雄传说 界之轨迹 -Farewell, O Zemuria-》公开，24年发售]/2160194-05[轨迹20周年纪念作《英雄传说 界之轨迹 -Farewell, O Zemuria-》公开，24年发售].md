@@ -259,3 +259,26 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  卢迪克  
+##### 6823#       发表于 2024-11-13 16:52
+
+ 本帖最后由 卢迪克 于 2024-11-13 16:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66688555&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-11-13 16:31</a>
+
+这个体量的复刻对于falcom来说就是新作了
+
+低配se和低配ff7re好吧</blockquote>
+还是65人，不就是只能一年一作，除非他有时至宝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+fc1f4134970a304e899c51df97c8a786c9175c5d(1).jpg
+(19.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-13 16:53 上传
+
+<img src="https://img.saraba1st.com/forum/202411/13/165315n7qpedkztcjz9eyy.jpg" referrerpolicy="no-referrer">
+

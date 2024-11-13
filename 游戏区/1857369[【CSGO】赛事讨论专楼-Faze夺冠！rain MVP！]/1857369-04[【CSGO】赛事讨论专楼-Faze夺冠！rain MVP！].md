@@ -30,3 +30,13 @@
 
 偷子队好死<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">桌子最平的一次
 
+
+*****
+
+####  yygundam  
+##### 4517#       发表于 2024-11-13 16:51
+
+万众期待的选手JBa也能出贴纸了（
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

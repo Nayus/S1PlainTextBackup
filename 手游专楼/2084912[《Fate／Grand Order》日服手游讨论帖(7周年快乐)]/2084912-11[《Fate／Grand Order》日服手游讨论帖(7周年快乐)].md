@@ -2212,3 +2212,43 @@ FGO宝具动画喜欢玩机战的梗，但是3D机设做的和shit一样...要�
 
 考虑到脚本是虚数海战那位，估计是克苏鲁系的角色，奈亚分灵黑法老之类的？
 
+
+*****
+
+####  angelooo  
+##### 15132#       发表于 2024-11-13 19:26
+
+<blockquote>Jamaisvu 发表于 2024-11-13 19:23
+没错，就是下面这破玩意。
+
+</blockquote>
+3D太拉了，2D静态稍微好点
+
+
+*****
+
+####  Jamaisvu  
+##### 15133#       发表于 2024-11-13 19:31
+
+图坦卡蒙羁绊礼装里这个甲虫护身符我小时候在博物馆里买过复制品，但找不到了，没法当抽卡圣遗物...：
+
+<img src="https://img.saraba1st.com/forum/202411/13/193009f3mx77rmdmpqmgma.png" referrerpolicy="no-referrer">
+
+<strong>1731497273918.png</strong> (70.46 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-11-13 19:30 上传
+
+大概长这样，底面画着象形文字：
+
+<img src="https://img.saraba1st.com/forum/202411/13/193034g7w4l6vk62kjjz9u.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20241113_193026.jpg</strong> (31.88 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-11-13 19:30 上传
+

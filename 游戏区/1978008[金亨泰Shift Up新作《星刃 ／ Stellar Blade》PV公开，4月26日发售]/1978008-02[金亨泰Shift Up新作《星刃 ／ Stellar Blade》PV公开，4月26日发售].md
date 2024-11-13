@@ -324,3 +324,19 @@ PSSR似乎会在某些场合造成画面底部有一条抽搐的黑色像素
 
 [论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  宛若青空  
+##### 1793#       发表于 2024-11-13 13:23
+
+PlayStation Japan发了个新的日版PV，确定尼尔联动是付费DLC了
+
+<img src="https://img.saraba1st.com/forum/202411/13/132321mx1bkv6sbz3lsk5b.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1966.jpeg</strong> (262.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-13 13:23 上传
+

@@ -312,3 +312,34 @@ fc1f4134970a304e899c51df97c8a786c9175c5d(1).jpg
 
 如果一年一作 那界2排哪去了？明年空 后年东迷 大后年伊苏 wtf 那我啥时候能玩到界2
 
+
+*****
+
+####  Oshino  
+##### 6827#       发表于 2024-11-13 17:18
+
+好自信的falcom，明年只有空轨重制营收能稳黑字吗
+
+
+*****
+
+####  ravend233  
+##### 6828#       发表于 2024-11-13 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66688959&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-11-13 17:12</a>
+
+界宣发还是共和国三作最高的，虽然不知道空轨上老任发布会花了多少</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">考虑到这钱还要分给空RE上ND，实际上分下来顶多和黎1一个级别，你还要算上日本这俩年高速通胀
+
+*****
+
+####  ravend233  
+##### 6829#       发表于 2024-11-13 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66688980&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-11-13 17:14</a>
+
+如果一年一作 那界2排哪去了？明年空 后年东迷 大后年伊苏 wtf 那我啥时候能玩到界2 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在说法就是2026和迷城挤呗，但是计划是这样，万一计划赶不上变化（
+
+舅舅的消息是迷城已经有一定完成度了，而且已经开发好几年了，但是在等NS2
+

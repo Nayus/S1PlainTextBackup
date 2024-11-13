@@ -1878,3 +1878,11 @@ wys总是在大家以为他改性了的时候证明自己<img src="https://stati
 
 30石头弓凛到手，只能说二爷是对的，那腿真的够吸引人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  格林卡罗尔  
+##### 15101#       发表于 2024-11-13 17:11
+
+神作，被动技能能随便换<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+

@@ -343,3 +343,43 @@ fc1f4134970a304e899c51df97c8a786c9175c5d(1).jpg
 
 舅舅的消息是迷城已经有一定完成度了，而且已经开发好几年了，但是在等NS2
 
+
+*****
+
+####  maojiashu  
+##### 6830#       发表于 2024-11-13 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66689068&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-11-13 17:22</a>
+
+现在说法就是2026和迷城挤呗，但是计划是这样，万一计划赶不上变化（</blockquote>
+意思东迷已经做的差不多了？ ns2首发护航是吧
+
+界2如果26年能稳定发售就还行 
+
+
+*****
+
+####  ravend233  
+##### 6831#       发表于 2024-11-13 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66689116&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-11-13 17:27</a>
+
+意思东迷已经做的差不多了？ ns2首发护航是吧
+
+界2如果26年能稳定发售就还行  ...</blockquote>
+不出意外的话应该是界2 2026 9月，迷城2026上半年蹭NS2首发热度吧
+
+*****
+
+####  lower  
+##### 6832#       发表于 2024-11-13 17:32
+
+还要至少等一年，让我对空轨re感到很厌烦<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 6833#       发表于 2024-11-13 17:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实没空RE也做不出来，界2剧本大概率还在新建文件夹（
+

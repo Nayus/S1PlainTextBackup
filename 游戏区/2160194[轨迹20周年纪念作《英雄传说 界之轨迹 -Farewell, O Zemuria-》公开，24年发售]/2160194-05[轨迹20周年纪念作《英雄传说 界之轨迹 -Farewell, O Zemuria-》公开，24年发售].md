@@ -193,3 +193,37 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">界2资源可能会比较少，但是多一年的话剧本倒是可能会好些，反正竹入现在手里也就这一个活了
 
+
+*****
+
+####  无动于衷  
+##### 6816#       发表于 2024-11-13 16:26
+
+所以最坏的打算就是到明年9月就一个空轨1st是吧 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 6817#       发表于 2024-11-13 16:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">空轨re就看和界轨有没有联系了，还是单纯剧情不动用新技术重做
+
+
+*****
+
+####  maojiashu  
+##### 6818#       发表于 2024-11-13 16:31
+
+这个体量的复刻对于falcom来说就是新作了
+
+低配se和低配ff7re好吧
+
+这么看还就是那个一年一作的法老控
+
+*****
+
+####  a2042312  
+##### 6819#       发表于 2024-11-13 16:32
+
+东迷剧本是谁啊，竹入还是社长。
+

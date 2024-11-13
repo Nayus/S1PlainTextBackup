@@ -9442,3 +9442,15 @@ ps：Luna两年没在b站更新夏季特辑了，怕不是忘号了
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  ViyViy  
+##### 930#       发表于 2024-11-13 13:39
+
+极端点当这两集新增差评的都是右右的话1+2甚至是在2300人的情况下做到了实际84.8的比例，已经是截至目前本季最高了
+
+就当这次来的那60个是真心实地觉得写得不行也有82.7（2400），比第四集低0.7（约16个人）
+
+可以接受其它团或企划的嘿过来捣乱，但是你要涉及右右可不怪我活用统计学了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

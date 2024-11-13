@@ -128,3 +128,23 @@
 
 吸猫这事原来这么快乐啊<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  キュアリズム  
+##### 2597#       发表于 2024-11-12 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66679635&amp;ptid=2162354" target="_blank">猫屋敷ゆき 发表于 2024-11-12 15:14</a>
+
+吸猫这事原来这么快乐啊</blockquote>
+没错，是很快乐的<img src="https://static.saraba1st.com/image/smiley/face/86.gif" referrerpolicy="no-referrer">
+
+所以我有一计，你们两只都进我这个饥渴难耐……不是，特地为你们准备的笼子来<img src="https://static.saraba1st.com/image/smiley/face/129.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  成田良美  
+##### 2598#       发表于 2024-11-13 14:06
+
+女同样板戏是什么？<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+

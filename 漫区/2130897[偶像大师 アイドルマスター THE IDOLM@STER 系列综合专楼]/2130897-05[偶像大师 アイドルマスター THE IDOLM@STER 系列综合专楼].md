@@ -419,3 +419,13 @@ LU5A8{X_4SX(KIJJP2$2)1H.png
 
 <img src="https://img.saraba1st.com/forum/202411/13/210031uv75zjcz2gw3wm27.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Alleyht  
+##### 6665#       发表于 2024-11-14 00:26
+
+SCSP1周年当日这首新歌，感觉没有前面那首全体曲耐听啊<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+祝福你闪能活到二周年吧<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

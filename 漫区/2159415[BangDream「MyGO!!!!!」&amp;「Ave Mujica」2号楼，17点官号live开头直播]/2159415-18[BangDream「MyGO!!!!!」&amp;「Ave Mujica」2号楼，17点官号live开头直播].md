@@ -10114,3 +10114,11 @@ AM动画怕不是就是当做十周年动画端上来给硬拖到明年一月，
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">都開武道館了還不全開，幽默
 
+
+*****
+
+####  Nomind96  
+##### 26000#       发表于 2024-11-13 22:32
+
+比起开不全，选周一开更恶心
+

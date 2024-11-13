@@ -1593,3 +1593,11 @@ https://github.com/vladmikhalin/shadPS4/tree/fix-bb-lighting复制代码
 
 要是能正常通关且有修改器的话，我就把PS4擦干净封箱了。整十年了。
 
+
+*****
+
+####  leviathan  
+##### 154#       发表于 2024-11-13 11:32
+
+steam就能模拟ps4？
+

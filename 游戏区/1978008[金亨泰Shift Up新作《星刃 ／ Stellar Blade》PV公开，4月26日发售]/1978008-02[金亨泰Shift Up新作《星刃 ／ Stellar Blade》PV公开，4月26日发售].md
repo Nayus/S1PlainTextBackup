@@ -303,3 +303,24 @@ PSSR似乎会在某些场合造成画面底部有一条抽搐的黑色像素
 
 [论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  爱护动物抓根宝  
+##### 1791#       发表于 2024-11-13 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66685278&amp;ptid=1978008" target="_blank">我是谁无名氏 发表于 2024-11-13 09:46</a>
+买了个日版进去玩了半小时，觉得有点难是正常的吗，感觉小怪伤害都很高
+
+论坛助手,iPad ...</blockquote>
+早期关卡一股迫真破产魂like的味，后面升级起来就是低难度arpg了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我是谁无名氏  
+##### 1792#       发表于 2024-11-13 10:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">原来是这样，只能慢慢推了，还没到能爽起来的阶段
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

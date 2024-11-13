@@ -383,3 +383,13 @@ message text=愚かな初星の連中は、この白草四音が\n始末して�
 
 制作人的一生是看黑井狂拽酷炫一番 然后把小偶像送来 我都变成老师你tm还在追我
 
+
+*****
+
+####  Ask_10A  
+##### 6663#       发表于 2024-11-13 20:40
+
+【【浅谈】偶像大师闪耀色彩第二季 第二期【因为是秋季所以没能去海边！】】 [https://www.bilibili.com/video/BV19VUPY8ECq](https://www.bilibili.com/video/BV19VUPY8ECq)
+
+牛牛牛更新力
+

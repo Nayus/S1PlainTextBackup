@@ -1932,3 +1932,79 @@ FGO宝具动画喜欢玩机战的梗，但是3D机设做的和shit一样...要�
 
 直播间有人吐槽虚数大奥笑死我了
 
+
+*****
+
+####  Jamaisvu  
+##### 15107#       发表于 2024-11-13 18:29
+
+<img src="https://img.saraba1st.com/forum/202411/13/182740abjwbx5qzxzmdmrm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241113_182731.jpg</strong> (83.16 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-11-13 18:27 上传
+
+这个芬恩好美啊！情人节礼装卡面也比本体好看，男鲭界南丁并感...
+
+*****
+
+####  Jamaisvu  
+##### 15108#       发表于 2024-11-13 18:29
+
+ 本帖最后由 Jamaisvu 于 2024-11-13 18:31 编辑 
+
+新五星是图坦卡蒙？
+
+*****
+
+####  angelooo  
+##### 15109#       发表于 2024-11-13 18:31
+
+这个图坦卡门保住下面没有啊
+
+*****
+
+####  xiongxingyu  
+##### 15110#       发表于 2024-11-13 18:32
+
+恭喜图坦卡门保住了鸡儿，虽然变成伪娘了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xiongxingyu  
+##### 15111#       发表于 2024-11-13 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66689644&amp;ptid=2084912" target="_blank">angelooo 发表于 2024-11-13 18:31</a>
+
+这个图坦卡门保住下面没有啊</blockquote>
+川澄说的是少年法老，而且就算你月再奔放，也不敢让幼女穿这种和没穿一样的服装上卡面的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 15112#       发表于 2024-11-13 18:35
+
+转自百度百科：
+
+图坦卡蒙（Tutankhamun，埃及语“阿蒙的形象”之意），大约出生于公元前1341年。是古埃及新王国时期第十八王朝的第十二位法老，在位时间约为公元前1333年到公元前1324年左右。他并不是古埃及历史上功绩最为卓著的法老，但却是最为闻名的埃及法老王。他9岁君临天下，19岁暴亡，死因曾一度悬于谋杀，因此他的周身都被神秘色彩所笼罩。
+
+英年早逝，这么一看正太形象还挺符合。
+
+*****
+
+####  angelooo  
+##### 15113#       发表于 2024-11-13 18:36
+
+因为小牛混到了改模而不少人心心念念的拉二没有，一群人开始给侍奉定型文填拉二名字了笑喷
+
+*****
+
+####  khxooo  
+##### 15114#       发表于 2024-11-13 18:38
+
+拉二因发言过激而被禁言<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

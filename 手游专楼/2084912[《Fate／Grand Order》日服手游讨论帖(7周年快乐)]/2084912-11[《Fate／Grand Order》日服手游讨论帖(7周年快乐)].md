@@ -2262,3 +2262,11 @@ FGO宝具动画喜欢玩机战的梗，但是3D机设做的和shit一样...要�
 什么 1张护符直接出了</blockquote>
 不愧是狗萌新 欧羡慕
 
+
+*****
+
+####  khxooo  
+##### 15135#       发表于 2024-11-13 20:08
+
+他们终于愿意让玩家一开始就能将送的从者练满了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

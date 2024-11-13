@@ -348,3 +348,17 @@ PlayStation Japan发了个新的日版PV，确定尼尔联动是付费DLC了
 
 一直在等这个游戏打折，黑五来个打折吧
 
+
+*****
+
+####  十六夜pad长  
+##### 1795#       发表于 2024-11-13 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66685278&amp;ptid=1978008" target="_blank">我是谁无名氏 发表于 2024-11-13 09:46</a>
+买了个日版进去玩了半小时，觉得有点难是正常的吗，感觉小怪伤害都很高
+
+论坛助手,iPad ...</blockquote>
+不开玩笑，某种意义上第一个boss是最难的，难在自机性能堪忧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PHB110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

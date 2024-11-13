@@ -128,3 +128,35 @@
 
 我怎么感觉法老控还没想好/写好共和国篇的结局
 
+
+*****
+
+####  ravend233  
+##### 6810#       发表于 2024-11-13 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66687907&amp;ptid=2160194" target="_blank">hayate0079 发表于 2024-11-13 15:16</a>
+
+我怎么感觉法老控还没想好/写好共和国篇的结局</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大纲应该是有的，但是具体剧情考虑界1这剧本的粗糙程度，肯定还没开工
+
+*****
+
+####  卢迪克  
+##### 6811#       发表于 2024-11-13 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66687632&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-11-13 14:41</a>
+
+说明年东迷界2双开的，我不觉得和东迷同年发售是什么好事，界2一定会比界1更敷衍 ...</blockquote>
+26年9月 京轨 复数 新作 目标=不一定能出界2
+
+
+*****
+
+####  hayate0079  
+##### 6812#       发表于 2024-11-13 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66687923&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-11-13 15:18</a>
+
+大纲应该是有的，但是具体剧情考虑界1这剧本的粗糙程度，肯定还没开工</blockquote>
+还是让法老控慢慢写吧，再来黎2这样的确实吃不消
+

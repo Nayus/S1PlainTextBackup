@@ -1349,3 +1349,16 @@ oo是贪污吗，一般这种情况肯定是有一条贪污链，所以即使明
 
 —— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  动力装甲  
+##### 125#       发表于 2024-11-13 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66681902&amp;ptid=2206438" target="_blank">安琪拉之歌 发表于 2024-11-12 19:26</a>
+
+北欧国家人口也在往葡萄牙之类的国家迁，北欧四国没一个人口增长的。
+
+富裕是卖资源，人少。</blockquote>
+中国气候整体都差，要么夏天热要么冬天冷，没有像欧洲那样不冷不热地区
+

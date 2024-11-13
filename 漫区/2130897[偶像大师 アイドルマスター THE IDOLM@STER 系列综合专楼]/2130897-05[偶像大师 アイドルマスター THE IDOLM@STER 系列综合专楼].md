@@ -429,3 +429,11 @@ SCSP1周年当日这首新歌，感觉没有前面那首全体曲耐听啊<img s
 
 祝福你闪能活到二周年吧<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  游蜓  
+##### 6666#       发表于 2024-11-14 00:53
+
+星耀舞台还没玩完，亚夜和心白最后干啥去了，怎么不见土豆加人（
+

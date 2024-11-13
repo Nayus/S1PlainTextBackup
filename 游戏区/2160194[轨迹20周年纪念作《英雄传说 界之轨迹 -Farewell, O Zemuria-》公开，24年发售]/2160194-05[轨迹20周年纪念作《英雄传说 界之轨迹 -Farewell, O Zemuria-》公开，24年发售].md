@@ -391,3 +391,23 @@ fc1f4134970a304e899c51df97c8a786c9175c5d(1).jpg
 
 这么自信啊法老控，一个重置吃一年
 
+
+*****
+
+####  卢迪克  
+##### 6835#       发表于 2024-11-13 17:44
+
+<blockquote>黒鈴ミヲ 发表于 2024-11-13 17:37
+这么自信啊法老控，一个重置吃一年</blockquote>
+
+2025也出美版，大概率同步，来自老任财报ppt
+
+<img src="https://img.saraba1st.com/forum/202411/13/174427i82zqa8khpqytkgt.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20241113_174414.png</strong> (59.3 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-11-13 17:44 上传
+

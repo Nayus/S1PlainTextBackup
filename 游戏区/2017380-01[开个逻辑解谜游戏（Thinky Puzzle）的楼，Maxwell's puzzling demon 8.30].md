@@ -50,3 +50,16 @@ Maxwell's puzzling demon全通了，steam时长150h，但实际上远不止。�
 
 不过我觉得如果玩解谜游戏的话，卡关是不可避免的，也是乐趣的一部分，真的想要避免卡关的话得去玩zach like啦，即使是很困难的谜题也不会毫无思路。如果更喜欢以大量的机制（我更喜欢叫ruleset）堆积起来的游戏，试试bean and nothingness和leaf's odyssey，而且这两个游戏没有跨关卡联动:)
 
+
+*****
+
+####  Rincewind  
+##### 228#       发表于 2024-11-13 08:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66684366&amp;ptid=2017380" target="_blank">BRAVADO 发表于 2024-11-13 03:28</a>
+我也不是很喜欢大量的跨关卡联动
+
+不过我觉得如果玩解谜游戏的话，卡关是不可避免的，也是乐趣的一部分， ...</blockquote>
+倒不是不喜欢卡关，而是不喜欢推箱子和画线经常出现的那种卡手的感觉……就，你把箱子推到这个位置，结果堵了不能到那边去了，这种。
+bean在愿望单了，等促销吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

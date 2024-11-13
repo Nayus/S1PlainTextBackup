@@ -171,3 +171,25 @@
 26年9月 京轨 复数 新作 目标=不一定能出界2</blockquote>
 咚了等三年也很难绷啊，左右都是死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  maojiashu  
+##### 6814#       发表于 2024-11-13 16:17
+
+空re也不算空降吧 老早就有投票了 去年就有风声了
+
+只是没想到迷城也到26年去了 本来想着空re毕竟重制版 剧情是写好的 和东迷一起开发问题不大
+
+但现在是26年 界2和迷城双开 那就不好说了
+
+界2别烂啊 
+
+
+*****
+
+####  ravend233  
+##### 6815#       发表于 2024-11-13 16:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">界2资源可能会比较少，但是多一年的话剧本倒是可能会好些，反正竹入现在手里也就这一个活了
+

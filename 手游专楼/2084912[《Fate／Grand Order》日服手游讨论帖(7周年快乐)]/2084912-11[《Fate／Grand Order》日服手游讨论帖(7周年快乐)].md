@@ -1870,3 +1870,11 @@ wys总是在大家以为他改性了的时候证明自己<img src="https://stati
 
 看了下box，三十个extra阶的从者挤一个助战位，普通七骑也就四十多个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 15100#       发表于 2024-11-13 16:19
+
+30石头弓凛到手，只能说二爷是对的，那腿真的够吸引人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

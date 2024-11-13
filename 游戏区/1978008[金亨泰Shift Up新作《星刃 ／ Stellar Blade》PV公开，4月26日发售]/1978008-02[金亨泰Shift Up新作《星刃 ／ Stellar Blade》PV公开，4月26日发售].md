@@ -362,3 +362,11 @@ PlayStation Japan发了个新的日版PV，确定尼尔联动是付费DLC了
 
 —— 来自 OnePlus PHB110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  霖岚_  
+##### 1796#       发表于 2024-11-13 15:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">20号那么晚，二周目打一半没动力就弃了好久，看到时候再捡起来打白金好了
+

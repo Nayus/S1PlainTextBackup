@@ -160,3 +160,14 @@
 大纲应该是有的，但是具体剧情考虑界1这剧本的粗糙程度，肯定还没开工</blockquote>
 还是让法老控慢慢写吧，再来黎2这样的确实吃不消
 
+
+*****
+
+####  一步成诗  
+##### 6813#       发表于 2024-11-13 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66687924&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-11-13 15:18</a>
+
+26年9月 京轨 复数 新作 目标=不一定能出界2</blockquote>
+咚了等三年也很难绷啊，左右都是死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -2046,3 +2046,17 @@ FGO宝具动画喜欢玩机战的梗，但是3D机设做的和shit一样...要�
 我就不一样了，我只关心CV是哪个，会不会打牌
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 15118#       发表于 2024-11-13 18:58
+
+<blockquote>TheLoof 发表于 2024-11-13 18:46
+我就不一样了，我只关心CV是哪个，会不会打牌
+
+图坦卡蒙都拉出来了，不玩点梗实在是浪费
+
+</blockquote>
+发型太普通了，不过肤色和发色挺像马利克的...
+

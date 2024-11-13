@@ -393,3 +393,29 @@ message text=愚かな初星の連中は、この白草四音が\n始末して�
 
 牛牛牛更新力
 
+
+*****
+
+####  Ask_10A  
+##### 6664#       发表于 2024-11-13 21:00
+
+给玻璃钢逗笑了
+
+LU5A8{X_4SX(KIJJP2$2)1H.png
+(71.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-13 21:00 上传
+
+<img src="https://img.saraba1st.com/forum/202411/13/210028zszm99n00onma0sr.png" referrerpolicy="no-referrer">
+
+1[9VT6C%6N{IQT85U_8IQG6.png
+(45.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-13 21:00 上传
+
+<img src="https://img.saraba1st.com/forum/202411/13/210031uv75zjcz2gw3wm27.png" referrerpolicy="no-referrer">
+

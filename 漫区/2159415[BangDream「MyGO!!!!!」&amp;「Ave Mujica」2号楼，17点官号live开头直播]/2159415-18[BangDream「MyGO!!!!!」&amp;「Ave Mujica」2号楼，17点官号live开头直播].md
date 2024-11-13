@@ -10000,3 +10000,14 @@ wsd在令人失望这一点上从不令人失望<img src="https://static.saraba1
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  PDQ4  
+##### 25988#       发表于 2024-11-13 14:35
+
+推特下面清一色骂的，这就是wsd啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你邦十周年别真想用鸡动画糊弄过去吧
+现在除了每个团都有新衣服没半点消息
+

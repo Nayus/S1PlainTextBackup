@@ -1380,3 +1380,13 @@ oo是贪污吗，一般这种情况肯定是有一条贪污链，所以即使明
 
 半岛花了200年，不同势力不约而同的使劲，硬把胡山变成民族祖坟，你是今天朝鲜人你会怎么考虑？甭管哈耶克还是凯恩斯，这就是一个自然的历史进程
 
+
+*****
+
+####  无敌可爱猫  
+##### 127#       发表于 2024-11-13 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66685106&amp;ptid=2206438" target="_blank">tomatoKnight 发表于 2024-11-13 09:27</a>
+朝鲜王国后期开始的，早年旧资料里长白山被朝鲜人叫胡山，后来不知怎么回事就改成朝鲜众山之祖，熊女山头 ...</blockquote>
+最新研究资料朝鲜民族的神山白头山在朝鲜境内是另外一座山，明朝的地图上都标注的很清楚和长白山不是一座山，去汉字化后朝鲜认错山了，然后新中国也没去考究以为他们说的就是长白山，属于是文盲乱认祖宗搞出来的乌龙<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

@@ -2008,3 +2008,41 @@ FGO宝具动画喜欢玩机战的梗，但是3D机设做的和shit一样...要�
 
 拉二因发言过激而被禁言<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 15115#       发表于 2024-11-13 18:43
+
+<blockquote>angelooo 发表于 2024-11-13 18:36
+因为小牛混到了改模而不少人心心念念的拉二没有，一群人开始给侍奉定型文填拉二名字了笑喷 ...</blockquote>
+实装以后，我成为了某个职介的五星。
+
+然而，举手投足间犹如开服时的动作设计却从未改变。
+
+身为法老的奥兹曼迪斯并没有获得改模的待遇，
+
+能够拥有全新模组和动画的，是阿斯忒里俄斯这头怪物。
+
+那么，能推出的结论就只有一个了。
+
+【奥兹曼迪斯，应当是侍奉阿斯忒里俄斯的存在。】
+
+*****
+
+####  johnkamsar  
+##### 15116#       发表于 2024-11-13 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66689668&amp;ptid=2084912" target="_blank">xiongxingyu 发表于 2024-11-13 18:34</a>
+
+川澄说的是少年法老，而且就算你月再奔放，也不敢让幼女穿这种和没穿一样的服装上卡面的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">所多玛怎么解释？
+
+*****
+
+####  TheLoof  
+##### 15117#       发表于 2024-11-13 18:46
+
+我就不一样了，我只关心CV是哪个，会不会打牌
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

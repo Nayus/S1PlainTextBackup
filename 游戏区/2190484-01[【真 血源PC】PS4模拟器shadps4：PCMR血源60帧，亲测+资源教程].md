@@ -1583,3 +1583,13 @@ https://github.com/vladmikhalin/shadPS4/tree/fix-bb-lighting复制代码
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  nilren  
+##### 153#       发表于 2024-11-13 10:16
+
+昨晚看PS4还在电视旁白吃灰，想起来B站说模拟器已经能正常通关了？？？过来问问是这样的吗？？
+
+要是能正常通关且有修改器的话，我就把PS4擦干净封箱了。整十年了。
+

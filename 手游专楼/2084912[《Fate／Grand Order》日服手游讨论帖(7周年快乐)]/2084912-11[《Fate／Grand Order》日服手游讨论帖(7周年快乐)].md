@@ -2110,3 +2110,105 @@ FGO宝具动画喜欢玩机战的梗，但是3D机设做的和shit一样...要�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">什么 1张护符直接出了
 
+
+*****
+
+####  Jamaisvu  
+##### 15124#       发表于 2024-11-13 19:15
+
+<blockquote>angelooo 发表于 2024-11-13 19:10
+不是，你这个单体大英雄怎么还有战续啊
+
+你什么cost我什么cost.jpg</blockquote>
+宝具倍率也差的远呢，感觉可以不开三技能，当个50自充的自爆拐？一技能buff完队友，开宝具打个单体敌人然后下场给星星？感觉有点玩具啊...
+
+*****
+
+####  exiaexa  
+##### 15125#       发表于 2024-11-13 19:17
+
+就因为这个战续
+
+宝具都变成普通倍率了，wys该不会觉得打两发比炸一炮有用吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  乾理央  
+##### 15126#       发表于 2024-11-13 19:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">学姐：来了来了，听说我多了个队友
+
+*****
+
+####  alucardcz  
+##### 15127#       发表于 2024-11-13 19:19
+
+又锁卡面。。。
+
+
+*****
+
+####  khxooo  
+##### 15128#       发表于 2024-11-13 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66689884&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-11-13 19:14</a>
+
+什么 1张护符直接出了</blockquote>
+欧，羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 15129#       发表于 2024-11-13 19:20
+
+梵高满破右下角就是宝具里那个萝卜吧
+
+*****
+
+####  Jamaisvu  
+##### 15130#       发表于 2024-11-13 19:23
+
+<blockquote>angelooo 发表于 2024-11-13 19:20
+梵高满破右下角就是宝具里那个萝卜吧</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202411/13/192256l492ycnb02opnnzo.png" referrerpolicy="no-referrer">
+
+<strong>1731496969218.png</strong> (126.76 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-11-13 19:22 上传
+
+没错，就是下面这破玩意。
+
+<img src="https://img.saraba1st.com/forum/202411/13/192239dqp15g1ddgmxgmqx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241113_192157.jpg</strong> (194.95 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-11-13 19:22 上传
+
+<img src="https://img.saraba1st.com/forum/202411/13/192239bjmemi5wu4lwugrr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241113_192209.jpg</strong> (233.58 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-11-13 19:22 上传
+
+看着跟龙珠里皮拉夫三人组开的机器人似的...
+
+*****
+
+####  Jamaisvu  
+##### 15131#       发表于 2024-11-13 19:25
+
+图坦卡蒙灵基三、三技能和宝具名称都锁住了，八成藏了大活，可能缝了什么了奇怪的东西。
+
+考虑到脚本是虚数海战那位，估计是克苏鲁系的角色，奈亚分灵黑法老之类的？
+

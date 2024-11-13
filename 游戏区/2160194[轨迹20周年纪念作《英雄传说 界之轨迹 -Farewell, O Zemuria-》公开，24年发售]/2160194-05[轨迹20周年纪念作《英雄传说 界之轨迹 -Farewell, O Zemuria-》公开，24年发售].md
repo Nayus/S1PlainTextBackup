@@ -441,3 +441,37 @@ fc和sc是隔了1年9个月
 
 界2要是还是9月发售是不是能算最长断章了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 6839#       发表于 2024-11-13 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66690023&amp;ptid=2160194" target="_blank">ouyang菌 发表于 2024-11-13 19:37</a>
+闪12和闪34都只隔了一年吧
+
+fc和sc是隔了1年9个月
+
+界2要是还是9月发售是不是能算最长断章了</blockquote>
+那得看你觉得闪2到闪3算不算一种断章（<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  CAFc  
+##### 6840#       发表于 2024-11-13 19:50
+
+除非空re包含了fc+sc，不然这两头都是断章的商法实在想不通，新入坑的玩完fc想玩sc只能去找改版或者evo，正作直接断章两年
+
+—— 来自 HUAWEI ABR-AL60, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  卢迪克  
+##### 6841#       发表于 2024-11-13 19:55
+
+电击上个月说几号要发近藤采访？
+

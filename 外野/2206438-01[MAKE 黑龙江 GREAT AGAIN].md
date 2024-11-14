@@ -1508,3 +1508,15 @@ oo是贪污吗，一般这种情况肯定是有一条贪污链，所以即使明
 首先农业，全球变暖农作物不适合生长，虫害增多，雨水增多 ...</blockquote>
 哥们儿你准备5年内给全球升几度啊？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真龙皇法王兽  
+##### 139#       发表于 2024-11-14 15:52
+
+ 本帖最后由 真龙皇法王兽 于 2024-11-14 15:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66694126&amp;ptid=2206438" target="_blank">动力装甲 发表于 2024-11-14 12:05</a>
+我们那炎热潮湿，最适合动物居住波士顿富人区那些人不会选地方，苦寒之地有什么呆的 ...</blockquote>
+你要这么嘴硬也行，反正人口流动数据反映的事实是另一回事
+能跟黑龙江比苦寒的也就西伯利亚了，同纬度的其他地区可没有这么寒冷
+

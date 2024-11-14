@@ -10159,3 +10159,18 @@ AM动画怕不是就是当做十周年动画端上来给硬拖到明年一月，
 哈哈，wsd无敌了，b站那个收藏集只卖了版权没要抽成，内容部亏损</blockquote>
 这两张图找不到哪里说有没有抽成
 
+
+*****
+
+####  akiomn  
+##### 26003#       发表于 2024-11-14 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66696635&amp;ptid=2159415" target="_blank">纯良水鬼 发表于 2024-11-14 17:38</a>
+这两张图找不到哪里说有没有抽成</blockquote>
+内容部关于ip授权的描述是
+名称由“数字内容部门”更改为“内容部门”，旨在不局限于数字游戏，致力于创造和拓展IP。
+Bushiroad Works株式会社成立一周年，目标是通过出版业务创造原创IP。
+Bushiroad Works株式会社于2023年7月成立，专注于原创IP的创作，已建立完善的出版体系，刊行量稳步增长。
+在哔哩哔哩(bilibili)上发布数字商品
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">z8翻译的，有没有买断抽成没提，不过就这吊样也很幽默了，居然还能亏损
+

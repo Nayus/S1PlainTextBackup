@@ -1421,3 +1421,38 @@ oo是贪污吗，一般这种情况肯定是有一条贪污链，所以即使明
 同纬度毛子/外蒙/北海道出生率多少来着</blockquote>
 北海道也好不到哪去的，铁道年年有新增废线或者区间停运
 
+
+*****
+
+####  密特里奈斯  
+##### 131#       发表于 2024-11-14 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66667042&amp;ptid=2206438" target="_blank">无敌可爱猫 发表于 2024-11-10 23:18</a>
+
+发展旅游业怎么样，找点宋徽宗的故居</blockquote>
+现在已经是个景点了
+
+*****
+
+####  小木曽雪菜  
+##### 132#       发表于 2024-11-14 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66666486&amp;ptid=2206438" target="_blank">1303312165 发表于 2024-11-10 22:08</a>
+
+同纬度毛子/外蒙/北海道出生率多少来着</blockquote>
+北海道总共500w人，札幌就200w，人口分布极度不平衡
+
+然后出生率1.06，全国倒数第二，顺带一提倒数第一是东京都0.99<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  密特里奈斯  
+##### 133#       发表于 2024-11-14 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66667254&amp;ptid=2206438" target="_blank">收缩压 发表于 2024-11-10 23:46</a>
+
+不到流浪地球的地步谁愿意常年生活在地下，北欧高福利自杀率这么高还不是因为缺少阳光，年轻人都往南欧跑 ...</blockquote>
+要真按他的说法，可以做透明大天幕
+
+问题是也就顶层有阳光……
+

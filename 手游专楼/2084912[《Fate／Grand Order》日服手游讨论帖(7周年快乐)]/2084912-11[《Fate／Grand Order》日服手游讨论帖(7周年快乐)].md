@@ -2285,3 +2285,13 @@ FGO宝具动画喜欢玩机战的梗，但是3D机设做的和shit一样...要�
  ...</blockquote>
 阿草没自带战续也是普通红单体倍率吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  格林卡罗尔  
+##### 15137#       发表于 2024-11-14 10:30
+
+我还在想怎么2024年还在说什么普通倍率，原来是阿拉什特殊oc
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -739,3 +739,11 @@ fc和sc是隔了1年9个月
 
 那可是一年一作都要献祭垫档期的公司<img src="https://static.saraba1st.com/image/smiley/carton2017/418.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  宛若青空  
+##### 6869#       发表于 2024-11-14 14:42
+
+京迷又要在26财年又要蹭NS2第一年新机效应的话，发售时间可能定在2025.12-2026.3
+

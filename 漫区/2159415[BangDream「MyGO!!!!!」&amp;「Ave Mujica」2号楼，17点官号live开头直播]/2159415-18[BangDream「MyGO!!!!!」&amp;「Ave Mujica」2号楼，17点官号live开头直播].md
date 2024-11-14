@@ -10203,3 +10203,18 @@ Bushiroad Works株式会社于2023年7月成立，专注于原创IP的创作，�
 游戏应该是在开发单机游戏，以前提过，而单机游戏就是个无底洞
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果是小品级的单机，说不定能靠钓凯子有点回报，要是传统3A那种，哈哈，祝wsd好运咯
 
+
+*****
+
+####  哈曼的YY  
+##### 26007#       发表于 2024-11-14 19:01
+
+是要做邦邦的单机游戏？
+
+*****
+
+####  星天观测  
+##### 26008#       发表于 2024-11-14 19:04
+
+自己不确定的东西就别乱下结论，石剑泥楼的人太多了，我已经在有些群看到s1说b站小垃圾没要抽成了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

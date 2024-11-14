@@ -836,3 +836,15 @@ fc和sc是隔了1年9个月
 
 要不这样，界轨世界重置后的起点是空re，然后从空re一路重置到界1，每一部都加点暗示世界被重置过的新剧情，这样既能靠空re吸引新玩家掉坑里又能让老玩家再玩一遍重制版<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  隔壁老黄  
+##### 6880#       发表于 2024-11-14 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66696659&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-11-14 17:41</a>
+你法肯定指望空R大卖的，从公布就一直开绿灯，tgs都有在播pv，不成功估计你轨要被打进小黑屋了 ...</blockquote>
+从pv来看我实在看不出有啥诚意
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+

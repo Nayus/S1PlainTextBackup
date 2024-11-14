@@ -860,3 +860,15 @@ fc和sc是隔了1年9个月
 —— 来自 鹅球 v3.3.92-alpha</blockquote>
 毕竟是赶出来的PV，还是可以期待下经过打磨后的正式版的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 6882#       发表于 2024-11-14 19:27
+
+<blockquote>隔壁老黄 发表于 2024-11-14 18:55
+从pv来看我实在看不出有啥诚意
+
+—— 来自 鹅球 v3.3.92-alpha</blockquote>
+你法也就这个水平吧
+

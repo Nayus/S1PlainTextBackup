@@ -117,3 +117,23 @@ sd缺点就是太重太大了，不过出差旅游携带还是很不错的
 
 你想玩的能不能玩，比起道听途说，首先去看看protondb比什么都强，越是热门越该这样，反而冷门才得自己研究行不行
 
+
+*****
+
+####  银色天空  
+##### 78#       发表于 2024-11-14 22:32
+
+确实不能算好用，时不时的黑屏卡死，经常唤醒出现问题。虽然用惯了电子产品也能接受，但想想花了四千多大洋买这样一台游戏专用机也是挺冤种的
+
+*****
+
+####  Kojimaru  
+##### 79#       发表于 2024-11-14 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66653964&amp;ptid=2206237" target="_blank">wondor1111 发表于 2024-11-9 07:25</a>
+
+我真见过很多在地铁飞机上拿笔记本办公的，办公都可以别说随便打打游戏了。为啥没人轻薄本打游戏，只能说 ...</blockquote>
+想多了，ns跟sd比就是个第一方启动器。
+
+4399不都是steam版本更新快模组多社区支援好，价格还便宜<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">除非你是忠诚任豚，数字游戏ns比steam多。
+

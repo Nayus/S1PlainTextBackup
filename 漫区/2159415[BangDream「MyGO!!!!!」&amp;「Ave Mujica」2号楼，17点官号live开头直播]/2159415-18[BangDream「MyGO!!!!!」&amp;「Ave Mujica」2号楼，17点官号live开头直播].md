@@ -10361,3 +10361,18 @@ md（周边）和邦邦都是稳步上升的，
 
 akane追星成功
 
+
+*****
+
+####  PDQ4  
+##### 26021#       发表于 2024-11-14 22:28
+
+好好好，下周有鸡，不知道要宣什么，讲先行吗？<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 26022#       发表于 2024-11-14 22:29
+
+应该是4th的谷，现场看看实物
+

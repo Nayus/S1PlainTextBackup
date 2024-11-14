@@ -920,3 +920,14 @@ fc和sc是隔了1年9个月
 
 那是不是界1之后范恩又失败了，世界重置，转年9月空rere发售？
 
+
+*****
+
+####  妄想中毒  
+##### 6887#       发表于 2024-11-14 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66697405&amp;ptid=2160194" target="_blank">正田崇 发表于 2024-11-14 19:46</a>
+
+那是不是界1之后范恩又失败了，世界重置，转年9月空rere发售？</blockquote>
+那没必要，都轮回过一次了肯定出现新路线啊，到那时候玩家们就能玩到界2辣<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

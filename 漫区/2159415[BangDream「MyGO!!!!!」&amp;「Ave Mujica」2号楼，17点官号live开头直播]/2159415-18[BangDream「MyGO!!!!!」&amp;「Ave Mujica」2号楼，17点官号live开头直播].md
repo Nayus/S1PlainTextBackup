@@ -10174,3 +10174,13 @@ Bushiroad Works株式会社于2023年7月成立，专注于原创IP的创作，�
 在哔哩哔哩(bilibili)上发布数字商品
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">z8翻译的，有没有买断抽成没提，不过就这吊样也很幽默了，居然还能亏损
 
+
+*****
+
+####  凉良  
+##### 26004#       发表于 2024-11-14 18:02
+
+不就帖子里有人瞎几把扯了嘴 一问一个我也是听说
+
+内容部出问题的都点名手游和单机了
+

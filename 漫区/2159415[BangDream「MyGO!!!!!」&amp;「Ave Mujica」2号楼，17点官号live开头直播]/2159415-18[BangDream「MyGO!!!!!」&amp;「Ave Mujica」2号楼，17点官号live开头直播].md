@@ -10192,3 +10192,14 @@ Bushiroad Works株式会社于2023年7月成立，专注于原创IP的创作，�
 
 这是整体季度有赤字，单凭这个说是某一项亏的没道理呀，后面也专门说了是游戏开发先期投入太大了，所以一直赤字
 
+
+*****
+
+####  akiomn  
+##### 26006#       发表于 2024-11-14 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66696828&amp;ptid=2159415" target="_blank">滑稽Captain 发表于 2024-11-14 18:10</a>
+这是整体季度有赤字，单凭这个说是某一项亏的没道理呀，后面也专门说了是游戏开发先期投入太大了，所以一直 ...</blockquote>
+游戏应该是在开发单机游戏，以前提过，而单机游戏就是个无底洞
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果是小品级的单机，说不定能靠钓凯子有点回报，要是传统3A那种，哈哈，祝wsd好运咯
+

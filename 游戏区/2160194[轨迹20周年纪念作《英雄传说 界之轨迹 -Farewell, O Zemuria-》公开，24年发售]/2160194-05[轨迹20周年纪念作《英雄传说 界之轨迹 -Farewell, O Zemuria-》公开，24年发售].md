@@ -820,3 +820,11 @@ fc和sc是隔了1年9个月
 —— ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种冷饭的销量很大程度上是靠名气就是了，FC的剧本本身确实平了
 
+
+*****
+
+####  卢迪克  
+##### 6878#       发表于 2024-11-14 17:41
+
+你法肯定指望空R大卖的，从公布就一直开绿灯，tgs都有在播pv，不成功估计你轨要被打进小黑屋了
+

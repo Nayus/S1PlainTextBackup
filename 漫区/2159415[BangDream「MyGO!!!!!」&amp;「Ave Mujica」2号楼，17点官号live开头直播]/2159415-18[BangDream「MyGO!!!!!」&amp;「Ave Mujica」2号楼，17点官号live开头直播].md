@@ -10148,3 +10148,14 @@ AM动画怕不是就是当做十周年动画端上来给硬拖到明年一月，
 
 <img src="https://img.saraba1st.com/forum/202411/14/172942wpegcdaapbo5okoa.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  纯良水鬼  
+##### 26002#       发表于 2024-11-14 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66696581&amp;ptid=2159415" target="_blank">akiomn 发表于 2024-11-14 17:29</a>
+
+哈哈，wsd无敌了，b站那个收藏集只卖了版权没要抽成，内容部亏损</blockquote>
+这两张图找不到哪里说有没有抽成
+

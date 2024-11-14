@@ -523,3 +523,107 @@ fc和sc是隔了1年9个月
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
 
+
+*****
+
+####  提挈天地  
+##### 6847#       发表于 2024-11-13 19:31
+
+闪3咚等到闪4发售是几年来着<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  ouyang菌  
+##### 6848#       发表于 2024-11-13 19:37
+
+闪12和闪34都只隔了一年吧
+
+fc和sc是隔了1年9个月
+
+界2要是还是9月发售是不是能算最长断章了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 6849#       发表于 2024-11-13 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66690023&amp;ptid=2160194" target="_blank">ouyang菌 发表于 2024-11-13 19:37</a>
+闪12和闪34都只隔了一年吧
+
+fc和sc是隔了1年9个月
+
+界2要是还是9月发售是不是能算最长断章了</blockquote>
+那得看你觉得闪2到闪3算不算一种断章（<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  CAFc  
+##### 6850#       发表于 2024-11-13 19:50
+
+除非空re包含了fc+sc，不然这两头都是断章的商法实在想不通，新入坑的玩完fc想玩sc只能去找改版或者evo，正作直接断章两年
+
+—— 来自 HUAWEI ABR-AL60, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  卢迪克  
+##### 6851#       发表于 2024-11-13 19:55
+
+电击上个月说几号要发近藤采访？
+
+*****
+
+####  hkguty  
+##### 6852#       发表于 2024-11-13 20:12
+
+完蛋了，这样断章还要等两年
+
+*****
+
+####  windtrack  
+##### 6853#       发表于 2024-11-13 20:56
+
+空RE FC到SC应该没啥工作量，没几个新迷宫，红方舟和白翼的建模闪轨都是现成的改改就行
+
+估计明年3月空RE 9月迷城 如果空RE销售还能看 26年就是3月SC 9月界2
+
+不过9月主档让迷城来打感觉差点事
+
+*****
+
+####  哈萨维·诺亚  
+##### 6854#       发表于 2024-11-13 21:17
+
+双断章吗 法社无敌了呀
+
+*****
+
+####  秘银mithril  
+##### 6855#       发表于 2024-11-13 22:42
+
+我倒宁愿界2往后拖呢
+
+再来个黎2真不想玩了
+
+*****
+
+####  隔壁老黄  
+##### 6856#       发表于 2024-11-14 02:28
+
+界轨这结局还算挺成功的，至少不像黎2那样全是骂的，这时候不趁热打铁还等几年？近藤是吃了吗？真这样还不如先出东轨2呢
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+
+*****
+
+####  ravend233  
+##### 6857#       发表于 2024-11-14 08:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">有没有一种可能，界和空re都是拿来给近藤宝贝的东轨2垫档期的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

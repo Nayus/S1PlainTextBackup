@@ -10315,3 +10315,14 @@ md（周边）和邦邦都是稳步上升的，
 
 难道是为了吹逼抬股价？
 
+
+*****
+
+####  凉良  
+##### 26017#       发表于 2024-11-14 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66697730&amp;ptid=2159415" target="_blank">vigada 发表于 2024-11-14 20:39</a>
+
+请问武士道这个财报在哪能看啊？有点好奇全部内容。</blockquote>
+[https://assets.minkabu.jp/news/a ... 114523248.pdf?_gl=1](https://assets.minkabu.jp/news/article_media_content/urn:newsml:tdnet.info:20241114523248/140120241114523248.pdf?_gl=1)*1flfpwr*_gcl_au*MTQ3MDMxNzU5OS4xNzMxNTc1Mjk3*_ga*MTIyMjQ0MjI0Mi4xNzMxNTc1Mjk4*_ga_J697VR50KH*MTczMTU3NTI5Ny4xLjAuMTczMTU3NTI5OS41OC4wLjA.*_fplc*ZXhod1phQWVWWkFZSjVKRExPdXB0SEFDWmxET0xBTlhSbWtmaHN5Q0xHMU9PZCUyQkZmSU1LM1JNRnRXTkNCRW9PMmQwYjNGNE9tQ1J6bnJueGhRZjBtMU9aRVZHZmJoa1M1bEswM21IaXViMDhZOURPZ1pFdzYyWEJLR1ZvUUElM0QlM0Q.*_ga_7VXDWMSGF6*MTczMTU3NTI5Ny4xLjAuMTczMTU3NTI5OS41OC4wLjA.
+

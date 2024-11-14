@@ -80,3 +80,18 @@ SD也能用，我天天以撒不亦乐乎</blockquote>
 
 sd缺点就是太重太大了，不过出差旅游携带还是很不错的
 
+
+*****
+
+####  qqq2142  
+##### 76#       发表于 2024-11-14 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66694229&amp;ptid=2206237" target="_blank">noahhhh 发表于 2024-11-14 12:16</a>
+
+真的假的，我还打算买一台玩以撒</blockquote>
+反正我用我朋友的SD玩以撒
+
+因为我打了MOD 在菜单界面还好 进游戏直接黑屏
+
+虽然游戏正常运行，但是我游戏屏幕依旧是黑的。以撒这游戏不打MOD乐趣少太多还是算了。我给BAN了
+

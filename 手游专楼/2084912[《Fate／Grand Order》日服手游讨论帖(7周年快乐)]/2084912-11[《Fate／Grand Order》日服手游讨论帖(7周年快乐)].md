@@ -2368,3 +2368,13 @@ FGO宝具动画喜欢玩机战的梗，但是3D机设做的和shit一样...要�
 他们终于愿意让玩家一开始就能将送的从者练满了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难道不是因为这次要强制你上吗
 
+
+*****
+
+####  khxooo  
+##### 15145#       发表于 2024-11-14 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66694753&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-11-14 13:23</a>
+难道不是因为这次要强制你上吗</blockquote>
+没记错之前都是给你一两个灵基突破就是的，都是卡你到主线才给你最后一个。
+

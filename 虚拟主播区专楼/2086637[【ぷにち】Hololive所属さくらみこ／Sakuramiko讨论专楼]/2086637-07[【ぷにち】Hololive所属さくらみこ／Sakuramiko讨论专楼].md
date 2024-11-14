@@ -15702,3 +15702,26 @@ live结束大半个月了现在才想起来把MV放街头大屏宣传了海星
 
 而且关键是这么多的行为全加起来如果直接报警按刑事案件侦办的话完全可以把这个人送监狱的然而cover竟然只以一般民事案件名义起诉就放过了，对anti太好了吧？
 
+
+*****
+
+####  holoan  
+##### 10168#         楼主| 发表于 2024-11-14 23:57
+
+<img src="https://img.saraba1st.com/forum/202411/14/235427o1uejxy7lezrbyxs.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (14.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-14 23:54 上传
+
+不是我在吹，今天这事整出来之后有对比了大家才能理解miko真的对粉丝的好，星街会场的纸吹雪在煤炉直接卖到30000日元相当于平时纪念周边亲笔签名明信片的一般转卖价水准而且这无本生意卖出去了相当于赚回来live的票钱还有剩，非常恶劣的行为
+
+*****
+
+####  karastar  
+##### 10169#       发表于 2024-11-15 00:31
+
+纸吹雪是什么，这个和miko对粉丝好的关系在哪啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

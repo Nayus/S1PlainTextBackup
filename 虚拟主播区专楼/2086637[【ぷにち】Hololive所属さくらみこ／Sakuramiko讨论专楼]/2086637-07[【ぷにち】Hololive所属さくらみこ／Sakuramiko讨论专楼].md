@@ -15609,3 +15609,45 @@ live结束大半个月了现在才想起来把MV放街头大屏宣传了海星
 
 当然这些人如果被告了罪名就不是营业妨碍罪这么简单的事了
 
+
+*****
+
+####  holoan  
+##### 10164#         楼主| 发表于 2024-11-14 21:51
+
+再补充一下，实际上这份开示请求可能本人并不一定知道，营业权侵害是以公司名义直接发起的，这时受侵害对象是公司而不是本人，这种情况刚好适用于那些对公司旗下主播的直播活动做出各种直接妨碍行为的情况也就是刚才说过的在公司所属youtube频道的直播间评论区做出迷惑行为的，而如果这些人是在推上发表相关言论的话公司就管不着了就需要本人直接介入了，那也就是前几年看过的各种holomem名义的直接开示请求案例（不管最后成功不成功），miko至今还没有直接做过这种起诉
+
+所以反过来说那些人在直播间捣乱的行为，比起vtb本人来说公司层面更为不可接受，被开示起诉的风险更大，以anti角度来说还不如在推上活动更安全，不知道那些人在直播间捣乱是怎么想的
+
+*****
+
+####  holoan  
+##### 10165#         楼主| 发表于 2024-11-14 23:25
+
+被开示者的补充材料<blockquote>hololive 3962
+[https://bbs.jpnkn.com/test/read.cgi/hololiveneet/1731596461/973](https://bbs.jpnkn.com/test/read.cgi/hololiveneet/1731596461/973)
+
+973 名無しさん@転載禁止 (ﾜｯﾁｮｲW d88e-DgC5)  2024/11/15(金) 00:19:16.42 ID:B4Izg0Qp
+
+開示されたみこアンまとめ
+
+待機所荒らしライブ爆破予告みこアン開示
+[https://i.imgur.com/IKdImjG.jpeg](https://i.imgur.com/IKdImjG.jpeg)
+[https://i.imgur.com/3sIFlVw.jpeg](https://i.imgur.com/3sIFlVw.jpeg)
+
+画像1枚目
+[https://i.imgur.com/eDehBxH.jpeg](https://i.imgur.com/eDehBxH.jpeg)
+
+画像2枚目
+[https://i.imgur.com/witJVye.jpeg](https://i.imgur.com/witJVye.jpeg)
+
+画像2枚目を明瞭にしたもの
+[https://i.imgur.com/9eU4PoH.jpeg](https://i.imgur.com/9eU4PoH.jpeg)
+
+該当レス
+[https://i.imgur.com/TyjUOYm.jpeg](https://i.imgur.com/TyjUOYm.jpeg)</blockquote>
+
+看起来没那么简单的事，公司代理起诉而实际上内容都是本人相关的那看起来应该还是本人授权之后的，主要是没想到这么多恶意言论原来是同一个人犯案
+
+而且关键是这么多的行为全加起来如果直接报警按刑事案件侦办的话完全可以把这个人送监狱的然而cover竟然只以一般民事案件名义起诉，对anti太好了吧？
+

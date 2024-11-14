@@ -647,3 +647,15 @@ fc和sc是隔了1年9个月
 
 早说了你轨现在就随便糊弄资源都在东迷2身上，都不用舅舅说一眼就看出来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  隔壁老黄  
+##### 6860#       发表于 2024-11-14 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66692843&amp;ptid=2160194" target="_blank">fireadol 发表于 2024-11-14 09:43</a>
+法老控对东轨信心这么足吗1代就不觉得是什么特别吸引人的故事，纯靠法老控凯子惯性玩的 ...</blockquote>
+那可是岛国单平台卖了10万，跟闪轨能掰掰手腕的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+

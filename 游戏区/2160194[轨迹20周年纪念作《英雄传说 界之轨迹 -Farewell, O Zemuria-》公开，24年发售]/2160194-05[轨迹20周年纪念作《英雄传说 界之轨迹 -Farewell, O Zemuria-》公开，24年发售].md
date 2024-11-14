@@ -712,3 +712,14 @@ fc和sc是隔了1年9个月
 
 2024-11-14 11:25 上传
 
+
+*****
+
+####  卢迪克  
+##### 6866#       发表于 2024-11-14 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66692996&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-11-14 10:06</a>
+
+早说了你轨现在就随便糊弄资源都在东迷2身上，都不用舅舅说一眼就看出来</blockquote>
+只要还是这个宣发，砸多少资源都是寄<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

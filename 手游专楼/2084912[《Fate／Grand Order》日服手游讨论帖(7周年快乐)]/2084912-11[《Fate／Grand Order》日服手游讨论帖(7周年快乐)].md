@@ -2344,3 +2344,16 @@ FGO宝具动画喜欢玩机战的梗，但是3D机设做的和shit一样...要�
 哪怕学学土方都比现在强，靠背水打高威力第二发
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UNISONIA  
+##### 15143#       发表于 2024-11-14 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66694004&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-11-14 11:51</a>
+
+送的先出去
+
+哪怕学学土方都比现在强，靠背水打高威力第二发</blockquote>
+自爆或者他爆类型里俩特殊高倍率（阿拉什和陈宫）也都是送的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

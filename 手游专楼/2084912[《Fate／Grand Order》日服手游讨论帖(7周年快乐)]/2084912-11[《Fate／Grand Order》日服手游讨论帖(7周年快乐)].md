@@ -2270,3 +2270,18 @@ FGO宝具动画喜欢玩机战的梗，但是3D机设做的和shit一样...要�
 
 他们终于愿意让玩家一开始就能将送的从者练满了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UNISONIA  
+##### 15136#       发表于 2024-11-14 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66689904&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-11-13 19:17</a>
+
+就因为这个战续
+
+宝具都变成普通倍率了，wys该不会觉得打两发比炸一炮有用吧
+
+ ...</blockquote>
+阿草没自带战续也是普通红单体倍率吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

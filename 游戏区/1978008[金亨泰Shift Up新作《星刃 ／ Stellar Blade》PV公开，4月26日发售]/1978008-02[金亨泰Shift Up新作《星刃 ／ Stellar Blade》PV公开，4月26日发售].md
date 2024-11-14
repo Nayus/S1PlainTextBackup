@@ -370,3 +370,15 @@ PlayStation Japan发了个新的日版PV，确定尼尔联动是付费DLC了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">20号那么晚，二周目打一半没动力就弃了好久，看到时候再捡起来打白金好了
 
+
+*****
+
+####  darkangel0224  
+##### 1797#       发表于 2024-11-14 12:49
+
+<blockquote>寂长无星夜 发表于 2024-11-12 23:23
+明年登录PC，我好急</blockquote>
+富哥这是有RTX5090，能跑满4K顶级画质了吗？
+
+比较关心拍照模式像《蜘蛛侠》一样好使吗？
+

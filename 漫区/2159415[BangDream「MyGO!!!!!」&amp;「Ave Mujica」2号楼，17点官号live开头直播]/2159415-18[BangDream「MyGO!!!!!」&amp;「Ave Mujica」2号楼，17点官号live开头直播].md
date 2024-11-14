@@ -10218,3 +10218,15 @@ Bushiroad Works株式会社于2023年7月成立，专注于原创IP的创作，�
 
 自己不确定的东西就别乱下结论，石剑泥楼的人太多了，我已经在有些群看到s1说b站小垃圾没要抽成了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fdf  
+##### 26009#       发表于 2024-11-14 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66696581&amp;ptid=2159415" target="_blank">akiomn 发表于 2024-11-14 17:29</a>
+哈哈，wsd无敌了，b站那个收藏集只卖了版权没要抽成，内容部亏损</blockquote>
+怎么根据这两张图得出没要抽成的结论的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

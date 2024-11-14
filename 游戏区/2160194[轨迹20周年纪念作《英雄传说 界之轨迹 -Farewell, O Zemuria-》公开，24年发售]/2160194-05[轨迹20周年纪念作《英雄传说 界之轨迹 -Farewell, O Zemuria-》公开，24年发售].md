@@ -848,3 +848,15 @@ fc和sc是隔了1年9个月
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
 
+
+*****
+
+####  宛若青空  
+##### 6881#       发表于 2024-11-14 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66697120&amp;ptid=2160194" target="_blank">隔壁老黄 发表于 2024-11-14 18:55</a>
+从pv来看我实在看不出有啥诚意
+
+—— 来自 鹅球 v3.3.92-alpha</blockquote>
+毕竟是赶出来的PV，还是可以期待下经过打磨后的正式版的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

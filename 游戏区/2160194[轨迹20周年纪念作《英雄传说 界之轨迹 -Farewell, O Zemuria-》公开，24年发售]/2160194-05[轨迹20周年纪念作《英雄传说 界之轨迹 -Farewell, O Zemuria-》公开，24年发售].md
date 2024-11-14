@@ -627,3 +627,23 @@ fc和sc是隔了1年9个月
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  a2042312  
+##### 6858#       发表于 2024-11-14 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66692931&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-11-14 09:57</a>
+
+9月靠着素材复用凑合凑合做个界2顶着，东轨看NS2啥时候上市（）
+
+不过应该不会护航，顶多蹭个发售首年的 ...</blockquote>
+就加藤这个老保策略能PS5，NS2双平台同步就谢天谢地了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一步成诗  
+##### 6859#       发表于 2024-11-14 10:06
+
+早说了你轨现在就随便糊弄资源都在东迷2身上，都不用舅舅说一眼就看出来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

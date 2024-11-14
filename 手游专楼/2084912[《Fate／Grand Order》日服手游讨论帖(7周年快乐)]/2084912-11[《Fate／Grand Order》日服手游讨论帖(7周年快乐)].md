@@ -2295,3 +2295,11 @@ FGO宝具动画喜欢玩机战的梗，但是3D机设做的和shit一样...要�
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  quanlix  
+##### 15138#       发表于 2024-11-14 10:44
+
+早上清体力都没多少挂课金礼装的，这池子不行啊
+

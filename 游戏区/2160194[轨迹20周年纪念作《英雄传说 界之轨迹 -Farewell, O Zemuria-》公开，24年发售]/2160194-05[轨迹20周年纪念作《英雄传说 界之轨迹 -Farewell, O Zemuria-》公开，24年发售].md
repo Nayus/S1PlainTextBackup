@@ -669,3 +669,20 @@ fc和sc是隔了1年9个月
 
 空の軌跡1st(仮):11位103
 
+
+*****
+
+####  smdzh2  
+##### 6862#       发表于 2024-11-14 10:42
+
+你法肯定想复刻东迷1的商业奇迹，但东迷2现在还处于企划阶段是什么情况，总不能为了等NS2项目组集体摸鱼吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  华发夜眼[CN]  
+##### 6863#       发表于 2024-11-14 10:44
+
+不是 ，ys献祭，轨迹献祭，东轨也要献祭的吗那法老空是献祭大师吗
+
+—— 来自 samsung SM-S9180, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

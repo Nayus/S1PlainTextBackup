@@ -757,3 +757,18 @@ fc和sc是隔了1年9个月
 
 据说老头环，最终幻想7重制版，生化危机全家桶，暗喻幻想，p3r，破晓传说这些都会移植，你法应该会避开这些冷饭大作的，档期难说，第一年竞争激烈的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  flxgundam  
+##### 6871#       发表于 2024-11-14 16:17
+
+<img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">在专楼里我就直说了，除了老头环，剩下的这些垃圾也配跟法老控打？
+
+*****
+
+####  flxgundam  
+##### 6872#       发表于 2024-11-14 16:20
+
+生化危机这冷饭炒了无数遍了，构不成威胁；ff7重置这坨不可燃垃圾才是真的也配叫游戏？破晓暗喻这种都是剧情让人玩半小时就打瞌睡得构不成战斗力，p3r冷饭也是短板明显
+

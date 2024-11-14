@@ -931,3 +931,26 @@ fc和sc是隔了1年9个月
 那是不是界1之后范恩又失败了，世界重置，转年9月空rere发售？</blockquote>
 那没必要，都轮回过一次了肯定出现新路线啊，到那时候玩家们就能玩到界2辣<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  隔壁老黄  
+##### 6888#       发表于 2024-11-15 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66697301&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-11-14 19:27</a>
+你法也就这个水平吧</blockquote>
+比界轨差远了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+
+*****
+
+####  隔壁老黄  
+##### 6889#       发表于 2024-11-15 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66697236&amp;ptid=2160194" target="_blank">宛若青空 发表于 2024-11-14 19:17</a>
+毕竟是赶出来的PV，还是可以期待下经过打磨后的正式版的</blockquote>
+老实说看建模就知道大概了，这建模质感真的不行，地图也是，我还是喜欢原版那种小而精的建筑风格
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+

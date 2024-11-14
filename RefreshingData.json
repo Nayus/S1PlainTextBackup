@@ -1832,7 +1832,7 @@
     "newtitle": "[星期一的满杯讨论楼]",
     "lastedit": 1731366007,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1904473": {
@@ -8631,10 +8631,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 98691,
+    "totalreply": 98692,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1731622447,
+    "lastedit": 1731625569,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10984,15 +10984,6 @@
     "title": "[同学聚会，聆听中年人的苦闷真是太折磨了]",
     "newtitle": "[同学聚会，聆听中年人的苦闷真是太折磨了]",
     "lastedit": 1730776219,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2204481": {
-    "totalreply": 50,
-    "title": "[急战派朱熹：杀贼不得不急，一才缓,人便一切都忘了]",
-    "newtitle": "[急战派朱熹：杀贼不得不急，一才缓,人便一切都忘了]",
-    "lastedit": 1730415608,
     "category": "外野",
     "active": false,
     "update": false
@@ -16668,10 +16659,10 @@
     "update": false
   },
   "2206727": {
-    "totalreply": 234,
+    "totalreply": 236,
     "title": "[珠海这事是否有可能引入类似“西比拉系统”的预警系统]",
     "newtitle": "[珠海这事是否有可能引入类似“西比拉系统”的预警系统]",
-    "lastedit": 1731620413,
+    "lastedit": 1731625571,
     "category": "外野",
     "active": true,
     "update": false
@@ -16938,10 +16929,10 @@
     "update": false
   },
   "2206787": {
-    "totalreply": 66,
+    "totalreply": 68,
     "title": "[华农兄弟重新养竹鼠了]",
     "newtitle": "[华农兄弟重新养竹鼠了]",
-    "lastedit": 1731624247,
+    "lastedit": 1731625571,
     "category": "外野",
     "active": true,
     "update": false

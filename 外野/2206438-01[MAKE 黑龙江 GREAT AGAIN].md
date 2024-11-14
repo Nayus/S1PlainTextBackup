@@ -1496,3 +1496,15 @@ oo是贪污吗，一般这种情况肯定是有一条贪污链，所以即使明
 
 这几年东北确实春天和秋天变长了 坐标沈阳 今天7-11度 前两天一直15度<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">树叶子都还没掉光 
 
+
+*****
+
+####  天桥夜风  
+##### 138#       发表于 2024-11-14 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66677190&amp;ptid=2206438" target="_blank">动力装甲 发表于 2024-11-12 10:16</a>
+全球变暖对低纬度地区影响最大（也就是关里）
+
+首先农业，全球变暖农作物不适合生长，虫害增多，雨水增多 ...</blockquote>
+哥们儿你准备5年内给全球升几度啊？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

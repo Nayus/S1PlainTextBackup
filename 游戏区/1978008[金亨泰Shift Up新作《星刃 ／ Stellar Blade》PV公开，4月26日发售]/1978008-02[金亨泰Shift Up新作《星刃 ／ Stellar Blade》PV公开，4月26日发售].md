@@ -382,3 +382,28 @@ PlayStation Japan发了个新的日版PV，确定尼尔联动是付费DLC了
 
 比较关心拍照模式像《蜘蛛侠》一样好使吗？
 
+
+*****
+
+####  Andariel  
+##### 1798#       发表于 2024-11-14 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66694494&amp;ptid=1978008" target="_blank">darkangel0224 发表于 2024-11-14 12:49</a>
+
+富哥这是有RTX5090，能跑满4K顶级画质了吗？
+
+比较关心拍照模式像《蜘蛛侠》一样好使吗？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">跑满2k60fps就能比ps5观感好一倍啦！
+
+*****
+
+####  葵  
+##### 1799#       发表于 2024-11-14 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66685587&amp;ptid=1978008" target="_blank">我是谁无名氏 发表于 2024-11-13 10:21</a>
+
+原来是这样，只能慢慢推了，还没到能爽起来的阶段
+
+论坛助手,iPad</blockquote>
+这游戏真正爽游是二周目，二周目人物可以继续升级提升性能，各种招式技能也是二周目解锁进一步过载强化，游戏体验直接起飞，不要太爽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

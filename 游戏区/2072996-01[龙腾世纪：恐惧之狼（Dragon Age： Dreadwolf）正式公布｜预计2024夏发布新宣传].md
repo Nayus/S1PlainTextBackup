@@ -6050,3 +6050,14 @@ https://tieba.baidu.com/p/9263140943</blockquote>
 
 这30帧根本稳不了deck为什么能上绿标的，简直就是欺诈
 
+
+*****
+
+####  含恨未了切莫死  
+##### 1200#       发表于 2024-11-14 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66697241&amp;ptid=2072996" target="_blank">体质的错 发表于 2024-11-14 19:19</a>
+
+还好没有因为云玩家节奏错过这个游戏。这套装备被动解锁系统真的绝了，每天都因为拿到一个新装备就开始琢磨 ...</blockquote>
+这套装备和战斗系统也就能支撑到中期20-30小时吧，后期就开始复读失去乐趣了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

@@ -780,3 +780,11 @@ fc和sc是隔了1年9个月
 
 无论怎么讲，优势在法老控
 
+
+*****
+
+####  ravend233  
+##### 6874#       发表于 2024-11-14 17:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除了特别重量级的冷饭，大多数冷饭移植的影响力都很有限，不如看看能有多少新作，而且这些游戏很多受众和JRPG都不重叠的
+

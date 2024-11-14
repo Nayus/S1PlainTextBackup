@@ -1607,3 +1607,13 @@ oo是贪污吗，一般这种情况肯定是有一条贪污链，所以即使明
 暴论差不多得了，莫斯科跟彼得堡之外第三大的城市就是新西伯利亚，造t72的下塔吉尔、造bmp的库尔干、造苏 ...</blockquote>
 你才是暴论，这tm国防计划体制下几个设计局和工厂布局三线工程和社会老百姓有半分钱关系？你的t72和su57是老百姓能吃上还是能用上？
 
+
+*****
+
+####  Karoliner  
+##### 147#       发表于 2024-11-14 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66698089&amp;ptid=2206438" target="_blank">wqm2008 发表于 2024-11-14 21:46</a>
+
+你才是暴论，这tm国防计划体制下几个设计局和工厂布局三线工程和社会老百姓有半分钱关系？你的t72和su57是 ...</blockquote><blockquote>“俄罗斯从来没有经营过乌拉尔山以东的什么地方，力量投射最远是喀山。”</blockquote>你可以的，一下把时间线拉回到了16世纪<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

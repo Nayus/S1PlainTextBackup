@@ -95,3 +95,25 @@ sd缺点就是太重太大了，不过出差旅游携带还是很不错的
 
 虽然游戏正常运行，但是我游戏屏幕依旧是黑的。以撒这游戏不打MOD乐趣少太多还是算了。我给BAN了
 
+
+*****
+
+####  慕容断月  
+##### 77#       发表于 2024-11-14 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66694229&amp;ptid=2206237" target="_blank">noahhhh 发表于 2024-11-14 12:16</a>
+
+真的假的，我还打算买一台玩以撒</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202411/14/220207badrtz9k4kket4dj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (111.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-14 22:02 上传
+
+[https://www.protondb.com/app/250900](https://www.protondb.com/app/250900)
+
+你想玩的能不能玩，比起道听途说，首先去看看protondb比什么都强，越是热门越该这样，反而冷门才得自己研究行不行
+

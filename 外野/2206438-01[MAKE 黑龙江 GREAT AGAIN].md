@@ -1617,3 +1617,18 @@ oo是贪污吗，一般这种情况肯定是有一条贪污链，所以即使明
 
 你才是暴论，这tm国防计划体制下几个设计局和工厂布局三线工程和社会老百姓有半分钱关系？你的t72和su57是 ...</blockquote><blockquote>“俄罗斯从来没有经营过乌拉尔山以东的什么地方，力量投射最远是喀山。”</blockquote>你可以的，一下把时间线拉回到了16世纪<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wqm2008  
+##### 148#       发表于 2024-11-14 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66698164&amp;ptid=2206438" target="_blank">Karoliner 发表于 2024-11-14 22:00</a>
+
+你可以的，一下把时间线拉回到了16世纪</blockquote>
+你可以的，我知道你什么感受，不愿承认事实但一时间又不知道怎么杠，反复看了我的聊天记录几十遍想出一句绝妙的阴阳怪气
+
+“一下把时间线拉回到了16世纪<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">”
+
+嘻嘻，俄罗斯怎么可能不经营乌拉尔山以东呢？西伯利亚铁路又不是没建。
+

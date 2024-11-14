@@ -137,3 +137,13 @@ sd缺点就是太重太大了，不过出差旅游携带还是很不错的
 
 4399不都是steam版本更新快模组多社区支援好，价格还便宜<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">除非你是忠诚任豚，数字游戏ns比steam多。
 
+
+*****
+
+####  木竹九  
+##### 80#       发表于 2024-11-14 23:01
+
+今天掏出来想更新个系统，各自搞不定，一怒之下重装了一遍，然后搞好了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

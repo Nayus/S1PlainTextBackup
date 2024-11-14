@@ -2357,3 +2357,14 @@ FGO宝具动画喜欢玩机战的梗，但是3D机设做的和shit一样...要�
 哪怕学学土方都比现在强，靠背水打高威力第二发</blockquote>
 自爆或者他爆类型里俩特殊高倍率（阿拉什和陈宫）也都是送的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 15144#       发表于 2024-11-14 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66690207&amp;ptid=2084912" target="_blank">khxooo 发表于 2024-11-13 20:08</a>
+
+他们终于愿意让玩家一开始就能将送的从者练满了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难道不是因为这次要强制你上吗
+

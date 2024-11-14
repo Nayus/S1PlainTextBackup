@@ -12,3 +12,43 @@
 结果根本没法用以撒的MOD 怎么玩！</blockquote>
 真的假的，我还打算买一台玩以撒
 
+
+*****
+
+####  pipiミ  
+##### 70#       发表于 2024-11-14 13:18
+
+Deck的样子，一直是喜欢不起。
+
+（每次想买的时候，再仔细看看外形，一下就没了想法。大概是真没有需求吧）
+
+作为对比，
+
+PS Portal相对而言，看着还是眉清目秀的、结结实实的。
+
+Deck，一直是怪怪的样子。
+
+
+*****
+
+####  cxl6191467  
+##### 71#       发表于 2024-11-14 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66694229&amp;ptid=2206237" target="_blank">noahhhh 发表于 2024-11-14 12:16</a>
+真的假的，我还打算买一台玩以撒</blockquote>
+我没研究过以撒的mod，但是其他游戏mod和补丁可以用c口u盘安装，也可以在线安装。需要折腾折腾
+
+—— 来自 vivo V2241HA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  John_Stockton  
+##### 72#       发表于 2024-11-14 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66694229&amp;ptid=2206237" target="_blank">noahhhh 发表于 2024-11-14 12:16</a>
+
+真的假的，我还打算买一台玩以撒</blockquote>
+假的
+
+SD也能用，我天天以撒不亦乐乎
+

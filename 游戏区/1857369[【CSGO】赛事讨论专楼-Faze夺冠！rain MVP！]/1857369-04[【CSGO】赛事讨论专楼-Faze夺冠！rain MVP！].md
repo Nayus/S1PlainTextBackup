@@ -67,3 +67,11 @@
 <img src="https://p.sda1.dev/20/6062df60247fce2b2710cbeb275d60be/image.jpg" referrerpolicy="no-referrer">
 卧槽里的，device不打了（不是退役）
 
+
+*****
+
+####  12351sscca  
+##### 4521#       发表于 2024-11-15 01:55
+
+卧槽里的a队属实是活多，素食和龙哥是不是已经在待命了<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+

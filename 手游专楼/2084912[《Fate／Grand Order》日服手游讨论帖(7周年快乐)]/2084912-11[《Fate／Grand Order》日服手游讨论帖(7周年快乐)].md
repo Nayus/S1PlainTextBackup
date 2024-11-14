@@ -2321,3 +2321,26 @@ FGO宝具动画喜欢玩机战的梗，但是3D机设做的和shit一样...要�
 早上清体力都没多少挂课金礼装的，这池子不行啊</blockquote>
 虽然是美少年但这个卡的强度……然后锁卡面大概率会雷现在谁还敢冒险，要是后面两张卡没画烂可能厨力玩家才会下场
 
+
+*****
+
+####  CHCL3  
+##### 15141#       发表于 2024-11-14 11:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">最后的90石出了，开心
+
+
+*****
+
+####  exiaexa  
+##### 15142#       发表于 2024-11-14 11:51
+
+ 本帖最后由 exiaexa 于 2024-11-14 11:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66692645&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2024-11-14 09:16</a>
+
+阿草没自带战续也是普通红单体倍率吧</blockquote>
+送的先出去
+
+哪怕学学土方都比现在强，靠背水打高威力第二发
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

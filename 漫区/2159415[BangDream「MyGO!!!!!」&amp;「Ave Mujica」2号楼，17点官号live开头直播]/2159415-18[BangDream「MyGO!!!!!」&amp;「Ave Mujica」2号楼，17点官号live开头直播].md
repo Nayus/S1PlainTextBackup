@@ -10248,3 +10248,27 @@ md（周边）和邦邦都是稳步上升的，
 
 整体亏损的主要原因是游戏开发投入过大（2个手游，13个端游，话说怎么搞这么多端游），一时没法收回本
 
+
+*****
+
+####  NODY  
+##### 26011#       发表于 2024-11-14 19:46
+
+这下知道wsd钱花哪去了
+
+<img src="https://img.saraba1st.com/forum/202411/14/194655dh8dwoflfxo88576.png" referrerpolicy="no-referrer">
+
+<strong>7d66832b-5700-4d7c-b28b-faba84c8046b.png</strong> (8.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-14 19:46 上传
+
+<img src="https://img.saraba1st.com/forum/202411/14/194617izxgrl3r2pnrt0ff.png" referrerpolicy="no-referrer">
+
+<strong>ba2aaa4c-201e-474a-9d78-cd0a6f8591c1.png</strong> (4.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-14 19:46 上传
+

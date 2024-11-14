@@ -872,3 +872,23 @@ fc和sc是隔了1年9个月
 —— 来自 鹅球 v3.3.92-alpha</blockquote>
 你法也就这个水平吧
 
+
+*****
+
+####  椎名mahuyo  
+##### 6883#       发表于 2024-11-14 19:37
+
+25年可能憋出两个新作么？
+
+
+*****
+
+####  ravend233  
+##### 6884#       发表于 2024-11-14 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66697366&amp;ptid=2160194" target="_blank">椎名mahuyo 发表于 2024-11-14 19:37</a>
+25年可能憋出两个新作么？</blockquote>
+25年不行，你法觉得他26年可能可以<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

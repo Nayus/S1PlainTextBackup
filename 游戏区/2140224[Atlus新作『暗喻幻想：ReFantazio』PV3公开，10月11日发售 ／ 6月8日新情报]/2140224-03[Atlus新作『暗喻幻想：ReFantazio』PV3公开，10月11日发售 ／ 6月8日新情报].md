@@ -6450,3 +6450,15 @@ SMT 的 press turn 与世界树的职业 + 前后排机制是一次失败的融�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
 
+
+*****
+
+####  nianiania  
+##### 3536#       发表于 2024-11-14 08:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66684842&amp;ptid=2140224" target="_blank">u2deack 发表于 2024-11-13 08:52</a>
+打了一层的几个到二层不想打了直接去打路易了，厉害倒是不厉害只是这个一回合十动在一个回合制游戏里怎么 ...</blockquote>
+你这是没上灰羽或者女骑？灰羽闪避或者女骑挂群体无效，对面有多少豆都没用的，我都没怎么见过路易的招式<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu MEIZU 20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

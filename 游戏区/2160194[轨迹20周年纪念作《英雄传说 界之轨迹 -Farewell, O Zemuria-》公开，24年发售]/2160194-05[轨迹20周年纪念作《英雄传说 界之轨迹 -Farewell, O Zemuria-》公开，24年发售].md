@@ -788,3 +788,35 @@ fc和sc是隔了1年9个月
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除了特别重量级的冷饭，大多数冷饭移植的影响力都很有限，不如看看能有多少新作，而且这些游戏很多受众和JRPG都不重叠的
 
+
+*****
+
+####  史蒂符  
+##### 6875#       发表于 2024-11-14 17:24
+
+空轨re傍上任天堂大腿首次多语言同步发售，还是轨里质量最好，最没入坑门槛的一作，到时候中日美老登再发发力，buff拉满了吧，这优势真在法老控，看好法老控史上最高初动<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  隔壁老黄  
+##### 6876#       发表于 2024-11-14 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66696544&amp;ptid=2160194" target="_blank">史蒂符 发表于 2024-11-14 17:24</a>
+空轨re傍上任天堂大腿首次多语言同步发售，还是轨里质量最好，最没入坑门槛的一作，到时候中日美老登再发发 ...</blockquote>
+空轨的剧情太白开水了，我不怎么看好。十多年前玩的时候就觉得剧情没啥起伏，除了结局超展开了一把
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+
+
+*****
+
+####  ravend233  
+##### 6877#       发表于 2024-11-14 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66696583&amp;ptid=2160194" target="_blank">隔壁老黄 发表于 2024-11-14 17:29</a>
+
+空轨的剧情太白开水了，我不怎么看好。十多年前玩的时候就觉得剧情没啥起伏，除了结局超展开了一把
+
+—— ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种冷饭的销量很大程度上是靠名气就是了，FC的剧本本身确实平了
+

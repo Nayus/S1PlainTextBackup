@@ -625,3 +625,18 @@ solo1就上豪哥啊，会长
 
 —— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  鳄鱼头  
+##### 6684#       发表于 2024-11-16 00:13
+
+给新人的solo1上椎名豪还是太早了，完全就驾驭不了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhwpjy  
+##### 6685#       发表于 2024-11-16 00:15
+
+小秦会不会神前晓
+

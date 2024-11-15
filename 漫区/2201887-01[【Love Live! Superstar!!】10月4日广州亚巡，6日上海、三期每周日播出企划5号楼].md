@@ -9687,3 +9687,15 @@ ps：Luna两年没在b站更新夏季特辑了，怕不是忘号了
 
 定制冠军<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 954#       发表于 2024-11-15 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66705358&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-11-15 22:26</a>
+定制冠军</blockquote>
+二期拿的就是定制冠军了，Liella就没有正面战胜过snp。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -15811,3 +15811,34 @@ live结束大半个月了现在才想起来把MV放街头大屏宣传了海星
 
 我发在holo搂了，kana建3人的新品
 
+
+*****
+
+####  holoan  
+##### 10177#         楼主| 发表于 2024-11-15 17:47
+
+先前animate的danye单独摄影活动，有人特地整了个仿MV的pose，玩得很欢了
+
+<img src="https://img.saraba1st.com/forum/202411/15/174747trx0q00rnw3alalq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (504.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-15 17:47 上传
+
+<img src="https://img.saraba1st.com/forum/202411/15/174732md5x1fxv1cf5tdfx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (79.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-15 17:47 上传
+
+*****
+
+####  holoan  
+##### 10178#         楼主| 发表于 2024-11-15 22:29
+
+<blockquote>AICotomo「さくらみこさんはFPSとか格闘ゲームが得意だよね」</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

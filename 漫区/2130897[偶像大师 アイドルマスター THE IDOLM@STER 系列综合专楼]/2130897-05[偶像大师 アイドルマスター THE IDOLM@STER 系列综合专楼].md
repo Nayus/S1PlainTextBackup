@@ -542,3 +542,17 @@ SCSP1周年当日这首新歌，感觉没有前面那首全体曲耐听啊<img s
 小さな野望：
 [AM（新西蘭區，44.1/16）](https://clr2.wfhtony.space/s/M5jiM)，Hi-Res規格等日區0點之後。
 
+
+*****
+
+####  再三忘记账号  
+##### 6675#       发表于 2024-11-15 20:44
+
+ 本帖最后由 再三忘记账号 于 2024-11-15 20:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66691793&amp;ptid=2130897" target="_blank">游蜓 发表于 2024-11-14 00:53</a>
+
+星耀舞台还没玩完，亚夜和心白最后干啥去了，怎么不见土豆加人（</blockquote>
+剧透
+二周目新增剧情，心白和亚夜加入心白妈妈开的0936事务所去了。还会回来邀请制作人去任职。
+土豆年初时有卫星说今年可能加心白她们。
+

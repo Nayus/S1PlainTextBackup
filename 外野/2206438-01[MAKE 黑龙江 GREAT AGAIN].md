@@ -1747,3 +1747,14 @@ oo是贪污吗，一般这种情况肯定是有一条贪污链，所以即使明
 
 在辐射朝鲜，蒙古，俄国远东，东北这个大东北亚区的议题上，日韩斗争，但苟合也挺深，一样喜欢鼓吹山海关为中国实际边界。
 
+
+*****
+
+####  盗号找不回  
+##### 156#       发表于 2024-11-15 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66698478&amp;ptid=2206438" target="_blank">无敌可爱猫 发表于 2024-11-14 22:55</a>
+
+当年东三省不该计划生育，反而应该鼓励生育，吸引南方各路超生游击队过去多生孩子顺便定居 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是当年计划生育的政策反而在黑龙江执行的更好
+

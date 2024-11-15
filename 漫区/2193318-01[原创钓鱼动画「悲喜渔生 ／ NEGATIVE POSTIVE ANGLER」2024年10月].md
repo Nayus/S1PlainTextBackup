@@ -30,3 +30,14 @@
 
 粉毛原来是前牛郎头牌，暖男的原因找到了 
 
+
+*****
+
+####  PingGuo233  
+##### 140#       发表于 2024-11-15 15:55
+
+粉毛哥是前牛郎<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+怪不得有钱帮男主还账啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

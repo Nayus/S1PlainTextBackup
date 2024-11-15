@@ -498,3 +498,33 @@ SCSP1周年当日这首新歌，感觉没有前面那首全体曲耐听啊<img s
 
 2024-11-15 18:22 上传
 
+
+*****
+
+####  Unlight  
+##### 6673#         楼主| 发表于 2024-11-15 18:37
+
+ 本帖最后由 Unlight 于 2024-11-15 18:39 编辑 
+
+<img src="https://img.saraba1st.com/forum/202411/15/183728eao10atnz515uaum.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5346.jpeg</strong> (111.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-15 18:37 上传
+
+真是豪哥！
+
+<img src="https://img.saraba1st.com/forum/202411/15/183910fek6ul8re0zez9u9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5347.jpeg</strong> (109.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-15 18:39 上传
+
+作词的更是重量级
+
+那么压力给到美玲了
+

@@ -6097,3 +6097,35 @@ https://tieba.baidu.com/p/9263140943</blockquote>
 
 难绷<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  寂长无星夜  
+##### 1203#       发表于 2024-11-15 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66701270&amp;ptid=2072996" target="_blank">Pipcat 发表于 2024-11-15 11:57</a>
+难绷</blockquote>
+IGN不是给了9分吗，怎么开始抽自己脸了<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Pipcat  
+##### 1204#       发表于 2024-11-15 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66701365&amp;ptid=2072996" target="_blank">寂长无星夜 发表于 2024-11-15 12:11</a>
+
+IGN不是给了9分吗，怎么开始抽自己脸了</blockquote>
+见风使舵
+
+
+*****
+
+####  Pipcat  
+##### 1204#       发表于 2024-11-15 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66701365&amp;ptid=2072996" target="_blank">寂长无星夜 发表于 2024-11-15 12:11</a>
+
+IGN不是给了9分吗，怎么开始抽自己脸了</blockquote>
+见风使舵
+

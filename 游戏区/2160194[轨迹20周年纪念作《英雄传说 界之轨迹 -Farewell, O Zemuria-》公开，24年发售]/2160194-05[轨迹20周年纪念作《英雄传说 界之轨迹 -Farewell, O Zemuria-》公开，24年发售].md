@@ -988,3 +988,23 @@ fc和sc是隔了1年9个月
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  卢迪克  
+##### 6893#       发表于 2024-11-15 11:31
+
+ 本帖最后由 卢迪克 于 2024-11-15 11:33 编辑 
+<blockquote>ravend233 发表于 2024-11-14 17:32
+这种冷饭的销量很大程度上是靠名气就是了，FC的剧本本身确实平了</blockquote>
+近藤可是自信满满的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202411/15/113125koe5a2ae9aapaa5e.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20241115_113016.jpg</strong> (47.62 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-11-15 11:31 上传
+

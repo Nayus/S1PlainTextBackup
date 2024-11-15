@@ -15725,3 +15725,34 @@ live结束大半个月了现在才想起来把MV放街头大屏宣传了海星
 
 纸吹雪是什么，这个和miko对粉丝好的关系在哪啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 10170#         楼主| 发表于 2024-11-15 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66698936&amp;ptid=2086637" target="_blank">karastar 发表于 2024-11-15 00:31</a>
+
+纸吹雪是什么，这个和miko对粉丝好的关系在哪啊</blockquote>
+简单的说就是live会场在落幕的时候故意吹出来制造氛围的东西，一般是银箔带之类的给观众回家做live参加纪念物，星街的live是这种有印文字的特质纸片，自然就一些人被挂到网上卖钱了，当然卖银箔的事所有live都有没什么好说的，然而
+
+<img src="https://img.saraba1st.com/forum/202411/15/030036u1k2f0hhfn772dff.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.07 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-15 03:00 上传
+
+反过来可以说是miko带了一个坏头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 以前从来没有人想叫会场staff主动给观众免费派送银箔，miko直接做到第一人，然后一个月后的星街live就变成这样了
+
+*****
+
+####  karastar  
+##### 10171#       发表于 2024-11-15 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66700932&amp;ptid=2086637" target="_blank">holoan 发表于 2024-11-15 11:15</a>
+
+简单的说就是live会场在落幕的时候故意吹出来制造氛围的东西，一般是银箔带之类的给观众回家做live参加纪 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这个能卖这么贵啊，难以想象
+

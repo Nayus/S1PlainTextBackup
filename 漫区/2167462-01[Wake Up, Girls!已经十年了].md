@@ -1044,3 +1044,14 @@ box
 反正去年一堆只看过孤独摇滚的二刺螈说よっぴー是社恐时候，我们WUGNER都是在看傻子的感觉………… ...</blockquote>
 よっぴー是什么意思?
 
+
+*****
+
+####  tunpian  
+##### 104#       发表于 2024-11-15 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66704319&amp;ptid=2167462" target="_blank">海神航 发表于 2024-11-15 19:27</a>
+
+よっぴー是什么意思?</blockquote>
+指 青山吉能
+

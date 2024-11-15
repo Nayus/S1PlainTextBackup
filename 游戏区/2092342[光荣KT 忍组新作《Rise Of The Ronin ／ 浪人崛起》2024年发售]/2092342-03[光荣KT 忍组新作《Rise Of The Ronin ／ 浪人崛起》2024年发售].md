@@ -23,3 +23,11 @@ DLC做个戊辰战争啊
 
 —— 来自 OPPO PGJM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  hkguty  
+##### 3253#       发表于 2024-11-15 10:37
+
+还以为卖得不行被弃子连dlc都懒得出了
+

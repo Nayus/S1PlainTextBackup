@@ -6073,3 +6073,27 @@ https://tieba.baidu.com/p/9263140943</blockquote>
 
 敌人种类太缺乏，能带的技能少，后期全是靠堆怪，加上剧情白开水，新鲜感一过中期已经开始坐牢了，也就最终战能拉回点分。不少杂志抛开卖相打6,7分是相当客观的。
 
+
+*****
+
+####  Pipcat  
+##### 1202#       发表于 2024-11-15 11:57
+
+<img src="https://img.saraba1st.com/forum/202411/15/115645w21ffft79jrgcm2g.jpg" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2024-11-15 115607.jpg</strong> (150.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-15 11:56 上传
+
+<img src="https://img.saraba1st.com/forum/202411/15/115645lutvjp81atgmuc4y.jpg" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2024-11-15 115633.jpg</strong> (116.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-15 11:56 上传
+
+难绷<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+

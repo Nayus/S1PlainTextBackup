@@ -65,3 +65,12 @@ DLC做个戊辰战争啊
 
 我们润往美国，你们飘向北方，大家都有光明的未来<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shimotsuki14  
+##### 3258#       发表于 2024-11-15 11:55
+
+虽然我还挺喜欢玩的
+但…能有dlc！？
+

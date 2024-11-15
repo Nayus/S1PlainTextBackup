@@ -57,3 +57,11 @@ DLC做个戊辰战争啊
 
 爆料源是lunatic，准确率堪忧，看看就行<img src="https://p.sda1.dev/20/2e52bf7d3e72c8035d5ff4b79a4a95d9/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑修士  
+##### 3257#       发表于 2024-11-15 11:37
+
+我们润往美国，你们飘向北方，大家都有光明的未来<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

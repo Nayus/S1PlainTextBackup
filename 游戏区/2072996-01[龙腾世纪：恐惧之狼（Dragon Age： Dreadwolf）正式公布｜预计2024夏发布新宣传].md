@@ -6242,3 +6242,15 @@ IGN不是给了9分吗，怎么开始抽自己脸了</blockquote>
 
 日厂虽然有时销量低，但人家就看中这粉丝高价购买力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Bieaeml  
+##### 1214#       发表于 2024-11-15 19:06
+
+ 本帖最后由 Bieaeml 于 2024-11-15 19:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66704208&amp;ptid=2072996" target="_blank">洛亚替身 发表于 2024-11-15 19:02</a>
+
+不是，50块钱好兄弟冲的销量不能这么算吧...........这年头看的是永降前啊</blockquote>
+就是今年9月份前执行制作人给出数据，吹逼DAI是生软最畅销的游戏，还超出了发行商EA的内部预期，现在来看不就是稳定军心么（然后被人爆料600W是epic送的）
+

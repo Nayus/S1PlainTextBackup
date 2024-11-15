@@ -6207,3 +6207,24 @@ IGN不是给了9分吗，怎么开始抽自己脸了</blockquote>
 
 不是。两周没一百万不可能吧？这数据EA不拆生软铁大善人了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HellMaster  
+##### 1211#       发表于 2024-11-15 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66703997&amp;ptid=2072996" target="_blank">洛亚替身 发表于 2024-11-15 18:22</a>
+不是。两周没一百万不可能吧？这数据EA不拆生软铁大善人了</blockquote>
+你搞错顺序了。生软的人早就开得差不多了，剩下的都是ea自己人。
+
+
+*****
+
+####  Bieaeml  
+##### 1212#       发表于 2024-11-15 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66703997&amp;ptid=2072996" target="_blank">洛亚替身 发表于 2024-11-15 18:22</a>
+
+不是。两周没一百万不可能吧？这数据EA不拆生软铁大善人了</blockquote>
+前作DAI首周110W+，今年9月放出消息1200W+，这大概就是他们的底气<img src="https://static.saraba1st.com/image/smiley/face/100.gif" referrerpolicy="no-referrer">
+

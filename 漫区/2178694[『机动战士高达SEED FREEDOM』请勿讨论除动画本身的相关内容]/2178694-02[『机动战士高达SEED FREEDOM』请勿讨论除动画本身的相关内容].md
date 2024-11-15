@@ -84,3 +84,11 @@ https://x.com/toxan_7/status/1855963035321643438</blockquote>
 好歹也是ce73的四天王啊，3rd的参数那么快就不行了么</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">毕竟CE世代的MS由初次投入使用到出现黑骑士神鸟、非自这水准也就过了5年左右，比现实中国内的新能源汽车迭代进步还要激烈
 
+
+*****
+
+####  natmk  
+##### 1993#       发表于 2024-11-15 21:43
+
+阿格妮丝的男友cv居然是小野大辅 这不会串到大和号吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

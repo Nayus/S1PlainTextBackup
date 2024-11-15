@@ -10,3 +10,12 @@
 
 哦，以及对人战成就能早做就早做，现在已经很难匹配到人了
 
+
+*****
+
+####  Booorunestud  
+##### 137#       发表于 2024-11-16 03:05
+
+…这破卡组没更新没增重，我拿泳装妹一刀15砍了半天的两千血boss，还是没otk
+<img src="https://p.sda1.dev/20/c5a0774b26d6d5a5b1eb6579f71078d7/image.jpg" referrerpolicy="no-referrer">
+

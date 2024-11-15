@@ -528,3 +528,17 @@ SCSP1周年当日这首新歌，感觉没有前面那首全体曲耐听啊<img s
 
 那么压力给到美玲了
 
+
+*****
+
+####  wfhtony  
+##### 6674#       发表于 2024-11-15 19:58
+
+<img src="https://tc2.wfhtony.space/images/2024/11/15/9596cf5aa48324ee07a095a7647b55ce.png" referrerpolicy="no-referrer">
+
+請到了那個男人，結果AM那邊沒上全景聲...
+以下内容需要积分高于 500 才可浏览
+
+小さな野望：
+[AM（新西蘭區，44.1/16）](https://clr2.wfhtony.space/s/M5jiM)，Hi-Res規格等日區0點之後。
+

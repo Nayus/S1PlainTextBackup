@@ -6129,3 +6129,18 @@ IGN不是给了9分吗，怎么开始抽自己脸了</blockquote>
 IGN不是给了9分吗，怎么开始抽自己脸了</blockquote>
 见风使舵
 
+
+*****
+
+####  llysander  
+##### 1205#       发表于 2024-11-15 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66701365&amp;ptid=2072996" target="_blank">寂长无星夜 发表于 2024-11-15 12:11</a>
+
+IGN不是给了9分吗，怎么开始抽自己脸了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">跳个船
+
+可能是有直觉感觉到了接受度（销售数字）真的不行，现在最乐观的是周末过了一百万，并且生软本周会宣布庆功。最悲观的是65万。
+
+一百万也是妥妥亏了
+

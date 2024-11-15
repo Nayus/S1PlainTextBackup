@@ -92,3 +92,11 @@ https://x.com/toxan_7/status/1855963035321643438</blockquote>
 
 阿格妮丝的男友cv居然是小野大辅 这不会串到大和号吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  线程召唤使  
+##### 1994#       发表于 2024-11-15 21:58
+
+希望给阿斯兰一台STTS系列的新机，来个圣盾系的。
+

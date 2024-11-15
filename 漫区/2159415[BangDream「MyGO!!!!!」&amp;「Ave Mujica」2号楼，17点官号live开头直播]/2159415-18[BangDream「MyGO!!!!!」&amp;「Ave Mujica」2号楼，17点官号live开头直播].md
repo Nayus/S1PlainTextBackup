@@ -10596,3 +10596,153 @@ Gca73boaQAA3Tgn.jpg
 
 [https://x.com/gM4zFiJCWbz3G4y/status/1857335226772640217](https://x.com/gM4zFiJCWbz3G4y/status/1857335226772640217)
 
+
+*****
+
+####  skives10  
+##### 26045#       发表于 2024-11-15 17:42
+
+话说是只有中国罗森才联动吗
+
+*****
+
+####  SakuraのOrigami  
+##### 26046#       发表于 2024-11-15 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66703747&amp;ptid=2159415" target="_blank">skives10 发表于 2024-11-15 17:42</a>
+
+话说是只有中国罗森才联动吗</blockquote>
+是，不过应该还是限定门店联动
+
+*****
+
+####  SakuraのOrigami  
+##### 26047#       发表于 2024-11-15 17:48
+
+面具居然还在啊草
+
+什么神秘营业面具人，还带穿女仆装<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 26048#       发表于 2024-11-15 18:15
+
+好大的灯
+
+*****
+
+####  桜庭千景  
+##### 26049#       发表于 2024-11-15 18:25
+
+<blockquote>yicihanshu 发表于 2024-11-15 17:33
+罗森店员冒死来透一点
+
+母鸡卡柄图还是有面具</blockquote>
+正常 上次a咖联动的和服都有面具
+
+*****
+
+####  细菌爆炸  
+##### 26050#       发表于 2024-11-15 18:29
+
+挺好，希望楼下罗森能参加联动<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿萨德飞过去  
+##### 26051#       发表于 2024-11-15 18:48
+
+换成这个蓝白女仆装的话，黑色眼罩有点神秘了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  silversor  
+##### 26052#       发表于 2024-11-15 18:51
+
+能不能别上海限定
+
+*****
+
+####  桜庭千景  
+##### 26053#       发表于 2024-11-15 18:57
+
+罗森现在是有ip购微信小程序的，不一定要线下
+
+*****
+
+####  6030sylar  
+##### 26054#       发表于 2024-11-15 19:48
+
+<img src="https://img.saraba1st.com/forum/202411/15/194757bqnqxnr3qnq6xhqq.jpg" referrerpolicy="no-referrer">
+
+<strong>M{9SQYMDN]VA$N3DO6]39(I.jpg</strong> (177.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-15 19:47 上传
+
+*****
+
+####  SakuraのOrigami  
+##### 26055#       发表于 2024-11-15 19:52
+
+彩しき绘
+
+Gca73boaQAA3Tgn.jpg
+(402.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-15 19:51 上传
+
+<img src="https://img.saraba1st.com/forum/202411/15/195155cp11fm77zjpe5py2.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 26056#       发表于 2024-11-16 00:09
+
+<img src="https://img.saraba1st.com/forum/202411/16/000911sqt06t66cozm9wb8.jpg" referrerpolicy="no-referrer">
+
+<strong>GcWYAmgX0AA2mPI-2.jpg</strong> (940.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-16 00:09 上传
+
+[https://x.com/gM4zFiJCWbz3G4y/status/1857335226772640217](https://x.com/gM4zFiJCWbz3G4y/status/1857335226772640217)
+
+*****
+
+####  玖羽  
+##### 26057#       发表于 2024-11-16 06:50
+
+ttps://x.com/nagomu_7_56/status/1857457000285876331
+
+<img src="https://img.saraba1st.com/forum/202411/16/065017orgia8izpnraagh5.jpg" referrerpolicy="no-referrer">
+
+<strong>orig1.jpg</strong> (184.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-16 06:50 上传
+
+ttps://x.com/GirLover_Ureka
+
+<img src="https://img.saraba1st.com/forum/202411/16/065018wo42h2iee62h44o7.jpg" referrerpolicy="no-referrer">
+
+<strong>orig2.jpg</strong> (1 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-16 06:50 上传
+
+<img src="https://img.saraba1st.com/forum/202411/16/065019xrhffa7ea2ck7aua.jpg" referrerpolicy="no-referrer">
+
+<strong>orig3.jpg</strong> (781.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-16 06:50 上传
+

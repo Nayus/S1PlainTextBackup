@@ -6312,3 +6312,27 @@ IGN不是给了9分吗，怎么开始抽自己脸了</blockquote>
 
 2024-11-16 06:36 上传
 
+
+*****
+
+####  xjtxp  
+##### 1219#       发表于 2024-11-16 06:51
+
+ 本帖最后由 xjtxp 于 2024-11-16 06:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66663004&amp;ptid=2072996" target="_blank">mimighost 发表于 2024-11-10 14:09</a>
+
+但是后来他写了几本darkspwan的小说啊，calling我觉得还挺好看的
+
+结果居然是被按着头？ ...</blockquote>
+DA其实有不少设定其实挺草台凑合的，比如塞达斯这个名字的由来：
+其实当初大伙想的都不是这个名字，首席设计师JO当初给故事发生的大陆起了另一个名字，也给这片大陆想了个不同名字的DG不想用JO起的名，但JO级别更高DG没法直接拒绝，于是DG跟JO扯皮扯到（当初曾预计暂时）先都不用两人起的名，而是用The Dragon Age Setting的缩写塞达斯（Thedas)<strong>——</strong>国内提到这事的有些网站译为 龙腾世纪设定，但我觉得但那个是顶多算背景<strong>——</strong>来先凑合下。
+<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">当初DG想等着看能不能哪天JO忘了自己起那名再尝试用他想的名字替代，结果就是后来DA2时JO去做TOR没人管DG了，但俩人凑合出来的塞达斯这名已经在玩家那深入人心了：
+
+<img src="https://img.saraba1st.com/forum/202411/16/064839oytixbn37t3xkzwi.jpg" referrerpolicy="no-referrer">
+
+<strong>凑合3.jpg</strong> (119.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-16 06:48 上传
+

@@ -6191,3 +6191,11 @@ IGN不是给了9分吗，怎么开始抽自己脸了</blockquote>
 
 消息是这周早出的，言下之意就是制作组有信心这周卖35W然后官宣破百，大家拭目以待。
 
+
+*****
+
+####  sosgame67  
+##### 1209#       发表于 2024-11-15 17:58
+
+说游戏性完胜7rb的真不是在钓鱼？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

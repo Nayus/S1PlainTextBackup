@@ -126,3 +126,11 @@
 
 一开始从pv认出是众神地图的时候我就想过林克被吸走会不会变兔子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要是众神1林克，宝珠还在身上吧
 
+
+*****
+
+####  Yeaha123  
+##### 1693#       发表于 2024-11-15 20:21
+
+通关了，最难搞的boss应该是那个雷云，好在没安排到bossrush上
+

@@ -33,3 +33,24 @@
 
 强自1的推力不如强人？<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  主人ハム子  
+##### 1988#       发表于 2024-11-15 20:52
+
+强自一式什么老爷机，也配来碰瓷我们强人。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  KDConan  
+##### 1989#       发表于 2024-11-15 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66675642&amp;ptid=2178694" target="_blank">Piano-Forest 发表于 2024-11-12 00:58</a>
+https://x.com/toxan_7/status/1855963035321643438</blockquote>
+可以舔<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

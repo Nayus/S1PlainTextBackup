@@ -49,3 +49,11 @@ DLC做个戊辰战争啊
 
 估计是把土方之类的特殊武器实装吧，以功夫为代表的徒手流派肯定也是留了一手
 
+
+*****
+
+####  医生狼多  
+##### 3256#       发表于 2024-11-15 11:11
+
+爆料源是lunatic，准确率堪忧，看看就行<img src="https://p.sda1.dev/20/2e52bf7d3e72c8035d5ff4b79a4a95d9/image.jpg" referrerpolicy="no-referrer">
+

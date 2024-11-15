@@ -9628,3 +9628,13 @@ ps：Luna两年没在b站更新夏季特辑了，怕不是忘号了
 
 这对决不管哪边输都槽点满满啊，一边是精简的天赋队，而liella输了那八个就成了纯挂件了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViyViy  
+##### 947#       发表于 2024-11-15 17:51
+
+<blockquote>黒烨 发表于 2024-11-15 16:59
+正面对决不影响cw的呀，难道要第十集才合体吗。。</blockquote>
+插碟不都是3曲么，如果第八集真有两歌对垒那cw不是没位置了…
+

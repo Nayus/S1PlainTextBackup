@@ -10489,3 +10489,13 @@ QQ图片20241115172442.png
 话说是只有中国罗森才联动吗</blockquote>
 是，不过应该还是限定门店联动
 
+
+*****
+
+####  SakuraのOrigami  
+##### 26035#       发表于 2024-11-15 17:48
+
+面具居然还在啊草
+
+什么神秘营业面具人，还带穿女仆装<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

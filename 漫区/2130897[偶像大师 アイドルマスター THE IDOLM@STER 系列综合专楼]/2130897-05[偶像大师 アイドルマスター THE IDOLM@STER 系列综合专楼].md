@@ -452,3 +452,11 @@ SCSP1周年当日这首新歌，感觉没有前面那首全体曲耐听啊<img s
 
 火锅2，2025.3.29/30，SSA
 
+
+*****
+
+####  馬斯特壺  
+##### 6669#       发表于 2024-11-15 17:54
+
+会长solo1这直接就上豪哥曲，还以为会给美铃，不过阳高vo力没跟上啊，会长游戏日常、印象曲和solo1完全是三种声线，听感有些割裂<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

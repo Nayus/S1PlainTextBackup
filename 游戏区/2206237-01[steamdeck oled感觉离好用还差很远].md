@@ -147,3 +147,22 @@ sd缺点就是太重太大了，不过出差旅游携带还是很不错的
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  John_Stockton  
+##### 81#       发表于 2024-11-15 08:58
+
+我甚至没有折腾，直接创意工坊安装，虽然只有eid和goodtrip
+
+大几百个小时了没有任何问题
+
+dc6c6d575b401b8574ac6434eb10cab.jpg
+(155.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-15 08:58 上传
+
+<img src="https://img.saraba1st.com/forum/202411/15/085811js2pky02s2jse8hl.jpg" referrerpolicy="no-referrer">
+

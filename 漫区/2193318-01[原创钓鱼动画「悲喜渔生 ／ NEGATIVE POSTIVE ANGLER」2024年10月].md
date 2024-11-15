@@ -57,3 +57,16 @@
 
 看完之后纪录片和动画本身都分不清了😂好有趣的一集，甚至想再看一次
 
+
+*****
+
+####  向島拓朗  
+##### 143#       发表于 2024-11-15 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66389325&amp;ptid=2193318" target="_blank">makece 发表于 2024-10-7 00:03</a>
+
+男版濑津美
+
+最后和鱼搏斗死于大海</blockquote>
+钓上人鱼/史前大海兽，被喂长生不死药
+

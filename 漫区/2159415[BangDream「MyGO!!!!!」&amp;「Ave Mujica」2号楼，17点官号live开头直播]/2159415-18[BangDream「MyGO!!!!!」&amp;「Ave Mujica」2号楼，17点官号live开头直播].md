@@ -10417,3 +10417,43 @@ QQ图片20241115172442.png
 
 <img src="https://img.saraba1st.com/forum/202411/15/172458iy1bi47y1yvvy7k1.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  相坂君  
+##### 26026#       发表于 2024-11-15 17:32
+
+八成运营多打tag蹭热度，logo都是mygo，怎么可能会出鸡
+
+*****
+
+####  yicihanshu  
+##### 26027#       发表于 2024-11-15 17:33
+
+罗森店员冒死来透一点
+
+母鸡卡柄图还是有面具
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  asion617  
+##### 26028#       发表于 2024-11-15 17:34
+
+和隔壁对邦叠了两张, 毫无意外落了, 这么小的场就不该去抽<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 26029#       发表于 2024-11-15 17:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哎哟，瞬间被打脸，居然真的有啊？ 但面具它！还！在！
+
+*****
+
+####  skives10  
+##### 26030#       发表于 2024-11-15 17:35
+
+真的蚌埠住了
+

@@ -1027,3 +1027,36 @@ fc和sc是隔了1年9个月
 由手机上传
 2024-11-15 13:04 上传
 
+
+*****
+
+####  maojiashu  
+##### 6895#       发表于 2024-11-15 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66701751&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-11-15 13:04</a>
+
+空轨re这记者会出场吧，</blockquote>
+这人出场是零碧？我对她没啥印象了
+
+
+*****
+
+####  windtrack  
+##### 6896#       发表于 2024-11-15 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66703333&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-11-15 16:48</a>
+
+这人出场是零碧？我对她没啥印象了</blockquote>
+好像是完全新人，除非是EVO新增的
+
+空re时间设定都是7年前，这个岁数的记者怕不是还是学生或者小孩
+
+*****
+
+####  卢迪克  
+##### 6897#       发表于 2024-11-15 16:54
+
+<blockquote>maojiashu 发表于 2024-11-15 16:48
+这人出场是零碧？我对她没啥印象了</blockquote>
+新角色，独立建模，又没剧情，不知道干嘛的。
+

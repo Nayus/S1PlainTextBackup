@@ -9588,3 +9588,27 @@ ps：Luna两年没在b站更新夏季特辑了，怕不是忘号了
 
 当然你也可以阐述成追寻当偶像的过程让人怎么样怎么样，偶像不是终点什么的，很标准的社团类运动番逻辑。
 
+
+*****
+
+####  ViyViy  
+##### 943#       发表于 2024-11-15 14:56
+
+插34的cw可能要被占掉了，第八集疑似要正面对决。
+
+
+*****
+
+####  ViyViy  
+##### 944#       发表于 2024-11-15 15:03
+
+真拼啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202411/15/150334r9gz5y2ya91uygfo.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0051.jpeg</strong> (288.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-15 15:03 上传
+

@@ -15756,3 +15756,43 @@ live结束大半个月了现在才想起来把MV放街头大屏宣传了海星
 简单的说就是live会场在落幕的时候故意吹出来制造氛围的东西，一般是银箔带之类的给观众回家做live参加纪 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这个能卖这么贵啊，难以想象
 
+
+*****
+
+####  holoan  
+##### 10172#         楼主| 发表于 2024-11-15 12:47
+
+ 本帖最后由 holoan 于 2024-11-15 12:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66701289&amp;ptid=2086637" target="_blank">karastar 发表于 2024-11-15 12:00</a>
+
+这个能卖这么贵啊，难以想象</blockquote>
+一张纸片能卖1500人民币关键还真的有人去买你觉得呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以至于网上有人调侃昨晚的live简直是在往空中洒钱
+
+向来都说死宅V豚是SB无脑只会送钱的ATM这不是开玩笑是真的
+
+另外miko的live的银箔一样也有人卖，而价格只有星街纸吹雪的1/30，均价也就1000日元出头而且因为绝大多数品相不好基本卖不出去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rs5621  
+##### 10173#       发表于 2024-11-15 15:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说某些人的粉丝是真的有钱，也怪不得js去倒卖了
+
+*****
+
+####  holoan  
+##### 10174#         楼主| 发表于 2024-11-15 15:17
+
+<img src="https://img.saraba1st.com/forum/202411/15/151527jbffjj42x22xybtd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (22.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-15 15:15 上传
+
+受到刺激的不是本人而是粉丝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+然而本人干涉下故意不出这款景品的可能性……？（而且星街这种特地不卖色的都在前年就出了同款景品）
+

@@ -9679,3 +9679,11 @@ ps：Luna两年没在b站更新夏季特辑了，怕不是忘号了
 
 真要整对决这种花活，大概率又要改赛制了，你们这拉拉大赛游戏世界赛么天天做专用表的。
 
+
+*****
+
+####  ViyViy  
+##### 953#       发表于 2024-11-15 22:26
+
+定制冠军<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

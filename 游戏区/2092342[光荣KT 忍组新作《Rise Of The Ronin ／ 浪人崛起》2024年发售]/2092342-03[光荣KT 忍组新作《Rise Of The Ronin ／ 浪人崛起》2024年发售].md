@@ -105,3 +105,11 @@ pro感觉提升挺多的
 至少进横滨没有那种一眼糙的要死的感觉了</blockquote>
 pro版分辨率提升了么？性能模式帧数能稳定60了么？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  廖化  
+##### 3262#       发表于 2024-11-15 16:26
+
+比起这个，到底什么时候移植，能用PC就不想P5了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

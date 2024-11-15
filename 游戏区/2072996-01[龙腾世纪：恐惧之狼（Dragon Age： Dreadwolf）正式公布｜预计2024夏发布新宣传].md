@@ -6228,3 +6228,17 @@ IGN不是给了9分吗，怎么开始抽自己脸了</blockquote>
 不是。两周没一百万不可能吧？这数据EA不拆生软铁大善人了</blockquote>
 前作DAI首周110W+，今年9月放出消息1200W+，这大概就是他们的底气<img src="https://static.saraba1st.com/image/smiley/face/100.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛亚替身  
+##### 1213#       发表于 2024-11-15 19:02
+
+ 本帖最后由 洛亚替身 于 2024-11-15 19:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66704160&amp;ptid=2072996" target="_blank">Bieaeml 发表于 2024-11-15 18:50</a>
+
+前作DAI首周110W+，今年9月放出消息1200W+，这大概就是他们的底气</blockquote>
+不是，50块钱好兄弟冲的销量不能这么算吧...........这年头看的是永降前啊，我自己主机都是50冲的
+
+日厂虽然有时销量低，但人家就看中这粉丝高价购买力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

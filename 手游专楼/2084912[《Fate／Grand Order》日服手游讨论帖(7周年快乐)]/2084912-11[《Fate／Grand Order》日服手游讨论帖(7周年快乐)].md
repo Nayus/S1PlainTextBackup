@@ -2397,3 +2397,43 @@ FGO宝具动画喜欢玩机战的梗，但是3D机设做的和shit一样...要�
 难道不是因为这次要强制你上吗</blockquote>
 前面那几场其实我一级带了个看板娘礼装去打也过了……
 
+
+*****
+
+####  khxooo  
+##### 15148#       发表于 2024-11-14 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66694753&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-11-14 13:23</a>
+难道不是因为这次要强制你上吗</blockquote>
+没记错之前都是给你一两个灵基突破就是的，都是卡你到主线才给你最后一个。
+
+*****
+
+####  beer  
+##### 15149#       发表于 2024-11-14 21:01
+
+最近的新卡都有点奇葩
+
+*****
+
+####  芭德薇  
+##### 15150#       发表于 2024-11-14 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66694753&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-11-14 13:23</a>
+
+难道不是因为这次要强制你上吗</blockquote>
+前面那几场其实我一级带了个看板娘礼装去打也过了……
+
+*****
+
+####  岸浪白野  
+##### 15151#       发表于 2024-11-15 17:21
+
+<img src="https://img.saraba1st.com/forum/202411/15/172115yay4zyya3doza3zz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.4 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-15 17:21 上传
+

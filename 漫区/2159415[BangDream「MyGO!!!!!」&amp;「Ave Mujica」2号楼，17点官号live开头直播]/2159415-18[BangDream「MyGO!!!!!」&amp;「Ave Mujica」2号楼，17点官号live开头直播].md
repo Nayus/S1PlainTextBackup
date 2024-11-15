@@ -10376,3 +10376,44 @@ akane追星成功
 
 应该是4th的谷，现场看看实物
 
+
+*****
+
+####  SakuraのOrigami  
+##### 26023#       发表于 2024-11-15 17:15
+
+<img src="https://img.saraba1st.com/forum/202411/15/171523ko7bffdbt7f22ofq.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20241115170820.png</strong> (366.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-15 17:15 上传
+
+
+*****
+
+####  skives10  
+##### 26024#       发表于 2024-11-15 17:21
+
+比新专特典好看<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SakuraのOrigami  
+##### 26025#       发表于 2024-11-15 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66703516&amp;ptid=2159415" target="_blank">SakuraのOrigami 发表于 2024-11-15 17:15</a></blockquote>
+还打了鸡的tag
+
+看来鸡也会有？
+
+QQ图片20241115172442.png
+(286.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-15 17:24 上传
+
+<img src="https://img.saraba1st.com/forum/202411/15/172458iy1bi47y1yvvy7k1.png" referrerpolicy="no-referrer">
+

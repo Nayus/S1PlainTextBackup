@@ -67,3 +67,20 @@ https://x.com/toxan_7/status/1855963035321643438</blockquote>
 —— 来自 鹅球 v3.1.88.3</blockquote>
 好歹也是ce73的四天王啊，3rd的参数那么快就不行了么
 
+
+*****
+
+####  死难者23er  
+##### 1991#       发表于 2024-11-15 21:27
+
+更加明显了，那个金发女的是阿古妮斯，现在希望福田可以好好写下她从哪里知道基拉和芙蕾的事然后变头发
+
+*****
+
+####  gundammarkⅡ  
+##### 1992#       发表于 2024-11-15 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66704950&amp;ptid=2178694" target="_blank">洛克萨斯 发表于 2024-11-15 21:13</a>
+好歹也是ce73的四天王啊，3rd的参数那么快就不行了么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">毕竟CE世代的MS由初次投入使用到出现黑骑士神鸟、非自这水准也就过了5年左右，比现实中国内的新能源汽车迭代进步还要激烈
+

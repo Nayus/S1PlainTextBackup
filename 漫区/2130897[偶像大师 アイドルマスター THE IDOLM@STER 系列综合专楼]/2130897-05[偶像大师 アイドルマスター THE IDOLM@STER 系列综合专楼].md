@@ -556,3 +556,47 @@ SCSP1周年当日这首新歌，感觉没有前面那首全体曲耐听啊<img s
 二周目新增剧情，心白和亚夜加入心白妈妈开的0936事务所去了。还会回来邀请制作人去任职。
 土豆年初时有卫星说今年可能加心白她们。
 
+
+*****
+
+####  acacaclove  
+##### 6676#       发表于 2024-11-15 21:31
+
+豪哥+小室みつ子就是厉害，这歌和giga的狗屎完全不在一个层次
+
+*****
+
+####  acacaclove  
+##### 6677#       发表于 2024-11-15 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66703883&amp;ptid=2130897" target="_blank">Unlight 发表于 2024-11-15 18:05</a>
+
+会长豪哥
+
+妹妹贵公子
+
+美玲：？</blockquote>
+那就井上拓或者小林吧
+
+*****
+
+####  oznark  
+##### 6678#       发表于 2024-11-15 21:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">会长这歌唱得这么用力，然后live还要舞剑。
+
+
+*****
+
+####  夜月紫耀  
+##### 6679#       发表于 2024-11-15 21:35
+
+录音室唱断气？
+
+*****
+
+####  北条早苗  
+##### 6680#       发表于 2024-11-15 21:36
+
+solo1就上豪哥啊，会长
+

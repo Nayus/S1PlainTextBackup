@@ -1033,3 +1033,14 @@ Wake Up, Girls！ Music Collection
 
 box
 
+
+*****
+
+####  海神航  
+##### 103#       发表于 2024-11-15 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63607978&amp;ptid=2167462" target="_blank">Toby_dak 发表于 2024-1-10 22:11</a>
+
+反正去年一堆只看过孤独摇滚的二刺螈说よっぴー是社恐时候，我们WUGNER都是在看傻子的感觉………… ...</blockquote>
+よっぴー是什么意思?
+

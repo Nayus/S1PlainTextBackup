@@ -54,3 +54,16 @@ https://x.com/toxan_7/status/1855963035321643438</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  洛克萨斯  
+##### 1990#       发表于 2024-11-15 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66704846&amp;ptid=2178694" target="_blank">主人ハム子 发表于 2024-11-15 20:52</a>
+
+强自一式什么老爷机，也配来碰瓷我们强人。
+
+—— 来自 鹅球 v3.1.88.3</blockquote>
+好歹也是ce73的四天王啊，3rd的参数那么快就不行了么
+

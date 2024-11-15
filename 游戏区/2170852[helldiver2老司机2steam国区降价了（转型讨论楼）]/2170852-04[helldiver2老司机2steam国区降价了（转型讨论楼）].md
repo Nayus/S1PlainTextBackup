@@ -156,3 +156,44 @@
 
 箭头这个幽默更新一直都是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 越整活越恶心人
 
+
+*****
+
+####  kalavinka  
+##### 5526#         楼主| 发表于 2024-11-15 18:24
+
+准备等牢能上了再上线了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 5527#       发表于 2024-11-15 18:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这游戏毛新内容都没有，就武器战备慢慢加强，就风评反转了，只能说赚好评还是太简单了，几个月搞个dss都搞不明白底裤这真漏干净了。
+
+*****
+
+####  扑克脸军曹  
+##### 5528#       发表于 2024-11-15 20:34
+
+过于沙雕了，20次增援全都让这行星轰炸炸没了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  用户名未定义  
+##### 5529#       发表于 2024-11-15 21:13
+
+这轨道轰炸太哈人了，在加上这星球上的野生地狱火。打了一把被皿煮甲救了四五次。还有一次明明救下来了，但是摔死了。
+
+*****
+
+####  FLZB  
+##### 5530#       发表于 2024-11-15 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66704003&amp;ptid=2170852" target="_blank">kalavinka 发表于 2024-11-15 18:24</a>
+
+准备等牢能上了再上线了</blockquote>
+从目前流出的信息来看，光能的游戏体验怕不更是史中史啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

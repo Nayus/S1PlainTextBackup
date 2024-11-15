@@ -9699,3 +9699,21 @@ ps：Luna两年没在b站更新夏季特辑了，怕不是忘号了
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  Piano-Forest  
+##### 955#       发表于 2024-11-16 01:39
+
+[https://x.com/k_ritsu62/status/1856697525081948547](https://x.com/k_ritsu62/status/1856697525081948547)
+
+3話もダンスパート原画描かせていただいたので！
+
+二原拾ってくれた方ありがとうございます…!!🙏
+<img src="https://p.sda1.dev/20/3c8b1a34d94a7c203e21e408b13db8a3/20241116_013822.jpg" referrerpolicy="no-referrer">
+
+遅ればせながら6話ドラマパート原画と数カットダンスパート作監もさせていただきました…!!!
+
+ありがとうございました！ストーリー良すぎて繰り返し見てます。
+<img src="https://p.sda1.dev/20/721b25604f492bd06263d9b24f18f5a7/20241116_013825.jpg" referrerpolicy="no-referrer">
+

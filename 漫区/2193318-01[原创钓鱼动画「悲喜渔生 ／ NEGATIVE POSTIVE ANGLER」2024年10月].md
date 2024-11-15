@@ -70,3 +70,13 @@
 最后和鱼搏斗死于大海</blockquote>
 钓上人鱼/史前大海兽，被喂长生不死药
 
+
+*****
+
+####  渡边菌  
+##### 144#       发表于 2024-11-16 02:28
+
+昨天刚花了半小时在河边把自己甩飞的助投器找回来，这集男主单飞那段看得难受死了，别说jk了，连中大鱼切线都没体验过，其他的倒是一样没错过<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

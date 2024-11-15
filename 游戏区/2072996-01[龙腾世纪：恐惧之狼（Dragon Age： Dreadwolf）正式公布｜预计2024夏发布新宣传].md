@@ -6199,3 +6199,11 @@ IGN不是给了9分吗，怎么开始抽自己脸了</blockquote>
 
 说游戏性完胜7rb的真不是在钓鱼？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛亚替身  
+##### 1210#       发表于 2024-11-15 18:22
+
+不是。两周没一百万不可能吧？这数据EA不拆生软铁大善人了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

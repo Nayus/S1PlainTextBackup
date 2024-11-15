@@ -6283,3 +6283,32 @@ IGN不是给了9分吗，怎么开始抽自己脸了</blockquote>
 我去，我都没注意到这新闻，意思是吹比出来的销量有近一半是送的。万万没想到真做出把送的算销量这种事的 ...</blockquote>
 当然没实锤只是爆料，先后顺序是今年5月17日epic开始送DAI（包含DLC），然后9月份出来吹逼DAI总销量1200W，接着有人爆料600W是送出来的。作为参考，隔壁常年骨折价但没有送过的巫师3已经过5000W了
 
+
+*****
+
+####  xjtxp  
+##### 1218#       发表于 2024-11-16 06:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66704228&amp;ptid=2072996" target="_blank">Bieaeml 发表于 2024-11-15 19:06</a>
+
+就是今年9月份前执行制作人给出数据，吹逼DAI是生软最畅销的游戏，还超出了发行商EA的内部预期，现在来看 ...</blockquote>
+这数据让我最想吐槽的是，TOR在去年6月份被EA剥离生软前，注册玩家也是1200万+
+
+收入应该是十几亿美元——部分是推算，根据是19年TOR注册用户不足六百万时，EA的首席财务官兼首席运营官Blake jorgensen宣布TOR为EA带来将近十亿美元收入
+
+<img src="https://img.saraba1st.com/forum/202411/16/063613fbbphvx9p2hzqjh6.jpg" referrerpolicy="no-referrer">
+
+<strong>TOR1.jpg</strong> (98.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-16 06:36 上传
+
+<img src="https://img.saraba1st.com/forum/202411/16/063614wfcff4x7ba73crb8.jpg" referrerpolicy="no-referrer">
+
+<strong>TOR2.jpg</strong> (36.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-16 06:36 上传
+

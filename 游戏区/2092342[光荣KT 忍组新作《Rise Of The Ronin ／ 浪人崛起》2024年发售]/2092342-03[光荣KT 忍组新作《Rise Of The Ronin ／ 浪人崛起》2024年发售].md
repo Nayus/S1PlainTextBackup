@@ -92,3 +92,16 @@ pro感觉提升挺多的
 
 至少进横滨没有那种一眼糙的要死的感觉了
 
+
+*****
+
+####  葵  
+##### 3261#       发表于 2024-11-15 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66701926&amp;ptid=2092342" target="_blank">kangkangsama 发表于 2024-11-15 13:35</a>
+
+pro感觉提升挺多的
+
+至少进横滨没有那种一眼糙的要死的感觉了</blockquote>
+pro版分辨率提升了么？性能模式帧数能稳定60了么？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

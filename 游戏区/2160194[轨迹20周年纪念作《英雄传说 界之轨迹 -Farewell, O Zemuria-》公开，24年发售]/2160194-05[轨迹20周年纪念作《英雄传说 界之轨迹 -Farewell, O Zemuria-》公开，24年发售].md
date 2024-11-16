@@ -1527,3 +1527,13 @@ b站看到了个拿学妹新造型做的mmd，感觉下作必有类似剧情</bl
 股东每年都在问怎么又是轨迹</blockquote>
 今年该问为什么明年没有东迷2了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大暗月  
+##### 6940#       发表于 2024-11-16 22:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">我这几年的心态已经逐渐从“还好莱维没诈尸”变成“要不诈一诈吧”了，很怪
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

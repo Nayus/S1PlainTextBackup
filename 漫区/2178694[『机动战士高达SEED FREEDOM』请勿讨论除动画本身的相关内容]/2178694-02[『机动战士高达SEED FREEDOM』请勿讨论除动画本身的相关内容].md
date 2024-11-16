@@ -136,3 +136,11 @@ https://x.com/toxan_7/status/1855963035321643438</blockquote>
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  七七見奈波  
+##### 1998#       发表于 2024-11-16 11:00
+
+还是扎夫特的军装好看，剪裁配色也合理，罗盘搞个红衣配蓝帽子什么zz配色<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">整个服装鞋履设计突出一个对扎夫特联合奥布三家取其糟粕去其精华，拉克丝的信长装比种和种命那两身难看一万倍（虽然那两身也就那样吧）
+

@@ -156,3 +156,33 @@
 
 很难过 怎么没有都变成猫舔毛的环节<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绞首浪漫派丶  
+##### 2600#       发表于 2024-11-14 16:59
+
+很难过 怎么没有都变成猫舔毛的环节<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  犬飼いろは  
+##### 2601#       发表于 2024-11-16 11:04
+
+第41話　ユキ・オンステージ！
+
+脚本：井上美緒
+
+演出：横内一樹
+
+作画監督：増田誠治
+
+美術：中林由貴
+
+アニマルタウンの演劇祭で上演する劇に出演してほしい、と再び演劇部の狐崎と狸原に勧誘されるユキ（CV.松田颯水）。わんにゃん中の演劇部はコンクールで優勝するほどの実績があるが、やはりユキは引き受けない。そこに烏丸があらわれ、古い文献を悟に見せる。それは 150年ほど前に書かれた日記で、スバルという人が狼と仲良くなり、交流する様子が記されていた。日記からインスピレーションを受けた狐崎は、新しい劇のシナリオを書こうと、教室から駆け出していく。翌日、狐崎はひと晩で書き上げた新しい劇のシナリオを持ってくる。狼と人の友情を描いたファンタジー冒険活劇だったが、今から新しい劇を準備するには時間も人手も足りない。そこでこむぎ（CV.長縄まりあ）やいろは（CV.種﨑敦美）が手伝いを申し出ると、まゆ（CV.上田麗奈）も衣装を作る、と言い出し、ユキも「まゆの作った衣装が着られるのなら」と出演を引き受ける。
+<img src="https://files.catbox.moe/mkz0dd.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/x2ikrh.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/eqhjzf.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/e9kp0x.jpg" referrerpolicy="no-referrer">
+

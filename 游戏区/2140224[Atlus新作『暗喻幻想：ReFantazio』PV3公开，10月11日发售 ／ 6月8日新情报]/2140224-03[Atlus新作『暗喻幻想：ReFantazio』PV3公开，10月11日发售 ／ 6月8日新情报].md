@@ -6602,3 +6602,15 @@ SMT 的 press turn 与世界树的职业 + 前后排机制是一次失败的融�
 
 不要天天玩旧p组的弱智boss设计和数值设计游戏就觉得全世界游戏这方面都是弱智了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罗克萨斯  
+##### 3549#       发表于 2024-11-16 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66709854&amp;ptid=2140224" target="_blank">ouyang菌 发表于 2024-11-16 19:36</a>
+数值崩坏到随手一刀都能秒boss和需要针对性的构筑和探索才能组成的otk是两码子事，就像smt4凹闩投15连和sm ...</blockquote>
+随手一刀过分了，卡一晚上过不了的大有人在<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

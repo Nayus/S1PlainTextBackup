@@ -1505,3 +1505,15 @@ b站看到了个拿学妹新造型做的mmd，感觉下作必有类似剧情</bl
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">算你们有点良心没让菜堆诈尸
 
+
+*****
+
+####  卢迪克  
+##### 6938#       发表于 2024-11-16 21:49
+
+<blockquote>洛克萨斯 发表于 2024-11-16 21:35
+今年会有股东在大会点草社长为什么明年不出界轨2么
+
+</blockquote>
+股东每年都在问怎么又是轨迹
+

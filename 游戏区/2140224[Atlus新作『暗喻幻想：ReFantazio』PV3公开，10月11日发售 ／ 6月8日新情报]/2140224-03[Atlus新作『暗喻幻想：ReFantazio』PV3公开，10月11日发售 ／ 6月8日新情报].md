@@ -6560,3 +6560,28 @@ SMT 的 press turn 与世界树的职业 + 前后排机制是一次失败的融�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  苏斯赫查  
+##### 3546#       发表于 2024-11-16 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66709349&amp;ptid=2140224" target="_blank">石中剑二 发表于 2024-11-16 18:12</a>
+闪避戒指买多少个好？减少合体消耗的饰品用买吗？</blockquote>
+闪避戒指不用买，合体买7个
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+
+*****
+
+####  苏斯赫查  
+##### 3547#       发表于 2024-11-16 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66709749&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-11-16 19:17</a>
+回合制的乐趣巅峰，还得是宝可梦PVP。除此之外的，还是以速杀或者以小博大为目的build更有乐趣
+
+话说，真 ...</blockquote>
+地球系列不就这样，一样好玩啊
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+

@@ -6693,3 +6693,16 @@ SMT 的 press turn 与世界树的职业 + 前后排机制是一次失败的融�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  牙狼GARO  
+##### 3556#       发表于 2024-11-17 07:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66712464&amp;ptid=2140224" target="_blank">蟹粉小笼 发表于 2024-11-17 07:02</a>
+竞技场30连胜居然把我打了个通宵，最终战之前还有几天空着就想把这个杯打了结果怎么怪物池里还有除了光属性 ...</blockquote>
+我只打了最高级别的30连战，很简单啊，而且可以上队友，对面就60几级，小丑的合体万能炸一圈，灵魂黑客万能击杀回mp再炸一圈基本就结束了，跟永动机一样。
+你是不是前面打的要主角单刷的内容，这会儿没上队友？
+
+—— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

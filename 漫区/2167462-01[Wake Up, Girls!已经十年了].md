@@ -1077,3 +1077,20 @@ box
 指 青山吉能</blockquote>
 有劳回复了
 
+
+*****
+
+####  芜湖挨宰  
+##### 106#       发表于 2024-11-16 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66562929&amp;ptid=2167462" target="_blank">芜湖挨宰 发表于 2024-10-28 20:15</a>
+全部延期了。
+
+近岡直是不是很久没画画了，要复健吗</blockquote>
+果然是太久没画画要复健<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+后两张cd封面画的比第一张好
+<img src="https://p.sda1.dev/20/6cc29bd24e3ca9ea62080f1f4089b4ec/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

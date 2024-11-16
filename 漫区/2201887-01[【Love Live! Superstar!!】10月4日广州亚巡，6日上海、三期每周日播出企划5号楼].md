@@ -9717,3 +9717,18 @@ ps：Luna两年没在b站更新夏季特辑了，怕不是忘号了
 ありがとうございました！ストーリー良すぎて繰り返し見てます。
 <img src="https://p.sda1.dev/20/721b25604f492bd06263d9b24f18f5a7/20241116_013825.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 956#       发表于 2024-11-16 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66706067&amp;ptid=2201887" target="_blank">Piano-Forest 发表于 2024-11-16 01:39</a>
+
+https://x.com/k_ritsu62/status/1856697525081948547
+
+3話もダンスパート原画描かせていただいたので！
+
+二 ...</blockquote>
+可可这个头饰我一开始以为是猫耳，仔细看感觉，更像是鹿耳+小鹿角？
+

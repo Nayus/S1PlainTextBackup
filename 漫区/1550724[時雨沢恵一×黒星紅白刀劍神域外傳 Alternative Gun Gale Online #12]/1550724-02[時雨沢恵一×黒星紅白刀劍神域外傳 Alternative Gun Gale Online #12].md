@@ -29,3 +29,18 @@
 
 Scan应该没有漏网之鱼的
 
+
+*****
+
+####  mhss  
+##### 1956#       发表于 2024-11-16 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66707453&amp;ptid=1550724" target="_blank">梶原ひかり 发表于 2024-11-16 12:06</a>
+
+消音信息 应该类似我不是跟你们一队的背叛者
+
+Scan应该没有漏网之鱼的</blockquote>
+重翻了下第6集结尾，难道是那一发电浆弹已经把除了冲过来之外的全灭团了？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+消音结合前后演出，你说的应该是对的，我往透漏现实身份那里（开完演唱会疲倦，小休又被打扰之类的）去想了
+

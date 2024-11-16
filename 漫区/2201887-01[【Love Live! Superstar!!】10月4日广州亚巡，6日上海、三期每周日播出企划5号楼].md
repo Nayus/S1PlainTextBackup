@@ -9740,3 +9740,14 @@ https://x.com/k_ritsu62/status/1856697525081948547
 
 就是猫耳吧，可可喜欢的动物是猫，下面那个像小角质一样的大概是类似带子打结会多出来的两“小耳朵”
 
+
+*****
+
+####  cat1230  
+##### 958#       发表于 2024-11-16 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66706560&amp;ptid=2201887" target="_blank">ads147147 发表于 2024-11-16 09:08</a>
+
+可可这个头饰我一开始以为是猫耳，仔细看感觉，更像是鹿耳+小鹿角？</blockquote>
+我觉得更像绵羊头饰。十二生肖守护神里诗芙丽那样。
+

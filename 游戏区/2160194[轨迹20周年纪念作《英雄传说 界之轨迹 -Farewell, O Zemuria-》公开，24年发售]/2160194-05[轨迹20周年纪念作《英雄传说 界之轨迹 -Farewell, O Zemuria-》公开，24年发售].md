@@ -1381,3 +1381,22 @@ fc和sc是隔了1年9个月
 
 界2要做的不过是写剧情台词做对话演出，其他全部都省了，这套模式就是falcom的舒适区，一年一作甚至两作没啥问题，就看要不要安排了。
 
+
+*****
+
+####  Aeons  
+##### 6927#       发表于 2024-11-16 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66708126&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-11-16 14:16</a>
+电击征集玩家提问的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">以前很多采访也都征集的啊，征集都可以筛的吧
+
+*****
+
+####  一步成诗  
+##### 6928#       发表于 2024-11-16 14:29
+
+　※インタビュー内容が膨大だったため、記事は前後半構成とさせていただきます。後半もすぐアップされる予定ですので、どうかしばしお待ちください！
+
+精彩的都在后篇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

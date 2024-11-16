@@ -68,3 +68,11 @@ Scan应该没有漏网之鱼的</blockquote>
 
 小卫卫也是有点智商下线了，我一看倒在舰桥的装甲人身上没dead标就知道有问题，你还好意思近身<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ParadiseMartyr  
+##### 1960#       发表于 2024-11-16 16:32
+
+这集挺疯的，感觉不错
+

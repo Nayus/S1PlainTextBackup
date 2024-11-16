@@ -1465,3 +1465,14 @@ b站看到了个拿学妹新造型做的mmd，感觉下作必有类似剧情<img
 
 — from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  flxgundam  
+##### 6934#       发表于 2024-11-16 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66709069&amp;ptid=2160194" target="_blank">ouyang菌 发表于 2024-11-16 17:26</a>
+
+b站看到了个拿学妹新造型做的mmd，感觉下作必有类似剧情</blockquote>
+学妹穿完全没感到色气，这个好涩
+

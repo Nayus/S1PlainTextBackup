@@ -6546,3 +6546,17 @@ SMT 的 press turn 与世界树的职业 + 前后排机制是一次失败的融�
 
 反正暗喻这后期boss的ai全是一套模板，特殊机制也没多少，打起来的体验不说一模一样只能说大差不差，猴戏一刀流才是最有体验的玩法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罗克萨斯  
+##### 3545#       发表于 2024-11-16 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66709609&amp;ptid=2140224" target="_blank">ouyang菌 发表于 2024-11-16 18:57</a>
+反正暗喻这后期boss的ai全是一套模板，特殊机制也没多少，打起来的体验不说一模一样只能说大差不差，猴戏一 ...</blockquote>
+回合制的乐趣巅峰，还得是宝可梦PVP。除此之外的，还是以速杀或者以小博大为目的build更有乐趣
+
+话说，真有人喜欢和BOSS你拍一我拍一玩几十回合嘛，那我只能说没苦硬吃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

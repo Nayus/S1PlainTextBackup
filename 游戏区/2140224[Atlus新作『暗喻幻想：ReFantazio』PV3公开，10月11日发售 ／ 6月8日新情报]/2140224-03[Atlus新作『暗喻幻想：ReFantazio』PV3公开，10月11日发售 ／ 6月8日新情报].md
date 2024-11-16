@@ -6585,3 +6585,20 @@ SMT 的 press turn 与世界树的职业 + 前后排机制是一次失败的融�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
 
+
+*****
+
+####  ouyang菌  
+##### 3548#       发表于 2024-11-16 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66709749&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-11-16 19:17</a>
+
+回合制的乐趣巅峰，还得是宝可梦PVP。除此之外的，还是以速杀或者以小博大为目的build更有乐趣
+
+话说，真 ...</blockquote>
+数值崩坏到随手一刀都能秒boss和需要针对性的构筑和探索才能组成的otk是两码子事，就像smt4凹闩投15连和smtv的一回合人修罗都是单回合秒杀但是成就感截然不同<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+滑坡到你拍一我拍一就是没意思也是一种弃疗想法，沙加新作，世界树迷宫，甚至说杀戮尖塔这种回合制游戏拉长线了战斗体验不也十分良好
+
+不要天天玩旧p组的弱智boss设计和数值设计游戏就觉得全世界游戏这方面都是弱智了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

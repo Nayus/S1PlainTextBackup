@@ -1400,3 +1400,19 @@ fc和sc是隔了1年9个月
 
 精彩的都在后篇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 6929#       发表于 2024-11-16 15:44
+
+ 本帖最后由 卢迪克 于 2024-11-16 15:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66707963&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-11-16 13:42</a>
+
+黎1：黎2开头就有重大事件
+
+黎2：界开头就有重大展开
+
+界：次作开头就有前所未有的大场面</blockquote>
+轨迹现在就是先构思开头和结尾各一个大场面，这是近藤参与，搞完就不管，中间靠注水通马桶，质量如何靠编剧本事，中间的剧情你问近藤，他表示我不道<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+

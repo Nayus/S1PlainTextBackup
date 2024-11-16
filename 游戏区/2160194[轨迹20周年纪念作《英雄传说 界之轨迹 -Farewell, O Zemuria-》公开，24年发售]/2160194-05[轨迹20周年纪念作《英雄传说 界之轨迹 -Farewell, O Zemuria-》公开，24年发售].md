@@ -1427,3 +1427,19 @@ fc和sc是隔了1年9个月
 主要感觉他这次访谈提到很多让玩家期待续作，边轨迹学边等续作，并且也知道玩家在催，没有那种类似“这部完 ...</blockquote>
 界之轨迹皇家版堂堂发售
 
+
+*****
+
+####  ouyang菌  
+##### 6931#       发表于 2024-11-16 17:26
+
+b站看到了个拿学妹新造型做的mmd，感觉下作必有类似剧情<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202411/16/172557u36dee6ep6zeyd6d.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (146.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-16 17:25 上传
+

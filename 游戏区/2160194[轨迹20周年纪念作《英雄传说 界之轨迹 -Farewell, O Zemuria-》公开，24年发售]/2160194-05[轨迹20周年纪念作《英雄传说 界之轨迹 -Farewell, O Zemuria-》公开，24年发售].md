@@ -1451,3 +1451,17 @@ b站看到了个拿学妹新造型做的mmd，感觉下作必有类似剧情<img
 
 按电击采访最后一个说的，下作肯定是从黎1开始喽
 
+
+*****
+
+####  super_uni  
+##### 6933#       发表于 2024-11-16 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66693540&amp;ptid=2160194" target="_blank">winggg 发表于 2024-11-14 11:04</a>
+（手动滑稽）
+
+其实你们误会了。</blockquote>
+泥有点极端了，当心被琪雅制裁<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

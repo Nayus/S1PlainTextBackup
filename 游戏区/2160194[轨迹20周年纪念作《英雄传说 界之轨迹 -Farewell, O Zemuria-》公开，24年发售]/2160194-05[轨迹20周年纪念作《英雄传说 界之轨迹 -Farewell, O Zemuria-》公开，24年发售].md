@@ -1068,3 +1068,13 @@ fc和sc是隔了1年9个月
 
 哦哦 是不是零碧有个角色也是这发色 也是记者 我好像记混了
 
+
+*****
+
+####  reidel  
+##### 6899#       发表于 2024-11-16 12:07
+
+[https://dengekionline.com/article/202411/23517](https://dengekionline.com/article/202411/23517)
+
+社长又开始放屁了
+

@@ -162,3 +162,13 @@ https://x.com/toxan_7/status/1855963035321643438</blockquote>
 
 大辅驾驶过黑强袭是吧 发出来无敌的声音
 
+
+*****
+
+####  super_uni  
+##### 2001#       发表于 2024-11-16 14:55
+
+给传说一个交代吧，好歹也是四天王<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

@@ -1279,3 +1279,45 @@ fc和sc是隔了1年9个月
 感觉没什么工作量，这采访都明牌下一作继续打黑之庭院，结社大部分角色都已经登场，还是共和国内的故事， ...</blockquote>
 但问题是空轨比界轨难搞吧？新地图新角色，是工期最大的不确定因素了
 
+
+*****
+
+####  卢迪克  
+##### 6916#       发表于 2024-11-16 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66707973&amp;ptid=2160194" target="_blank">winggg 发表于 2024-11-16 13:44</a>
+
+但问题是空轨比界轨难搞吧？新地图新角色，是工期最大的不确定因素了</blockquote>
+是啊，界轨2横竖都是一个寄，注定不会分到资源，现有素材拼一拼<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  winggg  
+##### 6917#       发表于 2024-11-16 13:47
+
+ 本帖最后由 winggg 于 2024-11-16 13:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66707928&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-11-16 13:36</a>
+
+听君一席话，如听一席话
+
+最搞笑的还是大家猜来猜去为什么计划提前到学妹生日，社长：是巧合 ...</blockquote>
+估计后面细写推敲过后觉得原本设定的理由有逻辑漏洞，所以改了口，到续作的时候打个哈哈糊弄过去就算了（“哈哈，那是爸爸本来想在你生日那天送你的礼物。”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+
+
+*****
+
+####  一步成诗  
+##### 6918#       发表于 2024-11-16 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66707989&amp;ptid=2160194" target="_blank">winggg 发表于 2024-11-16 13:47</a>
+
+估计后面细写推敲过后觉得原本设定的理由有逻辑漏洞，所以改了口，到续作的时候打个哈哈糊弄过去就算了（ ...</blockquote>
+感觉要么是社长完全甩手掌柜不管轨迹，要么就是没人告诉他，所以采访只能说出是巧合这种话<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 6919#       发表于 2024-11-16 13:57
+
+近藤本来就不管轨迹剧情，除了提要求，问题都是现问的
+

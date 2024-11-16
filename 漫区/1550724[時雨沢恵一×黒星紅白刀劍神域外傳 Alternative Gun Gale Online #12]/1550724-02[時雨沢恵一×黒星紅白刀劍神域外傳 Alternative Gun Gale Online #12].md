@@ -52,3 +52,19 @@ Scan应该没有漏网之鱼的</blockquote>
 
 这两集真的难看
 
+
+*****
+
+####  oi99o  
+##### 1958#       发表于 2024-11-16 13:48
+
+看小说的时候没觉得有啥，一到动画做出来是真的尬<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  oi99o  
+##### 1959#       发表于 2024-11-16 13:51
+
+小卫卫也是有点智商下线了，我一看倒在舰桥的装甲人身上没dead标就知道有问题，你还好意思近身<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

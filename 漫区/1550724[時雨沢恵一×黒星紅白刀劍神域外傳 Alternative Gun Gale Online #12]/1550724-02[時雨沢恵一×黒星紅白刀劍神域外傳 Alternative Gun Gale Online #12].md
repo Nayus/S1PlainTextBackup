@@ -76,3 +76,11 @@ Scan应该没有漏网之鱼的</blockquote>
 
 这集挺疯的，感觉不错
 
+
+*****
+
+####  azbhg1  
+##### 1961#       发表于 2024-11-16 16:42
+
+背叛者作为游戏设计肯定是狗屎，不过作为剧情设定在最后再搞一出反转还是不错的<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+

@@ -166,3 +166,14 @@ dc6c6d575b401b8574ac6434eb10cab.jpg
 
 <img src="https://img.saraba1st.com/forum/202411/15/085811js2pky02s2jse8hl.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  慕容断月  
+##### 82#       发表于 2024-11-16 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66698355&amp;ptid=2206237" target="_blank">银色天空 发表于 2024-11-14 22:32</a>
+
+确实不能算好用，时不时的黑屏卡死，经常唤醒出现问题。虽然用惯了电子产品也能接受，但想想花了四千多大洋 ...</blockquote>
+所以这玩意真正的定位是大玩具，非常有阀门家的基因
+

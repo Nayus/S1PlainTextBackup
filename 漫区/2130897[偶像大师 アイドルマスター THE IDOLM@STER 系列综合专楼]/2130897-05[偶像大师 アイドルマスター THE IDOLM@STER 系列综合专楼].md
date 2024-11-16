@@ -735,3 +735,19 @@ solo1就上豪哥啊，会长
 
 2024-11-16 13:09 上传
 
+
+*****
+
+####  a85982313  
+##### 6695#       发表于 2024-11-16 19:08
+
+会长池干掉ptcg登顶了
+
+<img src="https://img.saraba1st.com/forum/202411/16/190812j1yhaec1bchychsy.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (23.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-16 19:08 上传
+

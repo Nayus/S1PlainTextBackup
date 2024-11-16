@@ -1094,3 +1094,17 @@ box
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  芜湖挨宰  
+##### 107#       发表于 2024-11-16 10:10
+
+这句我没看明白是谁？私服搭配是mayo选的，mayo是指真梦？
+
+<blockquote>私服の方のイラストの服もモヨさんに選んでもらいました！
+モヨさんは流行りをちゃんと追ってて良いの選んでくれるのでありがたいです！
+ファッションの解像度が高い！！</blockquote><img src="https://p.sda1.dev/20/c4aa2a459167ecbfc3fa1ccc9c1d1d10/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

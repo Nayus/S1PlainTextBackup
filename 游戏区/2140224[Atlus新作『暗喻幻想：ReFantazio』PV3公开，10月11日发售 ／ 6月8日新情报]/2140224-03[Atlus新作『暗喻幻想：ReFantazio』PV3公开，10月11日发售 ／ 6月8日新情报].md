@@ -6538,3 +6538,11 @@ SMT 的 press turn 与世界树的职业 + 前后排机制是一次失败的融�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ouyang菌  
+##### 3544#       发表于 2024-11-16 18:57
+
+反正暗喻这后期boss的ai全是一套模板，特殊机制也没多少，打起来的体验不说一模一样只能说大差不差，猴戏一刀流才是最有体验的玩法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

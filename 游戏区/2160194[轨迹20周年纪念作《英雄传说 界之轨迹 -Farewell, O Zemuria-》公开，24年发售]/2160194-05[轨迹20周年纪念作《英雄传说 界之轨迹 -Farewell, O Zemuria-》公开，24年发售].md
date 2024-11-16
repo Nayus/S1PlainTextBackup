@@ -1230,3 +1230,52 @@ fc和sc是隔了1年9个月
 
 说白了界2新地图最多几个迷宫,剩下都是素材,工期应该不存在啥问题
 
+
+*****
+
+####  一步成诗  
+##### 6912#       发表于 2024-11-16 13:36
+
+听君一席话，如听一席话
+
+最搞笑的还是大家猜来猜去为什么计划提前到学妹生日，社长：是巧合<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 6913#       发表于 2024-11-16 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66707928&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-11-16 13:36</a>
+
+听君一席话，如听一席话
+
+最搞笑的还是大家猜来猜去为什么计划提前到学妹生日，社长：是巧合 ...</blockquote>
+最搞笑还是每次都复读下一作开头大事件<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一步成诗  
+##### 6914#       发表于 2024-11-16 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66707937&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-11-16 13:38</a>
+
+最搞笑还是每次都复读下一作开头大事件</blockquote>
+黎1：黎2开头就有重大事件
+
+黎2：界开头就有重大展开
+
+界：次作开头就有前所未有的大场面
+
+狼来了次数都该用完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  winggg  
+##### 6915#       发表于 2024-11-16 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66707887&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-11-16 13:29</a>
+
+感觉没什么工作量，这采访都明牌下一作继续打黑之庭院，结社大部分角色都已经登场，还是共和国内的故事， ...</blockquote>
+但问题是空轨比界轨难搞吧？新地图新角色，是工期最大的不确定因素了
+

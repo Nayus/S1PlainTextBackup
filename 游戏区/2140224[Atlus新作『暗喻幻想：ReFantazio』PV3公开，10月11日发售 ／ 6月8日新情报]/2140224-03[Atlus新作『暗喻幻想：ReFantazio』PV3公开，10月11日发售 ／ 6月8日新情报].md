@@ -6643,3 +6643,21 @@ SMT 的 press turn 与世界树的职业 + 前后排机制是一次失败的融�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
 
+
+*****
+
+####  石中剑二  
+##### 3552#       发表于 2024-11-17 01:56
+
+火山迷宫太粪了，我找不到boss房了
+
+<img src="https://img.saraba1st.com/forum/202411/17/015625eff2vaw3xf3h7hb2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>772D0F35-B872-4E4B-8EA6-5D1040CADA32.jpeg</strong> (606.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-17 01:56 上传
+
+这个在墙后面的梯子怎么也去不了
+

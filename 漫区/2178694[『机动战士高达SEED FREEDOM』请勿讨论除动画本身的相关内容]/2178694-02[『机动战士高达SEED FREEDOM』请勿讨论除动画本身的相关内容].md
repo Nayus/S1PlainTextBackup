@@ -144,3 +144,13 @@ https://x.com/toxan_7/status/1855963035321643438</blockquote>
 
 还是扎夫特的军装好看，剪裁配色也合理，罗盘搞个红衣配蓝帽子什么zz配色<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">整个服装鞋履设计突出一个对扎夫特联合奥布三家取其糟粕去其精华，拉克丝的信长装比种和种命那两身难看一万倍（虽然那两身也就那样吧）
 
+
+*****
+
+####  アーリィ  
+##### 1999#       发表于 2024-11-16 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66705141&amp;ptid=2178694" target="_blank">natmk 发表于 2024-11-15 21:43</a>
+阿格妮丝的男友cv居然是小野大辅 这不会串到大和号吗</blockquote>
+还有森雪vs山本玲
+

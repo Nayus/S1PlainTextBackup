@@ -6614,3 +6614,18 @@ SMT 的 press turn 与世界树的职业 + 前后排机制是一次失败的融�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ouyang菌  
+##### 3550#       发表于 2024-11-16 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66709954&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-11-16 19:52</a>
+
+随手一刀过分了，卡一晚上过不了的大有人在
+
+—— 来自 S1Fun</blockquote>
+夸张说法而已，主要是想吐槽这个数值给的确实离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+反倒是历来一直脚填数值的八艘跳给的数值又过于保守了，明明是皇家战士才能学的专属，结果耗蓝奇高还没啥伤害
+

@@ -677,3 +677,61 @@ solo1就上豪哥啊，会长
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这集闪彩窝可不可以理解成 白濑咲耶想单飞不慎泄露，被队友架住以后月冈恋钟选择原谅她
 
+
+*****
+
+####  游蜓  
+##### 6691#       发表于 2024-11-16 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66705816&amp;ptid=2130897" target="_blank">鳄鱼头 发表于 2024-11-16 00:13</a>
+
+给新人的solo1上椎名豪还是太早了，完全就驾驭不了</blockquote>
+看新人的成长也是偶像的醍醐味，问题不大
+
+*****
+
+####  游蜓  
+##### 6692#       发表于 2024-11-16 11:51
+
+雀魂联动就干脆n组啊，没有我们最新最潮的透🕊️
+
+—— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  magicc  
+##### 6693#       发表于 2024-11-16 11:55
+
+居然没有冬优子，意料之外
+
+*****
+
+####  虚无缥缈的光阴  
+##### 6694#       发表于 2024-11-16 13:09
+
+会长可以弄个初星学园节奏榜了
+
+<img src="https://img.saraba1st.com/forum/202411/16/130900lswzqv33zwqsr6ar.png" referrerpolicy="no-referrer">
+
+<strong>O10U1Y(PE7MV87UU[M`V~7E.png</strong> (75.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-16 13:09 上传
+
+<img src="https://img.saraba1st.com/forum/202411/16/130900lc7zyptccpueup00.png" referrerpolicy="no-referrer">
+
+<strong>31U_%~6AY`C_418BNS@X`P9.png</strong> (73.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-16 13:09 上传
+
+<img src="https://img.saraba1st.com/forum/202411/16/130900ksszamiijojjli88.png" referrerpolicy="no-referrer">
+
+<strong>%YN{BJ(W82YY`99)192UV2T.png</strong> (74.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-16 13:09 上传
+

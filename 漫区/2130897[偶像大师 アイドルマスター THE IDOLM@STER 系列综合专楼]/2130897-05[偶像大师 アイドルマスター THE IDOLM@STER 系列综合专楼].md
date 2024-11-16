@@ -648,3 +648,32 @@ solo1就上豪哥啊，会长
 
 美玲Solo1是《Moon Turtle》，贷款一个井上拓好了（
 
+
+*****
+
+####  鳄鱼头  
+##### 6687#       发表于 2024-11-16 00:13
+
+给新人的solo1上椎名豪还是太早了，完全就驾驭不了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhwpjy  
+##### 6688#       发表于 2024-11-16 00:15
+
+小秦会不会神前晓
+
+*****
+
+####  Unlight  
+##### 6689#         楼主| 发表于 2024-11-16 02:23
+
+美玲Solo1是《Moon Turtle》，贷款一个井上拓好了（
+
+*****
+
+####  Mc凉月奏酱  
+##### 6690#       发表于 2024-11-16 10:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这集闪彩窝可不可以理解成 白濑咲耶想单飞不慎泄露，被队友架住以后月冈恋钟选择原谅她
+

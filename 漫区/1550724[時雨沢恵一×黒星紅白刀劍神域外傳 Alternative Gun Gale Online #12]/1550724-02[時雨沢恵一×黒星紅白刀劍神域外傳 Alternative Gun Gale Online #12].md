@@ -12,3 +12,20 @@
 
 另外母猩猩队没有给出灭队演出，我估计是这届冠军，可能身处某个屏蔽信号的地点或是信号覆盖不到的地方？
 
+
+*****
+
+####  梶原ひかり  
+##### 1955#       发表于 2024-11-16 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66707185&amp;ptid=1550724" target="_blank">mhss 发表于 2024-11-16 11:18</a>
+
+撞楼乐子猜到了，背叛者身份翻转是真没猜错
+
+疯婆子拼刀前透漏的消音信息是什么？
+
+另外母猩猩队没有给出灭队 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">消音信息 应该类似我不是跟你们一队的背叛者
+
+Scan应该没有漏网之鱼的
+

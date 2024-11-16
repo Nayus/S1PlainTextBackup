@@ -1181,3 +1181,30 @@ fc和sc是隔了1年9个月
 
 <img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">我只能说建议看原文
 
+
+*****
+
+####  卢迪克  
+##### 6908#       发表于 2024-11-16 13:17
+
+ 本帖最后由 卢迪克 于 2024-11-16 13:20 编辑 
+
+怎么没人问问为什么没有正式pv，毕竟这是一款只有web cm的游戏，甚至体验版都没有，黎12伊苏x这时候都上架psn商店了，很小丑了<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  winggg  
+##### 6909#       发表于 2024-11-16 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66707744&amp;ptid=2160194" target="_blank">hkguty 发表于 2024-11-16 13:05</a>
+
+感觉应该不会拖两年</blockquote>
+看来法社从一年一作改成一年两作，应该是3月前后、9月前后各出一部了
+
+新的迷城应该是NS2独占，最有可能预订是26年9月前后出
+
+工期顺利的话，我猜，空轨1st25年3月，界轨续集25年9月
+
+不顺利就空轨25年9月，界轨26年3月
+

@@ -1208,3 +1208,25 @@ fc和sc是隔了1年9个月
 
 不顺利就空轨25年9月，界轨26年3月
 
+
+*****
+
+####  卢迪克  
+##### 6910#       发表于 2024-11-16 13:29
+
+ 本帖最后由 卢迪克 于 2024-11-16 13:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66707870&amp;ptid=2160194" target="_blank">winggg 发表于 2024-11-16 13:24</a>
+
+看来法社从一年一作改成一年两作，应该是3月前后、9月前后各出一部，
+
+新的迷城应该是NS2年内独占，是最有 ...</blockquote>
+感觉没什么工作量，这采访都明牌下一作继续打黑之庭院，有庭院的剧情都不会多<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  センコウ  
+##### 6911#       发表于 2024-11-16 13:34
+
+说白了界2新地图最多几个迷宫,剩下都是素材,工期应该不存在啥问题
+

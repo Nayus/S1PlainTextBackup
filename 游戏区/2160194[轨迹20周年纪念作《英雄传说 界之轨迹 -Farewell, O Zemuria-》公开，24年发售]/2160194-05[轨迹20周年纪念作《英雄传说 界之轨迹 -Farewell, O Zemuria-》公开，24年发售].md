@@ -1484,3 +1484,24 @@ b站看到了个拿学妹新造型做的mmd，感觉下作必有类似剧情</bl
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今年会有股东在大会点草社长为什么明年不出界轨2么
 
+
+*****
+
+####  洛克萨斯  
+##### 6936#       发表于 2024-11-16 21:40
+
+目前我们还不能透露现在的世界中的诺华提斯是怎样的存在，但线索已经散布在各处，大家可以去找找看。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会已经出场了吧
+
+*****
+
+####  洛克萨斯  
+##### 6937#       发表于 2024-11-16 21:43
+
+不过目前的「残渣」成员仅限于与共和国相关的人物。虽然不能完全排除共和国之外的角色登场的可能性，但这毕竟是共和国篇的故事，如果再加入国外的角色就会没完没了。
+
+另外，那些人生没有遗憾、没有未尽之事的人应该不会出现在「残渣」中……比如像「剑帝」或「铁血宰相」这样的角色。这就是梅鲁奇欧出现了但杰拉尔没有出现的原因。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">算你们有点良心没让菜堆诈尸
+

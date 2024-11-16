@@ -1416,3 +1416,14 @@ fc和sc是隔了1年9个月
 界：次作开头就有前所未有的大场面</blockquote>
 轨迹现在就是先构思开头和结尾各一个大场面，这是近藤参与，搞完就不管，中间靠注水通马桶，质量如何靠编剧本事，中间的剧情你问近藤，他表示我不道<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 6930#       发表于 2024-11-16 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66708091&amp;ptid=2160194" target="_blank">hkguty 发表于 2024-11-16 14:08</a>
+
+主要感觉他这次访谈提到很多让玩家期待续作，边轨迹学边等续作，并且也知道玩家在催，没有那种类似“这部完 ...</blockquote>
+界之轨迹皇家版堂堂发售
+

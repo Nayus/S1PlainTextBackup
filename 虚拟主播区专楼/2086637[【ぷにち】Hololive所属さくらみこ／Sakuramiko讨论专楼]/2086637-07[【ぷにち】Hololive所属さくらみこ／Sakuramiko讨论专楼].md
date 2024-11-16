@@ -15842,3 +15842,34 @@ live结束大半个月了现在才想起来把MV放街头大屏宣传了海星
 
 <blockquote>AICotomo「さくらみこさんはFPSとか格闘ゲームが得意だよね」</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 10179#         楼主| 发表于 2024-11-16 10:23
+
+<img src="https://img.saraba1st.com/forum/202411/16/102259p26rcnn1x8tmmqnp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (39.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-16 10:22 上传
+
+2@1<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问题是选谁
+
+不会要专门弄个企划来选人吧
+
+*****
+
+####  holoan  
+##### 10180#         楼主| 发表于 2024-11-16 10:47
+
+<img src="https://img.saraba1st.com/forum/202411/16/104747zex1011xahfmyqth.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (12.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-16 10:47 上传
+

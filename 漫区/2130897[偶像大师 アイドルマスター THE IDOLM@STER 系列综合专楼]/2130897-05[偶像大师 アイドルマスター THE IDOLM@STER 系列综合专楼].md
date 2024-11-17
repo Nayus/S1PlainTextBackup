@@ -768,3 +768,14 @@ solo1就上豪哥啊，会长
 
 <img src="https://img.saraba1st.com/forum/202411/17/110803e66e0th8nzxzawsb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  magicc  
+##### 6697#       发表于 2024-11-17 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66713285&amp;ptid=2130897" target="_blank">kirakira~ 发表于 2024-11-17 11:08</a>
+
+不知道算不算火星，但是刚才发的高清专辑封面能看到作词作曲都是山内祐介 ...</blockquote>
+里御三家全是自家人哦
+

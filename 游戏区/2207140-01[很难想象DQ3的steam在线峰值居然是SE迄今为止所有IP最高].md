@@ -586,3 +586,11 @@ DQ里的数值用现在话来说抠抠索索的，每一格HP都很硬，不像F
 
 说人话就是打怪升级，打更多的怪升更多的级！<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  operatbig  
+##### 52#       发表于 2024-11-17 15:26
+
+小吉的18个月长卖计划还剩几天？<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

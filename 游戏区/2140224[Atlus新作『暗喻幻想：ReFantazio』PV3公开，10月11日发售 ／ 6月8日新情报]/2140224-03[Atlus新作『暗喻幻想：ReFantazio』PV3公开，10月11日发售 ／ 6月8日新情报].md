@@ -6742,3 +6742,14 @@ SMT 的 press turn 与世界树的职业 + 前后排机制是一次失败的融�
 补丁：破案了就是进竞技场之前需要打开小队编辑把队友重新编排进去不然就跟我一样只能主角一个上场了
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  2015年入股市  
+##### 3560#       发表于 2024-11-17 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66713257&amp;ptid=2140224" target="_blank">蟹粉小笼 发表于 2024-11-17 11:03</a>
+
+不是，我去搜了下视频，怎么别人的竞技场这个成就解锁，包括打蛙人包括三十连都是可以四人小队上场带着队友 ...</blockquote>
+你可能刚打完一个单人的任务,然后没把队友重新编队
+

@@ -1565,3 +1565,11 @@ b站看到了个拿学妹新造型做的mmd，感觉下作必有类似剧情</bl
 とはいえストーリー上で何がどうなるとか、プロット自体は当然もう決まっています。
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  smdzh2  
+##### 6944#       发表于 2024-11-17 11:31
+
+界2被空r吸干了是吧？苦境.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

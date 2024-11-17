@@ -6392,3 +6392,16 @@ DA其实有不少设定其实挺草台凑合的，比如塞达斯这个名字的
 是，在菜单里玩魔晶石排列组合的时间比战斗时长还多，但远不及小游戏时长的FF7RB游戏性实在太高了。 ...</blockquote>
 7RB好歹不同机制的boss还是有不少，DATV连精英怪都没几个特殊品种……
 
+
+*****
+
+####  RTLordCaptain  
+##### 1226#       发表于 2024-11-18 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66716712&amp;ptid=2072996" target="_blank">Kaornao 发表于 2024-11-17 21:28</a>
+
+三天浅玩了30小时，战斗挺爽的（虽然视角很粪），探索箱庭的过程设计的挺爽的，有点懂有的人说类似新战神的 ...</blockquote>
+删除了所有人vs精 法师vs非法师矛盾，所有邪恶全部有两个少儿卡通大boss加上邪教徒和叛坤牛头人背负。甚至队友几乎都没有什么负面特质（至少是编剧看来的），一个被法师做过实验，恶魔附体的刺客，理论上挂着DA2安德斯和芬里斯两个人的flag，结果队友互动里天天在泡咖啡<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer"> 恶魔除了偶热整个一点也不幽默的活完全人畜无害
+
+DA2我能反复刷地图就为了看这两人（还有臭弟弟）互怼，还会特意到维基上找有没有看漏的对话。而DATV只想全程快进，剧情张力为零
+

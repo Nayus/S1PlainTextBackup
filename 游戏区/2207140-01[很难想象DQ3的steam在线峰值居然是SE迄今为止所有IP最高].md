@@ -1,0 +1,483 @@
+﻿
+*****
+
+####  百特曼  
+##### 1#       楼主       发表于 2024-11-17 00:45
+
+ 本帖最后由 百特曼 于 2024-11-17 00:52 编辑 
+
+<img src="https://img.saraba1st.com/forum/202411/17/000935fhgv7e0dxeg9xrde.png" referrerpolicy="no-referrer">
+
+<strong>勇者斗恶龙.png</strong> (67.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-17 00:09 上传
+
+日厂里技术力最好的之一，早早开始高清化开发战略，但因为平台战略感觉像是错失了两个世代，居然被一款复古重制还是严重依赖日本本土市场，steam大劣势的DQ直到现在才刷新了本社记录
+
+<img src="https://img.saraba1st.com/forum/202411/17/001343u6kmth7h1fl1hhmf.png" referrerpolicy="no-referrer">
+
+<strong>最终幻想.png</strong> (207.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-17 00:13 上传
+
+FF还是靠发售2年后移植PC的15扛把子到现在
+
+再看看其他日厂的各自最高
+
+<img src="https://img.saraba1st.com/forum/202411/17/001822leuygy9fgz797e7q.png" referrerpolicy="no-referrer">
+
+<strong>老头环.png</strong> (48.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-17 00:18 上传
+
+万代的艾尔登法环
+
+<img src="https://img.saraba1st.com/forum/202411/17/001942dllsz9mvmsmro9o9.png" referrerpolicy="no-referrer">
+
+<strong>怪猎.png</strong> (64.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-17 00:19 上传
+
+卡普空的怪猎
+
+<img src="https://img.saraba1st.com/forum/202411/17/002028ve125cs51a5thhsz.png" referrerpolicy="no-referrer">
+
+<strong>游戏王.png</strong> (62.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-17 00:20 上传
+
+科乐美的游戏王
+
+<img src="https://img.saraba1st.com/forum/202411/17/002211roloxlold61q3l3x.png" referrerpolicy="no-referrer">
+
+<strong>暗喻幻想.png</strong> (67.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-17 00:22 上传
+
+世嘉的暗喻幻想
+
+<img src="https://img.saraba1st.com/forum/202411/17/002237mef6ite8tqqpqqqt.png" referrerpolicy="no-referrer">
+
+<strong>卧龙.png</strong> (60.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-17 00:22 上传
+
+光荣的卧龙，甚至同步登录XGP
+
+而且这些日厂都不止列出的这些最高的IP，像卡普空的生化危机 龙信 街霸，万代的黑魂 龙珠 装甲核心，甚至破晓传说都有6万峰值300万销量，科乐美的合金装备、寂静岭，世嘉的女神异闻录，光荣的仁王
+
+<img src="https://img.saraba1st.com/forum/202411/17/003850tzhuqbrrk3obxzk3.png" referrerpolicy="no-referrer">
+
+<strong>最终幻想PC销量.png</strong> (368.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-17 00:38 上传
+
+<img src="https://img.saraba1st.com/forum/202411/17/004823lwtsic7cpcw2u33e.png" referrerpolicy="no-referrer">
+
+<strong>ff PC销量.png</strong> (395.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-17 00:48 上传
+
+再结合这个FF16的PC版新闻，FF吧有一部分人居然是在弹冠相庆，潜台词就是“看吧，上PC也没用”，我觉得这批人是真的想要这个IP完蛋的掘墓人
+
+这次DQ3重制肯定是爆的，就看爆到什么程度了，国外的销量贴已经在猜DQ3重制超FF7重生 in or out了。
+
+*****
+
+####  时空之旅  
+##### 2#       发表于 2024-11-17 00:54
+
+se赶紧把fft重制端上来，顺便再把寄生前夜1重制给搞了
+
+*****
+
+####  跑调跑掉  
+##### 3#       发表于 2024-11-17 00:56
+
+ 本帖最后由 跑调跑掉 于 2024-11-17 01:10 编辑 
+
+之后都同步pc了啊，感觉kh4和dq12就能把这破了，dq3在steam这种无情怀平台的吸引力还是低一点，dq11开拓出的新玩家和海外市场吃下的还是少了。
+
+*****
+
+####  mjzs07  
+##### 4#       发表于 2024-11-17 01:01
+
+游戏不好 什么平台都会暴死
+
+*****
+
+####  最美人贩子  
+##### 5#       发表于 2024-11-17 01:11
+
+DQ3确实好玩。
+
+其实将它归类为JRPG有点屈才了，DQ3就是正统的早期RPG。
+
+*****
+
+####  bletilla  
+##### 6#       发表于 2024-11-17 01:21
+
+你列举的这几个FF不是直接移植的冷饭就是不同步发售的，等FF7第三部看看新样本，这次估计PC会同步了吧
+
+*****
+
+####  猫不萌  
+##### 7#       发表于 2024-11-17 01:23
+
+是 SE 自己的问题，这几年主机游戏都在扩大发售平台，只有他一个人抱着独占策略导致导致 ip 萎缩
+
+*****
+
+####  127702  
+##### 8#       发表于 2024-11-17 01:40
+
+这重制也是新瓶装旧屎，
+
+一眼过去令人头痛的绕绕弯弯的各种道路尽头塞垃圾，
+
+没有任何特殊的地面塞道具（需要技能搭配收集），
+
+暗雷遇怪（金字塔最底层4步必定遇怪），
+
+多层复杂的迷宫不给保存点需要一口气打完（防止意外发生），
+
+不过是旧屎吃多麻木了，属于可以玩，但是不爽
+
+*****
+
+####  TTAA  
+##### 9#       发表于 2024-11-17 01:58
+
+总觉得……
+se好像有点看不到未来了
+
+—— 来自 OPPO PJR110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  毛利提督  
+##### 10#       发表于 2024-11-17 02:16
+
+ 本帖最后由 毛利提督 于 2024-11-17 02:23 编辑 
+
+有没有一种可能，人家意思是游戏质量不行，就算上了pc也救不了游戏，而不是把IP价值缩水甩锅到独占策略上幻想只要首发全平台一切都会好起来的
+
+我始终是这个观点：以FF16的游戏素质和移植质量，哪怕首发全平台最终销量也只不过是那300w首发凯子在几个平台间排列组合，比如买PC版不买PS5版这种，骗不到什么实际增量
+
+从7RE到16的稀烂PC移植水平以及7RB的灾难级优化来看，首发能恰到独占费SE怕不是自己都笑开花了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  suzakushi  
+##### 11#       发表于 2024-11-17 02:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">就FF16那素质，你说以后FF就这水平了那我只能加油使劲给坟头填土了。
+
+—— 来自 Sony XQ-AT52, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  可乐杜  
+##### 12#       发表于 2024-11-17 02:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66712154&amp;ptid=2207140" target="_blank">127702 发表于 2024-11-17 01:40</a>
+
+这重制也是新瓶装旧屎，
+
+一眼过去令人头痛的绕绕弯弯的各种道路尽头塞垃圾，
+
+没有任何特殊的地面塞道具（需 ...</blockquote>
+因为这游戏在画面和新增一个职业以外的内容可以说就是纯原汁原味的。
+
+SE连30年前FC时代的一些台词都懒得动一下的
+
+*****
+
+####  pf67  
+##### 13#       发表于 2024-11-17 03:16
+
+ 本帖最后由 pf67 于 2024-11-17 03:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66712037&amp;ptid=2207140" target="_blank">最美人贩子 发表于 2024-11-17 01:11</a>
+DQ3确实好玩。
+
+其实将它归类为JRPG有点屈才了，DQ3就是正统的早期RPG。</blockquote>
+问题是正统早期的rpg不就是正统王道的jrpg么
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  jy000129  
+##### 14#       发表于 2024-11-17 06:40
+
+FFT重制上STEAM我一定补票，但起码50%off再说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  千秋难诉  
+##### 15#       发表于 2024-11-17 08:24
+
+居然看不起吉田giegie的18个月销售计划，等秋促打0.5折狠狠用销量打你们脸
+
+*****
+
+####  gg142857  
+##### 16#       发表于 2024-11-17 08:33
+
+拉不出屎赖茅坑
+
+*****
+
+####  TonyKnight  
+##### 17#       发表于 2024-11-17 08:35
+
+漏了尼尔，不过也才2万出头
+
+*****
+
+####  死亡终点站  
+##### 18#       发表于 2024-11-17 08:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66712318&amp;ptid=2207140" target="_blank">可乐杜 发表于 2024-11-17 02:58</a>
+
+因为这游戏在画面和新增一个职业以外的内容可以说就是纯原汁原味的。
+
+SE连30年前FC时代的一些台词都懒得 ...</blockquote>
+还是有改的，男和女变成 角色A和角色B了。
+
+*****
+
+####  死亡终点站  
+##### 19#       发表于 2024-11-17 08:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66712154&amp;ptid=2207140" target="_blank">127702 发表于 2024-11-17 01:40</a>
+
+这重制也是新瓶装旧屎，
+
+一眼过去令人头痛的绕绕弯弯的各种道路尽头塞垃圾，
+
+没有任何特殊的地面塞道具（需 ...</blockquote>
+1. 又不是没有地图，觉得是垃圾可以直接走
+
+2. 这种有技能的，不功不过吧
+
+3. 有技能和道具减少遇敌率的，
+
+4. 既有自动保存，也有中断保存，你这个纯瞎喷了
+
+*****
+
+####  refiver  
+##### 20#       发表于 2024-11-17 08:42
+
+吉田：“不要说上PC再买这种话！”
+
+*****
+
+####  汪达  
+##### 21#       发表于 2024-11-17 09:03
+
+让人没想到的是日本PC玩家已经这么多了，日本人这几年终于想起来PC也能玩游戏了
+
+*****
+
+####  火鸡味锅巴  
+##### 22#       发表于 2024-11-17 09:07
+
+这几年SE的游戏主打一个 独占+高价+低质量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">SE能卖好才有鬼了
+
+*****
+
+####  RainbowSealife  
+##### 23#       发表于 2024-11-17 09:10
+
+<img src="https://img.saraba1st.com/forum/202411/17/091006u8o70affwz1nka91.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (560.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-17 09:10 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mimiced  
+##### 24#       发表于 2024-11-17 09:36
+
+se这些年端上来的的都是什么玩意，frospoken？ff16？一个ff7注水成3个70刀？也就八方2风评还行。
+不看重pc玩家，烂优化。国区高定价，jrpg那套东西不拉拢国区难道去指望欧美？atlus都知道黑猴之后永降国区，我刚买的smt5v买完就背刺永降，但是这个背刺我吃得爽，我知道以后可以当凯子少花好几百，你se呢？配钥匙吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Arians  
+##### 25#       发表于 2024-11-17 09:41
+
+你看看ff14，没记错的话是9w多
+
+*****
+
+####  汪达  
+##### 26#       发表于 2024-11-17 09:49
+
+别忘了SE有这个<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202411/17/094909cmtan7r7jxtmjmjn.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>ls2.jpeg</strong> (21.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-17 09:49 上传
+
+*****
+
+####  黑暗之眼  
+##### 27#       发表于 2024-11-17 09:52
+
+FF16那是质量问题，它活该。好玩的就是好玩的，不好玩就是不好玩，跟什么画面啊平台啊无关。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+*****
+
+####  五更伪境  
+##### 28#       发表于 2024-11-17 09:58
+
+批字辈理解一下，永远有自己的一套逻辑在是这样的
+
+*****
+
+####  空洞骑士  
+##### 29#       发表于 2024-11-17 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66712853&amp;ptid=2207140" target="_blank">汪达 发表于 2024-11-17 09:49</a>
+
+别忘了SE有这个</blockquote>
+奇异人生2有40万在线<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">等等，它第一章是不是免费的？
+
+*****
+
+####  汪达  
+##### 30#       发表于 2024-11-17 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66712907&amp;ptid=2207140" target="_blank">空洞骑士 发表于 2024-11-17 09:59</a>
+
+奇异人生2有40万在线等等，它第一章是不是免费的？</blockquote>
+是的，免费<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大十字紅朔  
+##### 31#       发表于 2024-11-17 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66712602&amp;ptid=2207140" target="_blank">死亡终点站 发表于 2024-11-17 08:36</a>
+
+还是有改的，男和女变成 角色A和角色B了。</blockquote>
+但装备还是分男装备女装备，有点搞笑
+
+*****
+
+####  华发夜眼[CN]  
+##### 32#       发表于 2024-11-17 11:37
+
+FF16这质量 上什么平台都是这么结果
+
+*****
+
+####  milky658  
+##### 33#       发表于 2024-11-17 11:53
+
+那可是dq3啊，引起过社会现象的dq3啊，也就国内完全不了解dq的玩家觉得它有本土暴死的可能性。steam是个添头，ns上更恐怖
+
+*****
+
+####  falloutfan  
+##### 34#       发表于 2024-11-17 11:58
+
+索尼和微软自家独占都全平台了，se还抱着索尼
+
+*****
+
+####  back57992  
+##### 35#       发表于 2024-11-17 12:03
+
+每年都感觉se要死，仔细想想手里的ip实在太多也很难死透
+
+*****
+
+####  KENN  
+##### 36#       发表于 2024-11-17 12:06
+
+没人不知道勇者斗恶龙吧
+小时候我不玩游戏都知道，同时还有塞尔达传说
+
+*****
+
+####  baizhi  
+##### 37#       发表于 2024-11-17 12:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">你他么FF16延迟一年才上的PC，真当别人PC玩家是捡垃圾的啊？
+
+—— 来自 OPPO PGBM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  hello0607  
+##### 38#       发表于 2024-11-17 12:20
+
+<blockquote>mimiced 发表于 2024-11-17 09:36
+se这些年端上来的的都是什么玩意，frospoken？ff16？一个ff7注水成3个70刀？也就八方2风评还行。
+
+不看重pc ...</blockquote>
+国人于其说喜欢jrpg不如说喜欢二次元rpg 这次dq3这种传统的评论数中文不如日语然后日语远低于英语 
+
+*****
+
+####  邬德强  
+##### 39#       发表于 2024-11-17 12:23
+
+FF16这坨臭狗屎别说0.5折，白送我也不会在PC再吃一次
+
+*****
+
+####  塔尔洛斯  
+##### 40#       发表于 2024-11-17 13:23
+
+国内sns和论坛对传说和dq这些东西讨论度都不如轨迹和xb，早就脱节了。
+
+顺便kh我觉得真的就是死人东西，不知道下一作拿出来的时候销量又是啥样。
+
+
+*****
+
+####  horacio  
+##### 41#       发表于 2024-11-17 13:24
+
+不如说16晚一年至少舆论稳住了，我不敢想同步发售，就这素质pc玩家能喷几年不带重样的，至少小透明ff17还能继续出
+

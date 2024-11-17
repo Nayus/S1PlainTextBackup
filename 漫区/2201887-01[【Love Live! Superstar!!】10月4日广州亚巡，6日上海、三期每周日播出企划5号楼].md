@@ -9810,3 +9810,26 @@ jrpg传统测气量环节，应该结果留白入队了
 
 赢了就咋样，好有悬念哇<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ruffian  
+##### 966#       发表于 2024-11-17 16:37
+
+可可的edsolo就是故意卡的吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ads147147  
+##### 967#       发表于 2024-11-17 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66714997&amp;ptid=2201887" target="_blank">ruffian 发表于 2024-11-17 16:37</a>
+可可的edsolo就是故意卡的吧
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端</blockquote>
+事到如今就认了吧。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

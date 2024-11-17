@@ -6381,3 +6381,14 @@ DA其实有不少设定其实挺草台凑合的，比如塞达斯这个名字的
 
 周末了说好的官宣100W打脸呢。
 
+
+*****
+
+####  RTLordCaptain  
+##### 1225#       发表于 2024-11-18 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66715391&amp;ptid=2072996" target="_blank">体质的错 发表于 2024-11-17 17:57</a>
+
+是，在菜单里玩魔晶石排列组合的时间比战斗时长还多，但远不及小游戏时长的FF7RB游戏性实在太高了。 ...</blockquote>
+7RB好歹不同机制的boss还是有不少，DATV连精英怪都没几个特殊品种……
+

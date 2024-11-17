@@ -1119,3 +1119,31 @@ box
 moyo
 不是mayo
 
+
+*****
+
+####  芜湖挨宰  
+##### 109#       发表于 2024-11-17 22:04
+
+ 本帖最后由 芜湖挨宰 于 2024-11-17 22:05 编辑 
+
+终于拿到了BD封绘的海报。网图只有2000多分辨率我嫌小，画集里尺寸也只有A4。这样WUG这边应该再没什么想收藏的商品了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202411/17/214719qm7mmjrteemrev7m.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.26 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-17 21:47 上传
+
+比较可惜的是下面这张只出了毯子和A4文件夹，没有海报。我在考虑要不要把毯子表面印着画的那层布拆下来。
+
+<img src="https://img.saraba1st.com/forum/202411/17/220222xt2catp012pbp50a.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (84.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-17 22:02 上传
+

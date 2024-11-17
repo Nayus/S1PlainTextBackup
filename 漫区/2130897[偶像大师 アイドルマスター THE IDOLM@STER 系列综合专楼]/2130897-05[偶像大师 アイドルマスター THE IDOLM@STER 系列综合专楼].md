@@ -751,3 +751,20 @@ solo1就上豪哥啊，会长
 
 2024-11-16 19:08 上传
 
+
+*****
+
+####  kirakira~  
+##### 6696#       发表于 2024-11-17 11:08
+
+不知道算不算火星，但是刚才发的高清专辑封面能看到作词作曲都是山内祐介
+
+屏幕截图_16-11-2024_22753_x.com.jpeg
+(3.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-17 11:08 上传
+
+<img src="https://img.saraba1st.com/forum/202411/17/110803e66e0th8nzxzawsb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

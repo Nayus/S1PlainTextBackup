@@ -203,3 +203,11 @@
 
 第 41 集的 TVer 源（含日字）：magnet:?xt=urn:btih:3a0dfcf8c3b6183d1ff3665f7816d6562927874e
 
+
+*****
+
+####  成田良美  
+##### 2604#       发表于 2024-11-17 11:09
+
+主线并不重要，只要我笔下的主角小悟能够幸福，观众就会一本满足了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

@@ -614,3 +614,17 @@ DQ里的数值用现在话来说抠抠索索的，每一格HP都很硬，不像F
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.94-alpha
 
+
+*****
+
+####  jy000129  
+##### 55#       发表于 2024-11-17 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66714740&amp;ptid=2207140" target="_blank">ˉ_ˉ↓↓↓ 发表于 2024-11-17 15:59</a>
+说得好像dq不悲剧一样，dq4的剧情现在回想起来还让人作呕
+
+—— 来自 鹅球 v3.3.94-alpha ...</blockquote>
+DQ4就是剧情导演恶心玩家的，批倒批臭才是正确方式
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

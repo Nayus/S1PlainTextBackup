@@ -1770,3 +1770,14 @@ oo是贪污吗，一般这种情况肯定是有一条贪污链，所以即使明
 
 —— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  素盏鸣尊  
+##### 158#       发表于 2024-11-17 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66701553&amp;ptid=2206438" target="_blank">盗号找不回 发表于 2024-11-15 12:37</a>
+
+但是当年计划生育的政策反而在黑龙江执行的更好</blockquote>
+什么叫共和国长子（挺胸
+

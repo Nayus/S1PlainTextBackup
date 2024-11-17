@@ -9879,3 +9879,14 @@ jrpg传统测气量环节，应该结果留白入队了
 那么谁来投关键一票呢</blockquote>
 来个最都合的，全体校友拒绝投票并表示合并最好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 972#       发表于 2024-11-17 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66716307&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-11-17 20:24</a>
+
+来个最都合的，全体校友拒绝投票并表示合并最好</blockquote>
+这么拍那倒是真的好活
+

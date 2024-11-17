@@ -1758,3 +1758,15 @@ oo是贪污吗，一般这种情况肯定是有一条贪污链，所以即使明
 当年东三省不该计划生育，反而应该鼓励生育，吸引南方各路超生游击队过去多生孩子顺便定居 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是当年计划生育的政策反而在黑龙江执行的更好
 
+
+*****
+
+####  wxc060302  
+##### 157#       发表于 2024-11-17 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66701553&amp;ptid=2206438" target="_blank">盗号找不回 发表于 2024-11-15 12:37</a>
+但是当年计划生育的政策反而在黑龙江执行的更好</blockquote>
+仅限于体制内，事实上以前东北真有不少外地的超生游击队黑下来的，父母没有软肋就是这么硬气<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

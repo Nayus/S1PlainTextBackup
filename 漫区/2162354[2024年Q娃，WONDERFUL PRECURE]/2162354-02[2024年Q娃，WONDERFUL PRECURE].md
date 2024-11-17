@@ -186,3 +186,20 @@
 <img src="https://files.catbox.moe/eqhjzf.jpg" referrerpolicy="no-referrer">
 <img src="https://files.catbox.moe/e9kp0x.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 2602#       发表于 2024-11-17 08:04
+
+这集挺逗乐的，颜艺满载
+
+日记里的狼不出意外的话就是噶奥本狼了
+
+*****
+
+####  犬飼いろは  
+##### 2603#       发表于 2024-11-17 08:07
+
+第 41 集的 TVer 源（含日字）：magnet:?xt=urn:btih:3a0dfcf8c3b6183d1ff3665f7816d6562927874e
+

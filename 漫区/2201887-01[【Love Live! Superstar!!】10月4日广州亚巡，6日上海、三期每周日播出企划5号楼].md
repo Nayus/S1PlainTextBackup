@@ -9851,3 +9851,18 @@ jrpg传统测气量环节，应该结果留白入队了
 
 新吞老肯定老亏，这以后的liella等于是VN始まり了，肯定有人不接受的，起源再编面前加人减人都是小事了…
 
+
+*****
+
+####  ads147147  
+##### 970#       发表于 2024-11-17 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66715372&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-11-17 17:54</a>
+
+最后应该是平局吧…
+
+新吞老肯定老亏，这以后的liella等于是VN始まり了，肯定有人不接受的，起源再编面前加 ...</blockquote>
+平局。。。触发了今年不好的ptsd
+
+那么谁来投关键一票呢
+

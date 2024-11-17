@@ -6706,3 +6706,27 @@ SMT 的 press turn 与世界树的职业 + 前后排机制是一次失败的融�
 
 —— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  蟹粉小笼  
+##### 3557#       发表于 2024-11-17 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66712488&amp;ptid=2140224" target="_blank">牙狼GARO 发表于 2024-11-17 07:25</a>
+我只打了最高级别的30连战，很简单啊，而且可以上队友，对面就60几级，小丑的合体万能炸一圈，灵魂黑客万 ...</blockquote>
+我打的最高三十连只给主角一个上场没有队友只有主角一个在场，所以行动点只有一个，也用不了合题，为了解锁这个我主角还只能去换了个带最多魔法属性的召唤师<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  InfiniteGyre  
+##### 3558#       发表于 2024-11-17 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66713133&amp;ptid=2140224" target="_blank">蟹粉小笼 发表于 2024-11-17 10:41</a>
+我打的最高三十连只给主角一个上场没有队友只有主角一个在场，所以行动点只有一个，也用不了合题，为了解 ...</blockquote>
+那前期极限打是这样的，后面主角带专属阿基态手动加四动，再带个合题只花一动的首饰随便打了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+

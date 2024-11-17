@@ -43,3 +43,23 @@
 
 右键补丁里还有Unlock Region可以自由切换文本和语音
 
+
+*****
+
+####  RainbowSealife  
+##### 157#       发表于 2024-11-17 22:43
+
+[血源诅咒个人中文重译](https://www.nexusmods.com/bloodborne/mods/146)
+
+[https://www.bilibili.com/video/BV1WZmdYtEdX/](https://www.bilibili.com/video/BV1WZmdYtEdX/)
+
+<img src="https://img.saraba1st.com/forum/202411/17/224251ldd4bqnkgxsvnkad.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (737.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-17 22:42 上传
+
+相当惊险刺激<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1781,3 +1781,13 @@ oo是贪污吗，一般这种情况肯定是有一条贪污链，所以即使明
 但是当年计划生育的政策反而在黑龙江执行的更好</blockquote>
 什么叫共和国长子（挺胸
 
+
+*****
+
+####  ruojichong  
+##### 159#       发表于 2024-11-17 21:23
+
+辽宁扶起来我信，黑龙江就算了吧
+
+—— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

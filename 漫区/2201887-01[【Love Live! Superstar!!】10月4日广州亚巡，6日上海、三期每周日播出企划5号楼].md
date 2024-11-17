@@ -9751,3 +9751,11 @@ https://x.com/k_ritsu62/status/1856697525081948547
 可可这个头饰我一开始以为是猫耳，仔细看感觉，更像是鹿耳+小鹿角？</blockquote>
 我觉得更像绵羊头饰。十二生肖守护神里诗芙丽那样。
 
+
+*****
+
+####  一心而用  
+##### 959#       发表于 2024-11-17 14:36
+
+<img src="https://p.sda1.dev/20/182b5da6cd8e9d7e7f7ede8794468a7f/image.jpg" referrerpolicy="no-referrer">
+

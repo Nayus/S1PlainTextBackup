@@ -211,3 +211,27 @@
 
 主线并不重要，只要我笔下的主角小悟能够幸福，观众就会一本满足了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 2605#       发表于 2024-11-17 13:31
+
+<img src="https://img.saraba1st.com/forum/202411/17/133034sum23i2ug44q2uu7.png" referrerpolicy="no-referrer">
+
+<strong>20036E6D55937FBD13FCEE6135EC1A5A.png</strong> (864.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-17 13:30 上传
+
+<img src="https://img.saraba1st.com/forum/202411/17/133033iu12x0h74xhh0g27.png" referrerpolicy="no-referrer">
+
+<strong>D18146CD794EEA0E9DFE249F01D7B1D3.png</strong> (1.13 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-17 13:30 上传
+
+老狼！果然你也是爱着人类的吧！
+

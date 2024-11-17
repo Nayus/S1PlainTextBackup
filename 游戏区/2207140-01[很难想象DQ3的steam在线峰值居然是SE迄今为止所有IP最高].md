@@ -481,3 +481,11 @@ FF16这坨臭狗屎别说0.5折，白送我也不会在PC再吃一次
 
 不如说16晚一年至少舆论稳住了，我不敢想同步发售，就这素质pc玩家能喷几年不带重样的，至少小透明ff17还能继续出
 
+
+*****
+
+####  猪突猛进R  
+##### 42#       发表于 2024-11-17 14:16
+
+一个暴论，不一定对：DQ3比FF16好玩<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

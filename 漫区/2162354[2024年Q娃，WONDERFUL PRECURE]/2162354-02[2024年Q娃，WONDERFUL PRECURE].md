@@ -294,3 +294,17 @@
 
 这集真好看啊
 
+
+*****
+
+####  leleq  
+##### 2612#       发表于 2024-11-17 23:22
+
+方便的提示道具出现啦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+小雪的 狐狸道具每次都是用小麦来变把<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这传说<img src="https://static.saraba1st.com/image/smiley/face2017/198.png" referrerpolicy="no-referrer">
+
+这集显示了给的小麦定位给狼和人搭桥算是意料之中吧
+

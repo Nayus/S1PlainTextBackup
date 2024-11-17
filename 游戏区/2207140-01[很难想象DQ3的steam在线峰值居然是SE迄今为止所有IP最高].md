@@ -489,3 +489,22 @@ FF16这坨臭狗屎别说0.5折，白送我也不会在PC再吃一次
 
 一个暴论，不一定对：DQ3比FF16好玩<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ネコカイザー  
+##### 43#       发表于 2024-11-17 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66714225&amp;ptid=2207140" target="_blank">猪突猛进R 发表于 2024-11-17 14:16</a>
+
+一个暴论，不一定对：DQ3比FF16好玩</blockquote>
+好玩太多了。。。。
+
+
+*****
+
+####  horacio  
+##### 44#       发表于 2024-11-17 14:24
+
+去年两大rpg骗局石榴和星之海
+

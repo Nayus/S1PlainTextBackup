@@ -9833,3 +9833,11 @@ jrpg传统测气量环节，应该结果留白入队了
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  优妮可  
+##### 968#       发表于 2024-11-17 17:26
+
+笑死，又看到这集薇恩瑟瑟画面教育台吐槽了
+

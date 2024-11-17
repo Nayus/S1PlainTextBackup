@@ -779,3 +779,16 @@ solo1就上豪哥啊，会长
 不知道算不算火星，但是刚才发的高清专辑封面能看到作词作曲都是山内祐介 ...</blockquote>
 里御三家全是自家人哦
 
+
+*****
+
+####  kirakira~  
+##### 6698#       发表于 2024-11-17 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66713343&amp;ptid=2130897" target="_blank">magicc 发表于 2024-11-17 11:19</a>
+
+里御三家全是自家人哦</blockquote>
+可能就是让代表爱马仕血液传承吧，感觉也不错
+
+我猜后面其他人应该也还是会请其他网红音乐人来做solo1
+

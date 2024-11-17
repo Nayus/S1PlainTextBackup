@@ -604,3 +604,13 @@ DQ里的数值用现在话来说抠抠索索的，每一格HP都很硬，不像F
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  ˉ_ˉ↓↓↓  
+##### 54#       发表于 2024-11-17 15:59
+
+说得好像dq不悲剧一样，dq4的剧情现在回想起来还让人作呕<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.94-alpha
+

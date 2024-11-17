@@ -594,3 +594,13 @@ DQ里的数值用现在话来说抠抠索索的，每一格HP都很硬，不像F
 
 小吉的18个月长卖计划还剩几天？<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dsaaa  
+##### 53#       发表于 2024-11-17 15:39
+
+最终幻想结局基本都是悲剧收尾。和zzzq基本等号。另外7的蒂法做成筋肉女实在是无法接受，总有种最后生还者2女主的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -548,3 +548,41 @@ se跟不上时代的过气大厂
 
 质量不行上PC也没用，不是很正常的观点吗
 
+
+*****
+
+####  pu  
+##### 50#       发表于 2024-11-17 14:57
+
+FF7RB啥时候上STEAM <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 别又是先上epic 233 
+
+皇骑2重制STEAM版不知道卖了多少 有点好奇
+
+*****
+
+####  猪突猛进R  
+##### 51#       发表于 2024-11-17 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66714323&amp;ptid=2207140" target="_blank">三千珈蓝 发表于 2024-11-17 14:33</a>
+
+所以dq3hd 的素质咋样，够现代么</blockquote>
+做了一些现代化轻量改造，但本质还是新瓶装旧酒、换汤不换药。
+
+如果以前就喜欢DQ的，那么很可能会喜欢这个重制版，至少不会怎么讨厌。
+
+如果接受不了旧RPG的弊端，比如说暗雷（而且遇敌率还不低），那么不要买。
+
+以下是我对DQ系列的看法：
+
+剧情不重要，至少不怎么重要。（比如有人说的，DQ3HD砍掉所有战斗，剧情大概就2小时）
+
+重要的是<strong>成长感</strong>。
+
+DQ里的数值用现在话来说抠抠索索的，每一格HP都很硬，不像FF里那样血会哗哗掉。
+
+打怪打不过就回去练级，每升一级成长都很明显。
+
+可以说DQ玩的是“努力就会有回报”、“每一步都是有价值的”，很符合小日子那种小确幸价值观。
+
+说人话就是打怪升级，打更多的怪升更多的级！<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

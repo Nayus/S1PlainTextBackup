@@ -29,3 +29,20 @@
 
 —— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  101207777  
+##### 139#       发表于 2024-11-17 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66715124&amp;ptid=2200160" target="_blank">伊布桑 发表于 2024-11-17 17:01</a>
+
+想问下主线关卡想打三星要怎么打？是要把图全清了还是拿完宝箱跟精英怪歌姬boss就走？
+
+—— 来自 Xiaomi 2 ...</blockquote>
+打通保底60000分。1个回合扣200分。打3层的精英1500分，其他战斗看所处区域lv，每级50分。也就是lv4以上的区域一回合杀拿200，扣200，不亏分数。其他卡组质量，数量，受到伤害，造成伤害都不影响评分。
+
+3星的评分起码要58000以上，高难有更高的可能。
+
+打高评价就是控制战斗回合，尽量全otk，减少战斗数量。
+

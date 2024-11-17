@@ -19,3 +19,13 @@
 …这破卡组没更新没增重，我拿泳装妹一刀15砍了半天的两千血boss，还是没otk
 <img src="https://p.sda1.dev/20/c5a0774b26d6d5a5b1eb6579f71078d7/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  伊布桑  
+##### 138#       发表于 2024-11-17 17:01
+
+想问下主线关卡想打三星要怎么打？是要把图全清了还是拿完宝箱跟精英怪歌姬boss就走？
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

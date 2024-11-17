@@ -24,3 +24,13 @@ peck没有印象了，好像不集成的。
 
 —— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  Gundamslave  
+##### 282#       发表于 2024-11-17 13:01
+
+现在值得入了吗？会打折嘛？
+
+—— 来自 realme RMX3706, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

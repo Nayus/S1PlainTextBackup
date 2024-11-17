@@ -6730,3 +6730,15 @@ SMT 的 press turn 与世界树的职业 + 前后排机制是一次失败的融�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
 
+
+*****
+
+####  蟹粉小笼  
+##### 3559#       发表于 2024-11-17 11:03
+
+ 本帖最后由 蟹粉小笼 于 2024-11-17 11:06 编辑 
+
+不是，我去搜了下视频，怎么别人的竞技场这个成就解锁，包括打蛙人包括三十连都是可以四人小队上场带着队友的啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+补丁：破案了就是进竞技场之前需要打开小队编辑把队友重新编排进去不然就跟我一样只能主角一个上场了
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -84,3 +84,33 @@ Scan应该没有漏网之鱼的</blockquote>
 
 背叛者作为游戏设计肯定是狗屎，不过作为剧情设定在最后再搞一出反转还是不错的<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  小比類巻香蓮  
+##### 1962#         楼主| 发表于 2024-11-17 11:06
+
+<img src="https://img.saraba1st.com/forum/202411/17/110642q00s5i0c9iga0lrr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (901.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-17 11:06 上传
+
+黒星紅白 @kuroboshi
+
+アニメ『SAO オルタナティブ ガンゲイル・オンラインⅡ』7話！このあと24時から！#ggo_anime
+
+<img src="https://img.saraba1st.com/forum/202411/17/110547tkx59rkkjxevk1j1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.08 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-17 11:05 上传
+
+▌第7話 アイキャッチイラスト
+
+紺野大樹 さん @konnotato
+

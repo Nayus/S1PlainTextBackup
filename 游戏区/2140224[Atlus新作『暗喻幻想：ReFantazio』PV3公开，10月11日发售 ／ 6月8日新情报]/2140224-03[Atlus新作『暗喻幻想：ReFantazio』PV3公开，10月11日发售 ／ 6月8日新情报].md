@@ -6753,3 +6753,15 @@ SMT 的 press turn 与世界树的职业 + 前后排机制是一次失败的融�
 不是，我去搜了下视频，怎么别人的竞技场这个成就解锁，包括打蛙人包括三十连都是可以四人小队上场带着队友 ...</blockquote>
 你可能刚打完一个单人的任务,然后没把队友重新编队
 
+
+*****
+
+####  罗克萨斯  
+##### 3561#       发表于 2024-11-17 12:06
+
+手足情系列，来源 [https://x.com/spark7291/status/1857218122840932763](https://x.com/spark7291/status/1857218122840932763)
+
+<img src="https://p.sda1.dev/20/860d4077b95bda7392853d7952c8ab23/GcYpwrtbwAAelFA.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/e121563663f905c4285f32ec8aaecce2/GcYpxHRaYAA3flS.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/3a2cb36b167655a4075d98a15d88a5b7/GcYpxtQbEAAyXPV.jpg" referrerpolicy="no-referrer">
+

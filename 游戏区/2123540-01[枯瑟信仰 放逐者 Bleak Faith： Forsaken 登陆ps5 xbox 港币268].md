@@ -34,3 +34,16 @@ peck没有印象了，好像不集成的。
 
 —— 来自 realme RMX3706, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  qappip  
+##### 283#         楼主| 发表于 2024-11-17 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66713879&amp;ptid=2123540" target="_blank">Gundamslave 发表于 2024-11-17 13:01:28</a>
+现在值得入了吗？会打折嘛？
+
+—— 来自 realme RMX3706, Android 14上的  v2.5.4</blockquote>等黑五看看，可以入手了。 游戏基本已经成型，后续有也就是小补了。制作组已经在规划下一作了。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

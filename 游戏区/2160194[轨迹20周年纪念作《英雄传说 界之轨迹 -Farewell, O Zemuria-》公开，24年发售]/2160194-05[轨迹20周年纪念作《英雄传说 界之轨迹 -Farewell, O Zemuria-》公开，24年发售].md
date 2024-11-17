@@ -1573,3 +1573,11 @@ b站看到了个拿学妹新造型做的mmd，感觉下作必有类似剧情</bl
 
 界2被空r吸干了是吧？苦境.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 6945#       发表于 2024-11-17 11:51
+
+好像说构思完系列完结篇后才来写共和国结局。。。。
+

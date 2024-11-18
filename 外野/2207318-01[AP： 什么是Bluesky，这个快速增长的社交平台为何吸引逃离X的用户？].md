@@ -464,3 +464,32 @@ X也不让发直球黄图了啊，现在只有擦边球，老的删了一大批�
 X也不让发直球黄图了啊，现在只有擦边球，老的删了一大批了，新的能发出来是还没被ai扫到 ...</blockquote>
 X上能直接上传120分钟的AV本篇，而且用一个关键词就能全搜出来
 
+
+*****
+
+####  蜇灵  
+##### 50#       发表于 2024-11-18 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66721168&amp;ptid=2207318" target="_blank">Victorino 发表于 2024-11-18 14:16</a>
+早就有了，没人用，去中心化的话要怎么推给别人看</blockquote>
+这个确实是最大的问题，别人怎么知道有你这么一个平台，又要如何设置准入，原子化网络社会如何形成秩序等等，都是挺麻烦的课题
+
+*****
+
+####  蜇灵  
+##### 51#       发表于 2024-11-18 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66721124&amp;ptid=2207318" target="_blank">神圣天使书记官 发表于 2024-11-18 14:10</a>
+像这种平台首先就会被片哥占领，这就是去中心化，你还能打得过发帖机
+去中心化公共社交平台，人一多会变什 ...</blockquote>
+你都去中心化了，发帖机首先得能找到你再说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蜇灵  
+##### 52#       发表于 2024-11-18 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66721774&amp;ptid=2207318" target="_blank">shikiki 发表于 2024-11-18 15:35</a>
+现实世界都没去中心话，虚拟世界就别想了</blockquote>
+也不至于吧，BT不就是典型的去中心化，tracker服务器其实都不是必须的，可以用dht
+

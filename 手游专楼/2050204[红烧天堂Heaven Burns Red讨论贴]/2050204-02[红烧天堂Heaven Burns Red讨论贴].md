@@ -25,3 +25,13 @@ syl这种剧情超级重要的游戏真难宣传，首页非强度相关视频�
 每天只能玩一点，今天终于到第二章23天了，刚做完aoi第二段个人交流剧情。虽然我还是被剧透到了一点点，但 ...</blockquote>
 其实还没开服时的宣传pv都已经在间接透了 但是实际上大的在三章末和四章上前几天 请耐心好好欣赏
 
+
+*****
+
+####  chivalry  
+##### 1654#       发表于 2024-11-18 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66713187&amp;ptid=2050204" target="_blank">范坚强 发表于 2024-11-17 10:49</a>
+其实还没开服时的宣传pv都已经在间接透了 但是实际上大的在三章末和四章上前几天 请耐心好好欣赏 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">唉，意难平，这个游戏里都是好女人啊
+

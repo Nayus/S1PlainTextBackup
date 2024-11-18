@@ -9992,3 +9992,15 @@ jrpg传统测气量环节，应该结果留白入队了
 
 可c全曲出了，怎么说呢，没什么惊喜，但是这首歌编舞我挺喜欢的，坐等live了
 
+
+*****
+
+####  ads147147  
+##### 982#       发表于 2024-11-18 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66719263&amp;ptid=2201887" target="_blank">ruffian 发表于 2024-11-18 10:26</a>
+可c全曲出了，怎么说呢，没什么惊喜，但是这首歌编舞我挺喜欢的，坐等live了 ...</blockquote>
+感觉会看到比/L更南蚌的场面，又或者新的名场面编舞w
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

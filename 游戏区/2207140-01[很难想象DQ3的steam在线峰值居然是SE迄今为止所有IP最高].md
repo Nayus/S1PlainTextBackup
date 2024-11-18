@@ -749,3 +749,15 @@ DQ3的架构比较像创世纪、魔法门之类的早期RPG，就是捏个小�
 
 3、以现实世界地图为基础的开放世界，满足了小时候在世界地图上冒险的梦想。
 
+
+*****
+
+####  ohi.02  
+##### 67#       发表于 2024-11-18 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66714396&amp;ptid=2207140" target="_blank">milky658 发表于 2024-11-17 14:46</a>
+给老登怀旧的，现代是不可能现代的。战斗和探索为小登降难度做了些改变，最高难度比原版上强度了。介意战 ...</blockquote>
+音效表现呢？有八方旅人那种多声道支持吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -397,3 +397,15 @@ X也不让发直球黄图了啊，现在只有擦边球，老的删了一大批�
 
 个人评价想太多 还是传统那一套 基本是赢家通吃
 
+
+*****
+
+####  kokeiisama  
+##### 43#       发表于 2024-11-18 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66720754&amp;ptid=2207318" target="_blank">sakurarealm 发表于 2024-11-18 13:13</a>
+蓝翔？？？？</blockquote>
+源于ceo的名字，Lantian Graber
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+

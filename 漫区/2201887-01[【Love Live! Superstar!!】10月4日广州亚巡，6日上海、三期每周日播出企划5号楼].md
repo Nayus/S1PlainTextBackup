@@ -10004,3 +10004,11 @@ jrpg传统测气量环节，应该结果留白入队了
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  ViyViy  
+##### 983#       发表于 2024-11-18 12:26
+
+长音确实很多，如果想有一种悠扬的feel，多尝试些乐器可行么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

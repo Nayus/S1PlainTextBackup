@@ -6506,3 +6506,36 @@ DA2我能反复刷地图就为了看这两人（还有臭弟弟）互怼，还�
 删除了所有人vs精 法师vs非法师矛盾，所有邪恶全部有两个少儿卡通大boss加上邪教徒和叛坤牛头人背负。甚 ...</blockquote>
 生软的队友对话交互爽点是BG2，看着队里的爱黎、贾姐和V三人撕逼给年少的我震惊，后面猫头猫的正义之怒相声团也不错（唯一可惜两者都不是全配音）
 
+
+*****
+
+####  云野十五  
+##### 1235#       发表于 2024-11-18 12:10
+
+ 本帖最后由 云野十五 于 2024-11-18 12:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66718763&amp;ptid=2072996" target="_blank">jag0713_Mate 发表于 2024-11-18 09:30</a>
+
+现在互联网上的信息 都得查发言人成分才能选择性接受 饭圈化社区运营和游戏公司投的宣传经费让很多信息都 ...</blockquote>
+在龙腾世纪吧看到人提“顺直”和“猴批”比我在疾地大乱斗吧和steam吧看到的都要多，更别说还有重量级的博得吧吧主，这下理解一切了<img src="https://static.saraba1st.com/image/smiley/carton2017/025.png" referrerpolicy="no-referrer">
+
+IMG_20241118_120905.jpg
+(183.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-18 12:12 上传
+
+<img src="https://img.saraba1st.com/forum/202411/18/121220id04wz6dr3m3fysw.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  llysander  
+##### 1236#       发表于 2024-11-18 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66706301&amp;ptid=2072996" target="_blank">xjtxp 发表于 2024-11-16 06:51</a>
+
+DA其实有不少设定其实挺草台凑合的，比如塞达斯这个名字的由来：
+
+其实当初大伙想的都不是这个名字，首席设 ...</blockquote>
+喷了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">JO脾气这么好，这么明着办公室哭迭他都惯着，上司提名这种大事
+

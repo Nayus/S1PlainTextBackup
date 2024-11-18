@@ -537,3 +537,23 @@ X也不让发直球黄图了啊，现在只有擦边球，老的删了一大批�
 
 看到个原神新角色的趋势点进去直接黄片糊脸<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  八佾舞于潭  
+##### 58#       发表于 2024-11-18 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66722384&amp;ptid=2207318" target="_blank">蜇灵 发表于 2024-11-18 16:49</a>
+
+也不至于吧，BT不就是典型的去中心化，tracker服务器其实都不是必须的，可以用dht ...</blockquote>
+去中心技术不是问题，形成使用习惯改变数字生活才是关键，BT也不太平，以前有吸血，现在有滥用下载伪装流量的
+
+*****
+
+####  MkChang  
+##### 59#       发表于 2024-11-18 19:27
+
+群友用这玩意点了一堆二次元，还是给他硬推其他内容<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+

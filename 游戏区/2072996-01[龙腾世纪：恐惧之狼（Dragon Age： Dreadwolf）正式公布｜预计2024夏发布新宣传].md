@@ -6417,3 +6417,25 @@ DA2我能反复刷地图就为了看这两人（还有臭弟弟）互怼，还�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ronac  
+##### 1228#       发表于 2024-11-18 09:02
+
+战地答辩版抢先体验受害者的一点亲身体会
+
+泥潭最不值得相信的就是热情推荐EA游戏的坛友，会从“这次好起来了”“这次稳了”到“我觉得可以”“玩了感觉不错的”到彻底装死跑路收声<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+你信了，吃瘪了，浪费金钱时间；他骗到傻子了，跑路了，下次还来
+
+假如一坨看着是屎，闻着是屎，方差再大离散程度也就不过是“人屎还是狗屎”
+
+<img src="https://img.saraba1st.com/forum/202411/18/085859drjzmhyji7uyhl00.gif" referrerpolicy="no-referrer">
+
+<strong>动画.gif</strong> (3.58 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-18 08:58 上传
+

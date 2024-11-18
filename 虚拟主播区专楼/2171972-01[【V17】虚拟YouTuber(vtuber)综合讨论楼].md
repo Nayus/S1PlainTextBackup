@@ -29,3 +29,11 @@ sf6师弟杯决赛
 
 V参加线下赛不都是立个牌子，好几次了
 
+
+*****
+
+####  Harunoharu  
+##### 881#       发表于 2024-11-18 23:19
+
+这才俩，之前the k4sen线下day2lol那场vspo的一排牌子立过去才叫真的壮观<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -633,3 +633,16 @@ zeronet？
 你也知道是当年，汤不热 为啥封禁黄片。。总不能是老白男迫害吧（</blockquote>
 汤不热没用过。不过不少黄站巨头关站。还有今年沸沸扬扬的信用卡事件，就是象党的基督徒老保整的。
 
+
+*****
+
+####  wszweill  
+##### 67#       发表于 2024-11-18 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66722384&amp;ptid=2207318" target="_blank">蜇灵 发表于 2024-11-18 03:49</a>
+
+也不至于吧，BT不就是典型的去中心化，tracker服务器其实都不是必须的，可以用dht ...</blockquote>
+讲道理，中心化的泥潭还能搜到二十年前老帖。不靠特定服务器养着，几年的种子就作废了。
+
+真这么简单，E绅士这种也不用自己组服务器 了，靠lsp的共享精神完事（
+

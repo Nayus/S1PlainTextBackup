@@ -409,3 +409,47 @@ X也不让发直球黄图了啊，现在只有擦边球，老的删了一大批�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
 
+
+*****
+
+####  万恶淫猥手  
+##### 44#       发表于 2024-11-18 15:31
+
+上次那个还在这么吹的是 mastodon，下场是现在没什么人提了，虽然我偶尔还会刷一刷
+
+*****
+
+####  omnitoken  
+##### 45#       发表于 2024-11-18 15:31
+
+上面都是南通, 泥潭老保进去了估计要被吓死
+
+*****
+
+####  2017.05.04  
+##### 46#       发表于 2024-11-18 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66721285&amp;ptid=2207318" target="_blank">触手皇帝 发表于 2024-11-18 14:29</a>
+
+不会吧，X上的黄土一抓一大把的啊···？</blockquote>
+因为审核人数也砍了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+砍了很多老号了
+
+
+*****
+
+####  hyde999  
+##### 47#       发表于 2024-11-18 15:34
+
+男同是真的普信又喜欢自爆，上了一下给我推了一堆肥猪男同，感觉1个礼拜不想吃猪肉了。
+
+*****
+
+####  shikiki  
+##### 48#       发表于 2024-11-18 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66720892&amp;ptid=2207318" target="_blank">蜇灵 发表于 2024-11-18 13:35</a>
+这些都是中心化的，还是要受制于人，啥时候能出一个基于区块链无需中心服务器的社交平台 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">现实世界都没去中心话，虚拟世界就别想了
+

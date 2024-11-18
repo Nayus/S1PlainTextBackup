@@ -6405,3 +6405,15 @@ DA其实有不少设定其实挺草台凑合的，比如塞达斯这个名字的
 
 DA2我能反复刷地图就为了看这两人（还有臭弟弟）互怼，还会特意到维基上找有没有看漏的对话。而DATV只想全程快进，剧情张力为零
 
+
+*****
+
+####  Kaornao  
+##### 1227#       发表于 2024-11-18 08:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66717660&amp;ptid=2072996" target="_blank">RTLordCaptain 发表于 2024-11-18 00:32</a>
+删除了所有人vs精 法师vs非法师矛盾，所有邪恶全部有两个少儿卡通大boss加上邪教徒和叛坤牛头人背负。甚 ...</blockquote>
+主要是配音也有点难绷，好几个npc奇怪口音的英语含量太高了（疑似印度口音？），听起来很不舒服，前作也这样吗？质量效应三部曲玩下来是没有这种情况的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

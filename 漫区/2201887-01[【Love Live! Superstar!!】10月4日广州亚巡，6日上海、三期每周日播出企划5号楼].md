@@ -10085,3 +10085,11 @@ jrpg传统测气量环节，应该结果留白入队了
 
 可C的全曲听了下，感觉一般般。
 
+
+*****
+
+####  灼眼的夏娜酱  
+##### 992#       发表于 2024-11-18 22:58
+
+VN又可爱又有点涩<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+

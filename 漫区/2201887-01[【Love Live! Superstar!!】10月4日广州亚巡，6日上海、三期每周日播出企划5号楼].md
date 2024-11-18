@@ -9949,3 +9949,18 @@ jrpg传统测气量环节，应该结果留白入队了
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  ViyViy  
+##### 978#       发表于 2024-11-18 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66718603&amp;ptid=2201887" target="_blank">ads147147 发表于 2024-11-18 09:15</a>
+
+有种很奇妙的味道，特别是找卷7的时候。
+
+看星2：tmd你后续的卷7呢，我怎么找不到了。</blockquote>
+真没啥我喊了口号和我有决心我就该赢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">此事在今年某全X班亦有记载
+
+如果真的要分胜负，那肯定是2.5，赢了先不说又开始讥讽八人是XX，那冬逑不就是对的，姐姐就是靠抱大腿赢的，第四集观感直接减半了，难不成赢了=我们有实力带姐姐赢到毕业所以没关系吗
+

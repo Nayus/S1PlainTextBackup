@@ -557,3 +557,13 @@ X也不让发直球黄图了啊，现在只有擦边球，老的删了一大批�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
 
+
+*****
+
+####  2017.05.04  
+##### 60#       发表于 2024-11-18 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66723424&amp;ptid=2207318" target="_blank">aiyouo 发表于 2024-11-18 19:14</a>
+你到底用没用过推特，推特黄片都直接发的好不好</blockquote>
+这话应该我问<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">马圣上半年删了一批
+

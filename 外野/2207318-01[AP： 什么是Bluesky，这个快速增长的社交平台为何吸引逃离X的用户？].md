@@ -493,3 +493,13 @@ X上能直接上传120分钟的AV本篇，而且用一个关键词就能全搜�
 现实世界都没去中心话，虚拟世界就别想了</blockquote>
 也不至于吧，BT不就是典型的去中心化，tracker服务器其实都不是必须的，可以用dht
 
+
+*****
+
+####  shikiki  
+##### 53#       发表于 2024-11-18 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66722384&amp;ptid=2207318" target="_blank">蜇灵 发表于 2024-11-18 16:49</a>
+也不至于吧，BT不就是典型的去中心化，tracker服务器其实都不是必须的，可以用dht ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">真的去了嘛，去了的话赵长鹏这年猪又是啥情况。
+

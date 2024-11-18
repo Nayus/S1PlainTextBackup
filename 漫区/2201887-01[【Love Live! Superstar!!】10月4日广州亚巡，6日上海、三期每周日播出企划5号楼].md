@@ -10033,3 +10033,15 @@ jrpg传统测气量环节，应该结果留白入队了
 
 听了绝对的lover全曲感觉是先定了可堇ed和封面然后花田自己加塞了可香进剧情
 
+
+*****
+
+####  ViyViy  
+##### 986#       发表于 2024-11-18 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66722382&amp;ptid=2201887" target="_blank">ayara 发表于 2024-11-18 16:49</a>
+
+听了绝对的lover全曲感觉是先定了可堇ed和封面然后花田自己加塞了可香进剧情 ...</blockquote>
+如果以前的说法还生效的话，确实是先给插入歌然后写剧情的，但是插封和ED这种事情应该是有空间调的。
+虽然我想推测这两集上半年重新构思过。
+

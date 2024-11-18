@@ -646,3 +646,36 @@ zeronet？
 
 真这么简单，E绅士这种也不用自己组服务器 了，靠lsp的共享精神完事（
 
+
+*****
+
+####  软软人  
+##### 68#       发表于 2024-11-18 23:25
+
+界面跟老推特挺像的，不喜欢马斯克和x的喜欢那个也正常，那个蝴蝶图标确实蛮好看的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+*****
+
+####  蜇灵  
+##### 69#       发表于 2024-11-18 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66724233&amp;ptid=2207318" target="_blank">EverNight 发表于 2024-11-18 21:39</a>
+区块链是为了防修改吧？除此之外和p2p论坛有啥区别呢
+这么多年互联网用下来，深刻地感觉网络服务这玩意稳 ...</blockquote>
+稳定性其实都还好，现在的互联网基建，只要不是开直播，传点文字和图片哪怕是跨地球两端应该也没有多大延迟，数据传输应该比较简单
+但是数据储存是个大问题，如何保活很关键
+
+
+*****
+
+####  蜇灵  
+##### 70#       发表于 2024-11-18 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66724681&amp;ptid=2207318" target="_blank">wszweill 发表于 2024-11-18 23:16</a>
+讲道理，中心化的泥潭还能搜到二十年前老帖。不靠特定服务器养着，几年的种子就作废了。
+
+真这么简单，E绅 ...</blockquote>
+但泥潭同时期的那些论坛有很多连尸体都找不到了吧，BT也不是为了长时间记录的协议，设计上就没有考虑过长期储存吧
+

@@ -6472,3 +6472,26 @@ DA2我能反复刷地图就为了看这两人（还有臭弟弟）互怼，还�
 
 虽说神人做的存档系统也不能说是大幅度破坏游戏体验吧，但是永远在无时无刻提醒你，这游戏制作组里有一群很可能根本不玩游戏的人，如影随形，如影随形<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kaornao  
+##### 1232#       发表于 2024-11-18 11:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66719028&amp;ptid=2072996" target="_blank">RTLordCaptain 发表于 2024-11-18 09:58</a>
+前作有口音刻意做得比较重的，棒读我分辨能力不强不好说。不过台词肯定没有这么白开水（尤其是2代队友非 ...</blockquote>
+楼友这么一说，倒是挺想打完这作试试前作了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ak123  
+##### 1233#       发表于 2024-11-18 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66717472&amp;ptid=2072996" target="_blank">震荡波 发表于 2024-11-17 23:48</a>
+周末了说好的官宣100W打脸呢。
+
+外网估计加上先前砍掉的多人在线版本，成本至少2个亿。 ...</blockquote>
+原来还有这么回事啊，真是想露脸把屁股露出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -591,3 +591,14 @@ X也不让发直球黄图了啊，现在只有擦边球，老的删了一大批�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  长生久视  
+##### 63#       发表于 2024-11-18 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66720892&amp;ptid=2207318" target="_blank">蜇灵 发表于 2024-11-18 13:35</a>
+
+这些都是中心化的，还是要受制于人，啥时候能出一个基于区块链无需中心服务器的社交平台 ...</blockquote>
+zeronet？
+

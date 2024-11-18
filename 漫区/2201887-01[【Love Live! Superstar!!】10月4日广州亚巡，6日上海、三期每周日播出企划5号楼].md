@@ -9972,3 +9972,15 @@ jrpg传统测气量环节，应该结果留白入队了
 
 下集三人会是谁c，香音肯定不行，而且她后面至少还有一曲得c的，VN第二集已经c过了，难道让鬼家姐妹大战吗，但是渲染了两季的VN与裂啦的因缘最后收尾却不是自己上也挺不得劲的。
 
+
+*****
+
+####  csolfans  
+##### 980#       发表于 2024-11-18 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66719111&amp;ptid=2201887" target="_blank">凡人 发表于 2024-11-18 10:09</a>
+下集三人会是谁c，香音肯定不行，而且她后面至少还有一曲得c的，VN第二集已经c过了，难道让鬼家姐妹大战吗 ...</blockquote>
+会是恋恋吗 下周日生日(
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

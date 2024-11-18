@@ -513,3 +513,27 @@ X上能直接上传120分钟的AV本篇，而且用一个关键词就能全搜�
 真的去了嘛，去了的话赵长鹏这年猪又是啥情况。</blockquote>
 我说的是BT下载，不是虚拟货币
 
+
+*****
+
+####  aiyouo  
+##### 55#       发表于 2024-11-18 19:12
+
+推荐算法比推特还狗屎，一点不好用<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aiyouo  
+##### 56#       发表于 2024-11-18 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66721002&amp;ptid=2207318" target="_blank">2017.05.04 发表于 2024-11-18 13:53</a>
+X也不让发直球黄图了啊，现在只有擦边球，老的删了一大批了，新的能发出来是还没被ai扫到 ...</blockquote>
+你到底用没用过推特，推特黄片都直接发的好不好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sekai2014  
+##### 57#       发表于 2024-11-18 19:15
+
+看到个原神新角色的趋势点进去直接黄片糊脸<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

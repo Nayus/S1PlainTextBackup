@@ -13788,10 +13788,10 @@
     "update": false
   },
   "2206316": {
-    "totalreply": 1040,
+    "totalreply": 1041,
     "title": "[珠海航展专帖]",
     "newtitle": "[珠海航展专帖]",
-    "lastedit": 1731925462,
+    "lastedit": 1731963606,
     "category": "外野",
     "active": true,
     "update": false
@@ -15863,7 +15863,7 @@
     "newtitle": "[去东北旅游，可以在当地租羽绒服吗？]",
     "lastedit": 1731704646,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2206796": {
@@ -17446,6 +17446,15 @@
     "title": "[黑神话进TGA年度最佳候选名单应该稳了吧]",
     "newtitle": "[黑神话进TGA年度最佳候选名单应该稳了吧]",
     "lastedit": 1731950310,
+    "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2206827": {
+    "totalreply": 41,
+    "title": "[暗喻幻想快通关了，感觉有点乏力【剧透】]",
+    "newtitle": "[暗喻幻想快通关了，感觉有点乏力【剧透】]",
+    "lastedit": 1731964088,
     "category": "游戏区",
     "active": true,
     "update": false

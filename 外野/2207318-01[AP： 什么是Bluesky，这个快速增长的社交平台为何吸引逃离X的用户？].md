@@ -453,3 +453,14 @@ X也不让发直球黄图了啊，现在只有擦边球，老的删了一大批�
 这些都是中心化的，还是要受制于人，啥时候能出一个基于区块链无需中心服务器的社交平台 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">现实世界都没去中心话，虚拟世界就别想了
 
+
+*****
+
+####  rhotov  
+##### 49#       发表于 2024-11-18 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66721002&amp;ptid=2207318" target="_blank">2017.05.04 发表于 2024-11-18 13:53</a>
+
+X也不让发直球黄图了啊，现在只有擦边球，老的删了一大批了，新的能发出来是还没被ai扫到 ...</blockquote>
+X上能直接上传120分钟的AV本篇，而且用一个关键词就能全搜出来
+

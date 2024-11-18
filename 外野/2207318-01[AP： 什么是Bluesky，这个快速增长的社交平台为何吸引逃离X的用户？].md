@@ -567,3 +567,14 @@ X也不让发直球黄图了啊，现在只有擦边球，老的删了一大批�
 你到底用没用过推特，推特黄片都直接发的好不好</blockquote>
 这话应该我问<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">马圣上半年删了一批
 
+
+*****
+
+####  素盏鸣尊  
+##### 61#       发表于 2024-11-18 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66721099&amp;ptid=2207318" target="_blank">ak123 发表于 2024-11-18 14:07</a>
+
+小贴士，基佬图多是因为国区完全被发情撅**的基佬占领的问题，你们在设置里把所在地换成日区米区就完全看不 ...</blockquote>
+我说自己tl怎么根本没基佬。
+

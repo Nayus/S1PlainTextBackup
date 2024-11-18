@@ -820,3 +820,16 @@ syngup铁串子<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 —— 来自 OnePlus PGKM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  falltwo  
+##### 6702#       发表于 2024-11-18 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66713435&amp;ptid=2130897" target="_blank">kirakira~ 发表于 2024-11-17 11:37</a>
+
+可能就是让代表爱马仕血液传承吧，感觉也不错
+
+我猜后面其他人应该也还是会请其他网红音乐人来做solo1 ...</blockquote>
+有点太像隔壁赛马娘片场了
+

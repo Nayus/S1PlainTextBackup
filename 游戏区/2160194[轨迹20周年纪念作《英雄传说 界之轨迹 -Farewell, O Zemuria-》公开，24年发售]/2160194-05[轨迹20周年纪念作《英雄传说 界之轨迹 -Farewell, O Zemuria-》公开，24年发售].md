@@ -1714,3 +1714,45 @@ b站看到了个拿学妹新造型做的mmd，感觉下作必有类似剧情</bl
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  hguandl  
+##### 6960#       发表于 2024-11-18 14:24
+
+[https://www.youtube.com/watch?v=TAJDtl61TUA](https://www.youtube.com/watch?v=TAJDtl61TUA)
+
+<img src="https://img.saraba1st.com/forum/202411/18/142307hdczylilrfigxesi.png" referrerpolicy="no-referrer">
+
+<strong>{AD348670-642E-25A8-4331-442A2DF796CE}.png</strong> (166.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-18 14:23 上传
+
+ED播到这个画面的表针是静止的。群友找了几张图，都不一样
+
+<img src="https://img.saraba1st.com/forum/202411/18/142307r9o8mtoq1k23188t.png" referrerpolicy="no-referrer">
+
+<strong>{38605F3D-93DA-E1F2-D73C-BD497E946413}.png</strong> (477.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-18 14:23 上传
+
+<img src="https://img.saraba1st.com/forum/202411/18/142308ik462n44d722476s.jpg" referrerpolicy="no-referrer">
+
+<strong>{AE86AC79-6383-3DAD-E2AF-F74C1E5CCDB2}.jpg</strong> (660.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-18 14:23 上传
+
+<img src="https://img.saraba1st.com/forum/202411/18/142307gccv22svbvbcpbrz.jpg" referrerpolicy="no-referrer">
+
+<strong>{AC962CC6-3654-C74E-BA6F-F3FBC181F583}.jpg</strong> (570.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-18 14:23 上传
+

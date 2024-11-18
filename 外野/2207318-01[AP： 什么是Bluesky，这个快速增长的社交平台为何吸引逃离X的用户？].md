@@ -679,3 +679,19 @@ zeronet？
 真这么简单，E绅 ...</blockquote>
 但泥潭同时期的那些论坛有很多连尸体都找不到了吧，BT也不是为了长时间记录的协议，设计上就没有考虑过长期储存吧
 
+
+*****
+
+####  wszweill  
+##### 71#       发表于 2024-11-19 00:23
+
+ 本帖最后由 wszweill 于 2024-11-18 11:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66724747&amp;ptid=2207318" target="_blank">蜇灵 发表于 2024-11-18 10:33</a>
+
+但泥潭同时期的那些论坛有很多连尸体都找不到了吧，BT也不是为了长时间记录的协议，设计上就没有考虑过长 ...</blockquote>
+就算关站一般也会提前打个招呼，可以中心 化备份到其他网站上。比如泥潭定期被清理 的 鹅乌楼。
+
+去中心化本质上就不可能长期储存，你就说你BT种子下完做多久上传 。个人 用户 那点带宽，能负担 多少上传。哪怕是 微信记录，以前不让存服务器只能存手机的 时候，多少人丢/换个 手机整个记录 就约等于 没有 的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+离散的个体用户 不可能负担得了长期数据备份。你就说 自己硬盘正经数据是不是放 NAS上至少1:1备份的 嘛。说不定十年前老硬盘自己长期不通电都可能出问题呢
+

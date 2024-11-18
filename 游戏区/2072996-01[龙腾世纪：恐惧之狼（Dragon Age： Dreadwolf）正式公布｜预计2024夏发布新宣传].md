@@ -6495,3 +6495,14 @@ DA2我能反复刷地图就为了看这两人（还有臭弟弟）互怼，还�
 外网估计加上先前砍掉的多人在线版本，成本至少2个亿。 ...</blockquote>
 原来还有这么回事啊，真是想露脸把屁股露出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Bieaeml  
+##### 1234#       发表于 2024-11-18 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66717660&amp;ptid=2072996" target="_blank">RTLordCaptain 发表于 2024-11-18 00:32</a>
+
+删除了所有人vs精 法师vs非法师矛盾，所有邪恶全部有两个少儿卡通大boss加上邪教徒和叛坤牛头人背负。甚 ...</blockquote>
+生软的队友对话交互爽点是BG2，看着队里的爱黎、贾姐和V三人撕逼给年少的我震惊，后面猫头猫的正义之怒相声团也不错（唯一可惜两者都不是全配音）
+

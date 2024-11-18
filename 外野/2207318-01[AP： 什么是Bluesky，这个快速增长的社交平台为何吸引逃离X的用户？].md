@@ -612,3 +612,24 @@ zeronet？
 这话应该我问马圣上半年删了一批</blockquote>
 ？随便找个鸡的推不都是黄片，你要是找不到我也没话说了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wszweill  
+##### 65#       发表于 2024-11-18 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66720851&amp;ptid=2207318" target="_blank">Jet.Black 发表于 2024-11-18 00:28</a>
+
+白左只是疯了点，当年Tumblr一样白左，黄片照看不误。</blockquote>
+你也知道是当年，汤不热 为啥封禁黄片。。总不能是老白男迫害吧（
+
+*****
+
+####  素盏鸣尊  
+##### 66#       发表于 2024-11-18 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66724657&amp;ptid=2207318" target="_blank">wszweill 发表于 2024-11-18 23:10</a>
+
+你也知道是当年，汤不热 为啥封禁黄片。。总不能是老白男迫害吧（</blockquote>
+汤不热没用过。不过不少黄站巨头关站。还有今年沸沸扬扬的信用卡事件，就是象党的基督徒老保整的。
+

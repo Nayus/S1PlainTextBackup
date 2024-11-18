@@ -8,3 +8,16 @@
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Porsche  
+##### 879#       发表于 2024-11-18 17:48
+
+[https://www.youtube.com/live/lP1hkvHJqTI?si=AFHMAz5ltFW45vgQ](https://www.youtube.com/live/lP1hkvHJqTI?si=AFHMAz5ltFW45vgQ)
+
+sf6师弟杯决赛
+葛叶和叶都参加了，结果现场就立个牌子<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+看来之前担心moka不能参加线下赛的问题解决了
+

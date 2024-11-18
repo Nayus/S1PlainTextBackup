@@ -10012,3 +10012,16 @@ jrpg传统测气量环节，应该结果留白入队了
 
 长音确实很多，如果想有一种悠扬的feel，多尝试些乐器可行么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ruffian  
+##### 984#       发表于 2024-11-18 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66720329&amp;ptid=2201887" target="_blank">ads147147 发表于 2024-11-18 12:17:49</a>
+感觉会看到比/L更南蚌的场面，又或者新的名场面编舞w
+
+—— 来自 OPPO PHN110, Android 15上的  v3.0.0.8 ...</blockquote>我期待的就是那个，鲤鱼过龙门<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

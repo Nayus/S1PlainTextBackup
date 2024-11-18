@@ -10053,3 +10053,19 @@ jrpg传统测气量环节，应该结果留白入队了
 
 错了 按以前说法是写剧本的时候歌基本上没成形 这时候制作组就形成个定个方针路线<img src="https://p.sda1.dev/20/940e7ad31b3f179209b77e280edd55e8/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViyViy  
+##### 988#       发表于 2024-11-18 18:29
+
+不……不对吗，估计是和哪个企划记混了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那这样好奇怪啊，剧本先行应该很强调配合剧本做情绪调动的
+
+
+*****
+
+####  日野下花帆  
+##### 989#       发表于 2024-11-18 18:31
+
+不过这里说的是无印动画，不知道星这边是不是延续这个做法，毕竟星完全没有制作访谈看啊
+

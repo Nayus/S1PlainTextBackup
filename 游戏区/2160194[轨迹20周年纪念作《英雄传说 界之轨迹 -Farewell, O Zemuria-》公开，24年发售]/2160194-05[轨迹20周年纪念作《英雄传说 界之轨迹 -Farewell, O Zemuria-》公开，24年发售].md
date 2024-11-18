@@ -1652,3 +1652,28 @@ b站看到了个拿学妹新造型做的mmd，感觉下作必有类似剧情</bl
 磨磨唧唧130+小时通了（之前有段时间开机就光打扑克来换饰品），现在开始二周目整LGC进度了。怎么说呢，这 ...</blockquote>
 有一说一  这三条线的主角团做的事情通通屁用没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 6954#       发表于 2024-11-18 11:11
+
+黎2的设定本的也对不上啊<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  maojiashu  
+##### 6955#       发表于 2024-11-18 11:11
+
+股东还在意你出什么吗 股东只会问怎么今年又这点 明年能不能涨
+
+*****
+
+####  洛克萨斯  
+##### 6956#       发表于 2024-11-18 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66719659&amp;ptid=2160194" target="_blank">红魔馆的糖 发表于 2024-11-18 11:06</a>
+
+有一说一  这三条线的主角团做的事情通通屁用没有</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所长要是同意表白没准就改变历史了，不能说屁用没有，另外两条线对主线确实没啥干涉
+

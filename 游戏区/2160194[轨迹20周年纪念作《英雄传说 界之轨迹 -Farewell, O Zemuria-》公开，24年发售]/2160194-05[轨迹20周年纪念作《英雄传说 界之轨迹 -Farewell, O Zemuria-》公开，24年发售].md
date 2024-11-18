@@ -1635,3 +1635,20 @@ b站看到了个拿学妹新造型做的mmd，感觉下作必有类似剧情</bl
 
 磨磨唧唧130+小时通了（之前有段时间开机就光打扑克来换饰品），现在开始二周目整LGC进度了。怎么说呢，这前面龟速三章最后光速展开真的很难绷。还有van线这虽然流程上最长但是和主线计划也是最无关的也真是令人无语<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一步成诗  
+##### 6952#       发表于 2024-11-18 11:04
+
+看了下七星说剧本没编完极有可能改动所以整篇访谈就只能模糊太极免得日后被打脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不愧是你法
+
+*****
+
+####  红魔馆的糖  
+##### 6953#       发表于 2024-11-18 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66714440&amp;ptid=2160194" target="_blank">liuguokobe 发表于 2024-11-17 14:56</a>
+磨磨唧唧130+小时通了（之前有段时间开机就光打扑克来换饰品），现在开始二周目整LGC进度了。怎么说呢，这 ...</blockquote>
+有一说一  这三条线的主角团做的事情通通屁用没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

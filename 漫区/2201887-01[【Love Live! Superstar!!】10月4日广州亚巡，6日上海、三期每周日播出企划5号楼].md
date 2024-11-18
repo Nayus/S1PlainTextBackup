@@ -10077,3 +10077,11 @@ jrpg传统测气量环节，应该结果留白入队了
 
 所以是谁赢了就合并另一边吗<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cat1230  
+##### 991#       发表于 2024-11-18 21:59
+
+可C的全曲听了下，感觉一般般。
+

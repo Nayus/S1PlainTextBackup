@@ -171,3 +171,21 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  TiiTiiLL  
+##### 4531#       发表于 2024-11-18 19:48
+
+队伍正确，配置正确
+
+<img src="https://img.saraba1st.com/forum/202411/18/194807quz9kquj38g9nqoj.jpg" referrerpolicy="no-referrer">
+
+<strong>5576ed79-2b13-4ad2-aba5-bcb232e105ab.jpg</strong> (65.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-18 19:48 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

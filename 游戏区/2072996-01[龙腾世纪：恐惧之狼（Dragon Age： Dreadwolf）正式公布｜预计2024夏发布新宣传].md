@@ -6565,3 +6565,16 @@ DA其实有不少设定其实挺草台凑合的，比如塞达斯这个名字的
 
 EA能把给生软的机会分出一次给西木就好了
 
+
+*****
+
+####  lega-II  
+##### 1240#       发表于 2024-11-18 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66718286&amp;ptid=2072996" target="_blank">Kaornao 发表于 2024-11-18 08:21</a>
+
+主要是配音也有点难绷，好几个npc奇怪口音的英语含量太高了（疑似印度口音？），而且队友有些文本也有很 ...</blockquote>
+额，这作的其实一个被系列粉喷的点就是配音的口音变轻了。
+
+比如前作的daelish精灵会用爱尔兰口音，但是这作的两只Daelish精灵队友都是标准的美式英语。前作来自nevarra的卡姐是一口东欧腔的英语 ，结果这作来自Nevarra的教授变成了标准英式口音。唯一保持口音的是暗鸦们，继承了前几作Zevran和Josephine的西语口音，Lucanis为啥个人剧情那么垃圾还是无数人在追这个口音功不可没。
+

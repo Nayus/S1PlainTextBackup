@@ -1756,3 +1756,13 @@ ED播到这个画面的表针是静止的。群友找了几张图，都不一样
 
 2024-11-18 14:23 上传
 
+
+*****
+
+####  妄想中毒  
+##### 6961#       发表于 2024-11-18 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66719642&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-11-18 11:04</a>
+看了下七星说剧本没编完极有可能改动所以整篇访谈就只能模糊太极免得日后被打脸不愧是你法 ...</blockquote>
+有哪次访谈不是打太极吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

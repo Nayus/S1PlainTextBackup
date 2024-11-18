@@ -9927,3 +9927,25 @@ jrpg传统测气量环节，应该结果留白入队了
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  ads147147  
+##### 977#       发表于 2024-11-18 09:15
+
+ 本帖最后由 ads147147 于 2024-11-18 09:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66717815&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-11-18 01:22</a>
+其实这季前面对冬薇的孩子气感刻画的很多，给人的感觉远比一期生二期生的第一年稚嫩很多，这集应该是最明显 ...</blockquote>
+有种很奇妙的味道，特别是找卷7的时候。
+
+看星2：tmd你后续的卷7呢，我怎么找不到了。
+看星3：原来卷7在这里。
+
+那么恋恋的卷7在何方。
+
+哦星团123季根本没有卷7<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+希望真的是胜利宣言不是5t5。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

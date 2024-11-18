@@ -810,3 +810,13 @@ solo1就上豪哥啊，会长
 
 什么意思，偶像大师里面也有🐢战队?
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 6701#       发表于 2024-11-18 12:50
+
+syngup铁串子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

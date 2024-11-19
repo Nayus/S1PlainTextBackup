@@ -62,3 +62,22 @@ XB1XB2为了提升世界观的真实感，诸如“此地位于巨神大腿上�
 
 悬崖哥又来了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tureleona  
+##### 195#       发表于 2024-11-19 11:39
+
+草，所以挖坟的我推哥明白什么了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  祆天发育不良  
+##### 196#       发表于 2024-11-19 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66726409&amp;ptid=2133875" target="_blank">ppa11 发表于 2024-11-19 09:52</a>
+这就不得不提当年我莫名被XB3结晶嘲讽的迷之地图边界了。。
+
+XB1XB2为了提升世界观的真实感，诸如“此地位 ...</blockquote>
+尸块甜甜圈罢了，要求不要太高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

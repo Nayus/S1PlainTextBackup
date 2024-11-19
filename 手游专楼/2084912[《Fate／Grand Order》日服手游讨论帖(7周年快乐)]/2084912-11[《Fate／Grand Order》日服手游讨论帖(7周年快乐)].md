@@ -2553,3 +2553,19 @@ FGO宝具动画喜欢玩机战的梗，但是3D机设做的和shit一样...要�
 这弟弟的重度比信胜还离谱</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">我不是在问他弟弟对焚高的真实感情到底是怎么样的....就是在问他弟弟对焚高的那些指控到底是不是基于史实还是二创
 
+
+*****
+
+####  jackyhuang  
+##### 15164#       发表于 2024-11-19 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66732880&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-11-19 22:23</a>
+我不是在问他弟弟对焚高的真实感情到底是怎么样的....就是在问他弟弟对焚高的那些指控到底是不是基于史实 ...</blockquote>
+剧情最后说了弟弟动机就是梵高自杀啊，前面的指控不过是幌子而已
+
+史实梵高自杀后弟弟精神崩溃，半年后死了兄弟还葬在一起
+
+当然废狗梵高从自杀动机开始就已经是二创了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

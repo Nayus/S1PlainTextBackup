@@ -2478,3 +2478,14 @@ FGO宝具动画喜欢玩机战的梗，但是3D机设做的和shit一样...要�
 
 50星150爆伤，跟自己原皮组队挺不错
 
+
+*****
+
+####  exiaexa  
+##### 15157#       发表于 2024-11-19 19:31
+
+进BOSS战前的CG图给我整笑了
+
+能不能不要画的这么生草
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

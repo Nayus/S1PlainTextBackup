@@ -1835,3 +1835,13 @@ ED播到这个画面的表针是静止的。群友找了几张图，都不一样
 
 明年目标就是百亿了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  byisme001  
+##### 6969#       发表于 2024-11-19 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66726368&amp;ptid=2160194" target="_blank">yth329 发表于 2024-11-19 09:48</a>
+终于开始打这部了，有好的攻略wiki站推荐吗</blockquote>
+https://trails-game.com/walkthrough/kai-walkthrough/
+

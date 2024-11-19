@@ -54,3 +54,11 @@ XB1XB2为了提升世界观的真实感，诸如“此地位于巨神大腿上�
 
 那么XB3怎么处理的呢，第一章除了正确的通路以外，地图中间地图两侧走过去踩空会直接跌落悬崖，至于为啥大平原出来能直通悬崖，游戏一点解释都没有，结晶也直接开嘲“你竟然不知道掉下悬崖会摔死”。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">感觉你这个从眼睛调取信息和一键换装的设定也是差不多的理由，高桥觉得玩家能无条件接受，解释都懒的搞了
 
+
+*****
+
+####  sslink  
+##### 194#       发表于 2024-11-19 11:20
+
+悬崖哥又来了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

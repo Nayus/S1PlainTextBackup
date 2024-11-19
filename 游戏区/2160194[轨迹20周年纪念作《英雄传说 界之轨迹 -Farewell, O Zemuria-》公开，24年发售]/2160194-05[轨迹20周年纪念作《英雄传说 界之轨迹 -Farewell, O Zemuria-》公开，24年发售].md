@@ -1801,3 +1801,21 @@ ED播到这个画面的表针是静止的。群友找了几张图，都不一样
 
 [https://kamikouryaku.net/](https://kamikouryaku.net/) 神攻略够用了
 
+
+*****
+
+####  卢迪克  
+##### 6966#       发表于 2024-11-19 11:18
+
+帝国四大贵族，皇国九曜众，瓦利斯五名家，说起来共和国居然没有设定数字xxxx<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  winggg  
+##### 6967#       发表于 2024-11-19 11:23
+
+<blockquote>卢迪克 发表于 2024-11-19 11:18
+帝国四大贵族，皇国九曜众，瓦利斯五名家，说起来共和国居然没有设定数字xxxx ...</blockquote>
+带上眼镜仔亚尔贝尔在内，那叫爱的五边形
+

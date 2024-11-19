@@ -114,3 +114,13 @@ Scan应该没有漏网之鱼的</blockquote>
 
 紺野大樹 さん @konnotato
 
+
+*****
+
+####  Toby_dak  
+##### 1963#       发表于 2024-11-19 11:25
+
+船舱走廊这近距离密闭空间，手榴弹炸了旁边几米的居然没事<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.37)
+

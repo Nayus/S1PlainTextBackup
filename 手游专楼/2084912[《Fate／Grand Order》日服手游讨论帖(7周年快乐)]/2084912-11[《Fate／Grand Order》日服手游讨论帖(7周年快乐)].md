@@ -2505,3 +2505,13 @@ FGO宝具动画喜欢玩机战的梗，但是3D机设做的和shit一样...要�
 
 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">被恶心到了....藏了这么多天的3破第一次亮相竟然是被敌人夺舍的状态
 
+
+*****
+
+####  森兰丸  
+##### 15160#       发表于 2024-11-19 21:49
+
+<img src="https://static.saraba1st.com/image/smiley/face/41.gif" referrerpolicy="no-referrer">不了解梵高的生平.....这次活动剧情他弟弟说的背叛就是史实剧情还是又是月球史的2创
+
+如果是真的话那么焚高现在也不可能成为这么有名气的画家吧
+

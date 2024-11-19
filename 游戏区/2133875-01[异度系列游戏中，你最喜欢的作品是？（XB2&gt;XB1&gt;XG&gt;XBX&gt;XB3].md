@@ -160,3 +160,37 @@ XB1XB2为了提升世界观的真实感，诸如“此地位 ...</blockquote>
 
 也行吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ppa11  
+##### 201#       发表于 2024-11-19 19:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66727714&amp;ptid=2133875" target="_blank">莎奈亞 发表于 2024-11-19 12:08</a>
+高桥的系统有一直在搞得人和之力，是“性质相异者关联”的核心一部分，
+
+剧情无论嫌咸嫌甜嫌淡的也一直都 ...</blockquote>
+说xb3的问题，你列四个名字三个前作的。。
+xb1是独立故事吗？xbx是独立故事吗？xb2是独立故事吗？在xb3之前这仨都是彩蛋级别的世界观关联，谁要你阶段性完结啊，大伙都是独立产品，不是你高桥自己非要搞高关联续作然后崩了？你们一直吹老玩家想要xb2-2吹到自己都信了？我寻思当时那张照片被爆料出来的时候绝大多数人都是在骂。xb1的部分也做成依托，原本各民族有特色区分的服饰被改到毫无存在感，更明显的是机神族人还有一丝一毫的机械特征吗，造型块退化到和2的小黑blade差不多了。
+让我们回到最开始，xb1、2的故事该完结吗？
+该
+正篇故事结束的时候，xb1、2的故事完结了吗？
+完结了
+那么xb的故事应该阶段性完结本来就是无源之水，从1和2的结局看，大地已经融合重生了，接下来就是开拓发展。3选在两个世界融合的时间点，采用时停的方式推进，本质就是个不该存在的故事，吃1、2的书在故事完全结束前强加进去了。然后这样不惜代价就搞出个1、2世界观相互对战的噱头，说是噱头是因为两边甚至没有真打，游戏开始不久这个概念就几乎丢完了（毕竟两边头领是同一组人），甚至漩涡中心的两个前作主角还用非本人非自愿规避，评价为想搞事又怂<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。
+整个xb3，承前的作用没起到（已经阶段性完结了），启后的作用也没有（毕竟来了个梦结局），对世界观的扩展或收缩作用也够不上（标准一次性世界观），甚至故事主旨还是复读xb1和2的放眼未来，究竟谁才是那个不愿意走向未来的梅比乌斯啊。。。说到底，明明是高桥作的，某些人倒打一耙说别人不愿出新才是最离谱的
+
+—— 來自 [鵝球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  ppa11  
+##### 202#       发表于 2024-11-19 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66727714&amp;ptid=2133875" target="_blank">莎奈亞 发表于 2024-11-19 12:08</a>
+高桥的系统有一直在搞得人和之力，是“性质相异者关联”的核心一部分，
+
+剧情无论嫌咸嫌甜嫌淡的也一直都 ...</blockquote>
+确实，猫猫拳那段故事把我严肃炸了<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+—— 來自 [鵝球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

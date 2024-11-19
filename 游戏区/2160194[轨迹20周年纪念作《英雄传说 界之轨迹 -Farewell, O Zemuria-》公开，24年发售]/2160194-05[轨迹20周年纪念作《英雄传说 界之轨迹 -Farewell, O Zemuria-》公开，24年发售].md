@@ -1853,3 +1853,13 @@ https://trails-game.com/walkthrough/kai-walkthrough/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我记得法老控之前几部都有大佬在PSNINE写攻略，这次没了？
 
+
+*****
+
+####  liuguokobe  
+##### 6971#       发表于 2024-11-19 19:43
+
+攻略的话我用的是这个[https://docs.qq.com/aio/DRWF1YVh ... 2C6TqWi1L9eslUpY9Tw](https://docs.qq.com/aio/DRWF1YVhtZFBwVkpC?p=W7w2C6TqWi1L9eslUpY9Tw)，贴吧那个太碎了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+其实现在的轨迹除了选项的时候基本也不用攻略了，买东西都给你标new了
+

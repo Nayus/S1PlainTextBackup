@@ -212,3 +212,16 @@ xb1是独立故事吗？xbx是独立故事吗？xb2是独立故事吗？在xb3�
 
 只好把他们当作执政官的死忠部队或类似监狱长一样不接受现实的复仇鬼了
 
+
+*****
+
+####  michanll  
+##### 204#       发表于 2024-11-19 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66731457&amp;ptid=2133875" target="_blank">ppa11 发表于 2024-11-19 19:03</a>
+
+说xb3的问题，你列四个名字三个前作的。。
+
+xb1是独立故事吗？xbx是独立故事吗？xb2是独立故事吗？在xb3之 ...</blockquote>
+我也是这么认为的，要弄关联你高桥弄个原创世界来相互对战我没意见，把xb2拉进去搞，明明xb2结局都算画上句号了，还被拉出来吃瘪。
+

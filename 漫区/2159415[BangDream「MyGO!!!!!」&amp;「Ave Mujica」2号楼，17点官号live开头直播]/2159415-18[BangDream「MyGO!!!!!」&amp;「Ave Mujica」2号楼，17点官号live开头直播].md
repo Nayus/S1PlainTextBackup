@@ -10998,3 +10998,11 @@ ANIMAX MUSIX 2024场贩</blockquote>
 
 幽默武士道，还知道把2nd端上来继续卖，看来不是不知道什么图好看什么图鬼嘛
 
+
+*****
+
+####  星天观测  
+##### 26075#       发表于 2024-11-19 18:37
+
+这个杯子好像是购票特典，感觉没那么好收了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

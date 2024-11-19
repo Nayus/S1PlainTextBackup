@@ -1819,3 +1819,19 @@ ED播到这个画面的表针是静止的。群友找了几张图，都不一样
 帝国四大贵族，皇国九曜众，瓦利斯五名家，说起来共和国居然没有设定数字xxxx ...</blockquote>
 带上眼镜仔亚尔贝尔在内，那叫爱的五边形
 
+
+*****
+
+####  洛克萨斯  
+##### 6968#       发表于 2024-11-19 13:51
+
+<img src="https://img.saraba1st.com/forum/202411/19/135055uxeaxyjnjbyfk8jn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (169.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-19 13:50 上传
+
+明年目标就是百亿了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

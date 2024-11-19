@@ -2515,3 +2515,18 @@ FGO宝具动画喜欢玩机战的梗，但是3D机设做的和shit一样...要�
 
 如果是真的话那么焚高现在也不可能成为这么有名气的画家吧
 
+
+*****
+
+####  jackyhuang  
+##### 15161#       发表于 2024-11-19 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66732623&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-11-19 21:49</a>
+不了解梵高的生平.....这次活动剧情他弟弟说的背叛就是史实剧情还是又是月球史的2创
+
+如果是真的话那么焚高 ...</blockquote>
+先把剧情看完吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+这弟弟的重度比信胜还离谱
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

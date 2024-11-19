@@ -1785,3 +1785,11 @@ ED播到这个画面的表针是静止的。群友找了几张图，都不一样
 终于开始打这部了，有好的攻略wiki站推荐吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去界轨贴吧看虚空大佬的白金攻略，轨迹系列最好的攻略制作者
 
+
+*****
+
+####  红魔馆的糖  
+##### 6964#       发表于 2024-11-19 10:15
+
+虚空的用的贴吧排版太难受了，去轨迹cafe吧，发售这么久估计攻略和wiki都整理好了。
+

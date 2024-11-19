@@ -10117,3 +10117,17 @@ VN又可爱又有点涩<img src="https://static.saraba1st.com/image/smiley/face2
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  csolfans  
+##### 995#       发表于 2024-11-19 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66726126&amp;ptid=2201887" target="_blank">奥柏伦亲王 发表于 2024-11-19 09:11</a>
+可C曲有股马裤螺丝味，个人还挺喜欢的，特别是后半
+
+论坛助手,iPhone</blockquote>
+正常，你看看编曲作者编过那些曲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

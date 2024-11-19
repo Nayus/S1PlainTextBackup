@@ -10963,3 +10963,38 @@ GcvFo_bbcAEgs8C.jpg
 
 海铃线稿这个叉腰有点搞<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 26072#       发表于 2024-11-19 17:46
+
+wsd真有点迷惑了吧，立希动画全在拉仇恨垫脚，剧场版宣传补猫和立希的戏份结果猫补了25分钟立希就几个镜头还没台词，连做手办都来个九缺一？这是一个二偶企划对正式角色的态度吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 26073#       发表于 2024-11-19 17:52
+
+ANIMAX MUSIX 2024场贩
+
+<img src="https://img.saraba1st.com/forum/202411/19/175154zm4bb7mpbddbgdo4.png" referrerpolicy="no-referrer">
+
+<strong>无标题00.png</strong> (759.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-19 17:51 上传
+
+*****
+
+####  桜庭千景  
+##### 26074#       发表于 2024-11-19 17:53
+
+ 本帖最后由 桜庭千景 于 2024-11-19 17:54 编辑 
+<blockquote>NODY 发表于 2024-11-19 17:52
+ANIMAX MUSIX 2024场贩</blockquote>
+
+幽默武士道，还知道把2nd端上来继续卖，看来不是不知道什么图好看什么图鬼嘛
+

@@ -218,3 +218,41 @@ https://weibo.com/6514705104/P14YCwnMV
 
 在看Q君直播，可惜直播不能HDR啊
 
+
+*****
+
+####  loliwansui87  
+##### 1811#       发表于 2024-11-20 02:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66733654&amp;ptid=1978008" target="_blank">医生狼多 发表于 2024-11-20 00:32</a>
+
+https://weibo.com/6514705104/P14YCwnMV
+
+感谢 PlayStation 中国的邀请，我们抢先玩到了在 11 月 20 日（本 ...</blockquote>
+这漏了个最重要的功能没提呀<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202411/20/022655hfhk6pvuhskohqtw.jpg" referrerpolicy="no-referrer">
+
+<strong>st1.jpg</strong> (62.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-20 02:26 上传
+
+<img src="https://img.saraba1st.com/forum/202411/20/022701ucv5pqknq5sqz54p.jpg" referrerpolicy="no-referrer">
+
+<strong>st2.jpg</strong> (87.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-20 02:27 上传
+
+*****
+
+####  宛若青空  
+##### 1812#       发表于 2024-11-20 02:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66733923&amp;ptid=1978008" target="_blank">loliwansui87 发表于 2024-11-20 02:27</a>
+这漏了个最重要的功能没提呀</blockquote>
+我去，真的有做了2B爆衣效果啊，不愧是金亨泰x横尾深度联动<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+

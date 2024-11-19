@@ -2530,3 +2530,13 @@ FGO宝具动画喜欢玩机战的梗，但是3D机设做的和shit一样...要�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
 
+
+*****
+
+####  jackyhuang  
+##### 15162#       发表于 2024-11-19 22:14
+
+这剧情乱七八糟的混在一起但就是给他串起来讲通了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

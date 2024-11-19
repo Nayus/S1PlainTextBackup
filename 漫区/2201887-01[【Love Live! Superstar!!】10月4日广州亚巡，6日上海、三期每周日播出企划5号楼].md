@@ -10131,3 +10131,31 @@ VN又可爱又有点涩<img src="https://static.saraba1st.com/image/smiley/face2
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  plazum  
+##### 996#       发表于 2024-11-19 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66706067&amp;ptid=2201887" target="_blank">Piano-Forest 发表于 2024-11-16 01:39</a>
+
+https://x.com/k_ritsu62/status/1856697525081948547
+
+3話もダンスパート原画描かせていただいたので！
+
+二 ...</blockquote>
+好怪异的表情……
+
+
+*****
+
+####  starring  
+##### 997#       发表于 2024-11-19 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66726714&amp;ptid=2201887" target="_blank">csolfans 发表于 2024-11-19 10:24</a>
+
+正常，你看看编曲作者编过那些曲
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 v3.0.0-alp ...</blockquote>
+原来马三角的hear the universe是他作曲，难怪绝对的lover听起来有点熟悉
+

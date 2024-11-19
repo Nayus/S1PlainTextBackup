@@ -10899,3 +10899,21 @@ ttps://x.com/GirLover_Ureka
 
 初祥有上色，睦海喵还是白模，立希只有剪影
 
+
+*****
+
+####  NODY  
+##### 26067#       发表于 2024-11-19 17:14
+
+mujica动画都没播模型已经做出来了，立希还没做，wsd是不是真的不太喜欢立希啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  SakuraのOrigami  
+##### 26068#       发表于 2024-11-19 17:21
+
+怎么立希是未公布的状态（）
+
+wsd你是不是立希黑（）
+

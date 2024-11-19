@@ -6578,3 +6578,11 @@ EA能把给生软的机会分出一次给西木就好了
 
 比如前作的daelish精灵会用爱尔兰口音，但是这作的两只Daelish精灵队友都是标准的美式英语。前作来自nevarra的卡姐是一口东欧腔的英语 ，结果这作来自Nevarra的教授变成了标准英式口音。唯一保持口音的是暗鸦们，继承了前几作Zevran和Josephine的西语口音，Lucanis为啥个人剧情那么垃圾还是无数人在追这个口音功不可没。
 
+
+*****
+
+####  ak123  
+##### 1241#       发表于 2024-11-19 17:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">销量拉了，tga连个提名也没混上也算咎由自取了
+

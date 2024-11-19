@@ -2497,3 +2497,11 @@ FGO宝具动画喜欢玩机战的梗，但是3D机设做的和shit一样...要�
 
 三破也太正常了
 
+
+*****
+
+####  森兰丸  
+##### 15159#       发表于 2024-11-19 20:56
+
+<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">被恶心到了....藏了这么多天的3破第一次亮相竟然是被敌人夺舍的状态
+

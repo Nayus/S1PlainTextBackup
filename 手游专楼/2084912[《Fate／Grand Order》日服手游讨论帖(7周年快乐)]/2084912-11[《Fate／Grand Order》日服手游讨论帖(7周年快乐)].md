@@ -2489,3 +2489,11 @@ FGO宝具动画喜欢玩机战的梗，但是3D机设做的和shit一样...要�
 能不能不要画的这么生草
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希望之花  
+##### 15158#       发表于 2024-11-19 19:50
+
+三破也太正常了
+

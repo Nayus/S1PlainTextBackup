@@ -37,3 +37,11 @@ V参加线下赛不都是立个牌子，好几次了
 
 这才俩，之前the k4sen线下day2lol那场vspo的一排牌子立过去才叫真的壮观<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  格林卡罗尔  
+##### 882#       发表于 2024-11-19 19:51
+
+都太搞了，能不能学rage放个大屏幕
+

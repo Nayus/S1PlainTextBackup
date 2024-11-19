@@ -1791,3 +1791,16 @@ oo是贪污吗，一般这种情况肯定是有一条贪污链，所以即使明
 
 —— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  cubesun  
+##### 160#       发表于 2024-11-19 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66682863&amp;ptid=2206438" target="_blank">夜月紫耀 发表于 2024-11-12 21:17</a>
+
+哈尔滨不是还有个哈飞是搞直升机的吗？</blockquote>
+其实更有名的业务是松花江牌微型小货车和小面包，当年叱咤东三省啊。
+
+不知怎么的后来没落了，被五菱抢了人民之车的名号
+

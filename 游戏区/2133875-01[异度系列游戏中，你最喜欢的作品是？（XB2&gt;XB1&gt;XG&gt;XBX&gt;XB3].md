@@ -150,3 +150,13 @@ XB1XB2为了提升世界观的真实感，诸如“此地位 ...</blockquote>
 虽说 ...</blockquote>
 就是还有没解放的殖民地（攻入始源的时候有提到），理论上还有没去过的地方，只是游戏里没做出来不能去
 
+
+*****
+
+####  祆天发育不良  
+##### 200#       发表于 2024-11-19 15:09
+
+一整个世界（一部分没做出来，也不知道是哪一部分）
+
+也行吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

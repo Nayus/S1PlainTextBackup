@@ -722,3 +722,22 @@ zeronet？
 所以我前面也说了，如何保活才是最重要的
 肯定不可能像BT那样全靠做种
 
+
+*****
+
+####  RAMDA  
+##### 75#       发表于 2024-11-19 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66720892&amp;ptid=2207318" target="_blank">蜇灵 发表于 2024-11-18 13:35</a>
+
+这些都是中心化的，还是要受制于人，啥时候能出一个基于区块链无需中心服务器的社交平台 ...</blockquote>
+bluesky自己不就是标榜“去中心化”的吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且真去中心化了是做不成社交平台的
+
+*****
+
+####  魔神赵日天  
+##### 76#       发表于 2024-11-19 12:22
+
+为啥新用户主要来源巴西？听上去和美国大选关系不大？
+

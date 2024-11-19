@@ -39,3 +39,18 @@ XB3出问题恰恰是因为高桥世界观偷懒摆烂（卖情怀+偷懒所以�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  ppa11  
+##### 193#       发表于 2024-11-19 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66725339&amp;ptid=2133875" target="_blank">小零360 发表于 2024-11-19 02:08</a>
+
+确实，我其实一直想吐槽他们啥都能从眼睛里调出来，也没人解释一下为什么，这个设定从头到尾都当做理所当 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">这就不得不提当年我莫名被XB3结晶嘲讽的迷之地图边界了。。
+
+XB1XB2为了提升世界观的真实感，诸如“此地位于巨神大腿上掉下去会摔死”，“云海有潮汐能在上面游泳能够改变部分地形”之类的弹窗对游戏性本身没什么用，但对世界观融入是正面的，花的精力也不算多。。
+
+那么XB3怎么处理的呢，第一章除了正确的通路以外，地图中间地图两侧走过去踩空会直接跌落悬崖，至于为啥大平原出来能直通悬崖，游戏一点解释都没有，结晶也直接开嘲“你竟然不知道掉下悬崖会摔死”。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">感觉你这个从眼睛调取信息和一键换装的设定也是差不多的理由，高桥觉得玩家能无条件接受，解释都懒的搞了
+

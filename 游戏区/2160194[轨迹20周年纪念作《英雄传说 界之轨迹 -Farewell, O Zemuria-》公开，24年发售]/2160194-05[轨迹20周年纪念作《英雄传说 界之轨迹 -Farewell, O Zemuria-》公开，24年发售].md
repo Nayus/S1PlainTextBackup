@@ -1766,3 +1766,22 @@ ED播到这个画面的表针是静止的。群友找了几张图，都不一样
 看了下七星说剧本没编完极有可能改动所以整篇访谈就只能模糊太极免得日后被打脸不愧是你法 ...</blockquote>
 有哪次访谈不是打太极吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yth329  
+##### 6962#       发表于 2024-11-19 09:48
+
+终于开始打这部了，有好的攻略wiki站推荐吗
+
+
+*****
+
+####  洛克萨斯  
+##### 6963#       发表于 2024-11-19 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66726368&amp;ptid=2160194" target="_blank">yth329 发表于 2024-11-19 09:48</a>
+
+终于开始打这部了，有好的攻略wiki站推荐吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去界轨贴吧看虚空大佬的白金攻略，轨迹系列最好的攻略制作者
+

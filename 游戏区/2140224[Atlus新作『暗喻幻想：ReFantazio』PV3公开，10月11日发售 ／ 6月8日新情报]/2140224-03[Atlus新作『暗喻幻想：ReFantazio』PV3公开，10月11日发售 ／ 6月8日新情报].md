@@ -6785,3 +6785,11 @@ SMT 的 press turn 与世界树的职业 + 前后排机制是一次失败的融�
 
 TGA投票权重以米系媒体为主，估计今年年度就是暗喻幻想了。。。
 
+
+*****
+
+####  Piano-Forest  
+##### 3564#         楼主| 发表于 2024-11-19 22:31
+
+<img src="https://p.sda1.dev/20/da02785bd3260631bd7c617f60b9de5b/008rdCNFgy1hvrefrn1s0j366840ox6p.jpg" referrerpolicy="no-referrer">
+

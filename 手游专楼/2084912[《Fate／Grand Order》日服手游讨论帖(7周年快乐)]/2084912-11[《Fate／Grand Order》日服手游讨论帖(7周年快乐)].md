@@ -2540,3 +2540,16 @@ FGO宝具动画喜欢玩机战的梗，但是3D机设做的和shit一样...要�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
 
+
+*****
+
+####  森兰丸  
+##### 15163#       发表于 2024-11-19 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66732705&amp;ptid=2084912" target="_blank">jackyhuang 发表于 2024-11-19 22:00</a>
+
+先把剧情看完吧
+
+这弟弟的重度比信胜还离谱</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">我不是在问他弟弟对焚高的真实感情到底是怎么样的....就是在问他弟弟对焚高的那些指控到底是不是基于史实还是二创
+

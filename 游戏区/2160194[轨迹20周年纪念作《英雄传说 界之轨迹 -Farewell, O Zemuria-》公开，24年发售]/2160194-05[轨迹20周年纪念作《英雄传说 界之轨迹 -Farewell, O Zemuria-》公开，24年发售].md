@@ -1863,3 +1863,15 @@ https://trails-game.com/walkthrough/kai-walkthrough/
 
 其实现在的轨迹除了选项的时候基本也不用攻略了，买东西都给你标new了
 
+
+*****
+
+####  corenel  
+##### 6972#       发表于 2024-11-19 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66729024&amp;ptid=2160194" target="_blank">折中旗帜鲜明 发表于 2024-11-19 14:51</a>
+我记得法老控之前几部都有大佬在PSNINE写攻略，这次没了？</blockquote>
+psn0 上有大佬写
+
+[https://psn0.com/post/158](https://psn0.com/post/158)
+

@@ -711,3 +711,14 @@ zeronet？
 
 封了吗，多少用户的时候封的？
 
+
+*****
+
+####  蜇灵  
+##### 74#       发表于 2024-11-19 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66724970&amp;ptid=2207318" target="_blank">wszweill 发表于 2024-11-19 00:23</a>
+就算关站一般也会提前打个招呼，可以中心 化备份到其他网站上。比如泥潭定期被清理 的 鹅乌楼。</blockquote>
+所以我前面也说了，如何保活才是最重要的
+肯定不可能像BT那样全靠做种
+

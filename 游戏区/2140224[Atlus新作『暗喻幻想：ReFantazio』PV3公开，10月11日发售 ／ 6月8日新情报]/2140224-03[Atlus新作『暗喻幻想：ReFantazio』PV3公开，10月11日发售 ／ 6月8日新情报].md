@@ -6765,3 +6765,15 @@ SMT 的 press turn 与世界树的职业 + 前后排机制是一次失败的融�
 <img src="https://p.sda1.dev/20/e121563663f905c4285f32ec8aaecce2/GcYpxHRaYAA3flS.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/20/3a2cb36b167655a4075d98a15d88a5b7/GcYpxtQbEAAyXPV.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  moonmagian  
+##### 3562#       发表于 2024-11-19 13:59
+
+一个月就打七五折了，你比育碧还快
+过两年还要再被皇家版背刺一次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/14da080db29dd022408113028cdee720/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+

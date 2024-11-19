@@ -106,3 +106,27 @@
 
 还以为旁白是大叔的声音 结果不是啊
 
+
+*****
+
+####  Piano-Forest  
+##### 148#         楼主| 发表于 2024-11-19 22:09
+
+第8話「親子の関係、子供の成長」
+
+久々に会う別居中の息子にいい所を見せようと、親子でハゼ釣りに繰り出す町田。常宏たちはそんな町田を温かく見守る。が、巨大チヌの目撃情報を受け、事態は思わぬ方向へ。
+
+脚本：鈴木智尋
+
+絵コンテ・演出：松原 聡
+
+総作画監督：谷口宏美
+
+作画監督：南井尚子、三島詠子、緒方歩惟、三好和也
+<img src="https://p.sda1.dev/20/d1557eedb79d18d4a3112d89e313fe4d/p_001.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/1ca8cda9c03b61e5ada97c9324d55e38/pic002.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/f2de1c6669410e33d1f1c20b272145c1/p_003.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/460e2d714551227c6ca7f24c97948c07/p_004.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/371676546d75d0cff2c3c3f53cef6c99/p_005.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/e393c8db72a5a919e0380b722f7605fa/pic006.jpg" referrerpolicy="no-referrer">
+

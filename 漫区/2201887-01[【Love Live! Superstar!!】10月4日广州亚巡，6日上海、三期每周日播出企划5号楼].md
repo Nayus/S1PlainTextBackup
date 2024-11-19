@@ -10159,3 +10159,13 @@ https://x.com/k_ritsu62/status/1856697525081948547
 —— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 v3.0.0-alp ...</blockquote>
 原来马三角的hear the universe是他作曲，难怪绝对的lover听起来有点熟悉
 
+
+*****
+
+####  ViyViy  
+##### 998#       发表于 2024-11-19 14:11
+
+这首鱼低音这么多，我已经有点担心live的垃圾收音和音响了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+including you首秀就是这样，直播里鱼小的跟没在唱一样，iy那首都没这个这么低。
+

@@ -1845,3 +1845,11 @@ ED播到这个画面的表针是静止的。群友找了几张图，都不一样
 终于开始打这部了，有好的攻略wiki站推荐吗</blockquote>
 https://trails-game.com/walkthrough/kai-walkthrough/
 
+
+*****
+
+####  折中旗帜鲜明  
+##### 6970#       发表于 2024-11-19 14:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我记得法老控之前几部都有大佬在PSNINE写攻略，这次没了？
+

@@ -256,3 +256,11 @@ https://weibo.com/6514705104/P14YCwnMV
 这漏了个最重要的功能没提呀</blockquote>
 我去，真的有做了2B爆衣效果啊，不愧是金亨泰x横尾深度联动<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  emcl  
+##### 1813#       发表于 2024-11-20 07:36
+
+问一下，买了港服的 dlc 能在美版光盘用吗
+

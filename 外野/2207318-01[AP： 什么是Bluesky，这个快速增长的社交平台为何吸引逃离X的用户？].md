@@ -741,3 +741,14 @@ bluesky自己不就是标榜“去中心化”的吗
 
 为啥新用户主要来源巴西？听上去和美国大选关系不大？
 
+
+*****
+
+####  Anarkia  
+##### 77#       发表于 2024-11-19 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66727863&amp;ptid=2207318" target="_blank">魔神赵日天 发表于 2024-11-19 12:22</a>
+
+为啥新用户主要来源巴西？听上去和美国大选关系不大？</blockquote>
+之前巴西封了几个月x，现在虽然解封了但很多人在找备用的吧
+

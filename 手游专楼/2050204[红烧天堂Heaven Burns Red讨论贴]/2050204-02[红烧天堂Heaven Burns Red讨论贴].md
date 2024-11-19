@@ -43,3 +43,15 @@ syl这种剧情超级重要的游戏真难宣传，首页非强度相关视频�
 
 最近有点忙，想调整好状态再打完第二章，先做老活动。活动商店里是要全换吗？还是说需要什么换什么
 
+
+*****
+
+####  sin.yugi  
+##### 1656#       发表于 2024-11-20 05:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66733908&amp;ptid=2050204" target="_blank">moras2694 发表于 2024-11-19 13:14</a>
+最近有点忙，想调整好状态再打完第二章，先做老活动。活动商店里是要全换吗？还是说需要什么换什么 ...</blockquote>
+第二章是开服内容，我觉得你应该先通第二章才开始打活动以防剧透。 商店优先当然是ss金碎片，石头和s抽卡卷等抽卡资源了，其他你缺什么资源就换啥吧反正商店不过期
+
+— from nubia NX729J, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+

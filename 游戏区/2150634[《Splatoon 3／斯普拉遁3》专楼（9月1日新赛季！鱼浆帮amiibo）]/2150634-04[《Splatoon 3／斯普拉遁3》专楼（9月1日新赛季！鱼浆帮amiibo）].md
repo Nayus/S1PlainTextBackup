@@ -228,3 +228,34 @@
 
 如果让第一赢了，差距会被进一步拉大，因此如果要赢必须连带赢过队友，这种情况下就是2v6了
 
+
+*****
+
+####  星野航  
+##### 5561#       发表于 2024-11-21 04:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66741782&amp;ptid=2150634" target="_blank">yanglian72 发表于 2024-11-21 02:12</a>
+
+汉语拼音首字母简写这种风气从哪来的？明星饭圈？</blockquote>
+当代年轻人的标准黑话了吧
+
+反正就是主打一个让你完全看不懂，这样小圈子就有壁垒了
+
+但肯定不限于明星，广泛互联网圈层都有，像yyds这种不早就有普遍性了么
+
+*****
+
+####  星野航  
+##### 5562#       发表于 2024-11-21 04:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66741950&amp;ptid=2150634" target="_blank">raii 发表于 2024-11-21 03:53</a>
+
+关于三色进攻方要团结这件事，其实也有不团结的时候，就是第二名和第一名一起进攻
+
+如果让第一赢了，差距会 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以我三色就不讲什么的
+
+除非是那种必须要赢的局，忍让一下，绝大多数情况只要有机会，还是会去拼第一
+
+谁知道你这结果怎么样呢，毕竟计分是不一样的
+

@@ -10201,3 +10201,15 @@ including you首秀就是这样，直播里鱼小的跟没在唱一样，iy那�
 
 X为什么老是会截断搜索结果的时间轴，不可能搜索结果只有now to 1 hour ago的记录的<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 1003#       发表于 2024-11-20 08:40
+
+花田已经要把薇恩对lovelive大赛出言不逊的事情糊弄过去了，当然观感还可以啊<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+等来一首参加大赛后被主办方播放历史VCR，就知道错了（跑）
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

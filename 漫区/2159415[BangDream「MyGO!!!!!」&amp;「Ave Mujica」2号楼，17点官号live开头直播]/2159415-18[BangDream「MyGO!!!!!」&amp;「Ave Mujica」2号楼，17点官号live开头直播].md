@@ -11207,3 +11207,14 @@ wsd平等地让每个团破防
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66736288&amp;ptid=2159415" target="_blank">NODY 发表于 2024-11-20 11:47</a></blockquote>
 图片出处是哪里？给个链接<img src="https://static.saraba1st.com/image/smiley/face/155.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 26099#       发表于 2024-11-20 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66736961&amp;ptid=2159415" target="_blank">[皆神孝介] 发表于 2024-11-20 13:02</a>
+
+图片出处是哪里？给个链接</blockquote>
+群里看人传的，出处不知，怀疑又是偷跑了
+

@@ -11295,3 +11295,24 @@ wsd平等地让每个团破防
 
 罗森以前的活动门店有啥，摆点立牌装饰吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">，要是有限定会不会被挤爆（
 
+
+*****
+
+####  哈曼的YY  
+##### 26109#       发表于 2024-11-20 16:09
+
+<img src="https://img.saraba1st.com/forum/202411/20/160937byvdtzb3e0v23dtz.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_464746349777085.jpg</strong> (87.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-20 16:09 上传
+
+*****
+
+####  stygian  
+##### 26110#       发表于 2024-11-20 16:15
+
+不是。。。<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

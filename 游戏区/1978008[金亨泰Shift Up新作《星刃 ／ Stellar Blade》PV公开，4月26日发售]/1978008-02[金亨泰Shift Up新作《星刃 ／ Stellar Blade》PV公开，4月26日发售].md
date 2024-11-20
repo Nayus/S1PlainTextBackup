@@ -529,3 +529,35 @@ ps5终于能启动了
 
 2024-11-20 22:00 上传
 
+
+*****
+
+####  nagitoY  
+##### 1840#       发表于 2024-11-20 23:08
+
+注册了日服账号，也购买了dlc。
+用日服账号进入游戏，存档是空的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+是要用原本打的港服账号来进入游戏吗？日服账号购买的dlc可以在港服账号上解锁？来自: iPhone客户端
+
+
+*****
+
+####  SergeGlenn  
+##### 1841#       发表于 2024-11-20 23:10
+
+不是说自爆也有吗？看看建模和原版比怎么样
+
+
+*****
+
+####  浅川雏羽  
+##### 1842#       发表于 2024-11-20 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66741223&amp;ptid=1978008" target="_blank">nagitoY 发表于 2024-11-20 23:08</a>
+注册了日服账号，也购买了dlc。
+用日服账号进入游戏，存档是空的
+是要用原本打的港服账号来进入游戏吗？日 ...</blockquote>
+日服开共享主号进游戏啊，ps的档跟着号的
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

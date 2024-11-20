@@ -130,3 +130,47 @@
 <img src="https://p.sda1.dev/20/371676546d75d0cff2c3c3f53cef6c99/p_005.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/20/e393c8db72a5a919e0380b722f7605fa/pic006.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 149#         楼主| 发表于 2024-11-20 23:14
+
+[https://x.com/onigiri123091/status/1856684685218423079](https://x.com/onigiri123091/status/1856684685218423079)
+
+アイス🍨
+
+かっこいい〜かわいい。
+
+ビーズのおもちゃみたいなアクセサリーよく似合う。
+
+バイタリティとスタミナがある人本当に羨ましい。
+<img src="https://p.sda1.dev/20/d8e3e4bb6596265b40f884eaa3337be0/20241120_231020.jpg" referrerpolicy="no-referrer">
+
+ネガポジアングラー7話
+
+みてくれたでしょうか？
+
+私は昨日寝落ちしてしまい。
+
+朝、ああああ…！！？ってなりました。
+
+1人でイキって釣りしてる常宏だったけど、後半みんなと結構自然にワイワイできてよかった！
+<img src="https://p.sda1.dev/20/b494bd39cd841c48516108d1bd0590c5/20241120_231028.jpg" referrerpolicy="no-referrer">
+
+秋になって、衣替えした後もたまに引きずってるかもしれない2人。
+<img src="https://p.sda1.dev/20/fe0fdc12fd4598b66bd79c3da3e10cdf/20241120_231036.jpg" referrerpolicy="no-referrer">
+
+チャームポイントです。
+<img src="https://p.sda1.dev/20/80705f8e2e93e544b74caabacb3e7462/20241120_231044.jpg" referrerpolicy="no-referrer">
+
+『ネガポジアングラー』第7話のご視聴ありがとうございました！
+
+今回は第7話の原画を公開🎣
+
+【原画：HORNETS様(@HORNETS_Info_)】
+<img src="https://p.sda1.dev/20/c6d936f0cf1ed7c57733aa6d1dda2dde/20241120_231107.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/e2f9e5009f075a82b2bb2c43dcd49257/20241120_231109.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/a3a999c29541dd6c79de4d72aeab3075/20241120_231110.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/1c20341c58e1b12ae0d7ab8ef21323d1/20241120_231111.jpg" referrerpolicy="no-referrer">
+

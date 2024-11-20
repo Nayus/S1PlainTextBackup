@@ -561,3 +561,22 @@ ps5终于能启动了
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  nagitoY  
+##### 1843#       发表于 2024-11-20 23:23
+
+ 本帖最后由 nagitoY 于 2024-11-20 23:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66741249&amp;ptid=1978008" target="_blank">浅川雏羽 发表于 2024-11-20 23:14</a>
+
+日服开共享主号进游戏啊，ps的档跟着号的
+
+论坛助手,iPhone</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没搞过
+
+不知道关键词是什么？我去搜下教程。
+
+看了下教程，大概是：
+备份一个日服小号，在日服小号里购买DLC，再点设置,用户与账号,其他，主机分享和离线游玩 选择“不禁用“。再直接切回之前港服的号？
+

@@ -1975,3 +1975,11 @@ psn0 上有大佬写
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66735302&amp;ptid=2160194" target="_blank">kenqqex 发表于 2024-11-20 10:18</a></blockquote>
 我也一直这种感觉……每章节换一群人盯着你，真的很渗人
 
+
+*****
+
+####  bladethunder  
+##### 6978#       发表于 2024-11-20 23:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">PC版when
+

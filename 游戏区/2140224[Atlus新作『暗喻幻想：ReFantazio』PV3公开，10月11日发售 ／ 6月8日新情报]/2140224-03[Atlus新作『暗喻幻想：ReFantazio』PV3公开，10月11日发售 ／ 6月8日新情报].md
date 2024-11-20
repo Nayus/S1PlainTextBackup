@@ -6825,3 +6825,17 @@ TGA投票权重以米系媒体为主，估计今年年度就是暗喻幻想了�
 
 以上都能满足=一击秒
 
+
+*****
+
+####  牙狼GARO  
+##### 3567#       发表于 2024-11-20 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66733998&amp;ptid=2140224" target="_blank">石中剑二 发表于 2024-11-20 03:45</a>
+这游戏怎么越打到后期越刮痧啊，是需要点什么打法吗</blockquote>
+要转换思路，还跟p一样中后期再打weak寻求再动，实在吃瘪，mp续航也会难以维持
+和骗子coop拉高，王城晚上的魔法商店买合题消耗行动力和mp减少的饰品，做大宝剑支线任务拿合题消耗和攻击up的双手剑，好兄弟装上就是秒，对有抗性反弹无效的，用面具直接上弱点打。
+不要心疼mp，mp用完了装上回mp的装备和技能，利用军师系coop必逃跑的效果，随便找个小怪直接进入指令战斗，用pass指令一回合每个人轮两次，再逃跑，mp很快就满了
+
+—— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

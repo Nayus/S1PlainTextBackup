@@ -440,3 +440,27 @@ ps5终于能启动了
 是，不过淘宝大概价格比汇率高点，我在日亚也能买</blockquote>
 日亚也可以直接买psn的点卡？我回去搜一下
 
+
+*****
+
+####  真空管  
+##### 1833#       发表于 2024-11-20 19:31
+
+<img src="https://img.saraba1st.com/forum/202411/20/192347z1x7tcofut83pl8o.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_4102.JPG</strong> (592.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-20 19:23 上传
+
+<img src="https://img.saraba1st.com/forum/202411/20/192728q6zx4n3hxsq7b44y.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_4103.JPG</strong> (521.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-20 19:27 上传
+
+罐头位置，挺糊弄的埃米尔就两句话，收完罐子还跑了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

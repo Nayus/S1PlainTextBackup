@@ -833,3 +833,19 @@ syngup铁串子<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 我猜后面其他人应该也还是会请其他网红音乐人来做solo1 ...</blockquote>
 有点太像隔壁赛马娘片场了
 
+
+*****
+
+####  芜湖挨宰  
+##### 6703#       发表于 2024-11-20 19:31
+
+三牛老师的同人本竟然切了，销量600+简直签字地狱
+
+<img src="https://img.saraba1st.com/forum/202411/20/193224wzz778gs1g7sy8d7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (143.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-20 19:32 上传
+

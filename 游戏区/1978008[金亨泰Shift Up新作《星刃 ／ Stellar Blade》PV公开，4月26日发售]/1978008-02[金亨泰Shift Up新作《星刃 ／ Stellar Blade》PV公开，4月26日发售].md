@@ -264,3 +264,13 @@ https://weibo.com/6514705104/P14YCwnMV
 
 问一下，买了港服的 dlc 能在美版光盘用吗
 
+
+*****
+
+####  牙狼GARO  
+##### 1814#       发表于 2024-11-20 09:31
+
+太顶了，现在最爽的体验方法是直接上ps5版还是等明年pc完全体
+
+—— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

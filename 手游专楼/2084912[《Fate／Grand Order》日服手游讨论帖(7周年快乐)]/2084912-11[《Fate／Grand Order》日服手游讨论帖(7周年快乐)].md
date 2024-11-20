@@ -2653,3 +2653,22 @@ FGO宝具动画喜欢玩机战的梗，但是3D机设做的和shit一样...要�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
 
+
+*****
+
+####  Jamaisvu  
+##### 15173#       发表于 2024-11-20 17:53
+
+图坦卡蒙三破宝具好怪啊，神秘裸漂男上机动画...：
+
+另外这构图和仇尼托宝具很相似啊：
+
+同为法老，说不定拉二改模后也会裸漂在巨物中心放光炮？<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 15174#       发表于 2024-11-20 17:55
+
+没意思 加成带倍卡难度也太低了
+

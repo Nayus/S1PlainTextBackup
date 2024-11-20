@@ -10223,3 +10223,18 @@ X为什么老是会截断搜索结果的时间轴，不可能搜索结果只有n
 
 如果映画真的讲维也纳和vn姐姐，不受nhk播出限制，你花田是不是要疯狂上自己的价值论了（指冲突爆爆爆）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 1005#       发表于 2024-11-20 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66735799&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-11-20 11:01</a>
+
+什么“小孩子不懂事啦大家谅解一下”
+
+如果映画真的讲维也纳和vn姐姐，不受nhk播出限制，你花田是不是要疯狂 ...</blockquote>
+薇恩姐这事，不好说，不过原创番的乐趣不就在于不可知么。
+
+中文台词都是临时用日本台本编的还不能改动其中的意思，说实话我觉得你花其实在星制作流程里依然很强势，只不过表面装死而已，虽然现在和被催眠app控制了一样，谁知道呢后面是什么活。
+

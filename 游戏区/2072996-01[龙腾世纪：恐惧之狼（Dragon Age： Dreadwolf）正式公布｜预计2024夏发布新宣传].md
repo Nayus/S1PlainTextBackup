@@ -6596,3 +6596,16 @@ EA能把给生软的机会分出一次给西木就好了
 龙腾世纪已经发售18天了，还没公布销量不会百万都到不了吧？不过生软做砸了三部作品还活着，EA真是把生软当 ...</blockquote>
 现在bioware也就剩个名字了吧，解散工作室但是不裁员等于没解散，还是那波人换个名字罢了
 
+
+*****
+
+####  llysander  
+##### 1243#       发表于 2024-11-20 08:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66721812&amp;ptid=2072996" target="_blank">lega-II 发表于 2024-11-18 15:40</a>
+
+额，这作的其实一个被系列粉喷的点就是配音的口音变轻了。
+
+比如前作的daelish精灵会用爱尔兰口音，但是这 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">鹈鹕灌顶，终于明白贝拉拉为什么别扭了，这种适用面很窄的美国高中生说话调调至少有一半是配音口音刷出来的印象
+

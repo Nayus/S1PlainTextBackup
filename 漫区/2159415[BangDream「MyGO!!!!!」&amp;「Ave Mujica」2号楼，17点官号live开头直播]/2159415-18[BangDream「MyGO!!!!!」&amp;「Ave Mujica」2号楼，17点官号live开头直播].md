@@ -11250,3 +11250,20 @@ wsd平等地让每个团破防
 
 那……只能希望在正式发售前能祥子的手改正常了，两只右手的钢琴家……这是什么1900转世么？<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives10  
+##### 26104#       发表于 2024-11-20 14:07
+
+立希这套新衣服真不错
+
+*****
+
+####  星天观测  
+##### 26105#       发表于 2024-11-20 14:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+能说什么呢，只能说某网游里有件衣服正好能cos初华
+

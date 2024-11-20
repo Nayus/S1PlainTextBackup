@@ -11287,3 +11287,11 @@ wsd平等地让每个团破防
 
 不要面具，退退退<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  silversor  
+##### 26108#       发表于 2024-11-20 15:20
+
+罗森以前的活动门店有啥，摆点立牌装饰吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">，要是有限定会不会被挤爆（
+

@@ -427,3 +427,16 @@ ps5终于能启动了
 是，网页也可
 是，不过淘宝大概价格比汇率高点，我在日亚也能买
 
+
+*****
+
+####  nagitoY  
+##### 1832#       发表于 2024-11-20 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66737927&amp;ptid=1978008" target="_blank">袄_偶滴小乔 发表于 2024-11-20 15:12</a>
+
+是，网页也可
+
+是，不过淘宝大概价格比汇率高点，我在日亚也能买</blockquote>
+日亚也可以直接买psn的点卡？我回去搜一下
+

@@ -225,3 +225,15 @@ xb1是独立故事吗？xbx是独立故事吗？xb2是独立故事吗？在xb3�
 xb1是独立故事吗？xbx是独立故事吗？xb2是独立故事吗？在xb3之 ...</blockquote>
 我也是这么认为的，要弄关联你高桥弄个原创世界来相互对战我没意见，把xb2拉进去搞，明明xb2结局都算画上句号了，还被拉出来吃瘪。
 
+
+*****
+
+####  ppa11  
+##### 205#       发表于 2024-11-20 08:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66731719&amp;ptid=2133875" target="_blank">michanll 发表于 2024-11-19 19:42</a>
+我也是这么认为的，要弄关联你高桥弄个原创世界来相互对战我没意见，把xb2拉进去搞，明明xb2结局都算画上 ...</blockquote>
+xb1故事也是结束的啊。。xbx当年被骂的最大理由之一就是故事没有完结
+
+—— 來自 [鵝球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

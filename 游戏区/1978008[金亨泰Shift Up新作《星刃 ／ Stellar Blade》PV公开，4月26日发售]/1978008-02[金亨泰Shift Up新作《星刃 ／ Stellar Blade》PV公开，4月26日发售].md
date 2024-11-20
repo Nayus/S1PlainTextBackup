@@ -464,3 +464,11 @@ ps5终于能启动了
 
 罐头位置，挺糊弄的埃米尔就两句话，收完罐子还跑了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  爱护动物抓根宝  
+##### 1834#       发表于 2024-11-20 20:27
+
+草了，更新完还遇上死亡代码了，一接照相任务就报错
+

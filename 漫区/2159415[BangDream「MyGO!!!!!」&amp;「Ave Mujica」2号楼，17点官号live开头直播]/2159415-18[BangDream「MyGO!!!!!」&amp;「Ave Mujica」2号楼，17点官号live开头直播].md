@@ -11428,3 +11428,17 @@ https://x.com/nemuizao20/status/1859148394331255210?s=46&amp;t=IZGx0N13SOtHALpwG
 
 <img src="https://p.sda1.dev/20/4c4b498cabd3d570be56cf60fb0a4634/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  silver鲤跃  
+##### 26118#       发表于 2024-11-20 22:18
+
+这mujicap像是szb玩守护教的，一问为什么不摘面具
+
+哈哈，我还没8费5进化
+
+等到8费5进化了就可以红豆泥瓦塔西摘面具了
+
+(观罗森偷跑有感)
+

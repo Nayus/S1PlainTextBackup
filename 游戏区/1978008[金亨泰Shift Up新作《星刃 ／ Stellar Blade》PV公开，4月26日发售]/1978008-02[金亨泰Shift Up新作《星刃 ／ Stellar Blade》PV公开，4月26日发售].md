@@ -274,3 +274,21 @@ https://weibo.com/6514705104/P14YCwnMV
 
 —— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 1815#       发表于 2024-11-20 09:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">尴了，日服余额929
+
+
+*****
+
+####  袄_偶滴小乔  
+##### 1816#       发表于 2024-11-20 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66734215&amp;ptid=1978008" target="_blank">emcl 发表于 2024-11-20 07:36</a>
+问一下，买了港服的 dlc 能在美版光盘用吗</blockquote>
+估计不行，网页上的数字版编号不同
+

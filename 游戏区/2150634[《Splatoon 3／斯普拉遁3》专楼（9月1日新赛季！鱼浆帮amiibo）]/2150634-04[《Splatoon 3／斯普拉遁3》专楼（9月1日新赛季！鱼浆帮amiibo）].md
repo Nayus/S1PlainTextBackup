@@ -26,3 +26,13 @@
 
 升级目录最快的方法就是打真格开放，
 
+
+*****
+
+####  秋月孝三  
+##### 5540#       发表于 2024-11-20 10:23
+
+突如其来的更新
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

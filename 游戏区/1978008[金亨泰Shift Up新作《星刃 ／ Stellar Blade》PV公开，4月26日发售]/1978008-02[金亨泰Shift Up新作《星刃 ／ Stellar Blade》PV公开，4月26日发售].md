@@ -395,3 +395,13 @@ ps5终于能启动了
 
 全程死最多是上古孽奇拔<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  燃烬之眼  
+##### 1829#       发表于 2024-11-20 12:27
+
+一周目BOSS还好 死的不多 这游戏压制住打还是好打的 指碾压脊椎
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.94-alpha
+

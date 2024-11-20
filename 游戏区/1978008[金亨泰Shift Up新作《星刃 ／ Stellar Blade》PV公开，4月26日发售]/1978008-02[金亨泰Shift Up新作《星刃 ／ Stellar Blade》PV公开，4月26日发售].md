@@ -405,3 +405,25 @@ ps5终于能启动了
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.94-alpha
 
+
+*****
+
+####  nagitoY  
+##### 1830#       发表于 2024-11-20 15:09
+
+借楼问一下日服psn的注册方法，看了眼可以直接在ps5上（我是日版）重新注册个小号？
+
+点卡直接去淘宝选日服psn就行了？
+
+*****
+
+####  袄_偶滴小乔  
+##### 1831#       发表于 2024-11-20 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66737902&amp;ptid=1978008" target="_blank">nagitoY 发表于 2024-11-20 15:09</a>
+借楼问一下日服psn的注册方法，看了眼可以直接在ps5上（我是日版）重新注册个小号？
+
+点卡直接去淘宝选日服p ...</blockquote>
+是，网页也可
+是，不过淘宝大概价格比汇率高点，我在日亚也能买
+

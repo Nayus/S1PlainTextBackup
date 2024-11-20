@@ -11344,3 +11344,26 @@ wsd平等地让每个团破防
 
 【剧场版「BanG Dream! It's MyGO!!!!!」后篇片尾曲「歩拾道」特别MV-哔哩哔哩】 [https://b23.tv/Dlg0AQe](https://b23.tv/Dlg0AQe)
 
+
+*****
+
+####  SakuraのOrigami  
+##### 26113#       发表于 2024-11-20 17:21
+
+<img src="https://img.saraba1st.com/forum/202411/20/172056rhzwnfh31zhhk3zp.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20241120171938.png</strong> (56.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-20 17:20 上传
+
+Gc0CjDmbUAAwd0s.jpg
+(468.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-20 17:20 上传
+
+<img src="https://img.saraba1st.com/forum/202411/20/172058ubwtfp5rwrf1pz0f.jpg" referrerpolicy="no-referrer">
+

@@ -16264,3 +16264,38 @@ miko昨天直播里说的和今天mio的推好像感觉是发生了什么比较�
 
 护照掉酒店了毫无察觉，拍风景技术是一流的
 
+
+*****
+
+####  holoan  
+##### 10215#         楼主| 发表于 2024-11-19 22:46
+
+不过说回来能找到护照而钱包再也找不回来了也是一个有意思的事
+
+护照确实卖不了钱所以对普通人没太大用，钱包嘛
+
+*****
+
+####  holoan  
+##### 10216#         楼主| 发表于 2024-11-20 12:15
+
+<img src="https://img.saraba1st.com/forum/202411/20/121252eyyu0hzz6pvaguh6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (18.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-20 12:12 上传
+
+[https://prtimes.jp/main/html/rd/p/000000011.000111607.html](https://prtimes.jp/main/html/rd/p/000000011.000111607.html)
+
+啥玩意？twogate？跟NTT？什么关系？cover又在搞什么飞机
+
+<img src="https://img.saraba1st.com/forum/202411/20/121452hnfdbuuxuubuobov.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (20.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-20 12:14 上传
+

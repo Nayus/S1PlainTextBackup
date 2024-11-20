@@ -11158,3 +11158,35 @@ wsd平等地让每个团破防
 
 有人说是P的，但对wsd来说越丑的越是官图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">越丑越真
 
+
+*****
+
+####  skives10  
+##### 26093#       发表于 2024-11-20 12:19
+
+你祥手上那个白毛巾有什么说法吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 26094#       发表于 2024-11-20 12:20
+
+和弦卷家合作带着面具给kkr表演晚安大小姐吗
+这样子联动<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 26095#       发表于 2024-11-20 12:22
+
+这面具虽然一言难尽，但执事装估计非常对同人女胃口，拉拉那边也是男装造型的周边人气都巨高，我估计推特要狂欢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 26096#       发表于 2024-11-20 12:23
+
+不过这套大概率是中国限定吧
+这下太君要狂喜之后狂怒了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

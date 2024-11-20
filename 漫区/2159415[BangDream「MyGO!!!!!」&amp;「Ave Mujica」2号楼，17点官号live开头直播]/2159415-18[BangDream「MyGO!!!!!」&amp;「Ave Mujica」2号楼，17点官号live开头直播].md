@@ -11114,3 +11114,47 @@ wsd平等地让每个团破防
 
 太醜了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 26088#       发表于 2024-11-20 12:13
+
+一睁眼五个黑衣面具女围绕着自己
+
+🍗太有福了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  芸香科植物激推  
+##### 26089#       发表于 2024-11-20 12:14
+
+笑得<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+什么鬼东西
+
+*****
+
+####  6030sylar  
+##### 26090#       发表于 2024-11-20 12:15
+
+鸡团搞笑团确信
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  Aendst  
+##### 26091#       发表于 2024-11-20 12:15
+
+什么黑衣人，原来是跟弦卷家合作了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ydsbbt  
+##### 26092#       发表于 2024-11-20 12:16
+
+这图看一次笑一次。
+
+有人说是P的，但对wsd来说越丑的越是官图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">越丑越真
+

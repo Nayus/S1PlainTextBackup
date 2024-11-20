@@ -365,3 +365,25 @@ https://weibo.com/6514705104/P14YCwnMV
 
 ps5终于能启动了
 
+
+*****
+
+####  绚烂航迹云  
+##### 1826#       发表于 2024-11-20 12:12
+
+快他妈上pc啊<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-AT72,Android 12](http://stage1.5j4m.com/?1.38)
+
+
+*****
+
+####  Ditfran  
+##### 1827#       发表于 2024-11-20 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66695628&amp;ptid=1978008" target="_blank">葵 发表于 2024-11-14 15:19</a>
+这游戏真正爽游是二周目，二周目人物可以继续升级提升性能，各种招式技能也是二周目解锁进一步过载强化， ...</blockquote>
+我的体验倒是反着的，前面的boss大部分都能一两次之内过，反而结尾处从疯女人开始的boss都反复试了十次才过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+

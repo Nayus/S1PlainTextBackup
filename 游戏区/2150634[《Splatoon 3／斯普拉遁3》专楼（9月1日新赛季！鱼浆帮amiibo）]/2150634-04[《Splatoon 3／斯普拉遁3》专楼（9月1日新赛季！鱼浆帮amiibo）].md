@@ -145,3 +145,11 @@
 
 现在小绿的强度不是挺够当标杆了吗 为什么要加强一下再当标杆 也不知道下次武器调整什么时候来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  炫夜鳞  
+##### 5552#       发表于 2024-11-20 14:31
+
+三色终于知道教玩家团结了
+

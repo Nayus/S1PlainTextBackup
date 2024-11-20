@@ -16299,3 +16299,34 @@ miko昨天直播里说的和今天mio的推好像感觉是发生了什么比较�
 
 2024-11-20 12:14 上传
 
+
+*****
+
+####  holoan  
+##### 10217#         楼主| 发表于 2024-11-20 13:30
+
+<img src="https://img.saraba1st.com/forum/202411/20/133018drm5d2zm7zrs7msr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (49.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-20 13:30 上传
+
+复刻还整了个online限定
+
+*****
+
+####  holoan  
+##### 10218#         楼主| 发表于 2024-11-20 16:52
+
+<img src="https://img.saraba1st.com/forum/202411/20/165046u85b506tjz6t0d08.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-20 16:50 上传
+
+精力
+

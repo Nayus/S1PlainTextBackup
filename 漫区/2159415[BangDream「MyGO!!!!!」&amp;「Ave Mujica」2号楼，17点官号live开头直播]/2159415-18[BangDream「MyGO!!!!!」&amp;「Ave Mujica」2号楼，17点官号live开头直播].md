@@ -11316,3 +11316,23 @@ wsd平等地让每个团破防
 
 不是。。。<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SakuraのOrigami  
+##### 26111#       发表于 2024-11-20 16:52
+
+ 本帖最后由 SakuraのOrigami 于 2024-11-20 16:55 编辑 
+
+这是在给鸡录鼓了吗（）
+
+编辑：看了下好像是在给男邦的Fantôme Iris录鼓，抱歉发错消息（）
+
+<img src="https://img.saraba1st.com/forum/202411/20/165243w7yyl0tc3ytlrbul.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20241120165157.png</strong> (166.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-20 16:52 上传
+

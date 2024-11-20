@@ -10238,3 +10238,19 @@ X为什么老是会截断搜索结果的时间轴，不可能搜索结果只有n
 
 中文台词都是临时用日本台本编的还不能改动其中的意思，说实话我觉得你花其实在星制作流程里依然很强势，只不过表面装死而已，虽然现在和被催眠app控制了一样，谁知道呢后面是什么活。
 
+
+*****
+
+####  ViyViy  
+##### 1006#       发表于 2024-11-20 16:50
+
+这后半段保真么，百科毕竟想改都能改
+
+<img src="https://img.saraba1st.com/forum/202411/20/164901mcqf4422u24fufpp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0053.jpeg</strong> (140.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-20 16:49 上传
+

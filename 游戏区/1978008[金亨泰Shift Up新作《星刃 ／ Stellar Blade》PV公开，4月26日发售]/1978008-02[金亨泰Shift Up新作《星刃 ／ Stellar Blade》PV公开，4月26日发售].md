@@ -292,3 +292,26 @@ https://weibo.com/6514705104/P14YCwnMV
 问一下，买了港服的 dlc 能在美版光盘用吗</blockquote>
 估计不行，网页上的数字版编号不同
 
+
+*****
+
+####  葵  
+##### 1817#       发表于 2024-11-20 10:08
+
+对比了下，尼尔服装的体模也是新的体模，大胸大盆骨<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Andariel  
+##### 1818#       发表于 2024-11-20 10:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但是感觉屁股还是不如原版2b圆润啊
+
+*****
+
+####  洛克萨斯  
+##### 1819#       发表于 2024-11-20 10:15
+
+伊芙的脸用a2那身看着好怪..............2b倒是能驾驭<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

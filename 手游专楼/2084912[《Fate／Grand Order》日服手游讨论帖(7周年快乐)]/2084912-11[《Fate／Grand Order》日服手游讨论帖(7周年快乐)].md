@@ -2613,3 +2613,18 @@ FGO宝具动画喜欢玩机战的梗，但是3D机设做的和shit一样...要�
 
 这弟弟也太重了OTZ
 
+
+*****
+
+####  jackyhuang  
+##### 15169#       发表于 2024-11-20 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66736433&amp;ptid=2084912" target="_blank">angelooo 发表于 2024-11-20 12:01</a>
+逛了几个评论区感觉好多人没看过梵高幕间还在那复读5%……
+
+这里吵架的就是月球梵高兄弟和宁芙没关系，梵 ...</blockquote>
+不是谁都有梵高也不是谁都会去看幕间
+不是这个活动我也只有梵高弟弟有在幕间出场这种程度的记忆而已<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

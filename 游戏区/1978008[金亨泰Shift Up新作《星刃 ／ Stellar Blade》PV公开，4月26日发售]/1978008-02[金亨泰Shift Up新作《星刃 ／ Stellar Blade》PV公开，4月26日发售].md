@@ -484,3 +484,13 @@ ps5终于能启动了
 是，不过淘宝大概价格比汇率高点，我在日亚也能买</blockquote>
 日亚能用国内信用卡买这个吗
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 1836#       发表于 2024-11-20 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66740442&amp;ptid=1978008" target="_blank">想象的亚兹拉 发表于 2024-11-20 21:04</a>
+日亚能用国内信用卡买这个吗</blockquote>
+能，我用邮储和中行的卡
+

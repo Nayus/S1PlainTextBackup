@@ -2709,3 +2709,14 @@ https://www.bilibili.com/video/BV1tqSTYvEmZ
 
 高难三回合带框的宝具封印真的烦
 
+
+*****
+
+####  alucardcz  
+##### 15179#       发表于 2024-11-20 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66739507&amp;ptid=2084912" target="_blank">quanlix 发表于 2024-11-20 18:55</a>
+
+高难三回合带框的宝具封印真的烦</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后排不吃 换个大吸上来继续秒
+

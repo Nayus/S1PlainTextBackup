@@ -11242,3 +11242,11 @@ wsd平等地让每个团破防
 
 右上角写的社外秘 肯定是真的啊
 
+
+*****
+
+####  前方暴雨预警  
+##### 26103#       发表于 2024-11-20 13:55
+
+那……只能希望在正式发售前能祥子的手改正常了，两只右手的钢琴家……这是什么1900转世么？<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
+

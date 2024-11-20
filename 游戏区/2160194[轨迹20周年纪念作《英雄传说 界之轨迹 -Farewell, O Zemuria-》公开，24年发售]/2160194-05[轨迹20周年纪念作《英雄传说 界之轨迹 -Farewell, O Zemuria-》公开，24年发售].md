@@ -1939,3 +1939,30 @@ psn0 上有大佬写
 
 （博士的名誉保住了）
 
+
+*****
+
+####  卢迪克  
+##### 6975#       发表于 2024-11-20 14:00
+
+ 本帖最后由 卢迪克 于 2024-11-20 14:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66728548&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-11-19 13:51</a>
+
+明年目标就是百亿了</blockquote>
+2021  q4 制品部门5.07亿  黎轨
+
+2022  q4 制品部门5.08亿  黎轨2+黎轨ps5
+
+2023  q4 制品部门4.56亿  伊苏10
+
+2024  q4  制品部门4.67亿  界轨+黎轨2 ns
+
+这是你轨新作第一次首发打不过伊苏<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无动于衷  
+##### 6976#       发表于 2024-11-20 14:03
+
+干脆以后盟主CV让你法粉丝投票得了，投谁用谁 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

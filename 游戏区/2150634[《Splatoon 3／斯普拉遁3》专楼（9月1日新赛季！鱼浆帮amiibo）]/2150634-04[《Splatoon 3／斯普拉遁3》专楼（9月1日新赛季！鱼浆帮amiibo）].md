@@ -191,3 +191,13 @@
 什么是wys</blockquote>
 乌贼研究所
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 5557#       发表于 2024-11-21 00:33
+
+第一次知道有这种说法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是习惯叫研究所或者ika研
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

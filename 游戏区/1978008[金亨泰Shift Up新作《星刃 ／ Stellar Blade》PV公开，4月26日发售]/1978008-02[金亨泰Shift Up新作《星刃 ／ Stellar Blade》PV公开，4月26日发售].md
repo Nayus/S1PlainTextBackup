@@ -580,3 +580,44 @@ ps5终于能启动了
 看了下教程，大概是：
 备份一个日服小号，在日服小号里购买DLC，再点设置,用户与账号,其他，主机分享和离线游玩 选择“不禁用“。再直接切回之前港服的号？
 
+
+*****
+
+####  爱护动物抓根宝  
+##### 1844#       发表于 2024-11-20 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66741302&amp;ptid=1978008" target="_blank">nagitoY 发表于 2024-11-20 23:23</a>
+没搞过
+
+不知道关键词是什么？我去搜下教程。</blockquote>
+设置 用户和账号 其他 主机分享和离线游玩
+把日区账号的这个选项打开后接着用老的港区号玩就行
+
+dlc的区域验证验的是跟本体匹不匹配，本体是日区的dlc也是日区就没问题，至于你用哪个区的账号游玩是无所谓的
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| nagitoY| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  浅川雏羽  
+##### 1845#       发表于 2024-11-20 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66741302&amp;ptid=1978008" target="_blank">nagitoY 发表于 2024-11-20 23:23</a>
+没搞过
+
+不知道关键词是什么？我去搜下教程。</blockquote>
+是，只要你离线游玩开着，机器上所有号都能用上你挂离线那个号上的内容
+所以你买东西的时候可以去各个服，玩的话统一用一个主号就行了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

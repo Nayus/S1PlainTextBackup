@@ -2672,3 +2672,40 @@ FGO宝具动画喜欢玩机战的梗，但是3D机设做的和shit一样...要�
 
 没意思 加成带倍卡难度也太低了
 
+
+*****
+
+####  alucardcz  
+##### 15175#       发表于 2024-11-20 18:47
+
+[https://www.bilibili.com/video/BV1tqSTYvEmZ](https://www.bilibili.com/video/BV1tqSTYvEmZ)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">1宝学姐5加成不换人。。 这1宝学姐都连上多好班了。。今年最强的卡吗（
+
+
+*****
+
+####  v22325  
+##### 15176#       发表于 2024-11-20 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66739455&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-11-20 18:47</a>
+
+https://www.bilibili.com/video/BV1tqSTYvEmZ
+
+1宝学姐5加成不换人。。 这1宝学姐都连上多好班了。。今年 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草 不看你视频我都忘了学姐对剑职有加成
+
+*****
+
+####  qixinno2  
+##### 15177#       发表于 2024-11-20 18:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最强单体弓
+
+*****
+
+####  quanlix  
+##### 15178#       发表于 2024-11-20 18:55
+
+高难三回合带框的宝具封印真的烦
+

@@ -504,3 +504,28 @@ ps5终于能启动了
 
 免费更新的四秒钟休闲服还蛮好看，烽火裙水手服太直球了差点意思
 
+
+*****
+
+####  nakosm  
+##### 1838#       发表于 2024-11-20 22:00
+
+买了dlc，发现之前开了新游戏覆盖了存档，这下得重打一遍了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  浅川雏羽  
+##### 1839#       发表于 2024-11-20 22:01
+
+原来这就是我买PS5pro的意义，我已经完全悟了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202411/20/220050d141vc3z4omfmcol.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_4985.JPG</strong> (507.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-20 22:00 上传
+

@@ -123,3 +123,25 @@
 
 长热还不削<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罗克萨斯  
+##### 5550#       发表于 2024-11-20 13:41
+
+ 本帖最后由 罗克萨斯 于 2024-11-20 13:43 编辑 
+
+小绿加强了，但加强的不多，不如把RPG削的地方补回来
+
+贴牌轻加削得莫名其妙，不会真以为奶狗拉用得强是因为武器强吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  双重清洁枪  
+##### 5551#       发表于 2024-11-20 13:44
+
+现在小绿的强度不是挺够当标杆了吗 为什么要加强一下再当标杆 也不知道下次武器调整什么时候来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

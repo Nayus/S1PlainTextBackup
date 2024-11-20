@@ -201,3 +201,11 @@
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  yanglian72  
+##### 5558#       发表于 2024-11-21 01:12
+
+汉语拼音首字母简写这种风气从哪来的？明星饭圈？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

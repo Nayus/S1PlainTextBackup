@@ -2581,3 +2581,11 @@ FGO宝具动画喜欢玩机战的梗，但是3D机设做的和shit一样...要�
 如果是真的话那么焚高 ...</blockquote>
 现实中怎么可能有这样想法的人而不以罪犯身份留名
 
+
+*****
+
+####  cenhr  
+##### 15166#       发表于 2024-11-20 10:35
+
+看到有正太控抱怨法老三临是青年忽然让我想起抱怨萝莉会长大成少女的萝莉控，总结：都是恶心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -38,3 +38,19 @@ asmr还真藏了个志摩凛，要联动了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">游戏刷着调查然后突然弹通知了鬼畜
 
+
+*****
+
+####  冰风血羽  
+##### 1266#       发表于 2024-11-21 21:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">卧槽，调查我来挖矿了！
+
+
+*****
+
+####  用户名未定义  
+##### 1267#       发表于 2024-11-21 21:17
+
+能有ゆるキャン　VS　がちキャン　吗
+

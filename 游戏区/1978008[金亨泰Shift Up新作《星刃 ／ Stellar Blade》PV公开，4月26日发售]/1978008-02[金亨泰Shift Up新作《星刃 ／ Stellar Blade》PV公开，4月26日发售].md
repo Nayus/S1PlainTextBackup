@@ -642,3 +642,13 @@ dlc的区域验证验的是跟本体匹不匹配，本体是日区的dlc也是�
 看了眼，只要在废土或者大沙漠里截停一次埃米尔的车，就可以解锁相对应的星之彩的收集任务。收集后可以去埃 ...</blockquote>
 数据库里只给了现场的照片，不会在地图上标点。我姑且是把城里的10个点找齐了，沙漠和废土的放弃了，建议找攻略<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nagitoY  
+##### 1848#       发表于 2024-11-21 19:17
+
+<blockquote>[ Garterbelt replied on 2024-11-21 10:53](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66743446&amp;ptid=1978008) nagitoY 发表于 2024-11-21 09:03 看了眼，只要在废土或者大沙漠里截停一次埃米尔的车，就可以解锁相对应的星之彩的收集任务。收集后可以去埃 ... 数据库里只给了现场的照片，不会在地图上标点。我姑且是把城里的10个点找齐了，沙漠和废土的放弃了，建议找攻略 </blockquote>
+看了眼数据库。现在拍照挑战这一栏里，只有希雍“记忆之中”这一个景点啊。
+后续三件衣服的拍照挑战也需要去告示板接任务吗？来自: iPhone客户端
+

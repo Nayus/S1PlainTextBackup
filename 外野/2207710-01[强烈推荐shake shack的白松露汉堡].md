@@ -438,3 +438,16 @@ shakeshake除了奶昔其他不值得吃 太贵了又没好吃到那种程度
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  cherry__  
+##### 48#         楼主| 发表于 2024-11-21 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66748790&amp;ptid=2207710" target="_blank">systemerror 发表于 2024-11-21 22:05</a>
+
+这真是每个人口味不同，我最喜欢Shakeshack这个快要成糊糊的湿**的面包包体，不会像其他的汉堡一样咬在嘴 ...</blockquote>
+是这样，这个湿湿的面包真的是他家特色，没有别家这样的
+
+好不好吃另说，但有这个特色就会有固定客户群
+

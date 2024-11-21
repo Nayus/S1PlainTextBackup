@@ -10334,3 +10334,18 @@ yeahtiger是从最基本的mix架构Tiger!Fire!Cyber!Fiber!Diver!Viber!Jyajya!�
 至于Tiger!Fire!Cyber!Fiber!Diver!Viber!Jyajya!是源自于一首诗中的词，通常翻译成英语
 [https://www.bilibili.com/video/BV1bT4y1g7em](https://www.bilibili.com/video/BV1bT4y1g7em)
 
+
+*****
+
+####  stygian  
+##### 1014#       发表于 2024-11-21 19:31
+
+打call和哈基米一样是个错误传播扩展开后独立成为中文语境专有词的例子
+
+我的记忆中在你拉爆火之前不管是偶像圈子还是二次元圈子都是努力的说打mix/喊call<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+你都放无用男的视频了怎么不放他解释家虎那个啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+[https://www.bilibili.com/video/BV1Hx411h7aG](https://www.bilibili.com/video/BV1Hx411h7aG)
+
+call和mix是两条线，call七十年代就开始玩了，mix是新世纪早安饭搞起来的
+

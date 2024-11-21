@@ -16345,3 +16345,20 @@ miko昨天直播里说的和今天mio的推好像感觉是发生了什么比较�
 
 3*31=33<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 10221#         楼主| 发表于 2024-11-21 11:09
+
+半个多小时前mikorone游戏联动的直播回放突然被youtube以违反规定为由删掉了，太怪了
+
+里面完全没有什么过激内容啊，怎么判定的
+
+*****
+
+####  holoan  
+##### 10222#         楼主| 发表于 2024-11-21 19:29
+
+时隔3年还是4年的企划！
+

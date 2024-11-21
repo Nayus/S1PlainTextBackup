@@ -2782,3 +2782,11 @@ https://www.bilibili.com/video/BV1tqSTYvEmZ
 
 今天临时工确实已经把梵高那技能本的效果提前塞进去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  poor  
+##### 15185#       发表于 2024-11-22 00:38
+
+所以明天终于能抽梵高了吗
+

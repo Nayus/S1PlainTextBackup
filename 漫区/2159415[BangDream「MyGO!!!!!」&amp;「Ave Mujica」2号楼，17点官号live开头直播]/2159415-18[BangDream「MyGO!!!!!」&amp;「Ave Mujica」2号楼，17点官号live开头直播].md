@@ -11534,3 +11534,13 @@ https://weibo.com/5919695279/5102927477475039
 
 最後の警告です～
 
+
+*****
+
+####  星天观测  
+##### 26124#       发表于 2024-11-21 09:14
+
+nga那边好像准备开新楼了
+
+坐等12月1号s1的鸡楼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

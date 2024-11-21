@@ -2774,3 +2774,11 @@ https://www.bilibili.com/video/BV1tqSTYvEmZ
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
 
+
+*****
+
+####  岸浪白野  
+##### 15184#       发表于 2024-11-21 21:19
+
+今天临时工确实已经把梵高那技能本的效果提前塞进去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

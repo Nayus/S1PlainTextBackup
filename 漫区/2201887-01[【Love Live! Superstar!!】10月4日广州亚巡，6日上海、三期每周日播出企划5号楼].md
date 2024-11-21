@@ -10254,3 +10254,15 @@ X为什么老是会截断搜索结果的时间轴，不可能搜索结果只有n
 
 2024-11-20 16:49 上传
 
+
+*****
+
+####  奥柏伦亲王  
+##### 1007#       发表于 2024-11-21 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66738750&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-11-20 16:50</a>
+这后半段保真么，百科毕竟想改都能改</blockquote>
+打call是wota艺演变来的吧，我感觉至少可以追溯到十几年前akb流行的时期，或者再早一点，早安家族时期应该就有雏形了。这百科怎么看都像是宅宅的幻想
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

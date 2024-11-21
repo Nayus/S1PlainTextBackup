@@ -2121,3 +2121,11 @@ psn0 上有大佬写
 
 黎1斑鸠他们还说自己和九曜起源不同呢，界轨斑鸠忍者直接在那复读九曜使命，黑铁搁那甩九曜降魔印<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一步成诗  
+##### 6992#       发表于 2024-11-21 15:57
+
+可能他们觉得自己这种先否定然后再推翻做进游戏里面的点子特别妙吧，惊不惊喜意不意外<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

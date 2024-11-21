@@ -295,3 +295,13 @@
 
 随便，我一般直接辱骂野上恒<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  晴岚  
+##### 5566#       发表于 2024-11-21 16:52
+
+比起长热我更讨厌喇叭这种绝活哥
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

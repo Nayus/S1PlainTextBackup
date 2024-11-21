@@ -12134,3 +12134,13 @@ pv有可能是12.1试映结束后直接在官号公开
 信泽大师负责十个人 把风格统一 那多是一件美事
 wsd太逆天了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 26165#       发表于 2024-11-21 23:48
+
+我本来觉得4th也还行，邦tv就用硬实力对比让我发现我其实是被pua了<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
+新图倒是确实可以
+

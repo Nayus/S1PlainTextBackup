@@ -279,3 +279,11 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Ryuuseigun  
+##### 5564#       发表于 2024-11-21 09:54
+
+只是用的不是常用键盘联想不出乌研所，切日文键盘打イカ研又麻烦就直接打了拼音首字母<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

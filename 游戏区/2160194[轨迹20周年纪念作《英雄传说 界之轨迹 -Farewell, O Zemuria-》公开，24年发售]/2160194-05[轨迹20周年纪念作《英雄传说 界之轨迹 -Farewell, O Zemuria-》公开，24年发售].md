@@ -1983,3 +1983,22 @@ psn0 上有大佬写
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">PC版when
 
+
+*****
+
+####  byisme001  
+##### 6979#       发表于 2024-11-21 09:49
+
+那本小说和亚妮完全没关系为什么最后会送吊坠给亚妮 小说是亚妮妈写的?
+
+
+*****
+
+####  仲可怀  
+##### 6980#       发表于 2024-11-21 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66742870&amp;ptid=2160194" target="_blank">byisme001 发表于 2024-11-21 09:49</a>
+
+那本小说和亚妮完全没关系为什么最后会送吊坠给亚妮 小说是亚妮妈写的?</blockquote>
+最新访谈 这个支线故事还没有结束 会有后续 本质和亚妮的真实身份有关
+

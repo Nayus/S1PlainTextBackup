@@ -10323,3 +10323,14 @@ X为什么老是会截断搜索结果的时间轴，不可能搜索结果只有n
 家虎这个词更莫名其妙</blockquote>
 说实话我也不懂为什么是这个词，反正大家都用我也用了，更不理解为什么要喊yeahtiger，彻底毁了我脑内水族馆这首歌。。
 
+
+*****
+
+####  1096beam  
+##### 1013#       发表于 2024-11-21 16:32
+
+yeahtiger是从最基本的mix架构Tiger!Fire!Cyber!Fiber!Diver!Viber!Jyajya!的极致简化版
+
+至于Tiger!Fire!Cyber!Fiber!Diver!Viber!Jyajya!是源自于一首诗中的词，通常翻译成英语
+[https://www.bilibili.com/video/BV1bT4y1g7em](https://www.bilibili.com/video/BV1bT4y1g7em)
+

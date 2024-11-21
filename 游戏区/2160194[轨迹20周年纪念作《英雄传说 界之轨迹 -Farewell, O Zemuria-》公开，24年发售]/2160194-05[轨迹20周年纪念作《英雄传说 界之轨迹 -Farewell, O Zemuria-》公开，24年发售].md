@@ -2050,3 +2050,11 @@ psn0 上有大佬写
 ？黎一可是明说同名与剧情无关的。
 学妹又不是没来过安卡维尔，属于是半点关系没有，女仆这种有关系的是什么描写？
 
+
+*****
+
+####  卢迪克  
+##### 6985#       发表于 2024-11-21 12:20
+
+现在都是现编的。哪来伏笔<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

@@ -631,3 +631,14 @@ dlc的区域验证验的是跟本体匹不匹配，本体是日区的dlc也是�
 
 拍照首先要去希雍告示板接一个任务，接了后自动解锁照相机。之后在希雍中心自拍一张完成任务获得服装。想问下，拍照还给3套服装，也是要去两张大地图的固定地点打卡。这些固定地点在数据库里会给出来吗？
 
+
+*****
+
+####  Garterbelt  
+##### 1847#       发表于 2024-11-21 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66742501&amp;ptid=1978008" target="_blank">nagitoY 发表于 2024-11-21 09:03</a>
+
+看了眼，只要在废土或者大沙漠里截停一次埃米尔的车，就可以解锁相对应的星之彩的收集任务。收集后可以去埃 ...</blockquote>
+数据库里只给了现场的照片，不会在地图上标点。我姑且是把城里的10个点找齐了，沙漠和废土的放弃了，建议找攻略<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

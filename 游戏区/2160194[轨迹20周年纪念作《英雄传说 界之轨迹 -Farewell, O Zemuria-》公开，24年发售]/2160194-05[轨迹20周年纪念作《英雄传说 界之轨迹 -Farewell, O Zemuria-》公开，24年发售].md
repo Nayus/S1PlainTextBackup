@@ -2088,3 +2088,26 @@ psn0 上有大佬写
 
 顺带魔王说的是絡繰，傀儡人形是不会只用这个词的，只能是装置，也就是创世。
 
+
+*****
+
+####  一步成诗  
+##### 6988#       发表于 2024-11-21 13:36
+
+别问，问就是笔在编剧手上，编剧是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蔺无双  
+##### 6989#       发表于 2024-11-21 13:39
+
+师姐这算是明示加入战场了吧，算下来共和国魅魔这边只有五个吧，哪怕加上玲也就勉强六个，比起帝国桃花剑还是少太多了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一步成诗  
+##### 6990#       发表于 2024-11-21 13:40
+
+黎1的时候还说范恩是人类，界轨看来到底是不是也不好说了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

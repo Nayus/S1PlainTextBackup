@@ -2058,3 +2058,18 @@ psn0 上有大佬写
 
 现在都是现编的。哪来伏笔<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hourousha  
+##### 6986#       发表于 2024-11-21 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66744061&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-11-21 12:02</a>
+
+？黎一可是明说同名与剧情无关的，前后不一怎么说的好像是玩家的问题？
+
+而且学妹又不是没来过安卡维尔， ...</blockquote>
+没说是玩家的问题啊,我说了是falcom的问题嘛,一个故事拖长拆开,那往里填东西就是必要的,而如果故事拖得过长,产生前后矛盾开始吃书也就不足为奇了.
+
+而且说实在的,也不见得就一定会产生矛盾,这东西不就看怎么编嘛.黎1里最后魔王说学妹是'傀儡',但到底是怎么个傀儡也没揭开,界里又提到了女仆是未来人圣女是外界人,所以这个'有关系'到底是什么程度的有关系也没确定不是? 外界的,不同时间线的,初始设计参考的等等,有不同的编法嘛
+

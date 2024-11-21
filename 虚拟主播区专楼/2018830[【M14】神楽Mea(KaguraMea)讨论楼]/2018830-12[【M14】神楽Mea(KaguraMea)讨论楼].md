@@ -360,3 +360,26 @@ b站有人发了个爱繁殖录播说是18年10月的，意思是出道了爱繁
 
 黛灰中之人呗，之前退出彩虹的时候还因为他颜值去看了一下。
 
+
+*****
+
+####  TiHaru  
+##### 17637#       发表于 2024-11-21 17:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">不是一个人，虽然也是模特
+
+*****
+
+####  sino__unnko3  
+##### 17638#       发表于 2024-11-21 19:42
+
+又是历史上的今天了
+btw，有大佬存档了20年bls战前会议的录音或者录像吗，当时人在现场但是唯独这段没什么存档留下
+
+*****
+
+####  秋游刃  
+##### 17639#       发表于 2024-11-21 22:30
+
+完全没印象，除了live本身外，没有其他记忆了<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+

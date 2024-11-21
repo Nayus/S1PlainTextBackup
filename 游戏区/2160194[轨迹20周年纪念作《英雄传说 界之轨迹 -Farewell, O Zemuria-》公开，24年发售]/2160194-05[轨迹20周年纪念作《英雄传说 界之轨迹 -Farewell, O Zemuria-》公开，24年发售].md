@@ -2159,3 +2159,25 @@ psn0 上有大佬写
 学妹，剑女，妹抖，猫女，跳舞姐，玲，师姐，虽然也就7个，根本不能和桃花剑相提并论 ...</blockquote>
 ts大学生也可以算啊
 
+
+*****
+
+####  洛克萨斯  
+##### 6996#       发表于 2024-11-21 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66748825&amp;ptid=2160194" target="_blank">liuguokobe 发表于 2024-11-21 22:11</a>
+
+ts大学生也可以算啊</blockquote>
+以学妹的雷达为准啊，不然我连妮娜都想算进去
+
+
+*****
+
+####  liuguokobe  
+##### 6997#       发表于 2024-11-21 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66748919&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-11-21 22:29</a>
+
+以学妹的雷达为准啊，不然我连妮娜都想算进去</blockquote>
+认真说的话其实如果下一作存活的话艾米莉亚是可以算进去的
+

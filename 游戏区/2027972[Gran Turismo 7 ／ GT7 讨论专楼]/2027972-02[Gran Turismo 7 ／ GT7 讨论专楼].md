@@ -62,3 +62,11 @@ PlayStation®5 Pro
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  Fuero  
+##### 1885#       发表于 2024-11-21 22:31
+
+我超，VR模式下算脱胎换骨了
+

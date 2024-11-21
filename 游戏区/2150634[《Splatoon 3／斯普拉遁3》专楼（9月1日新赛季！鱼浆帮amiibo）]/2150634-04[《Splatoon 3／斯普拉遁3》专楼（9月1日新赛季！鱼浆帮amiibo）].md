@@ -259,3 +259,23 @@
 
 谁知道你这结果怎么样呢，毕竟计分是不一样的
 
+
+*****
+
+####  shirolin  
+##### 5563#       发表于 2024-11-21 09:03
+
+ 本帖最后由 shirolin 于 2024-11-21 09:04 编辑 
+
+1、2代时期国内玩家间提到喷官方确实是以“任天堂”、“乌贼研究所”为主，3代官中出来后确定了名称，但是玩家依然按照惯性叫。
+
+<img src="https://img.saraba1st.com/forum/202411/21/090351jl8jtl899u4h81zm.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241121-090009.png</strong> (1.01 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-21 09:03 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

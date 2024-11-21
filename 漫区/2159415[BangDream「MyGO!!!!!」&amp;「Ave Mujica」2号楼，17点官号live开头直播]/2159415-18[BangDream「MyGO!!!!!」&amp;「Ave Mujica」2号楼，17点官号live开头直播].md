@@ -11552,3 +11552,16 @@ nga那边好像准备开新楼了
 
 不知道什么时候有HK先行的消息
 
+
+*****
+
+####  SakuraのOrigami  
+##### 26126#       发表于 2024-11-21 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66730410&amp;ptid=2159415" target="_blank">桜庭千景 发表于 2024-11-19 17:13</a>
+
+初祥有上色，睦海喵还是白模，立希只有剪影</blockquote>
+灯4月，爱音5月，猫猫7月
+
+出的这么频吗()
+

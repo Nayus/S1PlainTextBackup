@@ -2728,3 +2728,23 @@ https://www.bilibili.com/video/BV1tqSTYvEmZ
 
 刷90+，非常缺灯笼果。
 
+
+*****
+
+####  exiaexa  
+##### 15181#       发表于 2024-11-21 11:52
+
+90+的防磨损阵容
+
+正雪可以换成任意20充，图坦卡蒙自己可以打爆
+
+武媚娘可以换任意buff机，布妹宝具本以后伤害还是够的，1宝的话你最好还是用武媚娘
+
+<img src="https://img.saraba1st.com/forum/202411/21/115032n9u9dg97mudldusd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (157.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-21 11:50 上传
+

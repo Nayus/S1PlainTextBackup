@@ -14,3 +14,11 @@
 
 asmr还真藏了个志摩凛，要联动了
 
+
+*****
+
+####  不灭的旋律  
+##### 1263#       发表于 2024-11-21 20:25
+
+抚子都出来了，好几年前的露营活动因为LOGO太像轻松露营被喷到取消，现在总算补回来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -22,3 +22,11 @@ asmr还真藏了个志摩凛，要联动了
 
 抚子都出来了，好几年前的露营活动因为LOGO太像轻松露营被喷到取消，现在总算补回来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江戸前ルナ  
+##### 1264#         楼主| 发表于 2024-11-21 20:44
+
+合照出来了，这联动公布方式太奇葩了，而且还1K5的人在看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -426,3 +426,15 @@ shakeshake除了奶昔其他不值得吃 太贵了又没好吃到那种程度
  兄弟你xp跟我一样啊 拉亚真是太可惜了 陆家嘴那家店以前我基本每个月1-2次 ...</blockquote>
 这几年死了太多店，且吃且珍惜<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  日参省乎己  
+##### 47#       发表于 2024-11-21 23:09
+
+我还挺喜欢ss的…
+但说实话牛肉汉堡上限不高，性价比还得是肥宅王
+我吃过比较满意的几个，一个是合肥出差奥体中心旁边路边摊的美式手作，22块钱做的非常扎实；另一个是南京雨花客厅的闲欢，他家辣味猪肋排汉堡相当惊艳，吃悠航之类的所谓冠军汉堡我都没这种感觉
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

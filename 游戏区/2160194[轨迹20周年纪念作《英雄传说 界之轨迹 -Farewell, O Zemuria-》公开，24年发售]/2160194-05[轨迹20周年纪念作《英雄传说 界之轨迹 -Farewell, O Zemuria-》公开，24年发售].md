@@ -2111,3 +2111,13 @@ psn0 上有大佬写
 
 黎1的时候还说范恩是人类，界轨看来到底是不是也不好说了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 6991#       发表于 2024-11-21 13:55
+
+ 本帖最后由 卢迪克 于 2024-11-21 13:58 编辑 
+
+黎1斑鸠他们还说自己和九曜起源不同呢，界轨斑鸠忍者直接在那复读九曜使命，黑铁搁那甩九曜降魔印<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

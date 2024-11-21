@@ -10266,3 +10266,11 @@ X为什么老是会截断搜索结果的时间轴，不可能搜索结果只有n
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  stygian  
+##### 1008#       发表于 2024-11-21 10:34
+
+不好说，打call=打艺+call，属于懂一点日语和acg文化但是不完全懂的人群能干出来的事，确实就和缪大规模出圈后一帮年轻受众的侧影符合<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

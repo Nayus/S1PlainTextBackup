@@ -12144,3 +12144,30 @@ wsd太逆天了<img src="https://static.saraba1st.com/image/smiley/face2017/118.
 
 新图倒是确实可以
 
+
+*****
+
+####  太二EricGuo  
+##### 26166#       发表于 2024-11-22 00:09
+
+在红迪邦版做了个对祥子喜好恶嫌调查
+
+<img src="https://img.saraba1st.com/forum/202411/22/000929blaihcvivcawbzfv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8297.jpeg</strong> (226.55 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-11-22 00:09 上传
+
+
+*****
+
+####  skives10  
+##### 26167#       发表于 2024-11-22 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66749432&amp;ptid=2159415" target="_blank">太二EricGuo 发表于 2024-11-22 00:09</a>
+在红迪邦版做了个对祥子喜好恶嫌调查</blockquote>
+人好少啊 希望能火起来<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

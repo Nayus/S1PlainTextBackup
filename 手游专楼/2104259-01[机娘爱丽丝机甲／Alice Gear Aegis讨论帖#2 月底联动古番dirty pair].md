@@ -30,3 +30,11 @@ asmr还真藏了个志摩凛，要联动了
 
 合照出来了，这联动公布方式太奇葩了，而且还1K5的人在看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madcow  
+##### 1265#       发表于 2024-11-21 21:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">游戏刷着调查然后突然弹通知了鬼畜
+

@@ -10312,3 +10312,14 @@ X为什么老是会截断搜索结果的时间轴，不可能搜索结果只有n
 主要还是因为你拉当年确实火便大江南北，有传播扭曲很正常。当年看动画都是用bt，b站上缪斯都是很后面的时 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">家虎这个词更莫名其妙
 
+
+*****
+
+####  ads147147  
+##### 1012#       发表于 2024-11-21 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66746141&amp;ptid=2201887" target="_blank">adw667 发表于 2024-11-21 16:11</a>
+
+家虎这个词更莫名其妙</blockquote>
+说实话我也不懂为什么是这个词，反正大家都用我也用了，更不理解为什么要喊yeahtiger，彻底毁了我脑内水族馆这首歌。。
+

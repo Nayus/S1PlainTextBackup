@@ -2129,3 +2129,14 @@ psn0 上有大佬写
 
 可能他们觉得自己这种先否定然后再推翻做进游戏里面的点子特别妙吧，惊不惊喜意不意外<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 6993#       发表于 2024-11-21 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66744778&amp;ptid=2160194" target="_blank">蔺无双 发表于 2024-11-21 13:39</a>
+
+师姐这算是明示加入战场了吧，算下来共和国魅魔这边只有五个吧，哪怕加上玲也就勉强六个，比起帝国桃花剑还 ...</blockquote>
+学妹，剑女，妹抖，猫女，跳舞姐，玲，师姐，虽然也就7个，根本不能和桃花剑相提并论<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

@@ -416,3 +416,13 @@ shakeshake除了奶昔其他不值得吃 太贵了又没好吃到那种程度
 
 这家汉堡我觉得一般，但薯条是真适合我的喜好。
 
+
+*****
+
+####  阿卵真是牛逼  
+##### 46#       发表于 2024-11-21 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66748792&amp;ptid=2207710" target="_blank">alva8246 发表于 2024-11-21 22:05</a>
+ 兄弟你xp跟我一样啊 拉亚真是太可惜了 陆家嘴那家店以前我基本每个月1-2次 ...</blockquote>
+这几年死了太多店，且吃且珍惜<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

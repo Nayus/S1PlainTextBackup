@@ -679,3 +679,13 @@ dlc的区域验证验的是跟本体匹不匹配，本体是日区的dlc也是�
 
 看到了很多拍照可以把视角拉到很远，有的可以让伊芙蹲下。姿势里好像只有上半身的动作，是如何操作的？来自: iPhone客户端
 
+
+*****
+
+####  nagitoY  
+##### 1852#       发表于 2024-11-21 21:37
+
+<blockquote>[ nagitoY replied on 2024-11-21 21:19](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66748443&amp;ptid=1978008) 看到了很多拍照可以把视角拉到很远，有的可以让伊芙蹲下。姿势里好像只有上半身的动作，是如何操作的？ </blockquote>
+R1 ⬅️，进入拍照模式
+方向键⬇️是自拍模式来自: iPhone客户端
+

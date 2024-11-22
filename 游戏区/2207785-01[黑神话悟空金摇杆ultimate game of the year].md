@@ -2063,3 +2063,14 @@ pc加强版一个版本
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
 
+
+*****
+
+####  大喇叭花田  
+##### 188#       发表于 2024-11-22 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66756473&amp;ptid=2207785" target="_blank">poppin 发表于 2024-11-22 20:26</a>
+
+终极年度游戏，总共才有两项提名，你说野鸡不野鸡。反过来说，别人都这么使绊子了，最后还能赢，才更说明 ...</blockquote>
+而且给人的感觉是迫于压力才加上去的，一开始猴子甚至只有一个视觉提名。
+

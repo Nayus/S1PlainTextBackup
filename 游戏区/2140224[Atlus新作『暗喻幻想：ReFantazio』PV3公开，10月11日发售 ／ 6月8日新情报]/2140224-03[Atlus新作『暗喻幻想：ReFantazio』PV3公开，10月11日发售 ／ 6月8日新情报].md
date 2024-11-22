@@ -6938,3 +6938,14 @@ TGA投票权重以米系媒体为主，估计今年年度就是暗喻幻想了�
 2.用赋予弱点技能</blockquote>
 我50级多一点，是不是在塔里刷会怪再打比较好
 
+
+*****
+
+####  2015年入股市  
+##### 3578#       发表于 2024-11-23 02:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66757937&amp;ptid=2140224" target="_blank">石中剑二 发表于 2024-11-23 02:32</a>
+
+我50级多一点，是不是在塔里刷会怪再打比较好</blockquote>
+反正你比boss等级低5级你会miss特别多，而对方打你miss率会减少
+

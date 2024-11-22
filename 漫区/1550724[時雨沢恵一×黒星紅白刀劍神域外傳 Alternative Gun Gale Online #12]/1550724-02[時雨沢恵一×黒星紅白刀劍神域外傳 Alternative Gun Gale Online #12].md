@@ -22,3 +22,13 @@
 
 买二不买一，什么操作
 
+
+*****
+
+####  梶原ひかり  
+##### 1965#       发表于 2024-11-22 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66757396&amp;ptid=1550724" target="_blank">MONSTERS 发表于 2024-11-22 22:58</a>
+买二不买一，什么操作</blockquote>
+GGO一期的版权应该在爱奇艺
+

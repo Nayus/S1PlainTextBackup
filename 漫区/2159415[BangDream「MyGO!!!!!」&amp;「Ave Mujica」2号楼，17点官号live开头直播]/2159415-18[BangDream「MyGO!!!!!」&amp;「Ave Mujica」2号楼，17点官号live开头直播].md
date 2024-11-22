@@ -12171,3 +12171,315 @@ wsd太逆天了<img src="https://static.saraba1st.com/image/smiley/face2017/118.
 在红迪邦版做了个对祥子喜好恶嫌调查</blockquote>
 人好少啊 希望能火起来<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  MASKA-1  
+##### 26168#       发表于 2024-11-22 10:00
+
+nga好像有mujica动画楼了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  御景  
+##### 26169#       发表于 2024-11-22 10:07
+
+嗯，还分了mujica动画和mygo企划楼，分了也好，省的吵架的时候，有人说这里是go楼
+
+*****
+
+####  星天观测  
+##### 26170#       发表于 2024-11-22 10:10
+
+去看了一眼，鸡楼什么东西没有呢就已经开始说“等一个狗黑鸡友”“以前的狗楼里又不是没有过这种生物”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+那边一直标榜的企划楼，到头来还是狗楼啊
+
+“这里是狗楼，不爱看狗就滚”
+
+*****
+
+####  Aendst  
+##### 26171#       发表于 2024-11-22 10:29
+
+ 本帖最后由 Aendst 于 2024-11-22 10:32 编辑 
+
+不是十二月一号才先行公开吗，倒计时也是到12月1吧，这也没几天了怎么今天分楼
+
+今天什么日子有说法吗，高松灯生日？小雪？夫妇之日？
+
+*****
+
+####  cayon  
+##### 26172#       发表于 2024-11-22 10:34
+
+像这种分楼以前见过，到头来还是两边粉丝隔空互相阴湿
+
+*****
+
+####  御景  
+##### 26173#       发表于 2024-11-22 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66751404&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-11-22 10:29</a>
+
+不是十二月一号才先行公开吗，倒计时也是到12月1吧，这也没几天了怎么今天分楼
+
+今天什么日子有说法吗，高松 ...</blockquote>
+高松灯生日，老楼里有说
+
+*****
+
+####  桜庭千景  
+##### 26174#       发表于 2024-11-22 10:57
+
+<img src="https://img.saraba1st.com/forum/202411/22/104934r59u9fruuhwhh5rh.png" referrerpolicy="no-referrer">
+
+<strong>Image_74306236595432.png</strong> (172.81 KB, 下载次数: 1)
+
+下载附件
+
+2024-11-22 10:49 上传
+
+<img src="https://img.saraba1st.com/forum/202411/22/104941aiww2fsn2hluzwfa.png" referrerpolicy="no-referrer">
+
+<strong>Image_43199220410074.png</strong> (115.7 KB, 下载次数: 1)
+
+下载附件
+
+2024-11-22 10:49 上传
+
+夸夸一下新的线下玉座主题的图
+
+比起1st的小剧场有着些许不同，这张图的动作设计也很贴合人设，Doloris是最符合主题的“统御”姿势，Timoris是帅气的少年感，Oblivionis是摄人的妖艳感，Mortis是乖巧的人偶感，Amoris是不羁的媚惑感
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 前方暴雨预警| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  星天观测  
+##### 26175#       发表于 2024-11-22 11:00
+
+分楼根本不是什么大事，没分的这一年里隔壁确实没有隔空阴湿，刷楼互喷/骑脸/踩头倒是不少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不爽分楼的怕不是想看两边大吵特吵自己嗑瓜子看乐子的
+
+*****
+
+####  星空冻结  
+##### 26176#       发表于 2024-11-22 11:02
+
+分不分楼该吵都得吵，分楼最多就是到时候吵凶了有个理由把人叉出去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 26177#       发表于 2024-11-22 11:39
+
+对面五把椅子好多人觉得是给卖狗留的 漏油怎么看？随便摆的没特殊含义？给真实的自己？
+
+<img src="https://img.saraba1st.com/forum/202411/22/113931mcsczkk2iakgt5tk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-11-22-11-36-19-92_149003a2d400f6adb210d7e357a3a646.jpg</strong> (151.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-22 11:39 上传
+
+*****
+
+####  好想看Mujica啊  
+##### 26178#       发表于 2024-11-22 11:42
+
+喵梦知道mygo是什么东西吗
+
+*****
+
+####  skives10  
+##### 26179#       发表于 2024-11-22 11:53
+
+应该就是普通的道具吧
+以前也想过会不会搞个沉浸式戏剧 让观众也参与进舞台剧 但总感觉演绎难度很大 不太现实
+
+*****
+
+####  Aendst  
+##### 26180#       发表于 2024-11-22 12:06
+
+ 本帖最后由 Aendst 于 2024-11-22 12:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66751572&amp;ptid=2159415" target="_blank">御景 发表于 2024-11-22 10:50</a>
+
+高松灯生日，老楼里有说</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">特意赶在没剩几天的动画先行公开和官网倒计时前开所谓的mujica动画楼，只为高松灯过生日是吧
+
+不愧是隔壁，高松灯生日跟mujica动画有关吗，我怎么看不出来有关系
+
+*****
+
+####  星天观测  
+##### 26181#       发表于 2024-11-22 12:33
+
+那边抽象又不是一次两次了，爱怎么着怎么着吧
+
+我只想看这边ave mujica开的ave mujica动画楼<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 26182#       发表于 2024-11-22 12:34
+
+【sumimi【板绘】-哔哩哔哩】 https://b23.tv/9MG0XRI
+
+感觉比官方周边图强
+
+*****
+
+####  御幸一也  
+##### 26183#       发表于 2024-11-22 14:04
+
+也太抽象 明明離12/1也沒幾天了呢<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 26184#       发表于 2024-11-22 15:52
+
+嗯？
+
+<img src="https://img.saraba1st.com/forum/202411/22/155233fhecpp0x54eo1ook.png" referrerpolicy="no-referrer">
+
+<strong>无标题00.png</strong> (46.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-22 15:52 上传
+
+<img src="https://img.saraba1st.com/forum/202411/22/155233pvyrvo0yaaiuszi0.png" referrerpolicy="no-referrer">
+
+<strong>无标题.png</strong> (17.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-22 15:52 上传
+
+*****
+
+####  星天观测  
+##### 26185#       发表于 2024-11-22 16:05
+
+原来大火是李茜play的一环<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（也不是不行
+
+*****
+
+####  adcdqre  
+##### 26186#       发表于 2024-11-22 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66752009&amp;ptid=2159415" target="_blank">哈曼的YY 发表于 2024-11-22 11:39</a>
+
+对面五把椅子好多人觉得是给卖狗留的 漏油怎么看？随便摆的没特殊含义？给真实的自己？</blockquote>
+avemujica放个屁都给MYGO放的
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 4战斗力 +4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 桜庭千景| + 1|牛b|
+| 星天观测| + 1|欢乐多|
+| 66367749| + 1|欢乐多|
+| 前方暴雨预警| + 1|精彩|
+
+查看全部评分
+
+*****
+
+####  前方暴雨预警  
+##### 26187#       发表于 2024-11-22 16:23
+
+不过想想如果所谓共演就是狗团舍弃自己的风格，完全融入鸡的舞台和世界观，那也行。
+
+比鸡去livehouse对邦之类的鬼设定强多了
+
+*****
+
+####  哈曼的YY  
+##### 26188#       发表于 2024-11-22 16:36
+
+做新衣服和面具爱音肯定来劲好吧
+
+*****
+
+####  哈曼的YY  
+##### 26189#       发表于 2024-11-22 17:26
+
+之前看的一个视频 椅子好像也挺有寓意的
+
+还有爱音没上桥也很有意思
+
+【【外网MyGO解析丨熟肉中字】「归属之地」It's MyGo!!!!! 的“电影摄影艺术”-哔哩哔哩】 https://b23.tv/x1osFSP
+
+*****
+
+####  玖羽  
+##### 26190#       发表于 2024-11-22 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66755123&amp;ptid=2159415" target="_blank">哈曼的YY 发表于 2024-11-22 17:26</a>
+
+之前看的一个视频 椅子好像也挺有寓意的
+
+还有爱音没上桥也很有意思</blockquote>
+我记得之前提过，MyGO里「坐在一起」有强烈的共同体的寓意，这个标准在爽世身上尤其严格
+
+全片没有展现出爽世跟任何「现在不是同一乐队」的人坐在一起，跟睦一定是都站着或者一站一坐，哪怕两人同班，也要卡出放学后站着的镜头
+
+跟月之森的同学也是，爽世拉低音提琴这个设定尤其精妙（不光是和贝斯的对应），因为乐团都坐着的时候，低音提琴必须站着
+
+比坐在一起更进一步的是「躺在一起」，11话之前只有爽世妈有半个这种待遇（一坐一躺），所以11话结尾用足足一分钟表现MyGO躺在一起，是很深的用意
+
+*****
+
+####  哈曼的YY  
+##### 26191#       发表于 2024-11-22 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66755250&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-11-22 17:40</a>
+
+我记得之前提过，MyGO里「坐在一起」有强烈的共同体的寓意，这个标准在爽世身上尤其严格
+
+全片没有展现出 ...</blockquote>
+在班上都坐着的时候也是在自己位置上离比较远
+
+能躺一起确实是终极关系了
+
+*****
+
+####  Sabbah  
+##### 26192#       发表于 2024-11-22 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66755250&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-11-22 17:40</a>
+
+我记得之前提过，MyGO里「坐在一起」有强烈的共同体的寓意，这个标准在爽世身上尤其严格
+
+全片没有展现出 ...</blockquote>
+光看这话没看明白，如果我没记错2话那个和爱音的微笑对谈就是坐一起聊的?
+
+*****
+
+####  哈曼的YY  
+##### 26193#       发表于 2024-11-22 18:36
+
+聊着就答应组乐队了 算卡上了吧
+

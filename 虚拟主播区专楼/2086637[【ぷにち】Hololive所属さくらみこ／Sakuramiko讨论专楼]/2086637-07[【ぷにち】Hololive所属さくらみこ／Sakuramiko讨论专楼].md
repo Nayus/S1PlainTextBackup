@@ -16404,3 +16404,58 @@ vivi
 
 半个箱的人都来了
 
+
+*****
+
+####  holoan  
+##### 10227#         楼主| 发表于 2024-11-21 22:39
+
+在美国几天一口蔬菜都没吃上
+
+*****
+
+####  holoan  
+##### 10228#         楼主| 发表于 2024-11-22 12:56
+
+miko和446枪法比较的视频，自从之前生化的那个视频火了几年以后现在又有人做了个新的，还是最近播的那个新游戏
+
+<img src="https://img.saraba1st.com/forum/202411/22/125622lrpgptp4php22n4p.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (90.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-22 12:56 上传
+
+446太TM神了……
+
+*****
+
+####  holoan  
+##### 10229#         楼主| 发表于 2024-11-22 14:24
+
+<img src="https://img.saraba1st.com/forum/202411/22/142256iutsssy1y8ut24yi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (4.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-22 14:22 上传
+
+<img src="https://img.saraba1st.com/forum/202411/22/142333abia2awawalr29a2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (76.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-22 14:23 上传
+
+其实一开始我也没找到korone还以为不参加了
+
+*****
+
+####  karastar  
+##### 10230#       发表于 2024-11-22 16:32
+
+融入背景了
+

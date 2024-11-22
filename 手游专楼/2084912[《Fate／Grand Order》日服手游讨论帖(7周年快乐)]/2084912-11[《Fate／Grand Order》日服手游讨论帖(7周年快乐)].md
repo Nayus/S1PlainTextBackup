@@ -2790,3 +2790,23 @@ https://www.bilibili.com/video/BV1tqSTYvEmZ
 
 所以明天终于能抽梵高了吗
 
+
+*****
+
+####  angelooo  
+##### 15186#       发表于 2024-11-22 08:38
+
+<blockquote>poor 发表于 2024-11-22 00:38
+所以明天终于能抽梵高了吗</blockquote>
+24号开池子
+
+*****
+
+####  poor  
+##### 15187#       发表于 2024-11-22 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66750439&amp;ptid=2084912" target="_blank">angelooo 发表于 2024-11-22 08:38</a>
+
+24号开池子</blockquote>
+也行吧……
+

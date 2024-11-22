@@ -6839,3 +6839,48 @@ TGA投票权重以米系媒体为主，估计今年年度就是暗喻幻想了�
 
 —— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  游蜓  
+##### 3568#       发表于 2024-11-22 16:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">玩普通难度到最后一个月刚平均50级，好多阿基态还没开高阶，真蛋疼啊，感觉要风灵月影了，不然到最后都体会不到好兄弟的爽
+
+—— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  hkguty  
+##### 3569#       发表于 2024-11-22 17:09
+
+后期做朱娜那个料理直接一做做99个，再学点商人大亨叠满道具加成一剂直接全队回300mp完全不缺蓝
+
+*****
+
+####  苏斯赫查  
+##### 3570#       发表于 2024-11-22 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66754957&amp;ptid=2140224" target="_blank">hkguty 发表于 2024-11-22 17:09</a>
+后期做朱娜那个料理直接一做做99个，再学点商人大亨叠满道具加成一剂直接全队回300mp完全不缺蓝 ...</blockquote>
+后期除了打boss都不用进回合制的……mp用处不大了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+
+*****
+
+####  两弹元勋黄仁勋  
+##### 3571#       发表于 2024-11-22 17:56
+
+有个问题啊，不让BOSS跳回合，不吃至高一勺秒杀，正常怎么打完全体路易，一回合十几动运气不好就团灭。
+
+*****
+
+####  蟹粉小笼  
+##### 3572#       发表于 2024-11-22 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66755393&amp;ptid=2140224" target="_blank">两弹元勋黄仁勋 发表于 2024-11-22 17:56</a>
+
+有个问题啊，不让BOSS跳回合，不吃至高一勺秒杀，正常怎么打完全体路易，一回合十几动运气不好就团灭。 ...</blockquote>
+闪避都不给的话那就切换成宝宝模式无限复活打吧，不然正常真的没法打过去的，因为这疯批到最后可能是1/3血量以后也会出一个灵魂呐喊，每回合再加4个点，别问我怎么知道的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

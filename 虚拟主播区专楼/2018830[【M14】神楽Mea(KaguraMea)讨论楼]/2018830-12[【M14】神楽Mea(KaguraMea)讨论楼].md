@@ -383,3 +383,61 @@ btw，有大佬存档了20年bls战前会议的录音或者录像吗，当时人
 
 完全没印象，除了live本身外，没有其他记忆了<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kaslana  
+##### 17640#       发表于 2024-11-21 23:28
+
+从B站保存下来一份，应该能发吧（
+https://pan.baidu.com/s/1ALSMvXOH1P6PnKiqOh1FIQ?pwd=t1b8
+
+
+*****
+
+####  sino__unnko3  
+##### 17641#       发表于 2024-11-21 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66749232&amp;ptid=2018830" target="_blank">kaslana 发表于 2024-11-21 23:28</a>
+从B站保存下来一份，应该能发吧（
+https://pan.baidu.com/s/1ALSMvXOH1P6PnKiqOh1FIQ?pwd=t1b8 ...</blockquote>
+灰常感谢！草，这个视频这么多年没刷到过
+
+*****
+
+####  sino__unnko3  
+##### 17642#       发表于 2024-11-22 01:15
+
+ 本帖最后由 sino__unnko3 于 2024-11-22 02:20 编辑 
+
+你咩是啥情况，又玉玉了要搞棉花糖吗
+
+幸好有提前的棉花糖准备，直接发了过去
+
+*****
+
+####  TiHaru  
+##### 17643#       发表于 2024-11-22 16:42
+
+这次夏露杯没参加
+
+*****
+
+####  sino__unnko3  
+##### 17644#       发表于 2024-11-22 17:34
+
+ 本帖最后由 sino__unnko3 于 2024-11-22 18:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66653146&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2024-11-9 00:06</a>
+莫名想起那次tc KTV配信
+熟悉的她扑面而来</blockquote>
+又要卡拉ok直播了吗
+头一次见这么大排场
+提供：XING INC. ※JOYSOUND音源を使用しているため本動画の切り抜きはご遠慮ください。 サムネイルデザイン：沙雨イニ様(@ININIinNINI) C104最新グッズ https://kaguramea.booth.pm/items/6018335 ６周年グッズ https://kaguramea.booth.pm/items/5847615 CDでました♪ ●各種通販一覧 BOOTH https://kaguramea.booth.pm/items/5335372 https://kaguramea.booth.pm/items/4961636 メロンブックス https://www.melonbooks.co.jp/circle/i... ●各種ストリーミングサイトにて配信開始 2nd single https://linkco.re/Sbz4XtT9 1st single　 https://linkco.re/QyrY5UvA 1st album ・TypeA https://linkco.re/qq3EA3xF ・TypeB https://linkco.re/dgvmF8BY ୨୧┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈୨୧ ଘ♡streamlabs(ドネート、Donate) 直接、支援できる投げ銭サイトです https://streamlabs.com/kaguramea0x0/tip ଘ♡About streamlabs The directly monetary donation site is right here! Thank you very much for your support! https://streamlabs.com/kaguramea0x0/tip ଘ♡メンバーシップ 『チャンネル登録』ボタンの横についてる『メンバーになる』で登録完了！ チャットに使える絵文字や、名前の横にバッチが付きます！ https://www.youtube.com/channel/UCWCc... ଘ♡About membership Use the 『JOIN』 button next to the『SUBSCRIBED』 to get access to membership！ Gain custom emoji for live chat and badges next to your name！ https://www.youtube.com/channel/UCWCc... ଘ♡Twitter https://twitter.com/KaguraMea_VoV ଘ♡ファンクラブ https://mea.fanbox.cc/ ଘ♡ボイス＆常設グッズ販売 https://kaguramea.booth.pm/ ଘ♡LINEスタンプ https://store.line.me/stickershop/pro... ୨୧┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈୨୧ 🍥配信中のお願い🍥 ・歌配信のフルアーカイブ、カット編集のみの転載は禁止します！ ただし、歌配信の音源を使用した二次創作(三次創作)は常識の範囲内でよろしくお願いします！ Please notice during streaming ・Please Do Not upload full singing stream archives, nor clips without further editing! However, derivative work using sound sources from singing streams within reasonable range is highly appreciated! ୨୧┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈୨୧ ☆-Special Thanks -☆ OP動画 nicogolyさん https://twitter.com/ncgl_ ED動画 ;3ZUTAMAさん https://twitter.com/dj_3zutama 新Live2d 担当絵師さん：jimmy先生(@jimmy_madomagi) 担当モデラーさん：rariemon先生(@rariemonn765) ୨୧┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈୨୧ 歌枠で使用させていただいてるオケ音源一覧 たかはっP https://www.youtube.com/channel/UC177... Studio アステロイド https://www.youtube.com/channel/UCNvA... るいご https://www.youtube.com/channel/UC6Wj... さばとP https://www.youtube.com/channel/UCIUI... cybernetics https://www.youtube.com/channel/UCoQZ... 萩* https://www.youtube.com/channel/UC3g6... ナズナ https://www.youtube.com/channel/UCsbD... カラオケスタジオ [まくす] https://www.youtube.com/channel/UC_fs... 蒼井BLUE https://www.youtube.com/channel/UCxJ1... 動物の音楽隊 https://www.youtube.com/channel/UCWFI... アルタエース-カラオケ制作・芸能マネジメントチャンネル https://www.youtube.com/channel/UC7fy... やへー https://www.youtube.com/channel/UCMoN... サウンドマン音楽製作channel https://www.youtube.com/channel/UCacw... Mick https://www.youtube.com/channel/UCep2... NC ピアノ&amp;カラオケミュージック NCPiano&amp;KaraokeMusic https://www.youtube.com/channel/UCRKF... ヨーコのゲーム実況と作曲チャンネル https://www.youtube.com/channel/UCO_D... SELA 【つくったもの置き場】 https://www.youtube.com/channel/UCgv7... カラオケ音源とかのやつ https://www.youtube.com/channel/UCxaw... TZ Sound Works https://www.youtube.com/channel/UCdy0... 【しょうへい】AnyMusic https://www.youtube.com/c/AnyMusic/fe... インストcover https://www.youtube.com/channel/UCfKN... Yossie https://www.youtube.com/channel/UCIuM... KaraokeStudio by Harry Black https://www.youtube.com/channel/UC8xO... カラオケ魂 https://www.youtube.com/channel/UCj4a... ハイカラサウンド https://www.youtube.com/channel/UCFIA... Hiroのピアノ伴奏アレンジ https://www.youtube.com/channel/UCWX2... JPOP Karaoke カラオケ https://www.youtube.com/channel/UCTT4... カラオケ歌っちゃ王 https://www.youtube.com/channel/UC1tk... カラオケ制作所「BOX」 https://www.youtube.com/channel/UCmfr... 生音風カラオケと伴奏屋さん https://www.youtube.com/user/BUMPsan/... 水瀬れいん Music Channel https://www.youtube.com/@mnslein ୨୧┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈୨୧ 使用BGM ぽるぽるMusic https://www.youtube.com/channel/UCZwE... 桜餅ルナ https://www.youtube.com/channel/UCgTa... トーマス大森音楽工房 https://www.youtube.com/c/freemusicth... Electro-Light - Discovery https://www.youtube.com/watch?v=Y4D1x... Distrion &amp; Alex Skrindo - Entropy [NCS Release] https://www.youtube.com/watch?v=iaKgF... Kisma - Fingertips [NCS Release] https://www.youtube.com/watch?v=LJeiQ... NIVIRO - I Just Wanna [NCS Release] https://www.youtube.com/watch?v=5yUZU... ୨୧┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈୨୧
+
+*****
+
+####  sino__unnko3  
+##### 17645#       发表于 2024-11-22 19:45
+
+十年前在卡拉ok里达成过100(连击？）
+

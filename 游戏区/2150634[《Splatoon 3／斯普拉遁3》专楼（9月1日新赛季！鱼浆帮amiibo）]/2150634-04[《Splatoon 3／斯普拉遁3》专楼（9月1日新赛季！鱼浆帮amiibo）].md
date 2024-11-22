@@ -313,3 +313,11 @@
 
 打工的辣鸡武器什么时候也救一下，最近几次洗衣机给我整吐了，尤其好像是上个月卷堡单问号那期
 
+
+*****
+
+####  Ryuuseigun  
+##### 5568#       发表于 2024-11-22 17:24
+
+复刻还给雕像真不错，这一场大润前不久才刚入坑splt，只拿到了银横岗，终于能凑齐全金雕像了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/20/bffbdf72932b6633308a60e1fad7dfa1/CMP_20241122172304907.jpg" referrerpolicy="no-referrer">
+

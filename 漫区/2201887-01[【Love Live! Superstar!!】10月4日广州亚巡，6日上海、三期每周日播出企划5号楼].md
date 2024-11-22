@@ -10349,3 +10349,24 @@ yeahtiger是从最基本的mix架构Tiger!Fire!Cyber!Fiber!Diver!Viber!Jyajya!�
 
 call和mix是两条线，call七十年代就开始玩了，mix是新世纪早安饭搞起来的
 
+
+*****
+
+####  ViyViy  
+##### 1015#       发表于 2024-11-22 16:24
+
+<img src="https://img.saraba1st.com/forum/202411/22/150047zjpp1et7hhpt7w7w.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0054.jpeg</strong> (266.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-22 15:00 上传
+
+*****
+
+####  一心而用  
+##### 1016#       发表于 2024-11-22 17:48
+
+<img src="https://p.sda1.dev/20/f5c090655dd6eafa5c048432d89a3941/image.jpg" referrerpolicy="no-referrer">
+

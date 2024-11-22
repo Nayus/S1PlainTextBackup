@@ -2198,3 +2198,112 @@ ts大学生也可以算啊</blockquote>
 
 哎呀，吃吃书嘛，多大点事儿，他能不烂尾我都烧高香了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  liuguokobe  
+##### 7000#       发表于 2024-11-22 02:14
+
+只有新作发布前半年的关于新作的采访才可能有点价值，现在的采访纯粹是社长打太极放屁<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  新世界的派蒙  
+##### 7001#       发表于 2024-11-22 02:24
+
+界之轨迹悄悄更新，画质模式30帧限制去除，pro可以跑55帧左右.....
+
+*****
+
+####  卢迪克  
+##### 7002#       发表于 2024-11-22 12:56
+
+打折了，界轨滞销救一救阿<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一步成诗  
+##### 7003#       发表于 2024-11-22 14:01
+
+别尬黑，其他大厂也折了，说起来你法之前新作有折这么快的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 7004#       发表于 2024-11-22 14:28
+
+1.09战斗系统变化
+
+1. 魔法：巨鲸和触手削弱，神圣不死鸟和巨石之拳强化
+
+2.火娃新增特效火属性追击，和之前有区别的是原本是对结冰对象进行魔法攻击（破防值会乘以2计算强化满级后等于60的破防值）更新后变更为对结冰的敌人进行魔法追击（破防值不变了），新超人一号
+
+3.丽霞S技 新增特效（幻属性追击），打桩水平直接到了黎恩，猫女和葱头一档了，超人二号
+
+4.葱头修复了之前版本S技可能吃不到武器链的技能 XX冲击，或者吞时属性追击伤害的BUG
+
+5.魔法流使用攻击型魔法之后可以触发防御栏自动防御的晶片技能，能动了之后相当于肉度翻倍了
+
+6.其他角色有一些小加强
+
+*****
+
+####  卢迪克  
+##### 7005#       发表于 2024-11-22 14:48
+
+之前都是12月底打折
+
+*****
+
+####  新世界的派蒙  
+##### 7006#       发表于 2024-11-22 14:54
+
+丽霞只能说加强到T2吧，还比不过加上后的阿龙，少一个面板buff是比不上神气和圣痕那批人的，茱蒂丝也有魔伤追加12hit的战技
+不过有爱就行了
+
+*****
+
+####  6030sylar  
+##### 7007#       发表于 2024-11-22 15:05
+
+<img src="https://img.saraba1st.com/forum/202411/22/150452h21s2x70weg60ezx.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>f89b8a5767a0873bc53adecc09675a6c.webp</strong> (14.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-22 15:04 上传
+
+那女人把克洛学长打倒在地（
+
+*****
+
+####  洛克萨斯  
+##### 7008#       发表于 2024-11-22 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66753543&amp;ptid=2160194" target="_blank">新世界的派蒙 发表于 2024-11-22 14:54</a>
+
+丽霞只能说加强到T2吧，还比不过加上后的阿龙，少一个面板buff是比不上神气和圣痕那批人的，茱蒂丝也有魔伤 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想念创轨月光蝶隐身的一刀超人了，这么好的buff为啥要删
+
+*****
+
+####  妄想中毒  
+##### 7009#       发表于 2024-11-22 18:14
+
+ 本帖最后由 妄想中毒 于 2024-11-22 18:27 编辑 
+
+说起来冰火娃这俩人设真是土到掉渣，放二十年都属于烂大街水平<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 7010#       发表于 2024-11-22 20:24
+
+ 本帖最后由 卢迪克 于 2024-11-22 20:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66755528&amp;ptid=2160194" target="_blank">妄想中毒 发表于 2024-11-22 18:14</a>
+
+说起来冰火娃这俩人设真是土到掉渣，放二十年都属于烂大街水平</blockquote>
+未来会更严重，只剩下最后一个篇章，结社和教会那些人会挤在这个篇章一起登场，随从骑士都不会有了，如果考虑东大路灵脉枯竭，拖鞋都能省了反正飞不起来学狮子开机车吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

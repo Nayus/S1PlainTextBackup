@@ -69,3 +69,24 @@ B组超级大爆了</blockquote>
 
 完美搞啥啊，打到一半换赛制？
 
+
+*****
+
+####  NEIN  
+##### 4537#       发表于 2024-11-22 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66757444&amp;ptid=1857369" target="_blank">lunaticfear 发表于 2024-11-22 23:14</a>
+完美搞啥啊，打到一半换赛制？</blockquote>
+保绿龙和🦐2了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  NEIN  
+##### 4538#       发表于 2024-11-22 23:28
+
+另外是v社要求的，纯狗屎运营
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

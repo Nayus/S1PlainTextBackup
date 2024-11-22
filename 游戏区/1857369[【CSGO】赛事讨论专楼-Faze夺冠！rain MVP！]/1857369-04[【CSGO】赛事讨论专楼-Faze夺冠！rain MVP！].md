@@ -24,3 +24,48 @@ B组超级大爆了<img src="https://static.saraba1st.com/image/smiley/face/191.
 B组超级大爆了</blockquote>
 自从绿龙输给pua之后就在期待的一集，谢谢点子哥
 
+
+*****
+
+####  12351sscca  
+##### 4535#       发表于 2024-11-22 23:02
+
+卧槽，我还以为a队路边了，没想到牢点居然爆种了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lunaticfear  
+##### 4536#       发表于 2024-11-22 23:14
+
+完美搞啥啊，打到一半换赛制？
+
+
+*****
+
+####  12351sscca  
+##### 4535#       发表于 2024-11-22 23:02
+
+卧槽，我还以为a队路边了，没想到牢点居然爆种了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lunaticfear  
+##### 4536#       发表于 2024-11-22 23:14
+
+完美搞啥啊，打到一半换赛制？
+
+
+*****
+
+####  12351sscca  
+##### 4535#       发表于 2024-11-22 23:02
+
+卧槽，我还以为a队路边了，没想到牢点居然爆种了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lunaticfear  
+##### 4536#       发表于 2024-11-22 23:14
+
+完美搞啥啊，打到一半换赛制？
+

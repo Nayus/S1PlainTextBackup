@@ -689,3 +689,11 @@ dlc的区域验证验的是跟本体匹不匹配，本体是日区的dlc也是�
 R1 ⬅️，进入拍照模式
 方向键⬇️是自拍模式来自: iPhone客户端
 
+
+*****
+
+####  nagitoY  
+##### 1853#       发表于 2024-11-22 01:07
+
+打boss rush模式拿奖励衣服，才发现这游戏的boss难度曲线有多么不合理。前面几乎都没难度，到不明孽奇拔这里难度飙升。打普通难度天意机甲卡了我一个小时才过<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这还是在我有一套很成熟的战斗思路、资源循环理念的情况下。来自: iPhone客户端
+

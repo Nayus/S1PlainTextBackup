@@ -10370,3 +10370,13 @@ call和mix是两条线，call七十年代就开始玩了，mix是新世纪早安
 
 <img src="https://p.sda1.dev/20/f5c090655dd6eafa5c048432d89a3941/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一心而用  
+##### 1017#       发表于 2024-11-22 21:49
+
+才发现里面有一个“谢谢you”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">太怪了
+
+【【中字·完整版剪辑】绝对的LOVER -《LoveLive!Superstar!!》第3季第6集插入歌-哔哩哔哩】 [https://b23.tv/ZvA9O7R](https://b23.tv/ZvA9O7R)
+

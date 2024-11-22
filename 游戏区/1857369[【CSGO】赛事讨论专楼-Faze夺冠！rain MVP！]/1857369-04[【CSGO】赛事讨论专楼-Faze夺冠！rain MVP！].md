@@ -90,3 +90,20 @@ B组超级大爆了</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  曼陀罗肥  
+##### 4539#       发表于 2024-11-23 02:00
+
+干脆别打得了，投票选冠军然后随便打打表演赛吧
+
+*****
+
+####  longlivedick  
+##### 4540#       发表于 2024-11-23 02:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66757883&amp;ptid=1857369" target="_blank">曼陀罗肥 发表于 2024-11-23 02:00</a>
+干脆别打得了，投票选冠军然后随便打打表演赛吧</blockquote>
+支持，以后每次的冠军都将属于来自世界第一人口大国的传奇选手forsaken！
+

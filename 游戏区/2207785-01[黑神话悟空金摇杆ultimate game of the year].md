@@ -2074,3 +2074,25 @@ pc加强版一个版本
 终极年度游戏，总共才有两项提名，你说野鸡不野鸡。反过来说，别人都这么使绊子了，最后还能赢，才更说明 ...</blockquote>
 而且给人的感觉是迫于压力才加上去的，一开始猴子甚至只有一个视觉提名。
 
+
+*****
+
+####  吃我大dio  
+##### 189#       发表于 2024-11-23 01:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66756239&amp;ptid=2207785" target="_blank">qixinno2 发表于 2024-11-22 19:59</a>
+
+感觉做水浒都比三国的几率高</blockquote>
+三国水浒没啥意思
+
+我想玩《黑神话 钟馗》 
+
+一想冯杨该怎样架构民俗志怪世界就来劲<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  吃我大dio  
+##### 190#       发表于 2024-11-23 01:28
+
+期待看到斯文穿着铠甲给冯骥颁奖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

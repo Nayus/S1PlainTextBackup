@@ -401,3 +401,33 @@ woc，边狱公司和明日方舟会在2025年双向联动！
 
 （出了个林顿虫，我跟虫叔真是太有缘了...要是这游戏能给ID起名我肯定改名赫尔曼...）
 
+
+*****
+
+####  Jamaisvu  
+##### 991#       发表于 2024-11-22 20:51
+
+ 本帖最后由 Jamaisvu 于 2024-11-22 20:54 编辑 
+
+澄清一下，本次联动是单向的，可能是因为小金太过感激才在直播内容里加了中文吧...：
+
+<img src="https://img.saraba1st.com/forum/202411/22/205232x7z0sf987f7vs1x7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241122_205035.jpg</strong> (241.45 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-11-22 20:52 上传
+
+怪不得海猫送的联动贺图是拉普兰德，原来早期同人就联动过了：
+
+<img src="https://img.saraba1st.com/forum/202411/22/205352vhixrxx9o8xr22o2.jpg" referrerpolicy="no-referrer">
+
+<strong>img-1732279989129a7b741eea88536c11629db3b12a8a5683c831a93dbbd32bd06ad29f5f309e191.jpg</strong> (159.78 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-11-22 20:53 上传
+

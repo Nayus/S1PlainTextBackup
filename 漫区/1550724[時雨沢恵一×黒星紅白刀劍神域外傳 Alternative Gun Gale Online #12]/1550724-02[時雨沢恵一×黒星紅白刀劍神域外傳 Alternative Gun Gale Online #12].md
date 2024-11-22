@@ -32,3 +32,11 @@
 买二不买一，什么操作</blockquote>
 GGO一期的版权应该在爱奇艺
 
+
+*****
+
+####  azbhg1  
+##### 1966#       发表于 2024-11-23 00:57
+
+这小偶像和制作人原来是这种关系啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

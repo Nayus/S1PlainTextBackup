@@ -63,3 +63,14 @@ GGO一期的版权应该在爱奇艺
 
 猎奇感不足，不过还算是能表现出莲酱才是这群疯婆娘里最癫的一个<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oi99o  
+##### 1970#       发表于 2024-11-23 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66758595&amp;ptid=1550724" target="_blank">ParadiseMartyr 发表于 2024-11-23 10:33</a>
+
+最后这偶像和经纪人裸体啥意思</blockquote>
+他们是在睡眠舱里潜行的，大概是**泡营养液的那种
+

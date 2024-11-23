@@ -12556,3 +12556,13 @@ animax开始啦~
 
 难蚌，难得的联合演出曲目还是黑暗天国<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yifan8848  
+##### 26200#       发表于 2024-11-23 16:57
+
+暗黑天國挺不錯的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+配信收音比武士道好，導播就有點一言難盡了
+

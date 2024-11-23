@@ -252,3 +252,11 @@ ice不用说中文都变回人形了，侧面解释钓鱼佬为啥离婚
 
 不知道这条“无年鱼”会在之后的剧集里再次被某人以结实的鱼“线”钓起呢，还是随着季节的流转主动返回到大洋之中呢...<img src="https://static.saraba1st.com/image/smiley/face2017/215.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sanae  
+##### 158#       发表于 2024-11-23 20:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">这话很强啊，又惆怅又无奈心酸的感觉
+

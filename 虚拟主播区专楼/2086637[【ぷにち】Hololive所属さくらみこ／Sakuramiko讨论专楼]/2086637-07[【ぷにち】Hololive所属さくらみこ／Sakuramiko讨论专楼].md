@@ -16521,3 +16521,20 @@ aki这速度恐怖的，我觉得miko48如果事前不练的话赢不了啊
 
 旅游回来这么有精力的
 
+
+*****
+
+####  holoan  
+##### 10235#         楼主| 发表于 2024-11-23 20:24
+
+打字开空调吃东西清嗓
+
+你这故意的吧都
+
+*****
+
+####  holoan  
+##### 10236#         楼主| 发表于 2024-11-23 21:52
+
+三振ホームラン<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -209,3 +209,24 @@ GO批的一天：中午看白皮比赛， ...</blockquote>
 
 G2新来的这个malbsMd可以啊，就他尼驴三个比较严肃。
 
+
+*****
+
+####  longlivedick  
+##### 4549#       发表于 2024-11-23 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66761330&amp;ptid=1857369" target="_blank">Eric_方歌阙 发表于 2024-11-23 21:35</a>
+图三下半场纯喜剧表演，看笑好几次。
+
+G2新来的这个malbsMd可以啊，就他尼驴三个比较严肃。 ...</blockquote>
+…他到g2半年了，冠军都拿了两个了
+
+*****
+
+####  doublehit  
+##### 4550#       发表于 2024-11-23 22:04
+
+这绿浓还是菜啊。小孩到底是什么情况，整个rmr菜的跟伦敦刚下飞机一样
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

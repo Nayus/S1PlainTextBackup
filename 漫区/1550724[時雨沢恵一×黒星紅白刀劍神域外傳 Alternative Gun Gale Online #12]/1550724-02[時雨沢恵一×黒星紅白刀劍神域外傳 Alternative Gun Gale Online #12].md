@@ -40,3 +40,11 @@ GGO一期的版权应该在爱奇艺
 
 这小偶像和制作人原来是这种关系啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wingzerocos  
+##### 1967#       发表于 2024-11-23 09:28
+
+草，原来小说最新卷写到2026年9月27日了，这下续不下去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

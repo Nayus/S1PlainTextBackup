@@ -849,3 +849,16 @@ syngup铁串子<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 2024-11-20 19:32 上传
 
+
+*****
+
+####  oznark  
+##### 6704#       发表于 2024-11-23 17:28
+
+<img src="https://p.sda1.dev/20/90b5e49a836d69702773f45afe8d6318/image.jpg" referrerpolicy="no-referrer">
+昨天看到有人放了一个expo场贩的图，但是我当时在官网上查了是没有这个圣诞歌的，然后今天放圣诞歌的消息
+
+<img src="https://p.sda1.dev/20/a368875fe06decf985ddb8b84170c257/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

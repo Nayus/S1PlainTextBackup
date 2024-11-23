@@ -718,3 +718,11 @@ boss rush不能用白血泵复活，容错相对低。
 看了数毛社才知道剑星针对ps5 pro出了新的优化模式
 [https://www.youtube.com/watch?v=ILaU983xDzc](https://www.youtube.com/watch?v=ILaU983xDzc)
 
+
+*****
+
+####  thez  
+##### 1856#       发表于 2024-11-23 17:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">问问大家，这游戏战斗打起来爽吗？敌人种类多吗？
+

@@ -48,3 +48,18 @@ GGO一期的版权应该在爱奇艺
 
 草，原来小说最新卷写到2026年9月27日了，这下续不下去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ParadiseMartyr  
+##### 1968#       发表于 2024-11-23 10:33
+
+最后这偶像和经纪人裸体啥意思
+
+*****
+
+####  stevenzero  
+##### 1969#       发表于 2024-11-23 10:39
+
+猎奇感不足，不过还算是能表现出莲酱才是这群疯婆娘里最癫的一个<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

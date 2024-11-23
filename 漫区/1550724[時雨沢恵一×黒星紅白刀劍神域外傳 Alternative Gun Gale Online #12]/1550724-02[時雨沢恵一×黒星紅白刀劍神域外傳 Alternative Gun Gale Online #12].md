@@ -128,3 +128,13 @@ GGO一期的版权应该在爱奇艺
 
 辣个爱耍帅的男人<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stevenzero  
+##### 1975#       发表于 2024-11-23 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66757765&amp;ptid=1550724" target="_blank">azbhg1 发表于 2024-11-23 00:57</a>
+这小偶像和制作人原来是这种关系啊</blockquote>
+这片的妹子基本都没有男人敢要，除了Pito抓到M这个大M<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -12693,3 +12693,11 @@ QQ图片20241123214220.jpg
 
 2024-11-23 22:16 上传
 
+
+*****
+
+####  星天观测  
+##### 26209#       发表于 2024-11-23 22:44
+
+该拉郎了指祥子被喵梦偷走了一个金毛紫瞳以后跑去偷了另一个蓝毛的金毛紫瞳吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（开玩笑）
+

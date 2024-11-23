@@ -146,3 +146,25 @@ ame波上高地了！但是v社突然宣布决赛由bo5改成bo3，lgd取胜，a
 偷的烂梗:Niko没补掉三箱！但是v社突然宣布比赛由15局半场改为13局半场，faze直接取胜！niko拿到major冠军 ...</blockquote>
 错误的，从小到大也是久石奏上
 
+
+*****
+
+####  l⑨th_Knight  
+##### 4544#       发表于 2024-11-23 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66758915&amp;ptid=1857369" target="_blank">ork 发表于 2024-11-23 11:59</a>
+3DMAX &amp; BIG：唉，最后的传奇组名额也被v大哥阴阳单了，最后的钱买了去西雅图的机票准备见G大哥最后一面
+
+ ...</blockquote>
+别带斯德哥摩钻石币、里约查无此人、哥本哈根拔网线、上海改规则队节奏啊
+
+GO批的一天：中午看白皮比赛，下午看白皮比赛，晚上看白皮比赛，凌晨看白皮改规则，早上来直播间
+
+其实临时乱改规则也是有历史渊源的，玩机器曾经在g2决赛中将等级发言上调至23级
+
+不是哥们，一个队伍怎么可能又拔网线，又如有神助，又鞭尸，又定制出线阿？别尬黑行吗？
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就已经有那么多烂梗啦
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

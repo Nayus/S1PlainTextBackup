@@ -10380,3 +10380,15 @@ call和mix是两条线，call七十年代就开始玩了，mix是新世纪早安
 
 【【中字·完整版剪辑】绝对的LOVER -《LoveLive!Superstar!!》第3季第6集插入歌-哔哩哔哩】 [https://b23.tv/ZvA9O7R](https://b23.tv/ZvA9O7R)
 
+
+*****
+
+####  ads147147  
+##### 1018#       发表于 2024-11-23 09:10
+
+【「YuuRiri日记」和爱哥成为沙威玛传奇-哔哩哔哩】 https://b23.tv/z1ESvcC
+
+用马甲就可以肆无忌惮的玩隔壁的梗啦。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -697,3 +697,24 @@ R1 ⬅️，进入拍照模式
 
 打boss rush模式拿奖励衣服，才发现这游戏的boss难度曲线有多么不合理。前面几乎都没难度，到不明孽奇拔这里难度飙升。打普通难度天意机甲卡了我一个小时才过<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这还是在我有一套很成熟的战斗思路、资源循环理念的情况下。来自: iPhone客户端
 
+
+*****
+
+####  nagitoY  
+##### 1854#       发表于 2024-11-22 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66749691&amp;ptid=1978008" target="_blank">nagitoY 发表于 2024-11-22 01:07</a>
+
+打boss rush模式拿奖励衣服，才发现这游戏的boss难度曲线有多么不合理。前面几乎都没难度，到不明孽奇拔这 ...</blockquote>
+boss rush不能用白血泵复活，容错相对低。
+
+进场爆发能量和贝塔能量都是0，最重要的是第一轮中把资源循环打出来。而且昨天不知道为什么，连锁技能的最后一下长按，我经常按不出来。可能是第四下□按快了，没出长按直接读成第五次□了？
+
+*****
+
+####  jacket  
+##### 1855#       发表于 2024-11-23 16:00
+
+看了数毛社才知道剑星针对ps5 pro出了新的优化模式
+[https://www.youtube.com/watch?v=ILaU983xDzc](https://www.youtube.com/watch?v=ILaU983xDzc)
+

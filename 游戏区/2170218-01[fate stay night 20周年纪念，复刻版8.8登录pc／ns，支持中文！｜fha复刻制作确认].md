@@ -1376,3 +1376,15 @@ steam的bug修了吗<img src="https://static.saraba1st.com/image/smiley/face2017
 
 在想要不要买一份，现在-20%
 
+
+*****
+
+####  satan023  
+##### 141#       发表于 2024-11-23 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66758966&amp;ptid=2170218" target="_blank">Nana7ue 发表于 2024-11-23 12:09</a>
+steam的bug修了吗
+
+在想要不要买一份，现在-20%</blockquote>
+别买 玩老版还带H 不比这爽吗 我玩到凛线了 没觉得立绘画面有啥过时 这复刻纯骗钱
+

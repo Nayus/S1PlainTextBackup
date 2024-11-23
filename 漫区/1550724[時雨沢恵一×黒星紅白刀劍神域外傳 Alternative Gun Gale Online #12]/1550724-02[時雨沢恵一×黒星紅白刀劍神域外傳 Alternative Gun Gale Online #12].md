@@ -82,3 +82,11 @@ GGO一期的版权应该在爱奇艺
 
 偶像和经纪人是**吗
 
+
+*****
+
+####  pokemon最爱  
+##### 1972#       发表于 2024-11-23 12:04
+
+虽然小说里可以很明显的看出来pito说的SAO封测时那个人是桐人但我是真没想到动画直球在CAST里写出桐人这个名字来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

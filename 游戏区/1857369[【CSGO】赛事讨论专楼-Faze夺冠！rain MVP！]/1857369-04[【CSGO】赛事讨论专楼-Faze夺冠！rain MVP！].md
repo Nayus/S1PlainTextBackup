@@ -125,3 +125,14 @@ ame波上高地了！但是v社突然宣布决赛由bo5改成bo3，lgd取胜，a
 
 拳头看Faker塞拉斯第四局游龙了，临时把赛制改为Bo3，让我们恭喜@BLG电子竞技俱乐部！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ork  
+##### 4542#       发表于 2024-11-23 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66758033&amp;ptid=1857369" target="_blank">OVOVO 发表于 2024-11-23 04:37</a>
+
+偷的烂梗:Niko没补掉三箱！但是v社突然宣布比赛由15局半场改为13局半场，faze直接取胜！niko拿到major冠军 ...</blockquote>
+3DMAX &amp; BIG：唉，最后的传奇组名额也被v大哥阴阳单了，最后的钱买了去西雅图的机票准
+

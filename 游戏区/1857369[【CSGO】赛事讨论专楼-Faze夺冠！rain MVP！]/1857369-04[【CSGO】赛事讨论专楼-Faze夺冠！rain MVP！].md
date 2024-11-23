@@ -199,3 +199,13 @@ GO批的一天：中午看白皮比赛， ...</blockquote>
 
 这场比赛这才是媚劲，素材太多了
 
+
+*****
+
+####  Eric_方歌阙  
+##### 4548#       发表于 2024-11-23 21:35
+
+图三下半场纯喜剧表演<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，看笑好几次。
+
+G2新来的这个malbsMd可以啊，就他尼驴三个比较严肃。
+

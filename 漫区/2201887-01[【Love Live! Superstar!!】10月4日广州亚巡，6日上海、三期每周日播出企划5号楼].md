@@ -10414,3 +10414,16 @@ call和mix是两条线，call七十年代就开始玩了，mix是新世纪早安
 打call是wota艺演变来的吧，我感觉至少可以追溯到十几年前akb流行的时期，或者再早一点，早安家族时期应 ...</blockquote>
 说在中文互联网登场问题不大，国内三次元团粉丝不怎么在意，以前11年日本文化周请akb来的时候，台下根本没什么人call，棒子也稀稀疏疏，把光棒和歌曲call大范围带起来的还真是ll
 
+
+*****
+
+####  starring  
+##### 1021#       发表于 2024-11-23 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66760752&amp;ptid=2201887" target="_blank">一心而用 发表于 2024-11-23 19:47</a>
+
+【【liella】《Let's be ONE》/《DAISUKI FULL POWER》_2024/11/23-哔哩哔哩】 https://b23.tv/06kLiLp
+
+【 ...</blockquote>
+大熊的声音有点像Ado，挺意外
+

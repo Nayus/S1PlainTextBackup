@@ -862,3 +862,13 @@ syngup铁串子<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  wfhtony  
+##### 6705#       发表于 2024-11-23 18:19
+
+髙橋龍也來監修...
+
+看來學馬仕(手遊)的世界觀基本確定是本家動畫(2011)世界觀的延續了。
+

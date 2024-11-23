@@ -469,3 +469,196 @@ shakeshake除了奶昔其他不值得吃 太贵了又没好吃到那种程度
 
 感觉不如…蓝蛙、幻师
 
+
+*****
+
+####  BILLLLIB  
+##### 51#       发表于 2024-11-22 01:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">该店能活主要还是靠着因为国内麦当劳现在不卖奶昔了
+
+*****
+
+####  阿虚家的三味  
+##### 52#       发表于 2024-11-22 03:35
+
+公司楼下开了一家之前500充值800还是多少活动买了一次试试，感觉汉堡也没啥实力，顶多也就和km两家安格斯系列差不多，鸡块简直搞笑咪咪小还很柴，奶昔说是招牌各个味道都试了感觉比dq还要甜，有点酣了。薯条倒是不错，还有黄芥末可以沾。
+
+*****
+
+####  lanslort  
+##### 53#       发表于 2024-11-22 05:06
+
+ 本帖最后由 lanslort 于 2024-11-22 05:08 编辑 
+
+shake shack在米帝也不是跟麦当劳肥宅王一档的啊，比前者贵个50%到一倍吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 不过味道我还挺喜欢的，奶昔倒是不喝。五基佬比shake shack还要再贵点
+
+不过没想到国内价格直接按汇率对标美帝 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Archlich³  
+##### 54#       发表于 2024-11-22 05:27
+
+大城市现在精品汉堡越来越多，连锁店的吸引力我觉得变低了。
+
+*****
+
+####  cy233  
+##### 55#       发表于 2024-11-22 06:26
+
+这家芝士薯条感觉比蓝蛙的还好吃，奶昔也还行，其他家薯条外卖送来感觉都没法吃
+
+*****
+
+####  chemrev  
+##### 56#       发表于 2024-11-22 06:27
+
+有这钱扛两件可乐不好吗
+
+*****
+
+####  ranapocket  
+##### 57#       发表于 2024-11-22 08:31
+
+对汉堡没什么印象，薯条还可以，奶昔没喝过，下次试试
+
+—— 来自 HUAWEI OCE-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  玄玦  
+##### 58#       发表于 2024-11-22 08:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66748740&amp;ptid=2207710" target="_blank">阿卵真是牛逼 发表于 2024-11-21 21:58</a>
+
+每次想吃都因为只能单点没有套餐显得我过于怨种而放弃
+
+以前汉堡还能吃吃拉亚、卡乐星和哈比特，现在全倒闭 ...</blockquote>
+卡乐星前几年上大学的时候经常外卖叠券点个21.9的套餐 可以汉堡薯条洋葱圈嗯造个爽 关门了真的好可惜<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  杨千fa单推人  
+##### 59#       发表于 2024-11-22 08:44
+
+楼里为什么很多都觉得52的汉堡+薯条很贵啊，BK也是这个价啊，而且bk这个价的真不如shake shack吧
+
+<img src="https://img.saraba1st.com/forum/202411/22/084456p9ionniyy77z1e7o.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20241122084440.jpg</strong> (211.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-22 08:44 上传
+
+*****
+
+####  Vladimeow  
+##### 60#       发表于 2024-11-22 08:52
+
+我就不懂ss是哪来的自信卖那么贵的，也没比金拱门好吃多少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  密特里奈斯  
+##### 61#       发表于 2024-11-22 09:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66750476&amp;ptid=2207710" target="_blank">杨千fa单推人 发表于 2024-11-22 08:44</a>
+
+楼里为什么很多都觉得52的汉堡+薯条很贵啊，BK也是这个价啊，而且bk这个价的真不如shake shack吧</blockquote>
+bk皇堡会员套餐29，大嘴安格斯40，而且还有各种券，基本上屯券的话一个皇堡20以内了
+
+*****
+
+####  lazy_boyme  
+##### 62#       发表于 2024-11-22 09:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66750476&amp;ptid=2207710" target="_blank">杨千fa单推人 发表于 2024-11-22 08:44</a>
+
+楼里为什么很多都觉得52的汉堡+薯条很贵啊，BK也是这个价啊，而且bk这个价的真不如shake shack吧</blockquote>
+饱嗝王套餐原价才59，SS用上65折券还要65，也就只是薯条+汉堡。
+
+单品单点价格本来就要便宜1/3，外卖平台更便宜。
+
+但是大嘴安格斯还是建议在店里吃现做的，炸洋葱更脆，单点一个就满足不需要搭其他东西。
+
+SS白松露这款券后价格在所处地段算是实惠好吃的，薯条也就换个酱。不过SS的薯条是真的好吃。
+
+也不知道为啥SS把最爱的墨西哥烟熏辣椒那款里面的培根做的那样艮，被狠狠地伤害到了。
+
+*****
+
+####  cherry__  
+##### 63#         楼主| 发表于 2024-11-22 09:15
+
+ 本帖最后由 cherry__ 于 2024-11-22 09:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66750689&amp;ptid=2207710" target="_blank">lazy_boyme 发表于 2024-11-22 09:11</a>
+
+饱嗝王套餐原价才59，SS用上65折券还要65，也就只是薯条+汉堡。
+
+单品单点价格本来就要便宜1/3，外卖平台 ...</blockquote>
+汉堡+薯条+奶昔（新会员券）只要54.6
+
+用完65折就是54.6了，根本不是65
+
+<img src="https://img.saraba1st.com/forum/202411/22/091910k3o4bns7mxpazsww.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20241122091846.jpg</strong> (15.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-22 09:19 上传
+
+*****
+
+####  lazy_boyme  
+##### 64#       发表于 2024-11-22 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66750730&amp;ptid=2207710" target="_blank">cherry__ 发表于 2024-11-22 09:15</a>
+
+汉堡+薯条+奶昔（新会员券）只要54.6
+
+用完65折就是54.6了，根本不是65</blockquote>
+看了一下订单，应该是少用了一张薯条的优惠券，不知道能不能同时用。
+
+新会员券什么的，早好些年就不是新会员了，用不了一点。
+
+*****
+
+####  cherry__  
+##### 65#         楼主| 发表于 2024-11-22 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66750821&amp;ptid=2207710" target="_blank">lazy_boyme 发表于 2024-11-22 09:24</a>
+
+看了一下订单，应该是少用了一张薯条的优惠券，不知道能不能同时用。
+
+新会员券什么的，早好些年就不是新 ...</blockquote>
+可以同时用的，我还是店员帮我操作的
+
+*****
+
+####  kaddh  
+##### 66#       发表于 2024-11-22 10:34
+
+上周末吃了，牛肉饼+松露酱+芝士已经很heavy了，还放了炸洋葱圈，咬下去口腔直接感受到溢出一包油，受不了
+
+*****
+
+####  martysama  
+##### 67#       发表于 2024-11-22 11:40
+
+吃了，汉堡好小一个，感觉比基础款小了1/3。
+肥肥没吃饱
+
+—— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  feliznavidad  
+##### 68#       发表于 2024-11-24 01:25
+
+看了坛友帖子去吃了，只能说汉堡是问题最小的一环吧，薯条太腻奶昔太甜，每喝一口都觉得身体本能在抗拒这么高的糖分，最后只能勉强把汉堡吃完了，那个奶昔的口感我甚至都不想回忆<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PHK110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -726,3 +726,14 @@ boss rush不能用白血泵复活，容错相对低。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">问问大家，这游戏战斗打起来爽吗？敌人种类多吗？
 
+
+*****
+
+####  Bani82  
+##### 1857#       发表于 2024-11-23 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66760186&amp;ptid=1978008" target="_blank">thez 发表于 2024-11-23 17:28</a>
+
+问问大家，这游戏战斗打起来爽吗？敌人种类多吗？</blockquote>
+爽，不算很多
+

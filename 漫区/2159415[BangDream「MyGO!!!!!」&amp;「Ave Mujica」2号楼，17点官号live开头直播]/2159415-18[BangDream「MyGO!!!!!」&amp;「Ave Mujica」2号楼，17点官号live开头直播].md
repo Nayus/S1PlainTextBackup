@@ -12538,3 +12538,13 @@ animax开始啦~
 
 2024-11-23 13:41 上传
 
+
+*****
+
+####  skives10  
+##### 26198#       发表于 2024-11-23 14:20
+
+鸡友一边吐槽绘柄一边猛猛的买 
+4th先行贩卖才多长时间又切了不少<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+哎 看来图的质量只能靠wsd良心发现了
+

@@ -260,3 +260,13 @@ ice不用说中文都变回人形了，侧面解释钓鱼佬为啥离婚
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">这话很强啊，又惆怅又无奈心酸的感觉
 
+
+*****
+
+####  reficul  
+##### 159#       发表于 2024-11-24 02:30
+
+店长最后是没话找话吧，类似于伤心的情况下不给自己找点事做就真的要哭出来了。毕竟去厕所是贵明拦住了主角，还有洗脸台上的两滴水珠，还是在暗示店主哭了留他一个人整理情绪
+
+夫妻离异小孩希望父母和好，真是无解的难题啊，这集也没有强行要解决问题或者给出方案，小优的懂事只能带来更深的哀愁<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+

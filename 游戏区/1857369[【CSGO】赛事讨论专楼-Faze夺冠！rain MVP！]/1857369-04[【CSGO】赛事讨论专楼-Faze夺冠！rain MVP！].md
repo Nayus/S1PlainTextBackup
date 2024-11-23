@@ -168,3 +168,18 @@ GO批的一天：中午看白皮比赛，下午看白皮比赛，晚上看白皮
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ork  
+##### 4545#       发表于 2024-11-23 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66759041&amp;ptid=1857369" target="_blank">l⑨th_Knight 发表于 2024-11-23 12:27</a>
+
+别带斯德哥摩钻石币、里约查无此人、哥本哈根拔网线、上海改规则队节奏啊
+
+GO批的一天：中午看白皮比赛， ...</blockquote>
+@BIG：这样吧V社，我发起一场战争，如果你输了就把传奇组名额吐出来再组建一个亲德管理层
+
+来了个更爆的
+

@@ -12833,3 +12833,15 @@ QQ图片20241123214220.jpg
 
 2024-11-24 18:03 上传
 
+
+*****
+
+####  仓鼠胖太  
+##### 26220#       发表于 2024-11-24 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66755618&amp;ptid=2159415" target="_blank">Sabbah 发表于 2024-11-22 18:27</a>
+光看这话没看明白，如果我没记错2话那个和爱音的微笑对谈就是坐一起聊的? ...</blockquote>
+那会儿素世已经口头答应爱音组乐队的邀请了吧，也算符合前文总结规律了
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

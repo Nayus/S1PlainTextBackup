@@ -2307,3 +2307,14 @@ ts大学生也可以算啊</blockquote>
 说起来冰火娃这俩人设真是土到掉渣，放二十年都属于烂大街水平</blockquote>
 未来会更严重，只剩下最后一个篇章，结社和教会那些人会挤在这个篇章一起登场，随从骑士都不会有了，如果考虑东大路灵脉枯竭，拖鞋都能省了反正飞不起来学狮子开机车吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  liuguokobe  
+##### 7011#       发表于 2024-11-24 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66756453&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-11-22 20:24</a>
+
+未来会更严重，只剩下最后一个篇章，结社和教会那些人会挤在这个篇章一起登场，随从骑士都不会有了，如果 ...</blockquote>
+开什么机车，开我们最新最火的导力**啊
+

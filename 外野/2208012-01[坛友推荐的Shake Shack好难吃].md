@@ -493,3 +493,15 @@ shake shack就很怪，吃过一次，感觉你能吃出材料是不差的，但
 要是餐吧你菜单一翻就汉堡实惠点，那也是吃个环境。
 ss能给什么，价格高过一个度大家的预期都是非理性的，再加上那个面包掺料过头了，又湿又软，吃起来真的不爽。
 
+
+*****
+
+####  H.trionum  
+##### 55#       发表于 2024-11-25 00:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66766504&amp;ptid=2208012" target="_blank">zing223 发表于 2024-11-24 23:45</a>
+我没有吃到过国内的five guys，薯条和汉堡是不是暴咸...起码在国外吃到不觉得是好体验，价格也不便宜。量 ...</blockquote>
+国内的出品挺稳定的没吃到过特别咸的，但在美帝村里的时候薯条的咸度全看小黑哥的心情，有次看着他一大筐新炸好的倒进去还在暗喜，没注意他半罐子cajun粉倒进去没扒拉几下就给我装袋子里，回家才发现没拌开半罐子粉全在我那点薯条上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

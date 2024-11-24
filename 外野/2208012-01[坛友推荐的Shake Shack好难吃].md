@@ -425,3 +425,25 @@ Shake shack完全不如five guys，都被哈比特吊打<img src="https://static
 
 我觉得挺好吃的，楼主自己也说了汉堡比御三家好一点点，对我来说足够了
 
+
+*****
+
+####  Dreamophobia  
+##### 48#       发表于 2024-11-24 21:57
+
+北京限定的山楂奶昔好喝<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">超甜 超酸 超油腻 超解腻
+
+肉饼其实不太多汁，瘦肉比例高，口感有点老，配上地道臭袜子味儿车达芝士<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+不如手作汉堡个体户，不过北京的手作汉堡基本也这个价
+
+
+*****
+
+####  日参省乎己  
+##### 49#       发表于 2024-11-24 22:01
+
+汉堡这玩意上限不高的，满分100汉堡王的安格斯也是有80分水平的好吧，不要对顶级汉堡预期太高
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

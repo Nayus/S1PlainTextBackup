@@ -770,3 +770,29 @@ boss rush不能用白血泵复活，容错相对低。
 容错实在是太低了，吃任意两刀就被秒。我已经学会了拉开距离引招的逃课打 ...</blockquote>
 哪个配置的挑战,最低装备,3个双刃剑那个一刀死模式?
 
+
+*****
+
+####  nagitoY  
+##### 1861#       发表于 2024-11-24 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66763642&amp;ptid=1978008" target="_blank">oyss 发表于 2024-11-24 13:25</a>
+
+哪个配置的挑战,最低装备,3个双刃剑那个一刀死模式?</blockquote>
+就首领挑战里困难难度的渡鸦。选的顶级装备，但是只是一周目全收集的全装备。（我自己的号没有模块全收集，进二周目后速通刚到废土）
+
+容错太低，连段只要吃两刀就被秒。
+
+
+*****
+
+####  nagitoY  
+##### 1861#       发表于 2024-11-24 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66763642&amp;ptid=1978008" target="_blank">oyss 发表于 2024-11-24 13:25</a>
+
+哪个配置的挑战,最低装备,3个双刃剑那个一刀死模式?</blockquote>
+就首领挑战里困难难度的渡鸦。选的顶级装备，但是只是一周目全收集的全装备。（我自己的号没有模块全收集，进二周目后速通刚到废土）
+
+容错太低，连段只要吃两刀就被秒。
+

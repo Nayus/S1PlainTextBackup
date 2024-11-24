@@ -379,3 +379,33 @@ Shake shack完全不如five guys，都被哈比特吊打<img src="https://static
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Wiksy  
+##### 43#       发表于 2024-11-24 20:31
+
+<blockquote>H.trionum 发表于 2024-11-24 18:24
+朋友从美帝回南京后表示肉饼不如美帝的，我自己在上海和香港倒是没吃出来特别大的差别。在美国比m记贵但我 ...</blockquote>
+是的，上海five guys的薯条没有那种恨不得整个袋子塞满的量，不够正统
+
+*****
+
+####  ranapocket  
+##### 44#       发表于 2024-11-24 20:34
+
+主要是贵不值那个价，说难吃离谱了
+
+—— 来自 HUAWEI OCE-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  windtrack  
+##### 45#       发表于 2024-11-24 20:36
+
+这家价格你说难吃没多难吃，但是明显对不起这价格，至少得对折
+
+奶昔吧，没觉得比DQ强多少
+
+汉堡除了面包强点，其他全面不如BK皇堡，和同价位的QMAX蓝蛙这种就更不要比了
+

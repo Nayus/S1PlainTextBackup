@@ -10628,3 +10628,14 @@ call和mix是两条线，call七十年代就开始玩了，mix是新世纪早安
 
 后面还有三张封，插③A土妹子+恋，插③B面是11人或者二三年级全员；然后神秘的插4是五人？
 
+
+*****
+
+####  cmhyt  
+##### 1038#       发表于 2024-11-24 17:59
+
+夹脚，摇滚，卖狗
+致敬，全是致敬<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+歌不错
+顺便说一句斯麦卢让我想到某只母大猫了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

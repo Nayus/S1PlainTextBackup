@@ -3616,3 +3616,11 @@ vol.1のティーネ＆アーチャー、vol.2の銀狼＆ランサーは、
 
 B站的自动翻译能勉强看个七八成，没想到第一次使用自动翻译是看fsf
 
+
+*****
+
+####  ff2077  
+##### 368#       发表于 2024-11-24 22:52
+
+原作值得看看吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

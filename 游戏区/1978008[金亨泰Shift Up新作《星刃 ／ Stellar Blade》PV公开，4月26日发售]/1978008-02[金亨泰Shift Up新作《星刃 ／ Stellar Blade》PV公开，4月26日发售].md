@@ -796,3 +796,11 @@ boss rush不能用白血泵复活，容错相对低。
 
 容错太低，连段只要吃两刀就被秒。
 
+
+*****
+
+####  alex2092  
+##### 1862#       发表于 2024-11-24 22:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">有没有办法关闭尼尔的BGM,尼尔的曲子已经听了几年了,想听剑星原曲
+

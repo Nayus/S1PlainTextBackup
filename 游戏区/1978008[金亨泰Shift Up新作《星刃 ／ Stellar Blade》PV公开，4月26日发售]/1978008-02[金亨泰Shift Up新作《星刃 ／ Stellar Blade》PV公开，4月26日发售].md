@@ -815,3 +815,17 @@ boss rush不能用白血泵复活，容错相对低。
 就首领挑战里困难难度的渡鸦。选的顶级装备，但是只是一周目全收集的全装备。（我自己的号没有模块全收集 ...</blockquote>
 那当然,本来是准备给二周目最后打的BOSS.一周目顶配去打就是增加难度了.
 
+
+*****
+
+####  lpzhg  
+##### 1864#       发表于 2024-11-25 01:22
+
+今天把二周目捡起来打到了废土，新衣服真是太棒啦
+
+<img src="https://p.sda1.dev/20/acd69166fc9d9dffb7ccd92dd4403d06/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/080b95f6bfbba3ea8ea565a59a9b6366/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/b22200a2820b042854f1af0a5ea1e252/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+

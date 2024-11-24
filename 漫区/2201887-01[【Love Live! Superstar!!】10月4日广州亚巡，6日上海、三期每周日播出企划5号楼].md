@@ -10611,3 +10611,20 @@ call和mix是两条线，call七十年代就开始玩了，mix是新世纪早安
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  ruffian  
+##### 1036#       发表于 2024-11-24 16:47
+
+每周都会被ed气笑一次，感谢负责每集ed的stuff带给我的笑容和血压<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ViyViy  
+##### 1037#       发表于 2024-11-24 16:48
+
+后面还有三张封，插③A土妹子+恋，插③B面是11人或者二三年级全员；然后神秘的插4是五人？
+

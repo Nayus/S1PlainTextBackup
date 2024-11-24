@@ -16650,3 +16650,18 @@ aki这速度恐怖的，我觉得miko48如果事前不练的话赢不了啊
 
 网友评价：这封面做好直接搬到dlsite做同人音声海报都没问题
 
+
+*****
+
+####  holoan  
+##### 10249#         楼主| 发表于 2024-11-24 22:53
+
+没搞过竖屏直播但是处理竖状图片的手法及其专业而且熟练
+
+*****
+
+####  karastar  
+##### 10250#       发表于 2024-11-24 23:03
+
+原来miko的呆都是装的，梁木了<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

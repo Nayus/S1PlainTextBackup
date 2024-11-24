@@ -3624,3 +3624,11 @@ B站的自动翻译能勉强看个七八成，没想到第一次使用自动翻�
 
 原作值得看看吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  爱吃冻鳗的猫  
+##### 369#       发表于 2024-11-24 22:58
+
+这动画到底打不打算出成季番？怎么动画搞得跟原作一样这么难产。
+

@@ -757,3 +757,16 @@ boss rush不能用白血泵复活，容错相对低。
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
 
+
+*****
+
+####  oyss  
+##### 1860#       发表于 2024-11-24 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66762996&amp;ptid=1978008" target="_blank">nagitoY 发表于 2024-11-24 10:51</a>
+
+打了一晚上困难渡鸦，耻辱下播。
+
+容错实在是太低了，吃任意两刀就被秒。我已经学会了拉开距离引招的逃课打 ...</blockquote>
+哪个配置的挑战,最低装备,3个双刃剑那个一刀死模式?
+

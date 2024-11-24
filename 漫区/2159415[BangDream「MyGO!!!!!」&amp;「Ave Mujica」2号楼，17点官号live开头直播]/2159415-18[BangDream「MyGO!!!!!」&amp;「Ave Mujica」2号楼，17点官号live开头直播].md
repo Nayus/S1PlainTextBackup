@@ -12868,3 +12868,21 @@ QQ图片20241123214220.jpg
 
 那真是好可怜的一对<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cindy355  
+##### 26224#       发表于 2024-11-25 02:31
+
+<img src="https://img.saraba1st.com/forum/202411/25/023004p2d2i52w000m8rht.png" referrerpolicy="no-referrer">
+
+<strong>(UCA(B1X(BDV$O7GVO2IP4I.png</strong> (68.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-25 02:30 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face/178.gif" referrerpolicy="no-referrer">
+
+和有着如此蓬勃爱意的你们是同担，我很荣幸。
+

@@ -505,3 +505,13 @@ ss能给什么，价格高过一个度大家的预期都是非理性的，再加
 
 —— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  BLTUS  
+##### 56#       发表于 2024-11-25 01:52
+
+<blockquote>jockeyjoestar 发表于 2024-11-24 16:51
+华尔街小资专属汉堡。蘑菇饼味道很一般。</blockquote>
+纽约店这么多和小资也没什么关系。哪个洋快餐咖啡开到上海都要闹一阵人来疯，什么Wendy‘s、Chipotle、Chick-fil-A要是进来估计都会有排几个小时队这种行为艺术
+

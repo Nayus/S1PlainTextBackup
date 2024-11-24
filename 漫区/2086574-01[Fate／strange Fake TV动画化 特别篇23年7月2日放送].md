@@ -3571,3 +3571,16 @@ vol.1のティーネ＆アーチャー、vol.2の銀狼＆ランサーは、
 
 要是整个都保持这种水准，那真的是开香槟了，甚至觉得成田写得有点水配不上这制作<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ナルバレック  
+##### 364#       发表于 2024-11-24 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66765274&amp;ptid=2086574" target="_blank">空彦秋 发表于 2024-11-24 19:57</a>
+
+第一话质量真的顶，至少文戏是这样
+
+要是整个都保持这种水准，那真的是开香槟了，甚至觉得成田写得有点水配 ...</blockquote>
+成田在月球作者里算咖位大啊，除了菌菇和老虚外，没有人和他咖位差不多，他下笔太软不爱收人导致各种结局问题甚至无法完结是老问题了，永生之酒和无头骑士不都这样2333
+

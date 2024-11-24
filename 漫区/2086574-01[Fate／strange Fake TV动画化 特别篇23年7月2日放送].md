@@ -3584,3 +3584,27 @@ vol.1のティーネ＆アーチャー、vol.2の銀狼＆ランサーは、
 要是整个都保持这种水准，那真的是开香槟了，甚至觉得成田写得有点水配 ...</blockquote>
 成田在月球作者里算咖位大啊，除了菌菇和老虚外，没有人和他咖位差不多，他下笔太软不爱收人导致各种结局问题甚至无法完结是老问题了，永生之酒和无头骑士不都这样2333
 
+
+*****
+
+####  ナルバレック  
+##### 365#       发表于 2024-11-24 21:40
+
+<img src="https://img.saraba1st.com/forum/202411/24/214002lccjj6lzd6irhhcc.png" referrerpolicy="no-referrer">
+
+<strong>5D69E463FB49FE13E84C1D281D049CF6.png</strong> (238.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-24 21:40 上传
+
+*****
+
+####  线程召唤使  
+##### 366#       发表于 2024-11-24 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66765697&amp;ptid=2086574" target="_blank">ナルバレック 发表于 2024-11-24 21:29</a>
+
+成田在月球作者里算咖位大啊，除了菌菇和老虚外，没有人和他咖位差不多，他下笔太软不爱收人导致各种结局 ...</blockquote>
+成田有才气，蘑菇有灵性，老虚最用力。
+

@@ -3561,3 +3561,13 @@ vol.1のティーネ＆アーチャー、vol.2の銀狼＆ランサーは、
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
 
+
+*****
+
+####  空彦秋  
+##### 363#       发表于 2024-11-24 19:57
+
+第一话质量真的顶，至少文戏是这样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+要是整个都保持这种水准，那真的是开香槟了，甚至觉得成田写得有点水配不上这制作<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

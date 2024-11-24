@@ -6949,3 +6949,15 @@ TGA投票权重以米系媒体为主，估计今年年度就是暗喻幻想了�
 我50级多一点，是不是在塔里刷会怪再打比较好</blockquote>
 反正你比boss等级低5级你会miss特别多，而对方打你miss率会减少
 
+
+*****
+
+####  牙狼GARO  
+##### 3579#       发表于 2024-11-24 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66757937&amp;ptid=2140224" target="_blank">石中剑二 发表于 2024-11-23 02:32</a>
+我50级多一点，是不是在塔里刷会怪再打比较好</blockquote>
+50多级差不多，我是抄作业，加完行动力上风弱点，好兄弟buff叠满用合题up大剑放风刃，减防buff尽量拉满，没能一刀秒两回合也足够了，一周目hard甚至后面的任何boss都可以这么打
+
+—— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

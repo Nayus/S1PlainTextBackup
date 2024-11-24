@@ -804,3 +804,14 @@ boss rush不能用白血泵复活，容错相对低。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">有没有办法关闭尼尔的BGM,尼尔的曲子已经听了几年了,想听剑星原曲
 
+
+*****
+
+####  oyss  
+##### 1863#       发表于 2024-11-24 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66765375&amp;ptid=1978008" target="_blank">nagitoY 发表于 2024-11-24 20:28</a>
+
+就首领挑战里困难难度的渡鸦。选的顶级装备，但是只是一周目全收集的全装备。（我自己的号没有模块全收集 ...</blockquote>
+那当然,本来是准备给二周目最后打的BOSS.一周目顶配去打就是增加难度了.
+

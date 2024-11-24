@@ -447,3 +447,19 @@ Shake shack完全不如five guys，都被哈比特吊打<img src="https://static
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  yao  
+##### 50#       发表于 2024-11-24 23:19
+
+汉堡王的大嘴安格斯套餐是50元档的最优选择。
+
+
+*****
+
+####  冰涧寒风  
+##### 51#       发表于 2024-11-24 23:24
+
+shake shack就很怪，吃过一次，感觉你能吃出材料是不差的，但莫名的没有那种酣畅淋漓的爽快感，过于平淡。。。
+

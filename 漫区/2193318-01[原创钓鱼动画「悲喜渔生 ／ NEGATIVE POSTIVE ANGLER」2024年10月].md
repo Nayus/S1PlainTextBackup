@@ -270,3 +270,11 @@ ice不用说中文都变回人形了，侧面解释钓鱼佬为啥离婚
 
 夫妻离异小孩希望父母和好，真是无解的难题啊，这集也没有强行要解决问题或者给出方案，小优的懂事只能带来更深的哀愁<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kurokawa_Sally  
+##### 160#       发表于 2024-11-24 23:19
+
+真是不错的单回，哎人生有时只不过是机率游戏
+

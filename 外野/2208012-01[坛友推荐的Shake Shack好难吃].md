@@ -369,3 +369,13 @@ Shake shack完全不如five guys，都被哈比特吊打<img src="https://static
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  影法师  
+##### 42#       发表于 2024-11-24 20:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">说和kfc和m没区别就是扯淡了，无非就是觉得那点口味的溢价划不划算。另外在泥潭讨论吃的特别是外来玩意汉堡牛排日料意义更不大，说一堆可能还被扣个装逼。泥潭可是很多人觉得蜜雪冰城和喜茶味道都差不多没什么区别的地方。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -13062,3 +13062,11 @@ Crychic解散 - 不晚于6月上旬
 [https://tieba.baidu.com/p/8956586903](https://tieba.baidu.com/p/8956586903)
 [https://www.bilibili.com/read/cv26645628](https://www.bilibili.com/read/cv26645628)</blockquote>
 
+
+*****
+
+####  御幸一也  
+##### 26226#       发表于 2024-11-25 07:34
+
+好全的時間線，不過樓友盤的CCC成團時間比我估的還短，我還以為有一個多月呢。
+

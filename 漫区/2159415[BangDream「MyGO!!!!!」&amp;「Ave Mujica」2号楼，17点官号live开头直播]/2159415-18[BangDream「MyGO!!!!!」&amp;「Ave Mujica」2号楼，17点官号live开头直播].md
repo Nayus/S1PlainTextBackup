@@ -13070,3 +13070,21 @@ Crychic解散 - 不晚于6月上旬
 
 好全的時間線，不過樓友盤的CCC成團時間比我估的還短，我還以為有一個多月呢。
 
+
+*****
+
+####  PDQ4  
+##### 26227#       发表于 2024-11-25 08:18
+
+按照这个时间线，喵梦入伙到live还不到一个月，确实最速出道了
+一想到这可能还是课后时间练的，邦邦超人好可怕<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 26227#       发表于 2024-11-25 08:18
+
+按照这个时间线，喵梦入伙到live还不到一个月，确实最速出道了
+一想到这可能还是课后时间练的，邦邦超人好可怕<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+

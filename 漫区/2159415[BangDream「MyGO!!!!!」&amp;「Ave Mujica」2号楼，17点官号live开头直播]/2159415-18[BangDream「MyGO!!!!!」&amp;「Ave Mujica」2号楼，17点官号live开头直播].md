@@ -13307,3 +13307,11 @@ mujica从六月初开始筹备，七月末就开live，说筹备时间短也不�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无所谓，反正我两天现地爽看萝鸡
 
+
+*****
+
+####  Aloereed  
+##### 26248#       发表于 2024-11-25 18:36
+
+要是不挨鞭子说不定12月1号哔哩哔哩就全球线上先行上映了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

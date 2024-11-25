@@ -10667,3 +10667,11 @@ call和mix是两条线，call七十年代就开始玩了，mix是新世纪早安
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  ViyViy  
+##### 1042#       发表于 2024-11-25 12:01
+
+只能说是花田的摇滚之魂了
+

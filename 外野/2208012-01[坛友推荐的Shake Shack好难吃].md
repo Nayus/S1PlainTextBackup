@@ -770,3 +770,13 @@ Charlie’s
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  tchhol  
+##### 79#       发表于 2024-11-25 13:19
+
+去试一下five guys，如果觉得好吃就是shake shack不符合你口味
+
+如果觉得five guys也很难吃，那就是你不适合吃汉堡，以后别吃了
+

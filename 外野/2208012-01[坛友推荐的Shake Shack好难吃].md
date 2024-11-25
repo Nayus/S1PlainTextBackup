@@ -565,3 +565,16 @@ shake shack我之前看的up主的说法是在美国也算偏贵的。健康有�
 
 其次，这个公司早期在国内靠营销火过一阵，但早就不行了，好多门店都关门了。消费者用脚投票了。
 
+
+*****
+
+####  烦不烦  
+##### 61#       发表于 2024-11-25 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66767668&amp;ptid=2208012" target="_blank">Viteeee 发表于 2024-11-25 09:00</a>
+
+因为shake shack在美国没那么贵，只比麦当劳贵一点点。放到国内来直接汇率换算不说，甚至还涨价了
+
+查了一 ...</blockquote>
+mall的话比你图这里还要加3刀左右<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

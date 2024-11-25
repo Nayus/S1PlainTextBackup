@@ -733,3 +733,26 @@ Shake shack完全不如five guys，都被哈比特吊打
 
 不知道国内有没有
 
+
+*****
+
+####  flyfish  
+##### 76#       发表于 2024-11-25 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66769510&amp;ptid=2208012" target="_blank">IIIIIlllllIIIII 发表于 2024-11-25 12:09</a>
+已经 再也没有哈比特了。。。</blockquote>
+憋嗦了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  flyfish  
+##### 77#       发表于 2024-11-25 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66769493&amp;ptid=2208012" target="_blank">芜湖挨宰 发表于 2024-11-25 12:06</a>
+请问粉红汉堡店名是什么？</blockquote>
+Charlie’s
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

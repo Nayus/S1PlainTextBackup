@@ -13236,3 +13236,34 @@ mujica从六月初开始筹备，七月末就开live，说筹备时间短也不�
 
 —— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  Aendst  
+##### 26242#       发表于 2024-11-25 12:26
+
+按照就两周来算，部分角色的行为多少有点夸张化处理了
+
+不过主观滤镜这个确实能看出来制作组确实是有意去做的，mujica动画会怎么处理还真不好说
+
+*****
+
+####  6030sylar  
+##### 26243#       发表于 2024-11-25 12:29
+
+<img src="https://img.saraba1st.com/forum/202411/25/122907x2ic2yiue254cjid.jpg" referrerpolicy="no-referrer">
+
+<strong>007d3P6zgy1hvyad22qwkj314g0u048x.jpg</strong> (385.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-25 12:29 上传
+
+<img src="https://img.saraba1st.com/forum/202411/25/122907jd4ipgdyzp5pp65q.jpg" referrerpolicy="no-referrer">
+
+<strong>007d3P6zgy1hvyad04ldoj31400u0wp3.jpg</strong> (391.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-25 12:29 上传
+

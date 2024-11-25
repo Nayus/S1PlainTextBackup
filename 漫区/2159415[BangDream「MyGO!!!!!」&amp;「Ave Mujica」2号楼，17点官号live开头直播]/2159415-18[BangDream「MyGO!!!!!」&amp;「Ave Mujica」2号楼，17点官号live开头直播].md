@@ -13315,3 +13315,11 @@ mujica从六月初开始筹备，七月末就开live，说筹备时间短也不�
 
 要是不挨鞭子说不定12月1号哔哩哔哩就全球线上先行上映了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  纯田まな  
+##### 26249#       发表于 2024-11-25 19:56
+
+海外要买的早买了，也没几个只看鸡团的。最速先行的时候都是A席两日通票保底
+

@@ -3042,3 +3042,13 @@ You tube连播的时候感受得到心跳1.2的音乐是真多啊，好几张专
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  克拉苏  
+##### 244#       发表于 2024-11-25 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66656182&amp;ptid=2130715" target="_blank">泰坦失足 发表于 2024-11-9 14:52</a>
+那个两人合作画了快30年同人本，最后直接结婚的二人组HIGH RISK REVOLUTION https://x.com/aizawahiroshi， ...</blockquote>
+诗织**那本？30年<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">什么深仇大恨
+

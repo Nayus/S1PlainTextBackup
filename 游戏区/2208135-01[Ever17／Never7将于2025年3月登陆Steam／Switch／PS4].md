@@ -1,0 +1,367 @@
+﻿
+*****
+
+####  朔方原的星  
+##### 1#       楼主       发表于 2024-11-25 10:32
+
+<img src="https://p.sda1.dev/20/9d304299ff6580c02d7d0ab5ac57e4c0/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/b49b126c9feefad555e85c897b8034a7/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  魔法师lain  
+##### 2#       发表于 2024-11-25 10:39
+
+ 本帖最后由 魔法师lain 于 2024-11-25 10:41 编辑 
+
+居然不是360版。r11呢。支持什么语言
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+*****
+
+####  库德里尔  
+##### 3#       发表于 2024-11-25 10:42
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 4#       发表于 2024-11-25 10:42
+
+买了买了，什么时候把r11也带一下<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  医生狼多  
+##### 5#       发表于 2024-11-25 10:43
+
+《Ever 17 - The Out of Infinity》《Never 7 - The End of Infinity》Switch、PS4、Steam版将于2025年3月6日发售，亚洲版支持繁体中文。 ​​​
+
+关于《Ever 17》的补充说明：2011年底曾推出了添加诸多新要素的“重制版”，这回也采用了该重制版中追加·调整的剧情，不过角色由3D回归至与原版相同的2D风格，当时追加了新服装的小町与OP也重新制作了2D版本。OP开场视频：http://t.cn/A6mAW7gs
+
+日版单独购买售价：《Ever17》税后4950日元/《Never7》税后3300日元。
+Switch版会发售两作打包实体版，售价通常版税后7480日元，限定版税后9680日元，限定版特典为两作原声音乐集“SOUND COLLECTION”DVD。 ​​​
+
+*****
+
+####  会长辅佐  
+##### 6#       发表于 2024-11-25 10:43
+
+360版内容+原版立绘？怎么感觉好奇怪
+
+*****
+
+####  nierqing  
+##### 7#       发表于 2024-11-25 10:45
+
+哇，当年就是因为这几部作品知道打越钢太郎的名字。虽然直到现在也还没玩过…
+
+看了下微博说这个Ever17是沿用了有新要素的xbox版？但好像不少人不喜欢这个版本。问下玩过的坛友是更推荐推荐玩原版还是这个版本也可以呢？
+我是觉得又能补游戏也有中文还能打杯挺不错的<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+*****
+
+####  库德里尔  
+##### 8#       发表于 2024-11-25 10:46
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  伊迪潘宫森  
+##### 9#       发表于 2024-11-25 10:47
+
+总有人说想失忆玩一遍的游戏之一，实际上玩过后三五年基本就忘差不多了，不信你买了试试
+
+*****
+
+####  Andariel  
+##### 10#       发表于 2024-11-25 10:49
+
+挺好的，360那个3d很雷...
+
+顺便这个n7是有多支线的那个完全版么
+
+*****
+
+####  会长辅佐  
+##### 11#       发表于 2024-11-25 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66768640&amp;ptid=2208135" target="_blank">伊迪潘宫森 发表于 2024-11-25 10:47</a>
+总有人说想失忆玩一遍的游戏之一，实际上玩过后三五年基本就忘差不多了，不信你买了试试 ...</blockquote>
+e17那个谜底一知道感觉就很难玩下去了
+
+*****
+
+####  2082082012  
+##### 12#       发表于 2024-11-25 10:56
+
+有中文挺好的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.94-alpha
+
+*****
+
+####  GUNDAMmkII  
+##### 13#       发表于 2024-11-25 10:57
+
+E17这封面是要上X盒子版？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rrtyui  
+##### 14#       发表于 2024-11-25 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66768725&amp;ptid=2208135" target="_blank">会长辅佐 发表于 2024-11-25 10:54</a>
+e17那个谜底一知道感觉就很难玩下去了</blockquote>
+我还真忘光了，只记得核心诡计是XXX那些类型，how和why已经一丁点都记不起来了
+
+*****
+
+####  LRSzwei  
+##### 15#       发表于 2024-11-25 11:22
+
+不是牢底，mages是想分割R11去跟12R同捆再卖一份？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  空洞骑士  
+##### 16#       发表于 2024-11-25 11:22
+
+ 本帖最后由 空洞骑士 于 2024-11-25 11:27 编辑 
+
+有繁中那就全买了，虽然这钱应该也到不了打越和原开发组成员手里了。never7一直是有点感兴趣但是没动力打的状态，趁这次打了吧。
+
+*****
+
+####  王一唯不傲娇  
+##### 17#       发表于 2024-11-25 11:26
+
+你们记忆力不好吗？至少田中优美啥的我还是记得的
+
+*****
+
+####  库德里尔  
+##### 18#       发表于 2024-11-25 11:26
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  LRSzwei  
+##### 19#       发表于 2024-11-25 11:32
+
+ 本帖最后由 LRSzwei 于 2024-11-25 11:45 编辑 
+
+吃相还是太难看了，之前MO的历代回忆录定价可都没有这样<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+看了下N7的PV，特么直接ai超分完也不修整一下，搞得涂抹感巨严重，角色边缘的线条都断断续续看不清了，那还不如加个滤镜端上来嘞
+
+*****
+
+####  xunit  
+##### 20#       发表于 2024-11-25 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66769058&amp;ptid=2208135" target="_blank">库德里尔 发表于 2024-11-25 11:26</a>
+说360的追加剧情质量如何？我只打过pc版。
+
+—— 来自 鹅球 v3.3.93-alpha</blockquote>
+当初云了一下，个人感觉新加的剧情挺画蛇添足的
+
+*****
+
+####  圈量子  
+##### 21#       发表于 2024-11-25 11:45
+
+never7的psp版里多一个优夏cure，这次估计也是以这个为基准？
+（顺带问问有没有人手里有never7 psp的100%全开存档，这个系列的选项和对话随机性太强了<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">）
+
+*****
+
+####  Andariel  
+##### 22#       发表于 2024-11-25 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66769119&amp;ptid=2208135" target="_blank">LRSzwei 发表于 2024-11-25 11:32</a>
+
+吃相还是太难看了，之前MO的历代回忆录定价可都没有这样
+
+看了下N7的PV，特么直接ai超分完也不修整一下，搞 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">steam都上了肯定是等骨折了啊，mo大包我还在等更好价呢，反正这种单机也不急着玩
+
+管你原价多少
+
+*****
+
+####  LRSzwei  
+##### 23#       发表于 2024-11-25 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66769414&amp;ptid=2208135" target="_blank">Andariel 发表于 2024-11-25 11:58</a>
+
+steam都上了肯定是等骨折了啊，mo大包我还在等更好价呢，反正这种单机也不急着玩
+
+管你原价多少 ...</blockquote>
+steam史低再说吧，会再买一份的
+
+*****
+
+####  bill910  
+##### 24#       发表于 2024-11-25 12:11
+
+3D版？人物是3D的？
+
+*****
+
+####  hourousha  
+##### 25#       发表于 2024-11-25 12:18
+
+X360版的那个3D建模，大体是DC时代的水平，根本没法看。上面放图的明显是2D版啊
+
+*****
+
+####  ppa11  
+##### 26#       发表于 2024-11-25 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66769263&amp;ptid=2208135" target="_blank">圈量子 发表于 2024-11-25 11:45</a>
+never7的psp版里多一个优夏cure，这次估计也是以这个为基准？
+（顺带问问有没有人手里有never7 psp的100%全 ...</blockquote>
+优夏cure？是关联哪边的
+
+—— 來自 [鵝球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  胶布  
+##### 27#       发表于 2024-11-25 12:40
+
+买是肯定要买实体版补票的。不过应该不会再玩一遍了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  嘉术2015  
+##### 28#       发表于 2024-11-25 12:55
+
+r11拎出来是要出个带真结局的新版吗
+
+*****
+
+####  圈量子  
+##### 29#       发表于 2024-11-25 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66769743&amp;ptid=2208135" target="_blank">ppa11 发表于 2024-11-25 12:37</a>
+优夏cure？是关联哪边的
+
+—— 來自 鵝球 v3.2.91</blockquote>
+append story之一，用优夏视角讲一遍优夏线的情节。其他附加小故事写手乱七八糟，只有这个是中泽和打越亲自上的。（因为其实就是当年半成品时期出的infinity cure.里包括的优夏cure）但是放在never7里变成附加故事了所以没有语音。有选项和不同结局。
+
+*****
+
+####  没取名啊  
+##### 30#       发表于 2024-11-25 13:09
+
+e17的360版加了什么剧情？
+
+*****
+
+####  清浦刹那  
+##### 31#       发表于 2024-11-25 13:12
+
+卡带是只有日版？无中？
+
+*****
+
+####  lijiuli  
+##### 32#       发表于 2024-11-25 13:17
+
+r11无需重制，音乐上乘，人设上佳，配音到位，剧情完整
+
+*****
+
+####  罗克萨斯  
+##### 33#       发表于 2024-11-25 13:24
+
+这游戏，记得通关极限脱出999后被群友推荐过，说是同类型游戏的巅峰，不过愣是十多年过去没想起来去玩，既然出重置了就正好补一下了，看看有没有吹的那么好
+
+*****
+
+####  国家免检虎B  
+##### 34#       发表于 2024-11-25 13:25
+
+xbox版啊...这个还挺别扭的。
+虽然换成2d立绘至少把当初最大的缺点给改了，但其他剧情方面的改动很难说是改好了还是改烂了...
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  国家免检虎B  
+##### 35#       发表于 2024-11-25 13:30
+
+https://m.douban.com/game/review/9871084/
+给个xbox与原版的区别
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  alucardcz  
+##### 36#       发表于 2024-11-25 13:35
+
+这个大系列了 我唯独没有玩过Never7。。。这次该补一补了
+
+*****
+
+####  哎哟卧槽了  
+##### 37#       发表于 2024-11-25 14:17
+
+哈哈哈哈，可以给别人放毒了又<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  满月诗篇  
+##### 38#       发表于 2024-11-25 14:44
+
+好好好，白金奖杯再一套
+
+*****
+
+####  moshizhe  
+##### 39#       发表于 2024-11-25 14:45
+
+怎么没有r11
+
+*****
+
+####  ppa11  
+##### 40#       发表于 2024-11-25 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66769959&amp;ptid=2208135" target="_blank">圈量子 发表于 2024-11-25 13:08</a>
+append story之一，用优夏视角讲一遍优夏线的情节。其他附加小故事写手乱七八糟，只有这个是中泽和打越亲 ...</blockquote>
+哦哦，懂了
+
+—— 來自 [鵝球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+
+*****
+
+####  医生狼多  
+##### 41#       发表于 2024-11-25 15:05
+
+以360版为基础，结果复刻没xbox版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Rebirth_DAN  
+##### 42#       发表于 2024-11-25 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66768640&amp;ptid=2208135" target="_blank">伊迪潘宫森 发表于 2024-11-25 10:47</a>
+
+总有人说想失忆玩一遍的游戏之一，实际上玩过后三五年基本就忘差不多了，不信你买了试试 ...</blockquote>
+就打越那难以下咽的无聊日常别人想不想失忆不知道 我自己当时玩着就已经失忆了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

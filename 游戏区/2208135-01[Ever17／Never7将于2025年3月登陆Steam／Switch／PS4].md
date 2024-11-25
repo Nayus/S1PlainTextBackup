@@ -499,3 +499,30 @@ r11拎出来是要出个带真结局的新版吗</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">冒个泡
 
+
+*****
+
+####  kerorara  
+##### 56#       发表于 2024-11-25 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66771012&amp;ptid=2208135" target="_blank">lenin 发表于 2024-11-25 15:34</a>
+剧情啥时候完整的？</blockquote>
+是没有在游戏里给一个标答
+但是出版物里我印象该有的都有了
+
+然后[remember11.com](https://bbs.saraba1st.com/2b/remember11.com)里基本上都整理好了吧。严重剧透，谨慎浏览。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.93-alpha
+
+*****
+
+####  defer  
+##### 57#       发表于 2024-11-25 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66769966&amp;ptid=2208135" target="_blank">没取名啊 发表于 2024-11-25 13:09</a>
+
+e17的360版加了什么剧情？</blockquote>
+[https://www.douban.com/review/9871084/](https://www.douban.com/review/9871084/)
+
+透光了，打算玩新版的或者没玩过老版的不要点
+

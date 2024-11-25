@@ -20,3 +20,14 @@
 
 DLC能是啥？明治米国物语？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  手铐君  
+##### 3265#       发表于 2024-11-26 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66774834&amp;ptid=2092342" target="_blank">诚司 发表于 2024-11-26 00:05</a>
+
+DLC能是啥？明治米国物语？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看帖子上来我以为有dlc消息了呢，不过这么久都没有消息，可能无了
+

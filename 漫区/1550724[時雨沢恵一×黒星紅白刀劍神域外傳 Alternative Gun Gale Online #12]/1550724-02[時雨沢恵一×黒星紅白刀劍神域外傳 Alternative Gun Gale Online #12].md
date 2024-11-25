@@ -223,3 +223,13 @@ pito和M关系还挺微妙的，我怀疑到结局都不会有个结论
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">走天：差不多得了
 
+
+*****
+
+####  一个陆仁贾  
+##### 1983#       发表于 2024-11-26 00:37
+
+这部在b站上的时候居然有人问这跟拿刀剑的sao有什么关系，干嘛要蹭sao的名字，给我看笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你sao已经是历史老动画了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

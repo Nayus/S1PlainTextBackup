@@ -952,3 +952,24 @@ in n out 卖点是什么？吃过一次感觉就是面包煎过的麦当劳，�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
 
+
+*****
+
+####  alva8246  
+##### 98#       发表于 2024-11-25 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66771534&amp;ptid=2208012" target="_blank">建丰同志 发表于 2024-11-25 16:30</a>
+1、SS的汉堡比五基佬的好吃多了，目前试下来是魔都连锁汉堡品牌的NO.1（仅指味道不谈价格）
+
+2、薯条蘸酱最 ...</blockquote>
+第二条同意
+点棒约翰然后留着沾薯条挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alialex  
+##### 99#       发表于 2024-11-25 17:03
+
+就我好奇之前推荐的是哪个帖子吗，还有没有其他推荐的看看
+

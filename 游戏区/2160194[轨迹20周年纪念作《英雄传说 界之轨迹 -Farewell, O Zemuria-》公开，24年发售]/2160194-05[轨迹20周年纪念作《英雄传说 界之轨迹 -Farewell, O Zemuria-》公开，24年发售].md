@@ -2415,3 +2415,13 @@ ts大学生也可以算啊</blockquote>
 
 换句话说，在轨迹已经神神叨叨越拖越长的情况下，法老控有没有再把正常人类作为‘次要角色垫脚石’外描写出彩的能力，值得怀疑。
 
+
+*****
+
+####  苏斯赫查  
+##### 7021#       发表于 2024-11-25 16:09
+
+总统的计划又没问题，雷盖伦之箱能把自己也重启谁能想到<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+

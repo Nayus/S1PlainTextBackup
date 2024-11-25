@@ -873,3 +873,11 @@ Shakeshack 感觉比御三家强得有限，不过比 Five Guys 强点
 汉堡王品控问题很大，差的都不如路边摊，比如那个霸王鸡条，刚炸出来的外酥里嫩鲜嫩多汁，但是一旦不是现做 ...</blockquote>
 BK 好久没吃了。以前的印象就是牛肉制品都不错，但鸡肉制品不好吃而且品控问题很大
 
+
+*****
+
+####  BN桑  
+##### 90#       发表于 2024-11-25 16:08
+
+评价是不如蓝蛙<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+

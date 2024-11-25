@@ -940,3 +940,15 @@ all the way+花生酱奶昔可以把ss打得渣都不剩<img src="https://static
 shake shack就是一坨，和北美唯一看齐的就是那破饮料纸杯，汉堡口味和m和牛堡完全拉不开差距薯条也拉闸。回 ...</blockquote>
 in n out 卖点是什么？吃过一次感觉就是面包煎过的麦当劳，店里人还特别多
 
+
+*****
+
+####  Maestro  
+##### 97#       发表于 2024-11-25 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66771564&amp;ptid=2208012" target="_blank">促进派 发表于 2024-11-25 16:34</a>
+in n out 卖点是什么？吃过一次感觉就是面包煎过的麦当劳，店里人还特别多 ...</blockquote>
+都是现做，涨价了仍然不到6刀的doubledouble性价比真的秒杀ss<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+

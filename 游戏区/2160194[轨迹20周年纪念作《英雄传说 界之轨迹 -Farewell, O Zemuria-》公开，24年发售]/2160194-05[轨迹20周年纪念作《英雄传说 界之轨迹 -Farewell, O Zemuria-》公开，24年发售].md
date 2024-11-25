@@ -2473,3 +2473,15 @@ ts大学生也可以算啊</blockquote>
 所谓例子都是剧情需要而已，量级论来看，之前能打死的boss，一千倍氢弹凭什么打不死？
 再说boss体量，以前的boss多大，时至宝边长500多米，怎么打？未来要解决也不会是打这个盒子
 
+
+*****
+
+####  妄想中毒  
+##### 7027#       发表于 2024-11-25 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66768140&amp;ptid=2160194" target="_blank">woeiqp00 发表于 2024-11-25 09:54</a>
+一百小时全对话除了钓鱼全支线终于通了，最累的一部轨迹，没研究过配装没有鲸鱼逃课。
+
+好在最后是挺大的， ...</blockquote>
+问就游戏性需要，虽然不打也完全对剧情没影响，但是你能接受界的最终boss是前面打的那几个老面孔吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

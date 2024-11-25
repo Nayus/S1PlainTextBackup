@@ -458,3 +458,26 @@ r11拎出来是要出个带真结局的新版吗</blockquote>
 
 结果还是再一次被某些桥段感动住了
 
+
+*****
+
+####  螺旋时钟  
+##### 52#       发表于 2024-11-25 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66768640&amp;ptid=2208135" target="_blank">伊迪潘宫森 发表于 2024-11-25 10:47</a>
+
+总有人说想失忆玩一遍的游戏之一，实际上玩过后三五年基本就忘差不多了，不信你买了试试 ...</blockquote>
+但那个核心诡计忘不掉啊
+
+而且目前来看一辈子都忘不掉，甚至忘不掉当年玩到那时全身的汗和发癫的脑子
+
+*****
+
+####  focus  
+##### 53#       发表于 2024-11-25 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66771012&amp;ptid=2208135" target="_blank">lenin 发表于 2024-11-25 15:34</a>
+
+剧情啥时候完整的？</blockquote>
+有官方年表基本就完整了吧，只是没有一板一眼的标准答案
+

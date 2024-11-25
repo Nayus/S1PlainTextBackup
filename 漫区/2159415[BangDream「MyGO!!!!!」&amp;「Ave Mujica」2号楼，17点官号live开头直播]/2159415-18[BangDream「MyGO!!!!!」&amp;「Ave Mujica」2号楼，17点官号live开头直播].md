@@ -13344,3 +13344,18 @@ MyGO!!!!!动画时间线考据
 海外要买的早买了，也没几个只看鸡团的。最速先行的时候都是A席两日通票保底 ...</blockquote>
 我二日连抽没A席啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yifan8848  
+##### 26252#       发表于 2024-11-26 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66772059&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-11-25 17:27</a>
+
+竟然比4th晚，是真不指望海外爆live米啊</blockquote>
+台灣代理這塊挺複雜的， 遊戲、動畫、周邊都分開的
+
+之前RAS來開live還不讓賣谷
+
+今年換代理之後不知道會不會好點ˋ
+

@@ -2493,3 +2493,15 @@ ts大学生也可以算啊</blockquote>
 
 就是不知道这次回溯是多久以前，三天前界轨开场？那这周目不也是一场空嘛，别告诉我直接跳到黎一黎二了，感觉界二开场的时间点也挺微妙的
 
+
+*****
+
+####  woeiqp00  
+##### 7029#       发表于 2024-11-25 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66772341&amp;ptid=2160194" target="_blank">妄想中毒 发表于 2024-11-25 18:01</a>
+问就游戏性需要，虽然不打也完全对剧情没影响，但是你能接受界的最终boss是前面打的那几个老面孔吗 ...</blockquote>
+让我多开会高达打到退场，后面全cg放剧情就好了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

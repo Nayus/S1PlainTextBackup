@@ -23,3 +23,14 @@
 进二章主城里 ...</blockquote>
 后边某个时点可以回前边所有地图的
 
+
+*****
+
+####  灼眼艾莉亚  
+##### 4092#       发表于 2024-11-25 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66774366&amp;ptid=2098044" target="_blank">asdfg 发表于 2024-11-25 22:50</a>
+
+后边某个时点可以回前边所有地图的</blockquote>
+第二章的天平传送之后还有新的？ 就是这个回到了第一章的村子但是没有商店只有废墟
+

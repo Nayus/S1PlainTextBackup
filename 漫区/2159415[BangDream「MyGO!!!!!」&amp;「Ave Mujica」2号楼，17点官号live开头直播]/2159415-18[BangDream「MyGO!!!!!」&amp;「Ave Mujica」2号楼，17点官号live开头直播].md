@@ -13299,3 +13299,11 @@ mujica从六月初开始筹备，七月末就开live，说筹备时间短也不�
 
 竟然比4th晚，是真不指望海外爆live米啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 26247#       发表于 2024-11-25 18:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无所谓，反正我两天现地爽看萝鸡
+

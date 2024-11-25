@@ -829,3 +829,17 @@ boss rush不能用白血泵复活，容错相对低。
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
 
+
+*****
+
+####  忘却旋律  
+##### 1865#       发表于 2024-11-25 09:56
+
+ 本帖最后由 忘却旋律 于 2024-11-25 09:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66766957&amp;ptid=1978008" target="_blank">lpzhg 发表于 2024-11-25 01:22</a>
+
+今天把二周目捡起来打到了废土，新衣服真是太棒啦</blockquote>
+这套衣服是不是自带丰胸啊 我印象里 伊芙胸虽然不小 ，但是也没那么大吧<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+话说 剑星通关后 就没怎么打了之后几次更新 不是说有 把之前和谐前的衣服加回来了嘛 存档实在二周目开头没多久，那些加回来的衣服哪里搞 又要重新跑图收集嘛
+

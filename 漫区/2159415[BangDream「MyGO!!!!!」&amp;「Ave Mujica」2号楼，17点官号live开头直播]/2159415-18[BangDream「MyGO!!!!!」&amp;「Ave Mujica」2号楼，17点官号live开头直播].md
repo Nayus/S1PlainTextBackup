@@ -13116,3 +13116,11 @@ Crychic解散 - 不晚于6月上旬
 
 —— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  六道明  
+##### 26231#       发表于 2024-11-25 09:50
+
+所以说祥子组两个乐队分别只用一个多月，还要兼顾作曲、排练，祥P你好强<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

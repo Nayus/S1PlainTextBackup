@@ -63,3 +63,20 @@
 
 上周这话还行但系列传统的演剧回的神回比例很高的，这话算拉后腿的
 
+
+*****
+
+####  猫屋敷ゆき  
+##### 2620#       发表于 2024-11-25 14:44
+
+坏了我怎么成表情包役了
+
+这样不对<img src="https://static.saraba1st.com/image/smiley/animal2017/011.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猫屋敷ゆき  
+##### 2621#       发表于 2024-11-25 14:45
+
+但是下周又能穿上茉优给我织的围巾了好开心<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+

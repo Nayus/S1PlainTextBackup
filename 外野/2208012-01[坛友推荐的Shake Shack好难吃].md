@@ -534,3 +534,21 @@ ss能给什么，价格高过一个度大家的预期都是非理性的，再加
 纽约店这么多和小资也没什么关系。哪个洋快餐咖啡开到上海都要闹一阵人来疯，什么Wendy‘s、Chipotle、Ch ...</blockquote>
 shake shack我之前看的up主的说法是在美国也算偏贵的。健康有机概念割韭菜。
 
+
+*****
+
+####  Viteeee  
+##### 59#       发表于 2024-11-25 09:00
+
+因为shake shack在美国没那么贵，只比麦当劳贵一点点。放到国内来直接汇率换算不说，甚至还涨价了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+查了一下，我在美国那会才4块多钱，现在已经7块了……
+
+<img src="https://img.saraba1st.com/forum/202411/25/085757sy4868gk2wsgd4zh.jpg" referrerpolicy="no-referrer">
+
+<strong>7f0705b3-bc94-4172-9e5c-313315e60a09.jpg</strong> (153.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-25 08:57 上传
+

@@ -13124,3 +13124,23 @@ Crychic解散 - 不晚于6月上旬
 
 所以说祥子组两个乐队分别只用一个多月，还要兼顾作曲、排练，祥P你好强<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 26232#       发表于 2024-11-25 10:00
+
+按照海铃加入最晚7月初，c可能就两三周来看
+是不是有现阶段海祥见面已经多于希祥的可能性<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+ccc这短命喝茶乐队上这么大滤镜，我真怀疑明年睦祥视角要给正面干碎了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Milarvoz  
+##### 26233#       发表于 2024-11-25 10:03
+
+让人不禁感叹这就是白月光的魅力啊。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

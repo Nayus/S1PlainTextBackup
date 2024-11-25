@@ -843,3 +843,31 @@ boss rush不能用白血泵复活，容错相对低。
 
 话说 剑星通关后 就没怎么打了之后几次更新 不是说有 把之前和谐前的衣服加回来了嘛 存档实在二周目开头没多久，那些加回来的衣服哪里搞 又要重新跑图收集嘛
 
+
+*****
+
+####  宛若青空  
+##### 1866#       发表于 2024-11-25 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66768163&amp;ptid=1978008" target="_blank">忘却旋律 发表于 2024-11-25 09:56</a>
+
+这套衣服是不是自带丰胸啊 我印象里 伊芙胸虽然不小 ，但是也没那么大吧
+
+话说 剑星通关后 就没怎么打了之 ...</blockquote>
+这次更新的服装和尼尔联动DLC的服装换了体模了，所以<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+之前更新加的未和谐版的两件同款新服装记得是在主城里那个商人商店里买
+
+
+*****
+
+####  忘却旋律  
+##### 1867#       发表于 2024-11-25 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66768190&amp;ptid=1978008" target="_blank">宛若青空 发表于 2024-11-25 10:00</a>
+
+这次更新的服装和尼尔联动DLC的服装换了体模了，所以
+
+之前更新加的未和谐版的两件同款新服装记得是在主 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那怪不得 我寻思我一周目  貌似有几套衣服 切换的时候也就屁股大小有时会有较明显的区别可能是衣服是否带提臀的效果导致，但是胸部大小一致挺稳定得。
+

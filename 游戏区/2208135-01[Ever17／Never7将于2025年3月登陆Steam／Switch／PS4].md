@@ -636,3 +636,14 @@ Psp汉化打到99%内容
 
 可以加库存了
 
+
+*****
+
+####  lijiuli  
+##### 68#       发表于 2024-11-25 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66771012&amp;ptid=2208135" target="_blank">lenin 发表于 2024-11-25 15:34</a>
+
+剧情啥时候完整的？</blockquote>
+在看到tips110的那一刻
+

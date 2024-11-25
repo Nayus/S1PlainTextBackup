@@ -932,3 +932,11 @@ boss rush不能用白血泵复活，容错相对低。
 
 快上pc<img src="https://static.saraba1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  系色可符香  
+##### 1874#       发表于 2024-11-26 06:57
+
+艹死棒子啊，罐子找齐了才发现有BUG，百合没出饮料柜的剧情，拿不到衣服了怎么办
+

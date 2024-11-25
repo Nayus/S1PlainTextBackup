@@ -578,3 +578,22 @@ shake shack我之前看的up主的说法是在美国也算偏贵的。健康有�
 查了一 ...</blockquote>
 mall的话比你图这里还要加3刀左右<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  osborn  
+##### 62#       发表于 2024-11-25 09:33
+
+我也中了潭友安利去吃了，打折之后的价还行吧，松露汉堡也还可以，但薯条是真不行。包括汉堡在内都是齁齁咸，薯条尤其的咸，受不了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  necro  
+##### 63#       发表于 2024-11-25 09:35
+
+刨去价格不谈，国内shake shack味道就是有问题
+
+因为太网红所以汉堡都不是完全现做，而是先提前做完某些步骤，导致口感下降，不新鲜
+
+能明显尝出区别来，就像是汉堡在外卖架上放了半小时才吃的感觉
+

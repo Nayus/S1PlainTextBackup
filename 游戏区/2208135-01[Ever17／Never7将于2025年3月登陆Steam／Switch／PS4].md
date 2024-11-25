@@ -557,3 +557,30 @@ e17的360版加了什么剧情？</blockquote>
 
 这么看e17改得还挺多的<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Uqing  
+##### 61#       发表于 2024-11-25 21:24
+
+ 本帖最后由 Uqing 于 2024-11-25 21:26 编辑 
+
+反正我确实是忘不掉那个“当你打算洗衣服忽然想起来忘记往里倒洗衣粉时belike”的cg了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+当时打的时候还停电了，大半夜只有电脑的光亮着，屋里屋外都是黑的，推得我心里好难受
+
+
+*****
+
+####  清浦刹那  
+##### 62#       发表于 2024-11-25 21:31
+
+12月交响乐之雨
+
+1月传颂之物三部曲
+
+3月E17 
+
+25年心跳回忆  ToHeart
+
+为啥末期主机扎堆上glagame，是gal最多的一代吗。
+

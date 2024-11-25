@@ -11,3 +11,15 @@
 
 —— 来自 nubia NX712J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  xlent  
+##### 1696#       发表于 2024-11-25 10:39
+
+bossrush可以喝药啊，我带的基本都是回能元的
+
+人马的话，远古森林顺脚印，将军说过，还有一个npc会明确说
+
+也儿夕一直这样，也可以卷速通
+

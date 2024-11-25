@@ -2485,3 +2485,11 @@ ts大学生也可以算啊</blockquote>
 好在最后是挺大的， ...</blockquote>
 问就游戏性需要，虽然不打也完全对剧情没影响，但是你能接受界的最终boss是前面打的那几个老面孔吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  flyreder  
+##### 7028#       发表于 2024-11-25 18:39
+
+就是不知道这次回溯是多久以前，三天前界轨开场？那这周目不也是一场空嘛，别告诉我直接跳到黎一黎二了，感觉界二开场的时间点也挺微妙的
+

@@ -414,3 +414,26 @@ r11无需重制，音乐上乘，人设上佳，配音到位，剧情完整</blo
 
 —— 来自 Google Pixel 6 Pro, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  alucardcz  
+##### 48#       发表于 2024-11-25 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66769878&amp;ptid=2208135" target="_blank">嘉术2015 发表于 2024-11-25 12:55</a>
+
+r11拎出来是要出个带真结局的新版吗</blockquote>
+不可能 绝对不可能
+
+真必须2作一起发售 到时候和12r一桌<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 49#       发表于 2024-11-25 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66768640&amp;ptid=2208135" target="_blank">伊迪潘宫森 发表于 2024-11-25 10:47</a>
+
+总有人说想失忆玩一遍的游戏之一，实际上玩过后三五年基本就忘差不多了，不信你买了试试 ...</blockquote>
+你能忘细节 难道还能把关键诡计忘了吗。。。
+

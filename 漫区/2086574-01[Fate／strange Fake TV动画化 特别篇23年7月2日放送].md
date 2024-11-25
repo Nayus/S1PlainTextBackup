@@ -3654,3 +3654,14 @@ B站的自动翻译能勉强看个七八成，没想到第一次使用自动翻�
 
 这都多久了怎么还做得像半成品一样
 
+
+*****
+
+####  ナルバレック  
+##### 372#       发表于 2024-11-25 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66766620&amp;ptid=2086574" target="_blank">七七見奈波 发表于 2024-11-25 00:09</a>
+
+这都多久了怎么还做得像半成品一样</blockquote>
+这集质量不错吧
+

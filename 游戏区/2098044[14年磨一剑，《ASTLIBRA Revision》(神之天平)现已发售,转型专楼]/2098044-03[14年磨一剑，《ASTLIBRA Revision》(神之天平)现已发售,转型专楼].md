@@ -34,3 +34,14 @@
 后边某个时点可以回前边所有地图的</blockquote>
 第二章的天平传送之后还有新的？ 就是这个回到了第一章的村子但是没有商店只有废墟
 
+
+*****
+
+####  tansapple  
+##### 4093#       发表于 2024-11-26 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66774448&amp;ptid=2098044" target="_blank">灼眼艾莉亚 发表于 2024-11-25 23:05</a>
+
+第二章的天平传送之后还有新的？ 就是这个回到了第一章的村子但是没有商店只有废墟 ...</blockquote>
+序章鬼村里卖的内容在城镇里都可以买到吧。
+

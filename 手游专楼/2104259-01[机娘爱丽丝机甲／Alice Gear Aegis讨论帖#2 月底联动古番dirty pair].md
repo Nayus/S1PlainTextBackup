@@ -95,3 +95,11 @@ asmr还真藏了个志摩凛，要联动了
 
 bingo活动做完可以自选一个普池四星，我缺的四星主播终于要来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 1273#       发表于 2024-11-25 15:49
+
+16号跟24号要求不是装备的强化与进化么
+

@@ -404,3 +404,13 @@ r11无需重制，音乐上乘，人设上佳，配音到位，剧情完整</blo
 
 —— 来自 Google Pixel 6 Pro, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  那我也没办法  
+##### 47#       发表于 2024-11-25 15:46
+
+之前never7没打完，有理由重新拾起来了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Google Pixel 6 Pro, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

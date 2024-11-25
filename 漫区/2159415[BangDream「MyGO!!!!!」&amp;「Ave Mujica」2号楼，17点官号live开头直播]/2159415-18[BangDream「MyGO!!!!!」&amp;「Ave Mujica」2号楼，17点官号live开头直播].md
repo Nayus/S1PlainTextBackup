@@ -13283,3 +13283,19 @@ mujica从六月初开始筹备，七月末就开live，说筹备时间短也不�
 
 2024-11-25 17:09 上传
 
+
+*****
+
+####  桜庭千景  
+##### 26245#       发表于 2024-11-25 17:18
+
+半个月前我就说港台迟迟不出消息怕是要晚于武藏野了。不幸言中<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 26246#       发表于 2024-11-25 17:27
+
+竟然比4th晚，是真不指望海外爆live米啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

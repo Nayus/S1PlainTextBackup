@@ -647,3 +647,21 @@ Psp汉化打到99%内容
 剧情啥时候完整的？</blockquote>
 在看到tips110的那一刻
 
+
+*****
+
+####  silversor  
+##### 69#       发表于 2024-11-25 23:22
+
+这两作和前面提到的11 12有先后游玩顺序吗
+
+*****
+
+####  moeful  
+##### 70#       发表于 2024-11-25 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66770017&amp;ptid=2208135" target="_blank">lijiuli 发表于 2024-11-25 13:17</a>
+
+r11无需重制，音乐上乘，人设上佳，配音到位，剧情完整</blockquote>
+剧情完整喷了
+

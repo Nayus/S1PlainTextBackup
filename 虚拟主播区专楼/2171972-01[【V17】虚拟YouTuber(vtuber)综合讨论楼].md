@@ -119,3 +119,20 @@ moka原来已经请了豪鬼老师，希望是shuto（</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不是成了葛叶的师妹了，那下次师弟杯派谁去
 
+
+*****
+
+####  qesto  
+##### 890#       发表于 2024-11-25 13:39
+
+还原度还挺高 
+
+GdEl2y6agAAwBf6.jpg
+(184.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-25 13:39 上传
+
+<img src="https://img.saraba1st.com/forum/202411/25/133945eurgz7q7g744u4w1.jpg" referrerpolicy="no-referrer">
+

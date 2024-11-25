@@ -3052,3 +3052,16 @@ You tube连播的时候感受得到心跳1.2的音乐是真多啊，好几张专
 那个两人合作画了快30年同人本，最后直接结婚的二人组HIGH RISK REVOLUTION https://x.com/aizawahiroshi， ...</blockquote>
 诗织**那本？30年<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">什么深仇大恨
 
+
+*****
+
+####  穿越护城河  
+##### 245#       发表于 2024-11-25 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66770777&amp;ptid=2130715" target="_blank">克拉苏 发表于 2024-11-25 15:05</a>
+
+诗织**那本？30年什么深仇大恨</blockquote>
+异常感情呗
+
+岩崎是日本最早一批评测老心跳还给与极高评价的玩家，后来后悔的事情是评分只给了95分
+

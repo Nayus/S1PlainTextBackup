@@ -920,3 +920,23 @@ all the way+花生酱奶昔可以把ss打得渣都不剩<img src="https://static
 汉堡王有什么特别得优惠方法吗？在小程序上点皇堡套餐都要四十好几接近50了。 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">闲鱼代下单啊，大概比小程序点便宜一半吧
 
+
+*****
+
+####  建丰同志  
+##### 95#       发表于 2024-11-25 16:30
+
+1、SS的汉堡比五基佬的好吃多了，目前试下来是魔都连锁汉堡品牌的NO.1（仅指味道不谈价格）
+
+2、薯条蘸酱最棒的是棒约翰的蒜香酱（买披萨给的那个），超好吃
+
+*****
+
+####  促进派  
+##### 96#       发表于 2024-11-25 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66770638&amp;ptid=2208012" target="_blank">茶几上的便当 发表于 2024-11-25 14:46</a>
+
+shake shack就是一坨，和北美唯一看齐的就是那破饮料纸杯，汉堡口味和m和牛堡完全拉不开差距薯条也拉闸。回 ...</blockquote>
+in n out 卖点是什么？吃过一次感觉就是面包煎过的麦当劳，店里人还特别多
+

@@ -182,3 +182,12 @@ pito和M关系还挺微妙的，我怀疑到结局都不会有个结论
 
 最后说神崎エルザ曲风变了，现实里感觉ReoNa也是，GG现场版挺嗨的，新的这首toxic也不错
 
+
+*****
+
+####  最终兵器狂战  
+##### 1980#       发表于 2024-11-25 16:34
+
+颠婆打架真热闹。<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+不过这集搞得跟大结局了一样。。。
+

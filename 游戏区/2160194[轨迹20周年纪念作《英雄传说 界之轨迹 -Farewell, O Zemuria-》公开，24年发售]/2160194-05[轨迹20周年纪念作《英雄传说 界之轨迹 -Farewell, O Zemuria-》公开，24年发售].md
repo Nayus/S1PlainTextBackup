@@ -2505,3 +2505,11 @@ ts大学生也可以算啊</blockquote>
 
 —— 来自 Xiaomi 23127PN0CC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  sephal  
+##### 7030#       发表于 2024-11-26 01:26
+
+终于通了，之前一直不理解为啥给梵弄个魔王宿体的设定，到结尾终于明白了，魔王加八创世应该就是界2解题的答案
+

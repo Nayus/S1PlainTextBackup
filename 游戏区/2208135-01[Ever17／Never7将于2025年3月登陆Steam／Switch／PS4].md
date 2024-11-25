@@ -584,3 +584,17 @@ e17的360版加了什么剧情？</blockquote>
 
 为啥末期主机扎堆上glagame，是gal最多的一代吗。
 
+
+*****
+
+####  圈量子  
+##### 63#       发表于 2024-11-25 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66773759&amp;ptid=2208135" target="_blank">清浦刹那 发表于 2024-11-25 21:31</a>
+12月交响乐之雨
+
+1月传颂之物三部曲
+
+3月E17 </blockquote>
+移植文字游戏又没什么技术挑战，哪怕小众也能简单回本，一本万利，正好趁着主机末期持有量高多出几个。乙女游戏那边也移植了好几个没上过psv的psp时代老东西。
+

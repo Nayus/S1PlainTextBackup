@@ -13333,3 +13333,14 @@ MyGO!!!!!动画时间线考据
 
 [https://www.bilibili.com/read/cv39910363/](https://www.bilibili.com/read/cv39910363/)
 
+
+*****
+
+####  asda  
+##### 26251#       发表于 2024-11-25 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66773096&amp;ptid=2159415" target="_blank">纯田まな 发表于 2024-11-25 19:56</a>
+
+海外要买的早买了，也没几个只看鸡团的。最速先行的时候都是A席两日通票保底 ...</blockquote>
+我二日连抽没A席啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

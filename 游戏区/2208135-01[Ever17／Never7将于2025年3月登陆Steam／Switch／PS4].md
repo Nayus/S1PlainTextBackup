@@ -598,3 +598,33 @@ e17的360版加了什么剧情？</blockquote>
 3月E17 </blockquote>
 移植文字游戏又没什么技术挑战，哪怕小众也能简单回本，一本万利，正好趁着主机末期持有量高多出几个。乙女游戏那边也移植了好几个没上过psv的psp时代老东西。
 
+
+*****
+
+####  760194962  
+##### 64#       发表于 2024-11-25 21:53
+
+<blockquote>defer 发表于 2024-11-25 19:50
+https://www.douban.com/review/9871084/
+
+透光了，打算玩新版的或者没玩过老版的不要点 ...</blockquote>
+笑了，我点进去完全不知道他在说什么
+
+Psp汉化打到99%内容
+
+*****
+
+####  这次是十块钱  
+##### 65#       发表于 2024-11-25 21:53
+
+2025 年3月，新switch吧<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  yanjunle  
+##### 66#       发表于 2024-11-25 21:55
+
+和方块上那版区别大吗？
+

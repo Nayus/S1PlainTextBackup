@@ -103,3 +103,17 @@ bingo活动做完可以自选一个普池四星，我缺的四星主播终于要
 
 16号跟24号要求不是装备的强化与进化么
 
+
+*****
+
+####  alialex  
+##### 1274#       发表于 2024-11-25 16:37
+
+<img src="https://img.saraba1st.com/forum/202411/25/163724ivro692lq96a7j0v.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20241125154446.png</strong> (52.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-25 16:37 上传
+

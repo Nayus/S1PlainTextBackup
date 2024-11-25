@@ -10675,3 +10675,15 @@ call和mix是两条线，call七十年代就开始玩了，mix是新世纪早安
 
 只能说是花田的摇滚之魂了
 
+
+*****
+
+####  ads147147  
+##### 1043#       发表于 2024-11-25 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66769448&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-11-25 12:01</a>
+只能说是花田的摇滚之魂了</blockquote>
+其实后面发现midi作曲的是冬毬，合并作曲也是冬毬和芽衣，所以说这个场景让冬毬掏demo其实很合理，但是你花偏不，非要让薇恩叛逆一下。。。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

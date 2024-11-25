@@ -673,3 +673,44 @@ kfc用劵20块钱2个的原味鸡汉堡薄纱，再去超市买瓶可乐就够�
 
 上海的话，粉红汉堡好吃点但只有外卖店还贵
 
+
+*****
+
+####  Cypher_96  
+##### 70#       发表于 2024-11-25 12:04
+
+吃过一次，其他菜品没有留下太深刻的印象，只记得奶昔齁甜巨难喝
+
+—— 来自 Xiaomi 23127PN0CC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  ghost97  
+##### 71#       发表于 2024-11-25 12:06
+
+five guys要好很多
+
+—— 来自 samsung SM-S9210, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  芜湖挨宰  
+##### 72#       发表于 2024-11-25 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66769376&amp;ptid=2208012" target="_blank">qyc96 发表于 2024-11-25 11:56</a>
+上海的话，粉红汉堡好吃点但只有外卖店还贵</blockquote>
+请问粉红汉堡店名是什么？
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 73#       发表于 2024-11-25 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66765213&amp;ptid=2208012" target="_blank">flyfish 发表于 2024-11-24 19:41</a>
+Shake shack完全不如five guys，都被哈比特吊打
+
+—— 来自 S1Fun</blockquote>
+已经 再也没有哈比特了。。。
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

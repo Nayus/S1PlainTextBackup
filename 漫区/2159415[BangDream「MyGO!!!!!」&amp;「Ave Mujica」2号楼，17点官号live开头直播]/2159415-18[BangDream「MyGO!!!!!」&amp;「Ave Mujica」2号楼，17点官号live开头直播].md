@@ -13222,3 +13222,17 @@ mujica从六月初开始筹备，七月末就开live，说筹备时间短也不�
 
 そんな羽丘ではバンドが流行していることが分かり、急いでバンドメンバーを探すことに。</blockquote>
 
+
+*****
+
+####  仓鼠胖太  
+##### 26241#       发表于 2024-11-25 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66768186&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-11-25 10:00</a>
+按照海铃加入最晚7月初，c可能就两三周来看
+是不是有现阶段海祥见面已经多于希祥的可能性</blockquote>
+笑昏，真有可能，你想俩滤镜异常厚的一个灯一个素世，都是c团刚刚好治愈她们情感缺失，所以有点印随效应的。
+睦祥俩又不一定有这个问题，可能和立希类似就是普普通通课后乐队的感觉，滤镜直接干碎，真来这出整个扭曲度不得再度拔高啊
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

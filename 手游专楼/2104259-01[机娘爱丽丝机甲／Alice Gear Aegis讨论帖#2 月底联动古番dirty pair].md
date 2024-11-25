@@ -135,3 +135,25 @@ bingo活动做完可以自选一个普池四星，我缺的四星主播终于要
 
 话说输杂志兑换码的时候突然发现中间漏了个fy03的 除了36-37期和+的1到5期还有哪有一个码嘛
 
+
+*****
+
+####  冰风血羽  
+##### 1277#       发表于 2024-11-25 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66772445&amp;ptid=2104259" target="_blank">wilkyway 发表于 2024-11-25 18:17</a>
+话说输杂志兑换码的时候突然发现中间漏了个fy03的 除了36-37期和+的1到5期还有哪有一个码嘛 ...</blockquote>
+票票商店里有那个兑换箱子，笔尖耳环扳手杂志火球啥的那个，你看看你缺哪个然后去找码就行，不要用票换
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+*****
+
+####  冰风血羽  
+##### 1278#       发表于 2024-11-25 20:23
+
+FY08 GPA5 YL7P XJ3U
+本次杂志码
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

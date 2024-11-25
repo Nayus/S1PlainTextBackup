@@ -10,3 +10,16 @@
 
 有办法回到古代村吗，应该是只有古代村武器商店能卖了，但是传过去是废墟....
 
+
+*****
+
+####  asdfg  
+##### 4091#       发表于 2024-11-25 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66774242&amp;ptid=2098044" target="_blank">灼眼艾莉亚 发表于 2024-11-25 09:32</a>
+
+第一章的传奇饰品，打完第一章才补的设计图，买不了啊。搜了下很久以前steam上就有人反馈。
+
+进二章主城里 ...</blockquote>
+后边某个时点可以回前边所有地图的
+

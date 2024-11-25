@@ -23,3 +23,11 @@ bossrush可以喝药啊，我带的基本都是回能元的
 
 也儿夕一直这样，也可以卷速通
 
+
+*****
+
+####  otakun  
+##### 1697#       发表于 2024-11-25 11:13
+
+通关了一个月了，一直有觉得这次塞尔达传说差了些什么，现在想到是差了一种“意难平”的感觉。通关后没有以前玩通时之笛和梦见岛那种恍惚感了，故事结局太完美了<img src="https://static.saraba1st.com/image/smiley/animal2017/017.png" referrerpolicy="no-referrer">（当一回遗老
+

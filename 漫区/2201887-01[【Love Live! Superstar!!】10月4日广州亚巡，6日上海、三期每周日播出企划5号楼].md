@@ -10647,3 +10647,23 @@ call和mix是两条线，call七十年代就开始玩了，mix是新世纪早安
 
 接下来四话要完成团建、连冠、三年生毕业交接，还是好紧张呀
 
+
+*****
+
+####  ads147147  
+##### 1040#       发表于 2024-11-25 11:44
+
+连冠毕业挪到剧场版也不奇怪吧，不过你拉现在票房能力。。。或许是短篇ova。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  ads147147  
+##### 1041#       发表于 2024-11-25 11:51
+
+其实吧，之前一直唱古典，solo也是偏古典，目标为维也纳的古典音乐学院的薇恩，比赛曲写了rock，多少带点ooc。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

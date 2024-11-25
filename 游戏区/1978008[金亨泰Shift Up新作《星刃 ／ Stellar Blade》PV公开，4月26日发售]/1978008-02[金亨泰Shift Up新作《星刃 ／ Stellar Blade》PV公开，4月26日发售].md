@@ -879,3 +879,14 @@ boss rush不能用白血泵复活，容错相对低。
 
 话说这游戏有没有刷钱刷资源的地方？ 想赶紧买衣服
 
+
+*****
+
+####  saberserker  
+##### 1869#       发表于 2024-11-25 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66768376&amp;ptid=1978008" target="_blank">emcl 发表于 2024-11-25 10:19</a>
+
+话说这游戏有没有刷钱刷资源的地方？ 想赶紧买衣服</blockquote>
+钱就做任务给的多，素材都可以花钱买，维特币拿钓鱼积分换
+

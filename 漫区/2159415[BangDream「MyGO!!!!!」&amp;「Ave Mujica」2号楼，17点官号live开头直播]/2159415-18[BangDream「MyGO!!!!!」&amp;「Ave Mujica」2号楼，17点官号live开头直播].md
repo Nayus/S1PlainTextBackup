@@ -13166,3 +13166,35 @@ ccc这短命喝茶乐队上这么大滤镜，我真怀疑明年睦祥视角要�
 
 参考鸡隔了一年各种假药入脑的有多少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SakuraのOrigami  
+##### 26236#       发表于 2024-11-25 10:47
+
+好全的时间线（）
+
+*****
+
+####  SakuraのOrigami  
+##### 26237#       发表于 2024-11-25 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66768094&amp;ptid=2159415" target="_blank">六道明 发表于 2024-11-25 09:50</a>
+所以说祥子组两个乐队分别只用一个多月，还要兼顾作曲、排练，祥P你好强</blockquote>
+老实说遇上祥子或者立希这种能操办各种事的队长，真的可以抱大腿了（）
+
+
+*****
+
+####  玖羽  
+##### 26238#       发表于 2024-11-25 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66768285&amp;ptid=2159415" target="_blank">NODY 发表于 2024-11-25 10:11</a>
+
+我还是倾向于那个5.18初祥见面的版本，所以6.7之前的时间点都得往前提一周以上
+
+因为动画总共只出现过5.18、 ...</blockquote>
+爱音很明确在黄金周之前转校进来，如果是5月18日，光是动画里的日期转换都比这多
+
+灯写活动日记的时候是下午，不可能是当天的月亮，也就是说这个行为本来就是补写
+

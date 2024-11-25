@@ -806,3 +806,27 @@ Shake Shack汉堡应该比KFC之类的要好点，但是就是不太吃的下去
 
 假如一个人没喝过瑞幸然后听人推荐后以瑞幸自己的标价点到个外卖估计反应跟你差不多。
 
+
+*****
+
+####  elleryasimov  
+##### 83#       发表于 2024-11-25 15:37
+
+Shakeshack 感觉比御三家强得有限，不过比 Five Guys 强点
+
+另外上海一些卖美式三明治的店还蛮好吃的
+
+*****
+
+####  elleryasimov  
+##### 84#       发表于 2024-11-25 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66769735&amp;ptid=2208012" target="_blank">日参省乎己 发表于 2024-11-25 12:36</a>
+
+汉堡王品控问题
+
+而且我吃过最好的是南京一家猪肋排汉堡，口味和肉都比所谓美式牛肉手作汉堡强得多
+
+悠航拿 ...</blockquote>
+悠航慕名吃过一次，感觉对我来说甚至称得上难吃了......
+

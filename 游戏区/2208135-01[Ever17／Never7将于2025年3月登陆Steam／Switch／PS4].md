@@ -392,3 +392,15 @@ N7的画面真的好好重置一下   起码氛围感还是拉满的
 r11无需重制，音乐上乘，人设上佳，配音到位，剧情完整</blockquote>
 剧情啥时候完整的？
 
+
+*****
+
+####  那我也没办法  
+##### 46#       发表于 2024-11-25 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66768594&amp;ptid=2208135" target="_blank">会长辅佐 发表于 2024-11-25 10:43</a>
+360版内容+原版立绘？怎么感觉好奇怪</blockquote>
+不奇怪啊，有不少人认为360版的3d奇怪，希望换成2d呢。
+
+—— 来自 Google Pixel 6 Pro, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

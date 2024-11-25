@@ -2389,3 +2389,29 @@ ts大学生也可以算啊</blockquote>
 
 真是可惜了宰相这个人设 最后写成了这个样子
 
+
+*****
+
+####  woeiqp00  
+##### 7019#       发表于 2024-11-25 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66768371&amp;ptid=2160194" target="_blank">无动于衷 发表于 2024-11-25 10:18</a>
+最惨的难道不是大总统吗，折腾来折腾去除了快递老妹和她爹之外身边的全是二五仔没一个不反水的 ...</blockquote>
+大总统跟快递妹，相比那群怪力乱神的家伙，至少作为一个人类，能构筑这样的计划并实施到这个地步，我觉得已经是成功了，第一部的时候我还不指望这个角色能做出这样的成绩<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  hourousha  
+##### 7020#       发表于 2024-11-25 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66770767&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-11-25 15:03</a>
+
+宰相那还是宰相吗 又是附身又是转世的 早就不是个人了
+
+真是可惜了宰相这个人设 最后写成了这个样子 ...</blockquote>
+闪轨神棍化确实一言难尽，但宰相好歹算是神棍化后吃瘪较少的。
+
+换句话说，在轨迹已经神神叨叨越拖越长的情况下，法老控有没有再把正常人类作为‘次要角色垫脚石’外描写出彩的能力，值得怀疑。
+

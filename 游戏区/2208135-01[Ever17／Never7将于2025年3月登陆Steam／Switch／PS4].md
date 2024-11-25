@@ -365,3 +365,12 @@ append story之一，用优夏视角讲一遍优夏线的情节。其他附加�
 总有人说想失忆玩一遍的游戏之一，实际上玩过后三五年基本就忘差不多了，不信你买了试试 ...</blockquote>
 就打越那难以下咽的无聊日常别人想不想失忆不知道 我自己当时玩着就已经失忆了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Schwarzess  
+##### 43#       发表于 2024-11-25 15:24
+
+封面月海衣服换一下啊，衣服一换诡计掉一半。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+另外居然没有ps实体，任甜淌是你叠？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

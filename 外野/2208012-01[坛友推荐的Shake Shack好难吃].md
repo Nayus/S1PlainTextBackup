@@ -1016,3 +1016,11 @@ Shake Shack在连锁里算还可以的了，哈比特更好吃，可惜倒闭了
 
 <img src="https://static.saraba1st.com/image/smiley/face/16.gif" referrerpolicy="no-referrer">有没有垃圾食品PHD讲讲shake shack和in &amp; out哪个更好。个人感觉除了汉堡王和jack in the box有几个鸡肉汉堡走的不同赛道，根本没有哪个够in &amp; out打的
 
+
+*****
+
+####  Vladimeow  
+##### 104#       发表于 2024-11-25 18:21
+
+价格贵一倍 然后还不一定能吃得出20%；的区别<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

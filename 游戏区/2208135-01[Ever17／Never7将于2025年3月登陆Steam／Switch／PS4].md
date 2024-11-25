@@ -374,3 +374,21 @@ append story之一，用优夏视角讲一遍优夏线的情节。其他附加�
 封面月海衣服换一下啊，衣服一换诡计掉一半。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 另外居然没有ps实体，任甜淌是你叠？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lenin  
+##### 44#       发表于 2024-11-25 15:34
+
+N7的画面真的好好重置一下   起码氛围感还是拉满的
+
+*****
+
+####  lenin  
+##### 45#       发表于 2024-11-25 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66770017&amp;ptid=2208135" target="_blank">lijiuli 发表于 2024-11-25 13:17</a>
+
+r11无需重制，音乐上乘，人设上佳，配音到位，剧情完整</blockquote>
+剧情啥时候完整的？
+

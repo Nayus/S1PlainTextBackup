@@ -431,3 +431,42 @@ woc，边狱公司和明日方舟会在2025年双向联动！
 由手机上传
 2024-11-22 20:53 上传
 
+
+*****
+
+####  Jamaisvu  
+##### 992#       发表于 2024-11-25 17:47
+
+新卡技能来了：
+
+<img src="https://img.saraba1st.com/forum/202411/25/173945dyivbdfnjikyi8fw.jpg" referrerpolicy="no-referrer">
+
+<strong>088EE34A069A3A920635D596A36AC25A.jpg</strong> (422.64 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-11-25 17:39 上传
+
+<img src="https://img.saraba1st.com/forum/202411/25/173947q44em8le8oxxg4x5.jpg" referrerpolicy="no-referrer">
+
+<strong>935C772B6FE6C90EF17ED838716A4FBE.jpg</strong> (396.25 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-11-25 17:39 上传
+
+九辛和九罗差不多，感觉就是攻击属性换成打击，然后把二三技能的罪孽属性互换了一下...
+
+<img src="https://img.saraba1st.com/forum/202411/25/174515r89x3h3egxmghgh9.jpg" referrerpolicy="no-referrer">
+
+<strong>949D30A771F8E882565B8A6D0D7B0D6854122675.jpg</strong> (279.71 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-11-25 17:45 上传
+
+小夫的EGO加入了棕色震颤（上弦），再次提升了震颤队的造价...可以把11夫叫上场来了。
+

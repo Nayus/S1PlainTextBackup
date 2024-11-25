@@ -912,3 +912,15 @@ boss rush不能用白血泵复活，容错相对低。
 那不同服装的体型还是有所区别。海之女仆明显又大又挺，黑珍珠体型就纤细很多。 ...</blockquote>
 是的 有印象 不过我主要是发现大腿和屁股这块比较明显 胸没太多关注，因为服装界面测个身换一下衣服 屁股大小变化特别明显
 
+
+*****
+
+####  claymorep  
+##### 1872#       发表于 2024-11-25 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66766957&amp;ptid=1978008" target="_blank">lpzhg 发表于 2024-11-25 01:22</a>
+今天把二周目捡起来打到了废土，新衣服真是太棒啦</blockquote>
+快上PC<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

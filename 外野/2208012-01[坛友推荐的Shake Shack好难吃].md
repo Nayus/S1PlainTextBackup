@@ -756,3 +756,17 @@ Charlie’s
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  日参省乎己  
+##### 78#       发表于 2024-11-25 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66768807&amp;ptid=2208012" target="_blank">星降る森 发表于 2024-11-25 11:03</a>
+真有80分吗？虽然知道火烤是汉堡王特色，但吃完多汁流油的手作以后真吃不下汉堡王这种肉饼干呼呼的汉堡了 ...</blockquote>
+汉堡王品控问题
+而且我吃过最好的是南京一家猪肋排汉堡，口味和肉都比所谓美式牛肉手作汉堡强得多
+悠航拿了这么多年冠军，我觉得他家也就普普通通
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

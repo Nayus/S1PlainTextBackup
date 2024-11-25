@@ -13088,3 +13088,13 @@ Crychic解散 - 不晚于6月上旬
 按照这个时间线，喵梦入伙到live还不到一个月，确实最速出道了
 一想到这可能还是课后时间练的，邦邦超人好可怕<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  MASKA-1  
+##### 26228#       发表于 2024-11-25 08:49
+
+没有covid的世界线，祝你幸福<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

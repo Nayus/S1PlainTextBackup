@@ -523,3 +523,14 @@ ss能给什么，价格高过一个度大家的预期都是非理性的，再加
 
 我觉得抛开价格不谈还ok
 
+
+*****
+
+####  jockeyjoestar  
+##### 58#       发表于 2024-11-25 08:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66767028&amp;ptid=2208012" target="_blank">BLTUS 发表于 2024-11-25 01:52</a>
+
+纽约店这么多和小资也没什么关系。哪个洋快餐咖啡开到上海都要闹一阵人来疯，什么Wendy‘s、Chipotle、Ch ...</blockquote>
+shake shack我之前看的up主的说法是在美国也算偏贵的。健康有机概念割韭菜。
+

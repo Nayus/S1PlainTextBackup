@@ -881,3 +881,42 @@ BK 好久没吃了。以前的印象就是牛肉制品都不错，但鸡肉制�
 
 评价是不如蓝蛙<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SH002083  
+##### 91#       发表于 2024-11-25 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66765008&amp;ptid=2208012" target="_blank">斯城恶魔 发表于 2024-11-24 18:48</a>
+
+汉堡王
+
+—— 来自 鹅球 v3.1.88.3</blockquote>
+汉堡王有什么特别得优惠方法吗？在小程序上点皇堡套餐都要四十好几接近50了。
+
+*****
+
+####  kcalb  
+##### 92#       发表于 2024-11-25 16:17
+
+新天地那家？想起来四、五年前路过吃过一次，只记得里面的酸黄瓜味了
+
+
+*****
+
+####  alva8246  
+##### 93#       发表于 2024-11-25 16:23
+
+上海的话 五条人确实吊打
+all the way+花生酱奶昔可以把ss打得渣都不剩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kyonkoism  
+##### 94#       发表于 2024-11-25 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66771415&amp;ptid=2208012" target="_blank">SH002083 发表于 2024-11-25 16:16</a>
+
+汉堡王有什么特别得优惠方法吗？在小程序上点皇堡套餐都要四十好几接近50了。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">闲鱼代下单啊，大概比小程序点便宜一半吧
+

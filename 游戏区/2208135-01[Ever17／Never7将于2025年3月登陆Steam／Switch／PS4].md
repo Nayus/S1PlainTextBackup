@@ -526,3 +526,26 @@ e17的360版加了什么剧情？</blockquote>
 
 透光了，打算玩新版的或者没玩过老版的不要点
 
+
+*****
+
+####  eroneko  
+##### 58#       发表于 2024-11-25 20:33
+
+等一个完整版r11
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.93-alpha
+
+*****
+
+####  那我也没办法  
+##### 59#       发表于 2024-11-25 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66772302&amp;ptid=2208135" target="_blank">Mr_NaHCO3 发表于 2024-11-25 17:56</a>
+之前有主播在播ever17，因为玩过不怕剧透所以跟着直播想看看主播reaction，顺便回忆下剧情细节
+
+结果还是再 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你知道哈基米的原理吗？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.2-alpha
+

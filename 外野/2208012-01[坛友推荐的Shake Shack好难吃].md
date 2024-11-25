@@ -855,3 +855,21 @@ Shakeshack 感觉比御三家强得有限，不过比 Five Guys 强点
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">直接吃那些非连锁的手工汉堡，肉又大汁又多，汉堡王那些肉饼都太干了
 
+
+*****
+
+####  此用户不存在  
+##### 88#       发表于 2024-11-25 16:00
+
+说起汉堡，我最喜欢的还是汉堡王的天椒皇堡，小程序点单的话应该套餐就30左右，吃得很饱而且那个味道我超喜欢。以前在深圳的时候家里附近的汉堡王已经很熟了，每次点任何汉堡都让店员挤一点天椒酱进去
+
+*****
+
+####  elleryasimov  
+##### 89#       发表于 2024-11-25 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66771158&amp;ptid=2208012" target="_blank">哈德斯 发表于 2024-11-25 15:51</a>
+
+汉堡王品控问题很大，差的都不如路边摊，比如那个霸王鸡条，刚炸出来的外酥里嫩鲜嫩多汁，但是一旦不是现做 ...</blockquote>
+BK 好久没吃了。以前的印象就是牛肉制品都不错，但鸡肉制品不好吃而且品控问题很大
+

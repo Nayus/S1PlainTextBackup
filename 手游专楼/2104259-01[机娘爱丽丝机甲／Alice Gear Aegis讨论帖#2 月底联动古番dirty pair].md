@@ -117,3 +117,13 @@ bingo活动做完可以自选一个普池四星，我缺的四星主播终于要
 
 2024-11-25 16:37 上传
 
+
+*****
+
+####  希望之花  
+##### 1275#       发表于 2024-11-25 17:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">半年没抽到new，金币和红罐都溢出了
+
+很难想象刚入坑时苦于找升级资源
+

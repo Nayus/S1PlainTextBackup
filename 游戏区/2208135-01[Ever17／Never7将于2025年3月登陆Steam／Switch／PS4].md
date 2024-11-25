@@ -437,3 +437,14 @@ r11拎出来是要出个带真结局的新版吗</blockquote>
 总有人说想失忆玩一遍的游戏之一，实际上玩过后三五年基本就忘差不多了，不信你买了试试 ...</blockquote>
 你能忘细节 难道还能把关键诡计忘了吗。。。
 
+
+*****
+
+####  760194962  
+##### 50#       发表于 2024-11-25 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66770779&amp;ptid=2208135" target="_blank">医生狼多 发表于 2024-11-25 15:05</a>
+
+以360版为基础，结果复刻没xbox版</blockquote>
+试了下，xenia（不是canary）似乎模拟起来没什么问题，有点想借此重打遍日文版了，就玩360版
+

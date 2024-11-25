@@ -297,3 +297,11 @@ G2新来的这个malbsMd可以啊，就他尼驴三个比较严肃。 ...</block
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cnmyster1ous  
+##### 4557#       发表于 2024-11-26 00:28
+
+既然叫GOAT组合 想必在major和MVP数量上应该是断层领先吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

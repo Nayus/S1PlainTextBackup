@@ -890,3 +890,14 @@ boss rush不能用白血泵复活，容错相对低。
 话说这游戏有没有刷钱刷资源的地方？ 想赶紧买衣服</blockquote>
 钱就做任务给的多，素材都可以花钱买，维特币拿钓鱼积分换
 
+
+*****
+
+####  nagitoY  
+##### 1870#       发表于 2024-11-25 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66768228&amp;ptid=1978008" target="_blank">忘却旋律 发表于 2024-11-25 10:04</a>
+
+那怪不得 我寻思我一周目  貌似有几套衣服 切换的时候也就屁股大小有时会有较明显的区别可能是衣服是否带 ...</blockquote>
+那不同服装的体型还是有所区别。海之女仆明显又大又挺，黑珍珠体型就纤细很多。
+

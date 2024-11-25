@@ -13198,3 +13198,27 @@ ccc这短命喝茶乐队上这么大滤镜，我真怀疑明年睦祥视角要�
 
 灯写活动日记的时候是下午，不可能是当天的月亮，也就是说这个行为本来就是补写
 
+
+*****
+
+####  Aendst  
+##### 26239#       发表于 2024-11-25 11:07
+
+只有两周也太短了，这个时间给我参加社团我可能也就最多记住同学名字<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+mujica从六月初开始筹备，七月末就开live，说筹备时间短也不算很短，说长吧……两个月从有想法到主流出道还是太超人了
+
+*****
+
+####  Aendst  
+##### 26240#       发表于 2024-11-25 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66768689&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-11-25 10:51</a>
+
+爱音很明确在黄金周之前转校进来，如果是5月18日，光是动画里的日期转换都比这多
+
+灯写活动日记的时候是 ...</blockquote>
+黄金周这个官网介绍有写 <blockquote>とある事情からゴールデンウイーク前に羽丘女子学園に入学してきた愛音。
+
+そんな羽丘ではバンドが流行していることが分かり、急いでバンドメンバーを探すことに。</blockquote>
+

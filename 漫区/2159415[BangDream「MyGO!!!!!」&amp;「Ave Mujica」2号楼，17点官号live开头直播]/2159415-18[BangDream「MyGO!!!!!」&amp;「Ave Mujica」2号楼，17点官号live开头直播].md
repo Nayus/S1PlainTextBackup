@@ -13457,3 +13457,15 @@ https://t.bilibili.com/1003963264190644227</blockquote>
 
 彩六送审没绷住，看来要10年后才能看到mygo了
 
+
+*****
+
+####  skives10  
+##### 26262#       发表于 2024-11-26 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66777557&amp;ptid=2159415" target="_blank">仓鼠胖太 发表于 2024-11-26 12:08</a>
+可能怕母鸡卡先行放映以后，一堆人去找回旋镖？
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 S1Next-鹅 ...</blockquote>
+那得把全世界网上的mygo动画痕迹都消除才行
+

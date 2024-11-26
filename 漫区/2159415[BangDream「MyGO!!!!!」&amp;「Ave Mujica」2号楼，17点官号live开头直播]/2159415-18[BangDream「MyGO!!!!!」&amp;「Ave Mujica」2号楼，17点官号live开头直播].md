@@ -13576,3 +13576,14 @@ https://t.bilibili.com/1003963264190644227</blockquote>
 
 喵梦那个鞋真的好惹眼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 26275#       发表于 2024-11-26 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66778803&amp;ptid=2159415" target="_blank">NODY 发表于 2024-11-26 15:01</a>
+
+喵梦这个鞋子的设计很惊喜，我印象里这种款式的鞋都是那种比较注重品牌的角色穿的，很符合人设 ...</blockquote>
+喵以后会成为服设担当吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

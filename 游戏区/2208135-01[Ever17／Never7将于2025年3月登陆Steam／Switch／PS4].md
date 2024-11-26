@@ -836,3 +836,17 @@ ever17通关没多久跟我说移植pc<img src="https://static.saraba1st.com/ima
 
 [论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  哎哟卧槽了  
+##### 84#       发表于 2024-11-26 13:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66777117&amp;ptid=2208135" target="_blank">satan023 发表于 2024-11-26 11:20</a>
+又来背刺我草 大镖客1 ps4通关后来个移植PC 
+
+ever17通关没多久跟我说移植pc</blockquote>
+ever17本來就有PC...
+
+—— 來自 Google Pixel 2, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

@@ -2695,3 +2695,13 @@ ts大学生也可以算啊</blockquote>
 
 成了不仅救了女儿还能让共和国成为大陆霸主。
 
+
+*****
+
+####  妄想中毒  
+##### 7050#       发表于 2024-11-26 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66777289&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-11-26 11:37</a>
+界2肯定复用最严重的，毕竟同年还有京迷，界2能分到多少资源呢。</blockquote>
+你法近十年都是稳定一年一部游戏，东轨和界2根本不可能同一年出，你这担心就是多余的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -50,3 +50,15 @@ bossrush可以喝药啊，我带的基本都是回能元的
 
 2024-11-26 11:42 上传
 
+
+*****
+
+####  KBAC  
+##### 1699#       发表于 2024-11-26 13:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66777353&amp;ptid=2188108" target="_blank">ミズタ 发表于 2024-11-26 11:44</a>
+今天老任更新了官方时间线，败北线最后，海拉鲁衰退前</blockquote>
+和我猜的一模一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

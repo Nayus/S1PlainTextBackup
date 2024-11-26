@@ -10706,3 +10706,20 @@ call和mix是两条线，call七十年代就开始玩了，mix是新世纪早安
 
 这次完结生放是不是很大概率不像其他团（甚至和自己比）那样会放新建文件夹预告了，要看六巡成绩再决定了？<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  梶原ひかり  
+##### 1046#       发表于 2024-11-26 16:37
+
+Liyuu新单 5400 新高
+
+01.jpg
+(75.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-26 16:37 上传
+
+<img src="https://img.saraba1st.com/forum/202411/26/163719i82zvbblhth83bvi.jpg" referrerpolicy="no-referrer">
+

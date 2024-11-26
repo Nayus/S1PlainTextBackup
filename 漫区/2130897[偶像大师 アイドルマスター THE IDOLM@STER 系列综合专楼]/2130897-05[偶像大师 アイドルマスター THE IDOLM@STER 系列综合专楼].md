@@ -1042,3 +1042,11 @@ CGSS十週年LIVE相關：
 目前一套摺合人民幣要5600左右... 但是有送電子版（平臺爲honto，電子版不包含臺詞收錄部分）欸（ ...</blockquote>
 群友称之为族谱<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lunaticfool  
+##### 6710#       发表于 2024-11-26 21:59
+
+这凛世，是真的要抽爆了
+

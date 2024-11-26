@@ -13804,3 +13804,28 @@ mujica动画舅舅已经开奶了
 
 没差，mujica动画的不安因素里独角兽闭口不提占99%，别的全部加起来占1%吧，多点少点没区别
 
+
+*****
+
+####  q0we123456  
+##### 26298#       发表于 2024-11-26 18:28
+
+<blockquote>SakuraのOrigami 发表于 2024-11-26 17:29
+鸡漫画1卷明年2月7日发售</blockquote>
+2月7日是二月第一个星期五，这漫画要么1月10日出一个超大第一话或连更多话，要么特别搞成周更，不然凑不齐一本单行本。
+
+*****
+
+####  SakuraのOrigami  
+##### 26299#       发表于 2024-11-26 18:32
+
+后篇4周目特典
+
+<img src="https://img.saraba1st.com/forum/202411/26/183150ehh4fdhh15hh2n4z.png" referrerpolicy="no-referrer">
+
+<strong>GdTWnmgaoAIUHCq.png</strong> (68.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-26 18:31 上传
+

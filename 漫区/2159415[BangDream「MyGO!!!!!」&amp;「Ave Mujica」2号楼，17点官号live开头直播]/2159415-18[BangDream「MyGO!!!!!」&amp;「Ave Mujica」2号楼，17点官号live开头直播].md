@@ -13387,3 +13387,37 @@ tw都那么晚看来不用指望hk了
 
 [https://x.com/meu203/status/1861051204404748552](https://x.com/meu203/status/1861051204404748552)
 
+
+*****
+
+####  堀内爱里衣  
+##### 26255#       发表于 2024-11-26 11:40
+
+       
+
+<img src="https://img.saraba1st.com/forum/202411/26/114041clynlacdk2rylal3.png" referrerpolicy="no-referrer">
+
+<strong>PixPin_2024-11-26_11-40-02.png</strong> (358.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-26 11:40 上传
+
+       [https://t.bilibili.com/1003963264190644227](https://t.bilibili.com/1003963264190644227)
+
+*****
+
+####  skives10  
+##### 26256#       发表于 2024-11-26 11:42
+
+不是说好的永久保留吗
+
+*****
+
+####  66367749  
+##### 26257#       发表于 2024-11-26 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66777315&amp;ptid=2159415" target="_blank">堀内爱里衣 发表于 2024-11-26 11:40</a>
+https://t.bilibili.com/1003963264190644227</blockquote>
+这个是有什么考量吗？版权？
+

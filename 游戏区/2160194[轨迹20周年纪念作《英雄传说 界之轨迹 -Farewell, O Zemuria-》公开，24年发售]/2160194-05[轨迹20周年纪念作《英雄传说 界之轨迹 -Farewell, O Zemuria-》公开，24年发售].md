@@ -2705,3 +2705,18 @@ ts大学生也可以算啊</blockquote>
 界2肯定复用最严重的，毕竟同年还有京迷，界2能分到多少资源呢。</blockquote>
 你法近十年都是稳定一年一部游戏，东轨和界2根本不可能同一年出，你这担心就是多余的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无动于衷  
+##### 7051#       发表于 2024-11-26 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66777243&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-11-26 11:32</a>
+
+虽说近藤表示空轨是界轨系统的升级版，并会对回路系统进行简化。界2系统还不知道用界还是空的 ...</blockquote>
+空轨EVO就已经把导力器规制改过一次了
+
+但是黎轨的晶片散布这都直接决定了回合制+动作制切换的理论基础，空轨1st要用回合+动作切换，就必须要跟导力器切割不用这套理论
+
+否则艾斯蒂尔一上来就第七代，这就过分了
+

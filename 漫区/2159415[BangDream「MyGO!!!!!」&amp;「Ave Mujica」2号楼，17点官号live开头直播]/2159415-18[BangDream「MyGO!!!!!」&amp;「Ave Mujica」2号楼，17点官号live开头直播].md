@@ -13477,3 +13477,44 @@ https://t.bilibili.com/1003963264190644227</blockquote>
 
 一起转正版吧，上面说的是转非公开而不是删除就是说片源还是在系统里的，转正版后原弹幕应该都是保留的
 
+
+*****
+
+####  御景  
+##### 26264#       发表于 2024-11-26 13:45
+
+戴面具立正，也太唐了，为什么不和saki一样，摆个手势
+
+9b20225d2c268fa286a955602d38767d.jpeg
+(258.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-26 13:44 上传
+
+<img src="https://img.saraba1st.com/forum/202411/26/134458du51uvf9d9zo832d.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  yanghuangu  
+##### 26265#       发表于 2024-11-26 13:51
+
+传言是要上阿B了，但可能有删减
+
+第一季我都看了10遍也想不出哪帧要删，删第二季的？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑夜落叶秋天  
+##### 26266#       发表于 2024-11-26 13:52
+
+初华这样子 明明不戴面具就是执事女形象 为什么要戴面具呢
+
+*****
+
+####  skives10  
+##### 26267#       发表于 2024-11-26 13:53
+
+晚安大小姐 
+

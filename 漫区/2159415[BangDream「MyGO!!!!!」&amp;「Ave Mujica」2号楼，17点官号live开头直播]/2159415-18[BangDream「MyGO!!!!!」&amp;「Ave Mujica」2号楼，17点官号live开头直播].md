@@ -13429,3 +13429,13 @@ https://t.bilibili.com/1003963264190644227</blockquote>
 
 要转正版吧
 
+
+*****
+
+####  MASKA-1  
+##### 26259#       发表于 2024-11-26 12:01
+
+让我想到了彩六送审<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

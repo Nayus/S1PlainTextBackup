@@ -2642,3 +2642,11 @@ ts大学生也可以算啊</blockquote>
 从ed猜，应该是回到黎一开始，但敲事务所门，提出委托的人变成菲莉、玲或者剑女，然后快速过一遍黎轨的时 ...</blockquote>
 最怕的就是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yth329  
+##### 7045#       发表于 2024-11-26 11:58
+
+这作一周目能完美全满好感度吗，有啥要注意的
+

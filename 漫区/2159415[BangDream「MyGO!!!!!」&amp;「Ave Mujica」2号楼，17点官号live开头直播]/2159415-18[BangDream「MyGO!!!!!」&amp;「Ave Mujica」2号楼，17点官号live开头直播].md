@@ -13587,3 +13587,13 @@ https://t.bilibili.com/1003963264190644227</blockquote>
 喵梦这个鞋子的设计很惊喜，我印象里这种款式的鞋都是那种比较注重品牌的角色穿的，很符合人设 ...</blockquote>
 喵以后会成为服设担当吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 26276#       发表于 2024-11-26 15:39
+
+初华这一身还挺好看的
+
+果然之前那个图是压扁了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

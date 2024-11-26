@@ -90,3 +90,14 @@
 
 —— 来自 Xiaomi 2206123SC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  christiny  
+##### 4098#       发表于 2024-11-26 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66775841&amp;ptid=2098044" target="_blank">灼眼艾莉亚 发表于 2024-11-26 09:11</a>
+
+我特地看了好几遍，武器店就是只有三个武器装甲，没有那两个饰品。</blockquote>
+饰品不在武器店……记得是在道具店里。
+

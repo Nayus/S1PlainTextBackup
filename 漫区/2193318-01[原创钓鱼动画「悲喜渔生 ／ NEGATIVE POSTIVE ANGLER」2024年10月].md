@@ -278,3 +278,64 @@ ice不用说中文都变回人形了，侧面解释钓鱼佬为啥离婚
 
 真是不错的单回，哎人生有时只不过是机率游戏
 
+
+*****
+
+####  Piano-Forest  
+##### 161#         楼主| 发表于 2024-11-26 20:54
+
+第9話「鍋パ」
+
+大型台風が到来し、暇になった常宏たちは店内でFGノットの練習をするなど、のんびりと過ごす。そこへ、以前常宏を追っていた借金取りたちが訪れ、常宏は慌てふためく。
+
+スタッフ
+
+脚本：鈴木智尋
+
+絵コンテ：青木弘安
+
+演出：三浦 慧
+
+演出補佐：松原 聡、尾形光洋
+
+総作画監督：谷口宏美
+
+作画監督：Lee Gwan Woo、Kim Kyung Ho、Kim Jong Bum、Lee Kyung Soon
+
+作画監督補佐：中山見都美、三好和也、南井尚子、三島詠子、緒方歩惟、梁 博雅、東 亮太、栗田新一
+<img src="https://p.sda1.dev/20/7bb8fb408ba51e892347dbc6c8fc5091/p_001.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/e259087dae834115cc74c9891851f75f/p_002.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/c8ce60e19ec0108477bb3dce254a950f/p_003.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/b90582a5047d3adeab5f59a3476d7c6b/p_004.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/f9b1ea7db5ea6fcce21c72843556cd54/p_005.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/4a6507331b22c38531c3251e6acdd8f2/p_006.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 162#         楼主| 发表于 2024-11-26 20:58
+
+[https://x.com/onigiri123091/status/1859456109578420630](https://x.com/onigiri123091/status/1859456109578420630)
+
+そして今晩はネガグラ8話放送🎣
+
+コンビニのお父さん事、町田さん。
+
+町田の設定、楽しかった。
+
+電子タバコ吸ってる所とか、眼精疲労ひどそうな表情はこの年代のキャラでしか描く事がない表情なので、中年を描くのは若者を描くのとは別の楽しさがあるもん。
+<img src="https://p.sda1.dev/20/59a607b0a7563e74bf6fe872dec60df1/20241126_205630.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/983a33ce02173504be55e55541bcbd20/20241126_205631.jpg" referrerpolicy="no-referrer">
+
+何回上げ直すんだ…😭3回目の正直
+
+ネガポジアングラー設定ちょいみせ🎣
+
+貴明とアルアの手元。
+
+ピアスはハナちゃんもしてるけど、ネックレスや指輪、ブレスレットをしているのはこの2人だけ。
+
+アルアはアクセサリー大好き、貴明はシルバーのみゴールドはつけません。
+<img src="https://p.sda1.dev/20/9c4116f0400e1e8d5630cf9ec5cbd3ef/20241126_205635.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/45d08ea8855b3c8c3bc0e3e31a5f845a/20241126_205637.jpg" referrerpolicy="no-referrer">
+

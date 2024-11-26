@@ -1015,3 +1015,19 @@ CGSS十週年LIVE相關：
 
 第五場神奈川場的詳情將於後日公開。
 
+
+*****
+
+####  wfhtony  
+##### 6708#       发表于 2024-11-26 20:59
+
+<img src="https://img.saraba1st.com/forum/202411/26/205725rddc84hc6v772d88.png" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 1250 - All for YOU!!! THE IDOLM@STER CINDERELLA GIRLS Recollect.png</strong> (318.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-26 20:57 上传
+
+目前一套摺合人民幣要5600左右... 但是有送電子版（電子版不包含臺詞收錄部分）欸（
+

@@ -814,3 +814,13 @@ https://www.douban.com/review/9871084/
 透光了，打算玩新版的或者没玩过老版的不要点 ...</blockquote>
 剧情只记得哈基米德原理，这些基本看不懂了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  satan023  
+##### 82#       发表于 2024-11-26 11:20
+
+又来背刺我草 大镖客1 ps4通关后来个移植PC 
+
+ever17通关没多久跟我说移植pc<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

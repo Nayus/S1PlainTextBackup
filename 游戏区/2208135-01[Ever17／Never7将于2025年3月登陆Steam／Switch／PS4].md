@@ -700,3 +700,16 @@ xbox版的ever17的剧情改编一句话概括就是编剧把原来游戏中模�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">这新封面喷了，崩成狗了啊
 
+
+*****
+
+####  lenin  
+##### 75#       发表于 2024-11-26 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66775923&amp;ptid=2208135" target="_blank">逆旅行客 发表于 2024-11-26 09:18</a>
+
+大概率会失望的，游戏评价不能脱离开时代要素，E17的点子后来已经被大量同类作品用烂了，游戏玩得多很难 ...</blockquote>
+E17的点子还不至于泛滥到这个程度，当然看得多了，震撼感肯定是没了。
+
+其实更大的问题不在这里，现在大部分人的耐心和信息传播速度，根本等不到E17的核心TRICK揭开就忍不住或不小心看剧透了。何况E17日常无聊的剧本也非常多，如果有R11的紧凑程度，或许还能吸引别人一口气通关。
+

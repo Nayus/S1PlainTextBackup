@@ -2595,3 +2595,22 @@ ts大学生也可以算啊</blockquote>
 
 手机消失了也可能是前几天刚买的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 7040#       发表于 2024-11-26 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66777054&amp;ptid=2160194" target="_blank">无动于衷 发表于 2024-11-26 11:15</a>
+
+结尾有个细节，有个npc手里的手机直接消失了</blockquote>
+但界2肯定复用界系统啊
+
+
+*****
+
+####  卢迪克  
+##### 7041#       发表于 2024-11-26 11:32
+
+虽说近藤表示空轨是界轨系统的升级版，并会对回路系统进行简化。界2系统还不知道用界还是空的
+

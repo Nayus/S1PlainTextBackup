@@ -16730,3 +16730,36 @@ sololive一整个月过去了，特报里面的各种联动和商品发售消息
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这人是天才，阿汤哥那个封面原图没什么，给她一个顿操作，色情感直线上升
 
+
+*****
+
+####  holoan  
+##### 10257#         楼主| 发表于 2024-11-26 10:55
+
+还有昨天晚上给拉米和koyo做ASMR封面，2个封面直接花掉一个小时<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看以后箱内有人要搞ASMR都可以丢给她做，非常情愿了
+
+*****
+
+####  holoan  
+##### 10258#         楼主| 发表于 2024-11-26 11:53
+
+ 本帖最后由 holoan 于 2024-11-26 11:54 编辑 
+
+<img src="https://img.saraba1st.com/forum/202411/26/115139lfyrhwyfrz4e2wbd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (6.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-26 11:51 上传
+
+<img src="https://img.saraba1st.com/forum/202411/26/115432bxrnt9gf76zrfhwh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (16.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-26 11:54 上传
+
+无端联想
+

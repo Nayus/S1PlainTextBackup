@@ -10723,3 +10723,15 @@ Liyuu新单 5400 新高
 
 <img src="https://img.saraba1st.com/forum/202411/26/163719i82zvbblhth83bvi.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csolfans  
+##### 1047#       发表于 2024-11-26 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66779694&amp;ptid=2201887" target="_blank">梶原ひかり 发表于 2024-11-26 16:37</a>
+Liyuu新单 5400 新高</blockquote>
+初次突破5K，算是各方面的里程碑啊
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

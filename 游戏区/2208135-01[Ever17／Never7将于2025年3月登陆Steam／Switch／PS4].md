@@ -850,3 +850,13 @@ ever17本來就有PC...
 
 —— 來自 Google Pixel 2, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  她的猫  
+##### 85#       发表于 2024-11-26 18:52
+
+R11是准备留个大招吗？
+
+期待啊，前两个就不买了。
+

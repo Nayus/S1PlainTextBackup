@@ -125,3 +125,41 @@
 成就解锁原来和加速器还有关系的吗……！</blockquote>
 这个属于STEAM延迟了……
 
+
+*****
+
+####  睡不醒的虾米  
+##### 4101#       发表于 2024-11-26 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66779099&amp;ptid=2098044" target="_blank">christiny 发表于 2024-11-26 15:31</a>
+
+这个属于STEAM延迟了……</blockquote>
+嗯，后续就搞定了。不知道是什么原因导致的。
+
+我在电脑上打开了一次游戏后，就正常解锁了。
+
+*****
+
+####  kthec  
+##### 4102#       发表于 2024-11-26 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66779057&amp;ptid=2098044" target="_blank">christiny 发表于 2024-11-26 15:27</a>
+
+这动画包含了大量游戏剧情，等你玩过相应内容后，再看动画有不同的感悟。
+
+甚至后面动画某处还有变化…… ...</blockquote>
+居然会变？
+
+
+*****
+
+####  adw667  
+##### 4103#       发表于 2024-11-26 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66779018&amp;ptid=2098044" target="_blank">christiny 发表于 2024-11-26 15:24</a>
+
+饰品不在武器店……记得是在道具店里。
+
+然后，温馨提醒一下，斗技场一定要去打，里面有很重要的道具。本 ...</blockquote>
+困难以下如果上一章成长点完装备刷满的话每章开头就能把斗技场打了
+

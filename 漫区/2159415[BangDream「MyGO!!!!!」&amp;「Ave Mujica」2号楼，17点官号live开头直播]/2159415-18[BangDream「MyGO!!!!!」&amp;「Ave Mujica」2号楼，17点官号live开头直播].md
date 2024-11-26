@@ -13597,3 +13597,48 @@ https://t.bilibili.com/1003963264190644227</blockquote>
 
 果然之前那个图是压扁了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仓鼠胖太  
+##### 26277#       发表于 2024-11-26 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66778278&amp;ptid=2159415" target="_blank">yanghuangu 发表于 2024-11-26 13:51</a>
+传言是要上阿B了，但可能有删减
+
+第一季我都看了10遍也想不出哪帧要删，删第二季的？ ...</blockquote>
+长崎女士买通阿B删掉惊世一跪
+
+*****
+
+####  星天观测  
+##### 26278#       发表于 2024-11-26 15:55
+
+我甚至想说一句般配（？）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202411/26/155515fzxow4wz6duxxr08.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20241126155504.png</strong> (13.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-26 15:55 上传
+
+*****
+
+####  黑夜落叶秋天  
+##### 26279#       发表于 2024-11-26 15:57
+
+惊世一跪删了...
+
+想到双城把凯蔚镜头也删了差不多 感觉叔叔真能做这种脑溢血操作
+
+*****
+
+####  MASKA-1  
+##### 26280#       发表于 2024-11-26 16:00
+
+罗森联动门店定了吗
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

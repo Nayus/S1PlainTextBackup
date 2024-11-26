@@ -10698,3 +10698,11 @@ call和mix是两条线，call七十年代就开始玩了，mix是新世纪早安
 接下来四话要完成团建、连冠、三年生毕业交接，还是好紧张呀</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">叶月恋和樱小路总要救一个吧
 
+
+*****
+
+####  ViyViy  
+##### 1045#       发表于 2024-11-26 16:01
+
+这次完结生放是不是很大概率不像其他团（甚至和自己比）那样会放新建文件夹预告了，要看六巡成绩再决定了？<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+

@@ -13449,3 +13449,11 @@ https://t.bilibili.com/1003963264190644227</blockquote>
 
 —— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  cayon  
+##### 26261#       发表于 2024-11-26 12:14
+
+彩六送审没绷住，看来要10年后才能看到mygo了
+

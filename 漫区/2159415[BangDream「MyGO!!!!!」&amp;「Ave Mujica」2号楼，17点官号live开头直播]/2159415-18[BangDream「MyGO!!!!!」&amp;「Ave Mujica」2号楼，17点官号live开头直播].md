@@ -13914,3 +13914,15 @@ mujica动画舅舅已经开奶了
 …怎么看大祥子都欠老c团三人组一个解释吧，不要带上帝视角啊</blockquote>
 这X楼里是饭圈聚集地不知道吗？在这群东西眼里不存在纯动画观众，立场先行开口先判断对方是不是某角色或团的粉或者黑，不论是否恶意说句大祥老师就成了黑称。然后明明自己就是zng 还搁这瞧不起其他zng 了，还都厌男河豚式玻璃心，聊两句剧本里明明就存在的大祥老师的daddy issue就会破防，我看开播了之后有更多能让他们破防的地方在。这楼可以作为笑话观看点，发言没必要较真
 
+
+*****
+
+####  skives10  
+##### 26309#       发表于 2024-11-26 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66782074&amp;ptid=2159415" target="_blank">kojima34 发表于 2024-11-26 22:46</a>
+这X楼里是饭圈聚集地不知道吗？在这群东西眼里不存在纯动画观众，立场先行开口先判断对方是不是某角色或 ...</blockquote>
+别人喷你不是因为你这id总是随地大小便早就臭了吗
+跟什么河豚zng厌男乱七八糟的又有什么关系
+好好一个人就这么被水魔变成了魔怔人<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">
+

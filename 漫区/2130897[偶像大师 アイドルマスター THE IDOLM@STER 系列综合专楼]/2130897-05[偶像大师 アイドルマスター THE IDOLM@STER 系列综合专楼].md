@@ -1031,3 +1031,14 @@ CGSS十週年LIVE相關：
 
 目前一套摺合人民幣要5600左右... 但是有送電子版（電子版不包含臺詞收錄部分）欸（
 
+
+*****
+
+####  游蜓  
+##### 6709#       发表于 2024-11-26 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66781488&amp;ptid=2130897" target="_blank">wfhtony 发表于 2024-11-26 20:59</a>
+
+目前一套摺合人民幣要5600左右... 但是有送電子版（平臺爲honto，電子版不包含臺詞收錄部分）欸（ ...</blockquote>
+群友称之为族谱<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

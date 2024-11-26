@@ -68,3 +68,13 @@
 序章鬼村里卖的内容在城镇里都可以买到吧。</blockquote>
 我特地看了好几遍，武器店就是只有三个武器装甲，没有那两个饰品。
 
+
+*****
+
+####  tansapple  
+##### 4096#       发表于 2024-11-26 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66775841&amp;ptid=2098044" target="_blank">灼眼艾莉亚 发表于 2024-11-26 09:11</a>
+我特地看了好几遍，武器店就是只有三个武器装甲，没有那两个饰品。</blockquote>
+那不急，后面再轮回一次的时候，你可以再买，就是剧情比较往后，不用担心做不成全收集成就。
+

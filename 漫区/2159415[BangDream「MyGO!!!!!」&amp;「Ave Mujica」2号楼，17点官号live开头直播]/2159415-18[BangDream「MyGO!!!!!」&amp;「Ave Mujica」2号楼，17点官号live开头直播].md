@@ -13775,3 +13775,32 @@ mujica动画舅舅已经开奶了
 
 这怎么感觉跟什么都没说一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 26294#       发表于 2024-11-26 18:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">起码比“吹爆”这类要强吧，最多是什么都没说，真怕了直球开奶的
+
+*****
+
+####  cherryjia12  
+##### 26295#       发表于 2024-11-26 18:15
+
+和“中毒”“看了五遍”“看哭了”比起来，挺好反而令人有点安心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  椎名mahuyo  
+##### 26296#       发表于 2024-11-26 18:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">已经有“看哭了”PTSD了
+
+*****
+
+####  紫吹兰  
+##### 26297#         楼主| 发表于 2024-11-26 18:17
+
+没差，mujica动画的不安因素里独角兽闭口不提占99%，别的全部加起来占1%吧，多点少点没区别
+

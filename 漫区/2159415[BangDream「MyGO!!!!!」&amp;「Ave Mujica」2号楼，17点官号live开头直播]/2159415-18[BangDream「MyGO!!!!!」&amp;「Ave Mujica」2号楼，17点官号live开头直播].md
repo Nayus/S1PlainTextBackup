@@ -13877,3 +13877,22 @@ mujica动画舅舅已经开奶了
 
 罗森还有新消息吗，啥时候出啊<img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御景  
+##### 26306#       发表于 2024-11-26 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66781541&amp;ptid=2159415" target="_blank">silversor 发表于 2024-11-26 21:06</a>
+
+罗森还有新消息吗，啥时候出啊</blockquote>
+群里看到的
+
+<img src="https://img.saraba1st.com/forum/202411/26/222306ylnbffmhfun6fff9.jpg" referrerpolicy="no-referrer">
+
+<strong>9077a229d3017e51a5b606b74afdc739.jpg</strong> (50.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-26 22:23 上传
+

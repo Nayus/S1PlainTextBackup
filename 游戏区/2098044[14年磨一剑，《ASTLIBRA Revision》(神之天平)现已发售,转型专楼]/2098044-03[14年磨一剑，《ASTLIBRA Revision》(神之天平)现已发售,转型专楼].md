@@ -57,3 +57,14 @@
 
 —— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  灼眼艾莉亚  
+##### 4095#       发表于 2024-11-26 09:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66775055&amp;ptid=2098044" target="_blank">tansapple 发表于 2024-11-26 01:07</a>
+
+序章鬼村里卖的内容在城镇里都可以买到吧。</blockquote>
+我特地看了好几遍，武器店就是只有三个武器装甲，没有那两个饰品。
+

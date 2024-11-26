@@ -2763,3 +2763,21 @@ A：上次在台北電玩展時，有提過想要有個讓軌跡系列入門的�
 
 空黎差了多少年来着？这还是重制 圆不了一点吧
 
+
+*****
+
+####  flyreder  
+##### 7055#       发表于 2024-11-27 00:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66778637&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-11-26 14:40</a>
+也不用这么认真吧 就当普攻和初版碰怪一样呗 只是没有切换动画了
+
+空黎差了多少年来着？这还是重制 圆不了一 ...</blockquote>
+1202年利贝尔村姑➕童养婿开始游击修行之士全国徒步游
+1204一月条子坐火车去克州 三月里爷坐火车去托里斯塔（里爷：我就不应该……）
+1206里爷飞天
+1208 八月学**
+1209飞天
+
+轨迹基本都是两年一个新篇章，开始村姑联系人还要靠电报，谁曾想七年后都手机冲浪了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

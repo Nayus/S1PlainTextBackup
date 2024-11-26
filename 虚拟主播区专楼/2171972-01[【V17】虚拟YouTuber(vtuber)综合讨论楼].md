@@ -136,3 +136,15 @@ GdEl2y6agAAwBf6.jpg
 
 <img src="https://img.saraba1st.com/forum/202411/25/133945eurgz7q7g744u4w1.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  艾特娜  
+##### 891#       发表于 2024-11-26 12:48
+
+<blockquote>Porsche 发表于 2024-11-24 10:17
+这不是成了葛叶的师妹了，那下次师弟杯派谁去</blockquote>
+约了bochan算意料之内吧，直播讲究一个call back
+
+moka不可能在师弟杯作为弟子参战吧，你看连高木都要去师父位，他最高分好像就2000出头
+

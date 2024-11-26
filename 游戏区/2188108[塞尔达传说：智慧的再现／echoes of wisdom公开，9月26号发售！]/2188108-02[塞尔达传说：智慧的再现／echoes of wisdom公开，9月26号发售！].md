@@ -62,3 +62,11 @@ bossrush可以喝药啊，我带的基本都是回能元的
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  佛罗伦萨  
+##### 1700#       发表于 2024-11-26 16:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">战败线已经有8部作品了，其他两条线各3部，太拥挤了
+

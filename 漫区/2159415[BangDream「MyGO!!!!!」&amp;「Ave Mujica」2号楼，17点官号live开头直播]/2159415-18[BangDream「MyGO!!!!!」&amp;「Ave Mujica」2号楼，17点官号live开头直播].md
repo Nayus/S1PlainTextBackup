@@ -13642,3 +13642,28 @@ https://t.bilibili.com/1003963264190644227</blockquote>
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  仓鼠胖太  
+##### 26281#       发表于 2024-11-26 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66779341&amp;ptid=2159415" target="_blank">黑夜落叶秋天 发表于 2024-11-26 15:57</a>
+惊世一跪删了...
+
+想到双城把凯蔚镜头也删了差不多 感觉叔叔真能做这种脑溢血操作 ...</blockquote>
+我乱讲的，应该不至于吧，惊世一跪更接近债主和欠债人方向而不是cp方向吧，完美贴合欠债的（大祥老师）是大爷追债的（长崎女士）是孙子这一概念
+
+*****
+
+####  Aendst  
+##### 26282#       发表于 2024-11-26 16:09
+
+ 本帖最后由 Aendst 于 2024-11-26 16:12 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">……唉，算了，已经习惯了
+
+首先大x老师是黑称，正常人不喜欢
+
+其次祥子没有欠爽世什么东西，退个生命周期2周的学生社团给某些人闹麻了
+

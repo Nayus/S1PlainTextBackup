@@ -101,3 +101,27 @@
 我特地看了好几遍，武器店就是只有三个武器装甲，没有那两个饰品。</blockquote>
 饰品不在武器店……记得是在道具店里。
 
+
+*****
+
+####  christiny  
+##### 4099#       发表于 2024-11-26 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66519142&amp;ptid=2098044" target="_blank">睡不醒的虾米 发表于 2024-10-23 02:25</a>
+
+另外问一下，这个游戏每打过一个章节就会播放一次开场动画。这个是正常的吗……？ ...</blockquote>
+这动画包含了大量游戏剧情，等你玩过相应内容后，再看动画有不同的感悟。
+
+甚至后面动画某处还有变化……
+
+
+*****
+
+####  christiny  
+##### 4100#       发表于 2024-11-26 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66519118&amp;ptid=2098044" target="_blank">睡不醒的虾米 发表于 2024-10-23 02:14</a>
+
+成就解锁原来和加速器还有关系的吗……！</blockquote>
+这个属于STEAM延迟了……
+

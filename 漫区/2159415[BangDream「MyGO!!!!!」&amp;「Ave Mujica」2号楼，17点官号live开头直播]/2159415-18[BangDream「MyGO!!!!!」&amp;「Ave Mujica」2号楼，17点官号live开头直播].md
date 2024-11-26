@@ -13667,3 +13667,23 @@ https://t.bilibili.com/1003963264190644227</blockquote>
 
 其次祥子没有欠爽世什么东西，退个生命周期2周的学生社团给某些人闹麻了
 
+
+*****
+
+####  PDQ4  
+##### 26283#       发表于 2024-11-26 16:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+删什么都无所谓就是了，也不打算在你B看，肉眼可见的评论区也烂完<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+你鸡要删减不是血浆（抽象意义上）就是女同，也可能只是骷髅头，搞到真的概率**上升了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  金属化反射装甲  
+##### 26284#       发表于 2024-11-26 16:23
+
+挑骨头一点，脸红，爱心，牵手，摸脸，下跪，关于自杀和负能量的对话，宗教暗示强的画面，只是这种删改很幽默，该看这片子的人早就看过了，会去看的人也不会特意去看残疾版本
+

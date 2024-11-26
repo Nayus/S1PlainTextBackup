@@ -801,3 +801,16 @@ e17真炒冷饭还不如用老版人设呢，新版看着是真的不舒服。
 
 游戏太旧了, 很多桥段都被其他游戏借鉴, 而且这是个超慢热的作品, 前期剧情很沉闷.
 
+
+*****
+
+####  轨迹秒了  
+##### 81#       发表于 2024-11-26 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66773052&amp;ptid=2208135" target="_blank">defer 发表于 2024-11-25 19:50</a>
+
+https://www.douban.com/review/9871084/
+
+透光了，打算玩新版的或者没玩过老版的不要点 ...</blockquote>
+剧情只记得哈基米德原理，这些基本看不懂了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

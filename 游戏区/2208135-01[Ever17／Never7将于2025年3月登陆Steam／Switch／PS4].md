@@ -824,3 +824,15 @@ https://www.douban.com/review/9871084/
 
 ever17通关没多久跟我说移植pc<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yamato gun  
+##### 83#       发表于 2024-11-26 12:39
+
+<blockquote>伊迪潘宫森 发表于 2024-11-25 10:47
+总有人说想失忆玩一遍的游戏之一，实际上玩过后三五年基本就忘差不多了，不信你买了试试 ...</blockquote>
+不至于，十年前玩的了，全篇都在铺垫两个时间线和bw，这都记不住的话是玩个啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

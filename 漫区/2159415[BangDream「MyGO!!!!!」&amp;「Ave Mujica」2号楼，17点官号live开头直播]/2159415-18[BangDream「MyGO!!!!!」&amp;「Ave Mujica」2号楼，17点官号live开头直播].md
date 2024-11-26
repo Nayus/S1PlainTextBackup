@@ -13695,3 +13695,17 @@ https://t.bilibili.com/1003963264190644227</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">如果把XX删了，我不介意毁灭Bilibili
 
+
+*****
+
+####  66367749  
+##### 26286#       发表于 2024-11-26 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66779452&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-11-26 16:09</a>
+……唉，算了，已经习惯了
+
+首先大x老师是黑称，正常人不喜欢
+
+其次祥子没有欠爽世什么东西，退个生命周期2周 ...</blockquote>
+你楼时不时能有类似时光机的体验，真的好抽象<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

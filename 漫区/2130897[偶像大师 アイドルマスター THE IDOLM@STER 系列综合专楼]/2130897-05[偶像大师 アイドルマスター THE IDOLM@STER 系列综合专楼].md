@@ -1050,3 +1050,13 @@ CGSS十週年LIVE相關：
 
 这凛世，是真的要抽爆了
 
+
+*****
+
+####  Alleyht  
+##### 6711#       发表于 2024-11-26 23:55
+
+没想到是04，这造型你说10年后我也信啊，Plove势们给甘奈点面子吧，不要再赢了好吗
+
+只能说还好不是Vo羽那，因为我还没攒够一井<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

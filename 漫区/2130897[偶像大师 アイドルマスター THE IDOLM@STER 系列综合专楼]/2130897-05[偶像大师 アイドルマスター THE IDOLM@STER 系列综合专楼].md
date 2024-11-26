@@ -927,3 +927,91 @@ Q.はつみちゃんもっと出して
 A.すでに出しすぎでしょ！山本亮(はつみちゃん監修担当)が喜んでる</blockquote>
 真城目前还不会实装啊
 
+
+*****
+
+####  wfhtony  
+##### 6707#       发表于 2024-11-26 20:19
+
+ 本帖最后由 wfhtony 于 2024-11-26 20:20 编辑 
+
+<img src="https://img.saraba1st.com/forum/202411/26/201857jxo4e9kdx92ssga4.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-11-26-20h14m01s297.png</strong> (2.28 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-26 20:18 上传
+
+<img src="https://img.saraba1st.com/forum/202411/26/201858ikv818dd7kxkd5c5.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-11-26-20h14m09s806.png</strong> (2.53 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-26 20:18 上传
+
+<img src="https://img.saraba1st.com/forum/202411/26/201900e2bbc64gbrqsyy24.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-11-26-20h14m21s403.png</strong> (2.26 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-26 20:19 上传
+
+你們倆果然在啊（
+
+CGSS十週年LIVE相關：
+
+<img src="https://img.saraba1st.com/forum/202411/26/201901jjvzs9499oestcje.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-11-26-20h14m58s120.png</strong> (1.65 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-26 20:19 上传
+
+本次的主題是「Let's Amusement!」，主旨「把遊樂場搬上舞臺。」，共五地十公演。
+
+第一場大阪場的出演人員：
+
+<img src="https://img.saraba1st.com/forum/202411/26/201903rzr9izoyjto0hr9j.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-11-26-20h16m08s095.png</strong> (2.31 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-26 20:19 上传
+
+第二場東京場的出演人員：
+
+<img src="https://img.saraba1st.com/forum/202411/26/201905nmh3e9prpznperhm.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-11-26-20h16m36s240.png</strong> (2.61 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-26 20:19 上传
+
+第三場沖繩場（復仇場）的出演人員：
+
+<img src="https://img.saraba1st.com/forum/202411/26/201906neeqnqijgq21jeh1.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-11-26-20h16m56s360.png</strong> (2.17 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-26 20:19 上传
+
+第四場福岡場的出演人員：
+
+<img src="https://img.saraba1st.com/forum/202411/26/201908xkjgq4pjhqsgs1ja.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-11-26-20h17m17s257.png</strong> (2.19 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-26 20:19 上传
+
+第五場神奈川場的詳情將於後日公開。
+

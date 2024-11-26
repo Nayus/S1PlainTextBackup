@@ -82,3 +82,11 @@ bossrush可以喝药啊，我带的基本都是回能元的
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  北条早苗  
+##### 1702#       发表于 2024-11-26 20:21
+
+智杖也进正史了啊，居然是初代之前<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

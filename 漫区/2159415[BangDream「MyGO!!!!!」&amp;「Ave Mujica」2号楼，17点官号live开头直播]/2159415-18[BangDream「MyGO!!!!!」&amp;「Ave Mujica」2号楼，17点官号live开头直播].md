@@ -13439,3 +13439,13 @@ https://t.bilibili.com/1003963264190644227</blockquote>
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  仓鼠胖太  
+##### 26260#       发表于 2024-11-26 12:08
+
+可能怕母鸡卡先行放映以后，一堆人去找回旋镖？
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

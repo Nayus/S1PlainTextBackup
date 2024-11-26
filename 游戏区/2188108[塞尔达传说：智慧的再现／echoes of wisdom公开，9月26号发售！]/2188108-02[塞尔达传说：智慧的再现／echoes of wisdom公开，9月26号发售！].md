@@ -70,3 +70,15 @@ bossrush可以喝药啊，我带的基本都是回能元的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">战败线已经有8部作品了，其他两条线各3部，太拥挤了
 
+
+*****
+
+####  KBAC  
+##### 1701#       发表于 2024-11-26 20:07
+
+林克帽子黄条定理依然有效<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+（野炊林克的帽子上是绿条，智杖林克也戴着绿条帽子但是他家床头挂着个黄条帽子）
+战败线要素很多的四之剑+林克帽子上没黄条，被丢到了童年线黄昏公主后边，黄昏公主里加侬寄了，而四之剑+又有加侬，后来就给这个加侬补了个加侬二世的设定。这也是为什么我觉得野炊王泪可以放在战败线末尾，这两作的海拉鲁说是战败线海拉鲁衰退到彻底灭国后的再建国、转世加侬把故事又轮回了一遍，也说得通。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -13559,3 +13559,20 @@ https://t.bilibili.com/1003963264190644227</blockquote>
 比之前扭曲人体比例的曝光图确实强多了 
 人均大长腿
 
+
+*****
+
+####  NODY  
+##### 26273#       发表于 2024-11-26 15:01
+
+喵梦这个鞋子的设计很惊喜，我印象里这种款式的鞋都是那种比较注重品牌的角色穿的，很符合人设
+
+*****
+
+####  PDQ4  
+##### 26274#       发表于 2024-11-26 15:02
+
+对不起我之前太大声了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+喵梦那个鞋真的好惹眼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

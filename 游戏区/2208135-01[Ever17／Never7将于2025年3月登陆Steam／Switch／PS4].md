@@ -868,3 +868,37 @@ R11是准备留个大招吗？
 
 所以有没有定论，要补的话到底补哪个版本比较好，我到现在还从来没有被剧透过。顺带问一下不是三部曲么需要按顺序都补么
 
+
+*****
+
+####  哎哟卧槽了  
+##### 87#       发表于 2024-11-26 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66780882&amp;ptid=2208135" target="_blank">yuanzhe001 发表于 2024-11-26 19:16</a>
+所以有没有定论，要补的话到底补哪个版本比较好，我到现在还从来没有被剧透过。顺带问一下不是三部曲么需要 ...</blockquote>
+獨立故事，先玩哪個都沒關系
+
+—— 來自 Google Pixel 2, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  仲可怀  
+##### 88#       发表于 2024-11-26 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66780882&amp;ptid=2208135" target="_blank">yuanzhe001 发表于 2024-11-26 19:16</a>
+
+所以有没有定论，要补的话到底补哪个版本比较好，我到现在还从来没有被剧透过。顺带问一下不是三部曲么需要 ...</blockquote>
+还是按照NEVER7 EVERY17 R11这个顺序来比较好
+
+能非常明显的感觉到进化 以及CURE这个概念从N7的不成熟 到R11那种到处不提 到处都有的感觉
+
+
+*****
+
+####  仲可怀  
+##### 89#       发表于 2024-11-26 19:26
+
+R11就算现在让中泽工和打越把当年原本的设计全做出来  也达不到现在这种玩家反过来解读入侵游戏的结果了
+
+这个游戏现在被玩家解读后的结果不能说比原来的设计更精妙，但是一定是更有META那个味道的
+

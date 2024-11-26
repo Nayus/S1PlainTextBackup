@@ -13687,3 +13687,11 @@ https://t.bilibili.com/1003963264190644227</blockquote>
 
 挑骨头一点，脸红，爱心，牵手，摸脸，下跪，关于自杀和负能量的对话，宗教暗示强的画面，只是这种删改很幽默，该看这片子的人早就看过了，会去看的人也不会特意去看残疾版本
 
+
+*****
+
+####  osore  
+##### 26285#       发表于 2024-11-26 16:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">如果把XX删了，我不介意毁灭Bilibili
+

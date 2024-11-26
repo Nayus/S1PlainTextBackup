@@ -45,3 +45,15 @@
 第二章的天平传送之后还有新的？ 就是这个回到了第一章的村子但是没有商店只有废墟 ...</blockquote>
 序章鬼村里卖的内容在城镇里都可以买到吧。
 
+
+*****
+
+####  牙狼GARO  
+##### 4094#       发表于 2024-11-26 08:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66774448&amp;ptid=2098044" target="_blank">灼眼艾莉亚 发表于 2024-11-25 23:05</a>
+第二章的天平传送之后还有新的？ 就是这个回到了第一章的村子但是没有商店只有废墟 ...</blockquote>
+再多说就涉及剧透了，你别急，再往后打打
+
+—— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

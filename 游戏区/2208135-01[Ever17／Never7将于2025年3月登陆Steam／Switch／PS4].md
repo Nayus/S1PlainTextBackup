@@ -721,3 +721,70 @@ E17的点子还不至于泛滥到这个程度，当然看得多了，震撼感�
 
 看了眼实体版好像只有NS版，只能捏着鼻子买了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  snkcapcom  
+##### 77#       发表于 2024-11-26 10:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66773759&amp;ptid=2208135" target="_blank">清浦刹那 发表于 2024-11-25 21:31</a>
+
+12月交响乐之雨
+
+1月传颂之物三部曲
+
+3月E17 </blockquote>
+<strong>月姬在ＮＳ上卖出超过１０万本</strong>
+
+<strong>［这类游戏在以前的ＷＩＩ上面．最多卖出５０００本］</strong>
+<strong>
+</strong>
+<strong>
+</strong>
+<strong>
+</strong>
+<strong>应该说ＮＳ客群比较广</strong>
+
+<strong>ＮＳ平台连桃铁都能卖出［４００万本］</strong>
+
+<strong>打破以前</strong>
+
+<strong>［ＰＳ１主机桃铁最高纪录］</strong>
+<strong>
+</strong>
+
+<strong>
+</strong>
+<strong>另外</strong>
+<strong>
+</strong>
+<strong>
+</strong>
+<strong>心跳ＧＳ４卖出３０万本</strong>
+
+<strong>超越当时ＰＳ２时代．．．．．．．．．．</strong>
+
+<strong>ＰＳ２是之前ＡＶＧ数量最多的家用机</strong>
+
+*****
+
+####  SorroFrost  
+##### 78#       发表于 2024-11-26 10:11
+
+e17真炒冷饭还不如用老版人设呢，新版看着是真的不舒服。
+
+
+*****
+
+####  再买自检星剁手  
+##### 79#       发表于 2024-11-26 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66773759&amp;ptid=2208135" target="_blank">清浦刹那 发表于 2024-11-25 21:31</a>
+
+12月交响乐之雨
+
+1月传颂之物三部曲
+
+3月E17 </blockquote>
+装机量有了就有赚头
+

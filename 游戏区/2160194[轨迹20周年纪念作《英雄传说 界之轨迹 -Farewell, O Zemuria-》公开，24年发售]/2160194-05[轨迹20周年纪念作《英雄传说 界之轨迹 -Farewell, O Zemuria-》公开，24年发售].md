@@ -2553,3 +2553,11 @@ ts大学生也可以算啊</blockquote>
 
 传回黎1又再走一遍流程太难绷了，干脆学闪4在最终迷宫门口放个传送打打试炼得了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 7035#       发表于 2024-11-26 09:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">你法那抠门劲肯定要素材复用啊，大概率是黎1开头的
+

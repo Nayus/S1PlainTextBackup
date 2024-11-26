@@ -1060,3 +1060,13 @@ CGSS十週年LIVE相關：
 
 只能说还好不是Vo羽那，因为我还没攒够一井<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ask_10A  
+##### 6712#       发表于 2024-11-27 01:13
+
+华子time<img src="https://p.sda1.dev/20/d71a74d8a277e38a74a70d15f3ed3ef0/CMP_20241127011314494.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/20/216712a4c002c5575d28f1240b7070ea/CMP_20241127011318168.jpg" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2121A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

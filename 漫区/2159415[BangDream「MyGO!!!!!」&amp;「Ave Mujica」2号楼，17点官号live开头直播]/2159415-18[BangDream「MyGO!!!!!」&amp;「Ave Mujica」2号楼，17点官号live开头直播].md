@@ -14460,3 +14460,40 @@ sly
 
 所以也知道是小孩子一起玩而已啊，看那想扒了祥子皮的架势，我还真以为他们认为ccc是人生大事乐队呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哈曼的YY  
+##### 26352#       发表于 2024-11-27 19:38
+
+你看话题又能轮回到命运共同体了 唉 重女
+
+母鸡卡搞传统那些太没创意了 喜欢演小剧场就去跑团吧
+
+*****
+
+####  PDQ4  
+##### 26353#       发表于 2024-11-27 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66788071&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-11-27 19:23</a>
+
+关于crychic相关的视角
+
+这方面构成挺有意思的，在crychic的事情上采用了大量的爽世和灯这两个角色的主观 ...</blockquote>
+
+感觉也是以前讨论过的了
+
+漏油说的也有道理，对于灯爽两个情感导向的角色，第一视角代入就是最好理解角色的
+
+ccc相关最大的问题是，爽灯视角看到的ccc过于正面了，甚至说没有一丁点不好，甚至立希回忆里也有祥子滤镜
+
+狗作为一个会强调角色负面性的动画，会唯独给ccc留下的全是好事？虽然解散那天很难看
+
+这个写法从我的角度看只有两种可能
+
+一种是当已逝之人/物在写，所以统一上了滤镜，那散团那天搞成那样，加上后续乌七八糟的事，我觉得有点侮辱逝者的恶意了
+
+第二就是这个滤镜是为了加深观众对于ccc正面形象的刻板印象，利于后面搞事情，鸡动画PV这个阴间风格，我觉得不无可能
+
+不过考虑独角兽以前搞的东西，你说她就是纯纯的恶趣味好像也没问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

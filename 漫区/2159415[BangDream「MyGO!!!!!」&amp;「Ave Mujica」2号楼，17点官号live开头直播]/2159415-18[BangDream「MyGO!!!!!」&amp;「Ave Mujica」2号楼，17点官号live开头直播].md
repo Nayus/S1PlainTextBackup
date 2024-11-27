@@ -15170,3 +15170,84 @@ mygo没怎么关注过不知道
 
 虽然cd销量跟抽选有密切关系，但是音乐质量这个样子拿什么吸引人听歌看live
 
+
+*****
+
+####  星天观测  
+##### 26402#       发表于 2024-11-27 23:07
+
+这就不得不提元素在众多debuff下还能磨上万了
+
+那个特典图，我真的很想问到底是谁在买啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+ps.前天好像看到个8888羊成交的海铃元素特典，我的妈呀
+
+*****
+
+####  silver鲤跃  
+##### 26403#       发表于 2024-11-27 23:10
+
+<img src="https://img.saraba1st.com/forum/202411/27/230659yt6bwdd1msss1sd0.png" referrerpolicy="no-referrer">
+
+<strong>59B6B732763A064961E84A825E2381D1.png</strong> (68.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-27 23:06 上传
+
+<img src="https://img.saraba1st.com/forum/202411/27/230651t411jd11jovd841x.png" referrerpolicy="no-referrer">
+
+<strong>25BACA3E160F68F2D645C2DE83493223.png</strong> (57.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-27 23:06 上传
+
+在nga和s1收集到137条数据
+
+p1为五选的喜爱投，p2为单选的真爱投
+
+团名曲双榜断层第一，姑且可以认为是目前mujica13首原创曲最受欢迎的曲子
+
+黑生，假面舞会，角综合来看应该是第二档
+
+风，水，地综合来看应该算第三档
+
+csc，双月，神蠢，火，以太第四档，
+
+素晴反向霸榜，在双榜拿下倒一也姑且可以认为素晴是目前最不受喜爱的曲子
+
+下面会去其他论坛社区扩大样本来观察排名会不会有巨大变动
+
+聊到曲子就把前两天的统计贴一下，又多了几十票之后并没有发生什么明显变化
+
+
+*****
+
+####  skives10  
+##### 26404#       发表于 2024-11-27 23:12
+
+音乐资源和美术资源都不太行
+wsd的资源都投在哪了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">单机游戏吗
+
+*****
+
+####  御幸一也  
+##### 26405#       发表于 2024-11-27 23:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">神笨居然也那麼低，大家是被MV的鬼圖嚇跑的嗎
+
+*****
+
+####  Aendst  
+##### 26406#       发表于 2024-11-27 23:14
+
+单机游戏能让建模精致渲染舒适的丰川祥子用华丽的动作系统打怪打boss吗，可以的话我能原谅武士道一秒钟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 26407#       发表于 2024-11-27 23:16
+
+泥樓什麼時候投一個MV鬼圖之最，感覺冠軍還是很有懸念的……越想越難繃<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

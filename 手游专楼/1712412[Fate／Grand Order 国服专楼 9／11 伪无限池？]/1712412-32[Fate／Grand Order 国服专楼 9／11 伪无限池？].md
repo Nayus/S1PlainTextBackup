@@ -20,3 +20,15 @@
 —— 来自 鹅球 v3.1.88.3-alpha ...</blockquote>
 建议买号买个拐齐全的，最好有高宝水伊吹的，然后后续一年XP 抽卡，或者等明年泳装那几个。
 
+
+*****
+
+####  doublehit  
+##### 46797#       发表于 2024-11-27 11:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66784128&amp;ptid=1712412" target="_blank">khxooo 发表于 2024-11-27 10:29</a>
+建议买号买个拐齐全的，最好有高宝水伊吹的，然后后续一年XP 抽卡，或者等明年泳装那几个。 ...</blockquote>
+最好买那种没绑手机的是吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

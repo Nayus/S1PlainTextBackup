@@ -1083,3 +1083,15 @@ CGSS十週年LIVE相關：
 只能说还好不是Vo羽那， ...</blockquote>
 凛世（以前）不是和甘奈坐一桌的吗（
 
+
+*****
+
+####  lunaticfool  
+##### 6714#       发表于 2024-11-27 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66782667&amp;ptid=2130897" target="_blank">Ask_10A 发表于 2024-11-27 01:13</a>
+华子time
+
+—— 来自 vivo V2121A, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
+这鸭鸭啊，高低是个格格<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

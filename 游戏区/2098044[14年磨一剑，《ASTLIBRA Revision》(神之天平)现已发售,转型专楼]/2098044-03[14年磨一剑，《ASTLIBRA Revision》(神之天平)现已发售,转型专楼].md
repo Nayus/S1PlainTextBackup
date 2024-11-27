@@ -187,3 +187,22 @@
 然后，温馨提醒一下，斗技场一定要去打，里面有很重要的道具。本 ...</blockquote>
 没有的，主城道具店我也看了。和猪猪商店一样卖的都是材料
 
+
+*****
+
+####  christiny  
+##### 4106#       发表于 2024-11-27 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66784105&amp;ptid=2098044" target="_blank">灼眼艾莉亚 发表于 2024-11-27 10:27</a>
+
+没有的，主城道具店我也看了。和猪猪商店一样卖的都是材料，可能第一章道具店有 ...</blockquote>
+我查了一下，幽灵村和天平洞穴的设计图饰品只有一个龙酒杯，就是在城里道具店卖。
+
+<img src="https://img.saraba1st.com/forum/202411/27/210028mzvgg4zzqqvxujiv.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20241127210120.png</strong> (451.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-27 21:00 上传
+

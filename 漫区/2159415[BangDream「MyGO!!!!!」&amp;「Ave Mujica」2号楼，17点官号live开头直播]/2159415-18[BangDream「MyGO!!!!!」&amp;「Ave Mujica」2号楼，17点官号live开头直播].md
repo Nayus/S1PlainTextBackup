@@ -14314,3 +14314,24 @@ mygo部分滤镜都这么厚了，突然反转了真的就是一般路过普通�
 
 说句有可能性都可能会被暗恋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">敢说是常有的事把人玻璃心弄碎了怎么办
 
+
+*****
+
+####  星天观测  
+##### 26341#       发表于 2024-11-27 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66787569&amp;ptid=2159415" target="_blank">哈曼的YY 发表于 2024-11-27 18:06</a>
+
+除了态度和不说清楚外 据我观察网友还喜欢轮的点有：说命运共同体自己怎么做不到 做不到也好意思叫全能之人 ...</blockquote>
+只能说又是说烂了的东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+万能之人监督早就解释过意思了，非要理解成什么超人那只能说怕不是太喜欢祥子了想给她造神
+
+*****
+
+####  PDQ4  
+##### 26342#       发表于 2024-11-27 18:33
+
+原来命运共同体是单向的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+都说患难见真情，ccc这种一戳就碎的关系我不好说，虽然两个周大概根本培养不起什么牢固关系<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

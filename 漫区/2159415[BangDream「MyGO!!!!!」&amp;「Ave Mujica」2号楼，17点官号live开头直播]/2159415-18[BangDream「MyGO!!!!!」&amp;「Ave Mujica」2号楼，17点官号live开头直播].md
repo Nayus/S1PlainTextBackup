@@ -14900,3 +14900,28 @@ mujica按照多方说法来看，沉重度甚至还会上升
 
 live也好谷也好，会有兴趣的大部分还是角色厨和乐队厨（和一些武士道厨），反正都是卖角色，虽然确实不好说这种方针最后结果如何，但官方想要试一试的想法还是挺明显的
 
+
+*****
+
+####  御幸一也  
+##### 26383#       发表于 2024-11-27 21:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不是吧，難道前面的樓友是覺得在ave mujica裡會大賣特賣CCC證明此團感情深厚嗎？
+
+呃……讓我看一眼2025年1月要播的動畫叫什麼，好像不是叫BanG Dream! CRYCHIC哦
+
+*****
+
+####  NODY  
+##### 26384#       发表于 2024-11-27 22:03
+
+两个星期应该是真的，隔壁拿蝶主线来算也是差不多的时间
+
+<img src="https://img.saraba1st.com/forum/202411/27/220323ae6ze4nlbkmjmm6m.png" referrerpolicy="no-referrer">
+
+<strong>32489244-f253-4c4f-83b8-55750c1b5bc3.png</strong> (68.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-27 22:03 上传
+

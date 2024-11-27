@@ -10873,3 +10873,14 @@ Liyuu新单 5400 新高</blockquote>
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  ViyViy  
+##### 1060#       发表于 2024-11-27 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66783431&amp;ptid=2201887" target="_blank">1096beam 发表于 2024-11-27 09:11</a>
+
+11人一年份的剧情分12集，剧本写得像个剧本大纲一样，对于脑补力强的人一个镜头能嗑个5000字短文，对于一般 ...</blockquote>
+就是典型的有想法没能力，应该说是，没魄力，毕竟各种“原因”牵制，没魄力对动画集数加量，也不敢退一步利用多媒体做补充；现在lld和漫画呈现的内容很难称得上是补充…
+

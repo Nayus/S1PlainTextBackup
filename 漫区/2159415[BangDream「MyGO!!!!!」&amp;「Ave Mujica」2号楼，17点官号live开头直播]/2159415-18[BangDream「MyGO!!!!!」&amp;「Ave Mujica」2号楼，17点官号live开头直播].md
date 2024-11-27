@@ -14022,3 +14022,14 @@ mujica动画舅舅已经开奶了
 
 [https://x.com/Donut0cat/status/1861420329861816680](https://x.com/Donut0cat/status/1861420329861816680)
 
+
+*****
+
+####  玖羽  
+##### 26316#       发表于 2024-11-27 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66782673&amp;ptid=2159415" target="_blank">哈曼的YY 发表于 2024-11-27 01:15</a>
+
+真遇到电梯出问题会走吗</blockquote>
+Soyo住的六本木レジデンシーズ是顶级豪华公寓，电梯要是停了，除非东京大地震
+

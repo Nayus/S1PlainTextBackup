@@ -6992,3 +6992,14 @@ TGA投票权重以米系媒体为主，估计今年年度就是暗喻幻想了�
 —— 来自 vivo V2241HA, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 啥玩意 我昨天PS5开机了 日服没提示更新啊 PS5版本本体也就35G左右 这是更新了个啥 
 
+
+*****
+
+####  zero4166  
+##### 3583#       发表于 2024-11-27 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66781945&amp;ptid=2140224" target="_blank">bwsusaga 发表于 2024-11-26 22:22</a>
+
+更新了个啥？我一直更新失败提示磁盘空间不足，但明明还有几十G的空间。这更新有多大？？ ...</blockquote>
+steam版更新是需要留出完整游戏大小的空间的，提示磁盘空间不足的话建议直接删了重新下
+

@@ -14109,3 +14109,13 @@ c团究竟是不是一个
 又多了一个方向
 不过这样会不会太爆炸了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 26322#       发表于 2024-11-27 14:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个还是太地狱了
+
+但如果制作组真的巨魔到想要通过不同视角下的反差来搞事，那确实不能说不可能
+

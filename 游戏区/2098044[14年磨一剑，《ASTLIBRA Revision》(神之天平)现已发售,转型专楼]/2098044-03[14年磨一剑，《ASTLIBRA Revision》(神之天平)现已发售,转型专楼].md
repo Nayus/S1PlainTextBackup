@@ -174,3 +174,16 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.93-alpha
 
+
+*****
+
+####  灼眼艾莉亚  
+##### 4105#       发表于 2024-11-27 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66779018&amp;ptid=2098044" target="_blank">christiny 发表于 2024-11-26 15:24</a>
+
+饰品不在武器店……记得是在道具店里。
+
+然后，温馨提醒一下，斗技场一定要去打，里面有很重要的道具。本 ...</blockquote>
+没有的，主城道具店我也看了。和猪猪商店一样卖的都是材料
+

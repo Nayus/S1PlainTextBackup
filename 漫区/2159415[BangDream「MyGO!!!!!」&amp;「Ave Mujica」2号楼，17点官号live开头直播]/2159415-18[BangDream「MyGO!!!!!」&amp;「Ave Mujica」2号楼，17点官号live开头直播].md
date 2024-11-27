@@ -15251,3 +15251,36 @@ wsd的资源都投在哪了<img src="https://static.saraba1st.com/image/smiley/f
 
 泥樓什麼時候投一個MV鬼圖之最，感覺冠軍還是很有懸念的……越想越難繃<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 26408#       发表于 2024-11-27 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66789341&amp;ptid=2159415" target="_blank">silver鲤跃 发表于 2024-11-27 23:10</a>
+
+在nga和s1收集到137条数据
+
+p1为五选的喜爱投，p2为单选的真爱投
+
+团名曲双榜断层第一，姑且可以认为是目前m ...</blockquote>
+蛮好笑的，团名曲是mujica目前唯一一首EG负责的曲子
+
+而长谷川最佳是均排第三的angles，大量堆积在中段/中后段，并且取得了双料垫底的好成绩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 26409#       发表于 2024-11-27 23:18
+
+这下EG薄纱supalove了，明年能不能有一首EG的曲子挽尊一下
+
+真是没想到有朝一日能求EG作曲<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 26410#       发表于 2024-11-27 23:18
+
+mv鬼图吗，我感觉一定是火的胜利啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

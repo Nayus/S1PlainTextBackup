@@ -1070,3 +1070,16 @@ CGSS十週年LIVE相關：
 
 —— 来自 vivo V2121A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Unlight  
+##### 6713#         楼主| 发表于 2024-11-27 08:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66782413&amp;ptid=2130897" target="_blank">Alleyht 发表于 2024-11-26 23:55</a>
+
+没想到是04，这造型你说10年后我也信啊，Plove势们给甘奈点面子吧，不要再赢了好吗
+
+只能说还好不是Vo羽那， ...</blockquote>
+凛世（以前）不是和甘奈坐一桌的吗（
+

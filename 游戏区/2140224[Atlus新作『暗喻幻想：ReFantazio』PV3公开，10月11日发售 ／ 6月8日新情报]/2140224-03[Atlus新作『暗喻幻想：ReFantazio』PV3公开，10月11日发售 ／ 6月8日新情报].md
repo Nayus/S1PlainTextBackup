@@ -6979,3 +6979,16 @@ TGA投票权重以米系媒体为主，估计今年年度就是暗喻幻想了�
 
 —— 来自 vivo V2241HA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  忘却旋律  
+##### 3582#       发表于 2024-11-27 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66782042&amp;ptid=2140224" target="_blank">cxl6191467 发表于 2024-11-26 22:40</a>
+
+卧槽！！！？怎么更新一下下载70多g
+
+—— 来自 vivo V2241HA, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+啥玩意 我昨天PS5开机了 日服没提示更新啊 PS5版本本体也就35G左右 这是更新了个啥 
+

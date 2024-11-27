@@ -15154,3 +15154,19 @@ CD销量和live动员的曲线能有萝五分之一程度的好看都要烧高�
 
 至于狗，喜欢我最速腰斩传说吗，当然能稳定1w左右已经很努力了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 26401#       发表于 2024-11-27 23:01
+
+ 本帖最后由 Aendst 于 2024-11-27 23:06 编辑 
+
+老邦有EG，萝在EG基础上有藤永，mujica有……喜欢我长谷川大介吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+就这个质量我真的都觉得销量能上5k+都是有神秘力量魔法效果
+
+mygo没怎么关注过不知道
+
+虽然cd销量跟抽选有密切关系，但是音乐质量这个样子拿什么吸引人听歌看live
+

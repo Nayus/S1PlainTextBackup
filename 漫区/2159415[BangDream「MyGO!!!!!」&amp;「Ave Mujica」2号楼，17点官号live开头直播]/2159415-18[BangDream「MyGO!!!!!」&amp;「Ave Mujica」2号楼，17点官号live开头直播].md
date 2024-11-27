@@ -14815,3 +14815,21 @@ c团祥是不稳定的炸弹，队内的爹，一拖四
 睦未知，但在炸团时候选择站在祥的那边，说明c团睦也没什么羁绊
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">用电竞圈的话来说，这五个人很好，但不是最合适的组合，鸡狗才是五人各自的归宿
 
+
+*****
+
+####  [皆神孝介]  
+##### 26377#       发表于 2024-11-27 21:03
+
+罗森这个联动活动是只有部分城市的部分店铺吗？<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 26378#       发表于 2024-11-27 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66788661&amp;ptid=2159415" target="_blank">[皆神孝介] 发表于 2024-11-27 21:03</a>
+
+罗森这个联动活动是只有部分城市的部分店铺吗？</blockquote>
+好像是沪+京津冀？总之沪不输
+

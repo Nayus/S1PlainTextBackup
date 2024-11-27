@@ -14800,3 +14800,18 @@ crychic双向程度那么深，那mygo和ave mujica是什么
 
 还好c姨姥不是主流，不然根本要不知道怎么解释了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 26376#       发表于 2024-11-27 20:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">首先，c团本质是祥子一拖四，祥子炸了就等于c团炸了，起码剧情里炸的时候没有副c来拉人回来
+接着好感和羁绊不是一回事，c团相当于galgame共通线，好感刷够了但是选项选错了，直接没进c团线。五人肯定忘不了c团，但是和c团没有羁绊，c团是真的彻底死透
+c团祥是不稳定的炸弹，队内的爹，一拖四
+灯活在祥的庇护下，不会有觉醒的时候
+立希因为c团祥的关系会有卑劣感抬不起头
+素食拿不下营业面具
+睦未知，但在炸团时候选择站在祥的那边，说明c团睦也没什么羁绊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">用电竞圈的话来说，这五个人很好，但不是最合适的组合，鸡狗才是五人各自的归宿
+

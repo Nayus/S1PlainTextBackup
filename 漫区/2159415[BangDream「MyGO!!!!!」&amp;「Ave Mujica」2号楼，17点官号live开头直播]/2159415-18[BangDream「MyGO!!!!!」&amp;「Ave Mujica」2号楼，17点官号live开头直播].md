@@ -14393,3 +14393,25 @@ sly
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">给泥潭找赛博义父不挺好的，换小号又不贵呢
 
+
+*****
+
+####  PDQ4  
+##### 26348#       发表于 2024-11-27 19:07
+
+ 本帖最后由 PDQ4 于 2024-11-27 19:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66787801&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-11-27 18:41</a>
+
+按一般常理来说，如果要写情比金坚双向命运共同体，设定上自然会把存续时间拉长
+
+时间越久，这种关系的稳固 ...</blockquote>
+这也是我之前说为什么怀疑明年睦祥视角会有反转
+
+白月光最近的就看芙莉莲，人走了以后看什么都会触景伤情，因为一起经历的足够多，在哪都能看见白月光的影子
+
+两周喝茶乐队有什么回忆，ktv和咖啡馆怕不是唯二两次团建了
+
+灯爽因为初遇祥子就印象深刻，都上了那种打破世界的滤镜，为什么立希就没那么惦记，因为她姐珠玉在前，劣等感早就犯过了，硬要说她的白月光是灯
+
+对睦祥来讲，ccc会是白月光？姨姥还是洗洗睡吧<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+

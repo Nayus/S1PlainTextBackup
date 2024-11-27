@@ -14373,3 +14373,23 @@ sly
 
 我倒是觉得没必要来泥漏聊天，典到多看一眼就会笑出声的姨姥罢了，没什么交流价值，甚至还是经典叫着黑称批皮角色厨的那种<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 26346#       发表于 2024-11-27 18:58
+
+真要来吗，只敢装理中客中立人，被人戳穿了就润
+
+为什么不亮明立场说话呢，是这个立场很丢人吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不如窝在小群截图阴湿得了
+
+
+*****
+
+####  相坂君  
+##### 26347#       发表于 2024-11-27 19:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">给泥潭找赛博义父不挺好的，换小号又不贵呢
+

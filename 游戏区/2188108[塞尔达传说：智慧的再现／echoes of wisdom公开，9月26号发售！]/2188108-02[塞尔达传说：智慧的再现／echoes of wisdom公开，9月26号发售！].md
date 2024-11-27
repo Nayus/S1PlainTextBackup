@@ -90,3 +90,22 @@ bossrush可以喝药啊，我带的基本都是回能元的
 
 智杖也进正史了啊，居然是初代之前<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  北一硝子  
+##### 1703#       发表于 2024-11-27 10:56
+
+搭车问，火山奥尔汀城门口有一个温泉，旁边有个人在那里发抖，上前对话，说总算来到向往已久的温泉了，但累得动不了了。这个有支线吗？
+
+*****
+
+####  罗克萨斯  
+##### 1704#       发表于 2024-11-27 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66784407&amp;ptid=2188108" target="_blank">北一硝子 发表于 2024-11-27 10:56</a>
+搭车问，火山奥尔汀城门口有一个温泉，旁边有个人在那里发抖，上前对话，说总算来到向往已久的温泉了，但累 ...</blockquote>
+没有，就是个普通NPC
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

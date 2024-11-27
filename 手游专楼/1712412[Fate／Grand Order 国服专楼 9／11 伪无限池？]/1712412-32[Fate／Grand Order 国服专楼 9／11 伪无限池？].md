@@ -52,3 +52,13 @@
 
 800石补了妖兰第二宝，我一定是被这色龙迷了心窍了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 46800#       发表于 2024-11-27 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66786702&amp;ptid=1712412" target="_blank">马桶3 发表于 2024-11-27 16:12</a>
+800石补了妖兰第二宝，我一定是被这色龙迷了心窍了</blockquote>
+随便呗，有整整半年攒石，现在放开抽卡就是了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

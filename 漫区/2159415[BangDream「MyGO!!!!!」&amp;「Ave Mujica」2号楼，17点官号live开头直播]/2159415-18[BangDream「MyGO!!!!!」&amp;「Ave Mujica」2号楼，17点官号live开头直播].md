@@ -15284,3 +15284,29 @@ p1为五选的喜爱投，p2为单选的真爱投
 
 mv鬼图吗，我感觉一定是火的胜利啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  silver鲤跃  
+##### 26411#       发表于 2024-11-27 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66789364&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-11-27 23:14</a>
+
+单机游戏能让建模精致渲染舒适的丰川祥子用华丽的动作系统打怪打boss吗，可以的话我能原谅武士道一秒钟 ...</blockquote>
+猜你需要 mhwi丰川祥子mod<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 26412#       发表于 2024-11-27 23:31
+
+我覺得風更鬼！<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 26413#       发表于 2024-11-27 23:31
+
+其实火的图放在那个mv里还挺搭的
+就是千不该万不该拿出来做特典
+

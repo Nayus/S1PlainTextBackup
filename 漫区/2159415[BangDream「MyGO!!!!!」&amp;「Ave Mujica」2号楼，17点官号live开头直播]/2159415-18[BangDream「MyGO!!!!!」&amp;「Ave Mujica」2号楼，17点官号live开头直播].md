@@ -14119,3 +14119,24 @@ c团究竟是不是一个
 
 但如果制作组真的巨魔到想要通过不同视角下的反差来搞事，那确实不能说不可能
 
+
+*****
+
+####  NODY  
+##### 26323#       发表于 2024-11-27 14:35
+
+怎么个地狱法，睦不开心是因为觉得c团组成的这两个星期灯素希一直在欺负祥子吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 26324#       发表于 2024-11-27 14:38
+
+ 本帖最后由 Aendst 于 2024-11-27 14:39 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那当然不至于，无非就是锤一下crychic只是塑料姐妹，根本没有爽世和灯滤镜回忆里的那么美好
+
+字面意义上的确实不怎么开心
+
+mygo部分滤镜都这么厚了，突然反转了真的就是一般路过普通社团那还是挺地狱的吧
+

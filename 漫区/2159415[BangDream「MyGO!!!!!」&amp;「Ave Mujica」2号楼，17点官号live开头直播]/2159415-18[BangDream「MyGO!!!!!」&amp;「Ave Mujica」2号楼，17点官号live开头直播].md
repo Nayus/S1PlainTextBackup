@@ -14291,3 +14291,26 @@ mygo部分滤镜都这么厚了，突然反转了真的就是一般路过普通�
 
 除了态度和不说清楚外 据我观察网友还喜欢轮的点有：说命运共同体自己怎么做不到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 做不到也好意思叫全能之人
 
+
+*****
+
+####  ddy2811  
+##### 26339#       发表于 2024-11-27 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66786032&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-11-27 14:38</a>
+
+那当然不至于，无非就是锤一下crychic只是塑料姐妹，根本没有爽世和灯滤镜回忆里的那么美好
+
+字面意义上的确 ...</blockquote>
+很地狱吗？这好像是常有的事吧，就像不同人对同一个班集体的回忆可以截然不同一样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 26340#       发表于 2024-11-27 18:22
+
+漏油说话小心了，回血盾效果虽然衰减了，但是不好说会不会被截图到其他地方阴湿<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+说句有可能性都可能会被暗恋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">敢说是常有的事把人玻璃心弄碎了怎么办
+

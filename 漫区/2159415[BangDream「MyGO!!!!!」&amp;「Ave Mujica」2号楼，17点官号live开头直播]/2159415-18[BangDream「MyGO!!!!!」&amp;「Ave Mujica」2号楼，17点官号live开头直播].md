@@ -14618,3 +14618,89 @@ syl
 
 真服了，提到交心就套给c团没点思考，c团应该属于是双向（目前双向程度还需要打个问号，祥子视角信息太割裂）的情感深度寄托，母鸡卡再玩反转也不能把这点推翻，否则mygo主要人物设定基础都成小丑了，编剧不可能这么对自己笔下的角色
 
+
+*****
+
+####  仓鼠胖太  
+##### 26361#       发表于 2024-11-27 20:17
+
+居然还有用回忆情节少来反打的，ok，愿意怎么相信都随意，反正没几天就先行了，看编剧怎么圆呗
+
+*****
+
+####  Aendst  
+##### 26362#       发表于 2024-11-27 20:18
+
+ 本帖最后由 Aendst 于 2024-11-27 20:19 编辑 
+
+mygo主要人物是没有椎名立希千早爱音和要乐奈吗请问<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+那倒是给一个像样的能论证的观点啊，顾左右而言他一个劲输出我觉得，都不一定，这种打滚泥漏早就有过经验了
+
+问就是都不一定
+
+*****
+
+####  NODY  
+##### 26363#       发表于 2024-11-27 20:20
+
+<img src="https://img.saraba1st.com/forum/202411/27/202007a565el65ekkdl6i6.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ92eo-6pcpZcT3cSlc-sg.jpg</strong> (128.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-27 20:20 上传
+
+<img src="https://img.saraba1st.com/forum/202411/27/202007grddqcvn3r3vr11r.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ92eo-ftimZhT3cSsg-lc.jpg</strong> (173.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-27 20:20 上传
+
+
+*****
+
+####  skives10  
+##### 26364#       发表于 2024-11-27 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66788323&amp;ptid=2159415" target="_blank">仓鼠胖太 发表于 2024-11-27 20:02</a>
+所谓的设定2周只是观众倒推盘的吧，难道官方认过？二设开玩笑聊聊就算了，别当真啊。
+同时如果要用结成时间 ...</blockquote>
+不妨换个角度综合思考
+那就是邦多利其他的乐队 面对自己团内的灵魂人物
+一看就是有隐情的淋着雨来宣布退团
+她们又会是什么反应
+c团这个 只有soyo一个人尝试上前缓和气氛 给对方擦一下雨水 仔细想想真的正常吗
+
+不否认c团彼此的好感度
+但是羁绊值不够这一点  我觉得已有的剧情里表现的也挺明显的
+
+*****
+
+####  星天观测  
+##### 26365#       发表于 2024-11-27 20:22
+
+我不一定是对的，但你一定是错的
+
+轮回烂了的东西还不如跟前几天一样没人说话呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 26366#       发表于 2024-11-27 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66788433&amp;ptid=2159415" target="_blank">NODY 发表于 2024-11-27 20:20</a></blockquote>
+好小众的摆法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 26367#       发表于 2024-11-27 20:25
+
+感觉确实没什么好讨论的，纯粹轮回
+
+就像之前汴到最后也只能梗着脖子说一句ccc才是真的开心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

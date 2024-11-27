@@ -10765,3 +10765,18 @@ Liyuu新单 5400 新高</blockquote>
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  一心而用  
+##### 1051#       发表于 2024-11-27 08:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66783061&amp;ptid=2201887" target="_blank">csolfans 发表于 2024-11-27 07:53</a>
+
+对于这集的看法 两边出奇的一致
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 v3.0.0-alph ...</blockquote>
+我个人倒是觉得没这么不堪，就是铺垫许久的Liella！内战被这么敷衍过去包饺子了。鬼冢姐妹也是光速讲和。
+
+但是有前面的雷埋着我也想不到什么更好的处理办法，谁赢都注定要挨骂。
+

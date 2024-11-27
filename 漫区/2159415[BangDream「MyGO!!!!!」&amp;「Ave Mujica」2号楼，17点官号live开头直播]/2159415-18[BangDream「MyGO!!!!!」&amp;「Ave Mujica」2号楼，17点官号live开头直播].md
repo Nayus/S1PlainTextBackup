@@ -14497,3 +14497,77 @@ ccc相关最大的问题是，爽灯视角看到的ccc过于正面了，甚至�
 
 不过考虑独角兽以前搞的东西，你说她就是纯纯的恶趣味好像也没问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  桜庭千景  
+##### 26354#       发表于 2024-11-27 19:54
+
+ 本帖最后由 桜庭千景 于 2024-11-27 19:55 编辑 
+
+<img src="https://img.saraba1st.com/forum/202411/27/195526whn3omve7mgozyzv.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_226528873834704.jpg</strong> (212.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-27 19:55 上传
+
+<img src="https://img.saraba1st.com/forum/202411/27/195403u7141nt8b818xoa4.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_225343638384364.jpg</strong> (65.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-27 19:54 上传
+
+<img src="https://img.saraba1st.com/forum/202411/27/195411c2ssbb1s66e6cibu.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_226258928472246.jpg</strong> (188.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-27 19:54 上传
+
+<img src="https://img.saraba1st.com/forum/202411/27/195415pnjhgoglnjiajelt.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_226260177947766.jpg</strong> (292.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-27 19:54 上传
+
+*****
+
+####  Aendst  
+##### 26355#       发表于 2024-11-27 19:56
+
+ 本帖最后由 Aendst 于 2024-11-27 19:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66788184&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-11-27 19:40</a>
+
+感觉也是以前讨论过的了
+
+漏油说的也有道理，对于灯爽两个情感导向的角色，第一视角代入就是最好理解角色 ...</blockquote>
+个人理解
+
+立希回忆其实也很微妙，虽然可以说是crychic相关，但实际上只有祥子相关，并且几乎就是在描写劣等感，说同样是便于理解角色的考量我觉得没问题
+
+爽世就不用多讲了，她心中的crychic必须是美好的，才能解释她的行为
+
+灯则是用来描写她的苦闷和负面情感，crychic不美好（需要美好并且碎了）又怎么表现灯在组乐队这件事上的迷路
+
+已逝会比较奇怪，就像漏油说的一样，散团当天和相关后续很难看所以才会搞得这么多观众都在分锅
+
+有些情节说难听点某种意义上就是在鞭尸（甚至有点找乐子），虽然不是企划要推的对象，但官方也不至于对crychic这么大恶意吧
+
+滤镜加深刻板印象便于反转倒是也有可能，这个就看绫奈想写怎样的故事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仓鼠胖太  
+##### 26356#       发表于 2024-11-27 20:02
+
+所谓的设定2周只是观众倒推盘的吧，难道官方认过？二设开玩笑聊聊就算了，别当真啊。
+同时如果要用结成时间短所以情感很淡薄来讨论c团是否有深入沟通环境的，那我只能说看啥动漫啊…二次元就是个情感高强度压缩集合地，一天的时间都可以交心的那种，宁可质疑角色是否有性格障碍也不要质疑她们的真情实感程度吧
+

@@ -2794,3 +2794,50 @@ A：上次在台北電玩展時，有提過想要有個讓軌跡系列入門的�
 
 奇点就是克州搞出来的导力网络，当时就有吐槽一个地区这么搞还好说，大陆全境这么干恐怕要起飞了。互联网导致的信息量爆炸生产力大跃进外加出来了一大堆破事也算是紧跟时事……
 
+
+*****
+
+####  卢迪克  
+##### 7057#       发表于 2024-11-27 19:24
+
+ 本帖最后由 卢迪克 于 2024-11-27 19:25 编辑 
+
+东部各区域原型，
+
+内陆=中国
+
+极东=日本。
+
+因为龙来是极东+内陆混合文化
+
+东南=印度（乌鲁米）
+
+北部=俄罗斯（白人）
+
+<img src="https://img.saraba1st.com/forum/202411/27/192510zb9cjzeineevo0wy.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241127_191537.jpg</strong> (191.67 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-11-27 19:25 上传
+
+<img src="https://img.saraba1st.com/forum/202411/27/192515pm6n763yv4ji6i7n.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241127_192448.jpg</strong> (206.13 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-11-27 19:25 上传
+
+<img src="https://img.saraba1st.com/forum/202411/27/192524qm60ls52c5v65s5o.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20241127_192210.jpg</strong> (107.07 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-11-27 19:25 上传
+

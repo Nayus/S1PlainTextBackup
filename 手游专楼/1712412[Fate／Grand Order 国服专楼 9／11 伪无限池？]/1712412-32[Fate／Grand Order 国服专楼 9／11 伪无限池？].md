@@ -32,3 +32,15 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  khxooo  
+##### 46798#       发表于 2024-11-27 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66784475&amp;ptid=1712412" target="_blank">doublehit 发表于 2024-11-27 11:05</a>
+最好买那种没绑手机的是吧
+
+—— 来自 鹅球 v3.1.88.3-alpha</blockquote>
+对，毕竟不是没有先例，买没绑的安全点。
+

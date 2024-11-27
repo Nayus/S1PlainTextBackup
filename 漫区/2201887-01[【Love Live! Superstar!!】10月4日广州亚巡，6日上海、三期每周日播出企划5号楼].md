@@ -10846,3 +10846,30 @@ Liyuu新单 5400 新高</blockquote>
 
 第8话 60.4% 10.5% 8.2% 9.2% 11.5% 约2200
 
+
+*****
+
+####  adw667  
+##### 1058#       发表于 2024-11-27 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66783712&amp;ptid=2201887" target="_blank">梶原ひかり 发表于 2024-11-27 09:47</a>
+
+第1话 55.1% 15.7% 14.8% 6.0% 8.3% 约2400
+
+第2话 65.6% 15.8% 9.5% 3.8% 5.3% 约2100
+
+第3话 69.9% 12.2% 8 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这人数降得我都怀疑是不是第六集打差评的故意给第七集打好评来对比表达“逢中必反”了
+
+
+*****
+
+####  ads147147  
+##### 1059#       发表于 2024-11-27 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66784528&amp;ptid=2201887" target="_blank">adw667 发表于 2024-11-27 11:09</a>
+这人数降得我都怀疑是不是第六集打差评的故意给第七集打好评来对比表达“逢中必反”了 ...</blockquote>
+或许这个草台解释才是真相。。。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

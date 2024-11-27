@@ -14967,3 +14967,55 @@ live也好谷也好，会有兴趣的大部分还是角色厨和乐队厨（和�
 
 又来了，我还以为萝拉丝ppp的票都卖不出去了呢，是不是接下来就是没狗谁知道你邦了
 
+
+*****
+
+####  Aendst  
+##### 26388#       发表于 2024-11-27 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66789002&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-11-27 22:07</a>
+
+如果Ave Mujica能做到：1) 像MyGO一样重视女女关系性；2) 像MyGO一样在中国大爆
+
+接下来的一切问题就会坍 ...</blockquote>
+那不能这么说，股东不满就说明收益真的不符合预期<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+并且，日本公司始终还是会更重视本土，除非大爆到现象级完全碾压本土【并且长期稳定】，mygo肉眼可见的做不到
+
+而且邦多利企划这么多年了，基本盘始终是老邦打下来的，尤其高人气的团，新乐队真的各方面完全比不了的
+
+mujica……鉴于武士道总有惊天操作我不抱什么希望
+
+至少音乐方面几乎不太可能比老团强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">音乐企划做成这样也挺不容易的
+
+*****
+
+####  桜庭千景  
+##### 26389#       发表于 2024-11-27 22:19
+
+<blockquote>玖羽 发表于 2024-11-27 22:07
+如果Ave Mujica能做到：1) 像MyGO一样重视女女关系性；2) 像MyGO一样在中国大爆
+
+接下来的一切问题就会坍 ...</blockquote>
+闹麻了，能不能不要这么会爆典，不知道的还以为mygo开上巨蛋了
+
+
+*****
+
+####  Sabbah  
+##### 26390#       发表于 2024-11-27 22:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">如果动画的声望水平能正确与企划综合实力正相关的话那根据蝶ova的评价很难想象这破逼企划怎么能活到mygo播出那天的
+
+*****
+
+####  daiquan333  
+##### 26391#       发表于 2024-11-27 22:24
+
+<blockquote>玖羽 发表于 2024-11-27 22:07
+如果Ave Mujica能做到：1) 像MyGO一样重视女女关系性；2) 像MyGO一样在中国大爆
+
+接下来的一切问题就会坍 ...</blockquote>
+
+沙笔蹭nm呢，再踩其他老团呢
+

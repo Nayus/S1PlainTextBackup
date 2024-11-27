@@ -14351,3 +14351,25 @@ mygo部分滤镜都这么厚了，突然反转了真的就是一般路过普通�
 
 crychic作为埋设冲突的背景板确实是相当好用的
 
+
+*****
+
+####  相坂君  
+##### 26344#       发表于 2024-11-27 18:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哎哟，小心了，回头就会变成：你又不说清楚，怎么让她们跟丰川祥子命运共同体
+话题又轮回了！
+
+sly
+泥楼的发言被截图出现在哪儿都不奇怪，毕竟视奸泥楼的人那可太多了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+当然我更希望有些人来楼里聊聊天，而不是断章取义截图出去阴湿呢
+
+*****
+
+####  Aendst  
+##### 26345#       发表于 2024-11-27 18:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">那可能是泥潭门槛太高导致的
+
+我倒是觉得没必要来泥漏聊天，典到多看一眼就会笑出声的姨姥罢了，没什么交流价值，甚至还是经典叫着黑称批皮角色厨的那种<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

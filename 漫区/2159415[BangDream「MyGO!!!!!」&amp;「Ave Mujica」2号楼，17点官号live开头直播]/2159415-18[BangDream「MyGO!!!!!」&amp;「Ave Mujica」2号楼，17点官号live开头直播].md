@@ -15045,3 +15045,90 @@ syl，机构怎么包饺子其实挺有趣的，因为你参考老团和谐友�
 
 不会觉得编辑了就无事发生吧，还好手快存档了，下次再踩一次咱就发一次爆典图好吧 
 
+
+*****
+
+####  PDQ4  
+##### 26394#       发表于 2024-11-27 22:38
+
+狗不评价
+
+但是鸡虽然组乐队初心不纯粹，但是对音乐的热爱这一点毋庸置疑，ave mujica无论是队名还是同名曲，鸡的世界观就绕不开音乐
+
+虽然现在深邃黑暗幻想，等团稳了，主线突入第二章说不定也王道追逐巅峰了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 26395#       发表于 2024-11-27 22:39
+
+ 本帖最后由 Aendst 于 2024-11-27 22:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66789021&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-11-27 22:12</a>
+
+想试一试新路线这个确实，所以鸡狗的动画结局如果求稳包个大家最后回归体面的饺子，求变化那可能真不包了， ...</blockquote>
+这就回到很早之前泥漏说过的话题了，mujica的企划开始时间是不是很早之前（以及原案是不是比mygo更早，换言之：蝶之后的下一个乐队），如果是，那么确实可能多多少少会考虑一些和老团的联系
+
+明年是邦多利十周年，有整个企划动画内容对于一个正常的2.5企划公司来说是很理所当然应该做的事
+
+mujica动画明年春季播完并且早就已经做完了，这个空档做企划新动画，夏秋放纪念动画我觉得是可能的
+
+虽然想到是武士道就不抱希望了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 26396#       发表于 2024-11-27 22:41
+
+再贴一张，不然真以为紫微星横空出世之前你邦是什么臭鱼烂虾 啊
+
+-9lddQ0-b1siT3cSpl-wm.jpg
+(183.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-27 22:41 上传
+
+<img src="https://img.saraba1st.com/forum/202411/27/224147opnpwwznnsnph133.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  silver鲤跃  
+##### 26397#       发表于 2024-11-27 22:43
+
+最新单曲对最新单曲，鸡我就不找出来比了
+
+7B0F2492043E41DD3604461FBF402C89.jpg
+(178.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-27 22:42 上传
+
+<img src="https://img.saraba1st.com/forum/202411/27/224249jcdgndhqalsia500.jpg" referrerpolicy="no-referrer">
+
+692798C26B2B14417ECAD3AABCEC03DF.jpg
+(185.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-27 22:42 上传
+
+<img src="https://img.saraba1st.com/forum/202411/27/224257hp0dxdmed1xwwpnx.jpg" referrerpolicy="no-referrer">
+
+040266DAE31066E498BEA5335899731D.jpg
+(43.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-27 22:43 上传
+
+<img src="https://img.saraba1st.com/forum/202411/27/224301jhzooeqoeoqlzpmo.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 26398#       发表于 2024-11-27 22:44
+
+这下元年粉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

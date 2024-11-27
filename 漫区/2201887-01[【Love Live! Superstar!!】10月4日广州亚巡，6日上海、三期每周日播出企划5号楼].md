@@ -10754,3 +10754,14 @@ Liyuu新单 5400 新高</blockquote>
 <img src="https://p.sda1.dev/20/faee93f69257436f926e1a97d0998c37/GdT7vXBaoAEt9y5.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/20/63505cf1091a8433110a86b0117e97a0/GdTywBiaoAIEYbH.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csolfans  
+##### 1050#       发表于 2024-11-27 07:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66781671&amp;ptid=2201887" target="_blank">一心而用 发表于 2024-11-26 21:29</a></blockquote>
+对于这集的看法 两边出奇的一致
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

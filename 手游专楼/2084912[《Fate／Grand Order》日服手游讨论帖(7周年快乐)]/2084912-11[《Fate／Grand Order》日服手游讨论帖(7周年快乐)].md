@@ -91,3 +91,11 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就4个幕间还一天一个 是真的傻逼
 
+
+*****
+
+####  DARKGRAY  
+##### 15195#       发表于 2024-11-27 19:53
+
+也就20群充，直接加都问题不大<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+

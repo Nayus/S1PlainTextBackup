@@ -1016,3 +1016,11 @@ ABFLUG的Supra
 
 2024-11-27 23:23 上传
 
+
+*****
+
+####  Totokei  
+##### 56#       发表于 2024-11-28 00:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">有点兴趣，想问下这个游戏的操控是什么取向的？比较接近现在的哪一款游戏？
+

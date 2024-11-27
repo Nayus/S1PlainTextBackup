@@ -14778,3 +14778,25 @@ crychic双向程度那么深，那mygo和ave mujica是什么
 
 按照楼上漏油说的，我补充一下，crychic也不是灯的一辈子乐队
 
+
+*****
+
+####  星天观测  
+##### 26374#       发表于 2024-11-27 20:37
+
+是不是该快进到“凭什么不允许存在纯动画党，非得看你那个企划吗”了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 26375#       发表于 2024-11-27 20:42
+
+ 本帖最后由 PDQ4 于 2024-11-27 20:45 编辑 
+
+然后就变成这个和mygo联动的游戏是什么吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+想起来股东大会上有人质疑狗引流作用不行，融入不了老邦
+
+还好c姨姥不是主流，不然根本要不知道怎么解释了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -15132,3 +15132,25 @@ mujica动画明年春季播完并且早就已经做完了，这个空档做企�
 
 这下元年粉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 26399#       发表于 2024-11-27 22:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">依稀记得以前也有拿老团说事的，感想是真的没能力碰瓷老团
+
+CD销量和live动员的曲线能有萝五分之一程度的好看都要烧高香了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 26400#       发表于 2024-11-27 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66789194&amp;ptid=2159415" target="_blank">silver鲤跃 发表于 2024-11-27 22:43</a>
+
+最新单曲对最新单曲，鸡我就不找出来比了</blockquote>
+我记得紫线这单还有全线断货的原因，补货过了抽选期所以销量上不去
+
+至于狗，喜欢我最速腰斩传说吗，当然能稳定1w左右已经很努力了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

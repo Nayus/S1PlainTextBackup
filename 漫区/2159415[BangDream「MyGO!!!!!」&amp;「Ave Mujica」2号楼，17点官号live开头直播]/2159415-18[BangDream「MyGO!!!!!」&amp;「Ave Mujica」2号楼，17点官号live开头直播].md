@@ -14283,3 +14283,11 @@ mygo部分滤镜都这么厚了，突然反转了真的就是一般路过普通�
 
 泥楼在鸡杂楼孝祥楼孝初楼之后终于有新标签了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哈曼的YY  
+##### 26338#       发表于 2024-11-27 18:06
+
+除了态度和不说清楚外 据我观察网友还喜欢轮的点有：说命运共同体自己怎么做不到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 做不到也好意思叫全能之人
+

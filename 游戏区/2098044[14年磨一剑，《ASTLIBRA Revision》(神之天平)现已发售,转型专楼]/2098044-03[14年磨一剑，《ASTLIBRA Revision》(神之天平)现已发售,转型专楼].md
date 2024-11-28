@@ -206,3 +206,14 @@
 
 2024-11-27 21:00 上传
 
+
+*****
+
+####  灼眼艾莉亚  
+##### 4107#       发表于 2024-11-28 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66788644&amp;ptid=2098044" target="_blank">christiny 发表于 2024-11-27 21:00</a>
+
+我查了一下，幽灵村和天平洞穴的设计图饰品只有一个龙酒杯，就是在城里道具店卖。</blockquote>
+草，原来我是没往下翻，不好意思。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -7003,3 +7003,13 @@ TGA投票权重以米系媒体为主，估计今年年度就是暗喻幻想了�
 更新了个啥？我一直更新失败提示磁盘空间不足，但明明还有几十G的空间。这更新有多大？？ ...</blockquote>
 steam版更新是需要留出完整游戏大小的空间的，提示磁盘空间不足的话建议直接删了重新下
 
+
+*****
+
+####  李喜睡  
+##### 3584#       发表于 2024-11-28 09:17
+
+steam打折了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9180, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

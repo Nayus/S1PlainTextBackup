@@ -15573,3 +15573,19 @@ c团是在初创期就击中阿喀琉斯之踵，而团里每个人都有点性�
 
 说烂了的假药还在反刍，无语<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  相坂君  
+##### 26439#       发表于 2024-11-28 17:47
+
+请选择：
+
+A：态度不好
+
+B：不负责任
+
+C：伤害队友
+
+D：_______
+

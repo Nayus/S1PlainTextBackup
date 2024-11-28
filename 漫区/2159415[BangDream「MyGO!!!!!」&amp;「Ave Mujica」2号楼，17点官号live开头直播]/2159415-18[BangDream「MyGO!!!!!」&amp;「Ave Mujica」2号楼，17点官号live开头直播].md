@@ -15469,3 +15469,13 @@ GdcSdHWboAAJa1v.jpg
 
 <img src="https://img.saraba1st.com/forum/202411/28/114934xprjj5b5pvvpqrsl.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Akari  
+##### 26427#       发表于 2024-11-28 12:35
+
+我觉得我已经被驯化了
+
+我觉得火特典还挺好看的（在部分情况下）
+

@@ -947,3 +947,24 @@ dmzj章末吐槽怎么一群人说公主和龙融合了，最后一页这是公�
 
 —— 来自 vivo V2408A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  zzf111  
+##### 112#       发表于 2024-11-29 03:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66796750&amp;ptid=2159012" target="_blank">keroghy 发表于 2024-11-28 22:55</a>
+
+这个女骑士在吃死灵术士的幼虫，什么身份？
+
+—— 来自 vivo V2408A, Android 15上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+目前信息很少，不过一般上一话留的谜题二叔下一话就说清了（卡拉修）
+
+我猜是（想阻止此次事件死灵术士的）死灵术士的同族
+
+伊斯凯尔是王姐派的人，一直在观察通过书实时汇报，立场应该是王国龙化人皇室 不是议会和正规军
+
+所以伊斯凯尔在讲种族仇恨的历史时女骑士有几格看起来很不快
+
+至于为什么女骑士是人形，死灵术士这个称呼是龙化人取的蔑称还是种族名等将来解释吧
+

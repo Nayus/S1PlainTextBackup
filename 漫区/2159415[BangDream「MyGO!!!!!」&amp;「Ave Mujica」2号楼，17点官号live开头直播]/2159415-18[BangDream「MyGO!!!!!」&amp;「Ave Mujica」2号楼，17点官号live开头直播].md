@@ -15622,3 +15622,11 @@ D：_______
 
 真的说烂了，这个桥段我唯一好奇的点是认歌词这个是不是从初华那学来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  operatbig  
+##### 26444#       发表于 2024-11-28 19:38
+
+淘宝都开卖罗森谷子了……官方还在装死。
+

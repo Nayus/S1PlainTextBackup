@@ -496,3 +496,22 @@ you anal idol（
 
 编剧有没有可能是加藤阳一？，毕竟人家写过偶活
 
+
+*****
+
+####  湖静欲成冰  
+##### 54#       发表于 2024-11-29 00:57
+
+想要柿原优子。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  待宵  
+##### 55#       发表于 2024-11-29 01:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66797369&amp;ptid=2208663" target="_blank">pokemon最爱 发表于 2024-11-29 00:49</a>
+
+不知道偶Q的staff如何，纯奶的话我建议让全Q娃棚最自由的内藤P受累在法Q2之外顺便兼一下偶Q的制作人，然后 ...</blockquote>
+然而明年还有部战姬绝唱血统纯正的精神续作来爆杀Q娃
+

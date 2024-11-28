@@ -15357,3 +15357,13 @@ Water不是他写的（）
 火和风的图真的是百鬼夜行吧（）
 当时看到那个特典直接傻了（）
 
+
+*****
+
+####  星天观测  
+##### 26419#       发表于 2024-11-28 09:25
+
+讲个笑话，火和风都已经出过特典了
+
+稍显正常的水和力挽狂澜的土和以太会端上来吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

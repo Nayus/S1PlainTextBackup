@@ -1034,3 +1034,32 @@ ABFLUG的Supra
 
 话说楼主汉化事宜还没联系上作者吗（x，好像后面一直没提这事
 
+
+*****
+
+####  Tnsbilws  
+##### 58#         楼主| 发表于 2024-11-29 01:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66789623&amp;ptid=2166221" target="_blank">Totokei 发表于 2024-11-28 00:02</a>
+
+有点兴趣，想问下这个游戏的操控是什么取向的？比较接近现在的哪一款游戏？ ...</blockquote>
+因为这个游戏物理是完全往推头方向走的，完全没有一点滑动，所以算独树一帜了
+
+你可以自己下载亲自体验下，过弯完全吸着地面
+
+*****
+
+####  Tnsbilws  
+##### 59#         楼主| 发表于 2024-11-29 01:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66791405&amp;ptid=2166221" target="_blank">霖岚_ 发表于 2024-11-28 10:42</a>
+
+有山道好耶，不过好像数量不多，不知道正式版出来会不会继续更新
+
+话说楼主汉化事宜还没联系上作者吗（x，好 ...</blockquote>
+已经联系上了，但是作者还是和大多数开发者一样
+
+“因为还在做内容所以完全没考虑本地化”
+
+等做的差不多再说吧……
+

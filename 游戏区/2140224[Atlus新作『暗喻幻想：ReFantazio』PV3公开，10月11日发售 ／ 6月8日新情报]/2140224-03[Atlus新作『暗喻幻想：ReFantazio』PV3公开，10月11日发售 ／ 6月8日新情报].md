@@ -7013,3 +7013,19 @@ steam打折了<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 —— 来自 samsung SM-S9180, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  罗克萨斯  
+##### 3585#       发表于 2024-11-28 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66790753&amp;ptid=2140224" target="_blank">李喜睡 发表于 2024-11-28 09:17</a>
+steam打折了，还在观望的不建议这个价格入，我觉得这游戏打折到99块左右是合理价位
+
+—— 来自 samsung SM- ...</blockquote>
+P5R史低印象里是80多，SMTVV和P3R最低130多，这作肯定不会例外<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我今年算是被ATLUS的打折速度和折扣力度震惊到了，对等等党非常友好的厂商<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

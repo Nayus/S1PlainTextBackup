@@ -15348,3 +15348,12 @@ Water不是他写的（）
 富田一辉写的Water
 虽说长谷川这人不太会写键盘<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SakuraのOrigami  
+##### 26418#       发表于 2024-11-28 09:06
+
+火和风的图真的是百鬼夜行吧（）
+当时看到那个特典直接傻了（）
+

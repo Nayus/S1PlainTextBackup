@@ -15565,3 +15565,11 @@ c团是在初创期就击中阿喀琉斯之踵，而团里每个人都有点性�
 
 给我感觉像大学选修课小组作业主动建组包圆ppt和后勤的劳模家里有事以后参加不了，结果一群人分了一年的锅<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 26438#       发表于 2024-11-28 17:39
+
+说烂了的假药还在反刍，无语<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

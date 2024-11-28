@@ -10912,3 +10912,15 @@ Liyuu新单 5400 新高</blockquote>
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  伊卡石  
+##### 1064#       发表于 2024-11-28 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66790988&amp;ptid=2201887" target="_blank">cat1230 发表于 2024-11-28 09:47</a>
+是卖cd还是数字版？
+
+----发送自 Xiaomi Redmi K20 Pro,Android 9</blockquote>
+有实体碟
+

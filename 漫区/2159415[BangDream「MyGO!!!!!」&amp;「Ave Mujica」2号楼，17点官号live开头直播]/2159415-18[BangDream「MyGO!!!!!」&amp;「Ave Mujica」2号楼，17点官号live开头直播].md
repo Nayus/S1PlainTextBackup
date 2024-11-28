@@ -15438,3 +15438,34 @@ Water不是他写的（）
 饥渴的像吸血鬼
 [https://x.com/meu203/status/1861772490445627662](https://x.com/meu203/status/1861772490445627662)
 
+
+*****
+
+####  SakuraのOrigami  
+##### 26426#       发表于 2024-11-28 11:49
+
+青い薔薇を飾って
+
+気持ちを高めています。。🥀💙
+
+12/15(日)
+
+#AveMujica 4th LIVE『#Adventus』
+
+@ 武蔵野の森総合スポーツプラザ
+
+ゲストアクト：Roselia
+
+14日も楽しみ。🌙
+
+#バンドリ
+
+GdcSdHWboAAJa1v.jpg
+(1.13 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-28 11:49 上传
+
+<img src="https://img.saraba1st.com/forum/202411/28/114934xprjj5b5pvvpqrsl.jpg" referrerpolicy="no-referrer">
+

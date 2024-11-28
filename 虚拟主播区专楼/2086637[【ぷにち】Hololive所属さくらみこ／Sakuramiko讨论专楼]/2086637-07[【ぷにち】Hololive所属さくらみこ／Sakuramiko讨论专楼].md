@@ -16922,3 +16922,46 @@ sololive一整个月过去了，特报里面的各种联动和商品发售消息
 
 2024-11-28 18:22 上传
 
+
+*****
+
+####  holoan  
+##### 10273#         楼主| 发表于 2024-11-28 18:25
+
+<img src="https://img.saraba1st.com/forum/202411/28/182443pip1t9iu4xh47iht.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (210.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-28 18:24 上传
+
+<img src="https://img.saraba1st.com/forum/202411/28/182458qyy17bvf1lyb71vo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (214 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-28 18:24 上传
+
+<img src="https://img.saraba1st.com/forum/202411/28/182544hrhtzmvxovtvazxr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (76.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-28 18:25 上传
+
+*****
+
+####  holoan  
+##### 10274#         楼主| 发表于 2024-11-28 18:37
+
+<img src="https://img.saraba1st.com/forum/202411/28/183739k1q0kqivs70iv150.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (146.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-28 18:37 上传
+

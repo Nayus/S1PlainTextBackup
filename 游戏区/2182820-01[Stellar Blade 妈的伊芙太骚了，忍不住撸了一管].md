@@ -1189,3 +1189,19 @@ GM0FxiJbwAAA8uO.jpg
 
 一想到这里就发情不能了……/吐血
 
+
+*****
+
+####  rainsheep  
+##### 90#       发表于 2024-11-29 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66796816&amp;ptid=2182820" target="_blank">爱撕衣魔刃 发表于 2024-11-28 23:04</a>
+不行，新衣服会自动改变三围，
+
+实打实的人造人了，
+
+一想到这里就发情不能了……/吐血 ...</blockquote>
+旧衣服有些也会变，身材跟衣服走的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+

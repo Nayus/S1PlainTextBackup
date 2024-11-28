@@ -7068,3 +7068,11 @@ P5R史低印象里是80多，SMTVV和P3R最低130多，这作肯定不会例外<
 
 简称当然是MRFZ啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  医生狼多  
+##### 3591#       发表于 2024-11-29 00:08
+
+卖的好的索尼克也是光速打折了，世嘉现在就是学卡普空策略了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

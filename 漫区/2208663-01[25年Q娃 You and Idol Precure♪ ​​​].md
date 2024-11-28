@@ -376,3 +376,48 @@ you anal idol（
 
 现在要逢单数年凑一个非粉主？
 
+
+*****
+
+####  成田良美  
+##### 42#       发表于 2024-11-29 00:06
+
+好想继续担任明年的光美系构啊<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+我在乙女偶像领域也有丰富的经验，要让我的价值观传递给每一位观众<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  modedd  
+##### 43#       发表于 2024-11-29 00:08
+
+就推子那几段娱乐圈戏码的水准来看，他的核心竞争力不应该是都市魔幻+女角色党争吗，前者在q娃棚更白开水一样稀松平常，后者要怎么给你做进幼女番里啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不如直接请YAKISOBA过来唱OP得了，比啥都实在<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pokemon最爱  
+##### 44#       发表于 2024-11-29 00:10
+
+<img src="https://img.saraba1st.com/forum/202411/29/000222x58aus88sfo8g2zm.png" referrerpolicy="no-referrer">
+
+<strong>未标题-1.png</strong> (353.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-29 00:02 上传
+
+谷歌搜偶像Q娃这个标题结果发现了这么个玩意，2016年4月27日的推特（正好，当年在播法Q，明年偶Q开播时在播法Q2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这个学习Word2003三年的朋友做出来的海报上的宣传词唱歌跳舞战斗完全就是战姬绝唱……不过战姬绝唱的主角响爷确实挺Q娃的，战姬同款上松金子组合的新作更是谁看了谁觉得“这不是公主Q娃吗”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Parahure  
+##### 45#       发表于 2024-11-29 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66797226&amp;ptid=2208663" target="_blank">modedd 发表于 2024-11-29 00:08</a>
+
+就推子那几段娱乐圈戏码的水准来看，他的核心竞争力不应该是都市魔幻+女角色党争吗，前者在q娃棚更白开水一 ...</blockquote>
+女角色党争还不简单，加个男p同时像眼镜一样兼任助战角色就有发挥空间了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -43,3 +43,24 @@
 
 爱豆幼女番都火完这么多年了怎么才吃上啊。。。
 
+
+*****
+
+####  成田良美  
+##### 2626#       发表于 2024-11-29 00:06
+
+好想继续担任明年的光美系构啊<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+我在乙女偶像方面也有丰富经验，要让我的价值观传递给每一位观众<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  李霞  
+##### 2627#       发表于 2024-11-29 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66797192&amp;ptid=2162354" target="_blank">舞野咲 发表于 2024-11-29 00:02</a>
+
+爱豆幼女番都火完这么多年了怎么才吃上啊。。。</blockquote>
+非也非也，心跳幸充明显都有在连续尝试偶像要素。
+
+尤其是幸充的打歌服和live bank，怕不就是设想的遗留物。
+

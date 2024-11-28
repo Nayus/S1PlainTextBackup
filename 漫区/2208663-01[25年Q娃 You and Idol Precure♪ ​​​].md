@@ -554,3 +554,14 @@ you anal idol（
 
 那啥也不说了，音乐和角色歌你总要做到历代最强才行吧？
 
+
+*****
+
+####  雷之  
+##### 60#       发表于 2024-11-29 07:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66796986&amp;ptid=2208663" target="_blank">jaewoongh_ 发表于 2024-11-28 23:30</a>
+
+话说偶像怎么战斗啊，难道要用梦幻舞台感化对手吗</blockquote>
+法Q也不是丢火球打人<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">职业和打人手法无关
+

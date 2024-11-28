@@ -15411,3 +15411,13 @@ Water不是他写的（）
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">？这是以什么样的心情购入的
 
+
+*****
+
+####  星天观测  
+##### 26424#       发表于 2024-11-28 11:02
+
+……感觉想靠销量低倒逼wsd出点正常东西不太可能了
+
+鸡腿骂归骂，买是真买啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

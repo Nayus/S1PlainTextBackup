@@ -421,3 +421,11 @@ you anal idol（
 就推子那几段娱乐圈戏码的水准来看，他的核心竞争力不应该是都市魔幻+女角色党争吗，前者在q娃棚更白开水一 ...</blockquote>
 女角色党争还不简单，加个男p同时像眼镜一样兼任助战角色就有发挥空间了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黒鈴ミヲ  
+##### 46#       发表于 2024-11-29 00:21
+
+前期三人组开局，主角是红色，这不我们现在的gbc吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

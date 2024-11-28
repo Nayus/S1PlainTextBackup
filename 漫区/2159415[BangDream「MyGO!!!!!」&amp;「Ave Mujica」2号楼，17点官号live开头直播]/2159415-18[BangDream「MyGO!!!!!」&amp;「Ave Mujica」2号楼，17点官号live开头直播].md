@@ -15614,3 +15614,11 @@ D：_______
 
 就两三天了，个人建议等一等了聊新东西吧，老反刍真没意思啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 26443#       发表于 2024-11-28 18:25
+
+真的说烂了，这个桥段我唯一好奇的点是认歌词这个是不是从初华那学来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -16882,3 +16882,43 @@ sololive一整个月过去了，特报里面的各种联动和商品发售消息
 
 毕竟想到了22年的mikorone24的时候也是提前一两个月两人出去拍外景
 
+
+*****
+
+####  holoan  
+##### 10270#         楼主| 发表于 2024-11-28 16:41
+
+<img src="https://img.saraba1st.com/forum/202411/28/164105rywet5uii3iniwcx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (53.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-28 16:41 上传
+
+*****
+
+####  holoan  
+##### 10271#         楼主| 发表于 2024-11-28 18:20
+
+<img src="https://img.saraba1st.com/forum/202411/28/182008j51f1z250ecf40fu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (139.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-28 18:20 上传
+
+*****
+
+####  holoan  
+##### 10272#         楼主| 发表于 2024-11-28 18:22
+
+<img src="https://img.saraba1st.com/forum/202411/28/182228dh1xrepvi13inzeh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (31.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-28 18:22 上传
+

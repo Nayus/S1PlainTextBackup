@@ -175,3 +175,17 @@ FY08 GPA5 YL7P XJ3U
 
 知足吧，50票一个四星都没有的路过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希望之花  
+##### 1281#       发表于 2024-11-28 15:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png">依然是啥都没有的一天
+
+好像哪次更新后缓存就不留在本地了？每次抽卡出个三星都要重新下载资料
+
+还有进演员界面也是每次都会重新下载演员和武器的图片
+
+设置里好像没找到缓存相关的选项
+

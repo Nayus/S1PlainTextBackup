@@ -533,3 +533,11 @@ woc，边狱公司和明日方舟会在2025年双向联动！
 
 其实讲道理最后这个60星光很难把把都凑齐吧……
 
+
+*****
+
+####  菟原手兒奈  
+##### 996#       发表于 2024-11-28 16:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">中午打了两把，小金妈是真要长命百岁了
+

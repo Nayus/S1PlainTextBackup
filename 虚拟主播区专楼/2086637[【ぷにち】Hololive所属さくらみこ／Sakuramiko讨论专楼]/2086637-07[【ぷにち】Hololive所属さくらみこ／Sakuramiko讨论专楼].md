@@ -16844,3 +16844,41 @@ sololive一整个月过去了，特报里面的各种联动和商品发售消息
 
 毕竟日本限定
 
+
+*****
+
+####  holoan  
+##### 10268#         楼主| 发表于 2024-11-27 20:58
+
+<img src="https://img.saraba1st.com/forum/202411/27/205851fooqq06q1bxav606.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (73.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-27 20:58 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| rs5621| + 1|欢乐多|
+| 星期三下午五点| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  holoan  
+##### 10269#         楼主| 发表于 2024-11-28 12:53
+
+今天外景，很难说不是跟korone，很难说不是跨年企划的一部分
+
+毕竟想到了22年的mikorone24的时候也是提前一两个月两人出去拍外景
+

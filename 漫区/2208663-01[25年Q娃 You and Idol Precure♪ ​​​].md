@@ -565,3 +565,11 @@ you anal idol（
 话说偶像怎么战斗啊，难道要用梦幻舞台感化对手吗</blockquote>
 法Q也不是丢火球打人<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">职业和打人手法无关
 
+
+*****
+
+####  RedSpecial  
+##### 61#       发表于 2024-11-29 07:19
+
+期待十年之后看到管人Q娃
+

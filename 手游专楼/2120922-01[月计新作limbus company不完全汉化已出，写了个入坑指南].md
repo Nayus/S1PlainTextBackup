@@ -541,3 +541,22 @@ woc，边狱公司和明日方舟会在2025年双向联动！
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">中午打了两把，小金妈是真要长命百岁了
 
+
+*****
+
+####  Jamaisvu  
+##### 997#       发表于 2024-11-28 16:31
+
+新镜牢饰品合成表：
+
+<img src="https://img.saraba1st.com/forum/202411/28/163130oa86ddyyzuykzf31.jpg" referrerpolicy="no-referrer">
+
+<strong>890D37E2C7FD78DE9FFAB1E023FF91F1.jpg</strong> (92.26 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-11-28 16:31 上传
+
+养成需求增高，镜牢繁琐复杂，难度失控脱节，小金遮沙避风。
+

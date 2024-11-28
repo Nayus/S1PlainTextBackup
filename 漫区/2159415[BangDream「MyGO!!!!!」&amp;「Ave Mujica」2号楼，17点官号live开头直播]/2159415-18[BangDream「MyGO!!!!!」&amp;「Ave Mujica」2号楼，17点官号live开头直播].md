@@ -15336,3 +15336,15 @@ mv鬼图吗，我感觉一定是火的胜利啊<img src="https://static.saraba1s
 
 总有人叫crychic解散灯素收到伤害，要说是朋友那要相互付出只单方面接受是会有愧疚感的目前粉丝说法还是本人都没这个表现，那对高度以自我为中心的人来说这个伤害落到具体只有丧失情绪价值来源了。实际被对待态度看起来祥子生态位比大自然的馈赠还低啊
 
+
+*****
+
+####  SakuraのOrigami  
+##### 26417#       发表于 2024-11-28 09:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66789936&amp;ptid=2159415" target="_blank">akiomn 发表于 2024-11-28 01:54</a>
+长谷川的好球区还是在抒情曲，Angles和water都是吧</blockquote>
+Water不是他写的（）
+富田一辉写的Water
+虽说长谷川这人不太会写键盘<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

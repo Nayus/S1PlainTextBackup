@@ -473,3 +473,26 @@ you anal idol（
 
 ……怎么有种我家未来离我越来越远的感觉？
 
+
+*****
+
+####  pokemon最爱  
+##### 51#       发表于 2024-11-29 00:49
+
+不知道偶Q的staff如何，纯奶的话我建议让全Q娃棚最自由的内藤P受累在法Q2之外顺便兼一下偶Q的制作人，然后系构选择夹脚领域大神田中仁，联手创作高浓度扭曲百合大作正面对抗同样是爱噗哩的隔壁美妙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  AAAZZZWWW  
+##### 52#       发表于 2024-11-29 00:53
+
+经典偶像信号灯+初代黑白 是暴连者配色吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  谁的无聊中  
+##### 53#       发表于 2024-11-29 00:54
+
+编剧有没有可能是加藤阳一？，毕竟人家写过偶活
+

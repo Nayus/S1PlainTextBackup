@@ -31,3 +31,11 @@ DLC能是啥？明治米国物语？<img src="https://static.saraba1st.com/image
 DLC能是啥？明治米国物语？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看帖子上来我以为有dlc消息了呢，不过这么久都没有消息，可能无了
 
+
+*****
+
+####  interzhang  
+##### 3266#       发表于 2024-11-28 22:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">出了DLC感觉上PC又得晚一些时候了，诶
+

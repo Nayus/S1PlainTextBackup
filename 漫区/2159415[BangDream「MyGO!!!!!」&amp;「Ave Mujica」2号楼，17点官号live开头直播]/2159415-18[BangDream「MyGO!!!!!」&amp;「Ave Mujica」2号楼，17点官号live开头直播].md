@@ -15656,3 +15656,42 @@ C团会不欢而散和第7集会演唱春日影一样，属于剧集的底层逻
 
 捏妈妈的，罗森联动的西装母鸡卡居然不是p的？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yifan8848  
+##### 26448#       发表于 2024-11-28 21:57
+
+王座的谷真多
+
+這次去看live可以順便去買了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SakuraのOrigami  
+##### 26449#       发表于 2024-11-28 21:59
+
+<img src="https://img.saraba1st.com/forum/202411/28/215919tdtd12k0k799gr2k.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20241128215736.png</strong> (378.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-28 21:59 上传
+
+
+*****
+
+####  SakuraのOrigami  
+##### 26450#       发表于 2024-11-28 22:02
+
+这么草台的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202411/28/220234zx3ff132xn0w8nzf.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20241128220115.png</strong> (73.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-28 22:02 上传
+

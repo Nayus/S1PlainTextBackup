@@ -1024,3 +1024,13 @@ ABFLUG的Supra
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">有点兴趣，想问下这个游戏的操控是什么取向的？比较接近现在的哪一款游戏？
 
+
+*****
+
+####  霖岚_  
+##### 57#       发表于 2024-11-28 10:42
+
+有山道好耶，不过好像数量不多，不知道正式版出来会不会继续更新
+
+话说楼主汉化事宜还没联系上作者吗（x，好像后面一直没提这事
+

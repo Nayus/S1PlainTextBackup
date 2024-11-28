@@ -16965,3 +16965,40 @@ sololive一整个月过去了，特报里面的各种联动和商品发售消息
 
 2024-11-28 18:37 上传
 
+
+*****
+
+####  holoan  
+##### 10275#         楼主| 发表于 2024-11-28 19:52
+
+说起来画这个漫画作者很早的时候就是个35P，前一阵还看到在会限打红SC，这个漫画本来设定里主角是没有miko的位置的却能硬塞进去满满一整章的主角戏份进去感觉作者私货可能性很大，然后还没想到这段连载公布的期间刚好和sololive时期偶然相合，把miko感动的不行
+
+还有刚才她们在回顾去年live的时候突然想起来了为什么去年那个live请miko，原来是当时就已经知道要画miko在漫画里了，真是运气好
+
+*****
+
+####  holoan  
+##### 10276#         楼主| 发表于 2024-11-28 21:43
+
+flower rhapsody MV一个月，看看youtube给的播放数据分析
+
+观看最多的片段有2个 第一个是watame的ARK钩子事件和coco的部分
+
+<img src="https://img.saraba1st.com/forum/202411/28/213912otl026ees6z9my6l.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (67.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-28 21:39 上传
+
+第二个是七字母和火建的部分
+
+<img src="https://img.saraba1st.com/forum/202411/28/214139mfcrwzrsfrnwrn0r.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (92.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-28 21:41 上传
+

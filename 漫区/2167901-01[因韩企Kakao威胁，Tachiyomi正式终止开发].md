@@ -20,3 +20,14 @@
 —— 来自 鹅球 v3.3.94-alpha ...</blockquote>
 可能是你看得太多，被ban了。通常过段时间会恢复。不确定需要多久。
 
+
+*****
+
+####  泥鳅化石  
+##### 300#       发表于 2024-11-29 06:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66795750&amp;ptid=2167901" target="_blank">linux40 发表于 2024-11-28 19:57</a>
+
+可能是你看得太多，被ban了。通常过段时间会恢复。不确定需要多久。</blockquote>
+谢谢，梯子换了个线好了，确实是。
+

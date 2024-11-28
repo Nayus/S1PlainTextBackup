@@ -15725,3 +15725,11 @@ C团会不欢而散和第7集会演唱春日影一样，属于剧集的底层逻
 
 [https://x.com/gM4zFiJCWbz3G4y/status/1862046268874428861](https://x.com/gM4zFiJCWbz3G4y/status/1862046268874428861)
 
+
+*****
+
+####  Aendst  
+##### 26453#       发表于 2024-11-28 23:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个谷设计……不过脸真的好看，原谅一下吧
+

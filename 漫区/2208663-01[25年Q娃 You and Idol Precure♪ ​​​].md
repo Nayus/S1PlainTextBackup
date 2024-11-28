@@ -429,3 +429,32 @@ you anal idol（
 
 前期三人组开局，主角是红色，这不我们现在的gbc吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  朝日奈みらい.  
+##### 47#       发表于 2024-11-29 00:27
+
+ 本帖最后由 朝日奈みらい. 于 2024-11-29 00:31 编辑 
+
+什么，我当明年Q娃的主角……
+
+真的假的……
+
+<img src="https://img.saraba1st.com/forum/202411/29/003134v2fqocmbg3lmnu3n.jpg" referrerpolicy="no-referrer">
+
+<strong>108952330_p1_master1200.jpg</strong> (264.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-29 00:31 上传
+
+*****
+
+####  NaAgfykp  
+##### 48#       发表于 2024-11-29 00:28
+
+偶像番经典红黄蓝三原色
+
+—— 来自 vivo V2301A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

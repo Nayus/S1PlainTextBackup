@@ -15367,3 +15367,31 @@ Water不是他写的（）
 
 稍显正常的水和力挽狂澜的土和以太会端上来吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  相坂君  
+##### 26420#       发表于 2024-11-28 10:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最近看楼，楼里总有幽默发言，还以为狗动画现象级了，是个团都得蹭
+
+就说为什么有些老团粉不喜欢新团，被吸血还被嫌臭鱼烂虾
+
+顺便，鸡大多数mv和歌都是靠溺爱，夸不出什么好听的话，什么时候有团名这样质量的新歌啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  skives10  
+##### 26421#       发表于 2024-11-28 10:14
+
+我看不懂 但我大受震撼
+
+<img src="https://img.saraba1st.com/forum/202411/28/101430ils0dp6j7arwsrl7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3908.jpeg</strong> (160.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-28 10:14 上传
+

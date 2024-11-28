@@ -15421,3 +15421,20 @@ Water不是他写的（）
 
 鸡腿骂归骂，买是真买啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哈曼的YY  
+##### 26425#       发表于 2024-11-28 11:17
+
+<img src="https://img.saraba1st.com/forum/202411/28/111630ucqnk3zcs9bazc5k.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (415.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-28 11:16 上传
+
+饥渴的像吸血鬼
+[https://x.com/meu203/status/1861772490445627662](https://x.com/meu203/status/1861772490445627662)
+

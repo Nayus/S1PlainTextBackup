@@ -7029,3 +7029,18 @@ P5R史低印象里是80多，SMTVV和P3R最低130多，这作肯定不会例外<
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  忘却旋律  
+##### 3586#       发表于 2024-11-28 11:06
+
+所以为什么那么快就打折呀，一定是ALTLUS心善吧
+
+*****
+
+####  SuNR1sE364  
+##### 3587#       发表于 2024-11-28 11:08
+
+别问，问就是首日破100w<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

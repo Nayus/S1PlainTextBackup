@@ -2879,3 +2879,11 @@ A：上次在台北電玩展時，有提過想要有個讓軌跡系列入門的�
 
 不过这个点也有可能是破局的关键节点就是了
 
+
+*****
+
+####  zhouaa  
+##### 7062#       发表于 2024-11-28 16:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">花两个月打完了  体验就和剧情一样 所有的隐忍和坚持都是在等火箭发射
+

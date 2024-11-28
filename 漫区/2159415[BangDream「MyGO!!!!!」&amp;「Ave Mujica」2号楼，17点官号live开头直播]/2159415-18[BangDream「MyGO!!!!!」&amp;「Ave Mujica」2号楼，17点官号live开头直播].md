@@ -15755,3 +15755,161 @@ C团会不欢而散和第7集会演唱春日影一样，属于剧集的底层逻
 
 2024-11-29 01:54 上传
 
+
+*****
+
+####  operatbig  
+##### 26456#       发表于 2024-11-28 19:38
+
+淘宝都开卖罗森谷子了……官方还在装死。
+
+*****
+
+####  杂灰  
+##### 26457#       发表于 2024-11-28 20:12
+
+本来祥子的行为有没有问题这事就没什么所谓啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  前方暴雨预警  
+##### 26458#       发表于 2024-11-28 20:30
+
+C团会不欢而散和第7集会演唱春日影一样，属于剧集的底层逻辑了。如果一定要问有没有更好的解决方案，那答案自然是“有，但就没有mygo动画了”。
+
+制作组就是想喝第7集春日影这碟醋才包了C团这个饺子。
+
+*****
+
+####  莉缇娅  
+##### 26459#       发表于 2024-11-28 21:31
+
+捏妈妈的，罗森联动的西装母鸡卡居然不是p的？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yifan8848  
+##### 26460#       发表于 2024-11-28 21:57
+
+王座的谷真多
+
+這次去看live可以順便去買了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SakuraのOrigami  
+##### 26461#       发表于 2024-11-28 21:59
+
+<img src="https://img.saraba1st.com/forum/202411/28/215919tdtd12k0k799gr2k.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20241128215736.png</strong> (378.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-28 21:59 上传
+
+*****
+
+####  SakuraのOrigami  
+##### 26462#       发表于 2024-11-28 22:02
+
+这么草台的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202411/28/220234zx3ff132xn0w8nzf.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20241128220115.png</strong> (73.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-28 22:02 上传
+
+*****
+
+####  skives10  
+##### 26463#       发表于 2024-11-28 22:13
+
+<img src="https://img.saraba1st.com/forum/202411/28/221303scc97121k3sos2z7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3911.jpeg</strong> (407.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-28 22:13 上传
+
+*****
+
+####  哈曼的YY  
+##### 26464#       发表于 2024-11-28 23:44
+
+ 本帖最后由 哈曼的YY 于 2024-11-28 23:47 编辑 
+
+<img src="https://img.saraba1st.com/forum/202411/28/234428gdth82k68ldl76lh.jpg" referrerpolicy="no-referrer">
+
+<strong>GdZmWIkaMAA3FcA.jpg</strong> (1008.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-28 23:44 上传
+
+[https://x.com/gM4zFiJCWbz3G4y/status/1862046268874428861](https://x.com/gM4zFiJCWbz3G4y/status/1862046268874428861)
+
+<img src="https://img.saraba1st.com/forum/202411/28/234718wtoblf1nhmn9u7nh.jpg" referrerpolicy="no-referrer">
+
+<strong>GdaCrxbbIAAD1H1-1.jpg</strong> (242.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-28 23:47 上传
+
+[https://x.com/fukumaru1021/status/1861819212093944122](https://x.com/fukumaru1021/status/1861819212093944122)
+
+*****
+
+####  Aendst  
+##### 26465#       发表于 2024-11-28 23:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个谷设计……不过脸真的好看，原谅一下吧
+
+*****
+
+####  贰臣  
+##### 26466#       发表于 2024-11-29 01:27
+
+一个柄图出这么多种工艺的谷是真服了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 26467#       发表于 2024-11-29 01:54
+
+<img src="https://img.saraba1st.com/forum/202411/29/015430dkjk7gdzhk7usxlq.png" referrerpolicy="no-referrer">
+
+<strong>cd51f2dd-230b-4423-81c1-580d2465510e.png</strong> (46.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-29 01:54 上传
+
+*****
+
+####  紫吹兰  
+##### 26468#         楼主| 发表于 2024-11-29 05:24
+
+<img src="https://img.saraba1st.com/forum/202411/29/052431cxmypg68psxxz8yb.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20241129_052127.jpg</strong> (215.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-29 05:24 上传
+
+<img src="https://img.saraba1st.com/forum/202411/29/052431ek4q2zjoa6xr6ko6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-11-29-05-23-01-015_tv.danmaku.bili.jpg</strong> (310.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-29 05:24 上传
+
+居然诈尸了
+

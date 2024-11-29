@@ -374,3 +374,18 @@ POE1国服不清楚，国际服没啥RMT，就是出的装备定价都很自由<
 
 资瓷一下
 
+
+*****
+
+####  qwased  
+##### 43#       发表于 2024-11-30 06:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">感觉现在国内啥游戏都能粘点rmt，生态好奇怪
+
+*****
+
+####  seedees3  
+##### 44#       发表于 2024-11-30 06:39
+
+来当个分母
+

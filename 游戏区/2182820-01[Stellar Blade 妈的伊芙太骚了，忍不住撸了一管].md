@@ -1447,3 +1447,20 @@ GOTY没提名绝对有问题！
 
 说实话一般
 
+
+*****
+
+####  B.K.  
+##### 108#         楼主| 发表于 2024-11-29 18:04
+
+年纪大了，没那么多管了，羡慕谭友10管
+
+*****
+
+####  司马千晶  
+##### 109#       发表于 2024-11-29 18:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">为什么我拍照模式只有自拍
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

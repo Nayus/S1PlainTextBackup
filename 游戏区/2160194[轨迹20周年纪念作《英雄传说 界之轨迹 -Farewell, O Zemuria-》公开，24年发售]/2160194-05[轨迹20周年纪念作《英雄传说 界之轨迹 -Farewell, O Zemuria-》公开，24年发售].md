@@ -2901,3 +2901,12 @@ A：上次在台北電玩展時，有提過想要有個讓軌跡系列入門的�
 
 2024-11-29 10:01 上传
 
+
+*****
+
+####  洛克萨斯  
+##### 7064#       发表于 2024-11-29 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66798660&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-11-29 10:01</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">超级小作坊
+

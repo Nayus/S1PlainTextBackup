@@ -667,3 +667,25 @@ AKB0048<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" ref
 
 所以该我继续出场了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  月夜凝雪  
+##### 72#       发表于 2024-11-29 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66798414&amp;ptid=2208663" target="_blank">cmyk1234 发表于 2024-11-29 09:29</a>
+加藤阳一曾为数码宝贝宇宙：应用兽总编剧，时任制片人鹫尾天，说不定新q娃会是主角唱歌妖精战斗？ ...</blockquote>
+你让我想起曾经的两个点子，
+一个是像把战姬绝唱拆成两人，一人唱歌持续上buff一人战斗；
+另一个是让歌姬持续唱歌作为萝卜的能源
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  lotwhite  
+##### 73#       发表于 2024-11-29 10:13
+
+今年继续开吹名塚太太配银兽
+

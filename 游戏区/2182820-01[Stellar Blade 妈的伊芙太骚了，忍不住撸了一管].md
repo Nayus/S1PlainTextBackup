@@ -1420,3 +1420,13 @@ GOTY没提名绝对有问题！
 
 —— 来自 samsung SM-N9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  敏感词好多  
+##### 105#       发表于 2024-11-29 15:41
+
+一管？十管！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

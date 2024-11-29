@@ -16120,3 +16120,13 @@ b站确认同步放送了
 
 梦想协奏曲
 
+
+*****
+
+####  棒读  
+##### 26491#       发表于 2024-11-29 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66803454&amp;ptid=2159415" target="_blank">yanghuangu 发表于 2024-11-29 19:27</a>
+所以Bang Dream的中文译名是什么</blockquote>
+梦想协奏曲
+

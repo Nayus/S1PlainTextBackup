@@ -15980,3 +15980,49 @@ b站确认同步放送了
 
 好嘛，删多少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 26476#       发表于 2024-11-29 18:40
+
+<img src="https://img.saraba1st.com/forum/202411/29/184017q89piifq8zzuz6av.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_353851442555067.jpg</strong> (64.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-29 18:40 上传
+
+希望能中
+
+*****
+
+####  凉良  
+##### 26477#       发表于 2024-11-29 18:41
+
+十年大会员的特权名额已经没了啊 GOP怎么那么多十年大会员
+
+*****
+
+####  rikaren  
+##### 26478#       发表于 2024-11-29 18:44
+
+第1010个报名，专属影迷编号1411，感觉十年大会员先到先得名额可能也就400个吧。
+
+*****
+
+####  枫林不见  
+##### 26479#       发表于 2024-11-29 18:45
+
+差一年十年 给我中啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Ty_cc  
+##### 26480#       发表于 2024-11-29 18:45
+
+上海场已经4000+了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

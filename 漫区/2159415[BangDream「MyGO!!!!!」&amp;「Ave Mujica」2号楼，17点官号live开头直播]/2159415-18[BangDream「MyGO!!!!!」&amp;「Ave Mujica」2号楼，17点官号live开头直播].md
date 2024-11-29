@@ -15921,3 +15921,62 @@ C团会不欢而散和第7集会演唱春日影一样，属于剧集的底层逻
 
 颂乐人偶吗，这标题有点意思（）
 
+
+*****
+
+####  Reinhold  
+##### 26470#       发表于 2024-11-29 18:24
+
+按队标，“颂月”也行
+
+*****
+
+####  skives10  
+##### 26471#       发表于 2024-11-29 18:25
+
+<img src="https://img.saraba1st.com/forum/202411/29/182512xyano4zo9ant443d.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0606.jpeg</strong> (281.93 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-11-29 18:25 上传
+
+*****
+
+####  PDQ4  
+##### 26472#       发表于 2024-11-29 18:29
+
+就是队名直译+人偶，这么看动画不一定有新演出服，如果一个世界观绑定一套演出服的话<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  skives10  
+##### 26473#       发表于 2024-11-29 18:31
+
+面具之下，音乐之上，Ave Mujica与你共赴命运之约！
+
+*****
+
+####  桜庭千景  
+##### 26474#       发表于 2024-11-29 18:32
+
+b站确认同步放送了
+
+<img src="https://img.saraba1st.com/forum/202411/29/183254cswthkhmk3wbtxgz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241129_183219_tv.danmaku.bili.jpg</strong> (202 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-29 18:32 上传
+
+*****
+
+####  PDQ4  
+##### 26475#       发表于 2024-11-29 18:33
+
+好嘛，删多少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

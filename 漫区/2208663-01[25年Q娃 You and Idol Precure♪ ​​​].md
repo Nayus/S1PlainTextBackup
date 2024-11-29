@@ -821,3 +821,19 @@ IQ !<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referr
 
 不好说战斗戏会不会被砍，我个人是觉得如果Q娃没了战斗那就完全没必要是Q娃了更别说是偶像题材<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
 
+
+*****
+
+####  粉儿alice  
+##### 87#       发表于 2024-11-29 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66797741&amp;ptid=2208663" target="_blank">wly 发表于 2024-11-29 06:03</a>
+那啥也不说了，音乐和角色歌你总要做到历代最强才行吧？</blockquote>
+配乐估计还是深泽 她水平不差 甚至直接让她写角色歌也没有问题 当然这几年配乐除了林友树外ost单听都不错 用到正片就是另一回事了
+
+现在看Marvelous愿不愿意明年多给一些音乐资源
+自从把拥抱角色歌2专辑砍了后 Marvelous对q娃音乐这块越来越差 作编曲都是请知名度不高新人 质量也不高 而且角色歌保底就一人一首单人曲加一首大合唱没了
+反而买特典送光盘情况越来越恶劣 价格也越高
+
+q娃音乐外贴情况很少 也就剧场版能贴 天空剧场版主题曲索尼生物股长在天空开播前就准备好了 周期长流程复杂 东映愿意请yoasobi这种他们愿意接还是一个问题
+

@@ -1464,3 +1464,16 @@ GOTY没提名绝对有问题！
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  浅川雏羽  
+##### 110#       发表于 2024-11-29 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66802880&amp;ptid=2182820" target="_blank">司马千晶 发表于 2024-11-29 18:09</a>
+
+为什么我拍照模式只有自拍
+
+  -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
+R1加左键还是右键来着
+

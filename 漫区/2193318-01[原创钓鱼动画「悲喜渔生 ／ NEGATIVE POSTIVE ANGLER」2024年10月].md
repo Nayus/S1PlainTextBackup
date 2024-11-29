@@ -393,3 +393,25 @@ ice不用说中文都变回人形了，侧面解释钓鱼佬为啥离婚
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">感觉是暴风雨的前夕了
 
+
+*****
+
+####  Piano-Forest  
+##### 169#         楼主| 发表于 2024-11-29 23:37
+
+[https://x.com/onigiri123091/status/1862091163400106444](https://x.com/onigiri123091/status/1862091163400106444)
+
+ネガグラ本日9話放送です🎣
+
+みてもらえたら嬉しいです。
+
+らくがきはまさかの三悪登場でぃ！
+
+姉さーーーーん！！
+<img src="https://p.sda1.dev/20/988f034a7443388e0f61253f9e28f021/20241129_233527.jpg" referrerpolicy="no-referrer">
+
+9話もくもくと練習する常宏偉かったな〜。
+
+台風で、みんなで鍋するとか羨ましいぜ。
+<img src="https://p.sda1.dev/20/2dc9a58c191ac585c204c4d0ebc0cd5a/20241129_233532.jpg" referrerpolicy="no-referrer">
+

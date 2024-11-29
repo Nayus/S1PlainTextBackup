@@ -11076,3 +11076,13 @@ re0结束了
 —— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 v3.0.0-alpha ...</blockquote>
 我叫回来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实我没有很想看。
 
+
+*****
+
+####  ads147147  
+##### 1079#       发表于 2024-11-29 21:28
+
+我还以为合宿回已经算播过了，没想到合宿后还可以继续集训。。。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

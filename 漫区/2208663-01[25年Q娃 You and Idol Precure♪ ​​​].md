@@ -706,3 +706,34 @@ AKB0048<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" ref
 主角团人间体、主角变身、敌方干部偷跑图（
 <img src="https://p.sda1.dev/20/46c8b31260bffbb8862468d124f0e745/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 76#       发表于 2024-11-29 10:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">日X那边已经开始叫キミプリ了，不是アイプリ吗……
+
+这次会不会有之前的歌手转正？黑泽朋世或者machico？
+
+*****
+
+####  jaewoongh_  
+##### 77#       发表于 2024-11-29 10:58
+
+从官网透露的元素来看，粉蓝紫三人首发，然后黑白追加？
+
+*****
+
+####  modedd  
+##### 78#       发表于 2024-11-29 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66799142&amp;ptid=2208663" target="_blank">jaewoongh_ 发表于 2024-11-29 10:54</a>
+日X那边已经开始叫キミプリ了，不是アイプリ吗……
+
+这次会不会有之前的歌手转正？黑泽朋世或者machico？ ...</blockquote>
+因为隔壁已经有一个有个叫アイプリ的了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+而且我觉得你q其实还蛮合适的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+

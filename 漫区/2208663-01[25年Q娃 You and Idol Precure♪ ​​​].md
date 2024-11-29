@@ -903,3 +903,22 @@ q娃音乐外贴情况很少 也就剧场版能贴 天空剧场版主题曲索�
 
 与其说事到如今才来搞这个不如说现在才是搞偶Q更好的时机，对比近几年官方推特上标题公布的数据偶Q现在完全是断档领先
 
+
+*****
+
+####  jaewoongh_  
+##### 94#       发表于 2024-11-29 12:39
+
+日X上几个staff都挺兴奋的啊，天下盼爱抖露久矣
+
+
+*****
+
+####  pokemon最爱  
+##### 95#       发表于 2024-11-29 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66800175&amp;ptid=2208663" target="_blank">月夜凝雪 发表于 2024-11-29 12:33</a>
+
+这种没必要，战姬绝唱那个操作本身就是临时起意吧，一般还是配音和唱歌分两个人负责，偶活和macross7都是 ...</blockquote>
+偶像番CV和歌手同一人也是常见操作啊。战姬绝唱真的临时起意的是配音时根据剧情现唱歌而且穿插着对话台词（一般都是单独录好播）<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

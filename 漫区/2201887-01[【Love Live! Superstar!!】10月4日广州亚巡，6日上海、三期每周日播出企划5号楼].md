@@ -10941,3 +10941,13 @@ Liyuu新单 5400 新高</blockquote>
 <img src="https://p.sda1.dev/20/fb9038de0f51c7340d7b8d393b90116d/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/20/0c94aa91c930dbe0adb9033f0dfafe57/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csolfans  
+##### 1067#       发表于 2024-11-29 14:40
+
+话说隔壁舅舅是被干掉了吗
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

@@ -16026,3 +16026,37 @@ b站确认同步放送了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
 
+
+*****
+
+####  AveMujica  
+##### 26481#       发表于 2024-11-29 18:47
+
+我是年度大会员，上海场，报名1000，序号2440
+<img src="https://p.sda1.dev/20/c0491e4271b2628854331f20125e7806/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/84472ee69b2da6397966d3d9f0ac7a4a/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  傘木希美  
+##### 26482#       发表于 2024-11-29 18:48
+
+卧槽，你们这么一说我才注意，十年大会员可以先到先得？<img src="https://p.sda1.dev/20/3d60c13527d2fa127fa1759293882c21/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+*****
+
+####  SakuraのOrigami  
+##### 26483#       发表于 2024-11-29 18:48
+
+好嘛（）
+
+<img src="https://img.saraba1st.com/forum/202411/29/184829xsl9zlz4uqil2p4v.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20241129184817.png</strong> (64.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-29 18:48 上传
+

@@ -66,3 +66,13 @@ DLC能是啥？明治米国物语？</blockquote>
 红迪说有dlc</blockquote>
 真有DLC啊，我还以为这游戏已经死翘翘了
 
+
+*****
+
+####  医生狼多  
+##### 3269#       发表于 2024-11-29 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66801327&amp;ptid=2092342" target="_blank">诚司 发表于 2024-11-29 14:51</a>
+红迪说有dlc</blockquote>
+就是我3256楼的复读
+

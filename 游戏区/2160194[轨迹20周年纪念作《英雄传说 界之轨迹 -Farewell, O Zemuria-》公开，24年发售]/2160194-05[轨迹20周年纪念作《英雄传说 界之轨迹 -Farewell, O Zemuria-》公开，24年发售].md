@@ -2910,3 +2910,11 @@ A：上次在台北電玩展時，有提過想要有個讓軌跡系列入門的�
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66798660&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-11-29 10:01</a></blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">超级小作坊
 
+
+*****
+
+####  maojiashu  
+##### 7065#       发表于 2024-11-29 17:05
+
+成功安利了一个朋友玩轨迹系列 但是她玩的这游戏的决定因素是她磕帅哥幼女cp 大少拉碧丝那对 然后她买了个创轨进行游玩 开场看到那个两天结束的世界大战 就算我是第二次看到 我俩都没绷住<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

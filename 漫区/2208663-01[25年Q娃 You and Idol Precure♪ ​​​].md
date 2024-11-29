@@ -608,3 +608,14 @@ AKB0048<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" ref
 
 期待二十年后少女乐队q娃
 
+
+*****
+
+####  kenqqex  
+##### 66#       发表于 2024-11-29 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66797809&amp;ptid=2208663" target="_blank">RedSpecial 发表于 2024-11-29 07:19</a>
+
+期待十年之后看到管人Q娃</blockquote>
+我们美妙频道早在2018年搞过管人了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

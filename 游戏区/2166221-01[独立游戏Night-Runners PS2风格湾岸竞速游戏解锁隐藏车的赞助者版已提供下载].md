@@ -1063,3 +1063,15 @@ ABFLUG的Supra
 
 等做的差不多再说吧……
 
+
+*****
+
+####  Totokei  
+##### 60#       发表于 2024-11-29 22:12
+
+跑了一下steam的demo，感觉这地也太抓太推头了，有一种扯着一个大铁块过弯的感觉。
+
+另外就是第一次PA比赛我赢了之后对方提出重赛，然后开赛前有个电话打过来说我故意输的话给得更多，是骗人的还是真的？
+
+虽然因为他实在太慢了我还是直接赢了他<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

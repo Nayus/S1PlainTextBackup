@@ -1075,3 +1075,16 @@ ABFLUG的Supra
 
 虽然因为他实在太慢了我还是直接赢了他<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Tnsbilws  
+##### 61#         楼主| 发表于 2024-11-30 00:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66804463&amp;ptid=2166221" target="_blank">Totokei 发表于 2024-11-29 22:12</a>
+
+跑了一下steam的demo，感觉这地也太抓太推头了，有一种扯着一个大铁块过弯的感觉。
+
+另外就是第一次PA比赛 ...</blockquote>
+现在demo里故意输给的太少基本不用考虑，唯独如果你占领了PA，另外一个队伍BOSS向你发起挑战会给你钱故意输，但是你不需要给赌注
+

@@ -583,3 +583,28 @@ you anal idol（
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
 
+
+*****
+
+####  1096beam  
+##### 63#       发表于 2024-11-29 08:51
+
+剧内用ED规格的3D表演的话那得期待一下<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  碎镜子  
+##### 64#       发表于 2024-11-29 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66796986&amp;ptid=2208663" target="_blank">jaewoongh_ 发表于 2024-11-28 23:30</a>
+
+话说偶像怎么战斗啊，难道要用梦幻舞台感化对手吗</blockquote>
+AKB0048<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  λάμπα  
+##### 65#       发表于 2024-11-29 08:52
+
+期待二十年后少女乐队q娃
+

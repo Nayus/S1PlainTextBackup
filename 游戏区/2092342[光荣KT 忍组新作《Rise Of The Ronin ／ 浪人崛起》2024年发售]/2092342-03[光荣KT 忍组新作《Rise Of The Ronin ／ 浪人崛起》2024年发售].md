@@ -39,3 +39,19 @@ DLC能是啥？明治米国物语？</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">出了DLC感觉上PC又得晚一些时候了，诶
 
+
+*****
+
+####  诚司  
+##### 3267#       发表于 2024-11-29 14:51
+
+<img src="https://img.saraba1st.com/forum/202411/29/145113und2goq2q8ocuyo1.jpg" referrerpolicy="no-referrer">
+
+<strong>1000033203.jpg</strong> (81.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-29 14:51 上传
+
+红迪说有dlc
+

@@ -10977,3 +10977,15 @@ Liyuu新单 5400 新高</blockquote>
 
 他加了我QQ，我去问一下他吧。
 
+
+*****
+
+####  csolfans  
+##### 1071#       发表于 2024-11-29 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66801976&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-11-29 16:07</a>
+舅舅贴吧那18号开始就没发情报了，re0也没发，估计是渠道真的被被黄牌警告了 ...</blockquote>
+re0结束了
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

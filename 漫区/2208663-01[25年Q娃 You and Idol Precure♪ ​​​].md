@@ -648,3 +648,22 @@ AKB0048<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" ref
 
 回来吧 马口p
 
+
+*****
+
+####  粉儿alice  
+##### 70#       发表于 2024-11-29 09:54
+
+宠物剧场版就是加藤阳一写的 现在剧透下来非常差 而且加藤现在是东电御用编剧 明年手上还有别的系列构成忙
+
+柿原优子现在在隔壁龙珠当系列构成
+
+*****
+
+####  成田良美  
+##### 71#       发表于 2024-11-29 09:55
+
+ 本帖最后由 成田良美 于 2024-11-29 09:57 编辑 
+
+所以该我继续出场了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

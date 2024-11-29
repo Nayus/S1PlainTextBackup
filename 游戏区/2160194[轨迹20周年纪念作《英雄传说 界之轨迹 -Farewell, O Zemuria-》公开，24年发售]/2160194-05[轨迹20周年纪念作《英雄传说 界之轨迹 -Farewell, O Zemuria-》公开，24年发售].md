@@ -2887,3 +2887,17 @@ A：上次在台北電玩展時，有提過想要有個讓軌跡系列入門的�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">花两个月打完了  体验就和剧情一样 所有的隐忍和坚持都是在等火箭发射
 
+
+*****
+
+####  卢迪克  
+##### 7063#       发表于 2024-11-29 10:01
+
+<img src="https://img.saraba1st.com/forum/202411/29/100134wttf3z34st0jtmmt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (22.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-29 10:01 上传
+

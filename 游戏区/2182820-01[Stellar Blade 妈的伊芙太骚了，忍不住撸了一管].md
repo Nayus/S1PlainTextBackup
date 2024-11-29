@@ -1223,3 +1223,19 @@ PS5竟然能做到这个程度，年度游戏确定。
 PS5竟然能做到这个程度，年度游戏确定。</blockquote>
 GOTY没提名绝对有问题！
 
+
+*****
+
+####  苏斯赫查  
+##### 93#       发表于 2024-11-29 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66796816&amp;ptid=2182820" target="_blank">爱撕衣魔刃 发表于 2024-11-28 23:04</a>
+不行，新衣服会自动改变三围，
+
+实打实的人造人了，
+
+一想到这里就发情不能了……/吐血 ...</blockquote>
+本来就是，根据衣服连皮肤材质都会变<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+

@@ -374,3 +374,14 @@ ice不用说中文都变回人形了，侧面解释钓鱼佬为啥离婚
 
 做安康鱼让我想起在ytb一个专门搞各种生鱼片喝酒的博主了
 
+
+*****
+
+####  kenqqex  
+##### 167#       发表于 2024-11-29 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66796212&amp;ptid=2193318" target="_blank">流连成双 发表于 2024-11-28 21:19</a>
+
+还剩三集男主的寿命问题和男二的背景故事还在压，开始担心能不能好好收尾了 ...</blockquote>
+感受到中间的感动就好了，结尾好不好也没所谓吧
+

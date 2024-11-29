@@ -745,3 +745,14 @@ AKB0048<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" ref
 
 粉蓝紫也太刻意了，都奶偶活那怎么不奶一个Q娃大空明
 
+
+*****
+
+####  starring  
+##### 80#       发表于 2024-11-29 11:18
+
+该猜CV人选了
+日笠太太+南条+高垣彩阳凑齐战姬G六人组，东山从狗转正，再凑一个00后里唱歌好的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

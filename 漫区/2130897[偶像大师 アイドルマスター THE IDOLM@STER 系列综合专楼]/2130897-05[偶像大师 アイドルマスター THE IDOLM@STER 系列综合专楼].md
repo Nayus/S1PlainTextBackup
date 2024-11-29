@@ -1111,3 +1111,13 @@ CGSS十週年LIVE相關：
 
 三牛老师的演出笔记重新上架了
 
+
+*****
+
+####  超法拉  
+##### 6717#       发表于 2024-11-29 11:43
+
+<img src="https://p.sda1.dev/20/b65f1db03b2d119150d843982251316e/image.jpg" referrerpolicy="no-referrer">能赢吗
+
+—— 来自 OnePlus PJE110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

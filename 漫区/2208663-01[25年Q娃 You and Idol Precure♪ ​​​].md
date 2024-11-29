@@ -809,3 +809,15 @@ IQ !<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referr
 
 粉蓝紫开局。估计是要凑20周年100位q娃的数吧。
 
+
+*****
+
+####  pokemon最爱  
+##### 86#       发表于 2024-11-29 11:42
+
+一些关于偶Q的猜想。
+
+基于偶像题材的特殊性，应该会回归魔法和甜点里Precure的传说中的魔法使/传说中的甜点师设定，也就是偶Q里Precure是传说中的偶像，并且应该会类似茶几一样Precure这个词本身是在人类世界广泛传播的名词。
+
+不好说战斗戏会不会被砍，我个人是觉得如果Q娃没了战斗那就完全没必要是Q娃了更别说是偶像题材<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+

@@ -399,3 +399,20 @@ POE1国服不清楚，国际服没啥RMT，就是出的装备定价都很自由<
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  jy000129  
+##### 46#       发表于 2024-11-30 07:36
+
+老板大气
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  菲星  
+##### 47#       发表于 2024-11-30 07:38
+
+POE 氪金包买哪个好？ 借楼问一下
+

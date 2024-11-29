@@ -1121,3 +1121,14 @@ CGSS十週年LIVE相關：
 
 —— 来自 OnePlus PJE110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  Alleyht  
+##### 6718#       发表于 2024-11-29 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66783317&amp;ptid=2130897" target="_blank">Unlight 发表于 2024-11-27 08:55</a>
+
+凛世（以前）不是和甘奈坐一桌的吗（</blockquote>
+scsp的抽象周年剧情过后甘奈已经自己坐一桌了，04罪不至此
+

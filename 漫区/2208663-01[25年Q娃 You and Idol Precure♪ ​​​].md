@@ -922,3 +922,13 @@ q娃音乐外贴情况很少 也就剧场版能贴 天空剧场版主题曲索�
 这种没必要，战姬绝唱那个操作本身就是临时起意吧，一般还是配音和唱歌分两个人负责，偶活和macross7都是 ...</blockquote>
 偶像番CV和歌手同一人也是常见操作啊。战姬绝唱真的临时起意的是配音时根据剧情现唱歌而且穿插着对话台词（一般都是单独录好播）<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cmyk1234  
+##### 96#       发表于 2024-11-29 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66800175&amp;ptid=2208663" target="_blank">月夜凝雪 发表于 2024-11-29 12:33</a>
+这种没必要，战姬绝唱那个操作本身就是临时起意吧，一般还是配音和唱歌分两个人负责，偶活和macross7都是 ...</blockquote>
+其他动画游戏有没有让前方战士给后方歌手充能的设定？
+

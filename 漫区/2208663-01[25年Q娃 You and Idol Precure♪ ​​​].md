@@ -859,3 +859,47 @@ q娃音乐外贴情况很少 也就剧场版能贴 天空剧场版主题曲索�
 
 完了，这系列完了
 
+
+*****
+
+####  RedSpecial  
+##### 90#       发表于 2024-11-29 12:27
+
+担心没有战斗大可不必，因为<img src="https://p.sda1.dev/20/f36feeeea6eb4245f5247f3ee3122dc0/f0Qn7s2-36f7K1jT1kSdc-7i.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  月夜凝雪  
+##### 91#       发表于 2024-11-29 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66799576&amp;ptid=2208663" target="_blank">cmyk1234 发表于 2024-11-29 11:31</a>
+《macross超时空要塞》第一季和F、《神曲奏界Polyphonica》也是辅助角色唱歌（演奏）支援战斗角色。
+
+不 ...</blockquote>
+当年的灵感是来自于舞乙HiME的授权变身和Macross的战场唱歌，设想是歌手在后面持续演唱指定的契约者就能变身，不过后场是会有被袭击的危险性，而主角由于某些悲剧形成的后果可以自己唱自己变
+
+结果几年后看到了战姬绝唱的出现
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  月夜凝雪  
+##### 92#       发表于 2024-11-29 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66799695&amp;ptid=2208663" target="_blank">pokemon最爱 发表于 2024-11-29 11:42</a>
+一些关于偶Q的猜想。
+
+基于偶像题材的特殊性，应该会回归魔法和甜点里Precure的传说中的魔法使/传说中的甜点 ...</blockquote>
+这种没必要，战姬绝唱那个操作本身就是临时起意吧，一般还是配音和唱歌分两个人负责，偶活和macross7都是这样
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  没有爱就看不见  
+##### 93#       发表于 2024-11-29 12:34
+
+与其说事到如今才来搞这个不如说现在才是搞偶Q更好的时机，对比近几年官方推特上标题公布的数据偶Q现在完全是断档领先
+

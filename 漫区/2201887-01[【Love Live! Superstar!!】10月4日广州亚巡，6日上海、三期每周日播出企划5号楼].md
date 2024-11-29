@@ -11036,3 +11036,17 @@ re0结束了
 —— 来自 OPPO PHN110, Android 15上的 S1Next-鹅 ...</blockquote>
 也就剩下4集，虽然可可回给了一些多余的期待/妄想，但哪怕后面没活，总比硬整烂活强，剧情能平稳落地，结尾LIVE演出做的好点，能有个6分的话，也算有始有终。
 
+
+*****
+
+####  ads147147  
+##### 1076#       发表于 2024-11-29 18:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66802536&amp;ptid=2201887" target="_blank">evestart 发表于 2024-11-29 17:19</a>
+也就剩下4集，虽然可可回给了一些多余的期待/妄想，但哪怕后面没活，总比硬整烂活强，剧情能平稳落地，结 ...</blockquote>
+只要收尾不搞什么强行103就行，目前11人Liella已经是叠盒子巅峰了，接下来四集就是平a过去拿二连冠，很难说还能整出来什么问题。算是摔了个半死后又在体操毯上站了个好收尾吧，总体给星团三季动画的评价恐怕就是想看看不想看也可以不看。
+
+我还在想始空这个活要怎么整，或许一开始就是作为老五人毕业曲而设计的曲子？
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

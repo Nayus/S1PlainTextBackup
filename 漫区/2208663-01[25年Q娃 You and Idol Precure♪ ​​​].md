@@ -837,3 +837,17 @@ IQ !<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referr
 
 q娃音乐外贴情况很少 也就剧场版能贴 天空剧场版主题曲索尼生物股长在天空开播前就准备好了 周期长流程复杂 东映愿意请yoasobi这种他们愿意接还是一个问题
 
+
+*****
+
+####  modedd  
+##### 88#       发表于 2024-11-29 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66799695&amp;ptid=2208663" target="_blank">pokemon最爱 发表于 2024-11-29 11:42</a>
+一些关于偶Q的猜想。
+
+基于偶像题材的特殊性，应该会回归魔法和甜点里Precure的传说中的魔法使/传说中的甜点 ...</blockquote>
+其实我反而觉得这部q娃会比较传统，毕竟东映如果对爱豆云云真有点子理解也不会事到如今才搞了，q娃是偶像，是梦想，是kira✨kira的具现化，敌役是吃女孩子梦想的坏蛋，战斗部分就是他们两记老拳让他们把梦想吐出来，这种四平八稳的标准流程挺够用的，至于日常，隔壁美妙偶活全是现成的，直接抄就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+

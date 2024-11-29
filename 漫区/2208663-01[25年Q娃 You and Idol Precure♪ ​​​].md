@@ -950,3 +950,15 @@ q娃音乐外贴情况很少 也就剧场版能贴 天空剧场版主题曲索�
 
 <img src="https://static.saraba1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">先看看你们的偶像打歌服
 
+
+*****
+
+####  月夜凝雪  
+##### 99#       发表于 2024-11-29 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66800327&amp;ptid=2208663" target="_blank">cmyk1234 发表于 2024-11-29 12:52</a>
+其他动画游戏有没有让前方战士给后方歌手充能的设定？</blockquote>
+应该没有吧，这种要怎么操作
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

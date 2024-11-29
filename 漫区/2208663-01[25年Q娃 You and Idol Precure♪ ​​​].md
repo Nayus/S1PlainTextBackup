@@ -629,3 +629,14 @@ AKB0048<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" ref
 
 最后还是看staff，还是高桥p的话我想大家可以提前散了
 
+
+*****
+
+####  cmyk1234  
+##### 68#       发表于 2024-11-29 09:29
+
+ 本帖最后由 cmyk1234 于 2024-11-29 09:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66797382&amp;ptid=2208663" target="_blank">谁的无聊中 发表于 2024-11-29 00:54</a>
+编剧有没有可能是加藤阳一？，毕竟人家写过偶活</blockquote>
+加藤阳一曾为数码宝贝宇宙：应用兽总编剧，时任制片人鹫尾天，说不定新q娃会是主角唱歌妖精战斗？
+

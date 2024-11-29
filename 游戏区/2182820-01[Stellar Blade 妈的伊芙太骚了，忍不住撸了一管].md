@@ -1271,3 +1271,14 @@ GOTY没提名绝对有问题！
 
 其实疯女人渡鸦也挺好看的 我也喜欢，可惜不能用，只能用她的纳米服，渡鸦纳米服其实也挺瑟的
 
+
+*****
+
+####  B.K.  
+##### 98#         楼主| 发表于 2024-11-29 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66798969&amp;ptid=2182820" target="_blank">忘却旋律 发表于 2024-11-29 10:37</a>
+
+其实疯女人渡鸦也挺好看的 我也喜欢，可惜不能用，只能用她的纳米服，渡鸦纳米服其实也挺瑟的 ...</blockquote>
+相当，二周目一半的流程我都用她的衣服过的<img src="https://static.saraba1st.com/image/smiley/face2017/202.png" referrerpolicy="no-referrer">色！
+

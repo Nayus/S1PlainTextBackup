@@ -697,3 +697,12 @@ AKB0048<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" ref
 
 会不会有棒子
 
+
+*****
+
+####  kashuu  
+##### 75#       发表于 2024-11-29 10:36
+
+主角团人间体、主角变身、敌方干部偷跑图（
+<img src="https://p.sda1.dev/20/46c8b31260bffbb8862468d124f0e745/image.jpg" referrerpolicy="no-referrer">
+

@@ -11064,3 +11064,15 @@ re0结束了
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  一心而用  
+##### 1078#       发表于 2024-11-29 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66803423&amp;ptid=2201887" target="_blank">csolfans 发表于 2024-11-29 19:23</a>
+贴吧看到回来了
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 v3.0.0-alpha ...</blockquote>
+我叫回来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实我没有很想看。
+

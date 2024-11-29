@@ -619,3 +619,13 @@ AKB0048<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" ref
 期待十年之后看到管人Q娃</blockquote>
 我们美妙频道早在2018年搞过管人了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 67#       发表于 2024-11-29 09:19
+
+这个logo给我一种很古早的感觉，搞不好是把以前的废案拿出来直接用了
+
+最后还是看staff，还是高桥p的话我想大家可以提前散了
+

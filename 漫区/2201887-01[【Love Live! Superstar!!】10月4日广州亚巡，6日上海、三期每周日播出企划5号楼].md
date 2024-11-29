@@ -10951,3 +10951,13 @@ Liyuu新单 5400 新高</blockquote>
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  ads147147  
+##### 1068#       发表于 2024-11-29 15:21
+
+好像确实没怎么说话了，也可能是花田没活所以懒得说。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

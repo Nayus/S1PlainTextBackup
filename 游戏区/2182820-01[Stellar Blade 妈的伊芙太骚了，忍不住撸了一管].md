@@ -1408,3 +1408,15 @@ GOTY没提名绝对有问题！
 
 好急，快上PC
 
+
+*****
+
+####  Troywest  
+##### 104#       发表于 2024-11-29 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66801151&amp;ptid=2182820" target="_blank">Vladimeow 发表于 2024-11-29 14:26</a>
+这一管估计不太够</blockquote>
+老登论坛，虚一点也可以理解。几年前都是标配撸两管的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">可见岁月无情。
+
+—— 来自 samsung SM-N9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

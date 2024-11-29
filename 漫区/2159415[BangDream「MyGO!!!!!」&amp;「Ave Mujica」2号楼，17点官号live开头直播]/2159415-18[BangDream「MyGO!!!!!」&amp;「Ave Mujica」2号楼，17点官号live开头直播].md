@@ -16165,3 +16165,11 @@ b站确认同步放送了
 
 「BanG Dream! Ave Mujica」的正式中文译名就是《梦想协奏曲之颂乐人偶》咯？<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  2017.05.04  
+##### 26496#       发表于 2024-11-29 20:22
+
+似乎那个号是随机的，朋友发的比我时间晚但是数字更小
+

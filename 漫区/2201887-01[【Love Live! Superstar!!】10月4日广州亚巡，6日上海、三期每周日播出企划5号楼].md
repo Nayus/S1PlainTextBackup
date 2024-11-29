@@ -11022,3 +11022,17 @@ re0结束了
 
 果然不行。
 
+
+*****
+
+####  evestart  
+##### 1075#       发表于 2024-11-29 17:19
+
+ 本帖最后由 evestart 于 2024-11-29 17:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66801588&amp;ptid=2201887" target="_blank">ads147147 发表于 2024-11-29 15:21</a>
+
+好像确实没怎么说话了，也可能是花田没活所以懒得说。
+
+—— 来自 OPPO PHN110, Android 15上的 S1Next-鹅 ...</blockquote>
+也就剩下4集，虽然可可回给了一些多余的期待/妄想，但哪怕后面没活，总比硬整烂活强，剧情能平稳落地，结尾LIVE演出做的好点，能有个6分的话，也算有始有终。
+

@@ -2918,3 +2918,20 @@ A：上次在台北電玩展時，有提過想要有個讓軌跡系列入門的�
 
 成功安利了一个朋友玩轨迹系列 但是她玩的这游戏的决定因素是她磕帅哥幼女cp 大少拉碧丝那对 然后她买了个创轨进行游玩 开场看到那个两天结束的世界大战 就算我是第二次看到 我俩都没绷住<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  smdzh2  
+##### 7066#       发表于 2024-11-29 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66802418&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-11-29 18:05</a>
+成功安利了一个朋友玩轨迹系列 但是她玩的这游戏的决定因素是她磕帅哥幼女cp 大少拉碧丝那对 然后她买了个 ...</blockquote>
+可以让她云一下闪4结尾的大场面，保证震撼三观<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  红魔馆的糖  
+##### 7067#       发表于 2024-11-29 17:17
+
+你轨的代码感觉一直相对其他厂来说挺稳的，不知道码农是不是也40多<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+

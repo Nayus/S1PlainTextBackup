@@ -756,3 +756,56 @@ AKB0048<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" ref
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
 
+
+*****
+
+####  pokemon最爱  
+##### 81#       发表于 2024-11-29 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66799142&amp;ptid=2208663" target="_blank">jaewoongh_ 发表于 2024-11-29 10:54</a>
+
+日X那边已经开始叫キミプリ了，不是アイプリ吗……
+
+这次会不会有之前的歌手转正？黑泽朋世或者machico？ ...</blockquote>
+因为隔壁有个ひみつのアイプリ<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pokemon最爱  
+##### 82#       发表于 2024-11-29 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66799195&amp;ptid=2208663" target="_blank">jaewoongh_ 发表于 2024-11-29 10:58</a>
+
+从官网透露的元素来看，粉蓝紫三人首发，然后黑白追加？</blockquote>
+舅舅消息是红主，所以我倾向于从logo上取颜色初期红黄蓝追加黑白（
+
+*****
+
+####  collincollin  
+##### 83#       发表于 2024-11-29 11:28
+
+IQ !<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cmyk1234  
+##### 84#       发表于 2024-11-29 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66798684&amp;ptid=2208663" target="_blank">月夜凝雪 发表于 2024-11-29 10:04</a>
+你让我想起曾经的两个点子，
+一个是像把战姬绝唱拆成两人，一人唱歌持续上buff一人战斗；
+另一个是让歌姬 ...</blockquote>
+《macross超时空要塞》第一季和F、《神曲奏界Polyphonica》也是辅助角色唱歌（演奏）支援战斗角色。
+
+不过战斗角色拉高战绩为歌手角色充能激发唱歌并不多见，《苍蓝雷霆》大概是其中之一。
+
+*****
+
+####  Cloudslin  
+##### 85#       发表于 2024-11-29 11:31
+
+ 本帖最后由 Cloudslin 于 2024-11-29 11:33 编辑 
+
+粉蓝紫开局。估计是要凑20周年100位q娃的数吧。
+

@@ -1013,3 +1013,18 @@ q娃音乐外贴情况很少 也就剧场版能贴 天空剧场版主题曲索�
 
 You暗示Idol要拆开，所以应该是You and I do l***
 
+
+*****
+
+####  pokemon最爱  
+##### 104#       发表于 2024-11-30 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66809455&amp;ptid=2208663" target="_blank">王留美 发表于 2024-11-30 20:00</a>
+
+还是当年响鬼就遇到的那个老问题
+
+对于上面的大人来说，重要的招牌而不是内容</blockquote>
+但你得考虑以后周年纪念还是会做全明星剧场版这事啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+就像来打那边因为时代变迁摩托基本就前期骑个一两集后面完全变空气，也不敢说真的直接把摩托载具直接取消了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

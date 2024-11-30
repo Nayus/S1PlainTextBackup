@@ -474,3 +474,30 @@ poe2也是够能拖的
 
 POE2确实值得玩，尤其是自己懂了后从零折腾自己BD玩起来还挺有趣的。
 
+
+*****
+
+####  nianiania  
+##### 55#       发表于 2024-11-30 08:38
+
+一想到去年脑抽首发了暗黑4心就痛<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu MEIZU 20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  奇拉奇拉  
+##### 56#       发表于 2024-11-30 08:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66805659&amp;ptid=2208805" target="_blank">缺德猫 发表于 2024-11-30 06:15</a>
+但POE玩家确实喜欢张嘴闭嘴暗黑4啊，最搞的是那些POEUP主，个个视频打暗黑4 tag ...</blockquote>
+强者就是要狠狠羞辱弱者×
+
+*****
+
+####  Icing  
+##### 57#       发表于 2024-11-30 08:47
+
+楼主大福，楼主万安！参与下
+

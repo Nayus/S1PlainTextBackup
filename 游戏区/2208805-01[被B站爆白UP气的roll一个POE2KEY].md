@@ -552,3 +552,31 @@ D4的这个dlc对比夺魂之镰就跟答辩一样，还有万年修不好的复
 
 结果居然是这样的人
 
+
+*****
+
+####  dclara1  
+##### 64#       发表于 2024-11-30 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66805915&amp;ptid=2208805" target="_blank">lilisipis 发表于 2024-11-30 08:55</a>
+
+啊，poe要钱啊，一代我玩的马服还以为免费呢</blockquote>
+是免费，但EA资格要钱
+
+*****
+
+####  otjuly  
+##### 65#       发表于 2024-11-30 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66805915&amp;ptid=2208805" target="_blank">lilisipis 发表于 2024-11-30 08:55</a>
+啊，poe要钱啊，一代我玩的马服还以为免费呢</blockquote>
+这次是付费可以提前玩测试版，免费玩家要多等一段时间
+但是，如果想要好好玩，仓库格子几乎是必买的，免费玩比较难受
+
+*****
+
+####  取名真是难  
+##### 66#       发表于 2024-11-30 09:12
+
+支持一下<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+

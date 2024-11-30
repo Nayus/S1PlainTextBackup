@@ -1215,3 +1215,25 @@ poe1一直入不了坑
 
 当个分母<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  突发性哮喘病患  
+##### 135#         楼主| 发表于 2024-12-1 07:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66806949&amp;ptid=2208805" target="_blank">Edward0901 发表于 2024-11-30 12:00</a>
+
+既然看不顺眼那就骂两句拉黑就是，放链接给大家看是什么意思，不懂你们圈子的玩法，
+
+气的要r个啥玩意给大伙 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202412/01/070352llwchdg46w94drl6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (8.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 07:03 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">别这么说，你中了，今天内请私信我
+

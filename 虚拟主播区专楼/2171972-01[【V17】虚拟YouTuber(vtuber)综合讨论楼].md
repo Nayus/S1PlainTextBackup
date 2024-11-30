@@ -71,3 +71,11 @@ yysy管人不搞限定复活真的浪费吧
 
 3d上宣布还搞倒计时让大家以为她已经准备好了，结果当天发表啥也没有就是宣布正在招人有意向的可以来，over<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  格林卡罗尔  
+##### 900#       发表于 2024-11-30 19:17
+
+holox这三周年有点炸裂啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

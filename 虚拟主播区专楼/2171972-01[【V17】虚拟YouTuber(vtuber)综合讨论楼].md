@@ -63,3 +63,11 @@ yysy管人不搞限定复活真的浪费吧
 
 话说她之前说的招人有新消息吗
 
+
+*****
+
+####  Harunoharu  
+##### 899#       发表于 2024-11-30 18:50
+
+3d上宣布还搞倒计时让大家以为她已经准备好了，结果当天发表啥也没有就是宣布正在招人有意向的可以来，over<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

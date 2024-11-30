@@ -978,3 +978,21 @@ roll一下
 
 容我先去搜下POE是啥 看楼上的回复 好像和Diablo同一类型？
 
+
+*****
+
+####  ninini212  
+##### 109#       发表于 2024-11-30 14:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">POE和暗黑哪个策划病更大我不好说
+
+不过喜欢搭BUILD确实是POE更好一点
+
+
+*****
+
+####  nma  
+##### 110#       发表于 2024-11-30 14:23
+
+点都没点，用脚趾想也是垃圾kol。当然国服poe和d4“社区”说白了本来就是传奇味，给大家一点日漫味和西幻味之外的冲击，国际服更是RMT discord都被开发者前瞻访谈亲自不点名阴阳的程度，这是游戏秉性决定的。玩家根本没必要卷入这种纷争，理性的选择是取关这些输出观点的蛀虫，然后1. 用xgp接上手柄享受d4到终局前的完美暴雪精品  2. 弃坑d4玩poe1  3. 随时准备好喷poe2开发组，因为2的很多修改我看是按捺不住要骑上玩家头了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

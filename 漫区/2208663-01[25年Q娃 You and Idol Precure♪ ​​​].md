@@ -1028,3 +1028,14 @@ You暗示Idol要拆开，所以应该是You and I do l***
 
 就像来打那边因为时代变迁摩托基本就前期骑个一两集后面完全变空气，也不敢说真的直接把摩托载具直接取消了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王留美  
+##### 105#       发表于 2024-12-1 02:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66810409&amp;ptid=2208663" target="_blank">pokemon最爱 发表于 2024-11-30 22:36</a>
+ 但你得考虑以后周年纪念还是会做全明星剧场版这事啊 就像来打那边因为时代变迁摩托基本就前期骑个一两集 ...</blockquote>
+那更简单了。
+可以直接联动元祖东映魔法少女了
+

@@ -962,3 +962,17 @@ q娃音乐外贴情况很少 也就剧场版能贴 天空剧场版主题曲索�
 
 —— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  粉儿alice  
+##### 100#       发表于 2024-11-30 13:32
+
+明年打戏怎么安排 莫非几种
+正统q娃
+战姬绝唱
+人鱼的旋律
+东映魔女子
+美妙爱活
+再不济搞斗舞 还美其名曰能和舞台剧五男人搞联动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

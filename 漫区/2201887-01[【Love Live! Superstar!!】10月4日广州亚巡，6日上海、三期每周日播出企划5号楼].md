@@ -11124,3 +11124,27 @@ re0结束了
 
 至于是大华语区还是纯中国大陆就不清楚了
 
+
+*****
+
+####  csolfans  
+##### 1084#       发表于 2024-11-30 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66807990&amp;ptid=2201887" target="_blank">渡辺梨加 发表于 2024-11-30 15:13</a>
+鲤鱼这是从叔叔家改签约摩登天空了？
+
+—— 來自 鵝球 v3.1.88.3-alpha</blockquote>
+超电现在是否还活着都不清楚
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+
+*****
+
+####  starring  
+##### 1085#       发表于 2024-11-30 16:44
+
+有人科普一下这个摩登天空吗，看了一下动态提到早前跟环球音乐合作了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

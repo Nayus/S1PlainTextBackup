@@ -170,3 +170,14 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">这个up来的好啊，正好之前攒了三十抽，抽完伽梨出了
 
+
+*****
+
+####  alucardcz  
+##### 15204#       发表于 2024-11-30 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66808590&amp;ptid=2084912" target="_blank">v22325 发表于 2024-11-30 17:24</a>
+
+这个up来的好啊，正好之前攒了三十抽，抽完伽梨出了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">欧皇  你又骗人 萌新allin 无事发生
+

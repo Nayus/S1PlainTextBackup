@@ -580,3 +580,52 @@ D4的这个dlc对比夺魂之镰就跟答辩一样，还有万年修不好的复
 
 支持一下<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zzy516232108  
+##### 67#       发表于 2024-11-30 09:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我一直看他d3build抄的 虽然d3build都大同小异.
+
+*****
+
+####  Tienx  
+##### 68#       发表于 2024-11-30 09:24
+
+昨天刷到这个视频，看到他大谈特谈POE的RMT，加上弹幕，真是闹麻了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sayuki1025  
+##### 69#       发表于 2024-11-30 09:28
+
+我想在国区steam上玩 有啥办法<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+南极减除这么喜欢锁区
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  突发性哮喘病患  
+##### 70#         楼主| 发表于 2024-11-30 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66806043&amp;ptid=2208805" target="_blank">Sayuki1025 发表于 2024-11-30 09:28</a>
+
+我想在国区steam上玩 有啥办法
+
+南极减除这么喜欢锁区</blockquote>
+切区入库然后在切回来，但是不建议这样。
+
+推荐方法有两个，一个是STEAM创建个低价区没消费过的小号然后切号玩，二是直接客户端，比STEAM方便还不用先开加速上STEAM
+
+*****
+
+####  原罪的卡辛#3533  
+##### 71#       发表于 2024-11-30 09:31
+
+我想问问他这个视频里说的那些是错的，poe我不是很了解
+
+—— 来自 vivo V2338A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

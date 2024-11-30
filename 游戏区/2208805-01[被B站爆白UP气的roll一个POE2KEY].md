@@ -1120,3 +1120,11 @@ poe1一直入不了坑
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">狗屎暴雪早死早超生
 
+
+*****
+
+####  windaria  
+##### 124#       发表于 2024-11-30 17:05
+
+在国服早期玩过一会，这次趁着2革新加简化看看能不能入坑
+

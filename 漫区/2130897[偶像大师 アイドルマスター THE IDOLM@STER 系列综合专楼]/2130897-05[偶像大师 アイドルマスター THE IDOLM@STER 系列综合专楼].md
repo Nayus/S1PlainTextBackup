@@ -1182,3 +1182,13 @@ scsp的抽象周年剧情过后甘奈已经自己坐一桌了，04罪不至此
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  全装甲夏亚  
+##### 6723#       发表于 2024-11-30 13:39
+
+04无敌了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

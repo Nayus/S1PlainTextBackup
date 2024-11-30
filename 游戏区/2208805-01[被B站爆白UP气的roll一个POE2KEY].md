@@ -1128,3 +1128,11 @@ poe1一直入不了坑
 
 在国服早期玩过一会，这次趁着2革新加简化看看能不能入坑
 
+
+*****
+
+####  结发受长生  
+##### 125#       发表于 2024-11-30 17:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+

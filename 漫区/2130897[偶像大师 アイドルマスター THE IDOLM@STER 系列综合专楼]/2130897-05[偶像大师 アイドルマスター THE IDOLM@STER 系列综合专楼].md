@@ -1201,3 +1201,13 @@ scsp的抽象周年剧情过后甘奈已经自己坐一桌了，04罪不至此
 告白信，看房，喝酒<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 04if也太爽了，究极擦边
 
+
+*****
+
+####  天堂懵懂人  
+##### 6725#       发表于 2024-11-30 15:27
+
+【【偶像大师 闪耀色彩 动画】asobi store BD 特装版收录迷光「Wandering Dream Chaser」CAST MV 部分映像-哔哩哔哩】 https://b23.tv/gLd5soc
+
+我靠真上天台么
+

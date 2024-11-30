@@ -38,3 +38,18 @@ Stig
 按顺序生成颜色序列，有类推箱成分
 [https://store.steampowered.com/app/2834830/Stig/](https://store.steampowered.com/app/2834830/Stig/)
 
+
+*****
+
+####  白軍浪  
+##### 231#       发表于 2024-11-30 22:14
+
+Gentoo Rescue
+[https://store.steampowered.com/app/2830480/Gentoo_Rescue/](https://store.steampowered.com/app/2830480/Gentoo_Rescue/)
+
+滑冰加推箱
+
+关卡排布还加了递归要素
+
+我看它有大帝之资
+

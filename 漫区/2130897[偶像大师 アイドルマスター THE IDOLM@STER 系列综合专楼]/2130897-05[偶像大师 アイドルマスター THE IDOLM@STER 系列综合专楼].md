@@ -1192,3 +1192,12 @@ scsp的抽象周年剧情过后甘奈已经自己坐一桌了，04罪不至此
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  lunaticfool  
+##### 6724#       发表于 2024-11-30 15:05
+
+告白信，看房，喝酒<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+04if也太爽了，究极擦边
+

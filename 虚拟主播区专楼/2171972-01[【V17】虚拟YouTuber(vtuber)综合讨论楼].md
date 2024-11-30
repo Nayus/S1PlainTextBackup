@@ -79,3 +79,11 @@ yysy管人不搞限定复活真的浪费吧
 
 holox这三周年有点炸裂啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 901#       发表于 2024-11-30 21:01
+
+这次VCRGTA运营自称从头开始设计的世界有点意思啊，看看有多大差别，看预告片的话也就是多几个小游戏的程度
+

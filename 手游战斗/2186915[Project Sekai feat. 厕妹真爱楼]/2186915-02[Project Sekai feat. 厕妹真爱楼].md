@@ -573,3 +573,11 @@ Mzk已经炸了，ena急得快疯了，mfy好不容易安定下来要是拖mzk�
 井了mzk出了另两个，情绪稳定<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">可惜这次剧本太一般了，ena自己的故事基本原地踏步，能画出课题了那段甚至给挤到卡面剧情里去了……
 另外ena花前疑似分辨率低，剪裁到卡面上的竖版看着好出戏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">集美一堆骂丑卡了真是有点遭不住
 
+
+*****
+
+####  AveMujica  
+##### 1813#       发表于 2024-11-30 22:48
+
+特别特别好的ena五箱...特别特别好的25时的大家，特别特别好的vbs，特别特别好的类前辈，声优们的演出实在是太棒了，舍友在旁边都还是没忍住泪目了...很棒的第一视角演出，最后第8话的演出也相当精彩，以两人互相的视角看着对方，这种特殊演出方式希望以后也更多一点。[保卫萝卜_哭哭][保卫萝卜_哭哭][保卫萝卜_哭哭]
+

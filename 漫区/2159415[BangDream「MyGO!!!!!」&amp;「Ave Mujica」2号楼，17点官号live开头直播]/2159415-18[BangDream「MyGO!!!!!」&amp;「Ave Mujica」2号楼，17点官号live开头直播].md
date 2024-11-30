@@ -16181,3 +16181,20 @@ b站确认同步放送了
 
 就是抽选的编号吧，是什么数字都不重要
 
+
+*****
+
+####  SakuraのOrigami  
+##### 26498#       发表于 2024-11-30 09:43
+
+[https://x.com/bpdne/status/1862522161237565752](https://x.com/bpdne/status/1862522161237565752)
+
+GdkCCBpWMAAUAko.jpg
+(92.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-30 09:43 上传
+
+<img src="https://img.saraba1st.com/forum/202411/30/094310mz2rp81j878ioo5w.jpg" referrerpolicy="no-referrer">
+

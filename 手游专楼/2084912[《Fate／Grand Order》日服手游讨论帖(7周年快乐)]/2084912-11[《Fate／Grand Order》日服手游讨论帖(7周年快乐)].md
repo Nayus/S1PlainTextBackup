@@ -181,3 +181,14 @@
 这个up来的好啊，正好之前攒了三十抽，抽完伽梨出了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">欧皇  你又骗人 萌新allin 无事发生
 
+
+*****
+
+####  qixinno2  
+##### 15205#       发表于 2024-11-30 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66809067&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-11-30 19:02</a>
+
+欧皇  你又骗人 萌新allin 无事发生</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但狗萌新前几天不是出了图坦卡蒙
+

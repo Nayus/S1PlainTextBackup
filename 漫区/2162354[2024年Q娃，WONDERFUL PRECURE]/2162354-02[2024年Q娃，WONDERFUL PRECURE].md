@@ -64,3 +64,11 @@
 
 尤其是幸充的打歌服和live bank，怕不就是设想的遗留物。
 
+
+*****
+
+####  jaewoongh_  
+##### 2628#       发表于 2024-11-30 11:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">预告图也是跟反派聊上天了，正朝着预测的方向一路狂奔
+

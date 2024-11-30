@@ -1256,7 +1256,7 @@
     "newtitle": "[Fate／Grand Order FGO国服专楼 8／4 坟头长草但是2500天]",
     "lastedit": 1732696572,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1334731": {
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 9996,
+    "totalreply": 9998,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》11.14椿色撩人]",
-    "lastedit": 1732955298,
+    "lastedit": 1732955649,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -7902,10 +7902,10 @@
     "update": false
   },
   "2050404": {
-    "totalreply": 68075,
+    "totalreply": 68076,
     "title": "[东映完全新作原创动画『GIRLS BAND CRY』2024年4月]",
     "newtitle": "[东映完全新作原创动画『GIRLS BAND CRY』2024年4月]",
-    "lastedit": 1732955298,
+    "lastedit": 1732955901,
     "category": "漫区",
     "active": true,
     "update": false
@@ -9522,10 +9522,10 @@
     "update": false
   },
   "2195588": {
-    "totalreply": 4583,
+    "totalreply": 4584,
     "title": "[【A40】A-SOUL（枝江娱乐）综合讨论楼]",
     "newtitle": "[【A40】A-SOUL（枝江娱乐）综合讨论楼]",
-    "lastedit": 1732953135,
+    "lastedit": 1732955769,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9675,10 +9675,10 @@
     "update": false
   },
   "2146289": {
-    "totalreply": 427,
+    "totalreply": 428,
     "title": "[『龙珠DAIMA』 40周年献礼作 2024年10月放送决定！]",
     "newtitle": "[『龙珠DAIMA』 40周年献礼作 2024年10月放送决定！]",
-    "lastedit": 1732953498,
+    "lastedit": 1732955901,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10080,10 +10080,10 @@
     "update": false
   },
   "2201926": {
-    "totalreply": 28814,
+    "totalreply": 28815,
     "title": "[【集中楼】百合&amp;泛百合讨论楼9.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼9.0]",
-    "lastedit": 1732954934,
+    "lastedit": 1732955895,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10530,10 +10530,10 @@
     "update": false
   },
   "2204458": {
-    "totalreply": 1322,
+    "totalreply": 1324,
     "title": "[【纯良向】米哈游百合讨论楼]",
     "newtitle": "[【纯良向】米哈游百合讨论楼]",
-    "lastedit": 1732954568,
+    "lastedit": 1732955768,
     "category": "手游战斗",
     "active": true,
     "update": false
@@ -10863,10 +10863,10 @@
     "update": false
   },
   "2009743": {
-    "totalreply": 1118,
+    "totalreply": 1119,
     "title": "[《潜行者2 切尔诺贝利之心》新PV公开，延期至11月20日发售]",
     "newtitle": "[《潜行者2 切尔诺贝利之心》新PV公开，延期至11月20日发售]",
-    "lastedit": 1732949656,
+    "lastedit": 1732955650,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11258,15 +11258,6 @@
     "active": false,
     "update": false
   },
-  "2206737": {
-    "totalreply": 255,
-    "title": "[清华大学生因北航女友作弊被抓殴打辅导员]",
-    "newtitle": "[清华大学生因北航女友作弊被抓殴打辅导员]",
-    "lastedit": 1731745773,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
   "2206767": {
     "totalreply": 487,
     "title": "[本人女，24岁，想找对象（男性）]",
@@ -11614,15 +11605,6 @@
     "title": "[物业费涨了170%，上海这个小区仍“强扣”物业经理20年不撒手]",
     "newtitle": "[物业费涨了170%，上海这个小区仍“强扣”物业经理20年不撒手]",
     "lastedit": 1731754811,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2206990": {
-    "totalreply": 72,
-    "title": "[类似SAP的ERP系统为什么成本那么高]",
-    "newtitle": "[类似SAP的ERP系统为什么成本那么高]",
-    "lastedit": 1731745807,
     "category": "外野",
     "active": false,
     "update": false
@@ -16169,7 +16151,7 @@
     "newtitle": "[风闻社区发文揭露韩国养熊猫阴谋后，被打爆投诉电话]",
     "lastedit": 1732696100,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2208370": {
@@ -16686,10 +16668,10 @@
     "update": false
   },
   "2208518": {
-    "totalreply": 61,
+    "totalreply": 62,
     "title": "[怪物猎人这玩意是真耐玩啊]",
     "newtitle": "[怪物猎人这玩意是真耐玩啊]",
-    "lastedit": 1732945941,
+    "lastedit": 1732955407,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17100,10 +17082,10 @@
     "update": false
   },
   "2208716": {
-    "totalreply": 391,
+    "totalreply": 392,
     "title": "[优衣库创始人公开表态绝不用新疆棉]",
     "newtitle": "[优衣库创始人表态没有用新疆棉]",
-    "lastedit": 1732954696,
+    "lastedit": 1732955901,
     "category": "外野",
     "active": true,
     "update": false
@@ -17118,10 +17100,10 @@
     "update": false
   },
   "2208693": {
-    "totalreply": 79,
+    "totalreply": 80,
     "title": "[【睡个好觉】现在有呼吸障碍用呼吸机助眠的比例真的超级高了]",
     "newtitle": "[【睡个好觉】现在有呼吸障碍用呼吸机助眠的比例真的超级高了]",
-    "lastedit": 1732954940,
+    "lastedit": 1732955901,
     "category": "外野",
     "active": true,
     "update": false
@@ -17370,10 +17352,10 @@
     "update": false
   },
   "2208810": {
-    "totalreply": 102,
+    "totalreply": 104,
     "title": "[［重口］百万蟑螂，太解压了]",
     "newtitle": "[［重口］百万蟑螂，太解压了]",
-    "lastedit": 1732954940,
+    "lastedit": 1732955901,
     "category": "外野",
     "active": true,
     "update": false
@@ -17460,10 +17442,10 @@
     "update": false
   },
   "2208845": {
-    "totalreply": 49,
+    "totalreply": 52,
     "title": "[日产高管：救救！快死了]",
     "newtitle": "[日产高管：救救！快死了]",
-    "lastedit": 1732955298,
+    "lastedit": 1732955901,
     "category": "外野",
     "active": true,
     "update": false

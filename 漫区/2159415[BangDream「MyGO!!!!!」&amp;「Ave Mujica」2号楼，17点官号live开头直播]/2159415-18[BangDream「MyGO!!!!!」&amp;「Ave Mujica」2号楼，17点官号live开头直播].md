@@ -16340,3 +16340,49 @@ QQ图片20241130201849.jpg
 
 什么样的少儿不宜，有那样的亲亲吗<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 26513#         楼主| 发表于 2024-11-30 22:28
+
+ 本帖最后由 紫吹兰 于 2024-11-30 22:29 编辑 
+
+[https://tieba.baidu.com/p/9297242457](https://tieba.baidu.com/p/9297242457)
+
+在明天Mujica点映之前最后提一下一个长期被忽视的事实，那就是MyGO!!!!!动画的第一个与最后一个登场的其实都是祥子。
+
+第一个画面是即将解散CCC的祥子
+
+<img src="https://img.saraba1st.com/forum/202411/30/222737riq9v1nmo0nenk0j.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20241130204508.png</strong> (2.16 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-30 22:27 上传
+
+最后一个画面是刚刚组建Mujica的祥子
+
+<img src="https://img.saraba1st.com/forum/202411/30/222926yi787k8h8f88nhxk.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20241130204620.png</strong> (1.06 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-30 22:29 上传
+
+顺便无奖竞猜一下Mujica第一个登场与最后一个退场的又都会是谁？
+
+<img src="https://img.saraba1st.com/forum/202411/30/222735grqqdcq0jiejrwtz.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>133428j546mj49m0ffd94x.webp</strong> (44.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-30 22:27 上传
+
+从新加坡点映莫名其妙的单人宣传画来看大概率是祥子，小概率是Mujica全员，但是也有可能还给MyGO?
+
+至于最后一个画面大概有祥子单人/Mujica5人/MM10人三种可能？
+

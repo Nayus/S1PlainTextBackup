@@ -87,3 +87,11 @@ holox这三周年有点炸裂啊<img src="https://static.saraba1st.com/image/smi
 
 这次VCRGTA运营自称从头开始设计的世界有点意思啊，看看有多大差别，看预告片的话也就是多几个小游戏的程度
 
+
+*****
+
+####  Harunoharu  
+##### 902#       发表于 2024-11-30 22:29
+
+ojj和土井这俩大哥可是能做出为了gta里的平衡强行限制直播主行动和强制分配职位的事情的，建议不要对他们的灵机一动有什么期待<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

@@ -11186,3 +11186,17 @@ re0结束了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
 
+
+*****
+
+####  csolfans  
+##### 1090#       发表于 2024-11-30 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66810068&amp;ptid=2201887" target="_blank">starring 发表于 2024-11-30 21:34</a>
+北上广三地签售会，等开预订就下单
+
+—— 来自 鹅球 v3.1.90</blockquote>
+坛友叠几张
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

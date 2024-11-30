@@ -1089,3 +1089,18 @@ poe1一直入不了坑
 
 赵老师不如直接送我
 
+
+*****
+
+####  突发性哮喘病患  
+##### 121#         楼主| 发表于 2024-11-30 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66808133&amp;ptid=2208805" target="_blank">中已矣 发表于 2024-11-30 15:43</a>
+
+赵老师不如直接送我
+
+这么恨，为啥不用AI画个条漫发出来给大家乐呵乐呵。
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">滚，nmsl
+

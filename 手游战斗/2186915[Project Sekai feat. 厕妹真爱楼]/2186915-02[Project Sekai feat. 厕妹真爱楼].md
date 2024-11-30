@@ -493,3 +493,12 @@ Mzk已经炸了，ena急得快疯了，mfy好不容易安定下来要是拖mzk�
 
 啊啊啊……小日向被冲到删了转发ena ban并说感想的动态（具体不知道啥情况）……铃果这次没转ena ban……上次mzk5刚完铃果去生放送因为转发生放送预告的语气很正常营业被冲到删转发……你烤玩家在哪都很抽象，烤的角色和中之人分的够开了啦[藏狐]
 
+
+*****
+
+####  Alicest  
+##### 1806#       发表于 2024-11-30 10:55
+
+<img src="https://p.sda1.dev/20/cbf8c841e1a4da27a2220fd7ef14d3d0/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/3cb8d233f1eca9d5dcc3fd108393554e/image.jpg" referrerpolicy="no-referrer">
+

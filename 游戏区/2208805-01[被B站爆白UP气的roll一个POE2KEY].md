@@ -707,3 +707,18 @@ STEAM注册个俄区小号，记得定区，然后淘宝直冲230，买60刀的�
 
 兹瓷<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  whfnet  
+##### 79#       发表于 2024-11-30 10:14
+
+凑个热闹
+
+*****
+
+####  requiem116  
+##### 80#       发表于 2024-11-30 10:17
+
+分母分母，现在poe2是不是一定要加速器才行
+

@@ -1088,3 +1088,15 @@ ABFLUG的Supra
 另外就是第一次PA比赛 ...</blockquote>
 现在demo里故意输给的太少基本不用考虑，唯独如果你占领了PA，另外一个队伍BOSS向你发起挑战会给你钱故意输，但是你不需要给赌注
 
+
+*****
+
+####  Totokei  
+##### 62#       发表于 2024-11-30 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66805200&amp;ptid=2166221" target="_blank">Tnsbilws 发表于 2024-11-30 00:37</a>
+现在demo里故意输给的太少基本不用考虑，唯独如果你占领了PA，另外一个队伍BOSS向你发起挑战会给你钱故意 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要是游戏开头突然买了个车就背上了几百万的债务，有种世间险恶的感觉
+
+就怕故意输了赌注没了收获了一句“HAHAHA”
+

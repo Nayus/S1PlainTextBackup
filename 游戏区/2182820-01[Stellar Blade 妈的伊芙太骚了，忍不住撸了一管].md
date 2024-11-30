@@ -1503,3 +1503,33 @@ R1加左键还是右键来着
 
 过于简单粗暴，不如2B
 
+
+*****
+
+####  B.K.  
+##### 114#         楼主| 发表于 2024-11-30 14:32
+
+<img src="https://img.saraba1st.com/forum/202411/30/143145snuttsy1661qotyy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0297.jpeg</strong> (507.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-30 14:31 上传
+
+<img src="https://img.saraba1st.com/forum/202411/30/143145cyddptzw2qvypziy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0298.jpeg</strong> (1 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-30 14:31 上传
+
+<img src="https://img.saraba1st.com/forum/202411/30/143146q5hmi5pghkmbmpi3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0299.jpeg</strong> (1008.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-30 14:31 上传
+

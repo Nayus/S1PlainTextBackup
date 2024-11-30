@@ -860,3 +860,19 @@ roll
 
 暴白来咯
 
+
+*****
+
+####  fangJmin  
+##### 95#       发表于 2024-11-30 11:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">D4几个赛季玩下来感觉就是官方各种不让你爽啊，dlc倒是p2w起来了。
+
+
+*****
+
+####  cxl6191467  
+##### 96#       发表于 2024-11-30 11:52
+
+当个分母吧 恍惚中好像超过这位的BD
+

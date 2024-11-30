@@ -1112,3 +1112,11 @@ poe1一直入不了坑
 
 没玩过POE，当个分母尝试一下<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Seraphim7  
+##### 123#       发表于 2024-11-30 16:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">狗屎暴雪早死早超生
+

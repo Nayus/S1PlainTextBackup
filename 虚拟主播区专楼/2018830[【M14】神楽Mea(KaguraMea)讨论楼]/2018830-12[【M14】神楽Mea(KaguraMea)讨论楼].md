@@ -808,3 +808,31 @@ vtb圈子里不知道能不能找到6月3-5号左右去韩国整形的记录，�
 
 沃想要这个链接
 
+
+*****
+
+####  TiHaru  
+##### 17684#       发表于 2024-11-30 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66810758&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2024-11-30 23:30</a>
+主播表示最近对撸撸真的很冷淡呢
+
+怎么突然提到了野兔子</blockquote>
+因为野兔子发了sc被认出来了
+
+*****
+
+####  sino__unnko3  
+##### 17685#       发表于 2024-11-30 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66810867&amp;ptid=2018830" target="_blank">TiHaru 发表于 2024-11-30 23:51</a>
+因为野兔子发了sc被认出来了</blockquote>
+哪位啊，当时现场没认出来
+
+*****
+
+####  TiHaru  
+##### 17686#       发表于 2024-11-30 23:56
+
+叫切尔西那个
+

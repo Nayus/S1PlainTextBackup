@@ -426,3 +426,18 @@ POE 氪金包买哪个好？ 借楼问一下
 
 英文缩写真的是坏文明
 
+
+*****
+
+####  Onelooker  
+##### 49#       发表于 2024-11-30 08:04
+
+poe2也是够能拖的
+
+*****
+
+####  隔夜的哈劳斯  
+##### 50#       发表于 2024-11-30 08:06
+
+可他说的不是事实吗，poe确实一直在碰瓷啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

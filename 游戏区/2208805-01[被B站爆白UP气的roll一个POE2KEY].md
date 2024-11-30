@@ -1056,3 +1056,13 @@ D4 听说复制bug一直没修？poe这边出个啥对玩家有利的bug封锁�
 
 D4烂完了真没意思，希望poe2好玩一点。
 
+
+*****
+
+####  JanShing  
+##### 117#       发表于 2024-11-30 15:30
+
+poe1一直入不了坑
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

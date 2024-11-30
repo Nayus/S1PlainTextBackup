@@ -684,3 +684,26 @@ D4除了第一赛季装装模作样封了一星期还有什么，所有主播都
 
 支持一下，但两个游戏都没玩过……
 
+
+*****
+
+####  突发性哮喘病患  
+##### 77#         楼主| 发表于 2024-11-30 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66805724&amp;ptid=2208805" target="_blank">菲星 发表于 2024-11-30 07:38</a>
+
+POE 氪金包买哪个好？ 借楼问一下</blockquote>
+STEAM注册个俄区小号，记得定区，然后淘宝直冲230，买60刀的的包，可以在打折的时候买齐最基本的功能仓库，后续加几个小仓基本上就不需要氪金了。
+
+俄区后期还可以挂刀享受4折优惠，买大包很划算
+<strong>强调下，低价区必须用原生账号，并且没有在其他区消费过才不会被封禁</strong>
+<strong>如果开通交易市场还可以享受挂刀折中折，现在比例是0.7最低的状况，只不过要等七天</strong>
+<strong>网址如下 [https://www.iflow.work/](https://www.iflow.work/)</strong>
+
+*****
+
+####  leyenda  
+##### 78#       发表于 2024-11-30 10:10
+
+兹瓷<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+

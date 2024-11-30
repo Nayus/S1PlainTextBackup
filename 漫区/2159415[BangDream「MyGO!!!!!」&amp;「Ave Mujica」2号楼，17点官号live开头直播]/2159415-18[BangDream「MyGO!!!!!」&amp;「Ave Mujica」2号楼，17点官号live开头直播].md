@@ -16222,3 +16222,11 @@ GdkCCBpWMAAUAko.jpg
 
 会加入響吗<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 26501#         楼主| 发表于 2024-11-30 12:35
+
+之前这种非专业声优都是去ace社，不过这两年ace退了不少不好说还会不会挂到ace去
+

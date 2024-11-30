@@ -730,3 +730,32 @@ STEAM注册个俄区小号，记得定区，然后淘宝直冲230，买60刀的�
 
 分母+1<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UNICORN00  
+##### 82#       发表于 2024-11-30 10:34
+
+分母
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+*****
+
+####  unclea  
+##### 83#       发表于 2024-11-30 10:36
+
+朋友没买我也就没买
+
+白给我还是要的
+
+
+*****
+
+####  hzsdr  
+##### 84#       发表于 2024-11-30 10:42
+
+资瓷一下<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

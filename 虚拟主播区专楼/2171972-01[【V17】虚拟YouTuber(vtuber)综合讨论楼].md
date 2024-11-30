@@ -95,3 +95,14 @@ holox这三周年有点炸裂啊<img src="https://static.saraba1st.com/image/smi
 
 ojj和土井这俩大哥可是能做出为了gta里的平衡强行限制直播主行动和强制分配职位的事情的，建议不要对他们的灵机一动有什么期待<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  格林卡罗尔  
+##### 903#       发表于 2024-12-1 03:24
+
+从预告片能看出来的，大概是城市被大改了
+另外有些人真是太坚守岗位了，这也不来vcr玩<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

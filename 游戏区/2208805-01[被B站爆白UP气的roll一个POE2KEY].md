@@ -456,3 +456,21 @@ poe2也是够能拖的
 
 来咯<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洪水熊猫大势去  
+##### 53#       发表于 2024-11-30 08:31
+
+来了来了 快给我
+
+
+*****
+
+####  问答無用  
+##### 54#       发表于 2024-11-30 08:37
+
+楼主生气我能理解，不过你这给他挂视频链接不是给他热度么。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+POE2确实值得玩，尤其是自己懂了后从零折腾自己BD玩起来还挺有趣的。
+

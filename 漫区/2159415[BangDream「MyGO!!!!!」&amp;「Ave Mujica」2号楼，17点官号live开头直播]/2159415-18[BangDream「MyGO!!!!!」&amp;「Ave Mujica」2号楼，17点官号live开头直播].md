@@ -16456,3 +16456,14 @@ QQ图片20241130201849.jpg
 作品举例：亿万少年、长江七号、内衣少女、宝贝计划、特务S唛、妈妈咪呀、流浪汉世界杯、一百万零一夜、渺渺、我的野蛮女友、礼仪师之奏鸣曲
 描述吓人，但作品举例还行
 
+
+*****
+
+####  oi99o  
+##### 26520#       发表于 2024-11-30 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66810731&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-11-30 23:25</a>
+
+有人解说一下这个分级按照一般常见标准来看是多少吗，12+？15+？</blockquote>
+IIA算12+，IIB算15+
+

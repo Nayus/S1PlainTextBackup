@@ -996,3 +996,13 @@ roll一下
 
 点都没点，用脚趾想也是垃圾kol。当然国服poe和d4“社区”说白了本来就是传奇味，给大家一点日漫味和西幻味之外的冲击，国际服更是RMT discord都被开发者前瞻访谈亲自不点名阴阳的程度，这是游戏秉性决定的。玩家根本没必要卷入这种纷争，理性的选择是取关这些输出观点的蛀虫，然后1. 用xgp接上手柄享受d4到终局前的完美暴雪精品  2. 弃坑d4玩poe1  3. 随时准备好喷poe2开发组，因为2的很多修改我看是按捺不住要骑上玩家头了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gohouruni  
+##### 111#       发表于 2024-11-30 14:55
+
+poe2有排骨吃吗想转战了？暗黑4前几个赛季复制还没那么猖狂确实吃到排骨了，这个赛季复制装备太多了一点没吃到肉
+
+—— 来自 motorola XT2153-1, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

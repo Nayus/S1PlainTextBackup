@@ -778,3 +778,33 @@ vtb圈子里不知道能不能找到6月3-5号左右去韩国整形的记录，�
 
 好好的整什么容啊，今天动一点明天割一刀，等着下半辈子被美容院套牢吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sino__unnko3  
+##### 17681#       发表于 2024-11-30 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66807775&amp;ptid=2018830" target="_blank">makourisu-2 发表于 2024-11-30 14:27</a>
+好好的整什么容啊，今天动一点明天割一刀，等着下半辈子被美容院套牢吧</blockquote>
+这人老早被美容院的养发啥的套牢了（早年tc就提到，source:萌娘百科 咩咩的历程），但是有个问题，她说这个整容要定期维护，但是疼的不想再来一次了，好奇后续会如何
+
+*****
+
+####  sino__unnko3  
+##### 17682#       发表于 2024-11-30 23:30
+
+ 本帖最后由 sino__unnko3 于 2024-11-30 23:35 编辑 
+
+主播表示最近对撸撸真的很冷淡呢
+
+怎么突然提到了野兔子
+
+主播有三个号买了faker皮肤，一共五个号，和不同朋友玩，继续找罢(
+
+*****
+
+####  sino__unnko3  
+##### 17683#       发表于 2024-11-30 23:41
+
+沃想要这个链接
+

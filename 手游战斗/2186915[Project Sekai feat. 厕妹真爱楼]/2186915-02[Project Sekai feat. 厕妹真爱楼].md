@@ -562,3 +562,14 @@ Mzk已经炸了，ena急得快疯了，mfy好不容易安定下来要是拖mzk�
 
 2024-11-30 16:05 上传
 
+
+*****
+
+####  sgssk  
+##### 1812#       发表于 2024-11-30 17:47
+
+ 本帖最后由 sgssk 于 2024-11-30 17:48 编辑 
+
+井了mzk出了另两个，情绪稳定<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">可惜这次剧本太一般了，ena自己的故事基本原地踏步，能画出课题了那段甚至给挤到卡面剧情里去了……
+另外ena花前疑似分辨率低，剪裁到卡面上的竖版看着好出戏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">集美一堆骂丑卡了真是有点遭不住
+

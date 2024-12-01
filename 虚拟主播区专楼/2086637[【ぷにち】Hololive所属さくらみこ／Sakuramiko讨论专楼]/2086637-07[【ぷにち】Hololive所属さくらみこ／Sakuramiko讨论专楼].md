@@ -17132,3 +17132,35 @@ flower rhapsody MV一个月，看看youtube给的播放数据分析
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 10288#         楼主| 发表于 2024-12-1 13:03
+
+日本麦乐送官方app的今天下午的预约已经很多时间段停止预约了，逼得不少人直接跑门店排长队买
+
+*****
+
+####  holoan  
+##### 10289#         楼主| 发表于 2024-12-1 13:40
+
+<img src="https://img.saraba1st.com/forum/202412/01/133936mwwk4eiwe5z9d155.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (73.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 13:39 上传
+
+忘了贴了今天早上的2个封面同时直播
+
+kanade吹得很好
+
+*****
+
+####  holoan  
+##### 10290#         楼主| 发表于 2024-12-1 13:41
+
+今天如果是工作室直播的话，19点开始那个电视台节目到21点45结束，不知道22点会不会开个台
+

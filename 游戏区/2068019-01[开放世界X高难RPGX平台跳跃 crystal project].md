@@ -1195,3 +1195,14 @@ mercury到过了是吧
 
 现在工坊里那个汉化质量还可以啊，没必要再做了吧。这游戏又不玩剧情......
 
+
+*****
+
+####  requiem116  
+##### 102#       发表于 2024-12-1 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66809673&amp;ptid=2068019" target="_blank">桐道悠 发表于 2024-11-30 20:25</a>
+
+现在工坊里那个汉化质量还可以啊，没必要再做了吧。这游戏又不玩剧情...... ...</blockquote>
+开工房了吗，我看商店页面还没有，就没敢下手买
+

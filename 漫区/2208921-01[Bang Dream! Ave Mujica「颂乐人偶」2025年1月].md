@@ -3766,3 +3766,89 @@ repo那个表述方法明显是祥爹不想拖累祥子主动切割，但是祥�
 
 海玲就一句你也不信任我吗？感觉也不是没有大的可能
 
+
+*****
+
+####  大户爱  
+##### 373#       发表于 2024-12-1 15:48
+
+祥子退团还算圆的不错，祥子退团理由完全可以理解。
+
+这么惨，c团其他人受到的伤害显得微不足道。
+
+唯一的问题是，祥爸爸怎么处理，大概率是重新振作包饺子吧。
+
+*****
+
+####  tsukatsukieiko  
+##### 374#       发表于 2024-12-1 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814744&amp;ptid=2208921" target="_blank">Libartas 发表于 2024-12-1 15:35</a>
+
+草，如果大喵老师是九州人的话，感觉初喵还会有一腿，重力连锁了要</blockquote>
+九州的话，老淋淋和小胡桃也都是博多人啊。
+
+*****
+
+####  桜庭千景  
+##### 375#       发表于 2024-12-1 15:48
+
+海铃那句大概率还是对着老队员说的，repo提到海铃被揭面的时候是被观众认出来了
+
+*****
+
+####  PDQ4  
+##### 376#       发表于 2024-12-1 15:50
+
+包饺子主要还是祥爹这个负债的金额怎么办，振作起来慢慢还债吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 377#       发表于 2024-12-1 15:50
+
+上面这条日文repo好详细 ，一点个人觉得有趣的部分 <blockquote>父は豊川家のお偉いさんである義父(祥子の祖父)に認められるため</blockquote>
+祥父疑似丰川家的继子/养子/入赘 <blockquote>祥子は月ノ森の音楽祭でMorfonicaの「金色のプレリュード」を聞き心を奪われる</blockquote>
+祥子不愧是蝶真爱粉，这应该是被kirakira到了吧 <blockquote>月ノ森から生まれたバンドであることを睦から聞き</blockquote>
+睦疑似对乐队的事情很熟（mygo动画里也有疑似PP粉的表现） <blockquote>祖父を問い詰めると父が詐欺に引っかかり168億の損害を出したと伝えられる。</blockquote>
+祥爹不知道被什么东西骗了，168亿是认真的吗 <blockquote>それを聞いた祥子はそれを拒否し母の形見である人形を取ってそのまま家を飛び出す。</blockquote>
+人偶是祥子妈妈的遗物 <blockquote>そして中学生でもできる新聞配達のバイトをしながら求人広告で見かけた様々なバイト先に電話をかける。しかし、どこも中学生であることや複雑な家庭環境であることを理由に断られてしまう。</blockquote>
+中学期间就开始打工，送过报纸，但是因为中学生身份和她的家庭经常被打工单位拒
+
+*****
+
+####  星空冻结  
+##### 378#       发表于 2024-12-1 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814830&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-1 15:50</a>
+包饺子主要还是祥爹这个负债的金额怎么办，振作起来慢慢还债吗</blockquote>
+不用还啊，丰川家亏的又不是他自己的钱，本来就只是把他踢出去而已，又没让他还钱，他自己摆烂酗酒而已
+
+*****
+
+####  本间日阳  
+##### 379#       发表于 2024-12-1 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814830&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-1 15:50</a>
+
+包饺子主要还是祥爹这个负债的金额怎么办，振作起来慢慢还债吗</blockquote>
+这是公司亏损不是他欠债，本来就不用他还吧。被赶出去就已经是处罚了。
+
+*****
+
+####  skives10  
+##### 380#       发表于 2024-12-1 15:54
+
+祥子的牢爹为什么会因为喝酒被送到警察局啊
+日本这边凌晨躺马路上的醉汉挺多的 也没被送局子里
+
+*****
+
+####  仓鼠胖太  
+##### 381#       发表于 2024-12-1 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814797&amp;ptid=2208921" target="_blank">菲特妹 发表于 2024-12-1 15:43</a>
+目前就海玲还没爆点吗</blockquote>
+感觉都有大，海玲主pv镜头那么抠门，说不准在憋个大的
+

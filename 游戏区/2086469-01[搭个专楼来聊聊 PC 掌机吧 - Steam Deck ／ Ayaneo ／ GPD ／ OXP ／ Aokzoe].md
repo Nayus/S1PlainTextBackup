@@ -11,3 +11,16 @@ SD玩了一年多，对于主要玩独立游戏来说SD确实是太大了，出�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  xiuwf  
+##### 1329#       发表于 2024-12-1 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66719615&amp;ptid=2086469" target="_blank">Dreammask 发表于 2024-11-18 11:01</a>
+
+一直有点想要个微型笔记本形态的机器专门玩gal、ps2模拟器和一些独游，楼友有什么推荐的吗
+
+需求是屏幕在11 ...</blockquote>
+或者GPD Pocket 3~
+

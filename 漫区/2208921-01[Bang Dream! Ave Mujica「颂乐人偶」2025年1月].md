@@ -521,3 +521,11 @@ g不大写无言了
 请大家放心</blockquote>
 真的吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  型月神话伊阿宋  
+##### 55#       发表于 2024-12-1 08:49
+
+这汉化标题，总感觉是游戏王出新字段了
+

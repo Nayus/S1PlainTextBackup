@@ -3505,3 +3505,203 @@ mygo主要戏份是5人外加偶尔出现的睦祥(7人pv），那么ave就是5�
 
 设定集有给出喵梦跟家人通话的表情，所以有可能会有家人出场
 
+
+*****
+
+####  仓鼠胖太  
+##### 347#       发表于 2024-12-1 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814654&amp;ptid=2208921" target="_blank">ggxx001 发表于 2024-12-1 15:20</a>
+个人觉得最无语的还是会有人觉得这只手是素
+
+—— 来自 S1Fun</blockquote>
+非要说是mygo的人的话，上一季只有立希的打歌服是这种纱质长袖吧，袖口还是白的不是黑的
+
+*****
+
+####  Libartas  
+##### 348#       发表于 2024-12-1 15:26
+
+大喵老师那个口音是西日本方言还是东北方言来着？有点记不清了
+
+*****
+
+####  与天争锋_LZ  
+##### 349#       发表于 2024-12-1 15:26
+
+仰天大哭没绷住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/d2daa2c77f8de4e3d0e39a0f63350b15/image.jpg" referrerpolicy="no-referrer">
+还有这站位站的，祥子能比初华低两头
+<img src="https://p.sda1.dev/20/a3d6b429d03689eb34781fd9d12f0e44/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  哈曼的YY  
+##### 350#       发表于 2024-12-1 15:27
+
+哦对第一集已经有新人物了 祥老师的爷爷
+
+*****
+
+####  ggxx001  
+##### 351#       发表于 2024-12-1 15:28
+
+说到月之森大三角 我也很好奇三角在哪 不说素睦 光素祥跟睦祥也没啥可比性 三角的稳定性体现在哪
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  PDQ4  
+##### 352#       发表于 2024-12-1 15:28
+
+第一集就给有祥爹和祖父的戏份了，若叶家也肉眼可见的有戏份，喵也大概率有
+
+npc老登可能真不少<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+这么想就觉得真希没有脸没有声音真的难评<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  HANDAIYV  
+##### 353#       发表于 2024-12-1 15:29
+
+既然被别人评价是正常，那评价被别人评价不也是正常，那评价被评价了又是在应激什么
+
+还一个劲儿烂梗烂梗的，就说直接说自己不喜欢不想看呗
+
+
+*****
+
+####  Aendst  
+##### 354#       发表于 2024-12-1 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814687&amp;ptid=2208921" target="_blank">Libartas 发表于 2024-12-1 15:26</a>
+
+大喵老师那个口音是西日本方言还是东北方言来着？有点记不清了</blockquote>
+疑似福岡
+
+*****
+
+####  PDQ4  
+##### 355#       发表于 2024-12-1 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814695&amp;ptid=2208921" target="_blank">ggxx001 发表于 2024-12-1 15:28</a>
+
+说到月之森大三角 我也很好奇三角在哪 不说素睦 光素祥跟睦祥也没啥可比性 三角的稳定性体现在哪
+
+—— 来 ...</blockquote>
+我这么说有些新漏u又要不开心了
+
+当然是稳定在爽姐两个都要，前面漏u说的双飞姐妹花那味确实对了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御景  
+##### 356#       发表于 2024-12-1 15:31
+
+go本位的脑子当然什么事都会想到mygo人物，mujica的角色目前无人在意，这就是后发，还延迟了一年的恶果，只能鸡推自己咽了。
+
+*****
+
+####  sorecoat  
+##### 357#       发表于 2024-12-1 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814667&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-1 15:23</a>
+
+她的故事应该是指祥子，毕竟第一集观众是上帝视角，知道祥子过去发生什么事了，但剧中除了睦知道外，作为侦 ...</blockquote>
+她的故事会不会不止一个人啊
+
+*****
+
+####  椎名mahuyo  
+##### 358#       发表于 2024-12-1 15:32
+
+第一集没oped么，都是剧中歌？
+
+—— 来自 realme RMX3708, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  坚挺水表君  
+##### 359#       发表于 2024-12-1 15:32
+
+话说回来，我感觉最近一段时间的各种二创中祥父的被杀频率可能要**提升了（出生程度超过了我最恶劣的想象）
+
+*****
+
+####  skives10  
+##### 360#       发表于 2024-12-1 15:33
+
+肯定还有需要揭秘的事吧 
+或者这个pv默认观众没看过第一集
+以后还会有正式pv2？
+
+
+*****
+
+####  ydsbbt  
+##### 361#       发表于 2024-12-1 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814687&amp;ptid=2208921" target="_blank">Libartas 发表于 2024-12-1 15:26</a>
+
+大喵老师那个口音是西日本方言还是东北方言来着？有点记不清了</blockquote>
+推上看一个日本人说是九州方言
+
+*****
+
+####  挺好的  
+##### 362#       发表于 2024-12-1 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814722&amp;ptid=2208921" target="_blank">椎名mahuyo 发表于 2024-12-1 15:32</a>
+
+第一集没oped么，都是剧中歌？
+
+—— 来自 realme RMX3708, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+OP歌曲在第一集的LIVE吧
+
+*****
+
+####  allesdg  
+##### 363#       发表于 2024-12-1 15:35
+
+不如来看一下海外的repo补充一下细节，愈是看官粮愈感慨某些烂梗生拉硬拽极力找存在感，疑似有点过于可怜了
+
+图有点多就放下两篇的链接好了
+
+日文  [https://fusetter.com/tw/jur92sSL#all](https://fusetter.com/tw/jur92sSL#all)
+
+英文  [https://x.com/okusawabear/status/1863091369717481741](https://x.com/okusawabear/status/1863091369717481741)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Aendst| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  PDQ4  
+##### 364#       发表于 2024-12-1 15:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥爹这个饺子肯定是要包的，也就趁着这几个月赶紧动手了
+
+repo那个表述方法明显是祥爹不想拖累祥子主动切割，但是祥子因为亲情（此处插入N分钟煽情父女戏码）不愿放手
+
+很典的剧情
+
+*****
+
+####  Libartas  
+##### 365#       发表于 2024-12-1 15:35
+
+草，如果大喵老师是九州人的话，感觉初喵还会有一腿，重力连锁了要
+

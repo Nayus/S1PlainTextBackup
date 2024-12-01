@@ -16573,3 +16573,14 @@ Bang Dream! Ave Mujica「颂乐人偶」2025年1月
 
 2号楼暂时定位邦综楼，至于改不改名怎么改名再看看吧
 
+
+*****
+
+####  CyDiablo  
+##### 26532#       发表于 2024-12-1 15:29
+
+发点邦综楼该有的<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+2/24举办的Pastel＊Palettes Special Event「Together!!」 主视觉图公开
+<img src="https://p.sda1.dev/20/3acfcfe615ea84c4f3fec7c5770a02d0/1733038008287.jpg" referrerpolicy="no-referrer">
+

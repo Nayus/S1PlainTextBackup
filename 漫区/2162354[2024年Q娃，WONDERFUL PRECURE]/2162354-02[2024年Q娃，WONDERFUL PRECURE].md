@@ -123,3 +123,20 @@
 
 第 43 集的 TVer 源（含日字）：magnet:?xt=urn:btih:8cec1f0856bf4d8f597681956f4fd351564d4d82
 
+
+*****
+
+####  jaewoongh_  
+##### 2632#       发表于 2024-12-1 15:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">土田丰火力全开
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">说了半天，要怎么编织连接起人与狼的心灵呢？哦我突然想起来friendy的唱名是“让我倾听你的心声”，目前为止倾听了癞痢
+
+*****
+
+####  1096beam  
+##### 2633#       发表于 2024-12-1 15:28
+
+预告怎么闻到些许寿命论的气息<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+

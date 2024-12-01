@@ -11239,3 +11239,49 @@ re0结束了
 
 跳绳这事儿过不去了哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 1095#       发表于 2024-12-1 16:17
+
+香哥哥哭得莫名其妙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ViyViy  
+##### 1096#       发表于 2024-12-1 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66815016&amp;ptid=2201887" target="_blank">starring 发表于 2024-12-1 16:17</a>
+
+香哥哥哭得莫名其妙</blockquote>
+老戏骨<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  离心  
+##### 1097#       发表于 2024-12-1 16:23
+
+ 本帖最后由 离心 于 2024-12-1 16:24 编辑 
+
+op地区大赛就在新国立了决赛不敢想了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+下一集希回还行
+
+*****
+
+####  llllife  
+##### 1098#       发表于 2024-12-1 16:25
+
+看起来是薇恩回，但是节奏快的飞起，感觉说了和没说也没啥区别...
+
+*****
+
+####  ads147147  
+##### 1099#       发表于 2024-12-1 16:25
+
+希奈子回要顶梁柱了，说实话现在才给2期c个人回，这集干嘛不写。。。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -957,3 +957,99 @@ debuff拉满，不敢想出点小节奏会怎么崩塌<img src="https://static.s
 
 我要受不了了
 
+
+*****
+
+####  Kfly  
+##### 106#       发表于 2024-12-1 12:55
+
+祥爹这………哇哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  椎名真希  
+##### 107#       发表于 2024-12-1 12:55
+
+不信mujica的有难了
+
+*****
+
+####  哈曼的YY  
+##### 108#       发表于 2024-12-1 12:56
+
+看到各种奇怪剧透了
+
+*****
+
+####  水莲寺流歌  
+##### 109#       发表于 2024-12-1 12:59
+
+几点开始情报哥麻将脸闹麻环节
+
+*****
+
+####  Aendst  
+##### 110#       发表于 2024-12-1 12:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小心假剧透/断章取义/主观论断
+
+就算是正经repo也会有50%以上的信息丢失，剧透图一乐，倒是之后几场先行可以参考一下剧透查漏补缺
+
+
+*****
+
+####  SakuraのOrigami  
+##### 111#       发表于 2024-12-1 13:01
+
+【TV动画「BanG Dream! Ave Mujica」主PV-哔哩哔哩】 https://b23.tv/SABhq9b
+
+*****
+
+####  skives10  
+##### 112#       发表于 2024-12-1 13:03
+
+我不行了。<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Alicest  
+##### 113#       发表于 2024-12-1 13:03
+
+<img src="https://p.sda1.dev/20/f6c3c3211549269d7fc0f865efe3b688/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Wondering  
+##### 114#       发表于 2024-12-1 13:03
+
+神回！！！！！！！！！！！！！！！
+
+*****
+
+####  Aendst  
+##### 115#       发表于 2024-12-1 13:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这PV好有意思，该循环了
+
+*****
+
+####  HereLink  
+##### 116#       发表于 2024-12-1 13:04
+
+怎么在贴吧看到的剧透这么吓人，这也太那啥了吧
+
+*****
+
+####  金钱与民主  
+##### 117#       发表于 2024-12-1 13:05
+
+各种期待积压了一整年，光剧情展开的可能（或者假药）估计都要被穷举完了，我觉得还是先放低下期待。
+
+*****
+
+####  skives10  
+##### 118#       发表于 2024-12-1 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66813529&amp;ptid=2208921" target="_blank">Alicest 发表于 2024-12-1 13:03</a></blockquote>
+牛逼疯了我草
+

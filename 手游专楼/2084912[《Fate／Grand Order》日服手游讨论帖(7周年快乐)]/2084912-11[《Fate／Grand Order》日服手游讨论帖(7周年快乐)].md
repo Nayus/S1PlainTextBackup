@@ -226,3 +226,21 @@
 
 馋那点黑曜石小刀，还是给摸了
 
+
+*****
+
+####  希望之花  
+##### 15210#       发表于 2024-12-1 23:39
+
+再见了，每天给四个黑曜石小刀的11月
+
+12月每日给的材料都溢出了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 15211#       发表于 2024-12-1 23:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">这5000绿方块礼装出得这么勤快  我估计在换3次就要没绿方块了
+

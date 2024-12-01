@@ -7815,3 +7815,95 @@ Mujica 第一集 中文翻译.txt
 
 听说祥外公cv是池田秀一<img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 765#       发表于 2024-12-1 23:37
+
+ 本帖最后由 PDQ4 于 2024-12-1 23:39 编辑 
+
+初华怎么会体力不支，精神疲惫概率更高
+
+sumimi为什么让她疲惫是初华身上问题之一
+
+你邦都是超人JK，祥子都这样了还能撑住（虽然很可能哪天就进医院了），wsd里N开的都那么多，双开肯定没有体力上的问题
+
+*****
+
+####  skives10  
+##### 766#       发表于 2024-12-1 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66818456&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2024-12-1 23:35</a>
+听说祥外公cv是池田秀一</blockquote>
+真的假的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那可太棒了
+
+*****
+
+####  adcdqre  
+##### 767#       发表于 2024-12-1 23:39
+
+祥子被老爹赶出家门这段明明祥子自己坐车也不影响，故意放个睦在外面感觉别有深意啊。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  akiomn  
+##### 768#       发表于 2024-12-1 23:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真是池田秀一也太草了，又能玩梗了，祥爷说收养祥子没一点违和感
+夏亚：祥子可是能成为我女儿的女孩啊，把她从我身边夺走的你（祥爹）有什么资格说这话！
+
+*****
+
+####  Aendst  
+##### 769#       发表于 2024-12-1 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66818451&amp;ptid=2208921" target="_blank">御景 发表于 2024-12-1 23:35</a>
+
+Mujica 第一集 中文翻译
+
+avemujica吧群大佬翻译的</blockquote>
+祥爹那段好激进……<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 770#       发表于 2024-12-1 23:42
+
+带着行李箱去武道馆，以祥子的自尊心肯定不想让队友有机会问，那只能先一起打包回睦家了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 771#       发表于 2024-12-1 23:44
+
+真是池田秀一祥老师马上在二创里变成新时代的密涅瓦扎比了 老爹也是买阿克西斯被联邦骗<img src="https://static.saraba1st.com/image/smiley/carton2017/424.png" referrerpolicy="no-referrer">
+
+这动画不会能再有个古谷彻睦爹吧
+
+*****
+
+####  akiomn  
+##### 772#       发表于 2024-12-1 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66818514&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2024-12-1 23:44</a>
+真是池田秀一祥老师马上在二创里变成新时代的密涅瓦扎比了 老爹也是买阿克西斯被联邦骗
+
+这动画不会能再有个 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">古谷彻是不可能了，之前那事太大了
+不过有池田秀一也行，真是高达粉最兴奋的一集了
+
+*****
+
+####  Aendst  
+##### 773#       发表于 2024-12-1 23:45
+
+啤酒罐那段和收拾行李离开两段中间是有时间差的吗
+
+如果没有时间差，可能是睦本来就打算接祥子去武道馆
+
+有时间差倒是更好理解了，确实可能会先把行李托走
+

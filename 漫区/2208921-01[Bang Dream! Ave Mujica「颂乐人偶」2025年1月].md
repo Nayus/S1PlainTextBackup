@@ -1528,3 +1528,160 @@ pv现在b站播放数多少了？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Porsche  
+##### 172#       发表于 2024-12-1 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66813942&amp;ptid=2208921" target="_blank">ikozhneg 发表于 2024-12-1 13:43</a>
+马上十万了
+
+—— 来自 OPPO PHY110, Android 15上的 S1Next-鹅版 v2.5.4</blockquote>
+<img src="https://p.sda1.dev/20/0159ae08363de5c40f947f4f2dd61782/image.jpg" referrerpolicy="no-referrer">
+对比过于惨烈
+
+*****
+
+####  金钱与民主  
+##### 173#       发表于 2024-12-1 13:48
+
+不是我说，在日本富贵大家族里说赶人就赶人（剧透貌似没说是入赘，那还是自家少爷喽）的么？现实里不是这样的啊，之前有个漫画《重返JK》里出现过爷爷是政坛大佬的结果去世后弊案东窗事发、老爹受牵连自杀，从此女主一落千丈、从大小姐变成乞丐，但那个作者是韩国人...
+
+*****
+
+####  PDQ4  
+##### 174#       发表于 2024-12-1 13:48
+
+剧透真的话，祥子退c团不能说的理由有点过于充分了
+换谁家好人能说出口<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 175#       发表于 2024-12-1 13:49
+
+剧透
+
+为什么祥子会因为“我什么都会做的”应激
+
+因为她看到祥爹手机上就是这么求人的
+
+soyo抱大腿那句话让祥子回忆起了kuso老爹的无能样子
+
+
+*****
+
+####  八佾舞于潭  
+##### 176#       发表于 2024-12-1 13:51
+
+<blockquote>金钱与民主 发表于 2024-12-1 13:48
+不是我说，在日本富贵大家族里说赶人就赶人（剧透貌似没说是入赘，那还是自家少爷喽）的么？现实里不是这样 ...</blockquote>
+之前有个借种的就是，逼得准爸爸赘婿跑公司门口拉大字报
+
+*****
+
+####  超极巨鲨鲨  
+##### 177#       发表于 2024-12-1 13:51
+
+看了下剧透，第一集就这么爆吗<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cayon  
+##### 178#       发表于 2024-12-1 13:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥子对素世这么狠果然是既视感导致的
+
+*****
+
+####  椎名mahuyo  
+##### 179#       发表于 2024-12-1 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66813942&amp;ptid=2208921" target="_blank">ikozhneg 发表于 2024-12-1 13:43</a>
+马上十万了
+
+—— 来自 OPPO PHY110, Android 15上的 S1Next-鹅版 v2.5.4</blockquote>
+评论比你管播放量高<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3708, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  哈曼的YY  
+##### 180#       发表于 2024-12-1 13:53
+
+这是在海边吗 画面还转红 好哈人
+
+<img src="https://img.saraba1st.com/forum/202412/01/135320ekkkanwkn73kqprk.png" referrerpolicy="no-referrer">
+
+<strong>])RGB[HK2DFTCSF_W}BF.png</strong> (54.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 13:53 上传
+
+*****
+
+####  PDQ4  
+##### 181#       发表于 2024-12-1 13:54
+
+这个是去年就猜到的吧
+那句话还给了祥子眼睛特写
+爽姐就是每一步都在祥子雷区蹦迪才被狠狠切割了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 182#       发表于 2024-12-1 13:54
+
+<blockquote>八佾舞于潭 发表于 2024-12-1 13:51
+之前有个借种的就是，逼得准爸爸赘婿跑公司门口拉大字报</blockquote>
+之前借种那个更绝，婚前财产协议，离婚净身出户，外公自己收外孙当养子——抚养权也没了
+
+费那么大劲不如试管一个
+
+*****
+
+####  Aendst  
+##### 183#       发表于 2024-12-1 13:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥子退出crychic相关除了进警察局之外大体上都是泥漏之前多多少少都推测到的内容
+
+包括我什么都能做这个也是以前讨论过的
+
+*****
+
+####  SakuraのOrigami  
+##### 184#       发表于 2024-12-1 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814032&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2024-12-1 13:53</a>
+这是在海边吗 画面还转红 好哈人</blockquote>
+这好像还是睦和祥（）
+
+*****
+
+####  星天观测  
+##### 185#       发表于 2024-12-1 13:55
+
+据说killkiss的风格和团名曲差不多，现地哥评价挺好
+
+*****
+
+####  skives10  
+##### 186#       发表于 2024-12-1 13:55
+
+很好奇牢爹长什么样 是蓝色头发吗
+
+*****
+
+####  棒读  
+##### 187#       发表于 2024-12-1 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814032&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2024-12-1 13:53</a>
+
+这是在海边吗 画面还转红 好哈人</blockquote>
+这段演出好像祥子被捅了
+
+是谁干的，小睦你也有份吗？
+

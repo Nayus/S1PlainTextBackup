@@ -61,3 +61,16 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
 
+
+*****
+
+####  风朝北吹  
+##### 304#       发表于 2024-12-1 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66813710&amp;ptid=2167901" target="_blank">GrimReaper 发表于 2024-12-1 13:19</a>
+
+请教下，tachiyomi有e绅士表站和里站的源，但Mihon只有表站，这个怎么办，插件库也没有里站的插件。
+
+——  ...</blockquote>
+我不知道其他人怎么弄 我反正是旧版插件也可以用 我压根没弄上面的卸载安装
+

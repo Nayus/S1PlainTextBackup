@@ -47,3 +47,13 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  死宅真恶心  
+##### 46806#       发表于 2024-12-1 20:11
+
+怒刷狂饼干！
+
+—— 来自 Xiaomi 24053PY09C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

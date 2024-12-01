@@ -6332,3 +6332,51 @@ C团解散之后祥子冒雨走回家，一路上边想刚才每个人对她说�
 
 c团的妹妹们如果知道真相会哭的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 616#       发表于 2024-12-1 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66816649&amp;ptid=2208921" target="_blank">椎名真希 发表于 2024-12-1 19:50</a>
+
+尤其是，这还是Live之前的小剧场环节，喵梦居然在这个时间把桌子掀了，按说五个人后面还要演奏呢
+
+难以想 ...</blockquote>
+不太好的情况下，可能会中止演出再开，或者有失误
+
+顺利的话，live无事结束，后台炸开锅
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yone0000  
+##### 617#       发表于 2024-12-1 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66816767&amp;ptid=2208921" target="_blank">椎名真希 发表于 2024-12-1 20:02</a>
+
+不是有点，应该就是在装坏人
+
+C团解散之后祥子冒雨走回家，一路上边想刚才每个人对她说的话一边念对方名字 ...</blockquote>
+太痛了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  concert  
+##### 618#       发表于 2024-12-1 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66816767&amp;ptid=2208921" target="_blank">椎名真希 发表于 2024-12-1 20:02</a>
+不是有点，应该就是在装坏人
+C团解散之后祥子冒雨走回家，一路上边想刚才每个人对她说的话一边念对方名字 ...</blockquote>
+常规
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 619#       发表于 2024-12-1 20:15
+
+网络主播为了流量没下限全世界都一样，高中生们的社会第一课🤓
+

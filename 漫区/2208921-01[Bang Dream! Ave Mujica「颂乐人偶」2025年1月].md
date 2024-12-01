@@ -2754,3 +2754,211 @@ soyo桑在13集已经很像个正常人了 大概率不会再发狂了</blockquo
 
 不常看绫奈的推可能不知道，她很喜欢给自己评论区回赞，但是有关爽睦的发言她是会刻意跳过去不赞的
 
+
+*****
+
+####  仓鼠胖太  
+##### 287#       发表于 2024-12-1 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814468&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-1 14:53</a>
+这就不得不把这个端出来了，她连灯海铃的关系都会写，可惜完全没有爽睦呢</blockquote>
+更加好奇初祥那条被盖住的是啥了
+
+*****
+
+####  本间日阳  
+##### 288#       发表于 2024-12-1 14:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">现在才刚开始呢，等mujica开播了百万新观众冲进专楼，那时候才真是什么热闹都会有了。
+
+*****
+
+####  蜇灵  
+##### 289#       发表于 2024-12-1 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814474&amp;ptid=2208921" target="_blank">挺好的 发表于 2024-12-1 14:54</a>
+
+姛老窝</blockquote>
+水母第七集是不是也是这个地方？
+
+*****
+
+####  帆前  
+##### 290#       发表于 2024-12-1 14:58
+
+原来是，cp黑，懂了懂了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">（不是指🦄
+
+*****
+
+####  PDQ4  
+##### 291#       发表于 2024-12-1 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814477&amp;ptid=2208921" target="_blank">p酱 发表于 2024-12-1 14:54</a>
+
+网友玩梗无非是觉得睦头和soyo爆发在动画表现方式上很像，玩个梗都要CP入脑阴阳怪气一番建议去看精神科嗷 ...</blockquote>
+像什么，你觉得制作组会像玩爽姐一样玩睦？
+
+完全不觉得睦的爆发，和暴露“背叛者”的情景很一样
+
+作图的人什么心思就别演了
+
+又要开始“玩梗罢了”“上纲上线”是吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  Aendst  
+##### 292#       发表于 2024-12-1 14:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确实是，铁暗恋破防我已经领略一年了，期待明年继续
+
+不存在的东西就是不存在，阐述事实就是黑，有没有可能是部分“cp粉”不肯接受事实呢
+
+*****
+
+####  ytttsuuuba  
+##### 293#       发表于 2024-12-1 14:59
+
+其实我一直很好奇所谓的月之森三角哪来的，是某对CP粉烂炒的吧<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  挺好的  
+##### 294#       发表于 2024-12-1 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814496&amp;ptid=2208921" target="_blank">蜇灵 发表于 2024-12-1 14:58</a>
+
+水母第七集是不是也是这个地方？</blockquote>
+是吧
+
+*****
+
+####  Aendst  
+##### 295#       发表于 2024-12-1 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814503&amp;ptid=2208921" target="_blank">ytttsuuuba 发表于 2024-12-1 14:59</a>
+
+其实我一直很好奇所谓的月之森三角哪来的，是某对CP粉烂炒的吧</blockquote>
+爽厨双飞睦祥烂炒罢了，这是各大讨论区都公认的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 296#       发表于 2024-12-1 15:00
+
+太好了是b站烂梗 泥漏的kpi有救了
+
+*****
+
+####  ggxx001  
+##### 297#       发表于 2024-12-1 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814307&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-1 14:30</a>
+关于新pv里两个电视机的画面
+
+首先可以看到左上图的耳坠是演出服的，且该角色头发较长，衣领处和睦的演出服 ...</blockquote>
+左上衣领可以百分百确认是睦 就是表情好恐怖 本来发疯是在意料之中 这个就有点病娇了
+
+*****
+
+####  p酱  
+##### 298#       发表于 2024-12-1 15:01
+
+ 本帖最后由 p酱 于 2024-12-1 15:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814500&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-1 14:58</a>
+
+像什么，你觉得制作组会像玩爽姐一样玩睦？
+
+完全不觉得睦的爆发，和暴露“背叛者”的情景很一样
+
+作图的人 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">CP厨看谁都是对家也是一种被害妄想症的体现，这片现在出圈是因为梗还是因为你这种阴湿CP厨天天在那自high没点逼数
+
+按你这意思B站还有绿毛路人和爱音的视频呢，你是不是也觉得是什么对家的阴谋，大家本来蛮开心就是玩个梗你就一定要跳出来唱个反调，好像就你是真粉人家都是伪非一样，脑子正常点好不好
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Aendst|-1|大家是谁，不是只有烂梗小鬼开心吗.|
+| 御幸一也|-1|玩爛梗有理？|
+
+查看全部评分
+
+*****
+
+####  仓鼠胖太  
+##### 299#       发表于 2024-12-1 15:01
+
+真不存在的是根本不描写…比如灯睦，这俩是真的毫无互动，花心思去写了的非说不喜欢，编剧未必是自虐狂
+
+*****
+
+####  qjw114514  
+##### 300#       发表于 2024-12-1 15:02
+
+终于看到彻底爆发的睦了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  帆前  
+##### 301#       发表于 2024-12-1 15:02
+
+没想到惹到cp争吵，我冒失了，太久没混圈导致的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">就说怎么那么大戾气，何必当真呢
+
+*****
+
+####  純田まな  
+##### 302#       发表于 2024-12-1 15:03
+
+嚯嚯嚯，才第一天就有cp大战看的，夸脏哦
+
+*****
+
+####  Aendst  
+##### 303#       发表于 2024-12-1 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814521&amp;ptid=2208921" target="_blank">ggxx001 发表于 2024-12-1 15:01</a>
+
+左上衣领可以百分百确认是睦 就是表情好恐怖 本来发疯是在意料之中 这个就有点病娇了 ...</blockquote>
+是的，其实渡瀬有在访谈说过，mujica动画中睦给观众的印象会发生变化
+
+而且她有在live上特意通过演出表现出来这个
+
+live上渡瀬的表情很凶，而且会有很狂气的演出，我觉得恐怕就是在说这个吧
+
+*****
+
+####  PDQ4  
+##### 304#       发表于 2024-12-1 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814522&amp;ptid=2208921" target="_blank">p酱 发表于 2024-12-1 15:01</a>
+
+CP厨看谁都是对家也是一种被害妄想症的体现，这片现在出圈是因为梗还是因为你这种阴湿CP厨天天在那自high ...</blockquote>
+唉唉打素睦的都是对家厨，热度都是对家阴湿出来的，太对了哥<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+张口闭口对家，你这个味是真的藏不住
+
+*****
+
+####  rikaren  
+##### 305#       发表于 2024-12-1 15:05
+
+好急，好想听killkiss
+

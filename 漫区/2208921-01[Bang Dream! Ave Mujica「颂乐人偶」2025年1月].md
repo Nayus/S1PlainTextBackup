@@ -8330,3 +8330,11 @@ avemujica吧群大佬翻译的</blockquote>
 之前还提过睦对素祥之间的关系非常敏感。有两次soyo在睦给黄瓜浇水的时候聊自己找回crychic的进度，她谈到立希灯乃至睦自己本人时睦都反应甚微，但提到祥子睦就会马上停下浇水的动作。结合新pv里这个瞳孔视角睦藏的感情有点巨大<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/20/c09a8efa29cb20cc33693300da48f4d1/videoplayback.mp4_000102.130.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑夜落叶秋天  
+##### 812#       发表于 2024-12-2 06:29
+
+说不定第二集祥子和海铃组一起了呢 主心骨+二把手 卖一波海祥糖也不错
+

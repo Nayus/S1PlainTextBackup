@@ -8209,3 +8209,27 @@ avemujica吧群大佬翻译的</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看看半身设定独角兽怎么搞，我记得有人说祥妈葬礼睦也来了，按常理说葬礼应该都是家属亲戚朋友出席，睦从小就跟着祥子，两人关系应该不是普通的青梅吧
 
+
+*****
+
+####  杂灰  
+##### 801#       发表于 2024-12-2 01:23
+
+ 本帖最后由 杂灰 于 2024-12-2 01:25 编辑 
+
+都到这点上了怎么还有人觉得会去讲丰川家的事啊，祥子和爹的矛盾是祥子想靠音乐夺回过去的时光，就算母亲去世了只要爹能正经过日子自己继续搞音乐，那也还过得去，但mujica的成功却刺激到老爹驱赶祥子，祥子寄托在音乐上的愿望反而破产，进入到这个状态故事才能算开局，mujica原本是祥子追求音乐和人生的手段，但现在底层的东西崩了，mujica这个团队已经走上了崩坏重塑的正轨了，故事的核心一集就转移回到了mujica这个队伍上了独角兽还是很清楚自己要写什么的
+
+*****
+
+####  PDQ4  
+##### 802#       发表于 2024-12-2 01:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66819025&amp;ptid=2208921" target="_blank">uhiuk 发表于 2024-12-2 01:14</a>
+
+说起这个我看别的地方有人说日本富人是有女儿死后把外孙女收养成女儿的传统的，然后举了北野武的例子。
+
+搜 ...</blockquote>
+北野武那个养女才一岁大点，而且是闺女离婚了，祥子这都15了
+
+如果说日本豪门就是有这个传统那没办法<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

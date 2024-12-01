@@ -11347,3 +11347,11 @@ op地区大赛就在新国立了决赛不敢想了<img src="https://static.sarab
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  一心而用  
+##### 1108#       发表于 2024-12-1 20:00
+
+这话算是VN正式入队回吧，还是在填二期动画的坑。
+

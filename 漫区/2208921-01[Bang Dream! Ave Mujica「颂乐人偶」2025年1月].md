@@ -6250,3 +6250,85 @@ https://bangumi.tv/subject/ ...</blockquote>
 
 既然解决谁的问题就睡谁家，主打一个睡服，那最后解决祥的问题……堂堂5人同居！
 
+
+*****
+
+####  PDQ4  
+##### 606#       发表于 2024-12-1 19:58
+
+什么睡人者终被人睡，我们母鸡卡是这样的片子吗<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  贰臣  
+##### 607#       发表于 2024-12-1 19:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">祥嬷光是看漏油讨论就爽完了
+
+*****
+
+####  Alicest  
+##### 608#       发表于 2024-12-1 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66816727&amp;ptid=2208921" target="_blank">贰臣 发表于 2024-12-1 19:58</a>
+祥嬷光是看漏油讨论就爽完了</blockquote>
+哭的片段非常好，高尾的表现力贴合了画面
+
+
+*****
+
+####  月島まりな  
+##### 609#       发表于 2024-12-1 20:00
+
+太好了祥all<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  concert  
+##### 610#       发表于 2024-12-1 20:00
+
+现在看祥子有点故意扮黑脸的嫌疑
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  椎名真希  
+##### 611#       发表于 2024-12-1 20:00
+
+本来去看第一集就带着很高的期待，没能想到在这种情况下还能完全超越期待，太值得了！
+不仅解释了之前的矛盾原因，能够自圆其说，还开启了新的矛盾，不得不让观众对后续剧情充满期待
+
+*****
+
+####  椎名真希  
+##### 612#       发表于 2024-12-1 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66816745&amp;ptid=2208921" target="_blank">concert 发表于 2024-12-1 20:00</a>
+现在看祥子有点故意扮黑脸的嫌疑
+
+论坛助手,iPhone</blockquote>
+不是有点，应该就是在装坏人
+C团解散之后祥子冒雨走回家，一路上边想刚才每个人对她说的话一边念对方名字一边哭，怀疑如果立希真的打她两下她心里说不定更好受一些。
+
+*****
+
+####  akiomn  
+##### 613#       发表于 2024-12-1 20:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鸡现在唯一指定0该是喵梦了，整那么大活，除了初华，队友脸都黑了，这不得被狠狠爱猫啊
+
+*****
+
+####  Alicest  
+##### 614#       发表于 2024-12-1 20:04
+
+睦被摘面具之后的慌乱捂脸挺可爱的
+
+*****
+
+####  skives10  
+##### 615#       发表于 2024-12-1 20:04
+
+c团的妹妹们如果知道真相会哭的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

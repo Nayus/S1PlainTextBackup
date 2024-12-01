@@ -24,3 +24,11 @@ SD玩了一年多，对于主要玩独立游戏来说SD确实是太大了，出�
 需求是屏幕在11 ...</blockquote>
 或者GPD Pocket 3~
 
+
+*****
+
+####  霖岚_  
+##### 1330#       发表于 2024-12-1 11:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">最近看GPD Pocket 4的广告多了搞得我也想把手上win mini换了，本身就因为多拿来办公用所以那mini键盘还挺不好用的，但感觉pocket玩游戏还得随时带个拉伸手柄又有点麻烦，而且i核能耗不如a核，又担心续航不行……
+

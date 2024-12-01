@@ -606,3 +606,39 @@ b站买的狗13集里歌词字幕不会也跟着变成颂乐人偶了吧
 
 现在要变成欢迎来到颂乐人偶的世界了吗
 
+
+*****
+
+####  方块木偶  
+##### 65#       发表于 2024-12-1 11:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">要来了吗
+
+*****
+
+####  skylah  
+##### 66#       发表于 2024-12-1 11:06
+
+期待第一反馈<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+*****
+
+####  まひかの  
+##### 67#       发表于 2024-12-1 11:07
+
+前排前排
+
+*****
+
+####  Alicest  
+##### 68#       发表于 2024-12-1 11:08
+
+还在排队呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  純田まな  
+##### 69#       发表于 2024-12-1 11:09
+
+唔，第一集会有mana的戏份吗
+

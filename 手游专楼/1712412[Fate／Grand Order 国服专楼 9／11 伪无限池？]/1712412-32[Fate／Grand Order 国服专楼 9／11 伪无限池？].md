@@ -110,3 +110,11 @@ wo日，我还提前阵容，到跟前给忘了，现在还有柱子吗</blockqu
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  sandro  
+##### 46813#       发表于 2024-12-2 00:06
+
+太久没关心fgo了，自回体的都不知道还有柱子战
+

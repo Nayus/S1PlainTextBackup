@@ -6666,3 +6666,90 @@ pv2里有个初华歪头抿嘴，那个就是killkiss里的
 
 2024-12-1 21:01 上传
 
+
+*****
+
+####  仓鼠胖太  
+##### 646#       发表于 2024-12-1 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66817217&amp;ptid=2208921" target="_blank">御景 发表于 2024-12-1 21:02</a>
+【母鸡卡episode1（sound only）】 https://www.bilibili.com/video/BV1eGzdYDEo3/?share_source=copy_web&amp; ...</blockquote>
+卧槽，祥子妈cv大原沙耶香，太太你…这么贵的cv估计后面没啥戏份了（bushi
+
+*****
+
+####  skives10  
+##### 647#       发表于 2024-12-1 21:07
+
+祥妈是贝阿朵莉切<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 648#       发表于 2024-12-1 21:11
+
+祥妈大原沙耶香，祥爸Diggy-Mo’（给mujica写歌词那个）
+
+我看到的说法是这样
+
+*****
+
+####  nh_zzz  
+##### 649#       发表于 2024-12-1 21:11
+
+反正都有右代宫朱志香了，多个也不坏<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Суслов  
+##### 650#       发表于 2024-12-1 21:12
+
+ 本帖最后由 Суслов 于 2024-12-1 21:13 编辑 
+
+做个梗图<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202412/01/211340jq8limmr88gpl66f.jpg" referrerpolicy="no-referrer">
+
+<strong>1733056355785 1.jpg</strong> (115.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 21:13 上传
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  PDQ4  
+##### 651#       发表于 2024-12-1 21:13
+
+什么时候翻唱海猫，gkd<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+那么祥子是三代贝还是战贝孩子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KLHgg  
+##### 652#       发表于 2024-12-1 21:13
+
+pv海报除了喵梦其余4人都穿校服，可否证实喵梦是社会人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仓鼠胖太  
+##### 653#       发表于 2024-12-1 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66817258&amp;ptid=2208921" target="_blank">仓鼠胖太 发表于 2024-12-1 21:07</a>
+卧槽，祥子妈cv大原沙耶香，太太你…这么贵的cv估计后面没啥戏份了（bushi ...</blockquote>
+对比起来祥爸的cv听起来很普通啊
+
+*****
+
+####  miomio123  
+##### 654#       发表于 2024-12-1 21:15
+
+祥哭得也太惨了，直击心灵<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2102J2SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

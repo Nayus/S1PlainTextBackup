@@ -764,3 +764,43 @@ debuff拉满，不敢想出点小节奏会怎么崩塌<img src="https://static.s
 <img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">这也确实，我已经准备摆烂到处看剧透了。毕竟热度太高无论如何都会有人到处传剧透。
 另外我印象中日本那些原创动画的先行放映会后观众一般只会说一点指向模糊的谜语和感想，基本上没人会具体提到剧情内容。我不知道是日本人的习惯还是主办方会提醒他们不能多说。但这次b站官号自己都发了个剧情讨论动态，那看来他们确实是想主动鼓励剧透了。
 
+
+*****
+
+####  OPCI_0125  
+##### 83#       发表于 2024-12-1 11:58
+
+受不了，放弃断网来这蹲repo
+
+*****
+
+####  skives10  
+##### 84#       发表于 2024-12-1 12:00
+
+<img src="https://img.saraba1st.com/forum/202412/01/115949fzuc00mffpyk5mfl.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0616.jpeg</strong> (454.31 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-1 11:59 上传
+
+现场
+
+
+*****
+
+####  圈量子  
+##### 85#       发表于 2024-12-1 12:03
+
+（以我的经验其实你偷着录音一般是不会被发现的）
+
+*****
+
+####  SakuraのOrigami  
+##### 86#       发表于 2024-12-1 12:04
+
+急急急（）
+<img src="https://p.sda1.dev/20/0a896e628aebf0771ac5037c04ee440d/IMG_1913B0C49C11BCDDFC2988E4268A9F6F.jpeg" referrerpolicy="no-referrer">
+

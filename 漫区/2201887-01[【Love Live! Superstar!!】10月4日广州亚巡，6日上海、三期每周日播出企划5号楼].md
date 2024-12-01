@@ -11285,3 +11285,47 @@ op地区大赛就在新国立了决赛不敢想了<img src="https://static.sarab
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  懂你意思  
+##### 1100#       发表于 2024-12-1 16:26
+
+第七集后的都挺难评的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 1101#       发表于 2024-12-1 16:26
+
+普普通通的一集
+
+*****
+
+####  cat1230  
+##### 1102#       发表于 2024-12-1 16:27
+
+第二季浪费了太多时间，第三季真是辛苦了
+
+
+*****
+
+####  1096beam  
+##### 1103#       发表于 2024-12-1 16:30
+
+有望冲击新低
+
+*****
+
+####  csolfans  
+##### 1104#       发表于 2024-12-1 16:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">有些事当年第二季就应该要做了
+
+*****
+
+####  ViyViy  
+##### 1105#       发表于 2024-12-1 16:35
+
+哦呼，这啥意思，下集播完过一天直接全员生放，难道说第十集就直接决赛搞完啦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

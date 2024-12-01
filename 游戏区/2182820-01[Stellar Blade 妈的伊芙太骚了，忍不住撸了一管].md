@@ -1533,3 +1533,14 @@ R1加左键还是右键来着
 
 2024-11-30 14:31 上传
 
+
+*****
+
+####  FFFreddie  
+##### 115#       发表于 2024-12-1 16:36
+
+打dlc随便拍了几张<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">更加笃定了这就是我的年度游戏
+<img src="https://p.sda1.dev/20/797789daf869319eb4ab841702a43d44/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+

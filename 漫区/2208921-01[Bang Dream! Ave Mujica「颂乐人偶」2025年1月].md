@@ -4159,3 +4159,111 @@ mygo部分： soyo、灯和爱音三人正在立希的打工地点喝茶时，�
 
 老爹最好的剧本就是别露头，后面对着乐队成员来一句女儿托付给你们就行了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 412#       发表于 2024-12-1 16:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好消息：喵梦第一集就爆了个大的
+
+坏消息：后面还有的爆
+
+496450EB-36B6-4A37-83F8-C98172D97107.jpeg
+(25.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 16:26 上传
+
+<img src="https://img.saraba1st.com/forum/202412/01/162659jnnmus9disd9m6vv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  星空冻结  
+##### 413#       发表于 2024-12-1 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66815038&amp;ptid=2208921" target="_blank">66367749 发表于 2024-12-1 16:20</a>
+背景板没必要太过在意吧，虽然最后大概率包饺子
+看了下楼里的内容，和之前想的大差不差，爹是赘婿被赶出去 ...</blockquote>
+不是，祥子知道的时候他爹已经丨出去了，而且其实祥子和丰川家的关系也没断，丰川家的要求也是别去管她爹让他自生自灭，主要还是她想让她爹振作起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SakuraのOrigami  
+##### 414#       发表于 2024-12-1 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814611&amp;ptid=2208921" target="_blank">OPCI_0125 发表于 2024-12-1 15:14</a>
+这个怀揣“秘密的她”指的应该不是祥
+
+某人接近祥的远景俯拍</blockquote>
+拨片好像是初华的
+没记错就只有她用泪滴型拨片？
+睦看着像是大三角
+
+*****
+
+####  Aendst  
+##### 415#       发表于 2024-12-1 16:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爹最后简单处理一下就行了，反正爹具体发生什么的始末也讲差不多了
+
+接下来要面对的是被突然摘了面具后的蝴蝶效应和成员各自有的问题
+
+以及既然设定已经这样了，商业竞争黑暗面也可能真的有
+
+*****
+
+####  玖羽  
+##### 416#       发表于 2024-12-1 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66815059&amp;ptid=2208921" target="_blank">LeonsCat 发表于 2024-12-1 16:22</a>
+
+只要确实是他涉足较深的巨大亏空，在丰川大小姐已经过世的前提下，他除了鸡娃，人生就已经无期徒刑了。显 ...</blockquote>
+这得看人生的定义是什么
+
+最极端的，最终话给祥父一个镜头表示他已经重新振作起来，这个角色就算完成了，不值得更多的讨论
+
+
+*****
+
+####  贰臣  
+##### 417#       发表于 2024-12-1 16:31
+
+非常希望祥爹的戏份到此为止，说实话我以为剧情开局就把丰川家的事爆完了就是想把后面的正经戏份都留给女女关系性呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LeonsCat  
+##### 418#       发表于 2024-12-1 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66815043&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2024-12-1 16:21</a>
+
+所以母鸡卡赞助还是找爷爷拉的？</blockquote>
+外公
+
+以及哪怕不考虑速通武道馆，就是前面拉队伍、搞定演出布置来说，也是“超高校级的制作人”，不姓丰川也值得先圈起来当直系部下培养好伐。
+
+*****
+
+####  仓鼠胖太  
+##### 419#       发表于 2024-12-1 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66815126&amp;ptid=2208921" target="_blank">贰臣 发表于 2024-12-1 16:31</a>
+非常希望祥爹的戏份到此为止，说实话我以为剧情开局就把丰川家的事爆完了就是想把后面的正经戏份都留给女女 ...</blockquote>
+很难，开了头的坑总归要填一下，不然从剧本角度不完整，不过也希望不要太多家庭戏了，多塑造下mujika团员吧
+
+*****
+
+####  remedios010000  
+##### 420#       发表于 2024-12-1 16:35
+
+祥爹一会儿正面一会儿反面的，又是被骗又是被甩锅的，是非功过还是等正片上线拉片分析再定论吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  菲特妹  
+##### 421#       发表于 2024-12-1 16:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">象爸最后振作起来搬砖就差不多了，不想有太多他的剧情
+

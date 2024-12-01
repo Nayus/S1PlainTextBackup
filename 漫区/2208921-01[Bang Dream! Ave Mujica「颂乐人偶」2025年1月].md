@@ -1912,3 +1912,223 @@ c团如果是睦鼓励祥子建的 这可能就是负罪感的源头之一吧<im
 
 说是填坑但深层的东西还在回避，解释和crychic的矛盾结果只是过渡的一环，祥子初次见到灯的时点所谓“想成为人类”在这样的背景下反而更扑朔迷离。这开头其余四人似乎也没有更多动机的展开，结成母鸡卡的核心还有不少解谜。
 
+
+*****
+
+####  skives10  
+##### 211#       发表于 2024-12-1 14:16
+
+太工口了们喵箱
+
+<img src="https://img.saraba1st.com/forum/202412/01/141610n73lkd2nzkz27rhn.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3922.jpeg</strong> (178.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 14:16 上传
+
+*****
+
+####  PDQ4  
+##### 212#       发表于 2024-12-1 14:16
+
+警察局我觉得还是有点爆的
+如果睦祥同居了那对我来讲确实是爆中爆
+第一集就同居，后面大被同眠叫醒服务看着睡脸亲头发这样典中典的剧情不得都安排上<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AP0rt_  
+##### 213#       发表于 2024-12-1 14:17
+
+这波是祥子爹大搞特搞lgbt神游结果女儿变成同性恋<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 214#       发表于 2024-12-1 14:17
+
+下一话睦要变成小狂犬吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 215#       发表于 2024-12-1 14:18
+
+我观喵祥有美帝之姿
+能打破鼓手的命运吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  挺好的  
+##### 216#       发表于 2024-12-1 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814197&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-1 14:16</a>
+
+太工口了们喵箱</blockquote>
+ “你这样容易被侵犯”
+
+*****
+
+####  仓鼠胖太  
+##### 217#       发表于 2024-12-1 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814191&amp;ptid=2208921" target="_blank">月島まりな 发表于 2024-12-1 14:15</a>
+比较关心4th有摘面具环节吗</blockquote>
+哦还真是呢，终于可以摘下难绷的假面了，所以是因为mujika一开头就摘很快就不用了，所以三次元面具的制作才那么难以形容吗？
+
+*****
+
+####  Piano-Forest  
+##### 218#       发表于 2024-12-1 14:19
+
+正式PV：[https://youtu.be/Souwq8yepWQ](https://youtu.be/Souwq8yepWQ)
+
+<img src="https://p.sda1.dev/20/3b7a67383aff6fd61346ecbdd9e768c6/10001.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 219#       发表于 2024-12-1 14:19
+
+（可能是冷水）最后坐出租似乎是去武道馆的，可能不是你们想的同居<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  帆前  
+##### 220#       发表于 2024-12-1 14:19
+
+应该会有祥子挫折
+<img src="https://p.sda1.dev/20/25afd2975dba293dac3cbe9d2b7b25fa/IMG_20241201_133539.jpg" referrerpolicy="no-referrer">
+
+应该会有大喵燃起来了的情节
+<img src="https://p.sda1.dev/20/3b2613d4c4c40eee5a9c994020ad7147/Screenshot_20241201_133251_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+小睦这里显示会有回收第一季的失言人设
+<img src="https://p.sda1.dev/20/2763b863827f86a285aee2ac96d348b2/IMG_20241201_133550.jpg" referrerpolicy="no-referrer">
+
+应该还是会用祥子的事做“寒蝉-解秘篇”式的主线
+<img src="https://p.sda1.dev/20/7e912675609797b3296b761df246f6d1/IMG_20241201_135811.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  cindy355  
+##### 221#       发表于 2024-12-1 14:20
+
+有点不敢抱太高期待了，总之一集一集观望着看吧。
+
+
+*****
+
+####  帆前  
+##### 222#       发表于 2024-12-1 14:20
+
+ 本帖最后由 帆前 于 2024-12-1 14:24 编辑 
+
+mygo之前让人兴奋是因为人物的扭曲情感总能在剧情中回收，不断回应观众在人物理解方面的期待
+
+总之这个pv还是能给人以会继续写好“那个人物”的“那种扭曲”的感觉的，能做到这点就能回报观众的期待
+
+*****
+
+####  仓鼠胖太  
+##### 223#       发表于 2024-12-1 14:20
+
+现在就只能寄希望于阿B的12/7抽选了，给我中啊！
+
+*****
+
+####  T7imal  
+##### 224#       发表于 2024-12-1 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814197&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-1 14:16</a>
+
+太工口了们喵箱</blockquote>
+原来是村姑
+
+*****
+
+####  帆前  
+##### 225#       发表于 2024-12-1 14:21
+
+看到这么回应观众对人物的理解的pv，不禁想起我的幻想，是否有点…
+<img src="https://p.sda1.dev/20/5a8f84fceb3afe37924fa6da55d0f328/Screenshot_20241201_134828.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/2763b863827f86a285aee2ac96d348b2/IMG_20241201_133550.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/63203eab071ea72d392932952bf11c0c/IMG_20241201_135613.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  雨井绫  
+##### 226#       发表于 2024-12-1 14:22
+
+基本上可以说这一集就把mygo结局时很多人在纠结的故事不完整（没有解释作为故事起点的退团事件的内情，当年还有一堆人说没解释这件事就没法对mygo做出评价）给干脆利落地解决了，丰川祥子为什么组乐队为什么退乐队都说得比较清楚了，而且这个理由我觉得是写得很好的。往事相关的疑点就只剩若叶睦那句话了，我相信也是能处理好的。
+
+*****
+
+####  russianbear  
+##### 227#       发表于 2024-12-1 14:22
+
+在官号剧透楼看到的，连金额和时间都对上了，这下真是美团全责<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+203434f9f04d3d17491e7e001d473ec3295971200.jpg
+(123.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 14:21 上传
+
+<img src="https://img.saraba1st.com/forum/202412/01/142135tbf3fmlw2nbyy39h.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 228#       发表于 2024-12-1 14:23
+
+最后一幕还以为祥子解锁什么血统变成红瞳了
+那可太酷了
+
+*****
+
+####  rushsong  
+##### 229#       发表于 2024-12-1 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66813935&amp;ptid=2208921" target="_blank">Porsche 发表于 2024-12-1 13:42</a>
+pv现在b站播放数多少了？
+现在友管40分钟连4000都不到</blockquote>
+mujica在海外没有热度的
+
+—— 来自 vivo V2183A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  Lucy_Diamonds  
+##### 230#       发表于 2024-12-1 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814251&amp;ptid=2208921" target="_blank">russianbear 发表于 2024-12-1 14:22</a>
+在官号剧透楼看到的，连金额和时间都对上了，这下真是美团全责</blockquote>
+哦牛的 还有这种对应 我还以为是去投资北伏了呢
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  ddy2811  
+##### 231#       发表于 2024-12-1 14:24
+
+爆的点大致是在假药猜得到的范围内的，最爆的是一集就已经揭露得差不多了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  虚无缥缈的光阴  
+##### 232#       发表于 2024-12-1 14:25
+
+看来是要一条路走到黑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  棒读  
+##### 233#       发表于 2024-12-1 14:25
+
+也许是难蚌的假面观感太差官方准备吃书只能让喵梦动手了
+

@@ -2507,3 +2507,250 @@ soyo桑在13集已经很像个正常人了 大概率不会再发狂了</blockquo
 这应该不会了，mygo几个人用eva梗说在上一季基本已经补完了，就看她们是会误打误撞成为压倒mujika爆的最后一根稻草，还是会成为爆完以后的解铃人
 我倾向于后者，就像上一季初华触动灯那样，来一个上下季呼应
 
+
+*****
+
+####  Aendst  
+##### 266#       发表于 2024-12-1 14:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唉，每次有新情报就会结界大开，漏油有什么头绪吗
+
+*****
+
+####  ggxx001  
+##### 267#       发表于 2024-12-1 14:47
+
+看pv感觉睦戏份还挺重的 睦厨窃喜
+
+*****
+
+####  帆前  
+##### 268#       发表于 2024-12-1 14:47
+
+头绪就是某人指导欲有点强
+
+*****
+
+####  菲特妹  
+##### 269#       发表于 2024-12-1 14:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">睦头终于也疯了吗
+
+*****
+
+####  ydsbbt  
+##### 270#       发表于 2024-12-1 14:49
+
+睦这里的画面都是镜像的，可能在对镜子中的另一个自己发火，也许致敬了闪灵中的双重人格的托尼。
+
+<img src="https://img.saraba1st.com/forum/202412/01/144848nmwoo1kmt7omdh11.jpg" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2024-12-01_14-40-15.jpg</strong> (15.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 14:48 上传
+
+<img src="https://img.saraba1st.com/forum/202412/01/144853wo9aoguku66g1oue.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_403888036504781.jpg</strong> (48.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 14:48 上传
+
+<img src="https://img.saraba1st.com/forum/202412/01/144859jd8cn60pjn6mh0dj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-12-01-14-19-45-86_149003a2d400f6a.jpg</strong> (140.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 14:48 上传
+
+<img src="https://img.saraba1st.com/forum/202412/01/144903evwcygm3whzysmdw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-12-01-14-18-40-70_149003a2d400f6a.jpg</strong> (160.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 14:49 上传
+
+*****
+
+####  PDQ4  
+##### 271#       发表于 2024-12-1 14:49
+
+睦本来就疯，mortis都一年半了，先导pv2都过去那么久了，还有人终将成为你
+发现铁暗恋烂了开始换话术了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  本间日阳  
+##### 272#       发表于 2024-12-1 14:50
+
+ 本帖最后由 本间日阳 于 2024-12-1 14:51 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">柿本就访谈来看确实是觉得素睦已经到头了。至于绫奈，从她排列组合写关键词的时候就应该能看出她是想尽可能多地写不同角色之间的关系性的。
+
+<img src="https://img.saraba1st.com/forum/202412/01/144623kt8qt774fwfkqsxf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (195.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 14:46 上传
+
+可以复习一下这个，可惜之后不一定有机会看类似的图了。
+
+*****
+
+####  星天观测  
+##### 273#       发表于 2024-12-1 14:50
+
+结界大开就是这样的，大概要明年6月以后才能消停了
+
+*****
+
+####  Aendst  
+##### 274#       发表于 2024-12-1 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814435&amp;ptid=2208921" target="_blank">ydsbbt 发表于 2024-12-1 14:49</a>
+
+睦这里的画面都是镜像的，可能在对镜子中的另一个自己发火，也许致敬了闪灵中的双重人格的托尼。
+
+ ...</blockquote>
+这里的书名是Time Thieves 疑似是1977年发表的一部推理小说
+
+*****
+
+####  御幸一也  
+##### 275#       发表于 2024-12-1 14:50
+
+對比起來看睦的臉真是好看很多呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑夜落叶秋天  
+##### 276#       发表于 2024-12-1 14:51
+
+期待1月份mujica开播
+
+*****
+
+####  PDQ4  
+##### 277#       发表于 2024-12-1 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814435&amp;ptid=2208921" target="_blank">ydsbbt 发表于 2024-12-1 14:49</a>
+ 睦这里的画面都是镜像的，可能在对镜子中的另一个自己发火，也许致敬了闪灵中的双重人格的托尼。  ...</blockquote>
+这里可以对应前面漏u发的电视机里睦的笑和那个凶狠的眼神
+自己和自己对话可能性不低，另一个自己可能是嘲弄的态度<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 278#       发表于 2024-12-1 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814382&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-1 14:41</a>
+
+有没有素睦得看制作组态度，起码从独角兽身上我不觉得她喜欢素睦，她更推睦祥
+
+而且制作组我看访谈也没觉得 ...</blockquote>
+第一話CCC的所謂謎題都給你畫上句號了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仓鼠胖太  
+##### 279#       发表于 2024-12-1 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814444&amp;ptid=2208921" target="_blank">本间日阳 发表于 2024-12-1 14:50</a>
+柿本就访谈来看确实是觉得素睦已经到头了。至于绫奈，从她排列组合写关键词的时候就应该能看出她是想尽可能 ...</blockquote>
+但说实话，如果最后包大饺子，素睦祥三个人肯定是要有互动剧情引发关系变化的，不然也太僵了
+
+*****
+
+####  Aendst  
+##### 280#       发表于 2024-12-1 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814444&amp;ptid=2208921" target="_blank">本间日阳 发表于 2024-12-1 14:50</a>
+
+柿本就访谈来看确实是觉得素睦已经到头了。至于绫奈，从她排列组合写关键词的时候就应该能看出她是想尽可能 ...</blockquote>
+这就不得不把这个端出来了，她连灯海铃的关系都会写，可惜完全没有爽睦呢
+
+<img src="https://img.saraba1st.com/forum/202412/01/145253huzu1473h0r5z0r0.jpg" referrerpolicy="no-referrer">
+
+<strong>20230905_163527.jpg</strong> (71.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 14:52 上传
+
+
+*****
+
+####  挺好的  
+##### 281#       发表于 2024-12-1 14:54
+
+<img src="https://img.saraba1st.com/forum/202412/01/145409vx4kd4yqk2deye40.png" referrerpolicy="no-referrer">
+
+<strong>5a906d5556a7e2c71a2b21de9b82e0ce.png</strong> (87.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 14:54 上传
+
+姛老窝
+
+*****
+
+####  p酱  
+##### 282#       发表于 2024-12-1 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814441&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-1 14:49</a>
+
+睦本来就疯，mortis都一年半了，先导pv2都过去那么久了，还有人终将成为你
+
+发现铁暗恋烂了开始换话术了？ ...</blockquote>
+网友玩梗无非是觉得睦头和soyo爆发在动画表现方式上很像，玩个梗都要CP入脑阴阳怪气一番建议去看精神科嗷<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  本间日阳  
+##### 283#       发表于 2024-12-1 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814468&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-1 14:53</a>
+
+这就不得不把这个端出来了，她连灯海铃的关系都会写，可惜完全没有爽睦呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">所以才说她是什么都想写啊。换句话说根本就没有她不喜欢的组合。
+
+*****
+
+####  御幸一也  
+##### 284#       发表于 2024-12-1 14:55
+
+可是這看起來是幾乎什麼都給你排出來了唯獨缺……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 285#       发表于 2024-12-1 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814374&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-1 14:40</a>
+
+soyo桑在13集已经很像个正常人了 大概率不会再发狂了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">希望如此吧，但是灯有访谈锤的可能退步，和灯soulmate的爽姐我不好说
+
+不过第一集卖了美帝，爽姐精神状况有爱音在应该没有问题<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 286#       发表于 2024-12-1 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814481&amp;ptid=2208921" target="_blank">本间日阳 发表于 2024-12-1 14:54</a>
+
+所以才说她是什么都想写啊。换句话说根本就没有她不喜欢的组合。</blockquote>
+那还是不喜欢爽睦的
+
+不常看绫奈的推可能不知道，她很喜欢给自己评论区回赞，但是有关爽睦的发言她是会刻意跳过去不赞的
+

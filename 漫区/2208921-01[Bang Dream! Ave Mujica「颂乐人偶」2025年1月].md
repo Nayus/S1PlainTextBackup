@@ -8019,3 +8019,24 @@ avemujica吧群大佬翻译的</blockquote>
 那就算没有准备搬走，本身也是有东西要拿的，一 ...</blockquote>
 祥子说了“我不会再回去了”，所以基本可以确定是搬走了，只是搬哪里不确定
 
+
+*****
+
+####  skives10  
+##### 785#       发表于 2024-12-2 00:17
+
+原来悬疑片的谜题之一是fcxz今晚住谁家 独角兽太变态了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 786#       发表于 2024-12-2 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66818720&amp;ptid=2208921" target="_blank">NODY 发表于 2024-12-2 00:14</a>
+
+祥子说了“我不会再回去了”，所以基本可以确定是搬走了，只是搬哪里不确定 ...</blockquote>
+我是说就算老爹没发狂，没有使祥子准备打算搬走，也是要拿东西去会场的
+
+不过我还没看完那个听译，如果有误就当无事发生
+

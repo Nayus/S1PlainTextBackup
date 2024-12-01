@@ -6932,3 +6932,80 @@ pv海报除了喵梦其余4人都穿校服，可否证实喵梦是社会人<img 
 
 祥子又可怜又懂事，想有一个祥子一样的女儿
 
+
+*****
+
+####  Alicest  
+##### 675#       发表于 2024-12-1 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66817431&amp;ptid=2208921" target="_blank">雨井绫 发表于 2024-12-1 21:32</a>
+睦又没在退团现场表现出不理解，反而是顺着说了一句，在这段剧情里不是让祥子痛苦的人之一，所以不会特地提 ...</blockquote>
+睦什么都知道
+去武道馆的时候祥子坐的出租都是她打的
+
+*****
+
+####  yone0000  
+##### 676#       发表于 2024-12-1 21:36
+
+睦在解散C团这件事上应该是祥子的共犯关系吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  东京打工妹  
+##### 677#       发表于 2024-12-1 21:36
+
+会包寿司吗？会吗
+
+*****
+
+####  哈曼的YY  
+##### 678#       发表于 2024-12-1 21:37
+
+大喵这么搞还想不想去小黄瓜家了 在搞事和攀关系间毅然决然选择搞事
+
+*****
+
+####  哈曼的YY  
+##### 679#       发表于 2024-12-1 21:37
+
+<blockquote>Devola 发表于 2024-12-1 21:29
+大象老师精神韧性还是强的，想起了v高达的胡索了</blockquote>
+这是诅咒吧
+
+*****
+
+####  影伴光生  
+##### 680#       发表于 2024-12-1 21:38
+
+祥爹也挺惨的，入赘进去老婆没了，钱也亏完了被赶出家门，看不到东山再起的未来，本来前途无量的女儿非要跟着。。。
+
+前面举例战姬绝唱的，那边的渣爹好歹是架空超现实灾害下造出来的
+
+
+*****
+
+####  好想看Mujica啊  
+##### 681#       发表于 2024-12-1 21:39
+
+老登害人啊，本来祥子应该是ksm、kkr那种超级阳角，现在成了邦邦最低压
+
+
+*****
+
+####  rushsong  
+##### 682#       发表于 2024-12-1 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66817338&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2024-12-1 21:19</a>
+话说包完饺子蒸蒸日上的mujica在剧情里算是比双R还逆天的存在了吧，5个成员3个有名人，一年速通武道馆…… ...</blockquote>
+我很担心遗老会因为这段攻击mujica，毕竟之前就有人提过萝出场可能垫给🐔<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2183A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  星天观测  
+##### 683#       发表于 2024-12-1 21:43
+
+[@AveMujica](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=569289) 标题的Bang能改成BanG吗
+

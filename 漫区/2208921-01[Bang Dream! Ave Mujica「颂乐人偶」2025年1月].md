@@ -6510,3 +6510,55 @@ Ave Mujica演出喵梦战损无面具祥
 C团解散之后祥子冒雨走回家，一路上边想刚才每个人对她说的话一边念对方名字 ...</blockquote>
 看爹就行了，装坏人去切割，只能说不愧是父女<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 631#       发表于 2024-12-1 20:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">家庭圆满祥＞c团祥＞打工灰祥＞黑祥
+那么家庭圆满祥的原型是谁呢？当然是高尾啦
+soyo是遇不到家庭圆满祥了，不过现实贝斯手还是遇到了
+
+*****
+
+####  PDQ4  
+##### 632#       发表于 2024-12-1 20:39
+
+第二集不知道开场要怎么办，是不是能看到ob小姐临机应变解释这都是安排好的戏码，安抚睦卖一波睦祥<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  前方暴雨预警  
+##### 633#       发表于 2024-12-1 20:42
+
+看了这么多剧透反而有点近乡情怯的感觉
+
+开播的时候要适当避开论坛剧情讨论，单纯看脸了。
+
+至少从PV看，制作组也知道初华的脸很好看
+
+*****
+
+####  金钱与民主  
+##### 634#       发表于 2024-12-1 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814923&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-1 16:04</a>
+
+祥爹看起来不是按照负面角色写的，这个饺子应该跑不掉</blockquote>
+主要是感觉祥子爹这个设定过于的现实化了，在这个以少女乐队故事为主轴的动画里这饺子根本没办法很合情合理的包上。
+
+*****
+
+####  Alicest  
+##### 635#       发表于 2024-12-1 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66817080&amp;ptid=2208921" target="_blank">前方暴雨预警 发表于 2024-12-1 20:42</a>
+看了这么多剧透反而有点近乡情怯的感觉
+
+开播的时候要适当避开论坛剧情讨论，单纯看脸了。
+
+至少从PV看，制作 ...</blockquote>
+pv2里有个初华歪头抿嘴，那个就是killkiss里的
+

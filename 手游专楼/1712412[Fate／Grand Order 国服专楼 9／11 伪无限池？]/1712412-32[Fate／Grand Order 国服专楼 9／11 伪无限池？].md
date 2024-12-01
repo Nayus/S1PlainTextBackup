@@ -134,3 +134,25 @@ wo日，我还提前阵容，到跟前给忘了，现在还有柱子吗</blockqu
 
 原来这个活动刷柱子啊
 
+
+*****
+
+####  xy1041  
+##### 46816#       发表于 2024-12-2 02:35
+
+我体感猪肝掉率还行，100把可以刷40多个出来
+终于可以暂时脱离危险范围了，猪肝是真的没有活动掉啊，麻了都
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  xy1041  
+##### 46817#       发表于 2024-12-2 02:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66817565&amp;ptid=1712412" target="_blank">数据库停止响应 发表于 2024-12-1 21:51</a>
+换了个新出那个礼装，兽科20羁绊的，想问一下助战挂给谁比较好呀？</blockquote>
+我挂术梣了，会借梣的人一般都是配暗狐，组一堆兽科的可能性很高
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -8310,3 +8310,14 @@ avemujica吧群大佬翻译的</blockquote>
 
 初华那句“不要讨厌我”的示弱心虚语气，有可能粉切黑后内心的小九九干了啥事被祥子知道了，这大金毛很难相信是纯良啊（不过很难想象初华站到祥子对面，应该全程都是站祥子但是自己又有私心）
 
+
+*****
+
+####  LeonsCat  
+##### 810#       发表于 2024-12-2 02:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66819265&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-2 02:27</a>
+
+睦大概是全程知情的，第一集祥子回忆部分，睦祥关系很深从小就认识，但还没展示“半身”设定的特殊性在哪 ...</blockquote>
+所以初华属于高级私生饭？
+

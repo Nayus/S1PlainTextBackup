@@ -17257,3 +17257,28 @@ kanade吹得很好
 
 还在喝这种小孩子的饮料
 
+
+*****
+
+####  holoan  
+##### 10299#         楼主| 发表于 2024-12-1 17:26
+
+从里到外全部评价了一遍，还跟去年的味道做了比较
+
+其实全都是小麦粉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 10300#         楼主| 发表于 2024-12-1 19:02
+
+<img src="https://img.saraba1st.com/forum/202412/01/190224gwu5ee6u2b6wkk2e.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (887.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 19:02 上传
+
+表情，吐槽语满分
+

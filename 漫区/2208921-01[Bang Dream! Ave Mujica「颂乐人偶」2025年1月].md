@@ -7758,3 +7758,60 @@ sumimi即使不会解散，但mujica肯定会占用初华大量时间，sumimi�
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  concert  
+##### 760#       发表于 2024-12-1 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66817294&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-1 21:13</a>
+什么时候翻唱海猫，gkd
+
+那么祥子是三代贝还是战贝孩子</blockquote>
+知道即视感来源了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  星天观测  
+##### 761#       发表于 2024-12-1 23:31
+
+……双开这种事访谈早说过了现在官网人设也补充上了还要质疑真有点搞笑的
+
+
+*****
+
+####  skives10  
+##### 762#       发表于 2024-12-1 23:34
+
+我觉得初华这种海岛出身的女孩 肯定是体力怪物
+不可能因为双开就体力不支 
+那样太0了 不符合角色形象
+
+*****
+
+####  御景  
+##### 763#       发表于 2024-12-1 23:35
+
+Mujica 第一集 中文翻译
+
+avemujica吧群大佬翻译的
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/text.gif" referrerpolicy="no-referrer">
+
+Mujica 第一集 中文翻译.txt
+
+2024-12-1 23:34 上传
+点击文件名下载附件
+
+23.42 KB, 下载次数: 2
+
+*****
+
+####  哈曼的YY  
+##### 764#       发表于 2024-12-1 23:35
+
+听说祥外公cv是池田秀一<img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+

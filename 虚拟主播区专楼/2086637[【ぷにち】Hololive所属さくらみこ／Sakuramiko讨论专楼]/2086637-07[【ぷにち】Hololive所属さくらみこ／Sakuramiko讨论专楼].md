@@ -17164,3 +17164,30 @@ kanade吹得很好
 
 今天如果是工作室直播的话，19点开始那个电视台节目到21点45结束，不知道22点会不会开个台
 
+
+*****
+
+####  holoan  
+##### 10291#         楼主| 发表于 2024-12-1 13:59
+
+<img src="https://img.saraba1st.com/forum/202412/01/135926g43tk0kkmtyd9yqe.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (11.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 13:59 上传
+
+*****
+
+####  holoan  
+##### 10292#         楼主| 发表于 2024-12-1 14:04
+
+<img src="https://img.saraba1st.com/forum/202412/01/140426ieymegycgts9z3rg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (30.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 14:04 上传
+

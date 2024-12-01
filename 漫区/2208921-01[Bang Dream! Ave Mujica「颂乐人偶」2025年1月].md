@@ -1815,3 +1815,100 @@ c团如果是睦鼓励祥子建的 这可能就是负罪感的源头之一吧<im
 
 小黄瓜是什么都知道啊 半身含金量再次提升
 
+
+*****
+
+####  仓鼠胖太  
+##### 201#       发表于 2024-12-1 14:07
+
+淦…贴吧看了全剧透，这高速狂暴展开…解散原因的沉重度也太高了，比想象的还超过啊，祥子真是不容易了，怜爱了
+
+*****
+
+####  PDQ4  
+##### 202#       发表于 2024-12-1 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814100&amp;ptid=2208921" target="_blank">星天观测 发表于 2024-12-1 14:02</a>
+ 剧透  祥爹看到武道馆，感叹自己被女儿甩在身后了 </blockquote>
+这还不恶劣吗，这恶劣完了
+虽然是也是踩到爹雷点了
+如果警察局属实那这爹我很难评价<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Bob293  
+##### 203#       发表于 2024-12-1 14:08
+
+太刺激了这12月一秒也待不下去了啊
+
+*****
+
+####  PDQ4  
+##### 204#       发表于 2024-12-1 14:09
+
+这退团原因比我想象圆得好<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+父女关系也是意料之内吧，就是爹人烂了点<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 205#       发表于 2024-12-1 14:12
+
+嗯现地哥能说的好像都说了，就是时间线乱一点
+
+只能说我个人没觉得那么爆吧，甚至不少内容都跟我自己写的一点同人对上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 206#       发表于 2024-12-1 14:13
+
+有一种嘻嘻嘻你们猜了一年是吧我把你们猜的全部塞第一集抖出来的感觉
+
+*****
+
+####  挺好的  
+##### 207#       发表于 2024-12-1 14:14
+
+大金毛重女
+
+<img src="https://img.saraba1st.com/forum/202412/01/141403ipx9hzk9fcchvv3h.png" referrerpolicy="no-referrer">
+
+<strong>cc3cd851619adf7d5cc76b3bd8237da6.png</strong> (241.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 14:14 上传
+
+<img src="https://img.saraba1st.com/forum/202412/01/141410lawqawiwxyie1uey.png" referrerpolicy="no-referrer">
+
+<strong>c72268439bcd2bfb446490c44c0482b4.png</strong> (226.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 14:14 上传
+
+*****
+
+####  Aendst  
+##### 208#       发表于 2024-12-1 14:14
+
+这挺好的，说明后面要展开的故事更多的是关于mujica本身
+
+至少目前看各种情报repo我感觉1话的处理超过我的预期了
+
+*****
+
+####  月島まりな  
+##### 209#       发表于 2024-12-1 14:15
+
+比较关心4th有摘面具环节吗
+
+*****
+
+####  堆雪若叶  
+##### 210#       发表于 2024-12-1 14:15
+
+说是填坑但深层的东西还在回避，解释和crychic的矛盾结果只是过渡的一环，祥子初次见到灯的时点所谓“想成为人类”在这样的背景下反而更扑朔迷离。这开头其余四人似乎也没有更多动机的展开，结成母鸡卡的核心还有不少解谜。
+

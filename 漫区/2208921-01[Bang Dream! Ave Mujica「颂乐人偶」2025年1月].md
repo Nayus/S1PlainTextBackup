@@ -5201,3 +5201,110 @@ ep2肯定有摘面具引起的问题的，因为不是最合适的时机点，�
 
 我看很多人猜是高松灯，但她13集送笔记本不是被拒了吗，前前后后感觉也没机会送啊。
 
+
+*****
+
+####  PDQ4  
+##### 510#       发表于 2024-12-1 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66815684&amp;ptid=2208921" target="_blank">本间日阳 发表于 2024-12-1 17:52</a>
+
+原来纸条的画面也是第一集就有的，这PV还真是以第一话内容为主啊。那到底是谁什么时候给的。
+
+我看很多人猜 ...</blockquote>
+可以把便签贴到祥子桌子/柜子/堵门贴钢琴上？
+
+如果真是这样可够地狱的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 511#       发表于 2024-12-1 17:56
+
+两个长文repo互相补一下，大体剧情确实就比较清楚了
+
+外公来收养成养女还是有点超前了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这到底是什么片
+
+*****
+
+####  枫林不见  
+##### 512#       发表于 2024-12-1 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66815718&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-1 17:56</a>
+
+两个长文repo互相补一下，大体剧情确实就比较清楚了
+
+外公来收养成养女还是有点超前了这到底是什么片 ...</blockquote>
+圣母在上 藤堂志摩子罢了
+
+*****
+
+####  好想看Mujica啊  
+##### 513#       发表于 2024-12-1 17:59
+
+日本什么收弟弟、孙子做养子很正常的，涉及到继承权，估计是想让祥子当继承人
+
+
+*****
+
+####  PDQ4  
+##### 514#       发表于 2024-12-1 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66815567&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-1 17:36</a>
+
+瞒着家人也有可能，如果是这样，确实就会是前半部分解决睦的问题的路线了
+
+之前奶的睦前期，初华后期</blockquote>
+这没法瞒着家人吧，不是说未成年出道要家属同意<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  枫林不见  
+##### 515#       发表于 2024-12-1 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66815740&amp;ptid=2208921" target="_blank">好想看Mujica啊 发表于 2024-12-1 17:59</a>
+
+日本什么收弟弟、孙子做养子很正常的，涉及到继承权，估计是想让祥子当继承人 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">最难蹦的还是猜测的假药都成真了 
+
+*****
+
+####  yone0000  
+##### 516#       发表于 2024-12-1 18:02
+
+毕竟祥爹看上去应该是入赘的，要把他赶出门还要留下祥子，那只能收祥子做养女了。
+
+在家庭伦理上还是挺严谨的（
+
+*****
+
+####  cxj649  
+##### 517#       发表于 2024-12-1 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66815718&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-1 17:56</a>
+
+两个长文repo互相补一下，大体剧情确实就比较清楚了
+
+外公来收养成养女还是有点超前了这到底是什么片 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你肯定没看过圣母在上和战姬绝唱
+
+*****
+
+####  cxj649  
+##### 518#       发表于 2024-12-1 18:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66815730&amp;ptid=2208921" target="_blank">枫林不见 发表于 2024-12-1 17:58</a>
+
+圣母在上 藤堂志摩子罢了</blockquote>
+这个有点远了，近点还有战姬绝唱
+
+*****
+
+####  Aendst  
+##### 519#       发表于 2024-12-1 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66815751&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-1 18:01</a>
+
+这没法瞒着家人吧，不是说未成年出道要家属同意</blockquote>
+哦这个确实，是需要监护人同意的
+

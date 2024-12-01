@@ -8270,3 +8270,18 @@ avemujica吧群大佬翻译的</blockquote>
 
 然后祥子某种意义上是离家出走状态
 
+
+*****
+
+####  LeonsCat  
+##### 807#       发表于 2024-12-2 02:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66818978&amp;ptid=2208921" target="_blank">御幸一也 发表于 2024-12-2 01:04</a>
+
+祥子的祖父說要收祥子當養女這句話很耐人尋味，所以查了一下日本的財產繼承相關。
+
+日本民法典</blockquote>
+信号不一样
+
+收为养女，就是明明白白发出信号“祥子不是罪人之女，是堂堂正正的丰川家大小姐”。
+

@@ -7416,3 +7416,79 @@ pv的“不要讨厌我”没准就是被祥子知道了
 
 也不知道是谁先看了别人毫无恶意的正常分享就开始指导了，完了不敢认指导癖还暗搓搓扣鹅表示自己比别人高贵<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">知道你自以为高人一等了，多新鲜哪
 
+
+*****
+
+####  星天观测  
+##### 724#       发表于 2024-12-1 22:48
+
+初华明明在答应入团的时候毫不犹豫，但是在最后却没有按着祥子的意思来，选择摘下面具
+
+喵梦有没有约好这个不好说，就算约好了，目的估计也不是所谓的“为了跟祥子绑在一个乐队（合同都签了想退队先交违约金）”，pv里也有初喵对峙的画面，说不定就会解释到这一点
+
+syl
+
+要吵架拉个qq群不行么，非要贴出来想让大伙主持公道么
+
+*****
+
+####  PDQ4  
+##### 725#       发表于 2024-12-1 22:48
+
+有ring会员证了，可能等进游戏了会去ring吧，这总不能吃书
+
+ktv还是去睦家大house吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 726#       发表于 2024-12-1 22:52
+
+初华还是先想想撕皮之后怎么对付找上门来的甜甜圈吧，反田可是上了角色介绍的，戏份应该不会太路人。
+
+
+*****
+
+####  NODY  
+##### 727#       发表于 2024-12-1 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66818101&amp;ptid=2208921" target="_blank">星天观测 发表于 2024-12-1 22:48</a>
+
+初华明明在答应入团的时候毫不犹豫，但是在最后却没有按着祥子的意思来，选择摘下面具
+
+喵梦有没有约好这个 ...</blockquote>
+假面乐队在不暴露真人的情况下，万一公司要推新人或者换人之类的可能会把成员换掉（pp也有过想要换人的剧情），所以早点暴露真身的话，对公司的反向约束会强一点，是这个意思
+
+*****
+
+####  蜇灵  
+##### 728#       发表于 2024-12-1 22:53
+
+初华很明显是有自己想法的，从go里面的戏份就能看得出来，不过直接和喵梦串通还是不太可能的，但是顺水推舟，甚至暗中引导喵梦我觉得是有可能的
+
+*****
+
+####  蜇灵  
+##### 729#       发表于 2024-12-1 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66818148&amp;ptid=2208921" target="_blank">NODY 发表于 2024-12-1 22:53</a>
+假面乐队在不暴露真人的情况下，万一公司要推新人或者换人之类的可能会把成员换掉（pp也有过想要换人的剧 ...</blockquote>
+此事在管人圈亦有记载，管人圈始皇帝都差点被换了
+
+*****
+
+####  蜇灵  
+##### 730#       发表于 2024-12-1 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66818134&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2024-12-1 22:52</a>
+初华还是先想想撕皮之后怎么对付找上门来的甜甜圈吧，反田可是上了角色介绍的，戏份应该不会太路人。 ...</blockquote>
+mana能不能来个大的
+
+*****
+
+####  skives10  
+##### 731#       发表于 2024-12-1 22:55
+
+感觉官网的祥子头像看起来有种清澈的愚蠢 还有婴儿肥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+赶紧出立牌吧
+

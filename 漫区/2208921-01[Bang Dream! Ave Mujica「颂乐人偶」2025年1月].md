@@ -4518,3 +4518,108 @@ mygo部分： soyo、灯和爱音三人正在立希的打工地点喝茶时，�
 
 虽然对不起世界观但是大喵干得好啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives10  
+##### 447#       发表于 2024-12-1 16:56
+
+这面具第一集就摘了确实是神来之笔
+
+*****
+
+####  相坂君  
+##### 448#       发表于 2024-12-1 16:58
+
+摘面具利好谷，总算不用看到那丑面具挡着好看的脸了
+
+*****
+
+####  方块木偶  
+##### 449#       发表于 2024-12-1 16:58
+
+不过第一集就武道馆的话，后面live场地要怎么安排呢
+
+*****
+
+####  PDQ4  
+##### 450#       发表于 2024-12-1 16:58
+
+感觉第一集就摘这件事以为间隔一年半变得更戏剧化了
+
+在鬼图频发面具焊死的时候告诉你第一集就摘了
+
+司马wsd，本来鸡差不多今年四月份最晚7月份就能看到摘面具的<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 451#       发表于 2024-12-1 17:00
+
+武道馆是半开还是全开
+
+
+*****
+
+####  相坂君  
+##### 452#       发表于 2024-12-1 17:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">玉座谷能不能没有面具，第一话已经摘了都
+
+*****
+
+####  SFLSNZYN  
+##### 453#       发表于 2024-12-1 17:02
+
+第一话上武道馆+摘面具，后面还怎么演
+
+*****
+
+####  PDQ4  
+##### 454#       发表于 2024-12-1 17:02
+
+武道馆上过了那只能剑指东蛋了
+
+*****
+
+####  Libartas  
+##### 455#       发表于 2024-12-1 17:03
+
+所以这上来就摘面具，后面的真人live也不用带那个唐氏面具了吧？
+
+*****
+
+####  LeonsCat  
+##### 456#       发表于 2024-12-1 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66815286&amp;ptid=2208921" target="_blank">方块木偶 发表于 2024-12-1 16:58</a>
+
+不过第一集就武道馆的话，后面live场地要怎么安排呢</blockquote>
+蛋巡？国立体育场？直接献唱超级碗？替代东奥鬼片？
+
+*****
+
+####  相坂君  
+##### 457#       发表于 2024-12-1 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66815301&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-1 17:00</a>
+
+武道馆是半开还是全开</blockquote>
+你还是没放过wsd<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 458#       发表于 2024-12-1 17:04
+
+二次鸡拉这么快感觉三次鸡压力很大啊<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仓鼠胖太  
+##### 459#       发表于 2024-12-1 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66815286&amp;ptid=2208921" target="_blank">方块木偶 发表于 2024-12-1 16:58</a>
+不过第一集就武道馆的话，后面live场地要怎么安排呢</blockquote>
+第一集就爆成这样感觉下场就得真人搏击了，下一场live还会有吗，远目
+

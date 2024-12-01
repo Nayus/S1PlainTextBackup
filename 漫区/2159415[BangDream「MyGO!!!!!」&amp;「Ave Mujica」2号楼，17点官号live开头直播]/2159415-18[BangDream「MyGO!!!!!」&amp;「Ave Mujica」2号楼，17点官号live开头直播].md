@@ -16514,3 +16514,14 @@ Bang Dream! Ave Mujica「颂乐人偶」2025年1月
 
 所以核心问题首先是究竟是否需要一个明确狗而不接受其他队的楼，如果需要狗楼是本楼直接转狗楼还是新开狗楼。
 
+
+*****
+
+####  CyDiablo  
+##### 26526#       发表于 2024-12-1 12:34
+
+ 本帖最后由 CyDiablo 于 2024-12-1 12:35 编辑 
+
+这楼直接转企划楼好了，go专楼必要性也不是很高，给邦批一个落脚点就行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+就是要辛苦一下楼主把首楼内容改一下了
+

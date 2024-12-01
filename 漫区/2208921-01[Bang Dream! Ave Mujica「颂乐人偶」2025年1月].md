@@ -5978,3 +5978,110 @@ https://bangumi.tv/subject/ ...</blockquote>
 
 而且独角兽那个样，祥子妈没了她不给祥子整成妈宝？看不起她好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 580#       发表于 2024-12-1 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66816467&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-1 19:31</a>
+
+祥妈在人偶里藏了一句话：I will always be attached to you，Sakiko.</blockquote>
+参考原典，是不是应该藏了一段小曲儿<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Acatv  
+##### 581#       发表于 2024-12-1 19:38
+
+当时那种情况 最优解也许真的是四人摘面具 初华不摘。
+既有了流量也留了悬念，而且初华主唱的身份对公众就是最大的爆点。
+当然初华主动摘面具"官宣"的意味也很美味<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+后续的烂摊子就交给ob小姐收拾吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+
+*****
+
+####  相坂君  
+##### 582#       发表于 2024-12-1 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66816123&amp;ptid=2208921" target="_blank">Acatv 发表于 2024-12-1 18:49</a>
+
+隔壁看到的这点 确实很难绷</blockquote>
+欢乐多，这就是独角兽钦定<strong>对等</strong>的关系，好磕
+
+*****
+
+####  NODY  
+##### 583#       发表于 2024-12-1 19:39
+
+最新版本已经是祥子给喵梦起名叫爱是因为拿喵梦代自己妈妈了
+
+*****
+
+####  skives10  
+##### 584#       发表于 2024-12-1 19:39
+
+也许我们母鸡卡就是ob小姐不断收拾烂摊子的故事？
+
+
+*****
+
+####  PDQ4  
+##### 585#       发表于 2024-12-1 19:41
+
+执着露脸还要出名当网红
+
+想到那种靠脸找人的典中典剧情，喵梦不会真是家人侠在找失散多年的亲人吧<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+我倒是希望她有一部分纯粹想出名的野心，对得起杂志上的野望，就好这口<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 586#       发表于 2024-12-1 19:43
+
+后面感情戏是喵初抢🐘就搞了。
+
+*****
+
+####  novalli  
+##### 587#       发表于 2024-12-1 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814654&amp;ptid=2208921" target="_blank">ggxx001 发表于 2024-12-1 15:20</a>
+个人觉得最无语的还是会有人觉得这只手是素
+
+—— 来自 S1Fun</blockquote>
+这只手应该是喵梦，mygo第13集里她穿的就是纱质长袖。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.94-alpha
+
+*****
+
+####  Aendst  
+##### 588#       发表于 2024-12-1 19:45
+
+这里摘了面具到底会有什么影响
+
+考虑到两面性，关注度更高mujica更火了是有可能的，负面影响一时之间想不到太多
+
+1.触发睦的问题
+
+2.触发sumimi的问题，跟mujica的企划方针有关
+
+3.触发海铃的问题，和兼任乐队有关（低可能性）
+
+4.全都有，ob小姐要收拾烂摊子
+
+好像确实只有喵梦不太会出问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 589#       发表于 2024-12-1 19:46
+
+下一集预告是睦
+祥子有可能去睦家
+感觉要开启睦睦线了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

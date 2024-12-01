@@ -6380,3 +6380,83 @@ C团解散之后祥子冒雨走回家，一路上边想刚才每个人对她说�
 
 网络主播为了流量没下限全世界都一样，高中生们的社会第一课🤓
 
+
+*****
+
+####  仓鼠胖太  
+##### 620#       发表于 2024-12-1 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66816767&amp;ptid=2208921" target="_blank">椎名真希 发表于 2024-12-1 20:02</a>
+不是有点，应该就是在装坏人
+C团解散之后祥子冒雨走回家，一路上边想刚才每个人对她说的话一边念对方名字 ...</blockquote>
+啊？好心疼…第二集开始触底反弹吧球球了…
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Aendst|-1|感觉不如欠债，演好难看啊|
+
+查看全部评分
+
+*****
+
+####  你的本子出了  
+##### 621#       发表于 2024-12-1 20:21
+
+这大喵老师的做法有点过分了吧
+
+
+*****
+
+####  仓鼠胖太  
+##### 622#       发表于 2024-12-1 20:23
+
+有的二极管真是让人想笑
+
+*****
+
+####  ads147147  
+##### 623#       发表于 2024-12-1 20:24
+
+大喵老师也是演技吧。
+
+其实只要大祥老师愿意低头还是能直接回娘家的吧，和我之前猜大祥只是选择和老爹在一起并不是真的没钱的情况差不多。。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  Aendst  
+##### 624#       发表于 2024-12-1 20:25
+
+没什么过分的，本来面具就是迟早要摘的，喵梦只是把过程提前了
+
+无非是会导致一些计划外的事情，相信ob小姐会用鼓谱妥善安排喵梦的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且终于摘面具了意味着live和谷，包括手游内卡面都可以摘面具
+
+越早越好
+
+*****
+
+####  skives10  
+##### 625#       发表于 2024-12-1 20:25
+
+年纪轻轻怎能向老头屈服
+何况和牢爹的感情那么深<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  双重清洁枪  
+##### 626#       发表于 2024-12-1 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66816779&amp;ptid=2208921" target="_blank">Alicest 发表于 2024-12-1 20:04</a>
+
+睦被摘面具之后的慌乱捂脸挺可爱的</blockquote>
+期待睦的部分<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+

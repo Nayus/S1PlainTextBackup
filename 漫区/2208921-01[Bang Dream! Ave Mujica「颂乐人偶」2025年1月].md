@@ -6753,3 +6753,111 @@ pv海报除了喵梦其余4人都穿校服，可否证实喵梦是社会人<img 
 
 —— 来自 Xiaomi M2102J2SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  贰臣  
+##### 655#       发表于 2024-12-1 21:16
+
+那段高尾是配得真好，听得我心都碎了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 656#       发表于 2024-12-1 21:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">海猫和llx假药半成真了吗
+
+*****
+
+####  ads147147  
+##### 657#       发表于 2024-12-1 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66817119&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-1 20:49</a>
+确实如此……而且既然已经涉及角色背景有人死亡的状况，包饺子这个行为本身就会很难处理
+
+不如说从首话来 ...</blockquote>
+其实挺好包饺子的，主要是看什么方向，别像隔壁叶月恋一样全校同学面前处决“我妈妈也喜欢学院偶像”这种处理，我觉得都挺好包饺子的。。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  skives10  
+##### 658#       发表于 2024-12-1 21:18
+
+感觉killkiss挺好听的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  miomio123  
+##### 659#       发表于 2024-12-1 21:18
+
+祥爹:我也喜欢ave mujica
+
+—— 来自 Xiaomi M2102J2SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 660#       发表于 2024-12-1 21:19
+
+话说包完饺子蒸蒸日上的mujica在剧情里算是比双R还逆天的存在了吧，5个成员3个有名人，一年速通武道馆……
+
+*****
+
+####  NODY  
+##### 661#       发表于 2024-12-1 21:20
+
+不是一年，是一个月速通
+
+*****
+
+####  PDQ4  
+##### 662#       发表于 2024-12-1 21:22
+
+祥子哭虽然很心疼，但是找工作那里的语气我更心疼一点，才15岁啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 663#       发表于 2024-12-1 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66817322&amp;ptid=2208921" target="_blank">ads147147 发表于 2024-12-1 21:17</a>
+
+其实挺好包饺子的，主要是看什么方向，别像隔壁叶月恋一样全校同学面前处决“我妈妈也喜欢学院偶像”这种 ...</blockquote>
+具体处理倒是不担心，相信制作组可以做好
+
+只是如果要写一个基调灰暗的、相对现实的严肃故事，会很容易让很多东西显得矫揉造作或者闹麻了
+
+爹这边的饺子也有这个风险在吧<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">包饺子了那这到底是个什么调性的故事，会不会有违和感
+
+不过看首话的状况，还是可以相信再相信的
+
+*****
+
+####  PDQ4  
+##### 664#       发表于 2024-12-1 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66817361&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-1 21:23</a>
+
+具体处理倒是不担心，相信制作组可以做好
+
+只是如果要写一个基调灰暗的、相对现实的严肃故事，会很容易让 ...</blockquote>
+事已至此，只能让爹跳海失忆了<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+
+*****
+
+####  堆雪若叶  
+##### 665#       发表于 2024-12-1 21:25
+
+边回忆边痛哭确实虐的有点狠，soyo立希灯三个人的反应都一刀刀往祥子身上捅，不过相对的睦的反应却被隐去了，应该还是独立于这段矛盾的其他坑。
+
+*****
+
+####  火受姛人  
+##### 666#       发表于 2024-12-1 21:26
+
+祥子这经历已经脑补完一部红楼梦了，尤其是听到那惨烈的哭声的时候<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

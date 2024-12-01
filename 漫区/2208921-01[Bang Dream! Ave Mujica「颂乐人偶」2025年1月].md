@@ -5844,3 +5844,63 @@ crychic既是她收到蝶鼓舞后具现化出的产物，同样也是她逃避�
 
 现实太难了<img src="https://p.sda1.dev/20/88b6a13b776a803b692b4774f71e849e/IMG_CMP_83354577.jpeg" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/20/5671f265cf3692e80a05ebc4e997a111/img-1733045139051f444e088549bcb69059e7de00d654d18a5d74245fd173fc4b5d55db0ba49dfa7.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NoreBran  
+##### 569#       发表于 2024-12-1 19:16
+
+打卡
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Aendst  
+##### 570#       发表于 2024-12-1 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66816298&amp;ptid=2208921" target="_blank">jkl 发表于 2024-12-1 19:11</a>
+
+搬一下bgm上讲邦邦初设的帖
+
+虽然这个也是很早讨论过的猜测，现在算是被证实了
+
+https://bangumi.tv/subject/ ...</blockquote>
+真的让祥子完全放下她爸不管我觉得不太可能，家庭饺子肯定会包吧
+
+人本来的行为没什么问题，丧妻失业一蹶不振这种人设也是经典案例了
+
+包括和父亲约定了父亲要来看live，拒绝收养选择自己打工维持生计，也都能看出来祥子和她爸就算在丧母之后关系都相当好
+
+最后祥爹能振作起来把烂摊子都收拾了助攻一下这饺子也没什么不太能接受的
+
+*****
+
+####  相坂君  
+##### 571#       发表于 2024-12-1 19:24
+
+求求你们别再喵祥代餐了，目前这第一话的恨味这么深，到底在代什么
+
+不过独角兽可真敢写啊，就这么让喵梦大胆的搞事，独角兽你肯定会圆回来的吧！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  椎名真希  
+##### 572#       发表于 2024-12-1 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66816308&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-1 19:12</a>
+是，她还想留时间开开心心喝茶，但是现实告诉她不可以，你没得继续做梦了
+
+她现在就是要直面妈去世爹颓废 ...</blockquote>
+是这样
+祥子被外公说要她抛弃她爹的时候跑回自己房间，然后房间里面一个人偶一个钢琴，祥子拿起人偶说这个是妈妈的，回头充满留恋看了眼钢琴毅然扭头走了。感觉有点隐喻对祥子来说家人＞音乐，那也是个很用心的镜头
+
+*****
+
+####  Devola  
+##### 573#       发表于 2024-12-1 19:25
+
+夢を撃ち抜く瞬間に！
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

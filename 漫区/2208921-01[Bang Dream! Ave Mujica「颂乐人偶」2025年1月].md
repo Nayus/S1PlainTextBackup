@@ -8146,3 +8146,66 @@ avemujica吧群大佬翻译的</blockquote>
 
 还挺……奇怪的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 796#       发表于 2024-12-2 01:08
+
+睦看那个在家摔东西的样子，感觉自身难保，不一定能让祥子一起住过来
+
+看到有猜测是睦爸妈其中一个不希望睦出道或者不准玩乐队（然后另一个偷偷帮睦签字支持），所以睦急着挡住脸是怕暴露，之后会被关在家里，所以才摔东西
+
+*****
+
+####  Kfly  
+##### 797#       发表于 2024-12-2 01:08
+
+ 本帖最后由 Kfly 于 2024-12-2 01:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66818451&amp;ptid=2208921" target="_blank">御景 发表于 2024-12-1 23:35</a>
+
+Mujica 第一集 中文翻译
+
+avemujica吧群大佬翻译的</blockquote>
+厉害<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 798#       发表于 2024-12-2 01:09
+
+请选择你的答案
+
+1.老登平行世界姓风鸣
+
+2.老登是变态女儿控，必须是女儿才行
+
+3.老登觉得外孙女掉价，闺女听着好听
+
+4.老登是祥爹深柜，要排除一切祥爹要素
+
+5.祥子其实不是亲生的，需要收养才有继承权
+
+6.豪门家族内斗，老头打算把祥子当场祥爹后的继承人培养，要抬名分
+
+独角兽不要真的八点档啊受不了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  uhiuk  
+##### 799#       发表于 2024-12-2 01:14
+
+ 本帖最后由 uhiuk 于 2024-12-2 01:15 编辑 
+
+说起这个我看别的地方有人说日本富人是有女儿死后把外孙女收养成女儿的传统的，然后举了北野武的例子。
+
+搜了一下日本如果要留遗产给孙字辈，需要支付的税金远远高于留给儿女。可能方便避税吧
+
+*****
+
+####  akiomn  
+##### 800#       发表于 2024-12-2 01:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看看半身设定独角兽怎么搞，我记得有人说祥妈葬礼睦也来了，按常理说葬礼应该都是家属亲戚朋友出席，睦从小就跟着祥子，两人关系应该不是普通的青梅吧
+

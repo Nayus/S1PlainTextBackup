@@ -7644,3 +7644,117 @@ sumimi没有解散，只是初华没来
 
 场外祥子争议不断被黑一年，场内也要共振吗，这种事情不要啊<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 747#       发表于 2024-12-1 23:16
+
+放心，真实娱乐圈只会比你们发散的更离谱。当年smap可是实锤台下军体拳台上亲如兄弟的，这就叫专业。
+
+*****
+
+####  Aendst  
+##### 748#       发表于 2024-12-1 23:16
+
+我觉得祥子最后和豊川本家和解的概率很高<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+要做富家大小姐因变落魄又自己白手起家的故事，其实不太有必要设定到这种财阀程度
+
+TGW物産是豊川家产业，有资助mujica这个就是泥漏早期假药了，现在看来成真概率也不低
+
+*****
+
+####  影伴光生  
+##### 749#       发表于 2024-12-1 23:17
+
+初华摘面具有一种共犯的感觉，这下真要命运共同体了吧，祥子你找乐队成员怎么一个比一个重啊
+
+*****
+
+####  skives10  
+##### 750#       发表于 2024-12-1 23:18
+
+和解了也别回去 自己独立挺好的
+细雪不也是这么写的
+
+*****
+
+####  相坂君  
+##### 751#       发表于 2024-12-1 23:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不用这么写实吧……
+
+#带资进组丰川祥子#抵制资源咖
+
+*****
+
+####  好想看Mujica啊  
+##### 752#       发表于 2024-12-1 23:19
+
+和老老登和解估计会放到手游里，牵扯个几期活动
+
+*****
+
+####  PDQ4  
+##### 753#       发表于 2024-12-1 23:21
+
+本来就回不去吧，我觉得爹打工重新活得很好，祥子独立就足够
+
+血缘关系又不会断，逢年过节遇见大事能给爷俩打个电话的关系就不错<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 754#       发表于 2024-12-1 23:21
+
+真要这么写实我就要感叹怎么推子联动没等到你鸡进游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 755#       发表于 2024-12-1 23:23
+
+既然独角兽喜欢把鸡团剧情写的很“大人”，那能不能写一点真社会桥段，比如🐘是如何跟sumimi经济公司利益交涉的，怎么定场地做宣传拉赞助的，能写得5分像都爆杀业界同类作品了。
+
+*****
+
+####  好想看Mujica啊  
+##### 756#       发表于 2024-12-1 23:23
+
+sumimi即使不会解散，但mujica肯定会占用初华大量时间，sumimi活动越来越少，放到现实里粉丝肯定爆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过邦世界里纯良粉丝连开局假弹都能原谅，也说不准。
+
+*****
+
+####  仓鼠胖太  
+##### 757#       发表于 2024-12-1 23:23
+
+祥子一个顶了乐队队长、作曲、制作人三个角色，企划换谁也不会换了她吧，纯纯血汗公司…
+从祥不让初华摘面具的表现➕这种发散方向，是不是初华这边mujika和sumimi是双开还是某一边代打公司还没敲定
+
+*****
+
+####  PDQ4  
+##### 758#       发表于 2024-12-1 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66818367&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2024-12-1 23:23</a>
+
+既然独角兽喜欢把鸡团剧情写的很“大人”，那能不能写一点真社会桥段，比如🐘是如何跟sumimi经济公司利益交 ...</blockquote>
+那要看参照物是谁，万一参照wsd，那五分像不是草台中的草台<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+虽然大部分都是草台
+
+*****
+
+####  ads147147  
+##### 759#       发表于 2024-12-1 23:26
+
+又想看娱乐圈八卦么，感觉拉赞助这事额，建议看牢川的真人秀学徒。
+
+大祥已经很有几分颜色了，拿自家身份稍微扯点旗子，哪怕是假太子人家也不会知道是假的。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

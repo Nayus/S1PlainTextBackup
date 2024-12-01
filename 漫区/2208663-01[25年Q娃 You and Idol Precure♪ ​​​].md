@@ -1050,3 +1050,13 @@ You暗示Idol要拆开，所以应该是You and I do l***
 偶像番CV和歌手同一人也是常见操作啊。战姬绝唱真的临时起意的是配音时根据剧情现唱歌而且穿插着对话台词 ...</blockquote>
 战姬绝唱那种剧中是边唱边打的预录就会没那种味道，就算对照动画时间轴也很难和对话相互表现那种喘不过气的的感觉
 
+
+*****
+
+####  damian-wade  
+##### 107#       发表于 2024-12-1 13:07
+
+变身曲比星q好听就是胜利啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+

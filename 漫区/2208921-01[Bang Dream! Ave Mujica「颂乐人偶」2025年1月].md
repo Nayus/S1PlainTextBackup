@@ -1053,3 +1053,95 @@ debuff拉满，不敢想出点小节奏会怎么崩塌<img src="https://static.s
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66813529&amp;ptid=2208921" target="_blank">Alicest 发表于 2024-12-1 13:03</a></blockquote>
 牛逼疯了我草
 
+
+*****
+
+####  红楼飞雪  
+##### 119#       发表于 2024-12-1 13:06
+
+pv太劲了，看不到正片我先循环十遍pv为敬
+
+*****
+
+####  NODY  
+##### 120#       发表于 2024-12-1 13:06
+
+目前看到的剧透比假药都猛
+
+
+*****
+
+####  QwwwAwwwQ  
+##### 121#       发表于 2024-12-1 13:08
+
+剧透看上去好可怕<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 122#       发表于 2024-12-1 13:09
+
+致敬传奇吉他店老板sayo
+祥子：我只有ave mujica了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  [皆神孝介]  
+##### 123#       发表于 2024-12-1 13:10
+
+TVアニメ「BanG Dream! Ave Mujica」本PV
+[https://www.youtube.com/watch?v=Souwq8yepWQ](https://www.youtube.com/watch?v=Souwq8yepWQ)
+
+<img src="https://img.saraba1st.com/forum/202412/01/131016dhkt93tddlf9rabt.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2024-12-01_13-09-55.jpg</strong> (251.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 13:10 上传
+
+
+*****
+
+####  cherryjia12  
+##### 124#       发表于 2024-12-1 13:13
+
+pv看得我不行了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">好想看
+
+*****
+
+####  高规格ik  
+##### 125#       发表于 2024-12-1 13:14
+
+顶中顶，狠狠的期待了
+
+*****
+
+####  笋狐  
+##### 126#       发表于 2024-12-1 13:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很担心pv里角色展现出的精神状态（
+
+*****
+
+####  sanae  
+##### 127#       发表于 2024-12-1 13:15
+
+pv太劲啦！！
+
+*****
+
+####  NODY  
+##### 128#       发表于 2024-12-1 13:15
+
+据说祥子搬去睦家里了？
+
+*****
+
+####  Aendst  
+##### 129#       发表于 2024-12-1 13:16
+
+<img src="https://anime.bang-dream.com/avemujica/wordpress/wp-content/themes/avemujica_1201/assets/images/common/ogp_5.jpg" referrerpolicy="no-referrer">
+
+KV3
+

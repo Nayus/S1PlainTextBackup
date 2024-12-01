@@ -1307,3 +1307,13 @@ poe1一直入不了坑
 以前玩过几个赛季的POE国际服，当时没绑任何平台。前两天脑抽把这个号绑到了STEAM阿区小号上，这 ...</blockquote>
 poe有自己的服务器路线，加速时候不需要阿区。
 
+
+*****
+
+####  hyiang98  
+##### 143#       发表于 2024-12-2 02:24
+
+花了500以上分别买暗黑4本体和DLC，感觉自己有些冤大头啊
+
+—— 来自 Xiaomi 24069RA21C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

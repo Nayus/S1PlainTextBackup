@@ -708,3 +708,13 @@ Screenshot of 动态首页-哔哩哔哩.jpg
 我会把群里现地哥的repo发过来，但是s1好像不能折叠？</blockquote>
 可以设置字体反白
 
+
+*****
+
+####  三尖酸努努  
+##### 77#       发表于 2024-12-1 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66812721&amp;ptid=2208921" target="_blank">dqtql 发表于 2024-12-1 11:25</a>
+可以设置字体反白</blockquote>
+s1反白回复就没用了，所以反白内容大家还是别回复比较好
+

@@ -11375,3 +11375,11 @@ op地区大赛就在新国立了决赛不敢想了<img src="https://static.sarab
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  优妮可  
+##### 1111#       发表于 2024-12-2 02:01
+
+感觉都不用剪，保留第一集，红蓝那集和第十集就行了。
+

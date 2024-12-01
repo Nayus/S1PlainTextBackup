@@ -5723,3 +5723,124 @@ crychic既是她收到蝶鼓舞后具现化出的产物，同样也是她逃避�
 
 说起来流行假药里还没有眉目的就是喵灯代餐说了吧，这个绫奈写放进去那我们喵祥美帝了呀
 
+
+*****
+
+####  skives10  
+##### 560#       发表于 2024-12-1 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66816249&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2024-12-1 19:06</a>
+说起来流行假药里还没有眉目的就是喵灯代餐说了吧，这个绫奈写放进去那我们喵祥美帝了呀 ...</blockquote>
+绫奈肯定不能这么写啊 这么写喵箱就往真爱那个方向发展了 初祥睦祥也得卖啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 561#       发表于 2024-12-1 19:08
+
+这怎么写，灯是喵梦的代餐吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+代餐没什么意思，喵祥独一份的天敌味已经很好了
+
+*****
+
+####  椎名真希  
+##### 562#       发表于 2024-12-1 19:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66816159&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-1 18:55</a>
+重新梳理了一下思路，repo刷了这么多
+
+基本上祥子丧母失魂落魄——被睦拉去看到蝶——组ccc——父亲出事迫于 ...</blockquote>
+祥子在刚出变故那段时间是还想挣扎一下维持住C团的，但是她疯狂打工填不上亏空（打工凌晨送报纸时候穿的运动服，很可爱），初中生有很多打工都接不了，有人还电话问她监护人的状态，最后是一张招聘告示每一格都打了叉
+同时她还管理存折，有个镜头是她拿着存折说这样下去不行，然后就是在学校和睦说月之森的学费很贵（承接转学）
+还有soyo给她发短信问她能不能来是很开心的，然而好不容易凑出一天有时间，结果警察局给她打电话让她领走她爹
+最后就是C团的解散那天
+
+
+*****
+
+####  skives10  
+##### 563#       发表于 2024-12-1 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66816272&amp;ptid=2208921" target="_blank">椎名真希 发表于 2024-12-1 19:09</a>
+祥子在刚出变故那段时间是还想挣扎一下维持住C团的，但是她疯狂打工填不上亏空（打工凌晨送报纸时候穿的 ...</blockquote>
+运动服也太萌了
+据说清理房间时还扎了头发<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 564#       发表于 2024-12-1 19:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">扎头发技术上是怎么实现的，是不是要单独建模
+
+还是说直接用2d手绘去做了
+
+*****
+
+####  jkl  
+##### 565#       发表于 2024-12-1 19:11
+
+搬一下bgm上讲邦邦初设的帖
+
+虽然这个也是很早讨论过的猜测，现在算是被证实了
+[https://bangumi.tv/subject/topic/32945](https://bangumi.tv/subject/topic/32945) <blockquote><strong>个人建议，在正式开播前去补邦邦初设小说可以增加观影体验</strong>
+
+这里有剧透，不想被剧透还请不要点开。即便如此我还是十分推荐去读初设小说，其本身就是一个很完整很优秀的故事。
+祥子的家庭设定基本上就是初设ppp中两个丧亲角色家庭的结合，初设saaya提供主轴（母亲去世，父亲开始颓废，为了父亲和家庭退出自己的第一个乐队），初设ars提供了其他元素（父亲很有才华，并且是赘婿；一些剧透好像说祥父也是搞音乐的，这点无法确认，但如果是这样的话和初设ars父也是一样的）
+
+初设中对saaya家庭遭遇变故和因故退出第一个乐队的心理描写很充分，鉴于祥子的个人经历和她高度相似，在这里摘一段saaya有关退队的描写，目前来看和祥子退出crychic的情况非常接近：
+
+“初中三年级的时候，爸爸突然病倒了。那时没出什么大事……现在也很精神……。但是他可能再次病倒。”
+
+“……身体不好吗？”
+
+“也不是。现在大概是真的没问题了。所以只是假设……小香澄，请你认真想一想。请你想象一下，如果这种事情真的发生了的话。”
+
+“……嗯。什么事？”
+
+“比如说，那是一首像今天一样，倾尽心血创作出来的歌。这一天，乐队要表演这首歌，这一天对乐队来说非常重要。如果我突然不得不去爸爸那里，你会怎么办？”
+
+“………”
+
+“乐队的大家一直在一起追逐梦想，演出前一天为止，大家还都在一起练习。到了演出当天，你们苦苦等待我的到来，但是我始终没有出现。如果出现这种情况的话。”
+
+而有关乐队是命运共同体这一点祥子和初设saaya也一定非常有得聊：
+
+“我要为此负责，所以我退出了乐队。大家都说不是我的错，但我觉得我已经不能再参加乐队了。我很害怕，于是擅自放弃了。乐队是命运共同体，所以梦有时会因为一个人而破碎。如果我放弃乐队，就再也不会毁掉任何人的梦了，自己也不会受伤。”
+
+按照初设的流程，最后ppp的音乐重新打动了saaya的父亲，让他不再颓废，这反而终于让saaya从日复一日的照顾家庭中解脱，最终得以加入ppp拼上最后一块拼图（邦邦初设非常强调命运和命中注定）。如果要给祥子和祥父包个饺子的话，大概最有可能是初设里saaya和saaya父的包法。
+
+（不过要真是这样我可能得放低一些期待，因为这个包法在现在这个烂完的讨论环节多半会被骂）</blockquote>
+
+*****
+
+####  PDQ4  
+##### 566#       发表于 2024-12-1 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66816272&amp;ptid=2208921" target="_blank">椎名真希 发表于 2024-12-1 19:09</a>
+
+祥子在刚出变故那段时间是还想挣扎一下维持住C团的，但是她疯狂打工填不上亏空（打工凌晨送报纸时候穿的 ...</blockquote>
+是，她还想留时间开开心心喝茶，但是现实告诉她不可以，你没得继续做梦了
+
+她现在就是要直面妈去世爹颓废需要自己撑起这个家的现实
+
+看repo祥子为什么一定要跟着爹也有说法的，因为那是她妈选的人
+
+可以说祥爹把她赶出门的时候也是在否定祥妈本身了，对于疑似妈宝的祥子来讲真的很过分<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仓鼠胖太  
+##### 567#       发表于 2024-12-1 19:14
+
+爱素去看母鸡卡是挺有趣的，一个是和老c团最没有关系的人（不算猫猫，猫猫来看live也不会有什么作用<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">），一个是最怀念老c团的人，反映对比应该也很好味吧
+
+*****
+
+####  MASKA-1  
+##### 568#       发表于 2024-12-1 19:15
+
+现实太难了<img src="https://p.sda1.dev/20/88b6a13b776a803b692b4774f71e849e/IMG_CMP_83354577.jpeg" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/20/5671f265cf3692e80a05ebc4e997a111/img-1733045139051f444e088549bcb69059e7de00d654d18a5d74245fd173fc4b5d55db0ba49dfa7.jpg" referrerpolicy="no-referrer">
+

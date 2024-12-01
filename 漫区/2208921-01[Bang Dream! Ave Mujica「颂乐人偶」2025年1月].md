@@ -2273,3 +2273,237 @@ c团live
 
 考虑到pv2最后一个人偶特写 应该和秘密有关系吧
 
+
+*****
+
+####  skives10  
+##### 246#       发表于 2024-12-1 14:36
+
+和初华说的上次见面是一年前，知道祥子组乐队确实也对上了
+
+*****
+
+####  仓鼠胖太  
+##### 247#       发表于 2024-12-1 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814295&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-1 14:28</a>
+看live的如果真是美帝
+那第二集睦爆有可能是爽姐又去pua找祥子当导火索
+有些人最爱的戏份来了 ...</blockquote>
+建议长崎女士不要再去戳mujika火药桶了，感觉她们的气压离大爆特爆只有一线之隔
+
+*****
+
+####  PDQ4  
+##### 248#       发表于 2024-12-1 14:37
+
+剧透属实的话，怎么感觉llx味更重了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+独角兽真的好爱大河内
+
+*****
+
+####  akiomn  
+##### 249#       发表于 2024-12-1 14:38
+
+官方认证海玲是鸡团副手了
+
+C174A261-388F-4B14-8556-91B94A3F8461.jpeg
+(47.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 14:37 上传
+
+<img src="https://img.saraba1st.com/forum/202412/01/143758v2ga9angigjgagk1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 250#       发表于 2024-12-1 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814350&amp;ptid=2208921" target="_blank">仓鼠胖太 发表于 2024-12-1 14:36</a>
+ 建议长崎女士不要再去戳mujika火药桶了，感觉她们的气压离大爆特爆只有一线之隔 ...</blockquote>
+漏油这句话应该去和制作组说，让她们他们不要再玩爽女士了
+虽然我看狗剧场版和中之人都玩得很欢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  帆前  
+##### 251#       发表于 2024-12-1 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814279&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-1 14:27</a>
+
+有点蠢，我是说你的幻想</blockquote>
+至少小睦对自己的言辞有了心结这点想到了，你不妨也发点不蠢的话呀
+
+*****
+
+####  russianbear  
+##### 252#       发表于 2024-12-1 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814287&amp;ptid=2208921" target="_blank">puzi 发表于 2024-12-1 14:27</a>
+
+会有盗摄吗，已经等不了了
+
+—— 来自 鹅球 v3.3.92</blockquote>
+坡县盗摄是真要挨鞭子的
+
+
+*****
+
+####  skives10  
+##### 253#       发表于 2024-12-1 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814363&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-1 14:38</a>
+漏油这句话应该去和制作组说，让她们他们不要再玩爽女士了
+虽然我看狗剧场版和中之人都玩得很欢 ...</blockquote>
+soyo桑在13集已经很像个正常人了 大概率不会再发狂了
+
+*****
+
+####  本间日阳  
+##### 254#       发表于 2024-12-1 14:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">同样的桥段没必要写两次，真需要有人踩雷也会换一个人来踩。
+
+*****
+
+####  棒读  
+##### 255#       发表于 2024-12-1 14:41
+
+<img src="https://img.saraba1st.com/forum/202412/01/144053ya4jivtttyjyskjs.jpg" referrerpolicy="no-referrer">
+
+<strong>6dcc5f357a431cfaebd29d7741aa44c0250686784.jpg</strong> (430.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 14:40 上传
+
+<img src="https://img.saraba1st.com/forum/202412/01/144052i9lbq7r62ma0r79q.jpg" referrerpolicy="no-referrer">
+
+<strong>[ANi] BanG Dream! It's MyGO!!!!! - 10 [1080P][Baha][WEB-DL][AAC AVC][CHT].m.jpg</strong> (160.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 14:40 上传
+
+终 将 成 为 你
+
+*****
+
+####  akiomn  
+##### 256#       发表于 2024-12-1 14:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有素睦得看制作组态度，起码从独角兽身上我不觉得她喜欢素睦，她更推睦祥
+而且制作组我看访谈也没觉得制作组推过素睦
+
+*****
+
+####  skives10  
+##### 257#       发表于 2024-12-1 14:42
+
+我服了
+
+<img src="https://img.saraba1st.com/forum/202412/01/144209jwilxmwwwmiw0sex.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3923.jpeg</strong> (125.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 14:42 上传
+
+*****
+
+####  Aendst  
+##### 258#       发表于 2024-12-1 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814381&amp;ptid=2208921" target="_blank">棒读 发表于 2024-12-1 14:41</a>
+
+终 将 成 为 你</blockquote>
+有一说一，睦的脸真好看<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  八佾舞于潭  
+##### 259#       发表于 2024-12-1 14:42
+
+<blockquote>reekilynn 发表于 2024-12-1 13:56
+只是丢啤酒瓶（有没有碎我不知道）而不是直接用啤酒瓶爆头（麻子写过）或者动用性暴力，我觉得已经很温和了 ...</blockquote>
+动用性暴力有ef
+
+*****
+
+####  哈曼的YY  
+##### 260#       发表于 2024-12-1 14:42
+
+新的狂人 不愧是一个学校教出来的
+
+<img src="https://img.saraba1st.com/forum/202412/01/144225xfiiq15xit1t5bst.png" referrerpolicy="no-referrer">
+
+<strong>92TD5LKQACQ)70E7)ZW{A]P.png</strong> (104.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 14:42 上传
+
+<img src="https://img.saraba1st.com/forum/202412/01/144225yjekidqsr1sh2a2s.png" referrerpolicy="no-referrer">
+
+<strong>@]5(0VK]HRL4PQ{~6IOT})J.png</strong> (93.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 14:42 上传
+
+<img src="https://img.saraba1st.com/forum/202412/01/144225ouxr5brtrmrknrin.png" referrerpolicy="no-referrer">
+
+<strong>WC[YF3K5QR022T63{2_Y}5N.png</strong> (157.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 14:42 上传
+
+*****
+
+####  光MIKAN  
+##### 261#       发表于 2024-12-1 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814387&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-1 14:42</a>
+我服了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">哈哈哈哈
+
+*****
+
+####  Aendst  
+##### 262#       发表于 2024-12-1 14:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别对比了，越是对比就越能发现制作组真的在刻意让爽世看起来很“难堪”
+
+虽然他们公开访谈已经明说这个了
+
+*****
+
+####  空气先生  
+##### 263#       发表于 2024-12-1 14:44
+
+素睦啊啊啊啊啊啊啊啊啊啊
+
+*****
+
+####  棒读  
+##### 264#       发表于 2024-12-1 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814391&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2024-12-1 14:42</a>
+
+新的狂人 不愧是一个学校教出来的</blockquote>
+你们不要再破坏月之森的世界观了
+
+*****
+
+####  仓鼠胖太  
+##### 265#       发表于 2024-12-1 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814374&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-1 14:40</a>
+soyo桑在13集已经很像个正常人了 大概率不会再发狂了</blockquote>
+这应该不会了，mygo几个人用eva梗说在上一季基本已经补完了，就看她们是会误打误撞成为压倒mujika爆的最后一根稻草，还是会成为爆完以后的解铃人
+我倾向于后者，就像上一季初华触动灯那样，来一个上下季呼应
+

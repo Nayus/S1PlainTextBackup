@@ -5904,3 +5904,77 @@ https://bangumi.tv/subject/ ...</blockquote>
 夢を撃ち抜く瞬間に！
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 574#       发表于 2024-12-1 19:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妈宝又是什么新假药
+
+祥妈的人设有很路人吗，还是有做比较明显的非路人人设
+
+如果人设有比较用心做，我感觉之后可能会经常在回忆里出现……<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 575#       发表于 2024-12-1 19:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喵梦就第一集这种整大活的塑造怎么当灯代餐，能整出这种大活了，也别怪祥子给谱子里使劲加鼓点，说不定其他三个看喵梦搞事还赞成加鼓点呢
+
+
+*****
+
+####  Alicest  
+##### 576#       发表于 2024-12-1 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66816400&amp;ptid=2208921" target="_blank">相坂君 发表于 2024-12-1 19:24</a>
+求求你们别再喵祥代餐了，目前这第一话的恨味这么深，到底在代什么
+
+不过独角兽可真敢写啊，就这么让喵梦大 ...</blockquote>
+在现场先看正片再看pv的话就不会这么说了
+提了好几次脸和数字，看pv时喵梦敲鼓之后就会想起来这点，然后自然想到有隐情
+另外圆不圆回来不必担心，第一集虽然东西很多但是观感相当顺畅，独角兽明显是系构好了对每集要写什么计划清楚了的
+独角兽真的很大胆很会写，我看的时候完全沉浸进去了，以至于最后放cast表的时候都没多余的注意力看了
+<img src="https://p.sda1.dev/20/df8ee03a47c5c80c0e25a37a496aa672/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 577#       发表于 2024-12-1 19:31
+
+ 本帖最后由 skives10 于 2024-12-1 19:35 编辑 
+
+祥妈在人偶里藏了一句话：I will always be attached to you，Sakiko.
+
+*****
+
+####  椎名真希  
+##### 578#       发表于 2024-12-1 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66816400&amp;ptid=2208921" target="_blank">相坂君 发表于 2024-12-1 19:24</a>
+求求你们别再喵祥代餐了，目前这第一话的恨味这么深，到底在代什么
+
+不过独角兽可真敢写啊，就这么让喵梦大 ...</blockquote>
+第一集喵梦的戏份是除了祥子以外最多的，mujica接受采访的时候记者走了，她想把面具摘了，祥子说在回到更衣室之前都不要摘，她问祥子这个面具要戴到什么时候，要一直戴下去吗，祥子说我都说了把你余下的人生交给我（给了初华一个短暂惊讶镜头，太变态了）。
+喵梦上台前用心化妆还被队友（忘了是谁）说明明要被面具遮住。
+感觉喵梦是对自己的脸有特别的认同需求，毕竟祥子都说了脸和数字，所以摘面具这个行为不是一时兴起而是蓄谋已久，她先摘了自己的，然后摘了睦的（睦捂脸），然后摘了海玲的，海玲好像没有抵抗行为，后面祥子不得不自己摘掉。
+最后祥子看向初华，应该是觉得露脸对初华影响太大希望她不要暴露，但是初华没有犹豫就摘了，配合前面台场海边初祥对话，超级巨大箭头。
+
+*****
+
+####  PDQ4  
+##### 579#       发表于 2024-12-1 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66816440&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-1 19:27</a>
+
+妈宝又是什么新假药
+
+祥妈的人设有很路人吗，还是有做比较明显的非路人人设
+
+如果人设有比较用心做，我感觉之 ...</blockquote>
+单纯直觉
+
+而且独角兽那个样，祥子妈没了她不给祥子整成妈宝？看不起她好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

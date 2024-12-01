@@ -508,3 +508,16 @@ g不大写无言了
 
 我猜到完结会有500页
 
+
+*****
+
+####  Doloris  
+##### 54#       发表于 2024-12-1 08:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66811309&amp;ptid=2208921" target="_blank">三角初华 发表于 2024-12-1 01:26</a>
+
+我会保护好小祥的
+
+请大家放心</blockquote>
+真的吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

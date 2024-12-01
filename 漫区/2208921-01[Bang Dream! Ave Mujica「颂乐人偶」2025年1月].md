@@ -3705,3 +3705,64 @@ repo那个表述方法明显是祥爹不想拖累祥子主动切割，但是祥�
 
 草，如果大喵老师是九州人的话，感觉初喵还会有一腿，重力连锁了要
 
+
+*****
+
+####  御幸一也  
+##### 366#       发表于 2024-12-1 15:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">但是初華那個島在哪不是實錘吧（
+
+
+*****
+
+####  Aendst  
+##### 367#       发表于 2024-12-1 15:40
+
+初华也有可能是东京附近的伊豆小笠原群岛出生
+
+九州岛也有可能
+
+*****
+
+####  Libartas  
+##### 368#       发表于 2024-12-1 15:41
+
+ 本帖最后由 Libartas 于 2024-12-1 15:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814764&amp;ptid=2208921" target="_blank">御幸一也 发表于 2024-12-1 15:38</a>
+但是初華那個島在哪不是實錘吧（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">一种猜测而已，你要说初祥岛是伊豆小笠原之类的也不是不行，主要是我听到大喵老师那个方言有点耳熟无端联想（
+
+*****
+
+####  akiomn  
+##### 369#       发表于 2024-12-1 15:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在看鸡团同人，喵梦被祥子上bpm狠狠迫害是不冤的，第一集按照剧透，擅自揭面把睦祥海三个都整出黑脸，私底下都不好说干什么了
+已知队内一个金毛大狗狗，睦祥海三个不会没事开玩笑，调节气氛整活的还真只能是喵梦了
+
+*****
+
+####  菲特妹  
+##### 370#       发表于 2024-12-1 15:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">目前就海玲还没爆点吗
+
+*****
+
+####  桜庭千景  
+##### 371#       发表于 2024-12-1 15:45
+
+<blockquote>与天争锋_LZ 发表于 2024-12-1 15:26
+仰天大哭没绷住
+
+还有这站位站的，祥子能比初华低两头</blockquote>
+这里明显是背对舞台的非平行视角，所以才有高低差，不然祥子比睦是高一点点的（155＞153）
+
+*****
+
+####  星空冻结  
+##### 372#       发表于 2024-12-1 15:45
+
+海玲就一句你也不信任我吗？感觉也不是没有大的可能
+

@@ -4816,3 +4816,87 @@ LIVE結束後，祥子和祥父聯絡，也只得到了「已經無法和祥子�
 估计还有个睦视角
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">沟槽的有没有睦祥同居啊，很急很急
 
+
+*****
+
+####  星天观测  
+##### 473#       发表于 2024-12-1 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66815396&amp;ptid=2208921" target="_blank">御幸一也 发表于 2024-12-1 17:13</a>
+
+這個日本人劇透很詳細，所以翻譯一下
+
+@kaeru_0913</blockquote>
+记得反白<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 474#       发表于 2024-12-1 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66815416&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-1 17:15</a>
+
+估计还有个睦视角
+
+沟槽的有没有睦祥同居啊，很急很急</blockquote>
+目前看没有，各路repo最后都是被老爹赶出家后拿着行李箱去武道馆
+
+之后住哪要看第二集了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过都只有avemujica了，住队友家里很合适吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  十块钱论坛  
+##### 475#       发表于 2024-12-1 17:20
+
+ 本帖最后由 十块钱论坛 于 2024-12-1 17:23 编辑 
+
+这pv这剧透，我能假药一下吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+摘面具这事是喵梦在事务所的授意下伙同初华进行的，也就是说初华告完白一段时间以后转头就背刺了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 476#       发表于 2024-12-1 17:21
+
+ep2肯定有摘面具引起的问题的，因为不是最合适的时机点，企划管理上就相当于出了问题
+
+而且睦看起来受这个摘面具影响很大
+
+武道馆倒是好说，有需要的话还有有明幕张ssa蛋巡可以上
+
+*****
+
+####  御幸一也  
+##### 477#       发表于 2024-12-1 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66815424&amp;ptid=2208921" target="_blank">星天观测 发表于 2024-12-1 17:16</a>
+
+记得反白</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">我還以為這裡劇透解禁的……(x
+
+總感覺雞推想不看劇透，這幾天只能退網<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仓鼠胖太  
+##### 478#       发表于 2024-12-1 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66815373&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2024-12-1 17:10</a>
+打不起来的，🐔团剩下四个多少都有后路，只有🐘是团炸了就真完蛋，感觉只能骂两句然后相忍为国和光同尘了 ...</blockquote>
+开玩笑的了哈哈，不过确实很好奇下场后会怎么展开，第二集会是睦先起爆吗
+
+*****
+
+####  星天观测  
+##### 479#       发表于 2024-12-1 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66815467&amp;ptid=2208921" target="_blank">御幸一也 发表于 2024-12-1 17:22</a>
+
+我還以為這裡劇透解禁的……(x
+
+總感覺雞推想不看劇透，這幾天只能退網</blockquote>
+其实是解禁的，但是为了避免无谓的争端给个反白吧，看不看自己选，也只能怪s1没有折叠功能了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

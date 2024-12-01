@@ -17232,3 +17232,28 @@ kanade吹得很好
 
 同意
 
+
+*****
+
+####  holoan  
+##### 10297#         楼主| 发表于 2024-12-1 17:16
+
+还真的忘年会！？
+
+你有准备什么内容吗
+
+*****
+
+####  holoan  
+##### 10298#         楼主| 发表于 2024-12-1 17:20
+
+<img src="https://img.saraba1st.com/forum/202412/01/172037oee3v11xq8vf1sfw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (18.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 17:20 上传
+
+还在喝这种小孩子的饮料
+

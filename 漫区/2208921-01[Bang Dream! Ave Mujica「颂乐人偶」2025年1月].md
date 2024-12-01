@@ -1291,3 +1291,131 @@ STF表更新
 
 没有母鸡卡看我要死了
 
+
+*****
+
+####  純田まな  
+##### 145#       发表于 2024-12-1 13:26
+
+其实我早就是mygo人了
+
+<img src="https://p.sda1.dev/20/def91041fa99dd825e23d0e9e0b59056/Snipaste_2024-12-01_13-24-06.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tiro_finale  
+##### 146#       发表于 2024-12-1 13:27
+
+越看越害怕，做成这种风格真的能圆上吗
+
+*****
+
+####  Aendst  
+##### 147#       发表于 2024-12-1 13:28
+
+[https://x.com/bangdream_en](https://x.com/bangdream_en)
+[https://x.com/bangdream_la](https://x.com/bangdream_la)
+
+开设英文官推和拉丁语官推
+
+*****
+
+####  奥秘鞋  
+##### 148#       发表于 2024-12-1 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66813785&amp;ptid=2208921" target="_blank">tiro_finale 发表于 2024-12-1 13:27</a>
+越看越害怕，做成这种风格真的能圆上吗</blockquote>
+破坏邦多利的世界观<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  水莲寺流歌  
+##### 149#       发表于 2024-12-1 13:29
+
+家庭伦理，商业大战，前任纠缠，八点档要素有点多
+
+*****
+
+####  星天观测  
+##### 150#       发表于 2024-12-1 13:29
+
+现地哥发repo了，但是感觉要捋一下
+
+*****
+
+####  PDQ4  
+##### 151#       发表于 2024-12-1 13:30
+
+睦祥同居，真的假的，这是我能在正片看的吗<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ytttsuuuba  
+##### 152#       发表于 2024-12-1 13:30
+
+祥子要和睦同居了？看repo说是
+
+*****
+
+####  PDQ4  
+##### 153#       发表于 2024-12-1 13:31
+
+八点档意料之中吧，看目前剧透不如群友脑的最狗血八点档
+还好还好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星空冻结  
+##### 154#       发表于 2024-12-1 13:31
+
+睦祥赢了？
+
+*****
+
+####  绫奈由仁子  
+##### 155#       发表于 2024-12-1 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66812796&amp;ptid=2208921" target="_blank">雨井绫 发表于 2024-12-1 11:35</a>
+
+真想发剧透最好单开一个楼，反白意义不大。回复引用/手机黑夜模式都会把反白内容显示出来，而且也没法保证 ...</blockquote>
+第一集播出后，这个id倒是可以开剧透楼了，原本悬着的心放下了<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  金钱与民主  
+##### 156#       发表于 2024-12-1 13:32
+
+看了眼所谓的剧透，感觉有些是串子编出来的。
+
+*****
+
+####  祐天寺にゃむ  
+##### 157#       发表于 2024-12-1 13:33
+
+<img src="https://img.saraba1st.com/forum/202412/01/133256kkllll9a7flebply.jpg" referrerpolicy="no-referrer">
+
+<strong>niamu.jpg</strong> (482.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 13:32 上传
+
+*****
+
+####  雨井绫  
+##### 158#       发表于 2024-12-1 13:33
+
+ 本帖最后由 雨井绫 于 2024-12-1 13:35 编辑 
+
+详细的整集剧透都有了，也没必要看那些零碎的不知道哪里来的只言片语。
+
+*****
+
+####  椎名mahuyo  
+##### 159#       发表于 2024-12-1 13:34
+
+看了下剧透，一开头就这么爆么
+
+—— 来自 realme RMX3708, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

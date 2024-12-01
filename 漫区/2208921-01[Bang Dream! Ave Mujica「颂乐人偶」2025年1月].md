@@ -642,3 +642,69 @@ b站买的狗13集里歌词字幕不会也跟着变成颂乐人偶了吧
 
 唔，第一集会有mana的戏份吗
 
+
+*****
+
+####  Sherrycat  
+##### 70#       发表于 2024-12-1 11:18
+
+紫薯补丁
+
+Screenshot of 动态首页-哔哩哔哩.jpg
+(56.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 11:17 上传
+
+<img src="https://img.saraba1st.com/forum/202412/01/111758qycsi7oyecxykjew.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  帕林马哲理  
+##### 71#       发表于 2024-12-1 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66812680&amp;ptid=2208921" target="_blank">Sherrycat 发表于 2024-12-1 04:18</a>
+紫薯补丁</blockquote>
+运营staff有能<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">。期待更加deep dark一点的开头。
+
+*****
+
+####  夜火雷纹  
+##### 72#       发表于 2024-12-1 11:21
+
+要断网了吗
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  星天观测  
+##### 73#       发表于 2024-12-1 11:23
+
+我会把群里现地哥的repo发过来，但是s1好像不能折叠？
+
+*****
+
+####  SakuraのOrigami  
+##### 74#       发表于 2024-12-1 11:24
+
+怎么还建了个剧透楼啊（）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御景  
+##### 75#       发表于 2024-12-1 11:24
+
+专门开剧透楼，看着这架势，之前传肯定有盗摄流出，感觉八九不离十了
+
+*****
+
+####  dqtql  
+##### 76#       发表于 2024-12-1 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66812712&amp;ptid=2208921" target="_blank">星天观测 发表于 2024-12-1 11:23</a>
+我会把群里现地哥的repo发过来，但是s1好像不能折叠？</blockquote>
+可以设置字体反白
+

@@ -8233,3 +8233,11 @@ avemujica吧群大佬翻译的</blockquote>
 
 如果说日本豪门就是有这个传统那没办法<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  贰臣  
+##### 803#       发表于 2024-12-2 01:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我感觉这么处理就是不想给家庭问题太多镜头，奈何场外的人实在太爱看家庭伦理剧了，也不看看你邦的祖宗之法一向都是家庭问题背景板最多导火索，重点都是聚焦于少女内心成长上的
+

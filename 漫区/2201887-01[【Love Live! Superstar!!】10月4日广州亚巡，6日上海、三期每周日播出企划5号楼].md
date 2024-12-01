@@ -11363,3 +11363,15 @@ op地区大赛就在新国立了决赛不敢想了<img src="https://static.sarab
 
 话说，幻日是不是出了个剧场总集导剪救了一下，那你看咱们二期是不是…<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 1110#       发表于 2024-12-1 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66818210&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-12-1 23:02</a>
+话说，幻日是不是出了个剧场总集导剪救了一下，那你看咱们二期是不是…</blockquote>
+把二期和三期混着剪可能会好一点，但是说实在的某些人的故事逻辑救不回来的。。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

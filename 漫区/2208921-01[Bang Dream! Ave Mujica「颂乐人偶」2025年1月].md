@@ -7575,3 +7575,72 @@ mana蒙在鼓里好像有点不符合现实
 这种娱乐圈生态剧情要是写好了 某大热漫画面子真的挂不住了</blockquote>
 这个能不能写好是不是要查询独角兽的饭圈程度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蜇灵  
+##### 739#       发表于 2024-12-1 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66818207&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-1 23:01</a>
+这种娱乐圈生态剧情要是写好了 某大热漫画面子真的挂不住了</blockquote>
+支持独角兽薄纱cbm
+
+*****
+
+####  ads147147  
+##### 740#       发表于 2024-12-1 23:08
+
+爷爷：你低头就还可以当龙王哦。
+
+有一说一，祥子有退路啊，live不也是向娘家低头了不然哪来的房地产赞助，等考据党一看名字不就猜是公主来创业玩玩，拉了四个谁蹭谁还不好说呢。。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  蜇灵  
+##### 741#       发表于 2024-12-1 23:09
+
+该上演粉丝大战了，最好开个推特tag让带伙也有点参与感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 742#       发表于 2024-12-1 23:11
+
+网路上会出现对家黑初华的帖子，顺便阴阳你祥是带资进组的公主吗
+这样不符合邦多利的世界观吧
+
+
+*****
+
+####  links8018  
+##### 743#       发表于 2024-12-1 23:12
+
+戴不戴面具这种涉及到乐队运营方向的至少得签个保密协议吧，现在这样说摘就摘感觉有点儿戏了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 744#       发表于 2024-12-1 23:13
+
+现在要快进到mujica粉丝和sumimi粉丝的战争了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+别吧这种剧情
+
+*****
+
+####  好想看Mujica啊  
+##### 745#       发表于 2024-12-1 23:15
+
+粉丝：初华抱上小公主大腿，抛弃mana了
+
+sumimi没有解散，只是初华没来
+
+*****
+
+####  PDQ4  
+##### 746#       发表于 2024-12-1 23:15
+
+场外祥子争议不断被黑一年，场内也要共振吗，这种事情不要啊<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+

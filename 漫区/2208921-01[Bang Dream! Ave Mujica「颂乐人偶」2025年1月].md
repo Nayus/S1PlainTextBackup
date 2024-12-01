@@ -8100,3 +8100,49 @@ avemujica吧群大佬翻译的</blockquote>
 
 还是看祥子愿不愿意
 
+
+*****
+
+####  御幸一也  
+##### 793#       发表于 2024-12-2 01:04
+
+祥子的祖父說要收祥子當養女這句話很耐人尋味，所以查了一下日本的財產繼承相關。
+
+日本民法典
+[https://www.moj.go.jp/content/001184623.pdf](https://www.moj.go.jp/content/001184623.pdf)
+
+<img src="https://img.saraba1st.com/forum/202412/02/010252hdsfdnfgfgb2kh8p.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (245.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-2 01:02 上传
+
+第651 繼承的第一順位是，配偶、親生父母、養父母、親生子女、養子女。
+
+第652 如果留下遺產的人，他的子女比他先死了或者同時死亡，則留下遺產的人的孫輩，能享受到其父母存活時可享受到的遺產部分。（代位繼承）
+
+結論上來說，祥媽去世了，祥子也是有繼承權的，祥子可以繼承到祥媽該得到的遺產部分。
+
+所以如果不是特別為了給祥子分遺產，祥子的祖父到底為什麼要特地去把祥子收為養女<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  akiomn  
+##### 794#       发表于 2024-12-2 01:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看剧透，真不能怪立希有劣等感了，换谁来都有，祥爹也干了！
+光速创c团，之后创鸡团光速出道最快武道馆，谁来面对这样的祥子都会有劣等感
+
+*****
+
+####  Aendst  
+##### 795#       发表于 2024-12-2 01:07
+
+外公对祥子那段的话听起来像是
+
+父のことを忘れて、私の娘になりなさい
+
+还挺……奇怪的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

@@ -1317,3 +1317,16 @@ poe有自己的服务器路线，加速时候不需要阿区。
 
 —— 来自 Xiaomi 24069RA21C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  突发性哮喘病患  
+##### 144#         楼主| 发表于 2024-12-2 03:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66819107&amp;ptid=2208805" target="_blank">lovereign 发表于 2024-12-2 01:29</a>
+
+借楼问下
+
+以前玩过几个赛季的POE国际服，当时没绑任何平台。前两天脑抽把这个号绑到了STEAM阿区小号上，这 ...</blockquote>
+你之前充值过吗，如果你之前POE账户充值过那不可以
+

@@ -7312,3 +7312,107 @@ pv里有个那个场景睦瞳孔的画面，确实感觉睦是当场被退团这
 
 pv的“不要讨厌我”没准就是被祥子知道了
 
+
+*****
+
+####  仓鼠胖太  
+##### 715#       发表于 2024-12-1 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66817580&amp;ptid=2208921" target="_blank">椎名真希 发表于 2024-12-1 21:54</a>
+和相似作品比较的话，完全不如同样丧妻寄养独女的冈崎朋也，朋也不会往孩子头上扔东西，甚至都不如朋也进 ...</blockquote>
+类比的话应该是朋也的老爹，和前途光明的初三体育特长生儿子打架，伤到朋也肩膀断送了他的棒球生涯…
+
+*****
+
+####  帆前  
+##### 716#       发表于 2024-12-1 22:38
+
+某个生物自以为是的公主病程度有点好笑过头了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">透着种味儿
+
+只是想告诉你，你也不配阻止我以后继续在专楼发正常内容<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">你那点阴暗不敢见光的小技俩，连败坏我发正常内容的心情都做不到，没错没错，你就是这么无能呢
+<img src="https://p.sda1.dev/20/0ceaca950a699963e14a20e7bda3bdaa/Screenshot_20241201_223030.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/8eb221275031eed30d2962bf5f614be7/Screenshot_20241201_223111.jpg" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 仓鼠胖太| + 1|没办法，总有人喜欢随地大小d|
+| Aendst| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  星天观测  
+##### 717#       发表于 2024-12-1 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66817979&amp;ptid=2208921" target="_blank">NODY 发表于 2024-12-1 22:34</a>
+
+看到不止一个地方猜初华不像海祥睦一样震惊是因为和喵梦约好的说法了，猜测是说想要尽快露脸明确身份把祥子 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">签了合同的乐队真的有要靠露脸才能所谓帮在一个乐队的必要嗯么
+
+*****
+
+####  Aendst  
+##### 718#       发表于 2024-12-1 22:40
+
+ 本帖最后由 Aendst 于 2024-12-1 22:42 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">已阅，别挡着漏油正常讨论好吗
+
+阴暗见不得光的小伎俩指的是你追着我扣了两鹅吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哦，知道了
+
+我对mygo没兴趣的你想多了
+
+*****
+
+####  帆前  
+##### 719#       发表于 2024-12-1 22:41
+
+“Adenst大导师简直就是mygo学术界的泰山北斗！不可仰视的权威”
+
+你就继续这么幻想下去吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仓鼠胖太  
+##### 720#       发表于 2024-12-1 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66817979&amp;ptid=2208921" target="_blank">NODY 发表于 2024-12-1 22:34</a>
+看到不止一个地方猜初华不像海祥睦一样震惊是因为和喵梦约好的说法了，猜测是说想要尽快露脸明确身份把祥子 ...</blockquote>
+还有高手.jpg
+
+
+*****
+
+####  PDQ4  
+##### 721#       发表于 2024-12-1 22:43
+
+如果是约好的那喵梦不是段位又要上升了，怎么精准挑出初华的，告诉海睦两个人肯定都会传到祥子那里
+
+我的话可能倾向于顺水推舟，波澜不惊则是当了一年偶像锻炼出来的
+
+具体等原片吧，光看repo和音频缺失了画面表现很容易跑歪
+
+*****
+
+####  skives10  
+##### 722#       发表于 2024-12-1 22:43
+
+下一集进入喵梦线的可能性确实也不小
+什么时候才能敞开心扉去ktv呢
+感觉这13集都不一定能见到这种场景了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  帆前  
+##### 723#       发表于 2024-12-1 22:43
+
+也不知道是谁先看了别人毫无恶意的正常分享就开始指导了，完了不敢认指导癖还暗搓搓扣鹅表示自己比别人高贵<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">知道你自以为高人一等了，多新鲜哪
+

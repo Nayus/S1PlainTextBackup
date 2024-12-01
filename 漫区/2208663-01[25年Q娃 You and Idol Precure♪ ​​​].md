@@ -1039,3 +1039,14 @@ You暗示Idol要拆开，所以应该是You and I do l***
 那更简单了。
 可以直接联动元祖东映魔法少女了
 
+
+*****
+
+####  月夜凝雪  
+##### 106#       发表于 2024-12-1 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66800264&amp;ptid=2208663" target="_blank">pokemon最爱 发表于 2024-11-29 12:44</a>
+
+偶像番CV和歌手同一人也是常见操作啊。战姬绝唱真的临时起意的是配音时根据剧情现唱歌而且穿插着对话台词 ...</blockquote>
+战姬绝唱那种剧中是边唱边打的预录就会没那种味道，就算对照动画时间轴也很难和对话相互表现那种喘不过气的的感觉
+

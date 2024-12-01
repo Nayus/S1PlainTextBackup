@@ -5609,3 +5609,11 @@ mygo动画里 喵梦那句交付人生是唯一演给观众看的</blockquote>
 确认初华看过春日影LIVE了么，那第10话装做不认识灯真是重力展开</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">就live见了一次的人一年多没见没什么印象不是很正常么，而且后面也上网站看了才确认
 
+
+*****
+
+####  阿萨德飞过去  
+##### 549#       发表于 2024-12-1 18:43
+
+这个怒颜太棒了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">，已经完全无法忍受这个12月了
+

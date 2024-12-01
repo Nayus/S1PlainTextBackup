@@ -6562,3 +6562,53 @@ soyo是遇不到家庭圆满祥了，不过现实贝斯手还是遇到了
 至少从PV看，制作 ...</blockquote>
 pv2里有个初华歪头抿嘴，那个就是killkiss里的
 
+
+*****
+
+####  贰臣  
+##### 636#       发表于 2024-12-1 20:49
+
+听说祥子妈妈的cv是大原沙耶香？真的吗
+
+*****
+
+####  Aendst  
+##### 637#       发表于 2024-12-1 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66817087&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2024-12-1 20:44</a>
+
+主要是感觉祥子爹这个设定过于的现实化了，在这个以少女乐队故事为主轴的动画里这饺子根本没办法很合情合 ...</blockquote>
+确实如此……而且既然已经涉及角色背景有人死亡的状况，包饺子这个行为本身就会很难处理
+
+不如说从首话来看，整个mujica的基调，祥子本身的设定都会相当现实
+
+后面要怎么处理还挺有挑战性的
+
+
+*****
+
+####  收纳袋  
+##### 638#       发表于 2024-12-1 20:53
+
+怎么还有一个月啊<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蜇灵  
+##### 639#       发表于 2024-12-1 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66816664&amp;ptid=2208921" target="_blank">Acatv 发表于 2024-12-1 19:51</a>
+话说那句"剩下的人生交给我"，大祥老师不会真的只是跟主播口头说说的吧
+
+但凡有个合同约束下，主播这种重大 ...</blockquote>
+只能肉偿了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 640#       发表于 2024-12-1 20:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我去，柿本那个说听哭了应该不是假的，音频出来了，祥子哭的那段高尾配的确实好
+就是又有牢希戏份就很难评了，牢希的暴躁声……
+独角兽和柿本真是爱牢希啊
+

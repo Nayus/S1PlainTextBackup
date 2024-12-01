@@ -57,3 +57,11 @@
 
 —— 来自 Xiaomi 24053PY09C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  Yidam  
+##### 46807#       发表于 2024-12-1 20:54
+
+wo日，我还提前阵容，到跟前给忘了，现在还有柱子吗
+

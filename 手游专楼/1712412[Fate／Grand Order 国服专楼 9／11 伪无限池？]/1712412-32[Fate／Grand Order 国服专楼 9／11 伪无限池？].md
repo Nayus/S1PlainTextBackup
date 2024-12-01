@@ -24,3 +24,26 @@
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  xy1041  
+##### 46804#       发表于 2024-12-1 18:05
+
+捏妈，还得刷这个垃圾柱子，我要刷胆石啊，不过这个柱子3宝的仇信长就能不换人上班，能贪一波羁绊，还有nff也是5点追加的，柱子战准备暗狐妖兰的可以换一下
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  xy1041  
+##### 46805#       发表于 2024-12-1 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66782331&amp;ptid=1712412" target="_blank">doublehit 发表于 2024-11-26 23:33</a>
+几年前的号找不到了，买了个初始号回来坑玩玩，抽卡有啥简单的建议吗
+
+—— 来自 鹅球 v3.1.88.3-alpha ...</blockquote>
+拐齐了等明年抽5宝学姐神享受稳定红暴乐趣
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

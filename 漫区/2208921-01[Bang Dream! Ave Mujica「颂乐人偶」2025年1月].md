@@ -5308,3 +5308,133 @@ ep2肯定有摘面具引起的问题的，因为不是最合适的时机点，�
 这没法瞒着家人吧，不是说未成年出道要家属同意</blockquote>
 哦这个确实，是需要监护人同意的
 
+
+*****
+
+####  akiomn  
+##### 520#       发表于 2024-12-1 18:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道把爆了的睦捞回来的是祥子还是海玲还是初华了，首先排除搞事的喵梦，最理解祥子的一集（byd搞了那么大事没有当场踢掉还能正常谈话真是脾气太好了）
+
+
+*****
+
+####  hisousihou  
+##### 521#       发表于 2024-12-1 18:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">居然开始剧透了。哎马德不要提前透支乐趣啊
+
+*****
+
+####  Суслов  
+##### 522#       发表于 2024-12-1 18:06
+
+大猫有点欠爱了，显得小猫擅自启动春日影是多么善解人意<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  PDQ4  
+##### 523#       发表于 2024-12-1 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66815773&amp;ptid=2208921" target="_blank">cxj649 发表于 2024-12-1 18:03</a>
+
+这个有点远了，近点还有战姬绝唱</blockquote>
+战姬绝唱那是收养吗<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 524#       发表于 2024-12-1 18:06
+
+按照第一集的强度狗团确实不适合有太多剧情交集，真的是完完全全两个世界的两群人了。
+
+*****
+
+####  Aendst  
+##### 525#       发表于 2024-12-1 18:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还是很难不觉得一个乐队番搞这样的设定有点超前
+
+*****
+
+####  skives10  
+##### 526#       发表于 2024-12-1 18:08
+
+喵祥感觉真要前途无量了
+闹成这样 绝对不会缺少互动
+mygo动画里 喵梦那句交付人生是唯一演给观众看的
+然后母鸡卡第一集 祥又对喵梦说了 我不是说过吗 把你的人生交给我
+
+*****
+
+####  PDQ4  
+##### 527#       发表于 2024-12-1 18:08
+
+踢是不可能踢的，人还是祥子自己抓过来的，这下祥子全责了，不得狠狠给睦善后<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  枫林不见  
+##### 528#       发表于 2024-12-1 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66815814&amp;ptid=2208921" target="_blank">Суслов 发表于 2024-12-1 18:06</a>
+
+大猫有点欠爱了，显得小猫擅自启动春日影是多么善解人意
+
+—— 来自 鹅球 v3.1.88.3 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">都不是什么豪猫
+
+*****
+
+####  akiomn  
+##### 529#       发表于 2024-12-1 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66815816&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2024-12-1 18:06</a>
+按照第一集的强度狗团确实不适合有太多剧情交集，真的是完完全全两个世界的两群人了。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">嗨呀其实要说也就队内5个高压锅，心理问题大一些而已，多大点事，狗团想要参与总有说法的
+总比传奇同人故乡要好，那文里鸡狗团你很难想是一个世界的两个团
+
+*****
+
+####  Aendst  
+##### 530#       发表于 2024-12-1 18:09
+
+喵祥肯定会有大量对手戏的吧，按照这样的发展来说
+
+冉冉升起的美帝之星
+
+*****
+
+####  枫林不见  
+##### 531#       发表于 2024-12-1 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66815821&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-1 18:08</a>
+
+喵祥感觉真要前途无量了
+
+闹成这样 绝对不会缺少互动
+
+mygo动画里 喵梦那句交付人生是唯一演给观众看的</blockquote>
+喵祥偏商务  初祥or睦祥偏生活 
+
+
+*****
+
+####  PDQ4  
+##### 532#       发表于 2024-12-1 18:13
+
+真的只有心理问题那就好解决了，我感觉这架势不像是只有心理问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+环境不行那就换个环境，如果脱离不了环境那就只能改变环境了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 533#       发表于 2024-12-1 18:13
+
+大喵最说得来的应该是初华吧，毕竟都是已经混社会的职业人士，而且对🐘都有明确的企图。无非大喵图钱和流量，初华图🐘肉体而已。
+

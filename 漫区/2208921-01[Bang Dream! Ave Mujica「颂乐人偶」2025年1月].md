@@ -3210,3 +3210,298 @@ killkiss大体是什么风格有repo吗</blockquote>
 pv2睦眼睛那一幕具体是哪里，有没有时间指路
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">仅看pv，感觉睦比我想象的还要狂气很多
 
+
+*****
+
+####  Aendst  
+##### 326#       发表于 2024-12-1 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814602&amp;ptid=2208921" target="_blank">星天观测 发表于 2024-12-1 15:13</a>
+
+快歌，鼓点比较清晰，挺好听的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">光这个描述来说完全没办法想象具体风格，刚刚看repo说比较接近avemujica
+
+是类似风格吗
+
+*****
+
+####  星天观测  
+##### 327#       发表于 2024-12-1 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814612&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-1 15:14</a>
+
+那个瞳孔地震吗？
+
+那有点瘆得慌了</blockquote>
+只是那一帧而已，而且不一定是真的，所以我都没发到楼里，看看就好<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蜇灵  
+##### 328#       发表于 2024-12-1 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814611&amp;ptid=2208921" target="_blank">OPCI_0125 发表于 2024-12-1 15:14</a>
+
+这个怀揣“秘密的她”指的应该不是祥
+
+某人接近祥的远景俯拍</blockquote>
+看第一张图感觉有点像睦，看起来是长发
+
+*****
+
+####  ggxx001  
+##### 329#       发表于 2024-12-1 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814611&amp;ptid=2208921" target="_blank">OPCI_0125 发表于 2024-12-1 15:14</a>
+这个怀揣“秘密的她”指的应该不是祥
+
+某人接近祥的远景俯拍</blockquote>
+这个远景俯拍倒是很多人觉得有帽子是睦 但是实在有点模糊 不好确认
+
+*****
+
+####  2287217595  
+##### 330#       发表于 2024-12-1 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814586&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-1 15:11</a>
+
+说真的漏油喜欢烂梗可以开一个烂梗楼，外面还有剧透楼，虽然有点空气
+
+外面都是烂梗，连最后的鸡楼都保不住 ...</blockquote>
+所以烂梗是怎么界定的，有没有让一般通过“非鸡腿”也能明白的说明<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+别人看个pv发句感慨也是烂梗，在这楼发言还先跟鸡油报备完吗
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 仓鼠胖太| + 1|思路广|
+
+查看全部评分
+
+*****
+
+####  仓鼠胖太  
+##### 331#       发表于 2024-12-1 15:18
+
+一个公共楼，人一没有歪楼二没有人参公鸡，想发点言都要被bb，知道自己有评论自由不知道别人也有吗，🙊不让说话算什么个事儿，未免太太平洋警察，不知道的以为是剧组独家代言人出现了
+
+*****
+
+####  星天观测  
+##### 332#       发表于 2024-12-1 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814624&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-1 15:16</a>
+
+光这个描述来说完全没办法想象具体风格，刚刚看repo说比较接近avemujica
+
+是类似风格吗 ...</blockquote>
+可能有点接近？不过这么说的原因可能是因为钢琴部分也比较突出吧
+
+
+*****
+
+####  Aendst  
+##### 333#       发表于 2024-12-1 15:20
+
+ 本帖最后由 Aendst 于 2024-12-1 15:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814611&amp;ptid=2208921" target="_blank">OPCI_0125 发表于 2024-12-1 15:14</a>
+
+这个怀揣“秘密的她”指的应该不是祥
+
+某人接近祥的远景俯拍</blockquote>
+多可能性
+
+1说话人疑似是初华，所以有可能是指祥子
+
+2有可能是初华，这一点访谈已经多次透露了，初华藏有本性和秘密
+
+接近祥子的人也有多可能性，只能看到大体发色和衣服轮廓（有帽子）
+
+1.初华
+
+2.睦
+
+3此外的未出场新角色
+
+按照帽子和疑似长发来看我个人觉得是睦的可能性更高
+
+另外这里更接近画外音，声轨应该和画面是分开剪辑的，不一定是实际上动画里的片段
+
+*****
+
+####  哈曼的YY  
+##### 334#       发表于 2024-12-1 15:20
+
+所以说也有可能是这个接近祥子，被祥子看到秘密的拨片落地的吉他手的故事吗
+
+*****
+
+####  本间日阳  
+##### 335#       发表于 2024-12-1 15:20
+
+ 本帖最后由 本间日阳 于 2024-12-1 15:23 编辑 
+
+<img src="https://img.saraba1st.com/forum/202412/01/152330x8rmw0rff04pmaat.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.31 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 15:23 上传
+
+<img src="https://img.saraba1st.com/forum/202412/01/152257hxtnamtzgjlqmru6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1002.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 15:22 上传
+
+<img src="https://img.saraba1st.com/forum/202412/01/152006lyckwu3z4g2ew2pe.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (124.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 15:20 上传
+
+丰川祥子哭过的地方：[https://maps.app.goo.gl/zWpjweX4weVd9QfV9](https://maps.app.goo.gl/zWpjweX4weVd9QfV9)
+
+*****
+
+####  ggxx001  
+##### 336#       发表于 2024-12-1 15:20
+
+个人觉得最无语的还是会有人觉得这只手是素
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+<img src="https://img.saraba1st.com/forum/202412/01/152125w11lhk1jhikk3zer.png" referrerpolicy="no-referrer">
+
+<strong>IMG_0652.PNG</strong> (789.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 15:21 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| PDQ4| + 1|有点难蚌了|
+| Aendst| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  相坂君  
+##### 337#       发表于 2024-12-1 15:21
+
+有时候这种各执一词的争议，就挺想问「为什么演奏春日影」在soyo推眼里觉得这是迫害她的烂梗还是传播她的好梗
+
+*****
+
+####  Aendst  
+##### 338#       发表于 2024-12-1 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814642&amp;ptid=2208921" target="_blank">星天观测 发表于 2024-12-1 15:19</a>
+
+可能有点接近？不过这么说的原因可能是因为钢琴部分也比较突出吧</blockquote>
+钢琴没摸我就放心了一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 339#       发表于 2024-12-1 15:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她的故事应该是指祥子，毕竟第一集观众是上帝视角，知道祥子过去发生什么事了，但剧中除了睦知道外，作为侦探位的初华是不知道的
+
+还有我觉得磕素睦还不如素祥，二刺螈睦现在真给soyo自己切割了，但三刺猿soyo和祥子关系很好（）
+
+*****
+
+####  wzm96816  
+##### 340#       发表于 2024-12-1 15:23
+
+安剧透来说，一集就摘面具，破坏了逐渐摘面具的商业价值了，喵梦沉不住气啊，估计前期矛盾之一已经出来了。
+
+就目前这个戏份安排，感觉猫应该没她事了（戏份全在剧场版），灯和立希她们第一集没去也可能是个暗示，后续戏份也少（但立希戏份太少了。
+
+mygo主要戏份是5人外加偶尔出现的睦祥(7人pv），那么ave就是5人加偶尔出现的爱音和素世。
+
+第一集祥父并大量描写，可能睦的家庭肯定也会有戏份，初华未知，另外两应该不会有家庭戏份。
+
+*****
+
+####  蜇灵  
+##### 341#       发表于 2024-12-1 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814654&amp;ptid=2208921" target="_blank">ggxx001 发表于 2024-12-1 15:20</a>
+
+个人觉得最无语的还是会有人觉得这只手是素
+
+—— 来自 S1Fun</blockquote>
+这个画面是不是和火车一起出现的那个，不会真有人卧轨了吧
+
+*****
+
+####  哈曼的YY  
+##### 342#       发表于 2024-12-1 15:23
+
+说到新角色 我前几天也在想会有新角色吗 还有空间塞？是母鸡卡五人的好友？家人？感觉睦的父母应该跑不了
+
+*****
+
+####  PDQ4  
+##### 343#       发表于 2024-12-1 15:23
+
+哦这里可以溯源回pv2，那个小房间，砸的可能性更高了，不排除那一幕就接了正式pv这个砸书包
+
+以及pv里面偶尔出现的红色滤镜有点意思，抛开最后疑似港口二人对谈那一幕（那个红光转过去像货轮信号灯）
+
+剩下的都是电视机以及面具转场，有种不真实感，先导2睦那个房间也是红色滤镜
+
+到底是单纯的阴间气氛衬托，还是幻想，亦或者红色真实呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jaewoongh_  
+##### 344#       发表于 2024-12-1 15:25
+
+明年如果还是13集构成，那还是有希望的，单从PV所展示出的内容来看，用4-5集的篇幅应该能把饺子包上
+
+*****
+
+####  哈曼的YY  
+##### 345#       发表于 2024-12-1 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814654&amp;ptid=2208921" target="_blank">ggxx001 发表于 2024-12-1 15:20</a>
+
+个人觉得最无语的还是会有人觉得这只手是素
+
+—— 来自 S1Fun</blockquote>
+这画面背景看起来像在天上
+
+*****
+
+####  Aendst  
+##### 346#       发表于 2024-12-1 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814670&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2024-12-1 15:23</a>
+
+说到新角色 我前几天也在想会有新角色吗 还有空间塞？是母鸡卡五人的好友？家人？感觉睦的父母应该跑不了 ...</blockquote>
+有可能的，之前剧场版已经出现过海铃兼容乐队的主唱了
+
+设定集有给出喵梦跟家人通话的表情，所以有可能会有家人出场
+

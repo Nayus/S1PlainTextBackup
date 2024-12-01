@@ -5617,3 +5617,40 @@ mygo动画里 喵梦那句交付人生是唯一演给观众看的</blockquote>
 
 这个怒颜太棒了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">，已经完全无法忍受这个12月了
 
+
+*****
+
+####  Acatv  
+##### 550#       发表于 2024-12-1 18:49
+
+隔壁看到的这点 确实很难绷
+<img src="https://p.sda1.dev/20/4f7206e54be6fced6711d1c673c1c1ef/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+
+*****
+
+####  蜇灵  
+##### 551#       发表于 2024-12-1 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66816123&amp;ptid=2208921" target="_blank">Acatv 发表于 2024-12-1 18:49</a>
+隔壁看到的这点 确实很难绷</blockquote>
+难绷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 552#       发表于 2024-12-1 18:55
+
+重新梳理了一下思路，repo刷了这么多
+
+基本上祥子丧母失魂落魄——被睦拉去看到蝶——组ccc——父亲出事迫于生计解散，这个时间线应该是没有问题的
+
+这么复盘ccc的定位，可以算是说镇痛剂一样的存在，特别是对于灯爽祥三个人，立希好歹在里面找到了活下去的动力，睦是纯粹陪着祥子
+
+一种虚假美好的乌托邦，在祥子率先被外力拉扯出这个幻境的时候一切就都回不去了
+
+可以说ccc五个人遇到的问题，想要的东西，恰恰是ccc给不了的，还真是讽刺的存在<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+想要好好过日子还是要脚踏实地努力，做梦是没有好结果的
+

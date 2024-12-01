@@ -1685,3 +1685,133 @@ soyo抱大腿那句话让祥子回忆起了kuso老爹的无能样子
 
 是谁干的，小睦你也有份吗？
 
+
+*****
+
+####  reekilynn  
+##### 188#       发表于 2024-12-1 13:56
+
+只是丢啤酒瓶（有没有碎我不知道）而不是直接用啤酒瓶爆头（麻子写过）或者动用性暴力，我觉得已经很温和了
+NGA那边还说已经一黑到底，就让我觉得hmmmm
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+*****
+
+####  NODY  
+##### 189#       发表于 2024-12-1 13:59
+
+懂不懂日语的repo差别很大
+
+按懂日语的说法，祥爹一直都觉得不该拖累祥子想自己出走的，丰川家也愿意继续养祥子，只是祥子放不下跟着一起住出租屋去了，后面好像也是不想连累已经上武道馆的祥子所以和祥子断了故意把祥子气走
+
+*****
+
+####  仓鼠胖太  
+##### 190#       发表于 2024-12-1 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66813497&amp;ptid=2208921" target="_blank">SakuraのOrigami 发表于 2024-12-1 13:01</a>
+【TV动画「BanG Dream! Ave Mujica」主PV-哔哩哔哩】 https://b23.tv/SABhq9b</blockquote>
+这企划，重力再一次突破天际…
+
+
+*****
+
+####  哈曼的YY  
+##### 191#       发表于 2024-12-1 14:00
+
+想到了钓鱼不戴头盔把自己气笑了
+
+*****
+
+####  雨井绫  
+##### 192#       发表于 2024-12-1 14:00
+
+ 本帖最后由 雨井绫 于 2024-12-1 14:03 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">无论他是好人还是坏人都不应该在这片里占太多空间，第一集就闹翻让他不参与剧情是一个很好的选择。最好结局也不要有剧情，给几秒钟差不多了。
+
+*****
+
+####  Aendst  
+##### 193#       发表于 2024-12-1 14:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814068&amp;ptid=2208921" target="_blank">NODY 发表于 2024-12-1 13:59</a>
+
+懂不懂日语的repo差别很大
+
+按懂日语的说法，祥爹一直都觉得不该拖累祥子想自己出走的，丰川家也愿意继续养 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真是这样的话，我奶中了
+
+*****
+
+####  kivz  
+##### 194#       发表于 2024-12-1 14:02
+
+新楼好哇<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 195#       发表于 2024-12-1 14:02
+
+剧透
+
+祥爹看到武道馆，感叹自己被女儿甩在身后了
+
+祥子劝说就是你这样子妈妈看了也会伤心的
+
+然后祥爹一个啤酒罐就飞过去了
+
+就这样把我放着别管吧
+
+然后祥子直接拎着两个箱子就下楼坐睦出租车去武道馆了
+
+睦“武道馆没问题吗”
+
+祥子“肯定没问题的吧”
+
+大丈夫で決まってしょう！
+
+*****
+
+####  akiomn  
+##### 196#       发表于 2024-12-1 14:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">睦祥要大卖特卖了
+睦祥同居不知道是不是真的，如果是真的就无敌了
+
+*****
+
+####  skives10  
+##### 197#       发表于 2024-12-1 14:04
+
+c团如果是睦鼓励祥子建的 这可能就是负罪感的源头之一吧<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无证madam  
+##### 198#       发表于 2024-12-1 14:05
+
+看剧透感觉祥爹背锅这段好像如龙7<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  红楼飞雪  
+##### 199#       发表于 2024-12-1 14:05
+
+<blockquote>NODY 发表于 2024-12-1 13:59
+懂不懂日语的repo差别很大
+
+按懂日语的说法，祥爹一直都觉得不该拖累祥子想自己出走的，丰川家也愿意继续养 ...</blockquote>
+喜欢这个情节处理
+
+这下我也奶中了
+
+*****
+
+####  哈曼的YY  
+##### 200#       发表于 2024-12-1 14:06
+
+小黄瓜是什么都知道啊 半身含金量再次提升
+

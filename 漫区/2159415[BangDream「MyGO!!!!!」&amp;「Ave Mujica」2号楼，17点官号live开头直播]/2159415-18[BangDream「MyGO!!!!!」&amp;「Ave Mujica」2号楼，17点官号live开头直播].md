@@ -16541,3 +16541,16 @@ Bang Dream! Ave Mujica「颂乐人偶」2025年1月
 
 各路姨姥 萝批  ras批 蝶批 go批 大.大方方往里进
 
+
+*****
+
+####  [皆神孝介]  
+##### 26529#       发表于 2024-12-1 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66813211&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2024-12-1 12:34</a>
+
+这楼直接转企划楼好了，go专楼必要性也不是很高，给邦批一个落脚点就行
+
+就是要辛苦一下楼主把首楼内容改一 ...</blockquote>
+不太好，楼层太高其实会劝退坛友点进来的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

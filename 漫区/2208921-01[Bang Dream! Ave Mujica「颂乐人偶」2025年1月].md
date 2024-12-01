@@ -4422,3 +4422,99 @@ mygo部分： soyo、灯和爱音三人正在立希的打工地点喝茶时，�
 
 那么独角兽含量多少<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 436#       发表于 2024-12-1 16:46
+
+应该很高，系构还是她，各话脚本也有她，都没变
+
+不出意料的话可能还是系构+4话各话脚本
+
+*****
+
+####  挺好的  
+##### 437#       发表于 2024-12-1 16:46
+
+和第一季一样吧大概
+
+*****
+
+####  jkl  
+##### 438#       发表于 2024-12-1 16:46
+
+想起那句「老邦往上蹭还来不及」了，抛开三次元不谈在邦宇宙里面还真是这回事
+
+*****
+
+####  skives10  
+##### 439#       发表于 2024-12-1 16:46
+
+感觉祥子如果体力更好一点
+她甚至有可能像星高空一样去拉人力车<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 440#       发表于 2024-12-1 16:47
+
+说起来鸡团一部分运营是海玲帮着搞，应该也是下了心血的。那海玲这段有可能是祥子让初华传话说你剩下那二十几个糊逼乐队别玩了专心跟着我们发财，然后海玲不愿意才反问对方“你是不是信不过我”这句话吧。
+
+
+*****
+
+####  Libartas  
+##### 441#       发表于 2024-12-1 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66815212&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-1 16:46</a>
+感觉祥子如果体力更好一点
+她甚至有可能像星高空一样去拉人力车</blockquote>
+真 骆驼祥子是吧
+
+*****
+
+####  Seabiscuit  
+##### 442#       发表于 2024-12-1 16:48
+
+不愧是🐘，即使被生活锤爆了也要坚持自己的理想主义信念
+
+*****
+
+####  双重清洁枪  
+##### 443#       发表于 2024-12-1 16:49
+
+看了几个剧透祥妈真的眼光差啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 444#       发表于 2024-12-1 16:50
+
+一直很期待有打工和学习怎么交电费这种场景
+没想到真有送报纸和清理房间
+制作组太懂了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yone0000  
+##### 445#       发表于 2024-12-1 16:51
+
+太苦了，祥子最后一定要幸福啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 446#       发表于 2024-12-1 16:55
+
+海铃那句话时间线未可知，也可能是涉及她以前当雇佣兵的团
+
+不过涉及祥子的可能性更高，毕竟“能相信的只有自己”，确实可能对应海铃这句
+
+但是祥子让海铃别干其他乐队了有点难评，太下头了，可能就是事事亲力亲为搞得二把手除了杂活像摆设吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+以及面具这么好摘，想起来三次说那个面具固定得很死防止掉，二次元的面具竟然没焊死
+
+虽然对不起世界观但是大喵干得好啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

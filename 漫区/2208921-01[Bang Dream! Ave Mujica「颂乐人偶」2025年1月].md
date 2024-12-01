@@ -8359,3 +8359,14 @@ avemujica吧群大佬翻译的</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.94-alpha
 
+
+*****
+
+####  玖羽  
+##### 815#       发表于 2024-12-2 07:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66819432&amp;ptid=2208921" target="_blank">novalli 发表于 2024-12-2 07:16</a>
+
+感觉应该没那么复杂，就是要表达“祥爹被逐出丰川家，但祥子还是继承人”的意思。</blockquote>
+其实很好理解，对豪门来说，女婿终究是外人（外到什么程度看具体情况），要踢随便就踢了，但是女婿的孩子（孙子孙女）是自己人，甚至在极端情况下招女婿就是为了收养那个孩子
+

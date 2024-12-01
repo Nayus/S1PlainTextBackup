@@ -601,3 +601,86 @@ Mzk已经炸了，ena急得快疯了，mfy好不容易安定下来要是拖mzk�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  cckuku  
+##### 1816#       发表于 2024-11-30 13:02
+
+<img src="https://img.saraba1st.com/forum/202411/30/130144a3z3n1g8gj88np3n.png" referrerpolicy="no-referrer">
+
+<strong>img_3985.png</strong> (756.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-30 13:01 上传
+
+这就是限ban超绝美花后吗？
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  泥潭办证先锋  
+##### 1817#       发表于 2024-11-30 16:05
+
+200抽给了一堆日野森姐妹，ena井出来了，SBGA吐了
+
+<img src="https://img.saraba1st.com/forum/202411/30/160510rnieyvu2zmssvnus.png" referrerpolicy="no-referrer">
+
+<strong>4dbd32cac4bb5e57b822f408c1e9c392.png</strong> (77.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-30 16:05 上传
+
+*****
+
+####  sgssk  
+##### 1818#       发表于 2024-11-30 17:47
+
+ 本帖最后由 sgssk 于 2024-11-30 17:48 编辑 
+
+井了mzk出了另两个，情绪稳定<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">可惜这次剧本太一般了，ena自己的故事基本原地踏步，能画出课题了那段甚至给挤到卡面剧情里去了……
+另外ena花前疑似分辨率低，剪裁到卡面上的竖版看着好出戏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">集美一堆骂丑卡了真是有点遭不住
+
+*****
+
+####  AveMujica  
+##### 1819#       发表于 2024-11-30 22:48
+
+特别特别好的ena五箱...特别特别好的25时的大家，特别特别好的vbs，特别特别好的类前辈，声优们的演出实在是太棒了，舍友在旁边都还是没忍住泪目了...很棒的第一视角演出，最后第8话的演出也相当精彩，以两人互相的视角看着对方，这种特殊演出方式希望以后也更多一点。[保卫萝卜_哭哭][保卫萝卜_哭哭][保卫萝卜_哭哭]
+
+*****
+
+####  虚无缥缈的光阴  
+##### 1820#       发表于 2024-12-1 01:13
+
+画册那群过激画批本来就够丢人啊还不让骂台我现在对画岌岌可危的好感还是和玩得好的壶关挣来的，糖献祭了二三五箱三张四星卡和台词给你画你画在五箱前没给糖一次四星，如果说暗批鼠批是烤女厨里面纯血豚含量最高的两.拨那画批就是顺直和笔记解含量最高的一群司马东西，把整个泥沟都给你钕拉瓜拉什么走画马画糖画饼画我他吗没打死同时磕这几个的就算不错的了香给你推安什么傲娇炸毛小猫,人设安nm呢，过激画批私老慕
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  虚无缥缈的光阴  
+##### 1821#       发表于 2024-12-1 12:48
+
+好笑的是画批糖批两边吵的时候换上了这组对卡的头像又特别像情头。。。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  kangkangsama  
+##### 1822#       发表于 2024-12-2 07:31
+
+<img src="https://img.saraba1st.com/forum/202412/02/073129tfm81cc9fd5dxtqf.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_7399.jpeg</strong> (177.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-2 07:31 上传
+
+ndsl
+

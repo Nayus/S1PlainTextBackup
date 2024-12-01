@@ -2132,3 +2132,144 @@ mujica在海外没有热度的
 
 也许是难蚌的假面观感太差官方准备吃书只能让喵梦动手了
 
+
+*****
+
+####  Aendst  
+##### 234#       发表于 2024-12-1 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814241&amp;ptid=2208921" target="_blank">帆前 发表于 2024-12-1 14:21</a>
+
+看到这么回应观众对人物的理解的pv，不禁想起我的幻想，是否有点…</blockquote>
+有点蠢，我是说你的幻想
+
+*****
+
+####  PDQ4  
+##### 235#       发表于 2024-12-1 14:27
+
+ccc相关的问题本来就是用来吊胃口的，第一集全爆了才是正常
+怎么可能把这个作为核心谜题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+祥爹负债离家背后丰川家倒是还可能藏了东西
+不过把爹写成这样的好处就是家庭伦理八点档不会占用太大笔墨了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仓鼠胖太  
+##### 236#       发表于 2024-12-1 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814275&amp;ptid=2208921" target="_blank">棒读 发表于 2024-12-1 14:25</a>
+也许是难蚌的假面观感太差官方准备吃书只能让喵梦动手了</blockquote>
+喵梦：正合我意（摩拳擦掌
+
+*****
+
+####  哈曼的YY  
+##### 237#       发表于 2024-12-1 14:27
+
+椅子还在找存在感
+
+<img src="https://img.saraba1st.com/forum/202412/01/142645ptc0qdahuj62adfu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 14:26 上传
+
+最后一句“怀着秘密的她的故事” 意思整部动画核心是祥老师的秘密？
+
+*****
+
+####  puzi  
+##### 238#       发表于 2024-12-1 14:27
+
+会有盗摄吗，已经等不了了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+*****
+
+####  挺好的  
+##### 239#       发表于 2024-12-1 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814286&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2024-12-1 14:27</a>
+
+椅子还在找存在感</blockquote>
+祥子大女主
+
+*****
+
+####  PDQ4  
+##### 240#       发表于 2024-12-1 14:28
+
+看live的如果真是美帝
+那第二集睦爆有可能是爽姐又去pua找祥子当导火索
+有些人最爱的戏份来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  挺好的  
+##### 241#       发表于 2024-12-1 14:30
+
+<img src="https://img.saraba1st.com/forum/202412/01/142956hgmsgz33m3zzh1sh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (6.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 14:29 上传
+
+
+*****
+
+####  Aendst  
+##### 242#       发表于 2024-12-1 14:30
+
+ 本帖最后由 Aendst 于 2024-12-1 14:33 编辑 
+
+<img src="https://img.saraba1st.com/forum/202412/01/142827kznewopstzommxnw.jpg" referrerpolicy="no-referrer">
+
+<strong>插画51.jpg</strong> (206.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 14:28 上传
+
+关于新pv里两个电视机的画面
+
+首先可以看到左上图的耳坠是演出服的，且该角色头发较长，衣领处和睦的演出服完全一致，因此基本可以确认这是摘掉面具的睦
+
+左下角的眼部特写，根据刘海状态可以锁定在睦和祥子身上，根据眼型和睫毛可以确定是睦
+
+*****
+
+####  星天观测  
+##### 243#       发表于 2024-12-1 14:30
+
+关于初华的一点细节补充剧透
+
+c团live
+
+初华去了，在祥子右手边，最后初华和祥子招了手，祥子也回应了
+
+*****
+
+####  skives10  
+##### 244#       发表于 2024-12-1 14:31
+
+不过现地漏油那句
+十五年未见之大女主实在是笑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 245#       发表于 2024-12-1 14:33
+
+这pv电视存在感很高
+
+祥老师的人偶打了个酱油
+
+考虑到pv2最后一个人偶特写 应该和秘密有关系吧
+

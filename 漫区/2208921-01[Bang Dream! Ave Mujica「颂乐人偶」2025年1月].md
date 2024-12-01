@@ -4267,3 +4267,158 @@ mygo部分： soyo、灯和爱音三人正在立希的打工地点喝茶时，�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">象爸最后振作起来搬砖就差不多了，不想有太多他的剧情
 
+
+*****
+
+####  skives10  
+##### 422#       发表于 2024-12-1 16:36
+
+我现在就一个问题祥妈好看吗
+和森美奈美的关系是………
+
+*****
+
+####  庸necro  
+##### 423#       发表于 2024-12-1 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66815030&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2024-12-1 16:19</a>
+
+看剧透🐘老师完全可以住在祖父家同时接济下老爹，这样不必打工ccc也能好好搞，冲动是魔鬼啊 ...</blockquote>
+我想跟着爹住主要是要表达一个支持和相信老爹的态度，唯一的亲人怎么可能就这么让他一个人生活
+
+*****
+
+####  星天观测  
+##### 424#       发表于 2024-12-1 16:36
+
+关于op
+
+<img src="https://img.saraba1st.com/forum/202412/01/163640s3rvsornirepilv3.png" referrerpolicy="no-referrer">
+
+<strong>PVU$_]}I1`)3]BSID`Q}XQL_tmb.png</strong> (58.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 16:36 上传
+
+*****
+
+####  66367749  
+##### 425#       发表于 2024-12-1 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66815102&amp;ptid=2208921" target="_blank">星空冻结 发表于 2024-12-1 16:27</a>
+不是，祥子知道的时候他爹已经丨出去了，而且其实祥子和丰川家的关系也没断，丰川家的要求也是别去管她爹 ...</blockquote>
+我单指去照顾的事，没有法律意义上的意思啦<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Acatv  
+##### 426#       发表于 2024-12-1 16:37
+
+好起来了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+
+*****
+
+####  ghostintheshell  
+##### 427#       发表于 2024-12-1 16:38
+
+有剧透楼了 [https://bbs.saraba1st.com/2b/thread-2208960-1-1.html](https://bbs.saraba1st.com/2b/thread-2208960-1-1.html)
+
+*****
+
+####  Aendst  
+##### 428#       发表于 2024-12-1 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66815127&amp;ptid=2208921" target="_blank">LeonsCat 发表于 2024-12-1 16:31</a>
+
+外公
+
+以及哪怕不考虑速通武道馆，就是前面拉队伍、搞定演出布置来说，也是“超高校级的制作人”，不姓丰 ...</blockquote>
+祥子的能力我觉得是有家庭培养过的
+
+她外公真想让她做继承人/考虑将来会拉进管理层的可能性不低
+
+*****
+
+####  PDQ4  
+##### 429#       发表于 2024-12-1 16:40
+
+祥爹虽然比ykn爹烂不少，但是估计最后走向是一样的
+
+最终被mujica/祥子打动激励，最后出现了在了鸡live演出的现场表示振作就够了
+
+喵梦者搞事，祥子台上憋住了，怕不是第二集下舞台就要打起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+喵梦鸡堕后的喵祥关系肯定非常美味<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  skives10  
+##### 430#       发表于 2024-12-1 16:40
+
+祥子真大半夜骑着自行车送报纸了吗
+这也太1了吧
+感觉不想当祥嬷了
+
+*****
+
+####  星天观测  
+##### 431#       发表于 2024-12-1 16:40
+
+武道馆说实话有点太快了，按老团的情况来说邦3才上武道馆，还是麻里奈争取了，还是拼盘上的
+
+（某个刚和好的目标武道馆的队还没上武道馆呢）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 432#       发表于 2024-12-1 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66815153&amp;ptid=2208921" target="_blank">庸necro 发表于 2024-12-1 16:36</a>
+
+我想跟着爹住主要是要表达一个支持和相信老爹的态度，唯一的亲人怎么可能就这么让他一个人生活 ...</blockquote>
+老爹滚了明明有更圆滑让结果更好的选择，🐘为了争一口气一起滚了。
+
+元和二年下雨天明明可以和CCC几个人敞开心扉找找办法，实在不能搞下去也能好聚好散，🐘为了争口气不想让别人看不起，选择恶语相向直接爆了。
+
+鸡团明明可以靠初华和木头（也许还有大喵老师）的热度烂炒一把加速火爆，🐘老师因为想让市场认可音乐和成绩而不是炒作，不肯戴面具。
+
+不得不说🐘老师这个哪怕被生活锤烂了也要坚持理想的学生心态真的写得太棒了，然后她就碰到了“老娘只认热度和米”的社会人大喵老师，学校里这套直接玩不转了。<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 433#       发表于 2024-12-1 16:45
+
+只能说mujica的设定各方面都很夸张，某种意义上也是一种和以往邦多利不太一样的风味
+
+虽然一话目前看各种repo感觉没太大问题，但后面能不能撑住脚本落地不好说
+
+既然设定上事已至此，好好讲好一个故事，把角色都立起来是最重要的
+
+*****
+
+####  PDQ4  
+##### 434#       发表于 2024-12-1 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66815175&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-1 16:40</a>
+
+祥子真大半夜骑着自行车送报纸了吗
+
+这也太1了吧
+
+感觉不想当祥嬷了</blockquote>
+嬷不嬷轮不到漏u决定
+
+自有独角兽为祥嬷汴京<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kivz  
+##### 435#       发表于 2024-12-1 16:45
+
+那么独角兽含量多少<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

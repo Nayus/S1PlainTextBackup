@@ -11329,3 +11329,11 @@ op地区大赛就在新国立了决赛不敢想了<img src="https://static.sarab
 
 哦呼，这啥意思，下集播完过一天直接全员生放，难道说第十集就直接决赛搞完啦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  离心  
+##### 1106#       发表于 2024-12-1 16:38
+
+不可能吧，决赛不让香音主c了?地区决赛吧
+

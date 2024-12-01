@@ -5141,3 +5141,63 @@ ep2肯定有摘面具引起的问题的，因为不是最合适的时机点，�
 
 镜头都能记得起来么 记忆力惊人啊<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  光MIKAN  
+##### 503#       发表于 2024-12-1 17:47
+
+看着剧透第一集就起爆啊<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 504#       发表于 2024-12-1 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66815578&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-1 17:37</a></blockquote>
+日本人repo漏了好多初祥<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+第8話那邊原來就是邀請初華了，這個即答，不愧是……
+
+不過那句告白翻譯的不對，其實就是PV那句，初華說自己希望能和祥子永遠在一起的夢想已經實現了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狮子咕  
+##### 505#       发表于 2024-12-1 17:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说实话这第一集爆的像是在第九集应该出现的内容
+
+
+*****
+
+####  双重清洁枪  
+##### 506#       发表于 2024-12-1 17:50
+
+睦采访说不出话和最后被揭面具的反应觉得比起家庭因素更多是心理问题？
+
+*****
+
+####  PDQ4  
+##### 507#       发表于 2024-12-1 17:50
+
+爽姐果然要动了，你坐吧爽姐，你一脸坚毅的表情梦回第十集我来结束这个乐队<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  枫林不见  
+##### 508#       发表于 2024-12-1 17:52
+
+爆点已经起爆了，那么看哭了环节什么时候会到呢<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  本间日阳  
+##### 509#       发表于 2024-12-1 17:52
+
+ 本帖最后由 本间日阳 于 2024-12-1 17:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66815578&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-1 17:37</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">原来纸条的画面也是第一集就有的，这PV还真是以第一话内容为主啊。那到底是谁什么时候给的。
+
+我看很多人猜是高松灯，但她13集送笔记本不是被拒了吗，前前后后感觉也没机会送啊。
+

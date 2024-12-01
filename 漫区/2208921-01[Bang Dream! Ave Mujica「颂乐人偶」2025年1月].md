@@ -6085,3 +6085,168 @@ https://bangumi.tv/subject/ ...</blockquote>
 祥子有可能去睦家
 感觉要开启睦睦线了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  贝多Van  
+##### 590#       发表于 2024-12-1 19:46
+
+还没看任何第1话的内容，但感觉mujica很难兜得住大祥老师至今为止的言行，非常悲观
+
+*****
+
+####  仓鼠胖太  
+##### 591#       发表于 2024-12-1 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66816494&amp;ptid=2208921" target="_blank">椎名真希 发表于 2024-12-1 19:34</a>
+第一集喵梦的戏份是除了祥子以外最多的，mujica接受采访的时候记者走了，她想把面具摘了，祥子说在回到更 ...</blockquote>
+感觉会吐槽喵梦的应该是海铃吧
+
+*****
+
+####  Aendst  
+##### 592#       发表于 2024-12-1 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66816587&amp;ptid=2208921" target="_blank">novalli 发表于 2024-12-1 19:44</a>
+
+这只手应该是喵梦，mygo第13集里她穿的就是纱质长袖。
+
+—— 来自 鹅球 v3.3.94-alpha ...</blockquote>
+应该是睦，没有红色指甲油+偏肉色的砂纸长袖
+
+喵梦有红色指甲油，长袖偏灰黑
+
+*****
+
+####  椎名真希  
+##### 593#       发表于 2024-12-1 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66816531&amp;ptid=2208921" target="_blank">Acatv 发表于 2024-12-1 19:38</a>
+当时那种情况 最优解也许真的是四人摘面具 初华不摘。
+既有了流量也留了悬念，而且初华主唱的身份对公众就 ...</blockquote>
+这部分感觉初华是有点享受为了祥子付出，甚至说“献出自己”的样子<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">，仿佛她不会拒绝任何祥子的要求（第一集有一部分也是补充mygo了祥子一年后约初华组职业乐队，初华甚至没有说考虑一下而是直接答应，把祥子都震惊了），或者说给我的感觉是她本人的期望是完全的利她（祥子）
+台场海边对话是祥子关心初华两边跑不开，太勉强自己，初华先说可以作为转换心情，后面为了打消祥子担忧又哄了很久<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">（但是可能祥子更担心了）
+
+*****
+
+####  椎名真希  
+##### 594#       发表于 2024-12-1 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66816608&amp;ptid=2208921" target="_blank">仓鼠胖太 发表于 2024-12-1 19:46</a>
+感觉会吐槽喵梦的应该是海铃吧</blockquote>
+大概率是
+
+*****
+
+####  skives10  
+##### 595#       发表于 2024-12-1 19:48
+
+“初华 我有一件事想要…”
+“我愿意”
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Aendst| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  PDQ4  
+##### 596#       发表于 2024-12-1 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66816601&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-1 19:46</a>
+
+下一集预告是睦
+
+祥子有可能去睦家
+
+感觉要开启睦睦线了</blockquote>
+你这个分线是靠祥子睡谁家决定的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 597#       发表于 2024-12-1 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66816638&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-1 19:49</a>
+你这个分线是靠祥子睡谁家决定的吗</blockquote>
+每三集去一个人家 解锁新剧情 那就神作了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  椎名真希  
+##### 598#       发表于 2024-12-1 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66816596&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-1 19:45</a>
+这里摘了面具到底会有什么影响
+
+考虑到两面性，关注度更高mujica更火了是有可能的，负面影响一时之间想不到 ...</blockquote>
+尤其是，这还是Live之前的小剧场环节，喵梦居然在这个时间把桌子掀了，按说五个人后面还要演奏呢
+难以想象这个状态如何演奏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+更不用说演奏完回到更衣室会怎么样了
+
+
+*****
+
+####  Aendst  
+##### 599#       发表于 2024-12-1 19:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">给祥子拉旅行箱情景的原因找到了，原来每个队友的家都可以是祥子家
+
+*****
+
+####  skives10  
+##### 600#       发表于 2024-12-1 19:51
+
+公路片（迫真
+
+
+*****
+
+####  Acatv  
+##### 601#       发表于 2024-12-1 19:51
+
+话说那句"剩下的人生交给我"，大祥老师不会真的只是跟主播口头说说的吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+但凡有个合同约束下，主播这种重大场合违约（指严重破坏ave mujica的世界观）的行为，真不怕被狠狠爆金币吗（带入现实
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+
+*****
+
+####  wonner_2012  
+##### 602#       发表于 2024-12-1 19:52
+
+皇帝翻牌子侍寝是吧
+
+*****
+
+####  skives10  
+##### 603#       发表于 2024-12-1 19:53
+
+就算违约了 还能找别人吗
+乐队是生意 也是感情 该狠狠交流感情了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 604#       发表于 2024-12-1 19:53
+
+行李箱里是不是还装着妈妈的人偶，原来母鸡卡是ob小姐带着妈妈旅游顺便解决的四个女人问题的故事
+
+好限制级的片子<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 605#       发表于 2024-12-1 19:54
+
+既然解决谁的问题就睡谁家，主打一个睡服，那最后解决祥的问题……堂堂5人同居！
+

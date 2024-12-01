@@ -2962,3 +2962,251 @@ CP厨看谁都是对家也是一种被害妄想症的体现，这片现在出圈
 
 好急，好想听killkiss
 
+
+*****
+
+####  skives10  
+##### 306#       发表于 2024-12-1 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814522&amp;ptid=2208921" target="_blank">p酱 发表于 2024-12-1 15:01</a>
+CP厨看谁都是对家也是一种被害妄想症的体现，这片现在出圈是因为梗还是因为你这种阴湿CP厨天天在那自high ...</blockquote>
+又不是每个人都喜欢这种烂梗 发出来被评价一下而已 也不至于应激吧 
+
+*****
+
+####  金属化反射装甲  
+##### 307#       发表于 2024-12-1 15:06
+
+又一个牢爹啊。。不管他好人坏人，总之戏份别多就行<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  聂宝楽楽  
+##### 308#       发表于 2024-12-1 15:07
+
+漏油的转进有点快了
+
+—— 来自 vivo V2309A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  政见正正正  
+##### 309#       发表于 2024-12-1 15:07
+
+太有cp大战了
+
+*****
+
+####  Lucy_Diamonds  
+##### 310#       发表于 2024-12-1 15:07
+
+节约...
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  Aendst  
+##### 311#       发表于 2024-12-1 15:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谁在认真讨论认真搬运情报，谁在玩烂梗撒泼打滚这两页不要太明显
+
+pv讨论得好好的跳出来几个早期mygo动画期间就在泥漏没几个人理的发癫转移话题到打cp上，无聊不无聊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 312#       发表于 2024-12-1 15:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">已品味4268378350970598907次初華的“告白” 
+
+
+*****
+
+####  悲伤颂偶  
+##### 313#       发表于 2024-12-1 15:10
+
+killkiss好听的
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| PDQ4| + 1|头像w|
+
+查看全部评分
+
+*****
+
+####  Aendst  
+##### 314#       发表于 2024-12-1 15:11
+
+killkiss大体是什么风格有repo吗
+
+*****
+
+####  PDQ4  
+##### 315#       发表于 2024-12-1 15:11
+
+说真的漏油喜欢烂梗可以开一个烂梗楼，外面还有剧透楼，虽然有点空气
+
+外面都是烂梗，连最后的鸡楼都保不住鸡腿也太可怜了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仓鼠胖太  
+##### 316#       发表于 2024-12-1 15:11
+
+谁在聊天谁在攻击确实一眼看出，不感兴趣的话题不回复不就得了，非要回复别人扣个帽子攻击下，这是什么随地大小d行为
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| HANDAIYV| + 1||
+| 空气先生| + 1||
+| Lucy_Diamonds| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  星天观测  
+##### 317#       发表于 2024-12-1 15:12
+
+其实pv2出来的时候，在自己的小群里讨论过睦眼睛那一帧，根据面部肌肉规律应该是在笑
+
+当时就跟群友说只是自己的工作经验而已，不一定是真的
+
+今天这个pv出来，感觉不一定不是真的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蜇灵  
+##### 318#       发表于 2024-12-1 15:13
+
+看PV应该每个人都有爆的点，不知道会是什么顺序
+
+repo说是第二集预告是睦？这个确认了吗？
+
+*****
+
+####  星天观测  
+##### 319#       发表于 2024-12-1 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814583&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-1 15:11</a>
+
+killkiss大体是什么风格有repo吗</blockquote>
+快歌，鼓点比较清晰，挺好听的
+
+*****
+
+####  仓鼠胖太  
+##### 320#       发表于 2024-12-1 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814589&amp;ptid=2208921" target="_blank">仓鼠胖太 发表于 2024-12-1 15:11</a>
+谁在聊天谁在攻击确实一眼看出，不感兴趣的话题不回复不就得了，非要回复别人扣个帽子攻击下，这是什么随地 ...</blockquote>
+毕竟自信是没人感兴趣的“烂梗”，肯定很快就会被所谓大家感兴趣的“好梗”刷掉了，何必🙊
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 0
+
+|昵称|战斗力|理由|
+|----|---|---|
+| PDQ4|-1|烂梗人看什么都是梗，你是不会正常讨论吗.|
+| Lucy_Diamonds| + 1|好评加鹅|
+
+查看全部评分
+
+
+*****
+
+####  skives10  
+##### 321#       发表于 2024-12-1 15:13
+
+毕竟恩基爱和霹雳霹雳都是烂梗的天下 
+爱撕衣当然也可以大 大方方发
+但是被别人评价也是一件很正常的事吧
+不太懂应激的点在哪里<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 322#       发表于 2024-12-1 15:14
+
+很震驚有人說的出《这片现在出圈是因为梗》這種話，要不要想想所謂“出圈的梗"都是些什麼，然後喜歡ave mujica的人對此有何感想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  OPCI_0125  
+##### 323#       发表于 2024-12-1 15:14
+
+这个怀揣“秘密的她”指的应该不是祥
+
+某人接近祥的远景俯拍
+
+<img src="https://img.saraba1st.com/forum/202412/01/151141pbcsytfd4zkaqlv2.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2024-12-01 150510.png</strong> (118.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 15:11 上传
+
+祥惊讶
+
+<img src="https://img.saraba1st.com/forum/202412/01/151151s2t3352x5qvubztz.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2024-12-01 150521.png</strong> (88.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 15:11 上传
+
+拨片掉落
+
+<img src="https://img.saraba1st.com/forum/202412/01/151200qquumqpmypx2uyme.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2024-12-01 150549.png</strong> (41.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 15:12 上传
+
+“她”大概不是睦就是初华？
+
+所以说不定最后落点不是大女主，而是二人物语&gt;&lt;
+
+*****
+
+####  PDQ4  
+##### 324#       发表于 2024-12-1 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814595&amp;ptid=2208921" target="_blank">星天观测 发表于 2024-12-1 15:12</a>
+
+其实pv2出来的时候，在自己的小群里讨论过睦眼睛那一帧，根据面部肌肉规律应该是在笑
+
+当时就跟群友说只是自 ...</blockquote>
+那个瞳孔地震吗？
+
+那有点瘆得慌了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 325#       发表于 2024-12-1 15:14
+
+pv2睦眼睛那一幕具体是哪里，有没有时间指路
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">仅看pv，感觉睦比我想象的还要狂气很多
+

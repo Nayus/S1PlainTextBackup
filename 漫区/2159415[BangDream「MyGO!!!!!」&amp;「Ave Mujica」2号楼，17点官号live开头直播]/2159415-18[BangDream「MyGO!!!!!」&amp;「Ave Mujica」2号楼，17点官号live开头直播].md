@@ -16554,3 +16554,14 @@ Bang Dream! Ave Mujica「颂乐人偶」2025年1月
 就是要辛苦一下楼主把首楼内容改一 ...</blockquote>
 不太好，楼层太高其实会劝退坛友点进来的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  好想看Mujica啊  
+##### 26530#       发表于 2024-12-1 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66812446&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-12-1 10:42</a>
+
+改名这个问题，还是征求一下旧鸡狗楼应该怎么改吧，直接转狗楼其实有点尴尬，一方面因为这样一切割鸡狗都有 ...</blockquote>
+果然第一天就吵起来了，看来把企划厨和纯动画观众隔开比较好
+

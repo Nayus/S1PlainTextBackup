@@ -718,3 +718,49 @@ Screenshot of 动态首页-哔哩哔哩.jpg
 可以设置字体反白</blockquote>
 s1反白回复就没用了，所以反白内容大家还是别回复比较好
 
+
+*****
+
+####  雨井绫  
+##### 78#       发表于 2024-12-1 11:35
+
+ 本帖最后由 雨井绫 于 2024-12-1 11:38 编辑 
+
+真想发剧透最好单开一个楼，反白意义不大。回复引用/手机黑夜模式都会把反白内容显示出来，而且也没法保证所有人都能有用反白之类的手段在规避剧透的情况下讨论。
+
+*****
+
+####  长空雁叫霜晨月  
+##### 79#       发表于 2024-12-1 11:36
+
+来了来了，占个前排
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  skives10  
+##### 80#       发表于 2024-12-1 11:40
+
+说实话躲两三天还行 躲几周剧透真不太现实
+官方这操作也像是巴不得剧透流传的越广越好<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  novalli  
+##### 81#       发表于 2024-12-1 11:44
+
+debuff拉满，不敢想出点小节奏会怎么崩塌<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  雨井绫  
+##### 82#       发表于 2024-12-1 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66812823&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-1 11:40</a>
+说实话躲两三天还行 躲几周剧透真不太现实
+官方这操作也像是巴不得剧透流传的越广越好 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">这也确实，我已经准备摆烂到处看剧透了。毕竟热度太高无论如何都会有人到处传剧透。
+另外我印象中日本那些原创动画的先行放映会后观众一般只会说一点指向模糊的谜语和感想，基本上没人会具体提到剧情内容。我不知道是日本人的习惯还是主办方会提醒他们不能多说。但这次b站官号自己都发了个剧情讨论动态，那看来他们确实是想主动鼓励剧透了。
+

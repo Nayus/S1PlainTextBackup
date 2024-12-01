@@ -6460,3 +6460,53 @@ C团解散之后祥子冒雨走回家，一路上边想刚才每个人对她说�
 睦被摘面具之后的慌乱捂脸挺可爱的</blockquote>
 期待睦的部分<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 627#       发表于 2024-12-1 20:26
+
+https://b23.tv/sabWt5r
+
+好活
+
+*****
+
+####  Alicest  
+##### 628#       发表于 2024-12-1 20:27
+
+不是愿意低头
+外公其实不是坏人，就是单纯放不下身架
+和祥子说“你这个年龄没法独立生活”之后祥子就立刻下楼，拿着妈妈的人偶“我只需要这个家里的这个”准备离开，远景看着钢琴看了好一会然后离开了
+
+
+*****
+
+####  椎名真希  
+##### 629#       发表于 2024-12-1 20:35
+
+这一集就有好多形态的祥子：
+
+父母双全幼祥
+看完演出开心要组乐队的单亲初中祥
+戴头巾打扫洗碗池落魄千金祥
+凌晨送报纸打工运动服祥
+扶醉酒老爹回家的打工下班正装祥
+Crychic解散后的正装淋湿祥
+Ave Mujica演出Full Arm面具祥
+Ave Mujica演出喵梦战损无面具祥
+
+祥子的设定集一定很丰富，谷子也是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 630#       发表于 2024-12-1 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66816767&amp;ptid=2208921" target="_blank">椎名真希 发表于 2024-12-1 20:02</a>
+
+不是有点，应该就是在装坏人
+
+C团解散之后祥子冒雨走回家，一路上边想刚才每个人对她说的话一边念对方名字 ...</blockquote>
+看爹就行了，装坏人去切割，只能说不愧是父女<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

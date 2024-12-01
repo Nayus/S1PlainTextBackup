@@ -8338,3 +8338,14 @@ avemujica吧群大佬翻译的</blockquote>
 
 说不定第二集祥子和海铃组一起了呢 主心骨+二把手 卖一波海祥糖也不错
 
+
+*****
+
+####  玖羽  
+##### 813#       发表于 2024-12-2 06:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66819179&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-2 01:44</a>
+
+其实可能就是想要个监护权？（親権者）</blockquote>
+日本有钱人收养女婿的子女是很正常的，甚至有过招女婿生孙子，然后把女婿踢走收养孙子的事
+

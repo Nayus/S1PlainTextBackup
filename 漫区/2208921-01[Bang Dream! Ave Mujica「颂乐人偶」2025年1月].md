@@ -7125,3 +7125,73 @@ pv里有个那个场景睦瞳孔的画面，确实感觉睦是当场被退团这
 
 怎么就都解锁了，立希，只有祥子两个闪回怎么能算解锁<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ggxx001  
+##### 695#       发表于 2024-12-1 21:57
+
+祥的谜题第一集都解开了 就看剧情怎么演 反而睦像隐藏在底下的冰山 pv新信息又那么多 让人心好痒！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  AveMujica  
+##### 696#         楼主| 发表于 2024-12-1 21:58
+
+【TV动画「BanG Dream! Ave Mujica」主PV-哔哩哔哩】 https://b23.tv/YwVIKJX
+
+*****
+
+####  ggxx001  
+##### 697#       发表于 2024-12-1 21:58
+
+其实我是收养双子论的拥护者
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Fask  
+##### 698#       发表于 2024-12-1 21:59
+
+有没有更衣室三棍客爱猫文？<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 699#       发表于 2024-12-1 22:00
+
+虽然爹很屑，但是能看到祥子哭得那么好看是不是还要谢谢爹<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  海晟天锻  
+##### 700#       发表于 2024-12-1 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66817590&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-01 21:55:06</a>
+怎么就都解锁了，立希，只有祥子两个闪回怎么能算解锁</blockquote>从repo说的成团过程来看立希纯凑数拉来的，估计就这样了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Devola  
+##### 701#       发表于 2024-12-1 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66817460&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2024-12-1 21:37</a>
+
+这是诅咒吧</blockquote>
+那么大喵老师这种恶役就是卡迪公了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+等大象老师正义执行
+
+*****
+
+####  kivz  
+##### 702#       发表于 2024-12-1 22:05
+
+烂归烂，怎么都是祥爹啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

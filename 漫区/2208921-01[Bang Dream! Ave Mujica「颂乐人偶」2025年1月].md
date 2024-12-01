@@ -7492,3 +7492,86 @@ mana能不能来个大的
 感觉官网的祥子头像看起来有种清澈的愚蠢 还有婴儿肥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 赶紧出立牌吧
 
+
+*****
+
+####  星天观测  
+##### 732#       发表于 2024-12-1 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66818148&amp;ptid=2208921" target="_blank">NODY 发表于 2024-12-1 22:53</a>
+
+假面乐队在不暴露真人的情况下，万一公司要推新人或者换人之类的可能会把成员换掉（pp也有过想要换人的剧 ...</blockquote>
+pp的剧情我记得是想让hina做吉他主唱，aya去另外学一门乐器，换人大概是指乐队中的角色互换
+
+如果是想说担心换掉doloris的中之人那也有点太巧了，毕竟目前来看至少其他三位是不知道喵梦会整这一出的
+
+非要说初华是顺水推舟的话那就只能等后续剧情，目前提出通过露脸制约公司还是假药范围
+
+*****
+
+####  PDQ4  
+##### 733#       发表于 2024-12-1 22:59
+
+ 本帖最后由 PDQ4 于 2024-12-1 23:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66818148&amp;ptid=2208921" target="_blank">NODY 发表于 2024-12-1 22:53</a>
+
+假面乐队在不暴露真人的情况下，万一公司要推新人或者换人之类的可能会把成员换掉（pp也有过想要换人的剧 ...</blockquote>
+这个有点意思，按照repo目前看，真的缺少名气的其实只有祥子，从这个角度考虑初华不排斥摘假面倒是合理
+
+不知道鸡两场live后具体的人气如何，如果人气够高其实不会换人
+
+不过这么看不会还有粉丝骂祥子素人高攀吸血的剧情吧<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 734#       发表于 2024-12-1 22:59
+
+所以还得怪🐘自己非要整什么中二小剧场，上来就唱歌把大喵累死在鼓凳上下不来还有空惹是生非吗？
+
+*****
+
+####  skives10  
+##### 735#       发表于 2024-12-1 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66818192&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-1 22:59</a>
+这个有点意思，按照repo目前看，真的缺少名气的其实只有祥子，从这个角度考虑初华不排斥摘假面倒是合理
+
+不 ...</blockquote>
+这种娱乐圈生态剧情要是写好了 某大热漫画面子真的挂不住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 736#       发表于 2024-12-1 23:02
+
+担心换人这个未免太策士了，真的能做这样的脚本吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还是要看具体画面，从顺序上来说，到初华的时候也已经知道了喵梦要让全员都摘掉面具，我觉得是有心理准备在的
+
+但是为什么选择摘面具，这个暂时没办法推测
+
+
+*****
+
+####  星天观测  
+##### 737#       发表于 2024-12-1 23:04
+
+以及mana，我个人倾向于mana是知道初华参加母鸡卡的，毕竟同一家事务所，目前母鸡卡又已经到了武道馆，那肯定涉及到档期调整之类的问题
+
+mana蒙在鼓里好像有点不符合现实
+
+至于会和初华甚至母鸡卡有什么交集，是鼓励角色还是引线角色就得看了
+
+（个人猜测：按照反子的宣传程度，或许更偏向于鼓励初华的定位吧）
+
+*****
+
+####  PDQ4  
+##### 738#       发表于 2024-12-1 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66818207&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-1 23:01</a>
+
+这种娱乐圈生态剧情要是写好了 某大热漫画面子真的挂不住了</blockquote>
+这个能不能写好是不是要查询独角兽的饭圈程度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

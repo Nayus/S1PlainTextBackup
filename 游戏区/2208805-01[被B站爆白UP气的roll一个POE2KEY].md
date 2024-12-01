@@ -1272,3 +1272,13 @@ poe1一直入不了坑
 
 斗争这么激烈笑死，还有开小号专门来骂楼主的，狠狠支持一把好吧，暴白司马
 
+
+*****
+
+####  突发性哮喘病患  
+##### 140#         楼主| 发表于 2024-12-1 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66816116&amp;ptid=2208805" target="_blank">魔灵高达 发表于 2024-12-1 18:48</a>
+斗争这么激烈笑死，还有开小号专门来骂楼主的，狠狠支持一把好吧，暴白司马 ...</blockquote>
+注册不到半年，懒得理，泥潭权重大被搜出来了
+

@@ -11355,3 +11355,11 @@ op地区大赛就在新国立了决赛不敢想了<img src="https://static.sarab
 
 这话算是VN正式入队回吧，还是在填二期动画的坑。
 
+
+*****
+
+####  ViyViy  
+##### 1109#       发表于 2024-12-1 23:02
+
+话说，幻日是不是出了个剧场总集导剪救了一下，那你看咱们二期是不是…<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

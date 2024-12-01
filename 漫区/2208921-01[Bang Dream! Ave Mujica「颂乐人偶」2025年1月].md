@@ -8241,3 +8241,32 @@ avemujica吧群大佬翻译的</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我感觉这么处理就是不想给家庭问题太多镜头，奈何场外的人实在太爱看家庭伦理剧了，也不看看你邦的祖宗之法一向都是家庭问题背景板最多导火索，重点都是聚焦于少女内心成长上的
 
+
+*****
+
+####  ggxx001  
+##### 804#       发表于 2024-12-2 01:41
+
+有没有可能箱子原来就是被收养的 双子领养论堂堂复活
+
+
+*****
+
+####  PDQ4  
+##### 805#       发表于 2024-12-2 01:42
+
+漏u这个点提的，回去听音频真是越听越怪，是日本传统就算了，不是传统那不就意味着这是伏笔了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 806#       发表于 2024-12-2 01:44
+
+ 本帖最后由 Aendst 于 2024-12-2 01:47 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实可能就是想要个监护权（親権者）
+
+赶走祥爹，想继续好好抚养外孙女
+
+然后祥子某种意义上是离家出走状态
+

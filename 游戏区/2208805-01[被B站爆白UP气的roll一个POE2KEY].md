@@ -1294,3 +1294,16 @@ poe1一直入不了坑
 
 以及如果在阿区的号上玩是不是加速器得选阿区的线路？
 
+
+*****
+
+####  adretyu67.  
+##### 142#       发表于 2024-12-2 01:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66819107&amp;ptid=2208805" target="_blank">lovereign 发表于 2024-12-2 01:29</a>
+
+借楼问下
+
+以前玩过几个赛季的POE国际服，当时没绑任何平台。前两天脑抽把这个号绑到了STEAM阿区小号上，这 ...</blockquote>
+poe有自己的服务器路线，加速时候不需要阿区。
+

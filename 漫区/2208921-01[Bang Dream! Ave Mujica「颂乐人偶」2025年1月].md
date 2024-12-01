@@ -571,3 +571,20 @@ b站买的狗13集里歌词字幕不会也跟着变成颂乐人偶了吧
 在406排队，全是老钟<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 还有个cos小孩姐的
 
+
+*****
+
+####  SakuraのOrigami  
+##### 61#       发表于 2024-12-1 10:38
+
+坐等了（）
+
+*****
+
+####  Aloereed  
+##### 62#       发表于 2024-12-1 10:40
+
+是谁在播放春日影！--afa
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

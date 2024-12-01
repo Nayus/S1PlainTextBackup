@@ -94,3 +94,32 @@
 <img src="https://files.catbox.moe/wrvsie.jpg" referrerpolicy="no-referrer">
 <img src="https://files.catbox.moe/5g53dk.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  犬飼いろは  
+##### 2630#       发表于 2024-11-30 12:02
+
+第43話　つむがれる思い
+
+脚本：千葉美鈴
+
+演出：土田豊
+
+作画監督：爲我井克美、沼田広
+
+美術：鈴木祥太
+
+おそろいのマフラーをして学校にやってきたユキ（CV.松田颯水）とまゆ（CV.上田麗奈）。マフラーがまゆの手編みだと知り、うらやましがるクラスメイトたちのため、まゆは編み物教室を開くことになった。数日後の放課後、手芸好きのメエメエからたくさんもらってきた毛糸を使って、みんなに編み物を教え始めるまゆ。たまたま学校にやってきていたザクロは、悟への贈り物を作ろうとするいろは（CV.種﨑敦美）を見かけて自分も編み物を贈ろうか、と考えるが、人間から教わるのは……とちゅうちょする。編み物教室が終わり、家に帰ろうとしていたユキとまゆは、ザクロの姿を見かける。ふたりが追いかけていった先には、校庭のすみっこでひとり、編み物のまねごとをしているザクロがいた。ザクロの言葉からガオウへの贈り物を作ろうとしていることに気づいたまゆは、ザクロに近づいていく。
+<img src="https://files.catbox.moe/vjvtyb.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/wumk8b.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/wrvsie.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/5g53dk.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  犬飼いろは  
+##### 2631#       发表于 2024-12-1 08:06
+
+第 43 集的 TVer 源（含日字）：magnet:?xt=urn:btih:8cec1f0856bf4d8f597681956f4fd351564d4d82
+

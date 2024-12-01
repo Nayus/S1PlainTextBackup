@@ -200,3 +200,13 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我也是有烟雾镜了
 
+
+*****
+
+####  jackyhuang  
+##### 15207#       发表于 2024-12-1 17:24
+
+一想到2.7还不能用令咒，这回忆关更是一点都不想碰了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

@@ -4900,3 +4900,180 @@ ep2肯定有摘面具引起的问题的，因为不是最合适的时机点，�
 總感覺雞推想不看劇透，這幾天只能退網</blockquote>
 其实是解禁的，但是为了避免无谓的争端给个反白吧，看不看自己选，也只能怪s1没有折叠功能了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 480#       发表于 2024-12-1 17:26
+
+“当做女儿的遗物来抚养”，很好奇日本那边“遗物”的原词是不是还有其他隐含含义或者用法，不然把人当做遗物来养还是太怪了吧，一般而言会用遗孤这个词吧。
+
+
+*****
+
+####  ggxx001  
+##### 481#       发表于 2024-12-1 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66815396&amp;ptid=2208921" target="_blank">御幸一也 发表于 2024-12-1 17:13</a>
+這個日本人劇透很詳細，所以翻譯一下
+
+忘記反白了（</blockquote>
+
+睦居然不想露脸 我以为会是无所谓的态度
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  skives10  
+##### 482#       发表于 2024-12-1 17:28
+
+丰川家的老头给人一种蛋卷皇帝的印象
+
+*****
+
+####  PDQ4  
+##### 483#       发表于 2024-12-1 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66815514&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-1 17:28</a>
+
+丰川家的老头给人一种蛋卷皇帝的印象</blockquote>
+不要再llx了<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 484#       发表于 2024-12-1 17:29
+
+睦按照小剧场的暗示来说，可能是不想暴露在聚光灯下的
+
+可能在这个方面对露脸有很强的抗拒
+
+不想受人瞩目
+
+*****
+
+####  拉帮结派  
+##### 485#       发表于 2024-12-1 17:29
+
+她的故事，这个她应该指的是五个人，看上去每个人都有秘密
+
+*****
+
+####  akiomn  
+##### 486#       发表于 2024-12-1 17:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哈集喵欠爱了，一顿操作把睦祥海全整黑脸了，初华估计是脾气好所以没黑
+建议喵梦以后当那个0
+不过我要是祥子看到睦被摘面惊慌成这样了，估计真有踢了喵梦的心
+
+
+*****
+
+####  御幸一也  
+##### 487#       发表于 2024-12-1 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66815500&amp;ptid=2208921" target="_blank">rikaren 发表于 2024-12-1 17:26</a>
+
+“当做女儿的遗物来抚养”，很好奇日本那边“遗物”的原词是不是还有其他隐含含义或者用法，不然把人当做遗 ...</blockquote>
+我打錯字 我的鍋 已經改了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 488#       发表于 2024-12-1 17:31
+
+睦这么动摇，是不是可以假药祥子这么执着于世界观和面具有维护睦的理由在
+
+什么好机会摘下来其实都是为了忽悠喵梦，结果喵老师不按套路出牌全炸了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 489#       发表于 2024-12-1 17:31
+
+睦是属于走路上都会被认出的有名程度，这个抗拒也不知道是从什么时候开始的
+
+*****
+
+####  yone0000  
+##### 490#       发表于 2024-12-1 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66815500&amp;ptid=2208921" target="_blank">rikaren 发表于 2024-12-1 17:26</a>
+
+“当做女儿的遗物来抚养”，很好奇日本那边“遗物”的原词是不是还有其他隐含含义或者用法，不然把人当做遗 ...</blockquote>
+剧透里写的是“亡くなった娘の忘れ形見として育てる”，“忘れ形見”的确是有遗物和遗孤两种意思，不知道正片里原话是怎么说的
+
+*****
+
+####  仓鼠胖太  
+##### 491#       发表于 2024-12-1 17:32
+
+好奇睦被摘面具的表情，感觉会很激动人心<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 492#       发表于 2024-12-1 17:32
+
+一般人還是用的遺孤吧……<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 493#       发表于 2024-12-1 17:33
+
+转贴，便签是灯写的
+
+<img src="https://img.saraba1st.com/forum/202412/01/173317wx5598gj5b5kr54b.jpg" referrerpolicy="no-referrer">
+
+<strong>12.jpg</strong> (129.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 17:33 上传
+
+*****
+
+####  PDQ4  
+##### 494#       发表于 2024-12-1 17:34
+
+感觉要珍惜还会动摇的睦了，炸完可能就是mortis形态出击了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 495#       发表于 2024-12-1 17:34
+
+睦可能只是单纯的本来是瞒着家里人搞乐队，大喵这么一撕皮让家里人知道不让搞了
+
+*****
+
+####  skives10  
+##### 496#       发表于 2024-12-1 17:34
+
+发现超详细到每个镜头的剧透了
+
+*****
+
+####  杂灰  
+##### 497#       发表于 2024-12-1 17:35
+
+<img src="https://img.saraba1st.com/forum/202412/01/173506guoxxamoxjjmumsj.jpg" referrerpolicy="no-referrer">
+
+<strong>E]U7Y`K%H_)%O%DK@_Z9P.jpg</strong> (160.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 17:35 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+*****
+
+####  枫林不见  
+##### 498#       发表于 2024-12-1 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66815560&amp;ptid=2208921" target="_blank">杂灰 发表于 2024-12-1 17:35</a></blockquote>
+极致的美味
+

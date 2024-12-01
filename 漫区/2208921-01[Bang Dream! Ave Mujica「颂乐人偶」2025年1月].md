@@ -1145,3 +1145,149 @@ pv太劲啦！！
 
 KV3
 
+
+*****
+
+####  Devola  
+##### 130#       发表于 2024-12-1 13:16
+
+你邦有出息了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">敢玩这么大的了
+
+*****
+
+####  ykyin09  
+##### 131#       发表于 2024-12-1 13:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在尼姑庵和贴吧看了一圈所谓的剧透，感觉像是同人二创才能写出来的东西
+
+*****
+
+####  凉良  
+##### 132#       发表于 2024-12-1 13:17
+
+爆爆爆 不成功就成仁
+
+*****
+
+####  septer  
+##### 133#       发表于 2024-12-1 13:17
+
+<blockquote>[新番讨论]颂乐人偶不可能翻车，我要吹爆母鸡卡第一集！！！</blockquote>
+不安です<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SakuraのOrigami  
+##### 134#       发表于 2024-12-1 13:17
+
+<img src="https://p.sda1.dev/20/316ee8ccf04521dc3ffe7ae143c0c62e/IMG_EC014EEE7630B91749DFA9DA4D0DA067.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 135#       发表于 2024-12-1 13:18
+
+和初设saya一样啊，母亲去世+爹酗酒，爹出问题导致saya退出乐队并发表“乐队是命运共同体，我不能影响其他人”的发言
+
+*****
+
+####  OPCI_0125  
+##### 136#       发表于 2024-12-1 13:18
+
+初祥TT
+
+<img src="https://img.saraba1st.com/forum/202412/01/131757cgg6hg03wlw30imx.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2024-12-01 131744.png</strong> (243.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 13:17 上传
+
+<img src="https://img.saraba1st.com/forum/202412/01/131629dp0bgq4ntaqjtdng.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2024-12-01 130955.png</strong> (124.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 13:16 上传
+
+*****
+
+####  Aendst  
+##### 137#       发表于 2024-12-1 13:18
+
+[https://anime.bang-dream.com/avemujica/staff-cast/](https://anime.bang-dream.com/avemujica/staff-cast/)
+
+STF表更新
+
+系构没有变动
+
+[https://anime.bang-dream.com/avemujica/character/](https://anime.bang-dream.com/avemujica/character/)
+
+官方角色介绍更新
+
+*****
+
+####  skives10  
+##### 138#       发表于 2024-12-1 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66813661&amp;ptid=2208921" target="_blank">NODY 发表于 2024-12-1 13:15</a>
+据说祥子搬去睦家里了？</blockquote>
+真的吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  长空雁叫霜晨月  
+##### 139#       发表于 2024-12-1 13:19
+
+期待期待
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  Aendst  
+##### 140#       发表于 2024-12-1 13:22
+
+<img src="https://img.saraba1st.com/forum/202412/01/132242mfx4nuv2euga407x.jpg" referrerpolicy="no-referrer">
+
+<strong>20241201142226.jpg</strong> (36.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 13:22 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好那个
+
+*****
+
+####  CCCTHUN  
+##### 141#       发表于 2024-12-1 13:25
+
+睦头一个pv的表情比13集动画都多（不是
+
+不过发飙的睦头太美味了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  假面骑士3号  
+##### 142#       发表于 2024-12-1 13:25
+
+有无看了先行的朋友剧透一下
+
+*****
+
+####  kyogngn  
+##### 143#       发表于 2024-12-1 13:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">好劲的pv
+
+*****
+
+####  lhwang11  
+##### 144#       发表于 2024-12-1 13:26
+
+没有母鸡卡看我要死了
+

@@ -51,3 +51,13 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.94-alpha
 
+
+*****
+
+####  GrimReaper  
+##### 303#       发表于 2024-12-1 13:19
+
+请教下，tachiyomi有e绅士表站和里站的源，但Mihon只有表站，这个怎么办，插件库也没有里站的插件。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

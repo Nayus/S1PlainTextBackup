@@ -7112,3 +7112,15 @@ P5R史低印象里是80多，SMTVV和P3R最低130多，这作肯定不会例外<
 
 那些大几千甚至上万的伤害都是怎么打出来的，这游戏堆伤害的办法不也无外乎就是给敌人降三级防，给我方加三级攻然后上弱点吗，那我为什么打龙才能打出一千多的伤害？还需要做点什么吗？
 
+
+*****
+
+####  苏斯赫查  
+##### 3595#       发表于 2024-12-2 07:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66818951&amp;ptid=2140224" target="_blank">石中剑二 发表于 2024-12-2 01:00</a>
+那些大几千甚至上万的伤害都是怎么打出来的，这游戏堆伤害的办法不也无外乎就是给敌人降三级防，给我方加三 ...</blockquote>
+蓄力和会心
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+

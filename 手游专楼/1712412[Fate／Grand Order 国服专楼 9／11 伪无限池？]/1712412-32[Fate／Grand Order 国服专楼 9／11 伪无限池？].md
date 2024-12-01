@@ -65,3 +65,13 @@
 
 wo日，我还提前阵容，到跟前给忘了，现在还有柱子吗
 
+
+*****
+
+####  khxooo  
+##### 46808#       发表于 2024-12-1 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66817152&amp;ptid=1712412" target="_blank">Yidam 发表于 2024-12-1 20:54</a>
+wo日，我还提前阵容，到跟前给忘了，现在还有柱子吗</blockquote>
+马上4海天王了。
+

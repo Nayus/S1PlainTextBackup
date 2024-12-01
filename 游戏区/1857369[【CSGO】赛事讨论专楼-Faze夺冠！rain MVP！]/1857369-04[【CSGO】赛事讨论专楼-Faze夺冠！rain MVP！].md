@@ -57,3 +57,11 @@ RA！RA！RA！
 寻思RA毕竟本土作战可能爆种赢两把没放0-3，做对了
 就是fnc0-3滚蛋也太搞了，知道fnc菜，但黑马打的bo3太少不大敢贴所以我还是贴的fnc晋级，太不争气了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  施人诚  
+##### 4565#       发表于 2024-12-1 21:02
+
+明天ra打mibr是不是也有机会啊，mibr我看也是绿色的一笔
+

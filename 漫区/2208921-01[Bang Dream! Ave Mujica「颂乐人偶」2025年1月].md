@@ -6612,3 +6612,57 @@ pv2里有个初华歪头抿嘴，那个就是killkiss里的
 就是又有牢希戏份就很难评了，牢希的暴躁声……
 独角兽和柿本真是爱牢希啊
 
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 641#       发表于 2024-12-1 20:58
+
+按照第一话基本交代完祥子过去的节奏，13话里5话把每个人的过去交代一遍，炸团+重组也算5话好了，每集live内容凑一起算时长一话，剩下两话余量。
+
+*****
+
+####  Aendst  
+##### 642#       发表于 2024-12-1 20:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">构成这么写会很难看的
+
+绫奈的水平不至于这样
+
+*****
+
+####  PDQ4  
+##### 643#       发表于 2024-12-1 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66817114&amp;ptid=2208921" target="_blank">贰臣 发表于 2024-12-1 20:49</a>
+
+听说祥子妈妈的cv是大原沙耶香？真的吗</blockquote>
+哦哦哦——
+
+贝阿朵莉切！！
+
+老登你还是金藏啊<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  枫林不见  
+##### 644#       发表于 2024-12-1 21:01
+
+祥子哭的那一段好。。。。好爽啊 我日 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御景  
+##### 645#       发表于 2024-12-1 21:02
+
+【母鸡卡episode1（sound only）】 [https://www.bilibili.com/video/B ... ce14b3d3c31f87acaec](https://www.bilibili.com/video/BV1eGzdYDEo3/?share_source=copy_web&amp;vd_source=ac8a32077cb3cce14b3d3c31f87acaec)
+
+<img src="https://img.saraba1st.com/forum/202412/01/210153u1xgeo4m4fzmuovc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (21.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 21:01 上传
+

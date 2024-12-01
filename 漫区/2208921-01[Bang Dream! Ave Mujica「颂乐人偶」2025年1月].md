@@ -483,3 +483,20 @@ g不大写无言了
 
 我一直是巨人粉啊
 
+
+*****
+
+####  KDConan  
+##### 51#       发表于 2024-12-1 08:07
+
+新一年的乐子来源<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  棒读  
+##### 52#       发表于 2024-12-1 08:12
+
+快点端上来罢
+

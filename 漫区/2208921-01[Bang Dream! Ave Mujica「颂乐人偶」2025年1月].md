@@ -7009,3 +7009,119 @@ pv海报除了喵梦其余4人都穿校服，可否证实喵梦是社会人<img 
 
 [@AveMujica](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=569289) 标题的Bang能改成BanG吗
 
+
+*****
+
+####  堆雪若叶  
+##### 684#       发表于 2024-12-1 21:46
+
+睦知道的是祥子要离开月之森，但并不想放弃crychic。甚至祥子自己在退出宣言前想的都是来参加练习，只是被牢爹的现实彻底击碎幻想。睦没可能知道祥子这转瞬之间的决定，她的反应应该还是出于自己的原因，而对于祥子肯定也有一定的打击。
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 685#       发表于 2024-12-1 21:46
+
+祥爹有什么好可怜的，有手有脚身体健康让15岁的女儿四处奔波糊口自己三天两头喝进局子，这就是纯出生。最后饺子可以包，这段洗不干净的。
+
+*****
+
+####  雨井绫  
+##### 686#       发表于 2024-12-1 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66817525&amp;ptid=2208921" target="_blank">堆雪若叶 发表于 2024-12-1 21:46</a>
+睦知道的是祥子要离开月之森，但并不想放弃crychic。甚至祥子自己在退出宣言前想的都是来参加练习，只是被 ...</blockquote>
+pv里有个那个场景睦瞳孔的画面，确实感觉睦是当场被退团这件事震惊到了然后做出的决定。
+
+*****
+
+####  Aendst  
+##### 687#       发表于 2024-12-1 21:48
+
+别垫了，一起开开心心参加fes不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+听了音频，一点睦祥相关
+
+从祥妈生日惊喜那里可以看出，祥子很多时候想做某些事可能是会第一时间拉睦一起的
+
+蝶这段其实也是，想组乐队就立刻第一个抓着身边的睦去实行了
+
+很久之前说过祥子的执行力非常强，现在看来这个执行力的程度要比预估的更强，想要做某件事几乎会立马就会着手去做
+
+在无虑的时期，祥子会很自然地直接拉着睦去做事，但组mujica的时候刚好完全相反，睦是最后一个入队的，有告诫无法回头，有做好对方不答应的心理准备，换言之，有为对方考虑
+
+这可能也是一种成长吧，祥子顾虑的事情更多了，虽然代价非常惨痛
+
+*****
+
+####  椎名真希  
+##### 688#       发表于 2024-12-1 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66817534&amp;ptid=2208921" target="_blank">雨井绫 发表于 2024-12-1 21:47</a>
+pv里有个那个场景睦瞳孔的画面，确实感觉睦是当场被退团这件事震惊到了然后做出的决定。 ...</blockquote>
+crychic解散当日五个人，四个人的主视角都解锁了
+目前没解锁的只有睦，从祥子角度来说睦知道的已经足够多了，而且她也没有骗睦，像交不起月之森学费所以要转学这种事都和她说了
+但是睦视角一定还有隐藏的东西没有披露，后续应该会解锁睦的主视角
+
+*****
+
+####  Aendst  
+##### 689#       发表于 2024-12-1 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66817534&amp;ptid=2208921" target="_blank">雨井绫 发表于 2024-12-1 21:47</a>
+
+pv里有个那个场景睦瞳孔的画面，确实感觉睦是当场被退团这件事震惊到了然后做出的决定。 ...</blockquote>
+这段有个很有意思的主观视角滤镜问题
+
+在灯和爽世的回忆里睦是背对着门口的，而且没有转身或者回头的任何表现
+
+但是如果pv那个场景是睦的回忆，睦其实是有在往门口看的，甚至有可能是正对面看着门的
+
+
+*****
+
+####  椎名真希  
+##### 690#       发表于 2024-12-1 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66817526&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2024-12-1 21:46</a>
+祥爹有什么好可怜的，有手有脚身体健康让15岁的女儿四处奔波糊口自己三天两头喝进局子，这就是纯出生。最后 ...</blockquote>
+和相似作品比较的话，完全不如同样丧妻寄养独女的冈崎朋也，朋也不会往孩子头上扔东西，甚至都不如朋也进过局子的爹
+感觉不用思考太多这部分，估计以后有祥爹也就一两句吧，祥子现在已经完全是独立的人了
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 691#       发表于 2024-12-1 21:54
+
+ 本帖最后由 綺々羅々ヴィヴ 于 2024-12-1 21:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66817493&amp;ptid=2208921" target="_blank">rushsong 发表于 2024-12-1 21:42</a>
+
+我很担心遗老会因为这段攻击mujica，毕竟之前就有人提过萝出场可能垫给🐔
+
+—— 来自 vivo V2183A, Andro ...</blockquote>
+没啥好垫的，压根就不是一个赛道了。就目前的信息来说鸡团压根就没在其他团出没的小场子演过，出道就是灯光舞美服化道拉满能坐好几千人的剧场。
+
+*****
+
+####  Aendst  
+##### 692#       发表于 2024-12-1 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66817580&amp;ptid=2208921" target="_blank">椎名真希 发表于 2024-12-1 21:54</a>
+
+和相似作品比较的话，完全不如同样丧妻寄养独女的冈崎朋也，朋也不会往孩子头上扔东西，甚至都不如朋也进 ...</blockquote>
+想问一下啤酒罐是直接刻意往祥子头上扔的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 693#       发表于 2024-12-1 21:54
+
+睦祥大概从出生开始就在一起了吧
+
+*****
+
+####  PDQ4  
+##### 694#       发表于 2024-12-1 21:55
+
+怎么就都解锁了，立希，只有祥子两个闪回怎么能算解锁<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

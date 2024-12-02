@@ -11147,3 +11147,43 @@ hhw在动画里被刻意回避被ban，反而让我更加期待mujica以后和hh
 不知道PV的电视机映射的是现实还是臆想，如果是现实那这场面也太地狱了（ ...</blockquote>
 睦祥唯二的红眼睛镜头 期待
 
+
+*****
+
+####  桜庭千景  
+##### 1088#       发表于 2024-12-2 17:58
+
+官网staff列表里系构就独角兽一个人，脚本里也没有柿本，还在滑菜花的有点那啥了
+
+*****
+
+####  qjw114514  
+##### 1089#       发表于 2024-12-2 17:58
+
+拿书砸镜子很危险的，好孩子不要学<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 1090#       发表于 2024-12-2 18:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">说个好消息，鸡动画op听起来风格挺萝的，保持下去吧，毕竟鸡可是双r的后继者
+
+
+*****
+
+####  PDQ4  
+##### 1091#       发表于 2024-12-2 18:02
+
+睦就是太爱当好孩子了才被人pua
+建议稍微学坏一点<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 1092#       发表于 2024-12-2 18:05
+
+手游拉老邦的话我现在最期待的还是睦和pp/彩千圣，祥子和蝶/真白
+祥子看见蝶的时候那真是眼睛里有光啊
+鸡和萝ras能怎么聊也想看<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

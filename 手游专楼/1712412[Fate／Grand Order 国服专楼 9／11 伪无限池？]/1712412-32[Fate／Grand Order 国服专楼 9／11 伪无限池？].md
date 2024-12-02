@@ -298,3 +298,19 @@ wo日，我还提前阵容，到跟前给忘了，现在还有柱子吗</blockqu
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  khxooo  
+##### 46832#       发表于 2024-12-2 17:55
+
+就是傻逼，但凡它直接复刻日服，4天王直接在昨晚寄，然后剩下全部打武雄估计都还没有被骂的那么惨，但是他偏偏选了得罪人最多的做法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  马桶3  
+##### 46833#       发表于 2024-12-2 18:03
+
+这90++的131我本来还想上呆毛打爆宝爆，结果三面血太多没爆死……<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+

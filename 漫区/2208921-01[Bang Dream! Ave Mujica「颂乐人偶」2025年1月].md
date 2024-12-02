@@ -12044,3 +12044,79 @@ PV过百万了</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鸡是有事务所的，所以资源不一定全是祥子自己拉线，这个东西只能看动画交不交代，不然就属于二创假药的范围了
 
+
+*****
+
+####  椎名真希  
+##### 1172#       发表于 2024-12-2 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66827130&amp;ptid=2208921" target="_blank">星天观测 发表于 2024-12-2 23:04</a>
+
+鸡是有事务所的，所以资源不一定全是祥子自己拉线，这个东西只能看动画交不交代，不然就属于二创假药的范围 ...</blockquote>
+大猫这么一折腾说不定其他几个人都暂时上不去学了
+
+话说很多二创里喵梦往往是恶役，没想到第一集还真就是做了恶役<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 1173#       发表于 2024-12-2 23:07
+
+又想到一点🐱🐘
+
+🐘的没退路是自己以为的没退路，但大喵可能才是真没退路的那个，网红做不起来，鸡团这把再起不来就只好回鸟不拉屎的老家找个土锤日男相夫教子了。所以🐘以为自己已经很不择手段往上爬了，但真正的不择手段吃流量她根本没想到过。
+
+太美味啦我们🐱🐘。
+
+*****
+
+####  紫吹兰  
+##### 1174#       发表于 2024-12-2 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66827095&amp;ptid=2208921" target="_blank">椎名真希 发表于 2024-12-2 22:57</a>
+
+倾向于还在，但是可能出席次数减少了，因为MYGO里灯视角是开学发现祥子在羽丘，所以初中阶段应该没转学还 ...</blockquote>
+灯初中不是羽丘的，CCC初中在羽丘的是立希，当然祥子休学还是大概率，毕竟立希回忆里也没有再ccc解散后见过祥子。
+
+*****
+
+####  wszweill  
+##### 1175#       发表于 2024-12-2 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66824117&amp;ptid=2208921" target="_blank">uhiuk 发表于 2024-12-2 03:33</a>
+
+确实有亲手做的可能性，不过以娃娃的精致程度，感觉只有专门从事制作人偶的才能做出这种水准的人偶。 ...</blockquote>
+不要再在二次元讲究这个<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer"> 要不看看mygo一晚上搞定的live服（ 没记错的话，3天两首新歌排练+做服装 的含金量（
+
+*****
+
+####  LeonsCat  
+##### 1176#       发表于 2024-12-2 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66827115&amp;ptid=2208921" target="_blank">wszweill 发表于 2024-12-2 23:02</a>
+
+我觉得这点挺别扭的。祥子亲爹的钱（破产前）一样不是白手起家呀。关键是祥P母鸡卡商业出道不靠外公的人脉 ...</blockquote>
+她又不是她爸，至今对外都是丰川家的小公主；就是她爸十有八九都是内退了不是公开处刑，内部传达到什么层级都难说。就算祥子本人有洁癖不用她外公的名头，很多时候只要你确实知道应该找谁，也真的能找到人愿意和你谈15分钟，那就是成功了，这个时候都算不上动用人脉——内推就是这么霸道。
+
+
+*****
+
+####  66367749  
+##### 1177#       发表于 2024-12-2 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66827115&amp;ptid=2208921" target="_blank">wszweill 发表于 2024-12-2 23:02</a>
+我觉得这点挺别扭的。祥子亲爹的钱（破产前）一样不是白手起家呀。关键是祥P母鸡卡商业出道不靠外公的人脉 ...</blockquote>
+丰川家的条件是要和她爹割席，都很清楚一边拿钱一边还养爹这种事是不会被允许发生的。
+
+*****
+
+####  wszweill  
+##### 1178#       发表于 2024-12-2 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66827186&amp;ptid=2208921" target="_blank">66367749 发表于 2024-12-2 10:14</a>
+
+丰川家的条件是要和她爹割席，都很清楚一边拿钱一边还养爹这种事是不会被允许发生的。 ...</blockquote>
+那不就绕回去，祥P都割席了，怎么蹭人脉的老问题嘛。祥P拉母鸡卡出道总不能真的只蹭若叶家吧（
+
+无论怎么想，人脉的意义都比单纯的 钱价值大
+

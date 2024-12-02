@@ -11911,3 +11911,50 @@ B站上的PV播放量已经150W+了，追番人数也已经破百万，除老钟
 
 我觉得不奇怪，都是初中毕业升学去别的学校，不可能去关心之前学校入学的人都有谁
 
+
+*****
+
+####  椎名真希  
+##### 1160#       发表于 2024-12-2 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66827017&amp;ptid=2208921" target="_blank">NODY 发表于 2024-12-2 22:42</a>
+
+学费付了一年所以初三还能读完是合理的，但这样又有一个很大的问题
+
+那就是这一年在月之森抬头不见低头见， ...</blockquote>
+在Crychic解散之前，soyo和祥子还是保持联系的，soyo经常问祥子能不能来，大部分时间祥子都有事（打工）去不了排练，而且祥子让睦对大家保密她家的事情
+
+所以那段时间应该还是去上学了，但是一放学就去打工参加不了排练，好不容易跟soyo说能去一次又得去派出所接祥爹，后来就心态崩了去解散了
+
+
+*****
+
+####  贰臣  
+##### 1161#       发表于 2024-12-2 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66827019&amp;ptid=2208921" target="_blank">椎名真希 发表于 2024-12-2 22:43</a>
+
+这有什么奇怪的地方吗</blockquote>
+中途转学到羽丘的初中部还挺显眼的，所以我觉得就是正常升学到羽丘高中部了，大部分人也觉得正常升学才去了羽丘比较合理吧
+
+
+*****
+
+####  NODY  
+##### 1162#       发表于 2024-12-2 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66827031&amp;ptid=2208921" target="_blank">椎名真希 发表于 2024-12-2 22:46</a>
+
+在Crychic解散之前，soyo和祥子还是保持联系的，soyo经常问祥子能不能来，大部分时间祥子都有事（打工）去 ...</blockquote>
+解散最晚不超过6月初，但升学是来年4月，中间隔了将近一年。好奇的就是这一年祥子还在不在月之森上学
+
+*****
+
+####  好想看Mujica啊  
+##### 1163#       发表于 2024-12-2 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66827067&amp;ptid=2208921" target="_blank">NODY 发表于 2024-12-2 22:52</a>
+
+解散最晚不超过6月初，但升学是来年4月，中间隔了将近一年。好奇的就是这一年祥子还在不在月之森上学 ...</blockquote>
+不在吧，不然soyo还找不到人也太菜了吧
+

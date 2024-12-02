@@ -17445,3 +17445,18 @@ mikorone年末企划100%确定
 
 对cover的文字游戏没有兴趣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直接扒皮
 
+
+*****
+
+####  holoan  
+##### 10315#         楼主| 发表于 2024-12-2 22:49
+
+之前一直说的是自己的收入都交给母亲打理，你真的知道自己年收多少吗？4亿够吗？
+
+*****
+
+####  karastar  
+##### 10316#       发表于 2024-12-2 22:54
+
+miko：我不知道自己有多少钱，我对钱不感兴趣
+

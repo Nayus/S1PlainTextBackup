@@ -252,3 +252,16 @@ wo日，我还提前阵容，到跟前给忘了，现在还有柱子吗</blockqu
 —— 来自 鹅球 v3.1.88.3-alpha</blockquote>
 差不多吧，现在的一线拐是奥伯龙杀狐和c呆
 
+
+*****
+
+####  khxooo  
+##### 46827#       发表于 2024-12-2 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66822876&amp;ptid=1712412" target="_blank">doublehit 发表于 2024-12-2 14:26</a>
+
+把号找回来了，梅林cba是不是现在退环境了啊
+
+—— 来自 鹅球 v3.1.88.3-alpha</blockquote>
+梅林后面变成30NP充能，还是能用一下的。
+

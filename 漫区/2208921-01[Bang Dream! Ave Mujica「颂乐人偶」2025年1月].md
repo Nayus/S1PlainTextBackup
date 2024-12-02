@@ -10628,3 +10628,52 @@ live结束后如何处理，第二集是否就回收了初喵对峙画面
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">pv3其实有一部分问题是不知道发生时间，大猫敲鼓那段多半就是母鸡卡成立前……
 
+
+*****
+
+####  星天观测  
+##### 1037#       发表于 2024-12-2 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66822935&amp;ptid=2208921" target="_blank">Prairial 发表于 2024-12-2 14:32</a>
+
+貌似是祥子以前先说最火的时候摘头套，大猫觉得正在此时就摘了，在武道馆搞个big news
+
+我感觉既然传闻说 ...</blockquote>
+说过要摘，但是喵梦搞事是因为她本来就对戴面具这个事情排斥，但是为什么挑在这个时间点搞暂且不明
+
+至于你说的互换，我没搞明白你的逻辑，不过反正也是你个人的考虑，你可以保留着等动画开播
+
+*****
+
+####  星天观测  
+##### 1038#       发表于 2024-12-2 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66822950&amp;ptid=2208921" target="_blank">狮子咕 发表于 2024-12-2 14:35</a>
+
+pv3其实有一部分问题是不知道发生时间，大猫敲鼓那段多半就是母鸡卡成立前…… ...</blockquote>
+不确定是不是成立前，可能是，但是当时喵梦配的台词是我可不会输，那这句话是对谁说的就不清楚了
+
+或许这也就是喵梦的问题解决后她维持团队+努力练鼓的动力之一
+
+
+*****
+
+####  莉缇娅  
+##### 1039#       发表于 2024-12-2 14:41
+
+可以了
+
+再聊丰川，那咱们看的就不是少女乐队，是半泽直树了。
+
+*****
+
+####  狮子咕  
+##### 1040#       发表于 2024-12-2 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66822986&amp;ptid=2208921" target="_blank">星天观测 发表于 2024-12-2 14:39</a>
+
+不确定是不是成立前，可能是，但是当时喵梦配的台词是我可不会输，那这句话是对谁说的就不清楚了
+
+或许这 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">努力的时候喊自己不会输也算定番吧，当然也可能是刚成立拼命练谱的时候……虽然我觉得母鸡卡不会全倒叙，但是肯定中间还有一部分要倒叙的
+

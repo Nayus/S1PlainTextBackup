@@ -16821,3 +16821,15 @@ EA487C0A626CFAE760B56986114137A2.jpg
 
 感觉是大拼盘
 
+
+*****
+
+####  CyDiablo  
+##### 26552#       发表于 2024-12-2 19:05
+
+十年返璞归真<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+【BanG Dream! 企划十周年纪念】
+
+隆重公开Afterglow的十周年纪念服装主视觉图♪
+<img src="https://p.sda1.dev/20/ce34b1d51e609e201927ca863b1bb2c5/1733137404762.jpg" referrerpolicy="no-referrer">
+

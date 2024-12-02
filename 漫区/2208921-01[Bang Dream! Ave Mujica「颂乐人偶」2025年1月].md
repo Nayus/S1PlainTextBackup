@@ -11264,3 +11264,26 @@ hhw在动画里被刻意回避被ban，反而让我更加期待mujica以后和hh
 这个有人看过么</blockquote>
 独角兽对百合定义的思考与实践&gt;&lt;
 
+
+*****
+
+####  蜇灵  
+##### 1099#       发表于 2024-12-2 19:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66823729&amp;ptid=2208921" target="_blank">星天观测 发表于 2024-12-2 16:01</a>
+有没有可能14号和15号有live，live后有邦tv呢
+
+不会真觉得全是只看动画的吧</blockquote>
+但这楼标题不就是动画楼吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蜇灵  
+##### 1100#       发表于 2024-12-2 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66824746&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-2 17:26</a>
+看见隔壁说明年有个bang dream live在申了
+真1w2座的话大概不是鸡，可能邦邦十周年亚巡？
+老登藏个这么大的 ...</blockquote>
+好像说的是r
+

@@ -12721,3 +12721,86 @@ pv有个海港画面，睦祥都穿着演出服，睦向祥子走来，得看这
 
 地狱一点就是出来的时候娃娃忘在祥爹那边，祥子回去拿刚好被狗仔拍了传出去，现在的独角兽我觉得不是写不出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives10  
+##### 1238#       发表于 2024-12-3 00:18
+
+从丰川家出来都拿了人偶
+离开祥爹时却把人偶忘了这情节也太别扭了
+
+*****
+
+####  狮子咕  
+##### 1239#       发表于 2024-12-3 00:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">同款表情
+
+<img src="https://img.saraba1st.com/forum/202412/03/000836ol34l38twt0iwk08.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (77.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-3 00:08 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">扔书可能对应的是这里？睦直接把自己房间拆了？
+
+<img src="https://img.saraba1st.com/forum/202412/03/001212fduq2w2953pqpduw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (36.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-3 00:12 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">和第三集比还是在一个位置，然后还是这身私服，可能确实是回来了吧（出走半生，归来仍是继承人.jpg）
+
+<img src="https://img.saraba1st.com/forum/202412/03/001941nqb4pt1ipt4pblqp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (59.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-3 00:19 上传
+
+*****
+
+####  狮子咕  
+##### 1240#       发表于 2024-12-3 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66827590&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-3 00:18</a>
+
+从丰川家出来都拿了人偶
+
+离开祥爹时却把人偶忘了这情节也太别扭了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那时候只是生气，又不是打算真的不回去
+
+
+*****
+
+####  Aendst  
+##### 1241#       发表于 2024-12-3 00:23
+
+其实有点在意红色背景光的意义是什么，那几个镜头都挺惊悚的
+
+破坏性和狂气度很高，说是现实好像也不怎么现实，说不是现实是幻觉感觉也不对
+
+难道是什么心象风景？
+
+总不能是什么全新魔女结界吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  狮子咕  
+##### 1242#       发表于 2024-12-3 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66827607&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-3 00:23</a>
+
+其实有点在意红色背景光的意义是什么，那几个镜头都挺惊悚的
+
+破坏性和狂气度很高，说是现实好像也不怎么现 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">母鸡卡翻转吧，正常时候是下弦月，红月的时候就变成上弦月了（然后开爆）
+

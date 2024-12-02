@@ -11958,3 +11958,89 @@ B站上的PV播放量已经150W+了，追番人数也已经破百万，除老钟
 解散最晚不超过6月初，但升学是来年4月，中间隔了将近一年。好奇的就是这一年祥子还在不在月之森上学 ...</blockquote>
 不在吧，不然soyo还找不到人也太菜了吧
 
+
+*****
+
+####  贰臣  
+##### 1164#       发表于 2024-12-2 22:56
+
+PV过百万了
+
+<img src="https://img.saraba1st.com/forum/202412/02/225601x15p1fg1arqtm1m5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (16.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-2 22:56 上传
+
+*****
+
+####  椎名真希  
+##### 1165#       发表于 2024-12-2 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66827067&amp;ptid=2208921" target="_blank">NODY 发表于 2024-12-2 22:52</a>
+
+解散最晚不超过6月初，但升学是来年4月，中间隔了将近一年。好奇的就是这一年祥子还在不在月之森上学 ...</blockquote>
+倾向于还在，但是可能出席次数减少了，因为MYGO里灯视角是开学发现祥子在羽丘，所以初中阶段应该没转学还在月之森
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 1166#       发表于 2024-12-2 22:58
+
+才发一个pv二创已经怼我一脸了
+
+*****
+
+####  椎名真希  
+##### 1167#       发表于 2024-12-2 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66827090&amp;ptid=2208921" target="_blank">贰臣 发表于 2024-12-2 22:56</a>
+
+PV过百万了</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202412/02/230151p8tlui7068acshuh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-2 23:01 上传
+
+深夜了还有一千人在看<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wszweill  
+##### 1168#       发表于 2024-12-2 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66822160&amp;ptid=2208921" target="_blank">rikaren 发表于 2024-12-1 23:53</a>
+
+以祥的性格就算外公打钱祥也不会要啊</blockquote>
+我觉得这点挺别扭的。祥子亲爹的钱（破产前）一样不是白手起家呀。关键是祥P母鸡卡商业出道不靠外公的人脉，只能靠睦父母的人脉了，总不能是客服拉人脉吧，那睦不 真成超级工具人了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">  
+
+*****
+
+####  66367749  
+##### 1169#       发表于 2024-12-2 23:03
+
+初中要么休学在家备考要么读完吧，学费交都交了
+
+*****
+
+####  cherryjia12  
+##### 1170#       发表于 2024-12-2 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66827114&amp;ptid=2208921" target="_blank">椎名真希 发表于 2024-12-2 23:02</a>
+深夜了还有一千人在看</blockquote>
+我感觉从中午开始无论何时点进去都是1000+观看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 1171#       发表于 2024-12-2 23:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鸡是有事务所的，所以资源不一定全是祥子自己拉线，这个东西只能看动画交不交代，不然就属于二创假药的范围了
+

@@ -482,3 +482,13 @@ CGスーパーバイザー
 有cast表吗 独角兽还是系构吗</blockquote>
 [https://anime.bang-dream.com/avemujica/staff-cast/](https://anime.bang-dream.com/avemujica/staff-cast/)
 
+
+*****
+
+####  chih12  
+##### 42#       发表于 2024-12-2 20:25
+
+绷不住，怎么现在连枪版都出了
+
+武士道明知道有泄露风险还搞点映，就硬炒呗
+

@@ -286,3 +286,38 @@
 
 希望圣诞是无限池，屯了170金苹果
 
+
+*****
+
+####  xiongxingyu  
+##### 15217#       发表于 2024-12-2 18:05
+
+ 本帖最后由 xiongxingyu 于 2024-12-2 18:13 编辑 
+
+今天的回忆是勇者王，有了学姐以后简直吊打，月癌相性克制，魔性特攻，暴击处理宝具耐性和战续，什么强化接触、强化成功率down，一个技能通通给你防出去，破第二管血时甚至可以靠1技能的防御buff和回血buff硬吃勇者王宝具从而实现卖队友换人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  quanlix  
+##### 15218#       发表于 2024-12-2 18:29
+
+结果还是用吉娜可单挑，把手里的5宝雪儿忘得死死的
+
+*****
+
+####  jackyhuang  
+##### 15219#       发表于 2024-12-2 20:16
+
+雪儿这个配置太针对了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+
+*****
+
+####  森兰丸  
+##### 15220#       发表于 2024-12-2 21:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">一开始想说后悔没抽假印度人了....打完后来一想自己抱个5宝大腿的不是更好
+
+反正高难又不能上复制人....自己还是出拐就好了
+

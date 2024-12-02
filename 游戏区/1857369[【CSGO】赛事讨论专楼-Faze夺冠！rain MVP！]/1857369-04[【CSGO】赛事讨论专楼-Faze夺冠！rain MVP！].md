@@ -65,3 +65,19 @@ RA！RA！RA！
 
 明天ra打mibr是不是也有机会啊，mibr我看也是绿色的一笔
 
+
+*****
+
+####  TiiTiiLL  
+##### 4566#       发表于 2024-12-2 08:49
+
+<img src="https://img.saraba1st.com/forum/202412/02/084912w88g8wq9979ivgiw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>4eafa7eb5776a4db3f664bd3566a7fdd.jpeg</strong> (231.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-2 08:49 上传
+
+昨天RA这场现场氛围确实拉满了，最燃的一集
+

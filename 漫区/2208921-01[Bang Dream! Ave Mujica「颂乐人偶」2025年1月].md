@@ -10779,3 +10779,32 @@ pv3其实有一部分问题是不知道发生时间，大猫敲鼓那段多半�
 <img src="https://p.sda1.dev/20/f0821df3fb5d216ad39ad19cb1acfbeb/image.jpg" referrerpolicy="no-referrer">
 Q版keai。
 
+
+*****
+
+####  ads147147  
+##### 1051#       发表于 2024-12-2 15:27
+
+当producer的肯定得抗压的，你搞事就先收拾烂摊子再收拾你jpg，别慌，祥p没那么脆弱<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+说起来玩金属的怎么能不叛逆呢，不叛逆怎么玩金属。
+
+
+*****
+
+####  小妻水亚美  
+##### 1052#       发表于 2024-12-2 15:30
+
+<img src="https://p.sda1.dev/20/68f2f34d7d37f6d9dc462b04cf4dc8e8/IMG_CMP_109525435.jpeg" referrerpolicy="no-referrer">
+有兑换的奖品实物照片吗？
+
+—— 来自 OPPO PGFM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  skives10  
+##### 1053#       发表于 2024-12-2 15:34
+
+祥子爹妈的发色和蓝色一点关系都没有
+我已经迫不及待看到森美奈美登场了
+

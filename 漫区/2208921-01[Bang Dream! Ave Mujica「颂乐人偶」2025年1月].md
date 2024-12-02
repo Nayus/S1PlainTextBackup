@@ -9342,3 +9342,93 @@ sumimi那么累说明这份工作不是她真心想干的，那发生了什么�
 以及哪怕不考虑速通武道馆，就是前面拉队伍、搞定演出布置来说，也是“超高校级的制作人”，不姓丰 ...</blockquote>
 入赘的女婿肯定是要改娘家姓的，所以不存在不姓丰川的问题
 
+
+*****
+
+####  狮子咕  
+##### 908#       发表于 2024-12-2 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66821085&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-2 11:07</a>
+
+三次先不说，你鸡动画什么时候走偶像励志戏码了，别cue pp
+
+至于二创早就烂完了，还差这一篇 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要是当其他偶像作品主角都在往这个方向努力的时候，来了个直接带资直接上的感觉很现实也很幽默
+
+*****
+
+####  PDQ4  
+##### 909#       发表于 2024-12-2 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66821203&amp;ptid=2208921" target="_blank">狮子咕 发表于 2024-12-2 11:17</a>
+ 主要是当其他偶像作品主角都在往这个方向努力的时候，来了个直接带资直接上的感觉很现实也很幽默 ...</blockquote>
+其他偶像作品也没有开局就这样的啊
+除非你把推子也算偶像番了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qratosones1337  
+##### 910#       发表于 2024-12-2 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66815212&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-1 16:46</a>
+
+感觉祥子如果体力更好一点
+
+她甚至有可能像星高空一样去拉人力车</blockquote>
+草，这下真成骆驼祥子了
+
+*****
+
+####  狮子咕  
+##### 911#       发表于 2024-12-2 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66821230&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-2 11:19</a>
+
+其他偶像作品也没有开局就这样的啊
+
+除非你把推子也算偶像番了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这倒是，这第一集刺激的像是预料中第八集左右才会发生的事，现在第一集就炸了，祥子的好日子还在后头呢（指糟心）
+
+
+*****
+
+####  紫吹兰  
+##### 912#       发表于 2024-12-2 11:22
+
+ 本帖最后由 紫吹兰 于 2024-12-2 11:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66821006&amp;ptid=2208921" target="_blank">Prairial 发表于 2024-12-2 10:56</a>
+
+看了下剧透，祥爹是轻量级韭留美这段算自圆其说了，但△是轻量级水子姐实锤了么？一开始那个回复是△小号发 ...</blockquote>
+应该不会，角色有自己的小心思或者是阴暗面很正常，在实现自己的目的的过程中作为副作用伤害了其他角色也很正常，但是通过见不得光的手段蓄意伤害另一个角色对于角色的风评影响太大，武士道不会让独角兽这么干的。
+
+*****
+
+####  PDQ4  
+##### 913#       发表于 2024-12-2 11:23
+
+p就该天天为了乐队的事犯胃病
+我本来看好祥p哪天肠胃炎犯了救护车拉走，现在看好像太健全了不适合在鸡出现<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  silversor  
+##### 914#       发表于 2024-12-2 11:24
+
+写着赠品已赠完，瞬间不想买了
+
+*****
+
+####  Aendst  
+##### 915#       发表于 2024-12-2 11:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实看第一话这样写……祥子进医院的可能性好像更高了
+
+本来就头疼事一大堆，警局也出场了，真做医院场景也没什么奇怪的了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 916#       发表于 2024-12-2 11:26
+
+倒不如说进医院早就预测到了 进局子是真没想到 虽然是去捞人
+

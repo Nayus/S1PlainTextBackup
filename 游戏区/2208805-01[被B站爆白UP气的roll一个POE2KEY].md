@@ -1397,3 +1397,22 @@ POE2我记得锁国区吧，国区账号能走steam入库正常玩吗
 斗争这么激烈笑死，还有开小号专门来骂楼主的，狠狠支持一把好吧，暴白司马 ...</blockquote>
 一个22年注册的说别人是小号幽默，要不是之前不注册看不了卓明谷我也不需要注册<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">，流批去d4社区视频低下拉屎的时候怎么没见你这么义愤填膺啊，叫你们流批真是太对了
 
+
+*****
+
+####  佩露夏  
+##### 153#       发表于 2024-12-2 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66818197&amp;ptid=2208805" target="_blank">突发性哮喘病患 发表于 2024-12-1 23:00</a>
+注册不到半年，懒得理，泥潭权重大被搜出来了</blockquote>
+真不知道哪款游戏的玩家每个赛季都孜孜不倦的碰瓷d4到处拉屎，哎真的不知道<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  活久见  
+##### 154#       发表于 2024-12-2 11:18
+
+赵老师你不如送给我，我去微博帮你骂人
+
+另外，交保护费了吗
+

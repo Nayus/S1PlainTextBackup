@@ -16649,3 +16649,13 @@ EA487C0A626CFAE760B56986114137A2.jpg
 
 嘛虽然发了也没多少人看就是了
 
+
+*****
+
+####  刑部姬真可爱  
+##### 26536#       发表于 2024-12-2 11:25
+
+一月mujica播完后，PICO大概啥时候能出？2026吗？
+
+结束的时候再来个45人大合奏？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

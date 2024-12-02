@@ -11437,3 +11437,15 @@ op地区大赛就在新国立了决赛不敢想了<img src="https://static.sarab
 
 突然想到隔壁天音在莲片场要被拿去当垫脚石了。。。
 
+
+*****
+
+####  csolfans  
+##### 1117#       发表于 2024-12-2 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66822413&amp;ptid=2201887" target="_blank">日野下花帆 发表于 2024-12-2 13:24</a>
+这集反而比上一集写得好 上一集是真糊弄这集还能看出来点编排 虽然信息量不大但是很完整的承上启下了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">随便说一下上一集的演出还是京极
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

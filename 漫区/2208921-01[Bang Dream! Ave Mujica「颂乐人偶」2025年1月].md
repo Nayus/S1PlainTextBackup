@@ -11677,3 +11677,18 @@ B站上的PV播放量已经150W+了，追番人数也已经破百万，除老钟
 已知：参加祥妈葬礼的时候，睦坐在祥子身后</blockquote>
 这下姐妹说圆满了<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  帆前  
+##### 1134#       发表于 2024-12-2 21:43
+
+不好意思打扰了，我本来根本就不想在专楼里发什么跟讨论mujica本身无关的东西，奈何某生物只知道生物利用s1专楼没有楼层评论区机制，搞些阴暗不敢见光搞笑不知所谓的小儿科手段，骚扰了我，试图把好人架到只好忍气吞声不敢发声还击的位置<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+你从昨天开始就在为你那可笑的cp问题争闲气，仅仅只是为了你的立场就要扣鹅恶心人发个“平衡”，我本来都懒得跟你这种幼稚病行为计较，可惜你非要继续跳脚。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">从一开始，我对你们拼命争夺的专楼内cp问题话语权就没有一丝一毫的兴趣，你们一惊一乍地唯恐你们对cp问题维护的事业受到一个小想法小分享破坏的样子，更是荒诞且可笑。我当时以很收敛克制的方式简单感叹一下完了就打算结束了，哎，你们又不乐意了。不乐意可以正常反驳，驳倒我也行呀，非要搞点阴暗手段纠缠骚扰，这我就不能忍了。
+<img src="https://p.sda1.dev/20/3473cc23c2d063fbe34244ca7f9f0aa7/Screenshot_20241202_205442.jpg" referrerpolicy="no-referrer">
+
+你这种为了抢占话语权和地位使用恶心人手段骚扰人的魔怔生物，只能显示出自己的无能<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我本来对跟你这种生物对线没有兴趣，谁叫你非要纠缠呢？以为通过暗中戳楼中评分恶心人的方式就能阻止好人回击了，那不行，虽然在专楼里占上一格贴人很抱歉，但是我不能因为你利用了这一点，就不还击了，“-LYRE-”，记住，是你先做了无聊、阴暗、不敢光明正大反驳的小破事，骚扰我，我才不得不正面刚的，受了冤枉，人总得稍微反击一下子
+
+占用一楼很抱歉，这也是该生物利用s1专楼没有楼层评论区机制打阴枪所致，如无该生物后续恶心纠缠骚扰，我并没有继续霸屏打扰的计划
+

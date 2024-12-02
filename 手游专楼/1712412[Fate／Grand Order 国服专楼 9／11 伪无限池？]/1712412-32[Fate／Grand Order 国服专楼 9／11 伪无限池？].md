@@ -208,3 +208,21 @@ wo日，我还提前阵容，到跟前给忘了，现在还有柱子吗</blockqu
 自回体因为打白纸本的缘故根本来不及打柱子，原来那么多人为了这个活动嗑苹果啊？ ...</blockquote>
 你当成短时间内无限次数的白纸本就懂了
 
+
+*****
+
+####  xy1041  
+##### 46824#       发表于 2024-12-2 13:22
+
+狗屎柱子时间，逼的我在公司用远程桌面登家里电脑挂机
+
+<img src="https://img.saraba1st.com/forum/202412/02/132158wjtt74lbtqtt7yhf.jpg" referrerpolicy="no-referrer">
+
+<strong>33659534-EA4D-493E-BCEA-236BB495106F.jpg</strong> (1.21 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-2 13:21 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

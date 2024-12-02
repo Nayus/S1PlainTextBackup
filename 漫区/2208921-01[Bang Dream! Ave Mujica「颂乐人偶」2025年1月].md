@@ -10204,3 +10204,95 @@ mujica有丰川家的事这个是造谣的吧。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ydsbbt  
+##### 996#       发表于 2024-12-2 13:19
+
+第一集祥子回忆部分的暖色调和冷色调的画面对比和轻拍第六集好像，都是独角兽脚本回
+
+*****
+
+####  skives10  
+##### 997#       发表于 2024-12-2 13:20
+
+蛰次可以弥补轻拍后半的遗憾吗 
+独角兽老师<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  金钱与民主  
+##### 998#       发表于 2024-12-2 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66817119&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-1 20:49</a>
+
+确实如此……而且既然已经涉及角色背景有人死亡的状况，包饺子这个行为本身就会很难处理
+
+不如说从首话来 ...</blockquote>
+草，一个晚上过去猛然醒悟了：关于她爹根本不需要特地的包饺子啊，想一想不管是上季13话还是目前第1话的剧透，都在大量突出“酗酒”这个属性，那最后只要告诉你祥爹把酒戒了不就够了，其他的后续根本就不需要画蛇添足的去说，让观众们自己去想不就得了。
+
+
+*****
+
+####  yozoraxsx  
+##### 999#       发表于 2024-12-2 13:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我是觉得按理说不应该出现祥子家这种抽象状况的。
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">有假药点子了。老爷子发现祥子从月之森跑了赞助初华去捞祥子，曲线打钱。
+
+*****
+
+####  ydsbbt  
+##### 1000#       发表于 2024-12-2 13:23
+
+睦在蝶团live和mygolive上都鼓掌了，听音乐会却没什么反应，看来是真不喜欢管弦乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rikaren  
+##### 1001#       发表于 2024-12-2 13:23
+
+<blockquote>akiomn 发表于 2024-12-2 01:15
+看看半身设定独角兽怎么搞，我记得有人说祥妈葬礼睦也来了，按常理说葬礼应该都是家属亲戚朋友出席，睦从小 ...</blockquote>
+可以直接开奶两人是表姐妹及以上的关系了。
+
+*****
+
+####  Aendst  
+##### 1002#       发表于 2024-12-2 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66822388&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2024-12-2 13:20</a>
+
+草，一个晚上过去猛然醒悟了：关于她爹根本不需要特地的包饺子啊，想一想不管是上季13话还是目前第1话的 ...</blockquote>
+确实也是，简单处理一下说爹振作了就可以，反正本来就是背景板
+
+只要不分太多戏份确实就不会很影响整体观感
+
+*****
+
+####  PDQ4  
+##### 1003#       发表于 2024-12-2 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66822351&amp;ptid=2208921" target="_blank">ggxx001 发表于 2024-12-2 13:14</a>
+ 修正倒不至于 但是事后面对睦 总不可能插科打诨糊弄过去吧 对祥可以是欢喜冤家 对睦真不好写了 毕竟真得 ...</blockquote>
+睦这点确实
+可能从睦那边下手概率更高，畏惧露面这一点解决以后睦说我不怪你
+但是睦不怪不意味着祥子和其他队友不搞她<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ydsbbt  
+##### 1004#       发表于 2024-12-2 13:26
+
+睦葬礼上就坐在祥子身后
+
+*****
+
+####  akiomn  
+##### 1005#       发表于 2024-12-2 13:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到盗摄的了，剧透里喵梦摘睦假面＋睦惊慌遮面这段是真的
+键帽是真的欠爱了，不敢想一月二号第一集正式播出后喵梦风评有多炸
+

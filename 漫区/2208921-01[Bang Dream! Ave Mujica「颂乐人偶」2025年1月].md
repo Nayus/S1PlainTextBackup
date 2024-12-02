@@ -11623,3 +11623,26 @@ B站上的PV播放量已经150W+了，追番人数也已经破百万，除老钟
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  仓鼠胖太  
+##### 1129#       发表于 2024-12-2 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66825942&amp;ptid=2208921" target="_blank">相坂君 发表于 2024-12-2 19:50</a>
+祥妈妈的名字叫みずほ，翻译应该是叫“瑞穗”
+
+独角兽说过睦祥的名字寓意很好，应该是一起取的，祥妈妈的名 ...</blockquote>
+不是森みなみ吗，汉字没有释出
+
+
+*****
+
+####  相坂君  
+##### 1130#       发表于 2024-12-2 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66826417&amp;ptid=2208921" target="_blank">仓鼠胖太 发表于 2024-12-2 21:00</a>
+
+不是森みなみ吗，汉字没有释出</blockquote>
+这是艺名，不一定是真名，有可能叫みなみ，也有可能叫别的
+

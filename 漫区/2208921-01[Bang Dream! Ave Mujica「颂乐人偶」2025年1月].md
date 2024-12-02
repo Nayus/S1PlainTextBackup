@@ -11358,3 +11358,28 @@ Oricon后编 2023-9-15  <blockquote>——《BanG Dream! It's MyGO!!!!!》13话�
 但这楼标题不就是动画楼吗</blockquote>
 那怎么办呢，同时关注企划的去别楼说话么
 
+
+*****
+
+####  Sabbah  
+##### 1103#       发表于 2024-12-2 19:19
+
+ 本帖最后由 Sabbah 于 2024-12-2 19:20 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">道民岛民这种农村人员上京总要背负着什么的发展已经有点不想看了，文艺复兴一下来点永远都在往札幌飞的情节。
+
+*****
+
+####  贰臣  
+##### 1104#       发表于 2024-12-2 19:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">好难熬啊好想被一拳打晕一个月后再醒过来
+
+
+*****
+
+####  枫林不见  
+##### 1105#       发表于 2024-12-2 19:26
+
+已经在批判性摄影里看完了，现在的我是最寂寞的我了
+

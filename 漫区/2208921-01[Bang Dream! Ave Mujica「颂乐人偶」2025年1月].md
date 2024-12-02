@@ -9093,3 +9093,127 @@ BV1e26AY6Enz
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
 
+
+*****
+
+####  yone0000  
+##### 883#       发表于 2024-12-2 10:46
+
+现在已经有了灯视角下的祥子，SOYO视角下的祥子，母鸡卡第一话有祥子自己的回忆，之后也应该有睦和初华视角下的祥子吧。，
+
+*****
+
+####  好想看Mujica啊  
+##### 884#       发表于 2024-12-2 10:47
+
+mujica剧情发生的时候，小白已经把理事长干挺了吧
+
+*****
+
+####  akiomn  
+##### 885#       发表于 2024-12-2 10:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">pv3出来我觉得独角兽是真不打算装了，反正给祥子万能之人的设定了，那干脆到底直接写大女主吧！
+祥子这条线贯穿始终，每个队员的事全和祥子有关，最后祥子收拾完初华的烂摊子，自己绷不住开爆了，然后得有请鸡头四来救赎祥子了
+
+*****
+
+####  Aendst  
+##### 886#       发表于 2024-12-2 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66820850&amp;ptid=2208921" target="_blank">星天观测 发表于 2024-12-2 10:45</a>
+
+如果说这么走那可能就和李子访谈说的感觉自己的剧本像侦探小说（是这样吧？）有点相悖了
+
+现在或许可以回 ...</blockquote>
+台本应该不是分角色的，是大家都用一样的全员份，但是分各话
+
+佐佐木也是说自己是被stf透露初华故事的时候吓了一跳，说明不是台本角色差分
+
+侦探小说这个我记得岡田也有提到过
+
+可以确认的是mujica可能会有大量悬念
+
+*****
+
+####  紫吹兰  
+##### 887#       发表于 2024-12-2 10:49
+
+日本的收养纯粹就是继承人顺位，爷爷收养孙子，哥哥收养弟弟都是常事，极端情况下甚至有侄子收养叔叔，至于婿养子那根本不用单独拿出来说。
+
+*****
+
+####  skives10  
+##### 888#       发表于 2024-12-2 10:50
+
+一想到揭面之后这帮人去上学的场面就难绷
+
+*****
+
+####  星天观测  
+##### 889#       发表于 2024-12-2 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66820897&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-2 10:48</a>
+
+台本应该不是分角色的，是大家都用一样的全员份，但是分各话
+
+佐佐木也是说自己是被stf透露初华故事的时候 ...</blockquote>
+是么，但是好像按2月份的访谈来看，高尾他们是不知道李子的剧本的？
+
+好像还说了“诶真的吗好想知道”这样的话来着
+
+不会又是yhm的演技吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 890#       发表于 2024-12-2 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66820941&amp;ptid=2208921" target="_blank">星天观测 发表于 2024-12-2 10:51</a>
+
+是么，但是好像按2月份的访谈来看，高尾他们是不知道李子的剧本的？
+
+好像还说了“诶真的吗好想知道”这样 ...</blockquote>
+这个就是stf透露初华故事的时候，佐佐木本人都吓了一跳，我个人推测是手头的台本还没到那里（所以后期剧情应该会聚焦初华）
+
+可能因为涉及角色演绎，stf提前透露给佐佐木后期内容了
+
+*****
+
+####  PDQ4  
+##### 891#       发表于 2024-12-2 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66820923&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-2 10:50</a>
+ 一想到揭面之后这帮人去上学的场面就难绷</blockquote>
+喵梦要是社会人这算不算污了JK的清白<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 892#       发表于 2024-12-2 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66820966&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-2 10:53</a>
+ 这个就是stf透露初华故事的时候，佐佐木本人都吓了一跳，我个人推测是手头的台本还没到那里（所以后期剧情 ...</blockquote>
+什么寒蝉业卒，悬疑要素就别学这个了<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 893#       发表于 2024-12-2 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66820978&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-2 10:54</a>
+
+什么寒蝉业卒，悬疑要素就别学这个了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">往好里想，我记得魔圆是不是好像也这样做过？
+
+*****
+
+####  akiomn  
+##### 894#       发表于 2024-12-2 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66820923&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-2 10:50</a>
+一想到揭面之后这帮人去上学的场面就难绷</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最难顶的可能是立希了，后桌俩个背着她搞了那么大的事，两个前队友也有份
+劣等感要拉满了
+

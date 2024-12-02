@@ -10808,3 +10808,63 @@ Q版keai。
 祥子爹妈的发色和蓝色一点关系都没有
 我已经迫不及待看到森美奈美登场了
 
+
+*****
+
+####  芸香科植物激推  
+##### 1054#       发表于 2024-12-2 15:50
+
+祥子爹的旧姓实际上是若叶或者森的可能性<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  狮子咕  
+##### 1055#       发表于 2024-12-2 15:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">若叶的可能性非常低，姓若叶就不会放着丢外头到处进局子了
+
+*****
+
+####  金钱与民主  
+##### 1056#       发表于 2024-12-2 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66823502&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-2 15:34</a>
+
+祥子爹妈的发色和蓝色一点关系都没有
+
+我已经迫不及待看到森美奈美登场了</blockquote>
+邦邦里亲姐妹的发色都可能不一样呢，参考宇田川巴和宇田川亚子。
+
+*****
+
+####  jkl  
+##### 1057#       发表于 2024-12-2 15:53
+
+一想到后面一个月都是来来回回车轱辘第一集就觉得挺变态的
+
+*****
+
+####  qjw114514  
+##### 1058#       发表于 2024-12-2 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66823462&amp;ptid=2208921" target="_blank">小妻水亚美 发表于 2024-12-2 15:30</a>
+有兑换的奖品实物照片吗？</blockquote>
+实体店今天是不是还没有联动商品啊，下班后想去罗森看看<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 1059#       发表于 2024-12-2 15:53
+
+姓若叶或者森的话应该早就被文春挖出来当明星家族丑闻了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  月島まりな  
+##### 1060#       发表于 2024-12-2 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66823635&amp;ptid=2208921" target="_blank">qjw114514 发表于 2024-12-2 15:53</a>
+
+实体店今天是不是还没有联动商品啊，下班后想去罗森看看</blockquote>
+12月9号上
+

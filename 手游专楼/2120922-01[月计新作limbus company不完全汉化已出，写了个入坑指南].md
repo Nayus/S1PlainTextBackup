@@ -595,3 +595,14 @@ woc，边狱公司和明日方舟会在2025年双向联动！
 
 顶楼的秋秋群是爆炸了还是不对外开放了？好像搜不到了
 
+
+*****
+
+####  erratic璃月  
+##### 1001#       发表于 2024-12-2 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66821220&amp;ptid=2120922" target="_blank">过不了审 发表于 2024-12-2 11:18</a>
+
+顶楼的秋秋群是爆炸了还是不对外开放了？好像搜不到了</blockquote>
+已经死了快1年了，你没发现主楼还在第二赛季吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

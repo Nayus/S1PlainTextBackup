@@ -12324,3 +12324,150 @@ pv如果是13集回去那次
 
 参考水星魔女第七集，丰川集团娱乐业务财年会议期间祥子带初睦突入同时展示PPT与样曲drama，表示投她就能扭亏为盈，一转颓势，同时填上之前集团投资主机游戏业务造成的巨幅亏损（
 
+
+*****
+
+####  66367749  
+##### 1200#       发表于 2024-12-2 23:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66827351&amp;ptid=2208921" target="_blank">椎名真希 发表于 2024-12-2 23:37</a>
+参考水星魔女第七集，丰川集团娱乐业务财年会议期间祥子带初睦突入同时展示PPT与样曲drama，表示投她就能扭 ...</blockquote>
+星○特攻是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  杂灰  
+##### 1201#       发表于 2024-12-2 23:39
+
+也可能是跟姥爷打赌自己搞母鸡卡把这168e补回来就让老爹回来，姥爷想想给孙女玩玩看要是真赚了回来那也是能力得到验证的一等一继承人了，捎上个fw赘婿也还能接受。结果mujica上道了祥爹反而自己割席了
+
+*****
+
+####  skives10  
+##### 1202#       发表于 2024-12-2 23:39
+
+母鸡卡赚168亿还是太扯了点<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 1203#       发表于 2024-12-2 23:40
+
+感觉最直接最省剧情的解释就是外公在商言商有钱不赚王八蛋，am企划看着确实能爆大米为什么不投资呢？
+
+*****
+
+####  Aendst  
+##### 1204#       发表于 2024-12-2 23:40
+
+祥子也没真的彻底割掉丰川家的亲缘关系，只是没有正式办成为养女的过继手续
+
+既然ep08她会回本家宅，至少豊川家那边是愿意继续抚养她的，至于有没有拉豊川家赞助，具体怎么谈的是什么条件这些都只能纯猜，但这当然可能是她能拉的人脉
+
+初华肯定是她自己拉的，睦肯定是她自己拉的，喵梦肯定是她自己拉的，海铃没有完全判明但几乎可以想到还是她自己拉的
+
+作词作曲成员负责，企划概念舞台设计也是祥子总指挥
+
+她拉人这方面没什么好指摘的吧
+
+*****
+
+####  PDQ4  
+##### 1205#       发表于 2024-12-2 23:41
+
+回去住这一点还真有可能，因为爹否定了妈，好像真的没有不回家的理由了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狮子咕  
+##### 1206#       发表于 2024-12-2 23:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拉了四个炸弹……
+
+
+*****
+
+####  skives10  
+##### 1207#       发表于 2024-12-2 23:42
+
+我现在的感觉就是祥子也挺霉逼的
+好像人生的每一次选择都会带来更大的问题<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  椎名真希  
+##### 1208#       发表于 2024-12-2 23:43
+
+不是说武士道在鸡狗创作上给了绫奈极大自由吗，正巧武士道也苦苦需求转型，现在鸡狗疯狂爆金币说明祥子靠个人能力推动企划也不是什么天方夜谭<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 1209#       发表于 2024-12-2 23:43
+
+别惦记168e了，估计就是要彻底断了祥爹回家路才搞这么个金额<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 1210#       发表于 2024-12-2 23:44
+
+不倒霉制作组怎么放心大胆嬷她<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+祥嬷病毒内部交叉感染导致的
+
+*****
+
+####  PDQ4  
+##### 1211#       发表于 2024-12-2 23:44
+
+ 本帖最后由 PDQ4 于 2024-12-2 23:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66827396&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-2 23:42</a>
+
+我现在的感觉就是祥子也挺霉逼的
+
+好像人生的每一次选择都会带来更大的问题 ...</blockquote>
+这才刚开始，还有12集我都不敢想独角兽要干什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+之前和朋友讨论过，祥子的人偶重要性有点太高了，PV里也有特写，以独角兽的巨魔程度我很怀疑这个人偶能不能活到最后<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ydsbbt  
+##### 1212#       发表于 2024-12-2 23:44
+
+这是同一件衣服吗？
+
+<img src="https://img.saraba1st.com/forum/202412/02/234409t566g74ro95rt6gz.png" referrerpolicy="no-referrer">
+
+<strong>55A2F0268667907CC5D40820B4ACB954.png</strong> (48.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-2 23:44 上传
+
+<img src="https://img.saraba1st.com/forum/202412/02/234414p7bm953435vgm45a.png" referrerpolicy="no-referrer">
+
+<strong>7941AC15EAFCCD03FAB2A50C426C44DB.png</strong> (51.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-2 23:44 上传
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 1213#       发表于 2024-12-2 23:45
+
+武士道不是卖卡牌赚翻了么
+
+*****
+
+####  九陌狂游  
+##### 1214#       发表于 2024-12-2 23:47
+
+有一说一祥子去拉赞助的时候别人看她怕不是富二代为了证明自己明面上不靠家里人人脉，白手起家亲自打拼。她说叫你把她当普通人就好了，你真当她普通人踩她头啊，别人小公主继承家业怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+syl，我觉得第二季祥子的精神状态可能是最好的，已经在谷底了，再往下走真的只能回家继承家产了。
+

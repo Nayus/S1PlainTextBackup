@@ -1301,3 +1301,17 @@ THE IDOLM[@ster](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=42350) 
 
 今天有KOMINO。
 
+
+*****
+
+####  oznark  
+##### 6733#       发表于 2024-12-2 22:24
+
+<img src="https://img.saraba1st.com/forum/202412/02/072422rs6gzsssnug7euhq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (470.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-2 22:24 上传
+

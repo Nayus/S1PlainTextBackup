@@ -8696,3 +8696,44 @@ pv里最吓人的还是睦祥在海港雨幕之中那个镜头 莫名联想到�
 
 港口那段和后面的部分拼起来，有一种人是不是被捅了的错觉<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  狮子咕  
+##### 849#       发表于 2024-12-2 09:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">睦头人把演出用的道具刀换成了真刀是吧
+
+*****
+
+####  御幸一也  
+##### 850#       发表于 2024-12-2 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66819763&amp;ptid=2208921" target="_blank">adcdqre 发表于 2024-12-2 08:54</a>
+
+才第一集有人破防就这么严重啊？还是习惯性管不住造谣的嘴编的挺努力估计发之前已经轻哼了
+
+  -- 来自 能手 ...</blockquote>
+才第一話就破防，那後面還有的破防呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+好戲才剛開始，反正我知道我嗑同團肯定穩中穩<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  好想看Mujica啊  
+##### 851#       发表于 2024-12-2 10:01
+
+阿贝母鸡卡鸣泣之时，这风格如果不是邦世界而是纯原创新作，我都要猜死几个谁也死了
+
+*****
+
+####  skives10  
+##### 852#       发表于 2024-12-2 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66820343&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-2 09:56</a>
+港口那段和后面的部分拼起来，有一种人是不是被捅了的错觉</blockquote>
+吗呀 我想起来了
+想少女歌剧第十一集最后神乐光把爱华恋推下去那个高台
+表情也对上了
+然后最后又告诉观众推人下去的一方其实是背负一切的好女人
+

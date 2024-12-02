@@ -9432,3 +9432,43 @@ p就该天天为了乐队的事犯胃病
 
 倒不如说进医院早就预测到了 进局子是真没想到 虽然是去捞人
 
+
+*****
+
+####  PDQ4  
+##### 917#       发表于 2024-12-2 11:39
+
+说起来这个第一集
+看见蝶真的像ppp一样鼓舞到祥子，一瞬间有种这就是邦邦的感觉
+虽然鸡氛围变成这样了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adcdqre  
+##### 918#       发表于 2024-12-2 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66820826&amp;ptid=2208921" target="_blank">狮子咕 发表于 2024-12-02 10:43:35</a>
+丰川老爷子应该比较难背锅的，主要还是母鸡卡商业乐队，本身借力了丰川家投资，承担几个人的未来也基本上要 ...</blockquote>mujica有丰川家的事这个是造谣的吧。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  PDQ4  
+##### 919#       发表于 2024-12-2 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66821290&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-2 11:25</a>
+ 其实看第一话这样写……祥子进医院的可能性好像更高了 本来就头疼事一大堆，警局也出场了，真做医院场景也 ...</blockquote>
+只要演出结束祥子被救护车直接拉走，就不用考虑住谁家和下台有没有美少女格斗了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  LeonsCat  
+##### 920#       发表于 2024-12-2 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66821160&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2024-12-2 11:14</a>
+
+入赘的女婿肯定是要改娘家姓的，所以不存在不姓丰川的问题</blockquote>
+我的意思是，按照祥子表现出来的能力，就算她不姓丰川，纯粹是路人JK，以找togawa物产忽悠资金的档口，被丰川家主知道了也会想着拢住的。
+

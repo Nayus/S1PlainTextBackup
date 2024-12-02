@@ -11654,3 +11654,26 @@ B站上的PV播放量已经150W+了，追番人数也已经破百万，除老钟
 
 说是池田秀一那个回复已经删了 根据我20年高达动画游戏经验听起来也完全不是
 
+
+*****
+
+####  cherryjia12  
+##### 1132#       发表于 2024-12-2 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66825781&amp;ptid=2208921" target="_blank">枫林不见 发表于 2024-12-2 19:26</a>
+已经在批判性摄影里看完了，现在的我是最寂寞的我了</blockquote>
+求指路<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">身上有蚂蚁在爬
+
+
+*****
+
+####  火箭助推电锯  
+##### 1133#       发表于 2024-12-2 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66825900&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-2 19:44</a>
+
+一点关于睦祥关系的推测
+
+已知：参加祥妈葬礼的时候，睦坐在祥子身后</blockquote>
+这下姐妹说圆满了<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+

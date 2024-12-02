@@ -8468,3 +8468,59 @@ avemujica吧群大佬翻译的</blockquote>
 
 不然继承人就要给大家族里的其他人，祥子只能拿她妈分到的那份。
 
+
+*****
+
+####  星天观测  
+##### 824#       发表于 2024-12-2 09:16
+
+所以领养这件事就当文化差异就行了，感觉没什么进一步讨论的必要
+
+毕竟动画主体还是鸡和鸡五人，丰川家基本就是背景板定位
+
+*****
+
+####  狮子咕  
+##### 825#       发表于 2024-12-2 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66819471&amp;ptid=2208921" target="_blank">novalli 发表于 2024-12-2 07:38</a>
+
+突然想到，喵梦和乐奈的行为挺相似的，都是在舞台上出人意料地打破计划，逼迫把握全局的人不得不顺从，并实 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是乐奈的行为实际上是顺了主唱心意的，灯的MC环节明显就是想对祥子唱春日影证明自己努力站起来了，试图把握全局的是soyo……那如果按照这个方向，那喵梦的爆说不定是顺了主唱初华的心意，然后祥子是被逼的那个
+
+
+*****
+
+####  芸香科植物激推  
+##### 826#       发表于 2024-12-2 09:22
+
+PV台词画面基本可能会在前三集收完的情况下，确实可能是初华默许或者推动了大喵<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+然后才会有请不要讨厌我
+
+*****
+
+####  skives10  
+##### 827#       发表于 2024-12-2 09:24
+
+那个不要讨厌我的语气总有种演技爆发的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 828#       发表于 2024-12-2 09:27
+
+感觉跑歪了，祥爹明显不是老头子招的，是妈喜欢
+老爷子宠女儿才硬去扶持，闺女去世以后也没放弃，爆了被诈骗才发现真的带不动，让他滚了
+这么想估计就是单纯的心死觉得fw还是别来沾丰川了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+至于祥子，有点对亡女爱屋及乌的感觉
+
+*****
+
+####  芸香科植物激推  
+##### 829#       发表于 2024-12-2 09:28
+
+演的那更棒了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+初华的重头剧情应该还在后半段
+

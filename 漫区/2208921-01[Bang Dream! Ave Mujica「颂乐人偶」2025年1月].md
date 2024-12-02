@@ -11393,3 +11393,54 @@ Oricon后编 2023-9-15  <blockquote>——《BanG Dream! It's MyGO!!!!!》13话�
 
 原本是猜祥子有欠债在身，和老团和和美美互动会很违和，但新剧情告诉你祥子无债一身轻，丰川家168亿损失说抹就抹不追究，祥子的矛盾只剩下事业问题和家庭问题，回归了邦邦传统领域，而不是钱的问题了
 
+
+*****
+
+####  罗克萨斯  
+##### 1107#       发表于 2024-12-2 19:38
+
+B站上的PV播放量已经150W+了，追番人数也已经破百万，除老钟以外的所有地区加起来都没这热度吧<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+都说武士道应该趁热打铁，乘势而上，别把🐕带来的热度冷却了。结果一年多下来，人气咋感觉越来越高了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+明年不仅有🐓，还有⌈摇滚乃淑女之嗜好⌋，近几年年年都有少女乐队动画，质量还都不低，好幸福<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 1108#       发表于 2024-12-2 19:44
+
+一点关于睦祥关系的推测
+
+已知：参加祥妈葬礼的时候，睦坐在祥子身后
+<img src="https://y-osohshiki.com/images/upload/unnamed_17.png" referrerpolicy="no-referrer">
+
+根据日本葬礼的座席顺位，睦坐在祥子身后，也就表示她和祥妈有血缘关系，是祥妈的親族
+<img src="https://cdn.clipkit.co/tenants/722/item_images/images/000/026/068/large/a0ce266a-c63d-4bd5-aece-703c743ee3ce.jpg?1659926859" id="aimg_CAaDd" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+更详细的资料有提到，坐在逝者身后一排的是近親者 <blockquote>近親者とは、一般的に血縁関係が近い親族を指します。 具体的には、親や兄弟姉妹、そしておおよそ三親等の範囲内の親族、すなわち叔父（おじ）、叔母（おば）、甥（おい）、姪（めい）が含まれます。</blockquote>
+考虑到若叶是本名（睦从姓）而森美奈美是艺名，那么也就是说，睦的母亲和祥子的母亲很可能是亲姐妹关系
+
+也就是说，睦和祥子很可能是表姐妹（母亲是姐妹） 
+
+
+*****
+
+####  仓鼠胖太  
+##### 1109#       发表于 2024-12-2 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66825657&amp;ptid=2208921" target="_blank">前方暴雨预警 发表于 2024-12-2 19:08</a>
+找了一下最初的声优访谈
+
+Oricon后编 2023-9-15 
+
+リスアニ初次采访 2023-9-16</blockquote>
+好可怕的采访
+
+*****
+
+####  桜庭千景  
+##### 1110#       发表于 2024-12-2 19:47
+
+不过其实那里也有可能只是为了把睦和祥子塞进同框里来着
+

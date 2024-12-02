@@ -11729,3 +11729,70 @@ B站上的PV播放量已经150W+了，追番人数也已经破百万，除老钟
 
 应该就是升学羽丘了，她倒没考虑和谁碰得上的问题，单纯的就是自己挣不来月之森的学费，只负担得起羽丘
 
+
+*****
+
+####  贰臣  
+##### 1140#       发表于 2024-12-2 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66826850&amp;ptid=2208921" target="_blank">椎名真希 发表于 2024-12-2 22:16</a>
+
+应该就是升学羽丘了，她倒没考虑和谁碰得上的问题，单纯的就是自己挣不来月之森的学费，只负担得起羽丘 ...</blockquote>
+不是说祥子考虑，是从剧本合理性上来考虑的……不然祥子转学到羽丘，立希却什么都不知道有点奇怪
+
+*****
+
+####  skives10  
+##### 1141#       发表于 2024-12-2 22:28
+
+难绷 祥爹叫丰川清告 难免让我想起轻拍的监督押山清高
+
+*****
+
+####  PDQ4  
+##### 1142#       发表于 2024-12-2 22:29
+
+其实那半年盲盒滋生了大量希祥假药来着，现在看是彻底破产了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 1143#       发表于 2024-12-2 22:31
+
+祥子对睦说自己上不起月之森是c团解散前，说明那个时候（5-6月）就退月之森了
+
+如果没转去别的学校，那就是在家自学一年直接考羽丘吧，日本那边可以不读初三直接考高中吗？
+
+
+*****
+
+####  PDQ4  
+##### 1144#       发表于 2024-12-2 22:33
+
+可以休学自己考吧，没必要退学<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+而且日本学费是怎么算的，一次交一年的话初三那年不用考虑学费，纯粹是真的太忙了
+
+*****
+
+####  星天观测  
+##### 1145#       发表于 2024-12-2 22:35
+
+既然在上学那学费肯定已经付过了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我要是没记错学费是按学年付的，一出事就直接退学的可能性也不高吧
+
+*****
+
+####  相坂君  
+##### 1146#       发表于 2024-12-2 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66826927&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-2 22:28</a>
+难绷 祥爹叫丰川清告 难免让我想起轻拍的监督押山清高</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我靠你轻拍噶吃吗！？今天已经提了两次轻拍梗了
+合着这不是轻拍的情书，竟是绫奈给轻拍的战书
+
+*****
+
+####  Aendst  
+##### 1147#       发表于 2024-12-2 22:36
+
+理论上应该是可以的 <blockquote>公立の全日制高校は、受験できるものの、合格が難しい場合もあります。 私立の全日制高校では、不登校でも進学できる学校もあります。</blockquote>
+

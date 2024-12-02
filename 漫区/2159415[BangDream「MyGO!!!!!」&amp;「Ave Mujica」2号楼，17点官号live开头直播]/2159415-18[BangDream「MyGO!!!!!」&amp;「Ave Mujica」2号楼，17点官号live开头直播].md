@@ -16704,3 +16704,24 @@ EA487C0A626CFAE760B56986114137A2.jpg
 招募伙伴.jpg</blockquote>
 别说，爱祥两个建队的在最上面，这海报还挺像回事。
 
+
+*****
+
+####  月島まりな  
+##### 26541#       发表于 2024-12-2 16:09
+
+<blockquote>12/14(土)開催
+
+🌹Roselia「Stille Nacht, Rosen Nacht」🌹
+
+機材調整を行い、見切れ席チケットの追加発売が決定しました📢
+
+⏰受付日時：12/3(火) 20:00～
+
+※先着発売
+
+※チケットの発売は本受付が最終となる予定です。</blockquote>
+第二次加开见切席了，然而鸡团A席还没卖完，令人感叹
+
+<img src="https://p.sda1.dev/20/055170c9b06902bc743cfbc6bf790d12/image.png" referrerpolicy="no-referrer">
+

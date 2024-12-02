@@ -13178,3 +13178,31 @@ pv有个海港画面，睦祥都穿着演出服，睦向祥子走来，得看这
 
 不过也有可能单纯葬礼十分私密，图一乐吧
 
+
+*****
+
+####  allesdg  
+##### 1274#       发表于 2024-12-3 03:41
+
+pv里这个分镜可以看清些什么细节吗，位于祥子特写和电视机里睦？睁眼这两个分镜之间，看起来是破败的舞台布景，注意到三个椅子倒了，台下好像是空的是散场后么，台上似乎是瘫坐着一个人还是一个人抱着另一个人，常服睦？演出服初华？实在难看清
+
+下面是原版和调曝光后
+
+<img src="https://img.saraba1st.com/forum/202412/03/033149eh3tdz0vt2rhth1r.png" referrerpolicy="no-referrer">
+
+<strong>videoplaybackexpire=1733174282ei=qs9NZ7pELe46dsPiI_20241203_032622_0.png</strong> (53.81 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-3 03:31 上传
+
+<img src="https://img.saraba1st.com/forum/202412/03/033149tqhjefrmahanjodh.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20241203_025819.png</strong> (111.67 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-3 03:31 上传
+

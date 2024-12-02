@@ -198,3 +198,13 @@ wo日，我还提前阵容，到跟前给忘了，现在还有柱子吗</blockqu
 
 自回体因为打白纸本的缘故根本来不及打柱子，原来那么多人为了这个活动嗑苹果啊？
 
+
+*****
+
+####  Blackson  
+##### 46823#       发表于 2024-12-2 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66821372&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2024-12-2 11:31</a>
+自回体因为打白纸本的缘故根本来不及打柱子，原来那么多人为了这个活动嗑苹果啊？ ...</blockquote>
+你当成短时间内无限次数的白纸本就懂了
+

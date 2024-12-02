@@ -1449,3 +1449,14 @@ POE2我记得锁国区吧，国区账号能走steam入库正常玩吗
 
 不过这会已经买了赞助包了也没法退款，真被封只有到时候写邮件了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  佩露夏  
+##### 158#       发表于 2024-12-2 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66821690&amp;ptid=2208805" target="_blank">巨魔已被忠诚 发表于 2024-12-2 12:07</a>
+客观的说，玩暴雪产品吃到屎纯属活该。
+（我反正被恶心走了）</blockquote>
+没毛病，玩暴雪游戏吃屎纯属活该。但这事属于其他游戏玩家来暴雪玩家家里拉屎还不许拉回去多少有点幽默了<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+

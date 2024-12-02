@@ -9753,3 +9753,88 @@ mujica有丰川家的事这个是造谣的吧。
 
 祥p只哭一场是不够的 要大哭 特大哭 要爆 特大爆 要把所有最柔软的部分全部暴露给三个队友和一只键猫以后才能迎来happyend
 
+
+*****
+
+####  Aendst  
+##### 951#       发表于 2024-12-2 12:36
+
+ 本帖最后由 Aendst 于 2024-12-2 12:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66821901&amp;ptid=2208921" target="_blank">紫吹兰 发表于 2024-12-2 12:28</a>
+
+他们的本质就是是祥子的爹和祥子的外公，而不是两个独立角色，他们能够有戏份是因为他们的身份对祥子能够 ...</blockquote>
+妈是因为有提到祥子小时候会演奏妈妈喜欢的曲子
+
+跟祥子喜欢音乐这一点可能挂钩
+
+爹和外公甚至似乎没有这一层？（不确定）
+
+*****
+
+####  宇宙驼鹿  
+##### 952#       发表于 2024-12-2 12:36
+
+如果单纯大喵为了热度整波大的，这怎么洗白啊。来一发立希的人格修正拳可以吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  狮子咕  
+##### 953#       发表于 2024-12-2 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66821942&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-2 12:31</a>
+
+我看第一集那句我只有阿贝母鸡卡了就是剧情的保险栓 意味无论发生什么逆天的事情 她都会尽力忍耐和解决 直 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“求求你们不要解散阿贝母鸡卡……”
+
+*****
+
+####  RedSpecial  
+##### 954#       发表于 2024-12-2 12:39
+
+刚来，木头人为什么炸和大猫说方言已经讨论到哪了
+
+*****
+
+####  宇宙驼鹿  
+##### 955#       发表于 2024-12-2 12:40
+
+我寻思🐔🐶不分家，🐔团这边大爆特爆完了🐶团贴贴安慰人格修正最后全员吃寿司
+
+—— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  守望者404  
+##### 956#       发表于 2024-12-2 12:40
+
+去了成都唯一家罗森主题店，居然没啥人，还是高估了线下热度<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/20/c9f330041d37a312ccd898c5348d8bca/CMP_20241202123921132.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  小妻水亚美  
+##### 957#       发表于 2024-12-2 12:41
+
+那我下班回家再去罗森买镭射卡应该都没问题吧？
+
+—— 来自 OPPO PGFM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  yozoraxsx  
+##### 958#       发表于 2024-12-2 12:41
+
+今天在qq里群里遇到极端祥嬷想到了:既然允许祥子接着姓丰川,按照丰川家业的规模来说,家里应该给fw老爹每个月打点生活费吧？如果是160亿背锅侠不是更应该给点吧？
+
+
+*****
+
+####  枫林不见  
+##### 959#       发表于 2024-12-2 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66822036&amp;ptid=2208921" target="_blank">yozoraxsx 发表于 2024-12-2 12:41</a>
+
+今天在qq里群里遇到极端祥嬷想到了:既然允许祥子接着姓丰川,按照丰川家业的规模来说,家里应该给fw老爹每个 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你以为满地的啤酒 钱从哪里来的
+

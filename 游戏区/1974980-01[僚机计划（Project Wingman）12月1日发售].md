@@ -1860,3 +1860,28 @@ It's time. （一阵激烈的弗拉明戈舞曲）
 
 2024-12-2 10:40 上传
 
+
+*****
+
+####  cubesun  
+##### 181#       发表于 2024-12-2 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62628468&amp;ptid=1974980" target="_blank">安瓦尔阿明 发表于 2023-10-6 09:26</a>
+
+新版本支持PSVR2，但是也可以在PS5上玩普通版。</blockquote>
+可别提PSVR2，我就冲这个首发买了PS5版，后来发现支持VR的只有DLC6个关卡，主线没有。
+
+我就要问候制作组祖宗十八辈
+
+*****
+
+####  电磁炮233  
+##### 182#       发表于 2024-12-2 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66820787&amp;ptid=1974980" target="_blank">安瓦尔阿明 发表于 2024-12-2 10:40</a>
+It's time. （一阵激烈的弗拉明戈舞曲）</blockquote>
+
+这个价格不如买key
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

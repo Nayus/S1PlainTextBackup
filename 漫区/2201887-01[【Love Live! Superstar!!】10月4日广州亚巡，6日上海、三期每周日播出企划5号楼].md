@@ -11392,3 +11392,15 @@ op地区大赛就在新国立了决赛不敢想了<img src="https://static.sarab
 柊摩央生日
 <img src="https://p.sda1.dev/20/df78e04abbc125334b10a035d0bc265d/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cccpprc  
+##### 1113#       发表于 2024-12-2 12:39
+
+<blockquote>离心 发表于 2024-12-1 16:38
+不可能吧，决赛不让香音主c了?地区决赛吧</blockquote>
+顿时就想起了隔壁那个也是第三季的四月番（詹姆斯大笑）
+
+但是程度上要轻很多，毕竟这边已经一个冠军在手了
+

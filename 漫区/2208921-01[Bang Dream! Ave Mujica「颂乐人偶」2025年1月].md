@@ -10296,3 +10296,54 @@ mujica有丰川家的事这个是造谣的吧。
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到盗摄的了，剧透里喵梦摘睦假面＋睦惊慌遮面这段是真的
 键帽是真的欠爱了，不敢想一月二号第一集正式播出后喵梦风评有多炸
 
+
+*****
+
+####  skives10  
+##### 1006#       发表于 2024-12-2 13:30
+
+我只会怪祥子驯猫无方<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+调教能力还得磨练
+
+*****
+
+####  NODY  
+##### 1007#       发表于 2024-12-2 13:31
+
+喵梦2nd独白就说过看那些被提线操纵人偶觉得烦躁，想要扯断人偶的线了，当时的假药是喵梦家人侠看不惯睦父母操纵睦去和睦父母爆了，没想到是去给睦爆脸这么个断线法
+
+
+*****
+
+####  哈曼的YY  
+##### 1008#       发表于 2024-12-2 13:35
+
+当初把大喵想的太好了
+
+*****
+
+####  金属化反射装甲  
+##### 1009#       发表于 2024-12-2 13:35
+
+以套路，功利心驱动的角色最后都会完成真心为社团的成长，搞事情有动力，平事更有动力
+
+*****
+
+####  御幸一也  
+##### 1010#       发表于 2024-12-2 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66822191&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-2 12:56</a>
+
+羽丘那个特特生（？）制度
+
+应该是只需要交很少的学费吧</blockquote>
+按照設定是學費全免還包一頓午飯
+
+*****
+
+####  PDQ4  
+##### 1011#       发表于 2024-12-2 13:37
+
+我觉得有野心是好事，但是没想到这么急也这么大胆，祥子这大猫还得训啊
+唯一问题是鼓手可能拿不到太多高光，如果花费笔墨够多说不定能给邦邦鼓手争光呢<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

@@ -9689,3 +9689,67 @@ mujica有丰川家的事这个是造谣的吧。
 按自己的想法来操作本身挺有说法的
 奉旨办事那不就一下变成小丑了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 944#       发表于 2024-12-2 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66821859&amp;ptid=2208921" target="_blank">宇宙驼鹿 发表于 2024-12-2 12:24</a>
+我看有人推测大喵老师这一手是因为事务所方面把🐔团当木头人出道的垫脚石，原本第一场播完就该摘面具解散， ...</blockquote>
+第一集喵梦有句台词是嫌祥子的台本太无聊，用的还是嫌弃的语气
+目前看喵梦还是没有人授意的情况自己整活的，想想看好像也符合大多数网红博主短视的想法……
+
+*****
+
+####  紫吹兰  
+##### 945#       发表于 2024-12-2 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66821844&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-2 12:22</a>
+
+多写点妈我还能信，外公和爹真的不重要吧</blockquote>
+他们的本质就是是祥子的爹和祥子的外公，而不是两个独立角色，他们能够有戏份是因为他们的身份对祥子能够造成影响，而不是为了把他们本身塑造得有多立体多完整。当然祥妈也一样。
+
+*****
+
+####  宇宙驼鹿  
+##### 946#       发表于 2024-12-2 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66821875&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-2 12:25</a>
+按自己的想法来操作本身挺有说法的
+奉旨办事那不就一下变成小丑了</blockquote>
+那这也太畜生了，这都不是爱猫能解决的了。鸡团还要运营呢？这么写不解散还玩锤子，感觉只有喵梦被大手压着干才好说
+
+—— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  cxj649  
+##### 947#       发表于 2024-12-2 12:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">洗祥爹干吗？
+
+*****
+
+####  skives10  
+##### 948#       发表于 2024-12-2 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66821911&amp;ptid=2208921" target="_blank">宇宙驼鹿 发表于 2024-12-2 12:28</a>
+那这也太畜生了，这都不是爱猫能解决的了。鸡团还要运营呢？这么写不解散还玩锤子，感觉只有喵梦被大手压 ...</blockquote>
+没事 祥p有伟大的性格
+
+*****
+
+####  skives10  
+##### 949#       发表于 2024-12-2 12:31
+
+我看第一集那句我只有阿贝母鸡卡了就是剧情的保险栓 意味无论发生什么逆天的事情 她都会尽力忍耐和解决 直到…
+
+
+*****
+
+####  枫林不见  
+##### 950#       发表于 2024-12-2 12:34
+
+祥p只哭一场是不够的 要大哭 特大哭 要爆 特大爆 要把所有最柔软的部分全部暴露给三个队友和一只键猫以后才能迎来happyend
+

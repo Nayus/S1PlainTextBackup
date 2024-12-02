@@ -273,3 +273,18 @@ wo日，我还提前阵容，到跟前给忘了，现在还有柱子吗</blockqu
 
 100根了，休息一下，等上杉了。
 
+
+*****
+
+####  Urakawa  
+##### 46829#       发表于 2024-12-2 17:02
+
+灭世响指<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TohsakaR  
+##### 46830#       发表于 2024-12-2 17:03
+
+牛的 一千四百万只演都不演了
+

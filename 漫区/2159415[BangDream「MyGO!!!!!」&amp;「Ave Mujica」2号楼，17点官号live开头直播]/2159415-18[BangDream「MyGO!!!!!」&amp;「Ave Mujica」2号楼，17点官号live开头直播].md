@@ -16757,3 +16757,21 @@ EA487C0A626CFAE760B56986114137A2.jpg
 鸡狗对邦还是全员live?这下总该梅奔了吧</blockquote>
 不太清楚，没说具体哪个团
 
+
+*****
+
+####  织部琴音  
+##### 26545#       发表于 2024-12-2 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66824398&amp;ptid=2159415" target="_blank">SakuraのOrigami 发表于 2024-12-2 16:55</a>
+
+不太清楚，没说具体哪个团</blockquote>
+没写团感觉至少应该是个对邦或者拼盘
+
+*****
+
+####  雨井绫  
+##### 26546#       发表于 2024-12-2 16:59
+
+之前有小道消息说是明年二月上海东方体育中心，1w2张票。
+

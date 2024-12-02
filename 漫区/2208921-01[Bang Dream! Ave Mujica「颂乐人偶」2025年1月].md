@@ -8451,3 +8451,20 @@ avemujica吧群大佬翻译的</blockquote>
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  好想看Mujica啊  
+##### 823#       发表于 2024-12-2 09:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66819651&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-2 08:38</a>
+
+所以可以理解为只是一种常见文化习俗吗？</blockquote>
+日本大家族的传统了，婿养子继承制。
+
+祥妈是继承人，但身体不好或是没有兴趣打理家业，所以招了祥爸入赘当继承人。
+
+但事实证明祥爸是个废物被踢了，继承人的位子就空了，所以就要收养祥子，确立祥子当继承人。
+
+不然继承人就要给大家族里的其他人，祥子只能拿她妈分到的那份。
+

@@ -8669,3 +8669,30 @@ pv里最吓人的还是睦祥在海港雨幕之中那个镜头 莫名联想到�
 
 那句请不要讨厌我真的是初华吗？怎么听着也像睦的声音
 
+
+*****
+
+####  PDQ4  
+##### 846#       发表于 2024-12-2 09:51
+
+之前也提到，港口那个信号灯的红光其实很有趣
+这下危险预警拉满了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+因为是雨天一开始还考虑了元和二年的可能性，但是那里睦（？）带着小帽子，祥子一样，都疑似是演出服
+你俩在港口穿着演出服，是刚live完准备上船私奔吗
+还是说港口有什么<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  狮子咕  
+##### 847#       发表于 2024-12-2 09:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">睦：我是来结束乐队的
+
+*****
+
+####  Aendst  
+##### 848#       发表于 2024-12-2 09:56
+
+港口那段和后面的部分拼起来，有一种人是不是被捅了的错觉<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

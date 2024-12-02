@@ -8737,3 +8737,79 @@ pv里最吓人的还是睦祥在海港雨幕之中那个镜头 莫名联想到�
 表情也对上了
 然后最后又告诉观众推人下去的一方其实是背负一切的好女人
 
+
+*****
+
+####  星天观测  
+##### 853#       发表于 2024-12-2 10:06
+
+感觉现有消息也讨论的差不多了，接下来就是漫长的等武藏野
+
+不知道互为嘉宾会表演什么歌，希望萝能在鸡场唱一个ds
+
+鸡不知道除了op以外还有没有新曲了
+
+*****
+
+####  桜庭千景  
+##### 854#       发表于 2024-12-2 10:07
+
+<img src="https://img.saraba1st.com/forum/202412/02/100738eh4h881013ljsz9o.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241202_100659.jpg</strong> (125.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-2 10:07 上传
+
+刚好买一对拿赠品
+
+*****
+
+####  星天观测  
+##### 855#       发表于 2024-12-2 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66820443&amp;ptid=2208921" target="_blank">桜庭千景 发表于 2024-12-2 10:07</a>
+
+刚好买一对拿赠品</blockquote>
+可以把初华送我吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  remedios010000  
+##### 856#       发表于 2024-12-2 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66818514&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2024-12-1 23:44</a>
+真是池田秀一祥老师马上在二创里变成新时代的密涅瓦扎比了 老爹也是买阿克西斯被联邦骗
+
+这动画不会能再有个 ...</blockquote>
+传奇机师退役后的温馨养女儿孙女日常<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">祥睦两家亲的原因找到了
+
+夏鸭你选女婿的眼光不咋地呀<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  杂灰  
+##### 857#       发表于 2024-12-2 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66820469&amp;ptid=2208921" target="_blank">remedios010000 发表于 2024-12-2 10:10</a>
+传奇机师退役后的温馨养女儿孙女日常祥睦两家亲的原因找到了
+
+夏鸭你选女婿的眼光不咋地呀 ...</blockquote>
+答案是nt感应又在乱认人了
+
+*****
+
+####  Aendst  
+##### 858#       发表于 2024-12-2 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66820391&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-2 10:01</a>
+
+吗呀 我想起来了
+
+想少女歌剧第十一集最后神乐光把爱华恋推下去那个高台
+
+表情也对上了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">没看过少歌，这下便衰了
+

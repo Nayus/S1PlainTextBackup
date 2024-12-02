@@ -11481,3 +11481,22 @@ Oricon后编 2023-9-15
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  蜇灵  
+##### 1115#       发表于 2024-12-2 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66826002&amp;ptid=2208921" target="_blank">鲍里斯 发表于 2024-12-2 19:57</a>
+说起来祥子都干到武道馆了还住在那个破家啊，该不会拿不到钱吧
+
+  -- 来自 能看大图的 Stage1官方 Android ...</blockquote>
+资产都在账上，没有现金流是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  太二EricGuo  
+##### 1116#       发表于 2024-12-2 20:01
+
+所以祥子外公是谁配音的
+

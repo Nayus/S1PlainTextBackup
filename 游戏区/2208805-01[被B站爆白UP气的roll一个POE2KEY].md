@@ -1338,3 +1338,11 @@ poe有自己的服务器路线，加速时候不需要阿区。
 
 两个B游戏能不能学学后期的D3啊，我只想无脑爽刷
 
+
+*****
+
+####  Viteeee  
+##### 146#       发表于 2024-12-2 07:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">国服poe可能是为数不多的铜臭味比国服wow还大的游戏，某种意义上还是很了不起的。
+

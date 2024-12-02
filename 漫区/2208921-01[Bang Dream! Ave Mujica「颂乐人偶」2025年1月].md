@@ -11124,3 +11124,26 @@ Q版keai。
 按菜花的表现，我是不敢对🐔抱太大期望，有萌妹子看就行 ...</blockquote>
 鸡剧本是连着卖狗写的 🦄️反正认领了 目前看也没有大动系构的消息 当卖狗解密篇期待值高很正常
 
+
+*****
+
+####  -LYRE-  
+##### 1086#       发表于 2024-12-2 17:46
+
+爬完楼了
+关于进手游得包饺子，最大的问题其实不是鸡狗如何，而是hhw的童话色彩和mujica现实色彩之间的冲突
+hhw在动画里被刻意回避被ban，反而让我更加期待mujica以后和hhw的互动
+正逢联动mujica全员执事服
+有没有机会看到mujica五人客串kkr家的黑衣人呢<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+执事服的专业团队，和弦卷财阀满足kkr天马行空的想法、上天入地无所不能的黑衣人姐姐们，感觉相处会很融洽<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/5ba3af230c116e3a208f9a35962a0eac/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  黑夜落叶秋天  
+##### 1087#       发表于 2024-12-2 17:46
+
+<blockquote>Frezard 发表于 2024-12-2 17:25
+不知道PV的电视机映射的是现实还是臆想，如果是现实那这场面也太地狱了（ ...</blockquote>
+睦祥唯二的红眼睛镜头 期待
+

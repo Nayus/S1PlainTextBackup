@@ -244,3 +244,45 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">这5000绿方块礼装出得这么勤快  我估计在换3次就要没绿方块了
 
+
+*****
+
+####  quanlix  
+##### 15212#       发表于 2024-12-1 23:36
+
+馋那点黑曜石小刀，还是给摸了
+
+*****
+
+####  希望之花  
+##### 15213#       发表于 2024-12-1 23:39
+
+再见了，每天给四个黑曜石小刀的11月
+
+12月每日给的材料都溢出了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 15214#       发表于 2024-12-1 23:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">这5000绿方块礼装出得这么勤快  我估计在换3次就要没绿方块了
+
+*****
+
+####  beer  
+##### 15215#       发表于 2024-12-2 17:52
+
+圣诞千万得是无限池，绿方块清空了
+
+这B羁绊礼装对于懒人来说不是很想换，但是偏偏又设置了期限，本来想换点旧的都被挤压掉期间获得的绿方块了
+
+*****
+
+####  乾理央  
+##### 15216#       发表于 2024-12-2 17:53
+
+绿方块就剩24了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+希望圣诞是无限池，屯了170金苹果
+

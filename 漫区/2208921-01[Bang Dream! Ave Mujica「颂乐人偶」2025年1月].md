@@ -10677,3 +10677,61 @@ pv3其实有一部分问题是不知道发生时间，大猫敲鼓那段多半�
 或许这 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">努力的时候喊自己不会输也算定番吧，当然也可能是刚成立拼命练谱的时候……虽然我觉得母鸡卡不会全倒叙，但是肯定中间还有一部分要倒叙的
 
+
+*****
+
+####  NODY  
+##### 1041#       发表于 2024-12-2 14:46
+
+喵梦不是有个和家人打电话的表情吗，那个我不会认输没准就是和家人说的
+
+*****
+
+####  守望者404  
+##### 1042#       发表于 2024-12-2 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66822285&amp;ptid=2208921" target="_blank">结衣小比取 发表于 2024-12-2 13:06</a>
+地址是哪里啊，说一下</blockquote>
+罗森锦绣大道店
+
+*****
+
+####  罗克萨斯  
+##### 1043#       发表于 2024-12-2 14:48
+
+昨天建的楼，今天就已经1000回复了，这么顶流的么<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+按菜花的表现，我是不敢对🐔抱太大期望，有萌妹子看就行了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 1044#       发表于 2024-12-2 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66823027&amp;ptid=2208921" target="_blank">狮子咕 发表于 2024-12-2 14:45</a>
+
+努力的时候喊自己不会输也算定番吧，当然也可能是刚成立拼命练谱的时候……虽然我觉得母鸡卡不会全倒叙， ...</blockquote>
+我的点也只是说这句不会输的对象是谁，祥子？以前的友人？某个家人？
+
+倒叙应该会有的吧，离正式播出也就一个月了，播了就全都知道了
+
+
+*****
+
+####  金钱与民主  
+##### 1045#       发表于 2024-12-2 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66823001&amp;ptid=2208921" target="_blank">莉缇娅 发表于 2024-12-2 14:41</a>
+
+可以了
+
+再聊丰川，那咱们看的就不是少女乐队，是半泽直树了。</blockquote>
+没办法，关联性太强就是这样的，仅以第一话的剧透讨论剧情，那这人就绕不过去了，等第二话应该就正常了。不过距离正式播放还有一个月，那估计要等楼友们把全部能讨论到的点穷举完了才能偃旗息鼓了。<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+*****
+
+####  金钱与民主  
+##### 1046#       发表于 2024-12-2 14:52
+
+话说回来，喵梦这个在舞台上揭人面具的举动，自己的账号肯定要大炎上了吧.....都可以算抽象系操作了。
+

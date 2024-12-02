@@ -11449,3 +11449,15 @@ op地区大赛就在新国立了决赛不敢想了<img src="https://static.sarab
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  日野下花帆  
+##### 1118#       发表于 2024-12-2 20:16
+
+<blockquote>csolfans 发表于 2024-12-2 16:26
+随便说一下上一集的演出还是京极
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 v3.0.0-alp ...</blockquote>
+京极这哥们儿做做live还行 一到他做演出简直是流水账
+

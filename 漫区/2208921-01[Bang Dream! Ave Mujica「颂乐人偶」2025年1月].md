@@ -11500,3 +11500,75 @@ Oricon后编 2023-9-15
 
 所以祥子外公是谁配音的
 
+
+*****
+
+####  russianbear  
+##### 1117#       发表于 2024-12-2 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66826032&amp;ptid=2208921" target="_blank">太二EricGuo 发表于 2024-12-2 20:01</a>
+
+所以祥子外公是谁配音的</blockquote>
+据说是鸭子
+
+*****
+
+####  黑夜落叶秋天  
+##### 1118#       发表于 2024-12-2 20:09
+
+真的是夏亚那也太那啥了 
+
+*****
+
+####  skives10  
+##### 1119#       发表于 2024-12-2 20:09
+
+<img src="https://img.saraba1st.com/forum/202412/02/200903wpuyizvi0vzxivap.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0631.jpeg</strong> (599.37 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-2 20:09 上传
+
+https://x.com/c3215xz/status/1863554727050608775?s=46&amp;t=IZGx0N13SOtHALpwG0Ubrg
+
+*****
+
+####  NODY  
+##### 1120#       发表于 2024-12-2 20:12
+
+7月25首次live，下集预告还是夏季校服说明不会超过8月底9月初，合计才出道一个月左右，没准工资压根还没到账呢
+
+不是很清楚日本娱乐圈怎么算的，六七月建团内部训练的时候有工资领吗，还是要正式出道才开始发钱
+
+
+*****
+
+####  -LYRE-  
+##### 1121#       发表于 2024-12-2 20:12
+
+ 本帖最后由 -LYRE- 于 2024-12-2 20:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66825872&amp;ptid=2208921" target="_blank">罗克萨斯 发表于 2024-12-2 19:38</a>
+B站上的PV播放量已经150W+了，追番人数也已经破百万，除老钟以外的所有地区加起来都没这热度吧
+
+都说武士道 ...</blockquote>
+虽然但是，追番数这个是系列追番，上线之前邦系列追番就有九十多万了<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+要吹追番人数的话，应该感谢老团打下的底子
+
+
+*****
+
+####  Kfly  
+##### 1122#       发表于 2024-12-2 20:14
+
+是说爱音能认出喵梦，另一位偶像初华怎么就认不出呢，看来还是不够了解啊（<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Frezard  
+##### 1123#       发表于 2024-12-2 20:16
+
+祥爷应该是てらそままさき（寺杣昌紀），反正怎么听都不可能是池田秀一X
+

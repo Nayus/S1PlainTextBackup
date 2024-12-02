@@ -11100,3 +11100,27 @@ Q版keai。
 
 真来点恐怖氛围好不好<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  GJRstone  
+##### 1084#       发表于 2024-12-2 17:40
+
+祥爹梭哈出问题还是要最终和解的吧
+
+就怪了，想在邦多利这么个世界观包炸梦的饺子，真包了感觉不就是在看eva终<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不会出amoris给ob一串字母小姐当小妈的玩法吧<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  你妈的为什么  
+##### 1085#       发表于 2024-12-2 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66823071&amp;ptid=2208921" target="_blank">罗克萨斯 发表于 2024-12-2 14:48</a>
+昨天建的楼，今天就已经1000回复了，这么顶流的么
+
+按菜花的表现，我是不敢对🐔抱太大期望，有萌妹子看就行 ...</blockquote>
+鸡剧本是连着卖狗写的 🦄️反正认领了 目前看也没有大动系构的消息 当卖狗解密篇期待值高很正常
+

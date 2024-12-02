@@ -16783,3 +16783,24 @@ EA487C0A626CFAE760B56986114137A2.jpg
 
 明年要来的话鸡应该是稳的，动画正播出或完结没多久的状态正好适合爆米
 
+
+*****
+
+####  ykyin09  
+##### 26548#       发表于 2024-12-2 17:37
+
+企划亚巡吧，跟之前拉拉一样
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  紫吹兰  
+##### 26549#         楼主| 发表于 2024-12-2 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66824443&amp;ptid=2159415" target="_blank">雨井绫 发表于 2024-12-2 16:59</a>
+
+之前有小道消息说是明年二月上海东方体育中心，1w2张票。</blockquote>
+1w2应该是梅奔常规容量，大拼盘应该1w2开两天或者1w8开一天都可以，这个容量应该最多两个团了
+

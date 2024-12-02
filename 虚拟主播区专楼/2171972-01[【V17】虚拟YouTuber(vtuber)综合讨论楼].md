@@ -150,3 +150,27 @@ VCRGTA3已知的部分情报（一些主播直播的时候透露的）
 
 可以看得出是准备和STGR有一定的差别化，不然就和VCRGTA2一样变成STGR势带着非STGR势玩的感觉就很微妙了
 
+
+*****
+
+####  Devi_Lito  
+##### 908#       发表于 2024-12-2 18:37
+
+你也要重大发表？
+
+<img src="https://img.saraba1st.com/forum/202412/02/183652n5vxp5tmc335e358.png" referrerpolicy="no-referrer">
+
+<strong>1.PNG</strong> (38.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-2 18:36 上传
+
+<img src="https://img.saraba1st.com/forum/202412/02/183658wyaa1k1kkkbwy7a7.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (596.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-2 18:36 上传
+

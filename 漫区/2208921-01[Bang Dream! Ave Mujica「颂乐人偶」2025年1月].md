@@ -9952,3 +9952,210 @@ mujica有丰川家的事这个是造谣的吧。
 
 至于素睦，呃，第二集预告有go五人集合镜头，素食别又惊世智慧整活就不错了，毕竟睦线最后肯定是祥子来擦屁股
 
+
+*****
+
+####  yozoraxsx  
+##### 972#       发表于 2024-12-2 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66822160&amp;ptid=2208921" target="_blank">rikaren 发表于 2024-12-2 12:53</a>
+
+以祥的性格就算外公打钱祥也不会要啊</blockquote>
+那不就是祥子自作自受了？这钱其实就是祥子自己的，自己不要自己钱了。
+
+而且这么说她咋还打着自己姓丰川忽悠人？
+
+*****
+
+####  skives10  
+##### 973#       发表于 2024-12-2 12:56
+
+羽丘那个特特生（？）制度
+应该是只需要交很少的学费吧
+
+*****
+
+####  PDQ4  
+##### 974#       发表于 2024-12-2 12:56
+
+我觉得不会
+老爷子已经很明显的一脚踢开爹很嫌弃了
+一个大老爷们还要老丈人家里接济是真的脸都不要了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  novalli  
+##### 975#       发表于 2024-12-2 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66822177&amp;ptid=2208921" target="_blank">yozoraxsx 发表于 2024-12-2 12:55</a>
+打存折里不就被强制执行了？</blockquote>
+目前来看应该是公司亏损不是个人负债。丰川家不会放任自己的产业出问题，但造成问题的人要背锅滚蛋。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.94-alpha
+
+*****
+
+####  rikaren  
+##### 976#       发表于 2024-12-2 12:57
+
+<blockquote>rikaren 发表于 2024-12-2 12:52
+喵梦的行为我倒是觉得有在呼应“能够相信的只有自己”和获得了生命按自我意识行动的人偶，不过有些观众能不 ...</blockquote>
+另外三个人应该也会有出于“能够相信的只有自己”而展开的行为，以及获得生命的人偶脱离操控自主行动的环节，到时候欣赏就完事了。
+
+*****
+
+####  枫林不见  
+##### 977#       发表于 2024-12-2 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66822122&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-2 12:50</a>
+
+怎么就要修正喵梦了，喵梦有野心是什么坏事吗，虽然打乱祥p计划还给睦上压活该被收拾
+
+写成上面大人物的推 ...</blockquote>
+键猫是没有自觉的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 978#       发表于 2024-12-2 12:57
+
+祥爹又不是残疾人 损失了160亿还想要丰川老头的钱 是否太逆天了
+
+*****
+
+####  novalli  
+##### 979#       发表于 2024-12-2 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66822194&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-2 12:56</a>
+我觉得不会
+老爷子已经很明显的一脚踢开爹很嫌弃了
+一个大老爷们还要老丈人家里接济是真的脸都不要了 ...</blockquote>
+也就说可能是反过来，是祥爹的酒钱其实是祥子的生活费和学费？怎么感觉更畜生了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.94-alpha
+
+*****
+
+####  PDQ4  
+##### 980#       发表于 2024-12-2 12:59
+
+漏u到底想祥子是什么样的人，既要又要的
+老爷子都让你切割爹了你不干但是钱还是想要的，给了就拿？
+祥子是这么不要脸的人设吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yozoraxsx  
+##### 981#       发表于 2024-12-2 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66822194&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-2 12:56</a>
+
+我觉得不会
+
+老爷子已经很明显的一脚踢开爹很嫌弃了
+
+一个大老爷们还要老丈人家里接济是真的脸都不要了 ...</blockquote>
+用祥子拉扯你就说给不给吧
+
+*****
+
+####  skives10  
+##### 982#       发表于 2024-12-2 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66822212&amp;ptid=2208921" target="_blank">novalli 发表于 2024-12-2 12:58</a>
+也就说可能是反过来，是祥爹的酒钱其实是祥子的生活费和学费？怎么感觉更畜生了。
+
+—— 来自 鹅球 v3.3. ...</blockquote>
+应该不会详细把账单列出来 不然就太尴尬了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 983#       发表于 2024-12-2 13:01
+
+<blockquote>PDQ4 发表于 2024-12-2 12:59
+漏u到底想祥子是什么样的人，既要又要的
+
+老爷子都让你切割爹了你不干但是钱还是想要的，给了就拿？
+
+祥子是 ...</blockquote>
+有一部分人还好，但是有一部分我不好说是不是为了按他们想法来就可以名正言顺攻击道德问题了，毕竟某屎黄色论坛宁愿不要亲爹也要为了攻击祥是没苦硬吃的人疑似有点太多了。
+
+*****
+
+####  PDQ4  
+##### 984#       发表于 2024-12-2 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66822212&amp;ptid=2208921" target="_blank">novalli 发表于 2024-12-2 12:58</a>
+ 也就说可能是反过来，是祥爹的酒钱其实是祥子的生活费和学费？怎么感觉更畜生了。  —— 来自 鹅球 v3.3. ...</blockquote>
+我觉得可能更单纯点
+给祥爹打了一点钱让他滚，老爷子可能觉得他找到工作就完事了，祥子老爷子自己养
+结果祥子跑了，祥爹废了，存款不够用，祥子只能开始打工换学校自己挣钱补贴
+
+
+*****
+
+####  novalli  
+##### 985#       发表于 2024-12-2 13:02
+
+初中生打工赚生活费和学费，还能供老爹喝酒和赔钱。。。只能说有可能，但还是太超人了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.94-alpha
+
+*****
+
+####  PDQ4  
+##### 986#       发表于 2024-12-2 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66822224&amp;ptid=2208921" target="_blank">yozoraxsx 发表于 2024-12-2 12:59</a>
+ 用祥子拉扯你就说给不给吧</blockquote>
+合着一定要有一个不要脸是吧
+有没有可能祥爹劣等感都发作了把祥子赶出门，你让他去跟老丈人要钱？
+那他直接啃祥子抱着🐔不是更直接
+
+脑这些破玩意前能不能过过脑子有点逻辑
+
+*****
+
+####  Aendst  
+##### 987#       发表于 2024-12-2 13:05
+
+ 本帖最后由 Aendst 于 2024-12-2 13:06 编辑 
+
+不拿就是自作自受，就不配姓豊川是吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+是不是对日本财阀有什么偏见刻板印象
+
+对人负责对自己负责，有骨气这么优秀的品质也能歪成自作自受
+
+*****
+
+####  结衣小比取  
+##### 988#       发表于 2024-12-2 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66822028&amp;ptid=2208921" target="_blank">守望者404 发表于 2024-12-2 12:40</a>
+
+去了成都唯一家罗森主题店，居然没啥人，还是高估了线下热度</blockquote>
+地址是哪里啊，说一下<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  金钱与民主  
+##### 989#       发表于 2024-12-2 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66818763&amp;ptid=2208921" target="_blank">星天观测 发表于 2024-12-2 00:22</a>
+
+我是说就算老爹没发狂，没有使祥子准备打算搬走，也是要拿东西去会场的
+
+不过我还没看完那个听译，如果有 ...</blockquote>
+应该就是搬走了，我觉得设计这段剧情其实就是让祥子在剧情上脱离出租屋这个场景用的，这样爹这个角色就相当于暂时下线了。父母辈只是背景板设定这一点看来制作组还是很清楚的。
+
+*****
+
+####  PDQ4  
+##### 990#       发表于 2024-12-2 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66822245&amp;ptid=2208921" target="_blank">rikaren 发表于 2024-12-2 13:01</a>
+ 有一部分人还好，但是有一部分我不好说是不是为了按他们想法来就可以名正言顺攻击道德问题了，毕竟某屎黄 ...</blockquote>
+不要爹也要骂祥子疑似有点哄堂大孝了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

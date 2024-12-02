@@ -11601,3 +11601,14 @@ B站上的PV播放量已经150W+了，追番人数也已经破百万，除老钟
 是说爱音能认出喵梦，另一位偶像初华怎么就认不出呢，看来还是不够了解啊（ ...</blockquote>
 跟风喜欢sumimi罢了，本质对金毛无感呗。
 
+
+*****
+
+####  Aendst  
+##### 1127#       发表于 2024-12-2 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66825920&amp;ptid=2208921" target="_blank">桜庭千景 发表于 2024-12-2 19:47</a>
+
+不过其实那里也有可能只是为了把睦和祥子塞进同框里来着</blockquote>
+是这样，其实也还只是推测，真只是塞同框的话也有可能只是父母辈关系很好
+

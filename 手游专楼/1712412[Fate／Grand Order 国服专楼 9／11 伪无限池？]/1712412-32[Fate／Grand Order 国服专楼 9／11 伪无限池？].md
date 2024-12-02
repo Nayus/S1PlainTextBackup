@@ -324,3 +324,13 @@ wo日，我还提前阵容，到跟前给忘了，现在还有柱子吗</blockqu
 
 不过也少了烦恼组队的事情
 
+
+*****
+
+####  atomicink  
+##### 46835#       发表于 2024-12-2 20:43
+
+杂贺建模和宝具都没见过就10绊下班了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过她的剧情写的很不讨喜就是了
+

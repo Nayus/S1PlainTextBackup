@@ -9298,3 +9298,47 @@ sumimi为什么让她疲惫是初华身上问题之一
 sumimi那么累说明这份工作不是她真心想干的，那发生了什么让她疲惫于自己选的这条路
 这也是我觉得初华身上的秘密，初祥要的就是这种重逢系的戏码，幼时惊鸿一瞥互相许下誓言，但是两个人都在不知道的地方发生了改变，要互相接受认识新的对方<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 904#       发表于 2024-12-2 11:06
+
+ 本帖最后由 紫吹兰 于 2024-12-2 11:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66821055&amp;ptid=2208921" target="_blank">狮子咕 发表于 2024-12-2 11:04</a>
+
+说起来会不会有祥子被扒出来是丢了160亿的大新闻都能压下去的丰川家千金，然后观众纷纷大喊上母鸡卡几个月 ...</blockquote>
+肯定能扒出来的，丰川财团对Mujica的赞助本来就是明确标出来的，实际上也没太冤枉她，祥子在学校虽然没几个人认识但是又没有隐姓埋名，这次露脸要扒出来她是赞助商家的太子也算合情合理
+
+*****
+
+####  PDQ4  
+##### 905#       发表于 2024-12-2 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66821055&amp;ptid=2208921" target="_blank">狮子咕 发表于 2024-12-2 11:04</a>
+ 说起来会不会有祥子被扒出来是丢了160亿的大新闻都能压下去的丰川家千金，然后观众纷纷大喊上母鸡卡几个月 ...</blockquote>
+三次先不说，你鸡动画什么时候走偶像励志戏码了，别cue pp
+至于二创早就烂完了，还差这一篇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 906#       发表于 2024-12-2 11:09
+
+#丰川祥子带资进组
+#三角初华陪太子读书
+#最能共情喵梦亲的一次
+
+
+*****
+
+####  qratosones1337  
+##### 907#       发表于 2024-12-2 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66815127&amp;ptid=2208921" target="_blank">LeonsCat 发表于 2024-12-1 16:31</a>
+
+外公
+
+以及哪怕不考虑速通武道馆，就是前面拉队伍、搞定演出布置来说，也是“超高校级的制作人”，不姓丰 ...</blockquote>
+入赘的女婿肯定是要改娘家姓的，所以不存在不姓丰川的问题
+

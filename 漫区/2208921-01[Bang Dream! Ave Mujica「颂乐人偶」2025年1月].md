@@ -9610,3 +9610,44 @@ mujica有丰川家的事这个是造谣的吧。
 
 不过这种时候小祥就是污点了哈~
 
+
+*****
+
+####  童话与星空  
+##### 935#       发表于 2024-12-2 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66821648&amp;ptid=2208921" target="_blank">狮子咕 发表于 2024-12-2 12:02</a>
+
+你一个入赘的女婿来当掌权人是不是有点奇怪</blockquote>
+如果头铁了想往这个方向写可以往老爷子身上加设定，比如有大黑料什么的，最后靠这个把老爷子逼退位。不过那样观感就更差了
+
+*****
+
+####  cayon  
+##### 936#       发表于 2024-12-2 12:10
+
+重点还是放在乐队和主要角色上，角色背景没必要搞这么复杂
+
+*****
+
+####  紫吹兰  
+##### 937#       发表于 2024-12-2 12:11
+
+这动画不是写祥爹和外公的，他们怎么搞都是为了塑造祥子从豪门千金跌落到打工妹的反差，拿大篇幅写祥爹斗外公那就不是这部动画了
+
+
+*****
+
+####  SakuraのOrigami  
+##### 938#       发表于 2024-12-2 12:12
+
+鸡团漫画
+<img src="https://p.sda1.dev/20/a43700444843d1aef858cfc9781b3b41/IMG_A7AD4CE03100398ADE7CD72E55D93CF5.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 939#       发表于 2024-12-2 12:14
+
+你哪怕写祥斗外公都比爹斗外公强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

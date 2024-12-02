@@ -12668,3 +12668,56 @@ syl，我觉得第二季祥子的精神状态可能是最好的，已经在谷�
 也可能是跟姥爷打赌自己搞母鸡卡把这168e补回来就让老爹回来，姥爷想想给孙女玩玩看要是真赚了回来那也是能 ...</blockquote>
 什么武士道梦中剧本，武士道市值280亿日元<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer"> 祥子大小姐两年买下武士道
 
+
+*****
+
+####  Aendst  
+##### 1233#       发表于 2024-12-3 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66827414&amp;ptid=2208921" target="_blank">ydsbbt 发表于 2024-12-2 23:44</a>
+
+这是同一件衣服吗？</blockquote>
+环境光太干扰判断了，看不出来
+
+确实有可能是，65%可能
+
+*****
+
+####  NODY  
+##### 1234#       发表于 2024-12-3 00:10
+
+ 本帖最后由 NODY 于 2024-12-3 00:11 编辑 
+
+其实也有自己租房的可能性吧，祥子现在肯定还不想被睦以外的队友知道自己的现状，不可能搬去初海喵家里，如果不是去睦家，那就有可能是自己租新房，刚好按时间算现在也出道一个多月了，工资提成差不多也到手了
+
+甚至没准原本打算是和祥爹一起换房子的，结果刚好这个时间点被祥爹伤心了，直接提了行李就走了
+
+有一说一，祥爹爆的时间点还真是刚好，让祥子在武道馆之前就搬走了，不然武道馆真容爆出来肯定要被狗仔挖家庭情况，到时候挖到祥爹的状况被八卦出去对祥子又是一个麻烦，祥子这个点搬出去刚好避开了
+
+*****
+
+####  Aendst  
+##### 1235#       发表于 2024-12-3 00:11
+
+不幸的丰川祥子终于幸运了一回<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽然还是有点地狱
+
+*****
+
+####  akiomn  
+##### 1236#       发表于 2024-12-3 00:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">住睦家是独角兽xp拉满的写满，先不管剧情了满足xp再说
+睦现在有个假药是被曝光之后被软禁在家里，有可能之前父母一个同意她加入mujica另一个不同意，或者对睦加入mujica有别的要求？
+不清楚睦对mujica是什么态度，目前只知道因为祥子所以才加入的
+pv有个海港画面，睦祥都穿着演出服，睦向祥子走来，得看这部分怎么解释了
+
+
+*****
+
+####  NODY  
+##### 1237#       发表于 2024-12-3 00:16
+
+地狱一点就是出来的时候娃娃忘在祥爹那边，祥子回去拿刚好被狗仔拍了传出去，现在的独角兽我觉得不是写不出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -10413,3 +10413,89 @@ mujica有丰川家的事这个是造谣的吧。
 
 这面具有摘了又戴上的风险吗
 
+
+*****
+
+####  金钱与民主  
+##### 1017#       发表于 2024-12-2 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66822417&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-2 13:24</a>
+
+确实也是，简单处理一下说爹振作了就可以，反正本来就是背景板
+
+只要不分太多戏份确实就不会很影响整体观 ...</blockquote>
+甚至都不是“振作”，单纯戒个酒就是止损罢了，我之前一直在纠结在邦的架构下，不管祥子的乐队做啥，都很难把这种过于现实的问题给解决了，尤其是这还只是背景板剧情，不能喧宾夺主的挤占主要剧情的时长（所以历来邦的剧情里角色和父母的关联性都不能太高，祥子这个都算破天荒了），就像山吹沙绫和她爹吵架那次，涉及到矛盾根本不是PPP她们能解决的，最后是创作者直接在设定上降神、让沙绫的母亲病情好转才把问题解决了。所以我一直不看好所谓的“让爹振作”，因为一来很难做到，二来真做到了只会显得爹这个背景板更加小丑（说得更难听点，赤坂明式的臭气都溢出来了）最后还连累到祥子的形象塑造，但是单纯的让自己爹有所触动、最后把酒戒了，剩下的让观众基于“戒酒”这点自行脑补，反而合理得多。
+
+*****
+
+####  rikaren  
+##### 1018#       发表于 2024-12-2 13:52
+
+动画剧情里我估计还会有一次戴上的画面再摘下，这一次不是扮演名为“Doloris”“Mortis”“Timoris”“Amoris”“Oblivionis”的人偶，而是真实的自我这种对应？
+
+*****
+
+####  rikaren  
+##### 1019#       发表于 2024-12-2 13:53
+
+<blockquote>金钱与民主 发表于 2024-12-2 13:52
+甚至都不是“振作”，单纯戒个酒就是止损罢了，我之前一直在纠结在邦的架构下，不管祥子的乐队做啥，都很 ...</blockquote>
+
+同意，给个戒酒+找工作/正在工作的镜头就已经可以说明很多了。
+
+*****
+
+####  Aendst  
+##### 1020#       发表于 2024-12-2 13:53
+
+隐藏身份的意义已经没有了，而且看祥子态度应该也是有以后摘面具的打算的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ep13假面乐队成员自觉那句好像有点回旋镖了
+
+现在大概就是睦到底受了多少摘面具的影响，如果影响演出了可能还是会戴回去的
+
+4th反正也要播动画，这么好的时机就干脆就配合动画一起摘了别戴回去了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 1021#       发表于 2024-12-2 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66822568&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-2 13:46</a>
+ 这面具有摘了又戴上的风险吗</blockquote>
+我觉得概率不低
+睦那个状态明显是没法演奏的，下一集估计开局就要祥子圆设定安抚睦，然后想办法把面具戴回去，至少要先把live完成<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 1022#       发表于 2024-12-2 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66822613&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2024-12-2 13:52</a>
+
+甚至都不是“振作”，单纯戒个酒就是止损罢了，我之前一直在纠结在邦的架构下，不管祥子的乐队做啥，都很 ...</blockquote>
+祥爹基本是烫手山芋，作为背景板可以，真要详写真的不好处理
+
+*****
+
+####  金钱与民主  
+##### 1023#       发表于 2024-12-2 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66822620&amp;ptid=2208921" target="_blank">rikaren 发表于 2024-12-2 13:53</a>
+
+同意，给个戒酒+找工作/正在工作的镜头就已经可以说明很多了。</blockquote>
+不不不，戒酒足矣，其他的啥都不应该有，只有这个就够了，把后续完全交给观众脑补就行。
+
+*****
+
+####  LeonsCat  
+##### 1024#       发表于 2024-12-2 13:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66822547&amp;ptid=2208921" target="_blank">御幸一也 发表于 2024-12-2 13:43</a>
+
+單純分遺產上來說，收養不收養沒有區別。
+
+因為沒有遺囑的話是第一順位平分的，不收養祥子她就是代位繼承 ...</blockquote>
+传达的信息完全不一样。
+
+被逐出家族的罪人的女儿，和被承认的丰川大小姐，分量差了海了去了。前者随便拿去当个联姻工具都算是捧着了，后者那是第一顺位继承人。
+

@@ -7152,3 +7152,14 @@ T4队友C超特大伤害，推荐用大剑哥
 
 Hard难度一切BOSS都能用这套带走
 
+
+*****
+
+####  ouyang菌  
+##### 3598#       发表于 2024-12-2 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66818951&amp;ptid=2140224" target="_blank">石中剑二 发表于 2024-12-2 01:00</a>
+
+那些大几千甚至上万的伤害都是怎么打出来的，这游戏堆伤害的办法不也无外乎就是给敌人降三级防，给我方加三 ...</blockquote>
+还有各类被动的加成，比如高级斩强化，斩强化，合题强化，前后排增伤这种
+

@@ -10499,3 +10499,16 @@ mujica有丰川家的事这个是造谣的吧。
 
 被逐出家族的罪人的女儿，和被承认的丰川大小姐，分量差了海了去了。前者随便拿去当个联姻工具都算是捧着了，后者那是第一顺位继承人。
 
+
+*****
+
+####  御幸一也  
+##### 1025#       发表于 2024-12-2 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66822646&amp;ptid=2208921" target="_blank">LeonsCat 发表于 2024-12-2 13:57</a>
+
+传达的信息完全不一样。
+
+被逐出家族的罪人的女儿，和被承认的丰川大小姐，分量差了海了去了。前者随便拿 ...</blockquote>
+原來如此<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+

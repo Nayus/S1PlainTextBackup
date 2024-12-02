@@ -10911,3 +10911,68 @@ Q版keai。
 
 现在补充了回忆，祥子在母亲去世后精神恍惚的描绘着实有些触动，这时期的睦应该是在想方设法让祥子振作吧，带去音乐祭介绍m团陪组乐队，对比谈春日影时的无表情和团建时的表现，想了一下这段时间睦的行动，注意力和反应好像全都是围绕着祥子的兴趣和情绪状态，祥子兴奋表示第一次见ktv时睦立刻就说自己家里也有就是出于这个缘由吧(结果下一刻就被素世接话到艺人话题疑似踩雷语塞了)，甚至主动唱歌，除了哄祥子开心外可能也是睦试图让祥子像过去一样来自己家里吗，不管怎样这段时间设法想让祥子笑出来的睦，和此刻祥子反说睦也是会笑的真是两人完美的回旋了
 
+
+*****
+
+####  rushsong  
+##### 1065#       发表于 2024-12-2 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66822251&amp;ptid=2208921" target="_blank">novalli 发表于 2024-12-2 13:02</a>
+初中生打工赚生活费和学费，还能供老爹喝酒和赔钱。。。只能说有可能，但还是太超人了
+
+—— 来自 鹅球 v3. ...</blockquote>
+可以的，日本人吃得少+祥子估计除了吃住以外什么东西都不买，你看她一件旧衣服穿一年就明白了<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2183A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  -LYRE-  
+##### 1066#       发表于 2024-12-2 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66823799&amp;ptid=2208921" target="_blank">allesdg 发表于 2024-12-2 16:07</a>
+现在补充了回忆，祥子在母亲去世后精神恍惚的描绘着实有些触动，这时期的睦应该是在想方设法让祥子振作吧， ...</blockquote>
+有点地狱了
+睦是为了让祥子振作、开心起来才带祥子去看蝶团演出的话，因蝶团而诞生组乐队想法的祥子，和提供这个契机的睦，可以说是睦祥两人一手建立的c团，最后也由睦祥两人终结
+本是为了让祥子开心而陪伴组的乐队，最后却因为一系列的事让祥子更不开心了
+睦如果因此对乐队ptsd都能理解
+也难怪从小到大祥子有什么想法都是直接拉着睦一起去做，到mujica却罕见地成为最后一个入队的了
+
+*****
+
+####  Aendst  
+##### 1067#       发表于 2024-12-2 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66823888&amp;ptid=2208921" target="_blank">-LYRE- 发表于 2024-12-2 16:16</a>
+
+有点地狱了
+
+睦是为了让祥子振作、开心起来才带祥子去看蝶团演出的话，因蝶团而诞生组乐队想法的祥子，和 ...</blockquote>
+睦祥一起开始的crychic，最后一起结束crychic，这个点确实蛮有意思的
+
+*****
+
+####  PDQ4  
+##### 1068#       发表于 2024-12-2 16:18
+
+姐妹论又要复活了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+实际上看完觉得至少表姐妹可能性不低
+人偶之前疑似关联睦，现在爆出是祥妈的人偶，可能是送了睦祥一对人偶
+说不定祥妈本身就是个人偶+钢琴爱好者，祥子兴趣都是遗传自妈的，唯一问题是这么想森美奈美女士疑似有点大道寺园美了，给自家孩子整成小人偶学钢琴的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  罗克萨斯  
+##### 1069#       发表于 2024-12-2 16:20
+
+看了剧透，对小祥心生怜爱，真是苦命的孩子😭
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  skives10  
+##### 1070#       发表于 2024-12-2 16:21
+
+森美奈美：我从祥子出生时就开始喜欢你了
+

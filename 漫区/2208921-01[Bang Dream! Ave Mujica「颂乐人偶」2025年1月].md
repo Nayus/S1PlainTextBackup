@@ -9538,3 +9538,75 @@ mujica有丰川家的事这个是造谣的吧。
 只能说最后发现她没拿老头的赞助 
 那就是意外惊喜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 928#       发表于 2024-12-2 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66821577&amp;ptid=2208921" target="_blank">童话与星空 发表于 2024-12-2 11:55</a>
+
+硬要让老爷子背锅也可以，只要说那160e亏损不是祥爹的错，是老爷子的错，祥爹只是被推出来背锅的就行。之 ...</blockquote>
+一股大赤老师的味道，建议别这样写。。。
+
+*****
+
+####  adcdqre  
+##### 929#       发表于 2024-12-2 11:58
+
+假的就是假的当真的聊没意思了。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  童话与星空  
+##### 930#       发表于 2024-12-2 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66821596&amp;ptid=2208921" target="_blank">ads147147 发表于 2024-12-2 11:56</a>
+
+一股大赤老师的味道，建议别这样写。。。</blockquote>
+所以说是硬要让老爷子背锅嘛，这么写很难观感好。不过现在关于祥爹的信息还太少，可能会有我们想不到的展开
+
+
+*****
+
+####  狮子咕  
+##### 931#       发表于 2024-12-2 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66821577&amp;ptid=2208921" target="_blank">童话与星空 发表于 2024-12-2 11:55</a>
+
+硬要让老爷子背锅也可以，只要说那160e亏损不是祥爹的错，是老爷子的错，祥爹只是被推出来背锅的就行。之 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你一个入赘的女婿来当掌权人是不是有点奇怪
+
+*****
+
+####  紫吹兰  
+##### 932#       发表于 2024-12-2 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66821577&amp;ptid=2208921" target="_blank">童话与星空 发表于 2024-12-2 11:55</a>
+
+硬要让老爷子背锅也可以，只要说那160e亏损不是祥爹的错，是老爷子的错，祥爹只是被推出来背锅的就行。之 ...</blockquote>
+无论是独角兽还是武士道都不会允许祥爹占这么多戏份，他能悔过好好做人就差不多了
+
+*****
+
+####  adcdqre  
+##### 933#       发表于 2024-12-2 12:03
+
+厨子吹黑不断搞出谣言和烂梗听难绷的
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  LeonsCat  
+##### 934#       发表于 2024-12-2 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66821648&amp;ptid=2208921" target="_blank">狮子咕 发表于 2024-12-2 12:02</a>
+
+你一个入赘的女婿来当掌权人是不是有点奇怪</blockquote>
+莫欺少年穷，龙王归位么。
+
+不过这种时候小祥就是污点了哈~
+

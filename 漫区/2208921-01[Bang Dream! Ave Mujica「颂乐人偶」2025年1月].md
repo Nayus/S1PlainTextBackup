@@ -12993,3 +12993,57 @@ pv有个海港画面，睦祥都穿着演出服，睦向祥子走来，得看这
 
 你让独角兽写商战还是算了吧，你这不是强人所难吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 1259#       发表于 2024-12-3 01:08
+
+商战还不如给轻拍下战书呢<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 1260#       发表于 2024-12-3 01:08
+
+ 本帖最后由 NODY 于 2024-12-3 01:10 编辑 
+
+祥子那个流行不会长久，人们见异思迁会不会就是剧情的暗示？
+
+因为武道馆在邦邦其实已经算是巅峰的代名词了（ag和pp最新的主线都在打武道馆，然后刚好都输在决赛没能上成，所以地位其实是很高的），mujica再往上也不好写了
+
+那么接下来可能就是斗公司的内容，比如和公司要求的路线出现分歧，或者出现炎上危机，导致公司开始推其他组合冷落mujica，然后因为热度来的粉丝马上就开始转推新乐队了，对应了祥子独白说流行不会长久，而mujica的主线就是要靠着自己的实力重新站上最高的舞台（也对应第一集祥子对喵梦说比起一时的热度，更重要的是靠实力证明自己）
+
+*****
+
+####  星天观测  
+##### 1261#       发表于 2024-12-3 01:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66827798&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-3 01:05</a>
+
+漏油这疑似有点太小团体了，群聊真的很容易共振和走死胡同
+
+发到论坛就是为了引发更多人头脑风暴
+
+要是真能 ...</blockquote>
+那可能是经历不太一样，至少我加过的各种小群（不限于邦）体验都还行，意见不同但是可以求同存异的
+
+至于头脑风暴只能说有些时候会过犹不及
+
+不过这其实也都是个人体感而已，这个群也不是说非拉不可，就当我大晚上随便说说
+
+
+*****
+
+####  PDQ4  
+##### 1262#       发表于 2024-12-3 01:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66827810&amp;ptid=2208921" target="_blank">NODY 发表于 2024-12-3 01:08</a>
+
+祥子那个流行不会长久，人们见异思迁会不会就是剧情的暗示？
+
+因为武道馆在邦邦其实已经算是巅峰的代名词了 ...</blockquote>
+喵梦这个爆来的热度肯定会引起反噬的，估计最后还是变成追求音乐巅峰的王道剧情
+
+小川也是动画脚本之一，小剧场肯定是取材于鸡本身的剧本，但是能剧透多远我不好说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -12471,3 +12471,105 @@ pv如果是13集回去那次
 
 syl，我觉得第二季祥子的精神状态可能是最好的，已经在谷底了，再往下走真的只能回家继承家产了。
 
+
+*****
+
+####  LeonsCat  
+##### 1215#       发表于 2024-12-2 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66827431&amp;ptid=2208921" target="_blank">九陌狂游 发表于 2024-12-2 23:47</a>
+
+有一说一祥子去拉赞助的时候别人看她怕不是富二代为了证明自己明面上不靠家里人人脉，白手起家亲自打拼。她 ...</blockquote>
+林俊杰是吧
+
+*****
+
+####  skives10  
+##### 1216#       发表于 2024-12-2 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66827413&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-2 23:44</a>
+这才刚开始，还有12集我都不敢想独角兽要干什么
+
+之前和朋友讨论过，祥子的人偶重要性有点太高了，PV里也有 ...</blockquote>
+你一提我想起来了
+第一集没有pv2里人偶特写的镜头画面
+而祥子已经搬走了
+如果回收这个画面
+意味着祥子会回来住？？？
+
+*****
+
+####  Aendst  
+##### 1217#       发表于 2024-12-2 23:52
+
+……那里人偶的位置确实是和廉租房一致的
+
+除非祥子搬去新地方之后布置完全一致，不然人偶确实是要回廉租房的<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  蜇灵  
+##### 1218#       发表于 2024-12-2 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66825659&amp;ptid=2208921" target="_blank">星天观测 发表于 2024-12-2 19:09</a>
+那怎么办呢，同时关注企划的去别楼说话么</blockquote>
+我的意思是因为标题的原因，新来的人很可能真的就只是看动画的，而且随着动画越来越火，比例也会越来越高
+
+
+*****
+
+####  PDQ4  
+##### 1219#       发表于 2024-12-2 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66827453&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-2 23:51</a>
+
+你一提我想起来了
+
+第一集没有pv2里人偶特写的镜头画面
+
+而祥子已经搬走了</blockquote>
+不好说，也可能之后还会有回忆祥子老破小的剧情
+
+祥子是妈妈的遗留物这一点，基本上可以把初三之后所有人偶剧情等价于祥妈在天之魂注视着祥子
+
+回小破屋这一点确实是有可能的，第一集祥子那个状态是对爹失望愤怒，我没觉得完全放下了，可能再来几个电话就又回去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 1220#       发表于 2024-12-2 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66827461&amp;ptid=2208921" target="_blank">蜇灵 发表于 2024-12-2 23:53</a>
+
+我的意思是因为标题的原因，新来的人很可能真的就只是看动画的，而且随着动画越来越火，比例也会越来越高 ...</blockquote>
+那我的原话也是不会觉得<strong>全</strong>是<strong>只</strong>看动画的吧
+
+那14号15号的鸡live信息之类的我发这里到底是可以还是不可以的
+
+要是不行我在自己群里讨论也行，也不是非要在这里说话
+
+*****
+
+####  Aendst  
+##### 1221#       发表于 2024-12-2 23:57
+
+主楼也有CD情报和LIVE情报，发LIVE相关完全没问题吧？
+
+*****
+
+####  PDQ4  
+##### 1222#       发表于 2024-12-2 23:57
+
+二偶哪有抛开中之人的，广告片讨论本质东西很正常吧<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  红楼飞雪  
+##### 1223#       发表于 2024-12-2 23:57
+
+没必要把家族人脉和个人能力这两件事搞得这么非此即彼吧
+
+有人脉的人很多，但能两个月速成银河战舰的有几个，再过了一两个月(?)又速成武道馆的又有几个，这是光有人脉就能做到的事情吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比方说鸡狗剩下九人任意一人摆在祥子这个身份上，我都觉得几乎0可能做成同样的事情
+
+人脉为0 凭真·白手速成商业乐队本来就挺扯的，承认最大限利用人脉的同时 祥子的个人能力也很离谱不就是了
+

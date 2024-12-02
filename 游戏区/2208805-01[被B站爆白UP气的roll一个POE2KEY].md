@@ -1346,3 +1346,21 @@ poe有自己的服务器路线，加速时候不需要阿区。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">国服poe可能是为数不多的铜臭味比国服wow还大的游戏，某种意义上还是很了不起的。
 
+
+*****
+
+####  shyso  
+##### 147#       发表于 2024-12-2 08:39
+
+我玩网游唯一一次被骗就是国服poe，虽然有心理准备，就当是测试玩家生态了，不过还是挺有感触的，颇有一种show小白猪仔no mercy的气氛
+
+
+*****
+
+####  看着键盘发呆  
+##### 148#       发表于 2024-12-2 08:42
+
+roll一发
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

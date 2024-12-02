@@ -10868,3 +10868,38 @@ Q版keai。
 实体店今天是不是还没有联动商品啊，下班后想去罗森看看</blockquote>
 12月9号上
 
+
+*****
+
+####  qjw114514  
+##### 1061#       发表于 2024-12-2 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66823659&amp;ptid=2208921" target="_blank">月島まりな 发表于 2024-12-2 15:55</a>
+12月9号上</blockquote>
+哦哦，谢谢，那只能几天再去了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 1062#       发表于 2024-12-2 16:01
+
+有没有可能14号和15号有live，live后有邦tv呢
+
+不会真觉得全是只看动画的吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狮子咕  
+##### 1063#       发表于 2024-12-2 16:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">会是这样的展开吗，海边聊天戏的时候睦直接和祥子爆了
+
+<img src="https://img.saraba1st.com/forum/202412/02/160409dzg9ny97qeluyugg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (61.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-2 16:04 上传
+

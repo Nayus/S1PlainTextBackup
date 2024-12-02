@@ -9838,3 +9838,117 @@ mujica有丰川家的事这个是造谣的吧。
 今天在qq里群里遇到极端祥嬷想到了:既然允许祥子接着姓丰川,按照丰川家业的规模来说,家里应该给fw老爹每个 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你以为满地的啤酒 钱从哪里来的
 
+
+*****
+
+####  novalli  
+##### 960#       发表于 2024-12-2 12:47
+
+难道说其实祥爹生活是可以维持的，只是精神垮了无法振作；祥子缺钱是因为她自己拒绝了丰川家？不过这样就有点复杂了，作为背景来说不太好。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.94-alpha
+
+
+*****
+
+####  novalli  
+##### 961#       发表于 2024-12-2 12:49
+
+另外祥子组建Ave Mujica目的是啥？挣钱？还是证明什么？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.94-alpha
+
+*****
+
+####  skives10  
+##### 962#       发表于 2024-12-2 12:50
+
+祥子不是发现存折没钱了吗
+难道祥爹还有别的小金库
+那也太逆天了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 963#       发表于 2024-12-2 12:50
+
+怎么就要修正喵梦了，喵梦有野心是什么坏事吗，虽然打乱祥p计划还给睦上压活该被收拾
+
+写成上面大人物的推手那不就是被扔掉的结果，对喵梦好点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 964#       发表于 2024-12-2 12:50
+
+少来狗天神降临拯救鸡了
+狗的问题内部解决了鸡自己内部解决不了么
+
+*****
+
+####  yozoraxsx  
+##### 965#       发表于 2024-12-2 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66822044&amp;ptid=2208921" target="_blank">枫林不见 发表于 2024-12-2 12:42</a>
+
+你以为满地的啤酒 钱从哪里来的</blockquote>
+至少应该会替缴祥子在月之森接着念书的学费吧？用这个拴着祥爸把祥子份的给祥子。这样老爷子祥爸祥子三方互相拉扯的地方应该很多，不至于到mygo最后一集那个境地吧。
+
+*****
+
+####  PDQ4  
+##### 966#       发表于 2024-12-2 12:51
+
+爽姐不来继续pua睦就谢天谢地了，别再智慧了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rikaren  
+##### 967#       发表于 2024-12-2 12:52
+
+喵梦的行为我倒是觉得有在呼应“能够相信的只有自己”和获得了生命按自我意识行动的人偶，不过有些观众能不能接受这种呼应就不好说了。
+
+*****
+
+####  rikaren  
+##### 968#       发表于 2024-12-2 12:53
+
+<blockquote>yozoraxsx 发表于 2024-12-2 12:51
+至少应该会替缴祥子在月之森接着念书的学费吧？用这个拴着祥爸把祥子份的给祥子。这样老爷子祥爸祥子三方 ...</blockquote>
+以祥的性格就算外公打钱祥也不会要啊
+
+*****
+
+####  novalli  
+##### 969#       发表于 2024-12-2 12:55
+
+我的意思就是祥爹有基本的生活费，但加上祥子的学费、生活费就不够用了。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.94-alpha
+
+*****
+
+####  yozoraxsx  
+##### 970#       发表于 2024-12-2 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66822116&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-2 12:50</a>
+
+祥子不是发现存折没钱了吗
+
+难道祥爹还有别的小金库
+
+那也太逆天了</blockquote>
+打存折里不就被强制执行了？
+
+*****
+
+####  akiomn  
+##### 971#       发表于 2024-12-2 12:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">yysy，独角兽还是很会卖的，彻底入土的素祥都能被拉一把。
+素祥：祥子退c团回忆部分，按照剧透台词，祥子看到素食发短信其实挺开心的，这部分是实锤的
+灯祥：得假定pv部分的便签是灯给的（就是又把祥子破防落泪了）
+
+至于素睦，呃，第二集预告有go五人集合镜头，素食别又惊世智慧整活就不错了，毕竟睦线最后肯定是祥子来擦屁股
+

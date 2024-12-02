@@ -182,3 +182,11 @@ VCRGTA3已知的部分情报（一些主播直播的时候透露的）
 
 A档，送检起诉吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  艾特娜  
+##### 910#       发表于 2024-12-2 20:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">委员长开个宝可梦大会的可能性微存？
+

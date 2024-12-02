@@ -11590,3 +11590,14 @@ B站上的PV播放量已经150W+了，追番人数也已经破百万，除老钟
 是说爱音能认出喵梦，另一位偶像初华怎么就认不出呢，看来还是不够了解啊（ ...</blockquote>
 应该是喵梦平时视频里多少暗示过自己和AMORIS的关系
 
+
+*****
+
+####  前方暴雨预警  
+##### 1126#       发表于 2024-12-2 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66826124&amp;ptid=2208921" target="_blank">Kfly 发表于 2024-12-2 20:14</a>
+
+是说爱音能认出喵梦，另一位偶像初华怎么就认不出呢，看来还是不够了解啊（ ...</blockquote>
+跟风喜欢sumimi罢了，本质对金毛无感呗。
+

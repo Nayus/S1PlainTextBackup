@@ -10735,3 +10735,47 @@ pv3其实有一部分问题是不知道发生时间，大猫敲鼓那段多半�
 
 话说回来，喵梦这个在舞台上揭人面具的举动，自己的账号肯定要大炎上了吧.....都可以算抽象系操作了。
 
+
+*****
+
+####  skives10  
+##### 1047#       发表于 2024-12-2 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66823125&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2024-12-2 14:52</a>
+话说回来，喵梦这个在舞台上揭人面具的举动，自己的账号肯定要大炎上了吧.....都可以算抽象系操作了。 ...</blockquote>
+演唱会之后应该会有采访环节吧 
+祥子肯定要帮她圆过去的
+不然乐队不仲这种传闻也足够让母鸡卡喝一壶的
+这么交付人生的含义就有意思了，我随便作死，你来帮我兜底<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  -LYRE-  
+##### 1048#       发表于 2024-12-2 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66820994&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-2 10:55</a>
+往好里想，我记得魔圆是不是好像也这样做过？</blockquote>
+我记得魔圆有说过画学姐那一幕的画师都不知道是什么情况<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+梶浦由记被邀请时很诧异居然能被邀请为魔法少女题材作曲，结果被说风格很适配<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 1049#       发表于 2024-12-2 15:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">作死也是有底线的，祥子能忍一次不代表能无止境的让喵梦作下去
+现在祥子是顶级抗压王，亲妈死了祥子还是白祥，牢爹被赶出家门了仍然想继续c团，牢爹酗酒彻底废了，祥子也不过是结束c团＋继续打工照顾牢爹，听了春日影只是想赌上一切组mujica了，直到第一集牢爹对祥子发火后祥子才彻底破防
+就这样破防了也能说出我只剩下mujica了，喵梦搞事没有当场翻脸。不知道接下来有多大活才能让祥子真的再破防一次
+
+*****
+
+####  雨井绫  
+##### 1050#       发表于 2024-12-2 15:01
+
+<img src="https://p.sda1.dev/20/59ad153db71ec91caa1b4c96e56a9854/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/772fa975809d10d66243d3c7a43fce76/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/7ca029c2d7404cbff269e020d02bc14a/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/f0821df3fb5d216ad39ad19cb1acfbeb/image.jpg" referrerpolicy="no-referrer">
+Q版keai。
+

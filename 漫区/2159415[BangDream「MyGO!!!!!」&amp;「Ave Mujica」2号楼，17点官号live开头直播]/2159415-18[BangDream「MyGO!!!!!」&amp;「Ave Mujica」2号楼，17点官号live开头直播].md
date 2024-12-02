@@ -16683,3 +16683,24 @@ EA487C0A626CFAE760B56986114137A2.jpg
 
 2024-12-2 12:38 上传
 
+
+*****
+
+####  雨井绫  
+##### 26539#       发表于 2024-12-2 15:03
+
+<img src="https://p.sda1.dev/20/374b1420d5a218cd5a8ebdf32b804484/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/199bdde42687fa1def87455772fea989/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/62178efd1629dfc120d267bd7e97358a/image.jpg" referrerpolicy="no-referrer">
+招募伙伴.jpg
+
+*****
+
+####  紫吹兰  
+##### 26540#         楼主| 发表于 2024-12-2 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66823244&amp;ptid=2159415" target="_blank">雨井绫 发表于 2024-12-2 15:03</a>
+
+招募伙伴.jpg</blockquote>
+别说，爱祥两个建队的在最上面，这海报还挺像回事。
+

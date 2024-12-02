@@ -10159,3 +10159,48 @@ mujica有丰川家的事这个是造谣的吧。
  有一部分人还好，但是有一部分我不好说是不是为了按他们想法来就可以名正言顺攻击道德问题了，毕竟某屎黄 ...</blockquote>
 不要爹也要骂祥子疑似有点哄堂大孝了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives10  
+##### 991#       发表于 2024-12-2 13:09
+
+选丰川家可以黑她不要亲爹
+选爹可以黑她自找苦吃
+怎么都是赢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ytttsuuuba  
+##### 992#       发表于 2024-12-2 13:10
+
+有些疑似生物就是怎么都能喷的，回去，老爹都不要了，无情无义的出生，更爱钱和大豪斯是吧，赔老爹，愚孝，没苦硬吃。真的无敌了。只能说没有父母的疑似生物可能太多了。
+
+
+*****
+
+####  rikaren  
+##### 993#       发表于 2024-12-2 13:13
+
+祥外公收养祥当女儿的情况，看漏油前面对日本收养行为的补充，给了我一种祥外公还挺好的感觉，毕竟收养成女儿我的理解是继承顺位更高了（
+
+*****
+
+####  好想看Mujica啊  
+##### 994#       发表于 2024-12-2 13:13
+
+能不能别再丰川了，聊点少女和乐队<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ggxx001  
+##### 995#       发表于 2024-12-2 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66822122&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-2 12:50</a>
+怎么就要修正喵梦了，喵梦有野心是什么坏事吗，虽然打乱祥p计划还给睦上压活该被收拾
+
+写成上面大人物的推 ...</blockquote>
+修正倒不至于 但是事后面对睦 总不可能插科打诨糊弄过去吧 对祥可以是欢喜冤家 对睦真不好写了 毕竟真得很受伤 也有可能真没人在意睦的感受 此事就在争论声中过去了（此乃滑坡）
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

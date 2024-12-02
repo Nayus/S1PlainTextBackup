@@ -9217,3 +9217,84 @@ mujica剧情发生的时候，小白已经把理事长干挺了吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最难顶的可能是立希了，后桌俩个背着她搞了那么大的事，两个前队友也有份
 劣等感要拉满了
 
+
+*****
+
+####  PDQ4  
+##### 895#       发表于 2024-12-2 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66820994&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-2 10:55</a>
+ 往好里想，我记得魔圆是不是好像也这样做过？</blockquote>
+不敢这么想，怕键盘冒奶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Prairial  
+##### 896#       发表于 2024-12-2 10:56
+
+看了下剧透，祥爹是轻量级韭留美这段算自圆其说了，但△是轻量级水子姐实锤了么？一开始那个回复是△小号发的？
+
+*****
+
+####  紫吹兰  
+##### 897#       发表于 2024-12-2 10:56
+
+<blockquote>PDQ4 发表于 2024-12-1 23:37
+初华怎么会体力不支，精神疲惫概率更高
+
+sumimi为什么让她疲惫是初华身上问题之一
+
+</blockquote>
+和mana一起上台是工作，和祥子一起上台是生活，哪个更累不是一目了然吗
+
+*****
+
+####  skives10  
+##### 898#       发表于 2024-12-2 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66821006&amp;ptid=2208921" target="_blank">Prairial 发表于 2024-12-2 10:56</a>
+看了下剧透，祥爹是轻量级韭留美这段算自圆其说了，但△是轻量级水子姐实锤了么？一开始那个回复是△小号发 ...</blockquote>
+没实锤 连暗示都没有 纯纯的假药<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  好想看Mujica啊  
+##### 899#       发表于 2024-12-2 10:59
+
+初华上京做偶像可能就是为了有个适当的理由离祥子近点
+
+*****
+
+####  Prairial  
+##### 900#       发表于 2024-12-2 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66821025&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-2 10:59</a>
+
+没实锤 连暗示都没有 纯纯的假药</blockquote>
+那还好，希望以后假药成真<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  狮子咕  
+##### 901#       发表于 2024-12-2 11:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来会不会有祥子被扒出来是丢了160亿的大新闻都能压下去的丰川家千金，然后观众纷纷大喊上母鸡卡几个月就直接上武道馆是黑幕，以后再也不相信什么偶像励志上武道馆这种奇怪的剧情或者二创之类的怪东西出来
+
+*****
+
+####  NODY  
+##### 902#       发表于 2024-12-2 11:04
+
+老团新一轮主线都发生在五六月，鸡狗还没组建呢，蝶在月之森音乐祭前就已经把老古板理事长说服了，不会影响睦
+
+*****
+
+####  PDQ4  
+##### 903#       发表于 2024-12-2 11:04
+
+主唱哪能这样，音乐梦呢，唱歌的初心呢
+可以说祥子是一部分原因，但我不信是全部
+sumimi那么累说明这份工作不是她真心想干的，那发生了什么让她疲惫于自己选的这条路
+这也是我觉得初华身上的秘密，初祥要的就是这种重逢系的戏码，幼时惊鸿一瞥互相许下誓言，但是两个人都在不知道的地方发生了改变，要互相接受认识新的对方<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

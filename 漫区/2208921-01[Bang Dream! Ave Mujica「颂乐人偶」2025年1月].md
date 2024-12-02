@@ -12573,3 +12573,98 @@ syl，我觉得第二季祥子的精神状态可能是最好的，已经在谷�
 
 人脉为0 凭真·白手速成商业乐队本来就挺扯的，承认最大限利用人脉的同时 祥子的个人能力也很离谱不就是了
 
+
+*****
+
+####  狮子咕  
+##### 1224#       发表于 2024-12-2 23:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以是出门的时候没有带玩偶，结果气消了回去的时候发现老爸彻底不知道哪儿去了（或者挂吊打），于是只能带着人偶回豪宅住哩
+
+*****
+
+####  skives10  
+##### 1225#       发表于 2024-12-2 23:58
+
+我想看的是她在各个队友家搬来搬去 
+不是在这两个地方搬来搬去啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+这下要疯狂焦虑到1月9日了
+天杀的wsd
+
+*****
+
+####  星天观测  
+##### 1226#       发表于 2024-12-3 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66827485&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-2 23:57</a>
+
+二偶哪有抛开中之人的，广告片讨论本质东西很正常吧</blockquote>
+谁知道呢，反正这一个月大概也就是这一年的缩影，靠着现有的东西不断产生假药然后无限轮回
+
+在小群聊或许还更聊得来一点
+
+毕竟马上就要播了，比起不停猜我个人还是喜欢有啥说啥说完了干点别的等播出
+
+*****
+
+####  PDQ4  
+##### 1227#       发表于 2024-12-3 00:01
+
+从不可说视频来看，祥爹扔完啤酒罐祥子可能真没带，开完live找地住的时候可能就回去拿人偶了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 1228#       发表于 2024-12-3 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66827506&amp;ptid=2208921" target="_blank">星天观测 发表于 2024-12-3 00:01</a>
+
+谁知道呢，反正这一个月大概也就是这一年的缩影，靠着现有的东西不断产生假药然后无限轮回
+
+在小群聊或许 ...</blockquote>
+那确实，聊得开心最重要<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 1229#       发表于 2024-12-3 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66827142&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2024-12-2 23:07</a>
+又想到一点🐱🐘
+
+🐘的没退路是自己以为的没退路，但大喵可能才是真没退路的那个，网红做不起来，鸡团这把再 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有点像中之人，我记得米泽说过家人让她放弃打鼓回家的
+
+
+*****
+
+####  PDQ4  
+##### 1230#       发表于 2024-12-3 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66827491&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-2 23:58</a>
+
+我想看的是她在各个队友家搬来搬去 
+
+不是在这两个地方搬来搬去啊
+
+这下要疯狂焦虑到1月9日了</blockquote>
+不冲突，可以带着祥妈人偶见完队友兜兜转转回到最初的地方<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 1231#       发表于 2024-12-3 00:05
+
+从第一集来看 祥子的思路还是有点理想主义的 要把阿贝母鸡卡变成传世经典乐队长期运营 
+而喵梦急于获得切实的流量和利益…
+
+*****
+
+####  wszweill  
+##### 1232#       发表于 2024-12-3 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66827366&amp;ptid=2208921" target="_blank">杂灰 发表于 2024-12-2 10:39</a>
+
+也可能是跟姥爷打赌自己搞母鸡卡把这168e补回来就让老爹回来，姥爷想想给孙女玩玩看要是真赚了回来那也是能 ...</blockquote>
+什么武士道梦中剧本，武士道市值280亿日元<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer"> 祥子大小姐两年买下武士道
+

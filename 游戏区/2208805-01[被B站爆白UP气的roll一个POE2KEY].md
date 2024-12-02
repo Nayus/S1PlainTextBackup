@@ -1553,3 +1553,16 @@ dddd 里面的地下城是认真的吗？几乎完全没有设计 一条路几�
 “被人对比下你大喊瓷逼碰瓷恶心滚也没什么”真的是轻轻摘出呢，现在屎被拉到自己头上知道是什么滋味了吧 ...</blockquote>
 说明你和小号也没啥区别，跳脱游戏外思考，只会无限复读对着问题回避一切正面问题，提纯粉丝了。
 
+
+*****
+
+####  魔灵高达  
+##### 166#       发表于 2024-12-3 02:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66821150&amp;ptid=2208805" target="_blank">佩露夏 发表于 2024-12-2 11:13</a>
+一个22年注册的说别人是小号幽默，要不是之前不注册看不了卓明谷我也不需要注册，流批去d4社区视频低下拉 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我还真没玩过poe，只是接下来打算玩而已
+不过暴雪游戏我还是玩过的，**暴白的司马嘴脸见得多了，司马暴白就活该人人见到就踩一脚懂吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

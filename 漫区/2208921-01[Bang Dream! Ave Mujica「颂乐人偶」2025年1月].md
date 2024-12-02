@@ -11796,3 +11796,118 @@ B站上的PV播放量已经150W+了，追番人数也已经破百万，除老钟
 
 理论上应该是可以的 <blockquote>公立の全日制高校は、受験できるものの、合格が難しい場合もあります。 私立の全日制高校では、不登校でも進学できる学校もあります。</blockquote>
 
+
+*****
+
+####  PDQ4  
+##### 1148#       发表于 2024-12-2 22:37
+
+怎么轻拍战书都出来了，祥爹不会是真反派吧<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+和爹饺子代表不计前嫌
+和爹切割代表独角兽也切割<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 1149#       发表于 2024-12-2 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66826971&amp;ptid=2208921" target="_blank">相坂君 发表于 2024-12-2 22:35</a>
+我靠你轻拍噶吃吗！？今天已经提了两次轻拍梗了
+合着这不是轻拍的情书，竟是绫奈给轻拍的战书 ...</blockquote>
+这次要弥补8年前的遗憾了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  椎名真希  
+##### 1150#       发表于 2024-12-2 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66826946&amp;ptid=2208921" target="_blank">NODY 发表于 2024-12-2 22:31</a>
+
+祥子对睦说自己上不起月之森是c团解散前，说明那个时候（5-6月）就退月之森了
+
+如果没转去别的学校，那就是 ...</blockquote>
+没有退，那个时候还是在月之森聊的天，两个人穿着校服
+
+我倾向于上完了初中，祥子担心的是高中学费的问题
+
+*****
+
+####  好想看Mujica啊  
+##### 1151#       发表于 2024-12-2 22:38
+
+小白是什么设定的忘了，月之森不是有奖学金的吗。
+
+还是其实是“贫困生”助学金，专门为小白这种考进来的平民学生设置的，祥子申请不到，毕竟她是自己跑路的，又不是被丰川家赶出去的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银酒监武  
+##### 1152#       发表于 2024-12-2 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66826927&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-2 22:28</a>
+难绷 祥爹叫丰川清告 难免让我想起轻拍的监督押山清高</blockquote>
+不是还有丰川高洋的写法吗，佳人难再得<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+*****
+
+####  相坂君  
+##### 1153#       发表于 2024-12-2 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66826984&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-2 22:37</a>
+这次要弥补8年前的遗憾了</blockquote>
+绫奈：我从押山清高担任监督后就想写战书了
+
+*****
+
+####  Aendst  
+##### 1154#       发表于 2024-12-2 22:41
+
+明确会提供奖学金的应该是羽丘，羽丘有提供奖学金的特待生制度，六花就是特待生
+
+月之森查不到相关内容，大部分资料说真白是作为平民考进去了，但没说在拿奖学金
+
+*****
+
+####  PDQ4  
+##### 1155#       发表于 2024-12-2 22:41
+
+要公示的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本校全是认识的祥子还怎么瞒
+
+
+*****
+
+####  NODY  
+##### 1156#       发表于 2024-12-2 22:42
+
+学费付了一年所以初三还能读到毕业是合理的，但这样又有一个很大的问题
+
+那就是这一年在月之森抬头不见低头见，素世不可能不去找祥子吧，无论是知道祥子在月之森但不去问，还是真的一直追着祥子都挺难绷的，所以在家自学（刚好方便兼职打工）的可能性更大
+
+*****
+
+####  椎名真希  
+##### 1157#       发表于 2024-12-2 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66826916&amp;ptid=2208921" target="_blank">贰臣 发表于 2024-12-2 22:27</a>
+
+不是说祥子考虑，是从剧本合理性上来考虑的……不然祥子转学到羽丘，立希却什么都不知道有点奇怪 ...</blockquote>
+这有什么奇怪的地方吗
+
+*****
+
+####  星天观测  
+##### 1158#       发表于 2024-12-2 22:45
+
+反正你邦不登校早有先例了（ars），就算祥子出事后真不去学校也不奇怪，这个感觉不是什么需要纠结的东西
+
+倒是如果按ars的情况来说，祥子的成绩就非常优异了
+
+*****
+
+####  相坂君  
+##### 1159#       发表于 2024-12-2 22:45
+
+我觉得不奇怪，都是初中毕业升学去别的学校，不可能去关心之前学校入学的人都有谁
+

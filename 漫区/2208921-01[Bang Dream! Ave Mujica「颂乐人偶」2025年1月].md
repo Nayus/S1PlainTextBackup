@@ -12959,3 +12959,37 @@ pv有个海港画面，睦祥都穿着演出服，睦向祥子走来，得看这
 复什么仇我暂且蒙在鼓里
 或许第一集只是真相的一部分罢了
 
+
+*****
+
+####  狮子咕  
+##### 1256#       发表于 2024-12-3 01:02
+
+第一集要是确实结尾也是预定好的噱头，那感觉预期起码跌一档了……当然就后台时海玲提出戴面具不用化妆这点来说，应该确实不是剧本
+
+
+*****
+
+####  PDQ4  
+##### 1257#       发表于 2024-12-3 01:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66827692&amp;ptid=2208921" target="_blank">星天观测 发表于 2024-12-3 00:41</a>
+
+……越来越离谱了
+
+说实话其实有点想和2号楼就一直在聊的几位漏油一起拉个小群聊聊
+
+不要那么多假药，按动画 ...</blockquote>
+漏油这疑似有点太小团体了，群聊真的很容易共振和走死胡同
+
+发到论坛就是为了引发更多人头脑风暴
+
+要是真能烂到连正常讨论都容不下那自然都会跑的<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蜇灵  
+##### 1258#       发表于 2024-12-3 01:07
+
+你让独角兽写商战还是算了吧，你这不是强人所难吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

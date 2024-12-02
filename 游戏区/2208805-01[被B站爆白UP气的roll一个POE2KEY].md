@@ -1543,3 +1543,13 @@ dddd 里面的地下城是认真的吗？几乎完全没有设计 一条路几�
 你是不是不看我说什么，我说他自己rmt头子去喷别人rmt环境，那国服环境套用整个poe社群拉踩我说的有问题 ...</blockquote>
 “被人对比下你大喊瓷逼碰瓷恶心滚也没什么”真的是轻轻摘出呢，现在屎被拉到自己头上知道是什么滋味了吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  突发性哮喘病患  
+##### 165#         楼主| 发表于 2024-12-2 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66825494&amp;ptid=2208805" target="_blank">佩露夏 发表于 2024-12-2 18:46</a>
+“被人对比下你大喊瓷逼碰瓷恶心滚也没什么”真的是轻轻摘出呢，现在屎被拉到自己头上知道是什么滋味了吧 ...</blockquote>
+说明你和小号也没啥区别，跳脱游戏外思考，只会无限复读对着问题回避一切正面问题，提纯粉丝了。
+

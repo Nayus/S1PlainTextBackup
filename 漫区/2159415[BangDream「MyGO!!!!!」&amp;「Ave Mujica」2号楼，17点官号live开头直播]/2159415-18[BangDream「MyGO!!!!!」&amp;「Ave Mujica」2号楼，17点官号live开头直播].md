@@ -16659,3 +16659,11 @@ EA487C0A626CFAE760B56986114137A2.jpg
 
 结束的时候再来个45人大合奏？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  月島まりな  
+##### 26537#       发表于 2024-12-2 12:23
+
+如果有PICO4，应该是2025年内开播，PICO制作周期很短的
+

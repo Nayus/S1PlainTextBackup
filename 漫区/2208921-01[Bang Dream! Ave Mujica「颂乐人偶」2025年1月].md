@@ -9651,3 +9651,41 @@ mujica有丰川家的事这个是造谣的吧。
 
 你哪怕写祥斗外公都比爹斗外公强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 940#       发表于 2024-12-2 12:22
+
+多写点妈我还能信，外公和爹真的不重要吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qratosones1337  
+##### 941#       发表于 2024-12-2 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66820069&amp;ptid=2208921" target="_blank">狮子咕 发表于 2024-12-2 09:30</a>
+
+那大概就是地下停车场撕逼对喷后，初华把祥子带回家，轻哼着准备给祥子冲咖啡的时候，祥子突然从她身后来了 ...</blockquote>
+那接下来不是要做0了？被大祥老师按在床上狠狠厚乳
+
+*****
+
+####  宇宙驼鹿  
+##### 942#       发表于 2024-12-2 12:24
+
+我看有人推测大喵老师这一手是因为事务所方面把🐔团当木头人出道的垫脚石，原本第一场播完就该摘面具解散，而🐘强行维持🐔团为了火爆后拿成绩压住事务所，结果大喵老师奉旨输出打乱🐘计划。
+我寻思这样解释倒是可以把大喵老师洗干净点日后也好操作。毕竟要是纯是为了热度这也太出了。企划还要继续呢真把喵梦写臭了那就都别玩了
+
+—— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  skives10  
+##### 943#       发表于 2024-12-2 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66821859&amp;ptid=2208921" target="_blank">宇宙驼鹿 发表于 2024-12-2 12:24</a>
+我看有人推测大喵老师这一手是因为事务所方面把🐔团当木头人出道的垫脚石，原本第一场播完就该摘面具解散， ...</blockquote>
+按自己的想法来操作本身挺有说法的
+奉旨办事那不就一下变成小丑了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

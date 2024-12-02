@@ -70,3 +70,37 @@ egoist：摸鱼就是进攻吸引机，防守RPG，你们学会了吗
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  罗克萨斯  
+##### 5576#       发表于 2024-12-2 09:41
+
+这些特级战力怕不是给了研究所加特林系武器很强的错觉
+
+<img src="https://img.saraba1st.com/forum/202412/02/094145dojjjjqh0vtuj1j0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-12-02-09-39-17-162_com.nintendo.znca-edit.jpg</strong> (282.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-2 09:41 上传
+
+<img src="https://img.saraba1st.com/forum/202412/02/094145u2kbmd2bjyra2ved.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-12-02-09-39-37-943_com.nintendo.znca-edit.jpg</strong> (256.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-2 09:41 上传
+
+<img src="https://img.saraba1st.com/forum/202412/02/094145cui3swxi2xmf7fw3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-12-02-09-39-58-416_com.nintendo.znca-edit.jpg</strong> (288.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-2 09:41 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

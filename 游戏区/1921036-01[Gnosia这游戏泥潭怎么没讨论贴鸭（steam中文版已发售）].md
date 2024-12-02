@@ -2861,3 +2861,16 @@ GG前马上关游戏重开能破不？
 
 —— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  Rebirth_DAN  
+##### 280#       发表于 2024-12-2 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66815829&amp;ptid=1921036" target="_blank">国家免检虎B 发表于 2024-12-1 18:08</a>
+
+动画化改编确认，2025
+
+这玩意...咋改？</blockquote>
+崩坏预定<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

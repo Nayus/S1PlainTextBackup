@@ -8612,3 +8612,60 @@ PV台词画面基本可能会在前三集收完的情况下，确实可能是初
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">母鸡卡的主线大概是怎么解决队友们的心理问题……？问题是现在感觉个个都是封心锁爱的高压锅，真能救吗
 
+
+*****
+
+####  星天观测  
+##### 839#       发表于 2024-12-2 09:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">狗主线是组队，组队的同时解决了一些矛盾，那鸡解决队员问题大概率也只是主线的附带必要条件，如果主线就是解决队员问题那乐队这个形式不就可有可无了
+
+*****
+
+####  芸香科植物激推  
+##### 840#       发表于 2024-12-2 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66820119&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-2 09:35</a>
+
+最好奇的还是母鸡卡的大主线是什么</blockquote>
+当然是赞美音乐<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  好想看Mujica啊  
+##### 841#       发表于 2024-12-2 09:40
+
+解决队友心理问题的同时拯救自己，完结时大家的心理状态达到可以进pico的水平<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 842#       发表于 2024-12-2 09:41
+
+pv里最吓人的还是睦祥在海港雨幕之中那个镜头 莫名联想到少革倒数第二集的天台戏…
+
+
+*****
+
+####  狮子咕  
+##### 843#       发表于 2024-12-2 09:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">母鸡卡本身就有很多小剧场演出，其实海港雨幕这种镜头本身也不是很可怕……比较可怕的是去掉红光（我倾向红光出现的部分代表剧中剧）后祥子那个又绷不住的表情
+
+*****
+
+####  Ty_cc  
+##### 844#       发表于 2024-12-2 09:44
+
+没有第一集看我要死了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+
+*****
+
+####  仓鼠胖太  
+##### 845#       发表于 2024-12-2 09:45
+
+那句请不要讨厌我真的是初华吗？怎么听着也像睦的声音
+

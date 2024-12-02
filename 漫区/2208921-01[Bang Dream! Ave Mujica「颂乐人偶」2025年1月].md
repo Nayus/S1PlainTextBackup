@@ -8524,3 +8524,91 @@ PV台词画面基本可能会在前三集收完的情况下，确实可能是初
 
 初华的重头剧情应该还在后半段
 
+
+*****
+
+####  PDQ4  
+##### 830#       发表于 2024-12-2 09:29
+
+初华那句就颇有自己提前全说了然后装可怜的味
+可恶的金毛犬，这让祥子怎么开口，太会了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狮子咕  
+##### 831#       发表于 2024-12-2 09:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那大概就是地下停车场撕逼对喷后，初华把祥子带回家，轻哼着准备给祥子冲咖啡的时候，祥子突然从她身后来了一句：“初华，喵梦泄露大家身份的行为，是你默许的吧”；然后一番拉扯之后初华弱弱的表示“不要讨厌我~”，被祥子叹着气原谅了，之后初华露出计划通的表情……
+
+*****
+
+####  玖羽  
+##### 832#       发表于 2024-12-2 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66819651&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-2 08:38</a>
+
+所以可以理解为只是一种常见文化习俗吗？</blockquote>
+我认为可以，应该没有更深的含义
+
+*****
+
+####  skives10  
+##### 833#       发表于 2024-12-2 09:31
+
+唉 被三角初华玩弄于鼓掌之中<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 834#       发表于 2024-12-2 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66819665&amp;ptid=2208921" target="_blank">ads147147 发表于 2024-12-2 08:39</a>
+
+且不说泡沫经济时代亏这个数的也不少，再说对于丰川家来说确实不算什么，要是亲生的出这事大不了开个发布会 ...</blockquote>
+重点不是金额，是谁背锅，半泽直树一开始亏空五亿日元就要死要活的
+
+就像我在前面说的，这事可大可小，小的话从此完全不提也可以，大的话就是祥父被坑了背锅
+
+
+*****
+
+####  芸香科植物激推  
+##### 835#       发表于 2024-12-2 09:33
+
+结构上来讲应该是先把上一作里起连接作用的角色（祥子和睦）的爆发点拿到台面上来先点了
+
+同时大喵的线先起个头，后续应该灵活机动的会有一连串关于她的小麻烦边缘ob
+
+中期海铃应该有一到两集（也可能是小麻烦边缘ob形式）
+
+初华在大后期（可能要到七集之后）<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 836#       发表于 2024-12-2 09:35
+
+最好奇的还是母鸡卡的大主线是什么
+
+*****
+
+####  PDQ4  
+##### 837#       发表于 2024-12-2 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66819339&amp;ptid=2208921" target="_blank">堆雪若叶 发表于 2024-12-2 03:51</a>
+ 之前还提过睦对素祥之间的关系非常敏感。有两次soyo在睦给黄瓜浇水的时候聊自己找回crychic的进度，她谈到 ...</blockquote>
+不知道动画具体演出如何
+但是睦这个“旁观者”真的是一路看着祥子怎么过来的
+看着祥子童年幸福，看着她葬礼后失魂落魄，然后c团解散祥子硬撑
+如果能在睦眼睛里看到祥子全部变化的节点还是挺有趣的
+因为一直看着所以完全能理解半身的状态
+这么想第八集睦的震惊就很好理解，这段时间祥子是脱离她的视线了
+睦这不得更坚定自己一定要陪着祥子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狮子咕  
+##### 838#       发表于 2024-12-2 09:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">母鸡卡的主线大概是怎么解决队友们的心理问题……？问题是现在感觉个个都是封心锁爱的高压锅，真能救吗
+

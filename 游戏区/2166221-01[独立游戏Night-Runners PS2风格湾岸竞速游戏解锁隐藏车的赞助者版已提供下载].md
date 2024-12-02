@@ -1100,3 +1100,17 @@ ABFLUG的Supra
 
 就怕故意输了赌注没了收获了一句“HAHAHA”
 
+
+*****
+
+####  Tnsbilws  
+##### 63#         楼主| 发表于 2024-12-2 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66807217&amp;ptid=2166221" target="_blank">Totokei 发表于 2024-11-30 12:44</a>
+主要是游戏开头突然买了个车就背上了几百万的债务，有种世间险恶的感觉
+
+就怕故意输了赌注没了收获了一句 ...</blockquote>
+还是没这么险恶的内容<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟也就让你赚个几万块
+
+—— 來自 HUAWEI EVR-AL00, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

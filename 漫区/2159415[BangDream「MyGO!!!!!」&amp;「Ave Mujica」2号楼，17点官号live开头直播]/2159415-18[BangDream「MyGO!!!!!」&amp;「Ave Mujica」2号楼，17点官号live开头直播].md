@@ -16725,3 +16725,35 @@ EA487C0A626CFAE760B56986114137A2.jpg
 
 <img src="https://p.sda1.dev/20/055170c9b06902bc743cfbc6bf790d12/image.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SakuraのOrigami  
+##### 26542#       发表于 2024-12-2 16:50
+
+<img src="https://img.saraba1st.com/forum/202412/02/165055fl1cf41ukvgkyflx.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20241202164954.png</strong> (21.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-2 16:50 上传
+
+*****
+
+####  织部琴音  
+##### 26543#       发表于 2024-12-2 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66824336&amp;ptid=2159415" target="_blank">SakuraのOrigami 发表于 2024-12-2 16:50</a></blockquote>
+鸡狗对邦还是全员live?这下总该梅奔了吧
+
+*****
+
+####  SakuraのOrigami  
+##### 26544#       发表于 2024-12-2 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66824363&amp;ptid=2159415" target="_blank">织部琴音 发表于 2024-12-2 16:53</a>
+
+鸡狗对邦还是全员live?这下总该梅奔了吧</blockquote>
+不太清楚，没说具体哪个团
+

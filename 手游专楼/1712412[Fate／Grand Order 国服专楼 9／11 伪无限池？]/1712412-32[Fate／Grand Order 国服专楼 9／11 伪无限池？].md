@@ -226,3 +226,29 @@ wo日，我还提前阵容，到跟前给忘了，现在还有柱子吗</blockqu
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  doublehit  
+##### 46825#       发表于 2024-12-2 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66815822&amp;ptid=1712412" target="_blank">xy1041 发表于 2024-12-1 18:08</a>
+拐齐了等明年抽5宝学姐神享受稳定红暴乐趣
+
+—— 来自 S1Fun</blockquote>
+把号找回来了，梅林cba是不是现在退环境了啊
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+*****
+
+####  xy1041  
+##### 46826#       发表于 2024-12-2 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66822876&amp;ptid=1712412" target="_blank">doublehit 发表于 2024-12-2 14:26</a>
+
+把号找回来了，梅林cba是不是现在退环境了啊
+
+—— 来自 鹅球 v3.1.88.3-alpha</blockquote>
+差不多吧，现在的一线拐是奥伯龙杀狐和c呆
+

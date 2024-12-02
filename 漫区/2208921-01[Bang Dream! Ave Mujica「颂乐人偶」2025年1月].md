@@ -12195,3 +12195,132 @@ PV过百万了</blockquote>
 这种行为 俗称招摇撞骗（ 别的不说，母鸡卡商业合同主体怎么签，带不带丰川。初华的summi合同总得正经搞定 ...</blockquote>
 就是招摇撞骗，没错！所以也因此她必须从头到尾亲自操刀，一点跟不上就满盘皆输。
 
+
+*****
+
+####  wszweill  
+##### 1187#       发表于 2024-12-2 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66827252&amp;ptid=2208921" target="_blank">椎名真希 发表于 2024-12-2 10:22</a>
+
+她可能都没走多少人脉，因为初华直接答应她了，有可能后边那些资源都是像喵梦这样被她用初华和睦做手牌匡 ...</blockquote>
+初华偶像出道按道理是有自己合同的，一般是祥P来解决她的合同。详见国内塞纳河合同一堆P事<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer"> 
+
+如果后面说明初华其实也是XX财团小公主，那当我没说 。我嘞个软饭王祥P<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  椎名真希  
+##### 1188#       发表于 2024-12-2 23:30
+
+我觉得质疑祥子画饼能力没什么必要，毕竟mygo十三集里都穿着工装把喵梦匡进套里了。
+这还是只有她一个人的情况，要是真初睦祥三个人组队去拉投资没什么事务所会拒绝的吧
+
+*****
+
+####  狮子咕  
+##### 1189#       发表于 2024-12-2 23:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">pv里祥子那个看钢琴的镜头应该包回家的？如果不是第一集场景的话
+
+
+*****
+
+####  LeonsCat  
+##### 1190#       发表于 2024-12-2 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66827296&amp;ptid=2208921" target="_blank">椎名真希 发表于 2024-12-2 23:30</a>
+
+我觉得质疑祥子画饼能力没什么必要，毕竟mygo十三集里都穿着工装把喵梦匡进套里了。
+
+这还是只有她一个人的 ...</blockquote>
+其实这儿最难解释的是初华的事务所为啥放手。
+
+偶像歌手的合同可是超级霸道的，牛逼如老淋淋当年都被整得很惨过——老淋淋啥咖位，啥人脉，论创作也其实一点不虚独立词曲。
+
+*****
+
+####  PDQ4  
+##### 1191#       发表于 2024-12-2 23:33
+
+ 本帖最后由 PDQ4 于 2024-12-2 23:34 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老爷子都让她踢爹了，钱怎么要
+
+假使TGW假药成了，祥子也是带着合同过去的，怎么说也是外孙女，请求投资有拒绝的理由吗
+
+如果外公真是那种典一点，甚至可以不平等合同来敲打祥子
+
+而且她就是一未成年，要去拉赞助能拉谁，这可不是找工作
+
+如果真是祥子牵头拉投资，找了不相关的企业又要被说空手套白狼了
+
+杂质本来就锤了她是利用了能利用的一切人脉，人脉本来就是人格魅力的一种体现，何况初华这边真的是纯粹她自己的人脉
+
+*****
+
+####  椎名真希  
+##### 1192#       发表于 2024-12-2 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66827307&amp;ptid=2208921" target="_blank">狮子咕 发表于 2024-12-2 23:31</a>
+pv里祥子那个看钢琴的镜头应该包回家的？如果不是第一集场景的话</blockquote>
+不是第一集的镜头，肯定是回家了
+也有可能是mygo十三集回去那次，服装一样就那套
+
+*****
+
+####  skives10  
+##### 1193#       发表于 2024-12-2 23:33
+
+也许丰川家的老头说的是可以给你投资 但你得回来住？
+
+*****
+
+####  好想看Mujica啊  
+##### 1194#       发表于 2024-12-2 23:34
+
+找初华的关系联系偶像公司，也不用多说什么，人一听我艹丰川家小公主借我们公司玩偶像，肯定要拍马屁啊，资源随便用。
+
+然后偶像公司联系老头子报功，您看我们这么办还满意吗，老头子也不好说**，丰川祥子早就滚蛋了，肯定是心疼亲亲乖孙女，打钱赞助。
+
+*****
+
+####  星天观测  
+##### 1195#       发表于 2024-12-2 23:34
+
+真要回来住才投资那祥子会在去武道馆之前还住在小破房子里么
+
+*****
+
+####  skives10  
+##### 1196#       发表于 2024-12-2 23:35
+
+pv如果是13集回去那次
+为什么会有人偶摆在椅子上<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  好想看Mujica啊  
+##### 1197#       发表于 2024-12-2 23:36
+
+祥子虽然搬出去住了，搞不好几十个黑衣人随时监视保护的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狮子咕  
+##### 1198#       发表于 2024-12-2 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66827321&amp;ptid=2208921" target="_blank">椎名真希 发表于 2024-12-2 23:33</a>
+
+不是第一集的镜头，肯定是回家了
+
+也有可能是mygo十三集回去那次，服装一样就那套 ...</blockquote>
+主要是【人偶】还在钢琴上，时间就很迷……不是第一集的话那要么是ccc解散前，要么就是真回家住
+
+*****
+
+####  椎名真希  
+##### 1199#       发表于 2024-12-2 23:37
+
+参考水星魔女第七集，丰川集团娱乐业务财年会议期间祥子带初睦突入同时展示PPT与样曲drama，表示投她就能扭亏为盈，一转颓势，同时填上之前集团投资主机游戏业务造成的巨幅亏损（
+

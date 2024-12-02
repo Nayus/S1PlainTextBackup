@@ -164,3 +164,13 @@ wo日，我还提前阵容，到跟前给忘了，现在还有柱子吗</blockqu
 
 是苹果11不行了，还是大家都一样，我怎么老是卡死重启
 
+
+*****
+
+####  khxooo  
+##### 46819#       发表于 2024-12-2 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66819668&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2024-12-2 08:39</a>
+是苹果11不行了，还是大家都一样，我怎么老是卡死重启</blockquote>
+就是卡，按照这个速度，国服应该没日服那么多人刷啊，也不知道阿B干什么了。
+

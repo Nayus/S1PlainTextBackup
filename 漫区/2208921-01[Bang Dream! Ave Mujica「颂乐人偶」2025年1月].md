@@ -10347,3 +10347,69 @@ mujica有丰川家的事这个是造谣的吧。
 我觉得有野心是好事，但是没想到这么急也这么大胆，祥子这大猫还得训啊
 唯一问题是鼓手可能拿不到太多高光，如果花费笔墨够多说不定能给邦邦鼓手争光呢<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 1012#       发表于 2024-12-2 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66822219&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-2 12:59</a>
+
+漏u到底想祥子是什么样的人，既要又要的
+
+老爷子都让你切割爹了你不干但是钱还是想要的，给了就拿？
+
+祥子是 ...</blockquote>
+可能是去年說祥子為什麼要自尊呢去找好朋友包養不就得了的同類吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 1013#       发表于 2024-12-2 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66822314&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-2 13:09</a>
+
+选丰川家可以黑她不要亲爹
+
+选爹可以黑她自找苦吃
+
+怎么都是赢</blockquote>
+祥黑自有辦法黑，鼓掌👏<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 1014#       发表于 2024-12-2 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66822337&amp;ptid=2208921" target="_blank">rikaren 发表于 2024-12-2 13:13</a>
+
+祥外公收养祥当女儿的情况，看漏油前面对日本收养行为的补充，给了我一种祥外公还挺好的感觉，毕竟收养成女 ...</blockquote>
+單純分遺產上來說，收養不收養沒有區別。
+
+因為沒有遺囑的話是第一順位平分的，不收養祥子她就是代位繼承拿祥媽那份，收養了祥子她能分到的，其實和祥媽那份是一樣多的。
+
+但我不懂日本的民法典只是昨晚隨便看了下<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 1015#       发表于 2024-12-2 13:45
+
+ 本帖最后由 御幸一也 于 2024-12-2 13:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66822432&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-2 13:27</a>
+
+看到盗摄的了，剧透里喵梦摘睦假面＋睦惊慌遮面这段是真的
+
+键帽是真的欠爱了，不敢想一月二号第一集正式播 ...</blockquote>
+不論如何喵夢都是幫忙搞走了那個破面具的大功臣，應該歌頌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+想到12/15說不定就能摘面具了就興奮呀<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 1016#       发表于 2024-12-2 13:46
+
+这面具有摘了又戴上的风险吗
+

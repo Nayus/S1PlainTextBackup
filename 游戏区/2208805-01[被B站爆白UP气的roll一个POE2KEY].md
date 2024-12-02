@@ -1501,3 +1501,26 @@ dddd 里面的地下城是认真的吗？几乎完全没有设计 一条路几�
 不过这会已经买了赞助包了也没法退款，真被封只有到 ...</blockquote>
 封了就写邮件说下次不这样了，诚恳点，实在不行补差价
 
+
+*****
+
+####  突发性哮喘病患  
+##### 161#         楼主| 发表于 2024-12-2 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66821194&amp;ptid=2208805" target="_blank">佩露夏 发表于 2024-12-2 11:16</a>
+真不知道哪款游戏的玩家每个赛季都孜孜不倦的碰瓷d4到处拉屎，哎真的不知道 ...</blockquote>
+你是不是不看我说什么，我说他自己rmt头子去喷别人rmt环境，那国服环境套用整个poe社群拉踩我说的有问题嘛？
+暗黑类游戏重叠在一起对比总是难免的，被人对比下你大喊瓷逼碰瓷恶心死了也没什么，自己出视频装模作样云了个游戏做拉踩是不是脑瘫，他自己问心无愧觉得没问题就去把自己的视频和**的同步更新，成天窝里横对吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  突发性哮喘病患  
+##### 162#         楼主| 发表于 2024-12-2 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66821218&amp;ptid=2208805" target="_blank">活久见 发表于 2024-12-2 11:18</a>
+赵老师你不如送给我，我去微博帮你骂人
+
+另外，交保护费了吗</blockquote>
+干嘛，ggg又不给我钱，瓷2我直接送你ex当赞助
+

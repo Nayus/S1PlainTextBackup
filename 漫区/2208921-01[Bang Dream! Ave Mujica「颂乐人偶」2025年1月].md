@@ -11046,3 +11046,29 @@ Q版keai。
 
 怎么联动只有包邮区有？
 
+
+*****
+
+####  PDQ4  
+##### 1079#       发表于 2024-12-2 17:17
+
+人偶匠人那不就是之前漏u脑过的细雪<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+要不还是蔷薇少女吧
+
+
+*****
+
+####  Frezard  
+##### 1080#       发表于 2024-12-2 17:25
+
+<img src="https://img.saraba1st.com/forum/202412/02/172400wyvywko7lj5c1yu7.png" referrerpolicy="no-referrer">
+
+<strong>画像.png</strong> (1.05 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-2 17:24 上传
+
+不知道PV的电视机映射的是现实还是臆想，如果是现实那这场面也太地狱了（
+

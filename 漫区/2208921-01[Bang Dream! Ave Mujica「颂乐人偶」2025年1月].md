@@ -14947,3 +14947,26 @@ en官号对doloris的介绍，和日语版稍有不同
 
 初华有自己的影响力、睦是最具有人偶特征甚至bgm都是人偶，海铃在设定上特意标出来祥子分了管理权给她，喵梦第一话直接爆了
 
+
+*****
+
+####  御景  
+##### 1437#       发表于 2024-12-3 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66831509&amp;ptid=2208921" target="_blank">挺好的 发表于 2024-12-3 14:45</a>
+
+还没看文本翻译，这个是真的吗</blockquote>
+有这个场景，看听译，祥子没发出的消息是这样，素世的消息没确定，你可以找带字幕的枪版看下
+
+
+*****
+
+####  本间日阳  
+##### 1438#       发表于 2024-12-3 15:03
+
+ 本帖最后由 本间日阳 于 2024-12-3 15:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66831509&amp;ptid=2208921" target="_blank">挺好的 发表于 2024-12-3 14:45</a>
+
+还没看文本翻译，这个是真的吗</blockquote>
+这种一看就假好吧，你觉得那个时间点的soyo会说这么莫名其妙的肉麻话吗。看了下枪版画面，soyo最后一条是问她今天来不来（再前一条应该是「没事吧？」，勉强能看到个大丈夫），祥子没发出去的回复是道歉+马上过去。
+

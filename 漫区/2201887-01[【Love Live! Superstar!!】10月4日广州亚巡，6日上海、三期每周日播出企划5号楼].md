@@ -11471,3 +11471,13 @@ op地区大赛就在新国立了决赛不敢想了<img src="https://static.sarab
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  starring  
+##### 1120#       发表于 2024-12-3 19:19
+
+临时工好像把下一首插曲的名字泄露了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

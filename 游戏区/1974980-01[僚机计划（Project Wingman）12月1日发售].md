@@ -1932,3 +1932,11 @@ It's time. （一阵激烈的弗拉明戈舞曲）</blockquote>
 
 beta branch能够玩dlc吗？虽然有各种各样的问题，但是beta的画面和秒天秒地的rail gun太舒服了
 
+
+*****
+
+####  black1991518  
+##### 187#       发表于 2024-12-3 19:56
+
+隧道关的BGM实在是太攒劲了，Jose Pavli真是神人<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+

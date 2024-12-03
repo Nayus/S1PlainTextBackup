@@ -626,3 +626,97 @@ C团不是商业团呀。大象老师要大操大办商业live签正经合同的
 
 而最后一根……一车稻草肯定是初华，别人都没有这样的地位，这就好比MyGO第9话之前“只要爱音出手一切都会好起来的”，只有初华在最后炸，才能把绝望推到最极致
 
+
+*****
+
+####  Aendst  
+##### 1543#       发表于 2024-12-3 19:57
+
+我觉得其实是没有对应位的，角色设计上可能有通过对照进行设计但是脚本上不完全是这样
+
+还是之前访谈里说过的，会推演每个角色的反应和行为，每个角色也都是独一无二的
+
+喵梦就很明显，这个角色的主动性，和其他核心角色的交互，驱动情节的能力都相当强，可能会在主线里有大量的推进剧情的内容
+
+乐奈基本是游离于主线的，只是会在需要她的时间点辅助推动一下剧情爆发，可能这也跟猫最初是其他企划的角色有关
+
+不过喵梦会第一个去拉回祥子这个我也觉得是有可能的，喵梦怎么看都比较像是那种后期会非常在乎团队的类型
+
+*****
+
+####  silver鲤跃  
+##### 1544#       发表于 2024-12-3 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66834100&amp;ptid=2208921" target="_blank">玖羽 发表于 2024-12-3 19:55</a>
+
+这是基于理论的推测，大喵做的“破坏假面乐队根基的行为”恐怕已经是炸得最轻的一个了，要不也不会放在第 ...</blockquote>
+你疑似有些太过自信了....
+
+*****
+
+####  skives10  
+##### 1545#       发表于 2024-12-3 19:58
+
+喵梦是最早ob小姐堕的 对她的清算（爱）也是最狠的
+
+*****
+
+####  椎名真希  
+##### 1546#       发表于 2024-12-3 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66834093&amp;ptid=2208921" target="_blank">贰臣 发表于 2024-12-3 19:55</a>
+这是还塞了什么活动进去？声优见面会？</blockquote>
+不会吧
+等一下，五城联映<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">难道
+
+*****
+
+####  御坂MKII  
+##### 1547#       发表于 2024-12-3 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66834093&amp;ptid=2208921" target="_blank">贰臣 发表于 2024-12-3 19:55</a>
+
+这是还塞了什么活动进去？声优见面会？</blockquote>
+这么多地方，不可能<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  杂灰  
+##### 1548#       发表于 2024-12-3 20:02
+
+对照go的话喵梦才是爱音位啊，最开始拉着队伍跑，最早和队友发生矛盾，往后篇章反而会是大c<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  贰臣  
+##### 1549#       发表于 2024-12-3 20:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">差点忘了是五城同步了，那能是啥活动啊，这么长时间
+
+*****
+
+####  [皆神孝介]  
+##### 1550#       发表于 2024-12-3 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66834027&amp;ptid=2208921" target="_blank">傘木希美 发表于 2024-12-3 19:43</a>
+
+北京这个远洋未来汇的耀莱是慈云寺店？
+
+—— 来自 鹅球 v3.3.95-alpha</blockquote>
+是短信通知的，还是站内消息通知的？还是两边都有？<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 1551#       发表于 2024-12-3 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66834154&amp;ptid=2208921" target="_blank">杂灰 发表于 2024-12-3 20:02</a>
+
+对照go的话喵梦才是爱音位啊，最开始拉着队伍跑，最早和队友发生矛盾，往后篇章反而会是大c ...</blockquote>
+我的理论是这样的，包括第1话在内，动画给初华营造的人设是“不管祥子做什么，都无条件支持祥子”
+
+那么如果初华不支持祥子会怎么样，这个可能性是一定会被演出来的，而且破坏效果一定是巨大的
+
+“想跟祥子在一起的梦想已经实现了”这句话这么早出现，甚至放在PV里，后面肯定会有对应
+

@@ -1576,3 +1576,14 @@ dddd 里面的地下城是认真的吗？几乎完全没有设计 一条路几�
 你不是小号是什么？专门花钱注册就是为了说这些话的？跳脱游戏外思考，只会无限复读对着问题回避一切正面 ...</blockquote>
 谁专门花钱注册就是为了说这些话，要不是前段时间不注册看不了帖子我还懒的注册呢<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  佩露夏  
+##### 168#       发表于 2024-12-3 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66827942&amp;ptid=2208805" target="_blank">魔灵高达 发表于 2024-12-3 02:02</a>
+我还真没玩过poe，只是接下来打算玩而已
+不过暴雪游戏我还是玩过的，**暴白的司马嘴脸见得多了，司马暴白 ...</blockquote>
+你说的活该被踩是不是指某群体到处去暗黑论坛视频底下拉踩，结果被回踩一脚就应激了狂出视频拉踩真的是活活又该该呢。我的评价是先撩者贱呢<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

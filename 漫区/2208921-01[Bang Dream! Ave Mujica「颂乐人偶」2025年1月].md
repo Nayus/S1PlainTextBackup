@@ -13355,3 +13355,79 @@ pv后半段的面具顺序是睦→海铃→喵梦→初华→祥子
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟母鸡卡实际上还没播只有几个pv+盗摄，这时候的分析本质还是从狗（动画）里抓出来的……不好切的，把go从乐队想成作品的话就好了
 
+
+*****
+
+####  Aendst  
+##### 1289#       发表于 2024-12-3 08:56
+
+ 本帖最后由 Aendst 于 2024-12-3 08:58 编辑 
+<blockquote>狮子咕 发表于 2024-12-3 08:48
+毕竟母鸡卡实际上还没播只有几个pv+盗摄，这时候的分析本质还是从狗（动画）里抓出来的……不好切的，把go ...</blockquote>
+
+挺神秘的，搬的是mujica pv的考察
+
+希望下次营销号搬运的时候能记得把做分析的人的ID发出来而不是偷图把功劳全给go友
+
+然后反手说自己从不去论坛讨论扣帽子骂一嘴魔怔cp厨饭圈
+
+哦不过都营销号了，顺从吧还能怎么办
+
+*****
+
+####  狮子咕  
+##### 1290#       发表于 2024-12-3 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66828514&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-3 08:56</a>
+
+挺神秘的，搬的是mujica pv的考察
+
+希望下次营销号搬运的时候能记得把做分析的人的ID发出来而不是偷图把功 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人家都是偷东西给自己买棺材的营销号了，你就让让他吧
+
+*****
+
+####  狮子咕  
+##### 1291#       发表于 2024-12-3 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66828514&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-3 08:56</a>
+
+挺神秘的，搬的是mujica pv的考察
+
+希望下次营销号搬运的时候能记得把做分析的人的ID发出来而不是偷图把功 ...</blockquote>
+话说是哪个考察，我也康康~
+
+
+*****
+
+####  Aendst  
+##### 1292#       发表于 2024-12-3 09:01
+
+ 本帖最后由 Aendst 于 2024-12-3 09:03 编辑 
+<blockquote>狮子咕 发表于 2024-12-3 08:59
+话说是哪个考察，我也康康~</blockquote>
+
+就是前面发的，PV中两个小电视画面里的应该是睦
+
+一个很渗人的笑，一个很凶的眼部特写
+
+另外这两个画面也是红色背景光
+
+pv里出现在小电视里的不只是睦，也有初华
+
+因此这里目前的想法是，小电视可能是某种角色深层心理的体现
+
+*****
+
+####  狮子咕  
+##### 1293#       发表于 2024-12-3 09:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66828555&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-3 09:01</a>
+
+就是前面发的，PV中两个小电视画面里的应该是睦
+
+一个很渗人的笑，一个很凶的眼部特写
+
+另外这两个画面也是 ...</blockquote>
+哦……并不新鲜，金睦研嘛……还以为会考据出点之前没讨论过的新东东……
+

@@ -11481,3 +11481,20 @@ op地区大赛就在新国立了决赛不敢想了<img src="https://static.sarab
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
 
+
+*****
+
+####  一心而用  
+##### 1121#       发表于 2024-12-3 21:28
+
+<img src="https://p.sda1.dev/20/bd0d41848568e1550e0dbe288e8d468e/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 1122#       发表于 2024-12-3 21:30
+
+看来日本人真的不吃分裂合并那套，喝茶回直接回升了。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

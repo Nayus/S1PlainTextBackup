@@ -1038,3 +1038,32 @@ c团ver祥子在动画中有记录的操作：
 
 2024-12-3 21:14 上传
 
+
+*****
+
+####  Aendst  
+##### 1573#       发表于 2024-12-3 21:22
+
+其实结合“独裁者”“支配者”的解读去想，把今后的人生都交给我何尝不是一种害怕失去所以我要牢牢握在手里呢<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+之前看小剧场觉得祥子害怕的是一切都变了，现在想想或许怕的是失去，一种丧母带来的后遗症
+
+能够承受crychic解散，能够承受离开豊川家，能够承受和爹切割，但最终到了我只有avemujica的情况下，我都不敢想mujica炸了祥子会怎么样<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  狮子咕  
+##### 1574#       发表于 2024-12-3 21:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">祥子的人偶真爆了的话能哭很久吧
+
+*****
+
+####  狮子咕  
+##### 1575#       发表于 2024-12-3 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66834707&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-3 21:22</a>
+
+其实结合“独裁者”“支配者”的解读去想，把今后的人生都交给我何尝不是一种害怕失去所以我要牢牢握在手里 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">成长起来，学会飞翔
+

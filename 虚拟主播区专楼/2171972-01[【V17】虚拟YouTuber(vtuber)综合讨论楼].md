@@ -206,3 +206,29 @@ A档，送检起诉吗<img src="https://static.saraba1st.com/image/smiley/face20
 
 2024-12-3 19:07 上传
 
+
+*****
+
+####  Harunoharu  
+##### 912#       发表于 2024-12-3 21:16
+
+之前新3d过了感觉这告知里有live啊
+
+*****
+
+####  holoan  
+##### 913#       发表于 2024-12-3 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66814460&amp;ptid=2171972" target="_blank">高等黑暗 发表于 2024-12-1 14:52</a>
+
+VCRGTA3已知的部分情报（一些主播直播的时候透露的）
+
+地图大改 很多重要位置比如警署的位置有变动
+
+大型任务 ...</blockquote>
+感觉确实变得挺多了，应该准确说能改动的都改了，有一定的新鲜感
+
+就是基础系统还是沿用STGR就是了
+
+看看今后的2434GTA/holoGTA会不会也搞点新东西
+

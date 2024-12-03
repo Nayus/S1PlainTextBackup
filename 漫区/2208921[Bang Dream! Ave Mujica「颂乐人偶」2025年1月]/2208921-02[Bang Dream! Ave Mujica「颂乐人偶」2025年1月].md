@@ -508,3 +508,54 @@ C团不是商业团呀。大象老师要大操大办商业live签正经合同的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  傘木希美  
+##### 1532#       发表于 2024-12-3 19:43
+
+北京这个远洋未来汇的耀莱是慈云寺店？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.95-alpha
+
+*****
+
+####  Aendst  
+##### 1533#       发表于 2024-12-3 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66833949&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-3 19:35</a>
+
+感觉前七集大概率就是祥子救火 
+
+用纸勉强糊上战舰
+
+第七集配合祥子现实生日214 直接炸穿 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剧内时间是不是刚好可以推到圣诞节
+
+*****
+
+####  玖羽  
+##### 1534#       发表于 2024-12-3 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66833930&amp;ptid=2208921" target="_blank">桜庭千景 发表于 2024-12-3 19:32</a>
+
+不是祥子怎么就又是皇帝又是暴君了？初睦无条件支持祥子是她要求的吗？日常训练和人员安排不是放权给海铃了？也就对大喵严格一点，问题是大喵不都是做的破坏假面乐队根基的行为？你换ykn或者chuchu来了大喵这么搞事不把她踹出去？</blockquote>
+我认为大喵炸得早反而是好事，炸得越早补得越早，反之亦然
+
+还是从理论上分析，在Ave Mujica炸团过程中大喵相当于小喵，可能会是第一个回归的，甚至拯救祥子计划可能是她策划的
+
+海铃相当于立希，应该会在中途回归，具体不明（由于海铃剧情还没展开）
+
+睦可供分析的剧情太少，有可能是拯救祥子计划的核心
+
+初华爆炸相当于MyGO第9话的爱音爆炸，身为祥子全肯定厨的初华一旦爆炸，必然会成为最绚丽的焰火，但是拯救祥子的关键也是回归的初华
+
+*****
+
+####  skives10  
+##### 1535#       发表于 2024-12-3 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66834033&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-3 19:44</a>
+剧内时间是不是刚好可以推到圣诞节</blockquote>
+不知道这种3D动画下雪方不方便 想看圣诞雪夜破防
+

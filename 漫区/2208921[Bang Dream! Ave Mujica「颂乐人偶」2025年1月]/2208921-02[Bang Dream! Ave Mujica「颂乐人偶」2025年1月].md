@@ -913,3 +913,42 @@ Ave Mujica从第1话就开始爆更加确定了我的猜测：一切都往最极
 
 所以我觉得这道伤疤，可能会用非常不体面、甚至说残忍的方式被再次撕开<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ytttsuuuba  
+##### 1564#       发表于 2024-12-3 20:46
+
+那我觉得祥的人偶早晚危<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 1565#       发表于 2024-12-3 20:50
+
+ 本帖最后由 Aendst 于 2024-12-3 20:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66834399&amp;ptid=2208921" target="_blank">玖羽 发表于 2024-12-3 20:39</a>
+
+不够爆，从MyGO第10话就可以看出作品的追求：最极致的爆炸、最极致的绝望、最极致的反差，才能带来最极致 ...</blockquote>
+祥子的问题我觉得很好炸
+
+个人观感上
+
+ep01体现的失去母亲后葬礼上的平静，葬礼后的情绪失控，在情绪低落期看到蝶的演出打起精神
+
+包括想要组乐队，包括和外公和父亲争吵，包括我只有avemujica的孤注一掷
+
+我认为隐含的是她在尝试消解丧母之痛但却无法消解
+
+玖羽大可能会耳熟，也就是“母亲无法再于身边守护，因而无法凛然向前”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+avemujica出大问题会引发祥子创伤也可能是一种“好不容易找到的应许之地和精神寄托坏掉了”
+
+这可能也还是和她没走出丧母之痛有关
+
+所以想要祥子极致爆炸，触发她有关丧母的PTSD就可以了
+
+但同样也是这个原因，这个创伤只有她自己能够解决，其他人只能拉她一把让她努力前行努力面对
+
+放过人偶吧我说真的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

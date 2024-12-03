@@ -13884,3 +13884,69 @@ pv里出现在小电视里的不只是睦，也有初华
 只能说是某些东 ...</blockquote>
 這麼抽象？什麼玩意兒<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  狮子咕  
+##### 1340#       发表于 2024-12-3 10:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说pv2的主视觉图（看起来像是魔女那个），下面一大堆玩具玩偶，只有睦自己有一个人偶在右边其他人没有，那里有没有什么说法
+
+<img src="https://img.saraba1st.com/forum/202412/03/100100gutxzutu2gmtzi1d.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.28 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-3 10:01 上传
+
+*****
+
+####  芸香科植物激推  
+##### 1341#       发表于 2024-12-3 10:01
+
+说白了不就是现在祥子问题解了个大概，好像没闹麻，有人急了么<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+逮着个明显是大后期才展开的初华，这个能造到起码二月，说不定三月才会告诉观众她的秘密是啥，在有限的时间内造最潮最in的假药
+
+*****
+
+####  PDQ4  
+##### 1342#       发表于 2024-12-3 10:02
+
+喵初也早有苗头了，毕竟13集就动手动脚，可惜初华箭头太明显了不知道怎么贷款这两个
+
+提到美帝，之前重温狗的时候发现真的是典中典，一开始的滤镜误解到发现真面目被利用，最后坦诚相见，一切都顺理成章<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 1343#       发表于 2024-12-3 10:03
+
+有些所谓的“假药”真的是假药吗，怎么看都更像是抹黑
+
+都要求道歉了，这个才是主要诉求吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 1344#       发表于 2024-12-3 10:03
+
+<blockquote>狮子咕 发表于 2024-12-3 10:00
+话说pv2的主视觉图（看起来像是魔女那个），下面一大堆玩具玩偶，只有睦自己有一个人偶在右边其他人没有， ...</blockquote>
+之前有个漏油提出来的假药？祥妈给睦也送了一个人偶？
+
+*****
+
+####  PDQ4  
+##### 1345#       发表于 2024-12-3 10:03
+
+小睦偶我有提过双重人格假药，太捕风捉影了，这里就不提了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qjw114514  
+##### 1346#       发表于 2024-12-3 10:03
+
+现在睦暴走都在pv里出来了，是不是说明睦这边的问题不复杂，会在母鸡卡前期就解决？半身早点安定下来对祥子后续抗压时的精神状态是重大利好<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">
+

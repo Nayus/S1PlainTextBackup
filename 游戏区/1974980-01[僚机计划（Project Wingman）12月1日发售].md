@@ -1940,3 +1940,17 @@ beta branch能够玩dlc吗？虽然有各种各样的问题，但是beta的画�
 
 隧道关的BGM实在是太攒劲了，Jose Pavli真是神人<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Hinacle  
+##### 188#       发表于 2024-12-3 23:26
+
+beta版也能玩dlc，爽到
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想看有没有神人开着加速buff过隧道
+
+新的攒劲小曲没进音乐dlc，不知道会不会单卖
+
+唯一不满的就是配音质量还是难蚌，他们不会还在用discord录音吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

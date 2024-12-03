@@ -17514,3 +17514,28 @@ miko伟大
 
 没看过说了啥
 
+
+*****
+
+####  zhssf  
+##### 10322#       发表于 2024-12-3 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66831197&amp;ptid=2086637" target="_blank">holoan 发表于 2024-12-3 14:06</a>
+
+昨天miko直播里说要制裁
+
+竟然真的制裁了，当然已经很迟了这个纯谣言扩散的切片已经放了2天推上都成话题了
+
+ ...</blockquote>
+啥谣言？
+
+*****
+
+####  holoan  
+##### 10323#         楼主| 发表于 2024-12-3 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66831342&amp;ptid=2086637" target="_blank">zhssf 发表于 2024-12-3 14:24</a>
+
+啥谣言？</blockquote>
+holo楼有人发过了，就本身谣言是那个，然后网上有那种喜欢蹭热度的小主播在直播里拿这个谣言话题说事还特地翻出来以前的3D视频出来看说什么手指没有接触到本人之类的来补充证明，然后这部分内容被几个没下限的切片频道主拿去做切片然后直接在推特上广泛传播
+

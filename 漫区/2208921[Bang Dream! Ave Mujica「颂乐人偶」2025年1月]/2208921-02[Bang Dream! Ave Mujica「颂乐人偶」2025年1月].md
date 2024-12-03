@@ -1915,3 +1915,46 @@ mortis为乐队的声音带来了更多的深度和神秘感，虽然她的演�
 
 祥父 - 没法跟你一起生活了，祝你幸福
 
+
+*****
+
+####  PDQ4  
+##### 1651#       发表于 2024-12-4 01:59
+
+睦是鸡的基石，那喵梦这个鼓手是什么
+
+是母鸡卡的破坏者/变数吗<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 1652#       发表于 2024-12-4 02:03
+
+可能是CCC团时间太短了，看聊天记录，每次预订要训练的时间，soyo应该都有问来不来，前面祥子有回复
+这种训练信息应该是群聊，而不是私聊
+
+
+*****
+
+####  玖羽  
+##### 1653#       发表于 2024-12-4 02:06
+
+还有一点，英文字幕里祥父的名字是Kiyotsugu Togawa
+
+高洋和清高都是错的，Kiyotsugu是清继（不一定是这两个汉字）
+
+<img src="https://img.saraba1st.com/forum/202412/04/020616dll8w8ccl8kl20o8.jpg" referrerpolicy="no-referrer">
+
+<strong>000.jpg</strong> (10.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 02:06 上传
+
+*****
+
+####  skives10  
+##### 1654#       发表于 2024-12-4 02:07
+
+这群聊怎么除了soyo没人说话呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

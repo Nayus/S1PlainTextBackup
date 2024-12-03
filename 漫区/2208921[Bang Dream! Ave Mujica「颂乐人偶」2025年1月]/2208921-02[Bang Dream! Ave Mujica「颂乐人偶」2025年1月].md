@@ -2125,3 +2125,152 @@ ccc这真没群聊那有点尬住了<img src="https://static.saraba1st.com/image
 
 灯“之前没接过来的笔记本”也是一个呼应，要么用在最后，要么用在把祥子拉回来（灯只提供歌词，演还是Ave Mujica演）
 
+
+*****
+
+####  skives10  
+##### 1668#       发表于 2024-12-4 02:38
+
+i don't think  please tell everyo
+应该是 我大概来不了，你帮我告诉大家
+如果是c团群聊怎么还需要额外告诉
+
+*****
+
+####  御幸一也  
+##### 1669#       发表于 2024-12-4 02:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不是吧，ave自己唱的歌，歌詞還要個外人來寫？讓我看看avemujica的作詞和主唱叫什麼名字。憑什麼。
+
+*****
+
+####  skives10  
+##### 1670#       发表于 2024-12-4 02:40
+
+这剧情感觉…不如蛰
+
+*****
+
+####  PDQ4  
+##### 1671#       发表于 2024-12-4 02:41
+
+其实群聊私聊都无伤大雅，这里最大的问题还是祥子在有请假的前提下，失联了几天大伙就干等
+
+和之前脑的开开心心live完突然消失不一样
+
+不回复还可以用姐几个不爱水群来解释，这个真就，好嘛越来越不熟了<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 1672#       发表于 2024-12-4 02:42
+
+别再薅春日影了，这首都归给mygo了
+还有作词这个，假设商业乐队mujica要用灯的词，是不是要付版权费？
+
+用别人的歌词，是觉得初华写不出能拉祥子的歌词吗？
+
+*****
+
+####  贰臣  
+##### 1673#       发表于 2024-12-4 02:43
+
+想起祥子当时还说又不是自己不在就不能练习，这事要是她那里压力没爆还是正常状态可能就过去了，偏偏那天……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  skives10  
+##### 1674#       发表于 2024-12-4 02:44
+
+不得不说 这是一个很烂，很雷的剧情
+倒是可以往这个方向滑坡
+毕竟大热原创烂掉很正常
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  玖羽  
+##### 1675#       发表于 2024-12-4 02:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66837078&amp;ptid=2208921" target="_blank">相坂君 发表于 2024-12-4 02:42</a>
+
+别再薅春日影了，这首都归给mygo了
+
+还有作词这个，假设商业乐队mujica要用灯的词，是不是要付版权费？</blockquote>
+从道理上说，这么大的一个伏笔肯定是要呼应的，不用在关键时刻就用在最后，如果你觉得用在关键时刻不妥，那就是用在最后
+
+*****
+
+####  御幸一也  
+##### 1676#       发表于 2024-12-4 02:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">關鍵初華自己就是欽定的avemujica作詞擔當，然後還是主唱，你讓初華唱別人的詞……有點詭異啊兄弟。
+
+為什麼不能是初華唱自己寫的詞把祥子拉回來。
+
+再說下去就要滑坡了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 1677#       发表于 2024-12-4 02:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66837083&amp;ptid=2208921" target="_blank">玖羽 发表于 2024-12-4 02:44</a>
+从道理上说，这么大的一个伏笔肯定是要呼应的，不用在关键时刻就用在最后，如果你觉得用在关键时刻不妥， ...</blockquote>
+感觉不如 屋久悠树
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|你太蟄了|
+
+查看全部评分
+
+*****
+
+####  skives10  
+##### 1678#       发表于 2024-12-4 02:46
+
+ 本帖最后由 skives10 于 2024-12-4 02:47 编辑 
+
+这下烂完了
+
+日本创作者自我感动的丑态那股味一下就来了
+
+太吓人了
+
+豚豚最终还是没吃上好的
+
+*****
+
+####  PDQ4  
+##### 1679#       发表于 2024-12-4 02:46
+
+烂完了其实也是传奇，毕竟为了和牢爹包饺子把机构都垫了
+
+结合之后的对邦可以当场宣布CRYCHIC复活机构堂堂解散<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 1680#       发表于 2024-12-4 02:47
+
+蜇人别爱了，害怕了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

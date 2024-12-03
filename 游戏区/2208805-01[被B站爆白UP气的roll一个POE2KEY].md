@@ -1566,3 +1566,13 @@ dddd 里面的地下城是认真的吗？几乎完全没有设计 一条路几�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  佩露夏  
+##### 167#       发表于 2024-12-3 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66826829&amp;ptid=2208805" target="_blank">突发性哮喘病患 发表于 2024-12-2 22:13</a>
+你不是小号是什么？专门花钱注册就是为了说这些话的？跳脱游戏外思考，只会无限复读对着问题回避一切正面 ...</blockquote>
+谁专门花钱注册就是为了说这些话，要不是前段时间不注册看不了帖子我还懒的注册呢<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

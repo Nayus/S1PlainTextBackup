@@ -13347,3 +13347,11 @@ pv后半段的面具顺序是睦→海铃→喵梦→初华→祥子
 小团体拉我，感觉这楼快没法看了</blockquote>
 拉你了，越来越离谱，真得小团体<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  狮子咕  
+##### 1288#       发表于 2024-12-3 08:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟母鸡卡实际上还没播只有几个pv+盗摄，这时候的分析本质还是从狗（动画）里抓出来的……不好切的，把go从乐队想成作品的话就好了
+

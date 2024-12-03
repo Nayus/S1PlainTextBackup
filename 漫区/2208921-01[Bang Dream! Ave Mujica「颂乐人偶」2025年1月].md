@@ -14869,3 +14869,18 @@ mana：原来是从丰川家和父亲身边跑出来的丧家之犬啊，一边�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">表里人格应该不会有，不然鸡也太阴间了，还要进游戏呢
 
+
+*****
+
+####  武男  
+##### 1433#       发表于 2024-12-3 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66830374&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-3 12:13</a>
+
+她还是不知道最好，不知道还能留一个念想，至少永远怀念
+
+知道了那就真的一地鸡毛，连过去的好都要变味了
+
+ ...</blockquote>
+不如相忘于江湖嘛？
+

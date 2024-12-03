@@ -13286,3 +13286,16 @@ pv后半段的面具顺序是睦→海铃→喵梦→初华→祥子
 
 我觉得可以参考
 
+
+*****
+
+####  skives10  
+##### 1282#       发表于 2024-12-3 08:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66828086&amp;ptid=2208921" target="_blank">yozoraxsx 发表于 2024-12-3 06:20</a>
+详细剧透溜了几遍，更看好大喵老师了。大喵老师和另外四个人明显不是一类人。大喵老师更有可能让不断欺骗不 ...</blockquote>
+相信我 版本早更新了 
+丰川箱子现在是主人公 
+早就不是mygo动画里的“大反派”了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+该转变思维了
+

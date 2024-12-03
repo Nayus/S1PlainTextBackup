@@ -2375,3 +2375,13 @@ i don't think  please tell everyo
 
 斯国一有はるひかげ，斯国一有哭来兮库<img src="https://static.saraba1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 1688#       发表于 2024-12-4 03:19
+
+祥子都说了春日影是给crychic的歌，怎么还能变成给父母的歌啊，灯电波能直接联系阴间通灵祥妈的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+直接用mujica自己的歌唱出来打动祥爹有什么问题，为什么非要春日影，前面已经给了两次祥爹没能去成祥子live的伏笔了（crychic和武道馆），也就是说祥爹本身就是压根没看过祥子live的状态，那么直接用mujica的歌打动祥爹已经足够回收这个伏笔了
+

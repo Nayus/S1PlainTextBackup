@@ -11461,3 +11461,13 @@ op地区大赛就在新国立了决赛不敢想了<img src="https://static.sarab
 —— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 v3.0.0-alp ...</blockquote>
 京极这哥们儿做做live还行 一到他做演出简直是流水账
 
+
+*****
+
+####  ads147147  
+##### 1119#       发表于 2024-12-3 07:49
+
+京极也是摆了，星2开始的live分镜真是。。。反正我觉得真不如找年轻人来做live分镜
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

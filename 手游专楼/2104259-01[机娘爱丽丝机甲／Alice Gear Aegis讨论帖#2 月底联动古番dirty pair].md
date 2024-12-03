@@ -273,3 +273,13 @@ FY08 GPA5 YL7P XJ3U
 
 四星自选想选那个游马勇但是没在选择项里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 1291#       发表于 2024-12-3 22:01
+
+我想选髪国姐姐结果也没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+现在是纠结选学姐或者奈奈开技能树还是选加纯或者女仆四星喜+1
+

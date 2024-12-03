@@ -1231,3 +1231,136 @@ MyGO很厉害的一点是坚持做到了音乐番的问题用音乐解决，而�
 
 Ave Mujica的高潮应该也是用音趴解决问题，只不过现在还无法预测具体情况
 
+
+*****
+
+####  Wondering  
+##### 1592#       发表于 2024-12-3 21:56
+
+某人能不能直接滚出尼漏
+
+*****
+
+####  6030sylar  
+##### 1593#       发表于 2024-12-3 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66834762&amp;ptid=2208921" target="_blank">非典型叶子 发表于 2024-12-3 21:31</a>
+
+哪里能看到是否中签，还是就干等通知？
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">是，短信和站内通知，凌晨一点前要确认是否出席，不出席和没确认的会回收发第二轮
+
+*****
+
+####  蜇灵  
+##### 1594#       发表于 2024-12-3 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66833949&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-3 19:35</a>
+感觉前七集大概率就是祥子救火 
+用纸勉强糊上战舰
+第七集配合祥子现实生日214 直接炸穿 ...</blockquote>
+建议复刻一波凯撒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑夜落叶秋天  
+##### 1595#       发表于 2024-12-3 22:00
+
+元老院:丰川家
+
+那庞培在哪里
+
+*****
+
+####  PDQ4  
+##### 1596#       发表于 2024-12-3 22:00
+
+ 本帖最后由 PDQ4 于 2024-12-3 22:02 编辑 
+
+其实可以典中典鸡其中一首曲子是送给妈的，比如队友一起草除了钢琴以为的曲子跟她告白，祥子补上自己的部分回应队友同时告别母亲
+
+这就有点邦邦味了，人偶可以是舞台后庆功宴的礼物<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  纯田まな  
+##### 1597#       发表于 2024-12-3 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66834821&amp;ptid=2208921" target="_blank">russianbear 发表于 2024-12-3 21:39</a>
+
+20年日本还没改结婚年龄，soyo 16岁理论上是可以嫁给祥爹的（感觉是不错的二创素材，“前女友成了我的后 ...</blockquote>
+想要疯狂幻想可以发隔壁百综，不过百综也不欢迎祥爹，你还是去邦多利怀孕吧发吧
+
+*****
+
+####  御幸一也  
+##### 1598#       发表于 2024-12-3 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66834943&amp;ptid=2208921" target="_blank">玖羽 发表于 2024-12-3 21:54</a>
+
+我认为娃娃只是一个象征，不太可能真的在这个上面做文章
+
+MyGO很厉害的一点是坚持做到了音乐番的问题用音 ...</blockquote>
+確實 都忘了這個前提，第一話這個基調差點忘了這始終是發生在邦宇宙的故事，100%是要音樂解決問題<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 1599#       发表于 2024-12-3 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66833949&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-3 19:35</a>
+
+感觉前七集大概率就是祥子救火 
+
+用纸勉强糊上战舰
+
+第七集配合祥子现实生日214 直接炸穿 ...</blockquote>
+第2～6话中的两话貌似解决至少两个人的问题（睦和另一个人）
+
+相当于MyGO的第5和第6话，貌似解决爱音和立希的问题（那两话也是最像一般乐队动画的，放在一般乐队动画里都能算佳作回了）
+
+然后第7话直接炸
+
+*****
+
+####  蜇灵  
+##### 1600#       发表于 2024-12-3 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66834239&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-3 20:15</a>
+像命运石之门的sg线结局一样救赎就好了</blockquote>
+那也太刺激了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  傘木希美  
+##### 1601#       发表于 2024-12-3 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66834634&amp;ptid=2208921" target="_blank">6030sylar 发表于 2024-12-3 21:13</a>
+哪里看具体时长？
+
+—— 来自 Realme RMX1851, Android 11上的 S1Next-鹅版 v3.0.0-alpha ...</blockquote>
+b站的私信通知写了活动时间
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.95-alpha
+
+*****
+
+####  adcdqre  
+##### 1602#       发表于 2024-12-3 22:05
+
+其实有点脑子的都不会想作者会对照mygo来写，同一个作者连续两部作品如果搞得差不多的话会被质疑水平的，作者考虑的读者角度观感也会打折扣。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+*****
+
+####  星天观测  
+##### 1603#       发表于 2024-12-3 22:05
+
+结界大开真就什么东西都来了啊，这么喜欢二创怎么不滚去圣地二创紫啊
+
+soyo在你眼里到底是什么啊？
+

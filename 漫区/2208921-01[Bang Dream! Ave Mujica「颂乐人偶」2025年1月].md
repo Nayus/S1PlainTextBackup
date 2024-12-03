@@ -13750,3 +13750,137 @@ pv里出现在小电视里的不只是睦，也有初华
 合理讨论发散我记得哪个楼都没禁过，被打的都是基于毁坏角色形象/与官方现有情报相悖的
 要不一刀切要么烂梗横飞，没有这样二极管的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仓鼠胖太  
+##### 1326#       发表于 2024-12-3 09:43
+
+所谓打假也不过都是部分漏油主观想法，不如说造谣这个词就用的很不恰当，严格来说所有没有官方背书的都可以算成是“造谣”，“推论”一万个人有一万种逻辑方式，不符合部分人的想法不代表就要被扣帽子，你可以选择不参与讨论
+
+*****
+
+####  yozoraxsx  
+##### 1327#       发表于 2024-12-3 09:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉哪怕大喵老师仅仅是ji团anon位，楼友都要崩溃了。
+
+*****
+
+####  狮子咕  
+##### 1328#       发表于 2024-12-3 09:45
+
+<blockquote>PDQ4 发表于 2024-12-3 09:39
+你想给哪些假药鸣不平，或者想反对哪些假药可以直说的
+
+合理讨论发散我记得哪个楼都没禁过，被打的都是基 ...</blockquote>
+我比较无所谓，看到有人先吐槽没实锤的假药都先删了就顺路跟一嘴而已。
+
+*****
+
+####  Aendst  
+##### 1329#       发表于 2024-12-3 09:46
+
+表姐妹推测不是已经讨论完了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+有可能是有可能不是，不过可以确定的是睦祥关系很亲近，其他没什么好说的了吧，也没见人抱着不放乱发散的
+
+*****
+
+####  御景  
+##### 1330#       发表于 2024-12-3 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66828905&amp;ptid=2208921" target="_blank">仓鼠胖太 发表于 2024-12-3 09:43</a>
+
+所谓打假也不过都是部分漏油主观想法，不如说造谣这个词就用的很不恰当，严格来说所有没有官方背书的都可以 ...</blockquote>
+“造谣”、“假药”可以是推论，那拿“造谣”当论据是不是有问题，不是打着“假药”的旗号，就什么都能说的。
+
+*****
+
+####  skives10  
+##### 1331#       发表于 2024-12-3 09:47
+
+也不能混为一谈
+像tgw物产有第八集回本家这个镜头发散
+姐妹论有葬礼习俗表现镜头支持
+至于没有任何剧情内容支持 还会伤害角色形象的 比起假药 就更接近尬黑了
+
+*****
+
+####  狮子咕  
+##### 1332#       发表于 2024-12-3 09:48
+
+ 本帖最后由 狮子咕 于 2024-12-3 09:49 编辑 
+
+大猫老师把团都快玩炸了还怎么爱音位，以及爱音可是和主唱美帝的，真爱音位确实能在另一种角度让坛友爆炸（也不是不行，说不定第二集地下车库吵架直接揭露一个喵梦和初华都是小岛岛民幼驯染）
+
+*****
+
+####  芸香科植物激推  
+##### 1333#       发表于 2024-12-3 09:49
+
+和主唱美帝……吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  狮子咕  
+##### 1334#       发表于 2024-12-3 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66828941&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-3 09:47</a>
+
+也不能混为一谈
+
+像tgw物产有第八集回本家这个镜头发散
+
+姐妹论有葬礼习俗表现镜头支持</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">葬礼习俗其实我是觉得有点发散的，比起特别现实的部分，更接近于这个镜头肯定要让睦出镜吧（当然也不是完全不能作为论据）
+
+*****
+
+####  skives10  
+##### 1335#       发表于 2024-12-3 09:51
+
+别替漏油崩溃啊 漏油都是支持喵梦搞事狠狠给祥p上强度的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 1336#       发表于 2024-12-3 09:51
+
+我观喵祥确实有美帝之资，就看独角兽敢不敢给笔墨了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+以及建议漏u摆脱狗本位思想，看鸡天天抱着对应狗这个对应狗那个的，那我只能也祝福漏u幸福了<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 1337#       发表于 2024-12-3 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66828421&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-3 08:41</a>
+
+看到有名声很差的微博营销号把泥楼分析和考据一律当成go友做的有点无语
+
+可能这也是思想钢印的一部分吧
+
+只能 ...</blockquote>
+是那個著名祥黑號嗎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 這麼恨祥子怎麼盯著雞樓看，疑似有點深櫃了
+
+*****
+
+####  相坂君  
+##### 1338#       发表于 2024-12-3 09:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">漏油崩不崩溃我不知道，有些讨厌祥的大概率崩溃
+
+*****
+
+####  御幸一也  
+##### 1339#       发表于 2024-12-3 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66828603&amp;ptid=2208921" target="_blank">星天观测 发表于 2024-12-3 09:07</a>
+
+现在一口咬定那个主唱太用力了是初华发的用来挤走灯获得祥子，所以要求初华给灯道歉的都有
+
+只能说是某些东 ...</blockquote>
+這麼抽象？什麼玩意兒<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

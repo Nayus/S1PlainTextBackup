@@ -13299,3 +13299,51 @@ pv后半段的面具顺序是睦→海铃→喵梦→初华→祥子
 早就不是mygo动画里的“大反派”了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 该转变思维了
 
+
+*****
+
+####  Aendst  
+##### 1283#       发表于 2024-12-3 08:41
+
+看到有名声很差的微博营销号把泥楼分析和考据一律当成go友做的有点无语
+
+可能这也是思想钢印的一部分吧
+
+只能说第一话都这样了还当mujica是反派这种迷惑行为也是有迹可循的
+
+*****
+
+####  PDQ4  
+##### 1284#       发表于 2024-12-3 08:41
+
+我都怀疑独角兽剧本里祥子活得跟个虐文女主一样，怎么还能被当成反派<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+不会真有人想在二偶里看见努力到最后一无所有的“现实主义大作”吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+不过这确实挺跨时代的，wsd可以重新定义二偶，既不二也不偶<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  狮子咕  
+##### 1285#       发表于 2024-12-3 08:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么说也会进游戏的贴贴，把最主要的部分考虑到就不会那么激进了
+
+*****
+
+####  PDQ4  
+##### 1286#       发表于 2024-12-3 08:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66828421&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-3 08:41</a>
+ 看到有名声很差的微博营销号把泥楼分析和考据一律当成go友做的有点无语 可能这也是思想钢印的一部分吧 只能 ...</blockquote>
+好的一律充狗，b站也干了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 1287#       发表于 2024-12-3 08:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66828215&amp;ptid=2208921" target="_blank">桜庭千景 发表于 2024-12-3 07:57</a>
+
+小团体拉我，感觉这楼快没法看了</blockquote>
+拉你了，越来越离谱，真得小团体<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

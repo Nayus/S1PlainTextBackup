@@ -14345,3 +14345,52 @@ pv里出现在小电视里的不只是睦，也有初华
 
 还是多关注剧情 少关注漏油吧 可以善用屏蔽<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 1382#       发表于 2024-12-3 10:54
+
+ 本帖最后由 Aendst 于 2024-12-3 10:57 编辑 
+
+可以理解有只看动画不关心企划的人
+
+但是这是2.5企划的动画，这个本质是不会变的
+
+2.5企划当然可以有很现实很残酷的内容，但是2.5企划的角色做出来，就是为了让人喜欢的（也因此，制作组明确表露过担忧部分角色会不会不被接受，和知道部分角色可能不会被喜欢所以发现有人能喜欢上感到很惊喜）
+
+mujica动画以mujica为主角，当然就是要让mujica角色更受欢迎的
+
+也同样是这个道理，父辈商战能让这些少女角色有更高人气吗？会给企划带来受众吗？不会，所以只能是背景板
+
+*****
+
+####  半年  
+##### 1383#       发表于 2024-12-3 10:59
+
+<img src="https://img.saraba1st.com/forum/202412/03/105943go4qh0wq0bc2h0oy.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20241203105843.jpg</strong> (70.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-3 10:59 上传
+
+
+*****
+
+####  哈曼的YY  
+##### 1384#       发表于 2024-12-3 11:00
+
+分级这个前面讲过了 列举的具体作品其实也没什么过分场面
+
+*****
+
+####  cxj649  
+##### 1385#       发表于 2024-12-3 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66829325&amp;ptid=2208921" target="_blank">66367749 发表于 2024-12-3 10:27</a>
+
+我之前就说别动画开播一看和心心念念的正反派ooc剧情不符嗷的一声疯掉，没想到才刚pv还没正式开播就有出 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这在党争番很常见，当然我最近这样魔怔的观众是 我推的孩子
+

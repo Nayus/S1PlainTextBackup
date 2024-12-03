@@ -952,3 +952,35 @@ avemujica出大问题会引发祥子创伤也可能是一种“好不容易找�
 
 放过人偶吧我说真的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 1566#       发表于 2024-12-3 20:56
+
+看漏油提到孤注一掷
+
+我记得迷你专的时候有提过可以这么翻，中文语境个人比较喜欢这个标题翻译<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 1567#       发表于 2024-12-3 20:57
+
+我觉得最后可能会和c团有个对照，c团是祥子一手创立，但是一拖四祥子先炸了，其他四个没有挽回。母鸡卡应该是同样一手创立，祥子炸后被队友拉一把重新振作
+
+*****
+
+####  skives  
+##### 1568#       发表于 2024-12-3 20:59
+
+池袋アニメイト
+
+<img src="https://img.saraba1st.com/forum/202412/03/205947umcwf1f0j9codhwm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3939.jpeg</strong> (407.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-3 20:59 上传
+

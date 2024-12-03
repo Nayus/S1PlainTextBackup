@@ -17616,3 +17616,23 @@ Liar's Bar（豚形象）
 
 你说本人在意谣言吗？各自理解吧
 
+
+*****
+
+####  zhssf  
+##### 10331#       发表于 2024-12-3 17:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，miko底边起来发展到如今也真是不容易，心态在最底边的时候已经锻炼出来了吧
+
+*****
+
+####  holoan  
+##### 10332#         楼主| 发表于 2024-12-3 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66832991&amp;ptid=2086637" target="_blank">zhssf 发表于 2024-12-3 17:38</a>
+
+黑子角度会说你看她自己都认了，miko底边起来发展到如今也真是不容易，心态在最底边的时候已经锻炼出来了吧 ...</blockquote>
+不知道我前几个月楼里的发言你有没有看过，前几个月网上的黑子最极端的时候发出过miko全家杀害预告的发言，还有sololive现场对粉丝进行伤害的预告，而且持续了半年以上，这是全holo甚至全v圈里最厉害的黑子都集中在miko这了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推特的各种言论 关键词污染更不用提，数年前就一直存在
+
+这心理素质掂量一下吧
+

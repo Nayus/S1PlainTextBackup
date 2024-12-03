@@ -13471,3 +13471,128 @@ pv里出现在小电视里的不只是睦，也有初华
 
 假药终归是假药，把假药当真还希望什么道歉，目的早就昭然若揭了
 
+
+*****
+
+####  狮子咕  
+##### 1298#       发表于 2024-12-3 09:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来明明细想一想睦才是【炸】团的最终凶手（没有睦的根本绝杀，已经不吵了的几个人应该可以好聚好散），但是通常吵架的时候都是祥厨灯厨大战，睦美美隐身，这就是三无系的优势
+
+*****
+
+####  rikaren  
+##### 1299#       发表于 2024-12-3 09:14
+
+第十话初华拉住差点摔下台阶的灯过去一年没见着几个人感谢，一个造谣一天就窜出来一堆莫名其妙的生物。
+
+*****
+
+####  PDQ4  
+##### 1300#       发表于 2024-12-3 09:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉不如杨洁逆输入
+想黑初华直说，欲加之罪何患无辞
+
+*****
+
+####  Aendst  
+##### 1301#       发表于 2024-12-3 09:16
+
+ 本帖最后由 Aendst 于 2024-12-3 09:18 编辑 
+<blockquote>狮子咕 发表于 2024-12-3 09:14
+说起来明明细想一想睦才是【炸】团的最终凶手（没有睦的根本绝杀，已经不吵了的几个人应该可以好聚好散）， ...</blockquote>
+
+承认睦和祥子是结束crychic的共犯对一部分人来说应该比登天还难
+
+好聚好散我觉得也不会有的，因为爽世是真的铁了心要复活，没有这个诉求mygo的剧本根本没办法展开
+
+*****
+
+####  PDQ4  
+##### 1302#       发表于 2024-12-3 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66828654&amp;ptid=2208921" target="_blank">狮子咕 发表于 2024-12-3 09:14</a>
+
+ 说起来明明细想一想睦才是【炸】团的最终凶手（没有睦的根本绝杀，已经不吵了的几个人应该可以好聚好散）， ...</blockquote>
+
+你这个就是典型爽姐思路<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  结衣小比取  
+##### 1303#       发表于 2024-12-3 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66823068&amp;ptid=2208921" target="_blank">守望者404 发表于 2024-12-2 14:48</a>
+
+罗森锦绣大道店</blockquote>
+东站那边是吧，谢谢。
+
+*****
+
+####  结衣小比取  
+##### 1304#       发表于 2024-12-3 09:20
+
+其他地方看到一张盗摄的图片，不知道是不是真的
+
+图片显示祥子右手提着一个能把自己装进去的白色大箱子，左手拎着一个黑色的手提箱，从一栋建筑物走出，睦在一旁乖乖站着侧头看向箱祥子
+
+这么看祥子力气应该很大吧
+
+*****
+
+####  狮子咕  
+##### 1305#       发表于 2024-12-3 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66828673&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-3 09:16</a>
+
+承认睦和祥子是结束crychic的共犯对一部分人来说应该比登天还难
+
+好聚好散我觉得也不会有的，因为爽世是真 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 1306#       发表于 2024-12-3 09:20
+
+这种竭泽而渔的造谣尬黑还不如继续让你祥背负一切呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仓鼠胖太  
+##### 1307#       发表于 2024-12-3 09:20
+
+睦明明是毅然决然选择和祥子一起承担退团的压力吧，半身含金量的证明，而且就第一集揭面具那么大反应来看，睦加入母鸡卡的背后估计承担了很大压力，对方不是祥子估计她不会做的
+
+*****
+
+####  狮子咕  
+##### 1308#       发表于 2024-12-3 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66828705&amp;ptid=2208921" target="_blank">结衣小比取 发表于 2024-12-3 09:20</a>
+
+其他地方看到一张盗摄的图片，不知道是不是真的
+
+图片显示祥子右手提着一个能把自己装进去的白色大箱子，左 ...</blockquote>
+那不就是被老爹丢完易拉罐后离家出走嘛
+
+*****
+
+####  红楼飞雪  
+##### 1309#       发表于 2024-12-3 09:22
+
+建议漏油攻击性强一点，“无根据”太软绵绵了，这就是【<strong>造谣</strong>】<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+传的满天飞我还以为有什么我没看过的情报，实际纯无中生有，别搞的自己底气都没了
+
+*****
+
+####  相坂君  
+##### 1310#       发表于 2024-12-3 09:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有些人还是mujica反派论太入脑了
+
+脑初华发那条消息的人是不是太恨初华了？初华怎么你了，原罪别是祥子选的mujica<strong>主唱</strong>
+

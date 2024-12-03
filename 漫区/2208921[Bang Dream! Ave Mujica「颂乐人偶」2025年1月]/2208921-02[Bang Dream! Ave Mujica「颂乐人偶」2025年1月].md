@@ -781,3 +781,106 @@ C团不是商业团呀。大象老师要大操大办商业live签正经合同的
 
 2024-12-3 20:16 上传
 
+
+*****
+
+####  星天观测  
+##### 1558#       发表于 2024-12-3 20:30
+
+武藏野的最终合练结束惹
+
+MVZ~T$1}JIVJSZT]V$8$GAW_tmb.jpg
+(167.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-3 20:30 上传
+
+<img src="https://img.saraba1st.com/forum/202412/03/203039wz96fof8u61nuwzu.jpg" referrerpolicy="no-referrer">
+
+6W)JYQ%W5AOOVC7GFVJO`6G_tmb.jpg
+(128.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-3 20:30 上传
+
+<img src="https://img.saraba1st.com/forum/202412/03/203039kioponnn4ef0nng0.jpg" referrerpolicy="no-referrer">
+
+T(]5C5NUWKR@WHKO24P{OK4_tmb.jpg
+(114.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-3 20:30 上传
+
+<img src="https://img.saraba1st.com/forum/202412/03/203039glml243c332ll5gi.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 1559#       发表于 2024-12-3 20:31
+
+纯假药图一乐
+
+按照疑似祥子主线路核心角色，和PV面具掉落顺序来推测
+
+我认为主线的路径可能会是
+
+涉及睦的秘密→涉及海铃的秘密→涉及喵梦的秘密→涉及初华的秘密
+
+对于整个mujica和祥子来说，就是
+
+有关成员家庭问题→有关内部稳定的问题→有关外部事件引发的问题→最终收束
+
+喵梦不会只在一开始推进矛盾冲突，在前半段可能都会是这个推剧情的关键角色（访谈应该也有类似的说法）
+
+但涉及她秘密的部分过去之后，她或许就会是维护团队的其中一人
+
+海铃我认为也是类似的，在解决她的问题之后会是相对稳定的成员
+
+睦无法推测
+
+初华无法推测
+
+如果把解决问题的时间线拉长，既然祥子有可能贯穿全线，那么有没有可能祥子问题的解决也是一个长期过程
+
+并非四个人在某一时刻一起把祥子拉回来，而是每个人在解决自己问题，揭开自己秘密的过程中拉祥子一段距离，最后祥子自己解开心结（自救，可能有关丧母）
+
+这是否也是有可能的
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| skives| + 1|合理|
+
+查看全部评分
+
+*****
+
+####  skives  
+##### 1560#       发表于 2024-12-3 20:35
+
+[https://x.com/mizukitoko/status/ ... fBwUWaJJEgl3mSfUp5g](https://x.com/mizukitoko/status/1863882343955763688?s=61&amp;t=R0KfBwUWaJJEgl3mSfUp5g)
+
+<img src="https://img.saraba1st.com/forum/202412/03/203453fpqlp4gp31pp23ou.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3938.jpeg</strong> (1.06 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-3 20:34 上传
+
+
+*****
+
+####  NODY  
+##### 1561#       发表于 2024-12-3 20:35
+
+隔壁的舅舅确实说了初华才是最后爆的
+

@@ -15309,3 +15309,94 @@ The die is cast这个是上次bushiroad expo鸡那边展台的标题啊，也是
 
 它常用来表示在做出重要决定后，结果已经无法挽回，必须承受其后果或继续前进。中文类似的表达有“覆水难收”或“箭在弦上，不得不发”。
 
+
+*****
+
+####  Aendst  
+##### 1469#       发表于 2024-12-3 16:58
+
+ 本帖最后由 Aendst 于 2024-12-3 17:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66832607&amp;ptid=2208921" target="_blank">桜庭千景 发表于 2024-12-3 16:53</a>
+
+不是你们在说什么东西啊？
+
+The die is cast这个是上次bushiroad expo鸡那边展台的标题啊，也是鸡迷你专1st ...</blockquote>
+最初是迷你专（用了拉丁语原文）
+
+然后展台标题
+
+现在英文版动画的标题似乎？也把这句话采用为副标题了？
+<img src="https://pbs.twimg.com/profile_banners/1859062489369243648/1733029205/1080x360" id="aimg_GXxCP" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+英文推头图
+
+之前其实还真的没怎么讨论过这个，懂了意思就过了
+
+但到处都在用的话基本上是有含义的
+
+*****
+
+####  ads147147  
+##### 1470#       发表于 2024-12-3 16:59
+
+母鸡卡自己专辑都用过这个短语，事到如今怎么还讨论这个凯撒名言。
+
+不如暴论其实是联动装甲核心6好了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  枫林不见  
+##### 1471#       发表于 2024-12-3 16:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">  每周四欢迎收看 邦邦布袋戏之颂乐人偶：覆水难收 （闽南话
+
+*****
+
+####  skives10  
+##### 1472#       发表于 2024-12-3 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66832665&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-3 16:58</a>
+最初是迷你专（用了拉丁语原文）
+
+然后展台标题
+
+现在英文版动画的标题似乎？也把这句话采用为副标题了？</blockquote>
+这个ave mujica的字体看上去就像王冠一样
+
+
+*****
+
+####  Acatv  
+##### 1473#       发表于 2024-12-3 17:02
+
+二周目soyo：很简单，我成为（祥子）母亲就是了，说罢一把抓住祥爹，顷刻炼化
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+
+*****
+
+####  桜庭千景  
+##### 1474#       发表于 2024-12-3 17:06
+
+其实没什么很特别，就是挺适合的
+
+祥子在设定集就说了带着忘记一切、奉献一切的想法孤注一掷的组建了ave mujica，第一话里也说了“我除了ave mujica已经什么都没有了”
+
+*****
+
+####  cccpprc  
+##### 1475#       发表于 2024-12-3 17:06
+
+骰子已经掷下这种措辞一般是来形容“赌国运”式的孤注一掷行为的
+
+这下本格日本人了（确信）
+
+*****
+
+####  skives10  
+##### 1476#       发表于 2024-12-3 17:07
+
+丰川祥子：mujica公司正在同时开发13个单机游戏
+

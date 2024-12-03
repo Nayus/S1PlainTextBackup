@@ -187,3 +187,45 @@ The die is cast. 所以我们可以理解为“投掷出去的骰子已经没法
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  椎名真希  
+##### 1502#       发表于 2024-12-3 18:33
+
+喵梦这个雷炸的其实比想象中大，因为她说不定真的考虑武道馆出演之后单飞，回去搞她的主播大业，不然也没法解释干嘛触祥子的雷点
+
+要是她真的搞吃了吐，还拿祥子那句余下的人生开玩笑，祥子肯定要爆
+
+*****
+
+####  akiomn  
+##### 1503#       发表于 2024-12-3 18:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">仔细想了下现在祥子状态可能比刚创立mujica时候还危险
+祥子物质方面很可能要倚靠mujica赚钱，而被爹切割后，精神更是需要mujica。经历之前的那些事到大喵整活，祥子的精神可能还能因为mujica是最后的归宿所以强撑一段时间，但是解决完队友的烂摊子后呢？祥子迟早会有爆了的那天，而爆了的后果就很严重了，因为mujica是祥子作为绝对核心的
+只能看队友能不能在最后支棱起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">c团可以说是没有副c（素食如果当初追上祥子也可能会让一切都不一样）
+
+*****
+
+####  桜庭千景  
+##### 1504#       发表于 2024-12-3 18:36
+
+也不算比想象中大吧，跟群里聊天开玩笑说要不是知道是邦多利正统乐队，大猫这个角色是要被拿下法院见的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+只能说第二话看祥子怎么处理了，也有可能睦那边问题比较大先走睦线，mujica演出暂停，大喵先享受一下流量加成
+
+*****
+
+####  Kfly  
+##### 1505#       发表于 2024-12-3 18:37
+
+事已至此、事到如今<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狮子咕  
+##### 1506#       发表于 2024-12-3 18:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

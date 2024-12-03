@@ -13596,3 +13596,102 @@ pv里出现在小电视里的不只是睦，也有初华
 
 脑初华发那条消息的人是不是太恨初华了？初华怎么你了，原罪别是祥子选的mujica<strong>主唱</strong>
 
+
+*****
+
+####  Aendst  
+##### 1311#       发表于 2024-12-3 09:24
+
+<blockquote>狮子咕 发表于 2024-12-3 09:20
+其实多半还是因为大伙只想吵架……爽世非要复活感觉也是和说不开有一定关系，什么都没说清楚才会走牛角尖 ...</blockquote>
+都是剧本的一环
+
+没什么好钻牛角尖的，也没什么好分锅的
+
+只是可能大伙儿还是喜欢战斗爽吧
+
+*****
+
+####  狮子咕  
+##### 1312#       发表于 2024-12-3 09:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">回归动画本身的话，3个pv里的场景都在前三集的概率多高啊……好几个画面都在第一集钻出来了。可以盲猜第二集睦就要在家看着满屋的演员书和玩偶摔东西了？不过海边对峙塞到第三集会不会有点快
+
+*****
+
+####  御景  
+##### 1313#       发表于 2024-12-3 09:26
+
+麻烦转换下思路，mujica的主角是mujica，请把视角放到mujica上。
+
+假药只是假药，别拿假药当论据，清空下积累的刻板印象。
+
+*****
+
+####  仓鼠胖太  
+##### 1314#       发表于 2024-12-3 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66828705&amp;ptid=2208921" target="_blank">结衣小比取 发表于 2024-12-3 09:20</a>
+其他地方看到一张盗摄的图片，不知道是不是真的
+
+图片显示祥子右手提着一个能把自己装进去的白色大箱子，左 ...</blockquote>
+是真的，而且出门的时候箱子还被门槛绊住，祥子怒气上涌狠狠扽出来的，可以说是臂力非常强劲了
+
+*****
+
+####  狮子咕  
+##### 1315#       发表于 2024-12-3 09:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">清空刻板印象挺好的，早就看姐妹论这个假药不爽了.jpg，一有角色关系马上姐妹论，狗的时候姐妹论了好多集，最后亲姐妹破产现在又在疯狂表姐妹，先去掉这个最影响讨论的假药
+
+*****
+
+####  PDQ4  
+##### 1316#       发表于 2024-12-3 09:28
+
+用小脑思考都知道初华看ccc八成只盯着祥子，灯唱了什么我都怀疑初华左耳朵进右耳朵出，自动生成纯钢琴伴奏，灯她都不记得要确认过才敢信
+想起来有说初华演不认识灯就离谱，真演的她13集有必要自言自语吗，对着空气也演？
+立希也在舞台上可能初华也不记得，不然去撬立希嘴不比灯容易<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 1317#       发表于 2024-12-3 09:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66827095&amp;ptid=2208921" target="_blank">椎名真希 发表于 2024-12-2 22:57</a>
+
+倾向于还在，但是可能出席次数减少了，因为MYGO里灯视角是开学发现祥子在羽丘，所以初中阶段应该没转学还 ...</blockquote>
+日本中學不看出席數，完全不登校都能畢業的
+
+
+*****
+
+####  PDQ4  
+##### 1318#       发表于 2024-12-3 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66828783&amp;ptid=2208921" target="_blank">狮子咕 发表于 2024-12-3 09:28</a>
+ 清空刻板印象挺好的，早就看姐妹论这个假药不爽了.jpg，一有角色关系马上姐妹论，狗的时候姐妹论了好多集， ...</blockquote>
+漏u有点针对了，葬礼图这才刚出来呢，不能因为你不喜欢就把官方可以用来推断的东西无视了<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 1319#       发表于 2024-12-3 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66827313&amp;ptid=2208921" target="_blank">LeonsCat 发表于 2024-12-2 23:32</a>
+
+其实这儿最难解释的是初华的事务所为啥放手。
+
+偶像歌手的合同可是超级霸道的，牛逼如老淋淋当年都被整得 ...</blockquote>
+
+事務所沒有放手吧，不是同事務所然後初華兼任嗎，兼任的話只是累慘了初華，對sumimi的影響應該也不大<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  狮子咕  
+##### 1320#       发表于 2024-12-3 09:34
+
+<blockquote>PDQ4 发表于 2024-12-3 09:31
+漏u有点针对了，葬礼图这才刚出来呢，不能因为你不喜欢就把官方可以用来推断的东西无视了 ...</blockquote>
+没啊，我是狗10集左右就认表姐妹关系的，历史发言都在那儿呢。不过看最近有的人对一些其他部分全当假药打死。觉得那干脆把没钦定的全打死算了
+

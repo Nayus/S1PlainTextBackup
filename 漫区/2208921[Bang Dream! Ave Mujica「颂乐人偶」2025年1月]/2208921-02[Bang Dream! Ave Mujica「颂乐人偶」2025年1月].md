@@ -1533,3 +1533,53 @@ b站的私信通知写了活动时间
 好有资历啊还活在十多年前，你不是纯良mmr那你是啥，z87么</blockquote>
 我开始上贴吧的时候TYMM还没满月，你不会以为所有人看动画都是为了对人物和CV发情吧
 
+
+*****
+
+####  PDQ4  
+##### 1617#       发表于 2024-12-3 22:37
+
+怪不得这么惦记祥爹，原来是代入了想娶爽姐啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 1618#       发表于 2024-12-3 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66835354&amp;ptid=2208921" target="_blank">russianbear 发表于 2024-12-3 22:34</a>
+
+我开始上贴吧的时候TYMM还没满月，你不会以为所有人看动画都是为了对人物和CV发情吧 ...</blockquote>
+我当然不会这么以为啊，不会真有人看动画就是为了发情吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+零几年我也逛贴吧啊，这能代表啥
+
+*****
+
+####  笋狐  
+##### 1619#       发表于 2024-12-3 22:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对的，一定是为了信手拈来跟风玩烂梗，被受众群体diss后开始摆风马牛不相及的资历，自诩老邦菜结果行止易拉罐，还可以更幽默一点（the next please
+
+
+*****
+
+####  allesdg  
+##### 1620#       发表于 2024-12-3 22:42
+
+讨论过个什么破鞋就能给你带来如此的成熟感，冲浪十多年也要当成资历，你这心理怕不是比你如此看不起的mmr要脆弱的多
+
+*****
+
+####  skives10  
+##### 1621#       发表于 2024-12-3 22:45
+
+[https://x.com/bpdne/status/18639 ... fBwUWaJJEgl3mSfUp5g](https://x.com/bpdne/status/1863942056848372075?s=61&amp;t=R0KfBwUWaJJEgl3mSfUp5g)
+
+<img src="https://img.saraba1st.com/forum/202412/03/224533oztqvuvc2qqxg717.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3940.jpeg</strong> (266.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-3 22:45 上传
+

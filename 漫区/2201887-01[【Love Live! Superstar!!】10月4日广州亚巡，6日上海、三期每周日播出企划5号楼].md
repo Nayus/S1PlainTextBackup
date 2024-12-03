@@ -11531,3 +11531,13 @@ op地区大赛就在新国立了决赛不敢想了<img src="https://static.sarab
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ruffian  
+##### 1126#       发表于 2024-12-3 22:42
+
+打分人数也回归了，现在n站稳定观众估计是就是2100左右，第6.7话那评分和人数都不正常
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -14103,3 +14103,30 @@ pv里出现在小电视里的不只是睦，也有初华
 
 一开始先走睦的线路我觉得是合理的
 
+
+*****
+
+####  狮子咕  
+##### 1361#       发表于 2024-12-3 10:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说鸡狗播出中间关于睦还有个问题还没解答吧，就是第三集ccc演出之后睦那副看起来已经知道祥子家要爆炸的那个态度
+
+*****
+
+####  金钱与民主  
+##### 1362#       发表于 2024-12-3 10:20
+
+说起来第一话就这么劲爆，倒是能理解为啥Mujica和Mygo的动画要隔了一年多了，因为之前大家对Mujica的预期不管如何，基本上都是紧密衔接Mygo第13话的Mujica首演的，包括身份的暴露大多都预想在动画中段才出现，但Mujica第一话直接跳了几个月来到公演多次、团队热度成功峰起的时期，然后直接把身份暴露等爆点写出来了，这样来看两季动画确实隔一段时间比较好。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 1363#       发表于 2024-12-3 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66829136&amp;ptid=2208921" target="_blank">狮子咕 发表于 2024-12-3 10:06</a>
+ pv3的金睦研镜头说不定也没有很捕风捉影</blockquote>
+前一个楼也聊过，是说二次元基本上不会把双重人格当成病来写
+更多的可能是自己跟自己对话拷问，或者说当做人格切换的萌点来表现
+先导pv2还有疑似人偶坐着看电视（正式pv也有，不过是初华）
+所以这个不能单纯扣到睦身上，图一乐的程度<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

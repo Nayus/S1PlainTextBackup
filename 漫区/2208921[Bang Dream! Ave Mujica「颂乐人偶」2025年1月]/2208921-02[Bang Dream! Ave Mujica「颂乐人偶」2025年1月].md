@@ -1153,3 +1153,81 @@ yb站不是看消息栏么 有中奖的话有通知的
 
 s1也没地方发神人二创吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  相坂君  
+##### 1584#       发表于 2024-12-3 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66834821&amp;ptid=2208921" target="_blank">russianbear 发表于 2024-12-3 21:39</a>
+
+20年日本还没改结婚年龄，soyo 16岁理论上是可以嫁给祥爹的（感觉是不错的二创素材，“前女友成了我的后 ...</blockquote>
+满脑子只想着二创是吧
+
+*****
+
+####  yone0000  
+##### 1585#       发表于 2024-12-3 21:47
+
+消息栏里只有阿伞和霙的毛绒娃娃的补款通知<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 1586#       发表于 2024-12-3 21:48
+
+如果祥子的娃娃真的在剧情中段坏了导致祥子破防，我奶一口结局有人帮祥子补好送回给她，没准还是四个人一起补的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+而且最好是补的技术非常拙劣能看出缝补痕迹那种，但就是这种笨拙的补救反而让祥子觉得温暖
+
+*****
+
+####  银酒监武  
+##### 1587#       发表于 2024-12-3 21:49
+
+祥爸除了包饺子或者挂掉，也许还有点别的用处：在祥睦二人守口如瓶乃至爆掉的时候给其他八人提供情报？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+*****
+
+####  相坂君  
+##### 1588#       发表于 2024-12-3 21:50
+
+不在乎人物设定，也不在乎剧情逻辑，更不在乎角色风评
+
+满脑子只想着自己呢
+
+嫁给渣男都说的出口，有没有一丁点想过角色？
+
+*****
+
+####  PDQ4  
+##### 1589#       发表于 2024-12-3 21:51
+
+四个人一起补四舍五入就是祥妈在天之灵看见了四个队友
+
+怎么不算见家长呢<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  相坂君  
+##### 1590#       发表于 2024-12-3 21:53
+
+一起扫墓也是见家长，可以看到和四个队友一起去妈妈墓前吗<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 1591#       发表于 2024-12-3 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66834886&amp;ptid=2208921" target="_blank">NODY 发表于 2024-12-3 21:48</a>
+
+如果祥子的娃娃真的在剧情中段坏了导致祥子破防，我奶一口结局有人帮祥子补好送回给她，没准还是四个人一起 ...</blockquote>
+我认为娃娃只是一个象征，不太可能真的在这个上面做文章
+
+MyGO很厉害的一点是坚持做到了音乐番的问题用音乐解决，而不是用话疗
+
+Ave Mujica的高潮应该也是用音趴解决问题，只不过现在还无法预测具体情况
+

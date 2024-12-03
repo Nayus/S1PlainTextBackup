@@ -289,3 +289,77 @@ The die is cast. 所以我们可以理解为“投掷出去的骰子已经没法
 看了下地图，去武道馆的话这不是完全不顺路么，之前祥子还是给队友安排出租，自己一个人坐电车去睦家和回家 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别想太多，你睦正常发挥罢了。当初祥子告诉睦要照顾爹的时候，睦张嘴也是一句“那ccc呢？”
 
+
+*****
+
+####  黑夜落叶秋天  
+##### 1513#       发表于 2024-12-3 18:49
+
+好奇第二集了 祥子是睡队友家还是睡事务所
+
+
+*****
+
+####  Aendst  
+##### 1514#       发表于 2024-12-3 18:54
+
+如果顺路：睦不一定是从家出发的，当然从学校出发也不顺路
+
+如果不顺路：睦是唯一知道祥子现住址的人，所以如果需要叫人只能叫睦，基本只能确定这个，其他的只能猜（比如说漏油提到过的考虑行李放置）
+
+时间空白这个也没办法猜，当天的可能性比较高，但不好说
+
+睦在上车之前已经知情是有可能的，不然这段对话会有点突兀
+
+*****
+
+####  wszweill  
+##### 1515#       发表于 2024-12-3 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66832393&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2024-12-3 03:31</a>
+
+就算爽女士开了全图去打gank也没法改变祥老师无法同时顾及家庭和乐队的状况啊 难道真帮她养家
+
+所以还是那 ...</blockquote>
+C团不是商业团呀。大象老师要大操大办商业live签正经合同的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+所以大象老师就带走了半身睦头<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+逻辑上没问题，归根究底还是大象老师好面子，本来能和平分手的事情整的神神秘秘 的<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ggxx001  
+##### 1516#       发表于 2024-12-3 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66833544&amp;ptid=2208921" target="_blank">狮子咕 发表于 2024-12-3 18:44</a>
+别想太多，你睦正常发挥罢了。当初祥子告诉睦要照顾爹的时候，睦张嘴也是一句“那ccc呢？” ...</blockquote>
+复制一下
+
+祥子：(这句话没听懂，可能是关于转学羽丘的事，拿到羽丘奖学金了？)
+睦：欸...真的，要转学吗？
+祥子：睦，你知道吗？月之森的学费，可是非常贵的。
+睦：那Crychic呢？
+祥子：我会抽时间的。先不要跟任何人说我的事，好吗？
+
+而若叶睦看样子已经在外面的出租车里等候多时。
+睦：祥？
+祥子：走了！
+出租车内，后排，祥子和睦并列坐着。
+祥子低着头，愤怒地说道：混蛋老爹！你知不知道……这段时间我究竟是怀着怎样的心情……！
+睦：祥...
+祥子哭腔：那里，我不会再回去了！也回不去了！
+睦：祥...武道馆，不要紧吗...？
+
+别造谣啊！这两处可不是你说的那样，睦都是了解了祥子的情况以后顺着说话的好吧！
+
+*****
+
+####  allesdg  
+##### 1517#       发表于 2024-12-3 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66833544&amp;ptid=2208921" target="_blank">狮子咕 发表于 2024-12-3 18:44</a>
+
+别想太多，你睦正常发挥罢了。当初祥子告诉睦要照顾爹的时候，睦张嘴也是一句“那ccc呢？” ...</blockquote>
+那不一样吧，那个地方是祥子说要转学，睦后问ccc怎么办，那时祥子的安排（跟爹住，去羽丘）都确定了可不就剩ccc怎么处理没说了么，睦跟人交流是比较有特点但绝不是没心没肺好吧
+

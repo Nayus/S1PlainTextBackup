@@ -14394,3 +14394,47 @@ mujica动画以mujica为主角，当然就是要让mujica角色更受欢迎的
 我之前就说别动画开播一看和心心念念的正反派ooc剧情不符嗷的一声疯掉，没想到才刚pv还没正式开播就有出 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这在党争番很常见，当然我最近这样魔怔的观众是 我推的孩子
 
+
+*****
+
+####  星天观测  
+##### 1386#       发表于 2024-12-3 11:10
+
+坏，没在pc端找到屏蔽的选项
+
+*****
+
+####  御幸一也  
+##### 1387#       发表于 2024-12-3 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66829772&amp;ptid=2208921" target="_blank">星天观测 发表于 2024-12-3 11:10</a>
+
+坏，没在pc端找到屏蔽的选项</blockquote>
+好友那邊可以加黑名單，加了就看不到了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 1388#       发表于 2024-12-3 11:12
+
+屏蔽在右上角，我的→好友→我的黑名单
+
+*****
+
+####  相坂君  
+##### 1389#       发表于 2024-12-3 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66829772&amp;ptid=2208921" target="_blank">星天观测 发表于 2024-12-3 11:10</a>
+
+坏，没在pc端找到屏蔽的选项</blockquote>
+拉黑是个好东西，漏油可善用
+
+image.png
+(61.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-3 11:15 上传
+
+<img src="https://img.saraba1st.com/forum/202412/03/111501c7ui45t9i4pp9qwo.png" referrerpolicy="no-referrer">
+

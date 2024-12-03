@@ -2346,3 +2346,32 @@ i don't think  please tell everyo
 等同于在蝶那里看到的kirakira和 ...</blockquote>
 也许是这样，第一话的某些情节也没有人能想到<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  贰臣  
+##### 1686#       发表于 2024-12-4 03:04
+
+鸡和狗的情节再怎么出乎意料也都没违背过作为一个“2.5企划”的广告动画的初衷就是了。
+
+猜剧情之前如果不是为了自己脑补爽而是真想推演出符合逻辑的剧情，那我觉得还是得把动画性质放在第一位，一切有可能本末倒置的剧情安排都不会在鸡的动画里出现的。
+
+*****
+
+####  PDQ4  
+##### 1687#       发表于 2024-12-4 03:06
+
+ 本帖最后由 PDQ4 于 2024-12-4 03:09 编辑 
+
+漏u还是太在意回旋镖了，为了硬圆回旋镖甚至可以毁掉角色的人设和2.5最重要的东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+都这样了，该为回旋镖加理由了，首先抛去c狗那7个<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+初华在现场可能只关注祥子，竟然敢无视灯，必须春日影修正
+
+海铃可能听了狗春日影，第九集去给灯鼓劲，肯定是被春日影打动了
+
+剩下的就是喵梦，虽然暂时还不沾边但是找机会用温暖的春日影感化一下肯定就去掉野性了
+
+斯国一有はるひかげ，斯国一有哭来兮库<img src="https://static.saraba1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">
+

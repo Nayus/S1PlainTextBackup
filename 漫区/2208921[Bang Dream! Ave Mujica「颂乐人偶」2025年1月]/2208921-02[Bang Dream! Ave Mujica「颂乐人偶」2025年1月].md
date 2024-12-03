@@ -229,3 +229,63 @@ The die is cast. 所以我们可以理解为“投掷出去的骰子已经没法
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哈曼的YY  
+##### 1507#       发表于 2024-12-3 18:39
+
+感觉能看到网友anon tokyo和主播互动了
+
+*****
+
+####  椎名真希  
+##### 1508#       发表于 2024-12-3 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66833477&amp;ptid=2208921" target="_blank">狮子咕 发表于 2024-12-3 18:37</a>
+
+不过说真的，商业出道大喵真的会完全不考虑后果吗……应该还是会有共犯or内情，不然从底层逻辑来盘大猫的周 ...</blockquote>
+这个要看后边怎么说了，不过有可能是合同里只有合作相关和祥子作为制作人的一些描述，没有规定必须戴面具/隐藏身份什么的，所以喵梦这个行为既然是早有预谋，那应该就是类似舞台抢戏的行为
+
+*****
+
+####  skives10  
+##### 1509#       发表于 2024-12-3 18:40
+
+这就是说出背负人生这句话的影响啊
+就看她怎么对待这次危机
+一直喜欢口嗨也是她的人设了 一句命运共同体被黑了一年  该说到做到了
+
+*****
+
+####  allesdg  
+##### 1510#       发表于 2024-12-3 18:41
+
+看了下地图，去武道馆的话这不是完全不顺路么，之前祥子还是给队友安排出租，自己一个人坐电车去睦家和回家，所以为什么这次会是睦来接人呢，父女吵架和搬行李上车，再到武道馆之间都是切了镜头，也不知道间隔了多长时间以及是否就这样直接开去武道馆了，另外祥子上车后发泄说再也不回来了的时候，睦第一反应是担心武道馆演出却没问祥子打算怎么安置自己，应该是上车前就已经安排告知过了？
+
+<img src="https://img.saraba1st.com/forum/202412/03/184125kerlxfwxfgi1r81g.png" referrerpolicy="no-referrer">
+
+<strong>微信图片_20230918132853(1).png</strong> (226.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-3 18:41 上传
+
+*****
+
+####  狮子咕  
+##### 1511#       发表于 2024-12-3 18:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“我们是命运共同体”、“把你余下的人生交给我”、“高中生能背负他人的人生吗”、“你这个人真是只想着自己（我只有母鸡卡了）”
+
+
+*****
+
+####  狮子咕  
+##### 1512#       发表于 2024-12-3 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66833517&amp;ptid=2208921" target="_blank">allesdg 发表于 2024-12-3 18:41</a>
+
+看了下地图，去武道馆的话这不是完全不顺路么，之前祥子还是给队友安排出租，自己一个人坐电车去睦家和回家 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别想太多，你睦正常发挥罢了。当初祥子告诉睦要照顾爹的时候，睦张嘴也是一句“那ccc呢？”
+

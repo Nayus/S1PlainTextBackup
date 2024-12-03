@@ -15024,3 +15024,26 @@ soyo开上帝视角的话在元和二年🐘爆了ccc之后出门喝雨水的tim
 
 至于团名歌里的表演谁是lead其实也很明显，为什么还会汴京，这个我不予置评<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 1444#       发表于 2024-12-3 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66831822&amp;ptid=2208921" target="_blank">前方暴雨预警 发表于 2024-12-3 15:27</a>
+
+这个lead guitar总算加上了，虽然我不明白这种但凡看一眼live影像就能分清的东西，居然还有围绕mujica的主 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">為什麼汴這個不是很懂
+
+*****
+
+####  御幸一也  
+##### 1445#       发表于 2024-12-3 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66831324&amp;ptid=2208921" target="_blank">星天观测 发表于 2024-12-3 14:21</a>
+
+en官号对doloris的介绍，和日语版稍有不同</blockquote>
+the soul of ave mujica
+
+主唱當然是樂團的靈魂<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

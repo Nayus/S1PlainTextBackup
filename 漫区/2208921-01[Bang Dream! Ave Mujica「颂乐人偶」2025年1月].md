@@ -13950,3 +13950,156 @@ pv里出现在小电视里的不只是睦，也有初华
 
 现在睦暴走都在pv里出来了，是不是说明睦这边的问题不复杂，会在母鸡卡前期就解决？半身早点安定下来对祥子后续抗压时的精神状态是重大利好<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  狮子咕  
+##### 1347#       发表于 2024-12-3 10:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">其实我母鸡卡最期待的是pv里这几个镜头在正片里怎么演出，希望别是我擅自期待，最后告诉大家其实只是舞台剧转场……
+
+<img src="https://img.saraba1st.com/forum/202412/03/100536ad663a96giar19u1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (30.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-3 10:05 上传
+
+*****
+
+####  rikaren  
+##### 1348#       发表于 2024-12-3 10:06
+
+那个白莲花的造谣源头我找到了，s1不能折叠不知道要不要把图发出来，只能说相当白莲花，另外那人成分是哭友而不是狗友还是要说一下的，毕竟我不是个嘴皮子一碰就直接造谣的人。
+
+*****
+
+####  狮子咕  
+##### 1349#       发表于 2024-12-3 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66829097&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-3 10:03</a>
+
+小睦偶我有提过双重人格假药，太捕风捉影了，这里就不提了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">pv3的金睦研镜头说不定也没有很捕风捉影
+
+*****
+
+####  silver鲤跃  
+##### 1350#       发表于 2024-12-3 10:07
+
+道歉都出来了，真的是天赋啊
+
+*****
+
+####  狮子咕  
+##### 1351#       发表于 2024-12-3 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66829095&amp;ptid=2208921" target="_blank">rikaren 发表于 2024-12-3 10:03</a>
+
+之前有个漏油提出来的假药？祥妈给睦也送了一个人偶？</blockquote>
+视觉图的睦人偶是母鸡卡穿着啊，肯定和那边没关系吧
+
+*****
+
+####  金钱与民主  
+##### 1352#       发表于 2024-12-3 10:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66827652&amp;ptid=2208921" target="_blank">oldgoat 发表于 2024-12-3 00:32</a>
+
+我觉得不妨考虑些复杂点的商战，比如即使是基于已知信息：
+
+外公故意陷害祥爹，意图将祥爹赶走控制祥子的可 ...</blockquote>
+背景问题只会简单化而不是复杂化，这是少女乐队动画，不是别的玩意。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Aendst| + 1|理应如此|
+
+查看全部评分
+
+*****
+
+####  rikaren  
+##### 1353#       发表于 2024-12-3 10:09
+
+<blockquote>silver鲤跃 发表于 2024-12-3 10:07
+道歉都出来了，真的是天赋啊</blockquote>
+造谣源头还在说鸡推太敏感了，他只是不小心说错了一句话捏
+
+*****
+
+####  芸香科植物激推  
+##### 1354#       发表于 2024-12-3 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66829150&amp;ptid=2208921" target="_blank">狮子咕 发表于 2024-12-3 10:07</a>
+
+视觉图的睦人偶是母鸡卡穿着啊，肯定和那边没关系吧</blockquote>
+衣服一模一样，是双重人格<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 1355#       发表于 2024-12-3 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66829121&amp;ptid=2208921" target="_blank">狮子咕 发表于 2024-12-3 10:05</a>
+其实我母鸡卡最期待的是pv里这几个镜头在正片里怎么演出，希望别是我擅自期待，最后告诉大家其实只是舞台剧 ...</blockquote>
+第一个镜头已经确认是舞台剧转场了
+
+
+*****
+
+####  PDQ4  
+##### 1356#       发表于 2024-12-3 10:10
+
+睦的问题复不复杂不好说，单看pv面具脱落顺序已经目前的状态，基本上就是要第一个解决的了
+
+睦稳定了才能给队友一个能了解祥子状况的机会，毕竟就她一个人知情人，那捂得是真死啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狮子咕  
+##### 1357#       发表于 2024-12-3 10:11
+
+ 本帖最后由 狮子咕 于 2024-12-3 10:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66829171&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-3 10:10</a>
+
+第一个镜头已经确认是舞台剧转场了</blockquote>
+第一个镜头之前就是在舞台上面的印象这个都知道啦，主要还是后两个代表的情绪。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最烂的展开就是这组镜头和pv2那堆会动的人偶都是剧里唱《双月》时放的mv
+
+*****
+
+####  rikaren  
+##### 1358#       发表于 2024-12-3 10:12
+
+<blockquote>狮子咕 发表于 2024-12-3 10:07
+视觉图的睦人偶是母鸡卡穿着啊，肯定和那边没关系吧</blockquote>
+哦哦，我的问题。
+
+*****
+
+####  星天观测  
+##### 1359#       发表于 2024-12-3 10:13
+
+如果经常聊的漏油想加讨论组聊天的可以私信我，动画访谈为主，求同存异，不攻击任何角色的随意聊聊
+
+*****
+
+####  Aendst  
+##### 1360#       发表于 2024-12-3 10:13
+
+就睦和祥子的关联程度来说，解决睦的问题是现在的祥子可以做到的（毕竟从小到大一起长大，甚至可能直接插手家庭相关）
+
+而解决了睦的问题之后，睦也可以给祥子一个更稳定的支持，这样不管是祥子不断成长还是遭遇挫折，都会更好处理
+
+漏油说的给队友了解祥子的机会也是一个要点
+
+一开始先走睦的线路我觉得是合理的
+

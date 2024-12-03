@@ -14512,3 +14512,51 @@ tvb晚上九点半的电视剧都属于这档吗：以下节目涉及不雅用�
 事務所沒有放手吧，不是同事務所然後初華兼任嗎，兼任的話只是累慘了初華，對sumimi的影響應該也不大  ...</blockquote>
 女性偶像歌手的工作强度基本算特重体力劳动，要考虑是不是划为炉前工、井下作业等不适合女性的那种。而am团的工作作为各个势力集中力推，强度也绝对不小。任何自然人都不可能兼顾，除非初华是米歇尔mk2。那考虑到am团的强推，基本就是等于放置sumimi工作了。拆当红双人组合，这个魄力……不像日本偶像经纪公司能干的。
 
+
+*****
+
+####  skives10  
+##### 1398#       发表于 2024-12-3 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66830170&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-3 11:52</a>
+哎牢素，曾经的双向奔赴
+现在的牢素如果用上帝视角看鸡团第一集的祥子过去部分，素食恐怕要破大防了 ...</blockquote>
+唉独角兽真的是大师 
+一条未发出的短信直接给素祥盘活了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 1399#       发表于 2024-12-3 11:58
+
+可能这就是写女女关系性如呼吸一般<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 1400#       发表于 2024-12-3 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66830207&amp;ptid=2208921" target="_blank">LeonsCat 发表于 2024-12-3 11:56</a>
+
+女性偶像歌手的工作强度基本算特重体力劳动，要考虑是不是划为炉前工、井下作业等不适合女性的那种。而am ...</blockquote>
+這個就要看ave的設定上有沒有允許她們上節目了。
+
+基本上偶像最累的就是跑節目通告，不過這個討論下去就有點太現實了，還是回到動畫這邊……
+
+至少目前官方給的，初華是在兼任sumimi和ave mujica，既然是兼任那就沒有放置sumimi工作一說吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+而且你邦都是女超人 相信相信再相信 
+
+倒是初華真的很有可能會因兼任而累倒，這個也是之前很多樓友的猜測了<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  紫吹兰  
+##### 1401#       发表于 2024-12-3 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66830207&amp;ptid=2208921" target="_blank">LeonsCat 发表于 2024-12-3 11:56</a>
+
+女性偶像歌手的工作强度基本算特重体力劳动，要考虑是不是划为炉前工、井下作业等不适合女性的那种。而am ...</blockquote>
+sumimi没有解散，只是初华没空来了
+

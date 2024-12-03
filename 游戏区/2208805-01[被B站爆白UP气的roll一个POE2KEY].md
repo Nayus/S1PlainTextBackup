@@ -1640,3 +1640,11 @@ BD思路清奇，但是真的做不来关卡
 
 POE2本来挺想玩的，今天刷到个视频说没中文，连补丁都不给，那还玩个der啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ymz494  
+##### 174#       发表于 2024-12-3 16:12
+
+不能打中文补丁?
+

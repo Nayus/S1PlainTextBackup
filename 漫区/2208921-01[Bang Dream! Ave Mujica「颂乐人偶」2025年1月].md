@@ -15070,3 +15070,49 @@ the soul of ave mujica
 
 另外一点我觉得2nd mini al曲子的话题度和流行性不如1st mini，也可能有比较大的影响
 
+
+*****
+
+####  前方暴雨预警  
+##### 1448#       发表于 2024-12-3 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66831944&amp;ptid=2208921" target="_blank">御幸一也 发表于 2024-12-3 15:41</a>
+
+為什麼汴這個不是很懂</blockquote>
+因为总有啥正经东西都不看还喜欢嘴硬“我没错”的人啊
+
+本来**方方承认自己不了解鸡团设定搞错了就行，非得开始找理由“主唱怎么可能是主音，你邦的吉他主唱都是从来节奏吉他”，“给了那么多睦秀吉他技术的镜头，怎么可能她不是主音，契科夫之枪啊”，“三次元分part是节约水平的问题，动画不见得是这么设定的”，“哪个介绍里写了初华是主音”，“鸡团是双主音吧”
+
+……
+
+一想到动画开播后可能有这种人和我讨论，我就觉得前途一片黑暗啊
+
+*****
+
+####  太二EricGuo  
+##### 1449#       发表于 2024-12-3 16:11
+
+<img src="https://img.saraba1st.com/forum/202412/03/161143zqmvk2cbfctpvfkp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8426.jpeg</strong> (393.59 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-3 16:11 上传
+
+标题切割邦邦美国也干了
+
+
+*****
+
+####  星天观测  
+##### 1450#       发表于 2024-12-3 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66832226&amp;ptid=2208921" target="_blank">前方暴雨预警 发表于 2024-12-3 16:11</a>
+
+因为总有啥正经东西都不看还喜欢嘴硬“我没错”的人啊
+
+本来**方方承认自己不了解鸡团设定搞错了就行，非 ...</blockquote>
+动画开播后速回小团体报团取暖<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

@@ -1640,3 +1640,25 @@ b站的私信通知写了活动时间
 
 这种就是年度热词的小孩哥吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ffz  
+##### 1627#       发表于 2024-12-3 23:41
+
+听说有人倚老卖老，换个号上上
+
+*****
+
+####  杂灰  
+##### 1628#       发表于 2024-12-3 23:42
+
+乐，被扣个鹅就急着aoe的心理素质<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 1629#       发表于 2024-12-3 23:44
+
+祥爹gachi是不是太多了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

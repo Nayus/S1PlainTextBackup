@@ -1086,3 +1086,11 @@ You暗示Idol要拆开，所以应该是You and I do l***
 
 既然都这样了那让诸星堇来当q娃吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猫屋敷ゆき  
+##### 111#       发表于 2024-12-3 14:21
+
+茉优只可以成为我一个人的Idol<img src="https://static.saraba1st.com/image/smiley/animal2017/011.png" referrerpolicy="no-referrer">
+

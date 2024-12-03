@@ -14884,3 +14884,29 @@ mana：原来是从丰川家和父亲身边跑出来的丧家之犬啊，一边�
  ...</blockquote>
 不如相忘于江湖嘛？
 
+
+*****
+
+####  星天观测  
+##### 1434#       发表于 2024-12-3 14:21
+
+en官号对doloris的介绍，和日语版稍有不同
+
+0`B$N%~UEQFJ4I(XZ1~WW33_tmb.jpg
+(110.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-3 14:21 上传
+
+<img src="https://img.saraba1st.com/forum/202412/03/142120kadmrwabrrjn851z.jpg" referrerpolicy="no-referrer">
+
+1K0Y8$`5R~K19Z`{(3INN(J_tmb.png
+(756.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-3 14:21 上传
+
+<img src="https://img.saraba1st.com/forum/202412/03/142120yq22k9p6o4i9rxh2.png" referrerpolicy="no-referrer">
+

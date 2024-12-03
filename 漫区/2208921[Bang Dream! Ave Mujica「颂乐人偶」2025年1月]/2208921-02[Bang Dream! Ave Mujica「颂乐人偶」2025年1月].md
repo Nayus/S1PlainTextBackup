@@ -1092,3 +1092,64 @@ yb站不是看消息栏么 有中奖的话有通知的
 祥子虽然坚强 但她本身确实是易哭体质吧 
 哭了好几次了已经<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 1579#       发表于 2024-12-3 21:38
+
+哭包要成长的，等祥子不哭了就把祥嬷全杀了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+独角兽设下的最大悬疑就是嬷了大半部动画，突然撕皮说其实我是祥公<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  russianbear  
+##### 1580#       发表于 2024-12-3 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66832701&amp;ptid=2208921" target="_blank">Acatv 发表于 2024-12-3 17:02</a>
+
+二周目soyo：很简单，我成为（祥子）母亲就是了，说罢一把抓住祥爹，顷刻炼化
+
+—— 来自 鹅球 v3.1.90 ...</blockquote>
+20年日本还没改结婚年龄，soyo 16岁理论上是可以嫁给祥爹的（感觉是不错的二创素材，“前女友成了我的后妈”，而且soyo和祥妈确实挺像的）
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| PDQ4|-1|？|
+
+查看全部评分
+
+
+*****
+
+####  LeonsCat  
+##### 1581#       发表于 2024-12-3 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66834821&amp;ptid=2208921" target="_blank">russianbear 发表于 2024-12-3 21:39</a>
+
+20年日本还没改结婚年龄，soyo 16岁理论上是可以嫁给祥爹的（感觉是不错的二创素材，“前女友成了我的后 ...</blockquote>
+隔壁刚问了soyo妈这个白手起家的单亲妈妈得罪了某楼主啥，这回要问问soyo得罪了层主啥了。。。
+
+*****
+
+####  黑夜落叶秋天  
+##### 1582#       发表于 2024-12-3 21:43
+
+是总攻祥还是总受祥就看明年了
+
+*****
+
+####  PDQ4  
+##### 1583#       发表于 2024-12-3 21:44
+
+某些为了爆爆爆完全不考虑人设和逻辑的二创思路可以回应许之地讨论吗
+
+s1也没地方发神人二创吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

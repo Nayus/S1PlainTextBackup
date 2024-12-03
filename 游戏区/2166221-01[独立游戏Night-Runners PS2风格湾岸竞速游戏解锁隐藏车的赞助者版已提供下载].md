@@ -1114,3 +1114,32 @@ ABFLUG的Supra
 
 —— 來自 HUAWEI EVR-AL00, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Tnsbilws  
+##### 64#         楼主| 发表于 2024-12-3 11:38
+
+这个月第一个开发日志！
+
+EG6 R33GTR 和R32 GTST（包括四门） 以及JZX90 CHASER加入車单
+
+基本和我想象的差不多，后续应该就是R33GTS了
+
+<img src="https://img.saraba1st.com/forum/202412/03/113142huu0u5zmddvuy08u.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20241203113133.jpg</strong> (447.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-3 11:31 上传
+
+已确认車单：
+
+Nissan：S15，S14，S13<strong>\</strong>RPS13，R34 GTR<strong>\</strong>R34 GTT，R33 GTR，R32 GTR<strong>\</strong>R32 GTST<strong>（双门、四门）</strong>
+Toyota：AE86 Trueno<strong>\</strong>AE86 Levin，JZX100 MK2<strong>\</strong>JZX90 Chaser，Supra A80
+Porsche ：911 Type964<strong>\</strong>911<strong> </strong>Type930
+Honda：NSX NA1<strong>\</strong>NSX NA2，EK9<strong>\</strong>EM1<strong>\</strong>EG6
+Mazda：FD3S FC3S
+Mitsubishi：EVO7<strong>\</strong>EVO9
+

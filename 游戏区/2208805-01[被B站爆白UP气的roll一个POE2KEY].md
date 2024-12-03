@@ -1587,3 +1587,11 @@ dddd 里面的地下城是认真的吗？几乎完全没有设计 一条路几�
 不过暴雪游戏我还是玩过的，**暴白的司马嘴脸见得多了，司马暴白 ...</blockquote>
 你说的活该被踩是不是指某群体到处去暗黑论坛视频底下拉踩，结果被回踩一脚就应激了狂出视频拉踩真的是活活又该该呢。我的评价是先撩者贱呢<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  空虚澄璃色  
+##### 169#       发表于 2024-12-3 13:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">两个都不玩，我玩Last Epoch，提供离线服能叮达人bd个爽的游戏比两个强社交刷宝好玩多了，啥时候d4和poe2出离线版能叮达人再玩。
+

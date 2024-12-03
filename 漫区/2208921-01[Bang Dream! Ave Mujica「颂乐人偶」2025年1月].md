@@ -15116,3 +15116,40 @@ the soul of ave mujica
 本来**方方承认自己不了解鸡团设定搞错了就行，非 ...</blockquote>
 动画开播后速回小团体报团取暖<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 1451#       发表于 2024-12-3 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66832233&amp;ptid=2208921" target="_blank">太二EricGuo 发表于 2024-12-3 16:11</a>
+
+标题切割邦邦美国也干了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">標題直接『Ave Mujica - The Die is Cast - 』？
+
+*****
+
+####  哈曼的YY  
+##### 1452#       发表于 2024-12-3 16:31
+
+就算爽女士开了全图去打gank也没法改变祥老师无法同时顾及家庭和乐队的状况啊 难道真帮她养家
+
+所以还是那个问题 发生了什么让祥老师从没法参与c团到可以大操大办母鸡卡 只是打工赚到钱了？
+
+
+*****
+
+####  哈曼的YY  
+##### 1453#       发表于 2024-12-3 16:35
+
+The die is cast. 所以我们可以理解为“投掷出去的骰子已经没法改变”。The die is cast 通常多出现在文学作品中，口语中也使用这个表达来表示“木已成舟。已成定局，无法挽回。”等等含义。
+
+这什么神秘副标题 有剧透吗
+
+*****
+
+####  狮子咕  
+##### 1454#       发表于 2024-12-3 16:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">事到如今，只有阿瓦母鸡卡
+

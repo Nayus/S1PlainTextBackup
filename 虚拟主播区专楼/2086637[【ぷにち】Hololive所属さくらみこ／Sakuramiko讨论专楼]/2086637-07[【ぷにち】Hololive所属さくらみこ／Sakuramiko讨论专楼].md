@@ -17554,3 +17554,32 @@ holo楼有人发过了，就本身谣言是那个，然后网上有那种喜欢�
 
 原来是造谣miko胖那个，其实无所谓啦，看皮就好了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 10326#         楼主| 发表于 2024-12-3 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66831674&amp;ptid=2086637" target="_blank">zhssf 发表于 2024-12-3 15:06</a>
+
+原来是造谣miko胖那个，其实无所谓啦，看皮就好了</blockquote>
+不止是说体重的问题，本身这个谣言套了一个以前的网络neta来形容使得谣言变得非常恶毒，本身在没有任何证据的情况下凭空妄想来讨论女性的体重就不是什么光彩的事情，然后知道这是明显的谣言之后还有主播故意捡这个话题添油加醋加剧谣言扩散就是相当恶性的行为了，只能说在网上发这个谣言的人来诽谤中伤的目的确实达到了
+
+*****
+
+####  rs5621  
+##### 10327#       发表于 2024-12-3 16:37
+
+开示几个带节奏的杀鸡儆猴
+
+*****
+
+####  holoan  
+##### 10328#         楼主| 发表于 2024-12-3 16:39
+
+推特风向太分裂了，搜索miko相关关键词，一边是箱推粉大量转发昨天晚上的各种相关话题切片视频，高度一致地评价夸miko做人很好等等
+
+一边是外部各界吃瓜群众疯狂转发恶意谣言内容，谣言切片和切片被删除的事，说切片被删了这事实锤了
+
+真有意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

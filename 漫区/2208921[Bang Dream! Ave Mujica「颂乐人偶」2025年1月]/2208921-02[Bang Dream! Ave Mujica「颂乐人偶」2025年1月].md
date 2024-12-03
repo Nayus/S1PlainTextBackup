@@ -1976,3 +1976,30 @@ mortis为乐队的声音带来了更多的深度和神秘感，虽然她的演�
 
 ccc这真没群聊那有点尬住了<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  相坂君  
+##### 1657#       发表于 2024-12-4 02:23
+
+有群聊只有soyo说话，没群聊只有soyo来问……<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+*****
+
+####  贰臣  
+##### 1658#       发表于 2024-12-4 02:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">想了想，灯和立希都不像爱水群的人。至于私聊，立希和祥子不熟，灯平时应该也很少跟人在网上聊，睦那边本来就有交流该知道的都知道，确实在c团时期也只有soyo能做这个事了。
+
+*****
+
+####  skives10  
+##### 1659#       发表于 2024-12-4 02:25
+
+我觉得这不是群聊
+以soyo的情商和对祥子的感情
+如果在群聊里频繁问祥子什么时候来
+是一种上压力的行为 她不会这么干
+私聊询问更合理 
+后来灯离开后 soyo也是通过私聊联系的
+

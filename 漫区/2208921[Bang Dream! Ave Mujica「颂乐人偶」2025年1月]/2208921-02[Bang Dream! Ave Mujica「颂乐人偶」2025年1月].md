@@ -1499,3 +1499,37 @@ b站的私信通知写了活动时间
 还不如德林
 真没必要惦记
 
+
+*****
+
+####  LeonsCat  
+##### 1614#       发表于 2024-12-3 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66835200&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-3 22:20</a>
+
+既然提到祥爹了，我在说两句看不道德东西发现的
+
+祥爹安慰祥子的时候说的是自己会加油的</blockquote>
+因为一定要帮多利包饺子啊~~~邦邦世界怎么能有坏人呢。
+
+*****
+
+####  星天观测  
+##### 1615#       发表于 2024-12-3 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66834821&amp;ptid=2208921" target="_blank">russianbear 发表于 2024-12-3 21:39</a>
+
+20年日本还没改结婚年龄，soyo 16岁理论上是可以嫁给祥爹的（感觉是不错的二创素材，“前女友成了我的后妈 ...</blockquote>
+好有资历啊还活在十多年前，你不是纯良mmr那你是啥，z87么<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  russianbear  
+##### 1616#       发表于 2024-12-3 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66835309&amp;ptid=2208921" target="_blank">星天观测 发表于 2024-12-3 22:30</a>
+
+好有资历啊还活在十多年前，你不是纯良mmr那你是啥，z87么</blockquote>
+我开始上贴吧的时候TYMM还没满月，你不会以为所有人看动画都是为了对人物和CV发情吧
+

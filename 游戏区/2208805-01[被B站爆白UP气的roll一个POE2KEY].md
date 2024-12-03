@@ -1698,3 +1698,11 @@ POE2本来挺想玩的，今天刷到个视频说没中文，连补丁都不给�
 我看视频，说甚至不是不给打补丁的问题，是汉化者直接被官方/腾讯威胁警告说不准汉化 ...</blockquote>
 可以打汉化补丁，甚至已经做好了
 
+
+*****
+
+####  afer  
+##### 180#       发表于 2024-12-3 22:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">贵圈真乱，幸好我是暴黑
+

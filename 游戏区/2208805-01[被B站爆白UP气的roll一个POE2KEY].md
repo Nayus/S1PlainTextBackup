@@ -1687,3 +1687,14 @@ POE2本来挺想玩的，今天刷到个视频说没中文，连补丁都不给�
 那么怎么退钱</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不知道，我还没买，就是在观望语言问题
 
+
+*****
+
+####  突发性哮喘病患  
+##### 179#         楼主| 发表于 2024-12-3 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66832515&amp;ptid=2208805" target="_blank">はにん信者 发表于 2024-12-3 16:43</a>
+
+我看视频，说甚至不是不给打补丁的问题，是汉化者直接被官方/腾讯威胁警告说不准汉化 ...</blockquote>
+可以打汉化补丁，甚至已经做好了
+

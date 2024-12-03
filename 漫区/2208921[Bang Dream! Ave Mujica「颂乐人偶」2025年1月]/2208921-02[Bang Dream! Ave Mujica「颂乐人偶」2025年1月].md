@@ -1364,3 +1364,69 @@ b站的私信通知写了活动时间
 
 soyo在你眼里到底是什么啊？
 
+
+*****
+
+####  蜇灵  
+##### 1604#       发表于 2024-12-3 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66834417&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-3 20:42</a>
+2.13是个很好的日子
+
+祥子的心结原来推测是那种人类不信，现在看她所有的问题都可以归结为还没有走出那场葬 ...</blockquote>
+人偶确实非常有可能出问题，否则对不起pv里这么多镜头了，就是不知道会以什么方式
+
+*****
+
+####  御景  
+##### 1605#       发表于 2024-12-3 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66835029&amp;ptid=2208921" target="_blank">纯田まな 发表于 2024-12-3 22:02</a>
+
+想要疯狂幻想可以发隔壁百综，不过百综也不欢迎祥爹，你还是去邦多利怀孕吧发吧 ...</blockquote>
+孕吧也禁止，只能去紫吧
+
+*****
+
+####  silver鲤跃  
+##### 1606#       发表于 2024-12-3 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66835097&amp;ptid=2208921" target="_blank">御景 发表于 2024-12-3 22:08</a>
+
+孕吧也禁止，只能去紫吧</blockquote>
+梦想紫只会发纸片人|出去
+
+只能说串子努力一辈子比不过一句真情实感
+
+
+*****
+
+####  6030sylar  
+##### 1607#       发表于 2024-12-3 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66835056&amp;ptid=2208921" target="_blank">傘木希美 发表于 2024-12-3 22:05</a>
+
+b站的私信通知写了活动时间
+
+—— 来自 鹅球 v3.3.95-alpha</blockquote>
+谢，看到了
+
+*****
+
+####  御景  
+##### 1608#       发表于 2024-12-3 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66835109&amp;ptid=2208921" target="_blank">silver鲤跃 发表于 2024-12-3 22:09</a>
+
+梦想紫只会发纸片人|出去
+
+只能说串子努力一辈子比不过一句真情实感</blockquote>
+紫吧有人写过纸片人癔症文，圣代写的，吧务也不会删，紫吧的下限非常低
+
+*****
+
+####  蜇灵  
+##### 1609#       发表于 2024-12-3 22:14
+
+不是，你们讨论点正常的好吧，别扯那玩意了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

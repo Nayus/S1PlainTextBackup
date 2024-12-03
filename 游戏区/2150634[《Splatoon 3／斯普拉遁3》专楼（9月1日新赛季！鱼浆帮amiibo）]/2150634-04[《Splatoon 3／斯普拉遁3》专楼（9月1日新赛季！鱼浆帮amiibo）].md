@@ -115,3 +115,11 @@ egoist：摸鱼就是进攻吸引机，防守RPG，你们学会了吗
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Ryuuseigun  
+##### 5578#       发表于 2024-12-4 02:13
+
+说不定NS2首发阵容是喷3DX，现在这个喷3只算是个提前两年的付费不删档测试服<img src="https://static.saraba1st.com/image/smiley/face2017/189.png" referrerpolicy="no-referrer">
+

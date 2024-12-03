@@ -1958,3 +1958,21 @@ mortis为乐队的声音带来了更多的深度和神秘感，虽然她的演�
 
 这群聊怎么除了soyo没人说话呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  雨井绫  
+##### 1655#       发表于 2024-12-4 02:09
+
+ 本帖最后由 雨井绫 于 2024-12-4 02:14 编辑 
+
+记错了编辑。应该是群聊。
+另外看了下祥父的名字是清告。
+
+*****
+
+####  PDQ4  
+##### 1656#       发表于 2024-12-4 02:11
+
+ccc这真没群聊那有点尬住了<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+

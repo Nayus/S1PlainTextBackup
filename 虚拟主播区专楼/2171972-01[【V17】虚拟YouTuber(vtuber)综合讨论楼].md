@@ -248,3 +248,36 @@ VCRGTA3已知的部分情报（一些主播直播的时候透露的）
 
 跟通風口租一個場罷了，到時候週日還會有一個，但為什麼她是週五通風口是週六
 
+
+*****
+
+####  高等黑暗  
+##### 916#       发表于 2024-12-3 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66834673&amp;ptid=2171972" target="_blank">holoan 发表于 2024-12-3 21:18</a>
+
+感觉确实变得挺多了，应该准确说能改动的都改了，有一定的新鲜感
+
+就是基础系统还是沿用STGR就是了</blockquote>
+现在还没开大型 还是导入阶段 后面还说主要要进行黑帮之间的对抗 不知道具体做了什么改动
+
+大型据说全改了就没一个和STGR一样的 具体还要看是什么情况
+
+其实白市民的部分也改动挺大的 比如进货不再是虚空搓而是去农场什么的地方种地收集材料再制作了，可以说让白市民有了不少事情干不再是虚空等人扯淡了，说实话我觉得STGR也早该这么改了……
+
+*****
+
+####  holoan  
+##### 917#       发表于 2024-12-3 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66836001&amp;ptid=2171972" target="_blank">高等黑暗 发表于 2024-12-3 23:46</a>
+
+现在还没开大型 还是导入阶段 后面还说主要要进行黑帮之间的对抗 不知道具体做了什么改动
+
+大型据说全改了 ...</blockquote>
+大型全部更新的话，可以完全确定的是
+
+这版VCRGTA就是完全bug地狱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这两天光逛街都一大堆bug了
+

@@ -455,3 +455,31 @@ ice不用说中文都变回人形了，侧面解释钓鱼佬为啥离婚
 
 这集很像日剧啊
 
+
+*****
+
+####  Piano-Forest  
+##### 175#         楼主| 发表于 2024-12-4 00:22
+
+第10話「常宏と貴明」
+
+店長の町田が入院する。そこはかつて自分が余命宣告を受けた江田病院で、常宏の脳裏を久しぶりに病気の記憶が過る。さらにその翌日、常宏はひどい腹痛に襲われて…
+
+脚本：鈴木智尋
+
+絵コンテ：川尻健太郎、栗田新一
+
+演出：川尻健太郎
+
+演出補佐：尾形光洋
+
+総作画監督：谷口宏美
+
+作画監督：栗田新一
+<img src="https://p.sda1.dev/20/54eeda5f5f367a9e9d145a4531a98a62/10001.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/74d0350d7011e9142e77e144bb84c018/10002.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/189cebc4d008616ba7a34d8aa1b298fb/10003.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/371a514353b3be3e6c6ad34e09cc8d70/10004.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/95869aeb682ada6a9d2710d35fdf4ef1/10005.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/5edcbb98c1b7bfe34a27e414320d655f/10006.jpg" referrerpolicy="no-referrer">
+

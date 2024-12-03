@@ -1583,3 +1583,21 @@ b站的私信通知写了活动时间
 
 2024-12-3 22:45 上传
 
+
+*****
+
+####  Wondering  
+##### 1622#       发表于 2024-12-3 22:48
+
+说到十年老坛友，突然想起来呆呆兽原来已经被封四年了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  相坂君  
+##### 1623#       发表于 2024-12-3 22:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真可怜啊，时代在进步，脑子却没跟上
+
+过时的老尸不扔进坟里，在活蹦乱跳摆资历
+

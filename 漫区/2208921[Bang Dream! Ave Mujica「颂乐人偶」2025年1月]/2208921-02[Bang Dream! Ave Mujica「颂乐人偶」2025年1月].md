@@ -765,3 +765,19 @@ C团不是商业团呀。大象老师要大操大办商业live签正经合同的
 
 像命运石之门的sg线结局一样救赎就好了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives  
+##### 1557#       发表于 2024-12-3 20:17
+
+[https://x.com/guiuiuiui_/status/ ... fBwUWaJJEgl3mSfUp5g](https://x.com/guiuiuiui_/status/1863860318570766827?s=61&amp;t=R0KfBwUWaJJEgl3mSfUp5g)
+
+<img src="https://img.saraba1st.com/forum/202412/03/201658gnzrgtwgrfssxds1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3936.jpeg</strong> (861.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-3 20:16 上传
+

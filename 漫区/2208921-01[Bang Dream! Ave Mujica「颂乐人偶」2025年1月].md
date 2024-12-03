@@ -14626,3 +14626,53 @@ soyo开上帝视角对睦的意见不就更大了吗</blockquote>
 
 pp全员除了偶像工作外都有自己的活（彩彩伊芙打工，伊芙还兼三个社团，日菜学生会长，maya职业鼓手兼设备管理，千圣女演员超级大忙人更不用说），所以理论上只要剧情需要身兼多职根本不是问题，初华会不会影响sumimi工作全看编剧要不要写
 
+
+*****
+
+####  蜇灵  
+##### 1409#       发表于 2024-12-3 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66828754&amp;ptid=2208921" target="_blank">狮子咕 发表于 2024-12-3 09:25</a>
+回归动画本身的话，3个pv里的场景都在前三集的概率多高啊……好几个画面都在第一集钻出来了。可以盲猜第二 ...</blockquote>
+第三集就海边对峙，后面要演什么，我不敢想了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  蜇灵  
+##### 1410#       发表于 2024-12-3 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66828786&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-3 09:28</a>
+用小脑思考都知道初华看ccc八成只盯着祥子，灯唱了什么我都怀疑初华左耳朵进右耳朵出，自动生成纯钢琴伴奏 ...</blockquote>
+不是说第一集里面有祥子给初华打招呼的画面吗，这初华还有心思玩网我是不信的
+
+*****
+
+####  PDQ4  
+##### 1411#       发表于 2024-12-3 12:31
+
+爽姐动一下鸡狗都要抖三抖
+爽世厨怕制作组又玩春日影和下跪
+狗厨怕爽姐又一直追忆ccc被带节奏结束乐队
+鸡厨怕爽姐又来追着睦pua问祥子
+
+我们爽姐才是鸡狗的灵魂人物，一举一动都牵动着所有人的心神，这就是真正的荧幕女明星<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 1412#       发表于 2024-12-3 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66830508&amp;ptid=2208921" target="_blank">蜇灵 发表于 2024-12-3 12:28</a>
+第三集就海边对峙，后面要演什么，我不敢想了</blockquote>
+第三集就海边殉情，后面会演成什么样，根本不敢想
+
+
+*****
+
+####  蜇灵  
+##### 1413#       发表于 2024-12-3 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66828944&amp;ptid=2208921" target="_blank">狮子咕 发表于 2024-12-3 09:48</a>
+大猫老师把团都快玩炸了还怎么爱音位，以及爱音可是和主唱美帝的，真爱音位确实能在另一种角度让坛友爆炸（ ...</blockquote>
+等等，爱音和谁美帝？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

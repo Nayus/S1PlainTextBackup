@@ -16833,3 +16833,137 @@ EA487C0A626CFAE760B56986114137A2.jpg
 隆重公开Afterglow的十周年纪念服装主视觉图♪
 <img src="https://p.sda1.dev/20/ce34b1d51e609e201927ca863b1bb2c5/1733137404762.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  月島まりな  
+##### 26553#       发表于 2024-12-2 16:09
+
+<blockquote>12/14(土)開催
+
+🌹Roselia「Stille Nacht, Rosen Nacht」🌹
+
+機材調整を行い、見切れ席チケットの追加発売が決定しました📢
+
+⏰受付日時：12/3(火) 20:00～
+
+※先着発売
+
+※チケットの発売は本受付が最終となる予定です。</blockquote>
+第二次加开见切席了，然而鸡团A席还没卖完，令人感叹
+
+<img src="https://p.sda1.dev/20/055170c9b06902bc743cfbc6bf790d12/image.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SakuraのOrigami  
+##### 26554#       发表于 2024-12-2 16:50
+
+<img src="https://img.saraba1st.com/forum/202412/02/165055fl1cf41ukvgkyflx.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20241202164954.png</strong> (21.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-2 16:50 上传
+
+*****
+
+####  织部琴音  
+##### 26555#       发表于 2024-12-2 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66824336&amp;ptid=2159415" target="_blank">SakuraのOrigami 发表于 2024-12-2 16:50</a></blockquote>
+鸡狗对邦还是全员live?这下总该梅奔了吧
+
+*****
+
+####  SakuraのOrigami  
+##### 26556#       发表于 2024-12-2 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66824363&amp;ptid=2159415" target="_blank">织部琴音 发表于 2024-12-2 16:53</a>
+
+鸡狗对邦还是全员live?这下总该梅奔了吧</blockquote>
+不太清楚，没说具体哪个团
+
+*****
+
+####  织部琴音  
+##### 26557#       发表于 2024-12-2 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66824398&amp;ptid=2159415" target="_blank">SakuraのOrigami 发表于 2024-12-2 16:55</a>
+
+不太清楚，没说具体哪个团</blockquote>
+没写团感觉至少应该是个对邦或者拼盘
+
+*****
+
+####  雨井绫  
+##### 26558#       发表于 2024-12-2 16:59
+
+之前有小道消息说是明年二月上海东方体育中心，1w2张票。
+
+*****
+
+####  akiomn  
+##### 26559#       发表于 2024-12-2 17:12
+
+明年要来的话鸡应该是稳的，动画正播出或完结没多久的状态正好适合爆米
+
+*****
+
+####  ykyin09  
+##### 26560#       发表于 2024-12-2 17:37
+
+企划亚巡吧，跟之前拉拉一样
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  紫吹兰  
+##### 26561#         楼主| 发表于 2024-12-2 17:44
+
+ 本帖最后由 紫吹兰 于 2024-12-2 17:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66824443&amp;ptid=2159415" target="_blank">雨井绫 发表于 2024-12-2 16:59</a>
+
+之前有小道消息说是明年二月上海东方体育中心，1w2张票。</blockquote>
+1w2应该是梅奔常规容量，大拼盘应该1w2开两天或者1w8开一天都可以，这个容量应该最多两个团了，当然也可能鸡狗以外的老团带手游团主唱的拼盘，带上鸡狗这个容量有点少
+
+*****
+
+####  月島まりな  
+##### 26562#       发表于 2024-12-2 18:09
+
+反正现在是瞎猜时间，确切消息起码等半个月。万一真是全家桶呢？如果2月的话也不可能是鸡狗了
+现在看到说ppp和r组的都有
+之前ayasa也说蝶团明年会来中国的
+
+*****
+
+####  stygian  
+##### 26563#       发表于 2024-12-2 18:09
+
+感觉是大拼盘
+
+*****
+
+####  CyDiablo  
+##### 26564#       发表于 2024-12-2 19:05
+
+十年返璞归真<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+【BanG Dream! 企划十周年纪念】
+
+隆重公开Afterglow的十周年纪念服装主视觉图♪
+<img src="https://p.sda1.dev/20/ce34b1d51e609e201927ca863b1bb2c5/1733137404762.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  月島まりな  
+##### 26565#       发表于 2024-12-3 12:27
+
+国内联动保留环节：罗森店员闲鱼倒卖
+[https://www.xiaohongshu.com/disc ... 3b10000000008006b6c](https://www.xiaohongshu.com/discovery/item/674de3b10000000008006b6c)
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

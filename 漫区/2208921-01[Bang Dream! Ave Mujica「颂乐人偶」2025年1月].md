@@ -14970,3 +14970,40 @@ en官号对doloris的介绍，和日语版稍有不同
 还没看文本翻译，这个是真的吗</blockquote>
 这种一看就假好吧，你觉得那个时间点的soyo会说这么莫名其妙的肉麻话吗。看了下枪版画面，soyo最后一条是问她今天来不来（再前一条应该是「没事吧？」，勉强能看到个大丈夫），祥子没发出去的回复是道歉+马上过去。
 
+
+*****
+
+####  星天观测  
+##### 1439#       发表于 2024-12-3 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66831542&amp;ptid=2208921" target="_blank">桜庭千景 发表于 2024-12-3 14:50</a>
+
+很有意思啊，Doloris是Ave Mujica的灵魂
+
+在叠好两个已知前提（祥子是am核心，日英出现冲突以日文为准）</blockquote>
+初华的内容在第一集中并没有什么展开，除了开头加深了全肯定刻板印象+最后没有按着祥子的意思保持面具
+
+只能等后续内容来补充塑造
+
+不过祥子的那句：也多亏了初华，作为母鸡卡的台面，我认为没有比你更好的了
+
+也算是侧面提了一下初华在作词+主唱+主音令人满意吧
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 1440#       发表于 2024-12-3 15:10
+
+soyo开上帝视角的话在元和二年🐘爆了ccc之后出门喝雨水的timing打一波gank绝对应有尽有了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那个时候的🐘AT立场等于没有。
+
+
+*****
+
+####  yone0000  
+##### 1441#       发表于 2024-12-3 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66831699&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2024-12-3 15:10</a>
+
+soyo开上帝视角的话在元和二年🐘爆了ccc之后出门喝雨水的timing打一波gank绝对应有尽有了好吧那个时候的🐘A ...</blockquote>
+发挥MYGO短片中的妈妈力，就轻松拿下了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

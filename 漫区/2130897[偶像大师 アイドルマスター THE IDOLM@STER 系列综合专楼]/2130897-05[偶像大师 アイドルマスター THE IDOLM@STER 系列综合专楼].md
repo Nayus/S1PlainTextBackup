@@ -1315,3 +1315,126 @@ THE IDOLM[@ster](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=42350) 
 
 2024-12-2 22:24 上传
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 6734#       发表于 2024-12-1 11:22
+
+THE IDOLM[@ster](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=42350) 765 MILLIONSTARS First Time in **
+易恒泰有人上传了百万台湾场的场刊
+
+—— 来自 OnePlus PGKM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  wfhtony  
+##### 6735#       发表于 2024-12-1 19:09
+
+ 本帖最后由 wfhtony 于 2024-12-1 21:12 编辑 
+
+<img src="https://img.saraba1st.com/forum/202412/01/190944npd7ezdl0s5rdxst.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-12-01-19h08m46s544.png</strong> (1.17 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 19:09 上传
+
+今天有KOMINO。
+
+今天的消息环节没啥东西，基本上就是复读：
+
+・之前生放有说过的：纪念新广告播出，明天开始有最大10天的免费10连活动，期间为约一个季度。
+
+12号的学马仕生放会有关于小秦的新消息。（这个也是上次生放说过的）
+
+<img src="https://img.saraba1st.com/forum/202412/01/191506eiduik8lrrrn4klp.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-12-01-19h13m34s890.png</strong> (789 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-1 19:15 上传
+
+→ 今年份的学马仕LIVE结束，明年二月继续。
+
+接下来是12/14~15的EXPO了...
+
+[开演时间：昼场：15:12 (UTC+9) | 夜场：18:27 (UTC+9，＊注)]
+
+・Overture + 1st block<blockquote>[开演前注意事项 // 十王邦夫（CV.大冢明夫）、根绪亜纱里（CV.古贺葵）]（＊部分新录）
+
+[Overture:《DEBUT LIVE 初 TOUR -序曲-》 // Kijibato]
+
+01. 初 // 全员
+
+02. Campus mode!! // 全员
+
+→ 開場MC（MC①）</blockquote>
+・2nd block<blockquote>03. 白線 // 花岩香奈
+
+04. Wonder Scale // 伊藤舞音
+
+05. clumsy trick // 薄井友里
+
+→ MC②
+
+06. L.U.V // 薄井友里
+
+07. 日々、発見的ステップ！ // 伊藤舞音
+
+08. Wake up!! // 花岩香奈（＊2024年生日曲）
+
+→ MC③</blockquote>
+・3rd block + 安可<blockquote>09. キミとセミブルー // 全员
+
+10. 歌声は君いろ // 薄井友里（＊昼场）
+
+10. ときめきのソルフェージュ // 伊藤舞音（＊夜场）
+
+→ MC④
+
+11. Howling over the World // 全员（＊昼场）
+
+11. ミラクルナナウ(゜∀゜)！ // 全员（＊夜场）
+
+---安可---
+
+12. 冠菊 // 全员
+
+→ 安可MC
+
+13. 初 // 全员
+
+[终演后留言 // 十王邦夫（CV.大冢明夫）、根绪亜纱里（CV.古贺葵）]</blockquote>
+＊注：夜场的入口页延迟至18:05开始播放广告，且广告在页面上只放一轮。虽然实际推流还是推了第二轮广告。
+以下内容需要积分高于 500 才可浏览
+
+Resilio: BTV4VESDAMX263WC6MMSKL5WTMYCBCKXX
+
+*****
+
+####  oznark  
+##### 6736#       发表于 2024-12-2 22:24
+
+<img src="https://img.saraba1st.com/forum/202412/02/072422rs6gzsssnug7euhq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (470.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-2 22:24 上传
+
+*****
+
+####  斑驳的阴影  
+##### 6737#       发表于 2024-12-3 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66812708&amp;ptid=2130897" target="_blank">RhmBWT_Wu 发表于 2024-12-1 11:22</a>
+
+THE IDOLM@ster 765 MILLIONSTARS First Time in **
+
+易恒泰有人上传了百万台湾场的场刊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">多年前的回忆啊。。。
+

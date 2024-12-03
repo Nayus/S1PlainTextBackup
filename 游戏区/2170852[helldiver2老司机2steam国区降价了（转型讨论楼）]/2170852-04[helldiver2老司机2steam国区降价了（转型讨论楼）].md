@@ -58,3 +58,16 @@
 困难难度重甲太多，打起来十分吃力啊。 ...</blockquote>
 把无敌的铝热雷解锁就好多了
 
+
+*****
+
+####  赤井稻妻  
+##### 5552#       发表于 2024-12-3 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66820400&amp;ptid=2170852" target="_blank">sloorz 发表于 2024-12-2 10:02</a>
+
+入坑了，好玩。还是1代那个味道。
+
+困难难度重甲太多，打起来十分吃力啊。 ...</blockquote>
+早期解锁了无后坐力炮之后就没啥压力了，到了目前版本的无后坐力炮完全是朴实无华的强大
+

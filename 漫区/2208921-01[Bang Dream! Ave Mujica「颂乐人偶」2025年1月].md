@@ -14438,3 +14438,11 @@ image.png
 
 <img src="https://img.saraba1st.com/forum/202412/03/111501c7ui45t9i4pp9qwo.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 1390#       发表于 2024-12-3 11:16
+
+okok，已拉黑<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -17583,3 +17583,36 @@ holo楼有人发过了，就本身谣言是那个，然后网上有那种喜欢�
 
 真有意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  karastar  
+##### 10329#       发表于 2024-12-3 16:47
+
+holo黑一直很多没什么好奇怪的
+
+*****
+
+####  holoan  
+##### 10330#         楼主| 发表于 2024-12-3 17:22
+
+心理素质世界第一宇宙第一了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+今天刚把造谣切片删除，晚上就播烤肉（真烤肉还是游戏不知道）
+
+而且这几天的活动：
+
+会限：“爆食”（吃）
+
+推特：“爆食”（吃）
+
+麦当劳工商：纯碳水汉堡（吃）
+
+Liar's Bar（豚形象）
+
+烤火烤棉花糖（吃）
+
+烤肉（吃）
+
+你说本人在意谣言吗？各自理解吧
+

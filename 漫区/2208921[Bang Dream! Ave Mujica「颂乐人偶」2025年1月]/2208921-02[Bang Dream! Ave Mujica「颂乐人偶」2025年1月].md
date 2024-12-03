@@ -1751,3 +1751,33 @@ b站的私信通知写了活动时间
 
 —— 来自 vivo V2183A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  skives10  
+##### 1639#       发表于 2024-12-4 01:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66836678&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-4 00:52</a>
+干...干什么</blockquote>
+当然是killkiss了
+
+*****
+
+####  skives10  
+##### 1640#       发表于 2024-12-4 01:19
+
+ 本帖最后由 skives10 于 2024-12-4 01:20 编辑 
+<blockquote>rinku 发表于 2024-12-4 01:08
+看到有说第一集有祥子在退队前给soyo发消息请假的画面，是真的吗？</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202412/04/011845uulp7llhl7en7ouw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0638.jpeg</strong> (52.9 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-4 01:18 上传
+
+最上面祥子道歉？soyo说没关系？大概
+

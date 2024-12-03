@@ -14676,3 +14676,101 @@ pp全员除了偶像工作外都有自己的活（彩彩伊芙打工，伊芙还
 大猫老师把团都快玩炸了还怎么爱音位，以及爱音可是和主唱美帝的，真爱音位确实能在另一种角度让坛友爆炸（ ...</blockquote>
 等等，爱音和谁美帝？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oldgoat  
+##### 1414#       发表于 2024-12-3 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66830374&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-3 12:13</a>
+
+她还是不知道最好，不知道还能留一个念想，至少永远怀念
+
+知道了那就真的一地鸡毛，连过去的好都要变味了
+
+ ...</blockquote>
+最主要的问题，素知道了背景信息后祥在她心里绝对要从“恩断义绝的前朋友”变成“被自己背叛的朋友”，自己在mygo努力半天不但是无用功而且成了进一步推开祥的小丑（因为实在是不得法，跟祥的诉求南辕北辙）。以她那性格破防到自己走上绝路都有可能。当然，如果是祥亲自出手把她拉住那就另说。
+
+不过也同样是以她那性格，祥曝光绝对要引起她进一步注意和挖掘，让她完全不接触祥的那些信息也很难。
+
+*****
+
+####  蜇灵  
+##### 1415#       发表于 2024-12-3 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66829097&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-3 10:03</a>
+小睦偶我有提过双重人格假药，太捕风捉影了，这里就不提了</blockquote>
+结合砸书的镜头，搞不好真的有这种可能，表里人格之类的
+
+*****
+
+####  前方暴雨预警  
+##### 1416#       发表于 2024-12-3 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66830207&amp;ptid=2208921" target="_blank">LeonsCat 发表于 2024-12-3 11:56</a>
+
+女性偶像歌手的工作强度基本算特重体力劳动，要考虑是不是划为炉前工、井下作业等不适合女性的那种。而am ...</blockquote>
+你邦什么时候这么现实系了，在对JK能力的描写上完全就是超人系的吧。
+
+且不说前辈团大量双开三开同时还能兼顾学校生活，单看狗团，立希的作息按现实走分分钟猝死啊
+
+累还是不累，能不能兼顾过来完全看剧情需要
+
+*****
+
+####  蜇灵  
+##### 1417#       发表于 2024-12-3 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66829325&amp;ptid=2208921" target="_blank">66367749 发表于 2024-12-3 10:27</a>
+我之前就说别动画开播一看和心心念念的正反派ooc剧情不符嗷的一声疯掉，没想到才刚pv还没正式开播就有出 ...</blockquote>
+谁叫wsd把大家憋了一整年，不是管人痴胜似管人痴了，矛盾早就激化了，也不差这一点
+
+
+*****
+
+####  skives10  
+##### 1418#       发表于 2024-12-3 12:42
+
+初华绝对是体力怪物 区区双开不会有问题的 除非心态崩了
+最好来个追妻火葬场
+祥子在夜晚的海岛上追着初华跑体力不支倒下 被初华发现反过来抱住然后顺势抓住初华<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蜇灵  
+##### 1419#       发表于 2024-12-3 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66830170&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-3 11:52</a>
+哎牢素，曾经的双向奔赴
+现在的牢素如果用上帝视角看鸡团第一集的祥子过去部分，素食恐怕要破大防了 ...</blockquote>
+这算不算变相的抱憾终身<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 1420#       发表于 2024-12-3 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66830575&amp;ptid=2208921" target="_blank">oldgoat 发表于 2024-12-3 12:36</a>
+ 最主要的问题，素知道了背景信息后祥在她心里绝对要从“恩断义绝的前朋友”变成“被自己背叛的朋友”，自 ...</blockquote>
+爽姐要是有那个能力就不会一年找不到祥子还把所有事都搞砸了
+她挖掘东西的方式就是pua睦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+让爽世的知情度停留在祥子不是因为对c有意见才退出就足够，至于具体发生了什么，好奇心真的会害死猫的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狮子咕  
+##### 1421#       发表于 2024-12-3 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66830545&amp;ptid=2208921" target="_blank">蜇灵 发表于 2024-12-3 12:33</a>
+
+等等，爱音和谁美帝？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我指的是故事里爱音和灯（大概比起美帝更该说是官推？）……同人里的话因为故事本身爱灯已经没多少好塑造的了，热度确实是爱素
+
+*****
+
+####  蜇灵  
+##### 1422#       发表于 2024-12-3 12:45
+
+话说我其实有点没想明白mana这个角色在动画里面的定位，wsd的宣传总让我感觉她后面要搞个大的
+

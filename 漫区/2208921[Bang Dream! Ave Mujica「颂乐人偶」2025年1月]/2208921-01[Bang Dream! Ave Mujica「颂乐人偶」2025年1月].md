@@ -15400,3 +15400,36 @@ The die is cast这个是上次bushiroad expo鸡那边展台的标题啊，也是
 
 丰川祥子：mujica公司正在同时开发13个单机游戏
 
+
+*****
+
+####  akiomn  
+##### 1477#       发表于 2024-12-3 17:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">常看常新系列之13集喵梦还想着去睦家做客
+现在喵梦在鸡堕前是别想了
+
+*****
+
+####  哈曼的YY  
+##### 1478#       发表于 2024-12-3 17:10
+
+这13款里一定有可以操作鸡狗人物打怪的游戏罢
+
+
+*****
+
+####  Acatv  
+##### 1479#       发表于 2024-12-3 17:13
+
+大猫这个就很迷惑 想跟星二代搞好关系蹭流量 下一集就把人开盒了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+
+*****
+
+####  uhiuk  
+##### 1480#       发表于 2024-12-3 17:13
+
+上次看类似句式还是角色自述已经渡过了自己的卢比孔河。总感觉其中的命运意味很重，骰子已经掷下，开弓没有回头箭。
+

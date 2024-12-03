@@ -720,3 +720,48 @@ C团不是商业团呀。大象老师要大操大办商业live签正经合同的
 
 “想跟祥子在一起的梦想已经实现了”这句话这么早出现，甚至放在PV里，后面肯定会有对应
 
+
+*****
+
+####  傘木希美  
+##### 1552#       发表于 2024-12-3 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66834173&amp;ptid=2208921" target="_blank">[皆神孝介] 发表于 2024-12-3 20:04</a>
+是短信通知的，还是站内消息通知的？还是两边都有？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">我是10年大韭菜，b站里19点准时私信又通知了一遍
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.95-alpha
+
+*****
+
+####  贰臣  
+##### 1553#       发表于 2024-12-3 20:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">十年大会员最有用的一次，屋檐了
+
+
+*****
+
+####  silver鲤跃  
+##### 1554#       发表于 2024-12-3 20:12
+
+1不存在喵梦犯了之后不会再犯事的保证
+
+2睦头基本锁定的一个表亲为什么重要性一定就次于初华
+
+3为什么能够保证每一个片段出现问题的只有一个人
+
+*****
+
+####  狮子咕  
+##### 1555#       发表于 2024-12-3 20:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也不用太担心，不是最终访谈说觉得母鸡卡的结局很救赎来着吗
+
+*****
+
+####  skives10  
+##### 1556#       发表于 2024-12-3 20:15
+
+像命运石之门的sg线结局一样救赎就好了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

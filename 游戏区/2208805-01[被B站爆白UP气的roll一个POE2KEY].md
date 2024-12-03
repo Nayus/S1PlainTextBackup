@@ -1595,3 +1595,15 @@ dddd 里面的地下城是认真的吗？几乎完全没有设计 一条路几�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">两个都不玩，我玩Last Epoch，提供离线服能叮达人bd个爽的游戏比两个强社交刷宝好玩多了，啥时候d4和poe2出离线版能叮达人再玩。
 
+
+*****
+
+####  leafS  
+##### 170#       发表于 2024-12-3 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66830984&amp;ptid=2208805" target="_blank">空虚澄璃色 发表于 2024-12-3 13:37</a>
+两个都不玩，我玩Last Epoch，提供离线服能叮达人bd个爽的游戏比两个强社交刷宝好玩多了，啥时候d4和poe2出 ...</blockquote>
+最后纪元真好玩？刷腐化值是我觉得最恶心的方式，中间还整了个重开赛季。除了词条过滤器和词条锻造以外我真没觉得这游戏好在哪
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

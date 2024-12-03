@@ -14580,3 +14580,49 @@ sumimi没有解散，只是初华没空来了
 
 soyo开上帝视角对睦的意见不就更大了吗
 
+
+*****
+
+####  椎名真希  
+##### 1404#       发表于 2024-12-3 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66830383&amp;ptid=2208921" target="_blank">黑夜落叶秋天 发表于 2024-12-3 12:14</a>
+soyo开上帝视角对睦的意见不就更大了吗</blockquote>
+现在还没有给过睦的主视角呢，没有人知道她是在怎么想怎么行动的
+
+*****
+
+####  skives10  
+##### 1405#       发表于 2024-12-3 12:18
+
+我只希望独角兽可千万不要让soyo发狂<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蜇灵  
+##### 1406#       发表于 2024-12-3 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66828514&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-3 08:56</a>
+挺神秘的，搬的是mujica pv的考察
+
+希望下次营销号搬运的时候能记得把做分析的人的ID发出来而不是偷图把功 ...</blockquote>
+营销号能知道go就不错了，鸡友他们恐怕听都没听说过
+
+*****
+
+####  oldgoat  
+##### 1407#       发表于 2024-12-3 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66830383&amp;ptid=2208921" target="_blank">黑夜落叶秋天 发表于 2024-12-3 12:14</a>
+
+soyo开上帝视角对睦的意见不就更大了吗</blockquote>
+我觉得更可能是对自己意见更大吧。。。
+
+*****
+
+####  NODY  
+##### 1408#       发表于 2024-12-3 12:25
+
+pp全员除了偶像工作外都有自己的活（彩彩伊芙打工，伊芙还兼三个社团，日菜学生会长，maya职业鼓手兼设备管理，千圣女演员超级大忙人更不用说），所以理论上只要剧情需要身兼多职根本不是问题，初华会不会影响sumimi工作全看编剧要不要写
+

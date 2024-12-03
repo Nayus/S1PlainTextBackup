@@ -1110,3 +1110,15 @@ You暗示Idol要拆开，所以应该是You and I do l***
 
 2024-12-3 19:19 上传
 
+
+*****
+
+####  月夜凝雪  
+##### 113#       发表于 2024-12-3 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66833818&amp;ptid=2208663" target="_blank">jaewoongh_ 发表于 2024-12-3 19:19</a>
+竟然出B站收藏集了</blockquote>
+收藏集最坑了
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

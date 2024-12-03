@@ -447,3 +447,64 @@ C团不是商业团呀。大象老师要大操大办商业live签正经合同的
 
 不过这是邦世界，网上应该没那么大戾气
 
+
+*****
+
+####  6030sylar  
+##### 1525#       发表于 2024-12-3 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66833745&amp;ptid=2208921" target="_blank">贰臣 发表于 2024-12-3 19:10</a>
+有幸运漏油中b站的点映资格了吗说出来让我嫉妒一下</blockquote>
+我<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">祝我幸福
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  桜庭千景  
+##### 1526#       发表于 2024-12-3 19:32
+
+不是祥子怎么就又是皇帝又是暴君了？初睦无条件支持祥子是她要求的吗？日常训练和人员安排不是放权给海铃了？也就对大喵严格一点，问题是大喵不都是做的破坏假面乐队根基的行为？你换ykn或者chuchu来了大喵这么搞事不把她踹出去？
+
+*****
+
+####  Aendst  
+##### 1527#       发表于 2024-12-3 19:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说点不正经的，其实从ep1来看，制作组是有些角色虐恶趣味的
+
+祥子说出我只有avemujica了，基本意味着mujica出问题这一点只有伤人和更伤人的区别
+
+
+*****
+
+####  贰臣  
+##### 1528#       发表于 2024-12-3 19:35
+
+乐观点，我头像也说过类似的话，现在不也挺好的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 1529#       发表于 2024-12-3 19:35
+
+感觉前七集大概率就是祥子救火 
+用纸勉强糊上战舰
+第七集配合祥子现实生日214 直接炸穿<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 1530#       发表于 2024-12-3 19:37
+
+哎，我的ykn，已经读了几年大一了高中时期的黑历史还在被人记着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  收纳袋  
+##### 1531#       发表于 2024-12-3 19:37
+
+这下得等明年1月了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

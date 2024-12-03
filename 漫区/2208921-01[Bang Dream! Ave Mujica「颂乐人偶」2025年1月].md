@@ -14252,3 +14252,42 @@ pv里出现在小电视里的不只是睦，也有初华
 当成病来写的话，很多事情就必须严肃处理了，毕竟二偶要卖角色，不像一些推理作品主要是卖悬念
 睦至少在舞台上是可以稳定mortis状态的，这点基本上就排除掉所谓病理意义上的人格解离
 
+
+*****
+
+####  qjw114514  
+##### 1373#       发表于 2024-12-3 10:38
+
+想看最先安定下来的睦给劳心费力一整天的祥膝枕<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">看到狂暴睦的愿望已经实现了，现在想要看到姐系睦
+
+
+*****
+
+####  rikaren  
+##### 1374#       发表于 2024-12-3 10:41
+
+话说祥的钢琴和睦的芭蕾课，会有祥弹钢琴而睦在旁边跳舞的剧情吗？
+
+*****
+
+####  [皆神孝介]  
+##### 1375#       发表于 2024-12-3 10:42
+
+ 本帖最后由 [皆神孝介] 于 2024-12-3 10:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66829128&amp;ptid=2208921" target="_blank">rikaren 发表于 2024-12-3 10:06</a>
+
+那个白莲花的造谣源头我找到了，s1不能折叠不知道要不要把图发出来，只能说相当白莲花，另外那人成分是哭友 ...</blockquote>
+可以传图床，然后把图片链接放到代码里：
+
+例：
+ https://s2.loli.net/2024/12/03/deLmzOH7TA1xY4Z.png复制代码
+
+代码：  [code]图片链接[/ code] 复制代码去掉“/”和“c”之间的空格
+
+*****
+
+####  狮子咕  
+##### 1376#       发表于 2024-12-3 10:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现实世界里会动的水母确实精神状态堪忧
+

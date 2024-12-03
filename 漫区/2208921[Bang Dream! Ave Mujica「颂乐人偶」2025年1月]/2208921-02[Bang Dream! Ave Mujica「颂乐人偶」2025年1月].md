@@ -984,3 +984,57 @@ avemujica出大问题会引发祥子创伤也可能是一种“好不容易找�
 
 2024-12-3 20:59 上传
 
+
+*****
+
+####  my707776310  
+##### 1569#       发表于 2024-12-3 21:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">不行了,老登这个160亿实在太让人出脑了...睦是怎么做到看这群人因为这个扯头花还忍住不笑的..
+
+*****
+
+####  skives10  
+##### 1570#       发表于 2024-12-3 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66834514&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-3 20:57</a>
+我觉得最后可能会和c团有个对照，c团是祥子一手创立，但是一拖四祥子先炸了，其他四个没有挽回。母鸡卡应该 ...</blockquote>
+c团ver祥子在动画中有记录的操作：
+鼓励灯唱出了心灵的呐喊
+给soyo了一个温暖的家
+给立希改曲子
+
+感觉也会和母鸡卡动画里对喵梦海铃初华产生的影响形成一种呼应
+在她崩溃的时候
+大家反过来去拯救这个曾经支撑着她们的人
+也挺王道的
+
+
+*****
+
+####  6030sylar  
+##### 1571#       发表于 2024-12-3 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66834088&amp;ptid=2208921" target="_blank">傘木希美 发表于 2024-12-3 19:53</a>
+等下，活动时间19点到20点40，时间怎么这么长
+
+—— 来自 鹅球 v3.3.95-alpha</blockquote>
+哪里看具体时长？
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  [皆神孝介]  
+##### 1572#       发表于 2024-12-3 21:14
+
+晚上抬头看到这个，真的有点吓人<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202412/03/211429n4h3hqg0zhzqhcgq.png" referrerpolicy="no-referrer">
+
+<strong>5E42A3AB0AEE2439A5E4FF53AF4BB6B8.png</strong> (1.07 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-3 21:14 上传
+

@@ -17682,3 +17682,42 @@ miko伟大
 
 明年taiyaki也是2月跟火建联动直撞
 
+
+*****
+
+####  holoan  
+##### 10337#         楼主| 发表于 2024-12-3 21:03
+
+<img src="https://img.saraba1st.com/forum/202412/03/210237tahegpahee0u5has.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (63.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-3 21:02 上传
+
+<img src="https://img.saraba1st.com/forum/202412/03/210248jcfyucjavzvuf61f.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (73.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-3 21:02 上传
+
+[https://news.ntv.co.jp/category/ ... 87ab77fcefd1c3a8926](https://news.ntv.co.jp/category/life/bab4f1388efd487ab77fcefd1c3a8926)
+
+*****
+
+####  holoan  
+##### 10338#         楼主| 发表于 2024-12-3 21:05
+
+提到的推特
+
+<img src="https://img.saraba1st.com/forum/202412/03/210518t94ce1cfkpvccmvj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (43.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-3 21:05 上传
+

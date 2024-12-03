@@ -342,3 +342,12 @@ wo日，我还提前阵容，到跟前给忘了，现在还有柱子吗</blockqu
 
 这次90++可以不用自出C呆了，就是不知道自回体点数压力大不大，礼装该不该合掉，带活动礼装的话一宝兽尼就能打
 
+
+*****
+
+####  朝仓和美  
+##### 46837#       发表于 2024-12-3 08:20
+
+刷了点蛇皮，和没刷一样
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

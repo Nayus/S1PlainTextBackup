@@ -1625,3 +1625,18 @@ b站的私信通知写了活动时间
 
 查看全部评分
 
+
+*****
+
+####  akiomn  
+##### 1625#       发表于 2024-12-3 23:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png">神经，在邦邦里臆想个目前烂透的边缘角色，放哪个邦论坛都是被立马踢出去的弱智
+
+*****
+
+####  66367749  
+##### 1626#       发表于 2024-12-3 23:21
+
+这种就是年度热词的小孩哥吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -1828,3 +1828,44 @@ b站的私信通知写了活动时间
 
 mortis为乐队的声音带来了更多的深度和神秘感，虽然她的演奏风格并不突出，但她坚定不移的演奏是构筑ave mujica音乐的基石
 
+
+*****
+
+####  skives10  
+##### 1645#       发表于 2024-12-4 01:39
+
+初华：母鸡卡的灵魂
+睦：母鸡卡的基石
+
+*****
+
+####  玖羽  
+##### 1646#       发表于 2024-12-4 01:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66836839&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-4 01:19</a>
+
+最上面祥子道歉？soyo说没关系？大概</blockquote>
+综合了日语、英语和猜测之后是这样
+
+（历史信息）
+
+祥子 - 申し訳ありません、but I don't think that xxxxx（非常抱歉，今天不能来）
+
+そよ - 大丈夫？We're waiting for you（没关系吗？我们都在等你）
+
+（现在）
+
+そよ - 今日は来れそう？（今天能来吗？）
+
+（打字）
+
+祥子 - 今まで申し訳ありません。今日は行けますわ（之前实在抱歉，今天能来）
+
+
+*****
+
+####  贰臣  
+##### 1647#       发表于 2024-12-4 01:46
+
+话说怎么都是私聊，c团不会没有群吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

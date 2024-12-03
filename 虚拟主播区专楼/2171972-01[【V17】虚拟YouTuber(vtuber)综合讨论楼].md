@@ -281,3 +281,13 @@ VCRGTA3已知的部分情报（一些主播直播的时候透露的）
 
 这两天光逛街都一大堆bug了
 
+
+*****
+
+####  渡鸦骑士  
+##### 918#       发表于 2024-12-4 01:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66835381&amp;ptid=2171972" target="_blank">Devi_Lito 发表于 2024-12-3 22:37</a>
+兔头sololive怎么就选了个2k人的小场，还要跑到八王子去。。</blockquote>
+这场子不会是越开越小吧……
+

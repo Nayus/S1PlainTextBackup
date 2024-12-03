@@ -2385,3 +2385,16 @@ i don't think  please tell everyo
 
 直接用mujica自己的歌唱出来打动祥爹有什么问题，为什么非要春日影，前面已经给了两次祥爹没能去成祥子live的伏笔了（crychic和武道馆），也就是说祥爹本身就是压根没看过祥子live的状态，那么直接用mujica的歌打动祥爹已经足够回收这个伏笔了
 
+
+*****
+
+####  ardito  
+##### 1689#       发表于 2024-12-4 03:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66835545&amp;ptid=2208921" target="_blank">russianbear 发表于 2024-12-3 22:56</a>
+
+我心理素质还是比长期只在几个百合动画专楼里贴贴、把虚拟人物当成人生寄托的人强一点，不至于因为这点小 ...</blockquote>
+宁好，四十老登在动画讨论区里拿一个对女儿同龄人的意淫自吹自擂只能叫脸皮比较厚
+
+心理素质强不强就很难说，皮厚这点倒是非常符合ID相关群体给人的刻板印象<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

@@ -14774,3 +14774,42 @@ pp全员除了偶像工作外都有自己的活（彩彩伊芙打工，伊芙还
 
 话说我其实有点没想明白mana这个角色在动画里面的定位，wsd的宣传总让我感觉她后面要搞个大的
 
+
+*****
+
+####  PDQ4  
+##### 1423#       发表于 2024-12-3 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66830621&amp;ptid=2208921" target="_blank">蜇灵 发表于 2024-12-3 12:42</a>
+ 这算不算变相的抱憾终身</blockquote>
+爽姐会遗憾，但抱憾终生不会，有真家了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+c终究还是太短太滤镜了，寄托的更多是个人情感和期望
+
+*****
+
+####  狮子咕  
+##### 1424#       发表于 2024-12-3 12:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">甜甜圈女士目前看起来是在表现初华的口不对心吧，就是初华其实不怎么想和她一起玩这种态度（垫子）
+
+*****
+
+####  skives10  
+##### 1425#       发表于 2024-12-3 12:48
+
+mana也是两种方向吧 治愈初华的或者给祥子上道德压力的
+
+*****
+
+####  狮子咕  
+##### 1426#       发表于 2024-12-3 12:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“把初华还给我！”甜甜圈女士大叫一声把祥子从海边推了下去
+
+*****
+
+####  蜇灵  
+##### 1427#       发表于 2024-12-3 12:51
+
+我记得之前解包游戏是不是还有mana哭脸的表情来着，我没玩过游戏，后面有出现过吗
+

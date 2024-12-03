@@ -15007,3 +15007,20 @@ soyo开上帝视角的话在元和二年🐘爆了ccc之后出门喝雨水的tim
 soyo开上帝视角的话在元和二年🐘爆了ccc之后出门喝雨水的timing打一波gank绝对应有尽有了好吧那个时候的🐘A ...</blockquote>
 发挥MYGO短片中的妈妈力，就轻松拿下了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  前方暴雨预警  
+##### 1442#       发表于 2024-12-3 15:27
+
+这个lead guitar总算加上了，虽然我不明白这种但凡看一眼live影像就能分清的东西，居然还有围绕mujica的主音吉他谁是而汴京。
+
+*****
+
+####  星天观测  
+##### 1443#       发表于 2024-12-3 15:31
+
+那毕竟就是有人只看动画不看设定不看访谈的（访谈是什么cjb，我只信我喜欢的jpg）
+
+至于团名歌里的表演谁是lead其实也很明显，为什么还会汴京，这个我不予置评<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

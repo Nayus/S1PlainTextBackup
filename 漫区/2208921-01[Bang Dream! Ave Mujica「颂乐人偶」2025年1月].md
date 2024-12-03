@@ -15205,3 +15205,107 @@ Ave Mujica - The Die is Cast -
 
 大局已定就是没得变了
 
+
+*****
+
+####  Aendst  
+##### 1460#       发表于 2024-12-3 16:49
+
+我个人觉得这句里面无法回头的意味更多一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  杂灰  
+##### 1461#       发表于 2024-12-3 16:51
+
+骰子已然投下更适合吧，Mujica太洋屁了不适合配四字成语<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">而且表达的意思更接近赌博，赌局已经开始直到分出胜负为止都无法停下，随机得出的结果再怎么不满意也只能把赌局进行下去
+
+
+*****
+
+####  skives10  
+##### 1462#       发表于 2024-12-3 16:52
+
+又想提丰川祥子的霉逼体质了
+
+母亲去世后决定成立c团 拉来四个重女 c团解散给自己带来巨大精神伤害
+父亲暴雷后在家族和父亲之间选择了父亲 结果父亲酗酒不当人导致自己的生活被毁掉
+决定当面和soyo摊牌 走进live house 被春日影破防 精神伤害+1
+决定建立ave mujica 不知道支付了什么代价 第一集和pv就能看出来以后的荆棘之路 以及英文简介钦定的坠入深渊
+
+看她一路走来可真是<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  桜庭千景  
+##### 1463#       发表于 2024-12-3 16:53
+
+不是你们在说什么东西啊？
+
+The die is cast这个是上次bushiroad expo鸡那边展台的标题啊，也是鸡迷你专1st的标题（Alea jacta est，骰子已经掷下，原梗来自于凯撒渡卢比孔河时候的典故）的英文版
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 星天观测| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  Ronu  
+##### 1464#       发表于 2024-12-3 16:53
+
+“賽は投げられた”
+
+*****
+
+####  miomio123  
+##### 1465#       发表于 2024-12-3 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66832605&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-3 16:52</a>
+又想提丰川祥子的霉逼体质了
+
+母亲去世后决定成立c团 拉来四个重女 c团解散给自己带来巨大精神伤害</blockquote>
+这不全是加分项，越惨越爱<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2102J2SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  杂灰  
+##### 1466#       发表于 2024-12-3 16:55
+
+四个重女不好说，那个雨天干的最过分的是睦头啊，本来都还没开始重，睦头一句话给人爆出心病来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 1467#       发表于 2024-12-3 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66832591&amp;ptid=2208921" target="_blank">杂灰 发表于 2024-12-3 16:51</a>
+
+骰子已然投下更适合吧，Mujica太洋屁了不适合配四字成语而且表达的意思更接近赌博，赌局已经开始直到分出胜 ...</blockquote>
+日本人理解賽は投げられた这句话的话
+
+可能无法回头的意思是要远大于赌博的 <blockquote>どんな結果も受け入れる「人事を尽くして天命を待つ」後はどうなっても良い「あとは野となれ山となれ」
+
+「後戻りはできない」「やるしかない」といった状況で使うことを念頭に置きましょう。
+
+「運命に向かってことは進み始めたので、もはや引き返すことはできない、行くしかないのだ」という意味。</blockquote>
+搜了三个地方都是事已至此无法回头的意思更重
+
+*****
+
+####  skives10  
+##### 1468#       发表于 2024-12-3 16:56
+
+“The die is cast” 的意思是 事情已经无法改变，决定已成定局。这句话来源于古罗马将军尤利乌斯·凯撒在公元前49年跨越卢比孔河（Rubicon River）时所说的拉丁语名言 “Alea iacta est”。
+
+它常用来表示在做出重要决定后，结果已经无法挽回，必须承受其后果或继续前进。中文类似的表达有“覆水难收”或“箭在弦上，不得不发”。
+

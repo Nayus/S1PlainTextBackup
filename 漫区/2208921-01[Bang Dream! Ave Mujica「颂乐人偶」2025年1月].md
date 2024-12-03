@@ -14291,3 +14291,57 @@ pv里出现在小电视里的不只是睦，也有初华
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现实世界里会动的水母确实精神状态堪忧
 
+
+*****
+
+####  adcdqre  
+##### 1377#       发表于 2024-12-3 10:44
+
+ 本帖最后由 adcdqre 于 2024-12-3 10:47 编辑 
+
+好奇有人怎么做到不停发些搞笑内容还装作很受欢迎一直回帖的，就特别蠢又没有支教价值。看着像倒垃圾泥潭有些门槛是不是变低了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  PDQ4  
+##### 1378#       发表于 2024-12-3 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66829475&amp;ptid=2208921" target="_blank">rikaren 发表于 2024-12-3 10:41</a>
+ 话说祥的钢琴和睦的芭蕾课，会有祥弹钢琴而睦在旁边跳舞的剧情吗？</blockquote>
+四手联弹已经算半锤了，先做梦，万一成了呢<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Adyeshach  
+##### 1379#       发表于 2024-12-3 10:48
+
+我倒觉得这和是哪边的推无关，单纯是一些人觉得这种剧情会更“爆”，比如mygo第三集睦的笑也有了新解读，这个解读就是比较“利好鸡推”的。而初华写差评这种根本不用和人辩，把一个少女乐队的主唱写这么阴湿可以直接是独角兽打得有问题了，想想就知道不可能这么写。
+
+
+*****
+
+####  PDQ4  
+##### 1380#       发表于 2024-12-3 10:50
+
+看到漏u回复才发现是说祥子欠爽世债的那位，已经屏蔽了所以我看不见
+他有句话说得挺对的，看不下去确实可以拉黑<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 1381#       发表于 2024-12-3 10:53
+
+还是多关注剧情 少关注漏油吧 可以善用屏蔽<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

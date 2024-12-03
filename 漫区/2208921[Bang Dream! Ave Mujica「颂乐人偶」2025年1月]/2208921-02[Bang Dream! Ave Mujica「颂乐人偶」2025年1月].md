@@ -2398,3 +2398,37 @@ i don't think  please tell everyo
 
 心理素质强不强就很难说，皮厚这点倒是非常符合ID相关群体给人的刻板印象<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 1690#       发表于 2024-12-4 04:32
+
+ 本帖最后由 紫吹兰 于 2024-12-4 04:35 编辑 
+
+剧情能滑坡的地方多的是，但是滑坡的底线是不应该和明确描述的剧情有明显的冲突，而春日影的创作过程是有直接画面描述的。
+
+首先，这首歌它是先有的词再有的曲，祥子是以灯的歌词为出发点写的曲，而灯不可能为祥子的父母去写词
+
+<img src="https://img.saraba1st.com/forum/202412/04/042455vdfelkc1c8bfz66e.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20241204042256.png</strong> (133.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 04:24 上传
+
+其次，祥子看了词就表示这就是我们CCC的歌。
+
+<img src="https://img.saraba1st.com/forum/202412/04/042455pxh2n700585n4725.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20241204042212.png</strong> (118.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 04:24 上传
+
+所以剧中这里已经明确表示这就是以灯的歌词为出发点的属于CCC的歌曲，难道祥子会认为灯是为了祥子父母写的歌？
+
+那么除非祥子没和CCC的成员说实话，那么它就不可能是一首给父母的歌，而这时候的祥子有什么动机去撒谎？
+

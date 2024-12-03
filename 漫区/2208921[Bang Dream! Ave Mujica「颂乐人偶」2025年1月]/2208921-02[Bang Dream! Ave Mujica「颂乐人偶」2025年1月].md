@@ -2289,3 +2289,60 @@ i don't think  please tell everyo
 太吓人了</blockquote>
 豚豚寄予厚望的独角兽最终还是背叛了，有点太噩梦了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 1682#       发表于 2024-12-4 02:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我覺得樓友猜劇情的時候，好像沒考慮到這是一個2.5次元企劃，不是純動畫企劃。
+
+這不是角色為劇本服務的動畫，而是為了賣角色而寫的劇本。
+
+一切會踩角色的劇情應該都不太會發生，雖然武士道天天騷操作但這點是原則性問題吧。
+
+畢竟他最終目的還是賣角色賣團賺錢。<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 1683#       发表于 2024-12-4 02:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66837083&amp;ptid=2208921" target="_blank">玖羽 发表于 2024-12-4 02:44</a>
+从道理上说，这么大的一个伏笔肯定是要呼应的，不用在关键时刻就用在最后，如果你觉得用在关键时刻不妥， ...</blockquote>
+虽然没递出去的本子还等着出现，伏笔是伏笔，但是给mujica作词还是夸张了，这是在质疑初华的作词能力
+当然，假设有这样的剧情，那最后初海喵最后演奏完，台下都在听live的爱音和猫都会变成∶「天呐！这个词简直写进了心窝里，我这就退队，支持CRYCHIC复活！」
+鸡狗堂堂解散！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 1684#       发表于 2024-12-4 02:56
+
+ 本帖最后由 Aendst 于 2024-12-4 03:00 编辑 
+
+我觉得想给爹听春日影本质只是一个虚指的意向，也就是“音乐可以鼓舞人”
+
+这个东西的实质等同于在蝶那里看到的kirakira和鼓舞
+
+等同于可能有的儿时在妈妈那里感受到的鼓励和支持
+
+这当然可以由avemujica通过自己的歌完成
+
+甚至可以是四个人写给祥子的歌，五个人一起演奏出来
+
+虽然祥爹人设实在是太路人了完全想象不出来制作组真的不把他当路人的理由
+
+
+*****
+
+####  玖羽  
+##### 1685#       发表于 2024-12-4 03:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66837109&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-4 02:56</a>
+
+我觉得想给爹听春日影本质只是一个虚指的意向，也就是“音乐可以鼓舞人”
+
+等同于在蝶那里看到的kirakira和 ...</blockquote>
+也许是这样，第一话的某些情节也没有人能想到<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

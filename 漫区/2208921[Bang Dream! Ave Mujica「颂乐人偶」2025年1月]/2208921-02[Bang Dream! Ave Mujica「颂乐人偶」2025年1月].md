@@ -117,3 +117,73 @@ The die is cast. 所以我们可以理解为“投掷出去的骰子已经没法
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确实，本身就是若叶家干的，那大喵就美美隐身
 
+
+*****
+
+####  友情的结晶  
+##### 1495#       发表于 2024-12-3 18:18
+
+正好这边也在讨论我就再发一遍。<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">单论这个短语我觉得“骰子已掷”比标准的“大局已定，木已成舟”更符合本意一点。
+
+副标题“the die is cast”乃至它的出处—凯撒的“Alea iacta est”或者“iacta alea est”本身都强调赌或者不确定性的概念。alea的意思是涉及骰子乃至任何赌博、随机性的游戏。也有人认为凯撒说的是iacta alea esto，也就是let the die be cast，让骰子被掷下/让我们掷下骰子。
+
+对应在中文语境里应该指骰子已经或者将要被掷下，但结果还尚未可知的紧张时刻。我个人认为意象更偏向于以主动的姿态涉入未知的赌博/游戏，而不是木已成舟、覆水难收这种被动、无可奈何的态度。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Aendst  
+##### 1496#       发表于 2024-12-3 18:19
+
+ 本帖最后由 Aendst 于 2024-12-3 18:22 编辑 
+
+主要是这是日本动画日本企划，有些东西是有文化差和舶来语本土化泛用化的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+单论短语本身确实
+
+*****
+
+####  椎名真希  
+##### 1497#       发表于 2024-12-3 18:20
+
+不会的，就是喵梦自己腻了，开演之前她还直球怼祥子来着
+
+睦被摘面具之后非常惊慌，海玲估计是出现台本外的因素定身了，祥子和初华属于是应对及时没有出戏
+
+这种地方阴谋论没有意义，就是喵梦到武道馆之后飘了，想露脸给自己挣点流量
+
+*****
+
+####  skives10  
+##### 1498#       发表于 2024-12-3 18:22
+
+蛰毕竟是很多人的2024年度动画
+
+*****
+
+####  椎名真希  
+##### 1499#       发表于 2024-12-3 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66833362&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-3 18:22</a>
+
+蛰毕竟是很多人的2024年度动画</blockquote>
+？什么意思
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 1500#       发表于 2024-12-3 18:23
+
+还是那句话，一个木柜子小杨哥三梦奇缘能计划什么大阴谋啊
+
+
+*****
+
+####  友情的结晶  
+##### 1501#       发表于 2024-12-3 18:27
+
+无法回头、开弓没有回头箭也可以。主要是有一层结局未知的含义如果翻成覆水难收、木已成舟就几乎或者完全体现不出来<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

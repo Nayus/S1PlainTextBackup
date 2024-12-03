@@ -351,3 +351,13 @@ wo日，我还提前阵容，到跟前给忘了，现在还有柱子吗</blockqu
 刷了点蛇皮，和没刷一样
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shimotsuki14  
+##### 46838#       发表于 2024-12-3 18:20
+
+第三个完全跳过剧情的活动了
+柱子也没刷
+上午剧情打完搬商店拉倒
+

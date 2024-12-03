@@ -2003,3 +2003,125 @@ ccc这真没群聊那有点尬住了<img src="https://static.saraba1st.com/image
 私聊询问更合理 
 后来灯离开后 soyo也是通过私聊联系的
 
+
+*****
+
+####  玖羽  
+##### 1660#       发表于 2024-12-4 02:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66836967&amp;ptid=2208921" target="_blank">玖羽 发表于 2024-12-4 01:56</a>
+
+顺便，之前演出春日影时的短信是这样
+
+演出结束之后台下的初华向祥子招手
+
+祥子发现父亲没来，感到疑惑
+
+（短信）
+
+祥子 - 受付の方にxxxxx（你跟检票的说就行）（我跟Livehouse打过招呼了）
+
+祥父 - ありがとう、ぎりぎりになっ(て?) xxxxx 間に合いそうだ（谢谢，应该能勉强赶上）
+
+祥子 - xxxxx（很短，大概就是“知道了”）
+
+演出结束之后在后台
+
+祥父 - 没法跟你一起生活了，祝你幸福</blockquote>
+我突然想明白了，春日影也是祥子想唱给自己父母的<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer"> 
+
+我知道第13话的饺子该怎么包了，演春日影让祥父听（木谷高明说第13话他看了五遍）
+
+不然的话，给祥父演Ave Mujica的原创曲，逻辑上不太通（只能显示Ave Mujica成功了，但是Ave Mujica从第一话上武道馆就成功了）
+
+还有一种可能是用春日影把祥子拉回来，但是不太可能同一首歌用在两个重要的地方
+
+破防是春日影，拉回来也是春日影，未免有点刻意，把祥子拉回来用的应该是原创曲
+
+*****
+
+####  御幸一也  
+##### 1661#       发表于 2024-12-4 02:32
+
+ 本帖最后由 御幸一也 于 2024-12-4 02:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66837041&amp;ptid=2208921" target="_blank">玖羽 发表于 2024-12-4 02:29</a>
+
+我突然想明白了，春日影也是祥子想唱给自己父母的 
+
+我知道第13话的饺子该怎么包了，演春日影让祥父听（木 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">但這樣猜想，就是祥子想給父母的歌，被go團拿走了……？
+
+不會這樣寫吧
+
+*****
+
+####  相坂君  
+##### 1662#       发表于 2024-12-4 02:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66837037&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-4 02:25</a>
+我觉得这不是群聊
+以soyo的情商和对祥子的感情
+如果在群聊里频繁问祥子什么时候来</blockquote>
+是群聊，Line群组才会显示名字，私聊不显示ID
+这么说来，祥爹进局子的那天，soyo就是在群里问来不来，祥子没发出去的那句话，是发给CCC群组的
+
+*****
+
+####  PDQ4  
+##### 1663#       发表于 2024-12-4 02:33
+
+祥子说了春日影是写c的歌，现在是狗的歌（灯说春日影变了），怎么还能变
+
+春日影是什么曲中三姓家奴吗，太万能了吧春日影，怪不得立希听了找到活下去的意义<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 1664#       发表于 2024-12-4 02:33
+
+不是哥们
+就不能新写一首歌吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这下牢C要永远踩头mygo和mujica了
+
+
+*****
+
+####  skives10  
+##### 1665#       发表于 2024-12-4 02:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66837052&amp;ptid=2208921" target="_blank">相坂君 发表于 2024-12-4 02:32</a>
+是群聊，Line群组才会显示名字，私聊不显示ID
+这么说来，祥爹进局子的那天，soyo就是在群里问来不来，祥 ...</blockquote>
+看了一眼 还真是<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+我不想说c团的团结程度不如前期的mygo
+但这………
+
+*****
+
+####  PDQ4  
+##### 1666#       发表于 2024-12-4 02:37
+
+不过给爹曲子其实我不看好，因为祥爹祥子的心结明显都是祥妈
+
+如果有一首这样的曲子那也是送给妈的，恰好第一集有提到睦祥有要四手联弹一手祥妈最爱的曲子，我觉得如果有是改编这一首
+
+牢爹在电视机上听了泣不成声，爬起来把酒瓶打扫好出门就够了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 1667#       发表于 2024-12-4 02:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66837056&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-4 02:33</a>
+
+不是哥们
+
+就不能新写一首歌吗
+
+这下牢C要永远踩头mygo和mujica了</blockquote>
+因为这里是一个呼应，“之前没听到的春日影”
+
+祥父又不是ykn父，不会因为女儿的音乐成就感动，很难想象在他面啊演哪首Ave Mujica的原创曲就包饺子了
+
+灯“之前没接过来的笔记本”也是一个呼应，要么用在最后，要么用在把祥子拉回来（灯只提供歌词，演还是Ave Mujica演）
+

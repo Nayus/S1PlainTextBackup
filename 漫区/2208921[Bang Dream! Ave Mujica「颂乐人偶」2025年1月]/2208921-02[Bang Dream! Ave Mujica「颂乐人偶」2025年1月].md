@@ -1730,3 +1730,24 @@ b站的私信通知写了活动时间
 
 干...干什么<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rinku  
+##### 1637#       发表于 2024-12-4 01:08
+
+看到有说第一集有祥子在退队前给soyo发消息请假的画面，是真的吗？
+
+*****
+
+####  rushsong  
+##### 1638#       发表于 2024-12-4 01:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66835228&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-3 22:22</a>
+而且祥爹长得也没什么丰川祥子元素 很平庸
+还不如德林
+真没必要惦记</blockquote>
+我也不懂为什么不给她爹整的好看点，颜值高才好洗啊
+
+—— 来自 vivo V2183A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

@@ -1781,3 +1781,50 @@ b站的私信通知写了活动时间
 
 最上面祥子道歉？soyo说没关系？大概
 
+
+*****
+
+####  rinku  
+##### 1641#       发表于 2024-12-4 01:28
+
+ 本帖最后由 rinku 于 2024-12-4 01:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66836839&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-4 01:19</a>
+最上面祥子道歉？soyo说没关系？大概</blockquote>
+那素世为啥说完全没回复，立希为啥说等了好几天<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+画面有点糊，还是等正片出来再评价。但如果祥子事先告知过，我对立希就真的一点好感也没有了
+
+
+*****
+
+####  skives10  
+##### 1642#       发表于 2024-12-4 01:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66836886&amp;ptid=2208921" target="_blank">rinku 发表于 2024-12-4 01:28</a>
+那素世为啥说完全没回复，立希为啥说等了好几天
+画面有点糊，还是等正片出来再评价。但如果祥子事先告知 ...</blockquote>
+都是误会吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 1643#       发表于 2024-12-4 01:34
+
+英文官网更新睦的介绍
+
+<img src="https://img.saraba1st.com/forum/202412/04/013423svflf68sj6vq26s0.jpg" referrerpolicy="no-referrer">
+
+<strong>GdidKuvXkAEoNWF.jpg</strong> (300.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 01:34 上传
+
+*****
+
+####  NODY  
+##### 1644#       发表于 2024-12-4 01:36
+
+ 本帖最后由 NODY 于 2024-12-4 01:37 编辑 
+
+mortis为乐队的声音带来了更多的深度和神秘感，虽然她的演奏风格并不突出，但她坚定不移的演奏是构筑ave mujica音乐的基石
+

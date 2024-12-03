@@ -15047,3 +15047,26 @@ the soul of ave mujica
 
 主唱當然是樂團的靈魂<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  枫林不见  
+##### 1446#       发表于 2024-12-3 15:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">我只想看到初华把那祥子打跪在地，拖回去当OOO耶
+
+
+*****
+
+####  UNISONIA  
+##### 1447#       发表于 2024-12-3 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66829379&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-3 10:32</a>
+
+其实这就是我觉得太久的原因之一
+
+今年年初的时候mujicalive的热度相当高，而这个时候mygo也已经以线下活 ...</blockquote>
+网络热度最高肯定是去年1st mini al发售→前篇最终话播放后→0th LIVE影像公开那会儿，线下LIVE上个人感觉抽票难度是河口湖3rd&gt;神奈川2nd&gt;横须贺1st&gt;爱知2nd（比刺刺那边肯定要简单的多了，刺刺抽了几次给人抽emo了）。武蔵野4th出问题个人认为是因为这个场子可能对于鸡团的演出形式和体量来说还是有些大了……本土黑暗哥特乐团之前连DIR EN GREY、Lynch乃至更二次元一些的ALI PROJECT在巅峰期也都是坚持开的小场子，是因为这个风格的演出从音响效果和气氛来说最适合这种不大的场子
+
+另外一点我觉得2nd mini al曲子的话题度和流行性不如1st mini，也可能有比较大的影响
+

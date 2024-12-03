@@ -92,3 +92,20 @@ The die is cast. 所以我们可以理解为“投掷出去的骰子已经没法
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是喵梦交付人生后的任性了，若叶家大手来了祥子也得帮忙挡着，而且祥子也得想办法把爆了的睦拉回来
 至于第二次第三次？喵梦自个爆了被炎上了就先享受着吧，祥子虽然会帮但不代表会立马来帮
 
+
+*****
+
+####  银酒监武  
+##### 1492#       发表于 2024-12-3 17:50
+
+祥爹当时也是一样的梭哈吧？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+*****
+
+####  qjw114514  
+##### 1493#       发表于 2024-12-3 17:54
+
+万一喵梦背后就是若叶家的大手呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">女儿终于上台了，干脆推上一把
+

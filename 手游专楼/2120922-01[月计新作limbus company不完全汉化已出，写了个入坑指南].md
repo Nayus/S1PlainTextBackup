@@ -633,3 +633,14 @@ woc，边狱公司和明日方舟会在2025年双向联动！
 
 话说从血糖开始，赛季人格延后一周才能兑换，不急用的话就等等再抽吧，万一每日单抽能出呢...
 
+
+*****
+
+####  lls2388  
+##### 1003#       发表于 2024-12-4 09:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66832733&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2024-12-3 17:06</a>
+
+新三星预告来了，长发血魔唐，估计12.12实装：</blockquote>
+猜的很好，可惜直播的时候已经透底了，一技能有神父强化为鞭，二技能是剪刀，公主是防御技能伞，三技能是自己的长枪
+

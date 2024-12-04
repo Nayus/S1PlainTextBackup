@@ -1208,3 +1208,151 @@ G社高达来了！<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 人设和机设感觉是两个世界的。
 
+
+*****
+
+####  ads147147  
+##### 140#       发表于 2024-12-4 09:28
+
+ 本帖最后由 ads147147 于 2024-12-4 09:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66838040&amp;ptid=2209276" target="_blank">Rhantolk 发表于 2024-12-4 09:10</a>
+
+痞子不是自从新哥之后没一部行的吗，真能相信吗</blockquote>
+痞子说不定主要是来画机械作画和爆炸的，编剧这栏鬼知道他写什么剧本。（突然想到痞子的重心应该是在宇宙战舰大和号那边）
+
+反正鹤卷全责（不）
+
+*****
+
+####  Asukalangley33  
+##### 141#       发表于 2024-12-4 09:31
+
+要不是和贞本义行闹掰了，估计人设也安排上了
+竹的人设真不喜欢，话说锦织哥哥不行嘛？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+
+
+*****
+
+####  八佾舞于潭  
+##### 142#       发表于 2024-12-4 09:32
+
+竹可以说是人设界的yoasobi了吧
+
+*****
+
+####  aiyouo  
+##### 143#       发表于 2024-12-4 09:33
+
+这高达机设还不如风灵呢，不过pv里扎古还蛮帅的，所以说扎古的胶多会上啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  丹德里恩  
+##### 144#       发表于 2024-12-4 09:34
+
+这脑袋也太怪了，什么阿祖
+
+*****
+
+####  blckfyre  
+##### 145#       发表于 2024-12-4 09:34
+
+宝可梦高达<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6x6z6w  
+##### 146#       发表于 2024-12-4 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66838192&amp;ptid=2209276" target="_blank">魔灵高达 发表于 2024-12-4 09:24</a>
+
+拿斧头的高达，我喜欢
+
+—— 来自 鹅球 v3.1.91-alpha</blockquote>
+还有有光剑的，斧头应该不算默认配装
+
+<img src="https://img.saraba1st.com/forum/202412/04/093507kp9iphu7e380csqt.jpg" referrerpolicy="no-referrer">
+
+<strong>item_0000015234_2E0wYqXO_08.jpg</strong> (112.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 09:35 上传
+
+*****
+
+####  山之内花音  
+##### 147#       发表于 2024-12-4 09:35
+
+gqu6x就是高达吧，介绍说是最先进的神秘机体
+不过pv里面有一句话像是女主和蓝毛男在战场配合时说的，蓝毛估计开的也是高达，我前面的猜想应该是错的，大概率还是红毛女主和蓝毛男2v2，然后黑长直作为类似战队经理的看饮水机职务
+
+*****
+
+####  tony701  
+##### 148#       发表于 2024-12-4 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66837692&amp;ptid=2209276" target="_blank">创始’’’天翔 发表于 2024-12-3 16:33</a>
+
+看制作阵容基本都是khara，日升三组在干啥？不会也在憋新作吧</blockquote>
+日升已无可用之兵（确信
+
+*****
+
+####  缄默法则  
+##### 149#       发表于 2024-12-4 09:35
+
+泥潭明年的日活不愁了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stevenzero  
+##### 150#       发表于 2024-12-4 09:36
+
+昨晚看到一眼还以为是个ova实验动画什么的，居然是TV？
+
+*****
+
+####  姬茧墨  
+##### 151#       发表于 2024-12-4 09:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">虽然刚出觉得机设丑的一b，但过了一会勉强还是看顺眼了
+毕竟阵容是真不错，还是很期待的
+<img src="https://p.sda1.dev/20/f124e9ac71d3de8e923eca054bba5404/1733272806281.jpg" referrerpolicy="no-referrer">
+不过这个内裤套头还是太搞笑了
+
+—— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Toby_dak  
+##### 152#       发表于 2024-12-4 09:37
+
+シン・ガンダム
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  天宮奏  
+##### 153#       发表于 2024-12-4 09:37
+
+<blockquote>0aleph37 发表于 2024-12-4 08:46
+女主越看越像零崎舞织，短发针织帽，有战斗的才能
+
+PV最后瞳孔外轮廓的红圈是什么？跟中了鸡鸭死似的 ...</blockquote>
+男主很像年轻版本的零崎曲识
+
+开始零崎吧！
+
+*****
+
+####  拉达  
+##### 154#       发表于 2024-12-4 09:37
+
+这个阵容，信任!
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

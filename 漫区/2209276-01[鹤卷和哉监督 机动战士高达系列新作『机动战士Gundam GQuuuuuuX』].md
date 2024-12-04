@@ -4465,3 +4465,60 @@ PV还可以，机设有点潮哥
 
 这个世界观没有超展开我是不信的
 
+
+*****
+
+####  凡人  
+##### 482#       发表于 2024-12-4 12:43
+
+看了pv。感觉黑泽吼的是真不行，男主也是一副软绵绵的样子
+
+*****
+
+####  a317216007  
+##### 483#       发表于 2024-12-4 12:43
+
+现在代孙看来是觉得女高+高达才是系列的未来了么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.94-alpha
+
+*****
+
+####  哈尔摩尼亚N  
+##### 484#       发表于 2024-12-4 12:46
+
+明明竹小姐参与宝可梦之前就是这个画风，结果大家都只说像宝可梦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  evestart  
+##### 485#       发表于 2024-12-4 12:46
+
+希望是飞跃巅峰3，不是地球队长2
+
+希望是新哥斯拉，不是新假面骑士
+
+*****
+
+####  蕾洁之风  
+##### 486#       发表于 2024-12-4 12:47
+
+其实公开的机设加泄露的完全就是山下自己本来的风格，要是庵野参与度高的话肯定会改动不少
+
+*****
+
+####  岸波白野扎比子  
+##### 487#       发表于 2024-12-4 12:48
+
+我胡汉三又回来了<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Earendil_C  
+##### 488#       发表于 2024-12-4 12:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">pv 里面还有个 nt 感应，能不能致敬一下经典音效
+

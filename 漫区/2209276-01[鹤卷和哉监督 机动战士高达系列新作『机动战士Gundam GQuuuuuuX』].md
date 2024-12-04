@@ -5316,3 +5316,33 @@ AGE人设接受不了的人那纯属活的太久脱离群众（小友）了，AG
 
 —— 来自 Xiaomi 22127RK46C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  雨翼free  
+##### 569#       发表于 2024-12-4 15:18
+
+这主角机的嘴越看越像狗的牙套，不会到时候真能解除拘束开咬吧。顺便女主越看越可爱，我急了
+
+
+*****
+
+####  河名神鱼  
+##### 570#       发表于 2024-12-4 15:23
+
+呃呃 虽然机设丑，消费uc，有痞子，但还是先相信<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  molemole  
+##### 571#       发表于 2024-12-4 15:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">机设人设感觉都比水魔强，山下必秒
+
+*****
+
+####  molemole  
+##### 572#       发表于 2024-12-4 15:26
+
+不过玩具和建模的脑袋怎么做成现在这个样子了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

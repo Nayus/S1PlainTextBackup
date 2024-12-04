@@ -3080,3 +3080,21 @@ ykn爹这么正常在萝里最重要的戏份也就是肯定一下ykls的关系�
 
 想看爹戏份能不能先众筹让制作组紧急把人设改一下
 
+
+*****
+
+####  akiomn  
+##### 1751#       发表于 2024-12-4 11:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">扔啤酒罐那段没得洗了，不是朝着地上扔，而是朝着祥子方向扔过去，只是没砸到祥子
+
+*****
+
+####  椎名真希  
+##### 1752#       发表于 2024-12-4 11:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839941&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-4 11:44</a>
+扔啤酒罐那段没得洗了，不是朝着地上扔，而是朝着祥子方向扔过去，只是没砸到祥子 ...</blockquote>
+没砸到吗
+我现场看的感觉是砸到头了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+

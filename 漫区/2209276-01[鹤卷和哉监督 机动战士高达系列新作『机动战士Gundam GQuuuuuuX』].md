@@ -3784,3 +3784,81 @@ QQ图片20241204113334.jpg
 
 机动战士决斗？宝可梦战斗
 
+
+*****
+
+####  tony701  
+##### 411#       发表于 2024-12-4 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66838443&amp;ptid=2209276" target="_blank">ads147147 发表于 2024-12-3 17:43</a>
+
+日升代表作难道不是lovelive吗（包括拉胯的部分）</blockquote>
+合理，毕竟这年头谁还看机战啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sliurus  
+##### 412#       发表于 2024-12-4 11:37
+
+G高达是打擂台，这个更像打黑拳，大姐头给女主换宇航服的地方好像是公共厕所
+
+*****
+
+####  Rhantolk  
+##### 413#       发表于 2024-12-4 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839839&amp;ptid=2209276" target="_blank">二阶堂真琉 发表于 2024-12-4 11:34</a>
+
+山下敢达还是挺有新鲜感的，冲着鹤卷和山下看看8</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说实话感觉更像古立特
+
+*****
+
+####  山之内花音  
+##### 414#       发表于 2024-12-4 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839877&amp;ptid=2209276" target="_blank">Sliurus 发表于 2024-12-4 11:37</a>
+G高达是打擂台，这个更像打黑拳，大姐头给女主换宇航服的地方好像是公共厕所 ...</blockquote>
+设定上说了就是非法决斗
+
+*****
+
+####  oi99o  
+##### 415#       发表于 2024-12-4 11:40
+
+那个泄露的夏亚高达第一眼就想到了这个，而且也有红色版的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202412/04/114129eg7wwg5dreddztm4.png" referrerpolicy="no-referrer">
+
+<strong>{4D5F3EE4-EF87-40EB-B3C3-C6620BC6346A}.png</strong> (538.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 11:41 上传
+
+<img src="https://img.saraba1st.com/forum/202412/04/114024xsg3fe6g6vfinsso.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (30.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 11:40 上传
+
+*****
+
+####  ads147147  
+##### 416#       发表于 2024-12-4 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839839&amp;ptid=2209276" target="_blank">二阶堂真琉 发表于 2024-12-4 11:34</a>
+山下敢达还是挺有新鲜感的，冲着鹤卷和山下看看8</blockquote>
+山下的设计确实很不错，就这个鸡舍第一眼不行，看模型又可以，挺怪的。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  电波系腑海林  
+##### 417#       发表于 2024-12-4 11:42
+
+这两台机体是不是要光速出MR，感觉机设就是纯潮玩机设啊
+

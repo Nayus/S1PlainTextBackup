@@ -4666,3 +4666,98 @@ staff都阳痿了吗</blockquote>
 
 看热闹不嫌事大地说，应该再把后藤圭二或者明贵美加摇进来，这样所谓三大宅作的主创就集齐了
 
+
+*****
+
+####  patema  
+##### 506#       发表于 2024-12-4 13:25
+
+不是，这个机设一眼痞子没有深度参与。你们怎么一口一个痞子，是只认识痞子吗
+
+*****
+
+####  滴虫研究学家  
+##### 507#       发表于 2024-12-4 13:25
+
+这人设一点都不色啊哪里EVA了 啊啊啊啊啊
+
+*****
+
+####  patema  
+##### 508#       发表于 2024-12-4 13:27
+
+这机设很明显是山下自己的风格，他现在就是细狗+马脸+脸上贴相控阵+大量曲线+大量的工业细节
+
+*****
+
+####  滴虫研究学家  
+##### 509#       发表于 2024-12-4 13:29
+
+说明导演或者万代不能给出「正确」的指导意见的话，山下和山根画的也不比圆棒男的废案和刑部的正式稿来的漂亮<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  patema  
+##### 510#       发表于 2024-12-4 13:29
+
+<img src="https://img.saraba1st.com/forum/202412/04/132854pz4xi03hhtrvyiht.png" referrerpolicy="no-referrer">
+
+<strong>EAB9AA50CE027119B7BE65563D4A23C4.png</strong> (31.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 13:28 上传
+
+你觉得像eva吗？像就对辣<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">虽然我觉得其实更像尼尔瓦修
+
+*****
+
+####  云野十五  
+##### 511#       发表于 2024-12-4 13:29
+
+单纯看看丹瑜和乌栗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  patema  
+##### 512#       发表于 2024-12-4 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66840727&amp;ptid=2209276" target="_blank">滴虫研究学家 发表于 2024-12-4 13:29</a>
+
+说明导演或者万代不能给出「正确」的指导意见的话，山下和山根画的也不比圆棒男的废案和刑部的正式稿来的漂 ...</blockquote>
+山下其实以前几个同人逆鸭机体还是挺帅的，虽然y字天线牛高和扎古头山楂饼也不是不神人就是了
+
+*****
+
+####  AkaiSuisei  
+##### 513#       发表于 2024-12-4 13:31
+
+这玩意儿痞子铁没什么私货好吧，给你留一话玩玩顶天了
+
+真让痞子做就做成sin gundam了，指不定把什么UC008X年的破事儿给你翻出来拍一遍
+
+现在这个潮哥味儿估计又是万代高层跟鹤卷双向奔赴了
+
+*****
+
+####  好面子的懒虫  
+##### 514#       发表于 2024-12-4 13:32
+
+没私货？pv我都看见电线杆了，一定是私货！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  patema  
+##### 515#       发表于 2024-12-4 13:33
+
+<img src="https://img.saraba1st.com/forum/202412/04/133252kxw0xupuux54v9az.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>74C906E5ECA6E1BEEC309B67B5CFAEF8.webp</strong> (26.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 13:32 上传
+
+不过调亮图的红高达看得出腿部大修过了，应该脸也会修吧？
+

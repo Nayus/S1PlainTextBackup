@@ -4971,3 +4971,21 @@ riiki的问题显然是独角兽、柿本和制作人都不觉得有问题，而
 
 所以底边立希能吃吗
 
+
+*****
+
+####  NODY  
+##### 1930#       发表于 2024-12-4 23:47
+
+救人戏份确实好用啊，立希底边的原因，不就是因为无论救谁都轮不上她<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+她的任务只有负责把团开了拉仇恨，然后下线，等人救完了再回去凑个整
+
+
+*****
+
+####  [皆神孝介]  
+##### 1931#       发表于 2024-12-4 23:52
+
+立希不缺塑造吧，她缺是的高光事件，感觉在明年的动画里也没戏<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+

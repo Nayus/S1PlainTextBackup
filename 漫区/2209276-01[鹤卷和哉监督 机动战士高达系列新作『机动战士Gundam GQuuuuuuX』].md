@@ -1644,3 +1644,208 @@ PV开头没多句一句“正常人谁参加军团战”让我这个PMU小兵绷
 
 这机设是不是有点……太花里胡哨了
 
+
+*****
+
+####  沧海nog  
+##### 183#       发表于 2024-12-4 09:58
+
+这是什么在2025年感觉充满了翻车要素但是乐子不会少的阵容<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kisstv22  
+##### 184#       发表于 2024-12-4 09:58
+
+18年立项真的不是不看好没提前放出来么
+
+*****
+
+####  liekong  
+##### 185#       发表于 2024-12-4 10:00
+
+本作世界观是平行世界的宇宙世纪。
+
+该背景下的一年战争时期，夏亚破获联邦的开发计划抢走了高达，并涂上了自己喜欢的红色，人称「红高达」。战后夏亚与该机体一同下落不明，直至本篇故事开端，少年修二驾驶着该机体出现在女主面前。
+
+女主阿玛特驾驶的GQuuuuuuX为一年战争时期隶属于夏亚部队的MS，仅限新人类驾驶，开篇成了女主阿玛特的专用机。
+
+图3的浮游炮是修二驾驶的高达的浮游炮。
+
+<img src="https://img.saraba1st.com/forum/202412/04/095950r7lk6soiklzcnkfz.jpg" referrerpolicy="no-referrer">
+
+<strong>HG98SVW86Q~LAX5ON3}EOVP_tmb.jpg</strong> (34.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 09:59 上传
+
+<img src="https://img.saraba1st.com/forum/202412/04/095950a8wjynnsz6a7j2e1.jpg" referrerpolicy="no-referrer">
+
+<strong>C1PRO_VJP7EW[[XVHJG54)O_tmb.jpg</strong> (76.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 09:59 上传
+
+<img src="https://img.saraba1st.com/forum/202412/04/095951ixpaaeaqcqs3ey3e.jpg" referrerpolicy="no-referrer">
+
+<strong></strong> (155.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 09:59 上传
+
+-----------------
+
+Q群里看到的，不知真假，等开播验证了
+
+*****
+
+####  CyborgIP  
+##### 186#       发表于 2024-12-4 10:00
+
+又到了泥潭最爱的原创机战环节<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2324A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  雨翼free  
+##### 187#       发表于 2024-12-4 10:00
+
+2chan有人说这作是平行世界的宇宙世纪。这人昨天说今天公开khara高达<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  オルガピピック  
+##### 188#       发表于 2024-12-4 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66838559&amp;ptid=2209276" target="_blank">魔灵高达 发表于 2024-12-4 09:52</a>
+
+人设虽然一般，但至少比铁血那一系的好看，为啥不能把g复国的吉田建一拉来做人设，那个多好看
+
+—— 来自  ...</blockquote>
+同感 主要是竹这人设感觉也太偷懒了 都没近年画的宝可梦里的一半水准<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  evestart  
+##### 189#       发表于 2024-12-4 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66838479&amp;ptid=2209276" target="_blank">aiyouo 发表于 2024-12-4 09:45</a>
+
+这什么意思，男主驾驶的才是高达，现在放出胶的这个不是高达。狗代你是真的会营销，先放个丑的出来助助兴 ...</blockquote>
+不排除可能爆甲后里面藏了一台高达
+
+
+*****
+
+####  ccz  
+##### 190#       发表于 2024-12-4 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66837542&amp;ptid=2209276" target="_blank">Hyst3r1a 发表于 2024-12-4 08:11</a>
+
+驾驶舱还贴个猫猫头
+
+—— 来自 OPPO PHN110, Android 15上的 S1Next-鹅版 v2.5.4</blockquote>
+官网logo也是紫**猫头<img src="https://static.saraba1st.com/image/smiley/animal2017/011.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202412/04/100106bosknnf9x5ozfko8.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (10.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 10:01 上传
+
+*****
+
+####  中二小旋风  
+##### 191#       发表于 2024-12-4 10:02
+
+庵野的高达，真不看好
+
+*****
+
+####  cckuku  
+##### 192#       发表于 2024-12-4 10:03
+
+难道男主开的是红色元祖？元祖改改拿来当新机会不会太没诚意了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  leove25  
+##### 193#       发表于 2024-12-4 10:04
+
+看到阵容就追了，相信鹤卷！
+
+*****
+
+####  杂灰  
+##### 194#       发表于 2024-12-4 10:05
+
+不是很信任痞子
+
+*****
+
+####  污陨血红  
+##### 195#       发表于 2024-12-4 10:05
+
+<img src="https://img.saraba1st.com/forum/202412/04/100508pynrr519r58vv11k.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ19w-l3jlZdT1kShs-13a.jpg.thumb.jpg</strong> (47.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 10:05 上传
+
+<img src="https://img.saraba1st.com/forum/202412/04/100509z9nzo699df6nof36.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ19w-ji2yK2qT1kShs-13a.jpg.thumb.jpg</strong> (36.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 10:05 上传
+
+玩这么大？真的假的？
+
+什么高达版TNO
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蓝色有脚⑨倍速  
+##### 196#       发表于 2024-12-4 10:06
+
+我操 这不top3吗<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rhantolk  
+##### 197#       发表于 2024-12-4 10:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">太假了好吧，一眼钓姨姥
+
+*****
+
+####  g救世主高达  
+##### 198#       发表于 2024-12-4 10:07
+
+<blockquote>污陨血红 发表于 2024-12-4 10:05
+玩这么大？真的假的？
+
+什么高达版TNO</blockquote>
+不就是if线的夏亚专属78，看来这是gto和雷霆宙域之后的第三个uc平行世界动画化了
+
+*****
+
+####  HighTouch  
+##### 199#       发表于 2024-12-4 10:08
+
+uc世界观
+
+ms格斗竞技？
+
+这俩加一起怎么感觉不搭呢
+

@@ -7296,3 +7296,23 @@ uc本来就是最神棍的，除了00人均神棍以外，雷霆宙域一破元�
 
 然后现在再加上神棍力，打黑拳应该是单方面虐杀才对。
 
+
+*****
+
+####  saturnus  
+##### 771#       发表于 2024-12-4 22:29
+
+痞子和日升合作，这个想法很多年前大家都yy过吧，现在资本终于实现大家梦想了，不也挺好<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 772#       发表于 2024-12-4 22:29
+
+<blockquote>引用第757楼电波系腑海林于2024-12-04 21:47发表的  :
+
+夏亚不找扎比家报仇了吗，感觉这个世界线骡子是彻底败给夏亚了，以及UC那一大堆人物应该都不会登场。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有可能骡子都没跟夏亚打过就被踩死了
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.38)
+

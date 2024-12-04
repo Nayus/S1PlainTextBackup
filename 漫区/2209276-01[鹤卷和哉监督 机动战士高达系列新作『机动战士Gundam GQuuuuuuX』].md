@@ -5528,3 +5528,34 @@ AGE人设接受不了的人那纯属活的太久脱离群众（小友）了，AG
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  windaria  
+##### 592#       发表于 2024-12-4 16:17
+
+所以这个就是G高达30周年的庆祝作品吗？G高达精神续作顺便GVG动画化？
+
+
+*****
+
+####  RedSpecial  
+##### 593#       发表于 2024-12-4 16:22
+
+只有姨姥觉得水魔失败了吧
+
+*****
+
+####  蓝色有脚⑨倍速  
+##### 594#       发表于 2024-12-4 16:24
+
+警察 + 字体设计 -&gt; 暴
+
+<img src="https://img.saraba1st.com/forum/202412/04/162252hjc1ta66gga0ccbz.png" referrerpolicy="no-referrer">
+
+<strong>Gd6vj7-bIAAHEJB.png</strong> (240.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 16:22 上传
+

@@ -3574,3 +3574,11 @@ ykn爹这么正常在萝里最重要的戏份也就是肯定一下ykls的关系�
 
 一定要用自己不了解的东西来试图获得认同吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 1794#       发表于 2024-12-4 16:17
+
+祥爹拿的明显是初设沙绫爹的模板（连乐队是命运共同体都是初设沙绫说的），怎么能传成ykn爹的，ykn爹只是心灰意冷不玩乐队，没有落魄也没有不工作，名气还大着呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

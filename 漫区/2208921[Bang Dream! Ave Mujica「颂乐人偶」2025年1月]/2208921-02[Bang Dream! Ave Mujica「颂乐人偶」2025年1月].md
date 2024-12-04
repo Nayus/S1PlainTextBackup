@@ -3418,3 +3418,21 @@ ykn爹这么正常在萝里最重要的戏份也就是肯定一下ykls的关系�
 
 我是觉得第一集这个意思就是让爹退场别在后面的剧情出来了，结局可能连脸都不会漏，给祥子发一句我开始工作了之类的表明已经不摆烂就完事了。
 
+
+*****
+
+####  Jobtownb  
+##### 1779#       发表于 2024-12-4 13:54
+
+小睦要坏掉了
+
+<img src="https://img.saraba1st.com/forum/202412/04/135401sdhzcv9hq7em9c0k.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_3658.JPG</strong> (894.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 13:54 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

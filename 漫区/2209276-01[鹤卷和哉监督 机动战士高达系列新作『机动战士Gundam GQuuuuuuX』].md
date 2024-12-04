@@ -4838,3 +4838,136 @@ staff都阳痿了吗</blockquote>
 
 机设看着像尼尔瓦修+马克刀
 
+
+*****
+
+####  VictorWJ  
+##### 525#       发表于 2024-12-4 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66838985&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2024-12-4 10:26</a>
+『機動戦士Gundam GQuuuuuuX（ジークアクス）-Beginning-』</blockquote>
+有没有人数数自从f91之后代便说过几个beginning了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  阿萨托斯  
+##### 526#       发表于 2024-12-4 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66840512&amp;ptid=2209276" target="_blank">滴虫研究学家 发表于 2024-12-4 12:55</a>
+
+我随便问问哈，说是EVA可为什么人设完全没有eva那么色？
+
+staff都阳痿了吗</blockquote>
+EVA旧版人设贞本义行，新版人设锦织敦史
+
+这个人设是找了刀语和宝可梦朱紫的人设竹（女性）做的
+
+竹的角色就没有能让人感觉涩的
+
+*****
+
+####  Zestiria114514  
+##### 527#       发表于 2024-12-4 13:58
+
+<img src="https://img.saraba1st.com/forum/202412/04/135805i5o0tu3pjut3t1o5.jpg" referrerpolicy="no-referrer">
+
+<strong>01.jpg</strong> (316.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 13:58 上传
+
+<img src="https://img.saraba1st.com/forum/202412/04/135812nfmr9k0xym6sw99o.jpg" referrerpolicy="no-referrer">
+
+<strong>02.jpg</strong> (341.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 13:58 上传
+
+<img src="https://img.saraba1st.com/forum/202412/04/135813sm56au54s99z9thy.jpg" referrerpolicy="no-referrer">
+
+<strong>03.jpg</strong> (389.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 13:58 上传
+
+*****
+
+####  lolikonh  
+##### 528#       发表于 2024-12-4 13:59
+
+这肩甲做的跟插入柱一样 何意啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  花咲茜  
+##### 529#       发表于 2024-12-4 14:00
+
+字符怪里怪气的，但ジークアクス这个名字让人觉得很微妙，加上一个字如何？
+
+
+*****
+
+####  中野梓  
+##### 530#       发表于 2024-12-4 14:00
+
+<blockquote>Zestiria114514 发表于 2024-12-4 13:58
+</blockquote>
+有意思！
+
+*****
+
+####  蓝色有脚⑨倍速  
+##### 531#       发表于 2024-12-4 14:00
+
+Core Fighter
+
+<img src="https://img.saraba1st.com/forum/202412/04/140014l16sk1nonnivsb1d.jpg" referrerpolicy="no-referrer">
+
+<strong>Gd610CbbIAAXo5K.jpg</strong> (64.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 14:00 上传
+
+<img src="https://img.saraba1st.com/forum/202412/04/140014d4fnge4pezappgfz.jpg" referrerpolicy="no-referrer">
+
+<strong>Gd62LTja0AM1At2.jpg</strong> (57.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 14:00 上传
+
+*****
+
+####  没取名啊  
+##### 532#       发表于 2024-12-4 14:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66840917&amp;ptid=2209276" target="_blank">阿萨托斯 发表于 2024-12-4 13:56</a>
+EVA旧版人设贞本义行，新版人设锦织敦史
+
+这个人设是找了刀语和宝可梦朱紫的人设竹（女性）做的</blockquote>
+宝可梦的露莎米奈有话要说
+
+*****
+
+####  liy30dlys  
+##### 533#       发表于 2024-12-4 14:02
+
+虽然说是放开给其他团队来做
+
+咋命题还是双主角开高达打架的样子
+
+哪怕是换成打怪兽呢。。。。。
+
+*****
+
+####  朋友费小号  
+##### 534#       发表于 2024-12-4 14:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">前面那个红高达真别是真的，或者端上来之前改改吧。不然我要飞一些人的妈了。
+

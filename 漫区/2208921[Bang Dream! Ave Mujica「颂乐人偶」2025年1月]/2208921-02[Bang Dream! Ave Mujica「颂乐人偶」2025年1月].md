@@ -4873,3 +4873,14 @@ ps:其实猫的问题主要还是她是空降旧案，鸡这边目前是不知�
 狗剧场版按访谈说法，做了10集就觉得做的差不多了，那么可以把11和12看成后日谈，13引出鸡，另外狗篇有个问题是得引出c团起源，鸡团这些角色出场，祥子是暗线
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然你问我为什么不把狗篇为什么不拿多点篇幅塑造立希……只能说独角兽和柿本故意的吧，这帮人全干了，就喜欢迫害立希
 
+
+*****
+
+####  luciferion  
+##### 1921#       发表于 2024-12-4 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66845639&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-4 23:01</a>
+
+狗剧场版按访谈说法，做了10集就觉得做的差不多了，那么可以把11和12看成后日谈，13引出鸡，另外狗篇有个问 ...</blockquote>
+rikki这种人设太传统了，认真劣等感黑长直什么的，搁机战片场都是常见角色，就是那种照本宣科水平不错的量产机队长，遇到刺头天才特装机主角一开始有意见然后佩服得不行自闭了又走出来之类的套路，实在是不新鲜<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

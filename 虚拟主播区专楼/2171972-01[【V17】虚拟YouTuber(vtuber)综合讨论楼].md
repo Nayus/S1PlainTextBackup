@@ -341,3 +341,12 @@ VCRGTA3已知的部分情报（一些主播直播的时候透露的）
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">反正解約月之是當成喜報在報的，要不是解約了也搞不了她想弄的特典遊戲
 
+
+*****
+
+####  渡鸦骑士  
+##### 924#       发表于 2024-12-4 23:16
+
+才刷到，react居然被17live收购了……
+混得也太惨了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

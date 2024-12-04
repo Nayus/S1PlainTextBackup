@@ -8006,3 +8006,15 @@ G-Q6uX越看越顺眼了，坏了<img src="https://static.saraba1st.com/image/sm
 
 到底是什么平行宇宙才能把五年前还是战场上最新锐的一线空军装备在战后直接拉到民间打黑拳
 
+
+*****
+
+####  法拉  
+##### 849#       发表于 2024-12-5 01:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66846372&amp;ptid=2209276" target="_blank">AkaiSuisei 发表于 2024-12-5 01:33</a>
+到底是什么平行宇宙才能把五年前还是战场上最新锐的一线空军装备在战后直接拉到民间打黑拳 ...</blockquote>
+考虑到杰多开着z高达捡过垃圾，好像也不是特别离谱
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

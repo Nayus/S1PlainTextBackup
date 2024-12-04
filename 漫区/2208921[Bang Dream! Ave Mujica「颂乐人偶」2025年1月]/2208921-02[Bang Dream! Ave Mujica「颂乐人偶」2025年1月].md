@@ -3026,3 +3026,57 @@ $P`N]D%Z{D$HBE)159U@{3L.jpg
 
 祥子爹是标准“人间失格”的那种，对标的是相合之物里一果祖父那种，往下一步得是EF里优子的哥哥，骂一句“生物爹”毫不为过。ykn父亲可负责多了，最多是当年有过一些创伤。
 
+
+*****
+
+####  LeonsCat  
+##### 1747#       发表于 2024-12-4 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839142&amp;ptid=2208921" target="_blank">御幸一也 发表于 2024-12-4 10:38</a>
+
+說到武道館最速，就看了一下武道館wiki寫的歷史，現實比動畫還要快，雖然是站在了企劃肩膀上的 
+
+只論主流出 ...</blockquote>
+出道和主流出道两码事，再往前还有刷地下名望的时间。并且出道定义也各自不同。
+
+比如J家混出来的，别说主流出道了，出道前恐怕都已经是当红炸子鸡了。隔壁X团，那是林佳树在地下刷满了声望，接下来十个月实力速通武道馆——但是大家都知道把84年到90年这段考虑进来。
+
+*****
+
+####  星天观测  
+##### 1748#       发表于 2024-12-4 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839758&amp;ptid=2208921" target="_blank">悲伤颂偶 发表于 2024-12-4 11:26</a>
+
+谁拍的照？</blockquote>
+或许是米泽吧（盲猜）<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
+*****
+
+####  贰臣  
+##### 1749#       发表于 2024-12-4 11:33
+
+ykn爹这么正常在萝里最重要的戏份也就是肯定一下ykls的关系，没道理酒鬼爹这种垃圾反而占更多戏份的，到底哪来的漏油这么爱那个fw爹啊，想看失意中年男崛起出门左转看隔壁异世界穿越轻改不好吗来看什么少女乐队<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 星天观测| + 1|欢乐多|
+
+查看全部评分
+
+
+*****
+
+####  Aendst  
+##### 1750#       发表于 2024-12-4 11:35
+
+想看爹戏份能不能先众筹让制作组紧急把人设改一下
+

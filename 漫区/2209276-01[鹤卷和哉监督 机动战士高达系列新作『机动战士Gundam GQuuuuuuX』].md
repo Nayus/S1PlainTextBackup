@@ -3664,3 +3664,123 @@ khara不是痞子的公司吗，痞子对这作的影响怎么可能摘干净。
 不是先不说痞子八成就是挂名，他这人怎么可能拍板弄成这样，三个新电影什么造型你们又不是没见过，明显是鹤 ...</blockquote>
 万一痞子不是高达粉呢，就随便搞了（
 
+
+*****
+
+####  当光停止  
+##### 399#       发表于 2024-12-4 11:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">同时挺喜欢eva、高达、来打（部分带着生物感的皮套）的人震怒，我的审美收到了终极侮辱。
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">明贵美加、出渕裕、藤田一己救我口牙！
+
+*****
+
+####  kisstv22  
+##### 400#       发表于 2024-12-4 11:29
+
+ 本帖最后由 kisstv22 于 2024-12-4 11:31 编辑 
+
+是做完了才有的先行上映 而且是18年立案的企划 大概是真的只有季番长度了
+
+
+*****
+
+####  三度音  
+##### 401#       发表于 2024-12-4 11:31
+
+妈的，khara近年（破之后）的3D机战作画一点都不好看。
+
+*****
+
+####  赤黑的假面  
+##### 402#       发表于 2024-12-4 11:31
+
+没事，要是拉了，钢弹厨子会自己除籍和切割的，现在看钢弹的历史包袱不比星战超英之类的轻啊
+
+*****
+
+####  Libartas  
+##### 403#       发表于 2024-12-4 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839786&amp;ptid=2209276" target="_blank">当光停止 发表于 2024-12-4 11:28</a>
+同时挺喜欢eva、高达、来打（部分带着生物感的皮套）的人震怒，我的审美收到了终极侮辱。
+
+明贵美加、出渕裕 ...</blockquote>
+出渕裕这部挂名了
+
+*****
+
+####  创始’’’天翔  
+##### 404#       发表于 2024-12-4 11:32
+
+水魔只是半年番已经很难绷了，季番也太。。。
+
+*****
+
+####  巴尔干炮  
+##### 405#       发表于 2024-12-4 11:32
+
+唉，痞子的臭毛病还是一路带到高达来了，现在观众应该理解光头当年把他画的牛高达扔进垃圾桶的心情了。:-(
+
+*****
+
+####  Sliurus  
+##### 406#       发表于 2024-12-4 11:32
+
+季番能讲啥，胶达系列都起码每部半年
+
+*****
+
+####  kenqqex  
+##### 407#       发表于 2024-12-4 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839774&amp;ptid=2209276" target="_blank">八佾舞于潭 发表于 2024-12-4 11:27</a>
+
+万一痞子不是高达粉呢，就随便搞了（</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202412/04/113156fycyj6aeen0fce9z.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>641.webp</strong> (76.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 11:31 上传
+
+ 痞子就是厨高达程度高闻名的好不好 (
+
+*****
+
+####  新HGCG  
+##### 408#       发表于 2024-12-4 11:33
+
+<img src="https://img.saraba1st.com/forum/202412/04/113324kk9cawkw1kt2mkyx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (34.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 11:33 上传
+
+*****
+
+####  二阶堂真琉  
+##### 409#       发表于 2024-12-4 11:34
+
+山下敢达还是挺有新鲜感的，冲着鹤卷和山下看看8
+
+QQ图片20241204113334.jpg
+(100.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 11:33 上传
+
+<img src="https://img.saraba1st.com/forum/202412/04/113344nlr5262m05ptdrpu.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  bird-lay  
+##### 410#       发表于 2024-12-4 11:34
+
+机动战士决斗？宝可梦战斗
+

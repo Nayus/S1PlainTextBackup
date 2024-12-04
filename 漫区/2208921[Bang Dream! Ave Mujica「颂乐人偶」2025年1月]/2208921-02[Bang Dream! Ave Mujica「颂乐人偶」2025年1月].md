@@ -2938,3 +2938,19 @@ QQ图片20241204091737.jpg
 
 你们是要合体出邦多利金刚吗
 
+
+*****
+
+####  likeny  
+##### 1738#       发表于 2024-12-4 11:00
+
+必然会呈上完美的演出，那就是说有人脱离剧本的时候其他人就要圆回来，太有乐子了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  狮子咕  
+##### 1739#       发表于 2024-12-4 11:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在台上看似按照人设戏份表演，实际上发泄情绪打架，观众们直呼过瘾（不会的）
+

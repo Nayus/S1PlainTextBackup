@@ -2957,3 +2957,282 @@ pv这里男主背后应该就是高达吧
 官网logo也是紫**猫头</blockquote>
 这是博美犬吧，怎么看都不像是猫啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  帆前  
+##### 319#       发表于 2024-12-4 10:58
+
+整个企划给人一种，老登又想复古又想搞艺术又想搞官方同人二创又想搞自己的个性，的感觉
+
+自由，太自由了
+
+但如果是那三个人，倒也正常……
+
+*****
+
+####  PascalLefèvre  
+##### 320#       发表于 2024-12-4 10:58
+
+ 本帖最后由 PascalLefèvre 于 2024-12-4 10:59 编辑 
+
+但是不觉得这种有点生物感的机器人真的很酷吗，让我想到竹谷隆之的那个吉姆王（
+
+__ideon_threezero_x___monotone_1725077727_138cd4eb_progressive.jpg
+(147.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 10:59 上传
+
+<img src="https://img.saraba1st.com/forum/202412/04/105927e07n0jlsy1k0yyeo.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  哈曼的YY  
+##### 321#       发表于 2024-12-4 10:58
+
+电影国内能上吗
+
+*****
+
+####  古怪山庄士大夫  
+##### 322#       发表于 2024-12-4 10:58
+
+还好我多年扎根于特摄棚，早就是第一眼不接受然后出来就真香的类型了
+
+*****
+
+####  BN桑  
+##### 323#       发表于 2024-12-4 10:59
+
+不是，这瘤子不就是艾尔美斯的浮游炮吗，画在鸡舍上是丑了点，但是如果0079高清化那这就是大家心心念念的玩意儿<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2410DPN6CC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  蓝色有脚⑨倍速  
+##### 324#       发表于 2024-12-4 10:59
+
+草笑死我了，山下还特意把红高达画成圆棒男立，玩挺大
+
+*****
+
+####  白愁帝皇  
+##### 325#       发表于 2024-12-4 10:59
+
+这机设感觉不是真的，但pv那个和艾尔美斯一样的浮游炮肯定是真的
+
+*****
+
+####  g救世主高达  
+##### 326#       发表于 2024-12-4 11:00
+
+<blockquote>BN桑 发表于 2024-12-4 10:59
+不是，这瘤子不就是艾尔美斯的浮游炮吗，画在鸡舍上是丑了点，但是如果0079高清化那这就是大家心心念念的玩 ...</blockquote>
+这eva元祖玩意长的比雷霆宙域的套皮元祖都恶心，还不如继续动画化雷霆宙域呢
+
+*****
+
+####  东方定助  
+##### 327#       发表于 2024-12-4 11:00
+
+ 本帖最后由 东方定助 于 2024-12-4 11:02 编辑 
+
+庵野老登这几年不就是在自我满足报复社会吗，给观众喂屎再正常不过了。唯一的疑问就是老登自己知不知道自己做的玩意是屎，从各种记录片看我怀疑他知道，他只是自己有心理问题，靠着做屎给观众倒黑泥
+
+*****
+
+####  g救世主高达  
+##### 328#       发表于 2024-12-4 11:01
+
+庵野秀明这老登已经祸害了奥特曼和蝗虫骑车人，为什么还会对他抱有期望，离了eva就那样了
+
+*****
+
+####  PascalLefèvre  
+##### 329#       发表于 2024-12-4 11:01
+
+万代：只要我把配角机做的够爆炸，就没有人会在意主角机丑不丑了<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sliurus  
+##### 330#       发表于 2024-12-4 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839477&amp;ptid=2209276" target="_blank">PascalLefèvre 发表于 2024-12-4 11:01</a>
+
+万代：只要我把配角机做的够爆炸，就没有人会在意主角机丑不丑了</blockquote>
+鲜花需要绿叶衬托是吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a85982313  
+##### 331#       发表于 2024-12-4 11:02
+
+难评
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  白愁帝皇  
+##### 332#       发表于 2024-12-4 11:02
+
+泥潭庵野哥哥深柜还是太多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">嘴上骂心里想看的不得了吧
+
+*****
+
+####  水莲寺流歌  
+##### 333#       发表于 2024-12-4 11:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">这细胳膊长腿还是钢弹吗
+
+*****
+
+####  山之内花音  
+##### 334#       发表于 2024-12-4 11:03
+
+主角机换头后像假面骑士<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  11116等  
+##### 335#       发表于 2024-12-4 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839488&amp;ptid=2209276" target="_blank">白愁帝皇 发表于 2024-12-4 11:02</a>
+
+泥潭庵野哥哥深柜还是太多了嘴上骂心里想看的不得了吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">急急急急急
+
+*****
+
+####  七层嘉影  
+##### 336#       发表于 2024-12-4 11:04
+
+骂了半天，到底谁说一下为什么出了这么多雷，还有人让khara做东西，祸害还不够吗
+
+
+*****
+
+####  七层嘉影  
+##### 337#       发表于 2024-12-4 11:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839475&amp;ptid=2209276" target="_blank">g救世主高达 发表于 2024-12-4 11:01</a>
+
+庵野秀明这老登已经祸害了奥特曼和蝗虫骑车人，为什么还会对他抱有期望，离了eva就那样了 ...</blockquote>
+新哥也是垃圾，离了EVA就屁都不是，当然新剧场版也屁都不是
+
+*****
+
+####  Rhantolk  
+##### 338#       发表于 2024-12-4 11:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">丑成这样真的很难替他说话，大概只有痞子厨会开心吧看到这玩意
+
+*****
+
+####  楠城旧篱  
+##### 339#       发表于 2024-12-4 11:05
+
+这俩图完全不敢信是真的
+
+*****
+
+####  PascalLefèvre  
+##### 340#       发表于 2024-12-4 11:05
+
+其实也只骂了十分钟而已，到时候随便放一段痞子访谈泥潭又要高潮了
+
+*****
+
+####  kisstv22  
+##### 341#       发表于 2024-12-4 11:05
+
+本来就不应该对老登抱有过高的期待
+
+*****
+
+####  Hidewhite  
+##### 342#       发表于 2024-12-4 11:06
+
+看这堆机设感觉还不如去看车展，感觉现实车都比他们能好看。
+
+*****
+
+####  Edward0901  
+##### 343#       发表于 2024-12-4 11:06
+
+这个小屁孩人设闹哪样<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dbyboy  
+##### 344#       发表于 2024-12-4 11:06
+
+机设原案到最终机设应该还是有调整的
+
+风格化倒是足够强了，就看能不能调整到协调的程度
+
+不过这玩意确实太疯了
+
+*****
+
+####  蓝色有脚⑨倍速  
+##### 345#       发表于 2024-12-4 11:06
+
+怎么一个个都这么恨，不知道的还以为脚本只有痞子呢<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山之内花音  
+##### 346#       发表于 2024-12-4 11:06
+
+不知道正片能不能丑帅
+
+*****
+
+####  东方定助  
+##### 347#       发表于 2024-12-4 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839503&amp;ptid=2209276" target="_blank">七层嘉影 发表于 2024-12-4 11:04</a>
+
+骂了半天，到底谁说一下为什么出了这么多雷，还有人让khara做东西，祸害还不够吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">日本本质上是个混资历的人情社会啊，懂不懂宫崎唯一指定义子的江湖地位
+
+<img src="https://img.saraba1st.com/forum/202412/04/110706cdjvvzs9s2og6nly.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>8530aa5174aa46cc891f4d076af8ce56_1686447415~noop.jpeg</strong> (55.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 11:07 上传
+
+*****
+
+####  g救世主高达  
+##### 348#       发表于 2024-12-4 11:07
+
+<blockquote>白愁帝皇 发表于 2024-12-4 11:02
+泥潭庵野哥哥深柜还是太多了嘴上骂心里想看的不得了吧</blockquote>
+只能说高达的低能产能，粉丝也没得选啊，闪哈六年不出，出的新tv动画也就这个了🤪
+
+*****
+
+####  七层嘉影  
+##### 349#       发表于 2024-12-4 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839537&amp;ptid=2209276" target="_blank">东方定助 发表于 2024-12-4 11:06</a>
+
+日本本质上是个混资历的人情社会啊，懂不懂宫崎唯一指定义子的江湖地位</blockquote>
+就问痞子敢不敢做完风之谷
+
+*****
+
+####  PascalLefèvre  
+##### 350#       发表于 2024-12-4 11:08
+
+有得骂也是一种奢侈，高达粉丝不要要求太多
+

@@ -7058,3 +7058,58 @@ UC就UC吧。啊！居然是吉恩胜利的世界线<img src="https://static.sar
 
 贴吧造谣佬加司马自媒体传播的假图，但凡有点心上官网看一眼都不会被骗到
 
+
+*****
+
+####  RE㐅ia  
+##### 751#       发表于 2024-12-4 21:10
+
+百合无望，只能期待是三角了
+
+<img src="https://img.saraba1st.com/forum/202412/04/211006biozj22omxxism7q.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>E3854EAB-4265-41C4-B484-CC9C6887E4D7.jpeg</strong> (62.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 21:10 上传
+
+[
+
+<img src="https://img.saraba1st.com/forum/202412/04/211008ug7zsgy3agoyyk8n.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>E3507EF7-2D0A-44FD-9988-5DCDBC6DA514.jpeg</strong> (74.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 21:10 上传
+
+attachimg]1792693[/attachimg]
+
+<img src="https://img.saraba1st.com/forum/202412/04/211003ptmcctcuttzgg1hy.png" referrerpolicy="no-referrer">
+
+<strong>4FA27418-4222-434A-83EC-6DA5D2CCF094.png</strong> (291.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 21:10 上传
+
+514968A7-5502-4B59-870B-21E25C5129C2.jpeg
+(310.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 21:10 上传
+
+<img src="https://img.saraba1st.com/forum/202412/04/211006wy4ss4fi3p6pvz3v.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  z692689995  
+##### 752#       发表于 2024-12-4 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66844898&amp;ptid=2209276" target="_blank">mousy55555 发表于 2024-12-4 21:07</a>
+
+贴吧造谣佬加司马自媒体传播的假图，但凡有点心上官网看一眼都不会被骗到 ...</blockquote>
+意大利官网泄露的，看660楼
+

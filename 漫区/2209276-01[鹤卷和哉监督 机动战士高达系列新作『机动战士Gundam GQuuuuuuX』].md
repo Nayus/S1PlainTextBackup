@@ -5144,3 +5144,23 @@ G quuuuux 应该是理解成g quarks？</blockquote>
 
 丑得要命，我估计一辈子都不会去看这部
 
+
+*****
+
+####  dqjsss  
+##### 551#       发表于 2024-12-4 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66841087&amp;ptid=2209276" target="_blank">马桶3 发表于 2024-12-4 14:14</a>
+
+AGE人设接受不了的人那纯属活的太久脱离群众（小友）了，AGE人设和这个宝可梦人设本质都是一回事
+
+但是从 ...</blockquote>
+反正当年AGE一播把好不容易从SEED和00入坑的一大波新观众全劝退了，AGE不管是人设还是机设都是一股土味活该大暴死
+
+*****
+
+####  星光回路遮断器  
+##### 552#       发表于 2024-12-4 14:34
+
+我就想问日升的马裤螺丝什么时候端上来。
+

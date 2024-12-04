@@ -7887,3 +7887,25 @@ G-Q6uX越看越顺眼了，坏了<img src="https://static.saraba1st.com/image/sm
 
 三集以内必定超展开的
 
+
+*****
+
+####  PascalLefèvre  
+##### 836#       发表于 2024-12-5 00:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66846217&amp;ptid=2209276" target="_blank">刺客ares 发表于 2024-12-5 00:45</a>
+
+不会真有人觉得鹤卷和痞子搞个高达tv单独开个IFUC结果在殖民卫星里打二十四集的黑拳吧
+
+三集以内必定超展开 ...</blockquote>
+虽然但是，之前水魔也是这么说的
+
+*****
+
+####  plok201  
+##### 837#       发表于 2024-12-5 00:55
+
+夏亚加782在所罗门把联邦全杀了？
+
+裤袜脱落知道自己那么叼么，你还不如告诉我782装的缩退炉，请看下回，以元祖之力打到TM整个UC世界啊！
+

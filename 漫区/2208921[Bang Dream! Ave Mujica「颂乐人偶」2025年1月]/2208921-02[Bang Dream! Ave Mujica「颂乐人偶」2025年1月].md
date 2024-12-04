@@ -4783,3 +4783,93 @@ live会场附近？</blockquote>
 
 2024-12-4 22:52 上传
 
+
+*****
+
+####  skives10  
+##### 1914#       发表于 2024-12-4 22:54
+
+<img src="https://img.saraba1st.com/forum/202412/04/225356c5vwdfdh553zw63c.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3944.jpeg</strong> (168.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 22:53 上传
+
+<img src="https://img.saraba1st.com/forum/202412/04/225411f0jvqk5zov8jjxpv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3945.jpeg</strong> (275.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 22:54 上传
+
+搞不清楚 很混乱
+
+*****
+
+####  NODY  
+##### 1915#       发表于 2024-12-4 22:54
+
+mygo加了剧场版的乐奈也总共只写好了4个人啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过我也觉得海喵应该至少能分到各一集的个人回和过去描写的，海铃专门给做了支援乐队的人设，喵梦更是pv就告诉你有乡下妹设定了
+
+*****
+
+####  桜庭千景  
+##### 1916#       发表于 2024-12-4 22:56
+
+其实喵梦这边是不太好说，
+
+单说行为严重程度，肯定是非常严重，
+
+但是目前看最大的问题还是伤害了睦，
+
+本身对乐队企划造成的影响是可轻可重，全看编剧一句话的事
+
+如果影响大，就是全盘打乱了祥子的发展计划，只能重头规划，那必须是要狠狠爱猫的
+
+如果影响小，可以是意外曝光本体反而极大的提高了鸡的话题度，至少事务所那边很满意，祥子也只能先压下怒气忍着慢慢爱，到9 10集再爆大的
+
+都是很容易调控，说的通的
+
+*****
+
+####  桜庭千景  
+##### 1917#       发表于 2024-12-4 22:57
+
+ 本帖最后由 桜庭千景 于 2024-12-4 23:00 编辑 
+<blockquote>NODY 发表于 2024-12-4 22:54
+mygo加了剧场版的乐奈也总共只写好了4个人啊
+
+不过我也觉得海喵应该至少能分到各一集的个人回和过去描写的， ...</blockquote>
+
+唉唉 别带那谁节奏啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+ps:其实猫的问题主要还是她是空降旧案，鸡这边目前是不知道有没有这样的类似角色
+
+*****
+
+####  ytttsuuuba  
+##### 1918#       发表于 2024-12-4 22:58
+
+前期讲睦还有一个依据是1.14是睦生日，不炸个大的对不起这么巧的日期，更何况下一集预告就有睦的镜头，2-3集都可能是睦，而且据隔壁说睦是mujica炸得最狠的<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ytttsuuuba  
+##### 1919#       发表于 2024-12-4 22:58
+
+前期讲睦还有一个依据是1.14是睦生日，不炸个大的对不起这么巧的日期，更何况下一集预告就有睦的镜头，2-3集都可能是睦，而且据隔壁说睦是mujica炸得最狠的<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  akiomn  
+##### 1920#       发表于 2024-12-4 23:01
+
+狗剧场版按访谈说法，做了10集就觉得做的差不多了，那么可以把11和12看成后日谈，13引出鸡，另外狗篇有个问题是得引出c团起源，鸡团这些角色出场，祥子是暗线
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然你问我为什么不把狗篇为什么不拿多点篇幅塑造立希……只能说独角兽和柿本故意的吧，这帮人全干了，就喜欢迫害立希
+

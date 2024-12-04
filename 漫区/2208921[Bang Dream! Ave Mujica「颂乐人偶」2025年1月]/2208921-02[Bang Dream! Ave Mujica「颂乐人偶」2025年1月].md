@@ -3194,3 +3194,24 @@ ykn爹这么正常在萝里最重要的戏份也就是肯定一下ykls的关系�
 
 强制下线可能是最大的，不然就完全是失控，好比突然在hhw剧情里讨论米歇尔机甲背后的物理学问题……
 
+
+*****
+
+####  星天观测  
+##### 1762#       发表于 2024-12-4 12:38
+
+按道理来说是该强制下线的
+就是楼里那几个爹嘎吃怕是要接受不了了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Akari  
+##### 1763#       发表于 2024-12-4 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839758&amp;ptid=2208921" target="_blank">悲伤颂偶 发表于 2024-12-4 11:26</a>
+
+谁拍的照？</blockquote>
+节约宝拍的，全图右下角有mo的鞋子。
+
+米泽今天穿的裤子，估计是跪着的那个。
+

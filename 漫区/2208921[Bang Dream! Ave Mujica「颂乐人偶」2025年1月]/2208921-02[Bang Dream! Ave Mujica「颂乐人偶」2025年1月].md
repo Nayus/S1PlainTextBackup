@@ -2684,3 +2684,99 @@ QQ图片20241204091737.jpg
 
 那都加蝶了，我萝后排两个也露脸了，能不能让我萝也加进来
 
+
+*****
+
+####  skives10  
+##### 1715#       发表于 2024-12-4 10:28
+
+我梦团也想来分一句春日影<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狮子咕  
+##### 1716#       发表于 2024-12-4 10:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对甜甜圈女士最好的结局就是结尾的时候把她塞到下个企划的新团里去，但是基本不可能
+
+*****
+
+####  金钱与民主  
+##### 1717#       发表于 2024-12-4 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66837067&amp;ptid=2208921" target="_blank">玖羽 发表于 2024-12-4 02:38</a>
+
+因为这里是一个呼应，“之前没听到的春日影”
+
+祥父又不是ykn父，不会因为女儿的音乐成就感动，很难想象在 ...</blockquote>
+你们老是拿YKN的爹去和祥子的爹对比，多少有点侮辱前者了......人YKN的爹只是受过委屈不再玩音乐事业了，本身工作生活都很正常好吧，而且他从来没把自己当年受的委屈传递到YKN这里，是YKN自己在计较这事。祥子目前的家庭状况设定大概率来自当年PPP山吹沙绫的初设，那个初设被毙掉说明当年邦多利根本没信心驾驭这么不好处理的背景问题，现在在Mujica这里采用有很大的冒险性质，所以从保险的角度看，祥子爹所有的剧情全在第一话说干净，后面直到末话很可能不会出场了，因为制作方也得根据播放后评价来看剧情设计的得失，如果他们觉得还行，那可能放剧场版里给几个画面交代一下，如果觉得不行，那可能就放游戏剧情里提一嘴了。
+
+
+*****
+
+####  金钱与民主  
+##### 1718#       发表于 2024-12-4 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839007&amp;ptid=2208921" target="_blank">狮子咕 发表于 2024-12-4 10:28</a>
+
+对甜甜圈女士最好的结局就是结尾的时候把她塞到下个企划的新团里去，但是基本不可能 ...</blockquote>
+有没有可能甜甜圈女士和初华的组合到最后都好好的。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 1719#       发表于 2024-12-4 10:35
+
+都快忘了还有梦团了
+
+梦团惊天动地的初登场要来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银酒监武  
+##### 1720#       发表于 2024-12-4 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839044&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2024-12-4 10:31</a>
+你们老是拿YKN的爹去和祥子的爹对比，多少有点侮辱前者了......人YKN的爹只是受过委屈不再玩音乐事业了， ...</blockquote>
+虽然很希望这样处理，但祥子的性格、处事乃至遭际上明显有着她父亲的影子，我不觉得这是巧合，作者在这方面应该是有安排的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+
+*****
+
+####  狮子咕  
+##### 1721#       发表于 2024-12-4 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839070&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2024-12-4 10:33</a>
+
+有没有可能甜甜圈女士和初华的组合到最后都好好的。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">不太高吧……主要是初华和甜甜圈女士同款那段，初华看起来有股从没觉得在sumimi和甜甜圈女士唱歌开心过的感觉
+
+*****
+
+####  金钱与民主  
+##### 1722#       发表于 2024-12-4 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839095&amp;ptid=2208921" target="_blank">狮子咕 发表于 2024-12-4 10:35</a>
+
+不太高吧……主要是初华和甜甜圈女士同款那段，初华看起来有股从没觉得在sumimi和甜甜圈女士唱歌开心过的 ...</blockquote>
+这种设定只会损害初华的形象行不...
+
+*****
+
+####  御幸一也  
+##### 1723#       发表于 2024-12-4 10:38
+
+說到武道館最速，就看了一下武道館wiki寫的歷史，現實比動畫還要快，雖然是站在了企劃肩膀上的<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer"> 
+
+只論單曲出道到最速武道館的樂團好像是世終的3個月<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202412/04/103443m9hdc9mg3lg5flhm.png" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.png</strong> (47.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 10:34 上传
+

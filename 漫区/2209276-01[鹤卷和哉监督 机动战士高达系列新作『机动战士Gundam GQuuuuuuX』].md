@@ -2081,3 +2081,223 @@ This story is the only beginning.
 
 真是平行uc殖民地的人还没翻身？
 
+
+*****
+
+####  cyanwow  
+##### 227#       发表于 2024-12-4 10:28
+
+这人设有点过于时髦了
+
+*****
+
+####  g救世主高达  
+##### 228#       发表于 2024-12-4 10:28
+
+<blockquote>sliver1997 发表于 2024-12-4 10:24
+平行UC也太假了吧</blockquote>
+高达起源 高达z剧场版 高达雷霆宙域，万代都整几部平行uc宇宙了，再出一个也不奇怪啊？
+
+*****
+
+####  kongxian  
+##### 229#       发表于 2024-12-4 10:29
+
+机设身体不错挺喜欢，但脸丑
+
+*****
+
+####  艾特娜  
+##### 230#       发表于 2024-12-4 10:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">情报哥这是看到了些什么难崩的东西
+
+*****
+
+####  电波系腑海林  
+##### 231#       发表于 2024-12-4 10:29
+
+没有不看的理由好吧，开年就有大的看太幸福了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Rhantolk  
+##### 232#       发表于 2024-12-4 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66838921&amp;ptid=2209276" target="_blank">污陨血红 发表于 2024-12-4 10:21</a>
+
+就痞子那帮人拍新奥和新假的那股子劲
+
+整个新UC的可能性也有</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想被喷了尽管搞
+
+*****
+
+####  11116等  
+##### 233#       发表于 2024-12-4 10:30
+
+好像真是uc，那个浮游炮是拉拉机体的
+
+<img src="https://img.saraba1st.com/forum/202412/04/103049cqjhxj6tautax4xu.jpg" referrerpolicy="no-referrer">
+
+<strong>@675%PBHBO01H}O({F)]I.jpg</strong> (24.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 10:30 上传
+
+<img src="https://img.saraba1st.com/forum/202412/04/103049ihlfy6y9yjfa2562.jpg" referrerpolicy="no-referrer">
+
+<strong>{[KN}T0D219}1MNS3P(UMT0.jpg</strong> (28.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 10:30 上传
+
+<img src="https://img.saraba1st.com/forum/202412/04/103049yi00egiix7ez9qej.jpg" referrerpolicy="no-referrer">
+
+<strong>ZFU_$W}PS57IWQRX06`MIIQ.jpg</strong> (164.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 10:30 上传
+
+*****
+
+####  帆前  
+##### 234#       发表于 2024-12-4 10:31
+
+抽象的是以前看胶达的时候我就幻想过用真的ms打比赛的高达番，只不过我幻想的那个世界观很安全，安全到高达比赛也很安全。这个世界观看着像是压抑的未来太空科幻，只是美术风格上有一点点赛博朋克味。
+
+话说，新高达长得不像高达的原因是因为设定是用来打比赛的机体吧，我觉得潮一点也符合设定，有没有觉得很多地方长得都有点像f1赛车（）
+
+我还以为水魔之后的新高达又要等好多年呢，看来财团决定用短剧赚快钱了，我觉得现在人普遍看剧浮躁，篇幅短点也是大势所趋吧，但是篇幅短也要有好故事才行。
+
+这次监督是鹤卷，至少镜头叙事什么的不用担心水平吧
+
+鹤卷，flcl；榎户，塔斯特，少女革命；庵野，不用多说。这仨人做的番一个赛一个的自由浪漫现代派，不知道新高达会放飞自我到什么地步
+
+*****
+
+####  创始’’’天翔  
+##### 235#       发表于 2024-12-4 10:31
+
+<blockquote>Rhantolk 发表于 2024-12-4 10:30
+想被喷了尽管搞</blockquote>
+这些人会怕被喷？
+
+<img src="https://img.saraba1st.com/forum/202412/04/103145zutlyx5ixv34psc5.png" referrerpolicy="no-referrer">
+
+<strong>7cfa626a639cafe05d552e7a12a1c12f6ed893efc7a91d230f711bfc8250c3d5.0.PNG</strong> (420 Bytes, 下载次数: 0)
+
+下载附件
+
+2024-12-4 10:31 上传
+
+
+*****
+
+####  污陨血红  
+##### 236#       发表于 2024-12-4 10:33
+
+<img src="https://img.saraba1st.com/forum/202412/04/103042vgcgagarhqa0ahop.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ19w-2jzwZaT3cSsg-kk.jpg</strong> (109.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 10:30 上传
+
+<img src="https://img.saraba1st.com/forum/202412/04/103042ogagkflbn5fluzdv.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ19w-5s9oZaT1kSdw-ai.jpg.thumb.jpg</strong> (13.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 10:30 上传
+
+<img src="https://img.saraba1st.com/forum/202412/04/103130cem8yfmjjdmjwfoz.jpg" referrerpolicy="no-referrer">
+
+<strong>E7952A68E321B998AB059F08BC6127AC.jpg</strong> (343.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 10:31 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+艾尔美斯的bit，真的很像
+
+不会真是夏亚和拉拉的崽吧
+
+*****
+
+####  bbjajdd  
+##### 237#       发表于 2024-12-4 10:33
+
+<blockquote>艾特娜 发表于 2024-12-4 10:29
+情报哥这是看到了些什么难崩的东西</blockquote>
+如果2ch的情报是真的，那的确很难蹦
+
+*****
+
+####  棒读  
+##### 238#       发表于 2024-12-4 10:33
+
+如果真是平行宇宙UC的话可能是隐藏的爆点吧一开始尽量避免让人看出是UC，然后高潮的时候突然出现UC的内容，就跟飞2突然出现真宇宙怪兽一样
+
+*****
+
+####  kisstv22  
+##### 239#       发表于 2024-12-4 10:34
+
+这部真的没有期待感 当乐子人算了
+
+*****
+
+####  godvim  
+##### 240#       发表于 2024-12-4 10:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">又要跳过一部么，人设机设都好难看啊……
+
+
+*****
+
+####  fireadol  
+##### 241#       发表于 2024-12-4 10:36
+
+如果真是平行世界UC，庵野又真的有话语权又出力的话，机设真会这么潮？看看他给牛高达做的机设，庵野不管做什么IP最后一定是要在外形上究极还原老古董初代<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oi99o  
+##### 242#       发表于 2024-12-4 10:36
+
+要是要讲明蓝毛开的是“高达”的话肯定要讲世界观的吧
+
+*****
+
+####  LANGWANG  
+##### 243#       发表于 2024-12-4 10:37
+
+心情莫名复杂。先看了再说吧。。
+
+*****
+
+####  chivalry  
+##### 244#       发表于 2024-12-4 10:37
+
+以后庵野才是新高父
+
+*****
+
+####  11116等  
+##### 245#       发表于 2024-12-4 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839109&amp;ptid=2209276" target="_blank">fireadol 发表于 2024-12-4 10:36</a>
+
+如果真是平行世界UC，庵野又真的有话语权又出力的话，机设真会这么潮？看看他给牛高达做的机设，庵野不管做 ...</blockquote>
+可能真高达会还原吧
+

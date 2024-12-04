@@ -4971,3 +4971,87 @@ EVA旧版人设贞本义行，新版人设锦织敦史
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">前面那个红高达真别是真的，或者端上来之前改改吧。不然我要飞一些人的妈了。
 
+
+*****
+
+####  Sliurus  
+##### 535#       发表于 2024-12-4 14:04
+
+那个设定图给模型部怕不是要骂街，应该有改动，腰部的纹理和设定图不太一样，可能只有配色保留了下来
+
+*****
+
+####  VictorWJ  
+##### 536#       发表于 2024-12-4 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839330&amp;ptid=2209276" target="_blank">污陨血红 发表于 2024-12-4 10:51</a>
+好像还有一张泄露的机设</blockquote>
+看着就很能爆甲的样子<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  wasssf  
+##### 537#       发表于 2024-12-4 14:09
+
+<blockquote>花咲茜 发表于 2024-12-4 14:00
+字符怪里怪气的，但ジークアクス这个名字让人觉得很微妙，加上一个字如何？ ...</blockquote>
+
+那就变成zick axis饥渴阿克西斯了 本来应该没这种考虑
+
+*****
+
+####  patema  
+##### 538#       发表于 2024-12-4 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839330&amp;ptid=2209276" target="_blank">污陨血红 发表于 2024-12-4 10:51</a>
+
+好像还有一张泄露的机设</blockquote>
+这台好像就是主角机
+
+
+*****
+
+####  HighTouch  
+##### 539#       发表于 2024-12-4 14:11
+
+尼尔瓦修还是挺有未来感或者说时髦的
+
+这个目前流出的设定图，就是很“新剧场版Q和终”那种感觉，可能形容不准确，就是跟旧eva也不一样，不是那种军武风，而是“我寻思”的那种搞几个铁架子电线杆就飞起来的绿皮科技
+
+*****
+
+####  faxi  
+##### 540#       发表于 2024-12-4 14:12
+
+<img src="https://img.saraba1st.com/forum/202412/04/141140klm2n875esd2dikk.jpg" referrerpolicy="no-referrer">
+
+<strong>L]QH$D2]M[Y46OBE~}M2{ZX.jpg</strong> (77.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 14:11 上传
+
+太可怕了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202412/04/141227gbb3zzbpevij33i7.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (15.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 14:12 上传
+
+*****
+
+####  马桶3  
+##### 541#       发表于 2024-12-4 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66840883&amp;ptid=2209276" target="_blank">dqjsss 发表于 2024-12-4 13:51</a>
+
+人设比AGE那个土里吧唧的好多，你知道当年经过00人设洗礼的观众看到AGE后的心情么 ...</blockquote>
+AGE人设接受不了的人那纯属活的太久脱离群众（小友）了，AGE人设和这个宝可梦人设本质都是一回事
+
+但是从机设上说，AGE的高达可没这么难看
+

@@ -8144,3 +8144,16 @@ G-Q6uX越看越顺眼了，坏了<img src="https://static.saraba1st.com/image/sm
 
 想了一下，如果骡子死了是不是就正好不用担心声优塌房的问题了……
 
+
+*****
+
+####  魔灵高达  
+##### 862#       发表于 2024-12-5 06:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66846263&amp;ptid=2209276" target="_blank">patema 发表于 2024-12-5 00:59</a>
+水魔确实整了啊，不是给你们塔塔开，强化人，地宇矛盾了吗，只是最后缩卵了，你就说有没有吧 ...</blockquote>
+水魔第零集的那sf复仇正剧的氛围，到最后结局偏离有150°了吧，pv狸猫回头和正片是一个人吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+所以说这些前瞻也是信不了一点的，哪怕1月17号的前瞻出来很棒也不能开香槟。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

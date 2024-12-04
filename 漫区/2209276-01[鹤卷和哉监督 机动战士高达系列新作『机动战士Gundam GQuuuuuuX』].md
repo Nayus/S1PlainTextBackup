@@ -901,3 +901,81 @@ PV最后瞳孔外轮廓的红圈是什么？跟中了鸡鸭死似的
 
 你以为是热能斧，其实是真盖塔，到后面那个高达突然巨大化比地球还大，手劈星球，脚踢黑洞，两女主使出合体技打败最终BOSS，画面一转12000年后……
 
+
+*****
+
+####  虚无缥缈的分身  
+##### 104#       发表于 2024-12-4 09:00
+
+又是双女主？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PascalLefèvre  
+##### 105#       发表于 2024-12-4 09:01
+
+可惜这个瘦猴机设有点不太支持女主手撕胸甲掏心脏环节
+
+*****
+
+####  199april  
+##### 106#       发表于 2024-12-4 09:01
+
+eva加高达有没有搞头？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  starring  
+##### 107#       发表于 2024-12-4 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66837819&amp;ptid=2209276" target="_blank">6x6z6w 发表于 2024-12-4 08:47</a>
+
+别提形部一平这个老登了，他搞的非高达机设一个比一个抽象这个G夸克设计上比境界战机耐看，起码竞技感很 ...</blockquote>
+我还挺喜欢形部搞的非UC系的机体，维达尔，战骑，巴利尔巴尔德这些都充满特色
+
+这次的主角机比风灵和镇魂曲那台ex激进太多，个人是欣赏不来
+
+*****
+
+####  久保由利香  
+##### 108#       发表于 2024-12-4 09:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">鹫尾厨嘴有点太硬了
+
+*****
+
+####  水莲寺流歌  
+##### 109#       发表于 2024-12-4 09:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">大概结果会变成钢弹厨和eva厨都不满意
+
+*****
+
+####  萱时令  
+##### 110#       发表于 2024-12-4 09:05
+
+又有黑涂装镇暴扎古了 好好好
+
+*****
+
+####  VVhaleVoice  
+##### 111#       发表于 2024-12-4 09:06
+
+无所谓！榎戸洋司厨会把大家的心连接在一起！<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.94-alpha
+
+*****
+
+####  KDConan  
+##### 112#       发表于 2024-12-4 09:07
+
+这个字体对味<img src="https://static.saraba1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/20/8a94413b491f4736bbd965a087e20b26/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

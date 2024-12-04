@@ -464,3 +464,165 @@ https://bgm.tv/person/3808
  ...</blockquote>
 水魔种自数钱数到手抽筋，最近可不是高达低谷
 
+
+*****
+
+####  达达葱2  
+##### 52#       发表于 2024-12-4 08:26
+
+阿斯兰？何时来的？
+
+*****
+
+####  deenyao  
+##### 53#       发表于 2024-12-4 08:26
+
+看起来像返乡战士
+
+*****
+
+####  PascalLefèvre  
+##### 54#       发表于 2024-12-4 08:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66837600&amp;ptid=2209276" target="_blank">ads147147 发表于 2024-12-4 08:22</a>
+
+是男孩子有什么不对吗！
+
+—— 来自 OPPO PHN110, Android 15上的 S1Next-鹅版 v3.0.0.81-alpha ...</blockquote>
+但是看机体介绍又说驾驶员是女主，男孩子拉克丝役kana？
+
+*****
+
+####  natmk  
+##### 55#       发表于 2024-12-4 08:27
+
+把鸡舍改一下说是飞跃巅峰新作我都信了
+
+*****
+
+####  山之内花音  
+##### 56#       发表于 2024-12-4 08:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66837591&amp;ptid=2209276" target="_blank">PascalLefèvre 发表于 2024-12-4 08:20</a>
+高达驾驶员原来是那个男孩子吗</blockquote>
+大概率送快递的吧，蓝毛男偷了高达然后送给女主<img src="https://p.sda1.dev/20/63af3411196affbca462b255027e6fdd/image.jpg" referrerpolicy="no-referrer">
+蓝毛男看装束更像后勤
+<img src="https://p.sda1.dev/20/7611af626fa2d6100d6cb2c1fa0ad074/image.jpg" referrerpolicy="no-referrer">
+看人物介绍是女主和黑长直有驾驶能力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古怪山庄士大夫  
+##### 57#       发表于 2024-12-4 08:28
+
+一年两个国家队，泥潭明年有福啦
+
+*****
+
+####  七七見奈波  
+##### 58#       发表于 2024-12-4 08:28
+
+2024二刺螈什么事都会发生.jpg
+
+*****
+
+####  cmyk1234  
+##### 59#       发表于 2024-12-4 08:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66837644&amp;ptid=2209276" target="_blank">山之内花音 发表于 2024-12-4 08:28</a>
+大概率送快递的吧，蓝毛男偷了高达然后送给女主
+蓝毛男看装束更像后勤</blockquote>
+也有可能是exvs 2v2高达
+
+*****
+
+####  棒读  
+##### 60#       发表于 2024-12-4 08:29
+
+草，飞跃巅峰2精神续作是吧
+
+*****
+
+####  PascalLefèvre  
+##### 61#       发表于 2024-12-4 08:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66837644&amp;ptid=2209276" target="_blank">山之内花音 发表于 2024-12-4 08:28</a>
+
+大概率送快递的吧，蓝毛男偷了高达然后送给女主
+
+蓝毛男看装束更像后勤</blockquote>
+声音听起来凶凶的，人设意外的很软<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  萝卜迷  
+##### 62#       发表于 2024-12-4 08:31
+
+独眼机感觉像扎夫特的
+
+*****
+
+####  catalyst7778  
+##### 63#       发表于 2024-12-4 08:31
+
+这TM你说是高达，这造型不妥妥的超级系？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  1096beam  
+##### 64#       发表于 2024-12-4 08:31
+
+卧槽一大早有点劲爆啊
+
+*****
+
+####  RedSpecial  
+##### 65#       发表于 2024-12-4 08:31
+
+男主是mega乌栗吗
+
+
+*****
+
+####  PascalLefèvre  
+##### 66#       发表于 2024-12-4 08:32
+
+机设其实像瘦猴版88ts
+
+*****
+
+####  创始’’’天翔  
+##### 67#       发表于 2024-12-4 08:33
+
+看制作阵容基本都是khara，日升三组在干啥？不会也在憋新作吧
+
+*****
+
+####  ナルバレック  
+##### 68#       发表于 2024-12-4 08:33
+
+看制作阵容，感觉几乎都是痞子这边的人……日升投钱痞子团队干活是吧？
+
+*****
+
+####  山之内花音  
+##### 69#       发表于 2024-12-4 08:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66837649&amp;ptid=2209276" target="_blank">cmyk1234 发表于 2024-12-4 08:29</a>
+也有可能是exvs 2v2高达</blockquote>
+设定就是2人双排打比赛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">女主预订一个位置，剩下的黑长直可能性更大一点
+
+*****
+
+####  古怪山庄士大夫  
+##### 70#       发表于 2024-12-4 08:35
+
+围脖上看到，企划2018年的，做了很久了，人是鹤卷信赖的人，所以主力是卡哈没啥问题
+
+*****
+
+####  cmyk1234  
+##### 71#       发表于 2024-12-4 08:36
+
+会不会全篇制作完成了
+

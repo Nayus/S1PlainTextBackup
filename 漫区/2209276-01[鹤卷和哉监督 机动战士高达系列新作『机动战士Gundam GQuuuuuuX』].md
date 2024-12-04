@@ -5284,3 +5284,35 @@ AGE人设接受不了的人那纯属活的太久脱离群众（小友）了，AG
 
 —— 来自 Xiaomi 22127RK46C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  麦田里的守望者  
+##### 566#       发表于 2024-12-4 15:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还真是决斗啊，女主副业再搞个虚拟主播我真的会笑拥
+
+*****
+
+####  dqjsss  
+##### 567#       发表于 2024-12-4 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66841577&amp;ptid=2209276" target="_blank">mj240608414 发表于 2024-12-4 15:00</a>
+
+刀语的人设也没这么糙啊，是做完朱紫等级下降了？
+
+—— 来自 Xiaomi 22127RK46C, Android 13上的 S1Next ...</blockquote>
+不如说走国际化玩高级审美，降低媚宅度<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  mj240608414  
+##### 568#       发表于 2024-12-4 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66841636&amp;ptid=2209276" target="_blank">麦田里的守望者 发表于 2024-12-4 15:07</a>
+还真是决斗啊，女主副业再搞个虚拟主播我真的会笑拥</blockquote>
+是虚拟主播网上直播决斗向上爬最后为了成功进入虚拟主播高达大逃杀（）
+
+—— 来自 Xiaomi 22127RK46C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

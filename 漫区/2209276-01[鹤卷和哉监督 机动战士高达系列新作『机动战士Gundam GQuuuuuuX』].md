@@ -4787,3 +4787,54 @@ staff都阳痿了吗</blockquote>
 真让痞子做就做成sin gundam了，指不定把什么UC008X ...</blockquote>
 目前舅舅说就是把uc拉出来拍了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是鸭子叔叔抢到高达的世界线
 
+
+*****
+
+####  八佾舞于潭  
+##### 519#       发表于 2024-12-4 13:49
+
+人设我觉得还可以，至少女的青春可爱吧。mogg 有点性冷淡了。
+
+*****
+
+####  第七月球  
+##### 520#       发表于 2024-12-4 13:49
+
+季番？太短了吧
+
+
+*****
+
+####  dqjsss  
+##### 521#       发表于 2024-12-4 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66840529&amp;ptid=2209276" target="_blank">check 发表于 2024-12-4 12:57</a>
+
+这机设 人设都好烂哦</blockquote>
+人设比AGE那个土里吧唧的好多，你知道当年经过00人设洗礼的观众看到AGE后的心情么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南门二  
+##### 522#       发表于 2024-12-4 13:51
+
+鹤卷在见本市的短片人设也是竹
+有鹤卷新片看就很好，高达会变成怎样都无所谓啦
+
+*****
+
+####  Anatoly  
+##### 523#       发表于 2024-12-4 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66840729&amp;ptid=2209276" target="_blank">patema 发表于 2024-12-4 13:29</a>
+
+你觉得像eva吗？像就对辣虽然我觉得其实更像尼尔瓦修</blockquote>
+尼尔瓦修有滑板拉时髦值啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xunit  
+##### 524#       发表于 2024-12-4 13:54
+
+机设看着像尼尔瓦修+马克刀
+

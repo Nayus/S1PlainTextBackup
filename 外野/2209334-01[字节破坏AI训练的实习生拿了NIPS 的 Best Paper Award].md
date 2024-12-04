@@ -471,3 +471,21 @@ illustrious是9月的文
 
 ai 届的茉莉阿迪教授
 
+
+*****
+
+####  Vora  
+##### 45#       发表于 2024-12-4 18:47
+
+早就说了程序员群体因为行业卷，所以慕强和极端利己者是最多的<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-F9460, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  onEgoOdmAn  
+##### 46#       发表于 2024-12-4 18:55
+
+已经比肩牛顿了吗？！<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+

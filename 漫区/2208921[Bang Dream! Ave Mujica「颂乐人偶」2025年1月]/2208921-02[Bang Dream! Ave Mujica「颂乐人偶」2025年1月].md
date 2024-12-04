@@ -3806,3 +3806,36 @@ HENSHIN!
 
 喵桑不怕这俩脾气不好直接断送自个儿的演艺界未来吗？另外祥作为p是不是脾气有点太好了？
 
+
+*****
+
+####  PDQ4  
+##### 1817#       发表于 2024-12-4 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66843949&amp;ptid=2208921" target="_blank">vigada 发表于 2024-12-4 18:46</a>
+
+另外就是假药了，因为没看过枪版动画只看了文字版剧透，看样子祥子外公还认祥子？然后睦这边爸爸妈妈都是演 ...</blockquote>
+喵梦暂时把祥子拿捏住了，12集结尾，刚出的第一集剧透，喵梦明显知道祥子的痛点是什么
+
+既然祥子反复强调让喵梦交出人生，那祥子就必定会负责善后
+
+属于是已经准确把握丰川祥子这个人的性格特点了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  akiomn  
+##### 1818#       发表于 2024-12-4 18:52
+
+祥子暂时拿喵梦没办法，这不是现实，是邦邦世界观，不然第二天就雪藏喵梦了，更狠点丰川家和若叶家的温暖大手能直接让喵梦职业生涯彻底完蛋
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真是温柔的邦邦世界观啊
+
+*****
+
+####  哈曼的YY  
+##### 1819#       发表于 2024-12-4 18:54
+
+阿姨辈的女女关系性 其中一方已经英年早逝
+
+哦哦 何其沉重...
+

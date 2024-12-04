@@ -6450,3 +6450,62 @@ Mobile A R M O R Gundam         啊 ?<img src="https://static.saraba1st.co
 
 我看看这楼和隔壁母鸡卡哪个盖的快<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  双菜  
+##### 686#       发表于 2024-12-4 18:50
+
+多放点信息肯定比母鸡卡快吧，猪队友多来点
+
+*****
+
+####  赤黑的假面  
+##### 687#       发表于 2024-12-4 18:50
+
+太空歌剧版高堡奇人？
+
+*****
+
+####  oi99o  
+##### 688#       发表于 2024-12-4 18:51
+
+官网简介剧透这事，水魔也干了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  g救世主高达  
+##### 689#       发表于 2024-12-4 18:52
+
+<blockquote>patema 发表于 2024-12-4 18:36
+除了核爆所罗门想不出来有什么办法单机改变局势</blockquote>
+赤高达都元祖加上赛克谬了，神棍起来不是简简单单吗，这组合有多逆天在雷霆宙域已有记载
+
+*****
+
+####  Chiralium  
+##### 690#       发表于 2024-12-4 18:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“公国的年轻英雄”
+
+*****
+
+####  g救世主高达  
+##### 691#       发表于 2024-12-4 18:56
+
+<blockquote>躺平咸鱼在翻身 发表于 2024-12-4 18:07
+怎么都骂我们庵野哥哥（
+
+如果是他主导的话，机设真会做成这样吗
+</blockquote>
+庵野秀明当年给v高达和沙扎比画的机设，只能说过了几十年他的抽象审美还是没变
+
+<img src="https://img.saraba1st.com/forum/202412/04/185558iba33ns8bba7vzp4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>-9lddQjme-3zowXhZ4mT3cS1jk-222.jpeg</strong> (885.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 18:55 上传
+

@@ -553,3 +553,25 @@ illustriousXL完全比不了，细节磨了磨而 ...</blockquote>
 怎么讲呢，字节之前的表述也好，损失的界定也好，本身也是企业自己角度的描述，**下定论前这人是个铁坏b，还是个叛逆仔，还是有报复心理，还要打个问号。
 成果也一样，没有评估能力不好判断，但如果是违法了那他再牛逼这辈子的职业生涯也结了。
 
+
+*****
+
+####  Sacross  
+##### 53#       发表于 2024-12-4 19:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">都快2025年了，我是真觉得非要把单人贡献拉高这件事在ai领域有点没道理
+
+
+*****
+
+####  空気力学  
+##### 54#       发表于 2024-12-4 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66844091&amp;ptid=2209334" target="_blank">Luhikari 发表于 2024-12-4 19:07</a>
+提出扩散模型的文章 Deep Unsupervised Learning using Nonequilibrium Thermodynamics 是2015年的文章
+
+ ...</blockquote>
+翻了一遍没看到啥革命性的突破，比起diffusion model还是按token来的语言模型更适合拼尸块<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.94-alpha
+

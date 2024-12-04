@@ -6656,3 +6656,64 @@ Mobile A R M O R Gundam         啊 ?<img src="https://static.saraba1st.co
 
 估计融进去了吧
 
+
+*****
+
+####  cayon  
+##### 707#       发表于 2024-12-4 19:18
+
+那女主高达不得再融个阿宝，以前都是鸭骡开高达对决，现在鸭骡被人开着对决
+
+*****
+
+####  g救世主高达  
+##### 708#       发表于 2024-12-4 19:19
+
+<blockquote>cayon 发表于 2024-12-4 19:18
+那女主高达不得再融个阿宝，以前都是鸭骡开高达对决，现在鸭骡被人开着对决 ...</blockquote>
+阿姆罗估计已经被扎古二踩死了，元祖都没摸过，除非你说这个世界线元祖不是提姆雷开发的而是他开发的
+
+
+*****
+
+####  leommoo  
+##### 709#       发表于 2024-12-4 19:23
+
+草，上午还以为这背景是假的，没想到真来阿，这下得看了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ティグル  
+##### 710#       发表于 2024-12-4 19:24
+
+不是，你写个不列颠作战成功斩首联邦高层让对方被迫停战也比这个什么赛克缪系统爆炸要正常点吧
+
+这是人能想出来的背景设定吗？
+
+*****
+
+####  战术核辣条  
+##### 711#       发表于 2024-12-4 19:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么意思，扎比家赢了这个世界还能和平到ms就拿来打打黑拳？
+
+你说吉翁戴肯没死我就信
+
+*****
+
+####  林登·万  
+##### 712#       发表于 2024-12-4 19:25
+
+夏亚帮扎比家打赢战争 笑死<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  没取名啊  
+##### 713#       发表于 2024-12-4 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66844203&amp;ptid=2209276" target="_blank">战术核辣条 发表于 2024-12-4 19:24</a>
+什么意思，扎比家赢了这个世界还能和平到ms就拿来打打黑拳？
+
+你说吉翁戴肯没死我就信 ...</blockquote>
+ms能在殖民卫星打黑拳还管不动，那不是说明吉翁治下宇宙完全是一团乱吗
+

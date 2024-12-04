@@ -5257,3 +5257,30 @@ AGE人设接受不了的人那纯属活的太久脱离群众（小友）了，AG
 
 打黑拳这个设定依稀有点熟悉...
 
+
+*****
+
+####  patema  
+##### 563#       发表于 2024-12-4 14:56
+
+其实感觉大概率还是top系得展开，打黑拳只是引子，后面肯定还是要有惊天阴谋的。黑拳打到一半提坦兹来抄家一转格里普斯战役<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  X9999  
+##### 564#       发表于 2024-12-4 14:56
+
+这机设和人设太可怕了，，，
+
+
+*****
+
+####  mj240608414  
+##### 565#       发表于 2024-12-4 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66840953&amp;ptid=2209276" target="_blank">没取名啊 发表于 2024-12-4 14:01</a>
+宝可梦的露莎米奈有话要说</blockquote>
+刀语的人设也没这么糙啊，是做完朱紫等级下降了？
+
+—— 来自 Xiaomi 22127RK46C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

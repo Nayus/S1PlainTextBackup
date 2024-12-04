@@ -6881,3 +6881,59 @@ UC就UC吧。啊！居然是吉恩胜利的世界线<img src="https://static.sar
 
 还没开**拉满了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">拍得太无聊了
 
+
+*****
+
+####  林登·万  
+##### 732#       发表于 2024-12-4 19:59
+
+有魄力就重启0079世界观， 嫌一年战争时间太短 ，来个十年战争甚至百年战争打到大道都磨灭了 ，出胶管够<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  VictorWJ  
+##### 733#       发表于 2024-12-4 20:04
+
+真不看好这群EVA人做历史推演的能力，还是虚构历史推演
+比水魔合理就算成功好吧<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ALSE  
+##### 734#       发表于 2024-12-4 20:04
+
+ 本帖最后由 ALSE 于 2024-12-4 20:06 编辑 
+
+其实除了骡子，鸭妹，拉拉还有一堆老熟人
+
+汤金一家，所罗门就结束的话，汤金汤大基紫色老太婆都应该还活着，就汤义刚不好说有没有在爆破一半时活下来，被算计的，没高达在不知道噶了没
+
+接着还有卡多这些0083的，所罗门就结束的话还活着吗
+
+兰巴拉尔也是，没高达的话噶了没
+
+三连星和马克白倒是有可能还是噶在敖德萨了
+
+当然，还有种可能是 以上皆☆不☆出☆场
+
+*****
+
+####  会长辅佐  
+##### 735#       发表于 2024-12-4 20:05
+
+这史也太野了吧
+
+*****
+
+####  王留美  
+##### 736#       发表于 2024-12-4 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839133&amp;ptid=2209276" target="_blank">chivalry 发表于 2024-12-4 10:37</a>
+ 以后庵野才是新高父</blockquote>
+新·高父也好，真·高父也罢
+
+那个·不能去掉
+

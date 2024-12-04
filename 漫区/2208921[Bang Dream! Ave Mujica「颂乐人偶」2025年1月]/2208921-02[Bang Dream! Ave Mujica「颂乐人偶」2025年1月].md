@@ -2576,3 +2576,61 @@ QQ图片20241204091737.jpg
 
 這麼想的話，mortis的面具遮擋面積最大可能確實是祥P對睦的關照<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  椎名真希  
+##### 1703#       发表于 2024-12-4 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66838576&amp;ptid=2208921" target="_blank">御幸一也 发表于 2024-12-4 09:53</a>
+祥子和睦是半身幼馴染，不僅睦熟知祥子的一切，祥子肯定也是知道睦不想在公眾面前露面。
+
+這麼想的話，mor ...</blockquote>
+如果顺着这个思路走的话
+有可能是睦家里把睦作为演员培养，目前还没有正式出道的打算，让睦戴面具参加Ave Mujica已经是睦家里最大的让步，然后这次被喵梦摘面具的事情从睦家人的角度上看就是祥P背信弃义用暴露睦身份的方式给自己的乐队吸引流量，为此而生气，给睦禁足或者要求睦降板都说得通
+关键睦和祥还没法辩解，因为后面临场对应很到位<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这个摘面罩的锅还得祥P来背
+睦被关在家里，明明知道祥只剩Ave Mujica了还要被迫退队解散，说不定还要她转学什么的，一联想到小黄瓜，就爆了<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+*****
+
+####  靜希有珠  
+##### 1704#       发表于 2024-12-4 10:07
+
+非贬义。看到这楼里你一句我一句讨论各自设想的后续发展，然后得出结论烂完了。有一种迷之搞笑
+
+*****
+
+####  椎名真希  
+##### 1705#       发表于 2024-12-4 10:09
+
+大喵太可恶了，以后得天天拿黄瓜🥒殴打（
+
+*****
+
+####  金钱与民主  
+##### 1706#       发表于 2024-12-4 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66837041&amp;ptid=2208921" target="_blank">玖羽 发表于 2024-12-4 02:29</a>
+
+我突然想明白了，春日影也是祥子想唱给自己父母的 
+
+我知道第13话的饺子该怎么包了，演春日影让祥父听（木 ...</blockquote>
+想太多了吧，人第一次live想喊自己家人来看看不是很合常理么，没必要再去加什么意义。顺带一提，我觉得Mujica要包饺子那也是包鸡团五人乃至鸡狗十人自己的饺子，她爹的后续估计直接用短信或者有人带话展示一下就得了，甚至如果有剧场版的话，到时候再顺带交代一下。因为一个我觉得合格的编剧应该要懂的事情是：本身大人的困境要靠小孩来打破这种剧情设计就是会越描越黑的，到头来只会让大人更加被观众瞧不起，Mujica动画的重点肯定是祥子自己的心态（以及其他四位的心态）能不能恢复正常，她爹的状态作为外部环境的一部分，其实并不是啥必须要呼应的点。
+
+*****
+
+####  skives10  
+##### 1707#       发表于 2024-12-4 10:11
+
+森美奈美会原谅祥祥吗<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 1708#       发表于 2024-12-4 10:13
+
+无关推测，单说能参加葬礼座接近上座的位置这个关系
+
+睦家里不知道会怎么对祥子
+

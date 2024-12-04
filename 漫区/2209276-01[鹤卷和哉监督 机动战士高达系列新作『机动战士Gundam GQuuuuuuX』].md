@@ -626,3 +626,98 @@ https://bgm.tv/person/3808
 
 会不会全篇制作完成了
 
+
+*****
+
+####  starring  
+##### 72#       发表于 2024-12-4 08:36
+
+机体的关节跟鬼子战机的一样，好难看啊
+
+*****
+
+####  operatbig  
+##### 73#       发表于 2024-12-4 08:39
+
+蓝毛明显是配角。
+
+*****
+
+####  PigMourne  
+##### 74#       发表于 2024-12-4 08:39
+
+哇浪 卡哈这么能憋
+
+*****
+
+####  萨尤克  
+##### 75#       发表于 2024-12-4 08:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这主角机鸡舍真的越看越像境界战机主角机
+
+*****
+
+####  Snaky  
+##### 76#       发表于 2024-12-4 08:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明年的乐子有了
+
+*****
+
+####  雨翼free  
+##### 77#       发表于 2024-12-4 08:41
+
+女主这台原来不是高达，合理了起来
+
+
+*****
+
+####  花咲茜  
+##### 78#       发表于 2024-12-4 08:42
+
+绝壁好货，我已经等不及了
+
+*****
+
+####  真爱与热情  
+##### 79#       发表于 2024-12-4 08:42
+
+鹤卷和哉来了，我们有了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+希望不会成为回旋镖
+
+*****
+
+####  11116等  
+##### 80#       发表于 2024-12-4 08:43
+
+又是女人开高达？机设倒还挺好看的
+
+—— 来自 OnePlus PGKM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  11116等  
+##### 81#       发表于 2024-12-4 08:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66837692&amp;ptid=2209276" target="_blank">创始’’’天翔 发表于 2024-12-4 08:33</a>
+看制作阵容基本都是khara，日升三组在干啥？不会也在憋新作吧</blockquote>
+答案是哈撒韦！
+
+—— 来自 OnePlus PGKM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  knight_rjj  
+##### 82#       发表于 2024-12-4 08:44
+
+最后开着高达 展开NT版本的AT力场拿手互相撕力场都不奇怪
+
+*****
+
+####  马桶3  
+##### 83#       发表于 2024-12-4 08:46
+
+机设怎么那么丑，模型也好丑，这是想学假面骑士用抽象突破用户八奇审美吗，着看得我目前连模型都不想买
+

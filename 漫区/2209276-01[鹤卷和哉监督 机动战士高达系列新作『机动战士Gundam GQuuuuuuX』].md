@@ -5463,3 +5463,68 @@ AGE人设接受不了的人那纯属活的太久脱离群众（小友）了，AG
 
 希望别整烂活
 
+
+*****
+
+####  雪莉露  
+##### 586#       发表于 2024-12-4 16:10
+
+是新高达！不是国家队！！<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  巴尔干炮  
+##### 587#       发表于 2024-12-4 16:12
+
+<blockquote>hkguty 发表于 2024-12-4 14:41
+我更在意贴吧那舅舅说闪哈第二部剧情会有大改动，会有量产牛是不是真的</blockquote>
+把原作没写的战斗过程做出来，给义军加点老古董卖胶，让布莱德提前登场。
+
+*****
+
+####  型月神话伊阿宋  
+##### 588#       发表于 2024-12-4 16:12
+
+ 本帖最后由 型月神话伊阿宋 于 2024-12-4 16:14 编辑 
+
+<img src="https://img.saraba1st.com/forum/202412/04/161129nobo2vx8v8m26hvb.jpg" referrerpolicy="no-referrer">
+
+<strong>45332df0f11ff81ff04903a4f5fabca0_-9lddQ92io-7g4nZcT3cSz0-180.jpg</strong> (83.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 16:11 上传
+
+<img src="https://img.saraba1st.com/forum/202412/04/161147ui8jacterji78h8z.jpg" referrerpolicy="no-referrer">
+
+<strong>2fffb9cb2ad58720f1edce87058e1645_-9lddQ19w-e50qK29T3cSsg-g0.jpg.medium.jpg</strong> (41.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 16:11 上传
+
+感觉女主实际身材还行？
+
+*****
+
+####  菲特妹  
+##### 589#       发表于 2024-12-4 16:14
+
+还搞女铜吗
+
+*****
+
+####  novem  
+##### 590#       发表于 2024-12-4 16:14
+
+这群人不吸取一下水星失败的教训吗，还来这套，台长狂喜
+
+*****
+
+####  leonlink  
+##### 591#       发表于 2024-12-4 16:15
+
+除了荔枝浮游炮其他都还能接受
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

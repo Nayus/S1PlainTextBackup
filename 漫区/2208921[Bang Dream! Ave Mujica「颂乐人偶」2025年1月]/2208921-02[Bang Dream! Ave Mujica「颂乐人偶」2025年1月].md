@@ -3564,3 +3564,13 @@ ykn爹这么正常在萝里最重要的戏份也就是肯定一下ykls的关系�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果3710分别是睦祥子初华爆，好像能和mygo爆点集数对的上，当然更得感慨下不愧是幼驯染组呢，前期中期后期全占了
 
+
+*****
+
+####  星天观测  
+##### 1793#       发表于 2024-12-4 16:11
+
+最好笑的是，最喜欢提楚平方和ykn，但是真没看出多了解楚平方和ykn
+
+一定要用自己不了解的东西来试图获得认同吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

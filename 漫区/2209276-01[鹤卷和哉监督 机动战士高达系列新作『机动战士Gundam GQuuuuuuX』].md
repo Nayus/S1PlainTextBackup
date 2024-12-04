@@ -7453,3 +7453,69 @@ IF线试水意思挺明显，看这个 ...</blockquote>
 
 都说重返吉翁总部，兴许是祖国(father land)的剧情呢？
 
+
+*****
+
+####  滴虫研究学家  
+##### 788#       发表于 2024-12-4 23:24
+
+有没有一种可能本作顺便还要培养池田秀一的接班人🤔
+
+*****
+
+####  三俗怪人  
+##### 789#       发表于 2024-12-4 23:27
+
+谁能说说这种设计算工业风吗？ 个人感觉更像是机械臂风格，而且不是工业机械臂，更像协作机械臂。 那个背包太像abb的yumi了。来自: iPhone客户端
+
+*****
+
+####  budong  
+##### 790#       发表于 2024-12-4 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66845775&amp;ptid=2209276" target="_blank">刺客ares 发表于 2024-12-4 23:22</a>
+看到别处消息有说12集的有说24集的，说12集的更多点
+
+这设定24集都勉强够讲，12集恐怕需要信息轰炸+连续超 ...</blockquote>
+肯定是12级+12级分割
+
+*****
+
+####  会长辅佐  
+##### 791#       发表于 2024-12-4 23:28
+
+意思是这次是新元祖咯，痞子这是毁人不倦啊，真的草了
+
+
+*****
+
+####  Gandalf  
+##### 792#       发表于 2024-12-4 23:30
+
+富野老uc和其他uc分开看就行<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+反正玩具广告片，你都多少个uc平行宇宙了，管他什么神棍不神棍的，你演得合理好看就行。
+
+比如大文豪的驴和nt剧场版这种就是一坨
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+*****
+
+####  蕾洁之风  
+##### 793#       发表于 2024-12-4 23:30
+
+火力全吸引到庵野一人身上，怀疑这也是对鹤卷报恩的一种方式<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mousy55555  
+##### 794#       发表于 2024-12-4 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66845118&amp;ptid=2209276" target="_blank">NBGI 发表于 2024-12-4 21:40</a>
+
+网页是真实存在过的，已经被固定证据了
+
+要么草台班子，要么意大利临时工塞私活 ...</blockquote>
+还有就是乐子人黑进去了替换页面图片然后截图，想玩出这种效果来其实很多技术手段，但我还是要骂自媒体司马，这种跟宣传片完全不搭调的剧情经过自媒体传播令很多人直接就当真了
+

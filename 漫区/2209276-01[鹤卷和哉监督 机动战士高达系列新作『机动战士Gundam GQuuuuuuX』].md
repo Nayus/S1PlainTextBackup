@@ -7519,3 +7519,58 @@ IF线试水意思挺明显，看这个 ...</blockquote>
 要么草台班子，要么意大利临时工塞私活 ...</blockquote>
 还有就是乐子人黑进去了替换页面图片然后截图，想玩出这种效果来其实很多技术手段，但我还是要骂自媒体司马，这种跟宣传片完全不搭调的剧情经过自媒体传播令很多人直接就当真了
 
+
+*****
+
+####  iceplatinum  
+##### 795#       发表于 2024-12-4 23:34
+
+哇，不得不留下言
+
+*****
+
+####  patema  
+##### 796#       发表于 2024-12-4 23:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">痞子就写了剧情，结果一切都被他背负了，山下爽飞了
+
+*****
+
+####  mousy55555  
+##### 797#       发表于 2024-12-4 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66845400&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2024-12-4 22:21</a>
+
+https://web.archive.org/web/20241204000859/https://it.gundam.info/about-gundam/series-pages/gquuuu ...</blockquote>
+这就是典型的WEB缓存欺诈，因为我没有在这网页活着的时候点进去，所以其他元素都正常加载的但就是剧情介绍那张图片直接黑了加载不出来，反正这玩意现在是假的几率比较高
+
+*****
+
+####  cc-2  
+##### 798#       发表于 2024-12-4 23:39
+
+高达作为玩具宣传片
+
+这胶实在是太丑了啦<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Toby_dak  
+##### 799#       发表于 2024-12-4 23:41
+
+ 本帖最后由 Toby_dak 于 2024-12-5 00:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66845850&amp;ptid=2209276" target="_blank">mousy55555 发表于 2024-12-5 00:35</a>
+
+这就是典型的WEB缓存欺诈，因为我没有在这网页活着的时候点进去，所以其他元素都正常加载的但就是剧情介 ...</blockquote>
+那你来解析下问什么8:58和8:59抓到两个存档的意大利版，而现在官网跳转时却404？如果原本就不存在的网页，是怎么被爬到还被黑的？
+
+更不要说现在各种爆料出来的机设图，指向性还不明显？
+
+*****
+
+####  Rebellionx5  
+##### 800#       发表于 2024-12-4 23:43
+
+回看《天空的学校》也是UC0085年的少女主角，以小打小闹的MS模拟战开始的故事，当然是正史0085，于是往后演变就成了Z的外传……
+

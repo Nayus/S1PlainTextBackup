@@ -350,3 +350,11 @@ VCRGTA3已知的部分情报（一些主播直播的时候透露的）
 才刷到，react居然被17live收购了……
 混得也太惨了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  OldGlory  
+##### 925#       发表于 2024-12-4 23:37
+
+不是 我记得当时月之说的是能签约索尼才能实现梦想 不希望自己的梦想被破坏 怎么现在解约反而开香槟了
+

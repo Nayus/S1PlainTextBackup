@@ -4951,3 +4951,23 @@ riiki的问题显然是独角兽、柿本和制作人都不觉得有问题，而
 
 不觉得喵人气会低，能爆团的都是人气潜力股
 
+
+*****
+
+####  skives10  
+##### 1928#       发表于 2024-12-4 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66845781&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-4 23:23</a>
+我倾向于还是港口，这个东西看着像系船柱</blockquote>
+只能说这画面太糊了 辨认不了一点
+当成会场附近也算是给穿着舞台服装强加合理性了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  swessia  
+##### 1929#       发表于 2024-12-4 23:40
+
+你们这说的，小木头感觉像个经验包，祥素海都想吃了涨人气
+
+所以底边立希能吃吗
+

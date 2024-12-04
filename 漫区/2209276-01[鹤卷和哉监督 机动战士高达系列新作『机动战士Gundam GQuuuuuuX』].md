@@ -5363,3 +5363,30 @@ AGE人设接受不了的人那纯属活的太久脱离群众（小友）了，AG
 
 —— 来自 Xiaomi 22127RK46C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  ティグル  
+##### 575#       发表于 2024-12-4 15:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66841374&amp;ptid=2209276" target="_blank">hkguty 发表于 2024-12-4 14:41</a>
+
+我更在意贴吧那舅舅说闪哈第二部剧情会有大改动，会有量产牛是不是真的</blockquote>
+不改不行，原作第二卷全程聊天
+
+你让观众去电影院看这个？
+
+
+*****
+
+####  Piano-Forest  
+##### 576#         楼主| 发表于 2024-12-4 15:44
+
+＜アミューズメント景品＞
+
+【限械突破】GQuuuuuuXフィギュア（仮）
+
+展開日：202５年５月予定
+<img src="https://p.sda1.dev/20/f35f8fc843f4953b5ae21036f245b614/ara5m-v3vg8-010.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/ff48ebe7074a61615444f082fd16a099/1-1-1-890x1024.jpg" referrerpolicy="no-referrer">
+

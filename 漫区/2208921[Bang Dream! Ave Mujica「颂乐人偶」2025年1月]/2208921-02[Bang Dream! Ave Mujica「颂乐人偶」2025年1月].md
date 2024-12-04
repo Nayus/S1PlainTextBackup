@@ -3504,3 +3504,30 @@ ykn爹这么正常在萝里最重要的戏份也就是肯定一下ykls的关系�
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  星天观测  
+##### 1786#       发表于 2024-12-4 15:35
+
+ 本帖最后由 星天观测 于 2024-12-4 15:38 编辑 
+
+还要继续轮回吗，想看商战去起点番茄管饱
+
+重复等于强调的话不如想一想重复了那么多次的独角仙要怎么交代
+
+
+*****
+
+####  御景  
+##### 1787#       发表于 2024-12-4 15:42
+
+建议讨论之前，先看下这是什么番，颂乐人偶，主题是少女乐队，不是商战，也不是家庭伦理
+
+*****
+
+####  skives10  
+##### 1788#       发表于 2024-12-4 15:42
+
+这三天一直在循环kiss to me kiss to me kiss to love🎵kiss to me kiss to me kiss to love🎵kiss to me kiss to me kiss to love🎵kiss to me kiss to me kiss to love🎵kiss to me kiss to me kiss to love🎵kiss to me kiss to me kiss to love🎵kiss to me kiss to me kiss to love🎵kiss to me kiss to me kiss to love🎵kiss to me kiss to me kiss to love🎵
+

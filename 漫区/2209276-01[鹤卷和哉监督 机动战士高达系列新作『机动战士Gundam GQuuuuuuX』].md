@@ -979,3 +979,77 @@ eva加高达有没有搞头？
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  1899milan  
+##### 113#       发表于 2024-12-4 09:09
+
+G社高达来了！<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Rhantolk  
+##### 114#       发表于 2024-12-4 09:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">痞子不是自从新哥之后没一部行的吗，真能相信吗
+
+*****
+
+####  临界点  
+##### 115#       发表于 2024-12-4 09:10
+
+这造型更像天元突破吧
+
+*****
+
+####  亚瑟邓特  
+##### 116#       发表于 2024-12-4 09:10
+
+新国家队！！！
+鹤卷我信你啊<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+*****
+
+####  HighTouch  
+##### 117#       发表于 2024-12-4 09:11
+
+痞子大概就是过来充场面的，我觉得他不太会贡献多少
+
+
+*****
+
+####  滴虫研究学家  
+##### 118#       发表于 2024-12-4 09:12
+
+泥潭一吹国家队那基本上已经可以肯定翻车了
+
+*****
+
+####  Freakyyu  
+##### 119#       发表于 2024-12-4 09:17
+
+这个阵容，吓人。
+女性担当主角，更吓人<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  cckuku  
+##### 120#       发表于 2024-12-4 09:17
+
+怎么这台还不是高达？高达是男主开的那台。
+
+
+*****
+
+####  Libartas  
+##### 121#       发表于 2024-12-4 09:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66838051&amp;ptid=2209276" target="_blank">HighTouch 发表于 2024-12-4 09:11</a>
+痞子大概就是过来充场面的，我觉得他不太会贡献多少</blockquote>
+除了剧本还挂了分镜，不过我真怀疑这玩意的篇幅，不然痞子现在还画的动tv动画的分镜？
+

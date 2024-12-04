@@ -3531,3 +3531,18 @@ ykn爹这么正常在萝里最重要的戏份也就是肯定一下ykls的关系�
 
 这三天一直在循环kiss to me kiss to me kiss to love🎵kiss to me kiss to me kiss to love🎵kiss to me kiss to me kiss to love🎵kiss to me kiss to me kiss to love🎵kiss to me kiss to me kiss to love🎵kiss to me kiss to me kiss to love🎵kiss to me kiss to me kiss to love🎵kiss to me kiss to me kiss to love🎵kiss to me kiss to me kiss to love🎵
 
+
+*****
+
+####  椎名真希  
+##### 1789#       发表于 2024-12-4 15:48
+
+第一集开头LIVE就是OP，第二集开始应该有OP画面，虽然估计也是LIVE，像mygo那样没有什么信息量
+
+*****
+
+####  skives10  
+##### 1790#       发表于 2024-12-4 15:49
+
+我怀疑op歌词是初华的心声
+

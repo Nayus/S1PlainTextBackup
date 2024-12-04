@@ -6509,3 +6509,38 @@ Mobile A R M O R Gundam         啊 ?<img src="https://static.saraba1st.co
 
 2024-12-4 18:55 上传
 
+
+*****
+
+####  cayon  
+##### 692#       发表于 2024-12-4 18:57
+
+夏亚不会没复仇就寄了吧，那是有点搞笑了
+
+*****
+
+####  oi99o  
+##### 693#       发表于 2024-12-4 18:59
+
+看隔壁有人估计夏亚意识融进红高达里了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我不好说
+
+*****
+
+####  g救世主高达  
+##### 694#       发表于 2024-12-4 19:01
+
+<blockquote>oi99o 发表于 2024-12-4 18:59
+看隔壁有人估计夏亚意识融进红高达里了我不好说</blockquote>
+没想到这个世界线夏亚的nt能力这么强，估计没了阿姆罗天天和拉拉腻歪，nt能力也变强了
+
+
+*****
+
+####  ParadiseMartyr  
+##### 695#       发表于 2024-12-4 19:05
+
+等等，吉翁赢了是啥后果来着
+吉翁搞战争的诉求是啥来着
+吉翁赢了那是扎比家统治了？
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我他妈全忘了
+

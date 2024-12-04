@@ -489,3 +489,36 @@ ai 届的茉莉阿迪教授
 
 已经比肩牛顿了吗？！<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  空気力学  
+##### 47#       发表于 2024-12-4 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66842885&amp;ptid=2209334" target="_blank">Luhikari 发表于 2024-12-4 16:47</a>
+有可能彻底取代扩散模型，把图像生成彻底融入现有 LLMs 的框架中
+
+illustriousXL完全比不了，细节磨了磨而 ...</blockquote>
+我看你像田同学本田<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.94-alpha
+
+*****
+
+####  毒菇  
+##### 48#       发表于 2024-12-4 19:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">感觉有人封圣的心蠢蠢欲动，捧起再杀这么多回真的玩不腻啊
+
+*****
+
+####  Luhikari  
+##### 49#       发表于 2024-12-4 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66843239&amp;ptid=2209334" target="_blank">pigsy 发表于 2024-12-4 17:23</a>
+
+瞎JB扯，这论文你到底看没看啊</blockquote>
+在这件事情没有发生之前，我就仔细读过，并认为这篇工作有望 best paper 了
+
+我上面没有一句话是毫无依据的瞎扯，要学术 battle 就逐句反驳
+

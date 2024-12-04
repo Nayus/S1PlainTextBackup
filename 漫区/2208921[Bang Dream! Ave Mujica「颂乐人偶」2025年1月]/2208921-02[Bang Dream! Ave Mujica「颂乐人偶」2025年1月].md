@@ -4221,3 +4221,62 @@ PP那组人都在好好上学也没人过多关注。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">个人猜测：睦影响最严重，在学校说不定要soyo先探探口风？ 不过如果考虑鸡在狗里的剧情，也有挺大概率独角兽干脆直接就让睦头人在家里关禁闭自闭了……
 
+
+*****
+
+####  Aendst  
+##### 1858#       发表于 2024-12-4 21:18
+
+爽世还是别添乱了吧，她在mygo已经是踩雷大师了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这时候还上去踩雷是想复刻一下避雷针大冒险成为富兰克林吗
+
+*****
+
+####  狮子咕  
+##### 1859#       发表于 2024-12-4 21:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以我觉得直接让睦不上学了是个很干脆的解决方式，反正pv里她看起来也是在家里爆炸的样子
+
+*****
+
+####  PDQ4  
+##### 1860#       发表于 2024-12-4 21:22
+
+你别说，如果参考小剧场，睦再去上学可能周围人的真都是噪音，全是单方面猜测，不想听不想看不想说
+
+这种情况下爽姐如果再去问祥子我不敢想，爽姐你真还是坐下吧，立希去问海铃要好很多<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  狮子咕  
+##### 1861#       发表于 2024-12-4 21:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">soyo帮睦：被骂抢戏；soyo问睦：被骂添乱……怎么想都是睦自己去不成学校最没有节奏（上吧祥子，自己去把睦拉出来，虽然想不到她怎么拉）
+
+*****
+
+####  御幸一也  
+##### 1862#       发表于 2024-12-4 21:26
+
+畢竟半身幼馴染，相信相信再相信就對了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 我也想不到還能是誰去拉睦了呢
+
+*****
+
+####  Aendst  
+##### 1863#       发表于 2024-12-4 21:26
+
+ 本帖最后由 Aendst 于 2024-12-4 21:28 编辑 
+
+就ep01这个矛盾爆发的烈度和速度，爽世真上了如果出什么问题，那就不是节奏不节奏的问题了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+对爽世好点吧，跟爱音安安稳稳是福
+
+*****
+
+####  贰臣  
+##### 1864#       发表于 2024-12-4 21:27
+
+祥又是p又是半身，想不到她不掺和的理由<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

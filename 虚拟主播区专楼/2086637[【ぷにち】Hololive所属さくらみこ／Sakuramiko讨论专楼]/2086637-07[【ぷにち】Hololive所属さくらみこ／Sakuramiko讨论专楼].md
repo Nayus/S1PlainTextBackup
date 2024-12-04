@@ -17779,3 +17779,49 @@ vivi比我想象的还35P
 
 vivi要上墙了么，这也许是计划的一部分
 
+
+*****
+
+####  holoan  
+##### 10346#         楼主| 发表于 2024-12-4 20:20
+
+<img src="https://img.saraba1st.com/forum/202412/04/202058ff06wgsp04w6kyyk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 20:20 上传
+
+*****
+
+####  holoan  
+##### 10347#         楼主| 发表于 2024-12-4 20:30
+
+<img src="https://img.saraba1st.com/forum/202412/04/203000hgb3z4rp73p6b7p7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (4.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 20:30 上传
+
+。。。
+
+
+*****
+
+####  holoan  
+##### 10348#         楼主| 发表于 2024-12-4 20:32
+
+stage3的现有组合很多，要跟谁组依然猜不出来
+
+个人比较希望能sora久违地合唱一次，不知道能不能实现了
+
+*****
+
+####  karastar  
+##### 10349#       发表于 2024-12-4 20:32
+
+bae和轰在同一天，有机会吗
+

@@ -6999,3 +6999,11 @@ UC就UC吧。啊！居然是吉恩胜利的世界线<img src="https://static.sar
 
 所以这里原历史的人物也会登场嘛，很好奇竹的画风里面夏亚啊紫色老太婆这堆人会是什么造型<img src="https://static.saraba1st.com/image/smiley/carton2017/424.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  七层嘉影  
+##### 745#       发表于 2024-12-4 20:28
+
+另外这个PV机站分镜不要太EVA
+

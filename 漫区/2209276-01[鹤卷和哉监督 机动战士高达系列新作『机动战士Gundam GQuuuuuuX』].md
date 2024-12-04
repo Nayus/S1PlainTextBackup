@@ -4191,3 +4191,157 @@ EVA高达，新▪高达<img src="https://static.saraba1st.com/image/smiley/face
 
 2024-12-4 12:01 上传
 
+
+*****
+
+####  Piano-Forest  
+##### 454#         楼主| 发表于 2024-12-4 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66837530&amp;ptid=2209276" target="_blank">Piano-Forest 发表于 2024-12-4 08:09</a>
+
+『機動戦士Gundam GQuuuuuuX』より、
+
+早くも「HG 1/144 GQuuuuuuX」のパッケージイラストを公開！</blockquote>
+ガンダムシリーズ最新作『機動戦士Gundam GQuuuuuuX』（#ジークアクス）より、主役機「GQuuuuuuX」がMETAL ROBOT魂で登場！
+
+📌[https://tamashiiweb.com/item/15234/](https://tamashiiweb.com/item/15234/)
+
+金属の質感＆重量感、精密なマーキングや色彩表現でその魅力に迫る！
+
+一般店頭で2025年8月発売予定、2024年12月5日予約開始!!
+<img src="https://p.sda1.dev/20/791e8412a0b1f060538fd5517525fb93/20241204_120659.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/f198e2b677ad0be996976705e8c17d26/item_0000015234_D5L1kkEL_01.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/7521f046785bf391898836ce2dd11f7d/item_0000015234_2E0wYqXO_03.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/eb8e05e7135a12da5e3873d9a5f66f38/item_0000015234_2E0wYqXO_04.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/8b68f2375d0d819a4ce6726efdb0b269/item_0000015234_2E0wYqXO_06.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/7c7c650a8eb8dc6d74353ab53d80cc1b/item_0000015234_2E0wYqXO_07.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/bf3b5c3676c134b5b8d778addfe06bde/item_0000015234_2E0wYqXO_08.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  创始’’’天翔  
+##### 455#       发表于 2024-12-4 12:10
+
+<img src="https://img.saraba1st.com/forum/202412/04/120954rtnyfc12yyyz8lzc.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_370557883826975.jpg</strong> (58.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 12:09 上传
+
+<img src="https://img.saraba1st.com/forum/202412/04/121001ex99yz1hnyz6uwfl.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_370560051237495.jpg</strong> (84.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 12:10 上传
+
+<img src="https://img.saraba1st.com/forum/202412/04/121006zhzq3ww3qz7wyeq6.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_370562073148223.jpg</strong> (72.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 12:10 上传
+
+山下版本的牛高达
+
+*****
+
+####  天王寺凯伊姆  
+##### 456#       发表于 2024-12-4 12:11
+
+pv一股痞味或者说老gainax味，机设什么鬼？
+
+*****
+
+####  sephal  
+##### 457#       发表于 2024-12-4 12:11
+
+既然是eva那帮人主做，那就希望我能看懂吧，eva反正是不看别人解析我是完全看不懂
+
+*****
+
+####  DARK_HGCG  
+##### 458#       发表于 2024-12-4 12:12
+
+所以异闻带吉翁是抢了高达还被打到所罗门？联邦的61式是怪物吗？
+
+*****
+
+####  酒石酸唑吡坦  
+##### 459#       发表于 2024-12-4 12:12
+
+感觉人设有点敷衍<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白愁帝皇  
+##### 460#       发表于 2024-12-4 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66840108&amp;ptid=2209276" target="_blank">advancedigger 发表于 2024-12-4 12:02</a>
+这次要是成了，以后万代的高达动画就不用受限于日升的产能了，什么飞碟桌高达、京阿尼高达、骨头高达、马趴 ...</blockquote>
+ 想看动画工坊高达<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阴摩罗鬼之眼  
+##### 461#       发表于 2024-12-4 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66840108&amp;ptid=2209276" target="_blank">advancedigger 发表于 2024-12-4 12:02</a>
+
+这次要是成了，以后万代的高达动画就不用受限于日升的产能了，什么飞碟桌高达、京阿尼高达、骨头高达、马趴 ...</blockquote>
+想看迪斯尼高达，还有梦工厂高达
+
+*****
+
+####  Antidote丶  
+##### 462#       发表于 2024-12-4 12:16
+
+毫无违和感
+
+<img src="https://img.saraba1st.com/forum/202412/04/121632n9zl78sf13ba4391.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_0407.JPG</strong> (848.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 12:16 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  被击坠王  
+##### 463#       发表于 2024-12-4 12:17
+
+万代所谓的为了吸引圈外人为了话题性，现在看就是丑人多作怪
+
+*****
+
+####  RedSpecial  
+##### 464#       发表于 2024-12-4 12:17
+
+想看小米高达
+
+*****
+
+####  披头破落户  
+##### 465#       发表于 2024-12-4 12:17
+
+有趣的一点是这些泄露前几年就有了<img src="https://p.sda1.dev/20/c1a794c84ddd68b85b9908353afbc9e6/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+
+*****
+
+####  terminator1990  
+##### 466#       发表于 2024-12-4 12:18
+
+高达会咧嘴挺有意思，就是后面那俩大麻花辫推进器真难看…
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

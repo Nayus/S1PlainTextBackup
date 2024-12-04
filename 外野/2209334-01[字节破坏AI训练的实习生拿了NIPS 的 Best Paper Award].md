@@ -621,3 +621,21 @@ illustriousXL完全比不了，细节磨了磨而 ...</blockquote>
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  migros  
+##### 60#       发表于 2024-12-5 07:25
+
+人工智障的论文按规矩得看代码&amp;样例的
+
+都不说代码有没有了，写错了反而效果好也不是一次两次了
+
+这是我跟进复现各种“遥遥领先！业界突破性成果！xxxx best paper”的体验
+
+但是他这个我觉得第一是看不到了
+
+第二真拿他给的权重玩我怕我们集群爆炸<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2339FA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

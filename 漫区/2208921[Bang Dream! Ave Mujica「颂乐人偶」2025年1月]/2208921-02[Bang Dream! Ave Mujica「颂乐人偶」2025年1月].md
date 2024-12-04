@@ -3395,3 +3395,18 @@ ykn爹这么正常在萝里最重要的戏份也就是肯定一下ykls的关系�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.95-alpha
 
+
+*****
+
+####  OPCI_0125  
+##### 1777#       发表于 2024-12-4 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66840598&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2024-12-4 13:08</a>
+
+你说的对，大人出问题就不应该由孩子去解决，所以我压根就不看好Mujica会给祥子爹啥后续，顶多以后在游戏 ...</blockquote>
+不知道你是怎么理解咱发的那段话的，可能是表达或接受出了问题。
+
+咱根本不关心父母决定论，重要的是不管其成不成立祥爹都不值得投入什么笔墨&gt;&lt;
+
+无论是故事内说明父母的重要性，还是从故事外说明父母的工具性，都和咱表达的重点没关系。
+

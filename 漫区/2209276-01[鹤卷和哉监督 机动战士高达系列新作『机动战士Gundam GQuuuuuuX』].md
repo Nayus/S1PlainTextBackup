@@ -4761,3 +4761,29 @@ staff都阳痿了吗</blockquote>
 
 不过调亮图的红高达看得出腿部大修过了，应该脸也会修吧？
 
+
+*****
+
+####  朋友费小号  
+##### 516#       发表于 2024-12-4 13:42
+
+只看侧脸还行，正脸丑飞了
+
+*****
+
+####  震荡波  
+##### 517#       发表于 2024-12-4 13:43
+
+这个高达的面甲是不是可以爆开露出里面两排洁白蹭亮的牙齿？
+
+*****
+
+####  白愁帝皇  
+##### 518#       发表于 2024-12-4 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66840738&amp;ptid=2209276" target="_blank">AkaiSuisei 发表于 2024-12-4 13:31</a>
+这玩意儿痞子铁没什么私货好吧，给你留一话玩玩顶天了
+
+真让痞子做就做成sin gundam了，指不定把什么UC008X ...</blockquote>
+目前舅舅说就是把uc拉出来拍了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是鸭子叔叔抢到高达的世界线
+

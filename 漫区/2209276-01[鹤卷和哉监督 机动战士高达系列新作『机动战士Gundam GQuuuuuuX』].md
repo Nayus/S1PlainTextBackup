@@ -5346,3 +5346,20 @@ AGE人设接受不了的人那纯属活的太久脱离群众（小友）了，AG
 
 不过玩具和建模的脑袋怎么做成现在这个样子了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ティグル  
+##### 573#       发表于 2024-12-4 15:33
+
+用了半天的时间都没办法跟这个机设和解，实在是不能同步潮酷审美
+
+*****
+
+####  mj240608414  
+##### 574#       发表于 2024-12-4 15:34
+
+刚刚回顾了一下朱紫人设，这黑长直和男主不就是也慈拆成两份吗<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22127RK46C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

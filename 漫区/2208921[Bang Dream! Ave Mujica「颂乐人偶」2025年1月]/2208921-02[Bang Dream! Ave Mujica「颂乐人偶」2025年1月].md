@@ -3098,3 +3098,35 @@ ykn爹这么正常在萝里最重要的戏份也就是肯定一下ykls的关系�
 没砸到吗
 我现场看的感觉是砸到头了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蜇灵  
+##### 1753#       发表于 2024-12-4 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66837090&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-4 02:46</a>
+烂完了其实也是传奇，毕竟为了和牢爹包饺子把机构都垫了
+
+结合之后的对邦可以当场宣布CRYCHIC复活机构堂堂解 ...</blockquote>
+学什么不好学花田是吧，等等，鸡狗加mana正好11人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  akiomn  
+##### 1754#       发表于 2024-12-4 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839958&amp;ptid=2208921" target="_blank">椎名真希 发表于 2024-12-4 11:46</a>
+没砸到吗
+我现场看的感觉是砸到头了</blockquote>
+我看的盗摄，像是砸在旁边的门框了，如果是砸在祥子上的话祥子应该有捂脸遮痛的反应吧
+
+*****
+
+####  蜇灵  
+##### 1755#       发表于 2024-12-4 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839578&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-4 11:09</a>
+请安排舞台剧吻戏此事在wds亦有记载</blockquote>
+太刺激了，我怕下面观众疯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

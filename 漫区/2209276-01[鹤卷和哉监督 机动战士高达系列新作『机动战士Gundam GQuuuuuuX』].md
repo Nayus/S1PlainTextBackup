@@ -3862,3 +3862,121 @@ G高达是打擂台，这个更像打黑拳，大姐头给女主换宇航服的�
 
 这两台机体是不是要光速出MR，感觉机设就是纯潮玩机设啊
 
+
+*****
+
+####  Mitiru  
+##### 418#       发表于 2024-12-4 11:47
+
+榎戸洋司，带我们再讴歌一次青春吧
+庵野：有我在别想青春了
+
+*****
+
+####  魔灵高达  
+##### 419#       发表于 2024-12-4 11:49
+
+其实还好，主要是全红配色真的是非人类级的丑陋，红色这台换个配色可接受的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  ads147147  
+##### 420#       发表于 2024-12-4 11:50
+
+说起来，op不可能又是夜游吧，有没有可能是宇多田光。。。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  岸浪白野  
+##### 421#       发表于 2024-12-4 11:51
+
+<img src="https://p.sda1.dev/20/1635715032a840af63db18931d9ba589/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  猫兔同笼  
+##### 422#       发表于 2024-12-4 11:53
+
+等不及要品鉴了，痞子那批人做高达是迟早的事，本以为要等到光头合眼后了没想到来的这么快<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Hidewhite  
+##### 423#       发表于 2024-12-4 11:53
+
+以现在高达的质量，还是承认现实别切割了， 不然以后怕不是切割部分比没切割部分还多了。现在高达就死马当活马医的凑合，成不成看命。
+
+*****
+
+####  xwz  
+##### 424#       发表于 2024-12-4 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66838828&amp;ptid=2209276" target="_blank">10th_Mystery 发表于 2024-12-4 10:15</a></blockquote>
+是情报哥<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2407FRK8EC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  岸浪白野  
+##### 425#       发表于 2024-12-4 11:53
+
+挺有那味的
+<img src="https://p.sda1.dev/20/e7c8f62ef9cd2357e51f8cf0ba88a18a/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  没取名啊  
+##### 426#       发表于 2024-12-4 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66840015&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2024-12-4 11:53</a>
+挺有那味的</blockquote>
+又来啊，张嘴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  解构  
+##### 427#       发表于 2024-12-4 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839438&amp;ptid=2209276" target="_blank">PascalLefèvre 发表于 2024-12-4 10:58</a>
+但是不觉得这种有点生物感的机器人真的很酷吗，让我想到竹谷隆之的那个吉姆王（
+
+ ...</blockquote>
+你再看看你发的这个和那个红元祖是一个东西吗？那头部，那配色真高低够得上一个精神伤害了，看着眼睛疼。
+
+*****
+
+####  wsdbyh  
+##### 428#       发表于 2024-12-4 11:55
+
+本子这十来年所谓潮机设的设计语言是不是不管三七二十一全往adidas，耐克出的那些五颜六色的运动球鞋上靠<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  魔天使  
+##### 429#       发表于 2024-12-4 11:56
+
+EVA高达，新▪高达<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Moltres.lv70  
+##### 430#       发表于 2024-12-4 11:57
+
+这不是序章吗，其实这个根本不是高达，真正的高达在后面呢，鹤卷哥哥肯定是有惊喜给大家的
+
+*****
+
+####  PascalLefèvre  
+##### 431#       发表于 2024-12-4 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66840029&amp;ptid=2209276" target="_blank">解构 发表于 2024-12-4 11:54</a>
+
+你再看看你发的这个和那个红元祖是一个东西吗？那头部，那配色真高低够得上一个精神伤害了，看着眼睛疼。 ...</blockquote>
+首先模型大概率是比设定稿好看的，其次配色不就是夏亚元祖配色，等成片出了再骂也不迟
+

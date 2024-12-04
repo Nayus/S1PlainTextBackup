@@ -7168,3 +7168,22 @@ attachimg]1792693[/attachimg]
 
 夏亚不找扎比家报仇了吗，感觉这个世界线骡子是彻底败给夏亚了，以及UC那一大堆人物应该都不会登场。
 
+
+*****
+
+####  stygianlunar  
+##### 759#       发表于 2024-12-4 21:50
+
+虽然痞子应该不会整什么洗白吉翁的操作，但搞出新-高达也是有可能的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+最好还是谨慎，谨慎吧。哪怕它整个重返吉翁总部也行
+
+*****
+
+####  一个陆仁贾  
+##### 760#       发表于 2024-12-4 21:52
+
+看鸡翅的反应我感觉应该是真的啊，而且红高达的介绍也能和这故事介绍对上一些，如果是错的那是从哪个阶段开始错<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

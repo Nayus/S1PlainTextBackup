@@ -4388,3 +4388,116 @@ soyo去找睦是去要黄瓜吗，问能不能再送一次？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有可能就是因为可能涉及家庭，所以最有机会插手的才只有祥子，只有祥子和睦是有家庭层面的联系的，无关血缘
 
+
+*****
+
+####  狮子咕  
+##### 1876#       发表于 2024-12-4 21:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真无关血缘的话，祥子现在自己跑路也很难用家庭层面关系解决了吧，除非兜兜转转又来点前几天被讨论烂了的丰川家若叶家之间的关系……之前不是刚寻思把这种背景部分的剧情排除掉吗
+
+*****
+
+####  skives10  
+##### 1877#       发表于 2024-12-4 21:49
+
+我感觉pv已经剧透了
+奶一口海港对决就是睦线的高潮……
+
+*****
+
+####  狮子咕  
+##### 1878#       发表于 2024-12-4 21:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">通过舞台剧把自己的真心话都说出来（从祥子的表情看起来估计刀刀真伤）
+
+*****
+
+####  akiomn  
+##### 1879#       发表于 2024-12-4 21:51
+
+海港对决问题在为什么两人穿着演出服？
+不过我看好睦线最后是睦向祥子爆了，毕竟睦在go本篇属于两边受气，鸡篇唯一能爆的对象只有祥子
+
+*****
+
+####  PDQ4  
+##### 1880#       发表于 2024-12-4 21:53
+
+漏u是不是真属二极管的，做不到具体问题具体分析
+
+睦的问题本身涉及到她童年阴影，PV里演技书就注定绕不开睦妈，要讲这部分问题势必要牵扯到家庭，那祥子自然会介入进去
+
+而祥子的家庭相关问题第一季就给你扔下线了，现在她的问题是牵扯到她母亲去世的心伤
+
+讲她心伤的时候没讲家吗，睦不在旁边吗，这不是没解决才变成现在这个样子，此路不通，要换个法子
+
+当然漏u要是贷款其实ave mujica是个心伤二次触发地，所有人的问题爆炸后最相关人员都无法解决必须再引入外力
+
+最后变成一个巨大的俄罗斯套娃系列连续剧，那我无话可说，还是那句话，烂到极致也是传奇<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 1881#       发表于 2024-12-4 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66845192&amp;ptid=2208921" target="_blank">狮子咕 发表于 2024-12-4 21:48</a>
+
+真无关血缘的话，祥子现在自己跑路也很难用家庭层面关系解决了吧，除非兜兜转转又来点前几天被讨论烂了的丰 ...</blockquote>
+不是很懂你的逻辑
+
+你的家庭关系是只有冷漠的大人勾心斗角和豪门内斗，所以充满了一股社畜上班辞职走人就什么都管不了的味吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+别惦记豪门内斗和商战了
+
+*****
+
+####  skives10  
+##### 1882#       发表于 2024-12-4 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66845219&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-4 21:51</a>
+海港对决问题在为什么两人穿着演出服？
+不过我看好睦线最后是睦向祥子爆了，毕竟睦在go本篇属于两边受气， ...</blockquote>
+会不会是两个人大晚上在外面排练<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  金钱与民主  
+##### 1883#       发表于 2024-12-4 21:56
+
+既然说Mujica有悬疑剧的氛围，那PV展现给你的画面可能存在故意的误导性哦。<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 1884#       发表于 2024-12-4 21:56
+
+大晚上在港口排练是想做什么<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  狮子咕  
+##### 1885#       发表于 2024-12-4 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66845238&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-4 21:54</a>
+
+不是很懂你的逻辑
+
+你的家庭关系是只有冷漠的大人勾心斗角和豪门内斗，所以充满了一股社畜上班辞职走人就 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这方面感觉也没有别的能讨论出心意的东西了，等第二集出来基本都明了
+
+*****
+
+####  higuchiguchi  
+##### 1886#       发表于 2024-12-4 21:56
+
+不能是拍mv吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  狮子咕  
+##### 1887#       发表于 2024-12-4 21:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">《我推的祥子》
+

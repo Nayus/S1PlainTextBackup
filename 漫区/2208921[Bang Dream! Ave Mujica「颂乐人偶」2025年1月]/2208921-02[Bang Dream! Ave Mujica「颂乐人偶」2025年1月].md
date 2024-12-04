@@ -2954,3 +2954,39 @@ QQ图片20241204091737.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在台上看似按照人设戏份表演，实际上发泄情绪打架，观众们直呼过瘾（不会的）
 
+
+*****
+
+####  skives10  
+##### 1740#       发表于 2024-12-4 11:09
+
+请安排舞台剧吻戏此事在wds亦有记载
+
+*****
+
+####  Aendst  
+##### 1741#       发表于 2024-12-4 11:13
+
+这吻戏会每一场换个相方来对手戏吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  枫林不见  
+##### 1742#       发表于 2024-12-4 11:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">我只想看到键帽强吻大祥
+
+*****
+
+####  椎名真希  
+##### 1743#       发表于 2024-12-4 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839538&amp;ptid=2208921" target="_blank">狮子咕 发表于 2024-12-4 11:06</a>
+在台上看似按照人设戏份表演，实际上发泄情绪打架，观众们直呼过瘾（不会的） ...</blockquote>
+Doloris台上拥吻Oblivionis
+Amoris把Timoris弄哭了被Oblivionis痛骂
+Timoris满台追打Amoris
+观众：太精彩了编剧怎么这么会写
+祥子：我的世界观啊！<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+

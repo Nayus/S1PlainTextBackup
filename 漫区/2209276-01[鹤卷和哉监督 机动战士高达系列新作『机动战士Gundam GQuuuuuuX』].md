@@ -3236,3 +3236,269 @@ __ideon_threezero_x___monotone_1725077727_138cd4eb_progressive.jpg
 
 有得骂也是一种奢侈，高达粉丝不要要求太多
 
+
+*****
+
+####  Rhantolk  
+##### 351#       发表于 2024-12-4 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839534&amp;ptid=2209276" target="_blank">蓝色有脚⑨倍速 发表于 2024-12-4 11:06</a>
+
+怎么一个个都这么恨，不知道的还以为脚本只有痞子呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">痞子厨都已经把这当做痞子主导的大作在高潮了，接受不了的人也认为这是痞子不敢把自己放在主位置只敢塞在脚本里是打掩护。。。
+
+*****
+
+####  古怪山庄士大夫  
+##### 352#       发表于 2024-12-4 11:08
+
+泥楼是不是歪了，这部也不是痞子主导啊，鹤卷:我不要面子啊
+
+*****
+
+####  oi99o  
+##### 353#       发表于 2024-12-4 11:08
+
+话说不知道这回篇幅有多少，年番肯定不敢指望了，希望起码保持住半年番的长度吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  污陨血红  
+##### 354#       发表于 2024-12-4 11:09
+
+<img src="https://img.saraba1st.com/forum/202412/04/110855zdduqd2y0dzyils0.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ19w-868oK1aT1kShj-u0.jpg</strong> (49.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 11:08 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  leove25  
+##### 355#       发表于 2024-12-4 11:09
+
+虽然前面已经一大堆人说过痞子就挂了脚本，监督是鹤卷，团队也是鹤卷拉的，但后面还是一大堆人搁着骂痞子，难崩。
+
+*****
+
+####  llysander  
+##### 356#       发表于 2024-12-4 11:09
+
+冲这个bit的情怀也得给个面子啊<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+79年对塞克谬有了新的理解，引发第三次冲击炸了所罗门（
+
+*****
+
+####  PascalLefèvre  
+##### 357#       发表于 2024-12-4 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839565&amp;ptid=2209276" target="_blank">oi99o 发表于 2024-12-4 11:08</a>
+
+话说不知道这回篇幅有多少，年番肯定不敢指望了，希望起码保持住半年番的长度吧 ...</blockquote>
+好像是季番
+
+*****
+
+####  棒读  
+##### 358#       发表于 2024-12-4 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839449&amp;ptid=2209276" target="_blank">BN桑 发表于 2024-12-4 10:59</a>
+不是，这瘤子不就是艾尔美斯的浮游炮吗，画在鸡舍上是丑了点，但是如果0079高清化那这就是大家心心念念的玩 ...</blockquote>
+原版配色不是粉色，没那么恶心
+
+*****
+
+####  HATENA  
+##### 359#       发表于 2024-12-4 11:10
+
+不是先不说痞子八成就是挂名，他这人怎么可能拍板弄成这样，三个新电影什么造型你们又不是没见过，明显是鹤卷他们的手笔
+
+*****
+
+####  oi99o  
+##### 360#       发表于 2024-12-4 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839577&amp;ptid=2209276" target="_blank">PascalLefèvre 发表于 2024-12-4 11:09</a>
+
+好像是季番</blockquote>
+有消息来源吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  オルガピピック  
+##### 361#       发表于 2024-12-4 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839562&amp;ptid=2209276" target="_blank">Rhantolk 发表于 2024-12-4 11:08</a>
+
+痞子厨都已经把这当做痞子主导的大作在高潮了，接受不了的人也认为这是痞子不敢把自己放在主位置只敢塞在 ...</blockquote>
+鹤卷：你们这班痞子深柜快给我收拾包袱滚出去<img src="https://static.saraba1st.com/image/smiley/face2017/229.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  kisstv22  
+##### 362#       发表于 2024-12-4 11:11
+
+年番不会再有了吧
+
+*****
+
+####  bgmilk  
+##### 363#       发表于 2024-12-4 11:11
+
+      都这样了，还要整UC，唉老登，唉同人。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  supermangunv4  
+##### 364#       发表于 2024-12-4 11:11
+
+这算是宇宙世纪的第四个平行世界了？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  suzakushi  
+##### 365#       发表于 2024-12-4 11:11
+
+khara不是痞子的公司吗，痞子对这作的影响怎么可能摘干净。这狗屎EVA风格机设真的要吐了。
+
+*****
+
+####  HighTouch  
+##### 366#       发表于 2024-12-4 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839573&amp;ptid=2209276" target="_blank">leove25 发表于 2024-12-4 11:09</a>
+
+虽然前面已经一大堆人说过痞子就挂了脚本，监督是鹤卷，团队也是鹤卷拉的，但后面还是一大堆人搁着骂痞子， ...</blockquote>
+这就是请痞子来的意义，扯大旗拉仇恨<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  z692689995  
+##### 367#       发表于 2024-12-4 11:11
+
+所以ライズヘビー是改造前还是改造后的样子？
+
+*****
+
+####  古怪山庄士大夫  
+##### 368#       发表于 2024-12-4 11:12
+
+<blockquote>oi99o 发表于 2024-12-4 11:08
+话说不知道这回篇幅有多少，年番肯定不敢指望了，希望起码保持住半年番的长度吧 ...</blockquote>
+贴吧说应该做完了，那肯定是12集甚至以下，卡哈产能没那个高，就当几个ova看看
+
+*****
+
+####  山之内花音  
+##### 369#       发表于 2024-12-4 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839611&amp;ptid=2209276" target="_blank">z692689995 发表于 2024-12-4 11:11</a>
+所以ライズヘビー是改造前还是改造后的样子？</blockquote>
+有02的编号，应该是改造后的
+
+*****
+
+####  七层嘉影  
+##### 370#       发表于 2024-12-4 11:12
+
+开玩笑，痞子这帮人毁了几代人的青春，不骂一辈子对不起自己
+
+*****
+
+####  1096beam  
+##### 371#       发表于 2024-12-4 11:13
+
+再怎么样也得25集吧，顶多分割放送
+
+*****
+
+####  lulutia309  
+##### 372#       发表于 2024-12-4 11:13
+
+邪性机设，应该立即脚刹
+
+*****
+
+####  PascalLefèvre  
+##### 373#       发表于 2024-12-4 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839587&amp;ptid=2209276" target="_blank">oi99o 发表于 2024-12-4 11:10</a>
+
+有消息来源吗</blockquote>
+刚才漏看了，这个应该是商店开放的时间，但是也保不齐
+
+20241204_094124.jpg
+(386.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 11:13 上传
+
+<img src="https://img.saraba1st.com/forum/202412/04/111335hmtzb0iij7krmfzp.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  hououmon  
+##### 374#       发表于 2024-12-4 11:14
+
+艹，我就说那斧头咋那么眼熟，不会是扎古系的吧
+
+
+*****
+
+####  darkddragon  
+##### 375#       发表于 2024-12-4 11:15
+
+老登就拍硬派老登片呗，硬要装潮是这样了，这么喜欢红发女主怎么不去做飞越巅峰3
+
+*****
+
+####  樽——見  
+##### 376#       发表于 2024-12-4 11:16
+
+人设怎么有股微妙的宝可梦感
+
+*****
+
+####  陆久舟  
+##### 377#       发表于 2024-12-4 11:16
+
+先期待<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  创始’’’天翔  
+##### 378#       发表于 2024-12-4 11:17
+
+喜欢红发女主的不一定是老登，没准是狗代
+
+<img src="https://img.saraba1st.com/forum/202412/04/111711iaad4zlwqx8pjklk.png" referrerpolicy="no-referrer">
+
+<strong>7cfa626a639cafe05d552e7a12a1c12f6ed893efc7a91d230f711bfc8250c3d5.0.PNG</strong> (420 Bytes, 下载次数: 0)
+
+下载附件
+
+2024-12-4 11:17 上传
+
+*****
+
+####  水莲寺流歌  
+##### 379#       发表于 2024-12-4 11:17
+
+18年立项，消息也流传过很多次，不至于就做了一季吧
+
+*****
+
+####  jacket  
+##### 380#       发表于 2024-12-4 11:18
+
+好亲切的电线杆子还有跳手掌画面
+

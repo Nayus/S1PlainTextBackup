@@ -5742,3 +5742,109 @@ AGE人设接受不了的人那纯属活的太久脱离群众（小友）了，AG
 
 机设丑，人设丑<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  滴虫研究学家  
+##### 614#       发表于 2024-12-4 17:59
+
+这次泰坦斯没了，毒气谁来放
+
+*****
+
+####  Sliurus  
+##### 615#       发表于 2024-12-4 17:59
+
+侧脸越看越像有嘴，这次要把女二塞进机体里吗
+
+*****
+
+####  kisstv22  
+##### 616#       发表于 2024-12-4 17:59
+
+再看一眼还是觉得机设太丑了 这种机设真的会有很多人喜欢吗
+
+*****
+
+####  JimmyJoker  
+##### 617#       发表于 2024-12-4 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66843417&amp;ptid=2209276" target="_blank">巴尔干炮 发表于 2024-12-4 17:45</a>
+
+故事背景是uc0085年，一年战争6
+
+年后，z高达两年前。</blockquote>
+真的？请问有信源吗？
+
+*****
+
+####  kenqqex  
+##### 618#       发表于 2024-12-4 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66843417&amp;ptid=2209276" target="_blank">巴尔干炮 发表于 2024-12-4 17:45</a>
+故事背景是uc0085年，一年战争6
+
+年后，z高达两年前。</blockquote>
+我抄 真的么 那么炸裂
+
+*****
+
+####  滴虫研究学家  
+##### 619#       发表于 2024-12-4 18:04
+
+吉翁赢了的世界线，所以扎古盾牌上有警察的汉字
+
+*****
+
+####  巴尔干炮  
+##### 620#       发表于 2024-12-4 18:04
+
+<img src="https://img.saraba1st.com/forum/202412/04/180334gci6ljiej2dcwl7g.png" referrerpolicy="no-referrer">
+
+<strong>1733303455751.png</strong> (245.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 18:03 上传
+
+意大利永远都在出卖自己人
+
+
+*****
+
+####  Alicest  
+##### 621#       发表于 2024-12-4 18:04
+
+那0083发生了吗
+
+*****
+
+####  arsenalfcc  
+##### 622#       发表于 2024-12-4 18:04
+
+明年不还有jzds新作吗？支持jzgg干掉庵野
+
+*****
+
+####  林登·万  
+##### 623#       发表于 2024-12-4 18:06
+
+确定是平行世界的宇宙世纪了啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  winda  
+##### 624#       发表于 2024-12-4 18:07
+
+成uc世界的高堡奇人了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  躺平咸鱼在翻身  
+##### 625#       发表于 2024-12-4 18:07
+
+怎么都骂我们庵野哥哥（
+如果是他主导的话，机设真会做成这样吗
+
+—— 来自 vivo V2352A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

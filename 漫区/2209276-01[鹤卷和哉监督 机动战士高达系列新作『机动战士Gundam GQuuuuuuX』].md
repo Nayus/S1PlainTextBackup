@@ -7802,3 +7802,32 @@ https://web.archive.org/web/20241204000859/https://it.gundam.info/about-gundam/s
 
 所以其实这次头上的那个是夏亚的面具变成天线吗
 
+
+*****
+
+####  D860  
+##### 827#       发表于 2024-12-5 00:27
+
+比如夏亚其实在女主高达背后那个插入栓里
+
+红高达里面是骡子和拉拉
+
+红高达和主角高达合体后召唤一角驴和金鸟高达，达成第三次冲击（
+
+
+*****
+
+####  patema  
+##### 828#       发表于 2024-12-5 00:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别急，到时候一转AOZ你们就知错了。开高达？开镇暴扎古！
+
+*****
+
+####  Sliurus  
+##### 829#       发表于 2024-12-5 00:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66846137&amp;ptid=2209276" target="_blank">线程召唤使 发表于 2024-12-5 00:23</a>
+ 这个ucif线成立的话，也就是staff自己都不明所以单纯觉得这么搞有乐子罢了。  你们还能指望这个故事能铺开 ...</blockquote>
+打黑拳可以只是女主得到ms的契机，既然有整备师了直接毛走也不奇怪。这帮老害应该没这么老实一路比赛到底，可能这个帮派是什么反吉翁地下组织
+

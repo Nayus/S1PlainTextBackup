@@ -5026,3 +5026,29 @@ soyo在定位上是mygo结成篇的反派，谁能和她比戏份啊，实际就
 
 ave剧情上的安排，目前除了海铃是真的完全看不出来会是什么定位之外，我倾向于认为前期会以喵姆作为情节的发动机揭露睦身上的谜题，其实就和mygo前6话的时候大家都以为这个故事的主线是一群神经病怎么组在一起成功的把第7话的live开起来一样，大概ave到了剧情后半会揭露初华身上有什么核心诡计才是故事的真正主线
 
+
+*****
+
+####  adcdqre  
+##### 1936#       发表于 2024-12-5 00:32
+
+soyo如果自己想明白跑回来现实决心会更好只从个人形象角度好于被感化
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+*****
+
+####  skives10  
+##### 1937#       发表于 2024-12-5 00:34
+
+<img src="https://img.saraba1st.com/forum/202412/05/003439o9984rgimgimhbtt.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0644.jpeg</strong> (612.01 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-5 00:34 上传
+
+https://x.com/_lirzz_/status/1864338627985330533?s=46&amp;t=IZGx0N13SOtHALpwG0Ubrg
+

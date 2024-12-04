@@ -7256,3 +7256,43 @@ attachimg]1792693[/attachimg]
 说回来男主开着6年前的机体要想跟上其他MS的性能确实也只有把高达神棍化一条路能走了 ...</blockquote>
 uc本来就是最神棍的，除了00人均神棍以外，雷霆宙域一破元祖背个布劳布罗就能团灭月神2舰队和ms，独角兽更是演都不演直接挥挥手团灭一个舰队，uc说自己神棍第一，种和00不敢说自己第二
 
+
+*****
+
+####  k1no  
+##### 768#       发表于 2024-12-4 22:20
+
+ 本帖最后由 k1no 于 2024-12-4 22:23 编辑 
+
+会是百合还是翅膀还是败犬呢<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Toby_dak  
+##### 769#       发表于 2024-12-4 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66844898&amp;ptid=2209276" target="_blank">mousy55555 发表于 2024-12-4 22:07</a>
+
+贴吧造谣佬加司马自媒体传播的假图，但凡有点心上官网看一眼都不会被骗到 ...</blockquote>
+[https://web.archive.org/web/2024 ... es-pages/gquuuuuux/](https://web.archive.org/web/20241204000859/https://it.gundam.info/about-gundam/series-pages/gquuuuuux/)
+
+这是web archive抓下来的意大利文网页的存档。
+
+同样的，现在gundam.info跳转意大利文已经404了。
+
+*****
+
+####  猪突猛进R  
+##### 770#       发表于 2024-12-4 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66845371&amp;ptid=2209276" target="_blank">电波系腑海林 发表于 2024-12-4 22:15</a>
+
+所以这就是神棍化的结果啊</blockquote>
+其实元组高达性能不弱的，在Z时代虽然不能当主角，但也比杂兵强。
+
+比如Z时代的高扎古不能同时使用两件光束兵器，但高达没这后顾之忧。
+
+用G世纪里的数据来说的话，元组高达攻防点数有21，而0093的杰刚也才21。
+
+然后现在再加上神棍力，打黑拳应该是单方面虐杀才对。
+

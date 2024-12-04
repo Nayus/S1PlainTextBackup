@@ -8084,3 +8084,13 @@ G-Q6uX越看越顺眼了，坏了<img src="https://static.saraba1st.com/image/sm
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  D860  
+##### 856#       发表于 2024-12-5 02:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">最离谱的不是鸭子偷了高达还是被联邦压到了所罗门，最后开神棍力毁灭半个所罗门后鸡窝估计也没打回地球么。
+
+这side6民众对鸡窝佬也不是多么友善，但好歹不是以前万年清剿鸡窝残党了。这次鸭子看看有什么新活
+

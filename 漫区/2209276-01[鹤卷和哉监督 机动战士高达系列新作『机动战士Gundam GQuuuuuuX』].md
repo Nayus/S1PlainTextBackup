@@ -1356,3 +1356,183 @@ PV最后瞳孔外轮廓的红圈是什么？跟中了鸡鸭死似的 ...</blockq
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  VVhaleVoice  
+##### 155#       发表于 2024-12-4 09:38
+
+B站PV评论区连竹都不认识了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.94-alpha
+
+*****
+
+####  cckuku  
+##### 156#       发表于 2024-12-4 09:38
+
+吹爆<img src="https://static.saraba1st.com/image/smiley/carton2017/282.png" referrerpolicy="no-referrer">
+
+*****
+
+####  艾特娜  
+##### 157#       发表于 2024-12-4 09:40
+
+男主机设还没出来，希望好看点
+
+*****
+
+####  Lawliet.L  
+##### 158#       发表于 2024-12-4 09:41
+
+痞子最好少翻日升垃圾桶，别太爱废案了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  minysun  
+##### 159#       发表于 2024-12-4 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66837568&amp;ptid=2209276" target="_blank">bilebon 发表于 2024-12-4 08:16</a>
+
+这人设是不是宝可梦动画的老哥
+
+—— 来自 vivo V2417A, Android 14上的 S1Next-鹅版 v3.0.0.81-alpha ...</blockquote>
+老姐<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer"> 另外之前还有个刀语的原作插画
+
+*****
+
+####  火星妇三田  
+##### 160#       发表于 2024-12-4 09:43
+
+我了个草
+
+
+*****
+
+####  ads147147  
+##### 161#       发表于 2024-12-4 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66838341&amp;ptid=2209276" target="_blank">tony701 发表于 2024-12-4 09:35</a>
+
+日升已无可用之兵（确信</blockquote>
+日升代表作难道不是lovelive吗（包括拉胯的部分）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  花咲茜  
+##### 162#       发表于 2024-12-4 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66838432&amp;ptid=2209276" target="_blank">minysun 发表于 2024-12-4 09:42</a>
+
+老姐 另外之前还有个刀语的原作插画</blockquote>
+竹味挺多人受用的
+
+*****
+
+####  kenqqex  
+##### 163#       发表于 2024-12-4 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66837568&amp;ptid=2209276" target="_blank">bilebon 发表于 2024-12-4 08:16</a>
+
+这人设是不是宝可梦动画的老哥
+
+—— 来自 vivo V2417A, Android 14上的 S1Next-鹅版 v3.0.0.81-alpha ...</blockquote>
+竹 是女的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  minysun  
+##### 164#       发表于 2024-12-4 09:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 已经迫不及待等待泥潭坛友ganeid的雄文痞子拯救高达了，快端出来罢
+
+*****
+
+####  萝卜迷  
+##### 165#       发表于 2024-12-4 09:45
+
+<img src="https://img.saraba1st.com/forum/202412/04/094459fl3t8sj8jvp9637d.jpg" referrerpolicy="no-referrer">
+
+<strong>75e8ab6d81977d26.jpg</strong> (48.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 09:44 上传
+
+啥意思呢？
+
+*****
+
+####  u2deack  
+##### 166#       发表于 2024-12-4 09:45
+
+男角色这不是发胶版乌栗吗
+这么喜欢搞这些以后直接高达组乐队不就完了还决斗个屁啊<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aiyouo  
+##### 167#       发表于 2024-12-4 09:45
+
+<img src="https://p.sda1.dev/20/b51eb839542fb66d19320327d14f7963/image.jpg" referrerpolicy="no-referrer">
+
+这什么意思，男主驾驶的才是高达，现在放出胶的这个不是高达。狗代你是真的会营销，先放个丑的出来助助兴是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  57042711  
+##### 168#       发表于 2024-12-4 09:46
+
+这个鹿角头也太奇怪了吧，还好高达是别的机体<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  199april  
+##### 169#       发表于 2024-12-4 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66838386&amp;ptid=2209276" target="_blank">VVhaleVoice 发表于 2024-12-04 09:38:46</a>
+B站PV评论区连竹都不认识了 v3.3.94-alpha</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">别说竹了，连khara都不认识，一个劲扳机。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  棒读  
+##### 170#       发表于 2024-12-4 09:47
+
+错啦，男主女主开的其实都不是高达，其实女主本人才是高达，后面女主就要巨大化了
+
+*****
+
+####  西人  
+##### 171#       发表于 2024-12-4 09:47
+
+有庵野哥哥一定很烂，但我要看
+
+*****
+
+####  minysun  
+##### 172#       发表于 2024-12-4 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66838446&amp;ptid=2209276" target="_blank">花咲茜 发表于 2024-12-4 09:43</a>
+
+竹味挺多人受用的</blockquote>
+刚刚看PV的黑长直有点一眼幻视丹瑜<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  -SLSL-  
+##### 173#       发表于 2024-12-4 09:47
+
+我屮屮屮屮屮屮屮屮屮屮屮屮屮屮屮屮屮屮屮屮屮屮屮屮屮屮屮屮屮屮屮屮屮屮屮屮屮屮屮屮屮屮榎戸洋司
+
+*****
+
+####  liekong  
+##### 174#       发表于 2024-12-4 09:47
+
+只要平稳落地，我就宣布痞子在我这里有三年免喷权（
+

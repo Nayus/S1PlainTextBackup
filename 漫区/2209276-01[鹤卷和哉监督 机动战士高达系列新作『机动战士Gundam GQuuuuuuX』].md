@@ -1053,3 +1053,158 @@ G社高达来了！<img src="https://static.saraba1st.com/image/smiley/face2017/
 痞子大概就是过来充场面的，我觉得他不太会贡献多少</blockquote>
 除了剧本还挂了分镜，不过我真怀疑这玩意的篇幅，不然痞子现在还画的动tv动画的分镜？
 
+
+*****
+
+####  Asukalangley33  
+##### 122#       发表于 2024-12-4 09:20
+
+痞子一眼挂名混子
+这片实际就是鹤卷和哉X榎户洋司
+
+飞跃巅峰3了属于是
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+
+*****
+
+####  星野航  
+##### 123#       发表于 2024-12-4 09:20
+
+这一看痞子就不占大头吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+能不能看到全力鹤卷
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  leommoo  
+##### 124#       发表于 2024-12-4 09:20
+
+坐看翻车，信不了一点，人设和机设怎么那么怪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+*****
+
+####  白愁帝皇  
+##### 125#       发表于 2024-12-4 09:20
+
+真是top3那可太爽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ajunsama  
+##### 126#       发表于 2024-12-4 09:22
+
+又是tomoyo又是竹又是khara，这下翻车也得看了，我的第一部高达来了
+
+*****
+
+####  水莲寺流歌  
+##### 127#       发表于 2024-12-4 09:22
+
+这就是之前痞子透露的去帮忙的鹤卷新作吧，那大概不会参与的很深了
+
+*****
+
+####  klushyo  
+##### 128#       发表于 2024-12-4 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66838140&amp;ptid=2209276" target="_blank">Asukalangley33 发表于 2024-12-4 09:20</a>
+痞子一眼挂名混子
+这片实际就是鹤卷和哉X榎户洋司</blockquote>
+你看仔细，痞子还要画分镜的
+
+*****
+
+####  gundammarkⅡ  
+##### 129#       发表于 2024-12-4 09:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">还会有什么大活<img src="https://p.sda1.dev/20/7b1d074d04e4d56aaef2af47dc89361c/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  芜湖挨宰  
+##### 130#       发表于 2024-12-4 09:23
+
+一月太爽了，群英荟萃
+
+*****
+
+####  Libartas  
+##### 131#       发表于 2024-12-4 09:23
+
+<img src="https://p.sda1.dev/20/4fbc120dc247b0250a1c50a28763513b/image.jpg" referrerpolicy="no-referrer">
+东宝和日tv，看样子连祖宗之法的tbs系日五和松竹都不是，所以三癞子这次就纯挂名是吧，那还不如当khara原创tv动画看
+
+*****
+
+####  huanzhi  
+##### 132#       发表于 2024-12-4 09:23
+
+機動戦士 Gundam GQuuuuuuX -Beginning-不可能翻车，我要吹爆鹤卷和哉。<img src="https://static.saraba1st.com/image/smiley/carton2017/291.gif" referrerpolicy="no-referrer">
+泥潭的下一个玩具要来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  魔灵高达  
+##### 133#       发表于 2024-12-4 09:24
+
+拿斧头的高达，我喜欢
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  bbjajdd  
+##### 134#       发表于 2024-12-4 09:24
+
+目前看起来女主和男主是驾驶员
+
+女二是后援?
+
+另外现在只公布了女主机，高达的机设还藏着呢
+
+*****
+
+####  oi99o  
+##### 135#       发表于 2024-12-4 09:25
+
+机战是3d啊，以后还有机会看2d机战不<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  杂灰  
+##### 136#       发表于 2024-12-4 09:26
+
+新的战斗！
+
+*****
+
+####  HighTouch  
+##### 137#       发表于 2024-12-4 09:26
+
+分镜也可能只画一两集…反正没有大字标出来我觉得就是客串程度吧
+
+至于是top3…top 1和2风格可差多了，我希望是top1那种形式的呀，不过可能性不大就是了
+
+*****
+
+####  污陨血红  
+##### 138#       发表于 2024-12-4 09:27
+
+这个阵营，什么top3<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  巴尔干炮  
+##### 139#       发表于 2024-12-4 09:28
+
+人设和机设感觉是两个世界的。
+

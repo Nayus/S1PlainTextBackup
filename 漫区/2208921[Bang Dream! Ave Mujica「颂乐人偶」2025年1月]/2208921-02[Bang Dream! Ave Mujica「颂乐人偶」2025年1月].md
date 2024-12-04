@@ -4701,3 +4701,47 @@ mygo的pv进度只到前三集而已，那mujica这个pv应该也不会透到太
 
 找了半天也没找到和pv最后那一幕形状类似的海边公园 放弃了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 1908#       发表于 2024-12-4 22:44
+
+ 本帖最后由 Aendst 于 2024-12-4 22:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66845267&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-4 21:58</a>
+
+其实那个地方也不像是海港
+
+更像是海边的公园
+
+live会场附近？</blockquote>
+お台場海浜公園？<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">但是这个应该是在G-WAVE附近
+
+和武道馆对不上
+
+疑似G-WAVE原型有明アリーナ那个地方目测会有比较接近的地形
+
+但是搞不懂那个绿色信号灯是什么东西，确实不像港口
+
+*****
+
+####  PDQ4  
+##### 1909#       发表于 2024-12-4 22:45
+
+和漏油反一下，我觉得前期是睦海，后期是初喵
+
+喵和祥子针锋相对，其实靠祥子一个人很难控住，睦不指望她能控住谁，成团后团宠位
+
+反而是海铃，既可以卖海睦，是队伍的副手，同时还可以和喵梦讲相声克制她
+
+当然最大的证据是PV哪个揭露面具的顺序，我觉得就是预告信了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  桜庭千景  
+##### 1910#       发表于 2024-12-4 22:47
+
+嗯 楼u提到的pv中睦含量高也是我做出推测先睦线的原因之一
+
+其实pv再诡叙，按mygo的比例也大多数会在前三话回收（其实第一话看来已经回收了一大半了，包括两个先导pv占比很大的live部分实际上就是killkiss的live）
+

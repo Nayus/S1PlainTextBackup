@@ -3582,3 +3582,29 @@ ykn爹这么正常在萝里最重要的戏份也就是肯定一下ykls的关系�
 
 祥爹拿的明显是初设沙绫爹的模板（连乐队是命运共同体都是初设沙绫说的），怎么能传成ykn爹的，ykn爹只是心灰意冷不玩乐队，没有落魄也没有不工作，名气还大着呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ardito  
+##### 1795#       发表于 2024-12-4 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66840581&amp;ptid=2208921" target="_blank">sycamore 发表于 2024-12-4 13:05</a>
+
+怎么会有祥爹gachi这种物种，还是只是某些人找到新皮套了</blockquote>
+此事在军工复合体二世祖和异世界政变王子等皮套裤裆内亦有记载<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 1796#       发表于 2024-12-4 16:31
+
+<img src="https://img.saraba1st.com/forum/202412/04/163158sadgx7axxcamcmrx.jpg" referrerpolicy="no-referrer">
+
+<strong>GdzTzUPbMAAUsDw.jpg</strong> (776.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 16:31 上传
+
+https://x.com/ssami0617/status/1863597232332984420/
+

@@ -3172,3 +3172,25 @@ ykn爹这么正常在萝里最重要的戏份也就是肯定一下ykls的关系�
 
 这是少女乐队番，不是商战番也不是豪门恩怨录，想看豪门恩怨录的去起点番茄或者日轻里去找吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives10  
+##### 1760#       发表于 2024-12-4 12:24
+
+也是怪祥子只练了力量 没练反应
+一拳精准把飞过来的啤酒罐打爆就好了
+
+
+*****
+
+####  LeonsCat  
+##### 1761#       发表于 2024-12-4 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66840093&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2024-12-4 12:00</a>
+
+主要是关联度太高了，历代邦的角色和爹妈在剧情关联度上都很低，这保证了能在剧情上给予角色最大的自由度 ...</blockquote>
++1
+
+强制下线可能是最大的，不然就完全是失控，好比突然在hhw剧情里讨论米歇尔机甲背后的物理学问题……
+

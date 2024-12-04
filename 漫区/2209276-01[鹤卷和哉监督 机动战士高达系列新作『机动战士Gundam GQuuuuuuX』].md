@@ -4345,3 +4345,69 @@ pv一股痞味或者说老gainax味，机设什么鬼？
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  线程召唤使  
+##### 467#       发表于 2024-12-4 12:18
+
+<blockquote>advancedigger 发表于 2024-12-4 12:02
+这次要是成了，以后万代的高达动画就不用受限于日升的产能了，什么飞碟桌高达、京阿尼高达、骨头高达、马趴 ...</blockquote>
+我刚才又想了想，可能光这样还不行，高达还是应该保持自有的调性，不然以后只会变成月高达，京吹高达即使好一点全金属高达，或者天元高达什么的。
+
+要看小形这人有没有更全局更整体性的想法，从外部市场看这些年也不是更先锋或者更轻度的东西在火，鬼灭和巨人其实都是挺老老实实的东西。
+
+*****
+
+####  Edward0901  
+##### 468#       发表于 2024-12-4 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66840099&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2024-12-4 12:01</a></blockquote>
+感觉同人女会疯狂创作，三个主角都不男不女的<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+*****
+
+####  M_K  
+##### 469#       发表于 2024-12-4 12:23
+
+这机设有点丑啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  acacaclove  
+##### 470#       发表于 2024-12-4 12:24
+
+exvs什么时候更新
+
+*****
+
+####  russianbear  
+##### 471#       发表于 2024-12-4 12:24
+
+高达G世界观+EVA机设+FLCL人设？
+
+*****
+
+####  黒蜜ねね  
+##### 472#       发表于 2024-12-4 12:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">都张嘴了会暴走吗
+
+*****
+
+####  二阶堂真琉  
+##### 473#       发表于 2024-12-4 12:27
+
+UC平行世界那个不知道真的假的，先不论文字，画稿部分感觉很真
+
+*****
+
+####  藤吉晴美  
+##### 474#       发表于 2024-12-4 12:27
+
+这两极分化的风评，鹤卷厨开始贷款担心乐<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+叫好叫座/平稳落地还好说，但凡有一个不行，本就不算充沛的宝贵创作精力和业绩风评免不了白白损耗一波。希望这个做完以后还能有机会看到鹤卷浓度400%的小而美原创（
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

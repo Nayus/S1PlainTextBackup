@@ -4745,3 +4745,41 @@ live会场附近？</blockquote>
 
 其实pv再诡叙，按mygo的比例也大多数会在前三话回收（其实第一话看来已经回收了一大半了，包括两个先导pv占比很大的live部分实际上就是killkiss的live）
 
+
+*****
+
+####  桜庭千景  
+##### 1911#       发表于 2024-12-4 22:49
+
+另外我做一个推测
+
+以ep1展现出来的水平，至少独角兽完全清楚掌控自己在写什么，该写什么
+
+鸡团五个人会在13集里都得到充分塑造而不是像乐奈一样需要把某个人丢进剧场版
+
+*****
+
+####  skives10  
+##### 1912#       发表于 2024-12-4 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66845526&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-4 22:44</a>
+お台場海浜公園？但是这个应该是在G-WAVE附近
+
+和武道馆对不上
+
+疑似G-WAVE原型有明アリーナ那个地方目测会 ...</blockquote>
+绿色是信号灯吗 感觉是公园路灯的可能性也很大
+
+*****
+
+####  NODY  
+##### 1913#       发表于 2024-12-4 22:52
+
+<img src="https://img.saraba1st.com/forum/202412/04/225211z222bg9ty7zcst92.png" referrerpolicy="no-referrer">
+
+<strong>无标题.png</strong> (2.2 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 22:52 上传
+

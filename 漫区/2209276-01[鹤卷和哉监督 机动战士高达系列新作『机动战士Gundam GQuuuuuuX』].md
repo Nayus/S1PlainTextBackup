@@ -4522,3 +4522,84 @@ PV还可以，机设有点潮哥
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">pv 里面还有个 nt 感应，能不能致敬一下经典音效
 
+
+*****
+
+####  hagiwara  
+##### 489#       发表于 2024-12-4 12:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66840448&amp;ptid=2209276" target="_blank">哈尔摩尼亚N 发表于 2024-12-4 12:46</a>
+
+明明竹小姐参与宝可梦之前就是这个画风，结果大家都只说像宝可梦
+
+—— 来自 鹅球 v3.1.91-alpha ...</blockquote>
+可能是因为通过西尾的作品认识竹的人不会说像宝可梦吧
+
+*****
+
+####  a85982313  
+##### 490#       发表于 2024-12-4 12:54
+
+所以，（不可能翻车，吹爆XXX)的定型文呢，怎么还没有人写
+
+*****
+
+####  滴虫研究学家  
+##### 491#       发表于 2024-12-4 12:55
+
+我随便问问哈，说是EVA可为什么人设完全没有eva那么色？
+
+staff都阳痿了吗
+
+*****
+
+####  moekyo  
+##### 492#       发表于 2024-12-4 12:55
+
+人丑，鸡舍丑，丑完了
+
+*****
+
+####  XIEGC  
+##### 493#       发表于 2024-12-4 12:57
+
+标题以X结尾（警觉<img src="https://static.saraba1st.com/image/smiley/carton2017/282.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  hwubh  
+##### 494#       发表于 2024-12-4 12:57
+
+有趣就行<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  check  
+##### 495#       发表于 2024-12-4 12:57
+
+这机设 人设都好烂哦
+
+*****
+
+####  oi99o  
+##### 496#       发表于 2024-12-4 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66840512&amp;ptid=2209276" target="_blank">滴虫研究学家 发表于 2024-12-4 12:55</a>
+
+我随便问问哈，说是EVA可为什么人设完全没有eva那么色？
+
+staff都阳痿了吗</blockquote>
+因为人设不是eva的人设，只有机设是
+
+
+*****
+
+####  plok201  
+##### 497#       发表于 2024-12-4 13:02
+
+庵野真的只是挂个名么，他那么爱高达，这么好一个机会放弃下场爽一把？
+

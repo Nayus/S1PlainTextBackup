@@ -3315,3 +3315,27 @@ ykn爹这么正常在萝里最重要的戏份也就是肯定一下ykls的关系�
 
 我觉得ban爹很大一部分原因还有减轻大喵武道馆揭面的影响，最速武道馆乐队没道理没有狗仔挖背景，要是这一爆马上去把祥爹情况挖出来上新闻，对祥子打击也太大了，大喵更不好洗，所以刚好卡这个时间点先让祥子搬走了
 
+
+*****
+
+####  贰臣  
+##### 1770#       发表于 2024-12-4 12:54
+
+一想到在第二集播出前还要像这样车轱辘一个月fw酒鬼的话题就有点无语<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  黑夜落叶秋天  
+##### 1771#       发表于 2024-12-4 12:55
+
+希望角色pv和oped能赶紧出来
+
+*****
+
+####  魔法使夜子  
+##### 1772#       发表于 2024-12-4 12:56
+
+赫赫，祥爹gachi太多了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

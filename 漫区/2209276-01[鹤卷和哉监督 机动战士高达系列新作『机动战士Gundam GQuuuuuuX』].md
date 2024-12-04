@@ -3980,3 +3980,214 @@ EVA高达，新▪高达<img src="https://static.saraba1st.com/image/smiley/face
 你再看看你发的这个和那个红元祖是一个东西吗？那头部，那配色真高低够得上一个精神伤害了，看着眼睛疼。 ...</blockquote>
 首先模型大概率是比设定稿好看的，其次配色不就是夏亚元祖配色，等成片出了再骂也不迟
 
+
+*****
+
+####  starring  
+##### 432#       发表于 2024-12-4 11:58
+
+机设泄漏稿是认真吗，红高达那样挂bit好恶心啊
+
+*****
+
+####  污陨血红  
+##### 433#       发表于 2024-12-4 11:58
+
+ 本帖最后由 污陨血红 于 2024-12-4 11:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66840015&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2024-12-4 11:53</a>
+
+挺有那味的</blockquote>真eva+高达，还能开嘴啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+要素拉满（）
+
+*****
+
+####  山之内花音  
+##### 434#       发表于 2024-12-4 11:59
+
+<img src="https://p.sda1.dev/20/d1eea62b798b4f4cf6df181f9971b440/image.jpg" referrerpolicy="no-referrer">还有张概念图，02大战红元祖
+
+*****
+
+####  变老的大二  
+##### 435#       发表于 2024-12-4 12:01
+
+<blockquote>岸浪白野 发表于 2024-12-4 11:53
+挺有那味的</blockquote>
+是暴走！痞子果然要搞eva
+
+*****
+
+####  岸浪白野  
+##### 436#       发表于 2024-12-4 12:01
+
+<img src="https://p.sda1.dev/20/c21966ae74921d9d7f0b79c346cb7e32/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  勿徊哉  
+##### 437#       发表于 2024-12-4 12:01
+
+季番可以了，相当于两部电影
+
+*****
+
+####  leleq  
+##### 438#       发表于 2024-12-4 12:02
+
+靠光看棒子了都不知道<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+鹤卷和榎戸……鹤卷这么多年了还能行吗，榎戸别写文豪写多了写的太基啊，
+
+至于痞子最好滚远点一点都不靠谱
+
+人设……一股敷衍感竹有认真画吗尤其女二<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+作品质量不猜，感觉一点不合现代的流行味，商业成绩不看好（机设不行！）
+
+*****
+
+####  cayon  
+##### 439#       发表于 2024-12-4 12:02
+
+怎么高达越来越短了
+
+*****
+
+####  advancedigger  
+##### 440#       发表于 2024-12-4 12:02
+
+这次要是成了，以后万代的高达动画就不用受限于日升的产能了，什么飞碟桌高达、京阿尼高达、骨头高达、马趴高达，甚至吉卜力高达都不是梦。
+
+
+*****
+
+####  112zero  
+##### 441#       发表于 2024-12-4 12:03
+
+潮玩机设，有种少女发动机的感觉，怎么看都别扭
+
+*****
+
+####  上坂莲华  
+##### 442#       发表于 2024-12-4 12:03
+
+女主好看捏，喜欢穿衣服显瘦的
+
+其他什么玩意儿，赶快把这些老害都吊死算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sabbah  
+##### 443#       发表于 2024-12-4 12:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">最近偶尔能理解真老头子不喜欢声优的原因
+
+*****
+
+####  cayon  
+##### 444#       发表于 2024-12-4 12:03
+
+来部扳机高达吧，那我肯定看
+
+
+*****
+
+####  蓝色有脚⑨倍速  
+##### 445#       发表于 2024-12-4 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66840081&amp;ptid=2209276" target="_blank">山之内花音 发表于 2024-12-4 11:59</a>
+还有张概念图，02大战红元祖</blockquote>
+这是山下很早之前画的牛高和沙扎比的同人设定，和本作无关
+
+*****
+
+####  Piano-Forest  
+##### 446#         楼主| 发表于 2024-12-4 12:04
+
+竹
+[https://x.com/_take_oekaki/status/1864136707337339204](https://x.com/_take_oekaki/status/1864136707337339204)
+<img src="https://p.sda1.dev/20/eb01dbd0829d22c65e310cd033938ea0/VLUmPamvN6n6j6gCXi7KR172.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  zypyong  
+##### 447#       发表于 2024-12-4 12:04
+
+搞点高达的东西。  不想看水魔那种烂活了
+
+*****
+
+####  Sliurus  
+##### 448#       发表于 2024-12-4 12:05
+
+虽然我挺喜欢竹的风格，但跟左边的GQ放一起完全不像一部作品里的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  变老的大二  
+##### 449#       发表于 2024-12-4 12:06
+
+绫波丽在哪里，香香在哪里
+
+*****
+
+####  PascalLefèvre  
+##### 450#       发表于 2024-12-4 12:06
+
+我要看jcstaff高达
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  山之内花音  
+##### 451#       发表于 2024-12-4 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66840125&amp;ptid=2209276" target="_blank">蓝色有脚⑨倍速 发表于 2024-12-4 12:04</a>
+这是山下很早之前画的牛高和沙扎比的同人设定，和本作无关</blockquote>
+竟然是同人
+
+*****
+
+####  GIN123  
+##### 452#       发表于 2024-12-4 12:06
+
+个人最担心的事情还是发生了
+
+完全不喜欢的eva来做高达
+
+*****
+
+####  oi99o  
+##### 453#       发表于 2024-12-4 12:07
+
+过了遍staff，主力基本都是khara的，只有机械总作监金世俊、机械作监之一的阿部慎吾算是日升的人（浅野元应该是khara的）。而且既然是3d机战，2d的机械作监出力可能也很有限。
+
+<img src="https://img.saraba1st.com/forum/202412/04/120636aao0a8zqopch000c.png" referrerpolicy="no-referrer">
+
+<strong>{97048D78-7160-4CFD-921E-5D72B0B85AF4}.png</strong> (10.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 12:06 上传
+
+<img src="https://img.saraba1st.com/forum/202412/04/120644z1bznrii1reec8ff.png" referrerpolicy="no-referrer">
+
+<strong>{CB615F74-31DC-498F-9DEE-413E04707C93}.png</strong> (9.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 12:06 上传
+
+然后主制作人杉谷是khara的，执行制作人小形就不说了，还有个制作人笠井圭介是闪哈1的制作进行，desk田中也是khara的。说明制作主力是khara，日升一组协力。闪哈1和种自的仲寿和p不在这边，希望是在带一组主力做闪哈2吧。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202412/04/120100wdgjiigfh3d6zidl.png" referrerpolicy="no-referrer">
+
+<strong>{08D8407C-9FD5-40FF-8DD6-FC6713D620C4}.png</strong> (25.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 12:01 上传
+

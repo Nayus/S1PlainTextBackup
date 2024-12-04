@@ -3130,3 +3130,37 @@ ykn爹这么正常在萝里最重要的戏份也就是肯定一下ykls的关系�
 请安排舞台剧吻戏此事在wds亦有记载</blockquote>
 太刺激了，我怕下面观众疯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  金钱与民主  
+##### 1756#       发表于 2024-12-4 12:00
+
+ 本帖最后由 金钱与民主 于 2024-12-4 12:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839833&amp;ptid=2208921" target="_blank">贰臣 发表于 2024-12-4 11:33</a>
+
+ykn爹这么正常在萝里最重要的戏份也就是肯定一下ykls的关系，没道理酒鬼爹这种垃圾反而占更多戏份的，到底 ...</blockquote>
+主要是关联度太高了，历代邦的角色和爹妈在剧情关联度上都很低，这保证了能在剧情上给予角色最大的自由度、而不需要爹妈出场，本身邦的动画都是季番，12、13话还涉及起码5个角色，分给其他人一秒钟也算多，所以尽量缩减额外的人际关系把剧情始终框在乐队角色身上是最优解，这导致邦的角色的爹妈普遍都是不会施加任何负面影响的正常路人，祥子这次的设定算是破天荒了，她爹出的事直接决定了祥子的命运乃至鸡狗两团的故事，这种程度的关联导致你几乎没办法绕开这个因素去谈祥子这个角色（现在的讨论就在证明这点），甚至她爹的角色形象和风评会直接牵连到祥子的角色形象：如果这个爹烂完了，只会显得祥子自讨苦吃没苦硬吃（起码很多观众不会理解她）。如果这个爹正常，那Mujica的故事根本不会有，简直堪比隔壁神木光的形象对星野爱的形象的影响。所以我说Mijica在剧情设计上确实在冒险，但在冒险的前提下，基本的保险和保底措施肯定是有的，因此我猜第一话的含爹量这么高，但是同时爹把祥子气出走了，实际上就是在剧情上把爹这个角色强制下线，所以后续的戏份应该不会有了。
+
+
+*****
+
+####  蜇灵  
+##### 1757#       发表于 2024-12-4 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839833&amp;ptid=2208921" target="_blank">贰臣 发表于 2024-12-4 11:33</a>
+ykn爹这么正常在萝里最重要的戏份也就是肯定一下ykls的关系，没道理酒鬼爹这种垃圾反而占更多戏份的，到底 ...</blockquote>
+懂了，是大连中先生的马甲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 1758#       发表于 2024-12-4 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66840093&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2024-12-4 12:00</a>
+
+主要是关联度太高了，历代邦的角色和爹妈在剧情关联度上都很低，这保证了能在剧情上给予角色最大的自由度 ...</blockquote>
+原来如此，这样啤酒罐那段确实说得通了
+
+这个情节没办法洗，反而会让强制下线非常合理
+

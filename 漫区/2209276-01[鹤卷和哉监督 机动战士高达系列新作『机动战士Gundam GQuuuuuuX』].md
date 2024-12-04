@@ -7989,3 +7989,20 @@ G-Q6uX越看越顺眼了，坏了<img src="https://static.saraba1st.com/image/sm
 
 高…达…？
 
+
+*****
+
+####  Ein·Dalton  
+##### 847#       发表于 2024-12-5 01:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+设定无所吊谓，打戏给足就行。
+
+
+*****
+
+####  AkaiSuisei  
+##### 848#       发表于 2024-12-5 01:33
+
+到底是什么平行宇宙才能把五年前还是战场上最新锐的一线空军装备在战后直接拉到民间打黑拳
+

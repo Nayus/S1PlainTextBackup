@@ -2301,3 +2301,269 @@ This story is the only beginning.
 如果真是平行世界UC，庵野又真的有话语权又出力的话，机设真会这么潮？看看他给牛高达做的机设，庵野不管做 ...</blockquote>
 可能真高达会还原吧
 
+
+*****
+
+####  东方定助  
+##### 246#       发表于 2024-12-4 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839109&amp;ptid=2209276" target="_blank">fireadol 发表于 2024-12-4 10:36</a>
+
+如果真是平行世界UC，庵野又真的有话语权又出力的话，机设真会这么潮？看看他给牛高达做的机设，庵野不管做 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">之前看新假的记录片，几个老哥们根本就是在配庵野玩，画了很多崭新的设计，但哥几个都心知肚明庵野会选最复古的那个
+
+*****
+
+####  g救世主高达  
+##### 247#       发表于 2024-12-4 10:38
+
+<blockquote>棒读 发表于 2024-12-4 10:33
+如果真是平行宇宙UC的话可能是隐藏的爆点吧一开始尽量避免让人看出是UC，然后高潮的时候突然出现UC的内容， ...</blockquote>
+平行uc都整两部动画里，真是也不奇怪
+
+*****
+
+####  吃货红毛  
+##### 248#       发表于 2024-12-4 10:39
+
+他妈的 水魔还在追我来自: iPhone客户端
+
+*****
+
+####  PascalLefèvre  
+##### 249#       发表于 2024-12-4 10:39
+
+机设肯定要服从万代的意思，庵野再有话语权，新奥特曼啥的买玩具压力比得了高达TV吗
+
+*****
+
+####  亚瑟邓特  
+##### 250#       发表于 2024-12-4 10:40
+
+草，最后那句自由给我干PTSD了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，沟槽的骨头蒜
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+*****
+
+####  kenqqex  
+##### 251#       发表于 2024-12-4 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839133&amp;ptid=2209276" target="_blank">chivalry 发表于 2024-12-4 10:37</a>
+
+以后庵野才是新高父</blockquote>
+不是新
+
+是真・高父
+
+*****
+
+####  Sliurus  
+##### 252#       发表于 2024-12-4 10:40
+
+平行世界那确实刺激，我就说开头的殖民卫星看着眼熟
+
+不是主角机却站封面，大概率高达作为反派机体吧。但这主角机真的太丑了，风灵我还能说细腰和碎甲肯定有人喜欢只是自己不喜欢，这个我连长啥样都记不住，过于抽象
+
+*****
+
+####  好面子的懒虫  
+##### 253#       发表于 2024-12-4 10:40
+
+真要在平行世界复活骡鸭？不可能吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猫狗猫  
+##### 254#       发表于 2024-12-4 10:41
+
+太变态了，看完红元祖机设能不骂的真是神人了
+
+*****
+
+####  没取名啊  
+##### 255#       发表于 2024-12-4 10:41
+
+就不能是怀旧厨庵野喜欢在犄角旮旯的地方复古一下，实际上世界观没关系吗
+
+
+*****
+
+####  Kusabi  
+##### 256#       发表于 2024-12-4 10:42
+
+夏亚拿高达的话联邦没能用之兵吧，夏亚复仇完就美美隐身不指望他处理烂摊子。
+
+*****
+
+####  Sliurus  
+##### 257#       发表于 2024-12-4 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839164&amp;ptid=2209276" target="_blank">kenqqex 发表于 2024-12-4 10:40</a>
+
+不是新
+
+是真・高父</blockquote>
+sin高父<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+*****
+
+####  线程召唤使  
+##### 258#       发表于 2024-12-4 10:42
+
+思路对了，
+
+要么倒回根上当初日升若是没被万代吞进肚子里，要么万代把高达交给别家做，你万代哪有什么出息不就卖玩具吗，那动画就用不着自己做了。
+
+虽然这部调性不和我胃口，我比较土还是喜欢所谓格局大点的东西，至少现在看起来这动画不是一眼穷的那种了。
+
+以后可以尽情想象了，飞碟桌高达已在路上。
+
+*****
+
+####  sliver1997  
+##### 259#       发表于 2024-12-4 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839178&amp;ptid=2209276" target="_blank">猫狗猫 发表于 2024-12-4 10:41</a>
+
+太变态了，看完红元祖机设能不骂的真是神人了</blockquote>
+红元组机设有了吗？
+
+*****
+
+####  污陨血红  
+##### 260#       发表于 2024-12-4 10:43
+
+<img src="https://img.saraba1st.com/forum/202412/04/104326umzrkgmpurm8oc2s.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ19w-4w5gZaT1kShs-13a.jpg</strong> (105.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 10:43 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+side6
+
+*****
+
+####  无念  
+##### 261#       发表于 2024-12-4 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66838325&amp;ptid=2209276" target="_blank">6x6z6w 发表于 2024-12-4 09:34</a>
+还有有光剑的，斧头应该不算默认配装</blockquote>
+这光剑真不是返乡战士过来的？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  猫狗猫  
+##### 262#       发表于 2024-12-4 10:44
+
+<blockquote>sliver1997 发表于 2024-12-4 10:43
+红元组机设有了吗？</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202412/04/104415hrpk8k3z3xi774u4.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1733280210964.jpg</strong> (251.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 10:44 上传
+
+*****
+
+####  g救世主高达  
+##### 263#       发表于 2024-12-4 10:45
+
+<blockquote>猫狗猫 发表于 2024-12-4 10:44
+</blockquote>
+什么eva世界观的高达，长的比完美高达还恶心
+
+*****
+
+####  阿姆罗二世  
+##### 264#       发表于 2024-12-4 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839224&amp;ptid=2209276" target="_blank">猫狗猫 发表于 2024-12-4 10:44</a></blockquote>
+这身形也太Eva了吧
+
+*****
+
+####  sliver1997  
+##### 265#       发表于 2024-12-4 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839224&amp;ptid=2209276" target="_blank">猫狗猫 发表于 2024-12-4 10:44</a></blockquote>
+卧槽，好恶心
+
+*****
+
+####  雨翼free  
+##### 266#       发表于 2024-12-4 10:45
+
+卧槽，eva
+
+*****
+
+####  PascalLefèvre  
+##### 267#       发表于 2024-12-4 10:46
+
+mr魂都来了，这个是不是有点太eva了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+item_0000015234_2E0wYqXO_04.jpg
+(159.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 10:46 上传
+
+<img src="https://img.saraba1st.com/forum/202412/04/104603vsjlzl6lpon8zbgv.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  11116等  
+##### 268#       发表于 2024-12-4 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839224&amp;ptid=2209276" target="_blank">猫狗猫 发表于 2024-12-4 10:44</a></blockquote>
+这种事情不要啊
+
+*****
+
+####  TRIScRE  
+##### 269#       发表于 2024-12-4 10:47
+
+这是啥 真机设图还是同人？？
+
+*****
+
+####  花咲茜  
+##### 270#       发表于 2024-12-4 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839224&amp;ptid=2209276" target="_blank">猫狗猫 发表于 2024-12-4 10:44</a></blockquote>
+我曹，真的有夏亚
+
+*****
+
+####  godvim  
+##### 271#       发表于 2024-12-4 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839224&amp;ptid=2209276" target="_blank">猫狗猫 发表于 2024-12-4 10:44</a></blockquote>
+什么鬼玩儿<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Anatoly  
+##### 272#       发表于 2024-12-4 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839224&amp;ptid=2209276" target="_blank">猫狗猫 发表于 2024-12-4 10:44</a></blockquote>
+卧槽<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sheshiro  
+##### 273#       发表于 2024-12-4 10:48
+
+没活了~拉胯儿啦~~<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

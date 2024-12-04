@@ -291,3 +291,19 @@ VCRGTA3已知的部分情报（一些主播直播的时候透露的）
 兔头sololive怎么就选了个2k人的小场，还要跑到八王子去。。</blockquote>
 这场子不会是越开越小吧……
 
+
+*****
+
+####  吃咸菜的  
+##### 919#       发表于 2024-12-4 10:42
+
+第一批出道的
+
+月ノ美兎 SACRA MUSIC
+
+樋口楓 Lantis
+
+御伽原江良 森中花咲 NBC Universal Entertainment
+
+也只有烂铁会给底边歌手喂anisong了
+

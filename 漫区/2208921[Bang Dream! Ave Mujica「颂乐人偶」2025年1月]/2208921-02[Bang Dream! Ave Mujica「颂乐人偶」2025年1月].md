@@ -2780,3 +2780,101 @@ QQ图片20241204091737.jpg
 
 2024-12-4 10:34 上传
 
+
+*****
+
+####  相坂君  
+##### 1724#       发表于 2024-12-4 10:40
+
+什么什么要加上mana吗？从此春日影十人变成春日影十一人，一起踢足球，队名我都想好了，就叫BanG LOCK！
+
+
+*****
+
+####  cccpprc  
+##### 1725#       发表于 2024-12-4 10:42
+
+ 本帖最后由 cccpprc 于 2024-12-4 10:47 编辑 
+<blockquote>skives10 发表于 2024-12-4 02:46
+这下烂完了
+
+日本创作者自我感动的丑态那股味一下就来了
+
+太吓人了
+</blockquote>
+
+但是这样一来就有机会变成日本人喜欢，欧美不讨厌的环大陆好评作啦（詹姆斯大笑）
+
+*****
+
+####  星天观测  
+##### 1726#       发表于 2024-12-4 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839139&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2024-12-4 10:38</a>
+
+这种设定只会损害初华的形象行不...</blockquote>
+真会考虑2.5企划的性质和角色形象对企划后续的重要性就不会天天老想着怎么扭曲怎么爆才最美味了
+
+有些事情说很多次说不通说明对方不想理解的
+
+*****
+
+####  woeiqp00  
+##### 1727#       发表于 2024-12-4 10:43
+
+今早才收到通知，大概是别人不去顺延下来的
+这第一集没有加长吗？那这100分钟整点啥活？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/eb8f4766e59c95d4209b16dd344e6026/Screenshot_2024-12-04-09-37-29-312_tv.danmaku.bili.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Prairial  
+##### 1728#       发表于 2024-12-4 10:43
+
+祥爹洗白是肯定的，大祥老师不回归家族也是大概率事件 ，不然折腾这一大圈干啥
+
+参考CL里朋也爹并没占太大篇幅，旨在不登校的gbc也就一集讲nina老爹，那估计祥爹后面的桥段也就撑死一话，镜头有没有素妈多都有疑问
+
+话说最近出什么新情报了么，怎么就烂尾了？
+
+*****
+
+####  狮子咕  
+##### 1729#       发表于 2024-12-4 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839139&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2024-12-4 10:38</a>
+
+这种设定只会损害初华的形象行不...人初华上季13话还和爱音说“你们能喜欢sumimi，我很高兴”呢，合着这只 ...</blockquote>
+这倒是，那只要削甜甜圈女士的戏份，直接表示她们还在组队就可以了
+
+*****
+
+####  skives10  
+##### 1730#       发表于 2024-12-4 10:45
+
+祥子会拉着喵梦去若叶家道歉吗 
+这下广义见家长了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  金钱与民主  
+##### 1731#       发表于 2024-12-4 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839221&amp;ptid=2208921" target="_blank">Prairial 发表于 2024-12-4 10:43</a>
+
+祥爹洗白是肯定的，大祥老师不回归家族也是大概率事件 ，不然折腾这一大圈干啥
+
+参考CL里朋也爹并没占太大 ...</blockquote>
+笑出声了，还“一话”，您看过BanG Dream的动画吗......知道父母辈在动画里平均出场几秒钟吗？<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cccpprc  
+##### 1732#       发表于 2024-12-4 10:47
+
+<blockquote>靜希有珠 发表于 2024-12-4 10:07
+非贬义。看到这楼里你一句我一句讨论各自设想的后续发展，然后得出结论烂完了。有一种迷之搞笑 ...</blockquote>
+放低期待比乱开香槟强
+

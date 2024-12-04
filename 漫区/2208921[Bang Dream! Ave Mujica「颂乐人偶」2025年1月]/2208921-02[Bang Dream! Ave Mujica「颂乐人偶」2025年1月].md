@@ -2563,3 +2563,16 @@ QQ图片20241204091737.jpg
 
 都开始反刍隔壁去年整了一年的烂活了，很新奇很有创意吗
 
+
+*****
+
+####  御幸一也  
+##### 1702#       发表于 2024-12-4 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66838417&amp;ptid=2208921" target="_blank">椎名真希 发表于 2024-12-4 09:40</a>
+
+第一集的下集预告里面睦的镜头很多，第二集开始就该讲睦的路线了，考虑睦是摘下面具之后最慌的那个，说不定 ...</blockquote>
+祥子和睦是半身幼馴染，不僅睦熟知祥子的一切，祥子肯定也是知道睦不想在公眾面前露面。
+
+這麼想的話，mortis的面具遮擋面積最大可能確實是祥P對睦的關照<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

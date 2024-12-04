@@ -1536,3 +1536,111 @@ B站PV评论区连竹都不认识了 v3.3.94-alpha</blockquote><img src="https:/
 
 只要平稳落地，我就宣布痞子在我这里有三年免喷权（
 
+
+*****
+
+####  Piano-Forest  
+##### 175#         楼主| 发表于 2024-12-4 09:49
+
+ 本帖最后由 Piano-Forest 于 2024-12-4 09:51 编辑 
+
+[https://m.weibo.cn/detail/5107770775308105](https://m.weibo.cn/detail/5107770775308105)
+
+機動戦士Gundam GQuuuuuuX←对，这次标题不是ガンダム）
+
+・立项从2018年开始，与khara的杉谷P从UC ep7结下的缘
+
+・小形P向khara提案，向鹤卷监督伸出橄榄枝
+
+・khara内部的反响也很强烈
+
+・阵容都是鹤卷信赖的好伙伴
+
+・「GQuuuuuuX（ジークアクス）」就是主角机名
+
+・电视台是日本电视台（日本テレビ）系列←系列首
+
+PS
+
+女主背包上的挂饰出自15年日本动画人展览会第19话「I can Friday by day!」
+[https://sp.live.nicovideo.jp/watch/lv214861865](https://sp.live.nicovideo.jp/watch/lv214861865)
+
+【【熟肉】日本动画人展览会 第19话I can friend ……【HCN字幕组】】 
+[https://b23.tv/0albN7k](https://b23.tv/0albN7k)
+
+＜スタッフ＞
+
+監督・絵コンテ　鶴巻和哉
+
+原案・脚本　ウエダハジメ
+
+キャラクターデザイン　竹
+
+アニメーションキャラクターデザイン・作画監督　すしお
+
+メカデザイン　渭原敏明
+
+<img src="https://p.sda1.dev/20/b9e80e7de58cc185a405581759f2ce41/20241204_094124.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/2f54ec5b9448bcf3b23d49d269db08cc/7315017332761032.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/20/b9ac9b7fe09e8fb7079fede11b7b0ebd/20241204_094642.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/4c0802893670bda2c13888a7215b68a3/20241204_094706.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/cab1c60ee3a3022a1df19f5534c8d4f7/20241204_094708.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/e65175fc0e2c8ba40ec0c5a976a3cee7/20241204_094710.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/86d993794cbe7e746f18d39856d8d538/20241204_094712.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/afb570cf207b4a1a480e07cfa687a6b5/20241204_094655.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  oi99o  
+##### 176#       发表于 2024-12-4 09:50
+
+草，才看到人设是竹姐<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kenqqex  
+##### 177#       发表于 2024-12-4 09:50
+
+妈的 如果不是垃圾棒子
+
+这炸裂的卡司不秒外野1整年！
+
+*****
+
+####  闽明  
+##### 178#       发表于 2024-12-4 09:51
+
+PV开头没多句一句“正常人谁参加军团战”让我这个PMU小兵绷不住了，这边可是每周都要军团战（周日中午的场除外）的<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  加油牛油果  
+##### 179#       发表于 2024-12-4 09:52
+
+是走少革闪亮地球队长路线，还是eva翼神传说路线
+
+*****
+
+####  魔灵高达  
+##### 180#       发表于 2024-12-4 09:52
+
+人设虽然一般，但至少比铁血那一系的好看，为啥不能把g复国的吉田建一拉来做人设，那个多好看<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  kisstv22  
+##### 181#       发表于 2024-12-4 09:55
+
+机设欣赏不来<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Anatoly  
+##### 182#       发表于 2024-12-4 09:55
+
+这机设是不是有点……太花里胡哨了
+

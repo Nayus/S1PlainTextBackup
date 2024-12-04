@@ -339,3 +339,11 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">抽了烟雾镜一个十连，烟雾镜没来倒是雨神又来了……
 
+
+*****
+
+####  khxooo  
+##### 15223#       发表于 2024-12-4 19:13
+
+光暗二选一<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+

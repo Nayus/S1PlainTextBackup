@@ -522,3 +522,34 @@ illustriousXL完全比不了，细节磨了磨而 ...</blockquote>
 
 我上面没有一句话是毫无依据的瞎扯，要学术 battle 就逐句反驳
 
+
+*****
+
+####  Luhikari  
+##### 50#       发表于 2024-12-4 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66843363&amp;ptid=2209334" target="_blank">neptunehs 发表于 2024-12-4 17:39</a>
+
+论文我虽然看不懂 但我好像看到了sd3字样 前面还有improve learning or sampling啥的
+
+所以到底对sd有没有帮 ...</blockquote>
+提出扩散模型的文章 Deep Unsupervised Learning using Nonequilibrium Thermodynamics 是2015年的文章
+
+这篇工作的影响还有待观察
+
+*****
+
+####  素盏鸣尊  
+##### 51#       发表于 2024-12-4 19:11
+
+一转风向。又到了知识越多越反动vs唯生产力论两大泥潭政治正确对轰的环节。
+
+
+*****
+
+####  畜男不是人  
+##### 52#       发表于 2024-12-4 19:16
+
+怎么讲呢，字节之前的表述也好，损失的界定也好，本身也是企业自己角度的描述，**下定论前这人是个铁坏b，还是个叛逆仔，还是有报复心理，还要打个问号。
+成果也一样，没有评估能力不好判断，但如果是违法了那他再牛逼这辈子的职业生涯也结了。
+

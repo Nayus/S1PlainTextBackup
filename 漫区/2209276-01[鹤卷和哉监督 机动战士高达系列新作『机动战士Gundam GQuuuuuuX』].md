@@ -6544,3 +6544,115 @@ Mobile A R M O R Gundam         啊 ?<img src="https://static.saraba1st.co
 吉翁赢了那是扎比家统治了？
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我他妈全忘了
 
+
+*****
+
+####  没取名啊  
+##### 696#       发表于 2024-12-4 19:07
+
+殖民卫星独立势力的诉求基本都是追求独立自治，激进一点的就是联邦滚出地球，让我们宇宙民回去
+
+*****
+
+####  ads147147  
+##### 697#       发表于 2024-12-4 19:07
+
+说不定这个世界线的zb家脑子比较正常吧。。。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  NBGI  
+##### 698#       发表于 2024-12-4 19:08
+
+<img src="https://img.saraba1st.com/forum/202412/04/190846cn8kfhz0hzz5fh8o.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0651.webp</strong> (258.12 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-4 19:08 上传
+
+<img src="https://img.saraba1st.com/forum/202412/04/190846rk4vj3z64hbbepv3.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0652.webp</strong> (302.33 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-4 19:08 上传
+
+他们还是忘不了
+
+*****
+
+####  巴尔干炮  
+##### 699#       发表于 2024-12-4 19:09
+
+想想之前小形P的话，原来他说的‘’之后会以宇宙世纪为主‘’是这个意思啊，确实不能否认。
+
+*****
+
+####  g救世主高达  
+##### 700#       发表于 2024-12-4 19:10
+
+<blockquote>巴尔干炮 发表于 2024-12-4 19:09
+想想之前小形P的话，原来他说的‘’之后会以宇宙世纪为主‘’是这个意思啊，确实不能否认。 ...</blockquote>
+所以gto和雷霆宙域动画续集在路上了吗
+
+*****
+
+####  b歪歪d  
+##### 701#       发表于 2024-12-4 19:10
+
+这下子机动卫士扎古了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  daathzero  
+##### 702#       发表于 2024-12-4 19:11
+
+人设竟然是竹，代哥最近高达又是yoasobi又是竹的，是用户群体和宝重合了？
+
+
+*****
+
+####  Earendil_C  
+##### 703#       发表于 2024-12-4 19:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我草，夏亚不会都没来得及用 78 爽一下扎比家就寄了吧
+
+*****
+
+####  g救世主高达  
+##### 704#       发表于 2024-12-4 19:13
+
+<blockquote>b歪歪d 发表于 2024-12-4 19:10
+这下子机动卫士扎古了
+
+—— 来自 鹅球 v3.2.91</blockquote>
+没有扎古套高达皮打架没那味
+
+*****
+
+####  岸浪白野  
+##### 705#       发表于 2024-12-4 19:14
+
+毕竟PV里蓝毛的台词是红高达在对我们说战斗吧，然后夏亚还下落不明了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  污陨血红  
+##### 706#       发表于 2024-12-4 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66844139&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2024-12-4 19:14</a>
+
+毕竟PV里蓝毛的台词是红高达在对我们说战斗吧，然后夏亚还下落不明了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+估计融进去了吧
+

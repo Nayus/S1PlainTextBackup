@@ -5588,3 +5588,24 @@ AGE人设接受不了的人那纯属活的太久脱离群众（小友）了，AG
 
 这三人上一部是《龙的牙医》，一摸一样的分工，你们细品
 
+
+*****
+
+####  huanzhi  
+##### 597#       发表于 2024-12-4 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66842640&amp;ptid=2209276" target="_blank">东方定助 发表于 2024-12-4 16:27</a></blockquote>
+换色后竟然顺眼不少<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+
+*****
+
+####  萨尤克  
+##### 598#       发表于 2024-12-4 16:43
+
+<img src="https://p.sda1.dev/20/543c902a904d36d894abf6abf13d62cc/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

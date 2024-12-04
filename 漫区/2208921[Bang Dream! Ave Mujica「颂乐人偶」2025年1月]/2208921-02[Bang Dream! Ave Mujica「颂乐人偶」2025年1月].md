@@ -3759,3 +3759,50 @@ HENSHIN!
 
 我觉得是下定决心的表情<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  allesdg  
+##### 1812#       发表于 2024-12-4 18:39
+
+是比设定集怒表情眼梢稍微吊一点的表情
+
+*****
+
+####  skives10  
+##### 1813#       发表于 2024-12-4 18:40
+
+海港对决场景里睦又说了什么让祥子那么震惊呢…会是真实之泪第六集结尾同款吗…
+
+*****
+
+####  帆前  
+##### 1814#       发表于 2024-12-4 18:43
+
+某生物最可笑的地方就是自以为手贱惹了别人别人就都得包容它<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">，只会利用s1没有楼内评论区的机制搞阴暗勾当骚扰人不敢正面刚，孰不知还就是有忍不了一点的人，我还就喜欢跟你这种自以为是的小人刚到底
+<img src="https://p.sda1.dev/20/2a86ada97991700d11778702a1a5b025/Screenshot_20241202_205509.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/3c4d041a38b7bdde0169570e0c8ca9ac/Screenshot_20241204_181819.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/923c9381c40bc8801319ee14d46fc4d6/Screenshot_20241204_181543.jpg" referrerpolicy="no-referrer">
+
+我本来对你这种东西没有一点兴趣，你要这么喜欢手贱骚扰我，我可太乐意跟你缠到底了，你要愿意的话后面我还可以把你的一些极端可笑言论贴出来，<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">你骚扰我一次我就贴一次，咱们可以无休无尽打下去呀，反正我又没有为了点可笑的东西就去骚扰别人正常的发言，你不会以为你只搞点不正面对人的阴暗操作就没人会把你的嘴脸揭出来给人看吧
+
+
+*****
+
+####  akiomn  
+##### 1815#       发表于 2024-12-4 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66843896&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-4 18:40</a>
+海港对决场景里睦又说了什么让祥子那么震惊呢…会是真实之泪第六集结尾同款吗… ...</blockquote>
+按照pv回收都会在前几集回收看，那段可能是睦线内容？
+不过难想的是为什么是穿着演出服在海港
+
+*****
+
+####  vigada  
+##### 1816#       发表于 2024-12-4 18:46
+
+另外就是假药了，因为没看过枪版动画只看了文字版剧透，看样子祥子外公还认祥子？然后睦这边爸爸妈妈都是演艺界的有名人士……
+
+喵桑不怕这俩脾气不好直接断送自个儿的演艺界未来吗？另外祥作为p是不是脾气有点太好了？
+

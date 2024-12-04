@@ -6299,3 +6299,154 @@ PV有警察扎古，感觉还没到宇宙战国时代那个程度
 基连的野望早就玩过吉翁获胜if了，老登还是没新意，我还以为是nt暴走导致全人类进化这种eva剧情呢呢 ...</blockquote>
 野望是游戏 只是获胜个任务完成FLAG，第二部大家该咋打还咋打😂根本没什么细节描写。这次鸡瘟领导世界的花活 想想就劲到PTSD啊🤣🤣🤣
 
+
+*****
+
+####  双菜  
+##### 670#       发表于 2024-12-4 18:38
+
+UC姨姥怎么看
+
+*****
+
+####  蓝色有脚⑨倍速  
+##### 671#       发表于 2024-12-4 18:38
+
+联邦没搞出吉姆吧大概
+
+靠铁球剑鱼推到所罗门，然后被爆炸一波带走只能讲和<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  g救世主高达  
+##### 672#       发表于 2024-12-4 18:39
+
+<blockquote>patema 发表于 2024-12-4 18:36
+除了核爆所罗门想不出来有什么办法单机改变局势</blockquote>
+独角兽都能时空倒流挥一挥手团灭联邦军了，为什么会觉得有赛克谬的高达不能单机改变局势？拉拉可是还没成长起来就被杀了，他的nt能力配合赛克谬想改编局势不是很正常？
+
+*****
+
+####  wpcc  
+##### 673#       发表于 2024-12-4 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66843869&amp;ptid=2209276" target="_blank">patema 发表于 2024-12-4 18:36</a>
+
+除了核爆所罗门想不出来有什么办法单机改变局势</blockquote>
+塞克谬爆发 精神力元祖直接赢了。这个世界观不用牛高达元组就推卫星了
+
+*****
+
+####  污陨血红  
+##### 674#       发表于 2024-12-4 18:39
+
+吉翁大胜利的世界线
+
+什么0079tno<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  没取名啊  
+##### 675#       发表于 2024-12-4 18:40
+
+这么重量级的世界观，到时候鹤卷如果只端上来一个只有水魔那个规模的故事就好玩了，黑拳过家家
+
+*****
+
+####  巴尔干炮  
+##### 676#       发表于 2024-12-4 18:40
+
+我得承认财团这手是挺厉害的，本来没啥兴趣，现在就是烂到家也得看下去了。<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  soranoguiji  
+##### 677#       发表于 2024-12-4 18:42
+
+看来卫星砸悉尼还是有用的
+
+*****
+
+####  滴虫研究学家  
+##### 678#       发表于 2024-12-4 18:42
+
+这下不得不看了
+
+*****
+
+####  russianbear  
+##### 679#       发表于 2024-12-4 18:43
+
+编剧这是基连野望上脑了，新世纪帮吉翁招魂的作品越来越多了
+
+*****
+
+####  量产失败型  
+##### 680#       发表于 2024-12-4 18:43
+
+Mobile A R M O R Gundam         啊 ?<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  发呆的龙虾  
+##### 681#       发表于 2024-12-4 18:43
+
+鸡瘟赢了可还行。
+
+*****
+
+####  otaku21126  
+##### 682#       发表于 2024-12-4 18:44
+
+雷比尔将军骗我们干嘛
+这二十倍国力差也不无敌啊
+
+
+*****
+
+####  vorfeed  
+##### 683#       发表于 2024-12-4 18:45
+
+那么
+
+会有UC哈马斯超人反MS体操吗
+
+*****
+
+####  g救世主高达  
+##### 684#       发表于 2024-12-4 18:46
+
+雷霆宙域也是平行uc，一个nt残疾人开的元祖高达+ 布劳布罗背包，就能做到单机打赢月神2号的所有ms和军舰，为什么觉得夏亚和拉拉不能做到这种改变局势这种事情?你高的赛克谬加上nt本来就是单一改变局势的存在
+
+<img src="https://img.saraba1st.com/forum/202412/04/184555rc22scjxlxu5c12i.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241204_184307_com_copymanga_app_MainActivity.jpg</strong> (443.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 18:45 上传
+
+<img src="https://img.saraba1st.com/forum/202412/04/184600xjwu5rotzczrzejd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241204_184418_com_copymanga_app_MainActivity.jpg</strong> (459.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 18:46 上传
+
+<img src="https://img.saraba1st.com/forum/202412/04/184606bzidfycgghyofo32.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241204_182850_com_copymanga_app_MainActivity.jpg</strong> (411.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 18:46 上传
+
+*****
+
+####  fmban  
+##### 685#       发表于 2024-12-4 18:47
+
+我看看这楼和隔壁母鸡卡哪个盖的快<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

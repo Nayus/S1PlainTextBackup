@@ -325,3 +325,11 @@ VCRGTA3已知的部分情报（一些主播直播的时候透露的）
 
 上次歌回不就说了和索尼解约了 3d还能用但是不能用那套衣服出谷
 
+
+*****
+
+####  渡鸦骑士  
+##### 922#       发表于 2024-12-4 16:54
+
+解约不是更……<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+

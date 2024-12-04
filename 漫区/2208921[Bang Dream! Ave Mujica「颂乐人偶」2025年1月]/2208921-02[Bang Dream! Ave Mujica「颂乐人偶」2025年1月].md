@@ -4989,3 +4989,11 @@ riiki的问题显然是独角兽、柿本和制作人都不觉得有问题，而
 
 立希不缺塑造吧，她缺是的高光事件，感觉在明年的动画里也没戏<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  狂热飞鸟  
+##### 1932#       发表于 2024-12-5 00:01
+
+不缺塑造少高光的是素世……
+

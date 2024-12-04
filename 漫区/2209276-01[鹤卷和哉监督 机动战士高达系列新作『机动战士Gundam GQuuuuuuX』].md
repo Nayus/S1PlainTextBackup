@@ -5201,3 +5201,59 @@ AGE人设接受不了的人那纯属活的太久脱离群众（小友）了，AG
 
 鹤卷做EVA都快做吐了，真的会故意往里面塞很多EVA要素吗？
 
+
+*****
+
+####  UnrealApartheid  
+##### 558#       发表于 2024-12-4 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66841128&amp;ptid=2209276" target="_blank">kenqqex 发表于 2024-12-04 14:18:00</a>
+那么问题来了
+
+ジークアクス 要怎么翻译 荣光斧头?</blockquote>G嘎（G-Quacks）或者G绿帽（G Cucks）
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  创始’’’天翔  
+##### 559#       发表于 2024-12-4 14:49
+
+<blockquote>星光回路遮断器 发表于 2024-12-4 14:34
+我就想问日升的马裤螺丝什么时候端上来。</blockquote>
+马TV之间动辄十年，最好的情况是明年出消息后年放送
+
+*****
+
+####  patema  
+##### 560#       发表于 2024-12-4 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66841055&amp;ptid=2209276" target="_blank">HighTouch 发表于 2024-12-4 14:11</a>
+
+尼尔瓦修还是挺有未来感或者说时髦的
+
+这个目前流出的设定图，就是很“新剧场版Q和终”那种感觉，可能形容不 ...</blockquote>
+山下现在就是这个风格，喜欢死命堆工业细节
+
+
+*****
+
+####  藤吉晴美  
+##### 561#       发表于 2024-12-4 14:52
+
+ 本帖最后由 藤吉晴美 于 2024-12-4 14:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66841399&amp;ptid=2209276" target="_blank">没取名啊 发表于 2024-12-4 14:44</a>
+鹤卷做EVA都快做吐了，真的会故意往里面塞很多EVA要素吗？</blockquote>
+看khara出的那本project eva幕后集，鹤卷应该是“eva不能按照他的想法做”而委曲求全做吐的，真让他remake一遍大概也挺乐意（
+
+至于他的喜好，视觉风格跟痞哥哥已经是你中有我我中有你了罢
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  zing223  
+##### 562#       发表于 2024-12-4 14:54
+
+打黑拳这个设定依稀有点熟悉...
+

@@ -5055,3 +5055,92 @@ AGE人设接受不了的人那纯属活的太久脱离群众（小友）了，AG
 
 但是从机设上说，AGE的高达可没这么难看
 
+
+*****
+
+####  Steel.Haze  
+##### 542#       发表于 2024-12-4 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66838192&amp;ptid=2209276" target="_blank">魔灵高达 发表于 2024-12-4 09:24</a>
+
+拿斧头的高达，我喜欢
+
+—— 来自 鹅球 v3.1.91-alpha</blockquote>
+武器是临时拿的，模型上，主角机有两把光束刀。
+
+*****
+
+####  stormist  
+##### 543#       发表于 2024-12-4 14:16
+
+虽然机设不好看，但是看了PV之后我选择相信。人物动起来之后感觉还好。
+
+*****
+
+####  kenqqex  
+##### 544#       发表于 2024-12-4 14:18
+
+那么问题来了
+
+ジークアクス 要怎么翻译 荣光斧头?
+
+*****
+
+####  VictorWJ  
+##### 545#       发表于 2024-12-4 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66840108&amp;ptid=2209276" target="_blank">advancedigger 发表于 2024-12-4 12:02</a>
+这次要是成了，以后万代的高达动画就不用受限于日升的产能了，什么飞碟桌高达、京阿尼高达、骨头高达、马趴 ...</blockquote>
+吉卜力画高达……经费怕不是能买下整个东京<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  wasssf  
+##### 546#       发表于 2024-12-4 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66841128&amp;ptid=2209276" target="_blank">kenqqex 发表于 2024-12-4 14:18</a>
+
+那么问题来了
+
+ジークアクス 要怎么翻译 荣光斧头?</blockquote>
+ G quuuuux 应该是理解成g quarks？
+
+
+*****
+
+####  kisstv22  
+##### 547#       发表于 2024-12-4 14:20
+
+尼尔瓦修好看多了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  花咲茜  
+##### 548#       发表于 2024-12-4 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66841138&amp;ptid=2209276" target="_blank">wasssf 发表于 2024-12-4 14:19</a>
+
+G quuuuux 应该是理解成g quarks？</blockquote>
+6个U肯定关联着关键字
+
+*****
+
+####  冰与火的协奏曲  
+##### 549#       发表于 2024-12-4 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66841072&amp;ptid=2209276" target="_blank">faxi 发表于 2024-12-4 14:12</a>
+
+太可怕了</blockquote>
+他这个角看着就像
+
+两只手竖中指
+
+*****
+
+####  kuglv  
+##### 550#       发表于 2024-12-4 14:25
+
+丑得要命，我估计一辈子都不会去看这部
+

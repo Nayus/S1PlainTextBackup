@@ -8042,3 +8042,45 @@ G-Q6uX越看越顺眼了，坏了<img src="https://static.saraba1st.com/image/sm
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  gawain  
+##### 852#       发表于 2024-12-5 01:56
+
+这么早就开香槟吗？今年的国家队可是在无人在意的角落拉了坨大的。会赢吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  线程召唤使  
+##### 853#       发表于 2024-12-5 01:57
+
+<blockquote>huanzhi 发表于 2024-12-5 01:52
+你就说闪哈算不算近几年吧
+
+—— 来自 鹅球 v3.2.91</blockquote>
+闪哈不能说翻车，但也就配的上一句哦我看完了
+
+
+*****
+
+####  budong  
+##### 854#       发表于 2024-12-5 02:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66846421&amp;ptid=2209276" target="_blank">gawain 发表于 2024-12-5 01:56</a>
+这么早就开香槟吗？今年的国家队可是在无人在意的角落拉了坨大的。会赢吗？
+
+论坛助手,iPhone ...</blockquote>
+你说是哪部？
+
+*****
+
+####  发财就收  
+##### 855#       发表于 2024-12-5 02:00
+
+故事后期会不会有别的高达世界的历史映像作为黑历史资料，把高堡奇人致敬到底
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+

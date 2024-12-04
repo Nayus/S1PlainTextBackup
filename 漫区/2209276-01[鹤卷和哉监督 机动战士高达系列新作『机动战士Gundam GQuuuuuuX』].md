@@ -7831,3 +7831,59 @@ https://web.archive.org/web/20241204000859/https://it.gundam.info/about-gundam/s
  这个ucif线成立的话，也就是staff自己都不明所以单纯觉得这么搞有乐子罢了。  你们还能指望这个故事能铺开 ...</blockquote>
 打黑拳可以只是女主得到ms的契机，既然有整备师了直接毛走也不奇怪。这帮老害应该没这么老实一路比赛到底，可能这个帮派是什么反吉翁地下组织
 
+
+*****
+
+####  Earendil_C  
+##### 830#       发表于 2024-12-5 00:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">说起来真季番吗，我还真挺想看这群老 b 要怎么写这个世界观的，怎么也搞个半年番见个地球吧
+
+*****
+
+####  patema  
+##### 831#       发表于 2024-12-5 00:39
+
+ 本帖最后由 patema 于 2024-12-5 00:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66846187&amp;ptid=2209276" target="_blank">Earendil_C 发表于 2024-12-5 00:37</a>
+
+说起来真季番吗，我还真挺想看这群老 b 要怎么写这个世界观的，怎么也搞个半年番见个地球吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">讲个乐子，TOP2是ova才6集，总共2个小时多一点，就从地球人小打小闹打自家祖宗丢的机器人直接到最后拿地球当炮弹打宇宙怪兽
+
+这帮老登愿意飙车玩超展开，在这种已经有基础世界设定的作品里12集未必不够
+
+*****
+
+####  z692689995  
+##### 832#       发表于 2024-12-5 00:40
+
+季番有什么不好，飞跃巅峰1+2才12集
+
+*****
+
+####  sliver1997  
+##### 833#       发表于 2024-12-5 00:42
+
+G-Q6uX越看越顺眼了，坏了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  线程召唤使  
+##### 834#       发表于 2024-12-5 00:44
+
+<blockquote>Sliurus 发表于 2024-12-5 00:35
+打黑拳可以只是女主得到ms的契机，既然有整备师了直接毛走也不奇怪。这帮老害应该没这么老实一路比赛到底 ...</blockquote>
+我举个例子罢了，意思是说故事不会走太多。比如银河美少年的故事到最后也就是点了一下各国都在关注这个破岛，差不多得了，人家玩的是所谓青春的讴歌。这部一眼看也都是差不多调调的东西。
+
+*****
+
+####  刺客ares  
+##### 835#       发表于 2024-12-5 00:45
+
+不会真有人觉得鹤卷和痞子搞个高达tv单独开个IFUC结果在殖民卫星里打二十四集的黑拳吧
+
+三集以内必定超展开的
+

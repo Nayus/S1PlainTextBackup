@@ -5932,3 +5932,177 @@ UC0085年用军用规格MS打黑拳，怎么想怎么别扭啊
 
 让所罗门要塞的一半消失的塞可缪事故<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  patema  
+##### 636#       发表于 2024-12-4 18:20
+
+镇暴吉姆没了这次会有镇暴扎古吗
+
+*****
+
+####  线程召唤使  
+##### 637#       发表于 2024-12-4 18:20
+
+ 本帖最后由 线程召唤使 于 2024-12-4 18:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66843578&amp;ptid=2209276" target="_blank">巴尔干炮 发表于 2024-12-4 18:04</a>
+
+意大利永远都在出卖自己人</blockquote>
+你这是哪来的，官网上并没有story故事菜单???
+
+现在是TOP NEWS STAFF&amp;CAST CHARACTER MECHA GOODS THEATER
+
+哦哦 首页有
+
+*****
+
+####  patema  
+##### 638#       发表于 2024-12-4 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66843668&amp;ptid=2209276" target="_blank">没取名啊 发表于 2024-12-4 18:15</a>
+
+UC0085年用军用规格MS打黑拳，怎么想怎么别扭啊
+
+如果把海盗算作正传内容，UC16X年，联邦对宇宙几乎彻底失去 ...</blockquote>
+塞克谬事故把联邦主力炸没了吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  线程召唤使  
+##### 639#       发表于 2024-12-4 18:22
+
+哦哦 首页有
+
+*****
+
+####  穿越护城河  
+##### 640#       发表于 2024-12-4 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66843578&amp;ptid=2209276" target="_blank">巴尔干炮 发表于 2024-12-4 18:04</a>
+意大利永远都在出卖自己人</blockquote>
+艹艹艹，太空香港是吧
+
+女主名字是西班牙语(墨西哥裔疑惑高,正好方便高达摔角)
+
+女二这下是太空越南船民了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+
+*****
+
+####  Sliurus  
+##### 641#       发表于 2024-12-4 18:24
+
+才5年，那鸭子还有机会出场？骡子应该没了，作为一个默默无闻的平民
+
+不知道这次鸭子打算怎么复仇，有“夏亚”那应该还是扎比家背叛吉翁·戴肯的发展
+
+*****
+
+####  线程召唤使  
+##### 642#       发表于 2024-12-4 18:24
+
+不是不是 首页的故事也不是你说的这段阿
+
+
+*****
+
+####  kisstv22  
+##### 643#       发表于 2024-12-4 18:24
+
+又开新世界线了
+
+*****
+
+####  没取名啊  
+##### 644#       发表于 2024-12-4 18:25
+
+ 本帖最后由 没取名啊 于 2024-12-4 18:26 编辑 
+
+怎么想这个打黑拳设定都很诡异，军用MS随便都能给殖民卫星开几个洞，私人持有危险性太高了。难不成这个黑拳是由巨大黑社会举办运营的，MS为组织所属，并非个人持有，以保证MS的整备和一定的秩序，以庞大势力保证不被政府军队消灭
+
+*****
+
+####  g救世主高达  
+##### 645#       发表于 2024-12-4 18:25
+
+<blockquote>没取名啊 发表于 2024-12-4 18:15
+UC0085年用军用规格MS打黑拳，怎么想怎么别扭啊
+
+如果把海盗算作正传内容，UC16X年，联邦对宇宙几乎彻底失去 ...</blockquote>
+这红高达都背艾尔梅斯浮游炮了，肯定是神棍赛克谬发力啦，高达传统不就是赛克谬技术神棍吊打一切吗，这点在z zz uc亦有记载
+
+*****
+
+####  穿越护城河  
+##### 646#       发表于 2024-12-4 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66843755&amp;ptid=2209276" target="_blank">没取名啊 发表于 2024-12-4 18:25</a>
+怎么想这个打黑拳设定都很诡异，军用MS随便都能给殖民卫星开几个洞，私人持有危险性太高了。难不成这个黑拳 ...</blockquote>
+在UC时代的机动武斗传
+
+所以为了照抄起见，估计会搞出一个太空香港来
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  巴尔干炮  
+##### 647#       发表于 2024-12-4 18:27
+
+难怪财团这次给这么大牌面，这是想面向Z时代打造一个全新的UC宇宙。
+
+*****
+
+####  11116等  
+##### 648#       发表于 2024-12-4 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66843755&amp;ptid=2209276" target="_blank">没取名啊 发表于 2024-12-4 18:25</a>
+怎么想这个打黑拳设定都很诡异，军用MS随便都能给殖民卫星开几个洞，私人持有危险性太高了。难不成这个黑拳 ...</blockquote>
+可能是整个宇宙都处于军阀混战的状态？
+
+—— 来自 OnePlus PGKM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  雨翼free  
+##### 649#       发表于 2024-12-4 18:27
+
+越来越好奇khara为啥非得用uc世界观了，别到最后又只是个噱头
+
+*****
+
+####  lion_or_judas  
+##### 650#       发表于 2024-12-4 18:28
+
+<blockquote>巴尔干炮 发表于 2024-12-4 18:04
+意大利永远都在出卖自己人</blockquote>
+艹，还是鸡瘟胜利的世界线，鸡瘟映射的啥，这不比奈飞那个更炸裂？
+
+*****
+
+####  线程召唤使  
+##### 651#       发表于 2024-12-4 18:28
+
+官网上是这样的，没有提到0079阿？你那是改的图？
+
+222.jpg
+(139.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 18:27 上传
+
+<img src="https://img.saraba1st.com/forum/202412/04/182732m4o676o2fwf9o6rq.jpg" referrerpolicy="no-referrer">
+
+111.jpg
+(110.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 18:27 上传
+
+<img src="https://img.saraba1st.com/forum/202412/04/182736mmapmuup75cpkgrk.jpg" referrerpolicy="no-referrer">
+

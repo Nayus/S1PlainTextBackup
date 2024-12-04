@@ -3383,3 +3383,15 @@ ykn爹这么正常在萝里最重要的戏份也就是肯定一下ykls的关系�
 退一步说，素世怎么也是mygo的里主角，那素妈 ...</blockquote>
 你说的对，大人出问题就不应该由孩子去解决，所以我压根就不看好Mujica会给祥子爹啥后续，顶多以后在游戏里更新剧情时提一嘴。至于素妈，你觉得这是一回事吗？一来素妈明显是正常正面的角色，要对标那也该是YKN的爹这种，第二其实Mygo里描写过素母女的情况啊，至于“素妈是不是也可以说直接决定了mygo的命运”，素妈要是没有老破小换大豪斯，素世能去月之森吗？你说这个对Mygo的剧情设计没影响吗？事实上你压根就思考反了，是Mygo的故事里设计了素世这个角色，再从她的人设上设计了适配的背景，包括素妈。
 
+
+*****
+
+####  椎名真希  
+##### 1776#       发表于 2024-12-4 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66840025&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-4 11:54</a>
+我看的盗摄，像是砸在旁边的门框了，如果是砸在祥子上的话祥子应该有捂脸遮痛的反应吧 ...</blockquote>
+有可能是看差了，祥子确实没什么反应<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.95-alpha
+

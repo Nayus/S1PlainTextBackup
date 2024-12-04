@@ -8018,3 +8018,27 @@ G-Q6uX越看越顺眼了，坏了<img src="https://static.saraba1st.com/image/sm
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  baizhi  
+##### 850#       发表于 2024-12-5 01:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">近年来的高达新作有不翻车的吗，我想问问。
+
+—— 来自 OPPO PGBM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  huanzhi  
+##### 851#       发表于 2024-12-5 01:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66846403&amp;ptid=2209276" target="_blank">baizhi 发表于 2024-12-5 01:46</a>
+近年来的高达新作有不翻车的吗，我想问问。
+
+—— 来自 OPPO PGBM10, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+你就说闪哈算不算近几年吧<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

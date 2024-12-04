@@ -721,3 +721,183 @@ https://bgm.tv/person/3808
 
 机设怎么那么丑，模型也好丑，这是想学假面骑士用抽象突破用户八奇审美吗，着看得我目前连模型都不想买
 
+
+*****
+
+####  liyropen  
+##### 84#       发表于 2024-12-4 08:46
+
+GQuX 说的是神秘 ms，没准也是高达吧，不过设计相对于高达来说确实不怎么高达
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  0aleph37  
+##### 85#       发表于 2024-12-4 08:46
+
+女主越看越像零崎舞织，短发针织帽，有战斗的才能
+
+PV最后瞳孔外轮廓的红圈是什么？跟中了鸡鸭死似的
+
+*****
+
+####  6x6z6w  
+##### 86#       发表于 2024-12-4 08:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66837719&amp;ptid=2209276" target="_blank">starring 发表于 2024-12-4 08:36</a>
+
+机体的关节跟鬼子战机的一样，好难看啊</blockquote>
+别提形部一平这个老登了，他搞的非高达机设一个比一个抽象<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这个G夸克设计上比境界战机耐看，起码竞技感很足，很贴合剧情，甚至水魔的机设跟这个一比都显得极没特色
+
+*****
+
+####  Licheus  
+##### 87#       发表于 2024-12-4 08:47
+
+ 本帖最后由 Licheus 于 2024-12-4 08:51 编辑 
+
+有股老人味，谨慎不看好。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  terminator1990  
+##### 88#       发表于 2024-12-4 08:49
+
+我怎么闻到一股金属口红的味道...
+
+*****
+
+####  Chiralium  
+##### 89#       发表于 2024-12-4 08:49
+
+可爱捏
+
+<img src="https://img.saraba1st.com/forum/202412/04/084927yal4ob20nvvooj7j.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>82DDF8EB-C068-4F92-8915-C476911A855D.jpeg</strong> (145.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 08:49 上传
+
+*****
+
+####  凤舞夜月  
+##### 90#       发表于 2024-12-4 08:50
+
+现在的高达越来越不严肃了啊
+
+*****
+
+####  wolf1997  
+##### 91#       发表于 2024-12-4 08:50
+
+鹤卷+痞子，新·高达，还是竹的人设，真国家队来了woc，大早上瞬间不困了。
+
+*****
+
+####  otakun  
+##### 92#       发表于 2024-12-4 08:50
+
+女主是不是天星队过来的
+
+*****
+
+####  beifx  
+##### 93#       发表于 2024-12-4 08:51
+
+感觉先行上映的剧场版可能就是讲到GQuX大破然后主角换“男主”？带来的那台高达？
+
+*****
+
+####  闭挂锁人  
+##### 94#       发表于 2024-12-4 08:51
+
+全新的百合拯救高达？
+
+
+*****
+
+####  AP0rt_  
+##### 95#       发表于 2024-12-4 08:53
+
+ 本帖最后由 AP0rt_ 于 2024-12-4 08:54 编辑 
+
+我说这高达怎么有股eva味儿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/44bf5459b550c81ae3670cec49b2b324/Image_410425076429163.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/674412e0f934e0cb232bb68440bce655/Image_410118357507353.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  穿越护城河  
+##### 96#       发表于 2024-12-4 08:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66837644&amp;ptid=2209276" target="_blank">山之内花音 发表于 2024-12-4 08:28</a>
+大概率送快递的吧，蓝毛男偷了高达然后送给女主
+蓝毛男看装束更像后勤</blockquote>
+不要乱猜，看44楼嘛
+
+应该就是在宇宙战争的大时代里，女主所在的地方无忧无虑，碰到难民女二，被拉去打gundam fight, 直到碰到高达涂鸦艺术家男主，而这里应该还藏了一台到时候才会发布的。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  Oliswe  
+##### 97#       发表于 2024-12-4 08:54
+
+怎么拿个热能斧，一开始看成头上的角了
+
+*****
+
+####  futaba42  
+##### 98#       发表于 2024-12-4 08:54
+
+先相信，再相信
+
+—— 来自 HUAWEI WLZ-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  RedSpecial  
+##### 99#       发表于 2024-12-4 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66837856&amp;ptid=2209276" target="_blank">otakun 发表于 2024-12-4 08:50</a>
+女主是不是天星队过来的</blockquote>
+是丹瑜<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  homesickness  
+##### 100#       发表于 2024-12-4 08:54
+
+等top2续作等好久了<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  VVhaleVoice  
+##### 101#       发表于 2024-12-4 08:56
+
+用高达打黑拳改变世界！好耶！
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.94-alpha
+
+*****
+
+####  Viteeee  
+##### 102#       发表于 2024-12-4 08:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这cast跟日升有啥关系，只负责出个高达名字是么。
+
+无重力下机体转圈那几个镜头新EVA味太浓了。
+
+*****
+
+####  棒读  
+##### 103#       发表于 2024-12-4 08:56
+
+你以为是热能斧，其实是真盖塔，到后面那个高达突然巨大化比地球还大，手劈星球，脚踢黑洞，两女主使出合体技打败最终BOSS，画面一转12000年后……
+

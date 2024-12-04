@@ -2878,3 +2878,63 @@ QQ图片20241204091737.jpg
 非贬义。看到这楼里你一句我一句讨论各自设想的后续发展，然后得出结论烂完了。有一种迷之搞笑 ...</blockquote>
 放低期待比乱开香槟强
 
+
+*****
+
+####  Prairial  
+##### 1733#       发表于 2024-12-4 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839245&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2024-12-4 10:45</a>
+
+笑出声了，还“一话”，您看过BanG Dream的动画吗......知道父母辈在动画里平均出场几秒钟吗？ ...</blockquote>
+没看过，要不您科普下？
+
+*****
+
+####  skives10  
+##### 1734#       发表于 2024-12-4 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839289&amp;ptid=2208921" target="_blank">Prairial 发表于 2024-12-4 10:48</a>
+没看过，要不您科普下？</blockquote>
+说白了就是不会有什么戏份 纯工具人
+可能是结尾一个戒酒的镜头
+严重点可能是主角登上某个重要舞台之前一个医院电话打过来被编剧送走
+必然0塑造
+
+*****
+
+####  相坂君  
+##### 1735#       发表于 2024-12-4 10:52
+
+关于最速武道馆，有个大胆假设，论证开始：
+
+世终有戴面具，mujica也有戴面具
+
+两个乐队从未同时出现过！
+
+天呐，这……
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 1736#       发表于 2024-12-4 10:53
+
+ 本帖最后由 Aendst 于 2024-12-4 10:57 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能翻唱一下ANTI-HERO吗，我很需要
+
+既然说到歌
+
+我记得访谈很多次提到mujica的歌（还是氛围/主旨？）是“继续这样下去也没关系”（暗意味）的？记不太清了
+
+这个点也挺有意思的
+
+*****
+
+####  哈曼的YY  
+##### 1737#       发表于 2024-12-4 10:56
+
+你们是要合体出邦多利金刚吗
+

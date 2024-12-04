@@ -2567,3 +2567,393 @@ item_0000015234_2E0wYqXO_04.jpg
 
 没活了~拉胯儿啦~~<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  艾特娜  
+##### 274#       发表于 2024-12-4 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839224&amp;ptid=2209276" target="_blank">猫狗猫 发表于 2024-12-4 10:44</a></blockquote>
+我擦，太丑了
+
+*****
+
+####  cckuku  
+##### 275#       发表于 2024-12-4 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839224&amp;ptid=2209276" target="_blank">猫狗猫 发表于 2024-12-4 10:44</a>
+</blockquote>
+鬼图打码<img src="https://static.saraba1st.com/image/smiley/animal2017/006.png" referrerpolicy="no-referrer">
+
+*****
+
+####  魔灵高达  
+##### 276#       发表于 2024-12-4 10:48
+
+看笑了噶哈哈哈
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  艾特娜  
+##### 277#       发表于 2024-12-4 10:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">快来人告诉我图是假的
+
+*****
+
+####  棒读  
+##### 278#       发表于 2024-12-4 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839224&amp;ptid=2209276" target="_blank">猫狗猫 发表于 2024-12-4 10:44</a></blockquote>
+这已经不是丑能形容了，背后长一大堆瘤子还行
+
+*****
+
+####  風卷豹  
+##### 279#       发表于 2024-12-4 10:49
+
+平行UC实锤了？
+
+*****
+
+####  PascalLefèvre  
+##### 280#       发表于 2024-12-4 10:50
+
+<blockquote>原本是联邦军的机动战士，但被夏亚察觉开发计划后夺走，并涂成红色，成为他的爱机。
+
+在最终战时，这台机体在所罗门战役中消灭了一半的敌军，随后因心理控制事故与夏亚一起失踪。
+
+战后，出现在SIDE 6的红色高达由男主驾驶，与女主一同参与部落战斗</blockquote>
+
+这是否
+
+
+*****
+
+####  fireadol  
+##### 281#       发表于 2024-12-4 10:50
+
+丑出下限，刑部一平你回来吧我不骂你了
+
+*****
+
+####  无念  
+##### 282#       发表于 2024-12-4 10:50
+
+这红元祖怎么和镇魂曲的ex一样整个骷髅脸，真就反派化啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  燃烧的石头  
+##### 283#       发表于 2024-12-4 10:50
+
+pv这里男主背后应该就是高达吧<img src="https://p.sda1.dev/20/492b57d36617186cb429fd1183b9d1e3/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.95-alpha
+
+*****
+
+####  艾特娜  
+##### 284#       发表于 2024-12-4 10:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">代孙你不考虑遗老们的眼睛也考虑考虑这玩意儿能不能卖钱啊
+
+*****
+
+####  Chiralium  
+##### 285#       发表于 2024-12-4 10:51
+
+有点生理不适了
+
+*****
+
+####  PascalLefèvre  
+##### 286#       发表于 2024-12-4 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839320&amp;ptid=2209276" target="_blank">燃烧的石头 发表于 2024-12-4 10:50</a>
+
+pv这里男主背后应该就是高达吧
+
+—— 来自 鹅球 v3.3.95-alpha</blockquote>
+还真是，那看来夏亚偷高达什么的都是真的了
+
+*****
+
+####  污陨血红  
+##### 287#       发表于 2024-12-4 10:51
+
+<img src="https://img.saraba1st.com/forum/202412/04/105120q77to7yrjejg2o4z.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ19w-lbv8Z12T3cSu0-ff.jpg</strong> (103.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 10:51 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+好像还有一张泄露的机设
+
+*****
+
+####  g救世主高达  
+##### 288#       发表于 2024-12-4 10:51
+
+这下完美高达看着都一身正气了，这长瘤子元祖不是庵野秀明这老登的私货我吃，看着真几把恶心
+
+<img src="https://img.saraba1st.com/forum/202412/04/105151vg2b8i2lru14kz87.png" referrerpolicy="no-referrer">
+
+<strong>1733280494783.png</strong> (59.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 10:51 上传
+
+*****
+
+####  山之内花音  
+##### 289#       发表于 2024-12-4 10:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没眼看
+
+*****
+
+####  suzakushi  
+##### 290#       发表于 2024-12-4 10:52
+
+丑到这么恶心，我要是内部人士我也疯狂爆料，见不得这企划一点好。哎，痞子到头来还是把英雄战记全毁了一遍了。
+
+
+*****
+
+####  huoguoshan23  
+##### 291#       发表于 2024-12-4 10:52
+
+不是，这真能卖的出去玩具吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  艾特娜  
+##### 292#       发表于 2024-12-4 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839320&amp;ptid=2209276" target="_blank">燃烧的石头 发表于 2024-12-4 10:50</a>
+
+pv这里男主背后应该就是高达吧
+
+—— 来自 鹅球 v3.3.95-alpha</blockquote>
+感觉具体配色有调整，还有救
+
+*****
+
+####  bunibuni  
+##### 293#       发表于 2024-12-4 10:52
+
+<img src="https://img.saraba1st.com/forum/202412/04/105228b2ubbz09s243vczs.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1733280414473.jpg</strong> (263.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 10:52 上传
+
+<img src="https://img.saraba1st.com/forum/202412/04/105228q70j0zzawzja1ghh.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1733280407121.jpg</strong> (206.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 10:52 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  DEI  
+##### 294#       发表于 2024-12-4 10:53
+
+扒皮青蛙
+
+*****
+
+####  11116等  
+##### 295#       发表于 2024-12-4 10:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  污陨血红  
+##### 296#       发表于 2024-12-4 10:53
+
+白色这台好像是女主机体的本体？果不其然是高达型伪装<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  HighTouch  
+##### 297#       发表于 2024-12-4 10:53
+
+这造型太邪性，不就是eva么，这样搞有啥意思<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  艾特娜  
+##### 298#       发表于 2024-12-4 10:53
+
+女二的机体？目前这台最顺眼
+
+*****
+
+####  风cat  
+##### 299#       发表于 2024-12-4 10:53
+
+这机设认真的吗……脸也太像只鸡了（还有鸡冠），肩膀还行
+
+*****
+
+####  人形灾害  
+##### 300#       发表于 2024-12-4 10:53
+
+难绷，恶堕寄生782<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yth329  
+##### 301#       发表于 2024-12-4 10:54
+
+为啥不干脆叫shin gundam得了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  少年游不游  
+##### 302#       发表于 2024-12-4 10:54
+
+呕呕呕
+
+*****
+
+####  fireadol  
+##### 303#       发表于 2024-12-4 10:54
+
+这不只是丑了，这是丑的恶心，回来吧圆棒男，我再也不说你土了
+
+*****
+
+####  kisstv22  
+##### 304#       发表于 2024-12-4 10:54
+
+好恶心
+
+*****
+
+####  PascalLefèvre  
+##### 305#       发表于 2024-12-4 10:54
+
+有一说一，去掉浮游炮看起来还可以，不说是高达还挺有感觉的，是我会买的模型
+
+何况浮游炮是UC的原设，就当致敬了
+
+*****
+
+####  吃货红毛  
+##### 306#       发表于 2024-12-4 10:54
+
+居然有两张泄露搞得有点真了啊……不过白的这个还不错来自: iPhone客户端
+
+*****
+
+####  Chiralium  
+##### 307#       发表于 2024-12-4 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839360&amp;ptid=2209276" target="_blank">艾特娜 发表于 2024-12-4 10:53</a>
+女二的机体？目前这台最顺眼</blockquote>
+应该是女主的，除了头以外造型基本一致
+
+*****
+
+####  线程召唤使  
+##### 308#       发表于 2024-12-4 10:54
+
+每年一部高达大作是不是每年一个动画公司，可以排一排哪几家会接高达动画的生意
+
+*****
+
+####  执信校友  
+##### 309#       发表于 2024-12-4 10:54
+
+太辣眼睛了，希望不是真的
+
+*****
+
+####  sliver1997  
+##### 310#       发表于 2024-12-4 10:55
+
+回来吧形部UC机，我最骄傲的信仰（
+
+*****
+
+####  清雨  
+##### 311#       发表于 2024-12-4 10:55
+
+ 本帖最后由 清雨 于 2024-12-4 10:57 编辑 
+
+元祖这脸怎么越看越像蝗虫脸。单论鸡舍都还挺带劲的吧，只不过挂了个高达名头反差太大
+
+*****
+
+####  KOPKOM  
+##### 312#       发表于 2024-12-4 10:55
+
+潮！潮哥就爱这样的，万代又要狠狠爆潮哥大米了
+
+*****
+
+####  g救世主高达  
+##### 313#       发表于 2024-12-4 10:56
+
+<blockquote>KOPKOM 发表于 2024-12-4 10:55
+潮！潮哥就爱这样的，万代又要狠狠爆潮哥大米了</blockquote>
+潮哥爱的是大鸡翅和尖尖刺刺，这瘤子浮游炮元祖我不好说我擦
+
+*****
+
+####  山之内花音  
+##### 314#       发表于 2024-12-4 10:56
+
+<img src="https://p.sda1.dev/20/78efb2b5fb51bc99de0897e1fc45d90f/image.jpg" referrerpolicy="no-referrer">
+女主封面机坏了改装的吧
+顺便是大02<img src="https://static.saraba1st.com/image/smiley/carton2017/282.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RStocking  
+##### 315#       发表于 2024-12-4 10:56
+
+与其说是高达，不如说是蝗虫基因的机械假面骑士
+
+*****
+
+####  cckuku  
+##### 316#       发表于 2024-12-4 10:57
+
+回来吧我的异灵，我最骄傲的信仰<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">历历在目的刻痕，眼泪莫名在流淌，依稀记得大扫把，还有萌萌的大眼，把痞子都给打退，通宵拼胶也不累。
+
+*****
+
+####  gundammarkⅡ  
+##### 317#       发表于 2024-12-4 10:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这风格真够激进的，老年人受不了，潮到风湿
+
+*****
+
+####  aiyouo  
+##### 318#       发表于 2024-12-4 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66838666&amp;ptid=2209276" target="_blank">ccz 发表于 2024-12-4 10:02</a>
+官网logo也是紫**猫头</blockquote>
+这是博美犬吧，怎么看都不像是猫啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

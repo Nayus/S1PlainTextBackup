@@ -3651,3 +3651,63 @@ HENSHIN!
 不过现在感觉音乐梦可能和爹没关系了，更多可能是祥妈那边的
 如果表姐妹和睦妈大道寺园美假说成立，也存在钢琴是若叶家那么带着俩小孩的可能性
 
+
+*****
+
+####  hysjmr  
+##### 1801#       发表于 2024-12-4 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66841842&amp;ptid=2208921" target="_blank">贰臣 发表于 2024-12-4 15:24</a>
+
+某些人看到fw酒鬼一下子代入感拉满了恨不得给自己加戏成主角
+
+—— 来自 S1Fun ...</blockquote>
+别搞这种发散行吗，水魔打靶挑染哥的例子有一个就够了
+
+*****
+
+####  Aendst  
+##### 1802#       发表于 2024-12-4 17:43
+
+父母辈的女女关系性也是女女关系性是吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 1803#       发表于 2024-12-4 17:43
+
+森美奈美可以是浅蓝发色的大美女吗
+
+
+*****
+
+####  相坂君  
+##### 1804#       发表于 2024-12-4 17:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">如果表姐妹假说成立，祥子喜欢音乐弹钢琴是因为妈妈的话，那睦家有钢琴，有无可能睦妈也会弹钢琴
+
+*****
+
+####  Aendst  
+##### 1805#       发表于 2024-12-4 17:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 1806#       发表于 2024-12-4 17:47
+
+睦妈弹钢琴，祥妈疑似病弱像人偶一样易碎
+真这样怎么感觉像骗婚女同一样，睦祥是俩妈的孩子吗<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  贰臣  
+##### 1807#       发表于 2024-12-4 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66843378&amp;ptid=2208921" target="_blank">hysjmr 发表于 2024-12-4 17:41</a>
+
+别搞这种发散行吗，水魔打靶挑染哥的例子有一个就够了</blockquote>
+又成我发散了，你怎么不翻上去挨个批判那些代入祥爹说逆天话的东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么我指出来还戳到肺管子了？提隔壁水魔又是作甚？少女乐队主题的番天天yy中年男人加戏还不让说了？
+

@@ -5677,3 +5677,23 @@ AGE人设接受不了的人那纯属活的太久脱离群众（小友）了，AG
 
 头部天线可变形的设计好戳我，越看越喜欢，总之相信鹤卷哥哥
 
+
+*****
+
+####  巴尔干炮  
+##### 607#       发表于 2024-12-4 17:45
+
+故事背景是uc0085年，一年战争6
+
+年后，z高达两年前。
+
+*****
+
+####  liekong  
+##### 608#       发表于 2024-12-4 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66841872&amp;ptid=2209276" target="_blank">molemole 发表于 2024-12-4 15:26</a>
+
+不过玩具和建模的脑袋怎么做成现在这个样子了</blockquote>
+最后那张图是同人设计图，不是官方的
+

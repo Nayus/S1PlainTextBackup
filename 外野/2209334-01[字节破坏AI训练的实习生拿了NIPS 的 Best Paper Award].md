@@ -1,0 +1,455 @@
+﻿
+*****
+
+####  双刀少女  
+##### 1#       楼主       发表于 2024-12-4 15:59
+
+前情：[https://www.saraba1st.com/2b/for ... =%E5%AD%97%E8%8A%82](https://www.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2208565&amp;highlight=%E5%AD%97%E8%8A%82)
+
+https://weibo.com/7825731473/P3cPqx8rR#comment
+
+<blockquote>
+
+朱亚东-数元灵
+
+24-12-3 23:40
+
+发布于 北京
+
+来自 iPhone 15 Pro Max
+
+字节“投毒”实习生Tian keyu 拿了世界最顶级学术会议 NIPS 的 Best Paper Award，到底是人性的泯灭还是极度内卷下人才的压抑，堪称本年度最佳 AI 剧情，respect</blockquote>
+
+不懂这个含金量怎么样，看评论好像很厉害。应该还是除了字节外的大厂随便挑吧？
+
+*****
+
+####  冯恩在写小说  
+##### 2#       发表于 2024-12-4 16:00
+
+据说还是国内首次拿这个奖，要是真的，那也太黑色幽默了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  feve9999  
+##### 3#       发表于 2024-12-4 16:01
+
+说不定不搞这一出还没有呢
+
+*****
+
+####  colice  
+##### 4#       发表于 2024-12-4 16:01
+
+这下有才无德警告了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+
+*****
+
+####  双刀少女  
+##### 5#         楼主| 发表于 2024-12-4 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66842291&amp;ptid=2209334" target="_blank">冯恩在写小说 发表于 2024-12-4 16:00</a>
+
+据说还是国内首次拿这个奖，要是真的，那也太黑色幽默了</blockquote>
+好像还是历史上前10的高分论文
+
+*****
+
+####  Jet.Black  
+##### 6#       发表于 2024-12-4 16:04
+
+朋友圈有说这个是假的。
+
+到底信谁？
+
+*****
+
+####  ma05758  
+##### 7#       发表于 2024-12-4 16:04
+
+这样来看800w应该赔的起了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  春哥亲自  
+##### 8#       发表于 2024-12-4 16:05
+
+有懂行的吗？有才无德还是投名状？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chaoswing  
+##### 9#       发表于 2024-12-4 16:06
+
+太幽默了
+
+*****
+
+####  今天又成熟了  
+##### 10#       发表于 2024-12-4 16:07
+
+世不二出的天才被混子同事排挤打压，愤而报复
+
+这个洗白方向怎么样
+
+*****
+
+####  憂鬱臺灣烏龜  
+##### 11#       发表于 2024-12-4 16:09
+
+如果哪天天网真的像《终结者》系列电影里一样统治了人类，那么天网很可能就是这一类人搞出来的。
+
+*****
+
+####  曼彻斯特联  
+##### 12#       发表于 2024-12-4 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66842320&amp;ptid=2209334" target="_blank">双刀少女 发表于 2024-12-4 16:02</a>
+
+好像还是历史上前10的高分论文</blockquote>
+你应该看错了，在NIPS24所有文章里这篇文章的得分排第六，不过得分本身也没多大的意义。
+
+*****
+
+####  壹十  
+##### 13#       发表于 2024-12-4 16:10
+
+丁真吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wjxforever  
+##### 14#       发表于 2024-12-4 16:14
+
+方向错了，越有能力越危险
+
+*****
+
+####  Jobtownb  
+##### 15#       发表于 2024-12-4 16:16
+
+路线错了，知识越多越反动
+
+*****
+
+####  Luhikari  
+##### 16#       发表于 2024-12-4 16:16
+
+ 本帖最后由 Luhikari 于 2024-12-4 16:18 编辑 
+
+不只是普通bestpaper
+
+从长期来看，是有可能完成语言生成模型和图像生成模型彻底统一的工作，有可能取代扩散模型，把图像生成彻底整合到LLMS中，基于图像scale来作为next token的思路非常符合直觉
+
+而且从之前的争端来看，是做扩散模型生成图片的挤占了作者的工作的资源，导致作者心生怨念进行了报复，由于对学术的执着进行的破坏，这会降低行为的恶劣性质
+
+甚至，如果这篇工作继续发酵，干翻扩散模型成为主流图片生成方式，这项工作以及作者的价值将远远超过800万，到时候舆论会彻底反转，变成字节领导不识货，对AI技术未来发展毫无判断力，只会跟着先行者后面吃尾气，最终屎盆子彻底反扣在字节头上，这种情况下什么职业道德都是其次的，智力低水平低才是最致命的，而这顶帽子扣在字节身上的损失更是远超800万
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 天选之子|-1|贷款反转|
+| pigsy|-1|收收味儿……|
+
+查看全部评分
+
+*****
+
+####  takami  
+##### 17#       发表于 2024-12-4 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66842499&amp;ptid=2209334" target="_blank">Luhikari 发表于 2024-12-4 16:16</a>
+
+不只是普通bestpaper
+
+从长期来看，是有可能完成语言生成模型和图像生成模型彻底统一的工作，有可能取代扩 ...</blockquote>
+类似章北海干翻工质推进老古董？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天地一机成化育  
+##### 18#       发表于 2024-12-4 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66842499&amp;ptid=2209334" target="_blank">Luhikari 发表于 2024-12-4 16:16</a>
+
+不只是普通bestpaper
+
+从长期来看，是有可能完成语言生成模型和图像生成模型彻底统一的工作，有可能取代扩 ...</blockquote>
+牛顿干了烂事都没人给他洗, 怎么会彻底反转
+
+*****
+
+####  Luhikari  
+##### 19#       发表于 2024-12-4 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66842527&amp;ptid=2209334" target="_blank">takami 发表于 2024-12-4 16:18</a>
+
+类似章北海干翻工质推进老古董？</blockquote>
+很类似，AI界的路线之争
+
+如果这个路线能走通，字节就有可能在大模型反超OpenAI、deepl的程度
+
+可以说任何一个搞AI的明眼人，都可以看出这篇文章所具有的巨大潜力，这也是这篇文章能在NIPS拿超高分的原因
+
+*****
+
+####  shenduke  
+##### 20#       发表于 2024-12-4 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66842545&amp;ptid=2209334" target="_blank">天地一机成化育 发表于 2024-12-4 16:20</a>
+牛顿干了烂事都没人给他洗, 怎么会彻底反转</blockquote>
+我见过好几个人说是胡克先搞打压的，当然我也没仔细了解过那段历史
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  neptunehs  
+##### 21#       发表于 2024-12-4 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66842545&amp;ptid=2209334" target="_blank">天地一机成化育 发表于 2024-12-4 16:20</a>
+牛顿干了烂事都没人给他洗, 怎么会彻底反转</blockquote>
+这人的“下毒”也没有彻底的剖析吧
+万万万一是他真的觉得这样“下毒”后结果更正确的话 那就会像上面说的字节损失惨重
+
+几乎不可能就是了 现实不可能那么戏剧化
+
+*****
+
+####  双刀少女  
+##### 22#         楼主| 发表于 2024-12-4 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66842545&amp;ptid=2209334" target="_blank">天地一机成化育 发表于 2024-12-4 16:20</a>
+
+牛顿干了烂事都没人给他洗, 怎么会彻底反转</blockquote>
+不需要洗啊，前沿学科从来都是才&gt;&gt;&gt;德，真这么厉害能颠覆以前范式，那就是字节迫害天才了
+
+*****
+
+####  天地一机成化育  
+##### 23#       发表于 2024-12-4 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66842585&amp;ptid=2209334" target="_blank">neptunehs 发表于 2024-12-4 16:23</a>
+
+这人的“下毒”也没有彻底的剖析吧
+
+万万万一是他真的觉得这样“下毒”后结果更正确的话 那就会像上面说的 ...</blockquote>
+那就不会甩锅造谣其他实习生了
+
+*****
+
+####  shikiki  
+##### 24#       发表于 2024-12-4 16:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">如果一个人的技术能力独一无二，那么自然会出现强权和资本去保护他的，就看后面有没有出现的了。
+
+*****
+
+####  Luhikari  
+##### 25#       发表于 2024-12-4 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66842545&amp;ptid=2209334" target="_blank">天地一机成化育 发表于 2024-12-4 16:20</a>
+
+牛顿干了烂事都没人给他洗, 怎么会彻底反转</blockquote>
+牛顿一个三百年前的人，你说没人给他洗地，那你是没活在三百年前，三百年前牛爷爷一个眼神，牛小将直接就把你扭送到爱尔兰振兴乡村教育，成为终身扶贫教师，你这个举例子的能力就让人怀疑你智力有没有问题
+
+更不提对AI学术和工业界的认知了，对于现在高速发展、但前途不明的AI行业，无能远比无道德更加严重
+
+*****
+
+####  百响  
+##### 26#       发表于 2024-12-4 16:34
+
+路线错了，知识越多越反动，这只是当代的观点。
+而道德或路线对错很难跨越时代，所以科学甚至技术艺术领域，从古至今都是才远大于德。
+无论是科学家还是艺术家，私德有亏的数不胜数，但并不影响其进入学科史和教科书。
+
+不过这个学生该不该被捧到这种高度就是另一回事了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  intotherain9  
+##### 27#       发表于 2024-12-4 16:38
+
+前沿科学，才比德重要的多，德有个屁用，能帮你研究出啥来？
+
+*****
+
+####  gammatau  
+##### 28#       发表于 2024-12-4 16:39
+
+<blockquote>天地一机成化育 发表于 2024-12-4 16:20
+牛顿干了烂事都没人给他洗, 怎么会彻底反转</blockquote>
+以ai界群星云起的程度来看，应该不会有牛顿那样空前绝后的重量级老大
+
+*****
+
+####  logiczr  
+##### 29#       发表于 2024-12-4 16:40
+
+ 本帖最后由 logiczr 于 2024-12-4 16:42 编辑 
+
+不是还有其他四个人一作吗，我AI发展难道真就离了你田桑就转不动了？AI这块最不缺天才，更何况这么多顶会，每个顶会每年都有best paper，每个best paper都有好几个一作，更何况IOI，IMO金牌得主也云集AI业界，我看坛友是喜欢看反转的戏码，只是想看字节被打脸吧。<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
+
+还有人拿牛顿出来比，那也得先看看是不是真的比得过牛顿罢。
+
+*****
+
+####  TiiTiiLL  
+##### 30#       发表于 2024-12-4 16:42
+
+被打压个屁，字节内部都给了这个方向很多资源，学术和人品分开看，就我接触到的不少教授来说，很多title很牛逼publications巨吊的人人品很差
+
+*****
+
+####  neptunehs  
+##### 31#       发表于 2024-12-4 16:43
+
+不过说真的 这人怎么样我没兴趣
+我关注的是这论文能不能像illustriousXL那样 一篇论文直接让sd系模型大幅度进步的啊？
+看起来是不行？
+
+*****
+
+####  Luhikari  
+##### 32#       发表于 2024-12-4 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66842666&amp;ptid=2209334" target="_blank">shikiki 发表于 2024-12-4 16:29</a>
+
+如果一个人的技术能力独一无二，那么自然会出现强权和资本去保护他的，就看后面有没有出现的了。 ...</blockquote>
+不一定，AI的很多工作都是偶发性的，工作不一定有后继
+
+就像华人AI圈奉若神明的何恺明，其实除了残差网络，也没有什么很牛的成果，甚至可以说他的其他文章的引用量得有百分之80是由于残差网络太出名了，导致他这个人也出名了，才被连带关注、引用
+
+但是这种有代表性工作的学者，由于其知名度，很容易被包装成一张名片、一个象征，继续吸引人才，就像hinton、恺明一样
+
+如果这篇工作火了，字节首先就失去这个可能的机会，字节没眼光就基本坐实了
+
+其他公司会不会强捞他，大概率会有，但之后的发展也是受限的，毕竟之后大概率不会有这种高度的工作
+
+*****
+
+####  Luhikari  
+##### 33#       发表于 2024-12-4 16:47
+
+ 本帖最后由 Luhikari 于 2024-12-4 16:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66842852&amp;ptid=2209334" target="_blank">neptunehs 发表于 2024-12-4 16:43</a>
+
+不过说真的 这人怎么样我没兴趣
+
+我关注的是这论文能不能像illustriousXL那样 一篇论文直接让sd系模型大幅度 ...</blockquote>
+有可能彻底取代扩散模型，把图像生成彻底融入现有 LLMs 的框架中
+
+illustriousXL完全比不了，细节磨了磨而已，这篇有可能以后和 DM 坐一排
+
+就是有可能我像现在一步步指导 LLMs 修改作文一样，一步步指导 LLMs 画一张画，这在SD框架中是不可能的，因为SD只能接受有限的图片、和一段文本作为提示
+
+*****
+
+####  今天不守尸  
+##### 34#       发表于 2024-12-4 16:48
+
+他的下一站会是哪里？
+阿里还是企鹅？
+
+*****
+
+####  sirlion  
+##### 35#       发表于 2024-12-4 16:52
+
+剧情太电影化了，还是先骑墙缓缓
+
+*****
+
+####  neptunehs  
+##### 36#       发表于 2024-12-4 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66842885&amp;ptid=2209334" target="_blank">Luhikari 发表于 2024-12-4 16:47</a>
+有可能彻底取代扩散模型，把图像生成彻底融入现有 LLMs 的框架中
+
+illustriousXL完全比不了，细节磨了磨而 ...</blockquote>
+那也行啊 只要支持二次元图
+走小说自动配图的路子也可以啊
+现有的llm+sd的框架几乎做不到稍微复杂的小说自动配图
+
+*****
+
+####  自賠ニャン  
+##### 37#       发表于 2024-12-4 17:09
+
+哪有路线之争这么夸张，最多也就是现有LLM框架的扩展迁移，至于资源，如果实测比Diffusion强自然会变成热门
+
+*****
+
+####  tsubasa9  
+##### 38#       发表于 2024-12-4 17:11
+
+ 本帖最后由 tsubasa9 于 2024-12-4 17:12 编辑 
+
+LLM和Diffusion压根不是一个级别的概念，哪来的路线之分
+
+*****
+
+####  jeokeo  
+##### 39#       发表于 2024-12-4 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66842475&amp;ptid=2209334" target="_blank">wjxforever 发表于 2024-12-4 16:14</a>
+方向错了，越有能力越危险</blockquote>
+如果方向搞垮字节的话，忽然觉得没错？
+
+*****
+
+####  pigsy  
+##### 40#       发表于 2024-12-4 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66842885&amp;ptid=2209334" target="_blank">Luhikari 发表于 2024-12-4 16:47</a>
+
+有可能彻底取代扩散模型，把图像生成彻底融入现有 LLMs 的框架中
+
+illustriousXL完全比不了，细节磨了磨而 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 瞎JB扯，这论文你到底看没看啊
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 姊控| + 1|夏季八车+1|
+
+查看全部评分
+
+
+*****
+
+####  neptunehs  
+##### 41#       发表于 2024-12-4 17:39
+
+ 本帖最后由 neptunehs 于 2024-12-4 17:44 编辑 
+
+论文我虽然看不懂 但我好像看到了sd3字样 前面还有improve learning or sampling啥的
+所以到底对sd有没有帮助（
+
+再看看这文也是半年前的了 如果一个论文有效然后反映到实际模型大概需要多久的？
+
+illustrious是9月的文
+那估计是没有我想的那种帮助了（
+
+*****
+
+####  Viteeee  
+##### 42#       发表于 2024-12-4 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66842416&amp;ptid=2209334" target="_blank">憂鬱臺灣烏龜 发表于 2024-12-4 16:09</a>
+如果哪天天网真的像《终结者》系列电影里一样统治了人类，那么天网很可能就是这一类人搞出来的。 ...</blockquote>
+也能是反过来，这位是为了防止天网成型而特意回到过去破坏大模型训练的正义战士<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+

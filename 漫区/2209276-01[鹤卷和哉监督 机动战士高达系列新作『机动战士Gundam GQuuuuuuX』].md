@@ -5422,3 +5422,44 @@ AGE人设接受不了的人那纯属活的太久脱离群众（小友）了，AG
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.95-alpha
 
+
+*****
+
+####  口三才信徒  
+##### 581#       发表于 2024-12-4 15:58
+
+本来看到这staff就要开始ptsd了 但看到鹤卷+榎户我觉得还还能再信一回
+
+
+*****
+
+####  Piano-Forest  
+##### 582#         楼主| 发表于 2024-12-4 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66840015&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2024-12-4 11:53</a>
+
+挺有那味的</blockquote>
+这图应该是张二创
+[https://x.com/weichi01/status/1864123329659195752](https://x.com/weichi01/status/1864123329659195752)
+
+*****
+
+####  RE㐅ia  
+##### 583#       发表于 2024-12-4 16:03
+
+给飞跃巅峰2写的情书？
+
+*****
+
+####  冰风血羽  
+##### 584#       发表于 2024-12-4 16:03
+
+看到图第一反应就是这机体如果装备大钻头我就原谅它<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  albertfu  
+##### 585#       发表于 2024-12-4 16:05
+
+希望别整烂活
+

@@ -3546,3 +3546,21 @@ ykn爹这么正常在萝里最重要的戏份也就是肯定一下ykls的关系�
 
 我怀疑op歌词是初华的心声
 
+
+*****
+
+####  金钱与民主  
+##### 1791#       发表于 2024-12-4 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66842071&amp;ptid=2208921" target="_blank">御景 发表于 2024-12-4 15:42</a>
+
+建议讨论之前，先看下这是什么番，颂乐人偶，主题是少女乐队，不是商战，也不是家庭伦理 ...</blockquote>
+只能说很多人别说邦的游戏了，大概率从PPP到蝶这些前代邦的动画都没看过......
+
+*****
+
+####  akiomn  
+##### 1792#       发表于 2024-12-4 15:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果3710分别是睦祥子初华爆，好像能和mygo爆点集数对的上，当然更得感慨下不愧是幼驯染组呢，前期中期后期全占了
+

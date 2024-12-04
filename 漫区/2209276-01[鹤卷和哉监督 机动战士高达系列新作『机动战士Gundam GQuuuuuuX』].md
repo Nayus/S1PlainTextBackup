@@ -3502,3 +3502,165 @@ khara不是痞子的公司吗，痞子对这作的影响怎么可能摘干净。
 
 好亲切的电线杆子还有跳手掌画面
 
+
+*****
+
+####  二阶堂真琉  
+##### 381#       发表于 2024-12-4 11:19
+
+忙了一早上刚才才看PV，这不就是福音战士新剧场版吗（
+
+*****
+
+####  kisstv22  
+##### 382#       发表于 2024-12-4 11:20
+
+看上去是季番长度的样子 还以为会是半年番
+
+*****
+
+####  谢枫华  
+##### 383#       发表于 2024-12-4 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839658&amp;ptid=2209276" target="_blank">樽——見 发表于 2024-12-4 11:16</a>
+
+人设怎么有股微妙的宝可梦感</blockquote>
+因为人设原案就是竹啊，日月以来宝可梦游戏的人设。
+
+*****
+
+####  hkguty  
+##### 384#       发表于 2024-12-4 11:20
+
+痞子估计就写了两三段，挂个名
+
+*****
+
+####  z692689995  
+##### 385#       发表于 2024-12-4 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839621&amp;ptid=2209276" target="_blank">山之内花音 发表于 2024-12-4 11:12</a>
+
+有02的编号，应该是改造后的</blockquote>
+可ライズヘビー简介说第一话就坐上去了
+
+*****
+
+####  Asukalangley33  
+##### 386#       发表于 2024-12-4 11:20
+
+这人设看了半天，就女主让人设勉强看的下去
+女二男主越看越拉胯
+这还是版权绘，片里得多搓不敢想象
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+
+*****
+
+####  kenqqex  
+##### 387#       发表于 2024-12-4 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839658&amp;ptid=2209276" target="_blank">樽——見 发表于 2024-12-4 11:16</a>
+
+人设怎么有股微妙的宝可梦感</blockquote>
+因为就是给宝可梦做人设是一个人
+
+*****
+
+####  雨翼free  
+##### 388#       发表于 2024-12-4 11:21
+
+18年开始的企划就做个季番的话这效率也太低了点
+
+*****
+
+####  ardito  
+##### 389#       发表于 2024-12-4 11:21
+
+做梦都没想过石川和tomoyo能一起演高达<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山之内花音  
+##### 390#       发表于 2024-12-4 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839699&amp;ptid=2209276" target="_blank">z692689995 发表于 2024-12-4 11:20</a>
+可ライズヘビー简介说第一话就坐上去了</blockquote>
+看贴吧又有说机设剧透图是几年前的，或许02只是废设<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  樽——見  
+##### 391#       发表于 2024-12-4 11:22
+
+原来戏言也是这位画的，我就说看到这人设大脑深层有很多东西在涌动
+
+*****
+
+####  g救世主高达  
+##### 392#       发表于 2024-12-4 11:22
+
+<blockquote>水莲寺流歌 发表于 2024-12-4 11:17
+18年立项，消息也流传过很多次，不至于就做了一季吧</blockquote>
+万代现在的产能，做个闪哈二做六年预告片都没有，我不好说我擦
+
+*****
+
+####  oi99o  
+##### 393#       发表于 2024-12-4 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839707&amp;ptid=2209276" target="_blank">雨翼free 发表于 2024-12-4 11:21</a>
+18年开始的企划就做个季番的话这效率也太低了点</blockquote>
+只能说机战越来越难做了吧，闪哈2还没影呢
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  岸浪白野  
+##### 394#       发表于 2024-12-4 11:24
+
+这机设图说是22年就有泄露了，可以说真的准备挺久
+
+*****
+
+####  隔夜的哈劳斯  
+##### 395#       发表于 2024-12-4 11:24
+
+丑的恶心
+
+
+*****
+
+####  11116等  
+##### 396#       发表于 2024-12-4 11:25
+
+<img src="https://img.saraba1st.com/forum/202412/04/112510uexsxur4j1ojur3p.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1733282634637.jpg</strong> (17.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 11:25 上传
+
+*****
+
+####  oi99o  
+##### 397#       发表于 2024-12-4 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839634&amp;ptid=2209276" target="_blank">PascalLefèvre 发表于 2024-12-4 11:13</a>
+刚才漏看了，这个应该是商店开放的时间，但是也保不齐</blockquote>
+一月才先行剧场上映，不管怎么样tv最早也得四月吧
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  八佾舞于潭  
+##### 398#       发表于 2024-12-4 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839586&amp;ptid=2209276" target="_blank">HATENA 发表于 2024-12-4 11:10</a>
+
+不是先不说痞子八成就是挂名，他这人怎么可能拍板弄成这样，三个新电影什么造型你们又不是没见过，明显是鹤 ...</blockquote>
+万一痞子不是高达粉呢，就随便搞了（
+

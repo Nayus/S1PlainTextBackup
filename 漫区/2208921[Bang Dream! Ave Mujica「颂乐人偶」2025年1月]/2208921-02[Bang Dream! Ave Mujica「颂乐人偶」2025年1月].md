@@ -2990,3 +2990,39 @@ Timoris满台追打Amoris
 观众：太精彩了编剧怎么这么会写
 祥子：我的世界观啊！<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 1744#       发表于 2024-12-4 11:22
+
+doloris扮演者累到晕倒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+$P`N]D%Z{D$HBE)159U@{3L.jpg
+(70.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 11:23 上传
+
+<img src="https://img.saraba1st.com/forum/202412/04/112329hdymdfzz1dymcmxm.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  悲伤颂偶  
+##### 1745#       发表于 2024-12-4 11:26
+
+谁拍的照？
+
+*****
+
+####  LeonsCat  
+##### 1746#       发表于 2024-12-4 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839044&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2024-12-4 10:31</a>
+
+你们老是拿YKN的爹去和祥子的爹对比，多少有点侮辱前者了......人YKN的爹只是受过委屈不再玩音乐事业了， ...</blockquote>
++1
+
+祥子爹是标准“人间失格”的那种，对标的是相合之物里一果祖父那种，往下一步得是EF里优子的哥哥，骂一句“生物爹”毫不为过。ykn父亲可负责多了，最多是当年有过一些创伤。
+

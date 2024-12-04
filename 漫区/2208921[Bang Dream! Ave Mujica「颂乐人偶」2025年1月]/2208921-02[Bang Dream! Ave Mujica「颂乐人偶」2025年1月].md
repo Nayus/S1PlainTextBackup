@@ -5092,3 +5092,54 @@ https://x.com/_lirzz_/status/1864338627985330533?s=46&amp;t=IZGx0N13SOtHALpwG0Ub
 
 喵祥的美帝之路已经铺好了，喵梦的野望怎么就不能是成为美帝呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  贰臣  
+##### 1939#       发表于 2024-12-5 02:05
+
+感觉海铃应该也听过类似交付人生的话，不然她对睦那句一辈子的事就没出处了，总不能是她自己脑补的，也不像是初华帮忙传的话，大概率就是祥子直接对她说过<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+海铃也把一辈子挂嘴边和go13集祥子和喵梦的对话也是一开始大家以为交付人生是批发的原因吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  前方暴雨预警  
+##### 1940#       发表于 2024-12-5 02:05
+
+考虑一下狗的预告部分，1、2、4集的镜头占了80%，第3集太特殊完全没出现，大可以认为PV里展示主要是当前时间线上前3集的内容。所以PV中睦占比极高的原因，自然在制作组在第一集几乎解谜完祥子之后，打算在2-4集内解密完睦，估计也顺便把旧C团的罗生门全展示一遍。C的故事彻底讲完，后面再怎么写也撑死是AveMujica和Mygo中旧C团成员的事情了。
+
+从声优访谈看喵梦是一个不断引发AM团关键事件的人物，她应该不会那么快就乐队堕，但PV中出现的喵梦更为质朴和幼态，回忆的可能性更高，所以在解决睦线的时候穿插了一部分喵梦动机解释也很有可能。只让角色做事件起爆器而不给出合理和让人共情的动机描写，既损伤角色形象也不利于增加讨论热度。
+
+对睦在本次事件收到的冲击的展示和对喵梦动机的解释有可能是双线进行的。
+
+*****
+
+####  skives10  
+##### 1941#       发表于 2024-12-5 02:05
+
+Timoris, the bassist, dominates the stage with a rich and resonant tone. Her solid and grounding sound can be described as the heartbeat of the music played by Ave Mujica.
+
+贝斯手Timoris以饱满而深沉的音色主宰舞台。她稳健且扎实的低音如同Ave Mujica音乐的心跳，为乐曲注入生命力。
+
+*****
+
+####  PDQ4  
+##### 1942#       发表于 2024-12-5 02:09
+
+主宰者，乐队的心跳
+
+这么帅的形容词
+
+让我们看看PV中的海铃
+
+<img src="https://img.saraba1st.com/forum/202412/05/020840tzn55ttx4470v37x.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (97.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 02:08 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

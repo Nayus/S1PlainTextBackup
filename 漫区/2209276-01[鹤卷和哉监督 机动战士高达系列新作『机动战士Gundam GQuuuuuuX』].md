@@ -8094,3 +8094,35 @@ G-Q6uX越看越顺眼了，坏了<img src="https://static.saraba1st.com/image/sm
 
 这side6民众对鸡窝佬也不是多么友善，但好歹不是以前万年清剿鸡窝残党了。这次鸭子看看有什么新活
 
+
+*****
+
+####  九十九尾  
+##### 857#       发表于 2024-12-5 02:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66845293&amp;ptid=2209276" target="_blank">圣锤修会 发表于 2024-12-4 22:01</a>
+
+痞子高达，没想到这辈子还能见到这东西。不过这背景设定真是闹麻了，吉翁胜利世界线
+
+—— 来自 鹅球 v3.1. ...</blockquote>
+战力相差那么大，吉翁怎么赢？
+
+没让雷比尔将军逃走，吉翁内部情况也没暴露，最后签订对吉翁有利的条约，这样？
+
+*****
+
+####  a85982313  
+##### 858#       发表于 2024-12-5 02:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66846426&amp;ptid=2209276" target="_blank">budong 发表于 2024-12-5 02:00</a>
+
+你说是哪部？</blockquote>
+大傻u吧
+
+*****
+
+####  yamato gun  
+##### 859#       发表于 2024-12-5 02:50
+
+这staff，我能当飞跃巅峰3看吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -6806,3 +6806,78 @@ ms能在殖民卫星打黑拳还管不动，那不是说明吉翁治下宇宙完
 
 这0079的描述像玩梗写的一样，我还就不太信了。
 
+
+*****
+
+####  budong  
+##### 724#       发表于 2024-12-4 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66844296&amp;ptid=2209276" target="_blank">滴虫研究学家 发表于 2024-12-4 19:41</a>
+之前觉得一季太多，现在觉得一季太少</blockquote>
+话说tv什么时候播？
+
+*****
+
+####  荔湾周润发  
+##### 725#       发表于 2024-12-4 19:50
+
+这波是高达奇人了？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  liekong  
+##### 726#       发表于 2024-12-4 19:53
+
+这一年战争背景，除了鸭子，
+
+骡子、鸭妹、拉拉是什么情况也很值得玩味
+
+例如毕竟抢夺高达成功，那么是阿姆罗当场被击毙还是根本没在现场
+
+又或者上了高达最终被赶下来、甚至被俘虏呢？
+
+*****
+
+####  natmk  
+##### 727#       发表于 2024-12-4 19:55
+
+居然是鸡瘟赢了的时间线 之前的网飞也是鸡瘟主角 遗老这下要被气死了 还要在tv里看到洗白鸡瘟
+
+*****
+
+####  novyDC  
+##### 728#       发表于 2024-12-4 19:55
+
+高堡奇人高达版
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  stevenzero  
+##### 729#       发表于 2024-12-4 19:55
+
+四连暴击
+
+这是实验短片吧？ 啊！居然是TV动画<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+这机设是废案吧？啊！居然是真的<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+反正独立世界观也没事。啊！居然是UC<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+UC就UC吧。啊！居然是吉恩胜利的世界线<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ParadiseMartyr  
+##### 730#       发表于 2024-12-4 19:55
+
+不是，夏亚怎么可能不给扎比家突突了啊。
+
+*****
+
+####  silversor  
+##### 731#       发表于 2024-12-4 19:56
+
+还没开**拉满了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">拍得太无聊了
+

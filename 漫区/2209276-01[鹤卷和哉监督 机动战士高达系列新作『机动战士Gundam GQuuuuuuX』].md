@@ -5697,3 +5697,48 @@ AGE人设接受不了的人那纯属活的太久脱离群众（小友）了，AG
 不过玩具和建模的脑袋怎么做成现在这个样子了</blockquote>
 最后那张图是同人设计图，不是官方的
 
+
+*****
+
+####  collincollin  
+##### 609#       发表于 2024-12-4 17:49
+
+三癞子！百合！高达擂台！EVA装甲！自由！<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  没取名啊  
+##### 610#       发表于 2024-12-4 17:52
+
+声优黑泽朋世，台词里念叨自由，这不是金属口红吗？
+
+*****
+
+####  老ID忘了  
+##### 611#       发表于 2024-12-4 17:53
+
+还行吧 军用装备变成烂仔改装车 有得看就行<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sliver1997  
+##### 612#       发表于 2024-12-4 17:56
+
+仔细看了下，GQ6uX这个脸是额外带了面罩吧
+
+<img src="https://img.saraba1st.com/forum/202412/04/175612df5te5unit5nhh42.jpg" referrerpolicy="no-referrer">
+
+<strong>22250.jpg</strong> (65.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 17:56 上传
+
+*****
+
+####  黑夜守望者  
+##### 613#       发表于 2024-12-4 17:58
+
+机设丑，人设丑<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+

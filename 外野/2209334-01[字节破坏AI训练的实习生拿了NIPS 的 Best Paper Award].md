@@ -453,3 +453,13 @@ illustrious是9月的文
 如果哪天天网真的像《终结者》系列电影里一样统治了人类，那么天网很可能就是这一类人搞出来的。 ...</blockquote>
 也能是反过来，这位是为了防止天网成型而特意回到过去破坏大模型训练的正义战士<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  applegreen  
+##### 43#       发表于 2024-12-4 17:53
+
+人品有问题的话，本事越大，破坏性越强
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+

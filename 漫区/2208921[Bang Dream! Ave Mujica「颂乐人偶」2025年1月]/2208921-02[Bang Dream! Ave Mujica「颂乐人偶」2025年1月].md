@@ -4033,3 +4033,17 @@ ep08这里是被祥子问“是这样吗”以及盯着看时产生的反应，�
 
 正式PV后面那个怀抱秘密的她是不是指的初华？
 
+
+*****
+
+####  PDQ4  
+##### 1838#       发表于 2024-12-4 20:20
+
+ 本帖最后由 PDQ4 于 2024-12-4 20:22 编辑 
+
+祥妈的出现基本上就是祥子（可能含睦）的回忆里了，可能还有托梦
+
+白月光就是这样嘛，出场就是已逝的状态但对于追忆者本人的重要性毋庸置疑<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+祥妈还有个优势就是她留下个人偶，只要人偶在基本上都可以联想到祥妈，有脸至少已经赢过某些没有正脸的妈了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

@@ -7396,3 +7396,60 @@ IF线试水意思挺明显，看这个 ...</blockquote>
 
 如果真是这个if线剧情，感觉不如直接让阿姆罗昏迷六年回来拍重返吉翁总部更有乐子<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KOBI  
+##### 782#       发表于 2024-12-4 23:13
+
+ 本帖最后由 KOBI 于 2024-12-4 23:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66845336&amp;ptid=2209276" target="_blank">电波系腑海林 发表于 2024-12-4 22:10</a>
+
+说回来男主开着6年前的机体要想跟上其他MS的性能确实也只有把高达神棍化一条路能走了 ...</blockquote>
+其实还好吧
+
+除了83年那几台试验机，87刚开始量产机也就高扎古镇暴吉姆
+
+塞克缪就算不神棍加成一下NT机还是可以暴打的
+
+*****
+
+####  猎人D  
+##### 783#       发表于 2024-12-4 23:14
+
+倒也不必谈吉翁胜利就色变
+
+*****
+
+####  巴尔干炮  
+##### 784#       发表于 2024-12-4 23:18
+
+有可能效仿初代小说中的结局。
+
+*****
+
+####  PascalLefèvre  
+##### 785#       发表于 2024-12-4 23:19
+
+这帮人来写高达不看神棍看什么，靠反应堆和液压驱动的机器人什么的早在三十年前就过气了啦<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  刺客ares  
+##### 786#       发表于 2024-12-4 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66845686&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2024-12-4 23:08</a>
+
+季番确定了吗？</blockquote>
+看到别处消息有说12集的有说24集的，说12集的更多点
+
+这设定24集都勉强够讲，12集恐怕需要信息轰炸+连续超展开
+
+*****
+
+####  荔湾周润发  
+##### 787#       发表于 2024-12-4 23:23
+
+都说重返吉翁总部，兴许是祖国(father land)的剧情呢？
+

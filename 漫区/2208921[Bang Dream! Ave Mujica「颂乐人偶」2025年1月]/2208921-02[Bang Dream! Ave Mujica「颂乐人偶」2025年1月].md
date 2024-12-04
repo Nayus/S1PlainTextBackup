@@ -4115,3 +4115,69 @@ Diggy-Mo’不是说唱歌手嘛，咋给🐔团写歌啊，看到他几乎包�
 
 还是睦妈x祥子比较值得期待<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">我从你出生时就开始喜欢你了什么的
 
+
+*****
+
+####  akiomn  
+##### 1846#       发表于 2024-12-4 20:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是来点老一辈的睦妈x祥妈吧，虽然双子但还是错过了
+然后后辈成了
+睦妈：你知道的，我一直都是睦祥推啊（划掉）
+
+*****
+
+####  御幸一也  
+##### 1847#       发表于 2024-12-4 20:50
+
+這種典中典劇情，感覺在上世紀的動畫裡隱晦賣百合的時候出現過很多次了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 1848#       发表于 2024-12-4 20:52
+
+妈妈去世后，森美奈美阿姨看我的眼神就怪怪的
+
+*****
+
+####  相坂君  
+##### 1849#       发表于 2024-12-4 20:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话题一转就变成轻拍战书了
+
+
+*****
+
+####  PDQ4  
+##### 1850#       发表于 2024-12-4 20:54
+
+我已经在拿大道寺家代睦家了，漏u说若叶家可能因为第一集对祥子有意见我不赞同也是这个原因
+
+祥妈死了以后怕不是对祥子更亲了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狮子咕  
+##### 1851#       发表于 2024-12-4 20:55
+
+ 本帖最后由 狮子咕 于 2024-12-4 20:57 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">关系真那么好的话也不会玩一年不管不问了，而且真那么正面人物睦头人还会爆炸吗……真给亲戚关系，睦妈大概率性格更像丰川老登吧
+
+*****
+
+####  御幸一也  
+##### 1852#       发表于 2024-12-4 20:57
+
+半身幼馴染能腦的太多了呀<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 1853#       发表于 2024-12-4 20:57
+
+绫奈毕竟写女女关系性和呼吸一样，会不会有真的不好说吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽然她这么写一部分人可能要过呼吸了
+

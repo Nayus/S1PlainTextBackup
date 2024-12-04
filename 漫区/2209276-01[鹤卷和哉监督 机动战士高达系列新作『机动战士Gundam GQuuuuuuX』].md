@@ -5617,3 +5617,40 @@ AGE人设接受不了的人那纯属活的太久脱离群众（小友）了，AG
 
 啊？鸡瘟统治下的平行宇宙？😱
 
+
+*****
+
+####  ads147147  
+##### 600#       发表于 2024-12-4 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66842640&amp;ptid=2209276" target="_blank">东方定助 发表于 2024-12-4 16:27</a></blockquote>
+顺眼了。。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  DARILBALDE  
+##### 601#       发表于 2024-12-4 16:59
+
+鸡舍不是刑部，但这个逼天线也太刑部了点（
+人设喜欢，剧情搞竞技就搞竞技吧，也不是没搞过，反正现在的日本人是写不出正经的战争了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+*****
+
+####  Hidewhite  
+##### 602#       发表于 2024-12-4 17:00
+
+这些新高达造型变来变去，反而配色没啥大改。搭配起来一直都不怎么样，明明配色大改下是最容易出新意的。 也不知道搞啥，元祖那白蓝红配色有时候又不好用
+
+
+*****
+
+####  aiyouo  
+##### 603#       发表于 2024-12-4 17:06
+
+又仔细看了看机设，妈的真的是太丑了，受不了。真的像是哪个国模厂一拍脑门，要做个eva风的高达，潮的发瘟啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

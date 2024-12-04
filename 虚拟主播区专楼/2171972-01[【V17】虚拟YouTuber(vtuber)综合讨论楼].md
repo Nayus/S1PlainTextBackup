@@ -333,3 +333,11 @@ VCRGTA3已知的部分情报（一些主播直播的时候透露的）
 
 解约不是更……<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aritaatsu222  
+##### 923#       发表于 2024-12-4 16:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">反正解約月之是當成喜報在報的，要不是解約了也搞不了她想弄的特典遊戲
+

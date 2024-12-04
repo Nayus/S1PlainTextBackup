@@ -7218,3 +7218,41 @@ attachimg]1792693[/attachimg]
 
 不过再烂肯定也烂不过s1必看榜水星的魔女
 
+
+*****
+
+####  电波系腑海林  
+##### 764#       发表于 2024-12-4 22:10
+
+说回来男主开着6年前的机体要想跟上其他MS的性能确实也只有把高达神棍化一条路能走了
+
+*****
+
+####  猪突猛进R  
+##### 765#       发表于 2024-12-4 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66845336&amp;ptid=2209276" target="_blank">电波系腑海林 发表于 2024-12-4 22:10</a>
+
+说回来男主开着6年前的机体要想跟上其他MS的性能确实也只有把高达神棍化一条路能走了 ...</blockquote>
+鸭子开RX-78直接在所罗门引发了第二次冲击，你来说MS性能？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  电波系腑海林  
+##### 766#       发表于 2024-12-4 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66845349&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2024-12-4 22:12</a>
+
+鸭子开RX-78直接在所罗门引发了第二次冲击，你来说MS性能？</blockquote>
+所以这就是神棍化的结果啊<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  g救世主高达  
+##### 767#       发表于 2024-12-4 22:17
+
+<blockquote>电波系腑海林 发表于 2024-12-4 22:10
+说回来男主开着6年前的机体要想跟上其他MS的性能确实也只有把高达神棍化一条路能走了 ...</blockquote>
+uc本来就是最神棍的，除了00人均神棍以外，雷霆宙域一破元祖背个布劳布罗就能团灭月神2舰队和ms，独角兽更是演都不演直接挥挥手团灭一个舰队，uc说自己神棍第一，种和00不敢说自己第二
+

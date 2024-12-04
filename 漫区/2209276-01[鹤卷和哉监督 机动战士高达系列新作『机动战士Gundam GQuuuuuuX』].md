@@ -6106,3 +6106,196 @@ UC0085年用军用规格MS打黑拳，怎么想怎么别扭啊
 
 <img src="https://img.saraba1st.com/forum/202412/04/182736mmapmuup75cpkgrk.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  没取名啊  
+##### 652#       发表于 2024-12-4 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66843777&amp;ptid=2209276" target="_blank">11116等 发表于 2024-12-4 18:27</a>
+可能是整个宇宙都处于军阀混战的状态？
+
+—— 来自 OnePlus PGKM10, Android 14上的 S1Next-鹅版 v2.1.2 ...</blockquote>
+PV有警察扎古，感觉还没到宇宙战国时代那个程度
+
+*****
+
+####  cih  
+##### 653#       发表于 2024-12-4 18:29
+
+居然真要硬套UC让志恩赢😂😂😂，各种方面节奏和乐子拉满了 老壁灯们还是懂流量
+
+*****
+
+####  patema  
+##### 654#       发表于 2024-12-4 18:29
+
+估计是所罗门那一炸把联邦炸的没脾气了就随便他们宇宙居民怎么搞了，0083核弹炸舰队并不是没发生而是被平移到了导致战争结束的塞克谬事故
+
+*****
+
+####  g救世主高达  
+##### 655#       发表于 2024-12-4 18:29
+
+孩子们，元祖高达加上赛克谬技术真的能无双联邦军
+
+<img src="https://img.saraba1st.com/forum/202412/04/182950i7jr7t3f3bxsjsqu.jpg" referrerpolicy="no-referrer">
+
+<strong>D9EAA48E31B17F8719465942445B951B.jpg</strong> (213.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 18:29 上传
+
+<img src="https://img.saraba1st.com/forum/202412/04/182950vp8en4zkqunqxp4n.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241204_182850_com_copymanga_app_MainActivity.jpg</strong> (411.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 18:29 上传
+
+*****
+
+####  oi99o  
+##### 656#       发表于 2024-12-4 18:30
+
+意大利语官网现在已经404了，不会真的草台了一遍吧
+
+<img src="https://img.saraba1st.com/forum/202412/04/182950zhs3fh9n5s0n0pes.png" referrerpolicy="no-referrer">
+
+<strong>{143F1D25-EAE9-48E6-B9D2-8872BF1E6AFC}.png</strong> (68.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 18:29 上传
+
+*****
+
+####  星川铃音  
+##### 657#       发表于 2024-12-4 18:30
+
+丑出天际 这脚啥玩意
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  g救世主高达  
+##### 658#       发表于 2024-12-4 18:31
+
+<blockquote>cih 发表于 2024-12-4 18:29
+居然真要硬套UC让志恩赢😂😂😂，各种方面节奏和乐子拉满了 老壁灯们还是懂流量 ...</blockquote>
+基连的野望早就玩过吉翁获胜if了，老登还是没新意，我还以为是nt暴走导致全人类进化这种eva剧情呢呢
+
+*****
+
+####  翔kakeru  
+##### 659#       发表于 2024-12-4 18:31
+
+咋连着做了两部女机师当主角的高达
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  oi99o  
+##### 660#       发表于 2024-12-4 18:33
+
+还好网页时光机存到档了，真的泄露过：[https://web.archive.org/web/2024 ... es-pages/gquuuuuux/](https://web.archive.org/web/20241204000859/https://it.gundam.info/about-gundam/series-pages/gquuuuuux/)
+
+<img src="https://img.saraba1st.com/forum/202412/04/183309dmnsy0q6kaccmayc.png" referrerpolicy="no-referrer">
+
+<strong>{D1442624-AA03-4743-9791-3C6A8114FCB3}.png</strong> (126.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 18:33 上传
+
+以下机翻：
+
+<img src="https://img.saraba1st.com/forum/202412/04/183327b6i6uludbb68tg8w.png" referrerpolicy="no-referrer">
+
+<strong>{15BBC719-A31F-4914-9DF3-4FD6F983A10F}.png</strong> (101.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 18:33 上传
+
+
+*****
+
+####  线程召唤使  
+##### 661#       发表于 2024-12-4 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66843831&amp;ptid=2209276" target="_blank">oi99o 发表于 2024-12-4 18:33</a>
+
+还好网页时光机存到档了，真的泄露过：https://web.archive.org/web/20241204000859/https://it.gundam.inf ...</blockquote>
+阿这 好吧2333
+
+*****
+
+####  为了mf注册  
+##### 662#       发表于 2024-12-4 18:35
+
+一台机体改变战争走向，什么最吉幻想
+
+*****
+
+####  wpcc  
+##### 663#       发表于 2024-12-4 18:35
+
+0085 完了 鸡瘟皇太子破产了
+
+*****
+
+####  nage560  
+##### 664#       发表于 2024-12-4 18:35
+
+日升是怎么做到机设一部比一部丑的？
+
+*****
+
+####  没取名啊  
+##### 665#       发表于 2024-12-4 18:35
+
+太小丑了夏亚，扎比家没干掉就让吉翁打赢了，还提早将近一百年让宇宙进入战国时代
+
+*****
+
+####  线程召唤使  
+##### 666#       发表于 2024-12-4 18:36
+
+但是我觉得这个描述挺搞的，不会是意大利临时工拿官网玩梗吧
+
+*****
+
+####  patema  
+##### 667#       发表于 2024-12-4 18:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">除了核爆所罗门想不出来有什么办法单机改变局势
+
+*****
+
+####  oi99o  
+##### 668#       发表于 2024-12-4 18:37
+
+高达吧怎么还有日文版的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202412/04/183733tzarm86z0mriplnd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (150.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 18:37 上传
+
+*****
+
+####  cih  
+##### 669#       发表于 2024-12-4 18:37
+
+<blockquote>g救世主高达 发表于 2024-12-4 18:31
+基连的野望早就玩过吉翁获胜if了，老登还是没新意，我还以为是nt暴走导致全人类进化这种eva剧情呢呢 ...</blockquote>
+野望是游戏 只是获胜个任务完成FLAG，第二部大家该咋打还咋打😂根本没什么细节描写。这次鸡瘟领导世界的花活 想想就劲到PTSD啊🤣🤣🤣
+

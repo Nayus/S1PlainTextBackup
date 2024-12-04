@@ -3719,3 +3719,43 @@ HENSHIN!
 
 祥子爹能有啥戏份，我甚至感觉狠一点可能会变成晴天娃娃给祥子一个大的成长
 
+
+*****
+
+####  vigada  
+##### 1809#       发表于 2024-12-4 18:30
+
+这里真的是讨论爹讨论的最认真的地方啊…咱这不是美少女组乐队的番吗？
+
+稀释一下爹的浓度，睦在pv这个镜头，在mygo第八集飞鸟山那里有相似镜头，应该可以认为这是睦在思考什么让她感到难以述说或者受到压力而产生的表情？积累压力越多就越容易爆发啊，特别是不太容易用言语将自身压力表达出来。希望编剧对这些小女孩好一点。
+
+<img src="https://img.saraba1st.com/forum/202412/04/182831wce80q89893qe8ks.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241204_181414_tv.danmaku.bili.jpg</strong> (94.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 18:28 上传
+
+<img src="https://img.saraba1st.com/forum/202412/04/182831b3h66zpzq6625shq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241204_181548_tv.danmaku.bili.jpg</strong> (112.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 18:28 上传
+
+*****
+
+####  skives10  
+##### 1810#       发表于 2024-12-4 18:32
+
+感觉睦这个表情是设定集里喜怒哀乐的怒
+
+*****
+
+####  PDQ4  
+##### 1811#       发表于 2024-12-4 18:34
+
+我觉得是下定决心的表情<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

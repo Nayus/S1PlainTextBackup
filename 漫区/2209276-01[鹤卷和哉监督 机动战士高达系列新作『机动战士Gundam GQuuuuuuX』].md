@@ -7035,3 +7035,26 @@ UC就UC吧。啊！居然是吉恩胜利的世界线<img src="https://static.sar
 
 最适合高达exvs的一集（  <img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cowgp01  
+##### 749#       发表于 2024-12-4 21:04
+
+这鸭子自爆成全了扎比家，不是比正史还样衰了
+
+*****
+
+####  mousy55555  
+##### 750#       发表于 2024-12-4 21:07
+
+<img src="https://img.saraba1st.com/forum/202412/04/210703wiqjsgo3v15ie9go.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (149.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 21:07 上传
+
+贴吧造谣佬加司马自媒体传播的假图，但凡有点心上官网看一眼都不会被骗到
+

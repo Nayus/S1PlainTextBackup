@@ -4181,3 +4181,19 @@ Diggy-Mo’不是说唱歌手嘛，咋给🐔团写歌啊，看到他几乎包�
 
 虽然她这么写一部分人可能要过呼吸了
 
+
+*****
+
+####  PDQ4  
+##### 1854#       发表于 2024-12-4 21:00
+
+ 本帖最后由 PDQ4 于 2024-12-4 21:02 编辑 
+
+是祥子主动选爹，13集进睦家女仆明显是认识祥子的
+
+如果真够亲，睦妈知道祥子决定可能还会说和祥妈一样，祥子不会回去的之类<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+老头不优先祥子和闺女想法，睦妈还能不知道祥妈和祥子怎么想吗，当然前提都是够亲
+
+睦个人的问题怎么讲还不知道，说不定回忆的时候发现和祥子视角一样，视野里也全是祥子<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

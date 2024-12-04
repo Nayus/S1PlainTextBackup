@@ -7007,3 +7007,31 @@ UC就UC吧。啊！居然是吉恩胜利的世界线<img src="https://static.sar
 
 另外这个PV机站分镜不要太EVA
 
+
+*****
+
+####  滴虫研究学家  
+##### 746#       发表于 2024-12-4 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66844354&amp;ptid=2209276" target="_blank">budong 发表于 2024-12-4 19:49</a>
+
+话说tv什么时候播？</blockquote>
+貌似没说
+
+*****
+
+####  g救世主高达  
+##### 747#       发表于 2024-12-4 20:41
+
+<blockquote>downnote 发表于 2024-12-4 20:27
+所以这里原历史的人物也会登场嘛，很好奇竹的画风里面夏亚啊紫色老太婆这堆人会是什么造型 ...</blockquote>
+大概和雷霆宙域一样，只会变成背景板，tb漫画有德金公王画像，对阿姆罗也只是提了一嘴新人类少年开高达，不过夏亚感觉有机会露脸
+
+
+*****
+
+####  抹茶瓜  
+##### 748#       发表于 2024-12-4 20:44
+
+最适合高达exvs的一集（  <img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+

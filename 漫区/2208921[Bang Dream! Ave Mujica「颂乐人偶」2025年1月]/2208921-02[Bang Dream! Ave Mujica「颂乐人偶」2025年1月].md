@@ -4076,3 +4076,42 @@ ep08这里是被祥子问“是这样吗”以及盯着看时产生的反应，�
 戏份和（观感上的）重要性是两回事，就好比mygo动画里的mujica成员（祥子除外吧），其实并没有什么重要戏份 ...</blockquote>
 其实，父母辈声优大物很正常，比如素世妈
 
+
+*****
+
+####  Aendst  
+##### 1842#       发表于 2024-12-4 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66844682&amp;ptid=2208921" target="_blank">zzhh0131 发表于 2024-12-4 20:35</a>
+
+其实，父母辈声优大物很正常，比如素世妈</blockquote>
+爽世妈戏份其实算相对多的了，cv是谁我没太注意
+
+祥爹和外公按照日本人repo的名单来看都不是很大物
+
+邦多利一期父母辈我记得也没有比大原更有名的，不过确实有相当前辈级的
+
+*****
+
+####  黑夜落叶秋天  
+##### 1843#       发表于 2024-12-4 20:42
+
+睦妈会出场的话
+
+有机会磕睦妈x睦或者睦妈x祥子 么
+
+*****
+
+####  罗克萨斯  
+##### 1844#       发表于 2024-12-4 20:42
+
+Diggy-Mo’不是说唱歌手嘛，咋给🐔团写歌啊，看到他几乎包办了大部分作词，还参与了部分作曲，被震惊到了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  skives10  
+##### 1845#       发表于 2024-12-4 20:46
+
+还是睦妈x祥子比较值得期待<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">我从你出生时就开始喜欢你了什么的
+

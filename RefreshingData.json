@@ -8631,10 +8631,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 107060,
+    "totalreply": 107061,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1733331378,
+    "lastedit": 1733331607,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10062,10 +10062,10 @@
     "update": false
   },
   "2201926": {
-    "totalreply": 32023,
+    "totalreply": 32026,
     "title": "[【集中楼】百合&amp;泛百合讨论楼9.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼9.0]",
-    "lastedit": 1733331374,
+    "lastedit": 1733331971,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10161,10 +10161,10 @@
     "update": false
   },
   "2144088": {
-    "totalreply": 346,
+    "totalreply": 347,
     "title": "[《战国·妖狐》动画楼.WHITE FOX.全三季度.24.01.10开播]",
     "newtitle": "[《战国·妖狐》动画楼.WHITE FOX.全三季度.24.01.10开播]",
-    "lastedit": 1733330173,
+    "lastedit": 1733331734,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10674,10 +10674,10 @@
     "update": false
   },
   "1974542": {
-    "totalreply": 452,
+    "totalreply": 453,
     "title": "[精灵幻想记 TV动画化]",
     "newtitle": "[精灵幻想记 TV动画化]",
-    "lastedit": 1733330538,
+    "lastedit": 1733331738,
     "category": "漫区",
     "active": true,
     "update": false
@@ -15989,7 +15989,7 @@
     "newtitle": "[金星在佛山的表演被取消了]",
     "lastedit": 1733072407,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1921036": {
@@ -16992,10 +16992,10 @@
     "update": false
   },
   "2209250": {
-    "totalreply": 1954,
+    "totalreply": 1955,
     "title": "[尹卡卡宣布实施紧急戒严。]",
     "newtitle": "[尹卡卡宣布实施紧急戒严。]",
-    "lastedit": 1733331138,
+    "lastedit": 1733331738,
     "category": "外野",
     "active": true,
     "update": false
@@ -17091,10 +17091,10 @@
     "update": false
   },
   "2209276": {
-    "totalreply": 837,
+    "totalreply": 841,
     "title": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
     "newtitle": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
-    "lastedit": 1733331378,
+    "lastedit": 1733331969,
     "category": "漫区",
     "active": true,
     "update": false
@@ -17496,11 +17496,20 @@
     "update": false
   },
   "2209366": {
-    "totalreply": 42,
+    "totalreply": 44,
     "title": "[泰国冬阴功申遗成功]",
     "newtitle": "[泰国冬阴功申遗成功]",
-    "lastedit": 1733331138,
+    "lastedit": 1733331733,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2179544": {
+    "totalreply": 112,
+    "title": "[《天国：拯救2》正式公开，2025年2月11日发售]",
+    "newtitle": "[《天国：拯救2》正式公开，2025年2月11日发售]",
+    "lastedit": 1733331974,
+    "category": "游戏区",
     "active": true,
     "update": false
   }

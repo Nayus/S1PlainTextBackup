@@ -7909,3 +7909,44 @@ G-Q6uX越看越顺眼了，坏了<img src="https://static.saraba1st.com/image/sm
 
 裤袜脱落知道自己那么叼么，你还不如告诉我782装的缩退炉，请看下回，以元祖之力打到TM整个UC世界啊！
 
+
+*****
+
+####  Atamaitai  
+##### 838#       发表于 2024-12-5 00:58
+
+这设定太离谱了，我光想一想就乐，很期待正式开播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  patema  
+##### 839#       发表于 2024-12-5 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66846251&amp;ptid=2209276" target="_blank">plok201 发表于 2024-12-5 00:55</a>
+
+夏亚加782在所罗门把联邦全杀了？
+
+裤袜脱落知道自己那么叼么，你还不如告诉我782装的缩退炉，请看下回，以 ...</blockquote>
+没有，应该是塞克谬事故炸的，把半个所罗门删除了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  patema  
+##### 840#       发表于 2024-12-5 00:59
+
+ 本帖最后由 patema 于 2024-12-5 01:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66846250&amp;ptid=2209276" target="_blank">PascalLefèvre 发表于 2024-12-5 00:55</a>
+
+虽然但是，之前水魔也是这么说的</blockquote>
+水魔确实整了啊，不是给你们塔塔开，强化人，地宇矛盾了吗，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只是最后缩卵了，你就说有没有吧
+
+
+*****
+
+####  Sliurus  
+##### 841#       发表于 2024-12-5 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66846215&amp;ptid=2209276" target="_blank">线程召唤使 发表于 2024-12-5 00:44</a>
+ 我举个例子罢了，意思是说故事不会走太多。比如银河美少年的故事到最后也就是点了一下各国都在关注这个破 ...</blockquote>
+能做到银河美少年的程度倒也算是部不错的作品，有炫酷又时髦的场景，偶尔有爆点，能让观众接受这个风格就行
+

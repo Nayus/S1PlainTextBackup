@@ -7660,3 +7660,90 @@ https://web.archive.org/web/20241204000859/https://it.gundam.info/about-gundam/s
 
 你高提前泄露机设不都是“优良传统”了，远的先不说，近的种自当初刚发布人物pv的时候新自由和新正义的机设很快就泄露了
 
+
+*****
+
+####  一个陆仁贾  
+##### 811#       发表于 2024-12-5 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66845966&amp;ptid=2209276" target="_blank">mousy55555 发表于 2024-12-4 23:55</a>
+意大利官网现在跳转也是404啊，正常的，页面出问题了要修复所以下了呗，我又没说原本的页面不存在，我说 ...</blockquote>
+所以你的意思是有造谣的人仅凭pv里浮游炮的样子直接ai作出了不存在的红高达机设，然后又有人根据伪造的机设再黑到草台官网上编出故事连接吗<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/20/db0b05fc271b9ccbafc5887ecaed204f/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/f3cd570aea25f5ae9ddcbc07bcb29a42/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  patema  
+##### 812#       发表于 2024-12-5 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66845995&amp;ptid=2209276" target="_blank">molemole 发表于 2024-12-4 23:59</a>
+
+明显是初期稿子，透露的主角机除了脑袋不同，身体细节和现在的建模也有细微差异，但总体还是一个东西，红 ...</blockquote>
+我估计红高达的脑袋也会改，其实单看pv，疑似红高的机体裤裆部分相比于初设改了相当多了
+
+*****
+
+####  mousy55555  
+##### 813#       发表于 2024-12-5 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66846009&amp;ptid=2209276" target="_blank">oi99o 发表于 2024-12-5 00:01</a>
+
+你高提前泄露机设不都是“优良传统”了，远的先不说，近的种自当初刚发布人物pv的时候新自由和新正义的机设 ...</blockquote>
+飞自泄露那是财团自己的手游直接把建模给完整扔出来了……还真不是社交媒体泄露的，主要这剧情过于离谱我完全不想相信这是真的<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  patema  
+##### 814#       发表于 2024-12-5 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66846038&amp;ptid=2209276" target="_blank">mousy55555 发表于 2024-12-5 00:05</a>
+
+飞自泄露那是财团自己的手游直接把建模给完整扔出来了……还真不是社交媒体泄露的，主要这剧情过于离谱我 ...</blockquote>
+也没多离谱吧，就是鸡瘟if线。感觉比起隔壁雷霆宙域打和尚还是纯良不少的
+
+
+*****
+
+####  liuxiaoyan23  
+##### 815#       发表于 2024-12-5 00:11
+
+这下联邦残党了
+
+*****
+
+####  滴虫研究学家  
+##### 816#       发表于 2024-12-5 00:12
+
+机设图肯定是真的，ai画高达咱都见过，能画成这逼样的还是头一回
+
+*****
+
+####  pokemon最爱  
+##### 817#       发表于 2024-12-5 00:13
+
+这背景过于离谱让人怀疑是不是屹立在时间长河之上的某一角仙帝和某风凰仙帝搞事给一年战争的吉翁直接扔了精神力骨架技术<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+总不能是卡斯巴尔没有背刺夏亚套夏亚皮而是换了别的路线复仇扎比家真夏亚变成赤色彗星的路线吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oi99o  
+##### 818#       发表于 2024-12-5 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66846038&amp;ptid=2209276" target="_blank">mousy55555 发表于 2024-12-5 00:05</a>
+
+飞自泄露那是财团自己的手游直接把建模给完整扔出来了……还真不是社交媒体泄露的，主要这剧情过于离谱我 ...</blockquote>
+最早泄露的就是圆棒男的机设图，手游建模那是机体公开后模型还没发售时的事了，是因为直接套用了商品模型的建模才闹得比较大的。况且泄露你管他是哪里出来的，反正你最终不都是在社交媒体上看到的吗
+
+*****
+
+####  mousy55555  
+##### 819#       发表于 2024-12-5 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66846026&amp;ptid=2209276" target="_blank">一个陆仁贾 发表于 2024-12-5 00:04</a>
+
+所以你的意思是有造谣的人仅凭pv里浮游炮的样子直接ai作出了不存在的红高达机设，然后又有人根据伪造的机 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">这个真是盲点，不过那个故事背景是真的太扯淡以致于我拒绝相信他是真的
+

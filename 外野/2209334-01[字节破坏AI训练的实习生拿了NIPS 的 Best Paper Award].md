@@ -639,3 +639,11 @@ illustriousXL完全比不了，细节磨了磨而 ...</blockquote>
 
 —— 来自 vivo V2339FA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  全世界失恋  
+##### 61#       发表于 2024-12-5 07:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那么，科学史上有没有类似破坏金主赞助的其他人的实验以便自己拿到更多资源然后头像还能挂在墙上的人呢，别说是牛顿吧
+

@@ -1985,3 +1985,99 @@ ms格斗竞技？
 18年立项真的不是不看好没提前放出来么</blockquote>
 这片卡哈主力的话，我更倾向于就是做得慢罢了
 
+
+*****
+
+####  zzf111  
+##### 216#       发表于 2024-12-4 10:20
+
+竹的人设做高达我没意见
+
+但是机设好怪啊，这就是超越新世代的设计吗<img src="https://static.saraba1st.com/image/smiley/bundam2017/027.png" referrerpolicy="no-referrer">
+
+*****
+
+####  g救世主高达  
+##### 217#       发表于 2024-12-4 10:21
+
+<blockquote>10th_Mystery 发表于 2024-12-4 10:15
+</blockquote>
+平行uc世界观实锤了吗，这个世界阿姆罗是嘎了还是活着？
+
+*****
+
+####  清雨  
+##### 218#       发表于 2024-12-4 10:21
+
+是三角恋就看
+
+*****
+
+####  污陨血红  
+##### 219#       发表于 2024-12-4 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66838727&amp;ptid=2209276" target="_blank">Rhantolk 发表于 2024-12-4 10:07</a>
+
+太假了好吧，一眼钓姨姥</blockquote>
+就痞子那帮人拍新奥和新假的那股子劲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+整个新UC的可能性也有
+
+
+*****
+
+####  阿姆罗二世  
+##### 220#       发表于 2024-12-4 10:22
+
+本来看是新女主高达还是很惊喜的，结果看到又是一年战争平行宇宙一下子就倒胃口了
+
+*****
+
+####  1096beam  
+##### 221#       发表于 2024-12-4 10:22
+
+这不趁机把阿姆罗CV换了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sliver1997  
+##### 222#       发表于 2024-12-4 10:24
+
+平行UC也太假了吧
+
+*****
+
+####  zzhh0131  
+##### 223#       发表于 2024-12-4 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66838799&amp;ptid=2209276" target="_blank">zzhh0131 发表于 2024-12-4 10:13</a>
+
+鹤卷新作居然是高达，真不爽。</blockquote>
+而且都这样还看到一堆人痞子长痞子短的，更不爽了
+
+*****
+
+####  PascalLefèvre  
+##### 224#       发表于 2024-12-4 10:26
+
+比比利利爱扮姨姥的小鬼只认识痞子 理解一下
+
+*****
+
+####  Toby_dak  
+##### 225#       发表于 2024-12-4 10:26
+
+『機動戦士Gundam GQuuuuuuX（ジークアクス）-Beginning-』
+
+This story is the only beginning.
+<img src="https://static.saraba1st.com/image/smiley/bundam2017/007.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  萝卜迷  
+##### 226#       发表于 2024-12-4 10:28
+
+真是平行uc殖民地的人还没翻身？
+

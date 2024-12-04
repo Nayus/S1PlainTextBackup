@@ -2634,3 +2634,53 @@ QQ图片20241204091737.jpg
 
 睦家里不知道会怎么对祥子
 
+
+*****
+
+####  狮子咕  
+##### 1709#       发表于 2024-12-4 10:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">3个月左右从出道速通武道馆，丰川或者若叶家怎么也得是有一边出了力才合理吧，不然你什么神仙啊这么起飞
+
+
+*****
+
+####  狮子咕  
+##### 1710#       发表于 2024-12-4 10:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">睦的家里确实还挺有趣的，要是本来就是想让睦演员出道，那祥子或者睦在明知道这事没解决的情况下拉人，还说【把剩下的人生交给她】这不是诈骗嘛……当然如果已经说服了睦的父母，那睦只是被揭露了身份其实也没有什么好爆的
+
+*****
+
+####  柴突猛进  
+##### 1711#       发表于 2024-12-4 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66837401&amp;ptid=2208921" target="_blank">狮子咕 发表于 2024-12-4 07:40</a>
+
+有什么复杂的，10个人一起唱一首新歌不就好了，灯写给祥子那部分a part，初华写的唱b part，终极大音趴 ...</blockquote>
+加上甜甜圈女士就可以变成十一人，然后在同台对邦的时候大家一键换装统一制服最终合并成一个十一人的新团<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 1712#       发表于 2024-12-4 10:25
+
+好多人啊，要不把蝶也拉进来吧
+
+*****
+
+####  狮子咕  
+##### 1713#       发表于 2024-12-4 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66838952&amp;ptid=2208921" target="_blank">柴突猛进 发表于 2024-12-4 10:23</a>
+
+加上甜甜圈女士就可以变成十一人，然后在同台对邦的时候大家一键换装统一制服最终合并成一个十一人的新团 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">甜甜圈女士在台下看
+
+*****
+
+####  星天观测  
+##### 1714#       发表于 2024-12-4 10:26
+
+那都加蝶了，我萝后排两个也露脸了，能不能让我萝也加进来
+

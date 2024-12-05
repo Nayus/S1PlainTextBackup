@@ -10463,3 +10463,38 @@ top2里前作俩女主存在感也很强，就是从头到尾没露过一次面
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  hanan1  
+##### 1020#       发表于 2024-12-5 20:19
+
+龙的牙医不太适合拿来参考吧，剧本世界观都是舞城王太郎主导，完全不像榎户写的。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  变老的大二  
+##### 1021#       发表于 2024-12-5 20:21
+
+夏亚在所罗门开红高达暴走引发精神力爆炸团灭了联邦吗？
+
+*****
+
+####  aaadka  
+##### 1022#       发表于 2024-12-5 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66849963&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2024-12-5 14:17</a>
+
+话说这staff阵容劾国家队比这么样？</blockquote>
+国家队那个就是cw班底加一点扳机的，顶多算国家青年队。这个是eva班底，老登国家队
+
+
+*****
+
+####  哈扎马  
+##### 1023#       发表于 2024-12-5 20:23
+
+要说机体拿分点是脚部结构比较时髦吧，但小腿又有点倒a复古风，然后最糟糕的整个身体疏密平均流水账一样，瘤状兜角更是一等一劝退<img src="https://static.saraba1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">都请了竹了还不如把脚部镂空风格发扬到底呢
+

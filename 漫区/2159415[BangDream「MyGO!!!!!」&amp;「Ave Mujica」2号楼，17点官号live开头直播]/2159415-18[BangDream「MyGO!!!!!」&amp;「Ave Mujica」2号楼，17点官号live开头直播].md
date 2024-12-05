@@ -16980,3 +16980,15 @@ EA487C0A626CFAE760B56986114137A2.jpg
 （有新歌夜隐染的片段， ...</blockquote>
 前奏好听，人声编排感觉比较平，没啥感情，不过也可能节选的部分的问题
 
+
+*****
+
+####  月島まりな  
+##### 26567#       发表于 2024-12-5 20:16
+
+ 本帖最后由 月島まりな 于 2024-12-5 20:18 编辑 
+
+MyGO二专试听  [https://www.youtube.com/watch?v=B6bahlqpENw](https://www.youtube.com/watch?v=B6bahlqpENw)
+
+终于有明弦音了，anon可爱
+

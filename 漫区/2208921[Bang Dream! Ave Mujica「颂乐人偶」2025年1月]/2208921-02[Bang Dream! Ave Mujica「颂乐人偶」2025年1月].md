@@ -5318,3 +5318,28 @@ live也是世界观的一部分
 
 我要是记者我就去采访初华前队友<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 1959#       发表于 2024-12-5 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66847205&amp;ptid=2208921" target="_blank">星天观测 发表于 2024-12-5 09:15</a>
+
+之前群友说或许4th会复刻第一话的内容，毕竟live当天也会播放第一话
+
+如果是这样那三次鸡是不是终于可以不用 ...</blockquote>
+雖然不在群裡但我也一直貸款的這個<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 畢竟都要現場播第一話了，感覺也是比較適合現實摘面具的時機了。
+別告訴我這個破面具真的不摘了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仓鼠胖太  
+##### 1960#       发表于 2024-12-5 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66847102&amp;ptid=2208921" target="_blank">椎名真希 发表于 2024-12-5 09:01</a>
+这是PV里面截图的P图
+
+睦家里演艺出身，不可能打脸的</blockquote>
+淦…吓死，还以为又出新图透了
+

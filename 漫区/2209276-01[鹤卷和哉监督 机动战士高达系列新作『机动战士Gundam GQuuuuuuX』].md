@@ -8213,3 +8213,32 @@ G-Q6uX越看越顺眼了，坏了<img src="https://static.saraba1st.com/image/sm
 
 印象最深的就是地球上那个原天宇人的大叔，那一集最后说要自己寻找自己的道路，然后就这么没戏份了，就结局露了个脸，看得我满脸问号，你既然不准备写那还搞出地球那一集干嘛，还给他搞这种台词干嘛
 
+
+*****
+
+####  wpcc  
+##### 869#       发表于 2024-12-5 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66847186&amp;ptid=2209276" target="_blank">qsscwddv1 发表于 2024-12-5 09:13</a>
+
+不是死不死人的问题，水魔是前面提出来了，然后到后面这些直接无视了，直接就结局天宇老爷自罚三杯赏了地 ...</blockquote>
+不死人就搞不了革命啊 这种东西肯定要把建制派死完才行
+
+*****
+
+####  0aleph37  
+##### 870#       发表于 2024-12-5 09:20
+
+水魔的问题不是想卖什么，而是什么都想卖，结果就是哪方受众都不讨好。
+
+
+*****
+
+####  岸波白野  
+##### 871#       发表于 2024-12-5 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66847186&amp;ptid=2209276" target="_blank">qsscwddv1 发表于 2024-12-5 09:13</a>
+
+不是死不死人的问题，水魔是前面提出来了，然后到后面这些直接无视了，直接就结局天宇老爷自罚三杯赏了地 ...</blockquote>
+小年轻来看百合贴贴当挑染嬷嬷包饺子不说戏份也得留足，至于老高达手艺味东西当然不用弄得这么明白，不过看到新的大女主高达问世才反应过来，水魔现在播了也有两年作为官方背书的种后最大钢弹热潮谷子现在一定还是出多多卖爆爆吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

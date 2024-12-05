@@ -5848,3 +5848,13 @@ https://bbs.nga.cn/read.php?pid=798275263&amp;opt=128
 
 第一集的live就是op吗？好喜欢啊，希望能早点上，我已经等不及循环了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 2005#       发表于 2024-12-5 21:32
+
+我觉得漏油可以期待op，至少超出我预期了，很喜欢
+
+更想跳到1.9了，想看oped画面<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

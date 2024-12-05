@@ -9784,3 +9784,98 @@ GQX近战武装被实体弹压制，可以认为和之前扎古开枪的镜头�
 
 只能说涂鸦还真要作为本作一个重要线索了
 
+
+*****
+
+####  刺客ares  
+##### 962#       发表于 2024-12-5 17:24
+
+所以本作前期的剧情是这样的
+
+女主弄丢弄坏了女二的走私品，被后者拉着去打黑拳赔钱
+
+然后男主是某个吉翁后继组织的人，涂鸦被军警发现所以遭到追捕
+
+警察扎古被红高达击落到居民区造成很大破坏，女主看到了上机先打警察扎古，然后又对战红高达
+
+结果不打不相识，二人击退了警察扎古后组队打黑拳
+
+要么就是不打黑拳了，直接组队带上女二逃离殖民卫星
+
+*****
+
+####  创始’’’天翔  
+##### 963#       发表于 2024-12-5 17:27
+
+<blockquote>刺客ares 发表于 2024-12-5 17:24
+所以本作前期的剧情是这样的
+
+女主弄丢弄坏了女二的走私品，被后者拉着去打黑拳赔钱
+
+然后男主是某个吉翁后继 ...</blockquote>
+不是吉翁胜利线吗
+
+<img src="https://img.saraba1st.com/forum/202412/05/172717ggui5qgzgn5nfdq2.png" referrerpolicy="no-referrer">
+
+<strong>7cfa626a639cafe05d552e7a12a1c12f6ed893efc7a91d230f711bfc8250c3d5.0.PNG</strong> (420 Bytes, 下载次数: 0)
+
+下载附件
+
+2024-12-5 17:27 上传
+
+*****
+
+####  刺客ares  
+##### 964#       发表于 2024-12-5 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66851204&amp;ptid=2209276" target="_blank">穿越护城河 发表于 2024-12-5 16:42</a>
+
+不要光拉片，看最后一张图上的广告是“乐队招募”
+
+所以屋里人是自己人，属于太空大篷车上的朋友，在这里 ...</blockquote>
+刚看到，女主黄部长来点经典低音号插入曲<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  刺客ares  
+##### 965#       发表于 2024-12-5 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66851635&amp;ptid=2209276" target="_blank">创始’’’天翔 发表于 2024-12-5 17:27</a>
+
+不是吉翁胜利线吗</blockquote>
+扎比家的吉翁胜利关我夏亚精神传人什么事，异世界马夫蒂我当定了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  穿越护城河  
+##### 966#       发表于 2024-12-5 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66851603&amp;ptid=2209276" target="_blank">刺客ares 发表于 2024-12-5 17:24</a>
+所以本作前期的剧情是这样的
+
+女主弄丢弄坏了女二的走私品，被后者拉着去打黑拳赔钱
+
+然后男主是某个吉翁后继 ...</blockquote>
+想多了
+
+直接爆改口袋里的战争吧
+
+毕竟side 6
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  wyhman  
+##### 967#       发表于 2024-12-5 17:34
+
+第一印象 各方面都有点丑 希望能有水准以上的打戏
+
+*****
+
+####  虛無迴廊  
+##### 968#       发表于 2024-12-5 17:36
+
+男主的几个镜头和眼神都感觉阴森森的，真的是什么好人吗？
+

@@ -10159,3 +10159,19 @@ genshin都还没憋出来，憋高达得憋几年
 而且这个官网还在藏，连真正的简介都不愿意放上去。也不知道有啥好瞒着的。不会真的想搞什么，诱导观众以为 ...</blockquote>
 过家家竞技世界观一转黑深残吉翁纪年，鸭子原地化身强尼红手，霓虹遗老无剧透在影院怕不是要原地起立了
 
+
+*****
+
+####  穿越护城河  
+##### 992#       发表于 2024-12-5 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66852243&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2024-12-5 18:28</a>
+这番简介也太生艹了吧。
+
+开头平静生活</blockquote>
+女主这个是日本姓西班牙语名吧
+
+ユズリハ(楪)的花语算是世代交代，可见作品的野心，amate就是无花果树，或者是amar (爱)的及物动词形式。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

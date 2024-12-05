@@ -5745,3 +5745,19 @@ sound only都没赶上，视频全没了<img src="https://static.saraba1st.com/i
 
 池A这居然上了主楼大广告，好大手笔，我还以为只有侧面有呢<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  桜庭千景  
+##### 1995#       发表于 2024-12-5 17:53
+
+roselia的ykn认可ag的ran是宿敌
+
+ras的masking和pareo都喜欢pp
+
+mujica的祥子被蝶的live感动而组建乐队（虽然是ccc）
+
+不是说乐队实力不重要，在这里面“谁比谁强”是什么非常有意义的东西吗？双R练那么久是为了踩头别的乐队么？不是吧
+
+我知道有的粉丝喜欢车强度话题，但是公共场合这种话题是很容易引战的，毫无必要
+

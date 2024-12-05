@@ -9001,3 +9001,41 @@ gonzo没似啊，变成ip授权公司了，想做的都可以找他要</blockquo
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">所以有没有剧透说说我到底能不能上机
 
+
+*****
+
+####  molemole  
+##### 940#       发表于 2024-12-5 15:26
+
+怎么就有皮套了
+
+*****
+
+####  supermangunv4  
+##### 941#       发表于 2024-12-5 15:28
+
+龙的牙医军国味爆表了，这部剧本不会有问题吧
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  刺客ares  
+##### 942#       发表于 2024-12-5 15:30
+
+下午摸鱼，一会拉片下PV，这PV其实信息量挺大的，可以说先行剧场版大概两三集的内容都被透出来了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  穿越护城河  
+##### 943#       发表于 2024-12-5 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66850496&amp;ptid=2209276" target="_blank">尼娅安 发表于 2024-12-5 15:22</a>
+所以有没有剧透说说我到底能不能上机</blockquote>
+你还是叫阿喵吧
+
+所以机器上才会有那贴纸
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

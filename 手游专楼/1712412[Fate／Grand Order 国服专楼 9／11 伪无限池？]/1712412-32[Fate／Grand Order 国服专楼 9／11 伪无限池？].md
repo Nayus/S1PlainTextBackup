@@ -396,3 +396,11 @@ wo日，我还提前阵容，到跟前给忘了，现在还有柱子吗</blockqu
 
 豹跳，一发护符出了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  GuDaZi  
+##### 46843#       发表于 2024-12-5 19:23
+
+十连谦信到手，不枉我前面抽卡暴死<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

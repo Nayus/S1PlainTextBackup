@@ -679,3 +679,20 @@ illustriousXL完全比不了，细节磨了磨而 ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">为什么我第一时间想到了lk99
 
+
+*****
+
+####  朋友费小号  
+##### 65#       发表于 2024-12-5 08:24
+
+才重要还是德重要，我不想参与这个争辩。
+
+我只想赶紧看字节把这八百万罚款收了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lgdeer  
+##### 66#       发表于 2024-12-5 08:25
+
+按照流量最大化原则，接下来就该带成果入职美国某大厂了吧。最好再接受美媒采访发表几段暴论，基本就可以预定未来十年的流量了。
+

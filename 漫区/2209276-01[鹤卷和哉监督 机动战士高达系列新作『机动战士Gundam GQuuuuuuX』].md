@@ -10015,3 +10015,70 @@ Pomerian是博美犬的意思，就是在鸡夸克斯腹部贴这的这个</bloc
 
 其他看得还怪舒服的，我对百合没意见。最后官方怂了不敢明说结婚还挺遗憾的。
 
+
+*****
+
+####  RE㐅ia  
+##### 979#       发表于 2024-12-5 17:57
+
+而且这个官网还在藏，连真正的简介都不愿意放上去。也不知道有啥好瞒着的。不会真的想搞什么，诱导观众以为这是ms黑拳过家家独立世界观，其实是黑深残UC what if的惊喜吧？<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸波白野扎比子  
+##### 980#       发表于 2024-12-5 17:57
+
+女二是越南人？<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">日本越南人倒是挺多的
+
+*****
+
+####  线程召唤使  
+##### 981#       发表于 2024-12-5 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66851855&amp;ptid=2209276" target="_blank">王留美 发表于 2024-12-5 17:50</a>
+
+？
+
+2018年哪来的水星的魔女
+
+甚至2022年真奥上映的时候水魔哪怕是序章也没开播好吗？</blockquote>
+真按照“一年一部高达大作”的节奏，现在可能飞碟卓高达或者马趴高达已经开工了。
+
+*****
+
+####  暗黑能乐  
+##### 982#       发表于 2024-12-5 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66851938&amp;ptid=2209276" target="_blank">线程召唤使 发表于 2024-12-5 17:59</a>
+真按照“一年一部高达大作”的节奏，现在可能飞碟卓高达或者马趴高达已经开工了。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">genshin都还没憋出来，憋高达得憋几年
+
+—— 来自 HONOR BVL-AN00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  线程召唤使  
+##### 983#       发表于 2024-12-5 18:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66851945&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2024-12-5 17:59</a>
+
+genshin都还没憋出来，憋高达得憋几年
+
+—— 来自 HONOR BVL-AN00, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+哎呦我把这茬忘了，那看来暂时还轮不到飞碟卓，高达哪有O有面子<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  双菜  
+##### 984#       发表于 2024-12-5 18:04
+
+下一个骨头高达吧，日升真放开肯定给曾经的亲儿子喂饭吧
+
+*****
+
+####  王留美  
+##### 985#       发表于 2024-12-5 18:06
+
+说起来，如果阿姆罗没上机的话提姆雷是不是也不会被炸到宇宙里面去？一个正常的提姆雷能有抵几个师？
+

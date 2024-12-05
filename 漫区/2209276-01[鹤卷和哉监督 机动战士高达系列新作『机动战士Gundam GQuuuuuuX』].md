@@ -10106,3 +10106,56 @@ genshin都还没憋出来，憋高达得憋几年
 
 又清新和潮以为又是独立世界观的作品，然后让日本年轻人知道其实是UC 0085
 
+
+*****
+
+####  RE㐅ia  
+##### 988#       发表于 2024-12-5 18:28
+
+这番简介也太生艹了吧。
+
+开头平静生活
+
+女二出现后开始天天打黑拳
+
+男主出现，然后世界就要迎向新时代了
+
+好唐突的跳跃，还大概率都是第一集里发生的事（
+
+<img src="https://img.saraba1st.com/forum/202412/05/182636mytb3qbz5qmb50bq.png" referrerpolicy="no-referrer">
+
+<strong>126B489C-C638-4B35-B8A1-DDFCCECA182B.png</strong> (511.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 18:26 上传
+
+*****
+
+####  蓝色有脚⑨倍速  
+##### 989#       发表于 2024-12-5 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66851919&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2024-12-5 17:57</a>
+而且这个官网还在藏，连真正的简介都不愿意放上去。也不知道有啥好瞒着的。不会真的想搞什么，诱导观众以为 ...</blockquote>
+什么叫有什么好瞒着的<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+如果没内鬼泄漏背景设定，就伪装成新世界观正常放送tv，然后在某集提到吉翁胜利 uc0085 夏亚这些词再展开剧情 我都不敢想讨论度有多爆炸<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+没这种机会了真觉得遗憾<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+不过按代孙的草台程度，可能这种机会就能没存在过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  滴虫研究学家  
+##### 990#       发表于 2024-12-5 18:30
+
+可能更像是装甲骑兵里的竞技场呗，说不定观众都有生命危险
+
+
+*****
+
+####  刺客ares  
+##### 991#       发表于 2024-12-5 18:31
+
+<blockquote>RE㐅ia 发表于 2024-12-5 17:57
+而且这个官网还在藏，连真正的简介都不愿意放上去。也不知道有啥好瞒着的。不会真的想搞什么，诱导观众以为 ...</blockquote>
+过家家竞技世界观一转黑深残吉翁纪年，鸭子原地化身强尼红手，霓虹遗老无剧透在影院怕不是要原地起立了
+

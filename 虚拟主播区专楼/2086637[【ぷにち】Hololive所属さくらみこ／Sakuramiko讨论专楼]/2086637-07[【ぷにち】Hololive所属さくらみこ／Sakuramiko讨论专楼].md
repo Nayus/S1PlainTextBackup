@@ -17877,3 +17877,51 @@ youtube全体障害？
 
 神社企画に前回の24時間生配信とかわざわざ書いてるし</blockquote>
 
+
+*****
+
+####  holoan  
+##### 10356#         楼主| 发表于 2024-12-5 11:40
+
+最近是不是真的在准备一些法律手续我直觉是感觉有的，一方面是最近的直播罕见地直接表达出对网络anti的愤怒，另一方面说最近私下在准备一些东西但是不提及内容这个以前也很少
+
+*****
+
+####  holoan  
+##### 10357#         楼主| 发表于 2024-12-5 18:32
+
+<img src="https://img.saraba1st.com/forum/202412/05/183148eiimprii0ubb5uq5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (7.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 18:31 上传
+
+睿智
+
+*****
+
+####  holoan  
+##### 10358#         楼主| 发表于 2024-12-5 18:36
+
+<img src="https://img.saraba1st.com/forum/202412/05/183244q2nhgegv9z4vs658.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (4.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 18:32 上传
+
+mikorone showtime的MV！！？
+
+<img src="https://img.saraba1st.com/forum/202412/05/183509xb6j2yt5yb7c6w4c.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (11.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 18:35 上传
+
+mio！！？
+

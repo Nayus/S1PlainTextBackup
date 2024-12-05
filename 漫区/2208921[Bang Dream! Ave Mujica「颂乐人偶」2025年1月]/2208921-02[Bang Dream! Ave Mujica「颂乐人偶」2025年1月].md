@@ -5784,3 +5784,16 @@ mujica的祥子被蝶的live感动而组建乐队（虽然是ccc）
 
 https://bbs.nga.cn/read.php?pid=798275263&amp;opt=128
 
+
+*****
+
+####  550616  
+##### 1998#       发表于 2024-12-5 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66849672&amp;ptid=2208921" target="_blank">rushsong 发表于 2024-12-5 13:44</a>
+
+非引战好奇问一嘴啊，ras粉和roselia粉能接受mujica设定实力和她俩相当或者超越吗
+
+以防大家误解我这里只是 ...</blockquote>
+三个时间段的银河战舰根本没冲突的
+

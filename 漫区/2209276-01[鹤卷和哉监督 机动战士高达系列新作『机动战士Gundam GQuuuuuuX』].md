@@ -8721,3 +8721,21 @@ G-Q6uX越看越顺眼了，坏了<img src="https://static.saraba1st.com/image/sm
 
 就是这元祖大爆炸看着太整蛊了，不知道还以为是什么巴斯塔机器78型2号机呢
 
+
+*****
+
+####  xunit  
+##### 917#       发表于 2024-12-5 13:01
+
+这是给元祖加了多少料能搞出精神力大爆炸啊
+元祖：我炸所罗门，真的假的
+
+*****
+
+####  jy000129  
+##### 918#       发表于 2024-12-5 13:02
+
+2天900楼，这就是痞子的意义<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

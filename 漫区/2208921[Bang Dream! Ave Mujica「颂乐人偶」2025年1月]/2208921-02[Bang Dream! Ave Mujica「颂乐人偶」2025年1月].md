@@ -6209,3 +6209,22 @@ mygo动画里 主唱太拼命这个恶评 已经在第七集 灯对祥子喊出 
 
 某些这么造谣的最好摸着自己的良心问问自己真喜欢吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  相坂君  
+##### 2027#       发表于 2024-12-6 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66854353&amp;ptid=2208921" target="_blank">lolisk 发表于 2024-12-5 23:42</a>
+
+这里有人提到过回覆「主唱太拼命了」的头像和初华和灯初遇时的戴的黑帽子对上了吗？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这种毫无根据纯属子虚乌有的谣言，还能传到泥楼，还来问对不对得上……
+
+有些人这么恨啊？是还没能从mujica是反派的陈词滥调里爬出来吗？
+
+隔壁团的亲亲主唱是被人随口说了句“主唱太拼命了？”，然后迫不及待地根据一个扶帽子的头像，开始凭空捏造、恶意泼脏水
+
+初华只不过说了句“不要讨厌我”，就急不可耐地断定这是初华
+
+这种贷款说出来都可笑，还煞有介事地来求证
+

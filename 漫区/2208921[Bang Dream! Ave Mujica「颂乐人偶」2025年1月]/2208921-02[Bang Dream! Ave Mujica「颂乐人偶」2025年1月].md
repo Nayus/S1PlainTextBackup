@@ -6890,3 +6890,58 @@ mygo时期也有“预告里看似很可怕的台词在剧情中其实一笔带�
 
 不管什么时候发生什么事都能第一时间扣到讨厌的角色/staff头上，无视逻辑由果及因式的造谣发散再把这当成客观事实设置议题对角色进行攻击和输出，意图塑造此世之恶大反派当情绪垃圾桶，是不是同时还看管人的啊有这么痴的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哈曼的YY  
+##### 2091#       发表于 2024-12-6 07:05
+
+ 本帖最后由 哈曼的YY 于 2024-12-6 07:08 编辑 
+
+<img src="https://img.saraba1st.com/forum/202412/06/070530ulpl5j76jl0lby8s.jpg" referrerpolicy="no-referrer">
+
+<strong>GeCrIDva0AMk8b9.jpg</strong> (296.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-6 07:05 上传
+
+[https://x.com/gUpAAAA/status/1864678408455901236](https://x.com/gUpAAAA/status/1864678408455901236)
+
+<img src="https://img.saraba1st.com/forum/202412/06/070806iyyb5kz16sy3b310.jpg" referrerpolicy="no-referrer">
+
+<strong>Gd_8VwZa0AAWhFZ.jpg</strong> (153.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-6 07:08 上传
+
+[https://x.com/ShimamuraSakura/status/1864486223911506202](https://x.com/ShimamuraSakura/status/1864486223911506202)
+
+
+*****
+
+####  novalli  
+##### 2092#       发表于 2024-12-6 07:12
+
+我觉得这大概是粉圈文化的滥觞和完全本能性的文艺作品欣赏水平低下。所有人物都是标签化的，所有好恶都是建立在人物上而非故事情节和人物关系上，同时又毫无求同存异的概念，对讨论充满了侵略性。
+说实话楼里的讨论都因此被稀释了，大量的楼层都是应激的对抗、对恶性流言的解释。有些离谱但还有点可能或者娱乐性的猜想都不能拿出来认真讨论一下，只因为太像那些恶意的揣测了。
+从mygo到mujica，讨论环境从无到热再到变质，这本身也挺值得好好观察的。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.94-alpha
+
+*****
+
+####  哈曼的YY  
+##### 2093#       发表于 2024-12-6 07:13
+
+<img src="https://img.saraba1st.com/forum/202412/06/071312mi0j71c1dj78c3kz.jpg" referrerpolicy="no-referrer">
+
+<strong>Gd9P3lBa0AAduYi.jpg</strong> (344.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-6 07:13 上传
+
+[https://x.com/rktr__/status/1864296596470681704](https://x.com/rktr__/status/1864296596470681704)
+

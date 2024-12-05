@@ -6882,3 +6882,11 @@ mygo时期也有“预告里看似很可怕的台词在剧情中其实一笔带�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">爬了下樓給看無語了，2.5企劃為什麼要這樣踩一個角色
 
+
+*****
+
+####  66367749  
+##### 2090#       发表于 2024-12-6 06:58
+
+不管什么时候发生什么事都能第一时间扣到讨厌的角色/staff头上，无视逻辑由果及因式的造谣发散再把这当成客观事实设置议题对角色进行攻击和输出，意图塑造此世之恶大反派当情绪垃圾桶，是不是同时还看管人的啊有这么痴的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

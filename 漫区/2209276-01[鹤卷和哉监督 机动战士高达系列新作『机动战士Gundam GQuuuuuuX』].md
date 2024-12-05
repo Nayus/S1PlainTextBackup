@@ -8428,3 +8428,29 @@ G-Q6uX越看越顺眼了，坏了<img src="https://static.saraba1st.com/image/sm
 
  其实这部的机设反而不像是潮哥会喜欢的类型，潮哥喜欢的一般都是那种经典款改改配色，加点大撞色或者花纹啥的
 
+
+*****
+
+####  创始’’’天翔  
+##### 890#       发表于 2024-12-5 09:59
+
+<blockquote>HazukiShion 发表于 2024-12-5 09:51
+爆裂天使居然还原定有第二季的吗。</blockquote>
+都有PV了，这两年时不时诈个尸。要是gonzo能打赢复活赛的话应该是会出的
+
+<img src="https://img.saraba1st.com/forum/202412/05/095902nssvcvcdfjdr9q50.png" referrerpolicy="no-referrer">
+
+<strong>f5b506122cc2badbedd29cc13a7883c017bedf30a8e0a501b953e3bcccd448c1.0.PNG</strong> (412 Bytes, 下载次数: 0)
+
+下载附件
+
+2024-12-5 09:59 上传
+
+
+*****
+
+####  雨翼free  
+##### 891#       发表于 2024-12-5 10:05
+
+这主角机是潮哥看不上的水平，不如说是老登自嗨作
+

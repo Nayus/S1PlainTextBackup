@@ -5468,3 +5468,24 @@ guest之前有几场萝ras是这种安排的，其实也是开场表演的形式
 
 開場嘉賓唱3首，Guest是唱5首，其實感覺就是大號開場嘉賓……
 
+
+*****
+
+####  星天观测  
+##### 1971#       发表于 2024-12-5 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66847523&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-5 09:53</a>
+
+guest之前有几场萝ras是这种安排的，其实也是开场表演的形式
+
+和oa的区别基本上只有演出曲目数，guest会有 ...</blockquote>
+主要是如果萝和鸡的总体时长差不多，那按萝角色不可崩的插入形式，动画可能就要分成两部分播
+
+但是这样应该比较影响观感，而鸡的live又是比较耗体力的
+
+所以我个人猜测day2的鸡场或许开场就是鸡上去
+
+然后中间加入萝部分+动画让鸡成员休息
+
+不过一想到是wsd，真把动画切开来播放好像也不是不可能<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

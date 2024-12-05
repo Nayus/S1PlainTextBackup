@@ -5530,3 +5530,13 @@ pv1pv2的镜头也有带面具演奏的 估计是鸡团特色不会改了</block
 坛友发的，仅供参考
 [https://www.bilibili.com/read/cv39910363/](https://www.bilibili.com/read/cv39910363/)
 
+
+*****
+
+####  rushsong  
+##### 1976#       发表于 2024-12-5 13:44
+
+非引战好奇问一嘴啊，ras粉和roselia粉能接受mujica设定实力和她俩相当或者超越吗<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2183A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

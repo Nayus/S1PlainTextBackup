@@ -10175,3 +10175,55 @@ genshin都还没憋出来，憋高达得憋几年
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  猪突猛进R  
+##### 993#       发表于 2024-12-5 18:58
+
+观众买账就接着这条新UC世界线继续呗，不买账就打哈哈说是外传，都是阳谋。
+
+*****
+
+####  RE㐅ia  
+##### 994#       发表于 2024-12-5 19:02
+
+<blockquote>穿越护城河 发表于 2024-12-5 18:39
+女主这个是日本姓西班牙语名吧
+
+ユズリハ(楪)的花语算是世代交代，可见作品的野心，amate就是无花果树， ...</blockquote>
+当初水魔尚未播出之际我也对着神谱分析女主姓氏和pv公布时间的用意啥的。以为是精心设计，结果播完发现毛都没有（甚至连水星长啥样子都不知道）。扣细节到最后也只能落下一句擅自期待擅自破防（
+
+<img src="https://img.saraba1st.com/forum/202412/05/185857fc4yz4j2j525j7c2.png" referrerpolicy="no-referrer">
+
+<strong>EB681D6D-AAC8-494E-A890-7C7FA9300474.png</strong> (286.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 18:58 上传
+
+<img src="https://img.saraba1st.com/forum/202412/05/185907kplqhg8o4lon8hg8.png" referrerpolicy="no-referrer">
+
+<strong>98864160-C7AF-4F94-A645-E4BFCC369BDB.png</strong> (180.39 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-5 18:59 上传
+
+<img src="https://img.saraba1st.com/forum/202412/05/185919cmaxshhz67okvoov.png" referrerpolicy="no-referrer">
+
+<strong>A124EC93-BD06-42CC-B62A-9E572AB2E566.png</strong> (352.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 18:59 上传
+
+<img src="https://img.saraba1st.com/forum/202412/05/185929benc4ut4cgppyorp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>9706B2BA-8F0E-4911-96FA-6079E80BEC19.jpeg</strong> (306.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 18:59 上传
+

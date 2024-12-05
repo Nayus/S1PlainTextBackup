@@ -8508,3 +8508,68 @@ G-Q6uX越看越顺眼了，坏了<img src="https://static.saraba1st.com/image/sm
 
 另外不至于被扎古踩死，可能会有作为路人的画面出现。
 
+
+*****
+
+####  PascalLefèvre  
+##### 897#       发表于 2024-12-5 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66847935&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2024-12-5 10:35</a>
+
+因果反了，是声优塌房才导致骡子神隐。
+
+红有三蹭得这么得劲，会不想蹭白色恶魔？随便安个名头出现就是。</blockquote>
+问题是18年开始的企划大纲肯定完成的比这事发生早些吧
+
+*****
+
+####  猪突猛进R  
+##### 898#       发表于 2024-12-5 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66847963&amp;ptid=2209276" target="_blank">PascalLefèvre 发表于 2024-12-5 10:39</a>
+
+问题是18年开始的企划大纲肯定完成的比这事发生早些吧</blockquote>
+都可以改。
+
+比如《暗喻幻想》里的角色CV就由骡子换成子安了。
+
+*****
+
+####  赤黑的假面  
+##### 899#       发表于 2024-12-5 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66847932&amp;ptid=2209276" target="_blank">没取名啊 发表于 2024-12-5 10:35</a>
+
+山下育人：《机动战士高达GQuuuuuuX》是鹤卷导演的作品，一切都由鹤卷导演决定。庵野可能会在旁边进行援护 ...</blockquote>
+死线交货啊
+
+*****
+
+####  七层嘉影  
+##### 900#       发表于 2024-12-5 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66847932&amp;ptid=2209276" target="_blank">没取名啊 发表于 2024-12-5 10:35</a>
+
+山下育人：《机动战士高达GQuuuuuuX》是鹤卷导演的作品，一切都由鹤卷导演决定。庵野可能会在旁边进行援护 ...</blockquote>
+轮到鹤卷PUA痞子了
+
+*****
+
+####  燃烧的石头  
+##### 901#       发表于 2024-12-5 10:44
+
+万代不在乎的，要是换骡子声优之前手游动画就换了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.95-alpha
+
+
+*****
+
+####  岸波白野  
+##### 902#       发表于 2024-12-5 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66847996&amp;ptid=2209276" target="_blank">赤黑的假面 发表于 2024-12-5 10:43</a>
+
+死线交货啊</blockquote>
+这种就是把最后关头拍板返工造成工期延误的压力给到痞子身上<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，不是做EVA痞子应该还是会克制的
+

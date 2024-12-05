@@ -1665,3 +1665,57 @@ R1加左键还是右键来着
 
 但是实际游玩体验还是不太行，弱智解密和找密码开门太影响探索，开放世界通马桶无法自由传送也影响实际to do list清理体验，我最开始玩到太空前只能给她4分，3分女主角，1分音乐。我只想战斗爽，可惜就是逼我要弱智跳跳乐+找钥匙
 
+
+*****
+
+####  B.K.  
+##### 119#         楼主| 发表于 2024-12-5 11:00
+
+<img src="https://img.saraba1st.com/forum/202412/05/105931z0k0eg9qowei9760.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0337.jpeg</strong> (2.63 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 10:59 上传
+
+<img src="https://img.saraba1st.com/forum/202412/05/105933xzvby8y8hrnbb8kj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0334.jpeg</strong> (1.28 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 10:59 上传
+
+<img src="https://img.saraba1st.com/forum/202412/05/105933ouomod05nyl8m76l.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0335.jpeg</strong> (575.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 10:59 上传
+
+<img src="https://img.saraba1st.com/forum/202412/05/105934g3f5gh73lhcmlsmc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0336.jpeg</strong> (855.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 10:59 上传
+
+<img src="https://img.saraba1st.com/forum/202412/05/105936vcal5rtboqubbbli.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0333.jpeg</strong> (1.34 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 10:59 上传
+
+<img src="https://img.saraba1st.com/forum/202412/05/105936dgc9hw1jwwv8htdj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0332.jpeg</strong> (1.23 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 10:59 上传
+

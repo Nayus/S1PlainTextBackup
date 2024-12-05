@@ -8601,3 +8601,14 @@ G-Q6uX越看越顺眼了，坏了<img src="https://static.saraba1st.com/image/sm
 
 機動戦士ガンダムGQuuuuuuXは鶴巻監督の作品です。何でも鶴巻監督が決めます。庵野さんがその援護射撃に横でなんかやるかもだけどそれだけです。とはいえ庵野さんはカラーの社長なので中間成果物は見せてます。が、ちゃぶ台返されたりクチバシ突っ込まれたりしないよう結構ギリギリまで見せないよう進
 
+
+*****
+
+####  z692689995  
+##### 906#       发表于 2024-12-5 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66847474&amp;ptid=2209276" target="_blank">双菜 发表于 2024-12-5 09:46</a>
+
+明年不是机战大年吗，新高达、jzgg新作、创圣新作、乐园追放新作，就差个马裤螺丝了 ...</blockquote>
+乐园追放是2026年
+

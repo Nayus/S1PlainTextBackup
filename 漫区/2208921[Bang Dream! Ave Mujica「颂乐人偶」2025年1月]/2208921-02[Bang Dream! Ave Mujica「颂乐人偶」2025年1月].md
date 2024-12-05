@@ -5343,3 +5343,24 @@ live也是世界观的一部分
 睦家里演艺出身，不可能打脸的</blockquote>
 淦…吓死，还以为又出新图透了
 
+
+*****
+
+####  skives10  
+##### 1961#       发表于 2024-12-5 09:31
+
+wsd什么时候才能意识到 比起四种不同工艺的徽章 没有面具的版本才更加被需要<img src="https://static.saraba1st.com/image/smiley/face2017/268.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 1962#       发表于 2024-12-5 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66847270&amp;ptid=2208921" target="_blank">御幸一也 发表于 2024-12-5 09:22</a>
+
+雖然不在群裡但我也一直貸款的這個 畢竟都要現場播第一話了，感覺也是比較適合現實摘面具的時機了。
+ ...</blockquote>
+不过其实如果真的复刻第一话那可能就是摘了面具就结束了（除非有安可）
+
+不然摘了面具继续演奏就很像剧透了后续内容<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

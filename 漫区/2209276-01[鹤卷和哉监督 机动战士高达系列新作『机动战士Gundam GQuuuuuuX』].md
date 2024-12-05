@@ -8242,3 +8242,75 @@ G-Q6uX越看越顺眼了，坏了<img src="https://static.saraba1st.com/image/sm
 不是死不死人的问题，水魔是前面提出来了，然后到后面这些直接无视了，直接就结局天宇老爷自罚三杯赏了地 ...</blockquote>
 小年轻来看百合贴贴当挑染嬷嬷包饺子不说戏份也得留足，至于老高达手艺味东西当然不用弄得这么明白，不过看到新的大女主高达问世才反应过来，水魔现在播了也有两年作为官方背书的种后最大钢弹热潮谷子现在一定还是出多多卖爆爆吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qsscwddv1  
+##### 872#       发表于 2024-12-5 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66847235&amp;ptid=2209276" target="_blank">wpcc 发表于 2024-12-5 09:18</a>
+
+不死人就搞不了革命啊 这种东西肯定要把建制派死完才行</blockquote>
+问题既然基调定下了不准备搞这些了，那干嘛还要把这些内容加进来，还不是纯背景板而是有直接内容的，结果写了一半就没了
+
+*****
+
+####  HazukiShion  
+##### 873#       发表于 2024-12-5 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66847274&amp;ptid=2209276" target="_blank">岸波白野 发表于 2024-12-5 09:23</a>
+
+小年轻来看百合贴贴当挑染嬷嬷包饺子不说戏份也得留足，至于老高达手艺味东西当然不用弄得这么明白，不过 ...</blockquote>
+水魔之前的百合机战好像人全没了的不少吧？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  双菜  
+##### 874#       发表于 2024-12-5 09:30
+
+水魔不是还搞了pv欺诈<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">风灵射穿三个ms的高质量机战正片根本没有
+
+*****
+
+####  PascalLefèvre  
+##### 875#       发表于 2024-12-5 09:31
+
+ 水魔最根本的问题是没有高质量机器人打架，所有被评价为烂的机器人动画根本上都是因为没有高质量机器人打架<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  双菜  
+##### 876#       发表于 2024-12-5 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66847351&amp;ptid=2209276" target="_blank">PascalLefèvre 发表于 2024-12-5 09:31</a>
+水魔最根本的问题是没有高质量机器人打架，所有被评价为烂的机器人动画根本上都是因为没有高质量机器人打 ...</blockquote>
+风灵打异灵那一段可以上年度集锦，但是被逆天打光毁了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  创始’’’天翔  
+##### 877#       发表于 2024-12-5 09:35
+
+<blockquote>PascalLefèvre 发表于 2024-12-5 09:31
+水魔最根本的问题是没有高质量机器人打架，所有被评价为烂的机器人动画根本上都是因为没有高质量机器人打 ...</blockquote>
+革命机全程战斗爽
+
+<img src="https://img.saraba1st.com/forum/202412/05/093449xjh5uuj0zkjth7fd.png" referrerpolicy="no-referrer">
+
+<strong>7cfa626a639cafe05d552e7a12a1c12f6ed893efc7a91d230f711bfc8250c3d5.0.PNG</strong> (420 Bytes, 下载次数: 0)
+
+下载附件
+
+2024-12-5 09:34 上传
+
+*****
+
+####  岸波白野  
+##### 878#       发表于 2024-12-5 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66847340&amp;ptid=2209276" target="_blank">HazukiShion 发表于 2024-12-5 09:30</a>
+
+水魔之前的百合机战好像人全没了的不少吧？</blockquote>
+有吗，倒不如说百合机战以前本身就不是什么主流题材，神无月巫女那时候的ACG受众的调性肯定和今天早不一样了，接下来近几年的像什么满月之战感觉也是NBCS的那种
+

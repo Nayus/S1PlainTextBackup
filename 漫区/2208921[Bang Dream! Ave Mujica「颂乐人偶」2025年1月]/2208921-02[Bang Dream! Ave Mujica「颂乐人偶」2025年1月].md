@@ -5593,3 +5593,23 @@ Roselia在意的从来都不是谁比自己强，而是心中的顶点，动画�
 
 不是双r粉，真设定实力强劲也没啥吧，单看母鸡卡这个组成好像不会很弱，毕竟设定有职业人士加入，粉丝会很在意设定上的强弱吗？
 
+
+*****
+
+####  silver鲤跃  
+##### 1982#       发表于 2024-12-5 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66849932&amp;ptid=2208921" target="_blank">仓鼠胖太 发表于 2024-12-5 14:14</a>
+
+不是双r粉，真设定实力强劲也没啥吧，单看母鸡卡这个组成好像不会很弱，毕竟设定有职业人士加入，粉丝会很 ...</blockquote>
+粉丝不在意那你非要聊这个干什么呢
+
+*****
+
+####  仓鼠胖太  
+##### 1983#       发表于 2024-12-5 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66849970&amp;ptid=2208921" target="_blank">silver鲤跃 发表于 2024-12-5 14:18</a>
+粉丝不在意那你非要聊这个干什么呢</blockquote>
+那不是前面有人问的吗，咋了这是楼🈲啊
+

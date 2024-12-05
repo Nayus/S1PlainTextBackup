@@ -8642,3 +8642,11 @@ G-Q6uX越看越顺眼了，坏了<img src="https://static.saraba1st.com/image/sm
 没让雷比尔将军逃走，吉翁内部情况也没暴露，最后签订对吉翁有利的条约， ...</blockquote>
 很简单，本篇0079设定吉姆有阿姆罗开元祖的数据，才能很快造出来，这个世界线阿姆罗连元祖都没摸过，那就是连邦宇宙战机和六一式打红高达+扎古大魔勇士，连邦就算造再多飞机坦克也就那样
 
+
+*****
+
+####  猎人D  
+##### 909#       发表于 2024-12-5 11:41
+
+骡子不知死活，高达还被抢了，这联邦还能打到所罗门，这不是吹联邦吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

@@ -845,3 +845,87 @@ LK99  + 1.  
 合着你看论文不 ...</blockquote><blockquote>”字节领导不识货，对AI技术未来发展毫无判断力，只会跟着先行者后面吃尾气，最终屎盆子彻底反扣在字节头上，这种情况下什么职业道德都是其次的，智力低水平低才是最致命的，而这顶帽子扣在字节身上的损失更是远超800万“</blockquote>
 这不是你思路滑坡放的屁？你自己说话自己不认了？ 我已经明确告诉你了，VAR这个方向有人已经在探索，而且大牛就是这个论文里田的mentor ，jiang老师，而且看”讲故事风格，这个论文的idea极大概率是jiang，老田负责代码和实现。然而你还在故弄玄虚的吹嘘什么”不识货，没有判断力“。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你的脑子在哪里？你的逻辑判断在哪里？
 
+
+*****
+
+####  Luhikari  
+##### 80#       发表于 2024-12-5 11:35
+
+ 本帖最后由 Luhikari 于 2024-12-5 11:39 编辑 
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66848497&amp;ptid=2209334" target="_blank">pigsy 发表于 2024-12-5 11:32</a>
+
+这不是你思路滑坡放的屁？你自己说话自己不认了？ 我已经明确告诉你了，VAR这个方向有人已经在探索，而且 ...</blockquote>
+
+我承认我之前的说的内容，关于工作发酵，会给字节带来进一步损失，是我的臆测，我也承认这人道德败坏一文不值，但我仍然认为本工作前途非常光明，可能会对接下来大模型发展产生重大影响
+
+但现在我需要你给出“瞎JB扯，这论文你到底看没看啊”的依据
+
+
+*****
+
+####  Суслов  
+##### 81#       发表于 2024-12-5 11:37
+
+我猜下一步应该是入职外国公司，然后炒作文明洼地人才流失<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+
+*****
+
+####  pigsy  
+##### 82#       发表于 2024-12-5 11:41
+
+ 本帖最后由 pigsy 于 2024-12-5 11:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66848525&amp;ptid=2209334" target="_blank">Luhikari 发表于 2024-12-5 11:35</a>
+
+“瞎JB扯，这论文你到底看没看啊”
+
+合着你看论文的意思就是看作者栏是吧 ...</blockquote>
+我只是告诉你，看论文也要看全，科研民工界不是你脑补的“莫欺少年穷”的剧情，论文一作也不等于一人打天下的天才，牢田的贡献不能掩盖jiang等人在这一领域更大的贡献。VAR领域的潜力也不是牢田一个人的功劳（更何况能不能真的打赢diffusion还两说）。
+
+八字没一撇的事情，你都能自己表演了一番牢田”一个人探索惊人发现，优秀多逆天，字节领导层多昏庸无能“的八卦，建议你去新闻界求职，可能更加如鱼得水<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nanrendu  
+##### 83#       发表于 2024-12-5 11:41
+
+高等学府只能过滤学渣，不能过滤人渣。
+AI大数据是中美未来科技争端的主要领域。
+按照西方诺贝尔和平奖的那套标准，不卖国领不到奖，可以按间谍罪判了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  与太郎  
+##### 84#       发表于 2024-12-5 11:43
+
+其实这个论文能发出来，tian还是一作，既说明了tian的能力和贡献，也说明了tt对此项目、对tian本人投入了许多资源，不说leader及组内其他同事，tt作为平台的价值也是很重要的
+
+在已经得到许多资源的前提下，tian因为觉得资源分配不公愤而投毒，说白了就是恃才傲物，被tt清退后显然也毫无悔意，反而甩锅无辜人士，多少沾点巨婴了
+
+*****
+
+####  Jimlee080  
+##### 85#       发表于 2024-12-5 11:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">有才无德是什么很稀奇的事儿么
+
+
+*****
+
+####  Luhikari  
+##### 86#       发表于 2024-12-5 11:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66848616&amp;ptid=2209334" target="_blank">与太郎 发表于 2024-12-5 11:43</a>
+
+其实这个论文能发出来，tian还是一作，既说明了tian的能力和贡献，也说明了tt对此项目、对tian本人投入了许 ...</blockquote>
+论文挂在arxiv上的时候，还没查出来田捣乱，现在不好改了
+
+现在最尴尬的是 nips best paper 是要口头汇报的，派哪个过去都很尴尬
+
+最好的办法是佯装签证不过，让第三方上去念个稿子
+

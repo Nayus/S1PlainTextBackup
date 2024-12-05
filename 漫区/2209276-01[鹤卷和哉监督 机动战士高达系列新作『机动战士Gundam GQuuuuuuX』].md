@@ -10831,3 +10831,13 @@ PV人物少得可怜却把地下竞技团体介绍了一遍，但是地下竞技
 <img src="https://p.sda1.dev/20/589e65ac34267e2d1e2a6c25e89d220c/0163119agy1hw8q8v5vssj20m80fbadr.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/20/1b69084fdbd0b677f62516c5dd6deeee/20241204_120505.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RE㐅ia  
+##### 1051#       发表于 2024-12-6 01:06
+
+<blockquote>Piano-Forest 发表于 2024-12-6 00:47
+14年 山下育人版牛高达、沙扎比</blockquote>
+这个szb我可以。感觉比原版好康
+

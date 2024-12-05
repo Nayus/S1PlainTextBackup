@@ -10664,3 +10664,61 @@ PsycoFrame就是集成到骨架里的PsycoCommunicator吧
 
 2024-12-5 23:07 上传
 
+
+*****
+
+####  盖尔杰特克  
+##### 1039#       发表于 2024-12-5 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66853483&amp;ptid=2209276" target="_blank">巴尔干炮 发表于 2024-12-5 21:10</a>
+
+这条UC线目前没法猜，0079年的科技就能炸掉了半个所罗门，原UC线70多年后的V2AB都做不到，你得几千年后的G- ...</blockquote>
+有tb这个爆改设定uc在前，新作tvuc是什么魔幻uc都不奇怪了，喜欢我能推动手电筒的爆改大扎姆吗，我都不敢想雷霆宙域世界线的阿姆罗怎么用78小水管光剑捅炸这玩意的<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+7566ccbf6c81800ade4340d4f43533fa838b4701.jpg
+(57.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 23:28 上传
+
+<img src="https://img.saraba1st.com/forum/202412/05/232815hiibeddfq6x8ej1p.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  盖尔杰特克  
+##### 1040#       发表于 2024-12-5 23:32
+
+楼里还是看魔改uc作品看的太少<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+38bcd158ccbf6c81b73093cbfa3eb13533fa4048.jpg
+(104.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 23:31 上传
+
+<img src="https://img.saraba1st.com/forum/202412/05/233159qot8ctlztqp9w7ut.jpg" referrerpolicy="no-referrer">
+
+b1f036d3d539b600a01fe296af50352ac75cb7f9.jpg
+(42.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 23:32 上传
+
+<img src="https://img.saraba1st.com/forum/202412/05/233201vb0uu0ab900auw7y.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  盖尔杰特克  
+##### 1041#       发表于 2024-12-5 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66854149&amp;ptid=2209276" target="_blank">duo_wolf 发表于 2024-12-5 23:05</a>
+
+突然想到，这里的夏亚会不会是真的夏亚，没被卡斯帕尔干掉顶替，所以一切的发展才会完全不一样
+
+— from So ...</blockquote>
+别把gto那安贞私货当真阿，虽然新作tv也是个魔改的不知道参考的0079还是gto甚至是雷霆宙域<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -380,3 +380,11 @@ wo日，我还提前阵容，到跟前给忘了，现在还有柱子吗</blockqu
 两个谦信的对比显示出社长的退步
 关卡里的nobu种类不少，但剧情居然就出了个红色跑车nobu，还有一句话的战车onbu
 
+
+*****
+
+####  khxooo  
+##### 46841#       发表于 2024-12-5 17:06
+
+150石头阿虎来了，后面追了150石头新八才来，经典4星比5星难出<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

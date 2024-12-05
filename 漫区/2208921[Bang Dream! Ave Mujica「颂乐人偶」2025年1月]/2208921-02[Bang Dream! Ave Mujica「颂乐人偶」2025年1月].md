@@ -6668,3 +6668,16 @@ OK！你们说是就是吧！反正再离谱有些人会自圆其说，为了一
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实我趋向于喵梦的团内cp是海玲（）祥子可能是打个辅助
 我印象里海玲是对应猫猫的，都是在找归宿，喵梦对应立希但我忘了理由是啥
 
+
+*****
+
+####  skives10  
+##### 2073#       发表于 2024-12-6 01:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66854869&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-6 01:43</a>
+其实我趋向于喵梦的团内cp是海玲（）祥子可能是打个辅助
+我印象里海玲是对应猫猫的，都是在找归宿，喵梦对 ...</blockquote>
+但从12集 13集 1集 以及pv来看
+喵祥的互动和同框比想象的多太多了 
+所以忍不住重新审视这俩人未来的可能性
+

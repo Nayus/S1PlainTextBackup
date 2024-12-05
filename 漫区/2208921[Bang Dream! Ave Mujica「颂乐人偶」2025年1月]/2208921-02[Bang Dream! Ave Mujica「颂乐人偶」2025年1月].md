@@ -5497,3 +5497,13 @@ guest之前有几场萝ras是这种安排的，其实也是开场表演的形式
 
 pv1pv2的镜头也有带面具演奏的 估计是鸡团特色不会改了
 
+
+*****
+
+####  skives10  
+##### 1973#       发表于 2024-12-5 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66847729&amp;ptid=2208921" target="_blank">黑夜落叶秋天 发表于 2024-12-5 10:13</a>
+pv1pv2的镜头也有带面具演奏的 估计是鸡团特色不会改了</blockquote>
+那我只能说 那也不是剥落的假面无法回来啊 三角初华她骗我们啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

@@ -714,3 +714,37 @@ illustriousXL完全比不了，细节磨了磨而 ...</blockquote>
 
 学术圈就是这样，论文排在第一就是真牛逼，不管你怎么说这篇工作可以视为田贡献最大，NIPS不管怎么黑就是顶会中顶会，字节最大好处这个论文所有权归字节，赶紧申请专利才是王道，回回血。
 
+
+*****
+
+####  starashes  
+##### 69#       发表于 2024-12-5 10:16
+
+我看来“方向错了，知识越多越反动”和“生产力发展唯科技进步论”这两个论点一点都不冲突，只不过具体到某个有才无德的个人身上，会有怎么操作才能最大程度限制它所造成的危害和最大程度地挖掘它的思维之花的矛盾而已。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.89
+
+*****
+
+####  mandown  
+##### 70#       发表于 2024-12-5 10:18
+
+这下NIPS之能臣、字节之枭雄了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+AI三国时代要来了吗
+
+
+*****
+
+####  naclken.  
+##### 71#       发表于 2024-12-5 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66846773&amp;ptid=2209334" target="_blank">素盏鸣尊 发表于 2024-12-5 07:48</a>
+
+不破坏实验。破坏其他人，毕达哥拉斯因为希帕索斯发现无理数将其沉塘算不算。
+
+不过现代人不能和公元前人 ...</blockquote>
+艹，还有这种事。
+
+怎么没人把笛卡尔沉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

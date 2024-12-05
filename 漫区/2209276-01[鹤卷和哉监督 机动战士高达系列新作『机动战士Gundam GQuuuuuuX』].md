@@ -10745,3 +10745,34 @@ G复国之后再没在高达TV作品上花过一分钱，还是等闪哈2吧
 [https://x.com/guangtou100plus/status/1864335163909656586](https://x.com/guangtou100plus/status/1864335163909656586)
 <img src="https://p.sda1.dev/20/d89f77fbc03b3059e98685dc1f9f14d0/20241205_234314.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ProAgressive  
+##### 1044#       发表于 2024-12-5 23:56
+
+PV人物少得可怜却把地下竞技团体介绍了一遍，但是地下竞技一帧画面都没有，规则是2V2那红高达来之前女主队友是女二？
+
+敢把TV先剪成剧场版放出来是什么操作
+
+*****
+
+####  windaria  
+##### 1045#       发表于 2024-12-5 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66854422&amp;ptid=2209276" target="_blank">ProAgressive 发表于 2024-12-5 23:56</a>
+
+PV人物少得可怜却把地下竞技团体介绍了一遍，但是地下竞技一帧画面都没有，规则是2V2那红高达来之前女主队 ...</blockquote>
+这不是敢不敢的问题，是先捞一把多赚点的问题
+
+
+*****
+
+####  patema  
+##### 1046#       发表于 2024-12-6 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66852762&amp;ptid=2209276" target="_blank">蕾洁之风 发表于 2024-12-5 19:25</a>
+
+本作设定之一不久前画的钢加农还有很久以前画的D高达3号机，如果是这种机设，大众接受度会高一点吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">其实我还是喜欢山下的牛高
+

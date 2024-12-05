@@ -6042,3 +6042,20 @@ syl
 
 看个狗就觉得自己懂完了，真以为邦里没常服戴帽子的其他角色了啊，闹麻了
 
+
+*****
+
+####  PDQ4  
+##### 2016#       发表于 2024-12-5 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66854353&amp;ptid=2208921" target="_blank">lolisk 发表于 2024-12-5 23:42</a>
+
+这里有人提到过回覆「主唱太拼命了」的头像和初华和灯初遇时的戴的黑帽子对上了吗？ ...</blockquote>
+还是传到泥漏了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+如果独角兽是个低级趣味打算把初华写成小心眼low逼并垫给灯的人，确实可以这么写
+
+然后就要花心思去圆祥子怎么知道这条消息，怎么看到这条推，以及因为这件事讨厌初华等乱七八糟的烂活
+
+虽然我觉得有些人就想这么贷款就是了，毕竟还有什么比把隔壁团的主唱踩在脚下更捧自家呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

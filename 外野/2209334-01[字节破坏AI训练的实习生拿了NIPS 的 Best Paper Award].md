@@ -647,3 +647,16 @@ illustriousXL完全比不了，细节磨了磨而 ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那么，科学史上有没有类似破坏金主赞助的其他人的实验以便自己拿到更多资源然后头像还能挂在墙上的人呢，别说是牛顿吧
 
+
+*****
+
+####  素盏鸣尊  
+##### 62#       发表于 2024-12-5 07:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66846752&amp;ptid=2209334" target="_blank">全世界失恋 发表于 2024-12-5 07:36</a>
+
+那么，科学史上有没有类似破坏金主赞助的其他人的实验以便自己拿到更多资源然后头像还能挂在墙上的人呢，别 ...</blockquote>
+不破坏实验。破坏其他人，毕达哥拉斯因为希帕索斯发现无理数将其沉塘算不算。
+
+不过现代人不能和公元前人相提并论。
+

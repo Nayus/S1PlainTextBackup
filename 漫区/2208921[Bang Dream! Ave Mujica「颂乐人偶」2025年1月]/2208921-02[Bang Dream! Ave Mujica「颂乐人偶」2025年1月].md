@@ -5301,3 +5301,20 @@ mujica刚建立刚出道没多久，成员本质上是不太熟的，因此考�
 live也是世界观的一部分 
 说不定还有新信息呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 1957#       发表于 2024-12-5 09:15
+
+之前群友说或许4th会复刻第一话的内容，毕竟live当天也会播放第一话
+
+如果是这样那三次鸡是不是终于可以不用戴面具了
+
+*****
+
+####  全装甲夏亚  
+##### 1958#       发表于 2024-12-5 09:17
+
+我要是记者我就去采访初华前队友<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

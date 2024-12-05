@@ -11557,3 +11557,13 @@ op地区大赛就在新国立了决赛不敢想了<img src="https://static.sarab
 
 和鱼的印象感差不多诶，不过憨憨的狼那不就是哈士奇吗<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 1129#       发表于 2024-12-5 12:33
+
+想到K组那张和狼对比的梗图
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

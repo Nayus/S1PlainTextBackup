@@ -8689,3 +8689,14 @@ G-Q6uX越看越顺眼了，坏了<img src="https://static.saraba1st.com/image/sm
 
 但鸭子是二五仔啊，给联邦放大水的可能性么也不是没有
 
+
+*****
+
+####  patema  
+##### 914#       发表于 2024-12-5 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66849007&amp;ptid=2209276" target="_blank">bindata 发表于 2024-12-5 12:20</a>
+
+但鸭子是二五仔啊，给联邦放大水的可能性么也不是没有</blockquote>
+所以有没有可能那场塞克谬事故是鸡瘟内部为了除掉鸭子干的
+

@@ -5896,3 +5896,24 @@ https://bbs.nga.cn/read.php?pid=798275263&amp;opt=128
 更想跳到1.9了，想看oped画面 ...</blockquote>
 op完全是我喜欢的风格，好急啊，快点到一月吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哈曼的YY  
+##### 2009#       发表于 2024-12-5 22:16
+
+会出人偶集会吗
+
+*****
+
+####  PDQ4  
+##### 2010#       发表于 2024-12-5 22:20
+
+我个人对鸡动画充满了信心，第一集讲完c和之前猜测的一样，祥子问题圆的也比我想象的满
+
+橘子能出来说明故事的基调可能更大胆一些，角色问题的解决先睦最后初华也是很早就有的贷款
+
+最吃惊但也非常喜欢的就是第一集结尾就摘了面具，意味着故事会非常紧凑，而且喵梦性格真的彰显出了野望
+
+至少对我这个鸡腿来讲是完美的第一集，总之就是相信独角兽<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

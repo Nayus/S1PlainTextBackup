@@ -6516,3 +6516,95 @@ OK！你们说是就是吧！反正再离谱有些人会自圆其说，为了一
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说这件事可以说大也可以说小，大的就是照现实走法直接雪藏喵梦，小的就是事务所看热度拉满不追究，也许mujica五个扛下苦果
 不过喵梦这件事后，短时间内祥子心里估计是和飞鸟山素食坐一桌去了，如果伤害到睦了，祥子真不会给好脸色
 
+
+*****
+
+####  相坂君  
+##### 2057#       发表于 2024-12-6 01:26
+
+祥p还年轻，可能做了演出预案，没想到美妆主播这么能搞事，没有在合同里约束
+
+*****
+
+####  skives10  
+##### 2058#       发表于 2024-12-6 01:27
+
+喵梦pv里努力打鼓不会是被祥子费老大劲帮她善后感动的吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 2059#       发表于 2024-12-6 01:28
+
+下场live的鼓谱有好戏看了.jpg
+
+看剧透是不是一开始采访也是祥子在一直帮睦打圆场
+
+*****
+
+####  akiomn  
+##### 2060#       发表于 2024-12-6 01:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">努力打鼓可能是幼年期喵梦，现在喵梦是眼里只有流量，还没鸡堕，按预告可能之后喵梦也会被流量反噬惨遭炎上？（最支持的一集，祥子只保证收拾烂摊子可没说啥时候来，喵梦又不是半身睦那样重要）
+
+*****
+
+####  相坂君  
+##### 2061#       发表于 2024-12-6 01:30
+
+谁家猫手欠摔杯子一次就能教的好的，只能饲主多上点心<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  akiomn  
+##### 2062#       发表于 2024-12-6 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66854823&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-6 01:28</a>
+下场live的鼓谱有好戏看了.jpg
+
+看剧透是不是一开始采访也是祥子在一直帮睦打圆场 ...</blockquote>
+是的，睦不擅长交际，所以祥子在帮着圆场
+
+*****
+
+####  PDQ4  
+##### 2063#       发表于 2024-12-6 01:31
+
+ 本帖最后由 PDQ4 于 2024-12-6 01:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66854816&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-6 01:25</a>
+
+只能说这件事可以说大也可以说小，大的就是照现实走法直接雪藏喵梦，小的就是事务所看热度拉满不追究，也 ...</blockquote>
+那不会，爽姐其实最大的问题在于表里不一，认不清自己的真心（之后狗让她看清接受了）
+
+喵梦没有，她始终没有掩饰自己的野心，对喵梦的态度估计更多的是她不计后果和毁掉计划的愤怒
+
+喵祥的交锋是就是很典的从对方那里抢夺利益分蛋糕，祥子要步步为营，喵梦要爆，还有得闹
+
+祥子现在可戳不到喵梦的肺管子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 2064#       发表于 2024-12-6 01:32
+
+没准合同真的没有关于隐藏身份的条款呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 2065#       发表于 2024-12-6 01:33
+
+合同没有那事务所不得嗷一声大嚎被坑了，这下不得不大力支持喵梦揭面了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 2066#       发表于 2024-12-6 01:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66854837&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-6 01:31</a>
+那不会，爽姐其实最大的问题在于表里不一，认不清自己的真心（之后狗让她看清接受了）
+
+喵梦没有，她始终 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我只说了好感度嘛，喵梦这一搞在祥子心里好感度可能真要和飞鸟山素食坐一桌去了，因为伤害到了睦，好感度直线下滑了。素食是pua，喵梦直接伤害
+

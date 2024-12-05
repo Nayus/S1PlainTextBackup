@@ -9093,3 +9093,135 @@ gonzo没似啊，变成ip授权公司了，想做的都可以找他要</blockquo
   -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
 反正经过水魔的直球百合和种自福田的自爆，国内正规平台应该是再也不敢引进高达的影视作品了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刺客ares  
+##### 949#       发表于 2024-12-5 16:16
+
+过下PV，顺便梳理一下人设和现行版的剧情大纲<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202412/05/155314s1xrvqm355z5d51v.jpg" referrerpolicy="no-referrer">
+
+<strong>98f8e295c4b104cb75108dc3ffbb9a4.jpg</strong> (424.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 15:53 上传
+
+首先是开篇经典殖民卫星，昼夜交替，交代故事发生背景
+
+按剧透是SIDE6内部，建筑风格已经按EVA新剧场版标准进行了现代化改修<img src="https://static.saraba1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202412/05/155540f8ag87647d4p6756.jpg" referrerpolicy="no-referrer">
+
+<strong>d8219966357e8d7478525a9d775a2a7.jpg</strong> (147.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 15:55 上传
+
+女主落水的镜头，台词“未曾见过真正的大海”交代女主身份背景
+
+殖民卫星土著，没去过地球圈，因为个人原因想看海
+
+<img src="https://img.saraba1st.com/forum/202412/05/155633m86r8cnonr6n8nhh.jpg" referrerpolicy="no-referrer">
+
+<strong>665fbafcdfe359963b8558496a79f4a.jpg</strong> (223.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 15:56 上传
+
+通过水光纹理反射和护栏可以看出这是在桥下，女主一脸向往的看着涂鸦墙
+
+此处注意女主头顶上方的红色标记，那个不是箭头，而是一个类似徽章的标记
+
+<img src="https://img.saraba1st.com/forum/202412/05/155757zzxsow2kccm52rc2.jpg" referrerpolicy="no-referrer">
+
+<strong>48954a129425373db69b45ac4bd5add.jpg</strong> (122.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 15:57 上传
+
+镜头一转回到室内，女主从河里爬上来之后换了身衣服（可爱捏）
+
+发生了什么事导致女主满面愁容，此处注意女主的水母发夹
+
+<img src="https://img.saraba1st.com/forum/202412/05/155932dzj20p2jnln1wc62.jpg" referrerpolicy="no-referrer">
+
+<strong>2a74cc3a3d2db2a118492c21d6722f4.jpg</strong> (177.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 15:59 上传
+
+女主卧室鸟瞰
+
+一个镜头表现出生活环境（标准中产），侧写性格（床脚毛绒玩偶=孩子气）
+
+此处墙上出现了更多的水母要素
+
+<img src="https://img.saraba1st.com/forum/202412/05/160712b9t3m9jda8dnugju.jpg" referrerpolicy="no-referrer">
+
+<strong>d8506114b81574d3e0e9ee46164ea0f.jpg</strong> (173.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 16:07 上传
+
+夜晚，女主在某建筑外将一个包装盒全力扔飞
+
+<img src="https://img.saraba1st.com/forum/202412/05/160831ze69d45tpag6zyu4.jpg" referrerpolicy="no-referrer">
+
+<strong>8c05427884e0260a145c0185d344a6e.jpg</strong> (134.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 16:08 上传
+
+<img src="https://img.saraba1st.com/forum/202412/05/160842cv36hh2vtwm6jk4k.jpg" referrerpolicy="no-referrer">
+
+<strong>8444f7a7d0388d54b178df55b866e75.jpg</strong> (119.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 16:08 上传
+
+女主和阿喵第一次（？）见面，根据打光颜色，与上面女主扔东西是同一个场景
+
+二人姿势都是朝天举手，这个镜头大概率是女主从阿喵那里夺走了什么（上个镜头扔飞的盒子）
+
+阿喵这个镜头表现得很惊讶，此处注意她脸上还没有伤
+
+<img src="https://img.saraba1st.com/forum/202412/05/161110tp3tvvta2tv1p3vk.jpg" referrerpolicy="no-referrer">
+
+<strong>a1130f42c0f282c9ce68d62aca61f1d.jpg</strong> (141.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 16:11 上传
+
+场景橘红色背光，阿喵摘了墨镜，表现得很不安（因为上个镜头被女主夺走了盒子）
+
+注意阿喵是搞走私的，女主扔掉的东西可能是她的走私品
+
+
+*****
+
+####  中野梓  
+##### 950#       发表于 2024-12-5 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66849435&amp;ptid=2209276" target="_blank">leonlink 发表于 2024-12-5 13:16</a>
+
+—— 来自 鹅球 v3.1.91-alpha</blockquote>
+20世纪宅王之王
+
+*****
+
+####  バーチャルS1er  
+##### 951#       发表于 2024-12-5 16:24
+
+1男两女、是百合双飞吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

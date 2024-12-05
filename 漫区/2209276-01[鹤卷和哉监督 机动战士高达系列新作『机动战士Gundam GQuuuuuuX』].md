@@ -8612,3 +8612,33 @@ G-Q6uX越看越顺眼了，坏了<img src="https://static.saraba1st.com/image/sm
 明年不是机战大年吗，新高达、jzgg新作、创圣新作、乐园追放新作，就差个马裤螺丝了 ...</blockquote>
 乐园追放是2026年
 
+
+*****
+
+####  Toby_dak  
+##### 907#       发表于 2024-12-5 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66846038&amp;ptid=2209276" target="_blank">mousy55555 发表于 2024-12-5 01:05</a>
+
+飞自泄露那是财团自己的手游直接把建模给完整扔出来了……还真不是社交媒体泄露的，主要这剧情过于离谱我 ...</blockquote>
+怎么就离谱了，《基连的野望》各种势力IF线的剧本B社又不是没写过。想想RX-78/CA红高是哪里来的。
+
+<img src="https://img.saraba1st.com/forum/202412/05/120949hfezcsgb6679o789.jpg" referrerpolicy="no-referrer">
+
+<strong>20170516_kyasu_03.jpg</strong> (242.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 11:09 上传
+
+*****
+
+####  g救世主高达  
+##### 908#       发表于 2024-12-5 11:13
+
+<blockquote>九十九尾 发表于 2024-12-5 02:44
+战力相差那么大，吉翁怎么赢？
+
+没让雷比尔将军逃走，吉翁内部情况也没暴露，最后签订对吉翁有利的条约， ...</blockquote>
+很简单，本篇0079设定吉姆有阿姆罗开元祖的数据，才能很快造出来，这个世界线阿姆罗连元祖都没摸过，那就是连邦宇宙战机和六一式打红高达+扎古大魔勇士，连邦就算造再多飞机坦克也就那样
+

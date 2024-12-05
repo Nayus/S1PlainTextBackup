@@ -8925,3 +8925,22 @@ gonzo没似啊，变成ip授权公司了，想做的都可以找他要</blockquo
 
 往好处想，这种机设也能过万代的法眼说明万代还没彻底掉钱眼里
 
+
+*****
+
+####  jojonathan  
+##### 932#       发表于 2024-12-5 14:59
+
+说起来GQuuuuuuX貌似是夏亚直属部队的新人类专用机 红高达夏亚开过 <img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  瓦格雷  
+##### 933#       发表于 2024-12-5 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66837511&amp;ptid=2209276" target="_blank">lunaticfool 发表于 2024-12-4 08:05</a>
+
+胶不错，想购入了</blockquote>
+肚子上有个紫色的小动物脸??
+

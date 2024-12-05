@@ -5250,3 +5250,54 @@ mujica刚建立刚出道没多久，成员本质上是不太熟的，因此考�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">昨天漏油说的时间线其实也挺有意思的，mygo结尾（母鸡卡出道）是几月来着？大家都穿着夏季校服；mujia下集go团也是夏季校服，这么看母鸡卡组成可能也就俩月（都还在夏天）；海玲主pv时是秋季校服，那大概起码在夏天的时候就把睦的问题已经解决掉了
 
+
+*****
+
+####  椎名真希  
+##### 1951#       发表于 2024-12-5 09:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66847008&amp;ptid=2208921" target="_blank">仓鼠胖太 发表于 2024-12-5 08:44</a>
+
+完了呀，会打脸的只有父母吧，这估计是出道没来得及和父母达成一致就被暴露了，小睦忒惨，从她的角度确实 ...</blockquote>
+这是PV里面截图的P图
+
+睦家里演艺出身，不可能打脸的
+
+*****
+
+####  uhiuk  
+##### 1952#       发表于 2024-12-5 09:03
+
+这不是一眼改的飞鸟山睦低头不语的镜头吗，甚至不是pv截图
+
+*****
+
+####  御幸一也  
+##### 1953#       发表于 2024-12-5 09:04
+
+距離4th倒數10天了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+……這樓可以討論LIVE的對吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 這是純動畫樓還是
+
+*****
+
+####  星天观测  
+##### 1954#       发表于 2024-12-5 09:04
+
+正常来说应该是可以讨论live的，如果说真的不可以我就只能回小团体讨论了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 1955#       发表于 2024-12-5 09:05
+
+明显没有支教价值的搞笑发言漏油还是善用屏蔽，尽量别把话题浪费在这种无聊事上了
+
+*****
+
+####  skives10  
+##### 1956#       发表于 2024-12-5 09:05
+
+live也是世界观的一部分 
+说不定还有新信息呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

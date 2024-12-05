@@ -5540,3 +5540,17 @@ pv1pv2的镜头也有带面具演奏的 估计是鸡团特色不会改了</block
 
 —— 来自 vivo V2183A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  星天观测  
+##### 1977#       发表于 2024-12-5 13:53
+
+超越了吗，如超<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+如果要拿这个最速武道馆说事，前方漏油有相关内容的考据，另外如果有空可以自己去了解一下roselia和凑友希娜的故事（个人ras没有那么熟悉就不多说）
+
+而且强度在这个番里很重要么，那双r，pp，ag（ag在手游里被认可有可以出道的实力）之外的乐队还玩不玩了
+
+另外这是2.5企划，这种事只讨论二次很容易把三次也牵扯进来，这种话题尽量不要开始比较好<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

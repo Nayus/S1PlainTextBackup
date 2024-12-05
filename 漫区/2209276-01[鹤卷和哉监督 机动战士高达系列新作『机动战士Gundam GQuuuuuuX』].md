@@ -10634,3 +10634,13 @@ PsycoFrame就是集成到骨架里的PsycoCommunicator吧
 
 2024-12-5 22:43 上传
 
+
+*****
+
+####  duo_wolf  
+##### 1037#       发表于 2024-12-5 23:05
+
+突然想到，这里的夏亚会不会是真的夏亚，没被卡斯帕尔干掉顶替
+
+— from Sony XQ-DQ72, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+

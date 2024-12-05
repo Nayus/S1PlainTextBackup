@@ -10776,3 +10776,21 @@ PV人物少得可怜却把地下竞技团体介绍了一遍，但是地下竞技
 本作设定之一不久前画的钢加农还有很久以前画的D高达3号机，如果是这种机设，大众接受度会高一点吗 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">其实我还是喜欢山下的牛高
 
+
+*****
+
+####  Piano-Forest  
+##### 1047#         楼主| 发表于 2024-12-6 00:18
+
+<img src="https://p.sda1.dev/20/cd4bab4b7c3fe2dc7e5b5fcd7d3cbecf/20241205_235145.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/1f823afcb20362cd313b3424d8fb7b26/20241205_235143.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/20/4b91f0e3ac1460eb2757bff66a6627bc/20241206_001151.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/7961c012ac851df493c19b5282a6a1e1/20241206_001154.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/ed4dae83fc2b1315d909f328c919f4d9/20241206_001158.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/2468f10a91bb28906ea051a4fe0a17ea/20241206_001202.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/20/b20395a8a2718df00172b36e6c266f91/20241206_001209.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/c913653db7bd4c94190b0e71554b5144/20241206_001232.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/56f2e44142f4bda17b0ccfa3731993c9/20241206_001235.jpg" referrerpolicy="no-referrer">
+

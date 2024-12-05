@@ -5507,3 +5507,26 @@ pv1pv2的镜头也有带面具演奏的 估计是鸡团特色不会改了
 pv1pv2的镜头也有带面具演奏的 估计是鸡团特色不会改了</blockquote>
 那我只能说 那也不是剥落的假面无法回来啊 三角初华她骗我们啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑夜落叶秋天  
+##### 1974#       发表于 2024-12-5 10:35
+
+<blockquote>skives10 发表于 2024-12-5 10:20
+那我只能说 那也不是剥落的假面无法回来啊 三角初华她骗我们啊</blockquote>
+ mygo成员除了爱音对mujica感兴趣其他人都不太在意 但是开盒之后 灯 立希 soyo肯定会对祥子 海铃 睦 她们产生行动 加上帮助过灯的初华 说剥落的假面无法回来确定没错 因为代表mujica的日常生活无法跟之前一样了
+
+这个过程 可能会拆cp吧 
+
+*****
+
+####  结衣小比取  
+##### 1975#       发表于 2024-12-5 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66847035&amp;ptid=2208921" target="_blank">狮子咕 发表于 2024-12-5 08:49</a>
+
+昨天漏油说的时间线其实也挺有意思的，mygo结尾（母鸡卡出道）是几月来着？大家都穿着夏季校服；mujia下集g ...</blockquote>
+坛友发的，仅供参考
+[https://www.bilibili.com/read/cv39910363/](https://www.bilibili.com/read/cv39910363/)
+

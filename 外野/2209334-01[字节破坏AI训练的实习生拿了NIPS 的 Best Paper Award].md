@@ -748,3 +748,23 @@ AI三国时代要来了吗
 
 怎么没人把笛卡尔沉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  素盏鸣尊  
+##### 72#       发表于 2024-12-5 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66847841&amp;ptid=2209334" target="_blank">naclken. 发表于 2024-12-5 10:24</a>
+
+艹，还有这种事。
+
+怎么没人把笛卡尔沉了</blockquote>
+早期宗教科学同源。没分家造成的悲剧。
+
+*****
+
+####  frankCC  
+##### 73#       发表于 2024-12-5 10:32
+
+LK99  + 1.  
+

@@ -6608,3 +6608,63 @@ OK！你们说是就是吧！反正再离谱有些人会自圆其说，为了一
 喵梦没有，她始终 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我只说了好感度嘛，喵梦这一搞在祥子心里好感度可能真要和飞鸟山素食坐一桌去了，因为伤害到了睦，好感度直线下滑了。素食是pua，喵梦直接伤害
 
+
+*****
+
+####  skives10  
+##### 2067#       发表于 2024-12-6 01:36
+
+可能这个项目本身的自由度比较高
+毕竟祥子手上有资源 事务所干涉比较少
+祥子本人对团内成员的行为约束没有写进合同倒是可以理解成天真？
+
+*****
+
+####  NODY  
+##### 2068#       发表于 2024-12-6 01:37
+
+喵梦3rd的独白不就暗示了她为了热度什么都能干吗，下集预告看手机笑估计就是第一波热度真拉到了，独白也暗示了喵梦在高兴的同时觉得“灯光太刺眼了可能会被烧到”，估计就是这方面出问题
+
+对应访谈说的“喵梦会引起各种事件”，估计就是不停整活爆热度，前面一两次还是正常的拉到热度，但到了后面开始朝炎上方向发展导致她自己控制不住，这时候再描写mujica成员依然对她不离不弃，就可以让喵梦被打动了
+
+*****
+
+####  skives10  
+##### 2069#       发表于 2024-12-6 01:39
+
+祥子从小到大遇到的女孩都挺对她言听计从的（？）
+这么看喵梦也算是特殊的一个了
+
+*****
+
+####  PDQ4  
+##### 2070#       发表于 2024-12-6 01:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66854842&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-6 01:35</a>
+
+我只说了好感度嘛，喵梦这一搞在祥子心里好感度可能真要和飞鸟山素食坐一桌去了，因为伤害到了睦，好感度 ...</blockquote>
+好感度那确实有可能
+
+不过问题不大，因为喵祥走得是先婚后爱路线，好感度事件都在后面呢<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  相坂君  
+##### 2071#       发表于 2024-12-6 01:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66854857&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-6 01:39</a>
+
+祥子从小到大遇到的女孩都挺对她言听计从的（？）
+
+这么看喵梦也算是特殊的一个了 ...</blockquote>
+什么，“女人,你成功地吸引了我的注意力。”
+
+*****
+
+####  akiomn  
+##### 2072#       发表于 2024-12-6 01:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实我趋向于喵梦的团内cp是海玲（）祥子可能是打个辅助
+我印象里海玲是对应猫猫的，都是在找归宿，喵梦对应立希但我忘了理由是啥
+

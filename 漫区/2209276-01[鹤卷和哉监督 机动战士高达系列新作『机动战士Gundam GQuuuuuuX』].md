@@ -8944,3 +8944,45 @@ gonzo没似啊，变成ip授权公司了，想做的都可以找他要</blockquo
 胶不错，想购入了</blockquote>
 肚子上有个紫色的小动物脸??
 
+
+*****
+
+####  瓦格雷  
+##### 934#       发表于 2024-12-5 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66837635&amp;ptid=2209276" target="_blank">PascalLefèvre 发表于 2024-12-4 08:26</a>
+
+但是看机体介绍又说驾驶员是女主，男孩子拉克丝役kana？</blockquote>
+说不定是个公AI
+
+*****
+
+####  emmerMK4  
+##### 935#       发表于 2024-12-5 15:12
+
+ 本帖最后由 emmerMK4 于 2024-12-5 15:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66848129&amp;ptid=2209276" target="_blank">古怪山庄士大夫 发表于 2024-12-5 10:54</a>
+
+这不挺好的，免得像eva终纪录片里的鹤卷那样，全程痛苦面具，这回做高达能不能塔诺西了(不过看到庵野也在分 ...</blockquote>
+鹤卷跟庵野同框的时候一直都是下一秒就要跳楼的表情
+
+
+*****
+
+####  ads147147  
+##### 936#       发表于 2024-12-5 15:16
+
+还是痞子自己的问题，他做甲方永远都是你们先做，我来否了，你干的一切基本都是无用功，但是痞子偏偏真能海量抽卡抽出真东西所以你又不能骂他真的能做出好东西吗，憋屈 。
+
+至少鹤卷做东西不是这个样子的，起码他挺懂的自己到底要做什么，然后痞子剧本这个事啊，大概率是找个什么小黑屋把痞子关进去给我写的那种感觉。。
+
+*****
+
+####  瓦格雷  
+##### 937#       发表于 2024-12-5 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66838913&amp;ptid=2209276" target="_blank">清雨 发表于 2024-12-4 10:21</a>
+
+是三角恋就看</blockquote>
+是不是三角恋不知道  但是MS头上戴着三角裤 ﹃_﹃〣
+

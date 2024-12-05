@@ -9879,3 +9879,59 @@ GQX近战武装被实体弹压制，可以认为和之前扎古开枪的镜头�
 
 男主的几个镜头和眼神都感觉阴森森的，真的是什么好人吗？
 
+
+*****
+
+####  刺客ares  
+##### 969#       发表于 2024-12-5 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66851682&amp;ptid=2209276" target="_blank">穿越护城河 发表于 2024-12-5 17:31</a>
+
+想多了
+
+直接爆改口袋里的战争吧</blockquote>
+开篇就说没见过真的大海，各种细节表现女主喜欢水母
+
+按理说结局前应该会有突入地球圈看海的剧情，全篇困在side6太遗憾了
+
+
+*****
+
+####  RE㐅ia  
+##### 970#       发表于 2024-12-5 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66851533&amp;ptid=2209276" target="_blank">刺客ares 发表于 2024-12-5 17:18</a>
+
+女主在大海前奔跑镜头，要么是做梦要么是描述做梦</blockquote>
+Pomerian是博美犬的意思，就是在鸡夸克斯腹部贴这的这个
+
+Screen Shot 2024-12-05 at 5.40.06 PM.png
+(109.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 17:40 上传
+
+<img src="https://img.saraba1st.com/forum/202412/05/174019yl3ll43q39aggg9t.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 971#       发表于 2024-12-5 17:43
+
+0085正好是《天空的学校》的时间，联邦在进行NT驾驶员的养成。
+
+换成吉翁线的话，打黑拳或许也是一种机师培训。
+
+*****
+
+####  刺客ares  
+##### 972#       发表于 2024-12-5 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66851768&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2024-12-5 17:40</a>
+
+Pomerian是博美犬的意思，就是在鸡夸克斯腹部贴这的这个</blockquote>
+那就好懂了，一眼队徽
+
+（卧槽官网拿这个当icon不会真要打全篇的黑拳吧，那种事不要啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">）
+

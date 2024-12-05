@@ -657,3 +657,33 @@ woc，边狱公司和明日方舟会在2025年双向联动！
 
 这样设计确实很好，公主是三人组里唯一有特殊防御技能的，何况唐家血王枪可不能缺席啊。
 
+
+*****
+
+####  Jamaisvu  
+##### 1005#       发表于 2024-12-5 17:40
+
+ 本帖最后由 Jamaisvu 于 2024-12-5 17:44 编辑 
+
+<img src="https://img.saraba1st.com/forum/202412/05/173959t0xz6vbbfioim0f2.jpg" referrerpolicy="no-referrer">
+
+<strong>949177434DD393B4E57FAC7C1A8FD18E.jpg</strong> (203.04 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-5 17:39 上传
+
+转一下困难镜牢的新合成表。
+
+另外月之记忆可以合成了，斩打突三个IV级记忆饰品+任意两个IV级罪孽残片：
+
+<img src="https://img.saraba1st.com/forum/202412/05/174435ovjztz0tfj0v00w7.jpg" referrerpolicy="no-referrer">
+
+<strong>9C7F63F5B6AE14A86F98CE0DC2523CAD.jpg</strong> (118.27 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-5 17:44 上传
+

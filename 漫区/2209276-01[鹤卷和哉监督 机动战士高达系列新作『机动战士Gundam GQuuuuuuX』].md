@@ -9225,3 +9225,103 @@ gonzo没似啊，变成ip授权公司了，想做的都可以找他要</blockquo
 
 1男两女、是百合双飞吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刺客ares  
+##### 952#       发表于 2024-12-5 16:32
+
+<img src="https://img.saraba1st.com/forum/202412/05/161629kr2wbw2ms2reoodo.jpg" referrerpolicy="no-referrer">
+
+<strong>b160f0c56c446de8696ab3551c816c8.jpg</strong> (126.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 16:16 上传
+
+男主登场，场景在桥下（女主之前看涂鸦的地方）
+
+此处可能是在画涂鸦，也可能是在蹲点，看有没有人注意到他留的红色记号
+
+<img src="https://img.saraba1st.com/forum/202412/05/161806pfr9or61zdza5fau.jpg" referrerpolicy="no-referrer">
+
+<strong>915698dc29ea71c062533aa9980e3e3.jpg</strong> (164.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 16:18 上传
+
+阿喵和男主对话，背景地上盖满和桥下墙壁相似的涂鸦
+
+这个地方可能是在男主的避难所，也可能就是在之前的桥下
+
+阿喵经典脸红，厨厨赢面阿喵一见钟情男主，豚豚赢面男主问阿喵是不是喜欢女主
+
+<img src="https://img.saraba1st.com/forum/202412/05/162109uu4u6uxs47zufss1.jpg" referrerpolicy="no-referrer">
+
+<strong>530d577050583f5159354470e0507e1.jpg</strong> (273.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 16:21 上传
+
+洗衣店，背景洗衣机里看颜色正在洗的是女主的驾驶服
+
+阿喵也换了套衣服，她之前的衣服也要洗，所以和女主结伴来洗衣店
+
+竹老师本作服设已经稳压铁血水魔了
+
+<img src="https://img.saraba1st.com/forum/202412/05/162328fr6mll75g75wgcw7.jpg" referrerpolicy="no-referrer">
+
+<strong>d48f71542d745e0c8a3ae56d1391ec0.jpg</strong> (173.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 16:23 上传
+
+经典宝可梦风人物登场，你不说我以为是哪个馆主来了
+
+此人身份大概率为黑拳组织的大姐头
+
+<img src="https://img.saraba1st.com/forum/202412/05/162451f44xcxtnr8cxp24l.jpg" referrerpolicy="no-referrer">
+
+<strong>ad04987ca30fe3b80ca252a71facdef.jpg</strong> (225.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 16:24 上传
+
+经典和水魔地球寮一个作用的人设集合，从左到右分别为
+
+觉得女主能力不行男配，负责管事和指示女主打架大姐头，
+
+唱衰女主能力的认真男配，看不起女主身份的搞事男配。
+
+此处注意女主和阿喵是一起来的，大概率是阿喵把女主引荐给黑拳组织
+
+<img src="https://img.saraba1st.com/forum/202412/05/162835wo3rwhnnkwfmkbqq.jpg" referrerpolicy="no-referrer">
+
+<strong>903bf6a7ea4feec4887cf5d8c3e428d.jpg</strong> (153.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 16:28 上传
+
+女主迟疑镜头，阿喵在后边，注意更后方的橘红色背光
+
+这个镜头和之前阿喵摘掉墨镜表示不安是一组
+
+大概率是二人因为弄丢走私品遇上了麻烦
+
+<img src="https://img.saraba1st.com/forum/202412/05/163000syfy6k6nf2f69r8p.jpg" referrerpolicy="no-referrer">
+
+<strong>f165525dfed303d778890add67e7aad.jpg</strong> (188.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 16:30 上传
+
+二人在一道密码门前，阿喵表现的退缩，女主在旁催促
+
+这个镜头在引荐镜头的前面，是阿喵带女主去见黑拳组织前一刻的内容
+

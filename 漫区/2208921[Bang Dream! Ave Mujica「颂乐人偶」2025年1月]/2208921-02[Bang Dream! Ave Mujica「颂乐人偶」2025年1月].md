@@ -5691,3 +5691,28 @@ op大概武藏野会唱，ed就不清楚了
 
 sound only都没赶上，视频全没了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 1990#       发表于 2024-12-5 16:24
+
+韩国最近事多，节约要去韩国武士道expo的预定取消了
+
+毕竟下周就是live了，真不能出什么事
+
+<img src="https://img.saraba1st.com/forum/202412/05/162430ltazdsk7b5622r6r.png" referrerpolicy="no-referrer">
+
+<strong>3776296c-a612-4fa4-be11-4973eaa01334.png</strong> (50.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 16:24 上传
+
+*****
+
+####  星天观测  
+##### 1991#       发表于 2024-12-5 16:28
+
+挺好的，武藏野别出什么问题了
+

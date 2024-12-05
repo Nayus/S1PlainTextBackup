@@ -515,3 +515,16 @@ G世紀做成手遊一向都有這類問題
 
 开发树和氪金抽卡手游怎么兼容？
 
+
+*****
+
+####  hsyg  
+##### 59#       发表于 2024-12-5 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66850754&amp;ptid=2071758" target="_blank">HEERO.W 发表于 2024-12-5 15:50</a>
+
+开发树和氪金抽卡手游怎么兼容？</blockquote>
+开发出来的和抽的有差距就行，而且可以搞时间限制，过了保护期再进开发池。
+
+反正本体完全可以放开，其他要素拉出区别就足够了。
+

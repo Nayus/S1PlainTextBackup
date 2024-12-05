@@ -17002,3 +17002,14 @@ MyGO二专试听  [https://www.youtube.com/watch?v=B6bahlqpENw](https://www.yo
 前奏好听，人声编排感觉比较平，没啥感情，不过也可能节选的部分的问题 ...</blockquote>
 前奏的动机反而把我串进一些华语10年代的土味情歌里（）
 
+
+*****
+
+####  织部琴音  
+##### 26569#       发表于 2024-12-5 21:21
+
+document.getElementById('flv_Dlp').innerHTML=("");
+
+<strong>我大概，一辈子也忘不了2477💚</strong>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

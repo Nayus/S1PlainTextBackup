@@ -203,3 +203,28 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">新歌还挺欢乐
 
+
+*****
+
+####  holoan  
+##### 10378#         楼主| 发表于 2024-12-5 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66853509&amp;ptid=2086637" target="_blank">rs5621 发表于 2024-12-5 21:13</a>
+
+新歌还挺欢乐</blockquote>
+两首原创曲都是同一个人创作的风格一样
+
+*****
+
+####  rs5621  
+##### 10379#       发表于 2024-12-5 21:20
+
+笑死了，怎么玩起虹吸
+
+*****
+
+####  holoan  
+##### 10380#         楼主| 发表于 2024-12-5 21:22
+
+今年是korone主导了，要不miko真的过劳死
+

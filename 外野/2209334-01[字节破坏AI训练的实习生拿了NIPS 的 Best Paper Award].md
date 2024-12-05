@@ -796,3 +796,52 @@ LK99  + 1.  
 
 牢田整这堆乱事儿，我估计jiang老师是最郁闷的……倒是期待jiang能够出更好更多的优质作品，时间会告诉我们一切。 
 
+
+*****
+
+####  mj240608414  
+##### 76#       发表于 2024-12-5 11:28
+
+坛友其实只是想要看看ai界的撇嘴龙王罢了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">，不然当初那个帖子为啥就没人提过paper啥的，顶多是猜测师出名门
+
+—— 来自 Xiaomi 22127RK46C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  wjxforever  
+##### 77#       发表于 2024-12-5 11:29
+
+完了，一会儿没见田同学已经要开发出永动机来了
+
+*****
+
+####  Luhikari  
+##### 78#       发表于 2024-12-5 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66848223&amp;ptid=2209334" target="_blank">pigsy 发表于 2024-12-5 11:03</a>
+
+你如果看了前因后果还得出这个成果完全是因为田某很厉害的结论，已经外行到说一篇论文只有一作一个人的贡 ...</blockquote>
+我说论文内容，你说我瞎扯，我让你说清楚我哪句是瞎扯，你扯东扯西，和我扯什么作者贡献
+
+合着你看论文不看正文，只看作者栏和内幕消息是吧
+
+我知你懂内幕，懂消息，是真正的科研人才
+
+但你说我瞎几把扯的内容如下：”有可能彻底取代扩散模型，把图像生成彻底融入现有 LLMs 的框架。illustriousXL完全比不了，细节磨了磨而已，这篇有可能以后和 DM 坐一排。就是有可能我像现在一步步指导 LLMs 修改作文一样，一步步指导 LLMs 画一张画，这在SD框架中是不可能的，因为SD只能接受有限的图片、和一段文本作为提示”
+
+请问这里面哪一句话是瞎几把扯，给我说清楚是哪句话，哪个词，给我一句一词的念清楚了
+
+
+*****
+
+####  pigsy  
+##### 79#       发表于 2024-12-5 11:32
+
+ 本帖最后由 pigsy 于 2024-12-5 11:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66848455&amp;ptid=2209334" target="_blank">Luhikari 发表于 2024-12-5 11:29</a>
+
+我说论文内容，你说我瞎扯，我让你说清楚我哪句是瞎扯，你扯东扯西，和我扯什么作者贡献
+
+合着你看论文不 ...</blockquote><blockquote>”字节领导不识货，对AI技术未来发展毫无判断力，只会跟着先行者后面吃尾气，最终屎盆子彻底反扣在字节头上，这种情况下什么职业道德都是其次的，智力低水平低才是最致命的，而这顶帽子扣在字节身上的损失更是远超800万“</blockquote>
+这不是你思路滑坡放的屁？你自己说话自己不认了？ 我已经明确告诉你了，VAR这个方向有人已经在探索，而且大牛就是这个论文里田的mentor ，jiang老师，而且看”讲故事风格，这个论文的idea极大概率是jiang，老田负责代码和实现。然而你还在故弄玄虚的吹嘘什么”不识货，没有判断力“。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你的脑子在哪里？你的逻辑判断在哪里？
+

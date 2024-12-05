@@ -160,3 +160,46 @@
 
 第二位邪神
 
+
+*****
+
+####  karastar  
+##### 10374#       发表于 2024-12-5 21:08
+
+<img src="https://img.saraba1st.com/forum/202412/05/210836rw34s3hj4tzs5573.png" referrerpolicy="no-referrer">
+
+<strong>QQ20241205-210827.png</strong> (81.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 21:08 上传
+
+*****
+
+####  holoan  
+##### 10375#         楼主| 发表于 2024-12-5 21:10
+
+<img src="https://img.saraba1st.com/forum/202412/05/211042bhel3hew4spheief.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (240.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 21:10 上传
+
+
+*****
+
+####  karastar  
+##### 10376#       发表于 2024-12-5 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66853484&amp;ptid=2086637" target="_blank">holoan 发表于 2024-12-5 21:10</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">怎么还是这个游戏
+
+*****
+
+####  rs5621  
+##### 10377#       发表于 2024-12-5 21:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">新歌还挺欢乐
+

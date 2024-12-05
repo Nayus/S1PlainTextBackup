@@ -9325,3 +9325,142 @@ gonzo没似啊，变成ip授权公司了，想做的都可以找他要</blockquo
 
 这个镜头在引荐镜头的前面，是阿喵带女主去见黑拳组织前一刻的内容
 
+
+*****
+
+####  穿越护城河  
+##### 953#       发表于 2024-12-5 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66851103&amp;ptid=2209276" target="_blank">刺客ares 发表于 2024-12-5 16:32</a>
+男主登场，场景在桥下（女主之前看涂鸦的地方）
+
+此处可能是在画涂鸦，也可能是在蹲点，看有没有人注意到 ...</blockquote>
+不要光拉片，看最后一张图上的广告是“乐队招募”
+
+所以屋里人是自己人，属于太空大篷车上的朋友，在这里找事做，可能真的会唱歌
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  刺客ares  
+##### 954#       发表于 2024-12-5 16:44
+
+<img src="https://img.saraba1st.com/forum/202412/05/163219a9q9qlsjc6tqclvc.jpg" referrerpolicy="no-referrer">
+
+<strong>ebbdeca2c9a003892a31378592b994d.jpg</strong> (183.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 16:32 上传
+
+<img src="https://img.saraba1st.com/forum/202412/05/163258ahn1w198n81w9n0k.jpg" referrerpolicy="no-referrer">
+
+<strong>8d257a467948a14e186c4b086ff0553.jpg</strong> (182.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 16:32 上传
+
+女主手机遭到黑客黑入，有明显的黑入特效，随后发来了没有头像的信息
+
+这里应该是黑拳组织的人单向联系女主
+
+注意手机壁纸，结合前面女主卧室那组镜头，可以得出女主是个水母控
+
+（为什么女主一个宇宙居民向往地球上真正的大海？因为她想要看水母）
+
+<img src="https://img.saraba1st.com/forum/202412/05/163444ckbj3o3qonkok3o9.jpg" referrerpolicy="no-referrer">
+
+<strong>7e93208151f49cab23e5bdbb807efcc.jpg</strong> (223.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 16:34 上传
+
+大姐头在卫生间帮女主换装，并且提女主的领子
+
+到这里剧情脉络就很明显，女主机缘巧合弄丢阿喵的走私品，于是在阿喵引荐下去黑拳组织打比赛还钱
+
+黑拳组织的人看到是个小女孩驾驶员不信任女主，这里是赛前在给女主上压力
+
+<img src="https://img.saraba1st.com/forum/202412/05/163702dn2g9nd7fkrntwnn.jpg" referrerpolicy="no-referrer">
+
+<strong>e6c3a32a5123c9d51274e9dcd2d60cd.jpg</strong> (266.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 16:37 上传
+
+GQX的内部驾驶舱，女主驾驶服无头盔配置（有两下子）
+
+<img src="https://img.saraba1st.com/forum/202412/05/163817j8uztbw6wyw8itut.jpg" referrerpolicy="no-referrer">
+
+<strong>95ee238df0ea2e68e841da1b3afcc90.jpg</strong> (105.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 16:38 上传
+
+<img src="https://img.saraba1st.com/forum/202412/05/164103qjlmzd44j1qmum1d.jpg" referrerpolicy="no-referrer">
+
+<strong>a800a172304690e4aa16c38ac5343aa.jpg</strong> (100.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 16:41 上传
+
+阿喵摘墨镜，情绪低落，此处她的衣服和引荐女主去黑拳组织的一样，表示在洗衣房镜头之前
+
+左脸受了伤，大概率是走私过程中犯了错被上线打了
+
+人设图里黄色的线不是她的头发挑染，而是搭在耳后的耳机
+
+<img src="https://img.saraba1st.com/forum/202412/05/164120vs7rwd7w5b7hm2z5.jpg" referrerpolicy="no-referrer">
+
+<strong>00f8e06221eadaf34de498f0c513aad.jpg</strong> (136.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 16:41 上传
+
+桥下涂鸦墙镜头全景，阿喵在前女主在后，服装不变，可能在上一组镜头前后
+
+全景后可以看到，顶部红色的不是箭头，而是一个组织的标记（类似马夫蒂那个）
+
+女主看到涂鸦又走不动道了
+
+<img src="https://img.saraba1st.com/forum/202412/05/164250vo66cn6kxlhujdjj.png" referrerpolicy="no-referrer">
+
+<strong>微信图片_20241205151230(1).png</strong> (245.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 16:42 上传
+
+<img src="https://img.saraba1st.com/forum/202412/05/164301e37sxf36yfm2mz2f.jpg" referrerpolicy="no-referrer">
+
+<strong>250px-马夫蒂.jpg</strong> (5.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 16:43 上传
+
+<img src="https://img.saraba1st.com/forum/202412/05/164311sihjk8fk8newnclj.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>u=2565276222,1510335452&amp;fm=253&amp;fmt=auto&amp;app=138&amp;f=JPEG.webp</strong> (4.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 16:43 上传
+
+<img src="https://img.saraba1st.com/forum/202412/05/164317pkyv3ciu37yu3kpf.jpg" referrerpolicy="no-referrer">
+
+<strong>250px-阿克西斯吉翁.jpg</strong> (6.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 16:43 上传
+
+作为参考，和马夫蒂标记同一个设计语言，大概率是吉翁某派系的精神继承者
+

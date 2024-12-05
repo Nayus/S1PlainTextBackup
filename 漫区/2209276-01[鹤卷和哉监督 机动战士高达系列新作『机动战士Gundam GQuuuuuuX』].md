@@ -9072,3 +9072,11 @@ gonzo没似啊，变成ip授权公司了，想做的都可以找他要</blockquo
 
 假如水魔在商业上暴死，你看他们敢不敢继续推进。
 
+
+*****
+
+####  MASKA-1  
+##### 947#       发表于 2024-12-5 15:56
+
+高达只看过水魔，打算看看这个<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

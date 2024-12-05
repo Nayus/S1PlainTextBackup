@@ -5489,3 +5489,11 @@ guest之前有几场萝ras是这种安排的，其实也是开场表演的形式
 
 不过一想到是wsd，真把动画切开来播放好像也不是不可能<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑夜落叶秋天  
+##### 1972#       发表于 2024-12-5 10:13
+
+pv1pv2的镜头也有带面具演奏的 估计是鸡团特色不会改了
+

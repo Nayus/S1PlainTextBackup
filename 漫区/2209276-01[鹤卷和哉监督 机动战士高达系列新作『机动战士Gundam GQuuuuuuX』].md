@@ -8454,3 +8454,21 @@ G-Q6uX越看越顺眼了，坏了<img src="https://static.saraba1st.com/image/sm
 
 这主角机是潮哥看不上的水平，不如说是老登自嗨作
 
+
+*****
+
+####  kyonkoism  
+##### 892#       发表于 2024-12-5 10:10
+
+看宣传图以为又是百合
+
+结果点进pv，这事要搞白学么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  arsenalfcc  
+##### 893#       发表于 2024-12-5 10:15
+
+哈啰是钉宫的声音吗？cv表出来没，听着像。
+

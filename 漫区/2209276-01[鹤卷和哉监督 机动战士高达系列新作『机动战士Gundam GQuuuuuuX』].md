@@ -8739,3 +8739,16 @@ G-Q6uX越看越顺眼了，坏了<img src="https://static.saraba1st.com/image/sm
 
 —— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  soranoguiji  
+##### 919#       发表于 2024-12-5 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66847573&amp;ptid=2209276" target="_blank">创始’’’天翔 发表于 2024-12-5 09:59</a>
+
+都有PV了，这两年时不时诈个尸。要是gonzo能打赢复活赛的话应该是会出的
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">gonzo没似啊，变成ip授权公司了，想做的都可以找他要
+

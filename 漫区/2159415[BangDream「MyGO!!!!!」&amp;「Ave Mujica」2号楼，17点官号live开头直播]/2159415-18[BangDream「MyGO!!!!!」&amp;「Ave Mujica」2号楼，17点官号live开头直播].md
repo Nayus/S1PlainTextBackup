@@ -16967,3 +16967,16 @@ EA487C0A626CFAE760B56986114137A2.jpg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  紫吹兰  
+##### 26566#         楼主| 发表于 2024-12-5 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66843832&amp;ptid=2159415" target="_blank">SakuraのOrigami 发表于 2024-12-4 18:33</a>
+
+【【Radio企划】MyGO!!!!!の「迷子集会」#103-哔哩哔哩】 [https://b23.tv/Utnxlrg](https://b23.tv/Utnxlrg)
+
+（有新歌夜隐染的片段， ...</blockquote>
+前奏好听，人声编排感觉比较平，没啥感情，不过也可能节选的部分的问题
+

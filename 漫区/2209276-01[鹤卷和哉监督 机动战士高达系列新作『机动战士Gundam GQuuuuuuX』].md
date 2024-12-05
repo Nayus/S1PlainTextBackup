@@ -10595,3 +10595,28 @@ NT力诱发的精神力骨架/骨架素材暴走能把阿克西斯推走自然�
 NT力诱发的精神力骨架/骨架素材暴走能把阿克西斯推走自然也能把所罗门四分五裂， ...</blockquote>
 剧透说是塞可缪，是更过时的技术了。
 
+
+*****
+
+####  王留美  
+##### 1034#       发表于 2024-12-5 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66853615&amp;ptid=2209276" target="_blank">巴尔干炮 发表于 2024-12-5 21:28</a>
+ 剧透说是塞可缪，是更过时的技术了。</blockquote>
+PsycoFrame就是集成到骨架里的PsycoCommunicator吧
+我理解技术上可能有使用便利性和效率上的高低，但是本质应该是一样的
+
+*****
+
+####  klmmmx  
+##### 1035#       发表于 2024-12-5 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66842689&amp;ptid=2209276" target="_blank">中二小旋风 发表于 2024-12-4 16:30</a>
+
+監督：鶴巻和哉
+
+シリーズ構成：榎戸洋司
+
+脚本：榎戸洋司／庵野秀明</blockquote>
+龙的牙医啊，帅爆了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+

@@ -8356,3 +8356,75 @@ G-Q6uX越看越顺眼了，坏了<img src="https://static.saraba1st.com/image/sm
 
 外面全都骂的飞起，首先这个故事背景是不是真的还不清楚，另外看PV这个质量应该还是可以的，有的看就不错了，机战看一年少一年，以后就没人做了
 
+
+*****
+
+####  双菜  
+##### 883#       发表于 2024-12-5 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66847425&amp;ptid=2209276" target="_blank">七层嘉影 发表于 2024-12-5 09:41</a>
+外面全都骂的飞起，首先这个故事背景是不是真的还不清楚，另外看PV这个质量应该还是可以的，有的看就不错了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">明年不是机战大年吗，新高达、jzgg新作、创圣新作、乐园追放新作，就差个马裤螺丝了
+
+*****
+
+####  创始’’’天翔  
+##### 884#       发表于 2024-12-5 09:47
+
+<blockquote>HazukiShion 发表于 2024-12-5 09:30
+水魔之前的百合机战好像人全没了的不少吧？</blockquote>
+爆裂天使是伪全灭(腹死胎中的第二季是表明都没死)。满月之战。。。也没全灭
+
+<img src="https://img.saraba1st.com/forum/202412/05/094712emzln738ml8ln3cc.png" referrerpolicy="no-referrer">
+
+<strong>7cfa626a639cafe05d552e7a12a1c12f6ed893efc7a91d230f711bfc8250c3d5.0.PNG</strong> (420 Bytes, 下载次数: 0)
+
+下载附件
+
+2024-12-5 09:47 上传
+
+*****
+
+####  创始’’’天翔  
+##### 885#       发表于 2024-12-5 09:47
+
+<blockquote>双菜 发表于 2024-12-5 09:46
+明年不是机战大年吗，新高达、jzgg新作、创圣新作、乐园追放新作，就差个马裤螺丝了 ...</blockquote>
+还有谷口哥哥的新机战，虽然是电竞题材
+
+*****
+
+####  HazukiShion  
+##### 886#       发表于 2024-12-5 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66847479&amp;ptid=2209276" target="_blank">创始’’’天翔 发表于 2024-12-5 09:47</a>
+
+爆裂天使是伪全灭(腹死胎中的第二季是表明都没死)。满月之战。。。也没全灭
+
+ ...</blockquote>
+爆裂天使居然还原定有第二季的吗。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Perfectfullmoon  
+##### 887#       发表于 2024-12-5 09:51
+
+痞子在新奥访谈里说要参加一部“向鹤卷报恩”的作品，指的就是这个吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  银枪子龙  
+##### 888#       发表于 2024-12-5 09:53
+
+潮玩化。。。
+
+*****
+
+####  PascalLefèvre  
+##### 889#       发表于 2024-12-5 09:56
+
+ 其实这部的机设反而不像是潮哥会喜欢的类型，潮哥喜欢的一般都是那种经典款改改配色，加点大撞色或者花纹啥的
+

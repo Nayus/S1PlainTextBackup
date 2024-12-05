@@ -5429,3 +5429,42 @@ IMG_5973(20241205-094424).PNG
 
 <img src="https://img.saraba1st.com/forum/202412/05/094622gocs1fm5fch4nz4c.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 1968#       发表于 2024-12-5 09:51
+
+哦突然想到可能没有摘面具了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+因为要考虑剧透问题，live有线上票，总不能线上票的人看不到动画，也看不到追加揭面live
+
+光速梦碎<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 1969#       发表于 2024-12-5 09:53
+
+<blockquote>星天观测 发表于 2024-12-5 09:46
+没有说顺序
+
+其实不应该说成是开场嘉宾，因为萝farbe的时候给鸡狗的介绍直接是O.A（opeing act）
+
+这次写的是 ...</blockquote>
+
+guest之前有几场萝ras是这种安排的，其实也是开场表演的形式
+
+和oa的区别基本上只有演出曲目数，guest会有更多首
+
+如果还是这个形式应该还是guest开场→器材整备→正式开始本番
+
+我印象里guest曲数好像还挺多的，5首？
+
+*****
+
+####  御幸一也  
+##### 1970#       发表于 2024-12-5 09:55
+
+開場嘉賓唱3首，Guest是唱5首，其實感覺就是大號開場嘉賓……
+

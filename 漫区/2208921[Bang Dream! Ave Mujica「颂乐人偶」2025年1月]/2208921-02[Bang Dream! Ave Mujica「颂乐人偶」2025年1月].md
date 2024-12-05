@@ -5683,3 +5683,11 @@ Roselia在意的从来都不是谁比自己强，而是心中的顶点，动画�
 
 op大概武藏野会唱，ed就不清楚了
 
+
+*****
+
+####  瞳映山川  
+##### 1989#       发表于 2024-12-5 16:09
+
+sound only都没赶上，视频全没了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+

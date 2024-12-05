@@ -9080,3 +9080,16 @@ gonzo没似啊，变成ip授权公司了，想做的都可以找他要</blockquo
 
 高达只看过水魔，打算看看这个<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dqjsss  
+##### 948#       发表于 2024-12-5 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66850560&amp;ptid=2209276" target="_blank">supermangunv4 发表于 2024-12-5 15:28</a>
+
+龙的牙医军国味爆表了，这部剧本不会有问题吧
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+反正经过水魔的直球百合和种自福田的自爆，国内正规平台应该是再也不敢引进高达的影视作品了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

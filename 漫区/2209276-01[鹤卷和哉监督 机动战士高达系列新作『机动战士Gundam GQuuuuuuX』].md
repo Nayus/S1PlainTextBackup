@@ -10808,3 +10808,26 @@ PV人物少得可怜却把地下竞技团体介绍了一遍，但是地下竞技
 
 一开始是粉毛和黑长直相遇，然后中间遇到蓝毛，接着吉翁gqx过来追杀蓝毛和红高达，一番战斗后，粉毛机缘巧合下抢了gqx，因为是nt，gqx头部就展开了这么个时间顺序，打黑拳什么估计在这之后
 
+
+*****
+
+####  11116等  
+##### 1049#       发表于 2024-12-6 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66854533&amp;ptid=2209276" target="_blank">Piano-Forest 发表于 2024-12-6 00:18</a></blockquote>
+补色地狱
+
+—— 来自 OnePlus PGKM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  Piano-Forest  
+##### 1050#         楼主| 发表于 2024-12-6 00:47
+
+14年 山下育人版牛高达、沙扎比
+<img src="https://p.sda1.dev/20/df2c3a00977d05a7ab2fca8bb247f304/Ikuto_Yamashita_ν_Gundam.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/1ab75e1d7850c7b2a4c68177ecc947a7/static-assets-upload17412782377889341146.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/fb2792adf12fe93b0aa8a6a191462511/20241204_120508.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/589e65ac34267e2d1e2a6c25e89d220c/0163119agy1hw8q8v5vssj20m80fbadr.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/1b69084fdbd0b677f62516c5dd6deeee/20241204_120505.jpg" referrerpolicy="no-referrer">
+

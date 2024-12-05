@@ -8752,3 +8752,30 @@ G-Q6uX越看越顺眼了，坏了<img src="https://static.saraba1st.com/image/sm
  ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">gonzo没似啊，变成ip授权公司了，想做的都可以找他要
 
+
+*****
+
+####  leonlink  
+##### 920#       发表于 2024-12-5 13:16
+
+<img src="https://p.sda1.dev/20/82b5d50c445e9cde1c656f2991d99bef/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+
+*****
+
+####  dbyboy  
+##### 921#       发表于 2024-12-5 13:17
+
+还在聊水魔这坨
+
+真就一群小馋猫
+
+*****
+
+####  acropolis  
+##### 922#       发表于 2024-12-5 13:22
+
+老登动画味道很对，就是监督是中短篇达人，如果24集不知道能不能把故事重点把握好
+

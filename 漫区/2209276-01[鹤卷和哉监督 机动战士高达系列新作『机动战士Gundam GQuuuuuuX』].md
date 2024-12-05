@@ -10278,3 +10278,33 @@ P9高达也好呀
 本作设定之一之不久前画的钢加农还有很久以前画的D高达3号机，如果是这种机设，大众接受度会高一点吗 ...</blockquote>
 这个三号机爱了
 
+
+*****
+
+####  线程召唤使  
+##### 1000#       发表于 2024-12-5 19:41
+
+擦，说个题外，G世纪永恒那游戏活了。。。。。。。。。
+
+[https://www.animenewsnetwork.com ... -japan-asia/.218610](https://www.animenewsnetwork.com/news/2024-12-04/sd-gundam-g-generation-eternal-smartphone-game-trailer-reveals-network-test-in-u.s-japan-asia/.218610)
+
+
+*****
+
+####  没取名啊  
+##### 1001#       发表于 2024-12-5 19:42
+
+<img src="https://p.sda1.dev/20/a6e11dd73f014273b3bb188ad75b4033/image.jpg" referrerpolicy="no-referrer">
+正面看着除了脸还是比较尖嘴猴腮以外还行
+
+*****
+
+####  猪突猛进R  
+##### 1002#       发表于 2024-12-5 19:45
+
+机设不是大问题，从第一页开始翻翻，最初大家还都挺饶有兴致的。
+
+直到世界观公布，由于过于炸裂很多人接受不了……
+
+我昨天一开始也是抗拒的，今天就慢慢接受了，看看明年实际的动画表现再说吧。
+

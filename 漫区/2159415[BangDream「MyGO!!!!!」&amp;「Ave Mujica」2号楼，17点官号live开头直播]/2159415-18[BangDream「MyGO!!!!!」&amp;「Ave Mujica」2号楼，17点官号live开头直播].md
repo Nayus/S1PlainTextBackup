@@ -16992,3 +16992,13 @@ MyGO二专试听  [https://www.youtube.com/watch?v=B6bahlqpENw](https://www.yo
 
 终于有明弦音了，anon可爱
 
+
+*****
+
+####  SakuraのOrigami  
+##### 26568#       发表于 2024-12-5 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66849383&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-12-5 13:10</a>
+前奏好听，人声编排感觉比较平，没啥感情，不过也可能节选的部分的问题 ...</blockquote>
+前奏的动机反而把我串进一些华语10年代的土味情歌里（）
+

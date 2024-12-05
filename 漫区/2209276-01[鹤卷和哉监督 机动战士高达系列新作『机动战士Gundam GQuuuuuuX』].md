@@ -10794,3 +10794,17 @@ PV人物少得可怜却把地下竞技团体介绍了一遍，但是地下竞技
 <img src="https://p.sda1.dev/20/c913653db7bd4c94190b0e71554b5144/20241206_001232.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/20/56f2e44142f4bda17b0ccfa3731993c9/20241206_001235.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  a85982313  
+##### 1048#       发表于 2024-12-6 00:31
+
+ 本帖最后由 a85982313 于 2024-12-6 00:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66854422&amp;ptid=2209276" target="_blank">ProAgressive 发表于 2024-12-5 23:56</a>
+
+PV人物少得可怜却把地下竞技团体介绍了一遍，但是地下竞技一帧画面都没有，规则是2V2那红高达来之前女主队 ...</blockquote>
+如果泄漏的红高达机设没有改的话，那pv里面gqx打的那两个红色浮游炮就是红高达的吧？而且那个时候gqx的头部角并没有展开，再结合泄漏的机设里说这个是吉翁最新机体，第一集后才成为粉毛的机体，那感觉会是这样
+
+一开始是粉毛和黑长直相遇，然后中间遇到蓝毛，接着吉翁gqx过来追杀蓝毛和红高达，一番战斗后，粉毛机缘巧合下抢了gqx，因为是nt，gqx头部就展开了这么个时间顺序，打黑拳什么估计在这之后
+

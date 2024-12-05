@@ -404,3 +404,12 @@ wo日，我还提前阵容，到跟前给忘了，现在还有柱子吗</blockqu
 
 十连谦信到手，不枉我前面抽卡暴死<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shimotsuki14  
+##### 46844#       发表于 2024-12-5 22:01
+
+邪门，活动刚开攒的30石出了换盘子的孔明
+今晚剩的120石放到谦信池子歪了个杰克……
+

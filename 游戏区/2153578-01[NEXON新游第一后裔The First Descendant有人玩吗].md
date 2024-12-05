@@ -2837,3 +2837,18 @@ https://api.xiaoheihe.cn/v3/bbs/app/api/web/share?link_id=139927615
 
 新东西不多 把终极沙恩弄完又能歇一阵
 
+
+*****
+
+####  GDIHARVESTER  
+##### 243#       发表于 2024-12-5 22:00
+
+炸服了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  新庄運切  
+##### 244#       发表于 2024-12-5 22:00
+
+从1000多名排队排到8000多，然后直接炸了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

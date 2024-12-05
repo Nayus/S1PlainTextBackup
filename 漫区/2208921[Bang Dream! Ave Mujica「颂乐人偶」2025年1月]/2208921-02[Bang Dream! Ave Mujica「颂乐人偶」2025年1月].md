@@ -5874,3 +5874,25 @@ https://bbs.nga.cn/read.php?pid=798275263&amp;opt=128
 
 2024-12-5 22:01 上传
 
+
+*****
+
+####  HereLink  
+##### 2007#       发表于 2024-12-5 22:10
+
+我想知道你B内部工作人员有没有看完过，我现在贼怕后面崩了。
+
+第一集内容跟我期望的完全不一样，所以很希望能比我想的还要完善。
+
+
+*****
+
+####  瞳映山川  
+##### 2008#       发表于 2024-12-5 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66853631&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-5 21:32</a>
+我觉得漏油可以期待op，至少超出我预期了，很喜欢
+
+更想跳到1.9了，想看oped画面 ...</blockquote>
+op完全是我喜欢的风格，好急啊，快点到一月吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

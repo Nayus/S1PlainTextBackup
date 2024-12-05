@@ -20,3 +20,14 @@
 直接去额外迷宫3也可以，刷开局多给的歌姬就有概率出现，还不用打领队版的最终boss（蓝豆变红豆有点恶心 ...</blockquote>
 她在敌方时这个红豆是可以给生成牌用的，其实问题不大
 
+
+*****
+
+####  检索者  
+##### 148#       发表于 2024-12-5 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66848399&amp;ptid=2200160" target="_blank">Booorunestud 发表于 2024-12-5 11:23</a>
+
+她在敌方时这个红豆是可以给生成牌用的，其实问题不大</blockquote>
+居然还能这么玩，那样的话确实好点
+

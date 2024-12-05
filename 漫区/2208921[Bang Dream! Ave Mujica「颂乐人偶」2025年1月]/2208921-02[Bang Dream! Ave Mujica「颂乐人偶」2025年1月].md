@@ -5634,3 +5634,44 @@ Roselia在意的从来都不是谁比自己强，而是心中的顶点，动画�
 
 哪怕mujica人员配置上可以媲美双R，但多几年的练习、经验和默契是无法弥补的，顶多一句未来可期
 
+
+*****
+
+####  skives  
+##### 1986#       发表于 2024-12-5 15:33
+
+<img src="https://img.saraba1st.com/forum/202412/05/153325ee7jqbqjwffzwfq8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0649.jpeg</strong> (470.66 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-5 15:33 上传
+
+<img src="https://img.saraba1st.com/forum/202412/05/153332eqqvqk0z7iyy60kz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0650.jpeg</strong> (560.83 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-5 15:33 上传
+
+<img src="https://img.saraba1st.com/forum/202412/05/153338mrhhakllre0hsdse.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0651.jpeg</strong> (480.56 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-5 15:33 上传
+
+
+*****
+
+####  狂热飞鸟  
+##### 1987#       发表于 2024-12-5 15:42
+
+母鸡卡的op和ed大概什么时候会放出来?不会要正式播出之后吧
+

@@ -497,3 +497,13 @@ G世紀做成手遊一向都有這類問題
 
 堂堂……复活。从新的pv看参展作品微妙的很丰富，Double Fake也来了，x的杂兵机直接展示了好几款。
 
+
+*****
+
+####  サイトヒメア  
+##### 57#       发表于 2024-12-5 15:39
+
+如果做成手游能让财团把机体出的尽可能多的话，那还是做手游吧<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -5613,3 +5613,24 @@ Roselia在意的从来都不是谁比自己强，而是心中的顶点，动画�
 粉丝不在意那你非要聊这个干什么呢</blockquote>
 那不是前面有人问的吗，咋了这是楼🈲啊
 
+
+*****
+
+####  LeonsCat  
+##### 1984#       发表于 2024-12-5 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66849672&amp;ptid=2208921" target="_blank">rushsong 发表于 2024-12-5 13:44</a>
+
+非引战好奇问一嘴啊，ras粉和roselia粉能接受mujica设定实力和她俩相当或者超越吗
+
+以防大家误解我这里只是 ...</blockquote>
+设定实力无所谓啦，不就是写剧本的加加减减的事情。只要别去碰瓷有自己作品的独立乐队就OK。
+
+
+*****
+
+####  好想看Mujica啊  
+##### 1985#       发表于 2024-12-5 14:54
+
+哪怕mujica人员配置上可以媲美双R，但多几年的练习、经验和默契是无法弥补的，顶多一句未来可期
+

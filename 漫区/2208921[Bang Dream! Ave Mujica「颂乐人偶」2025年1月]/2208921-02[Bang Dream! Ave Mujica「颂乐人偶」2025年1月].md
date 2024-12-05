@@ -5730,3 +5730,18 @@ sound only都没赶上，视频全没了<img src="https://static.saraba1st.com/i
 
 而且比起ras和roselia，mujica还有个突出的点是“渠道”和“手段”。她们有出道就在大场地演出的“渠道”，这种的话应该是对标pp才对，但是赛道又不是特别一样……只能说邦邦在开辟乐队多样性是有一套的
 
+
+*****
+
+####  NODY  
+##### 1993#       发表于 2024-12-5 17:21
+
+剧情里面其实早就提过layer和masking在进ras前就已经上过武道馆了
+
+*****
+
+####  Aendst  
+##### 1994#       发表于 2024-12-5 17:22
+
+池A这居然上了主楼大广告，好大手笔，我还以为只有侧面有呢<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+

@@ -9512,3 +9512,275 @@ GQX的内部驾驶舱，女主驾驶服无头盔配置（有两下子）
 
 想了想 蓝毛该不会就是平行世界卡缪吧 电波✅长得像女人✅和夏亚有关✅
 
+
+*****
+
+####  oi99o  
+##### 960#       发表于 2024-12-5 17:16
+
+草，竟然是简中的“乐队招募”，这到底是怎样的世界观啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  刺客ares  
+##### 961#       发表于 2024-12-5 17:18
+
+<img src="https://img.saraba1st.com/forum/202412/05/164533rhdztgydtt933uh3.jpg" referrerpolicy="no-referrer">
+
+<strong>7145e239f752bcb0681ace13d5dbba5.jpg</strong> (107.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 16:45 上传
+
+女主在大海前奔跑镜头，要么是做梦要么是描述做梦
+
+<img src="https://img.saraba1st.com/forum/202412/05/164616vmzufcp2pzb2vaua.jpg" referrerpolicy="no-referrer">
+
+<strong>7e9a4e2cd06d30b104d242f80d8cf70.jpg</strong> (101.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 16:46 上传
+
+男主在赤高达前，转头对人说话的镜头，
+
+两侧墙壁上布满了和桥下墙同风格的涂鸦，此处应该是他领着女主和阿喵去了他的安全屋
+
+头顶机械螃蟹上方有开盖，里面可能存放着他涂鸦用的画具
+
+赤高达腰部设计和图透机设有一定差距
+
+<img src="https://img.saraba1st.com/forum/202412/05/164958rpmrr3anpmp8hcm7.jpg" referrerpolicy="no-referrer">
+
+<strong>8145249c4cef307b6417b9bfd1e81d0.jpg</strong> (201.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 16:49 上传
+
+<img src="https://img.saraba1st.com/forum/202412/05/165010fyni8sypgpy5s1yt.jpg" referrerpolicy="no-referrer">
+
+<strong>e332a68b10645f4c25208327a68e423.jpg</strong> (216.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 16:50 上传
+
+GQX开眼出击镜头，红色天线末端的插入栓很有EVA的风格
+
+根据黄色金属上的锈迹，这个镜头应该是第一次2V2竞技，从等候区出战的镜头
+
+<img src="https://img.saraba1st.com/forum/202412/05/165150rvflkfs8eolnv8ns.jpg" referrerpolicy="no-referrer">
+
+<strong>3dab74905045da077769938278d5dde.jpg</strong> (113.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 16:51 上传
+
+女主心情极差的镜头，地点在殖民卫星户外，注意背后的黄色气体
+
+耳坠上的红色月牙耳钉可爱捏
+
+这个镜头后女主立刻转身跑走，应该是去上机了
+
+<img src="https://img.saraba1st.com/forum/202412/05/165325tbtrxcqt5b0aso0r.jpg" referrerpolicy="no-referrer">
+
+<strong>fac4d67cb7c14d2340a0f0fe121aa41.jpg</strong> (111.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 16:53 上传
+
+GQX出击到宇宙空间的镜头，紧接着上一个女主转身跑走，可以认为这段剧情是连贯的
+
+女主在黄色烟雾镜头后马上选择了上机出动
+
+注意GQX右手握着的光束步枪
+
+<img src="https://img.saraba1st.com/forum/202412/05/165452ghedjofbmhdjwrir.jpg" referrerpolicy="no-referrer">
+
+<strong>6dd2ed30f3305285e1307d76a55b3a0.jpg</strong> (73.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 16:54 上传
+
+<img src="https://img.saraba1st.com/forum/202412/05/165457ob2hztb5izq5huw6.jpg" referrerpolicy="no-referrer">
+
+<strong>4edd6264df09ef7ac99457505fef9d6.jpg</strong> (197.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 16:54 上传
+
+<img src="https://img.saraba1st.com/forum/202412/05/165502ja4mq5444zhelzfa.jpg" referrerpolicy="no-referrer">
+
+<strong>b74f22320fd2a5b0c8ad023e01dad03.jpg</strong> (416.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 16:55 上传
+
+一组很有K社风格的旋转空中战斗镜头，女主在空中抓住浮游炮，并用其近战击毁了另一个
+
+有意思的是，艾美号同款夏亚涂装浮游炮有好几次已经对准了GQX，却没有开火
+
+反而是选择拉近距离去撞GQX（图二）
+
+女主出击时握在手上的光束步枪已经不知所踪
+
+<img src="https://img.saraba1st.com/forum/202412/05/165855ncxlcc4vv7c17s7c.jpg" referrerpolicy="no-referrer">
+
+<strong>50edcc6528cb50cc3c16aef4fdbc40b.jpg</strong> (363.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 16:58 上传
+
+转场，CLAN POME RANIANS，一个很明显的组织名称
+
+黄色底色，大概率是女主所属黑拳组织的名称，与前面出击时的生锈黄色兽笼对应
+
+<img src="https://img.saraba1st.com/forum/202412/05/170013cggnk5g208k48z20.jpg" referrerpolicy="no-referrer">
+
+<strong>fadb8983c57d832526ce9d2681c26fd.jpg</strong> (156.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 17:00 上传
+
+<img src="https://img.saraba1st.com/forum/202412/05/170137lpz5hzmsbsdbg8sh.png" referrerpolicy="no-referrer">
+
+<strong>1733388327450.png</strong> (57.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 17:01 上传
+
+女主在MS手臂上奔跑的镜头，此处注意这个MS的手臂外观，这台MS不是GQX
+
+关节设计与GQX完全不同
+
+<img src="https://img.saraba1st.com/forum/202412/05/170308zq5y6q38rc1dtxyr.jpg" referrerpolicy="no-referrer">
+
+<strong>d4a8698bae942f5dd1ca1fcc91c8467.jpg</strong> (196.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 17:03 上传
+
+<img src="https://img.saraba1st.com/forum/202412/05/170431tacrooz3fvo7q4kd.jpg" referrerpolicy="no-referrer">
+
+<strong>f0c36bfe97afa5ce1fd1e177fe8646a.jpg</strong> (241.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 17:04 上传
+
+阿sir扎古从天而降，注意机体背后的燃料罐推进器，和下方升起的黄色烟雾
+
+推进器表示扎古之前与某机体在重力环境与某机体进行了空中追逐
+
+降落在居民区，转身的同时破坏了电线杆（经典痞子私货电线杆），表示吉翁治下的军警并不在乎人命
+
+对吉翁进行了明褒按贬
+
+这个镜头发生在女主跑去上机的镜头之前
+
+<img src="https://img.saraba1st.com/forum/202412/05/170747c6e6z64o2o60t04n.jpg" referrerpolicy="no-referrer">
+
+<strong>bf52ee6e477cc465d53fac7cdb69d9d.jpg</strong> (210.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 17:07 上传
+
+警察扎古正面照，还得是实体弹啊，不是实体弹没那味
+
+肩膀上9.21应该是某个致敬日期吧？
+
+<img src="https://img.saraba1st.com/forum/202412/05/170854nl8woxslczsfwxo8.jpg" referrerpolicy="no-referrer">
+
+<strong>4e2a578b8336f7dd33bc703d8f889bf.jpg</strong> (159.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 17:08 上传
+
+GQX近战武装被实体弹压制，可以认为和之前扎古开枪的镜头是同一组
+
+热能斧可能是击败了一台警察扎古才刚夺来的，出击镜头并没有看到携带
+
+<img src="https://img.saraba1st.com/forum/202412/05/171018m5bbed5ecsbuoog3.jpg" referrerpolicy="no-referrer">
+
+<strong>10585883f92b94e829dc228c274d7c4.jpg</strong> (135.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 17:10 上传
+
+女主在生死边缘的实战中经典脑门过电，表明了她NT的身份
+
+到这里虽然没明说，但UC平行世界的设定已经藏不住了
+
+同时集齐同款殖民卫星，同款经典扎古，同款瘤子浮游炮，同款脑门过电，不是UC已经很难收场了
+
+<img src="https://img.saraba1st.com/forum/202412/05/171218jz6jtj66lpvwnv5w.jpg" referrerpolicy="no-referrer">
+
+<strong>26299e20f3db499d70386f165639ec8.jpg</strong> (268.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 17:12 上传
+
+<img src="https://img.saraba1st.com/forum/202412/05/171222ov0tovfbnmfovvvf.jpg" referrerpolicy="no-referrer">
+
+<strong>7f979065d5cee0138dbb631cba1843b.jpg</strong> (254.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 17:12 上传
+
+经典男女主并肩作战镜头，看黑白速度线可以视为同一组
+
+女主穿着驾驶服，男主还是修理工似的那一身，这个镜头还不一定是对战警察扎古
+
+有可能是前面穿好作战服去打黑拳，二人并肩作战的内容
+
+为什么这么说？因为
+
+<img src="https://img.saraba1st.com/forum/202412/05/171624aii449szi3fl9f33.jpg" referrerpolicy="no-referrer">
+
+<strong>f0ddace418cc78ba67a283a2937bcbb.jpg</strong> (296.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 17:16 上传
+
+<img src="https://img.saraba1st.com/forum/202412/05/171423hhyfuyfyyhfe4y4v.jpg" referrerpolicy="no-referrer">
+
+<strong>3f56bc166c233453e020af2b61a48ea.jpg</strong> (229.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 17:14 上传
+
+这里女主抓住钢缆大回旋，单独接了一个top经典大喊大叫镜头
+
+身上不是作战服，这个大概率才是紧急上机，来不及穿作战服就去和警察扎古作战的镜头
+
+<img src="https://img.saraba1st.com/forum/202412/05/171709ltvt4b4mmzmbcmj0.jpg" referrerpolicy="no-referrer">
+
+<strong>b7417c35dd9c3f148b00afdbbd0350a.jpg</strong> (86.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 17:17 上传
+
+然后是本作logo，可以看出字母边缘有风格化涂鸦的墨点痕迹
+
+只能说涂鸦还真要作为本作一个重要线索了
+

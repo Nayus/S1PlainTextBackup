@@ -10093,3 +10093,16 @@ genshin都还没憋出来，憋高达得憋几年
 水魔暴死不暴死都和GQX一点关系都没有
 因为这是Khara的敢达，单单カラー这三个平假名就足够了
 
+
+*****
+
+####  岸浪白野  
+##### 987#       发表于 2024-12-5 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66851919&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2024-12-5 17:57</a>
+
+而且这个官网还在藏，连真正的简介都不愿意放上去。也不知道有啥好瞒着的。不会真的想搞什么，诱导观众以为 ...</blockquote>
+你这不已经全说出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+又清新和潮以为又是独立世界观的作品，然后让日本年轻人知道其实是UC 0085
+

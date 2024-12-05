@@ -5761,3 +5761,26 @@ mujica的祥子被蝶的live感动而组建乐队（虽然是ccc）
 
 我知道有的粉丝喜欢车强度话题，但是公共场合这种话题是很容易引战的，毫无必要
 
+
+*****
+
+####  rikaren  
+##### 1996#       发表于 2024-12-5 18:18
+
+如果是因为强度而粉某个乐队，那到底粉了个什么？这种东西不就是编剧嘴皮子一碰就能改变的事情吗？
+
+*****
+
+####  哈曼的YY  
+##### 1997#       发表于 2024-12-5 18:18
+
+<img src="https://img.saraba1st.com/forum/202412/05/181832rgbxr55x35a60r0b.jpg" referrerpolicy="no-referrer">
+
+<strong>lsQpekg-1239XjT3cS1j0-297.jpg</strong> (1.85 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 18:18 上传
+
+https://bbs.nga.cn/read.php?pid=798275263&amp;opt=128
+

@@ -582,3 +582,15 @@ ice不用说中文都变回人形了，侧面解释钓鱼佬为啥离婚
 
 —— 来自 vivo V2183A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  束意行气  
+##### 184#       发表于 2024-12-6 00:56
+
+<blockquote>rushsong 发表于 2024-12-6 00:53
+男主病是假的在我这里要大减分，不太喜欢这种“噱头”
+
+—— 来自 vivo V2183A, Android 14上的 S1Next-鹅 ...</blockquote>
+是的，希望能看到更好的处理方法吧
+

@@ -252,3 +252,32 @@
 
 全国流通专辑，sololive，holoGTA，mikorone，基本上观众想要的、自己想做的事全部都实现了
 
+
+*****
+
+####  holoan  
+##### 10384#         楼主| 发表于 2024-12-5 22:17
+
+<img src="https://img.saraba1st.com/forum/202412/05/221648lcxkrc7uerrj2zkm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (40.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 22:16 上传
+
+还是那句老话，库存严重不足
+
+*****
+
+####  holoan  
+##### 10385#         楼主| 发表于 2024-12-5 23:16
+
+<img src="https://img.saraba1st.com/forum/202412/05/231653e63wnigin6nnwnj5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 23:16 上传
+

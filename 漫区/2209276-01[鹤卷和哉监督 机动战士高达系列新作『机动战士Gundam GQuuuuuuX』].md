@@ -10644,3 +10644,23 @@ PsycoFrame就是集成到骨架里的PsycoCommunicator吧
 
 — from Sony XQ-DQ72, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
 
+
+*****
+
+####  创始’’’天翔  
+##### 1038#       发表于 2024-12-5 23:07
+
+<blockquote>duo_wolf 发表于 2024-12-5 23:05
+突然想到，这里的夏亚会不会是真的夏亚，没被卡斯帕尔干掉顶替，所以一切的发展才会完全不一样
+
+— from So ...</blockquote>
+这又不是GTO，哪来的真夏亚
+
+<img src="https://img.saraba1st.com/forum/202412/05/230756hub9hwbw4mmuwahu.png" referrerpolicy="no-referrer">
+
+<strong>f5b506122cc2badbedd29cc13a7883c017bedf30a8e0a501b953e3bcccd448c1.0.PNG</strong> (412 Bytes, 下载次数: 0)
+
+下载附件
+
+2024-12-5 23:07 上传
+

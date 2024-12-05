@@ -660,3 +660,22 @@ illustriousXL完全比不了，细节磨了磨而 ...</blockquote>
 
 不过现代人不能和公元前人相提并论。
 
+
+*****
+
+####  gpx234mqx  
+##### 63#       发表于 2024-12-5 08:14
+
+<blockquote>全世界失恋 发表于 2024-12-5 07:36
+那么，科学史上有没有类似破坏金主赞助的其他人的实验以便自己拿到更多资源然后头像还能挂在墙上的人呢，别 ...</blockquote>
+可以破坏其他人啊
+
+你看爱迪生
+
+*****
+
+####  名居守  
+##### 64#       发表于 2024-12-5 08:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">为什么我第一时间想到了lk99
+

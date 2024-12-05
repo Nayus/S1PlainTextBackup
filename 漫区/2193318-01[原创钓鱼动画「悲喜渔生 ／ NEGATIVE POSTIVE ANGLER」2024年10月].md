@@ -525,3 +525,33 @@ ice不用说中文都变回人形了，侧面解释钓鱼佬为啥离婚
 
 后半紧张的氛围塑造很棒，终于要讲主线矛盾了，男主的病和男二的过去一起引爆，不过男主的存活也基本是稳了，主要是男主可以变得坦然接受死亡，但真要男二接受第二次身边人因病离世吗，他没有想象中那么脆弱？
 
+
+*****
+
+####  Tilocal  
+##### 181#       发表于 2024-12-5 22:27
+
+<img src="https://img.saraba1st.com/forum/202412/05/222018mvw16gzx26dxzf43.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1494.jpeg</strong> (281.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 22:20 上传
+
+<img src="https://img.saraba1st.com/forum/202412/05/222019zxzcwiptixpzhj0w.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1495.jpeg</strong> (112.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 22:20 上传
+
+作为前江东区居民，只能说这个分数制作组甚至已经美化过一点了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+所以看到预告才疑惑为啥店长住院隔壁筑地那么大的医院不去要特地开车几公里跑来这里
+
+不过打1分的主要还是新冠期间医疗压力过大的医闹导致的
+
+另外男主CV岩中睦树的演技只能说这么多BL抓马没白配<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+

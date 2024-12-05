@@ -9464,3 +9464,26 @@ GQX的内部驾驶舱，女主驾驶服无头盔配置（有两下子）
 
 作为参考，和马夫蒂标记同一个设计语言，大概率是吉翁某派系的精神继承者
 
+
+*****
+
+####  aptx8285144  
+##### 955#       发表于 2024-12-5 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66850020&amp;ptid=2209276" target="_blank">最终兵器狂战 发表于 2024-12-5 14:24</a>
+
+啊？这还是UC世界观？？</blockquote>
+据说还是鸡瘟赢了的平行世界<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灵魂收割机  
+##### 956#       发表于 2024-12-5 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66851204&amp;ptid=2209276" target="_blank">穿越护城河 发表于 2024-12-5 16:42</a>
+
+不要光拉片，看最后一张图上的广告是“乐队招募”
+
+所以屋里人是自己人，属于太空大篷车上的朋友，在这里 ...</blockquote>
+“乐队招募”还是简中写法<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+

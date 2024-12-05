@@ -10227,3 +10227,14 @@ genshin都还没憋出来，憋高达得憋几年
 
 2024-12-5 18:59 上传
 
+
+*****
+
+####  11116等  
+##### 995#       发表于 2024-12-5 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66846463&amp;ptid=2209276" target="_blank">D860 发表于 2024-12-5 02:23</a>
+
+最离谱的不是鸭子偷了高达还是被联邦压到了所罗门，最后开神棍力毁灭半个所罗门后鸡窝估计也没打回地球么。 ...</blockquote>
+搞不好鸭子是在所罗门把联邦主力和zion一起端了，毕竟他跟扎比家有仇，现在是联邦龟缩地球，殖民卫星自治
+

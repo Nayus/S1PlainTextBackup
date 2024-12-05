@@ -9047,3 +9047,28 @@ gonzo没似啊，变成ip授权公司了，想做的都可以找他要</blockquo
 
 艹……皮套人已经上线了，你们水魔楼玩得还不够是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  patema  
+##### 945#       发表于 2024-12-5 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66850178&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2024-12-5 14:44</a>
+
+忽略掉不合理的部分一起嗨呗
+
+跟你说这个事情是这样的：</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这片上马的时候还没水魔呢，这是一个18年就开始的项目
+
+*****
+
+####  猪突猛进R  
+##### 946#       发表于 2024-12-5 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66850694&amp;ptid=2209276" target="_blank">patema 发表于 2024-12-5 15:44</a>
+
+这片上马的时候还没水魔呢，这是一个18年就开始的项目</blockquote>
+没出来时随时可以胎死腹中啊，就像高达里的ZII一样，一直说只是废案没成品，但后来还是拿出来了。
+
+假如水魔在商业上暴死，你看他们敢不敢继续推进。
+

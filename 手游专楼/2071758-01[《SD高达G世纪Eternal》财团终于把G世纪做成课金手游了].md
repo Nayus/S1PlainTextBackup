@@ -507,3 +507,11 @@ G世紀做成手遊一向都有這類問題
 
 —— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  HEERO.W  
+##### 58#       发表于 2024-12-5 15:50
+
+开发树和氪金抽卡手游怎么兼容？
+

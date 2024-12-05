@@ -5364,3 +5364,68 @@ wsd什么时候才能意识到 比起四种不同工艺的徽章 没有面具的
 
 不然摘了面具继续演奏就很像剧透了后续内容<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 1963#       发表于 2024-12-5 09:38
+
+能不能以后官图也都摘一下
+
+live顺序定了吗，萝开场，live本番，然后动画？
+
+如果动画在live前播的话有可能是可以全程摘面具的
+
+*****
+
+####  御幸一也  
+##### 1964#       发表于 2024-12-5 09:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">話說4th上會是哪時播第1話，沒怎麼看過LIVE裡播動畫的情況……
+
+開場前？安可前？結束後？
+
+
+*****
+
+####  PDQ4  
+##### 1965#       发表于 2024-12-5 09:43
+
+ 本帖最后由 PDQ4 于 2024-12-5 09:47 编辑 
+
+又看了一遍枪版，摘了面具以后还是有mc的，排排站说话，估计就直接接正常live了，第二集大概开场就是幕后喵梦为了热度爆炸笑开花
+
+复刻第一集的话这个mc是不是也该复刻一下<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+比如最后动画看完上来直接无面具mc+安可
+
+*****
+
+####  PDQ4  
+##### 1966#       发表于 2024-12-5 09:45
+
+看到p图我只能说要触发我去年的ptsd了
+当时就因为80殴打睦的图雷上了某些东西和人，希望明年不要复刻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 1967#       发表于 2024-12-5 09:46
+
+没有说顺序
+
+其实不应该说成是开场嘉宾，因为萝farbe的时候给鸡狗的介绍直接是O.A（opeing act）
+
+这次写的是guest
+
+所以顺序也不好猜，只能说可能会参考萝的角色不可崩吧
+
+IMG_5973(20241205-094424).PNG
+(1.02 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 09:46 上传
+
+<img src="https://img.saraba1st.com/forum/202412/05/094622gocs1fm5fch4nz4c.png" referrerpolicy="no-referrer">
+

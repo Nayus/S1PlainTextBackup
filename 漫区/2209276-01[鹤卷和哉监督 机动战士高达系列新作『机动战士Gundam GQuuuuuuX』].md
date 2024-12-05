@@ -8314,3 +8314,45 @@ G-Q6uX越看越顺眼了，坏了<img src="https://static.saraba1st.com/image/sm
 水魔之前的百合机战好像人全没了的不少吧？</blockquote>
 有吗，倒不如说百合机战以前本身就不是什么主流题材，神无月巫女那时候的ACG受众的调性肯定和今天早不一样了，接下来近几年的像什么满月之战感觉也是NBCS的那种
 
+
+*****
+
+####  PascalLefèvre  
+##### 879#       发表于 2024-12-5 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66847375&amp;ptid=2209276" target="_blank">创始’’’天翔 发表于 2024-12-5 09:35</a>
+
+革命机全程战斗爽</blockquote>
+所以有那么多人给革命机平 反<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+*****
+
+####  HazukiShion  
+##### 880#       发表于 2024-12-5 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66847396&amp;ptid=2209276" target="_blank">岸波白野 发表于 2024-12-5 09:37</a>
+
+有吗，倒不如说百合机战以前本身就不是什么主流题材，神无月巫女那时候的ACG受众的调性肯定和今天早不一 ...</blockquote>
+现在也不算主流题材吧，下一部还不知道要等多久呢。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qsscwddv1  
+##### 881#       发表于 2024-12-5 09:39
+
+ 本帖最后由 qsscwddv1 于 2024-12-5 09:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66847274&amp;ptid=2209276" target="_blank">岸波白野 发表于 2024-12-5 09:23</a>
+
+小年轻来看百合贴贴当挑染嬷嬷包饺子不说戏份也得留足，至于老高达手艺味东西当然不用弄得这么明白，不过 ...</blockquote>
+想想那个原天宇人大叔的设定，原天宇人，集团旗下私军军人，被地球人报复后死孩子，结果却选择脱离天宇势力加入地球反抗势力，实力很强。这是一眼就是会有一长段回忆杀、会和天宇部队有恩怨情仇的复杂人设
+
+结果告诉你有这么个人后直接没戏份了，逗你玩的
+
+*****
+
+####  七层嘉影  
+##### 882#       发表于 2024-12-5 09:41
+
+外面全都骂的飞起，首先这个故事背景是不是真的还不清楚，另外看PV这个质量应该还是可以的，有的看就不错了，机战看一年少一年，以后就没人做了
+

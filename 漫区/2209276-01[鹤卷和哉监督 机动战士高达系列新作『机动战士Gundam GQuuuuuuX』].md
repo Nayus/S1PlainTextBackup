@@ -8650,3 +8650,24 @@ G-Q6uX越看越顺眼了，坏了<img src="https://static.saraba1st.com/image/sm
 
 骡子不知死活，高达还被抢了，这联邦还能打到所罗门，这不是吹联邦吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  木消灭  
+##### 910#       发表于 2024-12-5 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66848153&amp;ptid=2209276" target="_blank">Piano-Forest 发表于 2024-12-5 11:57</a>
+
+‪山下育人：
+
+机动战士Gundam GQuuuuuuX是鹤卷导演的作品。一切都是鹤卷导演来决定。庵野或许会在旁边做点 ...</blockquote>
+哥、我也是揣测山下的语气、<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JTMAKER  
+##### 911#       发表于 2024-12-5 11:54
+
+怕不是飞跃巅峰三
+

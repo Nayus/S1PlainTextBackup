@@ -5797,3 +5797,29 @@ https://bbs.nga.cn/read.php?pid=798275263&amp;opt=128
 以防大家误解我这里只是 ...</blockquote>
 三个时间段的银河战舰根本没冲突的
 
+
+*****
+
+####  3353764798  
+##### 1999#       发表于 2024-12-5 20:06
+
+冠军粉真的是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  九陌狂游  
+##### 2000#       发表于 2024-12-5 20:07
+
+这就是我喜欢你鸡天天演舞台剧的原因，可以避免冠军粉斗虫<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  akiomn  
+##### 2001#       发表于 2024-12-5 20:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png">提下op，盗摄的音质一坨，不过我觉得鼓点挺密的
+换以前还觉得大喵别似，现在只能说键帽好似喵，最支持祥子狠狠上强度的一集
+

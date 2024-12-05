@@ -10722,3 +10722,26 @@ b1f036d3d539b600a01fe296af50352ac75cb7f9.jpg
 — from So ...</blockquote>
 别把gto那安贞私货当真阿，虽然新作tv也是个魔改的不知道参考的0079还是gto甚至是雷霆宙域<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  中野梓  
+##### 1042#       发表于 2024-12-5 23:45
+
+G复国之后再没在高达TV作品上花过一分钱，还是等闪哈2吧
+
+*****
+
+####  Piano-Forest  
+##### 1043#         楼主| 发表于 2024-12-5 23:45
+
+[https://x.com/muu_excelsior/status/1864393660558614773](https://x.com/muu_excelsior/status/1864393660558614773)
+<img src="https://p.sda1.dev/20/4a79d93b874d86c1c3b390c33e6d903d/20241205_234248.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/506236ed869191e6ee9b32e784c6ca4f/20241205_234251.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/eggtempest/status/1864419358967300564](https://x.com/eggtempest/status/1864419358967300564)
+<img src="https://p.sda1.dev/20/25adcfdbb3cfe92d8b0660fd211519a1/20241205_234309.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/guangtou100plus/status/1864335163909656586](https://x.com/guangtou100plus/status/1864335163909656586)
+<img src="https://p.sda1.dev/20/d89f77fbc03b3059e98685dc1f9f14d0/20241205_234314.jpg" referrerpolicy="no-referrer">
+

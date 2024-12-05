@@ -5969,3 +5969,19 @@ op完全是我喜欢的风格，好急啊，快点到一月吧<img src="https://
 
 睦线总该让森美奈美露脸了，go篇就提到了，鸡篇连一直都藏着故意不提的祥妈都露脸了，睦妈美理由不露吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lolisk  
+##### 2013#       发表于 2024-12-5 23:42
+
+<img src="https://img.saraba1st.com/forum/202412/05/233949gwewkbfa8kpzwawb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3531.jpeg</strong> (13.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 23:39 上传
+
+这里有人提到过回覆「主唱太拼命了」的头像和初华和灯初遇时的戴的黑帽子对上了吗？
+

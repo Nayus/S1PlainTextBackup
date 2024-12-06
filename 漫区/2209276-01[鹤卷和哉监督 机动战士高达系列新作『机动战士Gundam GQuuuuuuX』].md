@@ -11651,3 +11651,23 @@ pv里的镜头越看越top2<img src="https://static.saraba1st.com/image/smiley/f
 
 颜色乱七八糟的人设风格也有点像
 
+
+*****
+
+####  gundammarkⅡ  
+##### 1133#       发表于 2024-12-7 00:41
+
+ 本帖最后由 gundammarkⅡ 于 2024-12-7 00:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66861494&amp;ptid=2209276" target="_blank">LuciferMustDie 发表于 2024-12-6 19:55</a>
+国模：横看竖看都是高达元素合成兽，但就可以叫原创
+
+万代：坐看右看都没点高达样儿，偏就叫高达了咋地吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实按目前公布的设定、周边产品包装或者宣发文案上，涉及MS名字的地方，并没有带ガンダム字眼，所以起码初期这台GQuuuuuuX/ジークアクス都不属于高达型的MS
+
+<img src="https://p.sda1.dev/20/24ad2c4f47bcd0a8218019f549745d70/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/eeaf8aab688e8e9fd83e885e272f609a/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/a2f4d6bda39afde06c56e788826bf560/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/21ec745d87caf5c1d72443b4bdc05b9b/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/7180edf71376aa81b1f190a8651f2584/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/92af2aa2247c88ee6e1e5def12ea7ec4/image.jpg" referrerpolicy="no-referrer">
+

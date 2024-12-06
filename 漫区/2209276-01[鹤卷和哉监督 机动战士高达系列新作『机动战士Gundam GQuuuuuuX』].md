@@ -11432,3 +11432,48 @@ pv里的镜头越看越top2<img src="https://static.saraba1st.com/image/smiley/f
 
 至于女二，感觉预告PV应该是藏了她不少戏份的，没上机部分她剧情肯定不少，豚豚这不搏一下？少革正牌编剧可在阵中哎？
 
+
+*****
+
+####  Wondering  
+##### 1113#       发表于 2024-12-6 22:11
+
+ 本帖最后由 Wondering 于 2024-12-6 22:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66862508&amp;ptid=2209276" target="_blank">刺客ares 发表于 2024-12-6 22:03</a>
+
+这作男主给我一种把三明和四号揉一起的感觉，还混了点渚薰
+
+但是找了关系户CV，戏份应该不会太少吧？不然费 ...</blockquote>
+少女革命本来就是几原邦彦风格和特点最浓厚，包括榎户洋司和齐藤千穗等ip主要人员其实都没有多少话语权的作品，从后面的采访也能看出来几原的意见影响力有多大，与其相信做成少革第二不如相信做成地球队长第二<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  双菜  
+##### 1114#       发表于 2024-12-6 22:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">豚豚说汤里下了毒，不敢喝
+
+*****
+
+####  滴虫研究学家  
+##### 1115#       发表于 2024-12-6 22:14
+
+本来俄乌、中东都是很好的素材，问题是啊，就现在的玻璃心网民你不管怎么拍只要是认真在写ZZ，都会觉得你是不是在阴阳怪气什么，连吉恩胜利的if线都能让贴吧和童厕的⏰破防，那你说能怎么办嘛<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刺客ares  
+##### 1116#       发表于 2024-12-6 22:15
+
+<img src="https://img.saraba1st.com/forum/202412/06/221402fyqrcd32irycddj3.png" referrerpolicy="no-referrer">
+
+<strong>捕获.PNG</strong> (3.26 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-6 22:14 上传
+
+你别说，你还真别说，这个阵容把熊光请来tie的可能性是有的吧
+
+这不比什么Y姓组合强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

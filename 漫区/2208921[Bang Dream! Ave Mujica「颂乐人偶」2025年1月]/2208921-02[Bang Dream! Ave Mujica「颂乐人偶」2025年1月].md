@@ -8245,3 +8245,112 @@ crychic结束和不再结成crychic对于祥子可能是两个概念。灯soyo�
 
 有没有可能，我是在说家庭和音乐绑在一起是祥子不成熟的表现，特地提到双亲健在的时候都支持祥子搞音乐本来就差不多明示了，目前剧情上对祥子的所有拷打环节都是在强调过去已经不可挽回，一个不念旧的人怎么可能被拿这些拷打？正因为现在的祥子在音乐上寄托着不成熟的愿望所以队伍才会出事，所以才要让队友轮流拷打她真正向前走，等她真的向前走了她的音乐才能解决问题，你鸡的悬念只有到达终点前队友们能整什么活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  结衣小比取  
+##### 2211#       发表于 2024-12-6 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66861618&amp;ptid=2208921" target="_blank">仓鼠胖太 发表于 2024-12-6 20:09</a>
+
+祥子在退团那天基本是故意扮黑脸，实则还是很在意c团，那在羽丘第二次祥子碰到爱音主动问起组团进展，然后 ...</blockquote>
+可以看看这个视频的解析，略作参考
+[https://www.bilibili.com/video/BV1UC4y1A72Y/](https://www.bilibili.com/video/BV1UC4y1A72Y/)
+
+从00:00看到06:45就可以了
+
+*****
+
+####  NODY  
+##### 2212#       发表于 2024-12-6 22:06
+
+灯倒数第二入团这个其实动画完结后就有人发现了（2023年10月出的视频），新入坑的不清楚，但老团一路看过来的对月之森音乐祭是有概念的，只不过传得不广而已
+
+<img src="https://img.saraba1st.com/forum/202412/06/220651omidw19ky7iyk47e.png" referrerpolicy="no-referrer">
+
+<strong>无标题00.png</strong> (93.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-6 22:06 上传
+
+*****
+
+####  PDQ4  
+##### 2213#       发表于 2024-12-6 22:07
+
+ 本帖最后由 PDQ4 于 2024-12-6 22:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66862491&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2024-12-6 22:01</a>
+
+你觉得Mygo第3话和第9话灯和素的回忆里的那个“白祥”以及Mujica第一话前半段里组建C团时期的祥子的状态 ...</blockquote>
+所以呢，有没有可能这是要靠时间的功劳，你觉得一个月够治愈失去母亲的伤痛？
+
+就和爽祥cp如果要成，需要祥子不出问题，靠着时间细水长流去培养一样。
+
+爹出事了以后的颓废就是在反复撕开她母亲逝去后家庭破碎的伤口，很难理解吗
+
+她如果放下了你告诉我，她第一集为什么用妈妈来说爹，她不是放下母亲去世了吗
+
+为什么不能单纯的斥责爹不争气，而要用逝去的人刺激？
+
+独角兽基本没有废台词，你觉得没有意义就去反刍台词，为什么要这么写，而不是一味觉得漏油想的没有意义
+
+祥母在第一集的占比，我可以笃定祥子绝对还没有从丧母的问题里走出来
+
+*****
+
+####  Aendst  
+##### 2214#       发表于 2024-12-6 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66862518&amp;ptid=2208921" target="_blank">NODY 发表于 2024-12-6 22:06</a>
+
+灯倒数第二入团这个其实动画完结后就有人发现了（2023年10月出的视频），新入坑的不清楚，但老团一路看过来 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">之前只是调侃祥子真爱蝶，现在看来蝶对祥子真的相当重要
+
+不知道什么时候才能再看到蝶和mujica互动
+
+*****
+
+####  仓鼠胖太  
+##### 2215#       发表于 2024-12-6 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66862110&amp;ptid=2208921" target="_blank">红楼飞雪 发表于 2024-12-6 21:09</a>
+第一集祥子得到的信息是爱音要组乐队+很可能找的成员是灯，她对灯能有下一个乐队这件事应该是祝福的
+
+但是 ...</blockquote>
+祥子那会儿不知道素世拉过睦，应该是直到第八集素世自己说出来才知道，所以那会儿有一个向睦的疑问
+
+
+*****
+
+####  红楼飞雪  
+##### 2216#       发表于 2024-12-6 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66862540&amp;ptid=2208921" target="_blank">仓鼠胖太 发表于 2024-12-6 22:09</a>
+
+祥子那会儿不知道素世拉过睦，应该是直到第八集素世自己说出来才知道，所以那会儿有一个向睦的疑问 ...</blockquote>
+哥们儿你看一下第六集14分钟的位置
+
+睦说“soyo也有邀请我加入（她的乐队）”
+
+正是说了这句话祥子的反应才是“这是在报复我吗”
+
+*****
+
+####  Aendst  
+##### 2217#       发表于 2024-12-6 22:15
+
+ 本帖最后由 Aendst 于 2024-12-6 22:16 编辑 
+
+怎么做到看起来根本没怎么看过动画到处发搞笑发言根本没人care还要继续丢人的，是觉得楼里讨论太晦涩难懂了一定要搞笑一点调节一下气氛吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+mygo ep06 13:58~14:01 睦：爽世正在组乐队，也有邀请我加入
+
+ep08疑问的是爽世想复活crychic，睦是不是也想复活crychic
+
+哦顺便帮没参加过之前讨论的漏油提醒一下
+
+这位大哥觉得祥子是欠债的当大爷，爽世是追债的当孙子
+
+图一乐，或者善用屏蔽
+

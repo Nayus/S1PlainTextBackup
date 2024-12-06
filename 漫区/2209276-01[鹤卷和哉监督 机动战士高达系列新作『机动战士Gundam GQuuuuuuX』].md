@@ -11247,3 +11247,65 @@ pv里的镜头越看越top2<img src="https://static.saraba1st.com/image/smiley/f
 可俺寻思同样已经坐到姨姥那桌的种在种剧场的加持上好像还能再卖（胶）很多年，这水魔二年胶HG这种基本线 ...</blockquote>
 没有想嘴硬的意思，我觉得水魔本来就是草台班子，后劲怎么样都对得起了。种可不是普通的姨姥，那是中兴之祖的姨姥，我说的姨姥是想要海盗高达那种。
 
+
+*****
+
+####  Wondering  
+##### 1094#       发表于 2024-12-6 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66862175&amp;ptid=2209276" target="_blank">岸波白野 发表于 2024-12-6 21:18</a>
+
+可俺寻思同样已经坐到姨姥那桌的种在种剧场的加持上好像还能再卖（胶）很多年，这水魔二年胶HG这种基本线 ...</blockquote>
+当然毕竟主要目标是afa sg24，这个动漫展只能说整个高达企划都查无此人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸波白野  
+##### 1095#       发表于 2024-12-6 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66862210&amp;ptid=2209276" target="_blank">Wondering 发表于 2024-12-6 21:23</a>
+
+有趣的事情来了，我上次去新加坡hakken！！！时，的确整个第四层动漫区高达角色里，其他人都没看见，就看 ...</blockquote>
+那希望狸白染有不输各种二油的大量谷柄新绘源源不断地拍我脸上，否则我的确比较难苟同“水魔目前的角色商法后劲依然强劲”，以及“拉新受众仍然对水魔有很强的消费力没有大量流失”这两点
+
+*****
+
+####  Wondering  
+##### 1096#       发表于 2024-12-6 21:28
+
+ 本帖最后由 Wondering 于 2024-12-6 21:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66862248&amp;ptid=2209276" target="_blank">岸波白野 发表于 2024-12-6 21:27</a>
+
+那希望狸白染有不输各种二油的大量谷柄新绘源源不断地拍我脸上，否则我的确比较难苟同“水魔目前的角色商 ...</blockquote>
+不输二游，那笑麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除了初音和holo，以及那几个女性向作品外，有哪个ip配和二游比的吗，角色商法这块你整个高达企划或者说所有机战企划加起来都拍马赶不上
+
+能不能对自己的水平有所认知啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸波白野  
+##### 1097#       发表于 2024-12-6 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66862260&amp;ptid=2209276" target="_blank">Wondering 发表于 2024-12-6 21:28</a>
+
+不输二游，那笑麻了除了初音和holo，以及那几个女性向作品外有任何配和二游比的吗，角色商法这块你整个高 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但我们可以细水长流啊，骡鸭的角色商法蹭着那啥都可以说卖到今天了
+
+
+*****
+
+####  dbyboy  
+##### 1098#       发表于 2024-12-6 21:32
+
+水魔批是真的皮实啊，白河豚能不能滚回你们自己的锁妖塔去
+
+*****
+
+####  Wondering  
+##### 1099#       发表于 2024-12-6 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66862285&amp;ptid=2209276" target="_blank">岸波白野 发表于 2024-12-6 21:31</a>
+
+但我们可以细水长流啊，骡鸭的角色商法蹭着那啥都可以说卖到今天了</blockquote>
+蹭柯南热度那还真还意思说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -8083,3 +8083,36 @@ crychic结束和不再结成crychic对于祥子可能是两个概念。灯soyo�
 2.13祥子因为某些原因回老破小一趟，和爹发生冲突，爹复刻 ...</blockquote>
 话说你们是不是又忘了这是个少女乐队动画了......<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  金钱与民主  
+##### 2198#       发表于 2024-12-6 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66862087&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-6 21:07</a>
+
+我觉得祥子之后的爆点还是会和祥母有关，祥母都给画面了，还有可能是代表祥母遗物的玩偶，祥子应该是还没走 ...</blockquote>
+我觉得第一话祥子父母家庭相关的内容已经把祥子的性格和处境解释得差不多了，再在这个领域上爆没啥意义，至于祥子母亲的画面我觉得仍然只是发挥背景作用，没有啥值得期待会发生点啥的。
+
+*****
+
+####  杂灰  
+##### 2199#       发表于 2024-12-6 21:27
+
+其实就是版本变了，灯的歌词可以拯救丧母的祥子，但无法拯救选择承担起父亲的祥子。父母齐全的家庭是祥子音乐的起点，追求音乐事业本身也是在追逐过去归宿的幻影，因此才和有同样追求的灯产生共鸣，但生活的沉重c团的彻底死亡和祥爹的驱赶彻底驱散了祥的幻想。明白了失去已经无法挽回，祥子用来追逐幻影的音乐也就成了空壳，现在的母鸡卡也就相当于失去了魂，就在这个时机喵梦引爆队内矛盾，就是在告诉观众接下来要拷打祥子想追逐什么样的音乐，未来肉眼可见是降魔国宴<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 2200#       发表于 2024-12-6 21:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">灯的歌词哪里拯救祥子了，组crychic和有春日影之后祥子的状态有变动吗？没有
+
+拯救祥子的是蝶，在看到蝶之前祥子什么状态，在看到蝶后又是什么状态
+
+又是哪来的同样追求的共鸣，不会是想说“想成为人类”是共鸣吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+有没有可能灯视角看到的东西只是她看到的东西，她有滤镜
+
+灯视角下观众甚至会误以为灯是第一个进crychic的，但事实呢？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

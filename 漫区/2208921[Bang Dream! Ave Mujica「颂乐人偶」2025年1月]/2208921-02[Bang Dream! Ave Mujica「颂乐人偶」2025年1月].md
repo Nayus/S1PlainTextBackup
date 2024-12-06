@@ -8877,3 +8877,38 @@ The emotions hidden within these melodies are an essential key to weaving Ave Mu
 
 Oblivionis用键盘编织出精美的旋律，为乐队的声音增添了古典的气息，这些旋律之中隐藏的情感，是塑造ave mujica独特世界观必不可少的关键。
 
+
+*****
+
+####  skives10  
+##### 2259#       发表于 2024-12-7 01:22
+
+初华 灵魂
+睦 基石
+海玲 心跳
+喵梦 活力
+祥子 key
+
+*****
+
+####  千代讴歌  
+##### 2260#       发表于 2024-12-7 01:24
+
+ 本帖最后由 千代讴歌 于 2024-12-7 01:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66863463&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-7 01:22</a>
+初华 灵魂
+睦 基石
+海玲 心跳</blockquote>
+这个key是keyboard，键盘手的意思吧，好像不是那个暗语，我看喵梦那里也是鼓手
+哦，和喵梦那个vibrant对应的是classic(crychic)吧
+
+*****
+
+####  skives10  
+##### 2261#       发表于 2024-12-7 01:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66863476&amp;ptid=2208921" target="_blank">千代讴歌 发表于 2024-12-7 01:24</a>
+这个key是keyboard，键盘手的意思吧，好像不是那个暗语，我看喵梦那里也是鼓手
+哦，和喵梦那个vibrant对 ...</blockquote>
+an essential key嘛 指的这句
+

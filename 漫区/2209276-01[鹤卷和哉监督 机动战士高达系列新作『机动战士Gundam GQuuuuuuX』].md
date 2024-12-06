@@ -11671,3 +11671,38 @@ pv里的镜头越看越top2<img src="https://static.saraba1st.com/image/smiley/f
 <img src="https://p.sda1.dev/20/7180edf71376aa81b1f190a8651f2584/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/20/92af2aa2247c88ee6e1e5def12ea7ec4/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  patema  
+##### 1134#       发表于 2024-12-7 01:18
+
+ 本帖最后由 patema 于 2024-12-7 01:22 编辑 
+
+猜一下时间线和背景设定：
+
+一年战争开始估计差不多，鸭子哪怕毛走了高达鸡瘟该输的还是输了。分歧发生在所罗门战役，塞克谬事故直接来了个0083活动前瞻消灭几乎全部参与作战的联邦军军力（可能就是事故，也有可能是扎比家借机除掉了夏亚和联邦军一石二鸟，也可能是鸭子和扎比家爆了。谁知道）
+
+巨大的损失和非核大规模杀伤性武器的存在可能性导致联邦内部开始混乱，主战派失势，主和派仓促和鸡瘟议和，承认了鸡瘟的独立和对宇宙空间的影响力，鸡瘟获得了政治胜利，联邦放弃大部分宇宙空间的影响力选择龟缩回地球积蓄力量。
+
+部分前线战士不服从这个仓促的和平条约，选择继续和鸡瘟作战，成为了太空中的联邦残党
+
+0083年发生了未知事件，导致鸡瘟建立了对标uc主世界线提坦斯的组织，用于镇压联邦残党和亲联邦的太空殖民地（黑色镇暴扎古)。在镇压的过程中女二成为难民
+
+男主和红高达可能是这个世界观的奥古，主要是对抗鸡瘟和鸡坛子（如果扎比家还在就是对抗扎比家）。鸭子是红高达的机魂，所以红高达是会说话的
+
+阿姆罗估计还活着，靠卖哈罗成为了富有的青年企业家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+打黑拳可能是某种伪装过的机师训练
+
+联邦可能在憋，准备一年战争再开。于0087年第二次联邦鸡瘟战争开打<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Sliurus  
+##### 1135#       发表于 2024-12-7 01:26
+
+男主卡缪说我觉得挺有道理的，如果鸭子被塞进红高达做导师。“我不是夏亚，我现在只是一台刚大木”<img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+万一总帅萝莉控犯了在女主操控下性能进一步开发，男主还能复刻下骡子名台词“我……我才是开高达最好的人<img src="https://static.saraba1st.com/image/smiley/carton2017/022.png" referrerpolicy="no-referrer">”
+

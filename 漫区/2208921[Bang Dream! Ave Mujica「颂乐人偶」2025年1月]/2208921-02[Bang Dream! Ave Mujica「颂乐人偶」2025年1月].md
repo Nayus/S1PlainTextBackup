@@ -8533,3 +8533,68 @@ xx知道了会伤心。这个句式的xx是死者的话其实是很沉重的。
 
 任何增加乐队以外的矛盾并且不以拷打祥子为目的祥爹剧情假想都不可能出现，爹存在的意义只有在鸡团找到团魂后补回c团演出那次的缺席来进一步证明祥子的成长<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  金钱与民主  
+##### 2232#       发表于 2024-12-6 23:07
+
+ 本帖最后由 金钱与民主 于 2024-12-6 23:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66862792&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-6 22:57</a>
+
+看见漏油还补图，给我整无语了，不知道想表达什么
+
+其实祥爹就算颓废了，要把祥子赶出门了，其实骨子里也和 ...</blockquote>
+我只是很好奇为啥你非要觉得在爹摆烂的时候提到过世的妈=自己也没能放下母亲过世，按这个说法那她这辈子都不可能放下。<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 2233#       发表于 2024-12-6 23:08
+
+虽然祥子被牢爹赶走了 
+但牢爹还是不会停止酗酒的
+就像一个定时炸弹一样在赤羽的出租屋里倒计时
+唯一的作用就是炸了或者不被使用
+炸弹本身是不重要的
+
+*****
+
+####  PDQ4  
+##### 2234#       发表于 2024-12-6 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66862778&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2024-12-6 22:54</a>
+
+我的看法：祥子在母亲离世后组建C团等的行为，根本不能叫“逃避母亲去世的伤痛”，逃避是种非常消极的行 ...</blockquote>
+这里用词是我的问题，感谢漏油指正
+
+祥子ccc的行为是在考虑积极向前的，这点我同意你的观点
+
+但是我认为现在的祥子更多的是逃避心理，不愿意面对“自己没有放下母亲已逝”
+
+软弱的自己是没有放下ccc，也是怀念过去美好的家庭（参考小剧场ob小姐的梦境）
+
+ccc时期，是允许她慢慢从这种丧母的伤痛里走出来的，也就是时间去治愈
+
+但是父亲事件发生后，不允许了，父女俩在一起反复折磨
+
+而在mujica时期，祥子决定强行杀死软弱的自己，那自然不会接受自己没放下
+
+但是实际结果就如第一集所示，关键时刻祥子急了嘴里全是母亲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这也就是为什么我认为人偶flag高高立起，祥子逃避就需要再次直面这一伤痛
+
+*****
+
+####  PDQ4  
+##### 2235#       发表于 2024-12-6 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66862840&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2024-12-6 23:07</a>
+
+我只是很好奇为啥你非要觉得在爹摆烂的时候提到过世的妈=自己也没能放下母亲过世，按这个说法那她这辈子都 ...</blockquote>
+我觉得我们聊天出现了误区，我刚刚也回复你了
+
+就是因为她现在没放下，所以我认为之后这个伤口是必须暴露疗法来根绝的
+
+是在推测后续剧情的可能方向<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

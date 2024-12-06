@@ -11130,3 +11130,24 @@ khara那个产能 变下一个f91我信<img src="https://static.saraba1st.com/im
 
 整个故事空白一片能写好才怪
 
+
+*****
+
+####  xwz  
+##### 1082#       发表于 2024-12-6 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66861255&amp;ptid=2209276" target="_blank">线程召唤使 发表于 2024-12-6 19:22</a>
+哪来的上好食材，满屏就4个字又穷又破。</blockquote>
+第0话
+
+—— 来自 Xiaomi 2407FRK8EC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  LuciferMustDie  
+##### 1083#       发表于 2024-12-6 19:55
+
+国模：横看竖看都是高达元素合成兽，但就可以叫原创
+
+万代：坐看右看都没点高达样儿，偏就叫高达了咋地吧
+

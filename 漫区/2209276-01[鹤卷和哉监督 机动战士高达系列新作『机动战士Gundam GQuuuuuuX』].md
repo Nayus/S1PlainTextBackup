@@ -11722,3 +11722,15 @@ pv里的镜头越看越top2<img src="https://static.saraba1st.com/image/smiley/f
 
 警用扎古出来的时候飘出来一个大阪县警没绷住www<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  D860  
+##### 1137#       发表于 2024-12-7 01:48
+
+从女主那台机器的造型颜色和新人类专用机被禁止使用的说法来看。应该可以得出两个结论。
+
+1、掌权的是公国派甚至可能是殖民卫星政府的人，从结果看目前宇宙中新人类仍不是在台面上的概念。
+
+2、女主那台机体很可能是那个世界观对标NT1的MS。那对应0083事件或者说GP系的机体这一次会不会出来。
+

@@ -8925,3 +8925,60 @@ an essential key嘛 指的这句
 哦，和喵梦那个vibrant对 ...</blockquote>
 不是，是下面那个essential key，mujica世界观的关键
 
+
+*****
+
+####  akiomn  
+##### 2263#       发表于 2024-12-7 01:51
+
+年幼祥子发带疑似青色？
+
+EF13EB62-DDB7-43D6-8338-6BEC98B8C486.jpeg
+(45.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 01:51 上传
+
+<img src="https://img.saraba1st.com/forum/202412/07/015122v6s1l7xga6g21sxa.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 2264#       发表于 2024-12-7 01:53
+
+这幼年祥子怎么看着和3D的一样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  椎名真希  
+##### 2265#       发表于 2024-12-7 01:54
+
+还是淡蓝色，和mygo里小时候一样的
+青色是蝴蝶结和拍摄的问题
+
+*****
+
+####  skives10  
+##### 2266#       发表于 2024-12-7 01:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66863599&amp;ptid=2208921" target="_blank">椎名真希 发表于 2024-12-7 01:54</a>
+还是淡蓝色，和mygo里小时候一样的
+青色是蝴蝶结和拍摄的问题</blockquote>
+小小祥是3D的还是2D的啊
+
+*****
+
+####  黑夜落叶秋天  
+##### 2267#       发表于 2024-12-7 01:56
+
+初华:灵魂
+
+睦:基石
+
+海铃:心跳
+
+喵梦:活力
+
+祥子应该是情感吧
+

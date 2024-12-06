@@ -11477,3 +11477,13 @@ pv里的镜头越看越top2<img src="https://static.saraba1st.com/image/smiley/f
 
 这不比什么Y姓组合强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Wondering  
+##### 1117#       发表于 2024-12-6 22:24
+
+ 本帖最后由 Wondering 于 2024-12-6 22:25 编辑 
+
+说实话真不懂尼漏提少革的，这staff唯一能tie上少革的也就榎戸洋司一个人，而榎戸洋司甚至做乙女或轻bl的次数都甚至远远比做百合要多得多，上次可能和百合有点关联的作品还是04年的GB2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

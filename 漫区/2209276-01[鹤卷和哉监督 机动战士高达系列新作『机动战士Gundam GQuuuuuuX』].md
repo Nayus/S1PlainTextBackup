@@ -11309,3 +11309,75 @@ pv里的镜头越看越top2<img src="https://static.saraba1st.com/image/smiley/f
 但我们可以细水长流啊，骡鸭的角色商法蹭着那啥都可以说卖到今天了</blockquote>
 蹭柯南热度那还真还意思说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Chiralium  
+##### 1100#       发表于 2024-12-6 21:38
+
+水魔确实是商业奇迹了，我到现在还想不明白人设不时髦塑造又垃圾的角色的周边为什么卖得出去，这两点总得占一个吧
+
+*****
+
+####  novyDC  
+##### 1101#       发表于 2024-12-6 21:39
+
+等警备扎古模型
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ティグル  
+##### 1102#       发表于 2024-12-6 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66862336&amp;ptid=2209276" target="_blank">Chiralium 发表于 2024-12-6 21:38</a>
+
+水魔确实是商业奇迹了，我到现在还想不明白人设不时髦塑造又垃圾的角色的周边为什么卖得出去，这两点总得占 ...</blockquote>
+懂不懂我们短视频宣发潮玩的含金量啊
+
+*****
+
+####  ティグル  
+##### 1103#       发表于 2024-12-6 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66861972&amp;ptid=2209276" target="_blank">没取名啊 发表于 2024-12-6 20:54</a>
+
+不是说一开始就找的鹤卷吗</blockquote>
+那完犊子了，憋了八年就憋出来个这
+
+不过现在女女关系性确实是最潮最in的，鹤卷好像又跟时代契合上了
+
+
+*****
+
+####  双菜  
+##### 1104#       发表于 2024-12-6 21:43
+
+水魔的胶除了风灵异灵其他的也没有能冒头的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">时尚小垃圾倒是真的多
+
+*****
+
+####  阿姆罗二世  
+##### 1105#       发表于 2024-12-6 21:43
+
+这里是水魔五号楼吗
+
+*****
+
+####  双菜  
+##### 1106#       发表于 2024-12-6 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66862361&amp;ptid=2209276" target="_blank">ティグル 发表于 2024-12-6 21:42</a>
+那完犊子了，憋了八年就憋出来个这
+
+不过现在女女关系性确实是最潮最in的，鹤卷好像又跟时代契合上了 ...</blockquote>
+真卖女女关系性能不能不要PV全是男女主对话<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这样不是直接把看女女关系性的观众吓跑了
+
+*****
+
+####  楠城旧篱  
+##### 1107#       发表于 2024-12-6 21:45
+
+新情报出来之前要一直水魔了吗，不要啊
+

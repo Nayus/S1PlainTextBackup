@@ -11582,3 +11582,11 @@ pv里的镜头越看越top2<img src="https://static.saraba1st.com/image/smiley/f
 不过今川或者说G没资源是真的
 外传这套本子出三套OVA都绰绰有余，公开的时候也说了G的新作企划一直不给批，明明GB也好GBT也好GDRR也好都蹭G蹭得那么开心
 
+
+*****
+
+####  PascalLefèvre  
+##### 1126#       发表于 2024-12-6 23:31
+
+不要再水魔了不要再水魔了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

@@ -11657,3 +11657,15 @@ snp真惨，凭什么我那片区只能进一个<img src="https://static.saraba1
 
 这周不会是没以第一名进姿态打东京区赛，咱们“拖后腿”的在演失落再振作吧。。
 
+
+*****
+
+####  一个陆仁贾  
+##### 1138#       发表于 2024-12-7 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66859521&amp;ptid=2201887" target="_blank">ads147147 发表于 2024-12-6 16:00</a>
+拉拉不是九人吗，哪里没齐</blockquote>
+十几个人就是为了这种时候<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

@@ -8845,3 +8845,35 @@ crychic已经不剩下任何东西，因此正式宣告结束
 应该只有住睦家和自己租房的可能性了，上了武道馆的工资组个不错的房子应该绰绰有余，ras里面layer也是自己 ...</blockquote>
 确实，如果想最快进睦线并解决的话是住进睦家，等睦的事情解决后再搬出来自己住
 
+
+*****
+
+####  skives10  
+##### 2256#       发表于 2024-12-7 01:14
+
+The delicate melodies played by the keyboardist  Oblivionis add a classical touch to the band's sound.
+The emotions hidden within these melodies are an essential key to weaving Ave Mujica's unique world.
+
+键盘手Oblivionis演奏的精致旋律，为乐队的音乐增添了一丝古典韵味。
+这些旋律中隐藏的情感，是编织Ave Mujica独特世界观的关键所在。
+
+*****
+
+####  NODY  
+##### 2257#       发表于 2024-12-7 01:17
+
+<img src="https://img.saraba1st.com/forum/202412/07/011707sddkniipnj5yklig.jpg" referrerpolicy="no-referrer">
+
+<strong>GdieAcRWcAADmYV.jpg</strong> (322.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 01:17 上传
+
+*****
+
+####  NODY  
+##### 2258#       发表于 2024-12-7 01:17
+
+Oblivionis用键盘编织出精美的旋律，为乐队的声音增添了古典的气息，这些旋律之中隐藏的情感，是塑造ave mujica独特世界观必不可少的关键。
+

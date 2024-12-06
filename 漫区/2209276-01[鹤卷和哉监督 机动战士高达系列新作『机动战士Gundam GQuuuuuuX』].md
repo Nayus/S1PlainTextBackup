@@ -11633,3 +11633,21 @@ pv里的镜头越看越top2<img src="https://static.saraba1st.com/image/smiley/f
 
 为了证明自己是雌性中的雌性而参加机器人黑拳比赛<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  windaria  
+##### 1132#       发表于 2024-12-7 00:19
+
+突然想起来一个事，会不会和11月的福冈牛的莫名其妙动画是一个世界观
+
+<img src="https://img.saraba1st.com/forum/202412/07/001813ulbjj6djpv5pjlnj.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20241207001655.png</strong> (40.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 00:18 上传
+
+颜色乱七八糟的人设风格也有点像
+

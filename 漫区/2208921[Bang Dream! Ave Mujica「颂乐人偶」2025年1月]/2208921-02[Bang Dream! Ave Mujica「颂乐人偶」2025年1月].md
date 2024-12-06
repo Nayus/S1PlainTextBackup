@@ -7243,3 +7243,19 @@ https://x.com/momokan_1209_/status/1864863615687565748?s=46&amp;t=IZGx0N13SOtHAL
 
 mujika的问题肯定是团内解决概率更大，不然很难解释团队羁绊的形成，mygo最多起到一个引子或者第一季初华那种激励buff作用。而且铺这么大的开头，如果不集中描写mujika五人感觉篇幅都不够用
 
+
+*****
+
+####  杂灰  
+##### 2120#       发表于 2024-12-6 13:08
+
+你am这个en号多少也是个玩抽象的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑夜落叶秋天  
+##### 2121#       发表于 2024-12-6 13:10
+
+12.7的先行版应该有官方翻译 等一波看看有没有新发现
+

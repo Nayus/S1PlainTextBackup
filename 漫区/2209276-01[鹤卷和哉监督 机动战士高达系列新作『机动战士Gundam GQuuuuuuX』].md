@@ -11750,3 +11750,46 @@ pv里的镜头越看越top2<img src="https://static.saraba1st.com/image/smiley/f
 
 你楼脑补了半天就不怕最后发现，流出的意大利语版本并不是什么临时工弄错了的剧透，而是已经推翻了的废案，因为草台日本人忘记改翻译才放出来了吗
 
+
+*****
+
+####  RE㐅ia  
+##### 1140#       发表于 2024-12-7 04:01
+
+<blockquote>AkaiSuisei 发表于 2024-12-7 02:45
+你楼脑补了半天就不怕最后发现，流出的意大利语版本并不是什么临时工弄错了的剧透，而是已经推翻了的废案， ...</blockquote>
+
+但是埃尔梅斯的浮游和红高达都已经在pv里出场了。卫星的设计也是明显是uc的。也许有你说的可能，但目前所有流出的情报无论是正式公布的还是泄漏的都在相互佐证而非冲突。
+
+<img src="https://img.saraba1st.com/forum/202412/07/040044qc3fbhjr3yaakakr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>893FD34A-8547-49A7-8A41-3B177B2853FD.jpeg</strong> (271.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 04:00 上传
+
+<img src="https://img.saraba1st.com/forum/202412/07/040044xaeljw3d61e6r3r8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>FBFEC533-327C-4F44-B1C4-326D7AA20651.jpeg</strong> (659.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 04:00 上传
+
+<img src="https://img.saraba1st.com/forum/202412/07/040107mcoycwn0wbmw7090.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>9B85DC73-1AF6-4776-BDC0-2107735C8214.jpeg</strong> (631.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 04:01 上传
+
+<img src="https://img.saraba1st.com/forum/202412/07/040230vmmhmfycrz2qbp8c.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>7A9280A3-9FC3-4CDF-88BE-D6F9A55826C6.jpeg</strong> (188.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 04:02 上传
+

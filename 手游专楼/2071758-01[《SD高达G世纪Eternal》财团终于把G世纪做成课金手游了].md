@@ -557,3 +557,22 @@ G世紀做成手遊一向都有這類問題
 
 这一作如果上主机也不是不能玩。
 
+
+*****
+
+####  crisisbug  
+##### 62#       发表于 2024-12-6 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66850754&amp;ptid=2071758" target="_blank">HEERO.W 发表于 2024-12-5 15:50</a>
+
+开发树和氪金抽卡手游怎么兼容？</blockquote>
+我记得之前台北电玩节的展示是抽必杀技，元祖有一个连续攻击的SSR技能
+
+
+*****
+
+####  马桶3  
+##### 63#       发表于 2024-12-6 09:43
+
+抽必杀技那不是和垃圾机战手游一样嘛，没劲
+

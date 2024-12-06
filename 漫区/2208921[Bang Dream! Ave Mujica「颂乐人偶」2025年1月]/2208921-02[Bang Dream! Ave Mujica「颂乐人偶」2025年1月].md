@@ -7411,3 +7411,29 @@ PS：正片故事结构会不会一人一集个人回讲故事背景+母鸡卡�
 老头要把祥子当女儿的遗孤来抚养啊
 祥爹要不是入赘的独角兽多少有点变态了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 2137#       发表于 2024-12-6 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66860434&amp;ptid=2208921" target="_blank">cccpprc 发表于 2024-12-6 17:34</a>
+个人认为后续剧情需要解释/说清的点：
+
+1.母鸡卡最速武道馆传说里丰川大手占几成
+
+2.睦头作为大祥老师的半身 ...</blockquote>
+c团这个没必要让老c团的三人知道祥子内情，不然又得到老c团三个精神内耗了，特别是soyo。重点是祥子自己看开后去和解就行
+第一点我觉得也不可能讲了，第一集毕竟重点是女女关系而不是商战
+
+*****
+
+####  cccpprc  
+##### 2138#       发表于 2024-12-6 17:54
+
+<blockquote>akiomn 发表于 2024-12-6 17:51
+c团这个没必要让老c团的三人知道祥子内情，不然又得到老c团三个精神内耗了，特别是soyo。重点是祥子自己 ...</blockquote>
+其实C团的事情就差一个“把话说开”
+
+但是剧情设计上如何把话说开观感好就考验创作功力了
+

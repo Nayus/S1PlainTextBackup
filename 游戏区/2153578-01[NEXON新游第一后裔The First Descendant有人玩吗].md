@@ -2860,3 +2860,13 @@ https://api.xiaoheihe.cn/v3/bbs/app/api/web/share?link_id=139927615
 
 我前天还是昨天看到要送终极邦尼就下了游戏，结果昨天更新8G，写入硬盘40G，进去炸服，今天更新200M，又写入硬盘40G，还没玩呢硬盘被写了三遍<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leafS  
+##### 246#       发表于 2024-12-6 23:38
+
+这宠物还得用氪金币买，我是服了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

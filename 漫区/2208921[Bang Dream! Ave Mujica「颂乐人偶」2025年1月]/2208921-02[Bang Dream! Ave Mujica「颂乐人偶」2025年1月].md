@@ -8699,3 +8699,52 @@ saaya的父亲是这个乐队的粉丝，最后saaya的父亲振作就是因为�
 
 初设ppp比起现设ppp的关键词“奇迹”，强调的更多是两代乐队偶然的传承，也就是“命运”
 
+
+*****
+
+####  -LYRE-  
+##### 2243#       发表于 2024-12-6 23:37
+
+一个疑问
+明明是在讨论祥妈去世对祥子的影响，为什么会有人自动等价成给祥爹加戏？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+是的，少女乐队不应该去写中年失意男和商战这些背景板
+但是，有没有一种可能，祥爹和祥妈是两个角色？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+体现祥妈对祥子的影响压根不需要给别的角色加戏，只需要专注于祥子本人的变化就可以了
+
+*****
+
+####  NODY  
+##### 2244#       发表于 2024-12-6 23:40
+
+初设ppp的设定一直都在被后面的乐队沿用啊，mujica不是第一个，大概也不会是最后一个<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+传奇乐队解散，成员女儿继承了父辈写的歌→萝
+
+剧情的起因是有音乐传承的核心位想要当制作人建立自己的乐队→ras
+
+日常比较自闭或者社恐，但到了台上会展现闪耀的一面→真白、lock、灯
+
+
+*****
+
+####  cccpprc  
+##### 2245#       发表于 2024-12-6 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66862978&amp;ptid=2208921" target="_blank">仓鼠胖太 发表于 2024-12-6 23:33</a>
+
+前辈们都dokidoki kirakira happy smile去了，留下早期初设回旋镖一头扎在mujika里，这上哪儿说理去，笑昏 ...</blockquote>
+毕竟是正好赶上十周年的企划，正好漏出真面目阿不返璞归真一波<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 2246#       发表于 2024-12-6 23:43
+
+复盘了一下好像是我的问题，又给楼里带歪了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+我想表达的意思就是其实祥子的整个家庭背景板里，有意义的点都是围绕祥妈，而祥妈已逝
+
+祥妈的存在，则是疑似关联到祥子的心伤、钢琴音乐梦想、人偶要素这三点
+
+可以说不需要分给任何家庭戏份笔墨，本身都是在讲祥子本身的问题<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

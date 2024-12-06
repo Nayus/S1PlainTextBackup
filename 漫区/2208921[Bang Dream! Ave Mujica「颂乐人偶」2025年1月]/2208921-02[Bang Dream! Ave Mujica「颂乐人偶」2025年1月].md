@@ -7190,3 +7190,11 @@ Amoris，在架子鼓后面充满活力的演奏，用她有力的节拍为音�
 
 话虽如此，第一话这已经很炸裂了，真心希望别让大喵一直当搞事girl啊。
 
+
+*****
+
+####  remedios010000  
+##### 2115#       发表于 2024-12-6 12:24
+
+假药阴湿弹幕是初华发的还不如假药是祥爹发的，老登罪加一等直接打邦邦入无间地狱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

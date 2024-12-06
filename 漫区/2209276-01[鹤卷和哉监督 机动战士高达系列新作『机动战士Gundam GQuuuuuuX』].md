@@ -11015,3 +11015,26 @@ khara那个产能 变下一个f91我信<img src="https://static.saraba1st.com/im
 
 水魔商业成绩那么好，会出第二部吗
 
+
+*****
+
+####  王留美  
+##### 1070#       发表于 2024-12-6 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66858478&amp;ptid=2209276" target="_blank">大十字紅朔 发表于 2024-12-6 14:17</a>
+ 因为今川被扫地出门了，前几年据说沦落到开出租车讨生活，不知道现在还活着没 ...</blockquote>
+？你活在哪个世界线？
+人最近还在整G的外传呢
+
+*****
+
+####  大十字紅朔  
+##### 1071#       发表于 2024-12-6 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66858656&amp;ptid=2209276" target="_blank">王留美 发表于 2024-12-6 14:36</a>
+
+？你活在哪个世界线？
+
+人最近还在整G的外传呢</blockquote>
+那个只挂了个今川的名字吧
+

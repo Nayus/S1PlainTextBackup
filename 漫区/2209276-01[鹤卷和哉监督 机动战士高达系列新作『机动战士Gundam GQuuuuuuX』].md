@@ -11497,3 +11497,26 @@ pv里的镜头越看越top2<img src="https://static.saraba1st.com/image/smiley/f
 
 再看你GQUX，这个版本的简介属于是一点没提，也算是一种欲盖弥彰了（马后炮并感<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RE㐅ia  
+##### 1119#       发表于 2024-12-6 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66862508&amp;ptid=2209276" target="_blank">刺客ares 发表于 2024-12-6 22:03</a>
+
+这作男主给我一种把三明和四号揉一起的感觉，还混了点渚薰（这仨人是个什么下场大家都知道）
+
+但是找了土屋 ...</blockquote>
+四号闷骚的很，三明就是莫得感情。蓝毛虽然有面瘫倾向但实际性格还是比较开朗的，只是偶尔不说人话
+
+*****
+
+####  RE㐅ia  
+##### 1120#       发表于 2024-12-6 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66862669&amp;ptid=2209276" target="_blank">蓝色有脚⑨倍速 发表于 2024-12-6 22:33</a>
+
+去翻了一下才发现，之前无论是UC世界观作品还是another世界观作品，官方的剧情简介都会给到具体年份，包括 ...</blockquote>
+事后看两版简介。现在的这个除了地下黑拳啥都没提，泄漏的版本除了黑拳啥都讲了。纯纯的烟雾弹
+

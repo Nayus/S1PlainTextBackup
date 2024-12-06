@@ -10876,3 +10876,26 @@ PV人物少得可怜却把地下竞技团体介绍了一遍，但是地下竞技
 
 主角机越看越顺眼，但这军团战多少有水魔PTSD了
 
+
+*****
+
+####  你妈的为什么  
+##### 1056#       发表于 2024-12-6 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66845543&amp;ptid=2209276" target="_blank">刺客ares 发表于 2024-12-4 22:47</a>
+PV里看起来完成度很高啊，如果按消息说的全集都已经完工那应该不会有工期问题
+
+IF线试水意思挺明显，看这个 ...</blockquote>
+khara那个产能 变下一个f91我信<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你妈的为什么  
+##### 1057#       发表于 2024-12-6 08:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66846180&amp;ptid=2209276" target="_blank">Sliurus 发表于 2024-12-5 00:35</a>
+打黑拳可以只是女主得到ms的契机，既然有整备师了直接毛走也不奇怪。这帮老害应该没这么老实一路比赛到底 ...</blockquote>
+水魔之前大家也觉得决斗只是个引子 后面一转地宇人矛盾的
+
+结果<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

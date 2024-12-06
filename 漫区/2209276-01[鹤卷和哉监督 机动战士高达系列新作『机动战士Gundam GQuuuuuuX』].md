@@ -11617,3 +11617,11 @@ pv里的镜头越看越top2<img src="https://static.saraba1st.com/image/smiley/f
 有个很有意思的猜测，卡喵是听说是有个机甲比赛冠军的设定的，有没有可能女主是这个世界线的卡喵 ...</blockquote>
 为了证明自己是男人参加的小形MS比赛，跟打黑拳还是不一样的
 
+
+*****
+
+####  创始’’’天翔  
+##### 1130#       发表于 2024-12-7 00:01
+
+要证明自己的话，还是参加正规比赛吧<img src="https://static.saraba1st.com/image/smiley/carton2017/012.png" referrerpolicy="no-referrer">
+

@@ -7495,3 +7495,66 @@ c团这个没必要让老c团的三人知道祥子内情，不然又得到老c�
 
 <img src="https://freeimage.host/i/2G3PLxa" id="aimg_mUsa7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
+
+*****
+
+####  PDQ4  
+##### 2145#       发表于 2024-12-6 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66858299&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-6 13:53</a>
+
+168亿日元会不会是对十吨黄金的一种致敬呢</blockquote>
+别人的黄金是魔法，你这黄金怎么是亏空<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  fufusako  
+##### 2146#       发表于 2024-12-6 18:48
+
+大猫绝对是爱音定位啊，人气会大火的，其他几个人都没有足够的行动力来解决事件，祥子就是事件本身
+
+*****
+
+####  杂灰  
+##### 2147#       发表于 2024-12-6 18:51
+
+鸡狗里面能爆的人气都不会差，最怕的是什么都没干<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 2148#       发表于 2024-12-6 18:52
+
+鸡一定要按狗的套路来写原因是？
+
+大猫必是阿农定位的支撑点是？
+
+其他人都没有足够的行动力解决事件体现在？
+
+不拉踩就不会说话是因为？
+
+*****
+
+####  jesusTod  
+##### 2149#       发表于 2024-12-6 18:53
+
+角色人气大部分是由基础标签决定的，若麦小姐能和soyo一样的人气就好了…
+
+*****
+
+####  哈曼的YY  
+##### 2150#       发表于 2024-12-6 18:54
+
+光第一集就明显和卖狗不是一个路数了 硬对也对不上的
+
+*****
+
+####  Akari  
+##### 2151#       发表于 2024-12-6 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66856224&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-6 10:09</a>
+
+上次喵梦点了那么多甜点的下午茶不会是祥子付账吧</blockquote>
+感觉是……
+

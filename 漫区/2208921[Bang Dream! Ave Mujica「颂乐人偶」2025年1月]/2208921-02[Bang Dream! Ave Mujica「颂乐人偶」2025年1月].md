@@ -7928,3 +7928,39 @@ soyo对祥子主动是不缺的，就是操作稀碎全是惊世智慧，可以�
 
 感觉不能排除7集前的祥子其实还抱着外公和父亲能和解or父亲能振作起来，她还能回到or重组起C团的想法。
 
+
+*****
+
+####  贰臣  
+##### 2186#       发表于 2024-12-6 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66861892&amp;ptid=2208921" target="_blank">前方暴雨预警 发表于 2024-12-6 20:44</a>
+
+我其实最好奇的是狗剧场版后篇宣传里的一句话，是对飞鸟山场景的解说“听了mygo版春日影的祥子，意识到了c ...</blockquote>
+如果是这样的话，那祥子听到爱音拉soyo组队以后那个表情，还有对睦说是在报复我吗好像就都可以解释了，敢情全是误会啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 2187#       发表于 2024-12-6 20:49
+
+截止第七集结尾她对过去的感情确实被定义成了未練
+
+
+*****
+
+####  堆雪若叶  
+##### 2188#       发表于 2024-12-6 20:53
+
+crychic结束和不再结成crychic对于祥子可能是两个概念。灯soyo立希去结成别的乐队对祥子打击并没那么大，甚至live上灯振作起来她还能感到欣慰。祥子态度的分水岭就是春日影，之前没有结成其他乐队的想法应该还是因为她心里不能让出crychic的位置，既不能回去crychic，也不能放下，这种矛盾才构成了祥子窘迫的现状。
+
+*****
+
+####  前方暴雨预警  
+##### 2189#       发表于 2024-12-6 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66861925&amp;ptid=2208921" target="_blank">贰臣 发表于 2024-12-6 20:47</a>
+
+如果是这样的话，那祥子听到爱音拉soyo组队以后那个表情，还有对睦说是在报复我吗好像就都可以解释了，敢 ...</blockquote>
+但这又没法解释她为什么对爱音拉灯组队乐见其成了
+

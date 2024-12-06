@@ -11186,3 +11186,21 @@ pv里的镜头越看越top2<img src="https://static.saraba1st.com/image/smiley/f
 
 搞不好一开始企划就是你痞的新·高达结果被代便高层按住了变成现在这么不伦不类的样
 
+
+*****
+
+####  Bubat  
+##### 1088#       发表于 2024-12-6 20:49
+
+还是早点把哈撒韦2端出来吧，看他们在什么校园美少女和机器人竞技这种题材上下本我比自己亏钱还难受
+
+
+*****
+
+####  没取名啊  
+##### 1089#       发表于 2024-12-6 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66861594&amp;ptid=2209276" target="_blank">ティグル 发表于 2024-12-6 20:06</a>
+搞不好一开始企划就是你痞的新·高达结果被代便高层按住了变成现在这么不伦不类的样 ...</blockquote>
+不是说一开始就找的鹤卷吗
+

@@ -7313,3 +7313,18 @@ billion是十亿不是一亿，16.8billion就是168亿，字幕和台词都没�
 日语原文是168亿啊，你哪看的听译</blockquote>
 那就是听错了，英文字幕billion这个应该没问题
 
+
+*****
+
+####  akiomn  
+##### 2128#       发表于 2024-12-6 15:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/188.png" referrerpolicy="no-referrer">按现有的音频＋盗摄，第一集能挖的差不多都挖完了吧，想不到明天国内先行还能挖出什么了
+
+*****
+
+####  skives10  
+##### 2129#       发表于 2024-12-6 15:35
+
+是时候对着镜头语言做阅读理解了
+

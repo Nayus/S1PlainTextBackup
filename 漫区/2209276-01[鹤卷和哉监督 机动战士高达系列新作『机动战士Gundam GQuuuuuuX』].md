@@ -11598,3 +11598,22 @@ pv里的镜头越看越top2<img src="https://static.saraba1st.com/image/smiley/f
 
 水魔伟大，无需多言
 
+
+*****
+
+####  patema  
+##### 1128#       发表于 2024-12-6 23:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ティグル  
+##### 1129#       发表于 2024-12-6 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66863043&amp;ptid=2209276" target="_blank">patema 发表于 2024-12-6 23:46</a>
+
+有个很有意思的猜测，卡喵是听说是有个机甲比赛冠军的设定的，有没有可能女主是这个世界线的卡喵 ...</blockquote>
+为了证明自己是男人参加的小形MS比赛，跟打黑拳还是不一样的
+

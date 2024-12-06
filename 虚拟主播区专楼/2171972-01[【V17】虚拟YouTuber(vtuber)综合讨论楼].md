@@ -398,3 +398,11 @@ VCRGTA3已知的部分情报（一些主播直播的时候透露的）
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">我始终认为拉阿葵歌手出道是在浪费双方的时间，当初说的把路子拓宽什么的只是听上去好听
 
+
+*****
+
+####  渡鸦骑士  
+##### 930#       发表于 2024-12-6 23:51
+
+为什么健屋这个87同接的一百多天的stgr服直播老是能刷到我订阅推荐的第一位……<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

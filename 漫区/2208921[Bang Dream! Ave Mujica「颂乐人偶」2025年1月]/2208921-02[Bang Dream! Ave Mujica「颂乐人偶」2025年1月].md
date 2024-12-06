@@ -6981,3 +6981,17 @@ mygo时期也有“预告里看似很可怕的台词在剧情中其实一笔带�
 
 2024-12-6 08:29 上传
 
+
+*****
+
+####  瞳映山川  
+##### 2097#       发表于 2024-12-6 08:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66855385&amp;ptid=2208921" target="_blank">cherryjia12 发表于 2024-12-6 08:31</a>
+不知道前面有没有人提
+
+喵梦在mygo ep13戴面具的时候皱了下眉,应该是从一开始就不喜欢面具吧
+
+只能说这片还是 ...</blockquote>
+祥子拉她明说了因为脸和数字，还给大喵看了睦和初华的照片，她本来就是冲着给自己吸流量爆米来的吧？结果进了发现脸都给挡上了，大流量之一的睦遮得那叫一个狠，跟她自己的想法从一开始就不符吧，不满感觉挺正常的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

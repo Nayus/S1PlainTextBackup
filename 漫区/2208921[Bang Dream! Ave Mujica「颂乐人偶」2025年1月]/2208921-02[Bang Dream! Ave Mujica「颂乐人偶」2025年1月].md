@@ -7359,3 +7359,25 @@ billion是十亿不是一亿，16.8billion就是168亿，字幕和台词都没�
 话说现在有没有证据能证明祥爹是入赘？
 万一外公家压根不姓丰川岂不是很尴尬
 
+
+*****
+
+####  NODY  
+##### 2134#       发表于 2024-12-6 17:16
+
+ 本帖最后由 NODY 于 2024-12-6 17:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66860193&amp;ptid=2208921" target="_blank">rinku 发表于 2024-12-6 17:06</a>
+
+话说现在有没有证据能证明祥爹是入赘？
+
+万一外公家压根不姓丰川岂不是很尴尬 ...</blockquote>
+祥子的人物介绍：丰川集团的大小姐，那作为掌权人的外公自然是丰川了
+
+<img src="https://img.saraba1st.com/forum/202412/06/171716cmzz0202fyg0f28c.png" referrerpolicy="no-referrer">
+
+<strong>无标题00.png</strong> (166.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-6 17:17 上传
+

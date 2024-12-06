@@ -423,3 +423,11 @@ wo日，我还提前阵容，到跟前给忘了，现在还有柱子吗</blockqu
 
 —— 来自 HUAWEI AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  艾尔特翔  
+##### 46846#       发表于 2024-12-6 17:22
+
+T3的nobo，居然能直接送礼装
+

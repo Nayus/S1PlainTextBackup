@@ -695,3 +695,133 @@ woc，边狱公司和明日方舟会在2025年双向联动！
 
 小金这是不打算给镜牢bug补偿了？疑似动画梦做多了
 
+
+*****
+
+####  Jamaisvu  
+##### 1007#       发表于 2024-12-6 17:23
+
+血魔唐预告来了，12.12实装！：
+
+<img src="https://img.saraba1st.com/forum/202412/06/172400vz0nln53alqw0qlc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241206_171132.jpg</strong> (274.03 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-6 17:24 上传
+
+惊金发美人真的让人难以抗拒，很难想象今后能有小唐人格能超越她：
+
+<img src="https://img.saraba1st.com/forum/202412/06/172105jpargoibae86ttcr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241206_171244.jpg</strong> (189.97 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-6 17:21 上传
+
+<img src="https://img.saraba1st.com/forum/202412/06/172105w1ubju51rsnmsfvq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241206_171215.jpg</strong> (189.06 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-6 17:21 上传
+
+<img src="https://img.saraba1st.com/forum/202412/06/172105ai7n7mecyi4gm4fc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241206_171830.jpg</strong> (211.12 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-6 17:21 上传
+
+四个技能皆有强化形态。
+
+一技能鞭：
+
+<img src="https://img.saraba1st.com/forum/202412/06/172155pgsg3tggiigasysi.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241206_171345.jpg</strong> (221.04 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-6 17:21 上传
+
+<img src="https://img.saraba1st.com/forum/202412/06/172155pzzow5qw5znwi21i.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241206_171720.jpg</strong> (235.01 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-6 17:21 上传
+
+二技能剪：
+
+<img src="https://img.saraba1st.com/forum/202412/06/172211yazglea1pfgalrar.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241206_171358.jpg</strong> (171.38 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-6 17:22 上传
+
+<img src="https://img.saraba1st.com/forum/202412/06/172211zlegc0yfymwlczyp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241206_171741.jpg</strong> (206.16 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-6 17:22 上传
+
+三技能枪：
+
+<img src="https://img.saraba1st.com/forum/202412/06/172227zhbco2n72wcwwxv2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241206_171411.jpg</strong> (203.04 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-6 17:22 上传
+
+<img src="https://img.saraba1st.com/forum/202412/06/172227zjalmyliahmhzgbm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241206_171822.jpg</strong> (172.57 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-6 17:22 上传
+
+防御技伞：
+
+<img src="https://img.saraba1st.com/forum/202412/06/172254q00hxizxgocc0cg6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241206_171654.jpg</strong> (154.88 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-6 17:22 上传
+
+<img src="https://img.saraba1st.com/forum/202412/06/172254gz4ppa2zipmg4aec.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241206_171756.jpg</strong> (152.18 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-6 17:22 上传
+
+这精细程度怎么说呢，简直是把一个有侵蚀形态的ego做成了可用人格...骗氪就骗氪吧，到时必抽。
+

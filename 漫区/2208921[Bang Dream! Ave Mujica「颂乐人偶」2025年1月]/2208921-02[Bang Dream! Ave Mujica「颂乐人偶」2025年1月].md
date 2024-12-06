@@ -7159,3 +7159,26 @@ Amoris，在架子鼓后面充满活力的演奏，用她有力的节拍为音�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太有活力了，一上来就整个大的，队友拳头都硬了
 
+
+*****
+
+####  椎名真希  
+##### 2112#       发表于 2024-12-6 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66856573&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-6 10:44</a>
+
+喵梦和祥子约会的地方是东京文华东方酒店一楼的咖啡店
+
+应该是缝合了原地址一楼的ザ マンダリン オリエンタ ...</blockquote>
+花钱花的最多，整活整的最大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+祥P血压要爆了
+
+
+*****
+
+####  金钱与民主  
+##### 2113#       发表于 2024-12-6 11:25
+
+其实挺好玩的，刚说完我只剩AM了，回头马上AM就炸了个大的，本来想说第一话直接武道馆有点按快进的意思，现在看来整整13话里活是不会少的。顺便一说，这种叙事注定了AM的组建过程会以插叙的方式实现。
+

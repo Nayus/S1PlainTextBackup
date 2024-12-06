@@ -9048,3 +9048,15 @@ BC926639-6FC4-4EF7-BCA7-0B2BCE198A04.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小祥的人生真是太抓马了
 
+
+*****
+
+####  akiomn  
+##### 2273#       发表于 2024-12-7 02:10
+
+ 本帖最后由 akiomn 于 2024-12-7 02:11 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说现在还没正式播，等1月2号播了，喵梦风评绝对要完。光是睦被摘面具那个惊慌遮脸反应，这段我看着都心疼，换到剧内祥子能忍着到live结束真的脾气太好了。这段我觉得是文字剧透表达不出的，具体看了就知道喵梦是真的欠揍
+
+（米泽配的很好，真把喵梦那欠爱的样子配出来了）
+

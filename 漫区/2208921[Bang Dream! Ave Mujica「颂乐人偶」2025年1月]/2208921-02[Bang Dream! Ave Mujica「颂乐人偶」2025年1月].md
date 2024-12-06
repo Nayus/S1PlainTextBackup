@@ -7764,3 +7764,59 @@ soyo对祥子主动是不缺的，就是操作稀碎全是惊世智慧，可以�
 
 她一年后才终于开始行动，那时候早就已经晚了，这时候才是操作稀烂发挥的时候，直接给祥子彻底推远了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  金钱与民主  
+##### 2171#       发表于 2024-12-6 20:08
+
+行动力拉满也没啥用，你看连睦也都只是切割不掉，说到底要是靠别人能把祥子“拉回来”（先不说拉回来是啥意思），那还要Mujica干啥？
+
+*****
+
+####  -LYRE-  
+##### 2172#       发表于 2024-12-6 20:08
+
+我努力向你迈进，结果却是将你越推越远
+
+突然get到素祥的be缺憾感<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  贰臣  
+##### 2173#       发表于 2024-12-6 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66861584&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-6 20:05</a>
+
+那确实也可以用操作稀碎来解释吧，不过我觉得行动力是真的没有拉满
+
+祥子失联那几天就应该直接冲办公室用 ...</blockquote>
+这个一年的空白期就是我说的编剧逼的了，soyo整整一年都没别的行动，一到go开播就开始问睦关于祥子的事情，真这么在意你早干嘛去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仓鼠胖太  
+##### 2174#       发表于 2024-12-6 20:09
+
+祥子在退团那天基本是故意扮黑脸，实则还是很在意c团，那在羽丘第二次祥子碰到爱音主动问起组团进展，然后爱音故意提素世就冷脸跑了那次，会是怎么个心理活动呢
+而且我很在意祥子那次把书包抱在怀里的姿势，很少见也很奇怪，不知道是不是有另一个视角的剧情会在mujika里展现
+
+*****
+
+####  金钱与民主  
+##### 2175#       发表于 2024-12-6 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66861617&amp;ptid=2208921" target="_blank">贰臣 发表于 2024-12-6 20:09</a>
+
+这个一年的空白期就是我说的编剧逼的了，soyo整整一年都没别的行动，一到go开播就开始问睦关于祥子的事情 ...</blockquote>
+有没有可能她早就问过睦N次了，睦遵守对祥子的承诺守口如瓶，Soyo后来是在爱音那里得知的。
+
+*****
+
+####  akiomn  
+##### 2176#       发表于 2024-12-6 20:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实回顾下睦可能也差不多，狗第一集睦要是行动力拉满可以直接追上去，春日影时候睦也可以追上去。然后鸡第一集时候祥子被牢爹破防，睦完全可以抱上去
+结果，睦啥都没做
+真别怪到后面还要和初华竞争了，你行动力多加一点，祥子早归睦了
+

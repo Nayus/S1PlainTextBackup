@@ -7852,3 +7852,69 @@ soyo对祥子主动是不缺的，就是操作稀碎全是惊世智慧，可以�
 我说的不只是问睦，还有上面漏油提的那些操作，以soyo表现出来的执着她都可以做，但就是没做，也没什么成 ...</blockquote>
 除了问睦还能做啥？打电话和在Line上轰炸肯定无效，连祥子的去处都不知道，还要有的手段：开盒和私家侦探这就不是邦动画里应该出现的东西。Soyo在月之森养成的性格或者说处事方式就是别人喊一嗓子自己就会退的那种，第4话好不容易逮着祥子了，祥子一句别来找我她就不敢追了。
 
+
+*****
+
+####  PDQ4  
+##### 2180#       发表于 2024-12-6 20:26
+
+哪怕爽世本身是个行动力很低的人了，一年确实难评，让这个执着变得有点抽象<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+也许是邦邦劝学篇全力忙着课业转移祥子没了的伤痛吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+如果ccc一直活着，可能靠着祥子爽世缺爱和安全感的缺口就会慢慢被修补上，
+
+可惜这一切都必须建立在祥子没有出事上，没有如果。
+
+从这个角度去想，爽世认识的祥子就已经是失去母亲的她，已经注定这对CP会用BE收场，后续那样只能说独角兽的恶趣味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这也是和美帝的对比吧，爱音和狗没有去修复爽世的缺口，而是告诉她有缺口也没有问题，接纳了爽世
+
+爽世真的是很有意思的角色，这个人物弧光的完成度就是狗里最好的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  贰臣  
+##### 2181#       发表于 2024-12-6 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66861716&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2024-12-6 20:22</a>
+
+除了问睦还能做啥？打电话和在Line上轰炸肯定无效，连祥子的去处都不知道，还要有的手段：开盒和私家侦探 ...</blockquote>
+我有点不明白你想表达什么……我的观点就是剧本就没打算让soyo打出什么有效操作，你是反对这个观点吗?
+
+在合理基础上那一年里soyo能做的事就是很多啊，但问题就是c团设定上就是要散的，祥子就是拉不回来的，讨论这个有什么意义吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 2182#       发表于 2024-12-6 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66861542&amp;ptid=2208921" target="_blank">贰臣 发表于 2024-12-6 20:01</a>
+
+说到解密，我最期待就是访谈里提过的初华侦探定位了</blockquote>
+有提过吗，我记得没有提过吧
+
+*****
+
+####  skives10  
+##### 2183#       发表于 2024-12-6 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66861743&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-6 20:26</a>
+哪怕爽世本身是个行动力很低的人了，一年确实难评，让这个执着变得有点抽象
+
+也许是邦邦劝学篇全力忙着课业 ...</blockquote>
+祥子算是接近人间蒸发吧
+即使理解成失恋 过了三五个月 实在没有希望找到人的情况下 暂时放下的概率也是很高的
+重新找到人时算是失而复得的惊喜强化了执念吧
+
+*****
+
+####  金钱与民主  
+##### 2184#       发表于 2024-12-6 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66861672&amp;ptid=2208921" target="_blank">堆雪若叶 发表于 2024-12-6 20:16</a>
+
+祥子转入羽丘之后对灯和soyo的态度原本就有微妙的反差。她对爱音找灯组队是默许乃至支持的态度，但爱音回答 ...</blockquote>
+祥子对二人态度的区别大概率在于Soyo在C团崩溃后花了不少工夫在试图联络祥子，起码Line肯定被轰炸了好久，而灯很可能散伙后不太敢继续找她，羽丘重逢后都是如此，甚至都没告诉Soyo，所以对灯，祥子可能很放心，期待她能走出阴影就行，对Soyo就不一样了，我对第8话飞鸟山之阵的理解一直就是祥子放狠话让对面彻底死心，我都怀疑Mujica要是真从祥子视角回忆这一幕搞不好又是一个拐弯就开始擦眼泪了（大哭不至于，毕竟软弱的我已经死了）。
+

@@ -7487,3 +7487,11 @@ c团这个没必要让老c团的三人知道祥子内情，不然又得到老c�
 </blockquote>
 按照剧透，祥子喊的还是“爷爷”，但是“爷爷”的说辞是“我会把你当做我的女儿的‘遗物’(这个词可能有听译错误)来对待”，从这里基本可以确定祥子是随母姓、父亲是入赘的。
 
+
+*****
+
+####  贰臣  
+##### 2144#       发表于 2024-12-6 18:34
+
+<img src="https://freeimage.host/i/2G3PLxa" id="aimg_mUsa7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+

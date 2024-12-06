@@ -11793,3 +11793,36 @@ pv里的镜头越看越top2<img src="https://static.saraba1st.com/image/smiley/f
 
 2024-12-7 04:02 上传
 
+
+*****
+
+####  RE㐅ia  
+##### 1141#       发表于 2024-12-7 04:21
+
+这组图反正流出来也不知道多久了。夸可斯的原型机说是搭载了奥米茄塞克谬，还只能由特殊的新人类驾驶。两者也正好和女主pv里的nt闪以及机体编号gMS-Ω对上了。
+
+<img src="https://img.saraba1st.com/forum/202412/07/041746dzfpfokoaklox7ya.png" referrerpolicy="no-referrer">
+
+<strong>95A31F54-EB28-4206-AFE6-5A5312B4EB7B.png</strong> (415.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 04:17 上传
+
+<img src="https://img.saraba1st.com/forum/202412/07/041824w34hjelvw0z32j3n.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>79AB3D52-1D26-4EFC-AF21-1D1D527A2C7D.jpeg</strong> (43.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 04:18 上传
+
+<img src="https://img.saraba1st.com/forum/202412/07/042137g14jrog99hobgj6t.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>11205BC0-E294-4A46-B80F-10464E8EE841.jpeg</strong> (100.88 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-7 04:21 上传
+

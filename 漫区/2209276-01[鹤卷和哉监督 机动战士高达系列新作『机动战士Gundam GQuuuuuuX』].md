@@ -10899,3 +10899,21 @@ khara那个产能 变下一个f91我信<img src="https://static.saraba1st.com/im
 
 结果<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  1096beam  
+##### 1058#       发表于 2024-12-6 09:30
+
+该不会是本子剧作家连写一场战争的能力都没有了吧
+
+
+*****
+
+####  Sliurus  
+##### 1059#       发表于 2024-12-6 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66855569&amp;ptid=2209276" target="_blank">你妈的为什么 发表于 2024-12-6 08:56</a>
+ 水魔之前大家也觉得决斗只是个引子 后面一转地宇人矛盾的  结果</blockquote>
+因为当时都算漏了监督<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

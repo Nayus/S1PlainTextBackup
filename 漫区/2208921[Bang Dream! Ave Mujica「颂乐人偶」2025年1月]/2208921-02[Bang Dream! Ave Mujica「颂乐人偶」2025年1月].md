@@ -7026,3 +7026,11 @@ mygo时期也有“预告里看似很可怕的台词在剧情中其实一笔带�
 
 但是还是不够，就要武道馆露个脸<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">早晚玩砸了炎上
 
+
+*****
+
+####  好想看Mujica啊  
+##### 2101#       发表于 2024-12-6 09:33
+
+看pv里练鼓时咬牙切齿的样子，可能家里人反对打鼓也反对上京，混不出头就要滚回老家吧
+

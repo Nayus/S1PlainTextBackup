@@ -9060,3 +9060,21 @@ BC926639-6FC4-4EF7-BCA7-0B2BCE198A04.jpeg
 
 （米泽配的很好，真把喵梦那欠爱的样子配出来了）
 
+
+*****
+
+####  椎名真希  
+##### 2274#       发表于 2024-12-7 02:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66863602&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-7 01:55</a>
+小小祥是3D的还是2D的啊</blockquote>
+2D，祥妈和小小祥中段镜头也没几秒
+
+*****
+
+####  堆雪若叶  
+##### 2275#       发表于 2024-12-7 02:20
+
+说起来之前去旧古河庭园的时候碰巧在园子里看到地上有条绿色的蝴蝶结绑带，当时还想着可惜和祥子的颜色不一样，结果也有点巧了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/3e2639b1076cdc039dc5f382607dc6cd/IMG_1655.jpg" referrerpolicy="no-referrer">
+

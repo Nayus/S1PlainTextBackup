@@ -1829,3 +1829,14 @@ R1加左键还是右键来着
 
 我还是喜欢最早第一个PV的人设，现在这版齐刘海+长马尾的发型不太戳我
 
+
+*****
+
+####  Garterbelt  
+##### 125#       发表于 2024-12-6 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66857158&amp;ptid=2182820" target="_blank">巨馍蘸酱 发表于 2024-12-6 11:35</a>
+
+我还是喜欢最早第一个PV的人设，现在这版齐刘海+长马尾的发型不太戳我</blockquote>
+游戏内可以换的，这次更新还增加了去掉马尾的选项
+

@@ -8912,3 +8912,16 @@ Oblivionis用键盘编织出精美的旋律，为乐队的声音增添了古典�
 哦，和喵梦那个vibrant对 ...</blockquote>
 an essential key嘛 指的这句
 
+
+*****
+
+####  NODY  
+##### 2262#       发表于 2024-12-7 01:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66863476&amp;ptid=2208921" target="_blank">千代讴歌 发表于 2024-12-7 01:24</a>
+
+这个key是keyboard，键盘手的意思吧，好像不是那个暗语，我看喵梦那里也是鼓手
+
+哦，和喵梦那个vibrant对 ...</blockquote>
+不是，是下面那个essential key，mujica世界观的关键
+

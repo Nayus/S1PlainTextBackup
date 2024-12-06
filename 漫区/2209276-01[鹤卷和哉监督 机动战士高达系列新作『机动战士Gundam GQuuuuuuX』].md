@@ -11381,3 +11381,42 @@ pv里的镜头越看越top2<img src="https://static.saraba1st.com/image/smiley/f
 
 新情报出来之前要一直水魔了吗，不要啊
 
+
+*****
+
+####  双菜  
+##### 1108#       发表于 2024-12-6 21:46
+
+之前水魔楼新情报出来之前也都是种命铁血，这也是一种轮回
+
+*****
+
+####  ティグル  
+##### 1109#       发表于 2024-12-6 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66862379&amp;ptid=2209276" target="_blank">双菜 发表于 2024-12-6 21:44</a>
+
+真卖女女关系性能不能不要PV全是男女主对话这样不是直接把看女女关系性的观众吓跑了 ...</blockquote>
+肯定藏东西了啊，故事背景都藏了（虽然没藏住）
+
+*****
+
+####  ティグル  
+##### 1110#       发表于 2024-12-6 21:48
+
+ 本帖最后由 ティグル 于 2024-12-6 21:50 编辑 
+
+而且代便这么决定作品方向也是没办法的事，你日上一次大规模公安事件都是三十年前了，不像你韩连哭跌塔都能搞成连续剧
+
+我要是资方我也觉得观众对自己接触不到的东西不感兴趣，毕竟从选情来看青年群体的ZZ冷感愈发严重了
+
+
+*****
+
+####  若叶刃  
+##### 1111#       发表于 2024-12-6 21:52
+
+就不能聊点G复国剧场版吗，明明是新世纪高达最强作画，Gself对战马克刀的作画场面真的是反复回味，但现在看过的人也没多少……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2011K2C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

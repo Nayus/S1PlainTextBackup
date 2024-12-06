@@ -11420,3 +11420,15 @@ pv里的镜头越看越top2<img src="https://static.saraba1st.com/image/smiley/f
 
 —— 来自 Xiaomi M2011K2C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  刺客ares  
+##### 1112#       发表于 2024-12-6 22:03
+
+这作男主给我一种把三明和四号揉一起的感觉，还混了点渚薰
+
+但是找了关系户CV，戏份应该不会太少吧？不然费劲塞进这个黄金班组，三集就下线，那有点尴尬了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+至于女二，感觉预告PV应该是藏了她不少戏份的，没上机部分她剧情肯定不少，豚豚这不搏一下？少革正牌编剧可在阵中哎？
+

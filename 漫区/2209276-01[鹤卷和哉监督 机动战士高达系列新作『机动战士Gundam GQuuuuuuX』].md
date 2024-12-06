@@ -10975,3 +10975,14 @@ khara那个产能 变下一个f91我信<img src="https://static.saraba1st.com/im
 
 这机设就别嗯洗了，山下的萝卜除了初号机很惊艳，其他不都是怪异有余美型不足吗
 
+
+*****
+
+####  Toby_dak  
+##### 1066#       发表于 2024-12-6 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66856913&amp;ptid=2209276" target="_blank">赤黑的假面 发表于 2024-12-6 12:13</a>
+
+有一说一，国内真有80年代在电视台看富野钢弹长大的遗老吗，我只知道88年看变形金刚G1长大的G1遗老是真实存 ...</blockquote>
+92 、93年系TVB睇机动战士再起风云嘅广州土著。
+

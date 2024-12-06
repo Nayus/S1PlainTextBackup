@@ -11520,3 +11520,36 @@ pv里的镜头越看越top2<img src="https://static.saraba1st.com/image/smiley/f
 去翻了一下才发现，之前无论是UC世界观作品还是another世界观作品，官方的剧情简介都会给到具体年份，包括 ...</blockquote>
 事后看两版简介。现在的这个除了地下黑拳啥都没提，泄漏的版本除了黑拳啥都讲了。纯纯的烟雾弹
 
+
+*****
+
+####  novyDC  
+##### 1121#       发表于 2024-12-6 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66862747&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2024-12-06 22:48:22</a>
+事后看两版简介。现在的这个除了地下黑拳啥都没提，泄漏的版本除了黑拳啥都讲了。纯纯的烟雾弹 ...</blockquote>pv里那浮游炮镜头确实很像0079里拉拉开的那个
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  法拉  
+##### 1122#       发表于 2024-12-6 23:02
+
+ 本帖最后由 法拉 于 2024-12-6 23:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66862669&amp;ptid=2209276" target="_blank">蓝色有脚⑨倍速 发表于 2024-12-6 22:33</a>
+
+去翻了一下才发现，之前无论是UC世界观作品还是another世界观作品，官方的剧情简介都会给到具体年份，包括 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我倒是觉得到时候正片如果真的只字不提什么宇宙世纪，就只是在背景里存在这么些东西，光写大的世界观下宇宙底层居民打黑拳营生的挣扎生活，然后来个冲出殖民地见识真正的宇宙，那倒是还蛮有味道的
+
+*****
+
+####  王留美  
+##### 1123#       发表于 2024-12-6 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66858697&amp;ptid=2209276" target="_blank">大十字紅朔 发表于 2024-12-6 14:39</a>
+ 那个只挂了个今川的名字吧</blockquote>
+今川自己写的啊
+不是他谁写得出那么冲的味道来
+

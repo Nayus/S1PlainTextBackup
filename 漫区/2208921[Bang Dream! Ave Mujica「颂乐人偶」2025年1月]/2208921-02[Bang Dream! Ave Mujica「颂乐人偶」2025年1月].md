@@ -7118,3 +7118,26 @@ mygo时期也有“预告里看似很可怕的台词在剧情中其实一笔带�
 
 同理，给灯造成困扰的东西，在其他人眼里可能并什么存在感
 
+
+*****
+
+####  skives10  
+##### 2109#       发表于 2024-12-6 10:44
+
+ 本帖最后由 skives10 于 2024-12-6 10:46 编辑 
+
+<img src="https://img.saraba1st.com/forum/202412/06/104617m6ewn52izc2ing8f.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0673.jpeg</strong> (53.41 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-6 10:46 上传
+
+喵梦和祥子约会的地方是东京文华东方酒店一楼的咖啡店
+
+应该是缝合了原地址一楼的ザ マンダリン オリエンタル グルメショップ的位置和38楼的オリエンタルラウンジ的菜单
+
+养网红猫果然费钱
+

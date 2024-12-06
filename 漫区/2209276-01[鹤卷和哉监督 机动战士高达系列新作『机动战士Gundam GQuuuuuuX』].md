@@ -11056,3 +11056,18 @@ khara那个产能 变下一个f91我信<img src="https://static.saraba1st.com/im
 
 结果人很实诚真就只拍学校周边那点p事多了不说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  少年游不游  
+##### 1074#       发表于 2024-12-6 16:43
+
+什么exvs
+
+*****
+
+####  jojonathan  
+##### 1075#       发表于 2024-12-6 16:44
+
+所以夏亚疑似在所罗门引发精神力骨架暴走轰平半个所罗门之后跑路了是吗<img src="https://static.saraba1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer">。  把事情办砸了就emo然后跑路是夏亚的核心设定（确信）
+

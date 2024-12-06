@@ -1840,3 +1840,19 @@ R1加左键还是右键来着
 我还是喜欢最早第一个PV的人设，现在这版齐刘海+长马尾的发型不太戳我</blockquote>
 游戏内可以换的，这次更新还增加了去掉马尾的选项
 
+
+*****
+
+####  那由  
+##### 126#       发表于 2024-12-6 16:35
+
+<img src="https://img.saraba1st.com/forum/202412/06/163451pxx04o833t5xefxh.png" referrerpolicy="no-referrer">
+
+<strong>e40af6c53f9bd21b50ba7a855dc2e92d.png</strong> (302.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-6 16:34 上传
+
+还是喜欢这套，自由打光太方便了
+

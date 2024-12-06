@@ -7303,3 +7303,13 @@ mujika的问题肯定是团内解决概率更大，不然很难解释团队羁�
 
 billion是十亿不是一亿，16.8billion就是168亿，字幕和台词都没错
 
+
+*****
+
+####  椎名真希  
+##### 2127#       发表于 2024-12-6 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66858442&amp;ptid=2208921" target="_blank">祐天寺若麦 发表于 2024-12-6 14:12</a>
+日语原文是168亿啊，你哪看的听译</blockquote>
+那就是听错了，英文字幕billion这个应该没问题
+

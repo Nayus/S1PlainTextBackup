@@ -413,3 +413,13 @@ wo日，我还提前阵容，到跟前给忘了，现在还有柱子吗</blockqu
 邪门，活动刚开攒的30石出了换盘子的孔明
 今晚剩的120石放到谦信池子歪了个杰克……
 
+
+*****
+
+####  JackTitor  
+##### 46845#       发表于 2024-12-6 10:13
+
+200多石头，最后剩6个绝命单抽终于出了，真是紧张刺激的指令卡战斗游戏<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

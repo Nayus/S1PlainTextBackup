@@ -8384,3 +8384,72 @@ ep08疑问的是爽世想复活crychic，睦是不是也想复活crychic
 
 关于家庭创伤，soyo不就是很好的例子，她的社交面具和对c团近乎病态的执拗多少与幼时的家庭变故脱不开干系。祥子的家庭已经这么个情况了，对她没影响才奇怪吧
 
+
+*****
+
+####  金钱与民主  
+##### 2221#       发表于 2024-12-6 22:26
+
+ 本帖最后由 金钱与民主 于 2024-12-6 22:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66862524&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-6 22:07</a>
+
+所以呢，有没有可能这是要靠时间的功劳，你觉得一个月够治愈失去母亲的伤痛？
+
+就和爽祥cp如果要成，需要祥 ...</blockquote>
+不是，自家老爹摆烂了，提一嘴“你这样妈妈会伤心的”很奇怪吗？意思是时间足够久了、祥子要是放下了就不会这么说了是吧？
+
+<img src="https://img.saraba1st.com/forum/202412/06/222936geoymyy8ykzh8ref.png" referrerpolicy="no-referrer">
+
+<strong>QQ20241206-222835.png</strong> (685.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-6 22:29 上传
+
+*****
+
+####  Aendst  
+##### 2222#       发表于 2024-12-6 22:28
+
+ 本帖最后由 Aendst 于 2024-12-6 22:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66862635&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2024-12-6 22:26</a>
+
+不是，自家老爹摆烂了，提一嘴“你这样妈妈会伤心的”很奇怪吗？意思是时间足够久了、祥子要是放下了就不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">？要不还是换个话题吧，人类无法互相理解
+
+有没有熟读邦原案的漏油能稍微说一下ppp原案里的部分角色的家庭创伤是不是该角色问题的重要组成部分
+
+
+*****
+
+####  PDQ4  
+##### 2223#       发表于 2024-12-6 22:34
+
+ 本帖最后由 PDQ4 于 2024-12-6 22:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66862635&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2024-12-6 22:26</a>
+
+不是，自家老爹摆烂了，提一嘴“你这样妈妈会伤心的”很奇怪吗？意思是时间足够久了、祥子要是放下了就不 ...</blockquote>
+不然呢，本来就是会激化矛盾的话，祥爹都摆烂成那样觉得自己不该存在了
+
+就跟你对跳楼小孩说想想你家里人一样，外人说可能是不知情
+
+祥子难道不知道祥妈去世意味着什么？这么刺激爹，那这父女情也塑料完了
+
+而且你仔细去听原片，祥子的语气很急，说的两句话，都是妈妈会如何
+
+我认为这是很明显的证据了，漏u要是就是无法接受也没有什么好说的，等后续吧
+
+*****
+
+####  金钱与民主  
+##### 2224#       发表于 2024-12-6 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66862646&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-6 22:28</a>
+
+？要不还是换个话题吧，人类无法互相理解
+
+有没有熟读邦原案的漏油能稍微说一下ppp原案里的部分角色的家庭 ...</blockquote>
+[https://bbs.nga.cn/read.php?tid=37976751](https://bbs.nga.cn/read.php?tid=37976751)
+
+参考这个
+

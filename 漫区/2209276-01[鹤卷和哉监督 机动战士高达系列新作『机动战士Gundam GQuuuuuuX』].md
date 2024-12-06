@@ -11487,3 +11487,13 @@ pv里的镜头越看越top2<img src="https://static.saraba1st.com/image/smiley/f
 
 说实话真不懂尼漏提少革的，这staff唯一能tie上少革的也就榎戸洋司一个人，而榎戸洋司甚至做乙女或轻bl的次数都甚至远远比做百合要多得多，上次可能和百合有点关联的作品还是04年的GB2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蓝色有脚⑨倍速  
+##### 1118#       发表于 2024-12-6 22:33
+
+去翻了一下才发现，之前无论是UC世界观作品还是another世界观作品，官方的剧情简介都会给到具体年份，包括水星的AS122，铁血厄祭战300年后，G复国RC1014，00西历2307，UC平行宇宙的雷霆宙域也会写上UC0079，而且一般都放在开头第一句话
+
+再看你GQUX，这个版本的简介属于是一点没提，也算是一种欲盖弥彰了（马后炮并感<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+

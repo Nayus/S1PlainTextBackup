@@ -7558,3 +7558,48 @@ c团这个没必要让老c团的三人知道祥子内情，不然又得到老c�
 上次喵梦点了那么多甜点的下午茶不会是祥子付账吧</blockquote>
 感觉是……
 
+
+*****
+
+####  Akari  
+##### 2152#       发表于 2024-12-6 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66856573&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-6 10:44</a>
+
+喵梦和祥子约会的地方是东京文华东方酒店一楼的咖啡店
+
+应该是缝合了原地址一楼的ザ マンダリン オリエンタ ...</blockquote>
+手下留情了，只是文华东方而已，应该也不是全套。
+
+*****
+
+####  skives10  
+##### 2153#       发表于 2024-12-6 18:58
+
+<img src="https://img.saraba1st.com/forum/202412/06/185830rm3haawdmddxyma9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0677.jpeg</strong> (620.94 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-6 18:58 上传
+
+又想嬷了
+
+*****
+
+####  akiomn  
+##### 2154#       发表于 2024-12-6 18:59
+
+大喵哪来的爱音定位，就爱音也没在mygo里主动搞事过吧？对不上
+<img src="https://static.saraba1st.com/image/smiley/face2017/188.png" referrerpolicy="no-referrer">鸡里能和狗定位相似的现在海玲最明显，都是想找个归宿
+
+
+*****
+
+####  PDQ4  
+##### 2155#       发表于 2024-12-6 19:05
+
+到此为止鸡五人已经都有choker了，祥p还是没控制住对自己下手了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

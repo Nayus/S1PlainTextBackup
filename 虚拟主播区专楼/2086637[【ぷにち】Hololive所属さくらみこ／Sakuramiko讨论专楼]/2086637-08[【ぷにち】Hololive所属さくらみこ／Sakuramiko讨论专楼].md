@@ -310,3 +310,34 @@
 
 鲁鲁修2期<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 10388#         楼主| 发表于 2024-12-6 11:34
+
+<img src="https://img.saraba1st.com/forum/202412/06/113344s06o00lp6anxw30w.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (402 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-6 11:33 上传
+
+<img src="https://img.saraba1st.com/forum/202412/06/113415athlopo2qpvlbqth.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (23.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-6 11:34 上传
+
+副标题
+
+*****
+
+####  holoan  
+##### 10389#         楼主| 发表于 2024-12-6 11:40
+
+原来如此，官方迟迟不发布年末企划告知全是为了等昨天mikorone的正式告知<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

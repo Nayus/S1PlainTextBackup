@@ -10917,3 +10917,25 @@ khara那个产能 变下一个f91我信<img src="https://static.saraba1st.com/im
  水魔之前大家也觉得决斗只是个引子 后面一转地宇人矛盾的  结果</blockquote>
 因为当时都算漏了监督<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  双菜  
+##### 1060#       发表于 2024-12-6 09:47
+
+该提前做好打黑拳打到结尾的准备了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 1061#       发表于 2024-12-6 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66855569&amp;ptid=2209276" target="_blank">你妈的为什么 发表于 2024-12-6 08:56</a>
+水魔之前大家也觉得决斗只是个引子 后面一转地宇人矛盾的
+
+结果</blockquote>
+小林宽：我就是任性，都没想到大河内确实是要写大爆特爆，但是监督sb啊。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

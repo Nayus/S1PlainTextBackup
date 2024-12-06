@@ -7034,3 +7034,25 @@ mygo时期也有“预告里看似很可怕的台词在剧情中其实一笔带�
 
 看pv里练鼓时咬牙切齿的样子，可能家里人反对打鼓也反对上京，混不出头就要滚回老家吧
 
+
+*****
+
+####  66367749  
+##### 2102#       发表于 2024-12-6 09:48
+
+是不是集合了混不出头回家继承家业的，回家听父母安排当演员的，回乡下种田的和回岛上种田的
+
+
+*****
+
+####  rushsong  
+##### 2103#       发表于 2024-12-6 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66855756&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2024-12-6 09:21</a>
+十几二十万播放还不满足吗大馋猫
+
+还是就那一个蹭到名人的视频能</blockquote>
+看喵梦平时的样子也不缺钱，还会用较高级的餐厅试探祥子，估计美妆视频油土鳖平均能有5，6万播放量吧
+
+—— 来自 vivo V2183A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

@@ -11647,3 +11647,13 @@ nagi音乐剧，emorin生日会
 
 这种情况下肯定是一鼓作气直奔冠军了 敌团预计空气 先看上去输一次然后士气upup 可能觉得一下子通过太顺利了吧 当然打我脸也是没可能
 
+
+*****
+
+####  ViyViy  
+##### 1137#       发表于 2024-12-7 00:50
+
+snp真惨，凭什么我那片区只能进一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这周不会是没以第一名进姿态打东京区赛，咱们“拖后腿”的在演失落再振作吧。。
+

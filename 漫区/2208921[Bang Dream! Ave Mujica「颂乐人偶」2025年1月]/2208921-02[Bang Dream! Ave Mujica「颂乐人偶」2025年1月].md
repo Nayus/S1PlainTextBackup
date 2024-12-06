@@ -7080,3 +7080,14 @@ mygo时期也有“预告里看似很可怕的台词在剧情中其实一笔带�
 
 讲道理啊老有人抓着这张图搞这种激动寒论证就挺逗的：这个剪影不管怎么看大概率应该是个戴礼帽的男士形象。有些人与其说是在“分析”、“推测”，不如说根本就是自己在胡编乱造，似乎他们真的需要被按着脑袋提醒一句你只不过是个观众、少在这当无资格编剧才行。
 
+
+*****
+
+####  椎名真希  
+##### 2106#       发表于 2024-12-6 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66856224&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-6 10:09</a>
+
+上次喵梦点了那么多甜点的下午茶不会是祥子付账吧</blockquote>
+肯定啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥子邀请喵梦，喵梦找这个餐厅本来就是想难为她的
+

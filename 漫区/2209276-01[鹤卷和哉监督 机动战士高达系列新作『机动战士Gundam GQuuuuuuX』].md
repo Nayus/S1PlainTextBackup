@@ -10939,3 +10939,16 @@ khara那个产能 变下一个f91我信<img src="https://static.saraba1st.com/im
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  Steel.Haze  
+##### 1062#       发表于 2024-12-6 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66856103&amp;ptid=2209276" target="_blank">ads147147 发表于 2024-12-6 09:56</a>
+
+小林宽：我就是任性，都没想到大河内确实是要写大爆特爆，但是监督sb啊。
+
+—— 来自 OPPO PHN110, Andro ...</blockquote>
+这个嘛，主要是第一季结尾的爆点，和第二季开头的氛围（比如挑染回的地球圈残酷战斗）已经开始把氛围烘托开了，ED也很搭调，然后楞瘪回成了另一个路线和风格。
+

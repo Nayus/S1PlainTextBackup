@@ -8982,3 +8982,69 @@ EF13EB62-DDB7-43D6-8338-6BEC98B8C486.jpeg
 
 祥子应该是情感吧
 
+
+*****
+
+####  skives10  
+##### 2268#       发表于 2024-12-7 01:58
+
+ 本帖最后由 skives10 于 2024-12-7 02:00 编辑 
+
+发带的颜色应该是没有变过
+
+<img src="https://img.saraba1st.com/forum/202412/07/015826b3gb7t333s7rs7ct.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3958.jpeg</strong> (267.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 01:58 上传
+
+怎会有此等萌物
+
+<img src="https://img.saraba1st.com/forum/202412/07/020026oj7274tboyt2j7v7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3959.jpeg</strong> (198.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 02:00 上传
+
+
+*****
+
+####  黑夜落叶秋天  
+##### 2269#       发表于 2024-12-7 02:03
+
+这可是无暇祥 整个mygo和mujica只有初华和睦见过的含金量
+
+*****
+
+####  akiomn  
+##### 2270#       发表于 2024-12-7 02:04
+
+对了祥子这一段真的动怒了，剧情顺序是祥子先走到睦的旁边（可能是想带睦先退场了）然后喵梦也走到祥子身边，调戏了几句，祥子动怒（图里的表情）之后祥子不得不也摘面具（动作挺狠的，估计肺被喵梦气炸了）
+
+BC926639-6FC4-4EF7-BCA7-0B2BCE198A04.jpeg
+(59.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 02:04 上传
+
+<img src="https://img.saraba1st.com/forum/202412/07/020441lpiutuezuetupt17.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  qjw114514  
+##### 2271#       发表于 2024-12-7 02:05
+
+来点经典交换/赠送发带情节<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 2272#       发表于 2024-12-7 02:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小祥的人生真是太抓马了
+

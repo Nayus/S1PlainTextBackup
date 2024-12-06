@@ -11669,3 +11669,19 @@ snp真惨，凭什么我那片区只能进一个<img src="https://static.saraba1
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  ads147147  
+##### 1139#       发表于 2024-12-7 02:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66862890&amp;ptid=2201887" target="_blank">离心 发表于 2024-12-6 23:17</a>
+好消息:有恋的戏份了
+
+坏消息:不知道补的怎么样
+
+好消息:进ll决赛了</blockquote>
+东京赛区进了，但是输给其他赛区？这是什么鬼设计，又要玩库亚西吗，有点受够了。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

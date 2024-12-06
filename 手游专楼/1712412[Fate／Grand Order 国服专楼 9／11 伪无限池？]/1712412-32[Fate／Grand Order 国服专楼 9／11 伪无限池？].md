@@ -439,3 +439,13 @@ T3的nobo，居然能直接送礼装
 
 这2.86.2版本是不是有bug，用模拟器玩久会跑狗登陆不上，找个2.86.1换了
 
+
+*****
+
+####  khxooo  
+##### 46848#       发表于 2024-12-7 01:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66863354&amp;ptid=1712412" target="_blank">6030sylar 发表于 2024-12-7 00:55</a>
+这2.86.2版本是不是有bug，用模拟器玩久会跑狗登陆不上，找个2.86.1换了</blockquote>
+是不是mumu？如果是的话换哪个版本都会这样。模拟器问题。
+

@@ -8041,3 +8041,45 @@ crychic结束和不再结成crychic对于祥子可能是两个概念。灯soyo�
 
 我的理解是可以接受灯有新乐队，但不能接受crychic重组拉了四个人 唯独把自己排斥在外？
 
+
+*****
+
+####  Aendst  
+##### 2195#       发表于 2024-12-6 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66862110&amp;ptid=2208921" target="_blank">红楼飞雪 发表于 2024-12-6 21:09</a>
+
+第一集祥子得到的信息是爱音要组乐队+很可能找的成员是灯，她对灯能有下一个乐队这件事应该是祝福的
+
+但是 ...</blockquote>
+我觉得是接受原成员有新乐队，所以她乐见爱音拉着灯组新乐队
+
+也接受crychic在没有自己的情况下不解散
+
+把自己排除在外本身并没有什么，而是四个原c重组有了爱音之后，这个乐队会变成一个披着crychic壳但并非crychic的新乐队，这本身就很怪异
+
+*****
+
+####  红楼飞雪  
+##### 2196#       发表于 2024-12-6 21:17
+
+ 本帖最后由 红楼飞雪 于 2024-12-6 21:19 编辑 
+
+虽然以前也觉得soyo的操作很窒息，但真按今天的假药发散一下，怎么感觉更窒息了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+假设第七集以前的祥子确实还对c团有不少念想，等到未来经济情况稍好 soyo再适时劝诱一下，说不定crychic还真有可能重组成功
+
+结果实际是越做越错 误会越攒越多，第七集后的祥子只剩下“斩断留恋 忘记一切”，这时候soyo再a上来祥子的反应就是谁敢干涉我的决心我就攻击谁了（悲
+
+*****
+
+####  金钱与民主  
+##### 2197#       发表于 2024-12-6 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66862104&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-6 21:09</a>
+
+人偶这个都说过好多遍了，那我就来个更地狱的吧
+
+2.13祥子因为某些原因回老破小一趟，和爹发生冲突，爹复刻 ...</blockquote>
+话说你们是不是又忘了这是个少女乐队动画了......<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+

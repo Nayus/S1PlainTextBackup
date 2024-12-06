@@ -11212,3 +11212,38 @@ pv里的镜头越看越top2<img src="https://static.saraba1st.com/image/smiley/f
 
 这边不赚钱就无法把姨姥喜闻乐见的东西抬上来，怎么就是无法理解呢（）
 
+
+*****
+
+####  岸波白野  
+##### 1091#       发表于 2024-12-6 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66862120&amp;ptid=2209276" target="_blank">岸波白野扎比子 发表于 2024-12-6 21:10</a>
+
+这边不赚钱就无法把姨姥喜闻乐见的东西抬上来，怎么就是无法理解呢（）</blockquote>
+可俺寻思同样已经坐到姨姥那桌的种在种剧场的加持上好像还能再卖（胶）很多年，这水魔二年胶HG这种基本线出差不多了MB这种的高端产品线感觉一个不接，那不靠姨姥也就算了这同人谷子现在感觉那更是查无此人，至少我觉得水魔的角色商法后劲是很对不起官方的种后最大钢弹热潮背书的
+
+
+*****
+
+####  Wondering  
+##### 1092#       发表于 2024-12-6 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66862175&amp;ptid=2209276" target="_blank">岸波白野 发表于 2024-12-6 21:18</a>
+
+可俺寻思同样已经坐到姨姥那桌的种在种剧场的加持上好像还能再卖（胶）很多年，这水魔二年胶HG这种基本线 ...</blockquote>
+有趣的事情来了，我上次去新加坡hakken！！！时，的确整个第四层动漫区高达角色里，其他人都没看见，就看到了水魔的谷子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要我拍的照片给你看吗
+
+当然你可以说水魔的卖不掉所以只剩下水魔的谷子<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸波白野扎比子  
+##### 1093#       发表于 2024-12-6 21:23
+
+ 本帖最后由 岸波白野扎比子 于 2024-12-6 21:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66862175&amp;ptid=2209276" target="_blank">岸波白野 发表于 2024-12-6 21:18</a>
+
+可俺寻思同样已经坐到姨姥那桌的种在种剧场的加持上好像还能再卖（胶）很多年，这水魔二年胶HG这种基本线 ...</blockquote>
+没有想嘴硬的意思，我觉得水魔本来就是草台班子，后劲怎么样都对得起了。种可不是普通的姨姥，那是中兴之祖的姨姥，我说的姨姥是想要海盗高达那种。
+

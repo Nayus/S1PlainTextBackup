@@ -341,3 +341,20 @@
 
 原来如此，官方迟迟不发布年末企划告知全是为了等昨天mikorone的正式告知<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 10390#         楼主| 发表于 2024-12-6 12:56
+
+sololive之后工商联动就开始井喷
+
+看起来今年早前真的推掉了无数的工商
+
+*****
+
+####  holoan  
+##### 10391#         楼主| 发表于 2024-12-6 20:02
+
+别找holo讨订阅啊你们俩
+

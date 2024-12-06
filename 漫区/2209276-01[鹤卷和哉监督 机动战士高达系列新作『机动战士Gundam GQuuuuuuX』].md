@@ -11151,3 +11151,30 @@ khara那个产能 变下一个f91我信<img src="https://static.saraba1st.com/im
 
 万代：坐看右看都没点高达样儿，偏就叫高达了咋地吧
 
+
+*****
+
+####  yamato gun  
+##### 1084#       发表于 2024-12-6 19:58
+
+看了几天主角机看顺眼了，属于是cgi动起来很有跃动感的设计
+
+pv里的镜头越看越top2<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+希望真.国家队能整点大活，来点放飞的uc世界观<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  0aleph37  
+##### 1085#       发表于 2024-12-6 20:02
+
+水魔主线支线的不平衡还是卖模型卖角色需求冲突导致的
+
+
+*****
+
+####  Chiralium  
+##### 1086#       发表于 2024-12-6 20:02
+
+别聊水魔了，求你们了
+

@@ -7699,3 +7699,68 @@ ccc时期，祥子真的在乎所有老队友，参考第一集哭的时候除�
 
 可惜爽世终究是那个缺爱，需要他人主动闯入心门的角色
 
+
+*****
+
+####  贰臣  
+##### 2166#       发表于 2024-12-6 20:00
+
+soyo对祥子主动是不缺的，就是操作稀碎全是惊世智慧，可以说是编剧逼的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 2167#       发表于 2024-12-6 20:00
+
+真的解密了吗，我觉得还没开始，现在只是开胃菜
+
+ccc相关是用来钓胃口的，摆在明面上，从来不是重点，只关系到她退ccc是否合理（是否真的罪大恶极）
+
+而祥子身上其实还有别的更多的问题，都是集中在mujica时期的
+
+人偶的意义是什么（可能关联睦）
+
+第八集第十三集老宅的画面意味着什么
+
+她为什么要组建鸡
+
+为什么要给喵梦起名为爱的名字（可能也是喵梦线的谜题之一）
+
+为什么能信任的只有自己（祥子被爹赶出去是在武道馆场，而她第一场就这么说，虽然家庭原因勉强说得过去，但我倾向于还有别的原因）
+
+至于初睦，一个完全在藏，一个马上要揭开真面目
+
+鸡的解谜后面还有得玩呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  贰臣  
+##### 2168#       发表于 2024-12-6 20:01
+
+说到解密，我最期待就是访谈里提过的初华侦探定位了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  akiomn  
+##### 2169#       发表于 2024-12-6 20:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别说，素食至少c团解散当日操作没问题吧？硬要说有问题也就是祥子跑了她没追上去，但这个真怪不了素食。可惜之后素食的操作就全是问题了
+现在还差个睦视角没说睦是什么心态，不过我推测是讲睦陪祥子从小到鸡团成立的心路历程
+
+*****
+
+####  PDQ4  
+##### 2170#       发表于 2024-12-6 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66861519&amp;ptid=2208921" target="_blank">贰臣 发表于 2024-12-6 20:00</a>
+
+soyo对祥子主动是不缺的，就是操作稀碎全是惊世智慧，可以说是编剧逼的</blockquote>
+那确实也可以用操作稀碎来解释吧，不过我觉得行动力是真的没有拉满
+
+祥子失联那几天就应该直接冲办公室用真心感化老师，挖出祥子家地址
+
+可惜爽世不是这种主动型的角色，她是个本质是个喜欢刷手机的室内派宅女
+
+她一年后才终于开始行动，那时候早就已经晚了，这时候才是操作稀烂发挥的时候，直接给祥子彻底推远了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

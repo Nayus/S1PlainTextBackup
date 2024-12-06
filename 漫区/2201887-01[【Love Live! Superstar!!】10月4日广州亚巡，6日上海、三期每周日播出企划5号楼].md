@@ -11615,3 +11615,19 @@ nagi音乐剧，emorin生日会
 拉拉不是九人吗，哪里没齐</blockquote>
 满分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  离心  
+##### 1135#       发表于 2024-12-6 23:17
+
+好消息:有恋的戏份了
+
+坏消息:不知道补的怎么样
+
+好消息:进ll决赛了
+
+坏消息:第二名进的
+
+我是没想到11人这种级别的叠盒子都是第二名，别跟我说还要浪费集数去塑造敌团是吧
+

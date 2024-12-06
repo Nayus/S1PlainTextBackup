@@ -1446,3 +1446,163 @@ THE IDOLM@ster 765 MILLIONSTARS First Time in **
 
 sc的上海场3d播片live在申请中了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  joshua1990  
+##### 6739#       发表于 2024-12-6 23:20
+
+【「Cosmetic」2DMV (十王星南 誕生日記念)【学園偶像大师/初星学園】】 [https://www.bilibili.com/video/B ... 8636b5d51b02c4db6d6](https://www.bilibili.com/video/BV1tui6YdEJm/?share_source=copy_web&amp;vd_source=f3e5d27f194648636b5d51b02c4db6d6)
+
+*****
+
+####  wfhtony  
+##### 6740#       发表于 2024-12-6 23:21
+
+<img src="https://raw.githubusercontent.com/wfhtony/pic-deploy-01/master/img/PA00170471.jpg" referrerpolicy="no-referrer">
+
+　作詞：Stephanie Topalian、MOMONADY 
+
+　作曲：MOMONADY、YUKI FUNAKOSHI (Digz, Inc. Group) 
+
+　編曲：YUKI FUNAKOSHI (Digz, Inc. Group) 
+
+　歌：十王星南 (CV. 陽高 真白) 
+
+　All instruments &amp; programming：YUKI FUNAKOSHI (Digz, Inc. Group) 
+
+　Mixing Engineer：澁澤俊介
+
+＊實際發售有附帶伴奏。</blockquote>
+・Lyrics (Apple Music)<blockquote>“She’s so flawless", “Perfection"
+
+They say…
+
+No matter how it’s going
+
+I paint the scene
+
+All the shadows and the dark
+
+Create this shade, my way
+
+They raise me through the tides
+
+And turn to rays
+
+Every stroke, brush, color, shade
+
+Defining my depth, beauty, and shine
+
+And all of my charms I amplify
+
+I'm here to just make dreams happen, make life happen
+
+Take it day by day
+
+Discover your power from inside
+
+This glittery light is our design
+
+I'm lovin' the style
+
+The style…
+
+Alive…
+
+We're the fire..
+
+(I know what I want, I know what I want yeah)
+
+(I know what I got, I know what I got)
+
+We’re alive…
+
+Let’s go
+
+Guess I found the light
+
+Don’t even matter, every side is right
+
+Y’all just hold on tight
+
+Before I change it up I might
+
+Here comes another star
+
+Don’t be afraid to let the power grow
+
+Hand to hand so we could feel the beat together sing it like it’s our song
+
+If we could speak the truth
+
+Then let us sing this all day
+
+If we could break the rules
+
+Make sure it’s for the right thing
+
+Ready to go
+
+Strike up the pose
+
+From head to toe
+
+Slayin' the game you know that we are absolutely gold
+
+Every stroke, brush, color, shade
+
+Defining my depth, beauty, and shine
+
+And all of my charms I amplify
+
+I'm here to just make dreams happen, make life happen
+
+Take it day by day
+
+Discover your power from inside
+
+This glittery light is our design
+
+I'm lovin' the style
+
+The style…
+
+Alive…
+
+We're the fire..
+
+(I know what I want, I know what I want yeah)
+
+(I know what I got, I know what I got)
+
+We’re alive…
+
+This is no disguise babe
+
+I could be a rose
+
+Soft and sweet
+
+Come with me
+
+I know how it goes
+
+Break the norm…
+
+The style…
+
+(Break your body free)
+
+Alive…
+
+(Dancin' through the night yeah)
+
+We're the fire..
+
+(I know what I want, I know what I want yeah)
+
+(I know what I got, I know what I got)
+
+We’re alive…</blockquote>
+

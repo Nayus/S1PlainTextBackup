@@ -8598,3 +8598,54 @@ ccc时期，是允许她慢慢从这种丧母的伤痛里走出来的，也就�
 
 是在推测后续剧情的可能方向<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  金钱与民主  
+##### 2236#       发表于 2024-12-6 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66862842&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-6 23:08</a>
+
+虽然祥子被牢爹赶走了 
+
+但牢爹还是不会停止酗酒的
+
+就像一个定时炸弹一样在赤羽的出租屋里倒计时</blockquote>
+还是那句话，背景设定服务主线剧情，祥子是主角，她爹只是与她匹配的背景设定的一部分，第一话的赶人剧情我觉得非常高明的地方在于相当于爹这个角色在Mujica开播时就下线了，虽然继续当酒鬼是肯定的，但后面肯定不会继续出现警察把电话打过来要领人走的剧情，因为不需要了。
+
+*****
+
+####  Aendst  
+##### 2237#       发表于 2024-12-6 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66862840&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2024-12-6 23:07</a>
+
+我只是很好奇为啥你非要觉得在爹摆烂的时候提到过世的妈=自己也没能放下母亲过世，按这个说法那她这辈子都 ...</blockquote>
+其实没有人在论证组建C团是为了逃避丧母之痛或者论证到劝爹不要颓废时提到了母亲=自己也没能走出来
+
+反倒是只有漏油在论证组建c团不是为了逃避丧母之痛，提到母亲不是因为自己也没走出来
+
+另外的漏油思路基本上是围绕
+
+有诸多特写镜头的“人偶”今后会有经常在你楼被提到的“契科夫之枪”的作用
+
+个人的角色理解
+
+以及和你聊天
+
+这三个点展开的
+
+*****
+
+####  NODY  
+##### 2238#       发表于 2024-12-6 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66862646&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-6 22:28</a>
+
+？要不还是换个话题吧，人类无法互相理解
+
+有没有熟读邦原案的漏油能稍微说一下ppp原案里的部分角色的家庭 ...</blockquote>
+初设整个ppp都是受了父母辈那个逝去的乐队的影响而建立起来的
+
+你可以看做是ykn爹和louder之于ykn的影响力，然后五人加强版
+

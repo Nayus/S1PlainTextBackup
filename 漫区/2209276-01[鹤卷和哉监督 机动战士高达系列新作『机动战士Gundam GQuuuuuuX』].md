@@ -11553,3 +11553,32 @@ pv里的镜头越看越top2<img src="https://static.saraba1st.com/image/smiley/f
 今川自己写的啊
 不是他谁写得出那么冲的味道来
 
+
+*****
+
+####  Toby_dak  
+##### 1124#       发表于 2024-12-6 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66858697&amp;ptid=2209276" target="_blank">大十字紅朔 发表于 2024-12-6 15:39</a>
+
+那个只挂了个今川的名字吧</blockquote>
+官网首页挂着的图片，来说说上面写着的什么。
+
+<img src="https://img.saraba1st.com/forum/202412/07/001504u7bwracawg7ajlla.jpg" referrerpolicy="no-referrer">
+
+<strong>popup.jpg</strong> (260 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-6 23:15 上传
+
+*****
+
+####  王留美  
+##### 1125#       发表于 2024-12-6 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66862878&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2024-12-6 23:15</a>
+ 官网首页挂着的图片，来说说上面写着的什么。</blockquote>
+不过今川或者说G没资源是真的
+外传这套本子出三套OVA都绰绰有余，公开的时候也说了G的新作企划一直不给批，明明GB也好GBT也好GDRR也好都蹭G蹭得那么开心
+

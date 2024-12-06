@@ -7215,3 +7215,31 @@ Amoris，在架子鼓后面充满活力的演奏，用她有力的节拍为音�
 
 人家压根没来现场怎么发
 
+
+*****
+
+####  skives10  
+##### 2118#       发表于 2024-12-6 12:58
+
+<img src="https://img.saraba1st.com/forum/202412/06/125823v5gsdwsngz5dd5v8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0676.jpeg</strong> (171.41 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-6 12:58 上传
+
+https://x.com/momokan_1209_/status/1864863615687565748?s=46&amp;t=IZGx0N13SOtHALpwG0Ubrg
+
+*****
+
+####  仓鼠胖太  
+##### 2119#       发表于 2024-12-6 12:59
+
+“不要讨厌我”这句对应初华伙同喵梦摘面具要合理的多吧，怎么联想到那句评论的，大家伙思路好广，而且我感觉初华灯的关系性还是挺浪漫的
+
+话说那句评论光看日语其实不是典型恶评，更像路人随意的小吐槽，体感类似于南泵的假面这种欢乐吐槽，值得这么大关注度吗？
+
+mujika的问题肯定是团内解决概率更大，不然很难解释团队羁绊的形成，mygo最多起到一个引子或者第一季初华那种激励buff作用。而且铺这么大的开头，如果不集中描写mujika五人感觉篇幅都不够用
+

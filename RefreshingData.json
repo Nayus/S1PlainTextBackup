@@ -3777,7 +3777,7 @@
     "lastedit": 1733552220,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1478318": {
     "totalreply": 1412,
@@ -9864,10 +9864,10 @@
     "update": false
   },
   "2188260": {
-    "totalreply": 715,
+    "totalreply": 716,
     "title": "[『乱马½』完全新作动画 MAPPA制作 2024年10月]",
     "newtitle": "[『乱马½』完全新作动画 MAPPA制作 2024年10月]",
-    "lastedit": 1733598733,
+    "lastedit": 1733613129,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11430,10 +11430,10 @@
     "update": false
   },
   "2207788": {
-    "totalreply": 432,
+    "totalreply": 433,
     "title": "[流放之路2／降临(Path of Exile2) 大型施工现场]",
     "newtitle": "[流放之路2／降临(Path of Exile2) 12／7抢先体验 官中！开服前达成百万]",
-    "lastedit": 1733606650,
+    "lastedit": 1733613009,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12200,7 +12200,7 @@
     "newtitle": "[推一下《骰子浪游者》吧]",
     "lastedit": 1733354046,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2208149": {
@@ -17289,10 +17289,10 @@
     "update": false
   },
   "2209738": {
-    "totalreply": 74,
+    "totalreply": 75,
     "title": "[回国几周，在三四线小城的一些负面体验]",
     "newtitle": "[在三四线小城的一些负面体验]",
-    "lastedit": 1733608089,
+    "lastedit": 1733613369,
     "category": "外野",
     "active": true,
     "update": false

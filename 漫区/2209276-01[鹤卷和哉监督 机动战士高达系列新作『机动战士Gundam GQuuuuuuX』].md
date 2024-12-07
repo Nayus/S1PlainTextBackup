@@ -12093,3 +12093,11 @@ pv里好像是在卫星外头开干的
 
 希望这次不要再来万代上层的指手划脚和临时要求
 
+
+*****
+
+####  jojonathan  
+##### 1167#       发表于 2024-12-7 19:48
+
+说起来高达的动画/漫画作品是不是连着好几个都是女性主角了<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+

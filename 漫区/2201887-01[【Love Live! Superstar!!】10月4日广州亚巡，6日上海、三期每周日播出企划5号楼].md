@@ -11729,3 +11729,14 @@ snp真惨，凭什么我那片区只能进一个<img src="https://static.saraba1
 
 超级明星不是点题superstar吗，怎么就默认是堇了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 1144#       发表于 2024-12-7 19:48
+
+抽三次出了两个立牌运气不错
+<img src="https://p.sda1.dev/20/6f5b390ab67a91ef205905375cdacb6a/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

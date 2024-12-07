@@ -10062,3 +10062,52 @@ nmd北京南寄存个行李这么费劲<img src="https://static.saraba1st.com/im
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看祥子怎么通关睦线吧，说实话我真的想不到除了祥子外其他人救睦的可能了
 这可是半身啊
 
+
+*****
+
+####  傘木希美  
+##### 2365#       发表于 2024-12-7 19:49
+
+北京大家最后合唱了春日影才走的
+最开始放的官号团歌的live/动画混剪，好些个拿出应援棒的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.95-alpha
+
+*****
+
+####  瞳映山川  
+##### 2366#       发表于 2024-12-7 19:49
+
+睦睦，我只希望你幸福，不要你难过啊<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 2367#       发表于 2024-12-7 19:49
+
+以及稍微放心了一点，爽世好像没多激动，普通惊讶，预告也是挺平静的狗特供不开心脸，没多严肃
+
+爽姐终于不用当坏人了，好好和狗过日子吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RDBF  
+##### 2368#       发表于 2024-12-7 19:49
+
+特别草台，先放了声优视频，提前剧透了一波。虽然看过剧透，但现场看完了还是特别满足。
+
+
+*****
+
+####  NODY  
+##### 2369#       发表于 2024-12-7 19:55
+
+小道消息说先放声优感想再播第一集是wsd那边给的要求
+
+*****
+
+####  RDBF  
+##### 2370#       发表于 2024-12-7 19:57
+
+？我无法理解
+

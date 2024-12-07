@@ -9687,3 +9687,13 @@ nmd北京南寄存个行李这么费劲<img src="https://static.saraba1st.com/im
 
 老楼我就说过很多次了，无论是MyGO还是Mujica本质上都是武士道的商业团，只有CCC才是只属于独角兽的剧情团，而CCC的存在也保证了制作组一直说的MyGO和Mujica加起来才是一部完整的动画。
 
+
+*****
+
+####  6030sylar  
+##### 2332#       发表于 2024-12-7 18:08
+
+广州场搞笑，签到不了
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

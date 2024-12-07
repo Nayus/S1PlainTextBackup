@@ -10165,3 +10165,34 @@ nmd北京南寄存个行李这么费劲<img src="https://static.saraba1st.com/im
 若叶 睦  渡濑结月</blockquote>
 最后一个是寺杣昌纪。
 
+
+*****
+
+####  woeiqp00  
+##### 2374#       发表于 2024-12-7 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66867487&amp;ptid=2208921" target="_blank">傘木希美 发表于 2024-12-7 17:59</a>
+原来给这个
+
+—— 来自 鹅球 v3.3.95-alpha</blockquote>
+啊这原来还有卡包？我6点半到的，签到负责人跟我说物料发完了，但又从桌底下翻出来一个袋子给我，当时没细看我以为是补上了，结果海报卡包都没有<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  桜庭千景  
+##### 2375#       发表于 2024-12-7 20:09
+
+进藤天音 打错了啊
+
+*****
+
+####  桜庭千景  
+##### 2376#       发表于 2024-12-7 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66868323&amp;ptid=2208921" target="_blank">NODY 发表于 2024-12-7 19:55</a>
+
+小道消息说先放声优感想再播第一集是wsd那边给的要求</blockquote>
+哪有可能，就两个场放错了
+

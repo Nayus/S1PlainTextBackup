@@ -12023,3 +12023,24 @@ QQ图片20241207112315.jpg
 
 分享一个pvbgm的cover，还挺好听的。【机动战士高达GQuuuuuuX背景音乐cover】 [https://www.bilibili.com/video/B ... 8ea77843db65840ad21](https://www.bilibili.com/video/BV1NsiyYwEfK/?share_source=copy_web&amp;vd_source=0255bed28a0ac8ea77843db65840ad21)
 
+
+*****
+
+####  Chiralium  
+##### 1162#       发表于 2024-12-7 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66866505&amp;ptid=2209276" target="_blank">三度音 发表于 2024-12-7 15:41</a>
+附议，就是个美少女贴贴动画。。老给她乱增加什么地宇阶级矛盾，宇宙大战政治阴谋，机械美学可用性的设定干 ...</blockquote>
+保留一部分战争和政治的样板戏，这样你才知道你看的是高达
+
+
+*****
+
+####  RE㐅ia  
+##### 1163#       发表于 2024-12-7 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66866440&amp;ptid=2209276" target="_blank">Sliurus 发表于 2024-12-7 15:28</a>
+
+打黑拳我觉得还是比校园决斗要更合理一点的，不过直接在殖民卫星开战又好像太危险了一点，哪天捅个洞都不得 ...</blockquote>
+pv里好像是在卫星外头开干的
+

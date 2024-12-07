@@ -1214,3 +1214,13 @@ TOKYO MX、テレビ愛知、tvk、BS朝日ほか：2025年1月放送開始
 
 正式PV：[https://youtu.be/T9zHdVOM7qE](https://youtu.be/T9zHdVOM7qE)
 
+
+*****
+
+####  X(iaolw)S  
+##### 128#       发表于 2024-12-7 20:32
+
+这正统宣言太过了啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+

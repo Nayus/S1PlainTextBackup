@@ -10275,3 +10275,106 @@ nmd北京南寄存个行李这么费劲<img src="https://static.saraba1st.com/im
 其实有关心，祥子第一反应是走到睦旁边带睦下台，想法有说是“先下台……”，然后后面喵梦立马上来调戏祥 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实这里先下台，有可能是指要自己先下台？
 
+
+*****
+
+####  相坂君  
+##### 2383#       发表于 2024-12-7 20:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">心情微妙，祥子明显在把所有人拒之门外，“相信的人只有自己”吗……
+
+也难怪制作组会担心祥子的风评会不会受人喜欢，就你这样凶关心你的人，这能不担心吗
+
+更何况接下来睦的状态明显很不好，都不知道她能不能顺利演出，演出完会不会更崩溃
+
+而且她这个不信感这么重，这不好说什么时候能被修正
+
+唉……看看包饺子这个过程怎样吧，只能丰川p你自己加油，别太伤你关心你的人，绫奈手下留情啊<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ggxx001  
+##### 2384#       发表于 2024-12-7 20:28
+
+楼上滑坡会不会太严重了 不过本人一直觉得虽然两人关系非同一般 但自从祥失去母亲开始就变得自顾不暇 肯定是没注意到睦的问题 或者说她可能一直不知道睦的负罪感（是不是一直以来存疑） 说好的半身呢  可别真成单向的了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  skives10  
+##### 2385#       发表于 2024-12-7 20:29
+
+只要海港对决来了 一切都会好起来的
+
+*****
+
+####  akiomn  
+##### 2386#       发表于 2024-12-7 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66868603&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-7 20:28</a>
+其实这里先下台，有可能是指要自己先下台？
+
+还是得多看几遍</blockquote>
+这段我记得很清楚，祥子走到睦旁边，内心想法有台词的，“先下台……”，如果是自己下台没必要走到睦旁边了，应该是要带睦离开。然后就是喵梦拦住了，在观众呼声下祥子也被迫摘面
+
+*****
+
+####  Aendst  
+##### 2387#       发表于 2024-12-7 20:31
+
+只能海港对决复刻隔壁某企划红黄巨头名场面了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qjw114514  
+##### 2388#       发表于 2024-12-7 20:33
+
+换个方向想，难道睦线最早开了，却其实没通？继续高压锅炉，然后在海港那一幕爆炸？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 2389#       发表于 2024-12-7 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66868626&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-7 20:30</a>
+
+这段我记得很清楚，祥子走到睦旁边，内心想法有台词的，“先下台……”，如果是自己下台没必要走到睦旁边 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">等能二周目之后多注意一下……
+
+*****
+
+####  PDQ4  
+##### 2390#       发表于 2024-12-7 20:35
+
+ 本帖最后由 PDQ4 于 2024-12-7 20:37 编辑 
+
+单向不会，太下头了，绫奈既然嗑睦祥就不会这么写，祥子是会回箭头的人
+
+问题还是现在祥子的精神状态非常差，也可以说睦不走运吧，问的时候刚好祥子又遇见大问题在崩溃
+
+但是祥子这样一直陪着关心自己的人我不太能接受
+
+你邦幼驯染祖宗之法，等她自己挽回吧，至少第一集我用睦厨心态去看，好一个下头女<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+以及再提一个地方，人偶画面比想象的多，祥子回忆然后老破小作曲那里，有凸显人偶在祥子身后
+
+如果武道馆祥子有把人偶带走，人在做妈在看了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 2391#       发表于 2024-12-7 20:37
+
+海港那幕可能也有问题，睦有可能是背对祥子离开，pv玩了个倒放，图里祥子部分的色块很明显，而睦部分的色块不太对
+
+714D81CC-9619-4CAF-9AD6-3E4752F6EB02.jpeg
+(60.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 20:37 上传
+
+<img src="https://img.saraba1st.com/forum/202412/07/203707cjxvbhba5naivzmw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

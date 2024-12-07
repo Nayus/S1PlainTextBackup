@@ -11878,3 +11878,19 @@ pv里的镜头越看越top2<img src="https://static.saraba1st.com/image/smiley/f
 
 真的觉得机设很抽象，如无意外应该都不会入手<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  滴虫研究学家  
+##### 1148#       发表于 2024-12-7 10:39
+
+主角机如果是staff 絵を描くPETER 画的这个，就无脑入MR魂了，后续MB也请安排上
+
+<img src="https://img.saraba1st.com/forum/202412/07/103923sj0fhwapxizajwy9.jpg" referrerpolicy="no-referrer">
+
+<strong>e7286d224f4a20a43246d4e1d6529822720ed07f.jpg</strong> (162.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 10:39 上传
+

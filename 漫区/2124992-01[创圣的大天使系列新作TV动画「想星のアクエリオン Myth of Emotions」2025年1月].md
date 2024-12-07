@@ -1315,3 +1315,17 @@ TOKYO MX、テレビ愛知、tvk、BS朝日ほか：2025年1月放送開始
 
 盲听九成是小原好美
 
+
+*****
+
+####  ghostdio  
+##### 139#       发表于 2024-12-8 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66870160&amp;ptid=2124992" target="_blank">nanjolno 发表于 2024-12-07 23:47:45</a>
+遮CV多半是跟之前某个角色是同一人物（或者双子/前生/克隆人这类）用了同一CV
+
+盲听九成是小原好美 ...</blockquote>主要这声音基本一听就知道和雀斑妹是同一cv，甚至姓都一样，感觉是没啥遮的必要<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+不过想到之前推子神木光和萝莉神的cv刚出场也是问号，这个反而还算有点遮的理由
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

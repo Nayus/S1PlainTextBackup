@@ -31,3 +31,11 @@
 
 决赛看着倒是差距最大的对局
 
+
+*****
+
+####  laosai13  
+##### 5584#       发表于 2024-12-8 02:48
+
+决赛王中王能不能公布个第二贴牌<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">说起来决赛啥规则啊，瑞士轮？
+

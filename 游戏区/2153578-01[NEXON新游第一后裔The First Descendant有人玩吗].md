@@ -2929,3 +2929,16 @@ https://api.xiaoheihe.cn/v3/bbs/app/api/web/share?link_id=139927615
 
 卧槽，怎么今天又更新一次，三天更新三次，每次更新都要重写40G硬盘
 
+
+*****
+
+####  Andariel  
+##### 252#       发表于 2024-12-7 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66867949&amp;ptid=2153578" target="_blank">伊克路西安 发表于 2024-12-7 19:08</a>
+卧槽，怎么今天又更新一次，三天更新三次，每次更新都要重写40G硬盘
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在硬盘就是耗材，不用太操心了
+反正游戏盘不存数据，坏了换新
+

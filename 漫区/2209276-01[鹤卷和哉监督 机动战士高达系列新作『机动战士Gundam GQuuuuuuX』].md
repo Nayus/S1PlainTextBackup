@@ -12151,3 +12151,25 @@ pv里好像是在卫星外头开干的
 
 红发少女有什么象征意义吗？凯尔特血统？红发安妮？
 
+
+*****
+
+####  wasssf  
+##### 1173#       发表于 2024-12-7 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66868895&amp;ptid=2209276" target="_blank">0aleph37 发表于 2024-12-7 21:05</a>
+
+红发少女有什么象征意义吗？凯尔特血统？红发安妮？</blockquote>
+阿姆罗也是红毛
+
+*****
+
+####  PascalLefèvre  
+##### 1174#       发表于 2024-12-7 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66868895&amp;ptid=2209276" target="_blank">0aleph37 发表于 2024-12-7 21:05</a>
+红发少女有什么象征意义吗？凯尔特血统？红发安妮？</blockquote>
+犹大就是红发吧，可能有种恶魔附身的意味，暗示NT在宇宙世纪的遭遇<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

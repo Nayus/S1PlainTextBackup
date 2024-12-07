@@ -11439,3 +11439,67 @@ go是有一些开爆顺序的：爱音→立希→素世→灯，然后灯在天
 
 睦干什么都抱着吉他13集就有表现了，之前的假药是吉他就是祥子送给睦的，或者睦幕间里面自言自语的对象其实就是吉他
 
+
+*****
+
+####  DEI  
+##### 2496#       发表于 2024-12-7 22:49
+
+独角兽怎么会没有心呢，这么刀刀精准明明就是情感过剩，太了解感情了
+
+*****
+
+####  相坂君  
+##### 2497#       发表于 2024-12-7 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66869561&amp;ptid=2208921" target="_blank">瞳映山川 发表于 2024-12-7 22:38</a>
+
+发现睦睦采访还抱着吉他，初华和海铃都没有。一般采访不专门说明带乐器的话是不会带的吧？睦睦一直抱着吉他 ...</blockquote>
+其实睦的吉他出现很多次，pv里也有，13话演出前会练习缓解紧张，结束后还抱着打瞌睡，1话演出结束后也在抱着到访谈，吉他对她很重要
+
+鉴于节约宝手上那把是闪粉的，不知道有无砸吉他情节
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">乐队砸把吉他什么的很常见的吧！
+
+*****
+
+####  NODY  
+##### 2498#       发表于 2024-12-7 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66869650&amp;ptid=2208921" target="_blank">uhiuk 发表于 2024-12-7 22:46</a>
+
+看了眼隔壁走廊，“睦这样说话是我我给她一拳”“一个不顺就凶，睦赶紧跑让她死路边算了” ...</blockquote>
+有什么奇怪的，go早早播完了，go内部对于谁对不起谁都能内斗一整年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仓鼠胖太  
+##### 2499#       发表于 2024-12-7 22:50
+
+重看了一遍go第7集，灯台上说的其实挺励志的，不知道祥子那会儿具体的心路历程是啥样，应该会在mujika里倾情回放吧
+
+*****
+
+####  3353764798  
+##### 2500#       发表于 2024-12-7 22:50
+
+大喵拍祥子这一下祥子要是没站稳母鸡卡是不是就结束了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  鲍里斯  
+##### 2501#       发表于 2024-12-7 22:51
+
+死路边都来了，是不是有点太恨了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  skives10  
+##### 2502#       发表于 2024-12-7 22:53
+
+能不能来点温暖人心的故事 要求不高 第十集之后就可以<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

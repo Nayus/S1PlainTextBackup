@@ -11780,3 +11780,42 @@ https://x.com/gyozapouch/status/1865330815384904140?s=46&amp;t=IZGx0 ...</blockq
 
 具体还是得看一个月后吧
 
+
+*****
+
+####  3353764798  
+##### 2527#       发表于 2024-12-8 00:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66870369&amp;ptid=2208921" target="_blank">仓鼠胖太 发表于 2024-12-8 00:29</a>
+睦之前也没有啥登台恐惧症，感觉应该不是表演心理阴影的问题，估计还是和被开盒扒家庭背景这类的有关 ...</blockquote>
+ccc一人卖出去5张票就算成功，武道馆不是刚下台早饭吃的什么都拔出来了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  skives10  
+##### 2528#       发表于 2024-12-8 00:39
+
+睦害怕的应该是不是人群 而是媒体
+
+
+*****
+
+####  瞳映山川  
+##### 2529#       发表于 2024-12-8 00:43
+
+可以讨论预告吗？不合适我会删。预告给了社交网络一个画面，我看到放了睦的正脸照和若叶跟森美奈美的名字，可能是直接爆上热搜直接给睦睦开盒了。按睦大街上都会被人认出来的水平，可能小时候就被媒体围堵过有心理阴影了？
+
+*****
+
+####  akiomn  
+##### 2530#       发表于 2024-12-8 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66870385&amp;ptid=2208921" target="_blank">桜庭千景 发表于 2024-12-8 00:34</a>
+其实我有一种比较奇怪的感觉，本质上mygo-mujica是一个“大家都有缺憾”的故事
+
+就是，单从这个ep01阶段来看 ...</blockquote>
+理念冲突应该中期就会解决掉，喵梦不太可能延续到后期继续当主线
+按照pv，初华是藏的最深的那个，完全没有爆了的画面。还有祥子第一集也展现的差不多了，但精神状态很明显有问题，要么中期爆要么后期爆
+

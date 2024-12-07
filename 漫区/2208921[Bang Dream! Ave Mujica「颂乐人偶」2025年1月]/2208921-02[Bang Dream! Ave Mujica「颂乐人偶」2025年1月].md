@@ -10447,3 +10447,77 @@ code killkiss 复权的sakiko（错乱
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">漏油怎么都开始贷款了，只能说相信吧
 
+
+*****
+
+####  allesdg  
+##### 2400#       发表于 2024-12-7 20:59
+
+祥子和睦做的那辆车顶看出来有个圆头灯，包括车型看起来和13话初华坐的出租一样，车内饰也是同款后排白色座套，应该就是出租车没跑了，另外祥睦对话到祥子说只剩mujica的时候，镜头已经是显示车开向一个尖顶建筑(武道馆)了，到的这么快？如果台词和镜头没有时空错位的话，那这段对话就是发生在快到武道馆马上下车的时候？祥子一开始的发泄感觉又像是一上车就忍不住抱怨老爹的样子
+
+另外关于上面提的祥子对睦态度的滑坡，倒也没必要那么悲观，先不说未来可期flag什么的，虽然祥子对睦的表现看起来很“普通”，但明明是出于自尊心而面上带刺，实际上却是不管是自己的窘境，发泄还是失态，这些有伤自尊的行为在睦前都完全没一丁点顾忌的意图，太过不见外了，说到底是外部压力加上过于理所当然导致的不自知，半身可不就是这样“普通”而“理所当然”的关系么
+
+(另一点完全不顺路干嘛要让人家大老远过来陪着一起坐出租呢，不管有没有自知实际上已经是离不开对方了吧)
+
+
+*****
+
+####  akiomn  
+##### 2401#       发表于 2024-12-7 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66868835&amp;ptid=2208921" target="_blank">魔法使夜子 发表于 2024-12-7 20:56</a>
+漏油怎么都开始贷款了，只能说相信吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png">因为有立希这个前车之鉴啊，沟槽的柿本独角兽这帮人全喜欢迫害立希。现在看到睦祥这样也慌啊，万一独角兽恶趣味拉满了怎么办
+
+
+*****
+
+####  ykyin09  
+##### 2402#       发表于 2024-12-7 21:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有坛友能说一下小白是在回忆里还是剧情出场了？
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  akiomn  
+##### 2403#       发表于 2024-12-7 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66868881&amp;ptid=2208921" target="_blank">ykyin09 发表于 2024-12-7 21:03</a>
+有坛友能说一下小白是在回忆里还是剧情出场了？
+
+论坛助手,iPhone</blockquote>
+回忆出场
+
+*****
+
+####  御景  
+##### 2404#       发表于 2024-12-7 21:04
+
+我寻思你们也看了剧透啊，不知道祥子刚经历了什么吗？
+
+是不是要和退C团的时候一样，因为祥子态度不好所以踩祥子一年
+
+如果祥子经历这一连串事情，还行有余力，那mujica真就要祥子一拖4了。
+
+*****
+
+####  桜庭千景  
+##### 2405#       发表于 2024-12-7 21:04
+
+我算是知道为什么你楼隔三差五就冒出来素睦了
+
+你别管是不是pua，你就说语气好不好吧
+
+*****
+
+####  PDQ4  
+##### 2406#       发表于 2024-12-7 21:07
+
+如果把带刺但托底理解为对着半身撒娇，那之后不是只能狠狠肉偿了
+
+其实祥子相关已经分析够多了，心态很好理解
+
+这里主要是心疼睦，13集加上这一集，已经有明显的两次因为失言而悲的表情了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

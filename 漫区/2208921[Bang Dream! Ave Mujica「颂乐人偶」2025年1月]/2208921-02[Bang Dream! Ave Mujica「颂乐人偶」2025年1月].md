@@ -9212,3 +9212,57 @@ mygo都是和父母住在一起吧（除了soyo大部分时间守空房），某
 
 能放任女儿穿得那么火辣，还流连于三十多个乐队发展女女关系性，这父母存在也和空气一样吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哈曼的YY  
+##### 2287#       发表于 2024-12-7 12:59
+
+<img src="https://img.saraba1st.com/forum/202412/07/125914qqqqwbtic2atuzbt.jpg" referrerpolicy="no-referrer">
+
+<strong>GeF2h-0akAQtxsF-1.jpg</strong> (85.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 12:59 上传
+
+<img src="https://img.saraba1st.com/forum/202412/07/125927cg45eekoer7z4o5g.jpg" referrerpolicy="no-referrer">
+
+<strong>GeF2h-0bgAAiiz6-1.jpg</strong> (129.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 12:59 上传
+
+[https://x.com/Slug10000/status/1864902093192204605](https://x.com/Slug10000/status/1864902093192204605)
+
+*****
+
+####  黑夜落叶秋天  
+##### 2288#       发表于 2024-12-7 13:00
+
+睦这武器 又怪又喜感
+
+
+*****
+
+####  黑夜落叶秋天  
+##### 2289#       发表于 2024-12-7 13:02
+
+父母戏份可能提一嘴或者忽略不计吧 你看初华就根本没提过
+
+*****
+
+####  akiomn  
+##### 2290#       发表于 2024-12-7 13:06
+
+初华父母戏份确实没啥提的必要
+睦的爹妈我觉得应该会露脸，狗篇里就提到了
+
+*****
+
+####  NODY  
+##### 2291#       发表于 2024-12-7 13:06
+
+初华提过，给祥子的短信有一句“不能告诉家人以外的人，但是我想告诉你”
+

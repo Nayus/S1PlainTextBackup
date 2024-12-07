@@ -12249,3 +12249,37 @@ pv里好像是在卫星外头开干的
 
 和之前那个意义不明的高达短片有没有联系啊
 
+
+*****
+
+####  刺客ares  
+##### 1183#       发表于 2024-12-7 23:32
+
+<img src="https://img.saraba1st.com/forum/202412/07/231639izs14cmlcmbqmm9t.png" referrerpolicy="no-referrer">
+
+<strong>捕获.PNG</strong> (1.07 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 23:16 上传
+
+来点考据哥PV关系图，白哈啰和针织帽都是大姐头送女主的
+
+这作驾驶员是不是每人都有吉祥物，方便卖潮品小挂件是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+作为对比，再放一下水魔当初开播前的PV关系图
+
+<img src="https://img.saraba1st.com/forum/202412/07/232703z5nz333r1s228bqb.png" referrerpolicy="no-referrer">
+
+<strong>捕2获.PNG</strong> (1.44 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 23:27 上传
+
+可以看出GQX剧本结构上比水魔精简了不少
+
+狸猫对喵丽奈那个父亲死亡原因的女儿有点没绷住<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+看新作本篇上了现在的箭头有多少会变质<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

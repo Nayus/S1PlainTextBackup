@@ -11599,3 +11599,31 @@ go是有一些开爆顺序的：爱音→立希→素世→灯，然后灯在天
 
 咋楼里自己先打起来了
 
+
+*****
+
+####  PDQ4  
+##### 2513#       发表于 2024-12-7 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66870022&amp;ptid=2208921" target="_blank">swessia 发表于 2024-12-7 23:26</a>
+
+咋楼里自己先打起来了</blockquote>
+算我的锅吧，用词不当没想到是漏u雷区<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+以后说话要记得斟酌了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  发条之心  
+##### 2514#       发表于 2024-12-7 23:33
+
+现在只想看喵梦被黑流量反噬，掀面具时说的话让我觉得她对乐团充满恶意
+
+*****
+
+####  Qing_Qi_2.0  
+##### 2515#       发表于 2024-12-7 23:36
+
+看完这集的键帽，我只能说什么样的主播就有什么样的粉丝
+

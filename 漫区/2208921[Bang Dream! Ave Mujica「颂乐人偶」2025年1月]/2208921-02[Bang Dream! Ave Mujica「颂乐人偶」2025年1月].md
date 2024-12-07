@@ -9623,3 +9623,22 @@ nmd北京南寄存个行李这么费劲<img src="https://static.saraba1st.com/im
 不会是从这段采访里歪曲造谣的吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">还真是没说多或者少，只提了还是影响大，我看的是这篇的原文版，隔了点时间记岔了，我的锅
 
+
+*****
+
+####  仓鼠胖太  
+##### 2325#       发表于 2024-12-7 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66866898&amp;ptid=2208921" target="_blank">-LYRE- 发表于 2024-12-7 16:43</a>
+不会是从这段采访里歪曲造谣的吧</blockquote>
+这也不能说造谣，最多夸大了点，实际编剧就是意指mujika篇里老c团和mygo会起到比较大的作用
+
+
+*****
+
+####  skives10  
+##### 2326#       发表于 2024-12-7 17:14
+
+这个访谈最有意思的还是这句Ave Mujicaがメインになるからこそ描けるシーンも出てくると思います。
+不知道指的是娱乐圈还是百合度<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+

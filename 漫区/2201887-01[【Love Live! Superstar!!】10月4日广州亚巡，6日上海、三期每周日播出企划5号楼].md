@@ -11685,3 +11685,17 @@ snp真惨，凭什么我那片区只能进一个<img src="https://static.saraba1
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  你的本子出了  
+##### 1140#       发表于 2024-12-7 09:45
+
+五个人的时候赢不了冠军
+
+九个人的时候拿冠军
+
+十一个人的时候进决赛都踉踉跄跄
+
+按电竞思维的控制变量法，到底是谁在C，谁在混，谁在拖后腿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -20,3 +20,18 @@
 
 本来还挺喜欢造型和性格的，这下好感度直接归0了
 
+
+*****
+
+####  maojiashu  
+##### 7070#       发表于 2024-12-7 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66862941&amp;ptid=2160194" target="_blank">秘银mithril 发表于 2024-12-6 23:26</a>
+
+第三章约尔妲这个羁绊事件，给我看的有点无语
+
+我之前觉得艾梅丝像换了个角色，但其实约尔妲也是一样
+
+黎2双 ...</blockquote>
+这不就是闪轨的套路 一堆执行者莫名其妙的就成队友了 极致的弱化结社的反派形象
+

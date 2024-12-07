@@ -9476,3 +9476,27 @@ mygo都是和父母住在一起吧（除了soyo大部分时间守空房），某
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.95-alpha
 
+
+*****
+
+####  仓鼠胖太  
+##### 2311#       发表于 2024-12-7 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66866375&amp;ptid=2208921" target="_blank">傘木希美 发表于 2024-12-7 15:15</a>
+问到是这里了
+
+—— 来自 鹅球 v3.3.95-alpha</blockquote>
+几点开始点映哇
+
+
+*****
+
+####  傘木希美  
+##### 2312#       发表于 2024-12-7 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66866387&amp;ptid=2208921" target="_blank">仓鼠胖太 发表于 2024-12-7 15:18</a>
+几点开始点映哇</blockquote>
+7点开始，说是到8点40不知道还有啥安排要这么久
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.95-alpha
+

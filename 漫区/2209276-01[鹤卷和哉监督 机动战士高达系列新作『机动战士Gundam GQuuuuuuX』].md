@@ -11986,3 +11986,16 @@ QQ图片20241207112315.jpg
 
 夸克斯和水魔的开头拉平一对比，可能现在就女同没对上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大十字紅朔  
+##### 1158#       发表于 2024-12-7 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66862878&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2024-12-6 23:15</a>
+
+官网首页挂着的图片，来说说上面写着的什么。</blockquote>
+真的假的……<img src="https://static.saraba1st.com/image/smiley/carton2017/028.png" referrerpolicy="no-referrer">
+
+这是结束流放的意思吗，不知道以后还有没有新动画看
+

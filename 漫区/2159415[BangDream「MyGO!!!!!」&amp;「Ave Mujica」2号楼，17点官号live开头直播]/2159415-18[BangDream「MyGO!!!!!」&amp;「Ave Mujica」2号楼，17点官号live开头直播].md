@@ -17179,3 +17179,56 @@ monica和ras的娃娃也出了
 
 看其他手游的游戏群里简单对比了一下，视频源应该是从WEB换成BD，新增了日文字幕，调整了部分中文字幕（对比的是12话睦的“良かったね”），歌曲部分新增了特效（包括KTV睦唱歌、祥子成人歌、《Here, the world!》），视频是否有删减还没看出来
 
+
+*****
+
+####  [皆神孝介]  
+##### 26584#       发表于 2024-12-7 19:37
+
+第七话
+
+16:43
+
+<img src="https://img.saraba1st.com/forum/202412/07/193636oa7g8d76dac4d8mp.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2024-12-07_19-34-42.jpg</strong> (169.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 19:36 上传
+
+18:01
+
+<img src="https://img.saraba1st.com/forum/202412/07/193645rqxptdep7k7tkpjr.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2024-12-07_19-35-28.jpg</strong> (161.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 19:36 上传
+
+和声四缺一
+
+*****
+
+####  紫吹兰  
+##### 26585#         楼主| 发表于 2024-12-7 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66868174&amp;ptid=2159415" target="_blank">[皆神孝介] 发表于 2024-12-7 19:37</a>
+
+第七话
+
+16:43</blockquote>
+还有分色和声......这官方真比我想象的用心得多
+
+
+*****
+
+####  织部琴音  
+##### 26586#       发表于 2024-12-7 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66867799&amp;ptid=2159415" target="_blank">罗克萨斯 发表于 2024-12-7 18:42</a>
+
+哔哩哔哩番剧上架的MyGO，弹幕池就是以前的，装都不装了</blockquote>
+下架的时候直接说的就是隐藏
+

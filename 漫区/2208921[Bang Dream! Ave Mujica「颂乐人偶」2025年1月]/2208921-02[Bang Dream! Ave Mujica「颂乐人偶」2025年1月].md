@@ -10003,3 +10003,62 @@ nmd北京南寄存个行李这么费劲<img src="https://static.saraba1st.com/im
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  6030sylar  
+##### 2359#       发表于 2024-12-7 19:42
+
+播完了吗，又说到2040
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  PDQ4  
+##### 2360#       发表于 2024-12-7 19:42
+
+不可言说的看完了以后，喵梦确实更欠揍了
+
+睦那个逃避，还有预告被爆后疑似崩溃黑化脸，就问哪个睦推看了不心疼的<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+太坏了这个喵，要狠狠被队友调教<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 2361#       发表于 2024-12-7 19:44
+
+表情小细节模型调整和手绘都做太好了，真是肉眼可见的用心……
+
+
+*****
+
+####  瞳映山川  
+##### 2362#       发表于 2024-12-7 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66868218&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-7 19:42</a>
+
+不可言说的看完了以后，喵梦确实更欠揍了
+
+睦那个逃避，还有预告被爆后疑似崩溃黑化脸，就问哪个睦推看了不 ...</blockquote>
+补药啊，没看到但是光看文字我心都要碎了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  傘木希美  
+##### 2363#       发表于 2024-12-7 19:46
+
+祥<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.95-alpha
+
+*****
+
+####  akiomn  
+##### 2364#       发表于 2024-12-7 19:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看祥子怎么通关睦线吧，说实话我真的想不到除了祥子外其他人救睦的可能了
+这可是半身啊
+

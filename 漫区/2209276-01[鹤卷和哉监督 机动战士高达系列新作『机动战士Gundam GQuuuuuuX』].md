@@ -12044,3 +12044,32 @@ QQ图片20241207112315.jpg
 打黑拳我觉得还是比校园决斗要更合理一点的，不过直接在殖民卫星开战又好像太危险了一点，哪天捅个洞都不得 ...</blockquote>
 pv里好像是在卫星外头开干的
 
+
+*****
+
+####  刺客ares  
+##### 1164#       发表于 2024-12-7 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66866305&amp;ptid=2209276" target="_blank">DARILBALDE 发表于 2024-12-7 15:03</a>
+
+个人观点，对所谓反转还是放低期待的好，君不见水魔第零话之事乎
+
+清新的视觉风格，闻名遐迩的主创，剧场版 ...</blockquote>
+这两作给我的感觉就是万代在黑板上写下同一套考题，找两个班子到下面坐着解题
+
+代哥敲着黑板说你们给我出一个：
+
+有红发高中生MS驾驶员女主
+
+有首集相遇的有背景冷感女二
+
+有神秘高达驾驶员男角
+
+有与战争无关的纯竞技对战主线
+
+有让姨姥皱眉的颇有创新的机设
+
+有黑深残但就是个背景的背景设定
+
+台下大中小和鹤卷痞子拿卷子就开始做，现在大中小交完卷，轮到K社了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

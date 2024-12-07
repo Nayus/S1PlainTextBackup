@@ -9669,3 +9669,21 @@ nmd北京南寄存个行李这么费劲<img src="https://static.saraba1st.com/im
 
 好羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  傘木希美  
+##### 2330#       发表于 2024-12-7 17:59
+
+<img src="https://p.sda1.dev/20/ea88a5e6a91e82749fb8ea3e13034478/image.jpg" referrerpolicy="no-referrer">原来给这个
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.95-alpha
+
+
+*****
+
+####  紫吹兰  
+##### 2331#       发表于 2024-12-7 18:03
+
+老楼我就说过很多次了，无论是MyGO还是Mujica本质上都是武士道的商业团，只有CCC才是只属于独角兽的剧情团，而CCC的存在也保证了制作组一直说的MyGO和Mujica加起来才是一部完整的动画。
+

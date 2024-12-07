@@ -97,3 +97,23 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
 
+
+*****
+
+####  maojiashu  
+##### 7075#       发表于 2024-12-7 10:58
+
+现在结社已经是搞笑组织了 除了某几个柱子和执行者 其他都当搞笑角色看就行了 
+
+*****
+
+####  卢迪克  
+##### 7076#       发表于 2024-12-7 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66864592&amp;ptid=2160194" target="_blank">苏斯赫查 发表于 2024-12-7 10:20</a>
+
+你说的王太子吧，他明显是喜欢上兰迪堂妹了，被女人拐跑了，结果到现在也没啥戏份
+
+—— 来自 鹅球 v3.3. ...</blockquote>
+凑人头而已，现在都没搞随从骑士了，直接星杯组队出场。有些就是进去填位置不代表有戏份
+

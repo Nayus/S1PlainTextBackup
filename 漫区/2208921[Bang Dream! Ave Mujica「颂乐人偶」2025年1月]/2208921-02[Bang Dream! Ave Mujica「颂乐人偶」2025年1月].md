@@ -10843,3 +10843,61 @@ yysy车上祥子的“强硬”态度早在之前新加坡的枪版里就已经�
 灯的台词 完全一致
 不过反应不一样就是了
 
+
+*****
+
+####  桜庭千景  
+##### 2439#       发表于 2024-12-7 21:38
+
+我是不是素睦根本在乎需不需要跟人证明，
+
+但是对祥子一口一个下头女的事什么成分倒是很有意思
+
+笑
+
+*****
+
+####  skives10  
+##### 2440#       发表于 2024-12-7 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66869136&amp;ptid=2208921" target="_blank">桜庭千景 发表于 2024-12-7 21:38</a>
+我是不是素睦根本在乎需不需要跟人证明，
+
+但是对祥子一口一个下头女的事什么成分倒是很有意思
+
+笑 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">泥潭只是对祥子有种辱追心态罢了
+
+
+*****
+
+####  skives10  
+##### 2441#       发表于 2024-12-7 21:43
+
+啊我操祥爹怎么这么坏
+这力度打到祥子脸上也很正常啊 他根本没收着
+
+*****
+
+####  Aendst  
+##### 2442#       发表于 2024-12-7 21:45
+
+是，这个啤酒罐就是完全不考虑后果，甚至有可能是刻意扔过去的
+
+我觉得祥子没当场爆炸已经很努力了……<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ggxx001  
+##### 2443#       发表于 2024-12-7 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66869036&amp;ptid=2208921" target="_blank">桜庭千景 发表于 2024-12-7 21:23</a>
+mygo里祥子就希望睦自主一点，对所有人的态度里除了初华就是对睦最好，
+
+所有东西都不瞒着睦，
+
+每次在睦面前 ...</blockquote>
+之所以会产生微词 不就是因为睦祥的关系非同一般 拿素睦来比较 那睦祥也不用演了 直接宣告破产得了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -1626,3 +1626,11 @@ We’re alive…</blockquote>
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  Ask_10A  
+##### 6743#       发表于 2024-12-7 21:41
+
+sena这首生日曲风味真的足，太搭了
+

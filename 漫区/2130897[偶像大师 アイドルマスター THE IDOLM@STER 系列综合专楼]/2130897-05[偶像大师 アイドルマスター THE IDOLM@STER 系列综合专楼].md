@@ -1634,3 +1634,29 @@ We’re alive…</blockquote>
 
 sena这首生日曲风味真的足，太搭了
 
+
+*****
+
+####  oznark  
+##### 6744#       发表于 2024-12-7 23:50
+
+<img src="https://img.saraba1st.com/forum/202412/07/084934i57nemgzem6cw9x9.png" referrerpolicy="no-referrer">
+
+<strong>ebf8498a4cb2335c878d2e1069d01a5a.png</strong> (175.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 23:49 上传
+
+这个莉波娃娃是谁设计的
+
+
+*****
+
+####  没取名啊  
+##### 6745#       发表于 2024-12-7 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66870170&amp;ptid=2130897" target="_blank">oznark 发表于 2024-12-7 23:50</a>
+这个莉波娃娃是谁设计的</blockquote>
+这香肠嘴，笑喷了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

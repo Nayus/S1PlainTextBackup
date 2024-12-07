@@ -11658,3 +11658,26 @@ yysy，allin和小猫起码不搞大事的
 
 2024-12-7 23:43 上传
 
+
+*****
+
+####  vigada  
+##### 2518#       发表于 2024-12-7 23:51
+
+还是没敢看枪版，不过看了下文字剧透和图……只能说喵喵你的谷价还有下潜空间
+
+
+*****
+
+####  akiomn  
+##### 2519#       发表于 2024-12-7 23:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 第一集祥子表情越品越美味，太嬷了，好想看祥子被初华和睦联手按在床上时候的表情
+
+*****
+
+####  瞳映山川  
+##### 2520#       发表于 2024-12-7 23:53
+
+台上和预告里睦睦的表情我是真心疼了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+

@@ -1300,3 +1300,18 @@ TOKYO MX、テレビ愛知、tvk、BS朝日ほか：2025年1月放送開始
 
 创圣是要谈恋爱的吧，顶着这人设合适吗
 
+
+*****
+
+####  nanjolno  
+##### 138#       发表于 2024-12-7 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66870004&amp;ptid=2124992" target="_blank">ghostdio 发表于 2024-12-7 23:24</a>
+
+这遮cv有什么意义吗
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端</blockquote>
+遮CV多半是跟之前某个角色是同一人物（或者双子/前生/克隆人这类）用了同一CV
+
+盲听九成是小原好美
+

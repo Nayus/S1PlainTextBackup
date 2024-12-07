@@ -3777,7 +3777,7 @@
     "lastedit": 1733552220,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1478318": {
     "totalreply": 1412,
@@ -8631,10 +8631,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 108245,
+    "totalreply": 108246,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1733609288,
+    "lastedit": 1733612890,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -14463,10 +14463,10 @@
     "update": false
   },
   "2208921": {
-    "totalreply": 2566,
+    "totalreply": 2567,
     "title": "[Bang Dream! Ave Mujica「颂乐人偶」2025年1月]",
     "newtitle": "[BanG Dream! Ave Mujica「颂乐人偶」2025年1月]",
-    "lastedit": 1733606767,
+    "lastedit": 1733612890,
     "category": "漫区",
     "active": true,
     "update": false
@@ -17280,10 +17280,10 @@
     "update": false
   },
   "2209595": {
-    "totalreply": 42,
+    "totalreply": 43,
     "title": "[摩尔定律已经到头，以后芯片怎么发展？]",
     "newtitle": "[摩尔定律已经到头，以后芯片怎么发展？]",
-    "lastedit": 1733586753,
+    "lastedit": 1733612769,
     "category": "外野",
     "active": true,
     "update": false

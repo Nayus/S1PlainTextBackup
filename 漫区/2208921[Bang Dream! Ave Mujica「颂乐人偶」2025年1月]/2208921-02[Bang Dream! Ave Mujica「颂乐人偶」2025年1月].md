@@ -9612,3 +9612,14 @@ nmd北京南寄存个行李这么费劲<img src="https://static.saraba1st.com/im
 我记得是说过c团剧情会有，但没说比mygo多，比mygo还多那无敌了，mygo第三集整整一集是c团剧情。
 而且现在c团剧情顶多差一个睦视角了，祥子视角已经用第一集半集写清了，睦视角不可能用一整集来写
 
+
+*****
+
+####  UNISONIA  
+##### 2324#       发表于 2024-12-7 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66866898&amp;ptid=2208921" target="_blank">-LYRE- 发表于 2024-12-7 16:43</a>
+
+不会是从这段采访里歪曲造谣的吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">还真是没说多或者少，只提了还是影响大，我看的是这篇的原文版，隔了点时间记岔了，我的锅
+

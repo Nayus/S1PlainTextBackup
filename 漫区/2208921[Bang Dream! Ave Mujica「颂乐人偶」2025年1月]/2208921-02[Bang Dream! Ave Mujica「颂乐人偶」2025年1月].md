@@ -9722,3 +9722,76 @@ nmd北京南寄存个行李这么费劲<img src="https://static.saraba1st.com/im
 —— 来自 鹅球 v3.3.95-alpha</blockquote>
 卡面好看吗<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  椎名真希  
+##### 2335#       发表于 2024-12-7 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66867652&amp;ptid=2208921" target="_blank">傘木希美 发表于 2024-12-7 18:20</a>
+
+我抽到了灯和soyo，同事抽到了灯和初华
+
+—— 来自 鹅球 v3.3.95-alpha</blockquote>
+来点观后感吧
+
+先主观打个分<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  傘木希美  
+##### 2336#       发表于 2024-12-7 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66867666&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-7 18:23</a>
+卡面好看吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.95-alpha
+
+*****
+
+####  傘木希美  
+##### 2337#       发表于 2024-12-7 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66867707&amp;ptid=2208921" target="_blank">椎名真希 发表于 2024-12-7 18:27</a>
+来点观后感吧
+
+先主观打个分</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">主要我已经给自己剧透完了，虽说没去听音频和看盗摄的吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.95-alpha
+
+*****
+
+####  椎名真希  
+##### 2338#       发表于 2024-12-7 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66867731&amp;ptid=2208921" target="_blank">傘木希美 发表于 2024-12-7 18:30</a>
+
+主要我已经给自己剧透完了，虽说没去听音频和看盗摄的吧
+
+—— 来自 鹅球 v3.3.95-alpha ...</blockquote>
+完成度上面呢，听别人剧透和实地看感觉还是差距很大的
+
+
+*****
+
+####  傘木希美  
+##### 2339#       发表于 2024-12-7 18:35
+
+艹有老哥带个手机支架在脑袋上，打算直接录了
+太牛逼了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.95-alpha
+
+*****
+
+####  akiomn  
+##### 2340#       发表于 2024-12-7 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66867731&amp;ptid=2208921" target="_blank">傘木希美 发表于 2024-12-7 18:30</a>
+主要我已经给自己剧透完了，虽说没去听音频和看盗摄的吧
+
+—— 来自 鹅球 v3.3.95-alpha ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看文字剧透和自己看区别很大的，特别是键帽欠爱那段，自己看才会明白键帽有多欠爱
+

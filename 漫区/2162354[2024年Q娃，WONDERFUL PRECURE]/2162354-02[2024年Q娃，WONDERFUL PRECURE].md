@@ -67,3 +67,25 @@ https://www.bilibili.com/opus/1006568537675792423</blockquote>
 
 我已经完全不知道高桥麻树想干什么了，连续两年，想一出是一出，铺垫衔接约等于没有
 
+
+*****
+
+####  pokemon最爱  
+##### 2641#       发表于 2024-12-7 18:33
+
+寿命论的内容其实多少是可以预想到的，最重要的铺垫其实是剧场版小麦的台词——要和彩羽一起变成老奶奶那句。
+
+以宠物为主题本身也很难回避寿命论的问题，甚至应该说刻意回避才是下策，这跟热带里人鱼与人类间的寿命论不同，宠物的寿命问题那是现实中养宠物的人确实要面临的问题之一。
+
+*****
+
+####  pokemon最爱  
+##### 2642#       发表于 2024-12-7 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66866611&amp;ptid=2162354" target="_blank">李霞 发表于 2024-12-7 15:55</a>
+
+制作人希望明天家长指导，寿命论真的要落地吗...
+
+也不对啊，这话是面向大龄观众说的吧...</blockquote>
+最能证明明天要讲寿命论问题的其实是45话杂志预告吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">相当于确定了44话45话两话就是要讲寿命论相关的内容。
+

@@ -127,3 +127,11 @@
 
 她入队的理由自然是模型复用  勤俭持家这样的
 
+
+*****
+
+####  妄想中毒  
+##### 7078#       发表于 2024-12-7 18:35
+
+其实我更搞不懂界整个女版基尔巴特是图啥的，根本不需要这么多谐星反派啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

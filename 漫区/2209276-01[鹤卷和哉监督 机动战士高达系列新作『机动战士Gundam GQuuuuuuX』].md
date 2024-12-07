@@ -11925,3 +11925,20 @@ QQ图片20241207112315.jpg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  mj240608414  
+##### 1151#       发表于 2024-12-7 12:42
+
+话说军团战这个概念其实就是经典的两边打完仗之后为了不死人然后派精英对战分蛋糕吧。感觉跟g高里师匠那一代用高达决定各国利益挺像的
+
+—— 来自 Xiaomi 22127RK46C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  gundammarkⅡ  
+##### 1152#       发表于 2024-12-7 12:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/20/89f61cff392698528586b05cd511e530/image.jpg" referrerpolicy="no-referrer">
+

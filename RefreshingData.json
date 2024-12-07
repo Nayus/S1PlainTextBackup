@@ -3777,7 +3777,7 @@
     "lastedit": 1733552220,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1478318": {
     "totalreply": 1412,
@@ -8631,10 +8631,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 108238,
+    "totalreply": 108240,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1733603530,
+    "lastedit": 1733604731,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -14463,10 +14463,10 @@
     "update": false
   },
   "2208921": {
-    "totalreply": 2563,
+    "totalreply": 2564,
     "title": "[Bang Dream! Ave Mujica「颂乐人偶」2025年1月]",
     "newtitle": "[BanG Dream! Ave Mujica「颂乐人偶」2025年1月]",
-    "lastedit": 1733601847,
+    "lastedit": 1733604607,
     "category": "漫区",
     "active": true,
     "update": false
@@ -15359,7 +15359,7 @@
     "newtitle": "[天津一京剧演员因为网上和人吵架，被挖出黑历史，所有演出都被取消了，戏迷在跳脚]",
     "lastedit": 1733345292,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2209152": {
@@ -15804,10 +15804,10 @@
     "update": false
   },
   "2209252": {
-    "totalreply": 976,
+    "totalreply": 977,
     "title": "[中东专楼12月，看清楚规则再回帖]",
     "newtitle": "[中东专楼12月，看清楚规则再回帖]",
-    "lastedit": 1733603773,
+    "lastedit": 1733604731,
     "category": "外野",
     "active": true,
     "update": false
@@ -17325,10 +17325,10 @@
     "update": false
   },
   "2209499": {
-    "totalreply": 43,
+    "totalreply": 44,
     "title": "[有啥对大体重糖尿病人友好的室内运动]",
     "newtitle": "[有啥对大体重糖尿病人友好的室内运动]",
-    "lastedit": 1733590102,
+    "lastedit": 1733605088,
     "category": "外野",
     "active": true,
     "update": false

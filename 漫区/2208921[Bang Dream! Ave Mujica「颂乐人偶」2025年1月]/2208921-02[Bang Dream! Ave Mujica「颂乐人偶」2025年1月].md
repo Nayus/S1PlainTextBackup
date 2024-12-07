@@ -11918,3 +11918,59 @@ ccc一人卖出去5张票就算成功，武道馆不是刚下台早饭吃的什�
 纯路人第一次大量看鸡狗评论区这都引了什么人来啊 ...</blockquote>
 前面大概在800楼左右，有聊到这个，日本的文化习俗是这样的
 
+
+*****
+
+####  akiomn  
+##### 2541#       发表于 2024-12-8 01:37
+
+ 本帖最后由 akiomn 于 2024-12-8 01:38 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看初华直球表白那段，祥子说实话……挺木的，惊讶和感动居多
+
+以后祥子哪天被忍不住的睦和初华一起上了真怨不得别人
+
+*****
+
+####  杂灰  
+##### 2542#       发表于 2024-12-8 01:39
+
+<img src="https://img.saraba1st.com/forum/202412/08/013907zo8lo4jdfblp3o75.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (59.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-8 01:39 上传
+
+en号这么喜欢破坏mujica的世界观吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 2543#       发表于 2024-12-8 01:41
+
+她自己找的幼驯染，还要盐人凶人，就是要负责的啊，唉，情债<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  相坂君  
+##### 2544#       发表于 2024-12-8 01:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥子在某些时候很木，但是有时候蛮直接的
+
+*****
+
+####  oldgoat  
+##### 2545#       发表于 2024-12-8 01:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66870515&amp;ptid=2208921" target="_blank">集合酱 发表于 2024-12-8 01:11</a>
+
+祥子爷爷是亲的吗？收养自己的亲孙女做女儿？
+
+纯路人第一次大量看鸡狗评论区这都引了什么人来啊 ...</blockquote>
+你可以把后面那个“女儿”看成是确立家族继承上的地位关系而不是血缘关系，相当于昭告天下“这是我家的太子/太女”的意思。当然以我国传统称呼上会更兼顾且更严谨一些，比如直接叫“太孙”之类。
+
+圣母在上的藤堂志摩子也是类似的情况。不过那个也还有不太一样的地方，即志摩子父母早亡，收养的祖辈为了给她足够的亲情所以对内对外都刻意淡化了自己其实跟她差着两辈。
+

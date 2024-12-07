@@ -12222,3 +12222,30 @@ pv里好像是在卫星外头开干的
 
 总不能吃古谷彻一辈子
 
+
+*****
+
+####  FoolyCoolly  
+##### 1180#       发表于 2024-12-7 22:31
+
+鹤卷这么有才华的监督一辈子没拍过几部片真的可惜，我支持庵野从此退居幕后，khara全权由鹤卷掌舵<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ナルバレック  
+##### 1181#       发表于 2024-12-7 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66869474&amp;ptid=2209276" target="_blank">otaku21126 发表于 2024-12-7 22:26</a>
+
+尝试使用女角色全面顶替阿姆罗呗
+
+总不能吃古谷彻一辈子</blockquote>
+全面顶替阿姆罗不可能的，以后和夏亚大概率是用AI，牛自由掉毛这种大概率能卖不止半个世纪的胶的，可遇不可求
+
+*****
+
+####  yevvet  
+##### 1182#       发表于 2024-12-7 22:37
+
+和之前那个意义不明的高达短片有没有联系啊
+

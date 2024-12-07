@@ -9931,3 +9931,37 @@ nmd北京南寄存个行李这么费劲<img src="https://static.saraba1st.com/im
 我已经看不懂pv海港那幕，睦到底是走向祥子还是远离了，pv太糊了，看不清睦到底是正面还是背面，只知道这个 ...</blockquote>
 我觉得应该是靠近 然后说了什么劲爆秘闻 祥子才会是那个表情
 
+
+*****
+
+####  PDQ4  
+##### 2351#       发表于 2024-12-7 19:18
+
+听说你B草台完了，放动画前就给剧透了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 2352#       发表于 2024-12-7 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66868027&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-7 19:18</a>
+听说你B草台完了，放动画前就给剧透了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">据说放动画前先放声优访谈，全给剧透完了
+
+
+*****
+
+####  瞳映山川  
+##### 2353#       发表于 2024-12-7 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66868035&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-7 19:19</a>
+据说放动画前先放声优访谈，全给剧透完了</blockquote>
+这么草台的吗，难道默认现场都看过剧透了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+*****
+
+####  杂灰  
+##### 2354#       发表于 2024-12-7 19:24
+
+是第一集的观后感还是全篇啊<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+

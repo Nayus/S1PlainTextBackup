@@ -102,3 +102,16 @@ https://www.bilibili.com/opus/1006568537675792423</blockquote>
 
 大概会让小麦在十年后跑去微笑花园魔法世界生活吧。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 2644#       发表于 2024-12-7 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66867920&amp;ptid=2162354" target="_blank">夜游宫 发表于 2024-12-7 19:03</a>
+
+刻意回避是下策。用超自然力量让狗子长命百岁也属于下策。
+
+大概会让小麦在十年后跑去微笑花园魔法世界生 ...</blockquote>
+实际上20集前就有人提微笑花园是死后世界的说法了，所以真讲寿命论的话让小麦小雪作为狗和猫在人类世界死去后成为微笑花园的成员应该是最可行的解法了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

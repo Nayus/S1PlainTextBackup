@@ -12209,3 +12209,16 @@ pv里好像是在卫星外头开干的
 
 我怎么觉得本楼姨姥好像很多都不知道机设山下育人之前做了雪风……
 
+
+*****
+
+####  otaku21126  
+##### 1179#       发表于 2024-12-7 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66868895&amp;ptid=2209276" target="_blank">0aleph37 发表于 2024-12-7 21:05</a>
+
+红发少女有什么象征意义吗？凯尔特血统？红发安妮？</blockquote>
+尝试使用女角色全面顶替阿姆罗呗
+
+总不能吃古谷彻一辈子
+

@@ -10378,3 +10378,49 @@ nmd北京南寄存个行李这么费劲<img src="https://static.saraba1st.com/im
 
 <img src="https://img.saraba1st.com/forum/202412/07/203707cjxvbhba5naivzmw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 2392#       发表于 2024-12-7 20:40
+
+不要真复刻llx，祥子众叛亲离了，不要这种大女主<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  相坂君  
+##### 2393#       发表于 2024-12-7 20:42
+
+ 本帖最后由 相坂君 于 2024-12-7 20:44 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">距离13话过去没多久，出道后事情多，还有爹这个扔酒瓶，这状态应该会变得比13话差
+
+这么差的情况，mujica还爆了，被硬生生架在火上烤
+
+几小时前还只有mujica，后脚就整了个大的，绫奈恶趣味满溢
+
+*****
+
+####  UNISONIA  
+##### 2394#       发表于 2024-12-7 20:43
+
+祥妈CV选大原还蛮有意思的，各种方面上
+
+*****
+
+####  skives10  
+##### 2395#       发表于 2024-12-7 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66868716&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-7 20:40</a>
+不要真复刻llx，祥子众叛亲离了，不要这种大女主</blockquote>
+code killkiss 复权的sakiko（错乱
+
+*****
+
+####  akiomn  
+##### 2396#       发表于 2024-12-7 20:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果之后的睦线不是祥子亲自解决睦的问题，我真得跟着希厨一块对独角兽发起冲锋了。
+双子xp就是拿来虐的是吧
+

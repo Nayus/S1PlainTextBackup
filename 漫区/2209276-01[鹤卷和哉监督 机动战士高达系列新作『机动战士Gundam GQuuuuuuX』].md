@@ -12101,3 +12101,19 @@ pv里好像是在卫星外头开干的
 
 说起来高达的动画/漫画作品是不是连着好几个都是女性主角了<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸波白野扎比子  
+##### 1168#       发表于 2024-12-7 20:45
+
+吉翁妖精，水魔，还有敏鬼的漫画，加上手游那个坂本真绫配音的女主，而且大家都是红色头发，也许一切都是为了这个18年的企划铺垫<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灵魂收割机  
+##### 1169#       发表于 2024-12-7 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66865428&amp;ptid=2209276" target="_blank">gundammarkⅡ 发表于 2024-12-7 12:44</a></blockquote>
+刷不出图。
+

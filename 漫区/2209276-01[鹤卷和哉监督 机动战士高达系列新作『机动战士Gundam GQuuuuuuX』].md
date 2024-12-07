@@ -12117,3 +12117,11 @@ pv里好像是在卫星外头开干的
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66865428&amp;ptid=2209276" target="_blank">gundammarkⅡ 发表于 2024-12-7 12:44</a></blockquote>
 刷不出图。
 
+
+*****
+
+####  灵魂收割机  
+##### 1170#       发表于 2024-12-7 20:48
+
+代孙高层说不定觉得自己指挥得很对呢，这不是赚到钱了吗？
+

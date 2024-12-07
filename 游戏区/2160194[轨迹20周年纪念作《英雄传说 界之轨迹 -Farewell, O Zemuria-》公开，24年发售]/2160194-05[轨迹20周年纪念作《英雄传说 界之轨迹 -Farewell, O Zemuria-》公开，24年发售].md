@@ -66,3 +66,20 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
 
+
+*****
+
+####  秘银mithril  
+##### 7073#       发表于 2024-12-7 10:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66864505&amp;ptid=2160194" target="_blank">苏斯赫查 发表于 2024-12-7 10:05</a>
+
+对啊，没印象吧？那才好揉捏，黎2看到他们进执行者就知道肯定洗白了，执行者就没一个坏的
+
+—— 来自 鹅 ...</blockquote>
+我觉得最搞笑的就是，黎2进结社还指望他俩干点啥事儿呢
+
+界轨转头就散伙了，笑死个人
+
+闪4不也有个小孩和结社跑了，如果创轨就哭唧唧的跑回来说不干了，得多搞笑
+

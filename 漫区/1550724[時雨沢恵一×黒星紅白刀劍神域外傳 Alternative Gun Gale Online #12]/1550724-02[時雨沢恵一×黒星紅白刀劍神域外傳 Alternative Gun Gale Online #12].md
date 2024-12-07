@@ -65,3 +65,24 @@
 为了凸显NPC的神威把其他队伍垫的有些过分了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">也不算垫吧？最后BOSS的确非常强
 
+
+*****
+
+####  mhss  
+##### 1999#       发表于 2024-12-7 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66866471&amp;ptid=1550724" target="_blank">梶原ひかり 发表于 2024-12-7 15:35</a>
+
+也不算垫吧？最后BOSS的确非常强</blockquote>
+MMTM那走位我觉得就是冲着团灭去的，扎成一堆<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  roydimus  
+##### 2000#       发表于 2024-12-7 16:44
+
+反正能复活，先垫一下
+莲也直接被打成筛子了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

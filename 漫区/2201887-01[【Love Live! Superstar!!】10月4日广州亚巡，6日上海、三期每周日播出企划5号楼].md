@@ -11721,3 +11721,11 @@ snp真惨，凭什么我那片区只能进一个<img src="https://static.saraba1
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  黒烨  
+##### 1143#       发表于 2024-12-7 16:40
+
+超级明星不是点题superstar吗，怎么就默认是堇了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

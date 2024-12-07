@@ -59,3 +59,11 @@ https://www.bilibili.com/opus/1006568537675792423</blockquote>
 ※ノベルティは常設店・期間限定店舗のみの取扱となります。予めご了承ください。
 <img src="https://files.catbox.moe/5nk52d.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 2640#       发表于 2024-12-7 16:36
+
+我已经完全不知道高桥麻树想干什么了，连续两年，想一出是一出，铺垫衔接约等于没有
+

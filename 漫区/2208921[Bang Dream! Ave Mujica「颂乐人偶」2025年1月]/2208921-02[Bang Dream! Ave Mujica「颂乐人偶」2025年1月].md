@@ -9529,3 +9529,86 @@ mygo都是和父母住在一起吧（除了soyo大部分时间守空房），某
 
 https://x.com/nunnun_0410/status/1865299256489472320?s=46&amp;t=IZGx0N13SOtHALpwG0Ubrg
 
+
+*****
+
+####  UNISONIA  
+##### 2315#       发表于 2024-12-7 16:35
+
+独角兽是明着提过Mujica篇Crychic的比重比MyGO篇还更多的，虽然我也不赞成经常围绕Crychic展开假药，不过显然也不是个“全然结束”的定位
+
+*****
+
+####  傘木希美  
+##### 2316#       发表于 2024-12-7 16:38
+
+nmd北京南寄存个行李这么费劲<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.95-alpha
+
+
+*****
+
+####  Aendst  
+##### 2317#       发表于 2024-12-7 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66866849&amp;ptid=2208921" target="_blank">UNISONIA 发表于 2024-12-7 16:35</a>
+
+独角兽是明着提过Mujica篇Crychic的比重比MyGO篇还更多的，虽然我也不赞成经常围绕Crychic展开假药，不过显 ...</blockquote>
+呃……没提过的，你放心好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 2318#       发表于 2024-12-7 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66866849&amp;ptid=2208921" target="_blank">UNISONIA 发表于 2024-12-7 16:35</a>
+独角兽是明着提过Mujica篇Crychic的比重比MyGO篇还更多的，虽然我也不赞成经常围绕Crychic展开假药，不过显 ...</blockquote>
+独角兽的原话真的是这么说的吗
+
+*****
+
+####  相坂君  
+##### 2319#       发表于 2024-12-7 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66866849&amp;ptid=2208921" target="_blank">UNISONIA 发表于 2024-12-7 16:35</a>
+
+独角兽是明着提过Mujica篇Crychic的比重比MyGO篇还更多的，虽然我也不赞成经常围绕Crychic展开假药，不过显 ...</blockquote>
+想问一下绫奈这话出处？
+
+*****
+
+####  星天观测  
+##### 2320#       发表于 2024-12-7 16:42
+
+提过吗，放个原文看看呢<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  -LYRE-  
+##### 2321#       发表于 2024-12-7 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66866849&amp;ptid=2208921" target="_blank">UNISONIA 发表于 2024-12-7 16:35</a>
+独角兽是明着提过Mujica篇Crychic的比重比MyGO篇还更多的，虽然我也不赞成经常围绕Crychic展开假药，不过显 ...</blockquote>
+不会是从这段采访里歪曲造谣的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/2ae62133d9783791e7ecfaf82dd5eb69/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 2322#       发表于 2024-12-7 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66866849&amp;ptid=2208921" target="_blank">UNISONIA 发表于 2024-12-7 16:35</a>
+
+独角兽是明着提过Mujica篇Crychic的比重比MyGO篇还更多的，虽然我也不赞成经常围绕Crychic展开假药，不过显 ...</blockquote>
+什麼時候又是哪裡提過了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 張口就來
+
+*****
+
+####  akiomn  
+##### 2323#       发表于 2024-12-7 16:44
+
+我记得是说过c团剧情会有，但没说比mygo多，比mygo还多那无敌了，mygo第三集整整一集是c团剧情。
+而且现在c团剧情顶多差一个睦视角了，祥子视角已经用第一集半集写清了，睦视角不可能用一整集来写
+

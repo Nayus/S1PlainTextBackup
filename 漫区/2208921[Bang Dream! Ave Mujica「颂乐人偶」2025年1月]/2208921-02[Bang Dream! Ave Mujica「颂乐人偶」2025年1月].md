@@ -9795,3 +9795,13 @@ nmd北京南寄存个行李这么费劲<img src="https://static.saraba1st.com/im
 —— 来自 鹅球 v3.3.95-alpha ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看文字剧透和自己看区别很大的，特别是键帽欠爱那段，自己看才会明白键帽有多欠爱
 
+
+*****
+
+####  6030sylar  
+##### 2341#       发表于 2024-12-7 18:43
+
+广州场这么简陋的<img src="https://p.sda1.dev/20/2910f6cc9c9452f0f299174a0918652e/CMP_20241207184254940.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

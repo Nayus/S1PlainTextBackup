@@ -11974,3 +11974,29 @@ en号这么喜欢破坏mujica的世界观吗<img src="https://static.saraba1st.c
 
 圣母在上的藤堂志摩子也是类似的情况。不过那个也还有不太一样的地方，即志摩子父母早亡，收养的祖辈为了给她足够的亲情所以对内对外都刻意淡化了自己其实跟她差着两辈。
 
+
+*****
+
+####  堀内爱里衣  
+##### 2546#       发表于 2024-12-8 01:56
+
+BanG Dream！Ave Mujica [E01] [CAMRip] [1080P SDR HEVC-10Bit AAC 2.0] [内嵌简体字幕] [410.8MB]
+[https://share.dmhy.org/topics/vi ... -10Bit_AAC_2_0.html](https://share.dmhy.org/topics/view/684635_BanG_Dream_Ave_Mujica_E01_CAMRip_1080P_SDR_HEVC-10Bit_AAC_2_0.html) <blockquote>簡介: 
+
+ 从其他群组中获得的原始资源，原始资源为1920*1080 HDR HEVC-10Bit，仅重新编码并做了降噪处理和转换为SDR</blockquote>
+Magnet連接: magnet:?xt=urn:btih:PG3BOYZZVMWW3PNMRGMJ7QVJPSRSID7J
+
+Magnet連接typeII: magnet:?xt=urn:btih:79b6176339ab2d6dbdac89989fc2a97ca3240fe9
+
+
+*****
+
+####  ggxx001  
+##### 2547#       发表于 2024-12-8 02:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66870323&amp;ptid=2208921" target="_blank">桜庭千景 发表于 2024-12-8 00:19</a>
+喵梦这个，主要还是看对睦有没有什么影响
+
+整体台词的暗示和第二话的标题（“用结果说话”）应该是会让这个 ...</blockquote>
+从睦的反应来看，喵梦摘面具的行为，还兼带冷嘲热讽，确确实实造成了伤害，标题用结果说话，要是因为喵梦的行为的确给乐队带来了利益，祥子就因此没做出任何反应，那这种单向半身关系我看还是不要了吧。
+

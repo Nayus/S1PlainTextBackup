@@ -889,3 +889,15 @@ woc，边狱公司和明日方舟会在2025年双向联动！
 
 希望能有加速产饭/吃饭的家人侠被动，现在困牢拿全了饰品那个流血量，一大堆饭摆在那三地鼠吃都吃不过来，完全变不了身就结束了（
 
+
+*****
+
+####  菟原手兒奈  
+##### 1012#       发表于 2024-12-7 23:06
+
+纪念一下，小登也是到过一次 1000 级了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/20/10fde7473e9855628f9dd7bec97b45f3/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+

@@ -17276,3 +17276,16 @@ monica和ras的娃娃也出了
 
 希望能有下载
 
+
+*****
+
+####  [皆神孝介]  
+##### 26590#       发表于 2024-12-7 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66869502&amp;ptid=2159415" target="_blank">勿徊哉 发表于 2024-12-7 22:31</a>
+
+希望能有下载</blockquote>
+如果说的是哔哩哔哩那些上架的动画视频，可以使用软件下载的。
+
+比如Downkyi
+

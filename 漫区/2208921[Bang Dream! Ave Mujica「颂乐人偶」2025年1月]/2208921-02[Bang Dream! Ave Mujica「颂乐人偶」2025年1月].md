@@ -11552,3 +11552,27 @@ go是有一些开爆顺序的：爱音→立希→素世→灯，然后灯在天
 
 3摘面具在世界观中被定义为暂时取回了人的面貌，也就是说只要之后还是作为人偶进行活动那么面具就会保留
 
+
+*****
+
+####  NODY  
+##### 2508#       发表于 2024-12-7 23:10
+
+【【佐佐木李子】李子Vlog@北京】 [https://www.bilibili.com/video/BV1RtzRYSELY](https://www.bilibili.com/video/BV1RtzRYSELY)
+
+<img src="https://img.saraba1st.com/forum/202412/07/225817ihphgnn55p1pxgz5.png" referrerpolicy="no-referrer">
+
+<strong>113e8111-e4d5-49e7-961b-6903d1406529.png</strong> (161.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 22:58 上传
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 2509#       发表于 2024-12-7 23:14
+
+还得是祥初<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

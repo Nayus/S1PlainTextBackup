@@ -9138,3 +9138,13 @@ BC926639-6FC4-4EF7-BCA7-0B2BCE198A04.jpeg
 
 好的，是我有些想当然了<img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer"> 减少接触合理的
 
+
+*****
+
+####  adcdqre  
+##### 2280#       发表于 2024-12-7 09:15
+
+整天对应mygo是语言匮乏没看过别的吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+

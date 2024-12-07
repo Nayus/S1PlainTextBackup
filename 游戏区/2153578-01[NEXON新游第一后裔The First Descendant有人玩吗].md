@@ -2878,3 +2878,26 @@ https://api.xiaoheihe.cn/v3/bbs/app/api/web/share?link_id=139927615
 
 冰女加强完咋说？小登打算回坑氪个终极皮玩玩，之前主线打一半开始花式死就没玩，请教下冰女毒妈氪哪个比较好？
 
+
+*****
+
+####  GDIHARVESTER  
+##### 248#       发表于 2024-12-7 09:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66864207&amp;ptid=2153578" target="_blank">Sine77 发表于 2024-12-7 08:56</a>
+
+冰女加强完咋说？小登打算回坑氪个终极皮玩玩，之前主线打一半开始花式死就没玩，请教下冰女毒妈氪哪个比较 ...</blockquote>
+冰女加强后我看能打150级巨魔了，看着很安逸。要氪的话还是毒妈吧，刷图用传染，打巨魔用大招，打死亡猎手用护盾流，比较全能。
+
+*****
+
+####  GDIHARVESTER  
+##### 249#       发表于 2024-12-7 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66862999&amp;ptid=2153578" target="_blank">leafS 发表于 2024-12-6 23:38</a>
+
+这宠物还得用氪金币买，我是服了
+
+—— 来自 鹅球 v3.0.86-alpha</blockquote>
+狗可以刷虚空舰刷出来
+

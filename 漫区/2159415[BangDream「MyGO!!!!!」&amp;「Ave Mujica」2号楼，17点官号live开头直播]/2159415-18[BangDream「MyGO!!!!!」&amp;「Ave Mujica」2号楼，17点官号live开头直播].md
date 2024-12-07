@@ -17299,3 +17299,13 @@ monica和ras的娃娃也出了
 
 刨去迷途之子这个迷惑名，B站这次上的正版翻译质量也太差了。很多漏译，硬译，语序颠倒，夹带的私货也不少。不少地方字面语义和音画的整体含义根本对不上。
 
+
+*****
+
+####  收纳袋  
+##### 26592#       发表于 2024-12-8 01:49
+
+我还是喜欢巴哈版的字幕<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

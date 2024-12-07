@@ -9324,3 +9324,38 @@ mygo都是和父母住在一起吧（除了soyo大部分时间守空房），某
 
 清晰点的killkiss的话b站白鹭千圣昨晚传了个音频，看起来也是动画的源，不过比全损版强些
 
+
+*****
+
+####  银酒监武  
+##### 2298#       发表于 2024-12-7 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66865568&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-7 13:06</a>
+初华父母戏份确实没啥提的必要
+睦的爹妈我觉得应该会露脸，狗篇里就提到了 ...</blockquote>
+第三集被灯称为恐怖的男人<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+
+*****
+
+####  3353764798  
+##### 2299#       发表于 2024-12-7 14:32
+
+大喵老师小心复合弓<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  akiomn  
+##### 2300#       发表于 2024-12-7 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66866123&amp;ptid=2208921" target="_blank">银酒监武 发表于 2024-12-7 14:29</a>
+第三集被灯称为恐怖的男人
+
+—— 来自 鹅球 v3.1.88.3-alpha</blockquote>
+睦爹我记得设定是搞笑艺人，但能被灯评价为恐怖……按理说灯看人的眼光不会错，睦爸可能真是台上台下反差很大的角色
+森美奈美不知道，如果睦祥是表姐妹关系，森美奈美作为祥妈的双子，可能性格不会差，对祥子应该会不错
+

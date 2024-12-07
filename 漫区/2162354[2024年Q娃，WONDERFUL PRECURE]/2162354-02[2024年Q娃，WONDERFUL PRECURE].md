@@ -89,3 +89,16 @@ https://www.bilibili.com/opus/1006568537675792423</blockquote>
 也不对啊，这话是面向大龄观众说的吧...</blockquote>
 最能证明明天要讲寿命论问题的其实是45话杂志预告吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">相当于确定了44话45话两话就是要讲寿命论相关的内容。
 
+
+*****
+
+####  夜游宫  
+##### 2643#       发表于 2024-12-7 19:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66867751&amp;ptid=2162354" target="_blank">pokemon最爱 发表于 2024-12-7 18:33</a>
+
+寿命论的内容其实多少是可以预想到的，最重要的铺垫其实是剧场版小麦的台词——要和彩羽一起变成老奶奶那句 ...</blockquote>
+刻意回避是下策。用超自然力量让狗子长命百岁也属于下策。
+
+大概会让小麦在十年后跑去微笑花园魔法世界生活吧。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

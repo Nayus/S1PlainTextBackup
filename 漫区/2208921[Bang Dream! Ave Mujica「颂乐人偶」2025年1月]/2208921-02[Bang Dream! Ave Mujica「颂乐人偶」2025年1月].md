@@ -9813,3 +9813,33 @@ nmd北京南寄存个行李这么费劲<img src="https://static.saraba1st.com/im
 
 祝你幸福<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  剪切线  
+##### 2343#       发表于 2024-12-7 19:02
+
+<img src="https://img.saraba1st.com/forum/202412/07/190214grq6v8su9r6qsy7k.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-12-07-19-01-42-836_tv.danmaku.bili-edit.jpg</strong> (28.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 19:02 上传
+
+*****
+
+####  AveMujica  
+##### 2344#         楼主| 发表于 2024-12-7 19:07
+
+<img src="https://img.saraba1st.com/forum/202412/07/190718ehb48s4mwl6hjblb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (187.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 19:07 上传
+
+购票请点击：
+[https://ib.eplus.jp/roselia-avemujica2024_st/](https://ib.eplus.jp/roselia-avemujica2024_st/)
+

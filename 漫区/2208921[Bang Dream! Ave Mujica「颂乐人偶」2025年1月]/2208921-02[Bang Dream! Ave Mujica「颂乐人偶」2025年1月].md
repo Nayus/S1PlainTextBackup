@@ -10196,3 +10196,82 @@ nmd北京南寄存个行李这么费劲<img src="https://static.saraba1st.com/im
 小道消息说先放声优感想再播第一集是wsd那边给的要求</blockquote>
 哪有可能，就两个场放错了
 
+
+*****
+
+####  Aendst  
+##### 2377#       发表于 2024-12-7 20:18
+
+我直白我来说
+
+祥子现在虽然确实无暇顾及别人，但这一话里没有表露出太多对睦的关心也是真的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+当然采访期间有圆场，回忆中也很亲密
+
+但是很明显，在出租车上睦关心祥子之后她相当强硬地回应了，而没有接受关心，这对于关心祥子的睦来说就是不太行的
+
+而且摘面具之后，睦强烈的动摇和回避，祥子并没有对此做出什么保护性的行为
+
+也没什么好说的，祥子这个状态还是尽快早点修正吧
+
+看起来接下来确实会是睦的线路了
+
+看看绫奈是不是要杀了我这种睦祥双推
+
+
+*****
+
+####  PDQ4  
+##### 2378#       发表于 2024-12-7 20:22
+
+祥子坐喵梦下面那桌吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+对睦是真的态度不行，完全一种13集复刻的状态，一点没变
+
+作为睦厨我有点下头了，虽然肉眼可见会有童年戏码以及后续爱
+
+第二集估计还会低气压，不知道祥子要做什么
+
+海睦会赢吗<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银酒监武  
+##### 2379#       发表于 2024-12-7 20:25
+
+满脑子“能相信的只有自己”的小祥不可能不被修正吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+*****
+
+####  qjw114514  
+##### 2380#       发表于 2024-12-7 20:25
+
+咕，不要紧，还有可靠的初海二人，我坚信睦一定会有人来爱的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 2381#       发表于 2024-12-7 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66868501&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-7 20:18</a>
+我直白我来说
+
+祥子现在虽然确实无暇顾及别人，但这一话里没有表露出太多对睦的关心也是真的
+
+当然采访期间有 ...</blockquote>
+其实有关心，祥子第一反应是走到睦旁边带睦下台，想法有说是“先下台……”，然后后面喵梦立马上来调戏祥子了，在观众呼声下祥子也被迫摘面具
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过后面这黑祥怎么推睦线真的是问题，祥子还没察觉到睦对自己的关心以及睦藏在内心的罪恶感
+
+*****
+
+####  Aendst  
+##### 2382#       发表于 2024-12-7 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66868587&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-7 20:26</a>
+
+其实有关心，祥子第一反应是走到睦旁边带睦下台，想法有说是“先下台……”，然后后面喵梦立马上来调戏祥 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实这里先下台，有可能是指要自己先下台？
+

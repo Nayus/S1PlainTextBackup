@@ -17232,3 +17232,21 @@ monica和ras的娃娃也出了
 哔哩哔哩番剧上架的MyGO，弹幕池就是以前的，装都不装了</blockquote>
 下架的时候直接说的就是隐藏
 
+
+*****
+
+####  [皆神孝介]  
+##### 26587#       发表于 2024-12-7 20:19
+
+对比了一下各话时长，左边是去年的自投视频
+
+<img src="https://img.saraba1st.com/forum/202412/07/201838azxzxhbnj4hx3p44.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2024-12-07_20-10-55 - 副本.jpg</strong> (202.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 20:18 上传
+
+也差别不大
+

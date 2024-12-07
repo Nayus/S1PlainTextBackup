@@ -1206,3 +1206,11 @@ TOKYO MX、テレビ愛知、tvk、BS朝日ほか：2025年1月放送開始
 
 卫星社30周年纪念作<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 127#         楼主| 发表于 2024-12-7 20:18
+
+正式PV：[https://youtu.be/T9zHdVOM7qE](https://youtu.be/T9zHdVOM7qE)
+

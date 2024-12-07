@@ -1856,3 +1856,49 @@ R1加左键还是右键来着
 
 还是喜欢这套，自由打光太方便了
 
+
+*****
+
+####  B.K.  
+##### 127#         楼主| 发表于 2024-12-7 14:10
+
+<img src="https://img.saraba1st.com/forum/202412/07/141039rg6w7uplwnkbplkg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0369.jpeg</strong> (809.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 14:10 上传
+
+<img src="https://img.saraba1st.com/forum/202412/07/141039uoxn7ikxng9jqk1i.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0370.jpeg</strong> (816.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 14:10 上传
+
+<img src="https://img.saraba1st.com/forum/202412/07/141042smbvvw00vbzh9hwp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0373.jpeg</strong> (1.31 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 14:10 上传
+
+<img src="https://img.saraba1st.com/forum/202412/07/141040zn24tmncu14zi661.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0371.jpeg</strong> (1.22 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 14:10 上传
+
+<img src="https://img.saraba1st.com/forum/202412/07/141041d1ccf12cccmgggfd.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0372.jpeg</strong> (1.46 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 14:10 上传
+

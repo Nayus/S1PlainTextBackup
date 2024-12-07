@@ -83,3 +83,17 @@
 
 闪4不也有个小孩和结社跑了，如果创轨就哭唧唧的跑回来说不干了，得多搞笑
 
+
+*****
+
+####  苏斯赫查  
+##### 7074#       发表于 2024-12-7 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66864527&amp;ptid=2160194" target="_blank">秘银mithril 发表于 2024-12-7 10:08</a>
+我觉得最搞笑的就是，黎2进结社还指望他俩干点啥事儿呢
+
+界轨转头就散伙了，笑死个人</blockquote>
+你说的王太子吧，他明显是喜欢上兰迪堂妹了，被女人拐跑了，结果到现在也没啥戏份<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+

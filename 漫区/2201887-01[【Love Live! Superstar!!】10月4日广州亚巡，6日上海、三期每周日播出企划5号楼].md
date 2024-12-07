@@ -11699,3 +11699,15 @@ snp真惨，凭什么我那片区只能进一个<img src="https://static.saraba1
 
 按电竞思维的控制变量法，到底是谁在C，谁在混，谁在拖后腿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViyViy  
+##### 1141#       发表于 2024-12-7 10:23
+
+ 本帖最后由 ViyViy 于 2024-12-7 10:24 编辑 
+
+拖后腿的下集标题已经告诉你了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过没事，你看今年T1也真的不咋地，奈何BLG有更chu的。
+
+第二名去争决赛资格，无非两种理由，外面对VN还是有点恨的、和临时加练把自己提一个level不是谁都做得到的。
+

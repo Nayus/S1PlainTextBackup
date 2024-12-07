@@ -9697,3 +9697,28 @@ nmd北京南寄存个行李这么费劲<img src="https://static.saraba1st.com/im
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  傘木希美  
+##### 2333#       发表于 2024-12-7 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66867487&amp;ptid=2208921" target="_blank">傘木希美 发表于 2024-12-7 17:59</a>
+原来给这个
+
+—— 来自 鹅球 v3.3.95-alpha</blockquote>
+我抽到了灯和soyo，同事抽到了灯和初华
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.95-alpha
+
+*****
+
+####  skives10  
+##### 2334#       发表于 2024-12-7 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66867652&amp;ptid=2208921" target="_blank">傘木希美 发表于 2024-12-7 18:20</a>
+我抽到了灯和soyo，同事抽到了灯和初华
+
+—— 来自 鹅球 v3.3.95-alpha</blockquote>
+卡面好看吗<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+

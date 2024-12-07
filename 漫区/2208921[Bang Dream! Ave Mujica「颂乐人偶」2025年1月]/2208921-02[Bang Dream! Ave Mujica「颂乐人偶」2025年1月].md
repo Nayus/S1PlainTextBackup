@@ -9965,3 +9965,41 @@ nmd北京南寄存个行李这么费劲<img src="https://static.saraba1st.com/im
 
 是第一集的观后感还是全篇啊<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 2355#       发表于 2024-12-7 19:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确定了，喵梦摘睦面具后祥子第一反应就是想带睦下台
+第二集标题：用结果说话
+
+*****
+
+####  傘木希美  
+##### 2356#       发表于 2024-12-7 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66868035&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-7 19:19</a>
+据说放动画前先放声优访谈，全给剧透完了</blockquote>
+北京的是，听说杭州也是
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.95-alpha
+
+*****
+
+####  阿萨德飞过去  
+##### 2357#       发表于 2024-12-7 19:37
+
+再看一遍不得不说小祥虽然爱哭<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">，但是架势条恢复得太快了，无法被趁虚而入的女人呢
+一般来说面对这种机制，会给予突破上限的伤害来爆条
+
+*****
+
+####  6030sylar  
+##### 2358#       发表于 2024-12-7 19:37
+
+对广州也是先放声优感想再放动画
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">非常草台
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

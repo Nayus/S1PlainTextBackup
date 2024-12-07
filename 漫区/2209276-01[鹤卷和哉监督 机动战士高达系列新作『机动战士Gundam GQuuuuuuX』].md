@@ -11911,3 +11911,17 @@ QQ图片20241207112315.jpg
 
 <img src="https://img.saraba1st.com/forum/202412/07/113407vg6mqiaa6uh7vmaj.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  电波系腑海林  
+##### 1150#       发表于 2024-12-7 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66863450&amp;ptid=2209276" target="_blank">patema 发表于 2024-12-7 01:18</a>
+猜一下时间线和背景设定：
+
+一年战争开始估计差不多，鸭子哪怕毛走了高达鸡瘟该输的还是输了。分歧发生在所 ...</blockquote>
+这背景太复杂了，我觉得正片甚至不会详细交代一年战争的后续，反正都是大背景板不影响打黑拳。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

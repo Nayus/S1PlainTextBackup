@@ -9176,3 +9176,31 @@ mujica成员中
 睦的父母似乎常年不在家
 海铃独居的可能性或许在上升？
 
+
+*****
+
+####  ads147147  
+##### 2284#       发表于 2024-12-7 12:28
+
+mygo都是和父母住在一起吧（除了soyo大部分时间守空房），某种意义上也是对称？如果海玲和soyo对称，那海玲应该不是独居。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  哈曼的YY  
+##### 2285#       发表于 2024-12-7 12:33
+
+<img src="https://img.saraba1st.com/forum/202412/07/123246g3qt0fw7ff30f4zh.jpg" referrerpolicy="no-referrer">
+
+<strong>GeCZPQ6a0AAQ9n2.jpg</strong> (807 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 12:32 上传
+
+[https://x.com/gM4zFiJCWbz3G4y/status/1864945372206108969](https://x.com/gM4zFiJCWbz3G4y/status/1864945372206108969)
+
+对青少年的影响...
+

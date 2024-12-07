@@ -117,3 +117,13 @@
 —— 来自 鹅球 v3.3. ...</blockquote>
 凑人头而已，现在都没搞随从骑士了，直接星杯组队出场。有些就是进去填位置不代表有戏份
 
+
+*****
+
+####  zhouaa  
+##### 7077#       发表于 2024-12-7 12:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">约尔妲还好吧  黎2时候稍微带点理性的那种   她哥哥倒是没救了  
+
+她入队的理由自然是模型复用  勤俭持家这样的
+

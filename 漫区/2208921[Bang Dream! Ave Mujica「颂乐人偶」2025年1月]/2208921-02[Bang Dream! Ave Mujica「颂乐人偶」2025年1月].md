@@ -9298,3 +9298,11 @@ mygo都是和父母住在一起吧（除了soyo大部分时间守空房），某
 
 沟槽wsd别给我整个11号米泽上邦tv然后宣布4th无配信啊
 
+
+*****
+
+####  akiomn  
+##### 2295#       发表于 2024-12-7 13:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">4th昨可能无配信啊，有可能的只有现场动画第一集不给网络配信直播
+

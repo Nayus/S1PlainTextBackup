@@ -11187,3 +11187,68 @@ mygo第九集大伙都觉得炸完了，不还是救回来了
 
 查看全部评分
 
+
+*****
+
+####  哈曼的YY  
+##### 2468#       发表于 2024-12-7 22:10
+
+你楼状态和母鸡卡状态同步是吧
+
+卖狗还逃掉一个猫 你看母鸡卡像是有人能不受伤害的样子吗? 看独角兽虐jk就完了
+
+*****
+
+####  ellisnadie  
+##### 2469#       发表于 2024-12-7 22:10
+
+事实证明批斗分锅是鸡狗定番不得不品尝
+
+鸡团剧情展开肉眼可见烈度会越来越大<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  阿萨德飞过去  
+##### 2470#       发表于 2024-12-7 22:12
+
+感觉楼友还是在一年的滑坡不断内耗，变得精神脆弱<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+等着看第二集吧，都会有结果的
+
+*****
+
+####  akiomn  
+##### 2471#       发表于 2024-12-7 22:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第一集先给喵梦扣个键帽的帽子没啥人反对吧？我不信有人看完第一集会不想爱猫tv
+
+*****
+
+####  skives10  
+##### 2472#       发表于 2024-12-7 22:12
+
+我看完只有一个感觉
+第一集已经很安稳了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+后面会变成什么样 根本不敢想
+
+*****
+
+####  skives10  
+##### 2473#       发表于 2024-12-7 22:13
+
+要哭哭惹<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  allesdg  
+##### 2474#       发表于 2024-12-7 22:14
+
+前面的误会吵架完全没必要啊，另外说个别的感觉没必要过多纠结谁先爆谁后爆，谁先救谁再被谁救，以及一个人解决了下一个人才爆之类的，感觉……这样的剧本结构有些简单而孤立了吧，哪怕是go的剧情演绎也不是单纯就按人员排队来的吧
+
+*****
+
+####  skives10  
+##### 2475#       发表于 2024-12-7 22:17
+
+精神状态还是太差了 延期导致的
+

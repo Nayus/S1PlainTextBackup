@@ -11711,3 +11711,13 @@ snp真惨，凭什么我那片区只能进一个<img src="https://static.saraba1
 
 第二名去争决赛资格，无非两种理由，外面对VN还是有点恨的、和临时加练把自己提一个level不是谁都做得到的。
 
+
+*****
+
+####  ads147147  
+##### 1142#       发表于 2024-12-7 12:26
+
+事实证明九才是绝对数，建议开启组内淘汰赛选出两个混子当backup<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

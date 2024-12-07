@@ -17309,3 +17309,19 @@ monica和ras的娃娃也出了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  [皆神孝介]  
+##### 26593#       发表于 2024-12-8 02:41
+
+这几处关于钢琴曲目的注释有点出戏，还是在上方用一行文字说明就好了<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202412/08/024011ong0mmwpgun4mwuu.jpg" referrerpolicy="no-referrer">
+
+<strong>钢琴曲目注释.jpg</strong> (398.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-8 02:40 上传
+

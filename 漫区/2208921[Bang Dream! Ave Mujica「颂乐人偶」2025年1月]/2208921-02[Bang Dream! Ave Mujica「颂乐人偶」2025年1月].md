@@ -11074,3 +11074,116 @@ mygo的人会出场是肯定的，但是维持mujica核心肯定还是靠团员�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  莉缇娅  
+##### 2460#       发表于 2024-12-7 21:59
+
+还是相信主唱吧  
+
+mygo第九集大伙都觉得炸完了，不还是救回来了
+
+*****
+
+####  adcdqre  
+##### 2461#       发表于 2024-12-7 22:01
+
+这时候又不参考mygo了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+
+*****
+
+####  chih12  
+##### 2462#       发表于 2024-12-7 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66869292&amp;ptid=2208921" target="_blank">非典型叶子 发表于 2024-12-7 21:58</a>
+
+哪里有质量还行的盗摄资源？
+
+—— 来自 S1Fun</blockquote>
+贴吧见到一个，至少比新加坡的强
+
+反白→https://share.weiyun.com/E7ypExwe
+
+<img src="https://img.saraba1st.com/forum/202412/07/220149szdd8dz1hw5dezah.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-12-07-21-43-20-522-edit_com.tencent.mm.jpg</strong> (52.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 22:01 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 非典型叶子| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  2287217595  
+##### 2463#       发表于 2024-12-7 22:03
+
+狗9集播完的那一周那么多假药也没人猜到会是一集收掉全部矛盾的处理<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+鸡狗就不是适合按逻辑盘谁救世谁助攻的片，演出到位，情感到位，剩下的就都水到渠成了
+
+*****
+
+####  桜庭千景  
+##### 2464#       发表于 2024-12-7 22:05
+
+独角兽其实本来就很擅长做这种事，mujica第一话不也干净利落的收到了一大堆伏笔还垫好了后面至少四五话的展开么
+
+*****
+
+####  杂灰  
+##### 2465#       发表于 2024-12-7 22:06
+
+不管狗还是鸡，最终命题肯定还是她们想要组什么样的乐队，矛盾都是为了这个命题而设置的，反过来想只要祥子想清楚mujica要成为什么样的乐队并坚定执行，所有矛盾都是能迎刃而解的，只要想清楚了，拉人就只是形式上的流程而不不会成为矛盾本身
+
+*****
+
+####  PDQ4  
+##### 2466#       发表于 2024-12-7 22:06
+
+终于搞清楚了，原来是觉得我说下头女是祥黑啊
+
+我说了那么多次祥子做不好我就下头，没想到现在会踩到漏u雷点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+行吧我改个词，祥子做法有很大问题，我觉得她的状态需要修正
+
+用祥厨的角度去看我觉得祥子做法很符合逻辑很正常，等一波后续剧情
+
+用睦厨的角度去看，我看了心疼睦，要等一波祥子的做法
+
+用睦祥厨的角度去看我觉得是糖里夹刀片，漏u能理解了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厨厨  
+##### 2467#       发表于 2024-12-7 22:07
+
+你楼真有意思 聊着聊着就开始批斗分锅大会 先战个一百楼再说
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 2287217595| + 1|神idXD|
+
+查看全部评分
+

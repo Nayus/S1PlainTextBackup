@@ -11627,3 +11627,34 @@ go是有一些开爆顺序的：爱音→立希→素世→灯，然后灯在天
 
 看完这集的键帽，我只能说什么样的主播就有什么样的粉丝
 
+
+*****
+
+####  akiomn  
+##### 2516#       发表于 2024-12-7 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66870091&amp;ptid=2208921" target="_blank">Qing_Qi_2.0 发表于 2024-12-7 23:36</a>
+看完这集的键帽，我只能说什么样的主播就有什么样的粉丝</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别带allin节奏啊！
+yysy，allin和小猫起码不搞大事的
+
+
+*****
+
+####  uhiuk  
+##### 2517#       发表于 2024-12-7 23:43
+
+重新捋了一遍感觉其实没那么严重，还是躺平等下个月罢。
+
+而且语言交流对维持亲密关系方面还是挺重要的，不如说正是因为是亲密关系才容易产生误解。
+
+放张图
+
+<img src="https://img.saraba1st.com/forum/202412/07/234328w5bwgvwk087cdv0f.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20241207_234255.jpg</strong> (194.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 23:43 上传
+

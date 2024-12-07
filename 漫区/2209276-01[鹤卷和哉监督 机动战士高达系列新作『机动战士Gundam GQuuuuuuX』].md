@@ -11974,3 +11974,15 @@ QQ图片20241207112315.jpg
 
 黑拳部分估计这次剧场版先行放映就能过渡完来个反转，要不然也没有现在藏世界观的意义了
 
+
+*****
+
+####  DARILBALDE  
+##### 1157#       发表于 2024-12-7 15:03
+
+个人观点，对所谓反转还是放低期待的好，君不见水魔第零话之事乎<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+清新的视觉风格，闻名遐迩的主创，剧场版规格（存疑）的开头，一个莫名其妙的主线（决斗/打黑拳），感觉有无限展开可能性的背景设定……
+
+夸克斯和水魔的开头拉平一对比，可能现在就女同没对上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

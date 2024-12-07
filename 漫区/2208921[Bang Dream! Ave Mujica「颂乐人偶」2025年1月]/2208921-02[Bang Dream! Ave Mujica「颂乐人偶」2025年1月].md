@@ -9442,3 +9442,13 @@ mygo都是和父母住在一起吧（除了soyo大部分时间守空房），某
 —— 来自 鹅球 v3.1.88.3-alpha</blockquote>
 恐怖说的是节目还是睦爸不好说，不过如果真的说的是睦爸那确实和睦的状态连上了
 
+
+*****
+
+####  傘木希美  
+##### 2308#       发表于 2024-12-7 14:56
+
+<img src="https://p.sda1.dev/20/12a40edd74d2ccfa06d02b21b245f16a/image.jpg" referrerpolicy="no-referrer">应该是这个地方吧万一跑错就傻逼了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.95-alpha
+

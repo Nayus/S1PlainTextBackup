@@ -11369,3 +11369,73 @@ go是有一些开爆顺序的：爱音→立希→素世→灯，然后灯在天
 
 发现睦睦采访还抱着吉他，初华和海铃都没有。一般采访不专门说明带乐器的话是不会带的吧？睦睦一直抱着吉他不松手是缺乏安全感还是什么吗？
 
+
+*****
+
+####  akiomn  
+##### 2488#       发表于 2024-12-7 22:39
+
+以及祥母部分，祥子弹完琴，结果说漏嘴了说下次带睦一起
+
+*****
+
+####  仓鼠胖太  
+##### 2489#       发表于 2024-12-7 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66869555&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-7 22:37</a>
+说个被忽视的
+开头killkiss演出完后是采访，采访轮到睦，睦说“我……”，祥子立马接话说“如您所见，死亡 ...</blockquote>
+不是，这描述有点偏颇吧，是采访睦不知道该怎么应对一直沉默没说话，祥子去解围而已
+
+*****
+
+####  鲍里斯  
+##### 2490#       发表于 2024-12-7 22:40
+
+大家真是各有各的哈姆雷特，我第一集看完已经给睦祥开香槟了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  akiomn  
+##### 2491#       发表于 2024-12-7 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66869574&amp;ptid=2208921" target="_blank">仓鼠胖太 发表于 2024-12-7 22:39</a>
+不是，这描述有点偏颇吧，是采访睦不知道该怎么应对一直沉默没说话，祥子去解围而已 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">差不多啦，就是祥子赶紧帮睦圆场
+
+
+*****
+
+####  月島まりな  
+##### 2492#       发表于 2024-12-7 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66869533&amp;ptid=2208921" target="_blank">6030sylar 发表于 2024-12-7 22:35</a>
+
+—— 来自 Realme RMX1851, Android 11上的 S1Next-鹅版 v3.0.0-alpha</blockquote>
+看着都是买蛋白棒送的ws卡 只不过是简中限定版
+
+不知道wsd以后打不打算在中国卖蛋白棒
+
+*****
+
+####  星空冻结  
+##### 2493#       发表于 2024-12-7 22:45
+
+不是，怎么还有担心没有篇幅给睦的，海玲都没说话呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  uhiuk  
+##### 2494#       发表于 2024-12-7 22:46
+
+看了眼隔壁走廊，“睦这样说话是我我给她一拳”“一个不顺就凶，睦赶紧跑让她死路边算了”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 2495#       发表于 2024-12-7 22:47
+
+睦干什么都抱着吉他13集就有表现了，之前的假药是吉他就是祥子送给睦的，或者睦幕间里面自言自语的对象其实就是吉他
+

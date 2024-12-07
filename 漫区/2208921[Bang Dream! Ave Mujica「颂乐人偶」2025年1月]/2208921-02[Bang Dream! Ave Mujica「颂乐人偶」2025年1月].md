@@ -11503,3 +11503,52 @@ go是有一些开爆顺序的：爱音→立希→素世→灯，然后灯在天
 
 能不能来点温暖人心的故事 要求不高 第十集之后就可以<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  灼眼的夏娜酱  
+##### 2503#       发表于 2024-12-7 22:59
+
+心疼祥子<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 2504#       发表于 2024-12-7 23:03
+
+我得了看见爱音素世就想笑的病<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Tienx  
+##### 2505#       发表于 2024-12-7 23:04
+
+少女乐队番能对角色有这么大恨意真是莫名其妙，又不是真杀人全家了
+
+*****
+
+####  allesdg  
+##### 2506#       发表于 2024-12-7 23:04
+
+警察局这个单子还是有点糊，不过能看出来里面已经做好中日双版了
+
+<img src="https://img.saraba1st.com/forum/202412/07/230359luadll6o6asjjatz.png" referrerpolicy="no-referrer">
+
+<strong>L8B[~)]RI}Q6$U]~T~_16}N.png</strong> (40.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 23:03 上传
+
+*****
+
+####  silver鲤跃  
+##### 2507#       发表于 2024-12-7 23:05
+
+1mjc虽然靠着网红乐队取得了非常夸张的成绩，但祥p本人认为mjc对于音乐性的积累还不足，但是喵梦认为网红乐队的本质会很快过气，因此产生了冲突
+
+2初华或者sumimi的人气可能比预料之中的还夸张，对于祥p来说初华的身份接近于底牌，只要初华的身份能够保留，那么在首次揭露doloris真实身份为三角初华时依然能完成祥p计划中的在最棒的舞台和最好的时机展现真实身份
+
+3摘面具在世界观中被定义为暂时取回了人的面貌，也就是说只要之后还是作为人偶进行活动那么面具就会保留
+

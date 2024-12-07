@@ -2913,3 +2913,19 @@ https://api.xiaoheihe.cn/v3/bbs/app/api/web/share?link_id=139927615
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  伊克路西安  
+##### 251#       发表于 2024-12-7 19:08
+
+<img src="https://img.saraba1st.com/forum/202412/07/190708u57av565c6351mmc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (693.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 19:07 上传
+
+卧槽，怎么今天又更新一次，三天更新三次，每次更新都要重写40G硬盘
+

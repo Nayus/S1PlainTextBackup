@@ -9843,3 +9843,91 @@ nmd北京南寄存个行李这么费劲<img src="https://static.saraba1st.com/im
 购票请点击：
 [https://ib.eplus.jp/roselia-avemujica2024_st/](https://ib.eplus.jp/roselia-avemujica2024_st/)
 
+
+*****
+
+####  月島まりな  
+##### 2345#       发表于 2024-12-7 19:10
+
+太有草台感了，先放声优感想再放动画
+
+*****
+
+####  AveMujica  
+##### 2346#         楼主| 发表于 2024-12-7 19:10
+
+<img src="https://img.saraba1st.com/forum/202412/07/191040sxj6qqt8hq7qqf7p.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (295.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 19:10 上传
+
+<img src="https://img.saraba1st.com/forum/202412/07/191031j8bulu687by5hscl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (301.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 19:10 上传
+
+<img src="https://img.saraba1st.com/forum/202412/07/191021l2slpzs8wn8xwbis.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (287.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 19:10 上传
+
+<img src="https://img.saraba1st.com/forum/202412/07/191011yen4sgzhmyis42no.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (287.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 19:10 上传
+
+<img src="https://img.saraba1st.com/forum/202412/07/191000bckcgcwd1xr9s98p.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (323.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 19:10 上传
+
+[https://x.com/bangdream_en](https://x.com/bangdream_en)
+
+
+*****
+
+####  仓鼠胖太  
+##### 2347#       发表于 2024-12-7 19:12
+
+阿b mygo上线了，6000+在线观看，弹幕似乎保留了
+
+*****
+
+####  akiomn  
+##### 2348#       发表于 2024-12-7 19:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我已经看不懂pv海港那幕，睦到底是走向祥子还是远离了，pv太糊了，看不清睦到底是正面还是背面，只知道这个是睦
+
+*****
+
+####  jkl  
+##### 2349#       发表于 2024-12-7 19:15
+
+[https://live.bilibili.com/8384858](https://live.bilibili.com/8384858)
+
+神人
+
+*****
+
+####  skives10  
+##### 2350#       发表于 2024-12-7 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66868001&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-7 19:15</a>
+我已经看不懂pv海港那幕，睦到底是走向祥子还是远离了，pv太糊了，看不清睦到底是正面还是背面，只知道这个 ...</blockquote>
+我觉得应该是靠近 然后说了什么劲爆秘闻 祥子才会是那个表情
+

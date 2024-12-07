@@ -17155,3 +17155,19 @@ monica和ras的娃娃也出了
 
 换成了BD版的源，加了日语字幕，其他没看出来
 
+
+*****
+
+####  收纳袋  
+##### 26582#       发表于 2024-12-7 19:07
+
+<img src="https://img.saraba1st.com/forum/202412/07/190627gmyzjozv7wmmtdcz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (47.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 19:06 上传
+
+我还是喜欢“因为我就只有这个方法了”这个翻译<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+

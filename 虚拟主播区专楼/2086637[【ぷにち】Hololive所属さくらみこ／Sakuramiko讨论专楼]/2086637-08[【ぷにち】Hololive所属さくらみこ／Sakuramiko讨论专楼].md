@@ -358,3 +358,34 @@ sololive之后工商联动就开始井喷
 
 别找holo讨订阅啊你们俩
 
+
+*****
+
+####  holoan  
+##### 10392#         楼主| 发表于 2024-12-7 15:37
+
+ 本帖最后由 holoan 于 2024-12-7 15:44 编辑 
+
+突如其来的wwe，还是2k22版本
+
+原来企划真的放到mikorone24里面了
+
+logo也更新了
+
+<img src="https://img.saraba1st.com/forum/202412/07/154448t0jsw1s71kw0v9v1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (641.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 15:44 上传
+
+*****
+
+####  holoan  
+##### 10393#         楼主| 发表于 2024-12-7 15:42
+
+azki今年开始不再卖清楚人设了所以加进来了么
+
+倒是新人什么时候加进来
+

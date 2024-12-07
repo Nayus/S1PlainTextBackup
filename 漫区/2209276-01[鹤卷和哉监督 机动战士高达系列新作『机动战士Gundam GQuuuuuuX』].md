@@ -12007,3 +12007,19 @@ QQ图片20241207112315.jpg
 
 打黑拳我觉得还是比校园决斗要更合理一点的，不过直接在殖民卫星开战又好像太危险了一点，哪天捅个洞都不得了
 
+
+*****
+
+####  三度音  
+##### 1160#       发表于 2024-12-7 15:41
+
+附议，就是个美少女贴贴动画。。老给她乱增加什么地宇阶级矛盾，宇宙大战政治阴谋，机械美学可用性的设定干什么，，，
+
+
+*****
+
+####  RE㐅ia  
+##### 1161#       发表于 2024-12-7 15:45
+
+分享一个pvbgm的cover，还挺好听的。【机动战士高达GQuuuuuuX背景音乐cover】 [https://www.bilibili.com/video/B ... 8ea77843db65840ad21](https://www.bilibili.com/video/BV1NsiyYwEfK/?share_source=copy_web&amp;vd_source=0255bed28a0ac8ea77843db65840ad21)
+

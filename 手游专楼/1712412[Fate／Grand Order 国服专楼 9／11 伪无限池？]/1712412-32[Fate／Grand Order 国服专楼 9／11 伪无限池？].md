@@ -449,3 +449,15 @@ T3的nobo，居然能直接送礼装
 这2.86.2版本是不是有bug，用模拟器玩久会跑狗登陆不上，找个2.86.1换了</blockquote>
 是不是mumu？如果是的话换哪个版本都会这样。模拟器问题。
 
+
+*****
+
+####  小妻水亚美  
+##### 46849#       发表于 2024-12-7 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66863354&amp;ptid=1712412" target="_blank">6030sylar 发表于 2024-12-7 00:55</a>
+这2.86.2版本是不是有bug，用模拟器玩久会跑狗登陆不上，找个2.86.1换了</blockquote>
+这种时候只能清空游戏数据了
+
+—— 来自 OPPO PGFM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

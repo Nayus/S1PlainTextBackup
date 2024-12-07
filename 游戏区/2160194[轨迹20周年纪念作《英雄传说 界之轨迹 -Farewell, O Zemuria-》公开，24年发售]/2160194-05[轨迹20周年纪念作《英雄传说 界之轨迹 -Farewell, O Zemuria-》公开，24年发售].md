@@ -52,3 +52,17 @@
 
 约尔妲刚登场求助的时候，我还以为这俩双子搁这演戏呢……看了这个羁绊事件后让我彻底死心了，就是写剧情的人水平太低，意识不到问题。或者有别的原因强行改了剧情（人物定位），连铺垫都来不及铺垫
 
+
+*****
+
+####  苏斯赫查  
+##### 7072#       发表于 2024-12-7 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66864436&amp;ptid=2160194" target="_blank">秘银mithril 发表于 2024-12-7 09:51</a>
+变队友没什么问题
+
+暂时合作之类的理由要多少有多少</blockquote>
+对啊，没印象吧？那才好揉捏，黎2看到他们进执行者就知道肯定洗白了，执行者就没一个坏的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+

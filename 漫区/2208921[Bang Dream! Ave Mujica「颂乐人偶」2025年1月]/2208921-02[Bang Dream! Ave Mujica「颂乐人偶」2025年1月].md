@@ -9452,3 +9452,27 @@ mygo都是和父母住在一起吧（除了soyo大部分时间守空房），某
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.95-alpha
 
+
+*****
+
+####  [皆神孝介]  
+##### 2309#       发表于 2024-12-7 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66866261&amp;ptid=2208921" target="_blank">傘木希美 发表于 2024-12-7 14:56</a>
+
+应该是这个地方吧万一跑错就傻逼了
+
+—— 来自 鹅球 v3.3.95-alpha</blockquote>
+拿不准的时候，可以打电话过去问问。
+
+*****
+
+####  傘木希美  
+##### 2310#       发表于 2024-12-7 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66866358&amp;ptid=2208921" target="_blank">[皆神孝介] 发表于 2024-12-7 15:12</a>
+拿不准的时候，可以打电话过去问问。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">问到是这里了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.95-alpha
+

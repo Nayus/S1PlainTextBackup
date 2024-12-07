@@ -2901,3 +2901,15 @@ https://api.xiaoheihe.cn/v3/bbs/app/api/web/share?link_id=139927615
 —— 来自 鹅球 v3.0.86-alpha</blockquote>
 狗可以刷虚空舰刷出来
 
+
+*****
+
+####  leafS  
+##### 250#       发表于 2024-12-7 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66864300&amp;ptid=2153578" target="_blank">GDIHARVESTER 发表于 2024-12-7 09:18</a>
+狗可以刷虚空舰刷出来</blockquote>
+那还可以，主要就是要那个自动分解的功能了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

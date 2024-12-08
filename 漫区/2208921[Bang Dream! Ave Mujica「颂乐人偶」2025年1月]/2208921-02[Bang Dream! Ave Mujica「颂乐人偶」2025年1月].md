@@ -12599,3 +12599,14 @@ ccc是自带什么幻术魔法吗
 不知道之后会不会有睦视角来佐证到底什么是真实</blockquote>
 那我呢笑话+10086
 
+
+*****
+
+####  akiomn  
+##### 2597#       发表于 2024-12-8 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66872742&amp;ptid=2208921" target="_blank">NODY 发表于 2024-12-8 13:12</a>
+结合12集祥子说要喵梦多练习，第一集祥子说不能纯吃流量，需要积累更多音乐上的成果再摘面具，还有pv喵梦在 ...</blockquote>
+这个确实有可能，初华作为sumimi偶像，技术肯定没问题，睦是祥子半身，组鸡团肯定会带睦一块玩，我记得十三集睦的吉他还被事务所夸弹得不错。海玲是兜底的，能当雇佣兵那么技术不会差，加上钦定的鸡团二把手。祥子是创始人，怎么还想怀疑创始人是吧（踢了就是睦和初华跟着祥子一块跑了）
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不就只剩喵梦了啊，被祥子招募直球理由是脸和数字，技术可能有但还没海玲和初华那么强，吃流量吃着吃着吃到黑流量了，被质疑技术不如队内其他四个惨遭炎上
+

@@ -912,3 +912,21 @@ woc，边狱公司和明日方舟会在2025年双向联动！
 纪念一下，小登也是到过一次 1000 级了</blockquote>
 恭喜，不过真肝啊，我一赛季都没有1000级<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  salic428  
+##### 1014#       发表于 2024-12-8 17:08
+
+话说新系统也好几天了有人摸索出来比较好的刷镜星光搭配了吗？我找老外要了一个这样的推荐表（普牢的）：
+
+<img src="https://img.saraba1st.com/forum/202412/08/170655r0j8iyssfkf8fsis.png" referrerpolicy="no-referrer">
+
+<strong>3hro5437si5e1.png</strong> (328.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-8 17:06 上传
+
+左下第七个加等级提升那个在困牢确实好用，相当于开局花钱买了半个缘神
+

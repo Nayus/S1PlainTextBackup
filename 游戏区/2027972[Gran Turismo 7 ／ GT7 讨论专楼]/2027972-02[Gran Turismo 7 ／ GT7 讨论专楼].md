@@ -80,3 +80,16 @@
 这游戏里有个在线计时赛模式，取世界第一的圈速往后3%，在那条线之内的就能拿金牌，我自己金银铜的比例大 ...</blockquote>
 精度呢，够吗？
 
+
+*****
+
+####  一个陆仁贾  
+##### 1900#       发表于 2024-12-8 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66875758&amp;ptid=2027972" target="_blank">mcq_2 发表于 2024-12-8 21:08</a>
+精度呢，够吗？</blockquote>
+我自己觉得转向精度是够的，和方向盘的差距在于力反馈和油门刹车。不是说手柄控制的油门刹车精度差，而是我自己感觉玩游戏时将注意力分配给手指控制扳机的行程精确度和用脚控制踏板行程还是存在差距的。
+我没接触过方向盘，所以到底是我不行还是手柄不行，我自己不敢下判断<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

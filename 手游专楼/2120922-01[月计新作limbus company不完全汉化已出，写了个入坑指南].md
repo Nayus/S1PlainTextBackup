@@ -930,3 +930,16 @@ woc，边狱公司和明日方舟会在2025年双向联动！
 
 左下第七个加等级提升那个在困牢确实好用，相当于开局花钱买了半个缘神
 
+
+*****
+
+####  erratic璃月  
+##### 1015#       发表于 2024-12-8 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66874081&amp;ptid=2120922" target="_blank">salic428 发表于 2024-12-8 17:08</a>
+
+话说新系统也好几天了有人摸索出来比较好的刷镜星光搭配了吗？我找老外要了一个这样的推荐表（普牢的）：
+
+ ...</blockquote>
+困难只打了一把，选的4 7 10，主打一个稳定快速跳4拿核
+

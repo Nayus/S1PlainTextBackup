@@ -39,3 +39,11 @@
 
 决赛王中王能不能公布个第二贴牌<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">说起来决赛啥规则啊，瑞士轮？
 
+
+*****
+
+####  清浦刹那  
+##### 5585#       发表于 2024-12-8 10:38
+
+铅笔这么强的吗，配装是啥？想自己试一试了
+

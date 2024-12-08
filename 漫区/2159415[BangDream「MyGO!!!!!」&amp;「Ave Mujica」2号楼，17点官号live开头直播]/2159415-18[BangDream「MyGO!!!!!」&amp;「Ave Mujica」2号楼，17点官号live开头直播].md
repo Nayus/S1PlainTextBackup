@@ -17335,3 +17335,13 @@ monica和ras的娃娃也出了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  NaAgfykp  
+##### 26595#       发表于 2024-12-8 10:39
+
+我觉得还挺好的，有几处原来语气不到位的也有修改
+
+—— 来自 vivo V2301A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

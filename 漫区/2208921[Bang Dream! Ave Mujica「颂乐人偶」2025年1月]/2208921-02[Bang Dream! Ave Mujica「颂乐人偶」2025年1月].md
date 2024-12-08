@@ -12334,3 +12334,36 @@ crychic去卡拉ok唱的就是pp的歌，除了soyo意外的睦也会唱
 
 让人期待祥子会怎么处理之后的爆爆爆
 
+
+*****
+
+####  阿卡拉兰斯  
+##### 2577#       发表于 2024-12-8 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66871499&amp;ptid=2208921" target="_blank">MASKA-1 发表于 2024-12-8 10:05</a>
+还没细看，这个楼现在有剧透吗？
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+全部都是，建议看了枪版再看，前面一页就有
+
+
+*****
+
+####  3353764798  
+##### 2578#       发表于 2024-12-8 10:24
+
+队友先连爆大祥焦头烂额的救火最后自己肯定也会进入祥爹状态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+可惜你邦是krkr的世界看不到酗酒小祥<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  MASKA-1  
+##### 2579#       发表于 2024-12-8 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66871555&amp;ptid=2208921" target="_blank">阿卡拉兰斯 发表于 2024-12-08 10:18:50</a>
+全部都是，建议看了枪版再看，前面一页就有</blockquote>还是先不看楼了，一月再来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

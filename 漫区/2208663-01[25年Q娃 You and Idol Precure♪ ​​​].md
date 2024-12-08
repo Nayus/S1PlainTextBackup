@@ -105,3 +105,22 @@
 
 这人设也没啥特别的啊，为啥华语大友圈第一舅妈会说期待大友们到时候得反应
 
+
+*****
+
+####  pokemon最爱  
+##### 126#       发表于 2024-12-8 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66874755&amp;ptid=2208663" target="_blank">modedd 发表于 2024-12-8 18:49</a>
+
+好幼啊，近几年里最幼的一个粉主了，不知道是女主人设还是一整部画风都这样 ...</blockquote>
+虽然但是，根据DCD第一定律，品红不是粉，所以明年是红主不是粉主<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天风绯炎  
+##### 127#       发表于 2024-12-8 20:05
+
+看服装不是那么不适合肉搏，衣服也不算累赘，大腿也很强劲，我打戏呢25年救一下
+

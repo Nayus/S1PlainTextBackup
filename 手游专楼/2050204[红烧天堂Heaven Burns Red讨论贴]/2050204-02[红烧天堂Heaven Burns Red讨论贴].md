@@ -38,3 +38,15 @@
 话说我 ...</blockquote>
 直接长按点击单位就能看到身上的状态 具体数值看不到 日服也是刚刚实装能看到数值
 
+
+*****
+
+####  6030sylar  
+##### 1664#       发表于 2024-12-9 01:17
+
+<img src="https://p.sda1.dev/20/33c5cabce13dfa18487fd203ff1fd1f9/1733677290957.jpg" referrerpolicy="no-referrer">
+月歌你就是歌姬吧(
+国服能坚持到这个时候吗
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

@@ -139,3 +139,23 @@ https://www.bilibili.com/opus/1006568537675792423</blockquote>
 
 虽然反派洗白是意料之中的结果，但看这架势总觉得反派三人的本体是怨灵，最后撒一把盐消失掉就算结局？
 
+
+*****
+
+####  pokemon最爱  
+##### 2647#       发表于 2024-12-8 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66871107&amp;ptid=2162354" target="_blank">jaewoongh_ 发表于 2024-12-8 08:09</a>
+
+这集基本明示了微笑花园=死后世界了，冥河的守护者（不是）妮可大人和彩虹桥
+
+终于要对宠物的寿命进行一些 ...</blockquote>
+寿命论这个问题太沉重了不适合放太靠前吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  犬飼いろは  
+##### 2648#       发表于 2024-12-8 11:59
+
+第 44 集的 TVer 源（含日字）：magnet:?xt=urn:btih:4e50e9dfd73db05ed8949e49a0771577cdb40ebc
+

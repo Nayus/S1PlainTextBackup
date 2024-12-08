@@ -12680,3 +12680,30 @@ ccc是自带什么幻术魔法吗
 
 小祥他，我哭死<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  swessia  
+##### 2602#       发表于 2024-12-8 14:11
+
+<blockquote>rain625 发表于 2024-12-8 13:42
+假药环节：第二话的标题“用结果说话”不仅是指喵梦的用商业成绩说话，后半集可能也会引出睦的心理矛盾。
+
+ ...</blockquote>
+“小睦，能从初华大魔王手里拯救小祥的只有你了”
+
+*****
+
+####  6030sylar  
+##### 2603#       发表于 2024-12-8 14:12
+
+<img src="https://img.saraba1st.com/forum/202412/08/141119qxgnoxcc66o07n00.png" referrerpolicy="no-referrer">
+
+<strong>2NYK4]XC]DL$KR{$M0I{{3A.png</strong> (23.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-8 14:11 上传
+
+我先放个Kokoro妈妈在这里
+

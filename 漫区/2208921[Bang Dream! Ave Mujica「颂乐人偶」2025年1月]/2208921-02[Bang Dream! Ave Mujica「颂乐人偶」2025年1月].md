@@ -13215,3 +13215,20 @@ PV睦的戏份实在是太重了，虽然基本默认第二集第三集都是睦
 问题是这几个词看着真就和不了解她们的人对她们刻板印象一样 除了喵梦这个慈爱 
 感觉也没有必要太在意
 
+
+*****
+
+####  wonner_2012  
+##### 2652#       发表于 2024-12-8 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66873149&amp;ptid=2208921" target="_blank">uhiuk 发表于 2024-12-8 14:30</a>
+安慰人的要点是要对别人的处境提供情感支持，我为你的遭遇感到难过/希望能帮到你。
+
+不过睦的问题不是不会给 ...</blockquote>
+是说这本书吗？
+<img src="https://p.sda1.dev/20/85ae3774e898a569ac1da1fa6f0b89ad/image.jpg" referrerpolicy="no-referrer">
+
+这本书只有中文副标题有“时间窃贼”，日本那边翻译的书名好像也是モモ，目前作为假药的证据链还是不如《细雪》，还是得等进睦线再看看有没有别的信息
+
+不过小说女主确实和睦有相似之处
+

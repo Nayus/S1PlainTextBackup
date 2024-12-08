@@ -11844,3 +11844,13 @@ ps：c位曲倒是没啥，我一直秉承谁作词谁c完全没问题的态度�
 第11话
 superstar！！
 
+
+*****
+
+####  ads147147  
+##### 1157#       发表于 2024-12-8 16:41
+
+最后一集的标题，如果有始空的话应该是始空或者始空的歌词。。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -11765,3 +11765,53 @@ snp真惨，凭什么我那片区只能进一个<img src="https://static.saraba1
 
 感觉好生硬的剧情啊……
 
+
+*****
+
+####  llllife  
+##### 1148#       发表于 2024-12-8 16:19
+
+三年生一副交代后事的态度，第三季剩下的集数估计就是毕业回了（以及可可的进路还是被回避掉了）
+
+*****
+
+####  ads147147  
+##### 1149#       发表于 2024-12-8 16:20
+
+s2e1的入队回的烂水平，全是生硬的转折，一点背景故事都不给希奈子加，恋就强行钦定希奈子上。。。。
+
+这不是花田没活，是彻底摆了。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  一心而用  
+##### 1150#       发表于 2024-12-8 16:22
+
+完全想不起来希奈子做过什么可以当会长的事情。<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  离心  
+##### 1151#       发表于 2024-12-8 16:22
+
+md被舅舅骗了，就是直接进决赛了第二名是其他人
+
+*****
+
+####  ViyViy  
+##### 1152#       发表于 2024-12-8 16:24
+
+ 本帖最后由 ViyViy 于 2024-12-8 16:25 编辑 
+
+我还以为是第二名的姿态进东京大赛争决赛资格，然后围绕这个说事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">情报师溜人阿
+
+*****
+
+####  懂你意思  
+##### 1153#       发表于 2024-12-8 16:24
+
+这角色有什么讨喜的点吗，三季下来无感甚至有点讨厌<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

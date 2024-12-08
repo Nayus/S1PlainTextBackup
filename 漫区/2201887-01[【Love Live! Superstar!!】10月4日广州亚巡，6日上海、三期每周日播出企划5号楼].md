@@ -11740,3 +11740,13 @@ snp真惨，凭什么我那片区只能进一个<img src="https://static.saraba1
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
 
+
+*****
+
+####  starring  
+##### 1145#       发表于 2024-12-8 15:19
+
+参加完pay的+1st live了，披露了一首自己作词曲的新歌，过去三张单曲和新歌今晚上架流媒体
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

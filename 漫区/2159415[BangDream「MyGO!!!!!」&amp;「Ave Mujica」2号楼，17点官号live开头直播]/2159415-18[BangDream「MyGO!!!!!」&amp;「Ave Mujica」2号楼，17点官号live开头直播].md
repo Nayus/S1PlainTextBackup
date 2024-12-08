@@ -17424,3 +17424,26 @@ B站把这个日程表翻了，表里有个预约的右下角有白底黑字“�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  须贺兰  
+##### 26603#       发表于 2024-12-8 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66873942&amp;ptid=2159415" target="_blank">ads147147 发表于 2024-12-8 16:46</a>
+
+宕机了？？略琢磨不透了看起来像是想做什么但是又怕做错所以干脆不做的感觉。
+
+—— 来自 OPPO PHN110, A ...</blockquote>
+个人觉得是场内昏暗，声音嘈杂，睦和祥子又是平行站位，在她的视角里就是祥子突然转身跑出去了，等转头过去看到的只有祥子的背影，并没理解问题的严重性，所以没有马上追过去
+
+帮26599L补个图片
+
+<img src="https://img.saraba1st.com/forum/202412/08/175847kdcxh2a1kzd211uu.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2024-12-08_11-21-36.jpg</strong> (205.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-8 17:58 上传
+

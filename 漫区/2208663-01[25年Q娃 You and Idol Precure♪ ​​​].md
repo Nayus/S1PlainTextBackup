@@ -22,3 +22,12 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">感觉有点人鱼的旋律那意思
 
+
+*****
+
+####  粉儿alice  
+##### 116#       发表于 2024-12-8 18:05
+
+像这种人设图没有正式公布前起码有水印和一个大密红字吧 而且怎么清晰<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+下一个 等猪对友
+

@@ -2106,3 +2106,13 @@ Lorcana:
 
 依然没有提到规则。不过2025年初发售的话，应该很快就会有情报了吧。
 
+
+*****
+
+####  记忆消失  
+##### 175#         楼主| 发表于 2024-12-8 12:45
+
+[https://www.bilibili.com/video/BV1ZxiBYKESm](https://www.bilibili.com/video/BV1ZxiBYKESm)
+
+搬一个火星视频，高达TCG的规则教学
+

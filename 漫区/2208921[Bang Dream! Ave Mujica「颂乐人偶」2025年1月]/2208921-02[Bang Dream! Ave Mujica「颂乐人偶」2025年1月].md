@@ -13659,3 +13659,33 @@ QQ截图20241208202150.png
 
 这句话是单给我一个人的，还是别的妹妹都有<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  3353764798  
+##### 2693#       发表于 2024-12-8 23:18
+
+肯定没被逐出去啊，小祥已经证明自己是UR了。现成的不要外公是打算再建个新号还是去外面收养一个啊。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  星天观测  
+##### 2694#       发表于 2024-12-8 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66875944&amp;ptid=2208921" target="_blank">月島まりな 发表于 2024-12-8 21:40</a>
+
+萌百可以编辑的，不喜欢就直接删了呗，如果有人跟你编辑战你就跟他讨论页对骂。到论坛隔空挂人有啥用
+
+如果 ...</blockquote>
+哈哈，你以为我是要隔空挂萌百吗，笑死
+
+
+*****
+
+####  杂灰  
+##### 2695#       发表于 2024-12-8 23:22
+
+退路是为了放弃退路而设置的，祥子就算未来可能回到丰川家，那也不会是对外公的条件让步得来的，就算退一步就可以回到原位，只要有违本心那还不如绕地球一圈回去<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

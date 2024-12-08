@@ -12381,3 +12381,29 @@ PV里睦是有“我只要一说话就会变得不行”的问题，
 
 这里预告一定存在一定诡叙
 
+
+*****
+
+####  skives10  
+##### 2581#       发表于 2024-12-8 10:58
+
+一说话就变得不行这翻译好别扭啊 按理说应该是一说话就坏事的意思吧
+
+
+*****
+
+####  [皆神孝介]  
+##### 2582#       发表于 2024-12-8 11:05
+
+@AveMujica
+
+楼主在标题里标注一下“楼内大量剧透”吧，明年1月2日正式开播再改回来，刚刚还有坛友误入的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202412/08/110440eicl9mslic9s52cz.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2024-12-08_11-04-27.jpg</strong> (49.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-8 11:04 上传
+

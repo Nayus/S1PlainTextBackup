@@ -17356,3 +17356,18 @@ B站把这个日程表翻了，表里有个预约的右下角有白底黑字“�
 <img src="https://p.sda1.dev/20/67c55543736616983fcb9742ec2c1716/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/20/2393b54b0c030927353c57a226a24e3b/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 26597#       发表于 2024-12-8 11:02
+
+重温到soyo破防，有一点我现在没搞懂，为啥saki跑出去的时候，睦没追出去，这里睦的心态我有点不太好琢磨，比起saki更关注soyo？说不通吧。
+
+*****
+
+####  xwr  
+##### 26598#       发表于 2024-12-8 11:07
+
+有人提取过弹幕么？
+

@@ -901,3 +901,14 @@ woc，边狱公司和明日方舟会在2025年双向联动！
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
 
+
+*****
+
+####  erratic璃月  
+##### 1013#       发表于 2024-12-8 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66869849&amp;ptid=2120922" target="_blank">菟原手兒奈 发表于 2024-12-7 23:06</a>
+
+纪念一下，小登也是到过一次 1000 级了</blockquote>
+恭喜，不过真肝啊，我一赛季都没有1000级<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

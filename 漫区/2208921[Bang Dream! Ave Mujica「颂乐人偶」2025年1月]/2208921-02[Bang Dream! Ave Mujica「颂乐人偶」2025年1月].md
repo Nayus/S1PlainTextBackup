@@ -12817,3 +12817,132 @@ Code KillKiss 反逆のモーティス
 
 睦后面会展示出叛逆的一面？也许是对家庭的叛逆
 
+
+*****
+
+####  桜庭千景  
+##### 2614#       发表于 2024-12-8 15:36
+
+唉 笨笨的海铃 111真的会有吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  好想看Mujica啊  
+##### 2615#       发表于 2024-12-8 15:36
+
+初祥的回忆最重要的是草地看星星吧，只要别告诉我这段小睦也在就无所谓了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 2616#       发表于 2024-12-8 15:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66873473&amp;ptid=2208921" target="_blank">桜庭千景 发表于 2024-12-8 15:36</a>
+
+唉 笨笨的海铃 111真的会有吗</blockquote>
+真得给你举办了
+
+*****
+
+####  skives10  
+##### 2617#       发表于 2024-12-8 15:38
+
+ 本帖最后由 skives10 于 2024-12-8 15:40 编辑 
+
+也许可以反转成忠诚可靠的海铃
+
+这下批站评论区动不动复读的母鸡卡一出事海铃就会抽身的说法破产了
+
+*****
+
+####  NODY  
+##### 2618#       发表于 2024-12-8 15:41
+
+这理论最大的问题不是初华？善良怎么反转都不是什么好的结论吧
+
+
+*****
+
+####  星天观测  
+##### 2619#       发表于 2024-12-8 15:43
+
+ 本帖最后由 星天观测 于 2024-12-8 15:45 编辑 
+
+所以说这说法也只是个猜测
+
+当然，大概有些sb又有新理由踩初华了
+
+syl
+
+初华厨人少，不是死了，喜欢没事踩一脚我直接开骂
+
+*****
+
+####  skives10  
+##### 2620#       发表于 2024-12-8 15:43
+
+善良的初华——&gt;杀伐果断的初华
+高贵的祥子——&gt;普通女孩祥子
+顺从的若叶睦——&gt;叛逆的若叶睦
+聪慧的海铃——&gt;忠诚可靠的海铃
+慈爱的喵梦——&gt;严肃的若麦
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Aendst| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  桜庭千景  
+##### 2621#       发表于 2024-12-8 15:44
+
+所以更大可能本来就不是反转啊
+
+喵梦第一话看着确实可能自私，但是这是邦邦，又不可能真的让她键帽到底
+
+更大可能这个称号就是角色的真实本质
+
+举个例子，祥子现在的确经济上不高贵了，但是她独立自主的强人性格本身也是一种脱离身份之外的高贵
+
+*****
+
+####  金钱与民主  
+##### 2622#       发表于 2024-12-8 15:45
+
+现在大家的说法不都是猜测？我反正不预测任何第二话的展开（虽然我心里想了N种可能性），安心等<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 2623#       发表于 2024-12-8 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66873523&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-8 15:43</a>
+
+善良的初华——&gt;杀伐果断的初华
+
+高贵的祥子——&gt;普通女孩祥子
+
+顺从的若叶睦——&gt;叛逆的若叶睦</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">叛逆的人选怎么换人了
+
+*****
+
+####  PDQ4  
+##### 2624#       发表于 2024-12-8 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66873465&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-8 15:35</a>
+ 睦后面会展示出叛逆的一面？也许是对家庭的叛逆 聪慧的海玲……呃，海玲反面总不可能是愚笨吧 ...</blockquote>
+海铃狗动画里其实都有种置身事外的疏离感，和立希相处也是，不会过多深究问题，发现狗出问题选择鼓励灯然后离开
+
+那把鸡作为归宿的海铃，可能就会做出自身主动投入泥沼，这种“愚蠢”的选择
+
+聪明人可不会主动招惹是非<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

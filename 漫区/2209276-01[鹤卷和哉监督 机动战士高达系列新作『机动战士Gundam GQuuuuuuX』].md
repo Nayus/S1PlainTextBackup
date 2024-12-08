@@ -12396,3 +12396,14 @@ GQ6ux这一个男一推进世界观展开刚刚好
 
 万代也把推出不同以往的全新造型作为自己的义务了
 
+
+*****
+
+####  Toby_dak  
+##### 1190#       发表于 2024-12-8 18:16
+
+说得好像厕纸的异世界设定很精细一样<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+大多数不还是各种刻板印象的元素模板堆砌组合，有几个能达到圣 战士的水平。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.37)
+

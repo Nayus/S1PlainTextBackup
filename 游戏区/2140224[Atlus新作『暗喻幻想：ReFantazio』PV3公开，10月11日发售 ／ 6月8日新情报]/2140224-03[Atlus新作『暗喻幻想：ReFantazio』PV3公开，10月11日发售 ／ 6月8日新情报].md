@@ -7241,3 +7241,15 @@ T2队友A加攻
 有没有什么好的回蓝的装配啊，本来都说该打路易了怎么又整出个又臭又长的迷宫啊，我一回合就回4点蓝用的新 ...</blockquote>
 回蓝靠嗑药，饰品位基本固定原型戒指，太缺原型经验了
 
+
+*****
+
+####  牙狼GARO  
+##### 3606#       发表于 2024-12-8 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66869093&amp;ptid=2140224" target="_blank">TriSPD 发表于 2024-12-7 21:33</a>
+回蓝靠嗑药，饰品位基本固定原型戒指，太缺原型经验了</blockquote>
+没必要原型戒指，给的那点经验还不如最后去刷牙呢
+
+—— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

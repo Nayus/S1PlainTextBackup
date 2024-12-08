@@ -11854,3 +11854,11 @@ superstar！！
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  黒烨  
+##### 1158#       发表于 2024-12-8 16:53
+
+一期第一集就是始空歌词
+

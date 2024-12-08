@@ -17401,3 +17401,26 @@ B站把这个日程表翻了，表里有个预约的右下角有白底黑字“�
 比起妹妹破防开哭&gt;恢复韧性
 睦遇到“大事”都是原地一动不动的
 
+
+*****
+
+####  ads147147  
+##### 26601#       发表于 2024-12-8 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66872370&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-12-8 12:22</a>
+这里官方分镜已经锤过了（台本强调了）
+
+睦没有追出去，但是一直在转身看向祥子的方向
+
+并且没有任何转回去 ...</blockquote>
+宕机了？？略琢磨不透了看起来像是想做什么但是又怕做错所以干脆不做的感觉。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  Aendst  
+##### 26602#       发表于 2024-12-8 16:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

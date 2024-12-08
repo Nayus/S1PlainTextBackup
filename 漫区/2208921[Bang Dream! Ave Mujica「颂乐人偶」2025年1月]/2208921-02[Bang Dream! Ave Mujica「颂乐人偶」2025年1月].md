@@ -13232,3 +13232,13 @@ PV睦的戏份实在是太重了，虽然基本默认第二集第三集都是睦
 
 不过小说女主确实和睦有相似之处
 
+
+*****
+
+####  remedios010000  
+##### 2653#       发表于 2024-12-8 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66872742&amp;ptid=2208921" target="_blank">NODY 发表于 2024-12-8 13:12</a>
+结合12集祥子说要喵梦多练习，第一集祥子说不能纯吃流量，需要积累更多音乐上的成果再摘面具，还有pv喵梦在 ...</blockquote>
+所以鼓谱越来越难是大喵主动要求的是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

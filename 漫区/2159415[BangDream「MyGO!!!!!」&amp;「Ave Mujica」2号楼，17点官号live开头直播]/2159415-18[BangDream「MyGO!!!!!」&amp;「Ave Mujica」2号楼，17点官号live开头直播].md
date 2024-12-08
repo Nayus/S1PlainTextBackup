@@ -17371,3 +17371,23 @@ B站把这个日程表翻了，表里有个预约的右下角有白底黑字“�
 
 有人提取过弹幕么？
 
+
+*****
+
+####  Aendst  
+##### 26599#       发表于 2024-12-8 12:22
+
+ 本帖最后由 Aendst 于 2024-12-8 12:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66871802&amp;ptid=2159415" target="_blank">ads147147 发表于 2024-12-8 11:02</a>
+
+重温到soyo破防，有一点我现在没搞懂，为啥saki跑出去的时候，睦没追出去，这里睦的心态我有点不太好琢磨， ...</blockquote>
+这里官方分镜已经锤过了（<strong>台本</strong>强调了）
+
+睦没有追出去，但是<strong>一直</strong>在转身看向祥子的方向
+
+并且没有<strong>任何</strong>转回去看台上的mygo的行为
+
+也就是说，比起mygo的任何一个人都更关注祥子
+
+这个分镜我很早之前就在这个楼里发过了，漏油有兴趣可以从前面翻翻
+

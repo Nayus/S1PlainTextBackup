@@ -12472,3 +12472,18 @@ ep1有很多“睦其实可以不出场但总会出场”的地方，包括幼�
 有剧透讨论楼的
 https://bbs.saraba1st.com/2b/thread-2208960-0-1.html
 
+
+*****
+
+####  NODY  
+##### 2587#       发表于 2024-12-8 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66870975&amp;ptid=2208921" target="_blank">莉缇娅 发表于 2024-12-8 05:02</a>
+
+sumimi人气比漏油想象的高不是很正常嘛。
+
+邦多利几季动画看下来，你能在电视节目以外的地方看见怕死怕累吗 ...</blockquote>
+邦邦第二季开头就是六花来到东京抬头看见彩彩在市中心大屏幕的特写+采访说少女乐队现在是最火的，萝剧场版里面随便一个餐厅都在放pp的歌
+
+待遇和mygo动画的sumimi其实也差不多，只能说可能是第三年开始热度降了而已，怎么说也出道这么久了
+

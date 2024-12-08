@@ -11894,3 +11894,13 @@ superstar！！
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  ViyViy  
+##### 1162#       发表于 2024-12-8 17:49
+
+VN明年真要和老五一起离开？感觉不会呀，她应该必留，说到底本来就是正常的学力进程。
+
+看看下集可可的方向会不会明确交代吧，这集一两句的事儿，下集经典神社见面了还是不愿意写两句的话，这莫名的求生欲有点让人发笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

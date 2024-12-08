@@ -34,3 +34,16 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">趁低价下载了一个玩玩，两百块出头，ps5手感挺带感的，是不是一定要买方向盘离合器才舒服？
 
+
+*****
+
+####  一个陆仁贾  
+##### 1896#       发表于 2024-12-8 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66873586&amp;ptid=2027972" target="_blank">洛克萨斯 发表于 2024-12-8 15:54</a>
+趁低价下载了一个玩玩，两百块出头，ps5手感挺带感的，是不是一定要买方向盘离合器才舒服？ ...</blockquote>
+<img src="https://p.sda1.dev/20/ffe9d87e70ac7ac1110a95396730b599/image.jpg" referrerpolicy="no-referrer">
+有ps5的话手柄的体验也不会差，当然上限肯定没有方向盘那么高，不过如果你能摸到手柄的上限那么需不需要方向盘到时候自然会有答案<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

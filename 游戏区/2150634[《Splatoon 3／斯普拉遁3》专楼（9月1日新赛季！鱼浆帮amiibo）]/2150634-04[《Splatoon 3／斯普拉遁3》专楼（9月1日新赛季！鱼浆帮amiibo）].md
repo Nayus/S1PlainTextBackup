@@ -47,3 +47,14 @@
 
 铅笔这么强的吗，配装是啥？想自己试一试了
 
+
+*****
+
+####  laosai13  
+##### 5586#       发表于 2024-12-8 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66871643&amp;ptid=2150634" target="_blank">清浦刹那 发表于 2024-12-8 10:38</a>
+
+铅笔这么强的吗，配装是啥？想自己试一试了</blockquote>
+sp增和sp强，反正就是狠狠涂狠狠送饮料
+

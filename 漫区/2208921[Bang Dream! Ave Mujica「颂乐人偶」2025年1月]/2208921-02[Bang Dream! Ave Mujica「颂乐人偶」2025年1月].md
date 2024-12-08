@@ -12567,3 +12567,35 @@ c团解散：睦亲自打出最后一击
 
 这样就能顺理成章接上pv里面喵梦拼命练习的情况，就是为了反转自己的黑评
 
+
+*****
+
+####  PDQ4  
+##### 2594#       发表于 2024-12-8 13:21
+
+可以说睦见证了祥子进乎全部的悲欢离合
+了解若叶睦其人就可以看到丰川祥子的人生
+反过来或许也是如此<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  桜庭千景  
+##### 2595#       发表于 2024-12-8 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66872742&amp;ptid=2208921" target="_blank">NODY 发表于 2024-12-8 13:12</a>
+
+结合12集祥子说要喵梦多练习，第一集祥子说不能纯吃流量，需要积累更多音乐上的成果再摘面具，还有pv喵梦在 ...</blockquote>
+这个确实可以，喵梦的那个理念（流量至上火过就完）明显是不符合邦世界观政治正确的，会有修正事件
+
+*****
+
+####  LeonsCat  
+##### 2596#       发表于 2024-12-8 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66870767&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-8 02:25</a>
+
+ccc是自带什么幻术魔法吗
+
+不知道之后会不会有睦视角来佐证到底什么是真实</blockquote>
+那我呢笑话+10086
+

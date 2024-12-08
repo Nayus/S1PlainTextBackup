@@ -439,3 +439,13 @@
 
 阿比：还有谁？<img src="https://static.saraba1st.com/image/smiley/animal2017/029.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  quanlix  
+##### 15234#       发表于 2024-12-8 18:19
+
+好公式的宝具演出
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

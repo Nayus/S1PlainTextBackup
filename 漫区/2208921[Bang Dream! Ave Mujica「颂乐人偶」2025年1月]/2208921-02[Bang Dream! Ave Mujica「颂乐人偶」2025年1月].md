@@ -14043,3 +14043,31 @@ pv那个画面就是丰川家，好像还是之后回丰川家的可能大，访
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那得担心这剧情怎么搞了，mygo十三集＋mujica第一集把祥子形象确定的差不多了，第一集还直接抛狠话离开丰川家，要是没过几集就回去……
 
+
+*****
+
+####  KirigawaMaki  
+##### 2726#       发表于 2024-12-9 02:29
+
+ 本帖最后由 KirigawaMaki 于 2024-12-9 02:31 编辑 
+
+睦坐床上穿的这件就是睡衣的话对不太上
+
+<img src="https://img.saraba1st.com/forum/202412/09/023111ly3ayvtvqtbbqfs7.png" referrerpolicy="no-referrer">
+
+<strong>颂乐人偶 1.png</strong> (109.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-9 02:31 上传
+
+我个人的第一反应其实是幼祥的装扮
+
+<img src="https://img.saraba1st.com/forum/202412/09/022741m8az15qbs5pby0a8.png" referrerpolicy="no-referrer">
+
+<strong>[LPSub] BanG Dream! It's MyGO!!!!! [BDRip][08][1080p][AVC AAC][JPSC].mp4_20.png</strong> (127.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-9 02:27 上传
+

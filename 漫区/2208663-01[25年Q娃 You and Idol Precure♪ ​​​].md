@@ -153,3 +153,11 @@ Q娃要肉搏服装不会造成任何影响啊，回看公主那飘飘裙打得�
 真的是ユキヲ来做人设就好玩了，四舍五入他之前画的那些也能当官方了</blockquote>
 有春山和则前车之鉴（），但毕竟这位画过几本口味比较重的
 
+
+*****
+
+####  qjw114514  
+##### 131#       发表于 2024-12-8 22:04
+
+莫名感觉有点像爱大爱会长<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

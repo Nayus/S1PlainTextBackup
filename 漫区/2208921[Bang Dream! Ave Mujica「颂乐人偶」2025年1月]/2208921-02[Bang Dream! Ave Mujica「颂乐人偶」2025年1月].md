@@ -13689,3 +13689,21 @@ QQ截图20241208202150.png
 
 退路是为了放弃退路而设置的，祥子就算未来可能回到丰川家，那也不会是对外公的条件让步得来的，就算退一步就可以回到原位，只要有违本心那还不如绕地球一圈回去<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 2696#       发表于 2024-12-8 23:31
+
+ 本帖最后由 akiomn 于 2024-12-8 23:33 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥子刚丧母和睦在月之森教室那段真的是，我之前只看中文字幕还没觉得哪里不对，看日文一下子就笑了
+
+中文“祥，该走了”
+
+日文“祥，移动”
+
+直接听日语也是saki移动，虽然这俩意思是一个意思，但是只看中文翻译还真是察觉不到哪里不对
+
+这段还是翻译成“祥，走”更好一些
+

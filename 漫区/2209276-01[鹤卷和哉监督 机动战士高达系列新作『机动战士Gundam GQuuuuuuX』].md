@@ -12423,3 +12423,35 @@ GQ6ux这一个男一推进世界观展开刚刚好
 
 woc才看PV国家队预定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泥潭第二春来了
 
+
+*****
+
+####  RE㐅ia  
+##### 1193#       发表于 2024-12-9 05:02
+
+这么看pv也许包括了不止第一集的画面？一集打两场可能性不高吧？
+
+<img src="https://img.saraba1st.com/forum/202412/09/050147h3af3mffieoqmbb1.png" referrerpolicy="no-referrer">
+
+<strong>7EC0BD00-E546-4856-BC63-A14F43EBF403.png</strong> (351.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-9 05:01 上传
+
+<img src="https://img.saraba1st.com/forum/202412/09/050147yboccieeebt4lbp0.png" referrerpolicy="no-referrer">
+
+<strong>2838FA9A-F37A-4ED6-B505-DDC3B48574D9.png</strong> (347.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-9 05:01 上传
+
+<img src="https://img.saraba1st.com/forum/202412/09/050147saruytmpgjnrtipa.png" referrerpolicy="no-referrer">
+
+<strong>46160088-ED7E-464C-A6F7-59A9C2162A23.png</strong> (419.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-9 05:01 上传
+

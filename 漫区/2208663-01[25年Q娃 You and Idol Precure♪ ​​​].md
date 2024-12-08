@@ -142,3 +142,14 @@
 看服装不是那么不适合肉搏，衣服也不算累赘，大腿也很强劲，我打戏呢25年救一下 ...</blockquote>
 Q娃要肉搏服装不会造成任何影响啊，回看公主那飘飘裙打得多爽
 
+
+*****
+
+####  jaewoongh_  
+##### 130#       发表于 2024-12-8 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66874777&amp;ptid=2208663" target="_blank">himfsz 发表于 2024-12-8 18:52</a>
+
+真的是ユキヲ来做人设就好玩了，四舍五入他之前画的那些也能当官方了</blockquote>
+有春山和则前车之鉴（），但毕竟这位画过几本口味比较重的
+

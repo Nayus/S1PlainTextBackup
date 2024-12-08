@@ -115,3 +115,27 @@ https://www.bilibili.com/opus/1006568537675792423</blockquote>
 大概会让小麦在十年后跑去微笑花园魔法世界生 ...</blockquote>
 实际上20集前就有人提微笑花园是死后世界的说法了，所以真讲寿命论的话让小麦小雪作为狗和猫在人类世界死去后成为微笑花园的成员应该是最可行的解法了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 2645#       发表于 2024-12-7 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66867920&amp;ptid=2162354" target="_blank">夜游宫 发表于 2024-12-7 19:03</a>
+
+刻意回避是下策。用超自然力量让狗子长命百岁也属于下策。
+
+大概会让小麦在十年后跑去微笑花园魔法世界生 ...</blockquote>
+实际上20集前就有人提微笑花园是死后世界的说法了，所以真讲寿命论的话让小麦小雪作为狗和猫在人类世界死去后成为微笑花园的成员应该是最可行的解法了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jaewoongh_  
+##### 2646#       发表于 2024-12-8 08:09
+
+这集基本明示了微笑花园=死后世界了，冥河的守护者（不是）妮可大人和彩虹桥
+
+终于要对宠物的寿命进行一些思考了，难得可贵，不过早干什么去了
+
+虽然反派洗白是意料之中的结果，但看这架势总觉得反派三人的本体是怨灵，最后撒一把盐消失掉就算结局？
+

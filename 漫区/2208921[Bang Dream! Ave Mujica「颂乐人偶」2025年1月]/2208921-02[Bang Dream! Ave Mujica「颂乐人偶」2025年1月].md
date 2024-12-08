@@ -13707,3 +13707,61 @@ QQ截图20241208202150.png
 
 这段还是翻译成“祥，走”更好一些
 
+
+*****
+
+####  Aendst  
+##### 2697#       发表于 2024-12-8 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66876645&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-8 23:31</a>
+
+祥子刚丧母和睦在月之森教室那段真的是，我之前只看中文字幕还没觉得哪里不对，看日文一下子就笑了
+
+中文“ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这下真的经典无口属性了
+
+我印象里一直是在普通交流的，但仔细想想好像只对祥子交流比较正常？
+
+能流利说长句子接续对话
+
+*****
+
+####  ggxx001  
+##### 2698#       发表于 2024-12-8 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66876645&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-8 23:31</a>
+祥子刚丧母和睦在月之森教室那段真的是，我之前只看中文字幕还没觉得哪里不对，看日文一下子就笑了
+
+中文“ ...</blockquote>
+睦说话特点简短干练 人偶感很重
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  allesdg  
+##### 2699#       发表于 2024-12-8 23:52
+
+看到cast表上在葬礼上说话的两个声音对应写的是亲族A和B，也就是说按坐次来看睦这边的关系比一般亲族还要近吧，至于会只是世交还是别的什么情况现在也确实没法推理出什么了
+
+不过不管是什么样的关系，桥梁还是森美奈美的概率比较大吧，“笑星泰斗和实力派女演员”看起来睦爹的知名度和影响力应该相当大的，如果是如此知名的“若叶”与丰川家关系匪浅的话，倒是奇怪没有路人提及或者舆论讨论之类的表现，预告里露出的疑似睦的热搜讨论页面里也只能看到“本名”“学校”“芸能人一家”和“小时候”…的字样
+
+（ps.如果睦只是小时候才上过电视的话那多年后能当场认出来，邦世界的人记性也太好了吧，或者也说明了睦的关注度极高又或当年上电视发生了什么事导致关注度高；
+
+另外丰川家可能知名度并不高的样子，还有看葬礼上外公右边不太像有人的样子不会其实是空巢老人吧）
+
+
+*****
+
+####  akiomn  
+##### 2700#       发表于 2024-12-8 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66876704&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-8 23:46</a>
+这下真的经典无口属性了
+
+我印象里一直是在普通交流的，但仔细想想好像只对祥子交流比较正常？
+
+能流利说长 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这段我个人认为还是翻译问题居多，日文突出了睦的人偶感和不会说话内味
+翻译成该走了让语气降了一档，想想看一个“祥，走”和“祥，该走了”是不是同一个语气
+

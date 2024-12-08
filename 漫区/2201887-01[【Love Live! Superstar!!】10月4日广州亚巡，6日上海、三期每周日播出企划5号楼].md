@@ -11904,3 +11904,11 @@ VN明年真要和老五一起离开？感觉不会呀，她应该必留，说到
 
 看看下集可可的方向会不会明确交代吧，这集一两句的事儿，下集经典神社见面了还是不愿意写两句的话，这莫名的求生欲有点让人发笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csolfans  
+##### 1163#       发表于 2024-12-8 18:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">还剩两集了；希望平稳结束
+

@@ -47,3 +47,14 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  洛克萨斯  
+##### 1897#       发表于 2024-12-8 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66874354&amp;ptid=2027972" target="_blank">一个陆仁贾 发表于 2024-12-8 17:52</a>
+
+有ps5的话手柄的体验也不会差，当然上限肯定没有方向盘那么高，不过如果你能摸到手柄的上限那么需不需要 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">感谢
+

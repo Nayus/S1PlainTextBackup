@@ -12249,3 +12249,15 @@ crychic去卡拉ok唱的就是pp的歌，除了soyo意外的睦也会唱
 
 “母鸡卡和sumimi哪个重要！？”
 
+
+*****
+
+####  skives10  
+##### 2569#       发表于 2024-12-8 08:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66870744&amp;ptid=2208921" target="_blank">堆雪若叶 发表于 2024-12-8 02:13</a>
+祥子在接父亲出警局后看到soyo留言蹙眉欲泣咬住牙关和听到春日影时反应如出一辙，这对祥子来说就是crychic ...</blockquote>
+祥子每次前进都在将自己推向下一次的失去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+多么伤人的事实
+然而这四次仅仅是个开始
+

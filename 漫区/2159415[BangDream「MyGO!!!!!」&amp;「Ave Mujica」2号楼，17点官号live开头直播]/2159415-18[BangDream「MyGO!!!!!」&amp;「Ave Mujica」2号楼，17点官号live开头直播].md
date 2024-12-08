@@ -17345,3 +17345,14 @@ monica和ras的娃娃也出了
 
 —— 来自 vivo V2301A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  须贺兰  
+##### 26596#       发表于 2024-12-8 10:55
+
+B站把这个日程表翻了，表里有个预约的右下角有白底黑字“個”字标识，可能是非团体预约的意思？
+从名字上看和第三话灯回忆中的幼儿园伙伴的名字部分是相同的，不知道有没有关联。
+<img src="https://p.sda1.dev/20/67c55543736616983fcb9742ec2c1716/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/2393b54b0c030927353c57a226a24e3b/image.jpg" referrerpolicy="no-referrer">
+

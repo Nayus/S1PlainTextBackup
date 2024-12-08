@@ -12946,3 +12946,62 @@ syl
 
 聪明人可不会主动招惹是非<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives10  
+##### 2625#       发表于 2024-12-8 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66873535&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-8 15:45</a>
+叛逆的人选怎么换人了</blockquote>
+感觉丰川家的老头挺纯良的 不需要打倒了
+
+*****
+
+####  ytttsuuuba  
+##### 2626#       发表于 2024-12-8 15:51
+
+才一集看不出纯良
+
+*****
+
+####  星天观测  
+##### 2627#       发表于 2024-12-8 15:51
+
+你邦上一个和在官方范围内和慈爱沾边的是慈爱女神今井莉莎（虽然是pico）
+
+如果真的是指角色的本质
+
+喵梦和lisa……吗，不可思议
+
+
+*****
+
+####  星天观测  
+##### 2628#       发表于 2024-12-8 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66873523&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-8 15:43</a>
+
+善良的初华——&gt;杀伐果断的初华
+
+高贵的祥子——&gt;普通女孩祥子
+
+顺从的若叶睦——&gt;叛逆的若叶睦</blockquote>
+如果按其他四个人的格式，叛逆或许换成自主会好一点吧
+
+*****
+
+####  akiomn  
+##### 2629#       发表于 2024-12-8 15:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按邦邦没坏人来看，毕竟要进手游的，丰川老登是坏人的可能性不大，顶多是个不会说话的传统家长
+
+*****
+
+####  novalli  
+##### 2630#       发表于 2024-12-8 15:55
+
+“信任”是件很危险的事情，意味着事情可以反转、当事人可以反转，但你应该是一直“信任”。大概是某种类似的事情使得海玲选择对任何事都保持好距离，在事情、当事人打转的安全距离之外默默等待。显然这种安全距离远大于交心的距离。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.94-alpha
+

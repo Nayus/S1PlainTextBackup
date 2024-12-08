@@ -12457,3 +12457,18 @@ ep1有很多“睦其实可以不出场但总会出场”的地方，包括幼�
 
 只剩mujica了，那么连mujica也要失去，我明白了，ave mujica是喵梦夺权记<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AveMujica  
+##### 2586#         楼主| 发表于 2024-12-8 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66871823&amp;ptid=2208921" target="_blank">[皆神孝介] 发表于 2024-12-8 11:05</a>
+@AveMujica
+
+楼主在标题里标注一下“楼内大量剧透”吧，明年1月2日正式开播再改回来，刚刚还有坛友误入的
+
+ ...</blockquote>
+有剧透讨论楼的
+https://bbs.saraba1st.com/2b/thread-2208960-0-1.html
+

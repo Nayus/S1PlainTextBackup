@@ -13765,3 +13765,30 @@ QQ截图20241208202150.png
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这段我个人认为还是翻译问题居多，日文突出了睦的人偶感和不会说话内味
 翻译成该走了让语气降了一档，想想看一个“祥，走”和“祥，该走了”是不是同一个语气
 
+
+*****
+
+####  PDQ4  
+##### 2701#       发表于 2024-12-9 00:02
+
+怎么有种古早文字冒险游戏的美感，睦在这敲指令吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 2702#       发表于 2024-12-9 00:05
+
+ 本帖最后由 Aendst 于 2024-12-9 00:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66876733&amp;ptid=2208921" target="_blank">allesdg 发表于 2024-12-8 23:52</a>
+
+看到cast表上在葬礼上说话的两个声音对应写的是亲族A和B，也就是说按坐次来看睦这边的关系比一般亲族还要近 ...</blockquote>
+如果睦真的坐在祥子身后一排并且同一侧，仅按照日本葬礼座席顺来说就是“近亲”（表姐妹）的关系
+
+我不太理解为什么泥漏很多人不愿意讨论这个就是了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+葬礼外公右边不太有人其实也是这个原因，因为这一侧的人按照一般葬礼习俗来说都是亲属
+
+祥子这一排是祥妈配偶、子女、父母、祖父母、兄弟姐妹的位置，兄弟姐妹也有可能会坐第二排（睦那一排），所以可能也不完全空巢
+
+总之越靠前的跟祥妈关系越近，祥子这一侧都是有亲缘关系的
+

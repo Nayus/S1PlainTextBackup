@@ -13366,3 +13366,15 @@ PV睦的戏份实在是太重了，虽然基本默认第二集第三集都是睦
 
 除非双子，不然宁愿祥睦没有血缘关系<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仓鼠胖太  
+##### 2667#       发表于 2024-12-8 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66873465&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-8 15:35</a>
+睦后面会展示出叛逆的一面？也许是对家庭的叛逆
+
+聪慧的海玲……呃，海玲反面总不可能是愚笨吧 ...</blockquote>
+可能是对应笨拙吧
+

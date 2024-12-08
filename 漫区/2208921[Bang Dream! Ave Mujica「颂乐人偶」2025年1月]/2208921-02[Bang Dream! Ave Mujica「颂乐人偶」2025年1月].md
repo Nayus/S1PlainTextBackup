@@ -12433,3 +12433,27 @@ ep1有很多“睦其实可以不出场但总会出场”的地方，包括幼�
 
 我并不认为绫奈会这样做
 
+
+*****
+
+####  xwr  
+##### 2584#       发表于 2024-12-8 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66871823&amp;ptid=2208921" target="_blank">[皆神孝介] 发表于 2024-12-8 11:05</a>
+
+@AveMujica
+
+楼主在标题里标注一下“楼内大量剧透”吧，明年1月2日正式开播再改回来，刚刚还有坛友误入的
+
+ ...</blockquote>
+也许改成开播前专楼比较好，等到1月再开一楼。
+
+另外十分感谢私信。
+
+*****
+
+####  xwr  
+##### 2585#       发表于 2024-12-8 11:26
+
+只剩mujica了，那么连mujica也要失去，我明白了，ave mujica是喵梦夺权记<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

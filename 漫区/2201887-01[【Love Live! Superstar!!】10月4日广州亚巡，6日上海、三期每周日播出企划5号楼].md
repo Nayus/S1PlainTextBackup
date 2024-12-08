@@ -11862,3 +11862,23 @@ superstar！！
 
 一期第一集就是始空歌词
 
+
+*****
+
+####  一心而用  
+##### 1159#       发表于 2024-12-8 16:59
+
+话说没有分组回了？
+
+
+*****
+
+####  csolfans  
+##### 1160#       发表于 2024-12-8 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66874023&amp;ptid=2201887" target="_blank">一心而用 发表于 2024-12-8 16:59</a>
+话说没有分组回了？</blockquote>
+来不及了……
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

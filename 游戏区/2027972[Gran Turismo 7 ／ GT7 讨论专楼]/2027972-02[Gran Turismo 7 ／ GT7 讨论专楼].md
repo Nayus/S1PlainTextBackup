@@ -58,3 +58,25 @@
 有ps5的话手柄的体验也不会差，当然上限肯定没有方向盘那么高，不过如果你能摸到手柄的上限那么需不需要 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">感谢
 
+
+*****
+
+####  一个陆仁贾  
+##### 1898#       发表于 2024-12-8 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66874666&amp;ptid=2027972" target="_blank">洛克萨斯 发表于 2024-12-8 18:35</a>
+感谢</blockquote>
+这游戏里有个在线计时赛模式，取世界第一的圈速往后3%，在那条线之内的就能拿金牌，我自己金银铜的比例大概在6:3:1，我能见到的手柄仙人能排到全球排名600以内。
+总的来说上限还是很高的，如果你是初学者，建议你直接用陀螺仪模式控制方向，能避免摇杆固有限制给你养出坏习惯
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  mcq_2  
+##### 1899#       发表于 2024-12-8 21:08
+
+<blockquote>一个陆仁贾 发表于 2024-12-8 21:05
+这游戏里有个在线计时赛模式，取世界第一的圈速往后3%，在那条线之内的就能拿金牌，我自己金银铜的比例大 ...</blockquote>
+精度呢，够吗？
+

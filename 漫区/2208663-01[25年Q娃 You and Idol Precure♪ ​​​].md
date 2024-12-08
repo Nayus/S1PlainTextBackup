@@ -39,3 +39,22 @@
 
 假图要来了吗
 
+
+*****
+
+####  粉儿alice  
+##### 118#       发表于 2024-12-8 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66874433&amp;ptid=2208663" target="_blank">粉儿alice 发表于 2024-12-8 18:05</a>
+像这种人设图没有正式公布前起码有水印和一个大密红字吧 而且怎么清晰
+下一个 等猪对友 ...</blockquote>
+有舅舅实锤了？
+
+
+*****
+
+####  jaewoongh_  
+##### 119#       发表于 2024-12-8 18:37
+
+好像夹心酱啊
+

@@ -159,3 +159,13 @@ https://www.bilibili.com/opus/1006568537675792423</blockquote>
 
 第 44 集的 TVer 源（含日字）：magnet:?xt=urn:btih:4e50e9dfd73db05ed8949e49a0771577cdb40ebc
 
+
+*****
+
+####  leleq  
+##### 2649#       发表于 2024-12-8 22:21
+
+Q娃直面死亡的一回，这集躲开了小麦下一集不知道会怎么说。
+
+但是这集战斗编排真窝囊把。
+

@@ -13792,3 +13792,36 @@ QQ截图20241208202150.png
 
 总之越靠前的跟祥妈关系越近，祥子这一侧都是有亲缘关系的
 
+
+*****
+
+####  太二EricGuo  
+##### 2703#       发表于 2024-12-9 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66876384&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-8 22:44</a>
+ 确实  重点从被自然灾害波及变成了丰川祥子在人生路口做的每一个看似正确的决策却总会让自己陷入更大的问题 ...</blockquote>
+什么伞木希美
+
+*****
+
+####  allesdg  
+##### 2704#       发表于 2024-12-9 00:22
+
+这里电视右边可能是凳子的东西，凳腿是不是和睦地下室的有点像，上面好像放了什么东西人偶么，另外这种一堆显像管电视的非现实画面也不像是舞台效果，正片要回收的话应该是角色的梦或内心世界之类的吧（梦到黑化的自己~）
+
+<img src="https://img.saraba1st.com/forum/202412/09/001829eg2rtupr8u9irdz7.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20241208_232339.jpg</strong> (85.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-9 00:18 上传
+
+<img src="https://img.saraba1st.com/forum/202412/09/001847ihsgrzwpp9jawjww.png" referrerpolicy="no-referrer">
+
+<strong>videoplaybackexpire=1733174282ei=qs9NZ7pELe46dsPiI_20241203_022654_0.png</strong> (40.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-9 00:18 上传
+

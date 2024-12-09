@@ -196,3 +196,46 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">结社洗白搞得你轨反派不够用了，a团这么好的反派只用了一作，当时就不应该那么快杀光，后续还要复活，观感超差
 
+
+*****
+
+####  苏斯赫查  
+##### 7084#       发表于 2024-12-9 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66881233&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-12-9 15:24</a>
+结社洗白搞得你轨反派不够用了，a团这么好的反派只用了一作，当时就不应该那么快杀光，后续还要复活，观感 ...</blockquote>
+庭院这个组织就塑造得无比失败
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+
+
+*****
+
+####  秘银mithril  
+##### 7085#       发表于 2024-12-9 15:32
+
+ 本帖最后由 秘银mithril 于 2024-12-9 15:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66873159&amp;ptid=2160194" target="_blank">Renes 发表于 2024-12-8 14:32</a>
+
+约尔妲在黎2只要全对话就会发现她比她哥哥好相处多了吧，本来就是养盅杀杀杀养出来的，工作方面基本属于纯 ...</blockquote>
+我的关注点不是约尔妲这个角色自身的合理不合理
+
+而是这个角色定位的急速转变
+
+转变过快，根本无法和这个角色共情，出戏感直接溢出来了
+
+说白了，就像一个流水线产品一样……
+
+这种角色，要么最开始就是作为友方登场
+
+要么就是确确实实的冲突几次，铺垫够多了再洗白入队
+
+它这不上不下的，刚登场没打过几次架，是个什么样的人都没反应过来呢，就匆匆忙忙洗白入队，就……很懵逼（他俩入结社甚至是共用编号，反正我是想破头都想不到直接散伙，感觉编剧脑子有问题）
+
+*****
+
+####  badly1984  
+##### 7086#       发表于 2024-12-9 15:33
+
+我相信双胞胎他哥下一部就洗白入队
+

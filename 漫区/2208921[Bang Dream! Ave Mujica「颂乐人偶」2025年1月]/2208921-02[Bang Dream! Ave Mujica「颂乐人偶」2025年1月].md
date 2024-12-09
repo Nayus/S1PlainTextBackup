@@ -14894,3 +14894,69 @@ newtpye的1月号</blockquote>
 因为负罪感而想办法给ccc三人找到另外的归宿，不也是一种责任感的体现吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/20/33477c97e546f08f779c2b342a4a6123/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  贰臣  
+##### 2794#       发表于 2024-12-9 15:27
+
+好激烈的斗争<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+睦每次确实都选了祥子这一点对某些人来说是那么不忍直视的事实吗
+
+*****
+
+####  akiomn  
+##### 2795#       发表于 2024-12-9 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66881243&amp;ptid=2208921" target="_blank">杂灰 发表于 2024-12-9 15:25</a>
+什么叫只是责任感，我说的是表现为责任感，责任感得背后才是真正的关系性。一句青梅竹马当解释跟“只是责 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有啊，解散ccc，祥子可没事先通知睦要解散，睦对解散ccc可是打出最后一击的
+我觉得你是真难接受睦每次选择都选了祥子这个事实啊
+
+*****
+
+####  PDQ4  
+##### 2796#       发表于 2024-12-9 15:31
+
+为什么不解释
+因为那是狗动画而不是鸡动画
+睦祥是鸡动画的重点角色，不是狗的，鸡里真大幅度讲睦祥多好，只会让爽姐显得更加无理取闹难以忍受
+更何况祥子狗里真没关心睦吗，ccc旧事时以及第二集第六集的短暂对谈都能看出来
+漏油要是爱对比台词可以去听祥子的语气，这两集面对睦其实都很软<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  uhiuk  
+##### 2797#       发表于 2024-12-9 15:32
+
+第一集soyo说不回我就算了，你和她是幼驯染，我以为她会回你的消息的。
+
+第三集祥子介绍睦也说的幼驯染。
+
+其余互动也没必要一一指出，显然即使在剧中的角色眼里幼驯染也是更为亲密的关系，这点不难看出来吧
+
+*****
+
+####  skives10  
+##### 2798#       发表于 2024-12-9 15:32
+
+还是贴少了 该多来点肉体交流了
+
+*****
+
+####  仓鼠胖太  
+##### 2799#       发表于 2024-12-9 15:34
+
+我才是无力吐槽，第一部分那么大个绫乃part是被谁吃了？就全是监督柿本了？且对这种完全不是重点的点扣到令人惊叹的地步，对一些断章取义却习以为常，真是佩服佩服
+
+*****
+
+####  akiomn  
+##### 2800#       发表于 2024-12-9 15:36
+
+不解释不就是睦祥是鸡的角色，要藏到鸡篇的，祥子的过去藏到了鸡篇第一集，睦的视角也大概率藏在睦线
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狗是谜题篇，狗成团的同时抛下了睦祥两个谜团，鸡是解密篇，肯定要讲睦祥两人人生过去啊
+睦祥两个要是在狗篇就解密了，soyo对睦祥的纠缠直接彻底成爆笑小丑了，很毁灭角色塑造的
+

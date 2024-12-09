@@ -50,3 +50,16 @@
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  上坂莲华  
+##### 1665#       发表于 2024-12-9 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66837198&amp;ptid=2050204" target="_blank">moras2694 发表于 2024-12-4 04:09</a>
+
+终于把第二章最后两天接着打完了，本来以为24就是最后一天了，好漫长的一天，结果25才是最后一天。
+
+关于苍 ...</blockquote>
+苍井专武还有段剧情可以嗑
+

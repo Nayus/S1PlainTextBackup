@@ -12463,3 +12463,15 @@ woc才看PV国家队预定<img src="https://static.saraba1st.com/image/smiley/fa
 
 PV肯定不止第一集，起码包含了先行剧场版吧
 
+
+*****
+
+####  AMekodoku  
+##### 1195#       发表于 2024-12-9 08:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66837561&amp;ptid=2209276" target="_blank">RStocking 发表于 2024-12-4 08:15</a>
+机战的部分是3D？</blockquote>
+pv里的那个大回环看起来十分的eva q里真希波转转转
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

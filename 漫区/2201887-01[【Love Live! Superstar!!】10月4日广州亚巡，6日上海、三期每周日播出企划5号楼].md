@@ -11936,3 +11936,14 @@ VN明年真要和老五一起离开？感觉不会呀，她应该必留，说到
 
 这集写新KNK和恋，就是恋这描写真的从一而终……
 
+
+*****
+
+####  starring  
+##### 1167#       发表于 2024-12-9 08:10
+
+这集可可和冬毬完全是隐形人，插曲也只分给可可半句歌词，镜头就更少还一如既往地按死左边<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+钦定当学生会长的主旨没问题，但是一整季下来knk的塑造真撑不起这段剧情
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

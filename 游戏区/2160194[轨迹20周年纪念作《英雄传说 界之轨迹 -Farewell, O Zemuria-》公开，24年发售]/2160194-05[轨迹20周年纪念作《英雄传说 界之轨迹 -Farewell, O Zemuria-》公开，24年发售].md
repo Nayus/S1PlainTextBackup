@@ -254,3 +254,18 @@
 转变过快，根本无法和这个角 ...</blockquote>
 单纯是你对这角色无感，这角色从黎2加入结社后，定位就肯定不是往敌人塑造了，而且黎2对话里就有说过有事可以委托所长，看了不少评论约尔妲在这作人气还是不错的，包括入队这个事情。
 
+
+*****
+
+####  秘银mithril  
+##### 7088#       发表于 2024-12-9 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66881358&amp;ptid=2160194" target="_blank">Renes 发表于 2024-12-9 15:40</a>
+
+单纯是你对这角色无感，这角色从黎2加入结社后，定位就肯定不是往敌人塑造了，而且黎2对话里就有说过有事 ...</blockquote>
+真要说的话我对约尔妲还算喜欢呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+说实话突兀入队我也就是吐槽一句，但对于入队我还是欢迎
+
+但第三章那个羁绊事件，那个是突兀洗白，就搞得我应激了……这安排真的蠢透了
+

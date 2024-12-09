@@ -15059,3 +15059,42 @@ mujica篇go团成员有什么表现没有漏油预测预测吗<img src="https://
 
 祥子精神状态滑坡盐睦1年，但她之前跟睦保持了亲密关系15年啊。
 
+
+*****
+
+####  贰臣  
+##### 2813#       发表于 2024-12-9 15:49
+
+第一话里看到祥子摘面具以后，爱音第一反应就是担心地去看soyo的反应<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  akiomn  
+##### 2814#       发表于 2024-12-9 15:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得睦视角可能回忆部分会出现过去祥子好感度刷满的情况，然后自责自己没法拉现在的黑祥，罪恶感直接爆了
+
+*****
+
+####  PDQ4  
+##### 2815#       发表于 2024-12-9 15:56
+
+个人比较好奇的是小时候睦祥到底怎么交流的
+昨天漏u提到那个祥，移动细品完真的爆笑
+幼睦也这么无口，不会从小就脑电波交流吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 2816#       发表于 2024-12-9 15:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  杂灰  
+##### 2817#       发表于 2024-12-9 15:57
+
+我超一个想看素世激寒插足的帽子就丢过来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还说我消解关系性，我倒看你楼对睦祥关系的期望都快成舔狗塑，睦祥这种说是青梅实际上双子配置的关系不讨论各自的人生议题真的对劲吗，不管是最后选择分开还是成为一体，被这个议题拷打过得关系性肯定会更好啊
+

@@ -12094,3 +12094,13 @@ VN明年真要和老五一起离开？感觉不会呀，她应该必留，说到
 
 <img src="https://p.sda1.dev/20/77918e17b6958a6072141fa557ef0182/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 1182#       发表于 2024-12-9 20:55
+
+6th不意外，看看6th播完公开什么消息了
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

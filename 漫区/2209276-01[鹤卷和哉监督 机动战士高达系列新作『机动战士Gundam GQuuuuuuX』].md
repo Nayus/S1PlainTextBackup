@@ -12743,3 +12743,13 @@ khara连他们自家的EVA都拍成那副样子，你们咋们对他们这么有
 
 新的，最新的火星水星高达很好吗，这种片子难道还要怎么讨人喜欢吗，再来两部？
 
+
+*****
+
+####  PascalLefèvre  
+##### 1223#       发表于 2024-12-9 20:54
+
+新的高达不好又不是因为新，多安岛就好到哪里去嘛<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

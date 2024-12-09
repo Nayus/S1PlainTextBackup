@@ -15412,3 +15412,11 @@ newtype没有电子版吧
 
 newtype沒有電子版，偷跑是指日本書店的偷跑（而且還好看運氣書店有沒有提前上）
 
+
+*****
+
+####  桜庭千景  
+##### 2847#       发表于 2024-12-9 18:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">问了下 应该指的是有人传扫图
+

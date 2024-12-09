@@ -15271,3 +15271,32 @@ mujica篇go团成员有什么表现没有漏油预测预测吗</blockquote>
 好日子来啦，想到能多看到点消息物料我就开心<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 我能不能做梦动画卖点海睦让我吃吃，这对有点公主骑士的感觉，我就好这口<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 2832#       发表于 2024-12-9 16:30
+
+好日子来啦，想到能多看到点消息物料我就开心<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+我能不能做梦动画多拍点初华的脸和腿，她真的好漂亮，我就好这口<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  -LYRE-  
+##### 2833#       发表于 2024-12-9 16:34
+
+ 本帖最后由 -LYRE- 于 2024-12-9 16:36 编辑 
+
+实在没想到都一年了，还会有对<blockquote>看了的人可能會很驚訝，『BanG Dream!』裡居然有覺得玩樂隊不開心的人!? （笑）。睦自身會那樣覺得的理由還不能說，但這句話也說明了「樂隊內所有成員的心情要一致是很難的」。</blockquote>这段这么直白的访谈抱有异议的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+和这样的阅读理解能力交流实在是过于心累
+还是善用鹅球塞抹布好了
+
+*****
+
+####  御幸一也  
+##### 2834#       发表于 2024-12-9 16:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">至少megami那邊會有一張新圖……吧
+

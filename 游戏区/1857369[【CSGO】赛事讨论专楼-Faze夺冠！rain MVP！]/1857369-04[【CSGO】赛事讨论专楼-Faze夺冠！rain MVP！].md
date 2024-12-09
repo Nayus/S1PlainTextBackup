@@ -53,3 +53,20 @@ X队绿龙这米看爽了，以及全场高光的这个BGM是啥？网易云还�
 这次我总有种蒙古夺冠的预感，但你让我贴我又不大敢贴
 反正这届比赛也没看，直接抄玩机器的了，钻不钻石什么的也早就无所谓了
 
+
+*****
+
+####  heseran  
+##### 4573#       发表于 2024-12-9 22:54
+
+我这次都没买通行证<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  OVOVO  
+##### 4574#       发表于 2024-12-9 22:58
+
+今年年中玩机器就在说niko三年进一次决赛理论，说要猜g2夺冠，看看这一次niko能进决赛能捧杯吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+蒙古队这次一路走过来都很顺，但淘汰赛是一个极大的挑战，有可能就像上半年mouz一样止步八强，正好他们的对手也是mouz<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

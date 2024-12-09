@@ -12633,3 +12633,13 @@ eva终的0708巴黎作战吧，那个其实当年出这个作战的时候就有�
 
 那不然呢，只有真喜欢作品的才会强调遗啊
 
+
+*****
+
+####  jojonathan  
+##### 1211#       发表于 2024-12-9 13:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66880020&amp;ptid=2209276" target="_blank">没取名啊 发表于 2024-12-9 12:55</a>
+遗老怎么还能量产，生产条件是什么？看过00闪哈gto？</blockquote>
+答案是只要有新作遗老就会增殖<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+

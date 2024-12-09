@@ -12781,3 +12781,23 @@ khara连他们自家的EVA都拍成那副样子，你们咋们对他们这么有
 
 多安岛给我的感觉就是这个，其它毛病都是其次了。
 
+
+*****
+
+####  刺客ares  
+##### 1226#       发表于 2024-12-9 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66883999&amp;ptid=2209276" target="_blank">巴尔干炮 发表于 2024-12-9 21:18</a>
+
+关于这个绕口的副标题，看到有人提出这个观点，虽然比较扯但也挺好玩的。 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202412/09/214346ck86jp64q8l6lkls.png" referrerpolicy="no-referrer">
+
+<strong>捕获.PNG</strong> (98.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-9 21:43 上传
+
+这张更明显，反正这六个U明显是起到一个占位符的作用
+

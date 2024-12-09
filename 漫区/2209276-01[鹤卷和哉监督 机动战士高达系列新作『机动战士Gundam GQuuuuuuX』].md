@@ -12556,3 +12556,20 @@ eva终的0708巴黎作战吧，那个其实当年出这个作战的时候就有�
 
  一月份就要有先行剧场版了，现在却除了一个pv还啥料都没有的样子，好急<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jojonathan  
+##### 1203#       发表于 2024-12-9 12:11
+
+好急 情报哥呢 发力！
+
+*****
+
+####  oi99o  
+##### 1204#       发表于 2024-12-9 12:12
+
+现在就先这样了，新料估计要等剧场先行之后再说
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

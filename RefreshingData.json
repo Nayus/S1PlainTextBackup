@@ -1692,12 +1692,12 @@
     "update": false
   },
   "1025007": {
-    "totalreply": 6087,
+    "totalreply": 6088,
     "title": "[九井谅子新作《迷宫饭》]",
     "newtitle": "[九井谅子新作《迷宫饭》]",
-    "lastedit": 1733114181,
+    "lastedit": 1733717660,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2021226": {
@@ -2520,10 +2520,10 @@
     "update": false
   },
   "2071223": {
-    "totalreply": 3628,
+    "totalreply": 3630,
     "title": "[富坚义博 开设官推『全职猎人 ／ HUNTER×HUNTER』10月24日复刊！]",
     "newtitle": "[富坚义博 开设官推『全职猎人 ／ HUNTER×HUNTER』10月7日连载再开]",
-    "lastedit": 1733713089,
+    "lastedit": 1733717660,
     "category": "漫区",
     "active": true,
     "update": false
@@ -3537,10 +3537,10 @@
     "update": false
   },
   "2104259": {
-    "totalreply": 1294,
+    "totalreply": 1295,
     "title": "[机娘爱丽丝机甲／Alice Gear Aegis讨论帖#2 月底联动古番dirty pair]",
     "newtitle": "[机娘爱丽丝机甲／Alice Gear Aegis 摇曳露营联动？！]",
-    "lastedit": 1733675530,
+    "lastedit": 1733717888,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -6291,12 +6291,12 @@
     "update": false
   },
   "2143156": {
-    "totalreply": 514,
+    "totalreply": 515,
     "title": "[A&amp;I 战舰少女R 游戏讨论帖 战利品活动 9月1日 15：00 开始]",
-    "newtitle": "[A&amp;I 战舰少女R 游戏讨论帖 建造养成活动 11月21日15：00结束]",
-    "lastedit": 1732161992,
+    "newtitle": "[A&amp;I 战舰少女R 游戏讨论帖 冬日活动 12月13日15：00结束]",
+    "lastedit": 1733717529,
     "category": "手游专楼",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2012027": {
@@ -8631,10 +8631,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 108849,
+    "totalreply": 108852,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1733717051,
+    "lastedit": 1733717429,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -8919,10 +8919,10 @@
     "update": false
   },
   "2185578": {
-    "totalreply": 2895,
+    "totalreply": 2897,
     "title": "[真・三国无双 起源公布，原创主角，2025年登录ps5／pc／xs]",
     "newtitle": "[真・三国无双 起源公布，2025年1月17日登录ps5／pc／xs｜汜水关demo1122上线]",
-    "lastedit": 1733716221,
+    "lastedit": 1733717437,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -9648,10 +9648,10 @@
     "update": false
   },
   "2183166": {
-    "totalreply": 944,
+    "totalreply": 945,
     "title": "[2024年新来打🍬🍭「假面骑士 GAVV」]",
     "newtitle": "[2024年新来打🍬🍭「假面骑士 GAVV」]",
-    "lastedit": 1733678412,
+    "lastedit": 1733717429,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10044,10 +10044,10 @@
     "update": false
   },
   "2201926": {
-    "totalreply": 34354,
+    "totalreply": 34355,
     "title": "[【集中楼】百合&amp;泛百合讨论楼9.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼9.0]",
-    "lastedit": 1733716826,
+    "lastedit": 1733717660,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10386,10 +10386,10 @@
     "update": false
   },
   "2031000": {
-    "totalreply": 837,
+    "totalreply": 842,
     "title": "[Elin Elona续作Elin确定于2024年11月1日开始EA！]",
     "newtitle": "[Elin Elona续作Elin确定于2024年11月1日开始EA！]",
-    "lastedit": 1733712732,
+    "lastedit": 1733717660,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11312,15 +11312,6 @@
     "active": false,
     "update": false
   },
-  "2207840": {
-    "totalreply": 188,
-    "title": "[明末打成南北朝才是最糟糕的局面]",
-    "newtitle": "[明末打成南北朝才是最糟糕的局面]",
-    "lastedit": 1732507824,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
   "2207877": {
     "totalreply": 148,
     "title": "[我的七年之痒]",
@@ -11340,10 +11331,10 @@
     "update": false
   },
   "2207788": {
-    "totalreply": 528,
+    "totalreply": 530,
     "title": "[流放之路2／降临(Path of Exile2) 大型施工现场]",
     "newtitle": "[流放之路2／降临(Path of Exile2) 12／7抢先体验 官中！开服前达成百万]",
-    "lastedit": 1733716838,
+    "lastedit": 1733717437,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13644,10 +13635,10 @@
     "update": false
   },
   "2208678": {
-    "totalreply": 106,
+    "totalreply": 107,
     "title": "[以撒的结合为什么好玩]",
     "newtitle": "[以撒的结合为什么好玩（更新：确实好玩）]",
-    "lastedit": 1733716467,
+    "lastedit": 1733717660,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13869,10 +13860,10 @@
     "update": false
   },
   "2206957": {
-    "totalreply": 719,
+    "totalreply": 720,
     "title": "[暖暖ip系列新作《无限暖暖》定档12.05]",
     "newtitle": "[暖暖ip系列新作《无限暖暖》定档12.05]",
-    "lastedit": 1733716828,
+    "lastedit": 1733717429,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13905,12 +13896,12 @@
     "update": false
   },
   "2208810": {
-    "totalreply": 205,
+    "totalreply": 206,
     "title": "[［重口］百万蟑螂，太解压了]",
     "newtitle": "[［重口］百万蟑螂，太解压了]",
-    "lastedit": 1733419929,
+    "lastedit": 1733717435,
     "category": "外野",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2208797": {
@@ -15498,10 +15489,10 @@
     "update": false
   },
   "2209276": {
-    "totalreply": 1202,
+    "totalreply": 1204,
     "title": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
     "newtitle": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
-    "lastedit": 1733716820,
+    "lastedit": 1733717654,
     "category": "漫区",
     "active": true,
     "update": false
@@ -15534,10 +15525,10 @@
     "update": false
   },
   "2209252": {
-    "totalreply": 1909,
+    "totalreply": 1918,
     "title": "[中东专楼12月，看清楚规则再回帖]",
     "newtitle": "[中东专楼12月，看清楚规则再回帖]",
-    "lastedit": 1733717184,
+    "lastedit": 1733717779,
     "category": "外野",
     "active": true,
     "update": false
@@ -15984,10 +15975,10 @@
     "update": false
   },
   "2209411": {
-    "totalreply": 231,
+    "totalreply": 232,
     "title": "[美国联合健康保险CEO被当街暗杀]",
     "newtitle": "[美国联合健康保险CEO被当街暗杀]",
-    "lastedit": 1733711539,
+    "lastedit": 1733717431,
     "category": "外野",
     "active": true,
     "update": false
@@ -16965,10 +16956,10 @@
     "update": false
   },
   "2209689": {
-    "totalreply": 108,
+    "totalreply": 109,
     "title": "[有什么作品是被动画化毁掉的？]",
     "newtitle": "[有什么作品是被动画化毁掉的？]",
-    "lastedit": 1733713457,
+    "lastedit": 1733717429,
     "category": "漫区",
     "active": true,
     "update": false
@@ -17064,10 +17055,10 @@
     "update": false
   },
   "2107614": {
-    "totalreply": 53,
+    "totalreply": 54,
     "title": "[叠纸跨平台开放世界游戏《无限暖暖》12月5日正式公测！]",
     "newtitle": "[叠纸跨平台开放世界游戏《无限暖暖》12月5日正式公测！]",
-    "lastedit": 1733711891,
+    "lastedit": 1733717889,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -17127,19 +17118,19 @@
     "update": false
   },
   "2209688": {
-    "totalreply": 53,
+    "totalreply": 54,
     "title": "[有没有敌人资源和玩家一样可以耗尽的ARPG游戏？]",
     "newtitle": "[有没有敌人资源和玩家一样可以耗尽的ARPG游戏？]",
-    "lastedit": 1733715643,
+    "lastedit": 1733717660,
     "category": "游戏区",
     "active": true,
     "update": false
   },
   "2209758": {
-    "totalreply": 128,
+    "totalreply": 129,
     "title": "[美帝那边健身类固醇已经跟毒品没什么两样了吧]",
     "newtitle": "[美帝那边健身类固醇已经跟毒品没什么两样了吧]",
-    "lastedit": 1733716826,
+    "lastedit": 1733717421,
     "category": "外野",
     "active": true,
     "update": false
@@ -17163,10 +17154,10 @@
     "update": false
   },
   "2209765": {
-    "totalreply": 291,
+    "totalreply": 293,
     "title": "[叙军方称巴沙尔·阿萨德的统治已经结束]",
     "newtitle": "[叙军方称巴沙尔·阿萨德的统治已经结束]",
-    "lastedit": 1733716570,
+    "lastedit": 1733717779,
     "category": "外野",
     "active": true,
     "update": false
@@ -17244,10 +17235,10 @@
     "update": false
   },
   "2209776": {
-    "totalreply": 107,
+    "totalreply": 108,
     "title": "[山西人是全国吃面最厉害的吗？]",
     "newtitle": "[山西人是全国吃面最厉害的吗？]",
-    "lastedit": 1733717186,
+    "lastedit": 1733717779,
     "category": "外野",
     "active": true,
     "update": false
@@ -17325,19 +17316,19 @@
     "update": false
   },
   "2209833": {
-    "totalreply": 61,
+    "totalreply": 62,
     "title": "[伊朗总统佩医生召开内阁会议，称尊重叙利亚人民选择自己的制度]",
     "newtitle": "[伊朗总统佩医生召开内阁会议，称尊重叙利亚人民选择自己的制度]",
-    "lastedit": 1733717184,
+    "lastedit": 1733717779,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2209830": {
-    "totalreply": 54,
+    "totalreply": 55,
     "title": "[中国体操队俄国女教练最近的写真（战锤震旦龙娘？）]",
     "newtitle": "[中国体操队俄国女教练最近的写真（战锤震旦龙娘？）]",
-    "lastedit": 1733717184,
+    "lastedit": 1733717437,
     "category": "外野",
     "active": true,
     "update": false
@@ -17370,10 +17361,10 @@
     "update": false
   },
   "2209823": {
-    "totalreply": 79,
+    "totalreply": 81,
     "title": "[各位怎么看日漫被文化剽窃和种族互换行为？]",
     "newtitle": "[各位怎么看日漫被文化剽窃和种族互换行为？]",
-    "lastedit": 1733717184,
+    "lastedit": 1733717779,
     "category": "外野",
     "active": true,
     "update": false
@@ -17397,10 +17388,10 @@
     "update": false
   },
   "2209767": {
-    "totalreply": 47,
+    "totalreply": 50,
     "title": "[上海是不是有老上海国营餐厅style网红店]",
     "newtitle": "[上海是不是有老上海国营餐厅style网红店]",
-    "lastedit": 1733717184,
+    "lastedit": 1733717774,
     "category": "外野",
     "active": true,
     "update": false

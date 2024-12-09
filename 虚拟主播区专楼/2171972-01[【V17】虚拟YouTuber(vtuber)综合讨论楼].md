@@ -601,3 +601,13 @@ farm这块想法是可以的，但不管是洗石头还是农场什么的都人�
 據昨天也去了三枝 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">难道是在说Daynamic Erika吗
 
+
+*****
+
+####  Harunoharu  
+##### 948#       发表于 2024-12-9 16:54
+
+这次平衡比上次好与其说是黑帮限制人数起效了不如说是因为加了各种farm要素控制了黑帮的发展速度起效了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">警察30多号人不限制出警人数只要有案件发生就一堆人涌过去被各种吐槽太极端了来的人不是0就是30这真的平衡吗
+
+还有你要搞farmer可以啊那好歹调个正常点的倍数别让人家一天天十几个小时在同一个地方待着吧，辛辛苦苦农了半天结果素材全是给别人的自己啥也用不上就纯粹给人家当黑奴，drm找黑碳酸要素材还特意打的视频通话说要给他看一看其他地方的风景，这能上升到不爱玩别玩也是无敌了，得亏是日本人都能忍不然全抗议不上线了我看你去哪里搞黑帮<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -15331,3 +15331,23 @@ mujica篇go团成员有什么表现没有漏油预测预测吗</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
 
+
+*****
+
+####  IWS2000  
+##### 2838#       发表于 2024-12-9 16:52
+
+感觉这楼氛围和mygo楼后期也没啥区别，还以为没有换楼<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 2839#       发表于 2024-12-9 16:55
+
+ 本帖最后由 Aendst 于 2024-12-9 16:56 编辑 
+
+总会有奇人异士爆典扰乱正常讨论，没办法避免
+
+泥漏这么多人看，爆典的东西不去反驳传出去了岂不是很尴尬
+

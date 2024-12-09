@@ -15602,3 +15602,46 @@ noctis，拉丁语里的“夜”（也是ff15里男主的名字）我个人理�
 
 <img src="https://img.saraba1st.com/forum/202412/09/211712mfqdz3tuxtg8a686.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 2863#       发表于 2024-12-9 21:54
+
+第一話摘面具那邊，生氣的海鈴好美味<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
+就，好美味<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 2864#       发表于 2024-12-9 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66883993&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-9 21:17</a>
+
+虽然是第一集但这张应该不算剧透？
+
+noctis，拉丁语里的“夜”（也是ff15里男主的名字）我个人理解为夜光， ...</blockquote>
+查了下
+
+Nostri = Our
+
+Noctis = night
+
+合起來就是 我們的黑夜<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  悲伤颂偶  
+##### 2865#       发表于 2024-12-9 22:02
+
+<blockquote>御幸一也 发表于 2024-12-9 21:58
+查了下
+
+Nostri = Our
+
+Noctis = night
+</blockquote>
+这不吉利啊...
+

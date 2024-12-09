@@ -14323,3 +14323,14 @@ soyo也在她的视线范围之内 不像灯都不是一个学校的
 
 看房间背景应该不是地下室，可能是在睦自己的房间
 
+
+*****
+
+####  桜庭千景  
+##### 2746#       发表于 2024-12-9 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66879078&amp;ptid=2208921" target="_blank">allesdg 发表于 2024-12-9 11:11</a>
+
+应该就是镜子没错，最后一帧能看到镜子内外两本书</blockquote>
+这个对称的倒影就很明显了 确实是镜子
+

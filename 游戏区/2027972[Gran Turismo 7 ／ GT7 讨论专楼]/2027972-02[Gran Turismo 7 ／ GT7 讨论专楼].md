@@ -103,3 +103,11 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  霖岚_  
+##### 1902#       发表于 2024-12-9 11:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">虽然一直很感兴趣也挺爱看这类拟真赛车游戏的视频，但每次上手玩就是感觉玩不下去，以前ps4的gt sport买了就没动过，这次放出来的demo玩了一会还是感觉哪里不太对劲，每次过弯的手感都不一样真的太奇怪了，但看着这次折扣力度挺高加之拿点数换了余额200不到就能入手还是好想买……
+

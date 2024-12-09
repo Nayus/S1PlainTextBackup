@@ -12583,3 +12583,11 @@ eva终的0708巴黎作战吧，那个其实当年出这个作战的时候就有�
 
 这部GQX不出意外会是本世代制作水平最nb的tv正作，K社六年磨一剑，希望成绩口碑不辜负这套班底吧
 
+
+*****
+
+####  patema  
+##### 1206#       发表于 2024-12-9 12:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">童厕的高达遗老怎么比起强调自己的遗，更热衷于强调自己的老啊
+

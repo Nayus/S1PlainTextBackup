@@ -12611,3 +12611,17 @@ eva终的0708巴黎作战吧，那个其实当年出这个作战的时候就有�
 
 遗老怎么还能量产，生产条件是什么？看过00闪哈gto？
 
+
+*****
+
+####  patema  
+##### 1209#       发表于 2024-12-9 13:24
+
+ 本帖最后由 patema 于 2024-12-9 13:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66880020&amp;ptid=2209276" target="_blank">没取名啊 发表于 2024-12-9 12:55</a>
+
+遗老怎么还能量产，生产条件是什么？看过00闪哈gto？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">具体不明，可以确定的应该都是看过水魔的。uc不清楚，应该看过几个已经dssq化的ova和独角兽，外传和野望这种野史应该几乎都没看过
+
+表现特征是强调自己年纪大和成熟，指责现在的高达都是子供向作品。要看所谓的“成人”高达。比起看过什么具体的高达作品，其实感觉更像模玩圈子那边转化过来的
+

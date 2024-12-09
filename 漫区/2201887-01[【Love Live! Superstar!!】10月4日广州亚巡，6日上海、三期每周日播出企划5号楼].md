@@ -11957,3 +11957,13 @@ VN明年真要和老五一起离开？感觉不会呀，她应该必留，说到
 
 以及想到个奇妙角度，这集流水帐没说可可的下一步是因为香堇都没说+当时说的是中文，听不懂啦<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">然后都以为解决了事情，也不多问了，很有贵团一种熟悉的奇妙的没心没肺感，很松驰。
 
+
+*****
+
+####  starring  
+##### 1169#       发表于 2024-12-9 10:10
+
+还有千说各自的打算时略过了可可，就算前几集可可说了自己会继续唱歌，哪怕再提一句也比忽略了好，搞得你们三年级不包括可可那样<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

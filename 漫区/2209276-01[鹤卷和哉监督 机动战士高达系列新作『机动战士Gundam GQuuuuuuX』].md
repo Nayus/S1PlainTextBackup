@@ -12475,3 +12475,16 @@ pv里的那个大回环看起来十分的eva q里真希波转转转
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  llysander  
+##### 1196#       发表于 2024-12-9 08:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66863499&amp;ptid=2209276" target="_blank">Sliurus 发表于 2024-12-7 01:26</a>
+
+男主卡缪说我觉得挺有道理的，如果鸭子被塞进红高达做导师。“我不是夏亚，我现在只是一台刚大木”
+
+万一总 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer"> 迟到了不知多少年的CxK Cp (鸭x卡）对吧
+

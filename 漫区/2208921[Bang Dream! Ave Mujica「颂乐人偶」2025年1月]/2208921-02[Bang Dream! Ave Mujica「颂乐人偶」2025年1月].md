@@ -14087,3 +14087,29 @@ pv那个画面就是丰川家，好像还是之后回丰川家的可能大，访
 漏油前面提及电视疑似对应钢琴的位置，对睦的一种猜测是小时候当过童星，所以才知名度高引人注目
 两种猜测相结合，那么，有没有可能，睦小时候是因为钢琴登上电视，但是出了什么事，导致睦放弃钢琴转向吉他，同时对成为焦点拥有逃避心理？
 
+
+*****
+
+####  skives10  
+##### 2728#       发表于 2024-12-9 08:33
+
+<img src="https://img.saraba1st.com/forum/202412/09/083259np9vxo26y5kp62ua.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0698.jpeg</strong> (600.46 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-9 08:32 上传
+
+<img src="https://img.saraba1st.com/forum/202412/09/083304ss2viytsay829uoz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0699.jpeg</strong> (660.97 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-9 08:33 上传
+
+https://x.com/this_is_nn/status/1865772402434859369?s=46&amp;t=IZGx0N13SOtHALpwG0Ubrg
+

@@ -501,3 +501,32 @@ azki今年开始不再卖清楚人设了所以加进来了么
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rs5621  
+##### 10401#       发表于 2024-12-8 22:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好夹的35
+
+*****
+
+####  holoan  
+##### 10402#         楼主| 发表于 2024-12-9 10:26
+
+<blockquote>みこちのアニメ同時視聴候補　ヒント→⚡️
+
+・イナズマイレブン(127話)
+
+・BORUTO(293話)
+
+・うる星やつらリメイク(46話)
+
+・金色のガッシュベル(150話)
+
+・とある科学の超電磁砲(24話)
+
+・ポケモン(映画)</blockquote>
+
+参考，反正都没看过猜不出
+

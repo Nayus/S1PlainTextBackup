@@ -12499,3 +12499,19 @@ pv里的那个大回环看起来十分的eva q里真希波转转转
 看脸的话巴巴托斯不至于和其他几个一桌，也就天线造型像龙王丸，其他那几个是真的可以直接当其他机器人动画 ...</blockquote>
 网游和异世界热点都追过了，没能放开手all in上，也看不出特别成功或者失败，总之就是这么算尝试过了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 1198#       发表于 2024-12-9 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66877557&amp;ptid=2209276" target="_blank">AMekodoku 发表于 2024-12-9 08:08</a>
+pv里的那个大回环看起来十分的eva q里真希波转转转
+
+—— 来自 Sony XQ-AT72, Android 12上的 S1Next-鹅 ...</blockquote>
+eva终的0708巴黎作战吧，那个其实当年出这个作战的时候就有制作记录说了不是痞子主导的，算鹤卷做的（当然拍板还是痞子），下面的人执行，还拿手电筒当太阳做出炫光效果。（不是痞子那个nhk纪录片）
+
+技术上来说应该是沿用了。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

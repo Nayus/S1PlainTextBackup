@@ -14669,3 +14669,155 @@ Ave Mujica角色介绍
 
 为什么会非要选最俗套的“我和她只能选一个”呢？
 
+
+*****
+
+####  杂灰  
+##### 2775#       发表于 2024-12-9 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66880958&amp;ptid=2208921" target="_blank">御幸一也 发表于 2024-12-9 14:52</a>
+睦玩樂團不開心，是訪談錘的，祥子可沒讓她幫忙“殺死”CCC。這是她自己的選擇，不是祥子逼迫她的選擇喔 ...</blockquote>
+玩乐队不开心≠跟其他人产生联系不开心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">睦可以为了祥子舍弃很多≠睦眼里只有祥子。不熟归不熟，但要说没有感情那为什么看完几乎所有live目送老队友离开？mygo里睦对祥子的关心本来就是偏向责任感去塑造的，因为情节上根本没有安排祥子对睦展现个人魅力来说服观众睦是被好感驱动去帮助祥子。睦祥关系接下来是要靠揭晓这份责任感的本源去塑造的，但这跟睦有没有和其他人产生联系的意图根本不冲突我也不知道你们在辩什么
+
+*****
+
+####  PDQ4  
+##### 2776#       发表于 2024-12-9 15:06
+
+狂野mortis应该是安稳态
+这个爆说不定比mortis还要狂野，祥子有福了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 2777#       发表于 2024-12-9 15:06
+
+<img src="https://img.saraba1st.com/forum/202412/09/150649j151qulqqq5q1azz.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQbd5-k019ZlT3cSs3-sg.jpg</strong> (215.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-9 15:06 上传
+
+*****
+
+####  Aendst  
+##### 2778#       发表于 2024-12-9 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66881093&amp;ptid=2208921" target="_blank">NODY 发表于 2024-12-9 15:06</a></blockquote>
+想问一下这是哪家杂志，我想自购一下
+
+*****
+
+####  御幸一也  
+##### 2779#       发表于 2024-12-9 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66881087&amp;ptid=2208921" target="_blank">杂灰 发表于 2024-12-9 15:06</a>
+
+玩乐队不开心≠跟其他人产生联系不开心睦可以为了祥子舍弃很多≠睦眼里只有祥子。不熟归不熟，但要说没有 ...</blockquote>
+
+好一個責任感，對從小一起長大的幼馴染關心是因為“責任感”而不是感情好是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+因为情节上根本没有安排祥子对睦展现个人魅力来说服观众睦是被好感驱动去帮助祥子
+
+你想說什麼，那麼其他人就有展現魅力讓睦去“二選一”了嗎，說一下是什麼魅力我很好奇<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  御幸一也  
+##### 2780#       发表于 2024-12-9 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66881105&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-9 15:08</a>
+
+想问一下这是哪家杂志，我想自购一下</blockquote>
+不是animage就是animedia了 我忘記看了 我看一眼<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 2781#       发表于 2024-12-9 15:11
+
+漏油难道不是完全搞反了吗
+需要人格魅力去说服睦是会帮她在乎她的是爽姐
+我是不知道为什么有人觉得爽姐的pua那么有魅力，能把被利用说成自愿的真情实感
+
+而为什么睦会帮助祥子的理由从最开始就给出来了，幼驯染就是不用说的理由，直白的告诉观众这俩人就是好就是亲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 2782#       发表于 2024-12-9 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66881105&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-9 15:08</a>
+想问一下这是哪家杂志，我想自购一下</blockquote>
+newtpye的1月号
+
+
+*****
+
+####  御幸一也  
+##### 2783#       发表于 2024-12-9 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66881126&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-9 15:11</a>
+
+newtpye的1月号</blockquote>
+上newtype了真的假的<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+煩死這個可沒電子版 要掃圖<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 2784#       发表于 2024-12-9 15:13
+
+漏油不要被带节奏转移话题了
+
+可以帮各位重温一下经典发言的重点
+
+<strong>睦头</strong>还是<strong>夹在中间</strong>不知所措最后<strong>两头不讨好比较美味尽管</strong>睦本来是为了祥子振作才一起组ccc，<strong>但ccc也给睦提供了新的人际关系</strong>，ccc其他人固然没有祥子重要，<strong>但最后导致睦不得不把祥和其他人放天平上二选一的也是祥子</strong>，这是整个go都有在铺垫的，想要选择高雅坚强的活着的祥子<strong>总是在伤害想要帮她的人</strong>，睦祥要发生矛盾的话最有可能就是在这一点上，<strong>如果把睦写成完全只在乎祥对其他人没有太多想法只会减弱祥睦矛盾的尖锐性。</strong>
+
+就是睦的社交力真的太弱了，人际关系全是身份和祥子带来的，<strong>祥子需要她切割</strong>她也说服不了自己拒绝，<strong>好憋屈</strong>一孩子
+
+*****
+
+####  akiomn  
+##### 2785#       发表于 2024-12-9 15:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我之前还整理过祥子每个重要的人生节点都会出现睦
+从小一起玩到大，你跟我说只是责任感？
+只是现在睦视角还没出现，如果睦视角也有过去回忆那么祥子也会出镜甚至绝大部分都有祥子
+祥子部分的回忆让睦出现明显是刻意为之。不管是祥母生日前祥子说漏嘴让睦一起来，还是月之森祥子要转学部分特意告诉睦，这些镜头睦其实完全可以不出现
+
+*****
+
+####  相坂君  
+##### 2786#       发表于 2024-12-9 15:14
+
+跟其他人产生联系乐不乐意其实明显的？睦跟灯希联系都没有不开心，唯有……
+
+小编也很好奇，怎么就跟她不开心，也不知道是不是隔三差五逮着问祥子下落，还让开盒二选一
+
+唉，祥子让睦失去社交需求了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 2787#       发表于 2024-12-9 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66881044&amp;ptid=2208921" target="_blank">仓鼠胖太 发表于 2024-12-9 15:00</a>
+
+睦玩乐队不开心石锤是哪个访谈提到的？属实没见过，真这样人设就有挺大差异了 ...</blockquote>
+
+访谈是有说过，具体原因有待动画后续考察<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202412/09/150816l4je4ezimz9jkf1l.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (29.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-9 15:08 上传
+
+[访谈原文](https://febri.jp/topics/topics-bang-dream_mygo_6_2/)
+

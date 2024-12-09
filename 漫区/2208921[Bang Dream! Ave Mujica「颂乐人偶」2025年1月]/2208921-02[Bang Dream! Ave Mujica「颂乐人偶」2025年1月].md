@@ -15645,3 +15645,50 @@ Noctis = night
 </blockquote>
 这不吉利啊...
 
+
+*****
+
+####  御幸一也  
+##### 2866#       发表于 2024-12-9 22:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">感覺綾奈給初祥這邊寫的台詞都很嚇人
+
+又是“讓我忘掉一切”，又是“永遠在一起的願望實現了”……
+
+說出去誰知道這只是一個樂團動畫，還以為是什麼談情說愛的<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 2867#       发表于 2024-12-9 22:07
+
+回看了下2nd和3rd的台词，2nd的和第一集喵梦说的“昨天还会喜欢，明天就会厌倦”有对应
+
+3rd透露着一股不妙的感觉，祥子有可能失去一切？
+
+E497D904-DCDE-4B60-9A54-0ABAF94371B6.jpeg
+(113.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-9 22:07 上传
+
+<img src="https://img.saraba1st.com/forum/202412/09/220750addjggj0gdljlx6x.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+C79F74F4-0D58-4B09-ACE1-1DC5FAE12785.jpeg
+(144.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-9 22:07 上传
+
+<img src="https://img.saraba1st.com/forum/202412/09/220750ygjwgzsctoelve1t.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  skives10  
+##### 2868#       发表于 2024-12-9 22:12
+
+太好了 失去一切就可以开始反转了 而不是一直钝刀子割肉<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

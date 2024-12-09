@@ -15581,3 +15581,24 @@ the 娱乐圈原创
 
 <img src="https://p.sda1.dev/20/b077787da76c8d1e49c49ae6d63539f8/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 2862#       发表于 2024-12-9 21:17
+
+虽然是第一集但这张应该不算剧透？
+
+noctis，拉丁语里的“夜”（也是ff15里男主的名字）我个人理解为夜光，黑暗中的光明？
+
+之前访谈也说母鸡卡是黑暗中的光
+
+16E652B0-E8F8-4CB4-BF94-C38D2460F299.jpeg
+(154.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-9 21:17 上传
+
+<img src="https://img.saraba1st.com/forum/202412/09/211712mfqdz3tuxtg8a686.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

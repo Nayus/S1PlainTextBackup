@@ -12753,3 +12753,19 @@ khara连他们自家的EVA都拍成那副样子，你们咋们对他们这么有
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  巴尔干炮  
+##### 1224#       发表于 2024-12-9 21:18
+
+<img src="https://img.saraba1st.com/forum/202412/09/211628dnkjjvy3ozle99qj.jpg" referrerpolicy="no-referrer">
+
+<strong>1733721862996544.jpg</strong> (12.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-9 21:16 上传
+
+关于这个绕口的副标题，看到有人提出这个观点，虽然比较扯但也挺好玩的。<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

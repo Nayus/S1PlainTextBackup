@@ -206,3 +206,16 @@ Q娃直面死亡的一回，这集躲开了小麦下一集不知道会怎么说�
 不过就像网友的说法，不让孩子知道这个知道那个，反而会被错误的做法影响， ...</blockquote>
 藏着掖着本来就是大人的傲慢病，又不是影响儿童身心健康的内容
 
+
+*****
+
+####  sheshiro  
+##### 2653#       发表于 2024-12-9 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66878931&amp;ptid=2162354" target="_blank">jaewoongh_ 发表于 2024-12-9 10:59</a>
+
+藏着掖着本来就是大人的傲慢病，又不是影响儿童身心健康的内容</blockquote>
+让我想起魔法少女小圆在animax被评级6+保护级晚上9:30播放了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+让人感慨成人对孩子的标准实在是太过于模糊以至于都有点像双标了
+

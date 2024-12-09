@@ -14282,3 +14282,44 @@ soyo也在她的视线范围之内 不像灯都不是一个学校的
 黄瓜说 ...</blockquote>
 楼里之前是因为睦的发夹方向和mygo里的她相反而猜测是镜子，确实不能说确定，不过睦对某人砸书似乎更难想象<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">而且跟他人发展到肢体冲突的话矛盾未免严重了些
 
+
+*****
+
+####  Aendst  
+##### 2743#       发表于 2024-12-9 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66878911&amp;ptid=2208921" target="_blank">qjw114514 发表于 2024-12-9 10:56</a>
+
+楼里之前是因为睦的发夹方向和mygo里的她相反而猜测是镜子，确实不能说确定，不过睦对某人砸书似乎更难想 ...</blockquote>
+重看了一下，确实是有镜像的，睦手里的书也是镜像
+
+应该不是现实意义上的和人发生肢体冲突<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但是不能确定是镜子还是别的什么
+
+有点微妙的诡异，难怪渡瀬会怕
+
+*****
+
+####  allesdg  
+##### 2744#       发表于 2024-12-9 11:11
+
+应该就是镜子没错，最后一帧能看到镜子内外两本书
+
+<img src="https://img.saraba1st.com/forum/202412/09/111049wrarrudlzl9g4hra.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20241203_025210.png</strong> (51.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-9 11:10 上传
+
+*****
+
+####  Aendst  
+##### 2745#       发表于 2024-12-9 11:13
+
+ 本帖最后由 Aendst 于 2024-12-9 11:14 编辑 
+
+原来如此<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">所以可以基本认为这里就是在对着自己发飙了
+
+看房间背景应该不是地下室，可能是在睦自己的房间
+

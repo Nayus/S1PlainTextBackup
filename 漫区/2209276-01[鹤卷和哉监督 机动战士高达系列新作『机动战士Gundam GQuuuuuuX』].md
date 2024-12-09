@@ -12719,3 +12719,11 @@ khara连他们自家的EVA都拍成那副样子，你们咋们对他们这么有
 
 搞不好不站队新作、说新作坏话就成遗老了，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">增殖能不快吗
 
+
+*****
+
+####  xwz  
+##### 1220#       发表于 2024-12-9 17:39
+
+要用运动的眼光看待事物的发展，有新作的时候，喜欢之前高达的就是遗老了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

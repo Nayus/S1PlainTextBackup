@@ -194,3 +194,15 @@ Q娃直面死亡的一回，这集躲开了小麦下一集不知道会怎么说�
 12月21日(土)、キュアニャミーのお誕生日フェア開催♪</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">大友们该多买一些了
 
+
+*****
+
+####  jaewoongh_  
+##### 2652#       发表于 2024-12-9 10:59
+
+<blockquote>sheshiro 发表于 2024-12-8 23:14
+居然在光美里被寿命论揍了，唉
+
+不过就像网友的说法，不让孩子知道这个知道那个，反而会被错误的做法影响， ...</blockquote>
+藏着掖着本来就是大人的傲慢病，又不是影响儿童身心健康的内容
+

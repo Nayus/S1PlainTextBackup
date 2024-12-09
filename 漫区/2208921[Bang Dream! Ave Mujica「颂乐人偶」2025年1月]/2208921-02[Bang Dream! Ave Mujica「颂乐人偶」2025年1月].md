@@ -14385,3 +14385,42 @@ live爱好者小黄瓜唯一错过的是诗超绊 太遗憾了
 
 之前贴吧有人和我说睦对加入mujica一开始态度是消极，是以素食关系破裂为契机，担心祥子坏掉的这段访谈我找不到出处<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">至少我印象里没看到过
 
+
+*****
+
+####  -LYRE-  
+##### 2752#       发表于 2024-12-9 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66880562&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-9 13:59</a>
+睦对素食我的看法一直是和对老c团三个一样，等到三个都融入mygo了才放心离开
+
+之前贴吧有人和我说睦对加入m ...</blockquote>
+这段访谈确实是有的，不过为什么之前感到消极一直是未解之谜
+现在看来，可能是ccc的起因是睦邀请祥子去看蝶团live缓解丧母之痛，最后ccc的结果却是让祥子再次受伤，睦有可能因此对祥子组乐队产生ptsd？
+<img src="https://p.sda1.dev/20/63b7f4fe24dc18b717818182868bddbd/image.jpg" referrerpolicy="no-referrer">
+[【月光下的华尔兹——It’s MyGO!!!!!监督访谈Ave Mujica篇-哔哩哔哩】 https://b23.tv/BaSIvLP](https://b23.tv/BaSIvLP)
+
+*****
+
+####  skives10  
+##### 2753#       发表于 2024-12-9 14:06
+
+<img src="https://img.saraba1st.com/forum/202412/09/140650wtu77989u7u29j95.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3972.jpeg</strong> (257.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-9 14:06 上传
+
+*****
+
+####  akiomn  
+##### 2754#       发表于 2024-12-9 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66880605&amp;ptid=2208921" target="_blank">-LYRE- 发表于 2024-12-9 14:05</a>
+这段访谈确实是有的，不过为什么之前感到消极一直是未解之谜
+现在看来，可能是ccc的起因是睦邀请祥子去看 ...</blockquote>
+这么看得等睦视角了
+还有个可能是睦早知道祥子要组商业乐队，但是睦不想出现在媒体聚光灯下？
+

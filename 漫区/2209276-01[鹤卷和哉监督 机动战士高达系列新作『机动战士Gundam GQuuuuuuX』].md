@@ -12643,3 +12643,11 @@ eva终的0708巴黎作战吧，那个其实当年出这个作战的时候就有�
 遗老怎么还能量产，生产条件是什么？看过00闪哈gto？</blockquote>
 答案是只要有新作遗老就会增殖<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zakufa782  
+##### 1212#       发表于 2024-12-9 14:13
+
+遗老谈资论辈能比的上khara这帮人吗？
+

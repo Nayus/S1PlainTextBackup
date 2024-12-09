@@ -14960,3 +14960,102 @@ newtpye的1月号</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狗是谜题篇，狗成团的同时抛下了睦祥两个谜团，鸡是解密篇，肯定要讲睦祥两人人生过去啊
 睦祥两个要是在狗篇就解密了，soyo对睦祥的纠缠直接彻底成爆笑小丑了，很毁灭角色塑造的
 
+
+*****
+
+####  PDQ4  
+##### 2801#       发表于 2024-12-9 15:36
+
+事到如今只有来点大被同眠的剧情了
+反正爽睦厨也爱念叨姐姐妹妹，那睦祥睡一起肯定所有人都满意<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  杂灰  
+##### 2802#       发表于 2024-12-9 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66881274&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-9 15:29</a>
+有啊，解散ccc，祥子可没事先通知睦要解散，睦对解散ccc可是打出最后一击的
+我觉得你是真难接受睦每次选 ...</blockquote>
+你这理解到哪里去了咋一看还以为是给角色选妃呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我的动机一直都是想看睦祥关系性所以都在以睦祥冲突最大化复杂化为前提假设
+
+*****
+
+####  66367749  
+##### 2803#       发表于 2024-12-9 15:40
+
+睦对c团其他人基本是一视同仁的吧，灯那几场就没怎么缺过，mygo稳定之后也是送上了祝福。
+这个二选一的说法真让人摸不着脑袋，谁？让谁？在哪俩个里选？磕cp是个人自由，但不能把基本逻辑磕没了吧<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Tienx  
+##### 2804#       发表于 2024-12-9 15:40
+
+mujica篇go团成员有什么表现没有漏油预测预测吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 2805#       发表于 2024-12-9 15:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">骗骗自己可以，别以为其他人也都会被骗了
+
+
+*****
+
+####  skives10  
+##### 2806#       发表于 2024-12-9 15:42
+
+别的不说我就想看别人都在滑坡的时候而soyo在维护祥子的场面
+或者在网上和母鸡卡黑子对线也行
+
+*****
+
+####  御幸一也  
+##### 2807#       发表于 2024-12-9 15:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不停拆睦祥關係性然後說自己其實喜歡睦祥？好厲害的喜歡方式哦，我沒見過
+
+*****
+
+####  PDQ4  
+##### 2808#       发表于 2024-12-9 15:44
+
+不敢预测，害怕了
+但是爽世看live还在卖美帝，以及反应普通惊讶让我觉得爽姐大概不会暴雷了
+讲真第一集美帝要素超标了，独角兽真的很会搞<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仓鼠胖太  
+##### 2809#       发表于 2024-12-9 15:46
+
+说的不是睦在祥子和c团其他三人之间二选一吗，也没定到某个特定的人啊，到底是谁cp在上脑张冠李戴…
+
+*****
+
+####  uhiuk  
+##### 2810#       发表于 2024-12-9 15:46
+
+真在意睦祥关系的不应该一眼就看出来睦难受的点是眼见着祥子的状况越来越糟自己却做不了什么吗。
+
+*****
+
+####  akiomn  
+##### 2811#       发表于 2024-12-9 15:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">soyo看起来精神状态蛮稳定的，现在睦祥两颗雷可能soyo暂时都不会去找，睦是被soyo自己切割的，祥是把soyo切割的
+不如指望soyo这个宅女在网上和祥子黑粉对线
+
+*****
+
+####  前方暴雨预警  
+##### 2812#       发表于 2024-12-9 15:47
+
+说祥子对睦一点正反馈都没有的……都刻意忽略了之前漫长的白祥时期吗？
+
+老是抓着一个现在内心极端高压精神毫无余裕的家伙要正反馈是不是有点离谱，搞得像灵堂求婚一样。光看灯回忆里的C团就能看出来祥子也很照顾睦吧？
+
+祥子精神状态滑坡盐睦1年，但她之前跟睦保持了亲密关系15年啊。
+

@@ -15820,3 +15820,57 @@ C79F74F4-0D58-4B09-ACE1-1DC5FAE12785.jpeg
 简单说，编剧对祥子有一段剧情下了封口令，不准其他人提前跟高尾说，担心会影响她 ...</blockquote>
 其实不是这个意思……等具体翻译吧
 
+
+*****
+
+####  ydsbbt  
+##### 2883#       发表于 2024-12-10 01:14
+
+这些其实初次声优访谈都提到过
+
+<img src="https://img.saraba1st.com/forum/202412/10/011402d01px2eu50vyzbex.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-12-10-01-11-52-89_149003a2d400f6adb210d7e357a3a646.jpg</strong> (225 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-10 01:14 上传
+
+<img src="https://img.saraba1st.com/forum/202412/10/011408kifv8jmwav0npxn7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-12-10-01-12-06-87_149003a2d400f6adb210d7e357a3a646.jpg</strong> (891.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-10 01:14 上传
+
+*****
+
+####  akiomn  
+##### 2884#       发表于 2024-12-10 01:15
+
+我刚才提的是这个
+
+7C293F34-0CE5-42D5-A716-8AF81D05F0EA.jpeg
+(105.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-10 01:15 上传
+
+<img src="https://img.saraba1st.com/forum/202412/10/011506q9kykvbk5bv5j5cs.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 2885#       发表于 2024-12-10 01:19
+
+看了第一集补的初华来看crychic表演突然想起来一个问题
+
+初华看了一整年的那个短信里面，祥子鼓励初华之后两个人就再也没有对话过了
+
+但初华来看live的话应该会在line上和祥子联系吧，所以初华被选上当偶像然后告知祥子，是在live之后的事情？
+
+这样的话初华不是这个点已经来东京工作了，而是专程从小岛大老远跑来看祥子的live，更真爱了呀<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

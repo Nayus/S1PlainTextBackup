@@ -233,3 +233,13 @@ Q娃直面死亡的一回，这集躲开了小麦下一集不知道会怎么说�
 
 这就足够了
 
+
+*****
+
+####  codezwei  
+##### 2655#       发表于 2024-12-9 22:28
+
+给大人看这些都受不了啊
+
+—— 来自 HUAWEI FOA-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

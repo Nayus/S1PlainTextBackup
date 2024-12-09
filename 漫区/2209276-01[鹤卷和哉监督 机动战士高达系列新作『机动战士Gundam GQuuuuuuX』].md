@@ -12488,3 +12488,14 @@ pv里的那个大回环看起来十分的eva q里真希波转转转
 万一总 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer"> 迟到了不知多少年的CxK Cp (鸭x卡）对吧
 
+
+*****
+
+####  llysander  
+##### 1197#       发表于 2024-12-9 08:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66872699&amp;ptid=2209276" target="_blank">Hidewhite 发表于 2024-12-8 13:06</a>
+
+看脸的话巴巴托斯不至于和其他几个一桌，也就天线造型像龙王丸，其他那几个是真的可以直接当其他机器人动画 ...</blockquote>
+网游和异世界热点都追过了，没能放开手all in上，也看不出特别成功或者失败，总之就是这么算尝试过了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

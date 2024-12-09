@@ -975,3 +975,14 @@ CM展以及野男人那个活动吧
 
 你贴的这段是有个日语不自由的问她为什么玩波比然后她回了几句韩语所以导致翻译崩坏了
 
+
+*****
+
+####  sino__unnko3  
+##### 17701#       发表于 2024-12-9 22:37
+
+ 本帖最后由 sino__unnko3 于 2024-12-9 22:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66884150&amp;ptid=2018830" target="_blank">TiHaru 发表于 2024-12-9 21:47</a>
+你贴的这段是有个日语不自由的问她为什么玩波比然后她回了几句韩语所以导致翻译崩坏了 ...</blockquote>
+这段没看懂，主播当时是现场查了翻译念的吗，印象里屏幕上没翻译窗口；是第一句说的用拼音来吗
+

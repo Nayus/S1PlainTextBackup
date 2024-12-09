@@ -15774,3 +15774,18 @@ C79F74F4-0D58-4B09-ACE1-1DC5FAE12785.jpeg
 
 访谈有点意思，不瞎讲等漏油翻译了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cayon  
+##### 2878#       发表于 2024-12-9 23:54
+
+只剩母鸡卡再到失去一切，用人话来讲不就是炸团嘛
+
+*****
+
+####  ellisnadie  
+##### 2879#       发表于 2024-12-9 23:56
+
+访谈有没有漏油总结一下重点
+

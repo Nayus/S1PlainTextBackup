@@ -14183,3 +14183,29 @@ https://x.com/this_is_nn/status/1865772402434859369?s=46&amp;t=IZGx0N13SOtHALpwG
 电视如果是媒体，如果要表现窥探欲的话，有一个第一人称一样的视角也挺合理 ...</blockquote>
 我也在这么想，也许睦眼里的那面镜子就是一个电视机，里面是笑容诡异的自己这么用力砸过去真的不会被玻璃弄伤吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 2735#       发表于 2024-12-9 10:42
+
+睦对爽世没有很关心的表现，基本都是爽世主动来找睦pua的，总不能说被pua也是一种关心，这太诡异了
+
+黄瓜说了快一年半了是送给mygo的，要说关心也是关心前队友全体
+
+pv那里有明显表现出睦砸的是镜子吗，我印象里好像没有
+
+只是一个第一视角看到睦砸书的场景来着？
+
+*****
+
+####  椎名真希  
+##### 2736#       发表于 2024-12-9 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66878763&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-9 10:42</a>
+睦对爽世没有很关心的表现，基本都是爽世主动来找睦pua的，总不能说被pua也是一种关心，这太诡异了
+
+黄瓜说 ...</blockquote>
+也不是完全没有，至少睦主动找过灯聊素，这算是很少见睦主动去做的事了
+不过这个行为像是睦自身对祥的想法把自己投影到素身上
+

@@ -12591,3 +12591,23 @@ eva终的0708巴黎作战吧，那个其实当年出这个作战的时候就有�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">童厕的高达遗老怎么比起强调自己的遗，更热衷于强调自己的老啊
 
+
+*****
+
+####  刺客ares  
+##### 1207#       发表于 2024-12-9 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66879822&amp;ptid=2209276" target="_blank">patema 发表于 2024-12-9 12:30</a>
+
+童厕的高达遗老怎么比起强调自己的遗，更热衷于强调自己的老啊
+
+水魔后的新时代量产高达遗老怎么感觉比起之 ...</blockquote>
+此事在马猴烧酒圈和类型月亮圈早有记载<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  没取名啊  
+##### 1208#       发表于 2024-12-9 12:55
+
+遗老怎么还能量产，生产条件是什么？看过00闪哈gto？
+

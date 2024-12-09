@@ -14532,3 +14532,52 @@ pua睦非得让睦告知祥子住址，让睦不得不在开盒和不开盒上�
 哪怕是组建新乐队，祥子在睦非常 ...</blockquote>
 有没有可能，是因为对方嗑爽睦，这个发言明显是在抬爽睦踩睦祥踩祥子的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qjw114514  
+##### 2763#       发表于 2024-12-9 14:47
+
+二选一了吗？c团时期睦和祥以外的人也没多熟悉，解散之后睦和灯希关系也没多差，好像只有一个人让她二选一了呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 2764#       发表于 2024-12-9 14:52
+
+二选一不会是说飞鸟山那里吧<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 2765#       发表于 2024-12-9 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66880716&amp;ptid=2208921" target="_blank">杂灰 发表于 2024-12-9 14:23</a>
+
+睦头还是夹在中间不知所措最后两头不讨好比较美味尽管睦本来是为了祥子振作才一起组ccc，但ccc也给睦提供了 ...</blockquote>
+睦玩樂團不開心，是訪談錘的，祥子可沒讓她幫忙“殺死”CCC。這是她自己的選擇，不是祥子逼迫她的選擇喔，望周知<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  uhiuk  
+##### 2766#       发表于 2024-12-9 14:55
+
+不会要告诉我睦的社交需求是三句不离祥子复辟c团的那种挖掘信息式的对话吧
+
+*****
+
+####  相坂君  
+##### 2767#       发表于 2024-12-9 14:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">原来爽睦厨眼里睦社交需求是指长崎爽世？
+
+*****
+
+####  桜庭千景  
+##### 2768#       发表于 2024-12-9 14:55
+
+<strong>“为了祥子放弃其他人”？</strong>
+
+不知道的还以为是爽姐给mujica送黄瓜让睦给退了<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+

@@ -457,3 +457,16 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">经典睁眼十字架 阿比这是有内部爱吧
 
+
+*****
+
+####  UNISONIA  
+##### 15236#       发表于 2024-12-9 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66874285&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-12-8 17:41</a>
+
+如果圣诞阿比宝具的舞伴根据玩家性别有不同建模，那她是不是第一个双宝具动画的赠送四星啊？
+
+（圣诞羽蛇神 ...</blockquote>
+严格来说有差分不算双宝具，双宝具至少本子那边的定义是得设计上完全不一样那种才算
+

@@ -12044,3 +12044,14 @@ VN明年真要和老五一起离开？感觉不会呀，她应该必留，说到
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  ViyViy  
+##### 1177#       发表于 2024-12-9 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66880930&amp;ptid=2201887" target="_blank">日野下花帆 发表于 2024-12-9 14:49</a>
+
+感觉楼友对莲的了解太少了 按目前的形势来看我可以下个断论说莲几乎不可能动画化了 就算动画化也是究极魔 ...</blockquote>
+那套3D动画难道真的就是宣布始动时说的动画供给吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">主要是有点反直觉了，虹拉扯到最后也是决定出动画，所以我觉得莲应该不可能只会满足于那套3D动画，传统总归要走一遭
+

@@ -11996,3 +11996,14 @@ VN明年真要和老五一起离开？感觉不会呀，她应该必留，说到
 
 现在这个尿不尽的节奏等本篇播完怎么都要学虹整个剧场版三部曲<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 1173#       发表于 2024-12-9 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66879402&amp;ptid=2201887" target="_blank">stygian 发表于 2024-12-9 11:40</a>
+
+现在这个尿不尽的节奏等本篇播完怎么都要学虹整个剧场版三部曲</blockquote>
+二组哪有资源搞完虹三部后再来星三部，草，才意识到难怪高达被外包出去了，如果后面高达都是外部组做，3组就是整一下剧场版，那确实有足够的资源来做剧场版了。
+

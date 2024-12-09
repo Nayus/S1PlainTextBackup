@@ -12548,3 +12548,11 @@ eva终的0708巴黎作战吧，那个其实当年出这个作战的时候就有�
 
 现在是完全升级大队长，整个局面本来就不同了。套老故事意义不大。甚至可能开局故事都有不同。
 
+
+*****
+
+####  PascalLefèvre  
+##### 1202#       发表于 2024-12-9 11:55
+
+ 一月份就要有先行剧场版了，现在却除了一个pv还啥料都没有的样子，好急<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

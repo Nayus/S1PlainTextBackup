@@ -12700,3 +12700,14 @@ khara连他们自家的EVA都拍成那副样子，你们咋们对他们这么有
 有个很有意思的猜测，卡喵是听说是有个机甲比赛冠军的设定的，有没有可能女主是这个世界线的卡喵 ...</blockquote>
 这样的话，叫卡缪就不会打起来了呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赤黑的假面  
+##### 1218#       发表于 2024-12-9 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66881227&amp;ptid=2209276" target="_blank">Hidewhite 发表于 2024-12-9 15:23</a>
+
+khara连他们自家的EVA都拍成那副样子，你们咋们对他们这么有信心的。他们现在撑死就一个长年不出手的天机老 ...</blockquote>
+挺好的，高畑勋，大冢康生都没拍过机器人玩具广告，不一样不影响他们的伟大
+

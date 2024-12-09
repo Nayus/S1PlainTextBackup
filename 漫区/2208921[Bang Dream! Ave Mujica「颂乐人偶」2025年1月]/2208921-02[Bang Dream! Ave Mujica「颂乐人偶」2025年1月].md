@@ -15874,3 +15874,31 @@ C79F74F4-0D58-4B09-ACE1-1DC5FAE12785.jpeg
 
 这样的话初华不是这个点已经来东京工作了，而是专程从小岛大老远跑来看祥子的live，更真爱了呀<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 2886#       发表于 2024-12-10 01:27
+
+官网更新睦的人物卡
+
+<img src="https://img.saraba1st.com/forum/202412/10/012639mguodqar5dqauza6.jpg" referrerpolicy="no-referrer">
+
+<strong>GeGvkB4akAAzcGR.jpg</strong> (131.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-10 01:26 上传
+
+
+*****
+
+####  NODY  
+##### 2887#       发表于 2024-12-10 01:31
+
+睦的和日文版出入有点大，删掉了和祥子是幼驯染还有从小练吉他这两句。
+
+还有就是目前的人物卡好像都删了和mygo成员是同学的部分（但和mujica成员是同学会保留）
+
+日文版：感情が表に出づらく、口下手だが、彼女なりに他人を気遣う一面も。父は人気お笑い芸人の若葉で、母は女優の森みなみ。また、祥子とは幼馴染である。幼少のころからギターを弾いており、腕は確かである。
+

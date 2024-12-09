@@ -2942,3 +2942,11 @@ https://api.xiaoheihe.cn/v3/bbs/app/api/web/share?link_id=139927615
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在硬盘就是耗材，不用太操心了
 反正游戏盘不存数据，坏了换新
 
+
+*****
+
+####  pentacles  
+##### 253#       发表于 2024-12-9 13:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 集中攻略功能只能追核桃?  吐了
+

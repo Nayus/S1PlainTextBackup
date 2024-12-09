@@ -989,3 +989,13 @@ woc，边狱公司和明日方舟会在2025年双向联动！
 
 2024-12-9 20:01 上传
 
+
+*****
+
+####  丢人居士  
+##### 1018#       发表于 2024-12-9 20:08
+
+真正的家人侠：家人全似了就能变强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PHB110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

@@ -16067,3 +16067,14 @@ C79F74F4-0D58-4B09-ACE1-1DC5FAE12785.jpeg
 
 对于母鸡卡而言确认音乐并非目的只是手段很有意思，明明团名是歌颂音乐底下却是不纯的动机，祥子在初次live前坦言一起享受是空话也确实有自我讽刺的意味。柿本列举的动机中想要变得有名无疑是喵梦；祥子目前表露出的动机是用新的乐队填补crychic的空缺；初华虽然由祥子提及过向往成为歌手但本人并未直接承认，目前唯一确认的动机就是梦想和祥子在一起；而睦则是为了崩溃边缘的祥子。唯一剩下的海铃信息量依然为零，希望是藏个大的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 2892#       发表于 2024-12-10 06:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66885410&amp;ptid=2208921" target="_blank">御幸一也 发表于 2024-12-10 04:28</a>
+
+animage 2025年1月號的Ave Mujica監督訪談</blockquote>
+名义上回顾MyGO!!!!!展望Mujica的访谈，实际上提到角色与剧情的时候几乎句句不离CCC，应该说柿本这个访谈再次证明了MyGO和Mujica都是属于武士道的商业团，CCC这个剧情团才是属于动画制作组的真爱团
+

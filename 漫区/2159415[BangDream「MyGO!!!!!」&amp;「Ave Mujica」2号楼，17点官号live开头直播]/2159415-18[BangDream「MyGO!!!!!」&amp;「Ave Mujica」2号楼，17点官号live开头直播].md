@@ -17489,3 +17489,12 @@ B站把这个日程表翻了，表里有个预约的右下角有白底黑字“�
 邦邦企划10周年Pastel*Palletes服装主视觉图公开
 <img src="https://p.sda1.dev/20/ab168878d2af746319a75195040544c7/Image_236053502252222.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  结衣小比取  
+##### 26608#       发表于 2024-12-9 22:21
+
+这个“生灵”翻译得没问题吗？<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/6e37ff18ac0798fa037228cad30aa4c9/image.jpg" referrerpolicy="no-referrer">
+

@@ -611,3 +611,19 @@ farm这块想法是可以的，但不管是洗石头还是农场什么的都人�
 
 还有你要搞farmer可以啊那好歹调个正常点的倍数别让人家一天天十几个小时在同一个地方待着吧，辛辛苦苦农了半天结果素材全是给别人的自己啥也用不上就纯粹给人家当黑奴，drm找黑碳酸要素材还特意打的视频通话说要给他看一看其他地方的风景，这能上升到不爱玩别玩也是无敌了，得亏是日本人都能忍不然全抗议不上线了我看你去哪里搞黑帮<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Devi_Lito  
+##### 949#       发表于 2024-12-9 19:23
+
+为什么就琉璃的冬服设计这么微妙。。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202412/09/192228b8fwiyflqf6kiyyf.png" referrerpolicy="no-referrer">
+
+<strong>1.PNG</strong> (633.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-9 19:22 上传
+

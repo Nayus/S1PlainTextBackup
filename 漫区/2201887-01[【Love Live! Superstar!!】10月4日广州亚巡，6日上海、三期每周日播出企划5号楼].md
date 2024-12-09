@@ -12071,3 +12071,11 @@ VN明年真要和老五一起离开？感觉不会呀，她应该必留，说到
 
 比起动画现在更需要个可玩性更强的手游来续命
 
+
+*****
+
+####  ViyViy  
+##### 1179#       发表于 2024-12-9 20:01
+
+卡牌有新规画<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">不过贵企划的尿性我相信绘柄会出其他形式周边的，小卡片这种就不特地收了
+

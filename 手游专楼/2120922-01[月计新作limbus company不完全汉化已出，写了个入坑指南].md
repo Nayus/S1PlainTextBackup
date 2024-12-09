@@ -943,3 +943,49 @@ woc，边狱公司和明日方舟会在2025年双向联动！
  ...</blockquote>
 困难只打了一把，选的4 7 10，主打一个稳定快速跳4拿核
 
+
+*****
+
+####  Jamaisvu  
+##### 1016#       发表于 2024-12-9 20:00
+
+血唐/桑丘的技能前瞻：
+
+<img src="https://img.saraba1st.com/forum/202412/09/195013ojhqffijiu1zes2f.png" referrerpolicy="no-referrer">
+
+<strong>f2e362c227057b6c0b8275c586b2d4cc_c450a1afc56f3baa64a98b4d3b8767e11247764479.png</strong> (2.83 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-9 19:50 上传
+
+<img src="https://img.saraba1st.com/forum/202412/09/195054j4wtxd4dxdjvtt6d.png" referrerpolicy="no-referrer">
+
+<strong>8b66fc3161fcd971acc95817d853154c_c8868e97e5e78c5d25aea7673bcfed9c1247764479.png</strong> (1.98 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-9 19:50 上传
+
+章节人格专属超长小作文，三个技能强化后都有不可摧毁的红币，强化一技能可以主动触发流血伤害，二技能是AOE，强化三技能击杀后能上对群debuff。
+
+一眼T0，鉴定为色血队核心，血魔体系必抽。
+
+目前还没开五号线，也不必强度焦虑，瓦夜估计等到圣诞左右开启，狂气该省还是要省，常驻角色等一周再换也可以。
+
+*****
+
+####  Jamaisvu  
+##### 1017#       发表于 2024-12-9 20:02
+
+刚看到一个up推测的八周年活动时间表，感觉还挺准，可参考：
+[https://www.bilibili.com/video/BV12HBmYmETw](https://www.bilibili.com/video/BV12HBmYmETw)
+
+<img src="https://img.saraba1st.com/forum/202412/09/200152evsjszzhoqldno6e.png" referrerpolicy="no-referrer">
+
+<strong>0894dcfc9995712314f6041e555d3031_4144e0be4553dd1dfdaf054db494224e16149859.png</strong> (1.9 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-9 20:01 上传
+

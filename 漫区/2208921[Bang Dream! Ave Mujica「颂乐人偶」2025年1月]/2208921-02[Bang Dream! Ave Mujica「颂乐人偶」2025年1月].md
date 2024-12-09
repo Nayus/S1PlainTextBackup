@@ -14464,3 +14464,71 @@ live爱好者小黄瓜唯一错过的是诗超绊 太遗憾了
 
 虽然最后大概率也是祥子把睦拉回来
 
+
+*****
+
+####  Aendst  
+##### 2758#       发表于 2024-12-9 14:35
+
+ 本帖最后由 Aendst 于 2024-12-9 14:41 编辑 
+
+导致睦不得不把祥和其他人放天平上二选一又是什么最潮最in的理解方式
+
+祥子想要她切割她不能拒绝又是什么东西，这是哪个世界线的故事情节
+
+漏油是不是偷偷把祥子和爽世灵魂互换了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+pua睦非得让睦告知祥子住址，让睦不得不在开盒和不开盒上二选一，这个倒是所有人都看得出来，确实好憋屈呀
+
+至于crychic，绫奈亲口说的玩乐队从未开心过是事实，睦都不开心漏油还要强迫睦觉得有新人际关系了一直一直好开心是吗
+
+
+*****
+
+####  仓鼠胖太  
+##### 2759#       发表于 2024-12-9 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66879078&amp;ptid=2208921" target="_blank">allesdg 发表于 2024-12-9 11:11</a>
+应该就是镜子没错，最后一帧能看到镜子内外两本书</blockquote>
+爆发都是对着镜子里的自己，睦的心理状态估计比祥子好不了多少
+
+*****
+
+####  桜庭千景  
+##### 2760#       发表于 2024-12-9 14:45
+
+我不知道为什么cp嗑着嗑着会变成这样，唉
+<strong>祥子 从来 都没有 让 睦 二选一</strong>
+
+哪怕是组建新乐队，祥子在睦非常消极的情况下最后也没有真的拿幼驯染身份去绑架她非加入不可
+
+不要把祥子想成控制欲特别强特别利己的人，贴吧nga跟风说暴君别就真信了
+
+见鬼的，我一个初祥党隔三差五要在你楼给睦祥说话，怎么会有这种事
+
+
+*****
+
+####  杂灰  
+##### 2761#       发表于 2024-12-9 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66880830&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-9 14:35</a>
+导致睦不得不把祥和其他人放天平上二选一又是什么最潮最in的理解方式
+
+祥子想要她切割她不能拒绝又是什么东 ...</blockquote>
+她不能拒绝是因为她是很重视关心祥子的人啊，但关心帮助祥子和她有自己的社交需求本来就不是应该冲突的东西，尽管她会为了祥子放弃其他人但不代表她不应该对需要放弃其他人的帮助方式抱有不满。
+
+*****
+
+####  Aendst  
+##### 2762#       发表于 2024-12-9 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66880894&amp;ptid=2208921" target="_blank">桜庭千景 发表于 2024-12-9 14:45</a>
+
+我不知道为什么cp嗑着嗑着会变成这样，唉
+
+祥子 从来 都没有 让 睦 二选一
+
+哪怕是组建新乐队，祥子在睦非常 ...</blockquote>
+有没有可能，是因为对方嗑爽睦，这个发言明显是在抬爽睦踩睦祥踩祥子的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

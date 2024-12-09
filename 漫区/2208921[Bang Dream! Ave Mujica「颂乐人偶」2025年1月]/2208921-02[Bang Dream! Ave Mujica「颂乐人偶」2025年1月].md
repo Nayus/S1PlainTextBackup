@@ -15420,3 +15420,11 @@ newtype沒有電子版，偷跑是指日本書店的偷跑（而且還好看運�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">问了下 应该指的是有人传扫图
 
+
+*****
+
+####  yone0000  
+##### 2848#       发表于 2024-12-9 18:41
+
+换个角度来说，睦祥在“解散”C团这件事上属于女女关系中相当高级的“共犯”关系啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -461,3 +461,16 @@ T3的nobo，居然能直接送礼装
 
 —— 来自 OPPO PGFM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  6030sylar  
+##### 46850#       发表于 2024-12-9 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66864932&amp;ptid=1712412" target="_blank">小妻水亚美 发表于 2024-12-7 11:19</a>
+
+这种时候只能清空游戏数据了
+
+—— 来自 OPPO PGFM10, Android 14上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+就是清了，过几天又来跑狗，现在2.86.1几天还没问题
+

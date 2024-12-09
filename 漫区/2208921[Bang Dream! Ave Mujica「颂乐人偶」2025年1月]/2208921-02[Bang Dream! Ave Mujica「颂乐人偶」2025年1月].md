@@ -14424,3 +14424,26 @@ live爱好者小黄瓜唯一错过的是诗超绊 太遗憾了
 这么看得等睦视角了
 还有个可能是睦早知道祥子要组商业乐队，但是睦不想出现在媒体聚光灯下？
 
+
+*****
+
+####  Aendst  
+##### 2755#       发表于 2024-12-9 14:15
+
+ 本帖最后由 Aendst 于 2024-12-9 14:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66880613&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-9 14:06</a></blockquote>
+好迷惑，那么可以有那样的吸血鬼paro吗<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+丰川祥子担负队友人生x
+
+丰川祥子吸队友血（物理）√
+
+
+*****
+
+####  杂灰  
+##### 2756#       发表于 2024-12-9 14:23
+
+睦头还是夹在中间不知所措最后两头不讨好比较美味<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">尽管睦本来是为了祥子振作才一起组ccc，但ccc也给睦提供了新的人际关系，ccc其他人固然没有祥子重要，但最后导致睦不得不把祥和其他人放天平上二选一的也是祥子，这是整个go都有在铺垫的，想要选择高雅坚强的活着的祥子总是在伤害想要帮她的人，睦祥要发生矛盾的话最有可能就是在这一点上，如果把睦写成完全只在乎祥对其他人没有太多想法只会减弱祥睦矛盾的尖锐性。
+就是睦的社交力真的太弱了，人际关系全是身份和祥子带来的，祥子需要她切割她也说服不了自己拒绝，好憋屈一孩子
+

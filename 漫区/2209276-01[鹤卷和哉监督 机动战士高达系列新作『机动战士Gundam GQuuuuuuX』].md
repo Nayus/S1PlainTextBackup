@@ -12651,3 +12651,13 @@ eva终的0708巴黎作战吧，那个其实当年出这个作战的时候就有�
 
 遗老谈资论辈能比的上khara这帮人吗？
 
+
+*****
+
+####  jojonathan  
+##### 1213#       发表于 2024-12-9 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66880650&amp;ptid=2209276" target="_blank">zakufa782 发表于 2024-12-9 14:13</a>
+遗老谈资论辈能比的上khara这帮人吗？</blockquote>
+他们属于太老了 已经被新时代遗老遗忘的人<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+

@@ -14821,3 +14821,76 @@ newtpye的1月号</blockquote>
 
 [访谈原文](https://febri.jp/topics/topics-bang-dream_mygo_6_2/)
 
+
+*****
+
+####  御幸一也  
+##### 2788#       发表于 2024-12-9 15:16
+
+武士道真宣傳花錢了，怎麼買上newtype了<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202412/09/151633tclasd7rcusdxvmu.jpg" referrerpolicy="no-referrer">
+
+<strong>Gd8R68NbIAA8VYO.jpg</strong> (190.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-9 15:16 上传
+
+[https://x.com/antch/status/1864228479916757179](https://x.com/antch/status/1864228479916757179)
+
+*****
+
+####  仓鼠胖太  
+##### 2789#       发表于 2024-12-9 15:19
+
+睦同时对祥子和ccc队员抱有好感，但最终在出现冲突的时候作为半身的她选择了站在祥子一边，这俩冲突吗？为啥一定要非此即彼
+我发现部分观众自从认定ccc成团时间短以后思维发散就很奇怪，之前喜欢说祥子对ccc没啥感情，现在mujika第一集祥子仰天大哭出门去了一看就很有感情这说法不成立了，就开始说睦对ccc没啥感情…
+
+
+*****
+
+####  仓鼠胖太  
+##### 2790#       发表于 2024-12-9 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66881166&amp;ptid=2208921" target="_blank">Kfly 发表于 2024-12-9 15:15</a>
+访谈是有说过，具体原因有待动画后续考察
+
+访谈原文</blockquote>
+后一句也点明了：有不让祥子一人背负解散乐队责任的原因，这和大部分人的猜测一致啊
+之前那位漏油说的我还以为编剧否认睦是为了不让祥子一人负罪才说这话的吗，这人怎么光捡自己想看的说…断章取义了吧属于
+
+*****
+
+####  杂灰  
+##### 2791#       发表于 2024-12-9 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66881116&amp;ptid=2208921" target="_blank">御幸一也 发表于 2024-12-9 15:09</a>
+好一個責任感，對從小一起長大的幼馴染關心是因為“責任感”而不是感情好是吧 
+
+因为情节上根本没有安 ...</blockquote>
+因为展现感情上需要情节来表现啊，go全篇都在刻意绕开解释睦为何如此关心祥子就是在故意藏睦对祥感情的实质，祥子对睦几乎一点正反馈桥段都不给，就是引导你去猜。你把青梅竹马当解释不是更压平关系性<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
+*****
+
+####  杂灰  
+##### 2792#       发表于 2024-12-9 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66881145&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-9 15:13</a>
+我之前还整理过祥子每个重要的人生节点都会出现睦
+
+从小一起玩到大，你跟我说只是责任感？
+
+只是现在睦视角还 ...</blockquote>
+什么叫只是责任感，我说的是表现为责任感，责任感得背后才是真正的关系性。一句青梅竹马当解释跟“只是责任感”在压平关系性上没有任何区别
+
+*****
+
+####  -LYRE-  
+##### 2793#       发表于 2024-12-9 15:26
+
+要说睦对祥是责任感，那睦对ccc不更是责任感？
+毕竟访谈实锤睦对ccc解散给出了决定性的一击，从此背负罪恶感
+因为负罪感而想办法给ccc三人找到另外的归宿，不也是一种责任感的体现吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/33477c97e546f08f779c2b342a4a6123/image.jpg" referrerpolicy="no-referrer">
+

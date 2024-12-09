@@ -15300,3 +15300,34 @@ mujica篇go团成员有什么表现没有漏油预测预测吗</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">至少megami那邊會有一張新圖……吧
 
+
+*****
+
+####  杂灰  
+##### 2835#       发表于 2024-12-9 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66881676&amp;ptid=2208921" target="_blank">桜庭千景 发表于 2024-12-9 16:14</a>
+“双子配置的关系不讨论各自的人生议题真的对劲吗”
+
+单说这句话确实没问题，双子各自的人生议题最后又合二 ...</blockquote>
+我提这点单纯是因为这是go的剧情里最有可能是在暗示睦祥矛盾主体的草蛇灰线，我不觉得绫奈会到了mujica才开始设置睦祥之间的的矛盾，mujica应该是引爆两人潜在的矛盾的篇章。
+
+
+*****
+
+####  Aendst  
+##### 2836#       发表于 2024-12-9 16:45
+
+我记得newtype这一期还会有绫奈的访谈
+
+不知道会不会提到mujica
+
+*****
+
+####  adcdqre  
+##### 2837#       发表于 2024-12-9 16:46
+
+有人偷偷把睦身上的矛盾换成睦祥之间的矛盾了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+

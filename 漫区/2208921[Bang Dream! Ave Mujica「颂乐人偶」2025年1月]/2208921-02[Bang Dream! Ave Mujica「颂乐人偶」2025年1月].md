@@ -14135,3 +14135,51 @@ https://x.com/this_is_nn/status/1865772402434859369?s=46&amp;t=IZGx0N13SOtHALpwG
 
 我觉得祥子也不会回本家住，只是单纯的单独住
 
+
+*****
+
+####  qjw114514  
+##### 2731#       发表于 2024-12-9 10:31
+
+睦如果对暴露在媒体面前有阴影的话电视机来作为表现道具确实很合理哎<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+不知道睦扔书砸镜子的时候眼里是不是也是电视？
+
+*****
+
+####  Aendst  
+##### 2732#       发表于 2024-12-9 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66878668&amp;ptid=2208921" target="_blank">qjw114514 发表于 2024-12-9 10:31</a>
+
+睦如果对暴露在媒体面前有阴影的话电视机来作为表现道具确实很合理哎
+
+不知道睦扔书砸镜子的时候眼里是不是 ...</blockquote>
+我在想扔书砸的是不是就是电视<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+电视如果是媒体，如果要表现窥探欲的话，有一个第一人称一样的视角也挺合理的
+
+
+*****
+
+####  无事忙  
+##### 2733#       发表于 2024-12-9 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66822402&amp;ptid=2208921" target="_blank">ydsbbt 发表于 2024-12-2 13:23</a>
+
+睦在蝶团live和mygolive上都鼓掌了，听音乐会却没什么反应，看来是真不喜欢管弦乐说睦对素世的演出一见钟情 ...</blockquote>
+睦为啥对素世比较关心，至少在小黄瓜退货之前是的吧
+
+我也记不起来了，脑子里东西太多了
+
+*****
+
+####  qjw114514  
+##### 2734#       发表于 2024-12-9 10:35
+
+ 本帖最后由 qjw114514 于 2024-12-9 10:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66878676&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-9 10:32</a>
+我在想扔书砸的是不是就是电视
+
+电视如果是媒体，如果要表现窥探欲的话，有一个第一人称一样的视角也挺合理 ...</blockquote>
+我也在这么想，也许睦眼里的那面镜子就是一个电视机，里面是笑容诡异的自己这么用力砸过去真的不会被玻璃弄伤吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

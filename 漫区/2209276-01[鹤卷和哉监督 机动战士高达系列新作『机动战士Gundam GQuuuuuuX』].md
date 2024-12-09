@@ -12573,3 +12573,13 @@ eva终的0708巴黎作战吧，那个其实当年出这个作战的时候就有�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  刺客ares  
+##### 1205#       发表于 2024-12-9 12:19
+
+剧场版先行起码有三集多的信息量，而且100%揭露世界观，也就一个月零几天了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+这部GQX不出意外会是本世代制作水平最nb的tv正作，K社六年磨一剑，希望成绩口碑不辜负这套班底吧
+

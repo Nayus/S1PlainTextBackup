@@ -15752,3 +15752,25 @@ C79F74F4-0D58-4B09-ACE1-1DC5FAE12785.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">访谈好多字啊
 
+
+*****
+
+####  yone0000  
+##### 2875#       发表于 2024-12-9 23:50
+
+看了下**，祥子最后出门时拿着的小手提箱应该是装娃娃的吧，差不多就是3分娃娃手提箱的尺寸，第二话应该是直接搬出去住了，要是没摘面具这事大概率就住睦家里了吧，摘了面具感觉不好说了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 2876#       发表于 2024-12-9 23:50
+
+巨蛋你邦十个团加一起都填不满，属于是独角兽敢写邦邦也不敢过了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 2877#       发表于 2024-12-9 23:54
+
+访谈有点意思，不瞎讲等漏油翻译了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

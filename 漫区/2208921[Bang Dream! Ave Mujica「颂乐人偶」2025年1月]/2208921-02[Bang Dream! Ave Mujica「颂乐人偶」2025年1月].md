@@ -15218,3 +15218,56 @@ mujica篇go团成员有什么表现没有漏油预测预测吗<img src="https://
 还玩乐队不开心是石锤
 军神还说不喜欢开战车呢，豆丁还说不喜欢当魔女呢，大魔王还说不喜欢麻将，一个个现在开心的不要不要的全都是观众逼编剧写的对吧。话不看怎么说的不考虑说的场景原因，编剧明说的为了不让祥子独自背负罪恶也是不看，就一杆子打死所有其他可能废黜百家独尊己术，这种的也不要来回复了，没什么好聊的
 
+
+*****
+
+####  御幸一也  
+##### 2828#       发表于 2024-12-9 16:19
+
+宣傳期真的來惹
+
+看了下megami和animage下期都有ave，估計animedia也有，買買買<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202412/09/161911el9d49c4d9dxn04d.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_7572.jpg</strong> (37.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-9 16:19 上传
+
+<img src="https://img.saraba1st.com/forum/202412/09/161912q8aa0oy2ywb16llk.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_7573.jpg</strong> (53.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-9 16:19 上传
+
+*****
+
+####  贰臣  
+##### 2829#       发表于 2024-12-9 16:23
+
+好日子总算来力<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  银酒监武  
+##### 2830#       发表于 2024-12-9 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66881359&amp;ptid=2208921" target="_blank">Tienx 发表于 2024-12-9 15:40</a>
+mujica篇go团成员有什么表现没有漏油预测预测吗</blockquote>
+最好不要有啥表现<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+*****
+
+####  瞳映山川  
+##### 2831#       发表于 2024-12-9 16:27
+
+好日子来啦，想到能多看到点消息物料我就开心<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+我能不能做梦动画卖点海睦让我吃吃，这对有点公主骑士的感觉，我就好这口<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

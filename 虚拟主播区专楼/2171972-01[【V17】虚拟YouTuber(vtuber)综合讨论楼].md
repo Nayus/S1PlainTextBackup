@@ -563,3 +563,41 @@ farm这块想法是可以的，但不管是洗石头还是农场什么的都人�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  Devi_Lito  
+##### 945#       发表于 2024-12-9 16:15
+
+本来想着和みたらし団的周年谷一起寄回来，现在只能和FC的新年贺卡一起寄回来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202412/09/161422o87z7vth7z7qcsdm.png" referrerpolicy="no-referrer">
+
+<strong>1.PNG</strong> (36.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-9 16:14 上传
+
+*****
+
+####  艾特娜  
+##### 946#       发表于 2024-12-9 16:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">警察黑帮甚至说医护都好歹是在玩游戏，素材苦工在那儿一个画面来来去去几个按钮纯聊天，正经杂谈配信好歹不用一直动手操作
+
+
+*****
+
+####  艾特娜  
+##### 947#       发表于 2024-12-9 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66876780&amp;ptid=2171972" target="_blank">aritaatsu222 发表于 2024-12-9 00:00</a>
+
+現地回來趁有印象寫感想
+
+首先位置抽得很好體驗觀感良好，甚至懷疑是綜合起來最爽的區域。
+
+據昨天也去了三枝 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">难道是在说Daynamic Erika吗
+

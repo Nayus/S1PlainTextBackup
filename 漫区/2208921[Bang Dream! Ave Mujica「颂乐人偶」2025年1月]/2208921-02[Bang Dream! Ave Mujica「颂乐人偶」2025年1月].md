@@ -15428,3 +15428,45 @@ newtype沒有電子版，偷跑是指日本書店的偷跑（而且還好看運�
 
 换个角度来说，睦祥在“解散”C团这件事上属于女女关系中相当高级的“共犯”关系啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  金属化反射装甲  
+##### 2849#       发表于 2024-12-9 19:13
+
+这个访谈和前两天网传国内现场放的声优访谈应该不是一个？
+
+*****
+
+####  ggxx001  
+##### 2850#       发表于 2024-12-9 19:15
+
+睦站在雨中淋雨的这块地砖好熟悉  挺像c团解散那天的 但雨明显没那么大
+
+<img src="https://img.saraba1st.com/forum/202412/09/191502r3kyvmvcdyzpbebg.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_0789.JPG</strong> (653.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-9 19:15 上传
+
+<img src="https://img.saraba1st.com/forum/202412/09/190926poyx0htun8um5obm.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_0787.JPG</strong> (526.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-9 19:09 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  桜庭千景  
+##### 2851#       发表于 2024-12-9 19:16
+
+不是同一个，看模糊的截图是柿本跟独角兽的访谈
+
+话说也算是一年来首次有独角兽发表观点吧
+

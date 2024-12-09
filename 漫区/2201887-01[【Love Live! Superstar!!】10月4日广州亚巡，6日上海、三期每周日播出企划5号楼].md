@@ -12079,3 +12079,18 @@ VN明年真要和老五一起离开？感觉不会呀，她应该必留，说到
 
 卡牌有新规画<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">不过贵企划的尿性我相信绘柄会出其他形式周边的，小卡片这种就不特地收了
 
+
+*****
+
+####  一心而用  
+##### 1180#       发表于 2024-12-9 20:45
+
+<img src="https://p.sda1.dev/20/6e35ffad23eaa2bc623e0cad3e0ecb1e/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 1181#       发表于 2024-12-9 20:45
+
+<img src="https://p.sda1.dev/20/77918e17b6958a6072141fa557ef0182/image.jpg" referrerpolicy="no-referrer">
+

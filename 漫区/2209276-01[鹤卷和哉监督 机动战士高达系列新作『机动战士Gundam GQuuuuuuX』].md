@@ -12661,3 +12661,23 @@ eva终的0708巴黎作战吧，那个其实当年出这个作战的时候就有�
 遗老谈资论辈能比的上khara这帮人吗？</blockquote>
 他们属于太老了 已经被新时代遗老遗忘的人<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  没钱打不起酱油  
+##### 1214#       发表于 2024-12-9 14:26
+
+没机器人doi的片我看都不看
+
+*****
+
+####  wpcc  
+##### 1215#       发表于 2024-12-9 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66878969&amp;ptid=2209276" target="_blank">wbtsy 发表于 2024-12-9 11:02</a>
+
+应该只是单纯颜色心理学，红毛在形象上一般比较主动、外向，适合当主角吧，比如樱木花道。
+
+这种算是常规 ...</blockquote>
+常规设计吧 之前都是粉毛配黑毛 高达出粉毛主角真的太奇怪拉
+

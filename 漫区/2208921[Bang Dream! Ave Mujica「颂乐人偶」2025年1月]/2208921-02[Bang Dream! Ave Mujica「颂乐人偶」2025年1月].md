@@ -14447,3 +14447,20 @@ live爱好者小黄瓜唯一错过的是诗超绊 太遗憾了
 睦头还是夹在中间不知所措最后两头不讨好比较美味<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">尽管睦本来是为了祥子振作才一起组ccc，但ccc也给睦提供了新的人际关系，ccc其他人固然没有祥子重要，但最后导致睦不得不把祥和其他人放天平上二选一的也是祥子，这是整个go都有在铺垫的，想要选择高雅坚强的活着的祥子总是在伤害想要帮她的人，睦祥要发生矛盾的话最有可能就是在这一点上，如果把睦写成完全只在乎祥对其他人没有太多想法只会减弱祥睦矛盾的尖锐性。
 就是睦的社交力真的太弱了，人际关系全是身份和祥子带来的，祥子需要她切割她也说服不了自己拒绝，好憋屈一孩子
 
+
+*****
+
+####  akiomn  
+##### 2757#       发表于 2024-12-9 14:29
+
+ 本帖最后由 akiomn 于 2024-12-9 14:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66880716&amp;ptid=2208921" target="_blank">杂灰 发表于 2024-12-9 14:23</a>
+
+睦头还是夹在中间不知所措最后两头不讨好比较美味尽管睦本来是为了祥子振作才一起组ccc，但ccc也给睦提供了 ...</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按pv分析，睦大概率要在海港那幕和祥子爆了
+
+在母鸡卡里睦没有在老c团三人和祥子做选择的问题，睦自己问题爆发和暂时没意识到是刺猬的黑祥，这就不是天平选择问题了，只是睦何时把祥子爆了问题
+
+虽然最后大概率也是祥子把睦拉回来
+

@@ -13051,3 +13051,11 @@ khara连他们自家的EVA都拍成那副样子，你们咋们对他们这么有
 
 富野就算只拍萝卜片也没有一直重复自己，v高达和倒A之间要不是隔了一个灵魂力量你敢信一个五六十的人几年间转变能有这么大
 
+
+*****
+
+####  patema  
+##### 1251#       发表于 2024-12-10 15:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你看，压根就没人在乎鹤卷。
+

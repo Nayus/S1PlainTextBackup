@@ -17611,3 +17611,15 @@ BTW 你邦前辈对粉丝还真是一如既往的好<img src="https://static.sar
 
 紫吧一个nsy厕所 天天蹭二刺猿 真是闹麻了
 
+
+*****
+
+####  CyDiablo  
+##### 26618#       发表于 2024-12-10 15:38
+
+ 本帖最后由 CyDiablo 于 2024-12-10 15:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66887300&amp;ptid=2159415" target="_blank">ml1642879 发表于 2024-12-10 11:39</a>
+夕阳红新剧情有剧透了吗</blockquote>
+准备考试和考完试出去玩了一圈，拍了很多照片，开始运营sns，以及制作mv发到sns
+具体可以看我#26609发的链接，nga那边有机翻剧情
+

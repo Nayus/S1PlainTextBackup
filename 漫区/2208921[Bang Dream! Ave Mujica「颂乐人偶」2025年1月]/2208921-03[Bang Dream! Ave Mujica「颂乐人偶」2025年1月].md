@@ -564,3 +564,61 @@ FA08倒是新的key，这样看来应该是事务所提供的吧
 
 查看全部评分
 
+
+*****
+
+####  3353764798  
+##### 3014#       发表于 2024-12-10 20:45
+
+会是运营把大祥踢出母鸡卡换成老牌明星甜甜圈，大祥走前抛下狠话三十年河东三十年河西，然后恭迎龙王归来吗。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  allesdg  
+##### 3015#       发表于 2024-12-10 20:49
+
+说到被夺走什么，不得不在意pv里那个破败空舞台的分镜了，仔细观察了一下首先确定明显不是武道馆的舞台，然后也不是ep13到第一集开头live所在的G-WAVE的舞台，gwave的台是梯形上底及两腰处竖立三块相连的荧幕，台下观众席正中位置是过道而非pv里正中对着一块观众席方阵，那这个舞台有可能和pv1里相同的电视墙里的那个疑似舞台远景是同一个？电视中勉强能看出来中间最宽处也是7块方阵，两边是两层斜面环台，emm这个剧场结构，不会真给干到巨蛋去了吧(好像有点牵强)
+
+<img src="https://img.saraba1st.com/forum/202412/10/204711rm76x3psp2r2nx7t.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20241210203044.jpg</strong> (93.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-10 20:47 上传
+
+<img src="https://img.saraba1st.com/forum/202412/10/204724yx1j1lxjm66o6dol.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20241210203027.jpg</strong> (42.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-10 20:47 上传
+
+<img src="https://img.saraba1st.com/forum/202412/10/204738xanybc5cci5a4k6z.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20241210203020.jpg</strong> (24.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-10 20:47 上传
+
+<img src="https://img.saraba1st.com/forum/202412/10/204743banbjsr6n6mojdfj.png" referrerpolicy="no-referrer">
+
+<strong>微信图片_20241210203012.png</strong> (389.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-10 20:47 上传
+
+微信图片_20241210203033.jpg
+(45.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-10 20:47 上传
+
+<img src="https://img.saraba1st.com/forum/202412/10/204733m6rlafqgct7trbca.jpg" referrerpolicy="no-referrer">
+

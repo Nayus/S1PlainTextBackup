@@ -12130,3 +12130,13 @@ VN明年真要和老五一起离开？感觉不会呀，她应该必留，说到
 
 还不如倔强游戏好听啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 1186#       发表于 2024-12-10 19:54
+
+总觉得这首歌是按照日文发音的调去填中文歌词
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

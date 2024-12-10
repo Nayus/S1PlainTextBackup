@@ -877,3 +877,33 @@ https://sora.com/</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和朋友交流了下sora的成果。让人忍俊不禁。
 
+
+*****
+
+####  濡鸦之羽_  
+##### 95#       发表于 2024-12-10 14:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">我好像错过了什么科技爆炸，细说混元
+
+*****
+
+####  siebten  
+##### 96#       发表于 2024-12-10 14:58
+
+啊？这个本地部署肯定说的是本地租服务器部署吧？ 
+
+*****
+
+####  x.cat  
+##### 97#       发表于 2024-12-10 14:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">废话少说，只需要告诉我们什么时候能按照咒语产出簧片
+
+
+*****
+
+####  Izunu_3  
+##### 98#       发表于 2024-12-10 15:02
+
+细说混元<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

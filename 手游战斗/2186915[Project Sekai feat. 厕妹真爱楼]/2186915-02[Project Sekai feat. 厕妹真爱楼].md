@@ -98,3 +98,13 @@ C601 ​​​
 
 不是很懂至少最后也是自己迈出了脚步
 
+
+*****
+
+####  cckuku  
+##### 1834#       发表于 2024-12-10 14:59
+
+老画为什么人家普卡花前就能爆杀你限定卡？
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

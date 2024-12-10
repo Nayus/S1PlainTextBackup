@@ -13362,3 +13362,19 @@ top2真能算钕同吗？感觉光凭那印度佬的存在就会被豚豚除籍�
 富野就算只拍萝卜片也没有一直重复自己，v高达和倒A之间要不是隔了一个灵魂力量你敢信一个五六十的人几年间 ...</blockquote>
 富野还是太论外了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，哪怕只看uc系高达他每部和每部的风格都差的很多
 
+
+*****
+
+####  PascalLefèvre  
+##### 1281#       发表于 2024-12-11 03:07
+
+<img src="https://img.saraba1st.com/forum/202412/11/030723td1ktikmklrpiijr.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_0820.JPG</strong> (575.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-11 03:07 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

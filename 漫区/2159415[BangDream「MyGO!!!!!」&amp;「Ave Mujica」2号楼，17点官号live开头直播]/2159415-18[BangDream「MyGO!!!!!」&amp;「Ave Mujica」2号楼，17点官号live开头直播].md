@@ -17631,3 +17631,23 @@ BTW 你邦前辈对粉丝还真是一如既往的好<img src="https://static.sar
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SakuraのOrigami  
+##### 26620#       发表于 2024-12-10 19:52
+
+FRONTIER FANTASIA完整版
+
+这是要去当海贼王的节奏吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这个弦乐史诗感太强了啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+连续的转调还挺好玩
+
+bridge段ykn跟亚子合唱还有点意思
+
+不过这个高音，有点又在迫害i83()
+
+尾奏的钢琴和军鼓kksk<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

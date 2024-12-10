@@ -17661,3 +17661,16 @@ bridge段ykn跟亚子合唱还有点意思
 
 安心感
 
+
+*****
+
+####  高规格ik  
+##### 26622#       发表于 2024-12-10 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66889162&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2024-12-10 15:30</a>
+
+一图流起因
+
+瓶吧钓鱼，钓到人了截图出去嘲笑。z8看到之后自愿上钩，以破防gop的名义炒作打低分，加上瓶吧 ...</blockquote>
+邦邦第二季还是降了0.1分<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

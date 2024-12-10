@@ -16233,3 +16233,16 @@ animage 2025年1月號的Ave Mujica監督訪談</blockquote><blockquote>——�
 柿本　可以說Ave Mujica是從“謊言中誕生真實”……<strong>大家都是擁有著必須要隱藏的東西</strong>，為了不讓自己覺察到（這個東西），而去構築一個堤防的人。比方說，<strong>睦是藝人夫婦家出生的星二代。如果她外出的話就會引人注目，但她本人不希望如此。祐天寺若麥則是作為主播很活躍，但通過畫面無法看到她的真心。</strong>這些社會形象都會有一個人格面具。而這個人格面具肯定不是很牢固的，很多人都要拼命地去掩飾。其他人我也想介紹一下，但現在我能說的就到這裡了。</blockquote>
 第一话的标题“秘密”果然是可以套用在所有成员身上的…
 
+
+*****
+
+####  瞳映山川  
+##### 2907#       发表于 2024-12-10 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66886246&amp;ptid=2208921" target="_blank">Kfly 发表于 2024-12-10 09:42</a>
+
+制作组の自觉，当时关于结尾会不会揭示祥子的事争了好久
+
+契机确认，这点本来很好懂但以前偶尔有看见说 ...</blockquote>
+越来越好奇海铃藏着什么秘密了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

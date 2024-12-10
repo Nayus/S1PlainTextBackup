@@ -17522,3 +17522,12 @@ B站把这个日程表翻了，表里有个预约的右下角有白底黑字“�
 2⭐
 <img src="https://p.sda1.dev/20/dd62b68a20dbe290e85760fad84e91d5/1733792816084.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CyDiablo  
+##### 26610#       发表于 2024-12-10 09:24
+
+BTW 你邦前辈对粉丝还真是一如既往的好<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/8b59da5b1d59d783b5b23e4d987b25b8/Screenshot_20241210_092148.jpg" referrerpolicy="no-referrer">
+

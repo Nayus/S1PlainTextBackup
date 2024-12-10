@@ -1009,3 +1009,11 @@ cm有风格奇特的可爱谷子哦，小屁孩？小屁孩还是在被炉里吃
 
 以为加班听不了了，没想到今天还挺耐久<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TiHaru  
+##### 17704#       发表于 2024-12-10 23:13
+
+今天含金量有点高，等会重新听一遍
+

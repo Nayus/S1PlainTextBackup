@@ -16617,3 +16617,64 @@ newtype訪談很無聊，隨便懶人包一下。
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想起来初华仔sumimi好像作词作曲全包了？还得弹吉他，然后再mujica也证明了当主唱有本事，实际在sumimi的活就差个当主唱了吧
 甜甜圈有考虑去直播间表演个扣你级manamana吗？
 
+
+*****
+
+####  未来起航  
+##### 2947#       发表于 2024-12-10 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66887436&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-10 11:55</a>
+黑暗和狗血是两码事
+
+漏油这个秘密只能说……完全没有让人感觉有趣的点，很无聊，这才是最大问题
+
+怎么说呢 ...</blockquote>
+这制作组其实也没多喜欢搞困难猜谜游戏。祥子家庭变故这么个前几集就能猜出来的事儿，到全片最后才给了个"这是皇军的官方认证"。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23116PN5BC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  椎名真希  
+##### 2948#       发表于 2024-12-10 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66887411&amp;ptid=2208921" target="_blank">御幸一也 发表于 2024-12-10 11:52</a>
+newtype訪談很無聊，隨便懶人包一下。
+
+企劃階段，曾經設想的是讓CCC的人敵對，最終誕生出mygo和ave mujica ...</blockquote>
+苍蓝钢铁算奇幻/科幻吧，有外星人的
+估计也就是PV里面睦人偶会说话和电视机那种风格的表现
+
+
+*****
+
+####  御幸一也  
+##### 2949#       发表于 2024-12-10 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66887526&amp;ptid=2208921" target="_blank">椎名真希 发表于 2024-12-10 12:06</a>
+
+苍蓝钢铁算奇幻/科幻吧，有外星人的
+
+估计也就是PV里面睦人偶会说话和电视机那种风格的表现 ...</blockquote>
+原來是這樣<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 2950#       发表于 2024-12-10 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66887520&amp;ptid=2208921" target="_blank">未来起航 发表于 2024-12-10 12:06</a>
+
+这制作组其实也没多喜欢搞困难猜谜游戏。祥子家庭变故这么个前几集就能猜出来的事儿，到全片最后才给了个 ...</blockquote>
+是的，所以我也在去年还没完结的时候就已经推测出了祥子80%的秘密
+
+但整体看下来至少是有意思的值得推测的，不至于狗血到瞎猜也能猜中，当时大部分人猜的是豊川家倒产，这个话题以前泥漏还争论过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+想要猜到方向很简单，想要猜到具体那还是不容易的
+
+说到底脚本上并不是按照推理作品去做的，而是存在悬疑悬念
+
+一个悬而未决的念想去勾起观众的好奇心，而悬念需要具备未知性（藏着不告诉你）、需要具备可能性（也就是证据链、伏笔和线索）、还有压迫感（或者说惊悚氛围）
+
+能做到这个程度就可以了，但即使是这么低的门槛，“因为要写阴暗故事所以主要角色是恶劣烂人”这种推测还是太搞笑了点
+

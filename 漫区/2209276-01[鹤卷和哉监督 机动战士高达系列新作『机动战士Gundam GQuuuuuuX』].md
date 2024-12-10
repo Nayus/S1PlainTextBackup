@@ -13183,3 +13183,23 @@ top2真能算钕同吗？感觉光凭那印度佬的存在就会被豚豚除籍�
 那么卡拉做新剧场版有没有积攒一些技术积累呢</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你看这个3d萝卜转圈圈就是啊，卡拉的3d是业内第一梯队的
 
+
+*****
+
+####  prattwhitney  
+##### 1264#       发表于 2024-12-10 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66890347&amp;ptid=2209276" target="_blank">patema 发表于 2024-12-10 17:22</a>
+
+你看这个3d萝卜转圈圈就是啊，卡拉的3d是业内第一梯队的</blockquote>
+看终的纪录片痞子让演员穿动捕服做previz就惊到了，khara可能是整个日本唯一一个会做previz的动画公司
+
+*****
+
+####  RE㐅ia  
+##### 1265#       发表于 2024-12-10 17:52
+
+ 本帖最后由 RE㐅ia 于 2024-12-10 17:53 编辑 
+
+话说这次会有办法在国内看到17号的剧场版吗？闪哈我记得当天网盘就有资源了来着。当时是因为疫情吗？
+

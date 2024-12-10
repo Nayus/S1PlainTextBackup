@@ -12113,3 +12113,20 @@ VN明年真要和老五一起离开？感觉不会呀，她应该必留，说到
 【Liyuu - 首张中文EP主打曲「彩虹相遇」MV-哔哩哔哩】 https://b23.tv/Tnmn41S
 <img src="https://p.sda1.dev/20/8126a7a13391afb69948eb9de473513c/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一心而用  
+##### 1184#       发表于 2024-12-10 19:17
+
+【专访Liyuu&amp;法元明菜：在台上会专注于表演，但演出结束就马上变回粉丝-哔哩哔哩】 https://b23.tv/DAeSFuq<img src="https://p.sda1.dev/20/d09d8a58531f22c9b4f7c86e50218f60/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  cat1230  
+##### 1185#       发表于 2024-12-10 19:19
+
+鲤鱼这新歌我实在觉得不咋好听，MV倒是我觉得全部里最好看的。
+
+还不如倔强游戏好听啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

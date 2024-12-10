@@ -510,3 +510,17 @@ FA08倒是新的key，这样看来应该是事务所提供的吧
 
 喵梦你这个夺走内心怎么是冲着自己人下手啊，这一波操作也要把自己也卖了是真的6<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 3011#       发表于 2024-12-10 19:20
+
+ 本帖最后由 Aendst 于 2024-12-10 19:25 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实这个也不是很心理学……目前最多用的地方确实反而是文娱作品创作领域
+
+目前理解成应对不同场合的不同的自己就行了，也可以理解成某种身份
+
+最简单的理解是“优雅中的坚毅”快要维持不住了
+

@@ -12964,3 +12964,16 @@ Sieg axis：阿克西斯万岁
 现在还有个没啥人说的谜团就是这个手是谁的。不是夸克斯的也不是扎古动的，难不成是红高达的？至少红高达在 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">答案是二号机
 
+
+*****
+
+####  鹅大人  
+##### 1243#       发表于 2024-12-10 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839461&amp;ptid=2209276" target="_blank">东方定助 发表于 2024-12-4 11:00</a>
+庵野老登这几年不就是在自我满足报复社会吗，给观众喂屎再正常不过了。唯一的疑问就是老登自己知不知道自己 ...</blockquote>
+宫崎骏1995年就跟他说过了“不要抱着eva不放，要不然你以后永远走不出来”
+过了20年，痞子还在折腾eva，说明他精神上完了，eva tv到后面的新剧场版，中间痞子做了各种尝试拍了各种片但是依旧跳不出拍eva的庵野秀明这个名号。后面拍特摄已经是自暴自弃，只管自己嗨了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+

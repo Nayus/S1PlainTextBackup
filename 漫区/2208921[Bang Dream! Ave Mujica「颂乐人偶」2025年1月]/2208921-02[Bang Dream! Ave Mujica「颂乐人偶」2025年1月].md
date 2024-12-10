@@ -16714,3 +16714,11 @@ newtype訪談很無聊，隨便懶人包一下。
 
 咋可能出柜<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">其他cp还要卖呢，还有单推死活不管了吗，而且邦邦这个企划性质，就不可能出柜，顶多就是dai suki，然后全归于“友情”。
 
+
+*****
+
+####  LeonsCat  
+##### 2955#       发表于 2024-12-10 13:15
+
+话说喵梦这下算不算“输了是叛乱，赢了就是革命”的典范？
+

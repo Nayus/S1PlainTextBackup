@@ -16706,3 +16706,11 @@ newtype訪談很無聊，隨便懶人包一下。
 
 如果像pjsk处理mzk那个秘密一样处理初华这个情感问题的可能性是否存在呢……
 
+
+*****
+
+####  ytttsuuuba  
+##### 2954#       发表于 2024-12-10 12:59
+
+咋可能出柜<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">其他cp还要卖呢，还有单推死活不管了吗，而且邦邦这个企划性质，就不可能出柜，顶多就是dai suki，然后全归于“友情”。
+

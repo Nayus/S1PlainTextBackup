@@ -803,3 +803,13 @@ gemini ultra我在用
 https://sora.com/</blockquote>
 怎么没了
 
+
+*****
+
+####  拜拜  
+##### 87#       发表于 2024-12-10 13:03
+
+我就一个需求能让我变真人版超人吗，电影版
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

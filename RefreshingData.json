@@ -6143,7 +6143,7 @@
     "newtitle": "[A25 《莱丝蕾莉安娜的炼金工房》]",
     "lastedit": 1733593209,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1973646": {
@@ -8631,10 +8631,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 109441,
+    "totalreply": 109444,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1733852052,
+    "lastedit": 1733852766,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10044,10 +10044,10 @@
     "update": false
   },
   "2201926": {
-    "totalreply": 35399,
+    "totalreply": 35402,
     "title": "[【集中楼】百合&amp;泛百合讨论楼9.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼9.0]",
-    "lastedit": 1733852291,
+    "lastedit": 1733852659,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13167,10 +13167,10 @@
     "update": false
   },
   "2206957": {
-    "totalreply": 917,
+    "totalreply": 918,
     "title": "[暖暖ip系列新作《无限暖暖》定档12.05]",
     "newtitle": "[暖暖ip系列新作《无限暖暖》定档12.05]",
-    "lastedit": 1733851572,
+    "lastedit": 1733852659,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -14832,10 +14832,10 @@
     "update": false
   },
   "2209252": {
-    "totalreply": 3052,
+    "totalreply": 3054,
     "title": "[中东专楼12月，看清楚规则再回帖]",
     "newtitle": "[中东专楼12月，看清楚规则再回帖]",
-    "lastedit": 1733852289,
+    "lastedit": 1733852658,
     "category": "外野",
     "active": true,
     "update": false
@@ -15282,10 +15282,10 @@
     "update": false
   },
   "2209411": {
-    "totalreply": 386,
+    "totalreply": 387,
     "title": "[美国联合健康保险CEO被当街暗杀]",
     "newtitle": "[美国联合健康保险CEO被当街暗杀［凶手被抓，家庭富裕］]",
-    "lastedit": 1733850376,
+    "lastedit": 1733852659,
     "category": "外野",
     "active": true,
     "update": false
@@ -17316,10 +17316,10 @@
     "update": false
   },
   "2210021": {
-    "totalreply": 68,
+    "totalreply": 69,
     "title": "[要求迅速逮捕尹锡悦！决议案通过]",
     "newtitle": "[要求迅速逮捕尹锡悦！决议案通过]",
-    "lastedit": 1733849775,
+    "lastedit": 1733852658,
     "category": "外野",
     "active": true,
     "update": false
@@ -17527,6 +17527,15 @@
     "title": "[蔚蓝反射 帝 好玩吗]",
     "newtitle": "[蔚蓝反射 帝 好玩吗]",
     "lastedit": 1733852168,
+    "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2025458": {
+    "totalreply": 198,
+    "title": "[SE 卡牌RPG《Voice of Cards》第三弹新作2022年9月13日发售]",
+    "newtitle": "[SE 卡牌RPG《Voice of Cards》第三弹新作2022年9月13日发售]",
+    "lastedit": 1733852665,
     "category": "游戏区",
     "active": true,
     "update": false

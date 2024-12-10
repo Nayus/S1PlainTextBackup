@@ -59,3 +59,13 @@
 
 北海道列车圣诞复刻，看来是妮娜+红花了。不出意外是ST，有点良心的话是FA。现在金字塔还有良心吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 1301#       发表于 2024-12-10 17:55
+
+那个头戴帽子摘不掉的，不要<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

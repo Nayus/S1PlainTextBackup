@@ -840,3 +840,11 @@ mujica动画播出以后，🐔团五个人在日本那边的人气排位会变�
 
 花咲川和羽丘的联合校园祭欢迎校友回归的那种么<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  桜庭千景  
+##### 3035#       发表于 2024-12-11 00:24
+
+先做pico吧，没有头疼的剧情安排问题，大家都爱看 成本也低
+

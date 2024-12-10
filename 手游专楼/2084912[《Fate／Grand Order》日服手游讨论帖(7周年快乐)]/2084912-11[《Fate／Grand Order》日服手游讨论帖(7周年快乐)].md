@@ -517,3 +517,11 @@
 
 半夜睡不着来发十连<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/20/44ef215bf3d8b0b70fcfa86de3b3cf9b/CMP_20241210224751390.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 15242#       发表于 2024-12-11 00:19
+
+看到玩家用了4千多回合打败ORT后直接改成不能消灭了，官方直接玩不起了<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+

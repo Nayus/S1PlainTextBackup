@@ -16449,3 +16449,68 @@ mujica一定是围绕角色的“秘密”来的，这一点在标题、宣传�
 
 目前已知的只有这一点点情报
 
+
+*****
+
+####  御幸一也  
+##### 2930#       发表于 2024-12-10 11:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">藏那麼多感覺有點猜無可猜
+
+*****
+
+####  贰臣  
+##### 2931#       发表于 2024-12-10 11:26
+
+感觉也不会有什么大事，第一集祥子说担心初华太好骗，但实际上初华不仅没那么好骗可能还有点腹黑，或许最后就只是这个程度的反转吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  御幸一也  
+##### 2932#       发表于 2024-12-10 11:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">……大金毛突變邊牧？
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 贰臣| + 1|可爱到我了|
+
+查看全部评分
+
+*****
+
+####  skives10  
+##### 2933#       发表于 2024-12-10 11:27
+
+初华会不会和祥子的母亲有过交流 也是一个值得思考的点
+
+*****
+
+####  yone0000  
+##### 2934#       发表于 2024-12-10 11:28
+
+初华“我能只当祥子一人的偶像吗”（夹脚）
+
+
+*****
+
+####  akiomn  
+##### 2935#       发表于 2024-12-10 11:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也许是睦呢？祥子大概没想过睦会有爆了的那天
+
+*****
+
+####  skives10  
+##### 2936#       发表于 2024-12-10 11:32
+
+睦的罪恶感源头确实也可能是一个祥子无法想象的秘密
+

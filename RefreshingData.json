@@ -3777,7 +3777,7 @@
     "lastedit": 1733864520,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1478318": {
     "totalreply": 1412,
@@ -8631,10 +8631,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 109455,
+    "totalreply": 109456,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1733864648,
+    "lastedit": 1733869688,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -13140,10 +13140,10 @@
     "update": false
   },
   "2206957": {
-    "totalreply": 919,
+    "totalreply": 920,
     "title": "[暖暖ip系列新作《无限暖暖》定档12.05]",
     "newtitle": "[暖暖ip系列新作《无限暖暖》定档12.05]",
-    "lastedit": 1733853615,
+    "lastedit": 1733869451,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17064,10 +17064,10 @@
     "update": false
   },
   "2209911": {
-    "totalreply": 99,
+    "totalreply": 101,
     "title": "[没几天了，来预测一下TGA的年度游戏会給谁吧？]",
     "newtitle": "[没几天了，来预测一下TGA的年度游戏会給谁吧？]",
-    "lastedit": 1733862247,
+    "lastedit": 1733869451,
     "category": "游戏区",
     "active": true,
     "update": false

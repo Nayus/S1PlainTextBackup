@@ -622,3 +622,42 @@ FA08倒是新的key，这样看来应该是事务所提供的吧
 
 <img src="https://img.saraba1st.com/forum/202412/10/204733m6rlafqgct7trbca.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives10  
+##### 3016#       发表于 2024-12-10 20:56
+
+new type 2025年1月号的mujica专题明确说了丰川祥子的打工地点是コールセンター。和矿泉水公司没什么关系。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Aendst| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  akiomn  
+##### 3017#       发表于 2024-12-10 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66891802&amp;ptid=2208921" target="_blank">3353764798 发表于 2024-12-10 20:45</a>
+
+会是运营把大祥踢出母鸡卡换成老牌明星甜甜圈，大祥走前抛下狠话三十年河东三十年河西，然后恭迎龙王归来吗 ...</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真敢把祥子踢了是嫌活的太长吗？初华和睦肯定跟着祥子一块跑
+
+
+*****
+
+####  莉缇娅  
+##### 3018#       发表于 2024-12-10 21:00
+
+可是mana不会弹琴啊
+

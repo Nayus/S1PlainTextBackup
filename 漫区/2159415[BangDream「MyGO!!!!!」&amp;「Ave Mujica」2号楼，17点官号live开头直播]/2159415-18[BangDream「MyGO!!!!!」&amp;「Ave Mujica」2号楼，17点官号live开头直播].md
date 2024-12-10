@@ -17702,3 +17702,11 @@ bridge段ykn跟亚子合唱还有点意思
 
 虽然描写的都比较苦大仇深，但实际她就是想要个能一块玩的小团体的归宿吧，更怀念的是那个家的氛围？
 
+
+*****
+
+####  星天观测  
+##### 26626#       发表于 2024-12-11 00:28
+
+萝新单已上流媒体<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

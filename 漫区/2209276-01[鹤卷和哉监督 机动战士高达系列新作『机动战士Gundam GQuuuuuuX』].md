@@ -13323,3 +13323,31 @@ top2真能算钕同吗？感觉光凭那印度佬的存在就会被豚豚除籍�
 
 把机战改成鉴证我认为他说的对
 
+
+*****
+
+####  oi99o  
+##### 1278#       发表于 2024-12-11 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66892932&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2024-12-10 23:56</a>
+
+完整版的没有吧？都是片段啥的</blockquote>
+有的，不过是五月港澳台上映之后流出的
+
+*****
+
+####  创始’’’天翔  
+##### 1279#       发表于 2024-12-11 00:37
+
+<blockquote>RE㐅ia 发表于 2024-12-10 23:55
+说的不会是咱吧（</blockquote>
+去游戏区看看吧
+
+<img src="https://img.saraba1st.com/forum/202412/11/003712dx6zt99shqdxlt4x.png" referrerpolicy="no-referrer">
+
+<strong>7cfa626a639cafe05d552e7a12a1c12f6ed893efc7a91d230f711bfc8250c3d5.0.PNG</strong> (420 Bytes, 下载次数: 0)
+
+下载附件
+
+2024-12-11 00:37 上传
+

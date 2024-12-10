@@ -447,3 +447,32 @@
 
 结社现在没干活的了，六柱说还要让盟主去催一催新七柱来上任，新七:是你们求我来而不是我想来
 
+
+*****
+
+####  卢迪克  
+##### 7106#       发表于 2024-12-10 17:05
+
+ 本帖最后由 卢迪克 于 2024-12-10 17:10 编辑 
+<blockquote>卡拉德利姆 发表于 2024-12-10 16:46
+界轨里犯罪帝王更是路边一条助人为乐的好大叔</blockquote>
+破戒：我只是界轨不干共和国的活而已，共和国和东部两边跑还去庭园打架，我分明是劳模<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202412/10/170525wz5b54g3q6qxk241.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241210_170514.jpg</strong> (111.48 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-10 17:05 上传
+
+<img src="https://img.saraba1st.com/forum/202412/10/170531cf6vffdbrb22zfb6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241210_170342.jpg</strong> (148.62 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-10 17:05 上传
+

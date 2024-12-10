@@ -16206,3 +16206,30 @@ animage 2025年1月號的Ave Mujica監督訪談</blockquote>
 
 “mujica角色最重要的是各自的秘密”这个才是核心，角色创作思路那一小段非常有意思
 
+
+*****
+
+####  罗克萨斯  
+##### 2905#       发表于 2024-12-10 09:42
+
+老实说，我挺想看包饺子的，小祥都说过soyo是很温柔的人，灯是好孩子她肯定也知道，关系搞成这样总得找补吧，本人见不得美少女们闹掰，还是和和美美的好<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 2906#       发表于 2024-12-10 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66885410&amp;ptid=2208921" target="_blank">御幸一也 发表于 2024-12-10 04:28</a>
+
+animage 2025年1月號的Ave Mujica監督訪談</blockquote><blockquote>——角色是如何製作的呢？
+柿本　先思考她們要坦露出來的東西，或者是要掩蓋的東西是什麼，然後去考慮造成她們背負這些東西的經歷，是一邊考慮她們原本的性格還有現在和過去的環境一邊去製作的。<strong>經歷過多次性格側寫，角色也變得越來越極端了（笑）</strong></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+ <blockquote>——在最終話，明明是在富裕家庭生活的祥子卻兼職工作，甚至回到了滿是空酒罐的公寓，還說了一句「我回來了……混蛋老爸」這麼粗魯的話。終於能隱約知道祥子身上到底發生了什麼了。
+柿本　原本就打算讓大家在最終話看到祥子家的沒落。不然的話，她突然的退團就會太難以理解了。如果不把這件事描繪出來就結局，我也很怕祥子會以一個不太好的形象結束。</blockquote>制作组の自觉，当时关于结尾会不会揭示祥子的事争了好久<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">">——祥子決定去組Ave Mujica的契機是『It's MyGO!!!!!』的第7話嗎？
+柿本　沒錯。主要是因為祥子所作曲的CRYCHIC的「春日影」，她目擊到MyGO!!!!!在LIVE上唱這首歌。對祥子來說，「春日影」是一首很重要的歌。</blockquote>契机确认，这点本来很好懂但以前偶尔有看见说祥子退团是为了组ave mujica的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">">——當時，祥子看到燈在筆記本上寫的歌詞看到哭出來了呢。
+柿本　剩下的成員是無論如何都理解不了祥子的退團方式的，是她自己將CRYCHIC所破壞。但是，祥子看到那個LIVE卻逃了出去，說明了其實她也是不想破壞CRYCHIC的。雖然這行動非常的矛盾，但祥子不得不那樣做。在那個LIVE上，祥子切身體會到不管是CRYCHIC還是「春日影」，自己都再也得不到了。所以即便是自己去捨棄的夢想，她也希望能夠忘記自己曾經有過這個夢想。
+——所以在那個LIVE之後，她會打電話給童年玩伴的三角初華，說出「讓我……忘掉一切……！」呢。
+柿本　因為過於難受，她不忘記就無法保持自己了。於是祥子去組成的就是Ave Mujica。這個樂團進行活動的時候，用的不是本名而是舞台名字，名字的由來是月球上的湖。祥子的舞台名字是從「忘卻之湖（Lacus Oblivionis）」 裡取的，她將自己稱為是Oblivionis。祥子已經無法繼續戴一直以來的人格面具，因為她無法再掩飾自己了。為了保護這個人格面具，祥子也需要作為Oblivionis站出來</blockquote>让我忘记一切（字面义） <blockquote>——在這樣的雄心壯志之下揭露的Ave Mujica的假面舞會（演唱會），非常的震撼。只是，樂團的組成成員，包括睦在內，都很神秘。除了祥子的另外4個人都是怎樣的人呢。
+柿本　可以說Ave Mujica是從“謊言中誕生真實”……<strong>大家都是擁有著必須要隱藏的東西</strong>，為了不讓自己覺察到（這個東西），而去構築一個堤防的人。比方說，<strong>睦是藝人夫婦家出生的星二代。如果她外出的話就會引人注目，但她本人不希望如此。祐天寺若麥則是作為主播很活躍，但通過畫面無法看到她的真心。</strong>這些社會形象都會有一個人格面具。而這個人格面具肯定不是很牢固的，很多人都要拼命地去掩飾。其他人我也想介紹一下，但現在我能說的就到這裡了。</blockquote>
+第一话的标题“秘密”果然是可以套用在所有成员身上的…
+

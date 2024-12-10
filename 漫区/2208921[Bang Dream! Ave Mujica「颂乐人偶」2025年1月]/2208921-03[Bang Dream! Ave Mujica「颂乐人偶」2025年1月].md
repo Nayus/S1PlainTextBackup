@@ -41,3 +41,43 @@ pv3人偶在本家 pv2人偶在出租屋
 
 和海铃住一起吧 刚好可以说下mujica后续安排
 
+
+*****
+
+####  瞳映山川  
+##### 2966#       发表于 2024-12-10 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66888306&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-10 14:02</a>
+pv3人偶在本家 pv2人偶在出租屋
+这两个镜头第一集都没有
+不知道时间线是什么样的 ...</blockquote>
+正式pv里这个衣服可以看出是什么时期的吗？我不太能分辨出来<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/20/bbcd362cef3bcb4566b4d46fe372bc18/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 2967#       发表于 2024-12-10 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66888566&amp;ptid=2208921" target="_blank">瞳映山川 发表于 2024-12-10 14:28</a>
+正式pv里这个衣服可以看出是什么时期的吗？我不太能分辨出来</blockquote>
+c团解散后了
+这画面信息量在人偶，不开灯和手机屏幕亮着
+
+*****
+
+####  skives10  
+##### 2968#       发表于 2024-12-10 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66888566&amp;ptid=2208921" target="_blank">瞳映山川 发表于 2024-12-10 14:28</a>
+正式pv里这个衣服可以看出是什么时期的吗？我不太能分辨出来</blockquote>
+就是被主播嫌便宜货那套常服
+
+*****
+
+####  椎名真希  
+##### 2969#       发表于 2024-12-10 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66888566&amp;ptid=2208921" target="_blank">瞳映山川 发表于 2024-12-10 14:28</a>
+正式pv里这个衣服可以看出是什么时期的吗？我不太能分辨出来</blockquote>
+就是面试喵梦和解散Crychic那一身
+

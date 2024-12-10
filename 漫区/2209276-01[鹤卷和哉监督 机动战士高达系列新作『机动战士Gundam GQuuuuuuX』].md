@@ -12902,3 +12902,46 @@ EVA的问题在于编剧啊，制作没问题啊。
 
 主要还是感兴趣的人不是太多吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RE㐅ia  
+##### 1239#       发表于 2024-12-10 12:25
+
+现在还有个没啥人说的谜团就是这个手是谁的。不是夸克斯的也不是扎古动的，难不成是红高达的？至少红高达在pv里第一个镜头也是在类似下水道的阴暗环境里。
+
+<img src="https://img.saraba1st.com/forum/202412/10/122246gnr9r2dyyqyq595n.png" referrerpolicy="no-referrer">
+
+<strong>90DC3C69-52C5-4439-88A5-8556162EF909.png</strong> (241.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-10 12:22 上传
+
+<img src="https://img.saraba1st.com/forum/202412/10/122252geaptuj4llypavrx.png" referrerpolicy="no-referrer">
+
+<strong>DBCEFE26-02DE-4BA6-BB48-F913A158FA67.png</strong> (237.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-10 12:22 上传
+
+
+*****
+
+####  猪突猛进R  
+##### 1240#       发表于 2024-12-10 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66884571&amp;ptid=2209276" target="_blank">岸波白野扎比子 发表于 2024-12-9 22:58</a>
+
+那GQ和X啥意思呢</blockquote>
+ジークアクス
+
+Sieg axe
+
+稍微改改：
+
+Siege axe：破城斧
+
+Sieg axis：阿克西斯万岁
+

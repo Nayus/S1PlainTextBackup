@@ -16730,3 +16730,21 @@ newtype訪談很無聊，隨便懶人包一下。
 
 祥子一看就是不会被重力束缚的女人，这cp相方换一个没准还能脑真百，但对祥子嘛……不如信我是秦始皇
 
+
+*****
+
+####  无事忙  
+##### 2957#       发表于 2024-12-10 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66879891&amp;ptid=2208921" target="_blank">仓鼠胖太 发表于 2024-12-9 12:39</a>
+
+春日影事变以后，睦主动去找灯、立希说：素世已经不知道该怎么办了（大概这意思）
+
+这是睦少见的自发性行 ...</blockquote>
+嗯，睦对素世是有牵挂，我没明白的是一开始就这样？还是在祥子终结crychic之后变成的这样。我去找了这人的分析
+[https://www.bilibili.com/video/B ... 939892e5b18bc6369b1](https://www.bilibili.com/video/BV1haq7YvEoL/?share_source=copy_web&amp;vd_source=96c49aec2bd7b939892e5b18bc6369b1)
+
+【素睦情感剖析！愧疚？怨恨？亦或是爱？退还黄瓜并非结束！】 
+
+还不错，总的来说这两人是有过互相关心的，但是原因比较复杂一两句不好说，而且无法相交
+

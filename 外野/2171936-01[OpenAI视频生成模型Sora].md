@@ -831,3 +831,11 @@ https://sora.com/</blockquote>
 
 现在才发布黄花菜都凉了，且不说可灵海螺豆包这些已经成熟的商业模型，开源的企鹅混元视频模型完全免费还能NSFW<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  寒蝉  
+##### 90#       发表于 2024-12-10 13:44
+
+进度太快了，谁想到也就是年初的sora还惊到一大堆人，年尾时候国产的视频ai已经遍地开花<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

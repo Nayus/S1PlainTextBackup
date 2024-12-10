@@ -342,3 +342,16 @@
 
 怀疑没黎2的话这个位置应该是丁格的？
 
+
+*****
+
+####  洛克萨斯  
+##### 7095#       发表于 2024-12-10 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66882288&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-12-9 17:16</a>
+
+这是有多因素的，伊莉娅没瘫痪且更上一层了，加上亲戚，这事才能这么揭过去。
+
+或者说就是为了不闹大才这么 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">谢莉那个处理不太舒服，当然有后面苍圣女一对比就显得能接受了，哎
+

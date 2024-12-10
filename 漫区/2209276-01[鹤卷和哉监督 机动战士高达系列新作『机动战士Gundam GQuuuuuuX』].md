@@ -12841,3 +12841,14 @@ khara连他们自家的EVA都拍成那副样子，你们咋们对他们这么有
 
 不是意大利临时工这楼早凉了
 
+
+*****
+
+####  tbrs  
+##### 1232#       发表于 2024-12-10 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66881227&amp;ptid=2209276" target="_blank">Hidewhite 发表于 2024-12-9 15:23</a>
+
+khara连他们自家的EVA都拍成那副样子，你们咋们对他们这么有信心的。他们现在撑死就一个长年不出手的天机老 ...</blockquote>
+EVA的问题在于编剧啊，制作没问题啊。
+

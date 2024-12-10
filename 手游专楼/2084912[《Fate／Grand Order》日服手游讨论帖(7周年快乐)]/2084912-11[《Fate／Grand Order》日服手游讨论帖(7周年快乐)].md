@@ -525,3 +525,11 @@
 
 看到玩家用了4千多回合打败ORT后直接改成不能消灭了，官方直接玩不起了<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希望之花  
+##### 15243#       发表于 2024-12-11 01:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">总是在这种地方非常有效率
+

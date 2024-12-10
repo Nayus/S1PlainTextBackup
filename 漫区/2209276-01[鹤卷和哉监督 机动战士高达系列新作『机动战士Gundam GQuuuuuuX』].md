@@ -13351,3 +13351,14 @@ top2真能算钕同吗？感觉光凭那印度佬的存在就会被豚豚除籍�
 
 2024-12-11 00:37 上传
 
+
+*****
+
+####  Duc_d'_Muka  
+##### 1280#       发表于 2024-12-11 01:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66889239&amp;ptid=2209276" target="_blank">没取名啊 发表于 2024-12-10 15:36</a>
+
+富野就算只拍萝卜片也没有一直重复自己，v高达和倒A之间要不是隔了一个灵魂力量你敢信一个五六十的人几年间 ...</blockquote>
+富野还是太论外了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，哪怕只看uc系高达他每部和每部的风格都差的很多
+

@@ -53,3 +53,17 @@ ce世界里的科研人员是何等的超人，007工作强度拉满，还得抽
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
 
+
+*****
+
+####  hydrogen  
+##### 2015#       发表于 2024-12-10 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66887048&amp;ptid=2178694" target="_blank">软软人 发表于 2024-12-10 11:07</a>
+看成自然人流了心想福田又准备撒啥狗血剧情
+
+—— 来自 鹅球 v3.3.92</blockquote>
+说起这个，我当初一直以为螃蟹舰长和姨丈是怀孕后被强制流产了。还想着调整者的计划生育还挺狠。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

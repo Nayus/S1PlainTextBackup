@@ -869,3 +869,11 @@ https://sora.com/</blockquote>
 
 细说混元
 
+
+*****
+
+####  当光停止  
+##### 94#       发表于 2024-12-10 14:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和朋友交流了下sora的成果。让人忍俊不禁。
+

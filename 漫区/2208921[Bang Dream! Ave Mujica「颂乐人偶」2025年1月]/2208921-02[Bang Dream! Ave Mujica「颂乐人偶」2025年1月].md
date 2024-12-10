@@ -16309,3 +16309,29 @@ animage 2025年1月號的Ave Mujica監督訪談</blockquote><blockquote>——�
 
 祥子应该不会被女人玩弄鼓掌之间吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 2916#       发表于 2024-12-10 10:44
+
+不努力就会变成女人的玩物，努力也会<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ycy8332589  
+##### 2917#       发表于 2024-12-10 10:45
+
+初华无非是想架空翔子在队里的核心地位，控制她的人身自由呗，鸡团对于她来说是留住翔子的鸟笼<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  桜庭千景  
+##### 2918#       发表于 2024-12-10 10:48
+
+唉 不管藏了多少东西，能不能别上来就先把黑水倒初华头上啊
+
+这第一话还没播一周，初华就又是发恶意评论又是合谋坑睦又是病娇害祥子了，差不多得了
+
+初华现在对不起哪个角色了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

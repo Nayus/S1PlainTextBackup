@@ -125,3 +125,53 @@ c团解散后了
 
 从第一集可以看出来，鸡的众人在mygo里留下的印象将会在鸡动画里一个个翻转，我很期待<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  狮子咕  
+##### 2974#       发表于 2024-12-10 15:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">初华：好想马上在祥子面前炸开让她抱憾终身
+
+*****
+
+####  狮子咕  
+##### 2975#       发表于 2024-12-10 15:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实母鸡卡现在还有个小问题是喊着“高中生能背负他人的人生吗”的祥子为什么想背负其他四个人的人生，睦的姑且可以理解（离家出走的小姑娘背负大小姐的人生是不是太想当然了），其他几个就……该不会祥子的中二病其实到现在还没好吧
+
+*****
+
+####  星天观测  
+##### 2976#       发表于 2024-12-10 15:50
+
+又在发什么疯，抱憾终身就这点事？一点品味都没有
+
+*****
+
+####  yevvet  
+##### 2977#       发表于 2024-12-10 15:52
+
+住巨蛋附近的表示天天都有韩团在那连续开三天演唱会<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是平日。
+
+
+*****
+
+####  skives10  
+##### 2978#       发表于 2024-12-10 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66889410&amp;ptid=2208921" target="_blank">狮子咕 发表于 2024-12-10 15:50</a>
+其实母鸡卡现在还有个小问题是喊着“高中生能背负他人的人生吗”的祥子为什么想背负其他四个人的人生，睦的 ...</blockquote>
+毕竟她已经背负牢爹的人生一年多了
+体验了背负人生的艰难之后
+面对嘴上说着什么都愿意做的soyo
+询问一下她的觉悟其实很正常
+至于怎么背负母鸡卡队员的人生 确实是最大的看点
+
+*****
+
+####  ytttsuuuba  
+##### 2979#       发表于 2024-12-10 15:57
+
+后面肯定会讲啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">第一集只是解释了祥子的家庭背景和退团始末而已，后面又不是祥子就没有谜题了，监督访谈不也说mujica的故事会以祥子为基轴展开吗。为什么要背负他人的人生这些肯定要等解谜的。
+

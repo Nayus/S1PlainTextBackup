@@ -839,3 +839,25 @@ https://sora.com/</blockquote>
 
 进度太快了，谁想到也就是年初的sora还惊到一大堆人，年尾时候国产的视频ai已经遍地开花<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tonyunreal  
+##### 91#       发表于 2024-12-10 13:48
+
+已经不只是遍地开花了
+腾讯混元本地部署都能做到直出施法材料的水平了
+
+老外用下半身想了想还是中国的好<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+*****
+
+####  gawain  
+##### 92#       发表于 2024-12-10 13:50
+
+细说混元<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -17651,3 +17651,13 @@ bridge段ykn跟亚子合唱还有点意思
 
 尾奏的钢琴和军鼓kksk<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  月島まりな  
+##### 26621#       发表于 2024-12-10 20:27
+
+[【BanG Dream！】活动剧情【中字】How We Roll After School!](https://www.bilibili.com/video/BV1HBq3YTEac/)
+
+安心感
+

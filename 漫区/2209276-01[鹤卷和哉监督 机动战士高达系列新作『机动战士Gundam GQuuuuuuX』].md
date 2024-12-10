@@ -12953,3 +12953,14 @@ Sieg axis：阿克西斯万岁
 
 是不是想玩酒保那个魔女界=尸魂界的梗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  patema  
+##### 1242#       发表于 2024-12-10 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66887680&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2024-12-10 12:25</a>
+
+现在还有个没啥人说的谜团就是这个手是谁的。不是夸克斯的也不是扎古动的，难不成是红高达的？至少红高达在 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">答案是二号机
+

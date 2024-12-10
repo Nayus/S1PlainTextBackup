@@ -813,3 +813,13 @@ https://sora.com/</blockquote>
 
 —— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  泰坦失足  
+##### 88#       发表于 2024-12-10 13:10
+
+只有200刀的ChatGPT pro可以放开来用，plus给的和没有一样。反正都用AI糊弄了，比如749局的开头和很多大企业海报，何必用你这个Sora呢，免费的友商产品又不是不能用。
+
+最关键的还是VLM到底有没有认知世界和感知世界的能力，比如数字孪生环境下训练机器人？我猜Sora的模型拿来做运动检测和物体检测估计是一把好手。毕竟GPT最开始时候也只会续写文字。
+

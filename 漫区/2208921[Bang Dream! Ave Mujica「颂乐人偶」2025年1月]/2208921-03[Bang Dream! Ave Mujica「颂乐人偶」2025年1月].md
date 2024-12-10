@@ -824,3 +824,19 @@ mujica动画播出以后，🐔团五个人在日本那边的人气排位会变�
 
 没有的话我也会期待就是了<img src="https://static.saraba1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 3034#       发表于 2024-12-10 23:32
+
+但是如果要更第四季就不太好搞
+
+从第二季开始群像，第二季让大伙都参与的主线是联合文化祭，第三季让大伙参与的主线是bangdream比赛
+
+到了第四季，除了鸡狗蝶都是大学乐队，目前已知萝和鸡已经商业出道，ras也在往职业方向走，其他团没那么了解大概也就是按高中模式进行
+
+那么要来个什么主线让大学的商业+休闲乐队和高中的商业+休闲乐队一起参与呢
+
+花咲川和羽丘的联合校园祭欢迎校友回归的那种么<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

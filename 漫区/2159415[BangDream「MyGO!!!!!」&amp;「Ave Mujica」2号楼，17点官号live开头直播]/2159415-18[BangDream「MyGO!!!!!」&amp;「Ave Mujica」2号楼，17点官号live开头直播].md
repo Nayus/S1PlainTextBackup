@@ -17498,3 +17498,27 @@ B站把这个日程表翻了，表里有个预约的右下角有白底黑字“�
 这个“生灵”翻译得没问题吗？<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/20/6e37ff18ac0798fa037228cad30aa4c9/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CyDiablo  
+##### 26609#       发表于 2024-12-10 09:13
+
+给ag水了一期日常团活，仔细想想这算不算灾后重建（
+以及玩了快五年乐队终于建sns了。
+
+️"How We Roll After School"活动剧情文本/机翻：[https://bbs.nga.cn/read.php?tid=42686439](https://bbs.nga.cn/read.php?tid=42686439)
+
+【【音频】"Say cheese!!!!!" - Afterglow-哔哩哔哩】 [https://b23.tv/dfcQIeU](https://b23.tv/dfcQIeU)
+
+卡面
+5⭐
+<img src="https://p.sda1.dev/20/9c7a8553a5eb4554de5dac9a5d4c565c/IMG_20241210_090307.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/8e8258f4327c76363468a877550f2958/IMG_20241210_090317.jpg" referrerpolicy="no-referrer">
+4⭐
+<img src="https://p.sda1.dev/20/24b29c969800dfcf8a3722d2fd907708/IMG_20241210_090450.jpg" referrerpolicy="no-referrer">
+3⭐
+<img src="https://p.sda1.dev/20/ad3380563672a202a9fcc4fc3a99ab89/IMG_20241210_090557.jpg" referrerpolicy="no-referrer">
+2⭐
+<img src="https://p.sda1.dev/20/dd62b68a20dbe290e85760fad84e91d5/1733792816084.png" referrerpolicy="no-referrer">
+

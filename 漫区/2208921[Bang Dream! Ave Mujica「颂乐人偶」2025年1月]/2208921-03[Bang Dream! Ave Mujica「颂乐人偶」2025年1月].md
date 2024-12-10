@@ -804,3 +804,23 @@ mujica动画播出以后，🐔团五个人在日本那边的人气排位会变�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  adcdqre  
+##### 3032#       发表于 2024-12-10 23:21
+
+大学画出来正好作第四季
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+
+*****
+
+####  贰臣  
+##### 3033#       发表于 2024-12-10 23:23
+
+现在就很关心鸡团动画里的老团角色模型有没有更新，更新了的话第四季指日可待了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+没有的话我也会期待就是了<img src="https://static.saraba1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">
+

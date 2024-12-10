@@ -12190,3 +12190,11 @@ VN明年真要和老五一起离开？感觉不会呀，她应该必留，说到
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">歌词还是给周深写过词的，但是作曲不行
 
+
+*****
+
+####  靡宜  
+##### 1192#       发表于 2024-12-10 23:20
+
+作曲真的😂
+

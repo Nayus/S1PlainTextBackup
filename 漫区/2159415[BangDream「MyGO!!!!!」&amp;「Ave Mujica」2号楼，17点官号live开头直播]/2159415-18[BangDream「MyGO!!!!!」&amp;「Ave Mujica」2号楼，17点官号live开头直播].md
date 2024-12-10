@@ -17710,3 +17710,21 @@ bridge段ykn跟亚子合唱还有点意思
 
 萝新单已上流媒体<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Reinhold  
+##### 26627#       发表于 2024-12-11 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66892927&amp;ptid=2159415" target="_blank">L-JoeW 发表于 2024-12-10 23:55</a>
+
+今天补完了第一部，爽世刚开始一直默默谋划借尸还魂，我原来以为是时间线拉的很长、有很深刻的羁绊，结果往 ...</blockquote>
+那时候是初中生，正是人格成立的节点，c团也算是爽世的人生初见，没必要拿时间来衡量重要程度<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Reinhold  
+##### 26628#       发表于 2024-12-11 00:41
+
+梦想紫烤羊之前也就几千关注，看了看现在已经3.6w关注超过奇迹紫了，早就是go友的时尚单品了，你甚至能在小红书上看到以逛紫吧为荣的邦集美<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

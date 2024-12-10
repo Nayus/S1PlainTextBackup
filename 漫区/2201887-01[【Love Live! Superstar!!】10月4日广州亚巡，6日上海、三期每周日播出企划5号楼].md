@@ -12104,3 +12104,12 @@ VN明年真要和老五一起离开？感觉不会呀，她应该必留，说到
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  一心而用  
+##### 1183#       发表于 2024-12-10 19:07
+
+【Liyuu - 首张中文EP主打曲「彩虹相遇」MV-哔哩哔哩】 https://b23.tv/Tnmn41S
+<img src="https://p.sda1.dev/20/8126a7a13391afb69948eb9de473513c/image.jpg" referrerpolicy="no-referrer">
+

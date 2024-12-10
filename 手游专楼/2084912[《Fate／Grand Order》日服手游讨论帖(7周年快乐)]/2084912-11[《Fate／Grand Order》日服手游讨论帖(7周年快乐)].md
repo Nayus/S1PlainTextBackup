@@ -493,3 +493,11 @@
 
 国服要跟进美服实装第二个福袋了，日服你🐎呢
 
+
+*****
+
+####  都谷捻柏  
+##### 15239#       发表于 2024-12-10 19:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日服这什么苦主服
+

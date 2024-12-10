@@ -175,3 +175,29 @@ c团解散后了
 
 后面肯定会讲啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">第一集只是解释了祥子的家庭背景和退团始末而已，后面又不是祥子就没有谜题了，监督访谈不也说mujica的故事会以祥子为基轴展开吗。为什么要背负他人的人生这些肯定要等解谜的。
 
+
+*****
+
+####  狮子咕  
+##### 2980#       发表于 2024-12-10 15:59
+
+ 本帖最后由 狮子咕 于 2024-12-10 16:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66889453&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-10 15:55</a>
+
+毕竟她已经背负牢爹的人生一年多了
+
+体验了背负人生的艰难之后
+
+面对嘴上说着什么都愿意做的soyo</blockquote>
+喵梦：让我来试试你的决心……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+祥子：你的人生到下台之后就结束了。
+
+
+*****
+
+####  Tienx  
+##### 2981#       发表于 2024-12-10 16:07
+
+mujica火了后祥子能分多少钱？
+

@@ -49,3 +49,13 @@
 
 我玩起来主打一个收集<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">特别是这芝麻凛四星还有长发，挺想要的
 
+
+*****
+
+####  不灭的旋律  
+##### 1300#       发表于 2024-12-10 14:39
+
+要芝麻凛长发去买法师服装啊。
+
+北海道列车圣诞复刻，看来是妮娜+红花了。不出意外是ST，有点良心的话是FA。现在金字塔还有良心吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

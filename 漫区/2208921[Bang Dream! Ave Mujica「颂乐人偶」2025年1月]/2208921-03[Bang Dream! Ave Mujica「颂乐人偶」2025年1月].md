@@ -899,3 +899,43 @@ mujica动画播出以后，🐔团五个人在日本那边的人气排位会变�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  NODY  
+##### 3042#       发表于 2024-12-11 01:30
+
+总集篇只要加个一集左右的新画面和live就行了，和纯新作剧场版的制作量不是一个级别
+
+真有新作感觉没也那么快能宣，估计得等鸡狗进手游和老团混熟+跑一轮主线后再出？
+
+*****
+
+####  前方暴雨预警  
+##### 3043#       发表于 2024-12-11 01:31
+
+<img src="https://img.saraba1st.com/forum/202412/11/013051mqeqxth4uq6qwpwn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (792.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-11 01:30 上传
+
+海铃的英文介绍，果然删去了和立希的同学关系
+
+*****
+
+####  NODY  
+##### 3044#       发表于 2024-12-11 01:31
+
+海铃人物卡更新
+
+<img src="https://img.saraba1st.com/forum/202412/11/013133rmtphmzjgsgrhgg8.jpg" referrerpolicy="no-referrer">
+
+<strong>GeGwWsDa4AAlgqy.jpg</strong> (136.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-11 01:31 上传
+

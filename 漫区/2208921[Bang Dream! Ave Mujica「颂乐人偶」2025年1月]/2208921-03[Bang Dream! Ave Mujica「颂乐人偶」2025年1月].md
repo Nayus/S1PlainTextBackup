@@ -689,3 +689,31 @@ Masquerade Rhapsody request有一句的歌词为「紫の空　召されて」�
 
 正式Pv中祥睦对峙的红光可能对应月全蚀期间发生的血月现象，也和大气散射有关
 
+
+*****
+
+####  rushsong  
+##### 3022#       发表于 2024-12-10 22:05
+
+mujica动画播出以后，🐔团五个人在日本那边的人气排位会变成什么样呢？我记得🐶团在日本是猫猫＞灯＞爱音＞素世＞立希这样，和国内完全不同<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2183A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  无事忙  
+##### 3023#       发表于 2024-12-10 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66876735&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-8 23:52</a>
+
+这段我个人认为还是翻译问题居多，日文突出了睦的人偶感和不会说话内味
+
+翻译成该走了让语气降了一档，想 ...</blockquote>
+让我想起了大话西游的最后部分
+
+唐僧：走
+
+至尊宝：去哪？
+
+唐僧：天竺
+

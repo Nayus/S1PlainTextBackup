@@ -16535,3 +16535,68 @@ mujica一定是围绕角色的“秘密”来的，这一点在标题、宣传�
 
 就像pv初华对祥子说和祥子在一起的愿望已经实现了，只要和祥子在一起就可以，反过来说就是对其他音乐之类的东西已经不抱期望了
 
+
+*****
+
+####  skives10  
+##### 2939#       发表于 2024-12-10 11:45
+
+写sumimi的曲子让她痛苦<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  贰臣  
+##### 2940#       发表于 2024-12-10 11:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">真奈酱会幸福吗
+
+*****
+
+####  oldgoat  
+##### 2941#       发表于 2024-12-10 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66887272&amp;ptid=2208921" target="_blank">未来起航 发表于 2024-12-10 11:36</a>
+
+多的乱七八糟先不论。提一嘴：喵梦有一句是对的，祥子这个假面企划确实莫名其妙
+
+由此展开来论，日子都过成 ...</blockquote>
+别问，问就是BanG Dream世界观，少女乐队企划……
+
+硬要圆也不难圆，那就是这是丰川家大小姐的兴趣，所以其实是个重金打造的假面乐队玩具。或者更腹黑一点也可以解读成丰川集团为了打造他家大小姐爱音乐内心孤独寄情于人偶扮演的人设所以拉起来陪她玩的乐队。至于丰川大小姐自己为什么过得这么苦？那就对了，这正好也是人设的一部分啊……
+
+不过不是一帮坛友都说就是个美少女一起happy玩乐队的番不要解读得这么阴暗么？
+
+
+*****
+
+####  akiomn  
+##### 2942#       发表于 2024-12-10 11:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">甜甜圈：祥子比我更重要吗？
+初华：sodayo
+
+*****
+
+####  御幸一也  
+##### 2943#       发表于 2024-12-10 11:52
+
+newtype訪談很無聊，隨便懶人包一下。
+
+企劃階段，曾經設想的是讓CCC的人敵對，最終誕生出mygo和ave mujica。所以不僅是音樂上，就連故事也是相對的。go是一個注重「真實」的樂團，而ave則戴上了面具把真正的自己藏了起來。（感覺這個雞狗正相反講過無數次了……）
+
+然後就是提到了ave mujica的動畫裡會有比較黑暗的地方，會有比較非現實的表現，例如之前三次元做過的動畫《蒼藍鋼鐵戰艦》那樣的心理描寫。（沒看過不知道）<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 2944#       发表于 2024-12-10 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66887362&amp;ptid=2208921" target="_blank">oldgoat 发表于 2024-12-10 11:48</a>
+
+别问，问就是BanG Dream世界观，少女乐队企划……
+
+硬要圆也不难圆，那就是这是丰川家大小姐的兴趣，所以其 ...</blockquote>
+黑暗和狗血是两码事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+漏油这个秘密只能说……完全没有让人感觉有趣的点，很无聊，这才是最大问题
+

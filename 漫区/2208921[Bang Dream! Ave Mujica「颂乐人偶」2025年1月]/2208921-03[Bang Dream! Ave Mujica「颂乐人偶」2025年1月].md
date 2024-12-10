@@ -874,3 +874,28 @@ mujica动画播出以后，🐔团五个人在日本那边的人气排位会变�
 
 总集篇本来也没什么新东西，宣个新建文件夹问题不大，宣传图可以等动画完结再公开
 
+
+*****
+
+####  skives10  
+##### 3039#       发表于 2024-12-11 01:17
+
+能不能来个鸡狗海外旅行剧场版什么的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qjw114514  
+##### 3040#       发表于 2024-12-11 01:18
+
+那就英国旅行吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  贰臣  
+##### 3041#       发表于 2024-12-11 01:25
+
+又在诋毁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

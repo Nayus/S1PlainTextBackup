@@ -939,3 +939,16 @@ mujica动画播出以后，🐔团五个人在日本那边的人气排位会变�
 
 2024-12-11 01:31 上传
 
+
+*****
+
+####  LeonsCat  
+##### 3045#       发表于 2024-12-11 03:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66892828&amp;ptid=2208921" target="_blank">星天观测 发表于 2024-12-10 23:32</a>
+
+但是如果要更第四季就不太好搞
+
+从第二季开始群像，第二季让大伙都参与的主线是联合文化祭，第三季让大伙参 ...</blockquote>
+音乐节？
+

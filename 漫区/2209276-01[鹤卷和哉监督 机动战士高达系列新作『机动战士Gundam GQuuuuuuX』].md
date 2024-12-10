@@ -13165,3 +13165,21 @@ top2真能算钕同吗？感觉光凭那印度佬的存在就会被豚豚除籍�
 top2真能算钕同吗？感觉光凭那印度佬的存在就会被豚豚除籍啊</blockquote>
 少革也有黑皮不照样姛
 
+
+*****
+
+####  七层嘉影  
+##### 1262#       发表于 2024-12-10 17:21
+
+那么卡拉做新剧场版有没有积攒一些技术积累呢
+
+*****
+
+####  patema  
+##### 1263#       发表于 2024-12-10 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66890325&amp;ptid=2209276" target="_blank">七层嘉影 发表于 2024-12-10 17:21</a>
+
+那么卡拉做新剧场版有没有积攒一些技术积累呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你看这个3d萝卜转圈圈就是啊，卡拉的3d是业内第一梯队的
+

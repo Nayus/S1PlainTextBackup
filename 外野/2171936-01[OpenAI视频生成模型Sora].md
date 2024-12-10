@@ -823,3 +823,11 @@ https://sora.com/</blockquote>
 
 最关键的还是VLM到底有没有认知世界和感知世界的能力，比如数字孪生环境下训练机器人？我猜Sora的模型拿来做运动检测和物体检测估计是一把好手。毕竟GPT最开始时候也只会续写文字。
 
+
+*****
+
+####  处男老司机  
+##### 89#       发表于 2024-12-10 13:31
+
+现在才发布黄花菜都凉了，且不说可灵海螺豆包这些已经成熟的商业模型，开源的企鹅混元视频模型完全免费还能NSFW<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

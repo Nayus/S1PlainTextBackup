@@ -2126,3 +2126,18 @@ loltcg建号了，不过368套装就6张卡也太贵了
 
 https://b23.tv/3dvGwes
 
+
+*****
+
+####  琴酒  
+##### 177#       发表于 2024-12-10 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66887781&amp;ptid=2175566" target="_blank">1140494429 发表于 2024-12-10 12:40</a>
+
+loltcg建号了，不过368套装就6张卡也太贵了
+
+https://b23.tv/3dvGwes</blockquote>
+这个就是类似三国杀星光收藏卡吧
+
+等预组和卡包信息
+

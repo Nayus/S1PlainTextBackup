@@ -17571,3 +17571,13 @@ BTW 你邦前辈对粉丝还真是一如既往的好<img src="https://static.sar
 
 阿?这是什么热搜，有没有前情提要
 
+
+*****
+
+####  KLHgg  
+##### 26614#       发表于 2024-12-10 13:34
+
+紫吧带头给b站mygo和邦一季刷1分
+
+邦一掉到9.4，然而给mygo刷低妨碍到b站吸量于是评分又升回去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

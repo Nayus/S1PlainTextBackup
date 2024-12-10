@@ -16600,3 +16600,20 @@ newtype訪談很無聊，隨便懶人包一下。
 
 漏油这个秘密只能说……完全没有让人感觉有趣的点，很无聊，这才是最大问题
 
+
+*****
+
+####  蒜蓉扇贝  
+##### 2945#       发表于 2024-12-10 11:57
+
+换个思路：隐藏的秘密是工作优先落了学业导致挂科<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  akiomn  
+##### 2946#       发表于 2024-12-10 12:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想起来初华仔sumimi好像作词作曲全包了？还得弹吉他，然后再mujica也证明了当主唱有本事，实际在sumimi的活就差个当主唱了吧
+甜甜圈有考虑去直播间表演个扣你级manamana吗？
+

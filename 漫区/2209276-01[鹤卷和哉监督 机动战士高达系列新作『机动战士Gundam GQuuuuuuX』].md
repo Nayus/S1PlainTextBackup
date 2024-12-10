@@ -13203,3 +13203,14 @@ top2真能算钕同吗？感觉光凭那印度佬的存在就会被豚豚除籍�
 
 话说这次会有办法在国内看到17号的剧场版吗？闪哈我记得当天网盘就有资源了来着。当时是因为疫情吗？
 
+
+*****
+
+####  Gysumitka  
+##### 1266#       发表于 2024-12-10 18:11
+
+ 本帖最后由 Gysumitka 于 2024-12-10 18:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66890644&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2024-12-10 17:52</a>
+话说这次会有办法在国内看到17号的剧场版吗？闪哈我记得当天网盘就有资源了来着。当时是因为疫情吗？ ...</blockquote>
+闪哈电影和bd同步上线的
+

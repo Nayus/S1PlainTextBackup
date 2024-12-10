@@ -663,3 +663,15 @@ farm这块想法是可以的，但不管是洗石头还是农场什么的都人�
 
 看内容，みすみ女士大部分时候打游戏还是有1000多一点的人看的
 
+
+*****
+
+####  艾特娜  
+##### 954#       发表于 2024-12-10 18:13
+
+ 本帖最后由 艾特娜 于 2024-12-10 18:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66889578&amp;ptid=2171972" target="_blank">aritaatsu222 发表于 2024-12-10 16:07</a>
+
+聽不懂你在說什麼</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">就是他从葛叶那里收到的大屁股图，熊猫人他们想的假名。就是想问会不会是他对那张图的感想引起好嫌的差评了（
+

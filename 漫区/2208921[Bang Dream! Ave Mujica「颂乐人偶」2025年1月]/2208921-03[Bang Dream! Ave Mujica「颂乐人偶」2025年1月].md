@@ -427,3 +427,27 @@ p6有希望么<img src="https://static.saraba1st.com/image/smiley/face2017/034.p
 
 已经对wsd的审美绝望了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 3005#       发表于 2024-12-10 18:12
+
+key我很早之前发过
+
+型号是Roland V-Combo VR-730
+
+这台一直都没变过，在mujica时期用来做常用管风琴音源的那一台key（主钢琴音源的key是Roland FA-08）
+
+<img src="https://img.saraba1st.com/forum/202412/10/180950pb1c42hzz2443l2x.jpg" referrerpolicy="no-referrer">
+
+<strong>gallery_vr-730_main.jpg</strong> (84.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-10 18:09 上传
+
+按照ep1的按钮和调节滑块来对比，也还是这一台
+
+FA08倒是新的key，这样看来应该是事务所提供的吧
+

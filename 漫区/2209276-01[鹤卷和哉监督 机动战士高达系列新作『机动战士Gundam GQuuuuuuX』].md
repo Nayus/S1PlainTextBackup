@@ -13224,3 +13224,21 @@ top2真能算钕同吗？感觉光凭那印度佬的存在就会被豚豚除籍�
 
 这种总集篇剧场版搞不好是作为BD特典的
 
+
+*****
+
+####  创始’’’天翔  
+##### 1268#       发表于 2024-12-10 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66888918&amp;ptid=2209276" target="_blank">少年游不游 发表于 2024-12-10 15:07</a>
+
+有这么悲观么，这pv不是还行，我相信鹤卷哥哥啊，只要不搞女同，一切都会好起来的 ...</blockquote>
+不搞女同的话，到时候烂了就没法甩锅给豚豚了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oi99o  
+##### 1269#       发表于 2024-12-10 18:32
+
+看看港澳台会不会引进吧
+

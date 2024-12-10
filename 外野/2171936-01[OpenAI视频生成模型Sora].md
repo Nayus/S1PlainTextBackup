@@ -917,3 +917,16 @@ https://sora.com/</blockquote>
 
 就是这个，现在开源了，不过要部署的话需要比较大的算力和显存，可以去AutoDL上租一个H800或者H20
 
+
+*****
+
+####  处男老司机  
+##### 100#       发表于 2024-12-10 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66888910&amp;ptid=2171936" target="_blank">qratosones1337 发表于 2024-12-10 15:06</a>
+[https://www.modelscope.cn/models/AI-ModelScope/HunyuanVideo](https://www.modelscope.cn/models/AI-ModelScope/HunyuanVideo)
+
+就是这个，现在开源了，不过要部署的话需要 ...</blockquote>
+并不一定，有大神做了插件可以本地运行，虽然哪怕4090也无法完全发挥模型性能
+[https://github.com/kijai/ComfyUI-HunyuanVideoWrapper](https://github.com/kijai/ComfyUI-HunyuanVideoWrapper)
+

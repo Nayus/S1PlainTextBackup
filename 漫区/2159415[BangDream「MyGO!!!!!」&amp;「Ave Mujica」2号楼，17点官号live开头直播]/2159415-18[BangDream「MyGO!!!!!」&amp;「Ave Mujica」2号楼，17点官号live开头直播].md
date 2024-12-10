@@ -17589,3 +17589,25 @@ BTW 你邦前辈对粉丝还真是一如既往的好<img src="https://static.sar
 
 <img src="https://p.sda1.dev/20/17f9ad0abb70abefa4e3f8722d81dc4d/IMG_3467F6BB103A3215C63AB4F117019A1D.jpeg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CyDiablo  
+##### 26616#       发表于 2024-12-10 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66887356&amp;ptid=2159415" target="_blank">矢吹奈子 发表于 2024-12-10 11:47</a>
+阿?这是什么热搜，有没有前情提要</blockquote>
+一图流起因
+瓶吧钓鱼，钓到人了截图出去嘲笑。z8看到之后自愿上钩，以破防gop的名义炒作打低分，后面引的乱七八糟的人多了，你go评分最低跌倒了9.2，大概傍晚左右z8开始回过味来，开始反攻倒算，你go评分慢慢涨了回去，睡前看到回9.5了，现在估计叔叔大手发力回9.7了。
+
+总结就是瓶吧是坏，紫吧又蠢又坏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/9acab3946b1e53691de56fccad83afe6/IMG_20241210_152121.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  skives10  
+##### 26617#       发表于 2024-12-10 15:35
+
+紫吧一个nsy厕所 天天蹭二刺猿 真是闹麻了
+

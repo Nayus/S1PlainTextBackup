@@ -345,3 +345,40 @@ tae也给了很多随手弹吉他的镜头，还是有点铺垫的
 谁能想到小祥是个能一手键盘一手行李箱的怪力少女呢<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 留了电子琴这算是独角兽的温柔吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 2997#       发表于 2024-12-10 16:55
+
+算是符合逻辑吧，毕竟是商业乐队，作曲又优先于作词，你不能给个祥子天天在学校钢琴室留很晚的镜头吧
+
+我倒是想过给个在公司练习室留晚的片段
+
+*****
+
+####  NODY  
+##### 2998#       发表于 2024-12-10 16:57
+
+ 本帖最后由 NODY 于 2024-12-10 16:58 编辑 
+
+我倒是觉得琴留着不卖才符合祥子人设，就像我上面说的，你能卖大小姐时期买的琴来换生活费，是不是也能卖以前的衣服首饰？以祥子的性格既然选了独立养爹，必然做不出来这种事
+
+不过我原本猜测也是在公司作曲，从pp的剧情来看这些职业艺人应该是有专门的练习室放乐器的
+
+*****
+
+####  PDQ4  
+##### 2999#       发表于 2024-12-10 17:00
+
+钢琴当然不可能卖，和贩卖梦想有什么区别
+不要太看不起dream了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 3000#       发表于 2024-12-10 17:01
+
+所以脑些乱七八糟的不如脑一下在公司练习室排练小剧场会是什么样<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

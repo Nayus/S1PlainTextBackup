@@ -792,3 +792,14 @@ gemini ultra我在用
 
 [https://sora.com/](https://sora.com/)
 
+
+*****
+
+####  电波系腑海林  
+##### 86#       发表于 2024-12-10 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66887595&amp;ptid=2171936" target="_blank">刘昊霖 发表于 2024-12-10 12:14</a>
+
+https://sora.com/</blockquote>
+怎么没了
+

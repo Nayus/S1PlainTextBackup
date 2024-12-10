@@ -13282,3 +13282,36 @@ top2真能算钕同吗？感觉光凭那印度佬的存在就会被豚豚除籍�
 终自都没流出枪版这个更不指望了</blockquote>
 流出了阿
 
+
+*****
+
+####  蕾洁之风  
+##### 1274#       发表于 2024-12-10 23:54
+
+不会还是10月播吧，那要等9个月是不是有点折磨了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RE㐅ia  
+##### 1275#       发表于 2024-12-10 23:55
+
+说的不会是咱吧（
+
+<img src="https://img.saraba1st.com/forum/202412/10/235519m3730bbt8tfzff3k.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A7F96B48-EA61-464E-A8C2-B38ED438E7EC.jpeg</strong> (56.37 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-10 23:55 上传
+
+*****
+
+####  RE㐅ia  
+##### 1276#       发表于 2024-12-10 23:56
+
+<blockquote>线程召唤使 发表于 2024-12-10 21:21
+流出了阿</blockquote>
+完整版的没有吧？都是片段啥的
+

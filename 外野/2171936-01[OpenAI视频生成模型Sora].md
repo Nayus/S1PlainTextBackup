@@ -907,3 +907,13 @@ https://sora.com/</blockquote>
 
 细说混元<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qratosones1337  
+##### 99#       发表于 2024-12-10 15:06
+
+[https://www.modelscope.cn/models/AI-ModelScope/HunyuanVideo](https://www.modelscope.cn/models/AI-ModelScope/HunyuanVideo)
+
+就是这个，现在开源了，不过要部署的话需要比较大的算力和显存，可以去AutoDL上租一个H800或者H20
+

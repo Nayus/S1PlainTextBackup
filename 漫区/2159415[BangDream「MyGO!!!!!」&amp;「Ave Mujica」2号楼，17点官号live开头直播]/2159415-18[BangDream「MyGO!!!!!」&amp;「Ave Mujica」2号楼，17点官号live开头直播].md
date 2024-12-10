@@ -17581,3 +17581,11 @@ BTW 你邦前辈对粉丝还真是一如既往的好<img src="https://static.sar
 
 邦一掉到9.4，然而给mygo刷低妨碍到b站吸量于是评分又升回去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SakuraのOrigami  
+##### 26615#       发表于 2024-12-10 15:09
+
+<img src="https://p.sda1.dev/20/17f9ad0abb70abefa4e3f8722d81dc4d/IMG_3467F6BB103A3215C63AB4F117019A1D.jpeg" referrerpolicy="no-referrer">
+

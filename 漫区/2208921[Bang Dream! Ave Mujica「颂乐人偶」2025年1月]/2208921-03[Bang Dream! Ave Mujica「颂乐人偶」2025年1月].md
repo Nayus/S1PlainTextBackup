@@ -326,3 +326,22 @@ soyo就是太菜。要把破碎的白月光拼起来，要有钢铁的意志和�
 
 多惠写returns就是拿个石头在地板上手写，还是词曲一起创作，只能说邦邦音乐高武是不讲道理的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 2995#       发表于 2024-12-10 16:49
+
+tae也给了很多随手弹吉他的镜头，还是有点铺垫的
+
+不过你邦的音乐高武世界确实不是正常理论可以解释的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 2996#       发表于 2024-12-10 16:53
+
+我真以为会有祥子虚空弹钢琴作曲的场面，做好了用学校钢琴或者事务所的录音室试曲子
+谁能想到小祥是个能一手键盘一手行李箱的怪力少女呢<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+留了电子琴这算是独角兽的温柔吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

@@ -13117,3 +13117,40 @@ khara连他们自家的EVA都拍成那副样子，你们咋们对他们这么有
 工期和中途改变方向</blockquote>
 是中途改的吗？有多中途？
 
+
+*****
+
+####  RE㐅ia  
+##### 1258#       发表于 2024-12-10 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66889496&amp;ptid=2209276" target="_blank">ティグル 发表于 2024-12-10 15:59</a>
+
+聊鹤卷→往回数作品→聊top2→有钕同→哎卧槽这水魔怎么这么坏.jpg
+
+逃不出的莫比乌斯环 ...</blockquote>
+top2真能算钕同吗？感觉光凭那印度佬的存在就会被豚豚除籍啊<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cccpprc  
+##### 1259#       发表于 2024-12-10 16:51
+
+我就希望别打一整个季的黑拳，也别尬洗吉翁
+
+从河流到大海，side6终将自由!
+
+*****
+
+####  RE㐅ia  
+##### 1260#       发表于 2024-12-10 16:53
+
+说起来明年还有一部红短发做女主的萝卜片来着
+
+<img src="https://img.saraba1st.com/forum/202412/10/165303jfpw1qfxueq1p1zr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (165.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-10 16:53 上传
+

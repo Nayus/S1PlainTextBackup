@@ -67,3 +67,17 @@ ce世界里的科研人员是何等的超人，007工作强度拉满，还得抽
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  软软人  
+##### 2016#       发表于 2024-12-10 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66888752&amp;ptid=2178694" target="_blank">hydrogen 发表于 2024-12-10 14:49</a>
+说起这个，我当初一直以为螃蟹舰长和姨丈是怀孕后被强制流产了。还想着调整者的计划生育还挺狠。
+
+——  ...</blockquote>
+你挺早熟，看种命的时候咱还是天真烂漫的年纪倒是没想这么多<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">就觉得姨丈这种枭雄闹到最后竟然是个恋爱脑就挺难崩，不过种命后半屎一样的暴走剧情我也懒得较真了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+

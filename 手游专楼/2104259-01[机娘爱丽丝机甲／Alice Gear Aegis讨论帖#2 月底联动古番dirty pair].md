@@ -154,3 +154,22 @@
 
 明天开新ST卡池，是不是按惯例一般在元旦还会有个新的限定卡池或者联动活动来着
 
+
+*****
+
+####  madcow  
+##### 1310#       发表于 2024-12-11 22:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">其实本来就该新语音配新形象吧，结果fa除了语音一堆通用的（虽然st衣服也不少通用的
+
+
+*****
+
+####  江戸前ルナ  
+##### 1311#         楼主| 发表于 2024-12-11 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66900646&amp;ptid=2104259" target="_blank">alialex 发表于 2024-12-11 22:33</a>
+
+明天开新ST卡池，是不是按惯例一般在元旦还会有个新的限定卡池或者联动活动来着 ...</blockquote>
+一直没有，按惯例这个月底到周年新池子之前都是一路狂奔复刻没有新池<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+

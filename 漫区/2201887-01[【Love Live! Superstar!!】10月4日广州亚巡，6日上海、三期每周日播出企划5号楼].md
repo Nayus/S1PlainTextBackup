@@ -12220,3 +12220,13 @@ nagi新曲倒不错，就是那段rap<img src="https://static.saraba1st.com/imag
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  csolfans  
+##### 1195#       发表于 2024-12-11 22:40
+
+后夜祭只唱一首歌啊
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

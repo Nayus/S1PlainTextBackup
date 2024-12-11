@@ -1104,3 +1104,14 @@ PICO里神秘送报人是不是可以跟祥子送报时间对上
 
 我只是觉得初华已经往步梦那个方向一路向前了
 
+
+*****
+
+####  枫林不见  
+##### 3060#       发表于 2024-12-11 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66887216&amp;ptid=2208921" target="_blank">御幸一也 发表于 2024-12-10 11:27</a>
+
+……大金毛突變邊牧？</blockquote>
+错辣，老抽色金毛嘛
+

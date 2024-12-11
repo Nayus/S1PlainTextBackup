@@ -726,3 +726,13 @@
 
 笑死，垃圾螺旋社又BUG了，部分人任务奖励重置了，现在看多的已经领了400多石头了
 
+
+*****
+
+####  希望之花  
+##### 15264#       发表于 2024-12-12 00:15
+
+屎山爆炸了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+记得他们换引擎也没多久啊
+

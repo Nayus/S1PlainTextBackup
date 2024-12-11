@@ -14294,3 +14294,14 @@ GQX制作水平是毫无疑问的强，还搞了UCif，内部肯定比一眼便�
 
 点进来还以为进错楼了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  BarryAllen  
+##### 1355#       发表于 2024-12-12 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66901044&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2024-12-11 23:47</a>
+
+而且哪抛开日常和搞笑塑造（给老界王神卖片啥的就不提了），悟空在原作里不也经常展现不靠谱的一面吗？打 ...</blockquote>
+最后回一次 (楼歪太远了 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer"> 创作角度上的一点是完成后续情节同时完成撒旦的角色塑造, 通过撒旦拯救了所有人包括家人并不是没救; 捏碎耳环的是贝吉塔, 举这例子还不如举悟空爱面子为什么变超3气流失不早点说 (
+

@@ -199,3 +199,19 @@ Q娃要肉搏服装不会造成任何影响啊，回看公主那飘飘裙打得�
 ？？？</blockquote>
 角色形象倒是和之前被锤了人设图对得上，但衣服对不上，可能是变身分Live模式和战斗模式这个状态是Live状态？<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rxds  
+##### 135#       发表于 2024-12-11 09:07
+
+<img src="https://img.saraba1st.com/forum/202412/11/090636b772pefp0edwbg0o.jpg" referrerpolicy="no-referrer">
+
+<strong>9CE135AB14998E9C177D883027F29B23.jpg</strong> (147.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-11 09:06 上传
+
+这不是改图吗
+

@@ -1707,3 +1707,13 @@ sena这首生日曲风味真的足，太搭了
 
 小高这个栽种怎么就逮着嘘组P和米组P薅羊毛啊<img src="https://static.saraba1st.com/image/smiley/face2017/271.png" referrerpolicy="no-referrer">好不容易在铃木暮光之后回了口血又来个限定美琴P+铃木S，隔壁音游还是小羊，真的服了
 
+
+*****
+
+####  冰风血羽  
+##### 6750#       发表于 2024-12-12 00:42
+
+我号上的矿这么多年挖下来终于快见底了，小高连发太处了<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

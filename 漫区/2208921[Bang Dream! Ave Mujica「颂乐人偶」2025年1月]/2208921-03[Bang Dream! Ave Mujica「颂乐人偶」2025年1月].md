@@ -1486,3 +1486,11 @@ mujica第一集killkiss开场似乎是有致敬r的black shout，都是闭眼静
 “盼望前进之人，渴望停留之人，各自的正义命运抛出硬币”这句是海玲和睦
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">byd我今天才反应过来整首歌只有初华立绘没有单独出现
 
+
+*****
+
+####  厨厨  
+##### 3094#       发表于 2024-12-12 00:38
+
+百综全是独角兽真爱粉，每天24小时关注厕妹精神状态
+

@@ -971,3 +971,16 @@ https://sora.com/</blockquote>
 
 目前看来跟runway gen3一个级别，动态比不过kling，二次元比不过hailuo，评价是一坨<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ななひら  
+##### 106#       发表于 2024-12-11 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66888910&amp;ptid=2171936" target="_blank">qratosones1337 发表于 2024-12-10 15:06</a>
+
+https://www.modelscope.cn/models/AI-ModelScope/HunyuanVideo
+
+就是这个，现在开源了，不过要部署的话需要 ...</blockquote>
+本地部署需要什么硬件条件，慢点无所谓，只要能用，需要什么硬件我可以买<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+

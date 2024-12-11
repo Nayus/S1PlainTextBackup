@@ -514,3 +514,11 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">破戒这角色就挺莫名其妙的   基本做的全都是好事  就因为是玩毒的喜欢放狠话被各种堤防  只属于我方台词上的反派
 
+
+*****
+
+####  洛克萨斯  
+##### 7110#       发表于 2024-12-11 10:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">一个长篇连载系列找不出几个反派，想想也挺逆天
+

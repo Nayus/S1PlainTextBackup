@@ -13485,3 +13485,11 @@ UC世界观下只要你是新人类就不普通了
 
 水魔花了那么多篇幅讲决斗，但是决斗本身又设定得很随便，如果真的完善规则的同时又专心讲竞技说不定也是一种写好的办法<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可惜最后浪费了那么多时间搞的决斗也就是过家家，完全没有竞技的热血和看点
 
+
+*****
+
+####  PascalLefèvre  
+##### 1293#       发表于 2024-12-11 12:45
+
+渲染和刻画之间还是有不小的距离的吧<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">，又不是非得死人如喝水才叫不渲染
+

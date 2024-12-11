@@ -649,3 +649,16 @@
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66894998&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-12-11 10:47</a></blockquote>
 难绷<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新世界的派蒙  
+##### 7122#       发表于 2024-12-11 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66896598&amp;ptid=2160194" target="_blank">Squall25 发表于 2024-12-11 13:51</a>
+
+知足吧，ps5现在这版本已经优化点东西了，初版很多东西更逆天，虽然我觉得初版那个抽象的数值更有意思。 ...</blockquote>
+黎轨1初版30帧骂了一个月解锁了，伊苏9在PS5上很快出了4K补丁，甚至界轨还给pro开了个不锁帧的画面模式
+
+阿法真是PS玩家的好媳妇，以后恰NS饭去了我也会念旧情少骂点他的
+

@@ -3777,7 +3777,7 @@
     "lastedit": 1733864520,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1478318": {
     "totalreply": 1412,
@@ -10503,12 +10503,12 @@
     "update": false
   },
   "2173710": {
-    "totalreply": 223,
+    "totalreply": 224,
     "title": "[推漫《钻石的功罪》棒球小学生们的巨大感情]",
     "newtitle": "[推漫《钻石的功罪》棒球小学生们的巨大感情]",
-    "lastedit": 1733425687,
+    "lastedit": 1733942051,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2196877": {
@@ -11637,10 +11637,10 @@
     "update": false
   },
   "2107683": {
-    "totalreply": 48,
+    "totalreply": 49,
     "title": "[『Acro Trip』TV动画化 2024年10月]",
     "newtitle": "[『Acro Trip』TV动画化 2024年10月]",
-    "lastedit": 1733932587,
+    "lastedit": 1733942051,
     "category": "漫区",
     "active": true,
     "update": false
@@ -16983,10 +16983,10 @@
     "update": false
   },
   "2210050": {
-    "totalreply": 80,
+    "totalreply": 81,
     "title": "[相亲奇遇记]",
     "newtitle": "[相亲奇遇记]",
-    "lastedit": 1733927663,
+    "lastedit": 1733941928,
     "category": "外野",
     "active": true,
     "update": false
@@ -17343,10 +17343,10 @@
     "update": false
   },
   "2210082": {
-    "totalreply": 42,
+    "totalreply": 43,
     "title": "[赛博朋克2077更新2.2版本]",
     "newtitle": "[赛博朋克2077更新2.2版本]",
-    "lastedit": 1733935938,
+    "lastedit": 1733941808,
     "category": "游戏区",
     "active": true,
     "update": false

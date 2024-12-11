@@ -14257,3 +14257,40 @@ GQX制作水平是毫无疑问的强，还搞了UCif，内部肯定比一眼便�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  RE㐅ia  
+##### 1352#       发表于 2024-12-12 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66901054&amp;ptid=2209276" target="_blank">没取名啊 发表于 2024-12-11 23:49</a>
+
+怎么变成龙珠专楼了？</blockquote>
+龙珠先就此打住。我想说的就是平日稀里糊涂上战场后正经起来的人设其实挺常见的，只是这玩意和水魔也根本搭不上边就是了。水魔里狸猫上机图增战力，性格和言行举止啥的和平日相差无几。这种角色在高达里有点少见，硬要说的话bf的04勉强能算？
+
+*****
+
+####  Humpy  
+##### 1353#       发表于 2024-12-12 00:02
+
+<img src="https://img.saraba1st.com/forum/202412/12/000010tc2zsca211j2eelq.png" referrerpolicy="no-referrer">
+
+<strong>Z.png</strong> (1.08 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-12 00:00 上传
+
+虽然目前很多论坛对这作机设的批评声音占据了主流，但我倒是很喜欢新作这种机设的味道，可能是因为我历来比较偏好各种奇形怪状特别是肌肉感强烈机设的缘故吧，而且FACE OPEN这个设计虽然老套但是还是觉得很酷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+新作设定是UC世界的平行世界，时间点是0085，离Z高达发生的时间已经很近了，而Z高达又是在1985年播放，这个时间点设计不由得让我去想这个世界里如果有Z高达会是什么样子。
+正好最近几天看推特上有很多基于这个世界观的原创机设（吉姆啊勇士啊什么的）妄想，于是脑子一发疯便动手画了起来，基本是按着缝合新作主角机和Z高达的思路去设计的，自己再稍微加一些个人癖好进去，最后便是这个样子。
+果然EVA风格的话还是要有这个形状的肩甲呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+虽然是缝合Z高达，但是我实在不擅长去想象可变机的变形过程和变形后的样子，所以只是画着看起来像是有可变机的元素而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冷静先找时光机  
+##### 1354#       发表于 2024-12-12 00:05
+
+点进来还以为进错楼了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

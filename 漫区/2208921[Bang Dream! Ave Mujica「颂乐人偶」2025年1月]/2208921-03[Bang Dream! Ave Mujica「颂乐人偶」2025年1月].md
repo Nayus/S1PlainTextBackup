@@ -1511,3 +1511,21 @@ mujica第一集killkiss开场似乎是有致敬r的black shout，都是闭眼静
 
 <img src="https://img.saraba1st.com/forum/202412/12/013457xbcsh6zc5ezh22n2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 3096#       发表于 2024-12-12 02:05
+
+我之前脑补的water就是到了c part会换成初祥双人，结果没有，倒是在花冠mv里面实现了
+
+唉，什么时候mujica的mv也能这么卖一下<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202412/12/020457aha7h3tc7417bmc7.jpg" referrerpolicy="no-referrer">
+
+<strong>GehGtyAaEAYhpUE.jpg</strong> (139.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-12 02:04 上传
+

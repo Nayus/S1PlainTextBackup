@@ -90,3 +90,19 @@
 北海道列车圣诞复刻，看来是妮娜+红花了。不出意外是ST，有点良心的话是FA。 ...</blockquote>
 对，看样子是最不良心的双UP ST<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  windaria  
+##### 1304#       发表于 2024-12-11 16:08
+
+最近柳濑在b开了官号，做了个访谈，结果完全没回答这个问题，只是在聊大河原出渕裕这些老前辈
+
+<img src="https://img.saraba1st.com/forum/202412/11/160819fb79uzuigvxu1n19.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (97.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-11 16:08 上传
+

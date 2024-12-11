@@ -17738,3 +17738,11 @@ bridge段ykn跟亚子合唱还有点意思
 
 —— 来自 HUAWEI ALN-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  上班族  
+##### 26630#       发表于 2024-12-11 16:11
+
+因为是“鼓手”写的曲子，只有节奏没旋律<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

@@ -13571,3 +13571,63 @@ UC世界观下只要你是新人类就不普通了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  RE㐅ia  
+##### 1302#       发表于 2024-12-11 17:34
+
+<blockquote>刺客ares 发表于 2024-12-11 16:52
+提到红发大女主，那我只能说希望这次的女主主观能动性强一点，起码要有个贯彻始终的目标，别又被外人当手推 ...</blockquote>
+狸猫前面还说什么回水星建学校，结果既没回水星学校也不是她建的，现在看来当时那段就挺意义不明的。
+
+这次女主给我的感觉倒有点像个点子王。无论是开头扔道具，把自己泡水里，还是后面在MS手臂上奔跑在当时可能都不是最明智的选择，但她就是全凭感觉去选择了行动。最后那句“只能出手了不然死的就是我”也是，像00的沙慈那种真正被动型的角色花了多久才真正悟到？女主是不是热血笨蛋另说，但从仅有的片段中可以感觉出至少行动力拉满了。至于思考啥的就交给尼雅安好了，毕竟怎么看三人组里只有她的脑回路最正常。牢修估计和高达交流太过深入了只会说nt语了（
+
+<img src="https://img.saraba1st.com/forum/202412/11/172800yfhf5xwzxddhgcg9.png" referrerpolicy="no-referrer">
+
+<strong>1636ED88-C402-4194-AB9C-0C5F3541D4EE.png</strong> (308.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-11 17:28 上传
+
+<img src="https://img.saraba1st.com/forum/202412/11/172809ggef5keg6io6tzmk.png" referrerpolicy="no-referrer">
+
+<strong>9B1623F2-82D8-4E00-A08F-7D46B6E2FA88.png</strong> (277.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-11 17:28 上传
+
+<img src="https://img.saraba1st.com/forum/202412/11/172909gdo41q74j7q09q01.png" referrerpolicy="no-referrer">
+
+<strong>6430DBAA-F271-4D7F-9168-6CB60350C477.png</strong> (241.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-11 17:29 上传
+
+<img src="https://img.saraba1st.com/forum/202412/11/172916f9ddizd9kvdkdt1i.png" referrerpolicy="no-referrer">
+
+<strong>FF9BE228-18EC-4FFF-97D3-460DDE493FD9.png</strong> (313.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-11 17:29 上传
+
+<img src="https://img.saraba1st.com/forum/202412/11/172936uh5jovnzpm41myff.png" referrerpolicy="no-referrer">
+
+<strong>923758A9-8F07-4D87-9A6B-1AD3A7B9BEFA.png</strong> (190.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-11 17:29 上传
+
+<img src="https://img.saraba1st.com/forum/202412/11/172951v8rhj9n9ve3m1181.png" referrerpolicy="no-referrer">
+
+<strong>1D98C387-2676-4D9C-828C-62770605FE06.png</strong> (250.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-11 17:29 上传
+

@@ -13842,3 +13842,41 @@ EVA终我记得是105亿来着？代哥对这部期望怎么也不可能像种�
 
 所以，那些豁得出去的创作者才值得珍惜
 
+
+*****
+
+####  刺客ares  
+##### 1324#       发表于 2024-12-11 20:20
+
+ 本帖最后由 刺客ares 于 2024-12-11 20:23 编辑 
+<blockquote>岸波白野扎比子 发表于 2024-12-11 20:07
+我没关注，种自一开始的期望是10亿吗？</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202412/11/201920ie7yx7dxtpw0xrbx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9768.jpeg</strong> (255.9 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-11 20:19 上传
+
+他们可能知道种有人气，但不知道具体多有人气（
+
+之前制作水平爆杀种自的闪哈也就二十多不到三十，一开始确实没对种自抱那么高期望吧
+
+GQX制作水平是毫无疑问的强，还搞了UCif，内部肯定比一眼便宜的种自更看好
+
+
+*****
+
+####  岸波白野扎比子  
+##### 1325#       发表于 2024-12-11 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66899633&amp;ptid=2209276" target="_blank">刺客ares 发表于 2024-12-11 20:20</a>
+
+他们可能知道种有人气，但不知道具体多有人气（
+
+之前制作水平爆杀种自的闪哈也就二十多不到三十，一开始 ...</blockquote>
+诶~为什么不看好种自啊，是因为太多年了吗
+

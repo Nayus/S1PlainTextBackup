@@ -17791,3 +17791,15 @@ bridge段ykn跟亚子合唱还有点意思
 <img src="https://p.sda1.dev/20/b6841c4821e11d5ffdfa9e4803a5034c/3a57df9e-a932-49f3-83a9-dc9d9758f465.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/20/06b576298c10102a886551b0e9d555fb/Image_371480968478987.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CyDiablo  
+##### 26635#       发表于 2024-12-11 21:54
+
+ 本帖最后由 CyDiablo 于 2024-12-11 21:55 编辑 
+
+【【BanG Dream!】Roselia「礎の花冠」MV-哔哩哔哩】 [https://b23.tv/KojJNqe](https://b23.tv/KojJNqe)
+<img src="https://p.sda1.dev/20/f146b38fdc54a47decc54547f2adfbda/Screenshot_20241211_215503.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/8cd00a017aca5bf70a6ddfad111a014d/Screenshot_20241211_215110.jpg" referrerpolicy="no-referrer">
+

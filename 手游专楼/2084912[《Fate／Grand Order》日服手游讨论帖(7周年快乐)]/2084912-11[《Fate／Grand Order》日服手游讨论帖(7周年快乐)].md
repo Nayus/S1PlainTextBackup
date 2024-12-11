@@ -700,3 +700,21 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
 
+
+*****
+
+####  希望之花  
+##### 15261#       发表于 2024-12-11 21:48
+
+螺旋社这次实装了新的无限池连抽系统，长按屏幕就能连续10连抽<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+弄个一键100抽比杀了他全家还难受
+
+
+*****
+
+####  污师米  
+##### 15262#       发表于 2024-12-11 21:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">无敌了，小宝刚满月没多久，拿她小手帮我单抽，一下就出娄希了
+

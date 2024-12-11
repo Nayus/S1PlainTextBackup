@@ -46,3 +46,16 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  UnrealApartheid  
+##### 3612#       发表于 2024-12-12 02:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66901565&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-12-12 02:11:13</a>
+动画版不出意外和P5A一样便宜，不舍得花钱的话不如不出
+
+—— 来自</blockquote>希望至少会有个有水平的导演和系列构成吧
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

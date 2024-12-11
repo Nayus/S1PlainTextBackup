@@ -173,3 +173,13 @@
 明天开新ST卡池，是不是按惯例一般在元旦还会有个新的限定卡池或者联动活动来着 ...</blockquote>
 一直没有，按惯例这个月底到周年新池子之前都是一路狂奔复刻没有新池<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希望之花  
+##### 1312#       发表于 2024-12-12 00:17
+
+北欧组……我的北欧组
+
+哎算了出了也抽不到
+

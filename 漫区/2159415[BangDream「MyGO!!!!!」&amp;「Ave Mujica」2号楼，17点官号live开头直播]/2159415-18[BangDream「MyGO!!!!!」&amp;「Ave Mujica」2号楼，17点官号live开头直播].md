@@ -17827,3 +17827,21 @@ ykls拯救了一图流MV
 
 [企鵝寶寶取名 動漫女主「Tomorin」高票當選｜TVBS新聞](https://www.bilibili.com/video/BV12FqQYsEEL/)
 
+
+*****
+
+####  [皆神孝介]  
+##### 26639#       发表于 2024-12-12 00:23
+
+今天下午B站官方的第一二话重投了吗？
+
+<img src="https://img.saraba1st.com/forum/202412/12/002255s33ysd33isdaosa1.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2024-12-12_00-22-41.jpg</strong> (132.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-12 00:22 上传
+
+发生了什么？
+

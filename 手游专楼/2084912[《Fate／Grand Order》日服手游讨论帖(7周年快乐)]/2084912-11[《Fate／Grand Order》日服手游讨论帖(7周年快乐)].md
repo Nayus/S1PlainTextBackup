@@ -736,3 +736,18 @@
 
 记得他们换引擎也没多久啊
 
+
+*****
+
+####  cckuku  
+##### 15265#       发表于 2024-12-12 00:23
+
+我靠突然把我强退了？
+
+*****
+
+####  DARKGRAY  
+##### 15266#       发表于 2024-12-12 00:24
+
+难怪刚进游戏就报维护<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

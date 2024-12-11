@@ -647,3 +647,11 @@
 
 千利休还能打下特攻和有个30充，你应该说项羽同样绿卡狂还同样是常驻<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  quanlix  
+##### 15255#       发表于 2024-12-11 18:29
+
+最近两个池子已经吃了两次保底了，中间歪5个常驻
+

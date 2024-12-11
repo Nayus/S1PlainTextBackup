@@ -13716,3 +13716,36 @@ UC世界观下只要你是新人类就不普通了
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  没取名啊  
+##### 1312#       发表于 2024-12-11 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66898743&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2024-12-11 18:16</a>
+所以现在回想起来还是感觉很怪哦，为啥第0话的质量会比正片强那么多？无论是节奏信息量还是立意都感觉不像 ...</blockquote>
+故事只写个开头当然比在后面圆过程和结尾简单多了
+
+
+*****
+
+####  PascalLefèvre  
+##### 1313#       发表于 2024-12-11 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66898853&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2024-12-11 18:30</a>
+先行剧场版馆数373，不考子初动好像是200多？
+
+----发送自 Sony XQ-CT44,Android 14 ...</blockquote>
+这么多吗，本来以为会是那种小范围先行的<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  cmyk1234  
+##### 1314#       发表于 2024-12-11 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66898640&amp;ptid=2209276" target="_blank">0aleph37 发表于 2024-12-11 18:01</a>
+当初看完水魔第零集曾畅想能够有一个关于技术进步对于道德伦理社会形态转变阵痛期的作品，刚大木作为人类应 ...</blockquote>
+这个话题好像在武斗传的死亡军团篇讨论过了
+

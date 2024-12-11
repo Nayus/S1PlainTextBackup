@@ -12206,3 +12206,17 @@ VN明年真要和老五一起离开？感觉不会呀，她应该必留，说到
 
 nagi新曲倒不错，就是那段rap<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 1194#       发表于 2024-12-11 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66892184&amp;ptid=2201887" target="_blank">一心而用 发表于 2024-12-10 21:40</a>
+第1话 55.1% 15.7% 14.8% 6.0% 8.3% 约2400
+第2话 65.6% 15.8% 9.5% 3.8% 5.3% 约2100
+第3话 69.9% 12.2% 8 ...</blockquote>
+怎么这个人数波动这么夸张。。。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

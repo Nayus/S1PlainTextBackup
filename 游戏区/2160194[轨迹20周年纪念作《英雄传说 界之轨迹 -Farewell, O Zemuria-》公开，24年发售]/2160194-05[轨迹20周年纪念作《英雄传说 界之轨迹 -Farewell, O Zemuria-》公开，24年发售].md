@@ -587,3 +587,32 @@
 一打开发现锁30帧，手感绑硬，bro想念轨迹了....... ...</blockquote>
 知足吧，ps5现在这版本已经优化点东西了，初版很多东西更逆天，虽然我觉得初版那个抽象的数值更有意思。
 
+
+*****
+
+####  sd4442312  
+##### 7116#       发表于 2024-12-11 14:01
+
+<blockquote>flyreder 发表于 2024-11-27 00:53
+1202年利贝尔村姑➕童养婿开始游击修行之士全国徒步游
+
+1204一月条子坐火车去克州 三月里爷坐火车去托里斯 ...</blockquote>
+仔细想想真的挺怪的，有飞行船和淘汰了内燃机的能源，意味着能源输送渠道是十分成熟的，电路啥的也早就有了，啥时候冒出手机都不奇怪，没有才是诡异的光景。
+
+*****
+
+####  洛克萨斯  
+##### 7117#       发表于 2024-12-11 14:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66894998&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-12-11 10:47</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我不信你法这么写，虽然我喜欢
+
+*****
+
+####  TheOccuria  
+##### 7118#       发表于 2024-12-11 14:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结社难道不是好人阵营的吗
+
+坏人坏事都鞭尸给dj教团啦
+

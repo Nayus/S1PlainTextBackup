@@ -17819,3 +17819,11 @@ ykls拯救了一图流MV
 
 曲绘真不错<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  月島まりな  
+##### 26638#       发表于 2024-12-11 22:20
+
+[企鵝寶寶取名 動漫女主「Tomorin」高票當選｜TVBS新聞](https://www.bilibili.com/video/BV12FqQYsEEL/)
+

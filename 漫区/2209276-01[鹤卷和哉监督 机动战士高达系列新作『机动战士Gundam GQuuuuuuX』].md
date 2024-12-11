@@ -13822,3 +13822,23 @@ EVA终我记得是105亿来着？代哥对这部期望怎么也不可能像种�
 
 我没关注，种自一开始的期望是10亿吗？
 
+
+*****
+
+####  LuciferMustDie  
+##### 1323#       发表于 2024-12-11 20:16
+
+ 本帖最后由 LuciferMustDie 于 2024-12-11 20:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66898278&amp;ptid=2209276" target="_blank">PascalLefèvre 发表于 2024-12-11 17:15</a>
+
+这种平时稀里糊涂，上机之后打鸡血大杀四方，下了机又稀里糊涂的人设到底是谁在喜欢，我寻思刹那也不这样啊 ...</blockquote>
+只有不敬业的创作者喜欢
+
+某些创作者写东西时吧……就……很【端着】
+
+生怕观者对其进行人格嘲讽：“啊，我知道了，你就是这样意淫的！”
+
+其实名为圣母病的亚萨西瘟疫失控也是有这方面的作者内因在起作用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+所以，那些豁得出去的创作者才值得珍惜
+

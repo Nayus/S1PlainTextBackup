@@ -1352,3 +1352,27 @@ wsd这是终于看不下去一两万的碟特了？
 以及在13集的团名曲也多次出现（Memento Mori）
 于是他们惊呼卖得更大了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ydsbbt  
+##### 3080#       发表于 2024-12-11 20:14
+
+mori是死亡，memento也能和遗忘扯上关系。这不睦祥吗，怎么又被灯祥偷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202412/11/201055agm5unhmyum2m69g.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2024-12-11_20-09-56.png</strong> (353.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-11 20:10 上传
+
+<img src="https://img.saraba1st.com/forum/202412/11/201104oboyidnh2ht81nnu.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2024-12-11_20-10-19.png</strong> (87.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-11 20:11 上传
+

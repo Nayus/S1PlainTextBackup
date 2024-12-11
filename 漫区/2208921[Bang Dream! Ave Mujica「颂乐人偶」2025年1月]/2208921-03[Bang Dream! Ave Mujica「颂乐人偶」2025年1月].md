@@ -1123,3 +1123,41 @@ PICO里神秘送报人是不是可以跟祥子送报时间对上
 
 其实就是五个人都有自己的心魔（或者说私心），导致做出了违背自己本心，客观上伤害了团队的行为（初华应该是隐藏的秘密最多，犯的错最大），然后银河战舰又炸，大翔跪地哭，最后还是站起来帮队友消除心魔重建成一个不需要假面（可以共享秘密）的团队
 
+
+*****
+
+####  NODY  
+##### 3062#       发表于 2024-12-11 13:12
+
+<img src="https://img.saraba1st.com/forum/202412/11/131153qxmj9303xx6ljall.jpg" referrerpolicy="no-referrer">
+
+<strong>Gec2l_1bMAAbgRL.jpg</strong> (1.03 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-11 13:11 上传
+
+<img src="https://img.saraba1st.com/forum/202412/11/131154xedatx0qmtp0pqat.jpg" referrerpolicy="no-referrer">
+
+<strong>Gec2mqhbwAAH9_F.jpg</strong> (917.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-11 13:11 上传
+
+<img src="https://img.saraba1st.com/forum/202412/11/131154zeq5oukloqe5zuu0.jpg" referrerpolicy="no-referrer">
+
+<strong>Gec5aNVaEAE5I3J.jpg</strong> (1.48 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-11 13:11 上传
+
+<img src="https://img.saraba1st.com/forum/202412/11/131155y1pxzto0pkpl8po6.jpg" referrerpolicy="no-referrer">
+
+<strong>Gec5ZT5aEAIIc7y.jpg</strong> (1.1 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-11 13:11 上传
+

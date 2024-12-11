@@ -751,3 +751,13 @@
 
 难怪刚进游戏就报维护<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  污师米  
+##### 15267#       发表于 2024-12-12 00:30
+
+无敌了，600石娄希6宝了，一个单抽，一个双黄<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

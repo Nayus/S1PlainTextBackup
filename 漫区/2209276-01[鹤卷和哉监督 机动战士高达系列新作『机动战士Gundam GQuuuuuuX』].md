@@ -13948,3 +13948,29 @@ GQX制作水平是毫无疑问的强，还搞了UCif，内部肯定比一眼便�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">根据创作内容对创作者本人进行揣测本身就有够“业余”的
 
+
+*****
+
+####  夜雨秋水  
+##### 1333#       发表于 2024-12-11 20:52
+
+不开玩笑的说，麻球的人设和零崎舞织说不定还真有不少相似之处，除了标志性的针织帽（竹生涯只用过一次这个设计元素），以及明明过着安宁的jk的生活，但总是莫名的感觉身处的现实很脆弱，想要逃离，有着与生俱来的厮杀才华，埋下了作为新人类/零崎一贼觉醒的伏笔，等等。不知道正式开播之后二人的人设还会不会进一步重合。
+
+也许有人要说竹小姐一个原案作成影响不了人物设定，但是鹤卷哥哥拍短片找她、拍eva找她、拍高达也找她，而且只要逮到机会就把竹的名字排在staff列表上仅次于自己的位置，一般的原案很少见有这种待遇。而小舞又是竹最具代表性的设计之一，不好说，真的不好说。
+
+<img src="https://img.saraba1st.com/forum/202412/11/205122rjh2ndllee2ypeyv.jpg" referrerpolicy="no-referrer">
+
+<strong>img-1733920751956f311751bf81c690d67bb23bfc895a3f2617d2f4f86d6ccd230eb4640bb7c6d03.jpg</strong> (57.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-11 20:51 上传
+
+<img src="https://img.saraba1st.com/forum/202412/11/205158hizgozai52igkgkx.jpg" referrerpolicy="no-referrer">
+
+<strong>79021C281A95D06284E073577D2B18B0.jpg</strong> (155.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-11 20:51 上传
+

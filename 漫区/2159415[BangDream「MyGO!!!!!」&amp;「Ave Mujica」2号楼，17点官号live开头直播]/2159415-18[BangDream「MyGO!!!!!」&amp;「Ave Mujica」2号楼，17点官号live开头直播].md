@@ -17781,3 +17781,13 @@ bridge段ykn跟亚子合唱还有点意思
 角色回，灯素<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
 【【Radio企划】MyGO!!!!!の「迷子集会」#104-哔哩哔哩】[https://b23.tv/ZjwpcZU](https://b23.tv/ZjwpcZU) 
 
+
+*****
+
+####  CyDiablo  
+##### 26634#       发表于 2024-12-11 21:40
+
+对邦不放录播啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到相信老中环节了
+<img src="https://p.sda1.dev/20/b6841c4821e11d5ffdfa9e4803a5034c/3a57df9e-a932-49f3-83a9-dc9d9758f465.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/06b576298c10102a886551b0e9d555fb/Image_371480968478987.png" referrerpolicy="no-referrer">
+

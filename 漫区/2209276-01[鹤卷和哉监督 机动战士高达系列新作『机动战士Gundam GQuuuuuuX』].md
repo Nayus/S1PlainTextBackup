@@ -14075,3 +14075,67 @@ GQX制作水平是毫无疑问的强，还搞了UCif，内部肯定比一眼便�
 改了一下，双边休息时，那时候悟空和弗利萨在中场嘴炮没开打，而且要炸那美克星是因为后面悟空对弗利萨反 ...</blockquote>
 有点搞笑了, 这对话是变超赛和弗利沙空中对战说的, 悟空对弗利沙怎么算嘲讽羞辱, 是弗利沙输不起好吧
 
+
+*****
+
+####  赤黑的假面  
+##### 1342#       发表于 2024-12-11 22:55
+
+这次东宝给那么多馆到底是给在KHARA的面子还是看重钢弹的IP价值
+
+*****
+
+####  eir45  
+##### 1343#       发表于 2024-12-11 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66900685&amp;ptid=2209276" target="_blank">BarryAllen 发表于 2024-12-11 22:38</a>
+
+有点搞笑了, 这对话是变超赛和弗利沙空中对战说的, 悟空对弗利沙怎么算嘲讽羞辱, 是弗利沙输不起好吧 ...</blockquote>
+后面又开始打后的确进行嘲讽了啊，弗利萨输不起和被嘲讽恼怒也不冲突啊（中间省略一段不影响理解的）
+
+6.png
+(312.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-11 22:50 上传
+
+<img src="https://img.saraba1st.com/forum/202412/11/225046mo96xhxhhvla3xxv.png" referrerpolicy="no-referrer">
+
+7.png
+(308.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-11 22:50 上传
+
+<img src="https://img.saraba1st.com/forum/202412/11/225046xzhq9qow49qnqz6x.png" referrerpolicy="no-referrer">
+
+8.png
+(275.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-11 22:50 上传
+
+<img src="https://img.saraba1st.com/forum/202412/11/225047dldllf3wczm21e2q.png" referrerpolicy="no-referrer">
+
+9.png
+(279.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-11 22:50 上传
+
+<img src="https://img.saraba1st.com/forum/202412/11/225047aokjg5kk5mjhzpsz.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BarryAllen  
+##### 1344#       发表于 2024-12-11 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66900603&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2024-12-11 22:27</a>
+
+其实少年热血战斗漫的很多男主都这样吧？我一直以为是比较常见的人设来着。但是狸猫是哪怕上机战斗时也和平 ...</blockquote>
+悟空不是这样的人设, 出自动画脚本之手和描图王丰太郎创作的狗空差不多算
+

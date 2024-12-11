@@ -1529,3 +1529,15 @@ mujica第一集killkiss开场似乎是有致敬r的black shout，都是闭眼静
 
 2024-12-12 02:04 上传
 
+
+*****
+
+####  akiomn  
+##### 3097#       发表于 2024-12-12 02:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66901557&amp;ptid=2208921" target="_blank">NODY 发表于 2024-12-12 02:05</a>
+我之前脑补的water就是到了c part会换成初祥双人，结果没有，倒是在花冠mv里面实现了
+
+唉，什么时候mujica的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">应该很难，初华和睦两个抢祥子是吧
+

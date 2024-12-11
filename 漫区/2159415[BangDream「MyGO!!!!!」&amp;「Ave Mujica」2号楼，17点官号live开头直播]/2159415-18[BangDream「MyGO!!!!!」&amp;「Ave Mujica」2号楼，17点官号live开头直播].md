@@ -17728,3 +17728,13 @@ bridge段ykn跟亚子合唱还有点意思
 
 梦想紫烤羊之前也就几千关注，看了看现在已经3.6w关注超过奇迹紫了，早就是go友的时尚单品了，你甚至能在小红书上看到以逛紫吧为荣的邦集美<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  贝多Van  
+##### 26629#       发表于 2024-12-11 14:23
+
+阿b上了mygo，又看了一遍，突然发现动画op，一滴雨？曲调非常“中华风”，尤其是开头和结尾，就像动画里看到一个包子头旗袍妹子一样的，非常典。
+
+—— 来自 HUAWEI ALN-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

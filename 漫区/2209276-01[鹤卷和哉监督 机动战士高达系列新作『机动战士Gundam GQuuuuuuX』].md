@@ -14139,3 +14139,66 @@ GQX制作水平是毫无疑问的强，还搞了UCif，内部肯定比一眼便�
 其实少年热血战斗漫的很多男主都这样吧？我一直以为是比较常见的人设来着。但是狸猫是哪怕上机战斗时也和平 ...</blockquote>
 悟空不是这样的人设, 出自动画脚本之手和描图王丰太郎创作的狗空差不多算
 
+
+*****
+
+####  RE㐅ia  
+##### 1345#       发表于 2024-12-11 23:13
+
+<blockquote>eir45 发表于 2024-12-11 22:31
+改了一下，双边休息时，那时候悟空和弗利萨在中场嘴炮没开打，而且要炸那美克星是因为后面悟空对弗利萨反 ...</blockquote>
+不是只有你一拳我一脚的互揍才能叫开打了。悟空认真的一面仅限在于有大敌当前的危急时刻。无论和大王的对喷或者说是沙鲁游戏的前夕又或是与魔人布欧对峙那可都是生死攸关的时刻，这时候就算没有正面意意上在打架悟空也是处于备战状态，自然不会像平常那样嘻嘻哈哈。但是如果眼前没有敌人或者敌人自己能随便秒，那悟空真的认真不起来一点，去b站看归来的悟空ova就能知道了。这种平日神经大条关键时刻能扛大梁的反差本来就是悟空人格魅力的一部分，我觉得没必要否认，龙珠毕竟也是搞笑漫出身。
+
+<img src="https://img.saraba1st.com/forum/202412/11/231228bo2cjnglwo52laww.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A14EE7DF-AFB7-45D3-98CD-9B1E11405EC2.jpeg</strong> (221.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-11 23:12 上传
+
+<img src="https://img.saraba1st.com/forum/202412/11/231228m6a2egxyd990wxgy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>7587FF13-09F1-46F2-A984-CB8558B53307.jpeg</strong> (282.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-11 23:12 上传
+
+<img src="https://img.saraba1st.com/forum/202412/11/231230zt1tzewtxzzcseoo.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>B8A5B9CD-AC5B-4220-855D-6B1AAA7117C6.jpeg</strong> (208.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-11 23:12 上传
+
+<img src="https://img.saraba1st.com/forum/202412/11/231228fy1583wmtyyv2oz6.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>8B5C2376-D3F8-404F-866B-D3CAE879F261.jpeg</strong> (36.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-11 23:12 上传
+
+<img src="https://img.saraba1st.com/forum/202412/11/231232s815hr68z8r89f84.png" referrerpolicy="no-referrer">
+
+<strong>321BD15D-40AC-46CE-9C6F-E56592EA899E.png</strong> (458.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-11 23:12 上传
+
+机战动画里驾驶员上机后出击前也有待机阶段，但不代表他们没有处于战斗中。
+
+*****
+
+####  RE㐅ia  
+##### 1346#       发表于 2024-12-11 23:16
+
+ 本帖最后由 RE㐅ia 于 2024-12-11 23:19 编辑 
+<blockquote>BarryAllen 发表于 2024-12-11 22:57
+悟空不是这样的人设, 出自动画脚本之手和描图王丰太郎创作的狗空差不多算 ...</blockquote>
+
+丰太郎只是没把握好悟空这两面之间的平衡所以才给人悟空变蠢了的感觉。但是这也改变不了悟空在z的日常稀里糊涂的事实。就未来特兰克斯千叮咛万嘱咐叫他吃心脏药这事他都能忘掉。要不是贝吉塔当时解锁了超级赛亚人，地球哪怕有特兰克斯这种开二周目的玩家都救不了了
+

@@ -1307,3 +1307,48 @@ Ave Mujicaがオープニングアクトを務めた2023年9月17日開催のRos
 
 好奇海玲是不是在动画中看见红按钮了
 
+
+*****
+
+####  allesdg  
+##### 3077#       发表于 2024-12-11 19:58
+
+神笨的话想起来很早以前被当作灯祥曲贷款时有这样一个论据，这首歌的官网网址是[https://bmu.lnk.to/MementoMorihp](https://bmu.lnk.to/MementoMorihp)，用了MementoMori这个词(给拆出来个tomori是有点抽象)，现在看这个词的含义的话，似乎可以脑补不少东西
+
+<img src="https://img.saraba1st.com/forum/202412/11/195701nliqvgy211q278al.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20241211195621.jpg</strong> (321.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-11 19:57 上传
+
+*****
+
+####  skives10  
+##### 3078#       发表于 2024-12-11 20:00
+
+<img src="https://img.saraba1st.com/forum/202412/11/195944eh0daslda1n0ewl3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0716.jpeg</strong> (206.72 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-11 19:59 上传
+
+wsd这是终于看不下去一两万的碟特了？
+
+真能复刻也行
+
+*****
+
+####  -LYRE-  
+##### 3079#       发表于 2024-12-11 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66899447&amp;ptid=2208921" target="_blank">allesdg 发表于 2024-12-11 19:58</a>
+神笨的话想起来很早以前被当作灯祥曲贷款时有这样一个论据，这首歌的官网网址是https://bmu.lnk.to/Memento ...</blockquote>
+最早拿来当论据的是外网音乐软件歌名后面会括弧（Memento Mori）
+以及在13集的团名曲也多次出现（Memento Mori）
+于是他们惊呼卖得更大了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -18,3 +18,13 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  星野航  
+##### 3609#       发表于 2024-12-11 21:02
+
+听说桥野大湿已经开始运作暗喻动画化的问题了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+桥野大湿真的别做游戏了，转行去做传销准行
+

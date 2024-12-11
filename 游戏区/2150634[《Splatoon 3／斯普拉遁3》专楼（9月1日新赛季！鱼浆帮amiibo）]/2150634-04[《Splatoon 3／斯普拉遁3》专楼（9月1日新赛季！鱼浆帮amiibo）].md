@@ -92,3 +92,16 @@ sp增和sp强，反正就是狠狠涂狠狠送饮料
 
 不知不觉银鳞片居然先毕业了，铜的都至少还差1000，金的更别提了
 
+
+*****
+
+####  星野航  
+##### 5590#       发表于 2024-12-11 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66897498&amp;ptid=2150634" target="_blank">KBAC 发表于 2024-12-11 16:44</a>
+
+再見オネノネノン这里是琉球三线吗第一眼以为是中国三弦但是看着又点不一样。
+
+论坛助手,iPhone ...</blockquote>
+应该是，毕竟中之人就是职业民谣歌手，很有一套
+

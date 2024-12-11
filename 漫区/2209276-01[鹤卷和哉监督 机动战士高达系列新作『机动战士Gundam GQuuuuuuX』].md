@@ -13997,3 +13997,14 @@ GQX制作水平是毫无疑问的强，还搞了UCif，内部肯定比一眼便�
 
 （虽然主角人物造型的巧合以外，她的ms光束军刀确实微妙地形似自杀志愿
 
+
+*****
+
+####  eir45  
+##### 1336#       发表于 2024-12-11 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66899679&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2024-12-11 20:28</a>
+
+这种平时稀里糊涂一开战就极其认真的人设挺受欢迎的吧？举个经典的例子就是龙珠里的悟空 ...</blockquote>
+卡卡罗特在z里不开战时可是能当冰箱说“难道赛亚人杀死的都是有罪的人吗？”时，回怼“所以赛亚人为此灭亡了”的角色<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

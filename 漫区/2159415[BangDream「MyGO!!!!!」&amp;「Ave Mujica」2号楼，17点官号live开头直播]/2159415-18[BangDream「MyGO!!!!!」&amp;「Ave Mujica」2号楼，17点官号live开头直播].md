@@ -17803,3 +17803,19 @@ bridge段ykn跟亚子合唱还有点意思
 <img src="https://p.sda1.dev/20/f146b38fdc54a47decc54547f2adfbda/Screenshot_20241211_215503.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/20/8cd00a017aca5bf70a6ddfad111a014d/Screenshot_20241211_215110.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  月島まりな  
+##### 26636#       发表于 2024-12-11 22:05
+
+ykls拯救了一图流MV
+<img src="https://p.sda1.dev/20/e77291c6995fd017058e583208220040/Roselia「礎の花冠」-03.22.625.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 26637#       发表于 2024-12-11 22:08
+
+曲绘真不错<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

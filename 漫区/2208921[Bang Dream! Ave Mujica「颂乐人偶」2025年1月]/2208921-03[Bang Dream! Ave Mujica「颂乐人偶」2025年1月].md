@@ -1400,3 +1400,11 @@ mori是死亡，memento也能和遗忘扯上关系。这不睦祥吗，怎么又
 
 mujica第一集killkiss开场似乎是有致敬r的black shout，都是闭眼静止
 
+
+*****
+
+####  星天观测  
+##### 3084#       发表于 2024-12-11 22:03
+
+算，算致敬吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

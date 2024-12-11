@@ -1161,3 +1161,11 @@ PICO里神秘送报人是不是可以跟祥子送报时间对上
 
 2024-12-11 13:11 上传
 
+
+*****
+
+####  星天观测  
+##### 3063#       发表于 2024-12-11 13:42
+
+想要萝吉他贝斯的模型，但是找不到ppp推跟我一起抱盒<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

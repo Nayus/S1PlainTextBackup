@@ -13493,3 +13493,23 @@ UC世界观下只要你是新人类就不普通了
 
 渲染和刻画之间还是有不小的距离的吧<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">，又不是非得死人如喝水才叫不渲染
 
+
+*****
+
+####  无动于衷  
+##### 1294#       发表于 2024-12-11 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66895525&amp;ptid=2209276" target="_blank">Sliurus 发表于 2024-12-11 11:40</a>
+
+高达作品说到底就是在人类殖民太空的时期，少年少女被卷入战争驾驶高达。水魔就是主角团参与战争不够深入所 ...</blockquote>
+水魔的问题在于不讲正事，说白了STAFF就没搞懂什么叫详略得当
+
+*****
+
+####  猪突猛进R  
+##### 1295#       发表于 2024-12-11 13:45
+
+富野对死亡的描写比较写实，有时甚至很残酷，比如V高达里的“这是我妈妈”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+其它高达感觉都有些刻意，点名铁血，说是学富野，结果只学了形式上的毛皮，硬是用暗杀兵砰砰砰来推进剧情。
+

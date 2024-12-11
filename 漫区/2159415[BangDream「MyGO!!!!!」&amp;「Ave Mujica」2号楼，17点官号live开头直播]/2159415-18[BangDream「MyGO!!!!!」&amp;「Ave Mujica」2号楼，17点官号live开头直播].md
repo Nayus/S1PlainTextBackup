@@ -17758,3 +17758,17 @@ bridge段ykn跟亚子合唱还有点意思
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  兰开夏  
+##### 26632#       发表于 2024-12-11 17:47
+
+重新复习了一下go
+
+真的常看常新
+
+尤其是去了复杂地方上班后
+
+太哈人了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

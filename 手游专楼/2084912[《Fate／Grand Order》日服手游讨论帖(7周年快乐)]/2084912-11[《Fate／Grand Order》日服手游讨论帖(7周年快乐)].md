@@ -611,3 +611,31 @@
 
 这差不多将千利休撕了了吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xiongxingyu  
+##### 15251#       发表于 2024-12-11 17:49
+
+娄希这强度还常驻，有点当年手办娘和太公望那个意思了。仙女座直接哭晕在厕所，这是和藤蔓、娄希同一年出的限定绿光炮你敢信？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  都谷捻柏  
+##### 15252#       发表于 2024-12-11 17:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">沉了，羡慕你楼欧洲人
+
+
+*****
+
+####  exiaexa  
+##### 15253#       发表于 2024-12-11 17:56
+
+其实最大的优点是是兽科，能解决很多问题
+
+剩下的就是个没特攻地铺战神，抽不抽取决于你自己打不打地铺，跟千利休真不是一个赛道的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

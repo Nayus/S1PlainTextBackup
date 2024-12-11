@@ -13417,3 +13417,24 @@ top2真能算钕同吗？感觉光凭那印度佬的存在就会被豚豚除籍�
 富野还是太论外了，哪怕只看uc系高达他每部和每部的风格都差的很多</blockquote>
 富野的宇宙世纪片子感觉是一部一个样，Z和元祖不像一回事，所以高达吧那帮人才根本说不清楚到底什么叫钢弹味
 
+
+*****
+
+####  Sliurus  
+##### 1286#       发表于 2024-12-11 11:25
+
+富野片子最大的共同特点应该是节奏，前十集快速发展，中间翻来覆去，后十集匆匆完结<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。以及不用心理描写来表现人物心态变化，所以经常会出现一些跳脱的台词和行为，但同时也很适合挖掘人物动机，是富野作品的一大乐趣
+
+
+*****
+
+####  Rhantolk  
+##### 1287#       发表于 2024-12-11 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66893475&amp;ptid=2209276" target="_blank">PascalLefèvre 发表于 2024-12-11 03:07</a>
+
+有没有主角设定假药环节，虽然感觉pv展示的是各方面都挺普通的一个小孩子
+
+ ...</blockquote>
+UC世界观下只要你是新人类就不普通了
+

@@ -1024,3 +1024,18 @@ PICO里神秘送报人是不是可以跟祥子送报时间对上
 现在鸡团的人气完全是网红式的 ...</blockquote>
 如果不是为了话题性和流量，一开始也不会戴面具啊。现在闹这一出，🐔团人气必然会暴涨一波，这让我没法排除是演的可能性，坐等被打脸<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  LeonsCat  
+##### 3053#       发表于 2024-12-11 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66893850&amp;ptid=2208921" target="_blank">星天观测 发表于 2024-12-11 08:38</a>
+
+群像的主角肯定是真人团，那就要考虑什么音乐节会让出道乐队和休闲乐队一起想上的
+
+这种理由其实很不好给 ...</blockquote>
+商业乐队和地下乐队都出场的音乐节不少的，通常在不同舞台就是了。fuji festival, summer sonic等规模都不小。另外纯女子的NAONのYAON也有没有正式出道的独立乐队演出。
+
+当然了，高中生乐队参加以上规格的音乐节，除了设定里能速通武道馆的am，无论哪个都有点超现实。现实点说就是武士道团没有啥机会参加其中任何一个。
+

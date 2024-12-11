@@ -17746,3 +17746,15 @@ bridge段ykn跟亚子合唱还有点意思
 
 因为是“鼓手”写的曲子，只有节奏没旋律<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 26631#       发表于 2024-12-11 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66892927&amp;ptid=2159415" target="_blank">L-JoeW 发表于 2024-12-10 23:55</a>
+今天补完了第一部，爽世刚开始一直默默谋划借尸还魂，我原来以为是时间线拉的很长、有很深刻的羁绊，结果往 ...</blockquote>
+算了下时间大概是两个月，跨度确实不长，但是意义不一样，作为单亲家庭soyo踏出和其他人深交的第一步，还自制了社交账号，投入的感情确实很深，而且在她心里依然觉得觉得和祥子谈谈ccc还是可以继续的（而且编曲也是祥子，缺了她乐队也运行不下去，也不知道立希后面也去学作曲了。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

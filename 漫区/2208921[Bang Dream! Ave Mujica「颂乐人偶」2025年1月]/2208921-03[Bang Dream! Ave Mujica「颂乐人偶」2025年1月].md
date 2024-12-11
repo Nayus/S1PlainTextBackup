@@ -1169,3 +1169,15 @@ PICO里神秘送报人是不是可以跟祥子送报时间对上
 
 想要萝吉他贝斯的模型，但是找不到ppp推跟我一起抱盒<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives10  
+##### 3064#       发表于 2024-12-11 18:05
+
+[https://www.lisani.jp/0000271996/4/?show_more=1](https://www.lisani.jp/0000271996/4/?show_more=1)
+
+――そして2025年は、TVアニメ『BanG Dream! Ave Mujica』の放送を皮切りに怒涛のムジカイヤーが幕を開けます。
+
+高尾　情報量が多すぎて一回では追いきれないよね。今までにリリースしてきた楽曲も、アニメを観てからだと捉え方が変わると思うんです。個人的に「神さま、バカ」はアニメを全編観てからもう一度聴いて欲しいです。
+

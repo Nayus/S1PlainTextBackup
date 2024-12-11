@@ -1003,3 +1003,24 @@ mujica动画播出以后，🐔团五个人在日本那边的人气排位会变�
 
 PICO里神秘送报人是不是可以跟祥子送报时间对上
 
+
+*****
+
+####  好想看Mujica啊  
+##### 3051#       发表于 2024-12-11 09:26
+
+毕竟怪力少女，报纸破窗也很正常吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  罗克萨斯  
+##### 3052#       发表于 2024-12-11 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66893964&amp;ptid=2208921" target="_blank">bbjajdd 发表于 2024-12-11 08:56</a>
+
+祥子是摘面具至少要在音乐上被认可后再说。
+
+现在鸡团的人气完全是网红式的 ...</blockquote>
+如果不是为了话题性和流量，一开始也不会戴面具啊。现在闹这一出，🐔团人气必然会暴涨一波，这让我没法排除是演的可能性，坐等被打脸<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

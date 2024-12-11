@@ -1699,3 +1699,11 @@ sena这首生日曲风味真的足，太搭了
 
 【『偶像大师』系列20周年記念曲「アイ NEED YOU（FOR WONDERFUL STORY）」】 [https://www.bilibili.com/video/B ... cc556defeee1979fb27](https://www.bilibili.com/video/BV16Nq1YoEN7/?share_source=copy_web&amp;vd_source=7c4a22637017bcc556defeee1979fb27)
 
+
+*****
+
+####  Alleyht  
+##### 6749#       发表于 2024-12-11 19:41
+
+小高这个栽种怎么就逮着嘘组P和米组P薅羊毛啊<img src="https://static.saraba1st.com/image/smiley/face2017/271.png" referrerpolicy="no-referrer">好不容易在铃木暮光之后回了口血又来个限定美琴P+铃木S，隔壁音游还是小羊，真的服了
+

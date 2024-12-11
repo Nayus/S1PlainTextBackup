@@ -1431,3 +1431,15 @@ mujica第一集killkiss开场似乎是有致敬r的black shout，都是闭眼静
 
 想到Mujica可能是独角兽在邦邦最后的作品，真是伤感啊，邦邦动画还会有未来吗
 
+
+*****
+
+####  走向未来  
+##### 3088#       发表于 2024-12-11 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66900950&amp;ptid=2208921" target="_blank">太二EricGuo 发表于 2024-12-11 23:27</a>
+想到Mujica可能是独角兽在邦邦最后的作品，真是伤感啊，邦邦动画还会有未来吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">独角兽又双叒叕要跑路了吗？那种事情不要啊！！！！！
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

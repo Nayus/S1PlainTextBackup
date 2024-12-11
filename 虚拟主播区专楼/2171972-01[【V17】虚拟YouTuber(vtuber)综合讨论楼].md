@@ -695,3 +695,11 @@ farm这块想法是可以的，但不管是洗石头还是农场什么的都人�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">那确实游戏瘾太大了
 
+
+*****
+
+####  aritaatsu222  
+##### 957#       发表于 2024-12-11 11:17
+
+怎麼銀テ賣就賣了還剪一小段賣，哪裡來的乞丐，撿了幾十條全發出去的我是菩薩嗎
+

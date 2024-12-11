@@ -66,3 +66,21 @@ sp增和sp强，反正就是狠狠涂狠狠送饮料
 
 问一下本体+dlc的同捆卡带，里面是一个卡带包含所有内容，还是一个本体卡带加上dlc兑换码？
 
+
+*****
+
+####  KBAC  
+##### 5588#       发表于 2024-12-11 15:44
+
+<img src="https://img.saraba1st.com/forum/202412/11/153014z7we7yga4ngigypy.png" referrerpolicy="no-referrer">
+
+<strong>img_0784.png</strong> (350.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-11 15:30 上传
+
+再見オネノネノン这里是琉球三线吗<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">第一眼以为是中国三弦但是看着又点不一样。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

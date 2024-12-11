@@ -522,3 +522,28 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">一个长篇连载系列找不出几个反派，想想也挺逆天
 
+
+*****
+
+####  新世界的派蒙  
+##### 7111#       发表于 2024-12-11 10:42
+
+隔壁传颂5要出了，想起来传颂4还没玩，直接买了PS5版
+
+一打开发现锁30帧，手感绑硬，bro想念轨迹了.......<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 7112#       发表于 2024-12-11 10:47
+
+               
+
+<img src="https://img.saraba1st.com/forum/202412/11/104655s0q7ydvqz78f78m7.jpg" referrerpolicy="no-referrer">
+
+<strong>1733880093186901.jpg</strong> (51.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-11 10:46 上传
+

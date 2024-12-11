@@ -13406,3 +13406,14 @@ top2真能算钕同吗？感觉光凭那印度佬的存在就会被豚豚除籍�
  ...</blockquote>
 目前来看前期就是个想去地球的喜欢水母的十六岁纯良nt小女孩，后期一转番茄高带笑还是性转兵王骡就不好说了
 
+
+*****
+
+####  赤黑的假面  
+##### 1285#       发表于 2024-12-11 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66893379&amp;ptid=2209276" target="_blank">Duc_d'_Muka 发表于 2024-12-11 01:48</a>
+
+富野还是太论外了，哪怕只看uc系高达他每部和每部的风格都差的很多</blockquote>
+富野的宇宙世纪片子感觉是一部一个样，Z和元祖不像一回事，所以高达吧那帮人才根本说不清楚到底什么叫钢弹味
+

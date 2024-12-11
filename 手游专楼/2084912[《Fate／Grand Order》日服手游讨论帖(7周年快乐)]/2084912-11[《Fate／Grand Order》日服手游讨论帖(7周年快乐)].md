@@ -533,3 +533,54 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">总是在这种地方非常有效率
 
+
+*****
+
+####  angelooo  
+##### 15244#       发表于 2024-12-11 17:13
+
+我喜欢娄希的一破和满破啊混蛋，为什么满破绑定鸟人立绘OTZ
+
+*****
+
+####  琴酒  
+##### 15245#       发表于 2024-12-11 17:16
+
+娄希这作为常驻很强力啊80自充20群，群体红绿放，oc+1，宝具后群体宝威，超优秀副手了 
+
+*****
+
+####  琴酒  
+##### 15246#       发表于 2024-12-11 17:17
+
+<img src="https://img.saraba1st.com/forum/202412/11/171748lu9yot9ca9ntfocp.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_1484.JPG</strong> (578.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-11 17:17 上传
+
+<img src="https://img.saraba1st.com/forum/202412/11/171748jeciteb91fe5esnm.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_1485.JPG</strong> (414.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-11 17:17 上传
+
+*****
+
+####  v22325  
+##### 15247#       发表于 2024-12-11 17:17
+
+<img src="https://img.saraba1st.com/forum/202412/11/171753b2xmr4w2vrxotwer.jpg" referrerpolicy="no-referrer">
+
+<strong>1000018772.jpg</strong> (315.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-11 17:17 上传
+
+喷了
+

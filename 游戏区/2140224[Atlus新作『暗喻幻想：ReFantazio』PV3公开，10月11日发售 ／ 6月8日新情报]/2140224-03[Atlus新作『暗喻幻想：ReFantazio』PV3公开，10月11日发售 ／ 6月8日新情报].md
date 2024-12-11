@@ -59,3 +59,15 @@
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  森兰丸  
+##### 3613#       发表于 2024-12-12 03:31
+
+打到能够解锁恶魔召唤师了....怎么召唤出来的都是女神系列的仲魔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还有这舞蹈师装也不装了直接就叫ペルソナ能够装备假面来战斗
+
+这到底是属于彩蛋性质还是这游戏和女神系列P系列真有什么联系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

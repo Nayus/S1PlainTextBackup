@@ -124,3 +124,15 @@
 
 感觉明年又要ST+复刻联动混过一年，本老害安心养老了
 
+
+*****
+
+####  wilkyway  
+##### 1307#       发表于 2024-12-11 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66899002&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2024-12-11 18:49</a>
+这好像是第一对跳过FA直接出ST的女演员？虽然以前预告过但是直接跳过一级还是第一次吧？
+
+感觉明年又要ST+复 ...</blockquote>
+现有的st除了舞和怜这对不都是跳过fa直接出的 算你游新坏文明了
+

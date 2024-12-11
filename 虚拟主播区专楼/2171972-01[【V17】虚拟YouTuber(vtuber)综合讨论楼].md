@@ -727,3 +727,11 @@ farm这块想法是可以的，但不管是洗石头还是农场什么的都人�
 
 雖然說沒有新衣裝但這個刺繡暗紋真是修得太漂亮了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  格林卡罗尔  
+##### 959#       发表于 2024-12-12 01:43
+
+gta原来游戏里能拍出这种效果啊，就是剧情闷了点不适合这种短片
+

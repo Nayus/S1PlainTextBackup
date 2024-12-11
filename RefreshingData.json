@@ -3777,7 +3777,7 @@
     "lastedit": 1733864520,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1478318": {
     "totalreply": 1412,
@@ -16641,10 +16641,10 @@
     "update": false
   },
   "2210002": {
-    "totalreply": 312,
+    "totalreply": 313,
     "title": "[枪杀医保巨头CEO的嫌疑人被捕，系豪门骄子，手写宣言称“这些寄生虫是咎由自取”]",
     "newtitle": "[枪杀医保巨头CEO的嫌疑人被捕，系豪门骄子，手写宣言称“这些寄生虫是咎由自取”]",
-    "lastedit": 1733947812,
+    "lastedit": 1733949250,
     "category": "外野",
     "active": true,
     "update": false
@@ -17064,10 +17064,10 @@
     "update": false
   },
   "2210075": {
-    "totalreply": 83,
+    "totalreply": 84,
     "title": "[生存狂／废土／丧尸／后启示录这类概念算不算老美特色？]",
     "newtitle": "[生存狂／废土／丧尸／后启示录这类概念算不算老美特色？]",
-    "lastedit": 1733934745,
+    "lastedit": 1733949011,
     "category": "外野",
     "active": true,
     "update": false
@@ -17348,6 +17348,15 @@
     "newtitle": "[我们不可能成为恋人！绝对不行 动画化 2025年夏]",
     "lastedit": 1733935349,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2210210": {
+    "totalreply": 41,
+    "title": "[小日子又来袭击预告了]",
+    "newtitle": "[小日子又来袭击预告了]",
+    "lastedit": 1733949011,
+    "category": "外野",
     "active": true,
     "update": false
   }

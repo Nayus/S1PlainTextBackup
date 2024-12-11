@@ -77,3 +77,16 @@
 
 这红花和百鸡熊是st还是fa来的？
 
+
+*****
+
+####  江戸前ルナ  
+##### 1303#         楼主| 发表于 2024-12-11 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66888662&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2024-12-10 14:39</a>
+
+要芝麻凛长发去买法师服装啊。
+
+北海道列车圣诞复刻，看来是妮娜+红花了。不出意外是ST，有点良心的话是FA。 ...</blockquote>
+对，看样子是最不良心的双UP ST<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

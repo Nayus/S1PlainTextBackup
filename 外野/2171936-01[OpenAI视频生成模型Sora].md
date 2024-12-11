@@ -930,3 +930,11 @@ https://sora.com/</blockquote>
 并不一定，有大神做了插件可以本地运行，虽然哪怕4090也无法完全发挥模型性能
 [https://github.com/kijai/ComfyUI-HunyuanVideoWrapper](https://github.com/kijai/ComfyUI-HunyuanVideoWrapper)
 
+
+*****
+
+####  RainyNights  
+##### 101#       发表于 2024-12-11 08:37
+
+有没有混元作品可以鉴赏？
+

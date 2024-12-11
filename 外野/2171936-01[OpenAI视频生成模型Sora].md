@@ -953,3 +953,13 @@ https://sora.com/</blockquote>
 
 实际效果还没混元可灵好，之前几个月的真就只是ppt啊。
 
+
+*****
+
+####  SkavenYesYes  
+##### 104#       发表于 2024-12-11 10:02
+
+细说混元<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+

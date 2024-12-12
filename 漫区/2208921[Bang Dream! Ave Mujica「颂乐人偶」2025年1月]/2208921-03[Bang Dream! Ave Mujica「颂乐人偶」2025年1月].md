@@ -1647,3 +1647,11 @@ newtype不会是临时工剧透睦破除心魔后解锁闪闪吉他了吧<img sr
 不过土最开始的主音part其实是李子弹的，或许以后熟练度提升了土的主音会全让李子弹吧
 <img src="https://p.sda1.dev/20/f6986d352d170f9507a15a5dad98be3e/TNT_756OEV2RLW83U50EPC7.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qjw114514  
+##### 3107#       发表于 2024-12-12 09:46
+
+有可能是随着人物发展而变化？也许转职技能是之后随着狂野睦模式一起解锁的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

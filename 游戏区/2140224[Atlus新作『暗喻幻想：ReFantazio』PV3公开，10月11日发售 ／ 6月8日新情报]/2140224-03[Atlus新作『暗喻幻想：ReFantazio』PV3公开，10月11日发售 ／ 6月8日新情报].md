@@ -105,3 +105,11 @@ P3R和SMT5V两个月后还能买到首发盘，暗喻情况应该差不多<img s
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  忘却旋律  
+##### 3617#       发表于 2024-12-12 09:40
+
+这玩意做游戏 剧情节奏就已近爆炸了 做动画难道不是更炸 还是便宜动画的前提下，难道会砸大钱认真做动画<img src="https://static.saraba1st.com/image/smiley/face2017/277.png" referrerpolicy="no-referrer">
+

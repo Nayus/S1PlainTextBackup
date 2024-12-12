@@ -497,3 +497,22 @@ source：硕士星空
 
 每次看到这种重置新闻我就会想到爹不亲娘不爱的龙骑士传说
 
+
+*****
+
+####  亚瑟摩根  
+##### 49#         楼主| 发表于 2024-12-12 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66903078&amp;ptid=2200503" target="_blank">farAway 发表于 2024-12-12 10:29</a>
+
+每次看到这种重置新闻我就会想到爹不亲娘不爱的龙骑士传说</blockquote>
+你也太···
+
+龙骑士都啥时候了
+
+上个世代血缘都没搞明白
+
+PS1的龙骑士传说怕不是往后稍稍
+
+而且比起龙骑士，scej的妖精战士，荒野兵器估计还更有希望些
+

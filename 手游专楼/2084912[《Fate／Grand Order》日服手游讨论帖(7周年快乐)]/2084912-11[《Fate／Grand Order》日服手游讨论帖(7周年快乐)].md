@@ -864,3 +864,21 @@ YLS：你看看，我就说绿卡不能强<img src="https://static.saraba1st.com
 
 不知道狠狠注入的话会是胎生还是卵生<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gxliv  
+##### 15280#       发表于 2024-12-12 10:39
+
+我觉得这点bug应该早就修好了，就等叶良树回来开会，讨论补偿方案<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  琴酒  
+##### 15281#       发表于 2024-12-12 10:44
+
+现在续报变13点了
+
+不会今天开不了服吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

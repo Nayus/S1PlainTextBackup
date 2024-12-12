@@ -513,3 +513,11 @@ wiiu跟wii反而是最不像的，因为首次公开宣传根本没有几个本�
 
 我没说清楚 我的
 
+
+*****
+
+####  再买自检星剁手  
+##### 54#       发表于 2024-12-12 20:28
+
+纯掌机版能做到ns1大小吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

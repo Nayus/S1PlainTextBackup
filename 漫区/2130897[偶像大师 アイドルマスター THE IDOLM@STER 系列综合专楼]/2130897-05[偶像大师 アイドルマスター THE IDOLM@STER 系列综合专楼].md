@@ -1904,3 +1904,35 @@ TOWER RECORDS的聯動（線上店也有份）。
 
 兼职说是
 
+
+*****
+
+####  wfhtony  
+##### 6760#       发表于 2024-12-12 20:24
+
+ 本帖最后由 wfhtony 于 2024-12-12 20:27 编辑 
+
+漫畫（犬束傳）一卷的原創曲《かちドキ》：
+
+<img src="https://img.saraba1st.com/forum/202412/12/202452pp3c7c9xpc9cuz3q.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-12-12-20h23m36s835.png</strong> (992.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-12 20:24 上传
+
+意料之外的貴公子（
+
+三月實裝莉莉婭的SOLO2和相關角色。
+
+SOLO2《極光》：
+
+<img src="https://img.saraba1st.com/forum/202412/12/202721xzrf4uhdkhm1whfb.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-12-12-20h27m18s198.png</strong> (804.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-12 20:27 上传
+

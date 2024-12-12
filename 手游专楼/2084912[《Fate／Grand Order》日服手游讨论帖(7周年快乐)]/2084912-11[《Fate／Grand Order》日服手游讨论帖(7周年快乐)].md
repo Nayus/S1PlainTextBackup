@@ -914,3 +914,23 @@ YLS：你看看，我就说绿卡不能强<img src="https://static.saraba1st.com
 全服发石头，多领的不给，当然以yls那抠门不可能就是了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">大概补偿5石头吧，停服的补偿
 
+
+*****
+
+####  壳壳牛  
+##### 15285#       发表于 2024-12-12 11:07
+
+按照惯例就打发10石
+能复刻奇迹48小时吗<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+*****
+
+####  khxooo  
+##### 15286#       发表于 2024-12-12 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66903438&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2024-12-12 11:02</a>
+大概补偿5石头吧，停服的补偿</blockquote>
+估计能给上限18石头吧，毕竟活动，还是无限池，18石头10个金苹果的上限还是能达到的。
+

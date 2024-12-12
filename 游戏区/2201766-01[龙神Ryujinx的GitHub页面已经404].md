@@ -2696,3 +2696,14 @@ sw更是正版买来就进游戏建个档就关机了，现在除了Splatoon这�
 这种行为叫垄断吗</blockquote>
 英伟达被中美欧同时反垄断调查，黄仁勋真是冤死了
 
+
+*****
+
+####  罐子  
+##### 236#       发表于 2024-12-12 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66377469&amp;ptid=2201766" target="_blank">慕容断月 发表于 2024-10-5 02:46</a>
+
+除非配置不够，否则着色器编译后再去编译的地方一般都不可能卡，这是技术上就不可能的事情（重装了显卡驱 ...</blockquote>
+搭车求个XBDE的高清60帧mod补丁<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 
+

@@ -1990,3 +1990,20 @@ crychic的问题在于，crychic只有一把吉他，没有什么节奏和主音
 
 其实我在乎这个是想看吉他组的相关剧情，希望在这个吉他分工上做点文章<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 3137#       发表于 2024-12-12 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66906117&amp;ptid=2208921" target="_blank">十块钱论坛 发表于 2024-12-12 16:24</a>
+
+是的那是rif，一直重复了整个主歌段，只是开头那句带人工泛音，希望渡濑小姐加油
+
+空の五線譜を書き換えれ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">渡瀬小姐的挑战增加了
+
+空の五線譜を書き換えれば这句只能等清晰音源了，我觉得像小提琴吉他合奏（电提琴？），具体是什么东西真的听不出来
+
+真能在吉他分工上加强描写确实是一件大好事，这么有意思的地方希望不要浪费了
+

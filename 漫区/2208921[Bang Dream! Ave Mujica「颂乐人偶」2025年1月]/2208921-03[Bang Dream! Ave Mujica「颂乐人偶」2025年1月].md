@@ -2284,3 +2284,36 @@ MEM对应的是萝 Lisa
 
 主播会不会联动第一集暗示自己是母鸡卡成员呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 3165#       发表于 2024-12-13 01:16
+
+祥子人物卡更新
+
+<img src="https://img.saraba1st.com/forum/202412/13/011606hhhqa559a9wxwhyy.jpg" referrerpolicy="no-referrer">
+
+<strong>GeGwgQSakAAov1V.jpg</strong> (235.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-13 01:16 上传
+
+*****
+
+####  NODY  
+##### 3166#       发表于 2024-12-13 01:18
+
+日文介绍用的是令嬢（千金/大小姐），英文直接用heir（继承人）了吗
+
+
+*****
+
+####  帕林马哲理  
+##### 3167#       发表于 2024-12-13 01:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66909593&amp;ptid=2208921" target="_blank">NODY 发表于 2024-12-12 18:18</a>
+日文介绍用的是令嬢（千金/大小姐），英文直接用heir（继承人）了吗</blockquote>
+如果这没歧义，那直接剧透了啊。我记得目前没说过祥子在丰川家具体是什么地位吧。
+

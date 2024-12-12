@@ -1622,3 +1622,28 @@ https://p.sda1.dev/
 newtype不会是临时工剧透睦破除心魔后解锁闪闪吉他了吧<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
 母鸡卡确实需要每个人都有负责唱词的曲子了 该来点多样性了
 
+
+*****
+
+####  御幸一也  
+##### 3105#       发表于 2024-12-12 09:30
+
+<img src="https://p.sda1.dev/20/3e3fcd9aa5ed34604a663df794c688b3/FABF1901-3801-43CE-87EE-17D405A5D4A1.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/20/85cf99ef0abb7ed1130fbd0f2a9d650d/9b89a490-c721-4167-8279-d54fc229f825.jpg" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">補個圖
+
+
+*****
+
+####  星天观测  
+##### 3106#       发表于 2024-12-12 09:32
+
+ 本帖最后由 星天观测 于 2024-12-12 09:38 编辑 
+
+昨天的访谈我记得是说，以前一直是李子弹主音，但是以太和土如果让李子边弹边唱无法完全还原歌曲效果（大概是难度太高了）所以主音部分让节约负责
+
+不过土最开始的主音part其实是李子弹的，或许以后熟练度提升了土的主音会全让李子弹吧
+<img src="https://p.sda1.dev/20/f6986d352d170f9507a15a5dad98be3e/TNT_756OEV2RLW83U50EPC7.png" referrerpolicy="no-referrer">
+

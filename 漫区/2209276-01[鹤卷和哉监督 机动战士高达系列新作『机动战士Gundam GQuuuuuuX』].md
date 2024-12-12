@@ -14393,3 +14393,16 @@ GQX制作水平是毫无疑问的强，还搞了UCif，内部肯定比一眼便�
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  王留美  
+##### 1365#       发表于 2024-12-12 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66898119&amp;ptid=2209276" target="_blank">刺客ares 发表于 2024-12-11 16:52</a>
+ 提到红发大女主，那我只能说希望这次的女主主观能动性强一点，起码要有个贯彻始终的目标，别又被外人当手推 ...</blockquote>
+UC(0096)也是吧
+回过头说鸡神不也是？鸟不也是？
+
+新世纪除了SD和Build系之外怕不是只有敢达脑的刹那和通通歼灭的福皇算符合你的条件
+

@@ -1647,3 +1647,25 @@ bug还在继续 官方也在鼓励人用bug
 
 这波操作我还真是第1次见。。
 
+
+*****
+
+####  Jamaisvu  
+##### 15363#       发表于 2024-12-12 20:05
+
+<img src="https://img.saraba1st.com/forum/202412/12/200514exfhgddddehgfxt1.png" referrerpolicy="no-referrer">
+
+<strong>d750910387630429ffb001678af696f4.png</strong> (64.36 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-12 20:05 上传
+
+*****
+
+####  風卷豹  
+##### 15364#       发表于 2024-12-12 20:06
+
+猜到了回溯不了材料，没猜到扣不了负数和还能领。你说不给全服补石怕影响新年流水还有点考虑，扣到负数既能逼氪新年又能稍微降火社区的措施都做不到不就纯纯fw<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

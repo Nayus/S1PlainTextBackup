@@ -500,3 +500,16 @@ wiiu跟wii反而是最不像的，因为首次公开宣传根本没有几个本�
 居然比SD还要大一圈，这下是不是要锻炼臂力了</blockquote>
 怎么看出来比sd大一圈的
 
+
+*****
+
+####  zzy516232108  
+##### 53#       发表于 2024-12-12 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66907823&amp;ptid=2210275" target="_blank">阿斯蓝 发表于 2024-12-12 19:45</a>
+
+怎么看出来比sd大一圈的</blockquote>
+屏幕好像大一圈（
+
+我没说清楚 我的
+

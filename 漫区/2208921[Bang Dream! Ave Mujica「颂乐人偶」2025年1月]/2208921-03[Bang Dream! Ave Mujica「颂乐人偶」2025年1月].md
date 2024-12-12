@@ -2203,3 +2203,35 @@ wsd愿意卖的话 肯定有
 
 我滴贵贵<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑夜落叶秋天  
+##### 3157#       发表于 2024-12-12 22:33
+
+这企划比起猜是谁 
+
+还不如赌有没有带面具
+
+*****
+
+####  前方暴雨预警  
+##### 3158#       发表于 2024-12-12 22:35
+
+26号让喵梦投稿怕不是打算复刻第一集里爱音说的喵梦在自己的频道暗示了身份？刚好能跟动画连起来。
+
+*****
+
+####  akiomn  
+##### 3159#       发表于 2024-12-12 22:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">纯路人，请问主播是日本九州熊本县的祐天寺若麦小姐吗
+
+<img src="https://img.saraba1st.com/forum/202412/12/223605f70qykpdksed6sd7.png" referrerpolicy="no-referrer">
+
+<strong>C3553D42-143E-40A7-9673-E92B58A4A780.png</strong> (30.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-12 22:36 上传
+

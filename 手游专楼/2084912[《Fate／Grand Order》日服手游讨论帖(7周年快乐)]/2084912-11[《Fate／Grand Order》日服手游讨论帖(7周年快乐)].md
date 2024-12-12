@@ -1922,3 +1922,16 @@ FGO有做到無料石負數這參數嗎?它有這技術能力嗎?
 跟直接说你滚吧也没啥区别
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 15387#       发表于 2024-12-12 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66908883&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-12-12 22:27</a>
+
+你游的数据库其实挺靠谱的，各种计数补偿没出过什么幺蛾子
+
+要扣到负数完全做得到，无非就是愿不愿意拉下脸 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">现在和在说老实人你滚吧也没有什么大区别
+

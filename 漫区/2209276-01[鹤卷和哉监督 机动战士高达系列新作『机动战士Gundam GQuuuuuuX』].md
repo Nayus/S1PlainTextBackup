@@ -14592,3 +14592,14 @@ UC0080
 
 2024-12-12 19:33 上传
 
+
+*****
+
+####  AEnemy  
+##### 1381#       发表于 2024-12-12 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66907668&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2024-12-12 19:20</a>
+
+说起来现在的gquuuuuux有没有可能和种自的飞升自由一样纯纯垫子？真正会大放异彩的是强化过后冠以高达之名 ...</blockquote>
+也有可能是个废案，换了个头改成现在这样<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

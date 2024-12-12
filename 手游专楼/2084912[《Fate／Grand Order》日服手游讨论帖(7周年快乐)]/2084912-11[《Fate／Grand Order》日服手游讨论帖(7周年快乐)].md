@@ -942,3 +942,11 @@ YLS：你看看，我就说绿卡不能强<img src="https://static.saraba1st.com
 
 关键是已经拿到石头还抽卡了的怎么处理吧，之前美服怎么弄的？
 
+
+*****
+
+####  yangun22  
+##### 15288#       发表于 2024-12-12 12:10
+
+国服能扣石头扣到负的话日服应该一样能扣吧，看起来还有重复领了几次的人真要补齐估计送不起<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

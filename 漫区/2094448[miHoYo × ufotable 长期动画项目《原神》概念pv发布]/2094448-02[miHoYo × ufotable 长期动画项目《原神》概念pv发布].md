@@ -99,3 +99,27 @@
 所有当时为什么要选飞碟社</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">哪位高管喜欢吧，程度不够深的二刺猿，只知道我大FATE大鬼灭牛逼，飞碟桌特效酷炫，就爱这套也很正常，哪懂什么工期之类的门门道道的，我就要飞碟桌
 
+
+*****
+
+####  激励哥.丘比  
+##### 1538#       发表于 2024-12-12 16:37
+
+在热度最高的时候不出来 这会游戏都快完了还没弄好 真指望靠这个吸引新人入坑啊
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+
+*****
+
+####  月夜凝雪  
+##### 1539#       发表于 2024-12-12 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66906286&amp;ptid=2094448" target="_blank">激励哥.丘比 发表于 2024-12-12 16:37</a>
+在热度最高的时候不出来 这会游戏都快完了还没弄好 真指望靠这个吸引新人入坑啊
+
+—— 来自 鹅球 v3.0.86-a ...</blockquote>
+反正喊完了都喊四年了
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

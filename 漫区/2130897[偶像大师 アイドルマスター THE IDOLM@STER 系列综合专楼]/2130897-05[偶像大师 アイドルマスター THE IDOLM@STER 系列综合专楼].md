@@ -1759,3 +1759,13 @@ sena这首生日曲风味真的足，太搭了
 
 这回是真苍系了吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  殿珣  
+##### 6754#       发表于 2024-12-12 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66904990&amp;ptid=2130897" target="_blank">-Vanitas- 发表于 2024-12-12 14:08</a>
+是吧，GR漫画有个剪影</blockquote>
+右边的明明是箱崎星梨花<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

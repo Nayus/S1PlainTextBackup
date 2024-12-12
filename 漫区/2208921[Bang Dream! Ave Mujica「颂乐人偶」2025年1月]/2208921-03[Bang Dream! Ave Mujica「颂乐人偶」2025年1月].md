@@ -1973,3 +1973,20 @@ Verse2空の五線譜を書き換えれば这句是有吉他在主音吧
 
 crychic的问题在于，crychic只有一把吉他，没有什么节奏和主音担任位的区分，而且其实主音乐器应该是key的样子
 
+
+*****
+
+####  十块钱论坛  
+##### 3136#       发表于 2024-12-12 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66905977&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-12 16:11</a>
+
+动作演出绝对可以信任，这个是当然的
+
+感觉漏油懂行，我刚好来问一下，前奏睦的solo是riff吗，木耳听不出来 ...</blockquote>
+是的那是rif，一直重复了整个主歌段，只是开头那句带人工泛音，希望渡濑小姐加油<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+空の五線譜を書き換えれば这句，我找了几个源听都挺糊，得等音源出来才能确定，但我觉得那不像吉他的音色（
+
+其实我在乎这个是想看吉他组的相关剧情，希望在这个吉他分工上做点文章<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

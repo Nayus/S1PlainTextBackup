@@ -631,3 +631,16 @@ TLOU1 PS5版比起PS4版算是大重制了，tlou2的ps5版才是无意义重置
 
 — from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  farAway  
+##### 63#       发表于 2024-12-12 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66903183&amp;ptid=2200503" target="_blank">亚瑟摩根 发表于 2024-12-12 10:42</a>
+
+你也太···
+
+龙骑士都啥时候了</blockquote>
+重置就是应该先从老的开始啊<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+

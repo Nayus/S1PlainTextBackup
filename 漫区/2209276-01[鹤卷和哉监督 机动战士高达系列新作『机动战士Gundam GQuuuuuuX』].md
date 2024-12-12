@@ -14629,3 +14629,13 @@ UC0080
 问题就在于三明作为武力值点满的人，他自己发现要补的也就是文化方面的缺点，在二期的时候并没有很好的体 ...</blockquote>
 以及，有没有可能阿赖耶识增加的是驾驶员的空间感知，而不是直接增加战斗力？完全体艾因都只不过装了三根，三日月快成年了还要再给自己装一根的意义在于？
 
+
+*****
+
+####  novyDC  
+##### 1384#       发表于 2024-12-13 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66907574&amp;ptid=2209276" target="_blank">wasssf 发表于 2024-12-12 19:07:45</a></blockquote>这是ta里的吧
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

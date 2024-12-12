@@ -1237,3 +1237,117 @@ yls这辈子有了
 1单到3单+的样子，妈的昨晚下早了，感觉亏麻了，心都在滴血</blockquote>
 天赋树材料可是无价的！ 几十单这么了！
 
+
+*****
+
+####  都谷捻柏  
+##### 15323#       发表于 2024-12-12 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66907261&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-12 18:27</a>
+天赋树材料可是无价的！ 几十单这么了！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我只要石头就可以了，お願い
+
+*****
+
+####  岸浪白野  
+##### 15324#       发表于 2024-12-12 18:31
+
+触发了bug不敢用和没触发的输麻了，这下要炎上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  任天索尼子  
+##### 15325#       发表于 2024-12-12 18:32
+
+我昨天好像根本没触发
+
+
+*****
+
+####  alucardcz  
+##### 15326#       发表于 2024-12-12 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66907277&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2024-12-12 18:30</a>
+
+我只要石头就可以了，お願い</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没事 作为没有触发bug的萌新 我们现在都是人下人
+
+*****
+
+####  qixinno2  
+##### 15327#       发表于 2024-12-12 18:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">感觉血亏一个亿
+
+*****
+
+####  cckuku  
+##### 15328#       发表于 2024-12-12 18:35
+
+我超那些任务都送啥道具来着？不会还有金芙芙吧？
+
+*****
+
+####  reidel  
+##### 15329#       发表于 2024-12-12 18:35
+
+X已经冲到第一了
+
+*****
+
+####  alucardcz  
+##### 15330#       发表于 2024-12-12 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66907321&amp;ptid=2084912" target="_blank">cckuku 发表于 2024-12-12 18:35</a>
+
+我超那些任务都送啥道具来着？不会还有金芙芙吧？</blockquote>
+・聖晶石
+
+・聖杯
+
+・聖杯の雫
+
+・伝承結晶
+
+・カルデアの夢火
+
+・レアプリズム
+
+・マナプリズム
+
+・巡霊の葉
+
+・明星のトーチ
+
+・新星のトーチ
+
+・星光の砂
+
+・獣の足跡
+
+・QP
+
+・フレンドポイント
+
+・英霊結晶･流星のフォウくんALL★4(HP)
+
+・英霊結晶･日輪のフォウくんALL★4(ATK)
+
+・英霊結晶･星のフォウくんALL★3(HP)
+
+・英霊結晶･太陽のフォウくんALL★3(ATK)
+
+・叡智の業火ALL★5(SSR)
+
+・各種モニュメント
+
+・各種ピース
+
+・各種秘石
+
+・各種魔石
+
+・各種輝石
+
+都有 只要你拿了用掉 就没有任何代价
+

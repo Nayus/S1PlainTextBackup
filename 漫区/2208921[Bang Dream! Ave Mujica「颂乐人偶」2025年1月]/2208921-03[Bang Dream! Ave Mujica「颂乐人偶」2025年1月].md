@@ -2015,3 +2015,14 @@ crychic的问题在于，crychic只有一把吉他，没有什么节奏和主音
 
 团歌那句泛音我至今还没在live里听到过，killkiss里……节约任重道远吧
 
+
+*****
+
+####  金钱与民主  
+##### 3139#       发表于 2024-12-12 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66901507&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-12 01:35</a>
+
+明明是大人生日却在儿童节的喵梦</blockquote>
+虽然但是日本人是不过国际儿童节的......
+

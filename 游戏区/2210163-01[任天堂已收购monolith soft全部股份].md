@@ -410,3 +410,11 @@ GQGG新作都立项了在招人，至少一时半会是不会退休的
 
 没了XB搞不好以后每世代多出两部3D塞，这还不爽死？这点账还算不明白？光NS上1DE,2,3XDE耽搁了多少任天堂的时间资源？少赚了多少钱？
 
+
+*****
+
+####  无辄辄  
+##### 43#       发表于 2024-12-12 20:49
+
+熟悉的几个ID，逮着mono和xb黑，高桥可能杀了他们马吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

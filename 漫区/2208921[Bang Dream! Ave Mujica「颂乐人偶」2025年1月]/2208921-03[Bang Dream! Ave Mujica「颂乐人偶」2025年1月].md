@@ -1953,3 +1953,23 @@ Verse1是初华主，但Verse2看 ...</blockquote>
 
 杂志的情况，可能是把睦在CRYCHIC是主吉他的介绍和ave给搞串了，疑似newtype草台（
 
+
+*****
+
+####  Aendst  
+##### 3135#       发表于 2024-12-12 16:11
+
+ 本帖最后由 Aendst 于 2024-12-12 16:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66905860&amp;ptid=2208921" target="_blank">十块钱论坛 发表于 2024-12-12 15:59</a>
+
+不是在说吉他的分工吗，和主音乐器没有关系吧
+
+如果动画的动作演出能信任的话那一直都是初华主音吉他吧， ...</blockquote>
+动作演出绝对可以信任，这个是当然的
+
+感觉漏油懂行，我刚好来问一下，前奏睦的solo是riff吗，木耳听不出来，感觉和Verse1的riff很像但是又不太一样，所以我觉得不是riff
+
+Verse2空の五線譜を書き換えれば这句是有吉他在主音吧
+
+crychic的问题在于，crychic只有一把吉他，没有什么节奏和主音担任位的区分，而且其实主音乐器应该是key的样子
+

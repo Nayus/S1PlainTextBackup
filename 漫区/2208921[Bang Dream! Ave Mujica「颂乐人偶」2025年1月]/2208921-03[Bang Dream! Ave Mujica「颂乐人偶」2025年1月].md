@@ -2374,3 +2374,14 @@ MEM对应的是萝 Lisa
 
 那就真致敬水魔了，本来死活不肯对家族示弱。但为了自己的四个新郎主动找老登低头是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novalli  
+##### 3172#       发表于 2024-12-13 07:01
+
+这个“继承人”没必要太敏感吧？祥子毕竟还是未成年人，应该没有意识也很难事实上断绝法定继承关系吧？这只是一个事实描述罢了。
+更何况继承意味着老登死了，还必然会牵扯分家产的事，怎么写都不讨好。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.94-alpha
+

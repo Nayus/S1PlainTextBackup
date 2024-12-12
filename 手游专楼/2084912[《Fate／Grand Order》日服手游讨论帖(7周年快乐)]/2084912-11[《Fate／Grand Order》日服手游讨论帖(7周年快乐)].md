@@ -1989,3 +1989,13 @@ FGO有做到無料石負數這參數嗎?它有這技術能力嗎?
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  希望之花  
+##### 15393#       发表于 2024-12-13 07:01
+
+送的30石头屁都没出，要求加大力度炎上送2000石头<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+你日街头不是也有很多扛着意义不明标语的卡车吗，建议去螺旋社门口摆阵法
+

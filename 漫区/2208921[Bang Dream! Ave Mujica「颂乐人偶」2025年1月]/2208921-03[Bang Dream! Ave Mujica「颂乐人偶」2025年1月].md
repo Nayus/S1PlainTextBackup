@@ -1829,3 +1829,13 @@ newtype毕竟是有人负责校对的大手日文杂志
 
 初华和睦都有弹主音的动画演出，就当根据曲目切换挺好的
 
+
+*****
+
+####  Aendst  
+##### 3124#       发表于 2024-12-12 11:58
+
+会有吧，这次特地给了这么多内容去聊广播
+
+总不能是一个永远没有后续的饼<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

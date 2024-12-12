@@ -14542,3 +14542,30 @@ UC0080
 
 2024-12-12 19:07 上传
 
+
+*****
+
+####  无念  
+##### 1377#       发表于 2024-12-12 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66907574&amp;ptid=2209276" target="_blank">wasssf 发表于 2024-12-12 19:07</a></blockquote>
+这个大裙甲+木星开发，懂了你是猎犬
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+
+*****
+
+####  RE㐅ia  
+##### 1378#       发表于 2024-12-12 19:20
+
+说起来现在的gquuuuuux有没有可能和种自的飞升自由一样纯纯垫子？真正会大放异彩的是强化过后冠以高达之名的gquuuuuux gundam这样的剧情。泄漏图里正好有个看着很顺眼的造型。
+
+<img src="https://img.saraba1st.com/forum/202412/12/192018j432l2a2sl2e0t20.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>C7550A61-23CA-42FE-819D-E4BC1D743EE5.jpeg</strong> (67.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-12 19:20 上传
+

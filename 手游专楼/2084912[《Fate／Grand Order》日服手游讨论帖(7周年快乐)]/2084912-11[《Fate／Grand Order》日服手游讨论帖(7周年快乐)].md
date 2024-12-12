@@ -1604,3 +1604,13 @@ X已经冲到第一了</blockquote>
 
 叶选之人才能拿到的圣诞礼物，是我人下人不配了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  サイトヒメア  
+##### 15358#       发表于 2024-12-12 19:15
+
+是我认识的废狗没错了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

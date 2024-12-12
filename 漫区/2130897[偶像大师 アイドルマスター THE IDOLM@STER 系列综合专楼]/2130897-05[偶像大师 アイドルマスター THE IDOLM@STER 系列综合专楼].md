@@ -1779,3 +1779,45 @@ sena这首生日曲风味真的足，太搭了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  wfhtony  
+##### 6756#       发表于 2024-12-12 19:41
+
+ 本帖最后由 wfhtony 于 2024-12-12 19:43 编辑 
+
+<img src="https://img.saraba1st.com/forum/202412/12/194116tvsnzaynsnxsay3m.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-12-12-19h33m50s331.png</strong> (855.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-12 19:41 上传
+
+<img src="https://img.saraba1st.com/forum/202412/12/194117hcgrmzkgmllgvakl.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-12-12-19h37m28s101.png</strong> (973.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-12 19:41 上传
+
+<img src="https://img.saraba1st.com/forum/202412/12/194117d82jwzu6o8j7avz7.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-12-12-19h39m23s100.png</strong> (1.06 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-12 19:41 上传
+
+<img src="https://img.saraba1st.com/forum/202412/12/194136sx85r0e7qh18a5zg.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-12-12-19h41m28s497.png</strong> (1.01 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-12 19:41 上传
+
+芹澤優 在這邊也是配「強者」麼...
+

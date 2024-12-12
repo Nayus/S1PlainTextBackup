@@ -610,3 +610,14 @@ PS1的龙骑士传说怕不是往后稍稍
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  葵  
+##### 61#       发表于 2024-12-12 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66280862&amp;ptid=2200503" target="_blank">吃鸡南小鸟 发表于 2024-9-23 13:32</a>
+
+TLOU1 PS5版比起PS4版算是大重制了，tlou2的ps5版才是无意义重置</blockquote>
+2代并不是重置，就4K高清化了一下，对应了PS5手柄的震动反馈
+

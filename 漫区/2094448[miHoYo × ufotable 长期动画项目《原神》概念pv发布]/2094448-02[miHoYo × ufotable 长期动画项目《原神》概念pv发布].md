@@ -61,3 +61,30 @@
 
 所有当时为什么要选飞碟社<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dqjsss  
+##### 1534#       发表于 2024-12-12 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66905420&amp;ptid=2094448" target="_blank">光MIKAN 发表于 2024-12-12 15:04</a>
+
+这嘛意思，制作公司换成东映了？</blockquote>
+应该是飞碟社人手不够，从东映拉点人过来
+
+*****
+
+####  dqjsss  
+##### 1535#       发表于 2024-12-12 15:54
+
+差不多是有部分要外包给东映的人来做了
+
+*****
+
+####  kykawaiii  
+##### 1536#       发表于 2024-12-12 15:54
+
+原神也是不好，刚好碰到飞碟的最重要的两个企划<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

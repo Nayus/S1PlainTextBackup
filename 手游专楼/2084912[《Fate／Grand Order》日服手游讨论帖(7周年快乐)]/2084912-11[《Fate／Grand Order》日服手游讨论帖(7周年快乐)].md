@@ -1828,3 +1828,34 @@ bug还在继续 官方也在鼓励人用bug
 
 石头继续减到负，材料道具要么一个个改要么全补齐咯，还能有啥办法
 
+
+*****
+
+####  都谷捻柏  
+##### 15379#       发表于 2024-12-12 21:42
+
+不想回档就多发石头呗，发的多玩家自然当作无事发生，但是明显官方也不想发
+
+*****
+
+####  alucardcz  
+##### 15380#       发表于 2024-12-12 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66908479&amp;ptid=2084912" target="_blank">eilot 发表于 2024-12-12 21:26</a>
+
+現在回檔也太遲了也不公平
+
+現在問題是那些用了BUG石又抽到角色應該如何懲罰</blockquote>
+用bug 被处罚 天经地义不是吗
+
+石头扣到负 人物也回收都不算过分
+
+*****
+
+####  alucardcz  
+##### 15381#       发表于 2024-12-12 21:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">说白了 最简单无脑的操作就是直接回档 全服补偿石头+1个当前up的新5星  这样就算是回档时候真金白银课了的也算有点安慰   毕竟不可能做到所有人都不受伤 要怪就怪为什么会有这种bug
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">当然现在都开服了 已经不可能了
+

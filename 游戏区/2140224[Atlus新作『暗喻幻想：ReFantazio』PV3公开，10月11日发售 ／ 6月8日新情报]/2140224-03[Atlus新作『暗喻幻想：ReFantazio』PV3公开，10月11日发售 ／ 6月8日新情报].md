@@ -121,3 +121,13 @@ P3R和SMT5V两个月后还能买到首发盘，暗喻情况应该差不多<img s
 
 《暗喻幻想》荣获GameSpot年度游戏: 值得玩家深思的杰作<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RStocking  
+##### 3619#       发表于 2024-12-12 11:26
+
+GameSpot 2024年度游戏：《暗喻幻想：ReFantazio》 ​​​
+
+评语：GameSpot认为本作以幻想风格对“人”进行了深度的探讨。游戏别具一格的音乐和美术、优秀的战斗设计、深邃的剧情和角色将这部复古与流行性并存的RPG推向顶峰。
+

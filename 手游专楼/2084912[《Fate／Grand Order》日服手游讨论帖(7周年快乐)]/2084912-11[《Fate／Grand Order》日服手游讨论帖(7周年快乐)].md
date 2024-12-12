@@ -1614,3 +1614,11 @@ X已经冲到第一了</blockquote>
 
 —— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  quanlix  
+##### 15359#       发表于 2024-12-12 19:26
+
+酸啊，怎么我触发不了这bug
+

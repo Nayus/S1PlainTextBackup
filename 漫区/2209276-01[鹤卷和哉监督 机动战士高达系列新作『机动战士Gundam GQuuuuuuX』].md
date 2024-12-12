@@ -14569,3 +14569,26 @@ UC0080
 
 2024-12-12 19:20 上传
 
+
+*****
+
+####  Sliurus  
+##### 1379#       发表于 2024-12-12 19:28
+
+我支持6个U是被遮起来的Gundam，红蓝黄白配色怎么看都是高达型，可能是新高达的原型机初号机之类的，为了不引起关注所以被删改了编号
+
+*****
+
+####  RE㐅ia  
+##### 1380#       发表于 2024-12-12 19:33
+
+好！
+
+<img src="https://img.saraba1st.com/forum/202412/12/193329z7yhiyama7a9ioxi.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>88DA44B9-39F8-4CB4-8876-5DAA924BEAFE.jpeg</strong> (344.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-12 19:33 上传
+

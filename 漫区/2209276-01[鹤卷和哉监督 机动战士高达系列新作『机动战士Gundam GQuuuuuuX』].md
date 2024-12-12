@@ -14663,3 +14663,20 @@ UC0080
 高达行动力最强的是W五小强了吧，办事太有效率被托帅算计</blockquote>
 五飞那里最明显，已经是MS伸个手指就能碾死托帅的死局了，结果他拿把军刀出来，你就真从驾驶座后面抽刀跳下去对砍啊？
 
+
+*****
+
+####  zpl123  
+##### 1387#       发表于 2024-12-13 07:26
+
+主视觉图
+
+Screenshot_20241213_072629_com.sina.weibo.jpg
+(864.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-13 07:26 上传
+
+<img src="https://img.saraba1st.com/forum/202412/13/072636yk8eejzrpteirif3.jpg" referrerpolicy="no-referrer">
+

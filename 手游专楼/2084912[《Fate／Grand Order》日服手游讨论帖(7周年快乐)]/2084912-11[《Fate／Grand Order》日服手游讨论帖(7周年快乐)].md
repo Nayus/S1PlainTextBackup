@@ -1999,3 +1999,11 @@ FGO有做到無料石負數這參數嗎?它有這技術能力嗎?
 
 你日街头不是也有很多扛着意义不明标语的卡车吗，建议去螺旋社门口摆阵法
 
+
+*****
+
+####  khxooo  
+##### 15394#       发表于 2024-12-13 07:26
+
+歪皇女，4宝了<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+

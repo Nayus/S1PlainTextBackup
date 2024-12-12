@@ -2243,3 +2243,44 @@ wsd愿意卖的话 肯定有
 
 肯定摘面具啊，这个频道是喵梦频道，不是mujica频道，剪影也是喵梦自己的衣服
 
+
+*****
+
+####  金钱与民主  
+##### 3161#       发表于 2024-12-12 22:59
+
+突然想到BanG联动推子要晚点就好了，不然就可以是MEM×喵梦了。话说MEM联动的是谁来着？
+
+
+*****
+
+####  前方暴雨预警  
+##### 3162#       发表于 2024-12-12 23:02
+
+ 本帖最后由 前方暴雨预警 于 2024-12-12 23:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66909079&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2024-12-12 22:59</a>
+
+突然想到BanG联动推子要晚点就好了，不然就可以是MEM×喵梦了。话说MEM联动的是谁来着？ ...</blockquote>
+MEM对应的是萝 Lisa
+
+但在推子结局烂完之前结束联动也算好事一桩
+
+*****
+
+####  金钱与民主  
+##### 3163#       发表于 2024-12-12 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66909098&amp;ptid=2208921" target="_blank">前方暴雨预警 发表于 2024-12-12 23:02</a>
+
+MEM对应的是萝 Lisa
+
+但在推子结局烂完之前结束联动也算好事一桩</blockquote>
+推子漫画结局烂归烂，联动从热度而言邦算受益者了......话说这联动的角色感觉咋都对不上<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ellisnadie  
+##### 3164#       发表于 2024-12-12 23:05
+
+主播会不会联动第一集暗示自己是母鸡卡成员呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

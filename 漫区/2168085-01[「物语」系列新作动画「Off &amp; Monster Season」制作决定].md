@@ -17,3 +17,11 @@
 
 愚物语的op跟过年一样<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oi99o  
+##### 1002#       发表于 2024-12-12 22:59
+
+【【中日字幕/OP完整版】愚物语 OP「icecream°」/ 阿良々木月火(CV.井口裕香)、斧乃木余接(CV.早見沙織)】 [https://www.bilibili.com/video/BV1oEqSYeEVn](https://www.bilibili.com/video/BV1oEqSYeEVn)
+

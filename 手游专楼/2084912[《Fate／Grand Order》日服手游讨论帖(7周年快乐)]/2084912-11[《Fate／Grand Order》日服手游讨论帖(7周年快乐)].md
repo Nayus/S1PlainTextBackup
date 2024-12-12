@@ -1963,3 +1963,11 @@ FGO有做到無料石負數這參數嗎?它有這技術能力嗎?
 
 到现在都不关服，那看起来就是不想回档咯<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">新公告也只说材料不提石头的事，真是好完了。
 
+
+*****
+
+####  alucardcz  
+##### 15390#       发表于 2024-12-12 22:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">现在这个时间点已经没有任何回档的可能了
+

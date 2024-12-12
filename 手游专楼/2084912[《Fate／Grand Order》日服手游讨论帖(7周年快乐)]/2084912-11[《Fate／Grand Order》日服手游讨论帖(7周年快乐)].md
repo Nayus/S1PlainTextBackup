@@ -1892,3 +1892,33 @@ bug还在继续 官方也在鼓励人用bug
 
 扣到负数得了呗，还是说对面有什么条例禁止这种操作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 15385#       发表于 2024-12-12 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66908768&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2024-12-12 22:09</a>
+
+扣到负数得了呗，还是说对面有什么条例禁止这种操作</blockquote>
+如果不能回收抽到的角色，最簡單方法是直接扣到負數，待日常活動或登入慢慢補回
+
+問題是
+
+FGO有做到無料石負數這參數嗎?它有這技術能力嗎?
+
+
+*****
+
+####  exiaexa  
+##### 15386#       发表于 2024-12-12 22:27
+
+你游的数据库其实挺靠谱的
+
+要扣到负数完全做得到，无非就是愿不愿意拉下脸赶人
+
+毕竟薅得多直接薅个负几百上千
+
+跟直接说你滚吧也没啥区别
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

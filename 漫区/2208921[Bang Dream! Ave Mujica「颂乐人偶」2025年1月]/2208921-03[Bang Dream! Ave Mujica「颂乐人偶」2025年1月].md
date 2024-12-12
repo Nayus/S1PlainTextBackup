@@ -2051,3 +2051,28 @@ BanG Dream! Ave Mujica -manuscriptus- 1
 
 这漫画家是马甲吗 一点作品搜不到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 3142#       发表于 2024-12-12 21:18
+
+本次Ave Mujica 4th LIVE'Adventus'的直播，
+不包含动画片上映会及之后的部分会场限定内容。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">4th直播有可能声优摘面这部分内容不放进去？
+
+*****
+
+####  NODY  
+##### 3143#       发表于 2024-12-12 21:19
+
+别又是wsd自己内部人士吧，希望画得好点
+
+
+*****
+
+####  NODY  
+##### 3144#       发表于 2024-12-12 21:21
+
+估计有成员聊第一集感想的环节，姑且要防剧透所以和动画正片一样不能播
+

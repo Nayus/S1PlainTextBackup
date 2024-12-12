@@ -1630,3 +1630,20 @@ X已经冲到第一了</blockquote>
 
 好嫉妒啊，我都想重装一遍游戏看看能不能复现bug了...
 
+
+*****
+
+####  alucardcz  
+##### 15361#       发表于 2024-12-12 20:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">人家天选之人现在已经在抽第2波bug福利了。我们老实人 只能吃x
+
+*****
+
+####  alucardcz  
+##### 15362#       发表于 2024-12-12 20:02
+
+bug还在继续 官方也在鼓励人用bug
+
+这波操作我还真是第1次见。。
+

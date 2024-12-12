@@ -29,3 +29,12 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">重启系还是太卡手，中后期还是绝对混沌跟精灵机龙卷实际
 
+
+*****
+
+####  neptunehs  
+##### 152#       发表于 2024-12-12 08:22
+
+我是觉得早期的这些强制重启流 强制升级流 强制移动流的关卡特别难
+后面的反而简单
+

@@ -14466,3 +14466,15 @@ UC(0096)也是吧
 高达行动力最强的是W五小强了吧，办事太有效率被托帅算计</blockquote>
 肋骨断了还能继续给高达做维修，确实非常有行动力了
 
+
+*****
+
+####  无念  
+##### 1371#       发表于 2024-12-12 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66898278&amp;ptid=2209276" target="_blank">PascalLefèvre 发表于 2024-12-11 17:15</a>
+这种平时稀里糊涂，上机之后打鸡血大杀四方，下了机又稀里糊涂的人设到底是谁在喜欢，我寻思刹那也不这样啊 ...</blockquote>
+基神：我？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+

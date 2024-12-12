@@ -1560,3 +1560,65 @@ water不是初祥曲，包不卖的
 
 以及你邦的cp曲基本都有对唱，鸡想卖cp先把对唱整出来看看吧
 
+
+*****
+
+####  御幸一也  
+##### 3100#       发表于 2024-12-12 09:22
+
+這期newtype居然寫明了睦是主音吉他，但英文介紹那邊又說睦是節奏吉他，好怪。
+
+不過如果日文和英文有衝突，應該還是要以日文為主。而且這還是newtype的……
+
+<img src="https://img.saraba1st.com/forum/202412/12/091930vuddw0xscmggoev6.jpg" referrerpolicy="no-referrer">
+
+<strong>FABF1901-3801-43CE-87EE-17D405A5D4A1.jpg</strong> (1.76 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-12 09:19 上传
+
+聯繫昨天聲優訪談李子說的，可能ave是雙主音，互相都會負責一些吉他solo的形式嗎？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202412/12/091930ctzklcz91sls9klc.jpg" referrerpolicy="no-referrer">
+
+<strong>4bbc45fb-8da6-4b48-9933-7b8aa39f6325.jpg</strong> (23.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-12 09:19 上传
+
+*****
+
+####  御幸一也  
+##### 3101#       发表于 2024-12-12 09:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">為什麼S1的圖全裂了
+
+*****
+
+####  AveMujica  
+##### 3102#         楼主| 发表于 2024-12-12 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66902416&amp;ptid=2208921" target="_blank">御幸一也 发表于 2024-12-12 09:24</a>
+為什麼S1的圖全裂了</blockquote>
+暂时用这个图床吧
+https://p.sda1.dev/
+
+*****
+
+####  堀内爱里衣  
+##### 3103#       发表于 2024-12-12 09:27
+
+附件显示不正常的的原因，贴图建议暂时选择外联图床
+<img src="https://p.sda1.dev/20/12a0adf928820572a510132f7c662884/PixPin_2024-12-12_09-23-44.png" referrerpolicy="no-referrer">
+[https://weibo.com/5955106173/P4ovvqPeN](https://weibo.com/5955106173/P4ovvqPeN)
+
+*****
+
+####  skives10  
+##### 3104#       发表于 2024-12-12 09:27
+
+newtype不会是临时工剧透睦破除心魔后解锁闪闪吉他了吧<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+母鸡卡确实需要每个人都有负责唱词的曲子了 该来点多样性了
+

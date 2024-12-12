@@ -1867,3 +1867,28 @@ bug还在继续 官方也在鼓励人用bug
 
 没碰到，吗的这到底是个什么bug
 
+
+*****
+
+####  eilot  
+##### 15383#       发表于 2024-12-12 22:08
+
+ 本帖最后由 eilot 于 2024-12-12 22:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66908599&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-12 21:48</a>
+
+说白了 最简单无脑的操作就是直接回档 全服补偿石头+1个当前up的新5星  这样就算是回档时候真金白银课了的 ...</blockquote>
+所以在再次發現時不即時關服，操作真是太遲了
+
+又不是未試過維修完後重開後發現出事即時再關
+
+而且之前也在角色硬幣補償時，也是慢慢算出來，所以認真的話，停服24~48小時慢慢找是可以分出這段期間那些人是用正常石來抽，那些人是用BUG石來抽
+
+不過也真是見過另一隻手遊是直接回檔了3天前，之後也沒甚麼表示，就是炎上了一段時間後大家都當沒事發生
+
+*****
+
+####  DARKGRAY  
+##### 15384#       发表于 2024-12-12 22:09
+
+扣到负数得了呗，还是说对面有什么条例禁止这种操作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

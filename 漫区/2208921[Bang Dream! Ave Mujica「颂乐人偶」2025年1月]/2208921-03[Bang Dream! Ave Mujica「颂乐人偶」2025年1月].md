@@ -1874,3 +1874,13 @@ newtype毕竟是有人负责校对的大手日文杂志
 
 杂志是什么情况不太懂
 
+
+*****
+
+####  Aendst  
+##### 3128#       发表于 2024-12-12 14:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实真的要从乐理上讨论killkiss谁主音的话，主音的应该是虚空小提琴和弦乐组
+
+什么时候跟蝶对邦，让ayasa支援一下
+

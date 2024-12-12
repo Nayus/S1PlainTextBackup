@@ -1669,3 +1669,26 @@ bug还在继续 官方也在鼓励人用bug
 
 猜到了回溯不了材料，没猜到扣不了负数和还能领。你说不给全服补石怕影响新年流水还有点考虑，扣到负数既能逼氪新年又能稍微降火社区的措施都做不到不就纯纯fw<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 15365#       发表于 2024-12-12 20:14
+
+事已至此。只有回档一条路了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+当然这是可以把被动45当成玩家福利的运营。。。也许他们真以为这事就这样过去了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 15366#       发表于 2024-12-12 20:19
+
+<blockquote>alucardcz 发表于 2024-12-12 20:14
+事已至此。只有回档一条路了吧
+
+当然这是可以把被动45当成玩家福利的运营。。。也许他们真以为这事就这样过 ...</blockquote>
+就是炎上少了欠冲锋，被动切换和返从者币都是冲出来的，这次也不能惯着官方。
+
+要真这么糊弄过去，那这破游戏还真不如当云玩家——既不用当傻子还可以看乐子。
+

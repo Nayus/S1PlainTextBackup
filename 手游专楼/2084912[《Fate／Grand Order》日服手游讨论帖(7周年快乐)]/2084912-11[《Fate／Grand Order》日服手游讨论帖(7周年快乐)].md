@@ -1000,3 +1000,19 @@ YLS：你看看，我就说绿卡不能强<img src="https://static.saraba1st.com
 
 —— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  eilot  
+##### 15295#       发表于 2024-12-12 14:27
+
+遊戲內的公告還是未改，還是說1:20(未定)至~~~
+
+
+*****
+
+####  保罗嚇伯特  
+##### 15296#       发表于 2024-12-12 14:35
+
+还有这种bug的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

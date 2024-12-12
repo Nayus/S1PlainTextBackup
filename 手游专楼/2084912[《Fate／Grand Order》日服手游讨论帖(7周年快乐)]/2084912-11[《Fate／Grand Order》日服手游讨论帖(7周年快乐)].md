@@ -892,3 +892,25 @@ YLS：你看看，我就说绿卡不能强<img src="https://static.saraba1st.com
 
 現在就看會如何處理那些不停領石的玩家，是會將整個伺服器環境還原到指定時間狀態當無事發生，活動重新再打嗎?
 
+
+*****
+
+####  khxooo  
+##### 15283#       发表于 2024-12-12 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66903245&amp;ptid=2084912" target="_blank">eilot 发表于 2024-12-12 10:48</a>
+剛登入還未修好
+
+現在就看會如何處理那些不停領石的玩家，是會將整個伺服器環境還原到指定時間狀態當無事發 ...</blockquote>
+全服发石头，多领的不给<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  都谷捻柏  
+##### 15284#       发表于 2024-12-12 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66903367&amp;ptid=2084912" target="_blank">khxooo 发表于 2024-12-12 10:57</a>
+全服发石头，多领的不给，当然以yls那抠门不可能就是了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">大概补偿5石头吧，停服的补偿
+

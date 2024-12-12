@@ -39,3 +39,14 @@
 
 把一脸雀斑的方脸矮人大妈和黑人女法师模型都替换掉
 
+
+*****
+
+####  ralfli  
+##### 1249#       发表于 2024-12-12 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66902343&amp;ptid=2072996" target="_blank">刻路希 发表于 2024-12-12 09:17</a>
+
+买早了，EA和育碧的游戏真的是又不保值又无节操，说好的早买早享受呢？按照这个折扣力度，很快就像圣歌那样 ...</blockquote>
+按照这个力度马上就EAplay了
+

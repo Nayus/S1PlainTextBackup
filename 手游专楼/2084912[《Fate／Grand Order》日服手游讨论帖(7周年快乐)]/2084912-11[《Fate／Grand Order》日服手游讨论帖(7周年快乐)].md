@@ -843,3 +843,24 @@ YLS：你看看，我就说绿卡不能强<img src="https://static.saraba1st.com
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
 
+
+*****
+
+####  UNISONIA  
+##### 15278#       发表于 2024-12-12 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66902762&amp;ptid=2084912" target="_blank">quanlix 发表于 2024-12-12 10:02</a>
+
+看隔壁说美服之前出过类似bug，结果日服还能给复刻了</blockquote>
+美服那个是定量的，不能重复触发，而且能获取的道具范围和量比日服这次少的多
+
+
+*****
+
+####  麻花疼  
+##### 15279#       发表于 2024-12-12 10:34
+
+我宣布娄希就是我明年的新老婆了，她有一种强度和画风的美。
+
+不知道狠狠注入的话会是胎生还是卵生<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

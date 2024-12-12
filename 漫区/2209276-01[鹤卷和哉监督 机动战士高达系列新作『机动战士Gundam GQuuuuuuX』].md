@@ -14652,3 +14652,14 @@ UC0080
   -- 来自 能手机投票的 Stage1官方 Android客户端</blockquote>
 是倒a的，我觉得叠字没啥好解读的
 
+
+*****
+
+####  Steel.Haze  
+##### 1386#       发表于 2024-12-13 02:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66904627&amp;ptid=2209276" target="_blank">Sliurus 发表于 2024-12-12 13:24</a>
+
+高达行动力最强的是W五小强了吧，办事太有效率被托帅算计</blockquote>
+五飞那里最明显，已经是MS伸个手指就能碾死托帅的死局了，结果他拿把军刀出来，你就真从驾驶座后面抽刀跳下去对砍啊？
+

@@ -2076,3 +2076,61 @@ BanG Dream! Ave Mujica -manuscriptus- 1
 
 估计有成员聊第一集感想的环节，姑且要防剧透所以和动画正片一样不能播
 
+
+*****
+
+####  NODY  
+##### 3145#       发表于 2024-12-12 21:56
+
+喵梦开账号了
+
+<img src="https://img.saraba1st.com/forum/202412/12/215640lofgmhlfb4llkxlg.png" referrerpolicy="no-referrer">
+
+<strong>58bb27972cf909371caac4415c2ea958.png</strong> (117.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-12 21:56 上传
+
+*****
+
+####  SakuraのOrigami  
+##### 3146#       发表于 2024-12-12 21:56
+
+草
+
+<img src="https://img.saraba1st.com/forum/202412/12/215651wyudy36dju62432v.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20241212215531.png</strong> (378.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-12 21:56 上传
+
+*****
+
+####  akiomn  
+##### 3147#       发表于 2024-12-12 21:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爱猫tv来了
+
+*****
+
+####  skives10  
+##### 3148#       发表于 2024-12-12 21:58
+
+真是神秘的剪影呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 3149#       发表于 2024-12-12 21:59
+
+<img src="https://img.saraba1st.com/forum/202412/12/215949kub49wxubwtxi2eb.png" referrerpolicy="no-referrer">
+
+<strong>d2ecd021abdb119fdedd88f77266a309.png</strong> (139.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-12 21:59 上传
+

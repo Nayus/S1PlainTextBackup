@@ -113,3 +113,11 @@ P3R和SMT5V两个月后还能买到首发盘，暗喻情况应该差不多<img s
 
 这玩意做游戏 剧情节奏就已近爆炸了 做动画难道不是更炸 还是便宜动画的前提下，难道会砸大钱认真做动画<img src="https://static.saraba1st.com/image/smiley/face2017/277.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Zeno_5  
+##### 3618#       发表于 2024-12-12 10:25
+
+《暗喻幻想》荣获GameSpot年度游戏: 值得玩家深思的杰作<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

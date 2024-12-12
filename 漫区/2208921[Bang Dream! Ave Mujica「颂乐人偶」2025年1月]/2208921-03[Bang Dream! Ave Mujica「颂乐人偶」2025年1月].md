@@ -1765,3 +1765,20 @@ newtype毕竟是有人负责校对的大手日文杂志
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">這也是雙吉他的醍醐味，互為對手 一起成長
 
+
+*****
+
+####  星天观测  
+##### 3118#       发表于 2024-12-12 10:18
+
+互為對手 一起成長
+
+突然会想起阿农和乐奈<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 3119#       发表于 2024-12-12 10:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">好不容易有这么典型的双吉他关系性了，能不能多写一点
+

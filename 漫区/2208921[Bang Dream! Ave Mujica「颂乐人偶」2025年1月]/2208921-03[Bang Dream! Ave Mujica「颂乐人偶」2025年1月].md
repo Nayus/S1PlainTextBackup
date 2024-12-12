@@ -1729,3 +1729,39 @@ newtype毕竟是有人负责校对的大手日文杂志
 
 具体只能看以后官方怎么解释了
 
+
+*****
+
+####  哈曼的YY  
+##### 3115#       发表于 2024-12-12 10:10
+
+<img src="https://img.saraba1st.com/forum/202412/12/101018l3auaahz113rq5y1.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20241212094853.jpg</strong> (698.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-12 10:10 上传
+
+*****
+
+####  skives10  
+##### 3116#       发表于 2024-12-12 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66902829&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-12 10:08</a>
+英文是没有官网的，只有官推和图片
+
+newtype毕竟是有人负责校对的大手日文杂志
+
+除此之外的所有官方资料里， ...</blockquote>
+原来如此
+不过互为主音倒是也很符合之前live里初睦背靠背的样子，给人一种互相支持的印象<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 3117#       发表于 2024-12-12 10:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">這也是雙吉他的醍醐味，互為對手 一起成長
+

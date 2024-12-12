@@ -183,3 +183,13 @@
 
 哎算了出了也抽不到
 
+
+*****
+
+####  灰色蔓延  
+##### 1313#       发表于 2024-12-12 10:05
+
+阿金最近体验越来越差了，这次又是60抽泡都没有<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

@@ -1488,3 +1488,97 @@ X已经冲到第一了</blockquote>
 太君：九周年的时候发现冲这傻逼运营好像真的有用</blockquote>
 我没去看 万一下面都是在说xx辛苦了怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希望之花  
+##### 15346#       发表于 2024-12-12 19:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我觉得当时冲硬币那会儿太君还是会说话的，什么不应该让玩家给喜欢的角色喂硬币而后悔啥的
+
+这次也能套一样的句式
+
+*****
+
+####  都谷捻柏  
+##### 15347#       发表于 2024-12-12 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66907492&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-12 18:56</a>
+我没去看 万一下面都是在说xx辛苦了怎么办</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这活感觉不输九周年。试想一下你是一个每期氪满的大佬，结果因为这波“福利”没吃到，永远当不了最顶级的那一批了，作何感想？
+
+*****
+
+####  岸浪白野  
+##### 15348#       发表于 2024-12-12 19:01
+
+甚至还能漏网之鱼触发了bug也没有回收石头和材料的，真人下人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 15349#       发表于 2024-12-12 19:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66907523&amp;ptid=2084912" target="_blank">岸浪白野 发表于 2024-12-12 19:01</a>
+
+甚至还能漏网之鱼触发了bug也没有回收石头和材料的，真人下人了</blockquote>
+有点东西 这还能漏？
+
+没这本是还真不如直接回档然后装死 我估计也不会有什么大事
+
+
+*****
+
+####  壳壳牛  
+##### 15350#       发表于 2024-12-12 19:04
+
+等等，推上有人说bug没修好还能触发
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+*****
+
+####  鱿梅纹  
+##### 15351#       发表于 2024-12-12 19:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">昨天大概多领的160左右的石头没用，这会全给扣回去了，还想着存一下呢，这下亏了鸭。
+
+*****
+
+####  Jamaisvu  
+##### 15352#       发表于 2024-12-12 19:06
+
+不患寡而患不均，还不如除了那些用了bug的人之外，其他人都发一遍奖励呢...
+
+（不过一般没有厂家愿意这么做，战双开服那一万黑卡也是只扣不补...）
+
+螺旋社：我们bug根本没修完，迫于压力才开服，你要多发奖励那有更多人占便宜怎么办？！
+
+*****
+
+####  岸浪白野  
+##### 15353#       发表于 2024-12-12 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66907537&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-12 19:03</a>
+
+有点东西 这还能漏？
+
+没这本是还真不如直接回档然后装死 我估计也不会有什么大事 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202412/12/190650tkdqh3sd3wzy7s3h.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.53 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-12 19:06 上传
+
+现在甚至有些人任务那栏留着没领上线后一看还是能领呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗嚇伯特  
+##### 15354#       发表于 2024-12-12 19:07
+
+这就是螺旋社的圣诞礼物吗，还要运气好胆子大才能拿<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

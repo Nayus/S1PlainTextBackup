@@ -408,3 +408,35 @@ ns 400啊，lite也有275，200都比大部分手机轻了。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看着这模型总感觉名字就该叫NSLL
 
+
+*****
+
+####  巨馍蘸酱  
+##### 43#       发表于 2024-12-12 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66907442&amp;ptid=2210275" target="_blank">neptunehs 发表于 2024-12-12 18:50</a>
+
+你们都说屏幕的问题
+
+我更关注jc
+
+这jc看起来比ns的更小 如果复杂性照旧的话那岂不是更容易坏。。。 ...</blockquote>
+一楼照片都专门放一起对比了，明显新JC长一截，是怎么看出更小的
+
+*****
+
+####  ubiquity  
+##### 44#       发表于 2024-12-12 18:59
+
+wiiu跟wii很像吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wjbdasd  
+##### 45#       发表于 2024-12-12 19:03
+
+<blockquote>巨馍蘸酱 发表于 2024-12-12 18:43
+3DS和NDS也很像，也没暴死啊，WIIU的问题是多方面的，而且WIIU光看外形跟WII也不像，根本不是原因 ...</blockquote>
+wiiu跟wii反而是最不像的，因为首次公开宣传根本没有几个本体镜头，一直在摆弄手柄，以至于看完宣传还以为就是个掌机，后来看文字新闻的配图才发现原来有个本体。
+

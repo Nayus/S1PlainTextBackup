@@ -14519,3 +14519,26 @@ UC0080
 遮住3/4刚好是6个U</blockquote>
 如果按这个思路的话也可以是UC0085吧，正好是这作的时间点
 
+
+*****
+
+####  Chiralium  
+##### 1375#       发表于 2024-12-12 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66907472&amp;ptid=2209276" target="_blank">Humpy 发表于 2024-12-12 18:54</a>
+如果按这个思路的话也可以是UC0085吧，正好是这作的时间点</blockquote>
+原来是五年后，我以为刚打完呢
+
+*****
+
+####  wasssf  
+##### 1376#       发表于 2024-12-12 19:07
+
+<img src="https://img.saraba1st.com/forum/202412/12/190742e4kz0wkwdm4vzm55.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (195 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-12 19:07 上传
+

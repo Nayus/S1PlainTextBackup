@@ -1782,3 +1782,13 @@ newtype毕竟是有人负责校对的大手日文杂志
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">好不容易有这么典型的双吉他关系性了，能不能多写一点
 
+
+*****
+
+####  NODY  
+##### 3120#       发表于 2024-12-12 11:41
+
+其实我觉得可能真是杂志写错，这种事情也不少见
+
+睦真要转主音那也是涉及后期剧透了，不太可能现在的介绍就挂出来
+

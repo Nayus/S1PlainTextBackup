@@ -14639,3 +14639,16 @@ UC0080
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  wasssf  
+##### 1385#       发表于 2024-12-13 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66909326&amp;ptid=2209276" target="_blank">novyDC 发表于 2024-12-13 00:01</a>
+
+这是ta里的吧
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端</blockquote>
+是倒a的，我觉得叠字没啥好解读的
+

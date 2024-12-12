@@ -71,3 +71,23 @@
 
 这到底是属于彩蛋性质还是这游戏和女神系列P系列真有什么联系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  抽烟的猴  
+##### 3614#       发表于 2024-12-12 08:35
+
+游戏已经出了两个月，卖到150万了吗
+
+
+*****
+
+####  2015年入股市  
+##### 3615#       发表于 2024-12-12 08:41
+
+ 本帖最后由 2015年入股市 于 2024-12-12 08:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66902028&amp;ptid=2140224" target="_blank">抽烟的猴 发表于 2024-12-12 08:35</a>
+
+游戏已经出了两个月，卖到150万了吗</blockquote>
+我看steam上卖了50-70多万，全平台应该到150万了吧
+

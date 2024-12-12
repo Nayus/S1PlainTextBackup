@@ -1550,3 +1550,13 @@ mujica第一集killkiss开场似乎是有致敬r的black shout，都是闭眼静
 深夜迷思 不知道能不能往这个楼发
 爱音最后在队里的定位是什么？节奏吉他？光从演奏角度来说有她没她有什么差别吗<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 3099#       发表于 2024-12-12 08:44
+
+water不是初祥曲，包不卖的
+
+以及你邦的cp曲基本都有对唱，鸡想卖cp先把对唱整出来看看吧
+

@@ -1769,3 +1769,13 @@ sena这首生日曲风味真的足，太搭了
 是吧，GR漫画有个剪影</blockquote>
 右边的明明是箱崎星梨花<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oznark  
+##### 6755#       发表于 2024-12-12 18:54
+
+<img src="https://p.sda1.dev/20/3fc7c158d3346d61cc5360e32129e72c/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

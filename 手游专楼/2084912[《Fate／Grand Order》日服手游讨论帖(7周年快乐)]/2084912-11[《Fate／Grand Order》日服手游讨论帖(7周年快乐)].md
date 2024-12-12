@@ -1431,3 +1431,60 @@ X已经冲到第一了
 我也没有阿 昨天抽麻婆还沉了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说这BUG怎么触发的
 
+
+*****
+
+####  任天索尼子  
+##### 15340#       发表于 2024-12-12 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66907417&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-12-12 18:47</a>
+
+话说这BUG怎么触发的</blockquote>
+过了11点上线就有机会触发 反正我没触发
+
+*****
+
+####  qixinno2  
+##### 15341#       发表于 2024-12-12 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66907427&amp;ptid=2084912" target="_blank">任天索尼子 发表于 2024-12-12 18:49</a>
+
+过了11点上线就有机会触发 反正我没触发</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">艹 一个BUG还要拼脸 傻逼游戏
+
+*****
+
+####  壳壳牛  
+##### 15342#       发表于 2024-12-12 18:51
+
+艹什么傻逼操作气笑了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+*****
+
+####  alucardcz  
+##### 15343#       发表于 2024-12-12 18:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">艹 昨天11点我在打暗喻 平时11点都会上线一次种下树的 昨天打迷宫没停下来  气 非常气
+
+*****
+
+####  angelooo  
+##### 15344#       发表于 2024-12-12 18:53
+
+<blockquote>reidel 发表于 2024-12-12 18:35
+X已经冲到第一了</blockquote>
+太君：九周年的时候发现冲这傻逼运营好像真的有用
+
+
+*****
+
+####  alucardcz  
+##### 15345#       发表于 2024-12-12 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66907467&amp;ptid=2084912" target="_blank">angelooo 发表于 2024-12-12 18:53</a>
+
+太君：九周年的时候发现冲这傻逼运营好像真的有用</blockquote>
+我没去看 万一下面都是在说xx辛苦了怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

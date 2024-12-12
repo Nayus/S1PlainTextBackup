@@ -14507,3 +14507,15 @@ UC0080
 
 遮住3/4刚好是6个U
 
+
+*****
+
+####  Humpy  
+##### 1374#       发表于 2024-12-12 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66907357&amp;ptid=2209276" target="_blank">Chiralium 发表于 2024-12-12 18:40</a>
+UC0080
+
+遮住3/4刚好是6个U</blockquote>
+如果按这个思路的话也可以是UC0085吧，正好是这作的时间点
+

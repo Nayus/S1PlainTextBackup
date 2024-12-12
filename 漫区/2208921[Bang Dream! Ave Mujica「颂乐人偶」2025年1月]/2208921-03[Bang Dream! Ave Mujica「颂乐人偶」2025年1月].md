@@ -1918,3 +1918,38 @@ newtype毕竟是有人负责校对的大手日文杂志
 4th估计是摘面了
 对邦明年有和狗的，再之后要选的应该双r优先，毕竟鸡定位明显是双r的后继者
 
+
+*****
+
+####  星天观测  
+##### 3133#       发表于 2024-12-12 15:56
+
+这个天气穿无袖
+
+好温暖啊，我们邦tv
+
+QQ截图20241212155518.png
+(31.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-12 15:55 上传
+
+<img src="https://img.saraba1st.com/forum/202412/12/155552rjdkkb131d8kfd2d.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十块钱论坛  
+##### 3134#       发表于 2024-12-12 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66904941&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-12 14:03</a>
+
+其实真的要从乐理上讨论killkiss谁主音的话，主音的应该是虚空小提琴和弦乐组
+
+Verse1是初华主，但Verse2看 ...</blockquote>
+不是在说吉他的分工吗，和主音乐器没有关系吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+如果动画的动作演出能信任的话那一直都是初华主音吉他吧，睦一直在弹riff和扫弦。我觉得这个现实里还要考虑让渡濑去分担，到动画里人均超人反而更不可能变了
+
+杂志的情况，可能是把睦在CRYCHIC是主吉他的介绍和ave给搞串了，疑似newtype草台（
+

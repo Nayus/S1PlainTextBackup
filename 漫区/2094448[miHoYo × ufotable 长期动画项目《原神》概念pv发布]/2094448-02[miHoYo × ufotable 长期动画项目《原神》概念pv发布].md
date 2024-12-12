@@ -88,3 +88,14 @@
 
 —— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  Rhantolk  
+##### 1537#       发表于 2024-12-12 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66905635&amp;ptid=2094448" target="_blank">火受姛人 发表于 2024-12-12 15:33</a>
+
+所有当时为什么要选飞碟社</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">哪位高管喜欢吧，程度不够深的二刺猿，只知道我大FATE大鬼灭牛逼，飞碟桌特效酷炫，就爱这套也很正常，哪懂什么工期之类的门门道道的，我就要飞碟桌
+

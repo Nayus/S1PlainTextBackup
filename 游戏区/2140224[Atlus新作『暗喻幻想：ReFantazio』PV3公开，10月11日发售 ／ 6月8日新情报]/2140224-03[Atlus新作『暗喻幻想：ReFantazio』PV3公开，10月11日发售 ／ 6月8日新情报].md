@@ -91,3 +91,17 @@
 游戏已经出了两个月，卖到150万了吗</blockquote>
 我看steam上卖了50-70多万，全平台应该到150万了吧
 
+
+*****
+
+####  罗克萨斯  
+##### 3616#       发表于 2024-12-12 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66902028&amp;ptid=2140224" target="_blank">抽烟的猴 发表于 2024-12-12 08:35</a>
+游戏已经出了两个月，卖到150万了吗</blockquote>
+P3R和SMT5V两个月后还能买到首发盘，暗喻情况应该差不多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过可能仅限国内是这样，日本那边首发消化率可是非常高的，P5给了国内JS不切实际的销售预期，导致备货太多短期内消化不完
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

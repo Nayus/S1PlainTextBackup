@@ -143,3 +143,11 @@
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">崩3都多少年了不还能焕发第二春，动画做好了妥妥的
 甚至崩2不都还供着？
 
+
+*****
+
+####  GuDaZi  
+##### 1542#       发表于 2024-12-12 17:26
+
+2022年的楼啊，对于○来说也算是沧海桑田了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

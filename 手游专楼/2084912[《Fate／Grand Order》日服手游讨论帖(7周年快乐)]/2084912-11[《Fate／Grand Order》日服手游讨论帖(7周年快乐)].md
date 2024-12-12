@@ -1056,3 +1056,11 @@ YLS：你看看，我就说绿卡不能强<img src="https://static.saraba1st.com
 
 现在说预计日本时间19点开服<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  angelooo  
+##### 15302#       发表于 2024-12-12 17:17
+
+1小时能开吗OTZ
+

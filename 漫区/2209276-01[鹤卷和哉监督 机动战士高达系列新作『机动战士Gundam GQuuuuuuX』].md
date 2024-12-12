@@ -14478,3 +14478,20 @@ UC(0096)也是吧
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
 
+
+*****
+
+####  RE㐅ia  
+##### 1372#       发表于 2024-12-12 18:05
+
+有列文虎克发现这次标题的”机动战士高达”首次用了英文的gundam。之前不有个uuuuuuu和gundam都是6个字符的说法吗？
+
+<img src="https://img.saraba1st.com/forum/202412/12/180450igjfby9mbsgvcmcc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>9D52669C-068A-4B34-8696-271B10A7E597.jpeg</strong> (156.55 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-12 18:04 上传
+

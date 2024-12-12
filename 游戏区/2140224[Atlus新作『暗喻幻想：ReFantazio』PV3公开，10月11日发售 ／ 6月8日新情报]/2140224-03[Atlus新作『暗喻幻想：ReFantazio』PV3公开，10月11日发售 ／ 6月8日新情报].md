@@ -131,3 +131,14 @@ GameSpot 2024年度游戏：《暗喻幻想：ReFantazio》 ​​​
 
 评语：GameSpot认为本作以幻想风格对“人”进行了深度的探讨。游戏别具一格的音乐和美术、优秀的战斗设计、深邃的剧情和角色将这部复古与流行性并存的RPG推向顶峰。
 
+
+*****
+
+####  卢迪克  
+##### 3620#       发表于 2024-12-12 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66903033&amp;ptid=2140224" target="_blank">Zeno_5 发表于 2024-12-12 10:25</a>
+
+《暗喻幻想》荣获GameSpot年度游戏: 值得玩家深思的杰作</blockquote>
+川，登，你就说是不是杰作
+

@@ -644,3 +644,11 @@ TLOU1 PS5版比起PS4版算是大重制了，tlou2的ps5版才是无意义重置
 龙骑士都啥时候了</blockquote>
 重置就是应该先从老的开始啊<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  westgun  
+##### 64#       发表于 2024-12-13 00:30
+
+这游戏，我的评价是刚及格，剧情太过脑残，不知道为什么老有人出来可惜这可惜那的
+

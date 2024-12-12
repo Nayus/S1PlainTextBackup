@@ -1979,3 +1979,13 @@ FGO有做到無料石負數這參數嗎?它有這技術能力嗎?
 
 重复领取的可以认定为恶意利用BUG，小小惩戒一下没问题吧？比如说重复领取的回档。其他人新年的时候补发一次素材。
 
+
+*****
+
+####  rooarr  
+##### 15392#       发表于 2024-12-13 00:32
+
+傻了，原来我没完成的任务是周常，我还以为我触发了bug呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">白高兴了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

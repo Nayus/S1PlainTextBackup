@@ -14680,3 +14680,13 @@ Screenshot_20241213_072629_com.sina.weibo.jpg
 
 <img src="https://img.saraba1st.com/forum/202412/13/072636yk8eejzrpteirif3.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PascalLefèvre  
+##### 1388#       发表于 2024-12-13 07:36
+
+背景是殖民地废墟欸，难道剧场版涉及到的前几话就会有大的发生吗
+
+总不能打黑拳把大楼打塌了吧<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+

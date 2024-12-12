@@ -516,3 +516,11 @@ PS1的龙骑士传说怕不是往后稍稍
 
 而且比起龙骑士，scej的妖精战士，荒野兵器估计还更有希望些
 
+
+*****
+
+####  alecwong  
+##### 50#       发表于 2024-12-12 13:40
+
+这游戏当年的卖点是啥？摩托+丧尸？隐约记得当时销量低于预期，发售没多久就会免了，那时候会员还不分档，我也还是会员<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

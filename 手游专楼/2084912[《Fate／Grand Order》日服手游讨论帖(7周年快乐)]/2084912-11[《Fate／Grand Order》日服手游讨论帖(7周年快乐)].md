@@ -818,3 +818,11 @@
 
 YLS：你看看，我就说绿卡不能强<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  quanlix  
+##### 15275#       发表于 2024-12-12 10:02
+
+看隔壁说美服之前出过类似bug，结果日服还能给复刻了
+

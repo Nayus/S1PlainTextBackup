@@ -1582,3 +1582,25 @@ X已经冲到第一了</blockquote>
 
 这就是螺旋社的圣诞礼物吗，还要运气好胆子大才能拿<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  都谷捻柏  
+##### 15355#       发表于 2024-12-12 19:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前是盐选者，现在是叶选者
+
+*****
+
+####  reidel  
+##### 15356#       发表于 2024-12-12 19:13
+
+据说昨天没领的，不仅上线可以领，数字还变多了
+
+*****
+
+####  岸浪白野  
+##### 15357#       发表于 2024-12-12 19:13
+
+叶选之人才能拿到的圣诞礼物，是我人下人不配了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

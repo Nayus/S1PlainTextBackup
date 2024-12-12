@@ -882,3 +882,13 @@ YLS：你看看，我就说绿卡不能强<img src="https://static.saraba1st.com
 
 不会今天开不了服吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 15282#       发表于 2024-12-12 10:48
+
+剛登入還未修好
+
+現在就看會如何處理那些不停領石的玩家，是會將整個伺服器環境還原到指定時間狀態當無事發生，活動重新再打嗎?
+

@@ -2707,3 +2707,18 @@ sw更是正版买来就进游戏建个档就关机了，现在除了Splatoon这�
 除非配置不够，否则着色器编译后再去编译的地方一般都不可能卡，这是技术上就不可能的事情（重装了显卡驱 ...</blockquote>
 搭车求个XBDE的高清60帧mod补丁<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  血狂毘沙门  
+##### 237#       发表于 2024-12-12 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66904682&amp;ptid=2201766" target="_blank">再买自检星剁手 发表于 2024-12-12 13:31</a>
+
+英伟达被中美欧同时反垄断调查，黄仁勋真是冤死了</blockquote>
+游戏主机市场份额索尼比任天堂大
+
+建议先抵制索尼
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+

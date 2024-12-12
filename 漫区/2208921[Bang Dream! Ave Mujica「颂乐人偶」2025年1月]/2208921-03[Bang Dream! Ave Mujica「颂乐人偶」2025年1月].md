@@ -2317,3 +2317,24 @@ MEM对应的是萝 Lisa
 日文介绍用的是令嬢（千金/大小姐），英文直接用heir（继承人）了吗</blockquote>
 如果这没歧义，那直接剧透了啊。我记得目前没说过祥子在丰川家具体是什么地位吧。
 
+
+*****
+
+####  NODY  
+##### 3168#       发表于 2024-12-13 01:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66909601&amp;ptid=2208921" target="_blank">帕林马哲理 发表于 2024-12-13 01:21</a>
+
+如果这没歧义，那直接剧透了啊。我记得目前没说过祥子在丰川家具体是什么地位吧。 ...</blockquote>
+搜出来是这样
+
+不过也确实是法定继承人没错，祥子只是离家出走了，又不是真的从户口本被除名了
+
+<img src="https://img.saraba1st.com/forum/202412/13/013743x1d39x3wvndiwfdi.png" referrerpolicy="no-referrer">
+
+<strong>04a38ef2-4c6b-4fac-a9b5-a5122a044038.png</strong> (6.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-13 01:37 上传
+

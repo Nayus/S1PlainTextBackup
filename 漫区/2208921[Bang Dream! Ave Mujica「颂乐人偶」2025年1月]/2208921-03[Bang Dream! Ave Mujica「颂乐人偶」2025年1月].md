@@ -2026,3 +2026,28 @@ crychic的问题在于，crychic只有一把吉他，没有什么节奏和主音
 明明是大人生日却在儿童节的喵梦</blockquote>
 虽然但是日本人是不过国际儿童节的......
 
+
+*****
+
+####  SakuraのOrigami  
+##### 3140#       发表于 2024-12-12 21:09
+
+BanG Dream! Ave Mujica -manuscriptus- 1
+
+原作： ブシロード漫画： 宏山　ぴんふ
+
+<img src="https://img.saraba1st.com/forum/202412/12/210940sx6rxiyityeril6y.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20241212210900.png</strong> (102.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-12 21:09 上传
+
+*****
+
+####  skives10  
+##### 3141#       发表于 2024-12-12 21:12
+
+这漫画家是马甲吗 一点作品搜不到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

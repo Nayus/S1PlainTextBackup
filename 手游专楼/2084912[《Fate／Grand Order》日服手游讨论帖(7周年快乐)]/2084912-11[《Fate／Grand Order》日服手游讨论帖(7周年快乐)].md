@@ -1789,3 +1789,22 @@ bug还在继续 官方也在鼓励人用bug
 我记得刚开服的时候好像回过一次档吧（当时好像在up狂兰或阿塔），该不会是现在回档会让他们加的某些新功 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是不是没那个时间点附近的备份，备份数据只有刚维护好那会儿的，如果回档到刚维护好的时间点就算是补偿石头也是重新抽卡，欧了的也会炎上。
 
+
+*****
+
+####  DARKGRAY  
+##### 15375#       发表于 2024-12-12 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66908272&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-12-12 20:52</a>
+
+我记得刚开服的时候好像回过一次档吧（当时好像在up狂兰或阿塔），该不会是现在回档会让他们加的某些新功 ...</blockquote>
+早期BUG挺多的吧，开服号抽不到五星反而签到号抽到好几个，用签到号打过一阵子，当时碰过一次抽了个大王于是去刷狗粮，刷着刷着应该是卡了一下，重进游戏发现人都没了，看了看库存感觉像是退回了抽之前的状态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 15376#       发表于 2024-12-12 21:13
+
+这公告差不多明确表示不可能回档了吧 不然你拖这么久再回档也要爆炸 
+

@@ -524,3 +524,19 @@ PS1的龙骑士传说怕不是往后稍稍
 
 这游戏当年的卖点是啥？摩托+丧尸？隐约记得当时销量低于预期，发售没多久就会免了，那时候会员还不分档，我也还是会员<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  karastar  
+##### 51#       发表于 2024-12-12 13:50
+
+这游戏有重置的必要吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  roxassix  
+##### 52#       发表于 2024-12-12 13:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">索尼游戏这块日本血统都切割完了，连多罗这种都没了，哪来的什么龙骑士荒野兵器。。
+还不如寄希望制作人单飞的精神续作啥的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

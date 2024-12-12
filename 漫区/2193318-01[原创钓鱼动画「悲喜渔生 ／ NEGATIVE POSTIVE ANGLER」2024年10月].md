@@ -48,3 +48,59 @@
 
 期待下集，到底该怎么结尾呢？
 
+
+*****
+
+####  Tilocal  
+##### 191#       发表于 2024-12-13 02:28
+
+这周译制组在下面补充考证的时候没有提到，其实粉毛的藏身之所就在暁ふ頭公園，也就是男女主钓鱼的城南岛海滨公园对面的地方
+
+<img src="https://img.saraba1st.com/forum/202412/13/022433vq76k5k5zzzz7p7y.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1613.jpeg</strong> (439.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-13 02:24 上传
+
+<img src="https://img.saraba1st.com/forum/202412/13/022441obqtd0e1h04eu0dq.png" referrerpolicy="no-referrer">
+
+<strong>IMG_1612.png</strong> (2.81 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-13 02:24 上传
+
+<img src="https://img.saraba1st.com/forum/202412/13/022523h2623880c6sexlcq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1607.jpeg</strong> (570.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-13 02:25 上传
+
+<img src="https://img.saraba1st.com/forum/202412/13/022442ywbrw56kewrrwqlb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1609.jpeg</strong> (538.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-13 02:24 上传
+
+<img src="https://img.saraba1st.com/forum/202412/13/022443c2org2029l4492xu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1608.jpeg</strong> (364.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-13 02:24 上传
+
+<img src="https://img.saraba1st.com/forum/202412/13/022444psgo2ub4s086d0bd.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1606.jpeg</strong> (668.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-13 02:24 上传
+

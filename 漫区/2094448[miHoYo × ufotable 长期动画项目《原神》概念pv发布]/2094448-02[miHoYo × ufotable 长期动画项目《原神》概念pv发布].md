@@ -45,3 +45,19 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这嘛意思，制作公司换成东映了？
 
+
+*****
+
+####  Rhantolk  
+##### 1532#       发表于 2024-12-12 15:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">飞碟桌的产能不就一直这样，本来大家也都清楚鬼灭不完结根本吐不出其他作品吧
+
+
+*****
+
+####  火受姛人  
+##### 1533#       发表于 2024-12-12 15:33
+
+所有当时为什么要选飞碟社<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

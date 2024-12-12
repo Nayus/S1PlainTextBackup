@@ -589,3 +589,14 @@ PS1的龙骑士传说怕不是往后稍稍
 
 要不再重制一下旺达与巨像? <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  泰坦失足  
+##### 59#       发表于 2024-12-12 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66904749&amp;ptid=2200503" target="_blank">alecwong 发表于 2024-12-12 13:40</a>
+
+这游戏当年的卖点是啥？摩托+丧尸？隐约记得当时销量低于预期，发售没多久就会免了，那时候会员还不分档， ...</blockquote>
+上PC还特别快。记得是 大力宣传的only on PS 第三方独占卖的不如预期会上PC比如底特律-&gt;第一方卖的不好的会上PC-&gt;第一方卖的好的照样过段时间上PC-&gt;官方说HD2是PS ip啥首月还是首年卖的第5好的游戏，而且美国大多数玩家购买PC版 这个四部曲中的第二部。
+

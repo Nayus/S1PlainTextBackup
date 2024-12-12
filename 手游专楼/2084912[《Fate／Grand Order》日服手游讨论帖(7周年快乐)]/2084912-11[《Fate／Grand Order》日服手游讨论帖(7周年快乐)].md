@@ -950,3 +950,11 @@ YLS：你看看，我就说绿卡不能强<img src="https://static.saraba1st.com
 
 国服能扣石头扣到负的话日服应该一样能扣吧，看起来还有重复领了几次的人真要补齐估计送不起<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sin.yugi  
+##### 15289#       发表于 2024-12-12 12:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

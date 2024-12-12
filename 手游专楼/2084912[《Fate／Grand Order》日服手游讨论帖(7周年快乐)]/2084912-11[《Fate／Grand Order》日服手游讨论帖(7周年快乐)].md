@@ -1935,3 +1935,23 @@ FGO有做到無料石負數這參數嗎?它有這技術能力嗎?
 要扣到负数完全做得到，无非就是愿不愿意拉下脸 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">现在和在说老实人你滚吧也没有什么大区别
 
+
+*****
+
+####  exiaexa  
+##### 15388#       发表于 2024-12-12 22:39
+
+ 本帖最后由 exiaexa 于 2024-12-12 22:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66908909&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-12 22:32</a>
+
+现在和在说老实人你滚吧也没有什么大区别</blockquote>
+我无所谓的，加了两天班回来就听到这么乐的消息
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+虽然听起来很傻逼
+
+但是我从玩扩散MA的那天开始到现在，就没薅过几次
+
+我对自己这从来遇不到天降馅饼的霉运有非常精准的认知
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

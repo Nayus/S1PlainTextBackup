@@ -102,3 +102,21 @@
 农妈好有实力
 <img src="https://p.sda1.dev/20/f215b55232e19325360e9239486122c1/737f4df715d8252ebe9b9e0ebe7b1230.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  月島まりな  
+##### 26647#       发表于 2024-12-12 22:41
+
+[https://www.animatetimes.com/news/details.php?id=1733884423](https://www.animatetimes.com/news/details.php?id=1733884423)
+<img src="https://p.sda1.dev/20/be3157c5a4d123b0933de24d831d4937/image.png" referrerpolicy="no-referrer">
+
+摘了一点，感觉新巡演又有盼头了 <blockquote>そして「Stille Nacht, Rosen Nacht」が終わると、早いもので新しい年を迎えます。Roseliaとして、2025年の抱負をお聞かせください。
+另外，「Stille Nacht, Rosen Nacht」结束后，很快就会迎来新的一年了。请问作为Roselia，您们对2025年有哪些期望或抱负？
+
+相羽：2024年に行ったツアータイトルの「Rosenchor」には、「合唱」という意味も含まれています。
+相羽：2024年的巡演标题是「Rosenchor」，这个名字中也包含了“合唱”的意思。
+
+全国各地で、みなさんの声をダイレクトに聞けたからこそ、「Rosenchor」を最初で最後のツアーにしたくない。また新たにツアーもしたいですし、海外のファンにも会いに行きたい。これはずっと思っています。
+正因为在全国各地的演出中，我们能直接听到粉丝们的声音，所以我不想让「Rosenchor」成为唯一的一次巡演。我们还想再次开启新的巡演，也希望能去见见海外的粉丝们。这个想法我一直都有。</blockquote>
+

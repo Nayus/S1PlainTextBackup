@@ -14430,3 +14430,11 @@ UC(0096)也是吧
 
 我记得东宝除了Khara还有哆啦A梦和柯南是吧？
 
+
+*****
+
+####  Sliurus  
+##### 1368#       发表于 2024-12-12 13:24
+
+高达行动力最强的是W五小强了吧，办事太有效率被托帅算计<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -555,3 +555,14 @@ PS1的龙骑士传说怕不是往后稍稍
 
 这个重置如果是UE5画面翻新的话我还真想再来一遍
 
+
+*****
+
+####  roxassix  
+##### 55#       发表于 2024-12-12 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66905021&amp;ptid=2200503" target="_blank">busuji 发表于 2024-12-12 14:12</a>
+这游戏上过steam了吧，steamer可不吃重制版买二茬钱这种操作，只能割一割尊贵的索尼用户了。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">索平线：啊对对对
+日过他最好也能薅羊毛<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

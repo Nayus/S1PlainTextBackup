@@ -1894,3 +1894,18 @@ newtype毕竟是有人负责校对的大手日文杂志
 
 我们鸡什么时候能蹭到好服设<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  桜庭千景  
+##### 3130#       发表于 2024-12-12 14:21
+
+话说现在的鸡3dlive里没啥互动啊，要是能复刻一下互动就好了 初睦背靠背什么的<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 3131#       发表于 2024-12-12 14:26
+
+4th不知道会不会有追加演出，开播前最后一次了，希望确实是集大成吧
+

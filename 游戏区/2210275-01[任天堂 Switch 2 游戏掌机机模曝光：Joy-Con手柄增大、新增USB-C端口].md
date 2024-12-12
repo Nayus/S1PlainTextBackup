@@ -521,3 +521,11 @@ wiiu跟wii反而是最不像的，因为首次公开宣传根本没有几个本�
 
 纯掌机版能做到ns1大小吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aiyouo  
+##### 55#       发表于 2024-12-12 20:40
+
+看着挺真，大差不差了，老任不可能大改ns的外形的，就是不知道性能如何<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1936,3 +1936,110 @@ SOLO2《極光》：
 
 2024-12-12 20:27 上传
 
+
+*****
+
+####  BQlin  
+##### 6761#       发表于 2024-12-12 20:34
+
+小秦直接成周年角了吗
+
+*****
+
+####  wfhtony  
+##### 6762#       发表于 2024-12-12 20:34
+
+ 本帖最后由 wfhtony 于 2024-12-12 20:38 编辑 
+
+<img src="https://img.saraba1st.com/forum/202412/12/203736foopvl5ziulo9t5i.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-12-12-20h34m42s793.png</strong> (1.25 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-12 20:37 上传
+
+<img src="https://img.saraba1st.com/forum/202412/12/203737qq4m5q459sq5ms5l.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-12-12-20h34m48s256.png</strong> (1.53 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-12 20:37 上传
+
+<img src="https://img.saraba1st.com/forum/202412/12/203737exmey2nbtpvvbraj.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-12-12-20h35m18s400.png</strong> (953.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-12 20:37 上传
+
+真憋到一週年才實裝啊...
+
+二月會有相關的生放。
+
+<img src="https://img.saraba1st.com/forum/202412/12/203738ydaa0iw4tywtzsdt.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-12-12-20h35m28s502.png</strong> (1023.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-12 20:37 上传
+
+<img src="https://img.saraba1st.com/forum/202412/12/203738bj1iidq1sh0eit6t.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-12-12-20h35m59s872.png</strong> (1.02 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-12 20:37 上传
+
+SOLO1《ツキノカメ》CD 5/21發售。
+
+明年春季會上PC版。
+
+<img src="https://img.saraba1st.com/forum/202412/12/203725t3ujvvicdzbd6bi3.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-12-12-20h37m16s579.png</strong> (446.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-12 20:37 上传
+
+<img src="https://img.saraba1st.com/forum/202412/12/203823dtzuzrsy32y3tk4i.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-12-12-20h37m47s421.png</strong> (689.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-12 20:38 上传
+
+<img src="https://img.saraba1st.com/forum/202412/12/203824d5mg650imi665q6z.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-12-12-20h37m58s996.png</strong> (997.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-12 20:38 上传
+
+<img src="https://img.saraba1st.com/forum/202412/12/203825zgwayt13wm8uy8ay.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-12-12-20h38m03s798.png</strong> (1.03 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-12 20:38 上传
+
+學馬仕 1st LIVE
+
+KV：
+
+<img src="https://img.saraba1st.com/forum/202412/12/203420bo5g5rorigi5wo2w.png" referrerpolicy="no-referrer">
+
+<strong>t1p_kv_mainimg.png</strong> (2.37 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-12 20:34 上传
+

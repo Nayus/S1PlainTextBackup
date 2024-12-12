@@ -1884,3 +1884,13 @@ newtype毕竟是有人负责校对的大手日文杂志
 
 什么时候跟蝶对邦，让ayasa支援一下
 
+
+*****
+
+####  星天观测  
+##### 3129#       发表于 2024-12-12 14:12
+
+真得和蝶对邦吧，蝶对邦的服装都很好看
+
+我们鸡什么时候能蹭到好服设<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

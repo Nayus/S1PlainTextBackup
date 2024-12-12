@@ -540,3 +540,18 @@ PS1的龙骑士传说怕不是往后稍稍
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">索尼游戏这块日本血统都切割完了，连多罗这种都没了，哪来的什么龙骑士荒野兵器。。
 还不如寄希望制作人单飞的精神续作啥的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  busuji  
+##### 53#       发表于 2024-12-12 14:12
+
+这游戏上过steam了吧，steamer可不吃重制版买二茬钱这种操作，只能割一割尊贵的索尼用户了。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SergeGlenn  
+##### 54#       发表于 2024-12-12 14:13
+
+这个重置如果是UE5画面翻新的话我还真想再来一遍
+

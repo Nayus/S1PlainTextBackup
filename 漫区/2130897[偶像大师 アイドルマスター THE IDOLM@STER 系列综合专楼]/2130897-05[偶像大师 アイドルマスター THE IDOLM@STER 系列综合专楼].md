@@ -1729,3 +1729,25 @@ sena这首生日曲风味真的足，太搭了
 
 这个凶凶的眼神真不错
 
+
+*****
+
+####  -Vanitas-  
+##### 6752#       发表于 2024-12-12 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66904636&amp;ptid=2130897" target="_blank">冰寒之月 发表于 2024-12-12 13:25</a>
+这是燐羽吗
+
+这个凶凶的眼神真不错</blockquote>
+是吧，GR漫画有个剪影
+
+<img src="https://img.saraba1st.com/forum/202412/12/140835xj4quoj6590zx675.png" referrerpolicy="no-referrer">
+
+<strong>IMG_1686.PNG</strong> (553.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-12 14:08 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

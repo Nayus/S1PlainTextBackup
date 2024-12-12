@@ -2366,3 +2366,11 @@ MEM对应的是萝 Lisa
 
 （其实这个我觉得和睦是星二代差不多，要展开讲肯定能讲很多，但展开了就没篇幅写mujica了，就当做是个背景设定好了）
 
+
+*****
+
+####  NODY  
+##### 3171#       发表于 2024-12-13 03:54
+
+那就真致敬水魔了，本来死活不肯对家族示弱。但为了自己的四个新郎主动找老登低头是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

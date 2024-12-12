@@ -12273,3 +12273,13 @@ nagi新曲倒不错，就是那段rap<img src="https://static.saraba1st.com/imag
 
 <img src="https://p.sda1.dev/20/d257590bd6c0fb6fc93968e1dd2ba6e0/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 1201#       发表于 2024-12-12 18:18
+
+可可是抽2略逗，这游戏怎么玩的。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

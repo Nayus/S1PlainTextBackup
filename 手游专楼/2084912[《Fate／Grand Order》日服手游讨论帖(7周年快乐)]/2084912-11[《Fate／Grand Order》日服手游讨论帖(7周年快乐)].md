@@ -1117,3 +1117,123 @@ YLS：你看看，我就说绿卡不能强<img src="https://static.saraba1st.com
 
 补偿的5石单抽出货了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jackyhuang  
+##### 15310#       发表于 2024-12-12 18:17
+
+※受け取った聖晶石や各種アイテムを既に消費しているなどで所持数が0以下になった場合、不足分は回収いたしません。
+
+为什么我昨晚没发现这个bug<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+*****
+
+####  cckuku  
+##### 15311#       发表于 2024-12-12 18:18
+
+这运营我也是服了，讨论了一天讨论出个这结果。
+
+*****
+
+####  alucardcz  
+##### 15312#       发表于 2024-12-12 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66907179&amp;ptid=2084912" target="_blank">jackyhuang 发表于 2024-12-12 18:17</a>
+
+※受け取った聖晶石や各種アイテムを既に消費しているなどで所持数が0以下になった場合、不足分は回収いた ...</blockquote>
+太傻逼了 不扣到负 抽到的卡也不回收
+
+从来没有见过这么傻逼的运营，，
+
+*****
+
+####  rooarr  
+##### 15313#       发表于 2024-12-12 18:21
+
+也就是说我没领到就是亏了？ 不能忍<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  alucardcz  
+##### 15314#       发表于 2024-12-12 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66907209&amp;ptid=2084912" target="_blank">rooarr 发表于 2024-12-12 18:21</a>
+
+也就是说我没领到就是亏了？ 不能忍
+
+论坛助手,iPhone</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">也就亏个几到几十单！
+
+*****
+
+####  reidel  
+##### 15315#       发表于 2024-12-12 18:22
+
+yls这辈子有了
+
+*****
+
+####  岸浪白野  
+##### 15316#       发表于 2024-12-12 18:24
+
+ 本帖最后由 岸浪白野 于 2024-12-12 18:25 编辑 
+
+这波不单是石头的问题，你连天赋树的材料都能重新领一遍，这还用被螺旋社卡着蓝星升天赋树吗，触发bug用了的人是天选之人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 15317#       发表于 2024-12-12 18:25
+
+不是我说。。认真的吗
+
+全服只赔偿30石 用bug抽到的卡一律不回收 人家抽到0石就是无任何代价的白嫖  
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  reidel  
+##### 15318#       发表于 2024-12-12 18:25
+
+我认识的bgo运营都知道要扣到负数，因为fgo真的可以扣成负数
+
+*****
+
+####  都谷捻柏  
+##### 15319#       发表于 2024-12-12 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66907214&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-12 18:22</a>
+也就亏个几到几十单！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">1单到3单+的样子，妈的昨晚下早了，感觉亏麻了，心都在滴血
+
+*****
+
+####  khxooo  
+##### 15320#       发表于 2024-12-12 18:26
+
+可惜了，如果昨晚早点上线就能白嫖一波了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  angelooo  
+##### 15321#       发表于 2024-12-12 18:26
+
+这什么垃圾处理方式，老老实实玩游戏的感觉亏麻了
+
+*****
+
+####  alucardcz  
+##### 15322#       发表于 2024-12-12 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66907238&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2024-12-12 18:25</a>
+
+1单到3单+的样子，妈的昨晚下早了，感觉亏麻了，心都在滴血</blockquote>
+天赋树材料可是无价的！ 几十单这么了！
+

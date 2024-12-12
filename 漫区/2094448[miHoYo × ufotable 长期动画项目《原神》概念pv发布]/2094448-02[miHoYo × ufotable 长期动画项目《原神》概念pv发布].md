@@ -159,3 +159,17 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是哥们？现招编剧啊？
 
+
+*****
+
+####  DARK_HGCG  
+##### 1544#       发表于 2024-12-12 18:19
+
+<blockquote>稀勢のささ 发表于 2024-12-12 17:37
+不是哥们？现招编剧啊？</blockquote>
+看情形是审剧本不是编剧
+
+也就是说编剧是东映在做
+
+难道能看到井上敏树的原神吗！（痴心妄想）
+

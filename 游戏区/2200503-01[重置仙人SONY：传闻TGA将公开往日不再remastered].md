@@ -566,3 +566,18 @@ PS1的龙骑士传说怕不是往后稍稍
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">索平线：啊对对对
 日过他最好也能薅羊毛<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sfqjsml  
+##### 56#       发表于 2024-12-12 14:50
+
+我记着这游戏好像卖了快千万来着，泥潭还讨论过
+
+*****
+
+####  umbasa  
+##### 57#       发表于 2024-12-12 14:53
+
+所以之前为什么要把bend的红脖制作人给踢了？
+

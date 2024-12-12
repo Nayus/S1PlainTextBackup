@@ -1839,3 +1839,26 @@ newtype毕竟是有人负责校对的大手日文杂志
 
 总不能是一个永远没有后续的饼<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 3125#       发表于 2024-12-12 12:29
+
+<img src="https://img.saraba1st.com/forum/202412/12/122753gpfh8p6hpn6pvnjg.png" referrerpolicy="no-referrer">
+
+<strong>e2b35ec8-13d2-41bb-8987-b75560dca432.png</strong> (24.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-12 12:27 上传
+
+说着正片要展现所有剧情很困难所以在剧场版尽可能补完了，结果就是猫补了一整集立希没补什么剧情吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 3126#       发表于 2024-12-12 12:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">製作組對立希的態度只能說……
+

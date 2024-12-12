@@ -958,3 +958,11 @@ YLS：你看看，我就说绿卡不能强<img src="https://static.saraba1st.com
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UNISONIA  
+##### 15290#       发表于 2024-12-12 12:29
+
+美服当时无非就是回归Master任务那个对所有人开放了而已，只影响七天签到获得的30石16金苹果和一些狗粮、友情点蚊子腿
+

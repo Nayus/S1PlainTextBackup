@@ -1034,3 +1034,25 @@ YLS：你看看，我就说绿卡不能强<img src="https://static.saraba1st.com
 
 （坏心肠神父不满少年少女欢度圣诞忽视自己，炮轰螺旋社服务器）
 
+
+*****
+
+####  khxooo  
+##### 15299#       发表于 2024-12-12 17:01
+
+还是不行，看来要经历第一次的奇迹48了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 15300#       发表于 2024-12-12 17:04
+
+看来怎么补偿这个问题真的很难解决呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  琴酒  
+##### 15301#       发表于 2024-12-12 17:04
+
+现在说预计日本时间19点开服<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

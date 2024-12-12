@@ -123,3 +123,23 @@
 
 —— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  黑夜守望者  
+##### 1540#       发表于 2024-12-12 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66906286&amp;ptid=2094448" target="_blank">激励哥.丘比 发表于 2024-12-12 16:37</a>
+在热度最高的时候不出来 这会游戏都快完了还没弄好 真指望靠这个吸引新人入坑啊
+
+—— 来自 鹅球 v3.0.86-a ...</blockquote>
+要是动画和鬼灭一样成功那真能拉新，问题是几乎不可能和鬼灭一样成功<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  osore  
+##### 1541#       发表于 2024-12-12 17:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">崩3都多少年了不还能焕发第二春，动画做好了妥妥的
+甚至崩2不都还供着？
+

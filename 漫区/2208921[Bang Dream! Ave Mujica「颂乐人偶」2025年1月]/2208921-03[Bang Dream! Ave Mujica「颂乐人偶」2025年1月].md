@@ -1862,3 +1862,15 @@ newtype毕竟是有人负责校对的大手日文杂志
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">製作組對立希的態度只能說……
 
+
+*****
+
+####  十块钱论坛  
+##### 3127#       发表于 2024-12-12 13:20
+
+啊？killkiss这歌还是初华在主音啊 比较明显的第二段主歌开头那里
+
+或者说这歌就没怎么给主音吉他写段落，也许是为了降低演唱压力<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+杂志是什么情况不太懂
+

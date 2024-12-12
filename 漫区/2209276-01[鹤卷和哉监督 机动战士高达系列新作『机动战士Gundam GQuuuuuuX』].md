@@ -14495,3 +14495,15 @@ UC(0096)也是吧
 由手机上传
 2024-12-12 18:04 上传
 
+
+*****
+
+####  Chiralium  
+##### 1373#       发表于 2024-12-12 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66907099&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2024-12-12 18:05</a>
+有列文虎克发现这次标题的”机动战士高达”首次用了英文的gundam。之前不有个uuuuuuu和gundam都是6个字符的 ...</blockquote>
+UC0080
+
+遮住3/4刚好是6个U
+

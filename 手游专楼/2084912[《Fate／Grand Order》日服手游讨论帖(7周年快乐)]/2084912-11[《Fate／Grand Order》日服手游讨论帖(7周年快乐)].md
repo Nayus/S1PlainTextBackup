@@ -1351,3 +1351,83 @@ X已经冲到第一了
 
 都有 只要你拿了用掉 就没有任何代价
 
+
+*****
+
+####  yangun22  
+##### 15331#       发表于 2024-12-12 18:38
+
+不肯延长时间基本就摆明了25号有啥东西，但搞成这样也是本事，难道减到负数是B站码农搞得吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 15332#       发表于 2024-12-12 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66907321&amp;ptid=2084912" target="_blank">cckuku 发表于 2024-12-12 18:35</a>
+
+我超那些任务都送啥道具来着？不会还有金芙芙吧？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要是天赋树的各种材料 先天性的就比你多一倍
+
+*****
+
+####  alucardcz  
+##### 15333#       发表于 2024-12-12 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66907346&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-12-12 18:39</a>
+
+主要是天赋树的各种材料 先天性的就比你多一倍</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">一倍？ 怕不是100 1000倍哦
+
+*****
+
+####  希望之花  
+##### 15334#       发表于 2024-12-12 18:41
+
+牢叶今年算是整了两个大活，很难想象是一个开了九年的元老级手游能发生的事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 15335#       发表于 2024-12-12 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66907350&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-12 18:39</a>
+
+一倍？ 怕不是100 1000倍哦</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正我没领到 我很酸
+
+*****
+
+####  angelooo  
+##### 15336#       发表于 2024-12-12 18:41
+
+不能多想，感觉要吐了，傻逼运营
+
+
+*****
+
+####  qixinno2  
+##### 15337#       发表于 2024-12-12 18:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">维护了那么久就整出了这么一个最弱智的方案 真的是换条狗坐那位置都比他们管用
+
+*****
+
+####  alucardcz  
+##### 15338#       发表于 2024-12-12 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66907366&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-12-12 18:41</a>
+
+反正我没领到 我很酸</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">我也没有阿 昨天抽麻婆还沉了
+
+*****
+
+####  qixinno2  
+##### 15339#       发表于 2024-12-12 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66907394&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-12 18:45</a>
+
+我也没有阿 昨天抽麻婆还沉了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说这BUG怎么触发的
+

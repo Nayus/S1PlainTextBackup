@@ -581,3 +581,11 @@ PS1的龙骑士传说怕不是往后稍稍
 
 所以之前为什么要把bend的红脖制作人给踢了？
 
+
+*****
+
+####  Slyvan  
+##### 58#       发表于 2024-12-12 15:25
+
+要不再重制一下旺达与巨像? <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

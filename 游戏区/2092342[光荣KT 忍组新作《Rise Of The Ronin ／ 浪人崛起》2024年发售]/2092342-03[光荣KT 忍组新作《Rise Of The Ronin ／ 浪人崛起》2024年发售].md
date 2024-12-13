@@ -60,3 +60,11 @@
 爆料源是lunatic，准确率堪忧，看看就行</blockquote>
 lunatic出来滑轨了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  廖化  
+##### 3282#       发表于 2024-12-13 13:28
+
+MD我白等四个小时<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

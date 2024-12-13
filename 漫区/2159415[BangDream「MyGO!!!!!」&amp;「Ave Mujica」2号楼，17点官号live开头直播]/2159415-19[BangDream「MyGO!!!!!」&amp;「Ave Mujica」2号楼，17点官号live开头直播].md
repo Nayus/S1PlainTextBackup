@@ -166,3 +166,14 @@ TGA弱智梗图<img src="https://static.saraba1st.com/image/smiley/face2017/065.
 
 R这新曲也太舒服了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">连听了两天，这riff这lick....prog的不像是R。双贝斯都玩出花来了，ykn你也要当贝斯主唱吗
 
+
+*****
+
+####  CyDiablo  
+##### 26652#       发表于 2024-12-13 23:10
+
+大的要来咯<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/1e04c61d58372388efa592e51aa6aee1/Image_55519481062462.jpg" referrerpolicy="no-referrer">
+当然首先排除go
+<img src="https://p.sda1.dev/20/663725fd862abc121626263bdbec9219/Image_55515879279462.png" referrerpolicy="no-referrer">
+

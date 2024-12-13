@@ -109,3 +109,19 @@ Niko那图二防守3.44的rating，回合均伤200多，什么超人<img src="ht
 
 FAZE这场看爽了，就喜欢看热门队吃瘪
 
+
+*****
+
+####  heseran  
+##### 4587#       发表于 2024-12-13 23:14
+
+<img src="https://img.saraba1st.com/forum/202412/13/231346pb295oqx252u3585.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>94C23846-D451-43B0-9FB1-478174BBD6CB.jpeg</strong> (382.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-13 23:13 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

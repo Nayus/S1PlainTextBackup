@@ -2351,3 +2351,61 @@ T2旧剑宝具秒掉
 
 T3奥伯龙+旧剑技能全开，旧剑第二发宝具+左1的宝具/旧剑自己补刀
 
+
+*****
+
+####  eilot  
+##### 15427#       发表于 2024-12-14 00:23
+
+狂娜、殺狐和奧伯都絆15...
+
+娄希的話，又不見其他人掛師傅和裁師傅
+
+單拼支援後的輸出的話，師傅和裁師傅那個比較高
+
+*****
+
+####  alucardcz  
+##### 15428#       发表于 2024-12-14 00:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66921098&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-12-14 00:18</a>
+
+没汇呆 而且我C呆也15绊了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没事 沙壶 rba都15伴就没有烦恼了
+
+*****
+
+####  exiaexa  
+##### 15429#       发表于 2024-12-14 01:03
+
+ 本帖最后由 exiaexa 于 2024-12-14 01:06 编辑 
+
+这90艹怎么这么鱼的
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202412/14/010258a53ga4yjhhyrh5rr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (184.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 01:02 上传
+
+你能掏出个点了AS的旧剑就能不重复打穿，左1挂个30充单体就行
+
+T1看眼牌，技能全开瞎打，旧剑技能CD-2
+
+T2旧剑宝具秒掉
+
+T3奥伯龙+旧剑技能全开，旧剑第二发宝具+左1的宝具/旧剑自己补刀
+
+*****
+
+####  qw3434cn  
+##### 15430#       发表于 2024-12-14 05:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66921088&amp;ptid=2084912" target="_blank">khxooo 发表于 2024-12-14 00:16</a>
+
+那为什么2号C呆不直接换奥伯龙？</blockquote>
+当然是因为奥伯龙伤害不够<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">两个C呆都要开宝具的
+

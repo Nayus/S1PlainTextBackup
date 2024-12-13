@@ -48,3 +48,23 @@ Niko那图二防守3.44的rating，回合均伤200多，什么超人<img src="ht
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
 
+
+*****
+
+####  绯影汐岚  
+##### 4580#       发表于 2024-12-13 21:09
+
+地狱归来！
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  doublehit  
+##### 4581#       发表于 2024-12-13 21:11
+
+小蜜蜂啊小蜜蜂，怎么一到关键时候就总发抖呢？刷个小组赛闹麻了，一整年了都淘汰赛光速滚蛋
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

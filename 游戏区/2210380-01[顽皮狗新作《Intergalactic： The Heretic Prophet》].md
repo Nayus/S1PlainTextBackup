@@ -991,3 +991,27 @@ The story is set in an alternative universe ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爆死又如何，GOTY已经板上钉钉了
 
+
+*****
+
+####  性兽阿怪  
+##### 104#       发表于 2024-12-13 16:00
+
+居然还没发售日，这几年顽皮狗干嘛去了，到时候端出来玩家更不买账
+
+
+*****
+
+####  BK10  
+##### 105#       发表于 2024-12-13 16:04
+
+<img src="https://p.sda1.dev/20/bff7fe63fbfa0b4f734ee4b57da1e0e3/1734076778657.jpg" referrerpolicy="no-referrer">
+踩爆加关评论
+
+*****
+
+####  樽——見  
+##### 106#       发表于 2024-12-13 16:06
+
+reddit版清一色闭口不谈丑角+各种角度“我太期待了” 是我逛的板块不对吗
+

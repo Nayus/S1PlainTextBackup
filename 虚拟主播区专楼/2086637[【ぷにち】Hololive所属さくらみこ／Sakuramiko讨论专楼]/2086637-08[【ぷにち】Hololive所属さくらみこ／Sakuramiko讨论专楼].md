@@ -635,3 +635,34 @@ micoco和howawa是miko48在播锁的时候观众给起的外号
 
 ​​おちゅみこ〜
 
+
+*****
+
+####  holoan  
+##### 10412#         楼主| 发表于 2024-12-13 12:54
+
+<img src="https://img.saraba1st.com/forum/202412/13/125457ymj5jzjez2di9vgu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (50.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-13 12:54 上传
+
+？
+
+*****
+
+####  holoan  
+##### 10413#         楼主| 发表于 2024-12-13 15:58
+
+<img src="https://img.saraba1st.com/forum/202412/13/155748e62be06z696rp0h7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (19.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-13 15:57 上传
+
+？？？？？？？
+

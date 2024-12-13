@@ -238,3 +238,20 @@
 
 顺便DMM那个白嫖服袋又来了
 
+
+*****
+
+####  江戸前ルナ  
+##### 1319#         楼主| 发表于 2024-12-13 20:06
+
+蹭热度，拿群友的改了一下
+ <blockquote>凰加纯东京最强
+
+吾妻京实至名归
+
+神宫寺真理年轻十岁也不是不行
+
+卧槽下落合桃歌是谁</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

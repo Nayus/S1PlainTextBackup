@@ -33,3 +33,21 @@
 上工了</blockquote>
 该吃生日饭了绫总
 
+
+*****
+
+####  因为你不会  
+##### 14820#       发表于 2024-12-13 20:17
+
+<img src="https://img.saraba1st.com/forum/202412/13/201453iihewiz028nntwmm.png" referrerpolicy="no-referrer">
+
+<strong>搜狗截图20241213211428.png</strong> (96.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-13 20:14 上传
+
+[https://shop.geekjack.net/zh/col ... set-limited-edition](https://shop.geekjack.net/zh/collections/nakiri-ayame/products/nakiri-ayame-birthday-celebration-2024-merch-complete-set-limited-edition)
+
+绫总生日套餐，刚好可以全部塞单肩包里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

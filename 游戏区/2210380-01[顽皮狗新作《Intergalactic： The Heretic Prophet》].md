@@ -1432,3 +1432,55 @@ UID3546388161890940这个人，味儿挺大的</blockquote>
 好奇这个和超越善恶2哪个会先出来
 以及哪个会暴死得更惨
 
+
+*****
+
+####  frankCC  
+##### 148#       发表于 2024-12-13 18:38
+
+pv在每个频道的踩赞比
+
+TGA
+
+<img src="https://img.saraba1st.com/forum/202412/13/183655zuazku3sa7ak2kih.png" referrerpolicy="no-referrer">
+
+<strong>{D75447A2-6C56-48E8-8505-A3E48633789B}.png</strong> (3.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-13 18:36 上传
+
+IGN
+
+<img src="https://img.saraba1st.com/forum/202412/13/183721sziqiriwqh3itz6w.png" referrerpolicy="no-referrer">
+
+<strong>{F2E07CF8-4561-477E-A428-D2176ADAC56E}.png</strong> (3.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-13 18:37 上传
+
+PlayStation
+
+<img src="https://img.saraba1st.com/forum/202412/13/183819q1fzfe9l1heqz1fb.png" referrerpolicy="no-referrer">
+
+<strong>{81311543-211A-4FC1-B3B4-EA46D8407FFE}.png</strong> (4.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-13 18:38 上传
+
+顽皮狗
+
+<img src="https://img.saraba1st.com/forum/202412/13/183740z1qgnquqh2uqu4gq.png" referrerpolicy="no-referrer">
+
+<strong>{94D889CE-2EB5-42D3-A7F9-E8733A9A20FF}.png</strong> (3.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-13 18:37 上传
+
+并且关了评论区
+
+这下能对比出各个频道的纯度了
+

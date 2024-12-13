@@ -255,3 +255,14 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madcow  
+##### 1320#       发表于 2024-12-13 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66917135&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2024-12-13 15:47</a>
+
+顺便DMM那个白嫖服袋又来了</blockquote>
+跟以前一样PC上开下游戏就行嘛？
+

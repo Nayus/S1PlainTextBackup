@@ -2072,3 +2072,12 @@ FGO有做到無料石負數這參數嗎?它有這技術能力嗎?
 
 2024-12-13 17:32 上传
 
+
+*****
+
+####  alucardcz  
+##### 15402#       发表于 2024-12-13 17:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">突然觉得这游戏没意思了 还有救吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">然后该打90++了
+

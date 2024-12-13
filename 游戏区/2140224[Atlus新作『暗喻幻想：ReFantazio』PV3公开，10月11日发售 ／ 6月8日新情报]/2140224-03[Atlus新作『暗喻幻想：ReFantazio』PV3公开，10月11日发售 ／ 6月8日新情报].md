@@ -307,3 +307,29 @@ GameSpot 2024年度游戏：《暗喻幻想：ReFantazio》 ​​​
 暗喻不给最佳音乐，却能给最佳叙事，sony是懂得端水的</blockquote>
 se的音乐团队一直是一流的，更何况ff7重制还有一部分植松伸夫啊
 
+
+*****
+
+####  wzh5555  
+##### 3638#       发表于 2024-12-13 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66918358&amp;ptid=2140224" target="_blank">MoguuKinoko 发表于 2024-12-13 17:40</a>
+
+se的音乐团队一直是一流的，更何况ff7重制还有一部分植松伸夫啊</blockquote>
+配乐成熟度方面确实7RB强很多，但从编曲独特性方面我觉得暗喻更抓耳，调动情绪的效果也更突出。
+
+7RB除了主题歌之外能让人记忆深刻的并不算多，其中还有不少remix的。
+
+*****
+
+####  Leona_Akari  
+##### 3639#       发表于 2024-12-13 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66918173&amp;ptid=2140224" target="_blank">卡拉德利姆 发表于 2024-12-13 17:23</a>
+《国王肯定是路易啊》
+
+《福登也是众望所归啊》
+
+《蕾拉也是有力竞争者》</blockquote>
+公式做题就是快<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

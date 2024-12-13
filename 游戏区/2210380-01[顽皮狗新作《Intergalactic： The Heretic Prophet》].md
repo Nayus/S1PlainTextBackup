@@ -1271,3 +1271,62 @@ Reddit本来就偏左甚至还有专门的LGBT游戏人群板块
 真孝还得是b站评论区，一共就几万播放前排全是吹“这就是那个技术力第一的公司”的，你敢提一句负面意见直 ...</blockquote>
 gk太多了
 
+
+*****
+
+####  佳奈助  
+##### 134#       发表于 2024-12-13 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66917546&amp;ptid=2210380" target="_blank">nbwjh0630 发表于 2024-12-13 16:26</a></blockquote>
+卖百合就是双方都认可的zzzq，看好大卖
+
+*****
+
+####  TheOccuria  
+##### 135#       发表于 2024-12-13 17:50
+
+只能说我已经想象到这个光头女主角和另一个黑皮脏辫铁t互相磨豆腐的场景了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  樽——見  
+##### 136#       发表于 2024-12-13 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66917668&amp;ptid=2210380" target="_blank">laputah 发表于 2024-12-13 16:37</a>
+
+reddit就是圈子更大一点的豆瓣小组啊</blockquote>
+所以是管理员筛选的结果还是白皮大多数都已经全面拥抱dei
+
+我看的是3.3m members的 r/Games
+
+*****
+
+####  泰坦失足  
+##### 137#       发表于 2024-12-13 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66918477&amp;ptid=2210380" target="_blank">TheOccuria 发表于 2024-12-13 17:50</a>
+
+只能说我已经想象到这个光头女主角和另一个黑皮脏辫铁t互相磨豆腐的场景了 ...</blockquote>
+到底是怎么从美末1 DLC演化到现在这样的....
+
+*****
+
+####  鶴来  
+##### 138#       发表于 2024-12-13 17:55
+
+主人公要是能自定义就好了，演示里的有点丑。
+
+未来科技都那么发达了，没理由不能自定义的吧。
+
+*****
+
+####  ads147147  
+##### 139#       发表于 2024-12-13 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66918505&amp;ptid=2210380" target="_blank">泰坦失足 发表于 2024-12-13 17:54</a>
+到底是怎么从美末1 DLC演化到现在这样的....</blockquote>
+neil这狗比人不就是这样，鱿鱼天然和lgbt一伙呀。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

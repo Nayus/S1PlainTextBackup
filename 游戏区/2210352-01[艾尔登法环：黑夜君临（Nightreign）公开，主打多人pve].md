@@ -1335,3 +1335,11 @@ IGN 中国: 鹰头人守护者这一角色是怎样设计的?印象中《艾尔�
 
 这次预告真的是同人mod即视感，让我想起那个啥合金装备survive，可我寻思宫崎英高也没出走啊
 
+
+*****
+
+####  超极巨鲨鲨  
+##### 146#       发表于 2024-12-13 17:51
+
+为什么看着总有一种合金装备幸存的既视感<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

@@ -2129,3 +2129,25 @@ https://www.bilibili.com/video/BV1BUBMYdEVq
 刚刚录得黑呆单c 最后伤害是溢出的 我估计可以6加成</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5宝黑呆 欧羡慕 菜B滚回90+公主三连去了
 
+
+*****
+
+####  琴酒  
+##### 15408#       发表于 2024-12-13 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66918546&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-12-13 17:59</a>
+
+那么有没有霉B也能用的90++阵容</blockquote>
+借娄自己出宫本伊织 梅林 奥
+
+*****
+
+####  qixinno2  
+##### 15409#       发表于 2024-12-13 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66918889&amp;ptid=2084912" target="_blank">琴酒 发表于 2024-12-13 18:47</a>
+
+借娄自己出宫本伊织 梅林 奥</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要我奥15绊了 看到个用学姐锁卡换人一宝芭娜娜的
+[https://www.bilibili.com/video/BV1kCBMYFErr](https://www.bilibili.com/video/BV1kCBMYFErr)
+

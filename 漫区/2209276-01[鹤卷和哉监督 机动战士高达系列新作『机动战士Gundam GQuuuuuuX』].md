@@ -14979,3 +14979,14 @@ Screen Shot 2024-12-13 at 3.33.14 PM.png
 
 可能小车里有着鸭子的灵魂<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xwz  
+##### 1412#       发表于 2024-12-14 04:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66895358&amp;ptid=2209276" target="_blank">Sliurus 发表于 2024-12-11 11:25</a>
+
+富野片子最大的共同特点应该是节奏，前十集快速发展，中间翻来覆去，后十集匆匆完结。以及不用心理描写来表 ...</blockquote>
+不是跳脱，是富野默认你作为观众也是那个世界观下的一员，所以一个场景中A说一句宫廷玉液酒B就能回一句180一杯，但不会跟你去跟你解释这个梗怎么来的，就好比NT之间比如典型的骡子鸭子两人对话经常前言不搭后语，是因为他俩大部分想说的都直接靠脑电波完成交流了
+

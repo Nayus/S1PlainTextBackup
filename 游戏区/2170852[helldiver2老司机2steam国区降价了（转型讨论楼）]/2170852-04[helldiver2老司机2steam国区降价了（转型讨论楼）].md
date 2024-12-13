@@ -260,3 +260,13 @@ TGA获最佳多人游戏
 
 新债券上了。
 
+
+*****
+
+####  looptube  
+##### 5578#       发表于 2024-12-13 21:34
+
+新债券有点水啊，两个炮塔，一个副武器，一个背包
+
+—— 来自 Xiaomi 23049PCD8G, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

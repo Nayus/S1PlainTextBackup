@@ -1712,3 +1712,17 @@ The story is set in an alternative universe ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  松风君  
+##### 172#       发表于 2024-12-13 21:34
+
+对CB和Akira"致敬"得像个复古未来风做题家，阿迪索尼保时捷符号堆得偏硬
+
+作为顽皮狗的作品显得美学风格不够别致，taste比较一般
+
+同样没有很长也无实机的纯概念展示，对比一下隔壁上田文人和神谷光头就依然突出风格强烈、气质浓郁
+
+某处看见有最后那段"看了五十遍"的情怀粉丝 难道是对于Z世代而言光剑砍萝卜特别时髦吗<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+

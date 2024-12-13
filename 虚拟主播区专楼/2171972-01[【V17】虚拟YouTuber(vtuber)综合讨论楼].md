@@ -751,3 +751,23 @@ gta原来游戏里能拍出这种效果啊，就是剧情闷了点不适合这�
 
 确实つまんね
 
+
+*****
+
+####  lb19931118  
+##### 962#       发表于 2024-12-13 10:23
+
+gta真的不想再看了，玩个雾锁王国之类的也行。
+
+看看明年有没有啥优秀的团建游戏。
+
+*****
+
+####  格林卡罗尔  
+##### 963#       发表于 2024-12-13 10:25
+
+有啊，gta6<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+虽然都是gta，但每届vcrgta安装的mod有区别，玩法都有些变化的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

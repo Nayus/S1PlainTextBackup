@@ -14778,3 +14778,15 @@ Screenshot_20241213_072629_com.sina.weibo.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  940045933  
+##### 1396#       发表于 2024-12-13 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66899453&amp;ptid=2209276" target="_blank">刺客ares 发表于 2024-12-11 19:58</a>
+全篇都已经制作完毕，内部不知道看几遍了吧，能给370+馆还搞藏世界观这种活，应该是对成片挺有信心的，还是 ...</blockquote>
+东宝发行的片大部分都是300多馆的，馆数多没用得看坐席数，坐席数多才能说明看重
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

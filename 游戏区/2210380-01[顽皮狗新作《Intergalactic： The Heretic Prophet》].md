@@ -983,3 +983,11 @@ The story is set in an alternative universe ...</blockquote>
 
 陶德哥哥的星空虽然一坨起码审美还是在线的，顽皮狗这玩意白送我都嫌污染我的硬盘。
 
+
+*****
+
+####  Leona_Akari  
+##### 103#       发表于 2024-12-13 15:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爆死又如何，GOTY已经板上钉钉了
+

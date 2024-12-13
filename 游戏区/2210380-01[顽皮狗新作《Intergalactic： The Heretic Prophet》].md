@@ -962,3 +962,24 @@ Her father is African American, and her mother was born in Korea to a Korean wom
 
 有尼尔深度参与的我是碰都不敢碰了
 
+
+*****
+
+####  ybfelix  
+##### 101#       发表于 2024-12-13 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66914763&amp;ptid=2210380" target="_blank">SergeGlenn 发表于 2024-12-13 12:57</a>
+
+世界设定挺逗，发生在一个1986年人类就实现了太空旅行的宇宙
+
+The story is set in an alternative universe ...</blockquote>
+这不是银河护卫队游戏吗，风格和剧情都是
+
+
+*****
+
+####  Tackstone  
+##### 102#       发表于 2024-12-13 15:43
+
+陶德哥哥的星空虽然一坨起码审美还是在线的，顽皮狗这玩意白送我都嫌污染我的硬盘。
+

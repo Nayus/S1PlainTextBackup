@@ -14871,3 +14871,46 @@ Screenshot_20241213_072629_com.sina.weibo.jpg
 
 其实我怀疑万代是不是就是要弄一些稀奇古怪的外形指着说是高达，然后你们对雪铁龙审美疲劳就会缓解了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RE㐅ia  
+##### 1404#       发表于 2024-12-13 15:41
+
+近四年新作pv推特数据。seed没啥好说的，就是新作点赞浏览这么高不知道是不是水魔引了波流。总之社交媒体热度到底是真热度还是cjb就看这次票房了<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202412/13/154028zvtoipxi59o5vfsq.png" referrerpolicy="no-referrer">
+
+<strong>Screen Shot 2024-12-13 at 3.32.41 PM.png</strong> (127.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-13 15:40 上传
+
+[attachimg]1798814[/attachimg
+
+<img src="https://img.saraba1st.com/forum/202412/13/154030ym9mmemlmyxe1e3e.png" referrerpolicy="no-referrer">
+
+<strong>Screen Shot 2024-12-13 at 3.32.52 PM.png</strong> (131.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-13 15:40 上传
+
+<img src="https://img.saraba1st.com/forum/202412/13/154030xvlsv1uhxavvwzsa.png" referrerpolicy="no-referrer">
+
+<strong>Screen Shot 2024-12-13 at 3.33.06 PM.png</strong> (221.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-13 15:40 上传
+
+Screen Shot 2024-12-13 at 3.33.14 PM.png
+(145.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-13 15:40 上传
+
+<img src="https://img.saraba1st.com/forum/202412/13/154030ie3mwkwt26f11x2e.png" referrerpolicy="no-referrer">
+

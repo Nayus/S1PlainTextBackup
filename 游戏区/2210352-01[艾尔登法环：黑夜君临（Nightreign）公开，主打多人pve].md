@@ -1343,3 +1343,35 @@ IGN 中国: 鹰头人守护者这一角色是怎样设计的?印象中《艾尔�
 
 为什么看着总有一种合金装备幸存的既视感<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  budong  
+##### 147#       发表于 2024-12-13 18:06
+
+怪不得蒙葛特会入侵玩家，原来在他眼里玩家和夜王是一丘之貉，都是外世界来的侵略者
+
+*****
+
+####  另外四分之三  
+##### 148#       发表于 2024-12-13 18:06
+
+防火女啥时候变翁斯坦
+
+*****
+
+####  acropolis  
+##### 149#       发表于 2024-12-13 18:06
+
+小高不做数值平衡的 一个小品作能试水服务型能赚钱还能打磨动作系统和数值，感觉稳赚
+
+*****
+
+####  永远的访客  
+##### 150#       发表于 2024-12-13 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66910686&amp;ptid=2210352" target="_blank">当光停止 发表于 2024-12-13 09:26</a>
+
+没啥兴趣，环的动作系统脱离地图啥的单拉出来弄个游戏我是绝对不会玩的。 ...</blockquote>
+改成王城夺旗战这种呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

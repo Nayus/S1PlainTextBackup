@@ -1358,3 +1358,40 @@ neil这狗比人不就是这样，鱿鱼天然和lgbt一伙呀。
 我看的是3.3m members的 r/Games ...</blockquote>
 不够巨魔，应该看r/saltierthankrayt和r/Gamingcirclejerk........让你见识下什么叫铁血DEI（尤其是后面的Gamingcirclejerk），世间所有人都是错的，只有我们是对的<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  针刺骑士  
+##### 142#       发表于 2024-12-13 18:09
+
+<blockquote>樽——見 发表于 2024-12-13 16:06
+reddit版清一色闭口不谈丑角+各种角度“我太期待了” 是我逛的板块不对吗</blockquote>
+reddit上本来就是极端支持民主党的左派占大多数，可以看看r/politics上都是什么内容
+
+*****
+
+####  ak123  
+##### 143#       发表于 2024-12-13 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66917921&amp;ptid=2210380" target="_blank">pygrads 发表于 2024-12-13 17:01</a>
+
+UID3546388161890940这个人，味儿挺大的</blockquote>
+？这一串是啥，泥潭uid也没那么长啊
+
+没信源就没什么值得讨论的了，这人设已经够典了
+
+
+*****
+
+####  无辄辄  
+##### 144#       发表于 2024-12-13 18:14
+
+这个游戏已经提前预定年度最佳了吧
+
+*****
+
+####  lbb3313725  
+##### 145#       发表于 2024-12-13 18:14
+
+这个光头像极了异形绝命舰里面那个光头亚裔女
+

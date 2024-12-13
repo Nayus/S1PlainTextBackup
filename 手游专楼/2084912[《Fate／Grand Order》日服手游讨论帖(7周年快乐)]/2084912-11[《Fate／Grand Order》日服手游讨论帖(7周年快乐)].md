@@ -2116,3 +2116,16 @@ FGO有做到無料石負數這參數嗎?它有這技術能力嗎?
 
 强化概率提升，LV10是100%了可还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 15407#       发表于 2024-12-13 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66918667&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-13 18:18</a>
+
+https://www.bilibili.com/video/BV1BUBMYdEVq
+
+刚刚录得黑呆单c 最后伤害是溢出的 我估计可以6加成</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5宝黑呆 欧羡慕 菜B滚回90+公主三连去了
+

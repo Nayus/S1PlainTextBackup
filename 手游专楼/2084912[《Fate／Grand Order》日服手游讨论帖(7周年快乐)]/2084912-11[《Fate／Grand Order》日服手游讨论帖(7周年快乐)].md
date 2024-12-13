@@ -2233,3 +2233,33 @@ https://www.bilibili.com/video/BV1BUBMYdEVq
 
 现在知道回收了？ 但你有这本事吗<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qw3434cn  
+##### 15418#       发表于 2024-12-13 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66918546&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-12-13 17:59</a>
+
+那么有没有霉B也能用的90++阵容</blockquote>
+全员一宝，娄希可以换任意一三面能开两炮的光炮。
+
+代价是要看五个宝具<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202412/13/225759muo5gx22qu77i55s.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>90657EA4-7FB7-4E15-8314-64FDE7823228.jpeg</strong> (103.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-13 22:57 上传
+
+*****
+
+####  eilot  
+##### 15419#       发表于 2024-12-13 23:03
+
+再用多90石
+
+1隻婁希(寶3)、一隻罗摩(實5)、一隻法閃閃(寶4)
+

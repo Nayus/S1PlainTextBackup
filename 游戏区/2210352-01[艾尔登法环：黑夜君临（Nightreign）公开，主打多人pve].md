@@ -1713,3 +1713,13 @@ goty没让我破防，这玩意给我干破防了
 
 看着没啥兴趣，感觉是个为了直播设计的游戏
 
+
+*****
+
+####  大暗月  
+##### 187#       发表于 2024-12-13 22:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天一个奖没捞着的仇明年让索爹塞钱报！
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

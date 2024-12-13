@@ -1808,3 +1808,20 @@ Her father is African Amer ...</blockquote>
 
 感觉美术完成度不如星鸣特攻<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  animal_k  
+##### 182#       发表于 2024-12-14 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66913377&amp;ptid=2210380" target="_blank">moeful 发表于 2024-12-13 11:59</a>
+那pv真的看的我一头雾水，直到文字出现</blockquote>
+看到文字就更懵逼了
+
+*****
+
+####  hu794  
+##### 183#       发表于 2024-12-14 00:44
+
+之前就看了个标题没看预告，刚看完预告，我靠还真是土中土，比土还土，土得无聊，土到极致了，没有一丝亮点的土。
+

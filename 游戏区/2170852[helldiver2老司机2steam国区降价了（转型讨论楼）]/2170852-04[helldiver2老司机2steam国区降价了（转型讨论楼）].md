@@ -221,3 +221,24 @@ TGA获最佳多人游戏
 
 大棍光能有点东西，近战给你一棍干成布娃娃，人还没站起来又一棍，无限连到死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  半分宅  
+##### 5574#       发表于 2024-12-13 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66916018&amp;ptid=2170852" target="_blank">Jyions 发表于 2024-12-13 02:22</a>
+
+拿着弩和类星体进n10光能族任务被打的嗷嗷叫，三足和飞船的护盾真的不能拿类星体打 ...</blockquote>
+护盾用速射武器先破。
+
+*****
+
+####  FLZB  
+##### 5575#       发表于 2024-12-13 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66916022&amp;ptid=2170852" target="_blank">DawnGuardian 发表于 2024-12-13 14:23</a>
+
+好像就是联动武器，这次不是致敬了</blockquote>
+武器名字搜了下确实就是杀戮地带，难怪这么眼熟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

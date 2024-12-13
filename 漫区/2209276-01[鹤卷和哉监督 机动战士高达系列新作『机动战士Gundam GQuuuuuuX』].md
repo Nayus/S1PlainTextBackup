@@ -14839,3 +14839,19 @@ Screenshot_20241213_072629_com.sina.weibo.jpg
 [https://youtu.be/Nrrp2vXddgk](https://youtu.be/Nrrp2vXddgk)
 <img src="https://p.sda1.dev/20/93b9236804d02295835a5529adbb6f37/20241213_131702.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刺客ares  
+##### 1401#       发表于 2024-12-13 15:11
+
+<img src="https://img.saraba1st.com/forum/202412/13/151028kzv6ip8q368emn0c.png" referrerpolicy="no-referrer">
+
+<strong>5ac3ab4a039e148339f70bacc4a0b95.png</strong> (675.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-13 15:10 上传
+
+推上有人发现了驾驶服配色致敬，痞子塞cca私货是吧
+

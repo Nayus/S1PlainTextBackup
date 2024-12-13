@@ -128,3 +128,23 @@
 
 tmy这一年是不是完全没来过邦邦相关节目<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 26649#       发表于 2024-12-13 10:02
+
+ 本帖最后由 Aendst 于 2024-12-13 10:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66892927&amp;ptid=2159415" target="_blank">L-JoeW 发表于 2024-12-10 23:55</a>
+
+今天补完了第一部，爽世刚开始一直默默谋划借尸还魂，我原来以为是时间线拉的很长、有很深刻的羁绊，结果往 ...</blockquote>
+漏油的感觉是完全正确的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+之前有漏油推算过具体的时间轴，crychic成立基本上只有两周时间
+
+然后这和mujica ep1里的一些细节也是相吻合的，成员之间并没有很熟
+
+爽世的理解也是没问题的，mygo篇中表现出来的这个角色的行为核心动机就是寻求归宿，在crychic这个小社团里她能够以习以为常的社交面具轻松融入
+
+她确实很喜欢crychic这个是可以肯定的，但是具体评价见仁见智吧
+

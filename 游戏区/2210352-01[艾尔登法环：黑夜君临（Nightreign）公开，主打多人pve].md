@@ -441,3 +441,59 @@ wtf?
 
 有一说一 从片子的水平看感觉不太行 像便宜MOD 不是说同时在开发好几个游戏吗 明年就拿这个撑场子了？
 
+
+*****
+
+####  trentswd  
+##### 49#       发表于 2024-12-13 09:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">虽然魂一直都有联机，但是单人游戏加联机功能，和多人pve在底层逻辑上就是不同的，感觉最后出来的会是感觉完全不同的游戏
+
+*****
+
+####  丹德里恩  
+##### 50#       发表于 2024-12-13 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66911085&amp;ptid=2210352" target="_blank">冲锋是我的信仰 发表于 2024-12-13 09:54</a>
+
+真让fs和卡普空比多人共斗
+
+流汗的该是小高吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">法环的无缝联机mod火得一笔，如果能靠ip再骗来人连带着喊兄弟的话，数据不会难看的
+
+至于卡婊，先把荒野的优化整好再说别的
+
+*****
+
+####  v13  
+##### 51#       发表于 2024-12-13 10:00
+
+随机大地图捡武器合作生存打随机 boss 
+
+
+*****
+
+####  CswStar  
+##### 52#       发表于 2024-12-13 10:04
+
+坚决不玩，魂ptsd中，小高还是赶快开发新ip吧
+
+*****
+
+####  史蒂符  
+##### 53#       发表于 2024-12-13 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66911150&amp;ptid=2210352" target="_blank">丹德里恩 发表于 2024-12-13 09:59</a>
+ 法环的无缝联机mod火得一笔，如果能靠ip再骗来人连带着喊兄弟的话，数据不会难看的 至于卡婊，先把荒野的 ...</blockquote>
+难绷魂友特有的自信
+
+*****
+
+####  Lisylfn  
+##### 54#       发表于 2024-12-13 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66911134&amp;ptid=2210352" target="_blank">trentswd 发表于 2024-12-13 09:58</a>
+
+虽然魂一直都有联机，但是单人游戏加联机功能，和多人pve在底层逻辑上就是不同的，感觉最后出来的会是感觉 ...</blockquote>
+看他这个只能1人或者3人不能双人就幽默完了好吧，联机mod水平都比他高，还保证了一定的游戏性
+

@@ -2522,3 +2522,14 @@ MEM对应的是萝 Lisa
 
 祥子看起来比其他人小了至少一两岁<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好重的妹系角色气息
 
+
+*****
+
+####  oldgoat  
+##### 3184#       发表于 2024-12-13 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66911793&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-13 10:36</a>
+
+祥子看起来比其他人小了至少一两岁好重的妹系角色气息</blockquote>
+睦还好，另外两位同级生是长得有点着急，或者一看就是被社会摔打过了……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1642,3 +1642,47 @@ goty没让我破防，这玩意给我干破防了
 没什么，只是怀疑我真的在看小高魂游的情报吗</blockquote>
 话说这游戏真的差不多做好了，二月份就有网络测试了
 
+
+*****
+
+####  陛下欲反邪  
+##### 179#       发表于 2024-12-13 22:19
+
+但是有一说一，我记得小高在某个采访里，记者问他作为开创了一个游戏类型的带明星，你最关注哪个新游戏，觉得哪个游戏类型最有可能引领新潮流，小高当时说的是吃鸡，所以真不好说是不是代哥逼的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  acg_s1  
+##### 180#       发表于 2024-12-13 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66920220&amp;ptid=2210352" target="_blank">桥洞底下盖小被 发表于 2024-12-13 22:00</a>
+
+没什么，只是怀疑我真的在看小高魂游的情报吗</blockquote>
+这游戏是魂游但监督不是小高
+
+*****
+
+####  x.cat  
+##### 181#       发表于 2024-12-13 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66911439&amp;ptid=2210352" target="_blank">mumulyn 发表于 2024-12-13 10:17</a>
+应该就是有限时的生存游戏，农装备打boss，一局40分钟左右，刷出的装备可能是随机的，应该有点意思 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">粗略想了想感觉一点都不好玩
+
+*****
+
+####  chaucerling  
+##### 182#       发表于 2024-12-13 22:25
+
+吃鸡有个类似的dad，不过这个仅pve估计没啥花活
+
+*****
+
+####  HATENA  
+##### 183#       发表于 2024-12-13 22:25
+
+<blockquote>Xkarl 发表于 2024-12-13 22:11
+魂2魂3就是这样来的，甚至魂2都没做完就立项魂3了</blockquote>
+那你别做嘛，又没有强制合同，要不干脆ac6也是代哥要卖30ms逼fs做的？
+

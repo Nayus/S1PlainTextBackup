@@ -158,3 +158,11 @@ TGA弱智梗图<img src="https://static.saraba1st.com/image/smiley/face2017/065.
 
 <img src="https://img30.360buyimg.com/myjd/jfs/t20271213/250319/28/21805/103406/675bca3fF3e8c25aa/7896a6a100961e85.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  H2Ofrozen  
+##### 26651#       发表于 2024-12-13 22:22
+
+R这新曲也太舒服了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">连听了两天，这riff这lick....prog的不像是R。双贝斯都玩出花来了，ykn你也要当贝斯主唱吗
+

@@ -1981,3 +1981,27 @@ bungie脚刹完tlou2多人，顽皮狗就整出了这个，bungie罪大恶极。
 
 2024-12-14 06:21 上传
 
+
+*****
+
+####  泰坦失足  
+##### 195#       发表于 2024-12-14 07:08
+
+当年我还狠狠地黑343的脸部模型和动作有大问题，现在看来也不是不行。
+
+<img src="https://img.saraba1st.com/forum/202412/14/070718jyeez3d70xzvce0y.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.06 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 07:07 上传
+
+<img src="https://img.saraba1st.com/forum/202412/14/070745zk6zl65fyee6gceh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.09 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 07:07 上传
+

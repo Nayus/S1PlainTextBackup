@@ -2007,3 +2007,11 @@ FGO有做到無料石負數這參數嗎?它有這技術能力嗎?
 
 歪皇女，4宝了<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 15395#       发表于 2024-12-13 07:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">30石毛都没出 快炎上
+

@@ -1622,3 +1622,39 @@ reddit上本来就是极端支持民主党的左派占大多数，可以看看r/
 太像新异形那个亚裔了，导致还以为是异形游戏</blockquote>
 沒有那個演員順眼，那個人家就長那樣，這個太刻意了
 
+
+*****
+
+####  缺德猫  
+##### 164#       发表于 2024-12-13 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66919289&amp;ptid=2210380" target="_blank">hu794 发表于 2024-12-13 19:43</a>
+
+这片播放量好像很低，关注的人很少。</blockquote>
+換成韓式大美妞也白費，片子本身不行
+
+*****
+
+####  outerish  
+##### 165#       发表于 2024-12-13 20:35
+
+<img src="https://img.saraba1st.com/forum/202412/13/202829r242i2q0s85y0428.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (484.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-13 20:28 上传
+
+绝命律师的Lalo Salamanca和硅谷的Dinesh，另外两个认不出来，选角还蛮不错的
+
+如果顽皮狗能保持人物描写的水准，这小队应该很有趣
+
+*****
+
+####  鸟大爷  
+##### 166#       发表于 2024-12-13 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66917546&amp;ptid=2210380" target="_blank">nbwjh0630 发表于 2024-12-13 16:26</a></blockquote>
+他应该是真把自己当成个在全世界都有影响力的什么艺术家了，看着真令人感到不适
+

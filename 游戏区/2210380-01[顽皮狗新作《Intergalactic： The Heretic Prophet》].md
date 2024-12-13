@@ -1492,3 +1492,26 @@ PlayStation
 
 片是真不行
 
+
+*****
+
+####  激励哥.丘比  
+##### 150#       发表于 2024-12-13 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66914486&amp;ptid=2210380" target="_blank">liyingdao 发表于 2024-12-13 12:44</a>
+我对dei倒是没什么意见，但怎么能这么土，80s不应该是最潮最in的玩意吗，这片子的审美从各种方面都已经是土 ...</blockquote>
+以前看过一个讲时尚潮流历史的视频 视频里的老外就一直吐槽80年代是审美最俗最烂的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  激励哥.丘比  
+##### 151#       发表于 2024-12-13 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66915082&amp;ptid=2210380" target="_blank">雪菜碧池 发表于 2024-12-13 13:18</a>
+巫师4才是土中土，流水线作文一样</blockquote>
+土但是稳啊 巫师都讲3部了 按部就班来的话稳的一批
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

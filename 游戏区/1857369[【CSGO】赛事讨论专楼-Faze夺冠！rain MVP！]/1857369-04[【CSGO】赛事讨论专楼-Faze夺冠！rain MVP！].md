@@ -68,3 +68,44 @@ Niko那图二防守3.44的rating，回合均伤200多，什么超人<img src="ht
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  Eric_方歌阙  
+##### 4582#       发表于 2024-12-13 21:16
+
+还得是Niko，越老越硬
+
+好像Faze也是哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  奈纪亚美  
+##### 4583#       发表于 2024-12-13 21:20
+
+小孩呀，来点哥本哈根的牛劲吧
+
+*****
+
+####  plok201  
+##### 4584#       发表于 2024-12-13 21:21
+
+我看大部分人选8进4都是老鼠，绿龙，G2，小蜜蜂吧
+
+怎么就你一个拉了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  朔方原的星  
+##### 4585#         楼主| 发表于 2024-12-13 21:24
+
+别急，看明天G2也拉个大的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lorraine_Kinney  
+##### 4586#       发表于 2024-12-13 21:24
+
+FAZE这场看爽了，就喜欢看热门队吃瘪
+

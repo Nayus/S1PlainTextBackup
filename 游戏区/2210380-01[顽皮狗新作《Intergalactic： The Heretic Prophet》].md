@@ -1702,3 +1702,13 @@ The story is set in an alternative universe ...</blockquote>
 
 见真章要等下一个拨片，最近ND的几个游戏都是第二次才上长段gameplay，当年TLOU1公布的反应其实也就是“another zombie game”
 
+
+*****
+
+####  脸宽  
+##### 171#       发表于 2024-12-13 21:21
+
+卖相太差了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

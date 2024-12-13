@@ -630,3 +630,57 @@ wtf?
 
 艾尔登法环破坏者3 ←now<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  acg_s1  
+##### 70#       发表于 2024-12-13 10:27
+
+[https://www.youtube.com/watch?v=FU5399l8-eU](https://www.youtube.com/watch?v=FU5399l8-eU)
+
+Elden Ring Nightreign hands-on: 10 takeaways from playing in Japan
+
+nightreign的介绍来了
+
+*****
+
+####  budong  
+##### 71#       发表于 2024-12-13 10:28
+
+是的，白天的敌人基本上就是 ELDEN RING 中的敌人。 ELDEN RING BOSS 也会出现，但不是全部。 特别是因为“半神”与“艾尔登法环”的故事密切相关...... 从这里开始，我将保密。 这并不意味着它根本不会出来。
+
+DARK SOULS 系列中也会有少量敌人。 从设定上来说，他似乎因为受到了原版夜王的影响，从其他世界抽调过来的。
+
+在 ELDEN RING NIGHTREIGN 中，我们重视各种事物在夜间攻击的混乱感。 从这个意义上说，我认为有来自另一个世界的敌人会很有趣，所以我决定让宫崎骏和《黑暗之魂 II》的导演谷村（谷村结衣）出现。
+
+*****
+
+####  aimujie  
+##### 72#       发表于 2024-12-13 10:29
+
+老头环：荒野<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mumulyn  
+##### 73#       发表于 2024-12-13 10:30
+
+好了，宫崎英高进游戏，有仇报仇，有冤报冤
+
+
+*****
+
+####  东方定助  
+##### 74#       发表于 2024-12-13 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66911628&amp;ptid=2210352" target="_blank">budong 发表于 2024-12-13 10:28</a>
+
+是的，白天的敌人基本上就是 ELDEN RING 中的敌人。 ELDEN RING BOSS 也会出现，但不是全部。 特别是因为“ ...</blockquote>
+DARK SOULS 系列中也会有少量敌人。 从设定上来说，他似乎因为受到了原版夜王的影响，从其他世界抽调过来的。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+高情商：从其他世界抽调过来的。
+
+低情商：素材复用
+

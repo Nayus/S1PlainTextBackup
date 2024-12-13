@@ -1845,3 +1845,14 @@ Her father is African Amer ...</blockquote>
 
 但看到这张充欧美白皮刻板印象的大饼脸,实在没兴趣期待了.
 
+
+*****
+
+####  日日日日日野  
+##### 186#       发表于 2024-12-14 01:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66919848&amp;ptid=2210380" target="_blank">SergeGlenn 发表于 2024-12-13 21:11</a>
+
+见真章要等下一个拨片，最近ND的几个游戏都是第二次才上长段gameplay，当年TLOU1公布的反应其实也就是“ano ...</blockquote>
+见真章归见真章，TLOU那个好歹我知道我核心要玩的是打僵尸，这个就。。。向外界展示地有点糟糕了，而且还挺长
+

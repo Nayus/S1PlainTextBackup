@@ -297,3 +297,11 @@ TGA获最佳多人游戏
 
 B站发现有新预告,边看边分享给群友后发现out now<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xinfengj  
+##### 5582#       发表于 2024-12-14 01:45
+
+持续输出型武器克制光能护盾，试了试感觉镰刀配激光笔挺好用，打三足镰刀破盾然后激光笔点头
+

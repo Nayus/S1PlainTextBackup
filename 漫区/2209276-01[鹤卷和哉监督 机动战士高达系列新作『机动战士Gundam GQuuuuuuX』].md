@@ -14863,3 +14863,11 @@ Screenshot_20241213_072629_com.sina.weibo.jpg
 
 主视觉图挺好看的<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  失落之翼  
+##### 1403#       发表于 2024-12-13 15:35
+
+其实我怀疑万代是不是就是要弄一些稀奇古怪的外形指着说是高达，然后你们对雪铁龙审美疲劳就会缓解了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

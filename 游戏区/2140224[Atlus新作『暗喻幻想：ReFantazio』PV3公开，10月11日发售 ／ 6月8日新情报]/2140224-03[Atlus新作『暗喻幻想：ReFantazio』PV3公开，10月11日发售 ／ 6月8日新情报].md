@@ -240,3 +240,15 @@ GameSpot 2024年度游戏：《暗喻幻想：ReFantazio》 ​​​
 
 明年出个皇家版不干翻你什么gta
 
+
+*****
+
+####  毛利提督  
+##### 3632#       发表于 2024-12-13 15:27
+
+不是，暗喻幻想音乐怎么可能打得过FF7RB啊，FF7RB就这个奖绝对是值得的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+暗喻的最佳叙事最佳RPG纯粹占了对手足够烂的便宜，RPG纯五个病人肉搏
+
+叙事也就寂静岭2勉强可以说道说道，只能说今年游戏在RPG和叙事这块确实乏善可陈，搞得给暗喻这种坑货的都显得不是问题最大的
+

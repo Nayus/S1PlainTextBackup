@@ -181,3 +181,23 @@ GameSpot 2024年度游戏：《暗喻幻想：ReFantazio》 ​​​
 
 你们这些a黑 都给我跪下！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罗克萨斯  
+##### 3626#       发表于 2024-12-13 12:04
+
+猜错了，唉。。。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  罗克萨斯  
+##### 3626#       发表于 2024-12-13 12:04
+
+猜错了，唉。。。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

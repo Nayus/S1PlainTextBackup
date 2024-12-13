@@ -892,3 +892,35 @@ Her father is African American, and her mother was born in Korea to a Korean wom
 
 很烦这种皮似骨非的玩意儿<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Shiki_SW  
+##### 93#       发表于 2024-12-13 14:36
+
+笑死
+
+<img src="https://img.saraba1st.com/forum/202412/13/143625jbtk44z9ym4dyfdt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241213_073323_com.twitter.android.jpg</strong> (152.36 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-13 14:36 上传
+
+*****
+
+####  L.L  
+##### 94#       发表于 2024-12-13 14:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这卖相+奇迹2欠的债也要还了，恭祝暴死。
+
+
+*****
+
+####  zzy516232108  
+##### 95#       发表于 2024-12-13 14:45
+
+不是，这游戏到底做的什么……
+

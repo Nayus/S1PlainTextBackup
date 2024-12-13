@@ -2050,3 +2050,11 @@ FGO有做到無料石負數這參數嗎?它有這技術能力嗎?
 
 有没有可能你们在第一层，螺旋社在第七层，本来就是搞个大活弄点关注度？<img src="https://static.saraba1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 15400#       发表于 2024-12-13 14:40
+
+妈的又歪小太阳，0.8还是太低了<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+

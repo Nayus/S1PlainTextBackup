@@ -2023,3 +2023,11 @@ FGO有做到無料石負數這參數嗎?它有這技術能力嗎?
 
 看来是要冷处理了，从此fgo多了一批不充钱也能爽抽的人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 15397#       发表于 2024-12-13 09:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有的人变成婆罗门，爽吃bug，有的人变成贱民不得入内
+

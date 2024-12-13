@@ -2096,3 +2096,23 @@ FGO有做到無料石負數這參數嗎?它有這技術能力嗎?
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">试了手上各个打手伤害不够都要打暴击，开始用别人打手试试看
 
+
+*****
+
+####  alucardcz  
+##### 15405#       发表于 2024-12-13 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66918546&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-12-13 17:59</a>
+
+那么有没有霉B也能用的90++阵容</blockquote>
+[https://www.bilibili.com/video/BV1BUBMYdEVq](https://www.bilibili.com/video/BV1BUBMYdEVq)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">刚刚录得黑呆单c 最后伤害是溢出的 我估计可以6加成
+
+*****
+
+####  希望之花  
+##### 15406#       发表于 2024-12-13 18:21
+
+强化概率提升，LV10是100%了可还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

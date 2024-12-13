@@ -1949,3 +1949,35 @@ bungie脚刹完tlou2多人，顽皮狗就整出了这个，bungie罪大恶极。
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  SergeGlenn  
+##### 194#       发表于 2024-12-14 06:21
+
+小岛去顽皮狗了，而且发的推疑似在做扫描，看来游戏里会客串角色？
+
+<img src="https://img.saraba1st.com/forum/202412/14/062058bje9p8ef6i28u112.png" referrerpolicy="no-referrer">
+
+<strong>1000006053.png</strong> (63.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 06:20 上传
+
+<img src="https://img.saraba1st.com/forum/202412/14/062058uaocts2nz9l65tpn.png" referrerpolicy="no-referrer">
+
+<strong>1000006054.png</strong> (78.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 06:20 上传
+
+<img src="https://img.saraba1st.com/forum/202412/14/062119xd7lmn778adeng78.jpg" referrerpolicy="no-referrer">
+
+<strong>1000006056.jpg</strong> (117.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 06:21 上传
+

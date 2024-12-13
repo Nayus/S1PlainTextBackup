@@ -305,3 +305,14 @@ B站发现有新预告,边看边分享给群友后发现out now<img src="https:/
 
 持续输出型武器克制光能护盾，试了试感觉镰刀配激光笔挺好用，打三足镰刀破盾然后激光笔点头
 
+
+*****
+
+####  哈毛  
+##### 5583#       发表于 2024-12-14 01:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66912360&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-12-13 13:09</a>
+
+解包新装备</blockquote>
+这几把都是Killzone的经典枪了，其实从一开始就在想KZ的Helghast皮肤套在老司机2可比现在的帅多了
+

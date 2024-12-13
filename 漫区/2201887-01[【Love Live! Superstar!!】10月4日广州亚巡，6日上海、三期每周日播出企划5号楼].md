@@ -12370,3 +12370,15 @@ nagi新曲倒不错，就是那段rap<img src="https://static.saraba1st.com/imag
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  lanslort  
+##### 1211#       发表于 2024-12-14 01:53
+
+莲有什么不能出动画的，不如说出动画才是让三次元跟二次元不脱节的最好方法，手游嘛似了就似了
+
+剧情当然要改，大纲可以不变，新歌肯定也得有，但也不妨碍关键剧情插几首老歌的live，反正也是拉拉传统
+
+不过新团确实该出了，不管是按正作5年一代还是算上分支2~3年一代，明年都该公布新的亲女儿团了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">　
+

@@ -12325,3 +12325,11 @@ nagi新曲倒不错，就是那段rap<img src="https://static.saraba1st.com/imag
 音乐剧：浅井七海
 <img src="https://p.sda1.dev/20/e677249db685c083b0177bd491528340/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViyViy  
+##### 1207#       发表于 2024-12-13 21:37
+
+12的图都漏了，虽然就一张，不过，为啥合照有三巨头<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

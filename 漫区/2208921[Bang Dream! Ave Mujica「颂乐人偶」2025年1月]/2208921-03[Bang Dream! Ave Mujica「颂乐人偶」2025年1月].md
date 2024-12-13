@@ -2395,3 +2395,14 @@ MEM对应的是萝 Lisa
 
 真和老老登和解，也肯定是因为亲情的关系，而不是继承权这类和乐队无关的事。
 
+
+*****
+
+####  6030sylar  
+##### 3174#       发表于 2024-12-13 08:13
+
+<img src="https://p.sda1.dev/20/ccb8c0423472cc39e19e434b519b5d6e/CMP_20241213081155189.png" referrerpolicy="no-referrer">
+很牙白
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

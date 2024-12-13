@@ -296,3 +296,14 @@ GameSpot 2024年度游戏：《暗喻幻想：ReFantazio》 ​​​
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  MoguuKinoko  
+##### 3637#       发表于 2024-12-13 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66914266&amp;ptid=2140224" target="_blank">wzh5555 发表于 2024-12-13 12:33</a>
+
+暗喻不给最佳音乐，却能给最佳叙事，sony是懂得端水的</blockquote>
+se的音乐团队一直是一流的，更何况ff7重制还有一部分植松伸夫啊
+

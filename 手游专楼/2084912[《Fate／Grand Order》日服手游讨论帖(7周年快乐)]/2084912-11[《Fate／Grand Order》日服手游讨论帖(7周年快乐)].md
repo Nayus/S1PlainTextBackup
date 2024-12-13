@@ -2015,3 +2015,11 @@ FGO有做到無料石負數這參數嗎?它有這技術能力嗎?
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">30石毛都没出 快炎上
 
+
+*****
+
+####  直钩  
+##### 15396#       发表于 2024-12-13 09:20
+
+看来是要冷处理了，从此fgo多了一批不充钱也能爽抽的人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

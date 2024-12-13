@@ -2435,3 +2435,11 @@ MEM对应的是萝 Lisa
 
 家里有个上次罗森联动拿的挑染型高松灯冰箱贴，和Tokyo Anon凑不上了这下<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 3178#       发表于 2024-12-13 09:15
+
+邦能不能活到祥子高中毕业都还不知道呢，纯背景板的东西真要发散还是去找二创吧
+

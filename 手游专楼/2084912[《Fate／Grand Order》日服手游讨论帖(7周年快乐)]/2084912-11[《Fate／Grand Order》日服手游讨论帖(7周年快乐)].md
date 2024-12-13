@@ -2271,3 +2271,47 @@ https://www.bilibili.com/video/BV1BUBMYdEVq
 
 怎么一晚上没见过人聊剧情 没有大的吗
 
+
+*****
+
+####  khxooo  
+##### 15421#       发表于 2024-12-14 00:13
+
+20吃，两张满破，礼装掉落还可以<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 15422#       发表于 2024-12-14 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66920651&amp;ptid=2084912" target="_blank">qw3434cn 发表于 2024-12-13 23:01</a>
+
+全员一宝，娄希可以换任意一三面能开两炮的光炮。
+
+代价是要看五个宝具</blockquote>
+那为什么2号C呆不直接换奥伯龙？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 15423#       发表于 2024-12-14 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66920651&amp;ptid=2084912" target="_blank">qw3434cn 发表于 2024-12-13 23:01</a>
+
+全员一宝，娄希可以换任意一三面能开两炮的光炮。
+
+代价是要看五个宝具</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没汇呆 而且我C呆也15绊了
+
+
+*****
+
+####  eilot  
+##### 15424#       发表于 2024-12-14 00:23
+
+狂娜、殺狐和奧伯都絆15...
+
+娄希的話，又不見其他人掛師傅和裁師傅
+
+單拼支援後的輸出的話，師傅和裁師傅那個比較高
+

@@ -1785,3 +1785,11 @@ Her father is African Amer ...</blockquote>
 
 "顽皮狗就tama做这个啊握草<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">"
 
+
+*****
+
+####  八佾舞于潭  
+##### 179#       发表于 2024-12-14 00:15
+
+这 DEI 渲染建模感觉和复古风的受众不太重合，固有顽皮狗受众更想看类似美剧的，取了个交集遇冷。
+

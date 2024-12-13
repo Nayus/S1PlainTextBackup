@@ -1164,3 +1164,35 @@ reddit就是圈子更大一点的豆瓣小组啊
 有信息来源么，不过这个好像确实是最新版的华裔女规训造型，连老毕的留学女儿都长差不多这样 ...</blockquote>
 UID3546388161890940这个人，味儿挺大的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ybfelix  
+##### 123#       发表于 2024-12-13 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66917574&amp;ptid=2210380" target="_blank">mimighost 发表于 2024-12-13 16:29</a>
+
+联动隔壁为啥国内媒体不被尊重
+
+这明显是个洋葱新闻</blockquote>
+这就跟“宫崎英高小时候...”定型文段子一样，会有人当真，恐怕连发的人自己都没想到<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  shimotsuki14  
+##### 124#       发表于 2024-12-13 17:16
+
+不是，人设就非得做成这种样子吗。
+
+顽皮狗精神上完了
+
+*****
+
+####  lilisipis  
+##### 125#       发表于 2024-12-13 17:17
+
+<blockquote>laputah 发表于 2024-12-13 16:37
+reddit就是圈子更大一点的豆瓣小组啊</blockquote>
+Reddit本来就偏左甚至还有专门的LGBT游戏人群板块
+

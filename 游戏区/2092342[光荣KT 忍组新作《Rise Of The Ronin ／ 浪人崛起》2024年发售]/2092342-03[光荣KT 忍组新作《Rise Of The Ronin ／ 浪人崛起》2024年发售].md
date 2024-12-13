@@ -84,3 +84,18 @@ MD我白等四个小时<img src="https://static.saraba1st.com/image/smiley/face2
 
 光荣宁愿做个2d忍龙新作，也不愿继续给浪人搽屁股了<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  空气先生  
+##### 3285#       发表于 2024-12-13 17:15
+
+我还等了好久DLC，等上PC版看看SD兼容性吧，PS5虽然打完了但是开放世界的刷刷刷要素还是想要用掌机体验
+
+*****
+
+####  monikaca  
+##### 3286#       发表于 2024-12-13 17:17
+
+看样子这个IP是被放弃了。
+

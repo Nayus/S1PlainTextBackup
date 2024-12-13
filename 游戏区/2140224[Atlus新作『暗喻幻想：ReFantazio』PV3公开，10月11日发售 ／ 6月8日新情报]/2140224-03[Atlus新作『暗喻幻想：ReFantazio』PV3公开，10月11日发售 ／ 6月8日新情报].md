@@ -150,3 +150,11 @@ GameSpot 2024年度游戏：《暗喻幻想：ReFantazio》 ​​​
 
 通关了，hard难度最终boss实在打不了了，改了那个最低的可以复活的难度通了，最后玩的不太好，coop都差一个人没刷满，糊里糊涂的就结束了
 
+
+*****
+
+####  星野航  
+##### 3622#       发表于 2024-12-13 10:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">桥野桂：看看哥这传销才能
+

@@ -716,3 +716,18 @@ DARK SOULS 系列中也会有少量敌人。 从设定上来说，他似乎因�
 
 能单人能三人不能双人玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  karastar  
+##### 79#       发表于 2024-12-13 10:50
+
+感觉是外传奶粉作<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  南猫猫猫猫  
+##### 80#       发表于 2024-12-13 10:51
+
+联机能选NPC吗？难道是上3个褪色者<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

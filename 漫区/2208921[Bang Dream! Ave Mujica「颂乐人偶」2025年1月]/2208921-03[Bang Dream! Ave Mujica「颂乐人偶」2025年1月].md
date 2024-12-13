@@ -2851,3 +2851,16 @@ mujica基本上可以确定是要去ring常驻的（最直接的理由就是手�
 
 常驻不一定常驻，至少频率不会有非出道乐队那么高，参考pp是公司训练室和circle都去，大概就是公司安排训练了去公司，没安排想练习就去ring的情况
 
+
+*****
+
+####  Akari  
+##### 3216#       发表于 2024-12-13 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66916889&amp;ptid=2208921" target="_blank">NODY 发表于 2024-12-13 15:29</a>
+
+mujica基本上可以确定是要去ring常驻的（最直接的理由就是手游卡面二都是和livehouse工作人员聊天）
+
+就是不 ...</blockquote>
+此事偶像大师中木星组也有记载
+

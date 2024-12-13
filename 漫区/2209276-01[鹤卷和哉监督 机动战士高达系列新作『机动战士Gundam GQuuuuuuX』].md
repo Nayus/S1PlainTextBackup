@@ -14930,3 +14930,13 @@ Screen Shot 2024-12-13 at 3.33.14 PM.png
 
 为什么和镇暴扎古打，殖民卫星都烂了，这作不会最后发展成反抗吉翁统治的游击队吧（
 
+
+*****
+
+####  Toby_dak  
+##### 1407#       发表于 2024-12-13 16:53
+
+这PV味太冲了，这字体这配乐这运镜，身为EVA信者表示既视感爆表<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.37)
+

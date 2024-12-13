@@ -905,3 +905,28 @@ pve？
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  史蒂符  
+##### 101#       发表于 2024-12-13 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66913692&amp;ptid=2210352" target="_blank">lb19931118 发表于 2024-12-13 12:09</a>
+ 环好歹一个2500w销量，别人觉得玩的人不会少也要难崩一下么。</blockquote>
+回得是他前一句汗流浃背和这一句放一起看
+
+*****
+
+####  Max·零式  
+##### 102#       发表于 2024-12-13 13:00
+
+这pv里的地图看起来不像是单纯的PVE啊
+
+
+*****
+
+####  史蒂符  
+##### 103#       发表于 2024-12-13 13:02
+
+boss动作和韧性是不是要大改，不然真经不住三个人砍吧
+

@@ -232,3 +232,11 @@ GameSpot 2024年度游戏：《暗喻幻想：ReFantazio》 ​​​
 
 暗喻不给最佳音乐，却能给最佳叙事，sony是懂得端水的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  u2deack  
+##### 3631#       发表于 2024-12-13 12:57
+
+明年出个皇家版不干翻你什么gta
+

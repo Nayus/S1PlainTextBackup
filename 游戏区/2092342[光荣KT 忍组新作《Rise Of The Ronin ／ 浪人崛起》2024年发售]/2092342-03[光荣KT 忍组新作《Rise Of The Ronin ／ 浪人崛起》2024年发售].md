@@ -50,3 +50,13 @@
 
 散了吧，目标几百万销量大作成了暗荣弃子其实也挺搞笑的
 
+
+*****
+
+####  医生狼多  
+##### 3281#       发表于 2024-12-13 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66700887&amp;ptid=2092342" target="_blank">医生狼多 发表于 2024-11-15 11:11</a>
+爆料源是lunatic，准确率堪忧，看看就行</blockquote>
+lunatic出来滑轨了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

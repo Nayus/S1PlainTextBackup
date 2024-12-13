@@ -2031,3 +2031,14 @@ FGO有做到無料石負數這參數嗎?它有這技術能力嗎?
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有的人变成婆罗门，爽吃bug，有的人变成贱民不得入内
 
+
+*****
+
+####  大十字紅朔  
+##### 15398#       发表于 2024-12-13 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66908094&amp;ptid=2084912" target="_blank">希望之花 发表于 2024-12-12 20:24</a>
+
+运营操作已经恶心到不少人了</blockquote>
+90++没出来确实没必要周回啊
+

@@ -558,3 +558,54 @@ dei的粪坑，让我笑看索尼怎么让人吃下这锅shit的
 
 先不论女主丑不丑,这个播片真的太平了,一点都吸引不起兴趣,隔壁巫师4最后女主一句没有神只有一堆怪物,立即就将情绪拉上来,叙事水平高下立判。
 
+
+*****
+
+####  SergeGlenn  
+##### 55#       发表于 2024-12-13 12:57
+
+世界设定挺逗，发生在一个1986年人类就实现了太空旅行的宇宙
+
+The story is set in an alternative universe where space travel has significantly advanced by 1986.
+
+灵感来源是阿基拉和星际牛仔
+
+It takes inspiration, he said, from classic anime like the 1988 movie “Akira” and the 1990s series “Cowboy Bebop.”
+
+故事的中心是一个虚构的宗教，以及 "当你把信仰寄托在不同的机构时会发生什么"
+
+“The story is quite ambitious,” centering on a fictitious religion and “what happens when you put your faith in different institutions
+
+*****
+
+####  wolf1997  
+##### 56#       发表于 2024-12-13 12:58
+
+这个首发pv给我很熟悉的感觉，就是在非常重要的位置放上大段大段最无人关心、毫无吸引力的pv，一通下来啥东西都没讲清楚，也无人想知道。之后的故事大家就很熟悉了，那个游戏叫做《星鸣特工》。
+
+*****
+
+####  首领  
+##### 57#       发表于 2024-12-13 13:00
+
+复古太空片自信铮亮的光头，或者是眼神坚毅头皮长短布局得体的半莫西干
+
+这窑子里面拖出来的贼眉鼠眼的尼
+
+尼性恋nmsl
+
+
+*****
+
+####  樽——見  
+##### 58#       发表于 2024-12-13 13:02
+
+现在顽皮狗晋升我心中死马厂商第一名👍
+
+*****
+
+####  ナルバレック  
+##### 59#       发表于 2024-12-13 13:06
+
+之前大仙贝不是说是魔幻新IP吗，科幻背景不是直接和圣莫妮卡新IP撞车了
+

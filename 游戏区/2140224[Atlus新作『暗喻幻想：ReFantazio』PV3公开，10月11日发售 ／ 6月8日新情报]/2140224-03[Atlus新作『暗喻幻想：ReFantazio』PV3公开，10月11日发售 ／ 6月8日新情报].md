@@ -201,3 +201,11 @@ GameSpot 2024年度游戏：《暗喻幻想：ReFantazio》 ​​​
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Mephisto  
+##### 3627#       发表于 2024-12-13 12:15
+
+这坨也能最佳叙事和最佳rpg，野鸡奖实锤
+

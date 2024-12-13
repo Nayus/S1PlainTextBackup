@@ -134,3 +134,18 @@ TGA获最佳多人游戏
 
 —— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  FLZB  
+##### 5568#       发表于 2024-12-13 11:59
+
+这新枪真不是从杀戮地带宇宙偷来的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jabeck  
+##### 5569#       发表于 2024-12-13 12:01
+
+用电弧挺好打的
+

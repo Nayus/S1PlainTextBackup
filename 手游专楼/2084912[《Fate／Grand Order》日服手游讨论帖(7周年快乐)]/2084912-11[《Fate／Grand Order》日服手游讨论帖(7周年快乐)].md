@@ -2058,3 +2058,17 @@ FGO有做到無料石負數這參數嗎?它有這技術能力嗎?
 
 妈的又歪小太阳，0.8还是太低了<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 15401#       发表于 2024-12-13 17:32
+
+<img src="https://img.saraba1st.com/forum/202412/13/173206mnw6no5qnu79j56j.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.71 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-13 17:32 上传
+

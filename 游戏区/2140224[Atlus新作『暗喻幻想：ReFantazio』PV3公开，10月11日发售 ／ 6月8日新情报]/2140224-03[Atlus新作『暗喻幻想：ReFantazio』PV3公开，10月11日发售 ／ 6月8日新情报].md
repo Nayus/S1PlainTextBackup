@@ -275,3 +275,24 @@ GameSpot 2024年度游戏：《暗喻幻想：ReFantazio》 ​​​
 
 最佳叙事诚不欺我😂
 
+
+*****
+
+####  Dorohedoro  
+##### 3635#       发表于 2024-12-13 17:34
+
+<blockquote>wzh5555 发表于 2024-12-13 12:33
+暗喻不给最佳音乐，却能给最佳叙事，sony是懂得端水的</blockquote>
+暗喻音乐明显比不过ff7rb，不管是编曲的水平还是配器的多样性，只能说ff7rb水平太高了，暗喻的配乐在日式rpg里只能算是标准发挥，算不上最好的那一批
+
+*****
+
+####  罗克萨斯  
+##### 3636#       发表于 2024-12-13 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66918119&amp;ptid=2140224" target="_blank">真爱与热情 发表于 2024-12-13 17:18</a>
+很想巨魔一下，同样是发售前万众期待，发售后口碑有点跳水的游戏，暗喻幻想跟XB3同台竞技的话，这三个奖里 ...</blockquote>
+其实看玩家评分，Steam最近好评率94%总好评率92%，PSN评分4.75（满分5分），好像也没怎么跳水，可能打差评的全集中在国内几大社区了吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

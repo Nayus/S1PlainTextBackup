@@ -242,3 +242,13 @@ TGA获最佳多人游戏
 好像就是联动武器，这次不是致敬了</blockquote>
 武器名字搜了下确实就是杀戮地带，难怪这么眼熟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  日日日日日野  
+##### 5576#       发表于 2024-12-13 17:33
+
+<blockquote>FLZB 发表于 2024-12-13 11:59
+这新枪真不是从杀戮地带宇宙偷来的？</blockquote>
+因为泄漏了大概率直接出杀戮地带联动
+

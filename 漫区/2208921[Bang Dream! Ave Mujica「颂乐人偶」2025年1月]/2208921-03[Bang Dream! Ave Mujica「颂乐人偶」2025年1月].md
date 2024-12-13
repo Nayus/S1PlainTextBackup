@@ -2864,3 +2864,13 @@ mujica基本上可以确定是要去ring常驻的（最直接的理由就是手�
 就是不 ...</blockquote>
 此事偶像大师中木星组也有记载
 
+
+*****
+
+####  仓鼠胖太  
+##### 3217#       发表于 2024-12-13 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66916410&amp;ptid=2208921" target="_blank">NODY 发表于 2024-12-13 14:54</a>
+手游里面的老团卡面二还是麻里奈，只有go是凛凛子，剧情其实也提过老团现在主要还是在circle的，mygo是新来 ...</blockquote>
+去和mygo联谊（我瞎胡扯的
+

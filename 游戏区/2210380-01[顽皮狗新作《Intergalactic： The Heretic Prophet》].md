@@ -1658,3 +1658,11 @@ reddit上本来就是极端支持民主党的左派占大多数，可以看看r/
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66917546&amp;ptid=2210380" target="_blank">nbwjh0630 发表于 2024-12-13 16:26</a></blockquote>
 他应该是真把自己当成个在全世界都有影响力的什么艺术家了，看着真令人感到不适
 
+
+*****
+
+####  电风扇  
+##### 167#       发表于 2024-12-13 20:49
+
+有点像某个国内男演员，一时想不起来是谁
+

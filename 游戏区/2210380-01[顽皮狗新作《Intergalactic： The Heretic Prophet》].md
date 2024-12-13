@@ -1196,3 +1196,36 @@ UID3546388161890940这个人，味儿挺大的<img src="https://static.saraba1st
 reddit就是圈子更大一点的豆瓣小组啊</blockquote>
 Reddit本来就偏左甚至还有专门的LGBT游戏人群板块
 
+
+*****
+
+####  泰坦失足  
+##### 126#       发表于 2024-12-13 17:20
+
+看了这个，再看看午夜之南，午夜之南的女主也还行，地狱之刃2的女主更是美若天仙了
+
+*****
+
+####  mimighost  
+##### 127#       发表于 2024-12-13 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66918096&amp;ptid=2210380" target="_blank">shimotsuki14 发表于 2024-12-13 17:16</a>
+
+不是，人设就非得做成这种样子吗。
+
+顽皮狗精神上完了</blockquote>
+这游戏是2020立项的
+
+可以说是woke的顶点
+
+最近各种woke爆典其实都是4-5年前的产物，虽然2020年感觉并不是特别遥远，只不过现在才端出来
+
+我就在想顽皮狗为啥不搞个非二元性别，都长这样了，何必藏着掖着<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">，不够左，不够进步，不够代表
+
+*****
+
+####  泰坦失足  
+##### 128#       发表于 2024-12-13 17:22
+
+既Halo杀手后，我们大概知道顽皮狗杀手会是什么了
+

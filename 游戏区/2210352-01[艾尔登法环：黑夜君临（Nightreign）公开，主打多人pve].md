@@ -1296,3 +1296,28 @@ IGN 中国: 鹰头人守护者这一角色是怎样设计的?印象中《艾尔�
 
 需要多个异世界的人团结起来才能抵抗夜王入侵，这逼格也太高了
 
+
+*****
+
+####  budong  
+##### 142#       发表于 2024-12-13 17:18
+
+玩家扮演的角色居然都不是法环本地人，二是各种异世界的人
+
+*****
+
+####  东方定助  
+##### 143#       发表于 2024-12-13 17:23
+
+这时不得不庆幸血源IP在别人手里，不会被这坨多元宇宙乐色玷污<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  budong  
+##### 144#       发表于 2024-12-13 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66918167&amp;ptid=2210352" target="_blank">东方定助 发表于 2024-12-13 17:23</a>
+这时不得不庆幸血源IP在别人手里，不会被这坨多元宇宙乐色玷污</blockquote>
+肯定有角色是模仿血缘猎人出生背景的
+

@@ -497,3 +497,91 @@ wtf?
 虽然魂一直都有联机，但是单人游戏加联机功能，和多人pve在底层逻辑上就是不同的，感觉最后出来的会是感觉 ...</blockquote>
 看他这个只能1人或者3人不能双人就幽默完了好吧，联机mod水平都比他高，还保证了一定的游戏性
 
+
+*****
+
+####  丹德里恩  
+##### 55#       发表于 2024-12-13 10:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66911258&amp;ptid=2210352" target="_blank">史蒂符 发表于 2024-12-13 10:06</a>
+
+难绷魂友特有的自信</blockquote>
+难绷，我又魂友了
+
+那到底是法环卖得差还是荒野优化好
+
+*****
+
+####  Lisylfn  
+##### 56#       发表于 2024-12-13 10:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66911150&amp;ptid=2210352" target="_blank">丹德里恩 发表于 2024-12-13 09:59</a>
+
+法环的无缝联机mod火得一笔，如果能靠ip再骗来人连带着喊兄弟的话，数据不会难看的
+
+至于卡婊，先把荒野的 ...</blockquote>
+只能1或者3人加上万南畜生一样的服务器怎么碰瓷无缝联机
+
+*****
+
+####  卡拉德利姆  
+##### 57#       发表于 2024-12-13 10:08
+
+浪费产能做这玩意儿 祝褒姒
+
+*****
+
+####  看脸  
+##### 58#       发表于 2024-12-13 10:09
+
+我光看到标题就感觉出这项目充满了资本的丑陋和贪婪，半年能干嘛？
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">虽然老贼确实说过想做大逃杀什么的，但肯定不会拿旧素材瞎弄
+
+*****
+
+####  御坂MKII  
+##### 59#       发表于 2024-12-13 10:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">环的联机mod那也是直接逛交界地啊
+和这个可能毫无地图设计的情况来说还区别挺大的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+*****
+
+####  创始’’’天翔  
+##### 60#       发表于 2024-12-13 10:10
+
+魂U可以吃罐头吃到饱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  直钩  
+##### 61#       发表于 2024-12-13 10:13
+
+大概下一步会有老头环吃鸡，搞不好老头环mmo都在路上<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yangun22  
+##### 62#       发表于 2024-12-13 10:14
+
+看介绍是生存类游戏，捡垃圾活三天打boss<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ParadiseMartyr  
+##### 63#       发表于 2024-12-13 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66911295&amp;ptid=2210352" target="_blank">卡拉德利姆 发表于 2024-12-13 10:08</a>
+浪费产能做这玩意儿 祝褒姒</blockquote>
+说是万代合作开发。估计是素材扔给万代去做了吧
+
+*****
+
+####  卡修_Kasio  
+##### 64#       发表于 2024-12-13 10:15
+
+能开友伤么，辉石魔法打到队友什么的，怎么辉石呢
+

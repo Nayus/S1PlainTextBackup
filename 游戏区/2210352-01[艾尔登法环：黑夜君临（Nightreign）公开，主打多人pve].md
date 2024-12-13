@@ -1733,3 +1733,12 @@ goty没让我破防，这玩意给我干破防了
 
 二月份就有网测了，看看小弟水平如何吧
 
+
+*****
+
+####  Piano-Forest  
+##### 189#       发表于 2024-12-14 01:24
+
+<img src="https://p.sda1.dev/20/9c03526a5e5ec35cd960c2908badd5e4/20241214_012053.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/aec0e9d71eaba3c53dc7943c94fcfb8d/20241214_012222.jpg" referrerpolicy="no-referrer">
+

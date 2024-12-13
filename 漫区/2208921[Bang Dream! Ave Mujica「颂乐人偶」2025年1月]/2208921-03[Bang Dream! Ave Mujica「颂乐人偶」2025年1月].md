@@ -2627,3 +2627,33 @@ MEM对应的是萝 Lisa
 
 其次，如何处理才能让之前的情节不像是没苦硬吃毫无意义（“你早扔下你爹不就完了”）
 
+
+*****
+
+####  Aendst  
+##### 3193#       发表于 2024-12-13 12:28
+
+ 本帖最后由 Aendst 于 2024-12-13 12:30 编辑 
+
+祥子最惨的难道不是妈去世爹也被赶出去，不能说这是没苦硬吃吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+区别无非是不放弃爹=妈去世还要自立照顾爹，放弃爹=实质上失去双亲
+
+简介的时候写集团继承人和集团千金（千金本来也是有继承权的）也没太大区别，也不是换个说法就一定要把故事往八点档上写了
+
+这里没什么好纠结滑坡的吧
+
+*****
+
+####  qjw114514  
+##### 3194#       发表于 2024-12-13 12:32
+
+看来是等太久实在没东西可讨论了，都开始抠单个英文单词了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">wsd啥时候放点新东西吧
+
+*****
+
+####  qjw114514  
+##### 3195#       发表于 2024-12-13 12:33
+
+看来是等太久实在没东西可讨论了，都开始抠单个英文单词了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">wsd啥时候放点新东西吧
+

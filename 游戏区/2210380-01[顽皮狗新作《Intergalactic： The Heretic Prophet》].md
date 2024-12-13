@@ -924,3 +924,11 @@ Her father is African American, and her mother was born in Korea to a Korean wom
 
 不是，这游戏到底做的什么……
 
+
+*****
+
+####  huyangxinhn  
+##### 96#       发表于 2024-12-13 14:50
+
+首发预告就一脸暴死像。
+

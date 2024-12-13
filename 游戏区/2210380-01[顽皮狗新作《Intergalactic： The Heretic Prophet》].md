@@ -1015,3 +1015,46 @@ The story is set in an alternative universe ...</blockquote>
 
 reddit版清一色闭口不谈丑角+各种角度“我太期待了” 是我逛的板块不对吗
 
+
+*****
+
+####  ナルバレック  
+##### 107#       发表于 2024-12-13 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66917335&amp;ptid=2210380" target="_blank">樽——見 发表于 2024-12-13 16:06</a>
+
+reddit版清一色闭口不谈丑角+各种角度“我太期待了” 是我逛的板块不对吗</blockquote>
+大仙贝是白左受众的金字招牌，TLOU2和TLOU电视剧都赚麻了，不销量褒姒一次，你很难在红迪看到围剿他的，不过最左的游戏论坛估计还是ERA？
+
+*****
+
+####  ナルバレック  
+##### 108#       发表于 2024-12-13 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66917284&amp;ptid=2210380" target="_blank">性兽阿怪 发表于 2024-12-13 16:00</a>
+
+居然还没发售日，这几年顽皮狗干嘛去了，到时候端出来玩家更不买账</blockquote>
+TLOU ONLINE啊，半年前快发售的时候被棒鸡给毙了
+
+*****
+
+####  脚本水平  
+##### 109#       发表于 2024-12-13 16:12
+
+太空奇迹 奇迹下有着落了
+
+*****
+
+####  hkguty  
+##### 110#       发表于 2024-12-13 16:12
+
+耶，看来顽皮狗要玩完了
+
+
+*****
+
+####  哎哟卧槽了  
+##### 111#       发表于 2024-12-13 16:17
+
+第二次大型社会实验即将开启<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

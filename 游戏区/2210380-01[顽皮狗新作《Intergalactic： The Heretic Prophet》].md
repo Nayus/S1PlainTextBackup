@@ -1726,3 +1726,16 @@ The story is set in an alternative universe ...</blockquote>
 
 某处看见有最后那段"看了五十遍"的情怀粉丝 难道是对于Z世代而言光剑砍萝卜特别时髦吗<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  巴特爱素子  
+##### 173#       发表于 2024-12-13 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66914763&amp;ptid=2210380" target="_blank">SergeGlenn 发表于 2024-12-13 12:57</a>
+
+世界设定挺逗，发生在一个1986年人类就实现了太空旅行的宇宙
+
+The story is set in an alternative universe ...</blockquote>
+基本上就是那时候的新纪元科幻风格了
+

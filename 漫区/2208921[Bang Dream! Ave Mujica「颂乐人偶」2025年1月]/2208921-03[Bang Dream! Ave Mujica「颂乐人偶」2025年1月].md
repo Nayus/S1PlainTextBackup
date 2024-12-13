@@ -2874,3 +2874,22 @@ mujica基本上可以确定是要去ring常驻的（最直接的理由就是手�
 手游里面的老团卡面二还是麻里奈，只有go是凛凛子，剧情其实也提过老团现在主要还是在circle的，mygo是新来 ...</blockquote>
 去和mygo联谊（我瞎胡扯的
 
+
+*****
+
+####  NODY  
+##### 3218#       发表于 2024-12-13 21:53
+
+[佐佐木李子 翻唱'WHITE ALBUM']
+[https://www.bilibili.com/video/BV19jBMYmEQd](https://www.bilibili.com/video/BV19jBMYmEQd)
+
+这下真白学了
+
+
+*****
+
+####  黑夜落叶秋天  
+##### 3219#       发表于 2024-12-13 22:00
+
+谁是雪碧 谁是冬三
+

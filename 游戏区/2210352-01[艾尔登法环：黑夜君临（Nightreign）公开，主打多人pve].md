@@ -1603,3 +1603,14 @@ goty没让我破防，这玩意给我干破防了
 
 另外1人(离线)和3人(联机)这两限定游玩数应该是方便设置难度，但说实话……我不懂，2人游戏有什么问题？
 
+
+*****
+
+####  桥洞底下盖小被  
+##### 175#       发表于 2024-12-13 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66919292&amp;ptid=2210352" target="_blank">budong 发表于 2024-12-13 19:43</a>
+
+自我怀疑什么？说来听听</blockquote>
+没什么，只是怀疑我真的在看小高魂游的情报吗<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

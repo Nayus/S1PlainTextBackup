@@ -1604,3 +1604,21 @@ reddit上本来就是极端支持民主党的左派占大多数，可以看看r/
 
 祝福买这游戏的人将来娶到同样长相的妖魔鬼怪。
 
+
+*****
+
+####  ff2077  
+##### 162#       发表于 2024-12-13 20:24
+
+热度挺凉的 按理说前作都是热度爆高的作品 但播放被巫师4倍杀了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  缺德猫  
+##### 163#       发表于 2024-12-13 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66915114&amp;ptid=2210380" target="_blank">sxcluck 发表于 2024-12-13 13:19</a>
+
+太像新异形那个亚裔了，导致还以为是异形游戏</blockquote>
+沒有那個演員順眼，那個人家就長那樣，這個太刻意了
+

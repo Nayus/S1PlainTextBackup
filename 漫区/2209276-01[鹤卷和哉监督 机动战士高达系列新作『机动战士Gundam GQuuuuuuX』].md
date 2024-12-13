@@ -14960,3 +14960,14 @@ Screen Shot 2024-12-13 at 3.33.14 PM.png
 ----发送自 Sony XQ-CT44,Android 14 ...</blockquote>
 这PV和4号的PV画面不是基本没区别吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zakufa782  
+##### 1410#       发表于 2024-12-13 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66917979&amp;ptid=2209276" target="_blank">灵魂收割机 发表于 2024-12-13 17:06</a>
+
+这PV和4号的PV画面不是基本没区别吗</blockquote>
+短了大概20秒，但是更紧凑节奏更好
+

@@ -1015,3 +1015,14 @@ boss动作和韧性是不是要大改，不然真经不住三个人砍吧
 
 只能说kol的谜语信不了一点 不管他们是干什么的默认信用都应该是-100
 
+
+*****
+
+####  zzf111  
+##### 113#       发表于 2024-12-13 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66915991&amp;ptid=2210352" target="_blank">ParadiseMartyr 发表于 2024-12-13 14:21</a>
+
+前面魂1混沌百足恶魔直接明晃晃的出了，就是复用，改都不改，大概是什么穿越杂糅世界 ...</blockquote>
+整这个联机乱斗感觉就像辐射76吃鸡一样烂活<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+

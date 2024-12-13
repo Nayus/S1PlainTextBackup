@@ -1122,3 +1122,34 @@ Her father is African Amer ...</blockquote>
 
 如果是 neil dick man的话，那一切就合理起来了吧。
 
+
+*****
+
+####  mimighost  
+##### 119#       发表于 2024-12-13 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66917546&amp;ptid=2210380" target="_blank">nbwjh0630 发表于 2024-12-13 16:26</a></blockquote>
+联动隔壁为啥国内媒体不被尊重
+
+这明显是个洋葱新闻
+
+重点Concordian<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nma  
+##### 120#       发表于 2024-12-13 16:34
+
+虽然斗争很激烈，但这种拿twitter随便一条狗发的东西当圣旨的媒体/自媒体也太蠢了吧，这种不知为什么在2024流行起来的东西还有个共同点，都要点开google翻译<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  laputah  
+##### 121#       发表于 2024-12-13 16:37
+
+<blockquote>樽——見 发表于 2024-12-13 16:06
+reddit版清一色闭口不谈丑角+各种角度“我太期待了” 是我逛的板块不对吗</blockquote>
+reddit就是圈子更大一点的豆瓣小组啊
+

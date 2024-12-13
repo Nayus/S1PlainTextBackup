@@ -2042,3 +2042,11 @@ FGO有做到無料石負數這參數嗎?它有這技術能力嗎?
 运营操作已经恶心到不少人了</blockquote>
 90++没出来确实没必要周回啊
 
+
+*****
+
+####  大十字紅朔  
+##### 15399#       发表于 2024-12-13 13:22
+
+有没有可能你们在第一层，螺旋社在第七层，本来就是搞个大活弄点关注度？<img src="https://static.saraba1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer">
+

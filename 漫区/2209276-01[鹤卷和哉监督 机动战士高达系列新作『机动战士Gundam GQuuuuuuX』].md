@@ -14806,3 +14806,36 @@ Screenshot_20241213_072629_com.sina.weibo.jpg
 
 注意到一个细节，目前PV，人设图（不算goods）中，男一始终没有把手露出来过，而且手套的尺寸与身体不成比例，搞不好手套下是义体
 
+
+*****
+
+####  oi99o  
+##### 1399#       发表于 2024-12-13 13:16
+
+发个原图吧
+
+<img src="https://img.saraba1st.com/forum/202412/13/131649t66pz4me6nodplvb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.33 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-13 13:16 上传
+
+*****
+
+####  Piano-Forest  
+##### 1400#         楼主| 发表于 2024-12-13 13:18
+
+◤劇場先行版キービジュアル解禁◢
+
+劇場先行版『機動戦士Gundam GQuuuuuuX -Beginning-』のキービジュアルを初解禁しました！
+
+さらにガンダムシリーズ初となるIMAX®上映も決定！
+
+1月17日（金）より全国の劇場にて公開！
+
+劇場先行版『機動戦士Gundam GQuuuuuuX -Beginning-』の予告も初公開
+[https://youtu.be/Nrrp2vXddgk](https://youtu.be/Nrrp2vXddgk)
+<img src="https://p.sda1.dev/20/93b9236804d02295835a5529adbb6f37/20241213_131702.jpg" referrerpolicy="no-referrer">
+

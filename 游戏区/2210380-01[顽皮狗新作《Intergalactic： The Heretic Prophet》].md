@@ -681,3 +681,51 @@ It takes inspiration, he said, from classic anime like the 1988 movie “Akira�
 先不论女主丑不丑,这个播片真的太平了,一点都吸引不起兴趣,隔壁巫师4最后女主一句没有神只有一堆怪物,立即 ...</blockquote>
 巫师4才是土中土，流水线作文一样
 
+
+*****
+
+####  线程召唤使  
+##### 69#       发表于 2024-12-13 13:18
+
+不如金亨泰
+
+*****
+
+####  UmarIbnLaAhad  
+##### 70#       发表于 2024-12-13 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66914369&amp;ptid=2210380" target="_blank">暮光こころ 发表于 2024-12-13 12:38</a>
+ 对于合成器浪潮音乐爱好者真是意料之外的惊喜，开头听着BGM就开始不自觉的微笑了，看到老显示器放老动画和 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+坛友们，泥潭woke嗦粉活雷达响了，快跑
+
+*****
+
+####  ScL9  
+##### 71#       发表于 2024-12-13 13:19
+
+就前面楼的截图直接把它做成光头少年观感也不会太差
+
+*****
+
+####  sxcluck  
+##### 72#       发表于 2024-12-13 13:19
+
+太像新异形那个亚裔了，导致还以为是异形游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RStocking  
+##### 73#       发表于 2024-12-13 13:21
+
+感觉这播片信息量很低，没搞明白什么设定，但是要去砍怪了
+
+*****
+
+####  mimighost  
+##### 74#       发表于 2024-12-13 13:21
+
+就算没有woke要素
+
+这个trailer也要啥没啥，那个使徒脸的机器人真是土中土
+

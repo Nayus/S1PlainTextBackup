@@ -2170,3 +2170,14 @@ https://www.bilibili.com/video/BV1BUBMYdEVq
 5宝黑呆 欧羡慕 菜B滚回90+公主三连去了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这伤害不是溢出的吗 不需要5宝
 
+
+*****
+
+####  qixinno2  
+##### 15412#       发表于 2024-12-13 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66919272&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-13 19:40</a>
+
+这伤害不是溢出的吗 不需要5宝</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但我奥博龙15绊了 不想用
+

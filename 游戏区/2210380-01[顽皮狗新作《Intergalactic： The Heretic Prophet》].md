@@ -1666,3 +1666,24 @@ reddit上本来就是极端支持民主党的左派占大多数，可以看看r/
 
 有点像某个国内男演员，一时想不起来是谁
 
+
+*****
+
+####  findpkq  
+##### 168#       发表于 2024-12-13 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66914763&amp;ptid=2210380" target="_blank">SergeGlenn 发表于 2024-12-13 12:57</a>
+
+世界设定挺逗，发生在一个1986年人类就实现了太空旅行的宇宙
+
+The story is set in an alternative universe ...</blockquote>
+斯派克开飞船，我们也开飞船
+
+斯派克吃泡面，我们就本地化一下吃快餐喝可乐
+
+阿基拉有很cooool的红色夹克，我们也穿很cooool的红色夹克
+
+真是太有品啦
+
+把主角换成啥都不影响这片像一般通过引擎技术展示片一样不明所以，这竟然是顽皮狗端出来压轴的播片吗
+

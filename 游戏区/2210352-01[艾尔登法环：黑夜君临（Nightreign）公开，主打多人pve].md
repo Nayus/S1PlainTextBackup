@@ -1071,3 +1071,31 @@ PV里还有只狼的格挡要素
 
 这不是小高做的吧，我可能不会玩
 
+
+*****
+
+####  Alphawalker  
+##### 119#       发表于 2024-12-13 15:15
+
+如果能像马造那种玩家做图设怪上传闯关还挺有乐子的
+
+可惜FS的技术力很难支持
+
+
+*****
+
+####  acropolis  
+##### 120#       发表于 2024-12-13 15:21
+
+宫崎英高大乐园？给团队练手的话也很有意思，别搞gaas
+
+
+*****
+
+####  budong  
+##### 121#       发表于 2024-12-13 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66916782&amp;ptid=2210352" target="_blank">acropolis 发表于 2024-12-13 15:21</a>
+宫崎英高大乐园？给团队练手的话也很有意思，别搞gaas</blockquote>
+目前说不搞
+

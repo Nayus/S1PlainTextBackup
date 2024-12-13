@@ -2938,3 +2938,11 @@ mujica基本上可以确定是要去ring常驻的（最直接的理由就是手�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
 
+
+*****
+
+####  likeny  
+##### 3224#       发表于 2024-12-14 02:36
+
+EN的人物卡好好看啊，能不能用这个出谷<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+

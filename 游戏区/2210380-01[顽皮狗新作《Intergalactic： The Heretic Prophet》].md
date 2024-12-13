@@ -609,3 +609,75 @@ It takes inspiration, he said, from classic anime like the 1988 movie “Akira�
 
 之前大仙贝不是说是魔幻新IP吗，科幻背景不是直接和圣莫妮卡新IP撞车了
 
+
+*****
+
+####  ozymandias  
+##### 60#       发表于 2024-12-13 13:08
+
+你们这些仇恨者放尊重点，这可是未来的年度最佳<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pygrads  
+##### 61#       发表于 2024-12-13 13:09
+
+这个光头亚裔女居然是个中国人
+
+*****
+
+####  JoelBirch  
+##### 62#       发表于 2024-12-13 13:12
+
+ 本帖最后由 JoelBirch 于 2024-12-13 13:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66914974&amp;ptid=2210380" target="_blank">pygrads 发表于 2024-12-13 13:09</a>
+
+这个光头亚裔女居然是个中国人</blockquote>
+？？？这设定有指路吗？？？
+
+
+*****
+
+####  lunaticfool  
+##### 63#       发表于 2024-12-13 13:15
+
+对不起放的歌
+
+*****
+
+####  吃我大dio  
+##### 64#       发表于 2024-12-13 13:16
+
+这玩意比拉万都丑 无敌了索尼
+
+*****
+
+####  ultraseven  
+##### 65#       发表于 2024-12-13 13:16
+
+不是GAAS还行，顽皮狗出品的单机全球至少有百万死忠吧
+
+*****
+
+####  unclea  
+##### 66#       发表于 2024-12-13 13:16
+
+有点像异形夺命舰那个亚裔
+
+*****
+
+####  marisa233  
+##### 67#       发表于 2024-12-13 13:17
+
+这个真的接受不了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  雪菜碧池  
+##### 68#       发表于 2024-12-13 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66914712&amp;ptid=2210380" target="_blank">chaos7 发表于 2024-12-13 12:55</a>
+
+先不论女主丑不丑,这个播片真的太平了,一点都吸引不起兴趣,隔壁巫师4最后女主一句没有神只有一堆怪物,立即 ...</blockquote>
+巫师4才是土中土，流水线作文一样
+

@@ -1793,3 +1793,18 @@ Her father is African Amer ...</blockquote>
 
 这 DEI 渲染建模感觉和复古风的受众不太重合，固有顽皮狗受众更想看类似美剧的，取了个交集遇冷。
 
+
+*****
+
+####  manysun  
+##### 180#       发表于 2024-12-14 00:31
+
+至于女主的头发只是没能加载出来而已，技术上的小问题啦，相信顽皮狗会修好的
+
+*****
+
+####  IcarusInFire  
+##### 181#       发表于 2024-12-14 00:32
+
+感觉美术完成度不如星鸣特攻<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

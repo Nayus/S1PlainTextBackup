@@ -801,3 +801,70 @@ ytb现在法环第一，巫师4第二
 
 PS youtube预告赞踩比都快持平了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zxdrtyhn  
+##### 83#       发表于 2024-12-13 14:09
+
+这pv的质量，我觉得和星鸣特工有得一拼了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+*****
+
+####  jxzeroga0  
+##### 84#       发表于 2024-12-13 14:10
+
+只能一句祝暴死了，buff拉满
+
+*****
+
+####  FishTail  
+##### 85#       发表于 2024-12-13 14:11
+
+**评论区都锁了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">不是很懂吗
+
+*****
+
+####  FishTail  
+##### 86#       发表于 2024-12-13 14:11
+
+管子111111111111
+
+*****
+
+####  社友者  
+##### 87#       发表于 2024-12-13 14:12
+
+<img src="https://p.sda1.dev/20/80e98ef663da91c40f44a5f851d0f767/1734069849811039.png" referrerpolicy="no-referrer">
+
+孩子们想我了吗
+
+
+*****
+
+####  洛克萨斯  
+##### 88#       发表于 2024-12-13 14:14
+
+看人设直接枪毙的游戏，吹上天都不会买的<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  2082082012  
+##### 89#       发表于 2024-12-13 14:16
+
+这味是黑子串不出来的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/fe17736ef7ae573a46d03ba42103b469/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.94-alpha
+
+*****
+
+####  Asukalangley33  
+##### 90#       发表于 2024-12-13 14:18
+
+这人设顽皮狗是真的司马了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+

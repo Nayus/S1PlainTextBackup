@@ -429,3 +429,30 @@
 
 后悔了也没力气爬上来了吧，这天气是真-水太凉
 
+
+*****
+
+####  modedd  
+##### 49#       发表于 2024-12-13 14:09
+
+老实说我觉得还是这俩人对“在冬天跳入一条河中”究竟意味着什么没有一个清晰的认识的可能性更大一些吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  smishe  
+##### 50#       发表于 2024-12-13 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66915778&amp;ptid=2210321" target="_blank">憂鬱臺灣烏龜 发表于 2024-12-13 14:05</a>
+你该劝她回家脱的。“你家还是我家？或者如家？”</blockquote>
+回家确实脱了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  是二大爷  
+##### 51#       发表于 2024-12-13 14:14
+
+这不得不配一段《探清水河》了
+

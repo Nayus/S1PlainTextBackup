@@ -55,3 +55,22 @@
 
 图片迟迟加载不出来，不知道怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  osore  
+##### 2034#       发表于 2024-12-13 14:07
+
+最近寒すぎる～！！❄️
+この間買ったダウンがないと
+出かけられないぐらいだよ～😣
+
+そうそう！
+今度みんなでとあるところに行くんだ😆👍
+どこに行くかは～～～～～ナイショ！笑
+また報告するから楽しみにしてて！
+
+ちさと
+
+不要说是冲绳<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

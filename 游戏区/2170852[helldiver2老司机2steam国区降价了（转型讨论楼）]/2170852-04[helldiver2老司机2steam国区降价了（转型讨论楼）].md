@@ -336,3 +336,14 @@ B站发现有新预告,边看边分享给群友后发现out now<img src="https:/
 
 打了7级的光能者之后回去打7级虫子，感觉和逛街一样。光能者这边一个个血厚的吓人，飞行兵能硬吃三发机炮，步枪打大棍哥不硬直，连区区僵尸吃了两三发机枪的7.62全威力弹都能活蹦乱跳
 
+
+*****
+
+####  xinfengj  
+##### 5586#       发表于 2024-12-14 02:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66921515&amp;ptid=2170852" target="_blank">yahuchi 发表于 2024-12-14 02:11</a>
+
+打了7级的光能者之后回去打7级虫子，感觉和逛街一样。光能者这边一个个血厚的吓人，飞行兵能硬吃三发机炮， ...</blockquote>
+光能还有几个恶心人的单位没出呢<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

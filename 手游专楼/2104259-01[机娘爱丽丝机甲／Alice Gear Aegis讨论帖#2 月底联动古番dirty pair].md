@@ -266,3 +266,14 @@
 顺便DMM那个白嫖服袋又来了</blockquote>
 跟以前一样PC上开下游戏就行嘛？
 
+
+*****
+
+####  江戸前ルナ  
+##### 1321#         楼主| 发表于 2024-12-13 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66920178&amp;ptid=2104259" target="_blank">madcow 发表于 2024-12-13 21:56</a>
+
+跟以前一样PC上开下游戏就行嘛？</blockquote>
+要登录后在网页或者DMMPLAYER弹出的活动窗口广告至少点参加进去一次活动页面才行。
+

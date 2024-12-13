@@ -1760,3 +1760,11 @@ goty没让我破防，这玩意给我干破防了
 
 是个肉鸽，没有负重 不会摔死 45分钟内没通关3人重置为lv1
 
+
+*****
+
+####  PigMourne  
+##### 192#       发表于 2024-12-14 04:16
+
+是不是可以理解成FS版雨中冒险<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

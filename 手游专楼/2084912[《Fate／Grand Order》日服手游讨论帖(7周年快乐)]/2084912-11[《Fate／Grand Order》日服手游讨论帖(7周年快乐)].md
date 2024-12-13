@@ -2081,3 +2081,18 @@ FGO有做到無料石負數這參數嗎?它有這技術能力嗎?
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">突然觉得这游戏没意思了 还有救吗
 <img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">然后该打90++了
 
+
+*****
+
+####  qixinno2  
+##### 15403#       发表于 2024-12-13 17:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么有没有霉B也能用的90++阵容
+
+*****
+
+####  v22325  
+##### 15404#       发表于 2024-12-13 18:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">试了手上各个打手伤害不够都要打暴击，开始用别人打手试试看
+

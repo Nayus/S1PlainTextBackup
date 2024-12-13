@@ -1330,3 +1330,31 @@ neil这狗比人不就是这样，鱿鱼天然和lgbt一伙呀。
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  ナルバレック  
+##### 140#       发表于 2024-12-13 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66918514&amp;ptid=2210380" target="_blank">鶴来 发表于 2024-12-13 17:55</a>
+
+主人公要是能自定义就好了，演示里的有点丑。
+
+未来科技都那么发达了，没理由不能自定义的吧。 ...</blockquote>
+尼尔从来没搞过自定义，他在细节上抓的很死，还钟情于按头灌输白左能量<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">，倒是毙了的GAAS没准能自定义
+
+*****
+
+####  洛亚替身  
+##### 141#       发表于 2024-12-13 18:00
+
+（）
+
+ 本帖最后由 洛亚替身 于 2024-12-13 18:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66918501&amp;ptid=2210380" target="_blank">樽——見 发表于 2024-12-13 17:53</a>
+
+所以是管理员筛选的结果还是白皮大多数都已经全面拥抱dei
+
+我看的是3.3m members的 r/Games ...</blockquote>
+不够巨魔，应该看r/saltierthankrayt和r/Gamingcirclejerk........让你见识下什么叫铁血DEI（尤其是后面的Gamingcirclejerk），世间所有人都是错的，只有我们是对的<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+

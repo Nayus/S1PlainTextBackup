@@ -2563,3 +2563,28 @@ MEM对应的是萝 Lisa
 祥子看起来比其他人小了至少一两岁好重的妹系角色气息</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">记得祥子的确是最小的，睦都比她大
 
+
+*****
+
+####  Aendst  
+##### 3188#       发表于 2024-12-13 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66912463&amp;ptid=2208921" target="_blank">cxj649 发表于 2024-12-13 11:14</a>
+
+记得祥子的确是最小的，睦都比她大</blockquote>
+是，祥子最小，比海铃小快一岁，比初华小半岁多点，比睦小一个月
+
+
+*****
+
+####  uhiuk  
+##### 3189#       发表于 2024-12-13 11:24
+
+<img src="https://img.saraba1st.com/forum/202412/13/112415u9b3izk1niybzv31.jpg" referrerpolicy="no-referrer">
+
+<strong>17825741371734059986727.jpg</strong> (151.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-13 11:24 上传
+

@@ -780,3 +780,15 @@ pve？
 
 大概率会为了这个玩法融一堆新设定 然后把本就混乱不堪的环学搞成更大的一坨浆糊<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hootao  
+##### 87#       发表于 2024-12-13 11:22
+
+黑夜君临之于法环
+
+我觉得就像
+
+合金装备幸存者至于MGSV
+

@@ -1856,3 +1856,60 @@ Her father is African Amer ...</blockquote>
 见真章要等下一个拨片，最近ND的几个游戏都是第二次才上长段gameplay，当年TLOU1公布的反应其实也就是“ano ...</blockquote>
 见真章归见真章，TLOU那个好歹我知道我核心要玩的是打僵尸，这个就。。。向外界展示地有点糟糕了，而且还挺长
 
+
+*****
+
+####  mimighost  
+##### 187#       发表于 2024-12-14 01:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66919122&amp;ptid=2210380" target="_blank">ナルバレック 发表于 2024-12-13 19:16</a>
+
+红迪感觉没ERA左，ERA为星鸣哭丧的一大堆...</blockquote>
+resetera都是一群被无业的废物极左
+
+本质和4chan也没有区别，纯度太高，致死
+
+
+*****
+
+####  ナルバレック  
+##### 188#       发表于 2024-12-14 02:02
+
+ 本帖最后由 ナルバレック 于 2024-12-14 02:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66921271&amp;ptid=2210380" target="_blank">hkguty 发表于 2024-12-14 00:53</a>
+
+关键是，他们提前关掉**评论区不就是已经早有预料玩家会是什么反应了吗？但是仍然决定要这样摆上桌，说明尼 ...</blockquote>
+好像不是提前关的，顽皮狗的频道似乎是开了几分钟关的吧，不过大仙贝是非常激进的犹左意见领袖，换句话说是动不动正面喷人的风子，他之前还没在商业上大翻车过，TLOU的游戏和电视剧都是他炫耀的履历，可谓是一般玩家界臭名昭著的标杆了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，顽皮狗当年PS3时期是又高分又高产的，现在GAAS快出被砍了单机又是尼尔疯狂实验再临，想想也是抽象的发展历程
+
+*****
+
+####  mimighost  
+##### 189#       发表于 2024-12-14 02:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66919564&amp;ptid=2210380" target="_blank">ff2077 发表于 2024-12-13 20:24</a>
+
+热度挺凉的 按理说前作都是热度爆高的作品 但播放被巫师4倍杀了</blockquote>
+我都觉得是不是我眼睛有问题
+
+抛开woke我都觉得这片是垃圾
+
+美术和音乐，这个80年代的合成器风格早就被用烂了，这片有发明什么新的要素么？这飞船不是和concord的长得一摸一样？我不给你说哪个是concord的，你认得出来？<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202412/14/020118jvwwse0seeevyfa0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.03 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 02:01 上传
+
+<img src="https://img.saraba1st.com/forum/202412/14/020219pqhmyntiiityntho.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (360.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 02:02 上传
+
+第一个片，都不能激起我的兴趣，这水平真的够垃圾的
+

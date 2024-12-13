@@ -1742,3 +1742,11 @@ goty没让我破防，这玩意给我干破防了
 <img src="https://p.sda1.dev/20/9c03526a5e5ec35cd960c2908badd5e4/20241214_012053.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/20/aec0e9d71eaba3c53dc7943c94fcfb8d/20241214_012222.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  darkfall  
+##### 190#       发表于 2024-12-14 02:05
+
+之前有采访说过之后游戏推出速度会更加频繁。要做到一年一作就会出现素材复用的试验性小作品，弄点新东西挺好，
+

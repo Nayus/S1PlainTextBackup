@@ -316,3 +316,15 @@ B站发现有新预告,边看边分享给群友后发现out now<img src="https:/
 解包新装备</blockquote>
 这几把都是Killzone的经典枪了，其实从一开始就在想KZ的Helghast皮肤套在老司机2可比现在的帅多了
 
+
+*****
+
+####  xinfengj  
+##### 5584#       发表于 2024-12-14 02:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66921467&amp;ptid=2170852" target="_blank">哈毛 发表于 2024-12-14 01:52</a>
+这几把都是Killzone的经典枪了，其实从一开始就在想KZ的Helghast皮肤套在老司机2可比现在的帅多了 ...</blockquote>
+<img src="https://p.sda1.dev/20/093483f371b362711280df90f6eb03ad/CMP_20241214020542682.jpg" referrerpolicy="no-referrer">
+
+对的，联动债券
+

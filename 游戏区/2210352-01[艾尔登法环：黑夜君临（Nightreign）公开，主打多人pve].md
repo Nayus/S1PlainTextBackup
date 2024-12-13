@@ -756,3 +756,27 @@ pve？
 
 非常不看好。
 
+
+*****
+
+####  DARILBALDE  
+##### 84#       发表于 2024-12-13 11:08
+
+万南没给你又端个PvPvE上来，可知足吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+*****
+
+####  風卷豹  
+##### 85#       发表于 2024-12-13 11:11
+
+往好了想是不是魂123那些装备会有高清化外观了？
+
+*****
+
+####  卡拉德利姆  
+##### 86#       发表于 2024-12-13 11:13
+
+大概率会为了这个玩法融一堆新设定 然后把本就混乱不堪的环学搞成更大的一坨浆糊<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+

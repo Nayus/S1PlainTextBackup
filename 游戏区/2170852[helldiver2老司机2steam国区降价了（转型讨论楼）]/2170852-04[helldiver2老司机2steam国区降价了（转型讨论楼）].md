@@ -87,3 +87,32 @@ TGA获最佳多人游戏
 
 新装备也更了吗
 
+
+*****
+
+####  xinfengj  
+##### 5564#       发表于 2024-12-13 11:09
+
+<img src="https://p.sda1.dev/20/f3e797ee7bca45894af01a11948c424a/7db7118b41f8bd48779139eef8410a2c12766099b70f2828c90be1f5a8fdb2d1.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/20/3f73ece24d1994ab95d66bc31d1f465f/d9e173bdf9c782168b1cd41a8d9f9e5e62579801ab507051fe65056581dda3b1.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/20/00a28342dfb292b6ec9cc2d40489d8ed/71268351b95018b7e10dd69a5b85747f4a798b020996089cd7ea6024f646b15c.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/20/d38d53bd91c9ff378eab7a38ed6d05e8/334903611bba6649ccda8bf845f7762042940bc5b15a03e7784dfce107322e62.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/20/01fff0fc9e6efbeac2976de4bdd145eb/ee82366b1d4173d9b403f9a41601f38225f2ca77acab2b0e0545e97988d671fa.jpg" referrerpolicy="no-referrer">
+
+解包新装备
+
+*****
+
+####  jy000129  
+##### 5565#       发表于 2024-12-13 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66912173&amp;ptid=2170852" target="_blank">Dementia 发表于 2024-12-13 10:57</a>
+外星泰坦的护盾怎么破？</blockquote>
+前作是用实弹破盾，光能武器打不动
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

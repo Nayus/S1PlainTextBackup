@@ -932,3 +932,33 @@ Her father is African American, and her mother was born in Korea to a Korean wom
 
 首发预告就一脸暴死像。
 
+
+*****
+
+####  hu794  
+##### 97#       发表于 2024-12-13 14:57
+
+也许会爆死，但是恭喜预定tga年度游戏<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  check  
+##### 98#       发表于 2024-12-13 14:58
+
+什么玩意 祝暴死
+
+*****
+
+####  汤圆です  
+##### 99#       发表于 2024-12-13 15:00
+
+和星鸣特攻竞争最速传说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  acropolis  
+##### 100#       发表于 2024-12-13 15:04
+
+有尼尔深度参与的我是碰都不敢碰了
+

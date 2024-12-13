@@ -213,3 +213,11 @@ TGA获最佳多人游戏
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66913401&amp;ptid=2170852" target="_blank"> FLZB 发表于 2024-12-13 11:59</a> 这新枪真不是从杀戮地带宇宙偷来的？ </blockquote>
 好像就是联动武器，这次不是致敬了来自: iPhone客户端
 
+
+*****
+
+####  FLZB  
+##### 5573#       发表于 2024-12-13 14:58
+
+大棍光能有点东西，近战给你一棍干成布娃娃，人还没站起来又一棍，无限连到死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

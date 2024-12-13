@@ -2427,3 +2427,11 @@ MEM对应的是萝 Lisa
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.95-alpha
 
+
+*****
+
+####  RPG-7  
+##### 3177#       发表于 2024-12-13 09:01
+
+家里有个上次罗森联动拿的挑染型高松灯冰箱贴，和Tokyo Anon凑不上了这下<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

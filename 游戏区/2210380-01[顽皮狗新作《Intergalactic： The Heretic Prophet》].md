@@ -756,3 +756,48 @@ ytb现在法环第一，巫师4第二
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这游戏能成为《星鸣特工》之后第二个投资大失败的游戏吗？
 
+
+*****
+
+####  ak123  
+##### 78#       发表于 2024-12-13 13:57
+
+又是个非二元贵物，看来欧米游戏里的正常女性已经快死绝了呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你好s1  
+##### 79#       发表于 2024-12-13 14:01
+
+这游戏至少在东亚，绝对爆死<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2352A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  ak123  
+##### 80#       发表于 2024-12-13 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66914974&amp;ptid=2210380" target="_blank">pygrads 发表于 2024-12-13 13:09</a>
+
+这个光头亚裔女居然是个中国人</blockquote>
+有信息来源么，不过这个好像确实是最新版的华裔女规训造型，连老毕的留学女儿都长差不多这样<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  UnrealApartheid  
+##### 81#       发表于 2024-12-13 14:07
+
+论怀旧复古科幻，天外世界2都要吊打这个品牌贴脸的……呃，东西
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  tuiskusuomaa  
+##### 82#       发表于 2024-12-13 14:07
+
+PS youtube预告赞踩比都快持平了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

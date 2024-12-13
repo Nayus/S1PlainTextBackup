@@ -942,3 +942,15 @@ boss动作和韧性是不是要大改，不然真经不住三个人砍吧
 
 —— 来自 OPPO PHU110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  zzf111  
+##### 105#       发表于 2024-12-13 14:00
+
+为啥无名王者会在法环里，粗看头冠，武器和龙头就是魂三无名
+
+还有个露出来的头冠鼻子部分像魂三防火女，辫子背影像玛利亚的npc
+
+为了做吃鸡乱斗放弃lore了吗<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+

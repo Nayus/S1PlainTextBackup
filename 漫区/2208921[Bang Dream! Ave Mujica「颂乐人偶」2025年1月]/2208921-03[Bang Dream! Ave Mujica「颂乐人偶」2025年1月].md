@@ -2903,3 +2903,19 @@ mujica基本上可以确定是要去ring常驻的（最直接的理由就是手�
 
 不算偶像团，大有成功的商业出道的乐队在livehouse开演出再正常不过了，早些年lunar sea, glay, 甚至包括x团都会这么干。
 
+
+*****
+
+####  Alicest  
+##### 3221#       发表于 2024-12-13 22:53
+
+不知道会不会有鸡，毕竟是小祥生日后一天
+
+<img src="https://img.saraba1st.com/forum/202412/13/225336n1zsgs1q5yg90vyg.jpg" referrerpolicy="no-referrer">
+
+<strong>XASL[~0[UK204{SC9T{[V5X.jpg</strong> (75.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-13 22:53 上传
+

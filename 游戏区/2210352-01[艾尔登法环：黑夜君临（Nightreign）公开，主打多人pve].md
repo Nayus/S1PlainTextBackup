@@ -684,3 +684,35 @@ DARK SOULS 系列中也会有少量敌人。 从设定上来说，他似乎因�
 
 低情商：素材复用
 
+
+*****
+
+####  quanlix  
+##### 75#       发表于 2024-12-13 10:41
+
+游戏人数：1人或3人（不支援2人游玩），俩人还不让玩的？
+
+
+*****
+
+####  Algie  
+##### 76#       发表于 2024-12-13 10:45
+
+我以为我眼花了看到这玩意
+
+*****
+
+####  CyborgIP  
+##### 77#       发表于 2024-12-13 10:47
+
+应该不是fs本社做的吧？
+
+—— 来自 vivo V2324A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  heseran  
+##### 78#       发表于 2024-12-13 10:47
+
+能单人能三人不能双人玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -2507,3 +2507,18 @@ MEM对应的是萝 Lisa
 
 [https://x.com/bangdream_en](https://x.com/bangdream_en)
 
+
+*****
+
+####  skives10  
+##### 3182#       发表于 2024-12-13 10:35
+
+最下面这个小女孩看起来好纯良啊 一定是团队里的妹妹角色吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 3183#       发表于 2024-12-13 10:36
+
+祥子看起来比其他人小了至少一两岁<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好重的妹系角色气息
+

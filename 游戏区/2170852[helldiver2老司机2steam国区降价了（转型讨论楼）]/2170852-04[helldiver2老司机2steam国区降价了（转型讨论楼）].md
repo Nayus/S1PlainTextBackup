@@ -42,3 +42,15 @@ TGA获最佳多人游戏
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  xinfengj  
+##### 5559#       发表于 2024-12-13 10:37
+
+ 本帖最后由 xinfengj 于 2024-12-13 10:39 编辑 
+
+<img src="https://p.sda1.dev/20/11a53f36b75277f7c5fdefda82fb1c1d/CMP_20241213103635380.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/09dfc5f02e6c4ec14a88393f91a6f65d/CMP_20241213103906957.jpg" referrerpolicy="no-referrer">
+一路打进超级地球的节奏啊
+

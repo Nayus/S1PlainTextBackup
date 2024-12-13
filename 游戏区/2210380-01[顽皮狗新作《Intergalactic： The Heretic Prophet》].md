@@ -1939,3 +1939,13 @@ bungie脚刹完tlou2多人，顽皮狗就整出了这个，bungie罪大恶极。
 
 这类游戏开发周期太长，即使风向转了也没办法掉头，不像影视剧行业，一两年就快速转向了
 
+
+*****
+
+####  我王  
+##### 193#       发表于 2024-12-14 03:49
+
+第一页截图特别像没头发的喜美子，the boys里面那位<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

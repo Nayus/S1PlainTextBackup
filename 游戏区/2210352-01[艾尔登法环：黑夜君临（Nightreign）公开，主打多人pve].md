@@ -800,3 +800,36 @@ pve？
 
 感觉动作系统完全不一样了，想玩
 
+
+*****
+
+####  ParadiseMartyr  
+##### 89#       发表于 2024-12-13 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66912442&amp;ptid=2210352" target="_blank">卡拉德利姆 发表于 2024-12-13 11:13</a>
+大概率会为了这个玩法融一堆新设定 然后把本就混乱不堪的环学搞成更大的一坨浆糊 ...</blockquote>
+即使环学早已破碎，也请您当上环学之王
+
+*****
+
+####  不可避免  
+##### 90#       发表于 2024-12-13 11:44
+
+其实单纯论手感我觉得可以持期待态度，毕竟单纯魂那套系统的一系列作品里，手感最好的是有索尼人员支援的血源。
+
+*****
+
+####  ParadiseMartyr  
+##### 91#       发表于 2024-12-13 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66912442&amp;ptid=2210352" target="_blank">卡拉德利姆 发表于 2024-12-13 11:13</a>
+大概率会为了这个玩法融一堆新设定 然后把本就混乱不堪的环学搞成更大的一坨浆糊 ...</blockquote>
+即使环学早已破碎，也请您当上环学之王
+
+*****
+
+####  缺德猫  
+##### 92#       发表于 2024-12-13 11:46
+
+机动能力堪比只狼，能跑墙
+

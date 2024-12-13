@@ -124,3 +124,13 @@ TGA获最佳多人游戏
 
 空间站也干沉默了？
 
+
+*****
+
+####  jy000129  
+##### 5567#       发表于 2024-12-13 11:39
+
+说起来打光能应该有微型核弹了吧，上作光能据点光靠500怕炸不动
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -1750,3 +1750,13 @@ goty没让我破防，这玩意给我干破防了
 
 之前有采访说过之后游戏推出速度会更加频繁。要做到一年一作就会出现素材复用的试验性小作品，弄点新东西挺好，
 
+
+*****
+
+####  酒巻真希菜  
+##### 191#       发表于 2024-12-14 03:36
+
+【【艾尔登法环：黑夜君临】2500字日网最新情报！联机要素+剧情世界观+游戏玩法+人物角色+地图探索】 [https://www.bilibili.com/video/B ... b9f65e3eaf6e00fa7bd](https://www.bilibili.com/video/BV1iQBMY9E1M/?share_source=copy_web&amp;vd_source=30d454f09b771b9f65e3eaf6e00fa7bd)
+
+是个肉鸽，没有负重 不会摔死 45分钟内没通关3人重置为lv1
+

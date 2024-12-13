@@ -2919,3 +2919,22 @@ mujica基本上可以确定是要去ring常驻的（最直接的理由就是手�
 
 2024-12-13 22:53 上传
 
+
+*****
+
+####  akiomn  
+##### 3222#       发表于 2024-12-14 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66920602&amp;ptid=2208921" target="_blank">Alicest 发表于 2024-12-13 22:53</a>
+不知道会不会有鸡，毕竟是小祥生日后一天</blockquote>
+不会，米泽之前发过推，2月16号有别的活动
+
+*****
+
+####  Toki_Ai  
+##### 3223#       发表于 2024-12-14 00:49
+
+和夜游梅奔撞了，<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">老团的大场没问题吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+

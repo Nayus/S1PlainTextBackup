@@ -1216,3 +1216,28 @@ PV上看自机的性能提升了很多，蹬墙、勾爪、乌鸦坐飞机...
 
 删除了红灵的血源地牢升级版，就是刷刷刷
 
+
+*****
+
+####  xiaosayang  
+##### 135#       发表于 2024-12-13 17:02
+
+不是老贼带队的主力作品，想探索下新方向可以理解
+
+不过这像个mod一样的东西独立作为一个游戏发行观感比较。。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+fs现在从关注度上来说也不是什么小厂了，个人觉得还是应该注意下自己名誉的，到时候互联网滑坡起来有点遭不住
+
+
+*****
+
+####  东方定助  
+##### 136#       发表于 2024-12-13 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66917940&amp;ptid=2210352" target="_blank">xiaosayang 发表于 2024-12-13 17:02</a>
+
+不是老贼带队的主力作品，想探索下新方向可以理解
+
+不过这像个mod一样，pv看起来也很不正经的东西独立作为一 ...</blockquote>
+没事，只要用大失忆术，翻个车都是小事情，你看现在还有多少人记得无根草<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+

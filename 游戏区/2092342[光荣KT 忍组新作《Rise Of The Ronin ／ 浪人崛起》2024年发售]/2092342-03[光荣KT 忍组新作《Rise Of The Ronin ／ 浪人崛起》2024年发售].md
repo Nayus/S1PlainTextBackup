@@ -76,3 +76,11 @@ MD我白等四个小时<img src="https://static.saraba1st.com/image/smiley/face2
 
 果然是弃子了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  性兽阿怪  
+##### 3284#       发表于 2024-12-13 17:03
+
+光荣宁愿做个2d忍龙新作，也不愿继续给浪人搽屁股了<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

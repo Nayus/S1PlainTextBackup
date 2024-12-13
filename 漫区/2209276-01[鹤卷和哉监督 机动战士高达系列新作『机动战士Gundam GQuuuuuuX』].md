@@ -14940,3 +14940,23 @@ Screen Shot 2024-12-13 at 3.33.14 PM.png
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  kisstv22  
+##### 1408#       发表于 2024-12-13 17:04
+
+先行上映商法还是很难延续热度的 新作很可能不是四月番
+
+*****
+
+####  灵魂收割机  
+##### 1409#       发表于 2024-12-13 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66917837&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2024-12-13 16:53</a>
+
+这PV味太冲了，这字体这配乐这运镜，身为EVA信者表示既视感爆表
+
+----发送自 Sony XQ-CT44,Android 14 ...</blockquote>
+这PV和4号的PV画面不是基本没区别吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

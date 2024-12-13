@@ -1153,3 +1153,14 @@ Her father is African Amer ...</blockquote>
 reddit版清一色闭口不谈丑角+各种角度“我太期待了” 是我逛的板块不对吗</blockquote>
 reddit就是圈子更大一点的豆瓣小组啊
 
+
+*****
+
+####  pygrads  
+##### 122#       发表于 2024-12-13 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66915786&amp;ptid=2210380" target="_blank">ak123 发表于 2024-12-13 14:06</a>
+
+有信息来源么，不过这个好像确实是最新版的华裔女规训造型，连老毕的留学女儿都长差不多这样 ...</blockquote>
+UID3546388161890940这个人，味儿挺大的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

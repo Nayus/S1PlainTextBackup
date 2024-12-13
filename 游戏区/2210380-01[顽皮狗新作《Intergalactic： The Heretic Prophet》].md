@@ -1515,3 +1515,14 @@ PlayStation
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  ナルバレック  
+##### 152#       发表于 2024-12-13 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66918608&amp;ptid=2210380" target="_blank">针刺骑士 发表于 2024-12-13 18:09</a>
+
+reddit上本来就是极端支持民主党的左派占大多数，可以看看r/politics上都是什么内容 ...</blockquote>
+红迪感觉没ERA左，ERA为星鸣哭丧的一大堆...
+

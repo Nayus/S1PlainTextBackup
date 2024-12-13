@@ -1431,3 +1431,16 @@ IGN 中国: 鹰头人守护者这一角色是怎样设计的?印象中《艾尔�
 不如做成吃鸡缩圈模式，100个魂5大乱斗想想就刺激，说起来吃鸡也是一堆挂哥 ...</blockquote>
 是缩圈，但没有吃鸡（无PvP元素）
 
+
+*****
+
+####  INDIASH  
+##### 158#       发表于 2024-12-13 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66919061&amp;ptid=2210352" target="_blank">pgain2004 发表于 2024-12-13 19:08</a>
+
+是缩圈，但没有吃鸡（无PvP元素）</blockquote>
+缩圈我知道，我的意思就是改成pvp，反正吃鸡也能组队<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+毒圈改成小高最爱的沼泽粪坑，然后吃鸡改成成为真正的艾尔登之王，最好最后再来个队友pvp，齐活<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

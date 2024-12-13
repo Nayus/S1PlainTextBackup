@@ -729,3 +729,30 @@ It takes inspiration, he said, from classic anime like the 1988 movie “Akira�
 
 这个trailer也要啥没啥，那个使徒脸的机器人真是土中土
 
+
+*****
+
+####  mimighost  
+##### 75#       发表于 2024-12-13 13:48
+
+ytb现在法环第一，巫师4第二
+
+这游戏查无此人
+
+可以说第一波拉流量已经失败，没炒起来
+
+
+*****
+
+####  JoelBirch  
+##### 76#       发表于 2024-12-13 13:51
+
+同样是机器人，看看人家上田文人那个
+
+*****
+
+####  herryk159  
+##### 77#       发表于 2024-12-13 13:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这游戏能成为《星鸣特工》之后第二个投资大失败的游戏吗？
+

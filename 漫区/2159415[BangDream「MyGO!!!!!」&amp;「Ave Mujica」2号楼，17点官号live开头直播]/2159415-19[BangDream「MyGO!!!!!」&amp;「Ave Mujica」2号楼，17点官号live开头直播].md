@@ -148,3 +148,13 @@ tmy这一年是不是完全没来过邦邦相关节目<img src="https://static.s
 
 她确实很喜欢crychic这个是可以肯定的，但是具体评价见仁见智吧
 
+
+*****
+
+####  fufusako  
+##### 26650#       发表于 2024-12-13 13:47
+
+TGA弱智梗图<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+<img src="https://img30.360buyimg.com/myjd/jfs/t20271213/250319/28/21805/103406/675bca3fF3e8c25aa/7896a6a100961e85.jpg" referrerpolicy="no-referrer">
+

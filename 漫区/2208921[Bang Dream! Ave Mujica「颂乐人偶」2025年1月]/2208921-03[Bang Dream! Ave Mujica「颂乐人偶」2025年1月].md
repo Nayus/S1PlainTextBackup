@@ -2750,3 +2750,13 @@ MEM对应的是萝 Lisa
 《当红偶像初华牛逼》《艺人之女若叶睦也很出名》《网红主播喵梦还不错》《DISRUPTION的海玲也还凑活》《我 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">tga笑话怎么来的那么快
 
+
+*****
+
+####  贰臣  
+##### 3205#       发表于 2024-12-13 13:49
+
+网友一边骂赤坂明一边往自己看的作品上嗯套赤坂明套路让jk掺和商战掺和娱乐圈豆蒸，真是行为艺术
+
+神金，这是邦多利不是cbm新作
+

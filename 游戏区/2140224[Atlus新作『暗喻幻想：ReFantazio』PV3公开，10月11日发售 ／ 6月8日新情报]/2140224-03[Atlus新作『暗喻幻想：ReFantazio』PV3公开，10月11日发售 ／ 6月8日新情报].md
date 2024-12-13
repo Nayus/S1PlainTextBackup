@@ -166,3 +166,18 @@ GameSpot 2024年度游戏：《暗喻幻想：ReFantazio》 ​​​
 
 桥野桂：哥大赢特赢啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jxzeroga0  
+##### 3624#       发表于 2024-12-13 11:50
+
+桥野桂到底塞了多少钱啊，这下不得不拿goty了，证明你的实力吧！<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卡拉德利姆  
+##### 3625#       发表于 2024-12-13 11:51
+
+你们这些a黑 都给我跪下！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

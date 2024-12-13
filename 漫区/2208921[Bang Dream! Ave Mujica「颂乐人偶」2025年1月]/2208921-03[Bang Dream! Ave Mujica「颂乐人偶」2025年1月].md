@@ -2406,3 +2406,24 @@ MEM对应的是萝 Lisa
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  RPG-7  
+##### 3175#       发表于 2024-12-13 08:43
+
+上周积点的罗森联动冰箱贴今天才刚到，开了个Tokyo Anon出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  傘木希美  
+##### 3176#       发表于 2024-12-13 08:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66910204&amp;ptid=2208921" target="_blank">RPG-7 发表于 2024-12-13 08:43</a>
+上周积点的罗森联动冰箱贴今天才刚到，开了个Tokyo Anon出来</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">线下的嘛
+不知道线上小程序买的啥时候能到，不会真明年2月吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.95-alpha
+

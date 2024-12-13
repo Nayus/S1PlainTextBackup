@@ -14706,3 +14706,32 @@ Screenshot_20241213_072629_com.sina.weibo.jpg
 
 俩高达凑一起果然引发第二次冲击了（
 
+
+*****
+
+####  创始’’’天翔  
+##### 1391#       发表于 2024-12-13 08:47
+
+<blockquote>PascalLefèvre 发表于 2024-12-13 07:36
+背景是殖民地废墟欸，难道剧场版涉及到的前几话就会有大的发生吗
+
+总不能打黑拳把大楼打塌了吧 ...</blockquote>
+水魔二期的宣传图背景也是废墟
+
+<img src="https://img.saraba1st.com/forum/202412/13/084734dbi8e8hy888ubeee.png" referrerpolicy="no-referrer">
+
+<strong>7cfa626a639cafe05d552e7a12a1c12f6ed893efc7a91d230f711bfc8250c3d5.0.PNG</strong> (420 Bytes, 下载次数: 0)
+
+下载附件
+
+2024-12-13 08:47 上传
+
+*****
+
+####  RE㐅ia  
+##### 1392#       发表于 2024-12-13 08:49
+
+<blockquote>创始’’’天翔 发表于 2024-12-13 08:47
+水魔二期的宣传图背景也是废墟</blockquote>
+正片里也是废墟啊，只不过是投影模拟出来的（
+

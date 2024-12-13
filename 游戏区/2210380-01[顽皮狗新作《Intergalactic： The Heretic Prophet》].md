@@ -1739,3 +1739,41 @@ The story is set in an alternative universe ...</blockquote>
 The story is set in an alternative universe ...</blockquote>
 基本上就是那时候的新纪元科幻风格了
 
+
+*****
+
+####  FLZB  
+##### 174#       发表于 2024-12-13 22:07
+
+写实画风和主角气质跟这复古风完全不搭
+
+*****
+
+####  巴特爱素子  
+##### 175#       发表于 2024-12-13 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66915970&amp;ptid=2210380" target="_blank">东方定助 发表于 2024-12-13 14:20</a>
+
+Tatiana Gabrielle Hobson (born January 25, 1996) is an American actress.
+
+Her father is African Amer ...</blockquote>
+感觉是照着棒子脸抽的设定，就差直接说她妈是在韩国被美国驻军强的
+
+*****
+
+####  zzzzzzzzzzz  
+##### 176#       发表于 2024-12-13 22:10
+
+主角换个人评价好很多，既然要复古未来风格，那就主角也选个这一时期喜好的外貌呗。
+
+
+*****
+
+####  巴特爱素子  
+##### 177#       发表于 2024-12-13 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66920296&amp;ptid=2210380" target="_blank">zzzzzzzzzzz 发表于 2024-12-13 22:10</a>
+
+主角换个人评价好很多，既然要复古未来风格，那就主角也选个这一时期喜好的外貌呗。 ...</blockquote>
+哪怕他选个长得像boney m 主唱的黑人女加球形蓬发都算他贴合时代了
+

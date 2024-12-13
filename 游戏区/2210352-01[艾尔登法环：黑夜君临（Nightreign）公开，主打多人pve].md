@@ -1614,3 +1614,31 @@ goty没让我破防，这玩意给我干破防了
 自我怀疑什么？说来听听</blockquote>
 没什么，只是怀疑我真的在看小高魂游的情报吗<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  budong  
+##### 176#       发表于 2024-12-13 22:10
+
+二月份就开启网测了，怕是三四月就能玩上正式版了
+
+*****
+
+####  Xkarl  
+##### 177#       发表于 2024-12-13 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66919731&amp;ptid=2210352" target="_blank">HATENA 发表于 2024-12-13 20:51</a>
+
+笑了，fs又不是万代子公司怎么什么都代哥逼的，神坛永不粘锅是吧</blockquote>
+魂2魂3就是这样来的，甚至魂2都没做完就立项魂3了
+
+
+*****
+
+####  budong  
+##### 178#       发表于 2024-12-13 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66920220&amp;ptid=2210352" target="_blank">桥洞底下盖小被 发表于 2024-12-13 22:00</a>
+没什么，只是怀疑我真的在看小高魂游的情报吗</blockquote>
+话说这游戏真的差不多做好了，二月份就有网络测试了
+

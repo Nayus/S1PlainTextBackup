@@ -1154,3 +1154,43 @@ FS不是总会用类似于.5作之类的作品来尝试点新东西么，更别�
 
 不大概的话那真是只有美术能看了
 
+
+*****
+
+####  Fask  
+##### 128#       发表于 2024-12-13 16:19
+
+圈烂钱<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  医生狼多  
+##### 129#         楼主| 发表于 2024-12-13 16:21
+
+专访看下来，寄寄的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">https://weibo.com/ttarticle/x/m/show/id/2309405111141973229656?_wb_client_=1
+
+
+*****
+
+####  七层嘉影  
+##### 130#       发表于 2024-12-13 16:25
+
+这个真不是万代拿着枪指着小高脑袋做的吗
+
+*****
+
+####  七层嘉影  
+##### 131#       发表于 2024-12-13 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66917471&amp;ptid=2210352" target="_blank">Fask 发表于 2024-12-13 16:19</a>
+
+圈烂钱</blockquote>
+黄金树本来就是圈钱了，DLC一开始也不在企划中
+
+*****
+
+####  laputah  
+##### 132#       发表于 2024-12-13 16:26
+
+我看到的是魂世界暖暖 
+

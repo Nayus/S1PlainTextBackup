@@ -1058,3 +1058,67 @@ TLOU ONLINE啊，半年前快发售的时候被棒鸡给毙了
 
 第二次大型社会实验即将开启<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛亚替身  
+##### 112#       发表于 2024-12-13 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66915970&amp;ptid=2210380" target="_blank">东方定助 发表于 2024-12-13 14:20</a>
+
+Tatiana Gabrielle Hobson (born January 25, 1996) is an American actress.
+
+Her father is African Amer ...</blockquote>
+我就说怎么长得不像亚裔，像染黄的非裔
+
+*****
+
+####  mimighost  
+##### 113#       发表于 2024-12-13 16:22
+
+果然只有resetera那群人喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+符合预期
+
+*****
+
+####  zxtree  
+##### 114#       发表于 2024-12-13 16:23
+
+跟星空一样不能无缝飞啊
+
+
+*****
+
+####  aiyouo  
+##### 115#       发表于 2024-12-13 16:24
+
+这也太丑了，真的有人能忍受这张丑脸玩下去吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 116#       发表于 2024-12-13 16:25
+
+祝暴死。
+
+*****
+
+####  nbwjh0630  
+##### 117#       发表于 2024-12-13 16:26
+
+<img src="https://img.saraba1st.com/forum/202412/13/162626qwahxlgfdqo8aynj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (93.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-13 16:26 上传
+
+*****
+
+####  nbwjh0630  
+##### 118#       发表于 2024-12-13 16:27
+
+如果是 neil dick man的话，那一切就合理起来了吧。
+

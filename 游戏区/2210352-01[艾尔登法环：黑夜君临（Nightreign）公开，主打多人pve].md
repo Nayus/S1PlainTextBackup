@@ -885,3 +885,23 @@ pve？
 
 为什么不能二人 三人敌对勾心斗角？
 
+
+*****
+
+####  Alphawalker  
+##### 99#       发表于 2024-12-13 12:48
+
+这套系统光是打打打不太够阿，估计还是要把环的制作系统融进来
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">三人模式来个战法牧就坏了
+
+
+*****
+
+####  托米  
+##### 100#       发表于 2024-12-13 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66914321&amp;ptid=2210352" target="_blank">液体显微隧道 发表于 2024-12-13 12:36:17</a>
+这玩意儿性质就跟血源卡丁车一样，都有一种魂5意淫的mod玩法真被官方做出来的诡异感 v3.1.88.1-alpha ...</blockquote>官方的卡丁车在哪
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

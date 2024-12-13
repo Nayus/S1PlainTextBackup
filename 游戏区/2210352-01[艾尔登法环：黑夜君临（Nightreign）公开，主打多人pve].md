@@ -1768,3 +1768,13 @@ goty没让我破防，这玩意给我干破防了
 
 是不是可以理解成FS版雨中冒险<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  貓血発動機  
+##### 193#       发表于 2024-12-14 04:22
+
+黑魂1是小高这辈子都翻不过的大山
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

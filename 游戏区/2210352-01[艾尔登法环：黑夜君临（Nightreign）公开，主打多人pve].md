@@ -954,3 +954,64 @@ boss动作和韧性是不是要大改，不然真经不住三个人砍吧
 
 为了做吃鸡乱斗放弃lore了吗<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  JOJO42  
+##### 106#       发表于 2024-12-13 14:16
+
+难绷，某个魂游up昨天就暗示fs终于自己有了个类似血源的版权ip....吊了半天胃口，结果最后展示了个fs主题乐园
+
+*****
+
+####  budong  
+##### 107#       发表于 2024-12-13 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66915722&amp;ptid=2210352" target="_blank">zzf111 发表于 2024-12-13 14:00</a>
+为啥无名王者会在法环里，粗看头冠，武器和龙头就是魂三无名
+
+还有个露出来的头冠鼻子部分像魂三防火女，辫 ...</blockquote>
+因为大boss夜王把黑魂世界的人吸过来一起侵略交界地了
+
+*****
+
+####  ParadiseMartyr  
+##### 108#       发表于 2024-12-13 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66915722&amp;ptid=2210352" target="_blank">zzf111 发表于 2024-12-13 14:00</a>
+为啥无名王者会在法环里，粗看头冠，武器和龙头就是魂三无名
+
+还有个露出来的头冠鼻子部分像魂三防火女，辫 ...</blockquote>
+前面魂1混沌百足恶魔直接明晃晃的出了，就是复用，改都不改，大概是什么穿越杂糅世界
+
+*****
+
+####  zxtree  
+##### 109#       发表于 2024-12-13 14:21
+
+看着很符合万代的品味
+
+*****
+
+####  海豹墨鱼卷  
+##### 110#       发表于 2024-12-13 14:22
+
+老头猎人ol
+
+
+*****
+
+####  budong  
+##### 111#       发表于 2024-12-13 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66915991&amp;ptid=2210352" target="_blank">ParadiseMartyr 发表于 2024-12-13 14:21</a>
+前面魂1混沌百足恶魔直接明晃晃的出了，就是复用，改都不改，大概是什么穿越杂糅世界 ...</blockquote>
+这个解释了，是大boss夜王把黑魂世界的人吸到了交界地
+
+*****
+
+####  卡拉德利姆  
+##### 112#       发表于 2024-12-13 14:24
+
+只能说kol的谜语信不了一点 不管他们是干什么的默认信用都应该是-100
+

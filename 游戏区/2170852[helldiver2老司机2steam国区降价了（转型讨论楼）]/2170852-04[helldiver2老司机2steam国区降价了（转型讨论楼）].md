@@ -197,3 +197,19 @@ TGA获最佳多人游戏
 
 布娃娃状态的玩家会首先采用俯卧姿势，该姿势也会加快灭火速度
 
+
+*****
+
+####  Jyions  
+##### 5571#       发表于 2024-12-13 14:22
+
+拿着弩和类星体进n10光能族任务被打的嗷嗷叫<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">，三足和飞船的护盾真的不能拿类星体打
+
+*****
+
+####  DawnGuardian  
+##### 5572#       发表于 2024-12-13 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66913401&amp;ptid=2170852" target="_blank"> FLZB 发表于 2024-12-13 11:59</a> 这新枪真不是从杀戮地带宇宙偷来的？ </blockquote>
+好像就是联动武器，这次不是致敬了来自: iPhone客户端
+

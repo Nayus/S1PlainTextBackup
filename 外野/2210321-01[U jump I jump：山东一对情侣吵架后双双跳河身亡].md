@@ -456,3 +456,20 @@
 
 这不得不配一段《探清水河》了
 
+
+*****
+
+####  星十影  
+##### 52#       发表于 2024-12-13 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66908133&amp;ptid=2210321" target="_blank">pure_liquid 发表于 2024-12-12 20:31</a>
+公无渡河，公竟渡河！
+
+堕河而死，当奈公何！</blockquote>
+山东省
+菏泽市
+曹县！
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

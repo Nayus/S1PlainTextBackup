@@ -868,3 +868,27 @@ PS youtube预告赞踩比都快持平了<img src="https://static.saraba1st.com/i
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
 
+
+*****
+
+####  东方定助  
+##### 91#       发表于 2024-12-13 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66915786&amp;ptid=2210380" target="_blank">ak123 发表于 2024-12-13 14:06</a>
+
+有信息来源么，不过这个好像确实是最新版的华裔女规训造型，连老毕的留学女儿都长差不多这样 ...</blockquote><strong>Tatiana Gabrielle Hobson</strong> (born January 25, 1996) is an American actress.
+
+Her father is African American, and her mother was born in Korea to a Korean woman and African American soldier.
+
+*****
+
+####  3123  
+##### 92#       发表于 2024-12-13 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66915086&amp;ptid=2210380" target="_blank">UmarIbnLaAhad 发表于 2024-12-13 13:18</a>
+
+坛友们，泥潭woke嗦粉活雷达响了，快跑</blockquote>
+扣掉秃尼的话确实是这么个感觉，至少皮像是很对味的
+
+很烦这种皮似骨非的玩意儿<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

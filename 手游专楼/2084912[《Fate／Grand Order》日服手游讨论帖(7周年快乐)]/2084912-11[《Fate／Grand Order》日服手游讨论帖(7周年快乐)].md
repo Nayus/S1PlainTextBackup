@@ -2214,3 +2214,22 @@ https://www.bilibili.com/video/BV1BUBMYdEVq
 
 要体现你日匠心那就找个工读生手工一个一个翻记录呗
 
+
+*****
+
+####  上坂莲华  
+##### 15416#       发表于 2024-12-13 22:34
+
+没事，我有一计，YLS到时候大晦日拿两瓣洋葱上去擦擦眼睛
+
+在X上我们收到了很多玩家的意见和建议以及鼓励<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+但是（哽咽）一部分玩家（哽咽）尤其是日本以外地区玩家（哽咽）的声音（哽咽）太过尖锐<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 15417#       发表于 2024-12-13 22:38
+
+现在知道回收了？ 但你有这本事吗<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+

@@ -1777,3 +1777,11 @@ Her father is African Amer ...</blockquote>
 主角换个人评价好很多，既然要复古未来风格，那就主角也选个这一时期喜好的外貌呗。 ...</blockquote>
 哪怕他选个长得像boney m 主唱的黑人女加球形蓬发都算他贴合时代了
 
+
+*****
+
+####  FishTail  
+##### 178#       发表于 2024-12-13 22:44
+
+"顽皮狗就tama做这个啊握草<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">"
+

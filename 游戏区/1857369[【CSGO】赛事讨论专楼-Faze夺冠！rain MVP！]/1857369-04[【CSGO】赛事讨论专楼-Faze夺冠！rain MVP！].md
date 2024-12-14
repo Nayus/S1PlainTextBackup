@@ -305,3 +305,11 @@ same old story<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 same old story明年是按积分来，猎鹰重组清零了吧，能有多少比赛打</blockquote>
 没记错的话V社积分是选手带的，比如Niko会带走G2的20%积分，所以重组下来也会有V社积分，当然够不够进卡托那就不好说了。
 
+
+*****
+
+####  Litccc  
+##### 4609#       发表于 2024-12-14 22:42
+
+关注dota2区cs专楼喵，关注dota2区cs专楼谢谢喵
+

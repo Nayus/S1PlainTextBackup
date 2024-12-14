@@ -4491,3 +4491,31 @@ Avemujica不是充满了乐观开朗向上美好青春的次世代少女乐队�
 
 all in双重人格，口嗨越来越真<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ggxx001  
+##### 3390#       发表于 2024-12-14 22:39
+
+先看1集 再看op  睦祥先🏳️  能把睦祥童年放出来就算赢
+
+
+*****
+
+####  kivz  
+##### 3391#       发表于 2024-12-14 22:40
+
+妈耶，给我吓死了这op<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KLHgg  
+##### 3392#       发表于 2024-12-14 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66927148&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-14 22:11</a>
+
+睦应该不会有人格分裂吧？这可是bangdream，应该不会有吧？
+
+至于睦狠狠地艹祥，我没意见 ...</blockquote>
+美咲和米歇尔的叠加态，此事亦在hhw中有记载
+

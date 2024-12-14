@@ -387,3 +387,11 @@ AppData\Roaming\Arrowhead\Helldivers2\shader_cache下的着色器文件删了重
 对的，联动债券</blockquote>
 ……惊到了……这狙击皮肤，游戏里还可以隐身呢
 
+
+*****
+
+####  ykyin09  
+##### 5591#       发表于 2024-12-14 13:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">这电棍和长矛还挺有意思的，配上盾牌可以cos空输runningman
+

@@ -2177,3 +2177,169 @@ e62ff28aeb800611a996de0b55570cd8.png
 
 虽然肯定要去，但感觉有够敷衍<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wfhtony  
+##### 6772#       发表于 2024-12-14 13:15
+
+[「THE IDOL@MASTER」初SACD化。SACD層用にスチューダーA820を使いアナログマスター制作](https://av.watch.impress.co.jp/docs/news/1647555.html)
+
+本家的BEST盤要出SACD版了，都是限量發售，外盒爲LP Size（唱片大小）。
+
+說是SACD層（DSD）是用母帶重新做的（錄音帶的模擬信號→[A80/A820](https://therecorderman.com/en/registratori/A820.php)→數字信號）。 <blockquote>
+
+<img src="https://img.saraba1st.com/forum/202412/14/131453of7hqgfagt1717qt.jpg" referrerpolicy="no-referrer">
+
+<strong>SSMS074_o.jpg</strong> (155.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 13:14 上传
+
+THE IDOLM[@ster](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=42350) 765PRO ALLSTARS+ GRE[@test](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=1000) BEST! -THE IDOLM@STER HISTORY-
+
+品番：SSMS074
+
+発売日：2025年1月10日
+
+CD/SACDハイブリッド盤（SACD層は2chのみの収録）グリーン・カラー・レーベルコート仕様
+
+<img src="https://img.saraba1st.com/forum/202412/14/131452f82s6kztxxog7jfk.jpg" referrerpolicy="no-referrer">
+
+<strong>green_o.jpg</strong> (172.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 13:14 上传
+
+価格：11,000円
+
+収録曲
+
+1. THE IDOLM@STER（M@STER VERSION -REMIX-）
+
+2. GO MY WAY!!（M@STER VERSION）
+
+3. i
+
+4.空
+
+5. shiny smile（M@STER VERSION）
+
+6. Colorful Days（M@STER VERSION）
+
+7. L・O・B・M
+
+8. "HELLO!!"（M@STER VERSION）
+
+9. MEGARE!（M@STER VERSION）
+
+10. The world is all one !!（M@STER VERSION）
+
+11. READY!!（M@STER VERSION）
+
+12. CHANGE!!!!（M@STER VERSION）
+
+13. 自分REST@RT（M@STER VERSION）
+
+14. 私たちはずっと…でしょう
+
+15. MUSIC♪(M@STER VERSION）
+
+BONUS TRACK
+
+16.団結2010
+
+<img src="https://img.saraba1st.com/forum/202412/14/131454hc3j3sx5ixjx0czs.jpg" referrerpolicy="no-referrer">
+
+<strong>SSMS-075_o.jpg</strong> (170.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 13:14 上传
+
+THE IDOLM@STER 765PRO ALLSTARS+ GRE@TEST BEST! -SWEET&amp;SMILE-
+
+品番：SSMS075～76
+
+発売日：2025年1月10日
+
+CD/SACDハイブリッド盤（SACD層は2chのみの収録）グリーン・カラー・レーベルコート仕様
+
+価格：13,200円
+
+収録曲
+
+DISC1
+
+1. 魔法をかけて！ (M@STER VERSION)
+
+2. ポジティブ！ (M@STER VERSION)
+
+3. 太陽のジェラシー (M@STER VERSION)
+
+4. おはよう！！朝ご飯 (M@STER VERSION)
+
+5. First Stage (M@STER VERSION)
+
+6. Here we go!! (M@STER VERSION)
+
+7. 神さまのBirthday
+
+8. My Best Friend (M@STER VERSION)
+
+9. 私はアイドル🖤🖤 (M@STER VERSION)
+
+10. キラメキラリ
+
+11. スタ→トスタ→
+
+12. Kosmos, Cosmos
+
+13. バレンタイン
+
+14. Do-Dai (M@STER VERSION)
+
+15. 花
+
+DISC2
+
+1. 乙女よ大志を抱け！！
+
+2. フラワーガール
+
+3. ショッキングな彼
+
+4. リゾラ
+
+5. あったかな雪
+
+6. キミはメロディ (M@STER VERSION)
+
+7. START!!
+
+8. 何度も言えるよ
+
+9. ジェミー
+
+10. ラ🖤🖤ブ🖤🖤リ
+
+11. 神SUMMER!!
+
+12. Brand New Day!
+
+13. チアリングレター
+
+14. 七彩ボタン (M@STER VERSION)
+
+15. ビジョナリー(M@STER VERSION)</blockquote>
+另外兩組BEST盤的SACD版預計於春季發售。
+
+*****
+
+####  magicc  
+##### 6773#       发表于 2024-12-14 13:15
+
+嘘黑那个应该跟上次961一样，有舞台那种
+

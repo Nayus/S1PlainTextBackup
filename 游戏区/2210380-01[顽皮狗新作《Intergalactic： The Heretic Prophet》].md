@@ -2107,3 +2107,14 @@ YouTube评论都在说最大的错误就是没有关闭评论区
 
 翻车的话能不能把之前的TLOU OL给复活了，反正源代码啥的肯定都还在吧
 
+
+*****
+
+####  ナルバレック  
+##### 205#       发表于 2024-12-14 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66922382&amp;ptid=2210380" target="_blank">UmarIbnLaAhad 发表于 2024-12-14 10:22</a>
+
+作为你嗦第一方里话语权数一数二基本可以一手遮天的人，neil早就不在乎顽皮狗或者说自己的游戏会在玩家、 ...</blockquote>
+影视圈WOKE还是时不时会滑铁卢的，欧美女歌手圈才是WOKE垃圾桶和肉喇叭
+

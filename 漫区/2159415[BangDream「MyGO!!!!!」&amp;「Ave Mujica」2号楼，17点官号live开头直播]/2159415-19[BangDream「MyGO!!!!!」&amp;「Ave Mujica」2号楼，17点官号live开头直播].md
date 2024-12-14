@@ -186,3 +186,13 @@ R这新曲也太舒服了<img src="https://static.saraba1st.com/image/smiley/fac
 ppp out<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">最期待高祖来着，sad
 <img src="https://p.sda1.dev/20/377ce3f13c7b42b7069331d016baf44d/Image_79294777224879.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CyDiablo  
+##### 26654#       发表于 2024-12-14 13:09
+
+已经。。不用。。再猜了。。
+萝one man
+<img src="https://p.sda1.dev/20/25d17be1b4e5c44fa485e02d493f0c7f/Image_84736314915973.jpg" referrerpolicy="no-referrer">
+

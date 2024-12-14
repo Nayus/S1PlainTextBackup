@@ -259,3 +259,11 @@ ame❤niko
 
 ropz八进四和四进二两场都太吓人了
 
+
+*****
+
+####  朔方原的星  
+##### 4604#         楼主| 发表于 2024-12-14 21:30
+
+G2这个俱乐部还是发挥了一直以来的传统：几年来无论阵容如何变动，永远打得一盘散沙，个人能力嗯砸死了就赢，砸不死就输得非常自然<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

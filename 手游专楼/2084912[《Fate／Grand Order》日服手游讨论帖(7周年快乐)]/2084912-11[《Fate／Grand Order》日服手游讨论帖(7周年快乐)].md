@@ -2591,3 +2591,11 @@ T3奥伯龙+旧剑技能全开，旧剑第二发宝具+左1的宝具/旧剑自�
 
 可惜咕嗒的身体只有一个不能进去一起泡
 
+
+*****
+
+####  Jamaisvu  
+##### 15447#       发表于 2024-12-15 00:48
+
+刚才在用兽艾蕾刷90++，结果一个没注意把怖军即死了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">感觉痛失一个五星...
+

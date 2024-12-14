@@ -2268,3 +2268,14 @@ woke game不会玩
 
 索尼底下几个大的工作室看来得死一个才会转向吧
 
+
+*****
+
+####  ナルバレック  
+##### 221#       发表于 2024-12-15 00:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66928067&amp;ptid=2210380" target="_blank">shudushimo 发表于 2024-12-15 00:43</a>
+
+索尼底下几个大的工作室看来得死一个才会转向吧</blockquote>
+大工作室项目都是19年或20年立项的，尼尔大仙贝更是业界政确领军人物加魔怔狂人，顽皮狗内资历比他老的高管他全都斗走好多年了，指望他转向的概率还不如他唐突寄了，而且关键是顽皮狗在PS3时代起飞后还没被摔疼过
+

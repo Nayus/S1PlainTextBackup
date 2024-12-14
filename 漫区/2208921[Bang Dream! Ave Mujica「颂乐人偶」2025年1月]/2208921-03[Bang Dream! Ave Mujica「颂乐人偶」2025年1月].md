@@ -3008,3 +3008,19 @@ wsd一到卖卡就挺舍得给新图的，不愧是摇钱树产业
 
 歌单出来了，今天mujica是元素五首联唱
 
+
+*****
+
+####  前方暴雨预警  
+##### 3231#       发表于 2024-12-14 14:29
+
+这图的左边是Shuzuku，右边……是信泽？露出嘴的三位都有点邪神化了
+
+*****
+
+####  莉缇娅  
+##### 3232#       发表于 2024-12-14 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66923635&amp;ptid=2208921" target="_blank">ShikiM 发表于 2024-12-14 13:37</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">狗团是会出现在这种高楼顶层背景的乐队吗
+

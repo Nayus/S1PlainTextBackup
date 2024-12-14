@@ -2055,3 +2055,14 @@ bungie脚刹完tlou2多人，顽皮狗就整出了这个，bungie罪大恶极。
 
 YouTube评论都在说最大的错误就是没有关闭评论区
 
+
+*****
+
+####  ybfelix  
+##### 200#       发表于 2024-12-14 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66920281&amp;ptid=2210380" target="_blank">巴特爱素子 发表于 2024-12-13 22:08</a>
+
+感觉是照着棒子脸抽的设定，就差直接说她妈是在韩国被美国驻军强的</blockquote>
+这不是设定啊 这是演员真人出身 - -
+

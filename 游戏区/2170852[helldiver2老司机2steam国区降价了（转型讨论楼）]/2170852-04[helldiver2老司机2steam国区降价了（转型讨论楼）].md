@@ -376,3 +376,14 @@ AppData\Roaming\Arrowhead\Helldivers2\shader_cache下的着色器文件删了重
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  哈毛  
+##### 5590#       发表于 2024-12-14 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66921501&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-12-14 04:06</a>
+
+对的，联动债券</blockquote>
+……惊到了……这狙击皮肤，游戏里还可以隐身呢
+

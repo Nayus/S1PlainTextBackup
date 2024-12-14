@@ -12382,3 +12382,15 @@ nagi新曲倒不错，就是那段rap<img src="https://static.saraba1st.com/imag
 
 不过新团确实该出了，不管是按正作5年一代还是算上分支2~3年一代，明年都该公布新的亲女儿团了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">　
 
+
+*****
+
+####  ads147147  
+##### 1212#       发表于 2024-12-14 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66920045&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-12-13 21:37</a>
+12的图都漏了，虽然就一张，不过，为啥合照有三巨头</blockquote>
+全校包饺子有三巨头很正常吧
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

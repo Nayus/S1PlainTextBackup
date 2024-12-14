@@ -321,3 +321,17 @@ same old story明年是按积分来，猎鹰重组清零了吧，能有多少比
 
 太没有下限了G2，图一极其丑陋，都走到四强了还能越输越急越急越送
 
+
+*****
+
+####  Rainwedell  
+##### 4611#       发表于 2024-12-14 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66926627&amp;ptid=1857369" target="_blank">六道仙鱼 发表于 2024-12-14 21:09</a>
+uzi 主要是出道早，要是杰克不拿那个冠军，是真的三个哥哥了
+
+—— 来自 鹅球 v3.3.92 ...</blockquote>
+这仨一年出生，都是 98，还是更变态的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

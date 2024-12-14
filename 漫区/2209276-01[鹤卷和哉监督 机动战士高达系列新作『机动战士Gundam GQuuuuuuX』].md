@@ -15029,3 +15029,19 @@ Screen Shot 2024-12-13 at 3.33.14 PM.png
 从18年换了画风后tv版就不行了，原创集根本看不到藤子类似“爸爸也会撒娇”这样的具有生活气息的集数。 ...</blockquote>
 前段时间机缘巧合下看了几集新版，感觉说教味重了很多，而且人物塑造有点太端着
 
+
+*****
+
+####  oi99o  
+##### 1417#       发表于 2024-12-14 16:41
+
+草
+
+<img src="https://img.saraba1st.com/forum/202412/14/164127cz1icdbv1obdmbdv.png" referrerpolicy="no-referrer">
+
+<strong>{EFF8D7AC-6BB4-4B45-BA44-F0734CDD4986}.png</strong> (31.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 16:41 上传
+

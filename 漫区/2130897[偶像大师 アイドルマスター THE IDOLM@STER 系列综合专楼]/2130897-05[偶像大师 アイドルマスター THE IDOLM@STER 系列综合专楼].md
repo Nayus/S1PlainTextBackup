@@ -2343,3 +2343,33 @@ DISC2
 
 嘘黑那个应该跟上次961一样，有舞台那种
 
+
+*****
+
+####  wfhtony  
+##### 6774#       发表于 2024-12-14 15:11
+
+<img src="https://img.saraba1st.com/forum/202412/14/151101c0taldjunnouoas0.jpg" referrerpolicy="no-referrer">
+
+<strong>M@STER EXPO エキスポステージ Day 1-B.ts_snapshot_02.43.42.733.jpg</strong> (274.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 15:11 上传
+
+<img src="https://img.saraba1st.com/forum/202412/14/151102atppii7i2touxrfq.jpg" referrerpolicy="no-referrer">
+
+<strong>M@STER EXPO エキスポステージ Day 1-B.ts_snapshot_02.43.48.965.jpg</strong> (264.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 15:11 上传
+
+<img src="https://img.saraba1st.com/forum/202412/14/151102rhipnhzhp2p59hif.jpg" referrerpolicy="no-referrer">
+
+<strong>M@STER EXPO エキスポステージ Day 1-B.ts_snapshot_02.44.15.650.jpg</strong> (264.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 15:11 上传
+

@@ -3045,3 +3045,22 @@ go的都市/高楼/楼顶要素一直有的，早期的名无声和影色舞就�
 狗团是会出现在这种高楼顶层背景的乐队吗</blockquote>
 素世家空调坏了出来乘凉罢了
 
+
+*****
+
+####  御幸一也  
+##### 3235#       发表于 2024-12-14 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66923933&amp;ptid=2208921" target="_blank">前方暴雨预警 发表于 2024-12-14 14:29</a>
+
+这图的左边是Shuzuku，右边……是信泽？露出嘴的三位都有点邪神化了</blockquote>
+應該不是信澤，信澤可能……要笑得更邪魅（<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  桜庭千景  
+##### 3236#       发表于 2024-12-14 15:16
+
+可能ws的图是tcg部门自己掏钱约的图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

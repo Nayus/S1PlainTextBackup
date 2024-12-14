@@ -4416,3 +4416,53 @@ op里初华在祥子消失后明显绷不住了，祥子又有个倒吊人的画
 
 初华酱越来越嬷了？是错觉么
 
+
+*****
+
+####  PDQ4  
+##### 3381#       发表于 2024-12-14 22:19
+
+这才对得起去年声势浩大的线下解密和迷你专嘛<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+只是没想到OP画面比黑生假面那几首歌词癫多了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  枫林不见  
+##### 3382#       发表于 2024-12-14 22:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">Avemujica不是充满了乐观开朗向上美好青春的次世代少女乐队企划bangdream里的一员吗？为什么现在充斥着阿卡姆医院组乐队的美感。
+
+*****
+
+####  skives10  
+##### 3383#       发表于 2024-12-14 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66927220&amp;ptid=2208921" target="_blank">枫林不见 发表于 2024-12-14 22:19</a>
+Avemujica不是充满了乐观开朗向上美好青春的次世代少女乐队企划bangdream里的一员吗？为什么现在充斥着阿卡 ...</blockquote>
+接下来我要介绍一个名字里又是阿又是卡又是姆的乐队<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  桜庭千景  
+##### 3384#       发表于 2024-12-14 22:25
+
+好消息是高尾小姐说ep13结尾像以太而不是killkiss<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  drrrrrrrr  
+##### 3385#       发表于 2024-12-14 22:25
+
+开始的卡片里只有睦的卡竖着有根线
+
+—— 来自 samsung SM-S928Q, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  太二EricGuo  
+##### 3386#       发表于 2024-12-14 22:27
+
+相信独角兽必然能让初祥睦祥大撕特撕天昏地暗的
+

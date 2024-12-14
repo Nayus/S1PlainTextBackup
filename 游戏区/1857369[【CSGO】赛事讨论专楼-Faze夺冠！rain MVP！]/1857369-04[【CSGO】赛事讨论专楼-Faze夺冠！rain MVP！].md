@@ -294,3 +294,14 @@ same old story<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 原来游戏区有major楼的吗</blockquote>
 游戏区CS楼好几年了
 
+
+*****
+
+####  曼彻斯特联  
+##### 4608#       发表于 2024-12-14 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66926997&amp;ptid=1857369" target="_blank">dev2ce 发表于 2024-12-14 21:53</a>
+
+same old story明年是按积分来，猎鹰重组清零了吧，能有多少比赛打</blockquote>
+没记错的话V社积分是选手带的，比如Niko会带走G2的20%积分，所以重组下来也会有V社积分，当然够不够进卡托那就不好说了。
+

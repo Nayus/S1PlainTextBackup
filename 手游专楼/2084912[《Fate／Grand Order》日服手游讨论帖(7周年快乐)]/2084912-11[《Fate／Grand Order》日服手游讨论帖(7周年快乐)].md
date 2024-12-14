@@ -2576,3 +2576,18 @@ T3奥伯龙+旧剑技能全开，旧剑第二发宝具+左1的宝具/旧剑自�
 
 不过对这方面没兴趣的人可能真就没兴趣了，可能更适合读那种灌水文章
 
+
+*****
+
+####  森兰丸  
+##### 15446#       发表于 2024-12-14 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66926971&amp;ptid=2084912" target="_blank">大十字紅朔 发表于 2024-12-14 21:49</a>
+
+估计你对民俗和历史和神话没啥兴趣
+
+星空是TM写手里知识量最丰富的人，写东西都是信手拈来不需要查资料， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">咱就俗人一个对这些东西真没啥兴趣....今天剧情说了这么多这些东西还没双兔要泡桑拿给我的印象深
+
+可惜咕嗒的身体只有一个不能进去一起泡
+

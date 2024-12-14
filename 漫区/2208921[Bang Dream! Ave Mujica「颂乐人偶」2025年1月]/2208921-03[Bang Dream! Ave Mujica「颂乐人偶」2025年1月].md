@@ -4676,3 +4676,65 @@ all in双重人格，口嗨越来越真<img src="https://static.saraba1st.com/im
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  skives10  
+##### 3398#       发表于 2024-12-14 23:15
+
+<img src="https://img.saraba1st.com/forum/202412/14/231434ltrzodaako3m3mwm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0747.jpeg</strong> (99.67 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-14 23:14 上传
+
+和海铃颜艺很相似的人设图
+
+*****
+
+####  NODY  
+##### 3399#       发表于 2024-12-14 23:17
+
+所以这个人设图真的藏了明年动画的东西了，喵梦和家人打电话还有海铃玩乐器表情会癫好像都出现了
+
+*****
+
+####  光MIKAN  
+##### 3400#       发表于 2024-12-14 23:18
+
+这op是否暗示了以后不带面具可以成为常态<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一心而用  
+##### 3401#       发表于 2024-12-14 23:22
+
+<img src="https://p.sda1.dev/20/6e6b3030b82a3809052fbe7c5fd498db/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 3402#       发表于 2024-12-14 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66926991&amp;ptid=2208921" target="_blank">ちがや 发表于 2024-12-14 21:52</a>
+
+只有睦是竖着把人切开了两半</blockquote>
+这里更像是手持剑刃 
+
+分割线是齿轮、三个并排菱形一个矛形组成的
+
+睦这张上没有那个分割线的齿轮，菱形和矛形都在
+
+*****
+
+####  PDQ4  
+##### 3403#       发表于 2024-12-14 23:25
+
+李涛明天萝是不是就可以在场下看鸡第一集甚至op了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+想听i83黑叫了
+

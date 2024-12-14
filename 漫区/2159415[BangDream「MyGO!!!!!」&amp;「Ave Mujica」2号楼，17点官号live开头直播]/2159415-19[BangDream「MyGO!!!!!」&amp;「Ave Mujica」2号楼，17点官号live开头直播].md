@@ -241,3 +241,18 @@ ppp out<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" ref
 
 宣布上海加场的时候现场基本上只有老中在狂欢。还好我就是现场的老中
 
+
+*****
+
+####  ddy2811  
+##### 26660#       发表于 2024-12-14 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66923467&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2024-12-14 13:09</a>
+
+已经。。不用。。再猜了。。
+
+萝one man</blockquote>
+单萝没那么想去了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+one man早说啊，申请个邦邦live害大家期待那么久……
+

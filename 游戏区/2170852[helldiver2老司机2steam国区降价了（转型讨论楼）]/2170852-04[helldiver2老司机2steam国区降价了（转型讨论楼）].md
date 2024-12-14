@@ -432,3 +432,16 @@ AppData\Roaming\Arrowhead\Helldivers2\shader_cache下的着色器文件删了重
 
 债券推荐先买毒蛇突击兵，冰针强化现在是游戏最好的四强化之一，还有提高重型枪械拉枪速度的拉枪甲，现在打光能族这个甲也很有用
 
+
+*****
+
+####  6x6z6w  
+##### 5596#       发表于 2024-12-14 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66922019&amp;ptid=2170852" target="_blank">保科智子 发表于 2024-12-14 09:06</a>
+
+新人免费债券解锁差不多了，下一个债券买哪个好？没有个趁手武器。
+
+—— 来自 鹅球 v3.0.86-alpha ...</blockquote>
+你想要好使的主武器的话要么遥遥领先要么民主爆破，这两个债券都各卖3个主武器，而且其中至少有一个主武器属于目前这游戏里最好用的那一栏（爆燃弩和电喷），我是建议两个都买
+

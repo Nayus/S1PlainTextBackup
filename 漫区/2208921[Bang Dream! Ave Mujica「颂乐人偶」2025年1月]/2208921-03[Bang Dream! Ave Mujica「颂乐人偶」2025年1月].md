@@ -4754,3 +4754,72 @@ all in双重人格，口嗨越来越真<img src="https://static.saraba1st.com/im
 
 萝可能热完场就走了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">她们自己的live也是如果后续有工作安排会走的快的
 
+
+*****
+
+####  挺好的  
+##### 3406#       发表于 2024-12-14 23:49
+
+<img src="https://img.saraba1st.com/forum/202412/14/234937kqbrcbb7r8cfcz9i.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_581031057827485.jpg</strong> (55.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 23:49 上传
+
+罗伯特怎么这么搞笑(
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 純田まな| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  黑夜落叶秋天  
+##### 3407#       发表于 2024-12-14 23:50
+
+<img src="https://img.saraba1st.com/forum/202412/14/234958j9ii89vrlfnkooto.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-12-14-23-49-26-99_149003a2d400f6adb210d7e357a3a646.jpg</strong> (42.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 23:49 上传
+
+摩天轮 在旁边有个人影
+
+不会祥子你神隐到游乐场玩捉迷藏吧
+
+*****
+
+####  DEI  
+##### 3408#       发表于 2024-12-14 23:52
+
+游乐园玩偶整生活费罢了
+
+*****
+
+####  Jobtownb  
+##### 3409#       发表于 2024-12-14 23:54
+
+我日，这op也太美味了
+再假药也想不到这么颠
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  NODY  
+##### 3410#       发表于 2024-12-14 23:55
+
+看到有人猜明天萝热完场后接动画试映，试映结束接小剧场还原动画结尾喵梦全员开盒，然后无面具live，所以op才是全员无面具
+

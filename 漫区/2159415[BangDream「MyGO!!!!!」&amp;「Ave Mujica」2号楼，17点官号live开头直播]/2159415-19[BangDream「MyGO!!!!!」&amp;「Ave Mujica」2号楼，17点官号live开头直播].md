@@ -222,3 +222,14 @@ ppp out<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" ref
 
 萝换成五弦贝斯和七弦吉他了
 
+
+*****
+
+####  CyDiablo  
+##### 26658#       发表于 2024-12-14 19:31
+
+新情报<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">新单、单独live、海外追加
+<img src="https://p.sda1.dev/20/4ca3ea7513cc22f723cbfba127dddbf9/5F2ABA4F247E0AE2F05717339A229431.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/c7783146295200386871b9f36ab98162/E6DC068B841EFF17435F4532E0DD4849.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/f05bfebbd5c199e61e74ba1cd2244e6e/1734175736979.jpg" referrerpolicy="no-referrer">
+

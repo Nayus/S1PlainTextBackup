@@ -2399,3 +2399,24 @@ DISC2
 
 PCM转开盘母带再转DSD？这什么操作？
 
+
+*****
+
+####  冰寒之月  
+##### 6776#       发表于 2024-12-14 16:50
+
+小秦这么晚才实装 那燐羽是不是更慢了
+
+
+*****
+
+####  wfhtony  
+##### 6777#       发表于 2024-12-14 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66924598&amp;ptid=2130897" target="_blank">Unlight 发表于 2024-12-14 16:29</a>
+
+想买本家SACD了。但有个小问题，我没有SACD机器。
+
+以及：</blockquote>
+SACD的话，随便买台[搭载联发科MT8580处理器的蓝光播放器](https://hifihaven.org/index.php?threads/rip-sacd-with-a-blu-ray-player.3652/#post-69000)就行了，有些机子在某宝上的价格也算合适（[上半年买BDP-S590，五百内就能拿下](https://bbs.saraba1st.com/2b/thread-2181958-1-1.html)）
+

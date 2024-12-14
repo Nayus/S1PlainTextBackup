@@ -548,3 +548,12 @@ AppData\Roaming\Arrowhead\Helldivers2\shader_cache下的着色器文件删了重
 
 排到之前认识的巴西老姐，结果一把卡掉三次，还有一次卡车上下不来<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rainknine  
+##### 5608#       发表于 2024-12-15 01:48
+
+据说牢能的增援飞船打掉之后会立刻再刷，不知道是不是真的
+今天解锁反坦克炮之后打防御战，垒汉堡垒爽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

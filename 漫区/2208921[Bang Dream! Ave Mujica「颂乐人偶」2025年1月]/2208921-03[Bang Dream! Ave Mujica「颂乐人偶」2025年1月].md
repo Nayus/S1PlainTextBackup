@@ -4273,3 +4273,63 @@ image.png
 
 睦是不是有双重人格<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Acatv  
+##### 3364#       发表于 2024-12-14 21:59
+
+看完op只能说：噫，还能和解吗？（指最后一集的饺子）
+
+*****
+
+####  adcdqre  
+##### 3365#       发表于 2024-12-14 21:59
+
+ 本帖最后由 adcdqre 于 2024-12-14 22:02 编辑 
+
+六花和LOCK气质也差挺多的，其实也不用太过度解读。说不定是舞台效果
+
+*****
+
+####  挺好的  
+##### 3366#       发表于 2024-12-14 22:01
+
+OP仅供参考，一切以正片为准(
+
+*****
+
+####  skives10  
+##### 3367#       发表于 2024-12-14 22:02
+
+祥子有一个回旋镖 就是“没有我 你们也能练习吧(也能把乐队继续下去吧”
+结合op这个消失
+感觉真要终极牺牲了？<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Devola  
+##### 3368#       发表于 2024-12-14 22:04
+
+太癫了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">会比八点档还要八点档吗
+
+
+*****
+
+####  Alicest  
+##### 3369#       发表于 2024-12-14 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66927078&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-14 22:02</a>
+祥子有一个回旋镖 就是“没有我 你们也能练习吧(也能把乐队继续下去吧”
+结合op这个消失
+感觉真要终极牺牲 ...</blockquote>
+不知道的还以为是鲁鲁修呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+鸡最后一个镜头最后是睦躺在马车上吗
+
+*****
+
+####  KLHgg  
+##### 3370#       发表于 2024-12-14 22:07
+
+go的op可以作为go正片结局的参考，鸡的op也可以参考吗<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

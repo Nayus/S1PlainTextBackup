@@ -283,3 +283,14 @@ G2这个俱乐部还是发挥了一直以来的传统：几年来无论阵容如
 
 same old story<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明年是按积分来，猎鹰重组清零了吧，能有多少比赛打
 
+
+*****
+
+####  银月术士329  
+##### 4607#       发表于 2024-12-14 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66926898&amp;ptid=1857369" target="_blank">Wondering 发表于 2024-12-14 21:40</a>
+
+原来游戏区有major楼的吗</blockquote>
+游戏区CS楼好几年了
+

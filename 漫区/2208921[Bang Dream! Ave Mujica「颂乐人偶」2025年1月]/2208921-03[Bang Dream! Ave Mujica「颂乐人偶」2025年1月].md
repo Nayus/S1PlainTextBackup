@@ -5261,3 +5261,36 @@ OP应该是镜内外两层？
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
 
+
+*****
+
+####  Tienx  
+##### 3437#       发表于 2024-12-15 03:06
+
+我受够繁文缛节了
+从此刻开始，我是若叶 睦！
+摇滚“英雄”！
+
+*****
+
+####  allesdg  
+##### 3438#       发表于 2024-12-15 03:09
+
+抓帧的时候发现几个角色头像闪回（倒初睦正海喵）这里，倒着的睦突然有一帧正过来了，其她角色似乎并没有这样的帧
+
+<img src="https://img.saraba1st.com/forum/202412/15/030911vgy9gh3vc99gw99g.png" referrerpolicy="no-referrer">
+
+<strong>cloud_20241214_2048520_20241214_205149_15.png</strong> (30.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 03:09 上传
+
+<img src="https://img.saraba1st.com/forum/202412/15/030920hyeuxki9e9rxtw99.png" referrerpolicy="no-referrer">
+
+<strong>cloud_20241214_2048520_20241214_205149_16.png</strong> (29.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 03:09 上传
+

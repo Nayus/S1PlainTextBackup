@@ -2279,3 +2279,15 @@ woke game不会玩
 索尼底下几个大的工作室看来得死一个才会转向吧</blockquote>
 大工作室项目都是19年或20年立项的，尼尔大仙贝更是业界政确领军人物加魔怔狂人，顽皮狗内资历比他老的高管他全都斗走好多年了，指望他转向的概率还不如他唐突寄了，而且关键是顽皮狗在PS3时代起飞后还没被摔疼过
 
+
+*****
+
+####  ak123  
+##### 222#       发表于 2024-12-15 03:07
+
+ 本帖最后由 ak123 于 2024-12-15 03:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66927077&amp;ptid=2210380" target="_blank">Kusabi 发表于 2024-12-14 22:01</a>
+
+开头播段"仿"日本动画，让我担忧顽皮狗想把日本动画纳入WOKE版图中。</blockquote>
+能这么担心说明你没见过北米撅醒二次元贵物画的日漫同人，那画风丑的真就是和这部女主一样辣眼睛，而且普遍去性征非二元化<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

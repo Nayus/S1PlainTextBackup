@@ -2206,3 +2206,13 @@ woke game不会玩
 
 话说即使是 dei，这种亚非光头女似乎只有顽皮狗特别钟情？其实相比星鸣特工没那么丑，但是也有一种刻板印象的感觉
 
+
+*****
+
+####  pgain2004  
+##### 214#       发表于 2024-12-14 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66914712&amp;ptid=2210380" target="_blank">chaos7 发表于 2024-12-13 12:55</a>
+先不论女主丑不丑,这个播片真的太平了,一点都吸引不起兴趣,隔壁巫师4最后女主一句没有神只有一堆怪物,立即 ...</blockquote>
+你认真的吗……对比当年3的Killing Monster PV简直low爆了好吧
+

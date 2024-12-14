@@ -2169,3 +2169,40 @@ YouTube评论都在说最大的错误就是没有关闭评论区
 —— 来自 鹅球 v3.0.86-alpha ...</blockquote>
 教科书一样的男人不行，女帮女，学我爹，满地滚<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  riin2  
+##### 210#       发表于 2024-12-14 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66913888&amp;ptid=2210380" target="_blank">wgoenitz 发表于 2024-12-13 12:17</a>
+
+感觉拿其他游戏里只有一句台词的npc做主角，这鱿鱼老板审美逆天。
+
+这游戏如果不暴死，那才是世不二出的奇迹 ...</blockquote>
+最符合头像的一集
+
+*****
+
+####  nerdxiao  
+##### 211#       发表于 2024-12-14 17:46
+
+woke game不会玩
+
+*****
+
+####  riin2  
+##### 212#       发表于 2024-12-14 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66914434&amp;ptid=2210380" target="_blank">mumulyn 发表于 2024-12-13 12:41</a>
+
+前面其实还好，一眼顽皮狗的渲染质感，但最后光剑一出来是真的土到了</blockquote>
+合成波风格的就是要土，越土就越潮<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  riin2  
+##### 213#       发表于 2024-12-14 17:48
+
+话说即使是 dei，这种亚非光头女似乎只有顽皮狗特别钟情？其实相比星鸣特工没那么丑，但是也有一种刻板印象的感觉
+

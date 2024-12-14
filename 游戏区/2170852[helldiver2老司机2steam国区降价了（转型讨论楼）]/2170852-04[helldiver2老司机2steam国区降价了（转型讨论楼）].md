@@ -498,3 +498,11 @@ AppData\Roaming\Arrowhead\Helldivers2\shader_cache下的着色器文件删了重
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  outerish  
+##### 5602#       发表于 2024-12-14 20:35
+
+掉线是没遇到，不过是连上了又重试一直循环，要等快3分钟才有一局
+

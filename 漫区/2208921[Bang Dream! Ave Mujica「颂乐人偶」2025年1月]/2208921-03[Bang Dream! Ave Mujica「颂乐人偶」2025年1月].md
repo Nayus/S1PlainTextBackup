@@ -3479,3 +3479,66 @@ op里有两个睦？
 
 看完opmv了，你这是少女乐队吗我请问了？
 
+
+*****
+
+####  KLHgg  
+##### 3277#       发表于 2024-12-14 20:38
+
+这可比假药带劲<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  miomio123  
+##### 3278#       发表于 2024-12-14 20:39
+
+这还是在搞乐队吗，确定不是去打游戏王了？
+
+—— 来自 Xiaomi M2102J2SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  御幸一也  
+##### 3279#       发表于 2024-12-14 20:41
+
+好嚇人<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202412/14/204144letfycoeafq7yejq.png" referrerpolicy="no-referrer">
+
+<strong>SPOILER_d930df46a5e67a7138dad63d672074bd.png</strong> (149.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 20:41 上传
+
+*****
+
+####  瞳映山川  
+##### 3280#       发表于 2024-12-14 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66926308&amp;ptid=2208921" target="_blank">御幸一也 发表于 2024-12-14 20:41</a>
+好嚇人</blockquote>
+睦睦你别这样，我害怕<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  月島まりな  
+##### 3281#       发表于 2024-12-14 20:45
+
+看完op对母鸡卡有信心了
+
+*****
+
+####  skives10  
+##### 3282#       发表于 2024-12-14 20:45
+
+窝巢 这op太帅了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">真的太厉害了
+
+*****
+
+####  星天观测  
+##### 3283#       发表于 2024-12-14 20:46
+
+op还不错，期待第二集
+

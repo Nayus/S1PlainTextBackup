@@ -275,3 +275,11 @@ G2这个俱乐部还是发挥了一直以来的传统：几年来无论阵容如
 
 原来游戏区有major楼的吗
 
+
+*****
+
+####  dev2ce  
+##### 4606#       发表于 2024-12-14 21:53
+
+same old story<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明年是按积分来，猎鹰重组清零了吧，能有多少比赛打
+

@@ -514,3 +514,11 @@ AppData\Roaming\Arrowhead\Helldivers2\shader_cache下的着色器文件删了重
 
 超级气球的城镇里汽车真的都是气球做的，一把电棍随便敲一下就飞了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FLZB  
+##### 5604#       发表于 2024-12-14 21:53
+
+这光能你说难吧也不难，但说简单吧又恶心得要命。明明场上就两三个飞行兵，硬是被撵得还不了手，你打丧尸吧有可能被飞行兵秒，你打飞行兵吧丧尸围上来也是寄，属于是同时兼顾了虫子的追击能力和机器人远程火力压制，单刷不了一点<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

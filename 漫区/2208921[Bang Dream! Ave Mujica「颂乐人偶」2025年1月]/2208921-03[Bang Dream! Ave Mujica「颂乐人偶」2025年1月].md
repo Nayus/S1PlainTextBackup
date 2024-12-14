@@ -4201,3 +4201,75 @@ B站能过审也会有吗<img src="https://static.saraba1st.com/image/smiley/fac
 如果不知道那睦为了半身稳定了十五年， ...</blockquote>
 祥：此事平平无奇，睦也是会笑的啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives10  
+##### 3356#       发表于 2024-12-14 21:49
+
+坚持了一年多的睦公 果然没有被背叛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  坐看风起云涌  
+##### 3357#       发表于 2024-12-14 21:50
+
+看完op只知道一只金毛又要被事业批祸害了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 3358#       发表于 2024-12-14 21:52
+
+我一直是睦公啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大泽瑠璃乃  
+##### 3359#       发表于 2024-12-14 21:52
+
+搞个乐团把其他人都搞出了不是人类的表情，就她没表情扭曲，祥子怎么这么坏啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ちがや  
+##### 3360#       发表于 2024-12-14 21:52
+
+ 本帖最后由 ちがや 于 2024-12-14 21:53 编辑 
+
+编辑了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+image.png
+(113.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 21:51 上传
+
+<img src="https://img.saraba1st.com/forum/202412/14/215140mjgrgg5akm15jcl3.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Alicest  
+##### 3361#       发表于 2024-12-14 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66926991&amp;ptid=2208921" target="_blank">ちがや 发表于 2024-12-14 21:52</a>
+其他人都是从腰部对半分的塔罗牌只有睦是竖着分开的</blockquote>
+和半身有关？
+
+
+*****
+
+####  qjw114514  
+##### 3362#       发表于 2024-12-14 21:55
+
+从mygo播一半那会儿变成当睦公，现在不知道该笑还是该心疼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ShikiM  
+##### 3363#       发表于 2024-12-14 21:56
+
+睦是不是有双重人格<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

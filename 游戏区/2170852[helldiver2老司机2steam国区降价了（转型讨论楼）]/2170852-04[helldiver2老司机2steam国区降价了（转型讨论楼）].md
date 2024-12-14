@@ -464,3 +464,14 @@ AppData\Roaming\Arrowhead\Helldivers2\shader_cache下的着色器文件删了重
 今天咋疯狂掉线，换节点也不太行</blockquote>
 突然十多万回归把小霸王挤爆了，昨天就已经开始稳定掉线
 
+
+*****
+
+####  新庄運切  
+##### 5599#       发表于 2024-12-14 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66925813&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-12-14 19:46</a>
+
+突然十多万回归把小霸王挤爆了，昨天就已经开始稳定掉线</blockquote>
+只能含泪poe了，一把都没打完过<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+

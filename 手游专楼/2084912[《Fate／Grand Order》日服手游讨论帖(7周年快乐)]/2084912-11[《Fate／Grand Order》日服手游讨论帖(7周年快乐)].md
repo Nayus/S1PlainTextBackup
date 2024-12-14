@@ -2435,3 +2435,14 @@ T3奥伯龙+旧剑技能全开，旧剑第二发宝具+左1的宝具/旧剑自�
 
 挂一晚上脚本刷了75池才满破一张李庄，大概啃完苹果能刷400+？
 
+
+*****
+
+####  v22325  
+##### 15434#       发表于 2024-12-14 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66923373&amp;ptid=2084912" target="_blank">乾理央 发表于 2024-12-14 12:55</a>
+
+挂一晚上脚本刷了75池才满破一张李庄，大概啃完苹果能刷400+？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你这也太黑了，我不到10池掉两了
+

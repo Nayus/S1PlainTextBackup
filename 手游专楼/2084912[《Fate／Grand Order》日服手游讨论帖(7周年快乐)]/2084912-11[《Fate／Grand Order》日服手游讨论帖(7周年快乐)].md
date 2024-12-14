@@ -2409,3 +2409,13 @@ T3奥伯龙+旧剑技能全开，旧剑第二发宝具+左1的宝具/旧剑自�
 那为什么2号C呆不直接换奥伯龙？</blockquote>
 当然是因为奥伯龙伤害不够<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">两个C呆都要开宝具的
 
+
+*****
+
+####  上坂莲华  
+##### 15431#       发表于 2024-12-14 11:53
+
+不用楼希单靠1宝汇呆大概率不够的，我1宝水伊吹2宝百级汇呆，不叠第二个C呆宝具3面剩过血皮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+好消息是昨天发的石头出货了，应该可以稳了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

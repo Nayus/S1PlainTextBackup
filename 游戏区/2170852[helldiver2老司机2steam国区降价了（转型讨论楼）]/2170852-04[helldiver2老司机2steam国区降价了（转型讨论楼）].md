@@ -355,3 +355,14 @@ B站发现有新预告,边看边分享给群友后发现out now<img src="https:/
 
 这次更新玩帧数好低啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xinfengj  
+##### 5588#       发表于 2024-12-14 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66921823&amp;ptid=2170852" target="_blank">新庄運切 发表于 2024-12-14 08:04</a>
+
+这次更新玩帧数好低啊</blockquote>
+AppData\Roaming\Arrowhead\Helldivers2\shader_cache下的着色器文件删了重启生成一下试试
+

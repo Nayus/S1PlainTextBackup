@@ -419,3 +419,16 @@ AppData\Roaming\Arrowhead\Helldivers2\shader_cache下的着色器文件删了重
 
 新债卷里的1代反坦克炮塔就是机器人大爹，两发一个运输船，机器人的碉堡炮楼只要找个高地架炮就能随便轰，太爽了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">而且CD也只有3分钟，这么爽的反重甲为什么不早几个月放出来
 
+
+*****
+
+####  6x6z6w  
+##### 5595#       发表于 2024-12-14 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66924505&amp;ptid=2170852" target="_blank">LrGsite 发表于 2024-12-14 16:15</a>
+
+现在怎么刷超级货币噢,另外刚回坑现在买哪个债券最实用?前三个债券afk前都已经买完了 ...</blockquote>
+难1到难3都可以刷，带队友开碉堡门最优解
+
+债券推荐先买毒蛇突击兵，冰针强化现在是游戏最好的四强化之一，还有提高重型枪械拉枪速度的拉枪甲，现在打光能族这个甲也很有用
+

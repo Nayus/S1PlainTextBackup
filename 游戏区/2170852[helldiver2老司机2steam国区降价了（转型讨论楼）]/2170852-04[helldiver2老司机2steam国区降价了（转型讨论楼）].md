@@ -347,3 +347,11 @@ B站发现有新预告,边看边分享给群友后发现out now<img src="https:/
 打了7级的光能者之后回去打7级虫子，感觉和逛街一样。光能者这边一个个血厚的吓人，飞行兵能硬吃三发机炮， ...</blockquote>
 光能还有几个恶心人的单位没出呢<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新庄運切  
+##### 5587#       发表于 2024-12-14 08:04
+
+这次更新玩帧数好低啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

@@ -445,3 +445,22 @@ AppData\Roaming\Arrowhead\Helldivers2\shader_cache下的着色器文件删了重
 —— 来自 鹅球 v3.0.86-alpha ...</blockquote>
 你想要好使的主武器的话要么遥遥领先要么民主爆破，这两个债券都各卖3个主武器，而且其中至少有一个主武器属于目前这游戏里最好用的那一栏（爆燃弩和电喷），我是建议两个都买
 
+
+*****
+
+####  新庄運切  
+##### 5597#       发表于 2024-12-14 19:39
+
+今天咋疯狂掉线，换节点也不太行
+
+
+*****
+
+####  FLZB  
+##### 5598#       发表于 2024-12-14 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66925763&amp;ptid=2170852" target="_blank">新庄運切 发表于 2024-12-14 19:39</a>
+
+今天咋疯狂掉线，换节点也不太行</blockquote>
+突然十多万回归把小霸王挤爆了，昨天就已经开始稳定掉线
+

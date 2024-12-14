@@ -4519,3 +4519,150 @@ all in双重人格，口嗨越来越真<img src="https://static.saraba1st.com/im
 至于睦狠狠地艹祥，我没意见 ...</blockquote>
 美咲和米歇尔的叠加态，此事亦在hhw中有记载
 
+
+*****
+
+####  影伴光生  
+##### 3393#       发表于 2024-12-14 22:56
+
+不要慌，是舞台装置！
+现实还要组团卖票呢，动画不能搞个结局白茫茫一片大地真干净吧
+
+—— 来自 vivo V2302A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  Acatv  
+##### 3394#       发表于 2024-12-14 22:56
+
+睦头不会真是邦邦抗压王吧 太可怕了 提前加冕挺王只是起点
+
+
+*****
+
+####  allesdg  
+##### 3395#       发表于 2024-12-14 23:02
+
+关于最后几秒发光初华时出现的透明闪回按顺序猜测：
+
+1.塔罗牌背面&gt;2.睦的礼物吉他&gt;3.pv视觉图中的小睦玩偶
+
+<img src="https://img.saraba1st.com/forum/202412/14/225224n8j8nr88n9df2dfm.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20241214225139.jpg</strong> (24.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 22:52 上传
+
+<img src="https://img.saraba1st.com/forum/202412/14/225228occ9rwyy7r1bh4bc.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20241214225145.jpg</strong> (13.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 22:52 上传
+
+&gt;4.挂有蝴蝶和鸟？玩偶的神秘房间&gt;5.主pv里初华掉落的拨片？&gt;6.睦的琴
+
+<img src="https://img.saraba1st.com/forum/202412/14/225430jxtdl7cdy1mhxlzy.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20241214225344.jpg</strong> (13.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 22:54 上传
+
+<img src="https://img.saraba1st.com/forum/202412/14/225435uxazx128w77r1mr8.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20241214225350.jpg</strong> (11.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 22:54 上传
+
+<img src="https://img.saraba1st.com/forum/202412/14/225440yd4jygjzbp5rxbw1.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20241214225355.jpg</strong> (15.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 22:54 上传
+
+&gt;7.谁的手握着长柄状物体（琴弦/胳膊（人偶？））&gt;8.两个杯子
+
+<img src="https://img.saraba1st.com/forum/202412/14/225744hnxjgmobij1h5msn.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20241214225625.jpg</strong> (12.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 22:57 上传
+
+<img src="https://img.saraba1st.com/forum/202412/14/225751aanlxbln9fkqgg9g.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20241214225701.jpg</strong> (11.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 22:57 上传
+
+&gt;9.勉强看出来上面的白色裙边下面灰丝白鞋？应该是pv1里那身的睦？&gt;10.应该是主pv里坐床上抚琴的睦的手
+
+<img src="https://img.saraba1st.com/forum/202412/14/230118hm92buejezztei34.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20241214225631.jpg</strong> (11.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 23:01 上传
+
+<img src="https://img.saraba1st.com/forum/202412/14/230123znazx4t5p6dmpm6r.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20241214225635.jpg</strong> (11.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 23:01 上传
+
+*****
+
+####  ydsbbt  
+##### 3396#       发表于 2024-12-14 23:04
+
+说起半身，前两天发现了一个新的姐妹论论据。mujica翻唱的《暗黑天国》是《小女神花铃》的op，故事中主角的女儿被宙斯之戒的力量分成了两个人，彼此之间是半身关系。
+
+不考虑姐妹论的话，这是否也能作为睦双重人格的证据？
+
+<img src="https://img.saraba1st.com/forum/202412/14/230057u2ymm42mb2bk55l5.png" referrerpolicy="no-referrer">
+
+<strong>4d1abeba-e825-44b7-ab2a-adc555e533e2.png</strong> (76 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 23:00 上传
+
+<img src="https://img.saraba1st.com/forum/202412/14/230112lz88xqajz8b8aek3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-12-12-01-50-10-42_149003a2d400f6a.jpg</strong> (146 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 23:01 上传
+
+<img src="https://img.saraba1st.com/forum/202412/14/230127p56y29nmr339mm65.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-12-12-01-50-14-76_149003a2d400f6a.jpg</strong> (177.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 23:01 上传
+
+<img src="https://img.saraba1st.com/forum/202412/14/230159r7asloejzcs9xcyx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-12-12-10-57-10-84_149003a2d400f6a.jpg</strong> (87.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 23:01 上传
+

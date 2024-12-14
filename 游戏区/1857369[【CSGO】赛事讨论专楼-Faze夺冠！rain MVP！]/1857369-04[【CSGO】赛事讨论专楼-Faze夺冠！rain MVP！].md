@@ -267,3 +267,11 @@ ropz八进四和四进二两场都太吓人了
 
 G2这个俱乐部还是发挥了一直以来的传统：几年来无论阵容如何变动，永远打得一盘散沙，个人能力嗯砸死了就赢，砸不死就输得非常自然<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Wondering  
+##### 4605#       发表于 2024-12-14 21:40
+
+原来游戏区有major楼的吗
+

@@ -506,3 +506,11 @@ AppData\Roaming\Arrowhead\Helldivers2\shader_cache下的着色器文件删了重
 
 掉线是没遇到，不过是连上了又重试一直循环，要等快3分钟才有一局
 
+
+*****
+
+####  Jyions  
+##### 5603#       发表于 2024-12-14 21:43
+
+超级气球的城镇里汽车真的都是气球做的，一把电棍随便敲一下就飞了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

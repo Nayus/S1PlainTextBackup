@@ -4127,3 +4127,77 @@ B站能过审也会有吗<img src="https://static.saraba1st.com/image/smiley/fac
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说不定初祥那幕是小时候的暗示，回家的初华发现祥子跑路了
 
+
+*****
+
+####  ggxx001  
+##### 3348#       发表于 2024-12-14 21:38
+
+说不定是op欺诈呢 毕竟🐶也干了
+
+*****
+
+####  adcdqre  
+##### 3349#       发表于 2024-12-14 21:38
+
+搞半天Oblivionis最纯良啊<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+*****
+
+####  PDQ4  
+##### 3350#       发表于 2024-12-14 21:39
+
+睦这么疯祥子真的完全不知道吗
+
+如果知道那小时候可能就已经被......
+
+如果不知道那睦为了半身稳定了十五年，祥子坏掉后连带着一起坏了，草食系幼驯染怒变肉食系<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  枫林不见  
+##### 3351#       发表于 2024-12-14 21:40
+
+摇滚吗？这太摇滚啦！
+
+*****
+
+####  66367749  
+##### 3352#       发表于 2024-12-14 21:42
+
+露脸之后观众发现笑星泰斗若叶的女儿平时文静上台之后是狂热重金属，台风极癫<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wonner_2012  
+##### 3353#       发表于 2024-12-14 21:42
+
+这世界（指mujica世界观）癫了口牙
+<img src="https://p.sda1.dev/20/ce8565e3f2a223157b78956250e52a93/image.jpg" referrerpolicy="no-referrer">
+
+但是转念一想
+<img src="https://p.sda1.dev/20/4e991f80a072f31e8c0948f799af6b7e/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  莉缇娅  
+##### 3354#       发表于 2024-12-14 21:45
+
+阿贝母鸡卡已经破坏了邦多利的世界观<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qjw114514  
+##### 3355#       发表于 2024-12-14 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66926885&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-14 21:39</a>
+睦这么疯祥子真的完全不知道吗
+
+如果知道那小时候可能就已经被......
+
+如果不知道那睦为了半身稳定了十五年， ...</blockquote>
+祥：此事平平无奇，睦也是会笑的啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

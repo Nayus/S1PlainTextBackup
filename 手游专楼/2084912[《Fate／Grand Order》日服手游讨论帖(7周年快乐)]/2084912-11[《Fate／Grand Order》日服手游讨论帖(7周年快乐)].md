@@ -2546,3 +2546,14 @@ T3奥伯龙+旧剑技能全开，旧剑第二发宝具+左1的宝具/旧剑自�
 现在1宝要几羁绊才能开被动？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是6啊 只是提升了后面给的币 前面没变化的
 
+
+*****
+
+####  大十字紅朔  
+##### 15444#       发表于 2024-12-14 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66920940&amp;ptid=2084912" target="_blank">RiesbyfeAtlasia 发表于 2024-12-13 23:45</a>
+
+怎么一晚上没见过人聊剧情 没有大的吗</blockquote>
+剧情看起来是星空写的，武则天比平时聪明10倍
+

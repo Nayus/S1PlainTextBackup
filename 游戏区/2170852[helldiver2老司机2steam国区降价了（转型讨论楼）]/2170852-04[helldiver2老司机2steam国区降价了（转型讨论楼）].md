@@ -530,3 +530,21 @@ AppData\Roaming\Arrowhead\Helldivers2\shader_cache下的着色器文件删了重
 
 现在光能者很菜啊。僵尸攻击低走得慢，就算被僵尸围了都能肘出来；飞兵和棍哥虽然血厚攻高，但是数量太少，火力不如机器人蹂躏者大队一根；无人机血少，而且一旦动起来就电不到你；三足机甲也不如吐酸泰坦，有个盾但不是全身重甲就是不行。难10打了3把光能者，3个人死亡次数加起来还没打一把虫子死得多。
 
+
+*****
+
+####  LrGsite  
+##### 5606#       发表于 2024-12-15 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66926996&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-12-14 21:53</a>
+
+这光能你说难吧也不难，但说简单吧又恶心得要命。明明场上就两三个飞行兵，硬是被撵得还不了手，你打丧尸吧 ...</blockquote>
+几个监督者血量都太厚了,猎杀者倒是比较菜
+
+*****
+
+####  xinfengj  
+##### 5607#       发表于 2024-12-15 01:01
+
+排到之前认识的巴西老姐，结果一把卡掉三次，还有一次卡车上下不来<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

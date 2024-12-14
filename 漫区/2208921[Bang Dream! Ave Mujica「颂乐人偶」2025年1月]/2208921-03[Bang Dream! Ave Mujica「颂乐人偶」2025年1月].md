@@ -5123,3 +5123,16 @@ OP应该是镜内外两层？
 
 海、睦都疑似出镜像，喵梦没有镜像外镜头
 
+
+*****
+
+####  OPCI_0125  
+##### 3424#       发表于 2024-12-15 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66927975&amp;ptid=2208921" target="_blank">庸necro 发表于 2024-12-15 00:23</a>
+
+这个倒吊人是谁啊
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
+前面除了祥的剪影都出现过了，但感觉不可能是祥…
+

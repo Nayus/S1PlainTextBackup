@@ -182,3 +182,20 @@ G2菜啊
 享受，faze众神归位，爆杀热门队，决赛别研发intel cpu就行
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">沟槽的大表哥，怎么感觉比18年还猛啊
 
+
+*****
+
+####  doublehit  
+##### 4595#       发表于 2024-12-14 20:44
+
+失败贯穿人生的始终，niko这颗星应该是灭了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+*****
+
+####  heseran  
+##### 4596#       发表于 2024-12-14 20:49
+
+还有几天才能看到thank you niko啊，好着急啊
+

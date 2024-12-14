@@ -3542,3 +3542,173 @@ op里有两个睦？
 
 op还不错，期待第二集
 
+
+*****
+
+####  NODY  
+##### 3284#       发表于 2024-12-14 20:49
+
+看这个op，初祥有大的啊
+
+*****
+
+####  御幸一也  
+##### 3285#       发表于 2024-12-14 20:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">好狂氣的OP 好喜歡
+
+*****
+
+####  NODY  
+##### 3286#       发表于 2024-12-14 20:51
+
+整个op就祥子自己没颜艺，诡计多端的制作人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  [皆神孝介]  
+##### 3287#       发表于 2024-12-14 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66925979&amp;ptid=2208921" target="_blank">q0we123456 发表于 2024-12-14 20:07</a>
+
+拉美官推发了OP</blockquote>
+木有找到啊，有没有谁存了的？<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+*****
+
+####  瞳映山川  
+##### 3288#       发表于 2024-12-14 20:52
+
+这op真是好帅好狂气，更期待动画了<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+*****
+
+####  q0we123456  
+##### 3289#       发表于 2024-12-14 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66926440&amp;ptid=2208921" target="_blank">[皆神孝介] 发表于 2024-12-14 20:52</a>
+
+木有找到啊，有没有谁存了的？</blockquote>
+B站刚有人传，快看
+
+*****
+
+####  狮子咕  
+##### 3290#       发表于 2024-12-14 20:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大伙好美的精神状态
+
+↓看完op的祥子↓（安祥）
+
+<img src="https://img.saraba1st.com/forum/202412/14/205255vqxt4eassp4t7psp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (106.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 20:52 上传
+
+*****
+
+####  weiko99323  
+##### 3291#       发表于 2024-12-14 20:53
+
+祥初祥黨也想看OP看看大的！
+
+*****
+
+####  skives10  
+##### 3292#       发表于 2024-12-14 20:53
+
+说不定就是mv罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  傘木希美  
+##### 3293#       发表于 2024-12-14 20:54
+
+有点儿帅的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.95-alpha
+
+*****
+
+####  好想看Mujica啊  
+##### 3294#       发表于 2024-12-14 20:55
+
+初华站c位，好，就应该突出主唱
+
+*****
+
+####  阿萨德飞过去  
+##### 3295#       发表于 2024-12-14 20:55
+
+真的好爽啊，大家都好颠。是正儿八经大制作<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+睦子米难道真有第二人格，海玲有点谐气。感觉若麦没什么画面。初华怎么一股要闯关的历练感觉
+然后小祥怎么回事，面无表情有点格格不入啊<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 3296#       发表于 2024-12-14 20:55
+
+整个op看完了，初华也许还在藏大的？
+整个旋转木马就睦，初华，祥子三个出现，应该是这季的核心了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就这op……有点哈人
+
+*****
+
+####  瞳映山川  
+##### 3297#       发表于 2024-12-14 20:56
+
+这op睦感觉没有几个正常的表情啊，感觉精神状态堪忧<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狮子咕  
+##### 3298#       发表于 2024-12-14 20:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">op有种睦头双重人格说要成真的幻觉，应该，不会吧（说起来擦镜子那个是祥子？）
+
+*****
+
+####  KLHgg  
+##### 3299#       发表于 2024-12-14 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66926434&amp;ptid=2208921" target="_blank">NODY 发表于 2024-12-14 20:51</a>
+
+整个op就祥子自己没颜艺，诡计多端的制作人</blockquote>
+看op感觉祥子藏的东西比初华还深<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 3300#       发表于 2024-12-14 20:56
+
+草台官方
+
+这op完美精神病院好吧，只有祥子没疯，这下真的精神最稳定的一个了
+
+睦双重人格越来越真了，那个卡牌只有她中间还有一刀
+
+什么时候到1.9<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+明天killkiss演出会有惊喜吗
+
+*****
+
+####  skives10  
+##### 3301#       发表于 2024-12-14 20:57
+
+不只有两个睦 最开头的剪影部分还有两个初华
+睦在森林里狂奔跌倒 暗示森美奈美？
+最后被吊起来的怎么看都是海铃啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cayon  
+##### 3302#       发表于 2024-12-14 20:57
+
+祥子居然是op里精神最稳定的，太颠了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

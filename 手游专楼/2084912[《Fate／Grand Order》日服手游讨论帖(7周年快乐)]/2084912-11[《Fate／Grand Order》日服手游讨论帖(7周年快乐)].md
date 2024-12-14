@@ -2493,3 +2493,37 @@ T3奥伯龙+旧剑技能全开，旧剑第二发宝具+左1的宝具/旧剑自�
 欧 居然有妖兰</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你不是也有 你还有4宝王姐还是芭娜娜来的
 
+
+*****
+
+####  森兰丸  
+##### 15440#       发表于 2024-12-14 20:48
+
+这次圣诞剧情哪个神经病写的....弄一堆专有名词和设定还有星座
+
+谁吃饱了撑着会对这种东西感兴趣啊.....年末了大家只想看点轻松愉快的啊<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qw3434cn  
+##### 15441#       发表于 2024-12-14 20:49
+
+礼装满破之后可以用这套，同样是全员1宝够用，少看两个C呆宝具
+
+<img src="https://img.saraba1st.com/forum/202412/14/204741i2lvwwh4wm4y0wzz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>ED03A960-7D72-498B-B657-D88ED70B43CE.jpeg</strong> (111.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 20:47 上传
+
+<img src="https://img.saraba1st.com/forum/202412/14/204740kjsse2j22jzol4j4.png" referrerpolicy="no-referrer">
+
+<strong>20241214214719.png</strong> (220.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 20:47 上传
+

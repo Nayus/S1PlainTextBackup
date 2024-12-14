@@ -488,3 +488,13 @@ AppData\Roaming\Arrowhead\Helldivers2\shader_cache下的着色器文件删了重
 债券推荐先买毒蛇突击兵，冰针强化现在是游戏最好的四强化之一 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">刷上了,但现在服务器感觉好不稳定啊疯狂掉线
 
+
+*****
+
+####  保科智子  
+##### 5601#       发表于 2024-12-14 20:26
+
+还以为我节点问题，连线10秒钟就全部人卡死。让人好好看看你们怎么拿了奖是吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

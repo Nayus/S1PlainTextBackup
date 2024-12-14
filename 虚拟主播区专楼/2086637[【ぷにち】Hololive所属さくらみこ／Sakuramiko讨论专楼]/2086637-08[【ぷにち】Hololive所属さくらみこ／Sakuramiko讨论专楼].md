@@ -702,3 +702,20 @@ danime注册巨麻烦，很不厚道的直接去看corocorochannel的官方视�
 
 扣鼻屎可否解读为对某方的不满<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 10418#         楼主| 发表于 2024-12-14 20:23
+
+这次几个韩国的线下活动出的立绘比官方自己的出还好看，就是周边不能直接买只能找黄牛，价格贵上天
+
+*****
+
+####  holoan  
+##### 10419#         楼主| 发表于 2024-12-14 20:28
+
+竟然不是holo服而是自己开单机服
+
+多少年没玩过单机了
+

@@ -138,3 +138,11 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">翻了楼才注意到医院评分2.6。看完医院男主长舒一口气，感觉这走向基本上是误诊。
 
+
+*****
+
+####  Stephen9755  
+##### 196#       发表于 2024-12-15 01:17
+
+为什么还有人觉得是误诊，是完全看不懂这集最后的演出嘛（
+

@@ -5136,3 +5136,11 @@ OP应该是镜内外两层？
 —— 来自 Xiaomi 23049RAD8C, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
 前面除了祥的剪影都出现过了，但感觉不可能是祥…
 
+
+*****
+
+####  sugirraffe  
+##### 3425#       发表于 2024-12-15 01:16
+
+若叶家，一处连弦卷卫星也无法勘探到的、埋藏在黄瓜田的地下室里：<img src="https://p.sda1.dev/20/d8384edeea46df6c7feae3bff51a4e27/image.jpg" referrerpolicy="no-referrer">
+

@@ -639,3 +639,18 @@ steam页面的介绍里说故事发生舞台是江户时代初期的京都，能
 
 主人公声音听着是细谷配的，那就至少不是金城武那样脸模亲自配音。
 
+
+*****
+
+####  sunkaifeng00  
+##### 71#       发表于 2024-12-15 01:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66926731&amp;ptid=2210366" target="_blank">Kenjin 发表于 2024-12-14 21:19</a>
+
+官方说了是江户时代，难道是打德川家哪个将军？</blockquote>
+关原之战不算江户时代，但大阪两阵都算江户时代初期
+
+跳过关原估计是因为鬼武者3写死了本多忠胜，新鬼武者写死了石田三成岛左近，没想好怎么圆这个坑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当然，也可能是讲宽永年间的德川家上洛或者日本锁国
+

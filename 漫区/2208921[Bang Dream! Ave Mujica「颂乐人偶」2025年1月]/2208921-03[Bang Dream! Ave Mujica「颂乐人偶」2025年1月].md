@@ -4846,3 +4846,14 @@ all in双重人格，口嗨越来越真<img src="https://static.saraba1st.com/im
 op像是睦海玲这几个笑的应该是假的画面，正片里不会出现。和剧情相关的目前看来有祥子倒吊人，游乐场这些可能暗喻了剧情，还有最后那些快速闪烁过去的画面也许是动画里会出现的
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过睦很可能是前中期boss了，爆的太明显不带藏的，pv和op真是明示
 
+
+*****
+
+####  纯田まな  
+##### 3414#       发表于 2024-12-15 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66927812&amp;ptid=2208921" target="_blank">NODY 发表于 2024-12-14 23:55</a>
+
+看到有人猜明天萝热完场后接动画试映，试映结束接小剧场还原动画结尾喵梦全员开盒，然后无面具live，所以op ...</blockquote>
+原来今天热场之后硬放了半个小时ppp是流程预演，给放动画留的时间
+

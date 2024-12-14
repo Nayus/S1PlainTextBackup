@@ -3064,3 +3064,19 @@ go的都市/高楼/楼顶要素一直有的，早期的名无声和影色舞就�
 
 可能ws的图是tcg部门自己掏钱约的图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 3237#       发表于 2024-12-14 15:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萝开场是鸡先唱五首元素曲
+爽死了，这现地太值了
+
+*****
+
+####  NODY  
+##### 3238#       发表于 2024-12-14 15:27
+
+两张都是邦邦标准版权绘的画风啊，应该都是内部画师画的
+

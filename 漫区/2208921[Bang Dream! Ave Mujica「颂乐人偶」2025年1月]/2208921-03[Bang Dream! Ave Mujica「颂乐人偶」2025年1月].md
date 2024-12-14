@@ -4917,3 +4917,209 @@ op像是睦海玲这几个笑的应该是假的画面，正片里不会出现。
 
 op里大家露出笑容不是传统吗，就说乐队是不是带来笑容了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qjw114514  
+##### 3422#       发表于 2024-12-15 00:41
+
+回看去年盼望这一睦的自己，令人感叹<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/6281ad805004f59ea6c6a1a82886524e/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  OPCI_0125  
+##### 3423#       发表于 2024-12-15 00:42
+
+OP应该是镜内外两层？
+
+从旋转木马开始，画面为镜像外
+
+卡面展示后进入镜像
+
+<img src="https://img.saraba1st.com/forum/202412/14/234836am13lro3iamd31c1.jpg" referrerpolicy="no-referrer">
+
+<strong>27340636279-1-192.mp4_000012.610.jpg</strong> (82.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 23:48 上传
+
+<img src="https://img.saraba1st.com/forum/202412/14/234836lsg8wkkdpjggidxz.jpg" referrerpolicy="no-referrer">
+
+<strong>27340636279-1-192.mp4_000013.247.jpg</strong> (74.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 23:48 上传
+
+除了祥外所有牌的出现顺序都是从下至上，祥是从上至下(祥出镜像或一开始就不在镜像中)
+
+剪影里也没有祥，剪影演出也有镜像（背景镜像，初华是唯一出现两个剪影的，其中一个剪影的去向没给镜头）
+
+<img src="https://img.saraba1st.com/forum/202412/14/235615n454qq9o7ci5u449.jpg" referrerpolicy="no-referrer">
+
+<strong>27340636279-1-192.mp4_000026.177.jpg</strong> (36.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 23:56 上传
+
+<img src="https://img.saraba1st.com/forum/202412/14/233748xxzqbtlgrnewk4ws.jpg" referrerpolicy="no-referrer">
+
+<strong>27340636279-1-192.mp4_000029.456.jpg</strong> (62.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 23:37 上传
+
+镜像外
+
+人偶，四人证件照同样没有祥，祥镜头
+
+<img src="https://img.saraba1st.com/forum/202412/15/000623waynn0rwzwjnajl1.jpg" referrerpolicy="no-referrer">
+
+<strong>27340636279-1-192.mp4_000037.340.jpg</strong> (32.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 00:06 上传
+
+<img src="https://img.saraba1st.com/forum/202412/15/000432ehqd3qib5qdg3p6d.jpg" referrerpolicy="no-referrer">
+
+<strong>27340636279-1-192.mp4_000042.627.jpg</strong> (19.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 00:04 上传
+
+镜像内
+
+初华被牵引着打碎镜像，初睦两人的镜自我
+
+<img src="https://img.saraba1st.com/forum/202412/15/000058kovoaanbgmy5zqzm.jpg" referrerpolicy="no-referrer">
+
+<strong>27340636279-1-192.mp4_000050.464.jpg</strong> (109.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 00:00 上传
+
+镜像外
+
+初华出现在旋转木马中（初华出镜像），祥对着镜子笑
+
+<img src="https://img.saraba1st.com/forum/202412/15/000254mcj72ntjnhkhdggd.jpg" referrerpolicy="no-referrer">
+
+<strong>27340636279-1-192.mp4_000054.029.jpg</strong> (50.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 00:02 上传
+
+<img src="https://img.saraba1st.com/forum/202412/15/000254mgb0v20pvw2bb2g9.jpg" referrerpolicy="no-referrer">
+
+<strong>27340636279-1-192.mp4_000055.029.jpg</strong> (29.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 00:02 上传
+
+镜像内
+
+海喵两人的镜自我
+
+镜像外
+
+祥在旋转木马旁弹钢琴
+
+<img src="https://img.saraba1st.com/forum/202412/15/001505a08bbsh0r4bakrhk.jpg" referrerpolicy="no-referrer">
+
+<strong>27340636279-1-192.mp4_000059.239.jpg</strong> (51.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 00:15 上传
+
+镜像内
+
+喵海睦三人仍在镜像中演奏
+
+镜像外
+
+摩天轮，初祥在旋转木马相遇、消失
+
+<img src="https://img.saraba1st.com/forum/202412/15/001747c061kpwnkjn2e6k6.jpg" referrerpolicy="no-referrer">
+
+<strong>27340636279-1-192.mp4_000109.853.jpg</strong> (44.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 00:17 上传
+
+<img src="https://img.saraba1st.com/forum/202412/15/001747jvmhhgnmrg61vm5t.jpg" referrerpolicy="no-referrer">
+
+<strong>27340636279-1-192.mp4_000108.488.jpg</strong> (42.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 00:17 上传
+
+镜像内
+
+三人仍在演奏
+
+出镜像（？）
+
+睦出现在旋转木马却仍是镜像的
+
+<img src="https://img.saraba1st.com/forum/202412/15/002016z00d38o011jxdr11.jpg" referrerpolicy="no-referrer">
+
+<strong>27340636279-1-192.mp4_000116.965.jpg</strong> (82.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 00:20 上传
+
+海玲出现在摩天轮下到酒，但酒倒在了上上个镜头的镜像中
+
+<img src="https://img.saraba1st.com/forum/202412/15/002545hhtyopv6tlyodhh8.jpg" referrerpolicy="no-referrer">
+
+<strong>27340636279-1-192.mp4_000114.960.jpg</strong> (33.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 00:25 上传
+
+<img src="https://img.saraba1st.com/forum/202412/15/002503h2wu0ew08yzd2302.jpg" referrerpolicy="no-referrer">
+
+<strong>27340636279-1-192.mp4_000118.119.jpg</strong> (60.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 00:25 上传
+
+ 最后是祥盖上钢琴，初华在舞台上，神速蒙太奇，初华摘下面具
+
+<img src="https://img.saraba1st.com/forum/202412/15/002802rpm29qlg4m3mqtmt.jpg" referrerpolicy="no-referrer">
+
+<strong>27340636279-1-192.mp4_000119.835.jpg</strong> (29.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 00:28 上传
+
+<img src="https://img.saraba1st.com/forum/202412/15/002802zmqq0p2qaep82yuh.jpg" referrerpolicy="no-referrer">
+
+<strong>27340636279-1-192.mp4_000127.387.jpg</strong> (30.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 00:28 上传
+
+整个OP祥从没有出现在镜像中，还对着镜子笑，高位者
+
+初华在引导下第一个到镜像外，并找到了祥一起消失了，到最后才和祥先后出现
+
+海、睦都疑似出镜像，喵梦没有镜像外镜头
+

@@ -12394,3 +12394,20 @@ nagi新曲倒不错，就是那段rap<img src="https://static.saraba1st.com/imag
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  csolfans  
+##### 1213#       发表于 2024-12-14 12:22
+
+东京day2抽选难度很高(
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  黒烨  
+##### 1214#       发表于 2024-12-14 12:22
+
+五张全落<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

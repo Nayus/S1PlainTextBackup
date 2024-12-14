@@ -2066,3 +2066,26 @@ YouTube评论都在说最大的错误就是没有关闭评论区
 感觉是照着棒子脸抽的设定，就差直接说她妈是在韩国被美国驻军强的</blockquote>
 这不是设定啊 这是演员真人出身 - -
 
+
+*****
+
+####  hanan1  
+##### 201#       发表于 2024-12-14 12:17
+
+油 管最新好评率<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202412/14/121616ng89jq4sxq5h86qp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (18.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 12:16 上传
+
+*****
+
+####  Tackstone  
+##### 202#       发表于 2024-12-14 12:20
+
+没那光头妹这美术审美也是烂到家了啊，那个从匹诺曹里穿越过来的机器人出来直接绷不住。而且顽皮狗不做打枪了玩法也很难让人看好吧。
+

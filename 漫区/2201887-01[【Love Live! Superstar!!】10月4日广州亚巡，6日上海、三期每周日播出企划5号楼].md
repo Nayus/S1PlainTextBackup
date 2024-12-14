@@ -12411,3 +12411,15 @@ nagi新曲倒不错，就是那段rap<img src="https://static.saraba1st.com/imag
 
 五张全落<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csolfans  
+##### 1215#       发表于 2024-12-14 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66923148&amp;ptid=2201887" target="_blank">黒烨 发表于 2024-12-14 12:22</a>
+五张全落</blockquote>
+4张全落
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

@@ -411,3 +411,11 @@ AppData\Roaming\Arrowhead\Helldivers2\shader_cache下的着色器文件删了重
 
 激光狗再次登上舞台，三脚以下都能打，毒气雷挡尸潮也很不错
 
+
+*****
+
+####  6x6z6w  
+##### 5594#       发表于 2024-12-14 17:03
+
+新债卷里的1代反坦克炮塔就是机器人大爹，两发一个运输船，机器人的碉堡炮楼只要找个高地架炮就能随便轰，太爽了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">而且CD也只有3分钟，这么爽的反重甲为什么不早几个月放出来
+

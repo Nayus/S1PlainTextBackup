@@ -4333,3 +4333,86 @@ OP仅供参考，一切以正片为准(
 
 go的op可以作为go正片结局的参考，鸡的op也可以参考吗<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aloereed  
+##### 3371#       发表于 2024-12-14 22:10
+
+那完蛋了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  枫林不见  
+##### 3372#       发表于 2024-12-14 22:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我已经可以看到会有更多更猛的睦公血腥SM雷普祥子的二创图了
+
+*****
+
+####  akiomn  
+##### 3373#       发表于 2024-12-14 22:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">睦应该不会有人格分裂吧？这可是bangdream，应该不会有吧？
+至于睦狠狠地艹祥，我没意见
+
+*****
+
+####  PDQ4  
+##### 3374#       发表于 2024-12-14 22:13
+
+萌属性的双重人格还是可以有的，随时随地切换狠狠雷普小祥啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ykyin09  
+##### 3375#       发表于 2024-12-14 22:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">赌一手有op2吧
+
+
+*****
+
+####  yone0000  
+##### 3376#       发表于 2024-12-14 22:14
+
+mygo的问题都只是过家家的水平，到了母鸡卡的问题是死活的问题了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ggxx001  
+##### 3377#       发表于 2024-12-14 22:17
+
+看下来最颠崩坏全是睦 海和喵还能理解成玩音乐玩上头了 睦就纯纯发病 还是希望wsd收着点
+
+*****
+
+####  瞳映山川  
+##### 3378#       发表于 2024-12-14 22:17
+
+虽然大家的表情都很癫，但其他人好歹都是镜子里，但是小睦这个她是玩真的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+睦.jpg
+(153.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 22:15 上传
+
+<img src="https://img.saraba1st.com/forum/202412/14/221555nomo4a33037i70wi.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 3379#       发表于 2024-12-14 22:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥子那个终极牺牲然后初华爆了的可能性又有了
+op里初华在祥子消失后明显绷不住了，祥子又有个倒吊人的画面，倒吊人意味着自我付出牺牲
+
+*****
+
+####  weiko99323  
+##### 3380#       发表于 2024-12-14 22:17
+
+初华酱越来越嬷了？是错觉么
+

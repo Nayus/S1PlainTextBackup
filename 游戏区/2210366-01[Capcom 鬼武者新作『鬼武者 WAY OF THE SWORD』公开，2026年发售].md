@@ -569,3 +569,13 @@ IP卖点肯定要舍弃的，他那个动作系统卖点太难给路人展示了
 
 搞不好这次真不用明星脸，放开给玩家自己捏
 
+
+*****
+
+####  Piano-Forest  
+##### 64#         楼主| 发表于 2024-12-14 20:59
+
+Steam页面：[https://store.steampowered.com/a ... a_Way_of_the_Sword/](https://store.steampowered.com/app/2638890/Onimusha_Way_of_the_Sword/)
+
+PSN页面：[https://store.playstation.com/zh-hant-hk/concept/10013248/](https://store.playstation.com/zh-hant-hk/concept/10013248/)
+

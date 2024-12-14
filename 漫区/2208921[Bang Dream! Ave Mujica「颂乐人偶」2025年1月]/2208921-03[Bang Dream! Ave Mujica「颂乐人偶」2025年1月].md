@@ -3712,3 +3712,152 @@ B站刚有人传，快看
 
 祥子居然是op里精神最稳定的，太颠了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  红楼飞雪  
+##### 3303#       发表于 2024-12-14 20:58
+
+记得之前b站有位up把第一集的观感比作游戏王5Ds来着
+
+现在这个颜艺和表现力，我宣布你比游戏王原作还正统<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qjw114514  
+##### 3304#       发表于 2024-12-14 20:58
+
+睦的镜头越看越像真的双重人格<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+站在地上的睦神情跟平常一样，天上倒挂的睦在狞笑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/20/550ed6d4ef7c3ddb2638f039b6807d8d/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 3305#       发表于 2024-12-14 20:58
+
+祥子看起来像是要终极牺牲的女主角
+
+*****
+
+####  相坂君  
+##### 3306#       发表于 2024-12-14 20:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我们母鸡卡的精神状态太美嘞！祥的姐妹们怎么一个比一个还颠
+
+*****
+
+####  瞳映山川  
+##### 3307#       发表于 2024-12-14 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66926498&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-14 20:57</a>
+不只有两个睦 最开头的剪影部分还有两个初华
+睦在森林里狂奔跌倒 暗示森美奈美？
+最后被吊起来的怎么看都是 ...</blockquote>
+感觉初华后躺在地上的是海铃吧？发尾是翘起来的
+
+*****
+
+####  skives10  
+##### 3308#       发表于 2024-12-14 21:00
+
+睦笑的太开心了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仓鼠胖太  
+##### 3309#       发表于 2024-12-14 21:01
+
+啊这，一杆子给我整哪来了，打圣杯战争呢？
+你们邦邦原来是这样的企划.jpg
+
+*****
+
+####  UNISONIA  
+##### 3310#       发表于 2024-12-14 21:01
+
+祥睦都有逆位（倒吊）的镜头，不知道是暗喻什么
+
+*****
+
+####  狮子咕  
+##### 3311#       发表于 2024-12-14 21:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看完op感觉大喵老师已经是精神最正常的一个了
+
+*****
+
+####  贰臣  
+##### 3312#       发表于 2024-12-14 21:03
+
+太刺激了，这下更是浑身有蚂蚁在爬了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  akiomn  
+##### 3313#       发表于 2024-12-14 21:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我相信那个访谈了，之前说母鸡卡和狗是完全对立
+狗的op突出一个阳光开心雨过天晴，鸡的op真不是一群精神病人吗？太癫了
+
+
+*****
+
+####  AvengerRideon  
+##### 3314#       发表于 2024-12-14 21:04
+
+这op各种闪回、碎片、不安定感，很像寒蝉业/卒op的感觉
+
+*****
+
+####  瞳映山川  
+##### 3315#       发表于 2024-12-14 21:05
+
+这op里感觉有一个人格外癫，睦你有什么头绪吗<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仓鼠胖太  
+##### 3316#       发表于 2024-12-14 21:05
+
+不亖几个人对不起这op（bushi
+
+*****
+
+####  阿萨德飞过去  
+##### 3317#       发表于 2024-12-14 21:05
+
+楼友和我想的一样啊<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+初华伸手望向祥子的镜头，不知情的以为要终极形态解放了
+还有真红？人偶的神秘镜头
+这哪是邦邦啊，无缝接入女神异闻录了说是
+
+*****
+
+####  椎名真希  
+##### 3318#       发表于 2024-12-14 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66926498&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-14 20:57</a>
+
+不只有两个睦 最开头的剪影部分还有两个初华
+
+睦在森林里狂奔跌倒 暗示森美奈美？
+
+最后被吊起来的怎么看都是 ...</blockquote>
+吊起来的是祥子，前面祈祷到躺地那个是海玲
+
+*****
+
+####  椎名真希  
+##### 3319#       发表于 2024-12-14 21:07
+
+这个OP的影绘部分肯定受到bad apple 的影响了，不过这正是3D的闪光点，摄影很有想法<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狮子咕  
+##### 3320#       发表于 2024-12-14 21:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">母鸡卡op可以完全完美替换寒蝉业op1
+

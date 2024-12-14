@@ -5168,3 +5168,27 @@ OP应该是镜内外两层？
 
 看服饰细节的话倒吊人和那四个没一个对上的，很微妙，不是祥子的话就更像是一个没什么明显服饰特征的人偶
 
+
+*****
+
+####  KirigawaMaki  
+##### 3429#       发表于 2024-12-15 02:08
+
+对了一下演出服领口，应该就是祥子
+
+<img src="https://img.saraba1st.com/forum/202412/15/020535dir3wewew6xk2dez.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ19x-1ziwKuT3cSsg-hy.jpg</strong> (35 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 02:05 上传
+
+<img src="https://img.saraba1st.com/forum/202412/15/020535ow015ng18ck1bnzu.png" referrerpolicy="no-referrer">
+
+<strong>20241215020418.png.png</strong> (417.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 02:05 上传
+

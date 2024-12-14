@@ -417,3 +417,15 @@ IP卖点肯定要舍弃的，他那个动作系统卖点太难给路人展示了
 
 时代的眼泪啊，刷到这个有个评论说卡普空终于想起来重视二线作品了，我草他大爷的00后。
 
+
+*****
+
+####  shimotsuki14  
+##### 51#       发表于 2024-12-14 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66916635&amp;ptid=2210366" target="_blank">gdx9900 发表于 2024-12-13 15:11</a>
+复古一下，请高仓健来做脸模？
+
+一闪系统不知道会怎么整，但是手感希望能有鬼2那么好，1-3包括后面的新鬼， ...</blockquote>
+一说高仓健总觉得是任侠味儿，跟武士不大对路
+

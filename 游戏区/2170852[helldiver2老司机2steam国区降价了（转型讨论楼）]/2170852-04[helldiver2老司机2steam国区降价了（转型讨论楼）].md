@@ -475,3 +475,16 @@ AppData\Roaming\Arrowhead\Helldivers2\shader_cache下的着色器文件删了重
 突然十多万回归把小霸王挤爆了，昨天就已经开始稳定掉线</blockquote>
 只能含泪poe了，一把都没打完过<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  LrGsite  
+##### 5600#       发表于 2024-12-14 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66924854&amp;ptid=2170852" target="_blank">6x6z6w 发表于 2024-12-14 17:10</a>
+
+难1到难3都可以刷，带队友开碉堡门最优解
+
+债券推荐先买毒蛇突击兵，冰针强化现在是游戏最好的四强化之一 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">刷上了,但现在服务器感觉好不稳定啊疯狂掉线
+

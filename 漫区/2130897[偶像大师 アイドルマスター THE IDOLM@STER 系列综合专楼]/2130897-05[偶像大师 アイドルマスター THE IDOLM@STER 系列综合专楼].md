@@ -2430,3 +2430,25 @@ SACD的话，随便买台[搭载联发科MT8580处理器的蓝光播放器](http
 SACD的话，随便买台搭载联发科MT8580处理器的蓝光播放器就行了，有些机子在某宝上的价格也算合适（上半年 ...</blockquote>
 主要我最近想给静电系统（蓝色夏威夷+009S）升级音源了。一开始是打算UD-701N（二嫂同款解码），前阵子听人说A6改线电当数播转盘（解码另挑）也不错，今天又开始看SACD，总之就是东一榔头西一棒槌的（
 
+
+*****
+
+####  wfhtony  
+##### 6779#       发表于 2024-12-14 20:06
+
+<img src="https://img.saraba1st.com/forum/202412/14/200655mt7txzzprb1dkx6t.png" referrerpolicy="no-referrer">
+
+<strong>11222.png</strong> (1.56 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 20:06 上传
+
+<img src="https://img.saraba1st.com/forum/202412/14/200655esjgxczf18cir501.png" referrerpolicy="no-referrer">
+
+<strong>11223.png</strong> (1.54 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 20:06 上传
+

@@ -214,3 +214,11 @@ ppp out<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" ref
 
 本来1月要去联培，美国那边手续延迟了倒是可能能去沪萝了，1w2张票萝only不至于还抢不到吧
 
+
+*****
+
+####  Aendst  
+##### 26657#       发表于 2024-12-14 18:54
+
+萝换成五弦贝斯和七弦吉他了
+

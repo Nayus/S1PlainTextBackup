@@ -3314,3 +3314,22 @@ go的都市/高楼/楼顶要素一直有的，早期的名无声和影色舞就�
 SSA我觉得远景看上去可能也都差不多长这样，完全分不清
 <img src="https://spice.eplus.jp/images/MqW061FSIYfzt2Wviumpd9wdBZ7nxP2XWRo8lRCwJFZXRRA4KgxQ8pyoEruqoyYr/" height="440" id="aimg_AUttv" onclick="zoom(this, this.src, 0, 0, 0)" width="700"/)
 
+
+*****
+
+####  金钱与民主  
+##### 3262#       发表于 2024-12-14 18:55
+
+<blockquote>御景 发表于 2024-12-14 15:41
+欲加之罪，何患无词，有没有退路都会被说，你拦不住有人想滑坡，黑你的。
+
+而且没出英文介绍之前，祥子同样 ...</blockquote>
+讲道理你们有赤坂明ptsd关人独角兽毛事……这家庭背景设计再怎么说也是人家自己搞出来的，整天担惊受怕的有必要么？
+
+*****
+
+####  PDQ4  
+##### 3263#       发表于 2024-12-14 18:56
+
+萝单独，场子终于大起来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

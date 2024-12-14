@@ -3861,3 +3861,135 @@ B站刚有人传，快看
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">母鸡卡op可以完全完美替换寒蝉业op1
 
+
+*****
+
+####  NODY  
+##### 3321#       发表于 2024-12-14 21:08
+
+隔壁发现的黄蓝水杯，疑似初祥同居？
+
+<img src="https://img.saraba1st.com/forum/202412/14/210823lltjf7q4tr6z44kz.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ19x-93hoKwT3cSsg-cs.jpg</strong> (17.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 21:08 上传
+
+*****
+
+####  EBe  
+##### 3322#       发表于 2024-12-14 21:10
+
+1分15秒在摩天轮倒葡萄酒（血？）的不会是海铃吧，难道真藏什么？
+
+—— 来自 HONOR MAG-AN00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  狮子咕  
+##### 3323#       发表于 2024-12-14 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66926646&amp;ptid=2208921" target="_blank">EBe 发表于 2024-12-14 21:10</a>
+
+1分15秒在摩天轮倒葡萄酒（血？）的不会是海铃吧，难道真藏什么？
+
+—— 来自 HONOR MAG-AN00, Android 13 ...</blockquote>
+是海子姐无误
+
+*****
+
+####  收纳袋  
+##### 3324#       发表于 2024-12-14 21:12
+
+大家的表情都好狂气啊<img src="https://static.saraba1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">
+
+*****
+
+####  椎名真希  
+##### 3325#       发表于 2024-12-14 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66926620&amp;ptid=2208921" target="_blank">NODY 发表于 2024-12-14 21:08</a>
+
+隔壁发现的黄蓝水杯，疑似初祥同居？</blockquote>
+PV里面记得有个初华拿水杯对微波炉的画面，是那个杯子吗，记不得是哪个pv了
+
+*****
+
+####  灼眼的夏娜酱  
+##### 3326#       发表于 2024-12-14 21:13
+
+三个人各有各的破碎，而初祥是命运的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狮子咕  
+##### 3327#       发表于 2024-12-14 21:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开头剪影那段真帅吧，睦倒下然后喵梦跳着舞转着出来，就是海玲就一个场景然后局部大喷血的转场过于出戏
+
+
+*****
+
+####  PDQ4  
+##### 3328#       发表于 2024-12-14 21:14
+
+3D剪影那块动得非常流畅，制作组真的用心了
+
+祥p怎么没发疯，其他队友都像进了疯人院一样<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+本来以为鸡腿精神状况堪忧，这下小巫见大巫了，鸡腿要努力啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 3329#       发表于 2024-12-14 21:14
+
+正片真的会有血浆吗<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 3330#       发表于 2024-12-14 21:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我怀疑初华祥子是隐藏的精神病人，其他三个只是明着发癫了
+
+*****
+
+####  鲍里斯  
+##### 3331#       发表于 2024-12-14 21:16
+
+恐怖片我看的也不少，但看到睦这个精神状态还是把我吓得立马关掉<img src="https://static.saraba1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">对我来说也太可怕了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  狮子咕  
+##### 3332#       发表于 2024-12-14 21:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当所有队友都在发疯，在那儿安详弹钢琴的那个不是最可怕的吗
+
+*****
+
+####  椎名真希  
+##### 3333#       发表于 2024-12-14 21:17
+
+<img src="https://img.saraba1st.com/forum/202412/14/211654migq4qqhqqs08q85.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (38.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 21:16 上传
+
+睦的吉他？所以确实是谁的礼物？
+
+*****
+
+####  skives10  
+##### 3334#       发表于 2024-12-14 21:17
+
+祥子那个消失的镜头一副幕后黑手的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

@@ -2420,3 +2420,13 @@ PCM转开盘母带再转DSD？这什么操作？
 以及：</blockquote>
 SACD的话，随便买台[搭载联发科MT8580处理器的蓝光播放器](https://hifihaven.org/index.php?threads/rip-sacd-with-a-blu-ray-player.3652/#post-69000)就行了，有些机子在某宝上的价格也算合适（[上半年买BDP-S590，五百内就能拿下](https://bbs.saraba1st.com/2b/thread-2181958-1-1.html)）
 
+
+*****
+
+####  Unlight  
+##### 6778#         楼主| 发表于 2024-12-14 18:13
+
+<blockquote>wfhtony 发表于 2024-12-14 16:57
+SACD的话，随便买台搭载联发科MT8580处理器的蓝光播放器就行了，有些机子在某宝上的价格也算合适（上半年 ...</blockquote>
+主要我最近想给静电系统（蓝色夏威夷+009S）升级音源了。一开始是打算UD-701N（二嫂同款解码），前阵子听人说A6改线电当数播转盘（解码另挑）也不错，今天又开始看SACD，总之就是东一榔头西一棒槌的（
+

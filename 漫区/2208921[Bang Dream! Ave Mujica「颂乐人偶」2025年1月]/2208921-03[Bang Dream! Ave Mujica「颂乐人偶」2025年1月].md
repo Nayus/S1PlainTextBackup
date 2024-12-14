@@ -3247,3 +3247,58 @@ go的都市/高楼/楼顶要素一直有的，早期的名无声和影色舞就�
 
 2024-12-14 17:42 上传
 
+
+*****
+
+####  allesdg  
+##### 3257#       发表于 2024-12-14 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66924781&amp;ptid=2208921" target="_blank">NODY 发表于 2024-12-14 16:58</a>
+
+刚刚那个远景特写和pv好像啊，pv里面的场地就是萝鸡的这个场？难道萝在动画真有合作live吗 ...</blockquote>
+还真是，感觉pv里可能就是这个场了，看起来比东蛋更像
+
+<img src="https://img.saraba1st.com/forum/202412/14/180801r95v7bvrk4ibp77i.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20241214180421.jpg</strong> (87.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 18:08 上传
+
+<img src="https://img.saraba1st.com/forum/202412/14/180807gta3vr6r188arci8.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20241214180541.jpg</strong> (24.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 18:08 上传
+
+*****
+
+####  adcdqre  
+##### 3258#       发表于 2024-12-14 18:09
+
+真用家里钱一开始就组ras了谁陪你玩ccc啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+
+*****
+
+####  akiomn  
+##### 3259#       发表于 2024-12-14 18:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">幕间趁机拿手机发下，这次萝现场太值了，鸡5首元素热场，萝的现场花冠
+
+鸡能不能学学啊，明天多卖点睦祥初祥
+
+*****
+
+####  skives10  
+##### 3260#       发表于 2024-12-14 18:15
+
+其实这个东西就没什么可讨论的
+柿本广大在杂志都说了制作组对角色形象是否受损是有顾虑的 
+在这个前提下 你让祥子反复横跳 一会儿组交付人生的乐队 一会跑回家去当继承人 这恐怕不太现实
+

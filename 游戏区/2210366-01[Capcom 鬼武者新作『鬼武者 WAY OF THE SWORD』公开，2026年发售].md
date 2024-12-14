@@ -546,3 +546,11 @@ IP卖点肯定要舍弃的，他那个动作系统卖点太难给路人展示了
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
 
+
+*****
+
+####  wtyrambo  
+##### 62#       发表于 2024-12-14 18:08
+
+感觉只是趁着这几年日本武士题材热了继续蹭热度的作品套了个鬼武者IP，<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">PV里就那几秒的战斗场面看不出太多东西，有个捅背的终结动作感觉是刺杀系统，还有和大怪物的招架演出感觉像是QTE，但是一闪的镜头一个不给，这到底还是不是鬼武者，怕不是又一个山寨只狼。
+

@@ -2482,3 +2482,14 @@ T3奥伯龙+旧剑技能全开，旧剑第二发宝具+左1的宝具/旧剑自�
 感觉还是用妖兰加任意充能光炮直接爽刷90+算了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">欧 居然有妖兰
 
+
+*****
+
+####  qixinno2  
+##### 15439#       发表于 2024-12-14 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66925171&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-14 18:03</a>
+
+欧 居然有妖兰</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你不是也有 你还有4宝王姐还是芭娜娜来的
+

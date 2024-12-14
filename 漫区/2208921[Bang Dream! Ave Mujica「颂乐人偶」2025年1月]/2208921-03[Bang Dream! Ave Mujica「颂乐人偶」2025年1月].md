@@ -3024,3 +3024,14 @@ wsd一到卖卡就挺舍得给新图的，不愧是摇钱树产业
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66923635&amp;ptid=2208921" target="_blank">ShikiM 发表于 2024-12-14 13:37</a></blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">狗团是会出现在这种高楼顶层背景的乐队吗
 
+
+*****
+
+####  NODY  
+##### 3233#       发表于 2024-12-14 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66923934&amp;ptid=2208921" target="_blank">莉缇娅 发表于 2024-12-14 14:29</a>
+
+狗团是会出现在这种高楼顶层背景的乐队吗</blockquote>
+go的都市/高楼/楼顶要素一直有的，早期的名无声和影色舞就是，还有比较新的雾周途
+

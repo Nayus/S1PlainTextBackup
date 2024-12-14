@@ -3143,3 +3143,26 @@ go的都市/高楼/楼顶要素一直有的，早期的名无声和影色舞就�
 
 那还是跟颓废爹混更搞笑一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives10  
+##### 3245#       发表于 2024-12-14 16:01
+
+区区一个大家早有预料的人物介绍内容
+远远不如pv那个在本家的镜头让我想滑坡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  桜庭千景  
+##### 3246#       发表于 2024-12-14 16:01
+
+直播开了
+
+*****
+
+####  Aendst  
+##### 3247#       发表于 2024-12-14 16:03
+
+导播有点太激动了，这镜头切的<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

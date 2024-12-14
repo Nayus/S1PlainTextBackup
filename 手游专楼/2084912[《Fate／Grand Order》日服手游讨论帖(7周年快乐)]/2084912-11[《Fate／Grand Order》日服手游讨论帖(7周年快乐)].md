@@ -2456,3 +2456,11 @@ T3奥伯龙+旧剑技能全开，旧剑第二发宝具+左1的宝具/旧剑自�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">反正不刷 一怒把礼装满破了。。黑呆单c可以6加成
 
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 15436#       发表于 2024-12-14 17:33
+
+原来剧情没全开只是全开了周回
+

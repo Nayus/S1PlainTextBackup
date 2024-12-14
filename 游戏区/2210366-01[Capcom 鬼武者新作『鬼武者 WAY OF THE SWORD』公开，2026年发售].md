@@ -534,3 +534,15 @@ IP卖点肯定要舍弃的，他那个动作系统卖点太难给路人展示了
 ----发送自 v ...</blockquote>
 鬼武者2打击感巅峰，但接下来就走下坡路了，如果是鬼武者2遗老吐槽打击感呢
 
+
+*****
+
+####  苏斯赫查  
+##### 61#       发表于 2024-12-14 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66924364&amp;ptid=2210366" target="_blank">黑修士 发表于 2024-12-14 15:51</a>
+织田和丰臣都打了，新作看PV还是古日本，不知道会讲个啥故事</blockquote>
+可能是明治维新，因为副标题叫剑路，剑路是剑心的儿子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+

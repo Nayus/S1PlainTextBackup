@@ -2128,3 +2128,23 @@ YouTube评论都在说最大的错误就是没有关闭评论区
 
 搞不懂顽皮狗或者岛哥哥这些为啥还一天到晚以倒贴为荣
 
+
+*****
+
+####  SergeGlenn  
+##### 207#       发表于 2024-12-14 13:32
+
+<blockquote>mimighost 发表于 2024-12-14 13:18
+好莱坞本身也摇摇欲坠
+
+搞不懂顽皮狗或者岛哥哥这些为啥还一天到晚以倒贴为荣 ...</blockquote>
+这哥们都去了，还有啥看不开的
+
+<img src="https://img.saraba1st.com/forum/202412/14/133146p224v42rkb33s8hi.jpg" referrerpolicy="no-referrer">
+
+<strong>1000006058.jpg</strong> (182.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 13:31 上传
+

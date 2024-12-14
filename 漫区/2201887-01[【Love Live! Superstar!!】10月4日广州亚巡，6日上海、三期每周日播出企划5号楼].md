@@ -12423,3 +12423,13 @@ nagi新曲倒不错，就是那段rap<img src="https://static.saraba1st.com/imag
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  csolfans  
+##### 1216#       发表于 2024-12-14 13:28
+
+问了下身边的小圈子，目前中的不超过5个
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

@@ -366,3 +366,13 @@ B站发现有新预告,边看边分享给群友后发现out now<img src="https:/
 这次更新玩帧数好低啊</blockquote>
 AppData\Roaming\Arrowhead\Helldivers2\shader_cache下的着色器文件删了重启生成一下试试
 
+
+*****
+
+####  保科智子  
+##### 5589#       发表于 2024-12-14 09:06
+
+新人免费债券解锁差不多了，下一个债券买哪个好？没有个趁手武器。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

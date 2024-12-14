@@ -2138,3 +2138,42 @@ e62ff28aeb800611a996de0b55570cd8.png
 
 2024-12-14 01:56 上传
 
+
+*****
+
+####  Ask_10A  
+##### 6770#       发表于 2024-12-14 12:49
+
+<img src="https://img.saraba1st.com/forum/202412/14/124855o5u565fp53i58488.png" referrerpolicy="no-referrer">
+
+<strong>)FP7Y$D`0@LE2~6YN6_0`B9.png</strong> (131.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 12:48 上传
+
+<img src="https://img.saraba1st.com/forum/202412/14/124925s95y3bykok494xb5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (131.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 12:49 上传
+
+<img src="https://img.saraba1st.com/forum/202412/14/124932fiaygzuhgt44yyhz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (124.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 12:49 上传
+
+年初上海的嘘黑如果完全复刻日本差不多也是这个形式上
+
+*****
+
+####  Alicest  
+##### 6771#       发表于 2024-12-14 12:53
+
+虽然肯定要去，但感觉有够敷衍<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

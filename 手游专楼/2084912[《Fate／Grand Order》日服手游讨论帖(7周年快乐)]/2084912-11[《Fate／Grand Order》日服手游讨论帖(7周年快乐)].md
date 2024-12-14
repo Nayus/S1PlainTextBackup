@@ -2446,3 +2446,13 @@ T3奥伯龙+旧剑技能全开，旧剑第二发宝具+左1的宝具/旧剑自�
 挂一晚上脚本刷了75池才满破一张李庄，大概啃完苹果能刷400+？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你这也太黑了，我不到10池掉两了
 
+
+*****
+
+####  alucardcz  
+##### 15435#       发表于 2024-12-14 15:36
+
+[https://www.bilibili.com/video/BV1BUBMYdEVq](https://www.bilibili.com/video/BV1BUBMYdEVq)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">反正不刷 一怒把礼装满破了。。黑呆单c可以6加成
+

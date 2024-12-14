@@ -568,3 +568,11 @@ AppData\Roaming\Arrowhead\Helldivers2\shader_cache下的着色器文件删了重
 刷上了,但现在服务器感觉好不稳定啊疯狂掉线</blockquote>
 这游戏每次出完重大更新网络都是一坨屎，只能等下周箭头上班修的
 
+
+*****
+
+####  新庄運切  
+##### 5610#       发表于 2024-12-15 03:29
+
+今天甚至完整的一把都没打过，最好下地10分钟，最下下去1分钟就回轨道了，光能出到现在除了自己单跑匹配全是掉线<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

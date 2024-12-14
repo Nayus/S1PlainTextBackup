@@ -3993,3 +3993,58 @@ PV里面记得有个初华拿水杯对微波炉的画面，是那个杯子吗，
 
 祥子那个消失的镜头一副幕后黑手的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 3335#       发表于 2024-12-14 21:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来是海猫鸣泣之时啊，我还以为是什么kirakirakira的bangdream呢
+
+*****
+
+####  Lucy_Diamonds  
+##### 3336#       发表于 2024-12-14 21:20
+
+海铃这个表情真是太邪门了 感觉大伙都和疯了一样 你们是什么邦多利
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  狮子咕  
+##### 3337#       发表于 2024-12-14 21:21
+
+ 本帖最后由 狮子咕 于 2024-12-14 21:23 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">正片也多来点，孩子爱看
+
+QQ图片20241214211921_副本.png
+(266.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 21:21 上传
+
+<img src="https://img.saraba1st.com/forum/202412/14/212109rsnbnfu9unswfhnu.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  阿卡拉兰斯  
+##### 3338#       发表于 2024-12-14 21:25
+
+光效krkr，给我看得dkdk
+这确实是我们邦多利传统的krkrdkdk啊
+
+*****
+
+####  PDQ4  
+##### 3339#       发表于 2024-12-14 21:27
+
+你就说是不是dokidoki吧
+
+我本来以为CV说恐怖片只是传统夸张手法，真能来点恐怖片氛围吗
+
+别到时候最疯的只有OP，诈骗了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

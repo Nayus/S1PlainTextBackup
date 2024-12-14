@@ -2527,3 +2527,11 @@ T3奥伯龙+旧剑技能全开，旧剑第二发宝具+左1的宝具/旧剑自�
 
 2024-12-14 20:47 上传
 
+
+*****
+
+####  alucardcz  
+##### 15442#       发表于 2024-12-14 21:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">现在1宝要几羁绊才能开被动？
+

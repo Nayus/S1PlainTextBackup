@@ -557,3 +557,14 @@ AppData\Roaming\Arrowhead\Helldivers2\shader_cache下的着色器文件删了重
 据说牢能的增援飞船打掉之后会立刻再刷，不知道是不是真的
 今天解锁反坦克炮之后打防御战，垒汉堡垒爽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6x6z6w  
+##### 5609#       发表于 2024-12-15 02:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66925895&amp;ptid=2170852" target="_blank">LrGsite 发表于 2024-12-14 19:58</a>
+
+刷上了,但现在服务器感觉好不稳定啊疯狂掉线</blockquote>
+这游戏每次出完重大更新网络都是一坨屎，只能等下周箭头上班修的
+

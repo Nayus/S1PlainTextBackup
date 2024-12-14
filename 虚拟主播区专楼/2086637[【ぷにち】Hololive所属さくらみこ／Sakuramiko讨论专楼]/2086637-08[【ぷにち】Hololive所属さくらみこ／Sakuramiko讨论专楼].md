@@ -681,3 +681,24 @@ danime注册巨麻烦，很不厚道的直接去看corocorochannel的官方视�
 
 ？花钱看holo小剧场动画脑子是不是有点
 
+
+*****
+
+####  holoan  
+##### 10416#         楼主| 发表于 2024-12-14 17:50
+
+<img src="https://img.saraba1st.com/forum/202412/14/175017d3rrrxps0ars0co2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (183.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-14 17:50 上传
+
+*****
+
+####  holoan  
+##### 10417#         楼主| 发表于 2024-12-14 20:13
+
+扣鼻屎可否解读为对某方的不满<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

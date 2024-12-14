@@ -4857,3 +4857,63 @@ op像是睦海玲这几个笑的应该是假的画面，正片里不会出现。
 看到有人猜明天萝热完场后接动画试映，试映结束接小剧场还原动画结尾喵梦全员开盒，然后无面具live，所以op ...</blockquote>
 原来今天热场之后硬放了半个小时ppp是流程预演，给放动画留的时间
 
+
+*****
+
+####  瞳映山川  
+##### 3415#       发表于 2024-12-15 00:17
+
+这个是op的话，除了第一集，大家要看她们癫成这样的画面十多集我就觉得有点想笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 3416#       发表于 2024-12-15 00:20
+
+太正常了那就op欺诈了，全程这么癫没有，但是每个人都会发癫几次我觉得比较现实
+
+至少睦那个氛围就正常不了，又是电视机又是红色滤镜又是砸玻璃的，不整点恐怖片对得起这些要素吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+人偶那个楼里也聊过好几次了，除了妈以外高关联的是睦，这个只能等后续给更多线索了
+
+
+*****
+
+####  zypyong  
+##### 3417#       发表于 2024-12-15 00:20
+
+这季怎么播的，还会是之前的开始3集连播吗
+
+*****
+
+####  庸necro  
+##### 3418#       发表于 2024-12-15 00:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">这个倒吊人是谁啊<img src="https://p.sda1.dev/20/1545b45dd6e52f742d9a822fb1bd8baf/CMP_20241215002231038.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  PDQ4  
+##### 3419#       发表于 2024-12-15 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66927961&amp;ptid=2208921" target="_blank">zypyong 发表于 2024-12-15 00:20</a>
+
+这季怎么播的，还会是之前的开始3集连播吗</blockquote>
+1.2开始第一集，没有三集连播的通知
+
+*****
+
+####  桜庭千景  
+##### 3420#       发表于 2024-12-15 00:24
+
+官网有公布第二话是1月9号，没有三集连播
+
+*****
+
+####  棒读  
+##### 3421#       发表于 2024-12-15 00:24
+
+op里大家露出笑容不是传统吗，就说乐队是不是带来笑容了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

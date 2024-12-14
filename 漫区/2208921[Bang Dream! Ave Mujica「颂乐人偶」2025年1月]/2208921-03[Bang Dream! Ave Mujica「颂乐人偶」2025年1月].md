@@ -3302,3 +3302,15 @@ go的都市/高楼/楼顶要素一直有的，早期的名无声和影色舞就�
 柿本广大在杂志都说了制作组对角色形象是否受损是有顾虑的 
 在这个前提下 你让祥子反复横跳 一会儿组交付人生的乐队 一会跑回家去当继承人 这恐怕不太现实
 
+
+*****
+
+####  Aendst  
+##### 3261#       发表于 2024-12-14 18:21
+
+竞技场好多都长这个样？具体是哪个不太好区分
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">只能寄期望于竞技场高手
+
+SSA我觉得远景看上去可能也都差不多长这样，完全分不清
+<img src="https://spice.eplus.jp/images/MqW061FSIYfzt2Wviumpd9wdBZ7nxP2XWRo8lRCwJFZXRRA4KgxQ8pyoEruqoyYr/" height="440" id="aimg_AUttv" onclick="zoom(this, this.src, 0, 0, 0)" width="700"/)
+

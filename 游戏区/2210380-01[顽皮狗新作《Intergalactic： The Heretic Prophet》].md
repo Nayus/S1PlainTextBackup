@@ -2017,3 +2017,18 @@ bungie脚刹完tlou2多人，顽皮狗就整出了这个，bungie罪大恶极。
 
 预言里说的就是当年的goty
 
+
+*****
+
+####  UmarIbnLaAhad  
+##### 197#       发表于 2024-12-14 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66915994&amp;ptid=2210380" target="_blank">3123 发表于 2024-12-13 14:21</a>
+
+扣掉秃尼的话确实是这么个感觉，至少皮像是很对味的
+
+很烦这种皮似骨非的玩意儿 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">不就是这么个套路，强行捆绑经典元素塞私货，敢喷就是喷经典
+
+跟银河护卫队一比就看得出尼尔这坨垃圾根本与经典元素的内核背道而驰，他玩这手又不是第一次了
+

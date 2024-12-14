@@ -2156,3 +2156,16 @@ YouTube评论都在说最大的错误就是没有关闭评论区
 
 笑死看了下**评论区各种：“bro，我不知道我们要扮演范迪塞尔上太空”、“我觉得我嘲笑这个女主角的话威尔史密斯会给我一巴掌”、“顽皮狗新作让我们扮演威尔老婆？”另外嘲笑索尼重置速度的评论也不少
 
+
+*****
+
+####  雪菜碧池  
+##### 209#       发表于 2024-12-14 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66919094&amp;ptid=2210380" target="_blank">激励哥.丘比 发表于 2024-12-13 19:12</a>
+
+土但是稳啊 巫师都讲3部了 按部就班来的话稳的一批
+
+—— 来自 鹅球 v3.0.86-alpha ...</blockquote>
+教科书一样的男人不行，女帮女，学我爹，满地滚<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

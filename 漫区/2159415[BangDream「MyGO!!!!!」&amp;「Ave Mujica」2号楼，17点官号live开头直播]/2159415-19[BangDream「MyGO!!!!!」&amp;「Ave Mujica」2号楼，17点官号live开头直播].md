@@ -177,3 +177,12 @@ R这新曲也太舒服了<img src="https://static.saraba1st.com/image/smiley/fac
 当然首先排除go
 <img src="https://p.sda1.dev/20/663725fd862abc121626263bdbec9219/Image_55515879279462.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CyDiablo  
+##### 26653#       发表于 2024-12-14 12:00
+
+ppp out<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">最期待高祖来着，sad
+<img src="https://p.sda1.dev/20/377ce3f13c7b42b7069331d016baf44d/Image_79294777224879.jpg" referrerpolicy="no-referrer">
+

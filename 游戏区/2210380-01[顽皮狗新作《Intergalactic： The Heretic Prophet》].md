@@ -2291,3 +2291,14 @@ woke game不会玩
 开头播段"仿"日本动画，让我担忧顽皮狗想把日本动画纳入WOKE版图中。</blockquote>
 能这么担心说明你没见过北米撅醒二次元贵物画的日漫同人，那画风丑的真就是和这部女主一样辣眼睛，而且普遍去性征非二元化<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shudushimo  
+##### 223#       发表于 2024-12-15 03:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66928112&amp;ptid=2210380" target="_blank">ナルバレック 发表于 2024-12-15 00:53</a>
+
+大工作室项目都是19年或20年立项的，尼尔大仙贝更是业界政确领军人物加魔怔狂人，顽皮狗内资历比他老的高 ...</blockquote>
+所以坐等这次爆死<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

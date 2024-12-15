@@ -12587,3 +12587,14 @@ VN留任不跑了
 
 🐟的中文EP全曲试听也出了
 
+
+*****
+
+####  cat1230  
+##### 1236#       发表于 2024-12-15 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66932369&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-12-15 19:35</a>
+
+🐟的中文EP全曲试听也出了</blockquote>
+第二首感觉还可以，第一首还是觉得怪
+

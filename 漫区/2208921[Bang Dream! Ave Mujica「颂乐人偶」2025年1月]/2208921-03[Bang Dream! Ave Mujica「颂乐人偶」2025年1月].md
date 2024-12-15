@@ -6749,3 +6749,38 @@ wsd从来没有宣传过姐妹团，哪怕是连体B号也没说过
 真这样那跨团cp还能卖么（）</blockquote>
 肯定有说话和同框的机会啊 有什么不能卖的
 
+
+*****
+
+####  akiomn  
+##### 3581#       发表于 2024-12-15 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66932461&amp;ptid=2208921" target="_blank">黑夜落叶秋天 发表于 2024-12-15 19:52</a>
+真这样那跨团cp还能卖么（）</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卖啊，第一集不就卖了素祥？后面还有灯祥等着呢
+不过都入土的cp有啥好说的，等着剑指手游吧
+
+
+*****
+
+####  PDQ4  
+##### 3582#       发表于 2024-12-15 20:00
+
+只是ccc彻底死绝了又不是人没了
+
+接下来的是鸡狗的关系，爱音入场就很说明问题了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 3583#       发表于 2024-12-15 20:00
+
+谁知道呢，独角兽为了迫害立希让海希决裂也不是不可能
+
+*****
+
+####  瞳映山川  
+##### 3584#       发表于 2024-12-15 20:03
+
+b站官号上op了
+

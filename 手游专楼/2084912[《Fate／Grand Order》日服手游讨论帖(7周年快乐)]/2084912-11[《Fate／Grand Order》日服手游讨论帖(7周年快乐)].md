@@ -2765,3 +2765,13 @@ T3奥伯龙+旧剑技能全开，旧剑第二发宝具+左1的宝具/旧剑自�
 
 让我康康没有直充的5星还有几个<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  乾理央  
+##### 15463#       发表于 2024-12-15 20:02
+
+[https://bbs.nga.cn/read.php?tid=42742663](https://bbs.nga.cn/read.php?tid=42742663)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然是90+，但50秒一把，好快，水伊吹14绊了该省着花了
+

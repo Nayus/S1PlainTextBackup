@@ -25,3 +25,11 @@
 
 【【中日字幕/OP完整版】愚物语 OP「icecream°」/ 阿良々木月火(CV.井口裕香)、斧乃木余接(CV.早見沙織)】 [https://www.bilibili.com/video/BV1oEqSYeEVn](https://www.bilibili.com/video/BV1oEqSYeEVn)
 
+
+*****
+
+####  0aleph37  
+##### 1003#       发表于 2024-12-15 20:32
+
+【【熟肉/副音轨】愚物语 月火复原【喵萌奶茶屋】-哔哩哔哩】 [https://b23.tv/exKeD8G](https://b23.tv/exKeD8G)
+

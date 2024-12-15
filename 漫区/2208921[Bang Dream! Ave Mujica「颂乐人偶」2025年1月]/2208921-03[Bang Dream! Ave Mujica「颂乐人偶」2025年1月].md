@@ -6957,3 +6957,63 @@ image.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玛德这op开唱前标题出现的那一小段独奏让我突然想起了四不唱
 
+
+*****
+
+####  skives10  
+##### 3601#       发表于 2024-12-15 20:27
+
+说实话这种物品的特写
+给人一种失去之后用来怀念的感觉
+感觉祥子的每段人际关系都会有很大的波折<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  近月  
+##### 3602#       发表于 2024-12-15 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66932646&amp;ptid=2208921" target="_blank">御幸一也 发表于 2024-12-15 20:16</a>
+日本蘿粉真的好給力，而且還有蘿粉做Rxave的聯合花籃
+
+太給面子了 希望日本的蘿粉能喜歡你雞 ...</blockquote>
+还可以的，体感今天去会场路上三分之一左右都是萝粉(有穿戴萝相关的衣服挂件)，我附近很多人荧光棒也只有对应萝的颜色(用lisa红撑完整场<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+
+*****
+
+####  skylah  
+##### 3603#       发表于 2024-12-15 20:30
+
+初祥吃这么好<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 3604#       发表于 2024-12-15 20:32
+
+op画面不知道会不会随着集数推进进行变动，不然到最后结局还看这四个发癫有点抽象了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  魔天使  
+##### 3605#       发表于 2024-12-15 20:33
+
+这op，<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">寒蝉鸣泣之时
+
+*****
+
+####  skives10  
+##### 3606#       发表于 2024-12-15 20:34
+
+感觉只有镜子里的部分比较夸张
+最后那段可以算是正常的解放天性 是好事
+
+*****
+
+####  好想看Mujica啊  
+##### 3607#       发表于 2024-12-15 20:35
+
+初华集主唱青梅同居于一体，无敌了，除非双子假药成真，不然真没法打了
+

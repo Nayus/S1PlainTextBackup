@@ -604,3 +604,13 @@ AppData\Roaming\Arrowhead\Helldivers2\shader_cache下的着色器文件删了重
 
 —— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  保科智子  
+##### 5614#       发表于 2024-12-15 11:00
+
+关windows防火墙后节点变NAT1了，改善不少。看连接ip白天和晚上都是p2p直连，深夜人数上来一些但是有时能保持steam中转。国服太多NAT4玩家吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

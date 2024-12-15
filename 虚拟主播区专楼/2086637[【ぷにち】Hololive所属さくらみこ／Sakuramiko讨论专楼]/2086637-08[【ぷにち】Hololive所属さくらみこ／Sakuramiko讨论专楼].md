@@ -719,3 +719,28 @@ danime注册巨麻烦，很不厚道的直接去看corocorochannel的官方视�
 
 多少年没玩过单机了
 
+
+*****
+
+####  holoan  
+##### 10420#         楼主| 发表于 2024-12-14 20:37
+
+几个月没碰MC其实我怀疑今天长时间播又要晕画面下播
+
+而且明天要播新作的话要打通关的时间长达12小时以上，真的有这么多时间播？
+
+*****
+
+####  holoan  
+##### 10421#         楼主| 发表于 2024-12-15 10:24
+
+<img src="https://img.saraba1st.com/forum/202412/15/102341n8iwz7hn6z773inc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (97.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 10:23 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">野鸡野鸡
+

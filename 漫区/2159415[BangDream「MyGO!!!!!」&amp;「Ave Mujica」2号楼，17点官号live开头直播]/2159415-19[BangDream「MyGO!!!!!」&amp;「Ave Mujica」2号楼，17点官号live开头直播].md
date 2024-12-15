@@ -343,3 +343,12 @@ day1day2的小标题分别是petrichor=雨的味道和geosmin=土臭素（雨的
 
 你邦的乐队编制是不是被手游拖了后腿导致只能5个人，导致原声吉他出场非常少
 
+
+*****
+
+####  紫吹兰  
+##### 26668#         楼主| 发表于 2024-12-16 04:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66933241&amp;ptid=2159415" target="_blank">御景 发表于 2024-12-15 21:29</a></blockquote>
+毕竟十年队友声优这块确实能拉
+

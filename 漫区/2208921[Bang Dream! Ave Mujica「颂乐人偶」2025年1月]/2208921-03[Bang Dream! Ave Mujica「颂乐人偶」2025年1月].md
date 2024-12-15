@@ -5989,3 +5989,33 @@ go总集篇80馆左右
 
 到达现场
 
+
+*****
+
+####  椎名真希  
+##### 3512#       发表于 2024-12-15 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66930703&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-15 15:02</a>
+
+到达现场</blockquote>
+最羡慕现地的一次
+
+等看完前三集感想了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  akiomn  
+##### 3513#       发表于 2024-12-15 15:11
+
+Ave Mujica 4th LIVE'Adventus'
+Roselia(Guest):
+1. FIRE BIRD
+2. Determination Symphony
+3. THE HISTORIC...
+4. PASSIONATE ANTHEM
+5. Floral Haven
+
+萝嘉宾，有双子曲（虽然昨天也有）
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">byd我还在坐电车过去的路上，楼上那么快就到了啊
+

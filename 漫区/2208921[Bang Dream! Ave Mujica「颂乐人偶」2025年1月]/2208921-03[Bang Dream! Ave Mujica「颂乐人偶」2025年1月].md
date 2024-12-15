@@ -5470,3 +5470,19 @@ OP应该是镜内外两层？
 哦不对，还有一种可能性是幼祥经常去幼初华家里玩，所以初华家里也准备了她的水杯 ...</blockquote>
 有没有可能就是小时候和小祥一起用过的水杯，初华一直珍藏到现在<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 3454#       发表于 2024-12-15 12:32
+
+以前确实有睦祥交换论的，指扮成对方出去玩然后初华其实也认识小时候的睦，论据好像是天桥聊天的时候两个人的回忆有对不上的地方
+
+*****
+
+####  IWS2000  
+##### 3455#       发表于 2024-12-15 12:37
+
+Twitter @oinonia
+<img src="https://p.sda1.dev/20/58766b92c6273d7d31d4f6954d86aa18/image.jpg" referrerpolicy="no-referrer">
+

@@ -7579,3 +7579,52 @@ op上线b站两小时播放量  150000
 
 最后那个问题也还是一样的，脚本早就写好了而且制作上是连续制作的，做好压着没播而已
 
+
+*****
+
+####  skives10  
+##### 3660#       发表于 2024-12-15 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66933719&amp;ptid=2208921" target="_blank">L-JoeW 发表于 2024-12-15 22:50</a>
+自从游戏王大师规则的动画下线后很久没看到过这么正经的颜艺了
+
+另外想问一下，看过前作的宅友说前几作没有 ...</blockquote>
+剧本本身早就写完了
+至于是不是为爆而爆就要看你怎么看待母鸡卡这个企划原点的解谜游戏了
+又是棺材又是骷髅头的，和op风格也挺一致的
+
+*****
+
+####  skives10  
+##### 3661#       发表于 2024-12-15 22:58
+
+这个美女是谁呀  想gachi了
+
+<img src="https://img.saraba1st.com/forum/202412/15/225748lsqdogkko3gr33qg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3992.jpeg</strong> (79.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 22:57 上传
+
+
+*****
+
+####  PDQ4  
+##### 3662#       发表于 2024-12-15 23:04
+
+怎么可能为了爆而改脚本，漏u要是有兴趣去复习去年线下的解谜活动和小剧场，了解一下鸡的世界观
+
+这一年世界观都要变贬义了，都快忘了最初为什么入坑鸡
+
+[https://forum.gamer.com.tw/C.php?bsn=31877&amp;snA=6745](https://forum.gamer.com.tw/C.php?bsn=31877&amp;snA=6745)（目前最详细的ARGrepo）
+
+小剧场1-6，B号有（搭配解谜活动食用更佳）
+[https://www.bilibili.com/video/BV1HQ4y1H7Hy](https://www.bilibili.com/video/BV1HQ4y1H7Hy)
+[https://www.bilibili.com/video/BV15W4y1F7dK](https://www.bilibili.com/video/BV15W4y1F7dK)
+
+鸡本来就该这么疯，这才对得起这个邪教味的初登场<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+只是没想到OP动画就敢做这么大胆<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -7017,3 +7017,74 @@ op画面不知道会不会随着集数推进进行变动，不然到最后结局
 
 初华集主唱青梅同居于一体，无敌了，除非双子假药成真，不然真没法打了
 
+
+*****
+
+####  狮子咕  
+##### 3608#       发表于 2024-12-15 20:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">歌词出现的位置会有点说法吗
+
+<img src="https://img.saraba1st.com/forum/202412/15/203600l27v2tqsvqz6qsee.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (52.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 20:36 上传
+
+<img src="https://img.saraba1st.com/forum/202412/15/203757ihho8n5bonqxbhx5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (24.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 20:37 上传
+
+
+*****
+
+####  ytttsuuuba  
+##### 3609#       发表于 2024-12-15 20:40
+
+那双子buff确实是无敌的
+
+*****
+
+####  ytttsuuuba  
+##### 3610#       发表于 2024-12-15 20:41
+
+播到一半，会换二阶段op吧，饺子肯定是要包的，后面一直是这个op有点出戏<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+*****
+
+####  收纳袋  
+##### 3611#       发表于 2024-12-15 20:43
+
+<img src="https://img.saraba1st.com/forum/202412/15/204227oyubu4ytr98dnnrh.png" referrerpolicy="no-referrer">
+
+<strong>UVM~BP33FF3CZ2T~Y%4]](L.png</strong> (57.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 20:42 上传
+
+好可爱的睦
+
+*****
+
+####  狮子咕  
+##### 3612#       发表于 2024-12-15 20:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">海玲镜子里那个颜艺和别人比起来确实像单纯表情管理失控了
+
+*****
+
+####  月島まりな  
+##### 3613#       发表于 2024-12-15 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66932804&amp;ptid=2208921" target="_blank">近月 发表于 2024-12-15 20:30</a>
+还可以的，体感今天去会场路上三分之一左右都是萝粉(有穿戴萝相关的衣服挂件)，我附近很多人荧光棒也只有 ...</blockquote>
+我觉得口球灯挺好的，不拿棒子更沉浸
+这次跟3rd一样，除了Ave Mujica之外全程场控
+

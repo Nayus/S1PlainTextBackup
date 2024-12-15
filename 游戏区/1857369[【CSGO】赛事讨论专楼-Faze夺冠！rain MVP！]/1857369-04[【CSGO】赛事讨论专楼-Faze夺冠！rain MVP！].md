@@ -505,3 +505,18 @@ shiro是个人啊<img src="https://static.saraba1st.com/image/smiley/face2017/00
 
 比赛太精彩了，donk新王登基
 
+
+*****
+
+####  朔方原的星  
+##### 4633#         楼主| 发表于 2024-12-15 20:40
+
+我在飞机上，没看到这场，donk太变态了，马西西要发了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tengshuo980  
+##### 4634#       发表于 2024-12-15 20:43
+
+我不在乎<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

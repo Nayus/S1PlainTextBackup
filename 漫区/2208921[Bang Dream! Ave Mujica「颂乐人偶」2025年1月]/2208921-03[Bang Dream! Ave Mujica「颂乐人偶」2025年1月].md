@@ -7788,3 +7788,11 @@ ppp 萝 蝶 ras mygo 鸡，即使不算管人团都是6个
 你邦出息了，A妈在live上帮鸡萝和明年的动画都做了宣传</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">也拉太多人宣傳了吧這次
 
+
+*****
+
+####  461757753  
+##### 3678#       发表于 2024-12-16 05:19
+
+我觉得wsd和邦邦需要的是第二个mygo，可是鸡提前上映的操作让我觉得wsd并不怎么想
+

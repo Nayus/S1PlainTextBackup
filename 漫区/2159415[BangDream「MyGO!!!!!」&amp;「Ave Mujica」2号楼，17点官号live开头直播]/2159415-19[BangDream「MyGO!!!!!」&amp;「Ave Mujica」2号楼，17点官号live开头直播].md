@@ -352,3 +352,11 @@ day1day2的小标题分别是petrichor=雨的味道和geosmin=土臭素（雨的
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66933241&amp;ptid=2159415" target="_blank">御景 发表于 2024-12-15 21:29</a></blockquote>
 毕竟十年队友声优这块确实能拉
 
+
+*****
+
+####  461757753  
+##### 26669#       发表于 2024-12-16 05:16
+
+还以为4th会说声优名，也没有mc
+

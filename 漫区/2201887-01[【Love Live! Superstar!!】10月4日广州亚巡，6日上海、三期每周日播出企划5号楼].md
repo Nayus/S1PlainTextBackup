@@ -12568,3 +12568,14 @@ VN留任不跑了
 可可把大学宣传册带日本干啥啊留纪念吗？气氛都烘托到这了别告诉我她还准备回去……要不要考虑一下跟恋恋读 ...</blockquote>
 你看下面垫着白色的纸袋，很明显是寄过来的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csolfans  
+##### 1234#       发表于 2024-12-15 18:53
+
+<img src="https://p.sda1.dev/20/a03f716539ccc8b2e09c55ac31b75622/CMP_20241215185307137.jpg" referrerpolicy="no-referrer">
+我透，菜市场！
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

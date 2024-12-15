@@ -6318,3 +6318,46 @@ Roselia(Guest):
 
 现场摘面具了
 
+
+*****
+
+####  skives10  
+##### 3541#       发表于 2024-12-15 18:48
+
+窝巢 揭面了 李子帅到炸裂<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  月島まりな  
+##### 3542#       发表于 2024-12-15 18:49
+
+我草你的 太爽了
+
+*****
+
+####  akiomn  
+##### 3543#       发表于 2024-12-15 18:49
+
+现场摘面了
+
+*****
+
+####  良臣没有重谢  
+##### 3544#       发表于 2024-12-15 18:52
+
+为了第一集去看了下live，海玲的声优这脸也太tm伟大了。<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+假面骑士他就得cast off，不cast off不行的。
+
+—— 来自 HUAWEI CET-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+*****
+
+####  PDQ4  
+##### 3545#       发表于 2024-12-15 18:55
+
+最嫉妒现地佬的一集
+
+只能等后续影像了<img src="https://static.saraba1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">
+

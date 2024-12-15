@@ -7365,3 +7365,41 @@ ppp萝蝶ras鸡狗梦限大是哪两个被除名了<img src="https://static.sara
 
 漏u不要太爱理欠债懂哥了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 3641#       发表于 2024-12-15 22:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我說呢怎麼樓友突然都無語了，原來是……
+
+*****
+
+####  skives10  
+##### 3642#       发表于 2024-12-15 22:20
+
+还在回味 揭面李子真的太帅了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+以后能不能永远不戴面具<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 3643#       发表于 2024-12-15 22:24
+
+以后是不是真的就不戴面具了<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+这场都已经这样了
+
+*****
+
+####  御幸一也  
+##### 3644#       发表于 2024-12-15 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66933540&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-15 22:20</a>
+
+还在回味 揭面李子真的太帅了
+
+以后能不能永远不戴面具</blockquote>
+給喵夢多點關愛，助力她下次再把大家的面具都扔了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+

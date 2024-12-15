@@ -6361,3 +6361,53 @@ Roselia(Guest):
 
 只能等后续影像了<img src="https://static.saraba1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ty_cc  
+##### 3546#       发表于 2024-12-15 18:57
+
+无所谓<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+
+*****
+
+####  akiomn  
+##### 3547#       发表于 2024-12-15 18:58
+
+ 本帖最后由 akiomn 于 2024-12-15 19:00 编辑 
+
+刚看完live就看到这图，wsd逆大天了
+
+注意北海道这个地区，我没看懂这地区是直接播到第五集还是说一周一集只是改时间
+
+44C22BA9-0471-4258-A9C3-C9DAA0CEB5D3.jpeg
+(90.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 18:58 上传
+
+<img src="https://img.saraba1st.com/forum/202412/15/185850hqgg2gsjpqjicssg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  收纳袋  
+##### 3548#       发表于 2024-12-15 18:59
+
+武士道你可真是个神人<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  近月  
+##### 3549#       发表于 2024-12-15 19:02
+
+<img src="https://p.sda1.dev/20/794e759b2d788f149170fe31d2b1cf25/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/3da3f1030eb14a1d707bd2298c3bbad3/image.jpg" referrerpolicy="no-referrer">
+进场的时候看到月亮又大又圆就知道今天肯定是大成功了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+最高の夜、最高の月、最高のステージ
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

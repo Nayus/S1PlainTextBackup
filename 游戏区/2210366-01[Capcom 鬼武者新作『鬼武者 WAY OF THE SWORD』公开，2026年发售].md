@@ -682,3 +682,14 @@ steam页面的介绍里说故事发生舞台是江户时代初期的京都，能
 
 视频里有些地方用了两把刀，难道是宫本武藏？时间倒也对的上。不过武藏已经有个动画版了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kusabi  
+##### 75#       发表于 2024-12-15 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66931293&amp;ptid=2210366" target="_blank">无攻不受鹿 发表于 2024-12-15 16:33</a>
+
+视频里有些地方用了两把刀，难道是宫本武藏？时间倒也对的上。不过武藏已经有个动画版了 ...</blockquote>
+武藏有养子兼徒弟宫本伊织，不过这样就和FSR撞了。
+

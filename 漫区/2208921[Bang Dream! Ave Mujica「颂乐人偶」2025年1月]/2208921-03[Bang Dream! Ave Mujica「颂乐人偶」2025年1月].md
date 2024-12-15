@@ -6158,3 +6158,14 @@ Roselia(Guest):
 
 阿b会不会跟上，快点端上来罢
 
+
+*****
+
+####  akiomn  
+##### 3524#       发表于 2024-12-15 16:36
+
+鸡狗联合live标题：わかれ道の、その先へ
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">趁着萝热场结束动画还没开播赶紧发下
+
+好了我爽看动画去了
+

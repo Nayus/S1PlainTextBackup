@@ -6169,3 +6169,27 @@ Roselia(Guest):
 
 好了我爽看动画去了
 
+
+*****
+
+####  小延S  
+##### 3525#       发表于 2024-12-15 16:48
+
+快进到3+3+3+3
+
+*****
+
+####  PDQ4  
+##### 3526#       发表于 2024-12-15 16:49
+
+看萝和观众互动又悸动了
+什么时候鸡也能这样<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 3527#       发表于 2024-12-15 16:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">妈的现场在换舞台装置，不知道要干嘛
+动画现在还没放
+

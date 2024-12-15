@@ -5629,3 +5629,48 @@ wsd有点SB
 
 第三集要若叶睦视角了吗
 
+
+*****
+
+####  NODY  
+##### 3471#       发表于 2024-12-15 13:17
+
+有流媒体和tv也是三集连播的可能性吗，不然进度差三个星期有点难绷了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  挺好的  
+##### 3472#       发表于 2024-12-15 13:19
+
+估计还是一周一集，不然线下怎么可能到1月九号三集，wsd司马了，一月九号线上也就第二集
+
+*****
+
+####  skives10  
+##### 3473#       发表于 2024-12-15 13:19
+
+希望wsd的弱智到此为止 
+别搞什么456、789也先行上映<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 3474#       发表于 2024-12-15 13:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不如網飛大手買一下avemujica的播放權，直接全季當天釋出算了，不想等啦！
+
+*****
+
+####  NODY  
+##### 3475#       发表于 2024-12-15 13:22
+
+如果真的每三集超前点播一次，那对讨论环境简直是毁灭性的<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 3476#       发表于 2024-12-15 13:23
+
+三集连播致敬传奇网红喵梦亲一场live揭五张面具
+

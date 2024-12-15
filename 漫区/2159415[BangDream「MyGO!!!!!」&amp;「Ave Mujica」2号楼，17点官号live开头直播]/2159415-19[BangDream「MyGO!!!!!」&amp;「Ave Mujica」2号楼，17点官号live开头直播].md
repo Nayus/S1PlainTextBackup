@@ -270,3 +270,24 @@ one man早说啊，申请个邦邦live害大家期待那么久……
 <img src="https://p.sda1.dev/20/4b216e197fa36ff9a316eb02075e0f81/IMG_0849.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/20/d8698886c22cae52dd9183ebfbb879b3/IMG_0844.jpeg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 26662#         楼主| 发表于 2024-12-15 16:31
+
+ 本帖最后由 紫吹兰 于 2024-12-15 16:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66925458&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-12-14 18:54</a>
+
+萝换成五弦贝斯和七弦吉他了</blockquote>
+无弦贝斯一直都有，那个七弦吉他看了下是E2的，M2 Sayo没找到机会截图数数
+
+7弦.png
+(931.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 16:31 上传
+
+<img src="https://img.saraba1st.com/forum/202412/15/163124s9e8e78z8w9e39n3.png" referrerpolicy="no-referrer">
+

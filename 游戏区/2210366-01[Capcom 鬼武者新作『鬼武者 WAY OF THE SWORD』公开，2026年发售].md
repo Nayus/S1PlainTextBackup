@@ -674,3 +674,11 @@ steam页面的介绍里说故事发生舞台是江户时代初期的京都，能
 
 单看PV有些走上世纪剑戟片的风格，如果CAPCOM能够把这套美术风格做出来也挺不错
 
+
+*****
+
+####  无攻不受鹿  
+##### 74#       发表于 2024-12-15 16:33
+
+视频里有些地方用了两把刀，难道是宫本武藏？时间倒也对的上。不过武藏已经有个动画版了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

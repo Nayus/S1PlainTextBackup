@@ -6296,3 +6296,25 @@ Roselia(Guest):
 
 2024-12-15 18:29 上传
 
+
+*****
+
+####  PDQ4  
+##### 3539#       发表于 2024-12-15 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66847509&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-5 09:51</a>
+
+哦突然想到可能没有摘面具了
+
+因为要考虑剧透问题，live有线上票，总不能因为线上票的人看不到动画，就把追 ...</blockquote>
+10天前的毒奶一语成谶
+
+我的killkiss<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 3540#       发表于 2024-12-15 18:44
+
+现场摘面具了
+

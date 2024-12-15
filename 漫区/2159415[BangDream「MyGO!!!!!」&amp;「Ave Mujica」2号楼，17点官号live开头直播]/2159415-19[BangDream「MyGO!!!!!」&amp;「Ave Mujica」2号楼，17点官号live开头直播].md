@@ -303,3 +303,13 @@ one man早说啊，申请个邦邦live害大家期待那么久……
 
 这次直播断的也太果断了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  滑稽Captain  
+##### 26664#       发表于 2024-12-15 18:39
+
+ 本帖最后由 滑稽Captain 于 2024-12-15 18:41 编辑 
+
+day1day2的小标题分别是petrichor=雨的味道和geosmin=土臭素（雨的味道的主要成分）
+

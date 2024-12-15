@@ -6648,3 +6648,73 @@ wsd你真该死啊
 
 结尾真鸡狗绝交是吧
 
+
+*****
+
+####  御幸一也  
+##### 3572#       发表于 2024-12-15 19:38
+
+ 本帖最后由 御幸一也 于 2024-12-15 19:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66932359&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-15 19:34</a>
+
+对邦标题的意思，两团未来肯定是平行线
+
+羊姐之前在哪首歌就提过鸡狗团是平行但不会交集的关系来着 ...</blockquote>
+不是歌 是邦12th的獨白
+
+我都記得那天我翻譯完這個，居然出現好幾個人過來把“平行線”理解成“永遠陪伴”，非常的震撼，
+
+嚇得我去翻了下日本辭典，『平行線』三個字我到處翻資料都找不出任何這個陪伴味，到底怎麼理解出來的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鲍里斯  
+##### 3573#       发表于 2024-12-15 19:38
+
+这运营对得起你鸡团这么c的五个人吗？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  akiomn  
+##### 3574#       发表于 2024-12-15 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66932372&amp;ptid=2208921" target="_blank">NODY 发表于 2024-12-15 19:36</a>
+结尾真鸡狗绝交是吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绝交不会，毕竟还要进游戏，但是平行线也说的没错，一个银河战舰商业化一个业余过家家喝茶乐队，两个乐队的故事要怎么交集？
+说是姐妹团但实际差距很大，唯一相似的只有两边人互相认识以及这是c团彻底死透后出现的两个乐队
+
+*****
+
+####  WhiteGlint  
+##### 3575#       发表于 2024-12-15 19:42
+
+<img src="https://img.saraba1st.com/forum/202412/15/194213zp66gx6i626p8pee.jpg" referrerpolicy="no-referrer">
+
+<strong>1000124094.jpg</strong> (335.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 19:42 上传
+
+太爽了，李子开嗓以后表现太完美了，尤其是water现场稳到不能再稳，mas的吉他solo部分也是稳的像录音室，听高潮了
+
+*****
+
+####  御幸一也  
+##### 3576#       发表于 2024-12-15 19:43
+
+互相當個普通同學就夠了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 3577#       发表于 2024-12-15 19:44
+
+鸡狗结局是分道扬镳各走各的路意料之中，至少尘归尘土归土是我贷款的结局
+
+对邦也是奶的基本上重走动画路，也符合根本说的鸡狗以动画为主
+
+具体还是看动画正片怎么搞，和解倒是不用担心，不过我一直不看好超级无敌大饺子的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

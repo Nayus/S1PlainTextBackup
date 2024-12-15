@@ -6718,3 +6718,34 @@ wsd你真该死啊
 
 具体还是看动画正片怎么搞，和解倒是不用担心，不过我一直不看好超级无敌大饺子的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 3578#       发表于 2024-12-15 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66932406&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-15 19:42</a>
+
+绝交不会，毕竟还要进游戏，但是平行线也说的没错，一个银河战舰商业化一个业余过家家喝茶乐队，两个乐队 ...</blockquote>
+这个其实算国内特供谣传
+
+wsd从来没有宣传过姐妹团，哪怕是连体B号也没说过
+
+访谈和其他边角料里倒是锤了各种意义上“正相反”的两个团<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑夜落叶秋天  
+##### 3579#       发表于 2024-12-15 19:52
+
+真这样那跨团cp还能卖么（）
+
+*****
+
+####  skives10  
+##### 3580#       发表于 2024-12-15 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66932461&amp;ptid=2208921" target="_blank">黑夜落叶秋天 发表于 2024-12-15 19:52</a>
+真这样那跨团cp还能卖么（）</blockquote>
+肯定有说话和同框的机会啊 有什么不能卖的
+

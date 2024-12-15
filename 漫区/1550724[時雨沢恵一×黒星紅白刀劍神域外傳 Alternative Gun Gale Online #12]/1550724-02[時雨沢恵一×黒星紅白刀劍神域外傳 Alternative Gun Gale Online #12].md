@@ -38,3 +38,14 @@ MMTM那走位我觉得就是冲着团灭去的，扎成一堆</blockquote>
 
 2024-12-13 23:34 上传
 
+
+*****
+
+####  梶原ひかり  
+##### 2003#       发表于 2024-12-15 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66929454&amp;ptid=1550724" target="_blank">mhss 发表于 2024-12-15 11:34</a>
+
+baha的字幕错了，我还想着不可什么时候丢了条命</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">连数都不认识
+

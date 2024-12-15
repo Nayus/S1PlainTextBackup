@@ -795,3 +795,14 @@ GTA6从主机到PC再到OL再到MOD化 怕是有很多人毕业都玩不到
 
 阿喵喵的音声没话说<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  格林卡罗尔  
+##### 967#       发表于 2024-12-16 00:15
+
+想了想这次vcr还是挺失败的，警察优待这么足热度还是不如黑帮，甚至不如超市医院乃至于一些店面。
+土井一改之前风格，干涉这么多也没见什么成效。而且游戏本身也太不稳定，我几乎每次看大型都有重大bug，重启频率还特别高。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

@@ -688,3 +688,13 @@ PS5匹配时间长，容易掉线的问题。只要把跨平台游戏关了就�
 
 光能这边的AA也太猛了,只要一开穿梭机来一个杀一个,这都叠起来了
 
+
+*****
+
+####  LrGsite  
+##### 5622#       发表于 2024-12-16 00:23
+
+<img src="https://i.meee.com.tw/5c0W7Pd.gif" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">电棍光州小曲的二创也太多了
+[https://www.bilibili.com/video/BV1fHBjYjECz](https://www.bilibili.com/video/BV1fHBjYjECz)
+

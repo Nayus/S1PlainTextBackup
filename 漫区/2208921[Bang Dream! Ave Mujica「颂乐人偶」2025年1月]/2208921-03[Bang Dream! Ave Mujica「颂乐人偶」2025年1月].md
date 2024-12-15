@@ -5713,3 +5713,50 @@ wsd有点SB
 
 差不多，有点类似个小剧场版了，刚好开三周还能换三种特典
 
+
+*****
+
+####  杂灰  
+##### 3482#       发表于 2024-12-15 13:34
+
+这下对标钢弹了
+
+*****
+
+####  qjw114514  
+##### 3483#       发表于 2024-12-15 13:34
+
+wsd有点离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿萨德飞过去  
+##### 3484#       发表于 2024-12-15 13:35
+
+绝望<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，要在满天飞的文字情报下度过惶惶不安的三个月
+
+*****
+
+####  Kfly  
+##### 3485#       发表于 2024-12-15 13:35
+
+ 本帖最后由 Kfly 于 2024-12-15 13:37 编辑 
+
+wsd疑似太想赚快钱了……你最好真的兜得住剧情<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yinacona  
+##### 3486#       发表于 2024-12-15 13:36
+
+那么国内会跟上吗（
+
+*****
+
+####  双菜  
+##### 3487#       发表于 2024-12-15 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66930182&amp;ptid=2208921" target="_blank">杂灰 发表于 2024-12-15 13:34</a>
+这下对标钢弹了</blockquote>
+对标钢弹好歹给个几十馆吧（
+

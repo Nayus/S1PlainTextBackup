@@ -622,3 +622,11 @@ AppData\Roaming\Arrowhead\Helldivers2\shader_cache下的着色器文件删了重
 
 电棍配肘击甲还挺有意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kalavinka  
+##### 5616#         楼主| 发表于 2024-12-15 13:39
+
+电矛还可以用检视武器取消后摇 然后设个宏光速连打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

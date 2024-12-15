@@ -363,3 +363,19 @@ uzi 主要是出道早，要是杰克不拿那个冠军，是真的三个哥哥�
 
 卡托和Major都要是faze送的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KevinGraham  
+##### 4615#       发表于 2024-12-15 18:22
+
+贴纸王mxx<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Tienx  
+##### 4616#       发表于 2024-12-15 18:24
+
+太有数值了绿龙
+

@@ -2510,3 +2510,39 @@ SACD的话，随便买台搭载联发科MT8580处理器的蓝光播放器就行�
 
 2024-12-15 17:54 上传
 
+
+*****
+
+####  wfhtony  
+##### 6783#       发表于 2024-12-15 18:23
+
+ 本帖最后由 wfhtony 于 2024-12-15 18:25 编辑 
+
+​
+
+<img src="https://img.saraba1st.com/forum/202412/15/182531is1jck11xj7y9m77.jpg" referrerpolicy="no-referrer">
+
+<strong>M@STER EXPO LIVE SHOWCASE CINDERELLA STAGE DAY1（生放送）.mkv_snapshot_01.19.04.000.jpg</strong> (133.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 18:25 上传
+
+<img src="https://img.saraba1st.com/forum/202412/15/182532efchjihmz2bzcicm.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-12-15-18h16m41s894.png</strong> (1.59 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 18:25 上传
+
+<img src="https://img.saraba1st.com/forum/202412/15/182531k6w0ngzgp0u11owr.jpg" referrerpolicy="no-referrer">
+
+<strong>M@STER EXPO LIVE SHOWCASE SHOWCASE MILLION STAGE（生放送）.ts_snapshot_31.37.237.jpg</strong> (306.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 18:25 上传
+
+所以《StSn》的制作组是偷偷捏了多少建模啊... 万南你真的不搞新的主机作么？
+

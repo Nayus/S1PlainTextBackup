@@ -6411,3 +6411,125 @@ Roselia(Guest):
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  AveMujica  
+##### 3550#         楼主| 发表于 2024-12-15 19:10
+
+<img src="https://img.saraba1st.com/forum/202412/15/190948umfvrwoovrycoryv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (293.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 19:09 上传
+
+*****
+
+####  akiomn  
+##### 3551#       发表于 2024-12-15 19:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">从场馆出来了，我永远忘不掉1215了
+接下来我只想看wsd挨骂，鸡5人那么c，wsd却只会作
+
+*****
+
+####  AveMujica  
+##### 3552#         楼主| 发表于 2024-12-15 19:11
+
+[https://bang-dream.com/events/mygo-avemujica2025](https://bang-dream.com/events/mygo-avemujica2025)
+
+<img src="https://img.saraba1st.com/forum/202412/15/191127dbf3f1gby3fbbrcn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (355.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 19:11 上传
+
+*****
+
+####  Yinacona  
+##### 3553#       发表于 2024-12-15 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66932096&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-15 18:58</a>
+
+刚看完live就看到这图，wsd逆大天了
+
+注意北海道这个地区，我没看懂这地区是直接播到第五集还是说一周一集只 ...</blockquote>
+看时长，2 3~5这几集播放时间可能因为电视台原因所以改了播放时间
+
+
+*****
+
+####  阿卡拉兰斯  
+##### 3554#       发表于 2024-12-15 19:12
+
+wsd你真该死啊
+
+*****
+
+####  AveMujica  
+##### 3555#         楼主| 发表于 2024-12-15 19:13
+
+[https://x.com/bang_dream_info/status/1868246138161377634](https://x.com/bang_dream_info/status/1868246138161377634)
+
+<img src="https://img.saraba1st.com/forum/202412/15/191334mczlhshsuc9894hz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (214.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 19:13 上传
+
+*****
+
+####  滑稽Captain  
+##### 3556#       发表于 2024-12-15 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66932096&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-15 18:58</a>
+
+刚看完live就看到这图，wsd逆大天了
+
+注意北海道这个地区，我没看懂这地区是直接播到第五集还是说一周一集只 ...</blockquote>
+每集不同电视台因为自己有其他节目安排占了时间档期需要改时间而已，都是每周一集的 
+
+*****
+
+####  cherryjia12  
+##### 3557#       发表于 2024-12-15 19:13
+
+最羡慕现地的一集
+
+*****
+
+####  AveMujica  
+##### 3558#         楼主| 发表于 2024-12-15 19:13
+
+[https://x.com/bang_dream_info/status/1868246250656854344](https://x.com/bang_dream_info/status/1868246250656854344)
+
+<img src="https://img.saraba1st.com/forum/202412/15/191354pve55wvyccwevcb0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (285.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 19:13 上传
+
+
+*****
+
+####  AveMujica  
+##### 3559#         楼主| 发表于 2024-12-15 19:14
+
+[https://x.com/bang_dream_info/status/1868246592882639270](https://x.com/bang_dream_info/status/1868246592882639270)
+
+<img src="https://img.saraba1st.com/forum/202412/15/191423v0bfk01lw3cpok0c.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (345.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 19:14 上传
+

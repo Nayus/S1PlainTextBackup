@@ -2554,3 +2554,19 @@ SACD的话，随便买台搭载联发科MT8580处理器的蓝光播放器就行�
 
 答案是给街机用的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wfhtony  
+##### 6785#       发表于 2024-12-15 19:10
+
+<img src="https://img.saraba1st.com/forum/202412/15/191015lu0yjeew0jusin0i.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-12-15-19h08m57s896.png</strong> (846.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 19:10 上传
+
+难怪这两天没见到，合着在这边伏击各位P呢
+

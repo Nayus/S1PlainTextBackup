@@ -5486,3 +5486,36 @@ OP应该是镜内外两层？
 Twitter @oinonia
 <img src="https://p.sda1.dev/20/58766b92c6273d7d31d4f6954d86aa18/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 3456#       发表于 2024-12-15 12:42
+
+@bpdne
+
+该学习前辈了 
+
+<img src="https://img.saraba1st.com/forum/202412/15/124201buff8aoie8q8wufn.jpg" referrerpolicy="no-referrer">
+
+<strong>Gezz3zxbYAAbWLg.jpg</strong> (111.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 12:42 上传
+
+
+*****
+
+####  阿萨德飞过去  
+##### 3457#       发表于 2024-12-15 12:44
+
+话说母鸡卡这么爱解谜，能不能每集op都变动下<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">都预留一年工期了，整点活
+
+*****
+
+####  skives10  
+##### 3458#       发表于 2024-12-15 12:47
+
+之前暗示了每集oped画面都值得关注吧
+

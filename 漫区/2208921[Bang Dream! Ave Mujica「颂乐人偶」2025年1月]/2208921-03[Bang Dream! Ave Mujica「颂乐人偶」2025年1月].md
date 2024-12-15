@@ -5339,3 +5339,24 @@ OP应该是镜内外两层？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">op和第一集结合起来感觉像祥子收拾完睦喵海的烂摊子后自个因为某件事也爆了失踪了，连锁反应导致之前稳着的初华一块炸
 
+
+*****
+
+####  庸necro  
+##### 3443#       发表于 2024-12-15 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66928413&amp;ptid=2208921" target="_blank">大泽瑠璃乃 发表于 2024-12-15 03:04</a>
+
+如果是剧中剧，那已经从人偶题材变成吸血鬼题材了，演的是边狱巴士第七章梦之终焉吗
+
+如果把意象拿过来用， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">人偶是睦子米，吸血鬼是祥，狼人是海铃，喵梦是猫妖，初华是弗兰肯斯坦
+
+
+*****
+
+####  fsfs_freeze  
+##### 3444#       发表于 2024-12-15 10:54
+
+现在感觉mujica真的破环了bang的世界观<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+

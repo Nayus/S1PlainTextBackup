@@ -2747,3 +2747,13 @@ T3奥伯龙+旧剑技能全开，旧剑第二发宝具+左1的宝具/旧剑自�
 
 叠C呆宝具可以6加成不换的，只不过C呆和汇呆配置得高一点，而且汇呆得满破礼装，可能还得满狂天赋树<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jackyhuang  
+##### 15461#       发表于 2024-12-15 17:09
+
+恭喜玉玉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+

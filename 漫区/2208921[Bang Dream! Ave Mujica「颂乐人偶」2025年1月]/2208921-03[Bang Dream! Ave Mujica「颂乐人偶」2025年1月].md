@@ -7312,3 +7312,26 @@ DAY2："ゲオスミン(Geosmin)"雨上がりの匂い，雨停后的味道
 
 【颂乐人偶：OP  1月2日起，每周四22:00 与日同步独家播出！】 [https://www.bilibili.com/bangumi/play/ep1212094](https://www.bilibili.com/bangumi/play/ep1212094)
 
+
+*****
+
+####  近月  
+##### 3635#       发表于 2024-12-15 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66933223&amp;ptid=2208921" target="_blank">1a不解释 发表于 2024-12-15 21:26</a>
+你说的不会是关系者席吧
+
+—— 来自 鹅球 v3.1.88.3</blockquote>
+我不知道啊，看你们都说应该是吧，我说怎么还能这么默契的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  仓鼠胖太  
+##### 3636#       发表于 2024-12-15 22:03
+
+ 本帖最后由 仓鼠胖太 于 2024-12-15 22:04 编辑 
+
+邦邦是2.5次元企划，手游+动画+真人三手抓，目前实装了能上台的乐队也就5个，分道扬镳不来往wsd以后办live、邦tv、广播、声优节目可咋安排，而且两队好几个声优都是响社的，从日程安排方便的角度来说wsd也不可能让动画玩一刀两断
+

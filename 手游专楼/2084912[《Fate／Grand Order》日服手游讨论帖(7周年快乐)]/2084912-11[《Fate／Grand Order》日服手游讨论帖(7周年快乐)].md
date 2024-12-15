@@ -2785,3 +2785,11 @@ T3奥伯龙+旧剑技能全开，旧剑第二发宝具+左1的宝具/旧剑自�
 
 这就是姐控
 
+
+*****
+
+####  khxooo  
+##### 15465#       发表于 2024-12-15 22:01
+
+可以可以，反正残渣都溢出了，龙鳞和粉都是两位数，住在90+了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

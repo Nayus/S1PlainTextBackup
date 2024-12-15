@@ -5760,3 +5760,41 @@ wsd疑似太想赚快钱了……你最好真的兜得住剧情<img src="https:/
 这下对标钢弹了</blockquote>
 对标钢弹好歹给个几十馆吧（
 
+
+*****
+
+####  skives10  
+##### 3488#       发表于 2024-12-15 13:44
+
+go的剧场版多少馆来着
+这16馆真有点抽象
+
+*****
+
+####  cherryjia12  
+##### 3489#       发表于 2024-12-15 13:45
+
+溜一条炒作狗@Bushiroad
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Mr.Giraffe| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  双菜  
+##### 3490#       发表于 2024-12-15 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66930257&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-15 13:44</a>
+go的剧场版多少馆来着
+这16馆真有点抽象</blockquote>
+go总集篇80馆左右
+

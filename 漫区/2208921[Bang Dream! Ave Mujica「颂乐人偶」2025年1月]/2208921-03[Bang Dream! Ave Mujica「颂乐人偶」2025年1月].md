@@ -6533,3 +6533,59 @@ wsd你真该死啊
 
 2024-12-15 19:14 上传
 
+
+*****
+
+####  黑夜落叶秋天  
+##### 3560#       发表于 2024-12-15 19:18
+
+还有18天 就可以看mujica了
+
+
+*****
+
+####  AveMujica  
+##### 3561#         楼主| 发表于 2024-12-15 19:20
+
+【MyGO!!!!!×Ave Mujica 合同LIVE  Title・Logo】 [https://www.bilibili.com/video/BV1xiqoYKE6s](https://www.bilibili.com/video/BV1xiqoYKE6s)
+
+<img src="https://img.saraba1st.com/forum/202412/15/192021ahk2o7or9dndcc3j.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="800" zoomfile="https://img.saraba1st.com/forum/202412/15/192021ahk2o7or9dndcc3j.jpg">
+
+<strong>df1f2f933288a9c101990691643e46f4ab64bf28.jpg</strong> (38.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 19:20 上传
+
+*****
+
+####  椎名真希  
+##### 3562#       发表于 2024-12-15 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66932096&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-15 18:58</a>
+
+刚看完live就看到这图，wsd逆大天了
+
+注意北海道这个地区，我没看懂这地区是直接播到第五集还是说一周一集只 ...</blockquote>
+一周一集
+
+估计是档期有冲突所以前面几集改个档期
+
+
+*****
+
+####  akiomn  
+##### 3563#       发表于 2024-12-15 19:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来还是一周一集啊，那没事了
+看看叔叔怎么给wsd收拾先行三集的烂摊子吧，可能叔叔看了也摆了，没想到最后还是变小丑了
+
+*****
+
+####  无证madam  
+##### 3564#       发表于 2024-12-15 19:27
+
+想起来其实隔壁闪彩动画也是线下提前播 甚至两季都是提前几个月把整部都放完
+
+不过这片一是剧本半原创半改编 二是这片质量基本nbcs<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -7731,3 +7731,41 @@ ppp 萝 蝶 ras mygo 鸡，即使不算管人团都是6个
 
 2024-12-16 01:06 上传
 
+
+*****
+
+####  NODY  
+##### 3673#       发表于 2024-12-16 01:18
+
+英文官推新的角色小卡片系列开始更新，今天是初华
+
+初华的效果器和音响（应该是）是第一次公开设定图吧，英文官网那边拿到的设定还挺多的
+
+<img src="https://img.saraba1st.com/forum/202412/16/011834cp0hi0vhpshrtc9o.jpg" referrerpolicy="no-referrer">
+
+<strong>Ge1N_qaawAAFGt9.jpg</strong> (326.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-16 01:18 上传
+
+
+*****
+
+####  wszweill  
+##### 3674#       发表于 2024-12-16 01:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66932406&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-15 06:42</a>
+
+绝交不会，毕竟还要进游戏，但是平行线也说的没错，一个银河战舰商业化一个业余过家家喝茶乐队，两个乐队 ...</blockquote>
+一堆同班同学呢，手游公式化剧情有啥难的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+
+手游编剧连mygo的 世界观都搞不明白，还能整明白母鸡卡世界观嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 3675#       发表于 2024-12-16 01:26
+
+初华这个效果器和音响的设定图估计是从mujica的设定集里面扣下来的，动画完结肯定有新设定集了
+

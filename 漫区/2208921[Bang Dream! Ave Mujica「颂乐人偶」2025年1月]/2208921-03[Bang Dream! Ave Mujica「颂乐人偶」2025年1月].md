@@ -7088,3 +7088,32 @@ op画面不知道会不会随着集数推进进行变动，不然到最后结局
 我觉得口球灯挺好的，不拿棒子更沉浸
 这次跟3rd一样，除了Ave Mujica之外全程场控
 
+
+*****
+
+####  半年  
+##### 3614#       发表于 2024-12-15 20:53
+
+<img src="https://img.saraba1st.com/forum/202412/15/205315mb088bumvqblvl6j.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20241215205224.jpg</strong> (134.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 20:53 上传
+
+<img src="https://img.saraba1st.com/forum/202412/15/205315m122x8128dz5fhqf.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20241215205027.jpg</strong> (24 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 20:53 上传
+
+*****
+
+####  ytttsuuuba  
+##### 3615#       发表于 2024-12-15 20:56
+
+高尾这身实在是显胖
+

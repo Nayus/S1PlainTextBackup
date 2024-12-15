@@ -520,3 +520,39 @@ shiro是个人啊<img src="https://static.saraba1st.com/image/smiley/face2017/00
 
 我不在乎<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  恶搞之王  
+##### 4635#       发表于 2024-12-15 20:45
+
+“我接受不了这种贴纸倒狗major亲自下场影响价格走势的剧情，对我的世界观冲击太大了”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kulanyee  
+##### 4636#       发表于 2024-12-15 20:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">马西西囤了自己的贴纸没
+
+*****
+
+####  heseran  
+##### 4637#       发表于 2024-12-15 20:48
+
+最后几个回合太精彩了
+
+*****
+
+####  Rainwedell  
+##### 4638#       发表于 2024-12-15 20:49
+
+这个决赛确实是近几年major上最精彩的决赛，最后几回合把把都拼到最后一个属于是燃尽了
+
+*****
+
+####  Eric_方歌阙  
+##### 4639#       发表于 2024-12-15 20:50
+
+今年最好看的沙二，最令人意外的田中宁宁，恭喜绿龙
+

@@ -12617,3 +12617,15 @@ VN留任不跑了
 
 居然还有个制作人访谈视频，韩国人啊……<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csolfans  
+##### 1239#       发表于 2024-12-15 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66932645&amp;ptid=2201887" target="_blank">cat1230 发表于 2024-12-15 20:16</a>
+居然还有个制作人访谈视频，韩国人啊……按鲤鱼的情况，不找国内不是找日本的更方便么 ...</blockquote>
+摩登天空找来的吧
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

@@ -7198,3 +7198,11 @@ OP不过是幻想时间，MYGO前10话已经告诉过我们了<img src="https://
 
 绝交？进pico就都老实了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  高规格ik  
+##### 3625#       发表于 2024-12-15 21:10
+
+看了op后越来越喜欢睦了，不得不说这种带有一点反差的精神病小女孩真是充满魅力啊，就类似于东方里的古明地恋，感觉很能吸引初中中二病小男生的样子
+

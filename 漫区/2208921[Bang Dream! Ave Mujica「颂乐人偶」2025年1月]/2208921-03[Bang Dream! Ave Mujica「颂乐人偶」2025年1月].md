@@ -5972,3 +5972,20 @@ go总集篇80馆左右
 去年三集连播看的生放送，听不懂几个字但第三集照样看的很感动。
 我无法想象假如去年go这么干，第三集我第一时间只能看别人文字传达的大致剧情走向，没法看具体音画配合会是多灾难的体验。
 
+
+*****
+
+####  skives10  
+##### 3511#       发表于 2024-12-15 15:02
+
+<img src="https://img.saraba1st.com/forum/202412/15/150240uy2deh8uehduhmeu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0754.jpeg</strong> (699.89 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-15 15:02 上传
+
+到达现场
+

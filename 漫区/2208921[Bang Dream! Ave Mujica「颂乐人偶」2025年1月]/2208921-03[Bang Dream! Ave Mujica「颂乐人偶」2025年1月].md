@@ -7117,3 +7117,84 @@ op画面不知道会不会随着集数推进进行变动，不然到最后结局
 
 高尾这身实在是显胖
 
+
+*****
+
+####  yanghuangu  
+##### 3616#       发表于 2024-12-15 20:56
+
+OP不过是幻想时间，MYGO前10话已经告诉过我们了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  近月  
+##### 3617#       发表于 2024-12-15 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66932949&amp;ptid=2208921" target="_blank">月島まりな 发表于 2024-12-15 20:45</a>
+我觉得口球灯挺好的，不拿棒子更沉浸
+这次跟3rd一样，除了Ave Mujica之外全程场控 ...</blockquote>
+是的，有时候打call打着打着都忘记看舞台了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。我印象左侧看台有一块区域很默契的全都只开腕带灯，星星点点的很美。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  PDQ4  
+##### 3618#       发表于 2024-12-15 20:58
+
+海铃那个笑和睦的笑还不一样，作为op里最开心的两个人
+
+睦是那种愉悦犯的笑
+
+海铃是那种崩溃后不知道露出什么表情只能大笑，正片说不定能看到海铃破大防
+
+只能说还好这是少女乐队番，不然要怀疑睦笑成这样，手上是不是沾人命了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 3619#       发表于 2024-12-15 20:58
+
+这长袍我都不知道有什么存在的意义
+想法倒是很好 复刻了0th到3rd 情怀拉满
+
+
+*****
+
+####  狮子咕  
+##### 3620#       发表于 2024-12-15 21:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是，高尾哪有这么胖啊，怎么拍出来的效果
+
+*****
+
+####  八佾舞于潭  
+##### 3621#       发表于 2024-12-15 21:01
+
+为什么不在国内视频网站搞付费超前点映呢，怎么总是见到这种热脸贴冷屁股的操作
+
+*****
+
+####  月島まりな  
+##### 3622#       发表于 2024-12-15 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66933027&amp;ptid=2208921" target="_blank">近月 发表于 2024-12-15 20:56</a>
+是的，有时候打call打着打着都忘记看舞台了。我印象左侧看台有一块区域很默契的全都只开腕带灯，星星点点 ...</blockquote>
+那一片是关系者席，全程坐着的，腕带灯是主办方送的。你要说好不好看吧那确实好看
+
+*****
+
+####  novalli  
+##### 3623#       发表于 2024-12-15 21:04
+
+原来初华的那个动作是被线牵着的啊，看偷跑太糊了没看到那几根线，只觉得这个丢下拨片的动作有点奇怪。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.94-alpha
+
+*****
+
+####  仓鼠胖太  
+##### 3624#       发表于 2024-12-15 21:05
+
+绝交？进pico就都老实了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

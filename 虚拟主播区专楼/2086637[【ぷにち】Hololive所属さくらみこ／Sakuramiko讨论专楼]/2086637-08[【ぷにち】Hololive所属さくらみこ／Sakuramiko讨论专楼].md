@@ -765,3 +765,32 @@ danime注册巨麻烦，很不厚道的直接去看corocorochannel的官方视�
 
 2024-12-15 17:50 上传
 
+
+*****
+
+####  holoan  
+##### 10424#         楼主| 发表于 2024-12-15 20:39
+
+<img src="https://img.saraba1st.com/forum/202412/15/203901m9sn0cg96g0hjn0n.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (34.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 20:39 上传
+
+*****
+
+####  rs5621  
+##### 10425#       发表于 2024-12-15 20:56
+
+<img src="https://img.saraba1st.com/forum/202412/15/205614no2pfhwcpc00e1gj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (219.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 20:56 上传
+
+@macropolis01
+

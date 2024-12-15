@@ -5549,3 +5549,83 @@ Twitter @oinonia
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  无证madam  
+##### 3462#       发表于 2024-12-15 13:04
+
+流媒体要还是一集一集播就有点难绷了
+
+*****
+
+####  LeonsCat  
+##### 3463#       发表于 2024-12-15 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66929787&amp;ptid=2208921" target="_blank">IWS2000 发表于 2024-12-15 12:37</a>
+
+Twitter @oinonia</blockquote>
+这是彻底坏掉了啊……
+
+*****
+
+####  丹德里恩  
+##### 3464#       发表于 2024-12-15 13:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这op好刺激啊，我最喜欢看漏油造假药了
+
+*****
+
+####  skives10  
+##### 3465#       发表于 2024-12-15 13:06
+
+太能炒作了wsd<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  挺好的  
+##### 3466#       发表于 2024-12-15 13:07
+
+wsd有点SB
+
+*****
+
+####  KLHgg  
+##### 3467#       发表于 2024-12-15 13:08
+
+每集op变一下或者中后期变化是有可能的，邦2季就是双op，鸡的op也是前所未有的精致
+
+可以大胆下判断吗
+
+
+*****
+
+####  NODY  
+##### 3468#       发表于 2024-12-15 13:12
+
+也就是说27号就能直接剧透到第三集了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 3469#       发表于 2024-12-15 13:13
+
+睦這麼瘋的一面只有祥子知道吧，好美味<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202412/15/131253adlfzd7lmmmbbxfz.jpg" referrerpolicy="no-referrer">
+
+<strong>006sCra7gy1hwlikc50gcj32qf1tm7wh.jpg</strong> (422.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 13:12 上传
+
+[https://weibo.com/5919695279/P4XJ755UX](https://weibo.com/5919695279/P4XJ755UX)
+
+*****
+
+####  skives10  
+##### 3470#       发表于 2024-12-15 13:13
+
+第三集要若叶睦视角了吗
+

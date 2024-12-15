@@ -6275,3 +6275,24 @@ Roselia(Guest):
 
 一想到说不定可能还有mc和后续情报公布，破防了
 
+
+*****
+
+####  NODY  
+##### 3537#       发表于 2024-12-15 18:26
+
+我怀疑现场要还原喵梦摘全员面具再唱op，剧透了所以一起掐了
+
+*****
+
+####  御景  
+##### 3538#       发表于 2024-12-15 18:29
+
+<img src="https://img.saraba1st.com/forum/202412/15/182928fpzgg69c1966tqrr.png" referrerpolicy="no-referrer">
+
+<strong>7270f17f09eefbf0f2a7c25fdea0844c.png</strong> (44.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 18:29 上传
+

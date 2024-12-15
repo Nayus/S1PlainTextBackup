@@ -2546,3 +2546,11 @@ SACD的话，随便买台搭载联发科MT8580处理器的蓝光播放器就行�
 
 所以《StSn》的制作组是偷偷捏了多少建模啊... 万南你真的不搞新的主机作么？
 
+
+*****
+
+####  信长的呕吐  
+##### 6784#       发表于 2024-12-15 18:34
+
+答案是给街机用的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

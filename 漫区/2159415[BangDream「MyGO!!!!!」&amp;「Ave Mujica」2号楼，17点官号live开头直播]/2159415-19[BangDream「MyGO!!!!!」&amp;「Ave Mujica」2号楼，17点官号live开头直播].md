@@ -291,3 +291,15 @@ one man早说啊，申请个邦邦live害大家期待那么久……
 
 <img src="https://img.saraba1st.com/forum/202412/15/163124s9e8e78z8w9e39n3.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CyDiablo  
+##### 26663#       发表于 2024-12-15 18:28
+
+鸡狗对邦标题公开
+<img src="https://p.sda1.dev/20/5554dac7fb454a52713f726165198beb/Image_163972989996388.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/4188683f3424282abf075e4a90bc6354/Image_163974663072696.png" referrerpolicy="no-referrer">
+
+这次直播断的也太果断了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

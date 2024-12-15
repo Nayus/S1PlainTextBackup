@@ -420,3 +420,19 @@ shiro是个人啊<img src="https://static.saraba1st.com/image/smiley/face2017/00
 
 看donk的镜头感觉意气风发啊，真的出道巅峰
 
+
+*****
+
+####  宝儿  
+##### 4622#       发表于 2024-12-15 20:13
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer"> 还有一局！
+
+
+*****
+
+####  宝儿  
+##### 4623#       发表于 2024-12-15 20:23
+
+无敌！
+

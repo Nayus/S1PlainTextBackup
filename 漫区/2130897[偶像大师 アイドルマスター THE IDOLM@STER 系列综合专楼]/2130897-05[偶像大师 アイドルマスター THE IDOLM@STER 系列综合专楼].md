@@ -2570,3 +2570,43 @@ SACD的话，随便买台搭载联发科MT8580处理器的蓝光播放器就行�
 
 难怪这两天没见到，合着在这边伏击各位P呢
 
+
+*****
+
+####  kangkangsama  
+##### 6786#       发表于 2024-12-15 20:19
+
+<img src="https://img.saraba1st.com/forum/202412/15/201902wl8zxzllnxdhhedn.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_7549.jpeg</strong> (299.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 20:19 上传
+
+可太想听这个版本的fighting my way了
+
+
+*****
+
+####  信长的呕吐  
+##### 6787#       发表于 2024-12-15 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66932673&amp;ptid=2130897" target="_blank">kangkangsama 发表于 2024-12-15 20:19</a>
+
+可太想听这个版本的fighting my way了</blockquote>
+[https://www.bilibili.com/video/B ... c44c994e2dfaa51c638](https://www.bilibili.com/video/BV1fmqoYoEKW?spm_id_from=333.788.recommend_more_video.0&amp;vd_source=deb31a9e1ed21c44c994e2dfaa51c638)
+
+有人切了
+
+*****
+
+####  kangkangsama  
+##### 6788#       发表于 2024-12-15 20:22
+
+<blockquote>信长的呕吐 发表于 2024-12-15 20:22
+https://www.bilibili.com/video/B ... c44c994e2dfaa51c638
+
+有人切了</blockquote>
+太感谢了
+

@@ -2211,3 +2211,11 @@ lltcg也开始宣发了
 
 不过怎么说呢，我认为这个规则还是有一定潜力的。接下来看官方卡这么出还有赛事这么组织了。
 
+
+*****
+
+####  makece  
+##### 182#       发表于 2024-12-15 20:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">GCG首个体验包的游戏体验只能说接近PTCG手游
+

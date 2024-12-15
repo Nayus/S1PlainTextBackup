@@ -12609,3 +12609,11 @@ VN留任不跑了
 🐟的中文EP全曲试听也出了</blockquote>
 韩国和欧美的作曲<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cat1230  
+##### 1238#       发表于 2024-12-15 20:16
+
+居然还有个制作人访谈视频，韩国人啊……<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

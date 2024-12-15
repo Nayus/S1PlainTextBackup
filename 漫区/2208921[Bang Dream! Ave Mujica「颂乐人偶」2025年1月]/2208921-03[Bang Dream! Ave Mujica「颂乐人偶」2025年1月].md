@@ -5376,3 +5376,67 @@ OP应该是镜内外两层？
 
 不完全对应，但我现在对制作组精神状态的想象就像轻音里小佐和想让在意的对象喜欢上自己的那段，开播前每隔一段时间当初的信息都越来越“狂野”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fufusako  
+##### 3447#       发表于 2024-12-15 11:29
+
+快上台了，大家吃点这个补充体力吧
+
+这是什么药啊祥子？
+
+维生素c
+
+*****
+
+####  skives  
+##### 3448#       发表于 2024-12-15 11:33
+
+<img src="https://img.saraba1st.com/forum/202412/15/113120l0qnyk7t0ye9c6cz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3988.jpeg</strong> (82.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 11:31 上传
+
+无可奈何带点宠溺感的喵梦
+
+<img src="https://img.saraba1st.com/forum/202412/15/113133vh7fbbo8yb8fyjoh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3989.jpeg</strong> (84.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 11:31 上传
+
+笑 兴奋到脸红的睦
+
+<img src="https://img.saraba1st.com/forum/202412/15/113136a973gho3o7gjz2d4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3990.jpeg</strong> (65.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 11:31 上传
+
+眯起眼睛笑的海铃
+
+感觉这三幕更像是解开心结之后的常态 也不扭曲
+
+
+*****
+
+####  圣玛扎诺番茄  
+##### 3449#       发表于 2024-12-15 11:34
+
+难以想象go团和鸡团对bang的画面，你俩真是一个世界观？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AvengerRideon  
+##### 3450#       发表于 2024-12-15 11:34
+
+这颜艺崩坏全是除了祥子的四人在镜世界里表现的，且是在开始操纵丝线后的演出里，可能只是祥子设计的舞台剧演出
+

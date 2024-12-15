@@ -5917,3 +5917,34 @@ go总集篇80馆左右
 
 感觉就是想钱，单纯炒热度为什么不学狗三级连播
 
+
+*****
+
+####  Redimercia  
+##### 3505#       发表于 2024-12-15 14:35
+
+ 本帖最后由 Redimercia 于 2024-12-15 14:38 编辑 
+
+只看过狗和少歌的动画，不懂就问这公司有那么穷吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以前的动画也是这么操作的吗
+
+
+*****
+
+####  鲍里斯  
+##### 3506#       发表于 2024-12-15 14:41
+
+往好处想是对故事极度自信，但对社区的坏影响不可估量
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  budong  
+##### 3507#       发表于 2024-12-15 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66930562&amp;ptid=2208921" target="_blank">Redimercia 发表于 2024-12-15 14:35</a>
+只看过狗和少歌的动画，不懂就问这公司有那么穷吗以前的动画也是这么操作的吗
+
+ ...</blockquote>
+我举个例子吧，鲁路修最新外传
+

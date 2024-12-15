@@ -2355,3 +2355,14 @@ woke game不会玩
 
 其实顽皮狗这种做一个新IP就要花个2~3亿美元成本的游戏工作室，对索尼来说如果不能全价卖个1000w以上，是明显亏的，只要这次失败一次，就很难得到日本高层的信任了
 
+
+*****
+
+####  zxtree  
+##### 229#       发表于 2024-12-15 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66929557&amp;ptid=2210380" target="_blank">我要写个惨字 发表于 2024-12-15 11:56</a>
+
+那我问你，那我问你，你男的女的？</blockquote>
+可能冤枉杯赛斯达了
+

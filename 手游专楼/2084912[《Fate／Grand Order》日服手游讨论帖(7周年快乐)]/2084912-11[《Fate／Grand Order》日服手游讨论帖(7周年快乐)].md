@@ -2609,3 +2609,26 @@ T3奥伯龙+旧剑技能全开，旧剑第二发宝具+左1的宝具/旧剑自�
 
 但是，一個禮裝都沒掉過...
 
+
+*****
+
+####  beer  
+##### 15449#       发表于 2024-12-15 08:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66928270&amp;ptid=2084912" target="_blank">eilot 发表于 2024-12-15 01:48</a>
+開到第9個箱
+
+但是，一個禮裝都沒掉過...</blockquote>
+我都刷差不多20池了也没有掉过
+
+*****
+
+####  beer  
+##### 15450#       发表于 2024-12-15 08:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66928270&amp;ptid=2084912" target="_blank">eilot 发表于 2024-12-15 01:48</a>
+開到第9個箱
+
+但是，一個禮裝都沒掉過...</blockquote>
+我都刷差不多20池了也没有掉过
+

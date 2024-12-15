@@ -312,3 +312,26 @@ Q娃直面死亡的一回，这集躲开了小麦下一集不知道会怎么说�
 
 第 45 集的 TVer 源（含日字）：magnet:?xt=urn:btih:f2cf472c1979ab07864575f8702070fad692d176
 
+
+*****
+
+####  jaewoongh_  
+##### 2661#       发表于 2024-12-15 08:11
+
+最后还是选择回避人与狼的种族矛盾，那你一开始写它干什么呢
+
+“想要建立朋友圈”属实给我气笑了，这集就不能带脑子看，不得不感叹成田是真牛逼
+
+*****
+
+####  李霞  
+##### 2662#       发表于 2024-12-15 08:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66928675&amp;ptid=2162354" target="_blank">jaewoongh_ 发表于 2024-12-15 08:11</a>
+最后还是选择回避人与狼的种族矛盾，那你一开始写它干什么呢
+
+“想要建立朋友圈”属实给我气笑了，这集就不 ...</blockquote>
+<img src="https://p.sda1.dev/20/1cbbfe9b480819b72f4ab742aef7756b/CMP_20241215081348173.jpg" referrerpolicy="no-referrer">
+
+“不也挺好吗”
+

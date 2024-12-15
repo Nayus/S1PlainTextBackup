@@ -7628,3 +7628,21 @@ op上线b站两小时播放量  150000
 
 只是没想到OP动画就敢做这么大胆<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  纯良水鬼  
+##### 3663#       发表于 2024-12-15 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66933444&amp;ptid=2208921" target="_blank">仓鼠胖太 发表于 2024-12-15 22:03</a>
+
+邦邦是2.5次元企划，手游+动画+真人三手抓，目前实装了能上台的乐队也就5个，分道扬镳不来往wsd以后办live ...</blockquote>
+ppp 萝 蝶 ras mygo 鸡，即使不算管人团都是6个
+
+*****
+
+####  Aendst  
+##### 3664#       发表于 2024-12-15 23:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">差点忘记了这个乐队的初登场是一个诡异的箱子和一个叼着usb泡在红色流体罐子里的骷髅头
+

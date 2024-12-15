@@ -2801,3 +2801,11 @@ T3奥伯龙+旧剑技能全开，旧剑第二发宝具+左1的宝具/旧剑自�
 
 46池+9，这次礼装掉率不错<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 15467#       发表于 2024-12-16 00:46
+
+四宝具刷了九十池真烦了 还是90+公主乱宰吧
+

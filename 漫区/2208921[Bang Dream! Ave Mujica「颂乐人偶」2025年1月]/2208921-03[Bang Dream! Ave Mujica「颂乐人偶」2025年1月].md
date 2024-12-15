@@ -5519,3 +5519,33 @@ Twitter @oinonia
 
 之前暗示了每集oped画面都值得关注吧
 
+
+*****
+
+####  AveMujica  
+##### 3459#         楼主| 发表于 2024-12-15 13:01
+
+<img src="https://img.saraba1st.com/forum/202412/15/130001vmfzvstjwbst44mt.png" referrerpolicy="no-referrer">
+
+<strong>{O1IORG[LAC2`5I)8EC)9F7.png</strong> (294.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 13:00 上传
+
+*****
+
+####  灼眼的夏娜酱  
+##### 3460#       发表于 2024-12-15 13:02
+
+真的假的，先行三集<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  月島まりな  
+##### 3461#       发表于 2024-12-15 13:03
+
+所以说3集连播还是要有的，既然炒作效果好为什么不用呢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

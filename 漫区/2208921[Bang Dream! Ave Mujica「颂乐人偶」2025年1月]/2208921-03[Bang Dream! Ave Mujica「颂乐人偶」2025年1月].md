@@ -6052,3 +6052,54 @@ Roselia(Guest):
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  skives10  
+##### 3517#       发表于 2024-12-15 15:38
+
+<img src="https://img.saraba1st.com/forum/202412/15/153803oj9m9az4uzl0mm90.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0766.jpeg</strong> (494.79 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-15 15:38 上传
+
+<img src="https://img.saraba1st.com/forum/202412/15/153804fd81dn0fdf6yf6fp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0764.jpeg</strong> (532.3 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-15 15:38 上传
+
+<img src="https://img.saraba1st.com/forum/202412/15/153804r2i4mxz78ujq2kqi.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0763.jpeg</strong> (552.49 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-15 15:38 上传
+
+<img src="https://img.saraba1st.com/forum/202412/15/153805sr1ri0o1syatz0i3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0758.jpeg</strong> (705.69 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-15 15:38 上传
+
+*****
+
+####  PDQ4  
+##### 3518#       发表于 2024-12-15 15:38
+
+超前点映看麻了，早知今日何必当初呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+硬压一年现在又急嚯嚯得要抬上来
+只有日本场的话不知道枪版能不能有<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

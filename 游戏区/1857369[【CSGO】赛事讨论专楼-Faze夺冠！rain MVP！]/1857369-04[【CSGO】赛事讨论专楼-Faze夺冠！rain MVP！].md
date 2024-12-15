@@ -335,3 +335,16 @@ uzi 主要是出道早，要是杰克不拿那个冠军，是真的三个哥哥�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ork  
+##### 4612#       发表于 2024-12-15 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66927569&amp;ptid=1857369" target="_blank">Rainwedell 发表于 2024-12-14 23:10</a>
+
+这仨一年出生，都是 98，还是更变态的
+
+—— 来自 S1Fun</blockquote>
+1997出生，上限亚军，决赛软脚，饭圈粉丝。他是?A.Niko B.Uzi C.ame
+

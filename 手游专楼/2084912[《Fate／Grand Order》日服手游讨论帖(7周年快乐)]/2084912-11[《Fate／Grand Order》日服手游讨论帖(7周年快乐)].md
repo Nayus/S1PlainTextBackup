@@ -2724,3 +2724,18 @@ T3奥伯龙+旧剑技能全开，旧剑第二发宝具+左1的宝具/旧剑自�
 —— 来自 鹅球 v3.3.92</blockquote>
 没有，刚说完就失败了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大十字紅朔  
+##### 15459#       发表于 2024-12-15 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66929125&amp;ptid=2084912" target="_blank">格林卡罗尔 发表于 2024-12-15 10:18</a>
+
+我去，原来星空肯拾笔了，该看了
+
+另外这次90++看到一个有意思的玩法是用cd服+被动5+水伊吹二技能让c呆开出 ...</blockquote>
+昨天更新的剧情里提到Byakhee了
+
+估计接下来会接降临者奏章
+

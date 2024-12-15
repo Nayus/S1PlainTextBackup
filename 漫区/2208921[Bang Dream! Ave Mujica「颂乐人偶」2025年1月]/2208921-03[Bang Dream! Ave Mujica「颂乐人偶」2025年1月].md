@@ -6193,3 +6193,19 @@ Roselia(Guest):
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">妈的现场在换舞台装置，不知道要干嘛
 动画现在还没放
 
+
+*****
+
+####  PDQ4  
+##### 3528#       发表于 2024-12-15 17:02
+
+好消息，换衣服了
+坏消息，穿的是4th的袍子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cherryjia12  
+##### 3529#       发表于 2024-12-15 17:06
+
+这新衣服<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

@@ -5849,3 +5849,42 @@ go总集篇80馆左右
 
 这还讨论个鸡毛，到时候直接退网了
 
+
+*****
+
+####  wzm96816  
+##### 3497#       发表于 2024-12-15 14:04
+
+对标隔壁高达了，也是自信前几集经费充足先去剧场版赚钱。
+
+*****
+
+####  akiomn  
+##### 3498#       发表于 2024-12-15 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66930390&amp;ptid=2208921" target="_blank">wzm96816 发表于 2024-12-15 14:04</a>
+对标隔壁高达了，也是自信前几集经费充足先去剧场版赚钱。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">错误的，高达什么ip，你邦什么ip？
+而且人家新高达可没wsd这样敢先冷藏个一年左右最后时刻拉出来狠狠炒热度
+
+*****
+
+####  狮子咕  
+##### 3499#       发表于 2024-12-15 14:07
+
+大喵老师现场揭面具的行为是武士道授意的，因此祥子也不能说什么（乐）
+
+*****
+
+####  rikaren  
+##### 3500#       发表于 2024-12-15 14:09
+
+1.13发表大会还说了会宣鸡动画情报着吧，怕不是4-6话先行上映的情报。
+
+*****
+
+####  jkl  
+##### 3501#       发表于 2024-12-15 14:10
+
+没事，不超过一天你就能在国内看到枪版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -2672,3 +2672,14 @@ T3奥伯龙+旧剑技能全开，旧剑第二发宝具+左1的宝具/旧剑自�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
 
+
+*****
+
+####  仰望神的括约肌  
+##### 15454#       发表于 2024-12-15 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66929709&amp;ptid=2084912" target="_blank">jackyhuang 发表于 2024-12-15 12:26</a>
+
+ストアの決済サーバーからの情報が正常に読み込めませんでした。 課金を行う場合は設定を見直ししてアプリ ...</blockquote>
+安卓的话 把Google Play卸了重装 ，没看到卸载的话找找应用信息里有没有类似 卸载更新 回退初始版本， 然后从别的地方找一个装上 IOS的不清楚
+

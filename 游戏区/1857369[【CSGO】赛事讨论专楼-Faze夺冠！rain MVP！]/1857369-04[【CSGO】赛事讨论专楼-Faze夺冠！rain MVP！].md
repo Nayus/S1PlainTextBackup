@@ -584,3 +584,13 @@ donk一年走得比niko十年还远
 
 马西西和驴carry了整场比赛，最后一把被战犯若子哥拿把咖喱杀了三个并且在最后的1V1斗牛中一枪爆头拿下带领队伍终结比赛获得冠军的人头，意难平啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fraseal  
+##### 4643#       发表于 2024-12-16 00:31
+
+坏消息：批超批弱粽➗全拉了
+
+好消息：服务器里绿龙两个donk
+

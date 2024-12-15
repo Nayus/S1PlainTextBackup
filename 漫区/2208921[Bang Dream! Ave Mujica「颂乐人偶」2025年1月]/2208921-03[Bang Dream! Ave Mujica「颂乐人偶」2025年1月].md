@@ -7403,3 +7403,101 @@ ppp萝蝶ras鸡狗梦限大是哪两个被除名了<img src="https://static.sara
 以后能不能永远不戴面具</blockquote>
 給喵夢多點關愛，助力她下次再把大家的面具都扔了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives10  
+##### 3645#       发表于 2024-12-15 22:27
+
+有些人真的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+现在看鸡内部能不能包饺子都不一定了 
+我甚至不确定能不能发几次不带玻璃渣的直球糖
+居然还在惦记史诗级大饺子
+动画把你饺子包完了 怎么骗你去看live
+
+*****
+
+####  半年  
+##### 3646#       发表于 2024-12-15 22:30
+
+<img src="https://img.saraba1st.com/forum/202412/15/223020o08zu84rtti88ftr.jpg" referrerpolicy="no-referrer">
+
+<strong>Ge2BMbTbAAAn6M9.jpg</strong> (290.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 22:30 上传
+
+[https://x.com/ssami0617/status/1868291476909904246/photo/1](https://x.com/ssami0617/status/1868291476909904246/photo/1)
+
+*****
+
+####  狮子咕  
+##### 3647#       发表于 2024-12-15 22:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结局分道扬镳，只有开live的时候聚齐，应该不会发生那种事的，对吧？
+
+*****
+
+####  星天观测  
+##### 3648#       发表于 2024-12-15 22:30
+
+滑坡鸡内部饺子倒是没必要，别忘了muji<strong>c</strong>a是光，而且高尾说结尾像以太的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  半年  
+##### 3649#       发表于 2024-12-15 22:31
+
+<img src="https://img.saraba1st.com/forum/202412/15/223112r2z6o245fuui9g62.jpg" referrerpolicy="no-referrer">
+
+<strong>Ge2E7osaAAE5G9b.jpg</strong> (224.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 22:31 上传
+
+[https://x.com/peso727/status/1868295585805357435/photo/1](https://x.com/peso727/status/1868295585805357435/photo/1)
+
+*****
+
+####  仓鼠胖太  
+##### 3650#       发表于 2024-12-15 22:31
+
+邦邦动画什么饺子是不当场包完的，搞个动画把两个新团关系闹裂开是放着钱不想赚吗
+
+*****
+
+####  akiomn  
+##### 3651#       发表于 2024-12-15 22:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">出息了，上热搜了
+
+85D57BB0-6155-49AC-B926-35A1D00A7BB9.jpeg
+(10.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 22:31 上传
+
+<img src="https://img.saraba1st.com/forum/202412/15/223143w6xlxistsu9aa2xu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  勿徊哉  
+##### 3652#       发表于 2024-12-15 22:33
+
+看了OP，是怎么从第一季的校园乐队番变成Another悬疑番的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+请问第二季质量有保证吗？我之前看砖楼讨论，独角兽是闹翻了吗？
+
+*****
+
+####  AvengerRideon  
+##### 3653#       发表于 2024-12-15 22:34
+
+op上线**两小时播放量 5000
+op上线b站两小时播放量  150000
+武士道：日本先行上映#1#2#3
+

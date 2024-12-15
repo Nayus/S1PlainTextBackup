@@ -12433,3 +12433,34 @@ nagi新曲倒不错，就是那段rap<img src="https://static.saraba1st.com/imag
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  ViyViy  
+##### 1217#       发表于 2024-12-15 16:06
+
+咋香音这么大惊小怪的，你可是东京爷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  新HGCG  
+##### 1218#       发表于 2024-12-15 16:07
+
+“吾蛮好！”
+
+*****
+
+####  离心  
+##### 1219#       发表于 2024-12-15 16:08
+
+ 本帖最后由 离心 于 2024-12-15 16:10 编辑 
+
+那可可确实是留日本的，第六集这点就是混过去了，冬毬果然劝vn留结丘了
+
+*****
+
+####  starring  
+##### 1220#       发表于 2024-12-15 16:09
+
+北京的大学的资料还在，可可也有可能一边上大学一边当偶像吧
+

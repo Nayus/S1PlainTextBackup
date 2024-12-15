@@ -6784,3 +6784,99 @@ wsd从来没有宣传过姐妹团，哪怕是连体B号也没说过
 
 b站官号上op了
 
+
+*****
+
+####  akiomn  
+##### 3585#       发表于 2024-12-15 20:07
+
+wsd：孩子们我早干过了！
+
+D05CC583-A47A-4F36-939D-D25590B0A899.jpeg
+(78.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 20:07 上传
+
+<img src="https://img.saraba1st.com/forum/202412/15/200722gac6ccc4hc0pkrk4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 3586#       发表于 2024-12-15 20:08
+
+ 本帖最后由 PDQ4 于 2024-12-15 20:09 编辑 
+
+换头像了，鸡腿的好日子要来临了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+image.png
+(91.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 20:08 上传
+
+<img src="https://img.saraba1st.com/forum/202412/15/200805weenjz6iiu3l6buw.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 3587#       发表于 2024-12-15 20:08
+
+<img src="https://img.saraba1st.com/forum/202412/15/200854oms4ssm444juijtm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0770.jpeg</strong> (210.39 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-15 20:08 上传
+
+
+*****
+
+####  御幸一也  
+##### 3588#       发表于 2024-12-15 20:11
+
+宣傳期……宣傳期來啦！<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202412/15/201056xdaeppprn94d9sy9.jpg" referrerpolicy="no-referrer">
+
+<strong>image.jpg</strong> (66.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 20:10 上传
+
+*****
+
+####  NODY  
+##### 3589#       发表于 2024-12-15 20:11
+
+待会看看高清版能不能看清水杯到底是黄蓝还是绿蓝
+
+*****
+
+####  近月  
+##### 3590#       发表于 2024-12-15 20:14
+
+现在的心情是对萝爹满满的感恩。真的是多亏了萝爹和母鸡卡前后脚live且互为guest才能把这么多观众动员来现场，也让鸡能在这么大的舞台上把这场动画开播前最重要的live的气氛引爆，交了一张完美的答卷<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  御幸一也  
+##### 3591#       发表于 2024-12-15 20:15
+
+藍黃吧<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202412/15/201452o9hahbz8eafal9bm.png" referrerpolicy="no-referrer">
+
+<strong>「KiLLKiSS」（TVアニメ「BanG Dream! Ave Mujica」オープニング映像） 1-24 screenshot.png</strong> (188.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 20:14 上传
+

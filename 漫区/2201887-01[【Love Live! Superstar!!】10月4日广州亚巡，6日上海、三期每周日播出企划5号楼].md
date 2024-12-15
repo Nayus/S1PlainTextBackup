@@ -12598,3 +12598,14 @@ VN留任不跑了
 🐟的中文EP全曲试听也出了</blockquote>
 第二首感觉还可以，第一首还是觉得怪
 
+
+*****
+
+####  靡宜  
+##### 1237#       发表于 2024-12-15 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66932369&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-12-15 19:35</a>
+
+🐟的中文EP全曲试听也出了</blockquote>
+韩国和欧美的作曲<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

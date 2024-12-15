@@ -2486,3 +2486,27 @@ SACD的话，随便买台搭载联发科MT8580处理器的蓝光播放器就行�
 
 （via [Twitter](https://twitter.com/nanarokushiki/status/1867785470538919973)）
 
+
+*****
+
+####  wfhtony  
+##### 6782#       发表于 2024-12-15 17:54
+
+今天的統計：
+
+<img src="https://img.saraba1st.com/forum/202412/15/175432x3mo40wojlr6a9ab.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-12-15-17h51m14s742.png</strong> (1.37 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 17:54 上传
+
+<img src="https://img.saraba1st.com/forum/202412/15/175431onwpzxwkp0o3ppiw.jpg" referrerpolicy="no-referrer">
+
+<strong>【生配信】アイマスchブース配信｜15時20分~.jpg</strong> (253.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 17:54 上传
+

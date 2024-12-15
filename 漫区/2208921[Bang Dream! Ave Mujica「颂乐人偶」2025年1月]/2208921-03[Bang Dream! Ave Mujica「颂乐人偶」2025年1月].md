@@ -7769,3 +7769,11 @@ ppp 萝 蝶 ras mygo 鸡，即使不算管人团都是6个
 
 初华这个效果器和音响的设定图估计是从mujica的设定集里面扣下来的，动画完结肯定有新设定集了
 
+
+*****
+
+####  NODY  
+##### 3676#       发表于 2024-12-16 01:52
+
+【killkiss  (看简介)】 [https://www.bilibili.com/video/BV1LoqfY8EWf](https://www.bilibili.com/video/BV1LoqfY8EWf)
+

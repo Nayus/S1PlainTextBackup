@@ -2335,3 +2335,15 @@ woke game不会玩
 
 今年tga含日量爆表啊 怎么连顽皮狗都来蹭一下
 
+
+*****
+
+####  月亮与五块钱  
+##### 227#       发表于 2024-12-15 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66919243&amp;ptid=2210380" target="_blank">huyangxinhn 发表于 2024-12-13 19:36</a>
+比起机器人带来的争议性话题，更应该担心的是顽皮狗的未来和顽皮狗新作暴死可能带来的索尼第一方单机口碑的 ...</blockquote>
+那不是好事吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

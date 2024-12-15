@@ -5459,3 +5459,14 @@ OP应该是镜内外两层？
 祥子在旋转木马消失 然后两个睦坐在旋转木马上 有说法吗</blockquote>
 总不能是搞了半天初华认识的到底是祥子还是睦都成问题了吧？
 
+
+*****
+
+####  hitori酱  
+##### 3453#       发表于 2024-12-15 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66928412&amp;ptid=2208921" target="_blank">NODY 发表于 2024-12-15 03:04</a>
+
+哦不对，还有一种可能性是幼祥经常去幼初华家里玩，所以初华家里也准备了她的水杯 ...</blockquote>
+有没有可能就是小时候和小祥一起用过的水杯，初华一直珍藏到现在<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+

@@ -2660,3 +2660,15 @@ T3奥伯龙+旧剑技能全开，旧剑第二发宝具+左1的宝具/旧剑自�
 
 2024-12-15 10:51 上传
 
+
+*****
+
+####  jackyhuang  
+##### 15453#       发表于 2024-12-15 12:26
+
+ストアの決済サーバーからの情報が正常に読み込めませんでした。 課金を行う場合は設定を見直ししてアプリケーションを再起動してください。
+
+氪金遇上这个了，怎么解决<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+

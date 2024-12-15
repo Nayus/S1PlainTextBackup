@@ -2701,3 +2701,26 @@ T3奥伯龙+旧剑技能全开，旧剑第二发宝具+左1的宝具/旧剑自�
 
 怖军对魔力到底有没有的？狂娜打了差不多5池每次都中，按说15%应该不中几次了吧
 
+
+*****
+
+####  ——啧  
+##### 15457#       发表于 2024-12-15 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66930698&amp;ptid=2084912" target="_blank">poor 发表于 2024-12-15 15:01</a>
+怖军对魔力到底有没有的？狂娜打了差不多5池每次都中，按说15%应该不中几次了吧 ...</blockquote>
+是不是上奥伯龙了，被动有成功率+10%<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+*****
+
+####  poor  
+##### 15458#       发表于 2024-12-15 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66930800&amp;ptid=2084912" target="_blank">——啧 发表于 2024-12-15 15:19</a>
+是不是上奥伯龙了，被动有成功率+10%
+
+—— 来自 鹅球 v3.3.92</blockquote>
+没有，刚说完就失败了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

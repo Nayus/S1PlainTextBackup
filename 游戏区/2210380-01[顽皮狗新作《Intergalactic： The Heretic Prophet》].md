@@ -2374,3 +2374,17 @@ woke game不会玩
 
 自己赚钱也没用，今年索尼爆了一个历史性的大雷，这窟窿要填几年去了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  亚瑟摩根  
+##### 231#       发表于 2024-12-15 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66929557&amp;ptid=2210380" target="_blank">我要写个惨字 发表于 2024-12-15 11:56</a>
+那我问你，那我问你，你男的女的？</blockquote>
+这个真几把尬黑了
+
+杯赛还能放右边？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -654,3 +654,11 @@ AppData\Roaming\Arrowhead\Helldivers2\shader_cache下的着色器文件删了重
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">有人见过这种情况吗
 
+
+*****
+
+####  Jyions  
+##### 5619#       发表于 2024-12-15 22:49
+
+PS5匹配时间长，容易掉线的问题。只要把跨平台游戏关了就是秒匹，连线也很稳定<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

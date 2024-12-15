@@ -7707,3 +7707,27 @@ ppp 萝 蝶 ras mygo 鸡，即使不算管人团都是6个
 
 之前是声优访谈说过年初就收音完成了，也基本符合春季完工的节点
 
+
+*****
+
+####  akiomn  
+##### 3671#       发表于 2024-12-16 01:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">歇了，明天还得赶飞机
+看叔叔这几天怎么收拾wsd的烂摊子，虽然我认为大概率装死到底
+
+*****
+
+####  NODY  
+##### 3672#       发表于 2024-12-16 01:07
+
+你邦出息了，A妈在live上帮鸡萝和明年的动画都做了宣传
+
+<img src="https://img.saraba1st.com/forum/202412/16/010641egf4rt8zf183ioxg.png" referrerpolicy="no-referrer">
+
+<strong>4E88996B111C0B650EBB717CA2C94DC5.png</strong> (29.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-16 01:06 上传
+

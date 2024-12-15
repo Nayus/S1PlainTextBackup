@@ -638,3 +638,19 @@ AppData\Roaming\Arrowhead\Helldivers2\shader_cache下的着色器文件删了重
 
 🌿了，新的踹门表情是TM有伤害的，穿丛林甲踹了队友一脚把队友秒了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madcow  
+##### 5618#       发表于 2024-12-15 21:33
+
+<img src="https://img.saraba1st.com/forum/202412/15/213253q4ag4sswsdnccqwq.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20241215213247.png</strong> (22.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 21:32 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">有人见过这种情况吗
+

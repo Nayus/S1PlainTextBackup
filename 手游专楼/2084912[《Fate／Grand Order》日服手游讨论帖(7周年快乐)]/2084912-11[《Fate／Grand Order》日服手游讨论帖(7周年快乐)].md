@@ -2775,3 +2775,13 @@ T3奥伯龙+旧剑技能全开，旧剑第二发宝具+左1的宝具/旧剑自�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然是90+，但50秒一把，好快，水伊吹14绊了该省着花了
 
+
+*****
+
+####  洛克萨斯  
+##### 15464#       发表于 2024-12-15 21:36
+
+在远处守护志度内的红A，强如鬼神<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+这就是姐控
+

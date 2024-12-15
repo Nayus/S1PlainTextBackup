@@ -7277,3 +7277,11 @@ wsd这种神人运营还真是独一份。之前只是觉得d4dj和三人相声�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  狮子咕  
+##### 3632#       发表于 2024-12-15 21:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实如果真的玩op大爆的话，怎么感觉祥子回大house的可能性现在激增了
+

@@ -7285,3 +7285,30 @@ wsd这种神人运营还真是独一份。之前只是觉得d4dj和三人相声�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实如果真的玩op大爆的话，怎么感觉祥子回大house的可能性现在激增了
 
+
+*****
+
+####  NODY  
+##### 3633#       发表于 2024-12-15 21:51
+
+合同live标题含义
+
+DAY1："ペトリコール(Petrichor)"雨の降り始めの匂い，刚开始下雨时的味道
+
+DAY2："ゲオスミン(Geosmin)"雨上がりの匂い，雨停后的味道
+
+<img src="https://img.saraba1st.com/forum/202412/15/214900xj5k71ny5ojokjm7.png" referrerpolicy="no-referrer">
+
+<strong>无标题00.png</strong> (63.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 21:49 上传
+
+*****
+
+####  AveMujica  
+##### 3634#         楼主| 发表于 2024-12-15 21:52
+
+【颂乐人偶：OP  1月2日起，每周四22:00 与日同步独家播出！】 [https://www.bilibili.com/bangumi/play/ep1212094](https://www.bilibili.com/bangumi/play/ep1212094)
+

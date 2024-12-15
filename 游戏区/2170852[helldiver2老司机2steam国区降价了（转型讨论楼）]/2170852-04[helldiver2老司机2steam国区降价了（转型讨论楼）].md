@@ -662,3 +662,13 @@ AppData\Roaming\Arrowhead\Helldivers2\shader_cache下的着色器文件删了重
 
 PS5匹配时间长，容易掉线的问题。只要把跨平台游戏关了就是秒匹，连线也很稳定<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ykyin09  
+##### 5620#       发表于 2024-12-15 23:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这反坦克炮台也太猛了，防守战化身88炮
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

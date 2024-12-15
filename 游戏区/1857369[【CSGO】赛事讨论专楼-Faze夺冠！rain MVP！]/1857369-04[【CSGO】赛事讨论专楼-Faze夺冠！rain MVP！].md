@@ -348,3 +348,18 @@ uzi 主要是出道早，要是杰克不拿那个冠军，是真的三个哥哥�
 —— 来自 S1Fun</blockquote>
 1997出生，上限亚军，决赛软脚，饭圈粉丝。他是?A.Niko B.Uzi C.ame
 
+
+*****
+
+####  泰坦失足  
+##### 4613#       发表于 2024-12-15 17:34
+
+不看也不玩CS，最多是抖音刷到时候偶尔看看这游戏到底咋回事。但就这样我都认识个Donk和相关的各种视频，什么donk打完美，donk被举报未成年直播。现在就冲着donk在看直播
+
+*****
+
+####  ispep  
+##### 4614#       发表于 2024-12-15 17:37
+
+卡托和Major都要是faze送的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

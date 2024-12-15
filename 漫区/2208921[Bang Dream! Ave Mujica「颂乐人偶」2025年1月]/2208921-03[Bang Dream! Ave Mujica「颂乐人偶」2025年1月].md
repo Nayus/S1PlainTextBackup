@@ -6103,3 +6103,11 @@ Roselia(Guest):
 硬压一年现在又急嚯嚯得要抬上来
 只有日本场的话不知道枪版能不能有<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  月島まりな  
+##### 3519#       发表于 2024-12-15 15:54
+
+现场坐得还挺满的，比想象中好
+

@@ -395,3 +395,20 @@ uzi 主要是出道早，要是杰克不拿那个冠军，是真的三个哥哥�
 
 shiro是个人啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  六道仙鱼  
+##### 4619#       发表于 2024-12-15 19:26
+
+沙二丕若能发挥吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+*****
+
+####  Fask  
+##### 4620#       发表于 2024-12-15 19:27
+
+批若要是不发挥沙二就寄了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

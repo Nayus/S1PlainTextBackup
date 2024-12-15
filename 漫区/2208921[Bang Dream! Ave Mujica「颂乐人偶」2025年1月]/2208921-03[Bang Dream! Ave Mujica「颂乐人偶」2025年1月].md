@@ -6589,3 +6589,62 @@ wsd你真该死啊
 
 不过这片一是剧本半原创半改编 二是这片质量基本nbcs<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  椎名真希  
+##### 3565#       发表于 2024-12-15 19:29
+
+之前第一集先行在日本的声音不是很大，1-3场映大概率也是满场老中
+
+多忍20天吧
+
+*****
+
+####  asion617  
+##### 3566#       发表于 2024-12-15 19:30
+
+没懂为什么节奏那么大, tv动画又不会连着爆三集剧情推进很多, 再加上最后又是默认包饺子的
+
+*****
+
+####  skives10  
+##### 3567#       发表于 2024-12-15 19:30
+
+到时候老中一篇repo
+谁都不用看了
+至少要把456先行放映冲没吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 3568#       发表于 2024-12-15 19:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">這對邦標題 嗯
+
+
+*****
+
+####  akiomn  
+##### 3569#       发表于 2024-12-15 19:34
+
+对邦标题的意思，两团未来肯定是平行线
+羊姐之前在哪首歌就提过鸡狗团是平行但不会交集的关系来着
+
+*****
+
+####  pipaopo  
+##### 3570#       发表于 2024-12-15 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66932321&amp;ptid=2208921" target="_blank">asion617 发表于 2024-12-15 19:30</a>
+
+没懂为什么节奏那么大, tv动画又不会连着爆三集剧情推进很多, 再加上最后又是默认包饺子的 ...</blockquote>
+讨论环境的问题，线下的讨论3集之后的内容了，线上的讨论第一集，怎么讨论
+
+*****
+
+####  NODY  
+##### 3571#       发表于 2024-12-15 19:36
+
+结尾真鸡狗绝交是吧
+

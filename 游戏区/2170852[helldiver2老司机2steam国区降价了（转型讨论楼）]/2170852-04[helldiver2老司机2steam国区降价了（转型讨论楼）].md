@@ -672,3 +672,19 @@ PS5匹配时间长，容易掉线的问题。只要把跨平台游戏关了就�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  LrGsite  
+##### 5621#       发表于 2024-12-16 00:06
+
+<img src="https://img.saraba1st.com/forum/202412/16/000613cotefetrrrzzer4e.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (353.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-16 00:06 上传
+
+光能这边的AA也太猛了,只要一开穿梭机来一个杀一个,这都叠起来了
+

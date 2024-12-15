@@ -594,3 +594,13 @@ AppData\Roaming\Arrowhead\Helldivers2\shader_cache下的着色器文件删了重
 
 试了一圈目前感觉就弩+实弹狗+重机枪能用，玩来玩去永远离不开高贵的爆炸。另外三角机甲的定位跟强袭和无畏是同一档，后续光能更新到完全体不出意外会跟初代一样是最坐牢的阵营。
 
+
+*****
+
+####  jy000129  
+##### 5613#       发表于 2024-12-15 08:07
+
+不知道什么时候上BOSS战
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

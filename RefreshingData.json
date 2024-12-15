@@ -720,10 +720,10 @@
     "update": false
   },
   "2035792": {
-    "totalreply": 10859,
+    "totalreply": 10860,
     "title": "[『死神 千年血战篇』2022年10月]",
     "newtitle": "[『死神 千年血战篇』第三季度「相克谭」2024年]",
-    "lastedit": 1734219728,
+    "lastedit": 1734221648,
     "category": "漫区",
     "active": true,
     "update": false
@@ -7524,10 +7524,10 @@
     "update": false
   },
   "2170852": {
-    "totalreply": 5612,
+    "totalreply": 5613,
     "title": "[helldiver2老司机2steam国区降价了（转型讨论楼）]",
     "newtitle": "[helldiver2老司机2steam国区降价了（转型讨论楼）]",
-    "lastedit": 1734219609,
+    "lastedit": 1734221648,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -8631,10 +8631,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 110690,
+    "totalreply": 110691,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1734210006,
+    "lastedit": 1734221529,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -16277,7 +16277,7 @@
     "newtitle": "[【百合／NTR】「岩见树代子」《因为今天女友不在》]",
     "lastedit": 1733962235,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2210217": {
@@ -17658,10 +17658,10 @@
     "update": false
   },
   "2210512": {
-    "totalreply": 56,
+    "totalreply": 57,
     "title": "[当年有大儒为蒙元辩经吗？]",
     "newtitle": "[当年有大儒为蒙元辩经吗？]",
-    "lastedit": 1734220928,
+    "lastedit": 1734221531,
     "category": "外野",
     "active": true,
     "update": false
@@ -17780,6 +17780,15 @@
     "newtitle": "[（有奖品）2024年度你心中排名前五的游戏]",
     "lastedit": 1734207728,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2187276": {
+    "totalreply": 55,
+    "title": "[全网最二次元MMO最终幻想14暨明星制作人吉田直树真爱楼]",
+    "newtitle": "[全网最二次元MMO最终幻想14暨明星制作人吉田直树真爱楼]",
+    "lastedit": 1734221531,
+    "category": "手游战斗",
     "active": true,
     "update": false
   }

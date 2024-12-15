@@ -335,3 +335,16 @@ Q娃直面死亡的一回，这集躲开了小麦下一集不知道会怎么说�
 
 “不也挺好吗”
 
+
+*****
+
+####  月夜凝雪  
+##### 2663#       发表于 2024-12-15 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66928675&amp;ptid=2162354" target="_blank">jaewoongh_ 发表于 2024-12-15 08:11</a>
+
+最后还是选择回避人与狼的种族矛盾，那你一开始写它干什么呢
+
+“想要建立朋友圈”属实给我气笑了，这集就不 ...</blockquote>
+另外两个不好说，这个从一开始就这个风格没什么问题，虎眼从出场开始就只是想找人玩
+

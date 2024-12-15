@@ -5440,3 +5440,11 @@ OP应该是镜内外两层？
 
 这颜艺崩坏全是除了祥子的四人在镜世界里表现的，且是在开始操纵丝线后的演出里，可能只是祥子设计的舞台剧演出
 
+
+*****
+
+####  skives10  
+##### 3451#       发表于 2024-12-15 11:41
+
+祥子在旋转木马消失 然后两个睦坐在旋转木马上 有说法吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

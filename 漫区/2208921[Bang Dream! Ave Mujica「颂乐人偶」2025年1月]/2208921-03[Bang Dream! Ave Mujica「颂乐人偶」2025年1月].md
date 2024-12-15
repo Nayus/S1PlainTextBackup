@@ -7796,3 +7796,14 @@ ppp 萝 蝶 ras mygo 鸡，即使不算管人团都是6个
 
 我觉得wsd和邦邦需要的是第二个mygo，可是鸡提前上映的操作让我觉得wsd并不怎么想
 
+
+*****
+
+####  近月  
+##### 3679#       发表于 2024-12-16 07:37
+
+传说中的宣传期要来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+什么时候能把广播节目端上来<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

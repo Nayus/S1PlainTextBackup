@@ -2809,3 +2809,32 @@ T3奥伯龙+旧剑技能全开，旧剑第二发宝具+左1的宝具/旧剑自�
 
 四宝具刷了九十池真烦了 还是90+公主乱宰吧
 
+
+*****
+
+####  khxooo  
+##### 15468#       发表于 2024-12-15 22:01
+
+可以可以，反正残渣都溢出了，龙鳞和粉都是两位数，住在90+了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 15469#       发表于 2024-12-15 23:25
+
+46池+9，这次礼装掉率不错<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 15470#       发表于 2024-12-16 00:46
+
+四宝具刷了九十池真烦了 还是90+公主乱宰吧
+
+*****
+
+####  希望之花  
+##### 15471#       发表于 2024-12-16 06:03
+
+90+拿大小班杨速通<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

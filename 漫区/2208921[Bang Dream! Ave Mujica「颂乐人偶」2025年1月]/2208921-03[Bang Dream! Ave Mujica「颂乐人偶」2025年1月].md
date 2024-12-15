@@ -7777,3 +7777,14 @@ ppp 萝 蝶 ras mygo 鸡，即使不算管人团都是6个
 
 【killkiss  (看简介)】 [https://www.bilibili.com/video/BV1LoqfY8EWf](https://www.bilibili.com/video/BV1LoqfY8EWf)
 
+
+*****
+
+####  御幸一也  
+##### 3677#       发表于 2024-12-16 03:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66934282&amp;ptid=2208921" target="_blank">NODY 发表于 2024-12-16 01:07</a>
+
+你邦出息了，A妈在live上帮鸡萝和明年的动画都做了宣传</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">也拉太多人宣傳了吧這次
+

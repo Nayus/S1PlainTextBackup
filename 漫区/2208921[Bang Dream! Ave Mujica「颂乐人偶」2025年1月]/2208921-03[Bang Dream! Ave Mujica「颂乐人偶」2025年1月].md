@@ -5360,3 +5360,11 @@ OP应该是镜内外两层？
 
 现在感觉mujica真的破环了bang的世界观<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  LeonsCat  
+##### 3445#       发表于 2024-12-15 11:10
+
+祥子在OP里用的是古典钢琴而不是键盘，也挺有意思的。
+

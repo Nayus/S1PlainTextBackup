@@ -2466,3 +2466,23 @@ SACD的话，随便买台搭载联发科MT8580处理器的蓝光播放器就行�
 
 2024-12-14 22:56 上传
 
+
+*****
+
+####  wfhtony  
+##### 6781#       发表于 2024-12-15 11:08
+
+ 本帖最后由 wfhtony 于 2024-12-15 11:10 编辑 
+
+<img src="https://img.saraba1st.com/forum/202412/15/110736en7oy622thzth2n0.png" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 1267.png</strong> (542.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-15 11:07 上传
+
+500mlGB SSD.
+
+（via [Twitter](https://twitter.com/nanarokushiki/status/1867785470538919973)）
+

@@ -12557,3 +12557,14 @@ VN留任不跑了
 
 可可把大学宣传册带日本干啥啊留纪念吗？气氛都烘托到这了别告诉我她还准备回去三个月冲刺高考……
 
+
+*****
+
+####  ViyViy  
+##### 1233#       发表于 2024-12-15 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66931478&amp;ptid=2201887" target="_blank">ruffian 发表于 2024-12-15 17:12</a>
+
+可可把大学宣传册带日本干啥啊留纪念吗？气氛都烘托到这了别告诉我她还准备回去……要不要考虑一下跟恋恋读 ...</blockquote>
+你看下面垫着白色的纸袋，很明显是寄过来的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

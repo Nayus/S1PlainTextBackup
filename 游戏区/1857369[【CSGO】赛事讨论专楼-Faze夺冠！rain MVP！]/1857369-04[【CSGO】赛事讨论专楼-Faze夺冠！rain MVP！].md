@@ -556,3 +556,23 @@ shiro是个人啊<img src="https://static.saraba1st.com/image/smiley/face2017/00
 
 今年最好看的沙二，最令人意外的田中宁宁，恭喜绿龙
 
+
+*****
+
+####  奈纪亚美  
+##### 4640#       发表于 2024-12-15 21:21
+
+马西西的高光都贡献给了FAZE的沙二
+donk一年走得比niko十年还远
+
+
+*****
+
+####  stplum  
+##### 4641#       发表于 2024-12-15 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66932946&amp;ptid=1857369" target="_blank">恶搞之王 发表于 2024-12-15 20:45</a>
+
+“我接受不了这种贴纸倒狗major亲自下场影响价格走势的剧情，对我的世界观冲击太大了” ...</blockquote>
+建议以后的major奖金都用贴纸的形式发放，这样说不定每次都能看到选手们像mxx这次一样玩命了
+

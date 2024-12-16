@@ -9226,3 +9226,135 @@ wsd你终于清醒了
 这时候去采访制作组 发现结果人家含糊其辞  ...</blockquote>
 不是你是不是个傻逼啊？灯这个也能跟mtf放一起了？云个东西直接在这里犯指导瘾干啥呢？还有你自己不知道你以前说过的话有多傻逼吗，也好意思说别人蹭，你自己不就是个最大的蹭子玩意？
 
+
+*****
+
+####  skives10  
+##### 3801#       发表于 2024-12-16 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66941686&amp;ptid=2208921" target="_blank">zzhh0131 发表于 2024-12-16 21:46</a>
+不是你是不是个傻逼啊？灯这个也能跟mtf放一起了？云个东西直接在这里犯指导瘾干啥呢？还有你自己不知道 ...</blockquote>
+看出来了 你是来蹭狂躁症的<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zzhh0131  
+##### 3802#       发表于 2024-12-16 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66941703&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-16 21:47</a>
+
+看出来了 你是来蹭狂躁症的</blockquote>
+傻逼东西，我见人说人话，你这种云狗蹭子玩意只配全程脏话交流
+
+*****
+
+####  sauron.j  
+##### 3803#       发表于 2024-12-16 21:49
+
+海玲什么日本超人，白天上学，放学当雇佣兵+mujica演出+mujica事务
+
+*****
+
+####  上条仁美  
+##### 3804#       发表于 2024-12-16 21:50
+
+ 本帖最后由 上条仁美 于 2024-12-16 22:51 编辑 
+<blockquote>Aendst 发表于 2024-12-16 22:41
+知道你喜欢智力缺陷了邦多利可能不太适合你</blockquote>
+
+首先又不喜欢(也不讨厌)灯这个角色，其次我也不觉得灯智障，而且你自己都说了有高功能自闭症这种，我就是说是动画有故意去表现阿斯伯格特质的镜头，不知道你哪能得出我喜欢智障美少女这种结论
+
+*****
+
+####  skives10  
+##### 3805#       发表于 2024-12-16 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66941717&amp;ptid=2208921" target="_blank">zzhh0131 发表于 2024-12-16 21:49</a>
+傻逼东西，我见人说人话，你这种云狗蹭子玩意只配全程脏话交流</blockquote>
+行了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">以后不提烤了 
+烤批的追杀能力我认可了
+
+*****
+
+####  Aendst  
+##### 3806#       发表于 2024-12-16 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66941732&amp;ptid=2208921" target="_blank">上条仁美 发表于 2024-12-16 21:50</a>
+
+首先又不喜欢(也不讨厌)灯这个角色，其次我也不觉得灯智障，而且你自己都说了有高功能自闭症这种，我就是 ...</blockquote>
+学者症候群是有智力缺陷的，这个话题我已经科普支教太多了，就此为止
+
+
+*****
+
+####  zzhh0131  
+##### 3807#       发表于 2024-12-16 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66941740&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-16 21:50</a>
+
+行了以后不提烤了 
+
+烤批的追杀能力我认可了</blockquote>
+谁是烤批了，我不是在骂你这个云烤批吗？你这种云狗随便蹭点东西在楼里过过指导瘾了。烤那个不是蹭子玩意吗，你把它和灯这个放一起，不是显得你就是个纯蹭子吗
+
+*****
+
+####  zzhh0131  
+##### 3808#       发表于 2024-12-16 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66941740&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-16 21:50</a>
+
+行了以后不提烤了 
+
+烤批的追杀能力我认可了</blockquote>
+你们烤批想说什么东西随便，麻烦不要把别人拖下水
+
+*****
+
+####  NODY  
+##### 3809#       发表于 2024-12-16 21:55
+
+[https://anime.bang-dream.com/avemujica/special/present/1](https://anime.bang-dream.com/avemujica/special/present/1)
+
+<img src="https://img.saraba1st.com/forum/202412/16/215529kkync6cwtrkc5kke.jpg" referrerpolicy="no-referrer">
+
+<strong>AM_icon_03.jpg</strong> (73.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-16 21:55 上传
+
+<img src="https://img.saraba1st.com/forum/202412/16/215543bp09kynpd2a3a00t.jpg" referrerpolicy="no-referrer">
+
+<strong>AM_icon_04.jpg</strong> (74.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-16 21:55 上传
+
+<img src="https://img.saraba1st.com/forum/202412/16/215549rg0o52v0bj2cbjj5.jpg" referrerpolicy="no-referrer">
+
+<strong>AM_icon_05.jpg</strong> (81.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-16 21:55 上传
+
+AM_icon_01.jpg
+(78.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-16 21:54 上传
+
+<img src="https://img.saraba1st.com/forum/202412/16/215455deydewyndmo5zn12.jpg" referrerpolicy="no-referrer">
+
+AM_icon_02.jpg
+(76.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-16 21:55 上传
+
+<img src="https://img.saraba1st.com/forum/202412/16/215502xxrc7t277rrjbzz7.jpg" referrerpolicy="no-referrer">
+

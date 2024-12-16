@@ -8267,3 +8267,39 @@ uisk.jpg
 
 <img src="https://img.saraba1st.com/forum/202412/16/165501oejyajxxsuaxxsfj.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  相坂君  
+##### 3715#       发表于 2024-12-16 17:00
+
+<img src="https://img.saraba1st.com/forum/202412/16/165935wts2z20oc55xrrno.jpg" referrerpolicy="no-referrer">
+
+<strong>mujica.jpg</strong> (490.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-16 16:59 上传
+
+[https://x.com/KirinoRui/status/1868288793033494803](https://x.com/KirinoRui/status/1868288793033494803)
+
+画师老师在这，真的很帅！<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 3716#       发表于 2024-12-16 17:02
+
+killkiss法人特典图已出
+
+<img src="https://img.saraba1st.com/forum/202412/16/170251a99yxdxckyk2fmkj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0784.jpeg</strong> (474.39 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-16 17:02 上传
+
+https://bang-dream.com/discographies/3885
+

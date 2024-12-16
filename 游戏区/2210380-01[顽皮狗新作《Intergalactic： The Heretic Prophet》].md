@@ -2409,3 +2409,11 @@ woke game不会玩
 The story is set in an alternative universe ...</blockquote>
 宗教啊……我怀疑尼尔又要把他的犹太教私货加进去了
 
+
+*****
+
+####  飞侠小黑  
+##### 234#       发表于 2024-12-16 10:07
+
+我很少在游戏发售前就看空一个游戏，但是顽皮狗这个新游戏。。。还是褒姒吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

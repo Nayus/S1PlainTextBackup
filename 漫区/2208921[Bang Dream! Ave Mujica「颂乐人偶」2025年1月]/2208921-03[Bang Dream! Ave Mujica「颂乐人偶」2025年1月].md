@@ -7890,3 +7890,16 @@ ppp 萝 蝶 ras mygo 鸡，即使不算管人团都是6个
 
 DEEP DARK FANTASY
 
+
+*****
+
+####  ads147147  
+##### 3689#       发表于 2024-12-16 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66933719&amp;ptid=2208921" target="_blank">L-JoeW 发表于 2024-12-15 22:50</a>
+
+自从游戏王大师规则的动画下线后很久没看到过这么正经的颜艺了
+
+另外想问一下，看过前作的宅友说前几作没有 ...</blockquote>
+高尾在g8片场也要有不错的演艺啊，只是还没到那么不错的程度。。。
+

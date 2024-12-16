@@ -1067,3 +1067,16 @@ MIT 学联做出回应了
 
 看完帖子还觉得他这么说没问题的得考虑下自己的问题了
 
+
+*****
+
+####  banrendacha  
+##### 94#       发表于 2024-12-17 01:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66940334&amp;ptid=2210744" target="_blank">mengsu 发表于 2024-12-16 18:35</a>
+
+中国人没为白皮流过血，也没给白皮放过血，被人认为是不可理喻的世界边缘人群也是正常的。
+
+不用急，很快就 ...</blockquote>
+流过血也放过血，也就是49年后没了
+

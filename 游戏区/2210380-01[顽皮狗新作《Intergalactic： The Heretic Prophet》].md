@@ -2417,3 +2417,14 @@ The story is set in an alternative universe ...</blockquote>
 
 我很少在游戏发售前就看空一个游戏，但是顽皮狗这个新游戏。。。还是褒姒吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  飞侠小黑  
+##### 235#       发表于 2024-12-16 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66919122&amp;ptid=2210380" target="_blank">ナルバレック 发表于 2024-12-13 19:16</a>
+
+红迪感觉没ERA左，ERA为星鸣哭丧的一大堆...</blockquote>
+ERA上已经把冯骥喷成爱哭的巨婴了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

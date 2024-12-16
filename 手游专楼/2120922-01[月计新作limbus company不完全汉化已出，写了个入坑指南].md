@@ -66,3 +66,11 @@
 
 —— 来自 OnePlus PHB110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  xiongxingyu  
+##### 1023#       发表于 2024-12-17 00:33
+
+刚刚打通7-36，搞了个初始号，玩了大半个月，算是把四号线之外的东西都搞定了。打老唐之前还查了半天攻略，结果发现如果上血唐单挑的话根本就是全程剧情演出战啊，第一阶段卖血把混乱条清了以后后面根本脚打，老唐的血宴全被小唐吃了，被动完全叠不起来，小唐身上还一堆特殊ubff，结果攻防等级被吊起来锤，一个炫酷红币大招打下来一串0和1，和剧情形成了鲜明的反差<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

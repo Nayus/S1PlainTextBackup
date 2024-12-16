@@ -7919,3 +7919,11 @@ DEEP DARK FANTASY
 <img src="https://p.sda1.dev/20/b4051114826b6a0722e3af8e140416d1/IMG_F9E96C29A9C5932764642D2FDC792859.jpeg" referrerpolicy="no-referrer">
 后藤绿和独角兽啊（）
 
+
+*****
+
+####  挺好的  
+##### 3692#       发表于 2024-12-16 12:10
+
+双人脚本少见
+

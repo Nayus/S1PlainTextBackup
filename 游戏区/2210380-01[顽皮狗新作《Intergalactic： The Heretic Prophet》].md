@@ -2469,3 +2469,18 @@ ERA上已经把冯骥喷成爱哭的巨婴了<img src="https://static.saraba1st.
 
 1000%褒姒
 
+
+*****
+
+####  mimighost  
+##### 241#       发表于 2024-12-16 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66935772&amp;ptid=2210380" target="_blank">飞侠小黑 发表于 2024-12-16 10:15</a>
+
+ERA上已经把冯骥喷成爱哭的巨婴了</blockquote>
+微博那帖子？
+
+我读了几遍都没读出巨婴在哪里，有啥好喷的，输了不爽不是很正常么
+
+我觉得era那群人在整个反woke的大战里面当卢瑟当太久，终于有个地方让他们“赢”一把了，就一定要把这个奶嘴咬碎
+

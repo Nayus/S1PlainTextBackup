@@ -12700,3 +12700,13 @@ Screenshot_2024-12-16-00-42-39-303_tv.danmaku.bili.jpg
 
 2024-12-16 10:33 上传
 
+
+*****
+
+####  Totokei  
+##### 1246#       发表于 2024-12-16 23:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这季剧情质量上来之后就发现了歌和pv都是短板，明明前戏有一种...snowhala或者水2大赛回的感觉，然后到了歌就不大行了
+
+为了对比翻了一下前辈对标的每季最后的歌发现甚至有一个前辈是ppt集合<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

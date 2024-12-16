@@ -9527,3 +9527,11 @@ AM_icon_02.jpg
 
 wsd真是打算给角色设定精神病的话会让其他人花式吹这个能力牛逼吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cxj649  
+##### 3824#       发表于 2024-12-16 23:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">二次元类似“开挂 病症”最多的是 超忆症
+

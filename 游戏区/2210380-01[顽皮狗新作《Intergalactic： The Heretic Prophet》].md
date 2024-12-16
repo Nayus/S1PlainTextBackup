@@ -2578,3 +2578,16 @@ TLOU游戏本身偏向各种僵尸片精彩剪辑的拼接，结果如今回流�
 TLOU游戏本身偏向各种僵尸片精彩剪辑的拼接，结果如今回流拍成剧集居然在那年还能大杀四方，这简直…  ...</blockquote>
 国内春晚也从创造互联网段子到抄互联网段子了，主流娱乐行业退化这方面，东西方有共性<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mimighost  
+##### 250#       发表于 2024-12-16 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66939972&amp;ptid=2210380" target="_blank">C.W.Nimitz 发表于 2024-12-16 17:42</a>
+
+好莱坞没了，欧美（美国）娱乐产业也就完了，好莱坞是他们的天，天之外没有天 ...</blockquote>
+好莱坞残留的那点儿影响力少得可怜，米国年轻人喜欢好莱坞的可能还没喜欢anime的多
+
+你往里面塞再多的好莱坞演员也多卖不了几份游戏
+

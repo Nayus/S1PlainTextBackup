@@ -2428,3 +2428,18 @@ The story is set in an alternative universe ...</blockquote>
 红迪感觉没ERA左，ERA为星鸣哭丧的一大堆...</blockquote>
 ERA上已经把冯骥喷成爱哭的巨婴了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tyauto  
+##### 236#       发表于 2024-12-16 10:30
+
+只就是之前纵容美2的福报，尼尔大仙一步步试探的结果，以后给玩家巴黎奥运开幕式那种群魔乱舞也不要奇怪
+
+*****
+
+####  Kenjin  
+##### 237#       发表于 2024-12-16 10:33
+
+被乔尔夫恶心过一次就决定了，绝不会再买有尼尔参与的游戏
+

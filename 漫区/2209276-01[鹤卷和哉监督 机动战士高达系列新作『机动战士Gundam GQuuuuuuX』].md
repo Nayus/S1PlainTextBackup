@@ -15111,3 +15111,13 @@ Screen Shot 2024-12-13 at 3.33.14 PM.png
 
 有啥能聊的吗？
 
+
+*****
+
+####  PascalLefèvre  
+##### 1422#       发表于 2024-12-16 16:33
+
+确实没啥聊的了，之前水魔也是等七月份第零集释出才开始疯狂盖楼，只能等剧场版了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -9571,3 +9571,47 @@ https://x.com/slug10000/status/1868670896678027603?s=46&amp;t=IZGx0N13SOtHALpwG0
 我就贴这，自己对着找，还是那句，官方肯定不会官宣偶像美少女也会拉屎，但不代表二次元美少女不会拉屎，更 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得学者综合征以及二次元最多开挂的“精神疾病”超忆症之类，你们到底表达是 她有 神经病 然后歧视她？还是在证明什么？
 
+
+*****
+
+####  akiomn  
+##### 3827#       发表于 2024-12-16 23:36
+
+ 本帖最后由 akiomn 于 2024-12-16 23:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66942310&amp;ptid=2208921" target="_blank">cxj649 发表于 2024-12-16 23:31</a>
+
+我觉得学者综合征以及二次元最多的开挂的“精神疾病”超忆症之类，你们到底表达是 她有 神经病 然后歧视她 ...</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没啥好证明的，这种事情自己能分清二三次元就行，我不认为灯和睦是精神疾病，我也相信wsd不会给角色盖章是精神疾病，角色被盖章是精神病这种事我不懂哪里可以自豪的。哇哦她有缺陷太棒了？我只能说神经病
+
+说实话这种非要证明角色是精神病本来就很无聊，把三次元套到二次元，那二刺螈里日常断臂断手算啥呢？放到现实里直接痛到当场晕厥了
+
+*****
+
+####  ShikiM  
+##### 3828#       发表于 2024-12-16 23:37
+
+<img src="https://img.saraba1st.com/forum/202412/16/233716pawrjzryayaqya3k.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8569.jpeg</strong> (23.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-16 23:37 上传
+
+要来了？
+
+*****
+
+####  星天观测  
+##### 3829#       发表于 2024-12-16 23:40
+
+啊？鸡吗？
+
+*****
+
+####  akiomn  
+##### 3830#       发表于 2024-12-16 23:41
+
+不过这个时间申请，下周四邦tv官宣吗？不过都十二月末了，这是要赶在过年前来吗？
+

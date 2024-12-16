@@ -698,3 +698,14 @@ PS5匹配时间长，容易掉线的问题。只要把跨平台游戏关了就�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">电棍光州小曲的二创也太多了
 [https://www.bilibili.com/video/BV1fHBjYjECz](https://www.bilibili.com/video/BV1fHBjYjECz)
 
+
+*****
+
+####  xinfengj  
+##### 5623#       发表于 2024-12-16 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66934015&amp;ptid=2170852" target="_blank">LrGsite 发表于 2024-12-16 00:06</a>
+
+光能这边的AA也太猛了,只要一开穿梭机来一个杀一个,这都叠起来了</blockquote>
+在城里开了防空导弹之后要时刻注意头顶，拉警报之后一不留神就会被飞船砸死<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

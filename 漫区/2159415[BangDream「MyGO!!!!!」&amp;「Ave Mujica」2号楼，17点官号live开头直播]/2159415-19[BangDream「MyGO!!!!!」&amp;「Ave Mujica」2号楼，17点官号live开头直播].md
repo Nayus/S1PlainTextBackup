@@ -548,3 +548,13 @@ Roselia 2025.02上海场批文，staff申报人数创新高
 https://tieba.baidu.com/p/933389 ... 805378 ...</blockquote>
 现场听完很感动<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  showerlee  
+##### 26676#       发表于 2024-12-16 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66935474&amp;ptid=2159415" target="_blank">showerlee 发表于 2024-12-16 09:49</a>
+现场听完很感动mygo和mujica中间我记得还说了管人团来着。结果一觉醒来印象最深的是怕死怕累那里卡壳了两 ...</blockquote>
+还有介绍到ave mujica的时候，场区bgm刚好到初华的那句ようこそave mujicaの世界へ。不知道有没有人录到这应景的时刻
+

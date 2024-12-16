@@ -26,3 +26,13 @@
 
 （2号线的包也太原汁原味了吧）
 
+
+*****
+
+####  wcorvo  
+##### 1021#       发表于 2024-12-16 14:12
+
+血魔全家桶凑齐了，主线卡第五章了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+是不是无脑把血魔全拉起来打主线会轻松点
+

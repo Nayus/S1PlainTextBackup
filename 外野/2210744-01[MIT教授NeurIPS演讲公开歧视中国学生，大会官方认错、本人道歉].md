@@ -1101,3 +1101,13 @@ MIT 学联做出回应了
 MIT 学联做出回应了</blockquote>
 用了smear这个词还算准确
 
+
+*****
+
+####  YG111  
+##### 97#       发表于 2024-12-17 06:17
+
+在种族隔离废除前的美国成长起来的老白人 是种族主义者基本是标配。
+
+表面不说 心里的底层逻辑时而就没藏住不是<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -8570,3 +8570,35 @@ wsd你终于清醒了
 
 2024-12-16 18:09 上传
 
+
+*****
+
+####  akiomn  
+##### 3741#       发表于 2024-12-16 18:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我回去看了下mygo的mujica部分，初华对甜甜圈的称呼是“真奈”
+对没见面多久的睦称呼是“小睦”，演出结束后第一时间还给睦递水，至于对祥子的称呼都知道是啥
+甜甜圈你要不要反思下自己什么情况，居然能让初华说来mujica转换下心情这种话
+
+*****
+
+####  狮子咕  
+##### 3742#       发表于 2024-12-16 18:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来有个漏油们似乎没注意的点，开头的扑克牌场景里，睦头人面具的手，是唯一一个不是对称，而是直接握住了日常睦的手的，感觉双重人格论更真了……（你真不是恐怖动画吗）
+
+<img src="https://img.saraba1st.com/forum/202412/16/181832qwzp331l2qep2zue.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (41.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-16 18:18 上传
+
+*****
+
+####  杂灰  
+##### 3743#       发表于 2024-12-16 18:22
+
+睦头握着的是剑吗
+

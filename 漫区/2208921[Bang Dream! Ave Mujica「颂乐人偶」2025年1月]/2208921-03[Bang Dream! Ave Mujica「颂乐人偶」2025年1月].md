@@ -8979,3 +8979,53 @@ wsd你终于清醒了
 
 如果真把op里镜内那一幕当成真实的，鸡团四个全都有精神病，但可能吗？
 
+
+*****
+
+####  Aendst  
+##### 3778#       发表于 2024-12-16 20:56
+
+真想盖章至少要请个专业指导顾问来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+很显然做音乐动画的不至于去花心思搞这个，更多的是一种抽象成文化要素的东西而已，不是病症
+
+*****
+
+####  上条仁美  
+##### 3779#       发表于 2024-12-16 20:57
+
+<blockquote>akiomn 发表于 2024-12-16 21:39
+不然呢，你要这么觉得灯有精神疾病就去叫官方给加上，顺便我建议你再让官方把蝶团的小白也加上精神疾病， ...</blockquote>
+动画都特意给你画出从厕所出来关门的特写镜头，还给背景放了冲水声了，还认为美少女只是去从身上喷排出草莓味的粉色烟我只能说你高兴信就好
+
+*****
+
+####  akiomn  
+##### 3780#       发表于 2024-12-16 20:58
+
+ 本帖最后由 akiomn 于 2024-12-16 21:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66941336&amp;ptid=2208921" target="_blank">上条仁美 发表于 2024-12-16 20:57</a>
+
+动画都特意给你画出从厕所出来关门的特写镜头，还给背景放了冲水声了，还认为美少女只是去从身上喷排出草 ...</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我还是老话，你觉得灯有精神病，但官方根本不会认你的话去给灯盖章，而别的观众也不会认可你说的灯有精神病，因为大伙都很清楚什么是二次元什么是三次元
+
+把三次元的东西套到二次元里去本身就是一件很蠢的事
+
+*****
+
+####  skives10  
+##### 3781#       发表于 2024-12-16 21:00
+
+这就是日本人爱蹭 观众真的会当真的具体案例
+
+
+*****
+
+####  Aendst  
+##### 3782#       发表于 2024-12-16 21:02
+
+很难说观众当真是不是想显摆一下自己很懂，然后实际上在翻大车<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+自闭症有很多是有智力缺陷问题的，急着给纸片人诊断这个我不明白是什么心态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

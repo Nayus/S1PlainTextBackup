@@ -7935,3 +7935,14 @@ DEEP DARK FANTASY
 
 又要解锁什么新姿势了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  MASKA-1  
+##### 3694#       发表于 2024-12-16 12:30
+
+做了个OP替换小视频<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+【这可能是Ave Mujica的OP 但这是Ave Mujica的不太可能-哔哩哔哩】 [https://b23.tv/SJC3Q2p](https://b23.tv/SJC3Q2p)
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

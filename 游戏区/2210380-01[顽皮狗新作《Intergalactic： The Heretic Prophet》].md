@@ -2502,3 +2502,22 @@ ERA上已经把冯骥喷成爱哭的巨婴了</blockquote>
 红迪感觉没ERA左，ERA为星鸣哭丧的一大堆...</blockquote>
 ERA好像是觉醒人自留地，说错LGBT人性别会被禁言那种
 
+
+*****
+
+####  lilisipis  
+##### 244#       发表于 2024-12-16 17:18
+
+<blockquote>赤井稻妻 发表于 2024-12-16 16:07
+ERA好像是觉醒人自留地，说错LGBT人性别会被禁言那种</blockquote>
+
+era彩虹头像的都一大把
+
+<img src="https://img.saraba1st.com/forum/202412/16/171838ydi3xayydasbbavk.jpg" referrerpolicy="no-referrer">
+
+<strong>1000003583.jpg</strong> (78.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-16 17:18 上传
+

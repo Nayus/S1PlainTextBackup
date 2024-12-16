@@ -8378,3 +8378,103 @@ wsd你终于清醒了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卧槽，P5风格都来了，牛大了
 看了眼节约还没发花篮，你就继续吃吧
 
+
+*****
+
+####  御幸一也  
+##### 3724#       发表于 2024-12-16 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66939713&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-16 17:09</a>
+
+卧槽，P5风格都来了，牛大了
+
+看了眼节约还没发花篮，算了你就继续吃吧</blockquote>
+研究了好久的遊戲UI，學P5風學到頭皮發麻。<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+不過還是小畫家給力，圖的上色要畫出那個風格更加難
+
+請關注新鮮ave推小畫家<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+[https://x.com/KirinoRui](https://x.com/KirinoRui)
+
+*****
+
+####  Aendst  
+##### 3725#       发表于 2024-12-16 17:15
+
+ 本帖最后由 Aendst 于 2024-12-16 17:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66933167&amp;ptid=2208921" target="_blank">假面骑士3号 发表于 2024-12-15 21:17</a>
+
+想看被soyo一次次伤害心灵的睦头人黑化把soyo绑架去地下室当⭐💢啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">哇，好酷炫的回血盾
+
+就是怎么好像加分的都不太讨论内容，好多生面孔啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+[https://www.saraba1st.com/2b/thread-2210691-1-1.html](https://www.saraba1st.com/2b/thread-2210691-1-1.html)
+
+原来是走廊摇人，那没事了，我不好说谁比较难看
+
+别的无所谓，但是能不能聊一下内容啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好不容易新情报这么多
+
+是在做什么呢这是，团建？
+
+我很好奇-10w鹅是怎么做到的
+
+*****
+
+####  御幸一也  
+##### 3726#       发表于 2024-12-16 17:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">都走廊搖人了，讓讓他
+
+*****
+
+####  星天观测  
+##### 3727#       发表于 2024-12-16 17:20
+
+这次初回特典扑克应该也是根据店铺对应角色的吧，不会要搞随机吧<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 3728#       发表于 2024-12-16 17:20
+
+走廊摇人不是很符合鸡狗圈现在的环境嘛，反哺不到动画和企划上的热度才是主流<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 3729#       发表于 2024-12-16 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66939791&amp;ptid=2208921" target="_blank">星天观测 发表于 2024-12-16 17:20</a>
+这次初回特典扑克应该也是根据店铺对应角色的吧，不会要搞随机吧</blockquote>
+是随机的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 3730#       发表于 2024-12-16 17:21
+
+确实是随机，这个就是每次买cd会有的角色卡片
+
+<img src="https://img.saraba1st.com/forum/202412/16/172101qd7eg76pwdie7oer.png" referrerpolicy="no-referrer">
+
+<strong>无标题.png</strong> (166.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-16 17:21 上传
+
+*****
+
+####  PDQ4  
+##### 3731#       发表于 2024-12-16 17:21
+
+按照之前情况看，这个扑克应该也是随机的，量大总能搞到的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 3732#       发表于 2024-12-16 17:23
+
+坏了啊，我就准备订一张初华特，看来只能准备找人换一下了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

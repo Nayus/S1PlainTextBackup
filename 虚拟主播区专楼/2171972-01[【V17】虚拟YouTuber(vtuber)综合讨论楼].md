@@ -814,3 +814,11 @@ GTA6从主机到PC再到OL再到MOD化 怕是有很多人毕业都玩不到
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">涨得最多的是个医生，而医生的游戏性上完全没花心思全靠在职业系统外整活
 
+
+*****
+
+####  poipanchao  
+##### 969#       发表于 2024-12-16 17:24
+
+医生是toko？那不还是匪牛逼
+

@@ -7815,3 +7815,39 @@ ppp 萝 蝶 ras mygo 鸡，即使不算管人团都是6个
 
 剧情里🐔的词曲编是不是祥子一手操办的，高一学生写这么疯批的歌词<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  前方暴雨预警  
+##### 3681#       发表于 2024-12-16 08:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66934906&amp;ptid=2208921" target="_blank">ml1642879 发表于 2024-12-16 08:27</a>
+
+剧情里🐔的词曲编是不是祥子一手操办的，高一学生写这么疯批的歌词</blockquote>
+那你可能找错疯批是谁了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png">
+
+第一集会展示词曲分工的
+
+*****
+
+####  ml1642879  
+##### 3682#       发表于 2024-12-16 08:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66935016&amp;ptid=2208921" target="_blank">前方暴雨预警 发表于 2024-12-16 08:47</a>
+那你可能找错疯批是谁了
+
+第一集会展示词曲分工的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好吧，不过除了大喵也都是高一学生啊
+
+
+*****
+
+####  rushsong  
+##### 3683#       发表于 2024-12-16 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66934906&amp;ptid=2208921" target="_blank">ml1642879 发表于 2024-12-16 08:27</a>
+剧情里🐔的词曲编是不是祥子一手操办的，高一学生写这么疯批的歌词</blockquote>
+曲编是祥子，词是初华做的
+
+—— 来自 vivo V2183A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

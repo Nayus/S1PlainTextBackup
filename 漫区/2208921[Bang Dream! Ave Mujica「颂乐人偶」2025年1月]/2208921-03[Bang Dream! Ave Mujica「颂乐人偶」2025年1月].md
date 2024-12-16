@@ -8032,3 +8032,31 @@ op反复出现的 现实--镜像 对应结构。
 下午mggm在副会场发表讲话的时候我刚好在下面吃牛排盖饭，有人用gpt翻译了部分内容，下面我把缺的少数内容 ...</blockquote>
 这下泪目了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 3699#       发表于 2024-12-16 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66937485&amp;ptid=2208921" target="_blank">NODY 发表于 2024-12-16 12:58</a>
+下午mggm在副会场发表讲话的时候我刚好在下面吃牛排盖饭，有人用gpt翻译了部分内容，下面我把缺的少数内容 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然门票或许价格稍高了一些，但我们一直怀着真诚的心，尽力通过演唱会、商品以及服务来回报大家。如果大家有任何意见或建议，请务必联系公司的用户支持部门
+
+反手来个1-3先行回报是吧
+
+*****
+
+####  金属化反射装甲  
+##### 3700#       发表于 2024-12-16 13:53
+
+假大空的口号快端下去吧，这两天的操作下来像反而是个赚快钱烂炒的<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 3701#       发表于 2024-12-16 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66937485&amp;ptid=2208921" target="_blank">NODY 发表于 2024-12-16 12:58</a>
+ 下午mggm在副会场发表讲话的时候我刚好在下面吃牛排盖饭，有人用gpt翻译了部分内容，下面我把缺的少数内容 ...</blockquote>
+别奶了别奶了，害怕了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

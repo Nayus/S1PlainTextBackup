@@ -580,3 +580,39 @@ media lab 怎么奇葩了？ 详细说说？</blockquote>
 
 只能说歧视华人是美国社会主流共识，这种学术会议上也就是华人占了半壁江山才激起一点声浪反响。
 
+
+*****
+
+####  yoki42  
+##### 50#       发表于 2024-12-16 15:09
+
+看后面问答环节的说法，这老师应该提到了不止一个不良行为的案例，但是唯独标明这个案例是中国人，那其实就是说本来所有案例都想标，但是仔细一想都标出来感觉扛不住舆论，中国人像是软柿子那就捏你了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+*****
+
+####  燕山雪  
+##### 51#       发表于 2024-12-16 15:09
+
+<img src="https://img.saraba1st.com/forum/202412/16/150759zl7uemnlu7aloezk.jpg" referrerpolicy="no-referrer">
+
+<strong>1000006481.jpg</strong> (250.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-16 15:07 上传
+
+还有高华主动跳出来作证“我们中国大学就是学术不端”
+
+*****
+
+####  荻花题叶  
+##### 52#       发表于 2024-12-16 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66937973&amp;ptid=2210744" target="_blank">darkerray 发表于 2024-12-16 14:02</a>
+如果这是人家亲身体会的事情为什么不能实话实说就行？政治正确只会让人越来越虚伪怯懦 ...</blockquote>
+我说了一堆傻逼，然后特意讲了一下：其中某个傻逼来自NGA。你说呢？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

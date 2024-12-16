@@ -379,3 +379,24 @@ Q娃直面死亡的一回，这集躲开了小麦下一集不知道会怎么说�
 
 汪Q我的概括基本可以定为“就这”了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leleq  
+##### 2667#       发表于 2024-12-15 23:03
+
+果然这集避开了小麦的问题，
+
+汪Q我的概括基本可以定为“就这”了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  用户名1  
+##### 2668#       发表于 2024-12-16 19:58
+
+这集给我看乐了，成田大妈你真的知道自己在写什么吗
+梳理一下就是，虎目的人设是仅剩的三只狼之一，性格活泼贪玩。表面目的是狼群被人类灭亡所以要消灭人类。真正的理由是渴望再次和伙伴一起玩。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">种族→伙伴→友情，你们写的时候考虑过这些欲望的厚度是能对等的吗。
+还不如换过来写：和q娃玩耍→回想起伙伴心生愧疚→开战战败净化。哦不对，这样写的话就会变成虎目回，想想这集本质上还是属于彩羽回。果然汪q的反派还是太方便了。
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

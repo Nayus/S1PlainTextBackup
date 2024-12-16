@@ -1111,3 +1111,26 @@ MIT 学联做出回应了</blockquote>
 
 表面不说 心里的底层逻辑时而就没藏住不是<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AraTurambar  
+##### 98#       发表于 2024-12-17 07:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66942857&amp;ptid=2210744" target="_blank">wangyu210000 发表于 2024-12-17 01:40</a>
+
+...为啥？</blockquote>
+除了有一个MIT牌子之外，下略。
+
+之前就出过好几次重大丑闻了，拿了爱泼斯坦的钱差点被摘牌的。
+
+奇闻轶事不可胜数。
+
+
+*****
+
+####  毒菇  
+##### 99#       发表于 2024-12-17 07:47
+
+洋人到底是怎么养出跑得这么快的狗的，太厉害了，不服不行，恐怕以后就靠这个对抗东大的机械狗了
+

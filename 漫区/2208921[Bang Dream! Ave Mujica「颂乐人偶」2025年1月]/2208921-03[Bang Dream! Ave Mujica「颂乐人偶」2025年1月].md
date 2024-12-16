@@ -9658,3 +9658,69 @@ https://x.com/slug10000/status/1868670896678027603?s=46&amp;t=IZGx0N13SOtHALpwG0
 
 这玩意加纸片人头上是有什么好处吗
 
+
+*****
+
+####  月島まりな  
+##### 3834#       发表于 2024-12-16 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66942350&amp;ptid=2208921" target="_blank">ShikiM 发表于 2024-12-16 23:37</a>
+
+要来了？</blockquote>
+一眼p图 你搬之前不能去上海[一网通办](https://zwdt.sh.gov.cn/govPortals/appr/deptEvaluationIndex?dept_code=SHLYSH)看一眼吗
+
+*****
+
+####  akiomn  
+##### 3835#       发表于 2024-12-16 23:56
+
+算了那个4th追加是假的，去查了下没有
+[https://zwdt.sh.gov.cn/govPortal ... 65342000122104002A2](https://zwdt.sh.gov.cn/govPortals/appr/itemEvaluationIndex?itemId=ab858b42-65c5-4d56-b716-dcb3ea583876&amp;adminCode=SHLYSH&amp;itemCode=11310000MB2F3065342000122104002A2)
+
+*****
+
+####  skives10  
+##### 3836#       发表于 2024-12-16 23:58
+
+草 为什么要p这种图啊<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 3837#       发表于 2024-12-17 00:00
+
+看麻了，泥漏在干什么，赛博看诊是什么风潮吗，合着原来也是百度看病的受众
+
+对着纸片人分析精神病史脑子没问题吗？我以为在看什么二次元大学生大作业
+
+家族史遗传史有吗，具体病程有吗，纸片人家长知道吗？给你几个镜头硬靠就觉得病上了？
+
+看诊都要求必须线下，更别说初诊，制作组知道自己写了个精神病吗，医学方面的咨询怎么不写在STAFF表里
+
+天天灯有ASD，你怎么不觉得那个标准硬套猫也有，你怎么不觉得猫有ASD
+
+不懂的东西能不能别随便百度点诊断标准和临床症状就扔出来笃定说就是这个
+
+谁家教出来这么下诊断，就算水平参差不齐对着纸片人发癫是不是有点太闲了
+
+这么笃定小心以后疑病症，少把脑补当现实
+
+病还搞不清楚混在一起讲，双重人格是因为本身日本二次元就把这个当成一种萌点在写，是可控可随时切换的，谁家严肃写多重人格这么写
+
+还有经典精分和解离性人格障碍分不清
+
+真看红温了
+
+
+*****
+
+####  上条仁美  
+##### 3838#       发表于 2024-12-17 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66942310&amp;ptid=2208921" target="_blank">cxj649 发表于 2024-12-17 00:31</a>
+
+我觉得学者综合征以及二次元最多的开挂的“精神疾病”超忆症之类，你们到底表达是 她有 神经病 然后歧视她 ...</blockquote>
+描写自闭症患者或者从自闭症患者描写的作品又不少，通常着重描写的点就是“跟其他人感受的世界不一样”，要不要看ED的词第一句是什么。看到有这个属性就认为就是在歧视在骂她，还有说这是不好的所以wsd肯定不会加入到底谁先入为主的在歧视。
+
+本来mygo就是以灯为主角的故事，有又这个属性不影响，反而更有利于成长故事展开，提到就应激属实是歧视习惯了。
+

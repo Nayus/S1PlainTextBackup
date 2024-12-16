@@ -811,3 +811,27 @@ https://mp.weixin.qq.com/s/JpIzc_llmrDnVKmXWtKfmg
 https://mp.weixin.qq.com/s/JpIzc_llmrDnVKmXWtKfm ...</blockquote>
 笑死，她应得的
 
+
+*****
+
+####  林无德  
+##### 72#       发表于 2024-12-16 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66938774&amp;ptid=2210744" target="_blank">yeo 发表于 2024-12-16 15:30</a>
+
+朋友圈大佬发的，邀请她参加个论坛啥的，她回了个这个
+
+https://mp.weixin.qq.com/s/JpIzc_llmrDnVKmXWtKfm ...</blockquote>
+难绷，确实只能说个6<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不论智商高低，人们总能找到适合自己的地摊文学
+
+*****
+
+####  AraTurambar  
+##### 73#       发表于 2024-12-16 16:03
+
+<blockquote>wangyu210000 发表于 2024-12-16 15:43
+你在说啥？</blockquote>
+MIT Media Lab=复旦大学中国研究院
+

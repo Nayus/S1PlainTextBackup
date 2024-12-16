@@ -2661,3 +2661,27 @@ https://www.economist.com/briefing/2024/09/19/america-is-becoming-less-woke
 
 果然是不撞南墙不回头的大仙背
 
+
+*****
+
+####  Ny  
+##### 257#       发表于 2024-12-17 05:05
+
+<img src="https://img.saraba1st.com/forum/202412/17/050059epf3d77za6ofr3fp.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>111.webp</strong> (166.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-17 05:00 上传
+
+<img src="https://img.saraba1st.com/forum/202412/17/050059ny1wsylm4vygns2r.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>222.webp</strong> (122.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-17 05:00 上传
+
+2024年了, 大家对以色列的印象跟TLOU2的发售时的2020年也已经完全不同了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

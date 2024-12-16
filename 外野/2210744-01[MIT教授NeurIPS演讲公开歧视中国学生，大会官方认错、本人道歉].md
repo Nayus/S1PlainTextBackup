@@ -1090,3 +1090,14 @@ MIT 学联做出回应了
 
  AI封神榜上这个畜生应该排“情感酵母”？
 
+
+*****
+
+####  StaticAnalysis  
+##### 96#       发表于 2024-12-17 04:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66942861&amp;ptid=2210744" target="_blank">wangyu210000 发表于 2024-12-17 01:42</a>
+
+MIT 学联做出回应了</blockquote>
+用了smear这个词还算准确
+

@@ -668,3 +668,17 @@ GDC很可能是动物井 pk 小丑牌<img src="https://static.saraba1st.com/imag
 —— 来自 Xiaomi 24069RA21C, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 当然值得学习，市面上做fps的那个不想从cod学东西的
 
+
+*****
+
+####  陈乔恩  
+##### 61#       发表于 2024-12-16 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66941040&amp;ptid=2210743" target="_blank">dbyboy 发表于 2024-12-16 20:11</a>
+有没有可能黑猴在3a垃圾里都不算最出色的
+
+开发者层面黑猴能学的真的不多 ...</blockquote>
+啊对对对，厂商都会找点销量低的去学习<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAH-AN00m, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

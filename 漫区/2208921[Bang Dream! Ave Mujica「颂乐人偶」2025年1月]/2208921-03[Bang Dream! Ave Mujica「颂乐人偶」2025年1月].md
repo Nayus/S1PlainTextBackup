@@ -9176,3 +9176,53 @@ wsd你终于清醒了
 
 加上海铃OP的要素背刺和红酒还有倒吊（耶稣要素），可能暗示的海铃前队友不信任她然后做了什么背刺的事让她心灰意冷（对应3rd幕间独白的奉献一切却被背叛），假设海铃那个“不信任我吗”的疑问是对前队友的话，祥子把这个经纪人的活给海铃反倒是对她的信任，应该让她很受用
 
+
+*****
+
+####  akiomn  
+##### 3796#       发表于 2024-12-16 21:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼友还是没搞懂一件事，既然那么执着于精神疾病就不该看邦邦，wsd绝不会给角色盖章有精神疾病
+你喜欢精神疾病就喜欢，认为有缺陷是个萌点，但是别来一个二偶企划指着角色说这角色有病，你看看这些行为多像啊，实际没有粉丝会惯着你。
+大伙对灯顶多调侃俩句小闭灯，实际wsd真给灯盖章精神病了信不信粉丝不会放过wsd？角色还卖不卖了粉丝还要不要了？
+
+*****
+
+####  skives10  
+##### 3797#       发表于 2024-12-16 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66941502&amp;ptid=2208921" target="_blank">zzhh0131 发表于 2024-12-16 21:23</a>
+蹭个jb热度，疑似阿斯伯格有个jb热度，和mtf也能放在一起了？烤批是不是脑子有问题 ...</blockquote>
+什么自闭啊 玉玉啊 观众一看美少女缺陷 马上兴奋了共鸣就来了
+这时候去采访制作组 发现结果人家含糊其辞 可能又要擅自失望了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 3798#       发表于 2024-12-16 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66941575&amp;ptid=2208921" target="_blank">上条仁美 发表于 2024-12-16 21:34</a>
+
+所以灯早期的那些特意描写不符合？因为是二次元美少女就不能有发育障碍？反例我都给你指出了而且你自己都 ...</blockquote>
+知道你喜欢智力缺陷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">邦多利可能不太适合你
+
+
+*****
+
+####  rikaren  
+##### 3799#       发表于 2024-12-16 21:45
+
+漏油都到不靠仪器就可以隔空诊断的层次了，请问是在哪里高就。
+
+*****
+
+####  zzhh0131  
+##### 3800#       发表于 2024-12-16 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66941619&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-16 21:39</a>
+
+什么自闭啊 玉玉啊 观众一看美少女缺陷 马上兴奋了共鸣就来了
+
+这时候去采访制作组 发现结果人家含糊其辞  ...</blockquote>
+不是你是不是个傻逼啊？灯这个也能跟mtf放一起了？云个东西直接在这里犯指导瘾干啥呢？还有你自己不知道你以前说过的话有多傻逼吗，也好意思说别人蹭，你自己不就是个最大的蹭子玩意？
+

@@ -581,3 +581,32 @@ gdc和dice在全年没有goty的情况下给独游发奖，成了《在评奖上
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">怎么，空气墙设计或将成为行业教科书吗？
 
+
+*****
+
+####  dbyboy  
+##### 53#       发表于 2024-12-16 20:09
+
+gdc基本就小机器人和动物井有竞争力吧
+
+*****
+
+####  大暴死  
+##### 54#       发表于 2024-12-16 20:10
+
+GDC很可能是动物井 pk 小丑牌<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2102K1C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  dbyboy  
+##### 55#       发表于 2024-12-16 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66940607&amp;ptid=2210743" target="_blank">AliceinEsoland 发表于 2024-12-16 19:10</a>
+
+把奖给左逼的大制作垃圾和独立游戏垃圾有什么区别？我的意思是今年不可能给黑猴 ...</blockquote>
+有没有可能黑猴在3a垃圾里都不算最出色的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+开发者层面黑猴能学的真的不多
+

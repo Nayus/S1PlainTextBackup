@@ -536,3 +536,15 @@ Roselia 2025.02上海场批文，staff申报人数创新高
 
 （这张图大概就是我在MyGO期间的心情）或许我是为数不多为了独角兽老师而入坑邦邦企划的人，对于即将正式开播的Mujica动画可以说是五味杂陈。各种迹象来看，Mujica的动画将是独角兽老师在邦邦企划的最后一舞，按照老师自己在访谈中所说,MyGO!!!!!与Mujica相加才是完整的故事，然而这一年来独角兽老师在X上对于Mujica的动画避而不谈，甚至在点映的当天也无从表示。而独角兽老师对Mujica动画的缄默也让我这一年来对于Mujica动画充满了焦虑，当点映的repo传来独角兽老师依然是系构的消息后，我也多少松了一口气。从邦邦第一季到Mujica，独角兽老师和邦邦企划一同走过了8年的旅程，如果我们将MyGO!!!!!与Ave Mujica看作一部作品的话，那么可以说独角兽在这最后的作品中终于得以做回自己（尽管独角兽老师对Mujica的沉默还是会来带一点疑虑）。无论如何我都希望独角兽老师能够在邦邦这个舞台上的最后一舞中能够不留遗憾地尽情传达出自己所希望诉说的故事，就像当年独角兽老师为兰尤这个cp送上了最盛大的葬礼一样，希望独角兽老师能够和制作组一起为这段旅程的终点送上最盛大的葬礼。
 
+
+*****
+
+####  showerlee  
+##### 26675#       发表于 2024-12-16 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66934890&amp;ptid=2159415" target="_blank">月島まりな 发表于 2024-12-16 08:24</a>
+昨天下午听木谷高明演讲挺感动的，才发现有人记录了，搬一下
+
+https://tieba.baidu.com/p/933389 ... 805378 ...</blockquote>
+现场听完很感动<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+

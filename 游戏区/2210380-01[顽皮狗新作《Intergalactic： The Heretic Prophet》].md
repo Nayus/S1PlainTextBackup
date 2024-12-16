@@ -2558,3 +2558,23 @@ era彩虹头像的都一大把</blockquote>
 搞不懂顽皮狗或者岛哥哥这些为啥还一天到晚以倒贴为荣 ...</blockquote>
 好莱坞没了，欧美（美国）娱乐产业也就完了，好莱坞是他们的天，天之外没有天
 
+
+*****
+
+####  ybfelix  
+##### 248#       发表于 2024-12-16 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66939972&amp;ptid=2210380" target="_blank">C.W.Nimitz 发表于 2024-12-16 17:42</a>
+好莱坞没了，欧美（美国）娱乐产业也就完了，好莱坞是他们的天，天之外没有天 ...</blockquote>
+TLOU游戏本身偏向各种僵尸片精彩剪辑的拼接，结果如今回流拍成剧集居然在那年还能大杀四方，这简直… 
+
+*****
+
+####  C.W.Nimitz  
+##### 249#       发表于 2024-12-16 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66940037&amp;ptid=2210380" target="_blank">ybfelix 发表于 2024-12-16 17:51</a>
+
+TLOU游戏本身偏向各种僵尸片精彩剪辑的拼接，结果如今回流拍成剧集居然在那年还能大杀四方，这简直…  ...</blockquote>
+国内春晚也从创造互联网段子到抄互联网段子了，主流娱乐行业退化这方面，东西方有共性<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

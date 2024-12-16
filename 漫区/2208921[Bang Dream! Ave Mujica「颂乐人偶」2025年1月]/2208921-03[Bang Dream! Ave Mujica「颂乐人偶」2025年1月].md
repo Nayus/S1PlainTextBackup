@@ -8554,3 +8554,19 @@ wsd你终于清醒了
 
 这几张牌的底纹和背景图案也都各不相同有没有说法，仔细看的话浅红色和暗红色组成的底纹上下两部分颜色相反，纹理的话初海喵祥是规律的棒状/三角/圆点/菱形纹理，睦是不规则的荆棘状纹理，中间的阴影图案初华是翅膀？睦是剑柄护手？海玲好像是蝎子（唯一没有对称的）喵梦玫瑰祥子不知道是什么花还是什么叶子
 
+
+*****
+
+####  skives10  
+##### 3740#       发表于 2024-12-16 18:09
+
+[https://x.com/murabito_maru/stat ... fBwUWaJJEgl3mSfUp5g](https://x.com/murabito_maru/status/1868416343365832705?s=61&amp;t=R0KfBwUWaJJEgl3mSfUp5g)
+
+<img src="https://img.saraba1st.com/forum/202412/16/180935bda4a4weck4gadoh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3993.jpeg</strong> (365.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-16 18:09 上传
+

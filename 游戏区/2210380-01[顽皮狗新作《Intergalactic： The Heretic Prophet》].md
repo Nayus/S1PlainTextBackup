@@ -2647,3 +2647,17 @@ https://www.economist.com/briefing/2024/09/19/america-is-becoming-less-woke
 
 好耶，这些傻逼大厂把自己作死可太好了
 
+
+*****
+
+####  mimighost  
+##### 256#       发表于 2024-12-17 04:19
+
+4chan leak了所谓的剧情大纲
+
+看着有7分真
+
+如果这个是真的。。。大仙背这次不仅是要和右派干一架，还要跟左派打到底啊<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+果然是不撞南墙不回头的大仙背
+

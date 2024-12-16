@@ -15174,3 +15174,15 @@ Screen Shot 2024-12-13 at 3.33.14 PM.png
 
 你楼有票房毒奶吗？<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  虛無迴廊  
+##### 1429#       发表于 2024-12-16 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66940333&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2024-12-16 18:35</a>
+一月份国内不上映也看不到（
+
+不如期待一下pv2</blockquote>
+可以看剧评嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真真假假的说不定更热闹
+

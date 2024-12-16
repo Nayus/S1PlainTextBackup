@@ -9615,3 +9615,46 @@ https://x.com/slug10000/status/1868670896678027603?s=46&amp;t=IZGx0N13SOtHALpwG0
 
 不过这个时间申请，下周四邦tv官宣吗？不过都十二月末了，这是要赶在过年前来吗？
 
+
+*****
+
+####  cxj649  
+##### 3831#       发表于 2024-12-16 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66942338&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-16 23:36</a>
+
+没啥好证明的，这种事情自己能分清二三次元就行，我不认为灯和睦是精神疾病，我也相信wsd不会给角色盖章 ...</blockquote>
++1
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">主要是这类医学上分类到神经病，但这类病怎么说呢
+
+普通人不知道这些是“病”的话，也不在意什么
+
+但是上面几个楼友较真证明：其实她“有病” 
+
+还是有点抖机灵的嫌疑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 3832#       发表于 2024-12-16 23:49
+
+4th当天没宣难道要挑一天邦tv宣？但是离动画都没多久了，狗肯定要上一期邦tv回顾live的，先观望<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 3833#       发表于 2024-12-16 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66942396&amp;ptid=2208921" target="_blank">cxj649 发表于 2024-12-16 23:46</a>
+
++1
+
+主要是这类医学上分类到神经病，但这类病怎么说呢
+
+普通人不知道这些是“病”的话，也不在意什么</blockquote>
+其实从头到尾只有一个人想证明<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我感觉约翰史密斯名言.jpg
+
+这玩意加纸片人头上是有什么好处吗
+

@@ -8832,3 +8832,43 @@ wsd你终于清醒了
 
 查看全部评分
 
+
+*****
+
+####  一心而用  
+##### 3763#       发表于 2024-12-16 20:30
+
+<img src="https://p.sda1.dev/20/67e8d15706b44793d650b51f6169e882/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/b3b086858f7840d04244bf6fdaabfd3f/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/2c7949017c9a3f299f4132ef2550d3fb/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  上条仁美  
+##### 3764#       发表于 2024-12-16 20:32
+
+ 本帖最后由 上条仁美 于 2024-12-16 21:35 编辑 
+<blockquote>Aendst 发表于 2024-12-16 21:23
+精神疾病还是不推荐赛博诊断给纸片人的
+
+我其实不是很理解为什么那么多人喜欢说灯有自闭症，这又不是什么好 ...</blockquote>
+
+早期特别幼年灯的那些回忆里的行为基本是照着诊断表捏的了，还要强行不是，二次元美少女就不能有缺陷了是吧。而且到后面也社会化很得很好，很好体现了人物的成长。玩乐队包治百病，希望也能治好mujic这帮人吧。
+
+*****
+
+####  66367749  
+##### 3765#       发表于 2024-12-16 20:34
+
+不用很明确表示啊，似是而非的内心活动不就行了，多余的观众会脑补
+
+*****
+
+####  akiomn  
+##### 3766#       发表于 2024-12-16 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66941171&amp;ptid=2208921" target="_blank">上条仁美 发表于 2024-12-16 20:32</a>
+早期特别幼年灯的那些回忆里的行为基本是照着诊断表抄的了，还要强行不是，二次元美少女就不能有缺陷了是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那你让官方给灯加上有精神疾病这条设定吧，反正现在没观众跟你一样认可灯有精神疾病
+

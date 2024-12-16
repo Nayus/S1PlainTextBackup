@@ -2685,3 +2685,19 @@ https://www.economist.com/briefing/2024/09/19/america-is-becoming-less-woke
 
 2024年了, 大家对以色列的印象跟TLOU2的发售时的2020年也已经完全不同了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mimighost  
+##### 258#       发表于 2024-12-17 05:22
+
+这句话你细品
+
+<img src="https://img.saraba1st.com/forum/202412/17/052245lgpf9fpmbgxp4sff.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2024-12-16 at 1.22.00 PM.jpg</strong> (86.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-17 05:22 上传
+

@@ -573,3 +573,11 @@ gdc和dice在全年没有goty的情况下给独游发奖，成了《在评奖上
 
 白左不是结论而是原因。你也可以认为左倾不严重，但从推特上各种开发者（包括独游开发者）是代词人的频率来说我觉得有点自欺欺人了
 
+
+*****
+
+####  abzoon  
+##### 52#       发表于 2024-12-16 19:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">怎么，空气墙设计或将成为行业教科书吗？
+

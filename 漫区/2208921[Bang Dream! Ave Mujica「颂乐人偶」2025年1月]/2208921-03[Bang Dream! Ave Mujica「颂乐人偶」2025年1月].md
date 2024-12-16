@@ -8135,3 +8135,38 @@ pv里睦哪怕爆了也没损坏吉他，自闭了也是抱着吉他，op里有�
 
 塔罗牌祥子的卡牌和其他人是反着的，而op明显分成了境子内(扭曲)和镜子外(正常)两个阶段，可能祥子的境内和境外形象的位置也和其他人反着的。第一阶段在镜子外的人偶就是祥子的本该在境子内形象，所以第一阶段只有境内的祥子独自一人的画面，而到第二段的祥子和进入镜子中的其他人才有在一个背景下的画面，没扭曲颜艺是镜子里才是正常祥子?
 
+
+*****
+
+####  ml1642879  
+##### 3708#       发表于 2024-12-16 16:09
+
+我已经开始想象祥子是🐔里面最正常的人了
+bro只是来赚钱的
+
+*****
+
+####  skives10  
+##### 3709#       发表于 2024-12-16 16:12
+
+祥子在op里的精神状态是符合背负人生这句台词的 
+
+
+*****
+
+####  akiomn  
+##### 3710#       发表于 2024-12-16 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66939177&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-16 16:12</a>
+祥子在op里的精神状态是符合背负人生这句台词的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是第一集那个接近崩溃的精神状态和“我只有avemujica”的台词，祥子之后百分百要吃回旋镖了
+
+*****
+
+####  skives10  
+##### 3711#       发表于 2024-12-16 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66939199&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-16 16:14</a>
+但是第一集那个接近崩溃的精神状态和“我只有avemujica”的台词，祥子之后百分百要吃回旋镖了 ...</blockquote>
+在彻底崩溃之前 还是要尽量操作的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

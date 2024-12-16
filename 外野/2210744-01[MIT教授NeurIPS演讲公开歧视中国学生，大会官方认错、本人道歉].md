@@ -835,3 +835,14 @@ https://mp.weixin.qq.com/s/JpIzc_llmrDnVKmXWtKfm ...</blockquote>
 你在说啥？</blockquote>
 MIT Media Lab=复旦大学中国研究院
 
+
+*****
+
+####  sakuranosibe  
+##### 74#       发表于 2024-12-16 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66938030&amp;ptid=2210744" target="_blank">66367749 发表于 2024-12-16 14:07</a>
+
+有些老外是偏见挺重的，几年前有个信息因为输入法原因录入出了问题，负责的老外发邮件说这事时aoe你们xxx老 ...</blockquote>
+之前在日企也这样，北京这边交上去的程序有个括号前半个是半角，后半个是全角，鬼子那边直接说你们这个不是技术问题是moral问题<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">，前一阵Sony大规模封禁用PS4玩PS5上领送的PS4游戏的用户后又秒怂的时候，说是由于技术问题导致误封，推上sony的道歉推文有个高赞回复：你们这不是技术问题，是moral问题，看到这个我笑了好久<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

@@ -9415,3 +9415,18 @@ AM_icon_02.jpg
 算了
 不歪楼 屏蔽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zzhh0131  
+##### 3815#       发表于 2024-12-16 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66941825&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-16 22:02</a>
+
+我感觉你也是个纯傻逼
+
+看到烤的元素就能应激成这样 
+
+连人话都瞬间看不懂了 直接红温 </blockquote>
+赶紧屏蔽吧，你个臭傻逼。整天说抽象批话的时候有没有想过被人直球喷粪的一天？还想学别人装最会指导的。
+

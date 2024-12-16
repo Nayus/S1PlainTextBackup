@@ -682,3 +682,14 @@ GDC很可能是动物井 pk 小丑牌<img src="https://static.saraba1st.com/imag
 
 —— 来自 HUAWEI TAH-AN00m, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  kros  
+##### 62#       发表于 2024-12-17 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66941132&amp;ptid=2210743" target="_blank">qty 发表于 2024-12-16 20:27</a>
+
+能在不到半年时间全价卖到两千万以上这个数字的大制作游戏，无论哪个层面，能学的绝对都很多，你觉得不多 ...</blockquote>
+是的 热辣滚烫也值得所有电影人学习
+

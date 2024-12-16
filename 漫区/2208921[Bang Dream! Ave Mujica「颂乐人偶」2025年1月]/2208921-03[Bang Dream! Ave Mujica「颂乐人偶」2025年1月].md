@@ -9724,3 +9724,32 @@ https://x.com/slug10000/status/1868670896678027603?s=46&amp;t=IZGx0N13SOtHALpwG0
 
 本来mygo就是以灯为主角的故事，有又这个属性不影响，反而更有利于成长故事展开，提到就应激属实是歧视习惯了。
 
+
+*****
+
+####  PDQ4  
+##### 3839#       发表于 2024-12-17 00:18
+
+漏油宁愿在一些杂书和文娱作品相信这就是ASD现状，太爱了
+
+哪怕你多去看看case report呢
+
+还能说什么呢，只能说百度看病的受众遍布所有年龄段<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 3840#       发表于 2024-12-17 00:21
+
+还是顺从吧 要不然又成泥漏80漏油了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ggxx001  
+##### 3841#       发表于 2024-12-17 00:22
+
+此时应该借用阿虚名言
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

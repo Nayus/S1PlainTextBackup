@@ -1006,3 +1006,16 @@ MIT Media Lab=复旦大学中国研究院
 
 美国AI 很多都是华人在搞，感觉她像故意贴脸开大，美国高华能不能硬气一点，以后有这婆娘参加的会议或机构自己的就退出抗议
 
+
+*****
+
+####  wszweill  
+##### 89#       发表于 2024-12-17 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66938068&amp;ptid=2210744" target="_blank">↓↘→AB 发表于 2024-12-16 01:12</a>
+
+新时代大学老师都是给学生拉皮条的，早就不是为人师表了，道德要求别那么高，把说的什么事缕清楚就得了。我 ...</blockquote>
+你说想想说啥，把chinese去了影不影响她的表达<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 美国反歧视基本上是所有科研工作者的的 必修，你找个苦逼博士给你做科研伦理的 ppt都不能这么做的。科研伦理可不只是剽窃伪造，反歧视一样是科研伦理
+
+这教授不是yygq老钟不做科研伦理嘛，她这科研伦理放美帝及不及格呀
+

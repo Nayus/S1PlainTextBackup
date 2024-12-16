@@ -846,3 +846,11 @@ MIT Media Lab=复旦大学中国研究院
 有些老外是偏见挺重的，几年前有个信息因为输入法原因录入出了问题，负责的老外发邮件说这事时aoe你们xxx老 ...</blockquote>
 之前在日企也这样，北京这边交上去的程序有个括号前半个是半角，后半个是全角，鬼子那边直接说你们这个不是技术问题是moral问题<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">，前一阵Sony大规模封禁用PS4玩PS5上领送的PS4游戏的用户后又秒怂的时候，说是由于技术问题导致误封，推上sony的道歉推文有个高赞回复：你们这不是技术问题，是moral问题，看到这个我笑了好久<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DesperateY  
+##### 75#       发表于 2024-12-16 16:20
+
+换成这样歧视犹太人的话这会没准已经打包滚蛋了
+

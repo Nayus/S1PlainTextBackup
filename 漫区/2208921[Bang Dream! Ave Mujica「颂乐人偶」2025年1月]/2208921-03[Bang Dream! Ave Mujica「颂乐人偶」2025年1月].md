@@ -8170,3 +8170,13 @@ bro只是来赚钱的
 但是第一集那个接近崩溃的精神状态和“我只有avemujica”的台词，祥子之后百分百要吃回旋镖了 ...</blockquote>
 在彻底崩溃之前 还是要尽量操作的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  3353764798  
+##### 3712#       发表于 2024-12-16 16:21
+
+大祥老师会像jojo的boss一样玩弄op吗。拯救了所有人后大家都正常了大祥老师开始像睦一样发癫。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

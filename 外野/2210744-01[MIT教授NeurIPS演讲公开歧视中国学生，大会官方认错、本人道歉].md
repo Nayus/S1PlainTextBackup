@@ -1019,3 +1019,43 @@ MIT Media Lab=复旦大学中国研究院
 
 这教授不是yygq老钟不做科研伦理嘛，她这科研伦理放美帝及不及格呀
 
+
+*****
+
+####  wangyu210000  
+##### 90#       发表于 2024-12-17 01:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66939065&amp;ptid=2210744" target="_blank">AraTurambar 发表于 2024-12-16 16:03</a>
+
+MIT Media Lab=复旦大学中国研究院</blockquote>
+...为啥？
+
+*****
+
+####  wangyu210000  
+##### 91#       发表于 2024-12-17 01:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66940257&amp;ptid=2210744" target="_blank">百猪夜行 发表于 2024-12-16 18:24</a>
+
+台下这么多羔华没一个敢当场喷回去或丢个鞋子上去，难怪会被白皮猪骑在头上侮辱。
+
+—— 来自 鹅球 v3.1. ...</blockquote>
+有一个中国女学生做出回应了。丢鞋子这就显得自己水平 low 了吧
+
+*****
+
+####  wangyu210000  
+##### 92#       发表于 2024-12-17 01:42
+
+<img src="https://img.saraba1st.com/forum/202412/17/014245ythztelul0fxxntl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (344.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-17 01:42 上传
+
+[img]blob:[https://bbs.saraba1st.com/8aa77f27-f3ed-4075-b99c-56d0733998ae](https://bbs.saraba1st.com/8aa77f27-f3ed-4075-b99c-56d0733998ae)[/img]
+
+MIT 学联做出回应了
+

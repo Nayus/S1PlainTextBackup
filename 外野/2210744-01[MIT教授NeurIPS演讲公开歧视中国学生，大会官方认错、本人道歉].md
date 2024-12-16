@@ -854,3 +854,14 @@ MIT Media Lab=复旦大学中国研究院
 
 换成这样歧视犹太人的话这会没准已经打包滚蛋了
 
+
+*****
+
+####  emmerMK4  
+##### 76#       发表于 2024-12-16 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66939268&amp;ptid=2210744" target="_blank">DesperateY 发表于 2024-12-16 16:20</a>
+
+换成这样歧视犹太人的话这会没准已经打包滚蛋了</blockquote>
+除了中国以外任何一个国籍它都不敢写
+

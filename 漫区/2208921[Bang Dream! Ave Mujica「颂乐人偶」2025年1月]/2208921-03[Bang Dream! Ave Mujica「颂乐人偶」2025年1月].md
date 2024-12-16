@@ -8180,3 +8180,53 @@ bro只是来赚钱的
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  御幸一也  
+##### 3713#       发表于 2024-12-16 16:46
+
+花籃有返圖了，這次和幾個朋友一起送了個P5風的花籃。
+
+討論3rd花籃的時候就決定這次要做這種風格，看到前幾天的訪談真的感覺很巧。
+
+ペルソナ…ペルソナ！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202412/16/164455opei21azk323b466.jpg" referrerpolicy="no-referrer">
+
+<strong>Ge6DeUkbIAALDgc.jpg</strong> (946.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-16 16:44 上传
+
+[https://x.com/sasakirico/status/1868575498437337304](https://x.com/sasakirico/status/1868575498437337304)
+
+<img src="https://img.saraba1st.com/forum/202412/16/164443mqpkgekopphpo9jq.jpg" referrerpolicy="no-referrer">
+
+<strong>loftmoon.jpg</strong> (429.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-16 16:44 上传
+
+還一起送了個小花籃放預告信，希望聲優們有注意到這個聯動<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202412/16/164509izq6foltkxhk686b.jpg" referrerpolicy="no-referrer">
+
+<strong>Ge5-6vebEAAWFtP.jpg</strong> (1.08 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-16 16:45 上传
+
+[https://x.com/sasakirico/status/1868570460633681992](https://x.com/sasakirico/status/1868570460633681992)
+
+<img src="https://img.saraba1st.com/forum/202412/16/164510vikwri0iywzwa0kd.jpg" referrerpolicy="no-referrer">
+
+<strong>letter.jpg</strong> (100.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-16 16:45 上传
+

@@ -806,3 +806,11 @@ GTA6从主机到PC再到OL再到MOD化 怕是有很多人毕业都玩不到
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  艾特娜  
+##### 968#       发表于 2024-12-16 16:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">涨得最多的是个医生，而医生的游戏性上完全没花心思全靠在职业系统外整活
+

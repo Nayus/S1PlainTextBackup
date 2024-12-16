@@ -8872,3 +8872,88 @@ wsd你终于清醒了
 早期特别幼年灯的那些回忆里的行为基本是照着诊断表抄的了，还要强行不是，二次元美少女就不能有缺陷了是 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那你让官方给灯加上有精神疾病这条设定吧，反正现在没观众跟你一样认可灯有精神疾病
 
+
+*****
+
+####  NODY  
+##### 3767#       发表于 2024-12-16 20:36
+
+还是鸡狗动画引来太多拿三次元套纸片人的群体了，蝶ova马希洛那个幻觉不比灯的情况严重多了，也不见给她鉴精神病的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 3768#       发表于 2024-12-16 20:37
+
+ 本帖最后由 Aendst 于 2024-12-16 20:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66941171&amp;ptid=2208921" target="_blank">上条仁美 发表于 2024-12-16 20:32</a>
+
+早期特别幼年灯的那些回忆里的行为基本是照着诊断表抄的了，还要强行不是，二次元美少女就不能有缺陷了是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">有没有可能实际诊断是不只看“诊断表”的，单一量表只是一个参考不具备完全诊断能力
+
+你的生理指标智力测定呢，怎么就照着册子诊断了
+
+漏油指导的时候能不能先搞清楚精分和双重人格，至少不要犯这种低级门外汉错误，然后再来谈“病症”
+
+不然你的说辞不仅对相关领域人员来说很搞笑，对路人来说也没有说服力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  上条仁美  
+##### 3769#       发表于 2024-12-16 20:38
+
+<blockquote>akiomn 发表于 2024-12-16 21:35
+那你让官方给灯加上有精神疾病这条设定吧，反正现在没观众跟你一样认可灯有精神疾病，大伙最多调侃两句小 ...</blockquote>
+官方没说美少女会拉屎就二次元美少女就不拉了是吧
+
+*****
+
+####  Wondering  
+##### 3770#       发表于 2024-12-16 20:39
+
+请问邦邦系看似很正常其实最魔怔的人弦卷心到底有什么精神疾病<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 3771#       发表于 2024-12-16 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66941225&amp;ptid=2208921" target="_blank">上条仁美 发表于 2024-12-16 20:38</a>
+官方没说美少女会拉屎就二次元美少女就不拉了是吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不然呢，你要这么觉得灯有精神疾病就去叫官方给加上，顺便我建议你再让官方把蝶团的小白也加上精神疾病，人家那幻觉可比灯严重多了
+拿三次元东西套二次元闹麻了
+
+
+*****
+
+####  瞳映山川  
+##### 3772#       发表于 2024-12-16 20:42
+
+精神疾病又不是什么好东西，官方没有的设定干嘛非要给角色强行安上，难道精神疾病现在变成了什么时尚单品不成<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 3773#       发表于 2024-12-16 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66941171&amp;ptid=2208921" target="_blank">上条仁美 发表于 2024-12-16 20:32</a>
+早期特别幼年灯的那些回忆里的行为基本是照着诊断表捏的了，还要强行不是，二次元美少女就不能有缺陷了是 ...</blockquote>
+这不都是萌点 也算不上缺陷吧
+
+*****
+
+####  66367749  
+##### 3774#       发表于 2024-12-16 20:43
+
+即使灯我也没觉得有精神疾病，感性和周围人有所不同而已，写的词能获得别人共鸣不正表示能理解么
+
+*****
+
+####  skives10  
+##### 3775#       发表于 2024-12-16 20:45
+
+疑似精神疾病现在本来接近时尚单品了吧
+会引起部分人的共鸣 然后代入
+隔壁最火的团不就这样
+各种时尚元素 最新的活动角色还有躯体化表现
+

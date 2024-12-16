@@ -12684,3 +12684,19 @@ Screenshot_2024-12-16-00-42-39-303_tv.danmaku.bili.jpg
 侑哥哥怎么还在左拥右抱</blockquote>
 <img src="https://p.sda1.dev/20/37ba50f8603322ebfad535a79383fe13/QQ图片20241216090826.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViyViy  
+##### 1245#       发表于 2024-12-16 10:42
+
+这里第一个出现的是蓝色的曳光<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202412/16/103322jwaga1ae3wd42w48.png" referrerpolicy="no-referrer">
+
+<strong>QQ20241216-103246.png</strong> (852.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-16 10:33 上传
+

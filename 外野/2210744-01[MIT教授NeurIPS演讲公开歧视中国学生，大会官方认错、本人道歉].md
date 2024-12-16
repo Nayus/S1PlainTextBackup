@@ -524,3 +524,59 @@ UW 还有一位硬度为7的硬汉说中国人在搞 DEI</blockquote>
 
 就是歧视，你还搁这里反思
 
+
+*****
+
+####  darkerray  
+##### 46#       发表于 2024-12-16 14:56
+
+ 本帖最后由 darkerray 于 2024-12-16 14:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66938359&amp;ptid=2210744" target="_blank">kouym 发表于 2024-12-16 14:44</a>
+
+因为她自己也知道自己在种族歧视 
+
+下面补那句大多数中国人还是诚实的就证明了她知道自己上面那句是在aoe ...</blockquote>
+难道不是迫不得已的叠甲？
+
+美国人对种族问题的敏感度比国内高得多，中国高校说美国人、黑人怎么怎么样，只会被当成玩笑，都不会有人道歉
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Vergilno1|-2|剑冢|
+
+查看全部评分
+
+*****
+
+####  诚司  
+##### 47#       发表于 2024-12-16 14:57
+
+以后这位最好会议不要挂arxiv，不要发期刊，否则给你找茬的人恐怕不会少吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AraTurambar  
+##### 48#       发表于 2024-12-16 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66938357&amp;ptid=2210744" target="_blank">wangyu210000 发表于 2024-12-16 14:44</a>
+
+media lab 怎么奇葩了？ 详细说说？</blockquote>
+复旦大学中国研究院
+
+*****
+
+####  姊控  
+##### 49#       发表于 2024-12-16 14:59
+
+实际上NeurIPS的回应是「NeurIPS acknowledges that the cultural generalization made by the keynote speaker today reinforces implicit biases by making generalisations about Chinese scholars.」完全没提这是种族歧视，可以选了更轻的用词，只说是加强了偏见的 cultural generalisation，应该算是巧妙洗白。
+
+事主 Rosalind Picard的道歉更是避重就轻：「During my keynote presentation at NeurIPS, I shared a story in which I mentioned nationality—a detail that I regret including. I see that this was unnecessary, irrelevant to the point I was making, and caused unintended negative associations. I apologize for doing this and feel very badly about the distress that this incident has caused.」只是后悔写上了这个没必要的细节，完全否认自己有任何种族歧视的意图。MIT目前也还没有什么回应和措施。说起来Media Lab出奇人异事也不是一天两天了...
+
+只能说歧视华人是美国社会主流共识，这种学术会议上也就是华人占了半壁江山才激起一点声浪反响。
+

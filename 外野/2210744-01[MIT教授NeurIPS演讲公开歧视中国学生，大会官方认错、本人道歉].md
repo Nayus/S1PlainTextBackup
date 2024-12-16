@@ -905,3 +905,14 @@ MIT Media Lab=复旦大学中国研究院
 还有高华主动跳出来作证“我们中国大学就是学术不端”</blockquote>
 清女刻板印象了
 
+
+*****
+
+####  卡鲁修特  
+##### 80#       发表于 2024-12-16 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66938733&amp;ptid=2210744" target="_blank">satsuki1029 发表于 2024-12-16 15:26</a>
+
+正常操作，所以海外华人才是在中国还是在外国最不受待见的一群</blockquote>
+这叫认知配得上苦难<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

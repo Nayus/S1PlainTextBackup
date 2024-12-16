@@ -825,3 +825,46 @@ danime注册巨麻烦，很不厚道的直接去看corocorochannel的官方视�
 
 ？
 
+
+*****
+
+####  holoan  
+##### 10428#         楼主| 发表于 2024-12-16 17:35
+
+ 本帖最后由 holoan 于 2024-12-16 17:38 编辑 
+
+<img src="https://img.saraba1st.com/forum/202412/16/173543tallgodzelrtvtgn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (85.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-16 17:35 上传
+
+<img src="https://img.saraba1st.com/forum/202412/16/173743ckdzgb55qk4sqw41.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (122.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-16 17:37 上传
+
+？
+
+啥玩意都能拿来水论文了是吧
+
+*****
+
+####  holoan  
+##### 10429#         楼主| 发表于 2024-12-16 17:57
+
+<img src="https://img.saraba1st.com/forum/202412/16/175632aujyyrynmtfistna.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (30.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-16 17:56 上传
+
+这次新作里的holo梗简直不能再多
+

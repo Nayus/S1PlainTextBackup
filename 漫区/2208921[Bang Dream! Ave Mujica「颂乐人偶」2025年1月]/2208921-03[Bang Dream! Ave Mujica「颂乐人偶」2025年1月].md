@@ -7807,3 +7807,11 @@ ppp 萝 蝶 ras mygo 鸡，即使不算管人团都是6个
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  ml1642879  
+##### 3680#       发表于 2024-12-16 08:27
+
+剧情里🐔的词曲编是不是祥子一手操办的，高一学生写这么疯批的歌词<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

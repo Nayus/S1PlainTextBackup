@@ -428,3 +428,12 @@ Morfonica，在新冠疫情艰难时期，以纯白的服装支撑着现场演�
 
 非常感谢！
 
+
+*****
+
+####  月島まりな  
+##### 26673#       发表于 2024-12-16 08:34
+
+Roselia 2025.02上海场批文，staff申报人数创新高
+[http://wsbs.wgj.sh.gov.cn/shwgj_ ... 7830193bee95a9e1912](http://wsbs.wgj.sh.gov.cn/shwgj_ywtb/core/web/welcome/index!getDocumentinfobyId.action?id=000000009367b7830193bee95a9e1912)
+

@@ -644,3 +644,15 @@ GDC很可能是动物井 pk 小丑牌<img src="https://static.saraba1st.com/imag
 
 话说小机器人用的是自研引擎么？感觉对PS5的性能运用非常好，在保证出色的画面和物理特效的情况下还能跑到原生2K60帧，体感技术含量不比顶尖3A差，虽然开发团队也就60来人（听坛友说最低甚至只有20来号人，但至今仍在更新关卡）
 
+
+*****
+
+####  GJ05  
+##### 59#       发表于 2024-12-16 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66941132&amp;ptid=2210743" target="_blank">qty 发表于 2024-12-16 20:27</a>
+能在不到半年时间全价卖到两千万以上这个数字的大制作游戏，无论哪个层面，能学的绝对都很多，你觉得不多 ...</blockquote>
+那COD不比黑猴更值得学习<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24069RA21C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

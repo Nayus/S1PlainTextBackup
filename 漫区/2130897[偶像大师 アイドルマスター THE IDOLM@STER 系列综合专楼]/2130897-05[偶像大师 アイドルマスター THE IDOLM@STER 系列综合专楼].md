@@ -2648,3 +2648,38 @@ Expo的官方视频，天无二日😭，卡卡，忠！诚！
 
 —— 来自 Xiaomi 24122RKC7C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  虚无缥缈的光阴  
+##### 6793#       发表于 2024-12-15 21:46
+
+跟马池口比那肯定自取其辱阿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wfhtony  
+##### 6794#       发表于 2024-12-15 23:19
+
+[プロデューサーさんへ。](https://www.youtube.com/watch?v=_U6Hj2tnkO4)
+
+↑ 万南给这两天EXPO的视频repo
+
+*****
+
+####  Ask_10A  
+##### 6795#       发表于 2024-12-16 01:59
+
+【【偶像大师】致制作人。-哔哩哔哩】 https://b23.tv/ivB0FXi
+
+Expo的官方视频，天无二日😭，卡卡，忠！诚！
+
+—— 来自 Xiaomi 24122RKC7C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cckuku  
+##### 6796#       发表于 2024-12-16 08:20
+
+马池口明显就没有那种唱不上来的感觉，长月还得练啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

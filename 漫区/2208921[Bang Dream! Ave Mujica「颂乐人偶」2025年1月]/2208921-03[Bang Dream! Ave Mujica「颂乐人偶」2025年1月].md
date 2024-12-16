@@ -8602,3 +8602,29 @@ wsd你终于清醒了
 
 睦头握着的是剑吗
 
+
+*****
+
+####  瞳映山川  
+##### 3744#       发表于 2024-12-16 18:28
+
+睦握着的应该是剑吧，不过这把剑到底是怎么个造型啊？按照图上的握法剑身不应该是向前的吗？怎么做到图上一样向上的？没看懂<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 3745#       发表于 2024-12-16 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66940277&amp;ptid=2208921" target="_blank">瞳映山川 发表于 2024-12-16 18:28</a>
+
+睦握着的应该是剑吧，不过这把剑到底是怎么个造型啊？按照图上的握法剑身不应该是向前的吗？怎么做到图上一 ...</blockquote>
+看起来像是正对着摄像机的
+
+
+*****
+
+####  allesdg  
+##### 3746#       发表于 2024-12-16 18:34
+
+确实手这个地方不是对称的画法啊，好像是两只手一前一后握着剑，手的部分在对称标的外面
+

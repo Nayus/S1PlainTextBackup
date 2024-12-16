@@ -733,3 +733,19 @@ PS5匹配时间长，容易掉线的问题。只要把跨平台游戏关了就�
 
 光能人没了。大型TGA庆典限时更新是吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kalavinka  
+##### 5627#         楼主| 发表于 2024-12-16 18:35
+
+应该要出新样本了吧
+
+<img src="https://img.saraba1st.com/forum/202412/16/183427euhlvzhu06hhfvhf.png" referrerpolicy="no-referrer">
+
+<strong>WX20241216-183412@2x.png</strong> (158.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-16 18:34 上传
+

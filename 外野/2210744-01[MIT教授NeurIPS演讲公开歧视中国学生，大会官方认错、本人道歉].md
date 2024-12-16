@@ -916,3 +916,41 @@ MIT Media Lab=复旦大学中国研究院
 正常操作，所以海外华人才是在中国还是在外国最不受待见的一群</blockquote>
 这叫认知配得上苦难<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  百猪夜行  
+##### 81#       发表于 2024-12-16 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66938361&amp;ptid=2210744" target="_blank">ZekNagPul 发表于 2024-12-16 14:44</a>
+老Karen发癫
+
+会上一半中国人，发什么神经群嘲哦，该不会觉得自己很棒棒吧</blockquote>
+台下这么多羔华没一个敢当场喷回去或丢个鞋子上去，难怪会被白皮猪骑在头上侮辱。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  奈姆乐斯美都莎  
+##### 82#       发表于 2024-12-16 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66938039&amp;ptid=2210744" target="_blank">自賠ニャン 发表于 2024-12-16 14:08</a>
+
+所以这人到底干了什么被开除</blockquote>
+附议，zsbd
+
+
+*****
+
+####  姊控  
+##### 83#       发表于 2024-12-16 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66940257&amp;ptid=2210744" target="_blank">百猪夜行 发表于 2024-12-16 18:24</a>
+台下这么多羔华没一个敢当场喷回去或丢个鞋子上去，难怪会被白皮猪骑在头上侮辱。
+
+—— 来自 鹅球 v3.1. ...</blockquote>
+其实Q&amp;A就有个女生反驳了，还有些人鼓掌。然后白垃圾继续嘴硬阴阳「哦，也许是隔离吧，I hope so.」
+
+视频X上也有，这次能有一点声浪算是比过去很多事件好点了，整个AI领域年轻的中国人都在狂喷（中年大佬的确有挺多还在龟缩），X上有些美国白人大佬也在骂。但是NeurIPS和白垃圾的回应都避重就轻，MIT现在也没措施。
+

@@ -15137,3 +15137,22 @@ Screen Shot 2024-12-13 at 3.33.14 PM.png
 
 等开播红鸟过来卖药<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oi99o  
+##### 1425#       发表于 2024-12-16 18:32
+
+没东西水就不水呗，没必要没活硬水
+
+*****
+
+####  RE㐅ia  
+##### 1426#       发表于 2024-12-16 18:35
+
+<blockquote>七层嘉影 发表于 2024-12-16 17:04
+没事，一个月后上映直接一天几十页（</blockquote>
+一月份国内不上映也看不到（
+
+不如期待一下pv2
+

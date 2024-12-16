@@ -678,3 +678,67 @@ MIT生物学研究，细胞图是p的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">捏中国人没事所以才捏，多简单的道理
 
+
+*****
+
+####  vuder  
+##### 59#       发表于 2024-12-16 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66938446&amp;ptid=2210744" target="_blank">洛拉斯 发表于 2024-12-16 14:54</a>
+
+强调我认识的大部分中国人没问题逻辑上等于我不认识的大部分中国人有问题
+
+就是歧视，你还搁这里反思</blockquote>
+关键点是专门把国籍拿出来说了，本来这事情就和国籍没啥关系
+
+*****
+
+####  yeo  
+##### 60#       发表于 2024-12-16 15:30
+
+ 本帖最后由 yeo 于 2024-12-16 15:31 编辑 
+
+朋友圈大佬发的，邀请她参加个论坛啥的，她回了个这个
+
+https://mp.weixin.qq.com/s/JpIzc_llmrDnVKmXWtKfmg
+
+<img src="https://p.sda1.dev/20/e4fe680679c0f258f10f86df6fb1d5ac/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  赵三金  
+##### 61#       发表于 2024-12-16 15:32
+
+如果你身临其境，你就会发现美国人的苦难配得上他们的认知，这种愚民性质的宣扬种族仇恨令人不安，美国人离开化还有很长一段距离，只谈个别中国人的坏却看不到美国人大部分都是谋杀犯强J犯和炼铜犯，美国没有历史只有重复，两百年前总统被火铳暗杀，两百年后总统被自动步枪暗杀未遂，美国还是那个美国，不过是暗杀美国总统的枪更新换代了，就连最劣等的贱民国家印度都能在2024年修建厕所，然而美国今日仍在担心对总统的暗杀，防民之枪甚于防川，我并不知道他们为什么会憎恨一个从未谋面的国家和那个国家的人，无非是他们的课本和媒体从小宣扬仇中教育，小孩子一辈子活在仇恨之中，就连所谓的大学教授也不过是沽名钓誉以媚上逢迎以求向上爬，费力去讨好美国上层人仇中的需求，如果你遍观两国历史你就会发现对美国最好的就是中国，中国在08年经济危机大力帮助了美国，还给美国人制造了不计其数的物美价廉的商品，可美国人的回报是什么？是滥发纸币，是尼格念经，是LGBT，美国亏欠中国太多，美国离文明太远，大美利坚人人有病却人人不知，即使最瘦骨嶙峋衣衫褴褛的美国街头流浪瘾君子每每想到20世纪末美国打赢冷战的黄金时代都忍不住挺起了干瘪的胸膛以至于肋骨断了两根。<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  古留  
+##### 62#       发表于 2024-12-16 15:34
+
+迫害基督徒和佛教徒
+
+呵呵
+
+*****
+
+####  Eric_方歌阙  
+##### 63#       发表于 2024-12-16 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66938774&amp;ptid=2210744" target="_blank">yeo 发表于 2024-12-16 15:30</a>
+
+朋友圈大佬发的，邀请她参加个论坛啥的，她回了个这个
+
+[https://mp.weixin.qq.com/s/JpIzc_llmrDnVKmXWtKfm](https://mp.weixin.qq.com/s/JpIzc_llmrDnVKmXWtKfm) ...</blockquote>
+呈特又高又硬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TiiTiiLL  
+##### 64#       发表于 2024-12-16 15:36
+
+本来这个案例就没必要把国籍给标注出来，偏偏你标注出来又贱贱地找补一句，这不是racist？
+
+说白了白皮对黑皮的racist太敏感，到了黄皮这一块又变成先天迟钝圣体了
+

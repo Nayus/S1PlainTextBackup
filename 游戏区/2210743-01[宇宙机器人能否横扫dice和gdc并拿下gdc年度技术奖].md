@@ -530,3 +530,22 @@ b乎b站搜一下gdc看出来的是什么。 ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  CyanCloverFern  
+##### 50#       发表于 2024-12-16 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66940683&amp;ptid=2210743" target="_blank">AliceinEsoland 发表于 2024-12-16 19:21</a>
+
+什么颠倒逻辑？劳保是不一定给黑猴但白左是不可能给黑猴。按西方游戏界的左倾程度我推测gdc不会给黑猴有 ...</blockquote>
+《在评奖上和媒体奖差不了多少》
+
+《左倾程度推测gdc不给黑猴》
+
+gdc和dice在全年没有goty的情况下给独游发奖，成了《在评奖上和媒体奖差不了多少》。媒体奖打死不让独游上桌。
+
+黑猴在正常年份有能拿goty吗？拿不了gdca就是gdc白左？
+
+我预测小机器人拿不到gdc and dice，那gdc和dice是不是劳保？
+

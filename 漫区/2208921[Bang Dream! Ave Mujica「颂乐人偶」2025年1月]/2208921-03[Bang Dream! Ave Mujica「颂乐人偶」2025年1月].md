@@ -8711,3 +8711,40 @@ wsd你终于清醒了
 对没见面多久的睦称呼是“小睦”，演出结束 ...</blockquote>
 再不懂日语也不至于mana-chan都听不出来吧
 
+
+*****
+
+####  [皆神孝介]  
+##### 3755#       发表于 2024-12-16 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66940391&amp;ptid=2208921" target="_blank">歪镜 发表于 2024-12-16 18:43</a>
+
+脚本？那系构i还是独角兽吗？独角兽的推简介都没有mygo了，害怕😨</blockquote>
+[https://anime.bang-dream.com/avemujica/staff-cast/](https://anime.bang-dream.com/avemujica/staff-cast/)
+
+<img src="https://img.saraba1st.com/forum/202412/16/192641scsq41x9430o0cs1.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2024-12-16_19-26-21.jpg</strong> (69.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-16 19:26 上传
+
+*****
+
+####  [皆神孝介]  
+##### 3756#       发表于 2024-12-16 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66940523&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-16 18:58</a>
+
+我看了下应该是翻译问题，b站直接翻译成真奈的</blockquote>
+刚刚翻了一下B站的日文字幕<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202412/16/192850xjsj305ujs8jcsfh.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2024-12-16_19-28-20.jpg</strong> (257.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-16 19:28 上传
+

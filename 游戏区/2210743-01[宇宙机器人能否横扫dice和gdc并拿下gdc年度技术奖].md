@@ -656,3 +656,15 @@ GDC很可能是动物井 pk 小丑牌<img src="https://static.saraba1st.com/imag
 
 —— 来自 Xiaomi 24069RA21C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  qty  
+##### 60#       发表于 2024-12-16 22:46
+
+<blockquote>GJ05 发表于 2024-12-16 22:33
+那COD不比黑猴更值得学习
+
+—— 来自 Xiaomi 24069RA21C, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+当然值得学习，市面上做fps的那个不想从cod学东西的
+

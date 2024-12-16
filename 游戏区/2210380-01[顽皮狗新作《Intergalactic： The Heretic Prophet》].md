@@ -2451,3 +2451,13 @@ ERA上已经把冯骥喷成爱哭的巨婴了<img src="https://static.saraba1st.
 
 这游戏应该就是顽皮狗的滑铁卢了，现在的玩家不会再惯着DEI
 
+
+*****
+
+####  fbman  
+##### 239#       发表于 2024-12-16 11:30
+
+我更好奇玩法是啥。近战为主arpg的话还挺想看看顽皮狗会做成啥样（但是首发买就算了）
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

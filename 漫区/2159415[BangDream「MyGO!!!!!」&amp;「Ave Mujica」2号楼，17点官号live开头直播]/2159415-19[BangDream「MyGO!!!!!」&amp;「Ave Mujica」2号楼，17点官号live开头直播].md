@@ -558,3 +558,12 @@ https://tieba.baidu.com/p/933389 ... 805378 ...</blockquote>
 现场听完很感动mygo和mujica中间我记得还说了管人团来着。结果一觉醒来印象最深的是怕死怕累那里卡壳了两 ...</blockquote>
 还有介绍到ave mujica的时候，场区bgm刚好到初华的那句ようこそave mujicaの世界へ。不知道有没有人录到这应景的时刻
 
+
+*****
+
+####  SakuraのOrigami  
+##### 26677#       发表于 2024-12-16 11:26
+
+天音玩偶吗（）
+<img src="https://p.sda1.dev/20/b8efb37c4a922be20e5d70ff2d02b3b9/IMG_37F8BB91B050C039E2BD7F576A804E2C.jpeg" referrerpolicy="no-referrer">
+

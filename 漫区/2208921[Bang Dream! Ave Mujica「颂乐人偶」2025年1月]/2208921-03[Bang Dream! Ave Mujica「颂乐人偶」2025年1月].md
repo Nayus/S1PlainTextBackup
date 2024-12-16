@@ -9535,3 +9535,39 @@ wsd真是打算给角色设定精神病的话会让其他人花式吹这个能�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">二次元类似“开挂 病症”最多的是 超忆症
 
+
+*****
+
+####  skives10  
+##### 3825#       发表于 2024-12-16 23:28
+
+<img src="https://img.saraba1st.com/forum/202412/16/232839xvtkochk5uuahhzc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0791.jpeg</strong> (243.77 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-16 23:28 上传
+
+<img src="https://img.saraba1st.com/forum/202412/16/232843n1ykyhr29grez2by.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0792.jpeg</strong> (257.21 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-16 23:28 上传
+
+https://x.com/slug10000/status/1868670896678027603?s=46&amp;t=IZGx0N13SOtHALpwG0Ubrg
+
+*****
+
+####  cxj649  
+##### 3826#       发表于 2024-12-16 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66942129&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-16 22:56</a>
+
+我就贴这，自己对着找，还是那句，官方肯定不会官宣偶像美少女也会拉屎，但不代表二次元美少女不会拉屎，更 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得学者综合征以及二次元最多开挂的“精神疾病”超忆症之类，你们到底表达是 她有 神经病 然后歧视她？还是在证明什么？
+

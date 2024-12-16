@@ -616,3 +616,65 @@ media lab 怎么奇葩了？ 详细说说？</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  水无定势  
+##### 53#       发表于 2024-12-16 15:17
+
+一楼就有人在那人间清醒了(估计全文都没看完），也难怪人家敢逮住中国人信口雌黄。
+
+*****
+
+####  ryj  
+##### 54#       发表于 2024-12-16 15:18
+
+这种时候又没人念叨仇恨教育了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  老崔  
+##### 55#       发表于 2024-12-16 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66937973&amp;ptid=2210744" target="_blank">darkerray 发表于 2024-12-16 14:02</a>
+
+如果这是人家亲身体会的事情为什么不能实话实说就行？政治正确只会让人越来越虚伪怯懦 ...</blockquote>
+选择性实话实说是吧，我给你讲10个杀人犯的故事，隐瞒了其他9个的国籍，专门说其中1个是中国的，而且引用这个中国的杀人犯宣称他的国家全是杀人犯，我是不是实话实说？在中国人表示被冒犯之后我回应说“我只是把我知道的说出来，中国可能就1个杀人犯，可能全是杀人犯，谁知道呢”，那我不是也在实话实说？
+
+这种情况你都觉得反对的人是虚伪和怯懦？
+
+*****
+
+####  C.W.Nimitz  
+##### 56#       发表于 2024-12-16 15:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+哈佛社科大牛做研究，结论造假
+
+MIT生物学研究，细胞图是p的
+
+以上俩课题教授都是白人，俩人都是石锤的学术舞弊
+
+这都4202年了，还针对中国人，你当大家傻呢。
+
+
+*****
+
+####  satsuki1029  
+##### 57#       发表于 2024-12-16 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66938580&amp;ptid=2210744" target="_blank">燕山雪 发表于 2024-12-16 15:09</a>
+
+还有高华主动跳出来作证“我们中国大学就是学术不端”</blockquote>
+正常操作，所以海外华人才是在中国还是在外国最不受待见的一群<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无梦女  
+##### 58#       发表于 2024-12-16 15:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">捏中国人没事所以才捏，多简单的道理
+

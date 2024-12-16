@@ -603,3 +603,11 @@ donk一年走得比niko十年还远
 我记得🦐不是Niko22卡托淘汰赛整体犯罪发挥才被发扬光大(起源是刀的三冰吧，决赛软脚虾），后面慢慢被解构什么都是🦐，怎么你汤就成大🦐初代目了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且论第一个，难道不是早期法国瑞典人里找
 虽然现在你汤大概只剩下跟玩机器的梗了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">错过大引流期是这样的
 
+
+*****
+
+####  TiiTiiLL  
+##### 4645#       发表于 2024-12-16 15:14
+
+绿龙证明了火力和肌肉在cs2作为主旋律是行得通的，学院派到最后拼不过还是白搭，chopper也许指挥一般但确实知道怎么给大哥养手感，相比之下对于apex真的是失望透顶了，xtq也根本管不住他，历经一年多，豆豆也是成功完成了从zonic时期的全面退化
+

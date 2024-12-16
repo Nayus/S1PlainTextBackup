@@ -881,3 +881,17 @@ MIT Media Lab=复旦大学中国研究院
 
 <img src="https://p.sda1.dev/20/d462c305b6957fa98fb1f31b7f6d9b26/QQ截图20241216170548.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wokazuleaa  
+##### 78#       发表于 2024-12-16 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66938469&amp;ptid=2210744" target="_blank">darkerray 发表于 2024-12-16 14:56</a>
+难道不是迫不得已的叠甲？
+
+美国人对种族问题的敏感度比国内高得多，中国高校说美国人、黑人怎么怎么样，只 ...</blockquote>
+实话实说你是傻逼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2307A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

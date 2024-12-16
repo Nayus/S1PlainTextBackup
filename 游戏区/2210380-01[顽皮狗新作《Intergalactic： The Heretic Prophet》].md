@@ -2521,3 +2521,14 @@ era彩虹头像的都一大把
 
 2024-12-16 17:18 上传
 
+
+*****
+
+####  赤井稻妻  
+##### 245#       发表于 2024-12-16 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66939771&amp;ptid=2210380" target="_blank">lilisipis 发表于 2024-12-16 17:18</a>
+
+era彩虹头像的都一大把</blockquote>
+来自Grummz
+

@@ -8478,3 +8478,60 @@ wsd你终于清醒了
 
 坏了啊，我就准备订一张初华特，看来只能准备找人换一下了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 3733#       发表于 2024-12-16 17:25
+
+大量购入通常就可以拥有了<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+*****
+
+####  drrrrrrrr  
+##### 3734#       发表于 2024-12-16 17:25
+
+希望是op里那种烫金效果
+
+—— 来自 samsung SM-S928Q, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  PDQ4  
+##### 3735#       发表于 2024-12-16 17:27
+
+那个烫金不再卖一次有点不wsd了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 3736#       发表于 2024-12-16 17:29
+
+<img src="https://img.saraba1st.com/forum/202412/16/172858o08hdbc2og4d9cz8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0787.jpeg</strong> (159.86 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-16 17:28 上传
+
+<img src="https://img.saraba1st.com/forum/202412/16/172859jilpiaxhltlti08h.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0786.jpeg</strong> (175.21 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-16 17:28 上传
+
+让人忍不住想造谣的对称程度
+
+
+*****
+
+####  御幸一也  
+##### 3737#       发表于 2024-12-16 17:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">半身含金量（
+

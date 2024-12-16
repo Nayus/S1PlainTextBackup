@@ -9029,3 +9029,15 @@ wsd你终于清醒了
 
 自闭症有很多是有智力缺陷问题的，急着给纸片人诊断这个我不明白是什么心态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蜇灵  
+##### 3783#       发表于 2024-12-16 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66941097&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-16 20:22</a>
+日本人爱蹭热度 又不敢实锤 正片多半还是一个模棱两可的效果 
+不过比起阿斯伯格或者某mtf
+双重人格这种也算 ...</blockquote>
+红烧天堂里面不是有现成的例子么，也许可以参考一下
+

@@ -742,3 +742,59 @@ https://mp.weixin.qq.com/s/JpIzc_llmrDnVKmXWtKfmg
 
 说白了白皮对黑皮的racist太敏感，到了黄皮这一块又变成先天迟钝圣体了
 
+
+*****
+
+####  UmarIbnLaAhad  
+##### 65#       发表于 2024-12-16 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66938774&amp;ptid=2210744" target="_blank">yeo 发表于 2024-12-16 15:30</a>
+ 朋友圈大佬发的，邀请她参加个论坛啥的，她回了个这个  https://mp.weixin.qq.com/s/JpIzc_llmrDnVKmXWtKfm ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了这个还下不了racist判决的一律当弱智就行了
+
+*****
+
+####  Indolencoma  
+##### 66#       发表于 2024-12-16 15:41
+
+要不咱们聊聊心肌干细胞？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛拉斯  
+##### 67#       发表于 2024-12-16 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66938580&amp;ptid=2210744" target="_blank">燕山雪 发表于 2024-12-16 15:09</a>
+
+还有高华主动跳出来作证“我们中国大学就是学术不端”</blockquote>
+那么这些高华的学历建议查一查，说不定都是造假的
+
+*****
+
+####  wangyu210000  
+##### 68#       发表于 2024-12-16 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66938480&amp;ptid=2210744" target="_blank">AraTurambar 发表于 2024-12-16 14:57</a>
+复旦大学中国研究院</blockquote>
+你在说啥？
+
+*****
+
+####  卡爹  
+##### 69#       发表于 2024-12-16 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66937973&amp;ptid=2210744" target="_blank">darkerray 发表于 2024-12-16 14:02</a>
+
+如果这是人家亲身体会的事情为什么不能实话实说就行？政治正确只会让人越来越虚伪怯懦 ...</blockquote>
+别搞政治正确？拉倒吧，就像那个提问的女生问的一样，为什么在谈其他负面案例的时候都不提国籍，而只有中国这个案例提国籍呢？因为在这里这个国籍就是这个教授想表达的内容的一部分，这个案例里“中国学生会为了成绩作弊”和“中国学校不教文明的价值观”是西方对中国经典的刻板印象和抹黑，这在西方本身就是一种政治正确
+
+*****
+
+####  卡爹  
+##### 70#       发表于 2024-12-16 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66938050&amp;ptid=2210744" target="_blank">五块钱也是钱呐 发表于 2024-12-16 14:10</a>
+
+对她想说明的内容来说，根本不需要点明国籍，但她就是点了，是故意的还是不小心的呢 ...</blockquote>
+国籍是醋，案例是饺子
+

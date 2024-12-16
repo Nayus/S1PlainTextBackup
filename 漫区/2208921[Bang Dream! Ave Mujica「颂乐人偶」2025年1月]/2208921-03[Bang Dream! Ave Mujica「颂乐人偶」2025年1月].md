@@ -8665,3 +8665,29 @@ wsd你终于清醒了
 脚本？那系构i还是独角兽吗？独角兽的推简介都没有mygo了，害怕😨</blockquote>
 系构还是独角兽
 
+
+*****
+
+####  星天观测  
+##### 3751#       发表于 2024-12-16 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66940243&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-16 18:21</a>
+
+我回去看了下mygo的mujica部分，初华对甜甜圈的称呼是“真奈”
+
+对没见面多久的睦称呼是“小睦”，演出结束 ...</blockquote>
+不知道你回顾的什么视频，初华对真奈的称呼是“mana酱”
+
+她对所有人的称呼都是xx酱
+
+*****
+
+####  akiomn  
+##### 3752#       发表于 2024-12-16 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66940515&amp;ptid=2208921" target="_blank">星天观测 发表于 2024-12-16 18:57</a>
+不知道你回顾的什么视频，初华对真奈的称呼是“mana酱”
+
+她对所有人的称呼都是xx酱 ...</blockquote>
+我看了下应该是翻译问题，b站直接翻译成真奈的
+

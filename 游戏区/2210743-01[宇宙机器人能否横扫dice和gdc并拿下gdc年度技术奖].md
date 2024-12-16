@@ -442,3 +442,28 @@ mfs 2020年击败了half life alyx和tlou2，所以今年如果不拉胯的话�
 
 还有一点令人敬佩的是animal well完全基于自研引擎。
 
+
+*****
+
+####  CyanCloverFern  
+##### 43#       发表于 2024-12-16 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66939686&amp;ptid=2210743" target="_blank">qty 发表于 2024-12-16 17:07</a>
+
+所谓的开发者，媒体，不过是名目而已，本质都是同一群人，搞的几个不同牌子的舆论工具罢了。 ...</blockquote>
+gdca是gdc大会中一个起兴的节目，gdc的主体是行业开发技术交流。
+
+b乎b站搜一下gdc看出来的是什么。
+
+
+*****
+
+####  AliceinEsoland  
+##### 44#       发表于 2024-12-16 19:03
+
+<blockquote>CyanCloverFern 发表于 2024-12-16 18:58
+gdca是gdc大会中一个起兴的节目，gdc的主体是行业开发技术交流。
+
+b乎b站搜一下gdc看出来的是什么。 ...</blockquote>
+确实是行业交流技术为主的，但不要忘了这些开发者多数是持白左精英主义审美的，在评奖上和媒体奖差不了多少
+

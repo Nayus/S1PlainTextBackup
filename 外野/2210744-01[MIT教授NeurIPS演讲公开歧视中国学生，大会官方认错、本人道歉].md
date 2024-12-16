@@ -895,3 +895,13 @@ MIT Media Lab=复旦大学中国研究院
 
 —— 来自 vivo V2307A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  gebestrong  
+##### 79#       发表于 2024-12-16 17:43
+
+<blockquote>燕山雪 发表于 2024-12-16 15:09
+还有高华主动跳出来作证“我们中国大学就是学术不端”</blockquote>
+清女刻板印象了
+

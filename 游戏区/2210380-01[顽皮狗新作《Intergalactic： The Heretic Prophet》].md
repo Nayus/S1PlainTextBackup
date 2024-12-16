@@ -2532,3 +2532,29 @@ era彩虹头像的都一大把
 era彩虹头像的都一大把</blockquote>
 来自Grummz
 
+
+*****
+
+####  outerish  
+##### 246#       发表于 2024-12-16 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66939092&amp;ptid=2210380" target="_blank">赤井稻妻 发表于 2024-12-16 16:05</a>
+
+整个片子就机器人最土，其他部分还挺不错的，正中好球区，不过更喜欢神海里面那种留着一点短发的扮相 ...</blockquote>
+短发控的认同，头发再长一点点就好
+
+不过剪报哪有一张剃头前的照片，闪回应该就有短发的造型了
+
+
+*****
+
+####  C.W.Nimitz  
+##### 247#       发表于 2024-12-16 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66923519&amp;ptid=2210380" target="_blank">mimighost 发表于 2024-12-14 13:18</a>
+
+好莱坞本身也摇摇欲坠
+
+搞不懂顽皮狗或者岛哥哥这些为啥还一天到晚以倒贴为荣 ...</blockquote>
+好莱坞没了，欧美（美国）娱乐产业也就完了，好莱坞是他们的天，天之外没有天
+

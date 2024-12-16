@@ -822,3 +822,13 @@ GTA6从主机到PC再到OL再到MOD化 怕是有很多人毕业都玩不到
 
 医生是toko？那不还是匪牛逼
 
+
+*****
+
+####  艾特娜  
+##### 970#       发表于 2024-12-16 17:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但这故事就得toko不是匪是医生才能成立，虽说起因得益于抢银行过长的冷却时间
+
+两队影薄的匪连切片都少见
+

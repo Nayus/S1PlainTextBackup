@@ -798,3 +798,16 @@ https://mp.weixin.qq.com/s/JpIzc_llmrDnVKmXWtKfmg
 对她想说明的内容来说，根本不需要点明国籍，但她就是点了，是故意的还是不小心的呢 ...</blockquote>
 国籍是醋，案例是饺子
 
+
+*****
+
+####  世界不要这样  
+##### 71#       发表于 2024-12-16 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66938774&amp;ptid=2210744" target="_blank">yeo 发表于 2024-12-16 15:30</a>
+
+朋友圈大佬发的，邀请她参加个论坛啥的，她回了个这个
+
+https://mp.weixin.qq.com/s/JpIzc_llmrDnVKmXWtKfm ...</blockquote>
+笑死，她应得的
+

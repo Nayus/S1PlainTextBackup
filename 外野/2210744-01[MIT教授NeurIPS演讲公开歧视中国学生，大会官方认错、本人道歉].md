@@ -865,3 +865,19 @@ MIT Media Lab=复旦大学中国研究院
 换成这样歧视犹太人的话这会没准已经打包滚蛋了</blockquote>
 除了中国以外任何一个国籍它都不敢写
 
+
+*****
+
+####  一心而用  
+##### 77#         楼主| 发表于 2024-12-16 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66938469&amp;ptid=2210744" target="_blank">darkerray 发表于 2024-12-16 14:56</a>
+
+难道不是迫不得已的叠甲？
+
+美国人对种族问题的敏感度比国内高得多，中国高校说美国人、黑人怎么怎么样，只 ...</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/20/d462c305b6957fa98fb1f31b7f6d9b26/QQ截图20241216170548.png" referrerpolicy="no-referrer">
+

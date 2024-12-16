@@ -8303,3 +8303,78 @@ killkiss法人特典图已出
 
 https://bang-dream.com/discographies/3885
 
+
+*****
+
+####  星天观测  
+##### 3717#       发表于 2024-12-16 17:04
+
+这下杀吻真得买爆了
+
+wsd你终于清醒了
+
+*****
+
+####  skives10  
+##### 3718#       发表于 2024-12-16 17:04
+
+<img src="https://img.saraba1st.com/forum/202412/16/170447la3khqh3encf87kc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0785.jpeg</strong> (348.27 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-16 17:04 上传
+
+揭面版封面
+
+*****
+
+####  瞳映山川  
+##### 3719#       发表于 2024-12-16 17:06
+
+这个揭面版的脸……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 3720#       发表于 2024-12-16 17:07
+
+请问是梦以给你们拍的吗？这大眼美颜开得有点……
+
+
+*****
+
+####  御幸一也  
+##### 3721#       发表于 2024-12-16 17:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202412/16/170846vqb5ksroqhdy5959.jpg" referrerpolicy="no-referrer">
+
+<strong>Ge1cukhaMAALe0J.jpg</strong> (248.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-16 17:08 上传
+
+[https://x.com/chipssalmon/status/1868251391934021923](https://x.com/chipssalmon/status/1868251391934021923)
+
+*****
+
+####  Aendst  
+##### 3722#       发表于 2024-12-16 17:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">算了，是否说明以后就不戴面具了
+
+已经可以为了特典无视封面鬼图了<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 3723#       发表于 2024-12-16 17:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卧槽，P5风格都来了，牛大了
+看了眼节约还没发花篮，你就继续吃吧
+

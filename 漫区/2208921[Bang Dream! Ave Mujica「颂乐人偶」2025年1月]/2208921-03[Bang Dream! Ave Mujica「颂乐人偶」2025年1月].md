@@ -8691,3 +8691,23 @@ wsd你终于清醒了
 她对所有人的称呼都是xx酱 ...</blockquote>
 我看了下应该是翻译问题，b站直接翻译成真奈的
 
+
+*****
+
+####  黑夜落叶秋天  
+##### 3753#       发表于 2024-12-16 19:18
+
+都一年了还能吵系构是不是独角兽么（）
+
+*****
+
+####  rikaren  
+##### 3754#       发表于 2024-12-16 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66940243&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-16 18:21</a>
+
+我回去看了下mygo的mujica部分，初华对甜甜圈的称呼是“真奈”
+
+对没见面多久的睦称呼是“小睦”，演出结束 ...</blockquote>
+再不懂日语也不至于mana-chan都听不出来吧
+

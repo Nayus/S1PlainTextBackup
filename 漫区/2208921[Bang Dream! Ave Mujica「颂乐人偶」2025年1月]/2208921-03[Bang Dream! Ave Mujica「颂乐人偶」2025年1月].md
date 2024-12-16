@@ -8079,3 +8079,16 @@ op反复出现的 现实--镜像 对应结构。
 
 有点像p5r里拒绝活在丸喜创造的世界中的感觉了
 
+
+*****
+
+####  Aendst  
+##### 3703#       发表于 2024-12-16 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66937485&amp;ptid=2208921" target="_blank">NODY 发表于 2024-12-16 12:58</a>
+
+下午mggm在副会场发表讲话的时候我刚好在下面吃牛排盖饭，有人用gpt翻译了部分内容，下面我把缺的少数内容 ...</blockquote>
+从播出开始迎来新时代是指世界观全力全坏吗，它改变了少女乐队动画<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+之前说过武士道真的想做很不一样的新东西，这点倒是越来越可信了
+

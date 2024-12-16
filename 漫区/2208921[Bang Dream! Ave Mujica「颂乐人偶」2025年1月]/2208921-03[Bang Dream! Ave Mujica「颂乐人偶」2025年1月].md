@@ -8230,3 +8230,40 @@ bro只是来赚钱的
 
 2024-12-16 16:45 上传
 
+
+*****
+
+####  御幸一也  
+##### 3714#       发表于 2024-12-16 16:56
+
+李子這次居然單獨挑CP花籃一條推<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+也有和朋友一起送初祥花籃，希望第二季大賣<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202412/16/165518mwc0wqwfp4kmwqwq.jpg" referrerpolicy="no-referrer">
+
+<strong>a8141c74-2bed-43b3-907a-804015b8ab68.jpg</strong> (89.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-16 16:55 上传
+
+<img src="https://img.saraba1st.com/forum/202412/16/165425h66bz4mymmy0mmby.jpg" referrerpolicy="no-referrer">
+
+<strong>Ge6HpezaoAAiEJy.jpg</strong> (899.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-16 16:54 上传
+
+[https://x.com/sasakirico/status/1868580059885576283](https://x.com/sasakirico/status/1868580059885576283)
+
+uisk.jpg
+(214.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-16 16:55 上传
+
+<img src="https://img.saraba1st.com/forum/202412/16/165501oejyajxxsuaxxsfj.jpg" referrerpolicy="no-referrer">
+

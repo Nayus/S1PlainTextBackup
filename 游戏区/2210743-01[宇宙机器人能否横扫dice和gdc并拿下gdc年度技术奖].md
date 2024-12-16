@@ -467,3 +467,45 @@ gdca是gdc大会中一个起兴的节目，gdc的主体是行业开发技术交�
 b乎b站搜一下gdc看出来的是什么。 ...</blockquote>
 确实是行业交流技术为主的，但不要忘了这些开发者多数是持白左精英主义审美的，在评奖上和媒体奖差不了多少
 
+
+*****
+
+####  CyanCloverFern  
+##### 45#       发表于 2024-12-16 19:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66940559&amp;ptid=2210743" target="_blank">AliceinEsoland 发表于 2024-12-16 19:03</a>
+确实是行业交流技术为主的，但不要忘了这些开发者多数是持白左精英主义审美的，在评奖上和媒体奖差不了多 ...</blockquote>
+差不了多少：
+19年 只狼 vs 鹅作剧
+20年 美末2 vs 哈迪斯
+21年 双人成行 vs 邪恶冥刻 （dice这一年选择双人成行）
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+这叫差不了多少
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.89
+
+*****
+
+####  AliceinEsoland  
+##### 46#       发表于 2024-12-16 19:10
+
+<blockquote>CyanCloverFern 发表于 2024-12-16 19:09
+差不了多少：
+
+19年 只狼 vs 鹅作剧
+
+20年 美末2 vs 哈迪斯</blockquote>
+把奖给左逼的大制作垃圾和独立游戏垃圾有什么区别？我的意思是今年不可能给黑猴
+
+*****
+
+####  CyanCloverFern  
+##### 47#       发表于 2024-12-16 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66940607&amp;ptid=2210743" target="_blank">AliceinEsoland 发表于 2024-12-16 19:10</a>
+把奖给左逼的大制作垃圾和独立游戏垃圾有什么区别？我的意思是今年不可能给黑猴 ...</blockquote>
+不给黑猴就成白左了？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.89
+

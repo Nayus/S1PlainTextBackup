@@ -9358,3 +9358,60 @@ AM_icon_02.jpg
 
 <img src="https://img.saraba1st.com/forum/202412/16/215502xxrc7t277rrjbzz7.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives10  
+##### 3810#       发表于 2024-12-16 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66941762&amp;ptid=2208921" target="_blank">zzhh0131 发表于 2024-12-16 21:53</a>
+谁是烤批了，我不是在骂你这个云烤批吗？你这种云狗随便蹭点东西在楼里过过指导瘾了。烤那个不是蹭子玩意 ...</blockquote>
+那不还是回到了最初的问题
+灯这个所谓的阿斯伯格不也是为了体现角色萌点的 
+把它当成角色的基础设定 不是纯纯的搞笑
+如果是蹭这个词让你应激了 那就换一个呗<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  uhiuk  
+##### 3811#       发表于 2024-12-16 21:57
+
+额，上次看到讨论精神症状还是迷宫饭作者被问莱欧斯有没有自闭症
+
+*****
+
+####  zzhh0131  
+##### 3812#       发表于 2024-12-16 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66941784&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-16 21:56</a>
+
+那不还是回到了最初的问题
+
+灯这个所谓的阿斯伯格不也是为了体现角色萌点的 
+
+把它当成角色的基础设定 不是 ...</blockquote>
+把灯和烤放在一起的是不是你？你说你这是什么意思？在隔壁天天胡言乱语的时候就想喷你了，个**
+
+*****
+
+####  akiomn  
+##### 3813#       发表于 2024-12-16 22:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">算了别扯什么精神疾病了，wsd根本不会给角色这种设定
+睦爆了是放在明面上的，不管是op还是pv都是明示，按制作组的尿性pv回收会很快，大概率前期就解决这事了，毕竟睦爆了这段时间祥子精神状态应该还没问题。所以别看pv和op爆的那么狠，实际要解决应该会是最早的一个
+最可怕的反而是一直藏着的祥子和初华，祥子百分百要吃第一集说的“我只有avemujica了”回旋镖，精神绝对要炸一次。而初华是op和pv里都在藏着，说初华全程正常真不信好吧，隔壁爱音那么正常都要爆一次呢
+
+
+*****
+
+####  skives10  
+##### 3814#       发表于 2024-12-16 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66941804&amp;ptid=2208921" target="_blank">zzhh0131 发表于 2024-12-16 21:59</a>
+把灯和烤放在一起的是不是你？你说你这是什么意思？在隔壁天天胡言乱语的时候就想喷你了，个** ...</blockquote>
+我感觉你也是个纯傻逼
+看到烤的元素就能应激成这样 
+连人话都瞬间看不懂了 直接红温 
+算了
+不歪楼 屏蔽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

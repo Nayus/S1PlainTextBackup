@@ -986,3 +986,15 @@ MIT Media Lab=复旦大学中国研究院
 
 然后追加一个，到现在K. H.还一个词没往外蹦，也挺难崩。
 
+
+*****
+
+####  f15  
+##### 87#       发表于 2024-12-16 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66940257&amp;ptid=2210744" target="_blank">百猪夜行 发表于 2024-12-16 18:24</a>
+台下这么多羔华没一个敢当场喷回去或丢个鞋子上去，难怪会被白皮猪骑在头上侮辱。
+
+—— 来自 鹅球 v3.1. ...</blockquote>
+啊？不就是因为台下一个中国女生现场回怼才让此事成为新闻的吗
+

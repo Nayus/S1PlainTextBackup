@@ -437,3 +437,102 @@ Morfonica，在新冠疫情艰难时期，以纯白的服装支撑着现场演�
 Roselia 2025.02上海场批文，staff申报人数创新高
 [http://wsbs.wgj.sh.gov.cn/shwgj_ ... 7830193bee95a9e1912](http://wsbs.wgj.sh.gov.cn/shwgj_ywtb/core/web/welcome/index!getDocumentinfobyId.action?id=000000009367b7830193bee95a9e1912)
 
+
+*****
+
+####  紫吹兰  
+##### 26674#         楼主| 发表于 2024-12-16 09:44
+
+ 本帖最后由 紫吹兰 于 2024-12-16 09:47 编辑 
+
+之前在百综9.0的回复，既然9.0被打入了格斗区（还是因为我自己的原因）。还是把这个回复在鸡狗楼再备份一下吧。战吧 [https://tieba.baidu.com/p/9323568807](https://tieba.baidu.com/p/9323568807)B战 [https://www.bilibili.com/opus/1009088440079220742](https://www.bilibili.com/opus/1009088440079220742)
+在BanG Dream! Ave Mujica这部疑似独角兽老师(绫奈由仁子/綾奈ゆにこ)在邦邦企划最后的作品即将开播的时间点，最后追忆一下从偶像活动、轻拍、一直到MyGO!!!!!,独角兽老师这十年来带给我的感动与折磨。
+我第一次认识她的时候还是正在吃着火锅磕着cp安利播到78的偶活,吹嘘兰尤多么甜
+
+<img src="https://img.saraba1st.com/forum/202412/16/093033d7vgzkinkqil6aey.jpg" referrerpolicy="no-referrer">
+
+<strong>dc5d6d564c6aced74ed0d2e60bf67a824032.png@1192w.webp.jpg</strong> (22.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-16 09:30 上传
+
+<img src="https://img.saraba1st.com/forum/202412/16/093034wocaafo7sfbeiby3.jpg" referrerpolicy="no-referrer">
+
+<strong>71b8e44dfa346327ff2e98b85f2510cf4032.png@536w_122h.webp.jpg</strong> (1.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-16 09:30 上传
+
+结果第二天79一出来就被独角兽老师捅了个透心凉
+
+<img src="https://img.saraba1st.com/forum/202412/16/093034b1bok6ypxzf2v4fb.jpg" referrerpolicy="no-referrer">
+
+<strong>10cd7790aacfb40963ac98957162b1764032.png@1192w.webp.jpg</strong> (66.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-16 09:30 上传
+
+<img src="https://img.saraba1st.com/forum/202412/16/093708tmz55norqrqyk55z.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20241213004233.jpg</strong> (42.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-16 09:37 上传
+
+偶活79这个单集里前1/3是尤里卡默默期待的青春少女心思，中间1/3是撕心裂肺却又无处诉说的默默分手，最后1/3是枫盛大的接盘，一集至少拍了偶活其他编剧10集的信息量，一集看完脑子都是蒙的。现在回头看来，这一集已经展示出了独角兽老师对激烈变动的感情的细腻把控与狂风暴雨般的灌输巨大信息量相结合的风格。夸张一点（也可能是没夸张）地说，在这短短的一集里，独角兽老师把观众的心用锯子锯开后又用糖水糊了起来。以至于在轻拍开播的时候：
+
+<img src="https://img.saraba1st.com/forum/202412/16/093036pt8ru7wnff8078nq.jpg" referrerpolicy="no-referrer">
+
+<strong>5700aa848501b8135a44685a02cffd444032.png@1000w_674h.webp.jpg</strong> (13.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-16 09:30 上传
+
+另外在轻拍在播期间，我为了yyk发起了一个投票，有时会被当做第0届挺好萌，也算是日后更加正规的挺好萌的雏形。
+
+<img src="https://img.saraba1st.com/forum/202412/16/093036op2zqk27g1p3ofof.jpg" referrerpolicy="no-referrer">
+
+<strong>d6bc66aa54a653beecd469e6bacd5fe44032.png@1192w.webp.jpg</strong> (49.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-16 09:30 上传
+
+然而在这个简陋的投票里yyk还是输给了曜，谁能想到，在多年以后，独角兽的另一部作品能够连续两年横扫挺好萌，或许这也是一种命中注定。
+随后是邦1开播的时候：
+
+<img src="https://img.saraba1st.com/forum/202412/16/093037dpi7lpzi7wt7yy7n.jpg" referrerpolicy="no-referrer">
+
+<strong>a515428490de6efeecde8be1673e23514032.png@898w_632h.webp.jpg</strong> (8.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-16 09:30 上传
+
+然而由于后面几季邦邦的四平八稳，我以为岁月已经磨平了独角兽的棱角，所以MyGO!!!!!开播的时候我倒是没有太大的反映（尽管我当时开了S1的MyGO与Mujica专楼)。
+
+<img src="https://img.saraba1st.com/forum/202412/16/093037hlkzsr00ia9am00r.jpg" referrerpolicy="no-referrer">
+
+<strong>e15c8ca2e0b906daed3fc250b73361134032.png@1192w.webp.jpg</strong> (33.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-16 09:30 上传
+
+结果独角兽爆了个最大的直接将我打回了10年前的那个懵懵懂懂的下午...或许那也是属于我的元和二年。
+
+<img src="https://img.saraba1st.com/forum/202412/16/093821f7urs3lmmvcm8rus.png" referrerpolicy="no-referrer">
+
+<strong>元和2年.png</strong> (1.4 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-16 09:38 上传
+
+（这张图大概就是我在MyGO期间的心情）或许我是为数不多为了独角兽老师而入坑邦邦企划的人，对于即将正式开播的Mujica动画可以说是五味杂陈。各种迹象来看，Mujica的动画将是独角兽老师在邦邦企划的最后一舞，按照老师自己在访谈中所说,MyGO!!!!!与Mujica相加才是完整的故事，然而这一年来独角兽老师在X上对于Mujica的动画避而不谈，甚至在点映的当天也无从表示。而独角兽老师对Mujica动画的缄默也让我这一年来对于Mujica动画充满了焦虑，当点映的repo传来独角兽老师依然是系构的消息后，我也多少松了一口气。从邦邦第一季到Mujica，独角兽老师和邦邦企划一同走过了8年的旅程，如果我们将MyGO!!!!!与Ave Mujica看作一部作品的话，那么可以说独角兽在这最后的作品中终于得以做回自己（尽管独角兽老师对Mujica的沉默还是会来带一点疑虑）。无论如何我都希望独角兽老师能够在邦邦这个舞台上的最后一舞中能够不留遗憾地尽情传达出自己所希望诉说的故事，就像当年独角兽老师为兰尤这个cp送上了最盛大的葬礼一样，希望独角兽老师能够和制作组一起为这段旅程的终点送上最盛大的葬礼。
+

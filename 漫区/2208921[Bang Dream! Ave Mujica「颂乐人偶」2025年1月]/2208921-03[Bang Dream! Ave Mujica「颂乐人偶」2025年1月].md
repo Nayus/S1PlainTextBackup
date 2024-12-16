@@ -7851,3 +7851,18 @@ ppp 萝 蝶 ras mygo 鸡，即使不算管人团都是6个
 
 —— 来自 vivo V2183A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  蜇灵  
+##### 3684#       发表于 2024-12-16 09:09
+
+小祥看到大金毛作的词没感觉有什么不对劲吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  好想看Mujica啊  
+##### 3685#       发表于 2024-12-16 09:11
+
+祥子：初华这么大的人了，还挺中二的，不过我也不是不能理解
+

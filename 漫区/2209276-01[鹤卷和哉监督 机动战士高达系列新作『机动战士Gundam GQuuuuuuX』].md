@@ -15629,3 +15629,16 @@ SEED当初就被所谓的UC青没有口德的抨击，他这要是真成了新�
 给女主pose对应上我剑算明日香私货吗</blockquote>
 不如担心男主叫shuji还开和2号机80%查重的红高达会不会被鹤卷当渣男真嗣的投影替身直接杀了祭天
 
+
+*****
+
+####  RE㐅ia  
+##### 1465#       发表于 2024-12-17 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66950072&amp;ptid=2209276" target="_blank">刺客ares 发表于 2024-12-17 22:44</a>
+
+女主身上现在有代哥塞的骡子配色哈啰和竹的三角恋小挂件彩蛋了，不知道还有没有地方继续塞
+
+不如担心男主叫s ...</blockquote>
+什么挂件彩蛋？
+

@@ -15498,3 +15498,21 @@ SEED当初就被所谓的UC青没有口德的抨击，他这要是真成了新�
 
 怎么这么变态啊 人身攻击大集合
 
+
+*****
+
+####  PascalLefèvre  
+##### 1457#       发表于 2024-12-17 21:55
+
+可能我对庵野和他的作品都没有什么太强烈的感觉，但是这些痞黑给我一种特别强烈的曾经是eva痴的即视感<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  otaku21126  
+##### 1458#       发表于 2024-12-17 22:03
+
+这些人是不是大部分都是香党啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

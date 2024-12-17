@@ -12821,3 +12821,46 @@ Screenshot_2024-12-16-00-42-39-303_tv.danmaku.bili.jpg
 
 搞不懂
 
+
+*****
+
+####  csolfans  
+##### 1257#       发表于 2024-12-17 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66949740&amp;ptid=2201887" target="_blank">黒烨 发表于 2024-12-17 21:53</a>
+搞不懂</blockquote>
+请问说了啥？
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+
+*****
+
+####  黒烨  
+##### 1258#       发表于 2024-12-17 22:01
+
+ 本帖最后由 黒烨 于 2024-12-17 22:04 编辑 
+<blockquote>csolfans 发表于 2024-12-17 21:54
+请问说了啥？
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 v3.0.0-alpha</blockquote>
+
+1.整季没有对手的存在啊ww（阴阳怪气）
+
+2.三期整体和京吹3一样
+
+3.吐槽动画节奏
+
+*****
+
+####  离心  
+##### 1259#       发表于 2024-12-17 22:01
+
+ 本帖最后由 离心 于 2024-12-17 22:03 编辑 
+<blockquote>csolfans 发表于 2024-12-17 21:54
+请问说了啥？
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 v3.0.0-alpha</blockquote>
+
+机翻看了看，就是第三期没对手和12集讲完一年还是太快了。emmmm只能说太君的想法是真的不懂，不是说京吹三环大陆好评吗？还有太君不满意啊www如果京吹三真的是星三的剧本都不至于这样吧
+

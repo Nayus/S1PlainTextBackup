@@ -146,3 +146,31 @@
 
 为什么还有人觉得是误诊，是完全看不懂这集最后的演出嘛（
 
+
+*****
+
+####  Piano-Forest  
+##### 197#         楼主| 发表于 2024-12-17 21:54
+
+第12話「ネガポジアングラー」
+
+病院からの帰路に訪れた釣り場で、偶然の再開を果たした常宏と貴明。喧嘩のしこりもあり、どこかぎこちないまま釣り糸を垂れる二人は、狙いのランカーシーバスに遭遇する。
+
+脚本：鈴木智尋
+
+絵コンテ：柴田 匠、藤井俊郎、上村 泰、末田宜史
+
+演出：山本貴之、梅本駿平
+
+演出補佐：藤澤海
+
+総作画監督：谷口宏美
+
+作画監督：南井尚子、緒方歩惟、三島詠子、栗田新一、東 亮太、梁 博雅、三好和也
+<img src="https://p.sda1.dev/20/7bd46f25e1ea6ef1a9ba66d419e1bc79/p_001.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/54b67b5797a9a9a28aa3a0ecf2691383/p_002.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/fa7524f4005eb9e9062a5d22b1f5c4db/p_003.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/6280a498114fbcd623520eab21d4387f/p_004.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/0ff537dce3e9abf8c131c92ff088883a/p_005.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/60a28be96653440f5d2a89528446ea07/pic006.jpg" referrerpolicy="no-referrer">
+

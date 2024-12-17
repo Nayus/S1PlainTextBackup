@@ -12770,3 +12770,28 @@ Screenshot_2024-12-16-00-42-39-303_tv.danmaku.bili.jpg
 
 这集我觉得能有6的，看不懂太君怎么想的了
 
+
+*****
+
+####  离心  
+##### 1253#       发表于 2024-12-17 21:39
+
+<img src="https://img.saraba1st.com/forum/202412/17/213934so9o63apj5baol3l.jpg" referrerpolicy="no-referrer">
+
+<strong>20241217-213857_Ge_S_Q3bwAQxpPT.jpg</strong> (161.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-17 21:39 上传
+
+*****
+
+####  csolfans  
+##### 1254#       发表于 2024-12-17 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66949618&amp;ptid=2201887" target="_blank">黒烨 发表于 2024-12-17 21:35</a>
+这集我觉得能有6的，看不懂太君怎么想的了</blockquote>
+我觉得上7都没问题……
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

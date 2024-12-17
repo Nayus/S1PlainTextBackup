@@ -10650,3 +10650,18 @@ NovaRoll🌟🌯
 cm里还是有疑点，我回看了下第一集，祥子的黑色箱子在cm里没有，第二个是初华的琴盒呢？
 按照pv会尽早回收看，祥子还要回老宅一趟
 
+
+*****
+
+####  PDQ4  
+##### 3924#       发表于 2024-12-17 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66949476&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2024-12-17 21:17</a>
+
+这构图也太浮気現場了</blockquote>
+原来喵的挑衅和自来熟是因为默认祥子身边的人会是自己（XD）
+
+进来以后发现人人都比自己领先
+
+人生宣言害人不浅<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

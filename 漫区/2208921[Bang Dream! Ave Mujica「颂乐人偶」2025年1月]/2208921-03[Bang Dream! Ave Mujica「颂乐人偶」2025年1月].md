@@ -9901,3 +9901,14 @@ https://x.com/slug10000/status/1868670896678027603?s=46&amp;t=IZGx0N13SOtHALpwG0
 两把schecter咋可能会和你邦联动，唯一有指望的是esp会不会出一把乌米灵的贝斯 ...</blockquote>
 妥妥的联动啊，斯科特一直在转发鸡团拿琴拍的照，没拿琴都不转的，很功利
 
+
+*****
+
+####  novalli  
+##### 3856#       发表于 2024-12-17 12:35
+
+祥子把队友变成鬼确实言过其实，但祥子可以算是催化剂。如果遇到的是白祥，大概也不会以爆炸的形式解决问题就是了。
+不过嗜血长颈鹿全都爱口牙<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.94-alpha
+

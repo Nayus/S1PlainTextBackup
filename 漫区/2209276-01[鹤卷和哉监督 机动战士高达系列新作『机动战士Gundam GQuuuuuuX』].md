@@ -15324,3 +15324,16 @@ Screen Shot 2024-12-13 at 3.33.14 PM.png
 
 这就第二弹了？
 
+
+*****
+
+####  赤黑的假面  
+##### 1442#       发表于 2024-12-17 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66944613&amp;ptid=2209276" target="_blank">刺客ares 发表于 2024-12-17 11:06</a>
+
+高吧看到个比较有意思的说法，难道本作才是真令和seed吗
+
+seed是换了新皮的0079骨架，本作是0079外皮的新骨 ...</blockquote>
+SEED当初就被所谓的UC青没有口德的抨击，他这要是真成了新世纪SEED，那别人不得张口就是F-WORD啊
+

@@ -842,3 +842,16 @@ PS5匹配时间长，容易掉线的问题。只要把跨平台游戏关了就�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  jy000129  
+##### 5636#       发表于 2024-12-17 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66947642&amp;ptid=2170852" target="_blank">风萧飒 发表于 2024-12-17 16:57</a>
+最近贴吧也有讨论，光能出来以后，可以看到超级地球的殖民地居住条件其实很不错，宣传视频甚至是真的
+不过 ...</blockquote>
+现在几个重武器瞄的准确实可以一发秒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

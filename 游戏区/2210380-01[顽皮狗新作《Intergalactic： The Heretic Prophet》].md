@@ -2790,3 +2790,11 @@ reddit版清一色闭口不谈丑角+各种角度“我太期待了” 是我逛
 
 TGA纵容尼尔得寸进尺直接玩的更大
 
+
+*****
+
+####  hcho  
+##### 268#       发表于 2024-12-17 17:36
+
+我不管我只想看到血流成河，索尼什么时候死啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

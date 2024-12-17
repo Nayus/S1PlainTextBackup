@@ -15337,3 +15337,29 @@ Screen Shot 2024-12-13 at 3.33.14 PM.png
 seed是换了新皮的0079骨架，本作是0079外皮的新骨 ...</blockquote>
 SEED当初就被所谓的UC青没有口德的抨击，他这要是真成了新世纪SEED，那别人不得张口就是F-WORD啊
 
+
+*****
+
+####  刺客ares  
+##### 1443#       发表于 2024-12-17 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66947667&amp;ptid=2209276" target="_blank">0aleph37 发表于 2024-12-17 17:00</a>
+
+这就第二弹了？</blockquote>
+第一眼看到还以为是什么忍者跑
+
+
+*****
+
+####  刺客ares  
+##### 1444#       发表于 2024-12-17 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66947757&amp;ptid=2209276" target="_blank">赤黑的假面 发表于 2024-12-17 17:09</a>
+
+SEED当初就被所谓的UC青没有口德的抨击，他这要是真成了新世纪SEED，那别人不得张口就是F-WORD啊 ...</blockquote>
+现在不已经被各方围剿了，正片出来不知要战成什么样，等不及了。
+
+就这个疑似招魂nz的背景设定真在剧里演出来要在各大论坛刷屏的。
+
+更别提还有厨豚大战，UC青破口大骂别蹭，种厨入场踩UC，水星踩商业热度，EVA黑入场痛骂痞子等各种大活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

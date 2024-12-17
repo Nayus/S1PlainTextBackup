@@ -9847,3 +9847,13 @@ https://x.com/slug10000/status/1868670896678027603?s=46&amp;t=IZGx0N13SOtHALpwG0
 联动琴不知几时会出</blockquote>
 两把schecter咋可能会和你邦联动，唯一有指望的是esp会不会出一把乌米灵的贝斯
 
+
+*****
+
+####  vigada  
+##### 3851#       发表于 2024-12-17 11:08
+
+<blockquote>ml1642879 发表于 2024-12-17 10:09
+两把schecter咋可能会和你邦联动，唯一有指望的是esp会不会出一把乌米灵的贝斯 ...</blockquote>
+海铃的贝斯也是schecter的
+

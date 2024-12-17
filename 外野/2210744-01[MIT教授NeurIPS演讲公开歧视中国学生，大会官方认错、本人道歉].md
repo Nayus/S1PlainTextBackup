@@ -1226,3 +1226,13 @@ MIT 的 Media Lab 是有无数个组组成的，说实话 director 除了签签�
 
 别找补了，歧视就是歧视
 
+
+*****
+
+####  诗人邪廷  
+##### 108#       发表于 2024-12-17 11:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">如果你说ppt是擦边，那楼下贴的邮件还有啥好说的。
+
+这种白皮剑冢不就是传统意义上的反华急先锋，还有人会能为这种出生辩那就是纯纯养殖业了。
+

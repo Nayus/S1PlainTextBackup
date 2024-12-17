@@ -12875,3 +12875,11 @@ Screenshot_2024-12-16-00-42-39-303_tv.danmaku.bili.jpg
 机翻看了看，就是第三期没对手和12集讲完一年还是太快了。emmmm只能说太君的想法是真的不懂，不是说京吹 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">幽默 不是说那边很喜欢京吹3吗
 
+
+*****
+
+####  日野下花帆  
+##### 1261#       发表于 2024-12-17 22:50
+
+虽然这季节奏是快了点但是这集看上去不是会很让人难受的那种吧 太君太奇葩了啊
+

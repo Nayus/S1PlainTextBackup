@@ -1195,3 +1195,11 @@ https://mp.weixin.qq.com/s/JpIzc_llmrDnVKmXWtKfm ...</blockquote>
 https://mp.weixin.qq.com/s/JpIzc_llmrDnVKmXWtKfm ...</blockquote>
 这都不忘提一嘴她搞的但我之前从未听说过的情感计算。
 
+
+*****
+
+####  最爱赛姐  
+##### 105#       发表于 2024-12-17 10:12
+
+没办法，难道我还能按着海外高华的手帮他们反抗吗，他们乐意被歧视也我没辙啊，这个公开歧视的白女现在不就是我国常时说的平稳落地，大事化小了
+

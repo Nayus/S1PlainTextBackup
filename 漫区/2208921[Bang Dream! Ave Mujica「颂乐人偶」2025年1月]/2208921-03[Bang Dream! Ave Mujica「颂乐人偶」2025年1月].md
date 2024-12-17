@@ -9837,3 +9837,13 @@ https://x.com/slug10000/status/1868670896678027603?s=46&amp;t=IZGx0N13SOtHALpwG0
 反正不可能是个轻松的故事了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确实，独角兽虽然对祥子很宠爱，但本人又很恶趣味，只有avemujica这句话肯定是回旋镖，到时候来个四个队友全散了，祥子道心破碎然后醒悟去拉回队友我都信
 
+
+*****
+
+####  ml1642879  
+##### 3850#       发表于 2024-12-17 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66943408&amp;ptid=2208921" target="_blank">hkguty 发表于 2024-12-17 08:46</a>
+联动琴不知几时会出</blockquote>
+两把schecter咋可能会和你邦联动，唯一有指望的是esp会不会出一把乌米灵的贝斯
+

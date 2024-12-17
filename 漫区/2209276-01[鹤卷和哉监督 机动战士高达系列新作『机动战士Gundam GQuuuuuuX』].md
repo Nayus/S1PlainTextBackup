@@ -15642,3 +15642,50 @@ SEED当初就被所谓的UC青没有口德的抨击，他这要是真成了新�
 不如担心男主叫s ...</blockquote>
 什么挂件彩蛋？
 
+
+*****
+
+####  刺客ares  
+##### 1466#       发表于 2024-12-17 23:09
+
+<img src="https://img.saraba1st.com/forum/202412/17/230704uxbua1a6xevt7aav.png" referrerpolicy="no-referrer">
+
+<strong>ff1ca9b09b0820a62986bb79ca69e82.png</strong> (81.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-17 23:07 上传
+
+<img src="https://img.saraba1st.com/forum/202412/17/230708s8aajbkk8w04lbi4.png" referrerpolicy="no-referrer">
+
+<strong>2e0234ace84655a2dd4010cef26a44f.png</strong> (297.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-17 23:07 上传
+
+<img src="https://img.saraba1st.com/forum/202412/17/230714lvlg8b18g8vvqygn.png" referrerpolicy="no-referrer">
+
+<strong>5f1f080fe1f95228451f57e89081cc4.png</strong> (689.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-17 23:07 上传
+
+这个是鹤卷和竹姐当初在日本动画人展览会上合作的短片彩蛋
+<strong>《I can Friday by day!》</strong>
+
+当初看了印象很深刻，讲一男两女三角恋的，内容很有创意
+[https://www.bilibili.com/video/B ... 76d484bd41f4d0f65c8](https://www.bilibili.com/video/BV1bs411V7UQ/?spm_id_from=333.337.search-card.all.click&amp;vd_source=db3601192c97a76d484bd41f4d0f65c8)
+
+*****
+
+####  刺客ares  
+##### 1467#       发表于 2024-12-17 23:12
+
+ 本帖最后由 刺客ares 于 2024-12-17 23:15 编辑 
+
+女主挂的这个松鼠代表的是少女的爱情，短片里其他两个代表理智和心
+
+短片表现的像是打仗一样，其实就是一对闺蜜为了争帅哥撕破脸最后关系都被破坏的故事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -12899,3 +12899,19 @@ Screenshot_2024-12-16-00-42-39-303_tv.danmaku.bili.jpg
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  ads147147  
+##### 1263#       发表于 2024-12-18 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66949795&amp;ptid=2201887" target="_blank">离心 发表于 2024-12-17 22:01</a>
+机翻看了看，就是第三期没对手和12集讲完一年还是太快了。emmmm只能说太君的想法是真的不懂，不是说京吹 ...</blockquote>
+京吹3的bd数确实不错，至少愿意掏钱的人也认可这套嘛，就和现在3期一样cd的数据挺不错的了。
+
+当然nico这个反应情绪的地方讨到好脸色就不是目前星3这个水平能做得到的，不过面对摆烂二人组，估计也没啥好办法，凑合看咯。
+
+愈发觉得比起高达，棉田确实更会拍偶像。。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

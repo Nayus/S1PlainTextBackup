@@ -9976,3 +9976,31 @@ https://x.com/slug10000/status/1868670896678027603?s=46&amp;t=IZGx0N13SOtHALpwG0
 [https://weibo.com/1886672467/5112639295849153](https://weibo.com/1886672467/5112639295849153)
 新cm
 
+
+*****
+
+####  阿萨德飞过去  
+##### 3863#       发表于 2024-12-17 18:48
+
+真出现甜甜圈了，不赖<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 3864#       发表于 2024-12-17 18:57
+
+海铃那是海希戏份吧，还在喝饮料
+
+PV里初喵对线也是这里吧，原来大伙都在啊
+
+祥子怎么又被拿捏了，在车站，不会喵想跟着去祥子家吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且还有新台词
+
+海铃这话怎么听起来好不妙
+
+睦说的那是什么坏掉了，还喊了祥子，来个听译佬<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+以及这里睦那个震惊的表情前面驶过的确实是电车了，先导2人偶那个电车不知道是不是和这里有对应
+

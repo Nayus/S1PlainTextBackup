@@ -15406,3 +15406,14 @@ SEED当初就被所谓的UC青没有口德的抨击，他这要是真成了新�
 还没开播就在bgm斩获2.8分好评的含金量（</blockquote>
 还没开播就能评分吗？bgm太有含金量啦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸波白野扎比子  
+##### 1449#       发表于 2024-12-17 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66948230&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2024-12-17 18:11</a>
+
+还没开播就在bgm斩获2.8分好评的含金量（</blockquote>
+诶~<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

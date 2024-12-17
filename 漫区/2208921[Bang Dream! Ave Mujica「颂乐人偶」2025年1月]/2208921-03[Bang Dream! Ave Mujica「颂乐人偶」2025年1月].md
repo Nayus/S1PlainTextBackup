@@ -10605,3 +10605,15 @@ NovaRoll🌟🌯
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第二集就要和队友住，中途破防回大豪斯的概率不是**增加了吗
 
+
+*****
+
+####  山ノ内花音  
+##### 3920#       发表于 2024-12-17 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66949381&amp;ptid=2208921" target="_blank">狮子咕 发表于 2024-12-17 21:04</a>
+第二集就要和队友住，中途破防回大豪斯的概率不是**增加了吗</blockquote>
+等她失去一切 音乐一事无成 恋爱一败涂地时
+回大豪斯的可能性确实有
+好好思考之后再出来就行了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -15451,3 +15451,31 @@ SEED当初就被所谓的UC青没有口德的抨击，他这要是真成了新�
 
 第二弹这个姿势应该是PV里从ms手臂上起跳的动作吧
 
+
+*****
+
+####  RE㐅ia  
+##### 1453#       发表于 2024-12-17 21:07
+
+笑不活了。隔着屏幕都能感受到对痞子的怨气
+
+<img src="https://img.saraba1st.com/forum/202412/17/210631yhcrch6zc19m2rr2.png" referrerpolicy="no-referrer">
+
+<strong>8EAA4D60-6247-42CD-A77C-2A912AF30A6F.png</strong> (678.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-17 21:06 上传
+
+
+*****
+
+####  PascalLefèvre  
+##### 1454#       发表于 2024-12-17 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66949399&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2024-12-17 21:07</a>
+笑不活了。隔着屏幕都能感受到对痞子的怨气</blockquote>
+我靠bgm这么疯狂的么<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

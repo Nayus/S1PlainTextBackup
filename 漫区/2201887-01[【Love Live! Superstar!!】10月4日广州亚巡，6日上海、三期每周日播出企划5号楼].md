@@ -12728,3 +12728,13 @@ Screenshot_2024-12-16-00-42-39-303_tv.danmaku.bili.jpg
 
 先前插入曲一初动15079-抽选是东京day2
 
+
+*****
+
+####  csolfans  
+##### 1249#       发表于 2024-12-17 21:05
+
+鱼这生日会宣发和开票也太极限了吧
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

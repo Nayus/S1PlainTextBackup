@@ -2838,3 +2838,11 @@ T3奥伯龙+旧剑技能全开，旧剑第二发宝具+左1的宝具/旧剑自�
 
 90+拿大小班杨速通<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 15472#       发表于 2024-12-17 19:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">漏油居然打那么久 我打了20回合就觉得这高难有点傻X了 中间放炸弹强行不给光炮
+

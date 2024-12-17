@@ -12883,3 +12883,19 @@ Screenshot_2024-12-16-00-42-39-303_tv.danmaku.bili.jpg
 
 虽然这季节奏是快了点但是这集看上去不是会很让人难受的那种吧 太君太奇葩了啊
 
+
+*****
+
+####  ads147147  
+##### 1262#       发表于 2024-12-18 00:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66949740&amp;ptid=2201887" target="_blank">黒烨 发表于 2024-12-17 21:53</a>
+搞不懂</blockquote>
+有什么搞不懂的，固定一批人肯定打差评，你1给的少就自然暴跌了。
+
+这是2期的债，好好品味。
+
+不过说起来你花缪水星结局都是一个尿性，该说他没长进还是被压住不敢摇滚呢。。。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

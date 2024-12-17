@@ -1134,3 +1134,20 @@ MIT 学联做出回应了</blockquote>
 
 洋人到底是怎么养出跑得这么快的狗的，太厉害了，不服不行，恐怕以后就靠这个对抗东大的机械狗了
 
+
+*****
+
+####  千代  
+##### 100#       发表于 2024-12-17 08:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66938720&amp;ptid=2210744" target="_blank">C.W.Nimitz 发表于 2024-12-16 15:24</a>
+哈佛社科大牛做研究，结论造假
+
+MIT生物学研究，细胞图是p的
+
+以上俩课题教授都是白人，俩人都是石锤的学术 ...</blockquote>
+斯坦福监狱实验值得一提，现在被批臭了，压根就是造假而且学术同行重复不出结果，硬是大肆宣传几十年<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+还有中微子超光速，常温超导（韩国一次，美国一次）
+
+—— 来自 HUAWEI OCE-AN50, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

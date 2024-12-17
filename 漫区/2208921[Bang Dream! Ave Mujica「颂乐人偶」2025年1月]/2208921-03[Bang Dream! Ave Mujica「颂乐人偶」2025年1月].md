@@ -9795,3 +9795,17 @@ https://x.com/slug10000/status/1868670896678027603?s=46&amp;t=IZGx0N13SOtHALpwG0
 
 可能是更不健康的双子吧
 
+
+*****
+
+####  skives10  
+##### 3846#       发表于 2024-12-17 08:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66942982&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-17 03:13</a>
+半夜突醒沉思，睦祥不知道能不能变第二个冰川双子。
+
+既然给出了半身这么重量级的设定，实际剧情该如何写呢 ...</blockquote>
+先做好全篇都只会用喂刀的方式发糖的心理准备
+到时候才能捡到一点就很开心
+反正不可能是个轻松的故事了
+

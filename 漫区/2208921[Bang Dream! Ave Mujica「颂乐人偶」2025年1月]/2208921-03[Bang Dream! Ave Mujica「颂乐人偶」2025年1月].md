@@ -10387,3 +10387,29 @@ OP那么帅的祥p去哪里了，怎么CM里这么楚楚可怜，祥嬷又要赢
 
 第一集应该是祥子赶着出新歌（说是要写出四首）所以回家加班写了吧
 
+
+*****
+
+####  御幸一也  
+##### 3902#       发表于 2024-12-17 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66948693&amp;ptid=2208921" target="_blank">ytttsuuuba 发表于 2024-12-17 19:19</a>
+
+睦那个台词是：mujicaが壊れたら、祥は(要是mujica毁坏了，那祥)这个就是PV里睦的那个镜头啊，好多人都脑补 ...</blockquote>
+唉 睦關注的怎麼都是祥子 這可怎麼辦呀<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  桜庭千景  
+##### 3903#       发表于 2024-12-17 20:32
+
+祥公溃败。。实际统治时间，两周间。。。。
+
+*****
+
+####  山ノ内花音  
+##### 3904#       发表于 2024-12-17 20:33
+
+别急 随着剧情进展 一定会攻起来的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

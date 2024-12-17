@@ -10450,3 +10450,84 @@ OP那么帅的祥p去哪里了，怎么CM里这么楚楚可怜，祥嬷又要赢
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看第二集怎么写吧，cm行李箱是祥子第一集搬出来后拿的那个。说实话我觉得住睦家概率挺低的，但是住初华家的话……祥子秘密不就前期暴露给初华了？
 
+
+*****
+
+####  狮子咕  
+##### 3909#       发表于 2024-12-17 20:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们不要说的好像初华真就一无所知一样……好歹大明星，喵梦看得出祥子一身旧衣服，难道初华就看不出来吗？何况还是哭着给自己打电话，无非是看破不说破罢了
+
+*****
+
+####  山ノ内花音  
+##### 3910#       发表于 2024-12-17 20:47
+
+小祥在队友面前就像一张白纸一样
+
+*****
+
+####  allesdg  
+##### 3911#       发表于 2024-12-17 20:48
+
+所以现在这几个分镜是可以串起来了吧，元和二年和现在车站场景的构图再现和对称，看地砖缝两个人两次都是站在一条线上最远的两端，算是发了一把物是人非的距离感刀子，此情此景触发元和二年回忆，这样一来某群体一直嚼舌根的睦早期入队的消极态度也没什么话可说了吧，害怕重蹈覆辙，“我只有ave mujica了……”“要是mujica破裂的话，祥……”，这是才真的散团ptsd啊，另一方面，第一集结尾着重铺垫了睦的不妙状况，都以为接着就要自顾不暇马上爆了，结果回头还是在担心祥子的事，无需多言
+
+扔书恐怕要到第三集了吧，比如接个回忆再发发玻璃糖，情绪烘托到位突然一转现实刀子绝望扔书ed小曲……
+
+<img src="https://img.saraba1st.com/forum/202412/17/204701thxwoxhdh5o81io8.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20241217204527.jpg</strong> (72.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-17 20:47 上传
+
+<img src="https://img.saraba1st.com/forum/202412/17/204705h73eggzsd6ddy72d.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ77cw-7n8qK1vT3cSsg-g0.jpg</strong> (69.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-17 20:47 上传
+
+<img src="https://img.saraba1st.com/forum/202412/17/204711ii0gf3aezgy5l9ef.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ30cz-6gxK19T3cSsg-g0.jpg</strong> (46.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-17 20:47 上传
+
+<img src="https://img.saraba1st.com/forum/202412/17/204715zh6bgpblno4bgwnw.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ30cw-1jt3K13T3cSsg-g0.jpg</strong> (40.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-17 20:47 上传
+
+*****
+
+####  贰臣  
+##### 3912#       发表于 2024-12-17 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66949245&amp;ptid=2208921" target="_blank">狮子咕 发表于 2024-12-17 20:46</a>
+
+你们不要说的好像初华真就一无所知一样……好歹大明星，喵梦看得出祥子一身旧衣服，难道初华就看不出来吗？ ...</blockquote>
+初华知不知道和祥子愿不愿意在她面前示弱是两码事
+
+当然祥子要是真愿意那我嘴都笑要歪了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  狮子咕  
+##### 3913#       发表于 2024-12-17 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66949272&amp;ptid=2208921" target="_blank">贰臣 发表于 2024-12-17 20:49</a>
+
+初华知不知道和祥子愿不愿意在她面前示弱是两码事
+
+当然祥子要是真愿意那我嘴都笑要歪了好吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喵梦：多大点事儿，我来助你——
+

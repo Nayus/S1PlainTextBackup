@@ -895,3 +895,47 @@ danime注册巨麻烦，很不厚道的直接去看corocorochannel的官方视�
 
 还真的重现了 还原度很高
 
+
+*****
+
+####  holoan  
+##### 10432#         楼主| 发表于 2024-12-17 18:16
+
+今天wwe捏shion和马自立
+
+*****
+
+####  holoan  
+##### 10433#         楼主| 发表于 2024-12-17 20:50
+
+果然真的。
+
+<img src="https://img.saraba1st.com/forum/202412/17/205034mk4ooieb2l322zno.png" referrerpolicy="no-referrer">
+
+<strong>(36) 【#ホロカ新情報】まもなく第二弾発売❗️ホロカの最新情報、どどんと解禁します.png</strong> (176.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-17 20:50 上传
+
+<img src="https://img.saraba1st.com/forum/202412/17/205039k9bcxgua9mrm9lac.png" referrerpolicy="no-referrer">
+
+<strong>(36) 【#ホロカ新情報】まもなく第二弾発売❗️ホロカの最新情報、どどんと解禁します.png</strong> (100.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-17 20:50 上传
+
+*****
+
+####  holoan  
+##### 10434#         楼主| 发表于 2024-12-17 20:53
+
+<img src="https://img.saraba1st.com/forum/202412/17/205330k5e3qr80rqzl8o88.png" referrerpolicy="no-referrer">
+
+<strong>(36) 【#ホロカ新情報】まもなく第二弾発売❗️ホロカの最新情報、どどんと解禁します.png</strong> (170.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-17 20:53 上传
+

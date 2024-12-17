@@ -868,3 +868,30 @@ danime注册巨麻烦，很不厚道的直接去看corocorochannel的官方视�
 
 这次新作里的holo梗简直不能再多
 
+
+*****
+
+####  holoan  
+##### 10430#         楼主| 发表于 2024-12-17 11:53
+
+<img src="https://img.saraba1st.com/forum/202412/17/115224fcfw2phvqr45rc6q.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (69.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-17 11:52 上传
+
+新包装
+
+话说回来有必要再贩吗即便再畅销都卖了一年了吃都吃吐了还有多少人会买
+
+*****
+
+####  holoan  
+##### 10431#         楼主| 发表于 2024-12-17 15:46
+
+<img src="https://pbs.twimg.com/media/Ge-wCF9bwAAAEfm?format=jpg&amp;name=large" id="aimg_b2u9U" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+还真的重现了 还原度很高
+

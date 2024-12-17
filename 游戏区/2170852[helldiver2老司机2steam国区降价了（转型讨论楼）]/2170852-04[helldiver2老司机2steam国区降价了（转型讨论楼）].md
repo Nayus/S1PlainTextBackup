@@ -793,3 +793,26 @@ PS5匹配时间长，容易掉线的问题。只要把跨平台游戏关了就�
 —— 来自 S1Fun</blockquote>
 去难7刷，虽然现在难6有超级样本了，但老实说难6那个暴兵频率是很坐牢的，而现在难8开始会有新中型敌人品种出现，坐牢难度呈指数增加，所以难7一直都是大部分休闲局的最佳选择
 
+
+*****
+
+####  赤井稻妻  
+##### 5632#       发表于 2024-12-17 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66940966&amp;ptid=2170852" target="_blank">扑克脸军曹 发表于 2024-12-16 20:02</a>
+
+发现一个改动，现在摧毁建筑的爆炸伤害不能炸掉别的东西了，以前炸工厂能把干扰塔一起炸掉，还有打研究室的 ...</blockquote>
+但我印象里西线有那种不能关闭的干扰塔啊，那不就炸不掉了吗
+
+*****
+
+####  赤井稻妻  
+##### 5633#       发表于 2024-12-17 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66940720&amp;ptid=2170852" target="_blank">leoray 发表于 2024-12-16 19:26</a>
+
+民主爆破前就退坑了，请问现在怎么该用什么姿势刷样本
+
+—— 来自 S1Fun</blockquote>
+感觉n8n9打虫子就能把图搜全了，n10反而压力大一些，图搜不全，超级虫巢那颗蛋也没啥收益
+

@@ -49,3 +49,15 @@ CURE偶像 CURE眨眼 CURE心动
 偶像以前不也有过吗</blockquote>
 马口P吗
 
+
+*****
+
+####  月夜凝雪  
+##### 142#       发表于 2024-12-17 08:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66943329&amp;ptid=2208663" target="_blank">达达葱2 发表于 2024-12-17 08:28</a>
+马口P吗</blockquote>
+偶像成为q娃和偶像q娃区别还是挺大的
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

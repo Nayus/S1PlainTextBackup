@@ -10413,3 +10413,40 @@ OP那么帅的祥p去哪里了，怎么CM里这么楚楚可怜，祥嬷又要赢
 
 别急 随着剧情进展 一定会攻起来的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  椎名真希  
+##### 3905#       发表于 2024-12-17 20:39
+
+感觉更像是喵梦和祥子在方向性有矛盾，比如有超大牌发邀请但是风格不对的，祥子要拒绝但是被喵梦怼了，然后爆发争吵，喵梦又阴阳怪气几句祥子比如都没地方住了难道要住舞台这种话，初华就放了个大
+
+*****
+
+####  贰臣  
+##### 3906#       发表于 2024-12-17 20:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看了一圈感觉初华又要风评被害了……
+
+*****
+
+####  狮子咕  
+##### 3907#       发表于 2024-12-17 20:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“名人的自觉”
+
+<img src="https://img.saraba1st.com/forum/202412/17/204503bkccrcd6ddcuurse.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (133.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-17 20:45 上传
+
+*****
+
+####  akiomn  
+##### 3908#       发表于 2024-12-17 20:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看第二集怎么写吧，cm行李箱是祥子第一集搬出来后拿的那个。说实话我觉得住睦家概率挺低的，但是住初华家的话……祥子秘密不就前期暴露给初华了？
+

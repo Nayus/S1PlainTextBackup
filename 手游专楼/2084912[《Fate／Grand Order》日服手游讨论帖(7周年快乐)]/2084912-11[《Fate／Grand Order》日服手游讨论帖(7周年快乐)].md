@@ -2846,3 +2846,14 @@ T3奥伯龙+旧剑技能全开，旧剑第二发宝具+左1的宝具/旧剑自�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">漏油居然打那么久 我打了20回合就觉得这高难有点傻X了 中间放炸弹强行不给光炮
 
+
+*****
+
+####  jackyhuang  
+##### 15473#       发表于 2024-12-17 20:35
+
+19回合过的居然还算快了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+本来18回合的，一发光炮下去刷上来两个杂兵居然带嘲讽<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+

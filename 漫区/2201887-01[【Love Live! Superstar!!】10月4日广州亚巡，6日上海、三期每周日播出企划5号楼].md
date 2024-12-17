@@ -12795,3 +12795,29 @@ Screenshot_2024-12-16-00-42-39-303_tv.danmaku.bili.jpg
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  starring  
+##### 1255#       发表于 2024-12-17 21:49
+
+不懂那边的想法，这集的评分反而更低
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+
+
+*****
+
+####  黒烨  
+##### 1256#       发表于 2024-12-17 21:53
+
+<img src="https://img.saraba1st.com/forum/202412/17/215340p4cqcnt4octpcrrj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241217_213955_com_twitter_android_TweetDetailActivity_edit_10404624.jpg</strong> (237.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-17 21:53 上传
+
+搞不懂
+

@@ -10665,3 +10665,20 @@ cm里还是有疑点，我回看了下第一集，祥子的黑色箱子在cm里�
 
 人生宣言害人不浅<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑夜落叶秋天  
+##### 3925#       发表于 2024-12-17 21:45
+
+祥子这也太弱气了 明明op那么帅
+
+*****
+
+####  仓鼠胖太  
+##### 3926#       发表于 2024-12-17 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66933820&amp;ptid=2208921" target="_blank">纯良水鬼 发表于 2024-12-15 23:13</a>
+ppp 萝 蝶 ras mygo 鸡，即使不算管人团都是6个</blockquote>
+我就没算上母鸡卡啊，不是要被漏油分道扬镳了么，然后管人团也要算成三次元上台乐队吗…这我个人算不进去
+

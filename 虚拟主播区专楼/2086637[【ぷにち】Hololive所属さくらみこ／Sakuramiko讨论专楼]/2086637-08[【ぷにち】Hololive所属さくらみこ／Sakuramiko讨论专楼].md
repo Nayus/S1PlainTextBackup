@@ -939,3 +939,32 @@ danime注册巨麻烦，很不厚道的直接去看corocorochannel的官方视�
 
 2024-12-17 20:53 上传
 
+
+*****
+
+####  holoan  
+##### 10435#         楼主| 发表于 2024-12-17 21:27
+
+<img src="https://img.saraba1st.com/forum/202412/17/212721cjgajnmvfaacd3nu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-17 21:27 上传
+
+<img src="https://img.saraba1st.com/forum/202412/17/212740cywf1kfwemfd44e1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (58.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-17 21:27 上传
+
+*****
+
+####  holoan  
+##### 10436#         楼主| 发表于 2024-12-17 21:54
+
+笑死，运营给扳手这么随便的
+

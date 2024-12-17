@@ -9952,3 +9952,18 @@ https://x.com/slug10000/status/1868670896678027603?s=46&amp;t=IZGx0N13SOtHALpwG0
 下午mggm在副会场发表讲话的时候我刚好在下面吃牛排盖饭，有人用gpt翻译了部分内容，下面我把缺的少数内容 ...</blockquote>
 漆黑使者是什么巴尔玛帝国的先遣队吗
 
+
+*****
+
+####  三角初华  
+##### 3861#       发表于 2024-12-17 16:36
+
+<img src="https://img.saraba1st.com/forum/202412/17/163600zli4ao4dm5jtzrri.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0801.jpeg</strong> (384.42 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-17 16:36 上传
+

@@ -15247,3 +15247,11 @@ Screen Shot 2024-12-13 at 3.33.14 PM.png
 
 这不是我们高达GQuuuuuuX的性转版吗，下次记得标明出处
 
+
+*****
+
+####  kisstv22  
+##### 1434#       发表于 2024-12-17 11:56
+
+虽然有东宝在是有机会获得高票房的，但是剧场版没有粉丝光环战斗力不一定会很高，谨慎看好吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

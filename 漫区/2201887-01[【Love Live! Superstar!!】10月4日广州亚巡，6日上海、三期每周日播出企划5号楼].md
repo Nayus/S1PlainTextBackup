@@ -12864,3 +12864,14 @@ Screenshot_2024-12-16-00-42-39-303_tv.danmaku.bili.jpg
 
 机翻看了看，就是第三期没对手和12集讲完一年还是太快了。emmmm只能说太君的想法是真的不懂，不是说京吹三环大陆好评吗？还有太君不满意啊www如果京吹三真的是星三的剧本都不至于这样吧
 
+
+*****
+
+####  csolfans  
+##### 1260#       发表于 2024-12-17 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66949795&amp;ptid=2201887" target="_blank">离心 发表于 2024-12-17 22:01</a>
+
+机翻看了看，就是第三期没对手和12集讲完一年还是太快了。emmmm只能说太君的想法是真的不懂，不是说京吹 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">幽默 不是说那边很喜欢京吹3吗
+

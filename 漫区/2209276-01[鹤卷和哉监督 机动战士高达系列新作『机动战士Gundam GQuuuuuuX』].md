@@ -15363,3 +15363,13 @@ SEED当初就被所谓的UC青没有口德的抨击，他这要是真成了新�
 
 更别提还有厨豚大战，UC青破口大骂别蹭，种厨入场踩UC，水星踩商业热度，EVA黑入场痛骂痞子等各种大活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 1445#       发表于 2024-12-17 17:38
+
+鹤卷是真的惨，年富力强的时候被耗在eva上，找痞子麻烦的人还顺便波及他，只能说够冤种。。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

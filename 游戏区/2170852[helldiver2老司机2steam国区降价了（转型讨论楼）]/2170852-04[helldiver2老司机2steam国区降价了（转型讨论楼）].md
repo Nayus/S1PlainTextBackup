@@ -831,3 +831,14 @@ PS5匹配时间长，容易掉线的问题。只要把跨平台游戏关了就�
 
 同难度的机器人任务虽然样本数量一样但机器人的哨站都是立体结构的，没有虫子巢那么好搜
 
+
+*****
+
+####  风萧飒  
+##### 5635#       发表于 2024-12-17 16:57
+
+最近贴吧也有讨论，光能出来以后，可以看到超级地球的殖民地居住条件其实很不错，宣传视频甚至是真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过想起来征兵广告里当时一炮秒泰坦都说虚假宣传，现在也变真的了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

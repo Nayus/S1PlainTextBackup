@@ -625,3 +625,14 @@ WS卡2月28开卖
 连观众都这么重，这片子真是粉随正主啊 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">啥私信，不会是邦多利入坑指南吧
 
+
+*****
+
+####  月島まりな  
+##### 26683#       发表于 2024-12-17 11:46
+
+大塚纱英FMT  重庆 2025/1/18
+
+办邦o真能把女声优请来吗，太有实力了
+<img src="https://p.sda1.dev/20/de052e08ff29f568fcebcf9a9e37d07f/IMG_4728.jpeg" referrerpolicy="no-referrer">
+

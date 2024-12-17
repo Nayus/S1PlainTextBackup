@@ -591,3 +591,15 @@ WS卡2月28开卖
 
 邦邦企划10周年Roselia服装主视觉图公开<img src="https://p.sda1.dev/20/de244ef73f619cf22553f532617c9509/Image_225172600208113.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SakuraのOrigami  
+##### 26680#       发表于 2024-12-17 08:16
+
+夜隠染
+作詞： 藤原優樹
+作曲： 鈴木裕明
+編曲： 鈴木裕明
+时长: 3分20秒
+

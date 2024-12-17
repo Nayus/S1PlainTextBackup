@@ -9881,3 +9881,13 @@ https://x.com/slug10000/status/1868670896678027603?s=46&amp;t=IZGx0N13SOtHALpwG0
 
 我都怀疑 至少要到最后三集 她们才能像在op中那么乐<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ml1642879  
+##### 3854#       发表于 2024-12-17 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66944646&amp;ptid=2208921" target="_blank">vigada 发表于 2024-12-17 11:08</a>
+海铃的贝斯也是schecter的</blockquote>
+唉，重金属
+

@@ -15223,3 +15223,27 @@ Screen Shot 2024-12-13 at 3.33.14 PM.png
 
 <img src="https://img.saraba1st.com/forum/202412/17/093404oflulfeflhac2222.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刺客ares  
+##### 1433#       发表于 2024-12-17 11:39
+
+这几天还重温了一遍SW，看到第五部恍然大悟
+
+过着平凡生活但向往外界追求冒险的少年
+
+被迫卷入了大事件的太空走私犯
+
+带着机器人从天而降打破日常的神秘少女
+
+<img src="https://img.saraba1st.com/forum/202412/17/111918k10nzyawcwnm0v6g.jpg" referrerpolicy="no-referrer">
+
+<strong>f68f6417e9056731888412a8e6bae7d8_v2-4d1ef515038c6285abea5af7a97d0838_r.jpg</strong> (109.71 KB, 下载次数: 1)
+
+下载附件
+
+2024-12-17 11:19 上传
+
+这不是我们高达GQuuuuuuX的性转版吗，下次记得标明出处
+

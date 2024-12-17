@@ -8631,10 +8631,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 111754,
+    "totalreply": 111755,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1734470167,
+    "lastedit": 1734472328,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -17852,6 +17852,15 @@
     "newtitle": "[游戏区广告专楼广告哥也是怀旧党，带你领略20年前的S1]",
     "lastedit": 1734470047,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2210963": {
+    "totalreply": 41,
+    "title": "[史料研究有一个有趣的现象，越早的朝代越少提及具体的百姓生活，后面的就越多]",
+    "newtitle": "[史料研究有一个有趣的现象，越早的朝代越少提及具体的百姓生活，后面的就越多]",
+    "lastedit": 1734472330,
+    "category": "外野",
     "active": true,
     "update": false
   }

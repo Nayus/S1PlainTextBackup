@@ -9924,3 +9924,21 @@ https://x.com/slug10000/status/1868670896678027603?s=46&amp;t=IZGx0N13SOtHALpwG0
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  adcdqre  
+##### 3858#       发表于 2024-12-17 13:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66945482&amp;ptid=2208921" target="_blank">novalli 发表于 2024-12-17 12:35</a>
+
+祥子把队友变成鬼确实言过其实，但祥子可以算是催化剂。如果遇到的是白祥，大概也不会以爆炸的形式解决问题 ...</blockquote>
+有的人所谓的白祥好不过是因为那时候割在自己补队友，第一集以后那种视角一去不返了
+
+*****
+
+####  66367749  
+##### 3859#       发表于 2024-12-17 13:55
+
+喵梦摘面罩是不是会加深祥子的“能相信的只有自己”
+

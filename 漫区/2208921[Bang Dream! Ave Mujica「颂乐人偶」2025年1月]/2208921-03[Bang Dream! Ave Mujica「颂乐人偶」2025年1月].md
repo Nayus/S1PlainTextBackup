@@ -10239,3 +10239,28 @@ OP那么帅的祥p去哪里了，怎么CM里这么楚楚可怜，祥嬷又要赢
 
 2024-12-17 19:29 上传
 
+
+*****
+
+####  yone0000  
+##### 3886#       发表于 2024-12-17 19:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">新PV就像一番论战后，初华赢得了把祥子带回家的资格
+
+
+*****
+
+####  3353764798  
+##### 3887#       发表于 2024-12-17 19:41
+
+睦子米一脸惊恐，不会初华物理爱猫了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  ytttsuuuba  
+##### 3888#       发表于 2024-12-17 19:42
+
+所以睦之所以对加入mujica犹豫，直到最后才答应，就是因为CCC给祥带来的伤害导致的PTSD吧<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">要是mujica也来一通解散，怕不是祥子没崩，睦先崩溃了。
+

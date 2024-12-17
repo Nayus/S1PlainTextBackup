@@ -10139,3 +10139,59 @@ OP那么帅的祥p去哪里了，怎么CM里这么楚楚可怜，祥嬷又要赢
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（动手估计不会，但是肯定会吵）
 
+
+*****
+
+####  山ノ内花音  
+##### 3877#       发表于 2024-12-17 19:14
+
+草
+祥子拿着行李箱呢
+这下真要住队友家了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狮子咕  
+##### 3878#       发表于 2024-12-17 19:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">应该是会住初华家几天的（pv里两个杯子，烧咖啡之类的），但感觉中期发生什么事之后祥子会回到大豪斯
+
+*****
+
+####  ytttsuuuba  
+##### 3879#       发表于 2024-12-17 19:19
+
+睦那个台词是：mujicaが壊れたら、祥は(要是mujica毁坏了，那祥)这个就是PV里睦的那个镜头啊，好多人都脑补抱的是被退的黄瓜，对面是soyo，结果这抱的就是吉他包啊，对面是大喵和众人吵架<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  阿萨德飞过去  
+##### 3880#       发表于 2024-12-17 19:20
+
+圆圆的太可爱了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+我也觉得会住初华家了现在，种种迹象都这样表明（希望不是我癔症
+
+
+*****
+
+####  挺好的  
+##### 3881#       发表于 2024-12-17 19:21
+
+<img src="https://img.saraba1st.com/forum/202412/17/192058pauvjvauylucijiv.png" referrerpolicy="no-referrer">
+
+<strong>Image_6151173952548.png</strong> (46.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-17 19:20 上传
+
+好嬷
+
+*****
+
+####  阿萨德飞过去  
+##### 3882#       发表于 2024-12-17 19:23
+
+明明op蛮耍帅的，结果怎么这个cm这么弱气<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

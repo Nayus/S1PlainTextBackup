@@ -10264,3 +10264,27 @@ OP那么帅的祥p去哪里了，怎么CM里这么楚楚可怜，祥嬷又要赢
 
 所以睦之所以对加入mujica犹豫，直到最后才答应，就是因为CCC给祥带来的伤害导致的PTSD吧<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">要是mujica也来一通解散，怕不是祥子没崩，睦先崩溃了。
 
+
+*****
+
+####  鲍里斯  
+##### 3889#       发表于 2024-12-17 19:46
+
+30s终结所有的祥公梦
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  山ノ内花音  
+##### 3890#       发表于 2024-12-17 19:48
+
+最多揪个衣领吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  septer  
+##### 3891#       发表于 2024-12-17 19:50
+
+欠爱猫猫嘴<img src="https://static.saraba1st.com/image/smiley/animal2017/009.png" referrerpolicy="no-referrer">
+

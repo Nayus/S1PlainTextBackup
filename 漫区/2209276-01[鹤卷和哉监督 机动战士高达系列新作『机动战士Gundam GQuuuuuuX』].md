@@ -15558,3 +15558,18 @@ SEED当初就被所谓的UC青没有口德的抨击，他这要是真成了新�
 
 2024-12-17 22:05 上传
 
+
+*****
+
+####  刺客ares  
+##### 1460#       发表于 2024-12-17 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66949807&amp;ptid=2209276" target="_blank">otaku21126 发表于 2024-12-17 22:03</a>
+
+这些人是不是大部分都是香党啊</blockquote>
+还记得当初终的剧透大规模出来的时候，各大论坛香党嗷的一声就疯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+可能现在都没能治愈吧，我记得鹤卷也是香党来着？
+
+新作能给女主塞点明日香私货吗（
+

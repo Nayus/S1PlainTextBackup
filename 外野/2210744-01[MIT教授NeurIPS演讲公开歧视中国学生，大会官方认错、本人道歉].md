@@ -1203,3 +1203,18 @@ https://mp.weixin.qq.com/s/JpIzc_llmrDnVKmXWtKfm ...</blockquote>
 
 没办法，难道我还能按着海外高华的手帮他们反抗吗，他们乐意被歧视也我没辙啊，这个公开歧视的白女现在不就是我国常时说的平稳落地，大事化小了
 
+
+*****
+
+####  AraTurambar  
+##### 106#       发表于 2024-12-17 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66943451&amp;ptid=2210744" target="_blank">wangyu210000 发表于 2024-12-17 08:52</a>
+
+MIT 的 Media Lab 是有无数个组组成的，说实话 director 除了签签字找找捐款不太做太多别的事. 另外 epst ...</blockquote>
+正是因为如此所以奇闻轶事不可胜数啊。
+
+上限当然高，下限也深不可测。
+
+这件事起因的某女同学自己不也是Media Lab的吗，也算是Media Lab奇闻轶事之一了。
+

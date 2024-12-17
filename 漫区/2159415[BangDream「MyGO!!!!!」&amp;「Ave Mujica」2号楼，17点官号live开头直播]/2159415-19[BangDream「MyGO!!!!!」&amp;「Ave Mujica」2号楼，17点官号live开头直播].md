@@ -603,3 +603,25 @@ WS卡2月28开卖
 編曲： 鈴木裕明
 时长: 3分20秒
 
+
+*****
+
+####  舌怪  
+##### 26681#       发表于 2024-12-17 10:00
+
+@[皆神孝介]  我超，被800字私信吓晕<img src="https://static.saraba1st.com/image/smiley/face2017/057.png">
+
+连观众都这么重，这片子真是粉随正主啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ml1642879  
+##### 26682#       发表于 2024-12-17 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66943993&amp;ptid=2159415" target="_blank">舌怪 发表于 2024-12-17 10:00</a>
+@[皆神孝介]  我超，被800字私信吓晕
+
+连观众都这么重，这片子真是粉随正主啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">啥私信，不会是邦多利入坑指南吧
+

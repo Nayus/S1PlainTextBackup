@@ -1182,3 +1182,16 @@ MIT 的 Media Lab 是有无数个组组成的，说实话 director 除了签签�
 https://mp.weixin.qq.com/s/JpIzc_llmrDnVKmXWtKfm ...</blockquote>
 完全符合白皮精英那傲慢瑕疵的刻板印象。
 
+
+*****
+
+####  仟音一心  
+##### 104#       发表于 2024-12-17 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66938774&amp;ptid=2210744" target="_blank">yeo 发表于 2024-12-16 15:30</a>
+
+朋友圈大佬发的，邀请她参加个论坛啥的，她回了个这个
+
+https://mp.weixin.qq.com/s/JpIzc_llmrDnVKmXWtKfm ...</blockquote>
+这都不忘提一嘴她搞的但我之前从未听说过的情感计算。
+

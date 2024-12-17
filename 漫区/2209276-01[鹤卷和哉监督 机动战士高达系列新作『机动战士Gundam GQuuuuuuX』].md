@@ -15516,3 +15516,45 @@ SEED当初就被所谓的UC青没有口德的抨击，他这要是真成了新�
 
 这些人是不是大部分都是香党啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RE㐅ia  
+##### 1459#       发表于 2024-12-17 22:06
+
+之前一直想象不出来新作画风的老uc人物会是啥样的，这下知道了。
+
+<img src="https://img.saraba1st.com/forum/202412/17/220408ezuuxb1zq2m6bz2u.png" referrerpolicy="no-referrer">
+
+<strong>F2FE799F-2105-40CD-B5BB-344E9E1CD54D.png</strong> (481.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-17 22:04 上传
+
+<img src="https://img.saraba1st.com/forum/202412/17/220424nja9malz9lag9nbf.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>204193BE-CC3C-470E-8684-DEE84BBB5CC8.jpeg</strong> (394.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-17 22:04 上传
+
+还有洗衣店不会成为什么关键地点吧？男主穿着大白掛搞涂鸦经常去洗衣店打卡好像也说得通。
+
+<img src="https://img.saraba1st.com/forum/202412/17/220539om3hd5rvdamyq3gf.png" referrerpolicy="no-referrer">
+
+<strong>4AD10123-434D-4CDF-B1AC-E04005A47934.png</strong> (587.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-17 22:05 上传
+
+<img src="https://img.saraba1st.com/forum/202412/17/220547nudvucwvcphw9ghq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>CFE877BE-8B79-4259-B875-3AADDD8C0836.jpeg</strong> (425.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-17 22:05 上传
+

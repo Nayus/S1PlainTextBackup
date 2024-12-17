@@ -10698,3 +10698,15 @@ ppp 萝 蝶 ras mygo 鸡，即使不算管人团都是6个</blockquote>
 
 CM 23s是祥子在写剧本吗？不知道在暗示什么
 
+
+*****
+
+####  3353764798  
+##### 3929#       发表于 2024-12-17 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66949682&amp;ptid=2208921" target="_blank">黑夜落叶秋天 发表于 2024-12-17 21:45</a>
+祥子这也太弱气了 明明op那么帅</blockquote>
+肯定弱气啊，这四个跑一个小祥最后的退路也玩完了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

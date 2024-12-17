@@ -648,3 +648,20 @@ WS卡2月28开卖
 第410話「試験に出るひまり情報」
 <img src="https://p.sda1.dev/20/96a79691eeaf5d3130d48698e6751c73/IMG_20241217_124611.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SakuraのOrigami  
+##### 26685#       发表于 2024-12-17 14:26
+
+【『BanG Dream!』MyGO!!! 2nd专辑「跡暖空」高松燈(羊宮妃那)、千早愛音(立石凛)、要楽奈(青木陽菜)、長崎そよ(小日向美香)、椎名立希-哔哩哔哩】 https://b23.tv/ReC8ouS
+
+*****
+
+####  SakuraのOrigami  
+##### 26686#       发表于 2024-12-17 14:27
+
+夜隐染和明弦音的歌词
+<img src="https://p.sda1.dev/20/887db45bebcbcbec62678d050cc11ab5/IMG_EC23955AAC19E27875024342B0223D90.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/f34967747b2fd3e7d906c8aa415f16a7/IMG_B289EEA33144AE108D7C7F93E7B6E01A.png" referrerpolicy="no-referrer">
+

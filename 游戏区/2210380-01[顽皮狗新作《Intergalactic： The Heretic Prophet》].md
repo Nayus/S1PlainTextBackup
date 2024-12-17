@@ -2798,3 +2798,30 @@ TGA纵容尼尔得寸进尺直接玩的更大
 
 我不管我只想看到血流成河，索尼什么时候死啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  riin2  
+##### 269#       发表于 2024-12-17 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66943059&amp;ptid=2210380" target="_blank">mimighost 发表于 2024-12-17 05:22</a>
+
+这句话你细品</blockquote>
+小岛不也这样么，有人看到这一幕还以为是死亡搁浅2播片
+
+*****
+
+####  riin2  
+##### 270#       发表于 2024-12-17 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66943423&amp;ptid=2210380" target="_blank">SergeGlenn 发表于 2024-12-17 08:48</a>
+
+那个4chan泄露看几句我就笑了，字里行间戏太多了，这都能信属实是rumor看的太少了
+
+红迪上粉丝做的图挺酷的
+
+ ...</blockquote>
+酷
+
+外网rumor看多了就挺好分辨的，骗骗新人
+

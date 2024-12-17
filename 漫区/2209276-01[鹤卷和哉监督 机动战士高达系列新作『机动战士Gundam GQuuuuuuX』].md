@@ -15373,3 +15373,13 @@ SEED当初就被所谓的UC青没有口德的抨击，他这要是真成了新�
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  RE㐅ia  
+##### 1446#       发表于 2024-12-17 18:05
+
+<blockquote>0aleph37 发表于 2024-12-17 17:00
+这就第二弹了？</blockquote>
+好呆啊。光是这个头发就没还原出pv里那种灵动
+

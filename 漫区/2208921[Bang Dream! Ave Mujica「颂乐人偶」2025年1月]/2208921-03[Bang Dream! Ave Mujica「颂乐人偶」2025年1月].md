@@ -10048,3 +10048,94 @@ pv内容大概率前期全回收掉了，睦电车那幕pv里有，猜测睦爆�
 
 喵梦好强的攻击性<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  山ノ内花音  
+##### 3869#       发表于 2024-12-17 19:08
+
+唉笨祥
+
+<img src="https://img.saraba1st.com/forum/202412/17/190846nnyb5i84isqd2uuc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3995.jpeg</strong> (175.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-17 19:08 上传
+
+*****
+
+####  枫林不见  
+##### 3870#       发表于 2024-12-17 19:11
+
+哎 软糯小祥
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">说起来初华不会直接给了喵梦一巴掌吧   那我们bangdream会变成什么样
+
+*****
+
+####  挺好的  
+##### 3871#       发表于 2024-12-17 19:11
+
+<img src="https://img.saraba1st.com/forum/202412/17/191130ary3yzyznviyj3in.png" referrerpolicy="no-referrer">
+
+<strong>Image_5887376551190.png</strong> (79.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-17 19:11 上传
+
+<img src="https://img.saraba1st.com/forum/202412/17/191134y29o4uuo9wx9b9hx.png" referrerpolicy="no-referrer">
+
+<strong>Image_5880254188120.png</strong> (140.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-17 19:11 上传
+
+有点欠爱了（
+
+*****
+
+####  PDQ4  
+##### 3872#       发表于 2024-12-17 19:12
+
+OP那么帅的祥p去哪里了，怎么CM里这么楚楚可怜，祥嬷又要赢赢赢了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  贰臣  
+##### 3873#       发表于 2024-12-17 19:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">天呐这小圆脸，可爱死我算了小祥
+
+*****
+
+####  堀内爱里衣  
+##### 3874#       发表于 2024-12-17 19:12
+
+真是可爱<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202412/17/191233nqqmnxeqvdemznyd.png" referrerpolicy="no-referrer">
+
+<strong>【CM】TVアニメ「BanG Dream! Ave Mujica」 0-29 screenshot.png</strong> (1.3 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-17 19:12 上传
+
+*****
+
+####  akiomn  
+##### 3875#       发表于 2024-12-17 19:13
+
+睦的那句是我要坏掉了还是mujica要是坏掉了？
+我听了几遍都没听到mujica这个词
+
+*****
+
+####  狮子咕  
+##### 3876#       发表于 2024-12-17 19:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（动手估计不会，但是肯定会吵）
+

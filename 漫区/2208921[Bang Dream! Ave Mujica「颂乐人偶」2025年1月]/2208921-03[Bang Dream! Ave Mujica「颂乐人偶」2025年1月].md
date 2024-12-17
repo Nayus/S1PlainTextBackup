@@ -10791,3 +10791,18 @@ CM 23s是祥子在写剧本吗？不知道在暗示什么
 
 母鸡卡能不能租个大豪斯五人同居<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  LeonsCat  
+##### 3940#       发表于 2024-12-18 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66949995&amp;ptid=2208921" target="_blank">NODY 发表于 2024-12-17 22:31</a>
+
+应该是怕开盒后出现粉丝挤门口闹出事什么的，所以五个人一起留到人都走光了再去坐电车回家吧
+
+不是很懂，日 ...</blockquote>
+有考证是新干线，和通勤列车还是挺不一样的。
+
+就是，大祥老师有钱坐绿色车厢么。。。
+

@@ -10531,3 +10531,77 @@ OP那么帅的祥p去哪里了，怎么CM里这么楚楚可怜，祥嬷又要赢
 当然祥子要是真愿意那我嘴都笑要歪了好吧 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喵梦：多大点事儿，我来助你——
 
+
+*****
+
+####  PDQ4  
+##### 3914#       发表于 2024-12-17 20:57
+
+漏油好细，这个站位真的基本上完全复刻的
+
+而且睦从背面位转头看着变成了正面直视，可否理解为睦开始行动，但还没有踏出关键一步
+
+明明每个决策都在为祥子着想，但是却总能目睹祥子陷入更深的困境
+
+这自罪心理要爆炸了
+
+呜呜睦宝<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  allesdg  
+##### 3915#       发表于 2024-12-17 20:58
+
+不过考虑跟谁住之前好像还是得解释pv里和人偶一起出现在老宅是怎么回事（
+
+另外这个地方是什么情景也有点疑问，武道馆结束后回家？为什么集体去车站不坐出租了吗，祥子装人偶的箱子去哪了；
+
+几人动身一起去某个远地方？推上有人考据这个场景可能是新干线车站，但这样出远门的话为什么只有祥子拿行李箱，而且刚被开盒上热搜就集体去车站也没事务所人员陪同是否缺少名人自觉了（致敬wsd传奇运营？
+
+*****
+
+####  silver鲤跃  
+##### 3916#       发表于 2024-12-17 20:58
+
+祥公，完全败北。。。
+
+*****
+
+####  椎名真希  
+##### 3917#       发表于 2024-12-17 20:59
+
+<img src="https://img.saraba1st.com/forum/202412/17/205901ir0oe3uu8o38884o.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (82 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-17 20:59 上传
+
+[ 晴輝 @01007px](https://x.com/01007px/status/1868977761865646467)
+
+*****
+
+####  椎名真希  
+##### 3918#       发表于 2024-12-17 20:59
+
+<img src="https://img.saraba1st.com/forum/202412/17/205934ln7qm70e4tv0hevq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (194.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-17 20:59 上传
+
+NovaRoll🌟🌯
+
+@NovaRoll_
+
+
+*****
+
+####  狮子咕  
+##### 3919#       发表于 2024-12-17 21:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第二集就要和队友住，中途破防回大豪斯的概率不是**增加了吗
+

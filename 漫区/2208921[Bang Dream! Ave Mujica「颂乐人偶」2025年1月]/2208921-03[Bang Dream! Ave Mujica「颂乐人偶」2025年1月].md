@@ -9912,3 +9912,15 @@ https://x.com/slug10000/status/1868670896678027603?s=46&amp;t=IZGx0N13SOtHALpwG0
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.94-alpha
 
+
+*****
+
+####  友情的结晶  
+##### 3857#       发表于 2024-12-17 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66940277&amp;ptid=2208921" target="_blank">瞳映山川 发表于 2024-12-16 18:28</a>
+睦握着的应该是剑吧，不过这把剑到底是怎么个造型啊？按照图上的握法剑身不应该是向前的吗？怎么做到图上一 ...</blockquote>
+睦这张应该就是剑尖对着镜头，不过有个非常夸张的透视
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

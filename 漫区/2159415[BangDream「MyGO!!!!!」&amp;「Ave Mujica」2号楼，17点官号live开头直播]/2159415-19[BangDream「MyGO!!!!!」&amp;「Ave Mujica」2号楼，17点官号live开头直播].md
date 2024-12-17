@@ -636,3 +636,15 @@ WS卡2月28开卖
 办邦o真能把女声优请来吗，太有实力了
 <img src="https://p.sda1.dev/20/de052e08ff29f568fcebcf9a9e37d07f/IMG_4728.jpeg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CyDiablo  
+##### 26684#       发表于 2024-12-17 12:45
+
+ 本帖最后由 CyDiablo 于 2024-12-17 12:47 编辑 
+
+四格漫画更新
+第410話「試験に出るひまり情報」
+<img src="https://p.sda1.dev/20/96a79691eeaf5d3130d48698e6751c73/IMG_20241217_124611.jpg" referrerpolicy="no-referrer">
+

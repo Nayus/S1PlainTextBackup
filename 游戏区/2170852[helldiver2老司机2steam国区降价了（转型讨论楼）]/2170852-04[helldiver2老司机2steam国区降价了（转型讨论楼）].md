@@ -855,3 +855,11 @@ PS5匹配时间长，容易掉线的问题。只要把跨平台游戏关了就�
 
 —— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  北条早苗  
+##### 5637#       发表于 2024-12-18 00:26
+
+今天更新完又开始频繁闪退了，这就是箭头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

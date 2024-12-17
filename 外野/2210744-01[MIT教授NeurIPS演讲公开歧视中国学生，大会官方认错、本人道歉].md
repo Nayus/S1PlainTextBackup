@@ -1151,3 +1151,22 @@ MIT生物学研究，细胞图是p的
 
 —— 来自 HUAWEI OCE-AN50, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  出轨的三头龙  
+##### 101#       发表于 2024-12-17 08:49
+
+人家都直接亮屁股了还讨论啥道德不道德的。
+
+*****
+
+####  wangyu210000  
+##### 102#       发表于 2024-12-17 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66943173&amp;ptid=2210744" target="_blank">AraTurambar 发表于 2024-12-17 07:42</a>
+除了有一个MIT牌子之外，下略。
+
+之前就出过好几次重大丑闻了，拿了爱泼斯坦的钱差点被摘牌的。</blockquote>
+MIT 的 Media Lab 是有无数个组组成的，说实话 director 除了签签字找找捐款不太做太多别的事. 另外 epstein 其实就给了 80 多万，他本人也没有对 media lab 的工作有任何影响
+

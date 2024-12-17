@@ -2701,3 +2701,39 @@ https://www.economist.com/briefing/2024/09/19/america-is-becoming-less-woke
 
 2024-12-17 05:22 上传
 
+
+*****
+
+####  ppa11  
+##### 259#       发表于 2024-12-17 08:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66917335&amp;ptid=2210380" target="_blank">樽——見 发表于 2024-12-13 16:06</a>
+reddit版清一色闭口不谈丑角+各种角度“我太期待了” 是我逛的板块不对吗</blockquote>
+有一说一，论坛这种形式是最容易出人工智能的吧
+
+—— 來自 [鵝球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  hkguty  
+##### 260#       发表于 2024-12-17 08:48
+
+太刻板印象的剧情了，现在只会把人看吐，我觉得是假的，如果是真的，仙贝可能真打算做完这部就跑路跳槽去当大导演了
+
+*****
+
+####  SergeGlenn  
+##### 261#       发表于 2024-12-17 08:48
+
+那个4chan泄露看几句我就笑了，字里行间戏太多了，这都能信属实是rumor看的太少了
+
+红迪上粉丝做的图挺酷的
+
+<img src="https://img.saraba1st.com/forum/202412/17/084830g32z1177zjk1bu1e.jpg" referrerpolicy="no-referrer">
+
+<strong>1000006074.jpg</strong> (220.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-17 08:48 上传
+

@@ -15417,3 +15417,29 @@ SEED当初就被所谓的UC青没有口德的抨击，他这要是真成了新�
 还没开播就在bgm斩获2.8分好评的含金量（</blockquote>
 诶~<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RE㐅ia  
+##### 1450#       发表于 2024-12-17 19:25
+
+<img src="https://img.saraba1st.com/forum/202412/17/192454jfbm3uefzdxdkv4n.png" referrerpolicy="no-referrer">
+
+<strong>59769F03-4E23-481F-B423-2C251666B30A.png</strong> (658.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-17 19:24 上传
+
+所罗门冲击
+
+
+*****
+
+####  虛無迴廊  
+##### 1451#       发表于 2024-12-17 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66947667&amp;ptid=2209276" target="_blank">0aleph37 发表于 2024-12-17 17:00</a>
+这就第二弹了？</blockquote>
+阿拉蕾跑姿
+

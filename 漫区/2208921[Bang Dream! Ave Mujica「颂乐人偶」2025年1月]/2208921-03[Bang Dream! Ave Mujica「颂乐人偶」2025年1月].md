@@ -9817,3 +9817,23 @@ https://x.com/slug10000/status/1868670896678027603?s=46&amp;t=IZGx0N13SOtHALpwG0
 
 联动琴不知几时会出
 
+
+*****
+
+####  星天观测  
+##### 3848#       发表于 2024-12-17 08:57
+
+……如果你不太喜欢第一集祥子对睦的态度而又看过秋时雨剧情，那应该是不怎么喜欢早期的冰川双子的
+
+
+*****
+
+####  akiomn  
+##### 3849#       发表于 2024-12-17 09:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66943333&amp;ptid=2208921" target="_blank">skives10 发表于 2024-12-17 08:30</a>
+先做好全篇都只会用喂刀的方式发糖的心理准备
+到时候才能捡到一点就很开心
+反正不可能是个轻松的故事了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确实，独角兽虽然对祥子很宠爱，但本人又很恶趣味，只有avemujica这句话肯定是回旋镖，到时候来个四个队友全散了，祥子道心破碎然后醒悟去拉回队友我都信
+

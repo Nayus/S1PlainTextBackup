@@ -1170,3 +1170,15 @@ MIT生物学研究，细胞图是p的
 之前就出过好几次重大丑闻了，拿了爱泼斯坦的钱差点被摘牌的。</blockquote>
 MIT 的 Media Lab 是有无数个组组成的，说实话 director 除了签签字找找捐款不太做太多别的事. 另外 epstein 其实就给了 80 多万，他本人也没有对 media lab 的工作有任何影响
 
+
+*****
+
+####  莫名奇妙封ID  
+##### 103#       发表于 2024-12-17 08:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66938774&amp;ptid=2210744" target="_blank">yeo 发表于 2024-12-16 15:30</a>
+朋友圈大佬发的，邀请她参加个论坛啥的，她回了个这个
+
+https://mp.weixin.qq.com/s/JpIzc_llmrDnVKmXWtKfm ...</blockquote>
+完全符合白皮精英那傲慢瑕疵的刻板印象。
+

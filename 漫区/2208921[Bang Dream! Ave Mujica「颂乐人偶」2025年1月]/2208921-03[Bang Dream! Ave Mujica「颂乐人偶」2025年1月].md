@@ -9857,3 +9857,27 @@ https://x.com/slug10000/status/1868670896678027603?s=46&amp;t=IZGx0N13SOtHALpwG0
 两把schecter咋可能会和你邦联动，唯一有指望的是esp会不会出一把乌米灵的贝斯 ...</blockquote>
 海铃的贝斯也是schecter的
 
+
+*****
+
+####  哈曼的YY  
+##### 3852#       发表于 2024-12-17 11:15
+
+看到有网友觉得是祥老师把队友变成鬼的 新一轮的风暴来袭
+
+
+*****
+
+####  skives10  
+##### 3853#       发表于 2024-12-17 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66944724&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2024-12-17 11:15</a>
+看到有网友觉得是祥老师把队友变成鬼的 新一轮的风暴来袭</blockquote>
+其实我感觉观众被op的部分截图带歪了
+在音乐中解放天性其实挺王道的吧
+也符合mujica小剧场的台词
+“是你揭下了我的面具 如何如何”
+在现实中压抑自我 才是应该被改变的现状
+
+我都怀疑 至少要到最后三集 她们才能像在op中那么乐<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

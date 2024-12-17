@@ -12710,3 +12710,11 @@ Screenshot_2024-12-16-00-42-39-303_tv.danmaku.bili.jpg
 
 为了对比翻了一下前辈对标的每季最后的歌发现甚至有一个前辈是ppt集合<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  evestart  
+##### 1247#       发表于 2024-12-17 15:43
+
+这集结尾SP里老五星的歌配上画面还挺感动的
+

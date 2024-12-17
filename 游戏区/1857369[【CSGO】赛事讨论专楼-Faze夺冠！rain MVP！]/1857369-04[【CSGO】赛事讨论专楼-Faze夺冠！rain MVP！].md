@@ -622,3 +622,13 @@ donk一年走得比niko十年还远
 我记得🦐不是Niko22卡托淘汰赛整体犯罪发挥才被发扬光大(起源是刀的三冰吧，决赛软脚虾），后面慢慢被解构 ...</blockquote>
 现在说汤虾的都是波黑ame被嘲笑软脚时他的sb营销粉丝转移视线说汤也干了，完全无视之后汤干回来几次。这波黑ame反复的虾最后干回来了吗我想问了，而且什么最长的河完完全全把猩猩那套话术学过去了，结果抖一步波黑ame的遮羞布今年被个刚出道天才少年彻底扯下来，表现数据荣誉完完全全的薄纱。
 
+
+*****
+
+####  dev2ce  
+##### 4647#       发表于 2024-12-17 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66943852&amp;ptid=1857369" target="_blank">Schw 发表于 2024-12-17 09:41</a>
+现在说汤虾的都是波黑ame被嘲笑软脚时他的sb营销粉丝转移视线说汤也干了，完全无视之后汤干回来几次。这 ...</blockquote>
+对Niko本人感觉还好，但是粉丝嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

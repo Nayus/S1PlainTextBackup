@@ -15599,3 +15599,33 @@ SEED当初就被所谓的UC青没有口德的抨击，他这要是真成了新�
 
 倒是最近有时间可能会为了鹤卷抽个空直接把四部一起看了，但这次就以丽党的身份去看好了（估计会被创的更狠）
 
+
+*****
+
+####  刺客ares  
+##### 1463#       发表于 2024-12-17 22:40
+
+<img src="https://img.saraba1st.com/forum/202412/17/223749jd9zl79rvllvrr7d.png" referrerpolicy="no-referrer">
+
+<strong>1734446202981.png</strong> (490.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-17 22:37 上传
+
+找到了，当初的推特截图
+
+松原说鹤卷果然还是最喜欢明日香，对剑剑的事感到懊恼www
+
+只能说鹤卷一个铁香党被痞子的大手按头做那种剧情，不知道心里啥滋味
+
+*****
+
+####  刺客ares  
+##### 1464#       发表于 2024-12-17 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66949997&amp;ptid=2209276" target="_blank">otaku21126 发表于 2024-12-17 22:32</a>
+
+给女主pose对应上我剑算明日香私货吗</blockquote>
+不如担心男主叫shuji还开和2号机80%查重的红高达会不会被鹤卷当渣男真嗣的投影替身直接杀了祭天
+

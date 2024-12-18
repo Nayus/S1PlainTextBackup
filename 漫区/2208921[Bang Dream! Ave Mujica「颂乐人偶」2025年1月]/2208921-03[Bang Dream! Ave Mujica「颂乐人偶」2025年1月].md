@@ -11241,3 +11241,51 @@ op出了确实不用担心没有吸引力了<img src="https://static.saraba1st.c
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">祥子公不了一点，第一集那副样子只配被初华和睦按在床上啊
 
+
+*****
+
+####  贰臣  
+##### 3984#       发表于 2024-12-18 15:58
+
+初华可能是在给祥子泡咖啡的假药，感觉有点道理
+
+我目前觉得祥子不一定住在初华家的主要理由是好像没给过初华什么高兴眼神的镜头，目前几个画面也都是避开了她的眼睛，看不出她的心情。
+
+不过祥子住到初华家里，初华一定会高兴这个推论本身就不够牢靠，说不定初华那里真藏了点什么大的，以至于祥子住到她家里她都还心事重重的，这也有可能。
+
+一切还是要等到正片出来才能进一步猜测<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+KVEY_W_`D$O2JC{YTY[3_KC.jpg
+(67.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-18 15:55 上传
+
+<img src="https://img.saraba1st.com/forum/202412/18/155517rdiqgj0v9hqu2w9u.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 3985#       发表于 2024-12-18 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66956562&amp;ptid=2208921" target="_blank">贰臣 发表于 2024-12-18 15:58</a>
+初华可能是在给祥子泡咖啡的假药，感觉有点道理
+
+我目前觉得祥子不一定住在初华家的主要理由是好像没给过初 ...</blockquote>
+如果住初华家就会和pv里丰川家那幕有冲突，难道第二集住初华家第三集或者第四集就回丰川家吗？剧情发展太难猜了
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">如果从商业角度，住初华家就是把其他cp全部按死了，第二个花千圣吗？
+
+
+*****
+
+####  贰臣  
+##### 3986#       发表于 2024-12-18 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66956592&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-18 16:01</a>
+
+如果住初华家就会和pv里丰川家那幕有冲突，难道第二集住初华家第三集或者第四集就回丰川家吗？剧情发展太 ...</blockquote>
+花千圣也没把薰千圣按死啊
+
+然后就是暂住和大学四年都同居也是不一样的，目前都不能确定祥子是直接住下了还是过个夜应急
+

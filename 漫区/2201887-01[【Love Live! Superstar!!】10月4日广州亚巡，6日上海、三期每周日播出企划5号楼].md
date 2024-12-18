@@ -13024,3 +13024,13 @@ Screenshot_2024-12-16-00-42-39-303_tv.danmaku.bili.jpg
 
 不过话说回来，我觉得这季歌的质量还不如二季，二季好歹有个维他命之夏让我印象深刻的，三季的歌都是听完就忘了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 1275#       发表于 2024-12-18 16:00
+
+歌不行也是一直以来的毛病了。。。捆一起大部分还不如一期。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

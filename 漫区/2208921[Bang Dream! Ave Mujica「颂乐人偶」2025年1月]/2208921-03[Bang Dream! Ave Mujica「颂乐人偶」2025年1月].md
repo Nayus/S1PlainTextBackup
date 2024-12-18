@@ -11955,3 +11955,28 @@ ykn祥是好的，什么时候真的抬上来卖一下<img src="https://static.s
 
 2024-12-18 21:35 上传
 
+
+*****
+
+####  哈曼的YY  
+##### 4042#       发表于 2024-12-18 21:38
+
+还找了翻译
+
+<img src="https://img.saraba1st.com/forum/202412/18/213827z6fwel66rf0lmr0w.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (124.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-18 21:38 上传
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 4043#       发表于 2024-12-18 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66957086&amp;ptid=2208921" target="_blank">赫尔墨斯的权杖 发表于 2024-12-18 16:50</a></blockquote>
+一眼初音未来<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

@@ -21,3 +21,16 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  洛克萨斯  
+##### 1906#       发表于 2024-12-18 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66957175&amp;ptid=2027972" target="_blank">一个陆仁贾 发表于 2024-12-18 16:57</a>
+
+不记得具体什么车了，街车的话稳定性是差点
+
+—— 来自 鹅球 v3.1.88.3</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">反正是辆白色的，看起来不像跑车，好像是大众的，看演示别人好稳，我自己用陀螺仪就很飘
+

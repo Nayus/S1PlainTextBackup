@@ -991,3 +991,16 @@ KZ虽然垃圾，但是红眼兵是真的帅，想买
 
 现在是原本债券里的全放超级商店了还是就拆了今天这点卖<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xinfengj  
+##### 5649#       发表于 2024-12-19 05:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66921501&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-12-14 02:06</a>
+
+对的，联动债券</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">“索尼挥鞭才让箭头听玩家意见，是索尼拯救了这个游戏！！”
+
+这次可体验到什么才是索尼挥鞭了，原本好好的联动债券，索尼一鞭子下去让北欧懒狗用4天时间周末加班改成2期超级商店提价400%，乐
+

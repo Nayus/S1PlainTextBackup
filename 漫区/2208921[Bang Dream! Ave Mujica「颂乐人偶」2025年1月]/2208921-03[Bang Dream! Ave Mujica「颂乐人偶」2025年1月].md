@@ -11764,3 +11764,45 @@ wsd这次居然这么慷慨<img src="https://static.saraba1st.com/image/smiley/f
 
 相信的心就是魔法，買5張CD抽出一人一張小卡片，完美歐皇！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  悲伤颂偶  
+##### 4031#       发表于 2024-12-18 19:40
+
+武士道良心发现了<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 4032#       发表于 2024-12-18 19:42
+
+<img src="https://img.saraba1st.com/forum/202412/18/194214ojutig4iitxfie7i.png" referrerpolicy="no-referrer">
+
+<strong>e1204e39-a6c7-4ab0-a51f-72239fd48a6d.png</strong> (82.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-18 19:42 上传
+
+<img src="https://img.saraba1st.com/forum/202412/18/194214m0llelknou42kotr.jpg" referrerpolicy="no-referrer">
+
+<strong>GfE_lvzaQAAzn45.jpg</strong> (477.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-18 19:42 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 山ノ内花音| + 1|好评加鹅|
+
+查看全部评分
+

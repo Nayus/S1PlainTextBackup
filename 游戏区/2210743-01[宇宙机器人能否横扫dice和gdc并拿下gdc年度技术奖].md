@@ -850,3 +850,16 @@ GDC很可能是动物井 pk 小丑牌<img src="https://static.saraba1st.com/imag
 
 怎么又吵黑猴，又到了“多一件袈裟不嫌多”环节了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绿冰  
+##### 79#       发表于 2024-12-18 22:53
+
+ 本帖最后由 绿冰 于 2024-12-18 22:55 编辑 
+<blockquote>罗克萨斯 发表于 2024-12-18 15:54
+玩过的人无不被逗笑，比模拟山羊更可爱更讨人喜欢，算不算获奖理由？不过这本身就是个整蛊游戏，重在创意 ...</blockquote>
+做个活灵活现的贱鹅本身就是个技术
+
+如果觉得很简单，作为对比的迷失，就有时候还是会让人觉得这猫动起来有点假
+

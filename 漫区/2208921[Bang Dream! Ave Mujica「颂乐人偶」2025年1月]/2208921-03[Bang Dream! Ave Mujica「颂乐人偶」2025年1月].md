@@ -11177,3 +11177,13 @@ iTunes和apple music感觉也是受了萝推影响
 第一集先行的时候还担心揭面具不够冲击路人，只是冲击到了鸡腿
 op出了确实不用担心没有吸引力了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  K·os  
+##### 3977#       发表于 2024-12-18 13:16
+
+不得不说，就现在的行情，两日ka就是二次元企划在常态下的上限（什么不是常态，水水fl、异次元这种真的只有这一次的不算常态），武士道敢开本身就是自信体现，那全席指定也是顺水推舟
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

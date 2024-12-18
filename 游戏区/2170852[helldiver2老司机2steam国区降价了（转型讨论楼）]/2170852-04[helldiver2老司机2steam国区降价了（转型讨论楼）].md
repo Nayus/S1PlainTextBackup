@@ -959,3 +959,27 @@ PS5匹配时间长，容易掉线的问题。只要把跨平台游戏关了就�
 
 KZ虽然垃圾，但是红眼兵是真的帅，想买
 
+
+*****
+
+####  kalavinka  
+##### 5646#         楼主| 发表于 2024-12-18 23:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202412/18/231926cof5g47lwwkqyzgc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8052.jpeg</strong> (291.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-18 23:19 上传
+
+
+*****
+
+####  新庄運切  
+##### 5647#       发表于 2024-12-18 23:25
+
+万恶的索尼是吧
+

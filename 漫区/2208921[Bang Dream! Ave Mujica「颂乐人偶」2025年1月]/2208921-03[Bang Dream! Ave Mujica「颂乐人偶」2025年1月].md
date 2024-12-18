@@ -11814,3 +11814,49 @@ wsd这次居然这么慷慨<img src="https://static.saraba1st.com/image/smiley/f
 
 ykn祥是好的，什么时候真的抬上来卖一下<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Akari  
+##### 4034#       发表于 2024-12-18 20:12
+
+ 本帖最后由 Akari 于 2024-12-18 20:15 编辑 
+
+老制作人二人组来晒一下本次战绩：
+
+纪念被奏音托举李子扶着的小树；
+
+因为没进入拼图而拥有了茜姐单独大图和回复的花篮；
+
+奏音点名了关系性也颇为有意思。
+
+花篮图来自我暂时不便透露姓名的老朋友，就不分享高清图了~
+
+总之，这波回馈是情绪价值拉满了。
+
+<img src="https://img.saraba1st.com/forum/202412/18/200728li4ihl6z6iclv660.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (125.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-18 20:07 上传
+
+<img src="https://img.saraba1st.com/forum/202412/18/201053vwa4wag4f75vyf25.png" referrerpolicy="no-referrer">
+
+<strong>a658cbced71d29d6d02cf9103606cd45.png</strong> (143.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-18 20:10 上传
+
+<img src="https://img.saraba1st.com/forum/202412/18/201059f5kexq51vhvhqjil.png" referrerpolicy="no-referrer">
+
+<strong>e0e23ec23b596b6f71e6bec5fc46c837.png</strong> (93.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-18 20:10 上传
+
+下次再搞。
+

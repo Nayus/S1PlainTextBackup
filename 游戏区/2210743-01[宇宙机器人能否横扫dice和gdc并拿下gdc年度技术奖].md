@@ -729,3 +729,14 @@ GDC很可能是动物井 pk 小丑牌<img src="https://static.saraba1st.com/imag
 
 主要是让战场既混乱又有序，感觉在节奏的把控上有点东西的
 
+
+*****
+
+####  视奸用小号  
+##### 67#       发表于 2024-12-18 14:38
+
+《黑猴不拿奖都怪评委是啥比白左》
+《我卖了这么多你们居然不想学？》
+
+点开这帖子又长见识了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

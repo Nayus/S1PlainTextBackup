@@ -12119,3 +12119,48 @@ Mujica 将改变动漫界，改变音乐界。
 【ライブレポート】仮面を外したAve Mujica、素顔をさらけ出して新たな世界へ
 [https://t.co/07UBX4ox3M](https://t.co/07UBX4ox3M)
 
+
+*****
+
+####  哈曼的YY  
+##### 4054#       发表于 2024-12-18 23:08
+
+<img src="https://img.saraba1st.com/forum/202412/18/230848fuo4eo2xbzi4wxui.jpg" referrerpolicy="no-referrer">
+
+<strong>VXEQ44~19NO3$G){X{U~G}3_tmb.jpg</strong> (56.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-18 23:08 上传
+
+
+*****
+
+####  ml1642879  
+##### 4055#       发表于 2024-12-18 23:12
+
+怎么办，给B站番剧打低分？
+
+*****
+
+####  哈曼的YY  
+##### 4056#       发表于 2024-12-18 23:13
+
+<img src="https://img.saraba1st.com/forum/202412/18/231326aqqh7aq7ameb4asb.png" referrerpolicy="no-referrer">
+
+<strong>GfBWMV4bQAAqrDb.png</strong> (1.19 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-18 23:13 上传
+
+[https://x.com/nideaneng/status/1869088758093779006](https://x.com/nideaneng/status/1869088758093779006)
+
+*****
+
+####  山ノ内花音  
+##### 4057#       发表于 2024-12-18 23:17
+
+5人がステージを去ると、1月2日にスタートするテレビアニメ「BanG Dream! Ave Mujica」#1の先行上映が行われた。上映が終わるとAve Mujicaが再びステージに登場。その顔を覆う仮面はなく、5人は素顔をさらけ出していた。衝撃に会場が沸く中、5人はアニメのオープニングテーマ「KiLLKiSS」を初パフォーマンス。
+開放的なアンサンブルを打ち鳴らし、バンドの新たな可能性を提示してライブに幕を下ろした。
+

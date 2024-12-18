@@ -11046,3 +11046,51 @@ Image_98084068323415.jpg
 
 [https://x.com/reibouQ/status/1869058400010788995](https://x.com/reibouQ/status/1869058400010788995)
 
+
+*****
+
+####  近月  
+##### 3963#       发表于 2024-12-18 11:23
+
+现在想要好座位的唯一办法就是叠抽选再叠号，中的号全部入金，然后等开座位再留最好的其他全出。烂座出不掉的就只能降价自己承担风险。<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+怪不得这么自信开两万人场，武士道你真是商业天才<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  山ノ内花音  
+##### 3964#       发表于 2024-12-18 11:27
+
+还不如到时候直接收票了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+wsd这么操作 是觉得mujica播完了鸡狗能火到拉拉和爱马仕的级别吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 3965#       发表于 2024-12-18 11:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为了卖票wsd真是脸都不要了
+
+*****
+
+####  御幸一也  
+##### 3966#       发表于 2024-12-18 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66954174&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2024-12-18 11:27</a>
+
+还不如到时候直接收票了
+
+wsd这么操作 是觉得mujica播完了鸡狗能火到拉拉和爱马仕的级别吗 ...</blockquote>
+至少現在對ave的宣傳那是真的突出一個自信哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 3967#       发表于 2024-12-18 11:31
+
+看推上的反应武藏野之后确实鸡有吸引到一些新人
+
+希望动画平稳落地吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

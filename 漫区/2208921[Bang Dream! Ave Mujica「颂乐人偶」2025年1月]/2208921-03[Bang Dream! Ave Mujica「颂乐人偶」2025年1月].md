@@ -11121,3 +11121,11 @@ iTunes和apple music感觉也是受了萝推影响
 
 这次揭面后难绷面具能不能不戴了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  金属化反射装甲  
+##### 3971#       发表于 2024-12-18 12:15
+
+好像一些人是被op癫狂的样子吸引的，印象里的邦邦怎么变成这样了，看一眼这种，算是整活吸到了路人？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

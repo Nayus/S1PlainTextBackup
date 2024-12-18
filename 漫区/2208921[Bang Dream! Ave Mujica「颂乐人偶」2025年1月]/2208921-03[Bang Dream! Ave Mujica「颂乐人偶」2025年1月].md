@@ -10910,3 +10910,35 @@ CM 23s是祥子在写剧本吗？不知道在暗示什么
 困難嗎，不覺得，都半身了為什麼需要其他人出手，其他人關係有睦祥之間那麼緊密嗎。
 所以不勞煩隔壁了呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adcdqre  
+##### 3951#       发表于 2024-12-18 09:19
+
+圣买狗牛逼
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+
+*****
+
+####  狮子咕  
+##### 3952#       发表于 2024-12-18 09:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按照独角兽的对称，狗团最多也就是私下和谁聊聊而已，解决问题基本都是团内自己互相解决
+
+*****
+
+####  瞳映山川  
+##### 3953#       发表于 2024-12-18 09:24
+
+不觉得需要卖狗解决呢<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ナマエナシ  
+##### 3954#       发表于 2024-12-18 09:27
+
+<img src="https://p.sda1.dev/20/96dd709c88480074d3baa3f18b0cd8e1/bang3.JPG" id="aimg_G3k3c" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+

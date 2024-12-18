@@ -11980,3 +11980,51 @@ ykn祥是好的，什么时候真的抬上来卖一下<img src="https://static.s
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66957086&amp;ptid=2208921" target="_blank">赫尔墨斯的权杖 发表于 2024-12-18 16:50</a></blockquote>
 一眼初音未来<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 4044#       发表于 2024-12-18 21:47
+
+ 本帖最后由 Aendst 于 2024-12-18 21:48 编辑 
+
+给每个花篮都写回应真的特别无敌<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+自己喜欢的角色能遇到mujica这五人这样的中之人真的太好了
+
+只靠着声优回应都能开心好几个月的程度<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 4045#       发表于 2024-12-18 21:48
+
+幫貼一下花籃圖<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer"> 
+
+hs佬真的太會畫了
+
+<img src="https://img.saraba1st.com/forum/202412/18/214744u5f35uhrp3rs0pux.jpg" referrerpolicy="no-referrer">
+
+<strong>008C0Fz0ly1hwlpa6lo8mj31jk2bchdt.jpg</strong> (335.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-18 21:47 上传
+
+[https://weibo.com/7890723198/P4ZfY5OGy](https://weibo.com/7890723198/P4ZfY5OGy)
+
+*****
+
+####  山ノ内花音  
+##### 4046#       发表于 2024-12-18 21:48
+
+[https://b23.tv/B2YbFyV](https://b23.tv/B2YbFyV)
+
+<img src="https://img.saraba1st.com/forum/202412/18/214803l36sy94sn34nn24r.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4006.jpeg</strong> (772.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-18 21:48 上传
+

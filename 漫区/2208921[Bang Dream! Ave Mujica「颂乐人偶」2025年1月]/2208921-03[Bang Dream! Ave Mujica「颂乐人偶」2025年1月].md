@@ -11354,3 +11354,49 @@ KVEY_W_`D$O2JC{YTY[3_KC.jpg
 看到个现有pv的剪辑，车站对峙场景初华一个耳光扇大喵老师的可能性有90%啊😧 ...</blockquote>
 可能性是0.00%。大概是说了什么回怼，不可能上手的。初华是很pro的人。
 
+
+*****
+
+####  狂热飞鸟  
+##### 3994#       发表于 2024-12-18 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66956696&amp;ptid=2208921" target="_blank">RPG-7 发表于 2024-12-18 16:12</a>
+
+看到个现有pv的剪辑，车站对峙场景初华一个耳光扇大喵老师的可能性有90%啊😧 ...</blockquote>
+你这个真是绝无可能，请考虑下这是邦邦乐队番和初华是主角之一好吗，这种情况扇人和友情破颜掌唤醒朋友的性质差很多的
+
+*****
+
+####  山ノ内花音  
+##### 3995#       发表于 2024-12-18 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66956696&amp;ptid=2208921" target="_blank">RPG-7 发表于 2024-12-18 16:12</a>
+看到个现有pv的剪辑，车站对峙场景初华一个耳光扇大喵老师的可能性有90%啊😧 ...</blockquote>
+然后喵梦反手一个报警 
+接着演十集监狱风云<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 3996#       发表于 2024-12-18 16:22
+
+花千能拿下同居是因为彩千薰都在一个大学而花音不在，泥邦搞多线端水是真的会考虑平衡的
+
+
+*****
+
+####  qjw114514  
+##### 3997#       发表于 2024-12-18 16:23
+
+为爆而爆的玩意儿当玩笑说说得了，怎么总喜欢当真<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 3998#       发表于 2024-12-18 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66956773&amp;ptid=2208921" target="_blank">NODY 发表于 2024-12-18 16:22</a>
+花千能拿下同居是因为彩千薰都在一个大学而花音不在，邦邦搞多线端水是真的会考虑平衡的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以考虑端水我觉得同居概率不大，最多借住一晚（但是祥子现在这个刺猬形态性格很难说，只有睦知道祥子的秘密）
+除非睦线有惊天大活，不然初祥同居概率挺小的
+

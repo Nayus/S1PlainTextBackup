@@ -933,3 +933,13 @@ PS5匹配时间长，容易掉线的问题。只要把跨平台游戏关了就�
 
 这杀戮地带联动装备卖这么贵就离谱，索尼你也知道这个被你亲手按死的IP还值点钱啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">不买
 
+
+*****
+
+####  保科智子  
+##### 5643#       发表于 2024-12-18 21:02
+
+今天我们更新了爆满等待页面，修复玩家过多的bug<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

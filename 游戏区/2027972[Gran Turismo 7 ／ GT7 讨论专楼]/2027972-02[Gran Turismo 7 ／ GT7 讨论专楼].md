@@ -62,3 +62,17 @@
 
 正在研究陀螺仪怎么设置
 
+
+*****
+
+####  一个陆仁贾  
+##### 1909#       发表于 2024-12-18 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66958563&amp;ptid=2027972" target="_blank">洛克萨斯 发表于 2024-12-18 19:51</a>
+过了，谢谢，虽然只有铜
+
+正在研究陀螺仪怎么设置</blockquote>
+一般灵敏度调-2，没别的了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

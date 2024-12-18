@@ -11871,3 +11871,42 @@ ykn祥是好的，什么时候真的抬上来卖一下<img src="https://static.s
 说是嗜血长颈鹿，但净搞些“扇耳光扯头发吃代餐发恶评”之类的无聊贷款，这长颈鹿的纯度未免太低了，怕不是 ...</blockquote>
 本来大家嫌弃的也不是框架和情节，而是不合胃口的符号和表达
 
+
+*****
+
+####  前方暴雨预警  
+##### 4036#       发表于 2024-12-18 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66958868&amp;ptid=2208921" target="_blank">八佾舞于潭 发表于 2024-12-18 20:30</a>
+
+本来大家嫌弃的也不是框架和情节，而是不合胃口的符号和表达</blockquote>
+哦，原来你喜欢郭敬明的情节编排啊？
+
+失敬失敬，我算了解这类人都是什么品味了，果然不能试图去说服一个人火箭不需要用水洗煤
+
+*****
+
+####  Aendst  
+##### 4037#       发表于 2024-12-18 21:05
+
+渡瀬反馈刚好发出来了，我也来发一下
+
+和朋友们一起送了花篮（高尾侧的），具体设计插画名牌都是各种朋友帮忙的产物，就不放出来了
+
+有想过风格会不会不够阳光不太合适，最后还是决定照着这种氛围做出来了
+
+能被高尾点出关系性，能被渡瀬完全get到整体的构想真的是意外惊喜<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202412/18/205558czguqaut7tjz3utv.jpg" referrerpolicy="no-referrer">
+
+<strong>GfFIKq7asAAAXSm.jpg</strong> (307.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-18 20:55 上传
+
+[https://x.com/Watase_Yuzuki/status/1869354681052664124](https://x.com/Watase_Yuzuki/status/1869354681052664124)
+[https://x.com/Kanon_Takao/status/1868975069411917887](https://x.com/Kanon_Takao/status/1868975069411917887)
+
+反馈实在是太好了有一种生涯一片无悔的感觉
+

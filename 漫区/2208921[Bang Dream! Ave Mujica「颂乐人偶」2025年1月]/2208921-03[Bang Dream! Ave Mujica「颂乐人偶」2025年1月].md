@@ -11113,3 +11113,11 @@ iTunes和apple music感觉也是受了萝推影响
 
 大概还是摘面具的加成比较大，看几个萝群现地人员的说法前面部分都是以前看过的所以没什么感觉，摘面具后都在说李子神之类的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  瞳映山川  
+##### 3970#       发表于 2024-12-18 12:03
+
+这次揭面后难绷面具能不能不戴了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

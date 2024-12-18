@@ -875,3 +875,13 @@ PS5匹配时间长，容易掉线的问题。只要把跨平台游戏关了就�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ykyin09  
+##### 5639#       发表于 2024-12-18 12:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">箭头能把殖民地地形也做到另外两条战线吗，我还挺想跟机器人打巷战的
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

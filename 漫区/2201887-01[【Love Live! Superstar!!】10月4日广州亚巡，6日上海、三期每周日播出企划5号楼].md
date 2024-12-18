@@ -13000,3 +13000,15 @@ Screenshot_2024-12-16-00-42-39-303_tv.danmaku.bili.jpg
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  一个陆仁贾  
+##### 1273#       发表于 2024-12-18 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66952903&amp;ptid=2201887" target="_blank">ads147147 发表于 2024-12-18 09:34</a>
+有一说一，这时候又来搞老五星，不会激起当年看到加人的ptsd么，至少在那天前我还真的在一心脑补这五个人 ...</blockquote>
+我觉得有ptsd的人还能坚持看这动画到现在，已经没什么不能忍的了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

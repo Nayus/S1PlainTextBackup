@@ -863,3 +863,15 @@ PS5匹配时间长，容易掉线的问题。只要把跨平台游戏关了就�
 
 今天更新完又开始频繁闪退了，这就是箭头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  扑克脸军曹  
+##### 5638#       发表于 2024-12-18 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66947025&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-12-17 15:50</a>
+但我印象里西线有那种不能关闭的干扰塔啊，那不就炸不掉了吗</blockquote>
+应该都能关的，只是没找到面板，前两天看视频发现有一种操作面板不在塔身上的干扰塔，可能这种塔之前都是炸工厂来摧毁所以没在意
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

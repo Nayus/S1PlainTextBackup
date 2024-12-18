@@ -12988,3 +12988,15 @@ Screenshot_2024-12-16-00-42-39-303_tv.danmaku.bili.jpg
 
 有敌团歌和mv又是走老路样板戏了，没有个敌团就又不行了，到底想要什么（
 
+
+*****
+
+####  ads147147  
+##### 1272#       发表于 2024-12-18 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66953736&amp;ptid=2201887" target="_blank">日野下花帆 发表于 2024-12-18 10:52</a>
+有敌团歌和mv又是走老路样板戏了，没有个敌团就又不行了，到底想要什么（ ...</blockquote>
+可能是想要，gbc（）
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

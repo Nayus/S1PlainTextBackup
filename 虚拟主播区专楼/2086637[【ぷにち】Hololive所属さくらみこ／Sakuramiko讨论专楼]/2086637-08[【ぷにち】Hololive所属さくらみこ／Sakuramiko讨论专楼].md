@@ -987,3 +987,32 @@ danime注册巨麻烦，很不厚道的直接去看corocorochannel的官方视�
 
 一般认为明天打伯青哥，不过也有可能是其他什么玩意
 
+
+*****
+
+####  holoan  
+##### 10439#         楼主| 发表于 2024-12-18 00:52
+
+说到今天捏的马自立，这什么标题？
+
+<img src="https://img.saraba1st.com/forum/202412/18/005241ct2e8ilz8b0eai8h.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (73.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-18 00:52 上传
+
+*****
+
+####  holoan  
+##### 10440#         楼主| 发表于 2024-12-18 11:24
+
+<img src="https://img.saraba1st.com/forum/202412/18/112440mltsii8swtx58skd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (238.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-18 11:24 上传
+

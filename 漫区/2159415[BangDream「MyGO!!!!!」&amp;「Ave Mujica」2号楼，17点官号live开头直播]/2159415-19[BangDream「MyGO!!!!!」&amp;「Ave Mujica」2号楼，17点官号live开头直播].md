@@ -675,3 +675,18 @@ WS卡2月28开卖
 帅 wsd 帅
 <img src="https://p.sda1.dev/20/4f06d6f7fd66163d90fe50d2d1faf530/Image_309191930516736.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  滑稽Captain  
+##### 26688#       发表于 2024-12-18 11:18
+
+狗友鸡友看了都哭了，这能没有S席
+
+*****
+
+####  山ノ内花音  
+##### 26689#       发表于 2024-12-18 11:20
+
+这是不是意味wsd认为mujica播完之后邦能火到拉拉和爱马仕的程度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

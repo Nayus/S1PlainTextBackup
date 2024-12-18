@@ -11606,3 +11606,80 @@ KVEY_W_`D$O2JC{YTY[3_KC.jpg
 
 这是活跃的全跑过来了吗
 
+
+*****
+
+####  御幸一也  
+##### 4017#       发表于 2024-12-18 18:40
+
+被人貼去小團體群組了吧，不然這麼多人盯著你樓看，有點太暗戀了哦<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 4018#       发表于 2024-12-18 18:43
+
+看人应该是隔壁百综搞的吧，不愧是美帝都上不了桌的c姨姥大本营
+
+还是太爱烂梗了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 4019#       发表于 2024-12-18 18:43
+
+killkiss小卡
+
+烫金
+
+<img src="https://img.saraba1st.com/forum/202412/18/184337idtt9nftnh0fphpo.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0814.jpeg</strong> (562.81 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-18 18:43 上传
+
+<img src="https://img.saraba1st.com/forum/202412/18/184347effwmsd9ukxdzuap.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0816.jpeg</strong> (739.35 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-18 18:43 上传
+
+<img src="https://img.saraba1st.com/forum/202412/18/184355i77tw762streeeii.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0817.jpeg</strong> (764.25 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-18 18:43 上传
+
+
+*****
+
+####  Aendst  
+##### 4020#       发表于 2024-12-18 18:44
+
+ 本帖最后由 Aendst 于 2024-12-18 18:45 编辑 
+
+还是太无聊了只能集体出征，没办法，毕竟crychic没东西可聊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这卡居然做了烫金……<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">还以为只是那种普通的塞CD里的普通纸片
+
+*****
+
+####  PDQ4  
+##### 4021#       发表于 2024-12-18 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66958068&amp;ptid=2208921" target="_blank">skives 发表于 2024-12-18 18:43</a>
+
+killkiss小卡
+
+烫金</blockquote>
+真烫金，好大方的wsd<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+

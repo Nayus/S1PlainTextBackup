@@ -79,3 +79,17 @@
 
 但我完全没感觉，因为我不知道他们想干什么，该干什么……就连为什么要去“救”亚妮艾丝都搞不懂
 
+
+*****
+
+####  红魔馆的糖  
+##### 7128#       发表于 2024-12-18 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66959627&amp;ptid=2160194" target="_blank">秘银mithril 发表于 2024-12-18 22:36</a>
+他们各种对话，还有剧情过后的BGM，好像很紧张很紧迫的样子
+
+但我完全没感觉，因为我不知道他们想干什么， ...</blockquote>
+和大总统的那段对话真是烂完了，我不知道你干嘛，也不知道我能干嘛，总之你就是不对，先和我打一场，其他的总会有办法的。
+
+你妈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

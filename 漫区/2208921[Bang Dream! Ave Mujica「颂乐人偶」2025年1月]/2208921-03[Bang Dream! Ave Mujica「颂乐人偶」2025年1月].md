@@ -11578,3 +11578,13 @@ KVEY_W_`D$O2JC{YTY[3_KC.jpg
 
 我觉得把喵祥当灯祥代餐，觉得祥把喵梦当作高松东代餐的多少沾点<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  3353764798  
+##### 4014#       发表于 2024-12-18 18:13
+
+大祥老师要成为世界第一，女人什么的很碍事。别拉郎配了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

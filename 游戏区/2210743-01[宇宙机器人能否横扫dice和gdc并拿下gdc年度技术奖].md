@@ -781,3 +781,24 @@ GDC很可能是动物井 pk 小丑牌<img src="https://static.saraba1st.com/imag
 有没有高手知道为什么20年dice和gdc都给大鹅goty？</blockquote>
 玩过的人无不被逗笑，比模拟山羊更可爱更讨人喜欢，算不算获奖理由？不过这本身就是个整蛊游戏，重在创意而不是技术，为啥能选上只能亲自去问评委
 
+
+*****
+
+####  赤井稻妻  
+##### 72#       发表于 2024-12-18 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66956475&amp;ptid=2210743" target="_blank">karastar 发表于 2024-12-18 15:47</a>
+
+最成功不还是在说销量吗</blockquote>
+不过如果是以销量或者玩家数这种数据来算的话，最成功的UE5游戏大概是堡垒之夜？
+
+*****
+
+####  赤井稻妻  
+##### 73#       发表于 2024-12-18 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66956529&amp;ptid=2210743" target="_blank">罗克萨斯 发表于 2024-12-18 15:54</a>
+
+玩过的人无不被逗笑，比模拟山羊更可爱更讨人喜欢，算不算获奖理由？不过这本身就是个整蛊游戏，重在创意 ...</blockquote>
+大鹅最有亮点的创意大概是结局？
+

@@ -11409,3 +11409,108 @@ KVEY_W_`D$O2JC{YTY[3_KC.jpg
 看二创乐呵是乐呵，乐呵内容是否可能发生是另一回事，二创和真实的官方作品是不一样的。
 想看什么剧情，并不等于这个剧情符合人物设定。会不会发生取决于故事走向，而不是有没有意思或者爆不爆，这不是赤坂明的作品。
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 4000#       发表于 2024-12-18 16:46
+
+<img src="https://p.sda1.dev/20/ac32a721e5debad3e0071750d8b2eef2/CMP_20241218164620558.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 4001#       发表于 2024-12-18 16:49
+
+樂 扣個代餐論爛梗的分能引出那麼多回血盾，小團體人可真多<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+都快2025年了居然還有那麼多支持代餐的，開眼咯
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 4002#       发表于 2024-12-18 16:50
+
+<img src="https://p.sda1.dev/20/d6a18226a68088edcc8068a52534abd8/CMP_20241218165020156.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 4003#       发表于 2024-12-18 16:52
+
+支持喵祥喵喔，這次幫朋友一起弄的花籃，奏音和茜給的反饋也太足還特地比心，好有愛<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202412/18/165106vzqd9ll58z25nnll.jpg" referrerpolicy="no-referrer">
+
+<strong>Ge-uy_Cb0AAa6HM.jpg</strong> (356.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-18 16:51 上传
+
+[https://x.com/Kanon_Takao/status/1868904598725091826](https://x.com/Kanon_Takao/status/1868904598725091826)
+
+<img src="https://img.saraba1st.com/forum/202412/18/165102q83wumzjergwh6el.jpg" referrerpolicy="no-referrer">
+
+<strong>nymsk.jpg</strong> (253.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-18 16:51 上传
+
+[https://x.com/Popstar88271370/status/1868275793312498083](https://x.com/Popstar88271370/status/1868275793312498083)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 4战斗力 +4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| PDQ4| + 1||
+| 星天观测| + 1|好评加鹅|
+| 66367749| + 1|好评加鹅|
+| 御景| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  阿萨德飞过去  
+##### 4004#       发表于 2024-12-18 16:55
+
+我来当回恶人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png">，是不是初华挡了某些人路啊
+这又是代餐，又是共犯，又是耳光的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png">花样挺多
+
+*****
+
+####  Aendst  
+##### 4005#       发表于 2024-12-18 16:56
+
+池A一楼广场据说有在放mujica的OP
+
+查询一般路过阿宅的感想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 4006#       发表于 2024-12-18 16:57
+
+贷款完全不讲章法有点没意思了，毕竟大伙想看的的是avemujica不是漏油自创皮套大作
+
+初华不是那种人设，好好的大明星（可能微恋爱脑）让有些人整成精神小太妹还美曰其名爆
+
+商业出道变成街溜子乐队确实爆在哪里，爆在wsd马不够用吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 4007#       发表于 2024-12-18 16:57
+
+可能是發現祥子踩不了了，就開始踩主唱了吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> 
+
+畢竟這一年來，我發現有些人是真的從來不把ave的主唱放眼裡，總之就是墊墊墊，一定要爆爆爆，可能欺負初華推人少吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

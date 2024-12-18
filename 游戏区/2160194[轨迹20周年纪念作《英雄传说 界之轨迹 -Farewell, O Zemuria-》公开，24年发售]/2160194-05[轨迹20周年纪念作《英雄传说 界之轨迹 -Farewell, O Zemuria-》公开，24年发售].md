@@ -101,3 +101,23 @@
 
 糟糕，凯文线的四个角色各差25点连接点数，应该是少看了一个电影<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 7130#       发表于 2024-12-18 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66959859&amp;ptid=2160194" target="_blank">秘银mithril 发表于 2024-12-18 23:22</a>
+
+糟糕，凯文线的四个角色各差25点连接点数，应该是少看了一个电影</blockquote>
+回廊里面有礼物卡，抽了么
+
+*****
+
+####  SuNR1sE364  
+##### 7131#       发表于 2024-12-18 23:50
+
+<blockquote>洛克萨斯 发表于 2024-12-18 23:47
+回廊里面有礼物卡，抽了么</blockquote>
+礼物卡有数量限制，电影缺太多一周目是满不了羁绊点数的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也被坑了
+

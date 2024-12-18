@@ -810,3 +810,14 @@ GDC很可能是动物井 pk 小丑牌<img src="https://static.saraba1st.com/imag
 
 不知道为啥现在黑吗喽和销量绑定在一起了，音乐、画面、音效、美术、文本、剧情、动作模组、人物设计、怪物设计、关卡设计难道一样都拿不出手吗？
 
+
+*****
+
+####  karastar  
+##### 75#       发表于 2024-12-18 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66957233&amp;ptid=2210743" target="_blank">Evilgurren 发表于 2024-12-18 17:04</a>
+
+不知道为啥现在黑吗喽和销量绑定在一起了，音乐、画面、音效、美术、文本、剧情、动作模组、人物设计、怪物 ...</blockquote>
+这下苏联笑话了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

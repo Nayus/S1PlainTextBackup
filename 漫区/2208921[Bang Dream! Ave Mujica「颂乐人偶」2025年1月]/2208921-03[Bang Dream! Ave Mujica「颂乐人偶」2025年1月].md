@@ -12217,3 +12217,12 @@ Mujica 将改变动漫界，改变音乐界。
 
 https://x.com/akni105/status/1869405981052227687?s=19
 
+
+*****
+
+####  66367749  
+##### 4062#       发表于 2024-12-19 00:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66959780&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2024-12-18 23:08</a></blockquote>
+b站经常看到炒作型的动画封面<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

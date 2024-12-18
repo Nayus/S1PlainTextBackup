@@ -10899,3 +10899,14 @@ CM 23s是祥子在写剧本吗？不知道在暗示什么
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">睦，这么严肃的场景，你是不是该说点什么？
 
+
+*****
+
+####  御幸一也  
+##### 3950#       发表于 2024-12-18 09:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66952390&amp;ptid=2208921" target="_blank">纯白花火 发表于 2024-12-18 08:40</a>
+睦祥部分感觉光靠鸡队内解决有点困难，应该还得买狗出手</blockquote>
+困難嗎，不覺得，都半身了為什麼需要其他人出手，其他人關係有睦祥之間那麼緊密嗎。
+所以不勞煩隔壁了呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

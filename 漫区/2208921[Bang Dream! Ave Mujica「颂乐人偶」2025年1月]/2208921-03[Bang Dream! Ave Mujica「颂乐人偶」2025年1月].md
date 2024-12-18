@@ -10966,3 +10966,48 @@ CM 23s是祥子在写剧本吗？不知道在暗示什么
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">op开头的扑克牌，只有祥子的是从上方下落着出现的，很好奇祥子在正片中会遭重几次
 
+
+*****
+
+####  山ノ内花音  
+##### 3958#       发表于 2024-12-18 10:08
+
+<img src="https://img.saraba1st.com/forum/202412/18/100743pea5atx0jb0xnzd7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0806.jpeg</strong> (159.75 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-18 10:07 上传
+
+鸡狗对邦这也太幽默了
+
+wsd是要赚完这一票倒闭吗
+
+*****
+
+####  qjw114514  
+##### 3959#       发表于 2024-12-18 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66950785&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-18 01:07</a>
+细看了一遍车站部分，睦和祥子站在同一条线上，但是距离最远
+看睦线怎么写了，第一集睦祥就不少，第二集光 ...</blockquote>
+必然是要祥来解决的，其她人对睦的了解程度差了一个量级<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+而且按照已公开的情报，睦现在说是“满脑子只想着祥子”也不为过，何况还有负罪感这个事儿没说呢，等到睦出了问题祥子不是帮她的主力，那可就太幽默了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">单向半身吗？
+除非是祥先一步坏掉了，然后连锁反应引爆睦，那确实没法顾及
+
+*****
+
+####  御幸一也  
+##### 3960#       发表于 2024-12-18 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66953230&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2024-12-18 10:08</a>
+
+鸡狗对邦这也太幽默了
+
+wsd是要赚完这一票倒闭吗</blockquote>
+笑死，Kアリ搞全席一般席，什麼終極闇鍋ガチャ<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+太想賣票了吧武士道
+

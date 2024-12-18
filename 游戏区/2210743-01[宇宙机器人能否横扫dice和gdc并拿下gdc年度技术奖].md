@@ -757,3 +757,27 @@ GDC很可能是动物井 pk 小丑牌<img src="https://static.saraba1st.com/imag
 
 有没有高手知道为什么20年dice和gdc都给大鹅goty？
 
+
+*****
+
+####  karastar  
+##### 70#       发表于 2024-12-18 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66956406&amp;ptid=2210743" target="_blank">赤井稻妻 发表于 2024-12-18 15:38</a>
+
+聊tga讲讲销量就算了，怎么到了技术奖也要提销量……
+
+当然了，说黑猴不值得学习肯定也不客观，毕竟算是市 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">最成功不还是在说销量吗
+
+
+*****
+
+####  罗克萨斯  
+##### 71#       发表于 2024-12-18 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66956417&amp;ptid=2210743" target="_blank">Juz_doit 发表于 2024-12-18 15:39</a>
+
+有没有高手知道为什么20年dice和gdc都给大鹅goty？</blockquote>
+玩过的人无不被逗笑，比模拟山羊更可爱更讨人喜欢，算不算获奖理由？不过这本身就是个整蛊游戏，重在创意而不是技术，为啥能选上只能亲自去问评委
+

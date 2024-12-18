@@ -12176,3 +12176,13 @@ Mujica 将改变动漫界，改变音乐界。
 
 记得好好坚持呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑夜落叶秋天  
+##### 4059#       发表于 2024-12-19 00:16
+
+<blockquote>山ノ内花音 发表于 2024-12-18 23:17
+5人がステージを去ると、1月2日にスタートするテレビアニメ「BanG Dream! Ave Mujica」#1の先行上映が行わ ...</blockquote>
+这是新文字预告么
+

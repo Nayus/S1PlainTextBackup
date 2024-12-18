@@ -12915,3 +12915,20 @@ Screenshot_2024-12-16-00-42-39-303_tv.danmaku.bili.jpg
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  仟音一心  
+##### 1264#       发表于 2024-12-18 08:31
+
+我们仍未知道那天酸菜鱼接受了多少采访。
+
+【JPbeta专访Liyuu和法元明菜 | LoveLive！Series亚洲巡演上海站2024】 [https://www.bilibili.com/video/B ... a72830f4665c1ebd3cf](https://www.bilibili.com/video/BV1i3kHYPE5T/?share_source=copy_web&amp;vd_source=e3fc4172c6f57a72830f4665c1ebd3cf)
+
+*****
+
+####  黒烨  
+##### 1265#       发表于 2024-12-18 08:32
+
+。算了没什么好说的
+

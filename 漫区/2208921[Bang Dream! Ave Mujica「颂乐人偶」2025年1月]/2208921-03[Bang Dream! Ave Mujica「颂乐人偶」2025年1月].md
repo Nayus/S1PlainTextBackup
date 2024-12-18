@@ -11727,3 +11727,40 @@ wsd这次居然这么慷慨<img src="https://static.saraba1st.com/image/smiley/f
 
 剧烈心动了……
 
+
+*****
+
+####  九陌狂游  
+##### 4026#       发表于 2024-12-18 19:00
+
+无敌了，要是能点菜就好了...不想抽卡<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DEI  
+##### 4027#       发表于 2024-12-18 19:01
+
+希望能抽到想要的角色！！！
+
+*****
+
+####  星天观测  
+##### 4028#       发表于 2024-12-18 19:03
+
+已和小团体拼团，希望二单初动数据有惊喜吧
+
+
+*****
+
+####  你妈的为什么  
+##### 4029#       发表于 2024-12-18 19:05
+
+妈的 一套一张 那不是收集地狱？
+
+*****
+
+####  御幸一也  
+##### 4030#       发表于 2024-12-18 19:07
+
+相信的心就是魔法，買5張CD抽出一人一張小卡片，完美歐皇！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

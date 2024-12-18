@@ -11139,3 +11139,22 @@ iTunes和apple music感觉也是受了萝推影响
 <img src="https://p.sda1.dev/20/53c099fd1a273ff6fd702c66ac83b9f8/image.jpg" referrerpolicy="no-referrer">
 官号发了
 
+
+*****
+
+####  akiomn  
+##### 3973#       发表于 2024-12-18 12:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">op那个颜艺说不定真能吸引不少嗜血乐子人进来
+
+*****
+
+####  novalli  
+##### 3974#       发表于 2024-12-18 13:01
+
+从pv到op再到cm，怎么感觉祥子就是被命运接连的打击搞懵了，孤注一掷地抓住眼前看似唯一的“救命稻草”一条路走到黑；身边除了睦之外都是利用了祥子单纯的猛冲去实现自己的目的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+剧情大概是祥子从打击中逐渐或者突然缓过来，彻底满足或者彻底断绝队友的私心，成为真正的“共犯”和家人？
+如果是这样，那祥子好像中二病还没好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.94-alpha
+

@@ -708,3 +708,13 @@ WS卡2月28开卖
 
 能不能冰箱贴也多点
 
+
+*****
+
+####  CyDiablo  
+##### 26692#       发表于 2024-12-18 17:38
+
+无敌了罗森<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那我那天早起跑罗森是为了什么来着。
+<img src="https://p.sda1.dev/20/14b76e40395bb702f2d06ae421be0cfd/IMG_20241218_173640.jpg" referrerpolicy="no-referrer">
+哦，是我因为只上了3个没买到的椎名立希立牌<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

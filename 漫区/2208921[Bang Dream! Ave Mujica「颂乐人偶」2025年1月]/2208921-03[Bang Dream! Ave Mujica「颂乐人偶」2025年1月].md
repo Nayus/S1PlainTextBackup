@@ -11158,3 +11158,22 @@ iTunes和apple music感觉也是受了萝推影响
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.94-alpha
 
+
+*****
+
+####  novalli  
+##### 3975#       发表于 2024-12-18 13:10
+
+睦和海玲藏得太多，看不出来什么。目前来看，喵梦显然不在乎祥子，只是为了自己出名。即使是祥子挂在嘴上的初华，似乎也没有问过祥子真实的想法，只是单方面的说“祥子很在乎mujica呢”或者“我想和祥子一直在一起”，搞不好也类似soyo那样。soyo是想要有祥子的c团，初华想要的（可能）是自己记忆中的祥子以及和祥子在一起的自己，都没去了解过祥子现在是什么状态。
+不过我也不希望初华是这种角色，可能也是被以前的祥子魅惑到了导致视野狭窄吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.94-alpha
+
+*****
+
+####  PDQ4  
+##### 3976#       发表于 2024-12-18 13:10
+
+第一集先行的时候还担心揭面具不够冲击路人，只是冲击到了鸡腿
+op出了确实不用担心没有吸引力了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -11187,3 +11187,33 @@ op出了确实不用担心没有吸引力了<img src="https://static.saraba1st.c
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  哈曼的YY  
+##### 3978#       发表于 2024-12-18 14:47
+
+感觉被pv1吸引觉得玩乐队能玩成这个样子？所以来看的我眼光真是太好了
+
+
+*****
+
+####  ml1642879  
+##### 3979#       发表于 2024-12-18 14:53
+
+一想到还是要塞进手游甚至发配到PICO，我就忍不住笑了起来
+
+*****
+
+####  山ノ内花音  
+##### 3980#       发表于 2024-12-18 14:57
+
+<img src="https://img.saraba1st.com/forum/202412/18/145757sohg1shon0qo1tkk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0812.jpeg</strong> (54.73 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-18 14:57 上传
+

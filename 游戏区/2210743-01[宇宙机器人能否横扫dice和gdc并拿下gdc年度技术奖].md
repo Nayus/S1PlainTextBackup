@@ -863,3 +863,16 @@ GDC很可能是动物井 pk 小丑牌<img src="https://static.saraba1st.com/imag
 
 如果觉得很简单，作为对比的迷失，就有时候还是会让人觉得这猫动起来有点假
 
+
+*****
+
+####  Linkwjj  
+##### 80#       发表于 2024-12-18 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66939686&amp;ptid=2210743" target="_blank">qty 发表于 2024-12-16 17:07</a>
+
+所谓的开发者，媒体，不过是名目而已，本质都是同一群人，搞的几个不同牌子的舆论工具罢了。 ...</blockquote>
+这都能混为一谈你对评奖是有多恨？
+
+还是你对拿不到的奖有多恨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

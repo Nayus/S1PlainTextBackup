@@ -983,3 +983,11 @@ KZ虽然垃圾，但是红眼兵是真的帅，想买
 
 万恶的索尼是吧
 
+
+*****
+
+####  kalavinka  
+##### 5648#         楼主| 发表于 2024-12-18 23:34
+
+现在是原本债券里的全放超级商店了还是就拆了今天这点卖<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

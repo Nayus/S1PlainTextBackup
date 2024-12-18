@@ -11094,3 +11094,22 @@ wsd这么操作 是觉得mujica播完了鸡狗能火到拉拉和爱马仕的级�
 
 希望动画平稳落地吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 3968#       发表于 2024-12-18 11:39
+
+现场萝推很多而且大概体验都挺满意的
+
+应该是真的拉了一批人开始关注
+
+iTunes和apple music感觉也是受了萝推影响
+
+*****
+
+####  星天观测  
+##### 3969#       发表于 2024-12-18 11:43
+
+大概还是摘面具的加成比较大，看几个萝群现地人员的说法前面部分都是以前看过的所以没什么感觉，摘面具后都在说李子神之类的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

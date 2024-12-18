@@ -13012,3 +13012,15 @@ Screenshot_2024-12-16-00-42-39-303_tv.danmaku.bili.jpg
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  lanslort  
+##### 1274#       发表于 2024-12-18 15:10
+
+没对手这话听着可熟悉了，当年普罗丢人来拉踩缪不就是这套说法吗 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+不过都2024了，谁还看nico啊，二季那么烂不也过来了
+
+不过话说回来，我觉得这季歌的质量还不如二季，二季好歹有个维他命之夏让我印象深刻的，三季的歌都是听完就忘了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

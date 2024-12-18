@@ -38,3 +38,20 @@
 
 再丢一井给月底拿个蛇，贵族不行就交黑卡吧。
 
+
+*****
+
+####  phoenixxj  
+##### 18106#       发表于 2024-12-18 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66944577&amp;ptid=1158205" target="_blank">Geyorkias 发表于 2024-12-17 11:02</a>
+
+花佬说的要是真的，估计得交一井给yqm了，她太可爱了。
+
+再丢一井给月底拿个蛇，贵族不行就交黑卡吧。 ...</blockquote>
+你游现在抽卡最大的焦虑就是年底这个贵族
+
+黑卡换容易被背刺 不换你可能根本没机会抽到
+
+去年还觉得石油武器无敌，现在祛魅后，感觉已经可以心平气和的和黑卡和解了。
+

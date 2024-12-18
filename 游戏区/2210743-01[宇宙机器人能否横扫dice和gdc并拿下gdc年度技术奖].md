@@ -740,3 +740,20 @@ GDC很可能是动物井 pk 小丑牌<img src="https://static.saraba1st.com/imag
 
 点开这帖子又长见识了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赤井稻妻  
+##### 68#       发表于 2024-12-18 15:38
+
+聊tga讲讲销量就算了，怎么到了技术奖也要提销量……
+
+当然了，说黑猴不值得学习肯定也不客观，毕竟算是市面上最成功的对UE5引擎应用的游戏了吧，只是不知道对于这些奖项来说对商业引擎的使用算不算技术
+
+*****
+
+####  Juz_doit  
+##### 69#       发表于 2024-12-18 15:39
+
+有没有高手知道为什么20年dice和gdc都给大鹅goty？
+

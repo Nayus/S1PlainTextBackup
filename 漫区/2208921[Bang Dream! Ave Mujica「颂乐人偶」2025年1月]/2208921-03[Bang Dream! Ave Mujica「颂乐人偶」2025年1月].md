@@ -11129,3 +11129,13 @@ iTunes和apple music感觉也是受了萝推影响
 
 好像一些人是被op癫狂的样子吸引的，印象里的邦邦怎么变成这样了，看一眼这种，算是整活吸到了路人？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AveMujica  
+##### 3972#         楼主| 发表于 2024-12-18 12:35
+
+【【CM】TV动画「BanG Dream! Ave Mujica」-哔哩哔哩】 https://b23.tv/cSNH7nC
+<img src="https://p.sda1.dev/20/53c099fd1a273ff6fd702c66ac83b9f8/image.jpg" referrerpolicy="no-referrer">
+官号发了
+

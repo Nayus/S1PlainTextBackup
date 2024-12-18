@@ -12186,3 +12186,18 @@ Mujica 将改变动漫界，改变音乐界。
 5人がステージを去ると、1月2日にスタートするテレビアニメ「BanG Dream! Ave Mujica」#1の先行上映が行わ ...</blockquote>
 这是新文字预告么
 
+
+*****
+
+####  山ノ内花音  
+##### 4060#       发表于 2024-12-19 00:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66960128&amp;ptid=2208921" target="_blank">黑夜落叶秋天 发表于 2024-12-19 00:16</a>
+这是新文字预告么</blockquote>
+上面那篇4th新闻的最后一段
+
+五人离开舞台后，1月2日即将开播的电视动画《BanG Dream! Ave Mujica》第1集的先行上映开始了。放映结束后，Ave Mujica再次登上舞台。这次，她们摘下了遮住面容的面具，五人以真面目示人。在观众的震惊中，她们首次表演了动画的片头曲《KiLLKiSS》。  
+随着合奏响彻全场，她们展现了乐队的新可能性，为演出画下了句号。
+
+期待无面具常态化
+

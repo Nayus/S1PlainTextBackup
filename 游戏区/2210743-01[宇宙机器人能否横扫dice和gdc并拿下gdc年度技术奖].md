@@ -876,3 +876,16 @@ GDC很可能是动物井 pk 小丑牌<img src="https://static.saraba1st.com/imag
 
 还是你对拿不到的奖有多恨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qty  
+##### 81#       发表于 2024-12-19 06:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66959917&amp;ptid=2210743" target="_blank">Linkwjj 发表于 2024-12-18 23:32</a>
+
+这都能混为一谈你对评奖是有多恨？
+
+还是你对拿不到的奖有多恨</blockquote>
+你阅读理解能力有待提高，我都说了“不同牌子”，自然是要干不同层面的活的，不同层面的活有明显的区别，你要是仅因为它们都是舆论工具就说是混为一谈，那我就没啥跟你可说的了。
+

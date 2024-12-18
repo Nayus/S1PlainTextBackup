@@ -121,3 +121,15 @@
 回廊里面有礼物卡，抽了么</blockquote>
 礼物卡有数量限制，电影缺太多一周目是满不了羁绊点数的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也被坑了
 
+
+*****
+
+####  秘银mithril  
+##### 7132#       发表于 2024-12-19 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66959998&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-12-18 23:47</a>
+回廊里面有礼物卡，抽了么</blockquote>
+抽了，几个人整整齐齐差25，二周目再说吧
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

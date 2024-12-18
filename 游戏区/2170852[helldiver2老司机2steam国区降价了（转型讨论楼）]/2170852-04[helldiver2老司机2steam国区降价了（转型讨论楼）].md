@@ -915,3 +915,13 @@ PS5匹配时间长，容易掉线的问题。只要把跨平台游戏关了就�
 
 [https://www.gamesradar.com/games ... ared-to-take-risks/](https://www.gamesradar.com/games/third-person-shooter/after-an-eventful-year-helldivers-2-devs-hope-it-will-be-less-of-a-bumpy-road-when-it-comes-to-release-accuracy-but-arrowhead-is-still-prepared-to-take-risks/)
 
+
+*****
+
+####  风萧飒  
+##### 5641#       发表于 2024-12-18 19:30
+
+又有新战备了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

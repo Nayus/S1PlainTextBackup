@@ -821,3 +821,16 @@ GDC很可能是动物井 pk 小丑牌<img src="https://static.saraba1st.com/imag
 不知道为啥现在黑吗喽和销量绑定在一起了，音乐、画面、音效、美术、文本、剧情、动作模组、人物设计、怪物 ...</blockquote>
 这下苏联笑话了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  陈乔恩  
+##### 76#       发表于 2024-12-18 20:34
+
+ 本帖最后由 陈乔恩 于 2024-12-18 20:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66957233&amp;ptid=2210743" target="_blank">Evilgurren 发表于 2024-12-18 17:04</a>
+不知道为啥现在黑吗喽和销量绑定在一起了，音乐、画面、音效、美术、文本、剧情、动作模组、人物设计、怪物 ...</blockquote>
+不会有人觉得黑神话的画面，音乐，美术，剧情，动作模组，人物设计都没小机器人好吧？不会吧不会吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAH-AN00m, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

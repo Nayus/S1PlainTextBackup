@@ -11860,3 +11860,14 @@ ykn祥是好的，什么时候真的抬上来卖一下<img src="https://static.s
 
 下次再搞。
 
+
+*****
+
+####  八佾舞于潭  
+##### 4035#       发表于 2024-12-18 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66958120&amp;ptid=2208921" target="_blank">前方暴雨预警 发表于 2024-12-18 18:49</a>
+
+说是嗜血长颈鹿，但净搞些“扇耳光扯头发吃代餐发恶评”之类的无聊贷款，这长颈鹿的纯度未免太低了，怕不是 ...</blockquote>
+本来大家嫌弃的也不是框架和情节，而是不合胃口的符号和表达
+

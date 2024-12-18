@@ -11588,3 +11588,11 @@ KVEY_W_`D$O2JC{YTY[3_KC.jpg
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  yuyin589  
+##### 4015#       发表于 2024-12-18 18:26
+
+某些人磕cp不去好好分析原作人物跟角色关系性，反而喜欢让自家cp寄生在别的cp上，偷别人家东西。一时分不清到底是普信还是自卑<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+

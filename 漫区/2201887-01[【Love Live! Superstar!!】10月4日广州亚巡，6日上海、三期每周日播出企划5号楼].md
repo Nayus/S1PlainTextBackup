@@ -12956,3 +12956,14 @@ Screenshot_2024-12-16-00-42-39-303_tv.danmaku.bili.jpg
 
 没对手很容易理解啊，惯例的敌团歌和MV都没有
 
+
+*****
+
+####  ads147147  
+##### 1269#       发表于 2024-12-18 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66952749&amp;ptid=2201887" target="_blank">evestart 发表于 2024-12-18 09:20</a>
+
+哎，这集真不至于掉到5，整一集对老五星毕业的铺垫的不错，更别说最后SP里还有老五星的歌 ...</blockquote>
+有一说一，这时候又来搞老五星，不会激起当年看到加人的ptsd么，至少在那天前我还真的在一心脑补这五个人第二年要耍什么宝，花田最爱的喝茶回怎么给恋恋补上，完全没考虑过加人这事，甚至还是加四个。。
+

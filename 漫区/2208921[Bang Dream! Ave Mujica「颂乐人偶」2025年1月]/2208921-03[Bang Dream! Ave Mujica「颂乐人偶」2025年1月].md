@@ -10942,3 +10942,11 @@ CM 23s是祥子在写剧本吗？不知道在暗示什么
 
 <img src="https://p.sda1.dev/20/96dd709c88480074d3baa3f18b0cd8e1/bang3.JPG" id="aimg_G3k3c" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
+
+*****
+
+####  狮子咕  
+##### 3955#       发表于 2024-12-18 09:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最多就是类似初华开解灯那样的不占多少内存的戏份。说到这个，其实我至今不太理解睦头人黑着脸对灯说素食不知道咋办了起到了什么用途……
+

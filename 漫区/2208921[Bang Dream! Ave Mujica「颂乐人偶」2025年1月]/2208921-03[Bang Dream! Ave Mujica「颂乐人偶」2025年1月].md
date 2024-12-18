@@ -11514,3 +11514,28 @@ KVEY_W_`D$O2JC{YTY[3_KC.jpg
 
 畢竟這一年來，我發現有些人是真的從來不把ave的主唱放眼裡，總之就是墊墊墊，一定要爆爆爆，可能欺負初華推人少吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 4008#       发表于 2024-12-18 17:02
+
+ 本帖最后由 Aendst 于 2024-12-18 17:07 编辑 
+
+不是很理解，搞这种迷惑贷款是因为不踩就捞不起来想捧的，还是因为真的恨纸片人<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+总不能是因为嫉妒，对纸片人这样多少有点违反常理了
+
+不过什么人都有，前几天live现场还有看着祥妈葬礼片段、看到扔啤酒罐场景大笑出声的本年度迷惑行为大赏获得者
+
+不知道被这种人影响观看体验的正常人有什么感想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都不只是不礼貌没素质的问题了
+
+*****
+
+####  山ノ内花音  
+##### 4009#       发表于 2024-12-18 17:08
+
+主要是因为b站贴吧以泛式粉丝为代表的“嗜血长颈鹿”、以及想要看到百合题材作品做烂的厨厨太多了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+人家就是一种想看你出丑的心态
+但也有纯良人被它们AI般的复读力绕进去的
+

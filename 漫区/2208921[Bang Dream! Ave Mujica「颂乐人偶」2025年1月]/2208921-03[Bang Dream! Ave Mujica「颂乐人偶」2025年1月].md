@@ -11289,3 +11289,68 @@ KVEY_W_`D$O2JC{YTY[3_KC.jpg
 
 然后就是暂住和大学四年都同居也是不一样的，目前都不能确定祥子是直接住下了还是过个夜应急
 
+
+*****
+
+####  akiomn  
+##### 3987#       发表于 2024-12-18 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66956611&amp;ptid=2208921" target="_blank">贰臣 发表于 2024-12-18 16:03</a>
+花千圣也没把薰千圣按死啊
+
+然后就是暂住和大学四年都同居也是不一样的，目前都不能确定祥子是直接住下了还 ...</blockquote>
+主要剧情发展会变得很奇怪，初华爆了在后期，以及pv里丰川家那幕要怎么解释？而祥子肯定还藏着秘密，第一集只是观众知道祥子的秘密了（我觉得肯定还藏着别的没告诉观众）但是剧内角色不知道
+
+*****
+
+####  贰臣  
+##### 3988#       发表于 2024-12-18 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66956643&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-18 16:06</a>
+
+主要剧情发展会变得很奇怪，初华爆了在后期，以及pv里丰川家那幕要怎么解释？而祥子肯定还藏着秘密，第一 ...</blockquote>
+那毕竟正片还没播出，目前猜也就是顺着pv和cm的新画面找点依据<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+而且我感觉从mygo开始就没几个人能猜中剧情走向，现在猜剧情还是图一乐比较多，说不定最后给出的又是出乎所有人意料的走向
+
+
+*****
+
+####  RPG-7  
+##### 3989#       发表于 2024-12-18 16:12
+
+看到个现有pv的剪辑，车站对峙场景初华一个耳光扇大喵老师的可能性有90%啊😧
+
+*****
+
+####  3353764798  
+##### 3990#       发表于 2024-12-18 16:13
+
+会是小祥拒绝休息但是初华心疼然后下安眠药吗，因为违背了小祥的意愿所以说不要讨厌我。此事在青春猪头中亦有记载。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+虽然不好灯祥这口但还是希望有灯在桥上扑倒飞祥的回旋镖<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  贰臣  
+##### 3991#       发表于 2024-12-18 16:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">还在耳光还在耳光，初华根本就不是这种动手的性格好吗
+
+*****
+
+####  御景  
+##### 3992#       发表于 2024-12-18 16:14
+
+可能性只有0%，满脑子爆爆爆的，怎么不去看二创
+
+*****
+
+####  66367749  
+##### 3993#       发表于 2024-12-18 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66956696&amp;ptid=2208921" target="_blank">RPG-7 发表于 2024-12-18 16:12</a>
+看到个现有pv的剪辑，车站对峙场景初华一个耳光扇大喵老师的可能性有90%啊😧 ...</blockquote>
+可能性是0.00%。大概是说了什么回怼，不可能上手的。初华是很pro的人。
+

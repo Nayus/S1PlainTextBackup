@@ -11683,3 +11683,47 @@ killkiss小卡
 烫金</blockquote>
 真烫金，好大方的wsd<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  前方暴雨预警  
+##### 4022#       发表于 2024-12-18 18:49
+
+说是嗜血长颈鹿，但净搞些“扇耳光扯头发吃代餐发恶评”之类的无聊贷款，这长颈鹿的纯度未免太低了，怕不是下一步准备“泼红酒撕衣服上天台讨情债”的套路了？我在看《梦里花落知多少》还是《小时代》啊？一说郭小四都在嘲笑，一贷起款来个个化身郭小四，对文娱作品的认知水平也就到这儿了。
+
+我求你们别守着《最小说》那个档次的青春疼痛文学使劲反刍还要到处向别人推荐美食了，吃点好的吧！
+
+*****
+
+####  御幸一也  
+##### 4023#       发表于 2024-12-18 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66958068&amp;ptid=2208921" target="_blank">skives 发表于 2024-12-18 18:43</a>
+
+killkiss小卡
+
+烫金</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">我的天 太好看了吧
+
+*****
+
+####  前方暴雨预警  
+##### 4024#       发表于 2024-12-18 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66958068&amp;ptid=2208921" target="_blank">skives 发表于 2024-12-18 18:43</a>
+
+killkiss小卡
+
+烫金</blockquote>
+wsd这次居然这么慷慨<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+感觉可以期待一下初动上万了
+
+
+*****
+
+####  贰臣  
+##### 4025#       发表于 2024-12-18 18:55
+
+剧烈心动了……
+

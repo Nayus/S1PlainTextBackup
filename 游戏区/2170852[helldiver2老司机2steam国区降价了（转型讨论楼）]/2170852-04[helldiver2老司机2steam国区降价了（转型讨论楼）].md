@@ -925,3 +925,11 @@ PS5匹配时间长，容易掉线的问题。只要把跨平台游戏关了就�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  6x6z6w  
+##### 5642#       发表于 2024-12-18 20:46
+
+这杀戮地带联动装备卖这么贵就离谱，索尼你也知道这个被你亲手按死的IP还值点钱啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">不买
+

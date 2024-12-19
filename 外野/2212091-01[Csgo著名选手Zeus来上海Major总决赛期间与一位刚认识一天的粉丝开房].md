@@ -1678,3 +1678,33 @@ ezgirl送批，回帖大量批判郭楠<img src="https://static.saraba1st.com/im
 上海真能约到device吗我想问了，这个神人玉玉鸽了a队的rmr就没来。</blockquote>
 举个栗子罢了，这回每次看玩出解说没有刘农我就觉得少了点啥，但他也确实纯出拖到最后才说不打
 
+
+*****
+
+####  tasuku  
+##### 172#       发表于 2024-12-19 17:17
+
+约就约了屁大点事
+
+要是噶姐来找我约我也上的好吧
+
+*****
+
+####  卡鲁修特  
+##### 173#       发表于 2024-12-19 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66965366&amp;ptid=2212091" target="_blank">deadline 发表于 2024-12-19 17:08</a>
+
+举个栗子罢了，这回每次看玩出解说没有刘农我就觉得少了点啥，但他也确实纯出拖到最后才说不打 ...</blockquote>
+你还不如用niko和donk举例
+
+
+*****
+
+####  没什么bu好  
+##### 174#       发表于 2024-12-19 17:24
+
+反正到时候会有人接盘，且彩礼一份都不能少<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi 22021211RC,Android 12](http://stage1.5j4m.com/?1.37)
+

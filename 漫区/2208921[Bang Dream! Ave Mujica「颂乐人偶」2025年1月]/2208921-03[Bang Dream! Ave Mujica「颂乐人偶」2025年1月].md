@@ -12352,3 +12352,11 @@ b站经常看到炒作型的动画封面<img src="https://static.saraba1st.com/i
 
 [https://x.com/hikkikomori17/status/1869370116905062595](https://x.com/hikkikomori17/status/1869370116905062595)
 
+
+*****
+
+####  结衣小比取  
+##### 4073#       发表于 2024-12-19 17:19
+
+求助一下，“G-WAVE”是个什么设施？有没有介绍？就是初次Live那个场地
+

@@ -1383,3 +1383,34 @@ ZEUS说不怪我，海参先干的。</blockquote>
 
 test1111fengnu
 
+
+*****
+
+####  scorbian  
+##### 145#       发表于 2024-12-19 15:28
+
+怎么还有转进到免签政策的啊，老外进来你就一定要送吗？自己管不住批还怪上郭嘉了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2227A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  拜拜  
+##### 146#       发表于 2024-12-19 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66961241&amp;ptid=2212091" target="_blank">yuialon 发表于 2024-12-19 09:47</a>
+乌克兰男的都死了快100W，按1:5比例，500W残疾人
+
+适龄男性都快打光了，女的能找到对象就知足吧 ...</blockquote>
+那么中国人去乌克兰找老婆呢
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  正田崇  
+##### 147#       发表于 2024-12-19 15:34
+
+电竞圈打胎艹粉又不是啥新鲜事，不要粘上老白男就一惊一乍的
+

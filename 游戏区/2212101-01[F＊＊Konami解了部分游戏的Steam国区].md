@@ -488,3 +488,16 @@ Konami还是没彻底想开，以早些年自己的那些家底，每年固定�
 
 百英雄传比幻术2差很多
 
+
+*****
+
+####  橙冰  
+##### 54#       发表于 2024-12-19 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66963417&amp;ptid=2212101" target="_blank">猪突猛进R 发表于 2024-12-19 13:47</a>
+
+冬促什么时候？先加愿望单了，到时候再买。
+
+如果又锁了就继续F呗。</blockquote>
+冬促明天早上开始
+

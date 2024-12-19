@@ -1922,3 +1922,25 @@ Csgo能有女粉？ 我不信</blockquote>
 
 你往楼上翻，不是批评郭楠大惊小怪就是郭楠也干了
 
+
+*****
+
+####  frankCC  
+##### 194#       发表于 2024-12-19 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66966606&amp;ptid=2212091" target="_blank">卡鲁修特 发表于 2024-12-19 20:00</a>
+
+话说这事集美主流舆论是怎么个说法
+
+到底是批判白老登拖家带口的异国出差裤腰带松，还是赞赏姐妹敢爱敢恨英 ...</blockquote>
+xhs上总共只有3条，加起来不到100赞。
+
+*****
+
+####  mj240608414  
+##### 195#       发表于 2024-12-19 20:17
+
+就男朋友网上的言论来看，这女的在男朋友面前怕不是清纯白莲花形象。现在这种见面5分钟立刻开始打炮的视频一公示出来啥形象都没有了，她不说自己是粉丝作补难不成你还要她承认自己是esg？
+
+—— 来自 Xiaomi 22127RK46C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

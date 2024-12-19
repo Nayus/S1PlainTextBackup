@@ -406,3 +406,17 @@ Konami还是没彻底想开，以早些年自己的那些家底，每年固定�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
 
+
+*****
+
+####  忧蓝  
+##### 47#       发表于 2024-12-19 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66963567&amp;ptid=2212101" target="_blank">苦瓜师傅 发表于 2024-12-19 14:04</a>
+幻水1 2和打折的百英 那个值得买
+
+— from S1 Next Goose v3.3.92</blockquote>
+幻水，
+
+百英制作组目前消失ing，承诺的更新一个都没给。
+

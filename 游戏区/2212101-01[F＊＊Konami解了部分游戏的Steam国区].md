@@ -568,3 +568,20 @@ Konami还是没彻底想开，以早些年自己的那些家底，每年固定�
 
 解锁了是吧，到时候心跳记得放上来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Shih0_Matsuri  
+##### 62#       发表于 2024-12-19 19:42
+
+魂斗罗跟恶魔城可以的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+*****
+
+####  Tring  
+##### 63#       发表于 2024-12-19 19:43
+
+E宝送完就解？还是爬吧。
+

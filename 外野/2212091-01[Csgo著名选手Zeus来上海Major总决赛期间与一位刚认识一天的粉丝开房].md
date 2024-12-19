@@ -1845,3 +1845,14 @@ ezg脑子里只有那话儿<img src="https://static.saraba1st.com/image/smiley/f
 要是噶姐来找我约我也上的好吧</blockquote>
 漏油到时候记得发视频
 
+
+*****
+
+####  乙山法純  
+##### 187#       发表于 2024-12-19 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66965010&amp;ptid=2212091" target="_blank">deadline 发表于 2024-12-19 16:37</a>
+
+讲道理，你要是给simple，device约大伙还能理解，先不说帅不帅毕竟确实是明星，和这么个老登约炮在圈内人看 ...</blockquote>
+肥猪现在还不如宙斯吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -520,3 +520,34 @@ pv出了，黎加闪混合系统
 卖不起销量可不就这样咯</blockquote>
 明年能上pc，今年不知道为什么界轨不上pc，近藤神奇的项目安排
 
+
+*****
+
+####  windtrack_qh  
+##### 7172#       发表于 2024-12-19 14:05
+
+加藤死了股价暴涨
+
+<img src="https://img.saraba1st.com/forum/202412/19/140515njpqg5ghx7hzh17y.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (42.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-19 14:05 上传
+
+
+*****
+
+####  黒鈴ミヲ  
+##### 7173#       发表于 2024-12-19 14:10
+
+亚洲区怎么能卖成这个样子的，老钟真不爱了吗<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一步成诗  
+##### 7174#       发表于 2024-12-19 14:13
+
+还有，虽然空轨重制这个建模看起来不如界精致，但是就演出来说我觉得比界灵动多了，用不用心一眼看得出来，之前说你法就是对界不上心还有人不信<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

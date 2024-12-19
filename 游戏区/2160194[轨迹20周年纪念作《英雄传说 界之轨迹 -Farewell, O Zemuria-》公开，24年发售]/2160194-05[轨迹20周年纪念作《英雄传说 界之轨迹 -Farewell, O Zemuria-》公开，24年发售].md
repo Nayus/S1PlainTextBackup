@@ -1237,3 +1237,14 @@ ysx主要原本就足够完整了，这个加强版卖是肯定卖不了几份�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  pf67  
+##### 7237#       发表于 2024-12-20 01:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66968261&amp;ptid=2160194" target="_blank">windtrack_qh 发表于 2024-12-20 00:59</a>
+
+讲道理不如做成大型DLC，说不定骂还少挨点</blockquote>
+但是人家自信说了是瞄准新用户，搞大型dlc那不还是之前的粉丝买
+

@@ -685,3 +685,11 @@ C105周边
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">学妹看起来要挂在天上两年了，桃花剑好像也没挂多久吧，闪3之后立刻出闪4了
 
+
+*****
+
+####  aimujie  
+##### 7190#       发表于 2024-12-19 17:31
+
+闪34隔了一年，但是闪3的中文版拖了很久貌似比4还晚，34的中文版只有四个月，所以玩中文版的话体感李老师没挂多久<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

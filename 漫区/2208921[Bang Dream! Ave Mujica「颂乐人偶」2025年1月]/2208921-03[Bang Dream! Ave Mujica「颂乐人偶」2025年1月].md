@@ -12286,3 +12286,27 @@ b站经常看到炒作型的动画封面<img src="https://static.saraba1st.com/i
 這個小畫家又回來畫祥子了 </blockquote>
 画的这么1做什么了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 4068#       发表于 2024-12-19 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66962413&amp;ptid=2208921" target="_blank">枫林不见 发表于 2024-12-19 11:50</a>
+
+画的这么1做什么了</blockquote>
+祥攻是正確的！<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 4069#       发表于 2024-12-19 11:58
+
+<img src="https://img.saraba1st.com/forum/202412/19/115830gzzqqqrl334lqb5q.png" referrerpolicy="no-referrer">
+
+<strong>a077a4f7-78b2-4cb3-a88d-f5d2884ab75b.png</strong> (63.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-19 11:58 上传
+

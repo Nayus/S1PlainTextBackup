@@ -897,3 +897,26 @@ ezg里面名校本硕甚至博的我又没少见
 
 在上海在纽约见过的都不要太多
 
+
+*****
+
+####  Mimic  
+##### 99#       发表于 2024-12-19 12:04
+
+看了下贴吧时间线，是决赛完酒吧认识的，什么成分不好说
+
+*****
+
+####  笵藏  
+##### 100#       发表于 2024-12-19 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66962447&amp;ptid=2212091" target="_blank">雾仙猫灯 发表于 2024-12-19 11:54</a>
+笑死，典型的树立靶子脑补乱打
+
+ezg里面名校本硕甚至博的我又没少见
+
+在上海在纽约见过的都不要太多 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">理解一下，不加上脑补低学历歧视，很多小镇在校生三观会遭遇重大打击
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+

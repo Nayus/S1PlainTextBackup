@@ -218,3 +218,20 @@ a6ac2e34e5dde711215903d0e1efce1b9c166159.jpg
 
 大活估计就海外版吧，之前不是报道tgs期间在和nisa还有xseed在内数家发行商谈判吗，看代理商能不能给帮忙弄个ps版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 7141#       发表于 2024-12-19 12:03
+
+来了              
+
+0ed0791a0ef41bd58e6692d3**81cb39db3d2b.jpg
+(154.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-19 12:03 上传
+
+<img src="https://img.saraba1st.com/forum/202412/19/120306qn2osn22rm220xzo.jpg" referrerpolicy="no-referrer">
+

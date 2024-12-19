@@ -497,3 +497,57 @@ Csgo能有女粉？ 我不信
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  btn5754  
+##### 60#       发表于 2024-12-19 10:16
+
+部分中国女人确实非常自贱，随着国力的不断增强，人民的自信心确实在不断增长，但很明显男人群体的自信心增长比女性群体要快，这是为啥呢<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  FeteFrumoase  
+##### 61#       发表于 2024-12-19 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66961388&amp;ptid=2212091" target="_blank">月白天青 发表于 2024-12-19 10:03</a>
+
+假如这个男粉丝有女朋友呢
+
+—— 来自 鹅球 v3.0.86-alpha</blockquote>
+根据我在论坛见到的看到的,一半骂,一半更加羡慕
+
+*****
+
+####  FeteFrumoase  
+##### 62#       发表于 2024-12-19 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66961394&amp;ptid=2212091" target="_blank">月白天青 发表于 2024-12-19 10:04</a>
+
+没看到多少，您举个例子，比如说男的找外国女人“学英语”的
+
+—— 来自 鹅球 v3.0.86-alpha ...</blockquote>
+大把,都是东欧居多,夜场 ktv发达地方白人妹不少
+
+
+*****
+
+####  六道仙鱼  
+##### 63#       发表于 2024-12-19 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66961467&amp;ptid=2212091" target="_blank">SillyGoose 发表于 2024-12-19 10:13</a>
+Csgo能有女粉？ 我不信</blockquote>
+上海 major 现场女粉丝挺多的。小红书我也刷到过不少 g2 女粉。不过宙斯打比赛的时候，这女粉丝感觉还在读初中吧，纯纯 ez 了而已。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+*****
+
+####  最爱赛姐  
+##### 64#       发表于 2024-12-19 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66961488&amp;ptid=2212091" target="_blank">btn5754 发表于 2024-12-19 10:16</a>
+
+部分中国女人确实非常自贱，随着国力的不断增强，人民的自信心确实在不断增长，但很明显男人群体的自信心增 ...</blockquote>
+国女不是自贱，而是普通国男在国内的地位太低了，女人都慕强，国内的强者是当官的和当老板的，还有得到官方超国民待遇的洋人，前两者要是和洋人一样把有钱有权写脸上，一样有很多xxn扑上去
+

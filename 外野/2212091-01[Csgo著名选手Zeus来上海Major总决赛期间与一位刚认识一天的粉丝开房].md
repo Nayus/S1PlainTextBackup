@@ -1812,3 +1812,36 @@ ezg脑子里只有那话儿<img src="https://static.saraba1st.com/image/smiley/f
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  cc-2  
+##### 184#       发表于 2024-12-19 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66966307&amp;ptid=2212091" target="_blank">kalavinka 发表于 2024-12-19 19:10</a>
+
+链接与正文内容无关，不扣鹅都不错了</blockquote>
+纳尼，无关的吗
+
+我要扣鹅了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  爱尔米娜  
+##### 185#       发表于 2024-12-19 19:30
+
+244都开了，不要过来传播疾病啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  非建政专用号  
+##### 186#       发表于 2024-12-19 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66965452&amp;ptid=2212091" target="_blank">tasuku 发表于 2024-12-19 17:17</a>
+
+约就约了屁大点事
+
+要是噶姐来找我约我也上的好吧</blockquote>
+漏油到时候记得发视频
+

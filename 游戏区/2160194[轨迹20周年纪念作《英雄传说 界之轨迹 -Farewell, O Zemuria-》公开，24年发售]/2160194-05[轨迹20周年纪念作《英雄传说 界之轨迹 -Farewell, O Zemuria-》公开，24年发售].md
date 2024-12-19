@@ -208,3 +208,13 @@ a6ac2e34e5dde711215903d0e1efce1b9c166159.jpg
 
 那估计就只有东轨新图了。主角团人设啥的
 
+
+*****
+
+####  卢迪克  
+##### 7140#       发表于 2024-12-19 09:58
+
+ 本帖最后由 卢迪克 于 2024-12-19 10:00 编辑 
+
+大活估计就海外版吧，之前不是报道tgs期间在和nisa还有xseed在内数家发行商谈判吗，看代理商能不能给帮忙弄个ps版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

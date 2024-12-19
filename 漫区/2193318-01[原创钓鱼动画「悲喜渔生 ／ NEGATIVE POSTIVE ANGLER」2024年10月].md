@@ -241,3 +241,29 @@
 想借一群钓鱼佬描绘人生百态，只看这个主旨和初期的设定的话，写好了能写出个舌尖1来，结果最后也就是个舌 ...</blockquote>
 草，看到这个舌尖的比喻才发现bgm那个熊猫头像的也是你啊，明明名字一样之前却没注意到<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dqtql  
+##### 206#       发表于 2024-12-19 22:39
+
+算是终结了今年B站独家原创番必烂尾的魔咒吧
+
+
+*****
+
+####  没取名啊  
+##### 207#       发表于 2024-12-19 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66967551&amp;ptid=2193318" target="_blank">RhmBWT_Wu 发表于 2024-12-19 22:32</a>
+草，看到这个舌尖的比喻才发现bgm那个熊猫头像的也是你啊，明明名字一样之前却没注意到 ...</blockquote>
+熊猫 ×
+宇佐见堇子 ✓<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+*****
+
+####  makece  
+##### 208#       发表于 2024-12-19 22:47
+
+能进个人前五
+

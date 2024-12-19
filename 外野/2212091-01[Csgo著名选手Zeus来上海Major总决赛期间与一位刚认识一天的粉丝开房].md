@@ -1591,3 +1591,50 @@ ez不ez的，整个东亚东南亚上下阶层面对白皮猪都挺身段柔软�
 
 你指出不对就是酸了，先从人格上拉低批评者，就能让人忽略本质的问题是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  三谷歩夢  
+##### 164#       发表于 2024-12-19 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66964952&amp;ptid=2212091" target="_blank">pu 发表于 2024-12-19 16:33</a>
+不是啊 新闻上写的粉丝啊 你那么了解对面不是粉丝是牧羊烂B？
+
+再说了 酒吧约炮不是普遍现象么 约就约呗   ...</blockquote>
+什么新闻？你说那些连选手都认不全的自媒体？
+这女的要找的是披肩设备这种现役选手还能说是粉丝，宙斯打职业的时候这女的才初中左右，别说认不认识这个人了估计连CS都不知道是什么东西，一要人品没人品要颜值没啥颜值的老白男她粉什么啊？
+何况从宙斯自己发的demo来看他只是在酒吧之类的地方乱逛看女人，刚好撞上了这个女的，他自己都没说这是他的粉丝只是在群里说钓上了个女人，不知道怎么能脑补成粉丝的
+
+*****
+
+####  冯恩在写小说  
+##### 165#       发表于 2024-12-19 16:50
+
+哎经典共沉沦，有的幕刃这时候怎么不**方方“我女我也”了？
+
+*****
+
+####  bn.ssgr  
+##### 166#       发表于 2024-12-19 16:51
+
+洗的都是负鹅水军这点就很有趣
+
+*****
+
+####  battleship64  
+##### 167#       发表于 2024-12-19 16:52
+
+不是<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那个kiko么
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  fuwamoco  
+##### 168#       发表于 2024-12-19 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66965010&amp;ptid=2212091" target="_blank">deadline 发表于 2024-12-19 16:37</a>
+
+讲道理，你要是给simple，device约大伙还能理解，先不说帅不帅毕竟确实是明星，和这么个老登约炮在圈内人看 ...</blockquote>
+上海真能约到device吗我想问了，这个神人玉玉鸽了a队的rmr就没来。
+

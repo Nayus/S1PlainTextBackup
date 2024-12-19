@@ -593,3 +593,24 @@ E宝送完就解？还是爬吧。
 
 MGSV我记得以前是通过链接买的
 
+
+*****
+
+####  粉有  
+##### 65#       发表于 2024-12-19 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66963417&amp;ptid=2212101" target="_blank">猪突猛进R 发表于 2024-12-19 13:47</a>
+冬促什么时候？先加愿望单了，到时候再买。
+
+如果又锁了就继续F呗。</blockquote>
+今晚2点
+
+*****
+
+####  粉有  
+##### 66#       发表于 2024-12-19 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66966903&amp;ptid=2212101" target="_blank">saberserker 发表于 2024-12-19 20:56</a>
+MGSV我记得以前是通过链接买的</blockquote>
+哈哈MGS系列没解锁
+

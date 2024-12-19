@@ -987,3 +987,13 @@ Q：近年、ライセンス売上が製品売上を上回っている。製品�
 
 "界の軌跡"ほどのボリュームもないし、シナリオもシンプルだが心に響くようなところがあるとか、そういった見直しが社内に入っている。そういったところをきっかけに、今後の開発を進めていきたい
 
+
+*****
+
+####  smdzh2  
+##### 7214#       发表于 2024-12-19 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66964154&amp;ptid=2160194" target="_blank">清浦刹那 发表于 2024-12-19 16:16</a>
+C105周边</blockquote>
+连执行者和铁机队立绘都要拿出来卖钱，你法真掉钱眼子里了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

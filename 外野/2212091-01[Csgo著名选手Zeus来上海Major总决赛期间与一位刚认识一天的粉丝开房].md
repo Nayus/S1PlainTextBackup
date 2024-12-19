@@ -1944,3 +1944,14 @@ xhs上总共只有3条，加起来不到100赞。
 
 —— 来自 Xiaomi 22127RK46C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  闷吸  
+##### 196#       发表于 2024-12-19 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66961233&amp;ptid=2212091" target="_blank">stlover 发表于 2024-12-19 09:46</a>
+
+宙斯辉煌的时候都得是1.6时期的navi了，这个ezgirl是不是想草儿神草错人了</blockquote>
+竟然真的是这个老登嘛，我以重名后辈呢，这有什么好贴的
+

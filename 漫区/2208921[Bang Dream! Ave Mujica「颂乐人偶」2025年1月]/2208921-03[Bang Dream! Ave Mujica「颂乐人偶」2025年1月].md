@@ -12275,3 +12275,14 @@ b站经常看到炒作型的动画封面<img src="https://static.saraba1st.com/i
 
 [https://x.com/xuserpost/status/1869578636338335846](https://x.com/xuserpost/status/1869578636338335846)
 
+
+*****
+
+####  枫林不见  
+##### 4067#       发表于 2024-12-19 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66962311&amp;ptid=2208921" target="_blank">御幸一也 发表于 2024-12-19 11:40</a>
+
+這個小畫家又回來畫祥子了 </blockquote>
+画的这么1做什么了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

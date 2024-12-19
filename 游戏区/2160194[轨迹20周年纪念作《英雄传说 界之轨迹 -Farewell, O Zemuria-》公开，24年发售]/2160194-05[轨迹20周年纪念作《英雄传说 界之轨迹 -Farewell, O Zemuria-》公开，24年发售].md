@@ -940,3 +940,16 @@ Q　『空の軌跡 the 1st』全世界同時発売に期待している。制�
 
 轨迹太长了，问哪个系列入坑最好不好说，给了玩家一个全平台的空轨重制，这个问题回答得还行。但是后面说如果1st销量不好就没后续，看得也是绷不住<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 7211#       发表于 2024-12-19 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66965997&amp;ptid=2160194" target="_blank">zhouaa 发表于 2024-12-19 18:24</a>
+首都做完了 该有2个新城市了吧  阿尔泰市一个 还有个不知道
+黎轨这个系列缺少国境场景</blockquote>
+做了一半的奥雷德，还有剧情一直提的瓦利斯吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

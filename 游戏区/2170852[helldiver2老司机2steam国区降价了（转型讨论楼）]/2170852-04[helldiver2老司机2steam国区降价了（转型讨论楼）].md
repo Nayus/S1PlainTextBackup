@@ -1107,3 +1107,19 @@ KZ虽然垃圾，但是红眼兵是真的帅，想买
 
 那第一套的超级币补给我吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  LrGsite  
+##### 5660#       发表于 2024-12-20 03:07
+
+<img src="https://img.saraba1st.com/forum/202412/20/030651k1rryk8lky15r2yk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (390.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-20 03:06 上传
+
+真给力啊 抵抗入侵的好快啊
+

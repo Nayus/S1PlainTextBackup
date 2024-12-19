@@ -1435,3 +1435,13 @@ test1111fengnu
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.1-alpha
 
+
+*****
+
+####  Rainwedell  
+##### 150#       发表于 2024-12-19 16:03
+
+虽然宙斯目前在 cs 社区风评属于标准烂人，甚至已经淡出职业圈 5 年左右了，真有 ezg 找着送我估计他自己都没想到<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">，如果是酒吧认识的深圳可能 ezg 都不知道这人是谁，然后发电报了才炸了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

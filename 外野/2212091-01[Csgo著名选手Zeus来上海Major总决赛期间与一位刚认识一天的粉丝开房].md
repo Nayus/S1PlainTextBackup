@@ -1907,3 +1907,18 @@ Csgo能有女粉？ 我不信</blockquote>
 人家就普通做个爱，也就泥潭的处男老保觉得是个多大的事吧</blockquote>
 按错按到加鹅了，求好心谭友帮忙扣回去顺便解释一下<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冯恩在写小说  
+##### 193#       发表于 2024-12-19 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66966606&amp;ptid=2212091" target="_blank">卡鲁修特 发表于 2024-12-19 20:00</a>
+
+话说这事集美主流舆论是怎么个说法
+
+到底是批判白老登拖家带口的异国出差裤腰带松，还是赞赏姐妹敢爱敢恨英 ...</blockquote>
+主流舆论是郭楠不行
+
+你往楼上翻，不是批评郭楠大惊小怪就是郭楠也干了
+

@@ -683,3 +683,15 @@ lpl这边胎哥胎弟不会觉得是什么好词吧，各种缺德笑话，一�
 
 我们电竞冠军草到过白皮女粉吗
 
+
+*****
+
+####  11116等  
+##### 77#       发表于 2024-12-19 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66961631&amp;ptid=2212091" target="_blank">玄玦 发表于 2024-12-19 10:31</a>
+lck的宙斯现在估计在兵营里给人打饭呢</blockquote>
+别人亚运冠军
+
+—— 来自 OnePlus PGKM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

@@ -1856,3 +1856,33 @@ ezg脑子里只有那话儿<img src="https://static.saraba1st.com/image/smiley/f
 讲道理，你要是给simple，device约大伙还能理解，先不说帅不帅毕竟确实是明星，和这么个老登约炮在圈内人看 ...</blockquote>
 肥猪现在还不如宙斯吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Hominidae  
+##### 188#       发表于 2024-12-19 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66965010&amp;ptid=2212091" target="_blank">deadline 发表于 2024-12-19 16:37</a>
+讲道理，你要是给simple，device约大伙还能理解，先不说帅不帅毕竟确实是明星，和这么个老登约炮在圈内人看 ...</blockquote>
+别带自适应玉玉一个月就好的设备节奏啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  乙山法純  
+##### 189#       发表于 2024-12-19 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66961467&amp;ptid=2212091" target="_blank">SillyGoose 发表于 2024-12-19 10:13</a>
+
+Csgo能有女粉？ 我不信</blockquote>
+完美包了一栋酒店一个月，ezg都知道那边一群白皮，看不看cs不重要
+
+
+*****
+
+####  sungoldy  
+##### 190#       发表于 2024-12-19 19:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 不就是约炮了，不约这个炮，那个男友不就可怜了么，所以国家就应该这么开放多少小时，只有多开放才能更好的发现EZ啊，这又何尝不是一种加速啊。
+

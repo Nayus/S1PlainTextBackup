@@ -1077,3 +1077,11 @@ Q　『界の軌跡』続編の予定について言えることがあれば #�
 
 哦你妈，真皇家版啊，我还以为是戏称，不要脸了
 
+
+*****
+
+####  alucardcz  
+##### 7222#       发表于 2024-12-19 23:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">ys10看起来发售很久了 但对于steam玩家来说才发售了2个月 无论是云豹还是国际版 你这么搞不被喷才有鬼
+

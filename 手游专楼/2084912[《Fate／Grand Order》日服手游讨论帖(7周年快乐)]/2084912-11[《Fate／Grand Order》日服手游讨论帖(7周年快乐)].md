@@ -2865,3 +2865,13 @@ T3奥伯龙+旧剑技能全开，旧剑第二发宝具+左1的宝具/旧剑自�
 
 20多池了还没掉礼装 急<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jackyhuang  
+##### 15475#       发表于 2024-12-19 11:12
+
+还是90+好啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+

@@ -1093,3 +1093,25 @@ Q　『界の軌跡』続編の予定について言えることがあれば #�
 
 因为不太关心，YS10在我印象里比黎轨还新<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 7224#       发表于 2024-12-19 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66967906&amp;ptid=2160194" target="_blank">plok201 发表于 2024-12-19 23:27</a>
+因为不太关心，YS10在我印象里比黎轨还新</blockquote>
+虽然但是，伊苏10是去年发售的，确实比黎轨新<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  nozomitech  
+##### 7225#       发表于 2024-12-19 23:44
+
+YS X加强版，这谁想出来的馊主意。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+不过转念一想，不会是要响应ns2吧。
+

@@ -1073,3 +1073,29 @@ KZ虽然垃圾，但是红眼兵是真的帅，想买
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  outerish  
+##### 5657#       发表于 2024-12-19 23:37
+
+ 本帖最后由 outerish 于 2024-12-19 23:39 编辑 
+
+箭头又跪了！第二波联动免费送！还会检讨价格，不知道降价的话我买的第一套会退差价吗
+
+<img src="https://img.saraba1st.com/forum/202412/19/233822feaw85a8p5984ih5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (313.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-19 23:38 上传
+
+
+*****
+
+####  九十九忍  
+##### 5658#       发表于 2024-12-19 23:44
+
+绷，我说怎么一上线第二套衣服直送了
+

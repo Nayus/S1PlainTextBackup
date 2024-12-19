@@ -1445,3 +1445,30 @@ test1111fengnu
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
 
+
+*****
+
+####  CR2  
+##### 151#       发表于 2024-12-19 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66963352&amp;ptid=2212091" target="_blank">青春之我 发表于 2024-12-19 13:40</a>
+这炫耀的当事人不是已婚白男吗？这也能拐，真无敌了
+
+—— 来自 鹅球 v3.2.91 ...</blockquote>
+不是，我并没有讨论主楼的事，只是对一些国内外人之间**产生的舆论可能进行一个探讨，从社会学、生物学方面
+
+
+*****
+
+####  三谷歩夢  
+##### 152#       发表于 2024-12-19 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66964228&amp;ptid=2212091" target="_blank">pu 发表于 2024-12-19 15:23</a>
+有点奇怪 怎么会转到EZG和洋人高一等上去的。。。。
+
+粉丝给偶像送炮可太平常了啊  都追星了 还想怎样
+
+估计 ...</blockquote>
+宙斯打出名气的时候这女的才小学到初中，他退役的时候这女的也才刚上高中，你的意思是她小学就开始看CS比赛粉上了宙斯？还是宙斯退役多年后她看到了宙斯曾经的辉煌粉上了这个人？
+更别提稍微了解一下就知道这人在圈内的风评是很烂的
+

@@ -1115,3 +1115,59 @@ YS X加强版，这谁想出来的馊主意。<img src="https://static.saraba1st
 
 不过转念一想，不会是要响应ns2吧。
 
+
+*****
+
+####  plok201  
+##### 7226#       发表于 2024-12-19 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66967966&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-12-19 23:37</a>
+
+虽然但是，伊苏10是去年发售的，确实比黎轨新
+
+—— 来自 鹅球 v3.0.0.82-alpha ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">界轨下意识又打成黎轨了
+
+我对ys10印象就是刚出没几天的全新作品，查了查，这steam英文版不是10月尾的东西么，闹呢，嫌白皮销量涨太多是吧
+
+*****
+
+####  alucardcz  
+##### 7227#       发表于 2024-12-19 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66967966&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-12-19 23:37</a>
+
+虽然但是，伊苏10是去年发售的，确实比黎轨新
+
+—— 来自 鹅球 v3.0.0.82-alpha ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">pc玩家也是人！
+
+*****
+
+####  alucardcz  
+##### 7228#       发表于 2024-12-19 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66968012&amp;ptid=2160194" target="_blank">plok201 发表于 2024-12-19 23:46</a>
+
+界轨下意识又打成黎轨了
+
+我对ys10印象就是刚出没几天的全新作品，查了查，这steam英文版不是10月尾的东 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">其实中文版也是10月 因为初版大爆炸下架了  最近才重新上架
+
+*****
+
+####  nozomitech  
+##### 7229#       发表于 2024-12-19 23:49
+
+伊苏10如果蹭蹭ns2的热度也就算了，f社千万不要昏头轨迹搞这套玩意，现在都是老登帮你撑场面，再把本土几万死士作没了那神仙难救了。
+
+现在东轨看着也不像是能接棒轨迹的样子，只能说前途堪忧。
+
+
+*****
+
+####  卢迪克  
+##### 7230#       发表于 2024-12-19 23:52
+
+东轨看股东大会意思，内部还在纠结做成学轨迹以剧情为卖点还是学伊苏以动作系统为卖点呢。
+

@@ -34,3 +34,11 @@ CGE497HBNJ99NG}2U4]JLZS_tmb.jpg
 
 —— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  没取名啊  
+##### 6799#       发表于 2024-12-20 00:57
+
+为什么，为什么ash的欧派缩小了
+

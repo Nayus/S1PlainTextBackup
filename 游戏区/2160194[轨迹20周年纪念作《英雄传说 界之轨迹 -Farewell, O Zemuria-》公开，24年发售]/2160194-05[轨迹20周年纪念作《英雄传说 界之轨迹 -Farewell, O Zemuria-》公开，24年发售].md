@@ -1187,3 +1187,53 @@ YS系列基本一直都是这么玩的，YS5同平台还出了EX版，YS6的PS2�
 
 而且我看近藤的战略应该是明年梭哈空轨1ST了，搞不好会是近几年法社最强宣发来推，YS这边能卖一点是一点吧
 
+
+*****
+
+####  ravend233  
+##### 7232#       发表于 2024-12-20 00:55
+
+ 本帖最后由 ravend233 于 2024-12-20 00:56 编辑 
+
+ysx主要原本就足够完整了，这个加强版卖是肯定卖不了几份，还要挨骂，新内容再怎么样都要投入成本，虽然回本没问题但是估计也赚不了多少，看不懂一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+总不能真就是去年因为画质被骂了所以做个画质加强版吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  华发夜眼[CN]  
+##### 7233#       发表于 2024-12-20 00:57
+
+24年亚洲区这收入怎么回事
+
+—— 来自 samsung SM-S9180, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  windtrack_qh  
+##### 7234#       发表于 2024-12-20 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66968248&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-12-20 00:55</a>
+
+ysx主要原本就足够完整了，这个加强版卖是肯定卖不了几份，还要挨骂，新内容再怎么样都要投入成本，虽然回 ...</blockquote>
+讲道理不如做成大型DLC，说不定骂还少挨点
+
+*****
+
+####  alucardcz  
+##### 7235#       发表于 2024-12-20 00:59
+
+大型dlc估计不但不会被骂 还会有不少人叫好<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ravend233  
+##### 7236#       发表于 2024-12-20 01:03
+
+当大型dlc卖或者提供付差价升级版本选项肯定是最优解，不过你法的尿性肯定是卖全价新作了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">看起来还升级了贴图和光影，你说它骗钱吧，总归还是做了点新东西，但是皇家版这玩意你做再好都是挨骂的，只能说很迷
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

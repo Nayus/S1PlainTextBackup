@@ -842,3 +842,61 @@ C位阿拉蕾和千石由乃两个人直播还是比较有活的
 
 i83好強的唸稿實力啊草
 
+
+*****
+
+####  月島まりな  
+##### 26704#       发表于 2024-12-19 22:00
+
+<img src="https://p.sda1.dev/20/3bdda807daa82ec45854989ebe51974a/IMG_0856.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/825bae7a1db27c1ab5ed756002604bf2/IMG_0860.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  紫吹兰  
+##### 26705#         楼主| 发表于 2024-12-19 22:02
+
+<img src="https://img.saraba1st.com/forum/202412/19/215903y8nxsu84momsnmnx.jpg" referrerpolicy="no-referrer">
+
+<strong>image.jpg</strong> (89.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-19 21:59 上传
+
+[@Alicest](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=541383) 偷一下图 
+
+这封面质量真的是我们邦邦的封面人物画吗
+
+*****
+
+####  CyDiablo  
+##### 26706#       发表于 2024-12-19 22:05
+
+ 本帖最后由 CyDiablo 于 2024-12-19 22:07 编辑 
+
+挑几个有意思的
+
+手游新年小人头-主唱-蛇
+<img src="https://p.sda1.dev/20/980ed304c4aa82d8f57fbd29c1b97c7d/Image_413483366717106.png" referrerpolicy="no-referrer">
+
+年末新歌追加
+<img src="https://p.sda1.dev/20/316d880bf9543c2bb2159ad344721741/Image_413497861703184.png" referrerpolicy="no-referrer">
+
+合唱第一弹流媒体配信
+<img src="https://p.sda1.dev/20/9100fe5d479a1e656f3748ee51b001e4/Image_413535151990648.png" referrerpolicy="no-referrer">
+
+合唱第三弹
+<img src="https://p.sda1.dev/20/963bbe49186f9a99c0895eeb5d432b8e/Image_413501263563569.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/f5155450123b7430cd09407e42a3118d/Image_413503132713646.png" referrerpolicy="no-referrer">
+
+蝶二专
+<img src="https://p.sda1.dev/20/345e22b21782cb28cb1b0e7edc93684e/Image_413512151259492.png" referrerpolicy="no-referrer">
+
+live
+<img src="https://p.sda1.dev/20/5f21c5c7826e04f7c08e6ba99ce566d3/Image_413514052894031.png" referrerpolicy="no-referrer">
+
+以及
+<img src="https://p.sda1.dev/20/1995ea828d9265d8e78ca7ae2701b7ad/Image_413519931362262.png" referrerpolicy="no-referrer">
+

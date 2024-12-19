@@ -12474,3 +12474,68 @@ angles可能是初祥回，但这里初华可能试图接近祥子拯救祥子�
 
 感覺要唸不完了.jpg
 
+
+*****
+
+####  PDQ4  
+##### 4083#       发表于 2024-12-19 21:58
+
+直前特番，全员
+
+<img src="https://img.saraba1st.com/forum/202412/19/215820toqlayoiuaywjd5a.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (106.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-19 21:58 上传
+
+*****
+
+####  御幸一也  
+##### 4084#       发表于 2024-12-19 21:59
+
+下期有初祥<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 4085#       发表于 2024-12-19 21:59
+
+这邦tv真的笑死了
+
+*****
+
+####  NODY  
+##### 4086#       发表于 2024-12-19 22:00
+
+<img src="https://img.saraba1st.com/forum/202412/19/220008ky8ply35ws8y8x8k.png" referrerpolicy="no-referrer">
+
+<strong>b5077282cb4ba06917f91f44ab93103f.png</strong> (140.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-19 22:00 上传
+
+*****
+
+####  御幸一也  
+##### 4087#       发表于 2024-12-19 22:01
+
+不行了今天這期最後10分鐘真的要樂暈了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  贰臣  
+##### 4088#       发表于 2024-12-19 22:03
+
+梦以的脸和海铃的声线就跟米泽的脸和大喵的声线一样……每次听到一起出现都会一阵恍惚……
+
+*****
+
+####  yifan8848  
+##### 4089#       发表于 2024-12-19 22:03
+
+李子這是要連上3期邦TV阿<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

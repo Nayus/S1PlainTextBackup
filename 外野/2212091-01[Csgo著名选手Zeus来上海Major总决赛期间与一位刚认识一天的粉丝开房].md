@@ -1084,3 +1084,30 @@ KIKO 和 Ramzes吧，TI9小鸽子和RTZ已经谈了挺长时间了</blockquote>
 
 下载了怎么是个男性头部大码的片？这货对版吗
 
+
+*****
+
+####  CR2  
+##### 119#       发表于 2024-12-19 13:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">整个楼看下来
+感觉撇开被拍视频这个行为
+单论找外国人doi，这事为啥放男女身上评价不一样
+
+女性找了个外男419，传出来大概率会被男性网友痛骂****
+
+而如果男性找了个洋马419，大概率会自己主动传播这个事，恨不得大喇叭昭告天下，仿佛做了什么光宗耀祖的事
+
+这样的行为本能背后所代表的一种潜意识意向、本能是什么
+
+我想了想，大抵是关乎于生物族群的繁衍和延续的本能，这种本能应该是刻在动物哪怕是人类的dna里的
+
+*****
+
+####  2082082012  
+##### 120#       发表于 2024-12-19 13:12
+
+问题还是双方都有男女朋友，这就<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.94-alpha
+

@@ -12368,3 +12368,13 @@ b站经常看到炒作型的动画封面<img src="https://static.saraba1st.com/i
 
 访谈里只说了是曾经fwf.使用过的舞台
 
+
+*****
+
+####  江口夕  
+##### 4075#       发表于 2024-12-19 18:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">新楼好 生殖隔离点赞
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

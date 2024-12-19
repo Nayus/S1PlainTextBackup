@@ -1022,3 +1022,22 @@ tmd干聊是吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.
 
 电竞选手都有骨肉皮了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  flyinwild  
+##### 112#       发表于 2024-12-19 12:41
+
+感觉我要被扣分了，我一拍脑门一个观点：
+是这样的：国女在国男前批价高，所以跟国男ez是掉价行为，不赚就是亏，越ez越亏。在外男前批价低，跟外男ez不掉价，没有心理障碍。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+
+*****
+
+####  Zero-COVID  
+##### 113#       发表于 2024-12-19 12:45
+
+我看你们就是吃不到葡萄说葡萄酸。我不嫌酸，请ezgirl联系我
+

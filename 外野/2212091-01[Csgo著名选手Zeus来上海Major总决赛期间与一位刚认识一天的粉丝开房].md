@@ -600,3 +600,86 @@ lck的宙斯现在估计在兵营里给人打饭呢</blockquote>
 
 前辈们随便用!
 
+
+*****
+
+####  全世界失恋  
+##### 69#       发表于 2024-12-19 10:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看比赛图画一乐，对这帮中专生的道德素质有什么期待就是你的不对了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  青春之我  
+##### 70#       发表于 2024-12-19 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66961617&amp;ptid=2212091" target="_blank">FeteFrumoase 发表于 2024-12-19 10:29</a>
+
+说到点子上
+
+有钱有权和白人皮
+
+人前著名电竞选手里面,一样约的大把</blockquote>
+LOL那边不天天骂X手X虎，转X期吗
+
+*****
+
+####  xinxia  
+##### 71#       发表于 2024-12-19 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66961591&amp;ptid=2212091" target="_blank">最爱赛姐 发表于 2024-12-19 10:26</a>
+
+国女不是自贱，而是普通国男在国内的地位太低了，女人都慕强，国内的强者是当官的和当老板的，还有得到官 ...</blockquote>
+要是能轻易扑到权和钱，她们还做什么xxn啊
+
+*****
+
+####  今天不守尸  
+##### 72#       发表于 2024-12-19 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66961617&amp;ptid=2212091" target="_blank">FeteFrumoase 发表于 2024-12-19 10:29</a>
+ 说到点子上 有钱有权和白人皮 人前著名电竞选手里面,一样约的大把 </blockquote>
+啊？
+lck那几个，像小雪碧，爱明因为草粉圈内风评差的一笔
+lpl这边胎哥胎弟不会觉得是什么好词吧，各种缺德笑话，一谈国产中单历史地位底下必有带孩子的节奏，每年的球员转会期都被调侃成名媛转会期
+总不能严以待国人，宽以待白皮吧<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoke1989  
+##### 73#       发表于 2024-12-19 10:41
+
+<blockquote>btn5754 发表于 2024-12-19 10:16
+部分中国女人确实非常自贱，随着国力的不断增强，人民的自信心确实在不断增长，但很明显男人群体的自信心增 ...</blockquote>
+不是自贱，而是非常擅长抬升自己的价值
+
+见过一个女的，因为国外某个亲戚给她带了一个几十美元的包，走到哪里说到哪里，顺带打压别人给她送的价值更贵的包，只因那个包是亲戚从美国带回来的
+
+*****
+
+####  llions  
+##### 74#       发表于 2024-12-19 10:42
+
+没人给个视频总结吗，值不值得下
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  Hominidae  
+##### 75#       发表于 2024-12-19 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66961348&amp;ptid=2212091" target="_blank">失落之翼 发表于 2024-12-19 09:58</a>
+
+没关注csgo，这位现在没在乌克兰填线说不定国籍都改了吧？</blockquote>
+可能和dota2的yatoro这些人类似，国籍没改但是交了赎金然后肉体润国外了吧
+
+*****
+
+####  1394  
+##### 76#       发表于 2024-12-19 10:43
+
+我们电竞冠军草到过白皮女粉吗
+

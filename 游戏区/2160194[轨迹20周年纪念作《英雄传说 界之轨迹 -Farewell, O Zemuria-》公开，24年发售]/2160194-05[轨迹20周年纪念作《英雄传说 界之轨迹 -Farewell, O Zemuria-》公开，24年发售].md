@@ -1085,3 +1085,11 @@ Q　『界の軌跡』続編の予定について言えることがあれば #�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">ys10看起来发售很久了 但对于steam玩家来说才发售了2个月 无论是云豹还是国际版 你这么搞不被喷才有鬼
 
+
+*****
+
+####  plok201  
+##### 7223#       发表于 2024-12-19 23:27
+
+因为不太关心，YS10在我印象里比黎轨还新<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

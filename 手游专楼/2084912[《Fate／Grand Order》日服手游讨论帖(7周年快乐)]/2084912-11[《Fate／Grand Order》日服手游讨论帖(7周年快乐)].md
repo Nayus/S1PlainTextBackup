@@ -2875,3 +2875,11 @@ T3奥伯龙+旧剑技能全开，旧剑第二发宝具+左1的宝具/旧剑自�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
 
+
+*****
+
+####  xiongxingyu  
+##### 15476#       发表于 2024-12-19 12:09
+
+90++刷了30池果断换90+了，双班扬加暗狐，按4个技能看3个宝具（两个是全游戏最短的），90++刷一局90+能刷两局都不止，反正400+的金苹果大概率是玩到关服也用不光了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

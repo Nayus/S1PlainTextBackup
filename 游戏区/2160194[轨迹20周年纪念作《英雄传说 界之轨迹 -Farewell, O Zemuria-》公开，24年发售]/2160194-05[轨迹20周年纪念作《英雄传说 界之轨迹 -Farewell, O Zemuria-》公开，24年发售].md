@@ -727,3 +727,68 @@ Q　『界の軌跡』でいろんな進化を感じたが、テキストのク�
 
 股东真的玩游戏是不是法老控特有的现象<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仲可怀  
+##### 7194#       发表于 2024-12-19 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66965395&amp;ptid=2160194" target="_blank">yth329 发表于 2024-12-19 17:11</a>
+
+通关了，要是界轨2得等两年我黑法老控一辈子</blockquote>
+很多人都忘了 当年FC-SC隔了2年半……
+
+*****
+
+####  江口夕  
+##### 7195#       发表于 2024-12-19 17:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">股东玩的真细致
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  洛克萨斯  
+##### 7196#       发表于 2024-12-19 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66965738&amp;ptid=2160194" target="_blank">windtrack_qh 发表于 2024-12-19 17:53</a>
+
+股东会有人提了轨言轨语的问题
+
+Q　『界の軌跡』でいろんな進化を感じたが、テキストのクオリティが気にな ...</blockquote>
+翻译一下！
+
+*****
+
+####  Aeons  
+##### 7197#       发表于 2024-12-19 18:02
+
+fc到sc不是两年不到吗
+
+*****
+
+####  windtrack_qh  
+##### 7198#       发表于 2024-12-19 18:05
+
+<img src="https://img.saraba1st.com/forum/202412/19/180514n2sv2409ua4de4v4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (83.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-19 18:05 上传
+
+明年搞不好只有空1ST了  一堆NS移植（界？还有啥没上的？）2026多个新title
+
+*****
+
+####  任天索尼子  
+##### 7199#       发表于 2024-12-19 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66965825&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-12-19 18:02</a>
+
+翻译一下！</blockquote>
+因为老是剧情里面有固定句式文本或者口癖被股东说了
+

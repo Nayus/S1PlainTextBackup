@@ -405,3 +405,11 @@ pv出了，黎加闪混合系统
 
 虽然对空R不感冒，但还是希望首次多平台全球同步发售能有个好结果，这样26年才有机会玩到steam版东迷2<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一步成诗  
+##### 7160#       发表于 2024-12-19 13:37
+
+难道界2真的要27年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

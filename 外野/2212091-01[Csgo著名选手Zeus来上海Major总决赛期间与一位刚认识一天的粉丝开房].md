@@ -1123,3 +1123,49 @@ KIKO 和 Ramzes吧，TI9小鸽子和RTZ已经谈了挺长时间了</blockquote>
 —— 来自 HUAWEI ELS-AN00, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png">这长相符合刻板印象
 
+
+*****
+
+####  chris1987  
+##### 122#       发表于 2024-12-19 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66962721&amp;ptid=2212091" target="_blank">Лилия 发表于 2024-12-19 12:26</a>
+
+没有漏点 不值得看
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+这脸怎么有点那个啥大学新生演讲《香甜气味》的那位
+
+*****
+
+####  一心敬  
+##### 123#       发表于 2024-12-19 13:39
+
+招嫖被抓找的借口吧
+
+
+*****
+
+####  青春之我  
+##### 124#       发表于 2024-12-19 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66963112&amp;ptid=2212091" target="_blank">CR2 发表于 2024-12-19 13:09</a>
+整个楼看下来
+感觉撇开被拍视频这个行为
+单论找外国人doi，这事为啥放男女身上评价不一样</blockquote>
+这炫耀的当事人不是已婚白男吗？这也能拐，真无敌了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+
+*****
+
+####  神奇小奶牛  
+##### 125#       发表于 2024-12-19 13:45
+
+拍完挂网上的是已婚白男
+
+EZ的是有男友给男友带帽子女人
+
+就此事而言国男是纯路人, 这也能被AOE啊
+

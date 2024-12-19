@@ -824,3 +824,13 @@ MV制作是SIGNIF，之前也做过無路矢和端程山的MV。这作大概是�
 
 galgame音乐（误
 
+
+*****
+
+####  lactone  
+##### 26702#       发表于 2024-12-19 17:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">最近首页刷到很多梦团的切片，感觉人气还是有的啊
+
+C位阿拉蕾和千石由乃两个人直播还是比较有活的
+

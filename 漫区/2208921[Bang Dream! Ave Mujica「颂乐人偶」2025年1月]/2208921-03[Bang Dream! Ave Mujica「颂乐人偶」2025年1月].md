@@ -12249,3 +12249,29 @@ b站经常看到炒作型的动画封面<img src="https://static.saraba1st.com/i
 才看到楼友发的卡图，即然没单独卖烫金版<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
 买了五份希望直接一步到位<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">这周末就去上香
 
+
+*****
+
+####  Libartas  
+##### 4065#       发表于 2024-12-19 11:34
+
+不知道能不能发，老登会给母鸡卡里塞卖狗（六叹号限定版）吗？
+
+
+*****
+
+####  御幸一也  
+##### 4066#       发表于 2024-12-19 11:40
+
+這個小畫家又回來畫祥子了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202412/19/114035pnb222234b27k83z.jpg" referrerpolicy="no-referrer">
+
+<strong>GfIT2CfaYAAbdVh.jpg</strong> (150.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-19 11:40 上传
+
+[https://x.com/xuserpost/status/1869578636338335846](https://x.com/xuserpost/status/1869578636338335846)
+

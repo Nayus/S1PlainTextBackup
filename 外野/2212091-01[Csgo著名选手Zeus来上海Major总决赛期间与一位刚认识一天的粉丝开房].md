@@ -790,3 +790,22 @@ ez girl又不稀奇，19年ti上海还有女主持冲的吧
 
 以前有个女大得艾滋然后报复性的不带套睡了323个国男
 
+
+*****
+
+####  双刀少女  
+##### 88#       发表于 2024-12-19 11:33
+
+这视频是这老外自己放出来的？
+
+*****
+
+####  Hominidae  
+##### 89#       发表于 2024-12-19 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66962243&amp;ptid=2212091" target="_blank">双刀少女 发表于 2024-12-19 11:33</a>
+这视频是这老外自己放出来的？</blockquote>
+帖子给的没看，但这人确实自己拍了视频发出来了
+
+—— 来自 Xiaomi M2012K10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -51,3 +51,13 @@
 这部也五年了啊......</blockquote>
 这下十年了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  k1no  
+##### 1021#       发表于 2024-12-19 22:14
+
+感慨，当时还是在AC看的，通过这部动画还认识了蓝心乐队，现在看来，这样的好动画竟是凤毛麟角
+
+再看一遍吧
+

@@ -12539,3 +12539,74 @@ angles可能是初祥回，但这里初华可能试图接近祥子拯救祥子�
 
 李子這是要連上3期邦TV阿<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 4090#       发表于 2024-12-19 22:09
+
+動畫開播在即，主唱加油<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AveMujica  
+##### 4091#         楼主| 发表于 2024-12-19 22:09
+
+本周邦tv和鸡有关的资讯
+
+<img src="https://img.saraba1st.com/forum/202412/19/220841u28ll5l2he94hk07.jpg" referrerpolicy="no-referrer">
+
+<strong>}HSTUQB1T$BEYA6~`6_O0GH.jpg</strong> (134.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-19 22:08 上传
+
+<img src="https://img.saraba1st.com/forum/202412/19/220851n93wo5hnssy82098.jpg" referrerpolicy="no-referrer">
+
+<strong>31OLNY3@5MYU@{@8R`)FQ31.jpg</strong> (125.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-19 22:08 上传
+
+<img src="https://img.saraba1st.com/forum/202412/19/220857hauhaou9yh8ojcuh.jpg" referrerpolicy="no-referrer">
+
+<strong>G5[{Z{Q73R6WVBT28AL(SSH.jpg</strong> (125.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-19 22:08 上传
+
+<img src="https://img.saraba1st.com/forum/202412/19/220905agzmp8szpzinsxmx.jpg" referrerpolicy="no-referrer">
+
+<strong>IVN@A~WKUJXCTRC(LE95ZXA.jpg</strong> (146.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-19 22:09 上传
+
+
+*****
+
+####  ytttsuuuba  
+##### 4092#       发表于 2024-12-19 22:15
+
+1.2的直前特番有以祥子为中心的MYGO总集篇。
+
+*****
+
+####  星天观测  
+##### 4093#       发表于 2024-12-19 22:18
+
+你这初华<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+YWX13N6E77VM}Y6B(364DMD.jpg
+(49.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-19 22:17 上传
+
+<img src="https://img.saraba1st.com/forum/202412/19/221748t7b57x47mhd7xxr4.jpg" referrerpolicy="no-referrer">
+

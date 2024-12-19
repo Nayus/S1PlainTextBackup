@@ -900,3 +900,15 @@ live
 以及
 <img src="https://p.sda1.dev/20/1995ea828d9265d8e78ca7ae2701b7ad/Image_413519931362262.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CyDiablo  
+##### 26707#       发表于 2024-12-19 22:12
+
+下期邦tv
+<img src="https://p.sda1.dev/20/48a17b79c1606629c77305336ac8f377/Image_414140777124761.png" referrerpolicy="no-referrer">
+合唱第一弹封面
+<img src="https://p.sda1.dev/20/9207b15e07e7f0a73ce653bcc93950ff/IMG_20241219_221111.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/24047c0b3bd29f78a06907ccdb6d4bff/Screenshot_20241219_221130.jpg" referrerpolicy="no-referrer">
+

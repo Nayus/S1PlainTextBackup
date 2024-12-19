@@ -560,3 +560,11 @@ Konami还是没彻底想开，以早些年自己的那些家底，每年固定�
 
 原本就是铁定入NS版
 
+
+*****
+
+####  DARKGRAY  
+##### 61#       发表于 2024-12-19 19:21
+
+解锁了是吧，到时候心跳记得放上来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

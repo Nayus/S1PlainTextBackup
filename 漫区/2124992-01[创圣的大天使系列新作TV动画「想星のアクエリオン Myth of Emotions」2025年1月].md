@@ -44,3 +44,11 @@
 怎么后半段一股游戏cg风格差别也太大了</blockquote>
 天使之王：梅塔特隆飞升
 
+
+*****
+
+####  kisstv22  
+##### 154#       发表于 2024-12-19 19:19
+
+画风差距太大了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

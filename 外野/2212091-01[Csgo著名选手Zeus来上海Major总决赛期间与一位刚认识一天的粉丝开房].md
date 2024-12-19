@@ -1793,3 +1793,22 @@ zeus自己女儿都15岁了，能有21岁的粉丝？
 没人加鹅，此风不可涨</blockquote>
 链接与正文内容无关，不扣鹅都不错了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Gotu  
+##### 182#       发表于 2024-12-19 19:18
+
+男的脸打码，女的纹身，和国产的差不多
+
+*****
+
+####  是二大爷  
+##### 183#       发表于 2024-12-19 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66961221&amp;ptid=2212091" target="_blank">gpx234mqx 发表于 2024-12-19 09:45</a>
+额，乌克兰人不是和俄一样被欧洲当成鞑靼蛮子吗？</blockquote>
+ezg脑子里只有那话儿<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

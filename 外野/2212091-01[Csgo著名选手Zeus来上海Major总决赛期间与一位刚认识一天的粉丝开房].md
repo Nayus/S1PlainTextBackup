@@ -1742,3 +1742,42 @@ zeus自己女儿都15岁了，能有21岁的粉丝？
 相关视频还看到有人洗的，一看是个法国留子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 太符合聊天群刻板印象了
 
+
+*****
+
+####  伊迪潘宫森  
+##### 178#       发表于 2024-12-19 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66963559&amp;ptid=2212091" target="_blank">obiy 发表于 2024-12-19 14:04</a>
+
+女性能不能把这些自动开盖的打进群体鄙视链底端，就像男性对龟男那样</blockquote>
+你不知道这两个字在外野禁发吗
+
+*****
+
+####  Lorraine_Kinney  
+##### 179#       发表于 2024-12-19 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66965332&amp;ptid=2212091" target="_blank">pu 发表于 2024-12-19 17:05</a>
+
+那你去改标题咯 大家看到的大字标题 "刚认识一天的粉丝”
+
+从头到底你也不过是臆测 初中开始玩cs不要太正 ...</blockquote>
+但凡看比赛久都知道zeus在国内就没有什么粉丝、不可能有女粉丝，先别说csgo赛事7、8年前有多小众，zeus唯一能吸粉的就是2017年带着红星夺冠，而且红星当时队伍里神人有hobbit、大金牙adren、男神dosia，ZEUS和mou反而是最不引人关注一个，哪个小孩知道指挥重要。
+
+回归navi就更别说了，他和edward场场抽象操作，便秘指挥，给巅峰期的simple坐大牢，天天被a队按着揍
+
+退役之后，克扣青训队工资、霸凌初出茅庐的ropz，圈内都知道他人品如何
+
+女人说自己是粉丝给自己找补，你就信了
+
+
+*****
+
+####  cc-2  
+##### 180#       发表于 2024-12-19 19:07
+
+楼主都有链接了
+
+没人加鹅，此风不可涨
+

@@ -330,3 +330,13 @@
 
 阿b能投这样的一部作品还是有点情怀在的
 
+
+*****
+
+####  Mc凉月奏酱  
+##### 214#       发表于 2024-12-20 01:10
+
+如果要考虑24年最佳原创动画的话，有竞争力的是GBC，末日列车，勇气爆发和舔甜歌姬
+
+从这些里选个人觉得钓鱼佬是可以开香槟了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

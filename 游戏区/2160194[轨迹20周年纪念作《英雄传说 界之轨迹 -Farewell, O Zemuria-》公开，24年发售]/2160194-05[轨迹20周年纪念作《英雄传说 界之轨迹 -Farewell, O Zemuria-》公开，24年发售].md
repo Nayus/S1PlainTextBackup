@@ -463,3 +463,60 @@ pv出了，黎加闪混合系统
 
 到时候新玩家打完1st2nd，一打开3rd看到这画面人都懵了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 7166#       发表于 2024-12-19 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66963465&amp;ptid=2160194" target="_blank">ouyang菌 发表于 2024-12-19 13:53</a>
+
+问题来了，原版就叫3rd的空轨3rd重制了该叫什么
+
+还是说不重制了
+
+到时候新玩家打完1st2nd，一打开3rd看到 ...</blockquote>
+《空之轨迹3rd remake》<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 7167#       发表于 2024-12-19 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66963409&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-12-19 13:46</a>
+
+黎轨粉真是上辈子欠了法老控的。界轨连个正式pv都没有，空轨都两个pv了，还要被咚两年，真会恶心人 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">卖不起销量可不就这样咯
+
+*****
+
+####  省心  
+##### 7168#       发表于 2024-12-19 13:57
+
+这次既然是『空の軌跡 the 1st（ザ・ファースト）』，3rd的重制那肯定就是the 3rd啊。
+
+*****
+
+####  卡拉德利姆  
+##### 7169#       发表于 2024-12-19 13:58
+
+那肯定还是黎2瞎几把浪砸招牌的问题
+
+
+*****
+
+####  a2042312  
+##### 7170#       发表于 2024-12-19 14:00
+
+3rd自然是吸取创和界的经验，叫个新名字，方之轨迹如何
+
+*****
+
+####  卢迪克  
+##### 7171#       发表于 2024-12-19 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66963491&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-12-19 13:56</a>
+
+卖不起销量可不就这样咯</blockquote>
+明年能上pc，今年不知道为什么界轨不上pc，近藤神奇的项目安排
+

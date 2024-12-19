@@ -413,3 +413,53 @@ pv出了，黎加闪混合系统
 
 难道界2真的要27年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 7161#       发表于 2024-12-19 13:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">界2和迷城2呢！
+
+*****
+
+####  卢迪克  
+##### 7162#       发表于 2024-12-19 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66963332&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-12-19 13:37</a>
+
+难道界2真的要27年</blockquote>
+黎轨粉真是上辈子欠了法老控的。界轨连个正式pv都没有，空轨都两个pv了，还要被咚两年，真会恶心人
+
+*****
+
+####  洛克萨斯  
+##### 7163#       发表于 2024-12-19 13:47
+
+《空之轨迹FC》完全重制版确认正式名为《空之轨迹1st》
+
+*****
+
+####  一步成诗  
+##### 7164#       发表于 2024-12-19 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66963409&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-12-19 13:46</a>
+
+黎轨粉真是上辈子欠了法老控的。界轨连个正式pv都没有，空轨都两个pv了，还要被咚两年，真会恶心人 ...</blockquote>
+不要相信现在的你法，别买新作首发，不然只有一直被恶心的份<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ouyang菌  
+##### 7165#       发表于 2024-12-19 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66963419&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-12-19 13:47</a>
+
+《空之轨迹FC》完全重制版确认正式名为《空之轨迹1st》</blockquote>
+问题来了，原版就叫3rd的空轨3rd重制了该叫什么
+
+还是说不重制了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+到时候新玩家打完1st2nd，一打开3rd看到这画面人都懵了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

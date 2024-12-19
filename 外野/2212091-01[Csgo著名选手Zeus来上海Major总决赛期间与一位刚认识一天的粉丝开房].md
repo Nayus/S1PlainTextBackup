@@ -1169,3 +1169,54 @@ EZ的是有男友给男友带帽子女人
 
 就此事而言国男是纯路人, 这也能被AOE啊
 
+
+*****
+
+####  gaayas  
+##### 126#       发表于 2024-12-19 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66962628&amp;ptid=2212091" target="_blank">z2150966 发表于 2024-12-19 12:14</a>
+很多人就是不愿意承认国内最大的ezg是哪个，女的也不只不过有样学样而已</blockquote>
+还真是
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lylzn001  
+##### 127#       发表于 2024-12-19 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66962447&amp;ptid=2212091" target="_blank">雾仙猫灯 发表于 2024-12-19 11:54</a>
+
+笑死，典型的树立靶子脑补乱打
+
+ezg里面名校本硕甚至博的我又没少见
+
+在上海在纽约见过的都不要太多 ...</blockquote>
+？？？我都不知道你在说什么
+
+我发言的意思应该是个人都能理解成“别树靶子乱打”吧？
+
+再退一步讲，我说我看到的Ez都是低学历的，对谁都EZ，又不是专门对白男EZ
+
+你说你看到的高学历的也有，也就最多论证下爱玩的人哪里都有，我在和你讲科学研究还是咋的？是不是还要搞个调查出个论文讲讲EZgirl在不同学历人群中的占比？搞搞清楚行伐？
+
+不过在纽约在上海见到，那不很正常的事吗？这也需要拿出来说强调一下？
+
+*****
+
+####  浴盐丁真  
+##### 128#       发表于 2024-12-19 13:53
+
+我以为是新闻链接，没想到是磁力链接<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  归来的胡汉三  
+##### 129#       发表于 2024-12-19 13:56
+
+亚洲马桶刻板印象+1
+

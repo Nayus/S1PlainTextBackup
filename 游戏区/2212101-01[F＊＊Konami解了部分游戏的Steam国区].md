@@ -447,3 +447,26 @@ Konami还是没彻底想开，以早些年自己的那些家底，每年固定�
 
 — from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.92
 
+
+*****
+
+####  藤井紫  
+##### 50#       发表于 2024-12-19 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66963567&amp;ptid=2212101" target="_blank">苦瓜师傅 发表于 2024-12-19 14:04</a>
+
+幻水1 2和打折的百英 那个值得买
+
+— from S1 Next Goose v3.3.92</blockquote>
+那还是幻水
+
+百英我打出了屎感
+
+
+*****
+
+####  白昼梦DD  
+##### 51#       发表于 2024-12-19 14:53
+
+双屏机的几部恶魔城分屏比模拟器上面更舒服，可惜既没官中也没人搞汉化文本，那个掉落列表直接拿原文看着还是挺恶心的
+

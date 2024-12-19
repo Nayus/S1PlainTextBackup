@@ -1716,3 +1716,18 @@ ezgirl送批，回帖大量批判郭楠<img src="https://static.saraba1st.com/im
 
 集美是这样的
 
+
+*****
+
+####  灼眼艾莉亚  
+##### 176#       发表于 2024-12-19 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66964228&amp;ptid=2212091" target="_blank">pu 发表于 2024-12-19 15:23</a>
+
+有点奇怪 怎么会转到EZG和洋人高一等上去的。。。。
+
+粉丝给偶像送炮可太平常了啊  都追星了 还想怎样
+
+估计 ...</blockquote>
+zeus自己女儿都15岁了，能有21岁的粉丝？
+

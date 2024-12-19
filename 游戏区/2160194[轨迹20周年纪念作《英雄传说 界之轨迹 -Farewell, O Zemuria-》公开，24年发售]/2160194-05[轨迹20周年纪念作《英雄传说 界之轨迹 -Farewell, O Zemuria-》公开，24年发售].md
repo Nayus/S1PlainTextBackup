@@ -693,3 +693,14 @@ C105周边
 
 闪34隔了一年，但是闪3的中文版拖了很久貌似比4还晚，34的中文版只有四个月，所以玩中文版的话体感李老师没挂多久<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  夜漫群星  
+##### 7191#       发表于 2024-12-19 17:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">还好我有其他游戏可以玩，不用等咚
+<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">你法罪大恶极，抱着空轨溺死吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">……
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">学妹你带我走吧，起码两年看不见你跟所长我怎么熬啊
+

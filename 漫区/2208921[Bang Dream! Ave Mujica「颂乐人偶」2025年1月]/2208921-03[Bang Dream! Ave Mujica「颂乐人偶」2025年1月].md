@@ -12610,3 +12610,19 @@ YWX13N6E77VM}Y6B(364DMD.jpg
 
 <img src="https://img.saraba1st.com/forum/202412/19/221748t7b57x47mhd7xxr4.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 4094#       发表于 2024-12-19 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66966980&amp;ptid=2208921" target="_blank">厨厨 发表于 2024-12-19 21:09</a>
+http://xhslink.com/a/kOwjrUjCnHY1
+
+母鸡卡的4th歌单不就是剧情走向吗</blockquote>
+喵梦和海玲的3rd台词现在结合pv预告算是好猜的，一个是作为雇佣兵寻找被信任的归宿另一个是在流量底下渴望得到真正的爱
+初华就很明显，3rd台词直接指的是祥子，想和祥子在一块
+睦的我一直都想不通，结合3rd看，如果考虑op里的暗示，是指人格统一，最后变回开朗睦？但是双重人格这种东西大概率不会出现。不过最后睦变开朗敢说话应该是大概率的。
+如果把睦3rd里的台词认为是祥子，结合“半身”这个设定也有可能，因为有祥子才有睦？（我感觉这段台词如果真的是指祥子的话，睦比初华还重）
+还有就是愚神这首歌，高尾说过是睦祥曲代表睦祥的关系性，live里的互动也是参考了mujica剧情
+

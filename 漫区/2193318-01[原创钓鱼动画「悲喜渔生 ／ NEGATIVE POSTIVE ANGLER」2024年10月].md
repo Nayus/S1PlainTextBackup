@@ -214,3 +214,30 @@
 
 现在这年头，不喂屎就算是好片子了。剧情也没暴走
 
+
+*****
+
+####  细菌爆炸  
+##### 203#       发表于 2024-12-19 22:30
+
+平稳落地挺好的，悲喜交加也算贴合主题
+最后一集只有死因是车祸那点有点绷不住<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  酒石酸唑吡坦  
+##### 204#       发表于 2024-12-19 22:32
+
+是期待已久的粉毛哭<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 205#       发表于 2024-12-19 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66967293&amp;ptid=2193318" target="_blank">没取名啊 发表于 2024-12-19 21:56</a>
+
+想借一群钓鱼佬描绘人生百态，只看这个主旨和初期的设定的话，写好了能写出个舌尖1来，结果最后也就是个舌 ...</blockquote>
+草，看到这个舌尖的比喻才发现bgm那个熊猫头像的也是你啊，明明名字一样之前却没注意到<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

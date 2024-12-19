@@ -1022,3 +1022,14 @@ KZ虽然垃圾，但是红眼兵是真的帅，想买
 
 但后面那几个超级商店甲定价也比一开始高了啊
 
+
+*****
+
+####  ravend233  
+##### 5652#       发表于 2024-12-19 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66960910&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-12-19 09:00</a>
+
+这联动步枪更像是解放者的皮肤，几乎完全相同的性能，没有某种收集癖真的不建议购买 ...</blockquote>
+比解放者还少了个瞄具，只有机瞄<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -12451,3 +12451,26 @@ angles可能是初祥回，但这里初华可能试图接近祥子拯救祥子�
 这下鸡团真上游戏了
 <img src="https://p.sda1.dev/20/405b2c2ce322317b358287d7325a8466/IMG_0855.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 4080#       发表于 2024-12-19 21:50
+
+之前就说过手游年底会有mujica动画开播纪念活动
+
+
+*****
+
+####  御幸一也  
+##### 4081#       发表于 2024-12-19 21:56
+
+夢以的唸稿力也好高啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 4082#       发表于 2024-12-19 21:57
+
+感覺要唸不完了.jpg
+

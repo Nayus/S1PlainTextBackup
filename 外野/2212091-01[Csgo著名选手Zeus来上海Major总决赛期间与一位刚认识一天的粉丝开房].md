@@ -1668,3 +1668,13 @@ ezgirl送批，回帖大量批判郭楠<img src="https://static.saraba1st.com/im
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  deadline  
+##### 171#       发表于 2024-12-19 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66965181&amp;ptid=2212091" target="_blank">fuwamoco 发表于 2024-12-19 16:52</a>
+上海真能约到device吗我想问了，这个神人玉玉鸽了a队的rmr就没来。</blockquote>
+举个栗子罢了，这回每次看玩出解说没有刘农我就觉得少了点啥，但他也确实纯出拖到最后才说不打
+

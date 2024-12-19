@@ -670,3 +670,18 @@ C105周边
 
 空轨ns和ps版画面好像没啥区别
 
+
+*****
+
+####  yth329  
+##### 7188#       发表于 2024-12-19 17:11
+
+通关了，要是界轨2得等两年我黑法老控一辈子<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 7189#       发表于 2024-12-19 17:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">学妹看起来要挂在天上两年了，桃花剑好像也没挂多久吧，闪3之后立刻出闪4了
+

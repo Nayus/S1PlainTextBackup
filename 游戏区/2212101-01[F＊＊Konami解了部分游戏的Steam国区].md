@@ -547,3 +547,16 @@ Konami还是没彻底想开，以早些年自己的那些家底，每年固定�
 
 恶魔城终于解了？
 
+
+*****
+
+####  cc-2  
+##### 60#       发表于 2024-12-19 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66964873&amp;ptid=2212101" target="_blank">Akmenter 发表于 2024-12-19 16:26</a>
+
+不是已经解锁了么……</blockquote>
+就因为解锁了，我多了PC版可以选才纠结啊
+
+原本就是铁定入NS版
+

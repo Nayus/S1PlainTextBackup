@@ -12326,3 +12326,29 @@ b站经常看到炒作型的动画封面<img src="https://static.saraba1st.com/i
 
 高尾是办年票了吗，感觉她隔三差五就去迪士尼<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 4072#       发表于 2024-12-19 17:05
+
+怎麼是3萬粉小畫家畫的<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer"> 感覺錢沒給夠。
+
+<img src="https://img.saraba1st.com/forum/202412/19/170435jh88z9b2oxi6bkoz.jpg" referrerpolicy="no-referrer">
+
+<strong>d7c10982-689d-4cb8-822d-caed7e06dc90.jpg</strong> (52.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-19 17:04 上传
+
+<img src="https://img.saraba1st.com/forum/202412/19/170434mbg710uii10z74b0.jpg" referrerpolicy="no-referrer">
+
+<strong>dca5b427-8a92-4fc3-8618-9b8e2d57b8f3.jpg</strong> (139.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-19 17:04 上传
+
+[https://x.com/hikkikomori17/status/1869370116905062595](https://x.com/hikkikomori17/status/1869370116905062595)
+

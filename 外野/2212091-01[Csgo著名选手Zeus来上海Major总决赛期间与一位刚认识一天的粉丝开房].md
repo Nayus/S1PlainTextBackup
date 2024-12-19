@@ -695,3 +695,39 @@ lck的宙斯现在估计在兵营里给人打饭呢</blockquote>
 
 —— 来自 OnePlus PGKM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  UNICORN00  
+##### 78#       发表于 2024-12-19 10:57
+
+ 本帖最后由 UNICORN00 于 2024-12-19 10:58 编辑 
+
+磁链不是，楼主应该在一楼说明
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+*****
+
+####  rrtyui  
+##### 79#       发表于 2024-12-19 10:57
+
+只能说，能请zeus来打表演赛的主办也是神人了
+不出这事zeus也是典型的假赛菠菜吸血资本家打压青训的纯负面人物
+
+
+*****
+
+####  脸宽  
+##### 80#       发表于 2024-12-19 11:02
+
+这下真宙活了
+
+
+*****
+
+####  今天不守尸  
+##### 81#       发表于 2024-12-19 11:05
+
+随着免签的逐步开放，ezg的好时代要真正来临了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

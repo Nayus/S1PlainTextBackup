@@ -165,3 +165,38 @@
 
 也就看看村上画的新图了
 
+
+*****
+
+####  光之阶梯  
+##### 7137#       发表于 2024-12-19 09:32
+
+坐等新活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  卢迪克  
+##### 7138#       发表于 2024-12-19 09:36
+
+近藤在等老任新机，估计没活
+
+0822ffe636d12f2e138eee4609c2d56284356859.jpg
+(32.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-19 09:36 上传
+
+<img src="https://img.saraba1st.com/forum/202412/19/093611t5n61zn166gzgrdv.jpg" referrerpolicy="no-referrer">
+
+a6ac2e34e5dde711215903d0e1efce1b9c166159.jpg
+(36.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-19 09:36 上传
+
+<img src="https://img.saraba1st.com/forum/202412/19/093614hj313vbblj7u7ie5.jpg" referrerpolicy="no-referrer">
+

@@ -1518,3 +1518,61 @@ test1111fengnu
 
 乌克兰男的不改被征兵吗 怎么还能出国艹B哪<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  青春之我  
+##### 157#       发表于 2024-12-19 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66964799&amp;ptid=2212091" target="_blank">CR2 发表于 2024-12-19 16:18</a>
+但是我总觉得应该从一种生物族群对于“繁衍发展”进而来分析
+比如国女找了一个外男，大部分国内男性看到 ...</blockquote>
+那只是因为你视角不全面，隔壁韩国已经有女性跑到男性对外相亲地砸场子的实例了。而且小红书上炫耀传授吊白男经验的也不少啊<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  sloorz  
+##### 158#       发表于 2024-12-19 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66964076&amp;ptid=2212091" target="_blank">嘤嘤嘤QAQ 发表于 2024-12-19 15:04</a>
+
+有能力推动外国人入华免签的那些人啊</blockquote>
+啊？哈哈！
+
+*****
+
+####  这个碧池是谁？  
+##### 159#       发表于 2024-12-19 16:30
+
+加麻大女网红找个棒男男友后网上晒狗粮，不也被疯狂网暴吗
+白女爱吃黑肉肠，白男不也酸的不行
+ez不ez的，整个东亚东南亚上下阶层面对白皮猪都挺身段柔软的，连民粹到魔怔的南棒子也不例外
+
+
+*****
+
+####  deadline  
+##### 160#       发表于 2024-12-19 16:32
+
+说这女的是来追星洗地的差不多得了，宙斯打职业的时候这女的中考还没参加，更何况但凡关注cs电竞的都知道这老b登就没啥道德可言<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+纯粹就是个ezg倒贴上去了更何况还有男友，既然喜欢给白皮猪送炮那就多送，被网暴活该好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  pu  
+##### 161#       发表于 2024-12-19 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66964734&amp;ptid=2212091" target="_blank">三谷歩夢 发表于 2024-12-19 16:11</a>
+
+宙斯打出名气的时候这女的才小学到初中，他退役的时候这女的也才刚上高中，你的意思是她小学就开始看CS比 ...</blockquote>
+不是啊 新闻上写的粉丝啊 你那么了解对面不是粉丝是牧羊烂B？
+
+再说了 酒吧约炮不是普遍现象么 约就约呗  约中国人或者黑屌白屌不都是约 都追求刺激了还管他啥颜色 
+
+和男的K房找白俄 piao洋马不是一个意思？
+
+要怪就怪这傻逼斯拉夫人约个炮还一惊一乍  不都是看上眼就上了么 约炮不也是外国传来的 那外国不也遍地ezg么
+

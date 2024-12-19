@@ -511,3 +511,39 @@ Konami还是没彻底想开，以早些年自己的那些家底，每年固定�
 
 不过补票还是值得的，当年之所以来了s1就是因为搜攻略搜到小狮才来的s1
 
+
+*****
+
+####  adw667  
+##### 56#       发表于 2024-12-19 16:23
+
+恶魔城不是操控有问题吗
+
+*****
+
+####  Akmenter  
+##### 57#       发表于 2024-12-19 16:26
+
+<blockquote>cc-2 发表于 2024-12-19 12:44
+幻水1+2一直想重温，当初PSP出合集，最后也没玩
+
+这次有点纠结买NS版还是PC版（原来不用纠结的，STEAM锁了 ...</blockquote>
+不是已经解锁了么……
+
+*****
+
+####  pico少年  
+##### 58#       发表于 2024-12-19 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66962596&amp;ptid=2212101" target="_blank">a317216007 发表于 2024-12-19 12:11</a>
+你们f@ck了那么多年konami，居然依然抱有期待么</blockquote>
+游戏是无罪的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hkguty  
+##### 59#       发表于 2024-12-19 16:32
+
+恶魔城终于解了？
+

@@ -13078,3 +13078,13 @@ Screenshot_2024-12-16-00-42-39-303_tv.danmaku.bili.jpg
 
 纯收藏卡就有点蠢了，真人和纸片人一起打架岂不美哉
 
+
+*****
+
+####  ads147147  
+##### 1280#       发表于 2024-12-19 21:26
+
+看制式应该是纯收藏的低概率高罕卡。。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

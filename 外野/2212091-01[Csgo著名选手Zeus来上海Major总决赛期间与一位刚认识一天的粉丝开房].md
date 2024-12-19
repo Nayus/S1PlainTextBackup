@@ -1886,3 +1886,24 @@ Csgo能有女粉？ 我不信</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 不就是约炮了，不约这个炮，那个男友不就可怜了么，所以国家就应该这么开放多少小时，只有多开放才能更好的发现EZ啊，这又何尝不是一种加速啊。
 
+
+*****
+
+####  卡鲁修特  
+##### 191#       发表于 2024-12-19 20:00
+
+话说这事集美主流舆论是怎么个说法
+
+到底是批判白老登拖家带口的异国出差裤腰带松，还是赞赏姐妹敢爱敢恨英姿飒爽<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Quelaan  
+##### 192#       发表于 2024-12-19 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66961163&amp;ptid=2212091" target="_blank">今天又成熟了 发表于 2024-12-19 09:38</a>
+
+人家就普通做个爱，也就泥潭的处男老保觉得是个多大的事吧</blockquote>
+按错按到加鹅了，求好心谭友帮忙扣回去顺便解释一下<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

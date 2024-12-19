@@ -13060,3 +13060,21 @@ Screenshot_2024-12-16-00-42-39-303_tv.danmaku.bili.jpg
 
 有点逆天了<img src="https://p.sda1.dev/20/6daa263818f6d09dd5b32cbda3266176/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 1278#       发表于 2024-12-19 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66966489&amp;ptid=2201887" target="_blank">仟音一心 发表于 2024-12-19 19:39</a>
+
+有点逆天了</blockquote>
+这是什么？那个卡牌游戏的CV卡吗
+
+*****
+
+####  1096beam  
+##### 1279#       发表于 2024-12-19 20:02
+
+纯收藏卡就有点蠢了，真人和纸片人一起打架岂不美哉
+

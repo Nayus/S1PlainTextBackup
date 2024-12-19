@@ -551,3 +551,52 @@ Csgo能有女粉？ 我不信</blockquote>
 部分中国女人确实非常自贱，随着国力的不断增强，人民的自信心确实在不断增长，但很明显男人群体的自信心增 ...</blockquote>
 国女不是自贱，而是普通国男在国内的地位太低了，女人都慕强，国内的强者是当官的和当老板的，还有得到官方超国民待遇的洋人，前两者要是和洋人一样把有钱有权写脸上，一样有很多xxn扑上去
 
+
+*****
+
+####  FeteFrumoase  
+##### 65#       发表于 2024-12-19 10:29
+
+ 本帖最后由 FeteFrumoase 于 2024-12-19 10:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66961591&amp;ptid=2212091" target="_blank">最爱赛姐 发表于 2024-12-19 10:26</a>
+
+国女不是自贱，而是普通国男在国内的地位太低了，女人都慕强，国内的强者是当官的和当老板的，还有得到官 ...</blockquote>
+说到点子上
+
+有钱有权和白人皮
+
+人前著名电竞选手里面,一样约的大把
+
+也没见贴纸里面的进去义愤填膺,隔壁nga隔三差五的lol知名选手的桃色新闻,可没见贴纸某些盆友过去,给被绿的女方男朋友祝拳
+
+*****
+
+####  aoke1989  
+##### 66#       发表于 2024-12-19 10:30
+
+<blockquote>白头盔 发表于 2024-12-19 09:34
+这女的该不是觉得被拍过和老外视频，以后彩礼能涨？想不通</blockquote>
+以前有著名电竞选手追我，我都没答应，能看上你，彩礼得加倍
+
+*****
+
+####  玄玦  
+##### 67#       发表于 2024-12-19 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66961238&amp;ptid=2212091" target="_blank">电波系腑海林 发表于 2024-12-19 09:46</a>
+
+原来csgo也有宙斯，我还以为是lck的那个</blockquote>
+lck的宙斯现在估计在兵营里给人打饭呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FeteFrumoase  
+##### 68#       发表于 2024-12-19 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66961631&amp;ptid=2212091" target="_blank">玄玦 发表于 2024-12-19 10:31</a>
+
+lck的宙斯现在估计在兵营里给人打饭呢</blockquote>
+信用卡放到小卖部
+
+前辈们随便用!
+

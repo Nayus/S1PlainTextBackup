@@ -1335,3 +1335,51 @@ ZEUS说不怪我，海参先干的。
 
 确实，要是男的会觉得上🐑马洋洋自得，那就会有不停的女的去送。
 
+
+*****
+
+####  有钱多买小人  
+##### 141#       发表于 2024-12-19 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66963112&amp;ptid=2212091" target="_blank">CR2 发表于 2024-12-19 13:09</a>
+整个楼看下来
+感觉撇开被拍视频这个行为
+单论找外国人doi，这事为啥放男女身上评价不一样</blockquote>
+本质是批评双标。
+所谓ezg对国男百般刁难，但对洋人则异常主动。对谁都主动或者对谁都刁难那自然不是ezg。
+男的对国女和洋人双标很少吧，都是一样舔。搞了洋人炫耀本质还是推崇好看胸大不要彩礼，跟国籍其实关系不大。
+
+*****
+
+####  Hominidae  
+##### 142#       发表于 2024-12-19 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66963938&amp;ptid=2212091" target="_blank">千本blur 发表于 2024-12-19 14:47</a>
+ZEUS说不怪我，海参先干的。</blockquote>
+海参？批孩！
+
+—— 来自 Xiaomi M2012K10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  pu  
+##### 143#       发表于 2024-12-19 15:23
+
+有点奇怪 怎么会转到EZG和洋人高一等上去的。。。。
+
+粉丝给偶像送炮可太平常了啊  都追星了 还想怎样
+
+估计这 B斯拉夫人很少被送炮 斯拉夫人一般是卖方不是买方 送个炮还要炫耀下
+
+你看那谁 送炮都不稀罕的 直接q j 幼女
+
+*****
+
+####  ZATEmkIII  
+##### 144#       发表于 2024-12-19 15:23
+
+ 本帖最后由 ZATEmkIII 于 2024-12-19 15:25 编辑 
+
+test1111fengnu
+

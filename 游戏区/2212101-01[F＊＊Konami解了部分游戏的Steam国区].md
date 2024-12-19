@@ -420,3 +420,30 @@ Konami还是没彻底想开，以早些年自己的那些家底，每年固定�
 
 百英制作组目前消失ing，承诺的更新一个都没给。
 
+
+*****
+
+####  navarra  
+##### 48#       发表于 2024-12-19 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66963719&amp;ptid=2212101" target="_blank">忧蓝 发表于 2024-12-19 14:20</a>
+
+幻水，
+
+百英制作组目前消失ing，承诺的更新一个都没给。</blockquote>
+村山去世了，估计就散了
+
+
+*****
+
+####  苦瓜师傅  
+##### 49#       发表于 2024-12-19 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66963719&amp;ptid=2212101" target="_blank">忧蓝 发表于 2024-12-19 14:20</a>
+幻水，
+
+百英制作组目前消失ing，承诺的更新一个都没给。</blockquote>
+机票几个人物的dlc可有可无吧
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.92
+

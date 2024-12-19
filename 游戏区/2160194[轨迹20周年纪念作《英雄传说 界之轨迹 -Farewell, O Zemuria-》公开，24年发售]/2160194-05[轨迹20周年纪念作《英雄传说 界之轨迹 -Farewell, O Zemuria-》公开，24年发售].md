@@ -596,3 +596,14 @@ pv出了，黎加闪混合系统
 界PC可能打算本社做？但是古董大会也没说就是了，或者云豹那边换了新的移植外包，还没确定工期？ ...</blockquote>
 云豹记得伊苏9后就没出日版pc了<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 7180#       发表于 2024-12-19 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66963712&amp;ptid=2160194" target="_blank">lost-star 发表于 2024-12-19 14:19</a>
+
+终于全平台同步了，至少百万了吧，老头死了我f社终于可以起飞了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">春秋大梦！
+

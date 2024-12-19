@@ -1111,3 +1111,15 @@ KIKO 和 Ramzes吧，TI9小鸽子和RTZ已经谈了挺长时间了</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.94-alpha
 
+
+*****
+
+####  酱豆腐  
+##### 121#       发表于 2024-12-19 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66962721&amp;ptid=2212091" target="_blank">Лилия 发表于 2024-12-19 12:26</a>
+没有漏点 不值得看
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png">这长相符合刻板印象
+

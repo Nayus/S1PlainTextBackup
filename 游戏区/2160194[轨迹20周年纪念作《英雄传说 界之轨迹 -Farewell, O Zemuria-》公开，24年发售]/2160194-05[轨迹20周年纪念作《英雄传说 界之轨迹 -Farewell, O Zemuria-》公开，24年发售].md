@@ -397,3 +397,11 @@ pv出了，黎加闪混合系统
 
 —— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  smdzh2  
+##### 7159#       发表于 2024-12-19 13:16
+
+虽然对空R不感冒，但还是希望首次多平台全球同步发售能有个好结果，这样26年才有机会玩到steam版东迷2<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -1063,3 +1063,13 @@ KZ虽然垃圾，但是红眼兵是真的帅，想买
 
 只能跳过下两个债劵了
 
+
+*****
+
+####  ykyin09  
+##### 5656#       发表于 2024-12-19 13:15
+
+就买了个联动衣服跟称号<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就近1000sc了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

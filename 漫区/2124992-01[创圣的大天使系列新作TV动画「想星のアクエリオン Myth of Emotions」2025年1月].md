@@ -172,3 +172,11 @@
 
 官网前世角色介绍几乎是完全剧透了小原好美那俩角色是啥关系<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">等等小室真琴那个角色上辈子是妹子？那这辈子是啥？
 
+
+*****
+
+####  風卷豹  
+##### 165#       发表于 2024-12-20 15:19
+
+怎么还没播就公布前世画风这种爆点了，太快了吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

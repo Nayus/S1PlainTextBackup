@@ -2061,3 +2061,14 @@ EG这么厉害啊，皇书里JB都说加了（BING）毒才能艹到母猪脑袋
 
 黄种人确实会稍微矮小些
 
+
+*****
+
+####  ardito  
+##### 206#       发表于 2024-12-20 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66963559&amp;ptid=2212091" target="_blank">obiy 发表于 2024-12-19 14:04</a>
+
+女性能不能把这些自动开盖的打进群体鄙视链底端，就像男性对那啥那样</blockquote>
+好像不对吧，男性随便曹丕的炮王也不在鄙视链底端啊<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

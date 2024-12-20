@@ -13123,3 +13123,13 @@ op里那句“能量循环往复”，我认为可能op画面要倒放看才是�
 
 <img src="https://p.sda1.dev/20/401edd5e6289186be7daf7bd221a2d05/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novalli  
+##### 4130#       发表于 2024-12-20 19:46
+
+为什么mujica每个角色和中之人都多少有点反差？是为了5个角色能卖10份吗？wsd，你好卑鄙<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.94-alpha
+

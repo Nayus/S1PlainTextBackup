@@ -787,3 +787,11 @@ https://keylol.com/forum.php?mod ... 6%E9%AD%94% ...</blockquote>
 然后是晓月刷魂提示打了汉化没有了 ...</blockquote>
 求个群号<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  redfea  
+##### 84#       发表于 2024-12-20 20:06
+
+看了这个游戏列表只想更加猛烈的f@ck konami，还我2d恶魔城<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">来自: iPhone客户端
+

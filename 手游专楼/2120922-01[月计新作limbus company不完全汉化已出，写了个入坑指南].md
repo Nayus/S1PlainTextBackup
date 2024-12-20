@@ -107,3 +107,31 @@
 
 如果效果是震颤AOE，资源消耗是绿蓝紫的话，正好给二玛单通用，如玛添E。
 
+
+*****
+
+####  Jamaisvu  
+##### 1026#       发表于 2024-12-20 20:09
+
+20区奇迹复刻加了两张新卡，格里高利和以实玛利的EGO，圣诞惊魂，全都是卡池抽取：
+
+<img src="https://img.saraba1st.com/forum/202412/20/201003epwq8jb4r4hjb9j9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241220_200552.jpg</strong> (248.86 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-20 20:10 上传
+
+<img src="https://img.saraba1st.com/forum/202412/20/200839uxattu59xor1twiq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241220_200630.jpg</strong> (289.2 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-20 20:08 上传
+
+卡面好看，制作也精良，但下池抽ego就不太地道了，金总监最近想钱想疯了吧？反正早晚能换，不急。
+

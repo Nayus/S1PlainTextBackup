@@ -1016,3 +1016,24 @@ live
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 起码风格很统一（？）
 
+
+*****
+
+####  CyDiablo  
+##### 26714#       发表于 2024-12-20 20:11
+
+居然是舰限啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+MyGO!!!!! 7th LIVE「こたえなんてなくても」 
+2024年12月22日（周日）  日比谷公園大音楽堂 
+
+bilibili官方账号会为大家带来大航海限定直播！
+※本次直播不提供回放
+
+还请大家不要错过哦！
+
+另外，@梦限大MewType
+也会作为暖场嘉宾参加本次LIVE哦!
+
+暖场部分也包含在本次直播内！
+※暖场部分为固定机位直播
+

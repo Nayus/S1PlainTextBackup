@@ -1651,3 +1651,16 @@ Image_5910741956753.png
 
 —— 来自 Xiaomi 22127RK46C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  smdzh2  
+##### 7276#       发表于 2024-12-20 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66971939&amp;ptid=2160194" target="_blank">隔壁老黄 发表于 2024-12-20 15:25</a>
+艾莉公认女主了，丽霞党哭哭哦
+
+—— 来自 鹅球 v3.3.92-alpha</blockquote>
+几年前公示书确立双箭头了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/e67408a6d7fdd2f1aeedbf3f05ccb39a/image.jpg" referrerpolicy="no-referrer">
+

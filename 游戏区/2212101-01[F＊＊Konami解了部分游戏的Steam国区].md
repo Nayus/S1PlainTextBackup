@@ -693,3 +693,14 @@ MGS ZOE 寂静岭2这些重要的都没解锁 我操死konami的妈
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  黑暗之眼  
+##### 76#         楼主| 发表于 2024-12-20 08:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66968788&amp;ptid=2212101" target="_blank">慕容断月 发表于 2024-12-20 08:17</a>
+
+炸弹人之类的锁了，恶魔城没有</blockquote>
+炸弹人在的，现在可以
+

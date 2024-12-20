@@ -86,3 +86,11 @@
 
 <img src="https://p.sda1.dev/20/70175824a0ee912d5c1841dd89e59698/IMG_20241220_012821.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Duc_d'_Muka  
+##### 159#       发表于 2024-12-20 08:37
+
+这3d的建模也太jrpg了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

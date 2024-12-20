@@ -1133,3 +1133,18 @@ KZ虽然垃圾，但是红眼兵是真的帅，想买
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.94-alpha
 
+
+*****
+
+####  Sannapolis  
+##### 5662#       发表于 2024-12-20 08:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66968522&amp;ptid=2170852" target="_blank">Atamaitai 发表于 2024-12-20 05:08</a>
+
+现在值得买吗
+
+—— 来自 鹅球 v3.3.94-alpha</blockquote>
+挺值得的
+
+现在入坑还能免费领到杀戮地带联动的武器装备和一件很帅的披风
+

@@ -1992,3 +1992,32 @@ EG这么厉害啊，皇书里JB都说加了（BING）毒才能艹到母猪脑袋
 上海major期间同样出现花边新闻的小钱，谁骂子易ezgirl了？都在骂小钱不好好训练，导致major期间竞技状态 ...</blockquote>
 都骂啊，上一个是EG这一个还是EG，这种EG放某最大黄文社区都是最狂放最浪的母猪，第一面见了就送，看谁还敢笑皇叔不真实说幕刃不可能因为JB就被艹服<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  profklugstein  
+##### 200#       发表于 2024-12-20 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66964799&amp;ptid=2212091" target="_blank">CR2 发表于 2024-12-19 16:18</a>
+但是我总觉得应该从一种生物族群对于“繁衍发展”进而来分析
+比如国女找了一个外男，大部分国内男性看到 ...</blockquote>
+历史上失败者男的被杀光女的给征服者当rbq的例子可太多了，加上连年降低的出生率，很难不联想
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  山岭里的鹦鹉螺  
+##### 201#       发表于 2024-12-20 13:05
+
+ 本帖最后由 山岭里的鹦鹉螺 于 2024-12-20 13:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66964799&amp;ptid=2212091" target="_blank">CR2 发表于 2024-12-19 16:18</a>
+
+但是我总觉得应该从一种生物族群对于“繁衍发展”进而来分析
+
+比如国女找了一个外男，大部分国内男性看到 ...</blockquote>
+你在分析也改变不了最会分析哲学的东罗马帝国的被蛮子整灭国了啊
+
+要不你可以说，虽然东罗马帝国被蛮子灭国了，但是奥斯曼帝国在杀光希腊罗马人之后继承了希腊女人，依然是东罗马帝国？
+

@@ -111,3 +111,11 @@ PS2 c105你游贩卖的内容出了，主推模型组二人。但年内不至于
 角色歌试听
 [https://www.youtube.com/watch?v=iM7ge3eypXg](https://www.youtube.com/watch?v=iM7ge3eypXg)
 
+
+*****
+
+####  alialex  
+##### 1332#       发表于 2024-12-20 17:56
+
+有emission能力的是复制人还是alice俯身体还不一定吧
+

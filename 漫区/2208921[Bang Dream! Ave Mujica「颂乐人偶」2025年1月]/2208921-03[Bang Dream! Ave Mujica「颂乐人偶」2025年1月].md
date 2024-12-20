@@ -13082,3 +13082,15 @@ mujica吧有个倒放op的分析贴有意思，如果倒放op的话，judy kill 
 
 到底有没有开发能操作黄瓜狂战士打怪的游戏
 
+
+*****
+
+####  66367749  
+##### 4126#       发表于 2024-12-20 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66972242&amp;ptid=2208921" target="_blank">御幸一也 发表于 2024-12-20 15:03</a>
+比對了雜誌版和修改版的animage 2025年1月監督訪談文本
+
+https://animageplus.jp/news/detail/96</blockquote>
+这段之前看的时候是有点疑问，原来是歧义啊，修改之后合理多了
+

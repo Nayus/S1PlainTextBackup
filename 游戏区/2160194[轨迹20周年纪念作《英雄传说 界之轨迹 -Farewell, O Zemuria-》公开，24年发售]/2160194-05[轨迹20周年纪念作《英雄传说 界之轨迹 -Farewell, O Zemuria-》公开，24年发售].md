@@ -1332,3 +1332,35 @@ ysx主要原本就足够完整了，这个加强版卖是肯定卖不了几份�
 比较惊讶的还是空RE首发带PC和突然蹦出来的伊苏10皇家版</blockquote>
 似乎没有pc版截图，只有ns和ps版。上次伊苏x只有ps截图没有ns截图。
 
+
+*****
+
+####  洛克萨斯  
+##### 7247#       发表于 2024-12-20 09:52
+
+<img src="https://img.saraba1st.com/forum/202412/20/095205t9i5xgan9vn5nfnr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (217.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-20 09:52 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">帝国组女人全死光了么
+
+共和国一个都没有，好惨
+
+*****
+
+####  zhouaa  
+##### 7248#       发表于 2024-12-20 09:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">女主不和黎恩隔岸相望吗
+
+*****
+
+####  倪哥干你  
+##### 7249#       发表于 2024-12-20 09:58
+
+罗爷我幻视成哪个元气美少女了 真该看看眼科
+

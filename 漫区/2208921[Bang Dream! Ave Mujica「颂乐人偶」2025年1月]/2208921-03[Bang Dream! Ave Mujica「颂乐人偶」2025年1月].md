@@ -13643,3 +13643,22 @@ In that aforementioned conversation with It's MyGO!!!!!, the third episode funct
 倒是说了第 ...</blockquote>
 確實，可能說的有點誤解，反正就是前三話的主角是睦和祥子，鬼佬repo基本沒提到其他人，但肯定不是完全沒戲份，而且第一話大家都看了是有其他人戲份的（
 
+
+*****
+
+####  akiomn  
+##### 4169#       发表于 2024-12-21 04:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66977114&amp;ptid=2208921" target="_blank">御幸一也 发表于 2024-12-21 04:05</a>
+確實，可能說的有點誤解，反正就是前三話的主角是睦和祥子，鬼佬repo基本沒提到其他人，但肯定不是完全沒 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剧情套路些也好，省的太奇葩太沉重了。比如祥子过去丧母本来就很有可能，毕竟狗篇完全没提到祥子母亲，丧母概率很大，结果第一集真是丧母
+那么睦作为星二代被父母压力去学演戏的剧情套路是完全可能的，这种假药在鸡播出前也有
+
+
+*****
+
+####  御幸一也  
+##### 4170#       发表于 2024-12-21 04:16
+
+星二代的父母壓力這個太典了反而感覺越來越真了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+

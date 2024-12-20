@@ -134,3 +134,20 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  没取名啊  
+##### 161#       发表于 2024-12-20 10:09
+
+总觉得这个丑了吧唧的Q版画风是烟雾弹，因为实在太丑了好像没在认真画一样
+
+*****
+
+####  法拉  
+##### 162#       发表于 2024-12-20 10:10
+
+这写实画风前传确实是招妙手，突然就想看了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

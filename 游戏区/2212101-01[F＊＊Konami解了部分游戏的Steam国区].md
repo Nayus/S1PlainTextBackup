@@ -727,3 +727,23 @@ MGS ZOE 寂静岭2这些重要的都没解锁 我操死konami的妈
 
 mgsv可以淘宝买key，我记得不贵
 
+
+*****
+
+####  创始’’’天翔  
+##### 79#       发表于 2024-12-20 10:08
+
+<blockquote>筒井彩芽 发表于 2024-12-20 10:04
+mgsv可以淘宝买key，我记得不贵</blockquote>
+现在都大涨了
+
+*****
+
+####  筒井彩芽  
+##### 80#       发表于 2024-12-20 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66969628&amp;ptid=2212101" target="_blank">创始’’’天翔 发表于 2024-12-20 10:08</a>
+
+现在都大涨了</blockquote>
+还真是，我之前30多买的，现在一看90了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

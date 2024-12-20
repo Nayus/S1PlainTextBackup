@@ -12674,3 +12674,21 @@ http://xhslink.com/a/kOwjrUjCnHY1
 
 2024-12-20 01:42 上传
 
+
+*****
+
+####  御幸一也  
+##### 4098#       发表于 2024-12-20 08:09
+
+海初的開始.jpg
+
+<img src="https://img.saraba1st.com/forum/202412/20/080853wqe8eqd8d7i73des.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_せとー(@bpdne)_20241219-143609_1869753592837767560_photo.jpg</strong> (100.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-20 08:08 上传
+
+[https://x.com/bpdne/status/1869753592837767560](https://x.com/bpdne/status/1869753592837767560)
+

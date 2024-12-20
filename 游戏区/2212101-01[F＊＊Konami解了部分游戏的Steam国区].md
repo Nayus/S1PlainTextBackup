@@ -662,3 +662,14 @@ MGSV我记得以前是通过链接买的</blockquote>
 
 MGS ZOE 寂静岭2这些重要的都没解锁 我操死konami的妈
 
+
+*****
+
+####  otakun  
+##### 73#       发表于 2024-12-20 08:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66968467&amp;ptid=2212101" target="_blank">慕容断月 发表于 2024-12-20 03:23</a>
+
+又开始锁了</blockquote>
+刚看了眼还没锁，而且还打折了，昨天刚买的恶魔城合集<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

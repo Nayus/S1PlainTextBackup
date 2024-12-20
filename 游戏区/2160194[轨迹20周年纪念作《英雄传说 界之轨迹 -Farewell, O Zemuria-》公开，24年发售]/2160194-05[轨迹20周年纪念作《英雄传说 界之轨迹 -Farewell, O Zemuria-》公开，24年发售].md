@@ -1302,3 +1302,33 @@ ysx主要原本就足够完整了，这个加强版卖是肯定卖不了几份�
 
 就算没有空轨re 预测的明年新作也是东迷 楼友们都在惊讶啥呢<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 7244#       发表于 2024-12-20 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66969247&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-12-20 09:32</a>
+
+界2不就是26年呗 这不是早就猜到了的 
+
+就算没有空轨re 预测的明年新作也是东迷 楼友们都在惊讶啥呢 ...</blockquote>
+比较惊讶的还是空RE首发带PC和突然蹦出来的伊苏10皇家版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  maojiashu  
+##### 7245#       发表于 2024-12-20 09:44
+
+那确实 这俩我也很惊讶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 7246#       发表于 2024-12-20 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66969342&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-12-20 09:43</a>
+
+比较惊讶的还是空RE首发带PC和突然蹦出来的伊苏10皇家版</blockquote>
+似乎没有pc版截图，只有ns和ps版。上次伊苏x只有ps截图没有ns截图。
+

@@ -704,3 +704,18 @@ MGS ZOE 寂静岭2这些重要的都没解锁 我操死konami的妈
 炸弹人之类的锁了，恶魔城没有</blockquote>
 炸弹人在的，现在可以
 
+
+*****
+
+####  筒井彩芽  
+##### 77#       发表于 2024-12-20 09:46
+
+买了，ds版合集汉化目前还没有。
+
+恶魔城GBA合集汉化 ：
+[https://keylol.com/forum.php?mod ... 6%E9%AD%94%E5%9F%8E](https://keylol.com/forum.php?mod=viewthread&amp;tid=970719&amp;highlight=%E6%81%B6%E9%AD%94%E5%9F%8E)
+
+链接：[https://pan.baidu.com/s/1LAlsPOaC-qdyHa1HAHNsrw](https://pan.baidu.com/s/1LAlsPOaC-qdyHa1HAHNsrw)
+
+提取码：teos
+

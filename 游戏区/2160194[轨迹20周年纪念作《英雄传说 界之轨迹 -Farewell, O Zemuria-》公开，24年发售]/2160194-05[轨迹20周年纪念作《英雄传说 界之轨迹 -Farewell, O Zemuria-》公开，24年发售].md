@@ -1664,3 +1664,21 @@ Image_5910741956753.png
 几年前公示书确立双箭头了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/20/e67408a6d7fdd2f1aeedbf3f05ccb39a/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 7277#       发表于 2024-12-20 21:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">话说怎么没有界steam的消息  记得黎2 1月还是2月就上了
+
+*****
+
+####  卢迪克  
+##### 7278#       发表于 2024-12-20 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66975348&amp;ptid=2160194" target="_blank">alucardcz 发表于 2024-12-20 21:46</a>
+
+话说怎么没有界steam的消息  记得黎2 1月还是2月就上了</blockquote>
+估计等台北电玩展吧。
+

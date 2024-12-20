@@ -12692,3 +12692,45 @@ http://xhslink.com/a/kOwjrUjCnHY1
 
 [https://x.com/bpdne/status/1869753592837767560](https://x.com/bpdne/status/1869753592837767560)
 
+
+*****
+
+####  御幸一也  
+##### 4099#       发表于 2024-12-20 11:10
+
+怎麼賣的是KV2的圖，還挺想要的（
+
+<img src="https://img.saraba1st.com/forum/202412/20/110956zd9da9zkqopphqh5.jpg" referrerpolicy="no-referrer">
+
+<strong>1b16618f-4d93-4a79-8f26-e5adc2bbf4bd.jpg</strong> (175.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-20 11:09 上传
+
+<img src="https://img.saraba1st.com/forum/202412/20/110957y62mveuuq6z7k2e6.jpg" referrerpolicy="no-referrer">
+
+<strong>de7a0d2f-f3ee-4cf7-b064-7ed7be2c29ab.jpg</strong> (146.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-20 11:09 上传
+
+<img src="https://img.saraba1st.com/forum/202412/20/110959g5gozzd73gzhzdg9.jpg" referrerpolicy="no-referrer">
+
+<strong>744ce03e-f46e-4538-bc3f-6e249eb72629.jpg</strong> (170.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-20 11:09 上传
+
+<img src="https://img.saraba1st.com/forum/202412/20/111000nzar3j050ndrarw3.jpg" referrerpolicy="no-referrer">
+
+<strong>bbfad775-af5a-41c1-98e4-868aa14f821a.jpg</strong> (200.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-20 11:10 上传
+
+[https://bang-dream.com/news/1972](https://bang-dream.com/news/1972)
+

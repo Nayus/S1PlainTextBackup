@@ -1432,3 +1432,22 @@ ysx主要原本就足够完整了，这个加强版卖是肯定卖不了几份�
 
 法老控居然能首发STEAM，真是有生之年，想想我黎2还在啃生肉<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 7257#       发表于 2024-12-20 11:07
+
+美版官网都是日文截图，难绷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  宛若青空  
+##### 7258#       发表于 2024-12-20 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66970213&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-12-20 11:07</a>
+
+美版官网都是日文截图，难绷</blockquote>
+日文官网里的图甚至是新旧混杂在一起的，一开始是初公开PV的图然后昨天更新后加了新PV的图，导致观感有点不一致<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真是草台
+

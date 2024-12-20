@@ -1639,3 +1639,15 @@ Image_5910741956753.png
 到26年的时候，闪4居然都是8年前的游戏了</blockquote>
 27年的时候，闪3同年的异度2都出终极版了<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mj240608414  
+##### 7275#       发表于 2024-12-20 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66969904&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-12-20 10:34</a>
+怎么没人说戴了头套这个黎和约除了眼睛颜色看起来长得一模一样</blockquote>
+别说这个谷了，就空轨重置那个封面图不是一眼性转黎爷
+
+—— 来自 Xiaomi 22127RK46C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

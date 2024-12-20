@@ -1487,3 +1487,44 @@ Image_5910741956753.png
 
 中文是哪边代理负责翻译和发行啊，不会还是云豹吧
 
+
+*****
+
+####  宛若青空  
+##### 7262#       发表于 2024-12-20 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66970410&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-12-20 11:25</a>
+
+好像和xseed谈崩了，之前那几张英文截图不让用了</blockquote>
+还能这样，这么说来才想起来当初文本看起来是Xseed的，没想到没谈成
+
+*****
+
+####  宛若青空  
+##### 7263#       发表于 2024-12-20 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66970539&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-12-20 11:36</a>
+
+中文是哪边代理负责翻译和发行啊，不会还是云豹吧</blockquote>
+就是云豹吧，1月的台北电玩展好像还打算和虾饺一起宣传
+
+
+*****
+
+####  卢迪克  
+##### 7264#       发表于 2024-12-20 11:43
+
+<blockquote>宛若青空 发表于 2024-12-20 11:41
+还能这样，这么说来才想起来当初文本看起来是Xseed的，没想到没谈成</blockquote>
+这家新代理的员工说会重新翻译文本。
+
+*****
+
+####  宛若青空  
+##### 7265#       发表于 2024-12-20 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66970610&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-12-20 11:43</a>
+
+这家新代理的员工说会重新翻译文本。</blockquote>
+毕竟原文本基本都在，新增修改的估计没多少，重新翻给差不多一年也来得及同步
+

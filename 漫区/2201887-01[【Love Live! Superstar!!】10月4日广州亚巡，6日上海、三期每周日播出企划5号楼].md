@@ -13113,3 +13113,17 @@ Screenshot_2024-12-16-00-42-39-303_tv.danmaku.bili.jpg
 
 有一说一，星在不搞祖宗之法方面已经溢出到比虹还多了，偏偏最该改的玩意第三部最后才意识到真的不能继续说了，咋说呢，肯定是代便高层按头！
 
+
+*****
+
+####  Totokei  
+##### 1283#       发表于 2024-12-20 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66969087&amp;ptid=2201887" target="_blank">ads147147 发表于 2024-12-20 09:10</a>
+所以个人推荐两校方案或者干脆不鸟方案。
+
+有一说一，星在不搞祖宗之法方面已经溢出到比虹还多了，偏偏最 ...</blockquote>
+主要是之前已经拿到ll优胜了，总不能加了人突然来一句我不去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+隔壁好歹一开始就说我们不去（指tva，剧场版还没看）
+

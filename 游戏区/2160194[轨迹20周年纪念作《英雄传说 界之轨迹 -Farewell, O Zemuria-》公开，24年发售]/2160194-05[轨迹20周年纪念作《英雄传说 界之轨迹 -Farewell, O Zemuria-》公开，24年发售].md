@@ -1451,3 +1451,24 @@ ysx主要原本就足够完整了，这个加强版卖是肯定卖不了几份�
 美版官网都是日文截图，难绷</blockquote>
 日文官网里的图甚至是新旧混杂在一起的，一开始是初公开PV的图然后昨天更新后加了新PV的图，导致观感有点不一致<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真是草台
 
+
+*****
+
+####  卢迪克  
+##### 7259#       发表于 2024-12-20 11:25
+
+<blockquote>宛若青空 发表于 2024-12-20 11:14
+日文官网里的图甚至是新旧混杂在一起的，一开始是初公开PV的图然后昨天更新后加了新PV的图，导致观感有点 ...</blockquote>
+好像和xseed谈崩了，之前那几张英文截图不让用了
+
+Image_5910741956753.png
+(170.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-20 11:25 上传
+
+由手机上传
+
+<img src="https://img.saraba1st.com/forum/202412/20/112514axws9w111u1d7wwa.png" referrerpolicy="no-referrer">
+

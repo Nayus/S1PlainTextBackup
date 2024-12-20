@@ -992,3 +992,27 @@ live
 二⭐
 <img src="https://p.sda1.dev/20/f9aaed53938b453bc38636b8bf2bc272/1734671936935.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 26712#         楼主| 发表于 2024-12-20 16:56
+
+武士道的新视觉小说，人设是.....信泽收！
+
+<img src="https://img.saraba1st.com/forum/202412/20/165620nhp6wti0dik9efp0.jpg" referrerpolicy="no-referrer">
+
+<strong>{36E8E733-5D70-A453-834C-7C4CC4B676B7}.jpg</strong> (72.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-20 16:56 上传
+
+*****
+
+####  吹楼伞人  
+##### 26713#       发表于 2024-12-20 16:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+起码风格很统一（？）
+

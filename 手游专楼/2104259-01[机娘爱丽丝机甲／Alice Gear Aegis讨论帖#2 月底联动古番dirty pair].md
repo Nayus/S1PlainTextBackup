@@ -76,3 +76,16 @@ PS复刻女神装置要出ST小迷糊了（总不可能只卖个皮肤吧），�
 这...作为复制人还能有emission能力
 那岂不是可以人工量产女演员大军了
 
+
+*****
+
+####  Picavian  
+##### 1330#       发表于 2024-12-20 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66973388&amp;ptid=2104259" target="_blank">Andariel 发表于 2024-12-20 17:21</a>
+
+这...作为复制人还能有emission能力
+
+那岂不是可以人工量产女演员大军了</blockquote>
+安卓这个项目的目的就是如此，这点寅二爷爷有提过。
+

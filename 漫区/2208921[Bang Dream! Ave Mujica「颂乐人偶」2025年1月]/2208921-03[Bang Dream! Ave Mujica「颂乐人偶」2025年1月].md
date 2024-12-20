@@ -12817,3 +12817,49 @@ http://xhslink.com/a/kOwjrUjCnHY1
 哪有通贩</blockquote>
 我也不知道<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">关键词Ave Mujica トレーディングカードコレクション
 
+
+*****
+
+####  吹楼伞人  
+##### 4108#       发表于 2024-12-20 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66971928&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2024-12-20 14:23</a>
+
+我也不知道关键词Ave Mujica トレーディングカードコレクション</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202412/20/143104ercwcp82j1rc1527.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.58 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-20 14:31 上传
+
+这个
+
+*****
+
+####  山ノ内花音  
+##### 4109#       发表于 2024-12-20 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66971966&amp;ptid=2208921" target="_blank">吹楼伞人 发表于 2024-12-20 14:31</a>
+这个</blockquote>
+对 我看wsd官网的已经切了 目前不知道别的哪个站有通贩 但感觉叔叔那里会上
+
+*****
+
+####  御幸一也  
+##### 4110#       发表于 2024-12-20 14:35
+
+啊？讓我看看改了什麼……
+
+<img src="https://img.saraba1st.com/forum/202412/20/143541kvbt0q99frqv0433.jpg" referrerpolicy="no-referrer">
+
+<strong>8931135a-0b20-4aec-8380-e71630b13cf8.jpg</strong> (54.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-20 14:35 上传
+
+[https://x.com/bang_dream_info/status/1869994685626044597](https://x.com/bang_dream_info/status/1869994685626044597)
+

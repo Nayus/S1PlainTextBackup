@@ -1109,3 +1109,34 @@ cover的家身都要被你败完了<img src="https://static.saraba1st.com/image/
 
 看来没死，还能参加晚上的企划
 
+
+*****
+
+####  holoan  
+##### 10447#         楼主| 发表于 2024-12-20 14:04
+
+<img src="https://img.saraba1st.com/forum/202412/20/140229m1leyhe0hhm6516z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (176.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-20 14:02 上传
+
+SEC卡二手店按10万收购，但是煤炉的价位今天已经直接崩到8W了
+
+倒看看有多少人出
+
+*****
+
+####  holoan  
+##### 10448#         楼主| 发表于 2024-12-20 17:22
+
+<img src="https://img.saraba1st.com/forum/202412/20/172237rpmbmldudt0yd30d.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (90.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-20 17:22 上传
+

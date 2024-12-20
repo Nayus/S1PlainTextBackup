@@ -2944,3 +2944,13 @@ iphone XR
 
 2024-12-20 14:42 上传
 
+
+*****
+
+####  khxooo  
+##### 15482#       发表于 2024-12-20 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66972063&amp;ptid=2084912" target="_blank">大十字紅朔 发表于 2024-12-20 14:43</a>
+我用这个打90+，其实确实怎么打都可以</blockquote>
+狂本主打一个谁都能欺负，还是一个大范围被特攻的对象，现在就是拼谁的宝具短而已<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

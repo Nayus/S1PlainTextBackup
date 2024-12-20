@@ -13476,3 +13476,41 @@ op我之前分析过，母鸡卡吧的分析也看过不少，有用的信息有
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  御幸一也  
+##### 4153#       发表于 2024-12-21 03:18
+
+The real breakout star of these first three episodes is, maybe surprisingly, Mutsumi. The sad little green-haired girl has always been pointedly intrigued by what exactly her issues are. As Sakiko's real reasons for quitting CRYCHIC are finally detailed in this anime's opening episode, the next ones focusing on Mutsumi dive into why she claimed never to enjoy being in the band. What's given isn't necessarily the most original answer, but it is understandable and arrestingly presented with some of the more overt, illusory visual metaphors I've seen this franchise cut loose and deploy.
+
+玩樂團不開心的真正理由要說了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑夜落叶秋天  
+##### 4154#       发表于 2024-12-21 03:20
+
+ 本帖最后由 黑夜落叶秋天 于 2024-12-21 03:21 编辑 
+
+希望去日本看前三集看的鸡友能透露更多细节
+
+
+*****
+
+####  akiomn  
+##### 4155#       发表于 2024-12-21 03:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66976882&amp;ptid=2208921" target="_blank">御幸一也 发表于 2024-12-21 03:18</a>
+The real breakout star of these first three episodes is, maybe surprisingly, Mutsumi. The sad little ...</blockquote>
+目前通过已知线索分析看更像是因为祥子？
+祥子丧母，睦带祥子去看蝶团想让祥子走出悲伤，然后c团炸了，祥子精神更糟了。后续还有mygo这些事，能觉得玩乐队不开心挺合理的
+
+*****
+
+####  御幸一也  
+##### 4156#       发表于 2024-12-21 03:24
+
+笑死，這人評價睦和祥子的一些背景故事cliche<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+可能喪母還是太多人猜到了，還是說還有別的（
+

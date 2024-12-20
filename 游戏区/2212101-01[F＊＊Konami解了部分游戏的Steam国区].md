@@ -774,3 +774,16 @@ https://keylol.com/forum.php?mod ... 6%E9%AD%94% ...</blockquote>
 
 然后是晓月刷魂提示打了汉化没有了
 
+
+*****
+
+####  筒井彩芽  
+##### 83#       发表于 2024-12-20 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66973977&amp;ptid=2212101" target="_blank">慕容断月 发表于 2024-12-20 18:47</a>
+
+其乐的版本落后了，现在在汉化的群里更新了11月的月轮新汉化
+
+然后是晓月刷魂提示打了汉化没有了 ...</blockquote>
+求个群号<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

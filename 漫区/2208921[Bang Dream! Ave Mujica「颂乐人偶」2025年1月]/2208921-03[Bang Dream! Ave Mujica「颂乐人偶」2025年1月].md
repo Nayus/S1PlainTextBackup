@@ -13554,3 +13554,15 @@ The real breakout star of these first three episodes is, maybe surprisingly, Mut
 我覺得這句話是指貫穿CCC時期她都不覺得組樂團是開心的，而CCC時期的祥子應該 ...</blockquote>
 得看睦视角的祥子怎样了，祥子肯定还有秘密藏着。如果和祥子无关的话，可能就是家庭因素了，也许和睦的吉他有关联
 
+
+*****
+
+####  御幸一也  
+##### 4161#       发表于 2024-12-21 03:43
+
+感覺也沒透露什麼，就說了前三話睦會爆，然後說故事寫得比mygo更誇張
+
+empathetic first-person gimmick swapped out for Mutsumi's psychologically breaking hallucinations. If you've ever wanted to see a traumatically depressed rhythm guitarist imagine a creepy doll talking to her like the Green Goblin mask, well then do I have the mobile game tie-in anime for you!
+
+感覺這人形容都很誇張，還是等日本人repo更適合<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

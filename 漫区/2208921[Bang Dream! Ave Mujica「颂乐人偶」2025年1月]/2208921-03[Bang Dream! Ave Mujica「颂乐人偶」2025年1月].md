@@ -13596,3 +13596,50 @@ In that aforementioned conversation with It's MyGO!!!!!, the third episode funct
 差不多把前三话全爆了吧，初华和海玲没戏份？预告的对峙可能是第二集最后的场景 ...</blockquote>
 這前3話基本就是睦回，完全沒看到提睦和祥子以外的人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 4165#       发表于 2024-12-21 03:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66977009&amp;ptid=2208921" target="_blank">御幸一也 发表于 2024-12-21 03:53</a>
+這前3話基本就是睦回，完全沒看到提睦和祥子以外的人</blockquote>
+是的，我看完也觉得老外形容太夸张了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过鬼佬那脑子……反正这帮人能懂东亚人细腻心理纠结心态就见鬼了
+像是形容祥子，高冷pua女霸道总裁那味都来了，用gaslight这词不知道怎么想的
+然后睦那段，老外用了个“绿魔面具”来形容，见鬼了wsd肯定不敢给睦上双重人格的设定
+不过前三话如果都是睦祥的话太稳了，后续睦问题也由祥子亲自解决
+
+*****
+
+####  NODY  
+##### 4166#       发表于 2024-12-21 04:00
+
+指的是初华和海铃目前还没有更深入的表现吧（比如回忆杀或者隐藏一面的表现），不是完全没戏份
+
+倒是说了第三集可能和灯那次类似，但加入了很多幻觉类的演出，估计就是睦从小到大的回忆杀搭配内心世界娃娃演出之类的
+
+这个人评价睦祥的过去比较老套，那睦的问题就是最容易猜中的父母逼着她学演戏进演艺圈之类的内容了
+
+*****
+
+####  御幸一也  
+##### 4167#       发表于 2024-12-21 04:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66977051&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-21 03:58</a>
+是的，我看完也觉得老外形容太夸张了不过鬼佬那脑子……反正这帮人能懂东亚人细腻心理纠结心态就见鬼了
+ ...</blockquote>
+看到他用gaslight這詞已經不想繼續看了，但實在沒repo可啃還是看一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+要從鬼佬的誇張形容裡摳出有效情報還是有點麻煩，還是等下週日本人repo吧（
+
+
+*****
+
+####  御幸一也  
+##### 4168#       发表于 2024-12-21 04:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66977067&amp;ptid=2208921" target="_blank">NODY 发表于 2024-12-21 04:00</a>
+指的是初华和海铃目前还没有更深入的表现吧（比如回忆杀或者隐藏一面的表现），不是完全没戏份
+
+倒是说了第 ...</blockquote>
+確實，可能說的有點誤解，反正就是前三話的主角是睦和祥子，鬼佬repo基本沒提到其他人，但肯定不是完全沒戲份，而且第一話大家都看了是有其他人戲份的（
+

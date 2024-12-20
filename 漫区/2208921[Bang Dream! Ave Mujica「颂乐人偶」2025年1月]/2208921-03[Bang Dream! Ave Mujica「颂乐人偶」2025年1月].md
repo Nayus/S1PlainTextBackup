@@ -12915,3 +12915,58 @@ http://xhslink.com/a/kOwjrUjCnHY1
 柿本：每次录制前，我都会在录音棚里向大家简单说明“这次是这样的剧情”。不过，有一个角色因为需要提前了 ...</blockquote>
 不是這裡 我在逐字比對了（
 
+
+*****
+
+####  御幸一也  
+##### 4115#       发表于 2024-12-20 15:03
+
+比對了雜誌版和修改版的animage 2025年1月監督訪談文本
+[https://animageplus.jp/news/detail/96](https://animageplus.jp/news/detail/96)
+
+大致上應該是這些地方有修改
+
+<img src="https://img.saraba1st.com/forum/202412/20/150154r40pmfz91z8bulln.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (434.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-20 15:01 上传
+
+<img src="https://img.saraba1st.com/forum/202412/20/150156z6utaketfdtzu4m9.png" referrerpolicy="no-referrer">
+
+<strong>image (1).png</strong> (373.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-20 15:01 上传
+
+修改最多的是這裡，應該就是這段才是最主要想要重新說明的。
+
+<img src="https://img.saraba1st.com/forum/202412/20/150159cjykyphb22dgdb8k.png" referrerpolicy="no-referrer">
+
+<strong>image (2).png</strong> (254.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-20 15:01 上传
+
+——可以說祥子是為了保護自己的內心而建立的Ave Mujica呢。但，明明是為了忘記，卻還是選擇了音樂，是因為？
+柿本　是啊……特地選擇同樣的領域想要爭取優勢。這一點也非常的有祥子風格呢。這對祥子來說，是為了活下去的必要的戰斗方式。
+
+柿本　是啊。明明她想要忘記，想要逃走，是她那忘不了的內心讓她這樣做的，還是說是她那高自尊心導致的呢。我覺得是她為了作為她自己活下去，無意識中選擇了同樣的領域作為戰場。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 山ノ内花音| + 1|好评加鹅|
+| 贰臣| + 1|好评加鹅|
+
+查看全部评分
+

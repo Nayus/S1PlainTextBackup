@@ -13514,3 +13514,43 @@ The real breakout star of these first three episodes is, maybe surprisingly, Mut
 笑死，這人評價睦和祥子的一些背景故事cliche<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
 可能喪母還是太多人猜到了，還是說還有別的（
 
+
+*****
+
+####  akiomn  
+##### 4157#       发表于 2024-12-21 03:28
+
+如果用舞台剧即兴发挥来看，可能是睦祥在舞台上互爆，借着表演实际说自己的真心话（此事在少歌亦有记载）bgm再插入愚神<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+只能说看祥子后续怎么操作吧，今天看贴吧才发现choirschoir这歌里的2：16有俩个睦，下一秒其中一个睦变祥子了，半身太稳了
+（要不是祥子亲自解决睦的问题我可要质疑独角兽的睦祥xp了）
+
+
+*****
+
+####  阿萨德飞过去  
+##### 4158#       发表于 2024-12-21 03:32
+
+感觉和想的大差不差，不过应该没这么夸张吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">（鬼佬应有吹比的嫌疑
+话说都这样了，为啥欧美不整个提前上映，最遗憾的一集
+
+*****
+
+####  御幸一也  
+##### 4159#       发表于 2024-12-21 03:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66976888&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-21 03:22</a>
+目前通过已知线索分析看更像是因为祥子？
+祥子丧母，睦带祥子去看蝶团想让祥子走出悲伤，然后c团炸了，祥 ...</blockquote>
+應該還是有更深層的理由吧
+我覺得這句話是指貫穿CCC時期她都不覺得組樂團是開心的，而CCC時期的祥子應該是有好轉過的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 4160#       发表于 2024-12-21 03:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66976904&amp;ptid=2208921" target="_blank">御幸一也 发表于 2024-12-21 03:34</a>
+應該還是有更深層的理由吧
+我覺得這句話是指貫穿CCC時期她都不覺得組樂團是開心的，而CCC時期的祥子應該 ...</blockquote>
+得看睦视角的祥子怎样了，祥子肯定还有秘密藏着。如果和祥子无关的话，可能就是家庭因素了，也许和睦的吉他有关联
+

@@ -13566,3 +13566,33 @@ empathetic first-person gimmick swapped out for Mutsumi's psychologically breaki
 
 感覺這人形容都很誇張，還是等日本人repo更適合<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  姜饼人  
+##### 4162#       发表于 2024-12-21 03:48
+
+差不多把前三话全爆了吧，初华和海玲没戏份？预告的对峙可能是第二集最后的场景
+
+*****
+
+####  御幸一也  
+##### 4163#       发表于 2024-12-21 03:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66976830&amp;ptid=2208921" target="_blank">紫吹兰 发表于 2024-12-21 02:47</a>
+In that aforementioned conversation with It's MyGO!!!!!, the third episode functions as a twisted mi ...</blockquote>
+幫你補完一下後面的部分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+In that aforementioned conversation with It's MyGO!!!!!, the third episode functions as a twisted mirror of that anime's third episode, which focused on Tomori's past, just with the somber, empathetic first-person gimmick swapped out for Mutsumi's psychologically breaking hallucinations.
+
+只是說mygo的第三話換了視角提到了燈的過去，大概是想說mujica裡也會有睦視角講她過去吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 4164#       发表于 2024-12-21 03:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66976975&amp;ptid=2208921" target="_blank">姜饼人 发表于 2024-12-21 03:48</a>
+差不多把前三话全爆了吧，初华和海玲没戏份？预告的对峙可能是第二集最后的场景 ...</blockquote>
+這前3話基本就是睦回，完全沒看到提睦和祥子以外的人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

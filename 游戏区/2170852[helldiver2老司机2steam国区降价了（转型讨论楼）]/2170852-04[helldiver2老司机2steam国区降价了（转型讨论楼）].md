@@ -1194,3 +1194,13 @@ PLAS-39真是打西线利器，就是弹夹小了点
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66971767&amp;ptid=2170852" target="_blank"> WGTCorp 发表于 2024-12-20 13:58</a> sloorz 发表于 2024-12-20 12:54 无后坐力步枪是不是无法一枪点掉毒液泰坦还是需要准确命中弱点？对东西线的坦克不知道用啥武器。麻烦老民主 ... 筒子爆头才能一发击毙泰坦。 打坦克用爆炸物或者等离子（焦土净化者）炸炮塔后面的散热器，或者直接叫红战备开炸，如果带铝热穿甲雷的话直接扔到车上就能炸掉。筒子正面炸也有伤害，但好像从没法正面一发秒杀。 </blockquote>
 坦克的正面炮盾装甲砍过，现在无后坐力炮不用反坦克体操也能正面一发来自: iPhone客户端
 
+
+*****
+
+####  6x6z6w  
+##### 5668#       发表于 2024-12-20 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66971263&amp;ptid=2170852" target="_blank">sloorz 发表于 2024-12-20 12:54</a>
+无后坐力步枪是不是无法一枪点掉毒液泰坦还是需要准确命中弱点？对东西线的坦克不知道用啥武器。麻烦老民主 ...</blockquote>
+坦克现在对炮塔侧面打一发无后座也可以带走，正面的话需要直接瞄炮管和炮塔连接处，其它部位就需要两发了
+

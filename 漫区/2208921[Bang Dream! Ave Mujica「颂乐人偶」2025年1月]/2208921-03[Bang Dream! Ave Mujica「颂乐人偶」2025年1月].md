@@ -13381,3 +13381,26 @@ ANN发布了前三话的含剧透剧评(以及在这篇毫无灵气的评论的�
 
 [https://www.animenewsnetwork.com ... pisodes-1-3/.219247](https://www.animenewsnetwork.com/review/ave-mujica-the-die-is-cast/episodes-1-3/.219247)
 
+
+*****
+
+####  紫吹兰  
+##### 4144#       发表于 2024-12-21 02:47
+
+ 本帖最后由 紫吹兰 于 2024-12-21 02:49 编辑 
+
+In that aforementioned conversation with It's MyGO!!!!!, the third episode functions as a twisted mirror of that anime's third episode.
+
+看来第三话是睦视角的元和二年
+
+
+*****
+
+####  akiomn  
+##### 4145#       发表于 2024-12-21 02:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66976830&amp;ptid=2208921" target="_blank">紫吹兰 发表于 2024-12-21 02:47</a>
+In that aforementioned conversation with It's MyGO!!!!!, the third episode functions as a twisted mi ...</blockquote>
+第三话是要虐睦了，另外剧透里透露了很重要一点，诡异洋娃娃，我猜测很可能是op里最后闪回的那个睦样子的娃娃。以及剧透里有个词，“绿魔面具”
+<img src="https://static.saraba1st.com/image/smiley/face2017/188.png" referrerpolicy="no-referrer">说实话我现在真的怕wsd给睦上双重人格的设定，那也太惨了
+

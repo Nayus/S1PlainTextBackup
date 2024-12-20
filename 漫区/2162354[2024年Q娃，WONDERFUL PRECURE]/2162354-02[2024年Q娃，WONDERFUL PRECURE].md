@@ -32,3 +32,14 @@
 
 WELCOME TO MY HOME，LET"S 热烈的 诞生DAY
 
+
+*****
+
+####  舞野咲  
+##### 2672#       发表于 2024-12-21 01:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66948335&amp;ptid=2162354" target="_blank">himfsz 发表于 2024-12-17 18:25</a>
+
+我现在开始觉得纠结人名的汉字也没什么意义了，毕竟人家主创自己也不在意，否则就直接用汉字了，而且也没 ...</blockquote>
+查了一下从ACE以后就没有过汉字名字的Q娃了
+

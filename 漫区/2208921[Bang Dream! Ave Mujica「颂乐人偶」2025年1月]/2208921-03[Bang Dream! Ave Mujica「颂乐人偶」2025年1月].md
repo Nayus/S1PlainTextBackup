@@ -12758,3 +12758,26 @@ http://xhslink.com/a/kOwjrUjCnHY1
 
 我是凯子罗森圣诞徽章还是买了
 
+
+*****
+
+####  NODY  
+##### 4103#       发表于 2024-12-20 13:30
+
+转隔壁
+
+<img src="https://img.saraba1st.com/forum/202412/20/133026iky0v3iwyvmcczhw.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQkf8-bkyiZiT3cSsg-lc.jpg</strong> (187.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-20 13:30 上传
+
+*****
+
+####  NODY  
+##### 4104#       发表于 2024-12-20 13:31
+
+海铃最左下角那张图之前动画里面没有吧，估计是后面剧情的截图了
+

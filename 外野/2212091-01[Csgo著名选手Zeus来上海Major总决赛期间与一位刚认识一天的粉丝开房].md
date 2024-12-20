@@ -2072,3 +2072,25 @@ EG这么厉害啊，皇书里JB都说加了（BING）毒才能艹到母猪脑袋
 女性能不能把这些自动开盖的打进群体鄙视链底端，就像男性对那啥那样</blockquote>
 好像不对吧，男性随便曹丕的炮王也不在鄙视链底端啊<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ardito  
+##### 207#       发表于 2024-12-20 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66963112&amp;ptid=2212091" target="_blank">CR2 发表于 2024-12-19 13:09</a>
+
+整个楼看下来
+
+感觉撇开被拍视频这个行为
+
+单论找外国人doi，这事为啥放男女身上评价不一样</blockquote>
+讲再多本质还是个难度问题，骂都要骂出一个easy，谜底写在谜面上<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sungoldy  
+##### 208#       发表于 2024-12-20 15:29
+
+让这些老外免签来也是一个过滤器嘛，你看不就拯救了一个男人么
+

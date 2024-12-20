@@ -13430,3 +13430,49 @@ In that aforementioned conversation with It's MyGO!!!!!, the third episode funct
 
 wsd给你鸡的宣传费不会都花在倒贴鬼佬上了吧，go那会给欧美加大投资不在意大陆市场结果被打脸的教训还不够吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 4149#       发表于 2024-12-21 03:07
+
+ 本帖最后由 紫吹兰 于 2024-12-21 03:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66976840&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-21 02:52</a>
+
+第三话是要虐睦了，另外剧透里透露了很重要一点，诡异洋娃娃，我猜测很可能是op里最后闪回的那个睦样子的 ...</blockquote>
+Guitarist Mutsumi starts to strain under the pressures of performance
+
+看起来只是上的压力太高了，双重人格对于目前看见的以及透露出的剧情完全没有意义，睦这个角色目前的塑造秉持着一贯性，本身剧情的重点就是随着故事的进行角色与角色互相之间的关系的改变以及角色自身的改变，而不是切割出一个人格之前的剧情所没有展现的人格。
+
+至于OP，我的看法还是在一个有剧中剧的动画里，不要把任何舞台妆的画面太当真。
+
+*****
+
+####  akiomn  
+##### 4150#       发表于 2024-12-21 03:09
+
+A huge part of the appeal going into Ave Mujica was the potential to watch Sakiko's desperate attempts to gaslight, gatekeep, and girlboss her demons away.
+鬼佬脑子有问题，这段是形容祥子的，直接把祥子形容成pua高冷女霸道总裁了
+<img src="https://static.saraba1st.com/image/smiley/face2017/188.png" referrerpolicy="no-referrer">这么看睦的那段绝对是夸张了，应该是睦被自己的负罪感折磨了
+
+*****
+
+####  akiomn  
+##### 4151#       发表于 2024-12-21 03:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66976865&amp;ptid=2208921" target="_blank">紫吹兰 发表于 2024-12-21 03:07</a>
+Guitarist Mutsumi starts to strain under the pressures of performance
+
+看起来只是上的压力太高了，双 ...</blockquote>
+op我之前分析过，母鸡卡吧的分析也看过不少，有用的信息有，可能真的不少。但是颜艺初华海玲睦喵梦这些部分最后能得出的结论都是夸张化，没意义的画面
+
+
+*****
+
+####  K·os  
+##### 4152#       发表于 2024-12-21 03:14
+
+武士道对海外市场的态度是有先后顺序的，21年还是22年的时候ws在欧美爆上救武士道于水火，然后再是23年mygo在老钟爆火，武士道的海外策略主打的是我啥也不干它自己火了，然后我再去铺开消费渠道
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -1722,3 +1722,14 @@ pc版真就暴力移植啊，进去键位设置都没有，打半天我还没提
 
 2024-12-20 11:43 上传
 
+
+*****
+
+####  宛若青空  
+##### 175#       发表于 2024-12-20 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66970611&amp;ptid=2084947" target="_blank">月埜ヒスイ 发表于 2024-12-20 11:43</a>
+
+发售两年销量磨过10万，送一套衣服</blockquote>
+我去居然送了，这服装当初是主机版ebten的店特，我还买了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

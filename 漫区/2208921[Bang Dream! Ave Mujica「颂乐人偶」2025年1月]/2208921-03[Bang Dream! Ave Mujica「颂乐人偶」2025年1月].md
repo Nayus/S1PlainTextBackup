@@ -13275,3 +13275,19 @@ https://x.com/zyank_freeze/status/1870061096205451410?s=46&amp;t=IZGx0N13SOtHALp
 https://x.com/zyank_freeze/status/1870061096205451410?s=46&amp;t=IZGx0N13SOtHALpwG0Ubrg</blockquote>
 5份海报只有祥子没有反光图 好奇
 
+
+*****
+
+####  哈曼的YY  
+##### 4138#       发表于 2024-12-20 23:25
+
+<img src="https://img.saraba1st.com/forum/202412/20/232525zbv8qvr3c3oopyrv.jpg" referrerpolicy="no-referrer">
+
+<strong>GfPRQG8a8AAextI.jpg</strong> (948.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-20 23:25 上传
+
+[https://x.com/JINJIN_80/status/1870068922302771349](https://x.com/JINJIN_80/status/1870068922302771349)
+

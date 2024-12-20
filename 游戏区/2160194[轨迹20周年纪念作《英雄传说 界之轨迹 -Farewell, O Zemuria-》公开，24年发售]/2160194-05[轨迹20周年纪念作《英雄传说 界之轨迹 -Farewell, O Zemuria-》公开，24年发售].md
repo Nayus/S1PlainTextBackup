@@ -1424,3 +1424,11 @@ ysx主要原本就足够完整了，这个加强版卖是肯定卖不了几份�
 
 怎么没人说戴了头套这个黎和约除了眼睛颜色看起来长得一模一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hayate0079  
+##### 7256#       发表于 2024-12-20 10:50
+
+法老控居然能首发STEAM，真是有生之年，想想我黎2还在啃生肉<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+

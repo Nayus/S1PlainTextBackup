@@ -13371,3 +13371,13 @@ https://x.com/zyank_freeze/status/1870061096205451410?s=46&amp;t=IZGx0N13SOtHALp
 
 2024-12-21 01:45 上传
 
+
+*****
+
+####  akiomn  
+##### 4143#       发表于 2024-12-21 02:30
+
+ANN发布了前三话的含剧透剧评(以及在这篇毫无灵气的评论的结尾，给前三话的总评为B+)。
+
+[https://www.animenewsnetwork.com ... pisodes-1-3/.219247](https://www.animenewsnetwork.com/review/ave-mujica-the-die-is-cast/episodes-1-3/.219247)
+

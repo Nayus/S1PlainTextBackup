@@ -1405,3 +1405,22 @@ ysx主要原本就足够完整了，这个加强版卖是肯定卖不了几份�
 
 美欧版都在亚马逊上架了
 
+
+*****
+
+####  ravend233  
+##### 7254#       发表于 2024-12-20 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66969620&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-12-20 10:07</a>
+
+有没有苍之圣女是女的世界线</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">感觉不如性转黎恩
+
+
+*****
+
+####  一步成诗  
+##### 7255#       发表于 2024-12-20 10:34
+
+怎么没人说戴了头套这个黎和约除了眼睛颜色看起来长得一模一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

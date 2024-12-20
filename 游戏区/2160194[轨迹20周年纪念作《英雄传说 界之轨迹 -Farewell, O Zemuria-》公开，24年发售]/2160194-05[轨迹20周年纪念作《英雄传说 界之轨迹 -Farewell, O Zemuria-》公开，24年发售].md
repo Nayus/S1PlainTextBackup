@@ -1628,3 +1628,14 @@ Image_5910741956753.png
 
 到26年的时候，闪4居然都是8年前的游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 7274#       发表于 2024-12-20 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66972532&amp;ptid=2160194" target="_blank">古畑任三郎2015 发表于 2024-12-20 15:44</a>
+
+到26年的时候，闪4居然都是8年前的游戏了</blockquote>
+27年的时候，闪3同年的异度2都出终极版了<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+

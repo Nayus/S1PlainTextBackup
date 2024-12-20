@@ -2021,3 +2021,14 @@ EG这么厉害啊，皇书里JB都说加了（BING）毒才能艹到母猪脑袋
 
 要不你可以说，虽然东罗马帝国被蛮子灭国了，但是奥斯曼帝国在杀光希腊罗马人之后继承了希腊女人，依然是东罗马帝国？
 
+
+*****
+
+####  斑驳的阴影  
+##### 202#       发表于 2024-12-20 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66966434&amp;ptid=2212091" target="_blank">爱尔米娜 发表于 2024-12-19 19:30</a>
+
+244都开了，不要过来传播疾病啊</blockquote>
+换个角度，ph可以直连方便240上传视频给大家鉴别<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+

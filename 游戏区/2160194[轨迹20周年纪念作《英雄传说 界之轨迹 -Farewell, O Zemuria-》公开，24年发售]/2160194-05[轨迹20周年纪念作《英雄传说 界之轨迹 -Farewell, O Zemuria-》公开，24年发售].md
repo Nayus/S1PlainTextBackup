@@ -1556,3 +1556,13 @@ Image_5910741956753.png
 
 台湾巴哈姆特里倒是有人说ns版是任天堂的，可能独占简体中文。但也没准信<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  windtrack_qh  
+##### 7268#       发表于 2024-12-20 13:47
+
+这次日本发行是gungho，可以查查格兰蒂亚HD中文是哪家搞得
+
+另外FC中文文本现成的，应该不用重新翻吧，当年FalcomChina给娱乐通做的那份应该还在
+

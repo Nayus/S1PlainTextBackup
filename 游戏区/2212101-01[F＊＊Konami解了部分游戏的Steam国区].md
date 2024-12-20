@@ -673,3 +673,23 @@ MGS ZOE 寂静岭2这些重要的都没解锁 我操死konami的妈
 又开始锁了</blockquote>
 刚看了眼还没锁，而且还打折了，昨天刚买的恶魔城合集<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  慕容断月  
+##### 74#       发表于 2024-12-20 08:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66968760&amp;ptid=2212101" target="_blank">otakun 发表于 2024-12-20 08:10</a>
+刚看了眼还没锁，而且还打折了，昨天刚买的恶魔城合集</blockquote>
+炸弹人之类的锁了，恶魔城没有
+
+
+*****
+
+####  crosz1985  
+##### 75#       发表于 2024-12-20 08:22
+
+恶魔城合集有汉化没
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

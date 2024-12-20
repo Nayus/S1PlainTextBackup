@@ -1973,3 +1973,22 @@ xhs上总共只有3条，加起来不到100赞。
 
 如果ezgirl能倒贴找到帅的或有知名度的，有几个会骂她ez？非得找一个没几人认识，又丑又缺德的白人中年男，那能说啥呢。
 
+
+*****
+
+####  山岭里的鹦鹉螺  
+##### 198#       发表于 2024-12-20 12:30
+
+EG这么厉害啊，皇书里JB都说加了（BING）毒才能艹到母猪脑袋变质，现在看来哪需要加化学药剂，只需要是白皮黑皮就可以啦。快发展旅游业大量创造外汇<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山岭里的鹦鹉螺  
+##### 199#       发表于 2024-12-20 12:31
+
+ 本帖最后由 山岭里的鹦鹉螺 于 2024-12-20 12:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66970737&amp;ptid=2212091" target="_blank">kong78~2 发表于 2024-12-20 11:58</a>
+
+上海major期间同样出现花边新闻的小钱，谁骂子易ezgirl了？都在骂小钱不好好训练，导致major期间竞技状态 ...</blockquote>
+都骂啊，上一个是EG这一个还是EG，这种EG放某最大黄文社区都是最狂放最浪的母猪，第一面见了就送，看谁还敢笑皇叔不真实说幕刃不可能因为JB就被艹服<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

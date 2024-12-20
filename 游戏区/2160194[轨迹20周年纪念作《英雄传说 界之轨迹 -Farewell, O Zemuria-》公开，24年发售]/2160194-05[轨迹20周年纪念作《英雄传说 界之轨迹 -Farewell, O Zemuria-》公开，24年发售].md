@@ -1472,3 +1472,18 @@ Image_5910741956753.png
 
 <img src="https://img.saraba1st.com/forum/202412/20/112514axws9w111u1d7wwa.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  maojiashu  
+##### 7260#       发表于 2024-12-20 11:33
+
+不是已经公布了ps pc ns三平台吗
+
+*****
+
+####  洛克萨斯  
+##### 7261#       发表于 2024-12-20 11:36
+
+中文是哪边代理负责翻译和发行啊，不会还是云豹吧
+

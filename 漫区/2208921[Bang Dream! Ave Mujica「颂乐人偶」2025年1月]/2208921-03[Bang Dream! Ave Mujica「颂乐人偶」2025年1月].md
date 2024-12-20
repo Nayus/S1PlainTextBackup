@@ -13231,3 +13231,11 @@ op里那句“能量循环往复”，我认为可能op画面要倒放看才是�
 
 https://x.com/zyank_freeze/status/1870061096205451410?s=46&amp;t=IZGx0N13SOtHALpwG0Ubrg
 
+
+*****
+
+####  ytttsuuuba  
+##### 4133#       发表于 2024-12-20 20:21
+
+卧槽高尾你怎么这么会卖<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">还打上了睦祥的颜色，这不是只能代了吗。
+

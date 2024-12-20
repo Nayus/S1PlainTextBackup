@@ -1037,3 +1037,14 @@ bilibili官方账号会为大家带来大航海限定直播！
 暖场部分也包含在本次直播内！
 ※暖场部分为固定机位直播
 
+
+*****
+
+####  Qing_Qi_2.0  
+##### 26715#       发表于 2024-12-20 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66915543&amp;ptid=2159415" target="_blank">fufusako 发表于 2024-12-13 13:47</a>
+
+TGA弱智梗图</blockquote>
+丰川祥子怎么没有黑框，听别人说不是死了吗？
+

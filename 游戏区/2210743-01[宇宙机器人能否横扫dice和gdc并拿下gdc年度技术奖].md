@@ -900,3 +900,11 @@ GDC很可能是动物井 pk 小丑牌<img src="https://static.saraba1st.com/imag
 你阅读理解能力有待提高，我都说了“不同牌子”，自然是要干不同层面的活的，不同层面的活有明显的区别， ...</blockquote>
 当你能说出“本质是同一群人”的时候，你的辩解就已经毫无意义了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  2015年入股市  
+##### 83#       发表于 2024-12-20 10:44
+
+黑猴最值得开发者学习的是如何在软件工程层面多快好省的完成任务，其他的要么没必要学，要么学不了
+

@@ -119,3 +119,15 @@ PS2 c105你游贩卖的内容出了，主推模型组二人。但年内不至于
 
 有emission能力的是复制人还是alice俯身体还不一定吧
 
+
+*****
+
+####  江戸前ルナ  
+##### 1333#         楼主| 发表于 2024-12-20 21:31
+
+草那马寸止，阿金不当人！
+
+这佩服你们这么久的东西还能记得细节……反正这次美里江的诡叙是连环套，但是之前美里江演机器人太像导致毛子和SIN上当的笑话现在看来竟然是真的这点也太搞笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+话说电老鼠和阿蒂到现在竟然才算正式加入<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

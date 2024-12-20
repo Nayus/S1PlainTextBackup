@@ -1566,3 +1566,19 @@ Image_5910741956753.png
 
 另外FC中文文本现成的，应该不用重新翻吧，当年FalcomChina给娱乐通做的那份应该还在
 
+
+*****
+
+####  洛克萨斯  
+##### 7269#       发表于 2024-12-20 14:02
+
+<img src="https://img.saraba1st.com/forum/202412/20/140202v7rv3yayeaffricy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (231.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-20 14:02 上传
+
+帝国组真另类啊
+

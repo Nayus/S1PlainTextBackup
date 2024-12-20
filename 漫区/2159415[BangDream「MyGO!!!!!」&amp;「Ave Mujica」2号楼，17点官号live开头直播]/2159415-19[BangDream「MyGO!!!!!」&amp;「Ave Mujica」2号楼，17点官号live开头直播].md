@@ -928,3 +928,28 @@ live
 
 这男人是谁（雾
 
+
+*****
+
+####  CyDiablo  
+##### 26709#       发表于 2024-12-20 14:04
+
+这次翻唱整挺好<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+【【音频】Subtitle - MyGO!!!!!-哔哩哔哩】 [https://b23.tv/kPN0o8X](https://b23.tv/kPN0o8X)
+【【音频】愛包ダンスホール - Pastel＊Palettes x 兰-哔哩哔哩】 [https://b23.tv/nc5adg5](https://b23.tv/nc5adg5)
+【【音频】迷星叫 - 香澄/兰/六花/立希-哔哩哔哩】 [https://b23.tv/Gn6qZMq](https://b23.tv/Gn6qZMq)
+【【音频】悪魔の子 - Roselia x Layer-哔哩哔哩】 [https://b23.tv/SS54ukX](https://b23.tv/SS54ukX)
+【【音频】幾億光年 - Poppin'Party x 灯-哔哩哔哩】 [https://b23.tv/S9kA65n](https://b23.tv/S9kA65n)
+【【音频】シカ色デイズ - Hello，Happy World！x 真白-哔哩哔哩】
+[https://b23.tv/0GqQazD](https://b23.tv/0GqQazD)
+
+新年祝福
+<img src="https://p.sda1.dev/20/a483bf0218f2e2fefa0ec15dd1e11f85/1734673413379.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/eff419ce12bd8b2aa58fbd1443d8aa7a/1734673418345.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/136975bb021c37d332be50986b2cea2d/1734673422563.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/f79bc4edd76a1dbf80785162c5a15585/1734673426694.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/2b4d8f5f8a4be263dcad8e803f6c358e/1734673431189.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/b6d1c873e1d8d7eb0ebedf155b2e37e0/1734673435227.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/ddb8a1ad04221121a4d159658b5faa7e/1734673440470.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/bae2f229cc23950d66149e53199c139e/1734673032053.png" referrerpolicy="no-referrer">
+

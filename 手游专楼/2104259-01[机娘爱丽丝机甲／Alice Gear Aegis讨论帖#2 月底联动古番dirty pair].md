@@ -36,3 +36,11 @@
 
 PS复刻女神装置要出ST小迷糊了（总不可能只卖个皮肤吧），什么时候把朱罗系端上来啊
 
+
+*****
+
+####  冰风血羽  
+##### 1326#       发表于 2024-12-20 14:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">麻，这记忆力越来越差了
+

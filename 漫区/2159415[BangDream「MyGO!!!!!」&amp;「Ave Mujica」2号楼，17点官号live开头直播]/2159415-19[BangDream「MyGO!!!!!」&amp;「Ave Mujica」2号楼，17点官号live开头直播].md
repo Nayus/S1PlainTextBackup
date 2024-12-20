@@ -953,3 +953,13 @@ live
 <img src="https://p.sda1.dev/20/ddb8a1ad04221121a4d159658b5faa7e/1734673440470.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/20/bae2f229cc23950d66149e53199c139e/1734673032053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novalli  
+##### 26710#       发表于 2024-12-20 14:19
+
+看了一圈B站的年终总结，又看了一年mygo的人有点多啊。只能说初华太多了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.94-alpha
+

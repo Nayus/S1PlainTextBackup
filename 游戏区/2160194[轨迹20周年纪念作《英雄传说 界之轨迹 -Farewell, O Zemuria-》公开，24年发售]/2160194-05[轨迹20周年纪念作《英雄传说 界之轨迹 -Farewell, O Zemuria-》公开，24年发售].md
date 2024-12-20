@@ -1595,3 +1595,15 @@ Image_5910741956753.png
 另外FC中文文本现成的，应该不用重新翻吧，当年 ...</blockquote>
 他不是美版吗
 
+
+*****
+
+####  隔壁老黄  
+##### 7271#       发表于 2024-12-20 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66971800&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-12-20 14:02</a>
+帝国组真另类啊</blockquote>
+艾莉公认女主了，丽霞党哭哭哦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+

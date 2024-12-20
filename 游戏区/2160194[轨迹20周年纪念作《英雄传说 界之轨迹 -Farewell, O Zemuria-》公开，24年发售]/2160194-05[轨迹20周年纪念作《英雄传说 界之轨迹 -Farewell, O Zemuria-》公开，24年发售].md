@@ -1364,3 +1364,32 @@ ysx主要原本就足够完整了，这个加强版卖是肯定卖不了几份�
 
 罗爷我幻视成哪个元气美少女了 真该看看眼科
 
+
+*****
+
+####  maojiashu  
+##### 7250#       发表于 2024-12-20 10:06
+
+只有带女儿组的时候牢莎才能捞到出场 22分摊的时候帝国组就没女的了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 7251#       发表于 2024-12-20 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66969431&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-12-20 09:52</a>
+
+帝国组女人全死光了么
+
+共和国一个都没有，好惨</blockquote>
+这套谷之前出的也没带共和国组玩
+
+克洛难道不是女主吗
+
+*****
+
+####  洛克萨斯  
+##### 7252#       发表于 2024-12-20 10:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">有没有苍之圣女是女的世界线
+

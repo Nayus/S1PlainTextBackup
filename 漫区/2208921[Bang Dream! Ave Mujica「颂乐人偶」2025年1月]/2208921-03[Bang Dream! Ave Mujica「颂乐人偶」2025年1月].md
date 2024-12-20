@@ -12863,3 +12863,44 @@ http://xhslink.com/a/kOwjrUjCnHY1
 
 [https://x.com/bang_dream_info/status/1869994685626044597](https://x.com/bang_dream_info/status/1869994685626044597)
 
+
+*****
+
+####  御幸一也  
+##### 4111#       发表于 2024-12-20 14:38
+
+ 本帖最后由 御幸一也 于 2024-12-20 14:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66971892&amp;ptid=2208921" target="_blank">吹楼伞人 发表于 2024-12-20 14:19</a>
+
+哪有通贩</blockquote>
+哎喲 這不是鳥叔嗎 說好的不來ave專樓呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看來這張圖的小號列表又要更新了呢
+
+<img src="https://img.saraba1st.com/forum/202412/20/144003cridl0idj9p4a4r4.jpg" referrerpolicy="no-referrer">
+
+<strong>image.jpg</strong> (106.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-20 14:40 上传
+
+
+*****
+
+####  吹楼伞人  
+##### 4112#       发表于 2024-12-20 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66971996&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2024-12-20 14:35</a>
+对 我看wsd官网的已经切了 目前不知道别的哪个站有通贩 但感觉叔叔那里会上 ...</blockquote>
+煤炉全是倒狗，等补货吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 4113#       发表于 2024-12-20 14:46
+
+柿本：每次录制前，我都会在录音棚里向大家简单说明“这次是这样的剧情”。不过，有一个角色因为需要提前了解后续剧情，才能更好地表演，因此不得不将之后的情节透露给演员。比如初华的演员佐佐木女士听到之后起了一身鸡皮疙瘩，甚至激动地站了起来（笑）。但如果祥子提前知道这些情节，她的表演可能会受到影响，所以我对祥子的演员高尾奏音女士下了封口令。
+
+这段是修改之后的吧？
+

@@ -2928,3 +2928,19 @@ iphone XR
 
 现在200+了，如果qp不爆仓就刷个300池
 
+
+*****
+
+####  大十字紅朔  
+##### 15481#       发表于 2024-12-20 14:43
+
+我用这个打90+，其实确实怎么打都可以
+
+<img src="https://img.saraba1st.com/forum/202412/20/144248hddkiymqnndq5251.png" referrerpolicy="no-referrer">
+
+<strong>78bca027ee326fdb2ea12b136f7792c4_720.png</strong> (1.08 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-20 14:42 上传
+

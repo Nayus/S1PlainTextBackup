@@ -963,3 +963,32 @@ live
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.94-alpha
 
+
+*****
+
+####  CyDiablo  
+##### 26711#       发表于 2024-12-20 14:37
+
+日常活+1，感觉都在战后结算啊<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+这期还提了下ag<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+日服RAS箱EX牌活动“Rockin' Our Trip!”
+加成橙色
+<img src="https://p.sda1.dev/20/ca1fb6d77285f84b2fedf43eda75bb94/1734672020552.jpg" referrerpolicy="no-referrer">
+经过漫长的火车旅程，RAS终于抵达了井之岛！在期待已久的出行中，lock和masking兴奋不已，带领着热闹而快乐的RAS的一天拉开帷幕——！（b站：花园多惠Official）
+
+剧情文本（含机翻）
+[https://bbs.nga.cn/read.php?tid=42789680](https://bbs.nga.cn/read.php?tid=42789680)
+
+【【音频】VIVID FIRST TIME - RAISE A SUILEN-哔哩哔哩】 [https://b23.tv/mFQKd21](https://b23.tv/mFQKd21)
+
+五⭐
+<img src="https://p.sda1.dev/20/497fe920f2cd23d2482db6bf0e9470ae/IMG_20241220_131939.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/b0e4812f38e9a962ce516e5f34e491eb/IMG_20241220_131948.jpg" referrerpolicy="no-referrer">
+四⭐
+<img src="https://p.sda1.dev/20/a42df1b03c14492113cffdc4eafceeb2/IMG_20241220_131919.jpg" referrerpolicy="no-referrer">
+三⭐
+<img src="https://p.sda1.dev/20/8657f5d30c82a17b170ccb85f059781e/IMG_20241220_131930.jpg" referrerpolicy="no-referrer">
+二⭐
+<img src="https://p.sda1.dev/20/f9aaed53938b453bc38636b8bf2bc272/1734671936935.png" referrerpolicy="no-referrer">
+

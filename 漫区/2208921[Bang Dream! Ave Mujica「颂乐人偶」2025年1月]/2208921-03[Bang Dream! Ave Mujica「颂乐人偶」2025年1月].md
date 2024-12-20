@@ -12904,3 +12904,14 @@ http://xhslink.com/a/kOwjrUjCnHY1
 
 这段是修改之后的吧？
 
+
+*****
+
+####  御幸一也  
+##### 4114#       发表于 2024-12-20 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66972092&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2024-12-20 14:46</a>
+
+柿本：每次录制前，我都会在录音棚里向大家简单说明“这次是这样的剧情”。不过，有一个角色因为需要提前了 ...</blockquote>
+不是這裡 我在逐字比對了（
+

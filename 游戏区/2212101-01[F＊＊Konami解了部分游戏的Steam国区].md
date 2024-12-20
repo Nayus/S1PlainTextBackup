@@ -757,3 +757,20 @@ mgsv可以淘宝买key，我记得不贵</blockquote>
 
 赛博猴子真成小丑了
 
+
+*****
+
+####  慕容断月  
+##### 82#       发表于 2024-12-20 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66969366&amp;ptid=2212101" target="_blank">筒井彩芽 发表于 2024-12-20 09:46</a>
+
+买了，ds版合集汉化目前还没有。
+
+恶魔城GBA合集汉化 ：
+
+https://keylol.com/forum.php?mod ... 6%E9%AD%94% ...</blockquote>
+其乐的版本落后了，现在在汉化的群里更新了11月的月轮新汉化
+
+然后是晓月刷魂提示打了汉化没有了
+

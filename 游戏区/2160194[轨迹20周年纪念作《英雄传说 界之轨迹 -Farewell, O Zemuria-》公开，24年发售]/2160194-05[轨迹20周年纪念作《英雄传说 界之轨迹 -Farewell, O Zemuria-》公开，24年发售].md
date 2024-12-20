@@ -1542,3 +1542,17 @@ Image_5910741956753.png
 
 就是宣发不如nisa和xseed，销量可能打折扣
 
+
+*****
+
+####  卢迪克  
+##### 7267#       发表于 2024-12-20 13:07
+
+ 本帖最后由 卢迪克 于 2024-12-20 13:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66970539&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-12-20 11:36</a>
+
+中文是哪边代理负责翻译和发行啊，不会还是云豹吧</blockquote>
+一些坚持云豹，一些说云豹至今没转过空r情报不可能是他
+
+台湾巴哈姆特里倒是有人说ns版是任天堂的，可能独占简体中文。但也没准信<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+

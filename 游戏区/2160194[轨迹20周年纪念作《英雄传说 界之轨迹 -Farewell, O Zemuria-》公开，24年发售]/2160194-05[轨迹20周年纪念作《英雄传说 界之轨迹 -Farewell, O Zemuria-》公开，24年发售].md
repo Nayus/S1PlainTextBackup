@@ -1582,3 +1582,16 @@ Image_5910741956753.png
 
 帝国组真另类啊
 
+
+*****
+
+####  卢迪克  
+##### 7270#       发表于 2024-12-20 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66971686&amp;ptid=2160194" target="_blank">windtrack_qh 发表于 2024-12-20 13:47</a>
+
+这次日本发行是gungho，可以查查格兰蒂亚HD中文是哪家搞得
+
+另外FC中文文本现成的，应该不用重新翻吧，当年 ...</blockquote>
+他不是美版吗
+

@@ -1682,3 +1682,14 @@ Image_5910741956753.png
 话说怎么没有界steam的消息  记得黎2 1月还是2月就上了</blockquote>
 估计等台北电玩展吧。
 
+
+*****
+
+####  alucardcz  
+##### 7279#       发表于 2024-12-20 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66975372&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-12-20 21:49</a>
+
+估计等台北电玩展吧。</blockquote>
+啥时候？
+

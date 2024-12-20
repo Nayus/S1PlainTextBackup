@@ -89,3 +89,25 @@ PS复刻女神装置要出ST小迷糊了（总不可能只卖个皮肤吧），�
 那岂不是可以人工量产女演员大军了</blockquote>
 安卓这个项目的目的就是如此，这点寅二爷爷有提过。
 
+
+*****
+
+####  不灭的旋律  
+##### 1331#       发表于 2024-12-20 17:44
+
+ 本帖最后由 不灭的旋律 于 2024-12-20 17:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66973388&amp;ptid=2104259" target="_blank">Andariel 发表于 2024-12-20 17:21</a>
+
+这...作为复制人还能有emission能力
+
+那岂不是可以人工量产女演员大军了</blockquote>
+搞不好是ALICE给的能力呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+PS重新看了一遍修正了一部分内容。
+
+PS2 c105你游贩卖的内容出了，主推模型组二人。但年内不至于实装FAST吧？难道是周年？
+[https://www.movic.jp/shop/pages/alicegearaegis_comiket_c105.aspx](https://www.movic.jp/shop/pages/alicegearaegis_comiket_c105.aspx)
+
+角色歌试听
+[https://www.youtube.com/watch?v=iM7ge3eypXg](https://www.youtube.com/watch?v=iM7ge3eypXg)
+

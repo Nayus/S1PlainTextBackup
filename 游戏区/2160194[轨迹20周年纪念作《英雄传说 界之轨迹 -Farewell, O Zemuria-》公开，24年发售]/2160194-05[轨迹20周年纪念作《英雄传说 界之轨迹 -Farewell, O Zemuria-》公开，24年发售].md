@@ -1620,3 +1620,11 @@ Image_5910741956753.png
 —— 来自 鹅球 v3.3.92-alpha</blockquote>
 高朗大喜（误）
 
+
+*****
+
+####  古畑任三郎2015  
+##### 7273#       发表于 2024-12-20 15:44
+
+到26年的时候，闪4居然都是8年前的游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

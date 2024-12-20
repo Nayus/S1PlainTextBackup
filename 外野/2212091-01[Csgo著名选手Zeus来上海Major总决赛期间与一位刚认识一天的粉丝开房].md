@@ -2094,3 +2094,13 @@ EG这么厉害啊，皇书里JB都说加了（BING）毒才能艹到母猪脑袋
 
 让这些老外免签来也是一个过滤器嘛，你看不就拯救了一个男人么
 
+
+*****
+
+####  obiy  
+##### 209#       发表于 2024-12-20 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66972361&amp;ptid=2212091" target="_blank">ardito 发表于 2024-12-20 15:21</a>
+好像不对吧，男性随便曹丕的炮王也不在鄙视链底端啊</blockquote>
+这里说的是工资上交耙耳朵（出卖尊严）那类人
+

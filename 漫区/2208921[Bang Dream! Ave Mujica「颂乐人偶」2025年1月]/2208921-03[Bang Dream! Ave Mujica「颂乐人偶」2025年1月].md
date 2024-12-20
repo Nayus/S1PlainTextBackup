@@ -12995,3 +12995,12 @@ http://xhslink.com/a/kOwjrUjCnHY1
 
 是我，买了武士道商店的最后一盒……
 
+
+*****
+
+####  akiomn  
+##### 4119#       发表于 2024-12-20 15:39
+
+mujica吧有个倒放op的分析贴有意思，如果倒放op的话，judy kill kiss和海玲倒吊人那幕就很清晰了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这op信息量真大，正放和倒放都能分析出结果
+

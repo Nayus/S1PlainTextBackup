@@ -13133,3 +13133,101 @@ op里那句“能量循环往复”，我认为可能op画面要倒放看才是�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.94-alpha
 
+
+*****
+
+####  御幸一也  
+##### 4131#       发表于 2024-12-20 20:05
+
+我噴了，奏音和結月這麼會賣嗎<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+配文還「ゆづ、超共感できて隣にいると安心するから、いつも「私たち実は幼馴染だった！？」って錯覚する…笑」，
+
+『和結月非常有共鳴，有她在旁邊就會感覺很安心，所以經常會給我錯覺“其實我們真的是幼馴染！？”…笑』
+
+<img src="https://img.saraba1st.com/forum/202412/20/200311kgehphhf3pay6ave.jpg" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 1948 - (1) Xユーザーの高尾奏音さん_ 「ちょっと前に一緒にディズ.jpg</strong> (39.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-20 20:03 上传
+
+<img src="https://img.saraba1st.com/forum/202412/20/200322ufen8x0585rnal9r.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20241220-120137_1870077089862549973_photo-1.jpg</strong> (272.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-20 20:03 上传
+
+<img src="https://img.saraba1st.com/forum/202412/20/200340bpcoix40znrhz4lc.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20241220-120137_1870077089862549973_photo-0.jpg</strong> (499.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-20 20:03 上传
+
+<img src="https://img.saraba1st.com/forum/202412/20/200347a4lsjw676h7dp6z7.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20241220-120137_1870077089862549973_photo-2.jpg</strong> (473.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-20 20:03 上传
+
+[https://x.com/Kanon_Takao/status/1870077089862549973](https://x.com/Kanon_Takao/status/1870077089862549973)
+
+*****
+
+####  山ノ内花音  
+##### 4132#       发表于 2024-12-20 20:05
+
+<img src="https://img.saraba1st.com/forum/202412/20/200434voql40wvd4e6zwvo.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0862.jpeg</strong> (727.95 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-20 20:04 上传
+
+<img src="https://img.saraba1st.com/forum/202412/20/200444ez0rnm7zvlibmilo.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0858.jpeg</strong> (619.22 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-20 20:04 上传
+
+<img src="https://img.saraba1st.com/forum/202412/20/200451ztototttzqttwmwe.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0859.jpeg</strong> (706.35 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-20 20:04 上传
+
+<img src="https://img.saraba1st.com/forum/202412/20/200458xis3ja2ij93qsvbb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0860.jpeg</strong> (769.74 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-20 20:04 上传
+
+<img src="https://img.saraba1st.com/forum/202412/20/200504tf2qy2mbeqzq2qqe.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0861.jpeg</strong> (740.59 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-20 20:05 上传
+
+https://x.com/zyank_freeze/status/1870061096205451410?s=46&amp;t=IZGx0N13SOtHALpwG0Ubrg
+

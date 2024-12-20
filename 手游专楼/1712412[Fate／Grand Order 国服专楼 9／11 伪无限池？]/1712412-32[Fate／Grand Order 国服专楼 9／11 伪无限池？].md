@@ -32,3 +32,14 @@
 
 什么，原来尼莫那堆分身不是全都是男孩子啊，引擎尼莫居然是女的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 46855#       发表于 2024-12-20 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66974464&amp;ptid=1712412" target="_blank">电波系腑海林 发表于 2024-12-20 19:48</a>
+
+什么，原来尼莫那堆分身不是全都是男孩子啊，引擎尼莫居然是女的</blockquote>
+引擎、烘焙和博士是女的，医生、本体、船员是男的。区分就是头发有没有绑带，有绑带的就是女的。
+

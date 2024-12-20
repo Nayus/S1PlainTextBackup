@@ -1284,3 +1284,11 @@ ysx主要原本就足够完整了，这个加强版卖是肯定卖不了几份�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那界2还会不会有以前终结篇的VR福利DLC
 
+
+*****
+
+####  ravend233  
+##### 7242#       发表于 2024-12-20 09:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">资源还要做东迷2，你界2能分到的资源能把剧情平稳落地就谢天谢地了
+

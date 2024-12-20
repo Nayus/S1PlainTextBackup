@@ -2913,3 +2913,18 @@ iphone XR
 
 165池，+11，看看这次能不能肝到200池吧
 
+
+*****
+
+####  exiaexa  
+##### 15480#       发表于 2024-12-20 12:10
+
+ 本帖最后由 exiaexa 于 2024-12-20 12:12 编辑 
+
+90+怎么看都爽多了
+长江烟雾镜抓个c呆直接满级成不换人，又快又爽
+90艹什么玩意儿
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+现在200+了，如果qp不爆仓就刷个300池
+

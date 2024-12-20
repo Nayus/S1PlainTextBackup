@@ -2954,3 +2954,14 @@ iphone XR
 我用这个打90+，其实确实怎么打都可以</blockquote>
 狂本主打一个谁都能欺负，还是一个大范围被特攻的对象，现在就是拼谁的宝具短而已<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大十字紅朔  
+##### 15483#       发表于 2024-12-20 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66973407&amp;ptid=2084912" target="_blank">khxooo 发表于 2024-12-20 17:25</a>
+
+狂本主打一个谁都能欺负，还是一个大范围被特攻的对象，现在就是拼谁的宝具短而已 ...</blockquote>
+我想把羁绊多加点
+

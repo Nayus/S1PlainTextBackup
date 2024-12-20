@@ -13094,3 +13094,24 @@ mujica吧有个倒放op的分析贴有意思，如果倒放op的话，judy kill 
 https://animageplus.jp/news/detail/96</blockquote>
 这段之前看的时候是有点疑问，原来是歧义啊，修改之后合理多了
 
+
+*****
+
+####  cherryjia12  
+##### 4127#       发表于 2024-12-20 18:07
+
+信泽这次准备画几张鬼图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  akiomn  
+##### 4128#       发表于 2024-12-20 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66973422&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2024-12-20 17:26</a>
+到底有没有开发能操作黄瓜狂战士打怪的游戏
+
+倒放pv2也有人玩过 说是看月相倒放才是正确顺序 ...</blockquote>
+倒放op会发现能和歌词对上，比如祥子回头那幕，歌词是“举目仰望圆月”，如果是倒放的话恰好是祥子望月
+op里那句“能量循环往复”，我认为可能op画面要倒放看才是正确的
+

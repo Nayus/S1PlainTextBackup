@@ -13115,3 +13115,11 @@ https://animageplus.jp/news/detail/96</blockquote>
 倒放op会发现能和歌词对上，比如祥子回头那幕，歌词是“举目仰望圆月”，如果是倒放的话恰好是祥子望月
 op里那句“能量循环往复”，我认为可能op画面要倒放看才是正确的
 
+
+*****
+
+####  仟音一心  
+##### 4129#       发表于 2024-12-20 18:57
+
+<img src="https://p.sda1.dev/20/401edd5e6289186be7daf7bd221a2d05/image.jpg" referrerpolicy="no-referrer">
+

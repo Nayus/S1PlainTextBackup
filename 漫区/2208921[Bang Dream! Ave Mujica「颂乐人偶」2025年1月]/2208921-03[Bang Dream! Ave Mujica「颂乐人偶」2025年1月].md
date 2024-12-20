@@ -13404,3 +13404,29 @@ In that aforementioned conversation with It's MyGO!!!!!, the third episode funct
 第三话是要虐睦了，另外剧透里透露了很重要一点，诡异洋娃娃，我猜测很可能是op里最后闪回的那个睦样子的娃娃。以及剧透里有个词，“绿魔面具”
 <img src="https://static.saraba1st.com/image/smiley/face2017/188.png" referrerpolicy="no-referrer">说实话我现在真的怕wsd给睦上双重人格的设定，那也太惨了
 
+
+*****
+
+####  K·os  
+##### 4146#       发表于 2024-12-21 02:57
+
+鬼佬测评是这味，因为文化差异，他们会觉得东亚人的这股别扭味是真的有精神病
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  akiomn  
+##### 4147#       发表于 2024-12-21 02:59
+
+其实我想的是如果往轻的发展，诡异洋娃娃可能指的是睦的负罪感具象化在拷打睦，这种例子在文艺创作里太常见了
+<img src="https://static.saraba1st.com/image/smiley/face2017/188.png" referrerpolicy="no-referrer">别给我来真的精神病那套我就能接受。睦都成这样了，第四集祥子真该来亲自解决下吧
+
+
+*****
+
+####  NODY  
+##### 4148#       发表于 2024-12-21 03:05
+
+wsd给你鸡的宣传费不会都花在倒贴鬼佬上了吧，go那会给欧美加大投资不在意大陆市场结果被打脸的教训还不够吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

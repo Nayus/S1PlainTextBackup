@@ -13767,3 +13767,20 @@ syl，这评价出来又要复读祥子暴君了
 wsd：老中是工作，鬼佬是生活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 正经repo还是得看日本的吧，鬼佬的关注点不一样的
 
+
+*****
+
+####  桜庭千景  
+##### 4184#       发表于 2024-12-21 11:55
+
+A huge part of the appeal going into Ave Mujica was the potential to watch Sakiko's desperate attempts to gaslight, gatekeep, and girlboss her demons away. And while that hasn't been as focused on as I expected, it's still an element that's felt in her and her interactions with others.
+
+说反了，这里鬼佬是想看暴君小祥但是没看到有点失望，只表现出来部分要素<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反而软糯小祥估计是成真了
+
+*****
+
+####  哈曼的YY  
+##### 4185#       发表于 2024-12-21 11:56
+
+祥1彻底覆灭 扛起失去意识成年男人的力量去哪了
+

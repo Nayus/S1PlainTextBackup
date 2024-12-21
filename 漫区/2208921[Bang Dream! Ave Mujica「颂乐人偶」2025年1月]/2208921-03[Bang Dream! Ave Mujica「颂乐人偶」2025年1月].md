@@ -13968,3 +13968,21 @@ Ave Mujica - The Die is Cast - Episodes 1-3 Anime R ...</blockquote>
 
 顶着这样一张小圆脸要走别人的余生，不说可不可靠，至少可爱度拉满了
 
+
+*****
+
+####  3353764798  
+##### 4204#       发表于 2024-12-21 15:19
+
+小祥也就在中二小剧场上暴君了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  akiomn  
+##### 4205#       发表于 2024-12-21 15:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁专楼出没舅舅了，说是剧情全程爆爆爆，不会无聊，制作比mygo好，ed风格和op不一样（也许ed是抒情向的）
+op卖初祥，奶一口ed卖睦祥吧（也许是初睦祥）
+

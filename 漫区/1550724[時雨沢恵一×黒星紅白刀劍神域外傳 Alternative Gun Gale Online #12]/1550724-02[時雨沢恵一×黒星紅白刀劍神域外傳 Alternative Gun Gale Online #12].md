@@ -56,3 +56,18 @@ baha的字幕错了，我还想着不可什么时候丢了条命</blockquote>
 第二季结束了吗</blockquote>
 结束了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  schneehertz  
+##### 2008#       发表于 2024-12-21 12:42
+
+最后的ptsd还挺搞笑的
+
+*****
+
+####  ParadiseMartyr  
+##### 2009#       发表于 2024-12-21 13:21
+
+不是，这老兵真分不清这是游戏吗？
+

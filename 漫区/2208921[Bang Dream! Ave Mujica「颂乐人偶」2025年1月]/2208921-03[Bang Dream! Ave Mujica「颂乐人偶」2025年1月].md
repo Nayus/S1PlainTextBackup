@@ -13916,3 +13916,22 @@ Ave Mujica - The Die is Cast - Episodes 1-3 Anime R ...</blockquote>
 
 祥子这脸真的太可爱了
 
+
+*****
+
+####  黑夜落叶秋天  
+##### 4198#       发表于 2024-12-21 14:37
+
+按老外的说法 可能祥子是有些抗拒的展现暴君一面 
+
+那可以贷款下 祥子后面完全暴君化吧
+
+祥1有希望的
+
+*****
+
+####  akiomn  
+##### 4199#       发表于 2024-12-21 14:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">暴君化不了一点，就cm里那缩在初华后面的样，明显被大猫怼的理亏，如果是祥子有理直接摆章鱼臭脸了
+

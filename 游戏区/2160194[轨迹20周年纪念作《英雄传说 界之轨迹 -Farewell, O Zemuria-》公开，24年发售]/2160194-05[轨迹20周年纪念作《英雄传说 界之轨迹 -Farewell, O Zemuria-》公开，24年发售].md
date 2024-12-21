@@ -1827,3 +1827,11 @@ Image_5910741956753.png
 
 还有挂历差点忘了，结果到头来也只有帝国组拿到了村上画的新图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">甚至还有一页是界立绘拼接，这就是你法现在的2d美术
 
+
+*****
+
+####  卢迪克  
+##### 7294#       发表于 2024-12-21 19:58
+
+真要一路复刻到闪轨了，伊苏复刻大礼包也可以指了<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+

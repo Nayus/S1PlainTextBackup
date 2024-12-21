@@ -14240,3 +14240,11 @@ CF4CAB6E-0812-40E6-A7AA-C272BC4232E5.jpeg
 
 <img src="https://img.saraba1st.com/forum/202412/21/230149cjaj7jzjcjjc7z3j.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ggxx001  
+##### 4231#       发表于 2024-12-22 00:11
+
+就像楼上说的 动画又不是单元剧 回合制 前期重点是睦基本可以确定 但也不一定前期就没其他人的塑造 或者后期就没睦什么事了 而且第一集重点在祥 总结为对狗动画中谜题的揭秘 就结尾作为引子引出睦的故事线
+

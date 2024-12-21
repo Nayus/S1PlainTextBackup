@@ -36,3 +36,22 @@
 自己的新号现在一般是买黑羽预组然后点 ...</blockquote>
 超量的知识涌入大脑处理不过来了。。
 
+
+*****
+
+####  wilkyway  
+##### 269#       发表于 2024-12-22 03:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66984191&amp;ptid=2029660" target="_blank">udoubleu 发表于 2024-12-22 01:43</a>
+超量的知识涌入大脑处理不过来了。。</blockquote>
+草 想起来了新人活动还有几天 那可以直接拿相剑玩了
+
+<img src="https://p.sda1.dev/20/2e178d2901f5b2c7be1cdd212f55742d/IMG_CMP_167281463.jpeg" referrerpolicy="no-referrer">
+
+右上角两个手的图标这里 点那个新人和回归活动 邀请码没有可以直接输我的169d6246这样直接拿一套能用的预组
+
+然后来商店特设页面的组合商品这里
+<img src="https://p.sda1.dev/20/399cdbabd83bfbc84bc8e436d4c34d4e/IMG_CMP_60310647.jpeg" referrerpolicy="no-referrer">
+
+按灰流丽 效果遮蒙者 无限泡影 屋敷童 原始生命态尼比鲁 三战之才的顺序够买几个买几个就行。 送的包出的ur除了钻碎的都可以拆掉优先把灰流丽和增殖的z这两张卡合满，然后去批站搜相剑卡组教程去单人模式熟悉一下操作就可以上手玩了 后面有什么卡图或者效果感兴趣的就慢慢攒钻石搞
+

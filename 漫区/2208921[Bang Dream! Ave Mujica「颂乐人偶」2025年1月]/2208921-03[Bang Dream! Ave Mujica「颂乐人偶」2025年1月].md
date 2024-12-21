@@ -13686,3 +13686,20 @@ In that aforementioned conversation with It's MyGO!!!!!, the third episode funct
 
 突然发现当年go播出好像也是前三集连放，不过那个时候是大伙都可以看而不是脚盆鸡特供<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">，希望母鸡卡是承袭狗制而不是承袭菜花吧
 
+
+*****
+
+####  akiomn  
+##### 4174#       发表于 2024-12-21 08:14
+
+不过这鬼佬也是个打太极的宗师了，实际上剧透出来的差不多都是之前pv就能猜测出来的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最前面是睦线，睦心理有问题，娃娃都是和睦相关的，睦要爆了
+大概有点用的是睦的过去挺套路？祥子的过去目前第一集看是挺套路的（不排除后期进祥子线了又涉及过去再更新一次）
+
+*****
+
+####  山ノ内花音  
+##### 4175#       发表于 2024-12-21 08:16
+
+扯了这么多相当于什么都没说<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

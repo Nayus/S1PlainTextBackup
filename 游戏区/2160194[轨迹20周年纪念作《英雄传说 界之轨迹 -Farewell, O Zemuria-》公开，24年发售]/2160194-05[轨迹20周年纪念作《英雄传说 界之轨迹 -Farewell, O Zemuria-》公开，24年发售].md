@@ -1723,3 +1723,107 @@ Image_5910741956753.png
 
 平台未定
 
+
+*****
+
+####  古畑任三郎2015  
+##### 7283#       发表于 2024-12-20 15:44
+
+到26年的时候，闪4居然都是8年前的游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 7284#       发表于 2024-12-20 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66972532&amp;ptid=2160194" target="_blank">古畑任三郎2015 发表于 2024-12-20 15:44</a>
+
+到26年的时候，闪4居然都是8年前的游戏了</blockquote>
+27年的时候，闪3同年的异度2都出终极版了<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  mj240608414  
+##### 7285#       发表于 2024-12-20 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66969904&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-12-20 10:34</a>
+怎么没人说戴了头套这个黎和约除了眼睛颜色看起来长得一模一样</blockquote>
+别说这个谷了，就空轨重置那个封面图不是一眼性转黎爷
+
+—— 来自 Xiaomi 22127RK46C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  smdzh2  
+##### 7286#       发表于 2024-12-20 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66971939&amp;ptid=2160194" target="_blank">隔壁老黄 发表于 2024-12-20 15:25</a>
+艾莉公认女主了，丽霞党哭哭哦
+
+—— 来自 鹅球 v3.3.92-alpha</blockquote>
+几年前公示书确立双箭头了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/e67408a6d7fdd2f1aeedbf3f05ccb39a/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 7287#       发表于 2024-12-20 21:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">话说怎么没有界steam的消息  记得黎2 1月还是2月就上了
+
+*****
+
+####  卢迪克  
+##### 7288#       发表于 2024-12-20 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66975348&amp;ptid=2160194" target="_blank">alucardcz 发表于 2024-12-20 21:46</a>
+
+话说怎么没有界steam的消息  记得黎2 1月还是2月就上了</blockquote>
+估计等台北电玩展吧。
+
+*****
+
+####  alucardcz  
+##### 7289#       发表于 2024-12-20 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66975372&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-12-20 21:49</a>
+
+估计等台北电玩展吧。</blockquote>
+啥时候？
+
+*****
+
+####  卢迪克  
+##### 7290#       发表于 2024-12-20 22:24
+
+ 本帖最后由 卢迪克 于 2024-12-20 22:29 编辑 
+<blockquote>alucardcz 发表于 2024-12-20 22:07
+啥时候？</blockquote>
+
+1.23     ，不过云豹还没宣布参展。今年这个展上宣布的伊苏x pc版
+
+*****
+
+####  冰寒之月  
+##### 7291#       发表于 2024-12-20 22:30
+
+伊苏这个加强版加了什么内容？ 我买了ys10一直没玩感觉亏大了
+
+*****
+
+####  卢迪克  
+##### 7292#       发表于 2024-12-20 23:21
+
+<blockquote>冰寒之月 发表于 2024-12-20 22:30
+伊苏这个加强版加了什么内容？ 我买了ys10一直没玩感觉亏大了</blockquote>
+游戏将大幅升级，新增故事与舞台，追加新玛那动作，新Boss、玛那竞速、竞技场等游玩要素。
+
+平台未定
+
+*****
+
+####  一步成诗  
+##### 7293#       发表于 2024-12-21 08:32
+
+还有挂历差点忘了，结果到头来也只有帝国组拿到了村上画的新图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">甚至还有一页是界立绘拼接，这就是你法现在的2d美术
+

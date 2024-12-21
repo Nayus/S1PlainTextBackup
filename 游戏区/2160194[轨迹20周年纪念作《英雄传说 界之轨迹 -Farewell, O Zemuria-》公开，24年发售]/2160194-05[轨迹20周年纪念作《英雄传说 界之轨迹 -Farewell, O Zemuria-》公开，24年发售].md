@@ -1835,3 +1835,20 @@ Image_5910741956753.png
 
 真要一路复刻到闪轨了，伊苏复刻大礼包也可以指了<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 7295#       发表于 2024-12-21 21:19
+
+黎轨美版pc销量比创轨低一点
+
+<img src="https://img.saraba1st.com/forum/202412/21/211828xn696lk6j29ls280.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20241221_211749.png</strong> (63.55 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-21 21:18 上传
+

@@ -104,3 +104,14 @@ CGE497HBNJ99NG}2U4]JLZS_tmb.jpg
 
 话说1月初的sc上海场说是MR企划LIVE，是不是就是之前expo那种播片live啊
 
+
+*****
+
+####  wfhtony  
+##### 6805#       发表于 2024-12-21 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66981652&amp;ptid=2130897" target="_blank">nzm 发表于 2024-12-21 18:22</a>
+
+话说1月初的sc上海场说是MR企划LIVE，是不是就是之前expo那种播片live啊</blockquote>
+是的，全程播片。
+

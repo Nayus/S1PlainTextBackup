@@ -427,3 +427,15 @@
 不过确实适合拍日剧啊，就是日剧的话真 ...</blockquote>
 道具组发力就行了 上潜水员！<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kabusei  
+##### 224#       发表于 2024-12-21 18:36
+
+很喜欢Apart钓鱼的部分
+
+整部作品的基调就是男主重新收获继续生活下去的信心的治愈氛围，所以最后去治病就是最好的结局。
+
+放24年原创里还是难能可贵的一部
+

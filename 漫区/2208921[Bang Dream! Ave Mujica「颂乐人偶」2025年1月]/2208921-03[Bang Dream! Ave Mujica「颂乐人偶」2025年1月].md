@@ -13807,3 +13807,19 @@ A huge part of the appeal going into Ave Mujica was the potential to watch Sakik
 由手机上传
 2024-12-21 12:17 上传
 
+
+*****
+
+####  AveMujica  
+##### 4188#         楼主| 发表于 2024-12-21 12:27
+
+ 本帖最后由 AveMujica 于 2024-12-21 12:29 编辑 
+
+Ave Mujica Instrument Box系列
+<img src="https://p.sda1.dev/20/0f1abae28357084faffe0b6db3d0e5b8/Ge1N_qaawAAFGt9.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/87b81b75e2cbb93b79dbc17896349284/GeiCEK7aEAMZZ9a.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/f10059e985918eefe7b48359f28fd816/GeiCLreaEAAKCmg.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/8aab7381419dff0ef3dd41ed8d8d4624/GepBibWaIAAge8j.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/91e89c77209102273ffe05d3ef0d93e3/GeiCk8haIAALzKI.jpg" referrerpolicy="no-referrer">
+[https://x.com/bangdream_en/status/1869789793397420291](https://x.com/bangdream_en/status/1869789793397420291)
+

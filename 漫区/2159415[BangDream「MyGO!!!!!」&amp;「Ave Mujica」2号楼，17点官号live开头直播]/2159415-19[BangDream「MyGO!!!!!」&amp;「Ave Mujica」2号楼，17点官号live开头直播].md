@@ -1058,3 +1058,15 @@ document.getElementById('flv_cM6').innerHTML=("");
 
 迷星叫试听
 
+
+*****
+
+####  kenqqex  
+##### 26717#       发表于 2024-12-21 10:43
+
+<img src="https://ice.frostsky.com/2024/12/21/e67ee191eb89962f180b7854737d9b97.jpeg" referrerpolicy="no-referrer">
+<img src="https://ice.frostsky.com/2024/12/21/c70daab5b049945f9e31e950f109c271.jpeg" referrerpolicy="no-referrer">
+呃呃
+
+—— 来自 vivo V2405A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

@@ -14010,3 +14010,18 @@ op卖初祥，奶一口ed卖睦祥吧（也许是初睦祥）
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不过睦线我很怀疑能不能在第四集解决，可能真得第五集才能解决睦的问题（mygo第五集爱灯水族馆，但祥子第五集真能铁树开花回应睦吗）这样中期海玲喵梦少说4集，后期祥子初华开爆
 
+
+*****
+
+####  贰臣  
+##### 4209#       发表于 2024-12-21 16:11
+
+用五集来讲睦一个人的事情也太不现实了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  uhiuk  
+##### 4210#       发表于 2024-12-21 16:11
+
+不好说，但是如果有幼睦祥互动的话说不定是那种回忆发糖现实发刀的路子
+

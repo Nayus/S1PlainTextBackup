@@ -13127,3 +13127,13 @@ Screenshot_2024-12-16-00-42-39-303_tv.danmaku.bili.jpg
 
 隔壁好歹一开始就说我们不去（指tva，剧场版还没看）
 
+
+*****
+
+####  starring  
+##### 1284#       发表于 2024-12-21 20:17
+
+睡一起了吧，还是你们厉害<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/20/7958da8e0d44d03e06add4f59e227bc8/QQ截图20241221201226.jpg" referrerpolicy="no-referrer">
+

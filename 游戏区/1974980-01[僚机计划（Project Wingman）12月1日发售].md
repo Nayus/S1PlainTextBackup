@@ -39,3 +39,14 @@ dlc钻隧道，其实没有做限飞区，可以直接飞到终点。但最后�
 dlc钻隧道，其实没有做限飞区，可以直接飞到终点。但最后的直道末尾才会刷新基地敌人，所以要逃课得从出口 ...</blockquote>
 那带个攻角就轻松拿捏了
 
+
+*****
+
+####  Freewolf  
+##### 194#       发表于 2024-12-22 03:16
+
+开su25钻了5次隧道才过<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+有一次快钻出去了，为了打游艇转弯减失速摔了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.94-alpha
+

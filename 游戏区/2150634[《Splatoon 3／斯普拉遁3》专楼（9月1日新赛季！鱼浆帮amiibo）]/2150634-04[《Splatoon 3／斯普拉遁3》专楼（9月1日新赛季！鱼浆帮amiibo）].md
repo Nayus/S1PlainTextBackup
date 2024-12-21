@@ -66,3 +66,28 @@
 
 蛤蜊模式的冠军就是りうくん这队啊 冠军没来的队伍是区域的队伍 nori去打瓦的比赛了 资格给顺位第二的队伍了
 
+
+*****
+
+####  shirolin  
+##### 5597#       发表于 2024-12-21 17:58
+
+<img src="https://img.saraba1st.com/forum/202412/21/175758yzc15o1q51j51w55.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20241221_175622_642.jpg</strong> (155.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-21 17:57 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  shirolin  
+##### 5598#       发表于 2024-12-21 17:58
+
+精彩
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

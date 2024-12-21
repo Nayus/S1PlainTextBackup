@@ -41,3 +41,19 @@
  <strong>结尾</strong> 首次撰写Fan Club的会报总体上还是挺有挑战的。这期会报各个主题的内容长度还不是很平均，有些主题内容太长，有些主题内容太短，总体可能看上去不是特别好看。毕竟这是我第一次撰写Fan Club的会报，还请大家多多包涵。不过能够通过文字向大家介绍自己的事情感觉还是很有意思的，期待着下一次给大家撰写会报。下一期会报希望能够让各个主题的内容长度平均一些，读起来更方便一些。希望接下来能够让大家看到我在撰写Fan Club会报上面的成长，也请大家未来能够继续关注我。
  那么今天就暂时先聊到这吧，之后的话题就下一次再说了，敬请期待。（琉璃直播的惯用结束语）
 
+
+*****
+
+####  バーチャルS1er  
+##### 973#       发表于 2024-12-21 19:29
+
+<img src="https://img.saraba1st.com/forum/202412/21/192807opn2nl9lnnppppm9.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20241221192723.png</strong> (232.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-21 19:28 上传
+
+始皇帝这live2d这么爱露齿好怪啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

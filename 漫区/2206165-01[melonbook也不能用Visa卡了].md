@@ -644,3 +644,13 @@ animate的音频配信网站pokedora最近也砍了信用卡（全砍），现�
 
 bookwalker tw好几年之前就禁掉visa了，直接退坑
 
+
+*****
+
+####  幻月天伤  
+##### 57#       发表于 2024-12-21 14:10
+
+为什么论坛大部分都选择中行的jcb，工行的有什么坑吗？（工资卡是工行的而且有工行visa，办中行的还钱嫌麻烦<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI PAD 4, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

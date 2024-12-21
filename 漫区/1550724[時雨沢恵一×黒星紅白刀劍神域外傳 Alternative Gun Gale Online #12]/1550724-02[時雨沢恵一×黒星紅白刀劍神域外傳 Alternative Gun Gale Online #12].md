@@ -71,3 +71,18 @@ baha的字幕错了，我还想着不可什么时候丢了条命</blockquote>
 
 不是，这老兵真分不清这是游戏吗？
 
+
+*****
+
+####  mhss  
+##### 2010#       发表于 2024-12-21 14:17
+
+果然战的不是NPC而是真人老兵啊<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wolf1997  
+##### 2011#       发表于 2024-12-21 14:55
+
+最后一集还有钢哥的特殊ED
+

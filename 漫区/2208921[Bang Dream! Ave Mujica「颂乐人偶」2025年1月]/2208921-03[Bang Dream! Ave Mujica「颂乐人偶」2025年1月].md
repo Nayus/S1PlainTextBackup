@@ -13935,3 +13935,28 @@ Ave Mujica - The Die is Cast - Episodes 1-3 Anime R ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">暴君化不了一点，就cm里那缩在初华后面的样，明显被大猫怼的理亏，如果是祥子有理直接摆章鱼臭脸了
 
+
+*****
+
+####  remedios010000  
+##### 4200#       发表于 2024-12-21 14:57
+
+这老外说了半天等于没说，无非点了一下第三集睦头人要爆，但是所有人都知道木头人要爆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  桜庭千景  
+##### 4201#       发表于 2024-12-21 15:02
+
+祥子不带面具这个红晕和圆脸蛋真的太嬷了。。。。完全1不起来<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 4202#       发表于 2024-12-21 15:04
+
+祥子现在是最能暴君的时候，还被大喵戳痛处反抗不了一点
+
+之后队友连环爆真1得起来吗<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

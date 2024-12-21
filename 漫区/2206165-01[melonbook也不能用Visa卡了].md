@@ -654,3 +654,11 @@ bookwalker tw好几年之前就禁掉visa了，直接退坑
 
 —— 来自 Xiaomi MI PAD 4, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  2017.05.04  
+##### 58#       发表于 2024-12-21 15:00
+
+蜜瓜把ip屏蔽方式都换了
+

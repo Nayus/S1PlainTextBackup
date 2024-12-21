@@ -135,3 +135,17 @@
 
 卡面好看，制作也精良，但下池抽ego就不太地道了，金总监最近想钱想疯了吧？反正早晚能换，不急。
 
+
+*****
+
+####  xiongxingyu  
+##### 1027#       发表于 2024-12-21 23:26
+
+ 本帖最后由 xiongxingyu 于 2024-12-21 23:27 编辑 
+
+前天单抽出了良秀的轻蔑，仿佛天启降临，抽了2晚上把轨道四号线通了，血魔队加环箱、n浮和蜘蛛良，55回合还算过得去吧。至此入坑23天，巴士所有内容全破，虽说是初始号入坑加小氪了一点点，也算是可以了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+哦，第四季券也出了个大奖狂猎，虽然暂时没啥用了（主线抱大腿时已经评鉴得够多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）。
+
+084算是今年玩得比较爽得手游了，战斗系统简单有趣，养成也没啥恶心得刷刷刷，当初开服时被没有日配劝退了，现在听着听着也还行（浮浮和玛玛得配音真不错<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+

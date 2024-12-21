@@ -2965,3 +2965,45 @@ iphone XR
 狂本主打一个谁都能欺负，还是一个大范围被特攻的对象，现在就是拼谁的宝具短而已 ...</blockquote>
 我想把羁绊多加点
 
+
+*****
+
+####  大十字紅朔  
+##### 15484#       发表于 2024-12-20 14:43
+
+我用这个打90+，其实确实怎么打都可以
+
+<img src="https://img.saraba1st.com/forum/202412/20/144248hddkiymqnndq5251.png" referrerpolicy="no-referrer">
+
+<strong>78bca027ee326fdb2ea12b136f7792c4_720.png</strong> (1.08 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-20 14:42 上传
+
+*****
+
+####  khxooo  
+##### 15485#       发表于 2024-12-20 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66972063&amp;ptid=2084912" target="_blank">大十字紅朔 发表于 2024-12-20 14:43</a>
+我用这个打90+，其实确实怎么打都可以</blockquote>
+狂本主打一个谁都能欺负，还是一个大范围被特攻的对象，现在就是拼谁的宝具短而已<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大十字紅朔  
+##### 15486#       发表于 2024-12-20 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66973407&amp;ptid=2084912" target="_blank">khxooo 发表于 2024-12-20 17:25</a>
+
+狂本主打一个谁都能欺负，还是一个大范围被特攻的对象，现在就是拼谁的宝具短而已 ...</blockquote>
+我想把羁绊多加点
+
+*****
+
+####  quanlix  
+##### 15487#       发表于 2024-12-21 11:08
+
+175池+12，比前几次快一点
+

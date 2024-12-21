@@ -43,3 +43,37 @@ WELCOME TO MY HOME，LET"S 热烈的 诞生DAY
 我现在开始觉得纠结人名的汉字也没什么意义了，毕竟人家主创自己也不在意，否则就直接用汉字了，而且也没 ...</blockquote>
 查了一下从ACE以后就没有过汉字名字的Q娃了
 
+
+*****
+
+####  舞野咲  
+##### 2673#       发表于 2024-12-21 01:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66948335&amp;ptid=2162354" target="_blank">himfsz 发表于 2024-12-17 18:25</a>
+
+我现在开始觉得纠结人名的汉字也没什么意义了，毕竟人家主创自己也不在意，否则就直接用汉字了，而且也没 ...</blockquote>
+查了一下从ACE以后就没有过汉字名字的Q娃了
+
+*****
+
+####  犬飼いろは  
+##### 2674#       发表于 2024-12-21 11:08
+
+第46話　メェェェリィクリスマス！
+
+脚本：平林佐和子
+
+演出：岩井隆央
+
+絵コンテ：河原龍太
+
+作画監督：青山充
+
+美術：徐柱星
+
+クリスマスが近づき、アニマルタウンではツリーやオーナメントが飾り付けられる中、こむぎ（CV.長縄まりあ）たちはニコガーデンのクリスマスパーティーに招待される。みんなでニコガーデンに集まり、プレゼント交換会を終えると、かくし芸大会が始まった。歌って踊るニコを見届けると、ユキ（CV.松田颯水）は別のクリスマス会に向かい、こむぎもついていくことにする。ユキが向かった先はネコ集会だった。ユキのとりなしで「ネコ団子」にまぜてもらうこむぎだったが、夕方にはニコガーデンに戻るように言われていたにもかかわらず、寝坊してしまう。いろはの家に走って戻る途中、プリティホリックのそばでザクロを見かけ、話しかけるこむぎとユキ。そこにニコガーデンからトナカイのソリに乗って空からいろは（CV.種﨑敦美）とまゆ（CV.上田麗奈）もやってくるが、ザクロはトナカイを再びガオガオーンに変えてしまう。
+<img src="https://files.catbox.moe/p6soaa.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/2ufuwt.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/tacvw4.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/f5b298.jpg" referrerpolicy="no-referrer">
+

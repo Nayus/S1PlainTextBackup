@@ -38,3 +38,21 @@ baha的字幕错了，我还想着不可什么时候丢了条命</blockquote>
 
 黒星紅白 さん @kuroboshi
 
+
+*****
+
+####  太二EricGuo  
+##### 2006#       发表于 2024-12-21 11:59
+
+第二季结束了吗
+
+*****
+
+####  Mc凉月奏酱  
+##### 2007#       发表于 2024-12-21 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66979819&amp;ptid=1550724" target="_blank">太二EricGuo 发表于 2024-12-21 11:59</a>
+
+第二季结束了吗</blockquote>
+结束了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -86,3 +86,24 @@ baha的字幕错了，我还想着不可什么时候丢了条命</blockquote>
 
 最后一集还有钢哥的特殊ED
 
+
+*****
+
+####  梶原ひかり  
+##### 2012#       发表于 2024-12-21 15:27
+
+ 本帖最后由 梶原ひかり 于 2024-12-21 15:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66980269&amp;ptid=1550724" target="_blank">ParadiseMartyr 发表于 2024-12-21 13:21</a>
+
+不是，这老兵真分不清这是游戏吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">完全潜行的东西，如果去掉游戏内所有的要素的话，在2个小时内的紧张战斗内，不可能分辨出是不是游戏吧
+
+*****
+
+####  没取名啊  
+##### 2013#       发表于 2024-12-21 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66980269&amp;ptid=1550724" target="_blank">ParadiseMartyr 发表于 2024-12-21 13:21</a>
+不是，这老兵真分不清这是游戏吗？</blockquote>
+玩VR过山车吓得半死的都大有人在呢。对于没玩过游戏的人，一上来就体验完全潜行这种程度的虚拟现实，即使理智上知道是游戏也会不由得当成真的吧
+

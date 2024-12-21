@@ -50,3 +50,11 @@
 
 —— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 5595#       发表于 2024-12-21 17:20
+
+我错过了什么，为什么蛤蜊模式赢的理想乡那一队没参加比赛
+

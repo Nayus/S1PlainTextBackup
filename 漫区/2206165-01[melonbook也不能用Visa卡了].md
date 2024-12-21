@@ -662,3 +662,16 @@ bookwalker tw好几年之前就禁掉visa了，直接退坑
 
 蜜瓜把ip屏蔽方式都换了
 
+
+*****
+
+####  虚无连斩  
+##### 59#       发表于 2024-12-21 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66980504&amp;ptid=2206165" target="_blank">幻月天伤 发表于 2024-12-21 14:10</a>
+
+为什么论坛大部分都选择中行的jcb，工行的有什么坑吗？（工资卡是工行的而且有工行visa，办中行的还钱嫌麻 ...</blockquote>
+没问题吧，汇率也差不多
+
+我以前申请中行给了个0额度的卡，只能去申请工行了
+

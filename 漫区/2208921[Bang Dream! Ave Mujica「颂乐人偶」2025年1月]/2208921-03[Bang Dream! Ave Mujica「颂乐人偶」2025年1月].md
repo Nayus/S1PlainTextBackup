@@ -13857,3 +13857,38 @@ Ave Mujica Instrument Box系列
 —— 来自 鹅球 v3.1.88.3-alpha</blockquote>
 国家队是炖屎狗拿耗子的结果，而mujica基本是go的原班人马，而且制作周期十分余裕，下限是可以保证的，可能不如go但是不至于烂成国家队。
 
+
+*****
+
+####  山ノ内花音  
+##### 4192#       发表于 2024-12-21 13:44
+
+<img src="https://img.saraba1st.com/forum/202412/21/134443u25akkel2zilq590.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0871.jpeg</strong> (202.11 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-21 13:44 上传
+
+*****
+
+####  帕林马哲理  
+##### 4193#       发表于 2024-12-21 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66979578&amp;ptid=2208921" target="_blank">xwr 发表于 2024-12-21 04:21</a>
+
+ANN掐手一算发现还不到一月，赶紧下了前三集review
+
+Ave Mujica - The Die is Cast - Episodes 1-3 Anime R ...</blockquote>
+这review用词还挺讲究的，有点艺术批评的味道，而且这总体评价可不低了。
+
+
+*****
+
+####  LeonsCat  
+##### 4194#       发表于 2024-12-21 13:51
+
+这小圆脸……隔壁鹿目圆好歹还是五角方包呢。
+

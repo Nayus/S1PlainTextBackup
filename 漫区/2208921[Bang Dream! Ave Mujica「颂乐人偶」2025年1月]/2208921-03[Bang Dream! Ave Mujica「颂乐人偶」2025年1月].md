@@ -13833,3 +13833,27 @@ Ave Mujica Instrument Box系列
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  山ノ内花音  
+##### 4190#       发表于 2024-12-21 13:03
+
+ 本帖最后由 山ノ内花音 于 2024-12-21 13:05 编辑 
+
+可以确定吗 
+
+丰川祥子戴面具是为了挡住脸上那两坨红晕的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/0059da204f7d3c152083ea2ab20a78e3/IMG_4019.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  上条仁美  
+##### 4191#       发表于 2024-12-21 13:06
+
+<blockquote>Gandalf 发表于 2024-12-21 13:45
+谨慎看好万一下一个蝈蝈
+
+—— 来自 鹅球 v3.1.88.3-alpha</blockquote>
+国家队是炖屎狗拿耗子的结果，而mujica基本是go的原班人马，而且制作周期十分余裕，下限是可以保证的，可能不如go但是不至于烂成国家队。
+

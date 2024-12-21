@@ -414,3 +414,16 @@
 
 好看，今年最喜欢的一部吧
 
+
+*****
+
+####  Mc凉月奏酱  
+##### 223#       发表于 2024-12-21 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66976511&amp;ptid=2193318" target="_blank">北野苍术 发表于 2024-12-21 00:53</a>
+
+我个人对这个结局还是比较满意的，很喜欢大伙平淡地告别的克制感。
+
+不过确实适合拍日剧啊，就是日剧的话真 ...</blockquote>
+道具组发力就行了 上潜水员！<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

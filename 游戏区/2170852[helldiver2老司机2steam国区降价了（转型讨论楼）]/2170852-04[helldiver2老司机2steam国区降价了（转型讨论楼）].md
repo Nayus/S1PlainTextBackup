@@ -1286,3 +1286,14 @@ AA炮塔同坦克炮塔，不同的是正面铆钉处可以被四穿武器打出
 有车现在就能速通了吧，拉到点里放人下来，车在外围拉怪提供火力支援，做完上车直奔下个据点，这要熟练的话 ...</blockquote>
 前提是不翻车，这车在沙漠和城市地形跑还行，在那种坑坑洼洼的地方开很容易翻车
 
+
+*****
+
+####  FLZB  
+##### 5674#       发表于 2024-12-21 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66980783&amp;ptid=2170852" target="_blank">6x6z6w 发表于 2024-12-21 15:25</a>
+
+前提是不翻车，这车在沙漠和城市地形跑还行，在那种坑坑洼洼的地方开很容易翻车 ...</blockquote>
+这就看驾驶技术了，除了雨林，别焊死油门飞坡大甩尾应该都能开<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

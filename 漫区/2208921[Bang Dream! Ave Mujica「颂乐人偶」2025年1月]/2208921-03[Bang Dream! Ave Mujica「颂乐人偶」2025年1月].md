@@ -13678,3 +13678,11 @@ In that aforementioned conversation with It's MyGO!!!!!, the third episode funct
 
 要典就来个最典的，睦从小到大学的东西都是父母逼着学的，唯有吉他是自己想学的，祥子知道睦喜欢就买了个吉他送她当礼物，所以睦整天抱着吉他不撒手
 
+
+*****
+
+####  高规格ik  
+##### 4173#       发表于 2024-12-21 08:01
+
+突然发现当年go播出好像也是前三集连放，不过那个时候是大伙都可以看而不是脚盆鸡特供<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">，希望母鸡卡是承袭狗制而不是承袭菜花吧
+

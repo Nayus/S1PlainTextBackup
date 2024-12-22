@@ -14507,3 +14507,13 @@ go漫画的作者就是那个新作主角长得和初祥一模一样的作者，
 
 开播前就能让专楼堆到100页以上的动画在泥潭除了母鸡卡还有谁能做到<img src="https://static.saraba1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novalli  
+##### 4259#       发表于 2024-12-22 22:03
+
+没办法，毕竟大家都知道官方在藏大的而且还有无数不知道有关无关的信息的动画（没人知道mygo里有没有mujica的回旋镖）也是独一份了。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.94-alpha
+

@@ -13595,3 +13595,13 @@ OST有中文星巡，不知道会不会是完整版的<img src="https://static.s
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  Totokei  
+##### 1334#       发表于 2024-12-23 01:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">这收尾太自然了，开播前没想到星的动画居然算是善终了
+
+原本还以为始空再也不会出现了，结果给了一个最顺其自然的理由在最顺其自然的地方出现了，能有这能力花田你早干嘛去了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

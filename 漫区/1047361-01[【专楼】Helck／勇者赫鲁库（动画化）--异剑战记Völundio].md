@@ -62,3 +62,14 @@
 啊B还在37话呢，停更前都54话了</blockquote>
 停更前的在 mangaone 买完了，后来也看贴吧翻译看完了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer"> 阿b能追上就不在 mangaone 买了
 
+
+*****
+
+####  azbhg1  
+##### 1184#       发表于 2024-12-23 01:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66990923&amp;ptid=1047361" target="_blank">御坂MKII 发表于 2024-12-23 01:37</a>
+
+停更前的在 mangaone 买完了，后来也看贴吧翻译看完了 阿b能追上就不在 mangaone 买了 ...</blockquote>
+一年停更他都没追上停更前的进度，现在复更还能指望？
+

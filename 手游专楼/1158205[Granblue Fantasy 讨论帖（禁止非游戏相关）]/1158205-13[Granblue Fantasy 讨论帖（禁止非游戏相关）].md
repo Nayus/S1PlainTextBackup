@@ -36,3 +36,14 @@
 
 這免費送L自選怎麼感覺就是拿來堵玩家嘴的。
 
+
+*****
+
+####  iqbsh38  
+##### 18111#       发表于 2024-12-22 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66986134&amp;ptid=1158205" target="_blank">Niu 发表于 2024-12-22 09:29</a>
+
+這免費送L自選怎麼感覺就是拿來堵玩家嘴的。</blockquote>
+你游一次季限就可能是七八个限定 每俩月出一个LM就变一次环境 才送一个怎么堵的住呢
+

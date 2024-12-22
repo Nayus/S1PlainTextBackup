@@ -13539,3 +13539,17 @@ OST有中文星巡，不知道会不会是完整版的<img src="https://static.s
 
 以现在的万南来说，能够维持运营不爆大的已经谢天谢地了，liela第三季没让所有人满意但也算平稳落地，十月小赢家。隔壁sc还要思考企划会不会被自己的动画干入土。
 
+
+*****
+
+####  csolfans  
+##### 1329#       发表于 2024-12-22 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66989605&amp;ptid=2201887" target="_blank">仟音一心 发表于 2024-12-22 20:53</a>
+所有打歌服
+
+【【中字】結ぶメロディ(连结的旋律)-Liella!《LoveLive!Superstar!!》第3季第12集 Liella!之歌 ...</blockquote>
+看了一下这顺序，感觉6th第一首歌真可能不是OP3？
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

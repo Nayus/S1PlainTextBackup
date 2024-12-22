@@ -14435,3 +14435,35 @@ go漫画的作者就是那个新作主角长得和初祥一模一样的作者，
 主要是当作动画的补充看吧，估计小细节上会有微妙的不同
 等第一话出来再决定买不买，这个画风不来点大张力跨页吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 4251#       发表于 2024-12-22 20:21
+
+<img src="https://img.saraba1st.com/forum/202412/22/202040agse0lk9bdbd3o72.jpg" referrerpolicy="no-referrer">
+
+<strong>5QTT(PSJY43GOOHZ%W918CY.jpg</strong> (70.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-22 20:20 上传
+
+非常缺德<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 4252#       发表于 2024-12-22 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66989334&amp;ptid=2208921" target="_blank">6030sylar 发表于 2024-12-22 20:21</a>
+非常缺德</blockquote>
+吓死了 还以为不是p图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑夜落叶秋天  
+##### 4253#       发表于 2024-12-22 20:25
+
+草 这也太缺德了
+

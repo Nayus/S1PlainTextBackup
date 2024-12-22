@@ -1281,3 +1281,14 @@ mujica漫画
 【Mygo!!!!!7th チケットなんてなくでも 迷星叫-哔哩哔哩】 [https://b23.tv/8Lr2COM](https://b23.tv/8Lr2COM)
 场外真的太好玩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  吹楼伞人  
+##### 26735#       发表于 2024-12-22 19:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66988907&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-12-22 19:00</a>
+
+同作者在百合姬连载的漫画，只能说不是巧合，甚至是蓄谋已久</blockquote>
+原来真的是初祥代餐<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

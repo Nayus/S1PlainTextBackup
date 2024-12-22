@@ -1237,3 +1237,47 @@ SEC卡二手店按10万收购，但是煤炉的价位今天已经直接崩到8W�
 
 25号线下圣诞趴体（具体不明）
 
+
+*****
+
+####  rs5621  
+##### 10455#       发表于 2024-12-22 15:51
+
+<img src="https://img.saraba1st.com/forum/202412/22/155039ghh2tswobw2hd1eo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (266.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-22 15:50 上传
+
+@HASECO777
+
+不愧是富婆
+
+*****
+
+####  holoan  
+##### 10456#         楼主| 发表于 2024-12-22 17:58
+
+<img src="https://img.saraba1st.com/forum/202412/22/175833q4nffvrt8tu901r0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (94.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-22 17:58 上传
+
+*****
+
+####  holoan  
+##### 10457#         楼主| 发表于 2024-12-22 18:01
+
+<img src="https://img.saraba1st.com/forum/202412/22/180107dv05sa2r2tylb6te.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (20.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-22 18:01 上传
+

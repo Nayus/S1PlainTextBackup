@@ -1172,3 +1172,12 @@ encore.
 
 3. 焚音打
 
+
+*****
+
+####  CyDiablo  
+##### 26724#       发表于 2024-12-22 18:04
+
+唉，我还幻想过能有四首新歌呢，可惜就两首
+这live真是看着都冷啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">各种意义上都辛苦了
+

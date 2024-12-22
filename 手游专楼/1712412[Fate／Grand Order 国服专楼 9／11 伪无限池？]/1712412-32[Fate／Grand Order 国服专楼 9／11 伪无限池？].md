@@ -131,3 +131,11 @@
 
 前十池还是只能慢慢抽，真tm操蛋<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 46864#       发表于 2024-12-22 20:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次会在水兵和船长来回切换增加抽池子时间 特别弱智
+

@@ -13518,3 +13518,16 @@ OST有中文星巡，不知道会不会是完整版的<img src="https://static.s
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
 
+
+*****
+
+####  仟音一心  
+##### 1327#       发表于 2024-12-22 20:53
+
+所有打歌服
+
+【【中字】結ぶメロディ(连结的旋律)-Liella!《LoveLive!Superstar!!》第3季第12集 Liella!之歌-哔哩哔哩】 [https://b23.tv/WTYYVdi](https://b23.tv/WTYYVdi)
+<img src="https://p.sda1.dev/20/351974258d675e1e792e63e8fbbaa939/image.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/20/374e2e85bf0dbeefbcb99367efdffde0/image.jpg" referrerpolicy="no-referrer">
+

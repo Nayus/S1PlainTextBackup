@@ -14334,3 +14334,34 @@ killkiss油/管再生数突破五十万了
 
 漫画
 
+
+*****
+
+####  阿萨德飞过去  
+##### 4239#       发表于 2024-12-22 18:37
+
+怎么说了，冷静下来感觉画风有点微妙<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 4240#       发表于 2024-12-22 18:39
+
+初华这张确实不行 别人还凑合
+
+
+*****
+
+####  akiomn  
+##### 4241#       发表于 2024-12-22 18:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png">这脸……感觉没有买的必要了，等动画了
+
+
+*****
+
+####  AveMujica  
+##### 4242#         楼主| 发表于 2024-12-22 18:43
+
+<img src="https://p.sda1.dev/20/8a297d3ee8fadc5eb1fe8c024f9dadd1/image.jpg" referrerpolicy="no-referrer">
+

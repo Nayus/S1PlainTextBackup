@@ -134,3 +134,11 @@ WELCOME TO MY HOME，LET"S 热烈的 诞生DAY
 
 而且实际上在出现了男Q娃和Precure不解释为Pretty+Cure而是Pre（词缀）+cure的魔法星闪两作后很明显用音译才是最正确的选择（暴论）
 
+
+*****
+
+####  jaewoongh_  
+##### 2681#       发表于 2024-12-22 21:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">圣诞回无论是剧本还是作画抑或是演出的质量都真是一言难尽
+

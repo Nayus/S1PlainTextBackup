@@ -13406,3 +13406,25 @@ Screenshot_2024-12-16-00-42-39-303_tv.danmaku.bili.jpg
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  starring  
+##### 1317#       发表于 2024-12-22 17:38
+
+部分重画，还有重新录音了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+
+*****
+
+####  ViyViy  
+##### 1318#       发表于 2024-12-22 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66988458&amp;ptid=2201887" target="_blank">csolfans 发表于 2024-12-22 17:26</a>
+
+看了看，好像脸部基本重画了一遍。表情都不一样了
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 S1Next ...</blockquote>
+稍微比了下，模型打光调整+脸部重绘了。但是都这样了为什么不调整分镜呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

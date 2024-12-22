@@ -1083,3 +1083,14 @@ document.getElementById('flv_cM6').innerHTML=("");
 这期还提了下ag</blockquote>
 这四星chuchu第二张图没认出来，光看发型和脸幻视到千圣去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CyDiablo  
+##### 26719#       发表于 2024-12-22 10:55
+
+悲报<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">希望早日康复
+群里看到现地心碎柑噶了，这场可不便宜
+<img src="https://p.sda1.dev/20/70008cbea462f107b116b190055d657f/Image_555606758527270.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/dd32bd4a093ccffbf371f6b0a72043ef/Image_556685645070949.png" referrerpolicy="no-referrer">
+

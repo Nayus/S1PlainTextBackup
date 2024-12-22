@@ -14549,3 +14549,33 @@ go漫画的作者就是那个新作主角长得和初祥一模一样的作者，
 
 2024-12-22 22:27 上传
 
+
+*****
+
+####  SakuraのOrigami  
+##### 4262#       发表于 2024-12-22 23:28
+
+ANN那个剧透好像是1-3话的来着
+
+但外网好像已经在讨论1-5的剧透了（）
+
+
+*****
+
+####  NODY  
+##### 4263#       发表于 2024-12-22 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66990386&amp;ptid=2208921" target="_blank">SakuraのOrigami 发表于 2024-12-22 23:28</a>
+
+ANN那个剧透好像是1-3话的来着
+
+但外网好像已经在讨论1-5的剧透了（）</blockquote>
+有地址吗，好奇了
+
+*****
+
+####  山ノ内花音  
+##### 4264#       发表于 2024-12-22 23:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">要不把12集一次性放出来吧
+

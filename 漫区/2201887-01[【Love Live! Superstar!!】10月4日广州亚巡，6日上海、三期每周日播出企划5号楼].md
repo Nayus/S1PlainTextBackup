@@ -13576,3 +13576,22 @@ OST有中文星巡，不知道会不会是完整版的<img src="https://static.s
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  ViyViy  
+##### 1332#       发表于 2024-12-22 23:30
+
+等会，今天她们都在？那为啥不接一场生放<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  csolfans  
+##### 1333#       发表于 2024-12-22 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66990402&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-12-22 23:30</a>
+等会，今天她们都在？那为啥不接一场生放</blockquote>
+都在啊，开播前一个小时11人在X开space
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

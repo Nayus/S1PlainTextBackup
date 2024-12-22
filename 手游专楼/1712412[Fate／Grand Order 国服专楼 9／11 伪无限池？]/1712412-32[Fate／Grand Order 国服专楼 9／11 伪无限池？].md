@@ -119,3 +119,15 @@
 这次多刷点，饼干有点紧张了</blockquote>
 我大号苹果都消耗在咕哒咕哒那里了，导致只有130多金苹果，导致前面都是算着刷。现在只剩下90多金苹果<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dawning  
+##### 46863#       发表于 2024-12-22 20:41
+
+乘着周日刷了二十来池，
+
+就不说一键扫荡这种不可能的功能了，
+
+前十池还是只能慢慢抽，真tm操蛋<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

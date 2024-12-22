@@ -14579,3 +14579,18 @@ ANN那个剧透好像是1-3话的来着
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">要不把12集一次性放出来吧
 
+
+*****
+
+####  灼眼的夏娜酱  
+##### 4265#       发表于 2024-12-22 23:41
+
+有种没演到一半就会被透到最后一集的预告<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 4266#       发表于 2024-12-22 23:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会吧，第五集都先给鬼佬看了？这不太可能吧
+

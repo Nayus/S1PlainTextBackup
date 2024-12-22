@@ -3082,3 +3082,11 @@ iphone XR
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">又到了找地方花qp的时间了
 
+
+*****
+
+####  khxooo  
+##### 15493#       发表于 2024-12-22 23:41
+
+230池+12,90+礼装的掉率还是不如90++的。
+

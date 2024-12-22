@@ -14710,3 +14710,21 @@ wsd你还不知道吗？赚钱是不会的，砸锅是最擅长的<img src="http
 
 https://x.com/jibliy81/status/1870816752600584597?s=46&amp;t=IZGx0N13SOtHALpwG0Ubrg
 
+
+*****
+
+####  550616  
+##### 4277#       发表于 2024-12-23 05:37
+
+ 本帖最后由 550616 于 2024-12-23 05:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66989580&amp;ptid=2208921" target="_blank">NODY 发表于 2024-12-22 20:48</a>
+
+漫画硬要说的话可能剧情会比动画黑一点，ras动画楚平方是不知道tae有ppp的live才加时长的，漫画那边直接写 ...</blockquote>
+本来就是知道的，动画里也能看出来，为了洗才有了动画不知道的说辞
+
+故意加长的encore
+
+至于如何评价go 7th live
+
+只能抛开唱歌造型满分
+

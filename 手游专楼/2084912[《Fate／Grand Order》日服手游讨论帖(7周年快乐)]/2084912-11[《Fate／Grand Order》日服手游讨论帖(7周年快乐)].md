@@ -3101,3 +3101,11 @@ iphone XR
 开BB睡觉刷了40的仰望大佬</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">12池萌新仰望40池大佬
 
+
+*****
+
+####  森兰丸  
+##### 15495#       发表于 2024-12-23 01:04
+
+突然想起这次活动剧情开幕结尾前水BB有个红眼特写是什么意思....整个剧情之后直到结束也没水BB什么事啊
+

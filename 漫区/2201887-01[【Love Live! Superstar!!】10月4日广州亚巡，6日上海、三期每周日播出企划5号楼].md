@@ -13531,3 +13531,11 @@ OST有中文星巡，不知道会不会是完整版的<img src="https://static.s
 
 <img src="https://p.sda1.dev/20/374e2e85bf0dbeefbcb99367efdffde0/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Vacuolar  
+##### 1328#       发表于 2024-12-22 21:06
+
+以现在的万南来说，能够维持运营不爆大的已经谢天谢地了，liela第三季没让所有人满意但也算平稳落地，十月小赢家。隔壁sc还要思考企划会不会被自己的动画干入土。
+

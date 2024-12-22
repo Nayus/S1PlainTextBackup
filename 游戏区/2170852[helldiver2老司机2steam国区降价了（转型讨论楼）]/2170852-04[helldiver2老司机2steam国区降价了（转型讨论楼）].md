@@ -1321,3 +1321,15 @@ AA炮塔同坦克炮塔，不同的是正面铆钉处可以被四穿武器打出
 
 一般联动不是用来拉新的吗
 
+
+*****
+
+####  MkChang  
+##### 5678#       发表于 2024-12-22 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66990276&amp;ptid=2170852" target="_blank">Ichihatsu 发表于 2024-12-22 23:10</a>
+免费联动皮新玩家拿不到，官方意思是至少上个月有登录的才给发</blockquote>
+那今天回坑的老玩家能拿吗，晚上才把游戏下回来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+

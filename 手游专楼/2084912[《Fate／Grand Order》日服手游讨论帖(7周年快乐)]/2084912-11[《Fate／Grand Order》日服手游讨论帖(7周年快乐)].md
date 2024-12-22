@@ -3090,3 +3090,14 @@ iphone XR
 
 230池+12,90+礼装的掉率还是不如90++的。
 
+
+*****
+
+####  alucardcz  
+##### 15494#       发表于 2024-12-23 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66988587&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-12-22 17:54</a>
+
+开BB睡觉刷了40的仰望大佬</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">12池萌新仰望40池大佬
+

@@ -47,3 +47,13 @@
 這免費送L自選怎麼感覺就是拿來堵玩家嘴的。</blockquote>
 你游一次季限就可能是七八个限定 每俩月出一个LM就变一次环境 才送一个怎么堵的住呢
 
+
+*****
+
+####  Sylpheed  
+##### 18112#       发表于 2024-12-23 01:43
+
+风暗人看着hrt和蛇蛇同池还带个贵族已经慌得不行了，一把破lm可堵不上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

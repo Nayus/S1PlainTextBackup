@@ -81,3 +81,15 @@
 
 还好今天是术本
 
+
+*****
+
+####  khxooo  
+##### 46860#       发表于 2024-12-22 17:32
+
+ 本帖最后由 khxooo 于 2024-12-22 17:35 编辑 
+
+大号  87池+9，小号89池+8，后续两天不肝了，全力等90++
+
+两个号都168了，这次圣诞过后估计就能满级不用每次组队都卡那么1Cost了<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+

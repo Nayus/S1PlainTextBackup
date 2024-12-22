@@ -13394,3 +13394,15 @@ Screenshot_2024-12-16-00-42-39-303_tv.danmaku.bili.jpg
 
 当初可能想着，剧场版让人等太久了热度退得快，在这个时代很需要持续的关注度，那就搞三期动画，速度也快，结果呢中层下层执行的一坨狗屎，导致必须要重新调整；一来一去，最终效果跟老的模式也没什么两样。
 
+
+*****
+
+####  csolfans  
+##### 1316#       发表于 2024-12-22 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66988221&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-12-22 16:32</a>
+动画最后这段时间一副省省就是一套房的样子；动画碟CW拿老歌11版占位，终话放出道单但是新规画面只有一点 ...</blockquote>
+看了看，好像脸部基本重画了一遍。表情都不一样了
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

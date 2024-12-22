@@ -14365,3 +14365,30 @@ killkiss油/管再生数突破五十万了
 
 <img src="https://p.sda1.dev/20/8a297d3ee8fadc5eb1fe8c024f9dadd1/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑夜落叶秋天  
+##### 4243#       发表于 2024-12-22 18:57
+
+漫画封面么
+
+
+*****
+
+####  Akari  
+##### 4244#       发表于 2024-12-22 19:01
+
+我还挺喜欢这个漫画画风的www
+
+老人家喜欢比较有张力的，这个风格一看就是谁家马甲或者谁家的助手出来单干了。
+
+*****
+
+####  ellisnadie  
+##### 4245#       发表于 2024-12-22 19:02
+
+至少跟之前鬼图还是不一样的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+鬼图是水平不行，这是画风复古
+

@@ -1241,3 +1241,34 @@ mujica漫画
 
 最后这清唱焚音打真无敌吧，可惜柑子不在<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DarthAka  
+##### 26732#       发表于 2024-12-22 18:56
+
+这是深夜重拳谱风去选秀那个场子吧，羊姐算减肥成功了，舞台灯加持下看着和P过一样
+
+
+*****
+
+####  紫吹兰  
+##### 26733#         楼主| 发表于 2024-12-22 19:00
+
+ 本帖最后由 紫吹兰 于 2024-12-22 19:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66988748&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2024-12-22 18:26</a>
+
+新情报
+
+6单和漫画连载</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202412/22/185930omdwzbwqw99uxqm9.jpg" referrerpolicy="no-referrer">
+
+<strong>泡沫.jpg</strong> (239.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-22 18:59 上传
+
+同作者在百合姬连载的漫画，只能说不是巧合，甚至是蓄谋已久<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+

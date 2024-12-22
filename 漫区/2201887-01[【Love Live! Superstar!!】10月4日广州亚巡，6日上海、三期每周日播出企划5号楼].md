@@ -13367,3 +13367,22 @@ Screenshot_2024-12-16-00-42-39-303_tv.danmaku.bili.jpg
 
 水本篇结束时候也没留扣子倒是
 
+
+*****
+
+####  懂你意思  
+##### 1313#       发表于 2024-12-22 17:00
+
+都11人了还让五仁唱始空是啥操作，夺冠的也不是你们五个啊，越看越觉得一期是小丑<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lanslort  
+##### 1314#       发表于 2024-12-22 17:04
+
+还行，比前两季好看，泥潭可能不同意不过我觉得比水虹两季也都好 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer"> 就是歌不行
+
+京极这季基本就是啃老本，所以从第一集开始到最后都是满满的即视感，基本上是缪时代有什么好评的都拿过来用；不过第二季翻大车了保守一点也可以理解<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+剧场版不好说，真要有那估计得排到16年去了。考虑到明年估计有新团了，我倾向于没有，unit除了虹都没在动画里提过的
+

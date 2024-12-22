@@ -121,3 +121,16 @@ WELCOME TO MY HOME，LET"S 热烈的 诞生DAY
 纠结名字译名本来就没有意义，看下Liko/李可/理子这种经典错译，结果是是错误的理子反而用得更多。可以说 ...</blockquote>
 根据“希望全世界的小朋友都能用同样的发音来叫哆啦A梦/宝可梦”的这一日本佬的纯粹的愿望，我觉得儿童片应该全部用音译！噗哩q娃才是最正确的翻译！
 
+
+*****
+
+####  pokemon最爱  
+##### 2680#       发表于 2024-12-22 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66987396&amp;ptid=2162354" target="_blank">himfsz 发表于 2024-12-22 13:55</a>
+
+根据“希望全世界的小朋友都能用同样的发音来叫哆啦A梦/宝可梦”的这一日本佬的纯粹的愿望，我觉得儿童片 ...</blockquote>
+附议<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+而且实际上在出现了男Q娃和Precure不解释为Pretty+Cure而是Pre（词缀）+cure的魔法星闪两作后很明显用音译才是最正确的选择（暴论）
+

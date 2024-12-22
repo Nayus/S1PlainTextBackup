@@ -2265,7 +2265,7 @@
     "lastedit": 1734889200,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1804478": {
     "totalreply": 1242,
@@ -7362,10 +7362,10 @@
     "update": false
   },
   "2170568": {
-    "totalreply": 52055,
+    "totalreply": 52056,
     "title": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
     "newtitle": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
-    "lastedit": 1734880944,
+    "lastedit": 1734896529,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -11187,10 +11187,10 @@
     "update": false
   },
   "2209063": {
-    "totalreply": 508,
+    "totalreply": 509,
     "title": "[俄乌专楼-12月版]",
     "newtitle": "[俄乌专楼-12月版]",
-    "lastedit": 1734877687,
+    "lastedit": 1734896770,
     "category": "外野",
     "active": true,
     "update": false
@@ -11223,10 +11223,10 @@
     "update": false
   },
   "2209276": {
-    "totalreply": 1476,
+    "totalreply": 1477,
     "title": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
     "newtitle": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
-    "lastedit": 1734777021,
+    "lastedit": 1734896888,
     "category": "漫区",
     "active": true,
     "update": false
@@ -18036,10 +18036,10 @@
     "update": false
   },
   "2215635": {
-    "totalreply": 46,
+    "totalreply": 48,
     "title": "[Steam全球流量图疑似造假]",
     "newtitle": "[Steam全球流量图疑似造假]",
-    "lastedit": 1734896168,
+    "lastedit": 1734896530,
     "category": "外野",
     "active": true,
     "update": false
@@ -18194,6 +18194,15 @@
     "newtitle": "[【异常生物见闻录】TV动画化决定]",
     "lastedit": 1734890679,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2215656": {
+    "totalreply": 41,
+    "title": "[日本物价：20颗卷心菜能换樱花妹一炮]",
+    "newtitle": "[日本物价：20颗卷心菜能换樱花妹一炮]",
+    "lastedit": 1734896772,
+    "category": "外野",
     "active": true,
     "update": false
   }

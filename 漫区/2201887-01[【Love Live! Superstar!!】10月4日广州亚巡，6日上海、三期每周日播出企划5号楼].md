@@ -13457,3 +13457,31 @@ OST有中文星巡，不知道会不会是完整版的<img src="https://static.s
 都11人了还让五仁唱始空是啥操作，夺冠的也不是你们五个啊，越看越觉得一期是小丑 ...</blockquote>
 其实是老5星先唱，后面画面给到了后辈们也上台了，最后是11人版本
 
+
+*****
+
+####  ads147147  
+##### 1322#       发表于 2024-12-22 19:16
+
+倒是不意外吧，已经是最好处理五人歌的做法了。
+
+第三季从头下来确实好多，删掉2期的话完全可以作为一个很不错的收尾，现在的问题也就是22年的病根，没啥好吐槽的。
+
+接下来就等剧场版吧
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  csolfans  
+##### 1323#       发表于 2024-12-22 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66988975&amp;ptid=2201887" target="_blank">ads147147 发表于 2024-12-22 19:16</a>
+倒是不意外吧，已经是最好处理五人歌的做法了。
+
+第三季从头下来确实好多，删掉2期的话完全可以作为一个很 ...</blockquote>
+(感觉现在有没有剧场版真不好说，星3结尾ed用了缪同款的。而且剧情上的确也算完结挺彻底了
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

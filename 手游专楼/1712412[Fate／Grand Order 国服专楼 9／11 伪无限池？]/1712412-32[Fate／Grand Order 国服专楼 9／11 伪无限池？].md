@@ -106,3 +106,16 @@
 
 这次多刷点，饼干有点紧张了
 
+
+*****
+
+####  khxooo  
+##### 46862#       发表于 2024-12-22 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66988810&amp;ptid=1712412" target="_blank">marxel 发表于 2024-12-22 18:36</a>
+
+我刚165，还是柱子打少了啊
+
+这次多刷点，饼干有点紧张了</blockquote>
+我大号苹果都消耗在咕哒咕哒那里了，导致只有130多金苹果，导致前面都是算着刷。现在只剩下90多金苹果<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

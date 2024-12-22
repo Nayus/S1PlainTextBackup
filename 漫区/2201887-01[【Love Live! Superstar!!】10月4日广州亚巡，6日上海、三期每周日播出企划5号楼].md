@@ -13485,3 +13485,25 @@ OST有中文星巡，不知道会不会是完整版的<img src="https://static.s
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  ViyViy  
+##### 1324#       发表于 2024-12-22 19:36
+
+我可以不要新规，但是把二期给我收拾好，出个总集重编版替进去，这交易中吧<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 1325#       发表于 2024-12-22 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66989108&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-12-22 19:36</a>
+我可以不要新规，但是把二期给我收拾好，出个总集重编版替进去，这交易中吧 ...</blockquote>
+其实不管怎么改恋恋和希奈子都是人设半立不立的状态。。。希奈子加点内容可能会好点，恋恋那个魂环太尴尬了，我没觉得三期把这个解决清楚了，或许还是有人喜欢吧。
+
+其实写得满不代表不能继续写，反正总有点时间可以挖出来的。
+
+—— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

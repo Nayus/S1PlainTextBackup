@@ -3120,3 +3120,14 @@ iphone XR
 突然想起这次活动剧情开幕结尾前水BB有个红眼特写是什么意思....整个剧情之后直到结束也没水BB什么事啊 ...</blockquote>
 24号晚结束，而且根据解包阿比有个表情在剧情没有用到，可能圣诞完结后直接突入外星人篇章？
 
+
+*****
+
+####  森兰丸  
+##### 15497#       发表于 2024-12-23 04:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66991039&amp;ptid=2084912" target="_blank">khxooo 发表于 2024-12-23 02:19</a>
+
+24号晚结束，而且根据解包阿比有个表情在剧情没有用到，可能圣诞完结后直接突入外星人篇章？ ...</blockquote>
+又学夏活结束接奏3这套？可这要是真的不该现在就出情报了吗....没必要还藏到现在啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

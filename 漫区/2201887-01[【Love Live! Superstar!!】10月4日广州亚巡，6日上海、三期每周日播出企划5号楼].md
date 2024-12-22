@@ -13566,3 +13566,13 @@ OST有中文星巡，不知道会不会是完整版的<img src="https://static.s
 —— 来自 Xiaomi 22041211AC, Android 12上的 S1Next ...</blockquote>
 应该还是会第一首OP3的，动画巡还要播动画精剪的，OP跳完播1~2集精剪给三人换衣服时间还是有的
 
+
+*****
+
+####  csolfans  
+##### 1331#       发表于 2024-12-22 23:16
+
+<img src="https://p.sda1.dev/20/1880a043ffbe593a9924452918eafd69/CMP_20241222231636459.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

@@ -13262,3 +13262,54 @@ Screenshot_2024-12-16-00-42-39-303_tv.danmaku.bili.jpg
 
 呃呃呃直接照搬mv加强行煽情，花田真的是老了，还是赶紧退休吧
 
+
+*****
+
+####  1096beam  
+##### 1301#       发表于 2024-12-22 16:26
+
+原封不动搬MV看笑了
+
+*****
+
+####  starring  
+##### 1302#       发表于 2024-12-22 16:27
+
+收尾做得可以了，真是百感交集
+
+*****
+
+####  ads147147  
+##### 1303#       发表于 2024-12-22 16:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">不管是不是花田没活了，京畿肯定是没活了。。。。
+
+
+*****
+
+####  cat1230  
+##### 1304#       发表于 2024-12-22 16:30
+
+应该还有剧场版吧？
+
+裂啦明明3季的时间，搞到最后显得很急，不过也算平稳落地无惊无险。
+
+*****
+
+####  wolf1997  
+##### 1305#       发表于 2024-12-22 16:32
+
+完结撒花，这颠沛流离的日子
+
+*****
+
+####  ViyViy  
+##### 1306#       发表于 2024-12-22 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66988211&amp;ptid=2201887" target="_blank">cat1230 发表于 2024-12-22 16:30</a>
+
+应该还有剧场版吧？
+
+裂啦明明3季的时间，搞到最后显得很急，不过也算平稳落地无惊无险。 ...</blockquote>
+动画最后这段时间一副省省就是一套房的样子；动画碟CW拿老歌11版占位，终话放出道单但是新规画面只有一点点，这偷懒劲，感觉这信号很不好啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

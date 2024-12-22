@@ -14594,3 +14594,68 @@ ANN那个剧透好像是1-3话的来着
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会吧，第五集都先给鬼佬看了？这不太可能吧
 
+
+*****
+
+####  山ノ内花音  
+##### 4267#       发表于 2024-12-22 23:47
+
+可能是太草台了 不小心发了五集过去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ShikiM  
+##### 4268#       发表于 2024-12-22 23:47
+
+有毒吧，就老中啥都看不着<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 4269#       发表于 2024-12-22 23:50
+
+不要放个烟雾弹就走啊，1-5剧透的关键词有无，急死了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 4270#       发表于 2024-12-22 23:50
+
+1-3我记得是先给鬼佬的评测媒体吧，评测媒体都只先看到1-3，四五集现在民间观众没人能看到吧
+
+
+*****
+
+####  哈曼的YY  
+##### 4271#       发表于 2024-12-22 23:54
+
+<img src="https://img.saraba1st.com/forum/202412/22/235332brm2cu3lmuhfcsrr.jpg" referrerpolicy="no-referrer">
+
+<strong>GfZf85MaIAAvK7G.jpg</strong> (1012.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-22 23:53 上传
+
+[https://x.com/moepusanai/status/1870788239512277057](https://x.com/moepusanai/status/1870788239512277057)
+
+<img src="https://img.saraba1st.com/forum/202412/22/235431u63ajvx6mvjxxwm2.jpg" referrerpolicy="no-referrer">
+
+<strong>GfZdb4JbQAAuabc.jpg</strong> (185.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-22 23:54 上传
+
+[https://x.com/ng_suzuki3/status/1870785572928925761](https://x.com/ng_suzuki3/status/1870785572928925761)
+
+<img src="https://img.saraba1st.com/forum/202412/22/235531ykxzkoovxloygf0j.jpg" referrerpolicy="no-referrer">
+
+<strong>GfYcLNBWkAALyTx.jpg</strong> (373.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-22 23:55 上传
+
+[https://x.com/Mrzengkunjie/status/1870713677365830036](https://x.com/Mrzengkunjie/status/1870713677365830036)
+

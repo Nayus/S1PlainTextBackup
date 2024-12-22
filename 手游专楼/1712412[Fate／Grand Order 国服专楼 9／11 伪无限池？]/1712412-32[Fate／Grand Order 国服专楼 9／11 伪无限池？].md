@@ -139,3 +139,20 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次会在水兵和船长来回切换增加抽池子时间 特别弱智
 
+
+*****
+
+####  Urakawa  
+##### 46865#       发表于 2024-12-22 21:00
+
+看错掉落列表，还以为今天才是金蛋，完全没刷<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+等90++了
+
+
+*****
+
+####  TohsakaR  
+##### 46866#       发表于 2024-12-22 21:03
+
+170池+12 好几次都是礼装连出<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

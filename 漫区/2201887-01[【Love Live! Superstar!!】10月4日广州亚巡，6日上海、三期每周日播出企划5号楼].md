@@ -13313,3 +13313,57 @@ Screenshot_2024-12-16-00-42-39-303_tv.danmaku.bili.jpg
 裂啦明明3季的时间，搞到最后显得很急，不过也算平稳落地无惊无险。 ...</blockquote>
 动画最后这段时间一副省省就是一套房的样子；动画碟CW拿老歌11版占位，终话放出道单但是新规画面只有一点点，这偷懒劲，感觉这信号很不好啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViyViy  
+##### 1307#       发表于 2024-12-22 16:36
+
+哦对了，既然始空重回视野，能不能，把始空趴趴重开一次预定<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">我一巡前才来的之前错过了
+
+*****
+
+####  starring  
+##### 1308#       发表于 2024-12-22 16:36
+
+会出剧场版吧，整个三季都没说过分小组的事，就算不出剧场版至少也做三个OVA
+
+*****
+
+####  离心  
+##### 1309#       发表于 2024-12-22 16:36
+
+ 本帖最后由 离心 于 2024-12-22 16:39 编辑 
+
+有很多想说的，感谢陪伴，作为星动画的收尾之作已经完成了任务。感觉确实没剧场版了，三期占了位了
+
+*****
+
+####  cybernetics31  
+##### 1310#       发表于 2024-12-22 16:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉怎么没留剧场版影子的样子 
+
+*****
+
+####  离心  
+##### 1311#       发表于 2024-12-22 16:38
+
+<img src="https://img.saraba1st.com/forum/202412/22/163914q699glag9a9o9go6.jpg" referrerpolicy="no-referrer">
+
+<strong>8CA51368B3AB92AF344F7C2675E01526.jpg</strong> (204.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-22 16:39 上传
+
+最后一张插曲
+
+
+*****
+
+####  stygian  
+##### 1312#       发表于 2024-12-22 16:41
+
+水本篇结束时候也没留扣子倒是
+

@@ -13436,3 +13436,24 @@ Screenshot_2024-12-16-00-42-39-303_tv.danmaku.bili.jpg
 
 OST有中文星巡，不知道会不会是完整版的<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 1320#       发表于 2024-12-22 18:44
+
+<img src="https://p.sda1.dev/20/ff6e9efb71fb003040d6f05b522460a7/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+
+
+*****
+
+####  evestart  
+##### 1321#       发表于 2024-12-22 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66988354&amp;ptid=2201887" target="_blank">懂你意思 发表于 2024-12-22 17:00</a>
+
+都11人了还让五仁唱始空是啥操作，夺冠的也不是你们五个啊，越看越觉得一期是小丑 ...</blockquote>
+其实是老5星先唱，后面画面给到了后辈们也上台了，最后是11人版本
+

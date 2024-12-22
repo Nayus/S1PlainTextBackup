@@ -3109,3 +3109,14 @@ iphone XR
 
 突然想起这次活动剧情开幕结尾前水BB有个红眼特写是什么意思....整个剧情之后直到结束也没水BB什么事啊
 
+
+*****
+
+####  khxooo  
+##### 15496#       发表于 2024-12-23 02:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66990812&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-12-23 01:04</a>
+
+突然想起这次活动剧情开幕结尾前水BB有个红眼特写是什么意思....整个剧情之后直到结束也没水BB什么事啊 ...</blockquote>
+24号晚结束，而且根据解包阿比有个表情在剧情没有用到，可能圣诞完结后直接突入外星人篇章？
+

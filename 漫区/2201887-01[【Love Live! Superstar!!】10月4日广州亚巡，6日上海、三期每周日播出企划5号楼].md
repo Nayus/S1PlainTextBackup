@@ -13507,3 +13507,14 @@ OST有中文星巡，不知道会不会是完整版的<img src="https://static.s
 
 —— 来自 OPPO PHN110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  starring  
+##### 1326#       发表于 2024-12-22 20:05
+
+最好的五人
+<img src="https://p.sda1.dev/20/6c423576a16d4e9a4289f02db70f2b04/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

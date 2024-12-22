@@ -13153,3 +13153,15 @@ Screenshot_2024-12-16-00-42-39-303_tv.danmaku.bili.jpg
 
 说到这个就想到，动画最遗憾的是，做三年，完整呆了三年的五位没啥外观上的永久性演变<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 1287#       发表于 2024-12-22 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66982340&amp;ptid=2201887" target="_blank">starring 发表于 2024-12-21 20:17</a>
+睡一起了吧，还是你们厉害</blockquote>
+【【Liella!】合鲤捏脸？emo偷 拍大熊睡姿？成员互相介绍！-哔哩哔哩】 https://b23.tv/0MAoDfp
+更重要的是emo偷 拍大熊睡颜备用这种事大熊自己都不知道。
+<img src="https://p.sda1.dev/20/e773b84cc44c5a059bd50003f2d0b39d/image.jpg" referrerpolicy="no-referrer">
+

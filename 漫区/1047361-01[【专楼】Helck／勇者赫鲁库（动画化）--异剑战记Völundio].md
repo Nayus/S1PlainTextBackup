@@ -32,3 +32,33 @@
 
 有人会提取manga one的原图吗，不谈截图
 
+
+*****
+
+####  御坂MKII  
+##### 1181#       发表于 2024-12-23 01:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那阿b能更新了吗，不然只能先去 mangaone 看了
+
+
+*****
+
+####  azbhg1  
+##### 1182#       发表于 2024-12-23 01:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66990909&amp;ptid=1047361" target="_blank">御坂MKII 发表于 2024-12-23 01:30</a>
+
+那阿b能更新了吗，不然只能先去 mangaone 看了</blockquote>
+啊B还在37话呢，停更前都54话了
+
+
+*****
+
+####  御坂MKII  
+##### 1183#       发表于 2024-12-23 01:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66990921&amp;ptid=1047361" target="_blank">azbhg1 发表于 2024-12-23 01:35</a>
+
+啊B还在37话呢，停更前都54话了</blockquote>
+停更前的在 mangaone 买完了，后来也看贴吧翻译看完了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer"> 阿b能追上就不在 mangaone 买了
+

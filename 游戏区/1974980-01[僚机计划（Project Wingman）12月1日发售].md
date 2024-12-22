@@ -58,3 +58,14 @@ dlc钻隧道，其实没有做限飞区，可以直接飞到终点。但最后�
 
 dlc有追加新机体么？
 
+
+*****
+
+####  Freewolf  
+##### 196#       发表于 2024-12-23 01:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66986281&amp;ptid=1974980" target="_blank">Schwarzess 发表于 2024-12-22 10:20</a>
+
+dlc有追加新机体么？</blockquote>
+没有
+

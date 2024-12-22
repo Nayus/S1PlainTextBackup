@@ -2265,7 +2265,7 @@
     "lastedit": 1734889200,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1804478": {
     "totalreply": 1242,
@@ -18090,10 +18090,10 @@
     "update": false
   },
   "2215668": {
-    "totalreply": 57,
+    "totalreply": 59,
     "title": "[索取巴拿马！]",
     "newtitle": "[索取巴拿马！]",
-    "lastedit": 1734883702,
+    "lastedit": 1734902289,
     "category": "外野",
     "active": true,
     "update": false

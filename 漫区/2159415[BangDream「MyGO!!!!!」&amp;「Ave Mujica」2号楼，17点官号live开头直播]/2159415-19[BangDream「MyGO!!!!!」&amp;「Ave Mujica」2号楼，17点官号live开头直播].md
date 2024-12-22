@@ -1181,3 +1181,11 @@ encore.
 唉，我还幻想过能有四首新歌呢，可惜就两首
 这live真是看着都冷啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">各种意义上都辛苦了
 
+
+*****
+
+####  月島まりな  
+##### 26725#       发表于 2024-12-22 18:09
+
+这次安可终于有衣服了🥲
+

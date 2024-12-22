@@ -13553,3 +13553,16 @@ OST有中文星巡，不知道会不会是完整版的<img src="https://static.s
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  ViyViy  
+##### 1330#       发表于 2024-12-22 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66989839&amp;ptid=2201887" target="_blank">csolfans 发表于 2024-12-22 21:50</a>
+
+看了一下这顺序，感觉6th第一首歌真可能不是OP3？
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 S1Next ...</blockquote>
+应该还是会第一首OP3的，动画巡还要播动画精剪的，OP跳完播1~2集精剪给三人换衣服时间还是有的
+

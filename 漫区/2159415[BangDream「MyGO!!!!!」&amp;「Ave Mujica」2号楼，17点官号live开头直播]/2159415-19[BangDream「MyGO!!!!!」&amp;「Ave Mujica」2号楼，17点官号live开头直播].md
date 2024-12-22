@@ -1292,3 +1292,11 @@ mujica漫画
 同作者在百合姬连载的漫画，只能说不是巧合，甚至是蓄谋已久</blockquote>
 原来真的是初祥代餐<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刑部姬真可爱  
+##### 26736#       发表于 2024-12-22 22:25
+
+漫画应该会补充很多细节吧，不知道会不会出现漫画和番剧里出现矛盾的地方
+

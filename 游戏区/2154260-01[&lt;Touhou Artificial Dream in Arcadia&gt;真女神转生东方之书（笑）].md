@@ -589,3 +589,19 @@ C结局通关。现在版本貌似已经修了反射弹死c路线boss，目前�
 
 冬促也在打折，现在三块钱。三块钱啊！
 
+
+*****
+
+####  kerorara  
+##### 43#       发表于 2024-12-22 22:29
+
+<img src="https://img.saraba1st.com/forum/202412/22/222904x4fe4mj4efj4heeh.jpg" referrerpolicy="no-referrer">
+
+<strong>sa.jpg</strong> (732.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-22 22:29 上传
+
+个人推荐使用的键位。把按钮放到上下左右zxc，as平移的手感也不错。
+

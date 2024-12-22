@@ -28,3 +28,11 @@
 
 这新界面一言难尽啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Niu  
+##### 18110#       发表于 2024-12-22 09:29
+
+這免費送L自選怎麼感覺就是拿來堵玩家嘴的。
+

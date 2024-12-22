@@ -1189,3 +1189,31 @@ encore.
 
 这次安可终于有衣服了🥲
 
+
+*****
+
+####  CyDiablo  
+##### 26726#       发表于 2024-12-22 18:26
+
+新情报
+6单和漫画连载
+<img src="https://p.sda1.dev/20/204b3e810e4015d2be99e49bd4520f9e/Image_580737227408998.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/5c4210bf183749e1678db5abed31e0c9/Image_580655591793301.png" referrerpolicy="no-referrer">
+mujica漫画
+<img src="https://p.sda1.dev/20/eed0e62bc1266b98d5b0ee1336318e74/Image_580659221147378.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IWS2000  
+##### 26727#       发表于 2024-12-22 18:29
+
+这个祥子不错<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  CRYCHIC  
+##### 26728#       发表于 2024-12-22 18:33
+
+你们这个mygo漫画的封面怎么是crychic啊，c团遗老bushiroad真的太坏了
+

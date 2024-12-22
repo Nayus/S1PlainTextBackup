@@ -13428,3 +13428,11 @@ Screenshot_2024-12-16-00-42-39-303_tv.danmaku.bili.jpg
 —— 来自 Xiaomi 22041211AC, Android 12上的 S1Next ...</blockquote>
 稍微比了下，模型打光调整+脸部重绘了。但是都这样了为什么不调整分镜呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViyViy  
+##### 1319#       发表于 2024-12-22 18:31
+
+OST有中文星巡，不知道会不会是完整版的<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+

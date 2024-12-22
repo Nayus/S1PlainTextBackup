@@ -93,3 +93,16 @@
 
 两个号都168了，这次圣诞过后估计就能满级不用每次组队都卡那么1Cost了<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  marxel  
+##### 46861#       发表于 2024-12-22 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66988480&amp;ptid=1712412" target="_blank">khxooo 发表于 2024-12-22 17:32</a>
+
+大号  87池+9，小号89池+8，后续两天不肝了，全力等90++</blockquote>
+我刚165，还是柱子打少了啊
+
+这次多刷点，饼干有点紧张了
+

@@ -33,3 +33,23 @@ ndcbue早年也是双方各有持股 最后变成任天堂100%
 没了XB搞不好以后每世代多出两部3D塞，这还不爽死？这点账还算不明白？光NS上1DE,2,3XDE耽搁了多少任天堂的 ...</blockquote>
 还是别，不是每个人都是狂热的塞尔达饭，更多的是喜欢塞尔达的同时也想玩到其他类型的游戏
 
+
+*****
+
+####  努斯万克  
+##### 50#       发表于 2024-12-22 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66971163&amp;ptid=2210163" target="_blank">lang5201000 发表于 2024-12-20 12:43</a>
+
+改名可以慢慢来  就像今年的NDcube改名为 Nintendo Cube xxx
+
+ndcbue早年也是双方各有持股 最后变成任天堂 ...</blockquote>
+为啥非要改名，就叫mono不挺好听的，加个nintendo反而土了。
+
+*****
+
+####  血狂毘沙门  
+##### 51#       发表于 2024-12-22 15:48
+
+任天堂肯定也是希望游戏类型越来越广，不想把路走窄了啊
+

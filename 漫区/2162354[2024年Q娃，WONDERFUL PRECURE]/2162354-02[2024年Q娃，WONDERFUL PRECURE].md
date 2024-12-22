@@ -100,3 +100,24 @@ WELCOME TO MY HOME，LET"S 热烈的 诞生DAY
 
 第 46 集的 TVer 源（含日字）：magnet:?xt=urn:btih:3a44151f6c8ef1f04951a289ecb47a7b91bdff05
 
+
+*****
+
+####  bilibilius  
+##### 2678#       发表于 2024-12-22 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66948335&amp;ptid=2162354" target="_blank">himfsz 发表于 2024-12-17 18:25</a>
+
+我现在开始觉得纠结人名的汉字也没什么意义了，毕竟人家主创自己也不在意，否则就直接用汉字了，而且也没 ...</blockquote>
+纠结名字译名本来就没有意义，看下Liko/李可/理子这种经典错译，结果是是错误的理子反而用得更多。可以说用的人越多错误越难纠正，甚至错的会变成对的
+
+*****
+
+####  himfsz  
+##### 2679#       发表于 2024-12-22 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66986514&amp;ptid=2162354" target="_blank">bilibilius 发表于 2024-12-22 11:09</a>
+
+纠结名字译名本来就没有意义，看下Liko/李可/理子这种经典错译，结果是是错误的理子反而用得更多。可以说 ...</blockquote>
+根据“希望全世界的小朋友都能用同样的发音来叫哆啦A梦/宝可梦”的这一日本佬的纯粹的愿望，我觉得儿童片应该全部用音译！噗哩q娃才是最正确的翻译！
+

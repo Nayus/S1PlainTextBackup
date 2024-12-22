@@ -3032,3 +3032,53 @@ iphone XR
 
 2024-12-21 22:34 上传
 
+
+*****
+
+####  jackyhuang  
+##### 15489#       发表于 2024-12-21 17:18
+
+200箱了，大概160多箱+12了，这次礼装掉的挺多的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+*****
+
+####  alucardcz  
+##### 15490#       发表于 2024-12-21 18:09
+
+漏油100池200池 萌新11池<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 15491#       发表于 2024-12-21 22:35
+
+ 本帖最后由 exiaexa 于 2024-12-21 22:48 编辑 
+
+下班下班，再刷真要吐了，连带阿比羁绊礼装跳了4个，连带烟雾镜都10绊半退休了
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202412/21/223447qi37044iols7o3s0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (104.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-21 22:34 上传
+
+<img src="https://img.saraba1st.com/forum/202412/21/223458oahy7k1kc11c1ach.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (94.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-21 22:34 上传
+
+*****
+
+####  乾理央  
+##### 15492#       发表于 2024-12-22 14:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">又到了找地方花qp的时间了
+

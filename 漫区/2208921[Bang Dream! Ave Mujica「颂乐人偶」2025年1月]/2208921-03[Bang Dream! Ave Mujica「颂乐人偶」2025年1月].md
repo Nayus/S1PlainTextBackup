@@ -15012,3 +15012,33 @@ wsd的神秘宣发</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  PDQ4  
+##### 4306#       发表于 2024-12-23 19:17
+
+耳光是两个有着亲密关系的人因为感情冲突发展成的肢体矛盾，前提是两个人有着足够的亲密关系
+
+扇同事耳光太抽象了
+
+现在鸡里构成亲密关系的是谁，初祥目前没明面矛盾，其他人关系还不够亲密
+
+睦祥是目前唯一适合展开激烈肢体冲突的，但是睦都那么狂气了还打耳光有点太健全了，没有癫的感觉
+
+分析剧情是否合理要看到本质，这么写会起到什么作用，随便抓个行为硬套那不是构式公式套皮吗
+
+鸡又不是什么格斗作品，扇耳光不会硬涨好感的<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  山ノ内花音  
+##### 4307#       发表于 2024-12-23 19:24
+
+<img src="https://pbs.twimg.com/media/GfeJbr-bkAA92VU?format=jpg&amp;name=900x900" id="aimg_icc03" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+先行上映的特典 
+
+聊胜于无吧
+

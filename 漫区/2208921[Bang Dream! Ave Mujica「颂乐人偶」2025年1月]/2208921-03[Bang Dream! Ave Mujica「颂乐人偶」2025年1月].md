@@ -14763,3 +14763,33 @@ https://x.com/jibliy81/status/1870816752600584597?s=46&amp;t=IZGx0N13SOtHALpwG0U
 群聊看到的，c105的初睦祥三角关系本</blockquote>
 图裂了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 4281#       发表于 2024-12-23 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66996725&amp;ptid=2208921" target="_blank">ZGM 发表于 2024-12-23 13:20</a>
+
+想起一件可怕的事，漫画未公开的特典不会用的就是这个封面的柄图吧，有点劝退╯▂╰ ...</blockquote>
+一般來說漫畫的特典會另外畫 一般來說()
+
+*****
+
+####  金属化反射装甲  
+##### 4282#       发表于 2024-12-23 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66996978&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2024-12-23 14:04</a>
+
+图裂了</blockquote>
+呃，我这好像看得到，是不是论坛出问题了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  AveMujica  
+##### 4283#         楼主| 发表于 2024-12-23 14:15
+
+史 上 最 狂
+<img src="https://p.sda1.dev/20/85cdeba17d71207978d978fef3d80b98/image.jpg" referrerpolicy="no-referrer">
+

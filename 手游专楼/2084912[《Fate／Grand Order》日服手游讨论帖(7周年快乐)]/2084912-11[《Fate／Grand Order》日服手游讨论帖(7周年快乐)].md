@@ -3180,3 +3180,14 @@ bb一直在放卫星上很内行，order call最早也是她说的。<img src="h
 
 反正我只有1石 无所谓
 
+
+*****
+
+####  保罗赫伯特  
+##### 15504#       发表于 2024-12-23 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66996212&amp;ptid=2084912" target="_blank">克苏鲁系青骑士 发表于 2024-12-23 12:09</a>
+
+新年奶个外星人武藏好了</blockquote>
+归来的从者宇宙角色，武藏=卡俄斯.san<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

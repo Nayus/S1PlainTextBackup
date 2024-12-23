@@ -74,3 +74,14 @@
 不过也有不少因为上次的年一高而选择 ...</blockquote>
 老宅们太会了，加个UC设定，全领域勾引关注，要是没有临时工泄密根本不会有这么高的话题度
 
+
+*****
+
+####  赤黑的假面  
+##### 1486#       发表于 2024-12-23 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66996772&amp;ptid=2209276" target="_blank">中野梓 发表于 2024-12-23 13:31</a>
+
+我认识的大多白皮黑皮根本不看高达，多亏团长的梗才出圈的，水魔是很多老外的高达初体验 ...</blockquote>
+那之前欧美那边投票投元祖是第一是咋投出来的，水军吗
+

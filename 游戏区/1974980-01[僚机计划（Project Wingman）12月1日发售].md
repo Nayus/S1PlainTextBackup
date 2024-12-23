@@ -69,3 +69,13 @@ dlc有追加新机体么？
 dlc有追加新机体么？</blockquote>
 没有
 
+
+*****
+
+####  nakedsnake  
+##### 197#       发表于 2024-12-23 10:05
+
+这每次进游戏就得改语言是bug嘛
+
+—— 来自 vivo V2408A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

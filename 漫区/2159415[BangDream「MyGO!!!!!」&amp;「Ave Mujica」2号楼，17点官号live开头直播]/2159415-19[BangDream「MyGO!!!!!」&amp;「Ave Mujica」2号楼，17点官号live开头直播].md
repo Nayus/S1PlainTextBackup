@@ -1314,3 +1314,14 @@ mujica漫画
 
 2024-12-23 11:33 上传
 
+
+*****
+
+####  oldgoat  
+##### 26738#       发表于 2024-12-23 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66995858&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-12-23 11:33</a></blockquote>
+这是照着终将的佐伯外传封面画的吧？
+
+（很好很好，我喜欢）
+

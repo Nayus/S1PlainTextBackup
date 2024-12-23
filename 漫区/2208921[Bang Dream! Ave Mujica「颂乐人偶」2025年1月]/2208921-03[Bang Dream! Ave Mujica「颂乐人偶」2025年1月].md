@@ -14736,3 +14736,30 @@ https://x.com/jibliy81/status/1870816752600584597?s=46&amp;t=IZGx0N13SOtHALpwG0U
 
 想起一件可怕的事，漫画未公开的特典不会用的就是这个封面的柄图吧，有点劝退╯▂╰
 
+
+*****
+
+####  金属化反射装甲  
+##### 4279#       发表于 2024-12-23 13:59
+
+<img src="https://img.saraba1st.com/forum/202412/23/135816fm4suz29mk9sursk.jpg" referrerpolicy="no-referrer">
+
+<strong>resize_image.jpg</strong> (126.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-23 13:58 上传
+
+群聊看到的，c105的初睦祥三角关系本
+
+
+*****
+
+####  山ノ内花音  
+##### 4280#       发表于 2024-12-23 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66996957&amp;ptid=2208921" target="_blank">金属化反射装甲 发表于 2024-12-23 13:59</a>
+
+群聊看到的，c105的初睦祥三角关系本</blockquote>
+图裂了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

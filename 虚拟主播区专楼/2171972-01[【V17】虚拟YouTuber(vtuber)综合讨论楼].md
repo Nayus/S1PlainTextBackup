@@ -65,3 +65,77 @@
 
 [https://www.youtube.com/watch?v=k7kz93V99RY](https://www.youtube.com/watch?v=k7kz93V99RY) 这什么来头，一进去就在唱希望之花<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  吃咸菜的  
+##### 975#       发表于 2024-12-23 17:42
+
+24年o榜年榜
+
+单曲
+
+ROF-MAO DiVe !N 27553
+
+にじさんじ HE4RT BE4T! 10703
+
+星街すいせい ビビデバ 8807
+
+500位水线 4047
+
+专辑
+
+不破湊 Persona 64976
+
+三枝明那 UniVerse 64452
+
+ChroNoiR Wonder Wander World 50281
+
+さくらみこ flower rhapsody 34916
+
+VΔLZ 三華の樂 31533
+
+宝鐘マリン Ahoy!! キミたちみんなパイレーツ■ 26003
+
+甲斐田晴 DOLCE 17838
+
+ReGLOSS ReGLOSS 17524
+
+天音かなた Unknown DIVA 14129
+
+PLAVE ASTERUM:134-1 11933
+
+角巻わため Hop Step Sheep 9964
+
+hololive × HoneyWorks ほろはにヶ丘高校 -Complete Edition- 9831
+
+AZKi Route If 9507
+
+鷹嶺ルイ Liberty 8776
+
+Nornis Tensegrity 8668
+
+星街すいせい Specter 7655（旧cd，不是今年发的黑胶）
+
+しぐれうい fiction 7230
+
+星街すいせい Still Still Stellar 6843（旧cd，不是今年发的黑胶）
+
+500位水线 6264
+
+<img src="https://img.saraba1st.com/forum/202412/23/174201ifan80a7ufwuvzs7.png" referrerpolicy="no-referrer">
+
+<strong>single.png</strong> (128.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-23 17:42 上传
+
+<img src="https://img.saraba1st.com/forum/202412/23/174221nfl0o4rbazyo94bz.png" referrerpolicy="no-referrer">
+
+<strong>album.png</strong> (481.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-23 17:42 上传
+

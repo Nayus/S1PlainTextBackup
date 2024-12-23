@@ -1335,3 +1335,19 @@ mujica漫画
 
 写了素睦同人文，感觉有点ooc<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 26740#         楼主| 发表于 2024-12-23 16:16
+
+<img src="https://img.saraba1st.com/forum/202412/23/161505t7apb71yeezzev77.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_402351278956200.jpg</strong> (72.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-23 16:15 上传
+
+这左边soyo右边初祥的布局，这作者真的有点坏吧……
+

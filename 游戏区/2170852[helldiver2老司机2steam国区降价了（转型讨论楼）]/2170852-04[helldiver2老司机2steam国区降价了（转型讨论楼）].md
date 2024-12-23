@@ -1354,3 +1354,13 @@ AA炮塔同坦克炮塔，不同的是正面铆钉处可以被四穿武器打出
 
 新注册的没有那免费送的这些联动装备不就绝版了吗，难道后续还会放到超级商店卖？
 
+
+*****
+
+####  xinfengj  
+##### 5681#       发表于 2024-12-23 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66994731&amp;ptid=2170852" target="_blank">Sannapolis 发表于 2024-12-23 09:18</a>
+新注册的没有那免费送的这些联动装备不就绝版了吗，难道后续还会放到超级商店卖？ ...</blockquote>
+话没说死，后面应该会再发一波
+

@@ -14837,3 +14837,37 @@ https://www.melonbooks.co.jp/detail/detail.php?product_id=2727901
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">呃，再狂能狂过nana吗？
 wsd的神秘宣发
 
+
+*****
+
+####  rushsong  
+##### 4288#       发表于 2024-12-23 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66997295&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-23 14:46</a>
+呃，再狂能狂过nana吗？
+wsd的神秘宣发</blockquote>
+如果真的涉及儿童虐待，双重人格这种确实某些方面比nana狂
+
+—— 来自 vivo V2183A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  UNISONIA  
+##### 4289#       发表于 2024-12-23 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66982294&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-21 20:11</a>
+
+睦对乐队问题反应很明显是有在针对祥子的，mujica坏了的话祥也……这句很明显
+
+基本就是认为乐队出问题最难 ...</blockquote>
+蝶团第二话睦客串登场是透子七深她们高一的时候吧，也就是MyGO·Mujica篇现在时间线的一年前
+
+而且睦当时的校服也是和七深她们不一样的中等部夏季制服
+
+*****
+
+####  山ノ内花音  
+##### 4290#       发表于 2024-12-23 14:57
+
+最后三人行真百 比nana狂
+

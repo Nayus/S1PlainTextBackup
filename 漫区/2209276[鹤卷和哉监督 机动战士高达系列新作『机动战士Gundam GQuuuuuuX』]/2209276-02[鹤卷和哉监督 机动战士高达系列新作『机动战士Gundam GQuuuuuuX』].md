@@ -118,3 +118,11 @@
 懂了，那还是普通人喜欢重要，婆罗门喜欢并不能兑换成实打实的钱，那也难怪富野在影视商业上干不过宫崎骏 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">不是，你这两个有什么关系吗，哪怕你拿msv和新作比呢
 
+
+*****
+
+####  PascalLefèvre  
+##### 1490#       发表于 2024-12-23 18:50
+
+可是卖玩具不就是面向普通人的商业吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

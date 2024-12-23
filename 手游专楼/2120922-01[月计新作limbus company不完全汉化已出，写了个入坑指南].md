@@ -157,3 +157,29 @@
 
 084的韩语配音听习惯了还真挺不错的，感情很充沛
 
+
+*****
+
+####  Jamaisvu  
+##### 1029#       发表于 2024-12-23 18:50
+
+<img src="https://img.saraba1st.com/forum/202412/23/185043lstv2csrn0im0v7p.jpg" referrerpolicy="no-referrer">
+
+<strong>1734950733335.jpg</strong> (377.05 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-23 18:50 上传
+
+<img src="https://img.saraba1st.com/forum/202412/23/185044tnu470tj4x9xkjk0.jpg" referrerpolicy="no-referrer">
+
+<strong>1734950743244.jpg</strong> (462.52 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-23 18:50 上传
+
+圣诞梦魇EGO都是怠惰属性的震颤+沉沦效果，敌人被混乱或精神力下降时会有赠伤。震沉新体系存疑？
+

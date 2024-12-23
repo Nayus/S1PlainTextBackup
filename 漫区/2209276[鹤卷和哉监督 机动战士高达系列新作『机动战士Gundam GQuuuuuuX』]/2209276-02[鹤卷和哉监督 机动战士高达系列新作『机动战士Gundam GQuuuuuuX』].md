@@ -172,3 +172,11 @@ SEED也被骂过，比如神意一开始被骂乌龟高达，而现在一提到�
 
 铁血就更不用说了
 
+
+*****
+
+####  创始’’’天翔  
+##### 1494#       发表于 2024-12-23 19:38
+
+跑去5ch论证无好评<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

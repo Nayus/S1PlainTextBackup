@@ -61,3 +61,16 @@
 
 不过也有不少因为上次的年一高而选择观望到结局再入场的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  中野梓  
+##### 1485#       发表于 2024-12-23 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66996909&amp;ptid=2209276" target="_blank">刺客ares 发表于 2024-12-23 13:50</a>
+
+这次新作也会成为很多人的年一高，比如一些新入场的宝可梦粉和EVA粉
+
+不过也有不少因为上次的年一高而选择 ...</blockquote>
+老宅们太会了，加个UC设定，全领域勾引关注，要是没有临时工泄密根本不会有这么高的话题度
+

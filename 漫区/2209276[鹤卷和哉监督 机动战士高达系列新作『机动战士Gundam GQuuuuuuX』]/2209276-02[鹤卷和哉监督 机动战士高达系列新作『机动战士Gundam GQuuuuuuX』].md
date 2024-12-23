@@ -416,3 +416,22 @@ FRIDAY ANIME NIGHT档，1月接档药屋少女，确定半年
 
 只有主角机和角色的塑料，不正常
 
+
+*****
+
+####  刺客ares  
+##### 1512#       发表于 2024-12-23 23:10
+
+ 本帖最后由 刺客ares 于 2024-12-23 23:11 编辑 
+
+另外这次听说还要上深夜档？是不是可以假药一下，剧情上有什么在白天播不了的东西<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王留美  
+##### 1513#       发表于 2024-12-23 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67001241&amp;ptid=2209276" target="_blank">刺客ares 发表于 2024-12-23 23:10</a>
+ 另外这次听说还要上深夜档？是不是可以假药一下，剧情上有什么在白天播不了的东西 ...</blockquote>
+单纯是日TV没有日间档吧
+

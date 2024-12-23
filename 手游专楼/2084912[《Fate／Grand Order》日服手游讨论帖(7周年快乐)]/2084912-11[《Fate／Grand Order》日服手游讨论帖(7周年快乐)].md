@@ -3213,3 +3213,13 @@ bb一直在放卫星上很内行，order call最早也是她说的。<img src="h
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
 
+
+*****
+
+####  格林卡罗尔  
+##### 15507#       发表于 2024-12-23 23:26
+
+还真有大的，个人房间里还能看到倒计时
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

@@ -14923,3 +14923,11 @@ wsd的神秘宣发</blockquote>
 有所预料吧，上一个狗本预告就疑似初祥沙爹现场，现在预览图祥子脸上还带血
 不过考虑日本人搞过school idol day那种确实要观望一下<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  金属化反射装甲  
+##### 4296#       发表于 2024-12-23 15:28
+
+你喜欢我的青梅，我也喜欢我的青梅，我们不是一伙的吗？
+

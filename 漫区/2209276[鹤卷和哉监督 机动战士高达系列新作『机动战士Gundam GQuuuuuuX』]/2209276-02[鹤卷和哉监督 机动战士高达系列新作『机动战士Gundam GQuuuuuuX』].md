@@ -270,3 +270,36 @@ AGE有小翻案吧，主要是奶茶篇</blockquote>
 
 不知道为什么新作要捂的这么严实，你楼在今天之前已经凉了两天了
 
+
+*****
+
+####  王留美  
+##### 1504#       发表于 2024-12-23 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67000371&amp;ptid=2209276" target="_blank">PascalLefèvre 发表于 2024-12-23 20:54</a>
+ 不知道为什么新作要捂的这么严实，你楼在今天之前已经凉了两天了</blockquote>
+万代一直有自己的宣发节奏
+
+the begining剧场上映快倒计时一个月了吧？该进入宣发周期了
+
+*****
+
+####  0aleph37  
+##### 1505#       发表于 2024-12-23 21:13
+
+<blockquote>王留美 发表于 2024-12-23 21:12
+万代一直有自己的宣发节奏
+
+the begining剧场上映快倒计时一个月了吧？该进入宣发周期了 ...</blockquote>
+不到一个月吧，不是1.17上映吗？
+
+*****
+
+####  RE㐅ia  
+##### 1506#       发表于 2024-12-23 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67000371&amp;ptid=2209276" target="_blank">PascalLefèvre 发表于 2024-12-23 20:54</a>
+
+不知道为什么新作要捂的这么严实，你楼在今天之前已经凉了两天了</blockquote>
+肯定是想把世界观藏到剧场版上映来着的。但是事到如今要我说不如破罐子破摔大张旗鼓地去宣发得了
+

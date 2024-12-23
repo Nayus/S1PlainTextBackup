@@ -70,3 +70,42 @@
 
 水魔最大受益者？
 
+
+*****
+
+####  刺客ares  
+##### 1479#       发表于 2024-12-23 12:02
+
+爬了一天5ch，霓虹对这作的风评目前和国内差不多
+
+喷点集中在庵野秀明，机设，人设，吉翁胜利，女主角
+
+而且感觉那边对水魔的ptsd也不轻啊，谁说的水魔环大陆好评<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+几个水魔角色的anti串在刚出pv那几天都爆了
+
+狸猫anti串直接开始攻击狸猫外貌，说狸猫和玛秋站一块被完全艳压
+
+“穿裤子的头发乱糟糟黑肤豆豆眉巨型女VS穿迷你裙的传统小只萌系美少女”
+
+大型厨厨聚集地米anti串看到女二番直接开始不安.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+然后一转滑坡，开始贷款牢修被当百合垫脚石和河豚女二嬷毁掉作品
+
+牢四anti串开始嘲笑“人气男角色”牢四吹了半天，结果从生到死待遇不如修司一上来就出小人
+
+挑染anti串因为禁豚反而没多大声音，还在车轱辘老话题<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+还有水魔作品anti觉得新作主人公明明很可爱却被大家抵制，怎么想都是水魔做烂的错
+
+希望要素重叠这么多的新作把大家对水魔的印象完全覆盖
+
+*****
+
+####  刺客ares  
+##### 1480#       发表于 2024-12-23 12:05
+
+只能说本作无论翻车与否，在要素重叠过多的情况下，放映后对水魔和万代的二次清算都是少不了的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+无非是看谁清算谁，到时候两边都是：水魔这局是不是你打的有问题？
+

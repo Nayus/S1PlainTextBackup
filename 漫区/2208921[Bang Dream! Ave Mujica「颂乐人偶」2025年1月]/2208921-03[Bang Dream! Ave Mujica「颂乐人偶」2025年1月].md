@@ -14871,3 +14871,36 @@ wsd的神秘宣发</blockquote>
 
 最后三人行真百 比nana狂
 
+
+*****
+
+####  PDQ4  
+##### 4291#       发表于 2024-12-23 15:08
+
+画面表现上可能算得上史上最狂吧，毕竟怎么看都不像乐队动画<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+48p幼驯染本，这是我可以看到的吗<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 4292#       发表于 2024-12-23 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66997488&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-23 15:08</a>
+画面表现上可能算得上史上最狂吧，毕竟怎么看都不像乐队动画
+
+48p幼驯染本，这是我可以看到的吗 ...</blockquote>
+突然想起来这个作者以前画过比较过激的初睦互动 还是先观望一下比较好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 4293#       发表于 2024-12-23 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66997388&amp;ptid=2208921" target="_blank">UNISONIA 发表于 2024-12-23 14:57</a>
+
+蝶团第二话睦客串登场是透子七深她们高一的时候吧，也就是MyGO·Mujica篇现在时间线的一年前
+
+而且睦当时 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">?所以呢,为什么要回我这个
+

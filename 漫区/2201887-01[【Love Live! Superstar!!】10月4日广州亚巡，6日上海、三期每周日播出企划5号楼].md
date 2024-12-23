@@ -13635,3 +13635,17 @@ OST有中文星巡，不知道会不会是完整版的<img src="https://static.s
 
 还有就是，虽说要毕业前辈的领带和纽扣做纪念好像是那边的文化，但冬逑-&gt;香音好像没啥铺垫啊，这环节让希奈子来感觉更好点，以及，花田京极都想到这个了怎么没其他几个人留点东西…一个画面都行。
 
+
+*****
+
+####  lanslort  
+##### 1338#       发表于 2024-12-23 13:29
+
+其实很好理解，香音初始就是有点社恐内向的设定，一开始我还觉得这种不那么传统的leader挺新鲜的，没想到突然就变成了大香老师 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过反过来说，也可以说是因为有着学园偶像这个身份，有着liella的同伴才让大香老师拥有力量发生了改变，那么在毕业各奔东西这个背景下香音会感到不安也挺正常的，但因为有了三年的羁绊，所以看到几人有很快就恢复了
+
+至于冬逑就是分蛋糕啦，希奈子接班当了学生会长，红蓝是正副社团会长，而且不管是二年级还是玛格丽特这两季的戏份都已经很多了，只有冬逑是第三季才加入的，而且也算是大香老师拉进来的，其实也挺合理<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还别说，看完第三季我都有点跟第二季和解了，等哪天有心情了再回去看一遍 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

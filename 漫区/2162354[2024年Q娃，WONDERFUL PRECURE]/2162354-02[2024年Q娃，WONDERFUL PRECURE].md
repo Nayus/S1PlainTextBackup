@@ -163,3 +163,22 @@ WELCOME TO MY HOME，LET"S 热烈的 诞生DAY
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
 
+
+*****
+
+####  maoyou  
+##### 2684#       发表于 2024-12-23 23:10
+
+什么小麦和悟，不是咩咩和悟吗？小麦跟着虎目或噶奥跑还差不多
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+*****
+
+####  patapon3  
+##### 2685#       发表于 2024-12-24 06:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

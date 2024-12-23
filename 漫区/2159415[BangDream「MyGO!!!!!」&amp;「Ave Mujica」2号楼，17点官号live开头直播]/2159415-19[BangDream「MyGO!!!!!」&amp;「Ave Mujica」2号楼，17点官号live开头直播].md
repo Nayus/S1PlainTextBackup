@@ -1325,3 +1325,13 @@ mujica漫画
 
 （很好很好，我喜欢）
 
+
+*****
+
+####  cuulul  
+##### 26739#       发表于 2024-12-23 13:12
+
+[https://bbs.yamibo.com/thread-552827-1-1.html](https://bbs.yamibo.com/thread-552827-1-1.html)
+
+写了素睦同人文，感觉有点ooc<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

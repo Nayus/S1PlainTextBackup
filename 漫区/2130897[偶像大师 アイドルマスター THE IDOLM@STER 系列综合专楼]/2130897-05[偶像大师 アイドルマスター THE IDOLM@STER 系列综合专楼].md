@@ -123,3 +123,52 @@ CGE497HBNJ99NG}2U4]JLZS_tmb.jpg
 
 学的solo3全部出来了
 
+
+*****
+
+####  wfhtony  
+##### 6807#       发表于 2024-12-23 20:31
+
+NYLON JAPAN THE IDOLM@STER 20th ANNIVERSARY BOOK
+
+<img src="https://img.saraba1st.com/forum/202412/23/203125jptqhdgg7gthg6qf.jpg" referrerpolicy="no-referrer">
+
+<strong>P.001.jpg</strong> (461.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-23 20:31 上传
+
+<img src="https://img.saraba1st.com/forum/202412/23/203126m5n839w3rck3tkl9.jpg" referrerpolicy="no-referrer">
+
+<strong>P.100.jpg</strong> (323.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-23 20:31 上传
+
+<img src="https://img.saraba1st.com/forum/202412/23/203125uxzrnq6lzxlldfxa.jpg" referrerpolicy="no-referrer">
+
+<strong>P.002.jpg</strong> (121.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-23 20:31 上传
+
+<img src="https://img.saraba1st.com/forum/202412/23/203126it2to9onqafuqu2t.jpg" referrerpolicy="no-referrer">
+
+<strong>P.003.jpg</strong> (115.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-23 20:31 上传
+
+[OneDrive](https://clr2.wfhtony.space/s/mbrFZ) PW: IM@S20th&amp;NYLONJP_2024Collab.
+[Google Drive](https://drive.google.com/drive/folders/1za8jRsoUXUW4lRvxPT7uq5CN617bta1T?usp=sharing) | /g/3168109/875cb2b6d5/
+
+Z-lib: /book/101690622/ea6924
+
+购买地址：
+
+Amazon(Kindle): [https://www.amazon.co.jp/dp/B0DQXMY1WL/](https://www.amazon.co.jp/dp/B0DQXMY1WL/)
+

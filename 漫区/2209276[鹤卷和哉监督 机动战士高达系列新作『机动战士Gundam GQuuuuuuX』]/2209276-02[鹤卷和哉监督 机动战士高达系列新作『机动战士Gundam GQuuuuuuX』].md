@@ -199,3 +199,33 @@ SEED也被骂过，比如神意一开始被骂乌龟高达，而现在一提到�
 水魔和铁血是两种不一样的烂，至于新作还得看最终素质，如果还是不行等着被清算吧，破坏婆罗门心目中的元组 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">AGE有小翻案吧，主要是奶茶篇
 
+
+*****
+
+####  0aleph37  
+##### 1497#       发表于 2024-12-23 20:26
+
+每天一张也就三天，新高达情报捂得好死
+
+
+*****
+
+####  王留美  
+##### 1498#       发表于 2024-12-23 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66999506&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2024-12-23 19:04</a>
+ 水魔和铁血是两种不一样的烂，至于新作还得看最终素质，如果还是不行等着被清算吧，破坏婆罗门心目中的元组 ...</blockquote>
+Age有福皇
+你问啥都是有福皇
+拿谁出来都是有福皇
+足够了
+
+*****
+
+####  王留美  
+##### 1499#       发表于 2024-12-23 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67000139&amp;ptid=2209276" target="_blank">0aleph37 发表于 2024-12-23 20:26</a>
+ 每天一张也就三天，新高达情报捂得好死</blockquote>
+按水魔的运营经验可以介绍配角了
+

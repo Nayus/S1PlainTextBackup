@@ -229,3 +229,44 @@ Age有福皇
  每天一张也就三天，新高达情报捂得好死</blockquote>
 按水魔的运营经验可以介绍配角了
 
+
+*****
+
+####  RE㐅ia  
+##### 1500#       发表于 2024-12-23 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66999842&amp;ptid=2209276" target="_blank">Gysumitka 发表于 2024-12-23 19:48</a>
+
+今天还动了下，估计是每天一张</blockquote>
+俺寻思这些表情不是官网刚公布的时候就有了吗。公布了个啥？<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RE㐅ia  
+##### 1501#       发表于 2024-12-23 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66999691&amp;ptid=2209276" target="_blank">PascalLefèvre 发表于 2024-12-23 19:27</a>
+
+白皮还真有不少觉得水魔好看的
+
+铁血就更不用说了</blockquote>
+铁血2在mal史一高的含金量
+
+*****
+
+####  RE㐅ia  
+##### 1502#       发表于 2024-12-23 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66999986&amp;ptid=2209276" target="_blank">双菜 发表于 2024-12-23 20:07</a>
+
+AGE有小翻案吧，主要是奶茶篇</blockquote>
+那不就是靠的那个伊甸的回忆ova
+
+
+*****
+
+####  PascalLefèvre  
+##### 1503#       发表于 2024-12-23 20:54
+
+不知道为什么新作要捂的这么严实，你楼在今天之前已经凉了两天了
+

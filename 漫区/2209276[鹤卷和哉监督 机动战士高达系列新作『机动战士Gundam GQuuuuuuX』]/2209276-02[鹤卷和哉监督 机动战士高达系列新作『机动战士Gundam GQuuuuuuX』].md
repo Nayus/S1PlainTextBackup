@@ -107,3 +107,14 @@
 因为普通人不会去投票，只有婆罗门会积极参加</blockquote>
 懂了，那还是普通人喜欢重要，婆罗门喜欢并不能兑换成实打实的钱，那也难怪富野在影视商业上干不过宫崎骏，只能靠卖玩具挽尊
 
+
+*****
+
+####  法拉  
+##### 1489#       发表于 2024-12-23 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66999034&amp;ptid=2209276" target="_blank">赤黑的假面 发表于 2024-12-23 17:58</a>
+
+懂了，那还是普通人喜欢重要，婆罗门喜欢并不能兑换成实打实的钱，那也难怪富野在影视商业上干不过宫崎骏 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">不是，你这两个有什么关系吗，哪怕你拿msv和新作比呢
+

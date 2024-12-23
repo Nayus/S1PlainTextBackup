@@ -14931,3 +14931,56 @@ wsd的神秘宣发</blockquote>
 
 你喜欢我的青梅，我也喜欢我的青梅，我们不是一伙的吗？
 
+
+*****
+
+####  阿萨德飞过去  
+##### 4297#       发表于 2024-12-23 15:38
+
+这位画师画过初华对睦扇巴掌，只能说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可能楼友不一定能接受（其他人设都没问题，就初华变成高浓度病娇了，不过这是年初的事了，也许现在会有改变？
+
+这史上最狂有点搞，没几个动画乐队这样宣传吧，什么蒙古海军<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 4298#       发表于 2024-12-23 15:39
+
+日本这些动不动就是史上最，得亏国内广告被锤过
+
+*****
+
+####  山ノ内花音  
+##### 4299#       发表于 2024-12-23 15:41
+
+只能说日本人还是太变态了 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 4300#       发表于 2024-12-23 15:41
+
+ 本帖最后由 御幸一也 于 2024-12-23 15:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66997500&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2024-12-23 15:10</a>
+
+突然想起来这个作者以前画过比较过激的初睦互动 还是先观望一下比较好</blockquote>
+怎麼感覺不安了起來 過激指扇巴掌嗎 那還是觀望一下 萬一吃到怪味東西<img src="https://static.saraba1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 4301#       发表于 2024-12-23 15:45
+
+这作者画过初华扇睦和初华杀祥爹
+
+*****
+
+####  贰臣  
+##### 4302#       发表于 2024-12-23 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66997781&amp;ptid=2208921" target="_blank">御幸一也 发表于 2024-12-23 15:41</a>
+
+怎麼感覺不安了起來 過激指扇巴掌嗎 那還是觀望一下 萬一吃到怪味東西</blockquote>
+建议等排雷兵趟完再考虑，这个画师对初华的理解太怪了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

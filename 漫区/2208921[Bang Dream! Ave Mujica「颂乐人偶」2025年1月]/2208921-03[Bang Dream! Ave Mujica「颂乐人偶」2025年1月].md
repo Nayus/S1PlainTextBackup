@@ -14904,3 +14904,22 @@ wsd的神秘宣发</blockquote>
 而且睦当时 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">?所以呢,为什么要回我这个
 
+
+*****
+
+####  akiomn  
+##### 4294#       发表于 2024-12-23 15:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nana我印象里有溜冰乱x的剧情啊，我不信mujica再狂能狂过这个
+鉴定为wsd的神秘吹逼宣发
+
+*****
+
+####  PDQ4  
+##### 4295#       发表于 2024-12-23 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66997500&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2024-12-23 15:10</a>
+ 突然想起来这个作者以前画过比较过激的初睦互动 还是先观望一下比较好</blockquote>
+有所预料吧，上一个狗本预告就疑似初祥沙爹现场，现在预览图祥子脸上还带血
+不过考虑日本人搞过school idol day那种确实要观望一下<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

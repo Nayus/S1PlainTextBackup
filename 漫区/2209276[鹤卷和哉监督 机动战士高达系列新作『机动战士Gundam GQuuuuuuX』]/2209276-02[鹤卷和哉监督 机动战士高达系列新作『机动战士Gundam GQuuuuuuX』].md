@@ -189,3 +189,13 @@ SEED也被骂过，比如神意一开始被骂乌龟高达，而现在一提到�
 <img src="https://p.sda1.dev/20/c42cc4c44dac7eb7b32d3f750d322fc7/image.jpg" referrerpolicy="no-referrer">
 今天还动了下，估计是每天一张
 
+
+*****
+
+####  双菜  
+##### 1496#       发表于 2024-12-23 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66999506&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2024-12-23 19:04</a>
+水魔和铁血是两种不一样的烂，至于新作还得看最终素质，如果还是不行等着被清算吧，破坏婆罗门心目中的元组 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">AGE有小翻案吧，主要是奶茶篇
+

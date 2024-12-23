@@ -3131,3 +3131,14 @@ iphone XR
 24号晚结束，而且根据解包阿比有个表情在剧情没有用到，可能圣诞完结后直接突入外星人篇章？ ...</blockquote>
 又学夏活结束接奏3这套？可这要是真的不该现在就出情报了吗....没必要还藏到现在啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  格林卡罗尔  
+##### 15498#       发表于 2024-12-23 07:53
+
+bb一直在放卫星上很内行，order call最早也是她说的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+而且下一章怎么说也是ruler回了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

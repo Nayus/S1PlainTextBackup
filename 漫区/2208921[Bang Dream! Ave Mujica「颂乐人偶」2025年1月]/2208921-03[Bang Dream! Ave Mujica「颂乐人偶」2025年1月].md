@@ -15000,3 +15000,15 @@ wsd的神秘宣发</blockquote>
 
 找到前两个本看了，亲亲我们初华不是这种病娇吧，别太爱病娇了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  3353764798  
+##### 4305#       发表于 2024-12-23 18:41
+
+ 本帖最后由 3353764798 于 2024-12-23 18:44 编辑 
+
+这么多人接受不了耳光吗，我怎么感觉无论轻还是真，女女关系性动漫里出现耳光的概率还挺高的，甚至可以说是定番，一起冲突必有人挨扇<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

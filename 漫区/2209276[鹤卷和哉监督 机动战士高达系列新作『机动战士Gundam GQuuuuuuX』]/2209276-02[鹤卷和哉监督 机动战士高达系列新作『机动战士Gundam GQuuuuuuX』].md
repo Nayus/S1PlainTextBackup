@@ -313,3 +313,14 @@ the begining剧场上映快倒计时一个月了吧？该进入宣发周期了 .
  肯定是想把世界观藏到剧场版上映来着的。但是事到如今要我说不如破罐子破摔大张旗鼓地去宣发得了 ...</blockquote>
 能知道泄漏消息的都是核心粉丝了，藏到剧场上映还是能吓一吓路人粉的
 
+
+*****
+
+####  RE㐅ia  
+##### 1508#       发表于 2024-12-23 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67000543&amp;ptid=2209276" target="_blank">王留美 发表于 2024-12-23 21:19</a>
+
+能知道泄漏消息的都是核心粉丝了，藏到剧场上映还是能吓一吓路人粉的</blockquote>
+这么藏着怕不是要等到剧场版上映才有pv2，然后番本身没准7月才能播出。这日子没法过了.jpg
+

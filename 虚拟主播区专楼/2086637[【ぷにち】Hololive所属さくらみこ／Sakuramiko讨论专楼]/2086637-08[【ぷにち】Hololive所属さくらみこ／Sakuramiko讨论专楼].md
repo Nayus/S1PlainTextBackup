@@ -1383,3 +1383,109 @@ miko准备了些什么垃圾礼物
 
 王牌环节都留着了，还加了一些新的收录节目
 
+
+*****
+
+####  holoan  
+##### 10469#         楼主| 发表于 2024-12-23 22:07
+
+<img src="https://img.saraba1st.com/forum/202412/23/220703x9cppemm99jc99x9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (208.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-23 22:07 上传
+
+*****
+
+####  holoan  
+##### 10470#         楼主| 发表于 2024-12-23 22:07
+
+​​桜とパン没安排了
+
+*****
+
+####  holoan  
+##### 10471#         楼主| 发表于 2024-12-23 22:08
+
+药剂师！！！！！！新的肥皂剧啊
+
+*****
+
+####  holoan  
+##### 10472#         楼主| 发表于 2024-12-23 22:10
+
+<img src="https://img.saraba1st.com/forum/202412/23/220958sr66zu4qhwh4fbn7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (134.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-23 22:09 上传
+
+封面，mio线下现场参加
+
+*****
+
+####  holoan  
+##### 10473#         楼主| 发表于 2024-12-23 22:11
+
+<img src="https://img.saraba1st.com/forum/202412/23/221143dty8y3uputu4ezd8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (232.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-23 22:11 上传
+
+
+*****
+
+####  holoan  
+##### 10474#         楼主| 发表于 2024-12-23 22:12
+
+竟然还有speciallive
+
+*****
+
+####  holoan  
+##### 10475#         楼主| 发表于 2024-12-23 22:13
+
+<img src="https://img.saraba1st.com/forum/202412/23/221345yok7kgkzemkd7zkt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (186.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-23 22:13 上传
+
+*****
+
+####  holoan  
+##### 10476#         楼主| 发表于 2024-12-23 22:14
+
+这次regloss出场率非常高，几乎全部出场了
+
+*****
+
+####  holoan  
+##### 10477#         楼主| 发表于 2024-12-23 22:15
+
+果然收录好的环节多了很多，跟我之前预想的一样
+
+*****
+
+####  holoan  
+##### 10478#         楼主| 发表于 2024-12-23 22:16
+
+<img src="https://img.saraba1st.com/forum/202412/23/221553r8yfmgf5c484d454.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (244.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-23 22:15 上传
+
+マツケン3倍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

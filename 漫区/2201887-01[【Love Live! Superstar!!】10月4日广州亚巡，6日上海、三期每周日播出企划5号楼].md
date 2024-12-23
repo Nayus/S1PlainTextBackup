@@ -13649,3 +13649,11 @@ OST有中文星巡，不知道会不会是完整版的<img src="https://static.s
 
 还别说，看完第三季我都有点跟第二季和解了，等哪天有心情了再回去看一遍 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csolfans  
+##### 1339#       发表于 2024-12-23 22:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">圣诞节要做监控室大爷了
+

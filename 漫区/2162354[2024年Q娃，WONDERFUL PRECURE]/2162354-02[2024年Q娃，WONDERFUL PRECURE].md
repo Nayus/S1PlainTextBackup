@@ -142,3 +142,14 @@ WELCOME TO MY HOME，LET"S 热烈的 诞生DAY
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">圣诞回无论是剧本还是作画抑或是演出的质量都真是一言难尽
 
+
+*****
+
+####  用户名1  
+##### 2682#       发表于 2024-12-23 21:01
+
+这集还挺好的，总结了小雪一年来的成长和石榴形成了对比组。看起来制作组确实打算做的是友情连接起大家的故事，从这上来说，觉得倒没跑偏。
+不过如果是这么一个方向。虎目和小麦，石榴和小雪，噶奥对应的应该是猫组和狗组了。那恋爱回的意义是？妮可不是还暗示主线相关吗？真要体现跨越种族的情谊不是小麦和悟谈恋爱更贴合主题吗
+
+—— 来自 vivo V2324A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

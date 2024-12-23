@@ -85,3 +85,14 @@
 我认识的大多白皮黑皮根本不看高达，多亏团长的梗才出圈的，水魔是很多老外的高达初体验 ...</blockquote>
 那之前欧美那边投票投元祖是第一是咋投出来的，水军吗
 
+
+*****
+
+####  中野梓  
+##### 1487#       发表于 2024-12-23 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66998381&amp;ptid=2209276" target="_blank">赤黑的假面 发表于 2024-12-23 16:39</a>
+
+那之前欧美那边投票投元祖是第一是咋投出来的，水军吗</blockquote>
+因为普通人不会去投票，只有婆罗门会积极参加
+

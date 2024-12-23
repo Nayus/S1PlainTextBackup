@@ -96,3 +96,14 @@
 那之前欧美那边投票投元祖是第一是咋投出来的，水军吗</blockquote>
 因为普通人不会去投票，只有婆罗门会积极参加
 
+
+*****
+
+####  赤黑的假面  
+##### 1488#       发表于 2024-12-23 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66998909&amp;ptid=2209276" target="_blank">中野梓 发表于 2024-12-23 17:44</a>
+
+因为普通人不会去投票，只有婆罗门会积极参加</blockquote>
+懂了，那还是普通人喜欢重要，婆罗门喜欢并不能兑换成实打实的钱，那也难怪富野在影视商业上干不过宫崎骏，只能靠卖玩具挽尊
+

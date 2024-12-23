@@ -162,3 +162,13 @@ SEED也被骂过，比如神意一开始被骂乌龟高达，而现在一提到�
 
 总之新作还得看其实际素质，现在骂或夸都为时尚早。
 
+
+*****
+
+####  PascalLefèvre  
+##### 1493#       发表于 2024-12-23 19:27
+
+白皮还真有不少觉得水魔好看的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+铁血就更不用说了
+

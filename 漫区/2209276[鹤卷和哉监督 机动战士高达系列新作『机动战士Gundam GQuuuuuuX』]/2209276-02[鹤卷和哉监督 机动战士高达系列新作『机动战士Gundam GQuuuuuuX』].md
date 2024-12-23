@@ -27,3 +27,37 @@
 而且 ...</blockquote>
 我认识的大多白皮黑皮根本不看高达，多亏团长的梗才出圈的，水魔是很多老外的高达初体验
 
+
+*****
+
+####  刺客ares  
+##### 1483#       发表于 2024-12-23 13:47
+
+ 本帖最后由 刺客ares 于 2024-12-23 13:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66996689&amp;ptid=2209276" target="_blank">王留美 发表于 2024-12-23 13:15</a>
+
+？
+
+铁血都那样子了有谁在水魔完结的时候去清算铁血啊
+
+好坏都是水魔自己的事情，凭啥水魔就要给GQX背锅</blockquote>
+是指5ch那些被水魔束缚的灵魂啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+本来种自上了之后，其中不少人已经转移视线，以另一种方式和水魔和解了
+
+结果新作和水魔要素重合过多，又把这帮人的ptsd勾了起来
+
+至于水魔和铁血，除了场外部分粉丝互嘴，场内的要素重叠真没这么多吧
+
+*****
+
+####  刺客ares  
+##### 1484#       发表于 2024-12-23 13:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66996772&amp;ptid=2209276" target="_blank">中野梓 发表于 2024-12-23 13:31</a>
+
+我认识的大多白皮黑皮根本不看高达，多亏团长的梗才出圈的，水魔是很多老外的高达初体验 ...</blockquote>
+这次新作也会成为很多人的年一高，比如一些新入场的宝可梦粉和EVA粉
+
+不过也有不少因为上次的年一高而选择观望到结局再入场的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

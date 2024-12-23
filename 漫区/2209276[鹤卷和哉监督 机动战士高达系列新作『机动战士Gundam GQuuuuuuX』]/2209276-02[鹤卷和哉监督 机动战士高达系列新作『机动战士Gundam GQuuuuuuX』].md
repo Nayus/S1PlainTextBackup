@@ -435,3 +435,13 @@ FRIDAY ANIME NIGHT档，1月接档药屋少女，确定半年
  另外这次听说还要上深夜档？是不是可以假药一下，剧情上有什么在白天播不了的东西 ...</blockquote>
 单纯是日TV没有日间档吧
 
+
+*****
+
+####  oi99o  
+##### 1514#       发表于 2024-12-24 00:04
+
+g复国也是深夜档来着，而且水魔在日五也有拍番茄，现在档期跟尺度没啥必然关系了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -15050,3 +15050,27 @@ wsd的神秘宣发</blockquote>
 
 睦祥至少得掐脖子吧
 
+
+*****
+
+####  哈曼的YY  
+##### 4309#       发表于 2024-12-23 23:59
+
+<img src="https://img.saraba1st.com/forum/202412/23/235950os0gzfgu61gs5gj8.jpg" referrerpolicy="no-referrer">
+
+<strong>GfdmZuFaQAAnAHZ.jpg</strong> (581.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-23 23:59 上传
+
+[https://x.com/Asahi_rise/status/1871076780779651362](https://x.com/Asahi_rise/status/1871076780779651362)
+
+
+*****
+
+####  哈曼的YY  
+##### 4310#       发表于 2024-12-24 00:04
+
+半身至少得有可以把bgm换成来吧甜蜜的死亡的场景吧
+

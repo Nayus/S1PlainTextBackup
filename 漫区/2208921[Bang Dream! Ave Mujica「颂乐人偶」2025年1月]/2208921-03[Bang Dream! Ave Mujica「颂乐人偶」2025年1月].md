@@ -14793,3 +14793,38 @@ https://x.com/jibliy81/status/1870816752600584597?s=46&amp;t=IZGx0N13SOtHALpwG0U
 史 上 最 狂
 <img src="https://p.sda1.dev/20/85cdeba17d71207978d978fef3d80b98/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  山ノ内花音  
+##### 4284#       发表于 2024-12-23 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66997034&amp;ptid=2208921" target="_blank">金属化反射装甲 发表于 2024-12-23 14:11</a>
+
+呃，我这好像看得到，是不是论坛出问题了</blockquote>
+[https://www.melonbooks.co.jp/detail/detail.php?product_id=2727901](https://www.melonbooks.co.jp/detail/detail.php?product_id=2727901)
+
+应该是这本吧 感觉真的很棒<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 4285#       发表于 2024-12-23 14:20
+
+wsd是不是把你鸡的预算全用在对外宣传上了，又是铺天盖地各种吹口号，又是倒贴鬼佬宣传的
+
+
+*****
+
+####  御幸一也  
+##### 4286#       发表于 2024-12-23 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66997092&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2024-12-23 14:19</a>
+
+https://www.melonbooks.co.jp/detail/detail.php?product_id=2727901
+
+应该是这本吧 感觉真的很棒 ...</blockquote>
+48P幼馴染三角戀全年齡本是真實的嗎<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+買買買
+

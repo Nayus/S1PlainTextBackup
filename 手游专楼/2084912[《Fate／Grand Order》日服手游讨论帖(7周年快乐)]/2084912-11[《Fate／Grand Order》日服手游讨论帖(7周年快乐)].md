@@ -3841,3 +3841,13 @@ EX又不能打暴击
 这纯蓝圣诞服是真的丑
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jackyhuang  
+##### 15568#       发表于 2024-12-25 00:22
+
+菌皇竟然没趁机更新一下日记<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+

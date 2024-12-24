@@ -13693,3 +13693,13 @@ OST有中文星巡，不知道会不会是完整版的<img src="https://static.s
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结那去花花家过平安夜还行，结花+结那妈妈+花花妈妈四人聚餐
 
+
+*****
+
+####  csolfans  
+##### 1344#       发表于 2024-12-24 20:23
+
+鱼生日会可能有直播？
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

@@ -41,3 +41,11 @@
 本来以为是绿色G2，没想到是绿色FAZE吗</blockquote>
 绿色faze？绿色老鼠！
 
+
+*****
+
+####  dev2ce  
+##### 4653#       发表于 2024-12-24 10:59
+
+胡来TV是真要把野榜搞成真的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">21年才正式加奖池到100w🔪，同时区别其他esl分站赛多了个playin
+

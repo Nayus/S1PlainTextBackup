@@ -1927,3 +1927,29 @@ Image_5910741956753.png
 
 好像几个月前的视频了吧
 
+
+*****
+
+####  super_uni  
+##### 7304#       发表于 2024-12-24 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66979272&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-12-21 10:21</a>
+ysx正好没玩 等皇家版了
+
+ysvs空轨我在psp上玩过 pve内容还行吧 和ys一样的流程 跑图闯关这种 pvp没体验过 ...</blockquote>
+vs的玲个人觉得是做的最好的一版
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+
+*****
+
+####  super_uni  
+##### 7305#       发表于 2024-12-24 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66979708&amp;ptid=2160194" target="_blank">a2042312 发表于 2024-12-21 11:42</a>
+应该会加点新角色吧，原汁原味不太可能。</blockquote>
+当年发售的时候里面有城管这个新角色，此时零轨还未发售<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.92
+

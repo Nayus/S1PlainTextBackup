@@ -1499,3 +1499,21 @@ Roselia 2025.02 上海场 已上线购票平台
 我这里是店员直接就说很难弄，几家罗森都跟我吐槽说以前这类活动都是每家门店都会配几个货，现在必须得从 ...</blockquote>
 这边店员和我说大概率不会补了，给了一个50块钱的赔偿方案<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">全完啦，这真是我见过最烂的联动
 
+
+*****
+
+####  footmanpon  
+##### 26756#       发表于 2024-12-24 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67007700&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2024-12-24 19:44</a>
+
+这边店员和我说大概率不会补了，给了一个50块钱的赔偿方案全完啦，这真是我见过最烂的联动 ...</blockquote>
+丸辣！<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ykyin09  
+##### 26757#       发表于 2024-12-24 20:46
+
+2.15大概都去看夜游了应该没人跟我抢萝了吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

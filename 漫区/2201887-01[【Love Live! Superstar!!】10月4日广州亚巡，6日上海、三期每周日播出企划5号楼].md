@@ -13703,3 +13703,16 @@ OST有中文星巡，不知道会不会是完整版的<img src="https://static.s
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  starring  
+##### 1345#       发表于 2024-12-24 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67007830&amp;ptid=2201887" target="_blank">csolfans 发表于 2024-12-24 20:06</a>
+
+结那去花花家过平安夜还行，结花+结那妈妈+花花妈妈四人聚餐</blockquote>
+<img src="https://p.sda1.dev/20/4a1852ecf9e1c6d2f0f0ea9d9f17c22d/QQ截图20241224204321.jpg" referrerpolicy="no-referrer">
+
+四舍五入算是见家长
+

@@ -79,3 +79,15 @@ dlc有追加新机体么？</blockquote>
 
 —— 来自 vivo V2408A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  有钱多买小人  
+##### 198#       发表于 2024-12-24 07:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66995113&amp;ptid=1974980" target="_blank">nakedsnake 发表于 2024-12-23 10:05</a>
+这每次进游戏就得改语言是bug嘛，而且设置界面都没汉化完
+
+—— 来自 vivo V2408A, Android 15上的 S1Next- ...</blockquote>
+感觉是，我也一样。现版本bug很多，vr根本用不了，得进beta回退上个版本。
+

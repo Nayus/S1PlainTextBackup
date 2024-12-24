@@ -3876,3 +3876,13 @@ EX又不能打暴击
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">抽完看到这大招动画我就后悔了....这脸怎么能唐成这样
 
+
+*****
+
+####  angelooo  
+##### 15572#       发表于 2024-12-25 01:31
+
+<blockquote>森兰丸 发表于 2024-12-25 01:01
+抽完看到这大招动画我就后悔了....这脸怎么能唐成这样</blockquote>
+女教皇：你看过我的宝具之后还不明白吗
+

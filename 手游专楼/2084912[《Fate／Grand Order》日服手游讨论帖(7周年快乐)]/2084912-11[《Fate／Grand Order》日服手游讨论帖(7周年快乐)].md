@@ -3894,3 +3894,11 @@ EX又不能打暴击
 
 有点怀疑新卡是不是一开始准备送的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  白金口袋  
+##### 15574#       发表于 2024-12-25 02:21
+
+840石+23呼符才1宝，省着没抽娄希的全还回去了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

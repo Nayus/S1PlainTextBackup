@@ -15074,3 +15074,43 @@ wsd的神秘宣发</blockquote>
 
 半身至少得有可以把bgm换成来吧甜蜜的死亡的场景吧
 
+
+*****
+
+####  Aendst  
+##### 4311#       发表于 2024-12-24 11:37
+
+ 本帖最后由 Aendst 于 2024-12-24 11:39 编辑 
+
+<img src="https://img.saraba1st.com/forum/202412/24/113613rlzaeeu8uojeqaue.png" referrerpolicy="no-referrer">
+
+<strong>image3.png</strong> (20.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-24 11:36 上传
+
+图加载不出来补充一下文字 <blockquote>スタッフ
+
+    原作：ブシロード
+
+    監督：柿本広大
+
+    シリーズ構成・脚本：綾奈ゆにこ
+
+    脚本：後藤みどり、小川ひとみ、和場明子、晴日たに</blockquote>
+
+新宿场的作品详情里系构脚本是这样写的
+
+不知道是单指前三话还是13话全话
+
+从这个写法上来说，很可能绫奈进行了全话各话脚本的写作和监修
+
+
+*****
+
+####  御幸一也  
+##### 4312#       发表于 2024-12-24 11:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">每一話都？綾奈對mujica劇本傾注太多的愛了
+

@@ -3223,3 +3223,15 @@ bb一直在放卫星上很内行，order call最早也是她说的。<img src="h
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  khxooo  
+##### 15508#       发表于 2024-12-24 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67001315&amp;ptid=2084912" target="_blank">格林卡罗尔 发表于 2024-12-23 23:26</a>
+还真有大的，个人房间里还能看到倒计时
+
+—— 来自 鹅球 v3.0.86-alpha</blockquote>
+哪里，我找不到<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

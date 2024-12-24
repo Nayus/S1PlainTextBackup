@@ -3374,3 +3374,11 @@ room的电脑屏幕上有时间：</blockquote>
 
 要是赌输了扣我1鹅，别扣多了<img src="https://static.saraba1st.com/image/smiley/goose2017/006.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  格林卡罗尔  
+##### 15522#       发表于 2024-12-24 19:54
+
+没想到有赌这边的，标记一下以免忘记扣鹅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

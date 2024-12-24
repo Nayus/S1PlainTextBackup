@@ -3294,3 +3294,31 @@ room的电脑屏幕上有时间：</blockquote>
 
 新的整活，新的bug，新的补偿，期待
 
+
+*****
+
+####  乾理央  
+##### 15513#       发表于 2024-12-24 16:06
+
+之前送的三十石
+
+彩圈，金卡，狂阶！
+
+大公<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗赫伯特  
+##### 15514#       发表于 2024-12-24 16:07
+
+大的要来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  乾理央  
+##### 15515#       发表于 2024-12-24 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63491602&amp;ptid=2084912" target="_blank">乾理央 发表于 2023-12-31 13:28</a>
+180池，摸了摸了</blockquote>
+去年180池，今年421池收工，苹果一个也没有力<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

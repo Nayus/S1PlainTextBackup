@@ -1489,3 +1489,13 @@ Roselia 2025.02 上海场 已上线购票平台
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">情报哥
 
+
+*****
+
+####  CyDiablo  
+##### 26755#       发表于 2024-12-24 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67007354&amp;ptid=2159415" target="_blank">footmanpon 发表于 2024-12-24 18:45</a>
+我这里是店员直接就说很难弄，几家罗森都跟我吐槽说以前这类活动都是每家门店都会配几个货，现在必须得从 ...</blockquote>
+这边店员和我说大概率不会补了，给了一个50块钱的赔偿方案<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">全完啦，这真是我见过最烂的联动
+

@@ -15332,3 +15332,18 @@ wsd的神秘宣发</blockquote>
 
 毕竟访谈有说喵梦好几次大事件都有她的身影
 
+
+*****
+
+####  山ノ内花音  
+##### 4331#       发表于 2024-12-24 19:42
+
+这张图感觉像高中生 做好喵梦其实才高一的心理准备了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qjw114514  
+##### 4332#       发表于 2024-12-24 19:44
+
+大喵是学生的话考虑到人数平衡，会是考入月之森的普通家庭孩子吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

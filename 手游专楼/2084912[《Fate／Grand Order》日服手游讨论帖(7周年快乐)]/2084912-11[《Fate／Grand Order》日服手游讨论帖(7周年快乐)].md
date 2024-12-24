@@ -3364,3 +3364,13 @@ room的电脑屏幕上有时间：</blockquote>
 
 也许是雷夫炸弹的倒计时
 
+
+*****
+
+####  大十字紅朔  
+##### 15521#       发表于 2024-12-24 18:00
+
+我赌1鹅，没有大的，活动时间之后就是阿比给你发个圣诞祝福的语音什么的
+
+要是赌输了扣我1鹅，别扣多了<img src="https://static.saraba1st.com/image/smiley/goose2017/006.png" referrerpolicy="no-referrer">
+

@@ -3398,3 +3398,14 @@ room的电脑屏幕上有时间：</blockquote>
 
 刷到40箱，發現還未能全換商店貨品
 
+
+*****
+
+####  alucardcz  
+##### 15525#       发表于 2024-12-24 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67007812&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-12-24 20:04</a>
+
+刷了69池刷不动了....就这样吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">豹师傅太强了 萌新最终16池
+

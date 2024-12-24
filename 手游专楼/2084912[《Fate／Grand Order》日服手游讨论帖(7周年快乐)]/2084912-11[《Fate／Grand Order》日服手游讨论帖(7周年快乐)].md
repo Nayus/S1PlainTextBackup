@@ -3588,3 +3588,84 @@ room的电脑屏幕上有时间：</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
 
+
+*****
+
+####  保罗赫伯特  
+##### 15544#       发表于 2024-12-24 23:18
+
+今年流行活动拼一起吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 15545#       发表于 2024-12-24 23:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">1石的我笑了
+
+*****
+
+####  rooarr  
+##### 15546#       发表于 2024-12-24 23:19
+
+这次该送30石了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  angelooo  
+##### 15547#       发表于 2024-12-24 23:19
+
+这满破什么垃圾构图
+
+
+*****
+
+####  格林卡罗尔  
+##### 15548#       发表于 2024-12-24 23:24
+
+这卡也能说菜？
+
+一技能30群充20c
+
+自buff a30b20c20d恶150
+
+还有个被动暗黑场地下a20
+
+*****
+
+####  大十字紅朔  
+##### 15549#       发表于 2024-12-24 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67009012&amp;ptid=2084912" target="_blank">zechins 发表于 2024-12-24 23:11</a>
+
+我是梭哈公主还是留着元旦？</blockquote>
+估计元旦应该是理查德吧？
+
+*****
+
+####  Jamaisvu  
+##### 15550#       发表于 2024-12-24 23:25
+
+<img src="https://img.saraba1st.com/forum/202412/24/232501gnrzr64268bixuic.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>fc1f4134970a304e251fa299b79fb086c9177f3ef603.webp</strong> (215.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-24 23:25 上传
+
+转自百度百科：
+
+白色月姬，漫画《Take moon》中的角色。在《FATE 老虎竞技场 Upper》中，作为魔法四天王登场。
+
+更加追求本源的话，是最初出现在武梨老师的同人漫画《Take moon》中，之后也作为主角在动画《ファンタズムーン（幻象之月）》（虚构）、《カーニバル・ファンタズム（幻想嘉年华）》也有登场。
+
+*****
+
+####  angelooo  
+##### 15551#       发表于 2024-12-24 23:26
+
+卧槽深崎暮人画的这个礼装太好看了
+

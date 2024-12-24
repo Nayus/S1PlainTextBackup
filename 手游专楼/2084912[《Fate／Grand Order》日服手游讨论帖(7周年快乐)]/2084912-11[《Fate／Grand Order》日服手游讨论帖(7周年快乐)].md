@@ -3902,3 +3902,11 @@ EX又不能打暴击
 
 840石+23呼符才1宝，省着没抽娄希的全还回去了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 15575#       发表于 2024-12-25 03:04
+
+不枉我等到现在，一个10连到手<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

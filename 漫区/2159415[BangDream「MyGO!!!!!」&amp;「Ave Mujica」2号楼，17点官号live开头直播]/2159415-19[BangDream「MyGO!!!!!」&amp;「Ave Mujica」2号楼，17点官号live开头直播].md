@@ -1412,3 +1412,18 @@ mujica漫画
 李老师本身就是邦邦人啊（）
 而且他是萝厨（）
 
+
+*****
+
+####  吹楼伞人  
+##### 26747#       发表于 2024-12-24 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67004627&amp;ptid=2159415" target="_blank">SakuraのOrigami 发表于 2024-12-24 13:23</a>
+
+李老师本身就是邦邦人啊（）
+
+而且他是萝厨（）</blockquote>
+原来是这样
+
+一直看他发的奇怪改编曲视频<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

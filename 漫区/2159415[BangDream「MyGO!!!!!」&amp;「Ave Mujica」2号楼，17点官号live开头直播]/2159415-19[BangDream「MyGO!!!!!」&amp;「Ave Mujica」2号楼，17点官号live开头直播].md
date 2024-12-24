@@ -1462,3 +1462,22 @@ Roselia 2025.02 上海场 已上线购票平台
 
 <img src="https://p.sda1.dev/20/a4eb84d7623dc932bf34c22e9b1e5e29/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  10th_Mystery  
+##### 26752#       发表于 2024-12-24 18:41
+
+<img src="https://p.sda1.dev/20/2906ae19afd46b22d01f5dbc86153fdd/525.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  footmanpon  
+##### 26753#       发表于 2024-12-24 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67006930&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2024-12-24 17:54</a>
+
+我这边五个上周说一周内到，然后这两天开始装死了，真幽默</blockquote>
+我这里是店员直接就说很难弄，几家罗森都跟我吐槽说以前这类活动都是每家门店都会配几个货，现在必须得从订货系统订不说，而且配货部门也不会给他们答复有没有/几时到，感觉希望渺茫了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+

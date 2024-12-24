@@ -2265,7 +2265,7 @@
     "lastedit": 1735053120,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1804478": {
     "totalreply": 1242,
@@ -8631,10 +8631,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 115631,
+    "totalreply": 115633,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1735072210,
+    "lastedit": 1735072810,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10791,10 +10791,10 @@
     "update": false
   },
   "2042325": {
-    "totalreply": 2861,
+    "totalreply": 2862,
     "title": "[《雄狮少年》真是远超预期的好看]",
     "newtitle": "[《雄狮少年》真是远超预期的好看]",
-    "lastedit": 1735061898,
+    "lastedit": 1735073290,
     "category": "漫区",
     "active": true,
     "update": false
@@ -16871,7 +16871,7 @@
     "newtitle": "[俄罗斯将部分哈萨克斯坦铀矿股份出售给中企]",
     "lastedit": 1734813127,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2214114": {

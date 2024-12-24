@@ -15114,3 +15114,14 @@ wsd的神秘宣发</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">每一話都？綾奈對mujica劇本傾注太多的愛了
 
+
+*****
+
+####  抽搐一下  
+##### 4313#       发表于 2024-12-24 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67003840&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-24 11:37</a>
+
+图加载不出来补充一下文字</blockquote>
+三话的话5个脚本就太多了
+

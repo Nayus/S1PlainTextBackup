@@ -15133,3 +15133,33 @@ wsd的神秘宣发</blockquote>
 
 晴日たに看样子应该是武士道那边的人吧，虽然会写上她，但是就mygo动画staff表看来似乎并不是会写各话脚本的人呢
 
+
+*****
+
+####  抽搐一下  
+##### 4315#       发表于 2024-12-24 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67004202&amp;ptid=2208921" target="_blank">vigada 发表于 2024-12-24 12:21</a>
+
+晴日たに看样子应该是武士道那边的人吧，虽然会写上她，但是就mygo动画staff表看来似乎并不是会写各话脚本 ...</blockquote>
+看mygo staff表也写上了她，但单话脚本的名字又没她。这种先行上映的staff表之前惯例是怎么写的也不好找，想找参考找不到。
+
+*****
+
+####  akiomn  
+##### 4316#       发表于 2024-12-24 12:59
+
+五个脚本过于重量级了吧<img src="https://static.saraba1st.com/image/smiley/face2017/188.png" referrerpolicy="no-referrer">这个意思是前三话每一话都有独角兽兼修吗
+
+
+*****
+
+####  抽搐一下  
+##### 4317#       发表于 2024-12-24 13:04
+
+ 本帖最后由 抽搐一下 于 2024-12-24 13:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67004473&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-24 12:59</a>
+
+五个脚本过于重量级了吧这个意思是前三话每一话都有独角兽兼修吗</blockquote>
+晴日たに我猜跟班学习的，找不到行业惯例先行上映写的是不是全集脚本，如果就三话的话第一集：后藤绿，独角兽，第二集小川瞳，独角兽，第三集和場明子，独角兽，可不是好信号。
+

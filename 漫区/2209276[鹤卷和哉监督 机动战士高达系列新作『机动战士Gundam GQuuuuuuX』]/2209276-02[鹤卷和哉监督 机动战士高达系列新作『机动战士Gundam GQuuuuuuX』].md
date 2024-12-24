@@ -505,3 +505,13 @@ TB和哈萨维都在日五播过，谁还认为档期跟尺度有关系的<img s
 
 不用想100%复读，目前这情报宣发捂的，全靠内鬼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RE㐅ia  
+##### 1522#       发表于 2024-12-24 22:34
+
+<blockquote>刺客ares 发表于 2024-12-24 21:26
+不用想100%复读，目前这情报宣发捂的，全靠内鬼</blockquote>
+好像有飞鸟的the edge大跨页。明天去买个顺便瞅瞅情报能有多新
+

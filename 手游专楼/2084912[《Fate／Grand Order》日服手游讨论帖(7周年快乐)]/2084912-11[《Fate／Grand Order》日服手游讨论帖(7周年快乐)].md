@@ -3409,3 +3409,24 @@ room的电脑屏幕上有时间：</blockquote>
 刷了69池刷不动了....就这样吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">豹师傅太强了 萌新最终16池
 
+
+*****
+
+####  森兰丸  
+##### 15526#       发表于 2024-12-24 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67008678&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-24 22:03</a>
+
+豹师傅太强了 萌新最终16池</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">16池商店都搬不空啊....萌新不要材料了么
+
+*****
+
+####  alucardcz  
+##### 15527#       发表于 2024-12-24 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67008882&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-12-24 22:34</a>
+
+16池商店都搬不空啊....萌新不要材料了么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">根本没地方用
+

@@ -1401,3 +1401,14 @@ mujica漫画
 
 这位是老萝批了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SakuraのOrigami  
+##### 26746#       发表于 2024-12-24 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67000821&amp;ptid=2159415" target="_blank">吹楼伞人 发表于 2024-12-23 22:02</a>
+关注了好些年的作曲up变成精英go批了</blockquote>
+李老师本身就是邦邦人啊（）
+而且他是萝厨（）
+

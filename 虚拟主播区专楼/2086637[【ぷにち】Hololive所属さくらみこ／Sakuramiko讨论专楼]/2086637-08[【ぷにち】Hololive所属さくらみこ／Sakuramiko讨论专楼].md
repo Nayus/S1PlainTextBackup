@@ -1571,3 +1571,28 @@ flowgrow
 
 2024-12-24 13:01 上传
 
+
+*****
+
+####  holoan  
+##### 10486#         楼主| 发表于 2024-12-24 13:16
+
+感觉像是突发线下联动，而且前1小时还要跟486线上对战，到底是跟谁呢
+
+fbk晚上会限直播所以也不是
+
+*****
+
+####  holoan  
+##### 10487#         楼主| 发表于 2024-12-24 13:23
+
+<img src="https://img.saraba1st.com/forum/202412/24/132330wexcigxggd2aicbd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (5.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-24 13:23 上传
+
+标题也很有得猜
+

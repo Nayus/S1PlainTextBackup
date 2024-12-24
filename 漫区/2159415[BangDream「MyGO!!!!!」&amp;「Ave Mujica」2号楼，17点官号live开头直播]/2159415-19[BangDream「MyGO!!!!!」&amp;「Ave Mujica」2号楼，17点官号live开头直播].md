@@ -1427,3 +1427,11 @@ mujica漫画
 
 一直看他发的奇怪改编曲视频<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  footmanpon  
+##### 26748#       发表于 2024-12-24 14:25
+
+问一下，冰箱贴还有办法换到吗，之前积点换了一张券，但是家附近的罗森问了圈都说配不到货，已经没救了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

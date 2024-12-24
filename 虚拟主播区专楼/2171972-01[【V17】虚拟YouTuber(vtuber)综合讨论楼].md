@@ -147,3 +147,15 @@ Nornis Tensegrity 8668
 
 O榜有没有计算黑黑box的销量？两个人要打不过一个人的销量这组合也没啥搞头了
 
+
+*****
+
+####  吃咸菜的  
+##### 977#       发表于 2024-12-24 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67004841&amp;ptid=2171972" target="_blank">freakystar 发表于 2024-12-24 13:54</a>
+O榜有没有计算黑黑box的销量？两个人要打不过一个人的销量这组合也没啥搞头了 ...</blockquote>
+ChroNoiR Wonder Wander World 50281
+今年就这一张吧，三年前一专king6w二哥3w，组合5w算多了
+而且king环球二哥烂铁，黑黑是彩虹自家厂牌，销量差不多不如自己拿着ip
+

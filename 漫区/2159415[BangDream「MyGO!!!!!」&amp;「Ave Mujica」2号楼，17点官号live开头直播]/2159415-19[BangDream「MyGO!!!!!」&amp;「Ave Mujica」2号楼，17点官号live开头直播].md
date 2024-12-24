@@ -1481,3 +1481,11 @@ Roselia 2025.02 上海场 已上线购票平台
 我这边五个上周说一周内到，然后这两天开始装死了，真幽默</blockquote>
 我这里是店员直接就说很难弄，几家罗森都跟我吐槽说以前这类活动都是每家门店都会配几个货，现在必须得从订货系统订不说，而且配货部门也不会给他们答复有没有/几时到，感觉希望渺茫了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kasroz  
+##### 26754#       发表于 2024-12-24 18:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">情报哥
+

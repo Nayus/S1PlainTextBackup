@@ -2265,7 +2265,7 @@
     "lastedit": 1735053120,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1804478": {
     "totalreply": 1242,
@@ -10638,12 +10638,12 @@
     "update": false
   },
   "2166693": {
-    "totalreply": 107,
+    "totalreply": 108,
     "title": "[独自一人的异世界攻略 动]",
     "newtitle": "[独自一人的异世界攻略 动]",
-    "lastedit": 1734703095,
+    "lastedit": 1735081088,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2206767": {
@@ -16596,10 +16596,10 @@
     "update": false
   },
   "2212321": {
-    "totalreply": 600,
+    "totalreply": 601,
     "title": "[黑神话居然上新闻联播了]",
     "newtitle": "[黑神话居然上新闻联播了]",
-    "lastedit": 1735078930,
+    "lastedit": 1735080729,
     "category": "外野",
     "active": true,
     "update": false
@@ -18216,10 +18216,10 @@
     "update": false
   },
   "2219276": {
-    "totalreply": 49,
+    "totalreply": 51,
     "title": "[迪士尼据传远离“文化战争”：“政治不利于商业”]",
     "newtitle": "[迪士尼据传远离“文化战争”：“政治不利于商业”]",
-    "lastedit": 1735077013,
+    "lastedit": 1735080730,
     "category": "外野",
     "active": true,
     "update": false

@@ -1233,3 +1233,11 @@ zsbd
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">主播和他玩的时候声线和直播完全不一样，音调高得声卡都失真了。有点破防，这种小圈子的人才能看到的不同的一面不要啊
 
+
+*****
+
+####  TiHaru  
+##### 17730#       发表于 2024-12-24 10:30
+
+原来是前男友
+

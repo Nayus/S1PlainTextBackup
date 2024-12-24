@@ -3886,3 +3886,11 @@ EX又不能打暴击
 抽完看到这大招动画我就后悔了....这脸怎么能唐成这样</blockquote>
 女教皇：你看过我的宝具之后还不明白吗
 
+
+*****
+
+####  保罗赫伯特  
+##### 15573#       发表于 2024-12-25 01:44
+
+有点怀疑新卡是不是一开始准备送的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

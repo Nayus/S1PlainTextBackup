@@ -3430,3 +3430,25 @@ room的电脑屏幕上有时间：</blockquote>
 16池商店都搬不空啊....萌新不要材料了么</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">根本没地方用
 
+
+*****
+
+####  森兰丸  
+##### 15528#       发表于 2024-12-24 23:02
+
+草草草还真来了一波大的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 15529#       发表于 2024-12-24 23:04
+
+牛逼了，突袭给你出个魔法少女公主<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  GuDaZi  
+##### 15530#       发表于 2024-12-24 23:05
+
+周年从者也就这几天了
+

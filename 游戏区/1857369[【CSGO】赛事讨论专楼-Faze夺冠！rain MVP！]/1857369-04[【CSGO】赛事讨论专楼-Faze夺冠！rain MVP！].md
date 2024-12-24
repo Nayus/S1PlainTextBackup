@@ -30,3 +30,14 @@
 
 本来以为是绿色G2，没想到是绿色FAZE吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  恶搞之王  
+##### 4652#       发表于 2024-12-24 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67002480&amp;ptid=1857369" target="_blank">heseran 发表于 2024-12-24 09:15</a>
+
+本来以为是绿色G2，没想到是绿色FAZE吗</blockquote>
+绿色faze？绿色老鼠！
+

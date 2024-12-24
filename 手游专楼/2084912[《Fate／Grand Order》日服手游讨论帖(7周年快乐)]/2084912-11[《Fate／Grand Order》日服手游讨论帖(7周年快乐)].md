@@ -3868,3 +3868,11 @@ EX又不能打暴击
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  森兰丸  
+##### 15571#       发表于 2024-12-25 01:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">抽完看到这大招动画我就后悔了....这脸怎么能唐成这样
+

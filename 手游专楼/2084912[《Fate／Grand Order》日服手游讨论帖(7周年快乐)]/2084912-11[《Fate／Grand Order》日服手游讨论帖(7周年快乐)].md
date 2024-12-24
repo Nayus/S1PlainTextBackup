@@ -3322,3 +3322,19 @@ room的电脑屏幕上有时间：</blockquote>
 180池，摸了摸了</blockquote>
 去年180池，今年421池收工，苹果一个也没有力<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 15516#       发表于 2024-12-24 16:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我只有整烂活的预感
+
+
+*****
+
+####  琴酒  
+##### 15517#       发表于 2024-12-24 16:18
+
+什么时候调整下qb上限啊
+

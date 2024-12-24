@@ -1380,3 +1380,16 @@ AA炮塔同坦克炮塔，不同的是正面铆钉处可以被四穿武器打出
 
 小车有点牛逼啊，能挪到副驾打枪，单人驾驶清点不用下车，要是能从驾驶直接切到机枪位就更完美了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  thermite  
+##### 5684#       发表于 2024-12-25 01:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67002360&amp;ptid=2170852" target="_blank">Z7AlZI7VZT 发表于 2024-12-24 08:58</a>
+
+政委通行证里带眩晕弹的喷子打光能者非常舒服，除了三脚猎杀器以外的怪都能控，俩小体型精英怪控住用左轮或 ...</blockquote>
+止息？
+
+那玩意好是好，但是逐发上弹在被围住的时候实在是要命<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

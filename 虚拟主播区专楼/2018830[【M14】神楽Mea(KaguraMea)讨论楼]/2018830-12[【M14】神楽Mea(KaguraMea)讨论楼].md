@@ -1297,3 +1297,13 @@ lol车队的野男人实锤前男友了？
 卧槽，这事别说当年，就是当 ...</blockquote>
 正好帮我回忆一下，忘了是在自己直播间还是苔苔直播间，她说过，跟一朋友过度依存后来厌倦了，大吵一架后就绝交了。有人记得吗。
 
+
+*****
+
+####  sino__unnko3  
+##### 17737#       发表于 2024-12-24 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67006200&amp;ptid=2018830" target="_blank">秋游刃 发表于 2024-12-24 16:30</a>
+正好帮我回忆一下，忘了是在自己直播间还是苔苔直播间，她说过，跟一朋友过度依存后来厌倦了，大吵一架后 ...</blockquote>
+有印象但是本地文件没搜到
+

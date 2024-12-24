@@ -3452,3 +3452,139 @@ room的电脑屏幕上有时间：</blockquote>
 
 周年从者也就这几天了
 
+
+*****
+
+####  angelooo  
+##### 15531#       发表于 2024-12-24 23:06
+
+什么还能空降活动和卡池的？？？
+
+*****
+
+####  rooarr  
+##### 15532#       发表于 2024-12-24 23:06
+
+圣诞刷新活动，有你的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  quanlix  
+##### 15533#       发表于 2024-12-24 23:07
+
+29号还要砍柱子
+
+*****
+
+####  exiaexa  
+##### 15534#       发表于 2024-12-24 23:09
+
+不得不感叹一句，今年这么缺kpi吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jackyhuang  
+##### 15535#       发表于 2024-12-24 23:10
+
+哪有晚上突击开新活动的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+*****
+
+####  壳壳牛  
+##### 15536#       发表于 2024-12-24 23:11
+
+艹池子还没抽就无缝活动啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+*****
+
+####  zechins  
+##### 15537#       发表于 2024-12-24 23:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">我是梭哈公主还是留着元旦？
+
+*****
+
+####  eilot  
+##### 15538#       发表于 2024-12-24 23:12
+
+居然无缝開新活动???
+
+魔法少女笨公主池
+
+
+*****
+
+####  Jamaisvu  
+##### 15539#       发表于 2024-12-24 23:12
+
+ 本帖最后由 Jamaisvu 于 2024-12-24 23:18 编辑 
+
+魔法少女白公主卡面：
+
+<img src="https://img.saraba1st.com/forum/202412/24/231646bafyz55k755ufu2v.jpg" referrerpolicy="no-referrer">
+
+<strong>E3E05FF754905E8860CD4DDCDCD4AA74.jpg</strong> (328.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-24 23:16 上传
+
+技能解包：
+
+<img src="https://img.saraba1st.com/forum/202412/24/231656dwywlzz4qpwjbw8v.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20241224_231555.jpg</strong> (556.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-24 23:16 上传
+
+<img src="https://img.saraba1st.com/forum/202412/24/231657ewnine595enw5ss6.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20241224_231605.jpg</strong> (736.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-24 23:16 上传
+
+上次抽地球姬五宝已经付过情怀费了，这次强度看起来一般，就量力而行吧...
+
+*****
+
+####  格林卡罗尔  
+##### 15540#       发表于 2024-12-24 23:13
+
+又不是什么主线章节，没有连出三张强力从者的道理，感觉可以直接抽
+
+*****
+
+####  rooarr  
+##### 15541#       发表于 2024-12-24 23:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">抽不动了，等福袋看看哪位赏脸了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  khxooo  
+##### 15542#       发表于 2024-12-24 23:17
+
+登不进去了，公主的杀伤力果然大<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  壳壳牛  
+##### 15543#       发表于 2024-12-24 23:17
+
+服了怎么还有柱子的...
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+

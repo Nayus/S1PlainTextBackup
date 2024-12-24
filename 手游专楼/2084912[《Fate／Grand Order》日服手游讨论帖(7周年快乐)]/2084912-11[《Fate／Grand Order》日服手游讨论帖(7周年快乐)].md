@@ -3823,3 +3823,21 @@ EX又不能打暴击
 
 无限池接柱子 苹果刷光的人只能氪金了吧 笑死<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 15566#       发表于 2024-12-24 23:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚看到池子甚至只到31号结束 连5呼符都不让你赌一手的
+
+*****
+
+####  exiaexa  
+##### 15567#       发表于 2024-12-24 23:57
+
+3破拿去打了一架
+
+这纯蓝圣诞服是真的丑
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

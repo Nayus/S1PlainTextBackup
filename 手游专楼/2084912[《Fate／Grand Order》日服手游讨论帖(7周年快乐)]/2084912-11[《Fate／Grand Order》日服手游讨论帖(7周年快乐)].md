@@ -3918,3 +3918,34 @@ EX又不能打暴击
 
 没有再抢C妈啊，也省得画一个没杖的立绘<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  白金口袋  
+##### 15577#       发表于 2024-12-25 02:21
+
+840石+23呼符才1宝，省着没抽娄希的全还回去了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 15578#       发表于 2024-12-25 03:04
+
+不枉我等到现在，一个10连到手<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DARKGRAY  
+##### 15579#       发表于 2024-12-25 03:15
+
+没有再抢C妈啊，也省得画一个没杖的立绘<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  壳壳牛  
+##### 15580#       发表于 2024-12-25 06:37
+
+怎么白纸本没减半...
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+

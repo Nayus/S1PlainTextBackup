@@ -497,3 +497,11 @@ TB和哈萨维都在日五播过，谁还认为档期跟尺度有关系的<img s
 
 对明天的杂志缺乏新情报的期待
 
+
+*****
+
+####  刺客ares  
+##### 1521#       发表于 2024-12-24 21:26
+
+不用想100%复读，目前这情报宣发捂的，全靠内鬼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

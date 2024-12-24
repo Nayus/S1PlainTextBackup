@@ -3669,3 +3669,73 @@ room的电脑屏幕上有时间：</blockquote>
 
 卧槽深崎暮人画的这个礼装太好看了
 
+
+*****
+
+####  岸波白野  
+##### 15552#       发表于 2024-12-24 23:28
+
+娄希刚屈辱保底真是来骗来偷袭<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  大十字紅朔  
+##### 15553#       发表于 2024-12-24 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67009109&amp;ptid=2084912" target="_blank">格林卡罗尔 发表于 2024-12-24 23:24</a>
+
+这卡也能说菜？
+
+一技能30群充20c
+
+自buff a30b20c20d恶150</blockquote>
+EX攻击全体化能和锁卡组合用吗？
+
+暂时不太懂这个卡怎么用
+
+
+*****
+
+####  exiaexa  
+##### 15554#       发表于 2024-12-24 23:35
+
+NMD久违的吃了一发硬保底，还是让富哥们去氪吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 15555#       发表于 2024-12-24 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67009143&amp;ptid=2084912" target="_blank">大十字紅朔 发表于 2024-12-24 23:31</a>
+EX攻击全体化能和锁卡组合用吗？
+
+暂时不太懂这个卡怎么用</blockquote>
+你就忘了这个效果吧，这卡从职介到自buff群体buff充能都非常理想，不需要花里胡哨的，就是个单体烟雾镜
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  alucardcz  
+##### 15556#       发表于 2024-12-24 23:37
+
+卡面0分  强度目前看上去有一种数值美（
+
+*****
+
+####  gpx234mqx  
+##### 15557#       发表于 2024-12-24 23:37
+
+30连到货
+
+<img src="https://img.saraba1st.com/forum/202412/24/233754ckizwyz4y5feze4y.png" referrerpolicy="no-referrer">
+
+<strong>73FFF44D-FFC9-4259-ACAD-951521329412.png</strong> (998.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-24 23:37 上传
+

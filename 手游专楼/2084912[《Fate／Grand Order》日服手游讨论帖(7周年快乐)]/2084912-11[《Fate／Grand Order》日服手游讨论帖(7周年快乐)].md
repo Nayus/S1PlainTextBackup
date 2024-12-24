@@ -3910,3 +3910,11 @@ EX又不能打暴击
 
 不枉我等到现在，一个10连到手<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DARKGRAY  
+##### 15576#       发表于 2024-12-25 03:15
+
+没有再抢C妈啊，也省得画一个没杖的立绘<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -3245,3 +3245,34 @@ bb一直在放卫星上很内行，order call最早也是她说的。<img src="h
 
 — from nubia NX729J, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
 
+
+*****
+
+####  Jamaisvu  
+##### 15510#       发表于 2024-12-24 14:30
+
+<blockquote>khxooo 发表于 2024-12-24 11:44
+哪里，我找不到</blockquote>
+
+room的电脑屏幕上有时间：
+
+<img src="https://img.saraba1st.com/forum/202412/24/143113m8nxyx587xzx88xs.png" referrerpolicy="no-referrer">
+
+<strong>1735021800979.png</strong> (67.11 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-24 14:31 上传
+
+不过第一部没通关玩家的room里也有，可能跟主线无关吧？
+
+<img src="https://img.saraba1st.com/forum/202412/24/143054qu6zvxqni3wgfgn6.jpg" referrerpolicy="no-referrer">
+
+<strong>1735021808050.jpg</strong> (272.02 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-24 14:30 上传
+

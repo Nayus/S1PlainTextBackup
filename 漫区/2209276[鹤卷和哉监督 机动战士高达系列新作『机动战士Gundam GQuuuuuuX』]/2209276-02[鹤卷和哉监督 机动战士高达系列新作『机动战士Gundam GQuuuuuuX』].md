@@ -469,3 +469,13 @@ g复国也是深夜档来着，而且水魔在日五也有拍番茄，现在档�
 
 TB和哈萨维都在日五播过，谁还认为档期跟尺度有关系的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PascalLefèvre  
+##### 1518#       发表于 2024-12-24 14:27
+
+两季来自深渊和少歌都是这位诶
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

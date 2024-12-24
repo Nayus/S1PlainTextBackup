@@ -3851,3 +3851,20 @@ EX又不能打暴击
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
 
+
+*****
+
+####  khxooo  
+##### 15569#       发表于 2024-12-25 00:47
+
+幸好还有200多金苹果<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 15570#       发表于 2024-12-25 00:49
+
+我在思考仓库管理，感觉会很累
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

@@ -15191,3 +15191,14 @@ wsd的神秘宣发</blockquote>
 第一话双脚本的就有猜测，等12.27看完staff表 ...</blockquote>
 带入坟墓的作品？ 独角兽现在和wsd是什么状态？完全闹掰了么？
 
+
+*****
+
+####  抽搐一下  
+##### 4321#       发表于 2024-12-24 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67004588&amp;ptid=2208921" target="_blank">xwr 发表于 2024-12-24 13:18</a>
+
+带入坟墓的作品？ 独角兽现在和wsd是什么状态？完全闹掰了么？</blockquote>
+最早提坟墓是2023年7月，那时候还没有异常迹象，就是倾注了太多心血以至于到脚本生涯的一个段落的意思。再次提坟墓的时候是2024年1月，说她不会说具体是哪个也可能不会被发现。
+

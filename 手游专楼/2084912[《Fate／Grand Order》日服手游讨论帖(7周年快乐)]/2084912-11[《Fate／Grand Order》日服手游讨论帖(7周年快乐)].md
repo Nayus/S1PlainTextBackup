@@ -3390,3 +3390,11 @@ room的电脑屏幕上有时间：</blockquote>
 
 刷了69池刷不动了....就这样吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 15524#       发表于 2024-12-24 21:44
+
+刷到40箱，發現還未能全換商店貨品
+

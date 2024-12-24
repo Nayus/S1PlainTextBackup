@@ -1435,3 +1435,22 @@ mujica漫画
 
 问一下，冰箱贴还有办法换到吗，之前积点换了一张券，但是家附近的罗森问了圈都说配不到货，已经没救了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  月島まりな  
+##### 26749#       发表于 2024-12-24 17:46
+
+Roselia 2025.02 上海场 已上线购票平台
+大麦、猫眼、携程
+
+
+*****
+
+####  CyDiablo  
+##### 26750#       发表于 2024-12-24 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67005066&amp;ptid=2159415" target="_blank">footmanpon 发表于 2024-12-24 14:25</a>
+问一下，冰箱贴还有办法换到吗，之前积点换了一张券，但是家附近的罗森问了圈都说配不到货，已经没救了吗？ ...</blockquote>
+我这边五个上周说一周内到，然后这两天开始装死了，真幽默<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1454,3 +1454,11 @@ Roselia 2025.02 上海场 已上线购票平台
 问一下，冰箱贴还有办法换到吗，之前积点换了一张券，但是家附近的罗森问了圈都说配不到货，已经没救了吗？ ...</blockquote>
 我这边五个上周说一周内到，然后这两天开始装死了，真幽默<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kasroz  
+##### 26751#       发表于 2024-12-24 18:31
+
+<img src="https://p.sda1.dev/20/a4eb84d7623dc932bf34c22e9b1e5e29/image.jpg" referrerpolicy="no-referrer">
+

@@ -3739,3 +3739,87 @@ EX攻击全体化能和锁卡组合用吗？
 
 2024-12-24 23:37 上传
 
+
+*****
+
+####  森兰丸  
+##### 15558#       发表于 2024-12-24 23:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都没人骂这活动只开1星期的吗
+
+本身这几天无限池刷完想着接下来几天能长草好好休息下了结果.......
+
+*****
+
+####  保罗赫伯特  
+##### 15559#       发表于 2024-12-24 23:39
+
+还是等元旦真大的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  棍机凹升龙  
+##### 15560#       发表于 2024-12-24 23:40
+
+好丑，pass
+
+—— 来自 samsung SM-F9460, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  gpx234mqx  
+##### 15561#       发表于 2024-12-24 23:41
+
+<blockquote>大十字紅朔 发表于 2024-12-24 23:31
+EX攻击全体化能和锁卡组合用吗？
+
+暂时不太懂这个卡怎么用</blockquote>
+EX攻击全体其实没啥用
+
+EX又不能打暴击
+
+*****
+
+####  angelooo  
+##### 15562#       发表于 2024-12-24 23:41
+
+<blockquote>森兰丸 发表于 2024-12-24 23:39
+都没人骂这活动只开1星期的吗
+
+本身这几天无限池刷完想着接下来几天能长草好好休息下了结果....... ...</blockquote>
+骂不动了
+
+刚刷完无限池你跟我说之后还要砍柱子
+
+这是人能安排的活动吗
+
+
+*****
+
+####  風卷豹  
+##### 15563#       发表于 2024-12-24 23:42
+
+我真受不了这狗运营了，新年前突袭个情怀强度兼备的卡池打乱氪金计划，活动只有6天兑换需求却没有任何减负，甚至还有柱子战。你不会说接下来要长草一个月吧。
+
+*****
+
+####  森兰丸  
+##### 15564#       发表于 2024-12-24 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67009198&amp;ptid=2084912" target="_blank">angelooo 发表于 2024-12-24 23:41</a>
+
+骂不动了
+
+刚刷完无限池你跟我说之后还要砍柱子
+
+这是人能安排的活动吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我只求能把商店搬完就行....接下来几天又要吃苹果在90++本住1段时间...哎
+
+*****
+
+####  jacatay  
+##### 15565#       发表于 2024-12-24 23:44
+
+无限池接柱子 苹果刷光的人只能氪金了吧 笑死<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+

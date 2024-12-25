@@ -3979,3 +3979,32 @@ EX又不能打暴击
 
 所以哪个才是圣诞活动？这安排纯傻逼吧。
 
+
+*****
+
+####  蓮華  
+##### 15585#       发表于 2024-12-25 08:58
+
+*****
+
+####  棍机凹升龙  
+##### 15586#       发表于 2024-12-25 09:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">对李庄感兴趣  对上了xp
+
+*****
+
+####  sin.yugi  
+##### 15587#       发表于 2024-12-25 09:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">圣诞只打了20池的萌新我表示活动来得正好
+
+*****
+
+####  jackyhuang  
+##### 15588#       发表于 2024-12-25 09:50
+
+最后一个主线剧情只有6个小时可以看，这活动太搞笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+

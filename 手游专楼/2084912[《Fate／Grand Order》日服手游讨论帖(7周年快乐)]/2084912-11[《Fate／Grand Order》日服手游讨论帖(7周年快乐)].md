@@ -4008,3 +4008,38 @@ EX又不能打暴击
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
 
+
+*****
+
+####  乾理央  
+##### 15589#       发表于 2024-12-25 10:03
+
+感觉是圣诞活动plan b扶正<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+虽然是数值美但卡面跟宝具也太难看了，pass
+
+顺带你游十周年就跑路的预感更重了
+
+*****
+
+####  zechins  
+##### 15590#       发表于 2024-12-25 10:13
+
+还是选择梭哈了公主，最后一个10连出了<img src="https://static.saraba1st.com/image/smiley/face2017/058.png" referrerpolicy="no-referrer">
+新年只能选择遗憾离场了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+*****
+
+####  克苏鲁系青骑士  
+##### 15591#       发表于 2024-12-25 10:29
+
+月球，女人，披其他角色
+出了月神<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 15592#       发表于 2024-12-25 10:48
+
+难道就是为了这个莫名其妙的卡池所以才会在圣诞炸了一波大的？
+

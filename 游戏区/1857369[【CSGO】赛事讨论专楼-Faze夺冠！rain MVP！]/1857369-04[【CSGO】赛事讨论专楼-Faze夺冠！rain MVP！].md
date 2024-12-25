@@ -49,3 +49,11 @@
 
 胡来TV是真要把野榜搞成真的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">21年才正式加奖池到100w🔪，同时区别其他esl分站赛多了个playin
 
+
+*****
+
+####  heseran  
+##### 4654#       发表于 2024-12-26 00:01
+
+石油队这几天总在谜语人，今天发了个晚上八点见，配了一张队服的动图，不会是要官宣了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+

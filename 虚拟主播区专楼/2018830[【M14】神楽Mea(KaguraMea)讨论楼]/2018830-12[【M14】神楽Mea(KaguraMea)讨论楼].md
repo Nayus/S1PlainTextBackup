@@ -1423,3 +1423,13 @@ DV听的好爽，怎么没人切
 
 对面有点输不起了
 
+
+*****
+
+####  TiHaru  
+##### 17752#       发表于 2024-12-26 00:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">主播好嫌又被刷了一整页，每次和这些人玩就没些好事
+
+越来越讨厌kasen了
+

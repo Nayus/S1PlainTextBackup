@@ -220,3 +220,14 @@
 
 就是可惜练不了圣诞服了
 
+
+*****
+
+####  doublehit  
+##### 46873#       发表于 2024-12-25 22:11
+
+买的石头号嫖个尼莫能4T，自己要有个单体也能3t，可惜这号上全是光炮<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+然后拿出自己的玩了几年的老号试了下，还不如这玩了不到一个月的新号<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

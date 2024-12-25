@@ -644,3 +644,16 @@ HG封绘上都已经冲出殖民卫星了，主战斗场地应该还是在宇宙
 地下格斗
 殖民卫星的地下那不就是宇宙了
 
+
+*****
+
+####  bonnwang  
+##### 1534#       发表于 2024-12-25 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67011186&amp;ptid=2209276" target="_blank">angel13th 发表于 2024-12-25 08:10</a>
+导演鹤卷和哉，脚本夏户洋司，剧本庵野秀明，分镜：鶴巻和哉、庵野秀明、前田真宏、谷田部透湖
+
+绷不住了</blockquote>
+上一个堆大佬履历的萝卜动画是大傻<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+品质如何呢？
+

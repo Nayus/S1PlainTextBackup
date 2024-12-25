@@ -1543,3 +1543,14 @@ Roselia 2025.02 上海场 已上线购票平台
 
 主办方还是海日
 
+
+*****
+
+####  月島まりな  
+##### 26760#       发表于 2024-12-25 12:21
+
+夢ノ結唱 圣诞贺图 <blockquote>🎄圣诞快乐🎄
+
+希望大家都能收到温暖的礼物🎁</blockquote>
+<img src="https://p.sda1.dev/20/748326b3683cba1cbe04af5045ff05d5/IMG_0878.png" referrerpolicy="no-referrer">
+

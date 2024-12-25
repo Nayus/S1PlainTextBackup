@@ -13770,3 +13770,14 @@ OST有中文星巡，不知道会不会是完整版的<img src="https://static.s
 
 骂和买应该不是同一批人吧…不会这么抽象…吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 1350#       发表于 2024-12-25 22:06
+
+pay今晚的online talk也是穿这件草莓蛋糕外套
+<img src="https://p.sda1.dev/21/0a94a5d300c18a711135c24f33c9fa5e/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

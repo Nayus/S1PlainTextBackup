@@ -68,3 +68,11 @@
 石油队这几天总在谜语人，今天发了个晚上八点见，配了一张队服的动图，不会是要官宣了吧。 ...</blockquote>
 肯定是又没买到好货，没啥可看的了
 
+
+*****
+
+####  heseran  
+##### 4656#       发表于 2024-12-26 01:02
+
+艹，抽签名队服<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

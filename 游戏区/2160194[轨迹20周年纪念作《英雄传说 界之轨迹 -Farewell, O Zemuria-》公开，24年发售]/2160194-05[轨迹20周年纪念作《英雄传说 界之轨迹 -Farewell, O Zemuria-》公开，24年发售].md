@@ -1961,3 +1961,14 @@ vs的玲个人觉得是做的最好的一版
 
 界轨pc版怎么没消息呀
 
+
+*****
+
+####  ravend233  
+##### 7307#       发表于 2024-12-25 09:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66999116&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-12-23 18:07</a>
+
+1月的电击，啥东西，设定集？</blockquote>
+也可能单纯就是推上网上公开排名
+

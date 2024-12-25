@@ -15513,3 +15513,20 @@ wsd的神秘宣发</blockquote>
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  山ノ内花音  
+##### 4348#       发表于 2024-12-25 09:10
+
+<img src="https://p.sda1.dev/20/74d2f08a81b375f9942cd7e209c5469d/IMG_0935.jpeg" referrerpolicy="no-referrer">
+
+[https://x.com/nagomu_7_56/status/1871672477673562377?s=46&amp;t=IZGx0N13SOtHALpwG0Ubrg](https://x.com/nagomu_7_56/status/1871672477673562377?s=46&amp;t=IZGx0N13SOtHALpwG0Ubrg)
+
+*****
+
+####  山ノ内花音  
+##### 4349#       发表于 2024-12-25 09:12
+
+<img src="https://p.sda1.dev/20/9ebc9b8b976f5c1a52f54b5a90e8dff7/IMG_0936.jpeg" referrerpolicy="no-referrer">
+

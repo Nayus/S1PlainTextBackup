@@ -15606,3 +15606,11 @@ s1本身的图床最近出了问题，所以楼友要发图请用别的图床
 
 喵姆染上anon tokyo了吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  聊nsy专用号  
+##### 4356#       发表于 2024-12-25 21:45
+
+宣传史上最狂算什么，鸡4th的时候mggm还在现场说鸡动画会开启动画界新时代呢
+

@@ -15562,3 +15562,28 @@ wsd的神秘宣发</blockquote>
 
 2024-12-25 12:38 上传
 
+
+*****
+
+####  Milarvoz  
+##### 4351#       发表于 2024-12-25 17:03
+
+十到十五分钟的直播能聊出啥名堂啊。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  AveMujica  
+##### 4352#         楼主| 发表于 2024-12-25 17:03
+
+<img src="https://p.sda1.dev/21/8c06edabf1c145e5bf8d4f746a68fe9d/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  AveMujica  
+##### 4353#         楼主| 发表于 2024-12-25 17:04
+
+s1本身的图床最近出了问题，所以楼友要发图请用别的图床
+比如：https://p.sda1.dev/
+

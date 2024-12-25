@@ -25,3 +25,11 @@
 
 ・メガテン、ペルソナに続く第3のJRPGを生み出そうとしてスタートした企画なので弊社を代表する看板タイトルになるよう育てていきたい
 
+
+*****
+
+####  alucardcz  
+##### 3644#       发表于 2024-12-25 17:06
+
+代表个毛呢。。。全是p系列的影子 除了战斗系统外其他全是p5的劣化。。。<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

@@ -92,3 +92,13 @@ http://m.weibo.cn/status/5113122425930619?
 我也觉得应该把人名和校名直 ...</blockquote>
 说中国高校没说国籍就不算数，白马非马是吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TRACESPY  
+##### 117#       发表于 2024-12-25 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67012052&amp;ptid=2210744" target="_blank">btnooni 发表于 2024-12-25 10:11</a>
+所以她到底有没有进行歧视性的发言呢？</blockquote>
+肯定是啊
+

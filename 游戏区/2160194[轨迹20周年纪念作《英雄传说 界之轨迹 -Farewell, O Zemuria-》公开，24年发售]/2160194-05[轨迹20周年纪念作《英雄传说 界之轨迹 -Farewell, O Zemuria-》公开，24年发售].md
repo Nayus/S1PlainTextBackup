@@ -1972,3 +1972,16 @@ vs的玲个人觉得是做的最好的一版
 1月的电击，啥东西，设定集？</blockquote>
 也可能单纯就是推上网上公开排名
 
+
+*****
+
+####  maojiashu  
+##### 7308#       发表于 2024-12-25 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67007997&amp;ptid=2160194" target="_blank">super_uni 发表于 2024-12-24 20:38</a>
+
+vs的玲个人觉得是做的最好的一版
+
+— from S1 Next Goose v3.3.92</blockquote>
+伊苏vs空轨就是村上的原画吧 我没记错的话 
+

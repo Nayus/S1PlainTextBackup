@@ -1393,3 +1393,14 @@ AA炮塔同坦克炮塔，不同的是正面铆钉处可以被四穿武器打出
 
 那玩意好是好，但是逐发上弹在被围住的时候实在是要命<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lily-black  
+##### 5685#       发表于 2024-12-25 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67008627&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-12-24 21:59</a>
+
+小车有点牛逼啊，能挪到副驾打枪，单人驾驶清点不用下车，要是能从驾驶直接切到机枪位就更完美了 ...</blockquote>
+然后被机枪位的野队队友爆头......讲真这车太tm超级地球了，上车四人下车一人，全速翻车阖家铲，要的就是这个味
+

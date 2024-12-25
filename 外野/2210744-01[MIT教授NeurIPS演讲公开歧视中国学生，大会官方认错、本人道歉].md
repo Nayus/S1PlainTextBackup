@@ -79,3 +79,16 @@ http://m.weibo.cn/status/5113122425930619?
 
 正经反歧视ppt里面人名都是Mx.Fox 这种既没有性别又没有国籍（姓名特征）的，来降低例子的歧视性。不是只有剽窃和学术不端算伦理问题<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 学术不端这种事情，难道美国白人黑人墨西哥人就没有嘛。她要举个黑人的例子怕不是现在已经滚蛋了，道歉也没用。就是亚裔地位低，满足自己的政治漏阴癖罢了。
 
+
+*****
+
+####  飞霞精灵  
+##### 116#       发表于 2024-12-25 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67011412&amp;ptid=2210744" target="_blank">TRACESPY 发表于 2024-12-25 08:56</a>
+
+“YZH试图甩锅，声称自己本科阶段一直以这种方式收集数据，从未有问题。”
+
+我也觉得应该把人名和校名直 ...</blockquote>
+说中国高校没说国籍就不算数，白马非马是吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

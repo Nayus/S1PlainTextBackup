@@ -13,3 +13,12 @@
 
 — from Sony 901SO, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  Piano-Forest  
+##### 151#         楼主| 发表于 2024-12-25 18:04
+
+所以说这图真的假的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/bd67f731898187abe4836c94aeee351d/20241225_180006.jpg" referrerpolicy="no-referrer">
+

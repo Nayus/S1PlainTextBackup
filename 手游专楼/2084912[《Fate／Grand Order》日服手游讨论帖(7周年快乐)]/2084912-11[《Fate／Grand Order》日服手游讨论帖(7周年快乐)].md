@@ -4165,3 +4165,14 @@ EX又不能打暴击
 
 明年奏四再见
 
+
+*****
+
+####  大十字紅朔  
+##### 15606#       发表于 2024-12-25 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67018015&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-25 23:01</a>
+
+你回的和我说的是一回事吗。。减体力或者不要体力你该刷还不是要刷？</blockquote>
+我……我其实也不知道自己在说什么<img src="https://static.saraba1st.com/image/smiley/goose2017/005.png" referrerpolicy="no-referrer">
+

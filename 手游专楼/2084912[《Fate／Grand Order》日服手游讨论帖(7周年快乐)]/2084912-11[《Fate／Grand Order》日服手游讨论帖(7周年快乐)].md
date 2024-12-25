@@ -4081,3 +4081,43 @@ EX又不能打暴击
 
 其实今年感觉给的苹果很多啊，我刷了350箱还剩200个苹果，去年基本都是在碎石刷的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  reidel  
+##### 15597#       发表于 2024-12-25 13:19
+
+新公主昨晚顶着2连歪抽出来放了个宝具直接给我气晕过去了
+
+*****
+
+####  angelooo  
+##### 15598#       发表于 2024-12-25 15:05
+
+我还是要观望下，虽然充满了数值的美但卡面不行宝具唐氏，再加上圣诞阿比被踢一边给公主生日让步这操作……已经不想抽了
+
+*****
+
+####  都谷捻柏  
+##### 15599#       发表于 2024-12-25 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67012852&amp;ptid=2084912" target="_blank">Blackson 发表于 2024-12-25 11:42</a>
+只能说欺负小孩子（阿比）的人不得好死。
+给公主庆生重要过修Bug</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那只能期待元旦再来个大活了。
+
+*****
+
+####  希望之花  
+##### 15600#       发表于 2024-12-25 17:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今年社内联动角色的确多，同时原创角色没太多表现
+
+
+*****
+
+####  alucardcz  
+##### 15601#       发表于 2024-12-25 17:44
+
+真看不懂这运营的脑回路  一个白纸本你直接永远20或者不要体力不就完了  一劳永逸。。每次搞这些个有的没的。。图什么？
+

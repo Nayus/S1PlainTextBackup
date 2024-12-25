@@ -1562,3 +1562,12 @@ Roselia 2025.02 上海场 已上线购票平台
 
 惊了，AI组也有营业
 
+
+*****
+
+####  月島まりな  
+##### 26762#       发表于 2024-12-25 19:14
+
+木谷高明成都vlog
+[https://www.bilibili.com/video/BV121kXY3Eqw/](https://www.bilibili.com/video/BV121kXY3Eqw/)
+

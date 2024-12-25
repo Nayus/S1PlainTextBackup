@@ -4121,3 +4121,47 @@ EX又不能打暴击
 
 真看不懂这运营的脑回路  一个白纸本你直接永远20或者不要体力不就完了  一劳永逸。。每次搞这些个有的没的。。图什么？
 
+
+*****
+
+####  qixinno2  
+##### 15602#       发表于 2024-12-25 18:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很简单 就是因为他们傻逼
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 希望之花| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  保罗赫伯特  
+##### 15603#       发表于 2024-12-25 18:33
+
+大概是真觉得60体力≈0.43个金苹果=0.43个石头吧，这便宜让你每天占了，yls要亏得坐地铁了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 15604#       发表于 2024-12-25 18:49
+
+这种东西当然是放在十周年福利改给你啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  blue321  
+##### 15605#       发表于 2024-12-25 19:14
+
+东拼西凑弄出来最后30石
+是伪装者，但翻过来是雨神<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+明年奏四再见
+

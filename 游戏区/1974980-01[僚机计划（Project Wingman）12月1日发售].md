@@ -91,3 +91,19 @@ dlc有追加新机体么？</blockquote>
 —— 来自 vivo V2408A, Android 15上的 S1Next- ...</blockquote>
 感觉是，我也一样。现版本bug很多，vr根本用不了，得进beta回退上个版本。
 
+
+*****
+
+####  创始’’’天翔  
+##### 199#       发表于 2024-12-25 12:56
+
+<img src="https://img.saraba1st.com/forum/202412/25/125450rt55x8xd4l0d89ks.png" referrerpolicy="no-referrer">
+
+<strong>cdbeb14eb73053537a4db55465fbce0a.png</strong> (144.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-25 12:54 上传
+
+打的好爽，就是太短了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">。钻洞这关的地图设计真不错，钻起来太爽了
+

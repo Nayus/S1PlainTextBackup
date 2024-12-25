@@ -15614,3 +15614,19 @@ s1本身的图床最近出了问题，所以楼友要发图请用别的图床
 
 宣传史上最狂算什么，鸡4th的时候mggm还在现场说鸡动画会开启动画界新时代呢
 
+
+*****
+
+####  哈曼的YY  
+##### 4357#       发表于 2024-12-25 22:17
+
+<img src="https://img.saraba1st.com/forum/202412/25/221637zvnu0uuv3nk3vv6k.jpg" referrerpolicy="no-referrer">
+
+<strong>GfojXa9bYAIFSra.jpg</strong> (373.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-25 22:16 上传
+
+[https://x.com/zih_ii/status/1871848471365644372](https://x.com/zih_ii/status/1871848471365644372)
+

@@ -57,3 +57,14 @@
 
 石油队这几天总在谜语人，今天发了个晚上八点见，配了一张队服的动图，不会是要官宣了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  朔方原的星  
+##### 4655#         楼主| 发表于 2024-12-26 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67018366&amp;ptid=1857369" target="_blank">heseran 发表于 2024-12-26 00:01</a>
+
+石油队这几天总在谜语人，今天发了个晚上八点见，配了一张队服的动图，不会是要官宣了吧。 ...</blockquote>
+肯定是又没买到好货，没啥可看的了
+

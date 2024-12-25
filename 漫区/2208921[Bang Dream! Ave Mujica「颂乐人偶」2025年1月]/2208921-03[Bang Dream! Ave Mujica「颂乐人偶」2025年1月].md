@@ -15595,3 +15595,14 @@ s1本身的图床最近出了问题，所以楼友要发图请用别的图床
 
 好耶，初祥开局！
 
+
+*****
+
+####  6030sylar  
+##### 4355#       发表于 2024-12-25 20:01
+
+<img src="https://www.helloimg.com/i/2024/12/25/676bf38f949e2.jpg" referrerpolicy="no-referrer">
+<img src="https://www.helloimg.com/i/2024/12/25/676bf38fbfea9.jpg" referrerpolicy="no-referrer">
+
+喵姆染上anon tokyo了吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

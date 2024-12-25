@@ -602,3 +602,25 @@ good old days
 
 军团战应该有武器限制，殖民卫星内禁枪什么的
 
+
+*****
+
+####  刺客ares  
+##### 1531#       发表于 2024-12-25 15:16
+
+ 本帖最后由 刺客ares 于 2024-12-25 15:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67014408&amp;ptid=2209276" target="_blank">Gysumitka 发表于 2024-12-25 15:05</a>
+
+军团战应该有武器限制，殖民卫星内禁枪什么的</blockquote>
+HG封绘上都已经冲出殖民卫星了，主战斗场地应该还是在宇宙空间
+
+<img src="https://img.saraba1st.com/forum/202412/25/151908ogcccgegmccggahg.png" referrerpolicy="no-referrer">
+
+<strong>1735110191878.png</strong> (1.67 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-25 15:19 上传
+
+殖民卫星内不能用光束射击武器，pv红高达八门浮游炮都直接往gqx身上撞，应该是怕给side6干个大窟窿
+

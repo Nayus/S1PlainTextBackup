@@ -33,3 +33,11 @@
 
 代表个毛呢。。。全是p系列的影子 除了战斗系统外其他全是p5的劣化。。。<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  suzakushi  
+##### 3645#       发表于 2024-12-25 17:17
+
+画图画这么勤，就是没有200w贺图，看来是真没卖到吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

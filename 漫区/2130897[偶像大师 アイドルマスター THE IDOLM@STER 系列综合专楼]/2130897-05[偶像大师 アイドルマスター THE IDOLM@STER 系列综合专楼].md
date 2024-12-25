@@ -172,3 +172,12 @@ Z-lib: /book/101690622/ea6924
 
 Amazon(Kindle): [https://www.amazon.co.jp/dp/B0DQXMY1WL/](https://www.amazon.co.jp/dp/B0DQXMY1WL/)
 
+
+*****
+
+####  苏修  
+##### 6808#       发表于 2024-12-25 18:13
+
+官方汉名出来了
+<img src="https://p.sda1.dev/21/88c434c0625f2767c248500f7e0c22f6/image.jpg" referrerpolicy="no-referrer">
+

@@ -624,3 +624,23 @@ HG封绘上都已经冲出殖民卫星了，主战斗场地应该还是在宇宙
 
 殖民卫星内不能用光束射击武器，pv红高达八门浮游炮都直接往gqx身上撞，应该是怕给side6干个大窟窿
 
+
+*****
+
+####  王留美  
+##### 1532#       发表于 2024-12-25 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67014243&amp;ptid=2209276" target="_blank">刺客ares 发表于 2024-12-25 14:48</a>
+ 玛秋这个红发+nt+平凡少女带点异常的配置一眼对标骡子，但是从机体配置和pv看是个近战系，有两把特殊光刀， ...</blockquote>
+快进到修斯对标拉拉
+
+*****
+
+####  王留美  
+##### 1533#       发表于 2024-12-25 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67014408&amp;ptid=2209276" target="_blank">Gysumitka 发表于 2024-12-25 15:05</a>
+ 军团战应该有武器限制，殖民卫星内禁枪什么的</blockquote>
+地下格斗
+殖民卫星的地下那不就是宇宙了
+

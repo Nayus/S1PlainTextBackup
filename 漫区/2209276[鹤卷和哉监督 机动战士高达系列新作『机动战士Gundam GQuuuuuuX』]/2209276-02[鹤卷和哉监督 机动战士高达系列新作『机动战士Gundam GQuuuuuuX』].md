@@ -657,3 +657,13 @@ HG封绘上都已经冲出殖民卫星了，主战斗场地应该还是在宇宙
 上一个堆大佬履历的萝卜动画是大傻<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 品质如何呢？
 
+
+*****
+
+####  PascalLefèvre  
+##### 1535#       发表于 2024-12-25 22:40
+
+堆资历又不是缺点，再给你来个小林宽你要不要<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

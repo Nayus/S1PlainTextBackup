@@ -1412,3 +1412,14 @@ AA炮塔同坦克炮塔，不同的是正面铆钉处可以被四穿武器打出
 
 超级商店的四属性中级甲有必要买吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xinfengj  
+##### 5687#       发表于 2024-12-26 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67025471&amp;ptid=2170852" target="_blank">保科智子 发表于 2024-12-26 18:44</a>
+
+超级商店的四属性中级甲有必要买吗？</blockquote>
+联动商店里的四件都是可以不买的，买就是为了好看
+

@@ -241,3 +241,13 @@
 
 小号1304池，不打了，QP已经16亿，再打QP要溢出了。也是自回体90+吧。
 
+
+*****
+
+####  啪嗒啪嗒嘭  
+##### 46875#       发表于 2024-12-26 09:08
+
+借5宝C呆大佬打圣诞尼莫龙马4宝具3T好爽<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+准备去新年快闪活动抽福袋了！
+

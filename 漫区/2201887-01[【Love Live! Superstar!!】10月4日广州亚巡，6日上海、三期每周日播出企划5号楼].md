@@ -13869,3 +13869,14 @@ pay今晚的online talk也是穿这件草莓蛋糕外套
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  仟音一心  
+##### 1360#       发表于 2024-12-26 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67024840&amp;ptid=2201887" target="_blank">stygian 发表于 2024-12-26 17:25</a>
+绘森这个骨架大也不奇怪就是了</blockquote>
+顺便星团还有一个潜力股是🐻。
+<img src="https://p.sda1.dev/21/dba574be76c086b2fa0313dc7bd92f72/image.jpg" referrerpolicy="no-referrer">
+

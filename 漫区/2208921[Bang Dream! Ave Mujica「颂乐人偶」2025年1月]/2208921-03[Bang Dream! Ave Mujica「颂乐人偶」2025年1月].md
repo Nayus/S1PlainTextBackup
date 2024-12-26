@@ -15917,3 +15917,59 @@ https://x.com/nanamizu_kayu/status/1871922702749225460</blockquote>
 
 笑死，别人都是演奏特写，大喵怎么选了挑衅特写
 
+
+*****
+
+####  御幸一也  
+##### 4379#       发表于 2024-12-26 23:20
+
+補個圖 好像S1的圖床又出事了……
+
+<img src="https://p.sda1.dev/21/8b720af9d57b45beba1deff3afe22900/image.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/21/0c34b1671957703d9fc6e2077344c283/73.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/21/43d43566bc6e717757589d5a27da28d9/image.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 4380#       发表于 2024-12-26 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67026961&amp;ptid=2208921" target="_blank">近月 发表于 2024-12-26 22:52</a>
+
+啥？还请细说</blockquote>
+應該是大部分人都沒興趣看的畫師圈子瓜() 微博搜名字就會出來<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 近月| + 1|好吧，和作品内容无关就行|
+
+查看全部评分
+
+*****
+
+####  前方暴雨预警  
+##### 4381#       发表于 2024-12-27 00:20
+
+笑死，别人都是演奏特写，大喵怎么选了挑衅特写
+
+*****
+
+####  罗克萨斯  
+##### 4382#       发表于 2024-12-27 00:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67026888&amp;ptid=2208921" target="_blank">祐天寺にゃむ 发表于 2024-12-26 22:43</a>
+にゃむちチャンネル（Nyamuchi channel）第0回
+
+https://www.bilibili.com/video/BV11ZC6YBEPn/ ...</blockquote>
+米泽茜也太能夹了吧，和本音相差甚远，和脸更是完全对不上<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -726,3 +726,27 @@ HG封绘上都已经冲出殖民卫星了，主战斗场地应该还是在宇宙
 直接介绍一下领队的搞技术的搞后勤的，写个名字，也不会剧透什么吧。女主的白 ...</blockquote>
 VTR应该是三个人的采访录像吧
 
+
+*****
+
+####  0aleph37  
+##### 1542#       发表于 2024-12-26 19:28
+
+<blockquote>刺客ares 发表于 2024-12-26 19:12
+按理说配角情报没必要藏啊？
+
+直接介绍一下领队的搞技术的搞后勤的，写个名字，也不会剧透什么吧。女主的白 ...</blockquote>
+VTR应该是三个人的采访录像吧
+
+*****
+
+####  RE㐅ia  
+##### 1543#       发表于 2024-12-27 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67025657&amp;ptid=2209276" target="_blank">刺客ares 发表于 2024-12-26 19:12</a>
+
+按理说配角情报没必要藏啊？
+
+直接介绍一下领队的搞技术的搞后勤的，写个名字，也不会剧透什么吧。女主的白 ...</blockquote>
+这样不也挺好的？后勤太多容易整成地球寝寮那样。不如早早领了便当下线来震撼一下观众<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+

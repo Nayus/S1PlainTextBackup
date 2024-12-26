@@ -15754,3 +15754,56 @@ https://x.com/nanamizu_kayu/status/1871922702749225460</blockquote>
 
 2024-12-26 21:43 上传
 
+
+*****
+
+####  御幸一也  
+##### 4369#       发表于 2024-12-26 22:02
+
+<img src="https://img.saraba1st.com/forum/202412/26/220147o5m2iz7lli7xcxwi.jpg" referrerpolicy="no-referrer">
+
+<strong>バンドリ！TV LIVE 2024 #245 1-8-42 screenshot.jpg</strong> (371.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-26 22:01 上传
+
+<img src="https://img.saraba1st.com/forum/202412/26/220151uhla6ypzlp6mrhpr.jpg" referrerpolicy="no-referrer">
+
+<strong>バンドリ！TV LIVE 2024 #245 1-8-55 screenshot.jpg</strong> (343.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-26 22:01 上传
+
+<img src="https://img.saraba1st.com/forum/202412/26/220154nr818gv9882gvrko.jpg" referrerpolicy="no-referrer">
+
+<strong>バンドリ！TV LIVE 2024 #245 1-10-0 screenshot.jpg</strong> (151.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-26 22:01 上传
+
+<img src="https://img.saraba1st.com/forum/202412/26/220156f9q7hf3f4sus4ffh.jpg" referrerpolicy="no-referrer">
+
+<strong>バンドリ！TV LIVE 2024 #245 1-10-15 screenshot.jpg</strong> (148.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-26 22:01 上传
+
+*****
+
+####  御幸一也  
+##### 4370#       发表于 2024-12-26 22:03
+
+最期待的一次 又有全員回<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202412/26/220252sx1txm8kximiymp3.png" referrerpolicy="no-referrer">
+
+<strong>バンドリ！TV LIVE 2024 #245 1-10-54 screenshot.png</strong> (3.13 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-26 22:02 上传
+

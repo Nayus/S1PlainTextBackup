@@ -667,3 +667,15 @@ HG封绘上都已经冲出殖民卫星了，主战斗场地应该还是在宇宙
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  创始’’’天翔  
+##### 1536#       发表于 2024-12-26 12:37
+
+<blockquote>bonnwang 发表于 2024-12-25 22:14
+上一个堆大佬履历的萝卜动画是大傻
+
+品质如何呢？</blockquote>
+大傻光是制作会社那栏写着的gaina就足够判死刑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

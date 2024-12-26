@@ -491,3 +491,19 @@ FS最喜欢的游戏大概只有ACE3、ACFA这俩了，真的喜欢这俩游戏
 
 真就是魂系列死忠，唯一一个魂系列之外通关的只狼是我在这些游戏里最不喜欢的一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  woodcoin  
+##### 44#       发表于 2024-12-26 12:39
+
+我的顺序比较奇怪
+2 1 3 只狼 法环 装甲6 法dlc
+胆小没敢玩血源
+恶魂玩的重置 
+只狼玩过0念珠 
+法环dlc玩过0碎片
+从恶意最强魂2入手 都很宽容了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.95-alpha
+

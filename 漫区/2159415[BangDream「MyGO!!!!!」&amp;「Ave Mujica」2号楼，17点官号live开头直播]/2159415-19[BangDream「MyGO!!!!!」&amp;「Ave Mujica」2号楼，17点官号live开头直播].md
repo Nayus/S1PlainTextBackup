@@ -1571,3 +1571,31 @@ Roselia 2025.02 上海场 已上线购票平台
 木谷高明成都vlog
 [https://www.bilibili.com/video/BV121kXY3Eqw/](https://www.bilibili.com/video/BV121kXY3Eqw/)
 
+
+*****
+
+####  CyDiablo  
+##### 26763#       发表于 2024-12-26 22:04
+
+没什么新情报，就力儿八杯相关，本楼应该不怎么关注就不发了
+
+FES
+<img src="https://p.sda1.dev/21/888026990a96d74b60b9a42d05911cd5/IMG_20241226_215345.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/59e6c753a63fc31748cf03f7d3005808/IMG_20241226_215354.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/57ef112ed6fe2a4f050a89d7ca9d5a8c/IMG_20241226_215403.jpg" referrerpolicy="no-referrer">
+
+新年限定
+<img src="https://p.sda1.dev/21/6ff005c3449e5422277f693238334765/1735221152947.jpg" referrerpolicy="no-referrer">
+五⭐
+<img src="https://p.sda1.dev/21/b541e0065045da9c46f157c0db167007/IMG_20241226_215436.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/07b1f144bea363f106af9c0f71ba81a4/IMG_20241226_215429.jpg" referrerpolicy="no-referrer">
+四⭐
+<img src="https://p.sda1.dev/21/9f16e5914812c714b49c058dce3c4fe3/IMG_20241226_215421.jpg" referrerpolicy="no-referrer">
+三⭐
+<img src="https://p.sda1.dev/21/796ae04f3889ef301352382128f1331b/IMG_20241226_215412.jpg" referrerpolicy="no-referrer">
+二⭐
+<img src="https://p.sda1.dev/21/25aeef2a802fcb9d051237d0ae17bc7a/1735221158160.png" referrerpolicy="no-referrer">
+
+下期邦tv
+<img src="https://p.sda1.dev/21/fbd78f8bf334ec9ed0579d456cd4c0ab/Image_827024513175832.png" referrerpolicy="no-referrer">
+

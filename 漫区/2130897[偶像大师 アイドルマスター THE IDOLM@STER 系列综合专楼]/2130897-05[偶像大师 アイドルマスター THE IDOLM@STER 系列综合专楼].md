@@ -207,3 +207,13 @@ Amazon(Kindle): [https://www.amazon.co.jp/dp/B0DQXMY1WL/](https://www.amazon.co.
 
 和甜花日花做一桌吃饭了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  虚无缥缈的光阴  
+##### 6812#       发表于 2024-12-26 08:58
+
+感觉美玲和琴音在二创中的关系性越来越像路加和日花了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

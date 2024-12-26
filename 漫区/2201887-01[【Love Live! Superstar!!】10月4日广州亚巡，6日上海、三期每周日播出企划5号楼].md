@@ -13794,3 +13794,16 @@ pay今晚的online talk也是穿这件草莓蛋糕外套
 
 下面这张是上个月广播的图啦。pay有发新的
 
+
+*****
+
+####  starring  
+##### 1352#       发表于 2024-12-26 08:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67018764&amp;ptid=2201887" target="_blank">优妮可 发表于 2024-12-26 02:12</a>
+下面这张是上个月广播的图啦。pay有发新的</blockquote>
+阿兔嘭也有一件
+<img src="https://p.sda1.dev/21/5d946868cce2afe7dde577d4c0d25f38/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

@@ -1650,3 +1650,34 @@ fbk晚上会限直播所以也不是
 
 2024-12-25 13:21 上传
 
+
+*****
+
+####  holoan  
+##### 10492#         楼主| 发表于 2024-12-25 18:14
+
+。过快
+
+<img src="https://img.saraba1st.com/forum/202412/25/181442mzsy00gyzy0kp50h.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (119.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-25 18:14 上传
+
+18点发售的，一小时就卖光了，也不知道放出了多少库存
+
+*****
+
+####  holoan  
+##### 10493#         楼主| 发表于 2024-12-26 17:00
+
+<img src="https://img.saraba1st.com/forum/202412/26/170029nbip6upii46zcix9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (97.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-26 17:00 上传
+

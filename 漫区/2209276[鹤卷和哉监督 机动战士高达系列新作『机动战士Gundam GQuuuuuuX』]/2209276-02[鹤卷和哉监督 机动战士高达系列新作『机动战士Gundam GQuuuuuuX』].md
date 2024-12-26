@@ -679,3 +679,11 @@ HG封绘上都已经冲出殖民卫星了，主战斗场地应该还是在宇宙
 品质如何呢？</blockquote>
 大傻光是制作会社那栏写着的gaina就足够判死刑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  白愁帝皇  
+##### 1537#       发表于 2024-12-26 16:52
+
+    大傻看见福田就懂了，这人老婆死后动画肯定要塞一堆烂活啊
+

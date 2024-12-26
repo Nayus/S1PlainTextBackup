@@ -688,3 +688,13 @@ ACE 3 →黑魂1 remastered →黑魂3 →血源 → 黑魂2 → 只狼→恶魂
 
 除了魂2的后两个dlc我最后没有打，因为出几个dlc前后跨度比较久，当时在打魂1习惯了手感，加上魂二原罪学者版疯狂堆小怪有点适应不了。
 
+
+*****
+
+####  黑上シグマ  
+##### 61#       发表于 2024-12-26 17:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去查了下作品列表，我没有玩过任何from的游戏
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.38)
+

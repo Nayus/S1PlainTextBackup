@@ -4289,3 +4289,16 @@ EX又不能打暴击
 
 对于给各位用户带来的不便，我们深表歉意。
 
+
+*****
+
+####  芭德薇  
+##### 15616#       发表于 2024-12-26 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67023898&amp;ptid=2084912" target="_blank">eilot 发表于 2024-12-26 15:50</a>
+
+狂職的盤已經全點完，還是剩好多狂的金銀
+
+不過狂職有點兩個EX，也只得狂娜(寶4)和泳黑貞，樓希(寶3)點滿 ...</blockquote>
+狂、ex1、ex2三个盘都会吃到狂的，狂单职吃500个，ex12各125个，加起来吃250个。
+

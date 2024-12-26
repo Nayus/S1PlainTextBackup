@@ -13807,3 +13807,14 @@ pay今晚的online talk也是穿这件草莓蛋糕外套
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
 
+
+*****
+
+####  仟音一心  
+##### 1353#       发表于 2024-12-26 16:34
+
+绘森彩2nd 写真集，2025年3月14日发售
+<img src="https://p.sda1.dev/21/06730c72828484f2e37b10e57bfe488f/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/c9b837dd009dbe90c43344bdda5b62de/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/f1a12945b5e1a42c47f66ee6979e5402/image.jpg" referrerpolicy="no-referrer">
+

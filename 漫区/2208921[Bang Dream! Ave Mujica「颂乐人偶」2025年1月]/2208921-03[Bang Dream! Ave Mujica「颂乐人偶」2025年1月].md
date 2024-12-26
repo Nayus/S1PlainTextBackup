@@ -15898,3 +15898,14 @@ https://x.com/nanamizu_kayu/status/1871922702749225460</blockquote>
 
 <img src="https://p.sda1.dev/21/43d43566bc6e717757589d5a27da28d9/image.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 4377#       发表于 2024-12-26 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67026961&amp;ptid=2208921" target="_blank">近月 发表于 2024-12-26 22:52</a>
+
+啥？还请细说</blockquote>
+應該是大部分人都沒興趣看的畫師圈子瓜() 微博搜名字就會出來<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+

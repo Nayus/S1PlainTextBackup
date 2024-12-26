@@ -1490,3 +1490,16 @@ DV听的好爽，怎么没人切
 
 唉，小情侣的赛博安慰play
 
+
+*****
+
+####  thisisaspider  
+##### 17760#       发表于 2024-12-26 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67018367&amp;ptid=2018830" target="_blank">TiHaru 发表于 2024-12-26 00:01</a>
+
+主播好嫌又被刷了一整页，每次和这些人玩就没些好事
+
+越来越讨厌kasen了</blockquote>
+哪里有主播黑子，好久没看见了，前去围观<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

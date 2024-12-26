@@ -1433,3 +1433,11 @@ DV听的好爽，怎么没人切
 
 越来越讨厌kasen了
 
+
+*****
+
+####  受菊  
+##### 17753#       发表于 2024-12-26 15:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这有啥，总有不习惯主播闪闪发光想要嘴一两句的阴暗家伙，主播反正喜欢联动打游戏那就随她去呗，顺从主播
+

@@ -4246,3 +4246,18 @@ EX又不能打暴击
 
 银的还好，金的才是真缺<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 15613#       发表于 2024-12-26 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67023788&amp;ptid=2084912" target="_blank">芭德薇 发表于 2024-12-26 15:38</a>
+
+棋子只要点职业盘就吃掉一堆啊，之前狂的都快给我吃完了，狂和ex12都要吃…… ...</blockquote>
+狂職的盤已經全點完，還是剩好多狂的金銀
+
+不過狂職有點兩個EX，也只得狂娜(寶4)和泳黑貞，樓希(寶3)點滿了一個EX後還考慮點那一個好
+
+摩根才寶1沒甚麼硬幣才點了一個EX
+

@@ -4192,3 +4192,49 @@ EX又不能打暴击
 
 2024-12-26 00:54 上传
 
+
+*****
+
+####  alucardcz  
+##### 15608#       发表于 2024-12-25 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67017360&amp;ptid=2084912" target="_blank">大十字紅朔 发表于 2024-12-25 21:13</a>
+
+要说的话是运营不想让玩家早早刷完了长草，要弄点东西吊着你，你才能不弃坑一直玩 ...</blockquote>
+你回的和我说的是一回事吗。。减体力或者不要体力你该刷还不是要刷？
+
+*****
+
+####  大十字紅朔  
+##### 15609#       发表于 2024-12-25 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67018015&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-25 23:01</a>
+
+你回的和我说的是一回事吗。。减体力或者不要体力你该刷还不是要刷？</blockquote>
+我……我其实也不知道自己在说什么<img src="https://static.saraba1st.com/image/smiley/goose2017/005.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 15610#       发表于 2024-12-26 00:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">艹 歪了个钓鱼佬
+
+<img src="https://img.saraba1st.com/forum/202412/26/005449zdpa3595jjb1409q.png" referrerpolicy="no-referrer">
+
+<strong>J[I@S~DRN)%SYA6$G8JM2O0.png</strong> (393.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-26 00:54 上传
+
+*****
+
+####  UNISONIA  
+##### 15611#       发表于 2024-12-26 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67017360&amp;ptid=2084912" target="_blank">大十字紅朔 发表于 2024-12-25 21:13</a>
+
+要说的话是运营不想让玩家早早刷完了长草，要弄点东西吊着你，你才能不弃坑一直玩 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是这几年叶的改动把日活降的还挺厉害的，今年两次BUG后都是大降
+

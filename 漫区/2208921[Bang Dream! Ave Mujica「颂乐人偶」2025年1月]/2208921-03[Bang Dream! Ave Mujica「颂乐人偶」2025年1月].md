@@ -15845,3 +15845,42 @@ https://x.com/nanamizu_kayu/status/1871922702749225460</blockquote>
 這人有瓜的</blockquote>
 啥？还请细说<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 4374#       发表于 2024-12-26 23:09
+
+自購 這期megami的
+
+<img src="https://img.saraba1st.com/forum/202412/26/230914mw939dofyr9moxxw.jpg" referrerpolicy="no-referrer">
+
+<strong>image.jpg</strong> (322.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-26 23:09 上传
+
+<img src="https://img.saraba1st.com/forum/202412/26/230918bxj52y76y2529y2z.jpg" referrerpolicy="no-referrer">
+
+<strong>73.jpg</strong> (921.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-26 23:09 上传
+
+*****
+
+####  御幸一也  
+##### 4375#       发表于 2024-12-26 23:11
+
+總之下期還是有ave的
+
+<img src="https://img.saraba1st.com/forum/202412/26/231053v8in6i9y66rynn16.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (332.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-26 23:10 上传
+

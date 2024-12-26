@@ -15807,3 +15807,21 @@ https://x.com/nanamizu_kayu/status/1871922702749225460</blockquote>
 
 2024-12-26 22:02 上传
 
+
+*****
+
+####  御幸一也  
+##### 4371#       发表于 2024-12-26 22:20
+
+好快的畫<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202412/26/221953jme5lwimk3wwknw5.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_せとー(@bpdne)_20241226-141228_1872284348667605170_photo.jpg</strong> (167.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-26 22:19 上传
+
+[https://x.com/bpdne/status/1872284348667605170](https://x.com/bpdne/status/1872284348667605170)
+

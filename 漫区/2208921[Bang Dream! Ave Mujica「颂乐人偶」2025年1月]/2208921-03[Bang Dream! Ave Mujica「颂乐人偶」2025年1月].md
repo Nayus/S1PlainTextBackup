@@ -15712,3 +15712,45 @@ s1本身的图床最近出了问题，所以楼友要发图请用别的图床
 9:20去上野 11点去池袋
 已经开始焦虑了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 4365#       发表于 2024-12-26 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67023622&amp;ptid=2208921" target="_blank">近月 发表于 2024-12-26 15:19</a>
+
+60p祥睦本
+
+https://x.com/nanamizu_kayu/status/1871922702749225460</blockquote>
+這人有瓜的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 4366#       发表于 2024-12-26 21:41
+
+真巧，漏油也30分钟上野跑池袋啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 4367#       发表于 2024-12-26 21:42
+
+要不你們兩個相認一下，大家都是跑avemujica的小夥伴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 4368#       发表于 2024-12-26 21:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202412/26/214345f8zga2z2wlafhhlj.jpg" referrerpolicy="no-referrer">
+
+<strong>バンドリ！TV LIVE 2024 #245 52-33 screenshot.jpg</strong> (178.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-26 21:43 上传
+

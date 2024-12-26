@@ -56,3 +56,11 @@
 
 往年不是这个时候已经有官网更新了吗
 
+
+*****
+
+####  leleq  
+##### 156#       发表于 2024-12-26 11:53
+
+从剪影来看3人都都有“飘带”考虑到这是前视角背后应该是大蝴蝶结把……………………不知为啥想起各种高达的背部装备了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -1015,3 +1015,14 @@ dmzj章末吐槽怎么一群人说公主和龙融合了，最后一页这是公�
 
 老鼠妹把女骑士屁股的管子当成了男人那根东西所以误以为她是男人，女骑士疯狂汗颜中<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zzf111  
+##### 116#       发表于 2024-12-26 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67018663&amp;ptid=2159012" target="_blank">smdzh2 发表于 2024-12-26 01:09</a>
+
+最新话有正规军士兵一眼认出了女骑士身上穿的铠甲是旧款正规军制式装备，问她是从哪里搞来的，女骑士支支 ...</blockquote>
+这话看着女骑士是还活着的死灵术士受害者可能性也挺大的感觉
+

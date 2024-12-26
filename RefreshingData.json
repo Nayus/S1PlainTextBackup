@@ -2265,7 +2265,7 @@
     "lastedit": 1735233000,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1804478": {
     "totalreply": 1242,
@@ -6921,10 +6921,10 @@
     "update": false
   },
   "2163117": {
-    "totalreply": 9078,
+    "totalreply": 9079,
     "title": "[NIKKE胜利女神，你喜欢射击嘛？2号楼！]",
     "newtitle": "[NIKKE胜利女神，你喜欢射击嘛？2号楼！]",
-    "lastedit": 1735226781,
+    "lastedit": 1735239369,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -8631,10 +8631,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 117031,
+    "totalreply": 117032,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1735238169,
+    "lastedit": 1735239488,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -16758,10 +16758,10 @@
     "update": false
   },
   "2219081": {
-    "totalreply": 202,
+    "totalreply": 204,
     "title": "[唉，烂尾楼]",
     "newtitle": "[唉，烂尾楼]",
-    "lastedit": 1735238411,
+    "lastedit": 1735239250,
     "category": "外野",
     "active": true,
     "update": false
@@ -17595,10 +17595,10 @@
     "update": false
   },
   "2220368": {
-    "totalreply": 284,
+    "totalreply": 285,
     "title": "[巴西以奴隶劳工为由下令比亚迪工厂停建]",
     "newtitle": "[巴西以奴隶劳工为由下令比亚迪工厂停建]",
-    "lastedit": 1735206868,
+    "lastedit": 1735239011,
     "category": "外野",
     "active": true,
     "update": false
@@ -18301,6 +18301,15 @@
     "title": "[被解救的比亚迪“奴工”站出来发声了]",
     "newtitle": "[被解救的比亚迪“奴工”站出来发声了]",
     "lastedit": 1735238649,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2221699": {
+    "totalreply": 41,
+    "title": "[天津某大学外教参加乌克兰雇佣兵被俘]",
+    "newtitle": "[天津某大学外教参加乌克兰雇佣兵被俘]",
+    "lastedit": 1735239252,
     "category": "外野",
     "active": true,
     "update": false

@@ -2265,7 +2265,7 @@
     "lastedit": 1735233000,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1804478": {
     "totalreply": 1242,
@@ -17163,10 +17163,10 @@
     "update": false
   },
   "2219239": {
-    "totalreply": 105,
+    "totalreply": 106,
     "title": "[深切感受日本的重建速度]",
     "newtitle": "[深切感受日本的重建速度]",
-    "lastedit": 1735244293,
+    "lastedit": 1735247289,
     "category": "外野",
     "active": true,
     "update": false

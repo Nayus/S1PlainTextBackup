@@ -15630,3 +15630,30 @@ s1本身的图床最近出了问题，所以楼友要发图请用别的图床
 
 [https://x.com/zih_ii/status/1871848471365644372](https://x.com/zih_ii/status/1871848471365644372)
 
+
+*****
+
+####  Nana7ue  
+##### 4358#       发表于 2024-12-26 09:21
+
+ 本帖最后由 Nana7ue 于 2024-12-26 09:23 编辑 
+
+<img src="https://img.saraba1st.com/forum/202412/26/092114b7zso97dff0ko882.jpg" referrerpolicy="no-referrer">
+
+<strong>20241225_201909.jpg</strong> (387.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-26 09:21 上传
+
+<img src="https://img.saraba1st.com/forum/202412/26/092114g7hk35zk7g0x4q3m.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-12-25-20-18-53-930_com.twitter.android-edit.jpg</strong> (34.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-26 09:21 上传
+
+<img src="https://ice.frostsky.com/2024/12/26/c9e8dfea158fb3b05904fc03205eef82.jpeg" referrerpolicy="no-referrer">
+<img src="https://ice.frostsky.com/2024/12/26/3f78fa08504ef1527084c21bce695148.jpeg" referrerpolicy="no-referrer">
+

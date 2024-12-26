@@ -4238,3 +4238,11 @@ EX又不能打暴击
 要说的话是运营不想让玩家早早刷完了长草，要弄点东西吊着你，你才能不弃坑一直玩 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是这几年叶的改动把日活降的还挺厉害的，今年两次BUG后都是大降
 
+
+*****
+
+####  保罗赫伯特  
+##### 15612#       发表于 2024-12-26 15:40
+
+银的还好，金的才是真缺<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

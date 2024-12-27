@@ -750,3 +750,24 @@ VTR应该是三个人的采访录像吧
 直接介绍一下领队的搞技术的搞后勤的，写个名字，也不会剧透什么吧。女主的白 ...</blockquote>
 这样不也挺好的？后勤太多容易整成地球寝寮那样。不如早早领了便当下线来震撼一下观众<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刺客ares  
+##### 1544#       发表于 2024-12-27 18:00
+
+和水魔要素重合挺多的，路人一眼水魔2
+
+下限按注水版神无月巫女看吧，我觉得真的再烂也烂不过那个了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+上限不好说，一般肯定想奶令和种，但就这人设机设感觉断了这个念想吧
+
+元祖到种是23年，种到gqx也是23年，这次不求爆个大的，稳个8分口碑总能做到吧鹤卷gg<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  0aleph37  
+##### 1545#       发表于 2024-12-27 18:05
+
+低预期也是好事，水魔就是引导了高预期但又垮下去才会带来巨大落差。
+

@@ -2083,3 +2083,50 @@ wsd！我现在就想看前三集啊啊啊！！！
 
 感觉喵梦有变成木gachi的倾向（
 
+
+*****
+
+####  好much橘  
+##### 4650#       发表于 2024-12-27 19:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">睦头怎么变成这样了，草
+
+
+*****
+
+####  新HGCG  
+##### 4651#       发表于 2024-12-27 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67036754&amp;ptid=2208921" target="_blank">好much橘 发表于 2024-12-27 19:30</a>
+
+睦头怎么变成这样了，草</blockquote>
+其实我觉得氛围烘托得水到渠成
+
+*****
+
+####  PDQ4  
+##### 4652#       发表于 2024-12-27 19:35
+
+睦喵是好的，喵梦演技这条线直接和睦搭上了
+
+楼里应该也有漏油说过，睦的可能问题主要是过分“无私”，表现出来就是无法达目标和回应他人期待时的自罪心理
+
+包括对“吉他精”的道歉，对帮不上祥子的负罪感
+
+“怪物mortis”则是睦应激后的第一视角展现，从mortis全部为了睦本身着想考虑，可能是对应睦自己“自私”的那一面（非贬义）
+
+这对于睦来讲当然是不好的怪物
+
+那睦线就啊要达成二者的平衡
+
+有意思的是祥子一直希望睦有自己的想法，为自己考虑
+
+而mortis其实达成了对祥子愿望的超级加强回应
+
+*****
+
+####  PlayStation2  
+##### 4653#       发表于 2024-12-27 19:35
+
+摘面具后祥子被报纸爆出是大集团后继人，喵梦：你怎么不说自己是大小姐啊，第一次见面穿那么破衣服让我误会了blabla，大祥老师不知道心里怎么想的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

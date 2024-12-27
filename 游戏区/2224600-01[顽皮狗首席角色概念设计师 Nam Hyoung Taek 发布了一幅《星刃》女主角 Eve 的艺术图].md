@@ -570,3 +570,16 @@ jojo不是最新作自己直球加入dei，还能怪错？</blockquote>
 
 这么帅的吗
 
+
+*****
+
+####  直推  
+##### 60#       发表于 2024-12-27 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67034591&amp;ptid=2224600" target="_blank">久保由利香 发表于 2024-12-27 14:36</a>
+
+这么帅的吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">啊？都说DEI了，第一反应不该是Jodio的女装隆胸哥哥吗？聊天频道完全对不上啊，楼友不会其实没读过吧。
+
+你发的这个查明曼比第八部那个河童头男配还是好看多了，习惯了还挺眉清目秀的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

@@ -2174,3 +2174,23 @@ ps日服三档可以玩十小时界轨</blockquote>
 
 杉果定价应该会好点，298有望？
 
+
+*****
+
+####  ravend233  
+##### 7329#       发表于 2024-12-27 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67034711&amp;ptid=2160194" target="_blank">医生狼多 发表于 2024-12-27 14:48</a>
+
+杉果定价应该会好点，298有望？</blockquote>
+YSX重新上架就是298加上首发10%优惠
+
+*****
+
+####  卢迪克  
+##### 7330#       发表于 2024-12-27 15:13
+
+<blockquote>ravend233 发表于 2024-12-27 15:11
+YSX重新上架就是298加上首发10%优惠</blockquote>
+恩，销量据说只有一万五
+

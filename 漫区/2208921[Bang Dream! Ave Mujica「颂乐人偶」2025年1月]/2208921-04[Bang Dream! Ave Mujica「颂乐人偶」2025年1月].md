@@ -1240,3 +1240,95 @@ pv里睦砸书那幕回收了吗？</blockquote>
 #3</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">mortis睦的声线很池面吗？有类似的代餐解解馋吗？
 
+
+*****
+
+####  金属化反射装甲  
+##### 4561#       发表于 2024-12-27 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67034813&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-27 15:02</a>
+
+第三话剧透，写得比较细因为我很喜欢这一话
+
+#3</blockquote>
+最后一句应该是“震惊”表情？
+
+*****
+
+####  Aendst  
+##### 4562#       发表于 2024-12-27 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67034859&amp;ptid=2208921" target="_blank">金属化反射装甲 发表于 2024-12-27 15:06</a>
+
+最后一句应该是“震惊”表情？</blockquote>
+对的对的，是我打错字了
+
+
+*****
+
+####  KLHgg  
+##### 4563#       发表于 2024-12-27 15:10
+
+睦这个精神状态的描绘，怎么越看越像马希洛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兰开夏  
+##### 4564#       发表于 2024-12-27 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67034846&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-27 15:05</a>
+
+晚上我还有一场要看，我去确认一下</blockquote>
+最后求个无剧透观影体验（很怪的要求
+
+*****
+
+####  瞳映山川  
+##### 4565#       发表于 2024-12-27 15:10
+
+睦池面的声线类似黑白双翼广告那样的吗？那个我觉得就很帅了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 4566#       发表于 2024-12-27 15:11
+
+祥子最后注意到睦坏掉了？海港对决应该是第四集了吧？黑睦对祥子
+祥子形象可能四五集开始转变，pv里老宅那幕也许在中期了
+
+*****
+
+####  山ノ内花音  
+##### 4567#       发表于 2024-12-27 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67034889&amp;ptid=2208921" target="_blank">瞳映山川 发表于 2024-12-27 15:10</a>
+睦池面的声线类似黑白双翼广告那样的吗？那个我觉得就很帅了</blockquote>
+和那个基本上是一致的
+
+*****
+
+####  仟音一心  
+##### 4568#       发表于 2024-12-27 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67034886&amp;ptid=2208921" target="_blank">兰开夏 发表于 2024-12-27 15:10</a>
+
+最后求个无剧透观影体验（很怪的要求</blockquote>
+有[https://tieba.baidu.com/p/9364404351?share=9105&amp;fr=sharewise&amp;see_lz=0&amp;share_from=post&amp;sfc=copy&amp;client_type=2&amp;client_version=12.75.1.0&amp;st=1735283510&amp;is_video=false&amp;unique=8BEE349A78D1A5CBA07E7B93F84A2A97](https://tieba.baidu.com/p/9364404351?share=9105&amp;fr=sharewise&amp;see_lz=0&amp;share_from=post&amp;sfc=copy&amp;client_type=2&amp;client_version=12.75.1.0&amp;st=1735283510&amp;is_video=false&amp;unique=8BEE349A78D1A5CBA07E7B93F84A2A97)
+
+*****
+
+####  金属化反射装甲  
+##### 4569#       发表于 2024-12-27 15:12
+
+看来黑睦有机会变成白睦的怪物家长，祥子就是那个拐跑自己孩子的野丫头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兰开夏  
+##### 4570#       发表于 2024-12-27 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67034907&amp;ptid=2208921" target="_blank">仟音一心 发表于 2024-12-27 15:12</a>
+
+有https://tieba.baidu.com/p/9364404351?share=9105&amp;fr=sharewise&amp;see_lz=0&amp;share_from=post&amp;sfc=copy&amp;cl ...</blockquote>
+3q！！！！！！
+

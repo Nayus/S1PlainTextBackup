@@ -1668,3 +1668,48 @@ mujica可以不搞乐队 但不能散<img src="https://static.saraba1st.com/imag
 
 睦可以联动少女歌剧了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  金属化反射装甲  
+##### 4609#       发表于 2024-12-27 16:41
+
+作为角色属性对人物印象的影响太大了，可以预见到之后睦的一些二创印象。。。水仙好吃耶<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KOPKOM  
+##### 4610#       发表于 2024-12-27 16:42
+
+黑睦应该无悬念C、A团最1吧
+
+*****
+
+####  akiomn  
+##### 4611#       发表于 2024-12-27 16:44
+
+看怎么处理黑睦，从第三集看黑睦肯定不正常<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说实话我觉得pv里扔书可能是白睦暂时回来但没法处理黑睦的问题？也许黑睦要到后期才能被彻底处理掉
+
+*****
+
+####  祐天寺若麦  
+##### 4612#       发表于 2024-12-27 16:45
+
+狗杂素质是这样的，盗摄已经流出来了，看哪天被当场抓到罚个50万就老实了
+
+<img src="https://img.saraba1st.com/forum/202412/27/164525w8bboe23vk2geh2q.png" referrerpolicy="no-referrer">
+
+<strong>Image_7158232094962265.png</strong> (61.64 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-27 16:45 上传
+
+*****
+
+####  chih12  
+##### 4613#       发表于 2024-12-27 16:45
+
+在 NGA 专楼里看到了枪版网盘链接，这也太快了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

@@ -16298,3 +16298,109 @@ CCC解散祥子哭的那時候，睦就在祥子身後拿著沒打開的傘，�
 
 看了剧透感觉不错，光是初祥同居中午就能多吃两碗饭<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  狮子咕  
+##### 4422#       发表于 2024-12-27 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66839095&amp;ptid=2208921" target="_blank">狮子咕 发表于 2024-12-4 10:35</a>
+
+不太高吧……主要是初华和甜甜圈女士同款那段，初华看起来有股从没觉得在sumimi和甜甜圈女士唱歌开心过的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">会赢的.jpg
+
+*****
+
+####  akiomn  
+##### 4423#       发表于 2024-12-27 10:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">只能说现在祥子确实欠修正，把睦压榨成这样
+
+992FD3A0-FE66-4587-B9C2-59FC05B3669B.jpeg
+(424.95 KB, 下载次数: 8)
+
+下载附件
+
+2024-12-27 10:48 上传
+
+<img src="https://img.saraba1st.com/forum/202412/27/104836u8erhb9nt7hztvle.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ytttsuuuba  
+##### 4424#       发表于 2024-12-27 10:50
+
+看了剧透我去好心疼睦啊，祥子也神人了，海港那里感觉就是mo和祥子爆了，然后祥子失去了这个半身才知道自己做了什么去追妻。
+
+*****
+
+####  魔法使夜子  
+##### 4425#       发表于 2024-12-27 10:51
+
+什么后悔流文学<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  OPCI_0125  
+##### 4426#       发表于 2024-12-27 10:52
+
+想知道2、3话脚本是谁
+
+*****
+
+####  瞳映山川  
+##### 4427#       发表于 2024-12-27 10:52
+
+支持睦宝应爆尽爆，是个人就能来捶两拳睦的世界再内耗人真要坏完了
+
+*****
+
+####  罗克萨斯  
+##### 4428#       发表于 2024-12-27 10:52
+
+前三话都出来了，有枪版吗<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 4429#       发表于 2024-12-27 10:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按照剧透，祥子前期应该坏人塑造，欠修正了
+也许海港对决那幕是转折点？祥子意识到睦都不对劲了
+
+
+*****
+
+####  ytttsuuuba  
+##### 4430#       发表于 2024-12-27 10:54
+
+看剧透除了睦没几个是人，要是国内现在上了，话提高的那几个都能被车到至少第4集<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">而且粉丝都不好护的那种
+
+*****
+
+####  ggxx001  
+##### 4431#       发表于 2024-12-27 10:54
+
+角色厨真得会哭死 虽然后面会包饺子 但是前面会不会太虐睦了
+
+*****
+
+####  金属化反射装甲  
+##### 4432#       发表于 2024-12-27 10:55
+
+又是乐队不会长久又是一个个炸的，先把矛盾大开，后面收起来才能大合<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 4433#       发表于 2024-12-27 10:56
+
+<img src="https://p.sda1.dev/21/27233a1344478127a6d4604428f446ae/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  qjw114514  
+##### 4434#       发表于 2024-12-27 10:57
+
+早就该爆了，会哭的孩子才有奶吃，一味的内耗只会伤害自己，不如使劲发泄出来，可能会伤到别人，但也能让身边人知道自己有多在乎<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

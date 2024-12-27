@@ -668,3 +668,56 @@ pv里祥子回老家那幕可以重新拿出来分析了，目前看mujica大概
 
 睦祥兩個人都太看重對方了吧<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  贰臣  
+##### 4512#       发表于 2024-12-27 13:34
+
+好像说老团的角色还是用的旧模型
+
+*****
+
+####  akiomn  
+##### 4513#       发表于 2024-12-27 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67034073&amp;ptid=2208921" target="_blank">御幸一也 发表于 2024-12-27 13:32</a>
+祥子「我應該更多的關心睦才對，如果是平常的睦，是不會在演奏的時候出錯的。是我把睦扯入了這個世界，把她 ...</blockquote>
+这是剧情原话？
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">要是原话真是又发糖又发刀，祥子得为黑睦负责到底了
+
+*****
+
+####  御幸一也  
+##### 4514#       发表于 2024-12-27 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67034095&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-27 13:35</a>
+
+这是剧情原话？
+
+要是原话真是又发糖又发刀，祥子得为黑睦负责到底了</blockquote>
+台詞原話翻譯。
+
+*****
+
+####  PDQ4  
+##### 4515#       发表于 2024-12-27 13:38
+
+断章狗wsd太过分了，这第四集不得致死量睦祥糖，怎么还要一个月才能看到
+
+
+*****
+
+####  akiomn  
+##### 4516#       发表于 2024-12-27 13:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好消息：独角兽xp睦祥不需要怀疑
+坏消息：独角兽恶趣味发作，糖里夹着大量的刀子
+
+*****
+
+####  山ノ内花音  
+##### 4517#       发表于 2024-12-27 13:43
+
+第五集应该会是情绪向上的一集吧
+

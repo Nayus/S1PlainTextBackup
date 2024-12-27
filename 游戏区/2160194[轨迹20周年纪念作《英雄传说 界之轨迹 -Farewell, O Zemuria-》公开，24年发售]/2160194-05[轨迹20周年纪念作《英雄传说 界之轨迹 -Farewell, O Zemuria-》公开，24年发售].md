@@ -2052,3 +2052,14 @@ ps日服三档可以玩十小时界轨</blockquote>
 
 空之轨迹三部曲从psn二档下架了<img src="https://static.saraba1st.com/image/smiley/carton2017/243.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 7316#       发表于 2024-12-27 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67034083&amp;ptid=2160194" target="_blank">winggg 发表于 2024-12-27 13:33</a>
+
+谁的馊主意？前十小时最劝退……</blockquote>
+索尼啊，如龙8也是十小时<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+

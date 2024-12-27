@@ -508,3 +508,11 @@ jojo不是最新作自己直球加入dei，还能怪错？</blockquote>
 
 索索有福了
 
+
+*****
+
+####  林无德  
+##### 53#       发表于 2024-12-27 13:37
+
+十分乃至九分的符合原作，晦气玩意儿只晦气自己还不够是吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

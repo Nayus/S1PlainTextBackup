@@ -16150,3 +16150,69 @@ ed是什么风格的有人透露了吗<img src="https://static.saraba1st.com/ima
 
 睦祥有那種最傳統幼馴染的，就是因為太懂對方所以也知道對方現在遇到的不好的事自己無能為力，只能默默陪伴<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  瞳映山川  
+##### 4404#       发表于 2024-12-27 10:07
+
+什么时候才能对睦好点啊？老师我家孩子怎么老是吃刀没糖吃啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 4405#       发表于 2024-12-27 10:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">睦，坏掉了。我，也要坏掉了
+前期没糖只有刀子，后期也不知道有没有糖
+
+*****
+
+####  NODY  
+##### 4406#       发表于 2024-12-27 10:08
+
+隔壁说是睦祥吵架被初华撞见
+
+*****
+
+####  山ノ内花音  
+##### 4407#       发表于 2024-12-27 10:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67031872&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-27 10:08</a>
+睦，坏掉了。我，也要坏掉了
+前期没糖只有刀子，后期也不知道有没有糖</blockquote>
+海港对决还没来
+
+
+*****
+
+####  山ノ内花音  
+##### 4408#       发表于 2024-12-27 10:11
+
+喵梦和layer是邻居<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 4409#       发表于 2024-12-27 10:12
+
+聽說masking都認可喵夢了是嗎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+這下雙R都通過喵夢跟ave拉上關係了
+
+*****
+
+####  好想看Mujica啊  
+##### 4410#       发表于 2024-12-27 10:12
+
+草泥马wsd又天降青梅
+
+*****
+
+####  akiomn  
+##### 4411#       发表于 2024-12-27 10:13
+
+祥子哭哭时候后面睦头其实追出去了在后面拿着把伞眼睁睁呆看着她一路哭一路过马路
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我，要坏掉了……
+前期估计要刀子吃到饱了
+

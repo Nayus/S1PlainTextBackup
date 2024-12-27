@@ -1985,3 +1985,17 @@ vs的玲个人觉得是做的最好的一版
 — from S1 Next Goose v3.3.92</blockquote>
 伊苏vs空轨就是村上的原画吧 我没记错的话 
 
+
+*****
+
+####  Squall25  
+##### 7309#       发表于 2024-12-27 10:09
+
+<img src="https://img.saraba1st.com/forum/202412/27/100931jk56sh1s6xzkvhmq.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1735265303902.jpg</strong> (586.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-27 10:09 上传
+

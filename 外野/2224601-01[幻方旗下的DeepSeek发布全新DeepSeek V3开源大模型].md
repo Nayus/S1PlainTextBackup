@@ -546,3 +546,11 @@ https://immersivetranslate.com/zh-Hans/docs/services/deepseek/</blockquote>
 充分说明深度学习在量化行业没有那么work</blockquote>
  因为股价不太是一个自回归系统，用transformer直接预测next token从建模角度是不合理的。用无监督范式呢，建模方式倒是合理了，但是样本量需求量更大，要大好几个数量级才能训出来，也不容易啦
 
+
+*****
+
+####  Rachalgepa  
+##### 52#       发表于 2024-12-28 00:35
+
+宣传上有功夫，meta当时有成熟的fp8驱动吗？好意思跟人家比训练时间。
+

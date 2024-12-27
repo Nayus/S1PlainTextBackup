@@ -3146,3 +3146,53 @@ op里是真正的黑化祥吗</blockquote>
 只能说 
 我做好了到13集都没有庆功宴的心理准备<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑夜落叶秋天  
+##### 4756#       发表于 2024-12-28 00:26
+
+又开始了
+
+又要回到mygo前中后期遇事不决黑祥子的讨论氛围了吗
+
+*****
+
+####  3353764798  
+##### 4757#       发表于 2024-12-28 00:27
+
+其实现在的还是稍微带点黑的灰祥罢了，等黑睦跟祥子说出我最讨厌你的时候，真正的黑祥才会诞生<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  悲伤颂偶  
+##### 4758#       发表于 2024-12-28 00:29
+
+初华阁楼箱子里塞的是什么东西啊，还有ed里的拍立得照片，好在意啊。。。
+
+*****
+
+####  庸necro  
+##### 4759#       发表于 2024-12-28 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67038917&amp;ptid=2208921" target="_blank">悲伤颂偶 发表于 2024-12-28 00:29</a>
+
+初华阁楼箱子里塞的是什么东西啊，还有ed里的拍立得照片，好在意啊。。。 ...</blockquote>
+一箱尾随祥子的照片
+
+
+*****
+
+####  哈曼的YY  
+##### 4760#       发表于 2024-12-28 00:30
+
+ 本帖最后由 哈曼的YY 于 2024-12-28 00:32 编辑 
+
+已经想象出祥老师颓废的时候被ob一串字母人格吞噬遗忘一切变成人偶了
+
+这时候大喵觉醒了am一串字母人格用爱去...
+
+什么超能力战斗动画<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

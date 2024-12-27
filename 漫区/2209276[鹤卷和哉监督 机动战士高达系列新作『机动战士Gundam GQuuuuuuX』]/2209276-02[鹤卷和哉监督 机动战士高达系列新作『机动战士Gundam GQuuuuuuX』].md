@@ -883,3 +883,31 @@ GQX就......现在处于噱头没爆就被内鬼透了，痞子劝退人设劝�
 水魔0集+开篇噱头做的非常成功，而且是沉寂六七年后的新正作，第一个女一番正作tv，再加上网红大河内网红 ...</blockquote>
 之前那个PV流量比水魔那个还高吧<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RE㐅ia  
+##### 1556#       发表于 2024-12-28 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67037904&amp;ptid=2209276" target="_blank">刺客ares 发表于 2024-12-27 22:32</a>
+
+其实啊，背景设定一出已经不可能不蹭了，就怕蹭层皮挨了骂还没引到人气，不如做彻底点
+
+所以我不理解别处还 ...</blockquote>
+这年头和uc扯上关系不是纯负面宣传吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">想引流肯定是尽量和uc撇清关系才好。要是新人知道了需要补那么多前作才能看早跑完了。现在这样就是他们非常想做uc但又怕大家知道是uc所以一直藏着
+
+
+*****
+
+####  刺客ares  
+##### 1557#       发表于 2024-12-28 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67038498&amp;ptid=2209276" target="_blank">wasssf 发表于 2024-12-27 23:39</a>
+
+水魔除了大河内和y字头组合卖相一坨啊</blockquote>
+现在回去看水魔那个pv1多少沾点诈骗了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">里面还有高质量机战和兵王狸猫
+
+不过0集刚出那阵大家都是信心满满的，第一集更是热度爆炸
+
+希望gqx的pv诈骗没水魔那么厉害吧
+

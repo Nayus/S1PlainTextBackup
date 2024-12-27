@@ -831,3 +831,16 @@ VTR应该是三个人的采访录像吧
 
 至于人物ooc，这部开头成功以后怕不是要当新时代uc推，机设和史设推演也更自由，不比塞的满满当当的主0079更好？万代已经在努力尝试用新的红发小女孩代替阿姆罗了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刺客ares  
+##### 1551#       发表于 2024-12-27 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67037903&amp;ptid=2209276" target="_blank">ナルバレック 发表于 2024-12-27 22:32</a>
+
+因为STAFF引来的路人比水魔还多吧，对老人低预期其实没啥用，闻名而来的人不管这个 ...</blockquote>
+水魔0集+开篇噱头做的非常成功，而且是沉寂六七年后的新正作，第一个女一番正作tv，再加上网红大河内网红Y姓组合，可以说在引流buff上前无古人，播出期间的热度也对的上这些buff<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+GQX就......现在处于噱头没爆就被内鬼透了，痞子劝退人设劝退机设劝退女主劝退百合劝退bg劝退，op不知道能不能找到大tie，只有代哥和khara有自信的阶段<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

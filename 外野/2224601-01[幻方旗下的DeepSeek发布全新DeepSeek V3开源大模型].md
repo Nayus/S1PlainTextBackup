@@ -516,3 +516,33 @@ https://immersivetranslate.com/zh-Hans/docs/services/deepseek/</blockquote>
 
 这价格涨得有点猛啊，看来要提前多充点。
 
+
+*****
+
+####  kouym  
+##### 49#       发表于 2024-12-27 23:01
+
+之前是真便宜 看了眼就算涨价了还是很便宜
+
+
+*****
+
+####  kouym  
+##### 50#       发表于 2024-12-27 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67034067&amp;ptid=2224601" target="_blank">浅井惠 发表于 2024-12-27 13:31</a>
+
+最重要的是不知道v3上线后还能不能继续用v2，目前主要用来翻译小黄油感觉其实v2已经够用了，玩得多一个月估 ...</blockquote>
+看公告今天已经换v3了 应该是没有v2对外的接口了
+
+原来黄油这么大的文字量吗
+
+*****
+
+####  笨拙的机器人  
+##### 51#       发表于 2024-12-27 23:06
+
+<blockquote>闷吸 发表于 2024-12-27 11:30
+充分说明深度学习在量化行业没有那么work</blockquote>
+ 因为股价不太是一个自回归系统，用transformer直接预测next token从建模角度是不合理的。用无监督范式呢，建模方式倒是合理了，但是样本量需求量更大，要大好几个数量级才能训出来，也不容易啦
+

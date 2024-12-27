@@ -28,3 +28,11 @@
 
 —— 来自 vivo V2025A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  captoon  
+##### 3290#       发表于 2024-12-28 03:30
+
+希望是能让大家都满意
+

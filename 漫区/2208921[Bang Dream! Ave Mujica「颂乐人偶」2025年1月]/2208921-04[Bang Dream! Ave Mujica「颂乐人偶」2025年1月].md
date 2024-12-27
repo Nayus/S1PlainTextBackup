@@ -3053,3 +3053,96 @@ mujica出问题倒是大概率，她对mujica太执着也确实是很显而易�
 
 尼楼一热真的是什么牛鬼蛇神都跑出来了，这么几页就连续刷出代餐论，喵梦搞事无错论，初华阴湿女炸c团论，祥子削面板论。。。
 
+
+*****
+
+####  akiomn  
+##### 4746#       发表于 2024-12-28 00:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说黑祥本质还是那个软糯祥，对睦还是个只会任性撒娇的妹妹
+如果祥子真黑化会很恐怖，大概比黑睦还可怕吧，回归丰川家不择手段利用一切，万能之人的设定在导致破坏力极高
+
+*****
+
+####  山ノ内花音  
+##### 4747#       发表于 2024-12-28 00:15
+
+op里是真正的黑化祥吗<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  聊nsy专用号  
+##### 4748#       发表于 2024-12-28 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67038786&amp;ptid=2208921" target="_blank">桜庭千景 发表于 2024-12-28 00:12</a>
+
+尼楼一热真的是什么牛鬼蛇神都跑出来了，这么几页就连续刷出代餐论，喵梦搞事无错论，初华阴湿女炸c团论， ...</blockquote>
+神经 我天天跑现地发评论还要在乎楼里有什么规矩吗
+
+*****
+
+####  akiomn  
+##### 4749#       发表于 2024-12-28 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67038807&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2024-12-28 00:15</a>
+op里是真正的黑化祥吗</blockquote>
+不会的，黑祥本质是软糯祥，骨子里还是个会撒娇的妹妹（特别是对睦）但是祥子中间很可能会因为mujica什么原因彻底颓废一次然后再次振作，不过这是之后的祥子线了
+
+*****
+
+####  哈曼的YY  
+##### 4750#       发表于 2024-12-28 00:18
+
+<img src="https://img.saraba1st.com/forum/202412/28/001857prxolhjjkhicjiv5.jpg" referrerpolicy="no-referrer">
+
+<strong>Gfxj2TmasAEemN_.jpg</strong> (377.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-28 00:18 上传
+
+*****
+
+####  名津流  
+##### 4751#       发表于 2024-12-28 00:19
+
+问个问题，为什么阿B不跟着wsd搞个国内的三集先行上映呢？
+
+
+*****
+
+####  山ノ内花音  
+##### 4752#       发表于 2024-12-28 00:20
+
+今天看的两场 结束之后都有掌声 
+旁边的女生还生生看哭了
+看来对立本人的冲击力还是很大的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 4753#       发表于 2024-12-28 00:21
+
+ 本帖最后由 akiomn 于 2024-12-28 00:22 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想了下完全体祥子和睦的相处可能会很甜？
+
+意识到周围很多人爱着自己的祥子，敢于发言表达自我，本质又是温柔的睦。祥子遇到问题可能真会向睦撒娇也说不定（也许还会向初华撒娇）
+
+看独角兽后续怎么写吧，我觉得现在有多刀后续就有多甜，毕竟1-3集是能看出睦祥两个满脑子都是对方
+
+*****
+
+####  Aendst  
+##### 4754#       发表于 2024-12-28 00:21
+
+怎么还有看哭的，这是真实的吗
+
+*****
+
+####  山ノ内花音  
+##### 4755#       发表于 2024-12-28 00:23
+
+只能说 
+我做好了到13集都没有庆功宴的心理准备<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

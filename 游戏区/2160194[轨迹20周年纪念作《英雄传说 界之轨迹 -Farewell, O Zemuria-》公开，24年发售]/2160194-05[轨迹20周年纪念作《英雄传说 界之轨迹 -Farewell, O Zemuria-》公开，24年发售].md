@@ -2063,3 +2063,22 @@ ps日服三档可以玩十小时界轨</blockquote>
 谁的馊主意？前十小时最劝退……</blockquote>
 索尼啊，如龙8也是十小时<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  smdzh2  
+##### 7317#       发表于 2024-12-27 14:07
+
+<img src="https://p.sda1.dev/21/28feb0d51a7bf0ea236d626b2f1a3370/image.jpg" referrerpolicy="no-referrer">
+万圣周边到手，还是村上画风适合我<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+*****
+
+####  吴怀在  
+##### 7318#       发表于 2024-12-27 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67008047&amp;ptid=2160194" target="_blank">引爆时尚潮流 发表于 2024-12-24 20:44</a>
+界轨pc版怎么没消息呀</blockquote>
+有了
+补丁丁
+

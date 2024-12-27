@@ -4328,3 +4328,13 @@ EX又不能打暴击
 
 终于把音乐盒点满了
 
+
+*****
+
+####  サイトヒメア  
+##### 15620#       发表于 2024-12-27 14:14
+
+近卫的石头也被扣到负数了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

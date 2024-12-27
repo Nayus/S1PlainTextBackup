@@ -912,3 +912,106 @@ pv里睦砸书那幕回收了吗？</blockquote>
 睦想帮祥子，强撑着自己演。祥知道睦快坏了，大喵要让睦继续演，祥子不让了
 这俩互相爆了把话说开了就好了，还有目前看起来童年互动回忆还在藏着
 
+
+*****
+
+####  狮子咕  
+##### 4538#       发表于 2024-12-27 14:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看漏油的总结，soyo已经把母鸡卡那头的事从睦头嘴里问出来了啊……看了她们说了不止一句话，睦头不说的话soyo怎么可能知道mujica的写词剧情什么的是祥子干的
+
+*****
+
+####  山ノ内花音  
+##### 4539#       发表于 2024-12-27 14:26
+
+莫提斯（人偶）递给睦的伞
+就是那个雨天睦没能为祥子撑起的粉红色伞……
+
+*****
+
+####  御幸一也  
+##### 4540#       发表于 2024-12-27 14:26
+
+怎麼每次pua睦都是為了問祥子，爽姐有點太愛祥子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 4541#       发表于 2024-12-27 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67034492&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2024-12-27 14:26</a>
+
+莫提斯（人偶）递给睦的伞
+
+就是那个雨天睦没能为祥子撑起的粉红色伞……</blockquote>
+虐到了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狮子咕  
+##### 4542#       发表于 2024-12-27 14:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可不就是太爱祥子了，另一个repo里在go团聚会的时候soyo还在那儿“是祥子带我们前进blabla”，这写的有点过于魅魔了
+
+*****
+
+####  PDQ4  
+##### 4543#       发表于 2024-12-27 14:28
+
+爽世本来就爱祥子啊，越爱祥子和ccc就越恨睦，不知道为什么有人要歪曲爽世的感情<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">睦和爽世的箭头都是对着祥子的
+
+*****
+
+####  山ノ内花音  
+##### 4544#       发表于 2024-12-27 14:28
+
+你说得对但仿佛看穿我心思一般，坏心思的神明，为我带来了礼物。这就是对我而言命运的相遇。我想我一辈子都不会忘记。珍贵的特别的无可替代的，我的归宿<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| PDQ4| + 1|太爱了|
+
+查看全部评分
+
+*****
+
+####  DARK_HGCG  
+##### 4545#       发表于 2024-12-27 14:28
+
+三集看下来的感觉就是
+
+祥子和喵梦是公开的路线问题矛盾
+
+喵梦嫉妒睦的人气（她自己也上演技班评价却不如睦在舞台上的瘫痪），又不满初華不出力
+
+初華有那么一点吃睦的醋（祥子问题）
+
+睦已经发疯了之后会不会咬谁那是无法预测的命运的舞台
+
+剩下那唯一一个公事公办态度的可能才是关键时刻力挽狂澜的那个
+
+
+*****
+
+####  良臣没有重谢  
+##### 4546#       发表于 2024-12-27 14:30
+
+睦家排练室一直给的破旧的镜头特写是什么意思。有裂缝的凳子烂掉的鼓棒想说明啥。
+
+—— 来自 HUAWEI CET-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  akiomn  
+##### 4547#       发表于 2024-12-27 14:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等后面看看go会怎样行动吧。pv里便利贴那幕还没回收，然后蜜柑以前说过有段她很喜欢的剧情，可能是后期的素祥和解也说不定
+总结：灯祥素祥都在打复活赛
+

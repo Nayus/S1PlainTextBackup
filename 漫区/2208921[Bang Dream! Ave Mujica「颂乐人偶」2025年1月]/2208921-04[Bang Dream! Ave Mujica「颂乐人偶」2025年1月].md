@@ -118,3 +118,41 @@ go官漫，第一话ccc组建
 
 查看全部评分
 
+
+*****
+
+####  akiomn  
+##### 4454#       发表于 2024-12-27 11:37
+
+若将爱和吻都破坏，你说我到底该憎恨谁？
+难道每个人都为了出生而选择死亡吗，只是想要救赎而已。
+如果天空染上了哀愁，就让纯白的百合花漂浮，以此悼念。
+……
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">愚神的歌词意思现在明白了，白睦没了，黑睦来了，祥子好日子来咯
+
+
+*****
+
+####  枫林不见  
+##### 4455#       发表于 2024-12-27 11:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">快进到祥子被打倒在地，成为星怒
+
+*****
+
+####  御幸一也  
+##### 4456#       发表于 2024-12-27 11:45
+
+喵夢怎麼是高中生我要殺了武士道啊啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  枫林不见  
+##### 4457#       发表于 2024-12-27 11:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67033111&amp;ptid=2208921" target="_blank">御幸一也 发表于 2024-12-27 11:45</a>
+
+喵夢怎麼是高中生我要殺了武士道啊啊啊</blockquote>
+喵祥的性张力瞬间缩小一大半 没意思了
+

@@ -235,3 +235,34 @@ zsbd
 
 <img src="https://img.saraba1st.com/forum/202412/27/204604xmc48b4f5e5sm8qv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  何处可分  
+##### 6814#       发表于 2024-12-27 22:09
+
+『偶像大师』765PRO ALLSTARS 单独LIVE ～NEVER END IDOL!!!!!!!!!!!!!～
+
+765PRO ALLSTARS＋ Cast全员出演
+
+2025年8月2日,3日 Kアリーナ横浜 ​​​
+
+<img src="https://img.saraba1st.com/forum/202412/27/220821a6sdb4u1sxv9xb5z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (82.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-27 22:08 上传
+
+<img src="https://img.saraba1st.com/forum/202412/27/220826wznion05xg0o5x1o.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (47.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-27 22:08 上传
+
+ミリシタ】7.5周年記念 ７６５プロカウントダウン24/7ライブ おねえさん組＆いもうと組でゆるっと配信【アイドルマスター】【MV】アニメ「アイドルマスター」×「READY!!」【#アイマス20周年イヤー】
+[https://youtu.be/22RQOgQhwxI?si=6Bu7LzwqnBJwSL3M](https://youtu.be/22RQOgQhwxI?si=6Bu7LzwqnBJwSL3M)
+

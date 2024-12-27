@@ -471,3 +471,18 @@ jojo不是最新作自己直球加入dei，还能怪错？</blockquote>
 
 还是不够dei啊，你看这胸和屁股还是大，身材还是苗条呢<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  emmerMK3  
+##### 49#       发表于 2024-12-27 12:38
+
+确实是废物都喜欢搞dei给自己抬价
+
+*****
+
+####  脸宽  
+##### 50#       发表于 2024-12-27 12:40
+
+别来沾边
+

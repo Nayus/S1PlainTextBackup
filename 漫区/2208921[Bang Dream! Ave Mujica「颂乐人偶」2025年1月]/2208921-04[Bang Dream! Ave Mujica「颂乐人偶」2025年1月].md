@@ -309,3 +309,55 @@ go官漫，第一话ccc组建
 只能说现在祥子确实欠修正，把睦压榨成这样</blockquote>
 使劲往火葬场里浇油中
 
+
+*****
+
+####  良臣没有重谢  
+##### 4474#       发表于 2024-12-27 12:39
+
+话说睦头人的吉他水平到底怎么样？周围的人都觉得她很不错，但是她自己觉得自己烂完了。到底是自我要求过高还是真不行别人给她面子夸她。
+
+—— 来自 HUAWEI CET-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  影伴光生  
+##### 4475#       发表于 2024-12-27 12:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这团比起高压锅，更像是离心机，祥子一个人当轴，其他四个人在盘上当试管，配不平就会逐渐倾斜，最后轴彻底坏掉，盘子砸穿实验室飞到操场上
+
+—— 来自 vivo V2302A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  KLHgg  
+##### 4476#       发表于 2024-12-27 12:44
+
+看文字剧透第三集结尾是断章，那么4-6集提前点映wsd还会安排吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 4477#       发表于 2024-12-27 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67033621&amp;ptid=2208921" target="_blank">良臣没有重谢 发表于 2024-12-27 12:39</a>
+话说睦头人的吉他水平到底怎么样？周围的人都觉得她很不错，但是她自己觉得自己烂完了。到底是自我要求过高 ...</blockquote>
+目前看是自我要求过高，给自己压力太大了
+能加入mujica，技术肯定差不到哪去的
+
+*****
+
+####  akiomn  
+##### 4478#       发表于 2024-12-27 12:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑死我了，这摘面后收获的流量，最高的是睦，最低的是……喵梦，连祥子流量都比喵梦高！
+搬石头砸自己的脚了，没流量不说，还招来了黑睦，最后可能还有黑初华，祥子也是濒临爆炸的状态
+
+*****
+
+####  御幸一也  
+##### 4479#       发表于 2024-12-27 12:47
+
+怎麼第二話還有海希大賣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

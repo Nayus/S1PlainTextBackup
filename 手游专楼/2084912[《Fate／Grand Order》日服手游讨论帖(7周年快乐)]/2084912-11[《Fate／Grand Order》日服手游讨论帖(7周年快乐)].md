@@ -4407,3 +4407,14 @@ EX又不能打暴击
 艹 歪了个钓鱼佬</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你的图终于刷出来了 欧 羡慕 new 血赚 普池稍有的强卡  更是赚中赚（
 
+
+*****
+
+####  qixinno2  
+##### 15628#       发表于 2024-12-27 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67037016&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-27 20:18</a>
+
+你的图终于刷出来了 欧 羡慕 new 血赚 普池稍有的强卡  更是赚中赚（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">呸
+

@@ -2234,3 +2234,21 @@ wsd！我现在就想看前三集啊啊啊！！！
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">少女乐队岂是如此不便之物，在演剧你们颠开心了，观众看开心了，winwin！
 
+
+*****
+
+####  akiomn  
+##### 4664#       发表于 2024-12-27 20:59
+
+Mortis：每次醒来，我都宛如重生。不醒来的话，等待的就是永远的死亡。
+(在仿佛要坏掉的八音盒的伴奏下，睦继续说道)
+Mortis：为了你，我编织摇篮。为你，我重新编写棺木般的摇篮曲。
+Mortis：你就继续沉湎在不会醒来的梦乡中。
+海铃：这是怎么回事？
+初华：我不知道
+(睦露出一抹更加灿烂的微笑，用难以想象到是她本人的温柔语气说道)
+Mortis：所以说，没关系的，晚安，祝好梦！
+小祥：睦？
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑睦这台词，等着吃回旋镖吧，白睦回来是稳的了
+

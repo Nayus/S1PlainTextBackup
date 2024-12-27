@@ -4320,3 +4320,11 @@ EX又不能打暴击
 
 本来点完技能树有不少棋子和辉石已经快见底了，这一波下来估计能用到关服了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  الطائر  
+##### 15619#       发表于 2024-12-27 13:29
+
+终于把音乐盒点满了
+

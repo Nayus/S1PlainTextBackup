@@ -2016,3 +2016,39 @@ vs的玲个人觉得是做的最好的一版
 
 还是这个画风顺眼，终于不是e大师了
 
+
+*****
+
+####  卢迪克  
+##### 7312#       发表于 2024-12-27 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66999116&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-12-23 18:07</a>
+
+1月的电击，啥东西，设定集？</blockquote>
+二十周年设定本都没有，实在憋不出2d美术了，已死勿念<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 7313#       发表于 2024-12-27 13:30
+
+ps日服三档可以玩十小时界轨<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  winggg  
+##### 7314#       发表于 2024-12-27 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67034063&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-12-27 13:30</a>
+
+ps日服三档可以玩十小时界轨</blockquote>
+谁的馊主意？前十小时最劝退……
+
+*****
+
+####  卢迪克  
+##### 7315#       发表于 2024-12-27 13:33
+
+空之轨迹三部曲从psn二档下架了<img src="https://static.saraba1st.com/image/smiley/carton2017/243.png" referrerpolicy="no-referrer">
+

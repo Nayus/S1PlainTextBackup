@@ -573,3 +573,98 @@ pv里祥子回老家那幕可以重新拿出来分析了，目前看mujica大概
 车站部分初睦祥那段，祥子泪奔。我看人说是祥子发现自己犯了错伤害到了睦，自己绷不住逃跑了
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看后面睦线怎么写吧，祥子应该是知道自己伤害到睦了，黑睦真要祥子自己去解决了
 
+
+*****
+
+####  贰臣  
+##### 4502#       发表于 2024-12-27 13:24
+
+好期待啊，只看文字果然还是不够，感觉正片只会信息量更爆炸
+
+*****
+
+####  枫林不见  
+##### 4503#       发表于 2024-12-27 13:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没人关注花女小绿的校园生活吗？  海玲也是被确定脸蛋超好的类型  小绿被夹击肯定不好过吧
+
+*****
+
+####  Aendst  
+##### 4504#       发表于 2024-12-27 13:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67033997&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-27 13:23</a>
+
+车站部分初睦祥那段，祥子泪奔。我看人说是祥子发现自己犯了错伤害到了睦，自己绷不住逃跑了
+
+看后面睦线怎 ...</blockquote>
+这段其实最后是祥子说着说着情绪崩溃但是抬头看了一眼睦，然后开始表露强烈的动摇，才跑开了
+
+*****
+
+####  仟音一心  
+##### 4505#       发表于 2024-12-27 13:27
+
+<img src="https://p.sda1.dev/21/4e50b3985fca9bc437ebe48fc0e3a9de/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/e43c4d1042b2f139166ddca3cbeadb61/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/240fb78b2bb37d1f0221f82052a51d68/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/5f662fd005cd6a7880d7d42862e62398/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/c79d9debdf954deca90dd7baa0ba70c2/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/67870d618ca4f898548f472ffdbfa1f0/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/a320abdf2f82e1014ccf8c92e6914eaa/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/21baa19e5516af0805dde539aa0ecf29/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/d40b16579c41ab8593622c58216ba82f/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 4506#       发表于 2024-12-27 13:28
+
+别最后是键帽收拾残局吧，毕竟她是真的想要钱和流量。
+
+*****
+
+####  NODY  
+##### 4507#       发表于 2024-12-27 13:29
+
+海铃脸好看这个设定当初独角兽就在推特强调过很多次了
+
+
+*****
+
+####  akiomn  
+##### 4508#       发表于 2024-12-27 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67034039&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2024-12-27 13:28</a>
+别最后是键帽收拾残局吧，毕竟她是真的想要钱和流量。</blockquote>
+有可能的，pv里祥子豪宅那幕，出现在喵梦面具掉落后，初华面具掉落前。但是这场景没喵梦出现，有可能mujica炸了，祥子颓废了，然后喵梦鼓舞祥子重新振作起来
+
+*****
+
+####  影伴光生  
+##### 4509#       发表于 2024-12-27 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67034039&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2024-12-27 13:28</a>
+别最后是键帽收拾残局吧，毕竟她是真的想要钱和流量。</blockquote>
+这下主播随粉了
+
+—— 来自 vivo V2302A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 4510#       发表于 2024-12-27 13:31
+
+海玲、初华：你是事业型大女主吗
+
+祥子：我觉得我是
+
+*****
+
+####  御幸一也  
+##### 4511#       发表于 2024-12-27 13:32
+
+祥子「我應該更多的關心睦才對，如果是平常的睦，是不會在演奏的時候出錯的。是我把睦扯入了這個世界，把她逼到這樣的。而且我也從小就知道睦是怎樣的人」
+
+睦祥兩個人都太看重對方了吧<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer"> 
+

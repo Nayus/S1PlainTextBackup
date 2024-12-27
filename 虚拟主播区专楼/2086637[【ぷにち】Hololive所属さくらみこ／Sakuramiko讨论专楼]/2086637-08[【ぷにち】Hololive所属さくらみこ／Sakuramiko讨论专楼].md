@@ -1799,3 +1799,18 @@ taiyaki就不说了已经确定2月份出联动活动了，而且之前暗示过
 
 所以本社工作室可以爆破了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真的对hololmem没有任何意义
 
+
+*****
+
+####  karastar  
+##### 10506#       发表于 2024-12-27 00:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">本社工作室不也是其他holomen占用了吗，排期定好又没法插队
+
+*****
+
+####  holoan  
+##### 10507#         楼主| 发表于 2024-12-27 19:40
+
+喂喂喂莫不是七字母安排了同一间！？
+

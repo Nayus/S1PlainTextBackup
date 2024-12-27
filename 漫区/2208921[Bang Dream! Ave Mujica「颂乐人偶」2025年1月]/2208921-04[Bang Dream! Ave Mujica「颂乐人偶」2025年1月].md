@@ -2130,3 +2130,16 @@ wsd！我现在就想看前三集啊啊啊！！！
 
 摘面具后祥子被报纸爆出是大集团后继人，喵梦：你怎么不说自己是大小姐啊，第一次见面穿那么破衣服让我误会了blabla，大祥老师不知道心里怎么想的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 4654#       发表于 2024-12-27 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67036775&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-27 19:35</a>
+睦喵是好的，喵梦演技这条线直接和睦搭上了
+
+楼里应该也有漏油说过，睦的可能问题主要是过分“无私”，表现 ...</blockquote>
+其实睦线的重点还是，睦要能自己不压力自己，祥子已经很明确了，不想演可以不演，表达自己想法。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是睦祥这对cp属于双向奔赴，一半痛苦另一半也痛苦，全都在为对方考虑。所以睦线还有个问题是祥子问题也得解决，否则睦还会因为半身的关系同样痛苦着
+

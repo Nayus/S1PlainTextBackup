@@ -4428,3 +4428,11 @@ EX又不能打暴击
 
 真挺微妙的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 15630#       发表于 2024-12-27 21:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">不如发我一堆石头让我抽卡 给那么多材料有个屁用 根本没角色用
+

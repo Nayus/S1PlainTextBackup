@@ -1605,3 +1605,66 @@ pv场景要尽快回收的，目前还有些没回收，包括祥子回豪宅。
 现在感觉睦祥真是又甜又虐，都目击睦本人格消失了，下一集祥子要负起责任来啊 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥子：啊，太好了……以前的小睦终于回来了……（按理说不会出现这种剧情）
 
+
+*****
+
+####  蜇灵  
+##### 4601#       发表于 2024-12-27 16:27
+
+话说黑化睦是中二病风格的吗？
+
+*****
+
+####  瞳映山川  
+##### 4602#       发表于 2024-12-27 16:28
+
+挺好奇黑睦是舞台限定形态还是日常形态，日常那太无敌了，期待拉满<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狮子咕  
+##### 4603#       发表于 2024-12-27 16:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">海港对狙多半是盐吧……我也希望黑睦直接是日常形态，但是看pv的话可能第四话开头就先下线了，在屋子里砸东西的是本睦
+
+*****
+
+####  qjw114514  
+##### 4604#       发表于 2024-12-27 16:29
+
+过去软弱的睦，已经死了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  akiomn  
+##### 4605#       发表于 2024-12-27 16:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑睦最多舞台剧live限定吧，睦线结束肯定要把白睦拉回来的，不然私底下祥子对黑睦……我觉得黑睦一个人能把鸡团四个全暴击个遍
+
+*****
+
+####  山ノ内花音  
+##### 4606#       发表于 2024-12-27 16:31
+
+喵梦是真有团魂吧 
+mujica可以不搞乐队 但不能散<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 4607#       发表于 2024-12-27 16:34
+
+黑睦其实并不像人格切换，有点像完美演员的味道，自然而然地独角戏，自然而然地落泪，自然而然地欣喜，就像戏剧表演一样
+
+能感觉到精神状态很癫狂，但是看不出来其他东西了
+
+评价是总攻气质500%
+
+*****
+
+####  qjw114514  
+##### 4608#       发表于 2024-12-27 16:35
+
+睦可以联动少女歌剧了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

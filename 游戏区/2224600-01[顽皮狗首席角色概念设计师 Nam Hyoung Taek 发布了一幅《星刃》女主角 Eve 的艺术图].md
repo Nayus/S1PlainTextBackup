@@ -680,3 +680,22 @@ jo厨狠狠享受了
 
 看了眼A站，这水平也能当上首席？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  燃烬之眼  
+##### 72#       发表于 2024-12-27 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67032700&amp;ptid=2224600" target="_blank">谢皮利男爵 发表于 2024-12-27 11:09</a>
+鬼龙院皐月</blockquote>
+乳鬼龙院了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.94-alpha
+
+*****
+
+####  一头白熊  
+##### 73#       发表于 2024-12-27 19:55
+
+你说他DEI 这身材 熊和屁股都不太正确，脸怎么能画成这个样子？为了贴合画风？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

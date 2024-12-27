@@ -1332,3 +1332,42 @@ pv里睦砸书那幕回收了吗？</blockquote>
 有https://tieba.baidu.com/p/9364404351?share=9105&amp;fr=sharewise&amp;see_lz=0&amp;share_from=post&amp;sfc=copy&amp;cl ...</blockquote>
 3q！！！！！！
 
+
+*****
+
+####  Aendst  
+##### 4571#       发表于 2024-12-27 15:22
+
+无剧透观影体验
+
+信息量很大，节奏蛮快的，如果之前没看过的话，很多东西要多花时间消化反应一下
+
+脚本逻辑OK，包括角色压力和精神状态的处理也都很到位，是能感觉到很窒息的
+
+部分极限状态表现也很揪心，是那种我怀疑下一秒就要叫救护车的程度，不用担心鸡毛蒜皮小事闹麻了，不会有这种观感的
+
+角色本身也是，从她们自身出发行为都是合理的，矛盾也不突兀
+
+*****
+
+####  仟音一心  
+##### 4572#       发表于 2024-12-27 15:23
+
+<img src="https://p.sda1.dev/21/fda4f02987fb86d2b7b828d3b0340d8c/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 4573#       发表于 2024-12-27 15:24
+
+看漏油repo，这哪里吵架了，这不是祥子单方面对睦撒娇吗，没想到是祥子先宣泄情感
+
+这下0完了
+
+*****
+
+####  狮子咕  
+##### 4574#       发表于 2024-12-27 15:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">睦那个吉他小人想唱歌是什么意思，你也想做吉他主唱？
+

@@ -715,3 +715,13 @@ jo厨狠狠享受了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">棒子画师，要画肯定能画出来的，画什么样那就他就没发言权了，毕竟你画个eve也会被尼尔大前辈给直接毙了啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  奥柏伦亲王  
+##### 76#       发表于 2024-12-27 21:09
+
+看得出来是dei让它过上了更好的生活
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -2252,3 +2252,41 @@ Mortis：所以说，没关系的，晚安，祝好梦！
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑睦这台词，等着吃回旋镖吧，白睦回来是稳的了
 
+
+*****
+
+####  大泽瑠璃乃  
+##### 4665#       发表于 2024-12-27 21:11
+
+嘻嘻，我要看mortis人格踩头大猫的同人大爆发呀
+
+*****
+
+####  聊nsy专用号  
+##### 4666#       发表于 2024-12-27 21:12
+
+彻底疯狂彻底疯狂彻底疯狂
+
+*****
+
+####  PDQ4  
+##### 4667#       发表于 2024-12-27 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67037304&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-27 20:59</a>
+
+Mortis：每次醒来，我都宛如重生。不醒来的话，等待的就是永远的死亡。
+
+(在仿佛要坏掉的八音盒的伴奏下，睦 ...</blockquote>
+本来就会回来，大概是融合态，最后那幕睦只有左眼在哭
+
+等祥子什么时候追妻火葬场了睦就回来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+mo吞噬睦那个真的很有追妻火葬场前奏，吵架是吧，本来一直不去握mortis手的睦，因为祥子崩溃对诱惑（mortis）伸出了手，吵到最后你爱的睦没啦！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  贰臣  
+##### 4668#       发表于 2024-12-27 21:13
+
+第四集会有睦祥的童年回忆回吗，奶一口<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

@@ -1469,3 +1469,72 @@ pv里睦砸书那幕回收了吗？</blockquote>
 因为对方是睦 祥子才会这么说
 换个人 就不是一回事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哈曼的YY  
+##### 4586#       发表于 2024-12-27 16:07
+
+压力爽女士感觉她只会问我哪里不够挺你立刻改
+
+*****
+
+####  山ノ内花音  
+##### 4587#       发表于 2024-12-27 16:07
+
+祥子住在初华家的loft
+和loftmoon这个意象有关吗
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 4588#       发表于 2024-12-27 16:07
+
+有没有后面素姐又想去pua木头结果被黑木头怼爆炸当场呆若木鸡的场面啊，好想看啊<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 4589#       发表于 2024-12-27 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67035232&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2024-12-27 15:57</a>
+这样剧情就很容易顺下去了：黑木头变得强势之后祥子能压力的就只有本来就倒贴的初华，结果最当然是初华最后 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">pv场景要尽快回收的，目前还有些没回收，包括祥子回豪宅。这幕不太可能发生在后期，初华又是最后一个爆，可能是中期祥子炸了吧
+
+
+*****
+
+####  狮子咕  
+##### 4590#       发表于 2024-12-27 16:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老实说黑木头怎么怼素世啊，素世要是破防把【既然你没打算回ccc那你为啥帮我问祥子】问出来，怎么回复都是一个巨大的人气debuff，还不如老老实实的俩人先别见面了
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 4591#       发表于 2024-12-27 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67035341&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-27 16:08</a>
+
+pv场景要尽快回收的，目前还有些没回收，包括祥子回豪宅。这幕不太可能发生在后期，初华又是最后一个爆， ...</blockquote>
+我主要觉得要是祥子因为木头事件的爆发和解决自我反省，把自己性格和交流方式改好了之后要怎么点爆初华，这点比较难贷款。
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 4592#       发表于 2024-12-27 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67035369&amp;ptid=2208921" target="_blank">狮子咕 发表于 2024-12-27 16:11</a>
+
+老实说黑木头怎么怼素世啊，素世要是破防把【既然你没打算回ccc那你为啥帮我问祥子】问出来，怎么回复都是 ...</blockquote>
+黑木头肯定不当信鸽了呀，“要问你自己去问。什么祥子不想见你啊，哈哈，那你无敌了呀。”
+
+*****
+
+####  黑夜落叶秋天  
+##### 4593#       发表于 2024-12-27 16:16
+
+比起这个 更好奇黑睦对祥子的态度
+
+无论是盐还是糖丟特别好磕
+

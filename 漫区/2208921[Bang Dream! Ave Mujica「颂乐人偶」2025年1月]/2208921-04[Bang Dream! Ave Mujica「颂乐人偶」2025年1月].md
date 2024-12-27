@@ -1713,3 +1713,61 @@ mujica可以不搞乐队 但不能散<img src="https://static.saraba1st.com/imag
 
 在 NGA 专楼里看到了枪版网盘链接，这也太快了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哈曼的YY  
+##### 4614#       发表于 2024-12-27 16:48
+
+看来扔书是白黄瓜砸镜面里映出的黑黄瓜了
+
+什么镜魔
+
+都这么惊悚了 黄瓜要素还会出现吗
+
+*****
+
+####  狮子咕  
+##### 4615#       发表于 2024-12-27 16:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来砸东西那个场景里好像还有满地的玩偶吧，睦把自己的玩偶朋友都杀了？以及我怎么印象里睦头人房间没有镜子
+
+*****
+
+####  akiomn  
+##### 4616#       发表于 2024-12-27 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67035738&amp;ptid=2208921" target="_blank">狮子咕 发表于 2024-12-27 16:49</a>
+说起来砸东西那个场景里好像还有满地的玩偶吧，睦把自己的玩偶朋友都杀了？以及我怎么印象里睦头人房间没有 ...</blockquote>
+那个画面还没出现，现在推测和睦在床上摸吉他是一个场景
+还有个是砸书也没出现
+
+*****
+
+####  黑夜落叶秋天  
+##### 4617#       发表于 2024-12-27 16:52
+
+好奇后续剧情怎么走了 
+
+再过6天就可以看mujica了 角色pv还有吧
+
+
+*****
+
+####  狮子咕  
+##### 4618#       发表于 2024-12-27 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67035745&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-27 16:50</a>
+
+那个画面还没出现，现在推测和睦在床上摸吉他是一个场景
+
+还有个是砸书也没出现 ...</blockquote>
+是啊，就是pv里的砸东西+满地狼藉。看起来是同一个场景（地上也有书+玩具）
+
+*****
+
+####  黑夜落叶秋天  
+##### 4619#       发表于 2024-12-27 16:55
+
+海铃呲牙的镜头有回收么
+

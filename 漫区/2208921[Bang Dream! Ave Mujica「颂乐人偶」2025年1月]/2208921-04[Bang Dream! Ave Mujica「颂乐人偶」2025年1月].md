@@ -2947,3 +2947,39 @@ mujica出问题倒是大概率，她对mujica太执着也确实是很显而易�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">喵梦家有点太朴素了，无论是和视频上还是和生活中上表现出来的印象差距都很大，感觉多少有点文章
 
+
+*****
+
+####  山ノ内花音  
+##### 4733#       发表于 2024-12-27 23:55
+
+现在唯一疑惑的是 睦究竟是想当一个表演者还是弹吉他 根据op的进化方向来看 是演奏的同时加入表演吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  3353764798  
+##### 4734#       发表于 2024-12-27 23:57
+
+小祥已经发现睦的不对劲了啊，只是还没来得及打血包睦就黑了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  AvengerRideon  
+##### 4735#       发表于 2024-12-27 23:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer"> 🐔团进睦家那段是不是也澄清掉了🐔团起势没有靠睦家祥家的关系
+
+*****
+
+####  山ノ内花音  
+##### 4736#       发表于 2024-12-27 23:58
+
+第三集如果没有睦祥吵架这段戏
+真的会更压抑
+情绪简直一点出口都没有
+
+不过祥子拉着行李箱跑路的场景 还是太搞笑了
+总是这样一本正经的搞笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

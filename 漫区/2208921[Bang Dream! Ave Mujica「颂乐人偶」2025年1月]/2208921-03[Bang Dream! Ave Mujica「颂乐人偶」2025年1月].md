@@ -16404,3 +16404,54 @@ CCC解散祥子哭的那時候，睦就在祥子身後拿著沒打開的傘，�
 
 早就该爆了，会哭的孩子才有奶吃，一味的内耗只会伤害自己，不如使劲发泄出来，可能会伤到别人，但也能让身边人知道自己有多在乎<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 4435#       发表于 2024-12-27 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67032518&amp;ptid=2208921" target="_blank">ytttsuuuba 发表于 2024-12-27 10:54</a>
+看剧透除了睦没几个是人，要是国内现在上了，话提高的那几个都能被车到至少第4集而且粉丝都不好护的那种 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除了睦厨初华厨，其他三个的粉丝现在真的难护吧，最老实的睦都被逼黑化了
+不知道二三集的海铃干嘛去了
+
+*****
+
+####  狮子咕  
+##### 4436#       发表于 2024-12-27 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67032561&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-27 10:58</a>
+
+除了睦厨初华厨，其他三个的粉丝现在真的难护吧，最老实的睦都被逼黑化了
+
+不知道二三集的海铃干嘛去了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁新的剧透说演出完就去别的地方打第二份工了
+
+*****
+
+####  footmanpon  
+##### 4437#       发表于 2024-12-27 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67032168&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-27 10:29</a>
+
+我在隔壁已经看完剧透了，哈哈，我坏掉了
+
+太刺激了独角兽了，这就是你对睦祥的爱吗 ...</blockquote>
+隔壁是哪里，球球了，我什么也不会做的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  金属化反射装甲  
+##### 4438#       发表于 2024-12-27 11:04
+
+先小吃一口黑白睦，保护脆弱人格的癫佬好帅的样子<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  akiomn  
+##### 4439#       发表于 2024-12-27 11:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">海铃：哭？哭也算时间哦
+不愧是雇佣兵，干完活直接继续下一份工作
+

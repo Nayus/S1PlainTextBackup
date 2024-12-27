@@ -679,3 +679,41 @@ C结局通关。现在版本貌似已经修了反射弹死c路线boss，目前�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.93-alpha
 
+
+*****
+
+####  kerorara  
+##### 51#       发表于 2024-12-27 11:04
+
+魔法类技能的构词法，截止到我现在的进度（50%）。
+
+这个构词法在目前的翻译中，主要适用于造成伤害/恢复生命/挂主要buff/消除效果。不适用于物理类技能和特殊技能。
+
+<strong>第一段：</strong>
+
+<strong>阿</strong> 对单体
+<strong>希</strong> 对全体
+
+<strong>第二段：</strong>
+
+<strong>格尼</strong> 火炎属性
+<strong>扎尼</strong> 电击属性
+<strong>卡拉</strong> 冰结属性
+<strong>基拉</strong> 冲击属性
+<strong>尤米</strong> 精神属性
+
+<strong>梅迪</strong> 恢复生命
+<strong>达伊</strong> 消除效果
+
+<strong>巴拉</strong> 攻击
+<strong>普利</strong> 防御
+<strong>巴尤</strong> 回避·命中
+
+<strong>第三段：</strong>
+
+<strong>乌萨</strong> 中量的
+
+<strong>阿提玛</strong> 增益效果
+<strong>帕拉</strong> 减益效果
+<strong>戴鲁欧</strong> 异常状态
+

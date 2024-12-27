@@ -797,3 +797,98 @@ pv里祥子回老家那幕可以重新拿出来分析了，目前看mujica大概
 草，好像显示不出来，大概就是ccc回忆那幕，睦说大家演奏很有感情。灯的 ...</blockquote>
 樓友關注睦祥的話還是等等看樓友的劇透吧，他也比較關注睦祥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  山ノ内花音  
+##### 4525#       发表于 2024-12-27 13:54
+
+第三集的详细剧透还是比较难写的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qjw114514  
+##### 4526#       发表于 2024-12-27 13:54
+
+这下岂不是双向负罪感了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 4527#       发表于 2024-12-27 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67034251&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2024-12-27 13:54</a>
+第三集的详细剧透还是比较难写的</blockquote>
+pv里睦砸书那幕回收了吗？
+
+*****
+
+####  挺好的  
+##### 4528#       发表于 2024-12-27 13:57
+
+<img src="https://p.sda1.dev/21/b0c2a0fc1b3b6a4ab4823708c55dd29e/955030524dcfde523523b98bff749640_720.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 4529#       发表于 2024-12-27 13:58
+
+半身就是所有感情都会感同身受的啊<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+贷款的睦妈祥妈人妻百合姐妹骨关系性是不是没了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 4530#       发表于 2024-12-27 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67034218&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-27 13:51</a>
+糖刀意料之中，祥子状态必然导致前期没有时间关心睦，但是她竟然反思了，哪怕是自己快坏了心里也留着对睦的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我感觉pv里海港对决那幕真可能是追妻火葬场了，祥子总算发现睦不对劲了，但是反向飞鸟山，已经太晚了留不住黑睦了
+
+*****
+
+####  山ノ内花音  
+##### 4531#       发表于 2024-12-27 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67034272&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-27 13:56</a>
+pv里睦砸书那幕回收了吗？</blockquote>
+没有
+回收的是五颜六色的伞 
+伞升天 
+倒吊火烧鸡
+天蓝色背景下mortis伸手
+
+*****
+
+####  枫林不见  
+##### 4532#       发表于 2024-12-27 14:00
+
+我现在更想知道初华是怎么爆了。祥子这种无意识的闯入别人的人生把别人搞得稀巴烂又无意识的抽离，就应该在结尾被狠狠雷普啊。
+
+
+*****
+
+####  NODY  
+##### 4533#       发表于 2024-12-27 14:00
+
+睦彻底爆了的导火索是祥子说睦为什么不能成为自己的伙伴，典型的双向误会，就等一个两边一起爆说开解决了
+
+*****
+
+####  akiomn  
+##### 4534#       发表于 2024-12-27 14:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67034292&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2024-12-27 13:59</a>
+没有
+回收的是五颜六色的伞 
+伞升天 </blockquote>
+这么看遍地玩偶那幕也没回收啊，也许那幕代表睦突破心魔了
+
+*****
+
+####  哈曼的YY  
+##### 4535#       发表于 2024-12-27 14:03
+
+伞这么诡异的画面居然已经回收
+

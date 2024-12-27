@@ -1538,3 +1538,70 @@ pv场景要尽快回收的，目前还有些没回收，包括祥子回豪宅。
 
 无论是盐还是糖丟特别好磕
 
+
+*****
+
+####  山ノ内花音  
+##### 4594#       发表于 2024-12-27 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67035412&amp;ptid=2208921" target="_blank">黑夜落叶秋天 发表于 2024-12-27 16:16</a>
+比起这个 更好奇黑睦对祥子的态度
+
+无论是盐还是糖丟特别好磕</blockquote>
+我只会想到一些特别黄暴的东西<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  akiomn  
+##### 4595#       发表于 2024-12-27 16:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可惜祥子黑化了也顶多是第一集那个样，满脑子都是工作
+不然黑祥黑睦互怼肯定很有意思
+
+*****
+
+####  蜇灵  
+##### 4596#       发表于 2024-12-27 16:22
+
+<blockquote>狮子咕 发表于 2024-12-27 16:11
+老实说黑木头怎么怼素世啊，素世要是破防把【既然你没打算回ccc那你为啥帮我问祥子】问出来，怎么回复都是 ...</blockquote>
+对付你so姐直接来硬的就行，go10话不是演示过一遍了么
+
+*****
+
+####  山ノ内花音  
+##### 4597#       发表于 2024-12-27 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67035448&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-27 16:20</a>
+可惜祥子黑化了也顶多是第一集那个样，满脑子都是工作
+不然黑祥黑睦互怼肯定很有意思 ...</blockquote>
+什么魔女茶会
+
+*****
+
+####  ytttsuuuba  
+##### 4598#       发表于 2024-12-27 16:23
+
+现在感觉睦祥真是又甜又虐，都目击睦本人格消失了，下一集祥子要负起责任来啊
+
+*****
+
+####  狮子咕  
+##### 4599#       发表于 2024-12-27 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67035401&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2024-12-27 16:14</a>
+
+黑木头肯定不当信鸽了呀，“要问你自己去问。什么祥子不想见你啊，哈哈，那你无敌了呀。” ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“为啥”说的是以前，和现在当不当信鸽有什么关系……主要还是【没打算复合还帮我联系祥子】【为什么8集的活儿后俩人组了乐队】确实不太好说，还不如不说
+
+*****
+
+####  狮子咕  
+##### 4600#       发表于 2024-12-27 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67035470&amp;ptid=2208921" target="_blank">ytttsuuuba 发表于 2024-12-27 16:23</a>
+
+现在感觉睦祥真是又甜又虐，都目击睦本人格消失了，下一集祥子要负起责任来啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥子：啊，太好了……以前的小睦终于回来了……（按理说不会出现这种剧情）
+

@@ -1918,3 +1918,51 @@ pv里的很多镜头都没有回收
  ...</blockquote>
 新公寓，比较高级，但不是最高级的那种
 
+
+*****
+
+####  山ノ内花音  
+##### 4635#       发表于 2024-12-27 17:26
+
+喵梦是真事业批 
+祥子还是拘泥于乐队这个形式的事业批
+喵梦表示 只要能火 mujica原地改成直播团队或者搞笑艺人团队也不是不行
+
+*****
+
+####  Aendst  
+##### 4636#       发表于 2024-12-27 17:27
+
+喵梦还挺团魂的，对解散谣言大发雷霆，有一种只要是mujica干啥都行的务实派事业厨味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 4637#       发表于 2024-12-27 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67036034&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-27 17:27</a>
+喵梦还挺团魂的，对解散谣言大发雷霆，有一种只要是mujica干啥都行的务实派事业厨味 ...</blockquote>
+真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+“我只是说mujica可以不搞乐队 但没说要解散啊”
+等一个团魂vlog了
+
+*****
+
+####  黑夜落叶秋天  
+##### 4638#       发表于 2024-12-27 17:29
+
+那pv里的破旧木屋 估计是祥子后面的住所?
+
+也有可能是刚上京的时候
+
+*****
+
+####  黑夜落叶秋天  
+##### 4639#       发表于 2024-12-27 17:31
+
+想到了 mujica有说到无论发生什么事 mujica的成员们都会完成演出
+
+既然这样 那第四集的看点就是黑睦如何配合其他人进行表演了 而且如何圆回来了
+
+想想就特别激动
+

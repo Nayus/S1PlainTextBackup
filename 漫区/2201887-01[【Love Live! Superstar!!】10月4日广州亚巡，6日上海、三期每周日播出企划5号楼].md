@@ -13905,3 +13905,20 @@ pay今晚的online talk也是穿这件草莓蛋糕外套
 三樱
 <img src="https://p.sda1.dev/21/ff6266e6d2081a9a7be2019ff1517e4a/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViyViy  
+##### 1364#       发表于 2024-12-27 17:29
+
+怎么感觉成品怪怪的……
+[https://www.lovelive-anime.jp/news/01_4232.html](https://www.lovelive-anime.jp/news/01_4232.html)
+
+<img src="https://img.saraba1st.com/forum/202412/27/172850lq5xqoz5o5edqfhf.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>nI2ynrXVWLhOSn8S.jpeg</strong> (287.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-27 17:28 上传
+

@@ -2239,3 +2239,23 @@ YSX重新上架就是298加上首发10%优惠</blockquote>
 
 以人话来说，咚了
 
+
+*****
+
+####  windtrack_qh  
+##### 7335#       发表于 2024-12-27 17:29
+
+明年欧美玩家享福了，一年三部轨迹，虽然有一部是黎2的屎，不过考虑到闪2在欧美都是好评如潮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TheOccuria  
+##### 7336#       发表于 2024-12-27 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67035966&amp;ptid=2160194" target="_blank">Squall25 发表于 2024-12-27 17:17</a>
+
+以狭义来说，闪3咚是黑屏，我们界轨没有黑屏没有咚声，只是白屏了，所以没有咚。
+
+以广义来说，部分粉丝认 ...</blockquote>
+这断章还要等27年也太难蚌了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

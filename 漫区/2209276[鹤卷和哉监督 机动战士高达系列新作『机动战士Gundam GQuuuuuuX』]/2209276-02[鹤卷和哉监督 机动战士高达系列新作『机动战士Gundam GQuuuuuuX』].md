@@ -844,3 +844,13 @@ VTR应该是三个人的采访录像吧
 
 GQX就......现在处于噱头没爆就被内鬼透了，痞子劝退人设劝退机设劝退女主劝退百合劝退bg劝退，op不知道能不能找到大tie，只有代哥和khara有自信的阶段<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  中野梓  
+##### 1552#       发表于 2024-12-27 23:31
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/282.png" referrerpolicy="no-referrer">
+
+曾几何时国家队还是褒义词
+

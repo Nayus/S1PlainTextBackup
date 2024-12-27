@@ -2031,3 +2031,17 @@ pv里的很多镜头都没有回收
 
 能告诉我最后moritis在台上独角戏是说了什么吗？是演戏还是爆了？我没听懂啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DARK_HGCG  
+##### 4646#       发表于 2024-12-27 18:49
+
+<blockquote>jonarryn 发表于 2024-12-27 18:23
+能告诉我最后moritis在台上独角戏是说了什么吗？是演戏还是爆了？我没听懂啊啊 ...</blockquote>
+我的感觉就是睦从小就有表现欲但是这个表现欲一直被压制
+
+在家里是被父母光环，在乐队是被队友
+
+这次压力太大脑子里的枷锁崩了，于是开始无所顾忌
+

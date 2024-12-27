@@ -411,3 +411,43 @@ go官漫，第一话ccc组建
 睦怎麼喊媽媽喊的是み ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">快进到真姐妹说
 
+
+*****
+
+####  3353764798  
+##### 4485#       发表于 2024-12-27 12:58
+
+睦，祥，睦妈其实是三姐妹。祥妈才是真妈吗
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  PDQ4  
+##### 4486#       发表于 2024-12-27 12:59
+
+爽姐还是太爱ccc和祥子了，过来pua的语气好怨妇，拆团罪人没听自己pua这道坎是过不去了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 4487#       发表于 2024-12-27 13:00
+
+pv里祥子回老家那幕可以重新拿出来分析了，目前看mujica大概率前期炸完，祥子心灰意冷了，就是不知道这幕是在前中期哪集回收（排除前三集）
+
+*****
+
+####  66367749  
+##### 4488#       发表于 2024-12-27 13:03
+
+听上去剧情挺充实的，期待了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银酒监武  
+##### 4489#       发表于 2024-12-27 13:03
+
+祥好像也对睦说了你总是不站在我这边？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

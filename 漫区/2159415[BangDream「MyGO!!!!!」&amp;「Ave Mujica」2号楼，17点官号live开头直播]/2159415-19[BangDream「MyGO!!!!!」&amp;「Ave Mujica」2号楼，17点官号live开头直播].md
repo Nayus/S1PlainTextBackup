@@ -1686,3 +1686,16 @@ Happy birthday 彩！  
 
 2024-12-27 12:31 上传
 
+
+*****
+
+####  LeonsCat  
+##### 26773#       发表于 2024-12-27 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67032798&amp;ptid=2159415" target="_blank">CRYCHIC 发表于 2024-12-27 11:17</a>
+
+[CHS]BanG Dream! It's MyGO!!!!! 雨中祈晴
+
+素祥赢赢赢</blockquote>
+妈蛋这分镜，这画风，是百合姬的新台柱么？
+

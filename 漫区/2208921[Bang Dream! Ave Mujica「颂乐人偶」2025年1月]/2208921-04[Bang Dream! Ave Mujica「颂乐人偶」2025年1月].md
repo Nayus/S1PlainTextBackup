@@ -1015,3 +1015,82 @@ pv里睦砸书那幕回收了吗？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等后面看看go会怎样行动吧。pv里便利贴那幕还没回收，然后蜜柑以前说过有段她很喜欢的剧情，可能是后期的素祥和解也说不定
 总结：灯祥素祥都在打复活赛
 
+
+*****
+
+####  枫林不见  
+##### 4548#       发表于 2024-12-27 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67034492&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2024-12-27 14:26</a>
+
+莫提斯（人偶）递给睦的伞
+
+就是那个雨天睦没能为祥子撑起的粉红色伞……</blockquote>
+呼呼，是我最喜欢的情节，木箱太好磕了
+
+*****
+
+####  良臣没有重谢  
+##### 4549#       发表于 2024-12-27 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67034554&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-27 14:32</a>
+等后面看看go会怎样行动吧。pv里便利贴那幕还没回收，然后蜜柑以前说过有段她很喜欢的剧情，可能是后期的素 ...</blockquote>
+已经写了啊。第二集🐘老师从鞋柜上揭下来了张便利贴，结合前面灯盯着便利贴的特写，那里应该是已经给🐘老师贴上去了。
+
+—— 来自 HUAWEI CET-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  枫林不见  
+##### 4550#       发表于 2024-12-27 14:37
+
+白象真的无意识的魅惑<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+995ccea2ee91f38ea547ceeaa65614eb.png
+(1.33 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-27 14:38 上传
+
+<img src="https://img.saraba1st.com/forum/202412/27/143800kx9brejzy449e6ix.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 4551#       发表于 2024-12-27 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67034589&amp;ptid=2208921" target="_blank">良臣没有重谢 发表于 2024-12-27 14:36</a>
+已经写了啊。第二集🐘老师从鞋柜上揭下来了张便利贴，结合前面灯盯着便利贴的特写，那里应该是已经给🐘老 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，那不只有素祥还在打复活赛吗？
+
+
+*****
+
+####  akiomn  
+##### 4552#       发表于 2024-12-27 14:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我来求证下，贴吧有人说ed水墨画里睦祥互相朝着对方伸手，真的吗？
+
+*****
+
+####  良臣没有重谢  
+##### 4553#       发表于 2024-12-27 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67034648&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-27 14:42</a>
+我来求证下，贴吧有人说ed水墨画里睦祥互相朝着对方伸手，真的吗？</blockquote>
+确实有
+
+—— 来自 HUAWEI CET-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  山ノ内花音  
+##### 4554#       发表于 2024-12-27 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67034648&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-27 14:42</a>
+我来求证下，贴吧有人说ed水墨画里睦祥互相朝着对方伸手，真的吗？</blockquote>
+祥子向右上方伸手
+睦向左下方镜子里的另一个自己伸手
+构图上确实是相对的
+

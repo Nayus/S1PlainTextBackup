@@ -2128,3 +2128,41 @@ ps日服三档可以玩十小时界轨</blockquote>
 万圣周边到手，还是村上画风适合我</blockquote>
 这个应该不是村上吧？村上一般不会画这种周边
 
+
+*****
+
+####  smdzh2  
+##### 7324#       发表于 2024-12-27 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67034592&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-12-27 15:36</a>
+这个应该不是村上吧？村上一般不会画这种周边</blockquote>
+你法就剩那点画师，不是村上还能是谁<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  卢迪克  
+##### 7325#       发表于 2024-12-27 14:43
+
+云豹这fw，简中都不能同步，都怀疑简中同步的空轨是不是他了
+
+*****
+
+####  a7828986  
+##### 7326#       发表于 2024-12-27 14:45
+
+移植组都全换了
+
+以前的代码估计也不会拿来用 要改还不如重做
+
+伊苏10 是3月底停售 找了新的人来做 9月底才重新上架
+
+界轨估计也要做半年 应该明年4月份左右?
+
+*****
+
+####  alucardcz  
+##### 7327#       发表于 2024-12-27 14:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">小事 当心端上来又是个不能运行的  然后再下架
+

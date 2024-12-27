@@ -4396,3 +4396,14 @@ EX又不能打暴击
 
 内部人士肯定有测试账号啦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 15627#       发表于 2024-12-27 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67018626&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-12-26 00:54</a>
+
+艹 歪了个钓鱼佬</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你的图终于刷出来了 欧 羡慕 new 血赚 普池稍有的强卡  更是赚中赚（
+

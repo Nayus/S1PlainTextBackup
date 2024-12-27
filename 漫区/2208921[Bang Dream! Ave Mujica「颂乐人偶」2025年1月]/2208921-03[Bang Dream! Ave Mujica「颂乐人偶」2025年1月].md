@@ -16216,3 +16216,32 @@ ed是什么风格的有人透露了吗<img src="https://static.saraba1st.com/ima
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我，要坏掉了……
 前期估计要刀子吃到饱了
 
+
+*****
+
+####  瞳映山川  
+##### 4412#       发表于 2024-12-27 10:16
+
+从狗到鸡目前睦宝就没多少不那么低气压的剧情，我真受不了了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 4413#       发表于 2024-12-27 10:16
+
+樓友怎麼把這麼賣的一幕說的那麼無聊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我重新說一下
+
+CCC解散祥子哭的那時候，睦就在祥子身後拿著沒打開的傘，自己也淋著雨，看著祥子在雨中哭著往前走
+
+*****
+
+####  qjw114514  
+##### 4414#       发表于 2024-12-27 10:16
+
+ 本帖最后由 qjw114514 于 2024-12-27 10:19 编辑 
+
+突然觉得被剧透也好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">先有个心理准备
+心疼小睦，什么时候才能幸福呢<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

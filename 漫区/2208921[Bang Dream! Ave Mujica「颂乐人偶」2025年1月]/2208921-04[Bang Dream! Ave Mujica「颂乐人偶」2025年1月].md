@@ -1850,3 +1850,71 @@ pv里的很多镜头都没有回收
 
 包没问题的 这两集以睦为主 喵和祥的戏份完全没落下 初华正在憋个大的 海铃也有很多意味深长的镜头
 
+
+*****
+
+####  akiomn  
+##### 4629#       发表于 2024-12-27 17:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卧槽我才注意到ed这个构图，睦祥构图，创造亚当啊！
+
+*****
+
+####  3353764798  
+##### 4630#       发表于 2024-12-27 17:19
+
+ 本帖最后由 3353764798 于 2024-12-27 17:21 编辑 
+
+最后的睦是像金木一样彻底黑化了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+睦妈感觉会是黑的，一般这种亲近感max的角色切开都是黑的吧。还给了个睦的裂开的凳子的特写，人前热情背后冷暴力睦子米？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  黑夜落叶秋天  
+##### 4631#       发表于 2024-12-27 17:20
+
+话说初华家是的什么样 高档公寓还是老旧小区
+
+如果不是后者的话 初华泡咖啡的场景也要重新找了
+
+
+*****
+
+####  黑夜落叶秋天  
+##### 4632#       发表于 2024-12-27 17:22
+
+舅舅党说过睦爆的最大 那4-5集应该不会那么简单的完结睦线
+
+大概率后期还有重要戏份
+
+*****
+
+####  akiomn  
+##### 4633#       发表于 2024-12-27 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67035998&amp;ptid=2208921" target="_blank">黑夜落叶秋天 发表于 2024-12-27 17:22</a>
+
+舅舅党说过睦爆的最大 那4-5集应该不会那么简单的完结睦线
+
+大概率后期还有重要戏份 ...</blockquote>
+
+4-5集估计暂时结束吧，白睦要上线面对黑睦造成的麻烦了，中期可能是祥子对鸡团炸了心灰意冷，后期彻底结束睦线，初华线也要解决
+
+不过睦的问题真是只有祥子才能解决了，现在只有祥子意识到睦坏掉了
+
+*****
+
+####  Aendst  
+##### 4634#       发表于 2024-12-27 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67035986&amp;ptid=2208921" target="_blank">黑夜落叶秋天 发表于 2024-12-27 17:20</a>
+
+话说初华家是的什么样 高档公寓还是老旧小区
+
+如果不是后者的话 初华泡咖啡的场景也要重新找了
+
+ ...</blockquote>
+新公寓，比较高级，但不是最高级的那种
+

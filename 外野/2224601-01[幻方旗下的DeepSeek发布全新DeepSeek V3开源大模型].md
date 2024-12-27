@@ -474,3 +474,45 @@ https://immersivetranslate.com/zh-Hans/docs/services/deepseek/</blockquote>
 
 试用了下翻译  玩了会酒馆 感觉不错
 
+
+*****
+
+####  行星减速器MK2  
+##### 44#       发表于 2024-12-27 22:51
+
+用来给酒馆和日用coder的，酒馆温度高点用个好预设真打平克劳德，而且价格低所以roll完全不心疼
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  大阪黑鸡  
+##### 45#       发表于 2024-12-27 22:53
+
+现在最烂的是腾讯吧。
+
+*****
+
+####  takitaki  
+##### 46#       发表于 2024-12-27 22:53
+
+自带的"深度思考"反而会让ai变成不听人话的智障，不过真的很好用。
+
+*****
+
+####  overflowal  
+##### 47#         楼主| 发表于 2024-12-27 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67038046&amp;ptid=2224601" target="_blank">takitaki 发表于 2024-12-27 22:53</a>
+自带的"深度思考"反而会让ai变成不听人话的智障，不过真的很好用。</blockquote>
+深度思考是另一个模型在回答，r1-lite
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  陈八尺  
+##### 48#       发表于 2024-12-27 22:55
+
+这价格涨得有点猛啊，看来要提前多充点。
+

@@ -37,3 +37,55 @@
 <img src="https://p.sda1.dev/21/06c31c29581816149877c401db9a7fac/469139127_1246688623250584_3041223589978489240_n.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/81eae2a9553f6a0bde3e4ceb76d38761/469051060_561127166653631_8801346509906801911_n.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 227#         楼主| 发表于 2024-12-27 22:52
+
+制作现场记录短片：[https://youtu.be/DLKXMGje8Tw](https://youtu.be/DLKXMGje8Tw)
+
+『ネガポジアングラー』第10話用に制作されたカラースクリプトの一部を公開🎣
+
+第10話は特別にコンテから色彩イメージを起こしていただき 美術監督・色彩設計でさらにブラッシュアップしていただきました🙇
+
+【カラースクリプト：潘婧 様(@da_maaa)】
+<img src="https://p.sda1.dev/21/6036f48c8ff8403e8539b0a22481a522/20241227_224508.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/59ae86cd513c52e309c8386d539970ac/20241227_224509.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/e55baf20e1b34a0f390d5cae82782f54/20241227_224511.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/3600a6e45fc2bfa75942e539b8861a03/20241227_224512.jpg" referrerpolicy="no-referrer">
+
+『ネガポジアングラー』12話より作監修正を公開🎣
+
+ネガグラを通じて釣りとアニメの面白さが伝われば嬉しいです😊
+
+【作画監督:南井尚子】
+<img src="https://p.sda1.dev/21/352bb8b35683274b3bba5d3c992bade7/20241227_224550.jpg" referrerpolicy="no-referrer">
+
+『ネガポジアングラー』より懐かしいシーンの原画・作監修正を公開🎣
+
+ABEMA以外の配信サイトでは本日22:30から最終話が配信されます！年末年始はコタツでまったりしながら全話一気見してはいかがでしょうか🍊
+
+【原画・作画監督:中山見都美】
+<img src="https://p.sda1.dev/21/388265e7d08523f356de7ac03a8448cd/20241227_224553.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/eca166c522716a387011c34d50f894ed/20241227_224554.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/562e03960ee69ec48acd79a4f96b82a3/20241227_224555.jpg" referrerpolicy="no-referrer">
+
+『ネガポジアングラー』第11話のご視聴ありがとうございました！
+
+今回は第11話よりハナちゃんの華麗な原撮を公開🎣
+
+【原画：月田文律 様】
+<img src="https://p.sda1.dev/21/c3a7815c38909f82fa337d668832039b/SaveTwitter.Net_CVkQBZx0CFZiCaYe__720p_.gif" referrerpolicy="no-referrer">
+
+[https://x.com/onigiri123091/status/1869753681077559432](https://x.com/onigiri123091/status/1869753681077559432)
+
+本当にありがとうございました。
+
+優しい作品を、作らせて頂いて、見て頂いて、こんな機会、なかなかないとおもいます。
+
+伝わるんだな、というのが1番の気持ちでした。
+
+ありがとうございます。
+<img src="https://p.sda1.dev/21/3d93c96f2be6bb33b210b315c0b70933/20241227_225126.jpg" referrerpolicy="no-referrer">
+

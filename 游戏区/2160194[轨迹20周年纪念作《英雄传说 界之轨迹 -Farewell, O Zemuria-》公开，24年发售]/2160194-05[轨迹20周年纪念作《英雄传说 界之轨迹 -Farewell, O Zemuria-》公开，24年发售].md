@@ -2275,3 +2275,13 @@ YSX重新上架就是298加上首发10%优惠</blockquote>
 
 界2的优先级撑死到D
 
+
+*****
+
+####  keiyoku  
+##### 7339#       发表于 2024-12-28 03:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67034609&amp;ptid=2160194" target="_blank">smdzh2 发表于 2024-12-27 14:38</a>
+你法就剩那点画师，不是村上还能是谁</blockquote>
+不是村上，外包的仿画风，非本社的周边类大部分都不是本社画师
+

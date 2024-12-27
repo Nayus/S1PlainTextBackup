@@ -1405,3 +1405,26 @@ pv里睦砸书那幕回收了吗？</blockquote>
 睦那个吉他小人想唱歌是什么意思，你也想做吉他主唱？</blockquote>
 可能mortis是吉他精吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蜇灵  
+##### 4579#       发表于 2024-12-27 15:52
+
+<blockquote>Aendst 发表于 2024-12-27 15:02
+第三话剧透，写得比较细因为我很喜欢这一话
+
+#3
+</blockquote>
+睦头这是从小就有脑内小剧场吗
+
+*****
+
+####  Aendst  
+##### 4580#       发表于 2024-12-27 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67035202&amp;ptid=2208921" target="_blank">蜇灵 发表于 2024-12-27 15:52</a>
+
+睦头这是从小就有脑内小剧场吗</blockquote>
+不是，第二次在地下室熬夜的时候才出现的，在这个幻觉场景里她变成了小时候的样子
+

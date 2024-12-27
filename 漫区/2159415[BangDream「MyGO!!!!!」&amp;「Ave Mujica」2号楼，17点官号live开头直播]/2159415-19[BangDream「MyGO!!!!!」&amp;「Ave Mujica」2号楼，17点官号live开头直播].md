@@ -1638,3 +1638,11 @@ Happy birthday 彩！  
 
 素祥赢赢赢
 
+
+*****
+
+####  刑部姬真可爱  
+##### 26768#       发表于 2024-12-27 11:50
+
+祥子还真是当天看完蝶和吹奏部演出就马上找素食组乐队<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+

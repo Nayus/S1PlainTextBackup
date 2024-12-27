@@ -2008,3 +2008,11 @@ vs的玲个人觉得是做的最好的一版
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67031891&amp;ptid=2160194" target="_blank">Squall25 发表于 2024-12-27 10:09</a></blockquote>
 马帮主这手也太怪了吧，我还以为是直播妹召唤出来的啥玩意儿
 
+
+*****
+
+####  洛克萨斯  
+##### 7311#       发表于 2024-12-27 11:48
+
+还是这个画风顺眼，终于不是e大师了
+

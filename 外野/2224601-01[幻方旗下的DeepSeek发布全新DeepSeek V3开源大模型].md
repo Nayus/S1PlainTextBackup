@@ -466,3 +466,11 @@ https://immersivetranslate.com/zh-Hans/docs/services/deepseek/</blockquote>
 谷歌块那是机翻</blockquote>
 懂了，感谢
 
+
+*****
+
+####  凉良  
+##### 43#       发表于 2024-12-27 22:16
+
+试用了下翻译  玩了会酒馆 感觉不错
+

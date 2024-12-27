@@ -16245,3 +16245,12 @@ CCC解散祥子哭的那時候，睦就在祥子身後拿著沒打開的傘，�
 突然觉得被剧透也好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">先有个心理准备
 心疼小睦，什么时候才能幸福呢<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 4415#       发表于 2024-12-27 10:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我在隔壁已经看完剧透了，哈哈，我坏掉了
+太刺激了独角兽了，这就是你对睦祥的爱吗
+

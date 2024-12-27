@@ -2749,3 +2749,130 @@ uika还在misumi忙，练习基本不来，会议也不说话，队内事务都�
 
 所以我看下来的感受就是她可能不会炸了，但不知道这种一点点积累起来的变化能被做到什么程度
 
+
+*****
+
+####  鲍里斯  
+##### 4716#       发表于 2024-12-27 23:34
+
+祥子怕mujica不再是mujica这肯定没问题啊，你邦多利动画丢了乐队元素这像话吗
+
+—— 来自 vivo V2172A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  akiomn  
+##### 4717#       发表于 2024-12-27 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67038419&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-27 23:31</a>
+其实已经在考虑了，自己咬咬牙坚持过去的同时，还在反思自己的不足和去考虑队友（虽然目前好像主要是俩幼 ...</blockquote>
+炸是肯定要炸一次，第一集里说“我只剩下avemujica”的样子，如果不炸就意识不到身边还有那么多人爱着她，实际上祥子和睦一样，自己给自己上压力，只是祥子没睦那么极端会黑化。
+
+*****
+
+####  adcdqre  
+##### 4718#       发表于 2024-12-27 23:36
+
+还不成熟忙不过来所以不想摘面具啊。冒出来说是否倒反天罡了
+
+*****
+
+####  Devola  
+##### 4719#       发表于 2024-12-27 23:37
+
+海铃：到点上下班拿工资，同事掐得你死我活与我何干，这公司倒了就倒了吧，大把猎头找我
+
+*****
+
+####  山ノ内花音  
+##### 4720#       发表于 2024-12-27 23:38
+
+真的是地狱开局 不先攻略几个 确实难以开展工作
+原来喵梦才是最难攻略的
+这下祥子的路径依赖遭重了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KLHgg  
+##### 4721#       发表于 2024-12-27 23:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67038404&amp;ptid=2208921" target="_blank">庸necro 发表于 2024-12-27 23:30</a>
+
+感觉确实没什么祥子照顾其他人情绪的印象，她虽然知道人会累，灯会怯场所以要牵她，但是她理解不了其他人会 ...</blockquote>
+楚平方：First time？<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 4722#       发表于 2024-12-27 23:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67038455&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-27 23:34</a>
+
+炸是肯定要炸一次，第一集里说“我只剩下avemujica”的样子，如果不炸就意识不到身边还有那么多人爱着她 ...</blockquote>
+mujica出问题倒是大概率，她对mujica太执着也确实是很显而易见的问题
+
+不过第三话后半她应该有一点察觉这心态不太对了，不知道后续怎么发展
+
+制作组在脚本上目前还挺会的，倒是不太担心会太俗套了
+
+
+*****
+
+####  akiomn  
+##### 4723#       发表于 2024-12-27 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67038486&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2024-12-27 23:38</a>
+
+真的是地狱开局 不先攻略几个 确实难以开展工作
+
+原来喵梦才是最难攻略的
+
+这下祥子的路径依赖遭重了 ...</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喵梦是理念之争，我觉得反而好攻略，因为现在是祥子在前面顶着，所以喵梦可以肆无忌惮的作
+
+但是哪天祥子炸了不管了呢？喵梦只能自己想办法先顶着了。初华和睦都是向着祥子的，先想办法把祥子这妹妹哄回来
+
+*****
+
+####  山ノ内花音  
+##### 4724#       发表于 2024-12-27 23:40
+
+只要祥子解决了睦的问题 
+90%的观众应该不会太质疑她了吧
+
+*****
+
+####  庸necro  
+##### 4725#       发表于 2024-12-27 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67038492&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-27 23:38</a>
+
+mujica出问题倒是大概率，她对mujica太执着也确实是很显而易见的问题
+
+不过第三话后半她应该有一点察觉这 ...</blockquote>
+她察觉到也没什么用，她现在手里确实除了mujica没牌可以打
+
+*****
+
+####  山ノ内花音  
+##### 4726#       发表于 2024-12-27 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67038507&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-27 23:40</a>
+喵梦是理念之争，我觉得反而好攻略，因为现在是祥子在前面顶着，所以喵梦可以肆无忌惮的作
+
+但是哪天祥子 ...</blockquote>
+是的 mujica真出问题了
+最急的就是喵梦
+但如果是因为祥子炸了 导致的mujica出问题
+那祥子作为主人公的高光该如何保证呢
+所以还是得找个其他的机会来攻略喵梦
+
+*****
+
+####  DenkiBran  
+##### 4727#       发表于 2024-12-27 23:44
+
+为什么第三话祥对睦说自己只有mujica了睦会反应这么大，第一话出租车上不也说过类似的话吗
+

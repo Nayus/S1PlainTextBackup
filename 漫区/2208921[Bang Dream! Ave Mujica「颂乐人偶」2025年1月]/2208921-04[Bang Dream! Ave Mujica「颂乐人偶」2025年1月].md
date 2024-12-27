@@ -1966,3 +1966,33 @@ pv里的很多镜头都没有回收
 
 想想就特别激动
 
+
+*****
+
+####  黑夜落叶秋天  
+##### 4640#       发表于 2024-12-27 17:37
+
+<img src="https://img.saraba1st.com/forum/202412/27/173731p3sfrg2hiw2boii3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-12-27-17-37-13-21_149003a2d400f6adb210d7e357a3a646.jpg</strong> (46.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-27 17:37 上传
+
+这个镜头有回收么 
+
+就是睦坚毅眼神的哪个镜头
+
+
+*****
+
+####  akiomn  
+##### 4641#       发表于 2024-12-27 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67036057&amp;ptid=2208921" target="_blank">黑夜落叶秋天 发表于 2024-12-27 17:31</a>
+想到了 mujica有说到无论发生什么事 mujica的成员们都会完成演出
+
+既然这样 那第四集的看点就是黑睦如何配合 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png">不该是海港对决黑睦和祥子爆了？太期待祥子被黑睦爆了的表情了，仅此于pv里颓废回豪宅那幕
+

@@ -4362,3 +4362,19 @@ EX又不能打暴击
 —— 来自 nubia NX769J, Android 14上的 S1Next-鹅版 v2.5.2 ...</blockquote>
 这下近卫也干了233
 
+
+*****
+
+####  保罗赫伯特  
+##### 15623#       发表于 2024-12-27 17:39
+
+原来是有人监守自盗啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 15624#       发表于 2024-12-27 17:42
+
+麻婆怎么又up了。。我怎么记得才过去没几天
+

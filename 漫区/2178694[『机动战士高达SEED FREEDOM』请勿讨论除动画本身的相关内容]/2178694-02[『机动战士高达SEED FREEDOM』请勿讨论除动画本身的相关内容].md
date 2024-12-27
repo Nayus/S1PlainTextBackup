@@ -1,0 +1,33 @@
+﻿
+*****
+
+####  Piano-Forest  
+##### 2018#         楼主| 发表于 2024-12-27 17:38
+
+「ガンチャン年末特番2024」が、12月28日（土）19:00より、YouTube ガンダムチャンネルにてLIVE配信されることが決定した。
+[https://youtu.be/NGqJd8JTS0c](https://youtu.be/NGqJd8JTS0c)
+
+『機動戦士ガンダムSEED FREEDOM』特別版上映で追加された「エピローグカット」を劇場以外で初めて公開。
+
+
+*****
+
+####  Piano-Forest  
+##### 2019#         楼主| 发表于 2024-12-27 17:42
+
+[https://x.com/fukuda320/status/1870157105342362104](https://x.com/fukuda320/status/1870157105342362104)
+
+これはもう見せたっけ？　特典イラストのイメージです。
+<img src="https://p.sda1.dev/21/0c9f7b2835bd49cbb911e2d372f85755/20241227_173914.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/10a9c3fa69865246c9d2ec55913d8046/20241227_173916.jpg" referrerpolicy="no-referrer">
+
+この辺もそろそろ良いかと
+<img src="https://p.sda1.dev/21/0501186ed66b026d13fc7fda7c7fdcfe/20241227_173920.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/0be028678bfe0628b2835013078fccd5/20241227_173922.jpg" referrerpolicy="no-referrer">
+
+こちらのバージョン
+<img src="https://p.sda1.dev/21/ca08f9acc12c30f4ce57c501e49dc695/20241227_173927.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/dd8f75c1a902c115b1dbf2510592d22f/20241227_173928.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/53b419bf10c131565ffb94eac5036332/20241227_173929.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/687f4cf91ac970baad379027c61842e0/20241227_173931.jpg" referrerpolicy="no-referrer">
+

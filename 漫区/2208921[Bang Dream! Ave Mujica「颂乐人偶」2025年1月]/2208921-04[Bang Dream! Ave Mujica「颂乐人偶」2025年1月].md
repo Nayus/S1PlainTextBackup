@@ -3410,3 +3410,27 @@ magnet:?xt=urn:btih:7dbbfa69cb7ab6d6a5c930e527819f474f5d4975
 不过也有和mortis一起跟祥子对着干的可能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正只要不解散，流量怎么高怎么来呗
 不过这么干，等睦祥和好甚至更亲了，可有的受了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 4779#       发表于 2024-12-28 02:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67039500&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-28 02:01</a>
+便签没回收，但是可能会在祥子最不幸的时候出现一个疑惑你幸福吗的便签，我很难脑补出如何过渡到助攻祥子 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果喵梦全程和莫提斯一起跟祥子对着干，祥子先炸穿给她俩看吧，第三集精神状态已经岌岌可危了，黑睦再高强度给祥子上强度……
+感觉睦扔书有可能是第四集或者第五集，白睦上线意识到自己伤害了祥子
+只能说我感觉睦祥线会在前期同时进行同时解决，这俩精神状态岌岌可危，别说后期的初华线了，怕是中期的喵梦海玲线都没法打
+
+
+*****
+
+####  yifan8848  
+##### 4780#       发表于 2024-12-28 02:13
+
+只看了部分據透，
+
+初華是到了祥子的睡覺時間還出現在公司會議室嗎?
+
+也太社畜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

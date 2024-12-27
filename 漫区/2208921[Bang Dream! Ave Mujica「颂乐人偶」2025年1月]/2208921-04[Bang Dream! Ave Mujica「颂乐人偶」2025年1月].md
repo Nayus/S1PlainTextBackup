@@ -3497,3 +3497,15 @@ magnet:?xt=urn:btih:7dbbfa69cb7ab6d6a5c930e527819f474f5d4975
 虽然注重流量，但是努力 ...</blockquote>
 单纯刻板印象难道不是黑睦是个超级蹭得累水仙么……
 
+
+*****
+
+####  akiomn  
+##### 4786#       发表于 2024-12-28 03:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67039685&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-28 02:59</a>
+所以我觉得喵梦不一定会火上浇油，主要是前三集的喵梦和想象的野心家人设有出入
+虽然注重流量，但是努力 ...</blockquote>
+舅舅说过初华是最后一个才炸的，从pv里也可以看出来初华藏了起来
+祥子我还是认为回老宅那幕会尽快回收，如果拖到初华主场就太后期了，这幕我更倾向于祥子被黑睦和喵梦逼的心灰意冷崩溃了
+

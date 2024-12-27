@@ -1646,3 +1646,19 @@ Happy birthday 彩！  
 
 祥子还真是当天看完蝶和吹奏部演出就马上找素食组乐队<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CyDiablo  
+##### 26769#       发表于 2024-12-27 11:56
+
+父母离异对小孩子的坏影响不可估量<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+感觉tv里soyo的情感来源更清晰了些，不想经历第二次被抛弃，但还是什么都无法挽回
+
+*****
+
+####  xwr  
+##### 26770#       发表于 2024-12-27 12:00
+
+漫画是soyo视角？
+

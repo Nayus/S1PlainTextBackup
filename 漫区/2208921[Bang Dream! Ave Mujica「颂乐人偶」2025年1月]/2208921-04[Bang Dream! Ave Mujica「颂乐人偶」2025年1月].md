@@ -182,3 +182,23 @@ go官漫，第一话ccc组建
 
 睦的冷场被祥子解释为演技，祥子和喵梦矛盾激化，全团大吵特吵，睦在电视直播当场发疯
 
+
+*****
+
+####  rushsong  
+##### 4460#       发表于 2024-12-27 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67033154&amp;ptid=2208921" target="_blank">KLHgg 发表于 2024-12-27 11:49</a>
+全国巡演说开就开，回看邦三，这就是数值膨胀吗</blockquote>
+之前只有萝开过吧
+
+—— 来自 vivo V2183A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  akiomn  
+##### 4461#       发表于 2024-12-27 12:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊？我看剧透说喵梦是中专啊？不过实力被ras认可
+话说大喵现在还能逍遥整活，银河战舰有祥初睦海顶着，等其他四个都爆了，大喵就知道修船有多痛苦了
+

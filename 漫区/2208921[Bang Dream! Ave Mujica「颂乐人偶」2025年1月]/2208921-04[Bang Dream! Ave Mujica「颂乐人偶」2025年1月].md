@@ -2209,3 +2209,28 @@ wsd！我现在就想看前三集啊啊啊！！！
 
 黑睦有日常化吗，不会仅仅只是舞台表演才切出来的人格吧
 
+
+*****
+
+####  新HGCG  
+##### 4661#       发表于 2024-12-27 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67037175&amp;ptid=2208921" target="_blank">枫林不见 发表于 2024-12-27 20:40</a>
+
+黑睦有日常化吗，不会仅仅只是舞台表演才切出来的人格吧</blockquote>
+第三集演到直播间黑化就结束了，所以还不知道
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 4662#       发表于 2024-12-27 20:45
+
+想来初华爆掉最合理的理由就是发现自己都做了这么多依然拴不住她吧。
+
+*****
+
+####  相坂君  
+##### 4663#       发表于 2024-12-27 20:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">少女乐队岂是如此不便之物，在演剧你们颠开心了，观众看开心了，winwin！
+

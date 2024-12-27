@@ -92,3 +92,11 @@ TTS出来大概是这一段，也可能没截全
 
 看打撸难道当技术主播看吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  秋游刃  
+##### 17770#       发表于 2024-12-27 10:03
+
+一直看她打LOL，但我根本没玩过LOL。
+

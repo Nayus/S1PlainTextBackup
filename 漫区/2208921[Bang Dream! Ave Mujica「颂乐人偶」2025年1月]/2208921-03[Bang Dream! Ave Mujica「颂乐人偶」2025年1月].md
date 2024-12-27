@@ -16075,3 +16075,78 @@ ed是什么风格的有人透露了吗<img src="https://static.saraba1st.com/ima
 
 前三话看完感想就是应该再看一遍乐队轻喜剧mygo调剂一下  
 
+
+*****
+
+####  御幸一也  
+##### 4395#       发表于 2024-12-27 09:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">初祥睦祥都賣了
+
+*****
+
+####  akiomn  
+##### 4396#       发表于 2024-12-27 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67031713&amp;ptid=2208921" target="_blank">御幸一也 发表于 2024-12-27 09:56</a>
+初祥睦祥都賣了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">睦祥真卖了吗？我看人说睦都要裂开了，疑似精神分裂？
+
+*****
+
+####  鲍里斯  
+##### 4397#       发表于 2024-12-27 10:00
+
+真卖睦祥吗？感觉现在看到的祥子对睦很不好<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2172A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  御幸一也  
+##### 4398#       发表于 2024-12-27 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67031727&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-27 09:57</a>
+
+睦祥真卖了吗？我看人说睦都要裂开了，疑似精神分裂？</blockquote>
+你等樓友完整說吧，現在只有比較碎片的斷斷續續在聊，我聽著覺得是賣了，就是挺刀的（
+
+*****
+
+####  山ノ内花音  
+##### 4399#       发表于 2024-12-27 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67031727&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-27 09:57</a>
+睦祥真卖了吗？我看人说睦都要裂开了，疑似精神分裂？</blockquote>
+算是超大卖 但不是那种发糖的卖法
+
+*****
+
+####  星天观测  
+##### 4400#       发表于 2024-12-27 10:02
+
+那ed是类似angles那种的吗
+
+
+*****
+
+####  akiomn  
+##### 4401#       发表于 2024-12-27 10:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png">哎，独角兽的恶趣味，大卖但是卖的是刀子
+
+*****
+
+####  山ノ内花音  
+##### 4402#       发表于 2024-12-27 10:04
+
+睦的问题必然是还没有解决
+
+*****
+
+####  御幸一也  
+##### 4403#       发表于 2024-12-27 10:05
+
+睦祥有那種最傳統幼馴染的，就是因為太懂對方所以也知道對方現在遇到的不好的事自己無能為力，只能默默陪伴<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

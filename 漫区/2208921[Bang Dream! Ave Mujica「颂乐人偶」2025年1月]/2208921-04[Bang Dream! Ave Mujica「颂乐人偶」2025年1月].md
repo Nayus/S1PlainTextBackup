@@ -2503,3 +2503,30 @@ wsd真的太能藏了
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">现在流传的那个枪版比例太离谱了手动拉了一下，在鸡楼也发一份
 [https://pan.baidu.com/s/1Cb_gO7RjIXXJQufOrmUnjA?pwd=saki](https://pan.baidu.com/s/1Cb_gO7RjIXXJQufOrmUnjA?pwd=saki) 提取码: saki 
 
+
+*****
+
+####  山ノ内花音  
+##### 4693#       发表于 2024-12-27 22:37
+
+祥子的胡编能力实在是太强了
+第二集骗过了初华
+第三集骗过了无数观众
+已经成为了不得不不停说谎的孩子呢<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cayon  
+##### 4694#       发表于 2024-12-27 22:39
+
+再迫害mana就要变成巧克力甜甜圈和大伙们爆了
+
+*****
+
+####  PDQ4  
+##### 4695#       发表于 2024-12-27 22:40
+
+说谎的孩子就该让不会骗人的孩子来教育一下
+
+理性讨论睦的说谎能力是不是全被祥子吸走了，这也是半身吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

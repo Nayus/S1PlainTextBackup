@@ -4436,3 +4436,11 @@ EX又不能打暴击
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">不如发我一堆石头让我抽卡 给那么多材料有个屁用 根本没角色用
 
+
+*****
+
+####  保罗赫伯特  
+##### 15631#       发表于 2024-12-27 22:35
+
+明年一定会把卫星都落地的吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

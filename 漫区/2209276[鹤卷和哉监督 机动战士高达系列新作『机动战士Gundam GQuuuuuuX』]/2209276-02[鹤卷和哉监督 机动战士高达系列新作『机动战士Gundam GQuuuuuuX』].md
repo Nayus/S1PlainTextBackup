@@ -809,3 +809,25 @@ VTR应该是三个人的采访录像吧
 在反抗吉翁前提不变的情况下，只要把uc老人物拉出来给戏份卖情怀，资深粉丝怎么嫌弃啊，看乐子都来不及。 ...</blockquote>
 不好说，拉出来致敬就有ooc风险然后被说是硬蹭。就独角兽里淋有德那句“如果你也是高达驾驶员的话…”不知道已经被各路up拿出来鞭尸多少次了。
 
+
+*****
+
+####  ナルバレック  
+##### 1549#       发表于 2024-12-27 22:32
+
+因为STAFF引来的路人比水魔还多吧，对老人低预期其实没啥用，闻名而来的人不管这个
+
+*****
+
+####  刺客ares  
+##### 1550#       发表于 2024-12-27 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67037792&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2024-12-27 22:12</a>
+
+不好说，拉出来致敬就有ooc风险然后被说是硬蹭。就独角兽里淋有德那句“如果你也是高达驾驶员的话…”不 ...</blockquote>
+其实啊，背景设定一出已经不可能不蹭了，就怕蹭层皮挨了骂还没引到人气，不如做彻底点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+所以我不理解别处还说不会有原UC人物登场，剧中反派也不是扎比家而是原创人物，那设定成平行uc又有什么意义呢，借用uc机设？还不如khara自己发挥来的风格统一（
+
+至于人物ooc，这部开头成功以后怕不是要当新时代uc推，机设和史设推演也更自由，不比塞的满满当当的主0079更好？万代已经在努力尝试用新的红发小女孩代替阿姆罗了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

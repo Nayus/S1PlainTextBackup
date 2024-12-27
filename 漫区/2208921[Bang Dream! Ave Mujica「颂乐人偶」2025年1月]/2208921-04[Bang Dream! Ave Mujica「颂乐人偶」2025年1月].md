@@ -2470,3 +2470,36 @@ wsd真的太能藏了
 
 不要再迫害mana了，母鸡卡你们怎么这么坏。。。
 
+
+*****
+
+####  qjw114514  
+##### 4689#       发表于 2024-12-27 22:26
+
+万一扔书的对象是自己呢，为什么我还是会醒来，一切交给mortis不就好了吗<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 4690#       发表于 2024-12-27 22:27
+
+黑睦不可能是睦的本质的，毕竟mujica是祥子核心，睦是祥子幼驯染，后面祥子线和初华线睦大概率要来帮忙的，但黑睦明显是要和祥子作对
+
+*****
+
+####  山ノ内花音  
+##### 4691#       发表于 2024-12-27 22:29
+
+不好说会往哪个方向写
+但我觉得黑睦可以多表演表演
+挺期待她整活的
+
+
+*****
+
+####  yiyiyiyi123  
+##### 4692#       发表于 2024-12-27 22:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">现在流传的那个枪版比例太离谱了手动拉了一下，在鸡楼也发一份
+[https://pan.baidu.com/s/1Cb_gO7RjIXXJQufOrmUnjA?pwd=saki](https://pan.baidu.com/s/1Cb_gO7RjIXXJQufOrmUnjA?pwd=saki) 提取码: saki 
+

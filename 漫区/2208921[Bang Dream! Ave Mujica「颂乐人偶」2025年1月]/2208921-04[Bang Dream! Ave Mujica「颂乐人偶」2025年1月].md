@@ -3394,3 +3394,19 @@ magnet:?xt=urn:btih:7dbbfa69cb7ab6d6a5c930e527819f474f5d4975
 初华和喵梦现在自己都不对劲。喵梦与其说是关心，不如说贪图流量，也许睦祥决裂才是喵梦想看到的，能把睦拉到自己这边拿到更多话语权。初华满脑子都是祥子
 喵梦在被修正前应该只会搞事没有团魂，只有自己出事了才能意识到之前在前面顶着的祥子有多重要
 
+
+*****
+
+####  PDQ4  
+##### 4778#       发表于 2024-12-28 02:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67039398&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-28 01:44</a>
+ 初华和喵梦现在自己都不对劲。喵梦与其说是关心，不如说贪图流量，也许睦祥决裂才是喵梦想看到的，能把睦 ...</blockquote>
+便签没回收，但是可能会在祥子最不幸的时候出现一个疑惑你幸福吗的便签，我很难脑补出如何过渡到助攻祥子上，不幸到极致突然大彻大悟可能有点抽象？只能说等独角兽魔法算了
+
+至于猜喵梦助攻，是因为其实她很害怕鸡解散，喵梦是拿睦没办法的，之前三句不离祥子，mortis化后怕不是自己更没法子
+之后的发展主要是看mortis想要做什么，因为有“讨厌祥子”的要素存在，为了鸡的稳定我觉得喵梦反而有听话的可能
+而且睦之后还有扔书，不是一直黑化，那这种对于演出的巨大变数喵梦真的喜欢吗，偶尔即兴演出是大流量，一直全是变数可是风险太高了，为了流量稳固，我觉得她有助攻的可能
+不过也有和mortis一起跟祥子对着干的可能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正只要不解散，流量怎么高怎么来呗
+不过这么干，等睦祥和好甚至更亲了，可有的受了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

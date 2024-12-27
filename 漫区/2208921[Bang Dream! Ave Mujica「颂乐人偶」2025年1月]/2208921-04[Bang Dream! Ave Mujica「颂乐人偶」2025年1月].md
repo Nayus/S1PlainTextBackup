@@ -1771,3 +1771,58 @@ mujica可以不搞乐队 但不能散<img src="https://static.saraba1st.com/imag
 
 海铃呲牙的镜头有回收么
 
+
+*****
+
+####  akiomn  
+##### 4620#       发表于 2024-12-27 16:56
+
+也许是上半睦祥下半初华，核心人物是祥子，中间顺便解决喵梦海玲支线
+海喵两个我感觉是当支线解决了，睦爆的太大了，初华在后期才爆的
+
+*****
+
+####  瞳映山川  
+##### 4621#       发表于 2024-12-27 16:56
+
+隔壁真有勇士发枪版啊<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 4622#       发表于 2024-12-27 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67035783&amp;ptid=2208921" target="_blank">黑夜落叶秋天 发表于 2024-12-27 16:55</a>
+海铃呲牙的镜头有回收么</blockquote>
+无，剧透都没提到
+
+*****
+
+####  山ノ内花音  
+##### 4623#       发表于 2024-12-27 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67035783&amp;ptid=2208921" target="_blank">黑夜落叶秋天 发表于 2024-12-27 16:55</a>
+海铃呲牙的镜头有回收么</blockquote>
+pv里的很多镜头都没有回收
+看来这次pv很有可能要到七八集才能回收完了
+
+*****
+
+####  ytttsuuuba  
+##### 4624#       发表于 2024-12-27 17:01
+
+ED好像睦祥真的对上了，只有这两个人朝着一个方向伸手了。
+
+
+*****
+
+####  akiomn  
+##### 4625#       发表于 2024-12-27 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67035801&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2024-12-27 16:56</a>
+pv里的很多镜头都没有回收
+看来这次pv很有可能要到七八集才能回收完了</blockquote>
+是很有可能，除非能在四五集完成海港对决＋睦扔书，海玲呲牙
+祥子回家那幕很明显鸡团炸穿了，祥子处于颓废状态
+不过我记得海玲呲牙那个画面是冬季校服了？
+

@@ -3434,3 +3434,25 @@ magnet:?xt=urn:btih:7dbbfa69cb7ab6d6a5c930e527819f474f5d4975
 
 也太社畜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  聊nsy专用号  
+##### 4781#       发表于 2024-12-28 02:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67039568&amp;ptid=2208921" target="_blank">yifan8848 发表于 2024-12-28 02:13</a>
+
+只看了部分據透，
+
+初華是到了祥子的睡覺時間還出現在公司會議室嗎?
+
+也太社畜了 ...</blockquote>
+是刚跟Mana吃完甜甜圈回去的
+
+*****
+
+####  cayon  
+##### 4782#       发表于 2024-12-28 02:21
+
+看完枪版，我现在十分好奇初华的心理描写，给了很多镜头但又搞不懂，感觉比前六集的睦头人还难猜
+

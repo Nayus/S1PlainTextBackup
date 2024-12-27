@@ -721,3 +721,79 @@ pv里祥子回老家那幕可以重新拿出来分析了，目前看mujica大概
 
 第五集应该会是情绪向上的一集吧
 
+
+*****
+
+####  akiomn  
+##### 4518#       发表于 2024-12-27 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67034155&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2024-12-27 13:43</a>
+第五集应该会是情绪向上的一集吧</blockquote>
+看黑睦能不能趁早解决，因为舅舅说过初华是最后炸的，所以睦肯定不是最终boss
+中期或者后期祥子肯定也得炸一次，对应第一集里的回旋镖和pv里回老宅
+
+*****
+
+####  御幸一也  
+##### 4519#       发表于 2024-12-27 13:46
+
+前3話睦祥糖裡帶刀的大賣，喵祥有最激烈的衝突，初祥有實質同居，製作組真是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  高规格ik  
+##### 4520#       发表于 2024-12-27 13:48
+
+初华肯定是因为病娇炸的我感觉已经没有疑意了吧，现在我眼里的初华已经快变成丧尸暴龙兽版的步梦了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  akiomn  
+##### 4521#       发表于 2024-12-27 13:49
+
+卧槽！有重女！白睦怎么也这么重啊
+
+0DFE3C1E-02AE-4966-AB08-E2F91982DBE5.jpeg
+(180.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-27 13:48 上传
+
+<img src="https://img.saraba1st.com/forum/202412/27/134859anxfn5wcoxwhherc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="0DFE3C1E-02AE-4966-AB08-E2F91982DBE5.jpeg" w="1077" width="800" zoomfile="https://img.saraba1st.com/forum/202412/27/134859anxfn5wcoxwhherc.jpeg">
+
+*****
+
+####  厉飞雨  
+##### 4522#       发表于 2024-12-27 13:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">睦头应该第四集就拆雷了吧
+后面还有更爆吗
+
+
+*****
+
+####  PDQ4  
+##### 4523#       发表于 2024-12-27 13:51
+
+糖刀意料之中，祥子状态必然导致前期没有时间关心睦，但是她竟然反思了，哪怕是自己快坏了心里也留着对睦的关心，我想看的就是这个啊<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+而且幼驯染吵架标准剧情：你变了
+
+一想到祥子本来是对睦少言说变了，结果睦不少言被黑泥吞噬后变化更大了
+
+追妻火葬场.jpg
+
+*****
+
+####  御幸一也  
+##### 4524#       发表于 2024-12-27 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67034199&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-27 13:49</a>
+
+卧槽！有重女！白睦怎么也这么重啊
+
+草，好像显示不出来，大概就是ccc回忆那幕，睦说大家演奏很有感情。灯的 ...</blockquote>
+樓友關注睦祥的話還是等等看樓友的劇透吧，他也比較關注睦祥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

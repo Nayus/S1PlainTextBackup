@@ -207,3 +207,13 @@ eae8ab63ecc4a4e19b51ad6d29f00cd.jpg
 
 说的好，这次烤男联动全男游戏es，那下次烤女联动全女游戏邦邦的时候就让mzk上吧
 
+
+*****
+
+####  GAdoru  
+##### 1851#       发表于 2024-12-27 13:54
+
+盒中盒消息，糖糖被这八个男的论剑扔在后台了
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

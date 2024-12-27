@@ -2290,3 +2290,55 @@ mo吞噬睦那个真的很有追妻火葬场前奏，吵架是吧，本来一直
 
 第四集会有睦祥的童年回忆回吗，奶一口<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 4669#       发表于 2024-12-27 21:15
+
+仔细看了下第二集，爽姐怎么好像对祥子组鸡有意见，不会真以为祥子抛弃ccc一起恨上了吧
+
+独角兽疑似消解爽祥关系性<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  3353764798  
+##### 4670#       发表于 2024-12-27 21:17
+
+小小睦有点太可爱了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  黑夜落叶秋天  
+##### 4671#       发表于 2024-12-27 21:18
+
+祥子和睦的家长辈都在暗示两人关系不一般就是没给童年画面
+
+wsd真的太能藏了
+
+*****
+
+####  山ノ内花音  
+##### 4672#       发表于 2024-12-27 21:18
+
+什么意思独角兽 都第三集了还不让幼祥幼睦同框<img src="https://static.saraba1st.com/image/smiley/face2017/268.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 4673#       发表于 2024-12-27 21:20
+
+说明第四集要有致死量幼睦祥，可能太重量级了，童年就有亲嘴所以不能放<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑夜落叶秋天  
+##### 4674#       发表于 2024-12-27 21:23
+
+如果4-5集也没讲的话 那大概率要和初华一起爆给祥子了
+
+祥子双青梅的攻势 你真的挡得住么
+

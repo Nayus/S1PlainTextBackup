@@ -4418,3 +4418,13 @@ EX又不能打暴击
 你的图终于刷出来了 欧 羡慕 new 血赚 普池稍有的强卡  更是赚中赚（</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">呸
 
+
+*****
+
+####  blue321  
+##### 15629#       发表于 2024-12-27 21:17
+
+怎么说呢，上线一看邮箱一堆棋子辉石那感觉
+
+真挺微妙的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

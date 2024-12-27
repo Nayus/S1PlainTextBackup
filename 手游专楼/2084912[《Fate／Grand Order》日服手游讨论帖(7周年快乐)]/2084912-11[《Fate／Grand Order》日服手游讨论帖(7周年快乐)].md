@@ -4312,3 +4312,11 @@ EX又不能打暴击
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
 
+
+*****
+
+####  xiongxingyu  
+##### 15618#       发表于 2024-12-27 11:06
+
+本来点完技能树有不少棋子和辉石已经快见底了，这一波下来估计能用到关服了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

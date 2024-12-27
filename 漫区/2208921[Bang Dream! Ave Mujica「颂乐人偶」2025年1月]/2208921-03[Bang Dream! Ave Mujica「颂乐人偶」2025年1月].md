@@ -16455,3 +16455,15 @@ CCC解散祥子哭的那時候，睦就在祥子身後拿著沒打開的傘，�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">海铃：哭？哭也算时间哦
 不愧是雇佣兵，干完活直接继续下一份工作
 
+
+*****
+
+####  悲伤颂偶  
+##### 4440#       发表于 2024-12-27 11:08
+
+<blockquote>akiomn 发表于 2024-12-27 11:05
+海铃：哭？哭也算时间哦
+
+不愧是雇佣兵，干完活直接继续下一份工作</blockquote>
+太生草了。。。
+

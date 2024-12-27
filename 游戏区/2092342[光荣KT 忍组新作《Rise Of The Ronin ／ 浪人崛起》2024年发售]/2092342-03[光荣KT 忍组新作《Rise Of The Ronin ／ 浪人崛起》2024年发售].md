@@ -18,3 +18,13 @@
 
 2025年はTeamNINJA創立30周年という事で、ふさわしいタイトルの発表やリリースをしていきたいと思います。
 
+
+*****
+
+####  手铐君  
+##### 3289#       发表于 2024-12-28 01:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">30周年，会是他吗
+
+—— 来自 vivo V2025A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

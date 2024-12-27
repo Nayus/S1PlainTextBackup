@@ -15973,3 +15973,39 @@ https://www.bilibili.com/video/BV11ZC6YBEPn/ ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  御幸一也  
+##### 4383#       发表于 2024-12-27 09:27
+
+最早那場的有一個人在一直發感想，但上野場的人更多也快出來了，直接等樓友就夠了
+
+*****
+
+####  akiomn  
+##### 4384#       发表于 2024-12-27 09:27
+
+看了眼，有人说睦第四集可能才炸
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不和预想的差不多嘛，第二集过渡，第三集睦视角回忆，第四集整个大的
+
+*****
+
+####  御幸一也  
+##### 4385#       发表于 2024-12-27 09:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67031442&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-27 09:27</a>
+
+看了眼，有人说睦第四集可能才炸
+
+这不和预想的差不多嘛，第二集过渡，第三集睦视角回忆，第四集整个大的 ...</blockquote>
+那句話我怎麼看起來感覺是，炸完了4話開始露出本性
+
+
+*****
+
+####  哈曼的YY  
+##### 4386#       发表于 2024-12-27 09:33
+
+会露出op里健康的笑容吗
+

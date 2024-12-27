@@ -911,3 +911,14 @@ GQX就......现在处于噱头没爆就被内鬼透了，痞子劝退人设劝�
 
 希望gqx的pv诈骗没水魔那么厉害吧
 
+
+*****
+
+####  刺客ares  
+##### 1558#       发表于 2024-12-28 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67038898&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2024-12-28 00:26</a>
+
+这年头和uc扯上关系不是纯负面宣传吗？想引流肯定是尽量和uc撇清关系才好。要是新人知道了需要补那么多前 ...</blockquote>
+这作要不是藏世界观而是纯黑拳竞技过家家恐怕骂声要再多一倍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

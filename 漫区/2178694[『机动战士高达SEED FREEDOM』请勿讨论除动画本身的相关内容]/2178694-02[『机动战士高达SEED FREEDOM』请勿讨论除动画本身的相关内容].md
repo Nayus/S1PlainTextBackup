@@ -31,3 +31,11 @@
 <img src="https://p.sda1.dev/21/53b419bf10c131565ffb94eac5036332/20241227_173929.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/687f4cf91ac970baad379027c61842e0/20241227_173931.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ironman_mk5  
+##### 2020#       发表于 2024-12-27 18:09
+
+看了下新命运大招的对比bd版还是用掌的本体回收用炮和用刀的两分身，还以为官设定为新粒子产生的残像会修正过来
+

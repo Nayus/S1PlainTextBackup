@@ -2186,3 +2186,26 @@ wsd！我现在就想看前三集啊啊啊！！！
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">ED的画面看爽了
 
+
+*****
+
+####  akiomn  
+##### 4659#       发表于 2024-12-27 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67036945&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-27 20:06</a>
+这个要第四集讲了
+
+有个点就是祥子视角里睦变了，那是什么时候开始变得不愿对祥子说话
+
+可能要从童年复习， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">pv还有砸书和遍地玩偶画面没回收，搞不好白睦知道黑睦伤到了祥子，然后睦又给自己上压力了
+目前看黑睦肯定不会听箱子的话，大概要和祥子爆了
+
+
+*****
+
+####  枫林不见  
+##### 4660#       发表于 2024-12-27 20:40
+
+黑睦有日常化吗，不会仅仅只是舞台表演才切出来的人格吧
+

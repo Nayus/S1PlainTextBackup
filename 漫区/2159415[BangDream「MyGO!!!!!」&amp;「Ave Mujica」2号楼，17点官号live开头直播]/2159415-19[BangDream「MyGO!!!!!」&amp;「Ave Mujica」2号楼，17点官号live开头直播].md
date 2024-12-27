@@ -1717,3 +1717,16 @@ Happy birthday 彩！  
 
 问题不是很大，这漫画也是今天刚开始连载<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">月更
 
+
+*****
+
+####  LeonsCat  
+##### 26776#       发表于 2024-12-28 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67033559&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-12-27 12:32</a>
+
+什么叫百合姬作者啊</blockquote>
+啊昨天没刷出来
+
+deideidei，女校，落地窗，二人的相逢，神明……圣妈啥时候换人设画风了？
+

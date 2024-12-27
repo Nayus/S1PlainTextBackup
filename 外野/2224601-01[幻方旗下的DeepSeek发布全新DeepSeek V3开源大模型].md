@@ -554,3 +554,13 @@ https://immersivetranslate.com/zh-Hans/docs/services/deepseek/</blockquote>
 
 宣传上有功夫，meta当时有成熟的fp8驱动吗？好意思跟人家比训练时间。
 
+
+*****
+
+####  kozalak  
+##### 53#       发表于 2024-12-28 00:50
+
+有大佬测过翻译和4o比差别大吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

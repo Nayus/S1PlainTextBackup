@@ -3466,3 +3466,34 @@ magnet:?xt=urn:btih:7dbbfa69cb7ab6d6a5c930e527819f474f5d4975
 哈哈，祥快坏掉了。睦，已经坏掉了。我，也快坏掉了。
 啊卧槽wsd怎么这么坏，只放前三集
 
+
+*****
+
+####  PDQ4  
+##### 4784#       发表于 2024-12-28 02:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67039545&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-28 02:09</a>
+ 如果喵梦全程和莫提斯一起跟祥子对着干，祥子先炸穿给她俩看吧，第三集精神状态已经岌岌可危了，黑睦再高 ...</blockquote>
+所以我觉得喵梦不一定会火上浇油，主要是前三集的喵梦和想象的野心家人设有出入
+虽然注重流量，但是努力家人设更明显，这就注定不会坏到哪里去，所以助攻位可能性微存
+至于祥子的炸肯定伴随着mujica的炸，前期就解决太早了，我还是奶初华主场或者前炸
+
+实际上祥子虽然挺紧绷的但是完全还能扛住嘛，第三集其实有在反思自己不够关心睦，那半身出问题了肯定会去解决
+
+现在就好奇睦这个形态转换是稳定在融合态，还是会切换态，因为舞台上渡濑形象已经锚定狂气一面一定是常态（至少舞台上是）了
+
+睦祥会变成mortis超讨厌祥子睦超喜欢祥子的夹心cp吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  LeonsCat  
+##### 4785#       发表于 2024-12-28 03:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67039685&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-28 02:59</a>
+
+所以我觉得喵梦不一定会火上浇油，主要是前三集的喵梦和想象的野心家人设有出入
+
+虽然注重流量，但是努力 ...</blockquote>
+单纯刻板印象难道不是黑睦是个超级蹭得累水仙么……
+

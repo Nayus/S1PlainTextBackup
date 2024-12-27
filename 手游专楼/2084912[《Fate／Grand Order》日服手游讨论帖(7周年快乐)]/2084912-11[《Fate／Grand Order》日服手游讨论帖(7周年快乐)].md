@@ -4338,3 +4338,15 @@ EX又不能打暴击
 
 —— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  Jamaisvu  
+##### 15621#       发表于 2024-12-27 15:06
+
+<blockquote>サイトヒメア 发表于 2024-12-27 14:14
+近卫的石头也被扣到负数了
+
+—— 来自 nubia NX769J, Android 14上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+该不会一开始就是因为某些内部人员也吃了bug福利，叶良树才没好意思扣到负数吧...
+

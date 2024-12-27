@@ -655,3 +655,11 @@ jo厨狠狠享受了
 
 —— 来自 Xiaomi 22127RK46C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  shyso  
+##### 69#       发表于 2024-12-27 16:01
+
+这人的画，让我想起来之前看的一个视频，讲的是徐悲鸿的油画水平，入了门儿没出师
+

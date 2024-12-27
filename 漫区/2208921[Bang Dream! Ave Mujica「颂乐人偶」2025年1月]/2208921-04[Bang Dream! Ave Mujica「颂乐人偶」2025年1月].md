@@ -1996,3 +1996,14 @@ pv里的很多镜头都没有回收
 既然这样 那第四集的看点就是黑睦如何配合 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png">不该是海港对决黑睦和祥子爆了？太期待祥子被黑睦爆了的表情了，仅此于pv里颓废回豪宅那幕
 
+
+*****
+
+####  3353764798  
+##### 4642#       发表于 2024-12-27 17:54
+
+黑睦我看完全能自行完成表演，太颠了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+大祥打地铺被初华抓包也挺难绷。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

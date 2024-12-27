@@ -1628,3 +1628,13 @@ Happy birthday 彩！  
 信澤 収 @canvas2929
 <img src="https://p.sda1.dev/21/39265de46015aa91a4d4a74ce50314f1/1735225347518.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CRYCHIC  
+##### 26767#       发表于 2024-12-27 11:17
+
+[[CHS]BanG Dream! It's MyGO!!!!! 雨中祈晴](https://comic-growl.com/episode/2550912964996119353)
+
+素祥赢赢赢
+

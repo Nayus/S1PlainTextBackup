@@ -835,3 +835,11 @@ bg3吧，虽然我个人不是很感冒，但是看反响大部分人还是比�
 
 我看了一下这个画师的ig，只能这也不是这个画师的风格，所以。。。为啥画成这样
 
+
+*****
+
+####  afer  
+##### 85#       发表于 2024-12-28 13:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">你说这是美院里抓了几个下等马画的速写我都信
+

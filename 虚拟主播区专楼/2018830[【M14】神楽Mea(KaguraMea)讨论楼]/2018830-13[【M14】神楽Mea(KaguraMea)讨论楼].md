@@ -135,3 +135,14 @@ TTS出来大概是这一段，也可能没截全
 
 我也想写小长文戳主播G点<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shmilyhua  
+##### 17775#       发表于 2024-12-28 13:33
+
+长文我没有，短文倒是可以写一点。
+Twitch录像又被审核锁了，这回直接35分钟不给过，俺寻思苔姨联动录像被击毙是因为评论区有不可名状的数字，这打撸也不开评论，盯着游戏聊天框看了半天也想不出有什么算是违反《网安法》的内容，只好全截掉了。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

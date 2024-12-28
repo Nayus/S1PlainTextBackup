@@ -4412,3 +4412,36 @@ mujica最大的问题就是从成立开始就一直在全速前进
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">事实上祥子看出来了，睦快坏掉了，睦不想上台表演，但是祥子被事务所和喵梦搞得焦头烂额，还要处理睦之前捅下的篓子，自己精神状态濒临爆炸根本管不了睦了
 祥子最大问题是说错话却逃跑了，她和睦两个人的语言系统也算是烂完了
 
+
+*****
+
+####  北条早苗  
+##### 4871#       发表于 2024-12-28 11:53
+
+🐘老师这急了就让人练习的语言系统确实烂完了，每次炸团都有你是不是你打的有问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AveMujica  
+##### 4872#         楼主| 发表于 2024-12-28 11:54
+
+5
+<img src="https://p.sda1.dev/21/a40bff1ae1191d8c602a48012bbe74de/image.png" referrerpolicy="no-referrer">
+[https://www.bilibili.com/opus/1015837936087728133](https://www.bilibili.com/opus/1015837936087728133)
+
+*****
+
+####  哈曼的YY  
+##### 4873#       发表于 2024-12-28 11:55
+
+<blockquote>棒读 发表于 2024-12-28 11:14
+我脑补的完全体小睦大概是这种状态↓</blockquote>
+见识超金属黄瓜的演技与吉他结合吧
+
+*****
+
+####  Aendst  
+##### 4874#       发表于 2024-12-28 11:55
+
+i83名言.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

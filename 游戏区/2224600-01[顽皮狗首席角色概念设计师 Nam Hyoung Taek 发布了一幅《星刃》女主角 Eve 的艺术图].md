@@ -851,3 +851,11 @@ bg3吧，虽然我个人不是很感冒，但是看反响大部分人还是比�
 
 概念设计师懂吗，不DEI就不概念了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  monikaca  
+##### 87#       发表于 2024-12-28 14:18
+
+这是投名状吗？金变态也要背叛工人阶级？
+

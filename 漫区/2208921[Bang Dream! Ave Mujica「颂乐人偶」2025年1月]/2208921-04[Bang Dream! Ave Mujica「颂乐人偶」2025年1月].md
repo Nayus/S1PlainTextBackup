@@ -5054,3 +5054,41 @@ pv里睦破坏了人偶 用书砸镜子 似乎在反抗莫提斯
 
 都承担队友的一生了，喵搞事自然是好好接住呀，口嗨是需要付出代价的呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Tienx  
+##### 4934#       发表于 2024-12-28 19:54
+
+真奈这句“sumimi是不会解散的！”不会也会回旋镖吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 4935#       发表于 2024-12-28 19:55
+
+ 本帖最后由 Aendst 于 2024-12-28 19:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67050961&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-28 19:24</a>
+
+刀里夹糖嘛
+
+参考冰川双子，前面不也是别扭关系？睦祥现在越爆后期和解就越甜，相信独角兽xp睦祥。两个人现 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得所谓关系性，就是彼此互相在意最重要（扩展来说，这里的在意也可以是竞争意识，但不能是恶意），其他的其实都是后话了
+
+是糖是刀也都不重要，不如说这里祥子先宕机反而是最大惊喜
+
+现在这样我其实已经很满意了，而且我觉得睦祥的醍醐味是有一点不健康味在的，特别健全反而会跟我个人的理解有偏差
+
+
+*****
+
+####  akiomn  
+##### 4936#       发表于 2024-12-28 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67050994&amp;ptid=2208921" target="_blank">三角初华 发表于 2024-12-28 19:29</a>
+现在最大的疑惑是 
+莫提斯 吉他 这是两个不同的存在吗
+pv里睦破坏了人偶 用书砸镜子 似乎在反抗莫提斯 </blockquote>
+破坏人偶安抚吉他是一个场景，砸书是另一个，两个时间不同
+一个疑惑点，目前安抚吉他是白睦独有的，黑睦反而是放下吉他
+

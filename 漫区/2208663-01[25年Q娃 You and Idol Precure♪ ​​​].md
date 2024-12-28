@@ -236,3 +236,11 @@
 
 这人设是不是有点太素了，哪怕主题不是偶像也还是素啊，当成路人都毫无违和感
 
+
+*****
+
+####  天风绯炎  
+##### 175#       发表于 2024-12-28 20:02
+
+首先浅推一手蓝色人间体，蓝色q娃形态一般般，q娃形态今年第一眼对紫色的比较有感觉<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

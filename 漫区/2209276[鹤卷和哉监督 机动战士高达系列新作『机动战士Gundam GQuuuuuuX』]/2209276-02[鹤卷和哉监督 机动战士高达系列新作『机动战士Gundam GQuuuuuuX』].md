@@ -1062,3 +1062,13 @@ Gundam Channel要开始了<img src="https://static.saraba1st.com/image/smiley/fa
 
 啥酱都没有怎么可能好吃
 
+
+*****
+
+####  0aleph37  
+##### 1574#       发表于 2024-12-28 19:54
+
+怎么还在水魔新图
+
+好吧，祈祷gq6ux能在放送期间销量/话题度比得上水魔
+

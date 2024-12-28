@@ -3813,3 +3813,67 @@ Mujica解散或者会产生巨大变动相关的话题就是会直接刺到祥�
 
 某种意义上来说对mujica反应最大的可能是爱音<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 4815#       发表于 2024-12-28 09:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">媽耶名字都不會好好喊的還是直接屏蔽比較適合
+
+感覺浪費時間了
+
+不過還是回最後一次哦，商業樂團，你想不解釋採訪就能不接受？自己想想。
+
+*****
+
+####  akiomn  
+##### 4816#       发表于 2024-12-28 09:47
+
+睦的吉他好像到现在还没说是谁送的？我记得op里绑蝴蝶结的吉他那帧还没回收吧？
+没回收的话有可能吉他是小时候祥子送的，这俩童年互动到现在都藏着。黑睦和白睦对吉他的态度很明显不同，黑睦放下吉他，白睦pv里遍地玩偶坐在床上安抚吉他
+
+*****
+
+####  御幸一也  
+##### 4817#       发表于 2024-12-28 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67048036&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-28 09:35</a>
+
+乐奈几乎没出场，或者即使出场了也没什么有信息量的地方
+
+不过剧场版访谈里青木提到过乐奈和mujica成员会有 ...</blockquote>
+什麼表情 我缺的希祥有機會補上嗎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qjw114514  
+##### 4818#       发表于 2024-12-28 09:51
+
+祥子现在自顾不暇很正常，但是睦爹妈真就孩子这个精神状态（以及身体状态）都没发现异常吗？这是什么爹妈啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  AvengerRideon  
+##### 4819#       发表于 2024-12-28 09:54
+
+鸡团动画内和真人乐队的热度差也挺唏嘘的，动画里带着面具能最速武道馆，真人乐队就是live当日票都没卖完，所以动画里究竟是什么原因商业上能这么成功？靠世界观、台风、乐器水平就能这么炒作的话个人觉得不是很站得住脚
+
+*****
+
+####  帝下室の年糕  
+##### 4820#       发表于 2024-12-28 09:55
+
+父母大明星忙事业不回家不是很正常，反正有佣人管着，但佣人也不可能大晚上还盯着睦
+
+*****
+
+####  山ノ内花音  
+##### 4821#       发表于 2024-12-28 09:55
+
+观众对祥子的期待就是成为所有角色的爹妈
+关注灯 soyo的心理问题
+关注睦的熬夜 身体状况
+但编剧还是不会让她这么万能的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

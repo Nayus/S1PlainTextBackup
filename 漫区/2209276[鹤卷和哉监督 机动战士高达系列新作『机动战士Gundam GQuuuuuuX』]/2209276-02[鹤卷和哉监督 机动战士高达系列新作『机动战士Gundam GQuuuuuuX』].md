@@ -1449,3 +1449,20 @@ Gundam Channel要开始了<img src="https://static.saraba1st.com/image/smiley/fa
 
 如果是季番就只能祈祷节奏够快了一路超展开了。
 
+
+*****
+
+####  wasssf  
+##### 1613#       发表于 2024-12-28 22:41
+
+感觉会是金属口红高达
+
+*****
+
+####  刺客ares  
+##### 1614#       发表于 2024-12-28 22:43
+
+重看一遍声优访谈感觉土屋弟已经变成鹤卷迷弟了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+“真不愧是鹤卷导演，真不愧是khara”
+

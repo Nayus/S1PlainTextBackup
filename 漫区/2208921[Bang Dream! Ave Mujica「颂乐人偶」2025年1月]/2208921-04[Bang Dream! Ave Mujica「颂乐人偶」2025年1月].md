@@ -5687,3 +5687,31 @@ mujica现在光是演戏or乐队的分歧就够内部忙活的了，根本没那
 
 但是至少希望这种失败留下某种希望的火种，就像爱音发现真相后疲惫地退出，但是反而借由一度解散后的空白让大伙重新思考面对彼此
 
+
+*****
+
+####  哈曼的YY  
+##### 4994#       发表于 2024-12-29 01:47
+
+ 本帖最后由 哈曼的YY 于 2024-12-29 01:49 编辑 
+
+<img src="https://img.saraba1st.com/forum/202412/29/014630t7mjkp5m05nnn4kb.jpg" referrerpolicy="no-referrer">
+
+<strong>Gf2y9QuakAApOFj.jpg</strong> (535.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-29 01:46 上传
+
+[https://x.com/JiBliy81/status/1872849795108507853](https://x.com/JiBliy81/status/1872849795108507853)
+
+<img src="https://img.saraba1st.com/forum/202412/29/014920k0b7wwf7q70d757b.jpg" referrerpolicy="no-referrer">
+
+<strong>Gfz-3WkbwAA8XX-.jpg</strong> (642.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-29 01:49 上传
+
+[https://x.com/SumnerNath82011/status/1872651823817072797](https://x.com/SumnerNath82011/status/1872651823817072797)
+

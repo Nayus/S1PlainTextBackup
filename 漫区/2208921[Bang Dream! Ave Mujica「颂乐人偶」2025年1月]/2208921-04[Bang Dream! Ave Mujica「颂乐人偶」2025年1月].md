@@ -3877,3 +3877,58 @@ Mujica解散或者会产生巨大变动相关的话题就是会直接刺到祥�
 关注睦的熬夜 身体状况
 但编剧还是不会让她这么万能的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 4822#       发表于 2024-12-28 09:57
+
+（单纯残留印象）立希好像在听到说mujica是祥子建的，曲和台本都是她写的时候，回了一句骗人吧，这种事……然后低下头看起来心事重重
+
+睦妈人看着真挺好的，但是平常应该也不常在家，睦爹完全没出场过，毕竟大御所艺人，可能也非常忙
+
+睦异常状态这段时间她父母可能都不在家，mujica成员是可以随意自行进出睦家去地下室团练的
+
+*****
+
+####  御幸一也  
+##### 4823#       发表于 2024-12-28 09:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不過這樣更加體會到睦秒答加入avemujica的含金量了。這麼討厭出現在鏡頭前，還是願意為了祥子這樣去做。
+祥子那時候的再確認，也是知道睦如果加入ave肯定會遇到這些她不擅長的事吧，而且沒有回頭路。
+但祥子也沒有選擇，她太需要組avemujica了，只能去扯兩個幼馴染下場。<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+唉 幼馴染 
+
+*****
+
+####  akiomn  
+##### 4824#       发表于 2024-12-28 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67048096&amp;ptid=2208921" target="_blank">AvengerRideon 发表于 2024-12-28 09:54</a>
+鸡团动画内和真人乐队的热度差也挺唏嘘的，动画里带着面具能最速武道馆，真人乐队就是live当日票都没卖完， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你别问，问就是邦邦世界观，同世界观有个叫hhw的乐队能让你怀疑这压根不是一个次元，直接在mygo里彻底被ban掉都不让露脸的
+
+*****
+
+####  御幸一也  
+##### 4825#       发表于 2024-12-28 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67048109&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-28 09:57</a>
+（单纯残留印象）立希好像在听到说mujica是祥子建的，曲和台本都是她写的时候，回了一句骗人吧，这种事…… ...</blockquote>
+唉 劣等感<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  棒读  
+##### 4826#       发表于 2024-12-28 09:59
+
+其实也不太好怪祥子，她作为mujica的领导者是不能公开过多偏袒小睦的，不然队伍就带不了了。当然她更好的做法是发现不对劲第一时间私下里找小睦谈谈，不过对于一个十几岁的小女孩来说要求也太高了，很多人工作十几年做了领导了情商都到不了这水平。
+
+
+*****
+
+####  棒读  
+##### 4827#       发表于 2024-12-28 10:03
+
+我倒觉得喵梦这家伙挺难搞的，不管是一开始搞事情还是后面质疑祥子偏袒小睦，她很容易抓住痛点达到自己的目的，但你也拿她没有什么办法，她也知道你拿她没有办法，而且还特别会交际抱大腿，这个人的段位和祥睦根本不在一个层面，在现实中属于职场人精这类的
+

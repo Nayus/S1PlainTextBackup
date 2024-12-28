@@ -5145,3 +5145,20 @@ pv里睦破坏了人偶 用书砸镜子 似乎在反抗莫提斯 </blockquote>
 
 就剧透来看祥子没意识到睦的问题的严重性。
 
+
+*****
+
+####  厄神之息  
+##### 4943#       发表于 2024-12-28 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67051688&amp;ptid=2208921" target="_blank">Nungesser 发表于 2024-12-28 21:04</a>
+看剧透里Soyo怎么还在抓着睦说话……</blockquote>
+是。。。本篇soyo就追着木子米一个愿理她的PUA，木子米帮完了还被soyo自认为最狠的话伤害了。第二部还要在最脆弱的时候被soyo追过来压力。soyo看完演出觉得不爽也是甩了粉毛就跑，这观感soyo多少沾点不是人了。。。
+
+*****
+
+####  akiomn  
+##### 4944#       发表于 2024-12-28 21:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以对soyo的期望是，睦祥线soyo别来上强度就不错了，老老实实在一边呆着去
+

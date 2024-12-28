@@ -1274,3 +1274,37 @@ Gundam Channel要开始了<img src="https://static.saraba1st.com/image/smiley/fa
 
 独自一个人驾驶小型ms逃出生天难道不帅吗（
 
+
+*****
+
+####  刺客ares  
+##### 1594#       发表于 2024-12-28 21:08
+
+是UC版水魔2那真要看乐子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+把骡子鸭子这些扯进水魔剧本里，遗老怕不是要两眼一翻直接过去了
+
+
+*****
+
+####  RE㐅ia  
+##### 1595#       发表于 2024-12-28 21:11
+
+<blockquote>双菜 发表于 2024-12-28 20:57
+完了，姨姥最害怕的UC世界观水魔2要来了</blockquote>
+天空的学校：没错，正是在下
+
+*****
+
+####  复活赛3比0  
+##### 1596#       发表于 2024-12-28 21:12
+
+平行世界，不就是用来切割的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oi99o  
+##### 1597#       发表于 2024-12-28 21:14
+
+就是补补系列前作而已，市之濑还去补了0079呢，最后有啥关系吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

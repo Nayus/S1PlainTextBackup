@@ -5487,3 +5487,47 @@ mujica矛盾公开化就算真的有，肯定也得到中后期了。按目前�
 
 祥子是在关心睦的，但是她关心确实不够，而且最大问题是她自己先在睦的事上情绪崩溃了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新HGCG  
+##### 4975#       发表于 2024-12-29 00:01
+
+初华还有一点
+
+就是她听到祥子提起自己和睦从小就认识时的反应
+
+我看的时候不少观众笑了
+
+*****
+
+####  Aendst  
+##### 4976#       发表于 2024-12-29 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67052623&amp;ptid=2208921" target="_blank">wsuFish 发表于 2024-12-28 23:46</a>
+
+按各自能获得的信息，soyo和立希视角里的c团解散就是“嫌弃我们不行所以退队了新组个更好的呗”。
+
+在身份揭 ...</blockquote>
+其实有个非常微妙的地方
+
+mygo部分的剧情在这三话里的气氛调性非常的突兀，mujica那边的压抑表现太多，但一转mygo就是晴天ring喝茶欢快的配乐和轻松的气氛
+
+就算是mygo集体说mujica话题那里或者学校的场景，气氛也称不上阴沉，都是晴天大白天
+
+我不知道制作组是不是要这样刻意安排来调整每一话的氛围，让整体观感不要过度压抑
+
+但这种mygo轻松，mujica沉重的氛围，会反衬出一种彼此格格不入的观感，尤其会让mujica的部分显得更加沉重
+
+*****
+
+####  新HGCG  
+##### 4977#       发表于 2024-12-29 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67052691&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-29 00:03</a>
+
+其实有个非常微妙的地方
+
+mygo部分的剧情在这三话里的气氛调性非常的突兀，mujica那边的压抑表现太多，但一 ...</blockquote>
+我觉得就是从MYGO调节气氛
+

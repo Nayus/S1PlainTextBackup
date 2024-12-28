@@ -765,3 +765,14 @@ F社只玩过天诛系列和九怨
 
 虽然魂三垫底，但也比现在大多数游戏好玩很多了，主要还是这一套品鉴的太多了没啥耐心了，所以魂三完全是照攻略打完的，看攻略会损失很多乐趣
 
+
+*****
+
+####  滋啦球  
+##### 69#       发表于 2024-12-28 23:56
+
+ACE3-AC4-ACFA-ACV-魂12-血源-魂3-恶魂-只狼-环-AC6
+也就泥潭能遇到不少从AC和ACE甚至更早开始玩FS游戏的活化石了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+

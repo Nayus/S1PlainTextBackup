@@ -4549,3 +4549,16 @@ https://www.bilibili.com/opus/1015837936087728133</blockquote>
 #3</blockquote>
 当初惊世一跪后面给木头人大特写的原因找到了
 
+
+*****
+
+####  LeonsCat  
+##### 4884#       发表于 2024-12-28 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67048885&amp;ptid=2208921" target="_blank">66367749 发表于 2024-12-28 12:15</a>
+
+我说的是舞台上搞事，如果计划的舞台演出的那当然可以，一致认可或者少数服从多数。上台后自说自话暴言和 ...</blockquote>
+看你乐队定位了。
+
+这种脑门子上写着带点偶像味道的商业乐队（就不提现实ave团就是偶像女团了）这么搞肯定会被人骂退钱，你要是五个27岁俱乐部老姐们，不莫名其妙砸个吉他喷个火那是太纯良了。
+

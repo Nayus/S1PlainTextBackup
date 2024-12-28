@@ -1232,3 +1232,45 @@ Gundam Channel要开始了<img src="https://static.saraba1st.com/image/smiley/fa
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  刺客ares  
+##### 1589#       发表于 2024-12-28 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67051615&amp;ptid=2209276" target="_blank">PascalLefèvre 发表于 2024-12-28 20:53</a>
+
+女主有感情戏吗（？
+
+是说黑泽很喜欢某个角色吧</blockquote>
+考哥.jpg了，重读一遍应该是站在局外角度说的
+
+*****
+
+####  双菜  
+##### 1590#       发表于 2024-12-28 20:57
+
+完了，姨姥最害怕的UC世界观水魔2要来了
+
+
+*****
+
+####  尼娅安  
+##### 1591#       发表于 2024-12-28 21:00
+
+很帅的戏份是机战吗
+
+*****
+
+####  kisstv22  
+##### 1592#       发表于 2024-12-28 21:01
+
+机战做好已经足够了
+
+*****
+
+####  RE㐅ia  
+##### 1593#       发表于 2024-12-28 21:02
+
+独自一个人驾驶小型ms逃出生天难道不帅吗（
+

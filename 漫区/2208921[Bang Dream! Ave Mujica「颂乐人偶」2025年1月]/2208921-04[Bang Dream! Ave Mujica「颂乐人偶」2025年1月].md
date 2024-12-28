@@ -3727,3 +3727,34 @@ Mujica解散或者会产生巨大变动相关的话题就是会直接刺到祥�
 
 通通拒絕，因為avemujica一點都不重要呢，也不是祥子現在擺在第一位的東西。
 
+
+*****
+
+####  AvengerRideon  
+##### 4807#       发表于 2024-12-28 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67047812&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2024-12-28 08:10</a>
+现在看选择戴面具的目的就是不被巨大的流量操纵 等到乐队成长到一定程度 自己的经理能力变强 再去应对各种 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 本来等鸡团发展稳定下来了，有精力和时间的余裕了，再来点爆鸡团这帮地雷的话，肯定是可以更好地处理的，现在是喵梦直接跑进雷区给雷提前都引爆了，所以确实是速度的问题…
+
+*****
+
+####  Aendst  
+##### 4808#       发表于 2024-12-28 09:16
+
+剧本合理不合理我不能下判断，有些发言合不合理看泥漏的人还是能看出来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+只能说符合我对一些现地看到祥妈葬礼和祥爹往祥子头上扔啤酒罐的场景像猴子一样傻笑拍手称快的群体的刻板印象
+
+*****
+
+####  akiomn  
+##### 4809#       发表于 2024-12-28 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67047970&amp;ptid=2208921" target="_blank">AvengerRideon 发表于 2024-12-28 09:16</a>
+
+本来等鸡团发展稳定下来了，有精力和时间的余裕了，再来点爆鸡团这帮地雷的话，肯定是可以更好地处理的 ...</blockquote>
+
+如果喵梦不提前引爆的话，祥子是有足够精力先把睦这颗雷处理掉，甚至哪怕第一集摘面事件后，喵梦不作对老实听话，祥子都能优先解决睦的问题
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是喵梦摘面＋处处和祥子作对的结果是最糟糕的，把睦引爆了，祥子也在爆的边缘
+

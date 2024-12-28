@@ -196,3 +196,15 @@
 
 一阶段<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  月夜凝雪  
+##### 171#       发表于 2024-12-28 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67050383&amp;ptid=2208663" target="_blank">双菜 发表于 2024-12-28 17:39</a>
+可能土到极致就是潮</blockquote>
+隔壁来打棚是吧
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

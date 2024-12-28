@@ -148,3 +148,51 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
 
+
+*****
+
+####  modedd  
+##### 165#       发表于 2024-12-28 17:37
+
+这人设也太朴素了，尤其女主，你说这是今年的路人也完全没有任何违和感，难道土妹子是人设的一部分吗
+
+*****
+
+####  双菜  
+##### 166#       发表于 2024-12-28 17:39
+
+可能土到极致就是潮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  李霞  
+##### 167#       发表于 2024-12-28 17:42
+
+土怎么了，怎么就不能是在致敬传奇偶像小甜甜 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  离心  
+##### 168#       发表于 2024-12-28 17:44
+
+那今年的主旨就是每个人都可以是偶像?（哪来的拥抱）
+
+*****
+
+####  Blackson  
+##### 169#       发表于 2024-12-28 17:46
+
+这好像是第一次三人开局首次黄色缺席。
+
+比起人设，Staff阵容更重要。
+
+至于是否打斗缺席的问题，看PV大概能略知一二。
+
+*****
+
+####  qjw114514  
+##### 170#       发表于 2024-12-28 17:46
+
+一阶段<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

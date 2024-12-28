@@ -738,3 +738,18 @@ ACE 3 →黑魂1 remastered →黑魂3 →血源 → 黑魂2 → 只狼→恶魂
 
 有个中国入侵美国的机甲游戏我想知道这里多少人玩过<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pepper023  
+##### 66#       发表于 2024-12-28 17:45
+
+忍者之忍 魂231 只狼 艾尔登 恶魂高清版 魂3dlc 魂2 dlc 艾尔登dlc
+
+*****
+
+####  amuro0093  
+##### 67#       发表于 2024-12-28 17:47
+
+F社只玩过天诛系列和九怨
+

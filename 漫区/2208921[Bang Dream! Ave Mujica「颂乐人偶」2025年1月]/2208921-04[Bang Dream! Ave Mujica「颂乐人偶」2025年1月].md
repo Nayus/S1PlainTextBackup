@@ -3664,3 +3664,11 @@ magnet:?xt=urn:btih:7dbbfa69cb7ab6d6a5c930e527819f474f5d4975
 
 祥子理想主义者的一面确实很明显，但工作本身上是务实的，就是太执着于mujica这个乐队和她那个世界观了
 
+
+*****
+
+####  qjw114514  
+##### 4801#       发表于 2024-12-28 08:30
+
+pv听到祥子那句只有母鸡卡了的时候就在想一直陪着她的睦会不会被这句话伤到，现在看来好像还真是？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

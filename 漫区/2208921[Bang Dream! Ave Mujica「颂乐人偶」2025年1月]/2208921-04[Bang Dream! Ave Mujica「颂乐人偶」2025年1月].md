@@ -4919,3 +4919,14 @@ wsd的宣传就是鬼图？典型的要流量不要🐎
 喵梦居然大学了（悲</blockquote>
 隔壁之前有过猜测<img src="https://p.sda1.dev/21/b9784af6e9b66a1e20c308e10a091437/image.jpg" referrerpolicy="no-referrer">https://ngabbs.com/read.php?tid=42838623
 
+
+*****
+
+####  银酒监武  
+##### 4922#       发表于 2024-12-28 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67050534&amp;ptid=2208921" target="_blank">rinku 发表于 2024-12-28 18:08</a>
+
+没矛盾啊，确实不开心，不过是自己内耗的，觉得自己弹吉他太菜不配在ccc继续演出 ...</blockquote>
+不过之前根据访谈得出的结论好像是睦不喜欢C团
+

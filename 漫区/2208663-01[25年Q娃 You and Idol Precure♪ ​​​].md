@@ -244,3 +244,13 @@
 
 首先浅推一手蓝色人间体，蓝色q娃形态一般般，q娃形态今年第一眼对紫色的比较有感觉<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leleq  
+##### 176#       发表于 2024-12-28 20:41
+
+这人间体也不像idol啊，所以是人间体普通人q娃形态是idol的设计吗？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

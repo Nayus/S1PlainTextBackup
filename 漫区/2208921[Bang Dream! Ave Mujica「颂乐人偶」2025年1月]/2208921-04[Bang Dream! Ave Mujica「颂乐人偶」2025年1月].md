@@ -5110,3 +5110,13 @@ pv里睦破坏了人偶 用书砸镜子 似乎在反抗莫提斯 </blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  Gandalf  
+##### 4939#       发表于 2024-12-28 20:40
+
+可哀想なお人形这曲子用得真好，放伞天晴那个片段太顶了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

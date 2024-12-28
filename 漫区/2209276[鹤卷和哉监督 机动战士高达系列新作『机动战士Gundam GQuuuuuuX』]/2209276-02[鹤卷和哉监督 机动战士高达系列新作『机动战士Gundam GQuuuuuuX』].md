@@ -1158,3 +1158,77 @@ Gundam Channel要开始了<img src="https://static.saraba1st.com/image/smiley/fa
 
 看来确定是季番了
 
+
+*****
+
+####  0aleph37  
+##### 1583#       发表于 2024-12-28 20:45
+
+做这么久的季番？起码得半年番吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kisstv22  
+##### 1584#       发表于 2024-12-28 20:49
+
+不是全部做好了吗<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lickey  
+##### 1585#       发表于 2024-12-28 20:49
+
+季番还舍得直接割出来一部分当剧场版上映吗？这不是相当于在开播前直接损失了1/3的剧情吗…如果是季番那希望一集有30分钟
+
+
+*****
+
+####  PascalLefèvre  
+##### 1586#       发表于 2024-12-28 20:51
+
+怎么个确定法<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">只是说做完了而已吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  刺客ares  
+##### 1587#       发表于 2024-12-28 20:52
+
+ 本帖最后由 刺客ares 于 2024-12-28 20:53 编辑 
+
+总结：
+
+三个人一起试镜
+
+全篇完成，不会有工期问题
+
+会有考据党狂喜的内容
+
+女主有感情戏
+
+女二会有很帅的戏份（不是反差角色吗？
+
+男一是土屋弟听说要配高达就主动争取的角色
+
+女主cv研究了水魔
+
+这么一看鹤卷gg真要做水魔2？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PascalLefèvre  
+##### 1588#       发表于 2024-12-28 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67051603&amp;ptid=2209276" target="_blank">刺客ares 发表于 2024-12-28 20:52</a>
+总结：
+
+三个人一起试镜
+
+全篇完成，不会有工期问题</blockquote>
+女主有感情戏吗（？
+
+是说黑泽很喜欢某个角色吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

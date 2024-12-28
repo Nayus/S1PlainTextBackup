@@ -4900,3 +4900,22 @@ wsd的宣传就是鬼图？典型的要流量不要🐎
 海玲想找个归宿，但是海玲可能是意识到鸡团内部有问题所以保持距离
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">海玲看中期吧，她可能也是要火烧到自己身上又无法脱身后才会去挣扎做些什么。目前看是鸡团里最成熟的一个（初华如果不涉及祥子也挺成熟的）
 
+
+*****
+
+####  北条早苗  
+##### 4920#       发表于 2024-12-28 18:22
+
+初华确实该动一下了，前三集除了盐甜甜圈女士就是小祥全肯定bot
+大祥老师和睦头已经死局了，哈基喵突然变豪猫也不现实，总不能海铃突然团魂爆发救一把
+
+
+*****
+
+####  一心而用  
+##### 4921#       发表于 2024-12-28 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67049555&amp;ptid=2208921" target="_blank">Tienx 发表于 2024-12-28 14:37</a>
+喵梦居然大学了（悲</blockquote>
+隔壁之前有过猜测<img src="https://p.sda1.dev/21/b9784af6e9b66a1e20c308e10a091437/image.jpg" referrerpolicy="no-referrer">https://ngabbs.com/read.php?tid=42838623
+

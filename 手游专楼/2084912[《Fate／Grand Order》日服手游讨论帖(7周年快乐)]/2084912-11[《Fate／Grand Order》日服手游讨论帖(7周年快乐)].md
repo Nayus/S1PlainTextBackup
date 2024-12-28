@@ -4563,3 +4563,41 @@ EX又不能打暴击
 
 90++ 1宝学姐还能c!(5加成不换人) 怕不是你游最值的卡<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  angelooo  
+##### 15644#       发表于 2024-12-28 19:10
+
+<blockquote>都谷捻柏 发表于 2024-12-28 18:47
+我记得30有偿石那个福袋可以选兽尼禄来着？</blockquote>
+这是文字游戏，这个池子叫定命召唤，没说是福袋，妹想到吧
+
+（关键这个定命召唤比福袋用的有偿石头多一倍呢，你没给够钱还敢召唤兽？
+
+*****
+
+####  克苏鲁系青骑士  
+##### 15645#       发表于 2024-12-28 19:18
+
+因为命定还是自己选的，普通福袋是范围随机见，也就是考虑到要排除“选了福袋但不是为了兽尼却抽到了”这种不必要缘份的玩家吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真是没有意义的心理活动
+
+*****
+
+####  保罗赫伯特  
+##### 15646#       发表于 2024-12-28 19:58
+
+现在就两个beast才能这么说，等扩充到七八个了，看他又会怎么说吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 15647#       发表于 2024-12-28 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67050872&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-28 19:08</a>
+
+https://www.bilibili.com/video/BV12RChYUERt/
+
+90++ 1宝学姐还能单c!(5加成不换人) 怕不是你游最值的卡 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">超级咖喱人
+

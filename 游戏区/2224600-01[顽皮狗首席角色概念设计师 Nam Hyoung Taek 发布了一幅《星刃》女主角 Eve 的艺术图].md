@@ -786,3 +786,52 @@ bg3吧，虽然我个人不是很感冒，但是看反响大部分人还是比�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  SergeGlenn  
+##### 83#       发表于 2024-12-28 13:25
+
+感觉还不错，但画eve这种玩偶就太怪
+
+<img src="https://img.saraba1st.com/forum/202412/28/132356bnqn030zs43nwp87.jpg" referrerpolicy="no-referrer">
+
+<strong>1000006100.jpg</strong> (211.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-28 13:23 上传
+
+<img src="https://img.saraba1st.com/forum/202412/28/132402m77i9okaj64o9kkc.jpg" referrerpolicy="no-referrer">
+
+<strong>1000006099.jpg</strong> (477 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-28 13:24 上传
+
+<img src="https://img.saraba1st.com/forum/202412/28/132425j5lh5d1wi61czwch.jpg" referrerpolicy="no-referrer">
+
+<strong>1000006101.jpg</strong> (923.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-28 13:24 上传
+
+<img src="https://img.saraba1st.com/forum/202412/28/131900pwzqohzarcncycwh.jpg" referrerpolicy="no-referrer">
+
+<strong>1000006098.jpg</strong> (388.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-28 13:19 上传
+
+*****
+
+####  mimighost  
+##### 84#       发表于 2024-12-28 13:26
+
+这下两个韩国人会师失败了
+
+我看了一下这个画师的ig，只能这也不是这个画师的风格，所以。。。为啥画成这样
+

@@ -228,3 +228,11 @@
 
 相信跟往年一样动起来就会真香<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HANDAIYV  
+##### 174#       发表于 2024-12-28 18:42
+
+这人设是不是有点太素了，哪怕主题不是偶像也还是素啊，当成路人都毫无违和感
+

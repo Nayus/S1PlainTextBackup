@@ -998,3 +998,20 @@ GQX就......现在处于噱头没爆就被内鬼透了，痞子劝退人设劝�
 
 Gundam Channel要开始了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  0aleph37  
+##### 1566#       发表于 2024-12-28 18:44
+
+到gq6ux了
+
+*****
+
+####  0aleph37  
+##### 1567#       发表于 2024-12-28 18:48
+
+就放了个PV？
+
+哦还是回顾一年环节
+

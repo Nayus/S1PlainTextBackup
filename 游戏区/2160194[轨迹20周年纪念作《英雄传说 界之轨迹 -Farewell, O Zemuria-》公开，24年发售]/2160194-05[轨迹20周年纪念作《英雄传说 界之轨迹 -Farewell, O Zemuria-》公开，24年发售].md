@@ -2433,3 +2433,33 @@ YSX重新上架就是298加上首发10%优惠</blockquote>
 毕竟闪3基本上把东西都摊出来了，下一作你要打爆啥东西，用啥去打都能猜到大概</blockquote>
 没啥boss，都是为了末日，只是方法不同。除了教会这个摆烂派。
 
+
+*****
+
+####  TheOccuria  
+##### 7350#       发表于 2024-12-29 00:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">刚通了
+
+这咚的比闪3还过分吧，甚至可以说界2到时候怎么写你都想象不出来，或者说，更像是闪2结束后告诉你闪4要打谁，然后咚
+
+至于主角团行为意义上..怎么说呢，毕竟是玩游戏，跟随着作者的思路一步一步揭开谜团也是很合理的
+
+只不过另外两条线给了更多信息，范恩忙前忙后不如女仆的身世有用
+
+终章最后的战斗是挺莫名其妙的..你们不是来找人的吗，人不见了怎么边打边聊起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  盒饭鬼魅清蒸鱼  
+##### 7351#       发表于 2024-12-29 00:13
+
+ 本帖最后由 盒饭鬼魅清蒸鱼 于 2024-12-29 00:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67052725&amp;ptid=2160194" target="_blank">TheOccuria 发表于 2024-12-29 00:09</a>
+
+刚通了
+
+这咚的比闪3还过分吧，甚至可以说界2到时候怎么写你都想象不出来，或者说，更像是闪2结束后告诉你 ...</blockquote>
+轨迹的打架已经突出一个没有必要了，就是聊两句顺便给玩家打一架装装样子，一个人都打不死的架
+

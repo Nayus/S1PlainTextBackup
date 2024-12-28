@@ -1769,7 +1769,7 @@
     "newtitle": "[【CSGO】赛事讨论专楼-上海major]",
     "lastedit": 1735146495,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2050172": {
@@ -8631,10 +8631,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 117931,
+    "totalreply": 117932,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1735404618,
+    "lastedit": 1735405807,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -11673,10 +11673,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 10790,
+    "totalreply": 10803,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1735405576,
+    "lastedit": 1735406173,
     "category": "漫区",
     "active": true,
     "update": false
@@ -18090,10 +18090,10 @@
     "update": false
   },
   "2233366": {
-    "totalreply": 69,
+    "totalreply": 71,
     "title": "[牛肉便宜这事上你是支持现在的便宜价格还是支持涨价呢？]",
     "newtitle": "[牛肉便宜这事上你是支持现在的便宜价格还是支持涨价呢？]",
-    "lastedit": 1735402214,
+    "lastedit": 1735406173,
     "category": "外野",
     "active": true,
     "update": false
@@ -18135,19 +18135,19 @@
     "update": false
   },
   "2233390": {
-    "totalreply": 44,
+    "totalreply": 45,
     "title": "[西方世界文科倒闭潮，来了]",
     "newtitle": "[西方世界文科倒闭潮，来了]",
-    "lastedit": 1735405342,
+    "lastedit": 1735405935,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2190591": {
-    "totalreply": 160,
+    "totalreply": 165,
     "title": "[魔法少女奈叶 20周年纪念企划始动]",
     "newtitle": "[魔法少女奈叶 20周年纪念企划始动]",
-    "lastedit": 1735405576,
+    "lastedit": 1735406173,
     "category": "漫区",
     "active": true,
     "update": false
@@ -18166,6 +18166,15 @@
     "title": "[『蓝色监狱 ／ ブルーロック』动画化 TV二期&amp;剧场动画制作决定]",
     "newtitle": "[『蓝色监狱 ／ ブルーロック』动画化 TV二期&amp;剧场动画制作决定]",
     "lastedit": 1735405348,
+    "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2172665": {
+    "totalreply": 82,
+    "title": "[【转】松冈对过去自己未说出口而后悔之事。]",
+    "newtitle": "[【转】松冈对过去自己未说出口而后悔之事。]",
+    "lastedit": 1735406170,
     "category": "漫区",
     "active": true,
     "update": false

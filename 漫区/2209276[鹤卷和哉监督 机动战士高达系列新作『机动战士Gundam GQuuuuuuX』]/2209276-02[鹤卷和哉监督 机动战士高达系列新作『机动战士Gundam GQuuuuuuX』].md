@@ -1337,3 +1337,18 @@ Gundam Channel要开始了<img src="https://static.saraba1st.com/image/smiley/fa
 就是补补系列前作而已，市之濑还去补了0079呢，最后有啥关系吗</blockquote>
 不是致敬了骡鸭击剑桥段吗（
 
+
+*****
+
+####  猪突猛进R  
+##### 1601#       发表于 2024-12-28 21:29
+
+所以说还不是学习了水魔，之前还有人嘴硬说和水魔完全无关呢。
+
+*****
+
+####  雨翼free  
+##### 1602#       发表于 2024-12-28 21:31
+
+不就是为了配音补了系列最新作。是怎么做到滑坡到新作就是水魔了，水魔带来的ptsd这么深吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

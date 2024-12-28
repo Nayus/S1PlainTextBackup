@@ -5162,3 +5162,24 @@ pv里睦破坏了人偶 用书砸镜子 似乎在反抗莫提斯 </blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以对soyo的期望是，睦祥线soyo别来上强度就不错了，老老实实在一边呆着去
 
+
+*****
+
+####  金钱与民主  
+##### 4945#       发表于 2024-12-28 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67051655&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-28 20:59</a>
+
+祥子已经意识到了，至少睦的问题祥子意识到并且自责，但她处理其他问题已经焦头烂额管不过来了 ...</blockquote>
+管不过来不就是没把问题太放在心上的体现，再说都幼驯染了，对面都能看出“你要坏掉了”，祥子早点发现对方的问题应该能阻止情况恶化的，总感觉这里是要通过剧情让祥子（以及睦）结结实实成长一番。
+
+*****
+
+####  新HGCG  
+##### 4946#       发表于 2024-12-28 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67051688&amp;ptid=2208921" target="_blank">Nungesser 发表于 2024-12-28 21:04</a>
+
+看剧透里Soyo怎么还在抓着睦说话……</blockquote>
+压坏睦的稻草里，也有素世一份
+

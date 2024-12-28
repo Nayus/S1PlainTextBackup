@@ -1308,3 +1308,32 @@ Gundam Channel要开始了<img src="https://static.saraba1st.com/image/smiley/fa
 
 就是补补系列前作而已，市之濑还去补了0079呢，最后有啥关系吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leleq  
+##### 1598#       发表于 2024-12-28 21:15
+
+会有考据党狂喜的内容=老东西就当彩蛋吧正片没你的戏。
+一个想法不一定对<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  0aleph37  
+##### 1599#       发表于 2024-12-28 21:16
+
+切割？不如赚两份钱
+
+
+*****
+
+####  刺客ares  
+##### 1600#       发表于 2024-12-28 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67051751&amp;ptid=2209276" target="_blank">oi99o 发表于 2024-12-28 21:14</a>
+
+就是补补系列前作而已，市之濑还去补了0079呢，最后有啥关系吗</blockquote>
+不是致敬了骡鸭击剑桥段吗（
+

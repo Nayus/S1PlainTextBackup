@@ -5357,3 +5357,28 @@ layer设定是多高？喵梦踮着脚好像还没layer高。要是layer遇到�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.95-alpha
 
+
+*****
+
+####  NODY  
+##### 4964#       发表于 2024-12-28 23:09
+
+<blockquote>novalli 发表于 2024-12-28 23:03
+layer设定是多高？喵梦踮着脚好像还没layer高。要是layer遇到祥子和睦，那身高差
+
+另外喵梦其实很奋斗，做的 ...</blockquote>
+全邦邦最高，172
+
+*****
+
+####  akiomn  
+##### 4965#       发表于 2024-12-28 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67052275&amp;ptid=2208921" target="_blank">新HGCG 发表于 2024-12-28 22:47</a>
+会不会这样
+
+鸡团事业处于低谷，祥子眼看就要放弃的时候
+
+只有喵梦为了出名还在坚持</blockquote>
+不会，喵梦流量至上的理念是必然要被修正，祥子这样搞就是认同喵梦的理念，放弃自己音乐理念了
+

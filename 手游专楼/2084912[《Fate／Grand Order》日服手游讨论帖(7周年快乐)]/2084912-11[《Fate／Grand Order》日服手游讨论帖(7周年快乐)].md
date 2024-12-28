@@ -4475,3 +4475,45 @@ EX又不能打暴击
 
 提醒一下，抽完无限池之后还可以用舞鞋道具在旁边商店换QP，我前几天抽完差点忘了，刚才点进去一看还有二三百...
 
+
+*****
+
+####  jackyhuang  
+##### 15636#       发表于 2024-12-28 15:15
+
+对于10周年和之后
+蘑菇：我觉得持续了10年的内容，不能这样简单地就结束。对那些将其视为青春象征的人来说尤其是这样，因为他们的人生还将继续下去。
+喜欢高达的人之所以能一直喜欢高达，就是因为有人在持续努力创造着高达。
+对于注定衰老的人类来说，这是件非常难过，但也是非常有意义的事，因为这就像是在创造永恒一样。我会把那些伟大的前辈们的努力当做激励，朝着10周年的方向加油。
+
+谁来当新法父<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+*****
+
+####  angelooo  
+##### 15637#       发表于 2024-12-28 15:26
+
+<blockquote>jackyhuang 发表于 2024-12-28 15:15
+对于10周年和之后
+
+蘑菇：我觉得持续了10年的内容，不能这样简单地就结束。对那些将其视为青春象征的人来说 ...</blockquote>
+隔壁某些菌孝子在这条下面的表演太精彩了233
+
+*****
+
+####  岸浪白野  
+##### 15638#       发表于 2024-12-28 16:03
+
+兽阶不进福袋只是因为蘑菇觉得不吉利<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+和叶良树的觉得送5星没缘分真是一家人了
+<img src="https://p.sda1.dev/21/47b949d5b33fd96cb044fa1b52100e24/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗赫伯特  
+##### 15639#       发表于 2024-12-28 16:58
+
+该重启fate宇宙了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

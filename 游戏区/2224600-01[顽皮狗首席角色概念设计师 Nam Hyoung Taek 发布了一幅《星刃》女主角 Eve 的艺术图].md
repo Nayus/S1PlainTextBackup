@@ -867,3 +867,14 @@ bg3吧，虽然我个人不是很感冒，但是看反响大部分人还是比�
 
 推特上这图是不是没了，想去骂两句没找到
 
+
+*****
+
+####  tobelovedwow  
+##### 89#       发表于 2024-12-28 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67033028&amp;ptid=2224600" target="_blank">闪光的小黑 发表于 2024-12-27 11:37</a>
+
+发几张这位画师的其他作品</blockquote>
+能一眼看出很喜欢黑鬼呢<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+

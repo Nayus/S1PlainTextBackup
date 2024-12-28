@@ -1474,3 +1474,11 @@ Gundam Channel要开始了<img src="https://static.saraba1st.com/image/smiley/fa
 
 这发言好歹比看哭了让人安心
 
+
+*****
+
+####  kisstv22  
+##### 1616#       发表于 2024-12-28 22:58
+
+鹤卷新作能拍出飞跃巅峰2的水平就很好了，但时隔多年的高达能不能有当年功力真的难说
+

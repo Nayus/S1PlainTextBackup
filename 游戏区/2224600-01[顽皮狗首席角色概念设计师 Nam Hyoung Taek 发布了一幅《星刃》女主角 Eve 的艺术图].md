@@ -749,3 +749,13 @@ jo厨狠狠享受了
 
 所以有没有把dei画美的……想了想星鸣特工那群东西，有点难度的
 
+
+*****
+
+####  otakun  
+##### 80#       发表于 2024-12-28 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67036882&amp;ptid=2224600" target="_blank">一头白熊 发表于 2024-12-27 19:55</a>
+你说他DEI 这身材 熊和屁股都不太正确，脸怎么能画成这个样子？为了贴合画风？ ...</blockquote>
+身材明显不符合DEI正确，那这丑脸就等于代表了DEI标准了啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

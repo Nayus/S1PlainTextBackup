@@ -88,3 +88,36 @@
 
 2024-12-28 16:58 上传
 
+
+*****
+
+####  CURE_HGCG  
+##### 158#       发表于 2024-12-28 17:08
+
+<img src="https://p.sda1.dev/21/348cbe4fb259ae29324e109cd366673d/IMG_CMP_87054536.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/5a6d96c6b76c9d67a4ed4eea97e63fd1/1555dde322c68e1.jpg" referrerpolicy="no-referrer">
+
+— from Sony 901SO, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  待宵  
+##### 159#       发表于 2024-12-28 17:09
+
+我懂了，东映这波是怀旧风，上世纪的人设
+
+*****
+
+####  Cloudslin  
+##### 160#       发表于 2024-12-28 17:11
+
+山冈的感觉，但好多年都没猜准过了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jaewoongh_  
+##### 161#       发表于 2024-12-28 17:15
+
+好素的人设，如果staff表再练新人就真没必要再看了吧
+

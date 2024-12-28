@@ -4562,3 +4562,23 @@ https://www.bilibili.com/opus/1015837936087728133</blockquote>
 
 这种脑门子上写着带点偶像味道的商业乐队（就不提现实ave团就是偶像女团了）这么搞肯定会被人骂退钱，你要是五个27岁俱乐部老姐们，不莫名其妙砸个吉他喷个火那是太纯良了。
 
+
+*****
+
+####  66367749  
+##### 4885#       发表于 2024-12-28 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67048924&amp;ptid=2208921" target="_blank">LeonsCat 发表于 2024-12-28 12:22</a>
+看你乐队定位了。
+
+这种脑门子上写着带点偶像味道的商业乐队（就不提现实ave团就是偶像女团了）这么搞肯定 ...</blockquote>
+呃，你是在说即兴演出和现场搞事的区别吗？这俩很好区分的吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ml1642879  
+##### 4886#       发表于 2024-12-28 12:37
+
+又想起flipflap那一集cast表一整页MAO了
+

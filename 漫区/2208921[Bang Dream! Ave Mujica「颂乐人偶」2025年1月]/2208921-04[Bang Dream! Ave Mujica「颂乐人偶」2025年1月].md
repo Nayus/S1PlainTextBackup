@@ -5390,3 +5390,14 @@ layer设定是多高？喵梦踮着脚好像还没layer高。要是layer遇到�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">我草，木子米真是好惨啊！就因为她心肠最好，最想着别人，结果就被所有她想帮的人针对上压力，没一个人站她身边替她想，愣生生被人逼疯了。不仅显得祥子除了自己的事啥都没想不太像人，还连带着第一季就不太像人的soyo女士更不像个人了。
 
+
+*****
+
+####  六道明  
+##### 4967#       发表于 2024-12-28 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67052479&amp;ptid=2208921" target="_blank">厄神之息 发表于 2024-12-28 23:17</a>
+
+我草，木子米真是好惨啊！就因为她心肠最好，最想着别人，结果就被所有她想帮的人针对上压力，没一个人站她 ...</blockquote>
+算上go13集，感觉初华反而是关注睦次数最多了的，立希也和睦有共情点~
+

@@ -1528,3 +1528,11 @@ Gundam Channel要开始了<img src="https://static.saraba1st.com/image/smiley/fa
 
 最后说看水魔觉得很棒那块语气有点商业互吹啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉可以先不用定为水魔2？
 
+
+*****
+
+####  ティグル  
+##### 1618#       发表于 2024-12-28 23:29
+
+别的不好说，只要不是13集有一半在打黑拳那就比水魔强
+

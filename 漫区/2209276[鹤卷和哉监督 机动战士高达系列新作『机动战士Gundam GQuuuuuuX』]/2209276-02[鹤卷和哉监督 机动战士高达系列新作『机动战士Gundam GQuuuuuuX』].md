@@ -1482,3 +1482,49 @@ Gundam Channel要开始了<img src="https://static.saraba1st.com/image/smiley/fa
 
 鹤卷新作能拍出飞跃巅峰2的水平就很好了，但时隔多年的高达能不能有当年功力真的难说
 
+
+*****
+
+####  刺客ares  
+##### 1617#       发表于 2024-12-28 23:21
+
+ 本帖最后由 刺客ares 于 2024-12-28 23:24 编辑 
+
+三脚猫日语刷了一遍采访
+
+开篇强调“主要角色”三人
+
+主人公天手·让叶和修司·伊藤的名字读法也刻意提了一嘴
+
+妮娅安就是妮娅安<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">“可以简化成喵一下就好了”
+
+黑泽“这次看上去会是个很特别的双打团队”
+
+土屋弟是从前一个事务所收到的信息，“高达你绝对要去试镜啊”，特别严肃的这么说了
+
+修司是个挺吃演技的角色（？）
+
+黑泽：
+
+<img src="https://img.saraba1st.com/forum/202412/28/230815zxte8azqemo2bu80.png" referrerpolicy="no-referrer">
+
+<strong>捕获.PNG</strong> (67.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-28 23:08 上传
+
+配音现场气氛热烈
+
+黑泽提到试映会看完之后喜欢上了某角色，石川也觉得这个某角色很酷
+
+土屋弟在试映会之后对鹤卷说真的很有趣，发表迷弟发言
+
+石川：成片的图像与音效令人印象深刻，是充满梦想的作品
+
+土屋弟：我相信粉丝对高达的理解是比我深的
+
+黑泽：剧场版信息量很大
+
+最后说看水魔觉得很棒那块语气有点商业互吹啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉可以先不用定为水魔2？
+

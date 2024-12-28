@@ -698,3 +698,24 @@ ACE 3 →黑魂1 remastered →黑魂3 →血源 → 黑魂2 → 只狼→恶魂
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.38)
 
+
+*****
+
+####  奶子  
+##### 62#       发表于 2024-12-28 15:55
+
+暖洋洋的猫猫村→只狼<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  红魔馆的糖  
+##### 63#       发表于 2024-12-28 15:57
+
+这个之前好像哪里统计过，
+
+绝大部分新玩家都是魂3-开始补魂2魂1顺序可变-然后顺着发售顺序玩
+
+魂3也确实是最容易入坑也是最能带动别人补前作的，
+

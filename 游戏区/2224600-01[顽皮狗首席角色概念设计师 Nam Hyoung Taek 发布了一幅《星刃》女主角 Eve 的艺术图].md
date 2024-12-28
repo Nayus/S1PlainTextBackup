@@ -759,3 +759,18 @@ jo厨狠狠享受了
 你说他DEI 这身材 熊和屁股都不太正确，脸怎么能画成这个样子？为了贴合画风？ ...</blockquote>
 身材明显不符合DEI正确，那这丑脸就等于代表了DEI标准了啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nukacolamania  
+##### 81#       发表于 2024-12-28 11:30
+
+<blockquote>引用第27楼liva于2024-12-27 11:03发表的  :
+
+本帖最后由 liva 于 2024-12-27 11:12 编辑 评分记录：曼彻斯特联+1等的就是这......</blockquote>
+@liva
+
+这里最应景的反而是武状元自己画画的那一幕
+
+----发送自 [motorola moto g stylus 5G (2022),Android 13](http://stage1.5j4m.com/?1.37)
+

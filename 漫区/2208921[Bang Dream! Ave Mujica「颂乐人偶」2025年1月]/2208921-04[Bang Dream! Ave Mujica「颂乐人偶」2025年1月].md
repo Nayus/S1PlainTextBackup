@@ -4335,3 +4335,48 @@ mujica最大的问题就是从成立开始就一直在全速前进
 
 鸡团现在就缺一个像偷摸零一样能向全员透露心声的人了，目前还看不出谁能当这个角色
 
+
+*****
+
+####  山ノ内花音  
+##### 4864#       发表于 2024-12-28 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67048579&amp;ptid=2208921" target="_blank">北条早苗 发表于 2024-12-28 11:26</a>
+🐘老师对初华和睦头以外的队友心之壁也太重了，采访这种事情有个职业经纪人海铃都不用，让睦头上也是昏头了 ...</blockquote>
+是媒体主动想让明星子女上杂志接受访谈啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+海铃虽然美貌 但这种工作只能初华和睦来干
+
+*****
+
+####  庸necro  
+##### 4865#       发表于 2024-12-28 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67048579&amp;ptid=2208921" target="_blank">北条早苗 发表于 2024-12-28 11:26</a>
+🐘老师对初华和睦头以外的队友心之壁也太重了，采访这种事情有个职业经纪人海铃都不用，让睦头上也是昏头了 ...</blockquote>
+海铃估计也很忙，可能正是因为海铃的排期只有她自己搞得明白才会让她来排<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">说不定问题还是出在混蛋老爹上，要是不用打工（应该还在打工吧），祥子自己就顶上了，话题度也够
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  六道明  
+##### 4866#       发表于 2024-12-28 11:35
+
+<img src="https://img.saraba1st.com/forum/202412/28/113502lhhz2ssmehqeoovs.png" referrerpolicy="no-referrer">
+
+<strong>1735356832281.png</strong> (167.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-28 11:35 上传
+
+健康的笑容
+
+*****
+
+####  ra2163  
+##### 4867#       发表于 2024-12-28 11:35
+
+喵梦掏心窝了，能火就行，祥子违心的话说太多了，还有实话么
+

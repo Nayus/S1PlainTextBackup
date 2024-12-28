@@ -2374,3 +2374,16 @@ YSX重新上架就是298加上首发10%优惠</blockquote>
 这作游戏性我很满意。我玩轨迹还挺排斥放魔法的，就喜欢 ...</blockquote>
 其实三条线都是木大
 
+
+*****
+
+####  秘银mithril  
+##### 7345#       发表于 2024-12-28 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67048401&amp;ptid=2160194" target="_blank">无动于衷 发表于 2024-12-28 10:56</a>
+其实三条线都是木大</blockquote>
+另外两条线目的性还是挺明确的，各自有阶段性成果（拿到线索找到人之类的）
+万事屋线无头苍蝇，哪里有残渣就去哪里，然后也阻止不了什么，被耍的团团转。最后来个一转目标，依然是白忙活
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

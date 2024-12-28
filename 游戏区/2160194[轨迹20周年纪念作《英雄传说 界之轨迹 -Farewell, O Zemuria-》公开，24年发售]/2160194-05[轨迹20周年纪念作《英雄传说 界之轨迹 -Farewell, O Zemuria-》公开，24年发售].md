@@ -2405,3 +2405,18 @@ YSX重新上架就是298加上首发10%优惠</blockquote>
 我觉得界轨主角团啥都不干最后结局也一样是学妹升天世界重置，剧情只有结局有推进过程全部砍掉都没影响 ...</blockquote>
 这三条线其实全部砍掉都对剧情走向没有一丝影响<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  plok201  
+##### 7348#       发表于 2024-12-28 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67035934&amp;ptid=2160194" target="_blank">TheOccuria 发表于 2024-12-27 17:11</a>
+
+我这几天正在把烂尾的界1给通掉，问下最后咚了吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">个人来说，界1比闪3更咚
+
+毕竟闪3基本上把东西都摊出来了，下一作你要打爆啥东西，用啥去打都能猜到大概
+
+这界1你都不好猜他下作那个BOSS团的构成
+

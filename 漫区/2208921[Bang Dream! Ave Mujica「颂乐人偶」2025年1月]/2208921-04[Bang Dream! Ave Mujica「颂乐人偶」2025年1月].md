@@ -5046,3 +5046,11 @@ pv里睦破坏了人偶 用书砸镜子 似乎在反抗莫提斯
 莫提斯已经出现了
 名为多洛莉丝的怪物还会远吗<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  相坂君  
+##### 4933#       发表于 2024-12-28 19:50
+
+都承担队友的一生了，喵搞事自然是好好接住呀，口嗨是需要付出代价的呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

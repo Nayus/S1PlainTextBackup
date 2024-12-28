@@ -164,3 +164,15 @@ Twitch录像又被审核锁了，这回直接35分钟不给过，俺寻思苔姨
 
 不换肩就炸了？
 
+
+*****
+
+####  shmilyhua  
+##### 17778#       发表于 2024-12-28 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67050741&amp;ptid=2018830" target="_blank">TiHaru 发表于 2024-12-28 18:46</a>
+不换肩就炸了？</blockquote>
+尽量别在楼里谈这个吧。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+

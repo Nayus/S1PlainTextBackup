@@ -1072,3 +1072,21 @@ Gundam Channel要开始了<img src="https://static.saraba1st.com/image/smiley/fa
 
 好吧，祈祷gq6ux能在放送期间销量/话题度比得上水魔
 
+
+*****
+
+####  刺客ares  
+##### 1575#       发表于 2024-12-28 20:06
+
+话题度比肩没啥问题吧，整点阴谋论+轻百轻bg两头恰+uc情怀，流量不就来了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+销量我不好说，先看二十天后的票房表现吧（
+
+
+*****
+
+####  zpl123  
+##### 1576#       发表于 2024-12-28 20:13
+
+水魔这个是外传漫画?
+

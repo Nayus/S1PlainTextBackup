@@ -2420,3 +2420,16 @@ YSX重新上架就是298加上首发10%优惠</blockquote>
 
 这界1你都不好猜他下作那个BOSS团的构成
 
+
+*****
+
+####  卢迪克  
+##### 7349#       发表于 2024-12-28 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67051105&amp;ptid=2160194" target="_blank">plok201 发表于 2024-12-28 19:48</a>
+
+个人来说，界1比闪3更咚
+
+毕竟闪3基本上把东西都摊出来了，下一作你要打爆啥东西，用啥去打都能猜到大概</blockquote>
+没啥boss，都是为了末日，只是方法不同。除了教会这个摆烂派。
+

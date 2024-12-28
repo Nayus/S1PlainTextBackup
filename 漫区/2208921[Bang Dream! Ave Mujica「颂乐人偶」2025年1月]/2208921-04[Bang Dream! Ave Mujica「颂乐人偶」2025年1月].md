@@ -3758,3 +3758,58 @@ Mujica解散或者会产生巨大变动相关的话题就是会直接刺到祥�
 如果喵梦不提前引爆的话，祥子是有足够精力先把睦这颗雷处理掉，甚至哪怕第一集摘面事件后，喵梦不作对老实听话，祥子都能优先解决睦的问题
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是喵梦摘面＋处处和祥子作对的结果是最糟糕的，把睦引爆了，祥子也在爆的边缘
 
+
+*****
+
+####  AvengerRideon  
+##### 4810#       发表于 2024-12-28 09:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67047963&amp;ptid=2208921" target="_blank">聊nsy专用号 发表于 2024-12-28 09:03</a>
+虽然昨天剧院观感无敌但是冷静下来想想前三集的剧本还是有很多问题的，mygo里能一句点醒高松灯的初华和瞬间 ...</blockquote>
+初想确实是这样但是现在觉得大概uika和umr的小心思都只留给了自己的心上人吧，对其他人哪怕注意到了异常也是没功夫来对应处置。
+
+*****
+
+####  达达葱2  
+##### 4811#       发表于 2024-12-28 09:30
+
+素世知道开盒后后续会有更多牵扯吗？
+
+还有野猫怎样了
+
+
+*****
+
+####  聊nsy专用号  
+##### 4812#       发表于 2024-12-28 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67047966&amp;ptid=2208921" target="_blank">御幸一也 发表于 2024-12-28 09:13</a>
+是哦，電視台和雜誌指名要求睦上宣傳，祥子也知道睦不擅長採訪，反正avemujica也不重要，那就拒絕吧！
+
+通通 ...</blockquote>
+大祥的mujica不是靠音乐胜负吗，咋的不接受个采访会解散吗，这么事业那怎么不同意让木头继续演装死
+
+*****
+
+####  AvengerRideon  
+##### 4813#       发表于 2024-12-28 09:34
+
+猫感觉后续动画剧情都会边缘化了吧…立希看新剧情貌似还挺了解睦的，但是遇事还是“只要有灯的话就无所谓”这点还是没成长。
+
+*****
+
+####  Aendst  
+##### 4814#       发表于 2024-12-28 09:35
+
+乐奈几乎没出场，或者即使出场了也没什么有信息量的地方
+
+不过剧场版访谈里青木提到过乐奈和mujica成员会有互动，可以期待一下后续（可能是花女关系？）
+
+爽世对mujica的态度明显是负面的，不知道之后会怎么样
+
+灯倒是看起来没什么反应
+
+立希的反应是偏向友好正面的
+
+某种意义上来说对mujica反应最大的可能是爱音<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

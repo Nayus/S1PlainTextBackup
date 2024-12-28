@@ -2395,3 +2395,13 @@ YSX重新上架就是298加上首发10%优惠</blockquote>
 
 我觉得界轨主角团啥都不干最后结局也一样是学妹升天世界重置，剧情只有结局有推进过程全部砍掉都没影响<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  红魔馆的糖  
+##### 7347#       发表于 2024-12-28 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67050849&amp;ptid=2160194" target="_blank">妄想中毒 发表于 2024-12-28 19:05</a>
+我觉得界轨主角团啥都不干最后结局也一样是学妹升天世界重置，剧情只有结局有推进过程全部砍掉都没影响 ...</blockquote>
+这三条线其实全部砍掉都对剧情走向没有一丝影响<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

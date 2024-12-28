@@ -1575,3 +1575,20 @@ Gundam Channel要开始了<img src="https://static.saraba1st.com/image/smiley/fa
 
 修司需要演技是暗示之后会豹变？现在这个看起来很温和的模样该不会是为了算计小姑娘演的吧<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  虛無迴廊  
+##### 1624#       发表于 2024-12-29 02:16
+
+修司需要演技是暗示之后会豹变？现在这个看起来很温和的模样该不会是为了算计小姑娘演的吧<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  0aleph37  
+##### 1625#       发表于 2024-12-29 06:50
+
+假药一个夏亚将自己的意识转移到了修司总顶在头上的四足机器里，必要时候会接管修司躯体
+
+所以修司需要演技
+

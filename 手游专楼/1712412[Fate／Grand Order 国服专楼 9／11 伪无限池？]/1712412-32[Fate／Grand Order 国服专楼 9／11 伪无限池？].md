@@ -317,3 +317,14 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">刚才一看怎么剩两2天了……
 
+
+*****
+
+####  ナルバレック  
+##### 46882#       发表于 2024-12-28 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67049693&amp;ptid=1712412" target="_blank">6030sylar 发表于 2024-12-28 15:08</a>
+
+刚才一看怎么剩两2天了……</blockquote>
+本来就是只有六天的最短活动，持续到今年月球春晚结尾，圣诞公主是FGO最短新卡池，泳装学姐是FGO最长新卡池，刚好都在今年
+

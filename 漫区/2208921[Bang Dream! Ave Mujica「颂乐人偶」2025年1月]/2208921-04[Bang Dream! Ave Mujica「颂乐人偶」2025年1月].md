@@ -4747,3 +4747,26 @@ https://www.bilibili.com/opus/1015837936087728133</blockquote>
  ...</blockquote>
 甜甜圈这个特写画面实在是难绷，对mana太不友好了
 
+
+*****
+
+####  ggxx001  
+##### 4904#       发表于 2024-12-28 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67048880&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-28 12:14</a>
+最恐怖的是祥子说的还是正论，灯确实需要练习和独当一面，睦也确实需要把话好好说出来表达需求
+
+问题是祥子 ...</blockquote>
+但车站吵架的时候就完全是照抄台词 导致吵不过喵梦
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  厨厨  
+##### 4905#       发表于 2024-12-28 15:21
+
+<img src="https://p.sda1.dev/21/80c79d0f2ca292cff1cebfca211fda3b/IMG_0879.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/2f6305d1f016e960eb71ea7410f75739/IMG_0880.jpeg" referrerpolicy="no-referrer">
+

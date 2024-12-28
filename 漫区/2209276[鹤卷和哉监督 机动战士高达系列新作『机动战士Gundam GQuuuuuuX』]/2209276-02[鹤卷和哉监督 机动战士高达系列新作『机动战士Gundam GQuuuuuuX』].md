@@ -1466,3 +1466,11 @@ Gundam Channel要开始了<img src="https://static.saraba1st.com/image/smiley/fa
 
 “真不愧是鹤卷导演，真不愧是khara”
 
+
+*****
+
+####  0aleph37  
+##### 1615#       发表于 2024-12-28 22:50
+
+这发言好歹比看哭了让人安心
+

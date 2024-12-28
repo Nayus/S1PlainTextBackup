@@ -4444,3 +4444,34 @@ EX又不能打暴击
 
 明年一定会把卫星都落地的吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blue321  
+##### 15632#       发表于 2024-12-27 21:17
+
+怎么说呢，上线一看邮箱一堆棋子辉石那感觉
+
+真挺微妙的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 15633#       发表于 2024-12-27 21:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">不如发我一堆石头让我抽卡 给那么多材料有个屁用 根本没角色用
+
+*****
+
+####  保罗赫伯特  
+##### 15634#       发表于 2024-12-27 22:35
+
+明年一定会把卫星都落地的吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 15635#       发表于 2024-12-28 10:34
+
+提醒一下，抽完无限池之后还可以用舞鞋道具在旁边商店换QP，我前几天抽完差点忘了，刚才点进去一看还有二三百...
+

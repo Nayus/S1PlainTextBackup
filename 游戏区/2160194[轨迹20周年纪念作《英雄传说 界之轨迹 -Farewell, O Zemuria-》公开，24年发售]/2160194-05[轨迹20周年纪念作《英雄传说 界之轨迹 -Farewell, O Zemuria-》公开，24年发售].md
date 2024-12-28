@@ -2331,3 +2331,15 @@ YSX重新上架就是298加上首发10%优惠</blockquote>
 
 但对于4SPG来说……真的挺灾难的
 
+
+*****
+
+####  红魔馆的糖  
+##### 7341#       发表于 2024-12-28 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67048140&amp;ptid=2160194" target="_blank">秘银mithril 发表于 2024-12-28 10:02</a>
+昨晚终于把尾声打完通关了，居然花了一百多个小时
+
+这作游戏性我很满意。我玩轨迹还挺排斥放魔法的，就喜欢 ...</blockquote>
+这些缺点基本上都是制作时间问题，在这方面上黎这个新系列也是走上了闪的路子<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+

@@ -4780,3 +4780,44 @@ https://www.bilibili.com/opus/1015837936087728133</blockquote>
 
 —— 来自 vivo V2301A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  KLHgg  
+##### 4907#       发表于 2024-12-28 16:47
+
+提前一个月剧透的情况下还专门搞个倒计时，你无敌了wsd<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过图还挺可爱的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qjw114514  
+##### 4908#       发表于 2024-12-28 16:48
+
+为什么还要等五天<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+*****
+
+####  影伴光生  
+##### 4909#       发表于 2024-12-28 16:49
+
+假设真的有系列粉丝不看剧透，然后被官号发的黑睦头糊脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2302A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  rinku  
+##### 4910#       发表于 2024-12-28 16:55
+
+op就有表情崩坏了，和剧透没关系
+
+*****
+
+####  NODY  
+##### 4911#       发表于 2024-12-28 16:55
+
+就算不看剧透官号也放过OP了啊，该知道的早知道了
+

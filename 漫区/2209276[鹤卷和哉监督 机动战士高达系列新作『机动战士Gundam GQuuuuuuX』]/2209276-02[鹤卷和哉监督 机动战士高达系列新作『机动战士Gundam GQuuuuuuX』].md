@@ -1407,3 +1407,11 @@ Gundam Channel要开始了<img src="https://static.saraba1st.com/image/smiley/fa
 声优只要有平均值的水准那就是动画制作中最无关紧要的部分
 除非遇到冈妈那种为了喜欢的声优改剧情的神经病staff
 
+
+*****
+
+####  Gysumitka  
+##### 1608#       发表于 2024-12-28 22:12
+
+做那么久不至于是季番吧<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
+

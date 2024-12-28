@@ -4517,3 +4517,49 @@ EX又不能打暴击
 
 该重启fate宇宙了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  都谷捻柏  
+##### 15640#       发表于 2024-12-28 18:47
+
+我记得30有偿石那个福袋可以选兽尼禄来着？
+
+
+*****
+
+####  希望之花  
+##### 15641#       发表于 2024-12-28 18:56
+
+30有偿石那是御主手点的性质不一样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eilot  
+##### 15642#       发表于 2024-12-28 19:05
+
+90++
+
+婁希(寶3、活動禮裝NP50)+RBA+仇小黑+CBA+朋友奧伯隆+學妹
+
+用換人衣服
+
+1回合、婁希用技1、RBA全用、仇小黑全用，寶具，回合後仇小黑自己換人入CBA
+
+2回合、婁希用技3，CBA用技1幫手加攻、寶貝
+
+3回合，CBA用技2/3，婁希用技2(其實沒所謂)，換入奧蟲再全技能，再用衣服的技1加攻，寶具
+
+朋友找奧蟲還是比較容易
+
+之前沒用小黑，還差了30多萬，要婁希再打多下，換了小黑後直接解決
+
+*****
+
+####  alucardcz  
+##### 15643#       发表于 2024-12-28 19:08
+
+[https://www.bilibili.com/video/BV12RChYUERt/](https://www.bilibili.com/video/BV12RChYUERt/)
+
+90++ 1宝学姐还能c!(5加成不换人) 怕不是你游最值的卡<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+

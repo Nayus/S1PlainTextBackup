@@ -988,3 +988,13 @@ GQX就......现在处于噱头没爆就被内鬼透了，痞子劝退人设劝�
 
 就没有更好的方式了吗？明明有很多篇幅浪费在无意义的文戏上面，而且那些文戏看不出什么东西。
 
+
+*****
+
+####  PascalLefèvre  
+##### 1565#       发表于 2024-12-28 18:00
+
+ 本帖最后由 PascalLefèvre 于 2024-12-28 18:02 编辑 
+
+Gundam Channel要开始了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

@@ -1415,3 +1415,22 @@ Gundam Channel要开始了<img src="https://static.saraba1st.com/image/smiley/fa
 
 做那么久不至于是季番吧<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刺客ares  
+##### 1609#       发表于 2024-12-28 22:21
+
+虽然我觉得会是半年番，但Khara的产能真不好说
+
+忙完EVA终再投入制作的话，制作周期大概三到四年？三年够K社做半年番吗...
+
+剧场版上了应该会有内鬼透一下定档和篇幅吧？
+
+*****
+
+####  kisstv22  
+##### 1610#       发表于 2024-12-28 22:25
+
+之前公布就感觉Khara真的做不了半年番
+

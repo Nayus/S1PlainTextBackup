@@ -4601,3 +4601,37 @@ https://www.bilibili.com/video/BV12RChYUERt/
 90++ 1宝学姐还能单c!(5加成不换人) 怕不是你游最值的卡 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">超级咖喱人
 
+
+*****
+
+####  khxooo  
+##### 15648#       发表于 2024-12-28 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67050748&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2024-12-28 18:47</a>
+
+我记得30有偿石那个福袋可以选兽尼禄来着？</blockquote>
+就是你“选择”，才能选兽，普通福袋不能选啊<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 15649#       发表于 2024-12-28 21:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">普通福袋不也给你n选1
+
+*****
+
+####  DARKGRAY  
+##### 15650#       发表于 2024-12-28 21:57
+
+这个设置挺好的，以后只出单机游戏用起来就更好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 15651#       发表于 2024-12-28 22:18
+
+建议明早起来打柱子，别折腾什么90++了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

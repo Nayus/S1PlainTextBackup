@@ -4220,3 +4220,77 @@ Mujica解散或者会产生巨大变动相关的话题就是会直接刺到祥�
 我觉得祥只是模模糊糊感觉自己错了，然后就先承认自己错了，但是祥并没有理解到底为什么会这样，只是因为 ...</blockquote>
 和c团的问题其实是类似的，没有时间和余裕，矛盾和冲突自然就显化了
 
+
+*****
+
+####  山ノ内花音  
+##### 4854#       发表于 2024-12-28 11:08
+
+mujica最大的问题就是从成立开始就一直在全速前进 
+想停下审视一下已有的矛盾 都做不到
+全国巡演这才两个城市 地狱之旅刚刚开始<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  金属化反射装甲  
+##### 4855#       发表于 2024-12-28 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67048400&amp;ptid=2208921" target="_blank">聊nsy专用号 发表于 2024-12-28 10:56</a>
+
+打扰到您磕喵祥了真是不好意思</blockquote>
+不说国内，日韩的社会环境下是个人都知道财阀家族对艺能界会有多少影响力，你是怎么得出财阀人脉对艺能界不管用这种结论的，回复就更逗了，人家聊论点你聊立场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  庸necro  
+##### 4856#       发表于 2024-12-28 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67048343&amp;ptid=2208921" target="_blank">棒读 发表于 2024-12-28 10:45</a>
+喵梦就算抱大腿也不是那种低三下四的感觉，这点就挺特别的，想想你要是一个小地方出来的网红看到演艺界大咖 ...</blockquote>
+说明大猫老师野心不是一般的大
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  棒读  
+##### 4857#       发表于 2024-12-28 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67048397&amp;ptid=2208921" target="_blank">3353764798 发表于 2024-12-28 10:55</a>
+祥子说以前的睦能说爱笑，其实mortis才是被封印的本体，黄瓜是伪装？
+快进到下集开头睦头下台后对大祥老师 ...</blockquote>
+我一直觉得沉默寡言的小睦是被父母逼出来的，她原来的性格应该是封印解除之后的状态
+
+*****
+
+####  聊nsy专用号  
+##### 4858#       发表于 2024-12-28 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67048475&amp;ptid=2208921" target="_blank">金属化反射装甲 发表于 2024-12-28 11:09</a>
+不说国内，日韩的社会环境下是个人都知道财阀家族对艺能界会有多少影响力，你是怎么得出财阀人脉对艺能界 ...</blockquote>
+这不矛盾啊，如果套瓷丰川家对喵梦实现成为艺人的梦想有用的话她不这么做只能说明祥子对她很special,虽然目前三集看不出来但万一呢
+
+*****
+
+####  棒读  
+##### 4859#       发表于 2024-12-28 11:14
+
+我脑补的完全体小睦大概是这种状态↓
+
+<img src="https://p.sda1.dev/21/e9db2d174d4837b1d31cc476669291af/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 4860#       发表于 2024-12-28 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67048412&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2024-12-28 10:59</a>
+怪了 动画来看 睦从初中开始就沉默寡言啊
+还喜欢自我否定
+第三集还摇头表示了自己的吉他水平不够强</blockquote>
+访谈有说过睦对祥子一直都有罪恶感，同时视祥子是自己的半身
+一直这个词说明罪恶感时间相当长了，甚至早于c团组建前
+睦的家庭对睦肯定有影响，但是睦祥童年可能也发生了什么事对睦造成了影响，只是幼年祥子没有在意
+看睦祥童年回忆，现在动画对睦祥童年回忆藏的太刻意了
+

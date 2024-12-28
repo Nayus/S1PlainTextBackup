@@ -2387,3 +2387,11 @@ YSX重新上架就是298加上首发10%优惠</blockquote>
 
 —— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  妄想中毒  
+##### 7346#       发表于 2024-12-28 19:05
+
+我觉得界轨主角团啥都不干最后结局也一样是学妹升天世界重置，剧情只有结局有推进过程全部砍掉都没影响<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

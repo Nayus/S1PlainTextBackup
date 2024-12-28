@@ -254,3 +254,17 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  leleq  
+##### 177#       发表于 2024-12-28 21:38
+
+洗澡时想了想如果Q娃模式是idol的话，都叫idol了Q娃型态还有耳机耳麦那肯定有live吧，live不可能手绘必是3d的然后就念头通达了……<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+明年Q娃型态可能是全3d的。
+
+如果是这样我就理解为啥事到如今才用偶像题材了……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+如果不是当我没说<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+

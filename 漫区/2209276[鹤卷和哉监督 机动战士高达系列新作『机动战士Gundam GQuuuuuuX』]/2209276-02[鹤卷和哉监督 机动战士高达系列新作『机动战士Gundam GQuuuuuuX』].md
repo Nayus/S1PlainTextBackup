@@ -1352,3 +1352,15 @@ Gundam Channel要开始了<img src="https://static.saraba1st.com/image/smiley/fa
 
 不就是为了配音补了系列最新作。是怎么做到滑坡到新作就是水魔了，水魔带来的ptsd这么深吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刺客ares  
+##### 1603#       发表于 2024-12-28 21:38
+
+<blockquote>雨翼free 发表于 2024-12-28 21:31
+不就是为了配音补了系列最新作。是怎么做到滑坡到新作就是水魔了，水魔带来的ptsd这么深吗 ...</blockquote>
+红发女一因为女二被卷入ms决斗，附带三番男
+
+任何人听到这个第一反应都是水魔吧（
+

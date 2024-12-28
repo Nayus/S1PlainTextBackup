@@ -1567,3 +1567,11 @@ Gundam Channel要开始了<img src="https://static.saraba1st.com/image/smiley/fa
 
 意思是妮娅安是假名没有姓氏？真身是不得了的大小姐可能性又上升了
 
+
+*****
+
+####  虛無迴廊  
+##### 1623#       发表于 2024-12-29 02:16
+
+修司需要演技是暗示之后会豹变？现在这个看起来很温和的模样该不会是为了算计小姑娘演的吧<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+

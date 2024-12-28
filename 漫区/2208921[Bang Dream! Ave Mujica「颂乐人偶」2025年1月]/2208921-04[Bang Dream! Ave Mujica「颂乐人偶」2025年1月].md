@@ -5229,3 +5229,46 @@ MYGO全靠爱音调节气氛，而母鸡卡一个个苦哈哈的，谁来调节�
 后来知道答案了——从MYGO ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">百分百大猫惹的祸大猫来收场好吧，否则这人以后游戏里不用出来了都。估计就是她最先释怀，然后心一沉收拾自己惹的烂摊子，最后大伙冰释前嫌包饺子。
 
+
+*****
+
+####  新HGCG  
+##### 4951#       发表于 2024-12-28 21:49
+
+开播前我担心，
+
+MYGO全靠爱音调节气氛，而母鸡卡一个个苦哈哈的，谁来调节气氛啊
+
+后来知道答案了——从MYGO借调爱音（和素世）来调节气氛 ​​​
+
+*****
+
+####  remedios010000  
+##### 4952#       发表于 2024-12-28 21:54
+
+无知大小姐误入娱乐圈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我推の祥子
+
+----发送自 [Xiaomi 23049RAD8C,Android 13](http://stage1.5j4m.com/?1.38)
+
+*****
+
+####  厄神之息  
+##### 4953#       发表于 2024-12-28 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67051975&amp;ptid=2208921" target="_blank">新HGCG 发表于 2024-12-28 21:49</a>
+
+开播前我担心，
+
+MYGO全靠爱音调节气氛，而母鸡卡一个个苦哈哈的，谁来调节气氛啊
+
+后来知道答案了——从MYGO ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">百分百大猫惹的祸大猫来收场好吧，否则这人以后游戏里不用出来了都。估计就是她最先释怀，然后心一沉收拾自己惹的烂摊子，最后大伙冰释前嫌包饺子。
+
+*****
+
+####  山ノ内花音  
+##### 4954#       发表于 2024-12-28 21:58
+
+前三集喵梦基本上就是负责搞笑的
+感觉后面会变本加厉
+

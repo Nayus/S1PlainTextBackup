@@ -4633,3 +4633,26 @@ https://www.bilibili.com/opus/1015837936087728133</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.95-alpha
 
+
+*****
+
+####  山ノ内花音  
+##### 4893#       发表于 2024-12-28 13:54
+
+难道现在的初华和童年的初华是两个人
+
+*****
+
+####  skylah  
+##### 4894#       发表于 2024-12-28 13:57
+
+明显初华只记得和祥子相处的回忆，给那个镜头肯定误会了<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sugirraffe  
+##### 4895#       发表于 2024-12-28 14:00
+
+没人提mana和她的半个甜甜圈们吗，堆在初华家好多，初华一个没吃，问祥子吃不吃祥子也说不吃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/cd8d59b19593b9a7a5c076dfdb8f0792/image.jpg" referrerpolicy="no-referrer">
+

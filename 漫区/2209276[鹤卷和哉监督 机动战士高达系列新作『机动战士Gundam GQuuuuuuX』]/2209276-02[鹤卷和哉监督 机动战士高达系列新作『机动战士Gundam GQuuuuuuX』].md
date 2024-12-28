@@ -1364,3 +1364,14 @@ Gundam Channel要开始了<img src="https://static.saraba1st.com/image/smiley/fa
 
 任何人听到这个第一反应都是水魔吧（
 
+
+*****
+
+####  Toby_dak  
+##### 1604#       发表于 2024-12-28 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67051585&amp;ptid=2209276" target="_blank">lickey 发表于 2024-12-28 21:49</a>
+
+季番还舍得直接割出来一部分当剧场版上映吗？这不是相当于在开播前直接损失了1/3的剧情吗…如果是季番那希 ...</blockquote>
+现在的商法都是这样啊，隔壁母鸡卡的前3集才昨天在电影院上线呢。
+

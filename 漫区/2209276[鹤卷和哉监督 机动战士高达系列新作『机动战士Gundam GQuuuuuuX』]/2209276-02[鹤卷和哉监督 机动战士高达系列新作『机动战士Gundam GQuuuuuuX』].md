@@ -1559,3 +1559,11 @@ Gundam Channel要开始了<img src="https://static.saraba1st.com/image/smiley/fa
 
 按最近这些长篇越长越容易变烂活的趋势季番能做好一个大故事也不错了，十三集努力塞的话剧情量可不少，铁血也就好了一季里面还有大量文戏，age奶茶篇也就十几集，水魔更是90%的时间在拍些无人在意的烂活<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  虛無迴廊  
+##### 1622#       发表于 2024-12-29 02:15
+
+意思是妮娅安是假名没有姓氏？真身是不得了的大小姐可能性又上升了
+

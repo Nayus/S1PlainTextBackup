@@ -1551,3 +1551,11 @@ Gundam Channel要开始了<img src="https://static.saraba1st.com/image/smiley/fa
 
 难说，再厉害的作者都存在一个舒适区，要是按照这个编剧的舒适区那拳赛恐怕是要从头打到尾的，如果篇幅够还能安排对手加强返场再打一轮，就看整个团队最终和高达ip的化学反应了
 
+
+*****
+
+####  盐盐盐盐盐  
+##### 1621#       发表于 2024-12-29 00:48
+
+按最近这些长篇越长越容易变烂活的趋势季番能做好一个大故事也不错了，十三集努力塞的话剧情量可不少，铁血也就好了一季里面还有大量文戏，age奶茶篇也就十几集，水魔更是90%的时间在拍些无人在意的烂活<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

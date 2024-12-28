@@ -774,3 +774,15 @@ jo厨狠狠享受了
 
 ----发送自 [motorola moto g stylus 5G (2022),Android 13](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  厄斯沃穆  
+##### 82#       发表于 2024-12-28 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67039492&amp;ptid=2224600" target="_blank">wasian 发表于 2024-12-28 02:00</a>
+所以有没有把dei画美的……想了想星鸣特工那群东西，有点难度的</blockquote>
+bg3吧，虽然我个人不是很感冒，但是看反响大部分人还是比较受用的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

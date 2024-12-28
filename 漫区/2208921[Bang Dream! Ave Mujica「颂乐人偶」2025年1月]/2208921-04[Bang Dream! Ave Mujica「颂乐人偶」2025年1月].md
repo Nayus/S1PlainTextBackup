@@ -4463,3 +4463,89 @@ i83名言.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.pn
 
 更进一步说，主要还真是实力问题，你要是MJ，上台了站那儿不动都能让一票粉丝尖叫到送救护车……你叫渡濑结月在那儿站十分钟，大家只会觉得她是不是胖的跳不动了
 
+
+*****
+
+####  zhp8212  
+##### 4876#       发表于 2024-12-28 12:10
+
+话说睦坐在椅子上那一场，观众后面就一直看睦坐着吗，睦再怎么好看，没有其他表演也能大受好评吗
+
+*****
+
+####  哈曼的YY  
+##### 4877#       发表于 2024-12-28 12:11
+
+<blockquote>AveMujica 发表于 2024-12-28 11:54
+5
+
+https://www.bilibili.com/opus/1015837936087728133</blockquote>
+倒数四人颜艺祥老师微笑符合op
+
+*****
+
+####  庸necro  
+##### 4878#       发表于 2024-12-28 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67048744&amp;ptid=2208921" target="_blank">北条早苗 发表于 2024-12-28 11:53</a>
+🐘老师这急了就让人练习的语言系统确实烂完了，每次炸团都有你是不是你打的有问题 ...</blockquote>
+祥有种遇到解决不了的问题下意识找能力问题的直觉性思考，有点恐怖的<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  山ノ内花音  
+##### 4879#       发表于 2024-12-28 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67048858&amp;ptid=2208921" target="_blank">zhp8212 发表于 2024-12-28 12:10</a>
+话说睦坐在椅子上那一场，观众后面就一直看睦坐着吗，睦再怎么好看，没有其他表演也能大受好评吗 ...</blockquote>
+多半是唱到最后一首才出事吧
+要不然观众肯定喊退钱的
+
+*****
+
+####  LeonsCat  
+##### 4880#       发表于 2024-12-28 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67048858&amp;ptid=2208921" target="_blank">zhp8212 发表于 2024-12-28 12:10</a>
+
+话说睦坐在椅子上那一场，观众后面就一直看睦坐着吗，睦再怎么好看，没有其他表演也能大受好评吗 ...</blockquote>
+就是暂时退场临时修订一下剧本，主体还是音乐会，也就是搞了个没有节奏吉他的力量金属，虽然会很怪但是反正这种规模的演唱会也没谁是真的硬核摇滚迷，都是去看森美奈美女儿盛世美颜的。
+
+
+*****
+
+####  akiomn  
+##### 4881#       发表于 2024-12-28 12:14
+
+ 本帖最后由 akiomn 于 2024-12-28 12:16 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png">最恐怖的是祥子说的还是正论，灯确实需要练习和独当一面，睦也确实需要把话好好说出来表达需求
+
+问题是祥子的语言系统和睦一样也是半身，都是对的但是伤害拉满
+
+独角兽设计角色时候肯定是下了大心血，这俩真的符合半身这个词
+
+*****
+
+####  66367749  
+##### 4882#       发表于 2024-12-28 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67048807&amp;ptid=2208921" target="_blank">LeonsCat 发表于 2024-12-28 12:03</a>
+海铃就是正论了，这是乐队方向的问题，得大家一起讨论。
+
+其实这搞法现实中就有个非常类似的，女仆团……作 ...</blockquote>
+我说的是舞台上搞事，如果计划的舞台演出的那当然可以，一致认可或者少数服从多数。上台后自说自话暴言和搞事的，就我所知风评都挺差的。
+
+*****
+
+####  suv2012  
+##### 4883#       发表于 2024-12-28 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67034813&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-27 15:02</a>
+第三话剧透，写得比较细因为我很喜欢这一话
+
+#3</blockquote>
+当初惊世一跪后面给木头人大特写的原因找到了
+

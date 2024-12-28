@@ -4681,3 +4681,57 @@ https://www.bilibili.com/opus/1015837936087728133</blockquote>
 
 初华给祥子的甜甜圈我特地数了下，合起来只有4个，不知道算不算微妙的暗示ww，莫名戳到了笑点。
 
+
+*****
+
+####  蜇灵  
+##### 4898#       发表于 2024-12-28 14:34
+
+<blockquote>山ノ内花音 发表于 2024-12-28 12:13
+多半是唱到最后一首才出事吧
+
+要不然观众肯定喊退钱的</blockquote>
+那首不是团歌嘛，那估计不是第一就是最后一首
+
+*****
+
+####  Tienx  
+##### 4899#       发表于 2024-12-28 14:37
+
+喵梦居然大学了（悲
+
+*****
+
+####  山ノ内花音  
+##### 4900#       发表于 2024-12-28 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67049547&amp;ptid=2208921" target="_blank">蜇灵 发表于 2024-12-28 14:34</a>
+那首不是团歌嘛，那估计不是第一就是最后一首</blockquote>
+确实 
+卖狗第十三集mujica的live也就表演了一首歌
+但实际上肯定肯定不止
+被省略了罢了
+
+*****
+
+####  贰臣  
+##### 4901#       发表于 2024-12-28 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67049555&amp;ptid=2208921" target="_blank">Tienx 发表于 2024-12-28 14:37</a>
+
+喵梦居然大学了（悲</blockquote>
+不是大学，是layer的学妹，layer自己都是高中生
+
+
+*****
+
+####  Tienx  
+##### 4902#       发表于 2024-12-28 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67049561&amp;ptid=2208921" target="_blank">贰臣 发表于 2024-12-28 14:38</a>
+
+不是大学，是layer的学妹，layer自己都是高中生</blockquote>
+我的我的，下意识以为layer大学了
+
+难怪喵梦这么敲鼓没人投诉
+

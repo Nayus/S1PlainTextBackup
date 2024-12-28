@@ -5570,3 +5570,43 @@ mujica现在光是演戏or乐队的分歧就够内部忙活的了，根本没那
 
 另外虽然灯其实是祥子在C团唯一真正在乎的人，但是拿灯去拆黑祥逻辑上没问题但戏份上有点喧宾夺主了，毕竟这片虽然说是mygo第二季但是标题是mujica。灯应该是留着去拆初华炸弹的，正好和第一季初华开到灯形成一个对位。
 
+
+*****
+
+####  Aendst  
+##### 4982#       发表于 2024-12-29 00:18
+
+ 本帖最后由 Aendst 于 2024-12-29 00:19 编辑 
+
+其实光看第一话祥子的回忆，灯也没有什么特殊地位<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+睦和祥子两个人对crychic的回忆都是彼此之外的剩下三个人非常平均公正，祥子crychic回忆里几乎没有睦（但是在除此之外的回忆里大量出现），睦的crychic相关回忆里祥子相关个人体感占了80%以上
+
+*****
+
+####  山ノ内花音  
+##### 4983#       发表于 2024-12-29 00:19
+
+从第一集看 祥子确实是平等的爱着c团每一个人 也就睦是特殊的了
+雨中紧握着伞的睦 
+给我造成了巨大的精神伤害<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+可以给她幸福吗
+
+
+*****
+
+####  Aendst  
+##### 4984#       发表于 2024-12-29 00:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">雨中抱着伞的睦这个画面萦绕在脑海里挥之不去
+
+制作组还很鸡贼地不止放了一次这个场景，我怀疑就是想要破坏观众的精神
+
+*****
+
+####  山ノ内花音  
+##### 4985#       发表于 2024-12-29 00:25
+
+对剧情质量真挺放心的
+但在睦祥之间插进一个Mortis让人不安<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

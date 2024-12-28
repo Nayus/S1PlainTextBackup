@@ -131,3 +131,20 @@
 
 那我是真的期望来年4月战姬组在各方面都能暴揍新Q娃
 
+
+*****
+
+####  灼眼的夏娜酱  
+##### 163#       发表于 2024-12-28 17:32
+
+战姬从人设的华丽程度上已经赢了，看好作画也碾压<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  damian-wade  
+##### 164#       发表于 2024-12-28 17:32
+
+这人设...以这个主题来说真的土<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+

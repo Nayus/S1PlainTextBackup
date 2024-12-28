@@ -1090,3 +1090,34 @@ Gundam Channel要开始了<img src="https://static.saraba1st.com/image/smiley/fa
 
 水魔这个是外传漫画?
 
+
+*****
+
+####  0aleph37  
+##### 1577#       发表于 2024-12-28 20:18
+
+ 本帖最后由 0aleph37 于 2024-12-28 20:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67051318&amp;ptid=2209276" target="_blank">zpl123 发表于 2024-12-28 20:13</a>
+
+水魔这个是外传漫画?</blockquote>
+是，背景在日本
+
+比起外传更接近于au同人的性质？
+
+*****
+
+####  刺客ares  
+##### 1578#       发表于 2024-12-28 20:18
+
+近未来日本舞台，是平行世界吧
+
+当官方同人看就行了
+
+
+*****
+
+####  0aleph37  
+##### 1579#       发表于 2024-12-28 20:23
+
+终于到了
+

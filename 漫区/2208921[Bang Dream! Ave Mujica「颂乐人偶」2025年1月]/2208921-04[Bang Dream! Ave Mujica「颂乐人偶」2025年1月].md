@@ -4132,3 +4132,25 @@ Mujica解散或者会产生巨大变动相关的话题就是会直接刺到祥�
 
 喵梦就算抱大腿也不是那种低三下四的感觉，这点就挺特别的，想想你要是一个小地方出来的网红看到演艺界大咖现在面前跟你说话估计紧张得手都要发抖了，但是喵梦跟她谈笑+风生，比一般人高到不知道哪里去了
 
+
+*****
+
+####  3353764798  
+##### 4846#       发表于 2024-12-28 10:55
+
+祥子说以前的睦能说爱笑，其实mortis才是被封印的本体，黄瓜是伪装？
+快进到下集开头睦头下台后对大祥老师说【好久不见了，祥】<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  聊nsy专用号  
+##### 4847#       发表于 2024-12-28 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67048336&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-28 10:43</a>
+你别回我了，水平太低
+
+说得好像艺能界金主只能在艺能界内产生，说得好像财阀没有艺能界人脉一样 ...</blockquote>
+打扰到您磕喵祥了真是不好意思
+

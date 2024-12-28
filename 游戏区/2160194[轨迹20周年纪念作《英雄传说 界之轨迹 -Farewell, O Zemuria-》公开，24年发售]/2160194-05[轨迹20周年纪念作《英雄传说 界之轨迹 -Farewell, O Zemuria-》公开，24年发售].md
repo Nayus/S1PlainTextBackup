@@ -2351,3 +2351,14 @@ YSX重新上架就是298加上首发10%优惠</blockquote>
 
 好奇空轨系列重置战斗系统用的是界轨那套么？空轨的剧情+界轨的战斗，感觉会是神作
 
+
+*****
+
+####  卢迪克  
+##### 7343#       发表于 2024-12-28 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67048322&amp;ptid=2160194" target="_blank">罗克萨斯 发表于 2024-12-28 10:41</a>
+
+好奇空轨系列重置战斗系统用的是界轨那套么？空轨的剧情+界轨的战斗，感觉会是神作 ...</blockquote>
+界轨+闪轨。系列集大成
+

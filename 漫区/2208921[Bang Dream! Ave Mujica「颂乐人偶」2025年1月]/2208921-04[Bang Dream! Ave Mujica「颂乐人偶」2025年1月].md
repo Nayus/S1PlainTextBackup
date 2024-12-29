@@ -6162,3 +6162,21 @@ Quid faciam? tenerum non sunt mea vulnera crimen."
 
 以及从soyo开会提到祥子的语气，和听灯回忆小祥皱眉的特写来看，上一季维持到结尾的小祥滤镜碎了呀
 
+
+*****
+
+####  枫林不见  
+##### 5033#       发表于 2024-12-29 15:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">大祥多哭哭吧，就当是来还泪了
+
+
+*****
+
+####  akiomn  
+##### 5034#       发表于 2024-12-29 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67056599&amp;ptid=2208921" target="_blank">银酒监武 发表于 2024-12-29 15:41</a>
+如果睦第三集最后这个状态会保持的话，接下来两集会不会是睦喵VS初祥？</blockquote>
+不会保持，pv里有三处可能是白睦的场景还没回收，第四集应该还是黑睦为主和祥子对线，但是白睦之后大概要上线了，可能是看到黑睦伤害了祥子
+

@@ -5838,3 +5838,38 @@ mujica现在光是演戏or乐队的分歧就够内部忙活的了，根本没那
 
 这是在凑表情包么...
 
+
+*****
+
+####  庸necro  
+##### 5006#       发表于 2024-12-29 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67052366&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2024-12-28 23:00</a>
+
+ed画面里每个人都有自己重要的东西
+
+初华只有面具 确实很让人不安</blockquote>
+ed小祥出现了很多次（
+
+
+*****
+
+####  庸necro  
+##### 5007#       发表于 2024-12-29 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67052805&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-29 00:22</a>
+
+雨中抱着伞的睦这个画面萦绕在脑海里挥之不去
+
+制作组还很鸡贼地不止放了一次这个场景，我怀疑就是想要破坏 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿萨德飞过去  
+##### 5008#       发表于 2024-12-29 11:46
+
+听到小祥说我凯她超的初华.jpg
+
+不会接下来每话小祥都得哭一下吧<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">，有点不是人了
+

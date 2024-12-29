@@ -6126,3 +6126,24 @@ Quid faciam? tenerum non sunt mea vulnera crimen."
 
 只能说从标题就开始在讽刺喵梦这种搬石头砸自己脚的作为了，在邦世界观下喵梦的所作所为洗不了一点
 
+
+*****
+
+####  s1百综字幕组  
+##### 5030#       发表于 2024-12-29 15:26
+
+通过网盘分享的文件：鸡先行整合_字幕修正.zip
+
+链接：[https://pan.baidu.com/s/1x7yhHNaRyC5JXTKzaufsHg](https://pan.baidu.com/s/1x7yhHNaRyC5JXTKzaufsHg) 提取码: unic
+
+链接：[https://pan.quark.cn/s/9d77073e29a2](https://pan.quark.cn/s/9d77073e29a2) 提取码：heLz
+
+链接：[https://mypikpak.com/s/VOFGHCQOYgSGqk3U3gSay8Yfo1](https://mypikpak.com/s/VOFGHCQOYgSGqk3U3gSay8Yfo1) 提取码: unic
+
+解压码：Ave Mujica
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+

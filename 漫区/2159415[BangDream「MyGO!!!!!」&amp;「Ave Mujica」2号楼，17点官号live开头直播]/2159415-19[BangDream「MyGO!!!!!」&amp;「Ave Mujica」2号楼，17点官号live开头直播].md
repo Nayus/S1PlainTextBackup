@@ -1747,3 +1747,27 @@ deideidei，女校，落地窗，二人的相逢，神明……圣妈啥时候�
 四格漫画411话【RAS-in-井之岛！】
 <img src="https://p.sda1.dev/21/ee1565a813ee2a661d3453fca510d4b5/1735438424723.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  织部琴音  
+##### 26779#       发表于 2024-12-29 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67033161&amp;ptid=2159415" target="_blank">刑部姬真可爱 发表于 2024-12-27 11:50</a>
+
+祥子还真是当天看完蝶和吹奏部演出就马上找素食组乐队</blockquote>
+万恶之源马希洛<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  织部琴音  
+##### 26780#       发表于 2024-12-29 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67026656&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2024-12-26 22:04</a>
+
+没什么新情报，就力儿八杯相关，本楼应该不怎么关注就不发了
+
+FES</blockquote>
+SOYO现在的画风再结合漫画应该坐实官方就是有意往16岁离婚贵妇方向塑造了
+

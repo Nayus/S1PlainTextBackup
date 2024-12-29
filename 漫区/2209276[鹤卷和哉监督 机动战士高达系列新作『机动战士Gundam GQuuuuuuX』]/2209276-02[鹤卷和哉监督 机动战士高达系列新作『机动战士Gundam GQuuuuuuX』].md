@@ -1727,3 +1727,13 @@ UC0085年，红高达，塞克谬，联想到阿克西兹也很合理吧。
 
 而天手和让叶在霓虹都是现存的姓氏
 
+
+*****
+
+####  灵魂收割机  
+##### 1636#       发表于 2024-12-29 22:33
+
+[https://www.4gamer.net/games/999 ... ndex_2.html#vic_lee](https://www.4gamer.net/games/999/G999905/20241216014/index_2.html#vic_lee)
+
+平行UC确认——事到如今意义不大了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

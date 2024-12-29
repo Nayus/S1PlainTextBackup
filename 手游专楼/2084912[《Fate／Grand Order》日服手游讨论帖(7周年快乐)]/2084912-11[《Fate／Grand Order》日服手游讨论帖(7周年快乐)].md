@@ -5137,3 +5137,39 @@ https://www.bilibili.com/video/BV12RChYUERt/
 
 卧槽怎么又加了
 
+
+*****
+
+####  Jamaisvu  
+##### 15710#       发表于 2024-12-29 20:29
+
+两个半小时刷了两千万柱子，新增的三千万柱子估计得刷三个多小时？反正猫姬肯定是能看到属于明天的月亮了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  壳壳牛  
+##### 15711#       发表于 2024-12-29 20:30
+
+qp要爆了...该点技能了...
+
+*****
+
+####  khxooo  
+##### 15712#       发表于 2024-12-29 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67058086&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-12-29 20:29</a>
+
+两个半小时刷了两千万柱子，新增的三千万柱子估计得刷三个多小时？反正猫姬肯定是能看到属于明天的月亮了 ...</blockquote>
+看不到吧，毕竟还要开剧情，估计5点还打不完的话就直接打响指了。
+
+
+*****
+
+####  芭德薇  
+##### 15713#       发表于 2024-12-29 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67058106&amp;ptid=2084912" target="_blank">khxooo 发表于 2024-12-29 20:31</a>
+
+看不到吧，毕竟还要开剧情，估计5点还打不完的话就直接打响指了。</blockquote>
+过12点那就是明天的月亮
+

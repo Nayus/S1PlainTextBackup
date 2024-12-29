@@ -6488,3 +6488,13 @@ mortis总结睦感受到的压力祥子开始反思自己不够关心睦，但�
 
 mortis拿着神蠢里的剑，一边喊着姐姐大人，一边刺向ob小姐的舞台动作可以有
 
+
+*****
+
+####  PDQ4  
+##### 5063#       发表于 2024-12-29 22:55
+
+想到第四集开头是不是可以一转少歌，反正已经开演了
+
+不方便生成舞台装置的话，可以mortis再来点幻觉滤镜<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -6783,3 +6783,11 @@ mortis拿着神蠢里的剑，一边喊着姐姐大人，一边刺向ob小姐的
 
 OP最后闪过的画面还有五把剑呢 不拔起来用怎么行！
 
+
+*****
+
+####  qjw114514  
+##### 5094#       发表于 2024-12-30 02:32
+
+说起来，之前睦的吉他上面也是蝴蝶结<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+

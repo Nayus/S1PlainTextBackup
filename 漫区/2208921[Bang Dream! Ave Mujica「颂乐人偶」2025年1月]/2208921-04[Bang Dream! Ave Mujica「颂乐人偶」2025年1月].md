@@ -6577,3 +6577,42 @@ mortis拿着神蠢里的剑，一边喊着姐姐大人，一边刺向ob小姐的
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我的关注点不在蝴蝶结上，居然是幼睦真可爱啊
 小时候的祥子怎么能忍得住的！
 
+
+*****
+
+####  山ノ内花音  
+##### 5072#       发表于 2024-12-29 23:27
+
+幼睦的眼睛炯炯有神<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  抽搐一下  
+##### 5073#       发表于 2024-12-29 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67058934&amp;ptid=2208921" target="_blank">allesdg 发表于 2024-12-29 23:03</a>
+
+转群友的发现：
+
+第一集回忆里的幼祥对比了两个枪版画面发现蝴蝶结应该是不同色的两个，一青一绿，而go篇的 ...</blockquote>
+感觉也可能是光照问题显得不一样
+
+*****
+
+####  ellisnadie  
+##### 5074#       发表于 2024-12-29 23:30
+
+现在已知
+
+会有幼年初祥戏，（大概率）会有幼年睦祥戏
+
+母鸡卡小朋友真是太多了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  山ノ内花音  
+##### 5075#       发表于 2024-12-29 23:32
+
+毕竟是幼驯染 怎么能没有幼年戏呢 挖掘起源
+

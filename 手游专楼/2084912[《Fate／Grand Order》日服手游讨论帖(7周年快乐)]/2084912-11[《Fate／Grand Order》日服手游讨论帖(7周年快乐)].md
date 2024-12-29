@@ -4741,3 +4741,23 @@ https://www.bilibili.com/video/BV12RChYUERt/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  保罗赫伯特  
+##### 15663#       发表于 2024-12-29 16:36
+
+不看月姬的确实不感兴趣吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+都快完结了，还是早点把以前的卫星落地完比较好，总不能真藏到第三部吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗赫伯特  
+##### 15664#       发表于 2024-12-29 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67054975&amp;ptid=2084912" target="_blank">克苏鲁系青骑士 发表于 2024-12-29 09:47</a>
+
+仇柱子，疑似学姐继续加班，兽蕾是谁，真不熟</blockquote>
+兽蕾打90++都有点吃力，尤其是道中的30万小怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

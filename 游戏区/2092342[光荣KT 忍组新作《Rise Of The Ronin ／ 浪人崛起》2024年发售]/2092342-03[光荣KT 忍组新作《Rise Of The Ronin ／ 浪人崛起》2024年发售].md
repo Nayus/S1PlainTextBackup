@@ -154,3 +154,27 @@ KT确实是历史策略动作这边全员爱猴
 
 玩浪人也能看出吧，有人告诉小弟「对马像是KT应该做出来的作品」确实把他伤得不轻<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  名字已被吃  
+##### 3303#       发表于 2024-12-30 00:39
+
+试炼里面放毒飞镖的有一个算一个都是狗屎，极传打得太累了，现在版本有没有什么试炼轮椅
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  名字已被吃  
+##### 3304#       发表于 2024-12-30 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67059360&amp;ptid=2092342" target="_blank">名字已被吃 发表于 2024-12-30 00:39</a>
+试炼里面放毒飞镖的有一个算一个都是狗屎，极传打得太累了，现在版本有没有什么试炼轮椅
+
+—— 来自 鹅球 v ...</blockquote>
+那个狗屎伊东还经常后撤步刷阴的，弹了飞镖还能闪现过来无硬直，甚至那个闪光往天上投的镖还有追踪，都滚他后面了还能打到我<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

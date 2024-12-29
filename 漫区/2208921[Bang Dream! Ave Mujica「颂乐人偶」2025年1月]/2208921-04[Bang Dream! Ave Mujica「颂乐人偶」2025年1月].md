@@ -6677,3 +6677,35 @@ mortis拿着神蠢里的剑，一边喊着姐姐大人，一边刺向ob小姐的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">？？？交换发带？
 
+
+*****
+
+####  qjw114514  
+##### 5082#       发表于 2024-12-30 00:10
+
+虽说贷这么大有点不敢，但要是真有我会兴奋死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自圆焰+奈菲人对发带交换的执念
+
+*****
+
+####  山ノ内花音  
+##### 5083#       发表于 2024-12-30 00:10
+
+童年交换的发带 
+如今又在什么地方呢<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  akiomn  
+##### 5084#       发表于 2024-12-30 00:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">沟槽的贴吧都有侦探把黑睦吞白睦那段解出来了，bgm时长恰好2分14秒，祥子生日
+妈耶睦的个人bgm都能掺私货啊，我怀疑不止是独角兽想推睦祥了，整个制作组都推睦祥
+
+*****
+
+####  PDQ4  
+##### 5085#       发表于 2024-12-30 00:16
+
+看到睦变了失魂落魄的小祥会从时间胶囊里翻出自己和睦宝贵的回忆哭哭吗<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

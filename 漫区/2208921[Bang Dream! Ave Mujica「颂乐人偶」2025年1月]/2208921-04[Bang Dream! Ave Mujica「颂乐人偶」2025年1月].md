@@ -5778,3 +5778,14 @@ mujica现在光是演戏or乐队的分歧就够内部忙活的了，根本没那
 
 说句题外话，祥作为临场发挥的救火队员真是强而有力，强而有力啊
 
+
+*****
+
+####  堆雪若叶  
+##### 4999#       发表于 2024-12-29 07:59
+
+后知后觉才注意到初华第二集结尾旁白这句是出自Prelude里的……
+<img src="https://p.sda1.dev/21/232dbcff9d0d3e0219f24ebbd1e89765/Prelude.mp4_20241229_004635.740.jpg" referrerpolicy="no-referrer">
+
+原本一直觉得莉伽是隐喻祥子或初华，结果其实是睦？莉伽和瑠奈沉沦的心理也能套用在睦身上，短片最后初华诱惑瑠奈更加意味深长了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

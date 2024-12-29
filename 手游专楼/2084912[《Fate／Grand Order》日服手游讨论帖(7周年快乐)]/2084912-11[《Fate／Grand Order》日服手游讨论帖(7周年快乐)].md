@@ -5246,3 +5246,29 @@ qp要爆了...该点技能了...
 刷完了发现有大佬也开发了老刑拐学姐的玩法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">起到了一个没她开不了游戏的作用
 [https://www.bilibili.com/video/BV1ki68YwEWV](https://www.bilibili.com/video/BV1ki68YwEWV)
 
+
+*****
+
+####  Jamaisvu  
+##### 15721#       发表于 2024-12-30 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67059381&amp;ptid=2084912" target="_blank">希望之花 发表于 2024-12-30 00:45</a>
+
+换阵容到最后发现刑部姬也能首发
+
+拿杀狐学姐刑部姬的阵容刷了一管学姐的绊
+
+刷完了发现有大佬也开发了老刑拐 ...</blockquote>
+这视频里甚至没开刑部姬一技能加暴击<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  希望之花  
+##### 15722#       发表于 2024-12-30 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67059405&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-12-30 00:58</a>
+
+这视频里甚至没开刑部姬一技能加暴击感觉她上了场啥也不干学姐都能1T</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">所以说老刑起的只是一个凑三人开游戏的作用，可能buff满上和四星枪龙娘作用差不多
+

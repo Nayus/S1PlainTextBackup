@@ -4726,3 +4726,18 @@ https://www.bilibili.com/video/BV12RChYUERt/
  ...</blockquote>
 也可以像两仪式那样一个送一个抽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 15662#       发表于 2024-12-29 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67056292&amp;ptid=2084912" target="_blank">jackyhuang 发表于 2024-12-29 14:30</a>
+
+新年要真是志贵隔壁会炸成什么样根本不敢想</blockquote>
+现在出哪个隔壁有不喷的？
+
+“出理查、我CNM的又是联动占用新年从者？”“出志贵？又是TM，又是TM占了新年从者。”“原创的？老子的理查呢？我裤子都脱了你给我出这个？”
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+

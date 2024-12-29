@@ -6180,3 +6180,26 @@ Quid faciam? tenerum non sunt mea vulnera crimen."
 如果睦第三集最后这个状态会保持的话，接下来两集会不会是睦喵VS初祥？</blockquote>
 不会保持，pv里有三处可能是白睦的场景还没回收，第四集应该还是黑睦为主和祥子对线，但是白睦之后大概要上线了，可能是看到黑睦伤害了祥子
 
+
+*****
+
+####  sauron.j  
+##### 5035#       发表于 2024-12-29 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67050508&amp;ptid=2208921" target="_blank">阿卡拉兰斯 发表于 2024-12-28 18:02</a>
+
+完了，把三集看完了
+
+要1月23号才有第四集看，绷不住了</blockquote>
+不看先行就会被四处打游击的暗戳戳剧透，又不能真的退网
+
+相比被无意剧透带来的恼羞成怒，还是戒断一个月更好受
+
+
+*****
+
+####  66367749  
+##### 5036#       发表于 2024-12-29 16:23
+
+不太想看枪版<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

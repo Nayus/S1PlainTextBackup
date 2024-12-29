@@ -78,3 +78,11 @@ KT的几位看下来，小弟、牢庄、越後谷、伊藤等人的“年度游
 
 学这学那都不如换个引擎实在，有什么好学的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 至于换引擎，那是要了日式小作坊的命
 
+
+*****
+
+####  monikaca  
+##### 3296#       发表于 2024-12-29 13:37
+
+我倒是想这个游戏改成黑猴或者三国无双7那种带支线选择的关卡/箱庭制。
+

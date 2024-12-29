@@ -5949,3 +5949,22 @@ ed小祥出现了很多次（
 甚至还有刻意隐藏的睦祥童年回忆，这些大概率是前中期的内容
 睦线真有可能前中期就解决掉了，pv画面放后期的不合适
 
+
+*****
+
+####  newtroll  
+##### 5018#       发表于 2024-12-29 13:56
+
+大祥老师果然还是本质软糯香甜，鸡团真话事人还得是初华。所有后面最大爆点我猜是初华<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 5019#       发表于 2024-12-29 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67056131&amp;ptid=2208921" target="_blank">newtroll 发表于 2024-12-29 13:56</a>
+大祥老师果然还是本质软糯香甜，鸡团真话事人还得是初华。所有后面最大爆点我猜是初华
+
+ ...</blockquote>
+你猜对了，舅舅说了，初华是临近结尾爆的（可能是第十集才开始？）而睦是爆的最大的
+

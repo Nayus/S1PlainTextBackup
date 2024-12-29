@@ -6480,3 +6480,11 @@ mortis总结睦感受到的压力祥子开始反思自己不够关心睦，但�
 
 想起ob女士还是mortis的姐姐大人，现在这个情况会有舞台少女戏吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  山ノ内花音  
+##### 5062#       发表于 2024-12-29 22:37
+
+mortis拿着神蠢里的剑，一边喊着姐姐大人，一边刺向ob小姐的舞台动作可以有
+

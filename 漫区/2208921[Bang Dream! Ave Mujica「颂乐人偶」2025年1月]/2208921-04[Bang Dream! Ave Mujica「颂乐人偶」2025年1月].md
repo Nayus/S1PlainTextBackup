@@ -5822,3 +5822,19 @@ mujica现在光是演戏or乐队的分歧就够内部忙活的了，根本没那
 
 <img src="https://p.sda1.dev/21/1d9e3ea386ff4cddeb5704a4380d7a3e/42c4009340b88d9037c77c23945a8903.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  挺好的  
+##### 5004#       发表于 2024-12-29 11:30
+
+<img src="https://p.sda1.dev/21/74bd4ddcc8c06a90ba33f835d9ad750e/70b83aefa46a44970cbb308fc25c95d0.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  金钱与民主  
+##### 5005#       发表于 2024-12-29 11:34
+
+这是在凑表情包么...
+

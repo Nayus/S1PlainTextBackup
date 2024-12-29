@@ -1257,7 +1257,7 @@
     "lastedit": 1735466880,
     "category": "手游专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1334731": {
     "totalreply": 6055,
@@ -1572,7 +1572,7 @@
     "lastedit": 1735458780,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1539923": {
     "totalreply": 2886,
@@ -1767,10 +1767,10 @@
     "totalreply": 4656,
     "title": "[【CSGO】赛事讨论专楼-Faze夺冠！rain MVP！]",
     "newtitle": "[]",
-    "lastedit": 1735474680,
+    "lastedit": 1735479900,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2050172": {
     "totalreply": 2275,
@@ -2553,7 +2553,7 @@
     "lastedit": 1735452840,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1099480": {
     "totalreply": 722,
@@ -2958,7 +2958,7 @@
     "lastedit": 1735477980,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2086116": {
     "totalreply": 1208,
@@ -4416,7 +4416,7 @@
     "lastedit": 1735475640,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1962013": {
     "totalreply": 901,
@@ -5820,7 +5820,7 @@
     "lastedit": 1735479060,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1988297": {
     "totalreply": 1177,
@@ -7362,10 +7362,10 @@
     "update": false
   },
   "2170568": {
-    "totalreply": 52644,
+    "totalreply": 52645,
     "title": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
     "newtitle": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
-    "lastedit": 1735479004,
+    "lastedit": 1735479845,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -9252,10 +9252,10 @@
     "update": false
   },
   "2192962": {
-    "totalreply": 6874,
+    "totalreply": 6875,
     "title": "[【明日方舟】国服15号楼 7.16集成战略#5 「萨卡兹的无终奇语」周六19点30夏活前瞻]",
     "newtitle": "[【明日方舟】国服15号楼 12.29 小游戏「视相博物馆」 (本楼含YJWL动态交流)]",
-    "lastedit": 1735478646,
+    "lastedit": 1735479845,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -10400,7 +10400,7 @@
     "newtitle": "[大物新人 粉毛 工商女仆 結城さくな 讨论楼]",
     "lastedit": 1735220292,
     "category": "虚拟主播区专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2201083": {
@@ -10917,10 +10917,10 @@
     "update": false
   },
   "2209050": {
-    "totalreply": 113,
+    "totalreply": 114,
     "title": "[【提名贴】年经活动 2024年度排名前五的动画 提名]",
     "newtitle": "[【提名贴】年经活动 2024年度排名前五的动画 提名]",
-    "lastedit": 1735478285,
+    "lastedit": 1735479606,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11402,15 +11402,6 @@
     "active": false,
     "update": false
   },
-  "2210082": {
-    "totalreply": 52,
-    "title": "[赛博朋克2077更新2.2版本]",
-    "newtitle": "[赛博朋克2077更新2.2版本]",
-    "lastedit": 1734270024,
-    "category": "游戏区",
-    "active": false,
-    "update": false
-  },
   "2210197": {
     "totalreply": 296,
     "title": "[百度+吉利的极越疑似打出了gg]",
@@ -11538,10 +11529,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 11173,
+    "totalreply": 11178,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1735479245,
+    "lastedit": 1735479965,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12092,15 +12083,6 @@
     "newtitle": "[为什么毛选之中写“差异就是矛盾”？]",
     "lastedit": 1734396624,
     "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2174692": {
-    "totalreply": 87,
-    "title": "[饿狼传说新作近期将有新消息，新龙虎之拳已开始招聘人员]",
-    "newtitle": "[饿狼传说新作近期将有新消息，新龙虎之拳已开始招聘人员]",
-    "lastedit": 1734270028,
-    "category": "游戏区",
     "active": false,
     "update": false
   },
@@ -12996,10 +12978,10 @@
     "update": false
   },
   "2210855": {
-    "totalreply": 297,
+    "totalreply": 298,
     "title": "[中二电波台真爱楼 2.0]",
     "newtitle": "[中二电波台真爱楼 2.0]",
-    "lastedit": 1735478884,
+    "lastedit": 1735479965,
     "category": "漫区",
     "active": true,
     "update": false
@@ -17817,7 +17799,7 @@
     "lastedit": 1735442280,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172665": {
     "totalreply": 99,
@@ -17847,10 +17829,10 @@
     "update": false
   },
   "2233382": {
-    "totalreply": 60,
+    "totalreply": 63,
     "title": "[有哪些动画的单独一集是你会不时回顾的？]",
     "newtitle": "[有哪些动画的单独一集是你会不时回顾的？]",
-    "lastedit": 1735475887,
+    "lastedit": 1735479965,
     "category": "漫区",
     "active": true,
     "update": false
@@ -17862,7 +17844,7 @@
     "lastedit": 1735437060,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2215630": {
     "totalreply": 47,
@@ -17889,7 +17871,7 @@
     "lastedit": 1735449960,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2169679": {
     "totalreply": 207,
@@ -17907,7 +17889,7 @@
     "lastedit": 1735460280,
     "category": "手游专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2139499": {
     "totalreply": 98,

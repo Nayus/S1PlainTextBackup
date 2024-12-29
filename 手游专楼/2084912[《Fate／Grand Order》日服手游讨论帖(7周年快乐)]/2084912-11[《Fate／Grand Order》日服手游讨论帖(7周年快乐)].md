@@ -5233,3 +5233,16 @@ qp要爆了...该点技能了...
 
 一开始还上羁绊礼装.....刷了几十根去商店换材料才发现还有一堆要换的赶紧又换回了活动道具加成礼装
 
+
+*****
+
+####  希望之花  
+##### 15720#       发表于 2024-12-30 00:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">换阵容到最后发现刑部姬也能首发
+
+拿杀狐学姐刑部姬的阵容刷了一管学姐的绊
+
+刷完了发现有大佬也开发了老刑拐学姐的玩法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">起到了一个没她开不了游戏的作用
+[https://www.bilibili.com/video/BV1ki68YwEWV](https://www.bilibili.com/video/BV1ki68YwEWV)
+

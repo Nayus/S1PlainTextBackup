@@ -6741,3 +6741,14 @@ mortis拿着神蠢里的剑，一边喊着姐姐大人，一边刺向ob小姐的
 
 想把那个变态漫画发上来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 5090#       发表于 2024-12-30 00:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快发，嗜血长颈鹿等不及了
+
+对了再说个应该都知道的细节吧？睦人偶宝石和祥子的人偶宝石全是绿色，而祥子演出服的宝石颜色是蓝，睦演出服宝石颜色是绿色
+祥妈的人偶身上太多谜了，甚至可能和睦有关联
+

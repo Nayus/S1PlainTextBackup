@@ -4902,3 +4902,76 @@ https://www.bilibili.com/video/BV12RChYUERt/
 
 又卡了啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  quanlix  
+##### 15682#       发表于 2024-12-29 17:57
+
+都想着把活动给的3倍茶壶吃了，这道具活动结束就过期
+
+*****
+
+####  alucardcz  
+##### 15683#       发表于 2024-12-29 18:00
+
+又爆炸了？
+
+*****
+
+####  克苏鲁系青骑士  
+##### 15684#       发表于 2024-12-29 18:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可以正常打外面的素材本，进活动选了助战立刻跳error-11，估计是猫姬炸了
+
+*****
+
+####  Aunn  
+##### 15685#       发表于 2024-12-29 18:02
+
+家人们，先别刷了，让我把茶壶用了
+
+
+*****
+
+####  Jamaisvu  
+##### 15686#       发表于 2024-12-29 18:02
+
+圣诞王对螺旋社服务器使用了雷夫炸弹，效果拔群。
+
+猫姬：嘻嘻我一定要活下去啊<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗赫伯特  
+##### 15687#       发表于 2024-12-29 18:03
+
+好了，能进了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 15688#       发表于 2024-12-29 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67057274&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-12-29 18:03</a>
+
+好了，能进了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你是能进游戏还是能开刷  游戏其实一直能进
+
+*****
+
+####  保罗赫伯特  
+##### 15689#       发表于 2024-12-29 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67057285&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-29 18:04</a>
+
+你是能进游戏还是能开刷  游戏其实一直能进</blockquote>
+能刷啊，可能有个体的差异吧<img src="https://static.saraba1st.com/image/smiley/face2017/222.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 15690#       发表于 2024-12-29 18:06
+
+前面被卡出来以为又要寄了233
+

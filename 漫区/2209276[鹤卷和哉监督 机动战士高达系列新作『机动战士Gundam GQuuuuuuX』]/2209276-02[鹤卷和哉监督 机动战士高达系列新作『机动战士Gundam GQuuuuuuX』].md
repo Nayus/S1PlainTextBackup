@@ -1762,3 +1762,16 @@ https://www.4gamer.net/games/999 ... ndex_2.html#vic_lee
 
 看来他也知道保密保不了一点，剧场版后别搞出全篇泄露就是胜利（
 
+
+*****
+
+####  oi99o  
+##### 1639#       发表于 2024-12-30 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67059112&amp;ptid=2209276" target="_blank">刺客ares 发表于 2024-12-29 23:34</a>
+
+这不是鹤卷gg亲自出来当内鬼了吗
+
+看来他也知道保密保不了一点，剧场版后别搞出全篇泄露就是胜利（ ...</blockquote>
+这是采访一批游戏制作人的报道，然后其中一位制作人提到自己今年最关注的人物是鹤卷。鹤卷本人并没有参加这篇采访。
+

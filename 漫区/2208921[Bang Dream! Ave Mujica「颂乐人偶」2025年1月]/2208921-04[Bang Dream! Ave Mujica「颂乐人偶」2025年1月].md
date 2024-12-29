@@ -6147,3 +6147,18 @@ Quid faciam? tenerum non sunt mea vulnera crimen."
 
 ×
 
+
+*****
+
+####  银酒监武  
+##### 5031#       发表于 2024-12-29 15:41
+
+如果睦第三集最后这个状态会保持的话，接下来两集会不会是睦喵VS初祥？<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银酒监武  
+##### 5032#       发表于 2024-12-29 15:44
+
+以及从soyo开会提到祥子的语气，和听灯回忆小祥皱眉的特写来看，上一季维持到结尾的小祥滤镜碎了呀
+

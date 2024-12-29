@@ -6113,3 +6113,16 @@ Quid faciam? tenerum non sunt mea vulnera crimen."
 “我该怎么办？我的伤痕并非柔情的罪过。”
 - 奥维德常用这种提问方式表达情感困惑或寻求解决方案。
 
+
+*****
+
+####  akiomn  
+##### 5029#       发表于 2024-12-29 15:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第二话的标题是最讽刺的
+最想要流量的喵梦收获的流量是最低的
+想安稳运营的祥子收获的是更多的压力
+睦获得的流量最多却导致了她的爆炸黑化
+
+只能说从标题就开始在讽刺喵梦这种搬石头砸自己脚的作为了，在邦世界观下喵梦的所作所为洗不了一点
+

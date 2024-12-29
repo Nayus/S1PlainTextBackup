@@ -4879,3 +4879,26 @@ https://www.bilibili.com/video/BV12RChYUERt/
 
 2000根是不是太少了
 
+
+*****
+
+####  jackyhuang  
+##### 15679#       发表于 2024-12-29 17:48
+
+发完贴就混杂了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 15680#       发表于 2024-12-29 17:50
+
+又混杂了，经历了这么多次柱子战还是没改进<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  保罗赫伯特  
+##### 15681#       发表于 2024-12-29 17:51
+
+又卡了啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

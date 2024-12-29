@@ -6244,3 +6244,13 @@ Quid faciam? tenerum non sunt mea vulnera crimen."
 
 <img src="https://p.sda1.dev/21/846f6944a28dbf8a7d65e744c943b027/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  66367749  
+##### 5041#       发表于 2024-12-29 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67056851&amp;ptid=2208921" target="_blank">一心而用 发表于 2024-12-29 16:36</a>
+这个有可能吗？</blockquote>
+我觉得不太可能，这种设定只是营造一个实体敌人，并不对剧情进展有积极意义
+

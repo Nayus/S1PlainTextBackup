@@ -1257,7 +1257,7 @@
     "lastedit": 1735466880,
     "category": "手游专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1334731": {
     "totalreply": 6055,
@@ -1509,7 +1509,7 @@
     "lastedit": 1735488780,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1861134": {
     "totalreply": 1189,
@@ -1572,7 +1572,7 @@
     "lastedit": 1735458780,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1539923": {
     "totalreply": 2886,
@@ -1770,7 +1770,7 @@
     "lastedit": 1735488480,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2050172": {
     "totalreply": 2275,
@@ -2553,7 +2553,7 @@
     "lastedit": 1735452840,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1099480": {
     "totalreply": 722,
@@ -2958,7 +2958,7 @@
     "lastedit": 1735477980,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2086116": {
     "totalreply": 1208,
@@ -4416,7 +4416,7 @@
     "lastedit": 1735483500,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1962013": {
     "totalreply": 901,
@@ -5820,7 +5820,7 @@
     "lastedit": 1735486980,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1988297": {
     "totalreply": 1177,
@@ -9423,10 +9423,10 @@
     "update": false
   },
   "2194890": {
-    "totalreply": 1209,
+    "totalreply": 1211,
     "title": "[丸户×よむ《事到如今，喜欢上了青梅竹马》]",
     "newtitle": "[丸户×よむ《事到如今，喜欢上了青梅竹马》]",
-    "lastedit": 1735498085,
+    "lastedit": 1735498445,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10887,7 +10887,7 @@
     "lastedit": 1735486620,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1974980": {
     "totalreply": 199,
@@ -11984,15 +11984,6 @@
     "newtitle": "[宇宙机器人调查]",
     "lastedit": 1735176009,
     "category": "游戏区",
-    "active": false,
-    "update": false
-  },
-  "1866121": {
-    "totalreply": 80,
-    "title": "[误玩到猎奇的黄油，我吐了]",
-    "newtitle": "[误玩到猎奇的黄油，我吐了]",
-    "lastedit": 1734288968,
-    "category": "漫区",
     "active": false,
     "update": false
   },
@@ -17772,7 +17763,7 @@
     "lastedit": 1735493400,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172665": {
     "totalreply": 99,
@@ -17844,7 +17835,7 @@
     "lastedit": 1735449960,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2169679": {
     "totalreply": 207,
@@ -17862,7 +17853,7 @@
     "lastedit": 1735460280,
     "category": "手游专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2139499": {
     "totalreply": 99,

@@ -5272,3 +5272,11 @@ qp要爆了...该点技能了...
 这视频里甚至没开刑部姬一技能加暴击感觉她上了场啥也不干学姐都能1T</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">所以说老刑起的只是一个凑三人开游戏的作用，可能buff满上和四星枪龙娘作用差不多
 
+
+*****
+
+####  quanlix  
+##### 15723#       发表于 2024-12-30 01:13
+
+这柱子是从2000万直接给干到5000万了吧，打够100根不打了
+

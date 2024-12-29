@@ -1708,3 +1708,22 @@ UC0085年，红高达，塞克谬，联想到阿克西兹也很合理吧。
 天手·让叶 </blockquote>
 原来让叶是姓吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，我一直以为天手是姓
 
+
+*****
+
+####  0aleph37  
+##### 1635#       发表于 2024-12-29 18:54
+
+ 本帖最后由 0aleph37 于 2024-12-29 18:56 编辑 
+<blockquote>oi99o 发表于 2024-12-29 16:43
+原来让叶是姓吗，我一直以为天手是姓</blockquote>
+我也一直以为天手是姓，但是官网上各个语言都是把让叶作为姓。
+
+中文天手让叶，修司伊藤。
+
+日文アマテ・ユズリハ，アマテ・ユズリハ
+
+英文Amate Yuzuriha，Shuji Itō
+
+而天手和让叶在霓虹都是现存的姓氏
+

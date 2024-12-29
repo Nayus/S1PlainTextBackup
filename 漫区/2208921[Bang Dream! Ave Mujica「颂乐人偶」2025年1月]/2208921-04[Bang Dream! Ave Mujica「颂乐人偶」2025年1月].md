@@ -6276,3 +6276,55 @@ mortis总结睦感受到的压力祥子开始反思自己不够关心睦，但�
 
 除非剧本需要后面还要让睦因为家庭压力再爆一次
 
+
+*****
+
+####  轮太  
+##### 5043#       发表于 2024-12-29 18:47
+
+突然想到一个担忧
+
+独角兽老师被踢不会是写嗨了最后饺子包不回来，然后被大人物强行按头瞎包了一个结局所以写完马上润了吧
+
+*****
+
+####  kuroro  
+##### 5044#       发表于 2024-12-29 18:48
+
+我是觉得睦有点像神田沙也加，圣子对她女儿很爱的。睦会不会是因为父母不和，总在家争吵，她又不会说话，火上浇油，她爹说了什么过分的话，她妈护着她，但是她妈事业占的时间太多，对睦又不能时时关注，睦就现在这样了
+
+*****
+
+####  贰臣  
+##### 5045#       发表于 2024-12-29 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67057505&amp;ptid=2208921" target="_blank">轮太 发表于 2024-12-29 18:47</a>
+
+突然想到一个担忧
+
+独角兽老师被踢不会是写嗨了最后饺子包不回来，然后被大人物强行按头瞎包了一个结局所以 ...</blockquote>
+这样的东西独角兽都能说是人生之作，那她也太恨自己的人生了吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 5046#       发表于 2024-12-29 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67057505&amp;ptid=2208921" target="_blank">轮太 发表于 2024-12-29 18:47</a>
+突然想到一个担忧
+
+独角兽老师被踢不会是写嗨了最后饺子包不回来，然后被大人物强行按头瞎包了一个结局所以 ...</blockquote>
+就算有这种可能 去担心也没意义啊 完全黑箱<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  紫吹兰  
+##### 5047#       发表于 2024-12-29 18:56
+
+ 本帖最后由 紫吹兰 于 2024-12-29 18:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67057521&amp;ptid=2208921" target="_blank">贰臣 发表于 2024-12-29 18:50</a>
+
+这样的东西独角兽都能说是人生之作，那她也太恨自己的人生了吧</blockquote>
+独角兽的人生不就是每次都被踢掉，每个团队都以驱逐独角兽为结局，她人生的饺子一直没包上啊
+

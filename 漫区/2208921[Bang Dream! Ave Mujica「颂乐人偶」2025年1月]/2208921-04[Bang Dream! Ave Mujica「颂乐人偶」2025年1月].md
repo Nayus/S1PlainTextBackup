@@ -6726,3 +6726,18 @@ mortis拿着神蠢里的剑，一边喊着姐姐大人，一边刺向ob小姐的
 下个月23号那天有新访谈，反正就是复读了一遍祥子有秘密，祥子是故事的核心人物（主角）
 另外下个月23号那天恰好是第四集播出的日子
 
+
+*****
+
+####  悲伤颂偶  
+##### 5088#       发表于 2024-12-30 00:33
+
+初华看了这个发带能气晕过去<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 5089#       发表于 2024-12-30 00:35
+
+想把那个变态漫画发上来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

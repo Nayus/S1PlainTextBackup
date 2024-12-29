@@ -5202,3 +5202,14 @@ qp要爆了...该点技能了...
 
 打了30多根就下了，现在上来一看怎么反倒更多了
 
+
+*****
+
+####  大十字紅朔  
+##### 15717#       发表于 2024-12-29 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67058872&amp;ptid=2084912" target="_blank">quanlix 发表于 2024-12-29 22:56</a>
+
+打了30多根就下了，现在上来一看怎么反倒更多了</blockquote>
+看到打太快了给加了一点
+

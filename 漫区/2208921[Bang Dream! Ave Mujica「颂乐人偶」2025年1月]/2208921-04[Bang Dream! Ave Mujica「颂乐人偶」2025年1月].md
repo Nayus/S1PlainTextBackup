@@ -6530,3 +6530,50 @@ mortis拿着神蠢里的剑，一边喊着姐姐大人，一边刺向ob小姐的
 
 官方会卖mortis玩偶吗？挺可爱的有点想要一个<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ggxx001  
+##### 5067#       发表于 2024-12-29 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67058934&amp;ptid=2208921" target="_blank">allesdg 发表于 2024-12-29 23:03</a>
+转群友的发现：
+
+第一集回忆里的幼祥对比了两个枪版画面发现蝴蝶结应该是不同色的两个，一青一绿，而go篇的 ...</blockquote>
+我都快已经要放弃姐妹论了 又来 难道真得是乐队少女凛樱 缎带是寄托 睦也挺樱系的 看到wb上有说等正片出来要拿i beg you来剪
+
+*****
+
+####  sauron.j  
+##### 5068#       发表于 2024-12-29 23:19
+
+总算是解释了为什么睦头在卡拉OK会主动唱起歌
+
+*****
+
+####  uhiuk  
+##### 5069#       发表于 2024-12-29 23:21
+
+好像真不是一个颜色，
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+
+*****
+
+####  山ノ内花音  
+##### 5070#       发表于 2024-12-29 23:22
+
+小时候睦的头发比祥子长 现在反过来
+
+*****
+
+####  akiomn  
+##### 5071#       发表于 2024-12-29 23:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我的关注点不在蝴蝶结上，居然是幼睦真可爱啊
+小时候的祥子怎么能忍得住的！
+

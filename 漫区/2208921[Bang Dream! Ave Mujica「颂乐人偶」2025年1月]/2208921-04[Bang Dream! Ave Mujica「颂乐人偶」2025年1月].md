@@ -6214,3 +6214,25 @@ Quid faciam? tenerum non sunt mea vulnera crimen."
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  L-JoeW  
+##### 5038#       发表于 2024-12-29 16:53
+
+推特官号还有献400毫升血送A1海报的活动，本子网友直呼猎奇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  Tienx  
+##### 5039#       发表于 2024-12-29 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67056851&amp;ptid=2208921" target="_blank">一心而用 发表于 2024-12-29 16:36</a>
+这个有可能吗？</blockquote>
+知乎动漫大神吗......要说的话不是没一点可能，这种就属于猜对了我牛逼，猜错了没人记得的言论
+

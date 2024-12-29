@@ -5083,3 +5083,57 @@ https://www.bilibili.com/video/BV12RChYUERt/
 
 准备突破600W了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希望之花  
+##### 15703#       发表于 2024-12-29 20:16
+
+加柱子了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  壳壳牛  
+##### 15704#       发表于 2024-12-29 20:17
+
+艹反向打响指
+
+*****
+
+####  jackyhuang  
+##### 15705#       发表于 2024-12-29 20:17
+
+居然加数量了，说不定能活过12点了
+
+*****
+
+####  khxooo  
+##### 15706#       发表于 2024-12-29 20:17
+
+加血了，你一次性加这么多能打完吗？
+
+*****
+
+####  乾理央  
+##### 15707#       发表于 2024-12-29 20:17
+
+ 本帖最后由 乾理央 于 2024-12-29 20:18 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">杀太快了，紧急加了3kw根柱子
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过我也没苹果了
+
+*****
+
+####  onemoment  
+##### 15708#       发表于 2024-12-29 20:21
+
+还在紧急冲刺呢怎么打着突然追加了
+
+*****
+
+####  angelooo  
+##### 15709#       发表于 2024-12-29 20:21
+
+卧槽怎么又加了
+

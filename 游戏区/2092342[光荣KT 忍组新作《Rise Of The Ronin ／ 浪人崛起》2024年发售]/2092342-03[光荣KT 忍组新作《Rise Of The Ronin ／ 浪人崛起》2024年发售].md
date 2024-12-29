@@ -118,3 +118,13 @@ fs的引擎也不怎么样，美术一样能做到很好。
 
 下一个百万大作在路上了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑修士  
+##### 3300#       发表于 2024-12-29 18:22
+
+35O就目前的卖相来看，说不准真能达成百万
+
+不过KT好的不学搞提前游玩，预购普通版的玩家还在等解锁的时候，零元购玩家说不定都通关了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

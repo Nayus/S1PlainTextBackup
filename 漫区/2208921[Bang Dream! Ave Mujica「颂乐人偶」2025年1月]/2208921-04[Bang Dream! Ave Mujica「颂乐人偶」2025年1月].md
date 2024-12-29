@@ -5976,3 +5976,14 @@ ed小祥出现了很多次（
 
 目前看来母鸡卡的底色还是经典的日式温暖大家庭，祥睦家的大人对孩子也都很好，比同人中幕后黑手丰川家好多了。只要小女孩自己心里过得去，随时都能上桌吃饺子<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  footmanpon  
+##### 5021#       发表于 2024-12-29 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67055327&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2024-12-29 11:23</a>
+
+我之前一直觉得Mujica哪怕在动画里真要炸一波，祥子也会是竭尽全力把团队保下来的那个。但从前三话来看，一 ...</blockquote>
+可以可以，请多来点，刚好和HHW形成对应，最穷负债少女乐团！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

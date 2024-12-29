@@ -11655,10 +11655,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 10884,
+    "totalreply": 10885,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1735430645,
+    "lastedit": 1735431005,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12920,7 +12920,7 @@
     "newtitle": "[试着做一个日本旅游／LIVE场馆集合帖（12／19濑户内海富山金泽福井）]",
     "lastedit": 1735171580,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2210803": {
@@ -18099,10 +18099,10 @@
     "update": false
   },
   "2190591": {
-    "totalreply": 182,
+    "totalreply": 183,
     "title": "[魔法少女奈叶 20周年纪念企划始动]",
     "newtitle": "[魔法少女奈叶 20周年纪念企划始动]",
-    "lastedit": 1735430645,
+    "lastedit": 1735431245,
     "category": "漫区",
     "active": true,
     "update": false
@@ -18120,7 +18120,7 @@
     "totalreply": 207,
     "title": "[『蓝色监狱 ／ ブルーロック』动画化 TV二期&amp;剧场动画制作决定]",
     "newtitle": "[]",
-    "lastedit": 1735415340,
+    "lastedit": 1735431000,
     "category": "漫区",
     "active": true,
     "update": true
@@ -18149,6 +18149,15 @@
     "newtitle": "[（主楼更新眼镜图）眼镜老往下滑有什么解法吗]",
     "lastedit": 1735410970,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2233382": {
+    "totalreply": 42,
+    "title": "[有哪些动画的单独一集是你会不时回顾的？]",
+    "newtitle": "[有哪些动画的单独一集是你会不时回顾的？]",
+    "lastedit": 1735431245,
+    "category": "漫区",
     "active": true,
     "update": false
   }

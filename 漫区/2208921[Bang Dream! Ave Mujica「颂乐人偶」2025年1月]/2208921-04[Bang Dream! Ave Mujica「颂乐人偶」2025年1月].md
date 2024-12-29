@@ -6522,3 +6522,11 @@ mortis拿着神蠢里的剑，一边喊着姐姐大人，一边刺向ob小姐的
 
 ×
 
+
+*****
+
+####  瞳映山川  
+##### 5066#       发表于 2024-12-29 23:11
+
+官方会卖mortis玩偶吗？挺可爱的有点想要一个<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

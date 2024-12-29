@@ -1737,3 +1737,16 @@ UC0085年，红高达，塞克谬，联想到阿克西兹也很合理吧。
 
 平行UC确认——事到如今意义不大了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oi99o  
+##### 1637#       发表于 2024-12-29 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67058712&amp;ptid=2209276" target="_blank">灵魂收割机 发表于 2024-12-29 22:33</a>
+
+https://www.4gamer.net/games/999 ... ndex_2.html#vic_lee
+
+平行UC确认——事到如今意义不大了 ...</blockquote>
+这也不是内部人士吧，估计跟我们一样听了泄露的消息才说的。（不过确实意义不大了）
+

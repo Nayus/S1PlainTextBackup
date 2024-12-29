@@ -4713,3 +4713,16 @@ https://www.bilibili.com/video/BV12RChYUERt/
 
 从空境那次开始我就知道总有一天型月宇宙各路人马都会在废狗大联欢，只能说某些破防人多少有些后知后觉
 
+
+*****
+
+####  DARKGRAY  
+##### 15661#       发表于 2024-12-29 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67056247&amp;ptid=2084912" target="_blank">ナルバレック 发表于 2024-12-29 14:22</a>
+
+看起来很像月R志贵+七夜志贵+月蚀蒙眼志贵缝合卡的样子，这大概率五星没跑了吧
+
+ ...</blockquote>
+也可以像两仪式那样一个送一个抽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

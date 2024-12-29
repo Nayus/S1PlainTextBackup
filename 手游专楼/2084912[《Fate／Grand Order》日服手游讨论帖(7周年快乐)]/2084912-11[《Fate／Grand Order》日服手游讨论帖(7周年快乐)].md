@@ -4666,3 +4666,13 @@ https://www.bilibili.com/video/BV12RChYUERt/
 
 又刷了60石 四星点名 gg
 
+
+*****
+
+####  quanlix  
+##### 15656#       发表于 2024-12-29 12:19
+
+雪儿自己的锅自己来善后也合理，这巨型猫姬应该有混沌属性，原版公主估计也能上班
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -6401,3 +6401,17 @@ mortis总结睦感受到的压力祥子开始反思自己不够关心睦，但�
 <img src="https://p.sda1.dev/21/803909616c96578e84b6c32a095d0192/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/cef95bcd341a6f5f81e7598d0428b09a/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  良臣没有重谢  
+##### 5055#       发表于 2024-12-29 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67056944&amp;ptid=2208921" target="_blank">L-JoeW 发表于 2024-12-29 16:53</a>
+推特官号还有献400毫升血送A1海报的活动，本子网友直呼猎奇</blockquote>
+笑点解析，这海报现在煤炉2000日元。
+
+死宅的血真不值钱吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CET-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+

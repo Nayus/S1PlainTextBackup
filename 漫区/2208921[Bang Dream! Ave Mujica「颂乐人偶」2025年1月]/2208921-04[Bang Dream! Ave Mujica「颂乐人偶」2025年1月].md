@@ -6709,3 +6709,20 @@ mortis拿着神蠢里的剑，一边喊着姐姐大人，一边刺向ob小姐的
 
 看到睦变了失魂落魄的小祥会从时间胶囊里翻出自己和睦宝贵的回忆哭哭吗<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ydsbbt  
+##### 5086#       发表于 2024-12-30 00:23
+
+交换发带，女同样板戏<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 5087#       发表于 2024-12-30 00:25
+
+图传不上来，算了直接说
+下个月23号那天有新访谈，反正就是复读了一遍祥子有秘密，祥子是故事的核心人物（主角）
+另外下个月23号那天恰好是第四集播出的日子
+

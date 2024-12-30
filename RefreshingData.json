@@ -1176,7 +1176,7 @@
     "lastedit": 1735527000,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1570791": {
     "totalreply": 7457,
@@ -1257,7 +1257,7 @@
     "lastedit": 1735521000,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1334731": {
     "totalreply": 6055,
@@ -1833,7 +1833,7 @@
     "lastedit": 1735526460,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1904473": {
     "totalreply": 3776,
@@ -2391,7 +2391,7 @@
     "lastedit": 1735528620,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2098519": {
     "totalreply": 14668,
@@ -2553,7 +2553,7 @@
     "lastedit": 1735521060,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1099480": {
     "totalreply": 722,
@@ -4416,7 +4416,7 @@
     "lastedit": 1735525980,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1962013": {
     "totalreply": 901,
@@ -5820,7 +5820,7 @@
     "lastedit": 1735525920,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1988297": {
     "totalreply": 1177,
@@ -6737,7 +6737,7 @@
     "newtitle": "[迷宫饭 TV动画化 TRIGGER扳机社制作 2024年1月 剧透请反白]",
     "lastedit": 1735276828,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2161228": {
@@ -7362,10 +7362,10 @@
     "update": false
   },
   "2170568": {
-    "totalreply": 52703,
+    "totalreply": 52705,
     "title": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
     "newtitle": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
-    "lastedit": 1735535765,
+    "lastedit": 1735536366,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -7587,10 +7587,10 @@
     "update": false
   },
   "2166032": {
-    "totalreply": 578,
+    "totalreply": 579,
     "title": "[尘埃终须落定，拼图叙事与不可言诡计，私人推理游戏专楼2024]",
     "newtitle": "[2024最后一期月报，下个推理楼见，私人推理游戏专楼2024]",
-    "lastedit": 1735529285,
+    "lastedit": 1735536125,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -10845,10 +10845,10 @@
     "update": false
   },
   "2206957": {
-    "totalreply": 1691,
+    "totalreply": 1694,
     "title": "[暖暖ip系列新作《无限暖暖》定档12.05]",
     "newtitle": "[暖暖ip系列新作《无限暖暖》定档12.05]",
-    "lastedit": 1735535285,
+    "lastedit": 1735536485,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -10863,10 +10863,10 @@
     "update": false
   },
   "2208921": {
-    "totalreply": 5119,
+    "totalreply": 5120,
     "title": "[Bang Dream! Ave Mujica「颂乐人偶」2025年1月]",
     "newtitle": "[BanG Dream! Ave Mujica「颂乐人偶」2025年1月(前三集剧透注意)]",
-    "lastedit": 1735535766,
+    "lastedit": 1735536366,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11475,10 +11475,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 11353,
+    "totalreply": 11355,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1735535525,
+    "lastedit": 1735536365,
     "category": "漫区",
     "active": true,
     "update": false
@@ -15899,7 +15899,7 @@
     "newtitle": "[总觉得国产文字游戏没用日本那味是不是因为不能写黄段子]",
     "lastedit": 1735277204,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2220332": {
@@ -17583,7 +17583,7 @@
     "lastedit": 1735493400,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172665": {
     "totalreply": 99,
@@ -17673,7 +17673,7 @@
     "lastedit": 1735460280,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2139499": {
     "totalreply": 103,
@@ -17757,10 +17757,10 @@
     "update": false
   },
   "2234776": {
-    "totalreply": 44,
+    "totalreply": 45,
     "title": "[坛友玩了这么久游戏应该有曾幻想过一款自己的游戏吧？]",
     "newtitle": "[坛友玩了这么久游戏应该有曾幻想过一款自己的游戏吧？]",
-    "lastedit": 1735535526,
+    "lastedit": 1735536484,
     "category": "游戏区",
     "active": true,
     "update": false

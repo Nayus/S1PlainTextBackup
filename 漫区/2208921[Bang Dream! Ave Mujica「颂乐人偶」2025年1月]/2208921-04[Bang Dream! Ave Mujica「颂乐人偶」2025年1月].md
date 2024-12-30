@@ -7509,3 +7509,25 @@ yysy，爱音评价初华和祥子评价soyo都是亚萨西，都是笑着说的
 
 其实最开始就奇怪素在明知睦祥关系好的前提下能把睦当凶手的同时认为祥子是可以挽回的。不过现在差不多该变成你们两个都干了
 
+
+*****
+
+####  银酒监武  
+##### 5171#       发表于 2024-12-30 18:41
+
+soyo最后如果是“就算她们都能原谅你，我也绝不原谅”，不也挺带感的吗
+
+*****
+
+####  akiomn  
+##### 5172#       发表于 2024-12-30 18:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">差不多已经一桌了
+
+Soyo：这一切全是祥子策划的。
+Anon：Soyorin
+立希：一切是指什么？
+Soyo：祥子办了这个乐队，话剧也好曲子也好。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以我很怀疑制作组真的不想让素世参与睦线
+

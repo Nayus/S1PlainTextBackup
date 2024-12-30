@@ -7008,3 +7008,16 @@ wcnm每天都要被吓一次，什么jump scare
 —— 来自 鹅球 v3.3.96</blockquote>
 没有，建议1月16日22:00看完第三话以后再进来
 
+
+*****
+
+####  initium  
+##### 5119#       发表于 2024-12-30 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67061702&amp;ptid=2208921" target="_blank">苇原雪道 发表于 2024-12-30 12:31</a>
+
+有非剧透讨论楼么？
+
+—— 来自 鹅球 v3.3.96</blockquote>
+曾经有过一栋专门剧透的楼，但是这里的人都不肯挪窝，那就只能当没有了
+

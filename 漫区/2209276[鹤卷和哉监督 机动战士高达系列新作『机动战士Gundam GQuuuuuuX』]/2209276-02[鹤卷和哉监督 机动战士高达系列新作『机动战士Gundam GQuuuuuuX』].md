@@ -1870,3 +1870,26 @@ https://www.4gamer.net/games/999 ... ndex_2.html#vic_lee
 作者是@DRAOLDM ？</blockquote>
 DR画的同人是GM，这张图是和红高达图一起流出的疑似情报。
 
+
+*****
+
+####  刺客ares  
+##### 1648#       发表于 2024-12-30 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67060928&amp;ptid=2209276" target="_blank">Gysumitka 发表于 2024-12-30 11:01</a>
+
+主角机型号gMS-Ω
+
+那这图里说的阿尔法不会就是红高达吧</blockquote>
+
+看描述的话，原设女主机是跟阿尔法机成天敌关系
+
+吉翁是为了对付阿尔法机才开发女主机，阿尔法应该是指代一年战争时期的元祖高达吧
+
+结果元祖被鸭子夺走，计划里的阿尔法成了友军，对付阿尔法的欧米茄也就没有派上用场，就这样战后流落到民间？
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+

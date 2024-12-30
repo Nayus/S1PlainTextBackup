@@ -7061,3 +7061,39 @@ wcnm每天都要被吓一次，什么jump scare
 
 看评论数得角色B站人气，海玲人气比初华高好多
 
+
+*****
+
+####  金钱与民主  
+##### 5125#       发表于 2024-12-30 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67062151&amp;ptid=2208921" target="_blank">operatbig 发表于 2024-12-30 13:46</a>
+
+突然想到，海玲不会是毁队狂魔吧，毕竟她呆过的队伍基本都停止活动了。</blockquote>
+你当人家是柳原朋呢...
+
+*****
+
+####  上条仁美  
+##### 5126#       发表于 2024-12-30 15:29
+
+ 本帖最后由 上条仁美 于 2024-12-30 16:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67062833&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2024-12-30 16:19</a>
+
+看评论数得角色B站人气，海玲人气比初华高好多</blockquote>
+虽然总体塑造的不多，但就算算上现在先行3集，她也是二代两团人里黑点最少的一个，外形又飒性格又是好哥们，专业水平还高，还有个高人气的海希CP，人气高很正常。
+
+*****
+
+####  哈曼的YY  
+##### 5127#       发表于 2024-12-30 15:32
+
+原来还有祥老师不管黄瓜死活也要把演出继续下去这种角度 太能找了
+
+*****
+
+####  贰臣  
+##### 5128#       发表于 2024-12-30 15:33
+
+在某些人眼里你祥呼吸都是错<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

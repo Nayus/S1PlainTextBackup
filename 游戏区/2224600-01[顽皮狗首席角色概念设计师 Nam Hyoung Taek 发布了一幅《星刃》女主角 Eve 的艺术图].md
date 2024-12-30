@@ -931,3 +931,16 @@ bg3吧，虽然我个人不是很感冒，但是看反响大部分人还是比�
 
 这人拿手的是画怪物，画萌萌美少女实在不是强项
 
+
+*****
+
+####  riin2  
+##### 96#       发表于 2024-12-30 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67032646&amp;ptid=2224600" target="_blank">FortuneAura 发表于 2024-12-27 11:05</a>
+
+应该倒反天罡，把那些dei角色改成媚宅风格
+
+论坛助手,iPhone</blockquote>
+媚宅abby？我倒是想知道怎么媚<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

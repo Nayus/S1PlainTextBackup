@@ -1833,3 +1833,13 @@ https://www.4gamer.net/games/999 ... ndex_2.html#vic_lee
 平行UC确认——事到如今意义不大了 ...</blockquote>
 严格来说，雷霆宙域已经算是平行UC了。
 
+
+*****
+
+####  Gysumitka  
+##### 1645#       发表于 2024-12-30 11:01
+
+主角机型号gMS-Ω
+<img src="https://p.sda1.dev/21/c600d1fc5f1d355ee171f56bc8393820/image.jpg" referrerpolicy="no-referrer">
+那这图里说的阿尔法不会就是红高达吧<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+

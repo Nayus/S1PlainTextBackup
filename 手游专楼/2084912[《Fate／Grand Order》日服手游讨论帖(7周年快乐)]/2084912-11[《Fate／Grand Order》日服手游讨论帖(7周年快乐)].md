@@ -5406,3 +5406,17 @@ qp要爆了...该点技能了...
 
 明天晚上的剧情只有几个小时可以看，会不会直接引出新年从者呢
 
+
+*****
+
+####  乾理央  
+##### 15735#       发表于 2024-12-30 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67060853&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-12-30 10:53</a>
+打上三和金时一样都是1.5倍克制，攻击力低一点。
+
+自buff方面，金时目前就一个50攻击，幻月是四个乘区都拉 ...</blockquote>
+更适合打阴间本就足够了，你游现在不是阴间本的周回本最大存在意义就是首通送苹果<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

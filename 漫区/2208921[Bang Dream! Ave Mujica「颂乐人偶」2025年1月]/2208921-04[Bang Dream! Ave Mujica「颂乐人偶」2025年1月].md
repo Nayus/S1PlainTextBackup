@@ -6965,3 +6965,22 @@ wcnm每天都要被吓一次，什么jump scare
 
 前面四个人估计正好凑喜哀乐怒 什么御使
 
+
+*****
+
+####  6030sylar  
+##### 5115#       发表于 2024-12-30 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67061179&amp;ptid=2208921" target="_blank">一心而用 发表于 2024-12-30 11:27</a></blockquote>
+都在cos废太子，你们鸡是废太子派的吗
+
+
+*****
+
+####  苇原雪道  
+##### 5116#       发表于 2024-12-30 12:31
+
+有非剧透讨论楼么？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

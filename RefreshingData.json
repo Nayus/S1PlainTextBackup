@@ -1176,7 +1176,7 @@
     "lastedit": 1735527000,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1570791": {
     "totalreply": 7457,
@@ -1257,7 +1257,7 @@
     "lastedit": 1735521000,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1334731": {
     "totalreply": 6055,
@@ -1509,7 +1509,7 @@
     "lastedit": 1735519080,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1861134": {
     "totalreply": 1189,
@@ -1833,7 +1833,7 @@
     "lastedit": 1735526460,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1904473": {
     "totalreply": 3776,
@@ -2391,7 +2391,7 @@
     "lastedit": 1735528620,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2098519": {
     "totalreply": 14668,
@@ -2553,7 +2553,7 @@
     "lastedit": 1735521060,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1099480": {
     "totalreply": 722,
@@ -4416,7 +4416,7 @@
     "lastedit": 1735525980,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1962013": {
     "totalreply": 901,
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 10625,
+    "totalreply": 10627,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》11.14椿色撩人]",
-    "lastedit": 1735533845,
+    "lastedit": 1735534445,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -5820,7 +5820,7 @@
     "lastedit": 1735525920,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1988297": {
     "totalreply": 1177,
@@ -7362,10 +7362,10 @@
     "update": false
   },
   "2170568": {
-    "totalreply": 52700,
+    "totalreply": 52701,
     "title": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
     "newtitle": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
-    "lastedit": 1735533844,
+    "lastedit": 1735534445,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -10845,10 +10845,10 @@
     "update": false
   },
   "2206957": {
-    "totalreply": 1684,
+    "totalreply": 1686,
     "title": "[暖暖ip系列新作《无限暖暖》定档12.05]",
     "newtitle": "[暖暖ip系列新作《无限暖暖》定档12.05]",
-    "lastedit": 1735533965,
+    "lastedit": 1735534684,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11357,15 +11357,6 @@
     "active": false,
     "update": false
   },
-  "2210149": {
-    "totalreply": 88,
-    "title": "[支付宝和微信支付在泥潭的奇怪状况]",
-    "newtitle": "[支付宝和微信支付在泥潭的奇怪状况]",
-    "lastedit": 1734324993,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
   "1972153": {
     "totalreply": 526,
     "title": "[乌贼娘新书《长夜余火》 集中讨论贴]",
@@ -11493,10 +11484,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 11335,
+    "totalreply": 11340,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1735533727,
+    "lastedit": 1735534565,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11807,15 +11798,6 @@
     "active": false,
     "update": false
   },
-  "2205689": {
-    "totalreply": 116,
-    "title": "[开高德导航去吃汤咖喱，然后拐进胡同蹭了车]",
-    "newtitle": "[开高德导航去吃汤咖喱，然后拐进胡同蹭了车]",
-    "lastedit": 1734324508,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
   "2210507": {
     "totalreply": 49,
     "title": "[爹妈要买辆几万块的纯电小车，怎么选？]",
@@ -11885,15 +11867,6 @@
     "newtitle": "[QQ音乐私自篡改用户数据给瘟💩刷数据]",
     "lastedit": 1735004430,
     "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2064989": {
-    "totalreply": 201,
-    "title": "[事与愿违的不死冒险者 TV动画化 2024年1月]",
-    "newtitle": "[事与愿违的不死冒险者 TV动画化 2024年1月]",
-    "lastedit": 1734324980,
-    "category": "漫区",
     "active": false,
     "update": false
   },
@@ -12654,10 +12627,10 @@
     "update": false
   },
   "2204626": {
-    "totalreply": 141,
+    "totalreply": 145,
     "title": "[转型安达充作品补完记录，当前进度：虹色辣椒√]",
     "newtitle": "[转型安达充作品补完记录，当前进度：H2]",
-    "lastedit": 1735533727,
+    "lastedit": 1735534565,
     "category": "漫区",
     "active": true,
     "update": false
@@ -15278,7 +15251,7 @@
     "newtitle": "[食仙主有专楼么？好久没看到这么爽快的……新人作者了？]",
     "lastedit": 1735275131,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2219070": {
@@ -17628,7 +17601,7 @@
     "lastedit": 1735493400,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172665": {
     "totalreply": 99,
@@ -17718,7 +17691,7 @@
     "lastedit": 1735460280,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2139499": {
     "totalreply": 103,
@@ -17730,10 +17703,10 @@
     "update": false
   },
   "2234750": {
-    "totalreply": 74,
+    "totalreply": 75,
     "title": "[假如小机器人上pc上steam了，风评稍微能扭转一点吗]",
     "newtitle": "[假如小机器人上pc上steam了，风评稍微能扭转一点吗]",
-    "lastedit": 1735530486,
+    "lastedit": 1735534326,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17793,10 +17766,10 @@
     "update": false
   },
   "2233385": {
-    "totalreply": 47,
+    "totalreply": 48,
     "title": "[麻烦大家推荐能跟小学一年级小朋友玩的桌游]",
     "newtitle": "[麻烦大家推荐能跟小学一年级小朋友玩的桌游]",
-    "lastedit": 1735532766,
+    "lastedit": 1735534326,
     "category": "游戏区",
     "active": true,
     "update": false

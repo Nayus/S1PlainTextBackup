@@ -7549,3 +7549,17 @@ Soyo：祥子办了这个乐队，话剧也好曲子也好。
 
 看到祥子的脸，直接张开嘴，说不出话。
 
+
+*****
+
+####  PDQ4  
+##### 5175#       发表于 2024-12-30 19:22
+
+我现在担心的是爽祥关系性被独角兽拆了，连BE都没有机会
+
+本来以为祥子真的是爽姐白月光，如果爽姐因为祥子组鸡就恨上她了，那说明白月光是ccc这个架子，而不是祥子
+
+13集结尾算什么，漫画还给你丝滑连招，这是诈骗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+这也是我开播前为什么那么不想爽姐动，现在日子好好过就是了，她不动还能留下美好的回忆，动了那可能真的就连回忆变得难堪<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

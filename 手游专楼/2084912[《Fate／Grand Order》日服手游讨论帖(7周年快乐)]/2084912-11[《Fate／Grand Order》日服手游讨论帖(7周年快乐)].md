@@ -5815,3 +5815,11 @@ AE本，ban了学姐继续强抬公主。
 欧 羡慕</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">欧个头...我都不想说吃了几个硬保底
 
+
+*****
+
+####  khxooo  
+##### 15780#       发表于 2024-12-30 20:45
+
+数了数，除去福袋出的烟雾镜和司马懿，自选选了个梅芙外，今年NEW了16个五星，好像还可以<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+

@@ -1906,3 +1906,18 @@ DR画的同人是GM，这张图是和红高达图一起流出的疑似情报。
 吉翁是为了对付阿尔法机才开发女主机，阿尔法应该是指 ...</blockquote>
 也可能是因为修司驾驶红高达重新活跃才造出来的
 
+
+*****
+
+####  刺客ares  
+##### 1650#       发表于 2024-12-30 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67062099&amp;ptid=2209276" target="_blank">Gysumitka 发表于 2024-12-30 13:36</a>
+
+也可能是因为修司驾驶红高达重新活跃才造出来的</blockquote>
+看官网强调了神秘“最新”型，那应该不会是六年前的老机体了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+是战后造的吧，为了针对反吉翁的红高达？
+
+牢修知道了会不会冒冷汗啊，队友一直开着的MS是专门研发出来杀自己的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

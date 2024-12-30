@@ -5474,3 +5474,21 @@ qp要爆了...该点技能了...
 
 什么还有柱子啊，饶了我吧……
 
+
+*****
+
+####  壳壳牛  
+##### 15742#       发表于 2024-12-30 13:54
+
+神经病啊还来
+活动预告里只有29号一次柱子啊，又在藏什么玩意儿...
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  alucardcz  
+##### 15743#       发表于 2024-12-30 13:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">自然回萌新无所畏惧
+

@@ -1893,3 +1893,16 @@ DR画的同人是GM，这张图是和红高达图一起流出的疑似情报。
 
 ×
 
+
+*****
+
+####  Gysumitka  
+##### 1649#       发表于 2024-12-30 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67061930&amp;ptid=2209276" target="_blank">刺客ares 发表于 2024-12-30 13:05</a>
+
+看描述的话，原设女主机是跟阿尔法机成天敌关系
+
+吉翁是为了对付阿尔法机才开发女主机，阿尔法应该是指 ...</blockquote>
+也可能是因为修司驾驶红高达重新活跃才造出来的
+

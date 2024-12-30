@@ -6922,3 +6922,20 @@ https://x.com/hanamukes/status/1873463728802533384?s=46&amp;t=IZGx0N13SOtHALpwG0
 
 海铃这个也他妈太邪门了<img src="https://static.saraba1st.com/image/smiley/goose2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  影伴光生  
+##### 5110#       发表于 2024-12-30 11:52
+
+ave mujica才是最该做不要笑挑战的那个团——表情管理也太难绷了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  山ノ内花音  
+##### 5111#       发表于 2024-12-30 11:54
+
+弦卷心会狂喜吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

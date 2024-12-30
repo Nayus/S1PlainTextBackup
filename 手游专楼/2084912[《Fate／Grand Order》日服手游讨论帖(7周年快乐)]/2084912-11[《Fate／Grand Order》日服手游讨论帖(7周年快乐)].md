@@ -5579,3 +5579,44 @@ AE本，ban了学姐继续强抬公主。
 
 先拿狮子王打晕发牌员，借好友月p打1t了
 
+
+*****
+
+####  quanlix  
+##### 15754#       发表于 2024-12-30 17:34
+
+不是，怎么把战斗中bgm给换了，我要听GCV啊
+
+
+*****
+
+####  保罗赫伯特  
+##### 15755#       发表于 2024-12-30 17:40
+
+换faker了，兽蕾还是上不了场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jacatay  
+##### 15756#       发表于 2024-12-30 17:40
+
+无限池+柱子1+柱子2 全是临时通知 咸鱼的大胜利<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jackyhuang  
+##### 15757#       发表于 2024-12-30 17:41
+
+六千万恐怕要打不完了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  乾理央  
+##### 15758#       发表于 2024-12-30 17:43
+
+还新增了个能无限兑换的咖喱饭素材，虽然不是每把必掉，但昨天刷的又成一次**了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

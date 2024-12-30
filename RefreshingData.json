@@ -87,7 +87,7 @@
     "lastedit": 1735550460,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2041774": {
     "totalreply": 16972,
@@ -351,10 +351,10 @@
     "update": false
   },
   "2084912": {
-    "totalreply": 15753,
+    "totalreply": 15758,
     "title": "[《Fate／Grand Order》日服手游讨论帖(7周年快乐)]",
     "newtitle": "[FGO日服讨论帖]",
-    "lastedit": 1735551006,
+    "lastedit": 1735551846,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -1176,7 +1176,7 @@
     "lastedit": 1735527000,
     "category": "手游专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1570791": {
     "totalreply": 7457,
@@ -1257,7 +1257,7 @@
     "lastedit": 1735550100,
     "category": "手游专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1334731": {
     "totalreply": 6055,
@@ -1833,7 +1833,7 @@
     "lastedit": 1735526460,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1904473": {
     "totalreply": 3776,
@@ -2232,10 +2232,10 @@
     "update": false
   },
   "2068301": {
-    "totalreply": 13439,
+    "totalreply": 13443,
     "title": "[【绝区零】调率测试结束 咖啡馆 141718492]",
     "newtitle": "[绝区零 咖啡馆 交流群 141718492 更多情报 2024年公布]",
-    "lastedit": 1735551247,
+    "lastedit": 1735551845,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -2391,7 +2391,7 @@
     "lastedit": 1735528620,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2098519": {
     "totalreply": 14668,
@@ -2553,7 +2553,7 @@
     "lastedit": 1735521060,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1099480": {
     "totalreply": 722,
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 10636,
+    "totalreply": 10638,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》11.14椿色撩人]",
-    "lastedit": 1735550051,
+    "lastedit": 1735551846,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -5820,7 +5820,7 @@
     "lastedit": 1735551240,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1988297": {
     "totalreply": 1177,
@@ -6711,7 +6711,7 @@
     "lastedit": 1735544880,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2160853": {
     "totalreply": 823,
@@ -10965,10 +10965,10 @@
     "totalreply": 1658,
     "title": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
     "newtitle": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
-    "lastedit": 1735548126,
+    "lastedit": 1735551720,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2209252": {
     "totalreply": 4531,
@@ -11570,15 +11570,6 @@
     "newtitle": "[所以你们还看TGA吗]",
     "lastedit": 1734940459,
     "category": "游戏区",
-    "active": false,
-    "update": false
-  },
-  "2210514": {
-    "totalreply": 85,
-    "title": "[6828份“性萧条”调查：年轻人和中产消失的性生活]",
-    "newtitle": "[6828份“性萧条”调查：年轻人和中产消失的性生活]",
-    "lastedit": 1734341907,
-    "category": "外野",
     "active": false,
     "update": false
   },
@@ -16421,7 +16412,7 @@
     "newtitle": "[小黑盒算游戏圈的小红书吗？]",
     "lastedit": 1735292293,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2124722": {
@@ -16880,7 +16871,7 @@
     "newtitle": "[冬天小腿好痒好痒好痒好痒好痒好痒好痒好痒好痒怎么办啊]",
     "lastedit": 1735292414,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2224591": {
@@ -17649,10 +17640,10 @@
     "update": false
   },
   "2234802": {
-    "totalreply": 84,
+    "totalreply": 86,
     "title": "[中国风开放世界生活模拟RPG《烽火与炊烟》新实机预告公开]",
     "newtitle": "[中国风开放世界生活模拟RPG《烽火与炊烟》新实机预告公开]",
-    "lastedit": 1735551007,
+    "lastedit": 1735551965,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17688,9 +17679,9 @@
     "totalreply": 0,
     "title": "[试毒也可以那么销魂《药屋少女的呢喃》]",
     "newtitle": "[]",
-    "lastedit": 1735545420,
+    "lastedit": 1735551600,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   }
 }

@@ -886,3 +886,16 @@ bg3吧，虽然我个人不是很感冒，但是看反响大部分人还是比�
 
 往好了说，至少不是五短身材呢<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  我不是夏承凛  
+##### 91#         楼主| 发表于 2024-12-30 09:26
+
+继上次引发争议的《星刃》女主角 EVE 艺术图之后，顽皮狗画师 Nam Hyoung Taek 再次为 EVE 绘制了一幅新图，这次似乎能得到玩家的认可....
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+

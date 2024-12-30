@@ -21,3 +21,16 @@
 
 4.网上的猜测完全不正确，仅凭初期透露的视频是无法预测的
 
+
+*****
+
+####  Demi.Albertini  
+##### 44#       发表于 2024-12-30 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67059413&amp;ptid=2210361" target="_blank">Piano-Forest 发表于 2024-12-30 01:03</a>
+
+https://weibo.com/5798449915/5116231506199027
+
+横山在龙TV#36中透露新作Project Century一些信息：</blockquote>
+他还补充说，而且这个“暂”是比较长的一段时间……
+

@@ -1820,3 +1820,16 @@ oped应该是两个索系的，看关系吧
 
 最迟1.15前会发，这也算半个年度大tie了
 
+
+*****
+
+####  Toby_dak  
+##### 1644#       发表于 2024-12-30 08:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67058712&amp;ptid=2209276" target="_blank">灵魂收割机 发表于 2024-12-29 23:33</a>
+
+https://www.4gamer.net/games/999 ... ndex_2.html#vic_lee
+
+平行UC确认——事到如今意义不大了 ...</blockquote>
+严格来说，雷霆宙域已经算是平行UC了。
+

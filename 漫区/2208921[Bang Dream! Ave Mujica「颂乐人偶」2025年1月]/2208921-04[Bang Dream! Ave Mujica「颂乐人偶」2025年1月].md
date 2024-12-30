@@ -7408,3 +7408,37 @@ mortis不是“连祥子都讨厌”而是“最讨厌祥子”
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">制作组的意思很明显了，哪怕是黑睦，对祥子是“最讨厌的祥子了”，那么白睦肯定是最喜欢祥子，睦对祥子是爱恨到了极致。还有被贴吧挖出来的黑睦吞白睦那段睦的个人bgm夹私货2分14秒，以及睦回忆里祥子占绝大部分，都是突出睦祥彻底绑死，别的角色别想着来亲自解决睦的问题，顶多是给祥子打助攻（特别是素世那段我怀疑是要掐死动画里的素睦，素世虽然不装了但也没给睦好脸色，也算加速睦的崩溃了）
 
+
+*****
+
+####  Aendst  
+##### 5162#       发表于 2024-12-30 17:13
+
+ 本帖最后由 Aendst 于 2024-12-30 17:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67063669&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-30 17:07</a>
+
+制作组的意思很明显了，哪怕是黑睦，对祥子是“最讨厌的祥子了”，那么白睦肯定是最喜欢祥子，睦对祥子是爱 ...</blockquote>
+其实夹私货这个，我觉得不是私货
+
+#8的飞鸟山是两首不同的track剪在一起的，所以不是原时长
+
+而睦个人的theme可哀想なお人形（无印版本）这首本来时长就是2分14秒
+
+忘记第三话最后是不是这首了，但如果是这首的话其实有可能只是单纯把全曲放完了而已
+
+我觉得这只是一个巧合
+
+*****
+
+####  akiomn  
+##### 5163#       发表于 2024-12-30 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67063734&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-30 17:13</a>
+其实夹私货这个，我觉得不是私货
+
+#8的飞鸟山是两首不同的track剪在一起的
+
+而睦个人的theme可哀想なお人形 ...</blockquote>
+第三话是这首，飞鸟山那边时长2分10秒，睦个人曲是214
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然我觉得214这个时长本身就带点意味
+

@@ -5420,3 +5420,15 @@ qp要爆了...该点技能了...
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  khxooo  
+##### 15736#       发表于 2024-12-30 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67060778&amp;ptid=2084912" target="_blank">乾理央 发表于 2024-12-30 10:45</a>
+羁绊石把p公主捞出来了，顺带学姐也喜提12绊，看评测好像说p公主也是很强的单体？
+
+不说接班学姐这个论外， ...</blockquote>
+你叫公主打下三试试<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，各个红单体或者在某个范围内比金时强，但是金时胜在万物平等，管你什么混沌、恶什么的，一斧子下去直接给你干碎。
+

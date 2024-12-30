@@ -1771,3 +1771,19 @@ deideidei，女校，落地窗，二人的相逢，神明……圣妈啥时候�
 FES</blockquote>
 SOYO现在的画风再结合漫画应该坐实官方就是有意往16岁离婚贵妇方向塑造了
 
+
+*****
+
+####  CyDiablo  
+##### 26781#       发表于 2024-12-30 19:01
+
+ 本帖最后由 CyDiablo 于 2024-12-30 19:03 编辑 
+
+新活动剧情文本
+[[日服][资讯][新活动] 12.31 初春きたりて爽風吹けば [更新卡面][更新剧情文本/机翻]](https://bbs.nga.cn/read.php?tid=42847721)
+
+[【【音频】STEP by STEP UP↑↑↑↑ - Poppin'Party-哔哩哔哩】](https://b23.tv/b529ZVN)
+
+邦邦企划10周年Morfonica服装主视觉图公开
+<img src="https://p.sda1.dev/21/f719defaf7a76ee7e546808de55dcc90/Image_221099784462409.png" referrerpolicy="no-referrer">
+

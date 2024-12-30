@@ -1857,3 +1857,16 @@ https://www.4gamer.net/games/999 ... ndex_2.html#vic_lee
 
 作者是@DRAOLDM ？
 
+
+*****
+
+####  灵魂收割机  
+##### 1647#       发表于 2024-12-30 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67061019&amp;ptid=2209276" target="_blank">0aleph37 发表于 2024-12-30 11:12</a>
+
+这图我记得是同人来着？
+
+作者是@DRAOLDM ？</blockquote>
+DR画的同人是GM，这张图是和红高达图一起流出的疑似情报。
+

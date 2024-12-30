@@ -6877,3 +6877,48 @@ https://x.com/hanamukes/status/1873463728802533384?s=46&amp;t=IZGx0N13SOtHALpwG0
 
 什么同人小剧场才会出现的小眼表情。。
 
+
+*****
+
+####  阿萨德飞过去  
+##### 5105#       发表于 2024-12-30 11:26
+
+看样子是和op相符的，喵梦应该就是愤怒打鼓了
+那祥子正面微笑还是背身过去
+
+*****
+
+####  一心而用  
+##### 5106#       发表于 2024-12-30 11:27
+
+<img src="https://p.sda1.dev/21/47a0105ddfc36e7f494809250043035f/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 5107#       发表于 2024-12-30 11:27
+
+<img src="https://p.sda1.dev/21/7abfb0fbbfe3d48e3cbadd3ef46b1a1a/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  桜庭千景  
+##### 5108#       发表于 2024-12-30 11:32
+
+目前出来的三张都是op表情，那我们来选小祥的可用表情吧
+
+阿这，竟然一张鬼图都没有 祥子怎么这么坏啊.jpg
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  fufusako  
+##### 5109#       发表于 2024-12-30 11:33
+
+海铃这个也他妈太邪门了<img src="https://static.saraba1st.com/image/smiley/goose2017/057.png" referrerpolicy="no-referrer">
+

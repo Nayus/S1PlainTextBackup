@@ -7563,3 +7563,13 @@ Soyo：祥子办了这个乐队，话剧也好曲子也好。
 
 这也是我开播前为什么那么不想爽姐动，现在日子好好过就是了，她不动还能留下美好的回忆，动了那可能真的就连回忆变得难堪<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  桜庭千景  
+##### 5176#       发表于 2024-12-30 20:10
+
+没事，他们还会嘴硬是抄底的好时候，后面怎么走都是赢
+
+话说抄底这个我怎么感觉ep12就听见在说了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

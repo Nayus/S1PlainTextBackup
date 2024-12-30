@@ -7097,3 +7097,24 @@ wcnm每天都要被吓一次，什么jump scare
 
 在某些人眼里你祥呼吸都是错<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qjw114514  
+##### 5129#       发表于 2024-12-30 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67062922&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2024-12-30 15:32</a>
+原来还有祥老师不管黄瓜死活也要把演出继续下去这种角度 太能找了</blockquote>
+啊？怎么看起来像某种抱憾终身文学<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 5130#       发表于 2024-12-30 15:41
+
+ 本帖最后由 Aendst 于 2024-12-30 15:43 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有的时候真不知道有些人是该看眼科还是脑科
+
+祥子已经是所有人里唯一在真正关心睦的那一个了，可以说她关心得还不够到位，全给颠倒是非说成祥子的锅是家里缺磁铁吗要从纸片人上找磁力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

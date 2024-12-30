@@ -7053,3 +7053,11 @@ wcnm每天都要被吓一次，什么jump scare
 
 <img src="https://p.sda1.dev/21/6ed13a0e36d3cb8be191af78a3b98476/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 5124#       发表于 2024-12-30 15:19
+
+看评论数得角色B站人气，海玲人气比初华高好多
+

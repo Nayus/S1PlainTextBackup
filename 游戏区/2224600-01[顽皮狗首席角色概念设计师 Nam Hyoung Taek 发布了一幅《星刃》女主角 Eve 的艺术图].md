@@ -907,3 +907,11 @@ bg3吧，虽然我个人不是很感冒，但是看反响大部分人还是比�
 
 认可个屁！还不是丑，滚！
 
+
+*****
+
+####  丹德里恩  
+##### 93#       发表于 2024-12-30 10:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这不还是....画得不咋的嘛
+

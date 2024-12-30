@@ -5547,3 +5547,13 @@ AE本，ban了学姐继续强抬公主。
 
 商店加了10个活动茶壶记得换<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 15750#       发表于 2024-12-30 17:17
+
+新增了掉落素材咖喱饭，可以在商店无限兑换兽毛、炉心、灵子、罪矢、书页。
+
+要是再告诉我新的柱子连羁绊值都比昨天的高我就要崩溃了...
+

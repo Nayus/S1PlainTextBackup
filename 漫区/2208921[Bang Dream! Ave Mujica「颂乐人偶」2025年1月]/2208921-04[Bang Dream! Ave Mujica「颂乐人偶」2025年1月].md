@@ -7531,3 +7531,21 @@ Soyo：祥子办了这个乐队，话剧也好曲子也好。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以我很怀疑制作组真的不想让素世参与睦线
 
+
+*****
+
+####  Aendst  
+##### 5173#       发表于 2024-12-30 18:45
+
+第二话一开始的设计也很有意思，爱音只对爽世提了祥子，然后爽世原本就很黑的脸甚至更加黑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  山ノ内花音  
+##### 5174#       发表于 2024-12-30 18:50
+
+看到睦的脸，soyo“噓！”，就像一般吃瓜群众遇到震惊事件
+
+看到祥子的脸，直接张开嘴，说不出话。
+

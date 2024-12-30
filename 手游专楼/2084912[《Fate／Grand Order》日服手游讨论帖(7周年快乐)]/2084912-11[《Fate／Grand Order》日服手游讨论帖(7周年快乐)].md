@@ -5757,3 +5757,19 @@ AE本，ban了学姐继续强抬公主。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正到时间直接打响指
 
+
+*****
+
+####  風卷豹  
+##### 15774#       发表于 2024-12-30 19:38
+
+没抽到月批，刷起来好痛苦，幸好好友基本都抽到了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  森兰丸  
+##### 15775#       发表于 2024-12-30 19:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">今年也马上要结束了啊...看了下今年一共才抽了13个五星....其中还歪了4个完全不想要的常驻...黑到姥姥家了
+

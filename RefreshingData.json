@@ -87,7 +87,7 @@
     "lastedit": 1735550460,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2041774": {
     "totalreply": 16972,
@@ -351,10 +351,10 @@
     "update": false
   },
   "2084912": {
-    "totalreply": 15773,
+    "totalreply": 15775,
     "title": "[《Fate／Grand Order》日服手游讨论帖(7周年快乐)]",
     "newtitle": "[FGO日服讨论帖]",
-    "lastedit": 1735557124,
+    "lastedit": 1735559284,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -1176,7 +1176,7 @@
     "lastedit": 1735527000,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1570791": {
     "totalreply": 7457,
@@ -1254,10 +1254,10 @@
     "totalreply": 46885,
     "title": "[Fate／Grand Order 国服专楼 9／11 伪无限池？]",
     "newtitle": "[]",
-    "lastedit": 1735554300,
+    "lastedit": 1735558860,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1334731": {
     "totalreply": 6055,
@@ -1833,7 +1833,7 @@
     "lastedit": 1735526460,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1904473": {
     "totalreply": 3776,
@@ -2391,7 +2391,7 @@
     "lastedit": 1735528620,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2098519": {
     "totalreply": 14668,
@@ -5817,10 +5817,10 @@
     "totalreply": 16148,
     "title": "[新机病栋，谁是大的？]",
     "newtitle": "[]",
-    "lastedit": 1735558140,
+    "lastedit": 1735558920,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1988297": {
     "totalreply": 1177,
@@ -6711,7 +6711,7 @@
     "lastedit": 1735556280,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2160853": {
     "totalreply": 823,
@@ -7365,7 +7365,7 @@
     "totalreply": 52747,
     "title": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
     "newtitle": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
-    "lastedit": 1735558084,
+    "lastedit": 1735558920,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -9330,7 +9330,7 @@
     "lastedit": 1735553100,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1089780": {
     "totalreply": 2209,
@@ -10805,7 +10805,7 @@
     "newtitle": "[给JRPG小饕安利轨迹，更新：零碧已通，开始FC]",
     "lastedit": 1735299857,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2208663": {
@@ -10845,10 +10845,10 @@
     "update": false
   },
   "2206957": {
-    "totalreply": 1722,
+    "totalreply": 1724,
     "title": "[暖暖ip系列新作《无限暖暖》定档12.05]",
     "newtitle": "[暖暖ip系列新作《无限暖暖》定档12.05]",
-    "lastedit": 1735558206,
+    "lastedit": 1735559045,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11466,10 +11466,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 11582,
+    "totalreply": 11583,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1735558206,
+    "lastedit": 1735558805,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11858,15 +11858,6 @@
     "newtitle": "[想问一下，现在讨论连对角色发情都不允许了吗？]",
     "lastedit": 1734403698,
     "category": "漫区",
-    "active": false,
-    "update": false
-  },
-  "2210660": {
-    "totalreply": 71,
-    "title": "[海昏侯出土蒸馏器复制品成功蒸馏出酒]",
-    "newtitle": "[海昏侯出土蒸馏器复制品成功蒸馏出酒]",
-    "lastedit": 1734349350,
-    "category": "外野",
     "active": false,
     "update": false
   },
@@ -16821,10 +16812,10 @@
     "update": false
   },
   "2088649": {
-    "totalreply": 404,
+    "totalreply": 405,
     "title": "[武侠游戏新作《燕云十六声》7月26日公测]",
     "newtitle": "[武侠游戏新作《燕云十六声》7月26日公测]",
-    "lastedit": 1735557845,
+    "lastedit": 1735559045,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16979,7 +16970,7 @@
     "newtitle": "[Xbox主机EA游戏十连送]",
     "lastedit": 1735299249,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2224666": {
@@ -17664,7 +17655,7 @@
     "lastedit": 1735551600,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2175566": {
     "totalreply": 183,
@@ -17676,10 +17667,10 @@
     "update": false
   },
   "2120716": {
-    "totalreply": 375,
+    "totalreply": 376,
     "title": "[3DM总监什么身体素质]",
     "newtitle": "[3DM总监什么身体素质]",
-    "lastedit": 1735556531,
+    "lastedit": 1735558805,
     "category": "游戏区",
     "active": true,
     "update": false

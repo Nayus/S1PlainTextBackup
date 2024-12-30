@@ -7472,3 +7472,25 @@ yysy，爱音评价初华和祥子评价soyo都是亚萨西，都是笑着说的
 
 那多多少少有点完全不熟的感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 5167#       发表于 2024-12-30 18:03
+
+爽姐这么情绪化的人，她对于ccc越在乎，越对睦不可能有好脸色
+她被拉回狗甚至都要闹别扭嘴硬，到底为什么会觉得把睦当成罪人情况下，会对睦有关心
+是不是太看不起ccc在爽世心中的重量了
+
+不过制作组不选择冷处理也要维持爽姐人设让她怨妇，虽然情理之中但是对爽姐也挺过分的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+以及爽祥后面不知道会不会有变化，虽然漫画卖的和我意料之中一样，但是过来说祥子那段的语气和表情真的也挺怨妇
+感觉爽姐心里睦祥马上一桌了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 5168#       发表于 2024-12-30 18:06
+
+……爽世不会变成某种层面上的铁血木箱姐吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

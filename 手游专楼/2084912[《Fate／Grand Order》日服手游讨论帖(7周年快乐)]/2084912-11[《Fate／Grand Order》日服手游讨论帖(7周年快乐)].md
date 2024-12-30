@@ -5674,3 +5674,37 @@ AE本，ban了学姐继续强抬公主。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">月批带倍卡后排 学姐锁卡换上来配合梅狐宝红红凑合打了 再摸60个羁绊石头就跑了这么刷下去太费手指了
 
+
+*****
+
+####  jackyhuang  
+##### 15764#       发表于 2024-12-30 17:58
+
+这新战斗BGM该不会要拿来做标题界面的BGM吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  qixinno2  
+##### 15765#       发表于 2024-12-30 18:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我选择用学姐直接打2T 反正第二回合学姐NP也够放宝具 直接1T宝BB 2T宝具解决
+
+*****
+
+####  jackyhuang  
+##### 15766#       发表于 2024-12-30 18:04
+
+好友开始有人挂仇尼托了，试了下感觉不如奥宝
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  rollingusagi  
+##### 15767#       发表于 2024-12-30 18:05
+
+学姐可以1t的，梅林杀狐换rba就行，然后记得被动换成对ae加伤的那个
+

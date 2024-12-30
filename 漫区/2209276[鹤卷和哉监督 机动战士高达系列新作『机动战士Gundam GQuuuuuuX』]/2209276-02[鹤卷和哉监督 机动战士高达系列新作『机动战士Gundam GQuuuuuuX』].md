@@ -1975,3 +1975,16 @@ DR画的同人是GM，这张图是和红高达图一起流出的疑似情报。
 
 枪存在感也低，这次主打斧子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刺客ares  
+##### 1657#       发表于 2024-12-30 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67062226&amp;ptid=2209276" target="_blank">Gysumitka 发表于 2024-12-30 13:57</a>
+
+有点好奇女主是怎么搞到的</blockquote>
+看简介所属黑拳组织，女主看PV是主动找黑拳组织当驾驶员才拿到GQX和白色哈啰，驾驶服和针织帽其实也是黑拳组织给的。女主在打黑拳之前就是纯一般路过JK，和狸猫这种开局自带机体的不是一回事。应该说黑拳组织不简单，能搞到NT特化量产型高达，多少沾点军事背景。
+
+设定图头部和现在不一样，可能是女主之前的驾驶员是普通自然人开不了神棍系统，所以头部被摧毁，现在这个头是后换的，所以GQX主体仍然是升重高达，欧米茄系统啥的也都有，只不过改修后换了个名字继续参赛。
+

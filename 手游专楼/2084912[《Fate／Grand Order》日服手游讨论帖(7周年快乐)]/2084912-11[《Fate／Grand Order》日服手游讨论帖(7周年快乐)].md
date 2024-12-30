@@ -5773,3 +5773,24 @@ AE本，ban了学姐继续强抬公主。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">今年也马上要结束了啊...看了下今年一共才抽了13个五星....其中还歪了4个完全不想要的常驻...黑到姥姥家了
 
+
+*****
+
+####  alucardcz  
+##### 15776#       发表于 2024-12-30 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67064641&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-12-30 19:42</a>
+
+今年也马上要结束了啊...看了下今年一共才抽了13个五星....其中还歪了4个完全不想要的常驻...黑到姥姥家了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">豹豹又2豹 你这13个5星多少个是5宝的！
+
+*****
+
+####  qixinno2  
+##### 15777#       发表于 2024-12-30 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67064641&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-12-30 19:42</a>
+
+今年也马上要结束了啊...看了下今年一共才抽了13个五星....其中还歪了4个完全不想要的常驻...黑到姥姥家了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">欧 羡慕
+

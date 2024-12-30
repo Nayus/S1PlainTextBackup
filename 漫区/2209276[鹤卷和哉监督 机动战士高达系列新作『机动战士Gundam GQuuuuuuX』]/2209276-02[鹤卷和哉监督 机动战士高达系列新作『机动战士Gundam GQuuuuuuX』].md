@@ -1921,3 +1921,24 @@ DR画的同人是GM，这张图是和红高达图一起流出的疑似情报。
 
 牢修知道了会不会冒冷汗啊，队友一直开着的MS是专门研发出来杀自己的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Gysumitka  
+##### 1651#       发表于 2024-12-30 13:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67062186&amp;ptid=2209276" target="_blank">刺客ares 发表于 2024-12-30 13:51</a>
+看官网强调了神秘“最新”型，那应该不会是六年前的老机体了
+
+是战后造的吧，为了针对反吉翁的红高达？
+
+牢 ...</blockquote>
+有点好奇女主是怎么搞到的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  0aleph37  
+##### 1652#       发表于 2024-12-30 14:00
+
+这台机体搭载的欧米伽塞克谬系统是战后禁止开发的，以此推断应该是战争时期开发的吧？
+

@@ -7452,3 +7452,23 @@ mortis不是“连祥子都讨厌”而是“最讨厌祥子”
 
 无奈还真有不少人看个一笔带过的评价都能开香槟，明明刚刚才莫名奇妙又跑过来压力一次，还能接上舞了一年的暗恋假药还什么要寻求爽姐怀抱的，搞得这些人自推的爽姐也精分了一样，脑子多少沾点字母圈了
 
+
+*****
+
+####  pipaopo  
+##### 5165#       发表于 2024-12-30 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67063829&amp;ptid=2208921" target="_blank">allesdg 发表于 2024-12-30 17:20</a>
+
+这么说可能有点冒犯，亚萨西在日本是不是总是在没有别的词了的时候才用（开个玩笑
+
+无奈还真有不少人看个一 ...</blockquote>
+yysy，爱音评价初华和祥子评价soyo都是亚萨西，都是笑着说的，特别是爱音，感觉像是高潮一样
+
+*****
+
+####  Aendst  
+##### 5166#       发表于 2024-12-30 17:31
+
+那多多少少有点完全不熟的感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

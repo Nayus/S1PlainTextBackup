@@ -5708,3 +5708,28 @@ AE本，ban了学姐继续强抬公主。
 
 学姐可以1t的，梅林杀狐换rba就行，然后记得被动换成对ae加伤的那个
 
+
+*****
+
+####  khxooo  
+##### 15768#       发表于 2024-12-30 18:14
+
+还有新增咖喱饭掉落换材料哦，昨晚用完苹果的人亏惨了<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 15769#       发表于 2024-12-30 18:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">年底整这种烂活连发 都不是欠骂 纯粹欠抽
+
+
+*****
+
+####  jackyhuang  
+##### 15770#       发表于 2024-12-30 18:22
+
+有什么亏的，能换黑灰煌星吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

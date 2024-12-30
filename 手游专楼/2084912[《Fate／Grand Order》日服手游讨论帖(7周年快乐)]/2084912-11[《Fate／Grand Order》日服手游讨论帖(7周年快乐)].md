@@ -5432,3 +5432,30 @@ qp要爆了...该点技能了...
 不说接班学姐这个论外， ...</blockquote>
 你叫公主打下三试试<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，各个红单体或者在某个范围内比金时强，但是金时胜在万物平等，管你什么混沌、恶什么的，一斧子下去直接给你干碎。
 
+
+*****
+
+####  DARKGRAY  
+##### 15737#       发表于 2024-12-30 12:18
+
+刚才弹了个消息通知，似乎还有新柱子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 15738#       发表于 2024-12-30 12:20
+
+就剩铜苹果了，谁爱刷谁刷吧，希望不要掉我缺的那堆素材...
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  岸浪白野  
+##### 15739#       发表于 2024-12-30 12:20
+
+今天还有新的柱子啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

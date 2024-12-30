@@ -915,3 +915,11 @@ bg3吧，虽然我个人不是很感冒，但是看反响大部分人还是比�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这不还是....画得不咋的嘛
 
+
+*****
+
+####  赤井稻妻  
+##### 94#       发表于 2024-12-30 10:07
+
+其实我想说原图画得还可以啊，新发的这张也太刻意了，还不如原来那张
+

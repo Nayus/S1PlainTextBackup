@@ -7573,3 +7573,28 @@ Soyo：祥子办了这个乐队，话剧也好曲子也好。
 
 话说抄底这个我怎么感觉ep12就听见在说了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sauron.j  
+##### 5177#       发表于 2024-12-30 20:57
+
+感觉独角兽在分镜上的话语权不如mygo时期了
+
+像go第一话开头小祥刚登场就一脚重重踩在水洼里的镜头，母鸡卡前三话印象还没同等的
+
+
+*****
+
+####  山ノ内花音  
+##### 5178#       发表于 2024-12-30 21:02
+
+印象最深刻的还是刻意被切成八份的甜甜圈<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  金属化反射装甲  
+##### 5179#       发表于 2024-12-30 21:04
+
+如果因为组鸡就怨祥子，爽世之前天桥上和灯的话不就白说了吗，本来就是争议满满好不容易挽回了点角色形象，再搞骚操作不敢想角色风评。。。<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

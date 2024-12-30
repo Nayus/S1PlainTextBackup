@@ -5823,3 +5823,11 @@ AE本，ban了学姐继续强抬公主。
 
 数了数，除去福袋出的烟雾镜和司马懿，自选选了个梅芙外，今年NEW了16个五星，好像还可以<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 15781#       发表于 2024-12-30 21:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">萌新数了数好像21个 福袋-2 19个  歪的看不出来也不记得了
+

@@ -6995,3 +6995,16 @@ wcnm每天都要被吓一次，什么jump scare
 都在cos废太子，你们鸡是废太子派的吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">剧情上还真是233
 
+
+*****
+
+####  结衣小比取  
+##### 5118#       发表于 2024-12-30 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67061702&amp;ptid=2208921" target="_blank">苇原雪道 发表于 2024-12-30 12:31</a>
+
+有非剧透讨论楼么？
+
+—— 来自 鹅球 v3.3.96</blockquote>
+没有，建议1月16日22:00看完第三话以后再进来
+

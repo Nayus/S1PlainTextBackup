@@ -5492,3 +5492,13 @@ qp要爆了...该点技能了...
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">自然回萌新无所畏惧
 
+
+*****
+
+####  eilot  
+##### 15744#       发表于 2024-12-30 14:30
+
+再來柱子戰?
+
+很好，順便用來刷錢，只要還是能一回殺就可以了
+

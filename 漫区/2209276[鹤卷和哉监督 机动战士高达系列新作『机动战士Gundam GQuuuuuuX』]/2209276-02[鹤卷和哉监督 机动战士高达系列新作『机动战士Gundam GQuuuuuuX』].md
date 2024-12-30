@@ -1942,3 +1942,13 @@ DR画的同人是GM，这张图是和红高达图一起流出的疑似情报。
 
 这台机体搭载的欧米伽塞克谬系统是战后禁止开发的，以此推断应该是战争时期开发的吧？
 
+
+*****
+
+####  Gysumitka  
+##### 1653#       发表于 2024-12-30 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67062249&amp;ptid=2209276" target="_blank">0aleph37 发表于 2024-12-30 14:00</a>
+这台机体搭载的欧米伽塞克谬系统是战后禁止开发的，以此推断应该是战争时期开发的吧？ ...</blockquote>
+战争时期没有追杀红高达的理由吧，还在鸭子手里。官网也说是最新型
+

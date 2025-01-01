@@ -5103,3 +5103,19 @@ PV2开播前总会有吧
 我看见尼雅安对着牢修脸红和卡牌包封面早已开香槟了。输？不存在的（</blockquote>
 我现在要说一个没有真名和脸的角色
 
+
+*****
+
+####  saevey  
+##### 1821#       发表于 2025-1-1 17:15
+
+塔塔开不好吗？对得起高达这ip现在的水平<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  molemole  
+##### 1822#       发表于 2025-1-1 17:21
+
+一切都要等两周之后了
+

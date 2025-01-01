@@ -117,7 +117,7 @@ if __name__ == '__main__':
         #     norder = sorted(nameth.items(),key=lambda x:x[1],reverse=True)
         #     rstr = rstr +str(i+1)+'. '+str(nameorder[i][0][0])+'****'+str(nameorder[i][0][-1])+'（[b]+'+str(nameorder[i][1]) +'[/b]）：'+'[url=https://bbs.saraba1st.com/2b/thread-'+norder[0][0]+'-1-1.html]'+thdata[norder[0][0]]['title'] +'[/url]（[b]+'+str(norder[0][1])+'[/b]）\n'
         rstr = rstr + '===========\n\n'
-    rstr = rstr + '[url=https://tomoemami.gitee.io/tomoemami.github.io/]历史日回帖统计在线图表[/url]\n'
+    #rstr = rstr + '[url=https://tomoemami.gitee.io/tomoemami.github.io/]历史日回帖统计在线图表[/url]\n'
     # print(rstr)
     with open ('/home/riko/s1cookie-1.txt','r',encoding='utf-8') as f:
         cookie_str1 = f.read()

@@ -5045,3 +5045,14 @@ PV2搞不好是剧场版上映之后再放出来
 
 什么东西都没端上来，就开始吉列豆蒸。太变态了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  a85982313  
+##### 1815#       发表于 2025-1-1 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67078814&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-1 14:03</a>
+
+不过这样倒数不会没有PV2了吧，那种事情不要啊</blockquote>
+再怎么上映那天也会有pv2了吧，总得给tie一个pv配一下吧
+

@@ -406,3 +406,11 @@ lm的话，6龙好歹也是主推的角色团体，结果水龙到现在才领�
 
 我现在都觉得蛇还好了，hrt是个什么垃圾东西，这天司不如让给米林来当<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  初雪绫  
+##### 18138#       发表于 2025-1-1 18:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">出道巅峰是龙的问题，我们老一辈神将都是等终突救命
+

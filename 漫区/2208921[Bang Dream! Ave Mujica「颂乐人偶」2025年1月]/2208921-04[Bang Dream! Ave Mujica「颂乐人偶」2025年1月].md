@@ -14297,3 +14297,20 @@ eva op里最后那张笑容璀璨的真嗣君。。。</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  akiomn  
+##### 5464#       发表于 2025-1-1 16:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">舅舅以前说过初华后期才爆，李子说初华有反转的一面
+反正大的在后面呢
+
+
+*****
+
+####  ytttsuuuba  
+##### 5465#       发表于 2025-1-1 16:20
+
+李子基操罢了，特别喜欢cue角色加对祥子告白。还是高尾这个推文更有参考性，丸辣的感觉。<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+

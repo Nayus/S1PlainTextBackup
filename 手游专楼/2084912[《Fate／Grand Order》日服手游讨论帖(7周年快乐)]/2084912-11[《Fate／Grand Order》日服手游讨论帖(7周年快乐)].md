@@ -8973,3 +8973,24 @@ box里有一宝旧剑和一宝查理曼，一年用不到一次
 
 不过理查德能三连宝具吧
 
+
+*****
+
+####  格林卡罗尔  
+##### 15932#       发表于 2025-1-1 16:52
+
+但丁都没有影还维吉尔<img src="https://static.saraba1st.com/image/smiley/goose2017/001.png" referrerpolicy="no-referrer">
+
+看灵脉石说明说是这个月有活动，有点纳闷，正常活动会给灵脉石吗
+
+
+*****
+
+####  保罗赫伯特  
+##### 15933#       发表于 2025-1-1 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67075678&amp;ptid=2084912" target="_blank">大十字紅朔 发表于 2024-12-31 23:50</a>
+
+帮楼上说一下，最多可选七个，不是一个</blockquote>
+多问一句，七个是限定正常七职介，还是无限制，可以在所有职介里自选？可以重复选一个职介吗？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

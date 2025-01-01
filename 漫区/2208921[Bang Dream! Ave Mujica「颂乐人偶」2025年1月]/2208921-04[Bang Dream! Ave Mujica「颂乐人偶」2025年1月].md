@@ -14287,3 +14287,13 @@ eva op里最后那张笑容璀璨的真嗣君。。。</blockquote>
 贷款想看的祥子崩溃大笑不会稳了吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难说，但是祥子回老家是肯定有了，不过我只是贷款祥子后面要炸一次，不要清算到我头上喵
 
+
+*****
+
+####  银酒监武  
+##### 5463#       发表于 2025-1-1 15:55
+
+这两人反应有点怪啊，难道暗示了初祥之间的“背叛”？<img src="https://p.sda1.dev/21/3c76d3324a9ddd2bbd914aee593d0a42/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

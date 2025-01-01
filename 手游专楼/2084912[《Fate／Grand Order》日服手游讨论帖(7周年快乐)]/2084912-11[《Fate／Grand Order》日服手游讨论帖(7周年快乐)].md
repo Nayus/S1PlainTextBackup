@@ -9022,3 +9022,28 @@ box里有一宝旧剑和一宝查理曼，一年用不到一次
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  marxel  
+##### 15936#       发表于 2025-1-1 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67079787&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2025-1-1 16:54</a>
+多问一句，七个是限定正常七职介，还是无限制，可以在所有职介里自选？可以重复选一个职介吗？ ...</blockquote>
+按说ex刚被狠狠清算，应该是只能初始七骑的
+但是说要复刻所有五星，感觉又不像是会限制的样子<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 保罗赫伯特| + 1|好评加鹅|
+
+查看全部评分
+

@@ -6519,10 +6519,10 @@
     "totalreply": 12924,
     "title": "[微软收购楼，ABK之后，Who's Next？P3想其他方式拓展11区业务]",
     "newtitle": "[微软楼，ABK之后，暂时没 Next了。handheld再等等。]",
-    "lastedit": 1735438685,
+    "lastedit": 1735688700,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2157110": {
     "totalreply": 801,
@@ -7032,7 +7032,7 @@
     "totalreply": 707,
     "title": "[日本能登附近海域发生里氏7.8级地震，气象厅发布海啸警报]",
     "newtitle": "[日本能登附近海域发生里氏7.8级地震，气象厅发布海啸警报]",
-    "lastedit": 1735687080,
+    "lastedit": 1735689360,
     "category": "外野",
     "active": true,
     "update": true
@@ -8634,7 +8634,7 @@
     "totalreply": 117940,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1735688280,
+    "lastedit": 1735688940,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": true
@@ -9408,7 +9408,7 @@
     "totalreply": 12596,
     "title": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
-    "lastedit": 1735685580,
+    "lastedit": 1735689360,
     "category": "手游专楼",
     "active": true,
     "update": true
@@ -10920,7 +10920,7 @@
     "totalreply": 679,
     "title": "[俄乌专楼-12月版]",
     "newtitle": "[俄乌专楼-12月版]",
-    "lastedit": 1735688280,
+    "lastedit": 1735689180,
     "category": "外野",
     "active": true,
     "update": true
@@ -13296,7 +13296,7 @@
     "totalreply": 103,
     "title": "[理智痛投：2024年最佳最佳原创动画（不含剧场版）]",
     "newtitle": "[理智痛投：2024年最佳原创动画（不含剧场版）]",
-    "lastedit": 1735681740,
+    "lastedit": 1735689000,
     "category": "漫区",
     "active": true,
     "update": true
@@ -17373,7 +17373,7 @@
     "totalreply": 0,
     "title": "[技术封锁真的有效吗？]",
     "newtitle": "[技术封锁真的有效吗？]",
-    "lastedit": 1735688460,
+    "lastedit": 1735689060,
     "category": "外野",
     "active": true,
     "update": true
@@ -17643,7 +17643,7 @@
     "totalreply": 0,
     "title": "[你今年发烧了几次？]",
     "newtitle": "[你今年发烧了几次？]",
-    "lastedit": 1735688640,
+    "lastedit": 1735689360,
     "category": "外野",
     "active": true,
     "update": true
@@ -17670,7 +17670,7 @@
     "totalreply": 0,
     "title": "[买了一件东西后，发现生活质量和幸福感提升了？甲辰年ver.]",
     "newtitle": "[买了一件东西后，发现生活质量和幸福感提升了？甲辰年ver.]",
-    "lastedit": 1735688760,
+    "lastedit": 1735688940,
     "category": "外野",
     "active": true,
     "update": true
@@ -17706,7 +17706,7 @@
     "totalreply": 0,
     "title": "[2025，大家新年好]",
     "newtitle": "[2025，大家新年好]",
-    "lastedit": 1735688760,
+    "lastedit": 1735689360,
     "category": "外野",
     "active": true,
     "update": true
@@ -17751,7 +17751,7 @@
     "totalreply": 0,
     "title": "[今年跨年好像没什么气氛]",
     "newtitle": "[今年跨年好像没什么气氛]",
-    "lastedit": 1735688520,
+    "lastedit": 1735689120,
     "category": "外野",
     "active": true,
     "update": true
@@ -17762,6 +17762,15 @@
     "newtitle": "[【个人的红白机毕业功课】FC游戏／NES游戏一百零八将]",
     "lastedit": 1735688460,
     "category": "游戏区",
+    "active": true,
+    "update": true
+  },
+  "2125538": {
+    "totalreply": 0,
+    "title": "[Re：从零开始的异世界生活—3期动画制作决定]",
+    "newtitle": "[Re：从零开始的异世界生活—3期动画制作决定]",
+    "lastedit": 1735688580,
+    "category": "漫区",
     "active": true,
     "update": true
   }

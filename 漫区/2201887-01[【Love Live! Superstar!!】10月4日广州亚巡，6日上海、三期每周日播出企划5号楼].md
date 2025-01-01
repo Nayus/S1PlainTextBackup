@@ -13941,3 +13941,135 @@ CD到了，但广州场要一月才公布中签名单
 
 <img src="https://p.sda1.dev/21/b695d241b235b0def42b683f71e6efad/4508e79bly8hx2lx6d9o5j216o1kwh0a.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 1367#       发表于 2024-12-31 21:31
+
+<img src="https://p.sda1.dev/21/fa0b0e6ab9118dc13e46d072c99d2da9/QQ截图20241231212317.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/5410002e1e6fafca35a26b60a72610be/QQ截图20241231212345.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/7bab8742d43ff4ff1101389908100862/QQ截图20241231212437.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/c373a8acd1a154ca0d7dc8fbf50ac429/QQ截图20241231212850.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  离心  
+##### 1368#       发表于 2025-1-1 00:00
+
+ 本帖最后由 离心 于 2025-1-1 00:01 编辑 
+
+楼友们新年快乐希望新的一年星团能更好
+
+<img src="https://img.saraba1st.com/forum/202501/01/000024bhpddx606ehp7exu.jpg" referrerpolicy="no-referrer">
+
+<strong>4500457051735660608339.jpg</strong> (176.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 00:00 上传
+
+*****
+
+####  ViyViy  
+##### 1369#       发表于 2025-1-1 00:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">楼油们新年快乐，希望今年有新小组曲，且质量给力，希望这个月的生放会有后续的动画安排
+
+*****
+
+####  csolfans  
+##### 1370#       发表于 2025-1-1 11:09
+
+<img src="https://p.sda1.dev/21/77b3ff1367bbbe100e8eb30d7b3ef470/image.jpg" referrerpolicy="no-referrer">
+新的一年，楼友多多关照
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  一心而用  
+##### 1371#       发表于 2025-1-1 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67077672&amp;ptid=2201887" target="_blank">csolfans 发表于 2025-1-1 11:09</a>
+新的一年，楼友多多关照
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+<img src="https://p.sda1.dev/21/37cf0f4b98f15d040e4f6060f85d9e7d/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/8c8d4b27f527e6dd926a811f83c366a0/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 1372#       发表于 2025-1-1 12:13
+
+新的一年无论新的亚巡还是6th追加上海场，希望至少实现一样
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  starring  
+##### 1367#       发表于 2024-12-31 21:31
+
+<img src="https://p.sda1.dev/21/fa0b0e6ab9118dc13e46d072c99d2da9/QQ截图20241231212317.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/5410002e1e6fafca35a26b60a72610be/QQ截图20241231212345.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/7bab8742d43ff4ff1101389908100862/QQ截图20241231212437.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/c373a8acd1a154ca0d7dc8fbf50ac429/QQ截图20241231212850.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  离心  
+##### 1368#       发表于 2025-1-1 00:00
+
+ 本帖最后由 离心 于 2025-1-1 00:01 编辑 
+
+楼友们新年快乐希望新的一年星团能更好
+
+<img src="https://img.saraba1st.com/forum/202501/01/000024bhpddx606ehp7exu.jpg" referrerpolicy="no-referrer">
+
+<strong>4500457051735660608339.jpg</strong> (176.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 00:00 上传
+
+*****
+
+####  ViyViy  
+##### 1369#       发表于 2025-1-1 00:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">楼油们新年快乐，希望今年有新小组曲，且质量给力，希望这个月的生放会有后续的动画安排
+
+*****
+
+####  csolfans  
+##### 1370#       发表于 2025-1-1 11:09
+
+<img src="https://p.sda1.dev/21/77b3ff1367bbbe100e8eb30d7b3ef470/image.jpg" referrerpolicy="no-referrer">
+新的一年，楼友多多关照
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  一心而用  
+##### 1371#       发表于 2025-1-1 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67077672&amp;ptid=2201887" target="_blank">csolfans 发表于 2025-1-1 11:09</a>
+新的一年，楼友多多关照
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+<img src="https://p.sda1.dev/21/37cf0f4b98f15d040e4f6060f85d9e7d/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/8c8d4b27f527e6dd926a811f83c366a0/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 1372#       发表于 2025-1-1 12:13
+
+新的一年无论新的亚巡还是6th追加上海场，希望至少实现一样
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

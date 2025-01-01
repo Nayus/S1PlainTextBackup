@@ -7610,3 +7610,6493 @@ Soyo：祥子办了这个乐队，话剧也好曲子也好。
 而且看完前三集莫名给我一种感觉
 到最后知道祥子的全部真相的人可能会比想象中少很多 甚至可能只有睦和初华
 
+
+*****
+
+####  狂热飞鸟  
+##### 5181#       发表于 2024-12-30 21:17
+
+ 本帖最后由 狂热飞鸟 于 2024-12-30 21:21 编辑 
+
+素在还黄瓜之后，而现在还去压力睦询问母鸡卡的信息这操作已经很奇葩了。
+
+只能说现在素最好能不动吧，毕竟鸡的事她只有激化的分没什么解决的能力。
+
+*****
+
+####  苇原雪道  
+##### 5182#       发表于 2024-12-30 21:18
+
+行吧，那我过几天再来。大家聊的开心～
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  玖羽  
+##### 5183#       发表于 2024-12-30 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67065122&amp;ptid=2208921" target="_blank">金属化反射装甲 发表于 2024-12-30 21:04</a>
+
+如果因为组鸡就怨祥子，爽世之前天桥上和灯的话不就白说了吗，本来就是争议满满好不容易挽回了点角色形象， ...</blockquote>
+Soyo视角来看生气不是很正常吗
+
+在Soyo看来，祥子坚决不复活Crychic，那么重的话都说了，只能是不想搞乐队了（或者家里不让搞了）
+
+然后祥子转头就组了一个商业乐队，让Soyo怎么想，合着你祥子原来是看不起我们三个
+
+关键是，Soyo（和其他人）现在还以为祥子是大小姐，这个信息差后面肯定是要说明白的
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| yozoraxsx| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  银酒监武  
+##### 5184#       发表于 2024-12-30 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67065122&amp;ptid=2208921" target="_blank">金属化反射装甲 发表于 2024-12-30 21:04</a>
+
+如果因为组鸡就怨祥子，爽世之前天桥上和灯的话不就白说了吗，本来就是争议满满好不容易挽回了点角色形象， ...</blockquote>
+但是延续13集的白月光滤镜不碎，这两人就永远不可能实现平等的关系性
+
+*****
+
+####  akiomn  
+##### 5185#       发表于 2024-12-30 22:04
+
+有意思的是祥子崩溃起码四次了，还都是睦在场，c团解散，春日影，被牢爹气走，睦祥吵架。
+特别是c团解散这次，睦回忆里没能交出去的雨伞。如果后续祥子继续在睦面前崩了，不知道睦会不会选择追上去
+
+*****
+
+####  thisisaspider  
+##### 5186#       发表于 2024-12-30 22:42
+
+虽说mortis形态一定是问题肯定要解决。但目前信息来看简直是完美的"队友"。
+
+表演能力强，能回应观众期待。能说会道，可以应对采访。看起来是保护机制，不会伤害睦。
+
+只能猜测后面会压力祥，或不弹吉他导致团分裂。真炸团对睦也一点好处也没有，或者说如果目的是炸团在台上展示表演意义就不大了。
+
+已经迫不及待等幼睦幼祥的篇幅了。
+
+*****
+
+####  山ノ内花音  
+##### 5187#       发表于 2024-12-30 22:54
+
+<img src="https://img.saraba1st.com/forum/202412/30/225426fzdgbbgjrlegzvjb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1064.jpeg</strong> (597.06 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-30 22:54 上传
+
+*****
+
+####  mistalk  
+##### 5188#       发表于 2024-12-30 23:12
+
+说起来今天多刷注意到一个小细节，“不能长久”采访之前和第三集最后mujica出演节目之前都会切一个相同的分镜，一栋楼外面挂着几张巨幅广告，有一张应该是睦妈妈的海报，好像写着“我和你的舞台”，巧的是这一幕之后紧接着采访的主持人频繁向睦提问睦妈妈的看法，以及最后mujica上的节目有睦妈妈引荐，这个分镜有点意思
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 5189#       发表于 2024-12-30 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67065703&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2024-12-30 22:54</a></blockquote>
+这张表情疑似也太像了
+
+*****
+
+####  Aendst  
+##### 5190#       发表于 2024-12-30 23:53
+
+ 本帖最后由 Aendst 于 2024-12-30 23:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67065315&amp;ptid=2208921" target="_blank">玖羽 发表于 2024-12-30 21:38</a>
+
+Soyo视角来看生气不是很正常吗
+
+在Soyo看来，祥子坚决不复活Crychic，那么重的话都说了，只能是不想搞乐 ...</blockquote>
+爽世的心态变化是合情合理的
+
+但我觉得有一个问题是，前三话已经非常明确直接把故事线路聚焦给mujica了，并且官方明确说过主角是mujica，爽世已经不再是主角团的一员了，她的位置更接近于一个NPC
+
+爽世个人需要信息差的补足，但mujica的任何一个人都不需要，祥子也没有义务去跟爽世解释她的家庭具体变动（访谈说过了，祥子绝不会让爽世知道她的境遇），只为了一个在她个人回忆里都出场没多久的两周乐队成员
+
+况且祥子现在的身份依旧是豊川家的大小姐，这个身份是没有变的
+
+爽世生气很合理，采取行动也很合理，但那已经完全是mujica外部的事情了
+
+睦的故事篇幅已经不短了，其他队内成员身上花的笔墨也一定很多
+
+以mujica为主角的剧本，就是意味着最重要的是“mujica的成员需不需要某些情节”
+
+*****
+
+####  相坂君  
+##### 5191#       发表于 2024-12-31 00:06
+
+虽然soyo视角有疑问很合理，但是我不觉得会把事情说明白，总不能让祥子说：我妈死了我爸颓了我离家照顾亲爹所以没钱没精力一边搞乐队一边赚学费。哪能说的出口，而且对方先前还pua幼驯染不止一次两次，她这么护短还双标，要解释很难的啦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银酒监武  
+##### 5192#       发表于 2024-12-31 00:06
+
+ 本帖最后由 银酒监武 于 2024-12-31 00:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67065982&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-30 23:53</a>
+
+爽世的心态变化是合情合理的
+
+但我觉得有一个问题是，前三话已经非常明确直接把故事线路聚焦给mujica了，并 ...</blockquote>
+柿本也说过“雖然故事是以祥子為基礎核心，但這不是只有她的故事，當然也會有Ave Mujica的成員，也會聚焦在曾經的CRYCHIC的成員上。”
+
+就像MyGO的故事里祥睦绝不是NPC一样，至少老C团必然是相当重要的一条伏线，甚至是贯穿两季的线索。
+
+*****
+
+####  桜庭千景  
+##### 5193#       发表于 2024-12-31 00:11
+
+到我第114喜欢的拿睦祥掰戏份环节了
+
+那么祥子在mygo里戏份多的原因是挨骂反派役，mygo也要匀哪位出来当反派拿戏份挨骂呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银酒监武  
+##### 5194#       发表于 2024-12-31 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066043&amp;ptid=2208921" target="_blank">桜庭千景 发表于 2024-12-31 00:11</a>
+
+到我第114喜欢的拿睦祥掰戏份环节了
+
+那么祥子在mygo里戏份多的原因是挨骂反派役，mygo也要匀哪位出来当反派 ...</blockquote>
+soyo不是很有潜力吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DARK_HGCG  
+##### 5195#       发表于 2024-12-31 00:12
+
+结尾会不会是这样
+
+母鸡卡排除万难终于重新走到一起，但是眼看就要赶不上重要的演唱会了
+
+正当观众大呼退票时
+
+一支自称特别嘉宾的名为mygo的业余乐队强行登台演奏，为母鸡卡争取到了时间
+
+母鸡卡赶到会场后，两个乐队一起演奏春日影
+
+*****
+
+####  Aendst  
+##### 5196#       发表于 2024-12-31 00:13
+
+ 本帖最后由 Aendst 于 2024-12-31 00:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066029&amp;ptid=2208921" target="_blank">银酒监武 发表于 2024-12-31 00:06</a>
+
+柿本也说过“雖然故事是以祥子為基礎核心，但這不是只有她的故事，當然也會有Ave Mujica的成員，也會聚焦 ...</blockquote>
+其实你搞错了一个很重要的点
+
+mygo的故事已经告一段落了（甚至监督明言实际上只用了十一话就写完了），但还有余下的问题没有解决，还会出场
+
+而睦祥在mygo里的出场，是在铺设她们自身的伏笔，用于转入她们的故事
+
+现在整个完整的故事已经顺利进入后半段，mygo的重要剧情已经大部分告终，这意味着mygo相关不需要再在mujica中铺设伏笔，并且不会是故事后半的主角，那么，你觉得这个“聚焦”会是什么作用呢
+
+*****
+
+####  thisisaspider  
+##### 5197#       发表于 2024-12-31 00:13
+
+重新整理了一下情报，有不少违和感，感觉像在看侦探剧。剧本脉络有种解谜的感觉。或许不应该围绕着剧情去分锅车角色塑造，而是专注于现有的要素去找不自然的地方。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 5198#       发表于 2024-12-31 00:15
+
+ 本帖最后由 PDQ4 于 2024-12-31 00:17 编辑 
+
+最重要的不是爽姐真的有能力知道发生什么了吗，已知扒祥子住所都需要爱音意外告知
+
+祥子不可能自己说，爽姐又疑似因为鸡对睦祥一起有大意见了
+
+爽世这一年问过睦为什么乐队不开心吗
+
+那爽世如果把睦祥一起认定成ccc的罪人，就更找不到理由问祥子为什么退队了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+总不能让灯意外得知，然后跑到隔壁班抓着祥子大喊我知道你家里发生了很多事很痛苦
+
+能问出你幸福吗就意味着灯大概不会知情，不然又要当小闭灯了
+
+可能这个便签条最后会有个回复作为灯祥结局，比如鸡一切尘埃落定后，回复说我现在过得很幸福<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 5199#       发表于 2024-12-31 00:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">退个一万步，先不说mygo这个校园乐队进不进得了后台，能不能把乐器搬上去。海喵都不一定听过春日影，那她们都没练习过，真的能演奏吗？
+
+*****
+
+####  银酒监武  
+##### 5200#       发表于 2024-12-31 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066059&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-31 00:13</a>
+
+其实你搞错了一个很重要的点
+
+mygo的故事已经告一段落了（甚至监督明言实际上只用了十一话就写完了），但还 ...</blockquote>
+只是认为老C团的故事脉络还没有捋完而已，并没有否认上一季MyGO故事的完整性呀
+
+
+*****
+
+####  Aendst  
+##### 5201#       发表于 2024-12-31 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066072&amp;ptid=2208921" target="_blank">银酒监武 发表于 2024-12-31 00:16</a>
+
+只是认为老C团的故事脉络还没有捋完而已，并没有否认上一季MyGO故事的完整性呀 ...</blockquote>
+所以你为什么不回答我是什么作用呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 5202#       发表于 2024-12-31 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066078&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-31 00:17</a>
+
+所以你为什么不回答我是什么作用呢</blockquote>
+卖CP<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 5203#       发表于 2024-12-31 00:20
+
+<img src="https://img.saraba1st.com/forum/202412/31/002015rhpz2z8haxpxax8v.jpg" referrerpolicy="no-referrer">
+
+<strong>GgAxgH4bIAAf-ob.jpg</strong> (157.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 00:20 上传
+
+<img src="https://img.saraba1st.com/forum/202412/31/002018xm7n062znivxdnms.jpg" referrerpolicy="no-referrer">
+
+<strong>GgAxgH2b0AAkF1I.jpg</strong> (198.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 00:20 上传
+
+<img src="https://img.saraba1st.com/forum/202412/31/002025r2om113tqq44764o.jpg" referrerpolicy="no-referrer">
+
+<strong>GgAxgH3boAAcCKd.jpg</strong> (186.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 00:20 上传
+
+<img src="https://img.saraba1st.com/forum/202412/31/002034d560ff760f6f7fjf.jpg" referrerpolicy="no-referrer">
+
+<strong>GgAxgH4bcAAM97q.jpg</strong> (131.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 00:20 上传
+
+[https://x.com/KEKEGO_/status/1873551880942665947](https://x.com/KEKEGO_/status/1873551880942665947)
+
+*****
+
+####  银酒监武  
+##### 5204#       发表于 2024-12-31 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066078&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-31 00:17</a>
+
+所以你为什么不回答我是什么作用呢</blockquote>
+不管这种聚焦是好是坏，那是剧情推动中必然会有的，剩下的就让他们角色厨自己看啦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 5205#       发表于 2024-12-31 00:22
+
+我想了一下
+最后soyo和灯可能真的不会知道祥子的经历了
+
+稍微代入一下
+她们本质那么善良 如果真的知道了祥子经历过什么
+自责带来的精神打击肯定是毁灭性的
+而且这些沉重的背景 本质上是为了让观众了解祥子这个人 和其他角色并没有关系 让她们经历这种精神内耗是无意义的
+
+最后大概率就像故事简介一样
+祥子再次站立于完美的箱庭
+除了少数人 没人知道她真正经历过什么
+
+*****
+
+####  抽搐一下  
+##### 5206#       发表于 2024-12-31 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066059&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-31 00:13</a>
+
+其实你搞错了一个很重要的点
+
+mygo的故事已经告一段落了（甚至监督明言实际上只用了十一话就写完了），但还 ...</blockquote>
+独角兽采访说过mujica动画所有事情都和mygo动画联动,看怎么理解这句话了
+
+*****
+
+####  rain625  
+##### 5207#       发表于 2024-12-31 00:23
+
+有点没懂为什么老惦记着春日影（还是10人版），c团故事再要续也是向前看了，还在这风湿干啥呢
+
+退一步讲，真要鸡狗共演我期待的也是各来一首影色舞和killkiss这水平的新歌
+
+*****
+
+####  Aendst  
+##### 5208#       发表于 2024-12-31 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066111&amp;ptid=2208921" target="_blank">抽搐一下 发表于 2024-12-31 00:23</a>
+
+独角兽采访说过mujica动画所有事情都和mygo动画联动,看怎么理解这句话了</blockquote>
+访谈原文你可以多品一下，我已经品了好几个月了 <blockquote>――続編に向けてのヒントや、『It’s MyGO!!!!!』をあらためて見返すうえで注目してほしいポイントを教えてください。
+
+綾奈　Ave Mujica編になってもCRYCHICの存在は大きいので、そこは前提に置いていただけるとうれしいですね。『It’s MyGO!!!!!』を見返せば見返すほど、続編も面白く見ていただけると思います。タイトルも主人公も変わりますが、あらゆることが『It’s MyGO!!!!!』と連動しているので、未見の方にはぜひご覧になってほしいです。</blockquote>我看完前三话确实体会到绫奈说的有趣了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 5209#       发表于 2024-12-31 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67065982&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-30 23:53</a>
+
+爽世的心态变化是合情合理的
+
+但我觉得有一个问题是，前三话已经非常明确直接把故事线路聚焦给mujica了，并 ...</blockquote>
+从剧情逻辑上说，这个问题是客观存在的（有戴面具则必有摘面具，摘面具则Soyo必然知道，从而出现这个问题）
+
+制作方显然也很清楚，所以把这个问题进行了最大限度（效果最炸裂）的利用（Soyo当场看着摘面具）
+
+既然已经被醒目地摆在台面上，这个问题必须在后文有一个回应，反过来说，如果不回应的话，想象一下，
+
+1) Soyo直到最后都自己憋着；
+
+2) Soyo突然自己想开了；
+
+3) 最后假装这个问题不存在，
+
+如果出现这三种情况，这个剧情显然是有问题的
+
+而且以现有的部分来说，MyGO的戏份远远多于客串的需要，所以我还是坚持我的观点，MyGO会在后面起到某种次要作用，不然这样的戏份安排说不通
+
+*****
+
+####  wsuFish  
+##### 5210#       发表于 2024-12-31 00:25
+
+<blockquote>Aendst 发表于 2024-12-30 23:53
+爽世的心态变化是合情合理的
+
+但我觉得有一个问题是，前三话已经非常明确直接把故事线路聚焦给mujica了，并 ...</blockquote>
+初华、海玲和喵梦都需要信息的补足，而为了包饺子，c团旧部最终都会补足。最后老c团五人肯定都是会要一边承认自己对c团的爱一边对c团解散和解的，连这个都看不出来的人只能说打偶像圈子大战打到蒙蔽双眼了。终究是要进手游卖角色的
+
+c团的旧账是一定会被翻的，初华、海玲和喵梦肯定是会知道的。包括祥子经济上面临的窘境，她断交、切割与掩瞒的操作就是契科夫的枪，是为了最终揭开而设的。
+
+*****
+
+####  山ノ内花音  
+##### 5211#       发表于 2024-12-31 00:25
+
+其实这个Ave Mujica編になってもCRYCHICの存在は大きい 指的也有可能是祥的第一集和睦的第三集
+
+*****
+
+####  Aendst  
+##### 5212#       发表于 2024-12-31 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066121&amp;ptid=2208921" target="_blank">wsuFish 发表于 2024-12-31 00:25</a>
+
+初华、海玲和喵梦都需要信息的补足，而为了包饺子，c团旧部最终都会补足。最后老c团五人肯定都是会要一边 ...</blockquote>
+我换个词吧
+
+“放下”
+
+*****
+
+####  银酒监武  
+##### 5213#       发表于 2024-12-31 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066125&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-31 00:25</a>
+
+我换个词吧
+
+“放下”</blockquote>
+那估计得结尾了，众所周知soyo女士13集的“忘不掉”现在就是字面意义上的忘不掉，并无放下的意思<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 5214#       发表于 2024-12-31 00:29
+
+祥子第一集的经历应该不会特地再变成台词去和去和别人说一遍了  
+我比较看好的是 通过新的交流 来恢复关系 而不是去复盘旧账
+
+*****
+
+####  狂热飞鸟  
+##### 5215#       发表于 2024-12-31 00:29
+
+<blockquote>山ノ内花音 发表于 2024-12-31 00:25
+其实这个Ave Mujica編になってもCRYCHICの存在は大きい 指的也有可能是祥的第一集和睦的第三集
+
+ ...</blockquote>
+但一三集存在感高的是睦祥双方（祥加个家庭)，c团戏份不太重
+
+*****
+
+####  抽搐一下  
+##### 5216#       发表于 2024-12-31 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066116&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-31 00:24</a>
+
+访谈原文你可以多品一下，我已经品了好几个月了
+
+我看完前三话确实体会到绫奈说的有趣了 ...</blockquote>
+确实是所有，看这个所有有多所有了
+
+*****
+
+####  PDQ4  
+##### 5217#       发表于 2024-12-31 00:29
+
+感觉有些漏油也忘了偏铝酸钠是有意义的
+
+剧中能看到假面下真实的只有队友，这种关系可能是鸡团魂的核心要素之一
+
+假面剥落前靠面具隐藏自己，剥落之后该如何维系假面，我觉得只能靠队友了
+
+让更多人被拉入深渊是要人人都鸡化吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 5218#       发表于 2024-12-31 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066123&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2024-12-31 00:25</a>
+
+其实这个Ave Mujica編になってもCRYCHICの存在は大きい 指的也有可能是祥的第一集和睦的第三集
+
+ ...</blockquote>
+确实可能如此
+
+提问者所问的是回顾mygo时的注意点，众所周知对mygo来说，元crychic成员更多的指的是祥子和睦
+
+*****
+
+####  akiomn  
+##### 5219#       发表于 2024-12-31 00:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">呃，有没有可能，祥子秘密这事，现在就是个核弹，除非祥子自己说出来，不然谁说谁死，恐怕黑睦都不敢说。
+对老c团三个，亲妈死了亲爹颓废住出租屋打工一年，光是亲妈死了这块就够重量级了，灯听了又得自闭，立希听了怕是要半夜醒来给自己俩巴掌问自己元和二年干了啥，soyo也得自闭。
+访谈里说过，侦探位是初华，最后能得知祥子秘密的，除了鸡团的人，其他的人恐怕不会知道，顶多知道祥子过去经历过很沉重的事情
+
+*****
+
+####  山ノ内花音  
+##### 5220#       发表于 2024-12-31 00:32
+
+从英文和韩文简介
+又能确认祥子这个霉比的体质会把身边的人也拖进失控的命运里
+
+可能母鸡卡演到一半
+观众会劫后余生般的庆幸
+幸亏她当初退出了c团
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Aendst| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  狂热飞鸟  
+##### 5221#       发表于 2024-12-31 00:32
+
+祥子自已说那些“秘密″场面都会很难看
+
+*****
+
+####  桜庭千景  
+##### 5222#       发表于 2024-12-31 00:34
+
+其实鸡最后也未必全员都能知道，毕竟李子就说过“不说出来也没关系，我们是一样的”
+
+而且其实这种设定也不妨碍包饺子，甚至进游戏或者pico后“瞒着自己的过往”都能成为迫害梗来源
+
+*****
+
+####  Aendst  
+##### 5223#       发表于 2024-12-31 00:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066119&amp;ptid=2208921" target="_blank">玖羽 发表于 2024-12-31 00:24</a>
+
+从剧情逻辑上说，这个问题是客观存在的（有戴面具则必有摘面具，摘面具则Soyo必然知道，从而出现这个问题 ...</blockquote>
+所以我觉得存在爽世站在她的角度上行动合理
+
+但有这个行为可能不会被很多观众接受的风险
+
+而就像漏油说的一样，祥子的问题，甚至mujica的基调都非常沉重
+
+对比之下，再加上角色自身的反应，这反而可能会对mygo造成负面的影响
+
+我也认为剧本很可能是会写后续的，但和之前漏油说的一样，观感会是未知数
+
+*****
+
+####  相坂君  
+##### 5224#       发表于 2024-12-31 00:36
+
+真不好，毕竟在mygo的c三人组都心地善良，知道内情后给祥子道歉怎么办，这不太好吧？
+
+回头狗推就要有意见了，你丰川祥子不道歉还卖惨，还把mygo的仨搞自闭了，那有这样的害人精！
+
+*****
+
+####  akiomn  
+##### 5225#       发表于 2024-12-31 00:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">母鸡卡第一集先播出来时候，观众上帝视角看祥子都觉得惨了。那么如果剧内老c团三个角色知道这些事，恐怕要先自闭了
+狗团里哪怕最惨的素世都惨不过祥子啊，甚至目前还没有角色能惨过祥子（即使是睦都很难）
+
+*****
+
+####  狂热飞鸟  
+##### 5226#       发表于 2024-12-31 00:40
+
+<blockquote>akiomn 发表于 2024-12-31 00:38
+母鸡卡第一集先播出来时候，观众上帝视角看祥子都觉得惨了。那么如果剧内老c团三个角色知道这些事，恐怕要 ...</blockquote>
+素世可能最后惨度比不上鸡团任何一个的概率不小
+
+*****
+
+####  山ノ内花音  
+##### 5227#       发表于 2024-12-31 00:41
+
+这么看 如果真有和解环节
+还是祥子像骗初华自己住办公室一样
+编一套能让大家轻松的说辞算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+真相就让它烂在心里吧
+
+*****
+
+####  PDQ4  
+##### 5228#       发表于 2024-12-31 00:43
+
+狗连自己的问题都做不到一定解决
+
+一直迷路作为核心主题会解决吗
+
+灯不能理解周围人解决了吗，立希的劣等感动画会解决吗，爱音跨过自己爱慕虚荣和喜欢润润了吗
+
+不过爽世和猫确实找到可以一辈子的归宿了
+
+需要看到问题答案的是观众，而不是剧中角色，人家可能就不觉得有问题，自己默认了一套答案
+
+为什么非要把角色答卷撕了告诉她你想的不对真相其实更残忍
+
+是不是太过分了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 5229#       发表于 2024-12-31 00:43
+
+别比惨，可不兴卖惨，轻松快乐的乐队不挺好的，母鸡卡几个都这样了，别再被丰川祥子祸害了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 5230#       发表于 2024-12-31 00:45
+
+突然又有种海猫感了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 5231#       发表于 2024-12-31 00:46
+
+ 本帖最后由 akiomn 于 2024-12-31 00:48 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老话嘛，有时候谎言比真相更好，对老c团三个，不如不知道祥子的过去，太重量级了
+
+说到底，祥子的经历，即使不说mujica这些事，亲妈死了爹颓废这俩就不是一般人能够接受的，而祥子居然硬是撑到mujica第三集精神还没炸，传奇抗压王（睦都先炸了）
+
+*****
+
+####  狂热飞鸟  
+##### 5232#       发表于 2024-12-31 00:49
+
+在永远不知道真相下的前提下，感觉平行线比喻的含金量在不断提高中
+
+*****
+
+####  哈曼的YY  
+##### 5233#       发表于 2024-12-31 00:49
+
+<img src="https://img.saraba1st.com/forum/202412/31/003234pofb33l333xk3f22.jpg" referrerpolicy="no-referrer">
+
+<strong>GgB3_WLXAAAUoSo-1.jpg</strong> (244.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 00:32 上传
+
+[https://x.com/athyrabunlord/status/1873629738482450841](https://x.com/athyrabunlord/status/1873629738482450841)
+
+<img src="https://img.saraba1st.com/forum/202412/31/003513adazweg190t0p4wh.jpg" referrerpolicy="no-referrer">
+
+<strong>GgDkOCGbgAAEbnm.jpg</strong> (453.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 00:35 上传
+
+[https://x.com/zhanzhangzlw/status/1873749417112764647](https://x.com/zhanzhangzlw/status/1873749417112764647)
+
+<img src="https://img.saraba1st.com/forum/202412/31/003614ssh47ijv24nwwa7t.jpg" referrerpolicy="no-referrer">
+
+<strong>GgBFVWcacAErEJ1.jpg</strong> (618.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 00:36 上传
+
+[https://x.com/JiBliy81/status/1873573685770240052](https://x.com/JiBliy81/status/1873573685770240052)
+
+<img src="https://img.saraba1st.com/forum/202412/31/003807uuahuks76vue6e4g.jpg" referrerpolicy="no-referrer">
+
+<strong>GgC3_lNbUAA61Ms.jpg</strong> (326.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 00:38 上传
+
+[https://x.com/sinnpeikamo/status/1873700211580915921](https://x.com/sinnpeikamo/status/1873700211580915921)
+
+*****
+
+####  玖羽  
+##### 5234#       发表于 2024-12-31 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066162&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-31 00:35</a>
+
+所以我觉得存在爽世站在她的角度上行动合理
+
+但有这个行为可能不会被很多观众接受的风险
+
+而就像漏油说的一 ...</blockquote>
+以下是我总结的几个MyGO遵循的编剧原则，我对Ave Mujica的所有预测都建立在它继续遵循这些原则的基础上。
+
+<strong>1、颠覆性原则。</strong>
+
+只限主角团，一个角色一开始看起来越是没有问题，后面的问题就越大，我从上一个楼就一直在说，初华、海铃、睦只要爆就是大爆；
+
+相反，如果一个角色一开始就表现出一些小问题，比如爱音的虚荣心、立希的态度恶劣，那么后面的问题反而不会很大。
+
+反过来也一样，比如灯在1～9话的绝大部分戏份里都是非常内向和被动的，所以第10话才能正向大爆，重点是完全颠覆原有形象。
+
+<strong>2、炸裂性原则。</strong>
+
+举例来说，如果一个剧情的炸裂程度有可能是：A)100；B)200；C)500，那么不用怀疑，编剧一定会选择：D)1000
+
+在预测剧情的时候，一定不要有任何幻想，编剧一定是你能想象到的（甚至超越你想象的）怎么炸裂怎么来。
+
+<strong>3、回旋镖原则。</strong>
+
+简单地说，就是有呼必有应，MyGO对这一点非常严格，已经有很多人解析过了，我在重看的时候也发现了很多解析文没有提过的小地方。
+
+如果Ave Mujica在这一点上没有变化，那么目前出现的呼肯定在后文有一个应，否则那些剧情就没有必要存在。
+
+而且我认为，在回应的时候一定会遵循前两条原则，如果你能想象到某种回应可以产生最大化炸裂的效果，那么编剧一定会这么干，除非编剧的想象力超过了你。
+
+*****
+
+####  PDQ4  
+##### 5235#       发表于 2024-12-31 00:52
+
+ 本帖最后由 PDQ4 于 2024-12-31 00:53 编辑 
+
+所以我希望就这样吧，打住不要深入了，好不容易跨过去，认识了新人有了新乐队
+
+回忆就是回忆，不需要深入，浅尝辄止就行
+
+下次再交流就是认识鸡了，让ccc入土为安吧，掀棺材板真的不好
+
+真掀了我不好说独角兽是不是觉得ccc死得不够彻底，土葬不好，想直接火化<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  影伴光生  
+##### 5236#       发表于 2024-12-31 00:52
+
+mygo成员的救场既不能喧宾夺主，又要恰到好处，只能期待一手实际表现了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  相坂君  
+##### 5237#       发表于 2024-12-31 00:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">话说回来，我没有看手游剧情，狗都同团了，那soyo有没有跟队友说自己的家庭离异？
+
+*****
+
+####  wsuFish  
+##### 5238#       发表于 2024-12-31 00:54
+
+<blockquote>山ノ内花音 发表于 2024-12-31 00:41
+这么看 如果真有和解环节
+
+还是祥子像骗初华自己住办公室一样
+
+编一套能让大家轻松的说辞算了</blockquote>
+少女乐队讲究的就是一个真心换真心，关键问题上逃避、小聪明和一意孤行最后都是会被修正的。包括“将人生托付给我”这种话，最后肯定会变成乐队成员间“彼此托付彼此的人生”。
+
+*****
+
+####  sauron.j  
+##### 5239#       发表于 2024-12-31 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066192&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-31 00:43</a>
+
+狗连自己的问题都做不到一定解决
+
+一直迷路作为核心主题会解决吗
+
+灯不能理解周围人解决了吗，立希的劣等感动 ...</blockquote>
+go团按照企划定位，搞不好以后就一直是这个各怀鬼胎天天相声斗嘴的画风了
+
+*****
+
+####  狂热飞鸟  
+##### 5240#       发表于 2024-12-31 00:57
+
+ 本帖最后由 狂热飞鸟 于 2024-12-31 00:58 编辑 
+
+为什么那么多人都自信狗从笫一集就入场一定是了救场而不是激动鸡的矛盾，至少从现有的三集来看明明后者可能性更大吧
+
+
+*****
+
+####  PDQ4  
+##### 5241#       发表于 2024-12-31 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066236&amp;ptid=2208921" target="_blank">sauron.j 发表于 2024-12-31 00:54</a>
+
+go团按照企划定位，搞不好以后就一直是这个各怀鬼胎天天相声斗嘴的画风了 ...</blockquote>
+所以我觉得有些漏油说的问题一定要解决根本不成立
+
+实际上狗内部都没有做到互相全部把老底交了，只是说互相看到了最真实的一面
+
+所以我觉得指望狗里几个人能知道鸡或者祥子发生事情的全貌，那确实是无鸡之谈<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银酒监武  
+##### 5242#       发表于 2024-12-31 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066242&amp;ptid=2208921" target="_blank">狂热飞鸟 发表于 2024-12-31 00:57</a>
+
+为什么那么多人都自信狗从笫一集就入场一定是了救场而不是激动鸡的矛盾，至少从现有的三集来看明明后者可能 ...</blockquote>
+未知的命运舞台嘛<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">，是好是坏都可能，但感觉不太可能是戏份特别少的纯NPC
+
+*****
+
+####  上条仁美  
+##### 5243#       发表于 2024-12-31 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066228&amp;ptid=2208921" target="_blank">相坂君 发表于 2024-12-31 01:52</a>
+
+话说回来，我没有看手游剧情，狗都同团了，那soyo有没有跟队友说自己的家庭离异？ ...</blockquote>
+阿诺有问过soyo一起生活的家庭成员组成并且得到了回答，不过没明说是离异造成。
+
+*****
+
+####  狂热飞鸟  
+##### 5244#       发表于 2024-12-31 01:02
+
+<blockquote>银酒监武 发表于 2024-12-31 00:59
+未知的命运舞台嘛，是好是坏都可能，但感觉不太可能是戏份特别少的纯NPC ...</blockquote>
+那你觉的初海喵在狗算NPC戏份吗
+
+*****
+
+####  Aendst  
+##### 5245#       发表于 2024-12-31 01:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066220&amp;ptid=2208921" target="_blank">玖羽 发表于 2024-12-31 00:50</a>
+
+以下是我总结的几个MyGO遵循的编剧原则，我对Ave Mujica的所有预测都建立在它继续遵循这些原则的基础上。 ...</blockquote>
+这其实会涉及到剧情爱好者和2.5企划爱好者需求的分歧
+
+作为剧情爱好者，我是一定希望制作组能给出足够有趣的故事的，角色可以有暗面和不足，不需要考虑过多角色观感，只要符合基本行为逻辑、角色有作为角色的魅力就可以了
+
+从这个角度来说，我希望埋设的伏笔能够全部有呼应，就像制作组一直以来做的那样
+
+但作为2.5企划
+
+我认为需要优先考虑到角色给大部分2.5企划受众的观众带来的观感
+
+实际上完全从我个人的角度出发我是前者，我只希望角色足够有趣故事足够有趣，能做到细节上出乎意料而逻辑又在情理之中，能够体现出脚本的完成度是最好的
+
+只是这毕竟是2.5企划，如果要客观去推测，还是难免会受制于2.5企划的规则<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银酒监武  
+##### 5246#       发表于 2024-12-31 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066262&amp;ptid=2208921" target="_blank">狂热飞鸟 发表于 2024-12-31 01:02</a>
+
+那你觉的初海喵在狗算NPC戏份吗</blockquote>
+算呀，我还贷款爱猫是NPC戏份<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狂热飞鸟  
+##### 5247#       发表于 2024-12-31 01:06
+
+<blockquote>银酒监武 发表于 2024-12-31 01:04
+算呀，我还贷款爱猫是NPC戏份</blockquote>
+那你是觉得灯素希会有祥子在狗里的戏份？
+
+*****
+
+####  贰臣  
+##### 5248#       发表于 2024-12-31 01:08
+
+平行线这个说法还是可以参考的，希望起码到动画结束的时候两边能够保持一个平和的距离。目前个人最怕的还是独角兽继续用伤害角色的方法搞大爆剧情。尤其是soyo，狗里就当过起爆剂了，至今身上还一堆黑锅，目前看来鸡动画也有点苗头，唉，希望动画组能对她好点吧。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  狂热飞鸟  
+##### 5249#       发表于 2024-12-31 01:09
+
+平行线我记得是灯祥关系的形容词来着
+
+*****
+
+####  银酒监武  
+##### 5250#       发表于 2024-12-31 01:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066272&amp;ptid=2208921" target="_blank">狂热飞鸟 发表于 2024-12-31 01:06</a>
+那你是觉得灯素希会有祥子在狗里的戏份？</blockquote>
+这个如何量化呢？只能说肯定在剧情中是有一条线的，而不是仅作为“点”存在的NPC<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  akiomn  
+##### 5251#       发表于 2024-12-31 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066284&amp;ptid=2208921" target="_blank">狂热飞鸟 发表于 2024-12-31 01:09</a>
+平行线我记得是灯祥关系的形容词来着</blockquote>
+是的，灯祥的关系，不过也可以认为是鸡狗的关系
+鸡狗对邦标题里有个词是岔路，注定了两队不会走在同一条路上
+
+*****
+
+####  玖羽  
+##### 5252#       发表于 2024-12-31 01:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066255&amp;ptid=2208921" target="_blank">上条仁美 发表于 2024-12-31 01:01</a>
+
+阿诺有问过soyo一起生活的家庭成员组成并且得到了回答，不过没明说是离异造成。 ...</blockquote>
+爱音第一次去Soyo家，Soyo说：我和我妈一起住，这话就是默认离异了，如果Soyo父死了，家里会有佛龛
+
+*****
+
+####  玖羽  
+##### 5253#       发表于 2024-12-31 01:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67063669&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-30 17:07</a>
+
+制作组的意思很明显了，哪怕是黑睦，对祥子是“最讨厌的祥子了”，那么白睦肯定是最喜欢祥子，睦对祥子是爱 ...</blockquote>
+我认为睦这么早就炸是好事（我也没想到能炸到这个程度）
+
+拿MyGO前三话对比，如果只看MyGO前三话，角色给人的印象是这样的
+
+　灯 - 疑似自闭症
+
+立希 - 灯单推人，性格恶劣
+
+爱音 - 有一点虚荣心的普通女高中生，疑似有灰暗过去
+
+爽世 - 温柔大姐姐，阅片经验多的会发现不对劲的暗示
+
+乐奈 - 吉他弹得很好，不知道会有什么发展
+
+后面发生什么我们都知道了，如果在第三话就直接表明一个角色有大问题，后面大概率有大反转
+
+需要注意的是，黑睦不是没有优点，黑睦（目前看疑似）解决了白睦的社交障碍，按常理说，这类问题的标准解法是黑白融合（类似绚辻词），但是不知道编剧是怎么想的
+
+（喵梦也是，如果第一话就剧烈破坏形象，后面的反转是肯定的）
+
+*****
+
+####  akiomn  
+##### 5254#       发表于 2024-12-31 01:59
+
+ 本帖最后由 akiomn 于 2024-12-31 02:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066359&amp;ptid=2208921" target="_blank">玖羽 发表于 2024-12-31 01:51</a>
+
+我认为睦这么早就炸是好事（我也没想到能炸到这个程度）
+
+拿MyGO前三话对比，如果只看MyGO前三话，角色给 ...</blockquote>
+
+mujica不能用mygo经验去硬套，睦这么早炸好处在于最早收拾，如果之后有祥子线的话，睦可以作为助攻，甚至初华线睦都可以助攻
+
+但是黑睦是明确有问题的，不管是放下吉他这个动作还是说出的最讨厌祥子，这角色存在的最好理由是帮助睦跨越过去还有刺激加速祥子成长觉醒
+
+说到底只是能帮睦祥两个成长，但本身存在更多的是负面意义，这点我觉得第三话的吞掉白睦的演出很明显了，如果黑睦真的优点远大于缺点，白睦就是白塑造了，剧情上也会让观众觉得白睦不如就这样彻底消失
+
+角色需要成长，需要做的是跨越过去自己的不成熟和改正缺点。喵梦后面必有反转，也许会有另外一面，比如设定集里给家人打电话的表情，但现在她这个流量至上为了向上爬整了一系列活的举动就是错的，这也是她后面遭遇困境时需要做的改变
+
+*****
+
+####  玖羽  
+##### 5255#       发表于 2024-12-31 02:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066371&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-31 01:59</a>
+
+mujica不能用mygo经验去硬套，睦这么早炸好处在于最早收拾，如果之后有祥子线的话，睦可以作为助攻，甚至 ...</blockquote>
+在人格分裂问题上，把黑的干掉这个解法太老套了，除非编剧能做出创新，否则我认为这么做的可能性不大
+
+*****
+
+####  akiomn  
+##### 5256#       发表于 2024-12-31 02:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066395&amp;ptid=2208921" target="_blank">玖羽 发表于 2024-12-31 02:08</a>
+在人格分裂问题上，把黑的干掉这个解法太老套了，除非编剧能做出创新，否则我认为这么做的可能性不大 ...</blockquote>
+那看你怎么理解，因为黑睦是明确不会长久存在的，pv里睦砸书和遍地玩偶抚摸吉他的两幕大概率是白睦
+凡事都有两面性。喵梦第一集摘面具已经体现了。我觉得黑睦这事大概率也会体现，解放了白睦（或者说睦在逃避）但是代价呢？可能是伤害祥子，可能是和喵梦合伙和祥子作对彻底搞乱mujica。
+我觉得大概率是后者，和喵梦摘面具这事一样，自己一时是爽了，但是拿结果说话，最后是注定的双输
+
+*****
+
+####  哈曼的YY  
+##### 5257#       发表于 2024-12-31 02:23
+
+会融合的!
+
+<img src="https://p.sda1.dev/21/e9db2d174d4837b1d31cc476669291af/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  堆雪若叶  
+##### 5258#       发表于 2024-12-31 04:55
+
+立希问海铃母鸡卡相关的时候提到初华和祥子分别用了不同的称呼，对初华用的是表示生分的三角同学，对祥子是直接喊名字。这确实符合立希的习惯，但这个区别海铃是否会注意到？一方面是海铃比立希对人称呼区分更甚，几乎对所有人都喊姓带さん，唯有对立希一人是喊名字；更重要的另一点是，海铃对立希的过去，或者crychic到底知道多少？海铃身上有一个未回收的伏笔是为灯加油的理由，之前相关的线索只有她知道立希曾经组过乐队并且破镜重圆，海铃陪睦去看mygo结成的首次live也并不太明确她是否了解睦和mygo成员之间的关系。如果海铃能读出立希称呼上区分的含义，或许也能和她的动机相关联。这一点对于花咲川三角的关系也是比较有趣，毕竟初华是确定在追查crychic的线索，但她应该不会和海铃共享情报，甚至很大概率都没直接找过当事人立希。在同一个班初华和立希明面上却一点交流都没出现过也是非常微妙，立希追问祥子组队的原因也可能变成未来和初华的联系。
+
+*****
+
+####  玖羽  
+##### 5259#       发表于 2024-12-31 05:47
+
+ 本帖最后由 玖羽 于 2024-12-31 06:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066371&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-31 01:59</a>
+
+角色需要成长，需要做的是跨越过去自己的不成熟和改正缺点。喵梦后面必有反转，也许会有另外一面，比如设定集里给家人打电话的表情，但现在她这个流量至上为了向上爬整了一系列活的举动就是错的，这也是她后面遭遇困境时需要做的改变
+
+凡事都有两面性。喵梦第一集摘面具已经体现了。我觉得黑睦这事大概率也会体现，解放了白睦（或者说睦在逃避）但是代价呢？可能是伤害祥子，可能是和喵梦合伙和祥子作对彻底搞乱mujica。</blockquote>
+第三话的细节很明显了，喵梦是家境一般的努力家，对她来说睦的一切都是她梦想而不可得的，睦的演技天赋又那么好（她以为黑睦是演技）
+
+我觉得这里有一个误解，喵梦的推动力是卷，不是流量，流量只是卷的一部分
+
+所以她对睦的态度已经变成了“我想要的你都有，我卷得这么辛苦，你为什么连用都不用”，从这个出发点很容易移情到睦本人身上，第三话最后睦人格分裂的时候喵梦的态度明显是惊叹而不是惊讶
+
+后面只需要设计一个情节，逼她在睦（队友）和流量（卷）之间做出选择，人物弧光自然就有了
+
+根据我在前面写的理论（颠覆性原则），如果第一话就展示这个角色最大的问题是流量至上，那这就不是问题（相比阴谋踢队友、精神分裂来说）
+
+如果前三话就能把Ave Mujica的乱源全展示出来，你也太小看独角兽了，海铃和初华还没炸呢，到时候搞不好还得喵梦和睦帮忙收拾
+
+*****
+
+####  玖羽  
+##### 5260#       发表于 2024-12-31 06:20
+
+ 本帖最后由 玖羽 于 2024-12-31 06:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67067199&amp;ptid=2208921" target="_blank">玖羽 发表于 2024-12-31 05:47</a>
+
+后面只需要设计一个情节，逼她在睦（队友）和流量（卷）之间做出选择，人物弧光自然就有了</blockquote>
+我举个例子，现在喵梦已经表现出对森美奈美介绍的机会很热衷，如果后面让喵梦为了保护睦主动跟森美奈美翻脸，这不就是很好的人物弧光
+
+第二话表现喵梦对森美奈美上赶着舔的镜头多得有点不正常，后面可以给一个契机，让喵梦发现她梦想的顶级艺人若叶夫妇是出生，把睦这个天才逼成了精神分裂
+
+然后有一次正好赶上森美奈美和睦发生冲突（Ave Mujica成员可以随便进若叶家），喵梦：QNMD，你介绍的机会老娘不要了，老娘今天就要护着队(jia)友(ren)
+
+这种情节只要演出来，以后谁还敢说键帽（只是举个例子，不是说真的会出现，也可以是类似的情节）
+
+*****
+
+####  织部琴音  
+##### 5261#       发表于 2024-12-31 06:42
+
+ 本帖最后由 织部琴音 于 2024-12-31 06:45 编辑 
+
+如果没有后续动画，那么矛盾肯定要解决到能进游戏的阶段，不过不需要把所有矛盾都解决
+
+*****
+
+####  一心而用  
+##### 5262#       发表于 2024-12-31 09:05
+
+那个……今天是米泽茜26岁生日。
+
+*****
+
+####  天邪鬼  
+##### 5263#       发表于 2024-12-31 09:10
+
+如果初华是侦探位，那她关心的应该不是祥子最近发生了什么事，而是和童年，和岛上甚至大宅里发生有关的事情吧
+
+*****
+
+####  akiomn  
+##### 5264#       发表于 2024-12-31 09:11
+
+ 本帖最后由 akiomn 于 2024-12-31 09:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67067199&amp;ptid=2208921" target="_blank">玖羽 发表于 2024-12-31 05:47</a>
+
+第三话的细节很明显了，喵梦是家境一般的努力家，对她来说睦的一切都是她梦想而不可得的，睦的演技天赋又 ...</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问题是，喵梦已经到了能为了表演追求流量到了可以放弃音乐的地步，观众既然想看就给他们看，这不是什么反不反转的问题，而是本身的想法已经错误了。虽然鸡团本身就是摇摇欲坠的银河战舰，但是到了这种地步，问题根源还是喵梦和祥子的理念之争。
+
+那喵梦的理念是对的吗？第二话已经给了结果。但喵梦还没有认清，最后的结果是祥子管不过来疲于奔命，还加速了黑睦的出现
+
+你是个努力家，你努力了，但你努力的方向却是错误的
+
+喵梦必须得吃瘪受到教训一次
+
+我一直认为不能拿狗团的思路继续看鸡团了，而鸡团目前的表现也确实如此，祥子还未成长起来，睦也没跨越自己，海玲身为二把手却旁观，喵梦更是没意识自己的理念是错的
+
+*****
+
+####  ml1642879  
+##### 5265#       发表于 2024-12-31 09:20
+
+今天份的鬼图呢？
+
+*****
+
+####  桜庭千景  
+##### 5266#       发表于 2024-12-31 09:22
+
+<blockquote>ml1642879 发表于 2024-12-31 09:20
+今天份的鬼图呢？</blockquote>
+前几天都是11点多发的
+
+*****
+
+####  桜庭千景  
+##### 5267#       发表于 2024-12-31 09:25
+
+我说的喵梦的努力家人设是容易拉好感，但是前提是建立在正确的努力上，就现在这个搞事的好处我捞甚至还嫌不够，恶果是让队友全吃了
+
+这要是不修正修正我看直接改名大喵传得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 5268#       发表于 2024-12-31 09:35
+
+精神分裂和人格分裂是不相关两回事请不要混在一起
+
+黑睦虽然大家都说是黑睦，但这个mortis不是一个完全独立的意识，也不是严格意义上的人格，大概率只是睦压抑的原本就有的一部分而已
+
+mortis一直都在，而且有很多个（参见cast表），并且没有在此前存在的时候就显露
+
+睦最典型最有现实性的障碍症状是失眠，幻觉也只是疑似幻觉，有可能只是一种夸张表现下的内心写照
+
+既然mortis本来就是睦的一部分，那么最后很可能是会被睦自我接纳的，也就是漏油说的融合
+
+这个可能性是最高的
+
+*****
+
+####  玖羽  
+##### 5269#       发表于 2024-12-31 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67068176&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-31 09:11</a>
+
+问题是，喵梦已经到了能为了表演追求流量到了可以放弃音乐的地步，观众既然想看就给他们看，这不是什么反 ...</blockquote>
+第三话开头和结尾睦在舞台上出问题的时候，给喵梦的镜头都是惊叹（喵梦以为是睦的演技）
+
+当然没看到后面不好下定论，但我觉得这是一种过渡，也可以说偷渡，喵梦的“流量至上”开始不纯了
+
+“这么演流量更高”会渐渐地偷渡成“睦的演技这么好，不演就浪费了”，然后就可以顺理成章地过渡到对睦个人的移情
+
+我觉得没有必要把喵梦的流量至上看得太严重，或者说，如果流量至上就是喵梦最大的问题，那差不多等于没有问题
+
+爱音在MyGO第1话的时候也显得好像有黑暗的过去，但是第5话解决的时候也就那么回事，并且解决这个问题不妨碍后面再次爆
+
+*****
+
+####  yozoraxsx  
+##### 5270#       发表于 2024-12-31 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066174&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-31 00:38</a>
+母鸡卡第一集先播出来时候，观众上帝视角看祥子都觉得惨了。那么如果剧内老c团三个角色知道这些事，恐怕要 ...</blockquote>
+惨吗?第一集那时候我看到的是丰川家三代至少有一代不是人。
+
+真比惨我觉得mana11人里最惨。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  山ノ内花音  
+##### 5271#       发表于 2024-12-31 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67068472&amp;ptid=2208921" target="_blank">yozoraxsx 发表于 2024-12-31 09:50</a>
+惨吗?第一集那时候我看到的是丰川家三代至少有一代不是人。
+
+真比惨我觉得mana11人里最惨。</blockquote>
+mana现在solo活动都搞起来了
+不太可能成为苦守sumimi空闺苦等初华的形象了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 5272#       发表于 2024-12-31 09:57
+
+ 本帖最后由 akiomn 于 2024-12-31 10:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67068453&amp;ptid=2208921" target="_blank">玖羽 发表于 2024-12-31 09:47</a>
+
+第三话开头和结尾睦在舞台上出问题的时候，给喵梦的镜头都是惊叹（喵梦以为是睦的演技）
+
+当然没看到后面 ...</blockquote>
+
+这和你说的偷渡不偷渡什么移接到对睦感情无关
+
+而是祥子和喵梦的理念之争这个根源到现在也没解决，哪怕睦真的接受了去老实表演了
+
+但是喵梦仍然会为了追求流量去搞别的事，队友还得为了喵梦搞的事去帮忙擦屁股
+
+好事全让你爽了甚至嫌不够爽，坏事都让队友吃苦果？
+
+爱音更是别提了，人家顶天就爱慕虚荣，放鸡团里让祥子带到武道馆怕是巴不得祥子说的话全是对的直接化身祥子头号迷妹。那喵梦是啥？被祥子带到武道馆，嫌弃不够，摘面，祥子帮忙擦屁股，还嫌弃不够，逼迫睦继续表演，突出一个流量至上的打法，至于伤没伤害队友？她压根没在乎
+
+人设反转的前提是错误理念先修正，要不然有本事别叫队友帮忙擦屁股，自己亲自收拾烂摊子去，实际现在的烂摊子全是祥子帮喵梦收拾的
+
+*****
+
+####  桜庭千景  
+##### 5273#       发表于 2024-12-31 10:09
+
+<blockquote>akiomn 发表于 2024-12-31 09:57
+这和你说的偷渡不偷渡什么移接到对睦感情无关
+
+而是祥子和喵梦的理念之争这个根源到现在也没解决，哪怕睦 ...</blockquote>
+
+因为他偷换概念了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+喵梦流量至上主义不严重≠造成的后果不严重
+
+流量至上的观点修正确实就是一句话的事，比起祥子的强烈自尊和睦的心理内耗比确实不是大的问题，但是喵梦现在一己之力把mujica推到炸团边缘，让睦祥两个人都濒临崩溃是实打实的
+
+结果他想用轻描淡写的“流量至上不是多大问题”一笔带过了，当然说出的话和真看过剧的人观感天差地别
+
+*****
+
+####  1223122  
+##### 5274#       发表于 2024-12-31 10:12
+
+年度第一原创<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 14战斗力 +15
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 我有一个朋友| + 2|好评加鹅|
+| Gandalf| + 1|承你吉言|
+| ydsbbt| + 1|欢乐多|
+| 走向未来| + 1|好评加鹅|
+| KLHgg| + 1|欢乐多|
+| Kfly| + 1|真嘟假嘟|
+| 收纳袋| + 1|哇哦|
+| ????????| + 1||
+| Grahamlinks| + 1|欢乐多|
+| 坐看风起云涌| + 1|害怕|
+| Toki_Ai| + 1|不安です|
+| Alicest| + 1|十五年…|
+| 一心而用| + 1|借你吉言|
+| MagicGiraffe| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  相坂君  
+##### 5275#       发表于 2024-12-31 10:12
+
+如果这不是2.5企划，真想要这样的喵梦也不是不可能。但这是邦邦，流量至上根本上就是错的
+
+从揭面开始，睦绷不住后的失言，甚至影响到初华sumimi这边被狂问解散问题，一连串的蝴蝶效应，现在喵梦搞的事她都没付出代价，只是在享受成果，必然会被修正
+
+*****
+
+####  相坂君  
+##### 5276#       发表于 2024-12-31 10:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png"><img src="https://static.saraba1st.com/image/smiley/face2017/112.png"><img src="https://static.saraba1st.com/image/smiley/face2017/111.png">年度第一原创……你们吹得好厉害？太哈人了！
+
+*****
+
+####  cayon  
+##### 5277#       发表于 2024-12-31 10:16
+
+ 本帖最后由 cayon 于 2024-12-31 10:18 编辑 
+
+情报哥这是看完了吗，这还没到2025呢就最佳原创了，吹的好哈人
+
+*****
+
+####  紫吹兰  
+##### 5278#       发表于 2024-12-31 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066248&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-31 00:59</a>
+
+所以我觉得有些漏油说的问题一定要解决根本不成立
+
+实际上狗内部都没有做到互相全部把老底交了，只是说互相 ...</blockquote>
+拿mygo来看意义不大，因为mygo动画就没有结束，第10话本身是冲突的最高潮被强行按了下来，独角兽和10本都强调过mygo+mujica才是完整的动画，mygo的游戏剧情也暂停了一年，mujica如果没有后续动画，两团的问题应该都要至少把心结解决掉。
+
+*****
+
+####  akiomn  
+##### 5279#       发表于 2024-12-31 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67068646&amp;ptid=2208921" target="_blank">桜庭千景 发表于 2024-12-31 10:09</a>
+因为他偷换概念了啊
+
+喵梦流量至上主义不严重≠造成的后果不严重
+
+流量至上的观点修正确实就是一句话的事， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拿狗团思路来说鸡团本来就挺搞笑的
+爱音爱慕虚荣，灯前期软弱没主唱样，立希脾气糟糕点，但这三个干不出喵梦这种事，干不出为了流量伤害队伍队友的事，本质都是心地善良的好孩子
+即使是后期boss素世，最后也接受了狗团，但代价是什么？飞鸟山被祥子拷打，诗超绊被组团刷了，最后虽然还是忘不了c团但是放下了c团接受狗团
+
+我觉得制作组很清楚人设最后反转前该让角色付出什么代价
+
+*****
+
+####  Milarvoz  
+##### 5280#       发表于 2024-12-31 10:17
+
+我去，情报哥这就来了，看来是看完了？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  山ノ内花音  
+##### 5281#       发表于 2024-12-31 10:18
+
+第一集的情报哥：年度第一原创
+第十集的情报哥：这大纲<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 5282#       发表于 2024-12-31 10:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真是情报哥吗？有证据吗
+
+*****
+
+####  紫吹兰  
+##### 5283#       发表于 2024-12-31 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066359&amp;ptid=2208921" target="_blank">玖羽 发表于 2024-12-31 01:51</a>
+
+我认为睦这么早就炸是好事（我也没想到能炸到这个程度）
+
+拿MyGO前三话对比，如果只看MyGO前三话，角色给 ...</blockquote>
+拿go的节奏看mujica意义不大，因为go的前期本质上是角色进场建立角色印象的过程而第三集才开始揭露矛盾，而mujica的主要角色在mygo里已经建立了初步印象所以可以第一集就把冲突矛盾爆发出来，尤其祥子作为go动画的主要角色和冲突核心之一，本身已经塑造了很多，mujica作为一个团队的内部描绘也有13话打了底子。
+
+所以mujica的实质剧情长度要比mygo充裕很多，拿mygo的节奏套并不合适。
+
+*****
+
+####  Aloereed  
+##### 5284#       发表于 2024-12-31 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67068750&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-31 10:18</a>
+
+真是情报哥吗？有证据吗</blockquote>
+老牌情报哥了，这都不认识？<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 5285#       发表于 2024-12-31 10:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">突然想起25年也没几个原创，比起电车横条上的史上最狂，年度第一似乎也不算吹得很大了，鉴于情报哥们爱溜观众前科，谨慎看待
+
+*****
+
+####  一心而用  
+##### 5286#       发表于 2024-12-31 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67068750&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-31 10:18</a>
+
+真是情报哥吗？有证据吗</blockquote>
+这人是我们组的重要图源。
+
+*****
+
+####  Aendst  
+##### 5287#       发表于 2024-12-31 10:29
+
+ 本帖最后由 Aendst 于 2024-12-31 10:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67068708&amp;ptid=2208921" target="_blank">紫吹兰 发表于 2024-12-31 10:16</a>
+
+拿mygo来看意义不大，因为mygo动画就没有结束，第10话本身是冲突的最高潮被强行按了下来，独角兽和10本都 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">？？？？？？制作组亲口说的mygo的故事已经告一段落了，甚至提前写完了
+
+mygo+mujica才是完整的只是在说故事上的完整性，不是在说mygo的故事
+
+mujica要讲mygo一直在铺的祥子线，mygo有涉及但没讲完的内容是祥子的故事，所以26话才是完整的故事，你能理解吗
+
+mujica实质剧情长度更长所以不能套用mygo节奏这个我倒是很赞同
+
+*****
+
+####  山ノ内花音  
+##### 5288#       发表于 2024-12-31 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67068865&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-31 10:29</a>
+？？？？？？制作组亲口说的mygo的故事已经告一段落了，甚至提前写完了
+
+mygo+mujica才是完整的只是在说故 ...</blockquote>
+mygo的故事告一段落了
+但mygo动画的故事还没有结束 指的应该是祥子的秘密这一块
+
+*****
+
+####  雾仙猫灯  
+##### 5289#       发表于 2024-12-31 10:33
+
+闭着眼睛问一句
+
+还在等第一集官方放送的能爬楼吗
+
+*****
+
+####  Adyeshach  
+##### 5290#       发表于 2024-12-31 10:35
+
+<blockquote>雾仙猫灯 发表于 2024-12-31 10:33
+闭着眼睛问一句
+
+还在等第一集官方放送的能爬楼吗</blockquote>
+现在基本上都是剧透了，如果不想看剧透的话建议还是别爬得好。
+
+*****
+
+####  山ノ内花音  
+##### 5291#       发表于 2024-12-31 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67068906&amp;ptid=2208921" target="_blank">雾仙猫灯 发表于 2024-12-31 10:33</a>
+闭着眼睛问一句
+
+还在等第一集官方放送的能爬楼吗</blockquote>
+快跑<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  相坂君  
+##### 5292#       发表于 2024-12-31 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67068906&amp;ptid=2208921" target="_blank">雾仙猫灯 发表于 2024-12-31 10:33</a>
+
+闭着眼睛问一句
+
+还在等第一集官方放送的能爬楼吗</blockquote>
+完全没看相关剧透画面的话，不是很建议，因为楼里讨论基本上基于剧情了
+
+*****
+
+####  Aendst  
+##### 5293#       发表于 2024-12-31 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67068906&amp;ptid=2208921" target="_blank">雾仙猫灯 发表于 2024-12-31 10:33</a>
+
+闭着眼睛问一句
+
+还在等第一集官方放送的能爬楼吗</blockquote>
+不能，千万别爬<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 5294#       发表于 2024-12-31 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67068854&amp;ptid=2208921" target="_blank">一心而用 发表于 2024-12-31 10:28</a>
+这人是我们组的重要图源。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我去，年度第一原创，不知道后面有多炸裂
+
+*****
+
+####  鲍里斯  
+##### 5295#       发表于 2024-12-31 10:59
+
+感谢情报哥给的定心剂
+
+—— 来自 vivo V2172A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  吹楼伞人  
+##### 5296#       发表于 2024-12-31 10:59
+
+要不你们建个无剧透楼吧，或者是个至少按官方放送进度讨论楼
+不然参考这几年有先行放送或者剧透的原创作品，路人观感和讨论环境会很差
+
+*****
+
+####  挺好的  
+##### 5297#       发表于 2024-12-31 11:01
+
+<img src="https://img.saraba1st.com/forum/202412/31/110105frbtn4dra4gw4kr8.jpg" referrerpolicy="no-referrer">
+
+<strong>1704cbddfa11a1278b52515ebc0a4807.jpg</strong> (73.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 11:01 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 桐生| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  收纳袋  
+##### 5298#       发表于 2024-12-31 11:01
+
+真的假的<img src="https://static.saraba1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  AveMujica  
+##### 5299#         楼主| 发表于 2024-12-31 11:02
+
+2
+<img src="https://p.sda1.dev/21/30aadfb695c04113bf3d12c9956a2e97/image.jpg" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 桐生| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  瞳映山川  
+##### 5300#       发表于 2024-12-31 11:03
+
+大喵是吃瘪颜？
+
+*****
+
+####  66367749  
+##### 5301#       发表于 2024-12-31 11:04
+
+不甘心，难过，后悔，伤心？
+
+*****
+
+####  Badwoman  
+##### 5302#       发表于 2024-12-31 11:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">喵最后不会变成那种对外精明对内整天吃瘪的笨蛋姐姐形象吧
+
+*****
+
+####  ml1642879  
+##### 5303#       发表于 2024-12-31 11:06
+
+“嫩马了批的，谁写的鼓谱，累死个人”
+
+*****
+
+####  山ノ内花音  
+##### 5304#       发表于 2024-12-31 11:09
+
+诶卧槽丰川祥子怎么这坏啊（抽泣）（抹眼泪）
+
+*****
+
+####  Augusty  
+##### 5305#       发表于 2024-12-31 11:11
+
+哭呀洗，并感
+
+*****
+
+####  坐看风起云涌  
+##### 5306#       发表于 2024-12-31 11:11
+
+会是年度第一原创百合番吗？<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  金钱与民主  
+##### 5307#       发表于 2024-12-31 11:12
+
+果然表情主打的就是一个反差，看来祥子大概率是“计划通”之类的表情。
+
+*****
+
+####  古怪山庄士大夫  
+##### 5308#       发表于 2024-12-31 11:13
+
+明年第一部原创，合理
+
+*****
+
+####  ytttsuuuba  
+##### 5309#       发表于 2024-12-31 11:15
+
+喵梦一脸被攻略
+
+*****
+
+####  挺好的  
+##### 5310#       发表于 2024-12-31 11:23
+
+<img src="https://img.saraba1st.com/forum/202412/31/112256dcsh5y005vvs0caz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>d6abab9b90935bb4460af3cd6c1fa30a.jpeg</strong> (181.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 11:22 上传
+
+*****
+
+####  紫吹兰  
+##### 5311#       发表于 2024-12-31 11:27
+
+ 本帖最后由 紫吹兰 于 2024-12-31 11:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67068865&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-31 10:29</a>
+
+？？？？？？制作组亲口说的mygo的故事已经告一段落了，甚至提前写完了
+
+mygo+mujica才是完整的只是在说故 ...</blockquote>
+首先我说的是mygo动画没有结束，而告一段落是指mygo作为一个乐队勉强能立起来了，mygo乐队的内部问题虽然谈不上解决但是至少互相之间摊开了牌而不是之前各怀鬼胎拿乐队当工具的状态，后面的剧情不会过多涉及mygo乐队内部的问题。
+
+但是不论作为mygo动画矛盾起爆器的素世，还是作为两季动画的线索人物的祥子的问题都没有解决，所以这部动画并没有写完，如果按照访谈所说两季动画是一个整体，那么这些问题就有可能要在mujica这季来解决。
+
+当然我这里说的也只是有可能，作为动画本身来讲，很多问题解决不了才是正常的，甚至从我个人角度来说，更希望看到浓烈的感情得到长久的延绵，无论是爱还是恨，都好过你好我好的关系性消解。但是考虑到2.5企划的问题，大概mujica动画还是有一定任务在的。
+
+*****
+
+####  jkl  
+##### 5312#       发表于 2024-12-31 11:30
+
+ 本帖最后由 jkl 于 2024-12-31 11:38 编辑 
+
+灵魂宝石会孕育魔女的话，大家不都只有去死了吗！你也是我也是。
+<img src="https://p.sda1.dev/21/c7e212035d427809c748f02f150772a7/image.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狂热飞鸟  
+##### 5313#       发表于 2024-12-31 11:34
+
+我觉得素的故事在狗已经讲完了，从混活可以看素就是放不下C团，估计在鸡里也不会让她放下。
+
+在不放下C团且基本不可能知道祥子真正退团原因和不谅解睦的前提下，那素在鸡的戏份下没什么成长性呀
+
+*****
+
+####  Redimercia  
+##### 5314#       发表于 2024-12-31 11:37
+
+无端联想：
+
+<img src="https://img.saraba1st.com/forum/202412/31/113745utl2csbuu2pcuz9s.png" referrerpolicy="no-referrer">
+
+<strong>IMG_4971.PNG</strong> (87.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 11:37 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  一心而用  
+##### 5315#       发表于 2024-12-31 11:41
+
+<img src="https://p.sda1.dev/21/9f1ffe406ddcbcdac8e8c0809482e318/image.jpg" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 桐生| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  akiomn  
+##### 5316#       发表于 2024-12-31 11:44
+
+难以想象是发生什么事才能让喵梦露出这表情破大防
+
+*****
+
+####  银酒监武  
+##### 5317#       发表于 2024-12-31 11:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67069547&amp;ptid=2208921" target="_blank">狂热飞鸟 发表于 2024-12-31 11:34</a>
+我觉得素的故事在狗已经讲完了，从混活可以看素就是放不下C团，估计在鸡里也不会让她放下。
+
+在不放下C团且 ...</blockquote>
+这个版本可以增加对祥子的恨，不说成长了没，就说更没更新吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  紫吹兰  
+##### 5318#       发表于 2024-12-31 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67069649&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-31 11:44</a>
+
+难以想象是发生什么事才能让喵梦露出这表情破大防</blockquote>
+还是那句话，舞台妆的一切表现都可以被剧中剧解决，所以多想也没用，不过喵梦这个表情倒是比前三个正常倒是她自己真实表情的可能更大。
+
+*****
+
+####  101stroad  
+##### 5319#       发表于 2024-12-31 11:52
+
+ 本帖最后由 101stroad 于 2024-12-31 16:28 编辑 
+
+睦这表情让人想起水爷那张复活节岛石像🗿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狂热飞鸟  
+##### 5320#       发表于 2024-12-31 11:53
+
+<blockquote>银酒监武 发表于 2024-12-31 11:46
+这个版本可以增加对祥子的恨，不说成长了没，就说更没更新吧
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+我觉得大部分说素故事没完结的想要的应该不是这种戏份
+
+
+*****
+
+####  Libartas  
+##### 5321#       发表于 2024-12-31 12:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，喵梦这张像是从局长宇宙来的，那么局长c106能安排下喵梦调教本吗？（
+
+*****
+
+####  本间日阳  
+##### 5322#       发表于 2024-12-31 12:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">从不止一个渠道听人说这是年度第一动画了，在我心中已毫无翻车可能。
+
+*****
+
+####  KLHgg  
+##### 5323#       发表于 2024-12-31 12:26
+
+年度第一原创是指年度第一个播出的原创吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 5324#       发表于 2024-12-31 12:28
+
+喜怒哀乐miss了 祥老师怒一个救救
+
+*****
+
+####  帝下室の年糕  
+##### 5325#       发表于 2024-12-31 12:29
+
+木谷高明:足以改变未来动画业界的作品，我已经看了5遍
+三次元社长：我看了三遍 已经中毒了
+独角兽：这是我倾注了一生，可以带入坟墓的作品，百合写到这种程度真的好吗？
+羊宫妃那:MUJICA比MYGO冲击更大，但我相信你们能够承受的
+情报哥:年度第一原创
+中二电波台:王者归来，胜利宣言，翻车概率0%
+
+*****
+
+####  HGenDs  
+##### 5326#       发表于 2024-12-31 12:33
+
+没想到提前放送三集影响这么大，又不想看枪版又没忍住刷了好多讨论，感觉一月的追番体验已经没了<img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  山ノ内花音  
+##### 5327#       发表于 2024-12-31 12:35
+
+<img src="https://img.saraba1st.com/forum/202412/31/123504tdyf2zrszshrsd2v.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4062.jpeg</strong> (230.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 12:35 上传
+
+*****
+
+####  Aendst  
+##### 5328#       发表于 2024-12-31 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67070049&amp;ptid=2208921" target="_blank">帝下室の年糕 发表于 2024-12-31 12:29</a>
+
+木谷高明:足以改变未来动画业界的作品，我已经看了5遍
+
+三次元社长：我看了三遍 已经中毒了
+
+独角兽：这是我 ...</blockquote>
+这怎么全是flag啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KLHgg  
+##### 5329#       发表于 2024-12-31 12:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67070049&amp;ptid=2208921" target="_blank">帝下室の年糕 发表于 2024-12-31 12:29</a>
+
+木谷高明:足以改变未来动画业界的作品，我已经看了5遍
+
+三次元社长：我看了三遍 已经中毒了
+
+独角兽：这是我 ...</blockquote>
+mggm的话术是第13话看了五遍，不过改变未来动画业界又是哪吹出来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  贰臣  
+##### 5330#       发表于 2024-12-31 12:40
+
+你鸡身上flag已经多到虱子多了不怕痒的程度了
+
+*****
+
+####  枫林不见  
+##### 5331#       发表于 2024-12-31 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67069814&amp;ptid=2208921" target="_blank">Libartas 发表于 2024-12-31 12:02</a>
+
+草，喵梦这张像是从局长宇宙来的，那么局长c106能安排下喵梦调教本吗？（</blockquote>
+阿贝母鸡卡 喵梦的教育是吧
+
+*****
+
+####  Aendst  
+##### 5332#       发表于 2024-12-31 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67070112&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2024-12-31 12:35</a></blockquote>
+连起来观感像是睦吓到了初华，海铃破防了喵梦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 5333#       发表于 2024-12-31 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67070310&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-31 12:58</a>
+连起来观感像是睦吓到了初华，海铃破防了喵梦</blockquote>
+<img src="https://p.sda1.dev/21/c2ae9d90786ff835eb0629f897c04c24/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/9e0bf68c798b65fd33594f43613d12d7/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 5334#       发表于 2024-12-31 13:18
+
+爽姐都要在飞鸟山之后才被灯皇诗超绊修正，哈基喵肯定要吃瘪吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+2.5次元敢这么写角色还挺大胆的，包饺子也要让观众能理解这个角色，比惨大会肯定不行。大祥初华这两个还没爆完，大喵的团魂注入也要戏份，真的还有戏份给海铃吗
+
+*****
+
+####  杂灰  
+##### 5335#       发表于 2024-12-31 13:22
+
+哈吉喵不就只是个更过激的爱音役吗，真素世役还得是祥子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  抽搐一下  
+##### 5336#       发表于 2024-12-31 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67070158&amp;ptid=2208921" target="_blank">KLHgg 发表于 2024-12-31 12:40</a>
+
+mggm的话术是第13话看了五遍，不过改变未来动画业界又是哪吹出来的</blockquote>
+mggm在成都旅行时候视频的ppt里吧13话的限定去掉了，改变业界是演讲词
+
+*****
+
+####  海洋队手下mayo  
+##### 5337#       发表于 2024-12-31 13:35
+
+只看了零星的剧透 让观众理解喵只需像逆转裁判马戏团章节的那个魔术师“俺只是想要还清乡下老爹的债务而已”即可<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+bangdream·城里的老爹还是乡下的老爹
+
+*****
+
+####  山ノ内花音  
+##### 5338#       发表于 2024-12-31 13:36
+
+喵一个人在东京打工 
+需要养乡下三个妹妹的可能性也是有的
+
+*****
+
+####  6030sylar  
+##### 5339#       发表于 2024-12-31 13:50
+
+<img src="https://img.saraba1st.com/forum/202412/31/134948pgrxssregreuv8gv.jpg" referrerpolicy="no-referrer">
+
+<strong>4772e3a6c64b4b4e9f0218312ddec9e9.jpg</strong> (20.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 13:49 上传
+
+*****
+
+####  Aendst  
+##### 5340#       发表于 2024-12-31 13:58
+
+ 本帖最后由 Aendst 于 2024-12-31 14:04 编辑 
+
+mygo和mujica是完全相反的，这个设计思路我觉得是不能忽视的
+
+mygo不是描写成长的故事（柿本），整个mygo动画保留了角色的负面性，甚至在mujica动画前两话再现了这些问题
+
+肉眼可见的，爽世依旧在被个人感情冲昏头脑并且会把其他人卷进去，灯依旧处于一个被动状态甚至还在捡石头，立希对睦的态度和对祥子的反应看起来似乎也有可能是劣等感的表现
+
+爱音逃避的问题不明显，乐奈没有存在感，这两个人暂且不能判断是否变动
+
+但可以发现的是mygo的脚本上，没有采用“改变角色行为，修正角色”的方法去“解决”问题，而是在叙述角色的问题，并且告知产生问题的原因让观众“理解”和“原谅”角色行为，这是一种“共情”
+
+所以mygo是迷子，是会一直迷路的，从这个概念上来说，角色的问题是不会被修正的，不修正也没关系，因为会被原谅
+
+但mujica是相反的
+
+前三话用大量回忆直接放出了祥子和睦问题的成因，但是这与角色问题的联系并不明晰，并且更多的是在交代事情的前因后果
+
+mujica没有花大量篇幅去叙述角色的问题，没有明确告知你她的行为哪里有问题（或者说角色的理念有问题，但行为本身是称不上有问题的），也没有让观众设身处地去共情角色（因此分锅大会开幕了）
+
+但她们的深层问题导致的她们本就可被理解的一般行为招致了极其糟糕的结果
+
+这一点在mujica五名成员身上都是适用的
+
+mujica是在经由角色的个人问题锚定冲突，已经可见，在让角色的行为发生“改变”，并且很可能是要去“解决”这些问题以及修正角色的
+
+*****
+
+####  你妈的为什么  
+##### 5341#       发表于 2024-12-31 14:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太期待祥子的表情了，不会是纯洁小圆脸吧
+
+*****
+
+####  adcdqre  
+##### 5342#       发表于 2024-12-31 14:19
+
+现实方向的话喵至少要比祥子穷才能说过去，而祥子放国内应该属于派出所重点关注对象。如果是也家人侠确实容易跟祥子共情，但是武道馆了还急急急总觉得没道理推测是治病之类急用钱的理由
+
+*****
+
+####  桐生  
+##### 5343#       发表于 2024-12-31 14:21
+
+<blockquote>AveMujica 发表于 2024-12-31 11:02
+2</blockquote>
+當你發現新工作同事都是同性戀還多角戀
+
+主管找你進來還是因為你長得像她前女友
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 桜庭千景|-1|让我看看有无小鬼套盾|
+
+查看全部评分
+
+*****
+
+####  山ノ内花音  
+##### 5344#       发表于 2024-12-31 14:28
+
+哎 有心脏病还打鼓 太不容易了
+
+*****
+
+####  yozoraxsx  
+##### 5345#       发表于 2024-12-31 14:40
+
+有没有可能是大喵老师发现自己是偷摸零代餐的表情？
+
+*****
+
+####  相坂君  
+##### 5346#       发表于 2024-12-31 14:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唉，没任何关系也硬是要跟母鸡卡扯上关系，永远都放不下你们心头好——代 餐，也是一种绿帽癖
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Aendst| + 1|可能是自卑发作了|
+
+查看全部评分
+
+*****
+
+####  山ノ内花音  
+##### 5347#       发表于 2024-12-31 14:52
+
+不过说实话 
+从前三集来看 
+祥子确实挺爱喵梦的 
+感觉到结局阶段 
+喵祥的情感深度大概率比灯箱高不少
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 桐生| + 1|思路广|
+
+查看全部评分
+
+*****
+
+####  瞳映山川  
+##### 5348#       发表于 2024-12-31 14:59
+
+就这么放不下那代餐，要不去买点代餐粉吃吧，我看也挺爱的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qjw114514  
+##### 5349#       发表于 2024-12-31 14:59
+
+看了今天这张图，突然想嬷喵梦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  贰臣  
+##### 5350#       发表于 2024-12-31 15:04
+
+这张图可太好嬷了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">和海铃的拼一起更是忍不住吃一口节奏组，我们贝斯鼓一向都是夫妻啊
+
+*****
+
+####  Aendst  
+##### 5351#       发表于 2024-12-31 15:05
+
+要不是爽世黑脸了之后都会变成无法预测的命运，我觉得爽祥要比灯祥更有前景吧
+
+同样是白月光滤镜，爽世抢先意识到了自己的感情还开展了猛烈攻势追回祥子
+
+而祥子又是在平等地重视crychic的三个人，爽世在白月光巡回竞争中脱颖而出的机会真的有，可惜命运作弄<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 5352#       发表于 2024-12-31 15:12
+
+喵梦最可爱的就是第三集属于她自己的那几个片段
+坐在表演教室椅子上的表情
+还有回到出租屋路上的夕阳下的疲惫表情
+都画的很不错
+
+*****
+
+####  基神的强袭自由  
+##### 5353#       发表于 2024-12-31 15:13
+
+<img src="https://img.saraba1st.com/forum/202412/31/151354prnananudynurjnu.jpg" referrerpolicy="no-referrer">
+
+<strong>新建 Microsoft Word 文档.jpg</strong> (212.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 15:13 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 桐生| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  fufusako  
+##### 5354#       发表于 2024-12-31 15:23
+
+睦：庄家做**，点了自己屁胡
+
+初华：立直一巡后变成空听
+
+海玲：正在捻牌，即将役满自摸
+
+大猫：全程烧鸡，南一被飞的瞬间
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Mkntoil| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  山ノ内花音  
+##### 5355#       发表于 2024-12-31 15:25
+
+祥子明天能来个贝阿朵莉切那种颜艺吗
+
+*****
+
+####  桜庭千景  
+##### 5356#       发表于 2024-12-31 15:53
+
+其实我本来想说要是五个人的表情和代号能相关表达就好了
+
+然后意识到一个问题，祥子怎么表现遗忘啊。。。呆瓜表情吗？
+
+然后就算了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 桐生| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  山ノ内花音  
+##### 5357#       发表于 2024-12-31 15:55
+
+睦这个表情也表现不了死亡吧
+
+*****
+
+####  桜庭千景  
+##### 5358#       发表于 2024-12-31 15:57
+
+<blockquote>山ノ内花音 发表于 2024-12-31 15:55
+睦这个表情也表现不了死亡吧</blockquote>
+
+现在都是颜艺脸就没意义了，只是我自己的想法而已，死亡的话可能直接画个假寐表情之类的就可以了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 桐生| + 1|我不缺鵝哦，你需要的我還可以送你.|
+
+查看全部评分
+
+*****
+
+####  PDQ4  
+##### 5359#       发表于 2024-12-31 16:00
+
+喵梦说的话，无论是第三集车站还是地下室以及其他时间和祥子交锋，其实有承担了之前祥子的正论暴击职能，太对了初祥一个能反驳的都没有
+她和祥子是单纯的理念之争，唯一的问题是邦邦动画否定音乐性out了，但是针对这一点给了她拼命练习的努力家人设
+针锋相对是喵祥很有意思的嗑点，而且喵梦脸是祥子钦定的好看
+小祥看见这么漂亮一张脸对着自己正论连发，心情肯定很复杂吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 5360#       发表于 2024-12-31 16:01
+
+感觉祥p不会颜艺，参考op，虽然我是很想看<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+太坏了丰川祥子
+
+
+*****
+
+####  一心而用  
+##### 5361#       发表于 2024-12-31 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67071233&amp;ptid=2208921" target="_blank">贰臣 发表于 2024-12-31 15:04</a>
+这张图可太好嬷了和海铃的拼一起更是忍不住吃一口节奏组，我们贝斯鼓一向都是夫妻啊 ...</blockquote>
+好的，拼一起。
+<img src="https://p.sda1.dev/21/89279f1fce1e1d6ffc2a3051c9cb7d03/image.jpg" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 贰臣| + 1|好评加鹅|
+| 桐生| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 5362#       发表于 2024-12-31 16:05
+
+本来不想代餐的，想到泥潭反买别墅看海，这下不想代餐也不行了[汤圆]
+
+*****
+
+####  桐生  
+##### 5363#       发表于 2024-12-31 16:06
+
+<img src="https://img.saraba1st.com/forum/202412/31/160617n8yyarb8vssu3slb.jpg" referrerpolicy="no-referrer">
+
+<strong>FB_IMG_1735632260966.jpg</strong> (81.55 KB, 下载次数: 1)
+
+下载附件
+
+由手机上传
+2024-12-31 16:06 上传
+
+<img src="https://img.saraba1st.com/forum/202412/31/160617y648586x7xa665al.jpg" referrerpolicy="no-referrer">
+
+<strong>FB_IMG_1735632257284.jpg</strong> (121.54 KB, 下载次数: 1)
+
+下载附件
+
+由手机上传
+2024-12-31 16:06 上传
+
+<img src="https://img.saraba1st.com/forum/202412/31/160618anb7iurkpfu7i7fr.jpg" referrerpolicy="no-referrer">
+
+<strong>FB_IMG_1735632263845.jpg</strong> (91.57 KB, 下载次数: 1)
+
+下载附件
+
+由手机上传
+2024-12-31 16:06 上传
+
+https://x.com/Taphemica_mer/status/1873753357346836718?t=DMJojfbiUSgdiPgtiHMH1g&amp;s=19
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 5364#       发表于 2024-12-31 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67071873&amp;ptid=2208921" target="_blank">桐生 发表于 2024-12-31 16:06</a>
+
+https://x.com/Taphemica_mer/status/1873753357346836718?t=DMJojfbiUSgdiPgtiHMH1g&amp;s=19</blockquote>
+这选图怎么想的。。。
+
+*****
+
+####  银酒监武  
+##### 5365#       发表于 2024-12-31 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67071249&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-31 15:05</a>
+要不是爽世黑脸了之后都会变成无法预测的命运，我觉得爽祥要比灯祥更有前景吧
+
+同样是白月光滤镜，爽世抢先 ...</blockquote>
+不如说双箭头的恨&amp;怒才能让这两个人的关系性平等起来<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  Aendst  
+##### 5366#       发表于 2024-12-31 16:10
+
+ 本帖最后由 Aendst 于 2024-12-31 16:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67071896&amp;ptid=2208921" target="_blank">银酒监武 发表于 2024-12-31 16:09</a>
+
+不如说双箭头的恨&amp;怒才能让这两个人的关系性平等起来
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+那惨了，恨的关系性已经被mo祥抢走了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且mo讨厌祥子是因为爱
+
+爽世真讨厌祥子，只能说明她原本就不爱祥子，爱的是crychic，这下又把爽对祥本来的箭头给拆了
+
+*****
+
+####  银酒监武  
+##### 5367#       发表于 2024-12-31 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67071910&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-31 16:10</a>
+那惨了，这个关系性已经被mo祥抢走了
+
+而且mo讨厌祥子是因为爱
+
+爽世真讨厌祥子，只能说明她原本就不爱祥子 ...</blockquote>
+新的恨意&amp;厌恶的箭头就是双向的嘛，两人都有<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 5368#       发表于 2024-12-31 16:17
+
+双恨是不可能的，不然之后手游里怎么编剧请
+
+*****
+
+####  PDQ4  
+##### 5369#       发表于 2024-12-31 16:18
+
+一想到就难受
+沟槽的制作组怎么把我爽姐一辈子唯一指定白月光真特定给ccc了
+这下爽祥不如爽c了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 5370#       发表于 2024-12-31 16:26
+
+ 本帖最后由 akiomn 于 2024-12-31 16:28 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有个问题，就祥子内幕这事吧，不止是灯素希三个不能知道，恐怕喵梦都不能得知
+
+亲妈没了亲爹颓废在出租屋打工一年，被迫退出c团，然后组银河战舰带着喵梦上武道馆，结果喵梦一直搞事，全是祥子来收尾，本来祥子的依靠只有睦了，但是喵梦搞事把睦也点炸了黑化了，甚至连带着祥子也精神濒临崩溃
+
+喵梦知道了内情恐怕真要露出今天那个破大防的表情然后自裁
+
+*****
+
+####  PDQ4  
+##### 5371#       发表于 2024-12-31 16:26
+
+cp从来不怕负面，而是怕没有特殊性和不纯
+爽姐现在写法就像ccc的遗孀，讨厌睦祥俩都是因为你们是杀死我丈夫的凶手
+独角兽能不能打个补丁说爽姐不是对祥子生气<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 5372#       发表于 2024-12-31 16:29
+
+喵梦这种有野心的性格不会自裁，她又没有玉玉症<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+喵知道了怕不是要一辈子用关爱的眼神看祥子，如果喵祥斗嘴是常态，那喵梦确实不会知道
+
+幼驯染的事可能只有幼驯染之间会通气<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  uhiuk  
+##### 5373#       发表于 2024-12-31 16:29
+
+ 本帖最后由 uhiuk 于 2024-12-31 16:31 编辑 
+
+问题在于就算恨也恨得不够，特别是观众都知道第一集是什么情况的前提下，soyo的爱恨取决于对真相了解程度的多少。这点因为大家都能想到所以就显得俗套很多。不过后续也可能搞点出人意料的展开？
+
+*****
+
+####  山ノ内花音  
+##### 5374#       发表于 2024-12-31 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67072091&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-31 16:26</a>
+有个问题，就祥子内幕这事吧，不止是灯素希三个不能知道，恐怕喵梦都不能得知
+
+亲妈没了亲爹颓废在出租屋打 ...</blockquote>
+其实喵梦只需要知道祥子现在离家出走就行了
+她也快摸到真相了
+父母的事根本没必要让她知道吧
+
+*****
+
+####  桜庭千景  
+##### 5375#       发表于 2024-12-31 16:35
+
+素世从故事结构来说把白月光对象给ccc本来是更合理的完善人设的方法
+
+如果觉得这个影响到磕cp了，那也只能证明磕的本来就是假药呗
+
+*****
+
+####  桜庭千景  
+##### 5376#       发表于 2024-12-31 16:38
+
+祥子这个呆瓜脑子你让她去恨人真的挺难的我觉得，爱人和恨人都需要足够的经历和感情投入
+
+如果真要在所有角色里选一个让她恨的除了不争气的清告爹之外感觉找不出了
+
+但是这是少女乐队动画，她爹真没啥好写的
+
+*****
+
+####  坚挺水表君  
+##### 5377#       发表于 2024-12-31 16:52
+
+反正让我在无脑祥舔狗和铁血C卫兵之中选一个的话，那我还是觉得后者相对而言正常一些。
+
+*****
+
+####  金属化反射装甲  
+##### 5378#       发表于 2024-12-31 16:58
+
+爽猫这两个戏里戏外提了很多次追求归宿吧，不记得其他三个有没有提过
+
+*****
+
+####  桐生  
+##### 5379#       发表于 2024-12-31 16:58
+
+<blockquote>基神的强袭自由 发表于 2024-12-31 15:13
+</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202412/31/165837irw76w3jkmmkgyq0.jpg" referrerpolicy="no-referrer">
+
+<strong>FB_IMG_1735635430253.jpg</strong> (27.77 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-31 16:58 上传
+
+*****
+
+####  akiomn  
+##### 5380#       发表于 2024-12-31 17:03
+
+与其让c团三个知道，不如祥子编织一个温柔的谎言欺骗过去，血淋淋的真相和温柔的谎言，我认为c团三个看到祥子幸福的现状，肯定会选择后者，如果选真相就是揭人家的伤疤了
+
+*****
+
+####  海洋队手下mayo  
+##### 5381#       发表于 2024-12-31 17:04
+
+感觉素食爱的更多是对那段关系不是具体某个人或乐队，现在她视角的情报看可能就是把其他人整玉玉的罪魁祸首俩大小姐把其他人溜着玩<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">毕竟木头上一季最后那句挺好的对吧 也是完全能看成事不关己的轻浮态度 
+
+*****
+
+####  NODY  
+##### 5382#       发表于 2024-12-31 17:07
+
+现在这情况ccc三人已经很难参与核心矛盾了，知不知道祥子情况不重要
+
+目前知道祥子家庭情况对剧情影响会很大的就两个人，一个初华，一个喵梦，尤其是喵梦知道自己一直在伤害的人其实过得这么惨的话，如何补偿祥子要圆上还挺难写的
+
+*****
+
+####  山ノ内花音  
+##### 5383#       发表于 2024-12-31 17:08
+
+怎么又开始滑坡了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+你说得对但仿佛看穿我心思一般，坏心思的神明，为我带来了礼物。这就是对我而言命运的相遇。我想我一辈子都不会忘记。珍贵的特别的无可替代的，我的归宿 
+
+*****
+
+####  NODY  
+##### 5384#       发表于 2024-12-31 17:09
+
+十周年展倒计时轮到mujica了
+
+<img src="https://img.saraba1st.com/forum/202412/31/170911ljberrkrknakfrqk.png" referrerpolicy="no-referrer">
+
+<strong>无标题00.png</strong> (186.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 17:09 上传
+
+*****
+
+####  IWS2000  
+##### 5385#       发表于 2024-12-31 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67071842&amp;ptid=2208921" target="_blank">一心而用 发表于 2024-12-31 16:02</a>
+好的，拼一起。</blockquote>
+看到了个更适合拼在一起的<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hkguty  
+##### 5386#       发表于 2024-12-31 17:38
+
+喵梦不知道内里其实会不会是类似soyo那样的人，反转睦好像也比较有趣，主唱的初华感觉目前好像是人设最平常、最正常的人，不知是不是有意为之
+
+*****
+
+####  PDQ4  
+##### 5387#       发表于 2024-12-31 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67072485&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2024-12-31 17:08</a>
+ 怎么又开始滑坡了 你说得对但仿佛看穿我心思一般，坏心思的神明，为我带来了礼物。这就是对我而言命运的相 ...</blockquote>
+你说得对但仿佛看穿豚豚心思一般，坏心思的绫奈，为豚豚带来了礼物。这就是对豚豚而言命运的相遇。我想豚豚一辈子都不会忘记。珍贵的特别的无可替代的，豚豚的爽祥<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 5388#       发表于 2024-12-31 17:44
+
+我在某个地方看到过李子说以后live可能有核嗓 丁真吗
+
+母鸡卡大伙这精神状态真适合来点核嗓吧
+
+*****
+
+####  厄神之息  
+##### 5389#       发表于 2024-12-31 18:28
+
+ 本帖最后由 厄神之息 于 2024-12-31 18:31 编辑 
+
+看完三集，我居然有两种完全相反的理解方式，究竟哪种是对的啊。。。
+
+到底是1.木子米从小被寄予厚望，把音乐当成只属于自己的避难所，但是建立ccc以后发现自己弹得真不行。自尊心受到严重打击，变得自卑。再加上后来种种压力和不好的回忆都来自于自己曾经的避难所“音乐/玩吉他”，曾经只属于自己的温暖避难所现在变成了他最大的梦魇。她对乐队的一切患上了ptsd。而声称最了解木子米的黑睦人偶是木子米的本我。本我为了保护木子米的感受，拒绝再让木受伤而吞噬了睦的自我，选择不管自己的好友祥子，为了不让自己再受伤而彻底放弃了音乐，拥抱了拥有丰富资源的演艺。
+
+还是2.木子米从小到大被人给予厚望，习惯于回应他人的高期待，本来就自卑习惯于往自己身上揽锅。音乐本来是她的避难所，她弹得其实还行，但是回应他人高要求高期待的习惯让她觉得自己不行。本来是聊以**逃避压力的音乐，也变成了曝在阳光下，回应他人期待的工具。睦就此彻底失去了所有可以躲避的地方，失去了一切“属于自己”的东西。为了能更好的回应她人的期待不让好友们再受伤哭泣，她的超我化为了黑睦，吞噬掉了她的自我，让她回应更多人的期待，完全抛弃个人好恶，拥抱起了本来厌恶的演艺事业。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我个人虽然更倾向1，但是想想睦也是看过mygo演唱会的人，看见爱音弹那水平也好意思继续表演下去，睦怎么也该释怀惹（。所以难道是2更正确？
+
+*****
+
+####  黑夜落叶秋天  
+##### 5390#       发表于 2024-12-31 18:33
+
+好奇第四集的内容
+
+可惜还要等老久
+
+*****
+
+####  DYsnow  
+##### 5391#       发表于 2024-12-31 18:42
+
+黑睦是最早的睦吧，从祥子说的话以前经常笑和人偶世界观来看。睦妈那句话翻译到底是幼儿园认识还是从幼儿园开始就一直一起啊？
+
+*****
+
+####  阿萨德飞过去  
+##### 5392#       发表于 2024-12-31 19:31
+
+明天要是对时的话，能看到小祥最1的一面吗<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">
+
+*****
+
+####  九陌狂游  
+##### 5393#       发表于 2024-12-31 19:37
+
+可以明天1月1日11:11发倒数1吗，最1的小祥。
+
+*****
+
+####  thisisaspider  
+##### 5394#       发表于 2024-12-31 20:01
+
+ 本帖最后由 thisisaspider 于 2024-12-31 20:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066061&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2024-12-31 00:13</a>
+
+重新整理了一下情报，有不少违和感，感觉像在看侦探剧。剧本脉络有种解谜的感觉。或许不应该围绕着剧情去分 ...</blockquote>
+回复自己
+
+感觉第一个谜团就是，睦在mujica开心吗，睦为什么不觉得组乐队开心。
+
+一半是观众的谜题，然后角色则要找到谜题并且解决。
+
+目前已知
+
+1. 这个和小时候经历有关。
+
+2. 睦的演奏水平不低，被staff和祥子表扬过。
+
+3. 祥可能也不知道睦在乐队不开心，至少祥也没问过睦为什么在乐队不开心。
+
+已经使用了的一些障眼法：
+
+1. 喜欢玩金属
+
+2. 是为了祥掩护祥子退团才说的
+
+最接近的答案是，没法表达出自己内心的呐喊？但太抽象了。
+
+估计以mujica的节奏和之前mygo的风格来看，关键信息和解密会在一集里面出现，也不太好猜
+
+*****
+
+####  狂热飞鸟  
+##### 5395#       发表于 2024-12-31 20:06
+
+ 正剧没有任何一点说过睦喜欢玩金属，这是假药二创
+
+*****
+
+####  thisisaspider  
+##### 5396#       发表于 2024-12-31 20:08
+
+只是代指乐队风格问题<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  oldgoat  
+##### 5397#       发表于 2024-12-31 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67073052&amp;ptid=2208921" target="_blank">厄神之息 发表于 2024-12-31 18:28</a>
+
+看完三集，我居然有两种完全相反的理解方式，究竟哪种是对的啊。。。
+
+到底是1.木子米从小被寄予厚望，把音 ...</blockquote>
+更接近于第一种，但睦理解的所谓“弹得不行”应该不是技术高低音乐好不好这种东西，而是“真不真诚”。她更像是觉得身为演艺大咖的父母时时刻刻拿自己作为“舞台道具”（真.人偶）一样的东西，或者说以她的小剧场来说我倾向于认为她就是觉得连父母都不过是舞台上的木偶戏，所以自己想靠吉他来找到真实的自己。结果在C团里发现别人都行（除了对祥欲言又止），都是心意和音乐如一，就自己还是不行。后面黑睦吞噬白睦说白了就是摆烂的一种，表现了睦最后不得不接受自己一直以来都只不过是父母亲友观众的舞台道具。
+
+*****
+
+####  adcdqre  
+##### 5398#       发表于 2024-12-31 20:42
+
+初华从出场我就觉得完美的吓人这还普通啊
+
+*****
+
+####  thisisaspider  
+##### 5399#       发表于 2024-12-31 21:18
+
+完全脑补发散假药。睦在mujica组团之前就认识mortis了，至于过程先不理。但是吞噬睦不是mortis，而是伪装成mortis的精神压力或者黑暗面。
+
+*****
+
+####  PDQ4  
+##### 5400#       发表于 2024-12-31 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67073811&amp;ptid=2208921" target="_blank">oldgoat 发表于 2024-12-31 20:29</a>
+
+更接近于第一种，但睦理解的所谓“弹得不行”应该不是技术高低音乐好不好这种东西，而是“真不真诚”。她 ...</blockquote>
+这个有一个问题就是，睦觉得吉他不行是在C团之前就有了，祥子介绍睦的时候她就不自信
+
+那里提C团可能只是进一步强化觉得自己不行
+
+为什么觉得自己吉他不行的根源还没有展现出来，第一次“唱歌”失败的地方还没出现
+
+
+*****
+
+####  暗影国度  
+##### 5401#       发表于 2024-12-31 22:19
+
+ 本帖最后由 暗影国度 于 2025-1-1 08:10 编辑 
+
+说下自己和朋友的发现还有猜测：
+
+在go第九集中，我们可以确定睦的房间是睦家右上这间房间。
+
+但是在mujica第三集，睦幻想回忆中构建出类似芭比娃娃的屋子，幼睦偏偏是在左上的房间，而不是在右边的房间。
+
+当然这可以用幻想世界来解释，但是芭比娃娃小屋右边的房间，却也很明显能看出来同样是属于卧室的布置，只不过好像是少了镜子，却多了睦房间现实世界所有的台灯（从PV砸房间可看出）。
+
+左边房间里的镜子，睦房间现实世界也有一面基本完全一样形状的镜子，右边房间的台灯，睦房间现实世界里右边的房间有着台灯。不过从床上的帘子来看不太一样，幻想中的帘子更厚重不透明，现实的更像是蚊帐那种。
+
+所以这里，我个人猜测有两种可能性。
+
+1：幼年的睦很可能住在左边的屋子，只不过后来出于什么原因搬到了右面去住。
+
+2：左边的房间是父母亲的房间，不是睦的房间。
+
+但这都互相导向了新的问题，可能还需要日后解答。因为如果是1，为什么睦好端端会搬房间？如果是2，为什么睦父母房间的镜子会搬到了睦的房间中？还是说看不清的黑暗房间里也有一面镜子？睦砸镜子的行为是否有什么深意。
+
+而且朋友则还发现，在睦内心世界，有op中出现了的摩天轮和旋转木马，以及尚未出现的树屋，不知道是否这些代表了睦祥间的童年回忆。
+
+*****
+
+####  抽搐一下  
+##### 5402#       发表于 2024-12-31 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67074632&amp;ptid=2208921" target="_blank">暗影国度 发表于 2024-12-31 22:19</a>
+
+说下自己和朋友的发现还有猜测：
+
+在go第八集中，我们可以确定睦的房间是睦家右上这间房间。</blockquote>
+第八集有出现过睦的房间?
+
+*****
+
+####  暗影国度  
+##### 5403#       发表于 2024-12-31 23:06
+
+<blockquote>抽搐一下 发表于 2024-12-31 22:41
+第八集有出现过睦的房间?</blockquote>
+出现了啊，睦在地下室弹吉他，其他除了右上的房间都亮灯，那肯定是没人的房间不亮灯，所以可以推出房间位置。
+
+*****
+
+####  抽搐一下  
+##### 5404#       发表于 2024-12-31 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67075171&amp;ptid=2208921" target="_blank">暗影国度 发表于 2024-12-31 23:06</a>
+
+出现了啊，睦在地下室弹吉他，其他除了右上的房间都亮灯，那肯定是没人的房间不亮灯，所以可以推出房间位 ...</blockquote>
+那是第九集
+
+*****
+
+####  Alicest  
+##### 5405#       发表于 2024-12-31 23:30
+
+<img src="https://p.sda1.dev/21/547840c520e0ddeb5c5f9df188d255c7/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 5406#       发表于 2024-12-31 23:30
+
+信泽画初华了
+
+<img src="https://img.saraba1st.com/forum/202412/31/232952n61ww2qef1p38z1c.png" referrerpolicy="no-referrer">
+
+<strong>无标题.png</strong> (542.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 23:29 上传
+
+<img src="https://img.saraba1st.com/forum/202412/31/232956snx9bjn6hexnjt6x.png" referrerpolicy="no-referrer">
+
+<strong>无标题00.png</strong> (72.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 23:29 上传
+
+*****
+
+####  一心而用  
+##### 5407#       发表于 2024-12-31 23:34
+
+<img src="https://p.sda1.dev/21/95a984d34ef4790c3243c5733d8778f9/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 5408#       发表于 2024-12-31 23:35
+
+<img src="https://p.sda1.dev/21/65943241d5d8a0e22a4f2ddd0d92b2ec/123123343870_020241231_233412.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  [皆神孝介]  
+##### 5409#       发表于 2024-12-31 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67075171&amp;ptid=2208921" target="_blank">暗影国度 发表于 2024-12-31 23:06</a>
+
+出现了啊，睦在地下室弹吉他，其他除了右上的房间都亮灯，那肯定是没人的房间不亮灯，所以可以推出房间位 ...</blockquote>
+                <img src="https://p.sda1.dev/21/0c06f15501015c81124471156eea4d6f/PixPin_2024-12-31_23-34-57.jpg" referrerpolicy="no-referrer">            
+
+*****
+
+####  好想看Mujica啊  
+##### 5410#       发表于 2024-12-31 23:38
+
+美美美美美，信泽终于不画他那个猫嘴了
+
+*****
+
+####  akiomn  
+##### 5411#       发表于 2025-1-1 00:08
+
+ 本帖最后由 akiomn 于 2025-1-1 00:09 编辑 
+
+睦的问题从pv开始就摆在了明面上，只是没想到爆的那么大，不过现在有可能是爆的越大收拾的越快，不然再算上中期必定有个live要卖新歌，五人必须要齐，那么黑睦问题就得速度解决了，否则我想不到怎么让五个人好好开live。
+
+如果睦问题足足花了6集还没解决，不仅是卖不了新歌的问题，后面海玲喵梦两个保底都要1集半时候塑造（我推测2集）祥子如果有自己的线那也是保底1集，这样就3集。再算上舅舅说的初华后期才爆个大的，最晚第十集开爆好了。1-6睦问题（同时也在给喵梦海玲埋伏笔）7-9喵梦海玲祥子，第十集初华，刚刚好（说实话我觉得足足6集给睦线都算多了，其中还算上铺垫海玲喵梦线）
+
+之前忘记在哪边看到mujica在2月初还有个小型live来着，哪天来着？考虑到现实关系，在动画卖新歌之前应该会包个小饺子（睦的问题最差都得阶段性暂时解决掉了）
+
+*****
+
+####  山ノ内花音  
+##### 5412#       发表于 2025-1-1 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67075897&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-1 00:08</a>
+睦的问题从pv开始就摆在了明面上，只是没想到爆的那么大，不过现在有可能是爆的越大收拾的越快，不然再算上 ...</blockquote>
+根据一月是睦月来看
+五集（初步？）解决问题 进入剧情下一阶段
+接上2月2日的现实live
+非常合理
+
+*****
+
+####  akiomn  
+##### 5413#       发表于 2025-1-1 00:19
+
+ 本帖最后由 akiomn 于 2025-1-1 00:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67075965&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-1 00:12</a>
+
+根据一月是睦月来看
+
+五集（初步？）解决问题 进入剧情下一阶段
+
+接上2月2日的现实live</blockquote>
+
+差不多合理吧，2集把pv里睦的画面全回收掉（祥子豪宅那个画面我不确定会不会回收）起码黑睦问题需要暂时解决，否则6集都收拾不掉的话，我真想不到新歌live要怎么卖。之后789得留给海玲喵梦祥子三个的（甚至可能要给初华线铺垫）10集开始就得进初华线了
+
+这样也正好对应上live幕间里说的“虚假的光”阶段，实则中期肯定还要爆爆爆
+
+想到这个还是因为mygo里素世直接第十集一集就被速刷掉了，实际上回去看mygo，素世哪怕第七集结尾开始算爆了，解决时间也只花了3集
+
+*****
+
+####  NODY  
+##### 5414#       发表于 2025-1-1 01:14
+
+<img src="https://img.saraba1st.com/forum/202501/01/011432ix2xedt3lddhv14z.png" referrerpolicy="no-referrer">
+
+<strong>8c92c5b7-d8a4-4233-a32c-aa0f6e9f7fbe.png</strong> (24.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 01:14 上传
+
+<img src="https://img.saraba1st.com/forum/202501/01/011432x7slhjuusb4zzbdo.png" referrerpolicy="no-referrer">
+
+<strong>28af4a67-94a9-470f-800b-9dc5f96a01ae.png</strong> (53.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 01:14 上传
+
+*****
+
+####  哈曼的YY  
+##### 5415#       发表于 2025-1-1 03:27
+
+ 本帖最后由 哈曼的YY 于 2025-1-1 04:49 编辑 
+
+<img src="https://img.saraba1st.com/forum/202501/01/030321xj1bc7dcjxza5roc.jpg" referrerpolicy="no-referrer">
+
+<strong>GgIZgRqaUAAYUeA.jpg</strong> (305.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 03:03 上传
+
+<img src="https://img.saraba1st.com/forum/202501/01/030335r28gxne8utn92m42.jpg" referrerpolicy="no-referrer">
+
+<strong>GgIZgRfakAA_FWq.jpg</strong> (308.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 03:03 上传
+
+[https://x.com/MusicBOX5555555/status/1874088448052912563](https://x.com/MusicBOX5555555/status/1874088448052912563)
+
+<img src="https://img.saraba1st.com/forum/202501/01/031639g3vzrxfmld46zdrf.jpg" referrerpolicy="no-referrer">
+
+<strong>GgIC2FlbYAIiCsA.jpg</strong> (298.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 03:16 上传
+
+[https://x.com/rousei13/status/1874063528077967761](https://x.com/rousei13/status/1874063528077967761)
+
+<img src="https://img.saraba1st.com/forum/202501/01/031710pud7qzbmz7t3omnb.jpg" referrerpolicy="no-referrer">
+
+<strong>GgIEGLybYAA4wqk.jpg</strong> (266.12 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 03:17 上传
+
+[https://x.com/moepusanai/status/1874064903725867089](https://x.com/moepusanai/status/1874064903725867089)
+
+<img src="https://img.saraba1st.com/forum/202501/01/035622u3weofe3xej7b7xo.jpg" referrerpolicy="no-referrer">
+
+<strong>GgGSYOfbYAA7S5q.jpg</strong> (110.3 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 03:56 上传
+
+[https://x.com/1923rina_dong/status/1873940294494019624](https://x.com/1923rina_dong/status/1873940294494019624)
+
+<img src="https://img.saraba1st.com/forum/202501/01/035654vjbwbd63puj222u9.jpg" referrerpolicy="no-referrer">
+
+<strong>GgHrmpVbYAE6bJZ.jpg</strong> (87.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 03:56 上传
+
+[https://x.com/creepy_himecchi/status/1874037980488511825](https://x.com/creepy_himecchi/status/1874037980488511825)
+
+<img src="https://img.saraba1st.com/forum/202501/01/044927rzk6u6fz74f1sfhl.jpg" referrerpolicy="no-referrer">
+
+<strong>GgDcf_MbAAAm6Xs.jpg</strong> (540.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 04:49 上传
+
+[https://x.com/HakkouAin/status/1873741492361294122](https://x.com/HakkouAin/status/1873741492361294122)
+
+*****
+
+####  novalli  
+##### 5416#       发表于 2025-1-1 07:14
+
+myjica三集之后，好像睦干什么都不会ooc了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只能说真是官方逼死同人。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  暗影国度  
+##### 5417#       发表于 2025-1-1 08:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67075295&amp;ptid=2208921" target="_blank">抽搐一下 发表于 2024-12-31 23:15</a>
+
+那是第九集</blockquote>
+我的问题，记混了，已经编辑了
+
+*****
+
+####  adcdqre  
+##### 5418#       发表于 2025-1-1 09:08
+
+ 本帖最后由 adcdqre 于 2025-1-1 09:17 编辑 
+
+我想起以前看过的青梅组合。一方看起来疯了但其实有一半是演的满口中二台词发泄不满，两边看起来敌对误解结果偷偷在台词藏了安全词。不停互飙演技互相杀非常扭曲
+
+*****
+
+####  qjw114514  
+##### 5419#       发表于 2025-1-1 10:31
+
+ 本帖最后由 qjw114514 于 2025-1-1 10:39 编辑 
+
+总觉得mortis不喊saki很有意思，之前就觉得睦对祥子的特殊昵称很能体现亲近感，现在称呼一变马上就感觉出两人间距离的变化了，不知道祥子听到睦改口会怎么想。小祥都安排舞台上叫姐姐大人了，对称呼变化肯定会在意吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">至少mortis没给改到丰川桑去
+
+好像还可以造假药，睦潜意识里认为saki这个称呼是自己专用，mortis不这么叫<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 5420#       发表于 2025-1-1 10:50
+
+<img src="https://p.sda1.dev/21/952f1142fa96730c5fa3a68792476f4a/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  AveMujica  
+##### 5421#         楼主| 发表于 2025-1-1 11:00
+
+1
+<img src="https://p.sda1.dev/21/f45e4335c02bed0d38d354a05393e6a6/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 5422#       发表于 2025-1-1 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67076927&amp;ptid=2208921" target="_blank">novalli 发表于 2025-1-1 07:14</a>
+
+myjica三集之后，好像睦干什么都不会ooc了只能说真是官方逼死同人。</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202501/01/110115obgw8eczw49ggtge.jpg" referrerpolicy="no-referrer">
+
+<strong>0001.jpg</strong> (211.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 11:01 上传
+
+<img src="https://img.saraba1st.com/forum/202501/01/110116zp3gtc33gzr4clgr.jpg" referrerpolicy="no-referrer">
+
+<strong>0002.jpg</strong> (85.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 11:01 上传
+
+*****
+
+####  山ノ内花音  
+##### 5423#       发表于 2025-1-1 11:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+这是什么心愿已了的笑容
+
+*****
+
+####  挺好的  
+##### 5424#       发表于 2025-1-1 11:03
+
+<img src="https://img.saraba1st.com/forum/202501/01/110341qzhibmm6efl6t017.png" referrerpolicy="no-referrer">
+
+<strong>f0f6deec2d50299dcbd588cc3308c88f_720.png</strong> (103.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 11:03 上传
+
+*****
+
+####  哈曼的YY  
+##### 5425#       发表于 2025-1-1 11:04
+
+怎么感觉这个笑是最疯的
+
+*****
+
+####  kuroro  
+##### 5426#       发表于 2025-1-1 11:05
+
+这个笑有点哈人了
+
+*****
+
+####  一心而用  
+##### 5427#       发表于 2025-1-1 11:06
+
+终于齐了
+<img src="https://p.sda1.dev/21/de0908790966b1acfd87fbc675002f80/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/1f2df590704a391f93be0b43ae428424/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/16d3563f8c1c2084cc0db452e4c40ed3/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/8df98d7190d6f09d5c1eeb8b9fdc3328/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/9a24e13631a1ae40c70634026575be56/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 5428#       发表于 2025-1-1 11:08
+
+哥们期待的鬼图呢
+
+*****
+
+####  挺好的  
+##### 5429#       发表于 2025-1-1 11:09
+
+<img src="https://img.saraba1st.com/forum/202501/01/110931k5b5jx7xjxljmlvf.jpg" referrerpolicy="no-referrer">
+
+<strong>b76b41dd80edfe07da50fef6db069776_720.jpg</strong> (194.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 11:09 上传
+
+*****
+
+####  我有一个朋友  
+##### 5430#       发表于 2025-1-1 11:10
+
+被补完了...
+
+*****
+
+####  山ノ内花音  
+##### 5431#       发表于 2025-1-1 11:11
+
+三个笑着的 都不正常<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  kivz  
+##### 5432#       发表于 2025-1-1 11:12
+
+玩乐队好开心<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+等了一年，还得躲着剧透……明天终于能看了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 5433#       发表于 2025-1-1 11:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我可以期待一手彻底黑化的祥子吗？这笑容有点哈人了
+
+*****
+
+####  桜庭千景  
+##### 5434#       发表于 2025-1-1 11:16
+
+感觉好害怕，别告诉我祥子才是最黑的那个<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 5435#       发表于 2025-1-1 11:16
+
+队友都是鬼图就自己不是，心机大祥屋檐了
+
+*****
+
+####  CCCTHUN  
+##### 5436#       发表于 2025-1-1 11:18
+
+再见了，所有的少女乐队(
+
+*****
+
+####  黑夜落叶秋天  
+##### 5437#       发表于 2025-1-1 11:19
+
+祥子这笑 要么是释怀 要么是崩坏 总之特别不安全
+
+*****
+
+####  山ノ内花音  
+##### 5438#       发表于 2025-1-1 11:23
+
+<img src="https://img.saraba1st.com/forum/202501/01/112323xxhobcl4vhdzb14g.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1078.jpeg</strong> (303.48 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-1 11:23 上传
+
+*****
+
+####  rushsong  
+##### 5439#       发表于 2025-1-1 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67077731&amp;ptid=2208921" target="_blank">桜庭千景 发表于 2025-1-1 11:16</a>
+感觉好害怕，别告诉我祥子才是最黑的那个</blockquote>
+那肯定啊，你忘了op有一个画面是祥子抚摸镜子露出boss般的微笑吗
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  一心而用  
+##### 5440#       发表于 2025-1-1 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67077752&amp;ptid=2208921" target="_blank">CCCTHUN 发表于 2025-1-1 11:18</a>
+再见了，所有的少女乐队(</blockquote>
+这个是吧
+<img src="https://p.sda1.dev/21/8a89f43a9c54dde375d3bf7c4623201d/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  IWS2000  
+##### 5441#       发表于 2025-1-1 11:34
+
+美丽的精神状态
+<img src="https://p.sda1.dev/21/6fb44d65f243e7704bce2e7eaa354302/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 5442#       发表于 2025-1-1 11:34
+
+ 本帖最后由 山ノ内花音 于 2025-1-1 11:35 编辑 
+
+有点像mortis
+
+*****
+
+####  一心而用  
+##### 5443#       发表于 2025-1-1 11:34
+
+如果是mygo
+<img src="https://p.sda1.dev/21/b6deaf09907005bac6c357ff74cb9a39/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/ab01f2b86d13f2c33cb55fb1b4f1dd6c/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/df6f50fd6834c4397f43b227a14758f9/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/c381bb0358a76d7f7c4424ae016d92b4/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/17484e7035eb0d3e2401d42772017536/image.jpg" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| IWS2000| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  一心而用  
+##### 5444#       发表于 2025-1-1 11:42
+
+ 本帖最后由 一心而用 于 2025-1-1 11:43 编辑 
+
+lyy老师昨天的图：
+<img src="https://p.sda1.dev/21/47a589b0a7e122ebe59241cd4b26c112/image.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/21/4f1bffd5f548170d99b953356c0a17d0/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  IWS2000  
+##### 5445#       发表于 2025-1-1 12:01
+
+<img src="https://p.sda1.dev/21/f66d70c2ef219a2653c4300fab2748d9/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/fdcd1e91d23de0d421425c00a3b3551e/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/c908c2b8581d3060b9446884bc709774/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/2663af782027547eea5422dd8844f3e5/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/37815cf07c4e24a81c1c333bdc618f4a/image.jpg" referrerpolicy="no-referrer">
+丰川祥子携Ave Mujica祝各位同好2025年也是kirakira dokidoki！♡＾▽＾♡
+
+
+*****
+
+####  狂热飞鸟  
+##### 5181#       发表于 2024-12-30 21:17
+
+ 本帖最后由 狂热飞鸟 于 2024-12-30 21:21 编辑 
+
+素在还黄瓜之后，而现在还去压力睦询问母鸡卡的信息这操作已经很奇葩了。
+
+只能说现在素最好能不动吧，毕竟鸡的事她只有激化的分没什么解决的能力。
+
+*****
+
+####  苇原雪道  
+##### 5182#       发表于 2024-12-30 21:18
+
+行吧，那我过几天再来。大家聊的开心～
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  玖羽  
+##### 5183#       发表于 2024-12-30 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67065122&amp;ptid=2208921" target="_blank">金属化反射装甲 发表于 2024-12-30 21:04</a>
+
+如果因为组鸡就怨祥子，爽世之前天桥上和灯的话不就白说了吗，本来就是争议满满好不容易挽回了点角色形象， ...</blockquote>
+Soyo视角来看生气不是很正常吗
+
+在Soyo看来，祥子坚决不复活Crychic，那么重的话都说了，只能是不想搞乐队了（或者家里不让搞了）
+
+然后祥子转头就组了一个商业乐队，让Soyo怎么想，合着你祥子原来是看不起我们三个
+
+关键是，Soyo（和其他人）现在还以为祥子是大小姐，这个信息差后面肯定是要说明白的
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| yozoraxsx| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  银酒监武  
+##### 5184#       发表于 2024-12-30 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67065122&amp;ptid=2208921" target="_blank">金属化反射装甲 发表于 2024-12-30 21:04</a>
+
+如果因为组鸡就怨祥子，爽世之前天桥上和灯的话不就白说了吗，本来就是争议满满好不容易挽回了点角色形象， ...</blockquote>
+但是延续13集的白月光滤镜不碎，这两人就永远不可能实现平等的关系性
+
+*****
+
+####  akiomn  
+##### 5185#       发表于 2024-12-30 22:04
+
+有意思的是祥子崩溃起码四次了，还都是睦在场，c团解散，春日影，被牢爹气走，睦祥吵架。
+特别是c团解散这次，睦回忆里没能交出去的雨伞。如果后续祥子继续在睦面前崩了，不知道睦会不会选择追上去
+
+*****
+
+####  thisisaspider  
+##### 5186#       发表于 2024-12-30 22:42
+
+虽说mortis形态一定是问题肯定要解决。但目前信息来看简直是完美的"队友"。
+
+表演能力强，能回应观众期待。能说会道，可以应对采访。看起来是保护机制，不会伤害睦。
+
+只能猜测后面会压力祥，或不弹吉他导致团分裂。真炸团对睦也一点好处也没有，或者说如果目的是炸团在台上展示表演意义就不大了。
+
+已经迫不及待等幼睦幼祥的篇幅了。
+
+*****
+
+####  山ノ内花音  
+##### 5187#       发表于 2024-12-30 22:54
+
+<img src="https://img.saraba1st.com/forum/202412/30/225426fzdgbbgjrlegzvjb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1064.jpeg</strong> (597.06 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-30 22:54 上传
+
+*****
+
+####  mistalk  
+##### 5188#       发表于 2024-12-30 23:12
+
+说起来今天多刷注意到一个小细节，“不能长久”采访之前和第三集最后mujica出演节目之前都会切一个相同的分镜，一栋楼外面挂着几张巨幅广告，有一张应该是睦妈妈的海报，好像写着“我和你的舞台”，巧的是这一幕之后紧接着采访的主持人频繁向睦提问睦妈妈的看法，以及最后mujica上的节目有睦妈妈引荐，这个分镜有点意思
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 5189#       发表于 2024-12-30 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67065703&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2024-12-30 22:54</a></blockquote>
+这张表情疑似也太像了
+
+*****
+
+####  Aendst  
+##### 5190#       发表于 2024-12-30 23:53
+
+ 本帖最后由 Aendst 于 2024-12-30 23:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67065315&amp;ptid=2208921" target="_blank">玖羽 发表于 2024-12-30 21:38</a>
+
+Soyo视角来看生气不是很正常吗
+
+在Soyo看来，祥子坚决不复活Crychic，那么重的话都说了，只能是不想搞乐 ...</blockquote>
+爽世的心态变化是合情合理的
+
+但我觉得有一个问题是，前三话已经非常明确直接把故事线路聚焦给mujica了，并且官方明确说过主角是mujica，爽世已经不再是主角团的一员了，她的位置更接近于一个NPC
+
+爽世个人需要信息差的补足，但mujica的任何一个人都不需要，祥子也没有义务去跟爽世解释她的家庭具体变动（访谈说过了，祥子绝不会让爽世知道她的境遇），只为了一个在她个人回忆里都出场没多久的两周乐队成员
+
+况且祥子现在的身份依旧是豊川家的大小姐，这个身份是没有变的
+
+爽世生气很合理，采取行动也很合理，但那已经完全是mujica外部的事情了
+
+睦的故事篇幅已经不短了，其他队内成员身上花的笔墨也一定很多
+
+以mujica为主角的剧本，就是意味着最重要的是“mujica的成员需不需要某些情节”
+
+*****
+
+####  相坂君  
+##### 5191#       发表于 2024-12-31 00:06
+
+虽然soyo视角有疑问很合理，但是我不觉得会把事情说明白，总不能让祥子说：我妈死了我爸颓了我离家照顾亲爹所以没钱没精力一边搞乐队一边赚学费。哪能说的出口，而且对方先前还pua幼驯染不止一次两次，她这么护短还双标，要解释很难的啦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银酒监武  
+##### 5192#       发表于 2024-12-31 00:06
+
+ 本帖最后由 银酒监武 于 2024-12-31 00:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67065982&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-30 23:53</a>
+
+爽世的心态变化是合情合理的
+
+但我觉得有一个问题是，前三话已经非常明确直接把故事线路聚焦给mujica了，并 ...</blockquote>
+柿本也说过“雖然故事是以祥子為基礎核心，但這不是只有她的故事，當然也會有Ave Mujica的成員，也會聚焦在曾經的CRYCHIC的成員上。”
+
+就像MyGO的故事里祥睦绝不是NPC一样，至少老C团必然是相当重要的一条伏线，甚至是贯穿两季的线索。
+
+*****
+
+####  桜庭千景  
+##### 5193#       发表于 2024-12-31 00:11
+
+到我第114喜欢的拿睦祥掰戏份环节了
+
+那么祥子在mygo里戏份多的原因是挨骂反派役，mygo也要匀哪位出来当反派拿戏份挨骂呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银酒监武  
+##### 5194#       发表于 2024-12-31 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066043&amp;ptid=2208921" target="_blank">桜庭千景 发表于 2024-12-31 00:11</a>
+
+到我第114喜欢的拿睦祥掰戏份环节了
+
+那么祥子在mygo里戏份多的原因是挨骂反派役，mygo也要匀哪位出来当反派 ...</blockquote>
+soyo不是很有潜力吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DARK_HGCG  
+##### 5195#       发表于 2024-12-31 00:12
+
+结尾会不会是这样
+
+母鸡卡排除万难终于重新走到一起，但是眼看就要赶不上重要的演唱会了
+
+正当观众大呼退票时
+
+一支自称特别嘉宾的名为mygo的业余乐队强行登台演奏，为母鸡卡争取到了时间
+
+母鸡卡赶到会场后，两个乐队一起演奏春日影
+
+*****
+
+####  Aendst  
+##### 5196#       发表于 2024-12-31 00:13
+
+ 本帖最后由 Aendst 于 2024-12-31 00:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066029&amp;ptid=2208921" target="_blank">银酒监武 发表于 2024-12-31 00:06</a>
+
+柿本也说过“雖然故事是以祥子為基礎核心，但這不是只有她的故事，當然也會有Ave Mujica的成員，也會聚焦 ...</blockquote>
+其实你搞错了一个很重要的点
+
+mygo的故事已经告一段落了（甚至监督明言实际上只用了十一话就写完了），但还有余下的问题没有解决，还会出场
+
+而睦祥在mygo里的出场，是在铺设她们自身的伏笔，用于转入她们的故事
+
+现在整个完整的故事已经顺利进入后半段，mygo的重要剧情已经大部分告终，这意味着mygo相关不需要再在mujica中铺设伏笔，并且不会是故事后半的主角，那么，你觉得这个“聚焦”会是什么作用呢
+
+*****
+
+####  thisisaspider  
+##### 5197#       发表于 2024-12-31 00:13
+
+重新整理了一下情报，有不少违和感，感觉像在看侦探剧。剧本脉络有种解谜的感觉。或许不应该围绕着剧情去分锅车角色塑造，而是专注于现有的要素去找不自然的地方。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 5198#       发表于 2024-12-31 00:15
+
+ 本帖最后由 PDQ4 于 2024-12-31 00:17 编辑 
+
+最重要的不是爽姐真的有能力知道发生什么了吗，已知扒祥子住所都需要爱音意外告知
+
+祥子不可能自己说，爽姐又疑似因为鸡对睦祥一起有大意见了
+
+爽世这一年问过睦为什么乐队不开心吗
+
+那爽世如果把睦祥一起认定成ccc的罪人，就更找不到理由问祥子为什么退队了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+总不能让灯意外得知，然后跑到隔壁班抓着祥子大喊我知道你家里发生了很多事很痛苦
+
+能问出你幸福吗就意味着灯大概不会知情，不然又要当小闭灯了
+
+可能这个便签条最后会有个回复作为灯祥结局，比如鸡一切尘埃落定后，回复说我现在过得很幸福<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 5199#       发表于 2024-12-31 00:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">退个一万步，先不说mygo这个校园乐队进不进得了后台，能不能把乐器搬上去。海喵都不一定听过春日影，那她们都没练习过，真的能演奏吗？
+
+*****
+
+####  银酒监武  
+##### 5200#       发表于 2024-12-31 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066059&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-31 00:13</a>
+
+其实你搞错了一个很重要的点
+
+mygo的故事已经告一段落了（甚至监督明言实际上只用了十一话就写完了），但还 ...</blockquote>
+只是认为老C团的故事脉络还没有捋完而已，并没有否认上一季MyGO故事的完整性呀
+
+
+*****
+
+####  Aendst  
+##### 5201#       发表于 2024-12-31 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066072&amp;ptid=2208921" target="_blank">银酒监武 发表于 2024-12-31 00:16</a>
+
+只是认为老C团的故事脉络还没有捋完而已，并没有否认上一季MyGO故事的完整性呀 ...</blockquote>
+所以你为什么不回答我是什么作用呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 5202#       发表于 2024-12-31 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066078&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-31 00:17</a>
+
+所以你为什么不回答我是什么作用呢</blockquote>
+卖CP<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 5203#       发表于 2024-12-31 00:20
+
+<img src="https://img.saraba1st.com/forum/202412/31/002015rhpz2z8haxpxax8v.jpg" referrerpolicy="no-referrer">
+
+<strong>GgAxgH4bIAAf-ob.jpg</strong> (157.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 00:20 上传
+
+<img src="https://img.saraba1st.com/forum/202412/31/002018xm7n062znivxdnms.jpg" referrerpolicy="no-referrer">
+
+<strong>GgAxgH2b0AAkF1I.jpg</strong> (198.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 00:20 上传
+
+<img src="https://img.saraba1st.com/forum/202412/31/002025r2om113tqq44764o.jpg" referrerpolicy="no-referrer">
+
+<strong>GgAxgH3boAAcCKd.jpg</strong> (186.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 00:20 上传
+
+<img src="https://img.saraba1st.com/forum/202412/31/002034d560ff760f6f7fjf.jpg" referrerpolicy="no-referrer">
+
+<strong>GgAxgH4bcAAM97q.jpg</strong> (131.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 00:20 上传
+
+[https://x.com/KEKEGO_/status/1873551880942665947](https://x.com/KEKEGO_/status/1873551880942665947)
+
+*****
+
+####  银酒监武  
+##### 5204#       发表于 2024-12-31 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066078&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-31 00:17</a>
+
+所以你为什么不回答我是什么作用呢</blockquote>
+不管这种聚焦是好是坏，那是剧情推动中必然会有的，剩下的就让他们角色厨自己看啦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 5205#       发表于 2024-12-31 00:22
+
+我想了一下
+最后soyo和灯可能真的不会知道祥子的经历了
+
+稍微代入一下
+她们本质那么善良 如果真的知道了祥子经历过什么
+自责带来的精神打击肯定是毁灭性的
+而且这些沉重的背景 本质上是为了让观众了解祥子这个人 和其他角色并没有关系 让她们经历这种精神内耗是无意义的
+
+最后大概率就像故事简介一样
+祥子再次站立于完美的箱庭
+除了少数人 没人知道她真正经历过什么
+
+*****
+
+####  抽搐一下  
+##### 5206#       发表于 2024-12-31 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066059&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-31 00:13</a>
+
+其实你搞错了一个很重要的点
+
+mygo的故事已经告一段落了（甚至监督明言实际上只用了十一话就写完了），但还 ...</blockquote>
+独角兽采访说过mujica动画所有事情都和mygo动画联动,看怎么理解这句话了
+
+*****
+
+####  rain625  
+##### 5207#       发表于 2024-12-31 00:23
+
+有点没懂为什么老惦记着春日影（还是10人版），c团故事再要续也是向前看了，还在这风湿干啥呢
+
+退一步讲，真要鸡狗共演我期待的也是各来一首影色舞和killkiss这水平的新歌
+
+*****
+
+####  Aendst  
+##### 5208#       发表于 2024-12-31 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066111&amp;ptid=2208921" target="_blank">抽搐一下 发表于 2024-12-31 00:23</a>
+
+独角兽采访说过mujica动画所有事情都和mygo动画联动,看怎么理解这句话了</blockquote>
+访谈原文你可以多品一下，我已经品了好几个月了 <blockquote>――続編に向けてのヒントや、『It’s MyGO!!!!!』をあらためて見返すうえで注目してほしいポイントを教えてください。
+
+綾奈　Ave Mujica編になってもCRYCHICの存在は大きいので、そこは前提に置いていただけるとうれしいですね。『It’s MyGO!!!!!』を見返せば見返すほど、続編も面白く見ていただけると思います。タイトルも主人公も変わりますが、あらゆることが『It’s MyGO!!!!!』と連動しているので、未見の方にはぜひご覧になってほしいです。</blockquote>我看完前三话确实体会到绫奈说的有趣了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 5209#       发表于 2024-12-31 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67065982&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-30 23:53</a>
+
+爽世的心态变化是合情合理的
+
+但我觉得有一个问题是，前三话已经非常明确直接把故事线路聚焦给mujica了，并 ...</blockquote>
+从剧情逻辑上说，这个问题是客观存在的（有戴面具则必有摘面具，摘面具则Soyo必然知道，从而出现这个问题）
+
+制作方显然也很清楚，所以把这个问题进行了最大限度（效果最炸裂）的利用（Soyo当场看着摘面具）
+
+既然已经被醒目地摆在台面上，这个问题必须在后文有一个回应，反过来说，如果不回应的话，想象一下，
+
+1) Soyo直到最后都自己憋着；
+
+2) Soyo突然自己想开了；
+
+3) 最后假装这个问题不存在，
+
+如果出现这三种情况，这个剧情显然是有问题的
+
+而且以现有的部分来说，MyGO的戏份远远多于客串的需要，所以我还是坚持我的观点，MyGO会在后面起到某种次要作用，不然这样的戏份安排说不通
+
+*****
+
+####  wsuFish  
+##### 5210#       发表于 2024-12-31 00:25
+
+<blockquote>Aendst 发表于 2024-12-30 23:53
+爽世的心态变化是合情合理的
+
+但我觉得有一个问题是，前三话已经非常明确直接把故事线路聚焦给mujica了，并 ...</blockquote>
+初华、海玲和喵梦都需要信息的补足，而为了包饺子，c团旧部最终都会补足。最后老c团五人肯定都是会要一边承认自己对c团的爱一边对c团解散和解的，连这个都看不出来的人只能说打偶像圈子大战打到蒙蔽双眼了。终究是要进手游卖角色的
+
+c团的旧账是一定会被翻的，初华、海玲和喵梦肯定是会知道的。包括祥子经济上面临的窘境，她断交、切割与掩瞒的操作就是契科夫的枪，是为了最终揭开而设的。
+
+*****
+
+####  山ノ内花音  
+##### 5211#       发表于 2024-12-31 00:25
+
+其实这个Ave Mujica編になってもCRYCHICの存在は大きい 指的也有可能是祥的第一集和睦的第三集
+
+*****
+
+####  Aendst  
+##### 5212#       发表于 2024-12-31 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066121&amp;ptid=2208921" target="_blank">wsuFish 发表于 2024-12-31 00:25</a>
+
+初华、海玲和喵梦都需要信息的补足，而为了包饺子，c团旧部最终都会补足。最后老c团五人肯定都是会要一边 ...</blockquote>
+我换个词吧
+
+“放下”
+
+*****
+
+####  银酒监武  
+##### 5213#       发表于 2024-12-31 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066125&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-31 00:25</a>
+
+我换个词吧
+
+“放下”</blockquote>
+那估计得结尾了，众所周知soyo女士13集的“忘不掉”现在就是字面意义上的忘不掉，并无放下的意思<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 5214#       发表于 2024-12-31 00:29
+
+祥子第一集的经历应该不会特地再变成台词去和去和别人说一遍了  
+我比较看好的是 通过新的交流 来恢复关系 而不是去复盘旧账
+
+*****
+
+####  狂热飞鸟  
+##### 5215#       发表于 2024-12-31 00:29
+
+<blockquote>山ノ内花音 发表于 2024-12-31 00:25
+其实这个Ave Mujica編になってもCRYCHICの存在は大きい 指的也有可能是祥的第一集和睦的第三集
+
+ ...</blockquote>
+但一三集存在感高的是睦祥双方（祥加个家庭)，c团戏份不太重
+
+*****
+
+####  抽搐一下  
+##### 5216#       发表于 2024-12-31 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066116&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-31 00:24</a>
+
+访谈原文你可以多品一下，我已经品了好几个月了
+
+我看完前三话确实体会到绫奈说的有趣了 ...</blockquote>
+确实是所有，看这个所有有多所有了
+
+*****
+
+####  PDQ4  
+##### 5217#       发表于 2024-12-31 00:29
+
+感觉有些漏油也忘了偏铝酸钠是有意义的
+
+剧中能看到假面下真实的只有队友，这种关系可能是鸡团魂的核心要素之一
+
+假面剥落前靠面具隐藏自己，剥落之后该如何维系假面，我觉得只能靠队友了
+
+让更多人被拉入深渊是要人人都鸡化吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 5218#       发表于 2024-12-31 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066123&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2024-12-31 00:25</a>
+
+其实这个Ave Mujica編になってもCRYCHICの存在は大きい 指的也有可能是祥的第一集和睦的第三集
+
+ ...</blockquote>
+确实可能如此
+
+提问者所问的是回顾mygo时的注意点，众所周知对mygo来说，元crychic成员更多的指的是祥子和睦
+
+*****
+
+####  akiomn  
+##### 5219#       发表于 2024-12-31 00:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">呃，有没有可能，祥子秘密这事，现在就是个核弹，除非祥子自己说出来，不然谁说谁死，恐怕黑睦都不敢说。
+对老c团三个，亲妈死了亲爹颓废住出租屋打工一年，光是亲妈死了这块就够重量级了，灯听了又得自闭，立希听了怕是要半夜醒来给自己俩巴掌问自己元和二年干了啥，soyo也得自闭。
+访谈里说过，侦探位是初华，最后能得知祥子秘密的，除了鸡团的人，其他的人恐怕不会知道，顶多知道祥子过去经历过很沉重的事情
+
+*****
+
+####  山ノ内花音  
+##### 5220#       发表于 2024-12-31 00:32
+
+从英文和韩文简介
+又能确认祥子这个霉比的体质会把身边的人也拖进失控的命运里
+
+可能母鸡卡演到一半
+观众会劫后余生般的庆幸
+幸亏她当初退出了c团
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Aendst| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  狂热飞鸟  
+##### 5221#       发表于 2024-12-31 00:32
+
+祥子自已说那些“秘密″场面都会很难看
+
+*****
+
+####  桜庭千景  
+##### 5222#       发表于 2024-12-31 00:34
+
+其实鸡最后也未必全员都能知道，毕竟李子就说过“不说出来也没关系，我们是一样的”
+
+而且其实这种设定也不妨碍包饺子，甚至进游戏或者pico后“瞒着自己的过往”都能成为迫害梗来源
+
+*****
+
+####  Aendst  
+##### 5223#       发表于 2024-12-31 00:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066119&amp;ptid=2208921" target="_blank">玖羽 发表于 2024-12-31 00:24</a>
+
+从剧情逻辑上说，这个问题是客观存在的（有戴面具则必有摘面具，摘面具则Soyo必然知道，从而出现这个问题 ...</blockquote>
+所以我觉得存在爽世站在她的角度上行动合理
+
+但有这个行为可能不会被很多观众接受的风险
+
+而就像漏油说的一样，祥子的问题，甚至mujica的基调都非常沉重
+
+对比之下，再加上角色自身的反应，这反而可能会对mygo造成负面的影响
+
+我也认为剧本很可能是会写后续的，但和之前漏油说的一样，观感会是未知数
+
+*****
+
+####  相坂君  
+##### 5224#       发表于 2024-12-31 00:36
+
+真不好，毕竟在mygo的c三人组都心地善良，知道内情后给祥子道歉怎么办，这不太好吧？
+
+回头狗推就要有意见了，你丰川祥子不道歉还卖惨，还把mygo的仨搞自闭了，那有这样的害人精！
+
+*****
+
+####  akiomn  
+##### 5225#       发表于 2024-12-31 00:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">母鸡卡第一集先播出来时候，观众上帝视角看祥子都觉得惨了。那么如果剧内老c团三个角色知道这些事，恐怕要先自闭了
+狗团里哪怕最惨的素世都惨不过祥子啊，甚至目前还没有角色能惨过祥子（即使是睦都很难）
+
+*****
+
+####  狂热飞鸟  
+##### 5226#       发表于 2024-12-31 00:40
+
+<blockquote>akiomn 发表于 2024-12-31 00:38
+母鸡卡第一集先播出来时候，观众上帝视角看祥子都觉得惨了。那么如果剧内老c团三个角色知道这些事，恐怕要 ...</blockquote>
+素世可能最后惨度比不上鸡团任何一个的概率不小
+
+*****
+
+####  山ノ内花音  
+##### 5227#       发表于 2024-12-31 00:41
+
+这么看 如果真有和解环节
+还是祥子像骗初华自己住办公室一样
+编一套能让大家轻松的说辞算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+真相就让它烂在心里吧
+
+*****
+
+####  PDQ4  
+##### 5228#       发表于 2024-12-31 00:43
+
+狗连自己的问题都做不到一定解决
+
+一直迷路作为核心主题会解决吗
+
+灯不能理解周围人解决了吗，立希的劣等感动画会解决吗，爱音跨过自己爱慕虚荣和喜欢润润了吗
+
+不过爽世和猫确实找到可以一辈子的归宿了
+
+需要看到问题答案的是观众，而不是剧中角色，人家可能就不觉得有问题，自己默认了一套答案
+
+为什么非要把角色答卷撕了告诉她你想的不对真相其实更残忍
+
+是不是太过分了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 5229#       发表于 2024-12-31 00:43
+
+别比惨，可不兴卖惨，轻松快乐的乐队不挺好的，母鸡卡几个都这样了，别再被丰川祥子祸害了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 5230#       发表于 2024-12-31 00:45
+
+突然又有种海猫感了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 5231#       发表于 2024-12-31 00:46
+
+ 本帖最后由 akiomn 于 2024-12-31 00:48 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老话嘛，有时候谎言比真相更好，对老c团三个，不如不知道祥子的过去，太重量级了
+
+说到底，祥子的经历，即使不说mujica这些事，亲妈死了爹颓废这俩就不是一般人能够接受的，而祥子居然硬是撑到mujica第三集精神还没炸，传奇抗压王（睦都先炸了）
+
+*****
+
+####  狂热飞鸟  
+##### 5232#       发表于 2024-12-31 00:49
+
+在永远不知道真相下的前提下，感觉平行线比喻的含金量在不断提高中
+
+*****
+
+####  哈曼的YY  
+##### 5233#       发表于 2024-12-31 00:49
+
+<img src="https://img.saraba1st.com/forum/202412/31/003234pofb33l333xk3f22.jpg" referrerpolicy="no-referrer">
+
+<strong>GgB3_WLXAAAUoSo-1.jpg</strong> (244.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 00:32 上传
+
+[https://x.com/athyrabunlord/status/1873629738482450841](https://x.com/athyrabunlord/status/1873629738482450841)
+
+<img src="https://img.saraba1st.com/forum/202412/31/003513adazweg190t0p4wh.jpg" referrerpolicy="no-referrer">
+
+<strong>GgDkOCGbgAAEbnm.jpg</strong> (453.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 00:35 上传
+
+[https://x.com/zhanzhangzlw/status/1873749417112764647](https://x.com/zhanzhangzlw/status/1873749417112764647)
+
+<img src="https://img.saraba1st.com/forum/202412/31/003614ssh47ijv24nwwa7t.jpg" referrerpolicy="no-referrer">
+
+<strong>GgBFVWcacAErEJ1.jpg</strong> (618.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 00:36 上传
+
+[https://x.com/JiBliy81/status/1873573685770240052](https://x.com/JiBliy81/status/1873573685770240052)
+
+<img src="https://img.saraba1st.com/forum/202412/31/003807uuahuks76vue6e4g.jpg" referrerpolicy="no-referrer">
+
+<strong>GgC3_lNbUAA61Ms.jpg</strong> (326.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 00:38 上传
+
+[https://x.com/sinnpeikamo/status/1873700211580915921](https://x.com/sinnpeikamo/status/1873700211580915921)
+
+*****
+
+####  玖羽  
+##### 5234#       发表于 2024-12-31 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066162&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-31 00:35</a>
+
+所以我觉得存在爽世站在她的角度上行动合理
+
+但有这个行为可能不会被很多观众接受的风险
+
+而就像漏油说的一 ...</blockquote>
+以下是我总结的几个MyGO遵循的编剧原则，我对Ave Mujica的所有预测都建立在它继续遵循这些原则的基础上。
+
+<strong>1、颠覆性原则。</strong>
+
+只限主角团，一个角色一开始看起来越是没有问题，后面的问题就越大，我从上一个楼就一直在说，初华、海铃、睦只要爆就是大爆；
+
+相反，如果一个角色一开始就表现出一些小问题，比如爱音的虚荣心、立希的态度恶劣，那么后面的问题反而不会很大。
+
+反过来也一样，比如灯在1～9话的绝大部分戏份里都是非常内向和被动的，所以第10话才能正向大爆，重点是完全颠覆原有形象。
+
+<strong>2、炸裂性原则。</strong>
+
+举例来说，如果一个剧情的炸裂程度有可能是：A)100；B)200；C)500，那么不用怀疑，编剧一定会选择：D)1000
+
+在预测剧情的时候，一定不要有任何幻想，编剧一定是你能想象到的（甚至超越你想象的）怎么炸裂怎么来。
+
+<strong>3、回旋镖原则。</strong>
+
+简单地说，就是有呼必有应，MyGO对这一点非常严格，已经有很多人解析过了，我在重看的时候也发现了很多解析文没有提过的小地方。
+
+如果Ave Mujica在这一点上没有变化，那么目前出现的呼肯定在后文有一个应，否则那些剧情就没有必要存在。
+
+而且我认为，在回应的时候一定会遵循前两条原则，如果你能想象到某种回应可以产生最大化炸裂的效果，那么编剧一定会这么干，除非编剧的想象力超过了你。
+
+*****
+
+####  PDQ4  
+##### 5235#       发表于 2024-12-31 00:52
+
+ 本帖最后由 PDQ4 于 2024-12-31 00:53 编辑 
+
+所以我希望就这样吧，打住不要深入了，好不容易跨过去，认识了新人有了新乐队
+
+回忆就是回忆，不需要深入，浅尝辄止就行
+
+下次再交流就是认识鸡了，让ccc入土为安吧，掀棺材板真的不好
+
+真掀了我不好说独角兽是不是觉得ccc死得不够彻底，土葬不好，想直接火化<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  影伴光生  
+##### 5236#       发表于 2024-12-31 00:52
+
+mygo成员的救场既不能喧宾夺主，又要恰到好处，只能期待一手实际表现了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  相坂君  
+##### 5237#       发表于 2024-12-31 00:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">话说回来，我没有看手游剧情，狗都同团了，那soyo有没有跟队友说自己的家庭离异？
+
+*****
+
+####  wsuFish  
+##### 5238#       发表于 2024-12-31 00:54
+
+<blockquote>山ノ内花音 发表于 2024-12-31 00:41
+这么看 如果真有和解环节
+
+还是祥子像骗初华自己住办公室一样
+
+编一套能让大家轻松的说辞算了</blockquote>
+少女乐队讲究的就是一个真心换真心，关键问题上逃避、小聪明和一意孤行最后都是会被修正的。包括“将人生托付给我”这种话，最后肯定会变成乐队成员间“彼此托付彼此的人生”。
+
+*****
+
+####  sauron.j  
+##### 5239#       发表于 2024-12-31 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066192&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-31 00:43</a>
+
+狗连自己的问题都做不到一定解决
+
+一直迷路作为核心主题会解决吗
+
+灯不能理解周围人解决了吗，立希的劣等感动 ...</blockquote>
+go团按照企划定位，搞不好以后就一直是这个各怀鬼胎天天相声斗嘴的画风了
+
+*****
+
+####  狂热飞鸟  
+##### 5240#       发表于 2024-12-31 00:57
+
+ 本帖最后由 狂热飞鸟 于 2024-12-31 00:58 编辑 
+
+为什么那么多人都自信狗从笫一集就入场一定是了救场而不是激动鸡的矛盾，至少从现有的三集来看明明后者可能性更大吧
+
+
+*****
+
+####  PDQ4  
+##### 5241#       发表于 2024-12-31 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066236&amp;ptid=2208921" target="_blank">sauron.j 发表于 2024-12-31 00:54</a>
+
+go团按照企划定位，搞不好以后就一直是这个各怀鬼胎天天相声斗嘴的画风了 ...</blockquote>
+所以我觉得有些漏油说的问题一定要解决根本不成立
+
+实际上狗内部都没有做到互相全部把老底交了，只是说互相看到了最真实的一面
+
+所以我觉得指望狗里几个人能知道鸡或者祥子发生事情的全貌，那确实是无鸡之谈<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银酒监武  
+##### 5242#       发表于 2024-12-31 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066242&amp;ptid=2208921" target="_blank">狂热飞鸟 发表于 2024-12-31 00:57</a>
+
+为什么那么多人都自信狗从笫一集就入场一定是了救场而不是激动鸡的矛盾，至少从现有的三集来看明明后者可能 ...</blockquote>
+未知的命运舞台嘛<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">，是好是坏都可能，但感觉不太可能是戏份特别少的纯NPC
+
+*****
+
+####  上条仁美  
+##### 5243#       发表于 2024-12-31 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066228&amp;ptid=2208921" target="_blank">相坂君 发表于 2024-12-31 01:52</a>
+
+话说回来，我没有看手游剧情，狗都同团了，那soyo有没有跟队友说自己的家庭离异？ ...</blockquote>
+阿诺有问过soyo一起生活的家庭成员组成并且得到了回答，不过没明说是离异造成。
+
+*****
+
+####  狂热飞鸟  
+##### 5244#       发表于 2024-12-31 01:02
+
+<blockquote>银酒监武 发表于 2024-12-31 00:59
+未知的命运舞台嘛，是好是坏都可能，但感觉不太可能是戏份特别少的纯NPC ...</blockquote>
+那你觉的初海喵在狗算NPC戏份吗
+
+*****
+
+####  Aendst  
+##### 5245#       发表于 2024-12-31 01:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066220&amp;ptid=2208921" target="_blank">玖羽 发表于 2024-12-31 00:50</a>
+
+以下是我总结的几个MyGO遵循的编剧原则，我对Ave Mujica的所有预测都建立在它继续遵循这些原则的基础上。 ...</blockquote>
+这其实会涉及到剧情爱好者和2.5企划爱好者需求的分歧
+
+作为剧情爱好者，我是一定希望制作组能给出足够有趣的故事的，角色可以有暗面和不足，不需要考虑过多角色观感，只要符合基本行为逻辑、角色有作为角色的魅力就可以了
+
+从这个角度来说，我希望埋设的伏笔能够全部有呼应，就像制作组一直以来做的那样
+
+但作为2.5企划
+
+我认为需要优先考虑到角色给大部分2.5企划受众的观众带来的观感
+
+实际上完全从我个人的角度出发我是前者，我只希望角色足够有趣故事足够有趣，能做到细节上出乎意料而逻辑又在情理之中，能够体现出脚本的完成度是最好的
+
+只是这毕竟是2.5企划，如果要客观去推测，还是难免会受制于2.5企划的规则<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银酒监武  
+##### 5246#       发表于 2024-12-31 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066262&amp;ptid=2208921" target="_blank">狂热飞鸟 发表于 2024-12-31 01:02</a>
+
+那你觉的初海喵在狗算NPC戏份吗</blockquote>
+算呀，我还贷款爱猫是NPC戏份<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狂热飞鸟  
+##### 5247#       发表于 2024-12-31 01:06
+
+<blockquote>银酒监武 发表于 2024-12-31 01:04
+算呀，我还贷款爱猫是NPC戏份</blockquote>
+那你是觉得灯素希会有祥子在狗里的戏份？
+
+*****
+
+####  贰臣  
+##### 5248#       发表于 2024-12-31 01:08
+
+平行线这个说法还是可以参考的，希望起码到动画结束的时候两边能够保持一个平和的距离。目前个人最怕的还是独角兽继续用伤害角色的方法搞大爆剧情。尤其是soyo，狗里就当过起爆剂了，至今身上还一堆黑锅，目前看来鸡动画也有点苗头，唉，希望动画组能对她好点吧。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  狂热飞鸟  
+##### 5249#       发表于 2024-12-31 01:09
+
+平行线我记得是灯祥关系的形容词来着
+
+*****
+
+####  银酒监武  
+##### 5250#       发表于 2024-12-31 01:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066272&amp;ptid=2208921" target="_blank">狂热飞鸟 发表于 2024-12-31 01:06</a>
+那你是觉得灯素希会有祥子在狗里的戏份？</blockquote>
+这个如何量化呢？只能说肯定在剧情中是有一条线的，而不是仅作为“点”存在的NPC<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  akiomn  
+##### 5251#       发表于 2024-12-31 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066284&amp;ptid=2208921" target="_blank">狂热飞鸟 发表于 2024-12-31 01:09</a>
+平行线我记得是灯祥关系的形容词来着</blockquote>
+是的，灯祥的关系，不过也可以认为是鸡狗的关系
+鸡狗对邦标题里有个词是岔路，注定了两队不会走在同一条路上
+
+*****
+
+####  玖羽  
+##### 5252#       发表于 2024-12-31 01:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066255&amp;ptid=2208921" target="_blank">上条仁美 发表于 2024-12-31 01:01</a>
+
+阿诺有问过soyo一起生活的家庭成员组成并且得到了回答，不过没明说是离异造成。 ...</blockquote>
+爱音第一次去Soyo家，Soyo说：我和我妈一起住，这话就是默认离异了，如果Soyo父死了，家里会有佛龛
+
+*****
+
+####  玖羽  
+##### 5253#       发表于 2024-12-31 01:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67063669&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-30 17:07</a>
+
+制作组的意思很明显了，哪怕是黑睦，对祥子是“最讨厌的祥子了”，那么白睦肯定是最喜欢祥子，睦对祥子是爱 ...</blockquote>
+我认为睦这么早就炸是好事（我也没想到能炸到这个程度）
+
+拿MyGO前三话对比，如果只看MyGO前三话，角色给人的印象是这样的
+
+　灯 - 疑似自闭症
+
+立希 - 灯单推人，性格恶劣
+
+爱音 - 有一点虚荣心的普通女高中生，疑似有灰暗过去
+
+爽世 - 温柔大姐姐，阅片经验多的会发现不对劲的暗示
+
+乐奈 - 吉他弹得很好，不知道会有什么发展
+
+后面发生什么我们都知道了，如果在第三话就直接表明一个角色有大问题，后面大概率有大反转
+
+需要注意的是，黑睦不是没有优点，黑睦（目前看疑似）解决了白睦的社交障碍，按常理说，这类问题的标准解法是黑白融合（类似绚辻词），但是不知道编剧是怎么想的
+
+（喵梦也是，如果第一话就剧烈破坏形象，后面的反转是肯定的）
+
+*****
+
+####  akiomn  
+##### 5254#       发表于 2024-12-31 01:59
+
+ 本帖最后由 akiomn 于 2024-12-31 02:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066359&amp;ptid=2208921" target="_blank">玖羽 发表于 2024-12-31 01:51</a>
+
+我认为睦这么早就炸是好事（我也没想到能炸到这个程度）
+
+拿MyGO前三话对比，如果只看MyGO前三话，角色给 ...</blockquote>
+
+mujica不能用mygo经验去硬套，睦这么早炸好处在于最早收拾，如果之后有祥子线的话，睦可以作为助攻，甚至初华线睦都可以助攻
+
+但是黑睦是明确有问题的，不管是放下吉他这个动作还是说出的最讨厌祥子，这角色存在的最好理由是帮助睦跨越过去还有刺激加速祥子成长觉醒
+
+说到底只是能帮睦祥两个成长，但本身存在更多的是负面意义，这点我觉得第三话的吞掉白睦的演出很明显了，如果黑睦真的优点远大于缺点，白睦就是白塑造了，剧情上也会让观众觉得白睦不如就这样彻底消失
+
+角色需要成长，需要做的是跨越过去自己的不成熟和改正缺点。喵梦后面必有反转，也许会有另外一面，比如设定集里给家人打电话的表情，但现在她这个流量至上为了向上爬整了一系列活的举动就是错的，这也是她后面遭遇困境时需要做的改变
+
+*****
+
+####  玖羽  
+##### 5255#       发表于 2024-12-31 02:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066371&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-31 01:59</a>
+
+mujica不能用mygo经验去硬套，睦这么早炸好处在于最早收拾，如果之后有祥子线的话，睦可以作为助攻，甚至 ...</blockquote>
+在人格分裂问题上，把黑的干掉这个解法太老套了，除非编剧能做出创新，否则我认为这么做的可能性不大
+
+*****
+
+####  akiomn  
+##### 5256#       发表于 2024-12-31 02:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066395&amp;ptid=2208921" target="_blank">玖羽 发表于 2024-12-31 02:08</a>
+在人格分裂问题上，把黑的干掉这个解法太老套了，除非编剧能做出创新，否则我认为这么做的可能性不大 ...</blockquote>
+那看你怎么理解，因为黑睦是明确不会长久存在的，pv里睦砸书和遍地玩偶抚摸吉他的两幕大概率是白睦
+凡事都有两面性。喵梦第一集摘面具已经体现了。我觉得黑睦这事大概率也会体现，解放了白睦（或者说睦在逃避）但是代价呢？可能是伤害祥子，可能是和喵梦合伙和祥子作对彻底搞乱mujica。
+我觉得大概率是后者，和喵梦摘面具这事一样，自己一时是爽了，但是拿结果说话，最后是注定的双输
+
+*****
+
+####  哈曼的YY  
+##### 5257#       发表于 2024-12-31 02:23
+
+会融合的!
+
+<img src="https://p.sda1.dev/21/e9db2d174d4837b1d31cc476669291af/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  堆雪若叶  
+##### 5258#       发表于 2024-12-31 04:55
+
+立希问海铃母鸡卡相关的时候提到初华和祥子分别用了不同的称呼，对初华用的是表示生分的三角同学，对祥子是直接喊名字。这确实符合立希的习惯，但这个区别海铃是否会注意到？一方面是海铃比立希对人称呼区分更甚，几乎对所有人都喊姓带さん，唯有对立希一人是喊名字；更重要的另一点是，海铃对立希的过去，或者crychic到底知道多少？海铃身上有一个未回收的伏笔是为灯加油的理由，之前相关的线索只有她知道立希曾经组过乐队并且破镜重圆，海铃陪睦去看mygo结成的首次live也并不太明确她是否了解睦和mygo成员之间的关系。如果海铃能读出立希称呼上区分的含义，或许也能和她的动机相关联。这一点对于花咲川三角的关系也是比较有趣，毕竟初华是确定在追查crychic的线索，但她应该不会和海铃共享情报，甚至很大概率都没直接找过当事人立希。在同一个班初华和立希明面上却一点交流都没出现过也是非常微妙，立希追问祥子组队的原因也可能变成未来和初华的联系。
+
+*****
+
+####  玖羽  
+##### 5259#       发表于 2024-12-31 05:47
+
+ 本帖最后由 玖羽 于 2024-12-31 06:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066371&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-31 01:59</a>
+
+角色需要成长，需要做的是跨越过去自己的不成熟和改正缺点。喵梦后面必有反转，也许会有另外一面，比如设定集里给家人打电话的表情，但现在她这个流量至上为了向上爬整了一系列活的举动就是错的，这也是她后面遭遇困境时需要做的改变
+
+凡事都有两面性。喵梦第一集摘面具已经体现了。我觉得黑睦这事大概率也会体现，解放了白睦（或者说睦在逃避）但是代价呢？可能是伤害祥子，可能是和喵梦合伙和祥子作对彻底搞乱mujica。</blockquote>
+第三话的细节很明显了，喵梦是家境一般的努力家，对她来说睦的一切都是她梦想而不可得的，睦的演技天赋又那么好（她以为黑睦是演技）
+
+我觉得这里有一个误解，喵梦的推动力是卷，不是流量，流量只是卷的一部分
+
+所以她对睦的态度已经变成了“我想要的你都有，我卷得这么辛苦，你为什么连用都不用”，从这个出发点很容易移情到睦本人身上，第三话最后睦人格分裂的时候喵梦的态度明显是惊叹而不是惊讶
+
+后面只需要设计一个情节，逼她在睦（队友）和流量（卷）之间做出选择，人物弧光自然就有了
+
+根据我在前面写的理论（颠覆性原则），如果第一话就展示这个角色最大的问题是流量至上，那这就不是问题（相比阴谋踢队友、精神分裂来说）
+
+如果前三话就能把Ave Mujica的乱源全展示出来，你也太小看独角兽了，海铃和初华还没炸呢，到时候搞不好还得喵梦和睦帮忙收拾
+
+*****
+
+####  玖羽  
+##### 5260#       发表于 2024-12-31 06:20
+
+ 本帖最后由 玖羽 于 2024-12-31 06:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67067199&amp;ptid=2208921" target="_blank">玖羽 发表于 2024-12-31 05:47</a>
+
+后面只需要设计一个情节，逼她在睦（队友）和流量（卷）之间做出选择，人物弧光自然就有了</blockquote>
+我举个例子，现在喵梦已经表现出对森美奈美介绍的机会很热衷，如果后面让喵梦为了保护睦主动跟森美奈美翻脸，这不就是很好的人物弧光
+
+第二话表现喵梦对森美奈美上赶着舔的镜头多得有点不正常，后面可以给一个契机，让喵梦发现她梦想的顶级艺人若叶夫妇是出生，把睦这个天才逼成了精神分裂
+
+然后有一次正好赶上森美奈美和睦发生冲突（Ave Mujica成员可以随便进若叶家），喵梦：QNMD，你介绍的机会老娘不要了，老娘今天就要护着队(jia)友(ren)
+
+这种情节只要演出来，以后谁还敢说键帽（只是举个例子，不是说真的会出现，也可以是类似的情节）
+
+*****
+
+####  织部琴音  
+##### 5261#       发表于 2024-12-31 06:42
+
+ 本帖最后由 织部琴音 于 2024-12-31 06:45 编辑 
+
+如果没有后续动画，那么矛盾肯定要解决到能进游戏的阶段，不过不需要把所有矛盾都解决
+
+*****
+
+####  一心而用  
+##### 5262#       发表于 2024-12-31 09:05
+
+那个……今天是米泽茜26岁生日。
+
+*****
+
+####  天邪鬼  
+##### 5263#       发表于 2024-12-31 09:10
+
+如果初华是侦探位，那她关心的应该不是祥子最近发生了什么事，而是和童年，和岛上甚至大宅里发生有关的事情吧
+
+*****
+
+####  akiomn  
+##### 5264#       发表于 2024-12-31 09:11
+
+ 本帖最后由 akiomn 于 2024-12-31 09:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67067199&amp;ptid=2208921" target="_blank">玖羽 发表于 2024-12-31 05:47</a>
+
+第三话的细节很明显了，喵梦是家境一般的努力家，对她来说睦的一切都是她梦想而不可得的，睦的演技天赋又 ...</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问题是，喵梦已经到了能为了表演追求流量到了可以放弃音乐的地步，观众既然想看就给他们看，这不是什么反不反转的问题，而是本身的想法已经错误了。虽然鸡团本身就是摇摇欲坠的银河战舰，但是到了这种地步，问题根源还是喵梦和祥子的理念之争。
+
+那喵梦的理念是对的吗？第二话已经给了结果。但喵梦还没有认清，最后的结果是祥子管不过来疲于奔命，还加速了黑睦的出现
+
+你是个努力家，你努力了，但你努力的方向却是错误的
+
+喵梦必须得吃瘪受到教训一次
+
+我一直认为不能拿狗团的思路继续看鸡团了，而鸡团目前的表现也确实如此，祥子还未成长起来，睦也没跨越自己，海玲身为二把手却旁观，喵梦更是没意识自己的理念是错的
+
+*****
+
+####  ml1642879  
+##### 5265#       发表于 2024-12-31 09:20
+
+今天份的鬼图呢？
+
+*****
+
+####  桜庭千景  
+##### 5266#       发表于 2024-12-31 09:22
+
+<blockquote>ml1642879 发表于 2024-12-31 09:20
+今天份的鬼图呢？</blockquote>
+前几天都是11点多发的
+
+*****
+
+####  桜庭千景  
+##### 5267#       发表于 2024-12-31 09:25
+
+我说的喵梦的努力家人设是容易拉好感，但是前提是建立在正确的努力上，就现在这个搞事的好处我捞甚至还嫌不够，恶果是让队友全吃了
+
+这要是不修正修正我看直接改名大喵传得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 5268#       发表于 2024-12-31 09:35
+
+精神分裂和人格分裂是不相关两回事请不要混在一起
+
+黑睦虽然大家都说是黑睦，但这个mortis不是一个完全独立的意识，也不是严格意义上的人格，大概率只是睦压抑的原本就有的一部分而已
+
+mortis一直都在，而且有很多个（参见cast表），并且没有在此前存在的时候就显露
+
+睦最典型最有现实性的障碍症状是失眠，幻觉也只是疑似幻觉，有可能只是一种夸张表现下的内心写照
+
+既然mortis本来就是睦的一部分，那么最后很可能是会被睦自我接纳的，也就是漏油说的融合
+
+这个可能性是最高的
+
+*****
+
+####  玖羽  
+##### 5269#       发表于 2024-12-31 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67068176&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-31 09:11</a>
+
+问题是，喵梦已经到了能为了表演追求流量到了可以放弃音乐的地步，观众既然想看就给他们看，这不是什么反 ...</blockquote>
+第三话开头和结尾睦在舞台上出问题的时候，给喵梦的镜头都是惊叹（喵梦以为是睦的演技）
+
+当然没看到后面不好下定论，但我觉得这是一种过渡，也可以说偷渡，喵梦的“流量至上”开始不纯了
+
+“这么演流量更高”会渐渐地偷渡成“睦的演技这么好，不演就浪费了”，然后就可以顺理成章地过渡到对睦个人的移情
+
+我觉得没有必要把喵梦的流量至上看得太严重，或者说，如果流量至上就是喵梦最大的问题，那差不多等于没有问题
+
+爱音在MyGO第1话的时候也显得好像有黑暗的过去，但是第5话解决的时候也就那么回事，并且解决这个问题不妨碍后面再次爆
+
+*****
+
+####  yozoraxsx  
+##### 5270#       发表于 2024-12-31 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066174&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-31 00:38</a>
+母鸡卡第一集先播出来时候，观众上帝视角看祥子都觉得惨了。那么如果剧内老c团三个角色知道这些事，恐怕要 ...</blockquote>
+惨吗?第一集那时候我看到的是丰川家三代至少有一代不是人。
+
+真比惨我觉得mana11人里最惨。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  山ノ内花音  
+##### 5271#       发表于 2024-12-31 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67068472&amp;ptid=2208921" target="_blank">yozoraxsx 发表于 2024-12-31 09:50</a>
+惨吗?第一集那时候我看到的是丰川家三代至少有一代不是人。
+
+真比惨我觉得mana11人里最惨。</blockquote>
+mana现在solo活动都搞起来了
+不太可能成为苦守sumimi空闺苦等初华的形象了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 5272#       发表于 2024-12-31 09:57
+
+ 本帖最后由 akiomn 于 2024-12-31 10:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67068453&amp;ptid=2208921" target="_blank">玖羽 发表于 2024-12-31 09:47</a>
+
+第三话开头和结尾睦在舞台上出问题的时候，给喵梦的镜头都是惊叹（喵梦以为是睦的演技）
+
+当然没看到后面 ...</blockquote>
+
+这和你说的偷渡不偷渡什么移接到对睦感情无关
+
+而是祥子和喵梦的理念之争这个根源到现在也没解决，哪怕睦真的接受了去老实表演了
+
+但是喵梦仍然会为了追求流量去搞别的事，队友还得为了喵梦搞的事去帮忙擦屁股
+
+好事全让你爽了甚至嫌不够爽，坏事都让队友吃苦果？
+
+爱音更是别提了，人家顶天就爱慕虚荣，放鸡团里让祥子带到武道馆怕是巴不得祥子说的话全是对的直接化身祥子头号迷妹。那喵梦是啥？被祥子带到武道馆，嫌弃不够，摘面，祥子帮忙擦屁股，还嫌弃不够，逼迫睦继续表演，突出一个流量至上的打法，至于伤没伤害队友？她压根没在乎
+
+人设反转的前提是错误理念先修正，要不然有本事别叫队友帮忙擦屁股，自己亲自收拾烂摊子去，实际现在的烂摊子全是祥子帮喵梦收拾的
+
+*****
+
+####  桜庭千景  
+##### 5273#       发表于 2024-12-31 10:09
+
+<blockquote>akiomn 发表于 2024-12-31 09:57
+这和你说的偷渡不偷渡什么移接到对睦感情无关
+
+而是祥子和喵梦的理念之争这个根源到现在也没解决，哪怕睦 ...</blockquote>
+
+因为他偷换概念了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+喵梦流量至上主义不严重≠造成的后果不严重
+
+流量至上的观点修正确实就是一句话的事，比起祥子的强烈自尊和睦的心理内耗比确实不是大的问题，但是喵梦现在一己之力把mujica推到炸团边缘，让睦祥两个人都濒临崩溃是实打实的
+
+结果他想用轻描淡写的“流量至上不是多大问题”一笔带过了，当然说出的话和真看过剧的人观感天差地别
+
+*****
+
+####  1223122  
+##### 5274#       发表于 2024-12-31 10:12
+
+年度第一原创<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 14战斗力 +15
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 我有一个朋友| + 2|好评加鹅|
+| Gandalf| + 1|承你吉言|
+| ydsbbt| + 1|欢乐多|
+| 走向未来| + 1|好评加鹅|
+| KLHgg| + 1|欢乐多|
+| Kfly| + 1|真嘟假嘟|
+| 收纳袋| + 1|哇哦|
+| ????????| + 1||
+| Grahamlinks| + 1|欢乐多|
+| 坐看风起云涌| + 1|害怕|
+| Toki_Ai| + 1|不安です|
+| Alicest| + 1|十五年…|
+| 一心而用| + 1|借你吉言|
+| MagicGiraffe| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  相坂君  
+##### 5275#       发表于 2024-12-31 10:12
+
+如果这不是2.5企划，真想要这样的喵梦也不是不可能。但这是邦邦，流量至上根本上就是错的
+
+从揭面开始，睦绷不住后的失言，甚至影响到初华sumimi这边被狂问解散问题，一连串的蝴蝶效应，现在喵梦搞的事她都没付出代价，只是在享受成果，必然会被修正
+
+*****
+
+####  相坂君  
+##### 5276#       发表于 2024-12-31 10:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png"><img src="https://static.saraba1st.com/image/smiley/face2017/112.png"><img src="https://static.saraba1st.com/image/smiley/face2017/111.png">年度第一原创……你们吹得好厉害？太哈人了！
+
+*****
+
+####  cayon  
+##### 5277#       发表于 2024-12-31 10:16
+
+ 本帖最后由 cayon 于 2024-12-31 10:18 编辑 
+
+情报哥这是看完了吗，这还没到2025呢就最佳原创了，吹的好哈人
+
+*****
+
+####  紫吹兰  
+##### 5278#       发表于 2024-12-31 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066248&amp;ptid=2208921" target="_blank">PDQ4 发表于 2024-12-31 00:59</a>
+
+所以我觉得有些漏油说的问题一定要解决根本不成立
+
+实际上狗内部都没有做到互相全部把老底交了，只是说互相 ...</blockquote>
+拿mygo来看意义不大，因为mygo动画就没有结束，第10话本身是冲突的最高潮被强行按了下来，独角兽和10本都强调过mygo+mujica才是完整的动画，mygo的游戏剧情也暂停了一年，mujica如果没有后续动画，两团的问题应该都要至少把心结解决掉。
+
+*****
+
+####  akiomn  
+##### 5279#       发表于 2024-12-31 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67068646&amp;ptid=2208921" target="_blank">桜庭千景 发表于 2024-12-31 10:09</a>
+因为他偷换概念了啊
+
+喵梦流量至上主义不严重≠造成的后果不严重
+
+流量至上的观点修正确实就是一句话的事， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拿狗团思路来说鸡团本来就挺搞笑的
+爱音爱慕虚荣，灯前期软弱没主唱样，立希脾气糟糕点，但这三个干不出喵梦这种事，干不出为了流量伤害队伍队友的事，本质都是心地善良的好孩子
+即使是后期boss素世，最后也接受了狗团，但代价是什么？飞鸟山被祥子拷打，诗超绊被组团刷了，最后虽然还是忘不了c团但是放下了c团接受狗团
+
+我觉得制作组很清楚人设最后反转前该让角色付出什么代价
+
+*****
+
+####  Milarvoz  
+##### 5280#       发表于 2024-12-31 10:17
+
+我去，情报哥这就来了，看来是看完了？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  山ノ内花音  
+##### 5281#       发表于 2024-12-31 10:18
+
+第一集的情报哥：年度第一原创
+第十集的情报哥：这大纲<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 5282#       发表于 2024-12-31 10:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真是情报哥吗？有证据吗
+
+*****
+
+####  紫吹兰  
+##### 5283#       发表于 2024-12-31 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066359&amp;ptid=2208921" target="_blank">玖羽 发表于 2024-12-31 01:51</a>
+
+我认为睦这么早就炸是好事（我也没想到能炸到这个程度）
+
+拿MyGO前三话对比，如果只看MyGO前三话，角色给 ...</blockquote>
+拿go的节奏看mujica意义不大，因为go的前期本质上是角色进场建立角色印象的过程而第三集才开始揭露矛盾，而mujica的主要角色在mygo里已经建立了初步印象所以可以第一集就把冲突矛盾爆发出来，尤其祥子作为go动画的主要角色和冲突核心之一，本身已经塑造了很多，mujica作为一个团队的内部描绘也有13话打了底子。
+
+所以mujica的实质剧情长度要比mygo充裕很多，拿mygo的节奏套并不合适。
+
+*****
+
+####  Aloereed  
+##### 5284#       发表于 2024-12-31 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67068750&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-31 10:18</a>
+
+真是情报哥吗？有证据吗</blockquote>
+老牌情报哥了，这都不认识？<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 5285#       发表于 2024-12-31 10:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">突然想起25年也没几个原创，比起电车横条上的史上最狂，年度第一似乎也不算吹得很大了，鉴于情报哥们爱溜观众前科，谨慎看待
+
+*****
+
+####  一心而用  
+##### 5286#       发表于 2024-12-31 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67068750&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-31 10:18</a>
+
+真是情报哥吗？有证据吗</blockquote>
+这人是我们组的重要图源。
+
+*****
+
+####  Aendst  
+##### 5287#       发表于 2024-12-31 10:29
+
+ 本帖最后由 Aendst 于 2024-12-31 10:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67068708&amp;ptid=2208921" target="_blank">紫吹兰 发表于 2024-12-31 10:16</a>
+
+拿mygo来看意义不大，因为mygo动画就没有结束，第10话本身是冲突的最高潮被强行按了下来，独角兽和10本都 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">？？？？？？制作组亲口说的mygo的故事已经告一段落了，甚至提前写完了
+
+mygo+mujica才是完整的只是在说故事上的完整性，不是在说mygo的故事
+
+mujica要讲mygo一直在铺的祥子线，mygo有涉及但没讲完的内容是祥子的故事，所以26话才是完整的故事，你能理解吗
+
+mujica实质剧情长度更长所以不能套用mygo节奏这个我倒是很赞同
+
+*****
+
+####  山ノ内花音  
+##### 5288#       发表于 2024-12-31 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67068865&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-31 10:29</a>
+？？？？？？制作组亲口说的mygo的故事已经告一段落了，甚至提前写完了
+
+mygo+mujica才是完整的只是在说故 ...</blockquote>
+mygo的故事告一段落了
+但mygo动画的故事还没有结束 指的应该是祥子的秘密这一块
+
+*****
+
+####  雾仙猫灯  
+##### 5289#       发表于 2024-12-31 10:33
+
+闭着眼睛问一句
+
+还在等第一集官方放送的能爬楼吗
+
+*****
+
+####  Adyeshach  
+##### 5290#       发表于 2024-12-31 10:35
+
+<blockquote>雾仙猫灯 发表于 2024-12-31 10:33
+闭着眼睛问一句
+
+还在等第一集官方放送的能爬楼吗</blockquote>
+现在基本上都是剧透了，如果不想看剧透的话建议还是别爬得好。
+
+*****
+
+####  山ノ内花音  
+##### 5291#       发表于 2024-12-31 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67068906&amp;ptid=2208921" target="_blank">雾仙猫灯 发表于 2024-12-31 10:33</a>
+闭着眼睛问一句
+
+还在等第一集官方放送的能爬楼吗</blockquote>
+快跑<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  相坂君  
+##### 5292#       发表于 2024-12-31 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67068906&amp;ptid=2208921" target="_blank">雾仙猫灯 发表于 2024-12-31 10:33</a>
+
+闭着眼睛问一句
+
+还在等第一集官方放送的能爬楼吗</blockquote>
+完全没看相关剧透画面的话，不是很建议，因为楼里讨论基本上基于剧情了
+
+*****
+
+####  Aendst  
+##### 5293#       发表于 2024-12-31 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67068906&amp;ptid=2208921" target="_blank">雾仙猫灯 发表于 2024-12-31 10:33</a>
+
+闭着眼睛问一句
+
+还在等第一集官方放送的能爬楼吗</blockquote>
+不能，千万别爬<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 5294#       发表于 2024-12-31 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67068854&amp;ptid=2208921" target="_blank">一心而用 发表于 2024-12-31 10:28</a>
+这人是我们组的重要图源。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我去，年度第一原创，不知道后面有多炸裂
+
+*****
+
+####  鲍里斯  
+##### 5295#       发表于 2024-12-31 10:59
+
+感谢情报哥给的定心剂
+
+—— 来自 vivo V2172A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  吹楼伞人  
+##### 5296#       发表于 2024-12-31 10:59
+
+要不你们建个无剧透楼吧，或者是个至少按官方放送进度讨论楼
+不然参考这几年有先行放送或者剧透的原创作品，路人观感和讨论环境会很差
+
+*****
+
+####  挺好的  
+##### 5297#       发表于 2024-12-31 11:01
+
+<img src="https://img.saraba1st.com/forum/202412/31/110105frbtn4dra4gw4kr8.jpg" referrerpolicy="no-referrer">
+
+<strong>1704cbddfa11a1278b52515ebc0a4807.jpg</strong> (73.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 11:01 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 桐生| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  收纳袋  
+##### 5298#       发表于 2024-12-31 11:01
+
+真的假的<img src="https://static.saraba1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  AveMujica  
+##### 5299#         楼主| 发表于 2024-12-31 11:02
+
+2
+<img src="https://p.sda1.dev/21/30aadfb695c04113bf3d12c9956a2e97/image.jpg" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 桐生| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  瞳映山川  
+##### 5300#       发表于 2024-12-31 11:03
+
+大喵是吃瘪颜？
+
+*****
+
+####  66367749  
+##### 5301#       发表于 2024-12-31 11:04
+
+不甘心，难过，后悔，伤心？
+
+*****
+
+####  Badwoman  
+##### 5302#       发表于 2024-12-31 11:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">喵最后不会变成那种对外精明对内整天吃瘪的笨蛋姐姐形象吧
+
+*****
+
+####  ml1642879  
+##### 5303#       发表于 2024-12-31 11:06
+
+“嫩马了批的，谁写的鼓谱，累死个人”
+
+*****
+
+####  山ノ内花音  
+##### 5304#       发表于 2024-12-31 11:09
+
+诶卧槽丰川祥子怎么这坏啊（抽泣）（抹眼泪）
+
+*****
+
+####  Augusty  
+##### 5305#       发表于 2024-12-31 11:11
+
+哭呀洗，并感
+
+*****
+
+####  坐看风起云涌  
+##### 5306#       发表于 2024-12-31 11:11
+
+会是年度第一原创百合番吗？<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  金钱与民主  
+##### 5307#       发表于 2024-12-31 11:12
+
+果然表情主打的就是一个反差，看来祥子大概率是“计划通”之类的表情。
+
+*****
+
+####  古怪山庄士大夫  
+##### 5308#       发表于 2024-12-31 11:13
+
+明年第一部原创，合理
+
+*****
+
+####  ytttsuuuba  
+##### 5309#       发表于 2024-12-31 11:15
+
+喵梦一脸被攻略
+
+*****
+
+####  挺好的  
+##### 5310#       发表于 2024-12-31 11:23
+
+<img src="https://img.saraba1st.com/forum/202412/31/112256dcsh5y005vvs0caz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>d6abab9b90935bb4460af3cd6c1fa30a.jpeg</strong> (181.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 11:22 上传
+
+*****
+
+####  紫吹兰  
+##### 5311#       发表于 2024-12-31 11:27
+
+ 本帖最后由 紫吹兰 于 2024-12-31 11:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67068865&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-31 10:29</a>
+
+？？？？？？制作组亲口说的mygo的故事已经告一段落了，甚至提前写完了
+
+mygo+mujica才是完整的只是在说故 ...</blockquote>
+首先我说的是mygo动画没有结束，而告一段落是指mygo作为一个乐队勉强能立起来了，mygo乐队的内部问题虽然谈不上解决但是至少互相之间摊开了牌而不是之前各怀鬼胎拿乐队当工具的状态，后面的剧情不会过多涉及mygo乐队内部的问题。
+
+但是不论作为mygo动画矛盾起爆器的素世，还是作为两季动画的线索人物的祥子的问题都没有解决，所以这部动画并没有写完，如果按照访谈所说两季动画是一个整体，那么这些问题就有可能要在mujica这季来解决。
+
+当然我这里说的也只是有可能，作为动画本身来讲，很多问题解决不了才是正常的，甚至从我个人角度来说，更希望看到浓烈的感情得到长久的延绵，无论是爱还是恨，都好过你好我好的关系性消解。但是考虑到2.5企划的问题，大概mujica动画还是有一定任务在的。
+
+*****
+
+####  jkl  
+##### 5312#       发表于 2024-12-31 11:30
+
+ 本帖最后由 jkl 于 2024-12-31 11:38 编辑 
+
+灵魂宝石会孕育魔女的话，大家不都只有去死了吗！你也是我也是。
+<img src="https://p.sda1.dev/21/c7e212035d427809c748f02f150772a7/image.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狂热飞鸟  
+##### 5313#       发表于 2024-12-31 11:34
+
+我觉得素的故事在狗已经讲完了，从混活可以看素就是放不下C团，估计在鸡里也不会让她放下。
+
+在不放下C团且基本不可能知道祥子真正退团原因和不谅解睦的前提下，那素在鸡的戏份下没什么成长性呀
+
+*****
+
+####  Redimercia  
+##### 5314#       发表于 2024-12-31 11:37
+
+无端联想：
+
+<img src="https://img.saraba1st.com/forum/202412/31/113745utl2csbuu2pcuz9s.png" referrerpolicy="no-referrer">
+
+<strong>IMG_4971.PNG</strong> (87.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 11:37 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  一心而用  
+##### 5315#       发表于 2024-12-31 11:41
+
+<img src="https://p.sda1.dev/21/9f1ffe406ddcbcdac8e8c0809482e318/image.jpg" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 桐生| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  akiomn  
+##### 5316#       发表于 2024-12-31 11:44
+
+难以想象是发生什么事才能让喵梦露出这表情破大防
+
+*****
+
+####  银酒监武  
+##### 5317#       发表于 2024-12-31 11:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67069547&amp;ptid=2208921" target="_blank">狂热飞鸟 发表于 2024-12-31 11:34</a>
+我觉得素的故事在狗已经讲完了，从混活可以看素就是放不下C团，估计在鸡里也不会让她放下。
+
+在不放下C团且 ...</blockquote>
+这个版本可以增加对祥子的恨，不说成长了没，就说更没更新吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  紫吹兰  
+##### 5318#       发表于 2024-12-31 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67069649&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-31 11:44</a>
+
+难以想象是发生什么事才能让喵梦露出这表情破大防</blockquote>
+还是那句话，舞台妆的一切表现都可以被剧中剧解决，所以多想也没用，不过喵梦这个表情倒是比前三个正常倒是她自己真实表情的可能更大。
+
+*****
+
+####  101stroad  
+##### 5319#       发表于 2024-12-31 11:52
+
+ 本帖最后由 101stroad 于 2024-12-31 16:28 编辑 
+
+睦这表情让人想起水爷那张复活节岛石像🗿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狂热飞鸟  
+##### 5320#       发表于 2024-12-31 11:53
+
+<blockquote>银酒监武 发表于 2024-12-31 11:46
+这个版本可以增加对祥子的恨，不说成长了没，就说更没更新吧
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+我觉得大部分说素故事没完结的想要的应该不是这种戏份
+
+
+*****
+
+####  Libartas  
+##### 5321#       发表于 2024-12-31 12:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，喵梦这张像是从局长宇宙来的，那么局长c106能安排下喵梦调教本吗？（
+
+*****
+
+####  本间日阳  
+##### 5322#       发表于 2024-12-31 12:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">从不止一个渠道听人说这是年度第一动画了，在我心中已毫无翻车可能。
+
+*****
+
+####  KLHgg  
+##### 5323#       发表于 2024-12-31 12:26
+
+年度第一原创是指年度第一个播出的原创吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 5324#       发表于 2024-12-31 12:28
+
+喜怒哀乐miss了 祥老师怒一个救救
+
+*****
+
+####  帝下室の年糕  
+##### 5325#       发表于 2024-12-31 12:29
+
+木谷高明:足以改变未来动画业界的作品，我已经看了5遍
+三次元社长：我看了三遍 已经中毒了
+独角兽：这是我倾注了一生，可以带入坟墓的作品，百合写到这种程度真的好吗？
+羊宫妃那:MUJICA比MYGO冲击更大，但我相信你们能够承受的
+情报哥:年度第一原创
+中二电波台:王者归来，胜利宣言，翻车概率0%
+
+*****
+
+####  HGenDs  
+##### 5326#       发表于 2024-12-31 12:33
+
+没想到提前放送三集影响这么大，又不想看枪版又没忍住刷了好多讨论，感觉一月的追番体验已经没了<img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  山ノ内花音  
+##### 5327#       发表于 2024-12-31 12:35
+
+<img src="https://img.saraba1st.com/forum/202412/31/123504tdyf2zrszshrsd2v.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4062.jpeg</strong> (230.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 12:35 上传
+
+*****
+
+####  Aendst  
+##### 5328#       发表于 2024-12-31 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67070049&amp;ptid=2208921" target="_blank">帝下室の年糕 发表于 2024-12-31 12:29</a>
+
+木谷高明:足以改变未来动画业界的作品，我已经看了5遍
+
+三次元社长：我看了三遍 已经中毒了
+
+独角兽：这是我 ...</blockquote>
+这怎么全是flag啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KLHgg  
+##### 5329#       发表于 2024-12-31 12:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67070049&amp;ptid=2208921" target="_blank">帝下室の年糕 发表于 2024-12-31 12:29</a>
+
+木谷高明:足以改变未来动画业界的作品，我已经看了5遍
+
+三次元社长：我看了三遍 已经中毒了
+
+独角兽：这是我 ...</blockquote>
+mggm的话术是第13话看了五遍，不过改变未来动画业界又是哪吹出来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  贰臣  
+##### 5330#       发表于 2024-12-31 12:40
+
+你鸡身上flag已经多到虱子多了不怕痒的程度了
+
+*****
+
+####  枫林不见  
+##### 5331#       发表于 2024-12-31 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67069814&amp;ptid=2208921" target="_blank">Libartas 发表于 2024-12-31 12:02</a>
+
+草，喵梦这张像是从局长宇宙来的，那么局长c106能安排下喵梦调教本吗？（</blockquote>
+阿贝母鸡卡 喵梦的教育是吧
+
+*****
+
+####  Aendst  
+##### 5332#       发表于 2024-12-31 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67070112&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2024-12-31 12:35</a></blockquote>
+连起来观感像是睦吓到了初华，海铃破防了喵梦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 5333#       发表于 2024-12-31 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67070310&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-31 12:58</a>
+连起来观感像是睦吓到了初华，海铃破防了喵梦</blockquote>
+<img src="https://p.sda1.dev/21/c2ae9d90786ff835eb0629f897c04c24/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/9e0bf68c798b65fd33594f43613d12d7/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 5334#       发表于 2024-12-31 13:18
+
+爽姐都要在飞鸟山之后才被灯皇诗超绊修正，哈基喵肯定要吃瘪吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+2.5次元敢这么写角色还挺大胆的，包饺子也要让观众能理解这个角色，比惨大会肯定不行。大祥初华这两个还没爆完，大喵的团魂注入也要戏份，真的还有戏份给海铃吗
+
+*****
+
+####  杂灰  
+##### 5335#       发表于 2024-12-31 13:22
+
+哈吉喵不就只是个更过激的爱音役吗，真素世役还得是祥子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  抽搐一下  
+##### 5336#       发表于 2024-12-31 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67070158&amp;ptid=2208921" target="_blank">KLHgg 发表于 2024-12-31 12:40</a>
+
+mggm的话术是第13话看了五遍，不过改变未来动画业界又是哪吹出来的</blockquote>
+mggm在成都旅行时候视频的ppt里吧13话的限定去掉了，改变业界是演讲词
+
+*****
+
+####  海洋队手下mayo  
+##### 5337#       发表于 2024-12-31 13:35
+
+只看了零星的剧透 让观众理解喵只需像逆转裁判马戏团章节的那个魔术师“俺只是想要还清乡下老爹的债务而已”即可<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+bangdream·城里的老爹还是乡下的老爹
+
+*****
+
+####  山ノ内花音  
+##### 5338#       发表于 2024-12-31 13:36
+
+喵一个人在东京打工 
+需要养乡下三个妹妹的可能性也是有的
+
+*****
+
+####  6030sylar  
+##### 5339#       发表于 2024-12-31 13:50
+
+<img src="https://img.saraba1st.com/forum/202412/31/134948pgrxssregreuv8gv.jpg" referrerpolicy="no-referrer">
+
+<strong>4772e3a6c64b4b4e9f0218312ddec9e9.jpg</strong> (20.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 13:49 上传
+
+*****
+
+####  Aendst  
+##### 5340#       发表于 2024-12-31 13:58
+
+ 本帖最后由 Aendst 于 2024-12-31 14:04 编辑 
+
+mygo和mujica是完全相反的，这个设计思路我觉得是不能忽视的
+
+mygo不是描写成长的故事（柿本），整个mygo动画保留了角色的负面性，甚至在mujica动画前两话再现了这些问题
+
+肉眼可见的，爽世依旧在被个人感情冲昏头脑并且会把其他人卷进去，灯依旧处于一个被动状态甚至还在捡石头，立希对睦的态度和对祥子的反应看起来似乎也有可能是劣等感的表现
+
+爱音逃避的问题不明显，乐奈没有存在感，这两个人暂且不能判断是否变动
+
+但可以发现的是mygo的脚本上，没有采用“改变角色行为，修正角色”的方法去“解决”问题，而是在叙述角色的问题，并且告知产生问题的原因让观众“理解”和“原谅”角色行为，这是一种“共情”
+
+所以mygo是迷子，是会一直迷路的，从这个概念上来说，角色的问题是不会被修正的，不修正也没关系，因为会被原谅
+
+但mujica是相反的
+
+前三话用大量回忆直接放出了祥子和睦问题的成因，但是这与角色问题的联系并不明晰，并且更多的是在交代事情的前因后果
+
+mujica没有花大量篇幅去叙述角色的问题，没有明确告知你她的行为哪里有问题（或者说角色的理念有问题，但行为本身是称不上有问题的），也没有让观众设身处地去共情角色（因此分锅大会开幕了）
+
+但她们的深层问题导致的她们本就可被理解的一般行为招致了极其糟糕的结果
+
+这一点在mujica五名成员身上都是适用的
+
+mujica是在经由角色的个人问题锚定冲突，已经可见，在让角色的行为发生“改变”，并且很可能是要去“解决”这些问题以及修正角色的
+
+*****
+
+####  你妈的为什么  
+##### 5341#       发表于 2024-12-31 14:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太期待祥子的表情了，不会是纯洁小圆脸吧
+
+*****
+
+####  adcdqre  
+##### 5342#       发表于 2024-12-31 14:19
+
+现实方向的话喵至少要比祥子穷才能说过去，而祥子放国内应该属于派出所重点关注对象。如果是也家人侠确实容易跟祥子共情，但是武道馆了还急急急总觉得没道理推测是治病之类急用钱的理由
+
+*****
+
+####  桐生  
+##### 5343#       发表于 2024-12-31 14:21
+
+<blockquote>AveMujica 发表于 2024-12-31 11:02
+2</blockquote>
+當你發現新工作同事都是同性戀還多角戀
+
+主管找你進來還是因為你長得像她前女友
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 桜庭千景|-1|让我看看有无小鬼套盾|
+
+查看全部评分
+
+*****
+
+####  山ノ内花音  
+##### 5344#       发表于 2024-12-31 14:28
+
+哎 有心脏病还打鼓 太不容易了
+
+*****
+
+####  yozoraxsx  
+##### 5345#       发表于 2024-12-31 14:40
+
+有没有可能是大喵老师发现自己是偷摸零代餐的表情？
+
+*****
+
+####  相坂君  
+##### 5346#       发表于 2024-12-31 14:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唉，没任何关系也硬是要跟母鸡卡扯上关系，永远都放不下你们心头好——代 餐，也是一种绿帽癖
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Aendst| + 1|可能是自卑发作了|
+
+查看全部评分
+
+*****
+
+####  山ノ内花音  
+##### 5347#       发表于 2024-12-31 14:52
+
+不过说实话 
+从前三集来看 
+祥子确实挺爱喵梦的 
+感觉到结局阶段 
+喵祥的情感深度大概率比灯箱高不少
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 桐生| + 1|思路广|
+
+查看全部评分
+
+*****
+
+####  瞳映山川  
+##### 5348#       发表于 2024-12-31 14:59
+
+就这么放不下那代餐，要不去买点代餐粉吃吧，我看也挺爱的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qjw114514  
+##### 5349#       发表于 2024-12-31 14:59
+
+看了今天这张图，突然想嬷喵梦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  贰臣  
+##### 5350#       发表于 2024-12-31 15:04
+
+这张图可太好嬷了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">和海铃的拼一起更是忍不住吃一口节奏组，我们贝斯鼓一向都是夫妻啊
+
+*****
+
+####  Aendst  
+##### 5351#       发表于 2024-12-31 15:05
+
+要不是爽世黑脸了之后都会变成无法预测的命运，我觉得爽祥要比灯祥更有前景吧
+
+同样是白月光滤镜，爽世抢先意识到了自己的感情还开展了猛烈攻势追回祥子
+
+而祥子又是在平等地重视crychic的三个人，爽世在白月光巡回竞争中脱颖而出的机会真的有，可惜命运作弄<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 5352#       发表于 2024-12-31 15:12
+
+喵梦最可爱的就是第三集属于她自己的那几个片段
+坐在表演教室椅子上的表情
+还有回到出租屋路上的夕阳下的疲惫表情
+都画的很不错
+
+*****
+
+####  基神的强袭自由  
+##### 5353#       发表于 2024-12-31 15:13
+
+<img src="https://img.saraba1st.com/forum/202412/31/151354prnananudynurjnu.jpg" referrerpolicy="no-referrer">
+
+<strong>新建 Microsoft Word 文档.jpg</strong> (212.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 15:13 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 桐生| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  fufusako  
+##### 5354#       发表于 2024-12-31 15:23
+
+睦：庄家做**，点了自己屁胡
+
+初华：立直一巡后变成空听
+
+海玲：正在捻牌，即将役满自摸
+
+大猫：全程烧鸡，南一被飞的瞬间
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Mkntoil| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  山ノ内花音  
+##### 5355#       发表于 2024-12-31 15:25
+
+祥子明天能来个贝阿朵莉切那种颜艺吗
+
+*****
+
+####  桜庭千景  
+##### 5356#       发表于 2024-12-31 15:53
+
+其实我本来想说要是五个人的表情和代号能相关表达就好了
+
+然后意识到一个问题，祥子怎么表现遗忘啊。。。呆瓜表情吗？
+
+然后就算了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 桐生| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  山ノ内花音  
+##### 5357#       发表于 2024-12-31 15:55
+
+睦这个表情也表现不了死亡吧
+
+*****
+
+####  桜庭千景  
+##### 5358#       发表于 2024-12-31 15:57
+
+<blockquote>山ノ内花音 发表于 2024-12-31 15:55
+睦这个表情也表现不了死亡吧</blockquote>
+
+现在都是颜艺脸就没意义了，只是我自己的想法而已，死亡的话可能直接画个假寐表情之类的就可以了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 桐生| + 1|我不缺鵝哦，你需要的我還可以送你.|
+
+查看全部评分
+
+*****
+
+####  PDQ4  
+##### 5359#       发表于 2024-12-31 16:00
+
+喵梦说的话，无论是第三集车站还是地下室以及其他时间和祥子交锋，其实有承担了之前祥子的正论暴击职能，太对了初祥一个能反驳的都没有
+她和祥子是单纯的理念之争，唯一的问题是邦邦动画否定音乐性out了，但是针对这一点给了她拼命练习的努力家人设
+针锋相对是喵祥很有意思的嗑点，而且喵梦脸是祥子钦定的好看
+小祥看见这么漂亮一张脸对着自己正论连发，心情肯定很复杂吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 5360#       发表于 2024-12-31 16:01
+
+感觉祥p不会颜艺，参考op，虽然我是很想看<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+太坏了丰川祥子
+
+
+*****
+
+####  一心而用  
+##### 5361#       发表于 2024-12-31 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67071233&amp;ptid=2208921" target="_blank">贰臣 发表于 2024-12-31 15:04</a>
+这张图可太好嬷了和海铃的拼一起更是忍不住吃一口节奏组，我们贝斯鼓一向都是夫妻啊 ...</blockquote>
+好的，拼一起。
+<img src="https://p.sda1.dev/21/89279f1fce1e1d6ffc2a3051c9cb7d03/image.jpg" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 贰臣| + 1|好评加鹅|
+| 桐生| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 5362#       发表于 2024-12-31 16:05
+
+本来不想代餐的，想到泥潭反买别墅看海，这下不想代餐也不行了[汤圆]
+
+*****
+
+####  桐生  
+##### 5363#       发表于 2024-12-31 16:06
+
+<img src="https://img.saraba1st.com/forum/202412/31/160617n8yyarb8vssu3slb.jpg" referrerpolicy="no-referrer">
+
+<strong>FB_IMG_1735632260966.jpg</strong> (81.55 KB, 下载次数: 1)
+
+下载附件
+
+由手机上传
+2024-12-31 16:06 上传
+
+<img src="https://img.saraba1st.com/forum/202412/31/160617y648586x7xa665al.jpg" referrerpolicy="no-referrer">
+
+<strong>FB_IMG_1735632257284.jpg</strong> (121.54 KB, 下载次数: 1)
+
+下载附件
+
+由手机上传
+2024-12-31 16:06 上传
+
+<img src="https://img.saraba1st.com/forum/202412/31/160618anb7iurkpfu7i7fr.jpg" referrerpolicy="no-referrer">
+
+<strong>FB_IMG_1735632263845.jpg</strong> (91.57 KB, 下载次数: 1)
+
+下载附件
+
+由手机上传
+2024-12-31 16:06 上传
+
+https://x.com/Taphemica_mer/status/1873753357346836718?t=DMJojfbiUSgdiPgtiHMH1g&amp;s=19
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 5364#       发表于 2024-12-31 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67071873&amp;ptid=2208921" target="_blank">桐生 发表于 2024-12-31 16:06</a>
+
+https://x.com/Taphemica_mer/status/1873753357346836718?t=DMJojfbiUSgdiPgtiHMH1g&amp;s=19</blockquote>
+这选图怎么想的。。。
+
+*****
+
+####  银酒监武  
+##### 5365#       发表于 2024-12-31 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67071249&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-31 15:05</a>
+要不是爽世黑脸了之后都会变成无法预测的命运，我觉得爽祥要比灯祥更有前景吧
+
+同样是白月光滤镜，爽世抢先 ...</blockquote>
+不如说双箭头的恨&amp;怒才能让这两个人的关系性平等起来<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  Aendst  
+##### 5366#       发表于 2024-12-31 16:10
+
+ 本帖最后由 Aendst 于 2024-12-31 16:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67071896&amp;ptid=2208921" target="_blank">银酒监武 发表于 2024-12-31 16:09</a>
+
+不如说双箭头的恨&amp;怒才能让这两个人的关系性平等起来
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+那惨了，恨的关系性已经被mo祥抢走了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且mo讨厌祥子是因为爱
+
+爽世真讨厌祥子，只能说明她原本就不爱祥子，爱的是crychic，这下又把爽对祥本来的箭头给拆了
+
+*****
+
+####  银酒监武  
+##### 5367#       发表于 2024-12-31 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67071910&amp;ptid=2208921" target="_blank">Aendst 发表于 2024-12-31 16:10</a>
+那惨了，这个关系性已经被mo祥抢走了
+
+而且mo讨厌祥子是因为爱
+
+爽世真讨厌祥子，只能说明她原本就不爱祥子 ...</blockquote>
+新的恨意&amp;厌恶的箭头就是双向的嘛，两人都有<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 5368#       发表于 2024-12-31 16:17
+
+双恨是不可能的，不然之后手游里怎么编剧请
+
+*****
+
+####  PDQ4  
+##### 5369#       发表于 2024-12-31 16:18
+
+一想到就难受
+沟槽的制作组怎么把我爽姐一辈子唯一指定白月光真特定给ccc了
+这下爽祥不如爽c了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 5370#       发表于 2024-12-31 16:26
+
+ 本帖最后由 akiomn 于 2024-12-31 16:28 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有个问题，就祥子内幕这事吧，不止是灯素希三个不能知道，恐怕喵梦都不能得知
+
+亲妈没了亲爹颓废在出租屋打工一年，被迫退出c团，然后组银河战舰带着喵梦上武道馆，结果喵梦一直搞事，全是祥子来收尾，本来祥子的依靠只有睦了，但是喵梦搞事把睦也点炸了黑化了，甚至连带着祥子也精神濒临崩溃
+
+喵梦知道了内情恐怕真要露出今天那个破大防的表情然后自裁
+
+*****
+
+####  PDQ4  
+##### 5371#       发表于 2024-12-31 16:26
+
+cp从来不怕负面，而是怕没有特殊性和不纯
+爽姐现在写法就像ccc的遗孀，讨厌睦祥俩都是因为你们是杀死我丈夫的凶手
+独角兽能不能打个补丁说爽姐不是对祥子生气<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 5372#       发表于 2024-12-31 16:29
+
+喵梦这种有野心的性格不会自裁，她又没有玉玉症<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+喵知道了怕不是要一辈子用关爱的眼神看祥子，如果喵祥斗嘴是常态，那喵梦确实不会知道
+
+幼驯染的事可能只有幼驯染之间会通气<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  uhiuk  
+##### 5373#       发表于 2024-12-31 16:29
+
+ 本帖最后由 uhiuk 于 2024-12-31 16:31 编辑 
+
+问题在于就算恨也恨得不够，特别是观众都知道第一集是什么情况的前提下，soyo的爱恨取决于对真相了解程度的多少。这点因为大家都能想到所以就显得俗套很多。不过后续也可能搞点出人意料的展开？
+
+*****
+
+####  山ノ内花音  
+##### 5374#       发表于 2024-12-31 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67072091&amp;ptid=2208921" target="_blank">akiomn 发表于 2024-12-31 16:26</a>
+有个问题，就祥子内幕这事吧，不止是灯素希三个不能知道，恐怕喵梦都不能得知
+
+亲妈没了亲爹颓废在出租屋打 ...</blockquote>
+其实喵梦只需要知道祥子现在离家出走就行了
+她也快摸到真相了
+父母的事根本没必要让她知道吧
+
+*****
+
+####  桜庭千景  
+##### 5375#       发表于 2024-12-31 16:35
+
+素世从故事结构来说把白月光对象给ccc本来是更合理的完善人设的方法
+
+如果觉得这个影响到磕cp了，那也只能证明磕的本来就是假药呗
+
+*****
+
+####  桜庭千景  
+##### 5376#       发表于 2024-12-31 16:38
+
+祥子这个呆瓜脑子你让她去恨人真的挺难的我觉得，爱人和恨人都需要足够的经历和感情投入
+
+如果真要在所有角色里选一个让她恨的除了不争气的清告爹之外感觉找不出了
+
+但是这是少女乐队动画，她爹真没啥好写的
+
+*****
+
+####  坚挺水表君  
+##### 5377#       发表于 2024-12-31 16:52
+
+反正让我在无脑祥舔狗和铁血C卫兵之中选一个的话，那我还是觉得后者相对而言正常一些。
+
+*****
+
+####  金属化反射装甲  
+##### 5378#       发表于 2024-12-31 16:58
+
+爽猫这两个戏里戏外提了很多次追求归宿吧，不记得其他三个有没有提过
+
+*****
+
+####  桐生  
+##### 5379#       发表于 2024-12-31 16:58
+
+<blockquote>基神的强袭自由 发表于 2024-12-31 15:13
+</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202412/31/165837irw76w3jkmmkgyq0.jpg" referrerpolicy="no-referrer">
+
+<strong>FB_IMG_1735635430253.jpg</strong> (27.77 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-31 16:58 上传
+
+*****
+
+####  akiomn  
+##### 5380#       发表于 2024-12-31 17:03
+
+与其让c团三个知道，不如祥子编织一个温柔的谎言欺骗过去，血淋淋的真相和温柔的谎言，我认为c团三个看到祥子幸福的现状，肯定会选择后者，如果选真相就是揭人家的伤疤了
+
+*****
+
+####  海洋队手下mayo  
+##### 5381#       发表于 2024-12-31 17:04
+
+感觉素食爱的更多是对那段关系不是具体某个人或乐队，现在她视角的情报看可能就是把其他人整玉玉的罪魁祸首俩大小姐把其他人溜着玩<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">毕竟木头上一季最后那句挺好的对吧 也是完全能看成事不关己的轻浮态度 
+
+*****
+
+####  NODY  
+##### 5382#       发表于 2024-12-31 17:07
+
+现在这情况ccc三人已经很难参与核心矛盾了，知不知道祥子情况不重要
+
+目前知道祥子家庭情况对剧情影响会很大的就两个人，一个初华，一个喵梦，尤其是喵梦知道自己一直在伤害的人其实过得这么惨的话，如何补偿祥子要圆上还挺难写的
+
+*****
+
+####  山ノ内花音  
+##### 5383#       发表于 2024-12-31 17:08
+
+怎么又开始滑坡了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+你说得对但仿佛看穿我心思一般，坏心思的神明，为我带来了礼物。这就是对我而言命运的相遇。我想我一辈子都不会忘记。珍贵的特别的无可替代的，我的归宿 
+
+*****
+
+####  NODY  
+##### 5384#       发表于 2024-12-31 17:09
+
+十周年展倒计时轮到mujica了
+
+<img src="https://img.saraba1st.com/forum/202412/31/170911ljberrkrknakfrqk.png" referrerpolicy="no-referrer">
+
+<strong>无标题00.png</strong> (186.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 17:09 上传
+
+*****
+
+####  IWS2000  
+##### 5385#       发表于 2024-12-31 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67071842&amp;ptid=2208921" target="_blank">一心而用 发表于 2024-12-31 16:02</a>
+好的，拼一起。</blockquote>
+看到了个更适合拼在一起的<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hkguty  
+##### 5386#       发表于 2024-12-31 17:38
+
+喵梦不知道内里其实会不会是类似soyo那样的人，反转睦好像也比较有趣，主唱的初华感觉目前好像是人设最平常、最正常的人，不知是不是有意为之
+
+*****
+
+####  PDQ4  
+##### 5387#       发表于 2024-12-31 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67072485&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2024-12-31 17:08</a>
+ 怎么又开始滑坡了 你说得对但仿佛看穿我心思一般，坏心思的神明，为我带来了礼物。这就是对我而言命运的相 ...</blockquote>
+你说得对但仿佛看穿豚豚心思一般，坏心思的绫奈，为豚豚带来了礼物。这就是对豚豚而言命运的相遇。我想豚豚一辈子都不会忘记。珍贵的特别的无可替代的，豚豚的爽祥<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 5388#       发表于 2024-12-31 17:44
+
+我在某个地方看到过李子说以后live可能有核嗓 丁真吗
+
+母鸡卡大伙这精神状态真适合来点核嗓吧
+
+*****
+
+####  厄神之息  
+##### 5389#       发表于 2024-12-31 18:28
+
+ 本帖最后由 厄神之息 于 2024-12-31 18:31 编辑 
+
+看完三集，我居然有两种完全相反的理解方式，究竟哪种是对的啊。。。
+
+到底是1.木子米从小被寄予厚望，把音乐当成只属于自己的避难所，但是建立ccc以后发现自己弹得真不行。自尊心受到严重打击，变得自卑。再加上后来种种压力和不好的回忆都来自于自己曾经的避难所“音乐/玩吉他”，曾经只属于自己的温暖避难所现在变成了他最大的梦魇。她对乐队的一切患上了ptsd。而声称最了解木子米的黑睦人偶是木子米的本我。本我为了保护木子米的感受，拒绝再让木受伤而吞噬了睦的自我，选择不管自己的好友祥子，为了不让自己再受伤而彻底放弃了音乐，拥抱了拥有丰富资源的演艺。
+
+还是2.木子米从小到大被人给予厚望，习惯于回应他人的高期待，本来就自卑习惯于往自己身上揽锅。音乐本来是她的避难所，她弹得其实还行，但是回应他人高要求高期待的习惯让她觉得自己不行。本来是聊以**逃避压力的音乐，也变成了曝在阳光下，回应他人期待的工具。睦就此彻底失去了所有可以躲避的地方，失去了一切“属于自己”的东西。为了能更好的回应她人的期待不让好友们再受伤哭泣，她的超我化为了黑睦，吞噬掉了她的自我，让她回应更多人的期待，完全抛弃个人好恶，拥抱起了本来厌恶的演艺事业。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我个人虽然更倾向1，但是想想睦也是看过mygo演唱会的人，看见爱音弹那水平也好意思继续表演下去，睦怎么也该释怀惹（。所以难道是2更正确？
+
+*****
+
+####  黑夜落叶秋天  
+##### 5390#       发表于 2024-12-31 18:33
+
+好奇第四集的内容
+
+可惜还要等老久
+
+*****
+
+####  DYsnow  
+##### 5391#       发表于 2024-12-31 18:42
+
+黑睦是最早的睦吧，从祥子说的话以前经常笑和人偶世界观来看。睦妈那句话翻译到底是幼儿园认识还是从幼儿园开始就一直一起啊？
+
+*****
+
+####  阿萨德飞过去  
+##### 5392#       发表于 2024-12-31 19:31
+
+明天要是对时的话，能看到小祥最1的一面吗<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">
+
+*****
+
+####  九陌狂游  
+##### 5393#       发表于 2024-12-31 19:37
+
+可以明天1月1日11:11发倒数1吗，最1的小祥。
+
+*****
+
+####  thisisaspider  
+##### 5394#       发表于 2024-12-31 20:01
+
+ 本帖最后由 thisisaspider 于 2024-12-31 20:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67066061&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2024-12-31 00:13</a>
+
+重新整理了一下情报，有不少违和感，感觉像在看侦探剧。剧本脉络有种解谜的感觉。或许不应该围绕着剧情去分 ...</blockquote>
+回复自己
+
+感觉第一个谜团就是，睦在mujica开心吗，睦为什么不觉得组乐队开心。
+
+一半是观众的谜题，然后角色则要找到谜题并且解决。
+
+目前已知
+
+1. 这个和小时候经历有关。
+
+2. 睦的演奏水平不低，被staff和祥子表扬过。
+
+3. 祥可能也不知道睦在乐队不开心，至少祥也没问过睦为什么在乐队不开心。
+
+已经使用了的一些障眼法：
+
+1. 喜欢玩金属
+
+2. 是为了祥掩护祥子退团才说的
+
+最接近的答案是，没法表达出自己内心的呐喊？但太抽象了。
+
+估计以mujica的节奏和之前mygo的风格来看，关键信息和解密会在一集里面出现，也不太好猜
+
+*****
+
+####  狂热飞鸟  
+##### 5395#       发表于 2024-12-31 20:06
+
+ 正剧没有任何一点说过睦喜欢玩金属，这是假药二创
+
+*****
+
+####  thisisaspider  
+##### 5396#       发表于 2024-12-31 20:08
+
+只是代指乐队风格问题<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  oldgoat  
+##### 5397#       发表于 2024-12-31 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67073052&amp;ptid=2208921" target="_blank">厄神之息 发表于 2024-12-31 18:28</a>
+
+看完三集，我居然有两种完全相反的理解方式，究竟哪种是对的啊。。。
+
+到底是1.木子米从小被寄予厚望，把音 ...</blockquote>
+更接近于第一种，但睦理解的所谓“弹得不行”应该不是技术高低音乐好不好这种东西，而是“真不真诚”。她更像是觉得身为演艺大咖的父母时时刻刻拿自己作为“舞台道具”（真.人偶）一样的东西，或者说以她的小剧场来说我倾向于认为她就是觉得连父母都不过是舞台上的木偶戏，所以自己想靠吉他来找到真实的自己。结果在C团里发现别人都行（除了对祥欲言又止），都是心意和音乐如一，就自己还是不行。后面黑睦吞噬白睦说白了就是摆烂的一种，表现了睦最后不得不接受自己一直以来都只不过是父母亲友观众的舞台道具。
+
+*****
+
+####  adcdqre  
+##### 5398#       发表于 2024-12-31 20:42
+
+初华从出场我就觉得完美的吓人这还普通啊
+
+*****
+
+####  thisisaspider  
+##### 5399#       发表于 2024-12-31 21:18
+
+完全脑补发散假药。睦在mujica组团之前就认识mortis了，至于过程先不理。但是吞噬睦不是mortis，而是伪装成mortis的精神压力或者黑暗面。
+
+*****
+
+####  PDQ4  
+##### 5400#       发表于 2024-12-31 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67073811&amp;ptid=2208921" target="_blank">oldgoat 发表于 2024-12-31 20:29</a>
+
+更接近于第一种，但睦理解的所谓“弹得不行”应该不是技术高低音乐好不好这种东西，而是“真不真诚”。她 ...</blockquote>
+这个有一个问题就是，睦觉得吉他不行是在C团之前就有了，祥子介绍睦的时候她就不自信
+
+那里提C团可能只是进一步强化觉得自己不行
+
+为什么觉得自己吉他不行的根源还没有展现出来，第一次“唱歌”失败的地方还没出现
+
+
+*****
+
+####  暗影国度  
+##### 5401#       发表于 2024-12-31 22:19
+
+ 本帖最后由 暗影国度 于 2025-1-1 08:10 编辑 
+
+说下自己和朋友的发现还有猜测：
+
+在go第九集中，我们可以确定睦的房间是睦家右上这间房间。
+
+但是在mujica第三集，睦幻想回忆中构建出类似芭比娃娃的屋子，幼睦偏偏是在左上的房间，而不是在右边的房间。
+
+当然这可以用幻想世界来解释，但是芭比娃娃小屋右边的房间，却也很明显能看出来同样是属于卧室的布置，只不过好像是少了镜子，却多了睦房间现实世界所有的台灯（从PV砸房间可看出）。
+
+左边房间里的镜子，睦房间现实世界也有一面基本完全一样形状的镜子，右边房间的台灯，睦房间现实世界里右边的房间有着台灯。不过从床上的帘子来看不太一样，幻想中的帘子更厚重不透明，现实的更像是蚊帐那种。
+
+所以这里，我个人猜测有两种可能性。
+
+1：幼年的睦很可能住在左边的屋子，只不过后来出于什么原因搬到了右面去住。
+
+2：左边的房间是父母亲的房间，不是睦的房间。
+
+但这都互相导向了新的问题，可能还需要日后解答。因为如果是1，为什么睦好端端会搬房间？如果是2，为什么睦父母房间的镜子会搬到了睦的房间中？还是说看不清的黑暗房间里也有一面镜子？睦砸镜子的行为是否有什么深意。
+
+而且朋友则还发现，在睦内心世界，有op中出现了的摩天轮和旋转木马，以及尚未出现的树屋，不知道是否这些代表了睦祥间的童年回忆。
+
+*****
+
+####  抽搐一下  
+##### 5402#       发表于 2024-12-31 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67074632&amp;ptid=2208921" target="_blank">暗影国度 发表于 2024-12-31 22:19</a>
+
+说下自己和朋友的发现还有猜测：
+
+在go第八集中，我们可以确定睦的房间是睦家右上这间房间。</blockquote>
+第八集有出现过睦的房间?
+
+*****
+
+####  暗影国度  
+##### 5403#       发表于 2024-12-31 23:06
+
+<blockquote>抽搐一下 发表于 2024-12-31 22:41
+第八集有出现过睦的房间?</blockquote>
+出现了啊，睦在地下室弹吉他，其他除了右上的房间都亮灯，那肯定是没人的房间不亮灯，所以可以推出房间位置。
+
+*****
+
+####  抽搐一下  
+##### 5404#       发表于 2024-12-31 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67075171&amp;ptid=2208921" target="_blank">暗影国度 发表于 2024-12-31 23:06</a>
+
+出现了啊，睦在地下室弹吉他，其他除了右上的房间都亮灯，那肯定是没人的房间不亮灯，所以可以推出房间位 ...</blockquote>
+那是第九集
+
+*****
+
+####  Alicest  
+##### 5405#       发表于 2024-12-31 23:30
+
+<img src="https://p.sda1.dev/21/547840c520e0ddeb5c5f9df188d255c7/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 5406#       发表于 2024-12-31 23:30
+
+信泽画初华了
+
+<img src="https://img.saraba1st.com/forum/202412/31/232952n61ww2qef1p38z1c.png" referrerpolicy="no-referrer">
+
+<strong>无标题.png</strong> (542.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 23:29 上传
+
+<img src="https://img.saraba1st.com/forum/202412/31/232956snx9bjn6hexnjt6x.png" referrerpolicy="no-referrer">
+
+<strong>无标题00.png</strong> (72.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 23:29 上传
+
+*****
+
+####  一心而用  
+##### 5407#       发表于 2024-12-31 23:34
+
+<img src="https://p.sda1.dev/21/95a984d34ef4790c3243c5733d8778f9/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 5408#       发表于 2024-12-31 23:35
+
+<img src="https://p.sda1.dev/21/65943241d5d8a0e22a4f2ddd0d92b2ec/123123343870_020241231_233412.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  [皆神孝介]  
+##### 5409#       发表于 2024-12-31 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67075171&amp;ptid=2208921" target="_blank">暗影国度 发表于 2024-12-31 23:06</a>
+
+出现了啊，睦在地下室弹吉他，其他除了右上的房间都亮灯，那肯定是没人的房间不亮灯，所以可以推出房间位 ...</blockquote>
+                <img src="https://p.sda1.dev/21/0c06f15501015c81124471156eea4d6f/PixPin_2024-12-31_23-34-57.jpg" referrerpolicy="no-referrer">            
+
+*****
+
+####  好想看Mujica啊  
+##### 5410#       发表于 2024-12-31 23:38
+
+美美美美美，信泽终于不画他那个猫嘴了
+
+*****
+
+####  akiomn  
+##### 5411#       发表于 2025-1-1 00:08
+
+ 本帖最后由 akiomn 于 2025-1-1 00:09 编辑 
+
+睦的问题从pv开始就摆在了明面上，只是没想到爆的那么大，不过现在有可能是爆的越大收拾的越快，不然再算上中期必定有个live要卖新歌，五人必须要齐，那么黑睦问题就得速度解决了，否则我想不到怎么让五个人好好开live。
+
+如果睦问题足足花了6集还没解决，不仅是卖不了新歌的问题，后面海玲喵梦两个保底都要1集半时候塑造（我推测2集）祥子如果有自己的线那也是保底1集，这样就3集。再算上舅舅说的初华后期才爆个大的，最晚第十集开爆好了。1-6睦问题（同时也在给喵梦海玲埋伏笔）7-9喵梦海玲祥子，第十集初华，刚刚好（说实话我觉得足足6集给睦线都算多了，其中还算上铺垫海玲喵梦线）
+
+之前忘记在哪边看到mujica在2月初还有个小型live来着，哪天来着？考虑到现实关系，在动画卖新歌之前应该会包个小饺子（睦的问题最差都得阶段性暂时解决掉了）
+
+*****
+
+####  山ノ内花音  
+##### 5412#       发表于 2025-1-1 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67075897&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-1 00:08</a>
+睦的问题从pv开始就摆在了明面上，只是没想到爆的那么大，不过现在有可能是爆的越大收拾的越快，不然再算上 ...</blockquote>
+根据一月是睦月来看
+五集（初步？）解决问题 进入剧情下一阶段
+接上2月2日的现实live
+非常合理
+
+*****
+
+####  akiomn  
+##### 5413#       发表于 2025-1-1 00:19
+
+ 本帖最后由 akiomn 于 2025-1-1 00:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67075965&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-1 00:12</a>
+
+根据一月是睦月来看
+
+五集（初步？）解决问题 进入剧情下一阶段
+
+接上2月2日的现实live</blockquote>
+
+差不多合理吧，2集把pv里睦的画面全回收掉（祥子豪宅那个画面我不确定会不会回收）起码黑睦问题需要暂时解决，否则6集都收拾不掉的话，我真想不到新歌live要怎么卖。之后789得留给海玲喵梦祥子三个的（甚至可能要给初华线铺垫）10集开始就得进初华线了
+
+这样也正好对应上live幕间里说的“虚假的光”阶段，实则中期肯定还要爆爆爆
+
+想到这个还是因为mygo里素世直接第十集一集就被速刷掉了，实际上回去看mygo，素世哪怕第七集结尾开始算爆了，解决时间也只花了3集
+
+*****
+
+####  NODY  
+##### 5414#       发表于 2025-1-1 01:14
+
+<img src="https://img.saraba1st.com/forum/202501/01/011432ix2xedt3lddhv14z.png" referrerpolicy="no-referrer">
+
+<strong>8c92c5b7-d8a4-4233-a32c-aa0f6e9f7fbe.png</strong> (24.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 01:14 上传
+
+<img src="https://img.saraba1st.com/forum/202501/01/011432x7slhjuusb4zzbdo.png" referrerpolicy="no-referrer">
+
+<strong>28af4a67-94a9-470f-800b-9dc5f96a01ae.png</strong> (53.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 01:14 上传
+
+*****
+
+####  哈曼的YY  
+##### 5415#       发表于 2025-1-1 03:27
+
+ 本帖最后由 哈曼的YY 于 2025-1-1 04:49 编辑 
+
+<img src="https://img.saraba1st.com/forum/202501/01/030321xj1bc7dcjxza5roc.jpg" referrerpolicy="no-referrer">
+
+<strong>GgIZgRqaUAAYUeA.jpg</strong> (305.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 03:03 上传
+
+<img src="https://img.saraba1st.com/forum/202501/01/030335r28gxne8utn92m42.jpg" referrerpolicy="no-referrer">
+
+<strong>GgIZgRfakAA_FWq.jpg</strong> (308.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 03:03 上传
+
+[https://x.com/MusicBOX5555555/status/1874088448052912563](https://x.com/MusicBOX5555555/status/1874088448052912563)
+
+<img src="https://img.saraba1st.com/forum/202501/01/031639g3vzrxfmld46zdrf.jpg" referrerpolicy="no-referrer">
+
+<strong>GgIC2FlbYAIiCsA.jpg</strong> (298.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 03:16 上传
+
+[https://x.com/rousei13/status/1874063528077967761](https://x.com/rousei13/status/1874063528077967761)
+
+<img src="https://img.saraba1st.com/forum/202501/01/031710pud7qzbmz7t3omnb.jpg" referrerpolicy="no-referrer">
+
+<strong>GgIEGLybYAA4wqk.jpg</strong> (266.12 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 03:17 上传
+
+[https://x.com/moepusanai/status/1874064903725867089](https://x.com/moepusanai/status/1874064903725867089)
+
+<img src="https://img.saraba1st.com/forum/202501/01/035622u3weofe3xej7b7xo.jpg" referrerpolicy="no-referrer">
+
+<strong>GgGSYOfbYAA7S5q.jpg</strong> (110.3 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 03:56 上传
+
+[https://x.com/1923rina_dong/status/1873940294494019624](https://x.com/1923rina_dong/status/1873940294494019624)
+
+<img src="https://img.saraba1st.com/forum/202501/01/035654vjbwbd63puj222u9.jpg" referrerpolicy="no-referrer">
+
+<strong>GgHrmpVbYAE6bJZ.jpg</strong> (87.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 03:56 上传
+
+[https://x.com/creepy_himecchi/status/1874037980488511825](https://x.com/creepy_himecchi/status/1874037980488511825)
+
+<img src="https://img.saraba1st.com/forum/202501/01/044927rzk6u6fz74f1sfhl.jpg" referrerpolicy="no-referrer">
+
+<strong>GgDcf_MbAAAm6Xs.jpg</strong> (540.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 04:49 上传
+
+[https://x.com/HakkouAin/status/1873741492361294122](https://x.com/HakkouAin/status/1873741492361294122)
+
+*****
+
+####  novalli  
+##### 5416#       发表于 2025-1-1 07:14
+
+myjica三集之后，好像睦干什么都不会ooc了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只能说真是官方逼死同人。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  暗影国度  
+##### 5417#       发表于 2025-1-1 08:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67075295&amp;ptid=2208921" target="_blank">抽搐一下 发表于 2024-12-31 23:15</a>
+
+那是第九集</blockquote>
+我的问题，记混了，已经编辑了
+
+*****
+
+####  adcdqre  
+##### 5418#       发表于 2025-1-1 09:08
+
+ 本帖最后由 adcdqre 于 2025-1-1 09:17 编辑 
+
+我想起以前看过的青梅组合。一方看起来疯了但其实有一半是演的满口中二台词发泄不满，两边看起来敌对误解结果偷偷在台词藏了安全词。不停互飙演技互相杀非常扭曲
+
+*****
+
+####  qjw114514  
+##### 5419#       发表于 2025-1-1 10:31
+
+ 本帖最后由 qjw114514 于 2025-1-1 10:39 编辑 
+
+总觉得mortis不喊saki很有意思，之前就觉得睦对祥子的特殊昵称很能体现亲近感，现在称呼一变马上就感觉出两人间距离的变化了，不知道祥子听到睦改口会怎么想。小祥都安排舞台上叫姐姐大人了，对称呼变化肯定会在意吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">至少mortis没给改到丰川桑去
+
+好像还可以造假药，睦潜意识里认为saki这个称呼是自己专用，mortis不这么叫<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 5420#       发表于 2025-1-1 10:50
+
+<img src="https://p.sda1.dev/21/952f1142fa96730c5fa3a68792476f4a/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  AveMujica  
+##### 5421#         楼主| 发表于 2025-1-1 11:00
+
+1
+<img src="https://p.sda1.dev/21/f45e4335c02bed0d38d354a05393e6a6/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 5422#       发表于 2025-1-1 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67076927&amp;ptid=2208921" target="_blank">novalli 发表于 2025-1-1 07:14</a>
+
+myjica三集之后，好像睦干什么都不会ooc了只能说真是官方逼死同人。</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202501/01/110115obgw8eczw49ggtge.jpg" referrerpolicy="no-referrer">
+
+<strong>0001.jpg</strong> (211.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 11:01 上传
+
+<img src="https://img.saraba1st.com/forum/202501/01/110116zp3gtc33gzr4clgr.jpg" referrerpolicy="no-referrer">
+
+<strong>0002.jpg</strong> (85.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 11:01 上传
+
+*****
+
+####  山ノ内花音  
+##### 5423#       发表于 2025-1-1 11:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+这是什么心愿已了的笑容
+
+*****
+
+####  挺好的  
+##### 5424#       发表于 2025-1-1 11:03
+
+<img src="https://img.saraba1st.com/forum/202501/01/110341qzhibmm6efl6t017.png" referrerpolicy="no-referrer">
+
+<strong>f0f6deec2d50299dcbd588cc3308c88f_720.png</strong> (103.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 11:03 上传
+
+*****
+
+####  哈曼的YY  
+##### 5425#       发表于 2025-1-1 11:04
+
+怎么感觉这个笑是最疯的
+
+*****
+
+####  kuroro  
+##### 5426#       发表于 2025-1-1 11:05
+
+这个笑有点哈人了
+
+*****
+
+####  一心而用  
+##### 5427#       发表于 2025-1-1 11:06
+
+终于齐了
+<img src="https://p.sda1.dev/21/de0908790966b1acfd87fbc675002f80/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/1f2df590704a391f93be0b43ae428424/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/16d3563f8c1c2084cc0db452e4c40ed3/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/8df98d7190d6f09d5c1eeb8b9fdc3328/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/9a24e13631a1ae40c70634026575be56/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 5428#       发表于 2025-1-1 11:08
+
+哥们期待的鬼图呢
+
+*****
+
+####  挺好的  
+##### 5429#       发表于 2025-1-1 11:09
+
+<img src="https://img.saraba1st.com/forum/202501/01/110931k5b5jx7xjxljmlvf.jpg" referrerpolicy="no-referrer">
+
+<strong>b76b41dd80edfe07da50fef6db069776_720.jpg</strong> (194.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 11:09 上传
+
+*****
+
+####  我有一个朋友  
+##### 5430#       发表于 2025-1-1 11:10
+
+被补完了...
+
+*****
+
+####  山ノ内花音  
+##### 5431#       发表于 2025-1-1 11:11
+
+三个笑着的 都不正常<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  kivz  
+##### 5432#       发表于 2025-1-1 11:12
+
+玩乐队好开心<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+等了一年，还得躲着剧透……明天终于能看了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 5433#       发表于 2025-1-1 11:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我可以期待一手彻底黑化的祥子吗？这笑容有点哈人了
+
+*****
+
+####  桜庭千景  
+##### 5434#       发表于 2025-1-1 11:16
+
+感觉好害怕，别告诉我祥子才是最黑的那个<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 5435#       发表于 2025-1-1 11:16
+
+队友都是鬼图就自己不是，心机大祥屋檐了
+
+*****
+
+####  CCCTHUN  
+##### 5436#       发表于 2025-1-1 11:18
+
+再见了，所有的少女乐队(
+
+*****
+
+####  黑夜落叶秋天  
+##### 5437#       发表于 2025-1-1 11:19
+
+祥子这笑 要么是释怀 要么是崩坏 总之特别不安全
+
+*****
+
+####  山ノ内花音  
+##### 5438#       发表于 2025-1-1 11:23
+
+<img src="https://img.saraba1st.com/forum/202501/01/112323xxhobcl4vhdzb14g.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1078.jpeg</strong> (303.48 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-1 11:23 上传
+
+*****
+
+####  rushsong  
+##### 5439#       发表于 2025-1-1 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67077731&amp;ptid=2208921" target="_blank">桜庭千景 发表于 2025-1-1 11:16</a>
+感觉好害怕，别告诉我祥子才是最黑的那个</blockquote>
+那肯定啊，你忘了op有一个画面是祥子抚摸镜子露出boss般的微笑吗
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  一心而用  
+##### 5440#       发表于 2025-1-1 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67077752&amp;ptid=2208921" target="_blank">CCCTHUN 发表于 2025-1-1 11:18</a>
+再见了，所有的少女乐队(</blockquote>
+这个是吧
+<img src="https://p.sda1.dev/21/8a89f43a9c54dde375d3bf7c4623201d/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  IWS2000  
+##### 5441#       发表于 2025-1-1 11:34
+
+美丽的精神状态
+<img src="https://p.sda1.dev/21/6fb44d65f243e7704bce2e7eaa354302/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 5442#       发表于 2025-1-1 11:34
+
+ 本帖最后由 山ノ内花音 于 2025-1-1 11:35 编辑 
+
+有点像mortis
+
+*****
+
+####  一心而用  
+##### 5443#       发表于 2025-1-1 11:34
+
+如果是mygo
+<img src="https://p.sda1.dev/21/b6deaf09907005bac6c357ff74cb9a39/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/ab01f2b86d13f2c33cb55fb1b4f1dd6c/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/df6f50fd6834c4397f43b227a14758f9/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/c381bb0358a76d7f7c4424ae016d92b4/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/17484e7035eb0d3e2401d42772017536/image.jpg" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| IWS2000| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  一心而用  
+##### 5444#       发表于 2025-1-1 11:42
+
+ 本帖最后由 一心而用 于 2025-1-1 11:43 编辑 
+
+lyy老师昨天的图：
+<img src="https://p.sda1.dev/21/47a589b0a7e122ebe59241cd4b26c112/image.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/21/4f1bffd5f548170d99b953356c0a17d0/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  IWS2000  
+##### 5445#       发表于 2025-1-1 12:01
+
+<img src="https://p.sda1.dev/21/f66d70c2ef219a2653c4300fab2748d9/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/fdcd1e91d23de0d421425c00a3b3551e/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/c908c2b8581d3060b9446884bc709774/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/2663af782027547eea5422dd8844f3e5/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/37815cf07c4e24a81c1c333bdc618f4a/image.jpg" referrerpolicy="no-referrer">
+丰川祥子携Ave Mujica祝各位同好2025年也是kirakira dokidoki！♡＾▽＾♡
+

@@ -284,3 +284,403 @@
 
 只看变身后的形态 喜欢金发碧眼的那位，结合人间体的话 综合还是紫色的最得我心   
 
+
+*****
+
+####  hgcg-ix  
+##### 180#       发表于 2024-12-31 14:03
+
+ 本帖最后由 hgcg-ix 于 2024-12-31 14:09 编辑 
+
+<img src="https://p.sda1.dev/21/47f75e28b71d26d8b1f9134ac541471d/IMG_CMP_206272359.jpeg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/21/11ad1fbfab5265de8defcb41bcf6f162/img-d696f629a4b66de50e1a652859047485.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  没有爱就看不见  
+##### 181#       发表于 2024-12-31 14:14
+
+啊卧槽怎么真的是加藤阳一
+
+*****
+
+####  双菜  
+##### 182#       发表于 2024-12-31 14:15
+
+草，黑白追加是不是就是两只**变身
+
+*****
+
+####  jaewoongh_  
+##### 183#       发表于 2024-12-31 14:18
+
+千万别再是高桥麻树了……导演系构让我重新燃起了希望
+
+*****
+
+####  宅音  
+##### 184#       发表于 2024-12-31 14:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">人间体还是有点接受不了，都爱豆了能不能潮一些
+
+*****
+
+####  pokemon最爱  
+##### 185#       发表于 2024-12-31 14:21
+
+继拉比琳之后米米也转正了，这不得在剧场版安排一波派对组回归玩梗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 186#       发表于 2024-12-31 14:23
+
+粉主是汪Q的闪耀兔子，又一个转正
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  jaewoongh_  
+##### 187#       发表于 2024-12-31 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67070893&amp;ptid=2208663" target="_blank">starring 发表于 2024-12-31 14:23</a>
+
+粉主是汪Q的闪耀兔子，又一个转正
+
+—— 来自 鹅球 v3.3.96</blockquote>
+
+也配过同班同学
+
+<img src="https://img.saraba1st.com/forum/202412/31/144547pgb29q9dmswot2em.png" referrerpolicy="no-referrer">
+
+<strong>14DF6B3EB92F7A4607513F48F440C5D0.png</strong> (584.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 14:45 上传
+
+*****
+
+####  粉儿alice  
+##### 188#       发表于 2024-12-31 15:07
+
+今千秋终于当上q娃tv监督了 快充剧场版也十年了
+加藤难说 骗钱大师百万和闪耀 两个极端例子 
+
+声优没有问题 路人妖精转正的 又来两个骗钱大师
+
+现在看p是谁了
+
+*****
+
+####  谁的无聊中  
+##### 189#       发表于 2024-12-31 15:10
+
+<blockquote>粉儿alice 发表于 2024-12-31 15:07
+今千秋终于当上q娃tv监督了 快充剧场版也十年了
+
+加藤难说 骗钱大师百万和闪耀 两个极端例子 
+</blockquote>
+加藤阳一的代表作是偶像活动系列，应该不会有问题的。
+
+*****
+
+####  粉儿alice  
+##### 190#       发表于 2024-12-31 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67071298&amp;ptid=2208663" target="_blank">谁的无聊中 发表于 2024-12-31 15:10</a>
+加藤阳一的代表作是偶像活动系列，应该不会有问题的。</blockquote>
+真论剧情来说 《偶像活动》整个系列拿得出手就无印第一季 后面都是辣鸡
+
+*****
+
+####  AngraRabbitP  
+##### 191#       发表于 2024-12-31 15:39
+
+高森p转正了，这下不得不看了
+
+*****
+
+####  没有爱就看不见  
+##### 192#       发表于 2024-12-31 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67071549&amp;ptid=2208663" target="_blank">粉儿alice 发表于 2024-12-31 15:30</a>
+
+真论剧情来说 《偶像活动》整个系列拿得出手就无印第一季 后面都是辣鸡</blockquote>
+这个观点会不会有点太激进了
+
+*****
+
+####  cmyk1234  
+##### 193#       发表于 2024-12-31 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67071272&amp;ptid=2208663" target="_blank">粉儿alice 发表于 2024-12-31 15:07</a>
+今千秋终于当上q娃tv监督了 快充剧场版也十年了
+加藤难说 骗钱大师百万和闪耀 两个极端例子 </blockquote>
+加藤阳一干过数码宝贝应用兽的主编剧，在2018-2023年期间的爆钓BarHunter动画（万代、东映）、决斗大师（威世智、Brain's Base）动画、妖怪手表动画（Level-5、OLM）一直带井上亚树子写剧本，2025年双开魔神创造传主编剧和偶像q娃主编剧。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  himfsz  
+##### 194#       发表于 2024-12-31 17:04
+
+目前公布的情报都中规中矩吧，但是我现在的心态是只要有肉搏战就行了，今年的所谓追逐戏真是无聊得都开始反思甜点的甩奶油战斗其实都不错了，明明小雪的野性解放肉搏在剧中是要被批判的丑恶行为，但却画得那么帅，希望是因为staff都很不甘心吧，那么明年要爆发了吗？
+
+*****
+
+####  新HGCG  
+##### 195#       发表于 2024-12-31 17:22
+
+粉红配过的偶像
+<img src="https://p.sda1.dev/21/fe6d739933ef6cddcecf82e14ea92b6e/image.png" referrerpolicy="no-referrer">
+
+蓝配过的偶像
+<img src="https://p.sda1.dev/21/85f1f3e1b15abca91d075384ca3ac281/image.png" referrerpolicy="no-referrer">
+
+紫配过的偶像
+<img src="https://p.sda1.dev/21/975d8bb4460dd377c5d528eb442ab175/image.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AngraRabbitP  
+##### 196#       发表于 2024-12-31 19:24
+
+高桥还有个马场木实呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  leleq  
+##### 197#       发表于 2024-12-31 19:38
+
+加藤这种就是标准的看人下菜货色，导演要求高一点就认真一点，没要求就水，属于那种影子脚本，总体要看今千秋和p怎么搞了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  紫吹兰  
+##### 198#       发表于 2024-12-31 19:50
+
+偶活一是少有的全年无灌水环环相扣的年番，当然这里面也有不小的因素是作为第一部准备时间很充足。
+
+而连播的偶活二其实就是正常年番化，既有独角兽的分手神回，也有不少灌水回来拖进度。
+
+偶活三四则是明显的摆烂，除了少数集数能看到制作组的热情或者情怀之外，大部分都是在程式化地拖时间，很多集数对观众和制作组可能都是煎熬。
+
+至于后面就和加藤阳一没关系了。
+
+*****
+
+####  cmyk1234  
+##### 199#       发表于 2024-12-31 19:51
+
+ 本帖最后由 cmyk1234 于 2024-12-31 20:08 编辑 
+
+今年井上亚树子主业在第一战队豪兽者，会不会写几集偶像q娃剧本？
+
+又或者看加藤阳一写超级战队
+
+
+*****
+
+####  hgcg-ix  
+##### 180#       发表于 2024-12-31 14:03
+
+ 本帖最后由 hgcg-ix 于 2024-12-31 14:09 编辑 
+
+<img src="https://p.sda1.dev/21/47f75e28b71d26d8b1f9134ac541471d/IMG_CMP_206272359.jpeg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/21/11ad1fbfab5265de8defcb41bcf6f162/img-d696f629a4b66de50e1a652859047485.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  没有爱就看不见  
+##### 181#       发表于 2024-12-31 14:14
+
+啊卧槽怎么真的是加藤阳一
+
+*****
+
+####  双菜  
+##### 182#       发表于 2024-12-31 14:15
+
+草，黑白追加是不是就是两只**变身
+
+*****
+
+####  jaewoongh_  
+##### 183#       发表于 2024-12-31 14:18
+
+千万别再是高桥麻树了……导演系构让我重新燃起了希望
+
+*****
+
+####  宅音  
+##### 184#       发表于 2024-12-31 14:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">人间体还是有点接受不了，都爱豆了能不能潮一些
+
+*****
+
+####  pokemon最爱  
+##### 185#       发表于 2024-12-31 14:21
+
+继拉比琳之后米米也转正了，这不得在剧场版安排一波派对组回归玩梗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 186#       发表于 2024-12-31 14:23
+
+粉主是汪Q的闪耀兔子，又一个转正
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  jaewoongh_  
+##### 187#       发表于 2024-12-31 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67070893&amp;ptid=2208663" target="_blank">starring 发表于 2024-12-31 14:23</a>
+
+粉主是汪Q的闪耀兔子，又一个转正
+
+—— 来自 鹅球 v3.3.96</blockquote>
+
+也配过同班同学
+
+<img src="https://img.saraba1st.com/forum/202412/31/144547pgb29q9dmswot2em.png" referrerpolicy="no-referrer">
+
+<strong>14DF6B3EB92F7A4607513F48F440C5D0.png</strong> (584.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 14:45 上传
+
+*****
+
+####  粉儿alice  
+##### 188#       发表于 2024-12-31 15:07
+
+今千秋终于当上q娃tv监督了 快充剧场版也十年了
+加藤难说 骗钱大师百万和闪耀 两个极端例子 
+
+声优没有问题 路人妖精转正的 又来两个骗钱大师
+
+现在看p是谁了
+
+*****
+
+####  谁的无聊中  
+##### 189#       发表于 2024-12-31 15:10
+
+<blockquote>粉儿alice 发表于 2024-12-31 15:07
+今千秋终于当上q娃tv监督了 快充剧场版也十年了
+
+加藤难说 骗钱大师百万和闪耀 两个极端例子 
+</blockquote>
+加藤阳一的代表作是偶像活动系列，应该不会有问题的。
+
+*****
+
+####  粉儿alice  
+##### 190#       发表于 2024-12-31 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67071298&amp;ptid=2208663" target="_blank">谁的无聊中 发表于 2024-12-31 15:10</a>
+加藤阳一的代表作是偶像活动系列，应该不会有问题的。</blockquote>
+真论剧情来说 《偶像活动》整个系列拿得出手就无印第一季 后面都是辣鸡
+
+*****
+
+####  AngraRabbitP  
+##### 191#       发表于 2024-12-31 15:39
+
+高森p转正了，这下不得不看了
+
+*****
+
+####  没有爱就看不见  
+##### 192#       发表于 2024-12-31 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67071549&amp;ptid=2208663" target="_blank">粉儿alice 发表于 2024-12-31 15:30</a>
+
+真论剧情来说 《偶像活动》整个系列拿得出手就无印第一季 后面都是辣鸡</blockquote>
+这个观点会不会有点太激进了
+
+*****
+
+####  cmyk1234  
+##### 193#       发表于 2024-12-31 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67071272&amp;ptid=2208663" target="_blank">粉儿alice 发表于 2024-12-31 15:07</a>
+今千秋终于当上q娃tv监督了 快充剧场版也十年了
+加藤难说 骗钱大师百万和闪耀 两个极端例子 </blockquote>
+加藤阳一干过数码宝贝应用兽的主编剧，在2018-2023年期间的爆钓BarHunter动画（万代、东映）、决斗大师（威世智、Brain's Base）动画、妖怪手表动画（Level-5、OLM）一直带井上亚树子写剧本，2025年双开魔神创造传主编剧和偶像q娃主编剧。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  himfsz  
+##### 194#       发表于 2024-12-31 17:04
+
+目前公布的情报都中规中矩吧，但是我现在的心态是只要有肉搏战就行了，今年的所谓追逐戏真是无聊得都开始反思甜点的甩奶油战斗其实都不错了，明明小雪的野性解放肉搏在剧中是要被批判的丑恶行为，但却画得那么帅，希望是因为staff都很不甘心吧，那么明年要爆发了吗？
+
+*****
+
+####  新HGCG  
+##### 195#       发表于 2024-12-31 17:22
+
+粉红配过的偶像
+<img src="https://p.sda1.dev/21/fe6d739933ef6cddcecf82e14ea92b6e/image.png" referrerpolicy="no-referrer">
+
+蓝配过的偶像
+<img src="https://p.sda1.dev/21/85f1f3e1b15abca91d075384ca3ac281/image.png" referrerpolicy="no-referrer">
+
+紫配过的偶像
+<img src="https://p.sda1.dev/21/975d8bb4460dd377c5d528eb442ab175/image.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AngraRabbitP  
+##### 196#       发表于 2024-12-31 19:24
+
+高桥还有个马场木实呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  leleq  
+##### 197#       发表于 2024-12-31 19:38
+
+加藤这种就是标准的看人下菜货色，导演要求高一点就认真一点，没要求就水，属于那种影子脚本，总体要看今千秋和p怎么搞了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  紫吹兰  
+##### 198#       发表于 2024-12-31 19:50
+
+偶活一是少有的全年无灌水环环相扣的年番，当然这里面也有不小的因素是作为第一部准备时间很充足。
+
+而连播的偶活二其实就是正常年番化，既有独角兽的分手神回，也有不少灌水回来拖进度。
+
+偶活三四则是明显的摆烂，除了少数集数能看到制作组的热情或者情怀之外，大部分都是在程式化地拖时间，很多集数对观众和制作组可能都是煎熬。
+
+至于后面就和加藤阳一没关系了。
+
+*****
+
+####  cmyk1234  
+##### 199#       发表于 2024-12-31 19:51
+
+ 本帖最后由 cmyk1234 于 2024-12-31 20:08 编辑 
+
+今年井上亚树子主业在第一战队豪兽者，会不会写几集偶像q娃剧本？
+
+又或者看加藤阳一写超级战队
+

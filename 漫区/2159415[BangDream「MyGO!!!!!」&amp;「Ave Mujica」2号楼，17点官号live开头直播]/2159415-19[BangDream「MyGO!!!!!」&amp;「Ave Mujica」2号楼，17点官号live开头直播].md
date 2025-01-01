@@ -1797,3 +1797,339 @@ SOYO现在的画风再结合漫画应该坐实官方就是有意往16岁离婚�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  CyDiablo  
+##### 26783#       发表于 2024-12-31 10:56
+
+官号喜来乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/61ce3d78f8fc46a27a91a9eb8ffd1897/Image_255216316518827.jpg" referrerpolicy="no-referrer">
+以及我们邦猫有点多了（少个大喵）
+<img src="https://p.sda1.dev/21/62d4ea527b1e127c7abd4e7f70a798d9/Image_254130011345762.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  CyDiablo  
+##### 26784#       发表于 2024-12-31 11:04
+
+不是哥们，真有东西啊<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/630de50a825b1e08a96c2b846add1ca5/Image_255745627206781.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  紫吹兰  
+##### 26785#         楼主| 发表于 2024-12-31 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67069241&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2024-12-31 11:04</a>
+
+不是哥们，真有东西啊</blockquote>
+蓄意还是戒律下坡？进入了八奇领域<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  CyDiablo  
+##### 26786#       发表于 2024-12-31 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67069500&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-12-31 11:28</a>
+蓄意还是戒律下坡？进入了八奇领域</blockquote>
+现在看起来应该是蓄意为之
+
+*****
+
+####  CyDiablo  
+##### 26787#       发表于 2024-12-31 13:07
+
+[★2024年度员工个人总结报告★](https://b23.tv/1TKf1fA)
+
+这辈子就是被e和冲榜害了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+明年也要继续玩邦邦<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/848f17067a6ef52a31b3a85cb85124ae/IMG_20241231_130528.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  isational  
+##### 26788#       发表于 2024-12-31 13:30
+
+问问s1邦群有吗，没找到<img src="https://static.saraba1st.com/image/smiley/carton2017/427.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ReginaldMorgan  
+##### 26789#       发表于 2024-12-31 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67069500&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-12-31 11:28</a>
+蓄意还是戒律下坡？进入了八奇领域</blockquote>
+道歉的时候没有第一时间删除就说明不是意外了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+*****
+
+####  织部琴音  
+##### 26790#       发表于 2024-12-31 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67070525&amp;ptid=2159415" target="_blank">isational 发表于 2024-12-31 13:30</a>
+
+问问s1邦群有吗，没找到</blockquote>
+查看一下私信
+
+*****
+
+####  月島まりな  
+##### 26791#       发表于 2024-12-31 13:46
+
+s1邦群并非邦群
+
+*****
+
+####  isational  
+##### 26792#       发表于 2024-12-31 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67070587&amp;ptid=2159415" target="_blank">织部琴音 发表于 2024-12-31 13:38</a>
+
+查看一下私信</blockquote>
+谢谢
+
+*****
+
+####  footmanpon  
+##### 26793#       发表于 2024-12-31 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67007700&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2024-12-24 19:44</a>
+
+这边店员和我说大概率不会补了，给了一个50块钱的赔偿方案全完啦，这真是我见过最烂的联动 ...</blockquote>
+今天去罗森的时候店员和我提了下实在不行就打罗森的投诉电话试试，说上半年哪个联动有一个顾客也是想兑换什么东西，最后靠打投诉电话解决的，具体号码是罗森小票最下方一个400开头的，不知道是否有地区区别。因为我只积点了一个，目前处于考虑有没有必要的犹豫状态，你兑了五个一套的话，也许可以考虑死马当成活马医一下<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ghostpia  
+##### 26794#       发表于 2024-12-31 20:24
+
+ 本帖最后由 ghostpia 于 2024-12-31 20:59 编辑 
+
+啊发错楼了啊 编辑编辑....
+
+*****
+
+####  ghostpia  
+##### 26795#       发表于 2024-12-31 20:27
+
+ 本帖最后由 ghostpia 于 2024-12-31 20:59 编辑 
+
+同上同上
+
+*****
+
+####  紫吹兰  
+##### 26796#         楼主| 发表于 2024-12-31 21:09
+
+ 本帖最后由 紫吹兰 于 2024-12-31 21:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67073785&amp;ptid=2159415" target="_blank">ghostpia 发表于 2024-12-31 20:24</a>
+
+排球那对姛...</blockquote>
+没事，排球那对应该还比较低调，倒是花路经常想要在全校面前秀恩爱
+
+*****
+
+####  紫吹兰  
+##### 26797#         楼主| 发表于 2024-12-31 22:21
+
+【【立石凛】读评论！运营是大叔吗？上海live的感想？-哔哩哔哩】 https://bili2233.cn/hHod0bx
+
+立石凛的年终b站问答
+
+*****
+
+####  月島まりな  
+##### 26798#       发表于 2024-12-31 23:37
+
+夢ノ結唱 新年贺图
+<img src="https://p.sda1.dev/21/af82119297f623bcac19a63b5c1656ae/image.png" referrerpolicy="no-referrer">
+[https://x.com/yumenokessho/status/1874108286506553793](https://x.com/yumenokessho/status/1874108286506553793)
+
+*****
+
+####  CyDiablo  
+##### 26799#       发表于 2025-1-1 09:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67073668&amp;ptid=2159415" target="_blank">footmanpon 发表于 2024-12-31 20:05</a>
+今天去罗森的时候店员和我提了下实在不行就打罗森的投诉电话试试，说上半年哪个联动有一个顾客也是想兑换 ...</blockquote>
+骚扰了几天客服，本来今天想按你说的打电话试试，结果早上一觉醒来那边店员和我说东西到了，不知道从哪里翻出来的，很神秘<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">打算下午去拿
+
+*****
+
+####  footmanpon  
+##### 26800#       发表于 2025-1-1 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67077159&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2025-1-1 09:15</a>
+
+骚扰了几天客服，本来今天想按你说的打电话试试，结果早上一觉醒来那边店员和我说东西到了，不知道从哪里 ...</blockquote>
+哇，恭喜<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  CyDiablo  
+##### 26783#       发表于 2024-12-31 10:56
+
+官号喜来乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/61ce3d78f8fc46a27a91a9eb8ffd1897/Image_255216316518827.jpg" referrerpolicy="no-referrer">
+以及我们邦猫有点多了（少个大喵）
+<img src="https://p.sda1.dev/21/62d4ea527b1e127c7abd4e7f70a798d9/Image_254130011345762.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  CyDiablo  
+##### 26784#       发表于 2024-12-31 11:04
+
+不是哥们，真有东西啊<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/630de50a825b1e08a96c2b846add1ca5/Image_255745627206781.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  紫吹兰  
+##### 26785#         楼主| 发表于 2024-12-31 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67069241&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2024-12-31 11:04</a>
+
+不是哥们，真有东西啊</blockquote>
+蓄意还是戒律下坡？进入了八奇领域<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  CyDiablo  
+##### 26786#       发表于 2024-12-31 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67069500&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-12-31 11:28</a>
+蓄意还是戒律下坡？进入了八奇领域</blockquote>
+现在看起来应该是蓄意为之
+
+*****
+
+####  CyDiablo  
+##### 26787#       发表于 2024-12-31 13:07
+
+[★2024年度员工个人总结报告★](https://b23.tv/1TKf1fA)
+
+这辈子就是被e和冲榜害了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+明年也要继续玩邦邦<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/848f17067a6ef52a31b3a85cb85124ae/IMG_20241231_130528.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  isational  
+##### 26788#       发表于 2024-12-31 13:30
+
+问问s1邦群有吗，没找到<img src="https://static.saraba1st.com/image/smiley/carton2017/427.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ReginaldMorgan  
+##### 26789#       发表于 2024-12-31 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67069500&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-12-31 11:28</a>
+蓄意还是戒律下坡？进入了八奇领域</blockquote>
+道歉的时候没有第一时间删除就说明不是意外了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+*****
+
+####  织部琴音  
+##### 26790#       发表于 2024-12-31 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67070525&amp;ptid=2159415" target="_blank">isational 发表于 2024-12-31 13:30</a>
+
+问问s1邦群有吗，没找到</blockquote>
+查看一下私信
+
+*****
+
+####  月島まりな  
+##### 26791#       发表于 2024-12-31 13:46
+
+s1邦群并非邦群
+
+*****
+
+####  isational  
+##### 26792#       发表于 2024-12-31 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67070587&amp;ptid=2159415" target="_blank">织部琴音 发表于 2024-12-31 13:38</a>
+
+查看一下私信</blockquote>
+谢谢
+
+*****
+
+####  footmanpon  
+##### 26793#       发表于 2024-12-31 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67007700&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2024-12-24 19:44</a>
+
+这边店员和我说大概率不会补了，给了一个50块钱的赔偿方案全完啦，这真是我见过最烂的联动 ...</blockquote>
+今天去罗森的时候店员和我提了下实在不行就打罗森的投诉电话试试，说上半年哪个联动有一个顾客也是想兑换什么东西，最后靠打投诉电话解决的，具体号码是罗森小票最下方一个400开头的，不知道是否有地区区别。因为我只积点了一个，目前处于考虑有没有必要的犹豫状态，你兑了五个一套的话，也许可以考虑死马当成活马医一下<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ghostpia  
+##### 26794#       发表于 2024-12-31 20:24
+
+ 本帖最后由 ghostpia 于 2024-12-31 20:59 编辑 
+
+啊发错楼了啊 编辑编辑....
+
+*****
+
+####  ghostpia  
+##### 26795#       发表于 2024-12-31 20:27
+
+ 本帖最后由 ghostpia 于 2024-12-31 20:59 编辑 
+
+同上同上
+
+*****
+
+####  紫吹兰  
+##### 26796#         楼主| 发表于 2024-12-31 21:09
+
+ 本帖最后由 紫吹兰 于 2024-12-31 21:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67073785&amp;ptid=2159415" target="_blank">ghostpia 发表于 2024-12-31 20:24</a>
+
+排球那对姛...</blockquote>
+没事，排球那对应该还比较低调，倒是花路经常想要在全校面前秀恩爱
+
+*****
+
+####  紫吹兰  
+##### 26797#         楼主| 发表于 2024-12-31 22:21
+
+【【立石凛】读评论！运营是大叔吗？上海live的感想？-哔哩哔哩】 https://bili2233.cn/hHod0bx
+
+立石凛的年终b站问答
+
+*****
+
+####  月島まりな  
+##### 26798#       发表于 2024-12-31 23:37
+
+夢ノ結唱 新年贺图
+<img src="https://p.sda1.dev/21/af82119297f623bcac19a63b5c1656ae/image.png" referrerpolicy="no-referrer">
+[https://x.com/yumenokessho/status/1874108286506553793](https://x.com/yumenokessho/status/1874108286506553793)
+
+*****
+
+####  CyDiablo  
+##### 26799#       发表于 2025-1-1 09:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67073668&amp;ptid=2159415" target="_blank">footmanpon 发表于 2024-12-31 20:05</a>
+今天去罗森的时候店员和我提了下实在不行就打罗森的投诉电话试试，说上半年哪个联动有一个顾客也是想兑换 ...</blockquote>
+骚扰了几天客服，本来今天想按你说的打电话试试，结果早上一觉醒来那边店员和我说东西到了，不知道从哪里翻出来的，很神秘<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">打算下午去拿
+
+*****
+
+####  footmanpon  
+##### 26800#       发表于 2025-1-1 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67077159&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2025-1-1 09:15</a>
+
+骚扰了几天客服，本来今天想按你说的打电话试试，结果早上一觉醒来那边店员和我说东西到了，不知道从哪里 ...</blockquote>
+哇，恭喜<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

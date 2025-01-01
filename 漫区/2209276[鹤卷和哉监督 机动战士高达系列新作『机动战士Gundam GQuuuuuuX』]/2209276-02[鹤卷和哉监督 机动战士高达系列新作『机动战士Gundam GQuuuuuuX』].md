@@ -2071,3 +2071,2835 @@ DR画的同人是GM，这张图是和红高达图一起流出的疑似情报。
 
 反正都是虎逼UC了不如整点更大的活，比如戴肯没死
 
+
+*****
+
+####  RE㐅ia  
+##### 1665#       发表于 2024-12-30 22:39
+
+ 本帖最后由 RE㐅ia 于 2024-12-30 22:53 编辑 
+
+想了想为啥要强调主武器是热能斧。热能武器优于光剑的场合无非就是水下战。加上女主这想要去看海的设定，怕不是后期就有一场大战是在水下进行的。光束武器在水下威力不够看，女主名正言顺地掏出热能斧ko对面。
+
+<img src="https://img.saraba1st.com/forum/202412/30/225006smo0no91z8z7986h.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>6E11DB39-4C63-4068-8A3E-B2ED41287D8F.jpeg</strong> (368.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-30 22:50 上传
+
+*****
+
+####  Grahamlinks  
+##### 1666#       发表于 2024-12-30 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67000948&amp;ptid=2209276" target="_blank">王留美 发表于 2024-12-23 22:17</a>
+
+看看日TV的档期就好了
+
+现在在播的动画有七档</blockquote>
+NTV周六深夜这个A级队伍是半年啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">（顺便这个片也是代便的）目前的情况就是，如果NTV不开新的档期那么GQX最快明年七月上（预测接药屋）
+
+*****
+
+####  王留美  
+##### 1667#       发表于 2024-12-30 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67065867&amp;ptid=2209276" target="_blank">Grahamlinks 发表于 2024-12-30 23:26</a>
+ NTV周六深夜这个A级队伍是半年啊（顺便这个片也是代便的）目前的情况就是，如果NTV不开新的档期那么GQX最 ...</blockquote>
+什么厕纸都能做半年？中长篇文艺复兴了？
+
+AnichU档那两个时间段的后续有消息吗？
+
+*****
+
+####  王留美  
+##### 1668#       发表于 2024-12-30 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67065603&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2024-12-30 22:39</a>
+ 想了想为啥要强调主武器是热能斧。热能武器优于光剑的场合无非就是水下战。加上女主这想要去看海的设定，怕 ...</blockquote>
+热能斧的最大意义就是暗示UC世界观
+和PV开场女主年殖民卫星参数以及浮游炮大特写是一个意思
+
+警察扎古反而没那么直接，毕竟不是一模一样
+
+*****
+
+####  RE㐅ia  
+##### 1669#       发表于 2024-12-31 00:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67065980&amp;ptid=2209276" target="_blank">王留美 发表于 2024-12-30 23:52</a>
+
+热能斧的最大意义就是暗示UC世界观
+
+和PV开场女主年殖民卫星参数以及浮游炮大特写是一个意思</blockquote>
+宣发阶段可以这么说，但是你剧情里等一切都公布了实际上用的还是这玩意。
+
+*****
+
+####  Toby_dak  
+##### 1670#       发表于 2024-12-31 00:51
+
+热能斧怎么了？0087的Z高里的高渣古还不是用着热能斧？出现在0085有问题？
+又不是某个Z高的拙劣仿制品里，挂羊头卖狗肉的挂名渣古。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  刺客ares  
+##### 1671#       发表于 2024-12-31 01:00
+
+热能斧是从警察扎古那夺来的吧
+
+但是pv里和红高达空战的时候手上又没有武器了
+
+已经附送进hg配件了，剧中怎么都要用一段时间
+
+*****
+
+####  stmule  
+##### 1672#       发表于 2024-12-31 02:08
+
+pv里女主纠结了几次真正的天空，这不会是marcoss f吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  迷路的石头  
+##### 1673#       发表于 2024-12-31 07:58
+
+<blockquote>oi99o 发表于 2024-12-29 16:43
+原来让叶是姓吗，我一直以为天手是姓</blockquote>
+高达里的确是把东方人的姓也放后面，比如
+
+士郎·天田
+
+宏·浦木
+
+吉良·大和
+
+*****
+
+####  王留美  
+##### 1674#       发表于 2024-12-31 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67067836&amp;ptid=2209276" target="_blank">迷路的石头 发表于 2024-12-31 07:58</a>
+
+高达里的确是把东方人的姓也放后面，比如
+
+士郎·天田
+
+宏·浦木</blockquote>
+都不用扯这些，看看安室零就好了
+
+*****
+
+####  Grahamlinks  
+##### 1675#       发表于 2024-12-31 10:14
+
+ 本帖最后由 Grahamlinks 于 2024-12-31 10:16 编辑 
+<blockquote>王留美 发表于 2024-12-30 23:49
+什么厕纸都能做半年？中长篇文艺复兴了？
+
+AnichU档那两个时间段的后续有消息吗？ ...</blockquote>
+
+这部异世界原作不是很长，可能代便想着一次性直接做完吧，而且代便这两年对异世界很阔绰的，很多都是起手就半年的企划（只不过这部没分割是连播）
+
+不用关注anichu，gqx是日本电视台系列全网联播，anichu不是全网
+
+*****
+
+####  王留美  
+##### 1676#       发表于 2024-12-31 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67068689&amp;ptid=2209276" target="_blank">Grahamlinks 发表于 2024-12-31 10:14</a>
+
+这部异世界原作不是很长，可能代便想着一次性直接做完吧，而且代便这两年对异世界很阔绰的，很多都是起手 ...</blockquote>
+那就GG了，乖乖等7月吧
+
+但是1月大宣发然后7月才上也太神奇了，对比下来当初水魔一二期之间插闪哈TBNT都不算谜操作了，搞不懂为什么会这么安排
+
+*****
+
+####  王留美  
+##### 1677#       发表于 2024-12-31 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67064862&amp;ptid=2209276" target="_blank">ティグル 发表于 2024-12-30 20:18</a>
+
+反正都是虎逼UC了不如整点更大的活，比如戴肯没死</blockquote>
+戴肯不死不会开战，前提就不对
+
+包括扎比家老二也是
+
+联邦那边变数太多了不好说，鸡瘟这里看看蓝巴拉尔黑三连卡尔马有没有机会活下来吧
+
+搞不好大猩猩也还是要死的
+
+*****
+
+####  Gysumitka  
+##### 1678#       发表于 2024-12-31 11:35
+
+<img src="https://p.sda1.dev/21/9810883325b3bd77596628518dc0e5c6/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  罥索GFFF  
+##### 1679#       发表于 2024-12-31 13:03
+
+<blockquote>中野梓 发表于 2024-12-29 15:15
+水魔确实是年轻人的第一部高达</blockquote>
+
+泥水的地位会随着时间流逝慢慢变高，也是多亏铁血把高达断代了
+
+*****
+
+####  中野梓  
+##### 1680#       发表于 2024-12-31 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67069553&amp;ptid=2209276" target="_blank">Gysumitka 发表于 2024-12-31 11:35</a></blockquote>
+越看越顺眼
+
+
+*****
+
+####  王留美  
+##### 1681#       发表于 2024-12-31 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67070351&amp;ptid=2209276" target="_blank">罥索GFFF 发表于 2024-12-31 13:03</a>
+ 泥水的地位会随着时间流逝慢慢变高，也是多亏铁血把高达断代了</blockquote>
+坦白说至少在这个数据上铁血的问题不是很大
+铁血是只有3票可UC也就4票
+GTO和闪哈2票以下
+只能说这个时代确实萝卜没人看了，水魔之前敢达的数据还行真就是纯纯在割老登韭菜
+
+反过来说水魔伟大，毋庸置疑
+
+*****
+
+####  RE㐅ia  
+##### 1682#       发表于 2024-12-31 15:32
+
+<blockquote>Gysumitka 发表于 2024-12-31 11:35
+</blockquote>
+还以为胳膊下边的又是什么新型哈罗，原来是肩甲
+
+*****
+
+####  刺客ares  
+##### 1683#       发表于 2024-12-31 17:19
+
+<img src="https://img.saraba1st.com/forum/202412/31/171619urx2ph4loqtrhgaz.png" referrerpolicy="no-referrer">
+
+<strong>1735635627176.png</strong> (54.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 17:16 上传
+
+原来去年就有人想过了，高达版高堡奇人
+
+下面还说拍这个会被冲烂，我看现在大家也没什么过激反应啊，是安魂曲脱敏了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  双菜  
+##### 1684#       发表于 2024-12-31 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67072584&amp;ptid=2209276" target="_blank">刺客ares 发表于 2024-12-31 17:19</a>
+原来去年就有人想过了，高达版高堡奇人
+
+下面还说拍这个会被冲烂，我看现在大家也没什么过激反应啊，是安魂 ...</blockquote>
+已经冲过一轮了，现在要等正片端出来才有第二轮批判
+
+*****
+
+####  真月0  
+##### 1685#       发表于 2024-12-31 17:37
+
+fxs胜利if肯定要干死fxs，吉翁胜利if肯定要干死吉翁，这种肯定比代号妖精复仇安魂曲纯招魂要强一点
+gquuuuuux最后没干吉翁当我没说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王留美  
+##### 1686#       发表于 2024-12-31 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67072584&amp;ptid=2209276" target="_blank">刺客ares 发表于 2024-12-31 17:19</a>
+ 原来去年就有人想过了，高达版高堡奇人 下面还说拍这个会被冲烂，我看现在大家也没什么过激反应啊，是安魂 ...</blockquote>
+本来就没什么大问题啊
+不如说刚爆出世界观的时候那么多神秘发言才让人莫名其妙
+
+假定鸡瘟胜利并不代表鸡瘟就伟光正了
+反过来说即便没有白色恶魔联邦也逆推到所罗门了最后搞出机械降神一般的所罗门冲击正是符合万代或者说UC军武派一贯以来在0079上的立场：骡子和敢达只是战术优势，而联邦本身具有的战略优势足以打败鸡瘟军
+
+*****
+
+####  王留美  
+##### 1687#       发表于 2024-12-31 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67072715&amp;ptid=2209276" target="_blank">真月0 发表于 2024-12-31 17:37</a>
+ fxs胜利if肯定要干死fxs，吉翁胜利if肯定要干死吉翁，这种肯定比代号妖精复仇安魂曲纯招魂要强一点 gquuuuu ...</blockquote>
+都放毒气了加上深蓝配色，怕不是鸡瘟版泰坦斯
+必须狠狠干死
+
+*****
+
+####  刺客ares  
+##### 1688#       发表于 2024-12-31 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67072715&amp;ptid=2209276" target="_blank">真月0 发表于 2024-12-31 17:37</a>
+
+fxs胜利if肯定要干死fxs，吉翁胜利if肯定要干死吉翁，这种肯定比代号妖精复仇安魂曲纯招魂要强一点
+
+gquuuuu ...</blockquote>
+我看有人分析说电影海报让女主坐在报废扎古头上很有象征意义
+
+虽然这条世界线抢到了高达，但扎古在大众眼里还是象征吉翁的机体
+
+主角机打爆扎古就是直指反抗吉翁，所以暂时不用担心**招魂什么的
+
+就是UC这大烂摊子不知道怎么收，凭主角团两台机打爆整个吉翁公国吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+最后就是逃到地球，留个不上不下的结尾，没能改变任何事才容易被喷吧
+
+*****
+
+####  罥索GFFF  
+##### 1689#       发表于 2024-12-31 18:27
+
+  话说蓝毛在官网番位是第三，不如黑毛
+
+  感觉蓝毛的定位不像男主，更像主角的引导者，比如天元突破的卡米拉。红莲螺岩的主驾驶员一开始也是卡米拉。刚好和这里也对上了
+
+*****
+
+####  Gysumitka  
+##### 1690#       发表于 2024-12-31 18:49
+
+机体敌对，年龄也差不多，怎么当引导者<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刺客ares  
+##### 1691#       发表于 2024-12-31 19:08
+
+直接奶吧，异性骡鸭，异性鸡狼，狸猫挑染2.0
+
+还是鹤卷gg一生之痛，性转嗣香
+
+这些都有插在中间的女角色，正好可以把喵安也对上（
+
+*****
+
+####  罥索GFFF  
+##### 1692#       发表于 2024-12-31 19:20
+
+<blockquote>Gysumitka 发表于 2024-12-31 18:49
+机体敌对，年龄也差不多，怎么当引导者</blockquote>
+此事在水星的魔女第二季中已有记载
+
+*****
+
+####  0aleph37  
+##### 1693#       发表于 2024-12-31 19:21
+
+还是像飞跃颠峰里男人祭天？
+
+*****
+
+####  Gysumitka  
+##### 1694#       发表于 2024-12-31 19:24
+
+为什么不是女主把另外两个都宰了，致敬曾经的短片（）反正也有挂饰
+
+*****
+
+####  刺客ares  
+##### 1695#       发表于 2024-12-31 19:26
+
+<blockquote>0aleph37 发表于 2024-12-31 19:21
+还是像飞跃颠峰里男人祭天？</blockquote>
+教练2.0或者牢四2.0那应该就是剧场版直接祭天，死前还得把螃蟹和红高达传给女二（
+
+*****
+
+####  0aleph37  
+##### 1696#       发表于 2024-12-31 19:58
+
+<blockquote>刺客ares 发表于 2024-12-31 19:26
+教练2.0或者牢四2.0那应该就是剧场版直接祭天，死前还得把螃蟹和红高达传给女二（ ...</blockquote>
+那红高达可以和女主机合体吗
+
+*****
+
+####  RE㐅ia  
+##### 1697#       发表于 2024-12-31 20:04
+
+还是不知道尼雅安要怎么样担当起第二主角的身份。虽然米米也不开ms但怎么说都算得上是漩涡中心的人物了。Nyann这边除了除了给女主当黑全世界引路人和生死未卜的家人目前还看不太出来能挖掘的地方。
+
+*****
+
+####  RE㐅ia  
+##### 1698#       发表于 2024-12-31 20:05
+
+<blockquote>刺客ares 发表于 2024-12-31 19:26
+教练2.0或者牢四2.0那应该就是剧场版直接祭天，死前还得把螃蟹和红高达传给女二（ ...</blockquote>
+是饿狼2.0吧，教练好歹是后头才没得（
+
+*****
+
+####  RE㐅ia  
+##### 1699#       发表于 2024-12-31 20:08
+
+<blockquote>刺客ares 发表于 2024-12-31 17:48
+我看有人分析说电影海报让女主坐在报废扎古头上很有象征意义
+
+虽然这条世界线抢到了高达，但扎古在大众眼 ...</blockquote>
+相信官网
+
+<img src="https://img.saraba1st.com/forum/202412/31/200840zxrx4znreyx7q6nk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>040D5B12-ABFC-441A-8460-475CFC0CFB21.jpeg</strong> (152.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 20:08 上传
+
+*****
+
+####  刺客ares  
+##### 1700#       发表于 2024-12-31 20:09
+
+<blockquote>0aleph37 发表于 2024-12-31 19:58
+那红高达可以和女主机合体吗</blockquote>
+直接合体成为高达斯塔然后掏出棒球棒和大钻头打爆汤大基开的紫色拿双枪MA，大吼一声引发精神力事故干烂所有宇宙殖民地，最后12000年后返回地球，落地后被只见过几面的妈妈辈眼镜大叔领回家
+
+遗老表示简直太精彩了，并开除了gqx的高达籍（
+
+*****
+
+####  番茄牛奶  
+##### 1701#       发表于 2024-12-31 20:10
+
+1月份剧场版开播后，会有多少新胶？狗代不会真在憋大招吧<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+*****
+
+####  0aleph37  
+##### 1702#       发表于 2024-12-31 20:21
+
+怎么也得多出点吧。
+
+单开一个UC平行宇宙还不多出一点很有既视感的经典款机体
+
+*****
+
+####  刺客ares  
+##### 1703#       发表于 2024-12-31 20:30
+
+各种被山下育人化的经典UC机体都端上来吧
+
+怎么说都是正作tv，各路产品线少不了，闪哈那种只推两台机的错误必不可能再犯了（
+
+*****
+
+####  赤黑的假面  
+##### 1704#       发表于 2024-12-31 20:42
+
+有一说一，KHARA这种平行宇宙世纪然后WHAT IF有种钢弹粉丝玩票作同人转正的感觉
+
+*****
+
+####  线程召唤使  
+##### 1705#       发表于 2024-12-31 20:48
+
+千万不能被水魔所谓年轻人的第一部高达给骗了，你们要横向比较现在的这代人、最热门的那两三个作品，拿水魔说年轻人喜欢这样的高达之前，一定要先看清楚现在小孩喜欢的“作品”是啥，然后才能去问现在小孩喜欢的“高达作品”。
+
+*****
+
+####  番茄牛奶  
+##### 1706#       发表于 2024-12-31 20:49
+
+小孩:我喜欢不看高达<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  0aleph37  
+##### 1707#       发表于 2024-12-31 20:57
+
+巨大人形机器人对年轻人来说老人臭太重了吧。
+
+特摄棚那边战队不也是在销量下滑吗
+
+*****
+
+####  罥索GFFF  
+##### 1708#       发表于 2024-12-31 21:12
+
+<blockquote>0aleph37 发表于 2024-12-31 20:57
+巨大人形机器人对年轻人来说老人臭太重了吧。
+
+特摄棚那边战队不也是在销量下滑吗 ...</blockquote>
+没有泥水这种作品续命，你高最多再蹦跶个二十几年，系列粉丝平均年龄45的含金量。
+
+*****
+
+####  wasssf  
+##### 1709#       发表于 2024-12-31 21:13
+
+ 本帖最后由 wasssf 于 2024-12-31 21:16 编辑 
+
+我20年前也不是因为喜欢巨大机器人看高达的，机体爱只是我作品爱的泛滥，先喜欢作品再喜欢上顺眼的机体，在此之前我喜欢的机体是魔神英雄传tf之类的，看了种命的2大翅膀但是没能因为这个契机吸引我看动画，后面是直接翻视频网站感兴趣补动画的
+
+*****
+
+####  kisstv22  
+##### 1710#       发表于 2024-12-31 21:15
+
+主要是老登的创作容易有时代局限性，年轻人还真不一定喜欢看
+
+*****
+
+####  罥索GFFF  
+##### 1711#       发表于 2024-12-31 21:20
+
+你高真正赚钱的tv，数不出五部
+
+元祖，seed，水魔，w
+
+其他的，要么不达预期（z，zz，00，倒a）。
+
+要么血亏（v，x，age，g复国，铁血）
+
+驴还属于ova。你高粉丝还以为高达什么大牌子，殊不知是九死一生，家底够厚败的起罢了
+
+*****
+
+####  wasssf  
+##### 1712#       发表于 2024-12-31 21:21
+
+ 本帖最后由 wasssf 于 2024-12-31 21:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67074155&amp;ptid=2209276" target="_blank">罥索GFFF 发表于 2024-12-31 21:20</a>
+
+你高真正赚钱的tv，数不出五部
+
+元祖，seed，水魔，w
+
+其他的，要么不达预期（z，zz，00，倒a）。</blockquote>
+不达预期就是不赚钱这就有点滑坡了，初代到逆袭的夏亚都是大赚的，90年代能有这个水平的也就w，20世纪uc那三部ova也都是赚的，驴也是赚翻的
+
+*****
+
+####  番茄牛奶  
+##### 1713#       发表于 2024-12-31 21:22
+
+现在有单纯靠萝卜火的萝卜番吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刺客ares  
+##### 1714#       发表于 2024-12-31 21:23
+
+声优都说利好考据党了，感觉这作纯老害自嗨吧，没想刻意扩圈，主创平均年龄都得五十岁了。
+
+不过总会有圈外厨厨和豚豚来看并相互圈地的，毕竟你都整两女一男了，最后必然会作品武器化，这回总不能再天降眼镜大叔拉走女主了吧
+
+商业成绩我也不咋看好，胶圈目前没啥好评，先行上影院有股捞一笔保底的味道（
+
+*****
+
+####  罥索GFFF  
+##### 1715#       发表于 2024-12-31 21:25
+
+<blockquote>wasssf 发表于 2024-12-31 21:21
+不达预期就是不赚钱这就有点滑坡了，初代到逆袭的夏亚都是大赚的，90年代能有这个水平的也就w，20世纪uc那 ...</blockquote>
+说的是tv
+
+*****
+
+####  罥索GFFF  
+##### 1716#       发表于 2024-12-31 21:26
+
+<blockquote>wasssf 发表于 2024-12-31 21:21
+不达预期就是不赚钱这就有点滑坡了，初代到逆袭的夏亚都是大赚的，90年代能有这个水平的也就w，20世纪uc那 ...</blockquote>
+按你这说法也只是把zz和z放到赚钱那一行，总体来说不还是不赚钱的多
+
+*****
+
+####  史蒂符  
+##### 1717#       发表于 2024-12-31 21:28
+
+我看的第一部高达是我上小学时在小店里买的g高达dvd，旁边还有印着红色高达的碟片，但是不记得是什么高达了，当时看着蓝白色的那个好像更帅一点就买了武斗传。
+小时候看完真是大受震撼，围绕环保的主题能搭出一个这么庞大的舞台。剧情很曲折，看到师匠去世时也很动容。那时觉得同样是环保一边是熊出没一边是高达，剧情发展和人物塑造差距实在太大了。
+后来再看第二部高达时已经是上高中，刚开始还很不习惯，人物怎么是坐在里面拉操纵杆，这怎么驾驶？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  PascalLefèvre  
+##### 1718#       发表于 2024-12-31 21:28
+
+ 本帖最后由 PascalLefèvre 于 2024-12-31 21:32 编辑 
+
+高达不赚钱要靠泥水续命都来了，tv赚钱指的是靠卖碟片赚钱吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  罥索GFFF  
+##### 1719#       发表于 2024-12-31 21:29
+
+真正的新作还得是日升三组，gqx本质还是新奥新假那一类玩意
+
+*****
+
+####  wasssf  
+##### 1720#       发表于 2024-12-31 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67074197&amp;ptid=2209276" target="_blank">罥索GFFF 发表于 2024-12-31 21:26</a>
+
+按你这说法也只是把zz和z放到赚钱那一行，总体来说不还是不赚钱的多</blockquote>
+但是uc前四作种驴都是能吃十年的
+
+
+*****
+
+####  罥索GFFF  
+##### 1721#       发表于 2024-12-31 21:31
+
+<blockquote>PascalLefèvre 发表于 2024-12-31 21:28
+高达不赚钱要靠泥水续命都来了，tv赚钱指的是靠卖碟片赚钱吗
+
+—— 来自 S1Fun ...</blockquote>
+你高从seed以后开始，首先是00四年不回本，然后age全线爆死，最后铁血干死日五档，足以看出这个系列活这么久纯纯的吃老本，只不过吃的是uc+seed的老本罢了
+
+*****
+
+####  线程召唤使  
+##### 1722#       发表于 2024-12-31 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67074155&amp;ptid=2209276" target="_blank">罥索GFFF 发表于 2024-12-31 21:20</a>
+
+你高真正赚钱的tv，数不出五部
+
+元祖，seed，水魔，w
+
+其他的，要么不达预期（z，zz，00，倒a）。</blockquote>
+认真说九死一生还没到，40岁上下的这一批大概还能当十年胶韭菜，
+
+就是现在20岁这一批，想靠水魔，反正这思路属于看似觉得很懂年轻人实际上，
+
+这里面最大的问题是，水魔这样的作品，没有去回答问题。
+
+*****
+
+####  wasssf  
+##### 1723#       发表于 2024-12-31 21:33
+
+ 本帖最后由 wasssf 于 2024-12-31 21:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67074238&amp;ptid=2209276" target="_blank">线程召唤使 发表于 2024-12-31 21:32</a>
+
+认真说九死一生还没到，40岁上下的这一批大概还能当十年胶韭菜，
+
+就是现在20岁这一批，想靠水魔，反正这 ...</blockquote>
+水魔的完善版本早就有了就是鲁路修，只不过机设不吸引人而已，本质不是新作品，就是所谓类高达作品在动画史的谱系走了20多年到当时的集大成作品，不同于正统高达的新作品的思路还是00铁血这种，不过都失败了
+
+*****
+
+####  kisstv22  
+##### 1724#       发表于 2024-12-31 21:34
+
+这作还是当成老登自嗨作看待吧
+
+*****
+
+####  PascalLefèvre  
+##### 1725#       发表于 2024-12-31 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67074237&amp;ptid=2209276" target="_blank">罥索GFFF 发表于 2024-12-31 21:31</a>
+你高从seed以后开始，首先是00四年不回本，然后age全线爆死，最后铁血干死日五档，足以看出这个系列活这 ...</blockquote>
+问题是这种老ip的赚钱方式不就是吃老本吗，照你这么说eva这种虽然冷饭往死里炒，但是每部票房都不错不算吃老本，高达多出几部不同世界观的作品实验观众胃口的反而叫做半死不活吃老本了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  线程召唤使  
+##### 1726#       发表于 2024-12-31 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67074247&amp;ptid=2209276" target="_blank">wasssf 发表于 2024-12-31 21:33</a>
+
+水魔的完善版本早就有了就是鲁路修，只不过机设不吸引人而已</blockquote>
+比鲁鲁修差远了，鲁鲁修说大了是真正有雄心的作品，说小了是要认真讲个事的作品，你别管后来崩了，最少认真了二十多集也够可以了。
+
+这个就是区别。
+
+*****
+
+####  wasssf  
+##### 1727#       发表于 2024-12-31 21:40
+
+ 本帖最后由 wasssf 于 2024-12-31 21:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67074289&amp;ptid=2209276" target="_blank">线程召唤使 发表于 2024-12-31 21:38</a>
+
+比鲁鲁修差远了，鲁鲁修说大了是真正有雄心的作品，说小了是要认真讲个事的作品，你别管后来崩了，最少认 ...</blockquote>
+后面也不算崩，追求不同，鲁路修算是世界系作品，就，r2前期谍战太长到囚禁的学园被11区观众炎上了，剧场版删掉了，其实完全可以两次东京决战并作一次删去第一次失败和失忆，其实00前十几集也是这种让人不耐烦的，估计都是死亡笔记的影响
+
+*****
+
+####  罥索GFFF  
+##### 1728#       发表于 2024-12-31 21:42
+
+<blockquote>PascalLefèvre 发表于 2024-12-31 21:37
+问题是这种老ip的赚钱方式不就是吃老本吗，照你这么说eva这种虽然冷饭往死里炒，但是每部票房都不错不算 ...</blockquote>
+真正的纯粹实验作只有泥水一部，低成本25集tv无续作，几乎没有什么原定的衍生作。其他多少都能看到点野心的，特别是00
+
+*****
+
+####  PascalLefèvre  
+##### 1729#       发表于 2024-12-31 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67074329&amp;ptid=2209276" target="_blank">罥索GFFF 发表于 2024-12-31 21:42</a>
+真正的纯粹实验作只有泥水一部，低成本25集tv无续作，几乎没有什么原定的衍生作。其他多少都能看到点野心 ...</blockquote>
+有点看不出你到底是在串还是认真的，你觉得是那就是吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  王留美  
+##### 1730#       发表于 2024-12-31 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67073660&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2024-12-31 20:04</a>
+ 还是不知道尼雅安要怎么样担当起第二主角的身份。虽然米米也不开ms但怎么说都算得上是漩涡中心的人物了。Ny ...</blockquote>
+UC的汤小美定位吧
+
+*****
+
+####  刺客ares  
+##### 1731#       发表于 2024-12-31 21:47
+
+00我记得是堆了大资源想要公式复现seed的爆火吧
+
+结果口碑是有了，商业方面相比投入就差些意思了
+
+GQX开的是ifuc而不是新世界观，野心上应该比水魔铁血这种开新世界观的小
+
+*****
+
+####  刺客ares  
+##### 1732#       发表于 2024-12-31 21:48
+
+<blockquote>王留美 发表于 2024-12-31 21:46
+UC的汤小美定位吧</blockquote>
+有没有可能正牌汤小美还活着（
+
+*****
+
+####  kisstv22  
+##### 1733#       发表于 2024-12-31 21:53
+
+只能说商业成绩这种需要天时地利人和，不可能简单复制的
+
+*****
+
+####  王留美  
+##### 1734#       发表于 2024-12-31 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67074363&amp;ptid=2209276" target="_blank">刺客ares 发表于 2024-12-31 21:48</a>
+ 有没有可能正牌汤小美还活着（</blockquote>
+说的是定位，不是具体的那个人
+
+就好比男主很可能是拉拉位或者夏亚位
+
+*****
+
+####  RE㐅ia  
+##### 1735#       发表于 2024-12-31 21:58
+
+<blockquote>王留美 发表于 2024-12-31 21:46
+UC的汤小美定位吧</blockquote>
+汤小美在uc的政治身份地位真的是一个普通的战争难民能比的吗（ 
+
+*****
+
+####  王留美  
+##### 1736#       发表于 2024-12-31 22:04
+
+ 本帖最后由 王留美 于 2024-12-31 22:07 编辑 
+
+反正以BNF内部那个问卷的代表性来看，2010年00剧场版史诗性的溃败之后敢达就是吃存量的IP，GTO TB 闪哈 G复国 BF不管吹的多么好，对圈外人就是近乎毫无影响
+
+水魔不管怎么样至少让新人去接触了，转化率高也好低也罢，都没人接触谈何转换？
+
+*****
+
+####  番茄牛奶  
+##### 1737#       发表于 2024-12-31 22:07
+
+狗代现在，是不是不肯大制作给tv了，就喜欢所谓的以小博大？<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  RE㐅ia  
+##### 1738#       发表于 2024-12-31 22:10
+
+<blockquote>番茄牛奶 发表于 2024-12-31 22:07
+狗代现在，是不是不肯大制作给tv了，就喜欢所谓的以小博大？</blockquote>
+这部怎么说都算得上大制作吧。不出意外会是近十五年视觉上最好的tv
+
+*****
+
+####  wasssf  
+##### 1739#       发表于 2024-12-31 22:11
+
+ 本帖最后由 wasssf 于 2024-12-31 22:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67074482&amp;ptid=2209276" target="_blank">王留美 发表于 2024-12-31 22:04</a>
+
+反正以BNF内部那个问卷的代表性来看，2010年00剧场版史诗性的溃败之后敢达就是吃存量的IP，GTO TB 闪哈 G复 ...</blockquote>
+其实就是从00第一季开始的，这种创作者陶醉其中想让观众在没有娱乐性的闷片花钱的作品怎么可能吸引动画观众，结果就主要是高达迷和之前基本不看动画的人看，问题意识也是空洞的
+
+*****
+
+####  刺客ares  
+##### 1740#       发表于 2024-12-31 22:11
+
+<blockquote>RE㐅ia 发表于 2024-12-31 21:58
+汤小美在uc的政治身份地位真的是一个普通的战争难民能比的吗（</blockquote>
+我猜一个，犁地少尉定位，联邦**家的大小姐，因为联邦战败所以流落到宇宙殖民地，和吉翁出身的牢修对仗，后期开个黑色带金边的ms，三角关系里负责当败犬（
+
+*****
+
+####  番茄牛奶  
+##### 1741#       发表于 2024-12-31 22:12
+
+正片没看到前，不敢说 不好说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  罥索GFFF  
+##### 1742#       发表于 2024-12-31 22:16
+
+<blockquote>番茄牛奶 发表于 2024-12-31 22:12
+正片没看到前，不敢说 不好说</blockquote>
+看这个staff表都知道肯定是高规格
+
+*****
+
+####  kisstv22  
+##### 1743#       发表于 2024-12-31 22:17
+
+日升的产能也不是十年前产能爆炸那会，不出意外不会再有年番高达了，以后想看日升主导的新作tv少说也要再等三年<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刺客ares  
+##### 1744#       发表于 2024-12-31 22:17
+
+ 本帖最后由 刺客ares 于 2024-12-31 22:19 编辑 
+
+这部目前最让人放心的就是制作水平了，视听效果有望冲击千禧年后最佳
+
+拿出eva剧场版实力的七成，过闪哈没问题，能不能过独角兽就要看厨力了
+
+*****
+
+####  wasssf  
+##### 1745#       发表于 2024-12-31 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67074611&amp;ptid=2209276" target="_blank">刺客ares 发表于 2024-12-31 22:17</a>
+
+这部目前最让人放心的就是制作水平了，视听效果有望冲击千禧年后最佳</blockquote>
+看pv这3d怎么挑战z钢弹剧场版和一角驴
+
+*****
+
+####  RE㐅ia  
+##### 1746#       发表于 2024-12-31 22:19
+
+笑死
+
+<img src="https://img.saraba1st.com/forum/202412/31/221932gbgjzlbyj1dpzypl.png" referrerpolicy="no-referrer">
+
+<strong>928E1EBC-D43A-4E55-9139-E7FD0D069B45.png</strong> (463.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 22:19 上传
+
+*****
+
+####  0aleph37  
+##### 1747#       发表于 2024-12-31 22:21
+
+视听效果水魔第零集和PV也不差吧，可惜工期问题太严重
+
+这次gq6ux好歹已经制作完成了，稍稍令人安心
+
+*****
+
+####  番茄牛奶  
+##### 1748#       发表于 2024-12-31 22:25
+
+做完了，能有半年番的量吗，估计是季番？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  线程召唤使  
+##### 1749#       发表于 2024-12-31 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67074482&amp;ptid=2209276" target="_blank">王留美 发表于 2024-12-31 22:04</a>
+
+反正以BNF内部那个问卷的代表性来看，2010年00剧场版史诗性的溃败之后敢达就是吃存量的IP，GTO TB 闪哈 G复 ...</blockquote>
+留美酱，水魔没有解决问题，而且很可能进一步错判。
+
+先说一点00的问题真不只是剧场版的问题。
+
+00就是这一大轮高达丧失志气的起点，口碑商业其实都不太行。
+
+从那之后就开始泄气搞小心思了，
+
+搞搞AGE创战者什么的，也没很成功，然后就不知道怎么办了。
+
+同时期开始，高达以外的世界在发生什么，fate第一炮，两作TV的背后是FGO大火；
+
+巨人开始发力；
+
+电锯到藤本树；
+
+然后就是鬼灭大魔王。
+
+我总结这15年最值得的地方，到底赢下来的，到底赢得年轻人的，还真的就是——勇敢地花钱去认真说故事的作品。
+
+而水魔完全不具备这一点。
+
+当然高达的问题太多了，00失败以后创作上还有没有勇气，萝卜还行不行。
+
+但是现在确实有变化了，光就不再是日升的高达这一点就太值得期待了。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Nautilus1832| + 1|水魔引入的纯粹一泡污|
+
+查看全部评分
+
+*****
+
+####  线程召唤使  
+##### 1750#       发表于 2024-12-31 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67074547&amp;ptid=2209276" target="_blank">wasssf 发表于 2024-12-31 22:11</a>
+
+其实就是从00第一季开始的，这种创作者陶醉其中想让观众在没有娱乐性的闷片花钱的作品怎么可能吸引动画观 ...</blockquote>
+00的问题不能简单认为是娱乐性的问题，缺乏爆点且平庸。
+
+这个怎么说呢，举个例子，鬼灭十九集在小P孩心目封神，那肯定不是说十九集太娱乐了。
+
+*****
+
+####  wasssf  
+##### 1751#       发表于 2024-12-31 22:34
+
+ 本帖最后由 wasssf 于 2024-12-31 22:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67074738&amp;ptid=2209276" target="_blank">线程召唤使 发表于 2024-12-31 22:29</a>
+
+00的问题不能简单认为是娱乐性的问题，缺乏爆点且平庸。
+
+这个怎么说呢，举个例子，鬼灭十九集在小P孩心 ...</blockquote>
+节奏快有爆点超展开也是娱乐性的一部分，00给人空转的感觉
+
+*****
+
+####  罥索GFFF  
+##### 1752#       发表于 2024-12-31 22:42
+
+<blockquote>0aleph37 发表于 2024-12-31 22:21
+视听效果水魔第零集和PV也不差吧，可惜工期问题太严重
+
+这次gq6ux好歹已经制作完成了，稍稍令人安心 ...</blockquote>
+正剧从第二集开始崩到第十三集，特别是牢四的大脸
+
+*****
+
+####  罥索GFFF  
+##### 1753#       发表于 2024-12-31 22:43
+
+<blockquote>线程召唤使 发表于 2024-12-31 22:26
+留美酱，水魔没有解决问题，而且很可能进一步错判。
+
+先说一点00的问题真不只是剧场版的问题。
+</blockquote>
+还真是，既不认真，也不勇敢，还不花钱，确实一个都对不上号
+
+*****
+
+####  RE㐅ia  
+##### 1754#       发表于 2024-12-31 22:43
+
+<blockquote>罥索GFFF 发表于 2024-12-31 22:42
+正剧从第二集开始崩到第十三集，特别是牢四的大脸</blockquote>
+第二集牢4那个马脸让期待了那么久的我直接幻灭了。好像bd也没修md
+
+*****
+
+####  复活赛3比0  
+##### 1755#       发表于 2024-12-31 22:47
+
+代便还有试错的机会，其他原创萝卜，不整活就大概率入土<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刺客ares  
+##### 1756#       发表于 2024-12-31 22:48
+
+<blockquote>RE㐅ia 发表于 2024-12-31 22:19
+笑死</blockquote>
+鹤卷gg好不容易搞个大机器人动画，这不搞个大女主明日香2.0超度地缚灵香党啊，我知道你超想干的（
+
+*****
+
+####  猪突猛进R  
+##### 1757#       发表于 2024-12-31 22:52
+
+B站跨年晚会居然有CCA的BL the time<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RE㐅ia  
+##### 1758#       发表于 2024-12-31 23:04
+
+<blockquote>猪突猛进R 发表于 2024-12-31 22:52
+B站跨年晚会居然有CCA的BL the time</blockquote>
+大老远跑来也不来收freedom
+
+*****
+
+####  番茄牛奶  
+##### 1759#       发表于 2024-12-31 23:05
+
+不上映的懒得打广告了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刺客ares  
+##### 1760#       发表于 2024-12-31 23:06
+
+上映了肯定会唱freedom吧（
+
+
+*****
+
+####  0aleph37  
+##### 1761#       发表于 2024-12-31 23:11
+
+每天一张先行图，万代做得到吗？
+<img src="https://p.sda1.dev/21/3c1256311ded4d6dbd21e94c7b795aa0/GgIsGltbYAM31Su.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  番茄牛奶  
+##### 1762#       发表于 2024-12-31 23:15
+
+经典边角料挤牙膏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这人设细看还挺潮的
+
+*****
+
+####  刺客ares  
+##### 1763#       发表于 2024-12-31 23:15
+
+<blockquote>0aleph37 发表于 2024-12-31 23:11
+每天一张先行图，万代做得到吗？</blockquote>
+可爱捏
+
+女主的特色化设计就是红色新月耳钉了吧
+
+*****
+
+####  RE㐅ia  
+##### 1764#       发表于 2024-12-31 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67075248&amp;ptid=2209276" target="_blank">0aleph37 发表于 2024-12-31 23:11</a>
+
+每天一张先行图，万代做得到吗？</blockquote>
+我已经开始觉得17号之前他们屁都不会放一个了
+
+*****
+
+####  Gysumitka  
+##### 1765#       发表于 2024-12-31 23:18
+
+没贺图直接开始倒计时吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  kisstv22  
+##### 1766#       发表于 2024-12-31 23:30
+
+人设还行吧，虽然个人认为很普通
+
+*****
+
+####  wasssf  
+##### 1767#       发表于 2024-12-31 23:31
+
+人设感觉是种之后最成功的 其次是g复国
+
+*****
+
+####  刺客ares  
+##### 1768#       发表于 2024-12-31 23:38
+
+立绘画的太难绷了，尤其是妮娅安和修司，让我想起一些黑鼻狸猫（
+
+片内动起来仨人效果都不错
+
+*****
+
+####  罥索GFFF  
+##### 1769#       发表于 2024-12-31 23:42
+
+<blockquote>wasssf 发表于 2024-12-31 23:31
+人设感觉是种之后最成功的 其次是g复国</blockquote>
+没什么特点，就是可爱罢了，g复国比这破宝可梦人设强多了
+
+*****
+
+####  创始’’’天翔  
+##### 1770#       发表于 2024-12-31 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67074707&amp;ptid=2209276" target="_blank">线程召唤使 发表于 2024-12-31 22:26</a>
+
+留美酱，水魔没有解决问题，而且很可能进一步错判。
+
+先说一点00的问题真不只是剧场版的问题。</blockquote>
+现在的日升也就只能做出水魔这样的作品了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ティグル  
+##### 1771#       发表于 2024-12-31 23:48
+
+V的问题是卖不了敌方机（不是轮胎就是牛魔王要么苍蝇人谁买）
+
+你要说买主角机的凯子还是够多的，2V也不是没被炒过
+
+*****
+
+####  wasssf  
+##### 1772#       发表于 2024-12-31 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67075613&amp;ptid=2209276" target="_blank">罥索GFFF 发表于 2024-12-31 23:42</a>
+
+没什么特点，就是可爱罢了，g复国比这破宝可梦人设强多了</blockquote>
+我感觉复国的人设就2点 1.主角感觉都是这个画风下的路人，像有名字的重要人物的反而在敌方2.感觉人设有点不适应画椭圆眼睛，既不像以前的也不像后来的，有点不协调
+
+*****
+
+####  刺客ares  
+##### 1773#       发表于 2024-12-31 23:53
+
+这不是找了有实绩的khara来做吗
+
+自己做不好就把ip交给能做大机器人的工作室吧
+
+高达游戏也外包给fs（
+
+*****
+
+####  岸波白野扎比子  
+##### 1774#       发表于 2025-1-1 00:00
+
+虽然我也觉得认真讲故事才是重要的，但就我个人感觉，就这个短视频当道的时代，讲些意义不明图一乐的东西才有人爱看，日本人更喜欢图一乐不上价值观的东西
+
+*****
+
+####  岸波白野扎比子  
+##### 1775#       发表于 2025-1-1 00:03
+
+ 本帖最后由 岸波白野扎比子 于 2025-1-1 00:05 编辑 
+
+可能跟爱看短视频稍有不同，但是我确实感觉日本现在更爱图一乐，而不是那种很严肃很有逻辑的东西
+
+*****
+
+####  RE㐅ia  
+##### 1776#       发表于 2025-1-1 00:07
+
+再怎么搞怪归根结底也是要去写个好故事的。电锯人1抽象只是在于表面而非内核。续作后头只剩下抽象了讨论度一下子不就下去了
+
+*****
+
+####  创始’’’天翔  
+##### 1777#       发表于 2025-1-1 01:13
+
+推子不是挺火的么，我看也不像有什么深刻内涵
+
+<img src="https://img.saraba1st.com/forum/202501/01/011341a5nx5hqe5jtesh5x.png" referrerpolicy="no-referrer">
+
+<strong>7cfa626a639cafe05d552e7a12a1c12f6ed893efc7a91d230f711bfc8250c3d5.0.PNG</strong> (420 Bytes, 下载次数: 0)
+
+下载附件
+
+2025-1-1 01:13 上传
+
+*****
+
+####  RE㐅ia  
+##### 1778#       发表于 2025-1-1 01:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67076461&amp;ptid=2209276" target="_blank">创始’’’天翔 发表于 2025-1-1 01:13</a>
+
+推子不是挺火的么，我看也不像有什么深刻内涵</blockquote>
+虽然我完全没看但中篇风评我记得不赖的吧？加上动画制作也算得上高质量能火也正常。漫画后期坠毁那就是黑红了
+
+*****
+
+####  刺客ares  
+##### 1779#       发表于 2025-1-1 01:34
+
+<blockquote>创始’’’天翔 发表于 2025-1-1 01:13
+推子不是挺火的么，我看也不像有什么深刻内涵</blockquote>
+推子是Y姓组合巅峰发挥引流+大赤开局噱头编排巅峰，后期因为讲不好故事所以越来越烂，结尾彻底烂透了
+
+说实话推子的轨迹和泥水挺像的，区别在于水魔有基础大IP打底，最后成功服务了部分客群，所以作品海外能兜住八分，后续还能搞衍生
+
+推子原创起底，大赤口碑一烂没人能兜底了，最后成功得罪了所有人，所以摔在地上落个粉碎
+
+*****
+
+####  刺客ares  
+##### 1780#       发表于 2025-1-1 01:41
+
+虽然我不太喜欢咬手臂，但不得不说他们的引流能力超强，水魔推子fll连续三个大tie都是年度级的
+
+gqx谁来tie还有两周揭晓，人肯定是索系出，能是熊光最好，不是也找个能撑得起来的吧
+
+*****
+
+####  xunit  
+##### 1781#       发表于 2025-1-1 01:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67075701&amp;ptid=2209276" target="_blank">刺客ares 发表于 2024-12-31 23:53</a>
+这不是找了有实绩的khara来做吗
+
+自己做不好就把ip交给能做大机器人的工作室吧
+
+高达游戏也外包给fs（ ...</blockquote>
+也不是没外包给fs过，当年独角兽就让fs做了PS3游戏，不过当时销量不咋地
+
+*****
+
+####  RE㐅ia  
+##### 1782#       发表于 2025-1-1 02:02
+
+<blockquote>刺客ares 发表于 2025-1-1 01:34
+推子是Y姓组合巅峰发挥引流+大赤开局噱头编排巅峰，后期因为讲不好故事所以越来越烂，结尾彻底烂透了
+
+说 ...</blockquote>
+
+外网给水魔兜底的真得是外网豚豚吧。单体战斗力和包容度比国内的强多了
+
+*****
+
+####  刺客ares  
+##### 1783#       发表于 2025-1-1 02:19
+
+<blockquote>RE㐅ia 发表于 2025-1-1 02:02
+外网给水魔兜底的真得是外网豚豚吧。单体战斗力和包容度比国内的强多了 ...</blockquote>
+外网豚豚毕竟真搞lgbt站台和作品武器化，而厨厨盖米anti都盖到840条了，相当于840000条回复，尽显无能狂怒，斗争力度远超国内
+
+目前两边都有外溢到gqx的趋势，有意思的是外网目前认为本作豚豚赢面大，厨厨看到一二番都是女已经触发🍄ptsd撤退了，和国内形势不太一样
+
+不过豚厨大战的东西当消遣看还行，本作感情戏都是边角料，先把意识屁股放对才是重点
+
+*****
+
+####  罥索GFFF  
+##### 1784#       发表于 2025-1-1 02:33
+
+<blockquote>刺客ares 发表于 2025-1-1 02:19
+外网豚豚毕竟真搞lgbt站台和作品武器化，而厨厨盖米anti都盖到840条了，相当于840000条回复，尽显无能狂 ...</blockquote>
+
+诶，那边和国内是完全反过来的吗
+
+*****
+
+####  岸波白野扎比子  
+##### 1785#       发表于 2025-1-1 02:40
+
+ 本帖最后由 岸波白野扎比子 于 2025-1-1 02:45 编辑 
+
+传统番位不都是男一一番男二二番女主三番吗？这个是同理吧。
+
+不过如果是我是不敢这么搞番位的，我觉得肯定会打起来
+
+*****
+
+####  cayon  
+##### 1786#       发表于 2025-1-1 02:45
+
+传统番位女主配开红色机吗
+
+*****
+
+####  罥索GFFF  
+##### 1787#       发表于 2025-1-1 02:50
+
+<blockquote>岸波白野扎比子 发表于 2025-1-1 02:40
+传统番位不都是男一一番男二二番女主三番吗？这个是同理吧。
+
+不过如果是我是不敢这么搞番位的，我觉得肯定 ...</blockquote>
+水魔时期狸猫是男主位，米一个人拿了女主和男二位
+
+真按传统来就是红毛男主，黑毛女主，牢修男二。
+
+*****
+
+####  RE㐅ia  
+##### 1788#       发表于 2025-1-1 02:51
+
+ 本帖最后由 RE㐅ia 于 2025-1-1 03:00 编辑 
+<blockquote>cayon 发表于 2025-1-1 02:45
+传统番位女主配开红色机吗</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202501/01/030017rztzllziljuizv6l.png" referrerpolicy="no-referrer">
+
+<strong>CBCEA2E6-1888-481F-A14C-F8A7900E1348.png</strong> (274.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 03:00 上传
+
+<img src="https://img.saraba1st.com/forum/202501/01/030017tskkbpdzdhbqmmzz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>833E74E0-741D-4100-B813-3182BBE48198.jpeg</strong> (119.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 03:00 上传
+
+<img src="https://img.saraba1st.com/forum/202501/01/030017oyong2tyo1gsuod2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>4CCEC411-51D4-4D18-941A-047FF8B92B10.jpeg</strong> (149.37 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 03:00 上传
+
+*****
+
+####  罥索GFFF  
+##### 1789#       发表于 2025-1-1 02:52
+
+<blockquote>岸波白野扎比子 发表于 2025-1-1 02:40
+传统番位不都是男一一番男二二番女主三番吗？这个是同理吧。
+
+不过如果是我是不敢这么搞番位的，我觉得肯定 ...</blockquote>
+
+关键黑毛一个不开ms的怎么上男二位，除非和水一样女主和男二是一个人
+
+*****
+
+####  岸波白野扎比子  
+##### 1790#       发表于 2025-1-1 02:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67076765&amp;ptid=2209276" target="_blank">罥索GFFF 发表于 2025-1-1 02:52</a>
+
+关键黑毛一个不开ms的怎么上男二位，除非和水一样女主和男二是一个人</blockquote>
+革命机和鲁鲁修（）
+
+*****
+
+####  岸波白野扎比子  
+##### 1791#       发表于 2025-1-1 03:00
+
+本来想说说不定会给女二MA或者其他安排，总觉得以前也这么展望过，陷入了莫比乌斯呢（
+
+*****
+
+####  Piano-Forest  
+##### 1792#         楼主| 发表于 2025-1-1 10:24
+
+[https://x.com/quaternionxxx/status/1874108264495108384](https://x.com/quaternionxxx/status/1874108264495108384)
+<img src="https://p.sda1.dev/21/8839c39e3ca5a45a004ce28eb07f26dd/20250101_102428.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  番茄牛奶  
+##### 1793#       发表于 2025-1-1 10:40
+
+ 本帖最后由 番茄牛奶 于 2025-1-1 10:42 编辑 
+
+所以水魔，怎么不给你米蹭一台ms或者高达，多卖台胶不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+*****
+
+####  罥索GFFF  
+##### 1794#       发表于 2025-1-1 10:43
+
+把男的去掉
+
+<img src="https://img.saraba1st.com/forum/202501/01/104344oi0in1liytcw9ctn.jpg" referrerpolicy="no-referrer">
+
+<strong>1000077924.jpg</strong> (350.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 10:43 上传
+
+，画面好多了
+
+*****
+
+####  Sliurus  
+##### 1795#       发表于 2025-1-1 11:08
+
+怎么作品楼也开始像百合楼一样p掉男人了
+
+*****
+
+####  创始’’’天翔  
+##### 1796#       发表于 2025-1-1 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67076534&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-1 01:27</a>
+
+虽然我完全没看但中篇风评我记得不赖的吧？加上动画制作也算得上高质量能火也正常。漫画后期坠毁那就是黑 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我记得很早就开始骂cbm看管人看傻了
+
+*****
+
+####  刺客ares  
+##### 1797#       发表于 2025-1-1 11:16
+
+<blockquote>罥索GFFF 发表于 2025-1-1 02:33
+诶，那边和国内是完全反过来的吗</blockquote>
+外网厨厨聚集地捕捉到女一二番，身高差（？），主视觉图无男，少革staff，双人周边，pv大量同框这些关键词之后就立刻退场了
+
+对比下来这次国内是保守的那边
+
+
+*****
+
+####  RE㐅ia  
+##### 1665#       发表于 2024-12-30 22:39
+
+ 本帖最后由 RE㐅ia 于 2024-12-30 22:53 编辑 
+
+想了想为啥要强调主武器是热能斧。热能武器优于光剑的场合无非就是水下战。加上女主这想要去看海的设定，怕不是后期就有一场大战是在水下进行的。光束武器在水下威力不够看，女主名正言顺地掏出热能斧ko对面。
+
+<img src="https://img.saraba1st.com/forum/202412/30/225006smo0no91z8z7986h.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>6E11DB39-4C63-4068-8A3E-B2ED41287D8F.jpeg</strong> (368.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-30 22:50 上传
+
+*****
+
+####  Grahamlinks  
+##### 1666#       发表于 2024-12-30 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67000948&amp;ptid=2209276" target="_blank">王留美 发表于 2024-12-23 22:17</a>
+
+看看日TV的档期就好了
+
+现在在播的动画有七档</blockquote>
+NTV周六深夜这个A级队伍是半年啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">（顺便这个片也是代便的）目前的情况就是，如果NTV不开新的档期那么GQX最快明年七月上（预测接药屋）
+
+*****
+
+####  王留美  
+##### 1667#       发表于 2024-12-30 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67065867&amp;ptid=2209276" target="_blank">Grahamlinks 发表于 2024-12-30 23:26</a>
+ NTV周六深夜这个A级队伍是半年啊（顺便这个片也是代便的）目前的情况就是，如果NTV不开新的档期那么GQX最 ...</blockquote>
+什么厕纸都能做半年？中长篇文艺复兴了？
+
+AnichU档那两个时间段的后续有消息吗？
+
+*****
+
+####  王留美  
+##### 1668#       发表于 2024-12-30 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67065603&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2024-12-30 22:39</a>
+ 想了想为啥要强调主武器是热能斧。热能武器优于光剑的场合无非就是水下战。加上女主这想要去看海的设定，怕 ...</blockquote>
+热能斧的最大意义就是暗示UC世界观
+和PV开场女主年殖民卫星参数以及浮游炮大特写是一个意思
+
+警察扎古反而没那么直接，毕竟不是一模一样
+
+*****
+
+####  RE㐅ia  
+##### 1669#       发表于 2024-12-31 00:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67065980&amp;ptid=2209276" target="_blank">王留美 发表于 2024-12-30 23:52</a>
+
+热能斧的最大意义就是暗示UC世界观
+
+和PV开场女主年殖民卫星参数以及浮游炮大特写是一个意思</blockquote>
+宣发阶段可以这么说，但是你剧情里等一切都公布了实际上用的还是这玩意。
+
+*****
+
+####  Toby_dak  
+##### 1670#       发表于 2024-12-31 00:51
+
+热能斧怎么了？0087的Z高里的高渣古还不是用着热能斧？出现在0085有问题？
+又不是某个Z高的拙劣仿制品里，挂羊头卖狗肉的挂名渣古。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  刺客ares  
+##### 1671#       发表于 2024-12-31 01:00
+
+热能斧是从警察扎古那夺来的吧
+
+但是pv里和红高达空战的时候手上又没有武器了
+
+已经附送进hg配件了，剧中怎么都要用一段时间
+
+*****
+
+####  stmule  
+##### 1672#       发表于 2024-12-31 02:08
+
+pv里女主纠结了几次真正的天空，这不会是marcoss f吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  迷路的石头  
+##### 1673#       发表于 2024-12-31 07:58
+
+<blockquote>oi99o 发表于 2024-12-29 16:43
+原来让叶是姓吗，我一直以为天手是姓</blockquote>
+高达里的确是把东方人的姓也放后面，比如
+
+士郎·天田
+
+宏·浦木
+
+吉良·大和
+
+*****
+
+####  王留美  
+##### 1674#       发表于 2024-12-31 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67067836&amp;ptid=2209276" target="_blank">迷路的石头 发表于 2024-12-31 07:58</a>
+
+高达里的确是把东方人的姓也放后面，比如
+
+士郎·天田
+
+宏·浦木</blockquote>
+都不用扯这些，看看安室零就好了
+
+*****
+
+####  Grahamlinks  
+##### 1675#       发表于 2024-12-31 10:14
+
+ 本帖最后由 Grahamlinks 于 2024-12-31 10:16 编辑 
+<blockquote>王留美 发表于 2024-12-30 23:49
+什么厕纸都能做半年？中长篇文艺复兴了？
+
+AnichU档那两个时间段的后续有消息吗？ ...</blockquote>
+
+这部异世界原作不是很长，可能代便想着一次性直接做完吧，而且代便这两年对异世界很阔绰的，很多都是起手就半年的企划（只不过这部没分割是连播）
+
+不用关注anichu，gqx是日本电视台系列全网联播，anichu不是全网
+
+*****
+
+####  王留美  
+##### 1676#       发表于 2024-12-31 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67068689&amp;ptid=2209276" target="_blank">Grahamlinks 发表于 2024-12-31 10:14</a>
+
+这部异世界原作不是很长，可能代便想着一次性直接做完吧，而且代便这两年对异世界很阔绰的，很多都是起手 ...</blockquote>
+那就GG了，乖乖等7月吧
+
+但是1月大宣发然后7月才上也太神奇了，对比下来当初水魔一二期之间插闪哈TBNT都不算谜操作了，搞不懂为什么会这么安排
+
+*****
+
+####  王留美  
+##### 1677#       发表于 2024-12-31 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67064862&amp;ptid=2209276" target="_blank">ティグル 发表于 2024-12-30 20:18</a>
+
+反正都是虎逼UC了不如整点更大的活，比如戴肯没死</blockquote>
+戴肯不死不会开战，前提就不对
+
+包括扎比家老二也是
+
+联邦那边变数太多了不好说，鸡瘟这里看看蓝巴拉尔黑三连卡尔马有没有机会活下来吧
+
+搞不好大猩猩也还是要死的
+
+*****
+
+####  Gysumitka  
+##### 1678#       发表于 2024-12-31 11:35
+
+<img src="https://p.sda1.dev/21/9810883325b3bd77596628518dc0e5c6/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  罥索GFFF  
+##### 1679#       发表于 2024-12-31 13:03
+
+<blockquote>中野梓 发表于 2024-12-29 15:15
+水魔确实是年轻人的第一部高达</blockquote>
+
+泥水的地位会随着时间流逝慢慢变高，也是多亏铁血把高达断代了
+
+*****
+
+####  中野梓  
+##### 1680#       发表于 2024-12-31 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67069553&amp;ptid=2209276" target="_blank">Gysumitka 发表于 2024-12-31 11:35</a></blockquote>
+越看越顺眼
+
+
+*****
+
+####  王留美  
+##### 1681#       发表于 2024-12-31 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67070351&amp;ptid=2209276" target="_blank">罥索GFFF 发表于 2024-12-31 13:03</a>
+ 泥水的地位会随着时间流逝慢慢变高，也是多亏铁血把高达断代了</blockquote>
+坦白说至少在这个数据上铁血的问题不是很大
+铁血是只有3票可UC也就4票
+GTO和闪哈2票以下
+只能说这个时代确实萝卜没人看了，水魔之前敢达的数据还行真就是纯纯在割老登韭菜
+
+反过来说水魔伟大，毋庸置疑
+
+*****
+
+####  RE㐅ia  
+##### 1682#       发表于 2024-12-31 15:32
+
+<blockquote>Gysumitka 发表于 2024-12-31 11:35
+</blockquote>
+还以为胳膊下边的又是什么新型哈罗，原来是肩甲
+
+*****
+
+####  刺客ares  
+##### 1683#       发表于 2024-12-31 17:19
+
+<img src="https://img.saraba1st.com/forum/202412/31/171619urx2ph4loqtrhgaz.png" referrerpolicy="no-referrer">
+
+<strong>1735635627176.png</strong> (54.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 17:16 上传
+
+原来去年就有人想过了，高达版高堡奇人
+
+下面还说拍这个会被冲烂，我看现在大家也没什么过激反应啊，是安魂曲脱敏了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  双菜  
+##### 1684#       发表于 2024-12-31 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67072584&amp;ptid=2209276" target="_blank">刺客ares 发表于 2024-12-31 17:19</a>
+原来去年就有人想过了，高达版高堡奇人
+
+下面还说拍这个会被冲烂，我看现在大家也没什么过激反应啊，是安魂 ...</blockquote>
+已经冲过一轮了，现在要等正片端出来才有第二轮批判
+
+*****
+
+####  真月0  
+##### 1685#       发表于 2024-12-31 17:37
+
+fxs胜利if肯定要干死fxs，吉翁胜利if肯定要干死吉翁，这种肯定比代号妖精复仇安魂曲纯招魂要强一点
+gquuuuuux最后没干吉翁当我没说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王留美  
+##### 1686#       发表于 2024-12-31 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67072584&amp;ptid=2209276" target="_blank">刺客ares 发表于 2024-12-31 17:19</a>
+ 原来去年就有人想过了，高达版高堡奇人 下面还说拍这个会被冲烂，我看现在大家也没什么过激反应啊，是安魂 ...</blockquote>
+本来就没什么大问题啊
+不如说刚爆出世界观的时候那么多神秘发言才让人莫名其妙
+
+假定鸡瘟胜利并不代表鸡瘟就伟光正了
+反过来说即便没有白色恶魔联邦也逆推到所罗门了最后搞出机械降神一般的所罗门冲击正是符合万代或者说UC军武派一贯以来在0079上的立场：骡子和敢达只是战术优势，而联邦本身具有的战略优势足以打败鸡瘟军
+
+*****
+
+####  王留美  
+##### 1687#       发表于 2024-12-31 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67072715&amp;ptid=2209276" target="_blank">真月0 发表于 2024-12-31 17:37</a>
+ fxs胜利if肯定要干死fxs，吉翁胜利if肯定要干死吉翁，这种肯定比代号妖精复仇安魂曲纯招魂要强一点 gquuuuu ...</blockquote>
+都放毒气了加上深蓝配色，怕不是鸡瘟版泰坦斯
+必须狠狠干死
+
+*****
+
+####  刺客ares  
+##### 1688#       发表于 2024-12-31 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67072715&amp;ptid=2209276" target="_blank">真月0 发表于 2024-12-31 17:37</a>
+
+fxs胜利if肯定要干死fxs，吉翁胜利if肯定要干死吉翁，这种肯定比代号妖精复仇安魂曲纯招魂要强一点
+
+gquuuuu ...</blockquote>
+我看有人分析说电影海报让女主坐在报废扎古头上很有象征意义
+
+虽然这条世界线抢到了高达，但扎古在大众眼里还是象征吉翁的机体
+
+主角机打爆扎古就是直指反抗吉翁，所以暂时不用担心**招魂什么的
+
+就是UC这大烂摊子不知道怎么收，凭主角团两台机打爆整个吉翁公国吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+最后就是逃到地球，留个不上不下的结尾，没能改变任何事才容易被喷吧
+
+*****
+
+####  罥索GFFF  
+##### 1689#       发表于 2024-12-31 18:27
+
+  话说蓝毛在官网番位是第三，不如黑毛
+
+  感觉蓝毛的定位不像男主，更像主角的引导者，比如天元突破的卡米拉。红莲螺岩的主驾驶员一开始也是卡米拉。刚好和这里也对上了
+
+*****
+
+####  Gysumitka  
+##### 1690#       发表于 2024-12-31 18:49
+
+机体敌对，年龄也差不多，怎么当引导者<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刺客ares  
+##### 1691#       发表于 2024-12-31 19:08
+
+直接奶吧，异性骡鸭，异性鸡狼，狸猫挑染2.0
+
+还是鹤卷gg一生之痛，性转嗣香
+
+这些都有插在中间的女角色，正好可以把喵安也对上（
+
+*****
+
+####  罥索GFFF  
+##### 1692#       发表于 2024-12-31 19:20
+
+<blockquote>Gysumitka 发表于 2024-12-31 18:49
+机体敌对，年龄也差不多，怎么当引导者</blockquote>
+此事在水星的魔女第二季中已有记载
+
+*****
+
+####  0aleph37  
+##### 1693#       发表于 2024-12-31 19:21
+
+还是像飞跃颠峰里男人祭天？
+
+*****
+
+####  Gysumitka  
+##### 1694#       发表于 2024-12-31 19:24
+
+为什么不是女主把另外两个都宰了，致敬曾经的短片（）反正也有挂饰
+
+*****
+
+####  刺客ares  
+##### 1695#       发表于 2024-12-31 19:26
+
+<blockquote>0aleph37 发表于 2024-12-31 19:21
+还是像飞跃颠峰里男人祭天？</blockquote>
+教练2.0或者牢四2.0那应该就是剧场版直接祭天，死前还得把螃蟹和红高达传给女二（
+
+*****
+
+####  0aleph37  
+##### 1696#       发表于 2024-12-31 19:58
+
+<blockquote>刺客ares 发表于 2024-12-31 19:26
+教练2.0或者牢四2.0那应该就是剧场版直接祭天，死前还得把螃蟹和红高达传给女二（ ...</blockquote>
+那红高达可以和女主机合体吗
+
+*****
+
+####  RE㐅ia  
+##### 1697#       发表于 2024-12-31 20:04
+
+还是不知道尼雅安要怎么样担当起第二主角的身份。虽然米米也不开ms但怎么说都算得上是漩涡中心的人物了。Nyann这边除了除了给女主当黑全世界引路人和生死未卜的家人目前还看不太出来能挖掘的地方。
+
+*****
+
+####  RE㐅ia  
+##### 1698#       发表于 2024-12-31 20:05
+
+<blockquote>刺客ares 发表于 2024-12-31 19:26
+教练2.0或者牢四2.0那应该就是剧场版直接祭天，死前还得把螃蟹和红高达传给女二（ ...</blockquote>
+是饿狼2.0吧，教练好歹是后头才没得（
+
+*****
+
+####  RE㐅ia  
+##### 1699#       发表于 2024-12-31 20:08
+
+<blockquote>刺客ares 发表于 2024-12-31 17:48
+我看有人分析说电影海报让女主坐在报废扎古头上很有象征意义
+
+虽然这条世界线抢到了高达，但扎古在大众眼 ...</blockquote>
+相信官网
+
+<img src="https://img.saraba1st.com/forum/202412/31/200840zxrx4znreyx7q6nk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>040D5B12-ABFC-441A-8460-475CFC0CFB21.jpeg</strong> (152.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 20:08 上传
+
+*****
+
+####  刺客ares  
+##### 1700#       发表于 2024-12-31 20:09
+
+<blockquote>0aleph37 发表于 2024-12-31 19:58
+那红高达可以和女主机合体吗</blockquote>
+直接合体成为高达斯塔然后掏出棒球棒和大钻头打爆汤大基开的紫色拿双枪MA，大吼一声引发精神力事故干烂所有宇宙殖民地，最后12000年后返回地球，落地后被只见过几面的妈妈辈眼镜大叔领回家
+
+遗老表示简直太精彩了，并开除了gqx的高达籍（
+
+*****
+
+####  番茄牛奶  
+##### 1701#       发表于 2024-12-31 20:10
+
+1月份剧场版开播后，会有多少新胶？狗代不会真在憋大招吧<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+*****
+
+####  0aleph37  
+##### 1702#       发表于 2024-12-31 20:21
+
+怎么也得多出点吧。
+
+单开一个UC平行宇宙还不多出一点很有既视感的经典款机体
+
+*****
+
+####  刺客ares  
+##### 1703#       发表于 2024-12-31 20:30
+
+各种被山下育人化的经典UC机体都端上来吧
+
+怎么说都是正作tv，各路产品线少不了，闪哈那种只推两台机的错误必不可能再犯了（
+
+*****
+
+####  赤黑的假面  
+##### 1704#       发表于 2024-12-31 20:42
+
+有一说一，KHARA这种平行宇宙世纪然后WHAT IF有种钢弹粉丝玩票作同人转正的感觉
+
+*****
+
+####  线程召唤使  
+##### 1705#       发表于 2024-12-31 20:48
+
+千万不能被水魔所谓年轻人的第一部高达给骗了，你们要横向比较现在的这代人、最热门的那两三个作品，拿水魔说年轻人喜欢这样的高达之前，一定要先看清楚现在小孩喜欢的“作品”是啥，然后才能去问现在小孩喜欢的“高达作品”。
+
+*****
+
+####  番茄牛奶  
+##### 1706#       发表于 2024-12-31 20:49
+
+小孩:我喜欢不看高达<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  0aleph37  
+##### 1707#       发表于 2024-12-31 20:57
+
+巨大人形机器人对年轻人来说老人臭太重了吧。
+
+特摄棚那边战队不也是在销量下滑吗
+
+*****
+
+####  罥索GFFF  
+##### 1708#       发表于 2024-12-31 21:12
+
+<blockquote>0aleph37 发表于 2024-12-31 20:57
+巨大人形机器人对年轻人来说老人臭太重了吧。
+
+特摄棚那边战队不也是在销量下滑吗 ...</blockquote>
+没有泥水这种作品续命，你高最多再蹦跶个二十几年，系列粉丝平均年龄45的含金量。
+
+*****
+
+####  wasssf  
+##### 1709#       发表于 2024-12-31 21:13
+
+ 本帖最后由 wasssf 于 2024-12-31 21:16 编辑 
+
+我20年前也不是因为喜欢巨大机器人看高达的，机体爱只是我作品爱的泛滥，先喜欢作品再喜欢上顺眼的机体，在此之前我喜欢的机体是魔神英雄传tf之类的，看了种命的2大翅膀但是没能因为这个契机吸引我看动画，后面是直接翻视频网站感兴趣补动画的
+
+*****
+
+####  kisstv22  
+##### 1710#       发表于 2024-12-31 21:15
+
+主要是老登的创作容易有时代局限性，年轻人还真不一定喜欢看
+
+*****
+
+####  罥索GFFF  
+##### 1711#       发表于 2024-12-31 21:20
+
+你高真正赚钱的tv，数不出五部
+
+元祖，seed，水魔，w
+
+其他的，要么不达预期（z，zz，00，倒a）。
+
+要么血亏（v，x，age，g复国，铁血）
+
+驴还属于ova。你高粉丝还以为高达什么大牌子，殊不知是九死一生，家底够厚败的起罢了
+
+*****
+
+####  wasssf  
+##### 1712#       发表于 2024-12-31 21:21
+
+ 本帖最后由 wasssf 于 2024-12-31 21:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67074155&amp;ptid=2209276" target="_blank">罥索GFFF 发表于 2024-12-31 21:20</a>
+
+你高真正赚钱的tv，数不出五部
+
+元祖，seed，水魔，w
+
+其他的，要么不达预期（z，zz，00，倒a）。</blockquote>
+不达预期就是不赚钱这就有点滑坡了，初代到逆袭的夏亚都是大赚的，90年代能有这个水平的也就w，20世纪uc那三部ova也都是赚的，驴也是赚翻的
+
+*****
+
+####  番茄牛奶  
+##### 1713#       发表于 2024-12-31 21:22
+
+现在有单纯靠萝卜火的萝卜番吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刺客ares  
+##### 1714#       发表于 2024-12-31 21:23
+
+声优都说利好考据党了，感觉这作纯老害自嗨吧，没想刻意扩圈，主创平均年龄都得五十岁了。
+
+不过总会有圈外厨厨和豚豚来看并相互圈地的，毕竟你都整两女一男了，最后必然会作品武器化，这回总不能再天降眼镜大叔拉走女主了吧
+
+商业成绩我也不咋看好，胶圈目前没啥好评，先行上影院有股捞一笔保底的味道（
+
+*****
+
+####  罥索GFFF  
+##### 1715#       发表于 2024-12-31 21:25
+
+<blockquote>wasssf 发表于 2024-12-31 21:21
+不达预期就是不赚钱这就有点滑坡了，初代到逆袭的夏亚都是大赚的，90年代能有这个水平的也就w，20世纪uc那 ...</blockquote>
+说的是tv
+
+*****
+
+####  罥索GFFF  
+##### 1716#       发表于 2024-12-31 21:26
+
+<blockquote>wasssf 发表于 2024-12-31 21:21
+不达预期就是不赚钱这就有点滑坡了，初代到逆袭的夏亚都是大赚的，90年代能有这个水平的也就w，20世纪uc那 ...</blockquote>
+按你这说法也只是把zz和z放到赚钱那一行，总体来说不还是不赚钱的多
+
+*****
+
+####  史蒂符  
+##### 1717#       发表于 2024-12-31 21:28
+
+我看的第一部高达是我上小学时在小店里买的g高达dvd，旁边还有印着红色高达的碟片，但是不记得是什么高达了，当时看着蓝白色的那个好像更帅一点就买了武斗传。
+小时候看完真是大受震撼，围绕环保的主题能搭出一个这么庞大的舞台。剧情很曲折，看到师匠去世时也很动容。那时觉得同样是环保一边是熊出没一边是高达，剧情发展和人物塑造差距实在太大了。
+后来再看第二部高达时已经是上高中，刚开始还很不习惯，人物怎么是坐在里面拉操纵杆，这怎么驾驶？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  PascalLefèvre  
+##### 1718#       发表于 2024-12-31 21:28
+
+ 本帖最后由 PascalLefèvre 于 2024-12-31 21:32 编辑 
+
+高达不赚钱要靠泥水续命都来了，tv赚钱指的是靠卖碟片赚钱吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  罥索GFFF  
+##### 1719#       发表于 2024-12-31 21:29
+
+真正的新作还得是日升三组，gqx本质还是新奥新假那一类玩意
+
+*****
+
+####  wasssf  
+##### 1720#       发表于 2024-12-31 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67074197&amp;ptid=2209276" target="_blank">罥索GFFF 发表于 2024-12-31 21:26</a>
+
+按你这说法也只是把zz和z放到赚钱那一行，总体来说不还是不赚钱的多</blockquote>
+但是uc前四作种驴都是能吃十年的
+
+
+*****
+
+####  罥索GFFF  
+##### 1721#       发表于 2024-12-31 21:31
+
+<blockquote>PascalLefèvre 发表于 2024-12-31 21:28
+高达不赚钱要靠泥水续命都来了，tv赚钱指的是靠卖碟片赚钱吗
+
+—— 来自 S1Fun ...</blockquote>
+你高从seed以后开始，首先是00四年不回本，然后age全线爆死，最后铁血干死日五档，足以看出这个系列活这么久纯纯的吃老本，只不过吃的是uc+seed的老本罢了
+
+*****
+
+####  线程召唤使  
+##### 1722#       发表于 2024-12-31 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67074155&amp;ptid=2209276" target="_blank">罥索GFFF 发表于 2024-12-31 21:20</a>
+
+你高真正赚钱的tv，数不出五部
+
+元祖，seed，水魔，w
+
+其他的，要么不达预期（z，zz，00，倒a）。</blockquote>
+认真说九死一生还没到，40岁上下的这一批大概还能当十年胶韭菜，
+
+就是现在20岁这一批，想靠水魔，反正这思路属于看似觉得很懂年轻人实际上，
+
+这里面最大的问题是，水魔这样的作品，没有去回答问题。
+
+*****
+
+####  wasssf  
+##### 1723#       发表于 2024-12-31 21:33
+
+ 本帖最后由 wasssf 于 2024-12-31 21:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67074238&amp;ptid=2209276" target="_blank">线程召唤使 发表于 2024-12-31 21:32</a>
+
+认真说九死一生还没到，40岁上下的这一批大概还能当十年胶韭菜，
+
+就是现在20岁这一批，想靠水魔，反正这 ...</blockquote>
+水魔的完善版本早就有了就是鲁路修，只不过机设不吸引人而已，本质不是新作品，就是所谓类高达作品在动画史的谱系走了20多年到当时的集大成作品，不同于正统高达的新作品的思路还是00铁血这种，不过都失败了
+
+*****
+
+####  kisstv22  
+##### 1724#       发表于 2024-12-31 21:34
+
+这作还是当成老登自嗨作看待吧
+
+*****
+
+####  PascalLefèvre  
+##### 1725#       发表于 2024-12-31 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67074237&amp;ptid=2209276" target="_blank">罥索GFFF 发表于 2024-12-31 21:31</a>
+你高从seed以后开始，首先是00四年不回本，然后age全线爆死，最后铁血干死日五档，足以看出这个系列活这 ...</blockquote>
+问题是这种老ip的赚钱方式不就是吃老本吗，照你这么说eva这种虽然冷饭往死里炒，但是每部票房都不错不算吃老本，高达多出几部不同世界观的作品实验观众胃口的反而叫做半死不活吃老本了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  线程召唤使  
+##### 1726#       发表于 2024-12-31 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67074247&amp;ptid=2209276" target="_blank">wasssf 发表于 2024-12-31 21:33</a>
+
+水魔的完善版本早就有了就是鲁路修，只不过机设不吸引人而已</blockquote>
+比鲁鲁修差远了，鲁鲁修说大了是真正有雄心的作品，说小了是要认真讲个事的作品，你别管后来崩了，最少认真了二十多集也够可以了。
+
+这个就是区别。
+
+*****
+
+####  wasssf  
+##### 1727#       发表于 2024-12-31 21:40
+
+ 本帖最后由 wasssf 于 2024-12-31 21:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67074289&amp;ptid=2209276" target="_blank">线程召唤使 发表于 2024-12-31 21:38</a>
+
+比鲁鲁修差远了，鲁鲁修说大了是真正有雄心的作品，说小了是要认真讲个事的作品，你别管后来崩了，最少认 ...</blockquote>
+后面也不算崩，追求不同，鲁路修算是世界系作品，就，r2前期谍战太长到囚禁的学园被11区观众炎上了，剧场版删掉了，其实完全可以两次东京决战并作一次删去第一次失败和失忆，其实00前十几集也是这种让人不耐烦的，估计都是死亡笔记的影响
+
+*****
+
+####  罥索GFFF  
+##### 1728#       发表于 2024-12-31 21:42
+
+<blockquote>PascalLefèvre 发表于 2024-12-31 21:37
+问题是这种老ip的赚钱方式不就是吃老本吗，照你这么说eva这种虽然冷饭往死里炒，但是每部票房都不错不算 ...</blockquote>
+真正的纯粹实验作只有泥水一部，低成本25集tv无续作，几乎没有什么原定的衍生作。其他多少都能看到点野心的，特别是00
+
+*****
+
+####  PascalLefèvre  
+##### 1729#       发表于 2024-12-31 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67074329&amp;ptid=2209276" target="_blank">罥索GFFF 发表于 2024-12-31 21:42</a>
+真正的纯粹实验作只有泥水一部，低成本25集tv无续作，几乎没有什么原定的衍生作。其他多少都能看到点野心 ...</blockquote>
+有点看不出你到底是在串还是认真的，你觉得是那就是吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  王留美  
+##### 1730#       发表于 2024-12-31 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67073660&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2024-12-31 20:04</a>
+ 还是不知道尼雅安要怎么样担当起第二主角的身份。虽然米米也不开ms但怎么说都算得上是漩涡中心的人物了。Ny ...</blockquote>
+UC的汤小美定位吧
+
+*****
+
+####  刺客ares  
+##### 1731#       发表于 2024-12-31 21:47
+
+00我记得是堆了大资源想要公式复现seed的爆火吧
+
+结果口碑是有了，商业方面相比投入就差些意思了
+
+GQX开的是ifuc而不是新世界观，野心上应该比水魔铁血这种开新世界观的小
+
+*****
+
+####  刺客ares  
+##### 1732#       发表于 2024-12-31 21:48
+
+<blockquote>王留美 发表于 2024-12-31 21:46
+UC的汤小美定位吧</blockquote>
+有没有可能正牌汤小美还活着（
+
+*****
+
+####  kisstv22  
+##### 1733#       发表于 2024-12-31 21:53
+
+只能说商业成绩这种需要天时地利人和，不可能简单复制的
+
+*****
+
+####  王留美  
+##### 1734#       发表于 2024-12-31 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67074363&amp;ptid=2209276" target="_blank">刺客ares 发表于 2024-12-31 21:48</a>
+ 有没有可能正牌汤小美还活着（</blockquote>
+说的是定位，不是具体的那个人
+
+就好比男主很可能是拉拉位或者夏亚位
+
+*****
+
+####  RE㐅ia  
+##### 1735#       发表于 2024-12-31 21:58
+
+<blockquote>王留美 发表于 2024-12-31 21:46
+UC的汤小美定位吧</blockquote>
+汤小美在uc的政治身份地位真的是一个普通的战争难民能比的吗（ 
+
+*****
+
+####  王留美  
+##### 1736#       发表于 2024-12-31 22:04
+
+ 本帖最后由 王留美 于 2024-12-31 22:07 编辑 
+
+反正以BNF内部那个问卷的代表性来看，2010年00剧场版史诗性的溃败之后敢达就是吃存量的IP，GTO TB 闪哈 G复国 BF不管吹的多么好，对圈外人就是近乎毫无影响
+
+水魔不管怎么样至少让新人去接触了，转化率高也好低也罢，都没人接触谈何转换？
+
+*****
+
+####  番茄牛奶  
+##### 1737#       发表于 2024-12-31 22:07
+
+狗代现在，是不是不肯大制作给tv了，就喜欢所谓的以小博大？<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  RE㐅ia  
+##### 1738#       发表于 2024-12-31 22:10
+
+<blockquote>番茄牛奶 发表于 2024-12-31 22:07
+狗代现在，是不是不肯大制作给tv了，就喜欢所谓的以小博大？</blockquote>
+这部怎么说都算得上大制作吧。不出意外会是近十五年视觉上最好的tv
+
+*****
+
+####  wasssf  
+##### 1739#       发表于 2024-12-31 22:11
+
+ 本帖最后由 wasssf 于 2024-12-31 22:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67074482&amp;ptid=2209276" target="_blank">王留美 发表于 2024-12-31 22:04</a>
+
+反正以BNF内部那个问卷的代表性来看，2010年00剧场版史诗性的溃败之后敢达就是吃存量的IP，GTO TB 闪哈 G复 ...</blockquote>
+其实就是从00第一季开始的，这种创作者陶醉其中想让观众在没有娱乐性的闷片花钱的作品怎么可能吸引动画观众，结果就主要是高达迷和之前基本不看动画的人看，问题意识也是空洞的
+
+*****
+
+####  刺客ares  
+##### 1740#       发表于 2024-12-31 22:11
+
+<blockquote>RE㐅ia 发表于 2024-12-31 21:58
+汤小美在uc的政治身份地位真的是一个普通的战争难民能比的吗（</blockquote>
+我猜一个，犁地少尉定位，联邦**家的大小姐，因为联邦战败所以流落到宇宙殖民地，和吉翁出身的牢修对仗，后期开个黑色带金边的ms，三角关系里负责当败犬（
+
+*****
+
+####  番茄牛奶  
+##### 1741#       发表于 2024-12-31 22:12
+
+正片没看到前，不敢说 不好说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  罥索GFFF  
+##### 1742#       发表于 2024-12-31 22:16
+
+<blockquote>番茄牛奶 发表于 2024-12-31 22:12
+正片没看到前，不敢说 不好说</blockquote>
+看这个staff表都知道肯定是高规格
+
+*****
+
+####  kisstv22  
+##### 1743#       发表于 2024-12-31 22:17
+
+日升的产能也不是十年前产能爆炸那会，不出意外不会再有年番高达了，以后想看日升主导的新作tv少说也要再等三年<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刺客ares  
+##### 1744#       发表于 2024-12-31 22:17
+
+ 本帖最后由 刺客ares 于 2024-12-31 22:19 编辑 
+
+这部目前最让人放心的就是制作水平了，视听效果有望冲击千禧年后最佳
+
+拿出eva剧场版实力的七成，过闪哈没问题，能不能过独角兽就要看厨力了
+
+*****
+
+####  wasssf  
+##### 1745#       发表于 2024-12-31 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67074611&amp;ptid=2209276" target="_blank">刺客ares 发表于 2024-12-31 22:17</a>
+
+这部目前最让人放心的就是制作水平了，视听效果有望冲击千禧年后最佳</blockquote>
+看pv这3d怎么挑战z钢弹剧场版和一角驴
+
+*****
+
+####  RE㐅ia  
+##### 1746#       发表于 2024-12-31 22:19
+
+笑死
+
+<img src="https://img.saraba1st.com/forum/202412/31/221932gbgjzlbyj1dpzypl.png" referrerpolicy="no-referrer">
+
+<strong>928E1EBC-D43A-4E55-9139-E7FD0D069B45.png</strong> (463.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 22:19 上传
+
+*****
+
+####  0aleph37  
+##### 1747#       发表于 2024-12-31 22:21
+
+视听效果水魔第零集和PV也不差吧，可惜工期问题太严重
+
+这次gq6ux好歹已经制作完成了，稍稍令人安心
+
+*****
+
+####  番茄牛奶  
+##### 1748#       发表于 2024-12-31 22:25
+
+做完了，能有半年番的量吗，估计是季番？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  线程召唤使  
+##### 1749#       发表于 2024-12-31 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67074482&amp;ptid=2209276" target="_blank">王留美 发表于 2024-12-31 22:04</a>
+
+反正以BNF内部那个问卷的代表性来看，2010年00剧场版史诗性的溃败之后敢达就是吃存量的IP，GTO TB 闪哈 G复 ...</blockquote>
+留美酱，水魔没有解决问题，而且很可能进一步错判。
+
+先说一点00的问题真不只是剧场版的问题。
+
+00就是这一大轮高达丧失志气的起点，口碑商业其实都不太行。
+
+从那之后就开始泄气搞小心思了，
+
+搞搞AGE创战者什么的，也没很成功，然后就不知道怎么办了。
+
+同时期开始，高达以外的世界在发生什么，fate第一炮，两作TV的背后是FGO大火；
+
+巨人开始发力；
+
+电锯到藤本树；
+
+然后就是鬼灭大魔王。
+
+我总结这15年最值得的地方，到底赢下来的，到底赢得年轻人的，还真的就是——勇敢地花钱去认真说故事的作品。
+
+而水魔完全不具备这一点。
+
+当然高达的问题太多了，00失败以后创作上还有没有勇气，萝卜还行不行。
+
+但是现在确实有变化了，光就不再是日升的高达这一点就太值得期待了。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Nautilus1832| + 1|水魔引入的纯粹一泡污|
+
+查看全部评分
+
+*****
+
+####  线程召唤使  
+##### 1750#       发表于 2024-12-31 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67074547&amp;ptid=2209276" target="_blank">wasssf 发表于 2024-12-31 22:11</a>
+
+其实就是从00第一季开始的，这种创作者陶醉其中想让观众在没有娱乐性的闷片花钱的作品怎么可能吸引动画观 ...</blockquote>
+00的问题不能简单认为是娱乐性的问题，缺乏爆点且平庸。
+
+这个怎么说呢，举个例子，鬼灭十九集在小P孩心目封神，那肯定不是说十九集太娱乐了。
+
+*****
+
+####  wasssf  
+##### 1751#       发表于 2024-12-31 22:34
+
+ 本帖最后由 wasssf 于 2024-12-31 22:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67074738&amp;ptid=2209276" target="_blank">线程召唤使 发表于 2024-12-31 22:29</a>
+
+00的问题不能简单认为是娱乐性的问题，缺乏爆点且平庸。
+
+这个怎么说呢，举个例子，鬼灭十九集在小P孩心 ...</blockquote>
+节奏快有爆点超展开也是娱乐性的一部分，00给人空转的感觉
+
+*****
+
+####  罥索GFFF  
+##### 1752#       发表于 2024-12-31 22:42
+
+<blockquote>0aleph37 发表于 2024-12-31 22:21
+视听效果水魔第零集和PV也不差吧，可惜工期问题太严重
+
+这次gq6ux好歹已经制作完成了，稍稍令人安心 ...</blockquote>
+正剧从第二集开始崩到第十三集，特别是牢四的大脸
+
+*****
+
+####  罥索GFFF  
+##### 1753#       发表于 2024-12-31 22:43
+
+<blockquote>线程召唤使 发表于 2024-12-31 22:26
+留美酱，水魔没有解决问题，而且很可能进一步错判。
+
+先说一点00的问题真不只是剧场版的问题。
+</blockquote>
+还真是，既不认真，也不勇敢，还不花钱，确实一个都对不上号
+
+*****
+
+####  RE㐅ia  
+##### 1754#       发表于 2024-12-31 22:43
+
+<blockquote>罥索GFFF 发表于 2024-12-31 22:42
+正剧从第二集开始崩到第十三集，特别是牢四的大脸</blockquote>
+第二集牢4那个马脸让期待了那么久的我直接幻灭了。好像bd也没修md
+
+*****
+
+####  复活赛3比0  
+##### 1755#       发表于 2024-12-31 22:47
+
+代便还有试错的机会，其他原创萝卜，不整活就大概率入土<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刺客ares  
+##### 1756#       发表于 2024-12-31 22:48
+
+<blockquote>RE㐅ia 发表于 2024-12-31 22:19
+笑死</blockquote>
+鹤卷gg好不容易搞个大机器人动画，这不搞个大女主明日香2.0超度地缚灵香党啊，我知道你超想干的（
+
+*****
+
+####  猪突猛进R  
+##### 1757#       发表于 2024-12-31 22:52
+
+B站跨年晚会居然有CCA的BL the time<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RE㐅ia  
+##### 1758#       发表于 2024-12-31 23:04
+
+<blockquote>猪突猛进R 发表于 2024-12-31 22:52
+B站跨年晚会居然有CCA的BL the time</blockquote>
+大老远跑来也不来收freedom
+
+*****
+
+####  番茄牛奶  
+##### 1759#       发表于 2024-12-31 23:05
+
+不上映的懒得打广告了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刺客ares  
+##### 1760#       发表于 2024-12-31 23:06
+
+上映了肯定会唱freedom吧（
+
+
+*****
+
+####  0aleph37  
+##### 1761#       发表于 2024-12-31 23:11
+
+每天一张先行图，万代做得到吗？
+<img src="https://p.sda1.dev/21/3c1256311ded4d6dbd21e94c7b795aa0/GgIsGltbYAM31Su.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  番茄牛奶  
+##### 1762#       发表于 2024-12-31 23:15
+
+经典边角料挤牙膏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这人设细看还挺潮的
+
+*****
+
+####  刺客ares  
+##### 1763#       发表于 2024-12-31 23:15
+
+<blockquote>0aleph37 发表于 2024-12-31 23:11
+每天一张先行图，万代做得到吗？</blockquote>
+可爱捏
+
+女主的特色化设计就是红色新月耳钉了吧
+
+*****
+
+####  RE㐅ia  
+##### 1764#       发表于 2024-12-31 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67075248&amp;ptid=2209276" target="_blank">0aleph37 发表于 2024-12-31 23:11</a>
+
+每天一张先行图，万代做得到吗？</blockquote>
+我已经开始觉得17号之前他们屁都不会放一个了
+
+*****
+
+####  Gysumitka  
+##### 1765#       发表于 2024-12-31 23:18
+
+没贺图直接开始倒计时吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  kisstv22  
+##### 1766#       发表于 2024-12-31 23:30
+
+人设还行吧，虽然个人认为很普通
+
+*****
+
+####  wasssf  
+##### 1767#       发表于 2024-12-31 23:31
+
+人设感觉是种之后最成功的 其次是g复国
+
+*****
+
+####  刺客ares  
+##### 1768#       发表于 2024-12-31 23:38
+
+立绘画的太难绷了，尤其是妮娅安和修司，让我想起一些黑鼻狸猫（
+
+片内动起来仨人效果都不错
+
+*****
+
+####  罥索GFFF  
+##### 1769#       发表于 2024-12-31 23:42
+
+<blockquote>wasssf 发表于 2024-12-31 23:31
+人设感觉是种之后最成功的 其次是g复国</blockquote>
+没什么特点，就是可爱罢了，g复国比这破宝可梦人设强多了
+
+*****
+
+####  创始’’’天翔  
+##### 1770#       发表于 2024-12-31 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67074707&amp;ptid=2209276" target="_blank">线程召唤使 发表于 2024-12-31 22:26</a>
+
+留美酱，水魔没有解决问题，而且很可能进一步错判。
+
+先说一点00的问题真不只是剧场版的问题。</blockquote>
+现在的日升也就只能做出水魔这样的作品了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ティグル  
+##### 1771#       发表于 2024-12-31 23:48
+
+V的问题是卖不了敌方机（不是轮胎就是牛魔王要么苍蝇人谁买）
+
+你要说买主角机的凯子还是够多的，2V也不是没被炒过
+
+*****
+
+####  wasssf  
+##### 1772#       发表于 2024-12-31 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67075613&amp;ptid=2209276" target="_blank">罥索GFFF 发表于 2024-12-31 23:42</a>
+
+没什么特点，就是可爱罢了，g复国比这破宝可梦人设强多了</blockquote>
+我感觉复国的人设就2点 1.主角感觉都是这个画风下的路人，像有名字的重要人物的反而在敌方2.感觉人设有点不适应画椭圆眼睛，既不像以前的也不像后来的，有点不协调
+
+*****
+
+####  刺客ares  
+##### 1773#       发表于 2024-12-31 23:53
+
+这不是找了有实绩的khara来做吗
+
+自己做不好就把ip交给能做大机器人的工作室吧
+
+高达游戏也外包给fs（
+
+*****
+
+####  岸波白野扎比子  
+##### 1774#       发表于 2025-1-1 00:00
+
+虽然我也觉得认真讲故事才是重要的，但就我个人感觉，就这个短视频当道的时代，讲些意义不明图一乐的东西才有人爱看，日本人更喜欢图一乐不上价值观的东西
+
+*****
+
+####  岸波白野扎比子  
+##### 1775#       发表于 2025-1-1 00:03
+
+ 本帖最后由 岸波白野扎比子 于 2025-1-1 00:05 编辑 
+
+可能跟爱看短视频稍有不同，但是我确实感觉日本现在更爱图一乐，而不是那种很严肃很有逻辑的东西
+
+*****
+
+####  RE㐅ia  
+##### 1776#       发表于 2025-1-1 00:07
+
+再怎么搞怪归根结底也是要去写个好故事的。电锯人1抽象只是在于表面而非内核。续作后头只剩下抽象了讨论度一下子不就下去了
+
+*****
+
+####  创始’’’天翔  
+##### 1777#       发表于 2025-1-1 01:13
+
+推子不是挺火的么，我看也不像有什么深刻内涵
+
+<img src="https://img.saraba1st.com/forum/202501/01/011341a5nx5hqe5jtesh5x.png" referrerpolicy="no-referrer">
+
+<strong>7cfa626a639cafe05d552e7a12a1c12f6ed893efc7a91d230f711bfc8250c3d5.0.PNG</strong> (420 Bytes, 下载次数: 0)
+
+下载附件
+
+2025-1-1 01:13 上传
+
+*****
+
+####  RE㐅ia  
+##### 1778#       发表于 2025-1-1 01:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67076461&amp;ptid=2209276" target="_blank">创始’’’天翔 发表于 2025-1-1 01:13</a>
+
+推子不是挺火的么，我看也不像有什么深刻内涵</blockquote>
+虽然我完全没看但中篇风评我记得不赖的吧？加上动画制作也算得上高质量能火也正常。漫画后期坠毁那就是黑红了
+
+*****
+
+####  刺客ares  
+##### 1779#       发表于 2025-1-1 01:34
+
+<blockquote>创始’’’天翔 发表于 2025-1-1 01:13
+推子不是挺火的么，我看也不像有什么深刻内涵</blockquote>
+推子是Y姓组合巅峰发挥引流+大赤开局噱头编排巅峰，后期因为讲不好故事所以越来越烂，结尾彻底烂透了
+
+说实话推子的轨迹和泥水挺像的，区别在于水魔有基础大IP打底，最后成功服务了部分客群，所以作品海外能兜住八分，后续还能搞衍生
+
+推子原创起底，大赤口碑一烂没人能兜底了，最后成功得罪了所有人，所以摔在地上落个粉碎
+
+*****
+
+####  刺客ares  
+##### 1780#       发表于 2025-1-1 01:41
+
+虽然我不太喜欢咬手臂，但不得不说他们的引流能力超强，水魔推子fll连续三个大tie都是年度级的
+
+gqx谁来tie还有两周揭晓，人肯定是索系出，能是熊光最好，不是也找个能撑得起来的吧
+
+*****
+
+####  xunit  
+##### 1781#       发表于 2025-1-1 01:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67075701&amp;ptid=2209276" target="_blank">刺客ares 发表于 2024-12-31 23:53</a>
+这不是找了有实绩的khara来做吗
+
+自己做不好就把ip交给能做大机器人的工作室吧
+
+高达游戏也外包给fs（ ...</blockquote>
+也不是没外包给fs过，当年独角兽就让fs做了PS3游戏，不过当时销量不咋地
+
+*****
+
+####  RE㐅ia  
+##### 1782#       发表于 2025-1-1 02:02
+
+<blockquote>刺客ares 发表于 2025-1-1 01:34
+推子是Y姓组合巅峰发挥引流+大赤开局噱头编排巅峰，后期因为讲不好故事所以越来越烂，结尾彻底烂透了
+
+说 ...</blockquote>
+
+外网给水魔兜底的真得是外网豚豚吧。单体战斗力和包容度比国内的强多了
+
+*****
+
+####  刺客ares  
+##### 1783#       发表于 2025-1-1 02:19
+
+<blockquote>RE㐅ia 发表于 2025-1-1 02:02
+外网给水魔兜底的真得是外网豚豚吧。单体战斗力和包容度比国内的强多了 ...</blockquote>
+外网豚豚毕竟真搞lgbt站台和作品武器化，而厨厨盖米anti都盖到840条了，相当于840000条回复，尽显无能狂怒，斗争力度远超国内
+
+目前两边都有外溢到gqx的趋势，有意思的是外网目前认为本作豚豚赢面大，厨厨看到一二番都是女已经触发🍄ptsd撤退了，和国内形势不太一样
+
+不过豚厨大战的东西当消遣看还行，本作感情戏都是边角料，先把意识屁股放对才是重点
+
+*****
+
+####  罥索GFFF  
+##### 1784#       发表于 2025-1-1 02:33
+
+<blockquote>刺客ares 发表于 2025-1-1 02:19
+外网豚豚毕竟真搞lgbt站台和作品武器化，而厨厨盖米anti都盖到840条了，相当于840000条回复，尽显无能狂 ...</blockquote>
+
+诶，那边和国内是完全反过来的吗
+
+*****
+
+####  岸波白野扎比子  
+##### 1785#       发表于 2025-1-1 02:40
+
+ 本帖最后由 岸波白野扎比子 于 2025-1-1 02:45 编辑 
+
+传统番位不都是男一一番男二二番女主三番吗？这个是同理吧。
+
+不过如果是我是不敢这么搞番位的，我觉得肯定会打起来
+
+*****
+
+####  cayon  
+##### 1786#       发表于 2025-1-1 02:45
+
+传统番位女主配开红色机吗
+
+*****
+
+####  罥索GFFF  
+##### 1787#       发表于 2025-1-1 02:50
+
+<blockquote>岸波白野扎比子 发表于 2025-1-1 02:40
+传统番位不都是男一一番男二二番女主三番吗？这个是同理吧。
+
+不过如果是我是不敢这么搞番位的，我觉得肯定 ...</blockquote>
+水魔时期狸猫是男主位，米一个人拿了女主和男二位
+
+真按传统来就是红毛男主，黑毛女主，牢修男二。
+
+*****
+
+####  RE㐅ia  
+##### 1788#       发表于 2025-1-1 02:51
+
+ 本帖最后由 RE㐅ia 于 2025-1-1 03:00 编辑 
+<blockquote>cayon 发表于 2025-1-1 02:45
+传统番位女主配开红色机吗</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202501/01/030017rztzllziljuizv6l.png" referrerpolicy="no-referrer">
+
+<strong>CBCEA2E6-1888-481F-A14C-F8A7900E1348.png</strong> (274.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 03:00 上传
+
+<img src="https://img.saraba1st.com/forum/202501/01/030017tskkbpdzdhbqmmzz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>833E74E0-741D-4100-B813-3182BBE48198.jpeg</strong> (119.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 03:00 上传
+
+<img src="https://img.saraba1st.com/forum/202501/01/030017oyong2tyo1gsuod2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>4CCEC411-51D4-4D18-941A-047FF8B92B10.jpeg</strong> (149.37 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 03:00 上传
+
+*****
+
+####  罥索GFFF  
+##### 1789#       发表于 2025-1-1 02:52
+
+<blockquote>岸波白野扎比子 发表于 2025-1-1 02:40
+传统番位不都是男一一番男二二番女主三番吗？这个是同理吧。
+
+不过如果是我是不敢这么搞番位的，我觉得肯定 ...</blockquote>
+
+关键黑毛一个不开ms的怎么上男二位，除非和水一样女主和男二是一个人
+
+*****
+
+####  岸波白野扎比子  
+##### 1790#       发表于 2025-1-1 02:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67076765&amp;ptid=2209276" target="_blank">罥索GFFF 发表于 2025-1-1 02:52</a>
+
+关键黑毛一个不开ms的怎么上男二位，除非和水一样女主和男二是一个人</blockquote>
+革命机和鲁鲁修（）
+
+*****
+
+####  岸波白野扎比子  
+##### 1791#       发表于 2025-1-1 03:00
+
+本来想说说不定会给女二MA或者其他安排，总觉得以前也这么展望过，陷入了莫比乌斯呢（
+
+*****
+
+####  Piano-Forest  
+##### 1792#         楼主| 发表于 2025-1-1 10:24
+
+[https://x.com/quaternionxxx/status/1874108264495108384](https://x.com/quaternionxxx/status/1874108264495108384)
+<img src="https://p.sda1.dev/21/8839c39e3ca5a45a004ce28eb07f26dd/20250101_102428.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  番茄牛奶  
+##### 1793#       发表于 2025-1-1 10:40
+
+ 本帖最后由 番茄牛奶 于 2025-1-1 10:42 编辑 
+
+所以水魔，怎么不给你米蹭一台ms或者高达，多卖台胶不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+*****
+
+####  罥索GFFF  
+##### 1794#       发表于 2025-1-1 10:43
+
+把男的去掉
+
+<img src="https://img.saraba1st.com/forum/202501/01/104344oi0in1liytcw9ctn.jpg" referrerpolicy="no-referrer">
+
+<strong>1000077924.jpg</strong> (350.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 10:43 上传
+
+，画面好多了
+
+*****
+
+####  Sliurus  
+##### 1795#       发表于 2025-1-1 11:08
+
+怎么作品楼也开始像百合楼一样p掉男人了
+
+*****
+
+####  创始’’’天翔  
+##### 1796#       发表于 2025-1-1 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67076534&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-1 01:27</a>
+
+虽然我完全没看但中篇风评我记得不赖的吧？加上动画制作也算得上高质量能火也正常。漫画后期坠毁那就是黑 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我记得很早就开始骂cbm看管人看傻了
+
+*****
+
+####  刺客ares  
+##### 1797#       发表于 2025-1-1 11:16
+
+<blockquote>罥索GFFF 发表于 2025-1-1 02:33
+诶，那边和国内是完全反过来的吗</blockquote>
+外网厨厨聚集地捕捉到女一二番，身高差（？），主视觉图无男，少革staff，双人周边，pv大量同框这些关键词之后就立刻退场了
+
+对比下来这次国内是保守的那边
+

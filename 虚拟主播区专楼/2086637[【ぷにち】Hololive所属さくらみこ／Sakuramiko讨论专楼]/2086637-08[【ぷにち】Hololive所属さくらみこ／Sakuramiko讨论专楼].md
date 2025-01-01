@@ -1865,3 +1865,943 @@ taiyaki就不说了已经确定2月份出联动活动了，而且之前暗示过
 
 东京站内展示窗
 
+
+*****
+
+####  holoan  
+##### 10512#         楼主| 发表于 2024-12-29 03:25
+
+<img src="https://img.saraba1st.com/forum/202412/29/032530iy1mc5y1zazxfyc1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (19.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-29 03:25 上传
+
+*****
+
+####  holoan  
+##### 10513#         楼主| 发表于 2024-12-29 16:17
+
+难怪凌晨的space说今天回来的直播有可能长有可能短，我还在想播什么玩意会这么的，原来还要赌
+
+你手上今年还欠着一堆东西没播吧，明天一天全播完？
+
+*****
+
+####  holoan  
+##### 10514#         楼主| 发表于 2024-12-29 17:10
+
+<img src="https://img.saraba1st.com/forum/202412/29/171044b2okboa9q0bpb33i.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (19.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-29 17:10 上传
+
+<img src="https://img.saraba1st.com/forum/202412/29/171056cyfo56n20oomdqyz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-29 17:10 上传
+
+*****
+
+####  holoan  
+##### 10515#         楼主| 发表于 2024-12-30 10:03
+
+基于以前玩家的反馈，游戏出BUG永远出不了GOD的可能性是存在的
+
+*****
+
+####  holoan  
+##### 10516#         楼主| 发表于 2024-12-30 13:17
+
+<img src="https://img.saraba1st.com/forum/202412/30/131710ep7z0h1wbeb8gj1b.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (96.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-30 13:17 上传
+
+*****
+
+####  holoan  
+##### 10517#         楼主| 发表于 2024-12-30 13:27
+
+<img src="https://img.saraba1st.com/forum/202412/30/132637w3c223eo822aoqfm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (40.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-30 13:26 上传
+
+我吊这什么bug播放量？
+
+5小时的播放量只比12小时的少20万？
+
+*****
+
+####  holoan  
+##### 10518#         楼主| 发表于 2024-12-30 19:14
+
+mikodanye的那首歌MV的原画作监DELF在C105出了原画集，后续会上通贩可以买
+
+应该有人会有兴趣
+
+<img src="https://img.saraba1st.com/forum/202412/30/191350k2qajeee2g8022m9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (86.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-30 19:13 上传
+
+*****
+
+####  holoan  
+##### 10519#         楼主| 发表于 2024-12-30 20:07
+
+<img src="https://img.saraba1st.com/forum/202412/30/200658iz3blqr5smh6u645.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (233.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-30 20:06 上传
+
+*****
+
+####  holoan  
+##### 10520#         楼主| 发表于 2024-12-30 20:10
+
+<img src="https://img.saraba1st.com/forum/202412/30/200918ka2rfydh1c0ina99.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (9.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-30 20:09 上传
+
+同接7400，参加率一半不到
+
+草帽啊……
+
+
+*****
+
+####  holoan  
+##### 10521#         楼主| 发表于 2024-12-30 20:12
+
+我看了一下我都5年半了，等新徽章追加的时候都6年了
+
+*****
+
+####  holoan  
+##### 10522#         楼主| 发表于 2024-12-30 20:18
+
+<img src="https://img.saraba1st.com/forum/202412/30/201758fwxx4nwvivq4nxfg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (225.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-30 20:17 上传
+
+表情
+
+*****
+
+####  holoan  
+##### 10523#         楼主| 发表于 2024-12-30 20:19
+
+ 本帖最后由 holoan 于 2024-12-30 20:33 编辑 
+
+<img src="https://img.saraba1st.com/forum/202412/30/201859j0o2fooqzktz2tmk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (231.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-30 20:18 上传
+
+<img src="https://img.saraba1st.com/forum/202412/30/203310bhoq5ooll1uddyu5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.18 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-30 20:33 上传
+
+*****
+
+####  holoan  
+##### 10524#         楼主| 发表于 2024-12-30 20:47
+
+调查问卷5000人
+
+*****
+
+####  holoan  
+##### 10525#         楼主| 发表于 2024-12-30 20:48
+
+<img src="https://img.saraba1st.com/forum/202412/30/204733ncwwauuttcr7cs80.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (219.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-30 20:47 上传
+
+真实：
+
+<img src="https://img.saraba1st.com/forum/202412/30/204815n0gldosgbligqc0i.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (12.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-30 20:48 上传
+
+*****
+
+####  holoan  
+##### 10526#         楼主| 发表于 2024-12-30 20:49
+
+排掉SB们的61.2%，排第一的还是idol
+
+*****
+
+####  holoan  
+##### 10527#         楼主| 发表于 2024-12-30 20:51
+
+<img src="https://img.saraba1st.com/forum/202412/30/205105df23zhcbbeu2cu2r.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (197.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-30 20:51 上传
+
+gachi爱是啥？
+
+*****
+
+####  holoan  
+##### 10528#         楼主| 发表于 2024-12-30 20:53
+
+七字母嘛意料之内
+
+<img src="https://img.saraba1st.com/forum/202412/30/205337riphhp1off0hmzbb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (206.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-30 20:53 上传
+
+*****
+
+####  holoan  
+##### 10529#         楼主| 发表于 2024-12-30 20:57
+
+ASMR<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202412/30/205745kbvw52lpjj8gwbtb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (211.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-30 20:57 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| rs5621| + 1|还得是心音|
+
+查看全部评分
+
+*****
+
+####  holoan  
+##### 10530#         楼主| 发表于 2024-12-30 23:21
+
+<img src="https://img.saraba1st.com/forum/202412/30/232122i5jz1djdvzkao4i4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-30 23:21 上传
+
+*****
+
+####  rs5621  
+##### 10531#       发表于 2024-12-31 00:37
+
+<img src="https://img.saraba1st.com/forum/202412/31/003708td1ou5p5mlltuqo1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (226.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 00:37 上传
+
+@s_sequentia
+
+*****
+
+####  holoan  
+##### 10532#         楼主| 发表于 2024-12-31 16:05
+
+今年最后的みこきゅん
+
+*****
+
+####  holoan  
+##### 10533#         楼主| 发表于 2024-12-31 16:11
+
+嗓子跟koyo一样NB,2天播了30小时
+
+*****
+
+####  holoan  
+##### 10534#         楼主| 发表于 2024-12-31 16:53
+
+ 本帖最后由 holoan 于 2024-12-31 17:01 编辑 
+
+极端讽刺的结果<blockquote>予選A投票結果
+
+さくらみこ＆白上ふぶき＆赤いはあと 22万票
+
+フワワ・アビスガード＆モココ・アビスガード 14万票
+
+白銀ノエル＆天音かなた 8万票</blockquote>
+
+*****
+
+####  holoan  
+##### 10535#         楼主| 发表于 2024-12-31 17:11
+
+アホ毛三姉妹
+
+<img src="https://img.saraba1st.com/forum/202412/31/171136ohc4eg4hl4fg8bm1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (100.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 17:11 上传
+
+*****
+
+####  holoan  
+##### 10536#         楼主| 发表于 2024-12-31 17:34
+
+<img src="https://img.saraba1st.com/forum/202412/31/173423ow6un6r8aa0599y6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (20.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 17:34 上传
+
+*****
+
+####  holoan  
+##### 10537#         楼主| 发表于 2024-12-31 20:57
+
+<img src="https://img.saraba1st.com/forum/202412/31/205750xnefz973xv37faxb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (227.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 20:57 上传
+
+*****
+
+####  holoan  
+##### 10538#         楼主| 发表于 2024-12-31 22:23
+
+<img src="https://img.saraba1st.com/forum/202412/31/222320tk0r3rv0rzwyzvro.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (221.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 22:23 上传
+
+你瞅啥
+
+*****
+
+####  holoan  
+##### 10539#         楼主| 发表于 2024-12-31 22:26
+
+刚才直播说跨年live有点奇怪的东西
+
+应该不是指这两首动物曲吧，后面还有什么玩意
+
+*****
+
+####  holoan  
+##### 10540#         楼主| 发表于 2024-12-31 22:33
+
+<img src="https://img.saraba1st.com/forum/202412/31/223325vvtqq4e4pnvvld6q.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (80.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 22:33 上传
+
+*****
+
+####  holoan  
+##### 10541#         楼主| 发表于 2024-12-31 22:57
+
+草
+
+星街在外你就放肆了是吧
+
+*****
+
+####  holoan  
+##### 10542#         楼主| 发表于 2024-12-31 23:11
+
+<img src="https://img.saraba1st.com/forum/202412/31/231005lbzd9ndvxlwflxfr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (322.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 23:10 上传
+
+正经唱曲子练得很好，跟唱stellea的时候一样
+
+反而说这个JPENID的组合也是相当罕见
+
+*****
+
+####  holoan  
+##### 10543#         楼主| 发表于 2024-12-31 23:30
+
+live收录时间可以追溯到12/11，也就是那个晚上fbk开的突发线下联动直播
+
+*****
+
+####  holoan  
+##### 10544#         楼主| 发表于 2024-12-31 23:35
+
+按第三方统计2024年直播总时长刚好破千小时，这还是不计入会限的长度，会限总时长也能进前10
+
+*****
+
+####  holoan  
+##### 10545#         楼主| 发表于 2024-12-31 23:35
+
+突发直播
+
+*****
+
+####  holoan  
+##### 10546#         楼主| 发表于 2024-12-31 23:50
+
+<img src="https://img.saraba1st.com/forum/202412/31/235025z25993tnfag5k4ts.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (101.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 23:50 上传
+
+*****
+
+####  rs5621  
+##### 10547#       发表于 2025-1-1 00:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今年的日出播又要熬死多少人
+
+
+*****
+
+####  holoan  
+##### 10512#         楼主| 发表于 2024-12-29 03:25
+
+<img src="https://img.saraba1st.com/forum/202412/29/032530iy1mc5y1zazxfyc1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (19.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-29 03:25 上传
+
+*****
+
+####  holoan  
+##### 10513#         楼主| 发表于 2024-12-29 16:17
+
+难怪凌晨的space说今天回来的直播有可能长有可能短，我还在想播什么玩意会这么的，原来还要赌
+
+你手上今年还欠着一堆东西没播吧，明天一天全播完？
+
+*****
+
+####  holoan  
+##### 10514#         楼主| 发表于 2024-12-29 17:10
+
+<img src="https://img.saraba1st.com/forum/202412/29/171044b2okboa9q0bpb33i.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (19.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-29 17:10 上传
+
+<img src="https://img.saraba1st.com/forum/202412/29/171056cyfo56n20oomdqyz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-29 17:10 上传
+
+*****
+
+####  holoan  
+##### 10515#         楼主| 发表于 2024-12-30 10:03
+
+基于以前玩家的反馈，游戏出BUG永远出不了GOD的可能性是存在的
+
+*****
+
+####  holoan  
+##### 10516#         楼主| 发表于 2024-12-30 13:17
+
+<img src="https://img.saraba1st.com/forum/202412/30/131710ep7z0h1wbeb8gj1b.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (96.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-30 13:17 上传
+
+*****
+
+####  holoan  
+##### 10517#         楼主| 发表于 2024-12-30 13:27
+
+<img src="https://img.saraba1st.com/forum/202412/30/132637w3c223eo822aoqfm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (40.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-30 13:26 上传
+
+我吊这什么bug播放量？
+
+5小时的播放量只比12小时的少20万？
+
+*****
+
+####  holoan  
+##### 10518#         楼主| 发表于 2024-12-30 19:14
+
+mikodanye的那首歌MV的原画作监DELF在C105出了原画集，后续会上通贩可以买
+
+应该有人会有兴趣
+
+<img src="https://img.saraba1st.com/forum/202412/30/191350k2qajeee2g8022m9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (86.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-30 19:13 上传
+
+*****
+
+####  holoan  
+##### 10519#         楼主| 发表于 2024-12-30 20:07
+
+<img src="https://img.saraba1st.com/forum/202412/30/200658iz3blqr5smh6u645.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (233.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-30 20:06 上传
+
+*****
+
+####  holoan  
+##### 10520#         楼主| 发表于 2024-12-30 20:10
+
+<img src="https://img.saraba1st.com/forum/202412/30/200918ka2rfydh1c0ina99.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (9.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-30 20:09 上传
+
+同接7400，参加率一半不到
+
+草帽啊……
+
+
+*****
+
+####  holoan  
+##### 10521#         楼主| 发表于 2024-12-30 20:12
+
+我看了一下我都5年半了，等新徽章追加的时候都6年了
+
+*****
+
+####  holoan  
+##### 10522#         楼主| 发表于 2024-12-30 20:18
+
+<img src="https://img.saraba1st.com/forum/202412/30/201758fwxx4nwvivq4nxfg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (225.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-30 20:17 上传
+
+表情
+
+*****
+
+####  holoan  
+##### 10523#         楼主| 发表于 2024-12-30 20:19
+
+ 本帖最后由 holoan 于 2024-12-30 20:33 编辑 
+
+<img src="https://img.saraba1st.com/forum/202412/30/201859j0o2fooqzktz2tmk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (231.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-30 20:18 上传
+
+<img src="https://img.saraba1st.com/forum/202412/30/203310bhoq5ooll1uddyu5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.18 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-30 20:33 上传
+
+*****
+
+####  holoan  
+##### 10524#         楼主| 发表于 2024-12-30 20:47
+
+调查问卷5000人
+
+*****
+
+####  holoan  
+##### 10525#         楼主| 发表于 2024-12-30 20:48
+
+<img src="https://img.saraba1st.com/forum/202412/30/204733ncwwauuttcr7cs80.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (219.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-30 20:47 上传
+
+真实：
+
+<img src="https://img.saraba1st.com/forum/202412/30/204815n0gldosgbligqc0i.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (12.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-30 20:48 上传
+
+*****
+
+####  holoan  
+##### 10526#         楼主| 发表于 2024-12-30 20:49
+
+排掉SB们的61.2%，排第一的还是idol
+
+*****
+
+####  holoan  
+##### 10527#         楼主| 发表于 2024-12-30 20:51
+
+<img src="https://img.saraba1st.com/forum/202412/30/205105df23zhcbbeu2cu2r.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (197.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-30 20:51 上传
+
+gachi爱是啥？
+
+*****
+
+####  holoan  
+##### 10528#         楼主| 发表于 2024-12-30 20:53
+
+七字母嘛意料之内
+
+<img src="https://img.saraba1st.com/forum/202412/30/205337riphhp1off0hmzbb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (206.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-30 20:53 上传
+
+*****
+
+####  holoan  
+##### 10529#         楼主| 发表于 2024-12-30 20:57
+
+ASMR<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202412/30/205745kbvw52lpjj8gwbtb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (211.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-30 20:57 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| rs5621| + 1|还得是心音|
+
+查看全部评分
+
+*****
+
+####  holoan  
+##### 10530#         楼主| 发表于 2024-12-30 23:21
+
+<img src="https://img.saraba1st.com/forum/202412/30/232122i5jz1djdvzkao4i4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-30 23:21 上传
+
+*****
+
+####  rs5621  
+##### 10531#       发表于 2024-12-31 00:37
+
+<img src="https://img.saraba1st.com/forum/202412/31/003708td1ou5p5mlltuqo1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (226.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 00:37 上传
+
+@s_sequentia
+
+*****
+
+####  holoan  
+##### 10532#         楼主| 发表于 2024-12-31 16:05
+
+今年最后的みこきゅん
+
+*****
+
+####  holoan  
+##### 10533#         楼主| 发表于 2024-12-31 16:11
+
+嗓子跟koyo一样NB,2天播了30小时
+
+*****
+
+####  holoan  
+##### 10534#         楼主| 发表于 2024-12-31 16:53
+
+ 本帖最后由 holoan 于 2024-12-31 17:01 编辑 
+
+极端讽刺的结果<blockquote>予選A投票結果
+
+さくらみこ＆白上ふぶき＆赤いはあと 22万票
+
+フワワ・アビスガード＆モココ・アビスガード 14万票
+
+白銀ノエル＆天音かなた 8万票</blockquote>
+
+*****
+
+####  holoan  
+##### 10535#         楼主| 发表于 2024-12-31 17:11
+
+アホ毛三姉妹
+
+<img src="https://img.saraba1st.com/forum/202412/31/171136ohc4eg4hl4fg8bm1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (100.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 17:11 上传
+
+*****
+
+####  holoan  
+##### 10536#         楼主| 发表于 2024-12-31 17:34
+
+<img src="https://img.saraba1st.com/forum/202412/31/173423ow6un6r8aa0599y6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (20.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 17:34 上传
+
+*****
+
+####  holoan  
+##### 10537#         楼主| 发表于 2024-12-31 20:57
+
+<img src="https://img.saraba1st.com/forum/202412/31/205750xnefz973xv37faxb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (227.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 20:57 上传
+
+*****
+
+####  holoan  
+##### 10538#         楼主| 发表于 2024-12-31 22:23
+
+<img src="https://img.saraba1st.com/forum/202412/31/222320tk0r3rv0rzwyzvro.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (221.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 22:23 上传
+
+你瞅啥
+
+*****
+
+####  holoan  
+##### 10539#         楼主| 发表于 2024-12-31 22:26
+
+刚才直播说跨年live有点奇怪的东西
+
+应该不是指这两首动物曲吧，后面还有什么玩意
+
+*****
+
+####  holoan  
+##### 10540#         楼主| 发表于 2024-12-31 22:33
+
+<img src="https://img.saraba1st.com/forum/202412/31/223325vvtqq4e4pnvvld6q.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (80.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 22:33 上传
+
+*****
+
+####  holoan  
+##### 10541#         楼主| 发表于 2024-12-31 22:57
+
+草
+
+星街在外你就放肆了是吧
+
+*****
+
+####  holoan  
+##### 10542#         楼主| 发表于 2024-12-31 23:11
+
+<img src="https://img.saraba1st.com/forum/202412/31/231005lbzd9ndvxlwflxfr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (322.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 23:10 上传
+
+正经唱曲子练得很好，跟唱stellea的时候一样
+
+反而说这个JPENID的组合也是相当罕见
+
+*****
+
+####  holoan  
+##### 10543#         楼主| 发表于 2024-12-31 23:30
+
+live收录时间可以追溯到12/11，也就是那个晚上fbk开的突发线下联动直播
+
+*****
+
+####  holoan  
+##### 10544#         楼主| 发表于 2024-12-31 23:35
+
+按第三方统计2024年直播总时长刚好破千小时，这还是不计入会限的长度，会限总时长也能进前10
+
+*****
+
+####  holoan  
+##### 10545#         楼主| 发表于 2024-12-31 23:35
+
+突发直播
+
+*****
+
+####  holoan  
+##### 10546#         楼主| 发表于 2024-12-31 23:50
+
+<img src="https://img.saraba1st.com/forum/202412/31/235025z25993tnfag5k4ts.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (101.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 23:50 上传
+
+*****
+
+####  rs5621  
+##### 10547#       发表于 2025-1-1 00:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今年的日出播又要熬死多少人
+

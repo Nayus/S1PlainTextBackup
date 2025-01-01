@@ -5831,3 +5831,3145 @@ AE本，ban了学姐继续强抬公主。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">萌新数了数好像21个 福袋-2 19个  歪的看不出来也不记得了
 
+
+*****
+
+####  v22325  
+##### 15782#       发表于 2024-12-30 21:12
+
+今年只new了13个  拖后腿了！
+
+*****
+
+####  qixinno2  
+##### 15783#       发表于 2024-12-30 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67065109&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-30 21:02</a>
+
+萌新数了数好像21个 福袋-2 19个  歪的看不出来也不记得了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是萌新最狗了 欧 羡慕
+
+*****
+
+####  alucardcz  
+##### 15784#       发表于 2024-12-30 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67065158&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-12-30 21:12</a>
+
+还是萌新最狗了 欧 羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">敢不敢上图 你肯定欧！
+
+*****
+
+####  森兰丸  
+##### 15785#       发表于 2024-12-30 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67065109&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-30 21:02</a>
+
+萌新数了数好像21个 福袋-2 19个  歪的看不出来也不记得了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狗萌新从不让人失望
+
+欧 羡慕
+
+*****
+
+####  qixinno2  
+##### 15786#       发表于 2024-12-30 22:03
+
+ 本帖最后由 qixinno2 于 2024-12-30 22:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67065180&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-30 21:15</a>
+
+敢不敢上图 你肯定欧！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">有什么不敢的 又刷了90石还是没出月批 梅芙是换的
+
+<img src="https://img.saraba1st.com/forum/202412/30/220348a3hbkgk383qhv0kb.png" referrerpolicy="no-referrer">
+
+<strong>[~P)Z)}J]PNA`%X@]W_IW94.png</strong> (1.54 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-30 22:03 上传
+
+*****
+
+####  rooarr  
+##### 15787#       发表于 2024-12-30 22:21
+
+7个new，福袋-2，送的-1，2024年就抽到4个<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 15788#       发表于 2024-12-30 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67065429&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-12-30 22:03</a>
+
+有什么不敢的 又刷了90石还是没出月批 梅芙是换的</blockquote>
+有青有珠 欧！
+
+*****
+
+####  qixinno2  
+##### 15789#       发表于 2024-12-30 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67065586&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-30 22:36</a>
+
+有青有珠 欧！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全是1宝仓库吃灰的 不如狗萌新NEW19个
+
+*****
+
+####  希望之花  
+##### 15790#       发表于 2024-12-30 22:55
+
+今年都是厨力抽卡，四宝水艾蕾已经满足了，还出了个学姐，度过了相对成功的下半年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+接下来就攒石头补满宝了
+
+*****
+
+####  岸浪白野  
+##### 15791#       发表于 2024-12-30 22:59
+
+这柱子的下降速度.....明天必响指了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 15792#       发表于 2024-12-30 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67065640&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-12-30 22:44</a>
+
+全是1宝仓库吃灰的 不如狗萌新NEW19个</blockquote>
+高贵的联动！ 1顶20！
+
+*****
+
+####  Jamaisvu  
+##### 15793#       发表于 2024-12-30 23:10
+
+6个小时打了二千万，三分之一，按这个效率的话明天中午十一点能打完。但问题现在是工作日，大部分人白天没空刷本...
+
+最后一天活动剧情还是限时的呢，明天下午五点前刷不完就只能打响指了...
+
+*****
+
+####  qixinno2  
+##### 15794#       发表于 2024-12-30 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67065741&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-30 23:00</a>
+
+高贵的联动！ 1顶20！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如狗萌新的一半
+
+*****
+
+####  qixinno2  
+##### 15795#       发表于 2024-12-30 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67065519&amp;ptid=2084912" target="_blank">rooarr 发表于 2024-12-30 22:21</a>
+
+7个new，福袋-2，送的-1，2024年就抽到4个</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">纯以NEW来说目前你是最惨的 不过估计你都是高宝吧
+
+*****
+
+####  rooarr  
+##### 15796#       发表于 2024-12-30 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67065891&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-12-30 23:30</a>
+
+纯以NEW来说目前你是最惨的 不过估计你都是高宝吧</blockquote>
+都是1宝，另外歪了4个而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之花  
+##### 15797#       发表于 2024-12-31 00:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">就产出来说其实今天的柱子更好些，还有额外的拉面兑换池，拉面大概两把掉落一个
+
+但是昨天已经刷爆了今天不想动了，而且突击预告说还有第二个柱子的确挺恶心的
+
+*****
+
+####  壳壳牛  
+##### 15798#       发表于 2024-12-31 00:10
+
+今年猛灌茶壶刷了不少羁绊石，就差年初的武尊和黑玛丽没出...
+除了青子上头氪了3单，其他都挺顺的...
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  qixinno2  
+##### 15799#       发表于 2024-12-31 00:19
+
+<blockquote>rooarr 发表于 2024-12-30 23:51
+都是1宝，另外歪了4个而已搞得我这一年都不想玩了，无限池都只刷了10池</blockquote>
+那确实有点惨 希望你明年变欧
+
+*****
+
+####  eilot  
+##### 15800#       发表于 2024-12-31 01:02
+
+ 本帖最后由 eilot 于 2024-12-31 01:04 编辑 
+
+希望活動最後一關不要再有甚麼戰鬥，1700就直接完結
+
+日常星期1和2又不是紅日還要來柱子，放工也另有節目，沒甚麼時間長時間開手遊
+
+看了商店，還有一大堆堅持不開放要等劇情完了才開，又不是從者升級素材，這種設計一直感到非常噁心
+
+
+*****
+
+####  壳壳牛  
+##### 15801#       发表于 2024-12-31 03:07
+
+又送10个茶壶...明天就过期...
+绝了...
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  jackyhuang  
+##### 15802#       发表于 2024-12-31 07:53
+
+还没过半，这下要打响指了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  森兰丸  
+##### 15803#       发表于 2024-12-31 08:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">送再多茶壶我也不会再刷一根啊....不然不就显得前天刷了100多根的自己很傻逼
+
+*****
+
+####  棍机凹升龙  
+##### 15804#       发表于 2024-12-31 09:22
+
+最后一天没事做反而可以刷刷<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沼蝇  
+##### 15805#       发表于 2024-12-31 09:51
+
+挖了快3单石头了，就歪了一个欧罗巴<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  サイトヒメア  
+##### 15806#       发表于 2024-12-31 09:54
+
+这么没逼数的运营真是奇观<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  quanlix  
+##### 15807#       发表于 2024-12-31 10:03
+
+打响指就没意思了，前有公主砸烂对话框后有志贵通穿血条那就很合理
+
+*****
+
+####  eilot  
+##### 15808#       发表于 2024-12-31 11:01
+
+7點起身時開了遊戲
+
+送了10個壺，和對方血量居然未過半...
+
+*****
+
+####  Jamaisvu  
+##### 15809#       发表于 2024-12-31 11:08
+
+昨晚11点有四千多万柱子，目前过去12小时，还剩二千多万柱子，照这个频率真得刷到晚上关活动<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+如果下午五点剧情真让志贵秒了猫姬，然后新年顺势实装落地，倒也是个好活儿...
+
+反正一剑一降的规律已经被麻婆打破了，志贵也是日本人 ，不算突兀...
+
+*****
+
+####  qixinno2  
+##### 15810#       发表于 2024-12-31 11:25
+
+推土机比较好奇会是幽默强度 还是跟公主学姐一样数值爆炸
+
+*****
+
+####  乾理央  
+##### 15811#       发表于 2024-12-31 11:32
+
+yls：规矩，就是用来打破的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我奶会空降一个从未在剧情里登场的外国从者
+
+*****
+
+####  eilot  
+##### 15812#       发表于 2024-12-31 13:44
+
+ 本帖最后由 eilot 于 2024-12-31 13:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67069469&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-12-31 11:25</a>
+
+推土机比较好奇会是幽默强度 还是跟公主学姐一样数值爆炸</blockquote>
+看抽還是送吧
+
+看兩儀式
+
+不過就算是抽的劍兩儀
+
+藍卡寶具但得1hits也有點...
+
+本身即死也不高只得60(除了OC，但OC5才100...看其他人OC2~3已經大幅升到超過100吧)，還要用技1幫手降對方即死耐性100%
+
+*****
+
+####  xiongxingyu  
+##### 15813#       发表于 2024-12-31 13:55
+
+柱子数量肉眼可见地开始掉了，yls的阴兵开始发力了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 15814#       发表于 2024-12-31 14:42
+
+<img src="https://img.saraba1st.com/forum/202412/31/144159jdammjikndnzzle5.jpg" referrerpolicy="no-referrer">
+
+<strong>23232.jpg</strong> (535.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 14:41 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">最后一天 all in！然而并没有奇迹 2024年就这样了
+
+*****
+
+####  ナルバレック  
+##### 15815#       发表于 2024-12-31 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67070625&amp;ptid=2084912" target="_blank">eilot 发表于 2024-12-31 13:44</a>
+
+看抽還是送吧
+
+看兩儀式
+
+不過就算是抽的劍兩儀</blockquote>
+看昨天发的姻缘，基本是三灵基合一的五星卡
+
+*****
+
+####  qixinno2  
+##### 15816#       发表于 2024-12-31 15:05
+
+<blockquote>alucardcz 发表于 2024-12-31 14:42
+最后一天 all in！然而并没有奇迹 2024年就这样了</blockquote>
+狗萌新太欧了 羡慕死了
+
+*****
+
+####  alucardcz  
+##### 15817#       发表于 2024-12-31 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67071254&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-12-31 15:05</a>
+
+狗萌新太欧了 羡慕死了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">全部加起来都不如你双联动！
+
+*****
+
+####  qixinno2  
+##### 15818#       发表于 2024-12-31 15:25
+
+<blockquote>alucardcz 发表于 2024-12-31 15:08
+全部加起来都不如你双联动！</blockquote>
+然而都是吃灰的一宝 不如狗萌新一点
+
+*****
+
+####  alucardcz  
+##### 15819#       发表于 2024-12-31 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67071498&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-12-31 15:25</a>
+
+然而都是吃灰的一宝 不如狗萌新一点</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说什么尬话 99%不都是吃灰的
+
+*****
+
+####  沼蝇  
+##### 15820#       发表于 2024-12-31 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67071044&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-31 14:42</a>
+最后一天 all in！然而并没有奇迹 2024年就这样了</blockquote>
+你怎么不留福袋的石头
+
+*****
+
+####  岸浪白野  
+##### 15821#       发表于 2024-12-31 15:44
+
+今天主线的最后1节是有圣杯送的，这段时间没上游戏打的真的会第一次不是咸了活动都能错过1个圣杯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 15822#       发表于 2024-12-31 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67071547&amp;ptid=2084912" target="_blank">沼蝇 发表于 2024-12-31 15:29</a>
+
+你怎么不留福袋的石头</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">福袋又不能用无偿石留啥？
+
+*****
+
+####  jackyhuang  
+##### 15823#       发表于 2024-12-31 16:11
+
+打响指了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  壳壳牛  
+##### 15824#       发表于 2024-12-31 16:15
+
+大概率还是5点结束吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ggyy0088  
+##### 15825#       发表于 2024-12-31 16:17
+
+不如等志贵一刀
+
+*****
+
+####  quanlix  
+##### 15826#       发表于 2024-12-31 16:33
+
+看隔壁计数没打响指吧
+
+*****
+
+####  qixinno2  
+##### 15827#       发表于 2024-12-31 16:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我心态爆炸了 刷的石头全都打水漂了
+
+<img src="https://img.saraba1st.com/forum/202412/31/165818u3mwh5l5p9pxxup5.png" referrerpolicy="no-referrer">
+
+<strong>FB[06X(OQLP3C808_YPU52X.png</strong> (14.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 16:58 上传
+
+*****
+
+####  alucardcz  
+##### 15828#       发表于 2024-12-31 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67072367&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-12-31 16:58</a>
+
+我心态爆炸了 刷的石头全都打水漂了</blockquote>
+蓝绿修改器启动！
+
+*****
+
+####  jackyhuang  
+##### 15829#       发表于 2024-12-31 17:04
+
+不是到5点结束吗，怎么还要打的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  琴酒  
+##### 15830#       发表于 2024-12-31 17:05
+
+活动主线不开了吗
+
+*****
+
+####  qixinno2  
+##### 15831#       发表于 2024-12-31 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67072425&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-31 17:03</a>
+
+蓝绿修改器启动！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不氪 傻逼游戏氪金就是吃屎
+
+*****
+
+####  Jamaisvu  
+##### 15832#       发表于 2024-12-31 17:07
+
+17点还有740多万，体感刷一个本的功夫（两分钟左右）少了五万。
+
+按这个效率大概八点前能干掉猫姬，正好赶得上看八点半的生放送...
+
+*****
+
+####  岸浪白野  
+##### 15833#       发表于 2024-12-31 17:09
+
+延长了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202412/31/170909swzpp9pwsw9iwrui.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (325.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 17:09 上传
+
+*****
+
+####  alucardcz  
+##### 15834#       发表于 2024-12-31 17:10
+
+是不是忘记了这活动还有5小时就要结束了？ 还有一节剧情吧？  稍微有点事忘记上了直接寄室吧？
+
+*****
+
+####  ナルバレック  
+##### 15835#       发表于 2024-12-31 17:10
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/001.png" referrerpolicy="no-referrer">活动结束时间延长到1月3日去了，我感觉他们原计划就是想让玩家打到晚上去
+
+*****
+
+####  alucardcz  
+##### 15836#       发表于 2024-12-31 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67072490&amp;ptid=2084912" target="_blank">岸浪白野 发表于 2024-12-31 17:09</a>
+
+延长了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">刚喷完就延了 
+
+*****
+
+####  qixinno2  
+##### 15837#       发表于 2024-12-31 17:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">真的纯傻逼 我现在心态爆炸只会喷
+
+*****
+
+####  Jamaisvu  
+##### 15838#       发表于 2024-12-31 17:15
+
+<blockquote>岸浪白野 发表于 2024-12-31 17:09
+延长了</blockquote>
+这运营真TMD随心所欲啊，把玩家当傻子逗着玩呢吧。
+
+我现在很担心晚上生放送会不会整什么阴间活儿...
+
+*****
+
+####  quanlix  
+##### 15839#       发表于 2024-12-31 17:22
+
+还是不能对螺旋社抱任何期望
+
+*****
+
+####  克苏鲁系青骑士  
+##### 15840#       发表于 2024-12-31 17:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">卡池应该不延吧
+等看生放送有无大变申
+
+
+*****
+
+####  angelooo  
+##### 15841#       发表于 2024-12-31 17:27
+
+这是弱智操作连发了，连吐槽的力气都没了
+
+*****
+
+####  窗含西岭千秋雪  
+##### 15842#       发表于 2024-12-31 17:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">希望新年实装新苍月从者，这样就可以无压力pass攒石了
+
+*****
+
+####  保罗赫伯特  
+##### 15843#       发表于 2024-12-31 17:30
+
+感觉还是月姬系角色吧，不然也不用特地赶个活动了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 15844#       发表于 2024-12-31 17:34
+
+ 本帖最后由 Jamaisvu 于 2024-12-31 17:40 编辑 
+<blockquote>保罗赫伯特 发表于 2024-12-31 17:30
+感觉还是月姬系角色吧，不然也不用特地赶个活动了</blockquote>
+
+目前月姬角色分别有周年限定（地球记）、泳装限定（学姐）、圣诞限定（幻月姬），再来个新年限定也未尝不可。
+
+如果晚上生放送给月姬remake里线打广告，很大概率实装秋叶或双女仆，否则还是志贵。
+
+（总不能up五月或都古吧...）
+
+话说豆瓣网这个发售时间应该是瞎写的吧...总不能真这么巧：
+
+<img src="https://img.saraba1st.com/forum/202412/31/173720fkpvqtqyv63fkvp8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241231_173548.jpg</strong> (83.69 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-31 17:37 上传
+
+*****
+
+####  壳壳牛  
+##### 15845#       发表于 2024-12-31 17:36
+
+妈的从周年开始骚操作不断真是气笑了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  alucardcz  
+##### 15846#       发表于 2024-12-31 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67072694&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-12-31 17:34</a>
+
+目前月姬角色分别有周年限定（地球记）、泳装限定（学姐）、圣诞限定（幻月姬），再来个新年限定也未尝不 ...</blockquote>
+不可能 没有任何消息 直接1月1号发售？ 
+
+*****
+
+####  Jamaisvu  
+##### 15847#       发表于 2024-12-31 17:49
+
+<blockquote>alucardcz 发表于 2024-12-31 17:41
+不可能 没有任何消息 直接1月1号发售？</blockquote>
+应该是豆瓣网友为了创建条目随手写的，不用当真。
+
+不过新年出月姬侧人物的可能性还是挺大的...MBTL变fate格斗，废狗变月姬GO，完美互补（误）
+
+*****
+
+####  密特里奈斯  
+##### 15848#       发表于 2024-12-31 17:58
+
+180抽拿到的白公主，池子都快结束了……
+
+*****
+
+####  沼蝇  
+##### 15849#       发表于 2024-12-31 18:09
+
+哭了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">就是柱子数量和苹果不太够了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 棍机凹升龙| + 1|高低得喊一句牛逼|
+| 保罗赫伯特| + 1|辛苦辛苦|
+| 希望之花| + 1|肝帝啊|
+
+查看全部评分
+
+*****
+
+####  qixinno2  
+##### 15850#       发表于 2024-12-31 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67072936&amp;ptid=2084912" target="_blank">沼蝇 发表于 2024-12-31 18:09</a>
+
+哭了，终于挖出来白公主了，两场柱子总共刷了快1500把，挖了三单多石头其中还歪了一个欧罗巴再挖一会试试能 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">羡慕 我肝的石头只能证明我是个傻逼
+
+*****
+
+####  alucardcz  
+##### 15851#       发表于 2024-12-31 18:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">啊？ 1500吧？ 算你1把1分钟也得25小时了。恐怖
+
+*****
+
+####  沼蝇  
+##### 15852#       发表于 2024-12-31 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67072972&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-31 18:14</a>
+啊？ 1500吧？ 算你1把1分钟也得25小时了。恐怖</blockquote>
+脚本啦，换了安卓手机用的fga
+
+*****
+
+####  alucardcz  
+##### 15853#       发表于 2024-12-31 19:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看到有人奶落地欧若拉 希望是真的 我要看腥风血雨
+
+*****
+
+####  jackyhuang  
+##### 15854#       发表于 2024-12-31 19:27
+
+这个月刷出的绊礼装数量已经比前11个月出的都多了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  森兰丸  
+##### 15855#       发表于 2024-12-31 19:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这QP的最高上限怎么才2兆....要用起来也就一下都没了....完全不够用啊
+
+*****
+
+####  alucardcz  
+##### 15856#       发表于 2024-12-31 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67073529&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-12-31 19:45</a>
+
+这QP的最高上限怎么才2兆....要用起来也就一下都没了....完全不够用啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">钱上限 外加狗粮至今还不是独立储存 导致我无限池刷不动一点
+
+*****
+
+####  森兰丸  
+##### 15857#       发表于 2024-12-31 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67073677&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-31 20:06</a>
+
+钱上限 外加狗粮至今还不是独立储存 导致我无限池刷不动一点</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然有太多NEW要养但是因为QP上限和狗粮没有独立储存导致无限池摆烂
+
+欧羡慕
+
+狗萌新又在变相晒
+
+*****
+
+####  qixinno2  
+##### 15858#       发表于 2024-12-31 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67073677&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-31 20:06</a>
+
+钱上限 外加狗粮至今还不是独立储存 导致我无限池刷不动一点</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是19NEW的大佬的烦恼么 是我这种霉B无法想象的问题
+
+*****
+
+####  jackyhuang  
+##### 15859#       发表于 2024-12-31 20:16
+
+赶在月球春晚前柱子总算没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  alucardcz  
+##### 15860#       发表于 2024-12-31 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67073708&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-12-31 20:13</a>
+
+虽然有太多NEW要养但是因为QP上限和狗粮没有独立储存导致无限池摆烂
+
+欧羡慕
+
+狗萌新又在变相晒</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">啊 我全都是满级
+
+*****
+
+####  ナルバレック  
+##### 15861#       发表于 2024-12-31 20:43
+
+<img src="https://img.saraba1st.com/forum/202412/31/204353bh74ww6h610hi14f.jpg" referrerpolicy="no-referrer">
+
+<strong>e49525f5e0fe992519eb957772a85edf8cb1716b.jpg</strong> (86.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 20:43 上传
+
+*****
+
+####  jackyhuang  
+##### 15862#       发表于 2024-12-31 22:13
+
+2025年放送预定
+真年番啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  琴酒  
+##### 15863#       发表于 2024-12-31 22:33
+
+快速打完活动主线拿了杯子 怕明天有意外
+
+*****
+
+####  壳壳牛  
+##### 15864#       发表于 2024-12-31 22:40
+
+今年yls没来？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  alucardcz  
+##### 15865#       发表于 2024-12-31 22:42
+
+青子这么快妇科
+
+*****
+
+####  希望之花  
+##### 15866#       发表于 2024-12-31 22:44
+
+ 本帖最后由 希望之花 于 2024-12-31 22:45 编辑 
+
+牢叶来了
+
+可以抽两种福袋
+
+*****
+
+####  Jamaisvu  
+##### 15867#       发表于 2024-12-31 22:44
+
+YLS终于登场了，放了两个多小时动画片<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  壳壳牛  
+##### 15868#       发表于 2024-12-31 22:44
+
+两个福袋？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Jamaisvu  
+##### 15869#       发表于 2024-12-31 22:45
+
+<img src="https://img.saraba1st.com/forum/202412/31/224556jo2559yefkoezg5n.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241231_224528.jpg</strong> (458.3 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-31 22:45 上传
+
+地狱绘图
+
+*****
+
+####  alucardcz  
+##### 15870#       发表于 2024-12-31 22:46
+
+理查。。没劲<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  壳壳牛  
+##### 15871#       发表于 2024-12-31 22:46
+
+笑了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Jamaisvu  
+##### 15872#       发表于 2024-12-31 22:46
+
+<img src="https://img.saraba1st.com/forum/202412/31/224656s2n0bnhmim2551hi.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241231_224646.jpg</strong> (319.64 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-31 22:46 上传
+
+理查德1世，saber。
+
+倒也在意料之中...2025年FGO主推的就该是FSF了...
+
+*****
+
+####  angelooo  
+##### 15873#       发表于 2024-12-31 22:46
+
+好的，省钱了233
+
+*****
+
+####  Jamaisvu  
+##### 15874#       发表于 2024-12-31 22:47
+
+唉，等等看强度吧，我也对他没啥兴趣...话说现在抽幻月还来得及...
+
+*****
+
+####  壳壳牛  
+##### 15875#       发表于 2024-12-31 22:48
+
+自选冠位？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zechins  
+##### 15876#       发表于 2024-12-31 22:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">选择梭哈公主赌对了
+
+*****
+
+####  壳壳牛  
+##### 15877#       发表于 2024-12-31 22:49
+
+艹羁绊礼装槽
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Jamaisvu  
+##### 15878#       发表于 2024-12-31 22:49
+
+ 本帖最后由 Jamaisvu 于 2024-12-31 22:51 编辑 
+
+手搓冠位+羁绊礼装兼容：
+
+<img src="https://img.saraba1st.com/forum/202412/31/225018a2lj7bnwwiqyn2hn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241231_224842.jpg</strong> (315.77 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-31 22:50 上传
+
+<img src="https://img.saraba1st.com/forum/202412/31/225018d699xmrxhllzx3cx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241231_224849.jpg</strong> (287.32 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-31 22:50 上传
+
+*****
+
+####  壳壳牛  
+##### 15879#       发表于 2024-12-31 22:51
+
+全复刻抢钱了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  alucardcz  
+##### 15880#       发表于 2024-12-31 22:52
+
+真。 脸都不要了。。。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 15881#       发表于 2024-12-31 22:52
+
+虽然全五星轮替up很有仪式感，但大家都知道这游戏不会随便关服的...
+
+<img src="https://img.saraba1st.com/forum/202412/31/225216pg3fgozgqggqgkd5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241231_225139.jpg</strong> (305.37 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-31 22:52 上传
+
+*****
+
+####  希望之花  
+##### 15882#       发表于 2024-12-31 22:52
+
+一个月up四五十个，这是真的要跑路了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 15883#       发表于 2024-12-31 22:53
+
+一堆活里最没存在感的就是新年从者23333
+
+*****
+
+####  Jamaisvu  
+##### 15884#       发表于 2024-12-31 22:54
+
+2025新从者剪影：
+
+<img src="https://img.saraba1st.com/forum/202412/31/225449qlz1b1yaghnhy75o.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20241231_225430.jpg</strong> (178.54 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-31 22:54 上传
+
+*****
+
+####  alucardcz  
+##### 15885#       发表于 2024-12-31 22:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">当年宣布的那个女的。 至今没有影子。。。。
+
+*****
+
+####  Jamaisvu  
+##### 15886#       发表于 2024-12-31 22:58
+
+<blockquote>Jamaisvu 发表于 2024-12-31 22:54
+2025新从者剪影：</blockquote>
+右边有个一看就是枪兵的让我想到了赵云，不过FSR的赵云发型没这么正常...
+
+然后左边那个带着奇特头盔的第一反应是姑获鸟，不过查了下她背后那个更像是功德轮...：
+
+<img src="https://img.saraba1st.com/forum/202412/31/225817vqy4yoqyv7fn3q2r.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>0ff41bd5ad6eddc4c1a97ca621f984f3536633d5@f_auto.webp</strong> (72.71 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-31 22:58 上传
+
+*****
+
+####  angelooo  
+##### 15887#       发表于 2024-12-31 23:04
+
+理查这三破……我祝森井成功吧
+
+*****
+
+####  壳壳牛  
+##### 15888#       发表于 2024-12-31 23:06
+
+友情能100抽了
+
+*****
+
+####  exiaexa  
+##### 15889#       发表于 2024-12-31 23:07
+
+真没活了是吧，这查理毫无吸引力啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 15890#       发表于 2024-12-31 23:08
+
+还有这卡的强度真是2025年的？
+
+*****
+
+####  Jamaisvu  
+##### 15891#       发表于 2024-12-31 23:10
+
+ 本帖最后由 Jamaisvu 于 2024-12-31 23:12 编辑 
+
+技能解包：
+
+<img src="https://img.saraba1st.com/forum/202412/31/231028mlevokdctbkii060.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20241231_231007.jpg</strong> (295.73 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-31 23:10 上传
+
+<img src="https://img.saraba1st.com/forum/202412/31/231028qde7xn74er7obmyb.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20241231_230957.jpg</strong> (231.8 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-31 23:10 上传
+
+卡面：
+
+<img src="https://img.saraba1st.com/forum/202412/31/231156jlzoh66bzzdim0ph.jpg" referrerpolicy="no-referrer">
+
+<strong>0E86DAE04BEC2322819DB08ACFC5A1BC.jpg</strong> (418.53 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-31 23:11 上传
+
+*****
+
+####  希望之花  
+##### 15892#       发表于 2024-12-31 23:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还好更新前抽了一把月p池
+
+*****
+
+####  Jamaisvu  
+##### 15893#       发表于 2024-12-31 23:13
+
+ 本帖最后由 Jamaisvu 于 2024-12-31 23:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67075258&amp;ptid=2084912" target="_blank">希望之花 发表于 2024-12-31 23:11</a>
+
+还好更新前抽了一把月p池</blockquote>
+
+好后悔没上线抽幻月<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就当给未来的本命攒石头了...
+
+（感觉福袋可以赌一把）
+
+理查这数值让我怀疑他和旧剑谁更强...
+
+旧剑三回合50红魔放+20攻击、30充能、宝具前置10宝威。
+
+理查三回合30三色魔放+30宝威+20攻击、30充能。虽然二技能带减冷却，但他技能都是6CD，旧剑是5CD。
+
+话说他们俩攻击力一样，不过旧剑生命更高些。
+
+*****
+
+####  exiaexa  
+##### 15894#       发表于 2024-12-31 23:14
+
+月p池赌公主+1，结果歪了咖喱学姐，但是我第二个池子双黄了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 15895#       发表于 2024-12-31 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67075276&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-12-31 23:13</a>
+
+好后悔没上线抽幻月就当给未来的本命攒石头了...
+
+理查这数值让我怀疑他和旧剑谁更强... ...</blockquote>
+不用想，是旧剑
+
+旧剑现在是夸张的全5CD，全3T的数值超人
+
+开了AS技能单杀狐就能开两次，就差1个宝具本
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗赫伯特  
+##### 15896#       发表于 2024-12-31 23:17
+
+怎么三破真变狮子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+石头还是全给摩根补宝好了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  reidel  
+##### 15897#       发表于 2024-12-31 23:18
+
+牢青最速妇科会捡到加强吗
+
+*****
+
+####  alucardcz  
+##### 15898#       发表于 2024-12-31 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67075283&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-12-31 23:14</a>
+
+月p池赌公主+1，结果歪了咖喱学姐，但是我第二个池子双黄了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">又欧又欧！
+
+*****
+
+####  alucardcz  
+##### 15899#       发表于 2024-12-31 23:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">居然全中了。。学姐顺利2宝 水bb也中了
+
+*****
+
+####  exiaexa  
+##### 15900#       发表于 2024-12-31 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67075349&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-31 23:19</a>
+
+又欧又欧！</blockquote>
+这明明是我抽公主直接干到保底的补偿
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 15901#       发表于 2024-12-31 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67075369&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-31 23:20</a>
+
+居然全中了。。学姐顺利2宝 水bb也中了</blockquote>
+你这欧狗！
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 15902#       发表于 2024-12-31 23:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">穷B仰望大佬们豹跳
+
+*****
+
+####  khxooo  
+##### 15903#       发表于 2024-12-31 23:28
+
+月批宝具+1，第二个福袋NEW小麻雀，可以吧。
+
+*****
+
+####  保罗赫伯特  
+##### 15904#       发表于 2024-12-31 23:31
+
+他那个冠位进化是啥意思<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 15905#       发表于 2024-12-31 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67075485&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-12-31 23:31</a>
+
+他那个冠位进化是啥意思</blockquote>
+你自己选一个从者当冠位从者，战斗可以额外带自己的羁绊礼装。估计和最终战有BUFF。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 保罗赫伯特| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  rooarr  
+##### 15906#       发表于 2024-12-31 23:37
+
+两个福袋一个new都没有，分别是2/3和4/6啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 15907#       发表于 2024-12-31 23:39
+
+青子几号 准备all in 新年up？真不熟<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 15908#       发表于 2024-12-31 23:42
+
+<blockquote>alucardcz 发表于 2024-12-31 23:39
+青子几号 准备all in 新年up？真不熟</blockquote>
+青子1月4号up
+
+*****
+
+####  qixinno2  
+##### 15909#       发表于 2024-12-31 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67075579&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-31 23:39</a>
+
+青子几号 准备all in 新年up？真不熟</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">坐等萌新豹跳呼符出货
+
+*****
+
+####  quanlix  
+##### 15910#       发表于 2024-12-31 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67075485&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-12-31 23:31</a>
+
+他那个冠位进化是啥意思</blockquote>
+选自己的冠位7骑，没说有职业限制只要100级以上，3个技能全10级就可以选做冠位对象，目前公布的效果就是在特定战斗中能额外装备自己的绊礼装
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 保罗赫伯特| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  大十字紅朔  
+##### 15911#       发表于 2024-12-31 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67075485&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-12-31 23:31</a>
+
+他那个冠位进化是啥意思</blockquote>
+帮楼上说一下，最多可选七个，不是一个
+
+*****
+
+####  棍机凹升龙  
+##### 15912#       发表于 2024-12-31 23:51
+
+福袋中了牢青和白月姬，不错不错
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  Jamaisvu  
+##### 15913#       发表于 2024-12-31 23:53
+
+ 本帖最后由 Jamaisvu 于 2024-12-31 23:59 编辑 
+
+笑死我了，成田良悟对理查三破黑狮子造型光速切割：
+
+<img src="https://img.saraba1st.com/forum/202412/31/235549hj84a4b14884588g.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241231_235540.jpg</strong> (86.91 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-31 23:55 上传
+
+天天被蘑菇背刺真是惨啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+根据羁绊故事，这是理查德背负罪孽、受炼狱烧灼的形态。
+
+（丧尸暴龙兽既视感）
+
+*****
+
+####  DARKGRAY  
+##### 15914#       发表于 2024-12-31 23:56
+
+但这卡只可能是他设定的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 15915#       发表于 2024-12-31 23:57
+
+<blockquote>Jamaisvu 发表于 2024-12-31 23:53
+笑死我了，成田良悟对理查三破黑狮子造型光速切割：
+
+</blockquote>
+他不切要出问题的吧，这狮子不知道从什么地方冒出来的新设定，我看到卡面人都傻了
+
+*****
+
+####  quanlix  
+##### 15916#       发表于 2025-1-1 00:01
+
+这理查战斗动画做的还挺顺眼，但是这强度也太菜了
+
+*****
+
+####  希望之花  
+##### 15917#       发表于 2025-1-1 00:07
+
+等8号枪龙马UP了
+
+*****
+
+####  格林卡罗尔  
+##### 15918#       发表于 2025-1-1 00:30
+
+每个月轮换，也就是说我抽狂要等到八月去。。。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  保罗赫伯特  
+##### 15919#       发表于 2025-1-1 00:30
+
+原来不是新年轮换完的意思吗，那真没什么可抽的了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zechins  
+##### 15920#       发表于 2025-1-1 00:33
+
+理查这卡面和强度都好呃呃...才看到这线条都没擦干净的脸和1破别扭姿势的时候，我还以为不是森井操刀呢<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+等日替搏一搏有珠了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  森兰丸  
+##### 15921#       发表于 2025-1-1 00:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">草了准备给迪拜BB喂圣杯和狗粮.....从满仓的仓库里拿狗粮时才发现这白狗占了我1000格仓库格子
+
+接下来活动换的白狗粮也准备直接卖了....不然真的要一辈子也喂不完这东西了
+
+*****
+
+####  岸浪白野  
+##### 15922#       发表于 2025-1-1 01:22
+
+理查这强度日本人都绷不住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+又是奔着宝具+打暴伤和旧剑一块玩去吧
+
+*****
+
+####  壳壳牛  
+##### 15923#       发表于 2025-1-1 01:33
+
+福袋水伊吹和P公主，还不错
+
+*****
+
+####  希望之花  
+##### 15924#       发表于 2025-1-1 01:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">box里有一宝旧剑和一宝查理曼，一年用不到一次
+
+要用剑的时候用的二宝泳装魔总
+
+*****
+
+####  alucardcz  
+##### 15925#       发表于 2025-1-1 02:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67076304&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-1-1 00:49</a>
+
+草了准备给迪拜BB喂圣杯和狗粮.....从满仓的仓库里拿狗粮时才发现这白狗占了我1000格仓库格子
+
+接下来活动 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">欧！
+
+*****
+
+####  jaicka  
+##### 15926#       发表于 2025-1-1 02:16
+
+理查的三破，好像是把原本第一部六章会登场的骑阶狮心王给缝了进去
+
+*****
+
+####  Jamaisvu  
+##### 15927#       发表于 2025-1-1 10:54
+
+ 本帖最后由 Jamaisvu 于 2025-1-1 11:09 编辑 
+
+狮心王形态的理查和炼狱有关，而《神曲》开篇在黑暗森林里袭击但丁的三只动物就有狮子。
+
+我查了一下三只猛兽的象征意义，有种说法是：“豹”象征佛罗伦萨的政治迫害，“狮”象征法兰西王，“瘦母狼”象征罗马教廷。
+
+虽然理查一世是英格兰国王，不过他也有法兰西血统，连英语都说不好。勉强对得上...
+
+奏章IV好像在意大利，neta神曲的可能性比较大，也许这个黑狮子头会作为敌役登场？
+
+不知道会不会实装维吉尔，因为固有印象感觉叫这个名字的人都非常能打...
+
+另外FGOM16里小教授因缘角色里有个XXX•XXXXXX，其评价为“很好相处的文科生”，很有可能是但丁·阿利吉耶里（ダンテ・アリギエーリ）。
+
+<img src="https://img.saraba1st.com/forum/202501/01/110142oz6pspff16fs6nsq.jpg" referrerpolicy="no-referrer">
+
+<strong>1735700488269.jpg</strong> (177.39 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-1 11:01 上传
+
+如果奏章IV但丁落地的话，该不会是咕哒作为维吉尔，护送他完成三界巡游吧...
+
+*****
+
+####  gpx234mqx  
+##### 15928#       发表于 2025-1-1 11:20
+
+<img src="https://img.saraba1st.com/forum/202501/01/112022vbubl4lykllmlbks.png" referrerpolicy="no-referrer">
+
+<strong>97A246CB-47F7-4A42-997E-25F47C366E89.png</strong> (1.01 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 11:20 上传
+
+16个呼符就出了
+
+不过福袋重复
+
+*****
+
+####  eilot  
+##### 15929#       发表于 2025-1-1 11:21
+
+終於都能自帶絆禮裝
+
+不過還是有條件
+
+不知道「特定戰鬥」是指甚麼?各種活動/高難度都不能用的話就算了
+
+另外能否隨時轉其他符合條件的角色來做自己冠位
+
+還是選了就鎖死
+
+*****
+
+####  gpx234mqx  
+##### 15930#       发表于 2025-1-1 11:24
+
+<blockquote>rooarr 发表于 2024-12-31 23:37
+两个福袋一个new都没有，分别是2/3和4/6啊</blockquote>
+一样是2/3的new没抽到
+
+*****
+
+####  gpx234mqx  
+##### 15931#       发表于 2025-1-1 11:26
+
+<blockquote>希望之花 发表于 2025-1-1 01:36
+box里有一宝旧剑和一宝查理曼，一年用不到一次
+
+要用剑的时候用的二宝泳装魔总 ...</blockquote>
+全体红剑真没意思
+
+不过理查德能三连宝具吧
+
+
+*****
+
+####  v22325  
+##### 15782#       发表于 2024-12-30 21:12
+
+今年只new了13个  拖后腿了！
+
+*****
+
+####  qixinno2  
+##### 15783#       发表于 2024-12-30 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67065109&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-30 21:02</a>
+
+萌新数了数好像21个 福袋-2 19个  歪的看不出来也不记得了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是萌新最狗了 欧 羡慕
+
+*****
+
+####  alucardcz  
+##### 15784#       发表于 2024-12-30 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67065158&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-12-30 21:12</a>
+
+还是萌新最狗了 欧 羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">敢不敢上图 你肯定欧！
+
+*****
+
+####  森兰丸  
+##### 15785#       发表于 2024-12-30 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67065109&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-30 21:02</a>
+
+萌新数了数好像21个 福袋-2 19个  歪的看不出来也不记得了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狗萌新从不让人失望
+
+欧 羡慕
+
+*****
+
+####  qixinno2  
+##### 15786#       发表于 2024-12-30 22:03
+
+ 本帖最后由 qixinno2 于 2024-12-30 22:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67065180&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-30 21:15</a>
+
+敢不敢上图 你肯定欧！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">有什么不敢的 又刷了90石还是没出月批 梅芙是换的
+
+<img src="https://img.saraba1st.com/forum/202412/30/220348a3hbkgk383qhv0kb.png" referrerpolicy="no-referrer">
+
+<strong>[~P)Z)}J]PNA`%X@]W_IW94.png</strong> (1.54 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-30 22:03 上传
+
+*****
+
+####  rooarr  
+##### 15787#       发表于 2024-12-30 22:21
+
+7个new，福袋-2，送的-1，2024年就抽到4个<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 15788#       发表于 2024-12-30 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67065429&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-12-30 22:03</a>
+
+有什么不敢的 又刷了90石还是没出月批 梅芙是换的</blockquote>
+有青有珠 欧！
+
+*****
+
+####  qixinno2  
+##### 15789#       发表于 2024-12-30 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67065586&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-30 22:36</a>
+
+有青有珠 欧！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全是1宝仓库吃灰的 不如狗萌新NEW19个
+
+*****
+
+####  希望之花  
+##### 15790#       发表于 2024-12-30 22:55
+
+今年都是厨力抽卡，四宝水艾蕾已经满足了，还出了个学姐，度过了相对成功的下半年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+接下来就攒石头补满宝了
+
+*****
+
+####  岸浪白野  
+##### 15791#       发表于 2024-12-30 22:59
+
+这柱子的下降速度.....明天必响指了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 15792#       发表于 2024-12-30 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67065640&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-12-30 22:44</a>
+
+全是1宝仓库吃灰的 不如狗萌新NEW19个</blockquote>
+高贵的联动！ 1顶20！
+
+*****
+
+####  Jamaisvu  
+##### 15793#       发表于 2024-12-30 23:10
+
+6个小时打了二千万，三分之一，按这个效率的话明天中午十一点能打完。但问题现在是工作日，大部分人白天没空刷本...
+
+最后一天活动剧情还是限时的呢，明天下午五点前刷不完就只能打响指了...
+
+*****
+
+####  qixinno2  
+##### 15794#       发表于 2024-12-30 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67065741&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-30 23:00</a>
+
+高贵的联动！ 1顶20！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如狗萌新的一半
+
+*****
+
+####  qixinno2  
+##### 15795#       发表于 2024-12-30 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67065519&amp;ptid=2084912" target="_blank">rooarr 发表于 2024-12-30 22:21</a>
+
+7个new，福袋-2，送的-1，2024年就抽到4个</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">纯以NEW来说目前你是最惨的 不过估计你都是高宝吧
+
+*****
+
+####  rooarr  
+##### 15796#       发表于 2024-12-30 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67065891&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-12-30 23:30</a>
+
+纯以NEW来说目前你是最惨的 不过估计你都是高宝吧</blockquote>
+都是1宝，另外歪了4个而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之花  
+##### 15797#       发表于 2024-12-31 00:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">就产出来说其实今天的柱子更好些，还有额外的拉面兑换池，拉面大概两把掉落一个
+
+但是昨天已经刷爆了今天不想动了，而且突击预告说还有第二个柱子的确挺恶心的
+
+*****
+
+####  壳壳牛  
+##### 15798#       发表于 2024-12-31 00:10
+
+今年猛灌茶壶刷了不少羁绊石，就差年初的武尊和黑玛丽没出...
+除了青子上头氪了3单，其他都挺顺的...
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  qixinno2  
+##### 15799#       发表于 2024-12-31 00:19
+
+<blockquote>rooarr 发表于 2024-12-30 23:51
+都是1宝，另外歪了4个而已搞得我这一年都不想玩了，无限池都只刷了10池</blockquote>
+那确实有点惨 希望你明年变欧
+
+*****
+
+####  eilot  
+##### 15800#       发表于 2024-12-31 01:02
+
+ 本帖最后由 eilot 于 2024-12-31 01:04 编辑 
+
+希望活動最後一關不要再有甚麼戰鬥，1700就直接完結
+
+日常星期1和2又不是紅日還要來柱子，放工也另有節目，沒甚麼時間長時間開手遊
+
+看了商店，還有一大堆堅持不開放要等劇情完了才開，又不是從者升級素材，這種設計一直感到非常噁心
+
+
+*****
+
+####  壳壳牛  
+##### 15801#       发表于 2024-12-31 03:07
+
+又送10个茶壶...明天就过期...
+绝了...
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  jackyhuang  
+##### 15802#       发表于 2024-12-31 07:53
+
+还没过半，这下要打响指了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  森兰丸  
+##### 15803#       发表于 2024-12-31 08:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">送再多茶壶我也不会再刷一根啊....不然不就显得前天刷了100多根的自己很傻逼
+
+*****
+
+####  棍机凹升龙  
+##### 15804#       发表于 2024-12-31 09:22
+
+最后一天没事做反而可以刷刷<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沼蝇  
+##### 15805#       发表于 2024-12-31 09:51
+
+挖了快3单石头了，就歪了一个欧罗巴<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  サイトヒメア  
+##### 15806#       发表于 2024-12-31 09:54
+
+这么没逼数的运营真是奇观<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  quanlix  
+##### 15807#       发表于 2024-12-31 10:03
+
+打响指就没意思了，前有公主砸烂对话框后有志贵通穿血条那就很合理
+
+*****
+
+####  eilot  
+##### 15808#       发表于 2024-12-31 11:01
+
+7點起身時開了遊戲
+
+送了10個壺，和對方血量居然未過半...
+
+*****
+
+####  Jamaisvu  
+##### 15809#       发表于 2024-12-31 11:08
+
+昨晚11点有四千多万柱子，目前过去12小时，还剩二千多万柱子，照这个频率真得刷到晚上关活动<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+如果下午五点剧情真让志贵秒了猫姬，然后新年顺势实装落地，倒也是个好活儿...
+
+反正一剑一降的规律已经被麻婆打破了，志贵也是日本人 ，不算突兀...
+
+*****
+
+####  qixinno2  
+##### 15810#       发表于 2024-12-31 11:25
+
+推土机比较好奇会是幽默强度 还是跟公主学姐一样数值爆炸
+
+*****
+
+####  乾理央  
+##### 15811#       发表于 2024-12-31 11:32
+
+yls：规矩，就是用来打破的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我奶会空降一个从未在剧情里登场的外国从者
+
+*****
+
+####  eilot  
+##### 15812#       发表于 2024-12-31 13:44
+
+ 本帖最后由 eilot 于 2024-12-31 13:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67069469&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-12-31 11:25</a>
+
+推土机比较好奇会是幽默强度 还是跟公主学姐一样数值爆炸</blockquote>
+看抽還是送吧
+
+看兩儀式
+
+不過就算是抽的劍兩儀
+
+藍卡寶具但得1hits也有點...
+
+本身即死也不高只得60(除了OC，但OC5才100...看其他人OC2~3已經大幅升到超過100吧)，還要用技1幫手降對方即死耐性100%
+
+*****
+
+####  xiongxingyu  
+##### 15813#       发表于 2024-12-31 13:55
+
+柱子数量肉眼可见地开始掉了，yls的阴兵开始发力了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 15814#       发表于 2024-12-31 14:42
+
+<img src="https://img.saraba1st.com/forum/202412/31/144159jdammjikndnzzle5.jpg" referrerpolicy="no-referrer">
+
+<strong>23232.jpg</strong> (535.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 14:41 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">最后一天 all in！然而并没有奇迹 2024年就这样了
+
+*****
+
+####  ナルバレック  
+##### 15815#       发表于 2024-12-31 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67070625&amp;ptid=2084912" target="_blank">eilot 发表于 2024-12-31 13:44</a>
+
+看抽還是送吧
+
+看兩儀式
+
+不過就算是抽的劍兩儀</blockquote>
+看昨天发的姻缘，基本是三灵基合一的五星卡
+
+*****
+
+####  qixinno2  
+##### 15816#       发表于 2024-12-31 15:05
+
+<blockquote>alucardcz 发表于 2024-12-31 14:42
+最后一天 all in！然而并没有奇迹 2024年就这样了</blockquote>
+狗萌新太欧了 羡慕死了
+
+*****
+
+####  alucardcz  
+##### 15817#       发表于 2024-12-31 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67071254&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-12-31 15:05</a>
+
+狗萌新太欧了 羡慕死了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">全部加起来都不如你双联动！
+
+*****
+
+####  qixinno2  
+##### 15818#       发表于 2024-12-31 15:25
+
+<blockquote>alucardcz 发表于 2024-12-31 15:08
+全部加起来都不如你双联动！</blockquote>
+然而都是吃灰的一宝 不如狗萌新一点
+
+*****
+
+####  alucardcz  
+##### 15819#       发表于 2024-12-31 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67071498&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-12-31 15:25</a>
+
+然而都是吃灰的一宝 不如狗萌新一点</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说什么尬话 99%不都是吃灰的
+
+*****
+
+####  沼蝇  
+##### 15820#       发表于 2024-12-31 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67071044&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-31 14:42</a>
+最后一天 all in！然而并没有奇迹 2024年就这样了</blockquote>
+你怎么不留福袋的石头
+
+*****
+
+####  岸浪白野  
+##### 15821#       发表于 2024-12-31 15:44
+
+今天主线的最后1节是有圣杯送的，这段时间没上游戏打的真的会第一次不是咸了活动都能错过1个圣杯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 15822#       发表于 2024-12-31 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67071547&amp;ptid=2084912" target="_blank">沼蝇 发表于 2024-12-31 15:29</a>
+
+你怎么不留福袋的石头</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">福袋又不能用无偿石留啥？
+
+*****
+
+####  jackyhuang  
+##### 15823#       发表于 2024-12-31 16:11
+
+打响指了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  壳壳牛  
+##### 15824#       发表于 2024-12-31 16:15
+
+大概率还是5点结束吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ggyy0088  
+##### 15825#       发表于 2024-12-31 16:17
+
+不如等志贵一刀
+
+*****
+
+####  quanlix  
+##### 15826#       发表于 2024-12-31 16:33
+
+看隔壁计数没打响指吧
+
+*****
+
+####  qixinno2  
+##### 15827#       发表于 2024-12-31 16:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我心态爆炸了 刷的石头全都打水漂了
+
+<img src="https://img.saraba1st.com/forum/202412/31/165818u3mwh5l5p9pxxup5.png" referrerpolicy="no-referrer">
+
+<strong>FB[06X(OQLP3C808_YPU52X.png</strong> (14.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 16:58 上传
+
+*****
+
+####  alucardcz  
+##### 15828#       发表于 2024-12-31 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67072367&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-12-31 16:58</a>
+
+我心态爆炸了 刷的石头全都打水漂了</blockquote>
+蓝绿修改器启动！
+
+*****
+
+####  jackyhuang  
+##### 15829#       发表于 2024-12-31 17:04
+
+不是到5点结束吗，怎么还要打的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  琴酒  
+##### 15830#       发表于 2024-12-31 17:05
+
+活动主线不开了吗
+
+*****
+
+####  qixinno2  
+##### 15831#       发表于 2024-12-31 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67072425&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-31 17:03</a>
+
+蓝绿修改器启动！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不氪 傻逼游戏氪金就是吃屎
+
+*****
+
+####  Jamaisvu  
+##### 15832#       发表于 2024-12-31 17:07
+
+17点还有740多万，体感刷一个本的功夫（两分钟左右）少了五万。
+
+按这个效率大概八点前能干掉猫姬，正好赶得上看八点半的生放送...
+
+*****
+
+####  岸浪白野  
+##### 15833#       发表于 2024-12-31 17:09
+
+延长了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202412/31/170909swzpp9pwsw9iwrui.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (325.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 17:09 上传
+
+*****
+
+####  alucardcz  
+##### 15834#       发表于 2024-12-31 17:10
+
+是不是忘记了这活动还有5小时就要结束了？ 还有一节剧情吧？  稍微有点事忘记上了直接寄室吧？
+
+*****
+
+####  ナルバレック  
+##### 15835#       发表于 2024-12-31 17:10
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/001.png" referrerpolicy="no-referrer">活动结束时间延长到1月3日去了，我感觉他们原计划就是想让玩家打到晚上去
+
+*****
+
+####  alucardcz  
+##### 15836#       发表于 2024-12-31 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67072490&amp;ptid=2084912" target="_blank">岸浪白野 发表于 2024-12-31 17:09</a>
+
+延长了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">刚喷完就延了 
+
+*****
+
+####  qixinno2  
+##### 15837#       发表于 2024-12-31 17:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">真的纯傻逼 我现在心态爆炸只会喷
+
+*****
+
+####  Jamaisvu  
+##### 15838#       发表于 2024-12-31 17:15
+
+<blockquote>岸浪白野 发表于 2024-12-31 17:09
+延长了</blockquote>
+这运营真TMD随心所欲啊，把玩家当傻子逗着玩呢吧。
+
+我现在很担心晚上生放送会不会整什么阴间活儿...
+
+*****
+
+####  quanlix  
+##### 15839#       发表于 2024-12-31 17:22
+
+还是不能对螺旋社抱任何期望
+
+*****
+
+####  克苏鲁系青骑士  
+##### 15840#       发表于 2024-12-31 17:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">卡池应该不延吧
+等看生放送有无大变申
+
+
+*****
+
+####  angelooo  
+##### 15841#       发表于 2024-12-31 17:27
+
+这是弱智操作连发了，连吐槽的力气都没了
+
+*****
+
+####  窗含西岭千秋雪  
+##### 15842#       发表于 2024-12-31 17:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">希望新年实装新苍月从者，这样就可以无压力pass攒石了
+
+*****
+
+####  保罗赫伯特  
+##### 15843#       发表于 2024-12-31 17:30
+
+感觉还是月姬系角色吧，不然也不用特地赶个活动了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 15844#       发表于 2024-12-31 17:34
+
+ 本帖最后由 Jamaisvu 于 2024-12-31 17:40 编辑 
+<blockquote>保罗赫伯特 发表于 2024-12-31 17:30
+感觉还是月姬系角色吧，不然也不用特地赶个活动了</blockquote>
+
+目前月姬角色分别有周年限定（地球记）、泳装限定（学姐）、圣诞限定（幻月姬），再来个新年限定也未尝不可。
+
+如果晚上生放送给月姬remake里线打广告，很大概率实装秋叶或双女仆，否则还是志贵。
+
+（总不能up五月或都古吧...）
+
+话说豆瓣网这个发售时间应该是瞎写的吧...总不能真这么巧：
+
+<img src="https://img.saraba1st.com/forum/202412/31/173720fkpvqtqyv63fkvp8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241231_173548.jpg</strong> (83.69 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-31 17:37 上传
+
+*****
+
+####  壳壳牛  
+##### 15845#       发表于 2024-12-31 17:36
+
+妈的从周年开始骚操作不断真是气笑了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  alucardcz  
+##### 15846#       发表于 2024-12-31 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67072694&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-12-31 17:34</a>
+
+目前月姬角色分别有周年限定（地球记）、泳装限定（学姐）、圣诞限定（幻月姬），再来个新年限定也未尝不 ...</blockquote>
+不可能 没有任何消息 直接1月1号发售？ 
+
+*****
+
+####  Jamaisvu  
+##### 15847#       发表于 2024-12-31 17:49
+
+<blockquote>alucardcz 发表于 2024-12-31 17:41
+不可能 没有任何消息 直接1月1号发售？</blockquote>
+应该是豆瓣网友为了创建条目随手写的，不用当真。
+
+不过新年出月姬侧人物的可能性还是挺大的...MBTL变fate格斗，废狗变月姬GO，完美互补（误）
+
+*****
+
+####  密特里奈斯  
+##### 15848#       发表于 2024-12-31 17:58
+
+180抽拿到的白公主，池子都快结束了……
+
+*****
+
+####  沼蝇  
+##### 15849#       发表于 2024-12-31 18:09
+
+哭了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">就是柱子数量和苹果不太够了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 棍机凹升龙| + 1|高低得喊一句牛逼|
+| 保罗赫伯特| + 1|辛苦辛苦|
+| 希望之花| + 1|肝帝啊|
+
+查看全部评分
+
+*****
+
+####  qixinno2  
+##### 15850#       发表于 2024-12-31 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67072936&amp;ptid=2084912" target="_blank">沼蝇 发表于 2024-12-31 18:09</a>
+
+哭了，终于挖出来白公主了，两场柱子总共刷了快1500把，挖了三单多石头其中还歪了一个欧罗巴再挖一会试试能 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">羡慕 我肝的石头只能证明我是个傻逼
+
+*****
+
+####  alucardcz  
+##### 15851#       发表于 2024-12-31 18:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">啊？ 1500吧？ 算你1把1分钟也得25小时了。恐怖
+
+*****
+
+####  沼蝇  
+##### 15852#       发表于 2024-12-31 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67072972&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-31 18:14</a>
+啊？ 1500吧？ 算你1把1分钟也得25小时了。恐怖</blockquote>
+脚本啦，换了安卓手机用的fga
+
+*****
+
+####  alucardcz  
+##### 15853#       发表于 2024-12-31 19:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看到有人奶落地欧若拉 希望是真的 我要看腥风血雨
+
+*****
+
+####  jackyhuang  
+##### 15854#       发表于 2024-12-31 19:27
+
+这个月刷出的绊礼装数量已经比前11个月出的都多了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  森兰丸  
+##### 15855#       发表于 2024-12-31 19:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这QP的最高上限怎么才2兆....要用起来也就一下都没了....完全不够用啊
+
+*****
+
+####  alucardcz  
+##### 15856#       发表于 2024-12-31 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67073529&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-12-31 19:45</a>
+
+这QP的最高上限怎么才2兆....要用起来也就一下都没了....完全不够用啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">钱上限 外加狗粮至今还不是独立储存 导致我无限池刷不动一点
+
+*****
+
+####  森兰丸  
+##### 15857#       发表于 2024-12-31 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67073677&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-31 20:06</a>
+
+钱上限 外加狗粮至今还不是独立储存 导致我无限池刷不动一点</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然有太多NEW要养但是因为QP上限和狗粮没有独立储存导致无限池摆烂
+
+欧羡慕
+
+狗萌新又在变相晒
+
+*****
+
+####  qixinno2  
+##### 15858#       发表于 2024-12-31 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67073677&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-31 20:06</a>
+
+钱上限 外加狗粮至今还不是独立储存 导致我无限池刷不动一点</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是19NEW的大佬的烦恼么 是我这种霉B无法想象的问题
+
+*****
+
+####  jackyhuang  
+##### 15859#       发表于 2024-12-31 20:16
+
+赶在月球春晚前柱子总算没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  alucardcz  
+##### 15860#       发表于 2024-12-31 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67073708&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-12-31 20:13</a>
+
+虽然有太多NEW要养但是因为QP上限和狗粮没有独立储存导致无限池摆烂
+
+欧羡慕
+
+狗萌新又在变相晒</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">啊 我全都是满级
+
+*****
+
+####  ナルバレック  
+##### 15861#       发表于 2024-12-31 20:43
+
+<img src="https://img.saraba1st.com/forum/202412/31/204353bh74ww6h610hi14f.jpg" referrerpolicy="no-referrer">
+
+<strong>e49525f5e0fe992519eb957772a85edf8cb1716b.jpg</strong> (86.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-31 20:43 上传
+
+*****
+
+####  jackyhuang  
+##### 15862#       发表于 2024-12-31 22:13
+
+2025年放送预定
+真年番啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  琴酒  
+##### 15863#       发表于 2024-12-31 22:33
+
+快速打完活动主线拿了杯子 怕明天有意外
+
+*****
+
+####  壳壳牛  
+##### 15864#       发表于 2024-12-31 22:40
+
+今年yls没来？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  alucardcz  
+##### 15865#       发表于 2024-12-31 22:42
+
+青子这么快妇科
+
+*****
+
+####  希望之花  
+##### 15866#       发表于 2024-12-31 22:44
+
+ 本帖最后由 希望之花 于 2024-12-31 22:45 编辑 
+
+牢叶来了
+
+可以抽两种福袋
+
+*****
+
+####  Jamaisvu  
+##### 15867#       发表于 2024-12-31 22:44
+
+YLS终于登场了，放了两个多小时动画片<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  壳壳牛  
+##### 15868#       发表于 2024-12-31 22:44
+
+两个福袋？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Jamaisvu  
+##### 15869#       发表于 2024-12-31 22:45
+
+<img src="https://img.saraba1st.com/forum/202412/31/224556jo2559yefkoezg5n.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241231_224528.jpg</strong> (458.3 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-31 22:45 上传
+
+地狱绘图
+
+*****
+
+####  alucardcz  
+##### 15870#       发表于 2024-12-31 22:46
+
+理查。。没劲<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  壳壳牛  
+##### 15871#       发表于 2024-12-31 22:46
+
+笑了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Jamaisvu  
+##### 15872#       发表于 2024-12-31 22:46
+
+<img src="https://img.saraba1st.com/forum/202412/31/224656s2n0bnhmim2551hi.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241231_224646.jpg</strong> (319.64 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-31 22:46 上传
+
+理查德1世，saber。
+
+倒也在意料之中...2025年FGO主推的就该是FSF了...
+
+*****
+
+####  angelooo  
+##### 15873#       发表于 2024-12-31 22:46
+
+好的，省钱了233
+
+*****
+
+####  Jamaisvu  
+##### 15874#       发表于 2024-12-31 22:47
+
+唉，等等看强度吧，我也对他没啥兴趣...话说现在抽幻月还来得及...
+
+*****
+
+####  壳壳牛  
+##### 15875#       发表于 2024-12-31 22:48
+
+自选冠位？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zechins  
+##### 15876#       发表于 2024-12-31 22:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">选择梭哈公主赌对了
+
+*****
+
+####  壳壳牛  
+##### 15877#       发表于 2024-12-31 22:49
+
+艹羁绊礼装槽
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Jamaisvu  
+##### 15878#       发表于 2024-12-31 22:49
+
+ 本帖最后由 Jamaisvu 于 2024-12-31 22:51 编辑 
+
+手搓冠位+羁绊礼装兼容：
+
+<img src="https://img.saraba1st.com/forum/202412/31/225018a2lj7bnwwiqyn2hn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241231_224842.jpg</strong> (315.77 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-31 22:50 上传
+
+<img src="https://img.saraba1st.com/forum/202412/31/225018d699xmrxhllzx3cx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241231_224849.jpg</strong> (287.32 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-31 22:50 上传
+
+*****
+
+####  壳壳牛  
+##### 15879#       发表于 2024-12-31 22:51
+
+全复刻抢钱了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  alucardcz  
+##### 15880#       发表于 2024-12-31 22:52
+
+真。 脸都不要了。。。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 15881#       发表于 2024-12-31 22:52
+
+虽然全五星轮替up很有仪式感，但大家都知道这游戏不会随便关服的...
+
+<img src="https://img.saraba1st.com/forum/202412/31/225216pg3fgozgqggqgkd5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241231_225139.jpg</strong> (305.37 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-31 22:52 上传
+
+*****
+
+####  希望之花  
+##### 15882#       发表于 2024-12-31 22:52
+
+一个月up四五十个，这是真的要跑路了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 15883#       发表于 2024-12-31 22:53
+
+一堆活里最没存在感的就是新年从者23333
+
+*****
+
+####  Jamaisvu  
+##### 15884#       发表于 2024-12-31 22:54
+
+2025新从者剪影：
+
+<img src="https://img.saraba1st.com/forum/202412/31/225449qlz1b1yaghnhy75o.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20241231_225430.jpg</strong> (178.54 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-31 22:54 上传
+
+*****
+
+####  alucardcz  
+##### 15885#       发表于 2024-12-31 22:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">当年宣布的那个女的。 至今没有影子。。。。
+
+*****
+
+####  Jamaisvu  
+##### 15886#       发表于 2024-12-31 22:58
+
+<blockquote>Jamaisvu 发表于 2024-12-31 22:54
+2025新从者剪影：</blockquote>
+右边有个一看就是枪兵的让我想到了赵云，不过FSR的赵云发型没这么正常...
+
+然后左边那个带着奇特头盔的第一反应是姑获鸟，不过查了下她背后那个更像是功德轮...：
+
+<img src="https://img.saraba1st.com/forum/202412/31/225817vqy4yoqyv7fn3q2r.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>0ff41bd5ad6eddc4c1a97ca621f984f3536633d5@f_auto.webp</strong> (72.71 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-31 22:58 上传
+
+*****
+
+####  angelooo  
+##### 15887#       发表于 2024-12-31 23:04
+
+理查这三破……我祝森井成功吧
+
+*****
+
+####  壳壳牛  
+##### 15888#       发表于 2024-12-31 23:06
+
+友情能100抽了
+
+*****
+
+####  exiaexa  
+##### 15889#       发表于 2024-12-31 23:07
+
+真没活了是吧，这查理毫无吸引力啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 15890#       发表于 2024-12-31 23:08
+
+还有这卡的强度真是2025年的？
+
+*****
+
+####  Jamaisvu  
+##### 15891#       发表于 2024-12-31 23:10
+
+ 本帖最后由 Jamaisvu 于 2024-12-31 23:12 编辑 
+
+技能解包：
+
+<img src="https://img.saraba1st.com/forum/202412/31/231028mlevokdctbkii060.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20241231_231007.jpg</strong> (295.73 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-31 23:10 上传
+
+<img src="https://img.saraba1st.com/forum/202412/31/231028qde7xn74er7obmyb.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20241231_230957.jpg</strong> (231.8 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-31 23:10 上传
+
+卡面：
+
+<img src="https://img.saraba1st.com/forum/202412/31/231156jlzoh66bzzdim0ph.jpg" referrerpolicy="no-referrer">
+
+<strong>0E86DAE04BEC2322819DB08ACFC5A1BC.jpg</strong> (418.53 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-31 23:11 上传
+
+*****
+
+####  希望之花  
+##### 15892#       发表于 2024-12-31 23:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还好更新前抽了一把月p池
+
+*****
+
+####  Jamaisvu  
+##### 15893#       发表于 2024-12-31 23:13
+
+ 本帖最后由 Jamaisvu 于 2024-12-31 23:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67075258&amp;ptid=2084912" target="_blank">希望之花 发表于 2024-12-31 23:11</a>
+
+还好更新前抽了一把月p池</blockquote>
+
+好后悔没上线抽幻月<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就当给未来的本命攒石头了...
+
+（感觉福袋可以赌一把）
+
+理查这数值让我怀疑他和旧剑谁更强...
+
+旧剑三回合50红魔放+20攻击、30充能、宝具前置10宝威。
+
+理查三回合30三色魔放+30宝威+20攻击、30充能。虽然二技能带减冷却，但他技能都是6CD，旧剑是5CD。
+
+话说他们俩攻击力一样，不过旧剑生命更高些。
+
+*****
+
+####  exiaexa  
+##### 15894#       发表于 2024-12-31 23:14
+
+月p池赌公主+1，结果歪了咖喱学姐，但是我第二个池子双黄了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 15895#       发表于 2024-12-31 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67075276&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-12-31 23:13</a>
+
+好后悔没上线抽幻月就当给未来的本命攒石头了...
+
+理查这数值让我怀疑他和旧剑谁更强... ...</blockquote>
+不用想，是旧剑
+
+旧剑现在是夸张的全5CD，全3T的数值超人
+
+开了AS技能单杀狐就能开两次，就差1个宝具本
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗赫伯特  
+##### 15896#       发表于 2024-12-31 23:17
+
+怎么三破真变狮子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+石头还是全给摩根补宝好了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  reidel  
+##### 15897#       发表于 2024-12-31 23:18
+
+牢青最速妇科会捡到加强吗
+
+*****
+
+####  alucardcz  
+##### 15898#       发表于 2024-12-31 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67075283&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-12-31 23:14</a>
+
+月p池赌公主+1，结果歪了咖喱学姐，但是我第二个池子双黄了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">又欧又欧！
+
+*****
+
+####  alucardcz  
+##### 15899#       发表于 2024-12-31 23:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">居然全中了。。学姐顺利2宝 水bb也中了
+
+*****
+
+####  exiaexa  
+##### 15900#       发表于 2024-12-31 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67075349&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-31 23:19</a>
+
+又欧又欧！</blockquote>
+这明明是我抽公主直接干到保底的补偿
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 15901#       发表于 2024-12-31 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67075369&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-31 23:20</a>
+
+居然全中了。。学姐顺利2宝 水bb也中了</blockquote>
+你这欧狗！
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 15902#       发表于 2024-12-31 23:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">穷B仰望大佬们豹跳
+
+*****
+
+####  khxooo  
+##### 15903#       发表于 2024-12-31 23:28
+
+月批宝具+1，第二个福袋NEW小麻雀，可以吧。
+
+*****
+
+####  保罗赫伯特  
+##### 15904#       发表于 2024-12-31 23:31
+
+他那个冠位进化是啥意思<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 15905#       发表于 2024-12-31 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67075485&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-12-31 23:31</a>
+
+他那个冠位进化是啥意思</blockquote>
+你自己选一个从者当冠位从者，战斗可以额外带自己的羁绊礼装。估计和最终战有BUFF。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 保罗赫伯特| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  rooarr  
+##### 15906#       发表于 2024-12-31 23:37
+
+两个福袋一个new都没有，分别是2/3和4/6啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 15907#       发表于 2024-12-31 23:39
+
+青子几号 准备all in 新年up？真不熟<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 15908#       发表于 2024-12-31 23:42
+
+<blockquote>alucardcz 发表于 2024-12-31 23:39
+青子几号 准备all in 新年up？真不熟</blockquote>
+青子1月4号up
+
+*****
+
+####  qixinno2  
+##### 15909#       发表于 2024-12-31 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67075579&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-12-31 23:39</a>
+
+青子几号 准备all in 新年up？真不熟</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">坐等萌新豹跳呼符出货
+
+*****
+
+####  quanlix  
+##### 15910#       发表于 2024-12-31 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67075485&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-12-31 23:31</a>
+
+他那个冠位进化是啥意思</blockquote>
+选自己的冠位7骑，没说有职业限制只要100级以上，3个技能全10级就可以选做冠位对象，目前公布的效果就是在特定战斗中能额外装备自己的绊礼装
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 保罗赫伯特| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  大十字紅朔  
+##### 15911#       发表于 2024-12-31 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67075485&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-12-31 23:31</a>
+
+他那个冠位进化是啥意思</blockquote>
+帮楼上说一下，最多可选七个，不是一个
+
+*****
+
+####  棍机凹升龙  
+##### 15912#       发表于 2024-12-31 23:51
+
+福袋中了牢青和白月姬，不错不错
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  Jamaisvu  
+##### 15913#       发表于 2024-12-31 23:53
+
+ 本帖最后由 Jamaisvu 于 2024-12-31 23:59 编辑 
+
+笑死我了，成田良悟对理查三破黑狮子造型光速切割：
+
+<img src="https://img.saraba1st.com/forum/202412/31/235549hj84a4b14884588g.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241231_235540.jpg</strong> (86.91 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-31 23:55 上传
+
+天天被蘑菇背刺真是惨啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+根据羁绊故事，这是理查德背负罪孽、受炼狱烧灼的形态。
+
+（丧尸暴龙兽既视感）
+
+*****
+
+####  DARKGRAY  
+##### 15914#       发表于 2024-12-31 23:56
+
+但这卡只可能是他设定的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 15915#       发表于 2024-12-31 23:57
+
+<blockquote>Jamaisvu 发表于 2024-12-31 23:53
+笑死我了，成田良悟对理查三破黑狮子造型光速切割：
+
+</blockquote>
+他不切要出问题的吧，这狮子不知道从什么地方冒出来的新设定，我看到卡面人都傻了
+
+*****
+
+####  quanlix  
+##### 15916#       发表于 2025-1-1 00:01
+
+这理查战斗动画做的还挺顺眼，但是这强度也太菜了
+
+*****
+
+####  希望之花  
+##### 15917#       发表于 2025-1-1 00:07
+
+等8号枪龙马UP了
+
+*****
+
+####  格林卡罗尔  
+##### 15918#       发表于 2025-1-1 00:30
+
+每个月轮换，也就是说我抽狂要等到八月去。。。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  保罗赫伯特  
+##### 15919#       发表于 2025-1-1 00:30
+
+原来不是新年轮换完的意思吗，那真没什么可抽的了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zechins  
+##### 15920#       发表于 2025-1-1 00:33
+
+理查这卡面和强度都好呃呃...才看到这线条都没擦干净的脸和1破别扭姿势的时候，我还以为不是森井操刀呢<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+等日替搏一搏有珠了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  森兰丸  
+##### 15921#       发表于 2025-1-1 00:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">草了准备给迪拜BB喂圣杯和狗粮.....从满仓的仓库里拿狗粮时才发现这白狗占了我1000格仓库格子
+
+接下来活动换的白狗粮也准备直接卖了....不然真的要一辈子也喂不完这东西了
+
+*****
+
+####  岸浪白野  
+##### 15922#       发表于 2025-1-1 01:22
+
+理查这强度日本人都绷不住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+又是奔着宝具+打暴伤和旧剑一块玩去吧
+
+*****
+
+####  壳壳牛  
+##### 15923#       发表于 2025-1-1 01:33
+
+福袋水伊吹和P公主，还不错
+
+*****
+
+####  希望之花  
+##### 15924#       发表于 2025-1-1 01:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">box里有一宝旧剑和一宝查理曼，一年用不到一次
+
+要用剑的时候用的二宝泳装魔总
+
+*****
+
+####  alucardcz  
+##### 15925#       发表于 2025-1-1 02:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67076304&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-1-1 00:49</a>
+
+草了准备给迪拜BB喂圣杯和狗粮.....从满仓的仓库里拿狗粮时才发现这白狗占了我1000格仓库格子
+
+接下来活动 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">欧！
+
+*****
+
+####  jaicka  
+##### 15926#       发表于 2025-1-1 02:16
+
+理查的三破，好像是把原本第一部六章会登场的骑阶狮心王给缝了进去
+
+*****
+
+####  Jamaisvu  
+##### 15927#       发表于 2025-1-1 10:54
+
+ 本帖最后由 Jamaisvu 于 2025-1-1 11:09 编辑 
+
+狮心王形态的理查和炼狱有关，而《神曲》开篇在黑暗森林里袭击但丁的三只动物就有狮子。
+
+我查了一下三只猛兽的象征意义，有种说法是：“豹”象征佛罗伦萨的政治迫害，“狮”象征法兰西王，“瘦母狼”象征罗马教廷。
+
+虽然理查一世是英格兰国王，不过他也有法兰西血统，连英语都说不好。勉强对得上...
+
+奏章IV好像在意大利，neta神曲的可能性比较大，也许这个黑狮子头会作为敌役登场？
+
+不知道会不会实装维吉尔，因为固有印象感觉叫这个名字的人都非常能打...
+
+另外FGOM16里小教授因缘角色里有个XXX•XXXXXX，其评价为“很好相处的文科生”，很有可能是但丁·阿利吉耶里（ダンテ・アリギエーリ）。
+
+<img src="https://img.saraba1st.com/forum/202501/01/110142oz6pspff16fs6nsq.jpg" referrerpolicy="no-referrer">
+
+<strong>1735700488269.jpg</strong> (177.39 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-1 11:01 上传
+
+如果奏章IV但丁落地的话，该不会是咕哒作为维吉尔，护送他完成三界巡游吧...
+
+*****
+
+####  gpx234mqx  
+##### 15928#       发表于 2025-1-1 11:20
+
+<img src="https://img.saraba1st.com/forum/202501/01/112022vbubl4lykllmlbks.png" referrerpolicy="no-referrer">
+
+<strong>97A246CB-47F7-4A42-997E-25F47C366E89.png</strong> (1.01 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 11:20 上传
+
+16个呼符就出了
+
+不过福袋重复
+
+*****
+
+####  eilot  
+##### 15929#       发表于 2025-1-1 11:21
+
+終於都能自帶絆禮裝
+
+不過還是有條件
+
+不知道「特定戰鬥」是指甚麼?各種活動/高難度都不能用的話就算了
+
+另外能否隨時轉其他符合條件的角色來做自己冠位
+
+還是選了就鎖死
+
+*****
+
+####  gpx234mqx  
+##### 15930#       发表于 2025-1-1 11:24
+
+<blockquote>rooarr 发表于 2024-12-31 23:37
+两个福袋一个new都没有，分别是2/3和4/6啊</blockquote>
+一样是2/3的new没抽到
+
+*****
+
+####  gpx234mqx  
+##### 15931#       发表于 2025-1-1 11:26
+
+<blockquote>希望之花 发表于 2025-1-1 01:36
+box里有一宝旧剑和一宝查理曼，一年用不到一次
+
+要用剑的时候用的二宝泳装魔总 ...</blockquote>
+全体红剑真没意思
+
+不过理查德能三连宝具吧
+

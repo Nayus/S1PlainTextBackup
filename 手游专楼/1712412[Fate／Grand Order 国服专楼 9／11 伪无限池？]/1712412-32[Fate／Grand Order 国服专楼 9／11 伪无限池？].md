@@ -1146,3 +1146,13 @@ new源为朝……<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 只能说由于消失的主要是呼符，所以只看石头数量不是亏太多
 
+
+*****
+
+####  doublehit  
+##### 46925#       发表于 2025-1-1 13:13
+
+原来友情池也能出四星嘛，一瞬间还以为自己抽错池子了吓一跳
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

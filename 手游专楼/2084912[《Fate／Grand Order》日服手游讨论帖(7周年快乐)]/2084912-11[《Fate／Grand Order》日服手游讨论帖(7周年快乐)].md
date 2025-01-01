@@ -9047,3 +9047,17 @@ box里有一宝旧剑和一宝查理曼，一年用不到一次
 
 查看全部评分
 
+
+*****
+
+####  jackyhuang  
+##### 15937#       发表于 2025-1-1 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67079890&amp;ptid=2084912" target="_blank">格林卡罗尔 发表于 2025-1-1 17:14</a>
+无语，结果还是长草一个月
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+看公告啊，一月活动要求通关奏章1呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

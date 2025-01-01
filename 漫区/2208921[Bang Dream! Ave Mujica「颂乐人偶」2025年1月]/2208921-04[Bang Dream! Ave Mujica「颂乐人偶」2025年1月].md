@@ -14330,3 +14330,20 @@ asl剪辑还给了茜姨抬大腿特写，乐
 
 <img src="https://p.sda1.dev/21/533b301ccda9567e3ffed6e68b92875d/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 5468#       发表于 2025-1-1 17:49
+
+我怎么看都觉得是“已经没关系了”（完全崩了之后的笑）<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 5469#       发表于 2025-1-1 17:55
+
+「知らない」
+「もう関係ないから」
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

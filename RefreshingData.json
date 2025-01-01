@@ -3777,7 +3777,7 @@
     "lastedit": 1735695600,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1478318": {
     "totalreply": 1412,
@@ -5814,10 +5814,10 @@
     "update": false
   },
   "1989188": {
-    "totalreply": 16499,
+    "totalreply": 16506,
     "title": "[新机病栋，谁是大的？]",
     "newtitle": "[新机病栋，谁是大的？]",
-    "lastedit": 1735715771,
+    "lastedit": 1735716969,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -7362,10 +7362,10 @@
     "update": false
   },
   "2170568": {
-    "totalreply": 52830,
+    "totalreply": 52831,
     "title": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
     "newtitle": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
-    "lastedit": 1735715769,
+    "lastedit": 1735716728,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -7407,10 +7407,10 @@
     "update": false
   },
   "2170764": {
-    "totalreply": 18967,
+    "totalreply": 18968,
     "title": "[社交卡游 米家游戏幽夜讨论集MK-2，不喜剧透勿进]",
     "newtitle": "[社交卡游 米家游戏幽夜讨论集MK-2，不喜剧透勿进]",
-    "lastedit": 1735716009,
+    "lastedit": 1735717086,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -7902,10 +7902,10 @@
     "update": false
   },
   "2050404": {
-    "totalreply": 69173,
+    "totalreply": 69174,
     "title": "[东映完全新作原创动画『GIRLS BAND CRY』2024年4月]",
     "newtitle": "[东映完全新作原创动画『GIRLS BAND CRY』2024年4月]",
-    "lastedit": 1735716009,
+    "lastedit": 1735716608,
     "category": "漫区",
     "active": true,
     "update": false
@@ -8631,10 +8631,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 120144,
+    "totalreply": 120151,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1735716369,
+    "lastedit": 1735716969,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9378,10 +9378,10 @@
     "update": false
   },
   "2194561": {
-    "totalreply": 8829,
+    "totalreply": 8840,
     "title": "[【#11】hololive综合讨论楼]",
     "newtitle": "[【#11】hololive综合讨论楼]",
-    "lastedit": 1735704807,
+    "lastedit": 1735716969,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9405,10 +9405,10 @@
     "update": false
   },
   "2194776": {
-    "totalreply": 12792,
+    "totalreply": 12799,
     "title": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
-    "lastedit": 1735716009,
+    "lastedit": 1735716969,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -10818,10 +10818,10 @@
     "update": false
   },
   "2208921": {
-    "totalreply": 5460,
+    "totalreply": 5462,
     "title": "[Bang Dream! Ave Mujica「颂乐人偶」2025年1月]",
     "newtitle": "[BanG Dream! Ave Mujica「颂乐人偶」2025年1月(前三集剧透注意)]",
-    "lastedit": 1735716249,
+    "lastedit": 1735716846,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11974,15 +11974,6 @@
     "title": "[美团试点“骑手过度跑单将被强制下线”]",
     "newtitle": "[美团试点“骑手过度跑单将被强制下线”]",
     "lastedit": 1734756973,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2210870": {
-    "totalreply": 56,
-    "title": "[浙大海外交流项目造假，致学生被英国拒签十年]",
-    "newtitle": "[浙大海外交流项目造假，致学生被英国拒签十年]",
-    "lastedit": 1734507153,
     "category": "外野",
     "active": false,
     "update": false
@@ -17145,10 +17136,10 @@
     "update": false
   },
   "2236132": {
-    "totalreply": 148,
+    "totalreply": 149,
     "title": "[技术封锁真的有效吗？]",
     "newtitle": "[技术封锁真的有效吗？]",
-    "lastedit": 1735715771,
+    "lastedit": 1735716728,
     "category": "外野",
     "active": true,
     "update": false
@@ -17253,10 +17244,10 @@
     "update": false
   },
   "2236146": {
-    "totalreply": 171,
+    "totalreply": 172,
     "title": "[【2024年赤石记录】以单机蝗虫形式蝗的各种三端手游锐评]",
     "newtitle": "[【2024年赤石记录】以单机蝗虫形式蝗的各种三端手游锐评]",
-    "lastedit": 1735711210,
+    "lastedit": 1735716607,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17667,10 +17658,10 @@
     "update": false
   },
   "2086618": {
-    "totalreply": 447,
+    "totalreply": 449,
     "title": "[关于最近毛玉牛乳C100新本的事件，不知道S1的各位怎么看？]",
     "newtitle": "[关于最近毛玉牛乳C100新本的事件，不知道S1的各位怎么看？]",
-    "lastedit": 1735716249,
+    "lastedit": 1735716846,
     "category": "漫区",
     "active": true,
     "update": false

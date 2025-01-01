@@ -183,6 +183,14 @@ for line in cookie_str.split(';'):
     # 设置请求头
 headers = {'User-agent':'Mozilla/5.0 (Windows NT 6.1; WOW64) AppleWebKit/537.36 (KHTML, like Gecko) Chrome/60.0.3112.113 Safari/537.36'}
 rootdir="/home/riko/S1PlainTextBackup/"
+archive_name = "S1PlainTextArchive"+time.strftime("%Y", time.localtime())
+archive_dir="/home/riko/"+archive_name+"/"
+mkdir(archive_dir+"外野/")
+mkdir(archive_dir+"手游专楼/")
+mkdir(archive_dir+"手游战斗/")
+mkdir(archive_dir+"游戏区/")
+mkdir(archive_dir+"漫区/")
+mkdir(archive_dir+"虚拟主播区专楼/")
 with open(rootdir+'RefreshingData.json',"r",encoding='utf-8-sig') as f:
     thdata=json.load(f)
 
@@ -197,18 +205,18 @@ async def UpdateThread(threaddict,semaphore):
                     filedir_src = rootdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+titles
                 else:
                     filedir_src = rootdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+'-01'+titles+'.md'
-                filename_des = re.sub(r'S1PlainTextBackup','S1PlainTextArchive2024',filedir_src)
+                filename_des = re.sub(r'S1PlainTextBackup',archive_name,filedir_src)
                 if os.path.exists(filedir_src):
                     if os.path.exists(filename_des):
                         if os.path.isdir(filedir_src):
                             filedir_src_list = get_dir_files(filedir_src)
                             for i in filedir_src_list:
-                                j = re.sub(r'S1PlainTextBackup','S1PlainTextArchive2024',i)
+                                j = re.sub(r'S1PlainTextBackup',archive_name,i)
                                 thread_merge(i,j)
                         else:
                             thread_merge(filedir_src,filename_des)
                     else:
-                        filedir_des = '/home/riko/S1PlainTextArchive2024/' +thdata[threaddict['id']]['category']+'/'
+                        filedir_des = archive_dir +thdata[threaddict['id']]['category']+'/'
                         mkdir(filedir_des)
                         shutil.move(filedir_src,filedir_des)
                 thdata[threaddict['id']]['active'] = False

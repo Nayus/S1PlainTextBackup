@@ -2133,3 +2133,19 @@ s1邦群并非邦群
 骚扰了几天客服，本来今天想按你说的打电话试试，结果早上一觉醒来那边店员和我说东西到了，不知道从哪里 ...</blockquote>
 哇，恭喜<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 26801#         楼主| 发表于 2025-1-1 14:01
+
+国服新春贺图，saaya和msk混入了主唱的第一排，双子凭借同乐器的优势成功抢占事实上的c位
+
+<img src="https://img.saraba1st.com/forum/202501/01/140010trfkyaj2aialjyjy.jpg" referrerpolicy="no-referrer">
+
+<strong>eeec12176d224f4a5b9e8a344ff790529822d1af.jpg</strong> (165.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 14:00 上传
+

@@ -14142,3 +14142,12 @@ eva op里最后那张笑容璀璨的真嗣君。。。</blockquote>
 “睦本来就是会笑的”
 <img src="https://p.sda1.dev/21/7d5c3934dd227d6fa997603a880bae9f/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 5450#       发表于 2025-1-1 14:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥子那个笑，配上mujica现状，我只能想到释怀的笑这个可能了
+差不多就是那种知道自己没救了，把后事全安排完后安心去死的表情
+

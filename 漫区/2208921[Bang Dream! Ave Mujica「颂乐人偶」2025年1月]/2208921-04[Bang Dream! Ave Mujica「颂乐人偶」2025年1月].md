@@ -14151,3 +14151,18 @@ eva op里最后那张笑容璀璨的真嗣君。。。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥子那个笑，配上mujica现状，我只能想到释怀的笑这个可能了
 差不多就是那种知道自己没救了，把后事全安排完后安心去死的表情
 
+
+*****
+
+####  一心而用  
+##### 5451#       发表于 2025-1-1 14:37
+
+<img src="https://p.sda1.dev/21/0d40ac6f3dc3779cc2148461fb270b68/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  贰臣  
+##### 5452#       发表于 2025-1-1 14:37
+
+往好了想，说不定真是一切尘埃落地的释怀的笑，毕竟最后还是要包饺子<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
